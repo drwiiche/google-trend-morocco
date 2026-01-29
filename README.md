@@ -1,3 +1,10 @@
+### real betis vs feyenoord (N/A, Thu, 29 Jan 2026 12:10:00 -0800)
+
+- **How to get Real Betis vs Feyenoord tickets: Europa League tickets, January 29 fixture, predictions & more**: [Link](https://www.goal.com/en-ca/news/real-betis-feyenoord-tickets/blt969c08fe229f88e7)
+- **What Feyenoord and Go Ahead Eagles need to qualify for the UEFA Europa League knockouts**: [Link](https://www.flashscore.com/news/soccer-europa-league-what-feyenoord-and-go-ahead-eagles-need-to-qualify-for-the-uefa-europa-league-knockouts/x6uU6vVQ/)
+- **Betis vs Feyenoord LIVE Score Updates (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/01/29/1248949-betis-vs-feyenoord-live-score-europa-league.html)
+
+
 ### lille – fribourg (N/A, Thu, 29 Jan 2026 11:50:00 -0800)
 
 - **Lille-Fribourg, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-europa/lille-fribourg-quelle-chaine-diffuse-le-match-985425.html)
