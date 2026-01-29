@@ -1,3 +1,31 @@
+### lille – fribourg (N/A, Thu, 29 Jan 2026 11:50:00 -0800)
+
+- **Lille-Fribourg, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-europa/lille-fribourg-quelle-chaine-diffuse-le-match-985425.html)
+- **PRONOS PARIS RMC Le pari football d’Éric Di Meco du 29 janvier - Ligue Europa**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-d-eric-di-meco-du-29-janvier-ligue-europa_AN-202601290594.html)
+- **Olivier Giroud laissé sur le banc par Bruno Genesio**: [Link](https://www.boursorama.com/actualite-economique/actualites/olivier-giroud-laisse-sur-le-banc-par-bruno-genesio-b1f83dd96db940af79476ac61ecbf4df)
+
+
+### lyon – paok (N/A, Thu, 29 Jan 2026 11:50:00 -0800)
+
+- **Route de la mort, volant bloqué, sept défunts : ce que l'on sait de l'accident impliquant des supporters du PAOK qui se rendaient à Lyon pour le match de Ligue Europa**: [Link](https://www.lequipe.fr/Football/Actualites/Route-de-la-mort-volant-bloque-sept-defunts-ce-que-l-on-sait-de-l-accident-impliquant-des-supporters-du-paok-qui-se-rendaient-a-lyon-pour-le-match-de-ligue-europa/1637205)
+- **Le joli message des ultras parisiens au PAOK Salonique**: [Link](https://www.footmercato.net/a359456625848592190-le-joli-message-des-ultras-parisiens-au-paok-salonique)
+- **Le forfait de Corentin Tolisso annoncé pour OL – LOSC**: [Link](https://lepetitlillois.com/2026/01/29/le-forfait-de-corentin-tolisso-annonce-pour-ol-losc/)
+
+
+### fcsb – fenerbahçe (N/A, Thu, 29 Jan 2026 11:50:00 -0800)
+
+- **Fenerbahçe'de En-Nesyri FCSB maçında sahada: Yaklaşık 2 ay sonra 11'de**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-en-nesyri-fcsb-macinda-sahada-yaklasik-2-ay-sonra-11de-996639h.htm)
+- **Steaua Bükreş - Fenerbahçe maçı hangi kanalda ve saat kaçta yayınlanacak? Fenerbahçe maçı canlı izleme linki**: [Link](https://www.demokrathaber.org/steaua-bukres-fenerbahce-maci-hangi-kanalda-ve-saat-kacta-yayinlanacak-fenerbahce-maci-canli-izleme-linki)
+- **Avrupa’da kritik gece: İlk 11’ler açıklandı**: [Link](https://mansethaber.com/avrupada-kritik-gece-ilk-11ler-aciklandi)
+
+
+### ligue europa (N/A, Thu, 29 Jan 2026 11:50:00 -0800)
+
+- **Ligue Europa : un jeudi décisif pour la dernière journée de la phase de groupes**: [Link](https://lopinion.ma/fr/sport/newsroom/ligue-europa--un-jeudi-decisif-pour-la-derniere-journee-de-la-phase-de-groupes_a11816?articleId=9ccea20d-0cfe-44d9-b44c-25083ea91dd6)
+- **Ligue Europa : six joueurs algériens attendus ce jeudi**: [Link](https://beninwebtv.com/ligue-europa-six-joueurs-algeriens-attendus-ce-jeudi/)
+- **OL - PAOK, Lille - Fribourg, Ludogorets - Nice : les compos officielles !**: [Link](https://www.onzemondial.com/europa-league/ol-paok-lille-fribourg-ludogorets-nice-les-compos-officielles-978566)
+
+
 ### aston villa – rb salzburg (N/A, Thu, 29 Jan 2026 11:30:00 -0800)
 
 - **Team news for Salzburg tie**: [Link](https://www.avfc.co.uk/news/2026/january/28/prematch-team-news-salzburg-europa-league/)
