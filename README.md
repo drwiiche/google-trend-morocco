@@ -1,3 +1,31 @@
+### cafonline (N/A, Wed, 28 Jan 2026 17:20:00 -0800)
+
+- **CAF Disciplinary Board imposes sanctions on the Fédération Sénégalaise de Football (FSF), the Fédération Royale Marocaine de Football (FRMF)**: [Link](https://www.cafonline.com/news/caf-disciplinary-board-imposes-sanctions-on-the-federation-senegalaise-de-football-fsf-the-federation-royale-marocaine-de-football-frmf/)
+- **Post-AFCON blues: Why the loss hurt Moroccans so deeply**: [Link](https://en.yabiladi.com/articles/details/186903/post-afcon-blues-loss-hurt-moroccans.html)
+- **Senegal confirms CAF has initiated proceedings against them for bringing them to the Africa Cup of Nations final**: [Link](https://telegrafi.com/en/Senegal-confirms-that-CAF-has-initiated-proceedings-against-them-for-bringing-them-to-the-Africa-Cup-of-Nations-final/)
+
+
+### caf (N/A, Wed, 28 Jan 2026 17:10:00 -0800)
+
+- **CAF Disciplinary Board imposes sanctions on the Fédération Sénégalaise de Football (FSF), the Fédération Royale Marocaine de Football (FRMF)**: [Link](https://www.cafonline.com/news/caf-disciplinary-board-imposes-sanctions-on-the-federation-senegalaise-de-football-fsf-the-federation-royale-marocaine-de-football-frmf/)
+- **Post-AFCON blues: Why the loss hurt Moroccans so deeply**: [Link](https://en.yabiladi.com/articles/details/186903/post-afcon-blues-loss-hurt-moroccans.html)
+- **Senegal confirms CAF has initiated proceedings against them for bringing them to the Africa Cup of Nations final**: [Link](https://telegrafi.com/en/Senegal-confirms-that-CAF-has-initiated-proceedings-against-them-for-bringing-them-to-the-Africa-Cup-of-Nations-final/)
+
+
+### mohamed chaouki rni (N/A, Wed, 28 Jan 2026 17:10:00 -0800)
+
+- **Présidence du RNI : Chaouki adoubé, Aujjar renonce et Talbi Alami verrouille la succession d'Akhannouch**: [Link](https://ledesk.ma/2026/01/28/presidence-du-rni-chaouki-adoube-aujjar-renonce-et-talbi-alami-verrouille-la-succession-dakhannouch/)
+- **Mohamed Chaouki adoubé par le bureau politique du RNI pour succéder à Akhannouch**: [Link](https://medias24.com/2026/01/28/mohamed-chaouki-adoube-par-le-bureau-politique-du-rni-pour-succeder-a-akhannouch-1618482/)
+- **RNI, départ d’Akhannouch, bilan du gouvernement... la lecture de Zaïna Chahim**: [Link](https://lematin.ma/nation/rni-depart-dakhannouch-bilan-la-lecture-de-zaina-chahim/326644)
+
+
+### real madrid fc (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **Real Madrid snatches this gem from Sevilla FC**: [Link](https://sports.yahoo.com/articles/real-madrid-snatches-gem-sevilla-084000124.html)
+- **Real Madrid snatches this gem from Sevilla FC**: [Link](https://foot-africa.com/en/news/real-madrid-snatches-this-gem-from-sevilla-fc-1061393/)
+- **Official: Real Madrid strengthen youth ranks with highly-rated Spanish forward**: [Link](https://madriduniversal.com/official-real-madrid-strengthen-youth-ranks-with-highly-rated-spanish-forward/)
+
+
 ### نشرة إنذارية للأرصاد الجوية (N/A, Wed, 28 Jan 2026 16:00:00 -0800)
 
 - **أمطار قوية تصل إلى 100 ملم بالشمال**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-100-%D9%85%D9%84%D9%85-%D8%A8%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-1693384.html)
