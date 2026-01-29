@@ -1,3 +1,10 @@
+### mehdi bensaid (N/A, Wed, 28 Jan 2026 17:00:00 -0800)
+
+- **Mehdi Bensaid dément des accusations liées à l’affaire "Escobar du Sahara" et saisit la justice**: [Link](https://medias24.com/2026/01/28/mehdi-bensaid-dement-des-accusations-liees-a-laffaire-escobar-du-sahara-et-saisit-la-justice-1618489/)
+- **“Escobar du Sahara” : Bensaid dément tout lien avec l’affaire et saisit la justice**: [Link](https://mobile.telquel.ma/instant-t/2026/01/28/affaire-escobar-du-sahara-bensaid-nie-tout-lien-avec-le-dossier-et-annonce-un-recours-a-la-justice_1972838/)
+- **Bensaid saisit la justice pour diffusion de fake news**: [Link](https://fr.hespress.com/460148-bensaid-saisit-la-justice-pour-diffusion-de-fake-news.html)
+
+
 ### cafonline (N/A, Wed, 28 Jan 2026 17:20:00 -0800)
 
 - **CAF Disciplinary Board imposes sanctions on the Fédération Sénégalaise de Football (FSF), the Fédération Royale Marocaine de Football (FRMF)**: [Link](https://www.cafonline.com/news/caf-disciplinary-board-imposes-sanctions-on-the-federation-senegalaise-de-football-fsf-the-federation-royale-marocaine-de-football-frmf/)
