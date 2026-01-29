@@ -1,3 +1,10 @@
+### dortmund vs inter (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
+
+- **BVB zeigt Grusel-Kick | Horror-Note für Guirassy**: [Link](https://www.fussballtransfers.com/a2227948438145336911-bvb-zeigt-grusel-kick-horror-note-fuer-guirassy)
+- **Reaktionen: „Zu wenig nach vorne gespielt“**: [Link](https://onefootball.com/de/news/reaktionen-zu-wenig-nach-vorne-gespielt-42321725)
+- **Dimarcos Freistoß bringt Inter auf die Siegerstraße**: [Link](https://www.kicker.at/dortmund-gegen-inter-2026-champions-league-5170080/spielbericht)
+
+
 ### mehdi bensaid (N/A, Wed, 28 Jan 2026 17:00:00 -0800)
 
 - **Mehdi Bensaid dément des accusations liées à l’affaire "Escobar du Sahara" et saisit la justice**: [Link](https://medias24.com/2026/01/28/mehdi-bensaid-dement-des-accusations-liees-a-laffaire-escobar-du-sahara-et-saisit-la-justice-1618489/)
