@@ -1,3 +1,24 @@
+### europa league (N/A, Thu, 29 Jan 2026 10:40:00 -0800)
+
+- **Team news for Salzburg tie**: [Link](https://www.avfc.co.uk/news/2026/january/28/prematch-team-news-salzburg-europa-league/)
+- **Best bets: Europa League tips for 29 January 2026**: [Link](https://www.sportinglife.com/football/news/best-bets-europa-league-tips-for-29-january-2026/230042)
+- **Tielemans, McGinn, Alysson: Aston Villa injury news and return dates ahead of RB Salzburg and Brentford tests**: [Link](https://www.birminghamworld.uk/sport/football/aston-villa/tielemans-mcginn-alysson-aston-villa-injury-news-and-return-dates-5493892)
+
+
+### barrage al wahda (N/A, Thu, 29 Jan 2026 10:30:00 -0800)
+
+- **Barrage Al Wahda : l’ABH du Sebou procède à un lâcher d’eau contrôlé**: [Link](https://medias24.com/2026/01/29/barrage-al-wahda-labh-du-sebou-procede-a-un-lacher-deau-controle-1619121/)
+- **Les barrages du bassin de Sebou affichent un taux de remplissage de 66,1%**: [Link](https://ledesk.ma/encontinu/les-barrages-du-bassin-de-sebou-affichent-un-taux-de-remplissage-de-661/)
+- **Barrages du Maroc : le taux de remplissage grimpe à 55,2%, presque le double en un an**: [Link](https://lematin.ma/nation/barrages-du-maroc-les-reserves-grimpent-a-55-presque-le-double-en-un-an/326712)
+
+
+### al-qadisiyah vs al-hilal (N/A, Thu, 29 Jan 2026 10:30:00 -0800)
+
+- **How to watch today's Al Qadsiah vs Al Hilal Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-al-qadsiah-al-hilal-29012026/bltda1ad1d7a18cc82f)
+- **Summit Showdown: Julián Quiñones and Al Qadsiah Challenge Unbeaten Al Hilal in Saudi Arabia**: [Link](https://www.soyfutbol.com/en/news/summit-showdown-julian-quinones-and-al-qadsiah-challenge-unbeaten-al-hilal-in-saudi-arabia-20260128-0053.html)
+- **Preview: Al Quadisiya vs Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-quadisiya/preview/al-quadisiya-vs-al-hilal-prediction-team-news-lineups_590791.html)
+
+
 ### موعد اذان المغرب (N/A, Thu, 29 Jan 2026 10:00:00 -0800)
 
 - **عاجل: مواقيت الصلاة غداً الأربعاء 28 يناير في مصر - إليك التوقيت الدقيق لصلاة العشاء والفجر!**: [Link](https://yemen-press.net/news162558.html)
