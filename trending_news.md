@@ -1,3 +1,31 @@
+### arabie saoudite (N/A, Thu, 29 Jan 2026 04:50:00 -0800)
+
+- **L’Arabie Saoudite suspend la construction du plus grand building du monde, Mukaab**: [Link](https://www.presse-citron.net/larabie-saoudite-suspend-la-construction-du-plus-grand-building-du-monde-mukaab/)
+- **PSG, confirmation pour le dossier Ousmane Dembélé**: [Link](https://www.sports.fr/football/mercato/psg-confirmation-pour-le-dossier-ousmane-dembele-985907.html)
+- **L'Arabie saoudite vise Dembélé : les 16 infos mercato de mercredi**: [Link](https://www.eurosport.fr/football/transferts/2025-2026/dembele-psg-kante-fenerbahce-sterling-goretzka-les-16-infos-mercato-de-mercredi_sto23263975/story.shtml)
+
+
+### ksar el kebir (N/A, Thu, 29 Jan 2026 03:50:00 -0800)
+
+- **Ksar El Kébir : niveau d’alerte maximal suite à la montée des eaux de l’oued Loukkos**: [Link](https://ledesk.ma/encontinu/ksar-el-kebir-niveau-dalerte-maximal-suite-a-la-montee-des-eaux-de-loued-loukkos/)
+- **Lissage capillaire : l’AMMPS alerte sur un risque rénal lié à l’utilisation d’acide glyoxylique**: [Link](https://lematin.ma/societe/lammps-alerte-sur-un-risque-renal-lie-au-lissage-capillaire/326882)
+- **Simo demande aux habitants de Ksar el Kebir de réduire leur consommation d’eau dans les maisons, les salles de bains et les toilettes en raison des « inondations ».**: [Link](https://tanja7.com/fr/7912)
+
+
+### عقوبات الكاف (N/A, Wed, 28 Jan 2026 22:50:00 -0800)
+
+- **أحداث نهائي كأس إفريقيا للأمم في الرباط .. "الكاف" تعاقب المغرب والسنغال**: [Link](https://www.hespress.com/%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A3%D9%85%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7-1693849.html)
+- **لجنة التأديب في "الكاف" ترفض شكوى الجامعة وتنزل عقوبات مخففة على الاتحاد السنغالي**: [Link](https://www.hesport.com/%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AA%D8%A3%D8%AF%D9%8A%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D8%B1%D9%81%D8%B6-%D8%B4%D9%83%D9%88%D9%89-%D8%A7%D9%84%D8%AC%D8%A7%D9%85-424829.html)
+- **5 عقوبات محتملة على السنغال بعد نهائي كأس أمم إفريقيا 2025**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/5-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D9%85%D8%AD%D8%AA%D9%85%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A8%D8%B9%D8%AF-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025/15060)
+
+
+### موعد اذان الفجر (N/A, Wed, 28 Jan 2026 21:20:00 -0800)
+
+- **عاجل: مواقيت الصلاة غداً الأربعاء 28 يناير في مصر - إليك التوقيت الدقيق لصلاة العشاء والفجر!**: [Link](https://yemen-press.net/news162558.html)
+- **مواقيت الصلاه اليوم الخميس 29يناير 2026 فى المنيا**: [Link](https://www.elfagr.org/5276636)
+- **موعد أذان وصلاة العصر اليوم الخميس 29 يناير .. ودعاء بعد ختم الصلا**: [Link](https://www.masrawy.com/Islameyat/others-islamic_ppl_news/details/2026/1/29/2933879/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-29-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-%D9%88%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7)
+
+
 ### port nador west med (N/A, Wed, 28 Jan 2026 22:10:00 -0800)
 
 - **Ports : Marsa Maroc finalise l’entrée de TIL au capital de West Med Container Terminal (WMCT)**: [Link](https://ecoactu.ma/ports-marsa-maroc-til-de-west-med/)
