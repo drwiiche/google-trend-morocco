@@ -1,3 +1,10 @@
+### al-fateh – al ittihad (N/A, Thu, 29 Jan 2026 06:50:00 -0800)
+
+- **Al Fateh Vs Al-Ittihad LIVE Score, Saudi Pro League: Mid-Table Battle Coming Up In Hofuf**: [Link](https://www.outlookindia.com/sports/football/al-fateh-vs-al-ittihad-live-score-saudi-pro-league-2025-26-matchday-19-updates)
+- **Conceição Reveals Al-Ittihad's Offensive Strategy Against Al-Fateh After Benzema's Absence**: [Link](https://www.ysscores.com/en/news/13900528/Concei%C3%A7%C3%A3o-Reveals-Al-Ittihad's-Offensive-Strategy-Against-Al-Fateh-After-Benzema's-Absence)
+- **Channels Broadcasting Al-Fateh vs. Al-Ittihad in 2025-2026 Saudi Roshn League**: [Link](https://www.filmogaz.com/121883)
+
+
 ### هدى الشعراوي (N/A, Thu, 29 Jan 2026 06:10:00 -0800)
 
 - **جريمة غامضة تهز الوسط الفني السوري .. مقتل هدى الشعراوي**: [Link](https://www.hespress.com/%D8%AC%D8%B1%D9%8A%D9%85%D8%A9-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%85%D9%82-1694090.html)
