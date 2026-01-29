@@ -1,3 +1,10 @@
+### port nador west med (N/A, Wed, 28 Jan 2026 22:10:00 -0800)
+
+- **Ports : Marsa Maroc finalise l’entrée de TIL au capital de West Med Container Terminal (WMCT)**: [Link](https://ecoactu.ma/ports-marsa-maroc-til-de-west-med/)
+- **King Mohammed VI reviews Nador West Med port project ahead of launch**: [Link](https://en.yabiladi.com/articles/details/186885/king-mohammed-reviews-nador-west.html)
+- **🔥A Statement from the Royal Court**: [Link](https://tanja7.com/en/7333)
+
+
 ### can 2025 maroc sénégal caf (N/A, Thu, 29 Jan 2026 01:20:00 -0800)
 
 - **Finale de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 : le Jury Disciplinaire de la CAF prononce des sanctionsmarocaine de football (FRMF)**: [Link](https://www.cafonline.com/fr/infos/finale-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-le-jury-disciplinaire-de-la-caf-prononce-des-sanctionsmarocaine-de-football-frmf/)
