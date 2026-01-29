@@ -1,3 +1,24 @@
+### real betis (N/A, Thu, 29 Jan 2026 13:10:00 -0800)
+
+- **Betis - Feyenoord, hoy en directo: última hora de la Europa League en vivo**: [Link](https://as.com/futbol/betis-feyenoord-hoy-en-directo-ultima-hora-de-la-europa-league-en-vivo-f202601-d/)
+- **Manuel Pellegrini: «Lo más importante de la primera fase es clasificar»**: [Link](https://fdpradio.com/manuel-pellegrini-lo-mas-importante-de-la-primera-fase-es-clasificar/)
+- **Un duelo en el que sólo valen los tres puntos**: [Link](https://laconexionusa.com/un-duelo-en-el-que-solo-valen-los-tres-puntos/)
+
+
+### aston villa (N/A, Thu, 29 Jan 2026 12:50:00 -0800)
+
+- **Aston Villa suffer huge blow to title hopes as Ollie Watkins limps off with hamstring injury in 'meaningless' match**: [Link](https://www.thesun.co.uk/sport/38063384/aston-villa-ollie-watkins-europa-league/)
+- **Aston Villa dealt fresh injury blow as Ollie Watkins forced off against RB Salzburg**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/aston-villa-dealt-fresh-injury-33329227)
+- **Aston Villa get worst possible Ollie Watkins news during Europa League clash with RB Salzburg**: [Link](https://www.astonvillanews.co.uk/2026/01/29/aston-villa-get-worst-possible-ollie-watkins-news-in-europa-league-clash-vs-rb-salzburg/)
+
+
+### bridgerton (N/A, Thu, 29 Jan 2026 11:40:00 -0800)
+
+- **Bridgerton’s Luke Thompson and Yerin Ha Share the Secrets Behind That Steamy Staircase Scene**: [Link](https://www.eonline.com/news/1427309/bridgerton-season-4-luke-thompson-yerin-ha-interview-on-stair-sex-scene)
+- **‘Bridgerton’ Season 3 Recap: Who Got Together and Why Did Whistledown Reveal Her Identity?**: [Link](https://www.imdb.com/de/news/ni65682274/?ref_=nwc_art_perm)
+- **What is a Ward in ‘Bridgerton’?**: [Link](https://decider.com/2026/01/29/what-is-a-ward-in-bridgerton/)
+
+
 ### betis (N/A, Thu, 29 Jan 2026 13:00:00 -0800)
 
 - **Betis - Feyenoord, hoy en directo: última hora de la Europa League en vivo**: [Link](https://as.com/futbol/betis-feyenoord-hoy-en-directo-ultima-hora-de-la-europa-league-en-vivo-f202601-d/)
