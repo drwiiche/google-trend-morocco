@@ -1,3 +1,10 @@
+### فيضانات القصر الكبير (N/A, Thu, 29 Jan 2026 13:20:00 -0800)
+
+- **الأمطار تغرق مدينة القصر الكبير المغربية**: [Link](https://www.aljazeera.net/news/2026/1/30/%D8%A8%D9%84%D8%A7%D8%A7%D9%84%D8%A7%D9%84%D8%A7)
+- **الحكومة تعقد اجتماعا مستعجلا لتدارس وضعية الفيضانات في القصر الكبير**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D8%B9%D9%82%D8%AF-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D8%A7-%D9%85%D8%B3%D8%AA%D8%B9%D8%AC%D9%84%D8%A7-%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D8%B3-%D9%88-1694168.html)
+- **ليلة عصيبة بالقصر الكبير.. إجلاء واسع للسكان وقرار بقطع التيار الكهربائي**: [Link](https://nichan.ma/333467/)
+
+
 ### barrage al wahda maroc (N/A, Thu, 29 Jan 2026 14:40:00 -0800)
 
 - **Barrage Al Wahda : l’ABH du Sebou procède à un lâcher d’eau contrôlé**: [Link](https://medias24.com/2026/01/29/barrage-al-wahda-labh-du-sebou-procede-a-un-lacher-deau-controle-1619121/)
