@@ -1,3 +1,24 @@
+### aston villa – rb salzburg (N/A, Thu, 29 Jan 2026 11:30:00 -0800)
+
+- **Team news for Salzburg tie**: [Link](https://www.avfc.co.uk/news/2026/january/28/prematch-team-news-salzburg-europa-league/)
+- **Best bets: Europa League tips for 29 January 2026**: [Link](https://www.sportinglife.com/football/news/best-bets-europa-league-tips-for-29-january-2026/230042)
+- **Why Tammy Abraham and Douglas Luiz aren't playing for Aston Villa vs RB Salzburg after transfers**: [Link](https://www.birminghammail.co.uk/sport/football/football-news/tammy-abraham-douglas-luiz-arent-33328998)
+
+
+### étoile rouge – celta vigo (N/A, Thu, 29 Jan 2026 11:20:00 -0800)
+
+- **DIRECT. Etoile Rouge Belgrade-Celta Vigo (Ligue Europa 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2025-2026/etoile-rouge-belgrade-celta-vigo-live/685763)
+- **Estrella Roja – Celta : La Soirée de Tous les Dangers à Belgrade…**: [Link](https://www.teamfootball.fr/actu/estrella-roja-celta-la-soiree-de-tous-les-dangers-a-belgrade/)
+- **Pronostic : FK Crvena zvezda vs Celta Vigo | 29/01/2026**: [Link](https://www.footix.fr/pronostic-fk-crvena-zvezda-vs-celta-vigo-29-01-2026/)
+
+
+### al qadisiya – al-hilal (N/A, Thu, 29 Jan 2026 08:50:00 -0800)
+
+- **How to watch today's Al Qadsiah vs Al Hilal Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-al-qadsiah-al-hilal-29012026/bltda1ad1d7a18cc82f)
+- **Summit Showdown: Julián Quiñones and Al Qadsiah Challenge Unbeaten Al Hilal in Saudi Arabia**: [Link](https://www.soyfutbol.com/en/news/summit-showdown-julian-quinones-and-al-qadsiah-challenge-unbeaten-al-hilal-in-saudi-arabia-20260128-0053.html)
+- **Preview: Al Quadisiya vs Al-Hilal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-quadisiya/preview/al-quadisiya-vs-al-hilal-prediction-team-news-lineups_590791.html)
+
+
 ### europa league (N/A, Thu, 29 Jan 2026 10:40:00 -0800)
 
 - **Team news for Salzburg tie**: [Link](https://www.avfc.co.uk/news/2026/january/28/prematch-team-news-salzburg-europa-league/)
