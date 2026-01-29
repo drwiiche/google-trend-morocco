@@ -1,3 +1,10 @@
+### gold price (N/A, Thu, 29 Jan 2026 08:20:00 -0800)
+
+- **Gold and silver keep hitting record highs. But is the precious metals market 'broken'?**: [Link](https://www.cnbc.com/2026/01/29/gold-and-silver-keep-hitting-record-high-but-the-market-may-be-broken.html)
+- **Silver Surges To Record $120, Gold Nears High Of $5,600 As Price Rally Breaks Even More Records**: [Link](https://www.forbes.com/sites/conormurray/2026/01/29/silver-surges-to-record-120-gold-nears-high-of-5600-as-price-rally-breaks-even-more-records/)
+- **What is driving gold’s relentless rally?**: [Link](https://www.economist.com/finance-and-economics/2026/01/27/what-is-driving-golds-relentless-rally)
+
+
 ### sanctions caf maroc senegal (N/A, Thu, 29 Jan 2026 07:20:00 -0800)
 
 - **Finale de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 : le Jury Disciplinaire de la CAF prononce des sanctionsmarocaine de football (FRMF)**: [Link](https://www.cafonline.com/fr/infos/finale-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-le-jury-disciplinaire-de-la-caf-prononce-des-sanctionsmarocaine-de-football-frmf/)
