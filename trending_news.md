@@ -1,3 +1,17 @@
+### betis (N/A, Thu, 29 Jan 2026 13:00:00 -0800)
+
+- **Betis - Feyenoord, hoy en directo: última hora de la Europa League en vivo**: [Link](https://as.com/futbol/betis-feyenoord-hoy-en-directo-ultima-hora-de-la-europa-league-en-vivo-f202601-d/)
+- **Manuel Pellegrini: «Lo más importante de la primera fase es clasificar»**: [Link](https://fdpradio.com/manuel-pellegrini-lo-mas-importante-de-la-primera-fase-es-clasificar/)
+- **Un duelo en el que sólo valen los tres puntos**: [Link](https://laconexionusa.com/un-duelo-en-el-que-solo-valen-los-tres-puntos/)
+
+
+### ريال بتيس ضد فيينورد (N/A, Thu, 29 Jan 2026 11:50:00 -0800)
+
+- **مباراة حاسمة لفريق ريال بيتيس أمام فاينورد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D8%A7%D9%8A%D9%86%D9%88%D8%B1%D8%AF-2026-01-29?videopage=true)
+- **هدف عبد الصمد الزلزولي في مرمي فينورد بالدوري الاوروبي**: [Link](https://www.btolat.com/video/90914)
+- **الموعد والقنوات الناقلة لمباراة ريال بيتيس ضد فاينورد في الدوري الأوروبي**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-172/)
+
+
 ### oncf (N/A, Thu, 29 Jan 2026 12:40:00 -0800)
 
 - **CAN Maroc 2025 : des records numériques sans précédent**: [Link](https://www.cafonline.com/fr/infos/can-maroc-2025-des-records-numeriques-sans-precedent/)
