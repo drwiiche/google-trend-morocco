@@ -1,3 +1,10 @@
+### طقس طنجة (N/A, Wed, 28 Jan 2026 22:40:00 -0800)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-64-1693809.html)
+- **رياح قوية.. تفاصيل توقعات أحوال الطقس لليوم الأربعاء**: [Link](https://ar.telquel.ma/%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%84%D9%84/)
+- **نشرة إنذارية: أمطار قوية ورياح عاتية مرتقبة بعدد من مناطق المملكة**: [Link](https://2m.ma/ar/news/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D8%B9%D8%A7%D8%AA%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-20260127)
+
+
 ### dortmund vs inter (N/A, Wed, 28 Jan 2026 14:00:00 -0800)
 
 - **BVB zeigt Grusel-Kick | Horror-Note für Guirassy**: [Link](https://www.fussballtransfers.com/a2227948438145336911-bvb-zeigt-grusel-kick-horror-note-fuer-guirassy)
