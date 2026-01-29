@@ -1,3 +1,17 @@
+### sanctions caf maroc senegal (N/A, Thu, 29 Jan 2026 07:20:00 -0800)
+
+- **Finale de la TotalEnergies CAF Coupe d’Afrique des Nations Maroc 2025 : le Jury Disciplinaire de la CAF prononce des sanctionsmarocaine de football (FRMF)**: [Link](https://www.cafonline.com/fr/infos/finale-de-la-totalenergies-caf-coupe-d-afrique-des-nations-maroc-2025-le-jury-disciplinaire-de-la-caf-prononce-des-sanctionsmarocaine-de-football-frmf/)
+- **Finale de la CAN 2025 : la CAF dévoile ses sanctions contre le Sénégal et le Maroc**: [Link](https://ledesk.ma/encontinu/finale-de-la-can-2025-la-caf-devoile-ses-sanctions-contre-le-senegal-et-le-maroc/)
+- **CAN 2025. Après le verdict de la CAF, le Maroc décide de faire appel**: [Link](https://medias24.com/2026/01/29/can2025-apres-le-verdict-de-la-caf-le-maroc-decide-de-faire-appel-1619041/)
+
+
+### azzedine ounahi (N/A, Thu, 29 Jan 2026 03:40:00 -0800)
+
+- **Girona donne des nouvelles d’Azzedine Ounahi**: [Link](https://www.footmercato.net/a2444686102596211318-girona-donne-des-nouvelles-dazzedine-ounahi)
+- **Blessé à la CAN 2025, Azzedine Ounahi fixé**: [Link](https://sportnewsafrica.com/alertes/blesse-a-la-can-2025-azzedine-ounahi-fixe)
+- **Azzedine Ounahi de Gérone éloigné des terrains 2 à 3 semaines suite à une blessure à la CAN**: [Link](https://tribuna.com/fr/news/2026-01-28-azzedine-ounahi-de-gerone-eloigne-des-terrains-2-a-3-semaines-suite-a-une-blessure-a-la-c/)
+
+
 ### al-fateh – al ittihad (N/A, Thu, 29 Jan 2026 06:50:00 -0800)
 
 - **Al Fateh Vs Al-Ittihad LIVE Score, Saudi Pro League: Mid-Table Battle Coming Up In Hofuf**: [Link](https://www.outlookindia.com/sports/football/al-fateh-vs-al-ittihad-live-score-saudi-pro-league-2025-26-matchday-19-updates)
