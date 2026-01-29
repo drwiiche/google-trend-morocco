@@ -1,3 +1,10 @@
+### هدى الشعراوي (N/A, Thu, 29 Jan 2026 06:10:00 -0800)
+
+- **جريمة غامضة تهز الوسط الفني السوري .. مقتل هدى الشعراوي**: [Link](https://www.hespress.com/%D8%AC%D8%B1%D9%8A%D9%85%D8%A9-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%85%D9%82-1694090.html)
+- **مقتل الممثلة السورية هدى شعراوي المعروفة بدور “أم زكي” داخل منزلها في العاصمة دمشق**: [Link](https://www.raialyoum.com/%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A%D8%A9-%D9%87%D8%AF%D9%89-%D8%B4%D8%B9%D8%B1%D8%A7%D9%88%D9%8A-%D8%A7%D9%84%D9%85%D8%B9%D8%B1/)
+- **هدى شعراوي… رحلت «داية» الدراما السورية**: [Link](https://www.al-akhbar.com/news/877532/%D9%87%D8%AF%D9%89-%D8%B4%D8%B9%D8%B1%D8%A7%D9%88%D9%8A----%D8%B1%D8%AD%D9%84%D8%AA--%D8%AF%D8%A7%D9%8A%D8%A9--%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A%D8%A9)
+
+
 ### arabie saoudite (N/A, Thu, 29 Jan 2026 04:50:00 -0800)
 
 - **L’Arabie Saoudite suspend la construction du plus grand building du monde, Mukaab**: [Link](https://www.presse-citron.net/larabie-saoudite-suspend-la-construction-du-plus-grand-building-du-monde-mukaab/)
