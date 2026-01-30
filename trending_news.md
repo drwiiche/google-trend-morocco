@@ -1,3 +1,17 @@
+### djokovic (N/A, Fri, 30 Jan 2026 02:10:00 -0800)
+
+- **Australian Open 2026 semi-finals LIVE: Jannik Sinner vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
+- **Sinner leads rival Djokovic as Alcaraz awaits in Australian Open final**: [Link](https://www.msn.com/en-gb/sport/tennis/djokovic-challenges-sinner-as-alcaraz-awaits-in-australian-open-final/ar-AA1VjFeS)
+- **Sinner Shines Against Djokovic in Australian Open 2026 Semifinal, Albanese Attends**: [Link](https://www.filmogaz.com/124822)
+
+
+### pix (N/A, Fri, 30 Jan 2026 00:00:00 -0800)
+
+- **Estudante que devolveu PIX de R$ 200 mil está em busca de trabalho**: [Link](https://g1.globo.com/go/goias/noticia/2026/01/27/estudante-que-devolveu-pix-de-r-200-mil-esta-em-busca-de-trabalho.ghtml)
+- **Pix por engano: o que acontece se não devolver o dinheiro**: [Link](https://www.tupi.fm/sentinelas/pix-por-engano-o-que-acontece-se-nao-devolver-o-dinheiro/)
+- **Show de honestidade: estudante devolve pix errado de R$ 200 mil**: [Link](https://www.correiobraziliense.com.br/webstories/flipar/2026/01/7342342-show-de-honestidade-estudante-devolve-pix-errado-de-rs-200-mil.html)
+
+
 ### dubai aerospace enterprise (N/A, Thu, 29 Jan 2026 23:40:00 -0800)
 
 - **Royal Air Maroc Secures Long-Term Lease for 13 Boeing 737 MAX 8 Aircraft**: [Link](https://www.moroccoworldnews.com/2026/01/276777/royal-air-maroc-secures-long-term-lease-for-13-boeing-737-max-8-aircraft/)
