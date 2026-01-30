@@ -1,3 +1,17 @@
+### novak djokovic (N/A, Fri, 30 Jan 2026 02:40:00 -0800)
+
+- **Australian Open 2026 semi-finals LIVE: Jannik Sinner vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
+- **“I would never bet against him”: Boris Becker still sees a path for Djokovic against Sinner in Melbourne**: [Link](https://tennisuptodate.com/atp/i-would-never-bet-against-him-boris-becker-still-sees-a-path-for-djokovic-against-sinner-in-melbourne)
+- **New, against the greatest king of Melbourne - does Djokovic have more than the one-in-a-thousand chances given to him by the bookmakers?**: [Link](https://en.vijesti.me/sports-e/tennis/793485/novi-protiv-najveceg-kralja-melburna-ima-li-djokovic-vise-od-promila-sansi-koje-mu-daju-bukmejkeri)
+
+
+### jannik sinner (N/A, Fri, 30 Jan 2026 02:40:00 -0800)
+
+- **Tutti vogliono Sinner, anche fuori dal campo**: [Link](https://sport.sky.it/tennis/2026/01/29/jannik-sinner-allianz)
+- **IL SOLE 24 ORE * SPORT: «JANNIK SINNER E ALLIANZ ANNUNCIANO UNA PARTNERSHIP GLOBALE PLURIENNALE**: [Link](https://www.agenziagiornalisticaopinione.it/opinionmix/sole24/il-sole-24-ore-sport-jannik-sinner-e-allianz-annunciano-una-partnership-globale-pluriennale/)
+- **Sinner, altro accordo di livello globale: ufficiale la partnership pluriennale con Allianz**: [Link](https://www.corriere.it/sport/tennis/26_gennaio_29/sinner-allianz-accordo-6b8a7667-8706-4935-b26e-4af2ae03dxlk.shtml)
+
+
 ### australian open (N/A, Thu, 29 Jan 2026 22:50:00 -0800)
 
 - **Australian Open 2026 semi-finals LIVE: Carlos Alcaraz vs Alexander Zverev - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
