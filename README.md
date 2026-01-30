@@ -1,3 +1,15 @@
+### australian open (N/A, Thu, 29 Jan 2026 22:50:00 -0800)
+
+- **Australian Open 2026 semi-finals LIVE: Carlos Alcaraz vs Alexander Zverev - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
+- **Top 4 Men's Players Battle in Australian Open Semis**: [Link](https://www.ntd.com/top-4-mens-players-battle-in-australian-open-semis_1122792.html)
+- **Australian Open live: Alcaraz-Zverev, Sinner-Djokovic in semis; Raducanu splits with eighth coach in five years**: [Link](https://www.msn.com/en-us/sports/tennis/australian-open-live-alcaraz-zverev-locked-in-semifinal-battle-tennis-australia-listening-to-privacy-concerns/ar-AA1VhMqP)
+
+
+### open australie (N/A, Thu, 29 Jan 2026 22:20:00 -0800)
+
+
+
+
 ### carlos alcaraz (N/A, Thu, 29 Jan 2026 21:30:00 -0800)
 
 - **Alcaraz entrena en Rod Laver horas antes de su encuentro con Zverev**: [Link](https://es-us.noticias.yahoo.com/deportes/alcaraz-entrena-rod-laver-horas-021623154.html)
