@@ -1,3 +1,17 @@
+### tirage au sort ligue des champions (N/A, Fri, 30 Jan 2026 03:40:00 -0800)
+
+- **Ligue des champions 2026 - Suivez le tirage des barrages de la C1 en direct : l'AS Monaco ou Qarabag pour le PSG**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-2026-suivez-le-tirage-des-barrages-de-la-c1-en-direct-las-monaco-ou-qarabag-pour-le-psg_sto23264721/story.shtml)
+- **Tirage au sort en direct: le PSG et Monaco fixés pour les barrages**: [Link](https://www.sports.fr/football/ligue-des-champions-football/tirage-au-sort-en-direct-le-psg-et-monaco-fixes-pour-les-barrages-986258.html)
+- **LdC : on connait les huit clubs qualifiés pour les 8è de finale**: [Link](https://fr.hespress.com/460274-ldc-on-connait-les-huit-clubs-qualifies-pour-les-8e-de-finale.html)
+
+
+### قرعة دوري ابطال اوروبا (N/A, Fri, 30 Jan 2026 02:50:00 -0800)
+
+- **بث مباشر: شاهد قرعة ملحق دور الـ 16 في دوري أبطال أوروبا 2025-2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D9%85%D9%84%D8%AD%D9%82-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2025-2026/bltbc449986e0ee1453)
+- **نتيجة قرعة الملحق المؤهل في دوري أبطال أوروبا 2024-2025**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/30/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%82%D8%B1%D8%B9%D8%A9-%D9%85%D9%84%D8%AD%D9%82-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **تأهل برشلونة وسيتي وليفربول وتشيلسي مباشرة لدور الـ16 في دوري الأبطال**: [Link](https://www.hesport.com/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D9%83%D9%88%D8%A8%D9%86%D9%87%D8%A7%D8%BA%D9%86-%D9%88%D9%8A%D8%A4%D9%85%D9%86-%D9%85%D9%82%D8%B9%D8%AF%D9%87-%D9%81%D9%8A-%D8%AB-424802.html)
+
+
 ### gold price today (N/A, Fri, 30 Jan 2026 03:00:00 -0800)
 
 - **Silver plummets 15%, gold falls 7% — dragging down miners and ETFs**: [Link](https://www.cnbc.com/2026/01/30/silver-gold-fall-price-usd-dollar-fed-warsh-chair-trump-metals.html)
