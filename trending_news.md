@@ -1,3 +1,10 @@
+### gold price today (N/A, Fri, 30 Jan 2026 03:00:00 -0800)
+
+- **Silver plummets 15%, gold falls 7% — dragging down miners and ETFs**: [Link](https://www.cnbc.com/2026/01/30/silver-gold-fall-price-usd-dollar-fed-warsh-chair-trump-metals.html)
+- **US Fed live: Dollar strengthens and precious metals tumble ahead of Trump’s Fed decision**: [Link](https://www.ft.com/content/4147a182-485b-439c-9080-94614fa03f0e)
+- **Gold’s searing run halted, silver drops below $100 as expectations of Warsh to Fed hits dollar debasement trade**: [Link](https://www.marketwatch.com/story/gold-falls-as-expectations-of-warsh-to-fed-hits-the-dollar-debasement-trade-854fd28e?gaa_at=eafs&gaa_n=AWEtsqfcSHQf39FhgawAgfCFvGsGwtnKamZbiitEFprExIeXojEz6RJFm3yk&gaa_ts=697c98c2&gaa_sig=jw3xIRWDxzyDq0QoP9vtQmEJH8hXqC2krIjHxefU3cIUX4koJEpz-XuP1Q3X6D8y2ns3cpdhvAA-g2fLOMUW_w%3D%3D)
+
+
 ### novak djokovic (N/A, Fri, 30 Jan 2026 02:40:00 -0800)
 
 - **Australian Open 2026 semi-finals LIVE: Jannik Sinner vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
