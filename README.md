@@ -1,3 +1,17 @@
+### إسبانيول ضد ألافيس (N/A, Fri, 30 Jan 2026 12:20:00 -0800)
+
+- **تشكيل مباراة إسبانيول وألافيس في الدوري الإسباني**: [Link](https://www.elbalad.news/6853489)
+- **إسبانيول وألافيس في لقاء استعادة التوازن (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/01/espanyol-alaves-j22-laliga-pronostic.html)
+- **تعرّف على تفاصيل مباراة إسبانيول ضد ألافيس في الدوري الإسباني بتاريخ 2026/01/30 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%88%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D8%A8%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-2026-01-3)
+
+
+### الفنانه هدى الشعراوي (N/A, Fri, 30 Jan 2026 12:10:00 -0800)
+
+- **هدى شعراوي: القبض على مشتبه بها اعترفت بقتل الفنانة السورية**: [Link](https://www.bbc.com/arabic/articles/cy4g9g70mgxo)
+- **مقتل "أم زكي" بطلة "باب الحارة".. توقيف خادمة الفنانة السورية هدى الشعراوي**: [Link](https://www.aljazeera.net/arts/2026/1/29/%D8%A8%D8%B7%D9%84%D8%A9-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%A9-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A%D8%A9)
+- **جريمة غامضة تهز الوسط الفني السوري .. مقتل هدى الشعراوي**: [Link](https://www.hespress.com/%D8%AC%D8%B1%D9%8A%D9%85%D8%A9-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%84%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%85%D9%82-1694090.html)
+
+
 ### r1c8 (N/A, Fri, 30 Jan 2026 11:40:00 -0800)
 
 - **Equidia met le feu au Quinté+ du Jeudi 29 janvier à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-jeudi-29-janvier-a-vincennes)
