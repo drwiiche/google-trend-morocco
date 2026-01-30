@@ -1,3 +1,17 @@
+### المجلس الأعلى للسلطة القضائية (N/A, Fri, 30 Jan 2026 07:10:00 -0800)
+
+- **افتتاح السنة القضائية الجديدة بورزازات**: [Link](https://www.hespress.com/%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%B3%D9%86%D8%A9-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D9%88%D8%B1%D8%B2%D8%A7%D8%B2-1694320.html)
+- **افتتاح السنة القضائية 2026 بمحكمة الاستئناف بفاس**: [Link](https://ar.telquel.ma/%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%B3%D9%86%D8%A9-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-2026-%D8%A8%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A6/)
+- **محكمة الاستئناف بالرباط تحسم أزيد من 491 ألف قضية خلال 2025**: [Link](https://www.ahdath.info/article/249090/%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D8%B9%D8%AF%D8%A7%D9%84%D8%A9/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D8%AD%D8%B3%D9%85-%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-491-%D8%A3%D9%84%D9%81-%D9%82%D8%B6%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-2025)
+
+
+### endrick (N/A, Fri, 30 Jan 2026 07:00:00 -0800)
+
+- **‘I used to watch his videos in Brazil, an incredible guy’: Endrick raves about Lyon legend Juninho**: [Link](https://tribuna.com/en/news/2026-01-30-i-used-to-watch-his-videos-in-brazil-an-incredible-guy-endrick-raves-about-lyon-legend-ju/)
+- **The Endrick Case and the Stars Who Shine Away from Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/5aside/articles-video/the-endrick-case-and-the-stars-who-shine-away-from-real-madrid-2026-01-30)
+- **Xabi Alonso criticised for Endrick loan after his rise at Lyon**: [Link](https://www.msn.com/en-ie/sports/football/xabi-alonso-criticised-for-endrick-loan-after-his-rise-at-lyon/ar-AA1V5oj0)
+
+
 ### الفنانة هدى شعراوي (N/A, Thu, 29 Jan 2026 23:40:00 -0800)
 
 - **هدى شعراوي: القبض على مشتبه بها اعترفت بقتل الفنانة السورية**: [Link](https://www.bbc.com/arabic/articles/cy4g9g70mgxo)
