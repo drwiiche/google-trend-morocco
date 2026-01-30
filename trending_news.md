@@ -1,3 +1,10 @@
+### carlos alcaraz (N/A, Thu, 29 Jan 2026 21:30:00 -0800)
+
+- **Alcaraz entrena en Rod Laver horas antes de su encuentro con Zverev**: [Link](https://es-us.noticias.yahoo.com/deportes/alcaraz-entrena-rod-laver-horas-021623154.html)
+- **Alcaraz – Zverev, en directo | El español se lleva el primer set**: [Link](https://www.msn.com/es-es/deportes/tenis/alcaraz-zverev-en-directo-el-espa%C3%B1ol-se-lleva-el-primer-set-de-la-semifinal-del-open-de-australia/ar-AA1ViaT1)
+- **De Miñaur, sincero y afectado tras caer en su Grand Slam de casa**: [Link](https://canaltenis.com/de-minaur-sincero-y-afectado-tras-caer-en-su-grand-slam-de-casa/)
+
+
 ### فيضانات القصر الكبير (N/A, Thu, 29 Jan 2026 13:20:00 -0800)
 
 - **الأمطار تغرق مدينة القصر الكبير المغربية**: [Link](https://www.aljazeera.net/news/2026/1/30/%D8%A8%D9%84%D8%A7%D8%A7%D9%84%D8%A7%D9%84%D8%A7)
