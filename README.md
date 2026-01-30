@@ -1,3 +1,24 @@
+### 67 (N/A, Fri, 30 Jan 2026 14:10:00 -0800)
+
+- **5 key stats from Iowa State basketball's blowout win vs Colorado**: [Link](https://www.desmoinesregister.com/story/sports/college/iowa-state/basketball-mens/2026/01/29/iowa-state-basketball-colorado-stats-score-cyclones/88403547007/)
+- **TJ Otzelberger talks team's return to form, Jefferson's big night, Batemon's energy throughout 87-57 win**: [Link](https://www.on3.com/sites/cyclone-report/news/tj-otzelberger-talks-teams-return-to-form-jeffersons-big-night-batemons-energy-throughout-87-57-win-2/)
+- **Colorado blitzed early, routed by No. 8 Iowa State**: [Link](https://www.dailycamera.com/2026/01/29/colorado-buffaloes-basketball-vs-iowa-state-2/)
+
+
+### abdelhadi belkhayat (N/A, Fri, 30 Jan 2026 13:40:00 -0800)
+
+- **Décès de Abdelhadi Belkhayat, grand nom de la chanson marocaine**: [Link](https://fr.hespress.com/460572-deces-de-abdelhadi-belkhayat-grand-nom-de-la-chanson-marocaine.html)
+- **Décès de l’artiste Abdelhadi Belkhayat, grande voix de la chanson marocaine**: [Link](https://lematin.ma/culture/deces-de-lartiste-abdelhadi-belkhayat-grande-voix-de-la-chanson-marocaine/327286)
+- **Décès du grand artiste Abdelhadi Belkhayat, 86 ans**: [Link](https://www.maroc-hebdo.com/article/deces-du-grand-artiste-abdelhadi-belkhayat-86-ans)
+
+
+### moltbook (N/A, Fri, 30 Jan 2026 13:10:00 -0800)
+
+- **Humans welcome to observe: This social network is for AI agents only**: [Link](https://www.nbcnews.com/tech/tech-news/ai-agents-social-media-platform-moltbook-rcna256738)
+- **AI agents now have their own Reddit-style social network, and it's getting weird fast**: [Link](https://arstechnica.com/information-technology/2026/01/ai-agents-now-have-their-own-reddit-style-social-network-and-its-getting-weird-fast/)
+- **Moltbook is a human-free Reddit clone where AI agents discuss cybersecurity and philosophy**: [Link](https://the-decoder.com/moltbook-is-a-human-free-reddit-clone-where-ai-agents-discuss-cybersecurity-and-philosophy/)
+
+
 ### lazio (N/A, Fri, 30 Jan 2026 13:50:00 -0800)
 
 - **🗣️ Colombo: “La vittoria con il Bologna ha mostrato le qualità del Genoa”**: [Link](https://onefootball.com/id/berita/colombo-la-vittoria-con-il-bologna-ha-mostrato-le-qualita-del-genoa-42332264)
