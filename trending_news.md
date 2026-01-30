@@ -1,3 +1,10 @@
+### r1c8 (N/A, Fri, 30 Jan 2026 11:40:00 -0800)
+
+- **Equidia met le feu au Quinté+ du Jeudi 29 janvier à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-jeudi-29-janvier-a-vincennes)
+- **Les pronostics Quinté du 29/01/2026 à Vincennes**: [Link](https://www.europe1.fr/emissions/les-pronostics-du-quinte/les-pronostics-quinte-du-29-01-2026-a-vincennes-886594)
+- **Inferno Piper servi par le rythme**: [Link](https://www.letrot.com/actualites/inferno-piper-servi-par-le-rythme-26557)
+
+
 ### lens – le havre (N/A, Fri, 30 Jan 2026 11:30:00 -0800)
 
 - **Relance du champion d'Afrique Mory Diaw ou intérim prolongé pour Lionel Mpasi ? Didier Digard fait planer le mystère avant Lens-Le Havre**: [Link](https://www.lequipe.fr/Football/Article/Relance-du-champion-d-afrique-mory-diaw-ou-interim-prolonge-pour-lionel-mpasi-didier-digard-fait-planer-le-mystere-avant-lens-le-havre/1637631)
