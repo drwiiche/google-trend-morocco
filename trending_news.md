@@ -1,3 +1,10 @@
+### tennis live (N/A, Fri, 30 Jan 2026 05:50:00 -0800)
+
+- **Alcaraz slugs out win over Zverev in over-five-hour semifinal**: [Link](https://www.espn.com/tennis/story/_/id/47776674/alcaraz-slugs-win-zverev-five-hour-semifinal)
+- **Carlos Alcaraz reaches first Australian Open final after escaping Alexander Zverev in seesaw match - The Athletic**: [Link](https://www.nytimes.com/athletic/7008361/2026/01/30/carlos-alcaraz-alexander-zverev-australian-open-result-analysis/)
+- **Alexander Zverev fumes over Alcaraz’s timeout for cramp in semi-final thriller**: [Link](https://www.theguardian.com/sport/2026/jan/30/what-can-i-do-alexander-zverev-fumes-over-carlos-alcarazs-timeout-for-cramp)
+
+
 ### المجلس الأعلى للسلطة القضائية (N/A, Fri, 30 Jan 2026 07:10:00 -0800)
 
 - **افتتاح السنة القضائية الجديدة بورزازات**: [Link](https://www.hespress.com/%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%B3%D9%86%D8%A9-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D9%88%D8%B1%D8%B2%D8%A7%D8%B2-1694320.html)
