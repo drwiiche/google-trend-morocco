@@ -1,3 +1,17 @@
+### sinner (N/A, Fri, 30 Jan 2026 02:30:00 -0800)
+
+- **Why Kevin Pietersen strongly feels Jannik Sinner ‘must not win’ Australian Open 2026**: [Link](https://www.hitc.com/why-kevin-pietersen-strongly-feels-jannik-sinner-must-not-win-australian-open-2026/)
+- **Carlos Alcaraz beats Alexander Zverev in epic five-set Australian Open semi-final – as it happened**: [Link](https://www.theguardian.com/sport/live/2026/jan/30/australian-open-2026-mens-tennis-semi-final-live-carlos-alcaraz-v-alexander-zverev)
+- **Djokovic Pauses to Congratulate Alcaraz After Five-Set Epic Before Sinner Semifinal**: [Link](https://en.tennistemple.com/actu/djokovic-pauses-to-congratulate-alcaraz/FrkP)
+
+
+### alcaraz (N/A, Thu, 29 Jan 2026 20:00:00 -0800)
+
+- **Resumen y resultado del Alcaraz - Zverev: Alcaraz llega a la final con un triunfo épico**: [Link](https://as.com/tenis/alcaraz-zverev-en-directo-semifinales-del-open-de-australia-en-vivo-hoy-f202601-d/)
+- **Alcaraz sobrevive a los calambres y a Zverev y se sitúa a una victoria de completar el Grand Slam**: [Link](https://www.marca.com/tenis/open-australia/2026/01/30/alcaraz-sobrevive-calambres-zverev-situa-victoria-completar-grand-slam.html)
+- **Alcaraz, en Eurosport tras su heroico triunfo: "Ha sido luchar, creer y no tener miedo"**: [Link](https://www.eurosport.es/tenis/open-australia/2026/video-entrevista-eurosport-carlos-alcaraz-victoria-alexander-zverev-semifinales-luchar-creer-miedo-declaraciones-hoy_vid60051229/video.shtml)
+
+
 ### tirage au sort ligue des champions (N/A, Fri, 30 Jan 2026 03:40:00 -0800)
 
 - **Ligue des champions 2026 - Suivez le tirage des barrages de la C1 en direct : l'AS Monaco ou Qarabag pour le PSG**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-2026-suivez-le-tirage-des-barrages-de-la-c1-en-direct-las-monaco-ou-qarabag-pour-le-psg_sto23264721/story.shtml)
