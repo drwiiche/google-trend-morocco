@@ -1,3 +1,24 @@
+### lens – le havre (N/A, Fri, 30 Jan 2026 11:30:00 -0800)
+
+- **Relance du champion d'Afrique Mory Diaw ou intérim prolongé pour Lionel Mpasi ? Didier Digard fait planer le mystère avant Lens-Le Havre**: [Link](https://www.lequipe.fr/Football/Article/Relance-du-champion-d-afrique-mory-diaw-ou-interim-prolonge-pour-lionel-mpasi-didier-digard-fait-planer-le-mystere-avant-lens-le-havre/1637631)
+- **Ligue 1 I Lens - Le Havre (20e journée) I Mamadou Sangaré, "Gaucher" les a tous bluffés**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-i-lens-le-havre-20e-journee-i-mamadou-sangare-gaucher-les-a-tous-bluffes_sto23264180/story.shtml)
+- **Nouvel invité de marque à Bollaert-Delelis, Daniel Moreira donnera le coup d’envoi de RC Lens – Le Havre**: [Link](https://onefootball.com/fr/news/nouvel-invite-de-marque-a-bollaert-delelis-daniel-moreira-donnera-le-coup-denvoi-de-rc-lens-le-havre-42328313)
+
+
+### espanyol – deportivo alavés (N/A, Fri, 30 Jan 2026 11:20:00 -0800)
+
+- **Espanyol-Alavés: Reencontrarse con la victoria**: [Link](https://onefootball.com/en/news/espanyol-alaves-reencontrarse-con-la-victoria-42328288)
+- **Lista de convocados**: [Link](https://www.rcdespanyol.com/es/noticia/lista-de-convocados/19757)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20260130/1002611132/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+
+
+### catherine o'hara (N/A, Fri, 30 Jan 2026 11:20:00 -0800)
+
+- **Catherine O'Hara Dead at 71**: [Link](https://www.tmz.com/2026/01/30/catherine-ohara-dead/)
+- **Catherine O’Hara, ‘Schitt’s Creek’ and ‘Home Alone’ Star, Dies at 71**: [Link](https://variety.com/2026/tv/news/catherine-ohara-dead-schitts-creek-home-alone-1236646029/)
+- **Catherine O'Hara, 'Schitt’s Creek' Star and Comedy Legend, Dies at 71**: [Link](https://people.com/catherine-ohara-schitts-creek-star-dies-71-8659396)
+
+
 ### al kholood vs al-nassr (N/A, Fri, 30 Jan 2026 09:50:00 -0800)
 
 - **Preview: Al Kholood vs Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-kholood/preview/al-kholood-vs-al-nassr-prediction-team-news-lineups_590823.html)
