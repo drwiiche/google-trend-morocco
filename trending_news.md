@@ -1,3 +1,10 @@
+### الفنانة هدى شعراوي (N/A, Thu, 29 Jan 2026 23:40:00 -0800)
+
+- **هدى شعراوي: القبض على مشتبه بها اعترفت بقتل الفنانة السورية**: [Link](https://www.bbc.com/arabic/articles/cy4g9g70mgxo)
+- **مقتل "أم زكي" بطلة "باب الحارة".. توقيف خادمة الفنانة السورية هدى الشعراوي**: [Link](https://www.aljazeera.net/arts/2026/1/29/%D8%A8%D8%B7%D9%84%D8%A9-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%A9-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A%D8%A9)
+- **سوريا.. اعتقال "قاتلة" هدى شعراوي والداخلية تكشف التفاصيل**: [Link](https://www.skynewsarabia.com/varieties/1849577-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D9%82%D8%A7%D8%AA%D9%84%D8%A9-%D9%87%D8%AF%D9%89-%D8%B4%D8%B9%D8%B1%D8%A7%D9%88%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
+
+
 ### djokovic (N/A, Fri, 30 Jan 2026 02:10:00 -0800)
 
 - **Australian Open 2026 semi-finals LIVE: Jannik Sinner vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c3dnjg02mn8t)
