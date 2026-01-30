@@ -1,3 +1,10 @@
+### al kholood vs al-nassr (N/A, Fri, 30 Jan 2026 09:50:00 -0800)
+
+- **Preview: Al Kholood vs Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-kholood/preview/al-kholood-vs-al-nassr-prediction-team-news-lineups_590823.html)
+- **Cristiano Ronaldo Injured: Al Nassr Star’s SPL Game in Jeopardy**: [Link](https://www.filmogaz.com/125200)
+- **Brozovic's Tests Keep Al-Nassr in Suspense**: [Link](https://www.ysscores.com/en/news/13901117/Brozovic's-Tests-Keep-Al-Nassr-in-Suspense)
+
+
 ### الخلود ضد النصر (N/A, Fri, 30 Jan 2026 09:20:00 -0800)
 
 - **"متخصص الخلود" يدير مباراة النصر في دوري روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AA%D8%AE%D8%B5%D8%B5-%D8%A7%D9%84%D8%AE%D9%84%D9%88%D8%AF-%D9%8A%D8%AF%D9%8A%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/bltfb85c0075aa40744)
