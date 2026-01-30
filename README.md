@@ -1,3 +1,17 @@
+### lazio (N/A, Fri, 30 Jan 2026 13:50:00 -0800)
+
+- **🗣️ Colombo: “La vittoria con il Bologna ha mostrato le qualità del Genoa”**: [Link](https://onefootball.com/id/berita/colombo-la-vittoria-con-il-bologna-ha-mostrato-le-qualita-del-genoa-42332264)
+- **Lazio, tra poco la conferenza stampa di Maurizio Sarri**: [Link](https://www.tuttomercatoweb.com/serie-a/lazio-tra-poco-la-conferenza-stampa-di-maurizio-sarri-2196891)
+- **De Rossi: «Olimpico vuoto? Penso alla partita e non allo stadio»**: [Link](https://www.pianetagenoa1893.net/primo-piano/de-rossi-olimpico-vuoto-penso-alla-partita-e-non-allo-stadio/)
+
+
+### عبد الهادي بلخياط (N/A, Fri, 30 Jan 2026 13:30:00 -0800)
+
+- **عميد الأغنية المغربية الفنان المعتزل عبد الهادي بلخياط يترجل عن "قطار الحياة"**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%BA%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B9%D8%AA%D8%B2%D9%84-1694784.html)
+- **وفاة الفنان عبد الهادي بلخياط بالمستشفى العسكري بالرباط**: [Link](https://ar.hibapress.com/details-698040.html)
+- **رحيل "صاحب المنفرجة".. عبد الهادي بلخياط يغادرنا إلى دار البقاء**: [Link](https://chafaf.ma/%D8%B1%D8%AD%D9%8A%D9%84-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D9%81%D8%B1%D8%AC%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%87%D8%A7%D8%AF%D9%8A-%D8%A8%D9%84%D8%AE%D9%8A%D8%A7%D8%B7/)
+
+
 ### وفاة عبد الهادي بلخياط (N/A, Fri, 30 Jan 2026 13:40:00 -0800)
 
 - **وفاة الفنان عبد الهادي بلخياط بالمستشفى العسكري بالرباط**: [Link](https://ar.hibapress.com/details-698040.html)
