@@ -1,3 +1,10 @@
+### dubai aerospace enterprise (N/A, Thu, 29 Jan 2026 23:40:00 -0800)
+
+- **Royal Air Maroc Secures Long-Term Lease for 13 Boeing 737 MAX 8 Aircraft**: [Link](https://www.moroccoworldnews.com/2026/01/276777/royal-air-maroc-secures-long-term-lease-for-13-boeing-737-max-8-aircraft/)
+- **Why Morocco’s New Aircraft Deal Will Make Your Next Trip So Much Easier : Don’t Miss This**: [Link](https://www.travelandtourworld.com/news/article/why-moroccos-new-aircraft-deal-will-make-your-next-trip-so-much-easier-dont-miss-this/)
+- **Royal Air Maroc to lease batch of 737 Max jets from DAE**: [Link](https://www.flightglobal.com/airlines/royal-air-maroc-to-lease-batch-of-737-max-jets-from-dae/166129.article)
+
+
 ### sinner (N/A, Fri, 30 Jan 2026 02:30:00 -0800)
 
 - **Why Kevin Pietersen strongly feels Jannik Sinner ‘must not win’ Australian Open 2026**: [Link](https://www.hitc.com/why-kevin-pietersen-strongly-feels-jannik-sinner-must-not-win-australian-open-2026/)
