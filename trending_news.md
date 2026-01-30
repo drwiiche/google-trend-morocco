@@ -1,3 +1,10 @@
+### سد واد المخازن (N/A, Fri, 30 Jan 2026 07:40:00 -0800)
+
+- **غمرت المياه المنازل والأحياء.. المنصات توثق غرق مدينة القصر الكبير المغربية**: [Link](https://www.aljazeera.net/news/2026/1/30/%D8%A7%D9%84%D9%82%D8%B5%D8%B1-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D8%AA%D8%BA%D8%B1%D9%82-%D9%85%D9%86%D8%B5%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%AA%D9%88%D8%AB%D9%82)
+- **تعبئة ملكية لمواجهة سوء الأحوال الجوية**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9-%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A-1694612.html)
+- **44 ألف مخالفة سير الأسبوع الماضي ضخت 830 مليونا في صندوق الدولة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%8A%D9%86%D9%81%D9%8A-%D9%88%D9%82%D9%88%D8%B9-%D8%B3%D8%B1%D9%82%D8%A7%D8%AA-%D9%88%D9%86%D9%87%D8%A8-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D9%84%D9%83%D8%A7%D8%AA-%D8%A8/)
+
+
 ### tennis live (N/A, Fri, 30 Jan 2026 05:50:00 -0800)
 
 - **Alcaraz slugs out win over Zverev in over-five-hour semifinal**: [Link](https://www.espn.com/tennis/story/_/id/47776674/alcaraz-slugs-win-zverev-five-hour-semifinal)
