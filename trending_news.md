@@ -1,3 +1,17 @@
+### liverpool (N/A, Sat, 31 Jan 2026 12:20:00 -0800)
+
+- **Latest. Eddie Howe's team news update: Bruno and Joelinton latest**: [Link](https://www.newcastleunited.com/en/news/eddie-howes-team-news-update-bruno-and-joelinton-latest)
+- **Howe unsure if Guimaraes available ahead of Liverpool clash**: [Link](https://sports.yahoo.com/articles/howe-unsure-guimaraes-available-ahead-104500097.html)
+- **Newcastle Receive Concerning Joelinton News**: [Link](https://cominghomenewcastle.sbnation.com/newcastle-united-team-news/20275/20275)
+
+
+### lamine yamal (N/A, Sat, 31 Jan 2026 12:20:00 -0800)
+
+- **Barcelona star Lamine Yamal reveals World Cup 2026 deal he’s made with Neymar**: [Link](https://sports.yahoo.com/articles/barcelona-star-lamine-yamal-reveals-040000772.html)
+- **What is the story behind Yamal's celebration of the Brazilian Neymar's celebration after scoring against Copenhagen?**: [Link](https://foot-africa.com/en/news/what-is-the-story-behind-yamals-celebration-of-the-brazilian-neymars-celebration-after-scoring-against-copenhagen-1064066/)
+- **Not Messi or Ronaldo: Lamine Yamal names the legend he wants to face at the 2026 World Cup final**: [Link](https://worldsoccertalk.com/news/not-messi-or-ronaldo-lamine-yamal-names-the-legend-he-wants-to-face-at-the-2026-world-cup-final/)
+
+
 ### asfar (N/A, Sat, 31 Jan 2026 11:50:00 -0800)
 
 - **Arsenal vs FAR Rabat | Frida Maanum doubles lead for Gunners**: [Link](https://www.skysports.com/football/video/37021/13500296/arsenal-vs-far-rabat-frida-maanum-doubles-lead-for-gunners)
