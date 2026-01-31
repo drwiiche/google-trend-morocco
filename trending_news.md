@@ -1,3 +1,8 @@
+### وزير التعليم (N/A, Sat, 31 Jan 2026 01:40:00 -0800)
+
+
+
+
 ### alerte météo (N/A, Sat, 31 Jan 2026 02:00:00 -0800)
 
 - **Fortes pluies, crues et routes coupées dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-crues-et-routes-coupees-dans-plusieurs-regions-du-maroc/327087)
