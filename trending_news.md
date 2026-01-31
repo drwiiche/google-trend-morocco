@@ -1,3 +1,24 @@
+### bayern munich (N/A, Sat, 31 Jan 2026 10:20:00 -0800)
+
+- **Preview: Hamburg vs. Bayern, Bundesliga Matchday 20**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/hamburger-sv-fc-bayern-muenchen-31-01-2026/preview)
+- **First win in 16 years? Olic urges HSV to believe ahead of Bayern clash**: [Link](https://onefootball.com/de/news/first-win-in-16-years-olic-urges-hsv-to-believe-ahead-of-bayern-clash-42334748)
+- **🚨 Kompany rings the changes: 5 new faces in Bayern’s XI against HSV**: [Link](https://sports.yahoo.com/articles/kompany-rings-changes-5-faces-164200375.html)
+
+
+### atletico madrid (N/A, Sat, 31 Jan 2026 10:20:00 -0800)
+
+- **Lookman stalls Fenerbahce deal after Atletico Madrid approach**: [Link](https://thenationonlineng.net/lookman-stalls-fenerbahce-deal-after-atletico-madrid-approach/)
+- **Atalanta: Another blow for Ademola Lookman?**: [Link](https://foot-africa.com/en/news/atalanta-another-blow-for-ademola-lookman-noadsense-1066451/)
+- **Lookman Future Influencing Roma and Napoli Plans**: [Link](https://cultofcalcio.com/lookman-future-influencing-roma-and-napoli-plans/)
+
+
+### safia ziani (N/A, Sat, 31 Jan 2026 09:10:00 -0800)
+
+- **Décès de Safia Ziani, grande dame du théâtre et de la télévision**: [Link](https://fr.le360.ma/culture/deces-de-safia-ziani-grande-dame-du-theatre-et-de-la-television_EYIXBZ66PBE6RHRSAMGBFJKTJQ/)
+- **Le monde artistique marocain perd l’artiste Safia Ziani |**: [Link](https://fr.hibapress.com/news-232365.html)
+- **Décès de l'actrice et comédienne Safia Ziani**: [Link](https://fr.hespress.com/460619-deces-de-lactrice-et-comedienne-safia-ziani.html)
+
+
 ### hamburger sv vs bayern (N/A, Sat, 31 Jan 2026 10:10:00 -0800)
 
 - **HSV: Not-Angriff gegen Bayern – Sturm-Entscheidung gefallen**: [Link](https://www.bild.de/sport/fussball/hsv-not-angriff-gegen-bayern-sturm-entscheidung-gefallen-697ca674a58e5b705ac2ceb7)
