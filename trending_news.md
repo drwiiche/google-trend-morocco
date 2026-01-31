@@ -1,3 +1,10 @@
+### oviedo vs girona (N/A, Sat, 31 Jan 2026 05:30:00 -0800)
+
+- **Preview: Real Oviedo vs Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-oviedo/preview/real-oviedo-vs-girona-prediction-team-news-lineups_590961.html)
+- **Thiago Bolsters Squad for Crucial Matchup**: [Link](https://www.filmogaz.com/126415)
+- **Girona have won three consecutive away matches in La Liga**: [Link](https://tribuna.com/en/betting/news/2026-01-31-girona-have-won-three-consecutive-away-matches-in-la-liga/)
+
+
 ### real oviedo – girona (N/A, Sat, 31 Jan 2026 04:10:00 -0800)
 
 - **Thiago, el refuerzo para un duelo clave**: [Link](https://www.lne.es/real-oviedo/2026/01/31/thiago-refuerzo-duelo-clave-126286513.html)
