@@ -1,3 +1,10 @@
+### watford – swansea (N/A, Sat, 31 Jan 2026 07:10:00 -0800)
+
+- **Meet the opposition | Watford**: [Link](https://www.swanseacity.com/news/meet-opposition-watford-9)
+- **Gracia: Watford in a 'difficult moment' and 'really need support' from home fans**: [Link](https://www.watfordobserver.co.uk/sport/25809535.gracia-watford-difficult-moment-need-fans/)
+- **Saturday acca tips: Watford worth a bet in 12/1 fourfold**: [Link](https://www.telegraph.co.uk/betting/football/saturday-acca-tips-prediction-january-31-2026/)
+
+
 ### brighton – everton (N/A, Sat, 31 Jan 2026 06:50:00 -0800)
 
 - **Everton line-up for Brighton confirmed as four centre-backs start and three changes made**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/everton-line-up-brighton-confirmed-33337582)
