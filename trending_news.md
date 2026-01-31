@@ -1,3 +1,24 @@
+### bundesliga (N/A, Sat, 31 Jan 2026 11:00:00 -0800)
+
+- **Silas-Solo sorgt für Entscheidung: 05ER gewinnen in Leipzig**: [Link](https://onefootball.com/es/noticias/silas-solo-sorgt-fuer-entscheidung-05er-gewinnen-in-leipzig-42336347)
+- **Mainz überrascht RB: Eintracht kann freien Fall nicht stoppen, Werder bremst ihn nur**: [Link](https://www.mexc.com/de-DE/news/604435)
+- **Orban deutlich: "Mit Abstand unser schlechtestes Spiel in der Saison"**: [Link](https://www.kicker.de/orban-deutlich-mit-abstand-unser-schlechtestes-spiel-in-der-saison-1189417/artikel)
+
+
+### ايام البيض (N/A, Sat, 31 Jan 2026 11:00:00 -0800)
+
+- **دار الإفتاء توضح صيام الأيام البيض وموعد ليلة النصف من شهر شعبان**: [Link](https://www.youm7.com/story/2026/1/29/%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A5%D9%81%D8%AA%D8%A7%D8%A1-%D8%AA%D9%88%D8%B6%D8%AD-%D8%B5%D9%8A%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D9%8A%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6-%D9%88%D9%85%D9%88%D8%B9%D8%AF-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D9%81-%D9%85%D9%86/7285954)
+- **📖🌙 اجعل سورة الملك رفيقة قلبك ووردك اليومي، وابدأ الآن بتلاوتها واستشعر بركتها. #سورة_الملك #ورد_يومي #القرآن_نور_القلوب #دار_الإفتاء_المصرية**: [Link](https://www.facebook.com/EgyptDarAlIfta/posts/-%D8%A7%D8%AC%D8%B9%D9%84-%D8%B3%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%B1%D9%81%D9%8A%D9%82%D8%A9-%D9%82%D9%84%D8%A8%D9%83-%D9%88%D9%88%D8%B1%D8%AF%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85%D9%8A-%D9%88%D8%A7%D8%A8%D8%AF%D8%A3-%D8%A7%D9%84%D8%A2%D9%86-%D8%A8%D8%AA%D9%84%D8%A7%D9%88%D8%AA%D9%87%D8%A7-%D9%88%D8%A7%D8%B3%D8%AA%D8%B4%D8%B9%D8%B1-%D8%A8%D8%B1%D9%83%D8%AA%D9%87%D8%A7-%D8%B3%D9%88%D8%B1%D8%A9/1376772071149071/)
+- **هل نويت الصيام؟.. 3 مكاسب طبية وروحية لصيام الأيام البيض لشهر شعبان**: [Link](https://www.elwatannews.com/news/details/8216966)
+
+
+### liga (N/A, Sat, 31 Jan 2026 10:50:00 -0800)
+
+- **Rüdiger steps up recovery as return vs Rayo comes into focus**: [Link](https://www.managingmadrid.com/real-madrid-cf-news/103494/rudiger-steps-up-recovery-as-return-vs-rayo-comes-into-focus)
+- **A Sole Absence from Real Madrid's Training**: [Link](https://www.ysscores.com/en/news/13901867/A-Sole-Absence-from-Real-Madrid's-Training)
+- **Real Madrid XI vs. Rayo Vallecano: Arbeloa Makes Rodrygo Decision—Injury News, Predicted Lineup**: [Link](https://www.si.com/soccer/real-madrid-xi-vs-rayo-vallecano-injury-news-predicted-lineup-2-1-26)
+
+
 ### bayern munich (N/A, Sat, 31 Jan 2026 10:20:00 -0800)
 
 - **Preview: Hamburg vs. Bayern, Bundesliga Matchday 20**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/hamburger-sv-fc-bayern-muenchen-31-01-2026/preview)
