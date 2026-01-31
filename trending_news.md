@@ -1,3 +1,31 @@
+### liverpool – newcastle (N/A, Sat, 31 Jan 2026 11:20:00 -0800)
+
+- **‘Best available choice’ – Paul Merson predicts who’ll play right-back for Liverpool tonight**: [Link](https://www.empireofthekop.com/2026/01/31/merson-szoboszlai-right-back-liverpool-newcastle/)
+- **Andy Robertson reveals the biggest issue Liverpool have had this season**: [Link](https://anfieldindex.com/90766/andy-robertson-reveals-the-biggest-issue-liverpool-have-had-this-season.html)
+- **bet365 bonus code NYPBET: bet $5, get $200 in bonus bets for Liverpool vs. Newcastle**: [Link](https://nypost.com/2026/01/31/betting/bet365-bonus-code-nypbet-bet-5-get-200-in-bonus-bets-for-liverpool-vs-newcastle/)
+
+
+### elche – barcelone (N/A, Sat, 31 Jan 2026 11:10:00 -0800)
+
+- **PRONOS PARIS RMC Le pari sûr du 31 janvier - Liga**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-31-janvier-liga_AN-202601300874.html)
+- **Barça : les dernières vérités de Flick sur le Mercato et le départ de Dro**: [Link](https://www.onzemondial.com/liga/barca-les-dernieres-verites-de-flick-sur-le-mercato-et-le-depart-de-dro-978703)
+- **Elche CF - FC Barcelone en direct: La Liga - Football**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-elche-cf-fc-barcelone_mtc1610791/live-commentary.shtml)
+
+
+### إلتشيه ضد برشلونة (N/A, Sat, 31 Jan 2026 11:10:00 -0800)
+
+- **عودة ثنائية تزين قائمة برشلونة أمام إلتشي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%AA%D8%B2%D9%8A%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%84%D8%AA%D8%B4%D9%8A/blt67c2736614404af1)
+- **موعد مباراة برشلونة وإلتشي في الدوري الإسباني والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/1/30/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **أمام برشلونة...إلتشي يبحث عن أول فوز منذ 51 عاما**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A3%D9%88%D9%84-%D9%81%D9%88%D8%B2-%D9%85%D9%86%D8%B0-51-%D8%B9%D8%A7%D9%85%D8%A7/15182)
+
+
+### elche vs barcelona (N/A, Sat, 31 Jan 2026 11:10:00 -0800)
+
+- **Posible alineación del Barça ante el Elche: Frenkie coge los mandos**: [Link](https://as.com/futbol/primera/posible-alineacion-del-barca-ante-el-elche-frenkie-coge-los-mandos-f202601-n/)
+- **Así ha sido la llegada del FC Barcelona al Martínez Valero**: [Link](https://www.sport.es/es/videos/barca/20260131/sido-llegada-fc-barcelona-martinez/126305367.shtml)
+- **¿Juega Lamine Yamal? Las alineaciones de Elche CF vs. FC Barcelona por la jornada 22 de LaLiga 2025-26**: [Link](https://bolavip.com/mx/futbol-internacional/juega-lamine-yamal-las-alineaciones-de-elche-cf-vs-fc-barcelona-por-la-jornada-22-de-laliga-2025-26)
+
+
 ### bundesliga (N/A, Sat, 31 Jan 2026 11:00:00 -0800)
 
 - **Silas-Solo sorgt für Entscheidung: 05ER gewinnen in Leipzig**: [Link](https://onefootball.com/es/noticias/silas-solo-sorgt-fuer-entscheidung-05er-gewinnen-in-leipzig-42336347)
