@@ -1,3 +1,17 @@
+### الجيش الملكي (N/A, Sat, 31 Jan 2026 12:40:00 -0800)
+
+- **مباشر.. مباراة الجيش الملكي ضد شبيبة القبائل (1-0) في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/31/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%B6%D8%AF-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D8%A6%D9%84)
+- **القنوات الناقلة لمباراة الجيش الملكي ضد شبيبة القبائل في دوري أبطال إفريقيا**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-24/)
+- **زينباور: الجيش الملكي من أكبر الأندية في أفريقيا وغياب جماهيرهم ميزة كبيرة لنا ⚽🗣**: [Link](https://m.elbotola.com/video/details/697cc3686c3a5e1d3c6caf2f/)
+
+
+### caf champions league (N/A, Sat, 31 Jan 2026 12:40:00 -0800)
+
+- **Young Africans to Deliver Impressive Performance Against Al Ahly – Goncalves**: [Link](https://www.filmogaz.com/126696)
+- **CAF Champions League 2025-2026: Young Africans lead at halftime against Al Ahly**: [Link](https://foot-africa.com/en/news/caf-champions-league-2025-2026-young-africans-lead-at-halftime-against-al-ahly-1066313/)
+- **Al Ahly stay top — but Group B race remains far from settled**: [Link](https://ca.sports.yahoo.com/news/al-ahly-stay-top-group-204000050.html)
+
+
 ### liverpool (N/A, Sat, 31 Jan 2026 12:20:00 -0800)
 
 - **Latest. Eddie Howe's team news update: Bruno and Joelinton latest**: [Link](https://www.newcastleunited.com/en/news/eddie-howes-team-news-update-bruno-and-joelinton-latest)
