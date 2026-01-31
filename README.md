@@ -1,3 +1,10 @@
+### صفية الزياني (N/A, Sat, 31 Jan 2026 07:40:00 -0800)
+
+- **أوراق الفن تتساقط تباعا.. الممثلة القديرة صفية الزياني في ذمة الله**: [Link](https://aljarida24.ma/p/actualites/335995/)
+- **وفاة الممثلة صفية الزياني عن عمر ناهز 91 عاما**: [Link](https://al3omk.com/1135115.html)
+- **الساحة الفنية المغربية تفقد الفنانة صفية الزياني**: [Link](https://ar.hibapress.com/details-698261.html)
+
+
 ### paris fc – marseille (N/A, Sat, 31 Jan 2026 07:20:00 -0800)
 
 - **DIRECT. Paris FC-OM (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/paris-fc-om-live/675965)
