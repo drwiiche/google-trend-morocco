@@ -1,3 +1,10 @@
+### match barca (N/A, Sat, 31 Jan 2026 13:40:00 -0800)
+
+- **Elche vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cdx4p6026g9t)
+- **Elche vs. Barcelona: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/elche-vs-barcelona-preview-predictions-and-lineups-1-30-26)
+- **Elche 1-2 Barcelona LIVE: Elche goal ruled out for offside**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/elche-barcelona/2026/01/31/01_0101_20260131_954_178-live.html)
+
+
 ### barca match (N/A, Sat, 31 Jan 2026 12:40:00 -0800)
 
 
