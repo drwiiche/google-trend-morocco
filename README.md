@@ -1,3 +1,45 @@
+### levante – atlético madrid (N/A, Sat, 31 Jan 2026 08:40:00 -0800)
+
+- **El efecto Castro mide el desgaste del Atlético**: [Link](http://www.msn.com/es-us/noticias/mundo/el-efecto-castro-mide-el-desgaste-del-atl%C3%A9tico/ar-AA1VlDpZ)
+- **Levante UD – Atlético de Madrid: examen en el Ciutat**: [Link](https://onefootball.com/es/noticias/levante-ud-atletico-de-madrid-examen-en-el-ciutat-42334404)
+- **Luis Castro: "El Atlético es muy difícil de batir"**: [Link](https://www.sport.es/es/videos/futbol/20260131/luis-castro-atletico-dificil-batir/126292436.shtml)
+
+
+### chelsea – west ham (N/A, Sat, 31 Jan 2026 08:40:00 -0800)
+
+- **Chelsea vs West Ham United: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c78eklmm25nt)
+- **Chelsea vs Westham: Rosenior wants The Blues to continue positive trend**: [Link](https://voi.id/en/sports/555185)
+- **“I just wonder” – Chris Sutton gives his Chelsea vs West Ham prediction**: [Link](https://onefootball.com/en/news/i-just-wonder-chris-sutton-gives-his-chelsea-vs-west-ham-prediction-42334378)
+
+
+### باريس ضد أولمبيك مارسيليا (N/A, Sat, 31 Jan 2026 08:40:00 -0800)
+
+- **بعد توديع الأبطال.. مهدي بن عطية يوجه انتقادات قاسية للاعبي مارسيليا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AA%D9%88%D8%AF%D9%8A%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84--%D9%85%D9%87%D8%AF%D9%8A-%D8%A8%D9%86-%D8%B9%D8%B7%D9%8A%D8%A9-%D9%8A%D9%88%D8%AC%D9%87-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D9%82%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7/bltb5ca867dcf5e2ecc)
+- **بطولة فرنسا: مرسيليا يبحث عن استجماع قواه بعد الخيبة القارية واختبار صعب لسان جرمان**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260130-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%85%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D8%B3%D8%AA%D8%AC%D9%85%D8%A7%D8%B9-%D9%82%D9%88%D8%A7%D9%87-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A%D8%A9-%D9%88%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D9%84%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86)
+- **أزمة صامتة بمارسيليا..توتر بين الرئيس وبنعطية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A3%D8%B2%D9%85%D8%A9-%D8%B5%D8%A7%D9%85%D8%AA%D8%A9-%D8%A8%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7%D8%AA%D9%88%D8%AA%D8%B1-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D9%88%D8%A8%D9%86%D8%B9%D8%B7%D9%8A%D8%A9/15188)
+
+
+### osasuna vs villarreal (N/A, Sat, 31 Jan 2026 08:40:00 -0800)
+
+- **Alessio Lisci: "When You Win, You Always Want More, So Tomorrow We'll Try Again"**: [Link](https://www.osasuna.es/en/alessio-lisci-when-you-win-you-always-want-more-so-tomorrow-well-try-again)
+- **Osasuna - Villarreal live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/osasuna-villarreal/2026/01/31/01_0101_20260131_450_449-live.html)
+- **Villarreal busca sanar sus heridas ante un Osasuna en forma**: [Link](https://news.ssbcrack.com/villarreal-busca-sanar-sus-heridas-ante-un-osasuna-en-forma/)
+
+
+### botola 2 (N/A, Sat, 31 Jan 2026 07:50:00 -0800)
+
+- **المتصدر للقسم الثاني تطوان يكتفي بالتعادل أمام تيزنيت .. وبني ملال يقتسم النقط مع الوصيف وداد تمارة**: [Link](https://ar.sport.le360.ma/football/botola/JXHFPUB3G5ETDIPRGHKJRKL72U/)
+- **المغرب التطواني في اختبار صعب أمام أمل تزنيت للحفاظ على صدارة القسم الوطني الثاني**: [Link](https://presstetouan.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%85%D9%84/)
+- **البطولة الاحترافية 2: وداد تمارة يقفز موقتا الصدارة**: [Link](https://www.almountakhab.com/node/13222130)
+
+
+### أوساسونا ضد فياريال (N/A, Sat, 31 Jan 2026 07:10:00 -0800)
+
+- **أوساسونا وفياريال في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://almashhadalaraby.com/news/548963)
+- **الدوري الإسباني .. أوساسونا يقلب الطاولة على فياريال فى الشوط الأول**: [Link](https://www.elbalad.news/6854338)
+- **أوساسونا يتفوق على فياريال في الشوط الأول بالدوري الإسباني**: [Link](https://iq.arabsvoice.net/78103/)
+
+
 ### صفية الزياني (N/A, Sat, 31 Jan 2026 07:40:00 -0800)
 
 - **أوراق الفن تتساقط تباعا.. الممثلة القديرة صفية الزياني في ذمة الله**: [Link](https://aljarida24.ma/p/actualites/335995/)
