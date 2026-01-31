@@ -1,3 +1,17 @@
+### برشلونة (N/A, Sat, 31 Jan 2026 13:20:00 -0800)
+
+- **بالفيديو.. وصول صفقة برشلونة لإجراء الكشف الطبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%88%D8%B5%D9%88%D9%84-%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7%D9%95%D8%AC%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A/blt91b3d8dde26cc754)
+- **تفاصيل صفقة إعارة المصري حمزة عبد الكريم لبرشلونة**: [Link](https://www.aljazeera.net/sport/2026/1/30/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B5%D9%81%D9%82%D8%A9-%D8%A5%D8%B9%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF)
+- **برشلونة يتعاقد مع المهاجم المصري حمزة عبد الكريم بالإعارة من الأهلي**: [Link](https://www.alquds.co.uk/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%AD%D9%85%D8%B2%D8%A9/)
+
+
+### fcb (N/A, Sat, 31 Jan 2026 13:20:00 -0800)
+
+- **Hansi Flick: 'Finishing fifth is fantastic'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4441024/hansi-flick-finishing-fifth-is-fantastic/featured)
+- **Lamine Yamal, Lewandowski and Raphinha reignite Barcelona’s attacking trio in Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/lamine-yamal-lewandowski-and-raphinha-is-barcelona-s-attacking-trio-back-2026-01-29)
+- **Barcelona Storms Past Copenhagen To Clinch Champions League Last 16 Spot**: [Link](https://evrimagaci.org/gpt/barcelona-storms-past-copenhagen-to-clinch-champions-league-last-16-spot-525866)
+
+
 ### barca (N/A, Sat, 31 Jan 2026 13:00:00 -0800)
 
 - **La famiglia Schwörer e il Pachamama: "In barca abbiamo fatto sette figli e navigato per 25 anni"**: [Link](https://www.solovela.net/articoli/3/la-famiglia-schworer-pachamama-una-vita-in-barca-per-raccontare-un-pianeta-che-cambia/1354400/)
