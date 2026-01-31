@@ -1,3 +1,10 @@
+### paris fc – marseille (N/A, Sat, 31 Jan 2026 07:20:00 -0800)
+
+- **DIRECT. Paris FC-OM (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/paris-fc-om-live/675965)
+- **PRONOS PARIS RMC Les paris sur Paris FC - Marseille du 31 janvier - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-paris-fc-marseille-du-31-janvier-ligue-1_AN-202601300863.html)
+- **Un absent imprévu dans le groupe de l’OM contre le PFC**: [Link](https://www.footmercato.net/a4317240865615607548-un-absent-imprevu-dans-le-groupe-de-lom-contre-le-pfc)
+
+
 ### watford – swansea (N/A, Sat, 31 Jan 2026 07:10:00 -0800)
 
 - **Meet the opposition | Watford**: [Link](https://www.swanseacity.com/news/meet-opposition-watford-9)
