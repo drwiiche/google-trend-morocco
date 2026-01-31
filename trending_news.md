@@ -1,3 +1,16 @@
+### brighton – everton (N/A, Sat, 31 Jan 2026 06:50:00 -0800)
+
+- **Everton line-up for Brighton confirmed as four centre-backs start and three changes made**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/everton-line-up-brighton-confirmed-33337582)
+- **Brighton and Hove Albion boss remains upbeat despite poor run**: [Link](https://www.brightonandhovenews.org/2026/01/30/brighton-and-hove-albion-boss-remains-upbeat-despite-poor-run/)
+- **Live Blog: Brighton v Everton**: [Link](https://www.evertonfc.com/news/2026/january/31/live-blog--brighton-v-everton/)
+
+
+### ayoub amloud (N/A, Sat, 31 Jan 2026 05:30:00 -0800)
+
+- **Le Raja accélère pour le retour d’Ayoub El Amloud en Botola**: [Link](https://africafoot.com/le-raja-accelere-pour-le-retour-dayoub-el-amloud-en-botola/)
+- **Le Raja Casablanca se rapproche de l'acquisition d'Ayoub El Amloud**: [Link](https://www.ysscores.com/fr/news/13901993/Le-Raja-Casablanca-se-rapproche-de-l'acquisition-d'Ayoub-El-Amloud)
+
+
 ### osasuna – villarreal (N/A, Sat, 31 Jan 2026 06:30:00 -0800)
 
 - **El Villarreal llega a Pamplona para retomar la buena racha**: [Link](https://onefootball.com/pt-br/noticias/el-villarreal-llega-a-pamplona-para-retomar-la-buena-racha-42333933)
