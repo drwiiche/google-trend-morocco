@@ -1,3 +1,10 @@
+### المديرية العامة للأرصاد الجوية (N/A, Sat, 31 Jan 2026 15:10:00 -0800)
+
+- **الأرصاد ترصد ظاهرة جوية معقدة وتفسّر تأثر المغرب بالعواصف الشتوية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%B1%D8%B5%D8%AF-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D9%85%D8%B9%D9%82%D8%AF%D8%A9-%D9%88%D8%AA%D9%81%D8%B3%D9%91%D8%B1-%D8%AA-1694616.html)
+- **مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية**: [Link](https://2m.ma/ar/news/%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%80-24-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A%D8%A9-20260131)
+- **طقس اليوم.. أمطار ورياح قوية في عدة مناطق**: [Link](https://ar.hibapress.com/details-698089.html)
+
+
 ### barca vs (N/A, Sat, 31 Jan 2026 13:30:00 -0800)
 
 - **El Barça saldrá con una alineación llena de pólvora para tumbar al Copenhague**: [Link](https://www.sport.es/es/noticias/barca/barca-saldra-alineacion-llena-polvora-126159062)
