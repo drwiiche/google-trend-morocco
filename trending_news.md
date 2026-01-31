@@ -1,3 +1,17 @@
+### aryna sabalenka (N/A, Sat, 31 Jan 2026 01:30:00 -0800)
+
+- **Australian Open final 2025 LIVE: Aryna Sabalenka vs Elena Rybakina - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/cpv1g97k2zrt)
+- **These are the sporting events you shouldn't miss this weekend**: [Link](https://www.flashscore.com/news/tennis-australian-open-atp-singles-editors-picks-australian-open-comes-to-epic-end-as-liverpool-headline-the-football-action/2wdoEefL/)
+- **Kalshi odds favor Alcaraz, Sabalenka for Australian Open titles**: [Link](https://news.kalshi.com/p/kalshi-odds-alcaraz-sabalenka-australian-open-finals)
+
+
+### sabalenka (N/A, Sat, 31 Jan 2026 01:30:00 -0800)
+
+- **A meeting of experience and youth: Sabalenka set to play Mboko at Australian Open**: [Link](https://apnews.com/article/sabalenka-mboko-gucci-rolex-australian-open-tennis-86d7f9454a7595fd8e2591e5c7151f2c)
+- **Who is Iva Jovic? America’s 18 year old tennis star who stunned Melbourne before falling to world No 1 Ar**: [Link](https://timesofindia.indiatimes.com/sports/international-sports/who-is-iva-jovic-americas-18-year-old-tennis-star-who-stunned-melbourne-before-falling-to-world-no-1-aryna-sabalenka/articleshow/127662135.cms)
+- **World No. 1 Aryna Sabalenka Reaches Australian Open Semi-Finals | 10 News**: [Link](https://10.com.au/10-news/news-sport/2026/world-no-1-aryna-sabalenka-reaches-australian-open-semi-finals-10-news/tpv260127gepzt)
+
+
 ### ثمن الذهب اليوم (N/A, Fri, 30 Jan 2026 14:30:00 -0800)
 
 - **أسعار الذهب تلتهم هامش الربح .. وتغلق محلات مجوهرات في المغرب**: [Link](https://www.hespress.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%AA%D9%84%D8%AA%D9%87%D9%85-%D9%87%D8%A7%D9%85%D8%B4-%D8%A7%D9%84%D8%B1%D8%A8%D8%AD-%D9%88%D8%AA%D8%BA%D9%84%D9%82-%D9%85%D8%AD-1693062.html)
