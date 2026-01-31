@@ -1,3 +1,17 @@
+### ليفانتي ضد أتلتيكو مدريد (N/A, Sat, 31 Jan 2026 09:20:00 -0800)
+
+- **موعد مباراة ليفانتي واتليتكو مدريد في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/548964)
+- **عاجل: أتلتيكو مدريد يسحق ليفانتي بثلاثية قاسية... هل يكررها السبت؟**: [Link](https://yemen-press.net/news163204.html)
+- **موعد مباراة أتلتيكو مدريد ضد ليفانتي في الدوري الإسباني والقنوات الناقلة**: [Link](https://iq.arabsvoice.net/77931/)
+
+
+### botola pro (N/A, Sat, 31 Jan 2026 09:10:00 -0800)
+
+- **Ayoub El Amloud Joins Raja for Season and a Half, Official Presentation Expected Soon**: [Link](https://m.elbotola.com/en/article/2026-01-31-16-27-185.html)
+- **Raja Club Nears Signing Ayoub El Amloud**: [Link](https://www.ysscores.com/en/news/13901993/Raja-Club-Nears-Signing-Ayoub-El-Amloud)
+- **Professional League: Hassania Agadir Defeats Ittihad Yaacoub El Mansour (2-0)**: [Link](https://m.elbotola.com/en/article/2026-01-31-16-56-933.html)
+
+
 ### levante – atlético madrid (N/A, Sat, 31 Jan 2026 08:40:00 -0800)
 
 - **El efecto Castro mide el desgaste del Atlético**: [Link](http://www.msn.com/es-us/noticias/mundo/el-efecto-castro-mide-el-desgaste-del-atl%C3%A9tico/ar-AA1VlDpZ)
