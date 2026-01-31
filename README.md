@@ -1,3 +1,10 @@
+### فيضانات القصر الكبير (N/A, Fri, 30 Jan 2026 22:50:00 -0800)
+
+- **غرق منازل وإخلاء مواطنين بسبب السيول في مدينة القصر الكبير المغربية**: [Link](https://www.aljazeera.net/video/2026/1/30/%D8%BA%D8%B1%D9%82-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%88%D8%A5%D8%AE%D9%84%D8%A7%D8%A1-%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A%D9%86-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84)
+- **القضاء يحقق في فيديوهات مفبركة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%8A-%D9%81%D9%8A%D8%AF%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D9%85%D9%81%D8%A8%D8%B1%D9%83%D8%A9-1694767.html)
+- **الأمن ينفي وقوع سرقات ونهب الممتلكات بعد إخلاء المنازل بسبب الفيضان في القصر الكبير**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%A8%D8%B7%D9%86%D8%AC%D8%A9-%D8%AA%D9%81%D8%AA%D8%AD-%D8%AA%D8%AD%D9%82%D9%8A%D9%82%D8%A7-%D9%81%D9%8A-%D9%81%D9%8A/)
+
+
 ### cancer pancreas (N/A, Fri, 30 Jan 2026 16:50:00 -0800)
 
 - **The group led by Barbacid at CNIO completely eliminates pancreatic tumours in mice with no resistance developing**: [Link](https://www.cnio.es/en/news/the-group-led-by-barbacid-at-cnio-completely-eliminates-pancreatic-tumours-in-mice-with-no-resistance-developing/)
