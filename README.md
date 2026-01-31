@@ -1,3 +1,17 @@
+### barca vs (N/A, Sat, 31 Jan 2026 13:30:00 -0800)
+
+- **El Barça saldrá con una alineación llena de pólvora para tumbar al Copenhague**: [Link](https://www.sport.es/es/noticias/barca/barca-saldra-alineacion-llena-polvora-126159062)
+- **Lamine Yamal desvela la charla de Hansi Flick al descanso en el partido del FC Barcelona frente al Copenhague**: [Link](https://www.si.com/es-us/futbol/lamine-yamal-desvela-la-charla-de-hansi-flick-al-descanso-en-partido-del-fc-barcelona-frente-al-copenhague)
+- **Transmisión en vivo del Barcelona vs Copenhague**: [Link](https://www.vietnam.vn/es/truc-tiep-barcelona-vs-copenhagen)
+
+
+### الجيش الملكي ضد شبيبة القبائل (N/A, Sat, 31 Jan 2026 13:00:00 -0800)
+
+- **نتيجة وملخص مباراة الجيش الملكي ضد شبيبة القبائل في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/31/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%B6%D8%AF-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D8%A6%D9%84)
+- **زينباور: الجيش الملكي من أكبر الأندية في أفريقيا وغياب جماهيرهم ميزة كبيرة لنا ⚽🗣**: [Link](https://m.elbotola.com/video/details/697cc3686c3a5e1d3c6caf2f/)
+- **سانتوس: مواجهة شبيبة القبائل صعبة وغياب جمهورنا مؤثر**: [Link](https://febrayer.com/1133039.html)
+
+
 ### match barca (N/A, Sat, 31 Jan 2026 13:40:00 -0800)
 
 - **Elche vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cdx4p6026g9t)
