@@ -1,3 +1,10 @@
+### monaco – rennes (N/A, Sat, 31 Jan 2026 11:30:00 -0800)
+
+- **ASM-SRFC : La conférence de presse**: [Link](https://asm-supporters.fr/actualites/65045-asm-srfc-la-conference-de-presse)
+- **Monaco avec le revenant Krépin Diatta et Denis Zakaria en défense centrale face à Rennes**: [Link](https://www.lequipe.fr/Football/Actualites/Monaco-avec-le-revenant-krepin-diatta-et-denis-zakaria-en-defense-centrale-face-a-rennes/1638252)
+- **Clean sheet, pressing, retrouvailles… Les stats à connaître avant Rennes**: [Link](https://www.asmonaco.com/record-defense-pressing-haut-les-statistiques-a-connaitre-avant-as-monaco-rennes-en-ligue-1/)
+
+
 ### liverpool – newcastle (N/A, Sat, 31 Jan 2026 11:20:00 -0800)
 
 - **‘Best available choice’ – Paul Merson predicts who’ll play right-back for Liverpool tonight**: [Link](https://www.empireofthekop.com/2026/01/31/merson-szoboszlai-right-back-liverpool-newcastle/)
