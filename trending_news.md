@@ -1,3 +1,17 @@
+### barca (N/A, Sat, 31 Jan 2026 13:00:00 -0800)
+
+- **La famiglia Schwörer e il Pachamama: "In barca abbiamo fatto sette figli e navigato per 25 anni"**: [Link](https://www.solovela.net/articoli/3/la-famiglia-schworer-pachamama-una-vita-in-barca-per-raccontare-un-pianeta-che-cambia/1354400/)
+- **La famiglia Schwörer racconta il loro giro del mondo in barca a vela e l'impatto dell'avventura sulla loro vita e sull'educazione dei figli**: [Link](https://news.ssbcrack.com/la-famiglia-schworer-racconta-il-loro-giro-del-mondo-in-barca-a-vela-e-limpatto-dellavventura-sulla-loro-vita-e-sulleducazione-dei-figli/)
+- **Goldrake arriva in Canal Grande: la giostra diretta a "Creature di Gomma"**: [Link](https://www.veneziatoday.it/social/goldrake-canal-grande-giostra-creature-di-gomma.html)
+
+
+### لا ليغا (N/A, Sat, 31 Jan 2026 13:00:00 -0800)
+
+- **الدوري الإسباني في خطر.**: [Link](https://www.vietnam.vn/ar/la-liga-lam-nguy)
+- **الفجوة تتسع.. كيف تفوق البريميرليج على الأندية الإسبانية في المواجهات المباشرة؟**: [Link](https://tribuna.com/ar/blogs/lfjw-tts-kyf-tfwq-lbrymyrlyj-l-lndy-lsbny-fy-lmwjht-lmbshr/)
+- **النسخة الأسوأ من برشلونة تنجو من جديد !**: [Link](https://hihi2.com/2026/01/30/p3626703.html)
+
+
 ### الجيش الملكي (N/A, Sat, 31 Jan 2026 12:40:00 -0800)
 
 - **مباشر.. مباراة الجيش الملكي ضد شبيبة القبائل (1-0) في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/31/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%B6%D8%AF-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D8%A6%D9%84)
