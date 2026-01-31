@@ -1,3 +1,17 @@
+### real oviedo – girona (N/A, Sat, 31 Jan 2026 04:10:00 -0800)
+
+- **Thiago, el refuerzo para un duelo clave**: [Link](https://www.lne.es/real-oviedo/2026/01/31/thiago-refuerzo-duelo-clave-126286513.html)
+- **Guillermo Almada aclara la situación de Álex Forés, Eric Bailly, Ovie Ejaria o Dendoncker: "Son elecciones"**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260130/real-oviedo-guillermo-almada-girona-bailly-alex-fores-dendoncker_18_018207572.html)
+- **Qué canal pasa Oviedo vs Girona hoy: dónde ver gratis y en vivo**: [Link](https://www.365scores.com/es/news/oviedo-vs-girona-donde-ver-gratis-vivo/)
+
+
+### yassir zabiri (N/A, Sat, 31 Jan 2026 04:10:00 -0800)
+
+- **Rennes eye Famalicão’s Yassir Zabiri to succeed Kader Meïté**: [Link](https://ca.sports.yahoo.com/news/rennes-eye-famalic-o-yassir-112500377.html)
+- **"A Bola" Reports: Al-Ittihad Interested in Loan Move for El-Zabiri**: [Link](https://m.elbotola.com/en/article/2026-01-30-11-33-945.html)
+- **Transfer window: Yassir Zabiri catches the eye of Stade Rennais**: [Link](https://foot-africa.com/en/news/transfer-window-yassir-zabiri-catches-the-eye-of-stade-rennais-1065167/)
+
+
 ### وزير التعليم (N/A, Sat, 31 Jan 2026 01:40:00 -0800)
 
 
