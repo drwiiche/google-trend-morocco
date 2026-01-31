@@ -1,3 +1,24 @@
+### ليفربول ضد نيوكاسل يونايتد (N/A, Sat, 31 Jan 2026 11:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة ليفربول ونيوكاسل يونايتد في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc191a854e627a8f4)
+- **إيكيتيكي راض عن بدايته مع ليفربول**: [Link](https://www.hesport.com/%D8%A5%D9%8A%D9%83%D9%8A%D8%AA%D9%8A%D9%83%D9%8A-%D8%B1%D8%A7%D8%B6-%D8%B9%D9%86-%D8%A8%D8%AF%D8%A7%D9%8A%D8%AA%D9%87-%D9%85%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-424909.html)
+- **ليفربول ضد نيوكاسل يونايتد.. محمد صلاح يتصدر تشكيل الريدز بموقعة البريميرليج**: [Link](https://www.youm7.com/story/2026/1/31/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D9%8A%D8%AF%D8%B2-%D8%A8%D9%85%D9%88%D9%82%D8%B9%D8%A9/7288544)
+
+
+### far vs jsk (N/A, Sat, 31 Jan 2026 11:40:00 -0800)
+
+- **Ligue des Champions : Al Hilal Omdurman fait tomber Mamelodi Sundowns et affirme ses ambitions à Kigali**: [Link](https://www.cafonline.com/fr/ligue-des-champions/news/ligue-des-champions-al-hilal-omdurman-fait-tomber-mamelodi-sundowns-et-affirme-ses-ambitions-a-kigali/)
+- **AS FAR-JS Kabylie: à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/as-far-js-kabylie-a-quelle-heure-et-sur-quelles-chaines_K5VXL5JOF5FJJLLL222CQPO4AY/)
+- **LdC de la CAF. AS FAR-JSK: l’essentiel de la conférence de presse d’Alexandre Santos**: [Link](https://h24info.ma/sport/football/ldc-de-la-caf-as-far-jsk-lessentiel-de-la-conference-de-presse-dalexandre-santos/)
+
+
+### as far (N/A, Sat, 31 Jan 2026 11:40:00 -0800)
+
+- **Santos: 'Tomorrow's Match is Crucial; We Seek First CAF Champions League Victory'**: [Link](https://m.elbotola.com/en/article/2026-01-30-13-12-424.html)
+- **JS Kabylie Delegation Arrives in Rabat Ahead of AS FAR Clash**: [Link](https://m.elbotola.com/en/article/2026-01-29-14-15-611.html)
+- **CAF Champions League: Qualification hopes on the line as JS Kabylie travel to Rabat**: [Link](https://africasoccer.com/caf-champions-league-qualification-hopes-on-the-line-as-js-kabylie-travel-to-rabat/)
+
+
 ### monaco – rennes (N/A, Sat, 31 Jan 2026 11:30:00 -0800)
 
 - **ASM-SRFC : La conférence de presse**: [Link](https://asm-supporters.fr/actualites/65045-asm-srfc-la-conference-de-presse)
