@@ -1,3 +1,17 @@
+### cancer pancreas (N/A, Fri, 30 Jan 2026 16:50:00 -0800)
+
+- **The group led by Barbacid at CNIO completely eliminates pancreatic tumours in mice with no resistance developing**: [Link](https://www.cnio.es/en/news/the-group-led-by-barbacid-at-cnio-completely-eliminates-pancreatic-tumours-in-mice-with-no-resistance-developing/)
+- **Research Spotlight: A Look Ahead at Pancreatic Cancer in 2026**: [Link](https://pancan.org/news/research-spotlight/research-spotlight-a-look-ahead-at-pancreatic-cancer-in-2026/)
+- **Scientists in Spain say they have uncovered a cure for pancreatic cancer in mice. The breakthrough could help people eventually. See link below ⬇️ bit.ly/49Q3peZ**: [Link](https://www.facebook.com/detroitfreepress/photos/scientists-in-spain-say-they-have-uncovered-a-cure-for-pancreatic-cancer-in-mice/1346304284208387/)
+
+
+### bridgerton saison 4 (N/A, Fri, 30 Jan 2026 16:10:00 -0800)
+
+- **La Chronique des Bridgerton (Netflix) : on a vu les premiers épisodes de la saison 4, voici notre avis**: [Link](https://www.lesnumeriques.com/serie/la-chronique-des-bridgerton-netflix-on-a-vu-les-premiers-episodes-de-la-saison-4-voici-notre-avis-n249831.html)
+- **"Bridgerton" saison 4 : les interprètes de Benedict et Sophie sont-ils en couple ?**: [Link](https://www.nrj.fr/cine-series/bridgerton-saison-4-les-interpretes-de-benedict-et-sophie-sont-ils-en-couple-71365963)
+- **Dove et Les Chroniques des Bridgerton célèbrent la « noblesse au quotidien » avec le lancement d’une collection en édition limitée au Canada**: [Link](https://www.rutlandherald.com/news/business/dove-et-les-chroniques-des-bridgerton-c-l-brent-la-noblesse-au-quotidien-avec-le/article_0f394715-b688-58e2-aa67-8684957f1dba.html)
+
+
 ### سعر الذهب اليوم (N/A, Fri, 30 Jan 2026 13:40:00 -0800)
 
 - **هبوط عالمي الآن.. سعر الذهب اليوم الجمعة 30-1-2026**: [Link](https://www.almasryalyoum.com/news/details/4186942)
