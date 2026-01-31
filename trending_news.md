@@ -1,3 +1,17 @@
+### hamburger sv vs bayern (N/A, Sat, 31 Jan 2026 10:10:00 -0800)
+
+- **HSV: Not-Angriff gegen Bayern – Sturm-Entscheidung gefallen**: [Link](https://www.bild.de/sport/fussball/hsv-not-angriff-gegen-bayern-sturm-entscheidung-gefallen-697ca674a58e5b705ac2ceb7)
+- **Hamburger SV bestreitet erstmals seit 2018 zu Hause ein Topspiel in der Bundesliga**: [Link](https://sport.sky.de/fussball/artikel/hamburger-sv-bestreitet-erstmals-seit-2018-zu-hause-ein-topspiel-in-der-bundesliga/13499604/34090)
+- **„Den besten FC Bayern sehen“: Kompany-Elf heiß auf HSV-Kracher**: [Link](https://www.merkur.de/sport/fc-bayern/hsv-gegen-fc-bayern-heute-im-liveticker-verletzter-bayern-star-vor-rueckkehr-zr-94148721.html)
+
+
+### napoli (N/A, Sat, 31 Jan 2026 10:10:00 -0800)
+
+- **Serie A, oggi Napoli-Fiorentina - Diretta**: [Link](https://www.adnkronos.com/sport/diretta-napoli-fiorentina-oggi-serie-a-risultato-live_1nUqBl1N0CjbExVqhdROD8)
+- **Vanoli recupera Piccoli dal 1′, Conte conferma il tridente: le formazioni ufficiali di Napoli-Fiorentina**: [Link](https://onefootball.com/en/news/vanoli-recupera-piccoli-dal-1-conte-conferma-il-tridente-le-formazioni-ufficiali-di-napoli-fiorentina-42336026)
+- **Buongiorno: “Il morale deve restare alto, dobbiamo concentrarci sul presente e sulle prossime gare”**: [Link](https://www.goldelnapoli.it/buongiorno-il-morale-deve-restare-alto-dobbiamo-concentrarci-sul-presente-e-sulle-prossime-gare/)
+
+
 ### تشيلسي ضد وست هام (N/A, Sat, 31 Jan 2026 09:40:00 -0800)
 
 - **عودة بالمر تُشعل قمة تشيلسي ووست هام.. إليكم التشكيلات المتوقعة**: [Link](https://www.arrajol.com/content/397159/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D8%AA%D9%8F%D8%B4%D8%B9%D9%84-%D9%82%D9%85%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D8%A5%D9%84%D9%8A%D9%83%D9%85-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9)
