@@ -1,3 +1,10 @@
+### asfar (N/A, Sat, 31 Jan 2026 11:50:00 -0800)
+
+- **Arsenal vs FAR Rabat | Frida Maanum doubles lead for Gunners**: [Link](https://www.skysports.com/football/video/37021/13500296/arsenal-vs-far-rabat-frida-maanum-doubles-lead-for-gunners)
+- **African champions AS FAR handed stern test against Arsenal in global debut**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/african-champions-as-far-handed-stern-test-against-arsenal-in-global-debut/)
+- **Every word of Renée’s pre-Corinthians presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-renees-pre-corinthians-presser)
+
+
 ### ليفربول ضد نيوكاسل يونايتد (N/A, Sat, 31 Jan 2026 11:40:00 -0800)
 
 - **ما القنوات الناقلة لمباراة ليفربول ونيوكاسل يونايتد في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc191a854e627a8f4)
