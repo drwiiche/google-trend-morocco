@@ -1,3 +1,32 @@
+### osasuna – villarreal (N/A, Sat, 31 Jan 2026 06:30:00 -0800)
+
+- **El Villarreal llega a Pamplona para retomar la buena racha**: [Link](https://onefootball.com/pt-br/noticias/el-villarreal-llega-a-pamplona-para-retomar-la-buena-racha-42333933)
+- **Marcelino confirma las bajas de Thomas y Alfon y una nueva lesión de Ayoze Pérez**: [Link](https://www.ubirataonline.com.br/marcelino-confirma-las-bajas-de-thomas-y-alfon-y-una-nueva-lesion-de-ayoze-perez/)
+- **Marcelino: “El nivel de exigencia ante Osasuna será muy alto”**: [Link](https://villarrealcf.es/marcelino-el-nivel-de-exigencia-ante-osasuna-sera-muy-alto/)
+
+
+### ليدز ضد آرسنال (N/A, Sat, 31 Jan 2026 06:30:00 -0800)
+
+- **تاريخ مواجهات أرسنال وليدز يونايتد في الدوري الإنجليزي**: [Link](https://hihi2.com/2026/01/30/p3627292.html)
+- **آخر مواعيد مباريات الجولة 25 من الدوري الإنجليزي الممتاز لموسم 2025/26.**: [Link](https://www.vietnam.vn/ar/lich-thi-dau-vong-25-ngoai-hang-anh-2025-26-moi-nhat)
+- **أرسنال يأمل بتفادي الأسوأ في السباق نحو اللقب**: [Link](https://www.pressreader.com/uk/a-quds-al-arabi/20260131/282248081986207)
+
+
+### wolves – bournemouth (N/A, Sat, 31 Jan 2026 06:30:00 -0800)
+
+- **Wolves v Bournemouth: Key stats and talking points**: [Link](https://www.bbc.com/articles/c86vn9px0n0o)
+- **Betfred bonus code: Use BETFRED50 for Premier League free bets**: [Link](https://mybettingsites.co.uk/news/betfred-bonus-code-use-betfred50-for-premier-league-free-bets-29-jan/)
+- **Wolves predicted XI vs AFC Bournemouth: Two changes made including Tolu Arokodare call**: [Link](https://www.birminghamworld.uk/sport/football/wolves-predicted-xi-afc-bournemouth-premier-league-rob-edwards-5494646)
+
+
+### leeds united – arsenal (N/A, Sat, 31 Jan 2026 06:10:00 -0800)
+
+- **Arteta's updates on Saliba, Timber and Dowman | Press conference | News**: [Link](https://www.arsenal.com/news/artetas-updates-saliba-timber-and-dowman)
+- **Mikel Arteta asserts his big German is ‘ready’ to play at
+Elland Road**: [Link](https://www.vavel.com/en/football/2026/01/31/arsenal/1249265-mikel-arteta-asserts-his-big-german-is-ready-to-play-atelland-road.html)
+- **Ilia Gruev: It will be an intense game**: [Link](https://www.leedsunited.com/en/news/ilia-gruev-it-will-be-an-intense-game)
+
+
 ### alerte météo maroc (N/A, Sat, 31 Jan 2026 05:50:00 -0800)
 
 - **Fortes pluies, crues et routes coupées dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/fortes-pluies-crues-et-routes-coupees-dans-plusieurs-regions-du-maroc/327087)
