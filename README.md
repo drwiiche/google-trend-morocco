@@ -1,3 +1,24 @@
+### botola pro (N/A, Sun, 1 Feb 2026 10:50:00 -0800)
+
+- **Goalless Draw Between Ittihad Tanger and Kawkab Marrakech in Professional League**: [Link](https://m.elbotola.com/en/article/2026-02-01-17-05-512.html)
+- **Ittihad Tangier Announces Gradual Return to Grand Tangier Stadium**: [Link](https://www.ysscores.com/en/news/13899592/Ittihad-Tangier-Announces-Gradual-Return-to-Grand-Tangier-Stadium)
+- **Ittihad Tanger announces return to Grand Stadium with friendly against Kawkab Marrakech**: [Link](https://africasoccer.com/ittihad-tanger-announces-return-to-grand-stadium-with-friendly-against-kawkab-marrakech/)
+
+
+### نهضة بركان (N/A, Sun, 1 Feb 2026 10:20:00 -0800)
+
+- **بيراميدز يكتسح نهضة بركان بثلاثية**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-1695555.html)
+- **يورتشيتش: البعض لا يرغب بفوز بيراميدز بالبطولات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%88%D8%B1%D8%AA%D8%B4%D9%8A%D8%AA%D8%B4-%D8%A7%D9%84%D8%A8%D8%B9%D8%B6-%D9%84%D8%A7-%D9%8A%D8%B1%D8%BA%D8%A8-%D8%A8%D9%81%D9%88%D8%B2-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%A8%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA/bltce05f13541d05250)
+- **قطة يسجل الهدف الثالث لبيراميدز فى شباك نهضة بركان المغربى.. صور**: [Link](https://www.youm7.com/story/2026/2/1/%D9%82%D8%B7%D8%A9-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A7%D9%84%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%84%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%81%D9%89-%D8%B4%D8%A8%D8%A7%D9%83-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%89/7289539)
+
+
+### raja vs (N/A, Sun, 1 Feb 2026 10:10:00 -0800)
+
+- **‘No idea’: Green fumes after dismissal as drama erupts on horror night for Aussies**: [Link](https://www.foxsports.com.au/cricket/australia-vs-pakistan-t20-cricket-2026-cameron-green-fumes-at-usman-tariq-action-after-wicket-video-highlights-latest-news/news-story/ed4e0e41f243ffc9e398bfa35fb00938)
+- **'Hiding The Chucker?': Usman Tariq Dropped For 3rd T20I Amid Cameron Green Row**: [Link](https://news.abplive.com/sports/cricket/hiding-the-chucker-usman-tariq-dropped-for-3rd-t20i-amid-cameron-green-row-1824895)
+- **Cameron Green Slammed For Chucking Gesture Against Pakistani Bowler: 'Deal With It'**: [Link](https://www.news18.com/cricket/cameron-green-slammed-for-chucking-gesture-against-pakistani-bowler-deal-with-it-ws-ln-9871378.html)
+
+
 ### ترتيب الدوري المغربي (N/A, Sun, 1 Feb 2026 09:30:00 -0800)
 
 - **في الوقت القاتل.. الرجاء يتفق مع نجم الوداد السابق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D9%82%D8%A7%D8%AA%D9%84--%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AA%D9%81%D9%82-%D9%85%D8%B9-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82/bltc2e93e046c8d274a)
