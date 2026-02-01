@@ -1,3 +1,10 @@
+### tennis live (N/A, Sun, 1 Feb 2026 02:00:00 -0800)
+
+- **Genius Sports Expands BetVision Into Tennis Live Betting Infrastructure**: [Link](https://ca.finance.yahoo.com/news/genius-sports-expands-betvision-tennis-081234813.html)
+- **Genius Sports (GENI) Valuation Check As BetVision For Tennis Launches With Australian Open**: [Link](https://simplywall.st/stocks/us/consumer-services/nyse-geni/genius-sports/news/genius-sports-geni-valuation-check-as-betvision-for-tennis-l)
+- **Genius Sports launches BetVision for Tennis**: [Link](https://www.tipranks.com/news/the-fly/genius-sports-launches-betvision-for-tennis-thefly)
+
+
 ### turf fr (N/A, Sun, 1 Feb 2026 01:40:00 -0800)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 14 Ina du Rib**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-14-ina-du-rib-129026.html)
