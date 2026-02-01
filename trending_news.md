@@ -1,3 +1,10 @@
+### djokovic (N/A, Sun, 1 Feb 2026 00:50:00 -0800)
+
+- **Australian Open 2026 final LIVE: Carlos Alcaraz vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c620ypdegzgt)
+- **AO 2026 – men's final: What to expect?**: [Link](https://www.rolandgarros.com/en-us/article/preview-mens-final-australian-open-carlos-alcaraz-novak-djokovic)
+- **Jannik Sinner on Novak Djokovic's lesson: 'I'm not surprised'**: [Link](https://www.tennisworldusa.org/tennis/news/Jannik_Sinner/163699/jannik-sinner-on-novak-djokovic-s-lesson-i-m-not-surprised-/)
+
+
 ### tennis live (N/A, Sun, 1 Feb 2026 02:00:00 -0800)
 
 - **Genius Sports Expands BetVision Into Tennis Live Betting Infrastructure**: [Link](https://ca.finance.yahoo.com/news/genius-sports-expands-betvision-tennis-081234813.html)
