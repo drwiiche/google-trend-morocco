@@ -1,3 +1,45 @@
+### premier league (N/A, Sun, 1 Feb 2026 08:00:00 -0800)
+
+- **Liverpool in talks over Lutsharel Geertruida loan transfer - The Athletic**: [Link](https://www.nytimes.com/athletic/7013309/2026/02/01/liverpool-transfer-news-geertruida/)
+- **Liverpool's deadline day simulated as Mo Salah future decided and £40m signing made**: [Link](https://www.mirror.co.uk/sport/football/news/liverpools-deadline-day-simulated-mo-36630260)
+- **EXCLUSIVE: Liverpool could sign Dutch star Kees Smit**: [Link](https://www.daveockop.com/transfer-news/exclusive-liverpool-could-sign-dutch-star-kees-smit/)
+
+
+### توتنهام ضد مان سيتي (N/A, Sun, 1 Feb 2026 08:00:00 -0800)
+
+- **مرموش وفودين على دكة بدلاء مانشستر سيتي أمام توتنهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%88%D9%81%D9%88%D8%AF%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85/blt19cbae950448a7d5)
+- **غياب مفاجئ لغوارديولا عن مؤتمر السيتي بعد دعم فلسطين**: [Link](https://www.aljazeera.net/sport/2026/1/30/%D8%BA%D9%8A%D8%A7%D8%A8-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%84%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B9%D9%86-%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A)
+- **احصائيات رودري هذا الموسم في الدوري الانجليزي**: [Link](https://hihi2.com/2026/02/01/p3630444.html)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 1 Feb 2026 08:00:00 -0800)
+
+- **قلق في آرسنال.. أرتيتا يصف إصابة ساكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%84%D9%82-%D9%81%D9%8A-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84--%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B5%D9%81-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B3%D8%A7%D9%83%D8%A7/blt058c1e142991ffb0)
+- **أرسنال يكتسح ليدز وتشلسي يتفوق على وست هام بالدوري الإنجليزي**: [Link](https://www.aljazeera.net/sport/2026/1/31/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D9%84%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D8%A8%D9%81%D9%88%D8%B2)
+- **بطولة إنكلترا: أرسنال يبتعد في الصدارة وفوز بعد عودة لكل من تشلسي وليفربول**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260131-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D9%83%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%AD%D8%A9-%D8%A8%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%B3%D8%A7%D8%AD%D9%82-%D9%8A%D9%8F%D8%A8%D8%B9%D8%AF%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9)
+
+
+### real betis vs valencia (N/A, Sun, 1 Feb 2026 07:50:00 -0800)
+
+- **Preview: Real Betis vs Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-valencia-prediction-team-news-lineups_591067.html)
+- **‘It's a great team, they've been doing very well’: Valencia coach Carlos Corberan analyses Betis and confirms Guido's return**: [Link](https://tribuna.com/en/news/2026-02-01-its-a-great-team-theyve-been-doing-very-well-valencia-coach-carlos-corberan-analyses-beti/)
+- **Betis and Valencia Clash: Verdiblanca Celebration Continues at La Cartuja**: [Link](https://www.el-balad.com/6839903)
+
+
+### classement liga (N/A, Sun, 1 Feb 2026 07:40:00 -0800)
+
+- **Ils peuvent s'estimer heureux**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/grace-a-un-penalty-de-mbappe-au-bout-du-temps-additionnel-le-real-madrid-simpose-face-au-rayo-vallecano-en-liga-2-1_sto23265521/story.shtml)
+- **Mbappé délivre le Real sur un penalty à la 100e minute après une prestation indigeste des Madrilènes face au Rayo**: [Link](https://www.lequipe.fr/Football/Actualites/Mbappe-delivre-le-real-sur-un-penalty-a-la-100e-minute-apres-une-prestation-indigeste-des-madrilenes-face-au-rayo/1638466)
+- **Real Madrid-Rayo Vallecano: Mbappé offre la victoire au Real à l'issue d'une après-midi galère**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-real-madrid-rayo-vallecano-suivez-l-affiche-de-la-22e-journee-de-liga-avec-kylian-mbappe_LS-202602010210.html)
+
+
+### classement la liga (N/A, Sun, 1 Feb 2026 07:00:00 -0800)
+
+- **Osasuna 2-2 Villarreal, La Liga : résumé du match (31/01/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/osasuna-villarreal-live/676925)
+- **Villarreal : Nicolas Pépé brille contre Osasuna en Liga**: [Link](https://mondialsport.ci/villarreal-nicolas-pepe-brille-contre-osasuna-en-liga-30962.sport)
+- **Liga : Osasuna - Villarreal en streaming : A quelle heure et sur quelle chaîne TV voir le match en direct ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-liga-osasuna-villarreal-en-streaming-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-en-direct-ij-510430.html)
+
+
 ### tottenham – manchester city (N/A, Sun, 1 Feb 2026 07:40:00 -0800)
 
 - **Spurs v Manchester City: Gut Feelings**: [Link](https://bitterandblue.sbnation.com/manchester-city-blue-takes-bitter-and-blue/36723/spurs-v-manchester-city-gut-feelings)
