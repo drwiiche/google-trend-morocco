@@ -1,3 +1,10 @@
+### barcelone (N/A, Sat, 31 Jan 2026 14:10:00 -0800)
+
+- **Le Real et le Barça s'affrontent pour cette star**: [Link](https://fr.news.yahoo.com/sport/real-bar%C3%A7a-saffrontent-star-090000884.html)
+- **Le Barça et le Real Madrid ont fait une offre, bataille lancée pour un talent espagnol**: [Link](https://www.onzemondial.com/transferts/le-barca-et-le-real-madrid-ont-fait-une-offre-bataille-lancee-pour-un-talent-espagnol-978813)
+- **Le Real Madrid et Barcelone s'affrontent pour le milieu de terrain espagnol U19**: [Link](https://onefootball.com/fr/news/le-real-madrid-et-barcelone-saffrontent-pour-le-milieu-de-terrain-espagnol-u19-42338344)
+
+
 ### djokovic (N/A, Sun, 1 Feb 2026 00:50:00 -0800)
 
 - **Australian Open 2026 final LIVE: Carlos Alcaraz vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c620ypdegzgt)
