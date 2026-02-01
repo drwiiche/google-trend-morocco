@@ -1,3 +1,17 @@
+### aston villa (N/A, Sun, 1 Feb 2026 06:50:00 -0800)
+
+- **Premier League LIVE: Aston Villa v Brentford, Man Utd v Fulham, & Forest v Palace - score, results & updates**: [Link](https://www.bbc.com/sport/football/live/ckgljennkd2t)
+- **Brentford down to 10; Man Utd score after VAR overturn; Forest lead**: [Link](https://onefootball.com/en/news/brentford-down-to-10-man-utd-score-after-var-overturn-forest-lead-42340121)
+- **Aston Villa v Brentford confirmed team news: Andrews makes three changes**: [Link](https://www.brentfordfc.com/en/news/article/first-team-aston-villa-v-brentford-premier-league-01-02-2026-confirmed-team-news)
+
+
+### rayo vallecano (N/A, Sun, 1 Feb 2026 06:20:00 -0800)
+
+- **Real Madrid's starting lineup against Rayo**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/once-inicial-del-real-madrid-contra-el-rayo-01-02-2026)
+- **Alvaro Arbeloa: “I always try to learn from mistakes and failures”**: [Link](https://www.managingmadrid.com/real-madrid-cf-la-liga/103521/alvaro-arbeloa-i-always-try-to-learn-from-mistakes-and-failures)
+- **Real Madrid Aim to Strengthen Title Push Against Struggling Rayo Vallecano**: [Link](https://dawan.africa/news/real-madrid-aim-to-strengthen-title-push-against-struggling-rayo-vallecano)
+
+
 ### côme – atalanta (N/A, Sun, 1 Feb 2026 06:40:00 -0800)
 
 - **Serie A, in campo Como-Atalanta: Baturina e Bernasconi titolari 📍 Stadio Giuseppe Sinigaglia Segui tutti gli aggiornamenti in tempo reale qui 👉🏻 https://www.rainews.it/maratona/2026/01/calcio-serie-a-giornata-23-risultati-cronaca-aggiornamenti-diretta-highli**: [Link](https://www.facebook.com/RaiNews/photos/serie-a-in-campo-como-atalanta-baturina-e-bernasconi-titolari-stadio-giuseppe-si/1377628477737002/)
