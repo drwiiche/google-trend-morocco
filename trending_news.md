@@ -1,3 +1,10 @@
+### sporting – cd nacional (N/A, Sun, 1 Feb 2026 12:00:00 -0800)
+
+- **Sporting: Hjulmand falha jogo com o Nacional**: [Link](https://www.abola.pt/noticias/sporting-hjulmand-falha-jogo-com-o-nacional-2026020116581122614)
+- **Luis Suárez volta a resgatar leão**: [Link](https://www.ligaportugal.pt/news/26719/luis-suarez-volta-a-resgatar-leao)
+- **AO VIVO: Kaique defende livre de Maxi Araújo para canto (57')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-kaique-defende-livre-de-maxi-araujo-para-canto-57/namd2MlA/)
+
+
 ### الطقس غدًا (N/A, Sun, 1 Feb 2026 11:50:00 -0800)
 
 - **ارتفاع مؤقت في درجات الحرارة مع فيديو توضيحي**: [Link](https://www.iqraa24.com/news/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D8%A4%D9%82%D8%AA-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AA/)
