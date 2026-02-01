@@ -1,3 +1,10 @@
+### psg vs (N/A, Sun, 1 Feb 2026 13:40:00 -0800)
+
+- **LIVE! Strasbourg vs PSG in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-strasbourg-vs-psg-in-ligue-1-on-bein-sports-2026-02-01)
+- **Top Betting Picks for Ligue 1 and La Liga on February 1, 2026**: [Link](https://www.el-balad.com/6840171)
+- **Football Tracker: PSG facing in-form Strasbourg, Juventus away to Parma**: [Link](https://www.flashscore.com/news/football-tracker-psg-facing-in-form-strasbourg-juventus-away-to-parma/ADlVXIrA/)
+
+
 ### juventus (N/A, Sun, 1 Feb 2026 12:40:00 -0800)
 
 - **Serie A, oggi Parma - Juve - La partita in diretta**: [Link](https://www.virgilio.it/italia/aosta/notizielocali/serie_a_oggi_parma_juve_la_partita_in_diretta-76385096.html)
