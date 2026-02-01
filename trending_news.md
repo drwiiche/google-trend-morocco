@@ -1,3 +1,31 @@
+### dortmund – heidenheim (N/A, Sun, 1 Feb 2026 08:40:00 -0800)
+
+- **Liveticker | Borussia Dortmund - 1. FC Heidenheim : | 20. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/dortmund-gegen-heidenheim-2026-bundesliga-5050922/ticker)
+- **Ramaj im Sommer vor BVB-Rückkehr – vorher hat er ein klares Ziel**: [Link](https://www.derwesten.de/sport/fussball/bvb/bvb-borussia-dortmund-ramaj-heidenheim-rueckkehr-id301975844.html)
+- **Vor Heimspiel gegen Heidenheim: (K)ein Grund zur Vorfreude?!**: [Link](https://www.schwatzgelb.de/artikel/2026/warmlaufen/kein-grund-zur-vorfreude)
+
+
+### raja casablanca (N/A, Sun, 1 Feb 2026 08:40:00 -0800)
+
+- **Le Raja tranche officiellement pour El Amloud et sécurise son retour en Botola**: [Link](https://africafoot.com/le-raja-tranche-officiellement-pour-el-amloud-et-securise-son-retour-en-botola/)
+- **Le Raja Casablanca se rapproche de l'acquisition d'Ayoub El Amloud**: [Link](https://www.ysscores.com/fr/news/13901993/Le-Raja-Casablanca-se-rapproche-de-l'acquisition-d'Ayoub-El-Amloud)
+- **Ayoub El Amloud rejoint le Raja pour une saison et demie, présentation officielle imminente**: [Link](https://m.elbotola.com/fr/article/2026-01-31-16-27-828.html)
+
+
+### cremonese – inter (N/A, Sun, 1 Feb 2026 08:20:00 -0800)
+
+- **Cremonese-Inter, il commento prepartita**: [Link](https://www.laprovinciacr.it/video/sport/566602/cremonese-inter-il-commento-prepartita.html)
+- **Il primo Cremo-Inter dell'Inter Club Bastoni: "Vinciamo noi ma..."**: [Link](https://www.oglioponews.it/2026/02/01/il-primo-cremo-inter-dellinter-club-bastoni-vinciamo-noi-ma/)
+- **LIVE Alle 18 Cremonese-Inter, le ufficiali: Nicola si affida a Vardy, Chivu con Pio e Lautaro**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/01-02-2026/cremonese-inter-live-risultato-e-gol-in-diretta-serie-a.shtml)
+
+
+### classement premier league (N/A, Sun, 1 Feb 2026 08:00:00 -0800)
+
+- **La folle prise de pouvoir d’Hugo Ekitike, le nouveau Lamine Yamal fascine l’Espagne**: [Link](https://www.footmercato.net/a1779574254622437408-la-folle-prise-de-pouvoir-dhugo-ekitike-le-nouveau-lamine-yamal-fascine-lespagne)
+- **Un but et un hommage vibrant à son père : Konaté submergé par l'émotion**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/premier-league-buteur-avec-liverpool-face-a-newcastle-ibrahima-konate-a-rendu-hommage-a-son-pere-decede-dans-une-soiree-emotive_sto23265329/story.shtml)
+- **Angleterre: Arsenal en patron, Chelsea à réaction**: [Link](https://sport.le360.ma/football/premier-league/angleterre-arsenal-en-patron-chelsea-a-reaction_OSQJXMJOTFFH5C32SWZFZBGPD4/)
+
+
 ### premier league (N/A, Sun, 1 Feb 2026 08:00:00 -0800)
 
 - **Liverpool in talks over Lutsharel Geertruida loan transfer - The Athletic**: [Link](https://www.nytimes.com/athletic/7013309/2026/02/01/liverpool-transfer-news-geertruida/)
