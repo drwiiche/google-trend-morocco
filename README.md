@@ -1,3 +1,17 @@
+### alcaraz (N/A, Sun, 1 Feb 2026 00:30:00 -0800)
+
+- **Alcaraz - Djokovic, en directo: final del Open de Australia, resultado y última hora en vivo**: [Link](https://as.com/tenis/alcaraz-djokovic-en-directo-final-del-open-de-australia-ultima-hora-en-vivo-f202602-d/)
+- **Alcaraz y su contrarreloj hasta la final: no entrenará este sábado**: [Link](https://www.marca.com/tenis/open-australia/2026/01/31/alcaraz-contrarreloj-final-entrenara-sabado.html)
+- **El mensaje emotivo de Jelena Djokovic marca el tono antes de la final entre Alcaraz y Novak**: [Link](https://www.mundodeportivo.com/us/tenis/20260201/739463/mensaje-emotivo-jelena-djokovic-marca-tono-final-alcaraz-novak.html)
+
+
+### djokovic vs alcaraz (N/A, Sun, 1 Feb 2026 00:10:00 -0800)
+
+- **Australian Open 2026 men's final: Why Novak Djokovic needs Melbourne victory more than Carlos Alcaraz**: [Link](https://www.bbc.com/sport/tennis/articles/cwy1ep7ljw7o)
+- **Rafael Nadal suggests what Jannik Sinner will do now after losing to Novak Djokovic**: [Link](https://tennishead.net/rafael-nadal-suggests-what-jannik-sinner-will-do-now-after-losing-to-novak-djokovic/)
+- **AO 2026 – men's final: What to expect?**: [Link](https://www.rolandgarros.com/en-us/article/preview-mens-final-australian-open-carlos-alcaraz-novak-djokovic)
+
+
 ### epstein files (N/A, Sat, 31 Jan 2026 16:20:00 -0800)
 
 - **Millions of Jeffrey Epstein files released by US justice department**: [Link](https://www.bbc.com/news/articles/cevnmxyy4wjo)
