@@ -1,3 +1,17 @@
+### psv vs feyenoord (N/A, Sun, 1 Feb 2026 06:10:00 -0800)
+
+- **How to watch PSV vs Feyenoord in the USA: Live Stream and TV for 2025/2026 Eredivisie**: [Link](https://worldsoccertalk.com/watch-on-us-tv/how-to-watch-psv-vs-feyenoord-in-the-usa-live-stream-and-tv-for-2025-2026-eredivisie/)
+- **Preview: PSV Eindhoven vs. Feyenoord - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-feyenoord-prediction-team-news-lineups_591055.html)
+- **PSV Eindhoven vs. Feyenoord: Match Preview, Predictions, and Team Lineups**: [Link](https://www.el-balad.com/6839801)
+
+
+### aston villa – brentford (N/A, Sun, 1 Feb 2026 06:00:00 -0800)
+
+- **Premier League: Build-up as Abraham starts on Aston Villa return, Man Utd fans protest**: [Link](https://www.bbc.com/sport/football/live/ckgljennkd2t)
+- **Football Tips: Villa battered in Sunday’s 7/1 Premier League fouls Treble**: [Link](https://news.paddypower.com/football/premier-league/2026/01/31/football-tips-sunday-pl-fouls-acca-1-feb-2026/)
+- **Villa finalise preparations for Sunday**: [Link](https://www.avfc.co.uk/news/2026/january/31/gallery-villa-finalise-preparations-for-sunday/)
+
+
 ### nottm forest – crystal palace (N/A, Sun, 1 Feb 2026 05:50:00 -0800)
 
 - **Final One Standing: Gameweek 24 Predictions**: [Link](https://news.williamhill.com/football/final-one-standing-gameweek-24-predictions/)
