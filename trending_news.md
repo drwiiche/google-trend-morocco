@@ -1,3 +1,10 @@
+### ath. bilbao – real sociedad (N/A, Sun, 1 Feb 2026 11:20:00 -0800)
+
+- **Alineaciones confirmadas de Athletic Club y Real Sociedad en el Derbi vasco de San Mamés**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260201/alineaciones-athletic-real-sociedad-derbi-san-mames_18_018197626.html)
+- **El efecto Matarazzo frente al momento más delicado de Valverde**: [Link](https://elpais.com/deportes/futbol/2026-02-01/el-efecto-matarazzo-frente-al-momento-mas-delicado-de-valverde.html)
+- **Bilbao calienta motores antes del derbi: “La Real viene mejor, pero en San Mamés las cosas pueden cambiar”**: [Link](https://www.deia.eus/athletic/2026/02/01/bilbao-calienta-motores-derbi-real-10644511.html)
+
+
 ### strasbourg – paris-sg (N/A, Sun, 1 Feb 2026 11:00:00 -0800)
 
 - **Strasbourg-PSG, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/strasbourg-psg-quelle-chaine-diffuse-le-match-986417.html)
