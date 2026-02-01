@@ -1,3 +1,10 @@
+### rca (N/A, Sun, 1 Feb 2026 08:50:00 -0800)
+
+- **Doar 5% din șoferi mai cumpără RCA direct | Economica.net**: [Link](https://termene.ro/articole/doar-5-din-soferi-mai-cumpara-rca-direct)
+- **Doar 5% din șoferi mai cumpără RCA direct. Brokerajul stă tot mai mult în 20…**: [Link](https://www.economica.net/doar-5-din-soferi-mai-cumpara-rca-direct-brokerajul-sta-tot-mai-mult-in-20-de-jucatori-8-din-total-liderul-safety-nou-record-cu-actionarul-american_908442.html)
+- **Zeci de șoferi au fost păcăliți să plătească mii de lei pentru polițe RCA false: „Mi-a tot...**: [Link](https://www.antena3.ro/actualitate/social/zeci-de-soferi-au-fost-pacaliti-sa-plateasca-mii-de-lei-pentru-polite-rca-false-mi-a-tot-promis-ca-imi-va-pune-banii-in-cont-775007.html)
+
+
 ### dortmund – heidenheim (N/A, Sun, 1 Feb 2026 08:40:00 -0800)
 
 - **Liveticker | Borussia Dortmund - 1. FC Heidenheim : | 20. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/dortmund-gegen-heidenheim-2026-bundesliga-5050922/ticker)
