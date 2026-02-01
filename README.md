@@ -1,3 +1,10 @@
+### turf fr (N/A, Sun, 1 Feb 2026 01:40:00 -0800)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 14 Ina du Rib**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-14-ina-du-rib-129026.html)
+- **Tiercé Quarté Quinté d'hier > arrivée, résultats et rapports**: [Link](https://www.paris-turf.com/course/deauville-prix-du-treport-idc-a54f8fc307b6c5a5be745f98eedfdd12)
+- **Course Paris-Vincennes Prix de Langeais PMU : tous les partants, les résultats et le replay vidéo de cette course hippique, les cotes & gains empochés par les meilleurs parieurs**: [Link](https://www.paris-turf.com/course/paris-vincennes-prix-de-langeais-idc-3e00c63c036e2348c0aecba2cf30c631)
+
+
 ### epstein (N/A, Sun, 1 Feb 2026 01:30:00 -0800)
 
 - **Second Epstein victim claims she was sent to UK for sex with Andrew, lawyer says**: [Link](https://www.bbc.com/news/articles/clymxxlm3xzo)
