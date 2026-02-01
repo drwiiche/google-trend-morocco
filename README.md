@@ -1,3 +1,29 @@
+### getafe – celta vigo (N/A, Sun, 1 Feb 2026 09:20:00 -0800)
+
+- **Previa Getafe – Celta: duelo empañado por el mercado**: [Link](https://onefootball.com/pt-br/noticias/previa-getafe-celta-duelo-empanado-por-el-mercado-42338846)
+- **A saltarse el posible bache**: [Link](https://www.atlantico.net/celtismo/saltarse-posible-bache_1_20260201-4144438.html)
+- **Convocatoria del Celta para el partido ante el Getafe**: [Link](https://rccelta.es/equipo/actualidad/convocatoria-del-celta-para-el-partido-ante-el-getafe/)
+
+
+### اتحاد طنجة (N/A, Sun, 1 Feb 2026 09:10:00 -0800)
+
+- **البطولة: الكوكب المراكشي يعود بنقطة من طنجة بتعادله مع فارس البوغاز – اليوم 24**: [Link](https://alyaoum24.com/2007903.html)
+- **كريزي بويز تتضامن مع جماهير طنجة**: [Link](https://www.hesport.com/%D9%83%D8%B1%D9%8A%D8%B2%D9%8A-%D8%A8%D9%88%D9%8A%D8%B2-%D8%AA%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D9%85%D8%B9-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%B7%D9%86%D8%AC%D8%A9-425054.html)
+- **الدوري الاحترافي...طنجة والبيضاء تحتضنان مباراتين مهمتين**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%B7%D9%86%D8%AC%D8%A9-%D9%88%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%AA%D8%AD%D8%AA%D8%B6%D9%86%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D9%86-%D9%85%D9%87%D9%85%D8%AA%D9%8A%D9%86/15222)
+
+
+### الرجاء ضد نهضة خميس الزمامرة (N/A, Sun, 1 Feb 2026 09:00:00 -0800)
+
+- **أيمن برقوق أساسي لأول مرة.. تشكيلة الرجاء ضد الزمامرة**: [Link](https://m.elbotola.com/article/2026-02-01-16-11-604.html)
+- **خيار جديد لفادلو في قائمة الرجاء لمواجهة الزمامرة**: [Link](https://infosports.ma/210699/)
+- **فاخر يستعين بـ 5 رجاويين لهزم الرجاء في الدوري الاحترافي**: [Link](https://ar.sport.le360.ma/football/ZTITZAQ5YNAY5PR6L3YKTON6SA/)
+
+
+### botola (N/A, Sun, 1 Feb 2026 09:00:00 -0800)
+
+
+
+
 ### rca (N/A, Sun, 1 Feb 2026 08:50:00 -0800)
 
 - **Doar 5% din șoferi mai cumpără RCA direct | Economica.net**: [Link](https://termene.ro/articole/doar-5-din-soferi-mai-cumpara-rca-direct)
