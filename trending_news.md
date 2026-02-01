@@ -1,3 +1,17 @@
+### ترتيب الدوري المغربي (N/A, Sun, 1 Feb 2026 09:30:00 -0800)
+
+- **في الوقت القاتل.. الرجاء يتفق مع نجم الوداد السابق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D9%82%D8%A7%D8%AA%D9%84--%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AA%D9%81%D9%82-%D9%85%D8%B9-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82/bltc2e93e046c8d274a)
+- **الرجاء ينهي الميركاتو الشتوي بضم العملود والمالي كونتي**: [Link](https://www.ahdath.info/article/249177/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A-%D8%A8%D8%B6%D9%85-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D9%88%D8%AF-%D9%88%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A-%D9%83%D9%88%D9%86%D8%AA%D9%8A)
+- **بتوصية من فادلو.. الرجاء يحسم صفقة بالا موسى من يانغ أفريكانز على سبيل الإعارة**: [Link](https://www.hesport.com/%D8%A8%D8%AA%D9%88%D8%B5%D9%8A%D8%A9-%D9%85%D9%86-%D9%81%D8%A7%D8%AF%D9%84%D9%88-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AD%D8%B3%D9%85-%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D8%A7%D9%84%D8%A7-425094.html)
+
+
+### real betis (N/A, Sun, 1 Feb 2026 09:20:00 -0800)
+
+- **Betis 2 - 1 Valencia: resumen, goles y resultado de LaLiga EA Sports**: [Link](https://as.com/futbol/primera/betis-valencia-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202602-d/)
+- **Fornals decreta el estado de euforia en La Cartuja**: [Link](https://www.marca.com/futbol/primera-division/cronica/2026/02/01/fornals-decreta-euforia-cartuja.html)
+- **Real Betis 1 – 1 Valencia: Fornals empuja al Betis a la quinta plaza**: [Link](https://onefootball.com/es/noticias/real-betis-1-1-valencia-fornals-empuja-al-betis-a-la-quinta-plaza-42341146)
+
+
 ### getafe – celta vigo (N/A, Sun, 1 Feb 2026 09:20:00 -0800)
 
 - **Previa Getafe – Celta: duelo empañado por el mercado**: [Link](https://onefootball.com/pt-br/noticias/previa-getafe-celta-duelo-empanado-por-el-mercado-42338846)
