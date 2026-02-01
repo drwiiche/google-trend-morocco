@@ -1,3 +1,52 @@
+### القنوات الناقلة لمباراة الوداد اليوم (N/A, Sun, 1 Feb 2026 04:20:00 -0800)
+
+- **بنهاشم: "قررنا عدم خوض زياش مباراة مينياما لأسباب وقائية"**: [Link](https://m.elbotola.com/article/2026-01-31-22-20-687.html)
+- **كأس ال"كاف" (الجولة 4).. الوداد لتأكيد انطلاقته المثالية وأولمبيك آسفي للاقتراب أكثر من الصدارة**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84-%D9%83%D8%A7%D9%81-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-4-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%84%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-20260129)
+- **بنهاشم: مباراة مانييما مختلفة وهدفنا تأمين صدارة المجموعة**: [Link](https://www.hesport.com/%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D9%8A%D9%8A%D9%85%D8%A7-%D9%85%D8%AE%D8%AA%D9%84%D9%81%D8%A9-%D9%88%D9%87%D8%AF%D9%81%D9%86%D8%A7-%D8%AA-425180.html)
+
+
+### real madrid – rayo (N/A, Sun, 1 Feb 2026 04:10:00 -0800)
+
+- **Real Madrid - Rayo Vallecano, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-rayo-vallecano-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **El Madrid quiere que el Rayo sea un punto de inflexión**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-el-madrid-vuelve-a-empezar-contra-el-rayo/QwKVlgZ7/)
+- **Real Madrid - Rayo en directo | LALIGA EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/r-madrid-rayo/2026/02/01/01_0101_20260201_186_184-directo.html)
+
+
+### الريال ضد رايو فاليكانو (N/A, Sun, 1 Feb 2026 04:10:00 -0800)
+
+- **التشكيل الرسمي.. مبابي يقود هجوم الريال أمام رايو فاليكانو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88/bltac0cbac7e0a97b75)
+- **مواعيد مباريات ريال مدريد في شهر فبراير 2026.. تحديات مرهقة ومواجهتان ثأريتان**: [Link](https://www.btolat.com/news/391990)
+- **أربيلوا لجماهير ريال مدريد: نحتاجكم بشدة قفوا خلف الفريق**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%86%D8%AD%D8%AA%D8%A7%D8%AC%D9%83%D9%85-%D8%A8%D8%B4%D8%AF%D8%A9-%D9%82%D9%81%D9%88%D8%A7-%D8%AE%D9%84%D9%81-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82)
+
+
+### wydad (N/A, Sun, 1 Feb 2026 04:10:00 -0800)
+
+- **Wydad-Maniema Union (Coupe de la CAF) : quelle heure, quelle chaîne**: [Link](https://medias24.com/2026/02/01/wydad-maniema-union-coupe-de-la-caf-quelle-heure-quelle-chaine-1619937/)
+- **Coupe de la CAF : le Wydad pour valider son billet, l’OCS pour se rapprocher d’un exploit historique**: [Link](https://lematin.ma/sports/coupe-de-la-caf-le-wydad-pour-valider-son-billet-locs-pour-lexploit/327211)
+- **Maniema Union-Wydad et OC Safi-San Pedro: à quelles heures et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/coupe-caf/maniema-union-wydad-et-oc-safi-san-pedro-a-quelles-heures-et-sur-quelles-chaines_OPUB6BLAT5HPLMLT6VXCX5GQSE/)
+
+
+### yallakora (N/A, Sun, 1 Feb 2026 04:10:00 -0800)
+
+- **شاهد.. نتيجة وملخص مباراة الجيش الملكي ضد شبيبة القبائل في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/1/31/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%B6%D8%AF-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D8%A6%D9%84)
+- **سانتوس يرفض التعليق على لقطة بوريكة: "أنا هنا لأتحدث عن المباراة وهذه الأمور لا تهمني!"**: [Link](https://m.elbotola.com/article/2026-02-01-10-58-923.html)
+- **زينباور: "أنا محبط.. ودوري الأبطال لا يرحم من يضيع الفرص"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%B2%D9%8A%D9%86%D8%A8%D8%A7%D9%88%D8%B1-%D8%A3%D9%86%D8%A7-%D9%85%D8%AD%D8%A8%D8%B7-%D9%88%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%84%D8%A7-%D9%8A%D8%B1%D8%AD%D9%85-%D9%85%D9%86-%D9%8A%D8%B6%D9%8A%D8%B9-%D8%A7%D9%84%D9%81%D8%B1%D8%B5/15211)
+
+
+### nadal (N/A, Sun, 1 Feb 2026 03:50:00 -0800)
+
+- **Rafael Nadal pays tribute to Novak Djokovic after his latest win**: [Link](https://www.tennisworldusa.org/tennis/news/Novak_Djokovic/163681/rafael-nadal-pays-tribute-to-novak-djokovic-after-his-latest-win/)
+- **Australian Open Tennis**: [Link](https://www.wvnews.com/sports/pro/australian-open-tennis/image_4c90a9cc-5601-5b2a-9842-7a677471f44f.html)
+- **Nadal: "I have a very special connection with Alcaraz"**: [Link](https://www.puntodebreak.com/en/2026/02/01/nadal-i-have-very-special-connection-with-alcaraz)
+
+
+### excelsior – ajax (N/A, Sun, 1 Feb 2026 03:50:00 -0800)
+
+- **Grim vertelt over inzetbaarheid Berghuis en Tomiyasu, trio is ziek**: [Link](https://www.vi.nl/nieuws/grim-vertelt-over-inzetbaarheid-berghuis-en-tomiyasu-trio-is-ziek)
+- **LIVE- Kappen en schieten: Mika Godt zet Belgisch getint Ajax op voorsprong op bezoek bij Excelsior**: [Link](https://sporza.be/nl/matches/voetbal/buitenland/ned/vriendenloterij-eredivisie/2025-2026/regulier/21/excelsior-ajax-live-kappen-en-schieten-mika-godt-zet-belgisch-getint-ajax-op-voorsprong-op-bezoek-bij-excelsior~1752054971642/)
+- **Liveblog VriendenLoterij Eredivisie: Godts slaat tweede keer toe • Aftellen naar PSV-Feyenoord**: [Link](https://www.espn.nl/voetbal/artikel/_/id/16256386/liveblog-vriendenloterij-eredivisie-berghuis-keert-terug-in-ajax-selectie-aftellen-naar-topper-in-eindhoven)
+
+
 ### barcelone (N/A, Sat, 31 Jan 2026 14:10:00 -0800)
 
 - **Le Real et le Barça s'affrontent pour cette star**: [Link](https://fr.news.yahoo.com/sport/real-bar%C3%A7a-saffrontent-star-090000884.html)
