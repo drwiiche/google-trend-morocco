@@ -1,3 +1,31 @@
+### manchester united – fulham (N/A, Sun, 1 Feb 2026 05:10:00 -0800)
+
+- **Man Utd predicted XI vs Fulham: ‘Brilliant’ star to return to starting lineup**: [Link](https://strettynews.com/2026/01/31/man-utd-predicted-xi-vs-fulham-brilliant-star-to-return-to-starting-lineup/)
+- **Carrick Eyes Third Straight Win as Manchester United Host Fulham**: [Link](https://www.dawan.africa/news/carrick-eyes-third-straight-win-as-manchester-united-host-fulham)
+- **Man Utd chase their longest Premier League unbeaten run since 2022**: [Link](https://www.besoccer.com/new/man-utd-chase-their-longest-premier-league-unbeaten-run-since-2022-1391508)
+
+
+### psv eindhoven – feyenoord (N/A, Sun, 1 Feb 2026 05:00:00 -0800)
+
+- **Live Eredivisie | Toeleven naar topper tussen PSV en Feyenoord**: [Link](https://www.nu.nl/voetbal/6384518/live-eredivisie-toeleven-naar-topper-tussen-psv-en-feyenoord.html)
+- **HISTORIE | Juichen bij de cornervlag**: [Link](https://www.fr-fans.nl/nieuws/76024/historie-juichen-bij-de-cornervlag)
+- **Keuze Van Persie bezorgt Feyenoord-fans stress: 'Wat een enorm groot risico'**: [Link](https://www.voetbalprimeur.nl/nieuws/1737676/feyenoord-fans-niet-gerust-op-basisplaats-st-juste-bij-psv.html)
+
+
+### البطولة (N/A, Sun, 1 Feb 2026 04:50:00 -0800)
+
+- **المغرب الفاسي يتصدر البطولة مؤقتا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-2-1695224.html)
+- **البطولة الوطنية الاحترافية " إنوي" لكرة القدم -القسم الأول .. برنامج الدورة العاشرة**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-20260130)
+- **الجولة العاشرة من البطولة الاحترافية… صراع الصدارة يشتعل ومعركة الهبوط تتصاعد – اليوم 24**: [Link](https://alyaoum24.com/2007448.html)
+
+
+### coupe de la caf (N/A, Sun, 1 Feb 2026 04:40:00 -0800)
+
+- **Coupe - CAF (J4) : À quelle heure et sur quelles chaînes TV suivre Stellenbosch - CR Belouizdad**: [Link](https://africafootunited.com/coupe-caf-j4-a-quelle-heure-et-sur-quelles-chaines-tv-suivre-stellenbosch-cr-belouizdad/)
+- **Groupe C : ce soir (20h00) au stade Green Point de Cape Town, Stellenbosch (Afrique du Sud) – CR Belouizdad**: [Link](https://www.lesoirdalgerie.com/sports/le-chabab-va-devoir-souffrir-146519)
+- **Stellenbosch - CRB : la qualif passe par Cape Town**: [Link](https://www.competition.dz/actualites/coupe-de-la-caf/stellenbosch-crb-la-qualif-passe-par-cape-town.html)
+
+
 ### القنوات الناقلة لمباراة الوداد اليوم (N/A, Sun, 1 Feb 2026 04:20:00 -0800)
 
 - **بنهاشم: "قررنا عدم خوض زياش مباراة مينياما لأسباب وقائية"**: [Link](https://m.elbotola.com/article/2026-01-31-22-20-687.html)
