@@ -1,3 +1,17 @@
+### messi (N/A, Sun, 1 Feb 2026 15:20:00 -0800)
+
+- **MATCH RECAP: Inter Miami CF Defeats Atlético Nacional in Front of a Full House in Medellin, Colombia**: [Link](https://www.intermiamicf.com/news/match-recap-inter-miami-cf-defeats-atletico-nacional-in-front-of-a-full-house-in-medellin-colombia)
+- **VIDEO: Lionel Messi recreates iconic scorpion kick with legendary goalkeeper Rene Higuita as special guests join Inter Miami in Colombia**: [Link](https://www.foxsports.com/articles/soccer/video-lionel-messi-recreates-iconic-scorpion-kick-with-legendary-goalkeeper-rene-higuita-as-special-guests-join-inter-miami-in-colombia)
+- **Inter Miami rounds into form, comes back to win in Colombia**: [Link](https://sports.yahoo.com/articles/inter-miami-rounds-form-comes-040843316.html)
+
+
+### جيفري إبستين (N/A, Sun, 1 Feb 2026 14:40:00 -0800)
+
+- **ترمب يعلق على وثائق إبستين الجديدة**: [Link](https://www.aljazeera.net/news/2026/2/1/%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%B9%D8%AA%D8%A8%D8%B1-%D8%A3%D9%86-%D9%88%D8%AB%D8%A7%D8%A6%D9%82-%D8%A5%D8%A8%D8%B3%D8%AA%D9%8A%D9%86-%D8%AA%D8%A8%D8%B1%D8%A6%D9%87-%D9%88%D9%8A%D9%87%D8%AF%D8%AF)
+- **ملفات إبستين ... ملايين الوثائق تكشف تورط شخصيات جديدة**: [Link](https://www.dw.com/ar/%D9%85%D9%84%D9%81%D8%A7%D8%AA-%D8%A5%D8%A8%D8%B3%D8%AA%D9%8A%D9%86-%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D9%88%D8%AB%D8%A7%D8%A6%D9%82-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D9%88%D8%B1%D8%B7-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/a-75746761)
+- **الأمير أندرو على ما يبدو جاثيا فوق امرأة بأحدث كشف بملف إبستين**: [Link](https://arabic.cnn.com/world/article/2026/02/01/latest-epstein-file-photos-appear-to-show-former-prince-andrew-on-floor-with-female)
+
+
 ### طقس (N/A, Sun, 1 Feb 2026 14:10:00 -0800)
 
 - **أمطار رعدية قوية تصل إلى 80 ملم**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-80-%D9%85%D9%84%D9%85-1695351.html)
