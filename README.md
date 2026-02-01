@@ -1,3 +1,24 @@
+### la liga (N/A, Sun, 1 Feb 2026 07:00:00 -0800)
+
+- **Real Madrid's starting lineup against Rayo**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/once-inicial-del-real-madrid-contra-el-rayo-01-02-2026)
+- **Real Madrid Aim to Strengthen Title Push Against Struggling Rayo Vallecano**: [Link](https://dawan.africa/news/real-madrid-aim-to-strengthen-title-push-against-struggling-rayo-vallecano)
+- **Real Madrid vs Rayo Vallecano predictions: Mbappe to fire in home win**: [Link](https://www.goal.com/en-ca/betting/tips/real-madrid-vs-rayo-vallecano-predictions-02-01/A%3Ablt232f80e93845998f)
+
+
+### ترتيب الدوري الاسباني (N/A, Sun, 1 Feb 2026 07:00:00 -0800)
+
+- **جدول مباريات الدوري الإسباني 2025-2026 كاملًا القنوات الناقلة وأحدث الترتيب**: [Link](https://www.iqraa24.com/news/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D9%83%D8%A7%D9%85%D9%84%D9%8B%D8%A7/)
+- **مواعيد مباريات الجولة 22 من الدوري الإسباني 2026 والقنوات الناقلة**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AC%D9%88%D9%84%D8%A9-22-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2026/)
+- **صراع بين برشلونة وريال مدريد.. جدول ترتيب الدوري الإسباني قبل مباريات السبت**: [Link](https://www.almasryalyoum.com/news/details/4187710)
+
+
+### man united (N/A, Sun, 1 Feb 2026 06:40:00 -0800)
+
+- **Man United fans don clown masks in protest against owners, 'circus'**: [Link](https://www.espn.com/soccer/story/_/id/47796959/man-united-fans-protest-clown-masks-owners-fulham-circus)
+- **Man Utd protesters demand change from Ratcliffe and co**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-man-utd-protesters-demand-change-from-ratcliffe-and-co-9e51e99b-f735-4f78-82f0-e14fe8a05ea3)
+- **LATEST: There are huge queues on M6 today after a crash - updates**: [Link](https://www.facebook.com/story.php?story_fbid=1360654166096945&id=100064571238786)
+
+
 ### aston villa (N/A, Sun, 1 Feb 2026 06:50:00 -0800)
 
 - **Premier League LIVE: Aston Villa v Brentford, Man Utd v Fulham, & Forest v Palace - score, results & updates**: [Link](https://www.bbc.com/sport/football/live/ckgljennkd2t)
