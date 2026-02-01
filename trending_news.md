@@ -1,3 +1,22 @@
+### طقس (N/A, Sun, 1 Feb 2026 14:10:00 -0800)
+
+- **أمطار رعدية قوية تصل إلى 80 ملم**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-80-%D9%85%D9%84%D9%85-1695351.html)
+- **نشرة إنذارية.. رياح عاصفية قوية وتساقطات ثلجية وأمطار رعدية وطقس بارد مرتقبة من الاثنين إلى الأربعاء بعدة مناطق بالمملكة**: [Link](https://www.maadialna.ma/ar/nshrt-andharyt-ryah-asfyt-qwyt-wtsaqtat-thljyt-wamtar-rdyt-wtqs-bard-mrtqbt-mn-alathnyn-aly-alarba)
+- **الطقس اليوم.. ثلوج فوق الأطلس والريف وأمطار رعدية بعدة مدن**: [Link](https://ar.telquel.ma/%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%88%D8%A3/)
+
+
+### tondela vs benfica (N/A, Sun, 1 Feb 2026 13:20:00 -0800)
+
+- **Alerta amarelo: Benfica de ressaca escorrega em Tondela e fica mais longe do topo**: [Link](https://sicnoticias.pt/especiais/primeira-liga/2026-02-01-primeira-liga-benfica-empata-em-tondela-e-fica-mais-longe-dos-lugares-cimeiros-2fa90202)
+- **AO VIVO: Bernardo Fontes sai da baliza e impede o golo a Aursnes (74')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-bernardo-fontes-sai-da-baliza-e-impede-o-golo-a-aursnes-74/MH1vFaYF/)
+- **Conferência de imprensa**: [Link](https://www.slbenfica.pt/pt-pt/agora/noticias/2026/02/01/futebol-jose-mourinho-declaracoes-pos-jogo-tondela-benfica-20-jornada-liga-betclic)
+
+
+### parme – juventus (N/A, Sun, 1 Feb 2026 11:10:00 -0800)
+
+
+
+
 ### psg vs (N/A, Sun, 1 Feb 2026 13:40:00 -0800)
 
 - **LIVE! Strasbourg vs PSG in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-strasbourg-vs-psg-in-ligue-1-on-bein-sports-2026-02-01)
