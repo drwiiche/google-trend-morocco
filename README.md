@@ -1,3 +1,17 @@
+### tottenham – manchester city (N/A, Sun, 1 Feb 2026 07:40:00 -0800)
+
+- **Spurs v Manchester City: Gut Feelings**: [Link](https://bitterandblue.sbnation.com/manchester-city-blue-takes-bitter-and-blue/36723/spurs-v-manchester-city-gut-feelings)
+- **Can Spurs Do the Double on Manchester City in Today’s Premier League Clash?**: [Link](https://www.dawan.africa/news/can-spurs-do-the-double-on-manchester-city-in-todays-premier-league-clash)
+- **How to watch Tottenham vs Man City today: TV channel and live stream details**: [Link](https://sports.yahoo.com/articles/watch-tottenham-vs-man-city-125500639.html)
+
+
+### kylian mbappé (N/A, Sun, 1 Feb 2026 07:40:00 -0800)
+
+- **Mbappé scores in the 100th minute: Real Madrid scrape to victory against Rayo Vallecano | blue News**: [Link](https://www.bluewin.ch/en/sport/football/real-madrid-scrape-to-victory-against-rayo-vallecano-3075935.html)
+- **Unbelievable! Kylian Mbappe misses empty net vs Rayo, hits the post instead**: [Link](https://tribuna.com/en/blogs/unbelievable-kylian-mbappe-misses-empty-net-vs-rayo-hits-the/)
+- **Why every Kylian Mbappe penalty has fans talking?**: [Link](https://khelnow.com/football/world-football-why-kylian-mbappe-penalty-fans-talking-202601)
+
+
 ### la liga (N/A, Sun, 1 Feb 2026 07:00:00 -0800)
 
 - **Real Madrid's starting lineup against Rayo**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/once-inicial-del-real-madrid-contra-el-rayo-01-02-2026)
