@@ -1,3 +1,24 @@
+### doudou wade (N/A, Sat, 31 Jan 2026 16:40:00 -0800)
+
+- **Appel au coup d'État au Sénégal : La décision tombe pour Doudou Wade, après son passage à la TFM**: [Link](https://www.senenews.com/actualites/appel-au-coup-detat-au-senegal-la-decision-tombe-pour-doudou-wade-apres-son-passage-a-la-tfm_574360.html)
+- **Quand la loi choisit ses cibles, ce n’est plus la justice**: [Link](https://www.dakarmidi.net/actualite/quand-la-loi-choisit-ses-cibles-ce-nest-plus-la-justice/)
+- **Sûreté urbaine de Dakar : Pape Ngagne Ndiaye libéré, mais reste toujours à la disposition de la justice**: [Link](https://www.pressafrik.com/Surete-urbaine-de-Dakar-Pape-Ngagne-Ndiaye-libere-mais-reste-toujours-a-la-disposition-de-la-justice_a300593.html)
+
+
+### jeffrey epstein (N/A, Sat, 31 Jan 2026 16:20:00 -0800)
+
+- **Millions of Jeffrey Epstein files released by US justice department**: [Link](https://www.bbc.com/news/articles/cevnmxyy4wjo)
+- **Democrats request ‘urgent’ review of unredacted Epstein files to evaluate DoJ compliance – as it happened**: [Link](https://www.theguardian.com/us-news/live/2026/jan/31/jeffrey-epstein-files-latest-news-updates-prince-andrew-elon-musk-peter-mandelson-donald-trump)
+- **What 3 million new documents tell us about Trump’s ties to Jeffrey Epstein**: [Link](https://www.cnn.com/2026/01/31/politics/new-documents-trump-epstein)
+
+
+### ufc 325 (N/A, Sat, 31 Jan 2026 14:40:00 -0800)
+
+- **UFC 325 Livestream: How to Watch Alexander Volkanovski vs. Diego Lopes 2 Featherweight Title Fight Live Online**: [Link](https://variety.com/2026/shopping/news/how-to-watch-ufc-325-volkanovski-vs-lopes-2-livestream-online-1236643351/)
+- **UFC325 ™ $ Here’s Way To Watch Diego Lopes vs Alexander Volkanovski MMA Game Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ**: [Link](https://elestoque.org/2026/01/31/sports/ufc325-heres-way-to-watch-diego-lopes-vs-alexander-volkanovski-mma-game-%EF%BD%86%EF%BD%92%EF%BD%85%EF%BD%85-%EF%BD%8F%EF%BD%8E-%EF%BD%94%EF%BD%96-%EF%BD%83%EF%BD%88%EF%BD%81/)
+- **Kalshi Promo Code COVERS: Get $10 Bonus for Volkanovski vs. Lopez, UFC 325 Prediction Markets**: [Link](https://www.covers.com/daily-promos/kalshi-promo-code-ufc-1-31-2026-8pm)
+
+
 ### دوري ابطال افريقيا (N/A, Sat, 31 Jan 2026 13:00:00 -0800)
 
 - **شوبير درع الأهلي خارج الأرض.. وديانج يلمع بلمسة غير مسبوقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B4%D9%88%D8%A8%D9%8A%D8%B1-%D8%AF%D8%B1%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%B6--%D9%88%D8%AF%D9%8A%D8%A7%D9%86%D8%AC-%D9%8A%D9%84%D9%85%D8%B9-%D8%A8%D9%84%D9%85%D8%B3%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9/blt70bd2c6f09893fe1)
