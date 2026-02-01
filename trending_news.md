@@ -1,3 +1,29 @@
+### epstein (N/A, Sun, 1 Feb 2026 01:30:00 -0800)
+
+- **Second Epstein victim claims she was sent to UK for sex with Andrew, lawyer says**: [Link](https://www.bbc.com/news/articles/clymxxlm3xzo)
+- **Keir Starmer calls on Andrew to testify in US over Jeffrey Epstein links**: [Link](https://www.theguardian.com/uk-news/2026/jan/31/keir-starmer-andrew-mountbatten-windsor-testify-us-jeffrey-epstein-links)
+- **Latest Epstein file photos appear to show former Prince Andrew on floor with female**: [Link](https://www.cnn.com/2026/01/31/uk/andrew-mountbatten-windsor-epstein-files-pictures-intl-gbr)
+
+
+### novak djokovic (N/A, Sun, 1 Feb 2026 01:00:00 -0800)
+
+- **Australian Open 2026 final LIVE: Carlos Alcaraz vs Novak Djokovic - scores, radio & updates**: [Link](https://www.bbc.com/sport/tennis/live/c620ypdegzgt)
+- **Carlos Alcaraz - Novak Djokovic**: [Link](https://www.tntsports.co.uk/tennis/australian-open/2026/live-carlos-alcaraz-novak-djokovic_mtc1654327/live-commentary.shtml)
+- **AO 2026 – men's final: What to expect?**: [Link](https://www.rolandgarros.com/en-us/article/preview-mens-final-australian-open-carlos-alcaraz-novak-djokovic)
+
+
+### carlos alcaraz (N/A, Sun, 1 Feb 2026 01:00:00 -0800)
+
+- **Alcaraz - Djokovic, en directo: final del Open de Australia, resultado y última hora en vivo**: [Link](https://as.com/tenis/alcaraz-djokovic-en-directo-final-del-open-de-australia-ultima-hora-en-vivo-f202602-d/)
+- **Alcaraz, ante Djokovic, a por el único récord que le obsesiona: "Firmo ser campeón en Australia y no volver a ganar este año"**: [Link](https://www.elmundo.es/deportes/tenis/open-de-australia/2026/01/31/697dbb3dfc6c83280c8b458c.html)
+- **Alcaraz prepara la final entrenando con su sparring habitual estas semanas en Melbourne**: [Link](https://www.puntodebreak.com/2026/02/01/alcaraz-prepara-final-entrenando-sparring-habitual-semanas-melbourne)
+
+
+### open australie (N/A, Sat, 31 Jan 2026 23:20:00 -0800)
+
+
+
+
 ### alcaraz (N/A, Sun, 1 Feb 2026 00:30:00 -0800)
 
 - **Alcaraz - Djokovic, en directo: final del Open de Australia, resultado y última hora en vivo**: [Link](https://as.com/tenis/alcaraz-djokovic-en-directo-final-del-open-de-australia-ultima-hora-en-vivo-f202602-d/)
