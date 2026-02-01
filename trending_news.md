@@ -1,3 +1,45 @@
+### nottm forest – crystal palace (N/A, Sun, 1 Feb 2026 05:50:00 -0800)
+
+- **Final One Standing: Gameweek 24 Predictions**: [Link](https://news.williamhill.com/football/final-one-standing-gameweek-24-predictions/)
+- **Nottingham Forest vs Crystal Palace predictions, team news, betting tips, odds and Bet Builder**: [Link](https://www.racingpost.com/sport/football-tips/premier-league/nottingham-forest-vs-crystal-palace-predictions-team-news-betting-tips-odds-and-bet-builder-ahyNw2c3CCNp/)
+- **Nottingham Forest vs Crystal Palace LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/01/1249380-nottingham-vs-crystal-palace-live-score-premier-league.html)
+
+
+### lyon – lille (N/A, Sun, 1 Feb 2026 05:40:00 -0800)
+
+- **OL - Lille, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/ol-lille-quelle-chaine-diffuse-le-match-986461.html)
+- **Olympique Lyonnais – LOSC : Les compositions officielles dévoilées, Giroud sur le banc**: [Link](https://lepetitlillois.com/2026/02/01/olympique-lyonnais-losc-les-compositions-officielles-devoilees-giroud-sur-le-banc/)
+- **Ligue 1. Genesio : « Je sais que mon équipe est capable de rivaliser »**: [Link](https://www.leprogres.fr/sport/2026/02/01/genesio-je-sais-que-mon-equipe-est-capable-de-rivaliser)
+
+
+### مان يونايتد ضد فولهام (N/A, Sun, 1 Feb 2026 05:30:00 -0800)
+
+- **كاريك يكشف عن رأيه بشأن خطة الاحتجاج ضد ملاك يونايتد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%B1%D8%A7%D9%94%D9%8A%D9%87-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AE%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC-%D8%B6%D8%AF-%D9%85%D9%84%D8%A7%D9%83-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/blt4345d17779bd5f96)
+- **كاريك يرفض تضخيم "صحوة" اليونايتد ويحذر من فخ فولهام**: [Link](https://24.ae/article/944544/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%B1%D9%81%D8%B6-%D8%AA%D8%B6%D8%AE%D9%8A%D9%85-%D8%B5%D8%AD%D9%88%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%81%D8%AE-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85)
+- **التشكيلة المتوقعة لقمة مانشستر يونايتد وفولهام.. هل يواصل كاريك مفاجآته؟**: [Link](https://www.arrajol.com/content/397220/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%82%D9%85%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D9%87%D9%84-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA%D9%87%D8%9F)
+
+
+### real madrid match (N/A, Sun, 1 Feb 2026 05:30:00 -0800)
+
+- **Liga - 22e journée : suivez Real Madrid - Vallecano EN DIRECT**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-real-madrid-rayo-vallecano_mtc1610819/live-commentary.shtml)
+- **Real Madrid - Rayo Vallecano : les compositions officielles**: [Link](https://www.footmercato.net/a2897414340236709201-real-madrid-rayo-vallecano-les-compositions-officielles)
+- **Real Madrid, la décision est prise après le couac de Benfica**: [Link](https://www.sports.fr/football/espagne/real-madrid-la-decision-est-prise-apres-le-couac-de-benfica-987123.html)
+
+
+### الوداد (N/A, Sun, 1 Feb 2026 04:50:00 -0800)
+
+- **بنهاشم: "قررنا عدم خوض زياش مباراة مينياما لأسباب وقائية"**: [Link](https://m.elbotola.com/article/2026-01-31-22-20-687.html)
+- **كأس ال"كاف" (الجولة 4).. الوداد لتأكيد انطلاقته المثالية وأولمبيك آسفي للاقتراب أكثر من الصدارة**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84-%D9%83%D8%A7%D9%81-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-4-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%84%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-20260129)
+- **بنهاشم: مباراة مانييما مختلفة وهدفنا تأمين صدارة المجموعة**: [Link](https://www.hesport.com/%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D9%8A%D9%8A%D9%85%D8%A7-%D9%85%D8%AE%D8%AA%D9%84%D9%81%D8%A9-%D9%88%D9%87%D8%AF%D9%81%D9%86%D8%A7-%D8%AA-425180.html)
+
+
+### wac (N/A, Sun, 1 Feb 2026 04:20:00 -0800)
+
+- **Wydad Coach Explains Ziyech’s Absence Against Maniema**: [Link](https://www.moroccoworldnews.com/2026/02/277072/wydad-coach-explains-ziyechs-absence-against-maniema/)
+- **Maniema Player Prince Alde on Wydad Clash: "They Beat Us at Their Stadium, Now We Want to Win at Home"**: [Link](https://m.elbotola.com/en/article/2026-01-31-12-51-59.html)
+- **CAF Cup: Wydad spares Hakim Ziyech**: [Link](https://foot-africa.com/en/news/caf-cup-wydad-spares-hakim-ziyech-1064981/)
+
+
 ### manchester united – fulham (N/A, Sun, 1 Feb 2026 05:10:00 -0800)
 
 - **Man Utd predicted XI vs Fulham: ‘Brilliant’ star to return to starting lineup**: [Link](https://strettynews.com/2026/01/31/man-utd-predicted-xi-vs-fulham-brilliant-star-to-return-to-starting-lineup/)
