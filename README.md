@@ -1,3 +1,10 @@
+### juventus (N/A, Sun, 1 Feb 2026 12:40:00 -0800)
+
+- **Serie A, oggi Parma - Juve - La partita in diretta**: [Link](https://www.virgilio.it/italia/aosta/notizielocali/serie_a_oggi_parma_juve_la_partita_in_diretta-76385096.html)
+- **Calcio Live News: in campo Parma-Juventus (0-1), Di Gregorio devia su Valeri**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-parma-juventus-0-1-di-gregorio-devia-su-valeri/4hRDOYR1/)
+- **Serie A | Le formazioni ufficiali di Parma-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-parma-juventus-formazioni)
+
+
 ### sporting – cd nacional (N/A, Sun, 1 Feb 2026 12:00:00 -0800)
 
 - **Sporting: Hjulmand falha jogo com o Nacional**: [Link](https://www.abola.pt/noticias/sporting-hjulmand-falha-jogo-com-o-nacional-2026020116581122614)
