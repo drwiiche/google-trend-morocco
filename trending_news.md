@@ -1,3 +1,17 @@
+### epstein files (N/A, Sat, 31 Jan 2026 16:20:00 -0800)
+
+- **Millions of Jeffrey Epstein files released by US justice department**: [Link](https://www.bbc.com/news/articles/cevnmxyy4wjo)
+- **Democrats request ‘urgent’ review of unredacted Epstein files to evaluate DoJ compliance – as it happened**: [Link](https://www.theguardian.com/us-news/live/2026/jan/31/jeffrey-epstein-files-latest-news-updates-prince-andrew-elon-musk-peter-mandelson-donald-trump)
+- **What 3 million new documents tell us about Trump’s ties to Jeffrey Epstein**: [Link](https://www.cnn.com/2026/01/31/politics/new-documents-trump-epstein)
+
+
+### barcelona vs (N/A, Sat, 31 Jan 2026 13:00:00 -0800)
+
+- **La curiosa presentación de Darío Benedetto en su nuevo club en Ecuador, a días de enfrentar a Lionel Messi**: [Link](https://tn.com.ar/deportes/futbol/2026/01/31/la-curiosa-presentacion-de-dario-benedetto-en-su-nuevo-club-en-ecuador-a-dias-de-enfrentar-a-lionel-messi/)
+- **OFICIAL: Excampeón con America es nuevo refuerzo del Barcelona**: [Link](https://www.tvazteca.com/aztecadeportes/oficial-excampeon-america-es-presentado-el-barcelona/)
+- **Espectador de lujo: Felipe Caicedo estuvo en la Noche Amarilla 2026**: [Link](https://www.ole.com.ar/ecuador/barcelona-sc/espectador-lujo-felipe-caicedo-presente-noche-amarilla-2026_0_ltmxVKwJQ5.html)
+
+
 ### doudou wade (N/A, Sat, 31 Jan 2026 16:40:00 -0800)
 
 - **Appel au coup d'État au Sénégal : La décision tombe pour Doudou Wade, après son passage à la TFM**: [Link](https://www.senenews.com/actualites/appel-au-coup-detat-au-senegal-la-decision-tombe-pour-doudou-wade-apres-son-passage-a-la-tfm_574360.html)
