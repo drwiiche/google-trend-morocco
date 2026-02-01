@@ -1,3 +1,22 @@
+### strasbourg – paris-sg (N/A, Sun, 1 Feb 2026 11:00:00 -0800)
+
+- **Strasbourg-PSG, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/strasbourg-psg-quelle-chaine-diffuse-le-match-986417.html)
+- **L1. Le clash du dimanche soir. Diego Moreira x Achraf Hakimi**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-le-clash-du-dimanche-soir-diego-moreira-x-achraf-hakimi/OnyCaduS/)
+- **Strasbourg/PSG – Le groupe parisien avec une grande première!**: [Link](https://www.msn.com/fr-ca/sports/soccer/strasbourg-psg-le-groupe-parisien-avec-une-grande-premi%C3%A8re/ar-AA1VqcAc)
+
+
+### ستراسبورغ ضد بي اس جي (N/A, Sun, 1 Feb 2026 11:00:00 -0800)
+
+- **لانس هو من تحسن و ليس باريس من تراجع**: [Link](https://hihi2.com/2026/02/01/p3629314.html)
+- **ستراسبورج ضد بي إس جي.. حكيمي يقود تشكيل فريق العاصمة في الدوري الفرنسي**: [Link](https://www.youm7.com/story/2026/2/1/%D8%B3%D8%AA%D8%B1%D8%A7%D8%B3%D8%A8%D9%88%D8%B1%D8%AC-%D8%B6%D8%AF-%D8%A8%D9%8A-%D8%A5%D8%B3-%D8%AC%D9%8A-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9/7289782)
+- **إنريكي: يمكننا توقع كل شيء من ستراسبورغ**: [Link](https://twaslnews.twaslnews.com/81133/)
+
+
+### galatasaray – kayserispor (N/A, Sun, 1 Feb 2026 10:50:00 -0800)
+
+
+
+
 ### botola pro (N/A, Sun, 1 Feb 2026 10:50:00 -0800)
 
 - **Goalless Draw Between Ittihad Tanger and Kawkab Marrakech in Professional League**: [Link](https://m.elbotola.com/en/article/2026-02-01-17-05-512.html)
