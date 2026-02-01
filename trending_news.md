@@ -1,3 +1,24 @@
+### الطقس غدًا (N/A, Sun, 1 Feb 2026 11:50:00 -0800)
+
+- **ارتفاع مؤقت في درجات الحرارة مع فيديو توضيحي**: [Link](https://www.iqraa24.com/news/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D8%A4%D9%82%D8%AA-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AA/)
+- **حالة الطقس غدا .. الأرصاد تحذر من عواصف رملية في عدة مناطق**: [Link](https://www.elbalad.news/6855549)
+- **تنبيه جوي: نشاط للرياح وأمطار خفيفة تضرب القاهرة وعدة محافظات غداً**: [Link](https://www.eldyar.net/628011)
+
+
+### tondela – benfica (N/A, Sun, 1 Feb 2026 11:50:00 -0800)
+
+- **VÍDEO: Prestianni viaja com a comitiva do Benfica até Tondela**: [Link](https://maisfutebol.iol.pt/benfica/liga/video-prestianni-viaja-com-a-comitiva-do-benfica-ate-tondela)
+- **Em direto/ Tondela-Benfica. Águias visitam penúltimo classificado depois do sucesso europeu**: [Link](https://observador.pt/liveblogs/tondela-benfica-aguias-visitam-penultimo-classificado-depois-do-sucesso-europeu/)
+- **Cristiano Bacci: «Não é por ser o Benfica que nos vamos fechar atrás»**: [Link](https://sapo.pt/artigo/cristiano-bacci-nao-e-por-ser-o-benfica-que-nos-vamos-fechar-atras-697e2161343ccb6fa396013f)
+
+
+### أتلتيك بيلباو ضد ريال سوسيداد (N/A, Sun, 1 Feb 2026 11:50:00 -0800)
+
+- **أتلتيكو مدريد يظفر بفوز مهم أمام سوسيداد**: [Link](https://www.ysscores.com/ar/news/437294/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B8%D9%81%D8%B1-%D8%A8%D9%81%D9%88%D8%B2-%D9%85%D9%87%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF)
+- **1 فبراير: ثنائية الدوري الإسباني يوم الأحد – 4/1 خاص، نصائح وتوقعات الرهان**: [Link](https://albalad.news/sport/1-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3/354121/)
+- **تعرّف على تفاصيل مباراة أتلتيك بلباو ضد ريال سوسيداد في الدوري الإسباني بتاريخ 2026/02/01 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7)
+
+
 ### ath. bilbao – real sociedad (N/A, Sun, 1 Feb 2026 11:20:00 -0800)
 
 - **Alineaciones confirmadas de Athletic Club y Real Sociedad en el Derbi vasco de San Mamés**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260201/alineaciones-athletic-real-sociedad-derbi-san-mames_18_018197626.html)
