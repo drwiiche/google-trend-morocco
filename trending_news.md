@@ -1,3 +1,10 @@
+### bourse (N/A, Mon, 2 Feb 2026 04:00:00 -0800)
+
+- **Bourse de Casablanca: Forte affluence sur l’augmentation de capital de Risma**: [Link](https://boursenews.ma/article/marches/forte-affluence-augmentation-de-capital-risma)
+- **Bourse. Les minières surperforment largement le marché**: [Link](https://medias24.com/2026/02/01/bourse-les-minieres-surperforment-largement-le-marche-1619571/)
+- **Le MASI en baisse de 0,95% en janvier**: [Link](https://www.leconomiste.com/flash-infos/le-masi-en-baisse-de-095-en-janvier/)
+
+
 ### can féminine 2026 maroc (N/A, Mon, 2 Feb 2026 02:50:00 -0800)
 
 - **WAFCON : l’Afrique du Sud tempère après l’annonce du retrait du Maroc**: [Link](https://telquel.ma/instant-t/2026/02/02/wafcon-lafrique-du-sud-tempere-apres-lannonce-du-retrait-du-maroc_1973475/)
