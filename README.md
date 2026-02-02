@@ -1,3 +1,24 @@
+### الهلال ضد الأهلي (N/A, Mon, 2 Feb 2026 09:40:00 -0800)
+
+- **كوليبالي يعود لتشكيل الهلال في كلاسيكو الأهلي.. وتوني ينتظره**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%84%D9%8A%D8%A8%D8%A7%D9%84%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A--%D9%88%D8%AA%D9%88%D9%86%D9%8A-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1%D9%87/blt151e6b87a00a2e39)
+- **مباشر الآن الهلال ضد الأهلي في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/2/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A2%D9%86-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **مواجهة خاصة بين بونو وميندي في "الكلاسيكو"**: [Link](https://www.hesport.com/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%88%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A-425351.html)
+
+
+### al-hilal – al-ahli saudi (N/A, Mon, 2 Feb 2026 09:20:00 -0800)
+
+- **The Historic Rivalry Returns: Al-Hilal Faces Al-Ahli in Saudi Pro League Thriller**: [Link](https://koorabreak.com/en/251605/)
+- **Al Akhdoud - Al-Hilal Saudi Football Club prediction & tips 05.02.2026**: [Link](https://www.transfermarkt.com/betting/tips/al-akhdoud-vs-al-hilal-sfc-prediction-05-02-2026/)
+- **Yaisleh Prepares a Special Plan Before Facing Al-Hilal and Tests Demiral**: [Link](https://www.ysscores.com/en/news/13902782/Yaisleh-Prepares-a-Special-Plan-Before-Facing-Al-Hilal-and-Tests-Demiral)
+
+
+### othmane maamma (N/A, Mon, 2 Feb 2026 08:40:00 -0800)
+
+- **Ligue 1: Lille passe à l’offensive pour recruter l’ailier marocain Othmane Maamma**: [Link](https://telquel.ma/instant-t/2026/02/02/ligue-1-lille-passe-a-loffensive-pour-recruter-lailier-marocain-othmane-maamma_1973591/)
+- **Mercato : l'ailier de Watford Othmane Maamma dans le viseur du LOSC**: [Link](https://www.lequipe.fr/Football/Actualites/Mercato-l-ailier-de-watford-othmane-maamma-dans-le-viseur-du-losc/1638518)
+- **Nantes fonce sur Othmane Maamma**: [Link](https://www.footmercato.net/a5563876216655412521-nantes-fonce-sur-othmane-maamma)
+
+
 ### kocaelispor – fenerbahçe (N/A, Mon, 2 Feb 2026 08:40:00 -0800)
 
 - **Fenerbahçe'de Edson Alvarez 10 maç sonra ilk 11'de başlıyor**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-edson-alvarez-10-mac-sonra-ilk-11de-basliyor-997677h.htm)
