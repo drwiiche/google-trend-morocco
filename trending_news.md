@@ -1,3 +1,17 @@
+### kocaelispor – fenerbahçe (N/A, Mon, 2 Feb 2026 08:40:00 -0800)
+
+- **Fenerbahçe'de Edson Alvarez 10 maç sonra ilk 11'de başlıyor**: [Link](https://www.yenicaggazetesi.com/fenerbahcede-edson-alvarez-10-mac-sonra-ilk-11de-basliyor-997677h.htm)
+- **Kocaelispor Fenerbahçe maçında sıcak gelişme...**: [Link](https://www.ulketv.com/kocaelispor-fenerbahce-macinda-sicak-gelisme)
+- **Justin TV’de KOCAELİ FB Maçı Var mı?**: [Link](https://www.inegolonline.com/haber/justin-tv-de-kocaeli-fb-maci-var-mi-346481)
+
+
+### أحوال الطقس (N/A, Mon, 2 Feb 2026 01:20:00 -0800)
+
+- **نشرة حمراء: أمطار قوية مرتقبة بأقاليم شفشاون والعرائش وطنجة-أصيلة**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D8%B4-1695756.html)
+- **تساقطات رعدية قوية.. مستوى اليقظة يرتفع إلى "الأحمر" بشمال المملكة**: [Link](https://ar.telquel.ma/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D8%A7%D9%84%D9%8A%D9%82%D8%B8%D8%A9-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9/)
+- **يوعابد ل2m.ma: طقس مضطرب وأمطار غزيرة مرتقبة بعدد من مناطق المملكة ابتداءً من اليوم الاثنين**: [Link](https://2m.ma/ar/news/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D9%842m-ma-%D8%B7%D9%82%D8%B3-%D9%85%D8%B6%D8%B7%D8%B1%D8%A8-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-20260202)
+
+
 ### al-riyadh vs al-nassr (N/A, Mon, 2 Feb 2026 07:40:00 -0800)
 
 - **Cristiano Ronaldo: ‘Betrayed’ Man Utd legend ‘could leave’ and return to Europe on deadline day**: [Link](https://www.football365.com/news/cristiano-ronaldo-betrayed-man-utd-legend-leave-saudi-arabia-european-return-deadline-day)
