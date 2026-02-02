@@ -1,3 +1,17 @@
+### ksar el kebir (N/A, Mon, 2 Feb 2026 01:00:00 -0800)
+
+- **Ksar El Kébir/Loukkos : Chronique d’un voisin imprévisible | L'observateur**: [Link](https://lobservateur.info/article/117065/maroc/socieacuteteacute/ksar-el-kebir-loukkos-chronique-dun-voisin-imprevisible)
+- **Intempéries: des camions militaires à Ksar El Kebir**: [Link](https://fr.hespress.com/460662-intemperies-des-camions-militaires-a-ksar-el-kebir.html)
+- **Diapo. Inondations à Ksar El Kébir: mobilisation totale des autorités pour l’hébergement des sinistrés**: [Link](https://fr.le360.ma/societe/diapo-inondations-a-ksar-el-kebir-mobilisation-totale-des-autorites-pour-lhebergement-des-sinistres_A4H2OOUWWBAONMJPFXWUZINGS4/)
+
+
+### الطقس اليوم (N/A, Sun, 1 Feb 2026 23:10:00 -0800)
+
+- **حالة الطقس اليوم: درجات حرارة منخفضة ورياح مع أمطار خفيفة**: [Link](https://twaslnews.twaslnews.com/104238/)
+- **تنبيه من الرمال المثارة وفرص أمطار في بعض المناطق**: [Link](https://iq.arabsvoice.net/80608/)
+- **أخبار مصر: طقس غد دافئ نهاراً وبارد ليلاً مع نشاط رياح وأتربة عالقة**: [Link](https://ar.mqalat.nl/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D8%B5%D8%B1-%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF-%D8%AF%D8%A7%D9%81%D8%A6-%D9%86%D9%87%D8%A7%D8%B1%D8%A7%D9%8B-%D9%88%D8%A8%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%84%D8%A7/)
+
+
 ### météo maroc fortes pluies (N/A, Sun, 1 Feb 2026 23:10:00 -0800)
 
 - **Perturbations météorologiques : suspension des cours à Tanger-Asilah**: [Link](https://ledesk.ma/encontinu/perturbations-meteorologiques-suspension-des-cours-a-tanger-asilah/)
