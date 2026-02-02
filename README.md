@@ -1,3 +1,73 @@
+### porto fc (N/A, Mon, 2 Feb 2026 14:20:00 -0800)
+
+- **FC Porto add to January transfer haul with Seko Fofana loan**: [Link](https://www.panafricafootball.com/post/fc-porto-seko-fofana-loan/)
+- **FC Porto announce signing of Seko Fofana from Rennes**: [Link](https://tribuna.com/en/news/2026-02-02-fc-porto-announce-signing-of-seko-fofana-from-rennes/)
+- **Seko Fofana to wear number 42 shirt in tribute to Yaya Touré**: [Link](https://onefootball.com/fr/news/seko-fofana-to-wear-number-42-shirt-in-tribute-to-yaya-toure-42346118)
+
+
+### casa pia – porto (N/A, Mon, 2 Feb 2026 14:10:00 -0800)
+
+- **😯 Thiago Silva marca contra, e FC Porto perde a primeira em Portugal**: [Link](https://onefootball.com/pt-br/noticias/thiago-silva-marca-contra-e-fc-porto-perde-a-primeira-em-portugal-42349058)
+- **As mãos de ferro de Patrick Sequeira (as notas do Casa Pia)**: [Link](https://www.abola.pt/noticias/as-maos-de-ferro-de-patrick-sequeira-as-notas-do-casa-pia-2026020211165689894)
+- **Em equipa que ganha não se mexe. Farioli mexeu e deu asneira da grossa à boleia da ironia**: [Link](https://cnnportugal.iol.pt/casa-pia-fc-porto/quanto-ficou-o-fc-porto/em-equipa-que-ganha-nao-se-mexe-farioli-mexeu-e-deu-asneira-da-grossa-a-boleia-da-ironia/20260202/69812a00d34e0ec52ec30b78)
+
+
+### justice gov epstein (N/A, Mon, 2 Feb 2026 13:40:00 -0800)
+
+- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
+- **Newly released Jeffrey Epstein files: 10 key takeaways so far**: [Link](https://www.theguardian.com/us-news/2026/feb/02/new-jeffrey-epstein-files-key-takeaways)
+- **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
+
+
+### طنجة (N/A, Mon, 2 Feb 2026 13:30:00 -0800)
+
+- **جديد "تعليق الدراسة" في جهة طنجة**: [Link](https://www.hespress.com/%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D9%81%D9%8A-%D8%AC%D9%87%D8%A9-%D8%B7%D9%86%D8%AC%D8%A9-1696038.html)
+- **سوء الأحوال الجوية يوقف الدراسة في هذه الأقاليم**: [Link](https://2m.ma/ar/news/%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%8A%D9%88%D9%82%D9%81-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D9%81%D9%8A-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-20260202)
+- **خلال فرار سائقها من الشرطة.. إصابة عشرة أشخاص بعد اصطدام سيارة بـ"خيمة" بفاس**: [Link](https://ar.telquel.ma/%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A8%D8%AA%D8%A7/)
+
+
+### مايوركا ضد إشبيلية (N/A, Mon, 2 Feb 2026 12:30:00 -0800)
+
+- **ريال مايوركا يحقق انتصاراً كبيراً على ضيفه إشبيلية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1%D8%A7-%D8%B9%D9%84%D9%89-%D8%B6%D9%8A%D9%81%D9%87-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-2026-02-02)
+- **مايوركا ينذر برشلونة برباعية أمام إشبيلية في الدوري الإسباني**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=03022026&id=ff993913-f529-4831-8ee4-b5fe57c0d96a)
+- **مايوركا يضرب إشبيلية برباعية ويقربه من مراكز الهبوط**: [Link](https://www.filgoal.com/articles/522609/%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%88%D9%8A%D9%82%D8%B1%D8%A8%D9%87-%D9%85%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B2-%D8%A7%D9%84%D9%87%D8%A8%D9%88%D8%B7)
+
+
+### majorque – séville (N/A, Mon, 2 Feb 2026 11:20:00 -0800)
+
+- **Majorque 4-1 Séville FC, La Liga : résumé du match (02/02/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/majorque-seville-fc-live/676924)
+- **Pronostic Majorque - Séville, Liga**: [Link](https://www.sportytrader.com/pronostics/majorque-seville-323660/)
+- **PRONOS PARIS RMC Le nul du jour du 2 février – Liga – Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-2-fevrier-liga-espagne_AN-202602010178.html)
+
+
+### sunderland – burnley (N/A, Mon, 2 Feb 2026 11:20:00 -0800)
+
+- **Sunderland 3-0 Burnley: Black Cats extend unbeaten home run**: [Link](https://www.bbc.com/sport/football/live/c0key5g6jnzt)
+- **Al-Talbi Scores as Sunderland Secure 3-0 Win Over Burnley in Premier League**: [Link](https://m.elbotola.com/en/article/2026-02-02-21-59-343.html)
+- **Diarra leads Sunderland's charge as they move up to eighth place**: [Link](https://www.reuters.com/sports/soccer/diarra-leads-sunderlands-charge-they-move-up-eighth-place-2026-02-02/)
+
+
+### udinese – roma (N/A, Mon, 2 Feb 2026 11:10:00 -0800)
+
+- **La Roma regina del mercato perde a Udine e scivola al quinto posto Si può perdere con Malen e Robinio Vaz? Incredibilmente si può. I Gasperini boys battuti 1-0. Rete di Ekkelenkamp. Zaniolo entra ed evita di segnare il 2-0 a porta vuota Si può perdere con**: [Link](https://www.facebook.com/ilnapolista/posts/la-roma-regina-del-mercato-perde-a-udine-e-scivola-al-quinto-postosi-pu%C3%B2-perdere/1420443876760930/)
+- **Infortunio Davis, quando torna e quante partite salta: le condizioni e i tempi di recupero dell'attaccante**: [Link](https://www.goal.com/it/liste/infortunio-davis-quando-torna-e-quante-partite-salta-le-condizioni-e-i-tempi-di-recupero-dell-attaccante/blt727bcf9e2fc463c9)
+- **Udinese-Roma 1-0**: [Link](https://www.udinese.it/news/squadra/udinese-roma-1-0)
+
+
+### الهلال (N/A, Mon, 2 Feb 2026 11:00:00 -0800)
+
+- **انفراجة رغم أنف رونالدو؟.. صفقة الهلال وبنزيما تصل محطتها الأخيرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%86%D9%81%D8%B1%D8%A7%D8%AC%D8%A9-%D8%B1%D8%BA%D9%85-%D8%A7%D9%94%D9%86%D9%81-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88--%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D8%AA%D8%B5%D9%84-%D9%85%D8%AD%D8%B7%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9/bltb1a14a8e619cc882)
+- **تقارير: بنزيمة ينتقل من الاتحاد إلى الهلال**: [Link](https://www.aljazeera.net/sport/2026/2/2/%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A9-%D9%8A%D9%86%D8%AA%D9%82%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84)
+- **الهلال السعودي يعلن تعاقده مع الفرنسي كريم بنزيما قادما من اتحاد جدة**: [Link](https://m.elbotola.com/article/2026-02-02-21-21-29.html)
+
+
+### al hilal (N/A, Mon, 2 Feb 2026 10:00:00 -0800)
+
+- **Real Madrid icon - Karim Benzema swaps Saudi Pro League clubs to enrage Cristiano Ronaldo**: [Link](https://www.transfermarkt.co.uk/real-madrid-icon-karim-benzema-swaps-saudi-pro-league-clubs-to-enrage-cristiano-ronaldo/view/news/474810)
+- **Karim Benzema’s transfer to Al Hilal might be off after latest shocking update**: [Link](https://www.hitc.com/karim-benzemas-transfer-to-al-hilal-might-be-off-after-latest-shocking-update/)
+- **Benzema moves to Al-Hilal following Al-Ittihad departure**: [Link](https://www.reuters.com/sports/soccer/benzema-moves-al-hilal-following-al-ittihad-departure-2026-02-02/)
+
+
 ### karim benzema (N/A, Mon, 2 Feb 2026 09:50:00 -0800)
 
 - **Juventus make formal approach to sign Karim Benzema as he favours European return**: [Link](https://www.getfootballnewsfrance.com/2026/juventus-make-formal-approach-to-sign-karim-benzema-as-he-favours-european-return/)
