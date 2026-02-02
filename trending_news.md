@@ -1,3 +1,17 @@
+### can féminine 2026 maroc (N/A, Mon, 2 Feb 2026 02:50:00 -0800)
+
+- **WAFCON : l’Afrique du Sud tempère après l’annonce du retrait du Maroc**: [Link](https://telquel.ma/instant-t/2026/02/02/wafcon-lafrique-du-sud-tempere-apres-lannonce-du-retrait-du-maroc_1973475/)
+- **CAN féminine: gros imbroglio sur l'organisation au Maroc à moins de deux mois du match d'ouverture**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-feminine-gros-imbroglio-sur-l-organisation-au-maroc-a-moins-de-deux-mois-du-match-d-ouverture_AV-202602010384.html)
+- **CAN 2026 : énorme surprise, le Maroc lâche l'organisation du tournoi !**: [Link](https://www.onzemondial.com/can/can-2026-enorme-surprise-le-maroc-lache-lorganisation-du-tournoi-978963)
+
+
+### chappell roan (N/A, Mon, 2 Feb 2026 02:50:00 -0800)
+
+- **Chappell Roan’s Nipple Piercing Dress Brought Naked Dressing to the Grammys**: [Link](https://www.nytimes.com/2026/02/01/style/grammys-chappell-roan-naked-dress.html)
+- **Chappell Roan Takes Naked Dressing to Another Level in Sheer Gown Hanging from Nipple Rings at 2026 Grammys**: [Link](https://people.com/grammys-2026-chappell-roan-naked-dress-photos-11894476)
+- **Chappell Roan Goes Topless in Shocking Grammys 2026 Red Carpet Moment**: [Link](https://www.eonline.com/news/1427787/grammys-2026-chappell-roan-topless-on-red-carpet)
+
+
 ### epstein files pdf (N/A, Sun, 1 Feb 2026 14:50:00 -0800)
 
 - **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
