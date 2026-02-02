@@ -1,3 +1,24 @@
+### al-riyadh vs al-nassr (N/A, Mon, 2 Feb 2026 07:40:00 -0800)
+
+- **Cristiano Ronaldo: ‘Betrayed’ Man Utd legend ‘could leave’ and return to Europe on deadline day**: [Link](https://www.football365.com/news/cristiano-ronaldo-betrayed-man-utd-legend-leave-saudi-arabia-european-return-deadline-day)
+- **Drama in Saudi Arabia: Ronaldo expected to boycott Al-Nassr match over club management**: [Link](https://www.ynetnews.com/sport/article/skwtml0uwl)
+- **Cristiano Ronaldo goes on STRIKE with Portuguese star 'refusing to play for Al-Nassr'**: [Link](https://www.mirror.co.uk/sport/football/news/cristiano-ronaldo-al-nassr-strike-36653744)
+
+
+### virus nipah (N/A, Mon, 2 Feb 2026 07:20:00 -0800)
+
+- **Nipah virus: what is it, where is it found and how does it spread?**: [Link](https://ukhsa.blog.gov.uk/2026/01/27/nipah-virus-what-is-it-where-is-it-found-and-how-does-it-spread/)
+- **Posts leap on Nipah outbreak in India to spread false lockdown claim**: [Link](https://factcheck.afp.com/doc.afp.com.94J93G3)
+- **Malaysia steps up health surveillance, border controls to prevent Nipah virus spread**: [Link](https://en.vietnamplus.vn/malaysia-steps-up-health-surveillance-border-controls-to-prevent-nipah-virus-spread-post337065.vnp)
+
+
+### الرياض ضد النصر (N/A, Mon, 2 Feb 2026 07:00:00 -0800)
+
+- **وليد الفراج ينتقد كريستيانو وبنزيما برسالة لاذعة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%AC-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D9%88%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D8%A7%D8%B0%D8%B9%D8%A9/blt5fbf3bedf50dc180)
+- **مباشر مباراة النصر ضد الرياض (0-0) في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/2/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AF%D9%88%D8%B1%D9%8A?update=8774747)
+- **رونالدو "يتمرد" ويغيب عن مباراة النصر ضد الرياض بسبب استيائه من صندوق الاستثمارات السعودي!**: [Link](https://m.elbotola.com/article/2026-02-02-13-18-62.html)
+
+
 ### bourse (N/A, Mon, 2 Feb 2026 04:00:00 -0800)
 
 - **Bourse de Casablanca: Forte affluence sur l’augmentation de capital de Risma**: [Link](https://boursenews.ma/article/marches/forte-affluence-augmentation-de-capital-risma)
