@@ -1,3 +1,17 @@
+### نشرة إنذارية حمراء (N/A, Mon, 2 Feb 2026 15:30:00 -0800)
+
+- **نشرة حمراء: أمطار قوية مرتقبة بأقاليم شفشاون والعرائش وطنجة-أصيلة**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D8%B4-1695756.html)
+- **تساقطات رعدية قوية.. مستوى اليقظة يرتفع إلى "الأحمر" بشمال المملكة**: [Link](https://ar.telquel.ma/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D8%A7%D9%84%D9%8A%D9%82%D8%B8%D8%A9-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9/)
+- **نشرة جوية من الدرجة البرتقالية:رياح عاصفية وتساقطات مطرية مع انخفاض ملحوظ في درجات الحرارة**: [Link](https://2m.ma/ar/news/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D8%B9-20260201)
+
+
+### ملفات ابستين (N/A, Mon, 2 Feb 2026 15:10:00 -0800)
+
+- **عاصفة إبستين تصل بريطانيا وبيان من رئيس الوزراء**: [Link](https://www.aljazeera.net/news/2026/2/2/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%A5%D8%A8%D8%B3%D9%8A%D8%AA%D9%86-%D8%AA%D8%B5%D9%84-%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%A8%D9%8A%D8%A7%D9%86-%D9%85%D9%86)
+- **فضيحة إبستين تتوسع عالمياً .. استقالات واعتذارات جديدة**: [Link](https://www.dw.com/ar/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%A5%D8%A8%D8%B3%D8%AA%D9%8A%D9%86-%D8%AA%D8%AA%D9%88%D8%B3%D8%B9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A7%D9%8B-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D9%88%D8%A7%D8%B9%D8%AA%D8%B0%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/a-75772877)
+- **عاصفة في وجه البرتغالي.. الحقيقة وراء الزج باسم رونالدو في قضية إبستين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A--%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%88%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%B2%D8%AC-%D8%A8%D8%A7%D8%B3%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%95%D8%A8%D8%B3%D8%AA%D9%8A%D9%86/blt4e448b9410359bf5)
+
+
 ### porto fc (N/A, Mon, 2 Feb 2026 14:20:00 -0800)
 
 - **FC Porto add to January transfer haul with Seko Fofana loan**: [Link](https://www.panafricafootball.com/post/fc-porto-seko-fofana-loan/)
