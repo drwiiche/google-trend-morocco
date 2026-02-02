@@ -1,3 +1,38 @@
+### météo (N/A, Sun, 1 Feb 2026 22:00:00 -0800)
+
+- **Météo - Un début de semaine entre les gouttes**: [Link](https://www.lalibre.be/dernieres-depeches/2026/02/02/meteo-un-debut-de-semaine-entre-les-gouttes-TD4YIBRUD5F6HN522WAMO5KY5I/)
+- **Météo en Belgique : un temps qui reste plutôt gris mais assez doux**: [Link](https://www.rtbf.be/article/meteo-en-belgique-un-temps-qui-reste-plutot-gris-mais-assez-doux-11671511)
+- **Météo - Un ciel souvent nuageux et parfois pluvieux durant la semaine**: [Link](https://www.dhnet.be/dernieres-depeches/2026/01/31/meteo-un-ciel-souvent-nuageux-et-parfois-pluvieux-durant-la-semaine-RXZD46SJRZC2JDCEJPMPADWKHY/)
+
+
+### الطقس (N/A, Sun, 1 Feb 2026 22:00:00 -0800)
+
+- **تنبيه من الرمال المثارة وفرص أمطار في بعض المناطق**: [Link](https://iq.arabsvoice.net/80608/)
+- **أخبار مصر: طقس غد دافئ نهاراً وبارد ليلاً مع نشاط رياح وأتربة عالقة**: [Link](https://ar.mqalat.nl/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D8%B5%D8%B1-%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF-%D8%AF%D8%A7%D9%81%D8%A6-%D9%86%D9%87%D8%A7%D8%B1%D8%A7%D9%8B-%D9%88%D8%A8%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%84%D8%A7/)
+- **دافئ نهارًا.. حالة الطقس في مصر اليوم الاثنين 2 فبراير 2026**: [Link](https://darelhilal.com/News/3170579.aspx)
+
+
+### weather (N/A, Sun, 1 Feb 2026 22:00:00 -0800)
+
+- **Unseasonably hot weather to descend on Israel**: [Link](https://www.israelnationalnews.com/news/421745)
+- **Weather forecast: heatwave expected Sunday, rain and storms expected midweek**: [Link](https://www.ynetnews.com/environment/article/sybych2lzx)
+- **Weather forecast: 39-year heat record expected, followed by return of rain**: [Link](https://www.ynetnews.com/environment/article/skqexniibx)
+
+
+### adan (N/A, Sun, 1 Feb 2026 21:50:00 -0800)
+
+- **Bella Hadid and her cowboy boyfriend Adan Banuelos have split after two years**: [Link](https://pagesix.com/2026/01/26/celebrity-news/bella-hadid-and-cowboy-boyfriend-adan-banuelos-have-split/)
+- **Bella Hadid's Ex Adan Banuelos Arrested for Public Intoxication**: [Link](https://www.tmz.com/2026/01/31/bella-hadid-ex-boyfriend-arrest-adan-banuelos/)
+- **Bella Hadid’s Texas ex arrested on public intoxication after breakup**: [Link](https://www.mysanantonio.com/entertainment/article/bella-hadid-texas-ex-arrested-21326177.php)
+
+
+### الفجر (N/A, Sun, 1 Feb 2026 21:40:00 -0800)
+
+- **صيام الأيام البيض لشهر شعبان.. موعد أذان المغرب اليوم**: [Link](https://al-ain.com/article/maghrib-adhan-prayer-times-egypt)
+- **مواقيت الصلاة|موعد أذان المغرب اليوم الأحد بهيئة المساحة وعلامته في الفقه**: [Link](https://www.egyptke.com/173839)
+- **موعد أذان وصلاة العشاء اليوم السبت 31 يناير.. ودعاء بعد ختم الصلاة**: [Link](https://www.masrawy.com/islameyat/others-islamic_ppl_news/details/2026/1/31/2935014/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B4%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-31-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1-%D9%88%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
+
+
 ### grammy awards 2026 (N/A, Sun, 1 Feb 2026 17:20:00 -0800)
 
 - **Celebrities Skipping Grammys 2026: Who’s Not Attending & Why**: [Link](https://www.justjared.com/2026/02/01/celebrities-skipping-grammys-2026-whos-not-attending-why/)
