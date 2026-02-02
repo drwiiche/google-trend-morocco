@@ -1,3 +1,17 @@
+### grammy awards 2026 (N/A, Sun, 1 Feb 2026 17:20:00 -0800)
+
+- **Celebrities Skipping Grammys 2026: Who’s Not Attending & Why**: [Link](https://www.justjared.com/2026/02/01/celebrities-skipping-grammys-2026-whos-not-attending-why/)
+- **All the Major Artists That Skipped the 2026 Grammy Awards**: [Link](https://parade.com/news/celebs-artists-that-skipped-the-2026-grammy-awards)
+- **All the Celebs Who Skipped the 2026 Grammys Despite Being Nominated/Invited**: [Link](https://www.aol.com/articles/celebs-skipped-2026-grammys-despite-012500446.html)
+
+
+### احوال الطقس (N/A, Sun, 1 Feb 2026 16:40:00 -0800)
+
+- **منخفض أطلسي يقترب من بريطانيا.. يوعابد يكشف انعكاساته على المغرب**: [Link](https://ar.telquel.ma/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D9%8A/)
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-46-1695192.html)
+- **بردٌ في الأطلس ودفء بالجنوب: درجات الحرارة المرتقبة الاثنين بالمغرب**: [Link](https://agadir24.info/%D8%A8%D8%B1%D8%AF%D9%8C-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%88%D8%AF%D9%81%D8%A1-%D8%A8%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1.html)
+
+
 ### ليلة النصف من شعبان (N/A, Sun, 1 Feb 2026 15:50:00 -0800)
 
 - **هؤلاء محرومون في ليلة النصف من شعبان**: [Link](https://www.aljazeera.net/religion/2026/1/30/%D9%87%D8%A4%D9%84%D8%A7%D8%A1-%D9%85%D8%AD%D8%B1%D9%88%D9%85%D9%88%D9%86-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D9%81-%D9%85%D9%86-%D8%B4%D8%B9%D8%A8%D8%A7%D9%86)
