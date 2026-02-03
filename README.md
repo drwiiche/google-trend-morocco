@@ -1,3 +1,10 @@
+### chute or argent (N/A, Tue, 3 Feb 2026 04:20:00 -0800)
+
+- **Marché : Avec une chute de 14% en deux séances, l'or poursuit sa dégringolade ce lundi... Mais est-ce vraiment parti pour durer?**: [Link](https://www.tradingsat.com/actualites/marches-financiers/avec-une-chute-de-14-en-deux-seances-l-or-poursuit-sa-degringolade-ce-lundi-mais-est-ce-vraiment-parti-pour-durer-1155545.html)
+- **Pourquoi l’or et l’argent s’effondrent après l’annonce du candidat de Trump pour la FED**: [Link](https://www.20minutes.fr/economie/4198966-20260130-cours-or-argent-devissent-apres-nomination-trump-nouveau-patron-fed)
+- **Marchés en Asie: l'or rebondit et tire les Bourses, Bombay flambe**: [Link](https://www.zonebourse.com/actualite-bourse/marches-en-asie-l-or-rebondit-et-tire-les-bourses-bombay-flambe-apres-ce7e5bd2dd8cf020)
+
+
 ### teams (N/A, Mon, 2 Feb 2026 23:50:00 -0800)
 
 - **Six teams leave regional sports network Main Street to join MLB**: [Link](https://www.espn.com/mlb/story/_/id/47809528/sources-least-5-teams-leave-main-street-sports-join-mlb)
