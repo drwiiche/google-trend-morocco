@@ -1,3 +1,31 @@
+### météo tanger (N/A, Mon, 2 Feb 2026 17:10:00 -0800)
+
+- **Intempéries : Les liaisons maritimes Tarifa-Tanger encore suspendues**: [Link](https://www.leconomiste.com/flash-infos/intemperies-les-liaisons-maritimes-tarifa-tanger-suspendues/)
+- **Tanger Med : La bureaucratie assiège des dizaines de véhicules utilitaires dans des conditions difficiles**: [Link](https://fr.hibapress.com/news-232420.html)
+- **Tempête Kristin : immobilisation des camions au port d’Algésiras à destination du Maroc**: [Link](https://www.yabiladi.com/articles/details/187024/tempete-kristin-immobilisation-camions-port.html)
+
+
+### الأحوال الجوية: طنجة (N/A, Mon, 2 Feb 2026 16:20:00 -0800)
+
+- **تعليق جديد للرحلات البحرية بين طريفة وطنجة**: [Link](https://lakome2.com/flash-infos/407572/)
+- **استئناف جزئي لحركة الملاحة البحرية**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%AC%D8%B2%D8%A6%D9%8A-%D9%84%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-1694144.html)
+- **ميناء الجزيرة الخضراء يضطر لاعتماد “عملية عبور” خاصة بالشاحنات نحو طنجة**: [Link](https://tanjanews.com/180885.html)
+
+
+### maroc can feminine (N/A, Mon, 2 Feb 2026 15:50:00 -0800)
+
+- **WAFCON : l’Afrique du Sud tempère après l’annonce du retrait du Maroc**: [Link](https://mobile.telquel.ma/instant-t/2026/02/02/wafcon-lafrique-du-sud-tempere-apres-lannonce-du-retrait-du-maroc_1973475/)
+- **CAN féminine: gros imbroglio sur l'organisation au Maroc à moins de deux mois du match d'ouverture**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-feminine-gros-imbroglio-sur-l-organisation-au-maroc-a-moins-de-deux-mois-du-match-d-ouverture_AV-202602010384.html)
+- **CAN féminine 2026 : la vice-ministre des sports sud-africaine sème le doute, son supérieur clarifie**: [Link](https://lematin.ma/sports/can-feminine-2026-la-vice-ministre-des-sports-sud-africaine-seme-le-doute/327647)
+
+
+### melania trump (N/A, Mon, 2 Feb 2026 15:50:00 -0800)
+
+- **Box Office: ‘Melania’ Doc Beats Expectations With $7 Million Debut, Sam Raimi’s ‘Send Help’ Lands at No. 1 With $20 Million**: [Link](https://variety.com/2026/film/box-office/melania-documentary-box-office-strong-opening-weekend-send-help-1236645970/)
+- **Melania review – Trump film is a gilded trash remake of The Zone of Interest**: [Link](https://www.theguardian.com/film/2026/jan/30/melania-review-trump-film-is-a-gilded-trash-remake-of-the-zone-of-interest)
+- **‘Melania’ Overperforms In Red Zone Cinemas With ‘A’ CinemaScore & Best Opening For Documentary In Decade With $7M – Box Office**: [Link](https://deadline.com/2026/02/box-office-melania-1236702845/)
+
+
 ### دعاء ليلة النصف من شعبان (N/A, Mon, 2 Feb 2026 14:20:00 -0800)
 
 - **ليلة النصف من شعبان 2026.. موعدها وفضلها وأفضل العبادات في هذا اليوم**: [Link](https://www.almasryalyoum.com/news/details/4188347)
