@@ -1,3 +1,17 @@
+### adam masina (N/A, Tue, 3 Feb 2026 06:50:00 -0800)
+
+- **تقرير: ماسينا خارج حسابات "تورينو"**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%85%D8%A7%D8%B3%D9%8A%D9%86%D8%A7-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D9%88%D8%B1%D9%8A%D9%86%D9%88-1695020.html)
+- **هل ينتقل آدم ماسينا إلى السد القطري؟**: [Link](https://www.hesport.com/%D9%87%D9%84-%D9%8A%D9%86%D8%AA%D9%82%D9%84-%D8%A2%D8%AF%D9%85-%D9%85%D8%A7%D8%B3%D9%8A%D9%86%D8%A7-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%AF-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A%D8%9F-425214.html)
+- **تورينو يعلن رسميا فسخ عقد آدم ماسينا بالتراضي**: [Link](https://m.elbotola.com/article/2026-02-02-18-18-397.html)
+
+
+### kennedy center (N/A, Tue, 3 Feb 2026 05:30:00 -0800)
+
+- **Trump Says Kennedy Center Will Close for 2-Year Reconstruction Project**: [Link](https://www.nytimes.com/2026/02/01/us/politics/trump-kennedy-center.html)
+- **Clintons to Testify - CNN This Morning with Audie Cornish - Podcast on CNN Podcasts**: [Link](https://www.cnn.com/audio/podcasts/cnn-this-morning/episodes/4dceb43c-b53c-11f0-a426-0bf605661fea)
+- **President Trump Displays Photo With Vladimir Putin Above Picture of Him and Granddaughter in White House**: [Link](https://www.aol.com/videos/president-trump-displays-photo-vladimir-154454515.html)
+
+
 ### جزيرة إبستين (N/A, Mon, 2 Feb 2026 14:30:00 -0800)
 
 - **هل أنت شيطان؟ سؤال أعاد فتح ملف مقابلات خاصة مع جيفري إبستين**: [Link](https://www.aljazeera.net/news/2026/2/3/%D9%87%D9%84-%D8%A3%D9%86%D8%AA-%D8%B4%D9%8A%D8%B7%D8%A7%D9%86-%D8%B3%D8%A4%D8%A7%D9%84-%D8%A3%D8%B9%D8%A7%D8%AF-%D9%81%D8%AA%D8%AD-%D9%85%D9%84%D9%81-%D9%85%D9%82%D8%A7%D8%A8%D9%84%D8%A7%D8%AA)
