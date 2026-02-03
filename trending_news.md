@@ -1,3 +1,38 @@
+### donald trump (N/A, Tue, 3 Feb 2026 15:30:00 -0800)
+
+- **Live updates: House begins votes to end government shutdown as Trump meets Colombian president | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/trump-administration-news-02-03-26)
+- **Partial government shutdown ends**: [Link](https://www.cbsnews.com/newyork/video/partial-government-shutdown-ends/)
+- **House Democrats help Mike Johnson end government shutdown, fund DHS and ICE**: [Link](https://www.axios.com/2026/02/03/government-shutdown-ice-dhs-vote-congress)
+
+
+### 2026 winter olympics (N/A, Tue, 3 Feb 2026 15:20:00 -0800)
+
+- **All the venues of Milano Cortina 2026**: [Link](https://www.nss-sports.com/en/lifestyle/44154/milano-cortina-2026-winter-games-venues)
+- **Christian Pulisic and Yann Sommer: Football stars preview Winter Games 2026 Opening Ceremony**: [Link](https://www.olympics.com/en/milano-cortina-2026/news/milano-cortina-2026-opening-ceremony-inter-milan-sommer-pulisic-san-siro)
+- **How Marco Balich created the 2026 Winter Olympics Opening Ceremony**: [Link](https://monocle.com/affairs/sport/winter-olympic-opening-ceremony-2026-marco-balich/)
+
+
+### الألعاب الأولمبية الشتوية 2026 (N/A, Tue, 3 Feb 2026 15:20:00 -0800)
+
+- **مشاركة سعودية تاريخية.. كيف تستعد المملكة لأولمبياد الشتاء 2026؟**: [Link](https://www.arrajol.com/content/397436/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%83%D9%8A%D9%81-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-%D8%A7%D9%84%D8%B4%D8%AA%D8%A7%D8%A1-2026%D8%9F)
+- **فايق وراكان يمثلان السعودية في الألعاب الأولمبية الشتوية بإيطاليا**: [Link](https://sports.asharq.com/other-sports/99221/%D9%81%D8%A7%D9%8A%D9%82-%D9%88%D8%B1%D8%A7%D9%83%D8%A7%D9%86-%D9%8A%D9%85%D8%AB%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9/)
+- **حدث تاريخي .. راية السعودية ترفرف في الألعاب الأولمبية الشتوية 2026 لأول مرة**: [Link](https://gaya-sa.org/news/%D8%AD%D8%AF%D8%AB-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%B1%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B1%D9%81%D8%B1%D9%81-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3/)
+
+
+### jeux olympiques d'hiver 2026 (N/A, Tue, 3 Feb 2026 15:10:00 -0800)
+
+- **Jeux olympiques d'hiver de Milan-Cortina : quels sont les sports d'hiver préférés des Européens**: [Link](https://fr.euronews.com/my-europe/2026/02/03/jeux-olympiques-dhiver-de-milan-cortina-quels-sont-les-sports-dhiver-preferes-des-europeen)
+- **LA28 : intérêt et engouement à travers le monde, comme le révèle une présentation lors de la Session du CIO à Milan**: [Link](https://olympics.com/cio/news/la28-interet-et-engouement-a-travers-le-monde-comme-le-revele-une-presentation-lors-de-la-session-du-cio-a-milan)
+- **Neige, glace artificielles : quels risques pour la santé des athlètes ?**: [Link](https://francais.medscape.com/viewarticle/neige-et-glace-artificielles-quels-risques-sant%C3%A9-des-2026a10002od)
+
+
+### claude (N/A, Tue, 3 Feb 2026 13:20:00 -0800)
+
+- **Xcode 26.3 unlocks the power of agentic coding**: [Link](https://www.apple.com/newsroom/2026/02/xcode-26-point-3-unlocks-the-power-of-agentic-coding/)
+- **Apple’s Xcode now supports the Claude Agent SDK**: [Link](https://www.anthropic.com/news/apple-xcode-claude-agent-sdk)
+- **Apple adds agents from Anthropic and OpenAI to its coding tool**: [Link](https://www.cnbc.com/2026/02/03/apple-adds-agentic-coding-from-anthropic-and-openai-to-xcode.html)
+
+
 ### justice gov epstein (N/A, Tue, 3 Feb 2026 14:30:00 -0800)
 
 - **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
