@@ -1,3 +1,10 @@
+### frmf (N/A, Tue, 3 Feb 2026 06:40:00 -0800)
+
+- **CAN 2025. La procédure marocaine d'appel suit son cours**: [Link](https://medias24.com/2026/02/02/can-2025-la-procedure-marocaine-dappel-suit-son-cours-1620862/)
+- **Déclaration du Président de la CAF, Dr Patrice Motsepe**: [Link](https://www.cafonline.com/fr/a-propos-de-la-caf/news/declaration-du-president-de-la-caf-dr-patrice-motsepe/)
+- **Finale de la CAN 2025 : la FRMF décide d'interjeter appel des décisions du Jury disciplinaire de la CAF**: [Link](https://ledesk.ma/encontinu/finale-de-la-can-2025-la-frmf-decide-dinterjeter-appel-des-decisions-du-jury-disciplinaire-de-la-caf/)
+
+
 ### chute or argent (N/A, Tue, 3 Feb 2026 04:20:00 -0800)
 
 - **Marché : Avec une chute de 14% en deux séances, l'or poursuit sa dégringolade ce lundi... Mais est-ce vraiment parti pour durer?**: [Link](https://www.tradingsat.com/actualites/marches-financiers/avec-une-chute-de-14-en-deux-seances-l-or-poursuit-sa-degringolade-ce-lundi-mais-est-ce-vraiment-parti-pour-durer-1155545.html)
