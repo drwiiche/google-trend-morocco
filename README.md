@@ -1,3 +1,10 @@
+### جزيرة إبستين (N/A, Mon, 2 Feb 2026 14:30:00 -0800)
+
+- **هل أنت شيطان؟ سؤال أعاد فتح ملف مقابلات خاصة مع جيفري إبستين**: [Link](https://www.aljazeera.net/news/2026/2/3/%D9%87%D9%84-%D8%A3%D9%86%D8%AA-%D8%B4%D9%8A%D8%B7%D8%A7%D9%86-%D8%B3%D8%A4%D8%A7%D9%84-%D8%A3%D8%B9%D8%A7%D8%AF-%D9%81%D8%AA%D8%AD-%D9%85%D9%84%D9%81-%D9%85%D9%82%D8%A7%D8%A8%D9%84%D8%A7%D8%AA)
+- **عاصفة في وجه البرتغالي.. الحقيقة وراء الزج باسم رونالدو في قضية إبستين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A--%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%88%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%B2%D8%AC-%D8%A8%D8%A7%D8%B3%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%95%D8%A8%D8%B3%D8%AA%D9%8A%D9%86/blt4e448b9410359bf5)
+- **فضيحة إبستين ـ ميركل وحزب "البديل" ضمن وثائق التحقيق**: [Link](https://www.dw.com/ar/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%A5%D8%A8%D8%B3%D8%AA%D9%8A%D9%86-%D9%80-%D9%85%D9%8A%D8%B1%D9%83%D9%84-%D9%88%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%A8%D8%AF%D9%8A%D9%84-%D8%B6%D9%85%D9%86-%D9%88%D8%AB%D8%A7%D8%A6%D9%82-%D8%A7%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82/a-75781636)
+
+
 ### frmf (N/A, Tue, 3 Feb 2026 06:40:00 -0800)
 
 - **CAN 2025. La procédure marocaine d'appel suit son cours**: [Link](https://medias24.com/2026/02/02/can-2025-la-procedure-marocaine-dappel-suit-son-cours-1620862/)
