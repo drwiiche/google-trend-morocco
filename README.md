@@ -1,3 +1,10 @@
+### teams (N/A, Mon, 2 Feb 2026 23:50:00 -0800)
+
+- **Six teams leave regional sports network Main Street to join MLB**: [Link](https://www.espn.com/mlb/story/_/id/47809528/sources-least-5-teams-leave-main-street-sports-join-mlb)
+- **MLB teams flee cash-strapped FanDuel Sports Network for MLB’s broadcast group - The Athletic**: [Link](https://www.nytimes.com/athletic/7010724/2026/02/02/mlb-broadcast-fanduel-sports-network-exodus/)
+- **Brewers games will be produced, distributed by MLB in 2026**: [Link](https://www.mlb.com/news/brewers-games-to-be-distributed-by-mlb-in-2026)
+
+
 ### احوال الطقس (N/A, Mon, 2 Feb 2026 23:00:00 -0800)
 
 - **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-46-1695192.html)
