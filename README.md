@@ -1,3 +1,17 @@
+### الفجر (N/A, Mon, 2 Feb 2026 21:40:00 -0800)
+
+- **عاجل: مواقيت الصلاة اليوم الثلاثاء 3 فبراير 2026 - تعرف على الأوقات الدقيقة في 4 محافظات مصرية!**: [Link](https://yemen-press.net/news163933.html)
+- **موعد أذان وصلاة الفجر اليوم الثلاثاء 3 فبراير.. ودعاء بعد ختم الصلاة**: [Link](https://www.masrawy.com/islameyat/others-islamic_ppl_news/details/2026/2/3/2936421/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-3-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D9%88%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
+- **مواقيت الصلاة اليوم الثلاثاء 3-2-2026**: [Link](https://www.gomhuriaonline.com/Gomhuria/1751074.html)
+
+
+### موعد اذان الفجر (N/A, Mon, 2 Feb 2026 21:30:00 -0800)
+
+- **فلكياً.. تعرف على موعد أول أيام شهر رمضان الكريم**: [Link](https://www.alarabiya.net/science/2026/02/02/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%88%D9%84-%D8%A7%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85)
+- **International Astronomical Center (IAC)**: [Link](https://astronomycenter.net/articles/2026/02/01/ram47)
+- **المجلس الفرنسي للديانة الإسلامية يعلن: الخميس 19 فبراير 2026 أول أيام رمضان**: [Link](https://hounasahara.net/%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%84%D9%84%D8%AF%D9%8A%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D9%8A%D8%B9%D9%84/)
+
+
 ### or chute (N/A, Mon, 2 Feb 2026 18:20:00 -0800)
 
 - **Marché : Avec une chute de 14% en deux séances, l'or poursuit sa dégringolade ce lundi... Mais est-ce vraiment parti pour durer?**: [Link](https://www.tradingsat.com/actualites/marches-financiers/avec-une-chute-de-14-en-deux-seances-l-or-poursuit-sa-degringolade-ce-lundi-mais-est-ce-vraiment-parti-pour-durer-1155545.html)
