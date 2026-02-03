@@ -1,3 +1,24 @@
+### justice gov epstein files (N/A, Tue, 3 Feb 2026 14:20:00 -0800)
+
+- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
+- **All About the Epstein Files**: [Link](https://www.nytimes.com/2026/02/03/world/epstein-files-russia-ukraine-venezuela.html)
+- **Bill Gates, Elon Musk among big names in Epstein files. Here's what the latest documents show.**: [Link](https://www.cbsnews.com/news/bill-gates-elon-musk-epstein-files-what-documents-show/)
+
+
+### ksar el kébir inondations (N/A, Tue, 3 Feb 2026 14:10:00 -0800)
+
+- **Alerte météo rouge au Nord : la protection des populations s’organise face à la menace des eaux**: [Link](https://ledesk.ma/2026/02/03/alerte-meteo-rouge-au-nord-la-protection-des-populations-sorganise-face-a-la-menace-des-eaux/)
+- **Images satellites. Les crues stagnent à Ksar El Kébir, à la veille d'une semaine à très haut risque**: [Link](https://medias24.com/2026/02/02/images-satellites-les-crues-stagnent-a-ksar-el-kebir-a-la-veille-dune-semaine-a-tres-haut-risque-1620807/)
+- **Les tentes d’accueil prêtes avec couvertures et équipements de première nécessité**: [Link](https://fr.hespress.com/460825-les-tentes-daccueil-pretes-avec-couvertures-et-equipements-de-premiere-necessite.html)
+
+
+### fcb (N/A, Tue, 3 Feb 2026 14:00:00 -0800)
+
+- **Flick bet on him, but his future at Barça is hanging in the air again: he doesn't fit on the team**: [Link](https://e-noticies.cat/en/soccer/flick-bet-on-his-future-barca-is-once-again-hanging-in-the-air-he-doesnt-fit-into-the-team)
+- **João Cancelo makes his comeback to FC Barcelona**: [Link](https://frenchfootballweekly.com/2026/02/03/joao-cancelo-makes-his-comeback-to-fc-barcelona/)
+- **Albacete coach reflects on working with Barcelona youngster at previous club - 'He's a competitive animal'**: [Link](https://barcauniversal.com/albacete-coach-reflects-on-working-with-barcelona-youngster-at-previous-club-hes-a-competitive-animal/)
+
+
 ### milan ac (N/A, Tue, 3 Feb 2026 13:30:00 -0800)
 
 - **Bologne 0-3 AC Milan, Serie A : résumé du match (03/02/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/bologne-ac-milan-live/673186)
