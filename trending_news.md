@@ -1,3 +1,17 @@
+### المغرب (N/A, Tue, 3 Feb 2026 10:00:00 -0800)
+
+- **عاجل.. الاتحاد المغربي يرد على عقوبات نهائي أفريقيا في بيان رسمي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D8%A7%D8%AC%D9%84--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A/bltbc2f33cef1399684)
+- **الجامعة المغربية لكرة القدم تستأنف قرارات لجنة الانضباط التابعة لـ"الكاف"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%B1%D8%B3-1696423.html)
+- **المغرب يستأنف عقوبات "الكاف" بعد أحداث نهائي كأس أفريقيا**: [Link](https://www.aljazeera.net/sport/2026/2/3/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A8%D8%B9%D8%AF-%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB)
+
+
+### copa del rey (N/A, Tue, 3 Feb 2026 09:00:00 -0800)
+
+- **La lista de Flick para el Albacete-Barça, sin cuatro lesionados y con dos del filial**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260203/1002613721/lista-flick-albacete-barca-cuatro-lesionados-dos-filial.html)
+- **Rotaciones sin revolución: el plan de Flick para el Albacete-Barça de Copa del Rey**: [Link](https://www.sport.es/es/noticias/barca/rotaciones-revolucion-plan-flick-albacete-copa-126367700)
+- **En qué canal pasan Barcelona vs. Albacete por la Copa del Rey 2025-2026 hoy**: [Link](https://es-us.noticias.yahoo.com/deportes/canal-pasan-barcelona-vs-albacete-152607143.html)
+
+
 ### ملفات ابستين (N/A, Tue, 3 Feb 2026 08:50:00 -0800)
 
 - **هل أنت شيطان؟ سؤال أعاد فتح ملف مقابلات خاصة مع جيفري إبستين**: [Link](https://www.aljazeera.net/news/2026/2/3/%D9%87%D9%84-%D8%A3%D9%86%D8%AA-%D8%B4%D9%8A%D8%B7%D8%A7%D9%86-%D8%B3%D8%A4%D8%A7%D9%84-%D8%A3%D8%B9%D8%A7%D8%AF-%D9%81%D8%AA%D8%AD-%D9%85%D9%84%D9%81-%D9%85%D9%82%D8%A7%D8%A8%D9%84%D8%A7%D8%AA)
