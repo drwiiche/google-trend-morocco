@@ -1,3 +1,52 @@
+### albacete – barcelone (N/A, Tue, 3 Feb 2026 11:10:00 -0800)
+
+- **Albacete-Barcelone, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/espagne/coupe-d-espagne/albacete-barcelone-quelle-chaine-diffuse-le-match-987429.html)
+- **Barça: Raphinha forfait une semaine**: [Link](https://www.lesiteinfo.com/sport/665743-barca-raphinha-forfait-une-semaine.html)
+- **21 joueurs du Barça convoqués pour le déplacement à Albacete**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4442959/21-joueurs-du-barca-convoques-pour-le-deplacement-a-albacete/featured)
+
+
+### ألباسيتي ضد برشلونة (N/A, Tue, 3 Feb 2026 11:10:00 -0800)
+
+- **التشكيل الرسمي.. فليك يغير وجه برشلونة أمام ألباسيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%BA%D9%8A%D8%B1-%D9%88%D8%AC%D9%87-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%84%D8%A8%D8%A7%D8%B3%D9%8A%D8%AA%D9%8A/bltc4078e09c71d8fdc)
+- **ألباسيتي يرحب بجماهير برشلونة على طريقة لابورتا "المستفزة"**: [Link](https://www.aljazeera.net/sport/2026/2/3/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A3%D9%84%D8%A8%D8%A7%D8%B3%D9%8A%D8%AA%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83)
+- **رافينيا يغيب عن صفوف برشلونة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%B5%D9%81%D9%88%D9%81-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-2026-02-02)
+
+
+### albacete vs barcelona (N/A, Tue, 3 Feb 2026 11:10:00 -0800)
+
+- **¡Flick agita el árbol en el once de Albacete!**: [Link](https://www.sport.es/es/noticias/barca/flick-agita-arbol-once-albacete-126411371)
+- **Mirada inocente, peligro patente: el Albacete quiere, y puede, eliminar al Barcelona**: [Link](https://www.eldigitaldealbacete.com/2026/02/03/mirada-inocente-peligro-patente-el-albacete-quiere-y-puede-eliminar-al-barcelona/)
+- **"Dos Laportas en Albacete": la réplica de cartón que sorprendió al presidente del Barça**: [Link](https://www.mundodeportivo.com/videos/fc-barcelona/20260203/1002614022/dos-laportas-albacete-replica-carton-sorprendio-presidente-barca.html)
+
+
+### bologne – ac milan (N/A, Tue, 3 Feb 2026 11:10:00 -0800)
+
+- **Serie A: Bologna vs. Milan – Confirmed line-ups**: [Link](https://sports.yahoo.com/articles/serie-bologna-vs-milan-confirmed-190000413.html)
+- **Why is Christian Pulisic not playing for AC Milan vs. Bologna today?**: [Link](https://www.usatoday.com/story/sports/soccer/usmnt/2026/02/03/christian-pulisic-not-playing-ac-milan-vs-bologna/88488339007/)
+- **New Christian Pulisic Injury Raises Fresh Concerns Ahead of 2026 World Cup**: [Link](https://www.si.com/soccer/new-christian-pulisic-injury-fresh-concerns-2026-world-cup)
+
+
+### سيف الإسلام القذافي (N/A, Tue, 3 Feb 2026 11:10:00 -0800)
+
+- **مصادر ليبية: مقتل سيف الإسلام القذافي في ظروف غامضة**: [Link](https://www.aljazeera.net/news/2026/2/3/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D9%85%D9%82%D8%B1%D8%A8%D8%A9-%D9%85%D9%86-%D8%B3%D9%8A%D9%81)
+- **على يد 4 أشخاص.. اغتيال سيف الإسلام القذافي في منزله**: [Link](https://www.alarabiya.net/north-africa/libya/2026/02/03/%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%B3%D9%8A%D9%81-%D8%A7%D9%84%D8%A7%D8%B3%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D8%B0%D8%A7%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D9%84%D9%88%D8%A7%D8%A1-444-%D9%8A%D9%86%D9%81%D9%8A-%D8%B9%D9%84%D8%A7%D9%82%D8%AA%D9%87-%D8%A8%D9%85%D9%82%D8%AA%D9%84%D9%87)
+- **سيف القذافي: إعلان وفاة نجل معمر القذافي بظروف غامضة**: [Link](https://www.bbc.com/arabic/articles/cvgrd1qlyddo)
+
+
+### leverkusen – sankt pauli (N/A, Tue, 3 Feb 2026 11:10:00 -0800)
+
+- **DFB Pokal Last 8 Preview | Bayer Leverkusen vs St. Pauli & Holstein Kiel vs VfB Stuttgart**: [Link](https://sports.yahoo.com/articles/dfb-pokal-last-8-preview-145000872.html)
+- **Preview: Bayer Leverkusen vs St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/dfb-pokal/preview/b-leverkusen-vs-st-pauli-prediction-team-news-lineups_591175.html)
+- **Where to watch Tottenham vs. Man City live s'tream, TV channel, start time for Premier League match**: [Link](https://www.westernwheel.ca/classifieds/announcements-and-events/anniversaries/2092883)
+
+
+### league cup (N/A, Tue, 3 Feb 2026 09:30:00 -0800)
+
+- **Martin Odegaard shares what has impressed him about Chelsea under Liam Rosenior**: [Link](https://www.thechelseachronicle.com/news/martin-odegaard-shares-what-has-impressed-him-about-chelsea-under-liam-rosenior/)
+- **First Carabao Cup finalist to be decided tonight**: [Link](https://terrikon.com/en/posts/555459)
+- **Bukayo Saka OUT of Arsenal squad vs Chelsea as new injury timeline emerges**: [Link](https://www.mirror.co.uk/sport/football/news/breaking-bukayo-saka-arsenal-chelsea-36665267)
+
+
 ### المغرب (N/A, Tue, 3 Feb 2026 10:00:00 -0800)
 
 - **عاجل.. الاتحاد المغربي يرد على عقوبات نهائي أفريقيا في بيان رسمي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D8%A7%D8%AC%D9%84--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A/bltbc2f33cef1399684)
