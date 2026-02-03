@@ -1,3 +1,24 @@
+### or chute (N/A, Mon, 2 Feb 2026 18:20:00 -0800)
+
+- **Marché : Avec une chute de 14% en deux séances, l'or poursuit sa dégringolade ce lundi... Mais est-ce vraiment parti pour durer?**: [Link](https://www.tradingsat.com/actualites/marches-financiers/avec-une-chute-de-14-en-deux-seances-l-or-poursuit-sa-degringolade-ce-lundi-mais-est-ce-vraiment-parti-pour-durer-1155545.html)
+- **Pourquoi l’or et l’argent s’effondrent après l’annonce du candidat de Trump pour la FED**: [Link](https://www.20minutes.fr/economie/4198966-20260130-cours-or-argent-devissent-apres-nomination-trump-nouveau-patron-fed)
+- **Mini krach sur les métaux précieux**: [Link](https://www.bfmtv.com/economie/replay-emissions/good-morning-market/video-mini-krach-sur-les-metaux-precieux_VN-202602020368.html)
+
+
+### jeffrey epstein files pdf (N/A, Mon, 2 Feb 2026 18:00:00 -0800)
+
+- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
+- **Partial government shutdown to continue until at least Tuesday - live updates | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/trump-administration-news-02-02-26)
+- **The Government Published Dozens of Nude Photos in the Epstein Files**: [Link](https://www.nytimes.com/2026/02/01/us/nude-photos-epstein-files.html)
+
+
+### دعاء النصف من شعبان (N/A, Mon, 2 Feb 2026 15:00:00 -0800)
+
+- **هؤلاء محرومون في ليلة النصف من شعبان**: [Link](https://www.aljazeera.net/religion/2026/1/30/%D9%87%D8%A4%D9%84%D8%A7%D8%A1-%D9%85%D8%AD%D8%B1%D9%88%D9%85%D9%88%D9%86-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D9%81-%D9%85%D9%86-%D8%B4%D8%B9%D8%A8%D8%A7%D9%86)
+- **الإمارات للإفتاء يوضح فضل إحياء ليلة النصف من شعبان**: [Link](https://24.ae/article/944840/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%A5%D9%81%D8%AA%D8%A7%D8%A1-%D9%8A%D9%88%D8%B6%D8%AD-%D9%81%D8%B6%D9%84-%D8%A5%D8%AD%D9%8A%D8%A7%D8%A1-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D9%81-%D9%85%D9%86-%D8%B4%D8%B9%D8%A8%D8%A7%D9%86)
+- **قيادات دينية وإدارية وتشريعية تساهم في إحياء الليلة في مسجد الإمام الحسين**: [Link](https://twaslnews.twaslnews.com/122098/)
+
+
 ### météo tanger (N/A, Mon, 2 Feb 2026 17:10:00 -0800)
 
 - **Intempéries : Les liaisons maritimes Tarifa-Tanger encore suspendues**: [Link](https://www.leconomiste.com/flash-infos/intemperies-les-liaisons-maritimes-tarifa-tanger-suspendues/)
