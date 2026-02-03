@@ -1,3 +1,31 @@
+### arsenal (N/A, Tue, 3 Feb 2026 12:40:00 -0800)
+
+- **Liam Rosenior's furious four-word blast at Arsenal players caught on camera**: [Link](https://www.football.london/chelsea-fc/news/liam-rosenior-chelsea-arsenal-blast-33358298)
+- **Liam Rosenior's angry blast at Arsenal stars caught on camera before Chelsea clash**: [Link](https://www.mirror.co.uk/sport/football/news/chelsea-rosenior-arsenal-league-cup-36665673)
+- **Chelsea boss Liam Rosenior's four-word blast at Arsenal stars caught on camera**: [Link](https://www.express.co.uk/sport/football/2166429/chelsea-liam-rosenior-arsenal)
+
+
+### marseille vs rennes (N/A, Tue, 3 Feb 2026 12:40:00 -0800)
+
+- **Preview: Marseille vs Rennes - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/marseille/coupe-de-france/preview/marseille-vs-rennes-prediction-team-news-lineups_591181.html)
+- **Marseille’s January Signings Set to Start Against Stade Rennais in Coupe de France**: [Link](https://news.ssbcrack.com/marseilles-january-signings-set-to-start-against-stade-rennais-in-coupe-de-france/)
+- **Major blow for OM: Nayef Aguerd ruled out against Rennes in the Coupe de France**: [Link](https://foot-africa.com/en/news/major-blow-for-om-nayef-aguerd-ruled-out-against-rennes-in-the-coupe-de-france-1070144/)
+
+
+### أولمبيك مارسيليا ضد رين (N/A, Tue, 3 Feb 2026 12:40:00 -0800)
+
+- **أكرد يغيب عن مواجهة رين بداعي الإصابة.. وفحوصات تحدد مدة الغياب**: [Link](https://www.hesport.com/%D8%A3%D9%83%D8%B1%D8%AF-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B1%D9%8A%D9%86-%D8%A8%D8%AF%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8-425574.html)
+- **ضربة قاسية لمارسيليا بعد إصابة نايف أكرد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D9%8A%D8%A7%D8%A8-%D9%86%D8%A7%D9%8A%D9%81-%D8%A3%D9%83%D8%B1%D8%AF-%D8%B9%D9%86-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/15317)
+- **اكرد يغيب عن كأس فرنسا للإصابة في العضلة الضامة**: [Link](https://www.almountakhab.com/node/16222422)
+
+
+### ai (N/A, Tue, 3 Feb 2026 12:30:00 -0800)
+
+- **Anthropic’s Move Into Legal Is Sinking Data Services Stocks**: [Link](https://www.bloomberg.com/news/articles/2026-02-03/legal-software-stocks-plunge-as-anthropic-releases-new-ai-tool)
+- **Data-Provider Stocks Tumble on AI Competition Fears**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp-500-nasdaq-02-03-2026/card/data-provider-stocks-tumble-on-ai-competition-fears-C97KvtPTsT9H3joFwS7C?gaa_at=eafs&gaa_n=AWEtsqeJnrbPTRJuqJP7XsX19XYIEU_3JMfXXnsJEHanvmMdtB7Hg5Dt1TRP&gaa_ts=69826640&gaa_sig=8UO7vHIssE3nLftzN7X90FjvarGtEfe6ryz3GsGcJ793AwNWHe4WTz65FIQRLvWXL13MgUgxWQr_gNY4tnXh_A%3D%3D)
+- **FTSE 100 falls back from record high amid AI worries; gold heads for best day since 2008 – as it happened**: [Link](https://www.theguardian.com/business/live/2026/feb/03/gold-silver-prices-markets-stabilise-spacex-buys-xai-uk-inflation-stock-markets-business-live-news-updates)
+
+
 ### hull city – watford (N/A, Tue, 3 Feb 2026 11:50:00 -0800)
 
 - **Preview: Hull City vs Watford - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hull-city/preview/hull-city-vs-watford-prediction-team-news-lineups_591144.html)
