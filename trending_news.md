@@ -1,3 +1,45 @@
+### hull city – watford (N/A, Tue, 3 Feb 2026 11:50:00 -0800)
+
+- **Preview: Hull City vs Watford - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hull-city/preview/hull-city-vs-watford-prediction-team-news-lineups_591144.html)
+- **Football Bet Of The Day: James Milton has a 6-5 selection from the Championship**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-a-6-5-selection-from-the-championship-ai1yU6W3Oocq/)
+- **Tuesday Championship Tips: Back Tigers' fine run to continue against managerless Watford**: [Link](https://onefootball.com/pt-br/noticias/tuesday-championship-tips-back-tigers-fine-run-to-continue-against-managerless-watford-42344059)
+
+
+### marseille – rennes (N/A, Tue, 3 Feb 2026 11:40:00 -0800)
+
+- **OM-Rennes, quelles chaînes diffusent le match ?**: [Link](https://www.sports.fr/football/coupe-de-france/om-rennes-quelles-chaines-diffusent-le-match-987425.html)
+- **OM: blessé, Nayef Aguerd absent face au Stade Rennais**: [Link](https://www.lesiteinfo.com/sport/665865-om-blesse-nayef-aguerd-absent-face-au-stade-rennais.html)
+- **L’OM mis sous pression par ses supporters, Rodri sous la menace d’une grosse sanction**: [Link](https://www.footmercato.net/a8036419471649864068-lom-mis-sous-pression-par-ses-supporters-rodri-sous-la-menace-dune-grosse-sanction)
+
+
+### سد واد المخازن (N/A, Tue, 3 Feb 2026 11:40:00 -0800)
+
+- **البواري: ارتفاع واردات المغرب من الحبوب والأعلاف يعرض الفلاحين لتقلبات الأسعار**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A8%D9%88%D8%A7%D8%B1%D9%8A-%D9%8A%D8%A8%D8%B4%D8%B1-%D8%A8%D9%85%D9%88%D8%B3%D9%85-%D9%81%D9%84%D8%A7%D8%AD%D9%8A-%D9%88%D8%A7%D8%B9%D8%AF-360-%D9%85%D9%84%D9%85-%D9%85%D9%86-%D8%A7/)
+- **توقيت تصريف مياه سد "واد المخازن" .. تدخل احترافي أم إهمال استراتيجي؟**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%AA%D8%B5%D8%B1%D9%8A%D9%81-%D9%85%D9%8A%D8%A7%D9%87-%D8%B3%D8%AF-%D9%88%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%B2%D9%86-%D8%AA%D8%AF%D8%AE%D9%84-%D8%A7-1695927.html)
+- **نسبة ملء السدود المغربية تصل إلى 60,8 في المائة**: [Link](https://barlamane.com/%D9%86%D8%B3%D8%A8%D8%A9-%D9%85%D9%84%D8%A1-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-608-%D9%81%D9%8A-%D8%A7%D9%84/)
+
+
+### arsenal – chelsea (N/A, Tue, 3 Feb 2026 11:30:00 -0800)
+
+- **Martin Odegaard shares what has impressed him about Chelsea under Liam Rosenior**: [Link](https://www.thechelseachronicle.com/news/martin-odegaard-shares-what-has-impressed-him-about-chelsea-under-liam-rosenior/)
+- **First Carabao Cup finalist to be decided tonight**: [Link](https://terrikon.com/en/posts/555459)
+- **“The reality,” Chelsea manager insists Arsenal are favourites**: [Link](https://www.justarsenal.com/the-reality-chelsea-manager-insists-arsenal-are-favourites/409186)
+
+
+### آرسنال ضد تشيلسي (N/A, Tue, 3 Feb 2026 11:30:00 -0800)
+
+- **بالمر على الدكة.. تشيلسي يواجه آرسنال بتشكيل دفاعي بحت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%83%D8%A9--%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%AF%D9%81%D8%A7%D8%B9%D9%8A-%D8%A8%D8%AD%D8%AA/blt255cbd12a0e3c438)
+- **مواجهة حاسمة بين آرسنال وتشلسي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-2026-02-03)
+- **روسينيور يهدد آرسنال: سنقلب الطاولة ونخطف التأهل**: [Link](https://24.ae/article/945026/)
+
+
+### قانون الشيكات الجديد (N/A, Tue, 3 Feb 2026 11:30:00 -0800)
+
+- **العقوبات الحبسية في حق مزوري الشيكات تدخل حيز التنفيذ بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A8%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AD%D9%82-%D9%85%D8%B2%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B4%D9%8A%D9%83%D8%A7%D8%AA-%D8%AA-1696232.html)
+- **رسميا.. التعديلات الجديدة المتعلقة بقانون الشيك تدخل حيز التنفيذ - تليكسبريس**: [Link](https://telexpresse.com/453177.html)
+- **قانون الشيكات الجديد يدخل حيز التنفيذ.. تخفيف العقوبات وإعطاء فرصة لتسوية الوضعية**: [Link](https://al3omk.com/1135683.html)
+
+
 ### albacete – barcelone (N/A, Tue, 3 Feb 2026 11:10:00 -0800)
 
 - **Albacete-Barcelone, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/espagne/coupe-d-espagne/albacete-barcelone-quelle-chaine-diffuse-le-match-987429.html)
