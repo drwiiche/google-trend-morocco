@@ -1,3 +1,10 @@
+### justice gov epstein (N/A, Tue, 3 Feb 2026 14:30:00 -0800)
+
+- **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
+- **All About the Epstein Files**: [Link](https://www.nytimes.com/2026/02/03/world/epstein-files-russia-ukraine-venezuela.html)
+- **Bill Gates, Elon Musk among big names in Epstein files. Here's what the latest documents show.**: [Link](https://www.cbsnews.com/news/bill-gates-elon-musk-epstein-files-what-documents-show/)
+
+
 ### justice gov epstein files (N/A, Tue, 3 Feb 2026 14:20:00 -0800)
 
 - **Department of Justice Publishes 3.5 Million Responsive Pages in Compliance with the Epstein Files Transparency Act**: [Link](https://www.justice.gov/opa/video/department-justice-publishes-35-million-responsive-pages-compliance-epstein-files)
