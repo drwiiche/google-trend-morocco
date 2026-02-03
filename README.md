@@ -1,3 +1,17 @@
+### احوال الطقس (N/A, Mon, 2 Feb 2026 23:00:00 -0800)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-46-1695192.html)
+- **أجواء ضبابية متوقعة وارتفاع في درجات الحرارة يوم الأحد**: [Link](https://sefroupress.com/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B6%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%88%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7/)
+- **حالة الطقس في المغرب اليوم الأحد 01 فبراير/ شباط 2026**: [Link](https://www.almaghribtoday.net/1399/035854-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-01-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D8%B4%D8%A8%D8%A7%D8%B7-2026)
+
+
+### barrages maroc (N/A, Mon, 2 Feb 2026 20:50:00 -0800)
+
+- **Année exceptionnelle ou retour à la norme ? Comprendre la situation climatique au Maroc**: [Link](https://medias24.com/2026/01/31/ok-annee-exceptionnelle-ou-retour-a-la-norme-comprendre-la-situation-climatique-au-maroc-1618565/)
+- **Barrages: Un stock de plus de 10 milliards de m3**: [Link](https://www.leconomiste.com/barrages-un-stock-de-plus-de-10-milliards-de-m3/)
+- **Pluies et neige relancent la campagne agricole : des indicateurs en nette amélioration (El Bouari)**: [Link](https://lematin.ma/nation/pluies-et-neige-relancent-la-campagne-agricole/327699)
+
+
 ### جيفري ابستين (N/A, Mon, 2 Feb 2026 14:40:00 -0800)
 
 - **إبستين يجلب بيل وهيلاري كلينتون للمثول أمام الكونغرس**: [Link](https://www.aljazeera.net/news/2026/2/3/%D8%A5%D8%A8%D8%B3%D8%AA%D9%8A%D9%86-%D9%8A%D8%AC%D9%84%D8%A8-%D8%A8%D9%8A%D9%84-%D9%88%D9%87%D9%8A%D9%84%D8%A7%D8%B1%D9%8A-%D9%83%D9%84%D9%8A%D9%86%D8%AA%D9%88%D9%86)
