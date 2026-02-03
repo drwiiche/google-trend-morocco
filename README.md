@@ -1,3 +1,38 @@
+### milan ac (N/A, Tue, 3 Feb 2026 13:30:00 -0800)
+
+- **Bologne 0-3 AC Milan, Serie A : résumé du match (03/02/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/bologne-ac-milan-live/673186)
+- **PRONOS PARIS RMC Le nul du jour du 3 février – Serie A – Italie**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-3-fevrier-serie-a-italie_AN-202602020038.html)
+- **Scudetto : L’Inter en pole, mais le Milan n’a pas dit son dernier mot… Evacuo relance le suspense**: [Link](https://www.teamfootball.fr/championnats/serie-a/scudetto-linter-en-pole-mais-le-milan-na-pas-dit-son-dernier-mot-evacuo-relance-le-suspense/)
+
+
+### barca (N/A, Tue, 3 Feb 2026 13:20:00 -0800)
+
+- **Come ho scelto e acquistato (col brivido!) la barca nuova dei miei sogni**: [Link](https://www.giornaledellavela.com/2026/02/03/barca-nuova-acquisto/)
+- **Acquisto e consegna del Beneteau Oceanis 46.1: l’esperienza di Emidio Salvatorelli**: [Link](https://news.ssbcrack.com/acquisto-e-consegna-del-beneteau-oceanis-46-1-lesperienza-di-emidio-salvatorelli/)
+- **Il General Manager di Azimut a DN: “Seadeck 9 è la barca più grande mai realizzata ad Avigliana” - Video**: [Link](https://www.dailynautica.com/interviste/azimut-seadeck-9-varo-intervista-andrea-antichi-daily-nautica/184441/)
+
+
+### grok (N/A, Tue, 3 Feb 2026 13:10:00 -0800)
+
+- **X offices raided in France as UK opens fresh investigation into Grok**: [Link](https://www.bbc.com/news/articles/ce3ex92557jo)
+- **Paris prosecutors raid X offices as part of investigation into child abuse images and deepfakes**: [Link](https://www.yahoo.com/news/videos/paris-prosecutors-raid-x-offices-202045142.html)
+- **X offices raided in France as prosecutors investigate child abuse images and deepfakes**: [Link](https://apnews.com/article/france-x-investigation-seach-elon-musk-1116be84d84201011219086ecfd4e0bc)
+
+
+### lamine yamal (N/A, Tue, 3 Feb 2026 13:00:00 -0800)
+
+- **Lamine Yamal: 'I Hope to Stay at Barcelona for Life'**: [Link](https://m.elbotola.com/en/article/2026-02-03-09-34-582.html)
+- **Barcelona could soon receive an offer football has rarely seen — Yamal the target**: [Link](https://foot-africa.com/en/news/barcelona-could-soon-receive-an-offer-football-has-rarely-seen-yamal-the-target-1067774/)
+- **FC Barcelona: Lamine Yamal reassures the Catalans**: [Link](https://sports.yahoo.com/articles/fc-barcelona-lamine-yamal-reassures-100500835.html)
+
+
+### chelsea (N/A, Tue, 3 Feb 2026 12:50:00 -0800)
+
+- **How to buy last-minute Carabao Cup 2025/26 tickets: EFL Cup fixtures, final prices, teams & more**: [Link](https://www.goal.com/en-ca/news/carabao-cup-tickets/bltd3b4f718b33673e9)
+- **When is the Carabao Cup final? How to get tickets as Arsenal and Chelsea face off in semi-final**: [Link](https://www.londonworld.com/sport/football/arsenal-fc/when-is-carabao-cup-final-tickets-arsenal-chelsea-semi-final-5501726)
+- **bet365 bonus code UK: Use MYBETCODE for Carabao Cup free bets**: [Link](https://mybettingsites.co.uk/news/bet365-bonus-code-uk-use-mybetcode-for-carabao-cup-free-bets-3rd-feb/)
+
+
 ### arsenal (N/A, Tue, 3 Feb 2026 12:40:00 -0800)
 
 - **Liam Rosenior's furious four-word blast at Arsenal players caught on camera**: [Link](https://www.football.london/chelsea-fc/news/liam-rosenior-chelsea-arsenal-blast-33358298)
