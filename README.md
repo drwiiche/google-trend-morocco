@@ -1,3 +1,10 @@
+### ألافيس ضد ريال سوسيداد (N/A, Wed, 4 Feb 2026 12:20:00 -0800)
+
+- **ريال سوسيداد يتأهل لنصف نهائي كأس ملك إسبانيا بعد الفوز على ألافيس 3-2**: [Link](https://www.youm7.com/story/2026/2/5/%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2/7294001)
+- **عبد الرحمان رباش يواصل عروضه القوية ويحرج الناخب الوطني بيتكوفيتش !!**: [Link](https://dznews.dz/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D9%85%D8%A7%D9%86-%D8%B1%D8%A8%D8%A7%D8%B4-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%B9%D8%B1%D9%88%D8%B6%D9%87-%D8%A7%D9%84%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%8A/)
+- **كأس ملك إسبانيا.. ريال سوسيداد يقلب الطاولة علي ديبورتيفو الأفيس**: [Link](https://www.elbalad.news/6859687)
+
+
 ### grand theft auto vi (N/A, Wed, 4 Feb 2026 13:50:00 -0800)
 
 - **Grand Theft Auto 6 may not have a physical version on day one to avoid leaks, report claims**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-may-not-have-a-physical-version-on-day-one-to-avoid-leaks-report-claims/)
