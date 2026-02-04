@@ -1,3 +1,45 @@
+### مان سيتي ضد نيوكاسل يونايتد (N/A, Wed, 4 Feb 2026 11:30:00 -0800)
+
+- **موعد مباراة مانشستر سيتي ونيوكاسل يونايتد في كأس الرابطة الإنجليزية 2025-2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-2025-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt3eb0dbec13796df8)
+- **رقم مميز لـ دوناروما هذا الموسم**: [Link](https://hihi2.com/2026/02/04/p3635426.html)
+- **تاريخ مواجهات مانشستر سيتي ونيوكاسل يونايتد في كأس كاراباو**: [Link](https://hihi2.com/2026/02/03/p3633845.html)
+
+
+### inter – torino (N/A, Wed, 4 Feb 2026 11:20:00 -0800)
+
+- **Preview: Inter Milan vs Torino - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/coppa-italia/preview/inter-milan-vs-torino-prediction-team-news-lineups_591245.html)
+- **Coppa Italia quarter final official line-ups: Inter vs. Torino**: [Link](https://football-italia.net/coppa-italia-qf-line-ups-inter-vs-torino/)
+- **Official Starting Lineups – Inter Milan Vs Torino: Issiaka & Davide Frattesi**: [Link](https://onefootball.com/fr/news/official-starting-lineups-inter-milan-vs-torino-issiaka-davide-frattesi-42358730)
+
+
+### deportivo alavés – real sociedad (N/A, Wed, 4 Feb 2026 11:20:00 -0800)
+
+- **Matarazzo: «Los jugadores están bien, he notado frescura física»**: [Link](https://onefootball.com/en/news/matarazzo-los-jugadores-estan-bien-he-notado-frescura-fisica-42352957)
+- **Alavés - Real Sociedad, en directo el partido de cuartos de final de la Copa del Rey**: [Link](https://www.rtve.es/deportes/20260204/alaves-real-sociedad-directo-resumen-resultado-cuartos-copa-rey/16920875.shtml)
+- **Derbi vasco con billete a semifinales en juego**: [Link](https://www.noticiasdenavarra.com/futbol/2026/02/03/derbi-vasco-billete-semifinales-juego-10654677.html)
+
+
+### manchester city – newcastle (N/A, Wed, 4 Feb 2026 11:10:00 -0800)
+
+- **Pep provides injury update ahead of Newcastle Carabao Cup decider**: [Link](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-newcastle-team-news-63905713)
+- **Eddie Howe's team news update: Bruno, Miley and Botman latest ahead of Carabao Cup second leg**: [Link](https://www.newcastleunited.com/en/news/eddie-howes-team-news-update-bruno-miley-and-botman-latest-ahead-of-carabao-cup-second-leg)
+- **Man City star suffers injury blow ahead of Carabao Cup semi-final second leg**: [Link](https://hayters.com/man-city-star-suffers-injury-blow-ahead-of-carabao-cup-semi-final-second-leg/)
+
+
+### lyon – laval (N/A, Wed, 4 Feb 2026 11:10:00 -0800)
+
+- **Les Bad Gones dénoncent les faux fans de l'OL, Lens prépare un envahissement à Troyes**: [Link](https://www.onzemondial.com/ligue-1/les-bad-gones-denoncent-les-faux-fans-de-lol-lens-prepare-un-envahissement-a-troyes-979260)
+- **'Nos chances sont minimes, mais...', Olivier Frapolli, entraîneur du Stade Lavallois se livre avant le choc face à l'OL**: [Link](https://madeinfoot.ouest-france.fr/infos/article-exclu-nos-chances-sont-minimes-mais-olivier-frapolli-entraineur-du-stade-lavallois-se-livre-avant-le-choc-face-511668.html)
+- **Lyon - Stade Lavallois : Diffusion TV et en clair, streaming et compos probables**: [Link](https://www.goal.com/fr/news/lyon-stade-lavallois-diffusion-tv-et-en-clair-streaming-et-compos-probables/blt6e430d54780b30b9)
+
+
+### mateta (N/A, Wed, 4 Feb 2026 10:50:00 -0800)
+
+- **Jean-Philippe Mateta: Crystal Palace and France striker faces uncertain future**: [Link](https://www.bbc.com/sport/football/articles/ce3exjk7x89o)
+- **Journalist says it was Juventus target’s agent that called Bianconeri**: [Link](https://www.juvefc.com/journalist-says-it-was-juventus-targets-agent-that-called-bianconeri/)
+- **Milan’s moment of scrutiny, Mateta’s knee and Maignan’s conviction**: [Link](https://milanreports.com/2026/02/03/milan-mateta-knee-maignan-conviction/)
+
+
 ### galatasaray – istanbulspor (N/A, Wed, 4 Feb 2026 10:00:00 -0800)
 
 
