@@ -1,3 +1,10 @@
+### cristiano ronaldo (N/A, Wed, 4 Feb 2026 15:10:00 -0800)
+
+- **Ronaldo Ends 'Rebellion' Against Al-Nassr Management, Returns to Training Ahead of Al-Ittihad Clash**: [Link](https://m.elbotola.com/en/article/2026-02-04-18-24-650.html)
+- **Football gossip: Ronaldo, Romero, Anderson, Casemiro, Tonali, Neves, Roefs, Nketiah**: [Link](https://www.bbc.com/sport/football/articles/cpwn48xdxldo)
+- **Cristiano Ronaldo & three more players who are currently unhappy in Saudi Arabia**: [Link](https://www.football365.com/news/cristiano-ronaldo-three-more-players-who-are-currently-unhappy-in-saudi-arabia)
+
+
 ### ألافيس ضد ريال سوسيداد (N/A, Wed, 4 Feb 2026 12:20:00 -0800)
 
 - **ريال سوسيداد يتأهل لنصف نهائي كأس ملك إسبانيا بعد الفوز على ألافيس 3-2**: [Link](https://www.youm7.com/story/2026/2/5/%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2/7294001)
