@@ -1,3 +1,10 @@
+### grand theft auto vi (N/A, Wed, 4 Feb 2026 13:50:00 -0800)
+
+- **Grand Theft Auto 6 may not have a physical version on day one to avoid leaks, report claims**: [Link](https://www.videogameschronicle.com/news/grand-theft-auto-6-may-not-have-a-physical-version-on-day-one-to-avoid-leaks-report-claims/)
+- **"That's not the plan" Take-Two CEO shoots down rumors of no physical GTA 6 copies at launch**: [Link](https://www.eurogamer.net/thats-not-the-plan-take-two-ceo-shoots-down-rumors-of-no-physical-gta-6-copies-at-launch)
+- **GRTV News - Grand Theft Auto VI seemingly on track for November launch**: [Link](https://www.gamereactor.eu/video/783193/GRTV+News+-+Grand+Theft+Auto+VI+seemingly+on+track+for+November+launch/)
+
+
 ### الإنتر ضد تورينو (N/A, Wed, 4 Feb 2026 13:20:00 -0800)
 
 - **عاجل: إنتر ميلان يسحق تورينو بخماسية صادمة 5-0... هل سيكرر المذبحة في كأس إيطاليا؟**: [Link](https://yemen-press.net/news164159.html)
