@@ -1,3 +1,22 @@
+### galatasaray – istanbulspor (N/A, Wed, 4 Feb 2026 10:00:00 -0800)
+
+
+
+
+### المغرب (N/A, Wed, 4 Feb 2026 10:00:00 -0800)
+
+- **خلت من مظاهر الحياة.. السلطات المغربية تواصل إخلاء "القصر الكبير" وتتوقع مزيدا من الفيضانات**: [Link](https://www.aljazeera.net/news/2026/2/4/%D8%AE%D9%84%D8%AA-%D9%85%D9%86-%D9%85%D8%B8%D8%A7%D9%87%D8%B1-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9)
+- **إثر سيول وفيضانات.. إجلاء عشرات الآلاف بالمغرب وإجراءات استثنائية بالأندلس والبرتغال**: [Link](https://www.aljazeera.net/news/2026/2/4/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%A5%D8%AC%D9%84%D8%A7%D8%A1-%D9%88%D8%A7%D8%B3%D8%B9%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8)
+- **وزارة الداخلية تعلن إجلاء أزيد من 108 آلاف شخص في عدة أقاليم**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%A5%D8%AC%D9%84%D8%A7%D8%A1-%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-108-%D8%A2%D9%84%D8%A7-1696946.html)
+
+
+### tirage euromillions (N/A, Wed, 4 Feb 2026 09:50:00 -0800)
+
+- **"J'en tremble encore" : à la recherche des 21 amis qui se partagent le jackpot de l'EuroMillions à 123 millions d'euros**: [Link](https://www.tf1info.fr/international/video-reportage-j-en-tremble-encore-a-la-recherche-des-21-amis-qui-se-partagent-le-jackpot-de-l-euromillions-a-123-millions-d-euros-2422570.html)
+- **EuroMillions : un seul gagnant sur le plan juridique, pas de donation possible… Comment les 21 amis vont faire pour se partager le jackpot**: [Link](https://www.ladepeche.fr/2026/02/04/euromillions-un-seul-gagnant-sur-le-plan-juridique-pas-de-donation-possible-comment-les-21-amis-vont-faire-pour-se-partager-le-jackpot-13207709.php)
+- **"J'ai dépensé 5 euros et j'en ai gagné 6 millions… ma vie va changer"**: [Link](https://www.bruxellestoday.be/actualite/euromillions-amis-gagnent-jackpot.html)
+
+
 ### موعد اذان المغرب (N/A, Wed, 4 Feb 2026 09:50:00 -0800)
 
 - **كسوف شمسي يوم تحري الهلال.. فمتى يبدأ رمضان؟**: [Link](https://www.aljazeera.net/science/2026/2/4/%D9%85%D8%AA%D9%89-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%83%D8%B3%D9%88%D9%81-%D8%B4%D9%85%D8%B3%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84)
