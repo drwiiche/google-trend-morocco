@@ -1,3 +1,9 @@
+### طقس القصر الكبير (N/A, Tue, 3 Feb 2026 14:40:00 -0800)
+
+- **نشرة إنذارية.. أمطار قوية ورياح عاصفية الأربعاء والخميس بعدد من مناطق المملكة – مجتمع**: [Link](https://anbaetv.ma/1167794)
+- **نشرة انذارية: أمطار ورياح قوية بعدد من مناطق المملكة – مجتمع**: [Link](https://anbaetv.ma/1167711)
+
+
 ### ksar el kebir (N/A, Tue, 3 Feb 2026 23:30:00 -0800)
 
 - **Alerte météo rouge au Nord : la protection des populations s’organise face à la menace des eaux**: [Link](https://ledesk.ma/2026/02/03/alerte-meteo-rouge-au-nord-la-protection-des-populations-sorganise-face-a-la-menace-des-eaux/)
