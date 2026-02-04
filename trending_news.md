@@ -1,3 +1,22 @@
+### troyes – lens (N/A, Wed, 4 Feb 2026 12:30:00 -0800)
+
+- **Troyes-Lens, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/coupe-de-france/troyes-lens-sur-quelle-chaine-voir-le-match-798435.html)
+- **PRONOS PARIS RMC Le pari football de Lionel Charbonnier du 4 février - Coupe de France**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-lionel-charbonnier-du-4-fevrier-coupe-de-france_AN-202602040573.html)
+- **"J’étais supporter lillois avant même de naître" : Stéphane Dumont (Troyes) ne cache pas son amour pour le LOSC avant de défier le RC Lens**: [Link](https://lepetitlillois.com/2026/02/04/jetais-supporter-lillois-avant-meme-de-naitre-stephane-dumont-troyes-ne-cache-pas-son-amour-pour-le-losc-avant-de-defier-le-rc-lens/)
+
+
+### inondations maroc ksar el kebir (N/A, Wed, 4 Feb 2026 12:30:00 -0800)
+
+- **Inondations : le ministère de l’Intérieur appelle à l'évacuation "immédiate" des zones à risque**: [Link](https://medias24.com/2026/02/04/inondations-le-ministere-de-linterieur-appelle-a-levacuation-immediate-des-zones-a-risque-1622609/)
+- **Intempéries : Ksar El Kébir, immersion dans une ville vidée par la crue**: [Link](https://telquel.ma/2026/02/04/intemperies-ksar-el-kebir-immersion-dans-une-ville-videe-par-la-crue_1973997)
+- **Intempéries : mobilisation des autorités et évacuation de plus de 108 000 personnes**: [Link](https://ledesk.ma/encontinu/intemperies-mobilisation-des-autorites-et-evacuation-de-plus-de-108-000-personnes/)
+
+
+### bls international (N/A, Wed, 4 Feb 2026 12:00:00 -0800)
+
+
+
+
 ### مان سيتي ضد نيوكاسل يونايتد (N/A, Wed, 4 Feb 2026 11:30:00 -0800)
 
 - **موعد مباراة مانشستر سيتي ونيوكاسل يونايتد في كأس الرابطة الإنجليزية 2025-2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-2025-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt3eb0dbec13796df8)
