@@ -1,3 +1,10 @@
+### ngolo kanté (N/A, Wed, 4 Feb 2026 08:20:00 -0800)
+
+- **Le président turc Recep Tayyip Erdogan impliqué dans le transfert de N'Golo Kanté à Fenerbahçe**: [Link](https://www.lequipe.fr/Football/Actualites/Le-president-turc-recep-tayyip-erdogan-implique-dans-le-transfert-de-n-golo-kante-a-fenerbahce/1639241)
+- **N’Golo Kanté revient finalement en Europe !**: [Link](https://www.sports.fr/football/mercato/ngolo-kante-revient-finalement-en-europe-987877.html)
+- **Coup de tonnerre : Kanté ne rejoindra pas Fenerbahçe, qui accuse Al-Ittihad**: [Link](https://www.eurosport.fr/football/transferts/2025-2026/mercato-i-pas-de-transfert-pour-ngolo-kante-fenerbahce-accuse-al-ittihad_sto23266192/story.shtml)
+
+
 ### karim benzema al hilal (N/A, Wed, 4 Feb 2026 05:40:00 -0800)
 
 - **Les premiers mots forts de Benzema à Al-Hilal**: [Link](https://www.footmercato.net/a5182584225067183285-les-premiers-mots-forts-de-benzema-a-al-hilal)
