@@ -1,3 +1,17 @@
+### justice gov (N/A, Tue, 3 Feb 2026 14:50:00 -0800)
+
+- **Founder of Punjabi Devils Motorcycle Club Stockton Pleads Guilty to Unlawfully Dealing in Firearms and Possessing a Machine Gun**: [Link](https://www.justice.gov/usao-edca/pr/founder-punjabi-devils-motorcycle-club-stockton-pleads-guilty-unlawfully-dealing)
+- **Stockton Biker Boss Flips, Admits Gun Dealing And Machine Gun Charge**: [Link](https://hoodline.com/2026/02/stockton-biker-boss-flips-admits-gun-dealing-and-machine-gun-charge/)
+- **'Punjabi Devils' Bike Gang Leader Convicted In Arms Trafficking Case In US**: [Link](https://www.ndtv.com/world-news/punjabi-devils-bike-gang-leader-convicted-in-arms-trafficking-case-in-us-10938339)
+
+
+### claude ai (N/A, Tue, 3 Feb 2026 13:10:00 -0800)
+
+- **Xcode 26.3 unlocks the power of agentic coding**: [Link](https://www.apple.com/newsroom/2026/02/xcode-26-point-3-unlocks-the-power-of-agentic-coding/)
+- **Apple’s Xcode now supports the Claude Agent SDK**: [Link](https://www.anthropic.com/news/apple-xcode-claude-agent-sdk)
+- **Apple adds agents from Anthropic and OpenAI to its coding tool**: [Link](https://www.cnbc.com/2026/02/03/apple-adds-agentic-coding-from-anthropic-and-openai-to-xcode.html)
+
+
 ### donald trump (N/A, Tue, 3 Feb 2026 15:30:00 -0800)
 
 - **Live updates: House begins votes to end government shutdown as Trump meets Colombian president | CNN Politics**: [Link](https://www.cnn.com/politics/live-news/trump-administration-news-02-03-26)
