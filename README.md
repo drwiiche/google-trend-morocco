@@ -1,3 +1,10 @@
+### meteo chefchaouen (N/A, Tue, 3 Feb 2026 22:30:00 -0800)
+
+- **Alerte météo rouge dans le Nord : pourquoi le Maroc fait face à des pluies exceptionnelles (DGM)**: [Link](https://ledesk.ma/encontinu/alerte-meteo-rouge-au-nord-pourquoi-le-maroc-fait-face-a-des-pluies-exceptionnelles-dgm/)
+- **Intempéries : Le ministère active la plateforme TelmidTICE pour les écoles fermées**: [Link](https://fr.hespress.com/461112-intemperies-le-ministere-active-la-plateforme-telmidtice-pour-les-ecoles-fermees.html)
+- **Le ministère de l’Éducation active l’apprentissage à distance dans les zones touchées par les perturbations météorologiques |**: [Link](https://fr.hibapress.com/news-232949.html)
+
+
 ### دعاء النصف من شعبان (N/A, Tue, 3 Feb 2026 21:40:00 -0800)
 
 - **للرزق وقضاء الحاجات.. اعرف أدعية ليلة النصف من شعبان 2026**: [Link](https://www.almasryalyoum.com/news/details/4189745)
