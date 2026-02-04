@@ -1,3 +1,10 @@
+### meteo tetouan (N/A, Tue, 3 Feb 2026 19:00:00 -0800)
+
+- **Le ministère de l’Éducation active l’apprentissage à distance dans les zones touchées par les perturbations météorologiques |**: [Link](https://fr.hibapress.com/news-232949.html)
+- **Alerte météo rouge au Nord : pourquoi le Maroc fait face à des pluies exceptionnelles (DGM)**: [Link](https://ledesk.ma/encontinu/alerte-meteo-rouge-au-nord-pourquoi-le-maroc-fait-face-a-des-pluies-exceptionnelles-dgm/)
+- **Intempéries : Le ministère active la plateforme TelmidTICE pour les écoles fermées**: [Link](https://fr.hespress.com/461112-intemperies-le-ministere-active-la-plateforme-telmidtice-pour-les-ecoles-fermees.html)
+
+
 ### simon bouazza (N/A, Tue, 3 Feb 2026 14:50:00 -0800)
 
 - **Le Forum de Liège se retrouve orphelin : son directeur, Simon Bouazza, est décédé ce lundi soir**: [Link](https://www.rtbf.be/article/le-forum-de-liege-se-retrouve-orphelin-son-directeur-simon-bouazza-est-decede-ce-lundi-soir-11672528)
