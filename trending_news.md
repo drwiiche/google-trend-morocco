@@ -1,3 +1,24 @@
+### الإنتر ضد تورينو (N/A, Wed, 4 Feb 2026 13:20:00 -0800)
+
+- **عاجل: إنتر ميلان يسحق تورينو بخماسية صادمة 5-0... هل سيكرر المذبحة في كأس إيطاليا؟**: [Link](https://yemen-press.net/news164159.html)
+- **قناة مجانية تعلن إذاعة مباراة إنتر ميلان وتورينو في ربع نهائي كأس إيطاليا**: [Link](https://kolelkoora.com/%D9%82%D9%86%D8%A7%D8%A9-%D9%85%D8%AC%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%A5%D8%B0%D8%A7%D8%B9%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84/)
+- **القنوات الناقلة لمباراة إنتر ميلان ضد تورينو اليوم في الدوري الإيطالي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/667547530655486-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%B6%D8%AF-%D8%AA%D9%88%D8%B1%D9%8A%D9%86%D9%88-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### jeux olympiques d'hiver 2030 (N/A, Wed, 4 Feb 2026 13:00:00 -0800)
+
+- **« On nous a donné les Jeux trop facilement et on le paye maintenant » : avis de grand froid sur Alpes 2030**: [Link](https://www.challenges.fr/politique/on-nous-a-donne-les-jeux-trop-facilement-et-on-le-paye-maintenant-avis-de-grand-froid-sur-alpes-2030_638855)
+- **Salaires, notes de frais, cartes bancaires… La crise s’aggrave au comité d’organisation des JO Alpes 2030**: [Link](https://www.leparisien.fr/sports/JO/salaires-notes-de-frais-cartes-bancaires-la-crise-saggrave-au-comite-dorganisation-des-jo-alpes-2030-03-02-2026-LJBUUDJXLREEHF6SXVC6UAAWZU.php)
+- **JO 2030 : nouvelle démission au sein du Comité d’organisation des Jeux dans les Alpes françaises**: [Link](https://www.lemonde.fr/sport/article/2026/02/02/jo-2030-nouvelle-demission-au-sein-du-comite-d-organisation-des-jeux-dans-les-alpes-francaises_6665131_3242.html)
+
+
+### فالنسيا ضد أتلتيك بيلباو (N/A, Wed, 4 Feb 2026 12:20:00 -0800)
+
+- **القنوات الناقلة لمباراة فالنسيا ضد أتلتيك بيلباو اليوم في كأس ملك إسبانيا مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/216246575230785-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **فالنسيا يصعد إلى ربع نهائي كأس إسبانيا**: [Link](https://www.ysscores.com/ar/news/332590/%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%8A%D8%B5%D8%B9%D8%AF-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+- **موعد مباراة فالنسيا وأتلتيك بلباو بتاريخ 2026/02/04 في كأس ملك إسبانيا – ربع النهائي والقنوات الناقلة**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%88%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D8%A8%D8%AA%D8%A7)
+
+
 ### city (N/A, Wed, 4 Feb 2026 12:50:00 -0800)
 
 - **City of Boston Restarts Rutherford Avenue Design As Funding Deadline Looms**: [Link](https://mass.streetsblog.org/2026/02/04/city-of-boston-restarts-rutherford-avenue-design-as-funding-deadline-looms)
