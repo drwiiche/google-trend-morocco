@@ -1,3 +1,10 @@
+### ksar el kebir (N/A, Tue, 3 Feb 2026 23:30:00 -0800)
+
+- **Alerte météo rouge au Nord : la protection des populations s’organise face à la menace des eaux**: [Link](https://ledesk.ma/2026/02/03/alerte-meteo-rouge-au-nord-la-protection-des-populations-sorganise-face-a-la-menace-des-eaux/)
+- **Intempéries : Ksar El Kébir entièrement évacuée**: [Link](https://mobile.telquel.ma/2026/02/03/intemperies-ksar-el-kebir-entierement-evacuee_1973781)
+- **Spéculation. "Exploiter la détresse des citoyens est une honte" (Ryad Mezzour)**: [Link](https://medias24.com/2026/02/03/speculation-exploiter-la-detresse-des-citoyens-est-une-honte-ryad-mezzour-1621227/)
+
+
 ### meteo chefchaouen (N/A, Tue, 3 Feb 2026 22:30:00 -0800)
 
 - **Alerte météo rouge dans le Nord : pourquoi le Maroc fait face à des pluies exceptionnelles (DGM)**: [Link](https://ledesk.ma/encontinu/alerte-meteo-rouge-au-nord-pourquoi-le-maroc-fait-face-a-des-pluies-exceptionnelles-dgm/)
