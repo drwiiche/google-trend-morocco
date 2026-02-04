@@ -1,3 +1,10 @@
+### موعد اذان المغرب (N/A, Wed, 4 Feb 2026 09:50:00 -0800)
+
+- **كسوف شمسي يوم تحري الهلال.. فمتى يبدأ رمضان؟**: [Link](https://www.aljazeera.net/science/2026/2/4/%D9%85%D8%AA%D9%89-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%83%D8%B3%D9%88%D9%81-%D8%B4%D9%85%D8%B3%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84)
+- **ماذا يحمل الطقس لشهر رمضان 2026؟ مؤشرات مناخية أولية**: [Link](https://www.arabiaweather.com/ar/content/%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AD%D9%85%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%84%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026%D8%9F-%D9%85%D8%A4%D8%B4%D8%B1%D8%A7%D8%AA-%D9%85%D9%86%D8%A7%D8%AE%D9%8A%D8%A9-%D8%A3%D9%88%D9%84%D9%8A%D8%A9)
+- **فلكيون يكشفون موعد دخول شهر رمضان في السعودية**: [Link](https://www.alarabiya.net/saudi-today/2026/02/04/%D9%81%D9%84%D9%83%D9%8A%D9%88%D9%86-%D9%8A%D9%83%D8%B4%D9%81%D9%88%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%AF%D8%AE%D9%88%D9%84-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-)
+
+
 ### ngolo kanté (N/A, Wed, 4 Feb 2026 08:20:00 -0800)
 
 - **Le président turc Recep Tayyip Erdogan impliqué dans le transfert de N'Golo Kanté à Fenerbahçe**: [Link](https://www.lequipe.fr/Football/Actualites/Le-president-turc-recep-tayyip-erdogan-implique-dans-le-transfert-de-n-golo-kante-a-fenerbahce/1639241)
