@@ -1,3 +1,10 @@
+### simon bouazza (N/A, Tue, 3 Feb 2026 14:50:00 -0800)
+
+- **Le Forum de Liège se retrouve orphelin : son directeur, Simon Bouazza, est décédé ce lundi soir**: [Link](https://www.rtbf.be/article/le-forum-de-liege-se-retrouve-orphelin-son-directeur-simon-bouazza-est-decede-ce-lundi-soir-11672528)
+- **Sarah Grosjean, Alex Vizorek, Pierre Theunis, Renaud Rutten et Sacha Springer : tous rendent hommage à Simon Bouazza, le directeur du Forum de Liège, décédé ce lundi au CHU**: [Link](https://www.sudinfo.be/id1104161/article/2026-02-03/sarah-grosjean-alex-vizorek-pierre-theunis-renaud-rutten-et-sacha-springer-tous)
+- **Décès de Simon Bouazza, légendaire directeur général et sauveur du Forum de Liège**: [Link](https://lpost.be/2026/02/02/deces-de-simon-bouazza-legendaire-directeur-general-et-sauveur-du-forum-de-liege/)
+
+
 ### justice gov (N/A, Tue, 3 Feb 2026 14:50:00 -0800)
 
 - **Founder of Punjabi Devils Motorcycle Club Stockton Pleads Guilty to Unlawfully Dealing in Firearms and Possessing a Machine Gun**: [Link](https://www.justice.gov/usao-edca/pr/founder-punjabi-devils-motorcycle-club-stockton-pleads-guilty-unlawfully-dealing)
