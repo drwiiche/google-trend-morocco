@@ -1,3 +1,17 @@
+### gta vi (N/A, Thu, 5 Feb 2026 00:30:00 -0800)
+
+- **GRTV News - Grand Theft Auto VI seemingly on track for November launch**: [Link](https://www.gamereactor.eu/video/783193/GRTV+News+-+Grand+Theft+Auto+VI+seemingly+on+track+for+November+launch/)
+- **GTA Online Support Will Seemingly Continue After GTA 6 Launch**: [Link](https://insider-gaming.com/gta-online-support-will-seemingly-continue-after-gta-6-launch/)
+- **GTA 6 is definitely not delayed, say fiscal reports from Rockstar Games’s parent company**: [Link](https://www.thepopverse.com/gaming-grand-theft-auto-vi-delay-rockstar-games-release-date-november-19)
+
+
+### ethan mbappé (N/A, Wed, 4 Feb 2026 23:30:00 -0800)
+
+- **Lille: Ethan Mbappé responds after his injury**: [Link](https://sports.yahoo.com/articles/lille-ethan-mbapp-responds-injury-185500500.html)
+- **Ethan Mbappe out for at least two months after thigh tendon injury - Foot Mercato**: [Link](https://tribuna.com/en/news/2026-02-04-ethan-mbappe-out-for-at-least-two-months-after-thigh-tendon-injury-foot-mercato/)
+- **Ethan Mbappe faces lengthy spell out with thigh injury**: [Link](https://africasoccer.com/ethan-mbappe-faces-lengthy-spell-out-with-thigh-injury/)
+
+
 ### كمال اللعبي (N/A, Wed, 4 Feb 2026 19:00:00 -0800)
 
 - **المطبخ المغربي يفقد أحد وجوهه المعروفة.. وفاة الشاف كمال اللعبي “كيمو”**: [Link](https://tanjanews.com/181040.html)
