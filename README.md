@@ -1,3 +1,10 @@
+### lamine yamal (N/A, Thu, 5 Feb 2026 11:50:00 -0800)
+
+- **€200m Barcelona star reduces social media activity, concentrates on football**: [Link](https://semprebarca.com/e200m-barcelona-star-reduces-social-media-activity-concentrates-on-football/)
+- **Lamine Yamal makes the difference**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4441497/lamine-yamal-makes-the-difference)
+- **The key shift that has helped Barcelona youngster rediscover peak form**: [Link](https://barcauniversal.com/the-key-shift-that-has-helped-barcelona-youngster-rediscover-peak-form/)
+
+
 ### betis – atlético madrid (N/A, Thu, 5 Feb 2026 11:20:00 -0800)
 
 - **En qué canal pasan Betis vs. Atlético de Madrid por la Copa del Rey 2025-2026 hoy**: [Link](https://es-us.noticias.yahoo.com/deportes/canal-pasan-betis-vs-atl%C3%A9tico-145516523.html)
