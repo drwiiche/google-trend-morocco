@@ -1,3 +1,29 @@
+### betis – atlético madrid (N/A, Thu, 5 Feb 2026 11:20:00 -0800)
+
+- **En qué canal pasan Betis vs. Atlético de Madrid por la Copa del Rey 2025-2026 hoy**: [Link](https://es-us.noticias.yahoo.com/deportes/canal-pasan-betis-vs-atl%C3%A9tico-145516523.html)
+- **Dos aparcamientos de la Cartuja reducen sus plazas y se reabre la SE-20 ante el partido de Copa**: [Link](https://www.infobae.com/america/agencias/2026/02/05/dos-aparcamientos-de-la-cartuja-reducen-sus-plazas-y-se-reabre-la-se-20-ante-el-partido-de-copa/)
+- **Vídeo | El estado actual del estadio de La Cartuja a horas del Betis-Atlético**: [Link](https://www.diariodesevilla.es/videos/video-actual-estadio-cartuja-horas-betis_8_2005821705.html)
+
+
+### strasbourg – monaco (N/A, Thu, 5 Feb 2026 11:20:00 -0800)
+
+- **Pour Monaco, le chemin de l'Europe passe par la Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/La-coupe-de-france-le-nouveau-chemin-vers-l-europe-de-monaco/1639403)
+- **RCSA-ASM : les compos probables**: [Link](https://onefootball.com/fr/news/rcsa-asm-les-compos-probables-42360698)
+- **Où regarder le 8e de Coupe de France face à Strasbourg à la télé' ?**: [Link](https://www.asmonaco.com/ou-regarder-le-8e-de-coupe-de-france-strasbourg-monaco-a-la-television/)
+
+
+### ريال بتيس ضد أتلتيكو مدريد (N/A, Thu, 5 Feb 2026 11:20:00 -0800)
+
+
+
+
+### atalanta – juventus (N/A, Thu, 5 Feb 2026 11:20:00 -0800)
+
+- **Coppa Italia | Le formazioni ufficiali di Atalanta-Juventus**: [Link](https://www.juventus.com/it/news/articoli/coppa-italia-2025-2026-formazioni-ufficiali-atalanta-juventus)
+- **Coppa-Italia, Napoli, Champions e Liga: le ultimissime**: [Link](https://www.corrieredellosport.it/news/on-air/2026/02/05-146349149/coppa-italia_napoli_champions_e_liga_le_ultimissime)
+- **LIVE Alle 21 Atalanta-Juve: Palladino con Scamacca, Spalletti punta su Openda**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Atalanta/05-02-2026/atalanta-juve-live-risultato-e-gol-in-diretta-coppa-italia.shtml)
+
+
 ### al hilal (N/A, Thu, 5 Feb 2026 10:20:00 -0800)
 
 - **Karim Benzema Leaves Al Ittihad to Join Saudi Rivals Al Hilal**: [Link](https://www.moroccoworldnews.com/2026/02/277323/karim-benzema-leaves-al-ittihad-to-join-saudi-rivals-al-hilal/)
