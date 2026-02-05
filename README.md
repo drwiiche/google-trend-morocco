@@ -1,3 +1,10 @@
+### bourita (N/A, Thu, 5 Feb 2026 05:50:00 -0800)
+
+- **Nasser Bourita à Washington pour une réunion ministérielle sur les minéraux critiques**: [Link](https://medias24.com/2026/02/04/nasser-bourita-a-washington-pour-une-reunion-ministerielle-sur-les-mineraux-critiques-1622784/)
+- **Info éco - Minerais stratégiques : la diplomatie de Donald Trump inquiète l’Europe**: [Link](https://www.france24.com/fr/%C3%A9missions/info-%C3%A9co/20260204-minerais-strat%C3%A9giques-la-diplomatie-de-donald-trump-inqui%C3%A8te-l-europe)
+- **Minerais critiques : les États-Unis bâtissent une alliance face à Pékin**: [Link](https://www.lebrief.ma/washington-mobilise-ses-allies-pour-securiser-lacces-aux-minerais-critiques-100140697/)
+
+
 ### bensouda (N/A, Thu, 5 Feb 2026 05:40:00 -0800)
 
 - **Noureddine Bensouda quitte la TGR - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/02/05/noureddine-bensouda-quitte-la-tgr-1623231/)
