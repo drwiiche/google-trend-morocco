@@ -1,3 +1,10 @@
+### bensouda (N/A, Thu, 5 Feb 2026 05:40:00 -0800)
+
+- **Noureddine Bensouda quitte la TGR - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/02/05/noureddine-bensouda-quitte-la-tgr-1623231/)
+- **Info360. Noureddine Bensouda quitte la TGR sur fond de tensions autour de la réforme des taxes locales**: [Link](https://fr.le360.ma/economie/info360-noureddine-bensouda-quitte-la-tgr-sur-fond-de-tensions-autour-de-la-reforme-des-taxes_37VJB7ES4BCVDFTHWGAOZQTZ7Y/)
+- **Noureddine Bensouda quitte la TGR, l’intérim confié à Abdellatif Amrani**: [Link](https://ledesk.ma/encontinu/noureddine-bensouda-quitte-la-tgr-linterim-confie-a-abdellatif-amrani/)
+
+
 ### ariane de rothschild (N/A, Thu, 5 Feb 2026 05:10:00 -0800)
 
 - **Epstein files show Swiss bank CEO de Rothschild kept up years‑long personal contact with financier**: [Link](https://www.reuters.com/business/finance/epstein-files-show-swiss-bank-ceo-de-rothschild-kept-up-yearslong-personal-2026-02-05/)
