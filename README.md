@@ -1,3 +1,10 @@
+### lyon fc (N/A, Wed, 4 Feb 2026 13:40:00 -0800)
+
+- **« Je sais qu’on vous a bien fait payer » : à Paris, Timothée Chalamet tacle le Grand Rex sur ses prix à l’avant-première de « Marty Supreme »**: [Link](https://www.leparisien.fr/paris-75/je-sais-quon-vous-a-bien-fait-payer-a-paris-timothee-chalamet-tacle-le-grand-rex-sur-ses-prix-a-lavant-premiere-de-marty-supreme-04-02-2026-4OSASY6UBBHG3IBBSPQ5V6B7DA.php)
+- **Ana Girardot, Adil Rami, Aure Atika... Les stars françaises rencontrent Timothée Chalamet à Paris**: [Link](https://www.parismatch.com/People/ana-girardot-adil-rami-aure-atika-les-stars-francaises-rencontrent-timothee-chalamet-a-paris-263989)
+- **Marty Supreme diffusé en 70mm à l’Arlequin**: [Link](https://www.boxofficepro.fr/marty-supreme-chalamet-safdie/)
+
+
 ### الفجر (N/A, Wed, 4 Feb 2026 22:00:00 -0800)
 
 - **«المغرب فى الإسكندرية 05.39».. جدول مواقيت الصلاة فى محافظات مصر غدًا الخميس 5 فبراير 2026**: [Link](https://www.almasryalyoum.com/news/details/4191400)
