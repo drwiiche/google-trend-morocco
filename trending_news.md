@@ -1,3 +1,10 @@
+### cnss (N/A, Thu, 5 Feb 2026 02:50:00 -0800)
+
+- **Transfert de la CNOPS à la CNSS : publiée au BO, voici les principales dispositions de la loi 54.23**: [Link](https://medias24.com/2026/02/03/transfert-de-la-cnops-a-la-cnss-publiee-au-bo-voici-les-principales-dispositions-de-la-loi-54-23-1621903/)
+- **AMO : trois évolutions majeures après la promulgation de la loi 54.23**: [Link](https://lematin.ma/nation/amo-trois-evolutions-majeures-apres-la-promulgation-de-la-loi-5423/328133)
+- **Le transfert de la CNOPS à la CNSS publié au BO**: [Link](https://ecoactu.ma/transfert-de-la-cnops-a-la-cnss-publie-au-bo/)
+
+
 ### chef kimo (N/A, Wed, 4 Feb 2026 20:10:00 -0800)
 
 - **Décès de Kamel Laâbi, connu sous le nom de Chef Kimo, figure marquante de la cuisine sur les réseaux sociaux**: [Link](https://www.maroc-hebdo.com/article/deces-de-kamel-laabi-connu-sous-le-nom-de-chef-kimo-figure-marquante-de-la-cuisine-sur-les-reseaux-sociaux)
