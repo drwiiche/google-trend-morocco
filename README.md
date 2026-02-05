@@ -1,3 +1,10 @@
+### chef kimo (N/A, Wed, 4 Feb 2026 20:10:00 -0800)
+
+- **Décès de Kamel Laâbi, connu sous le nom de Chef Kimo, figure marquante de la cuisine sur les réseaux sociaux**: [Link](https://www.maroc-hebdo.com/article/deces-de-kamel-laabi-connu-sous-le-nom-de-chef-kimo-figure-marquante-de-la-cuisine-sur-les-reseaux-sociaux)
+- **Décès de Chef Kimo à l'âge de 57 ans**: [Link](https://lematin.ma/societe/deces-de-chef-kimo-a-lage-de-57-ans/328172)
+- **Chef Kimo, figure emblématique de la cuisine en ligne, nous a quittés**: [Link](https://h24info.ma/maroc/chef-kimo-figure-emblematique-de-la-cuisine-en-ligne-nous-a-quittes/)
+
+
 ### مطر (N/A, Wed, 4 Feb 2026 22:40:00 -0800)
 
 - **بداية ارتفاع تدريجي للحرارة.. الأرصاد تكشف الظواهر الجوية اليوم والطقس حتى منتصف الأسبوع المقبل**: [Link](https://darelhilal.com/News/3172754.aspx)
