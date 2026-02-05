@@ -1,3 +1,10 @@
+### fenerbahçe – erzurumspor (N/A, Thu, 5 Feb 2026 09:50:00 -0800)
+
+- **Fenerbahçe Erzurumspor maçı Atv’de mi Aspor’da mı? Kante oynayacak mı?**: [Link](https://www.ulketv.com/foto-galeri/fenerbahce-erzurumspor-maci-atvde-mi-asporda-mi-kante-oynayacak-mi)
+- **Fenerbahçe, Erzurumspor FK ile Kupada Karşılaşacak**: [Link](https://www.egesaati.com.tr/fenerbahce-erzurumspor-fk-ile-kupada-karsilasacak)
+- **Fenerbahçe - Erzurumspor maçı ne zaman, saat kaçta? Fb - Erzurum maçı canlı izle**: [Link](https://www.24saatgazetesi.com/fenerbahce-erzurumspor-maci-ne-zaman-saat-kacta-fener-erzurum-maci-canli-izle)
+
+
 ### الأخدود ضد الهلال (N/A, Thu, 5 Feb 2026 09:10:00 -0800)
 
 - **مباشر .. مباراة الهلال ضد الأخدود في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/5/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D8%AE%D8%AF%D9%88%D8%AF-%D9%81%D9%8A-2)
