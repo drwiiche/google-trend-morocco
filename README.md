@@ -1,3 +1,17 @@
+### ariane de rothschild (N/A, Thu, 5 Feb 2026 05:10:00 -0800)
+
+- **Epstein files show Swiss bank CEO de Rothschild kept up years‑long personal contact with financier**: [Link](https://www.reuters.com/business/finance/epstein-files-show-swiss-bank-ceo-de-rothschild-kept-up-yearslong-personal-2026-02-05/)
+- **Jeffrey Epstein's business ties with banker Ariane de Rothschild revealed**: [Link](https://www.lemonde.fr/en/international/article/2026/02/05/jeffrey-epstein-s-business-ties-with-banker-ariane-de-rothschild-revealed_6750170_4.html)
+- **Epstein signed $25M agreement with Rothschild Group in 2015, documents show**: [Link](https://www.aa.com.tr/en/americas/epstein-signed-25m-agreement-with-rothschild-group-in-2015-documents-show-/3816731)
+
+
+### barrage oued el makhazine (N/A, Thu, 5 Feb 2026 03:00:00 -0800)
+
+- **Barrages sous pression : des apports hydriques historiques forcent des déversements préventifs (ministère)**: [Link](https://ledesk.ma/2026/02/04/barrages-sous-pression-des-apports-hydriques-historiques-forcent-des-deversements-preventifs-ministere/)
+- **Barrage Oued El Makhazine : le directeur général de l'Hydraulique fait le point**: [Link](https://medias24.com/2026/02/04/barrage-oued-el-makhazine-le-directeur-general-hydraulique-fait-le-point-1622467/)
+- **Inondations au Maroc : plusieurs barrages sous surveillance**: [Link](https://lematin.ma/regions/inondations-au-maroc-plusieurs-barrages-sous-surveillance/328093)
+
+
 ### cnss (N/A, Thu, 5 Feb 2026 02:50:00 -0800)
 
 - **Transfert de la CNOPS à la CNSS : publiée au BO, voici les principales dispositions de la loi 54.23**: [Link](https://medias24.com/2026/02/03/transfert-de-la-cnops-a-la-cnss-publiee-au-bo-voici-les-principales-dispositions-de-la-loi-54-23-1621903/)
