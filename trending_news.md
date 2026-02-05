@@ -1,3 +1,10 @@
+### كمال اللعبي (N/A, Wed, 4 Feb 2026 19:00:00 -0800)
+
+- **المطبخ المغربي يفقد أحد وجوهه المعروفة.. وفاة الشاف كمال اللعبي “كيمو”**: [Link](https://tanjanews.com/181040.html)
+- **وفاة الطباخ كمال اللعبي الملقب بـ شاف كيمو**: [Link](https://www.cairo24.com/2365905)
+- **وفاة الشاف كمال اللعبي تُخلّف صدمة في أوساط المهتمين بالمطبخ المغربي**: [Link](https://fesnews.net/535845/2026/02/05/)
+
+
 ### lyon fc (N/A, Wed, 4 Feb 2026 13:40:00 -0800)
 
 - **« Je sais qu’on vous a bien fait payer » : à Paris, Timothée Chalamet tacle le Grand Rex sur ses prix à l’avant-première de « Marty Supreme »**: [Link](https://www.leparisien.fr/paris-75/je-sais-quon-vous-a-bien-fait-payer-a-paris-timothee-chalamet-tacle-le-grand-rex-sur-ses-prix-a-lavant-premiere-de-marty-supreme-04-02-2026-4OSASY6UBBHG3IBBSPQ5V6B7DA.php)
