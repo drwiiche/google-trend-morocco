@@ -1,3 +1,10 @@
+### btc (N/A, Thu, 5 Feb 2026 14:30:00 -0800)
+
+- **Bitcoin drops 13%, breaking below $64,000 as sell-off intensifies, doubts about crypto grow**: [Link](https://www.cnbc.com/2026/02/05/bitcoin-price-today-70000-in-focus.html)
+- **Bitcoin loses half its value in three months amid crypto crunch**: [Link](https://www.theguardian.com/technology/2026/feb/05/bitcoin-cryptocurrency-slump)
+- **No, but seriously: What’s going on with bitcoin?**: [Link](https://www.cnn.com/2026/02/05/investing/bitcoin-price)
+
+
 ### sporting – avs (N/A, Thu, 5 Feb 2026 13:40:00 -0800)
 
 - **Sporting-Aves SAD: confira os onzes iniciais dos quartos de final da Taça de Portugal**: [Link](https://sapo.pt/artigo/sporting-aves-sad-confira-os-onzes-iniciais-dos-quartos-de-final-da-taca-de-portugal-6984f5c61277123d732f8869)
