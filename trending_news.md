@@ -1,3 +1,17 @@
+### strasbourg vs monaco (N/A, Thu, 5 Feb 2026 12:30:00 -0800)
+
+- **Coupe de France: Date, time, channels and lineups for Strasbourg vs Monaco**: [Link](https://sports.yahoo.com/articles/coupe-france-date-time-channels-164500860.html)
+- **Preview: Pocognoli speaks ahead of AS Monaco's huge Coupe de France clash with Strasbourg**: [Link](https://www.monaco-tribune.com/en/2026/02/preview-pocognoli-speaks-ahead-of-as-monacos-huge-coupe-de-france-clash-with-strasbourg/)
+- **Preview: Strasbourg vs Monaco - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/strasbourg/coupe-de-france/preview/strasbourg-vs-monaco-prediction-team-news-lineups_591320.html)
+
+
+### atletico madrid (N/A, Thu, 5 Feb 2026 12:20:00 -0800)
+
+- **Atletico Madrid Eye Copa del Rey Semi-Final Spot Against Betis**: [Link](https://www.dawan.africa/news/atletico-madrid-eye-copa-del-rey-semi-final-spot-against-betis)
+- **Real Betis vs. Atletico Madrid: Betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/05/real-betis-vs-atletico-madrid-betting-odds-prediction-pick/88519303007/)
+- **Copa del Rey: Date, time, broadcast channels and lineups for Real Betis vs Atlético Madrid**: [Link](https://onefootball.com/en/news/copa-del-rey-date-time-broadcast-channels-and-lineups-for-real-betis-vs-atletico-madrid-42361762)
+
+
 ### lamine yamal (N/A, Thu, 5 Feb 2026 11:50:00 -0800)
 
 - **€200m Barcelona star reduces social media activity, concentrates on football**: [Link](https://semprebarca.com/e200m-barcelona-star-reduces-social-media-activity-concentrates-on-football/)
