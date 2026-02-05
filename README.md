@@ -1,3 +1,10 @@
+### الأخدود ضد الهلال (N/A, Thu, 5 Feb 2026 09:10:00 -0800)
+
+- **مباشر .. مباراة الهلال ضد الأخدود في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/5/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D8%AE%D8%AF%D9%88%D8%AF-%D9%81%D9%8A-2)
+- **واقعة نادرة.. بنزيما يواجه الأخدود مرتين في 10 أيام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9--%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D8%AF%D9%88%D8%AF-%D9%85%D8%B1%D8%AA%D9%8A%D9%86-%D9%81%D9%8A-10-%D8%A7%D9%94%D9%8A%D8%A7%D9%85/blt445398ec284ed52f)
+- **غموض حول مشاركة سافيتش مع الهلال أمام الأخدود**: [Link](https://hihi2.com/2026/02/04/p3634514.html)
+
+
 ### noureddine bensouda (N/A, Thu, 5 Feb 2026 06:10:00 -0800)
 
 - **Noureddine Bensouda quitte la TGR - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/02/05/noureddine-bensouda-quitte-la-tgr-1623231/)
