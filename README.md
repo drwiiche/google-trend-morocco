@@ -1,3 +1,10 @@
+### instagram (N/A, Wed, 4 Feb 2026 17:40:00 -0800)
+
+- **Instagram down for more than 10,000 US users**: [Link](https://www.reuters.com/technology/instagram-down-more-than-10000-us-users-2026-02-05/)
+- **Instagram restores service after brief US outage**: [Link](https://www.jpost.com/business-and-innovation/article-885669)
+- **Instagram down: Website hit by outage, thousands of users report errors accessing platform**: [Link](https://www.moneycontrol.com/technology/instagram-down-website-hit-by-outage-thousands-of-users-report-errors-accessing-platform-article-13812066.html)
+
+
 ### tradingview (N/A, Wed, 4 Feb 2026 17:00:00 -0800)
 
 - **The Daily: Bitcoin slide renews four-year cycle fears, BitMine's Tom Lee calls unrealized ETH losses 'a feature, not a bug,' and more**: [Link](https://www.theblock.co/post/388532/the-daily-bitcoin-slide-renews-four-year-cycle-fears-bitmines-tom-lee-calls-unrealized-eth-losses-a-feature-not-a-bug-and-more)
