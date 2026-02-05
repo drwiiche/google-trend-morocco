@@ -1,3 +1,10 @@
+### coupe de france (N/A, Wed, 4 Feb 2026 12:50:00 -0800)
+
+- **Sébastien Pocognoli : "Ne pas baisser notre curseur d’1% pour se qualifier"**: [Link](https://www.asmonaco.com/conference-de-presse-avant-strasbourg-monaco-en-coupe-de-france-sebastien-pocognoli-ne-pas-baisser-notre-curseur-d1-pour-se-qualifier/)
+- **PRONOS PARIS RMC Le pari du jour du 5 février - Coupe de France**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-5-fevrier-coupe-de-france_AN-202602040946.html)
+- **Strasbourg-Monaco : à quelle heure et sur quelle chaîne TV voir le 8e de finale de la Coupe de France**: [Link](https://www.leparisien.fr/sports/football/strasbourg-monaco-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-8e-de-finale-de-la-coupe-de-france-05-02-2026-YVRRITIXIREMPJVIG3WVSSDQOY.php)
+
+
 ### instagram (N/A, Wed, 4 Feb 2026 17:40:00 -0800)
 
 - **Instagram down for more than 10,000 US users**: [Link](https://www.reuters.com/technology/instagram-down-more-than-10000-us-users-2026-02-05/)
