@@ -1,3 +1,24 @@
+### al hilal (N/A, Thu, 5 Feb 2026 10:20:00 -0800)
+
+- **Karim Benzema Leaves Al Ittihad to Join Saudi Rivals Al Hilal**: [Link](https://www.moroccoworldnews.com/2026/02/277323/karim-benzema-leaves-al-ittihad-to-join-saudi-rivals-al-hilal/)
+- **‘Ask Him What’s Wrong’—Al Hilal CEO Hits Out at Cristiano Ronaldo, Confirms Vinicius Junior Ambition**: [Link](https://www.fotmob.com/en-GB/embed/news/01kgmtb3sv4n/ask-him-whats-wrongal-hilal-ceo-hits-out-at-cristiano-ronaldo-confirms-vinicius-junior-ambition)
+- **Inzaghi Includes Benzema and Bouabri in Al-Hilal Squad Heading to Najran**: [Link](https://www.ysscores.com/en/news/13904853/Inzaghi-Includes-Benzema-and-Bouabri-in-Al-Hilal-Squad-Heading-to-Najran)
+
+
+### al akhdoud vs al-hilal (N/A, Thu, 5 Feb 2026 10:10:00 -0800)
+
+- **Preview: Al Akhdoud vs Al Hilal Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-akhdoud-vs-al-hilal-preview-202602)
+- **Significant Absences for Al Hilal Before the Akhdoud Match**: [Link](https://www.ysscores.com/en/news/13904370/Significant-Absences-for-Al-Hilal-Before-the-Akhdoud-Match)
+- **Al-Hilal 1-0 Al Okhdood LIVE Score, Saudi Pro League 2026: Karim Benzema's Left Footer Gets Visitors Ahead**: [Link](https://www.outlookindia.com/sports/football/al-hilal-vs-al-okhdood-live-score-saudi-pro-league-2025-26-matchday-21-updates-highlights)
+
+
+### المخرج المغربي محمد عهد بنسودة (N/A, Thu, 5 Feb 2026 08:20:00 -0800)
+
+- **المخرج الراحل محمد عهد بنسودة .. مسار إبداعي هادئ في السينما المغربية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AE%D8%B1%D8%AC-%D8%A7%D9%84%D8%B1%D8%A7%D8%AD%D9%84-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D9%87%D8%AF-%D8%A8%D9%86%D8%B3%D9%88%D8%AF%D8%A9-%D9%85%D8%B3%D8%A7%D8%B1-%D8%A5%D8%A8-1696852.html)
+- **رحيل مخرج "موسم المشاوشة" و"خلف الأبواب المغلقة" محمد عهد بنسودة**: [Link](https://2m.ma/ar/news/%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D8%AE%D8%B1%D8%AC-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%88%D8%B4%D8%A9-%D9%88-%D8%AE%D9%84%D9%81-%D8%A7%D9%84%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D9%84%D9%82%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D9%87%D8%AF-%D8%A8%D9%86%D8%B3%D9%88%D8%AF%D8%A9-20260204)
+- **محمد عهد بنسودة… سينما السؤال والالتزام الإنساني**: [Link](https://www.youm7.com/story/2026/2/4/%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D9%87%D8%AF-%D8%A8%D9%86%D8%B3%D9%88%D8%AF%D8%A9%E2%80%A6-%D8%B3%D9%8A%D9%86%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D8%A4%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85-%D8%A7%D9%84%D8%A5%D9%86%D8%B3%D8%A7%D9%86%D9%8A/7293270)
+
+
 ### fenerbahçe – erzurumspor (N/A, Thu, 5 Feb 2026 09:50:00 -0800)
 
 - **Fenerbahçe Erzurumspor maçı Atv’de mi Aspor’da mı? Kante oynayacak mı?**: [Link](https://www.ulketv.com/foto-galeri/fenerbahce-erzurumspor-maci-atvde-mi-asporda-mi-kante-oynayacak-mi)
