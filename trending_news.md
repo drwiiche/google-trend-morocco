@@ -1,3 +1,10 @@
+### مطر (N/A, Wed, 4 Feb 2026 22:40:00 -0800)
+
+- **بداية ارتفاع تدريجي للحرارة.. الأرصاد تكشف الظواهر الجوية اليوم والطقس حتى منتصف الأسبوع المقبل**: [Link](https://darelhilal.com/News/3172754.aspx)
+- **تغيرات غير متوقعة في درجات الحرارة في الأيام القادمة.. وتنبيه من الهيئة العامة للأرصاد الجوية**: [Link](https://twaslnews.twaslnews.com/163788/)
+- **الطقس اليوم الخميس 5-2-2026.. شبورة صباحا وارتفاع تدريجى فى درجات الحرارة**: [Link](https://www.youm7.com/story/2026/2/5/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-5-2-2026-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D8%B5%D8%A8%D8%A7%D8%AD%D8%A7-%D9%88%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%89/7293316)
+
+
 ### gta vi (N/A, Thu, 5 Feb 2026 00:30:00 -0800)
 
 - **GRTV News - Grand Theft Auto VI seemingly on track for November launch**: [Link](https://www.gamereactor.eu/video/783193/GRTV+News+-+Grand+Theft+Auto+VI+seemingly+on+track+for+November+launch/)
