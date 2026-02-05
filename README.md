@@ -1,3 +1,10 @@
+### sporting – avs (N/A, Thu, 5 Feb 2026 13:40:00 -0800)
+
+- **Sporting-Aves SAD: confira os onzes iniciais dos quartos de final da Taça de Portugal**: [Link](https://sapo.pt/artigo/sporting-aves-sad-confira-os-onzes-iniciais-dos-quartos-de-final-da-taca-de-portugal-6984f5c61277123d732f8869)
+- **AO VIVO: Cartão amarelo a Diego Duarte (17')**: [Link](https://www.flashscore.pt/noticias/futebol-taca-de-portugal-ao-vivo-cartao-amarelo-a-diego-duarte-17/MVAeTHCs/)
+- **Portugal está na final do Europeu de Fustal**: [Link](https://www.rtp.pt/noticias/desporto/portugal-esta-na-final-do-europeu-de-fustal_v1716536)
+
+
 ### atalanta vs juventus (N/A, Thu, 5 Feb 2026 13:10:00 -0800)
 
 - **Preview: Atalanta BC vs Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/coppa-italia/preview/atalanta-vs-juventus-prediction-team-news-lineups_591315.html)
