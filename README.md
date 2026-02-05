@@ -1,3 +1,10 @@
+### tradingview (N/A, Wed, 4 Feb 2026 17:00:00 -0800)
+
+- **The Daily: Bitcoin slide renews four-year cycle fears, BitMine's Tom Lee calls unrealized ETH losses 'a feature, not a bug,' and more**: [Link](https://www.theblock.co/post/388532/the-daily-bitcoin-slide-renews-four-year-cycle-fears-bitmines-tom-lee-calls-unrealized-eth-losses-a-feature-not-a-bug-and-more)
+- **Expert analysis on Bitcoin's potential price trajectory and market ceiling**: [Link](https://www.msn.com/en-us/money/news/expert-analysis-on-bitcoin-s-potential-price-trajectory-and-market-ceiling/vi-AA1VDRIM?ocid=finance-verthp-feeds)
+- **$BTC & Google: The Loudest Bear Signal Is Silence**: [Link](https://www.binance.com/en/square/post/35994207266473)
+
+
 ### cristiano ronaldo (N/A, Wed, 4 Feb 2026 15:10:00 -0800)
 
 - **Ronaldo Ends 'Rebellion' Against Al-Nassr Management, Returns to Training Ahead of Al-Ittihad Clash**: [Link](https://m.elbotola.com/en/article/2026-02-04-18-24-650.html)
