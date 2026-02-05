@@ -1,3 +1,10 @@
+### noureddine bensouda (N/A, Thu, 5 Feb 2026 06:10:00 -0800)
+
+- **Noureddine Bensouda quitte la TGR - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/02/05/noureddine-bensouda-quitte-la-tgr-1623231/)
+- **Noureddine Bensouda quitte la TGR, l’intérim confié à Abdellatif Amrani**: [Link](https://ledesk.ma/encontinu/noureddine-bensouda-quitte-la-tgr-linterim-confie-a-abdellatif-amrani/)
+- **Info360. Noureddine Bensouda quitte la TGR sur fond de tensions autour de la réforme des taxes locales**: [Link](https://fr.le360.ma/economie/info360-noureddine-bensouda-quitte-la-tgr-sur-fond-de-tensions-autour-de-la-reforme-des-taxes_37VJB7ES4BCVDFTHWGAOZQTZ7Y/)
+
+
 ### bourita (N/A, Thu, 5 Feb 2026 05:50:00 -0800)
 
 - **Nasser Bourita à Washington pour une réunion ministérielle sur les minéraux critiques**: [Link](https://medias24.com/2026/02/04/nasser-bourita-a-washington-pour-une-reunion-ministerielle-sur-les-mineraux-critiques-1622784/)
