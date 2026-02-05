@@ -1,3 +1,17 @@
+### atalanta vs juventus (N/A, Thu, 5 Feb 2026 13:10:00 -0800)
+
+- **Preview: Atalanta BC vs Juventus - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/coppa-italia/preview/atalanta-vs-juventus-prediction-team-news-lineups_591315.html)
+- **Thursday's football tips: Go for corners at 11/10 as Atalanta bid to KO Juve in the Coppa Italia**: [Link](https://mrfixitstips.co.uk/thursdays-football-tips-go-for-corners-at-11-10-as-atalanta-bid-to-ko-juve-in-the-coppa-italia/)
+- **Juventus probable lineup vs Atalanta: Five changes for Coppa Italia clash**: [Link](https://www.juvefc.com/juventus-probable-lineup-vs-atalanta-five-changes-for-coppa-italia-clash/)
+
+
+### bitcoin (N/A, Thu, 5 Feb 2026 13:10:00 -0800)
+
+- **Bitcoin Crash Could Deepen to $38K, Say Analysts—Here's Why**: [Link](https://decrypt.co/357089/bitcoin-crash-deepen-38k-analysts-heres-why)
+- **Deutsche Bank Identifies Bitcoin’s Weakness Factors**: [Link](https://forklog.com/en/deutsche-bank-identifies-bitcoins-weakness-factors/)
+- **Bitcoin's monthslong slide continues, hitting fresh 15-month low of $67,000**: [Link](https://www.koreatimes.co.kr/world/20260206/bitcoins-monthslong-slide-continues-hitting-fresh-15-month-low-of-67000)
+
+
 ### ستراسبورغ ضد موناكو (N/A, Thu, 5 Feb 2026 13:00:00 -0800)
 
 - **مواجهة مرتقبة بين ستراسبورغ وموناكو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D8%AA%D8%B1%D8%A7%D8%B3%D8%A8%D9%88%D8%B1%D8%BA-%D9%88%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-2026-02-05?videopage=true)
