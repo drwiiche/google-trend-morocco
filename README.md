@@ -1,3 +1,10 @@
+### وليد الركراكي (N/A, Fri, 6 Feb 2026 06:20:00 -0800)
+
+- **هل استقال الركراكي بعد صدمة نهائي الكان؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D9%84-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%AF%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86/blt724cfe2c3f991cc6)
+- **هل قدم الركراكي استقالته ؟**: [Link](https://assabah.ma/900796.html)
+- **فيديو: مباشر/ الكرة في ملعب موتسيبي!!/الاخبار تأتينا من الخارج والجامعة في سبات**: [Link](https://www.almountakhab.com/node/16222482)
+
+
 ### copa del rey (N/A, Fri, 6 Feb 2026 05:20:00 -0800)
 
 - **Sorteo de Copa del Rey, en directo: partidos, cruces y emparejamientos de semifinales hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/sorteo-de-copa-del-rey-en-directo-partidos-cruces-y-emparejamientos-de-semifinales-hoy-en-vivo-f202602-d/)
