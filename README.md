@@ -1,3 +1,10 @@
+### coupe de france (N/A, Thu, 5 Feb 2026 13:50:00 -0800)
+
+- **Un choc entre l'OL et Lens, l'OM à domicile : le programme complet des quarts de finale de la Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/Un-choc-ol-lens-au-programme-des-quarts-de-finale-de-la-coupe-de-france-l-om-recevra-toulouse/1639666)
+- **Coupe de France 2026 - Tirage des quarts de finale : OL - Lens à l'affiche**: [Link](https://www.eurosport.fr/football/coupe-de-france/2025-2026/coupe-de-france-2026-tirage-des-quarts-de-finale-ol-lens-a-laffiche_sto23267030/story.shtml)
+- **Les affiches des quarts de finale**: [Link](https://www.fff.fr/article/16215-les-affiches-des-quarts-de-finale.html)
+
+
 ### bitcoin price (N/A, Thu, 5 Feb 2026 15:40:00 -0800)
 
 - **No, but seriously: What’s going on with bitcoin?**: [Link](https://www.cnn.com/2026/02/05/investing/bitcoin-price)
