@@ -1,3 +1,17 @@
+### ترتيب الدوري السعودي (N/A, Fri, 6 Feb 2026 11:30:00 -0800)
+
+- **قمة رمضانية.. تحديد موعد ديربي جدة والجولة المؤجلة في روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%85%D8%A9-%D8%B1%D9%85%D8%B6%D8%A7%D9%86%D9%8A%D8%A9--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%AC%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D8%AC%D9%84%D8%A9-%D9%81%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/blt1000ce38b86cb33d)
+- **الهلال في القمة وموقف النصر والاتحاد قبل قمة اليوم.. جدول ترتيب الدوري السعودي**: [Link](https://www.almasryalyoum.com/news/details/4192818)
+- **الدوري السعودي... صراع لا يعرف المستحيل**: [Link](https://www.annahar.com/sports/275418/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%84%D8%A7-%D9%8A%D8%B9%D8%B1%D9%81-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AD%D9%8A%D9%84)
+
+
+### al-nassr vs al-ittihad (N/A, Fri, 6 Feb 2026 09:00:00 -0800)
+
+- **Cristiano Ronaldo: Saudi Pro League warns Al-Nassr forward no player is bigger than club**: [Link](https://www.bbc.com/sport/football/articles/c205xynlm08o)
+- **Benzema at Al Hilal: Al Ittihad fans back Cristiano Ronaldo**: [Link](https://foot-africa.com/en/news/benzema-at-al-hilal-al-ittihad-fans-back-cristiano-ronaldo-1074977/)
+- **🚨 Despite league threats, Ronaldo strikes in top clash**: [Link](https://onefootball.com/id/berita/despite-league-threats-ronaldo-strikes-in-top-clash-42369118)
+
+
 ### celta vigo – osasuna (N/A, Fri, 6 Feb 2026 11:20:00 -0800)
 
 - **Qué canal pasa Celta vs Osasuna hoy: dónde ver gratis y EN VIVO de LaLiga**: [Link](https://www.365scores.com/es/news/celta-vs-osasuna-donde-ver-gratis-vivo/)
