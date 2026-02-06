@@ -1,3 +1,10 @@
+### sonia mabrouk cnews (N/A, Thu, 5 Feb 2026 18:20:00 -0800)
+
+- **Absente de «Midi News» sur CNews aujourd’hui, Sonia Mabrouk ne reviendra pas demain à l’interview politique**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/sonia-mabrouk-absente-de-midi-news-sur-cnews-apres-une-possible-altercation-avec-sa-direction-20260204)
+- **Affaire Morandini : Sonia Mabrouk absente de CNews après une altercation avec Serge Nedjar, la chaîne dément la rumeur**: [Link](https://www.sudouest.fr/culture/medias/affaire-morandini-sonia-mabrouk-absente-de-cnews-apres-une-altercation-avec-serge-nedjar-la-chaine-dement-la-rumeur-27723297.php)
+- **“La porte, la porte, la porte !!” : en pleine crise à CNews, le b ...**: [Link](https://www.telestar.fr/actu_tv/la-porte-la-porte-la-porte-en-pleine-crise-a-cnews-le-boss-de-sonia-mabrouk-perd-ses-nerfs-et-lui-hurle-dessus-dans-les-loges-1753033)
+
+
 ### pénurie carburant maroc (N/A, Fri, 6 Feb 2026 01:10:00 -0800)
 
 - **Approvisionnement en produits pétroliers: "situation maîtrisée" selon le ministère**: [Link](https://medias24.com/2026/02/05/approvisionnement-en-produits-petroliers-situation-maitrisee-selon-le-ministere-1623732/)
