@@ -1,3 +1,10 @@
+### al nassr (N/A, Fri, 6 Feb 2026 09:40:00 -0800)
+
+- **Saudis ready to offload Ronaldo for £43m and target Man Utd star as replacement**: [Link](https://inews.co.uk/sport/football/saudi-cristiano-ronaldo-man-utd-transfer-4218724)
+- **Cristiano Ronaldo: Saudi Pro League warns Al-Nassr forward no player is bigger than club**: [Link](https://www.bbc.com/sport/football/articles/c205xynlm08o)
+- **Ronaldo to boycott 2nd Al Nassr game in protest of PIF - sources**: [Link](https://www.espn.co.uk/football/story/_/id/47826210/cristiano-ronaldo-boycott-second-al-nassr-game-protest-pif-sources)
+
+
 ### مريم الزعيمي (N/A, Fri, 6 Feb 2026 14:00:00 -0800)
 
 - **مريم الزعيمي تدخل إلى "عش الطمع"**: [Link](https://www.hespress.com/%D9%85%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D8%B2%D8%B9%D9%8A%D9%85%D9%8A-%D8%AA%D8%AF%D8%AE%D9%84-%D8%A5%D9%84%D9%89-%D8%B9%D8%B4-%D8%A7%D9%84%D8%B7%D9%85%D8%B9-1697415.html)
