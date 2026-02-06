@@ -1,3 +1,17 @@
+### bitcoin price (N/A, Thu, 5 Feb 2026 15:40:00 -0800)
+
+- **No, but seriously: What’s going on with bitcoin?**: [Link](https://www.cnn.com/2026/02/05/investing/bitcoin-price)
+- **Crypto market in free fall as Bitcoin plunges below $70,000 while shares in Coinbase and Circle tumble**: [Link](https://fortune.com/2026/02/05/crypto-market-in-free-fall-as-bitcoin-plunges/)
+- **Bitcoin Update: The Cryptocurrency Records Its Sharpest Drop in Months**: [Link](https://www.forex.com/ie/news-and-analysis/bitcoin-update-the-cryptocurrency-records-its-sharpest-drop-in-months/)
+
+
+### btc to usd (N/A, Thu, 5 Feb 2026 15:30:00 -0800)
+
+- **BTCUSD Bitcoin USD Extends Losses to -0.97% as Margin Longs Signal Capitulation Risk**: [Link](https://meyka.com/blog/btcusd-bitcoin-usd-extends-losses-to-097-as-margin-longs-signal-capitulation-risk-0502/)
+- **Bitfinex Bitcoin longs hit highest level since late 2023: Is a rally to $100K possible?**: [Link](https://www.msn.com/en-us/money/markets/bitfinex-bitcoin-longs-hit-2-year-high-is-a-rally-to-100k-possible/ar-AA1Vhnjq?ocid=finance-verthp-feeds)
+- **Bitcoin news: Leveraged long positions on Bitfinex at highest level in two years as prices crash**: [Link](https://www.coindesk.com/markets/2026/02/05/bitcoin-s-rising-leveraged-position-points-to-continued-dip-buying-but-may-not-yet-signal-price-bottom)
+
+
 ### btc (N/A, Thu, 5 Feb 2026 14:30:00 -0800)
 
 - **Bitcoin drops 13%, breaking below $64,000 as sell-off intensifies, doubts about crypto grow**: [Link](https://www.cnbc.com/2026/02/05/bitcoin-price-today-70000-in-focus.html)
