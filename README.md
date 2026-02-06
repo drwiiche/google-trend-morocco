@@ -1,3 +1,10 @@
+### pénurie carburant maroc (N/A, Fri, 6 Feb 2026 01:10:00 -0800)
+
+- **Approvisionnement en produits pétroliers: "situation maîtrisée" selon le ministère**: [Link](https://medias24.com/2026/02/05/approvisionnement-en-produits-petroliers-situation-maitrisee-selon-le-ministere-1623732/)
+- **Carburants : Le ministère de l'Energie assure faire le nécessaire pour garantir l'approvisionnement du marché local**: [Link](https://telquel.ma/instant-t/2026/02/06/carburants-le-ministere-de-lenergie-assure-faire-le-necessaire-pour-garantir-lapprovisionnement-du-marche-local_1974221/)
+- **Intempéries-Produits pétroliers : un approvisionnement stable et sous contrôle**: [Link](https://www.leconomiste.com/flash-infos/intemperies-produits-petroliers-un-approvisionnement-stable-et-sous-controle/)
+
+
 ### فيضانات المغرب (N/A, Fri, 6 Feb 2026 00:20:00 -0800)
 
 - **مياه وادي سبو تثير القلق**: [Link](https://www.hespress.com/%D9%85%D9%8A%D8%A7%D9%87-%D9%88%D8%A7%D8%AF%D9%8A-%D8%B3%D8%A8%D9%88-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D9%82%D9%84%D9%82-1697612.html)
