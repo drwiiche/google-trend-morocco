@@ -1,3 +1,31 @@
+### copa del rey (N/A, Fri, 6 Feb 2026 05:20:00 -0800)
+
+- **Sorteo de Copa del Rey, en directo: partidos, cruces y emparejamientos de semifinales hoy en vivo**: [Link](https://as.com/futbol/copa_del_rey/sorteo-de-copa-del-rey-en-directo-partidos-cruces-y-emparejamientos-de-semifinales-hoy-en-vivo-f202602-d/)
+- **Definidos los cuatro semifinalistas de la Copa del Rey Mapfre: este viernes, el sorteo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260205/1002615508/definidos-cuatro-semifinalistas-copa-rey-mapfre-viernes-sorteo.html)
+- **AV. Atlético-FC Barcelona y Athletic Club-Real Sociedad, en semifinales de la Copa del Rey Mapfre**: [Link](https://www.infobae.com/america/agencias/2026/02/06/av-atletico-fc-barcelona-y-athletic-club-real-sociedad-en-semifinales-de-la-copa-del-rey-mapfre/)
+
+
+### peter mandelson (N/A, Fri, 6 Feb 2026 04:50:00 -0800)
+
+- **Global Counsel CEO departs as firm cuts Mandelson ties**: [Link](https://www.prweek.co.uk/article/1947589/global-counsel-ceo-departs-firm-cuts-mandelson-ties)
+- **Mandelson’s lobbying firm cuts all ties and announces boss to quit**: [Link](https://www.independent.co.uk/news/business/peter-mandelson-archie-norman-labour-london-barclays-b2915344.html)
+- **Boss of Mandelson’s Global Counsel quits amid Epstein file fallout**: [Link](https://www.cityam.com/boss-of-mandelsons-global-counsel-quits-amid-epstein-file-fallout/)
+
+
+### regragui (N/A, Fri, 6 Feb 2026 04:40:00 -0800)
+
+- **Maroc : Walid Regragui a posé sa démission**: [Link](https://www.footmercato.net/a5337317730714847721-maroc-walid-regragui-a-pose-sa-demission)
+- **DIRECT. Mercato: Regragui veut partir, l'Arabie saoudite lui fait des appels du pied**: [Link](https://rmcsport.bfmtv.com/football/transferts/direct-mercato-suivez-en-live-toutes-les-infos-et-rumeurs-du-5-fevrier-2026_LN-202602050154.html)
+- **Quand le compliment devient suspect: le Maroc n’a pas besoin des louanges de la FIFA...**: [Link](https://fr.le360.ma/sports/quand-le-compliment-devient-suspect-le-maroc-na-pas-besoin-des-louanges-de-la-fifa_ZJLXK72CEZBD5HMJZVW5SITXYM/)
+
+
+### cristiano ronaldo al nassr (N/A, Fri, 6 Feb 2026 03:30:00 -0800)
+
+- **Cristiano Ronaldo: Saudi Pro League warns Al-Nassr forward no player is bigger than club**: [Link](https://www.bbc.com/sport/football/articles/c205xynlm08o)
+- **Cristiano Ronaldo threatens Saudi exit, feels 'betrayed' over recent transfer business in league**: [Link](https://www.cbssports.com/soccer/news/cristiano-ronaldo-betrayed-threaten-exit-saudi-pro-league/)
+- **En-Nesyri Makes First Al-Ittihad Squad Appearance Against Al-Nassr**: [Link](https://m.elbotola.com/en/article/2026-02-05-16-43-304.html)
+
+
 ### tesla (N/A, Fri, 6 Feb 2026 01:50:00 -0800)
 
 - **Tesla is training its AI technology in China, local media reports**: [Link](https://finance.yahoo.com/news/tesla-training-ai-technology-china-114120391.html)
