@@ -1,3 +1,10 @@
+### al-ettifaq – damac (N/A, Fri, 6 Feb 2026 08:20:00 -0800)
+
+- **Preview: Al Ettifaq vs Damac Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-damac-preview-202602)
+- **al-ettifaq vs damac**: [Link](https://www.latestly.com/google-trends/06022026/al-ettifaq-vs-damac/)
+- **Al Ettifaq vs Damac FC: Predictions and Tips for February 6, 2026**: [Link](https://www.el-balad.com/6844594)
+
+
 ### النصر ضد الاتحاد (N/A, Fri, 6 Feb 2026 08:50:00 -0800)
 
 - **بذكريات كلاسيكو الكأس.. كيف يتجنب النصر تكرار أول هزيمة في الموسم؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D9%83%D8%A7%D9%94%D8%B3--%D9%83%D9%8A%D9%81-%D9%8A%D8%AA%D8%AC%D9%86%D8%A8-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AA%D9%83%D8%B1%D8%A7%D8%B1-%D8%A7%D9%94%D9%88%D9%84-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85/bltbb4b262886fcc4d5)
