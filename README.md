@@ -1,3 +1,24 @@
+### النصر ضد الاتحاد (N/A, Fri, 6 Feb 2026 08:50:00 -0800)
+
+- **بذكريات كلاسيكو الكأس.. كيف يتجنب النصر تكرار أول هزيمة في الموسم؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D9%83%D8%A7%D9%94%D8%B3--%D9%83%D9%8A%D9%81-%D9%8A%D8%AA%D8%AC%D9%86%D8%A8-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AA%D9%83%D8%B1%D8%A7%D8%B1-%D8%A7%D9%94%D9%88%D9%84-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85/bltbb4b262886fcc4d5)
+- **مباشر مباراة النصر ضد الاتحاد في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/6/sauda-league-al-nassr-vs-al-ittihad)
+- **النصيري يسجل حضوره الأول في قائمة الاتحاد أمام النصر بالدوري السعودي**: [Link](https://m.elbotola.com/article/2026-02-05-16-43-675.html)
+
+
+### al-nassr fc – al ittihad (N/A, Fri, 6 Feb 2026 08:40:00 -0800)
+
+- **Cristiano Ronaldo: Saudi Pro League warns Al-Nassr forward no player is bigger than club**: [Link](https://www.bbc.com/sport/football/articles/c205xynlm08o)
+- **Cristiano Ronaldo transfer news: Al Nassr forward considering future in Saudi Arabia due to concerns over financial backing**: [Link](https://www.skysports.com/football/news/11095/13502749/cristiano-ronaldo-transfer-news-al-nassr-forward-considering-future-in-saudi-arabia-due-to-concerns-over-financial-backing)
+- **Could Cristiano Ronaldo’s Saudi gamble shorten his glittering career?**: [Link](https://www.besoccer.com/new/could-cristiano-ronaldo-rsquo-s-saudi-gamble-shorten-his-glittering-career-1393289)
+
+
+### holmarcom bmci (N/A, Fri, 6 Feb 2026 04:30:00 -0800)
+
+- **Rachat de la BMCI : Holmarcom s’offre une « dream team » internationale pour le conseil**: [Link](https://ledesk.ma/2026/02/05/rachat-de-la-bmci-holmarcom-soffre-une-dream-team-internationale-pour-le-conseil/)
+- **Pourquoi BNP Paribas tourne la page du Maroc**: [Link](https://www.lenouvelliste.ma/pourquoi-bnp-paribas-tourne-la-page-du-maroc/)
+- **Rachat de la BMCI : le groupe Holmarcom recrute JP Morgan, EY, KPMG et Bain&Company en tant que cabinets-conseil**: [Link](https://www.maroc-hebdo.com/article/rachat-de-la-bmci-le-groupe-holmarcom-recrutent-jp-morgan-ey-kpmg-et-bainandcompany-en-tant-que-cabinets-conseil)
+
+
 ### central cee (N/A, Fri, 6 Feb 2026 06:20:00 -0800)
 
 - **Who is Central Cee? Everything You Need to Know About the UK Rap Star Who Converted to Islam & Sparks Online Debate**: [Link](https://sundayguardianlive.com/trending/who-is-central-cee-everything-you-need-to-know-about-the-uk-rap-star-who-converted-to-islam-sparks-online-debate-168785/)
