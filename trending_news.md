@@ -1,3 +1,10 @@
+### tesla (N/A, Fri, 6 Feb 2026 01:50:00 -0800)
+
+- **Tesla is training its AI technology in China, local media reports**: [Link](https://finance.yahoo.com/news/tesla-training-ai-technology-china-114120391.html)
+- **Tesla's AI training center in China now operational, exec says**: [Link](https://cnevpost.com/2026/02/06/tesla-ai-training-center-china-operational/)
+- **Tesla to Introduce New Automations App, Letting Users Create Custom Automations**: [Link](https://www.notateslaapp.com/news/3543/tesla-to-introduce-new-automations-app-letting-users-create-custom-automations)
+
+
 ### sonia mabrouk cnews (N/A, Thu, 5 Feb 2026 18:20:00 -0800)
 
 - **Absente de «Midi News» sur CNews aujourd’hui, Sonia Mabrouk ne reviendra pas demain à l’interview politique**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/sonia-mabrouk-absente-de-midi-news-sur-cnews-apres-une-possible-altercation-avec-sa-direction-20260204)
