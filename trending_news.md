@@ -1,3 +1,10 @@
+### celta vigo (N/A, Fri, 6 Feb 2026 13:30:00 -0800)
+
+- **Celta Vigo vs. Osasuna: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/06/celta-vigo-vs-osasuna-la-liga-betting-odds-prediction-pick/88521570007/)
+- **Where to Watch RC Celta de Vigo vs. CA Osasuna: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/05/where-to-watch-rc-celta-de-vigo-vs-ca-osasuna-tv-channel-start-time-and-live-stream-2/)
+- **PREVIEW | Celta de Vigo vs Osasuna - team news, lineups, predictions**: [Link](https://onefootball.com/fr/news/preview-celta-de-vigo-vs-osasuna-team-news-lineups-predictions-42358964)
+
+
 ### ترتيب الدوري السعودي (N/A, Fri, 6 Feb 2026 11:30:00 -0800)
 
 - **قمة رمضانية.. تحديد موعد ديربي جدة والجولة المؤجلة في روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%85%D8%A9-%D8%B1%D9%85%D8%B6%D8%A7%D9%86%D9%8A%D8%A9--%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%AC%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D8%AC%D9%84%D8%A9-%D9%81%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/blt1000ce38b86cb33d)
