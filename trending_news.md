@@ -1,3 +1,17 @@
+### الطقس اليوم (N/A, Thu, 5 Feb 2026 23:20:00 -0800)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-59-1697618.html)
+- **لماذا تضرب فيضانات مناطق مغربية ومتى ستتوقف التساقطات المطرية الغزيرة؟**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20260205-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%8A%D9%88%D9%86%D8%A7%D8%B1%D8%AF%D9%88-%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%B5%D8%B1-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D8%B7%D9%86%D8%AC%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D8%A6%D8%B4-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%AE)
+- **يوعابد: البلاد ستدخل مرحلة جوية غير مستقرة بداية من الثلاثاء**: [Link](https://ar.telquel.ma/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D9%88%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D9%8A/)
+
+
+### طقس اليوم (N/A, Thu, 5 Feb 2026 23:10:00 -0800)
+
+- **ارتفاع درجات الحرارة.. الأرصاد تكشف تفاصيل حالة الطقس المتوقعة غدًا**: [Link](https://www.altreeq.com/527555)
+- **طقس معتدل.. هيئة الأرصاد تنبه من الضباب الصباحي وازدياد سرعة الرياح غدًا**: [Link](https://twaslnews.twaslnews.com/183431/)
+- **أجواء صيفية غدًا مع ارتفاع الحرارة إلى 30 درجة والأرصاد تحذر**: [Link](https://iq.arabsvoice.net/87843/)
+
+
 ### coupe de france (N/A, Thu, 5 Feb 2026 13:50:00 -0800)
 
 - **Un choc entre l'OL et Lens, l'OM à domicile : le programme complet des quarts de finale de la Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/Un-choc-ol-lens-au-programme-des-quarts-de-finale-de-la-coupe-de-france-l-om-recevra-toulouse/1639666)
