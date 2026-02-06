@@ -1,3 +1,31 @@
+### celta vigo – osasuna (N/A, Fri, 6 Feb 2026 11:20:00 -0800)
+
+- **Qué canal pasa Celta vs Osasuna hoy: dónde ver gratis y EN VIVO de LaLiga**: [Link](https://www.365scores.com/es/news/celta-vs-osasuna-donde-ver-gratis-vivo/)
+- **Otro impulso en Vigo**: [Link](https://www.diariodenavarra.es/noticias/deportes/futbol/osasuna/2026/02/06/impulso-vigo-809164-32.html)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20260206/1002615107/partidos-futbol-hoy-horario-canal-donde-ver-tv.html)
+
+
+### metz – lille (N/A, Fri, 6 Feb 2026 11:20:00 -0800)
+
+- **TV : Metz - Lille, à quelle heure et sur quelle chaîne ?**: [Link](https://www.foot01.com/ligue1/tv-metz-lille-a-quelle-heure-et-sur-quelle-chaine)
+- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier du 6 février – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-du-6-fevrier-ligue-1_AN-202602060671.html)
+- **Deux recrues, pas de nouvel avant-centre, le LOSC se déplace à Metz en ouverture de la 21ᵉ journée**: [Link](https://france3-regions.franceinfo.fr/hauts-de-france/nord-0/lille/deux-recrues-pas-de-nouvel-avant-centre-le-losc-se-deplace-a-metz-en-ouverture-de-la-21e-journee-3295203.html)
+
+
+### leeds united – nottm forest (N/A, Fri, 6 Feb 2026 11:20:00 -0800)
+
+- **Leeds United vs. Nottingham Forest: Tricky Trees bidding to record club first in crucial Elland Road clash**: [Link](https://www.sportsmole.co.uk/football/nottingham-forest/relegation-battle/news/nottingham-forest-bidding-to-make-club-history-in-key-leeds-united-showdown_591525.html)
+- **Fine margins could help swing Elland Road showdown**: [Link](https://sports.yahoo.com/articles/fine-margins-could-help-swing-081910006.html)
+- **Leeds vs Nottingham Forest Predictions, Picks & Odds for Today's Premier League Match**: [Link](https://www.covers.com/soccer/leeds-vs-nottingham-forest-predictions-picks-odds-premier-league-friday-february-6-2026)
+
+
+### championnat d'arabie saoudite (N/A, Fri, 6 Feb 2026 10:40:00 -0800)
+
+- **Les débuts exceptionnels de Karim Benzema avec Al-Hilal**: [Link](https://www.footmercato.net/a4091505914928777261-les-debuts-exceptionnels-de-karim-benzema-avec-al-hilal)
+- **« Mais tu es qui, toi ? »: Karim Benzema recadré après son transfert**: [Link](https://www.sports.fr/football/etranger/arabie-saoudite/mais-tu-es-qui-toi-karim-benzema-recadre-apres-son-transfert-988232.html)
+- **En conflit avec Al-Ittihad, Karim Benzema pourrait rejoindre Al-Hilal d'ici à la fin du mercato**: [Link](https://www.lequipe.fr/Football/Actualites/En-conflit-avec-al-ittihad-karim-benzema-pourrait-rejoindre-al-hilal/1638446)
+
+
 ### al-ettifaq – damac (N/A, Fri, 6 Feb 2026 08:20:00 -0800)
 
 - **Preview: Al Ettifaq vs Damac Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-damac-preview-202602)
