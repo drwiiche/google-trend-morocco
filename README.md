@@ -1,3 +1,38 @@
+### burnley – west ham (N/A, Sat, 7 Feb 2026 07:10:00 -0800)
+
+- **“No one wanted him…”: West Ham insider makes worrying claim about “low” fitness level of January signing**: [Link](https://westhamworld.co.uk/west-ham-axel-disasi-fitness-concerns-january-signing/)
+- **Nuno sends Paqueta curt farewell as new-look West Ham squad assessed**: [Link](https://www.standard.co.uk/sport/football/nuno-paqueta-goodbye-paqueta-b1269840.html)
+- **West Ham XI vs Burnley – Predicted lineup and team news**: [Link](https://sports.yahoo.com/articles/west-ham-xi-vs-burnley-064000006.html)
+
+
+### وولفرهامبتون ضد تشيلسي (N/A, Sat, 7 Feb 2026 07:10:00 -0800)
+
+- **روسينيور يعلن موقف بالمر من مواجهة وولفرهامبتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D8%B3%D9%8A%D9%86%D9%8A%D9%88%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%88%D9%82%D9%81-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D9%85%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86/blt1cb34d4e344771b8)
+- **بث مباشر مباراة تشيلسي ضد وولفرهامبتون اليوم في الدوري الإنجليزي على القنوات الناقلة**: [Link](https://www.cairo24.com/2367337)
+- **مباراة وولفرهامبتون وتشيلسي مباشرة**: [Link](https://www.vietnam.vn/ar/truc-tiep-wolves-vs-chelsea)
+
+
+### bournemouth – aston villa (N/A, Sat, 7 Feb 2026 07:00:00 -0800)
+
+- **Watkins + Tielemans: Aston Villa injury latest for FPL Gameweek 25**: [Link](https://www.fantasyfootballscout.co.uk/2026/02/06/watkins-tielemans-aston-villa-injury-latest-for-fpl-gameweek-25/)
+- **The Early Bird: Weekend football predictions & free betting accumulator tips from James Milton**: [Link](https://www.racingpost.com/sport/football-tips/the-early-bird-weekend-football-predictions-free-betting-accumulator-tips-from-james-milton-aRZxd0q5W3m7/)
+- **Midnite promo code: Claim £30 bonus for Bournemouth vs Aston Villa**: [Link](https://www.thesun.co.uk/betting/38131983/midnite-promo-code-aston-villa-vs-brentford/)
+
+
+### fulham – everton (N/A, Sat, 7 Feb 2026 07:00:00 -0800)
+
+- **Everton line-ups for Fulham as Tyrique George and Tyler Dibling decisions made**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/everton-line-ups-fulham-tyrique-33381025)
+- **Moyes Makes One Change For Fulham Test**: [Link](https://www.evertonfc.com/news/2026/february/07/moyes-makes-one-change-for-fulham-clash/)
+- **⚽ Everton team news, match build-up and live commentary stream**: [Link](https://www.facebook.com/theliverpoolecho/photos/-everton-team-news-match-build-up-and-live-commentary-stream/1245648607661413/)
+
+
+### premier league (N/A, Sat, 7 Feb 2026 06:40:00 -0800)
+
+- **Paul Merson claims one team ‘could be blown away’ as he gives Liverpool v Man City prediction**: [Link](https://www.empireofthekop.com/2026/02/07/paul-merson-claims-one-team-could-be-blown-away-as-he-gives-liverpool-v-man-city-prediction/)
+- **Slot’s pre-Man City message: “you have to be prepared to suffer”**: [Link](https://onefootball.com/fr/news/slots-pre-man-city-message-you-have-to-be-prepared-to-suffer-42373805)
+- **Mohamed Salah aims to punish Manchester City again at Anfield**: [Link](https://africasoccer.com/mohamed-salah-aims-to-punish-manchester-city-again-at-anfield/)
+
+
 ### sankt pauli – stuttgart (N/A, Sat, 7 Feb 2026 06:50:00 -0800)
 
 - **Preview: St Pauli vs Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/st-pauli/preview/st-pauli-vs-stuttgart-prediction-team-news-lineups_591500.html)
