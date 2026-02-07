@@ -1,3 +1,10 @@
+### real sociedad (N/A, Sat, 7 Feb 2026 14:00:00 -0800)
+
+- **🚨Confirmed XIs: Mismatch as Real Sociedad take on Elche**: [Link](https://sports.yahoo.com/articles/confirmed-xis-mismatch-real-sociedad-190400297.html)
+- **Football Bet of the Day: Back goals in the Basque Country on Saturday night**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-goals-in-the-basque-country-on-saturday-night-2/)
+- **Watch Real Sociedad vs Elche Live: Free LaLiga Broadcast Today**: [Link](https://www.el-balad.com/6845812)
+
+
 ### caf champions league (N/A, Sat, 7 Feb 2026 13:00:00 -0800)
 
 - **Kabylie, Al Ahly share spoils, AS FAR edge Yanga**: [Link](https://www.cafonline.com/caf-champions-league/news/kabylie-al-ahly-share-spoils-as-far-edge-yanga/)
