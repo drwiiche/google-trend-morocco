@@ -1,3 +1,17 @@
+### genoa – naples (N/A, Sat, 7 Feb 2026 09:20:00 -0800)
+
+- **Preparations for Genoa**: [Link](https://sscnapoli.it/en/ssc-napoli-training-center-il-report-dellallenamento-di-oggi-56/)
+- **Rasmus Hojlund vs. Genoa CFC – Player props & odds to score a goal on February 7**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/02/06/rasmus-hojlund-soccer-player-props-2-7-2026/88556157007/)
+- **De Rossi: Conte the 'worst coach' to face if Genoa are expecting a favour**: [Link](https://www.beinsports.com/en-au/football/serie-a/articles/de-rossi-conte-the-worst-coach-to-face-if-genoa-are-expecting-a-favour-2026-02-06)
+
+
+### lamine yamal (N/A, Sat, 7 Feb 2026 09:20:00 -0800)
+
+- **Flick explains decision to bench Barcelona heavyweight vs Mallorca: ‘Not at 100%’**: [Link](https://barcauniversal.com/flick-explains-decision-to-bench-barcelona-heavyweight-vs-mallorca-not-at-100/)
+- **Barca Beat Mallorca To Extend Liga Lead**: [Link](https://www.barrons.com/news/barca-beat-mallorca-to-extend-liga-lead-cf9514b2)
+- **Barcelona vs Mallorca predictions: Yamal to inspire a solid home win**: [Link](https://www.goal.com/en-ca/betting/tips/barcelona-vs-mallorca-predictions-02-07/A%3Ablt957a008ede267c07)
+
+
 ### newcastle – brentford (N/A, Sat, 7 Feb 2026 09:00:00 -0800)
 
 - **Out of the League Cup and stuck in mid-table - What's gone wrong at Newcastle this season?**: [Link](https://www.transfermarkt.com/out-of-the-league-cup-and-stuck-in-mid-table-whats-gone-wrong-at-newcastle-this-season-/view/news/475048)
