@@ -1,3 +1,10 @@
+### fiorentina – torino (N/A, Sat, 7 Feb 2026 12:40:00 -0800)
+
+- **LIVE Fiorentina-Torino 1-1 Serie A 2025/2026: Gol di Manor Solomon**: [Link](https://sport.virgilio.it/dirette/live/serie-a/7-2-2026/fiorentina-torino/2558740/)
+- **Baroni: "Tutti ci giochiamo il futuro. Adams? Mi ha confermato che sta bene"**: [Link](https://www.toro.it/toro/partite/dichiarazioni-baroni-prima-di-fiorentina-torino-25-26/1414551/)
+- **Bucchioni: "Non mi preoccupa l'assenza di Gosens, importante il ritorno di Kean anche se non segna"**: [Link](https://www.labaroviola.com/bucchioni-non-mi-preoccupa-lassenza-di-gosens-importante-il-ritorno-di-kean-anche-se-non-segna/338468/)
+
+
 ### real zaragoza (N/A, Sat, 7 Feb 2026 12:20:00 -0800)
 
 - **Zaragoza 1 - 1 Eibar: resumen, resultado y goles**: [Link](https://as.com/futbol/segunda/zaragoza-eibar-en-directo-laliga-hypermotion-hoy-en-vivo-f202602-d/)
