@@ -1,3 +1,10 @@
+### sankt pauli – stuttgart (N/A, Sat, 7 Feb 2026 06:50:00 -0800)
+
+- **Preview: St Pauli vs Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/st-pauli/preview/st-pauli-vs-stuttgart-prediction-team-news-lineups_591500.html)
+- **Martijn Kaars vs. VfB Stuttgart – Player props & odds to score a goal on February 7**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/02/06/martijn-kaars-soccer-player-props-2-7-2026/88556551007/)
+- **Where to Watch FC St. Pauli vs. VfB Stuttgart: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/06/where-to-watch-fc-st-pauli-vs-vfb-stuttgart-tv-channel-start-time-and-live-stream-2/)
+
+
 ### آرسنال ضد سندرلاند (N/A, Sat, 7 Feb 2026 06:40:00 -0800)
 
 - **أرتيتا يكشف موقف ثلاثي أرسنال من مواجهة سندرلاند**: [Link](https://hihi2.com/2026/02/06/p3637987.html)
