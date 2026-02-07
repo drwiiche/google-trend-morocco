@@ -1,3 +1,10 @@
+### manchester united – tottenham (N/A, Sat, 7 Feb 2026 03:40:00 -0800)
+
+- **Team news | Cuti, Micky available, Djed 'touch and go' for Old Trafford test**: [Link](https://www.tottenhamhotspur.com/news/2026/february/manchester-united-vs-spurs-premier-league-team-news-cuti-romero-micky-van-de-ven-available-djed-spence-touch-and-go-for-old-trafford-test/)
+- **LIVE: Manchester United vs Tottenham Hotspur – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/2/7/live-manchester-united-vs-tottenham-hotspur-premier-league)
+- **United Host Spurs as Red Devils Seek Early Revival**: [Link](https://www.dawan.africa/news/united-host-spurs-as-red-devils-seek-early-revival)
+
+
 ### النصر (N/A, Fri, 6 Feb 2026 09:50:00 -0800)
 
 - **صحفي برتغالي: هذه وجهة رونالدو إذا لم تحل الأزمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AD%D9%81%D9%8A-%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D9%87%D8%B0%D9%87-%D9%88%D8%AC%D9%87%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A7%D9%95%D8%B0%D8%A7-%D9%84%D9%85-%D8%AA%D8%AD%D9%84-%D8%A7%D9%84%D8%A7%D9%94%D8%B2%D9%85%D8%A9/blt46b09d765d195e1d)
