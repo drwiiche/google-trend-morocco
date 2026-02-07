@@ -1,3 +1,17 @@
+### رايو فاليكانو ضد ريال أوفييدو (N/A, Sat, 7 Feb 2026 04:30:00 -0800)
+
+- **لأسباب قهرية.. فرمان رابطة الليجا يؤجل هذه المباراة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D9%94%D8%B3%D8%A8%D8%A7%D8%A8-%D9%82%D9%87%D8%B1%D9%8A%D8%A9--%D9%81%D8%B1%D9%85%D8%A7%D9%86-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-%D9%8A%D9%88%D9%94%D8%AC%D9%84-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9/blt7380ef487ce11a8d)
+- **بسبب سوء أرضية الملعب وغياب الماء الساخن أحيانًا.. رابطة الليغا تعلن تأجيل مباراة رايو فاييكانو أمام ضيفه ريال أوفييدو**: [Link](https://m.elbotola.com/article/2026-02-07-10-21-674.html)
+- **بعد القرار الأخير .. سمعة الكرة الإسبانية ” في خبر كان ” !**: [Link](https://hihi2.com/2026/02/07/p3639079.html)
+
+
+### rayo – real oviedo (N/A, Sat, 7 Feb 2026 04:10:00 -0800)
+
+- **¡Suspendido el Rayo-Real Oviedo por el estado del campo de Vallecas!**: [Link](https://www.sport.es/es/noticias/rayo-vallecano/suspendido-rayo-vallecano-real-oviedo-126551252)
+- **Los jugadores y aficionados del Rayo se hartan: convocan protestas contra el presidente**: [Link](https://onefootball.com/de/news/los-jugadores-y-aficionados-del-rayo-se-hartan-convocan-protestas-contra-el-presidente-42372783)
+- **¿Le pueden dar el partido de Vallecas por ganado al Oviedo? El artículo 178.3, clave en la decisión**: [Link](https://www.lne.es/real-oviedo/2026/02/07/le-dar-partido-vallecas-ganado-126556196.html)
+
+
 ### مان يونايتد ضد توتنهام (N/A, Sat, 7 Feb 2026 03:50:00 -0800)
 
 - **ما القنوات الناقلة لمباراة مانشستر يونايتد وتوتنهام في الدوري الإنجليزي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltca921c5141341fba)
