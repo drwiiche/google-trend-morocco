@@ -1,3 +1,10 @@
+### نيوكاسل يونايتد ضد برينتفورد (N/A, Sat, 7 Feb 2026 10:40:00 -0800)
+
+- **تشكيلة نيوكاسل يونايتد ضد برينتفورد في الدوري الإنجليزي**: [Link](https://hihi2.com/2026/02/07/p3639981.html)
+- **هاو يشدد على أهمية الأسبوع المقبل**: [Link](https://akhbar-alkhaleej.com/news/article/1428193)
+- **هاو يشدد على أهمية الأسبوع المقبل لنيوكاسل**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5237896-%D9%87%D8%A7%D9%88-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%A3%D9%87%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84-%D9%84%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84)
+
+
 ### napoli (N/A, Sat, 7 Feb 2026 10:10:00 -0800)
 
 - **Calcio Live News: tutte le notizie sul calcio in Diretta!**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-genoa-napoli-2-2-yildiz-rinnova-i-risultati-di-serie-b/OIHWQ1sT/)
