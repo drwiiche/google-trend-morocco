@@ -1,3 +1,17 @@
+### real zaragoza (N/A, Sat, 7 Feb 2026 12:20:00 -0800)
+
+- **Zaragoza 1 - 1 Eibar: resumen, resultado y goles**: [Link](https://as.com/futbol/segunda/zaragoza-eibar-en-directo-laliga-hypermotion-hoy-en-vivo-f202602-d/)
+- **Sellés: "Estos partidos pueden pasar, pero no tenemos que perder la fe"**: [Link](https://www.cartv.es/aragondeporte/nuestro-deporte/ruben-selles-estos-partidos-pueden-pasar-pero-no-tenemos-que-perder-la-fe)
+- **Beñat San José, entrenador del Eibar, elogia al Real Zaragoza: "Es un equipo que me gusta y se ma movido muy bien en el mercado"**: [Link](https://www.elperiodicodearagon.com/real-zaragoza/2026/02/06/benat-san-jose-entrenador-eibar-126535568.html)
+
+
+### young africans (N/A, Sat, 7 Feb 2026 12:20:00 -0800)
+
+- **Santos on Young Africans Clash: "It's Like a Final... We Always Play to Win and Have the Ability to Deliver a Good Performance"**: [Link](https://m.elbotola.com/en/article/2026-02-06-13-14-797.html)
+- **CAF Champions League: What time and on which channel is the FAR Rabat vs Young Africans match?**: [Link](https://foot-africa.com/en/news/caf-champions-league-what-time-and-on-which-channel-is-the-far-rabat-vs-young-africans-match-1074188/)
+- **CAF Champions League: AS FAR coach Alexander Santos slams CAF over fans ban ahead of Young Africans clash**: [Link](https://africasoccer.com/caf-champions-league-as-far-coach-alexander-santos-slams-caf-over-fans-ban-ahead-of-young-africans-clash/)
+
+
 ### al qadisiya – al-fateh (N/A, Sat, 7 Feb 2026 10:50:00 -0800)
 
 - **Al-Qadsiah vs Al-Fateh Prediction: 7/2/2026 – Saudi Pro League Betting Preview**: [Link](https://dailystar.com.lb/al-qadsiah-vs-al-fateh-prediction-7-2-2026-saudi-pro-league/)
