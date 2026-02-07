@@ -1,3 +1,17 @@
+### caf champions league (N/A, Sat, 7 Feb 2026 13:00:00 -0800)
+
+- **Kabylie, Al Ahly share spoils, AS FAR edge Yanga**: [Link](https://www.cafonline.com/caf-champions-league/news/kabylie-al-ahly-share-spoils-as-far-edge-yanga/)
+- **CAF Champions League / JSK 0-0 Al Ahly: The Canaries officially eliminated**: [Link](https://foot-africa.com/en/news/caf-champions-league-jsk-0-0-al-ahly-the-canaries-officially-eliminated-1076486/)
+- **CAF Champions League CAFCL: Al Ahly Target Quarterfinal Qualification Against JS Kabylie — Thorup**: [Link](https://en.africatopsports.com/2026/02/06/cafcl-al-ahly-target-quarterfinal-qualification-against-js-kabylie-thorup/)
+
+
+### ترتيب دوري ابطال افريقيا (N/A, Sat, 7 Feb 2026 13:00:00 -0800)
+
+- **نتيجة وملخص مباراة الأهلي ضد شبيبة القبائل في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/7/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D8%A6%D9%84?update=8797412)
+- **ما القنوات الناقلة لمباراة شبيبة القبائل والأهلي في دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B4%D8%A8%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D9%82%D8%A8%D8%A7%D9%8A%D9%94%D9%84-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc13974a841c94c93)
+- **الأهلي يحسم تأهله في دوري أبطال أفريقيا بتعادل صعب مع شبيبة القبائل**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D8%AA%D8%A3%D9%87%D9%84%D9%87-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A/)
+
+
 ### fiorentina – torino (N/A, Sat, 7 Feb 2026 12:40:00 -0800)
 
 - **LIVE Fiorentina-Torino 1-1 Serie A 2025/2026: Gol di Manor Solomon**: [Link](https://sport.virgilio.it/dirette/live/serie-a/7-2-2026/fiorentina-torino/2558740/)
