@@ -1,3 +1,10 @@
+### ittihad (N/A, Fri, 6 Feb 2026 11:40:00 -0800)
+
+- **En-Nesyri Makes Al-Ittihad Debut Against Al-Nassr in Saudi League**: [Link](https://m.elbotola.com/en/article/2026-02-06-16-52-650.html)
+- **Youssef En-Nesyri joins Saudi club Al-Ittihad**: [Link](https://en.yabiladi.com/articles/details/187424/youssef-en-nesyri-joins-saudi-club.html)
+- **Moroccan Veteran’s Transfer Officially Sanctioned**: [Link](https://www.filmogaz.com/136778)
+
+
 ### al nassr (N/A, Fri, 6 Feb 2026 09:40:00 -0800)
 
 - **Saudis ready to offload Ronaldo for £43m and target Man Utd star as replacement**: [Link](https://inews.co.uk/sport/football/saudi-cristiano-ronaldo-man-utd-transfer-4218724)
