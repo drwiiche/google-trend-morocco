@@ -1,3 +1,10 @@
+### al qadisiya – al-fateh (N/A, Sat, 7 Feb 2026 10:50:00 -0800)
+
+- **Al-Qadsiah vs Al-Fateh Prediction: 7/2/2026 – Saudi Pro League Betting Preview**: [Link](https://dailystar.com.lb/al-qadsiah-vs-al-fateh-prediction-7-2-2026-saudi-pro-league/)
+- **Julián Quiñones on Cristiano's Tail: Time and Where to Watch Al Qadisiya vs. Al-Fateh**: [Link](https://www.soyfutbol.com/en/news/julian-quinones-on-cristianos-tail-time-and-where-to-watch-al-qadisiya-vs.-al-fateh-20260206-0033.html)
+- **Preview: Al Qadsiah vs Al Fateh Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-qadsiah-vs-al-fateh-preview-202602)
+
+
 ### nantes – lyon (N/A, Sat, 7 Feb 2026 11:40:00 -0800)
 
 - **OL : Endrick va se trouer, la folle prédiction de Nantes**: [Link](https://www.foot01.com/ol/ol-endrick-va-se-trouer-la-folle-prediction-de-nantes)
