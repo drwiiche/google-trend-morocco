@@ -1,3 +1,10 @@
+### mönchengladbach – leverkusen (N/A, Sat, 7 Feb 2026 09:40:00 -0800)
+
+- **Polanski-Befehl an seine Spieler: Schluss mit dem Angsthasen-Fußball!**: [Link](https://www.bild.de/sport/fussball/polanski-befehl-an-seine-spieler-schluss-mit-dem-angsthasen-fussball-6985223e9d88d6e920be17be)
+- **Borussia empfängt Bayer 04: Alle Infos zum Spiel!**: [Link](https://bmg-news.de/borussia-empfaengt-bayer-04-alle-infos-zum-spiel/)
+- **Bundesliga heute: Gladbach - Leverkusen LIVE im TV, Liveticker & Livestream**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/02/bundesliga-heute-gladbach-leverkusen-live-im-tv-liveticker-livestream)
+
+
 ### genoa – naples (N/A, Sat, 7 Feb 2026 09:20:00 -0800)
 
 - **Preparations for Genoa**: [Link](https://sscnapoli.it/en/ssc-napoli-training-center-il-report-dellallenamento-di-oggi-56/)
