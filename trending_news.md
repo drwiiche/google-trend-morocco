@@ -1,3 +1,10 @@
+### nantes – lyon (N/A, Sat, 7 Feb 2026 11:40:00 -0800)
+
+- **OL : Endrick va se trouer, la folle prédiction de Nantes**: [Link](https://www.foot01.com/ol/ol-endrick-va-se-trouer-la-folle-prediction-de-nantes)
+- **Nantes - Lyon. Tabibou d’entrée, Tati en tribune : la compo nantaise est tombée**: [Link](https://www.ouest-france.fr/sport/football/fc-nantes/nantes-lyon-tabibou-dentree-tati-en-tribune-la-compo-nantaise-est-tombee-d2eec132-0453-11f1-b002-a12469be8537)
+- **OL : Tolisso et Yaremchuk encore absents à Nantes**: [Link](https://www.sport365.fr/ol-tolisso-yaremchuk-absents-a-nantes-10788568.html)
+
+
 ### real sociedad – elche (N/A, Sat, 7 Feb 2026 11:10:00 -0800)
 
 - **Qué canal pasa Real Sociedad vs Elche hoy: dónde ver gratis y EN VIVO LaLiga**: [Link](https://www.365scores.com/es/news/real-sociedad-vs-elche-donde-ver-canal/)
