@@ -1,3 +1,10 @@
+### lens – rennes (N/A, Sat, 7 Feb 2026 07:40:00 -0800)
+
+- **Lens – Rennes : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/lens-rennes-quelle-chaine-diffuse-le-match-988243.html)
+- **Stade Rennais. En trois matches, retour à la case départ ?**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-en-trois-matches-retour-a-la-case-depart-ca491a06-035d-11f1-b002-a12469be8537)
+- **Histoire de reprendre les rênes de la Ligue 1**: [Link](https://onefootball.com/fr/news/histoire-de-reprendre-les-renes-de-la-ligue-1-42371616)
+
+
 ### burnley – west ham (N/A, Sat, 7 Feb 2026 07:10:00 -0800)
 
 - **“No one wanted him…”: West Ham insider makes worrying claim about “low” fitness level of January signing**: [Link](https://westhamworld.co.uk/west-ham-axel-disasi-fitness-concerns-january-signing/)
