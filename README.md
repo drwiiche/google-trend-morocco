@@ -1,3 +1,17 @@
+### manchester united (N/A, Sat, 7 Feb 2026 04:40:00 -0800)
+
+- **'Looks worse in slow-mo': Shocking moment Cristian Romero BENDS Casemiro’s ankle**: [Link](https://tribuna.com/en/blogs/looks-worse-in-slowmo-shocking-moment-cristian-romero-bends/)
+- **Spurs captain suspended for Arsenal game with 6 already ruled out**: [Link](https://dailycannon.com/2026/02/spurs-romero-arsenal/)
+- **DIALLO GOAL DISALLOWED!**: [Link](https://www.besoccer.com/new/live-man-utd-v-tottenham-1393416)
+
+
+### man united vs tottenham (N/A, Sat, 7 Feb 2026 03:50:00 -0800)
+
+- **Premier League LIVE: Build-up to Man Utd v Spurs plus six other games - score, results & updates**: [Link](https://www.bbc.com/sport/football/live/c9d9z4zl2w7t)
+- **Spurs captain suspended for Arsenal game with 6 already ruled out**: [Link](https://dailycannon.com/2026/02/spurs-romero-arsenal/)
+- **DIALLO GOAL DISALLOWED!**: [Link](https://www.besoccer.com/new/live-man-utd-v-tottenham-1393416)
+
+
 ### southampton – watford (N/A, Sat, 7 Feb 2026 04:50:00 -0800)
 
 - **Preview: Southampton vs Watford - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/southampton/preview/southampton-vs-watford-prediction-team-news-lineups_591445.html)
