@@ -1,3 +1,10 @@
+### southampton – watford (N/A, Sat, 7 Feb 2026 04:50:00 -0800)
+
+- **Preview: Southampton vs Watford - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/southampton/preview/southampton-vs-watford-prediction-team-news-lineups_591445.html)
+- **How to Stream Saints vs Watford in Championship Early Kick-Off**: [Link](https://www.filmogaz.com/138011)
+- **Southampton V Watford The Preview**: [Link](https://www.fansnetwork.co.uk/football/southampton/news/65629/southampton-v-watford-the-preview)
+
+
 ### رايو فاليكانو ضد ريال أوفييدو (N/A, Sat, 7 Feb 2026 04:30:00 -0800)
 
 - **لأسباب قهرية.. فرمان رابطة الليجا يؤجل هذه المباراة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D9%94%D8%B3%D8%A8%D8%A7%D8%A8-%D9%82%D9%87%D8%B1%D9%8A%D8%A9--%D9%81%D8%B1%D9%85%D8%A7%D9%86-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-%D9%8A%D9%88%D9%94%D8%AC%D9%84-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9/blt7380ef487ce11a8d)
