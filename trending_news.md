@@ -1,3 +1,57 @@
+### آرسنال ضد سندرلاند (N/A, Sat, 7 Feb 2026 06:40:00 -0800)
+
+- **أرتيتا يكشف موقف ثلاثي أرسنال من مواجهة سندرلاند**: [Link](https://hihi2.com/2026/02/06/p3637987.html)
+- **بث مباشر لمباراة أرسنال وسندرلاند**: [Link](https://www.vietnam.vn/ar/truc-tiep-arsenal-vs-sunderland)
+- **خيسوس يقود هجوم أرسنال ضد سندرلاند فى الدوري الإنجليزي**: [Link](https://www.youm7.com/story/2026/2/7/%D8%AE%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/7296974)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 7 Feb 2026 06:40:00 -0800)
+
+- **آخر مواعيد مباريات الجولة 26 من الدوري الإنجليزي الممتاز لموسم 2025/26.**: [Link](https://www.vietnam.vn/ar/lich-thi-dau-vong-26-ngoai-hang-anh-2025-26-moi-nhat)
+- **عجلة «البريميرليج» تعود للدوران بـ7 مواجهات**: [Link](https://www.almasryalyoum.com/news/details/4193188)
+- **تحليل عن الدوري الإنجليزي : ليفربول فقد اللقب .. ونوتنجهام سيء .. وولفر في كارثة**: [Link](https://misrelaan.com/article/99087/%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D8%B9%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%82%D8%AF-%D8%A7%D9%84)
+
+
+### barcelone – majorque (N/A, Sat, 7 Feb 2026 06:30:00 -0800)
+
+- **Barcelone-Majorque: quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/espagne/barcelone-majorque-quelle-chaine-diffuse-le-match-987894.html)
+- **PRONOS PARIS RMC Le pari sûr du 7 février - Liga - Espagne**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-7-fevrier-liga-espagne_AN-202602060870.html)
+- **Pronostic du match Barcelone - Majorque : Lamine Yamal est inarrêtable**: [Link](https://www.vietnam.vn/fr/nhan-dinh-bong-da-barca-vs-mallorca-khong-the-can-lamine-yamal)
+
+
+### برشلونة ضد مايوركا (N/A, Sat, 7 Feb 2026 06:30:00 -0800)
+
+- **موعد مباراة برشلونة ضد مايوركا في الدوري الإسباني والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/2/6/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7)
+- **احصائيات فيرمين لوبيز في الليغا**: [Link](https://hihi2.com/2026/02/07/p3639490.html)
+- **ما القنوات الناقلة لمباراة برشلونة وريال مايوركا في الدوري الإسباني 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta42368e0ede6d47f)
+
+
+### barcelona vs mallorca (N/A, Sat, 7 Feb 2026 06:30:00 -0800)
+
+- **Flick, con un once muy reconocible ante el Mallorca**: [Link](https://www.sport.es/es/noticias/barca/flick-once-reconocible-mallorca-126532592)
+- **FC Barcelona vs RCD Mallorca: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/fc-barcelona-vs-rcd-mallorca-previa-predicciones-y-alineaciones-07-02-26)
+- **Barça - Mallorca: Lamine, Rashford y Lewandowski lideran el ataque**: [Link](https://onefootball.com/es/noticias/barca-mallorca-lamine-rashford-y-lewandowski-lideran-el-ataque-42373403)
+
+
+### arsenal – sunderland (N/A, Sat, 7 Feb 2026 06:20:00 -0800)
+
+- **Mikel Arteta cannot fall into a painfully obvious trap this weekend**: [Link](https://paininthearsenal.com/mikel-arteta-cannot-fall-into-a-painfully-obvious-trap-this-weekend-01kgtt50ng3v)
+- **Predictions for this one?**: [Link](https://www.besoccer.com/new/live-arsenal-vs-sunderland-1393443)
+- **Rallying cry for all Gooners against Sunderland**: [Link](https://onefootball.com/de/news/rallying-cry-for-all-gooners-against-sunderland-42372917)
+
+
+### wolves – chelsea (N/A, Sat, 7 Feb 2026 06:20:00 -0800)
+
+- **Chelsea predicted XI vs Wolves as tough Garnacho, Palmer and James decisions made**: [Link](https://www.football.london/chelsea-fc/news/chelsea-predicted-xi-vs-wolves-33378444)
+- **Why Chelsea need double Man City & Spurs favour as Liam Rosenior's dream scenario outlined**: [Link](https://www.si.com/onsi/soccer/chelsea/news/why-chelsea-need-double-man-city-spurs-favour-as-liam-rosenior-dream-scenario-outlined-01kgvvgphjnc)
+- **Wolves vs. Chelsea, Premier League: Confirmed lineups; how to watch**: [Link](https://sports.yahoo.com/articles/wolves-vs-chelsea-premier-league-135421778.html)
+
+
+### al-kholood club – al shabab (N/A, Sat, 7 Feb 2026 06:20:00 -0800)
+
+- **Al-Kholood vs Al-Shabab Betting Tips: Score Prediction and Match Preview – 7/2/2026**: [Link](https://dailystar.com.lb/al-kholood-vs-al-shabab-betting-tips-prediction-preview-7-2-2026/)
+
+
 ### manchester united (N/A, Sat, 7 Feb 2026 04:40:00 -0800)
 
 - **'Looks worse in slow-mo': Shocking moment Cristian Romero BENDS Casemiro’s ankle**: [Link](https://tribuna.com/en/blogs/looks-worse-in-slowmo-shocking-moment-cristian-romero-bends/)
