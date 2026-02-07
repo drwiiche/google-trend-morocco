@@ -1,3 +1,17 @@
+### newcastle – brentford (N/A, Sat, 7 Feb 2026 09:00:00 -0800)
+
+- **Out of the League Cup and stuck in mid-table - What's gone wrong at Newcastle this season?**: [Link](https://www.transfermarkt.com/out-of-the-league-cup-and-stuck-in-mid-table-whats-gone-wrong-at-newcastle-this-season-/view/news/475048)
+- **Brentford (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2026/02/06/brentford-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
+- **Newcastle vs Brentford free bets: Get £50 in free Bet Builders with Betfair**: [Link](https://www.thesun.co.uk/sport/38115843/newcastle-brentford-free-bets-betfair/)
+
+
+### arsenal (N/A, Sat, 7 Feb 2026 08:50:00 -0800)
+
+- **Granit Xhaka on his Arsenal fallout, Sunderland and success in Germany**: [Link](https://www.bbc.com/sport/football/articles/c801z394lr1o)
+- **Sunderland news: Granit Xhaka on his unexpected return to England**: [Link](https://www.bbc.co.uk/sport/football/articles/czdqd4y2dpqo)
+- **'People were laughing at me' - Granit Xhaka explains why he knew Sunderland were right club for him**: [Link](https://www.sunderlandecho.com/sport/football/sunderland-afc/granit-xhaka-sunderland-5506781)
+
+
 ### fc barcelone (N/A, Sat, 7 Feb 2026 08:30:00 -0800)
 
 - **Officiel : Barcelone annonce son retrait de la Super League européenne |**: [Link](https://fr.hibapress.com/news-233669.html)
