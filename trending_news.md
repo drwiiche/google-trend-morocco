@@ -1,3 +1,24 @@
+### real sociedad – elche (N/A, Sat, 7 Feb 2026 11:10:00 -0800)
+
+- **Qué canal pasa Real Sociedad vs Elche hoy: dónde ver gratis y EN VIVO LaLiga**: [Link](https://www.365scores.com/es/news/real-sociedad-vs-elche-donde-ver-canal/)
+- **Matarazzo rota pensando en la Copa y Sarabia sorprende con Neto**: [Link](https://www.infobae.com/espana/agencias/2026/02/07/matarazzo-rota-pensando-en-la-copa-y-sarabia-sorprende-con-neto/)
+- **Oyarzabal y Guedes pasan revista ante el Elche**: [Link](https://as.com/futbol/primera/oyarzabal-y-guedes-pasan-revista-ante-el-elche-f202602-n/)
+
+
+### jack lang (N/A, Sat, 7 Feb 2026 11:00:00 -0800)
+
+- **Les intenses liens financiers de Jeffrey Epstein avec la famille Lang**: [Link](https://www.mediapart.fr/journal/france/020226/les-intenses-liens-financiers-de-jeffrey-epstein-avec-la-famille-lang)
+- **« Il a vécu toute sa vie en ayant le sentiment d’être un intouchable » : l’étau se resserre autour de Jack Lang**: [Link](https://www.leparisien.fr/politique/il-a-vecu-toute-sa-vie-en-ayant-le-sentiment-detre-un-intouchable-letau-se-resserre-autour-de-jack-lang-04-02-2026-K67LS46VDJAYNED6XPVA5P4AUY.php)
+- **Affaire Epstein : Jack Lang démissionne de l’Institut du monde arabe**: [Link](https://www.lefigaro.fr/flash-actu/affaire-epstein-jack-lang-demissionne-de-l-institut-du-monde-arabe-20260207)
+
+
+### inondations maroc ksar el kebir (N/A, Sat, 7 Feb 2026 11:00:00 -0800)
+
+- **Crues et pluies extrêmes : quels dégâts agricoles après des cumuls dépassant 200 mm ?**: [Link](https://medias24.com/2026/02/06/crues-et-pluies-extremes-quels-degats-agricoles-apres-des-cumuls-depassant-200-mm-1624025/)
+- **A quoi ressemblent Sidi Kacem et Sidi Slimane, inondées par la crue de l’oued Sebou**: [Link](https://fr.le360.ma/societe/a-quoi-ressemblent-sidi-kacem-et-sidi-slimane-inondees-par-la-crue-de-loued-sebou_XBCYA6WHORGCBALQST752AJIUI/)
+- **Pluies au Maroc : Ce que révèlent les inondations de Ksar El Kébir et du Gharb**: [Link](https://lematin.ma/videos/pluies-au-maroc-ce-que-revelent-les-inondations-de-ksar-el-kebir-et-gharb/328573)
+
+
 ### نيوكاسل يونايتد ضد برينتفورد (N/A, Sat, 7 Feb 2026 10:40:00 -0800)
 
 - **تشكيلة نيوكاسل يونايتد ضد برينتفورد في الدوري الإنجليزي**: [Link](https://hihi2.com/2026/02/07/p3639981.html)
