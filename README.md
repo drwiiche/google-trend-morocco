@@ -1,3 +1,24 @@
+### fc barcelone (N/A, Sat, 7 Feb 2026 08:30:00 -0800)
+
+- **Officiel : Barcelone annonce son retrait de la Super League européenne |**: [Link](https://fr.hibapress.com/news-233669.html)
+- **Le Barça se retire de la Super League**: [Link](https://www.footmercato.net/a815515064685937462-le-barca-se-retire-de-la-super-league)
+- **Le Barça annonce son retrait définitif du projet de la Superligue**: [Link](https://www.lesiteinfo.com/sport/666244-le-barca-annonce-son-retrait-definitif-du-projet-de-la-superligue.html)
+
+
+### dortmund (N/A, Sat, 7 Feb 2026 08:20:00 -0800)
+
+- **Dortmund jagt die Bayern – Stuttgart patzt bei Kellerkind**: [Link](https://www.gmx.ch/magazine/sport/fussball/bundesliga/dortmund-jagt-bayern-stuttgart-patzt-kellerkind-41876934)
+- **Mainz siegt weiter – BVB punktet im Titelrennen, Werder im freien Fall**: [Link](https://www.heute.at/s/bvb-punktet-im-titelrennen-werder-im-freien-fall-120160700)
+- **2:1 – Brandt und Guirassy treffen zum Auswärtssieg in Wolfsburg**: [Link](https://www.bvb.de/de/de/aktuelles/news/news.html/2026/2/7/21-Brandt-und-Guirassy-treffen-zum-Auswaertssieg-in-Wolfsburg.html)
+
+
+### chelsea (N/A, Sat, 7 Feb 2026 08:00:00 -0800)
+
+- **From Argentina: Chelsea ‘quietly advancing’ for striker, at least €90m needed**: [Link](https://sportwitness.co.uk/from-argentina-chelsea-quietly-advancing-for-striker-at-least-e90m-needed/)
+- **Worth more than Alvarez: Arteta has struck gold on Arsenal "superstar"**: [Link](https://www.footballfancast.com/worth-more-than-alvarez-arteta-has-struck-gold-on-arsenal-saka/)
+- **Julián Álvarez Forgets About Lamine Yamal and Praises Another Barcelona Player**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/juli%C3%A1n-%C3%A1lvarez-forgets-about-lamine-yamal-and-praises-another-barcelona-player-2026-02-04)
+
+
 ### lens – rennes (N/A, Sat, 7 Feb 2026 07:40:00 -0800)
 
 - **Lens – Rennes : quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/lens-rennes-quelle-chaine-diffuse-le-match-988243.html)
