@@ -1,3 +1,10 @@
+### nfl (N/A, Sun, 8 Feb 2026 15:20:00 -0800)
+
+- **Trump says it's 'terrible' Bill Belichick wasn't elected to the Hall of Fame on the first ballot**: [Link](https://www.nbcnews.com/politics/donald-trump/trump-bill-belichick-hall-fame-rcna257548)
+- **Sources: Robert Kraft not voted for Hall of Fame Class of '26**: [Link](https://www.espn.com/nfl/story/_/id/47812233/sources-robert-kraft-not-voted-hall-fame-class-26)
+- **Chiefs HC Andy Reid gets controversial message from Tom Brady’s teammate on Super Bowl dynasty with Patrick...**: [Link](https://bolavip.com/en/nfl/chiefs-hc-andy-reid-gets-controversial-message-from-tom-bradys-teammate-on-super-bowl-dynasty-with-patrick-mahomes-and-travis-kelce)
+
+
 ### super bowl (N/A, Sun, 8 Feb 2026 13:30:00 -0800)
 
 - **Green Day, then and now: See Billie Joe Armstrong and the band over 35 years later**: [Link](https://ew.com/green-day-then-and-now-11900856)
