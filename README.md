@@ -1,3 +1,17 @@
+### psv (N/A, Sun, 8 Feb 2026 09:50:00 -0800)
+
+- **VI Live: Schouten prijst strijdplan van FC Groningen na overwinning PSV**: [Link](https://www.vi.nl/nieuws/vi-live-schouten-prijst-strijdplan-van-fc-groningen-na-overwinning-psv)
+- **LIVE | PSV draait het om! Dennis Man zet Eindhovenaren op voorsprong in De Euroborg**: [Link](https://www.ed.nl/psv/live-psv-draait-het-om-dennis-man-zet-eindhovenaren-op-voorsprong-in-de-euroborg~a40992c9/)
+- **LIVE | Wanner raakt de paal en Saibari stuit op Vaessen, PSV nog altijd op achterstand in Groningen**: [Link](https://www.ad.nl/groningen/live-wanner-raakt-de-paal-en-saibari-stuit-op-vaessen-psv-nog-altijd-op-achterstand-in-groningen~a40992c9/)
+
+
+### city (N/A, Sun, 8 Feb 2026 09:30:00 -0800)
+
+- **Austin is the best city in Texas for Valentine’s Day, study says**: [Link](https://www.statesman.com/entertainment/article/austin-valentines-day-best-cities-ranking-21341200.php)
+- **Video Valentine's Day money red flags**: [Link](https://abcnews.go.com/Lifestyle/video/valentines-day-money-red-flags-129954449)
+- **San Francisco tops list as ‘Most Expensive City’ for Valentine’s dates stateside**: [Link](https://www.atvtoday.co.uk/278311-valentines/)
+
+
 ### bayern munich (N/A, Sun, 8 Feb 2026 09:20:00 -0800)
 
 - **Preview: Bayern vs. Hoffenheim, Bundesliga Matchday 21**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/fc-bayern-muenchen-tsg-hoffenheim-07-02-2026/preview)
