@@ -1,3 +1,24 @@
+### sonia mabrouk cnews (N/A, Sun, 8 Feb 2026 04:10:00 -0800)
+
+- **« Elle a déjà des propositions d’autres chaînes » : les coulisses du départ de Sonia Mabrouk de CNews**: [Link](https://www.leparisien.fr/culture-loisirs/tv/elle-a-deja-des-propositions-dautres-chaines-les-coulisses-du-depart-de-sonia-mabrouk-de-cnews-06-02-2026-3EWCWHME5RBPHP27CGBQWZMFH4.php)
+- **Crise à CNews : Sonia Mabrouk annonce sa démission de la chaîne**: [Link](https://www.liberation.fr/economie/medias/crise-a-cnews-sonia-mabrouk-annonce-sa-demission-de-la-chaine-20260206_TJEEEYICI5FH5AMORXES45TNSA/)
+- **De l’affaire Morandini à la démission fracassante de Sonia Mabrouk, les trois semaines qui ont fait basculer CNews dans la tourmente**: [Link](https://www.lefigaro.fr/medias/de-l-affaire-morandini-a-la-demission-fracassante-de-sonia-mabrouk-les-trois-semaines-qui-ont-fait-basculer-cnews-dans-la-tourmente-20260208)
+
+
+### utrecht – feyenoord (N/A, Sun, 8 Feb 2026 04:00:00 -0800)
+
+- **VI Live: Jans grijpt in en voert dubbele wissel door bij mak Utrecht**: [Link](https://www.vi.nl/nieuws/vi-live-jans-grijpt-in-en-voert-dubbele-wissel-door-bij-mak-utrecht)
+- **Lange rijen bij Galgenwaard door storing, fans missen begin van de wedstrijd**: [Link](https://www.rtvutrecht.nl/nieuws/4003187/lange-rijen-bij-galgenwaard-door-storing-toegangspoortjes)
+- **Live Eredivisie | Feyenoord komt snel op voorsprong bij FC Utrecht**: [Link](https://www.nu.nl/voetbal/6385306/live-eredivisie-feyenoord-komt-snel-op-voorsprong-bij-fc-utrecht.html)
+
+
+### ambre star academy (N/A, Sun, 8 Feb 2026 03:30:00 -0800)
+
+- **A seulement 18 ans, Ambre remporte largement la Star Academy 2025**: [Link](https://www.20minutes.fr/arts-stars/television/4200319-20260208-seulement-18-ans-ambre-remporte-largement-star-academy-2025)
+- **INFO RTL - "Star Academy" : Ed Sheeran, parrain de la promo 2025, ne sera pas présent lors de la grande finale**: [Link](https://www.rtl.fr/culture/medias-people/info-rtl-star-academy-ed-sheeran-parrain-de-la-promo-2025-ne-sera-pas-present-lors-de-la-grande-finale-7900597332)
+- **« Sur scène, Ambre devient une autre personne » : la mère de la finaliste de la « Star Academy » se confie**: [Link](https://www.leparisien.fr/culture-loisirs/tv/sur-scene-ambre-devient-une-autre-personne-la-mere-de-la-finaliste-de-star-academy-se-confie-04-02-2026-5QCI2K627FAZJLMGX5BSP22CUI.php)
+
+
 ### coupe davis maroc colombie (N/A, Sun, 8 Feb 2026 02:30:00 -0800)
 
 - **Coupe Davis : Maroc Colombie**: [Link](https://sport.le360.ma/internal-gallery/coupe-davis-maroc-colombie_OWZKIWRUN5DCJDUNG2GVZ3BETQ/)
