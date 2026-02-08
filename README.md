@@ -1,3 +1,31 @@
+### kylian mbappé (N/A, Sun, 8 Feb 2026 14:00:00 -0800)
+
+- **Lamine Yamal, highest scorer under 19 years in Europe's top five leagues**: [Link](https://www.fcbarcelona.com/en/card/4446320/lamine-yamal-highest-scorer-under-19-years-in-europes-top-five-leagues)
+- **The key shift that has helped Barcelona youngster rediscover peak form**: [Link](https://barcauniversal.com/the-key-shift-that-has-helped-barcelona-youngster-rediscover-peak-form/)
+- **"A battle of pain": What happened to Yamal during his latest injury?**: [Link](https://foot-africa.com/en/news/a-battle-of-pain-what-happened-to-yamal-during-his-latest-injury-1074800/)
+
+
+### ترتيب الدوري الاسباني (N/A, Sun, 8 Feb 2026 13:50:00 -0800)
+
+- **جدول مباريات الدوري الإسباني موسم 2025-2026 القنوات الناقلة والترتيب الكامل لهذا الموسم المثير**: [Link](https://akher.news/18805/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D9%88%D8%B3%D9%85-2025-2026-%D8%A7/)
+- **جدول ترتيب الدوري الإسباني 2025/2026 بعد الجولة 23**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC%D9%88-13/)
+- **جدول ترتيب الدوري الإسباني 2025-2026: برشلونة يعزز صدارته**: [Link](https://almodrj.com/archives/25951)
+
+
+### classement la liga (N/A, Sun, 8 Feb 2026 13:50:00 -0800)
+
+- **Real Sociedad 3-1 Elche, La Liga : résumé du match (07/02/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/real-sociedad-elche-live/676937)
+- **La dynamique se poursuit**: [Link](https://www.realsociedad.eus/fr/nouvelles/detail/la-dynamique-se-poursuit)
+- **Liga : la Real Sociedad poursuit son incroyable série contre Elche**: [Link](https://www.sudouest.fr/pyrenees-atlantiques/pays-basque/liga-la-real-sociedad-poursuit-son-incroyable-serie-contre-elche-27765366.php)
+
+
+### juventus vs lazio (N/A, Sun, 8 Feb 2026 13:40:00 -0800)
+
+- **Juventus probable lineup vs Lazio: Koopmeiners ready to step up**: [Link](https://www.juvefc.com/juventus-probable-lineup-vs-lazio-koopmeiners-ready-to-step-up/)
+- **Sarri: ‘Romagnoli important for Lazio, Maldini has huge potential’**: [Link](https://onefootball.com/fr/news/sarri-romagnoli-important-for-lazio-maldini-has-huge-potential-42380003)
+- **🚨 Line-ups announced: Juve must win against Lazio**: [Link](https://sports.yahoo.com/articles/line-ups-announced-juve-must-184500257.html)
+
+
 ### benfica vs alverca (N/A, Sun, 8 Feb 2026 13:40:00 -0800)
 
 - **Benfica x Alverca AO VIVO: link para assistir online (08/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/benfica-alverca-ao-vivo-link-para-assistir-online-08-02/c896a81fdad602cb43823204)
