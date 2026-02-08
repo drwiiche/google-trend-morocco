@@ -1,3 +1,10 @@
+### psg vs (N/A, Sun, 8 Feb 2026 12:30:00 -0800)
+
+- **Football Tracker: PSG hosting rivals Marseille in Ligue 1, Real Madrid in LaLiga action**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-results-updates/GdYm31MP/)
+- **Le Classique: A Title Tilt or a Capital Coronation?**: [Link](https://www.365scores.com/news/le-classique-a-title-tilt-or-a-capital-coronation?utm_source=365scores&utm_medium=%2524SCREEN&utm_campaign=%2524CONTEXT)
+- **🎥 Ousmane Dembélé’s Ballon d’Or-worthy goal against Marseille ✨**: [Link](https://sports.yahoo.com/articles/ousmane-demb-l-ballon-d-202900981.html)
+
+
 ### david jiménez (N/A, Sun, 8 Feb 2026 11:50:00 -0800)
 
 - **Vuelve Rüdiger**: [Link](https://as.com/futbol/primera/vuelve-rudiger-f202602-n/)
