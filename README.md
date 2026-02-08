@@ -1,3 +1,31 @@
+### caf confederation cup (N/A, Sun, 8 Feb 2026 07:20:00 -0800)
+
+- **Chiefs improve their chances with narrow win over Al Masry, Maniema stun Wydad**: [Link](https://www.cafonline.com/caf-confederation-cup/news/chiefs-improve-their-chances-with-narrow-win-over-al-masry-maniema-stun-wydad/)
+- **McCarthy fires Chiefs top of Group D with Masry win**: [Link](https://supersport.com/football/news/dcf78511-f0c6-47ae-b76a-7736425c7cd8/mccarthy-fires-chiefs-top-of-group-d-with-masry-win)
+- **Kaizer Chiefs seek CAF Confederation Cup lift after Nedbank Cup setback**: [Link](https://dfa.co.za/sport/2026-02-06-kaizer-chiefs-seek-caf-confederation-cup-lift-after-nedbank-cup-setback/)
+
+
+### mohamed chouki (N/A, Sun, 8 Feb 2026 07:20:00 -0800)
+
+- **Mohamed Chouki élu nouveau président du RNI**: [Link](https://lematin.ma/nation/mohamed-chouki-elu-nouveau-president-du-rni/328653)
+- **Reportage. Le chant de la "colombe" de Aziz Akhannouch, désormais ex-patron du RNI**: [Link](https://medias24.com/2026/02/08/reportage-le-chant-de-la-colombe-de-aziz-akhannouch-desormais-ex-patron-du-rni-1624535/)
+- **RNI : Akhannouch plaide pour un modèle politique alternatif**: [Link](https://www.leconomiste.com/flash-infos/rni-akhannouch-plaide-pour-un-modele-politique-alternatif/)
+
+
+### coupe de la caf (N/A, Sun, 8 Feb 2026 07:10:00 -0800)
+
+- **Wydad-Nairobi United (Coupe de la CAF) : quelle heure, quelle chaînes**: [Link](https://medias24.com/2026/02/08/wydad-nairobi-united-coupe-de-la-caf-quelle-heure-quelle-chaines-1624275/)
+- **Coupe de la CAF : Le WAC et l'OCS face aux lanternes rouges**: [Link](https://lematin.ma/sports/coupe-de-la-caf-le-wac-et-locs-face-aux-lanternes-rouges/328533)
+- **Benhachem : « La défaite du dernier match nous a rappelé que rien n'est garanti et que la première place ne nous offre aucun avantage pour la rencontre de demain**: [Link](https://m.elbotola.com/fr/article/2026-02-07-12-35-584.html)
+
+
+### lionel messi (N/A, Sun, 8 Feb 2026 07:00:00 -0800)
+
+- **MATCH RECAP: Inter Miami CF and Barcelona S.C. Face Off in Front of an Electric Crowd in Guayaquil, Ecuador**: [Link](https://www.intermiamicf.com/news/match-recap-inter-miami-cf-and-barcelona-s-c-face-off-in-front-of-an-electric-crowd-in-guayaquil-ecuador)
+- **Lionel Messi scores his first goal of 2026, produces slick finish in Inter Miami friendly vs. Barcelona SC**: [Link](https://www.cbssports.com/soccer/news/lionel-messi-goal-highlight-inter-miami-barcelona-friendly-2026/)
+- **Messi, Inter Miami off to Ecuador, Allende and Berterame available to play**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article314607826.html)
+
+
 ### wac (N/A, Sun, 8 Feb 2026 07:00:00 -0800)
 
 - **Tyler Hendricks scores 18 to propel Utah Valley past UT Arlington 81-60**: [Link](https://abcnews.go.com/Sports/wireStory/tyler-hendricks-scores-18-propel-utah-valley-past-129958568)
