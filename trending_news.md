@@ -1,3 +1,17 @@
+### atlético madrid – betis (N/A, Sun, 8 Feb 2026 08:50:00 -0800)
+
+- **Atlético de Madrid-Real Betis: Sin tiempo para un respiro**: [Link](https://onefootball.com/pt-br/noticias/atletico-de-madrid-real-betis-sin-tiempo-para-un-respiro-42377433)
+- **Impacto inmediato e incontestable de Lookman**: [Link](https://es-us.noticias.yahoo.com/deportes/impacto-inmediato-incontestable-lookman-215711538.html)
+- **Pellegrini, por dura eliminación en Copa del Rey: "La crítica la acepto plenamente"**: [Link](https://espndeportes.espn.com/futbol/espana/nota/_/id/16282034/manuel-pellegrini-dura-eliminacion-betis-copa-del-rey-critica)
+
+
+### أتلتيكو مدريد ضد ريال بتيس (N/A, Sun, 8 Feb 2026 08:50:00 -0800)
+
+- **قدم.. أتلتيكو مدريد يكمل عقد المتأهلين لنصف نهائي كأس إسبانيا**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%83%D9%85%D9%84-%D8%B9%D9%82%D8%AF-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84%D9%8A%D9%86-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/3822004)
+- **هدافي ريال بيتيس في الليغا قبل مواجهة أتلتيكو مدريد**: [Link](https://hihi2.com/2026/02/08/p3640634.html)
+- **رغم الهزيمة القاسية أمام الأتلتيكو... الزلزولي يواصل التألق مع ريال بيتس**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%88%D9%83%D9%85%D8%A7%D9%86-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%88%D9%8A%D9%82%D9%88%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%84%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D8%A3%D8%B3/15413)
+
+
 ### sassuolo – inter (N/A, Sun, 8 Feb 2026 08:20:00 -0800)
 
 - **Luis Henrique a InterTV: “Sto bene fisicamente e sento la fiducia di mister e squadra”**: [Link](https://www.fcinter1908.it/news/interviste/sassuolo-inter-luis-henrique-intertv/)
