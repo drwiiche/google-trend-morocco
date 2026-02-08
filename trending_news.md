@@ -1,3 +1,10 @@
+### jeux olympiques d'hiver de milan-cortina 2026 (N/A, Sun, 8 Feb 2026 02:00:00 -0800)
+
+- **JO 2026: "Rien de comparable à Paris 2024", presse internationale et internautes divisés par la cérémonie d'ouverture**: [Link](https://rmcsport.bfmtv.com/jeux-olympiques/jo-2026-rien-de-comparable-a-paris-2024-presse-internationale-et-internautes-divises-par-la-ceremonie-d-ouverture_AV-202602070192.html)
+- **Trémolos ringards, armée de doudounes et J.D. Vance : la cérémonie d’ouverture des JO d’hiver de Milan-Cortina, un summum de business spectacle boursouflé**: [Link](https://www.liberation.fr/culture/tremolos-ringards-armee-de-doudounes-et-jd-vance-la-ceremonie-douverture-des-jo-dhiver-de-milan-cortina-un-summum-de-business-spectacle-boursoufle-20260207_NMNMGEJPAVAPRHNUFUK6USJLTU/)
+- **Italie : conseils santé pour les voyages JO d’hiver 2026**: [Link](https://fr.euronews.com/sante/2026/02/07/voyager-aux-jo-rester-en-bonne-sante-a-milan-cortina)
+
+
 ### superbowl (N/A, Sun, 8 Feb 2026 02:40:00 -0800)
 
 - **Super Bowl picks, odds, score predictions for Seahawks vs. Patriots**: [Link](https://www.nfl.com/news/super-bowl-lx-picks-odds-score-predictions-for-seahawks-vs-patriots)
