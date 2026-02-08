@@ -1,3 +1,38 @@
+### az – ajax (N/A, Sun, 8 Feb 2026 05:50:00 -0800)
+
+- **Ajax-verdediger Baas reflecteert: 'Maakt het nóg pijnlijker, machteloos gevoel'**: [Link](https://www.voetbalprimeur.nl/nieuws/1739963/ajax-verdediger-baas-blikt-terug-op-6-0-bekernederlaag-tegen-az.html)
+- **LIVE Eredivisie | Fred Grim kiest voor vastigheid en legt uit waarom Zinchenko niet in basis staat tegen AZ**: [Link](https://www.ad.nl/voetbal/live-eredivisie-fred-grim-kiest-voor-vastigheid-en-legt-uit-waarom-zinchenko-niet-in-basis-staat-tegen-az~aa31a149/)
+- **LIVE | Ajax moet AZ-hegemonie breken in cruciaal duel in Alkmaar**: [Link](https://www.pzc.nl/voetbal/live-ajax-moet-az-hegemonie-breken-in-cruciaal-duel-in-alkmaar~aa31a149/)
+
+
+### nice – monaco (N/A, Sun, 8 Feb 2026 05:40:00 -0800)
+
+- **Krépin Diatta : "Apporter une réponse sur le terrain dans le Derby"**: [Link](https://www.asmonaco.com/conference-de-presse-nice-monaco-krepin-diatta-apporter-une-reponse-sur-le-terrain-dans-le-derby/)
+- **L’AS Monaco devrait débuter avec la recrue Adingra et le jeune Bamba face à Nice**: [Link](https://www.nicematin.com/sports/football/l-as-monaco-devrait-debuter-avec-la-recrue-adingra-et-le-jeune-bamba-face-a-nice-10668232)
+- **PRONOS PARIS RMC Le nul du jour du 8 février – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-nul-du-jour-du-8-fevrier-ligue-1_AN-202602070263.html)
+
+
+### nairobi (N/A, Sun, 8 Feb 2026 05:40:00 -0800)
+
+- **NPS Addresses Transfer of Senior Police Officers to Nairobi**: [Link](https://www.kenyans.co.ke/news/120533-nps-denies-transferring-senior-officers-linked-nandi-hills-pool-scandal)
+- **Blue Wall of Silence: Police Bosses Deny Nandi Transfer Purge**: [Link](https://streamlinefeed.co.ke/news/blue-wall-of-silence-police-bosses-deny-nandi-transfer-purge)
+- **Cherargei Accuses IG Kanja of Inaction Over Police Brutality in Nandi Hills Incident**: [Link](https://www.capitalfm.co.ke/news/2026/02/cherargei-accuses-ig-kanja-of-inaction-over-police-brutality-in-nandi-hills-incident/)
+
+
+### brighton – crystal palace (N/A, Sun, 8 Feb 2026 05:30:00 -0800)
+
+- **Brighton vs Crystal Palace: Get £30 in free bets when you stake £10 on football with Tote**: [Link](https://www.thesun.co.uk/sport/38116470/brighton-crystal-palace-tote-free-bets-offer-join/)
+- **Albion told to go the distance as they bid to beat Palace**: [Link](https://www.theargus.co.uk/sport/25834328.brightons-fabian-hurzeler-need-focus-clock-ticks/)
+- **Sunday Football Tips: Jimmy The Punt's best bets including 4/1 booking tip from the South Coast**: [Link](https://betting.betfair.com/football/premier-league/sunday-football-tips-jimmy-the-punts-best-bets-including-4-1-booking-tip-from-the-south-coast-060226-1320.html)
+
+
+### brahim díaz (N/A, Sun, 8 Feb 2026 05:30:00 -0800)
+
+- **Arbeloa: "Brahim Díaz is a very talented player and can be useful in different positions"**: [Link](https://m.elbotola.com/en/article/2026-02-07-13-32-309.html)
+- **Alvaro Arbeloa explains Real Madrid star’s importance after rejecting Arsenal offer**: [Link](https://therealchamps.com/real-madrid-arbeloa-explains-brahim-diaz-importance-after-rejecting-arsenal-football-soccer)
+- **Arbeloa: Brahim Diaz is a Talented Player and Provides Multiple Solutions for Real Madrid**: [Link](https://www.ysscores.com/en/news/13906382/Arbeloa:-Brahim-Diaz-is-a-Talented-Player-and-Provides-Multiple-Solutions-for-Real-Madrid)
+
+
 ### deportivo alavés – getafe (N/A, Sun, 8 Feb 2026 04:20:00 -0800)
 
 - **Qué canal pasa Alavés vs Getafe hoy: dónde ver gratis y EN VIVO LaLiga**: [Link](https://www.365scores.com/es/news/alaves-vs-getafe-donde-ver-gratis-vivo/)
