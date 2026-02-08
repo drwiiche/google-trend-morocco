@@ -1,3 +1,17 @@
+### david jiménez (N/A, Sun, 8 Feb 2026 11:50:00 -0800)
+
+- **Vuelve Rüdiger**: [Link](https://as.com/futbol/primera/vuelve-rudiger-f202602-n/)
+- **Vuelven Rudiger y Trent a la lista del Real Madrid ante el Valencia**: [Link](https://www.marca.com/futbol/real-madrid/2026/02/08/vuelve-rudiger-lista-real-madrid-valencia.html)
+- **Último entrenamiento antes del partido contra el Valencia**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-07-02-2026)
+
+
+### atletico (N/A, Sun, 8 Feb 2026 11:40:00 -0800)
+
+- **The Ademola Lookman Effect: Redefining Atlético Madrid and Capturing a Continent**: [Link](https://breakingthelines.com/transfer-analysis/the-ademola-lookman-effect-redefining-atletico-madrid-and-capturing-a-continent/)
+- **'It's time for La Liga to know who he is' - Valencia's Sadiq labels Lookman 'one of the best players right now'**: [Link](https://allnigeriasoccer.com/its-time-for-la-liga-to-know-who-he-is-valencias-sadiq-labels-lookman-one-of-the-best-players-right-now)
+- **Atletico Madrid beats Real Betis to reach Copa semifinals**: [Link](https://dailypioneer.com/news/atletico-madrid-beats-real-betis-to-reach-copa-semifinals)
+
+
 ### valencia c. f. - real madrid (N/A, Sun, 8 Feb 2026 11:30:00 -0800)
 
 - **Alineación posible del Real Madrid hoy contra el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-valencia-en-laliga-ea-sports-f202602-n/)
