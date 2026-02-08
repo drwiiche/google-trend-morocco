@@ -1,3 +1,31 @@
+### atletico madrid (N/A, Sun, 8 Feb 2026 10:30:00 -0800)
+
+- **Club Atlético de Madrid - Welcome, Lookman!**: [Link](https://en.atleticodemadrid.com/noticias/welcome-lookman)
+- **“Glad to see him in the La Liga” -Ex-Rangers man reacts to Lookman’s Atletico move**: [Link](https://soccernet.ng/2026/02/la-liga-rangers-lookman-atletico.html)
+- **Atletico Madrid beats Real Betis to reach Copa semifinals**: [Link](https://dailypioneer.com/news/atletico-madrid-beats-real-betis-to-reach-copa-semifinals)
+
+
+### classement premier league (N/A, Sun, 8 Feb 2026 10:30:00 -0800)
+
+- **Premier League: Manchester United s’offre sa quatrième victoire consécutive**: [Link](https://sport.le360.ma/football/premier-league/premier-league-manchester-united-soffre-sa-quatrieme-victoire-consecutive_XW2CRILEQFF7PJNSOPEWABDVDU/)
+- **Premier League : tombeur de Tottenham, Manchester United poursuit sa folle série !**: [Link](https://www.footmercato.net/a3984272570298340857-premier-league-tombeur-de-tottenham-manchester-united-poursuit-sa-folle-serie)
+- **MU : Trois clubs de Premier League rêvent de… Michael Carrick**: [Link](https://mediafoot.net/mu-trois-clubs-de-premier-league-revent-de-michael-carrick/)
+
+
+### ساسولو ضد الإنتر (N/A, Sun, 8 Feb 2026 10:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة ساسولو وإنتر في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A7%D8%B3%D9%88%D9%84%D9%88-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt3adb64dfd623e411)
+- **بطولة إيطاليا: إنتر للابتعاد في الصدارة في غياب الجار ميلان**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260206-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A5%D9%86%D8%AA%D8%B1-%D9%84%D9%84%D8%A7%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D8%AC%D8%A7%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86)
+- **حرمان مشجعي إنتر من السفر مع فريقهم بسبب أحداث مباراة كريمونيزي**: [Link](https://www.reuters.com/ar/sports/TZGZWKTUSFPZDFVHBTIYEF6SUM-2026-02-03/)
+
+
+### النادي المكناسي ضد الرجاء (N/A, Sun, 8 Feb 2026 09:00:00 -0800)
+
+- **من بينهم حليمي وبرقوق وشرارة.. فادلو يستدعي 21 لاعبا لمواجهة النادي المكناسي**: [Link](https://m.elbotola.com/article/2026-02-08-13-44-620.html)
+- **"الكوديم" يعول على جماهيره لتجاوز الرجاء**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D9%88%D8%AF%D9%8A%D9%85-%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%87-%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A7%D9%84%D8%B1%D8%AC-426167.html)
+- **الإصابة تحرم ساخو من المشاركة في مباراة الرجاء والنادي المكناسي**: [Link](https://barlamanesport.com/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B1%D9%85-%D8%B3%D8%A7%D8%AE%D9%88-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7/)
+
+
 ### psv (N/A, Sun, 8 Feb 2026 09:50:00 -0800)
 
 - **VI Live: Schouten prijst strijdplan van FC Groningen na overwinning PSV**: [Link](https://www.vi.nl/nieuws/vi-live-schouten-prijst-strijdplan-van-fc-groningen-na-overwinning-psv)
