@@ -1,3 +1,24 @@
+### inter miami (N/A, Sat, 7 Feb 2026 17:00:00 -0800)
+
+- **Barcelona SC rally as Lionel Messi’s goal and assist aren’t enough for Inter Miami in a 2026 international ...**: [Link](https://bolavip.com/en/soccer/barcelona-sc-vs-inter-miami-live-2026-club-friendly)
+- **Lionel Messi nets solo golazo in Inter Miami preseason draw**: [Link](https://www.espn.com/soccer/story/_/id/47862450/lionel-messi-goal-inter-miami-preseason-barcelona-friendly)
+- **Messi, Inter Miami off to Ecuador, Allende and Berterame available to play**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article314607826.html)
+
+
+### أحوال الطقس (N/A, Sat, 7 Feb 2026 16:20:00 -0800)
+
+- **منخفض "مارتا" يقصد شمال المغرب .. واستقرار الأجواء مرتقب الأربعاء**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D9%85%D8%A7%D8%B1%D8%AA%D8%A7-%D9%8A%D9%82%D8%B5%D8%AF-%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7-1698389.html)
+- **تساقطات مطرية رعدية بعدد من مناطق المملكة وفق المديرية العامة للأرصاد الجوية**: [Link](https://2m.ma/ar/news/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D9%88%D9%81%D9%82-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-20260207)
+- **شتاء الموسم الحالي ينافس موسمي 1996 و2010 في أقوى الذروات المطرية منذ أربعة عقود**: [Link](https://dalil-rif.com/permalink/37464.html)
+
+
+### علم الزلازل (N/A, Sat, 7 Feb 2026 13:00:00 -0800)
+
+- **راصد الزلازل الهولندي يحذر من "مفاجأة".. ويحدد 3 أيام**: [Link](https://www.alarabiya.net/science/2026/02/07/%D8%B1%D8%A7%D8%B5%D8%AF-%D8%A7%D9%84%D8%B2%D9%84%D8%A7%D8%B2%D9%84-%D8%A7%D9%84%D9%87%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D8%A9-%D9%88%D9%8A%D8%AD%D8%AF%D8%AF-3-%D8%A7%D9%8A%D8%A7%D9%85)
+- **زلزال بقوة 6 درجات؟ تحذير عاجل من الهولندي فرانك هوغربيتس يثير الرعب خلال الشهر الجاري فبراير**: [Link](https://agadir24.info/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA%D8%9F-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D9%88%D9%84%D9%86.html)
+- **تحذير هولندي: الأرض تترقّب «مفاجأة زلزالية» بين 13 و15 فبراير**: [Link](https://25h.app/2026/02/07/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%87%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%AA%D8%AA%D8%B1%D9%82%D9%91%D8%A8-%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D8%B2%D9%84%D8%B2/)
+
+
 ### 2026 winter olympics snowboarding (N/A, Sat, 7 Feb 2026 15:20:00 -0800)
 
 - **Olympic Snowboarding Thrills Begin At Milano Cortina 2026**: [Link](https://evrimagaci.org/gpt/olympic-snowboarding-thrills-begin-at-milano-cortina-2026-527484)
