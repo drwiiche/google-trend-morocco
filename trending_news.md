@@ -1,3 +1,10 @@
+### ahly (N/A, Sat, 7 Feb 2026 13:40:00 -0800)
+
+- **Kabylie, Al Ahly share spoils, AS FAR edge Yanga**: [Link](https://www.cafonline.com/caf-champions-league/news/kabylie-al-ahly-share-spoils-as-far-edge-yanga/)
+- **Al Ahly Secures Champions League Quarter-Final Spot After Goalless Draw with JS Kabylie**: [Link](https://m.elbotola.com/en/article/2026-02-07-20-57-738.html)
+- **A draw that sends Al Ahly through — CAF Champions League Group B takes shape**: [Link](https://onefootball.com/en/news/a-draw-that-sends-al-ahly-through-caf-champions-league-group-b-takes-shape-42375874)
+
+
 ### apple iphone 16 pro (N/A, Sat, 7 Feb 2026 15:10:00 -0800)
 
 - **Apple Brings iPhone 16 Pro Back For First Time — Sooner Than Expected**: [Link](https://www.forbes.com/sites/davidphelan/2026/02/04/apple-brings-iphone-16-pro-back-for-first-time---sooner-than-expected/)
