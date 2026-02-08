@@ -1,3 +1,64 @@
+### فالنسيا ضد الريال (N/A, Sun, 8 Feb 2026 11:10:00 -0800)
+
+- **شاهد على "فضيحة" للملكي.. الكشف عن حكم موقعة فالنسيا وريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B4%D8%A7%D9%87%D8%AF-%D8%B9%D9%84%D9%89-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%84%D9%84%D9%85%D9%84%D9%83%D9%8A--%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AD%D9%83%D9%85-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt07e413b027acc176)
+- **ميستايا ملعب فالنسيا.. عقدة ريال مدريد في آخر 10 سنوات**: [Link](https://www.aljazeera.net/sport/2026/2/8/%D9%85%D9%8A%D8%B3%D8%AA%D8%A7%D9%8A%D8%A7-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **أربيلوا: "قضية نيغريرا؟ أكبر فضيحة في تاريخ كرة القدم الإسبانية لا تزال دون حل"**: [Link](https://m.elbotola.com/article/2026-02-07-13-59-755.html)
+
+
+### valencia vs real madrid (N/A, Sun, 8 Feb 2026 11:10:00 -0800)
+
+- **Real Madrid vs Valencia: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/02/277887/real-madrid-vs-valencia-how-when-to-watch/)
+- **Arbeloa Hands Castilla Product First La Liga Start, Diaz Benched Against Valencia**: [Link](https://m.elbotola.com/en/article/2026-02-08-19-00-953.html)
+- **Why Vinicius Junior, Jude Bellingham Aren’t Playing for Real Madrid vs. Valencia**: [Link](https://www.fotmob.com/embed/news/01kgqmfnawjw/why-vinicius-junior-jude-bellingham-arent-playing-real-madrid-vs-valencia)
+
+
+### بي اس جي ضد أولمبيك مارسيليا (N/A, Sun, 8 Feb 2026 11:10:00 -0800)
+
+- **من هو الهداف التاريخي للكلاسيكو الفرنسي ؟**: [Link](https://hihi2.com/2026/02/08/p3641741.html)
+- **الكلاسيكو: تيموثي وياه يريد الانتقام من باريس سان جيرمان**: [Link](https://foot-africa.com/ar/news/%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%AA%D9%8A%D9%85%D9%88%D8%AB%D9%8A-%D9%88%D9%8A%D8%A7%D9%87-%D9%8A%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%85-%D9%85%D9%86-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-1076930/)
+- **باريس سان جيرمان يستقبل مارسيليا في قمة كلاسيكية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%8A%D8%A9-2026-02-08)
+
+
+### juventus – lazio (N/A, Sun, 8 Feb 2026 11:10:00 -0800)
+
+- **✅ UFFICIALI di Juventus-Lazio: le scelte su McKennie, Koop e Maldini❗**: [Link](https://onefootball.com/en/news/ufficiali-di-juventus-lazio-le-scelte-su-mckennie-koop-e-maldini-42379655)
+- **Serie A | Le formazioni ufficiali di Juventus-Lazio**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-lazio-formazioni)
+- **Calcio: Juventus-Lazio, Lotito a Torino per stare vicino alla squadra**: [Link](https://www.civonline.it/italia-e-mondo/calcio-juventus-lazio-lotito-a-torino-per-stare-vicino-alla-squadra-l2b7i9lw)
+
+
+### botola pro (N/A, Sun, 8 Feb 2026 11:10:00 -0800)
+
+- **Botola Pro: Renaissance Zemamra Returns to Winning Ways After Defeating Ittihad Tanger (1-0)**: [Link](https://m.elbotola.com/en/article/2026-02-08-17-03-416.html)
+
+
+### rca (N/A, Sun, 8 Feb 2026 11:10:00 -0800)
+
+- **النادي المكناسي ينتصر على الرجاء**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-1699064.html)
+- **الرجاء يُصدر بلاغا بخصوص التنقل إلى مكناس**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%8F%D8%B5%D8%AF%D8%B1-%D8%A8%D9%84%D8%A7%D8%BA%D8%A7-%D8%A8%D8%AE%D8%B5%D9%88%D8%B5-%D8%A7%D9%84%D8%AA%D9%86%D9%82%D9%84-%D8%A5%D9%84%D9%89-%D9%85%D9%83-426037.html)
+- **البطولة الإحترافية1.. "الكوديم" يصطاد النسور ويلحق أول خسارة بالرجاء**: [Link](https://www.almountakhab.com/node/13222565)
+
+
+### paris-sg – marseille (N/A, Sun, 8 Feb 2026 11:00:00 -0800)
+
+- **à ne pas manquer absolument! Aujourd’hui, PSG-OM pour l’honneur |**: [Link](https://fr.hibapress.com/news-233540.html)
+- **OM : Timothy Weah : « quand je suis arrivé, j’étais un joueur cassé »**: [Link](https://www.footmercato.net/a6542868614964934846-om-timothy-weah-quand-je-suis-arrive-jetais-un-joueur-casse)
+- **PSG-OM, la décision fracassante de De Zerbi !**: [Link](https://www.sports.fr/football/ligue-1/psg-om-la-decision-fracassante-de-de-zerbi-989055.html)
+
+
+### ترتيب الدوري المغربي (N/A, Sun, 8 Feb 2026 11:00:00 -0800)
+
+- **جدول مباريات اليوم الأحد 8 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-8-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt801b4481ffedae0b)
+- **جدول مباريات اليوم الأحد.. صدام مانشستر سيتي وليفربول ومهمة ملكية في فالنسيا**: [Link](https://www.arrajol.com/content/397677/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%B5%D8%AF%D8%A7%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%85%D9%87%D9%85%D8%A9-%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7)
+- **جدول مباريات اليوم في البطولات المحلية والدولية**: [Link](https://twaslnews.twaslnews.com/223996/)
+
+
+### sassuolo vs inter (N/A, Sun, 8 Feb 2026 10:40:00 -0800)
+
+- **Inter’s Chivu Praises Lautaro: “A Delight for All Football Lovers”**: [Link](https://www.filmogaz.com/140000)
+- **Player ratings: Sassuolo 0-5 Inter: Dimarco on MVP form**: [Link](https://ca.sports.yahoo.com/news/player-ratings-sassuolo-0-5-191500612.html)
+- **Cristian Chivu rallies Inter ahead of Sassuolo: 'Condemned by our history to always do well'**: [Link](https://tribuna.com/en/news/2026-02-08-cristian-chivu-rallies-inter-ahead-of-sassuolo-condemned-by-our-history-to-always-do-well/)
+
+
 ### atletico madrid (N/A, Sun, 8 Feb 2026 10:30:00 -0800)
 
 - **Club Atlético de Madrid - Welcome, Lookman!**: [Link](https://en.atleticodemadrid.com/noticias/welcome-lookman)
