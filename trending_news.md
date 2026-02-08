@@ -1,3 +1,17 @@
+### wac (N/A, Sun, 8 Feb 2026 07:00:00 -0800)
+
+- **Tyler Hendricks scores 18 to propel Utah Valley past UT Arlington 81-60**: [Link](https://abcnews.go.com/Sports/wireStory/tyler-hendricks-scores-18-propel-utah-valley-past-129958568)
+- **UT Arlington Mavericks vs Utah Valley Wolverines Prediction, 2/7/2026 College Basketball Picks, Best Bets & Odds**: [Link](https://www.docsports.com/free-picks/ncaa-college-basketball/2026/ut-arlington-mavericks-vs-utah-valley-wolverines-prediction-2-7-2026-college-basketball-picks-best-bets-odds.html)
+- **Lady Mavs Host Utah Valley Saturday at CPC for Play4Kay**: [Link](https://utamavs.com/news/2026/2/6/womens-basketball-lady-mavs-host-utah-valley-saturday-at-cpc-for-play4kay.aspx)
+
+
+### ghislaine maxwell (N/A, Sun, 8 Feb 2026 07:00:00 -0800)
+
+- **Ghislaine Maxwell’s riches came from her father, and millions more from Epstein**: [Link](https://observer.co.uk/news/international/article/ghislaine-maxwells-riches-came-from-her-father-and-millions-more-from-epstein)
+- **Jones Day Collecting Cash From Ghislaine Maxwell Epstein Files Show**: [Link](https://abovethelaw.com/2026/02/jones-day-collecting-cash-from-ghislaine-maxwell-epstein-files-show/)
+- **At last we know where Ghislaine Maxwell got her money from**: [Link](https://www.thetimes.com/uk/crime/article/ghislaine-maxwell-money-inheritance-wealth-82ktv30mx)
+
+
 ### ath. bilbao – levante (N/A, Sun, 8 Feb 2026 06:30:00 -0800)
 
 - **Nico Williams «está bien» y «conectado», y apunta ante el Levante**: [Link](https://www.elcorreo.com/athletic/nico-williams-bien-conectado-apunta-ante-levante-20260208081243-nt.html)
