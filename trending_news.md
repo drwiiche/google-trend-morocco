@@ -1,3 +1,10 @@
+### apple iphone 16 pro (N/A, Sat, 7 Feb 2026 15:10:00 -0800)
+
+- **Apple Brings iPhone 16 Pro Back For First Time — Sooner Than Expected**: [Link](https://www.forbes.com/sites/davidphelan/2026/02/04/apple-brings-iphone-16-pro-back-for-first-time---sooner-than-expected/)
+- **Apple Begins Selling Refurbished iPhone 16 and iPhone 16 Pro Models at Lower Prices**: [Link](https://www.macrumors.com/2026/02/04/apple-refurbished-iphone-16-and-16-pro/)
+- **iPhone 16 price drops to lowest**: [Link](https://www.indiatoday.in/visualstories/technology/iphone-16-price-drops-to-lowest-in-india-273930-06-02-2026)
+
+
 ### inter miami (N/A, Sat, 7 Feb 2026 17:00:00 -0800)
 
 - **Barcelona SC rally as Lionel Messi’s goal and assist aren’t enough for Inter Miami in a 2026 international ...**: [Link](https://bolavip.com/en/soccer/barcelona-sc-vs-inter-miami-live-2026-club-friendly)
