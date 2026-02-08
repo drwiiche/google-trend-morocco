@@ -1,3 +1,17 @@
+### bayern munich (N/A, Sun, 8 Feb 2026 09:20:00 -0800)
+
+- **Preview: Bayern vs. Hoffenheim, Bundesliga Matchday 21**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/fc-bayern-muenchen-tsg-hoffenheim-07-02-2026/preview)
+- **Kompany: Bayern need to find a balance between attack and defence**: [Link](https://www.beinsports.com/en-us/soccer/bundesliga/articles/kompany-bayern-need-to-find-a-balance-between-attack-and-defence-2026-02-07)
+- **How to watch today's Bayern Munich vs Hoffenheim Bundesliga game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-bayern-munich-v-hoffenheim-08022026/blte179c33d72a4948f)
+
+
+### liverpool (N/A, Sun, 8 Feb 2026 08:00:00 -0800)
+
+- **Liverpool vs Manchester City - Watch Live on setantasports.com | Preview**: [Link](https://setantasports.com/football/liverpool-vs-manchester-city-watch-live-on-setantasports-com/)
+- **Premier League LIVE: Liverpool vs Manchester City - build-up, team news, live text updates & radio commentary**: [Link](https://www.bbc.com/sport/football/live/c5y5n7vlwzlt)
+- **Live Commentary - Man Utd vs Spurs | 07.02.2026**: [Link](https://www.skysports.com/football/manchester-united-vs-tottenham-hotspur/live/531376)
+
+
 ### البايرن ضد هوفنهايم (N/A, Sun, 8 Feb 2026 09:20:00 -0800)
 
 - **بايرن ميونخ يضرب هوفنهايم بثلاثية في الشوط الاول**: [Link](https://hihi2.com/2026/02/08/p3641664.html)
