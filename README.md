@@ -1,3 +1,10 @@
+### sassuolo – inter (N/A, Sun, 8 Feb 2026 08:20:00 -0800)
+
+- **Luis Henrique a InterTV: “Sto bene fisicamente e sento la fiducia di mister e squadra”**: [Link](https://www.fcinter1908.it/news/interviste/sassuolo-inter-luis-henrique-intertv/)
+- **Sassuolo vs. Inter, live from Reggio Emilia**: [Link](https://www.inter.it/en/news/sassuolo-inter-serie-a-2025-2026)
+- **Sassuolo-Inter, dove vedere la partita in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2026/02/08/sassuolo-inter-dove-vedere-tv-streaming)
+
+
 ### bayern – hoffenheim (N/A, Sun, 8 Feb 2026 07:50:00 -0800)
 
 - **Spielvorschau: Bayern München gegen Hoffenheim, 8. Februar, 23:30 Uhr: Die Bayern wollen zu ihrer Siegerform zurückfinden.**: [Link](https://www.vietnam.vn/de/nhan-dinh-tran-dau-bayern-munich-vs-hoffenheim-23h30-ngay-8-2-tim-lai-niem-vui)
