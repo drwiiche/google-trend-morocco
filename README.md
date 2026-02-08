@@ -1,3 +1,10 @@
+### super bowl 2026 (N/A, Sat, 7 Feb 2026 23:50:00 -0800)
+
+- **Super Bowl picks, odds, score predictions for Seahawks vs. Patriots**: [Link](https://www.nfl.com/news/super-bowl-lx-picks-odds-score-predictions-for-seahawks-vs-patriots)
+- **The perfect revenge could be served tonight at the Super Bowl**: [Link](https://www.ynetnews.com/sport/article/bkfwpbhwzl)
+- **Super Bowl 2026: How to watch in the US**: [Link](https://www.independent.co.uk/bulletin/sport/super-bowl-2026-how-to-watch-usa-b2916156.html)
+
+
 ### ahly (N/A, Sat, 7 Feb 2026 13:40:00 -0800)
 
 - **Kabylie, Al Ahly share spoils, AS FAR edge Yanga**: [Link](https://www.cafonline.com/caf-champions-league/news/kabylie-al-ahly-share-spoils-as-far-edge-yanga/)
