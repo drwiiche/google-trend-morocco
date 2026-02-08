@@ -1,3 +1,38 @@
+### البايرن ضد هوفنهايم (N/A, Sun, 8 Feb 2026 09:20:00 -0800)
+
+- **بايرن ميونخ يضرب هوفنهايم بثلاثية في الشوط الاول**: [Link](https://hihi2.com/2026/02/08/p3641664.html)
+- **المواجهة المرتقبة بين باومان ونوير قد لا تحدث بسبب مرض الأخير**: [Link](https://gate.ahram.org.eg/News/5485541.aspx)
+- **قمة صعبة للبايرن في الدوري الألماني**: [Link](https://www.elbalad.news/6860749)
+
+
+### atlético madrid vs real betis (N/A, Sun, 8 Feb 2026 09:00:00 -0800)
+
+- **Antoine Griezmann Goal Odds & Props Against Real Betis, February 8**: [Link](https://www.filmogaz.com/140011)
+- **Atletico Madrid Set to Face Real Betis in La Liga Clash Amid Injury Concerns**: [Link](https://news.ssbcrack.com/atletico-madrid-set-to-face-real-betis-in-la-liga-clash-amid-injury-concerns/)
+- **Simeone faces Betis clash without Cardoso, Barrios or Nico**: [Link](https://onefootball.com/en/news/simeone-faces-betis-clash-without-cardoso-barrios-or-nico-42377838)
+
+
+### man city (N/A, Sun, 8 Feb 2026 09:00:00 -0800)
+
+- **Foord starts upfront for Arsenal against Manchester City Women**: [Link](https://arseblog.news/2026/02/foord-starts-upfront-for-arsenal-against-manchester-city-women/)
+- **Grace Clinton interview: England midfielder 'such a better player' after finding balance at Manchester City**: [Link](https://www.skysports.com/football/news/36996/13504070/grace-clinton-interview-england-midfielder-such-a-better-player-after-finding-balance-at-manchester-city)
+- **WSL LIVE: Build-up to Arsenal vs Man City plus more including Liverpool vs Aston Villa & Spurs vs Chelsea**: [Link](https://www.bbc.com/sport/football/live/clyk7ex82n9t)
+
+
+### auxerre – paris fc (N/A, Sun, 8 Feb 2026 09:00:00 -0800)
+
+- **« Rester concentré sur ce qu’on a à faire » : le maintien, ça se joue aussi dans les têtes pour l'AJA**: [Link](https://www.lyonne.fr/auxerre-89000/sports/rester-concentre-sur-ce-quon-a-a-faire-le-maintien-ca-se-joue-aussi-dans-les-tetes-pour-l-aja_14825972/)
+- **Comment regarder AJ Auxerre - Paris FC ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-aj-auxerre-paris-fc-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/fkc4zlb7328x1vibpvujykihq)
+- **DIRECT - Ligue 1 : l'AJA reçoit le Paris FC, suivez la 21e journée de championnat sur ICI Auxerre**: [Link](https://www.francebleu.fr/bourgogne-franche-comte/yonne-89/auxerre/direct-ligue-1-l-aja-recoit-le-paris-fc-suivez-la-21e-journee-de-championnat-sur-ici-auxerre-7909060)
+
+
+### codm vs raja (N/A, Sun, 8 Feb 2026 09:00:00 -0800)
+
+- **Bolksout Returns to Raja Squad Against CODM Meknes**: [Link](https://m.elbotola.com/en/article/2026-02-07-11-18-176.html)
+- **Botola Pro 1: Meknes set ticketing conditions for Raja Casablanca fans ahead of Sunday showdown**: [Link](https://africasoccer.com/botola-pro-1-meknes-set-ticketing-conditions-for-raja-casablanca-fans-ahead-of-sunday-showdown/)
+- **Raja Allocates 2,000 Tickets for Fans Ahead of Club Meknassi Clash**: [Link](https://m.elbotola.com/en/article/2026-02-06-20-29-906.html)
+
+
 ### atlético madrid – betis (N/A, Sun, 8 Feb 2026 08:50:00 -0800)
 
 - **Atlético de Madrid-Real Betis: Sin tiempo para un respiro**: [Link](https://onefootball.com/pt-br/noticias/atletico-de-madrid-real-betis-sin-tiempo-para-un-respiro-42377433)
