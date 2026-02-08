@@ -1,3 +1,10 @@
+### super bowl (N/A, Sun, 8 Feb 2026 13:30:00 -0800)
+
+- **Green Day, then and now: See Billie Joe Armstrong and the band over 35 years later**: [Link](https://ew.com/green-day-then-and-now-11900856)
+- **Super Bowl 2026: When Green Day performs, how to watch live**: [Link](https://mashable.com/article/super-bowl-green-day-performance-time-livestream-info)
+- **Green Day’s Anti-Fascist History, From 'American Idiot' to Guyliner**: [Link](https://www.teenvogue.com/story/see-green-days-anti-fascist-history-ahead-of-super-bowl-2026)
+
+
 ### kylian mbappé (N/A, Sun, 8 Feb 2026 14:00:00 -0800)
 
 - **Lamine Yamal, highest scorer under 19 years in Europe's top five leagues**: [Link](https://www.fcbarcelona.com/en/card/4446320/lamine-yamal-highest-scorer-under-19-years-in-europes-top-five-leagues)
