@@ -1,3 +1,10 @@
+### valencia c. f. - real madrid (N/A, Sun, 8 Feb 2026 11:30:00 -0800)
+
+- **Alineación posible del Real Madrid hoy contra el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-valencia-en-laliga-ea-sports-f202602-n/)
+- **El as bajo la manga de Arbeloa para asaltar Mestalla**: [Link](https://onefootball.com/de/news/el-as-bajo-la-manga-de-arbeloa-para-asaltar-mestalla-42377570)
+- **Mestalla no regala nada: solo tres triunfos del Real Madrid en la última década**: [Link](https://madridistareal.com/mestalla-no-regala-nada-real-madrid/)
+
+
 ### فالنسيا ضد الريال (N/A, Sun, 8 Feb 2026 11:10:00 -0800)
 
 - **شاهد على "فضيحة" للملكي.. الكشف عن حكم موقعة فالنسيا وريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B4%D8%A7%D9%87%D8%AF-%D8%B9%D9%84%D9%89-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%84%D9%84%D9%85%D9%84%D9%83%D9%8A--%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AD%D9%83%D9%85-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt07e413b027acc176)
