@@ -1,3 +1,31 @@
+### superbowl (N/A, Sun, 8 Feb 2026 02:40:00 -0800)
+
+- **Super Bowl picks, odds, score predictions for Seahawks vs. Patriots**: [Link](https://www.nfl.com/news/super-bowl-lx-picks-odds-score-predictions-for-seahawks-vs-patriots)
+- **The perfect revenge could be served tonight at the Super Bowl**: [Link](https://www.ynetnews.com/sport/article/bkfwpbhwzl)
+- **Super Bowl 60: How to watch in the UK**: [Link](https://www.independent.co.uk/bulletin/sport/super-bowl-60-uk-how-to-watch-b2916154.html)
+
+
+### portugal (N/A, Sun, 8 Feb 2026 02:20:00 -0800)
+
+- **Seguro ou Ventura: urnas abriram às 8h para escolher o sucessor de Marcelo**: [Link](https://expresso.pt/politica/eleicoes/presidenciais-2026/2026-02-08-eleicoes-presidenciais-2026-antonio-jose-seguro-andre-ventura-segunda-volta-14633ab4)
+- **Depois da tempestade, é tempo de votar. Segunda volta das eleições**: [Link](https://pt.euronews.com/2026/02/08/portugal-escolhe-entre-um-moderado-e-um-populista-na-segunda-volta-das-eleicoes-presidenci)
+- **49.151 eleitores inscritos em Vila Real para as eleições deste domingo**: [Link](https://sapo.pt/artigo/49-151-eleitores-inscritos-em-vila-real-para-as-eleicoes-deste-domingo-698842b3088bb4903abefd5d)
+
+
+### aziz akhannouch (N/A, Sun, 8 Feb 2026 01:30:00 -0800)
+
+- **Mohamed Chouki élu nouveau président du RNI**: [Link](https://lematin.ma/nation/mohamed-chouki-elu-nouveau-president-du-rni/328653)
+- **RNI : Akhannouch plaide pour un modèle politique alternatif**: [Link](https://www.leconomiste.com/flash-infos/rni-akhannouch-plaide-pour-un-modele-politique-alternatif/)
+- **Mohamed Chaouki, élu président du RNI, succède à Aziz Akhannouch**: [Link](https://ledesk.ma/encontinu/mohamed-chaouki-elu-president-du-rni-succede-a-aziz-akhannouch/)
+
+
+### جواد الياميق (N/A, Sun, 8 Feb 2026 01:20:00 -0800)
+
+- **الياميق يصنع الحدث في "الليغا 2"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%8A%D8%A7%D9%85%D9%8A%D9%82-%D9%8A%D8%B5%D9%86%D8%B9-%D8%A7%D9%84%D8%AD%D8%AF%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-2-1698572.html)
+- **فعل كل شيء في كرة القدم.. الياميق يكتب "دراما كاملة" في أول مباراة مع سرقسطة**: [Link](https://www.akhbarona.com/sport/proplayers/421179.html)
+- **يميق فعل كل شيء.. سجل وسجل على مرماه وطرد**: [Link](https://www.almountakhab.com/node/16222539)
+
+
 ### super bowl 2026 (N/A, Sat, 7 Feb 2026 23:50:00 -0800)
 
 - **Super Bowl picks, odds, score predictions for Seahawks vs. Patriots**: [Link](https://www.nfl.com/news/super-bowl-lx-picks-odds-score-predictions-for-seahawks-vs-patriots)
