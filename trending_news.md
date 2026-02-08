@@ -1,3 +1,17 @@
+### deportivo alavés – getafe (N/A, Sun, 8 Feb 2026 04:20:00 -0800)
+
+- **Qué canal pasa Alavés vs Getafe hoy: dónde ver gratis y EN VIVO LaLiga**: [Link](https://www.365scores.com/es/news/alaves-vs-getafe-donde-ver-gratis-vivo/)
+- **Momento para el despegue**: [Link](https://www.noticiasdealava.eus/alaves/2026/02/08/momento-despegue-alaves-getafe-descenso-bordalas-mendizorroza-la-liga-10671451.html)
+- **Alavés - Getafe en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-ea-sports/alaves-getafe/2026/02/08/01_0101_20260208_173_1450-directo.html)
+
+
+### reda bennani (N/A, Sun, 8 Feb 2026 04:20:00 -0800)
+
+- **Coupe Davis: Maroc-Colombie, journée cruciale pour les poulains d’Arazi**: [Link](https://sport.le360.ma/tennis/coupe-davis/coupe-davis-maroc-colombie-journee-cruciale-pour-les-poulains-darazi_VXQ3KEQ5DFBNXOG5MR42NZ4D4U/)
+- **Reda Bennani fait son grand retour en équipe nationale : le jeune prodige marocain prêt pour le barrage de la Coupe Davis à Casablanca**: [Link](https://fr.le7tv.ma/2026/02/05/reda-bennani-fait-son-grand-retour-en-equipe-nationale-le-jeune-prodige-marocain-pret-pour-le-barrage-de-la-coupe-davis-a-casablanca/)
+- **Tennis: après plus de 20 ans, la Coupe Davis de retour à Casablanca (vidéo)**: [Link](https://h24info.ma/sport/tennis-apres-plus-de-20-ans-la-coupe-davis-de-retour-a-casablanca-video/)
+
+
 ### sonia mabrouk cnews (N/A, Sun, 8 Feb 2026 04:10:00 -0800)
 
 - **« Elle a déjà des propositions d’autres chaînes » : les coulisses du départ de Sonia Mabrouk de CNews**: [Link](https://www.leparisien.fr/culture-loisirs/tv/elle-a-deja-des-propositions-dautres-chaines-les-coulisses-du-depart-de-sonia-mabrouk-de-cnews-06-02-2026-3EWCWHME5RBPHP27CGBQWZMFH4.php)
