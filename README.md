@@ -1,3 +1,10 @@
+### benfica vs alverca (N/A, Sun, 8 Feb 2026 13:40:00 -0800)
+
+- **Benfica x Alverca AO VIVO: link para assistir online (08/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/benfica-alverca-ao-vivo-link-para-assistir-online-08-02/c896a81fdad602cb43823204)
+- **AO VIVO: Aursnes dispara por cima em boa posição (15')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-aursnes-dispara-por-cima-em-boa-posicao-15/rihofW87/)
+- **Benfica-Alverca: 16' golo de Schjelderup (1-0)**: [Link](https://www.slbenfica.pt/pt-pt/agora/media-list/videos/2026/02/08/futebol-benfica-alverca-golo-schjelderup-16-minutos-21-jornada-liga-betclic)
+
+
 ### real madrid (N/A, Sun, 8 Feb 2026 12:50:00 -0800)
 
 - **Alineación posible del Real Madrid hoy contra el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-valencia-en-laliga-ea-sports-f202602-n/)
