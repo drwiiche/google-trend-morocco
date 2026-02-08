@@ -1,3 +1,31 @@
+### ath. bilbao – levante (N/A, Sun, 8 Feb 2026 06:30:00 -0800)
+
+- **Nico Williams «está bien» y «conectado», y apunta ante el Levante**: [Link](https://www.elcorreo.com/athletic/nico-williams-bien-conectado-apunta-ante-levante-20260208081243-nt.html)
+- **Valverde: “Ya empezamos a hablar de finales”**: [Link](https://as.com/futbol/valverde-preve-una-semifinal-abierta-y-bonita-frente-a-la-real-f202602-n/)
+- **CALL | Athletic Club-Levante UD**: [Link](https://www.levanteud.com/en/news/convocatoria-or-athletic-club-levante-ud)
+
+
+### séville – girona (N/A, Sun, 8 Feb 2026 06:30:00 -0800)
+
+- **Liga : report de la rencontre Séville-Girona en raison des intempéries**: [Link](https://fr.hespress.com/461688-liga-report-de-la-rencontre-seville-girona-en-raison-des-intemperies.html)
+- **DIRECT. Séville FC-Gérone (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/seville-fc-girona-live/676939)
+- **La Liga - Le match entre Séville et Gérone reporté à dimanche à cause de la météo**: [Link](https://starsporttv.be/fr/content/la-liga-le-match-entre-seville-et-gerone-reporte-a-dimanche-a-cause-de-la-meteo)
+
+
+### wac vs nairobi (N/A, Sun, 8 Feb 2026 06:20:00 -0800)
+
+- **Al-Wafi: "Tomorrow's Match Against Nairobi Will Be Difficult, But We'll Do Our Best to Return to Casablanca with Three Points"**: [Link](https://m.elbotola.com/en/article/2026-02-07-15-35-404.html)
+- **Salim urges Naibois to end CAF campaign on a high**: [Link](https://www.the-star.co.ke/sports/football/2026-02-07-salim-urges-naibois-to-end-caf-campaign-on-a-high)
+- **Confederation Cup: TV schedule to watch Nairobi United vs Wydad Casablanca live**: [Link](https://ca.sports.yahoo.com/news/confederation-cup-tv-schedule-watch-104500850.html)
+
+
+### lindsey vonn (N/A, Sun, 8 Feb 2026 05:20:00 -0800)
+
+- **Lindsey Vonn plans to compete in the Winter Olympics despite a ruptured ACL**: [Link](https://www.nbcnews.com/sports/olympics/lindsey-vonn-set-announce-able-compete-winter-olympics-rcna256739)
+- **Lindsey Vonn has 24 years of memories at Olympic host Cortina, many of them sentimental or historic**: [Link](https://apnews.com/article/lindsey-vonn-olympics-cortina-57dc8c8006004bb376bb2b612b8a8996)
+- **Winter Olympics 2026: Vonn crashes out, Johnson wins downhill gold, snowboarding and more – live**: [Link](https://www.theguardian.com/sport/live/2026/feb/08/winter-olympics-2026-womens-downhill-snowboarding-luge-speed-skating-live)
+
+
 ### az – ajax (N/A, Sun, 8 Feb 2026 05:50:00 -0800)
 
 - **Ajax-verdediger Baas reflecteert: 'Maakt het nóg pijnlijker, machteloos gevoel'**: [Link](https://www.voetbalprimeur.nl/nieuws/1739963/ajax-verdediger-baas-blikt-terug-op-6-0-bekernederlaag-tegen-az.html)
