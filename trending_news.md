@@ -1,3 +1,10 @@
+### real madrid (N/A, Sun, 8 Feb 2026 12:50:00 -0800)
+
+- **Alineación posible del Real Madrid hoy contra el Valencia en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-alineacion-del-real-madrid-contra-el-valencia-en-laliga-ea-sports-f202602-n/)
+- **Mestalla no regala nada: solo tres triunfos del Real Madrid en la última década**: [Link](https://madridistareal.com/mestalla-no-regala-nada-real-madrid/)
+- **🚨 ¡YA VA A EMPEZAR! 🚨 Esta televisora tendrá el Valencia vs Real Madrid en La Liga HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/posts/-ya-va-a-empezar-esta-televisora-tendr%C3%A1-el-valencia-vs-real-madrid-en-la-liga-ho/1382330887257712/)
+
+
 ### psg vs (N/A, Sun, 8 Feb 2026 12:30:00 -0800)
 
 - **Football Tracker: PSG hosting rivals Marseille in Ligue 1, Real Madrid in LaLiga action**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-results-updates/GdYm31MP/)
