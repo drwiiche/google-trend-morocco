@@ -1,3 +1,45 @@
+### bayern – hoffenheim (N/A, Sun, 8 Feb 2026 07:50:00 -0800)
+
+- **Spielvorschau: Bayern München gegen Hoffenheim, 8. Februar, 23:30 Uhr: Die Bayern wollen zu ihrer Siegerform zurückfinden.**: [Link](https://www.vietnam.vn/de/nhan-dinh-tran-dau-bayern-munich-vs-hoffenheim-23h30-ngay-8-2-tim-lai-niem-vui)
+- **Bundesliga: FC Bayern München vs TSG Hoffenheim – Wird Zeit, dass Kane und Co. ein Ausrufezeichen setzen!**: [Link](https://www.hochgepokert.com/2026/02/08/bundesliga-fc-bayern-muenchen-vs-tsg-hoffenheim-wird-zeit-dass-kane-und-co-ein-ausrufezeichen-setzen/)
+- **FCB – TSG: Achtung, Bayern! Darum ist die TSG so gefährlich**: [Link](https://www.bild.de/sport/fussball/fcb-tsg-achtung-bayern-darum-ist-die-tsg-so-gefaehrlich-6987a66b00d739e7f4059628)
+
+
+### liverpool – manchester city (N/A, Sun, 8 Feb 2026 07:40:00 -0800)
+
+- **Premier League LIVE: Liverpool vs Manchester City - build-up, team news, live text updates & radio commentary**: [Link](https://www.bbc.com/sport/football/live/c5y5n7vlwzlt)
+- **Live Commentary - Man Utd vs Spurs | 07.02.2026**: [Link](https://www.skysports.com/football/manchester-united-vs-tottenham-hotspur/live/531376)
+- **Arne Slot: Our obligation is to never believe we are doing enough**: [Link](https://www.liverpoolfc.com/news/arne-slot-our-obligation-never-believe-we-are-doing-enough)
+
+
+### ليفربول ضد مان سيتي (N/A, Sun, 8 Feb 2026 07:40:00 -0800)
+
+- **الذكاء الاصطناعي يتوقع نتيجة ليفربول ومانشستر سيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt8300d612ed8b19f7)
+- **موعد مباراة ليفربول ضد مانشستر سيتي في الدوري الإنجليزي والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/2/7/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%83%D8%B1%D8%A9)
+- **قمم الأحد الكبير.. من مواجهة ليفربول والسيتي إلى كلاسيكو فرنسا**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D9%85%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A5%D9%84%D9%89-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%81%D8%B1%D9%86%D8%B3%D8%A7)
+
+
+### le havre – strasbourg (N/A, Sun, 8 Feb 2026 07:40:00 -0800)
+
+- **PRONOS PARIS RMC Le pari à l’extérieur du 8 février – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-8-fevrier-ligue-1_AN-202602070259.html)
+- **Le Havre AC : Un retour dans le groupe havrais pour défier le RC Strasbourg**: [Link](https://madeinfoot.ouest-france.fr/infos/article-le-havre-ac-un-retour-dans-le-groupe-havrais-pour-defier-le-rc-strasbourg-512066.html)
+- **HAC-RCSA : Les dernières infos !**: [Link](https://hacmen.fr/hac-rcsa-les-dernieres-infos/)
+
+
+### sevilla vs girona (N/A, Sun, 8 Feb 2026 07:40:00 -0800)
+
+- **Sevilla request Girona match postponement amid severe weather**: [Link](https://www.besoccer.com/new/sevilla-request-girona-match-postponement-amid-severe-weather-1393452)
+- **“The most important thing is to continue in the top flight,” says Míchel ahead of Sevilla v Girona**: [Link](https://sports.yahoo.com/articles/most-important-thing-continue-top-064000810.html)
+- **OFFICIAL STATEMENT: SEVILLA FC – GIRONA FC POSTPONEMENT**: [Link](https://sevillafc.es/en/actualidad/noticias/official-statement-sevilla-fc-girona-fc-postponement)
+
+
+### deportivo – albacete (N/A, Sun, 8 Feb 2026 07:40:00 -0800)
+
+- **Riazor pone a prueba las buenas vibras del Albacete Balompié**: [Link](https://www.albacetebalompie.es/noticias/riazor-pone-a-prueba-las-buenas-vibras-del-albacete-balompie)
+- **A PIE DE CAMPO #3 | Previa exprés y reaccionamos a los onces del Deportivo – Albacete**: [Link](https://www.riazor.org/a-pie-de-campo-3-previa-expres-y-reaccionamos-a-los-onces-del-deportivo-albacete/)
+- **El análisis del rival. Jornada 25: Real Club Deportivo de La Coruña**: [Link](https://www.quesomecanico.com/web/inicio/hemeroteca/117-noticias/el-analisis-del-rival/8733-el-analisis-del-rival-jornada-25-real-club-deportivo-de-la-coruna)
+
+
 ### caf confederation cup (N/A, Sun, 8 Feb 2026 07:20:00 -0800)
 
 - **Chiefs improve their chances with narrow win over Al Masry, Maniema stun Wydad**: [Link](https://www.cafonline.com/caf-confederation-cup/news/chiefs-improve-their-chances-with-narrow-win-over-al-masry-maniema-stun-wydad/)
