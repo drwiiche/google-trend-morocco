@@ -1,3 +1,10 @@
+### coupe davis maroc colombie (N/A, Sun, 8 Feb 2026 02:30:00 -0800)
+
+- **Coupe Davis : Maroc Colombie**: [Link](https://sport.le360.ma/internal-gallery/coupe-davis-maroc-colombie_OWZKIWRUN5DCJDUNG2GVZ3BETQ/)
+- **Tennis. Coupe Davis: voici le programme complet**: [Link](https://www.lesiteinfo.com/sport/666170-tennis-coupe-davis-voici-le-programme-complet.html)
+- **dès demain, MAROC COLOMBIE en Coupe Davis pour les Barrages pour accès au Groupe mondial**: [Link](https://fr.hibapress.com/news-233583.html)
+
+
 ### jeux olympiques d'hiver de milan-cortina 2026 (N/A, Sun, 8 Feb 2026 02:00:00 -0800)
 
 - **JO 2026: "Rien de comparable à Paris 2024", presse internationale et internautes divisés par la cérémonie d'ouverture**: [Link](https://rmcsport.bfmtv.com/jeux-olympiques/jo-2026-rien-de-comparable-a-paris-2024-presse-internationale-et-internautes-divises-par-la-ceremonie-d-ouverture_AV-202602070192.html)
