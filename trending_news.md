@@ -1,3 +1,17 @@
+### porto fc (N/A, Mon, 9 Feb 2026 14:00:00 -0800)
+
+- **Preview: Porto vs. Sporting Lisbon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/primeira-liga-title-race/preview/porto-vs-sporting-lisbon-prediction-team-news-lineups_591594.html)
+- **Francesco Farioli: “We’re Exactly Where We Want and Deserve to Be”**: [Link](https://www.filmogaz.com/141988)
+- **Edmilson highlights dynamic duos, Samu with Mora and Suárez with Trincão, for fierce clássico**: [Link](https://onefootball.com/en/news/edmilson-highlights-dynamic-duos-samu-with-mora-and-suarez-with-trincao-for-fierce-classico-42382612)
+
+
+### jimmy lai (N/A, Mon, 9 Feb 2026 12:00:00 -0800)
+
+- **Jimmy Lai sentenced: What happened to other HK pro-democracy protesters?**: [Link](https://www.aljazeera.com/news/2026/2/9/jimmy-lai-sentenced-whats-happened-to-other-hk-pro-democracy-protesters)
+- **UK widens Hong Kong BN(O) visa to cover ‘lost generation’ of adult children**: [Link](https://www.visahq.com/news/2026-02-09/gb/uk-widens-hong-kong-bno-visa-to-cover-lost-generation-of-adult-children/)
+- **The Daily Roundup**: [Link](https://www.thewirechina.com/2026/02/09/the-daily-roundup-february-9-2026/)
+
+
 ### villarreal vs espanyol (N/A, Mon, 9 Feb 2026 13:00:00 -0800)
 
 - **Villarreal vs. Espanyol: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/09/villarreal-vs-espanyol-la-liga-betting-odds-prediction-pick/88584461007/)
