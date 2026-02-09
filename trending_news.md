@@ -1,3 +1,17 @@
+### jack lang (N/A, Mon, 9 Feb 2026 00:50:00 -0800)
+
+- **Les intenses liens financiers de Jeffrey Epstein avec la famille Lang**: [Link](https://www.mediapart.fr/journal/france/020226/les-intenses-liens-financiers-de-jeffrey-epstein-avec-la-famille-lang)
+- **Jack Lang à l’Institut du monde arabe, un hyperactif au bilan contrasté**: [Link](https://www.lemonde.fr/culture/article/2026/02/07/jack-lang-a-l-institut-du-monde-arabe-un-hyperactif-au-bilan-contraste_6665822_3246.html)
+- **« Il paie aujourd’hui les quarante ans de rumeurs qu’il y a eu à son sujet » : Jack Lang, le récit d’une chute**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/politique/3674566478763414/il-paie-aujourd-hui-les-quarante-ans-de-rumeur-qu-il-y-a-eu-a-son-sujet-jack-lang-le-recit-d-une-chute)
+
+
+### real madrid club de fútbol (N/A, Sun, 8 Feb 2026 14:00:00 -0800)
+
+- **Carvajal, torturado por la rodilla**: [Link](https://www.sport.es/es/noticias/real-madrid/carvajal-torturado-rodilla-126521344)
+- **Carvajal y Arbeloa consuman su divorcio**: [Link](https://www.diariocordoba.com/deportes/2026/02/09/carvajal-arbeloa-consuman-divorcio-126610290.html)
+- **Álvaro Arbeloa no tiene dudas sobre Dani Carvajal pese a su suplencia en Mestalla: "No tengo que contar su importancia en el vestuario, encontrará su mejor versión"**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/alvaro-arbeloa-dani-carvajal-suplencia-mestalla-importancia-vestuario-mejor-version/1g9qo1db7vzqb1m1gwruqch7dy)
+
+
 ### الفنانة عبلة كامل (N/A, Sun, 8 Feb 2026 23:20:00 -0800)
 
 - **بعد غياب 8 سنوات.. عبلة كامل تعود وتثير ضجة بـ"إعلان"**: [Link](https://www.alarabiya.net/culture-and-art/2026/02/08/%D8%A8%D8%B9%D8%AF-8-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B9%D8%A8%D9%84%D8%A9-%D9%83%D8%A7%D9%85%D9%84-%D8%AA%D8%B9%D9%88%D8%AF-%D9%88%D8%AA%D8%AB%D9%8A%D8%B1-%D8%B6%D8%AC%D8%A9-)
