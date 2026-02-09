@@ -1,3 +1,24 @@
+### al-wahda – al-ahli saudi (N/A, Mon, 9 Feb 2026 05:30:00 -0800)
+
+- **How to watch today's Al-Wahda vs Al Ahli AFC Champions League Elite game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-al-wahda-al-ahli-09022026/bltaa798a86dd31478a)
+- **Galeano and Demiral's Position on Al-Ahly's Match Against Al-Wehda**: [Link](https://www.ysscores.com/en/news/13906998/Galeano-and-Demiral's-Position-on-Al-Ahly's-Match-Against-Al-Wehda)
+- **Al Wahda FC Vs Al-Ahli Live Score, AFC Champions League Elite: Saudi Club Seeks Momentum Ahead Of Round Of 16**: [Link](https://www.outlookindia.com/sports/football/al-wahda-fc-vs-al-ahli-live-score-afc-champions-league-elite-2025-26-group-b-matchday-7-updates-highlights)
+
+
+### mona juul (N/A, Mon, 9 Feb 2026 04:40:00 -0800)
+
+- **Norwegian diplomat steps down over Epstein ties, in widening scandal**: [Link](https://www.reuters.com/world/europe/norwegian-diplomat-steps-down-over-epstein-ties-widening-scandal-2026-02-08/)
+- **Norway investigates former PM Jagland over alleged Epstein links**: [Link](https://www.bbc.com/news/articles/cy8y6w2nl0qo)
+- **Former Norway PM under corruption investigation over Epstein files**: [Link](https://www.politico.eu/article/former-norway-pm-investigated-corruption-suspicion-over-jeffrey-epstein-files/)
+
+
+### jawad el yamiq (N/A, Mon, 9 Feb 2026 04:20:00 -0800)
+
+- **El Real Zaragoza presentará alegaciones al Comité de Competición por la tarjeta roja que vio El Yamiq ante el Eibar**: [Link](https://www.realzaragoza.com/noticias/el-real-zaragoza-presentara-alegaciones-al-comite-de-competicion-por-la-tarjeta-roja-que-vio-el-yamiq-ante-el-eibar)
+- **El Yamiq hace historia con el 'hat trick' más rocambolesco**: [Link](https://www.marca.com/futbol/zaragoza/2026/02/08/yamiq-historia-hattrick-rocambolesco.html)
+- **La vida sigue igual**: [Link](https://cadenaser.com/aragon/2026/02/09/la-vida-sigue-igual-radio-zaragoza/)
+
+
 ### lewis hamilton (N/A, Mon, 9 Feb 2026 02:20:00 -0800)
 
 - **Kim Kardashian Had 'Romantic Meetup' with Lewis Hamilton in Paris: Source**: [Link](https://people.com/kim-kardashian-had-romantic-meetup-with-lewis-hamilton-11897713)
