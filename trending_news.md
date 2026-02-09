@@ -1,3 +1,24 @@
+### villarreal vs espanyol (N/A, Mon, 9 Feb 2026 13:00:00 -0800)
+
+- **Villarreal vs. Espanyol: La Liga betting odds, prediction, pick**: [Link](https://www.usatoday.com/story/sports/soccer/2026/02/09/villarreal-vs-espanyol-la-liga-betting-odds-prediction-pick/88584461007/)
+- **Villarreal - Espanyol live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/villarreal-espanyol/2026/02/09/01_0101_20260209_449_177-live.html)
+- **Where to Watch Villarreal CF vs. Espanyol: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/08/where-to-watch-villarreal-cf-vs-espanyol-tv-channel-start-time-and-live-stream-3/)
+
+
+### porto – sporting (N/A, Mon, 9 Feb 2026 12:50:00 -0800)
+
+- **Francesco Farioli: “Estamos exatamente onde queremos e onde merecemos estar”**: [Link](https://onefootball.com/en/news/francesco-farioli-estamos-exatamente-onde-queremos-e-onde-merecemos-estar-42382175)
+- **Porto x Sporting: que horas e onde assistir ao jogo da Liga Portugal**: [Link](https://exame.com/esporte/porto-x-sporting-que-horas-e-onde-assistir-ao-jogo-da-liga-portugal/)
+- **AO VIVO: Alan Varela remata ao lado (20')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-alan-varela-remata-ao-lado-20/t2Ilm4H5/)
+
+
+### roma (N/A, Mon, 9 Feb 2026 12:20:00 -0800)
+
+- **Roma con Gualtieri, come funziona l’app del sindaco: proposte al Campidoglio, sondaggi e donazioni**: [Link](https://roma.repubblica.it/cronaca/2026/02/09/news/roma_con_gualtieri_app_campagna_elettorale_donazioni_sondaggi_campidoglio_comunali-425148498/)
+- **VELENI IN PIAZZA di Pierre de Nolac**: [Link](https://www.primapaginanews.it/articoli/veleni-in-piazza-di-pierre-de-nolac-553648)
+- **Il popolo di Gualtieri riempie il teatro Brancaccio: "Un sindaco che ha fatto tanto, non ci ha delusi"**: [Link](https://www.romatoday.it/attualita/roma-con-gualtieri-teatro-brancaccio-sostenitori-video.html)
+
+
 ### atalanta (N/A, Mon, 9 Feb 2026 11:20:00 -0800)
 
 - **Preview: Atalanta BC vs Cremonese - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/preview/atalanta-vs-cremonese-prediction-team-news-lineups_591586.html)
