@@ -1,3 +1,45 @@
+### joan laporta (N/A, Mon, 9 Feb 2026 09:00:00 -0800)
+
+- **Laporta: “No nos sentíamos cómodos en la Superliga con el Real Madrid al frente”**: [Link](https://as.com/futbol/laporta-no-nos-sentiamos-comodos-en-la-superliga-con-el-real-madrid-al-frente-f202602-n/)
+- **Oficial: Laporta dimite con nueve directivos más y Yuste se queda como presidente con seis más**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260209/1002617528/oficial-laporta-dimite-ocho-directivos-mas-yuste-queda-presidente-seis-mas.html)
+- **Preguntas frecuentes sobre las elecciones del FC Barcelona**: [Link](https://www.sport.es/es/noticias/barca/preguntas-frecuentes-elecciones-fc-barcelona-126609028)
+
+
+### fenerbahçe – gençlerbirliği (N/A, Mon, 9 Feb 2026 08:50:00 -0800)
+
+- **CANLI YAYIN | Fenerbahçe - Gençlerbirliği**: [Link](https://haberglobal.com/spor/super-lig-fenerbahce-genclerbirligi-maci-canli-izle-kante-ve-sidiki-cherif-ilk-11de-mi-507070)
+- **Fenerbahçe'nin ilk 11'i açıklandı: Fenerbahçe Gençlerbirliği maç kadrosu ilk 11'ler neler? İşte tüm detaylar...**: [Link](https://www.cgtnturk.com/fenerbahcenin-ilk-11i-aciklandi-fenerbahce-genclerbirligi-mac-kadrosu-ilk-11ler-neler-iste-tum-detaylar)
+- **Fenerbahçe-Gençlerbirliği maçından notlar**: [Link](https://www.ensondakika.com.tr/fenerbahce-genclerbirligi-macindan-notlar/585840/)
+
+
+### peter mandelson (N/A, Mon, 9 Feb 2026 08:50:00 -0800)
+
+- **Chris Mason: Starmer's predicament is dire and now he faces future without top aides**: [Link](https://www.bbc.com/news/articles/ce3g8e7n07jo)
+- **UK's Starmer refuses to heed calls to quit over fallout from Epstein scandal**: [Link](https://www.reuters.com/world/uk/uk-pm-starmers-communications-director-quits-2026-02-09/)
+- **UK PM’s chief of staff resigns over Mandelson’s appointment as US ambassador despite Epstein links**: [Link](https://www.cnn.com/2026/02/08/uk/morgan-mcsweeney-resigns-mandelson-epstein-intl)
+
+
+### شباب الأهلي ضد الهلال (N/A, Mon, 9 Feb 2026 07:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة شباب الأهلي والهلال في دوري أبطال آسيا للنخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd97d9385a41d9b6c)
+- **مباشر مباراة الهلال السعودي ضد شباب الأهلي دبي (0-0) في دوري أبطال آسيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/9/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B6%D8%AF-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+- **غياب ياسين بونو يثير قلق جماهير الهلال**: [Link](https://www.hesport.com/%D8%BA%D9%8A%D8%A7%D8%A8-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D8%AB%D9%8A%D8%B1-%D9%82%D9%84%D9%82-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%87%D9%84-426334.html)
+
+
+### habib beye (N/A, Mon, 9 Feb 2026 07:30:00 -0800)
+
+- **Stade Rennais. Habib Beye démis de ses fonctions d’entraîneur du SRFC, Franck Haise devrait le remplacer**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-habib-beye-demis-de-ses-fonctions-franck-haise-devrait-le-remplacer-1bf7d006-050a-11f1-b297-4335c8ab3868)
+- **Le Stade Rennais licencie Habib Beye !**: [Link](https://www.footmercato.net/a4872296457068090179-le-stade-rennais-licencie-habib-beye)
+- **Vers un Rennes sans Brice Samba à Lens, en Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Vers-un-rennes-sans-brice-samba-a-lens-en-ligue-1/1639879)
+
+
+### maroc algerie polisario madrid (N/A, Mon, 9 Feb 2026 06:10:00 -0800)
+
+- **n°1161. Autonomie au Sahara : le Maroc s’inspire des modèles européens, inquiétude croissante à Alger**: [Link](https://ledesk.ma/enclair/autonomie-au-sahara-le-maroc-sinspire-des-modeles-europeens-inquietude-croissante-a-alger/)
+- **Ahmed Faouzi - Mike Waltz, le diplomate guerrier - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/chronique/mike-waltz-le-diplomate-guerrier/)
+- **Sahara : Nasser Bourita s’entretient à Madrid avec José Manuel Albares**: [Link](https://telquel.ma/instant-t/2026/02/09/sahara-nasser-bourita-sentretient-a-madrid-avec-jose-manuel-albares_1974555/)
+
+
 ### shabab al-ahli – al-hilal (N/A, Mon, 9 Feb 2026 07:20:00 -0800)
 
 - **Al-Hilal Announces Bounou's Absence from Training, Undergoes Shoulder Treatment**: [Link](https://m.elbotola.com/en/article/2026-02-08-18-19-988.html)
