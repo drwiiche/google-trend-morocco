@@ -1,3 +1,31 @@
+### sonia mabrouk quitte cnews (N/A, Sun, 8 Feb 2026 16:50:00 -0800)
+
+- **Au terme de trois semaines de bras de fer, Sonia Mabrouk officialise son départ de CNews**: [Link](https://www.lemonde.fr/economie/article/2026/02/06/au-terme-de-trois-semaines-de-bras-de-fer-sonia-mabrouk-officialise-son-depart-de-cnews_6665735_3234.html)
+- **« Elle a déjà des propositions d’autres chaînes » : les coulisses du départ de Sonia Mabrouk de CNews**: [Link](https://www.leparisien.fr/culture-loisirs/tv/elle-a-deja-des-propositions-dautres-chaines-les-coulisses-du-depart-de-sonia-mabrouk-de-cnews-06-02-2026-3EWCWHME5RBPHP27CGBQWZMFH4.php)
+- **De l’affaire Morandini à la démission fracassante de Sonia Mabrouk, les trois semaines qui ont fait basculer CNews dans la tourmente**: [Link](https://www.lefigaro.fr/medias/de-l-affaire-morandini-a-la-demission-fracassante-de-sonia-mabrouk-les-trois-semaines-qui-ont-fait-basculer-cnews-dans-la-tourmente-20260208)
+
+
+### alerte météo (N/A, Sun, 8 Feb 2026 16:40:00 -0800)
+
+- **Inondations : le MEN active des mesures d’urgence pour assurer la continuité des cours**: [Link](https://fr.hespress.com/461732-inondations-le-men-active-des-mesures-durgence-pour-assurer-la-continuite-des-cours.html)
+- **Le Maroc vit l’un des épisodes de pluies les plus intenses depuis des décennies**: [Link](https://lematin.ma/regions/le-maroc-vit-un-episode-de-pluie-des-plus-intenses-depuis-des-annees/328485)
+- **Alerte météo: pluies, vents forts et chutes de neige, dimanche et lundi**: [Link](https://medias24.com/2026/02/08/alerte-meteo-pluies-vents-forts-et-chutes-de-neige-dimanche-et-lundi-1624537/)
+
+
+### keir starmer (N/A, Sun, 8 Feb 2026 16:00:00 -0800)
+
+- **PM's chief aide McSweeney quits over Mandelson row**: [Link](https://www.bbc.com/news/articles/c8r1xp7j533o)
+- **‘A pescatarian forced to eat dog meat’: the Starmer-McSweeney alliance ends**: [Link](https://observer.co.uk/news/politics/article/a-pescatarian-forced-to-eat-dog-meat-the-starmer-mcsweeney-power-imbalance-comes-to-an-end)
+- **Sacking a faithful lieutenant smacks of desperation**: [Link](https://www.thetimes.com/comment/the-times-view/article/morgan-mcsweeney-resigns-keir-starmer-k8trwl7w5)
+
+
+### benfica – futebol clube de alverca (N/A, Sun, 8 Feb 2026 11:50:00 -0800)
+
+- **Quem senão o miúdo a manter a águia na corrida? (crónica)**: [Link](https://sapo.pt/artigo/quem-senao-o-miudo-a-manter-a-aguia-na-corrida-cronica-69891310dedd7e970eeec9f8)
+- **A crónica do Benfica-Alverca | Santo Anísio resolve problemas à cabeçada**: [Link](https://www.ojogo.pt/futebol/artigo/a-cronica-do-benfica-alverca-santo-anisio-resolve-problemas-a-cabecada/18049973)
+- **«Anísio? O seu forte não é o jogo de cabeça mas faz dois golos lindíssimos»**: [Link](https://maisfutebol.iol.pt/videos/69891a080cf27cf04661cbdc/anisio-o-seu-forte-nao-e-o-jogo-de-cabeca-mas-faz-dois-golos-lindissimos)
+
+
 ### nfl (N/A, Sun, 8 Feb 2026 15:20:00 -0800)
 
 - **Trump says it's 'terrible' Bill Belichick wasn't elected to the Hall of Fame on the first ballot**: [Link](https://www.nbcnews.com/politics/donald-trump/trump-bill-belichick-hall-fame-rcna257548)
