@@ -1,3 +1,10 @@
+### shabab al-ahli – al-hilal (N/A, Mon, 9 Feb 2026 07:20:00 -0800)
+
+- **Al-Hilal Announces Bounou's Absence from Training, Undergoes Shoulder Treatment**: [Link](https://m.elbotola.com/en/article/2026-02-08-18-19-988.html)
+- **Al Hilal's Expected Lineup Against Shabab Al Ahli**: [Link](https://www.ysscores.com/en/news/13907486/Al-Hilal's-Expected-Lineup-Against-Shabab-Al-Ahli)
+- **Yassine Bounou absent from Al-Hilal training after treatment on shoulder injury**: [Link](https://africasoccer.com/yassine-bounou-absent-from-al-hilal-training-after-treatment-on-shoulder-injury/)
+
+
 ### kech24 (N/A, Mon, 9 Feb 2026 00:10:00 -0800)
 
 
