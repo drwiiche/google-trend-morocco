@@ -1,3 +1,17 @@
+### الفنانة عبلة كامل (N/A, Sun, 8 Feb 2026 23:20:00 -0800)
+
+- **بعد غياب 8 سنوات.. عبلة كامل تعود وتثير ضجة بـ"إعلان"**: [Link](https://www.alarabiya.net/culture-and-art/2026/02/08/%D8%A8%D8%B9%D8%AF-8-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B9%D8%A8%D9%84%D8%A9-%D9%83%D8%A7%D9%85%D9%84-%D8%AA%D8%B9%D9%88%D8%AF-%D9%88%D8%AA%D8%AB%D9%8A%D8%B1-%D8%B6%D8%AC%D8%A9-)
+- **عبلة كامل... فصاحة الصَّمت**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D8%A3%D9%8A/5238675-%D8%B9%D8%A8%D9%84%D8%A9-%D9%83%D8%A7%D9%85%D9%84-%D9%81%D8%B5%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D8%B5%D9%91%D9%8E%D9%85%D8%AA)
+- **هل تعود عبلة كامل في رمضان 2026.. اليكم التفاصيل**: [Link](https://www.musicnation.me/news/%D9%87%D9%84-%D8%AA%D8%B9%D9%88%D8%AF-%D8%B9%D8%A8%D9%84%D8%A9-%D9%83%D8%A7%D9%85%D9%84-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D8%A7%D9%84%D9%8A%D9%83%D9%85-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84/)
+
+
+### حالة الطقس (N/A, Sun, 8 Feb 2026 22:50:00 -0800)
+
+- **حالة الطقس في فلسطين**: [Link](https://www.shfanews.net/post/263595)
+- **دولة عربية تتأثر بأجواء الربيع بغير موعدها في مثل هذا الوقت**: [Link](https://www.tuniscope.com/ar/article/424517/quotdien/meteo/jordon-meteo-083917)
+- **الأرصاد: طقس متقلب بين الغبار والغيوم مع ارتفاع وانخفاض درجات الحرارة حتى الأربعاء**: [Link](https://msdrnews.com/111993/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%BA%D8%A8%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%BA%D9%8A%D9%88%D9%85-%D9%85%D8%B9-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1)
+
+
 ### kick (N/A, Sun, 8 Feb 2026 19:10:00 -0800)
 
 - **Super Bowl LX: Seahawks Crush Patriots As Seattle Kicker Scores More Than Entire New England Roster**: [Link](https://deadline.com/2026/02/super-bowl-lx-seahawks-crush-patriots-1236712745/)
