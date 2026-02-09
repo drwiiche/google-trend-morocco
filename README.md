@@ -1,3 +1,10 @@
+### jutta leerdam (N/A, Mon, 9 Feb 2026 13:50:00 -0800)
+
+- **Het laatste kunstwerk van Jutta is voltooid**: [Link](https://www.schaatsen.nl/nieuws/het-laatste-kunstwerk-van-jutta-is-voltooid/)
+- **Koning geniet in Milaan van gouden race Leerdam: 'Dit is groots voor Nederland'**: [Link](https://www.nu.nl/sport-overig/6385448/koning-geniet-in-milaan-van-gouden-race-leerdam-dit-is-groots-voor-nederland.html)
+- **Zo reageerde café It Houtsje op olympisch zilver Femke Kok**: [Link](https://nos.nl/regio/friesland/artikel/724733-zo-reageerde-cafe-it-houtsje-op-olympisch-zilver-femke-kok)
+
+
 ### porto fc (N/A, Mon, 9 Feb 2026 14:00:00 -0800)
 
 - **Preview: Porto vs. Sporting Lisbon - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/porto/primeira-liga-title-race/preview/porto-vs-sporting-lisbon-prediction-team-news-lineups_591594.html)
