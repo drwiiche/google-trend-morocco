@@ -1,3 +1,10 @@
+### atalanta – cremonese (N/A, Mon, 9 Feb 2026 09:30:00 -0800)
+
+- **Atalanta v Cremonese the line-ups | 2025/26 Serie A Enilive MD24**: [Link](https://en.atalanta.it/news/atalanta-v-cremonese-the-line-ups-2025-26-serie-a-enilive-md24)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-atalanta-cremonese-1-0-gol-di-krstovic/OIHWQ1sT/)
+- **Atalanta, infortunio a De Ketelaere nel prepartita: gioca Samardzic**: [Link](https://www.sportmediaset.mediaset.it/calcio/atalanta-infortunio-a-de-ketelaere-nel-prepartita-gioca-samardzic_108838775-202602k.shtml)
+
+
 ### joan laporta (N/A, Mon, 9 Feb 2026 09:00:00 -0800)
 
 - **Laporta: “No nos sentíamos cómodos en la Superliga con el Real Madrid al frente”**: [Link](https://as.com/futbol/laporta-no-nos-sentiamos-comodos-en-la-superliga-con-el-real-madrid-al-frente-f202602-n/)
