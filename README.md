@@ -1,3 +1,31 @@
+### kick (N/A, Sun, 8 Feb 2026 19:10:00 -0800)
+
+- **Super Bowl LX: Seahawks Crush Patriots As Seattle Kicker Scores More Than Entire New England Roster**: [Link](https://deadline.com/2026/02/super-bowl-lx-seahawks-crush-patriots-1236712745/)
+- **Has a kicker ever won Super Bowl MVP? Award history, more to know**: [Link](https://sports.yahoo.com/articles/kicker-ever-won-super-bowl-023031000.html)
+- **Jason Myers becomes first player in NFL history to score 200 points in a season+postseason**: [Link](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/jason-myers-becomes-first-player-in-nfl-history-to-score-200-points-in-a-season-postseason)
+
+
+### super bowl live (N/A, Sun, 8 Feb 2026 17:30:00 -0800)
+
+- **Super Bowl picks, odds, score predictions for Seahawks vs. Patriots**: [Link](https://www.nfl.com/news/super-bowl-lx-picks-odds-score-predictions-for-seahawks-vs-patriots)
+- **Where to Watch the Super Bowl on TV and Streaming: What Time Is Kickoff?**: [Link](https://www.thewrap.com/creative-content/what-to-watch/where-to-watch-super-bowl-2026-streaming/)
+- **Super Bowl 2026 Live Stream: How to Watch Super Bowl LX Everywhere**: [Link](https://www.ad-hoc-news.de/boerse/news/ueberblick/super-bowl-2026-live-stream-how-to-watch-super-bowl-lx-everywhere/68565343)
+
+
+### bad bunny (N/A, Sun, 8 Feb 2026 17:20:00 -0800)
+
+- **Live Updates: Bad Bunny Delivers Joyful Super Bowl Halftime Show**: [Link](https://www.nytimes.com/live/2026/02/08/us/super-bowl-halftime-bad-bunny)
+- **Bad Bunny’s Super Bowl half-time show review – a thrilling ode to Boricua joy**: [Link](https://www.theguardian.com/music/2026/feb/08/bad-bunny-super-bowl-half-time-show-review)
+- **Bad Bunny Stuns the Super Bowl With Lady Gaga, Real Wedding Ceremony**: [Link](https://variety.com/2026/music/news/bad-bunny-super-bowl-lady-gaga-real-wedding-ceremony-1236656381/)
+
+
+### real (N/A, Sun, 8 Feb 2026 13:50:00 -0800)
+
+- **Couple legally married during Bad Bunny's Super Bowl halftime performance**: [Link](https://www.espn.com/nfl/story/_/id/47872442/bad-bunny-super-bowl-lx-half-wedding)
+- **That wedding during Bad Bunny's halftime show? It was real**: [Link](https://www.nbcnews.com/pop-culture/music/wedding-bad-bunnys-halftime-show-was-real-rcna258093)
+- **A Couple Invited Bad Bunny to Their Wedding. They Just Got Married During His Super Bowl Halftime Show**: [Link](https://www.hollywoodreporter.com/music/music-news/bad-bunny-couple-married-super-bowl-halftime-show-1236500136/)
+
+
 ### sonia mabrouk quitte cnews (N/A, Sun, 8 Feb 2026 16:50:00 -0800)
 
 - **Au terme de trois semaines de bras de fer, Sonia Mabrouk officialise son départ de CNews**: [Link](https://www.lemonde.fr/economie/article/2026/02/06/au-terme-de-trois-semaines-de-bras-de-fer-sonia-mabrouk-officialise-son-depart-de-cnews_6665735_3234.html)
