@@ -1,3 +1,17 @@
+### napoli (N/A, Tue, 10 Feb 2026 12:20:00 -0800)
+
+- **🔴 Napoli-Como | Le UFFICIALI. Manna: "Avrei voluto meno infortuni"**: [Link](https://onefootball.com/en/news/napoli-como-le-ufficiali-manna-avrei-voluto-meno-infortuni-42389540)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-coppa-italia-alle-21-napoli-como-conte-con-giovane-paz-falso-nueve/zTD9CHID/)
+- **Manna: “Teniamo a questa competizione, ci giochiamo la semifinale con l’Inter”**: [Link](https://www.goldelnapoli.it/manna-teniamo-a-questa-competizione-ci-giochiamo-la-semifinale-con-linter/)
+
+
+### man u (N/A, Tue, 10 Feb 2026 11:40:00 -0800)
+
+- **Hairy Man Utd fan Frank Ilett addresses claims he's banked MILLIONS from viral stunt as he's one win away from chop**: [Link](https://www.thesun.co.uk/sport/38172261/man-utd-fan-frank-ilett-hair-cut-net-worth/)
+- **'I never expected it to go on for this long' FourFourTwo meets the Manchester United fan desperate for a win this week**: [Link](https://www.fourfourtwo.com/person/i-never-expected-it-to-go-on-for-this-long-fourfourtwo-meets-the-manchester-united-fan-desperate-for-a-win-this-week)
+- **Manchester United Chases Fifth Win As Fan’s Haircut Saga Nears Climax**: [Link](https://evrimagaci.org/gpt/manchester-united-chases-fifth-win-as-fans-haircut-saga-nears-climax-528200)
+
+
 ### naples – côme (N/A, Tue, 10 Feb 2026 12:10:00 -0800)
 
 - **Mais quel mauvais sort a frappé le Napoli ?**: [Link](https://onefootball.com/en/news/mais-quel-mauvais-sort-a-frappe-le-napoli-42387695)
