@@ -1,3 +1,60 @@
+### west ham – manchester united (N/A, Tue, 10 Feb 2026 11:30:00 -0800)
+
+- **Team news for West Ham v Man Utd**: [Link](https://www.manutd.com/en/news/detail/team-news-for-west-ham-v-man-utd-10-feb)
+- **Michael Carrick: ‘They are every good on transition, very
+dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-united/1250384-michael-carrick-they-are-every-good-on-transition-verydangerousthe-man-united-head-coach-sees-strengths-in-one-of-hisformer-clubs.html)
+- **Premier League Soccer: Stream West Ham vs. Man United, Live From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/premier-league-soccer-stream-west-ham-vs-man-united-live-from-anywhere/)
+
+
+### وست هام ضد مان يونايتد (N/A, Tue, 10 Feb 2026 11:30:00 -0800)
+
+- **"رهان مجنون".. لماذا يراقب الملايين مباراة مانشستر يونايتد الليلة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%87%D8%A7%D9%86-%D9%85%D8%AC%D9%86%D9%88%D9%86--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D8%A9/blt8c828dea8c8bbde1)
+- **كاريك يتوقع "ليلة عاصفة" أمام وست هام الجريح**: [Link](https://24.ae/article/946258/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%8A%D9%84%D8%A9-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AD)
+- **روني الهداف التاريخي لـ مواجهات مانشستر يونايتد و وست هام**: [Link](https://hihi2.com/2026/02/10/p3644618.html)
+
+
+### تشيلسي ضد ليدز (N/A, Tue, 10 Feb 2026 11:10:00 -0800)
+
+- **روسينيور يشيد بلاعب ليدز.. ويؤكد جاهزة بالمر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B1%D9%88%D8%B3%D9%8A%D9%86%D9%8A%D9%88%D8%B1-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D9%84%D8%A7%D8%B9%D8%A8-%D9%84%D9%8A%D8%AF%D8%B2--%D9%88%D9%8A%D9%88%D9%94%D9%83%D8%AF-%D8%AC%D8%A7%D9%87%D8%B2%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%B1/bltebcea653f6c9797b)
+- **رقم قياسي لـ انزو فيرنانديز هذا الموسم**: [Link](https://hihi2.com/2026/02/10/p3644191.html)
+- **مباشر مباراة تشيلسي وليدز يونايتد (0-0) بالدوري الإنجليزي.. لحظة بلحظة**: [Link](https://twaslnews.twaslnews.com/305124/)
+
+
+### توتنهام ضد نيوكاسل يونايتد (N/A, Tue, 10 Feb 2026 11:10:00 -0800)
+
+- **توماس فرانك مهدد بالإقالة.. وخطة الطوارئ جاهزة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%85%D8%A7%D8%B3-%D9%81%D8%B1%D8%A7%D9%86%D9%83-%D9%85%D9%87%D8%AF%D8%AF-%D8%A8%D8%A7%D9%84%D8%A7%D9%95%D9%82%D8%A7%D9%84%D8%A9--%D9%88%D8%AE%D8%B7%D8%A9-%D8%A7%D9%84%D8%B7%D9%88%D8%A7%D8%B1%D9%8A%D9%94-%D8%AC%D8%A7%D9%87%D8%B2%D8%A9/blt747a5e5fe2756644)
+- **توتنهام يواجه مخاطر مالية كبيرة بسبب بند في عقود لاعبيه**: [Link](https://mwlana.com/sports/%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D8%AE%D8%A7%D8%B7%D8%B1-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%83%D8%A8%D9%8A%D8%B1%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A8/)
+- **الدوري الإنجليزي.. تشكيل نيوكاسل في مواجهة فريق توتنهام هوتسبيرز**: [Link](https://darelhilal.com/News/3176137.aspx)
+
+
+### al ittihad (N/A, Tue, 10 Feb 2026 11:10:00 -0800)
+
+- **Mo Salah could TREBLE Liverpool wages with Saudi transfer due to Cristiano Ronaldo row**: [Link](https://www.mirror.co.uk/sport/football/transfer-news/liverpool-mo-salah-cristiano-ronaldo-36685479)
+- **Al-Ittihad open talks to sign Mohammed Salah in the summer**: [Link](https://footballtoday.com/2026/02/10/al-ittihad-open-talks-to-sign-mohammed-salah-in-the-summer/)
+- **£52m boost expected for Liverpool with star summer departure**: [Link](https://sports.yahoo.com/articles/52m-boost-expected-liverpool-star-174500914.html)
+
+
+### everton – bournemouth (N/A, Tue, 10 Feb 2026 11:00:00 -0800)
+
+- **Everton line-ups for Bournemouth as Jarrad Branthwaite, Idrissa Gueye and Beto decisions made**: [Link](https://www.liverpoolecho.co.uk/sport/sport-opinion/everton-line-ups-bournemouth-jarrad-33396232)
+- **Aston Villa vs Brighton & Hove Albion Predictions, Picks & Odds**: [Link](https://www.toffeeweb.com/aston-villa-vs-brighton-hove-albion-predictions-11-02-2026/)
+- **Betfred bonus code: Use BETFRED50 for £50 in Premier League free bets**: [Link](https://mybettingsites.co.uk/news/betfred-bonus-code-use-betfred50-for-50-in-premier-league-free-bets-10-feb/)
+
+
+### tottenham – newcastle (N/A, Tue, 10 Feb 2026 10:50:00 -0800)
+
+- **Tottenham And Everton Face Season-Defining Clashes Tuesday Night**: [Link](https://evrimagaci.org/gpt/tottenham-and-everton-face-seasondefining-clashes-tuesday-night-528190)
+- **Preview: Spurs and Newcastle in meeting of two out of form sides**: [Link](https://www.fotmob.com/topnews/25841-preview-spurs-newcastle-meeting-two-out-form-sides?utm_source=fotmob)
+- **Thomas Frank and Eddie Howe: Tackling Crucial Flaws in Spurs and Newcastle**: [Link](https://bvmsports.com/2026/02/10/thomas-frank-and-eddie-howe-tackling-crucial-flaws-in-spurs-and-newcastle/)
+
+
+### chelsea – leeds united (N/A, Tue, 10 Feb 2026 10:40:00 -0800)
+
+- **How to watch today's Chelsea vs Leeds Premier League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-chelsea-leeds-10022026/blte570e4a5f1639bb7)
+- **Follow Tuesday's Premier League games live**: [Link](https://www.aol.com/articles/tuesdays-premier-league-games-live-182516711.html)
+- **Leeds host Chelsea, Spurs take on Newcastle; Man Utd look to stay hot**: [Link](https://onefootball.com/fr/news/leeds-host-chelsea-spurs-take-on-newcastle-man-utd-look-to-stay-hot-42389478)
+
+
 ### مانشستر يونايتد (N/A, Tue, 10 Feb 2026 10:00:00 -0800)
 
 - **"رهان مجنون".. لماذا يراقب الملايين مباراة مانشستر يونايتد الليلة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%87%D8%A7%D9%86-%D9%85%D8%AC%D9%86%D9%88%D9%86--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D8%A9/blt8c828dea8c8bbde1)
