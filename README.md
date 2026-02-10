@@ -1,3 +1,10 @@
+### maroc sahara occidental (N/A, Tue, 10 Feb 2026 03:00:00 -0800)
+
+- **n°1161. Autonomie au Sahara : le Maroc s’inspire des modèles européens, inquiétude croissante à Alger**: [Link](https://ledesk.ma/enclair/autonomie-au-sahara-le-maroc-sinspire-des-modeles-europeens-inquietude-croissante-a-alger/)
+- **Ahmed Faouzi - Mike Waltz, le diplomate guerrier - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/chronique/mike-waltz-le-diplomate-guerrier/)
+- **Sahara : Nasser Bourita s’entretient à Madrid avec José Manuel Albares**: [Link](https://mobile.telquel.ma/instant-t/2026/02/09/sahara-nasser-bourita-sentretient-a-madrid-avec-jose-manuel-albares_1974555/)
+
+
 ### risma bourse (N/A, Tue, 10 Feb 2026 01:00:00 -0800)
 
 - **Risma : une augmentation de capital largement plébiscitée par le marché**: [Link](http://ledesk.ma/2026/02/10/risma-une-augmentation-de-capital-largement-plebiscitee-par-le-marche/)
