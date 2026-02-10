@@ -1,3 +1,17 @@
+### manchester united football club (N/A, Tue, 10 Feb 2026 14:10:00 -0800)
+
+- **Man United Confidential: Harry Maguire new contract shock**: [Link](https://www.dailymail.co.uk/sport/football/article-15545689/Manchester-United-Maguire-contract-away-fans-transfers-Lingard.html)
+- **Man Utd divided over Harry Maguire's future with four big names set to leave**: [Link](https://inews.co.uk/sport/football/man-utd-harry-maguire-transfers-4196568)
+- **Manchester United: The captain is staying! Harry Maguire receives a new contract offer!**: [Link](https://foot-africa.com/en/news/manchester-united-the-captain-is-staying-harry-maguire-receives-a-new-contract-offer-1080713/)
+
+
+### ترتيب الدوري الانجليزي (N/A, Tue, 10 Feb 2026 13:50:00 -0800)
+
+- **أرتيتا يكشف عن خطته بشأن موقعة السيتي وليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AE%D8%B7%D8%AA%D9%87-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt0a794053b7d821dc)
+- **بعد 22 عامًا.. أرسنال يقترب من استعادة المجد في الدوري الإنكليزي | التلفزيون العربي**: [Link](https://www.alaraby.com/news/%D8%A8%D8%B9%D8%AF-22-%D8%B9%D8%A7%D9%85%D9%8B%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%AC%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D9%83%D9%84%D9%8A%D8%B2%D9%8A)
+- **هل تصبح «لندن» حمراء؟.. أرقام استثنائية لـ آرسنال بعد انتهاء الجولة الـ25 من الدوري الإنجليزي**: [Link](https://twaslnews.twaslnews.com/255683/)
+
+
 ### permis de conduire maroc (N/A, Tue, 10 Feb 2026 13:40:00 -0800)
 
 - **Permis de conduire : Voici les nouvelles règles du capital de points**: [Link](https://medias24.com/2026/02/09/permis-de-conduire-voici-les-nouvelles-regles-du-capital-de-points-1624939/)
