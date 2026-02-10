@@ -1,3 +1,24 @@
+### risma bourse (N/A, Tue, 10 Feb 2026 01:00:00 -0800)
+
+- **Risma : une augmentation de capital largement plébiscitée par le marché**: [Link](http://ledesk.ma/2026/02/10/risma-une-augmentation-de-capital-largement-plebiscitee-par-le-marche/)
+- **Risma: Afflux massif de la demande, une augmentation de capital sursouscrite près de 47 fois**: [Link](https://boursenews.ma/article/marches/risma-resultats-techniques-augmentation-de-capital)
+- **Risma, tourisme, Bourse et politique : Adil Douiri au 12/13 de Médias24**: [Link](https://medias24.com/2026/02/05/risma-tourisme-bourse-et-politique-adil-douiri-au-12-13-de-medias24-1623421/)
+
+
+### porto (N/A, Mon, 9 Feb 2026 14:50:00 -0800)
+
+- **«Fofana foi uma boa aposta»**: [Link](https://www.abola.pt/video/fofana-foi-uma-boa-aposta-2026021001033738154)
+- **Farioli: «Seko Fofana foi há dois anos o melhor jogador da Ligue 1»**: [Link](https://cnnportugal.iol.pt/fc-porto/farioli/farioli-seko-fofana-foi-ha-dois-anos-o-melhor-jogador-da-ligue-1)
+- **Tribunal O JOGO | Há alguma irregularidade no golo de Fofana?**: [Link](https://www.ojogo.pt/futebol/artigo/tribunal-o-jogo-ha-alguma-irregularidade-no-golo-de-fofana/18050411)
+
+
+### porto vs sporting (N/A, Mon, 9 Feb 2026 14:20:00 -0800)
+
+- **FC Porto um a um no clássico | Um braço estragou consistência de Varela**: [Link](https://www.ojogo.pt/futebol/artigo/fc-porto-um-a-um-no-classico-um-braco-estragou-consistencia-de-varela/18050385)
+- **AO VIVO: Alan Varela nega o golo a Hjulmand (90+7')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-alan-varela-nega-o-golo-a-hjulmand-90-7/t2Ilm4H5/)
+- **A conferência de Francesco Farioli na íntegra**: [Link](https://cnnportugal.iol.pt/videos/a-conferencia-de-francesco-farioli-na-integra/698a78630cf27cf04661cd54)
+
+
 ### walid regragui (N/A, Tue, 10 Feb 2026 00:00:00 -0800)
 
 - **Maroc: la Fédération marocaine "dément catégoriquement" une démission de Regragui... toujours tenté par un départ**: [Link](https://rmcsport.bfmtv.com/football/equipe-maroc/maroc-la-federation-marocaine-dement-categoriquement-une-demission-de-regragui-toujours-tente-par-un-depart_AV-202602060664.html)
