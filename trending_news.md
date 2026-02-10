@@ -1,3 +1,32 @@
+### مانشستر يونايتد (N/A, Tue, 10 Feb 2026 10:00:00 -0800)
+
+- **"رهان مجنون".. لماذا يراقب الملايين مباراة مانشستر يونايتد الليلة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%87%D8%A7%D9%86-%D9%85%D8%AC%D9%86%D9%88%D9%86--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D8%A9/blt8c828dea8c8bbde1)
+- **كاريك يتوقع "ليلة عاصفة" أمام وست هام الجريح**: [Link](https://24.ae/article/946258/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%8A%D9%84%D8%A9-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AD)
+- **سانتو يعاني من الغيابات قبل مباراة اليونايتد**: [Link](https://hihi2.com/2026/02/10/p3643743.html)
+
+
+### manchester united (N/A, Tue, 10 Feb 2026 09:50:00 -0800)
+
+- **Team news for West Ham v Man Utd**: [Link](https://www.manutd.com/en/news/detail/team-news-for-west-ham-v-man-utd-10-feb)
+- **Michael Carrick: ‘They are every good on transition, very
+dangerous’**: [Link](https://www.vavel.com/en/football/2026/02/10/manchester-united/1250384-michael-carrick-they-are-every-good-on-transition-verydangerousthe-man-united-head-coach-sees-strengths-in-one-of-hisformer-clubs.html)
+- **Preview: Form teams West Ham and Man United meet in London**: [Link](https://www.fotmob.com/topnews/25850-preview-form-teams-west-ham-man-united-meet-london?utm_source=fotmob)
+
+
+### الاتحاد ضد الغرافة (N/A, Tue, 10 Feb 2026 09:50:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الاتحاد والغرافة في دوري أبطال آسيا للنخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%81%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd6ed03f974f94ed0)
+- **المواجهة الـ 17 تصدم مارتينز بكونسيساو**: [Link](https://25h.app/2026/02/10/%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%80-17-%D8%AA%D8%B5%D8%AF%D9%85-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D8%B2-%D8%A8%D9%83%D9%88%D9%86%D8%B3%D9%8A%D8%B3%D8%A7%D9%88/)
+- **اختبار صعب بدون كانتي .. هل ينجح الاتحاد في تجاوز التحدي ؟**: [Link](https://hihi2.com/2026/02/10/p3643799.html)
+
+
+### lionel messi (N/A, Tue, 10 Feb 2026 08:50:00 -0800)
+
+- **Lionel Messi 'had to score all the time' at Barcelona or he was unhappy, reveals former teammate**: [Link](https://www.foxsports.com/articles/soccer/lionel-messi-had-to-score-all-the-time-at-barcelona-or-he-was-unhappy-reveals-former-teammate)
+- **Umtiti talks Messi, Iniesta, Pique, Barcelona, comeback vs PSG - 'They knew they were going to destroy PSG'**: [Link](https://barcauniversal.com/umtiti-talks-messi-iniesta-pique-barcelona-comeback-vs-psg-they-knew-they-were-going-to-destroy-psg/)
+- **Neymar surprises Messi and his kids with a special gift**: [Link](https://www.mundodeportivo.com/us/en/20260210/740157/neymar-surprises-messi-and-his-kids-with-special-gift.html)
+
+
 ### al ittihad – al gharafa (N/A, Tue, 10 Feb 2026 09:30:00 -0800)
 
 - **Al Ittihad Struggle As Al Hilal Eyes Champions League Glory**: [Link](https://evrimagaci.org/gpt/al-ittihad-struggle-as-al-hilal-eyes-champions-league-glory-527991)
