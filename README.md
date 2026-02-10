@@ -1,3 +1,10 @@
+### amélie de montchalin (N/A, Tue, 10 Feb 2026 03:00:00 -0800)
+
+- **Emmanuel Macron choisit Amélie de Montchalin pour prendre la tête de la Cour des comptes**: [Link](https://www.lefigaro.fr/economie/emmanuel-macron-choisit-amelie-de-montchalin-pour-prendre-la-tete-de-la-cour-des-comptes-20260209)
+- **Qui est Amélie de Montchalin, ministre « techno » à Bercy bientôt à la Cour des comptes ?**: [Link](https://www.20minutes.fr/politique/4200649-20260210-amelie-montchalin-ministre-techno-bercy-bientot-cour-comptes)
+- **"Elle a le talent et les compétences": Benjamin Haddad, ministre de l'Europe, sur la nomination d'Amélie de Montchalin à la tête de la Cour des comptes**: [Link](https://actu.orange.fr/videos/politique/elle-a-le-talent-et-les-competences-benjamin-haddad-ministre-de-l-europe-sur-la-nomination-d-amelie-de-montchalin-a-la-tete-de-la-cour-des-comptes-CNT000002nfvad.html)
+
+
 ### maroc sahara occidental (N/A, Tue, 10 Feb 2026 03:00:00 -0800)
 
 - **n°1161. Autonomie au Sahara : le Maroc s’inspire des modèles européens, inquiétude croissante à Alger**: [Link](https://ledesk.ma/enclair/autonomie-au-sahara-le-maroc-sinspire-des-modeles-europeens-inquietude-croissante-a-alger/)
