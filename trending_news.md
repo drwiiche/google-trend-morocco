@@ -1,3 +1,10 @@
+### walid regragui (N/A, Tue, 10 Feb 2026 00:00:00 -0800)
+
+- **Maroc: la Fédération marocaine "dément catégoriquement" une démission de Regragui... toujours tenté par un départ**: [Link](https://rmcsport.bfmtv.com/football/equipe-maroc/maroc-la-federation-marocaine-dement-categoriquement-une-demission-de-regragui-toujours-tente-par-un-depart_AV-202602060664.html)
+- **Walid Regragui: les bonnes questions**: [Link](https://sport.le360.ma/football/lions-atlas/walid-regragui-les-bonnes-questions_S3QVKJACLJBBZFHODTIXCICH7A/)
+- **Mondial 2026: des surprises attendues dans la liste des Lions de l’Atlas**: [Link](https://www.lesiteinfo.com/sport/666356-mondial-2026-des-surprises-attendues-dans-la-liste-des-lions-de-latlas.html)
+
+
 ### jutta leerdam (N/A, Mon, 9 Feb 2026 13:50:00 -0800)
 
 - **Het laatste kunstwerk van Jutta is voltooid**: [Link](https://www.schaatsen.nl/nieuws/het-laatste-kunstwerk-van-jutta-is-voltooid/)
