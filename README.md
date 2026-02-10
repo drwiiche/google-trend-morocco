@@ -1,3 +1,17 @@
+### 2026 winter olympics ice hockey (N/A, Tue, 10 Feb 2026 15:30:00 -0800)
+
+- **Bilka nets two, U.S. women's hockey routs Canada at Olympics**: [Link](https://www.espn.com/olympics/story/_/id/47890381/bilka-nets-two-us-women-hockey-crushes-canada-olympics)
+- **Team USA overpowers rival Canada, 5-0, in potential gold-medal-game preview**: [Link](https://www.nbcnews.com/sports/hockey/team-usa-overpowers-rival-canada-5-0-potential-gold-medal-preview-game-rcna258422)
+- **Rival powers battle as USA faces Canada at Winter Games**: [Link](https://www.usatoday.com/picture-gallery/sports/olympics/2026/02/10/us-and-canada-clash-in-highly-anticipated-olympic-group-stage-showdown/88609262007/)
+
+
+### hockey sur glace aux jeux olympiques d'hiver 2026 (N/A, Tue, 10 Feb 2026 15:20:00 -0800)
+
+- **JO hiver 2026 - Jour 3 : pas de médaille française, les Bleues éliminées en hockey... Ce qu’il faut retenir**: [Link](https://www.la-croix.com/sport/direct-jo-2026-hiver-jour-3-tableau-medailles-milan-cortina-italie-programme-aujourdhui-20260209)
+- **Hockey sur glace : les Bleus font leur grand retour aux Jeux olympiques**: [Link](https://www.lejdd.fr/sport/hockey-sur-glace-les-bleus-font-leur-grand-retour-aux-jeux-olympiques-166665)
+- **Notes de la LPHF : Édition Jeux olympiques d’hiver – 8 févr. | LPHF - Ligue professionnelle de hockey féminin**: [Link](https://www.thepwhl.com/fr/news/2026/february/08/notes-de-la-LPHF-edition-jeux-olympiques-d-hiver-8-fevr)
+
+
 ### نابولي ضد كومو (N/A, Tue, 10 Feb 2026 14:50:00 -0800)
 
 
