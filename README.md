@@ -1,3 +1,43 @@
+### permis de conduire maroc (N/A, Tue, 10 Feb 2026 13:40:00 -0800)
+
+- **Permis de conduire : Voici les nouvelles règles du capital de points**: [Link](https://medias24.com/2026/02/09/permis-de-conduire-voici-les-nouvelles-regles-du-capital-de-points-1624939/)
+- **Permis de conduire: vers une formation plus exigeante et dématérialisée pour les futurs conducteurs**: [Link](https://fr.le360.ma/societe/permis-de-conduire-vers-une-formation-plus-exigeante-et-dematerialisee-pour-les-futurs-conducteurs_SXZSLWVHVJAHXMQTWPP75LPPZE/)
+- **Permis de conduire au Maroc : ce qui va bientôt changer**: [Link](https://www.lesiteinfo.com/maroc/666457-permis-de-conduire-au-maroc-ce-qui-va-bientot-changer.html)
+
+
+### ryanair (N/A, Tue, 10 Feb 2026 13:30:00 -0800)
+
+- **Ryanair signs multibillion-dollar deal to bring engine maintenance in-house**: [Link](https://www.ft.com/content/9866b770-c252-4965-88a2-5be850a3c83d)
+- **airline fleet growth agreement**: [Link](https://www.travelandtourworld.com/news/article/tag/airline-fleet-growth-agreement/)
+- **Ryanair inks major engine support MoU with CFM**: [Link](https://avitrader.com/2026/02/10/ryanair-inks-major-engine-support-mou-with-cfm/)
+
+
+### keir starmer (N/A, Tue, 10 Feb 2026 13:30:00 -0800)
+
+- **Starmer says he 'will never walk away from the country I love' after thanking cabinet for support**: [Link](https://www.bbc.com/news/live/c98gy4dxe8yt)
+- **Who could fill key No 10 vacancies – and win the battle for Starmer’s ear?**: [Link](https://www.theguardian.com/politics/2026/feb/10/who-could-fill-key-no-10-vacancies-keir-starmer-ear)
+- **‘Not prepared to walk away’: Starmer defends premiership as UK government reels from Epstein fallout**: [Link](https://www.cnn.com/2026/02/09/uk/keir-starmer-resignation-crisis-epstein-fallout-intl)
+
+
+### shahid (N/A, Tue, 10 Feb 2026 13:20:00 -0800)
+
+- **8 Ramadan Shows Bringing Real Drama to the Forefront of Our TV Screens**: [Link](https://scoopempire.com/8-ramadan-shows-bringing-real-drama-to-the-forefront-of-our-tv-screens/)
+- **Ramadan 2026 Delivers Drama, Romance, and Star-Studded Stories**: [Link](https://egyptianstreets.com/2026/02/10/ramadan-2026-delivers-drama-romance-and-star-studded-stories/)
+- **QMC unveils Ramadan 2026 programme across TV and radio platforms**: [Link](https://thepeninsulaqatar.com/article/05/02/2026/qmc-unveils-ramadan-2026-programme-across-tv-and-radio-platforms)
+
+
+### napoli vs como (N/A, Tue, 10 Feb 2026 13:10:00 -0800)
+
+- **¡EN VIVO! Napoli y Como buscan un lugar en semis de la Copa Italia**: [Link](https://espndeportes.espn.com/futbol/italia/nota/_/id/16296173/napoli-vs-como-cuartos-copa-italia-2025-2026-equipo-fecha-hora-y-tv-en-vivo)
+- **Cuartos de final de la Copa Italia: calendario de partidos y favoritos**: [Link](https://www.365scores.com/es/news/cuartos-de-final-copa-italia-calendario/)
+- **Nápoles - Como: horario, dónde ver, pronósticos y estadísticas**: [Link](https://apuestas.betfair.es/futbol/futbol-internacional/napoles---como-horario-donde-ver-pronosticos-y-estadisticas-100226-1210.html)
+
+
+### hatem ben arfa (N/A, Tue, 10 Feb 2026 12:40:00 -0800)
+
+- **Hatem Ben Arfa, a personality forever hard to grasp**: [Link](https://onefootball.com/de/news/hatem-ben-arfa-a-personality-forever-hard-to-grasp-42387885)
+
+
 ### napoli (N/A, Tue, 10 Feb 2026 12:20:00 -0800)
 
 - **🔴 Napoli-Como | Le UFFICIALI. Manna: "Avrei voluto meno infortuni"**: [Link](https://onefootball.com/en/news/napoli-como-le-ufficiali-manna-avrei-voluto-meno-infortuni-42389540)
