@@ -1,3 +1,10 @@
+### al ittihad – al gharafa (N/A, Tue, 10 Feb 2026 09:30:00 -0800)
+
+- **Al Ittihad Struggle As Al Hilal Eyes Champions League Glory**: [Link](https://evrimagaci.org/gpt/al-ittihad-struggle-as-al-hilal-eyes-champions-league-glory-527991)
+- **The Union Recovers Its Players Before the Test Against Al-Gharafa in the AFC Champions League**: [Link](https://www.ysscores.com/en/news/13907748/The-Union-Recovers-Its-Players-Before-the-Test-Against-Al-Gharafa-in-the-AFC-Champions-League)
+- **Pressure builds on Saudi champs Al-Ittihad as hunt for Asian Champions League spots resumes**: [Link](https://www.msn.com/en-sg/sport/other/pressure-builds-on-saudi-champs-al-ittihad-as-hunt-for-asian-champions-league-spots-resumes/ar-AA1VWlke?cvid=6989a14a09dc4cf5aacef23854952979&ocid=hpmsn)
+
+
 ### amélie de montchalin (N/A, Tue, 10 Feb 2026 03:00:00 -0800)
 
 - **Emmanuel Macron choisit Amélie de Montchalin pour prendre la tête de la Cour des comptes**: [Link](https://www.lefigaro.fr/economie/emmanuel-macron-choisit-amelie-de-montchalin-pour-prendre-la-tete-de-la-cour-des-comptes-20260209)
