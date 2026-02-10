@@ -1,3 +1,15 @@
+### نابولي ضد كومو (N/A, Tue, 10 Feb 2026 14:50:00 -0800)
+
+
+
+
+### everton vs bournemouth (N/A, Tue, 10 Feb 2026 12:50:00 -0800)
+
+- **Hello, Ancelotti: Rayan scores again in brilliant PL start 📹**: [Link](https://sports.yahoo.com/articles/hello-ancelotti-rayan-scores-again-212900980.html)
+- **Everton vs. Bournemouth: Rayan emulates former Man Utd wonderkid with landmark goal**: [Link](https://www.sportsmole.co.uk/football/bournemouth/news/martial-2-0-rayan-emulates-ex-man-utd-wonderkid-with-second-bournemouth-goal_591799.html)
+- **Rayan heads Bournemouth level with Everton**: [Link](https://www.nbcsports.com/watch/watch/premier-league/rayan-heads-bournemouth-level-with-everton)
+
+
 ### manchester united football club (N/A, Tue, 10 Feb 2026 14:10:00 -0800)
 
 - **Man United Confidential: Harry Maguire new contract shock**: [Link](https://www.dailymail.co.uk/sport/football/article-15545689/Manchester-United-Maguire-contract-away-fans-transfers-Lingard.html)
