@@ -1,3 +1,24 @@
+### الممثل التركي كانبولات جوركيم أرسلان (N/A, Wed, 11 Feb 2026 13:30:00 -0800)
+
+- **نجم "المؤسس عثمان".. الموت يغيب الممثل التركي كانبولات أرسلان**: [Link](https://www.aljazeera.net/arts/2026/2/11/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3-%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84)
+- **تركيا.. وفاة الممثل كانبولات أرسلان عن عمر ناهز الـ45 عامًا**: [Link](https://arabic.cnn.com/entertainment/article/2026/02/11/turkiye-actor-canpolat-arslan-dies-at-the-age-of-45)
+- **الموت يغيب الفنان التركي كانبولات غوركيم**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%83%D8%A7%D9%86%D8%A8%D9%88%D9%84%D8%A7%D8%AA-%D8%BA%D9%88%D8%B1-985085.html)
+
+
+### real sociedad (N/A, Wed, 11 Feb 2026 13:10:00 -0800)
+
+- **Preview: Athletic Bilbao vs Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/copa-del-rey/preview/athletic-bilbao-vs-real-sociedad-prediction-team-news-lineups_591736.html)
+- **Watch as ex-Rangers flop apologises for horror own goal after scoring equaliser**: [Link](https://www.rangersreview.co.uk/news/25826962.watch-ex-rangers-flop-apologises-goal-equaliser/)
+- **Inaki Williams fires up Athletic Club fans ahead of Real Sociedad derby night**: [Link](https://ghanasoccernet.com/inaki-williams-fires-up-athletic-club-fans-ahead-of-real-sociedad-derby-night)
+
+
+### premier league (N/A, Wed, 11 Feb 2026 12:40:00 -0800)
+
+- **James Milner - Has Premier League record pursuit become a problem for Brighton?**: [Link](https://www.bbc.com/sport/football/articles/ce3g8xlw47po)
+- **The secret to James Milner’s longevity as he prepares to make Premier League history**: [Link](https://www.independent.co.uk/sport/football/james-milner-premier-league-appearance-record-b2917288.html)
+- **Milner equals Premier League appearance record: His wild career stats**: [Link](https://www.espn.com/soccer/story/_/id/47836986/james-milner-premier-league-appearance-record-career-stats-leeds-newcastle-aston-villa-manchester-city-liverpool-brighton)
+
+
 ### البايرن ضد ار بي ليبزيج (N/A, Wed, 11 Feb 2026 12:20:00 -0800)
 
 - **🚨Kompany goes all guns blazing against Leipzig**: [Link](https://sports.yahoo.com/articles/kompany-goes-guns-blazing-against-185000416.html)
