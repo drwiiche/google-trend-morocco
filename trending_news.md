@@ -1,3 +1,10 @@
+### juegos olímpicos de invierno 2026 hockey sobre hielo (N/A, Wed, 11 Feb 2026 02:50:00 -0800)
+
+- **Hilary Knight habla de la rivalidad entre Estados Unidos y Canadá en los Juegos Olímpicos de 2026 (excepto)**: [Link](https://sisepuede.es/cultura/hilary-knight-habla-de-la-rivalidad-entre-estados-unidos-y-canada-en-los-juegos-olimpicos-de-2026-excepto/169233/)
+- **Estados Unidos aplasta a su rival Canadá 5-0 y completa una racha impecable en el Grupo A**: [Link](https://deadspin.com/es/estados-unidos-aplasta-a-su-rival-canada-5-0-y-completa-una-racha-impecable-en-el-grupo-a/)
+- **EEUU se enfrenta a Canadá en hockey femenino. ¿Podría ser un anticipo del partido por la medalla de oro?**: [Link](https://www.telemundo47.com/deportes/eeuu-canada-hockey-femenino-milan-cortina/2610643/)
+
+
 ### كانبولات جوركيم أرسلان (N/A, Wed, 11 Feb 2026 03:50:00 -0800)
 
 - **الموت يغيب الفنان التركي كانبولات غوركيم**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%83%D8%A7%D9%86%D8%A8%D9%88%D9%84%D8%A7%D8%AA-%D8%BA%D9%88%D8%B1-985085.html)
