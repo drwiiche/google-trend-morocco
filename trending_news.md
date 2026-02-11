@@ -1,3 +1,17 @@
+### البايرن ضد ار بي ليبزيج (N/A, Wed, 11 Feb 2026 12:20:00 -0800)
+
+- **🚨Kompany goes all guns blazing against Leipzig**: [Link](https://sports.yahoo.com/articles/kompany-goes-guns-blazing-against-185000416.html)
+- **DFB-Pokal Matchday Preview: Bayern Munich vs. RB Leipzig**: [Link](https://www.bavarianfootballworks.com/bayern-munich-dfb-pokal/166036/red-bull-leipzig-preview-lineups-injuries)
+- **MVG to provide special transport service for DFB Cup match against RB Leipzig**: [Link](https://fcbayern.com/en/news/2026/02/mvg-to-provide-special-transport-service-for-dfb-cup-match-against-rb-leipzig)
+
+
+### hervé renard (N/A, Wed, 11 Feb 2026 11:50:00 -0800)
+
+- **Renard: Morocco Now Among World’s Elite, I’m Proud of My Contribution**: [Link](https://www.moroccoworldnews.com/2026/02/278278/renard-morocco-now-among-worlds-elite-im-proud-of-my-contribution/)
+- **Renard: "I Feel Comfortable in Africa and Will Return One Day"**: [Link](https://m.elbotola.com/en/article/2026-02-10-22-10-872.html)
+- **Senegal national team: Hervé Renard explains why he didn't succeed Aliou Cissé**: [Link](https://www.seneweb.com/en/news/Sport/equipe-nationale-du-senegal-herve-renard-explique-pourquoi-il-na-pas-succede-a-aliou-cisse_n_483150.html)
+
+
 ### james van der beek (N/A, Wed, 11 Feb 2026 12:00:00 -0800)
 
 - **Dawson's Creek-acteur James Van Der Beek (48) overleden aan darmkanker**: [Link](https://www.nu.nl/entertainment/6385728/dawsons-creek-acteur-james-van-der-beek-48-overleden-aan-darmkanker.html)
