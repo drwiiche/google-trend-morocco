@@ -1,3 +1,30 @@
+### royal air maroc (N/A, Wed, 11 Feb 2026 05:50:00 -0800)
+
+- **Aérien : Tanger et Nador désormais mieux reliées à l’Espagne et à l’Allemagne**: [Link](https://telquel.ma/instant-t/2026/02/10/aerien-tanger-et-nador-desormais-mieux-reliees-a-lespagne-et-a-lallemagne_1974691/)
+- **RAM renforce ses dessertes entre le Nord du Royaume et l’Europe**: [Link](https://www.leconomiste.com/flash-infos/ram-renforce-ses-dessertes-entre-le-nord-du-royaume-et-leurope/)
+- **Royal Air Maroc ouvre de nouveaux vols reliant Tanger et Nador à l’Espagne et à l’Allemagne**: [Link](https://lematin.ma/economie/royal-air-maroc-lance-de-nouveaux-vols-entre-tanger-nador-et-leurope/329036)
+
+
+### نادي أركاداغ ضد النصر (N/A, Wed, 11 Feb 2026 05:30:00 -0800)
+
+- **مباشر.. مباراة النصر ضد أركاداغ في دوري أبطال آسيا 2**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/11/%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A2%D8%B3%D9%8A%D8%A7)
+- **ليس تمردًا.. جيسوس يكشف السبب الحقيقي لغياب رونالدو أمام أركاداج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D8%AA%D9%85%D8%B1%D8%AF%D9%8B%D8%A7--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D9%8A-%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D8%B1%D9%83%D8%A7%D8%AF%D8%A7%D8%AC/blt1c55d448538599af)
+- **النصر في لقاء سهل أمام أركاداغ التركمانستاني نحو بلوغ ربع النهائي**: [Link](https://www.al-jazirah.com/2026/20260211/sp5.htm)
+
+
+### fk arkadag – al-nassr fc (N/A, Wed, 11 Feb 2026 05:10:00 -0800)
+
+- **AFC Champions League 2: Sadio Mané out against FK Arkadag**: [Link](https://foot-africa.com/en/news/afc-champions-league-2-sadio-mane-out-against-fk-arkadag-1079981/)
+- **Is Cristiano Ronaldo Playing Tonight for Al Nassr vs Arkadag?**: [Link](https://sports.yahoo.com/articles/cristiano-ronaldo-playing-tonight-al-090200300.html)
+- **Jesus Dismisses Al-Nassr's Star Players Ahead of Arkadag Match**: [Link](https://www.ysscores.com/en/news/13908220/Jesus-Dismisses-Al-Nassr's-Star-Players-Ahead-of-Arkadag-Match)
+
+
+### douane maroc (N/A, Tue, 10 Feb 2026 16:10:00 -0800)
+
+- **Maroc • Washington formalise ses nouveaux tarifs douaniers avec Rabat**: [Link](https://www.africaintelligence.fr/afrique-du-nord/2026/02/09/washington-formalise-ses-nouveaux-tarifs-douaniers-avec-rabat,110622174-art)
+- **Washington informe le Maroc sur les nouveaux tarifs douaniers**: [Link](https://www.yabiladi.com/articles/details/187768/washington-informe-maroc-nouveaux-tarifs.html)
+
+
 ### juegos olímpicos de invierno 2026 hockey sobre hielo (N/A, Wed, 11 Feb 2026 02:50:00 -0800)
 
 - **Hilary Knight habla de la rivalidad entre Estados Unidos y Canadá en los Juegos Olímpicos de 2026 (excepto)**: [Link](https://sisepuede.es/cultura/hilary-knight-habla-de-la-rivalidad-entre-estados-unidos-y-canada-en-los-juegos-olimpicos-de-2026-excepto/169233/)
