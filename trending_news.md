@@ -1,3 +1,17 @@
+### كانبولات جوركيم أرسلان (N/A, Wed, 11 Feb 2026 03:50:00 -0800)
+
+- **الموت يغيب الفنان التركي كانبولات غوركيم**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%83%D8%A7%D9%86%D8%A8%D9%88%D9%84%D8%A7%D8%AA-%D8%BA%D9%88%D8%B1-985085.html)
+- **خبر حزين جداً.. وفاة ممثل تركي شهير عن 45 عاما بعد تعرضه لوعكة مفاجئة (صورة)**: [Link](https://www.lebanon24.com/news/arts-celebrities/1480543/%D8%AE%D8%A8%D8%B1-%D8%AD%D8%B2%D9%8A%D9%86-%D8%AC%D8%AF%D8%A7%D9%8B-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%85%D8%AB%D9%84-%D8%AA%D8%B1%D9%83%D9%8A-%D8%B4%D9%87%D9%8A%D8%B1-%D8%B9%D9%86-45-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%B1%D8%B6%D9%87-%D9%84%D9%88%D8%B9%D9%83%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%B5%D9%88)
+- **وفاة نجم مسلسل "بويراز كارايل" عن عمر يناهز 45 عاماً**: [Link](https://www.annahar.com/lifestyle/arts/277071/%D9%88%D9%81%D8%A7%D8%A9-%D9%86%D8%AC%D9%85-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A8%D9%88%D9%8A%D8%B1%D8%A7%D8%B2-%D9%83%D8%A7%D8%B1%D8%A7%D9%8A%D9%84-%D8%B9%D9%86-%D8%B9%D9%85%D8%B1-%D9%8A%D9%86%D8%A7%D9%87%D8%B2-45-%D8%B9%D8%A7%D9%85%D8%A7)
+
+
+### آدم النفاتي (N/A, Tue, 10 Feb 2026 15:20:00 -0800)
+
+- **فيديو: جماهير الرجاء تعتدي على اللاعبين بعد الخسارة أمام المكناسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%AA%D8%B9%D8%AA%D8%AF%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A/blta0589090aee5bcb0)
+- **حارس مرمى الكوديم رضى بوناكة يُهْدي فوزا ثمينا للنادي وللجمهور المكناسي**: [Link](https://www.ahdath.info/article/249503/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%AD%D8%A7%D8%B1%D8%B3-%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%84%D9%83%D9%88%D8%AF%D9%8A%D9%85-%D8%B1%D8%B6%D9%89-%D8%A8%D9%88%D9%86%D8%A7%D9%83%D8%A9-%D9%8A%D9%87%D8%AF%D9%8A-%D9%81%D9%88%D8%B2%D8%A7-%D8%AB%D9%85%D9%8A%D9%86%D8%A7-%D9%84%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D9%88%D9%84%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A)
+- **بوناكة الأعلى تنقيطا في مباراة الرجاء**: [Link](https://www.hesport.com/%D8%A8%D9%88%D9%86%D8%A7%D9%83%D8%A9-%D8%A7%D9%84%D8%A3%D8%B9%D9%84%D9%89-%D8%AA%D9%86%D9%82%D9%8A%D8%B7%D8%A7-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-426418.html)
+
+
 ### risma bourse (N/A, Wed, 11 Feb 2026 01:40:00 -0800)
 
 - **Risma : une augmentation de capital largement plébiscitée par le marché**: [Link](https://ledesk.ma/2026/02/10/risma-une-augmentation-de-capital-largement-plebiscitee-par-le-marche/)
