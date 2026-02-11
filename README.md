@@ -1,3 +1,10 @@
+### risma bourse (N/A, Wed, 11 Feb 2026 01:40:00 -0800)
+
+- **Risma : une augmentation de capital largement plébiscitée par le marché**: [Link](https://ledesk.ma/2026/02/10/risma-une-augmentation-de-capital-largement-plebiscitee-par-le-marche/)
+- **Risma : 100.271 souscripteurs pour une augmentation de capital sursouscrite 47 fois**: [Link](https://medias24.com/2026/02/10/risma-100-271-souscripteurs-pour-une-augmentation-de-capital-sursouscrite-47-fois-1625401/)
+- **Risma: Afflux massif de la demande, une augmentation de capital sursouscrite près de 47 fois**: [Link](https://boursenews.ma/article/marches/risma-resultats-techniques-augmentation-de-capital)
+
+
 ### lindsey vonn (N/A, Tue, 10 Feb 2026 15:50:00 -0800)
 
 - **Lindsey Vonn breaks leg in downhill crash at Winter Olympics, in stable condition at hospital**: [Link](https://apnews.com/article/lindsey-vonn-milan-cortina-olympics-90b10c0a145053f3bbfb573c4024653a)
