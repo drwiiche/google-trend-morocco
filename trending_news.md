@@ -1,3 +1,24 @@
+### paris fc – real madrid club de fútbol (N/A, Wed, 11 Feb 2026 11:40:00 -0800)
+
+- **Misa, la favorita del madridismo en enero**: [Link](https://as.com/futbol/femenino/misa-la-favorita-del-madridismo-en-enero-f202602-n/)
+- **El Real Madrid pone el foco en Europa: "Tenemos que hacer 90 minutos perfectos"**: [Link](https://www.marca.com/futbol/futbol-femenino/champions-league/2026/02/10/real-madrid-pone-foco-europa-90-minutos-perfectos.html)
+- **Pau Quesada: “Tenemos el foco en hacer 90 minutos perfectos”**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo-femenino/ruedas-de-prensa/pau-quesada-10-02-2026)
+
+
+### sunderland – liverpool (N/A, Wed, 11 Feb 2026 11:30:00 -0800)
+
+- **John Aldridge sends plea to Liverpool players ahead of Sunderland after Man United fail to win**: [Link](https://www.rousingthekop.com/2026/02/11/john-aldridge-sends-plea-to-liverpool-players-ahead-of-sunderland-after-man-united-fail-to-win/)
+- **Alisson: “We are not happy” – but “I see a lot of improvements” at Liverpool**: [Link](https://www.thisisanfield.com/2026/02/alisson-not-happy-but-a-lot-of-improvements/)
+- **'We're going to have to work hard' - Alisson Becker previews Liverpool's trip to Sunderland**: [Link](https://www.liverpoolfc.com/news/were-going-have-work-hard-alisson-becker-previews-liverpools-trip-sunderland)
+
+
+### al ahly – ismaily (N/A, Wed, 11 Feb 2026 07:00:00 -0800)
+
+- **Al Ahly deprived of several key players ahead of match against Ismaily**: [Link](https://ca.sports.yahoo.com/news/al-ahly-deprived-several-key-122500586.html)
+- **Al Ahly return to winning ways and Ben Romdhane scores his first in a victory over Ismaily**: [Link](https://www.panafricafootball.com/post/al-ahly-beat-ismaily-egyptianleague/)
+- **Aliou Dieng Named Man of the Match in Al Ahly vs Ismaily Game**: [Link](https://www.ysscores.com/en/news/13909072/Aliou-Dieng-Named-Man-of-the-Match-in-Al-Ahly-vs-Ismaily-Game)
+
+
 ### bayern – rb leipzig (N/A, Wed, 11 Feb 2026 11:10:00 -0800)
 
 - **Tipps zur Anreise zum Pokalspiel vs. RB Leipzig**: [Link](https://fcbayern.com/de/news/2026/02/verdi-streik-der-fc-bayern-gibt-tipps-zur-anreise)
