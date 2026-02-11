@@ -1,3 +1,10 @@
+### cyril schreiner (N/A, Wed, 11 Feb 2026 06:50:00 -0800)
+
+- **TikToker Cyril Schreiner admits he FAKED his dog Albert’s kidnapping and tells fans ‘I screwed up’**: [Link](https://www.the-sun.com/entertainment/15922086/cyril-schreiner-fakes-dog-albert-kidnapping-confession/)
+- **TikTok Star Admits to Faking His Dog’s Kidnapping For ‘Entertaiment’ and to ‘Create Joy’**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/tiktok-star-admits-faking-dog-154111938.html)
+- **French Influencer Cyril Schreiner Admits He Faked Albert the Pug’s Kidnapping: ‘I Screwed Up’**: [Link](https://www.usmagazine.com/celebrity-news/news/french-influencer-cyril-schreiner-admits-he-faked-albert-the-pug-kidnapping/)
+
+
 ### royal air maroc (N/A, Wed, 11 Feb 2026 05:50:00 -0800)
 
 - **Aérien : Tanger et Nador désormais mieux reliées à l’Espagne et à l’Allemagne**: [Link](https://telquel.ma/instant-t/2026/02/10/aerien-tanger-et-nador-desormais-mieux-reliees-a-lespagne-et-a-lallemagne_1974691/)
