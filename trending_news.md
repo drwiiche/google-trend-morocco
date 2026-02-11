@@ -1,3 +1,10 @@
+### newcastle (N/A, Tue, 10 Feb 2026 13:10:00 -0800)
+
+- **Eddie Howe's worrying injury update on Bruno Guimaraes and Lewis Miley**: [Link](https://www.thenorthernecho.co.uk/sport/25844045.eddie-howe-injury-update-bruno-guimaraes-lewis-miley/)
+- **Latest. Best reaction from Newcastle United's 2-1 win over Tottenham Hotspur**: [Link](https://www.newcastleunited.com/en/news/best-reaction-from-newcastle-uniteds-2-1-win-over-tottenham-hotspur)
+- **Newcastle players showed they are playing for me, says Howe**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/newcastle-players-showed-they-are-playing-for-me-says-howe-2026-02-10)
+
+
 ### 2026 winter olympics ice hockey (N/A, Tue, 10 Feb 2026 15:30:00 -0800)
 
 - **Bilka nets two, U.S. women's hockey routs Canada at Olympics**: [Link](https://www.espn.com/olympics/story/_/id/47890381/bilka-nets-two-us-women-hockey-crushes-canada-olympics)
