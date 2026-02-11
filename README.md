@@ -1,3 +1,24 @@
+### james van der beek (N/A, Wed, 11 Feb 2026 12:00:00 -0800)
+
+- **Dawson's Creek-acteur James Van Der Beek (48) overleden aan darmkanker**: [Link](https://www.nu.nl/entertainment/6385728/dawsons-creek-acteur-james-van-der-beek-48-overleden-aan-darmkanker.html)
+- **Amerikaanse acteur James Van Der Beek (48) overleden**: [Link](https://www.haarlemsdagblad.nl/buitenland/amerikaanse-acteur-james-van-der-beek-48-overleden/131250069.html)
+- **Acteur James Van Der Beek (48) overleden**: [Link](https://www.volkskrant.nl/nieuws-achtergrond/acteur-james-van-der-beek-48-overleden~b8659dcc/)
+
+
+### lamine yamal (N/A, Wed, 11 Feb 2026 12:00:00 -0800)
+
+- **Flick: 'I Don't Like or Care to Talk About Real Madrid'**: [Link](https://m.elbotola.com/en/article/2026-02-11-19-30-755.html)
+- **One in, one out: Barcelona injury latest before Atlético**: [Link](https://getfootballnewsspain.com/one-in-one-out-barcelona-injury-latest-before-atletico/)
+- **Barca Missing Rashford, Raphinha For Atletico Cup Clash**: [Link](https://www.barrons.com/news/barca-missing-rashford-raphinha-for-atletico-cup-clash-27c6f23c)
+
+
+### arsène wenger (N/A, Wed, 11 Feb 2026 11:30:00 -0800)
+
+- **Morocco Has Clearly Become a Global Football Powerhouse, FIFA Chief says**: [Link](https://northafricapost.com/94675-morocco-has-clearly-become-a-global-football-powerhouse-fifa-chief-says.html)
+- **Wenger: Morocco's Level Rivals Top European Teams, Could Win World Cup in Next Five Editions**: [Link](https://m.elbotola.com/en/article/2026-02-10-13-19-420.html)
+- **Infantino Names Morocco Among Top Contenders for 2026 World Cup Title**: [Link](https://www.assahifa.com/english/sport/infantino-names-morocco-among-top-contenders-for-2026-world-cup-title/)
+
+
 ### paris fc – real madrid club de fútbol (N/A, Wed, 11 Feb 2026 11:40:00 -0800)
 
 - **Misa, la favorita del madridismo en enero**: [Link](https://as.com/futbol/femenino/misa-la-favorita-del-madridismo-en-enero-f202602-n/)
