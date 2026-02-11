@@ -1,3 +1,24 @@
+### ath. bilbao – real sociedad (N/A, Wed, 11 Feb 2026 13:50:00 -0800)
+
+- **Nico Williams empieza en el banquillo; en la Real entran Aramburu, Martín y Turrientes**: [Link](https://es-us.noticias.yahoo.com/deportes/nico-williams-empieza-banquillo-real-191425469.html)
+- **🔴Athletic y Real Sociedad: Vuelve la acción a la Catedral**: [Link](https://onefootball.com/es/noticias/athletic-y-real-sociedad-vuelve-la-accion-a-la-catedral-42394603)
+- **Athletic Bilbao vs. Real Sociedad EN VIVO Online. Alex Padilla en Semifinal de la Copa del Rey 2026: 0-1 Vencen al mexicano**: [Link](https://www.marca.com/mx/futbol/athletic-r-sociedad/2026/02/11/01_0105_20260211_174_188-directo.html)
+
+
+### مسلسل تحت الارض (N/A, Wed, 11 Feb 2026 13:40:00 -0800)
+
+- **مسلسل «تحت الأرض» يشعل مواقع التواصل الاجتماعى.. وOneruuum تخطف القلوب**: [Link](https://www.almasryalyoum.com/news/details/4195970)
+- **«تحت الأرض» الحلقة 3.. تحالف سلطان وحيدر علي يشعل الصراع**: [Link](https://al-ain.com/article/taht-alard-episode-3)
+- **تحت الأرض الحلقة 3 ترقبوا موعد العرض وأهم الأحداث القادمة**: [Link](https://www.iqraa24.com/news/%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-3-%D8%AA%D8%B1%D9%82%D8%A8%D9%88%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%B6-%D9%88%D8%A3%D9%87/)
+
+
+### liverpool (N/A, Wed, 11 Feb 2026 13:10:00 -0800)
+
+- **Newcastle burst into Curtis Jones race as Liverpool decision looms and two other rivals lurk**: [Link](https://www.teamtalk.com/news/curtis-jones-liverpool-star-sandro-tonali-replacement-newcastle-tottenham-aston-villa-transfer-battle)
+- **Arne Slot takes another unnecessary dig at one of his own players**: [Link](https://rushthekop.com/arne-slot-takes-another-unnecessary-dig-at-one-of-his-own-players-01kgwsd7wpgq)
+- **The 134 Years of History Playing a Role in Liverpool’s Transfer Plans**: [Link](https://www.si.com/soccer/134-years-of-history-role-liverpool-transfer-plans)
+
+
 ### الممثل التركي كانبولات جوركيم أرسلان (N/A, Wed, 11 Feb 2026 13:30:00 -0800)
 
 - **نجم "المؤسس عثمان".. الموت يغيب الممثل التركي كانبولات أرسلان**: [Link](https://www.aljazeera.net/arts/2026/2/11/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3-%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84)
