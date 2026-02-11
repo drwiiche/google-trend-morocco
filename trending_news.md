@@ -1,3 +1,17 @@
+### أتلتيك بيلباو ضد ريال سوسيداد (N/A, Wed, 11 Feb 2026 14:10:00 -0800)
+
+- **كأس ملك إسبانيا...سانادي غائب أمام ريال سوسييداد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7%D8%B3%D8%A7%D9%86%D8%A7%D8%AF%D9%8A-%D8%BA%D8%A7%D8%A6%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF/15609)
+- **بالفيديو.. حكم يحتسب أغرب ركلة جزاء في كأس إسبانيا**: [Link](https://www.aljazeera.net/sport/2026/2/5/%D8%A3%D8%BA%D8%B1%D8%A8-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83)
+- **ريال سوسيداد يفوز على بيلباو في ذهاب نصف نهائي كأس ملك إسبانيا**: [Link](https://www.cairo24.com/2370254)
+
+
+### seedance 2.0 (N/A, Wed, 11 Feb 2026 13:50:00 -0800)
+
+- **ByteDance suspends Seedance 2.0 feature that turns facial photos into personal voices over potential risks**: [Link](https://technode.com/2026/02/10/bytedance-suspends-seedance-2-0-feature-that-turns-facial-photos-into-personal-voices-over-potential-risks/)
+- **The Key to AI Video Success or Failure Revealed by a16z: It All Comes Down to the "Invisible Post - Production Team" in the Future**: [Link](https://eu.36kr.com/en/p/3678212936033157)
+- **Why Are Chinese Models Leading the Way in AI Video**: [Link](https://news.futunn.com/en/post/68738670/why-are-chinese-models-leading-the-way-in-ai-video)
+
+
 ### ath. bilbao – real sociedad (N/A, Wed, 11 Feb 2026 13:50:00 -0800)
 
 - **Nico Williams empieza en el banquillo; en la Real entran Aramburu, Martín y Turrientes**: [Link](https://es-us.noticias.yahoo.com/deportes/nico-williams-empieza-banquillo-real-191425469.html)
