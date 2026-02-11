@@ -1,3 +1,10 @@
+### 2026 winter olympics women's snowboarding halfpipe (N/A, Wed, 11 Feb 2026 15:20:00 -0800)
+
+- **Chinese snowboarder Liu Jiayu confirmed free of spinal injury after crash in Olympic women's halfpipe**: [Link](https://english.news.cn/20260212/8c4f8c67ee8843128f090f12df84334b/c.html)
+- **Winter Olympics snowboarding halted as star suffers serious fall**: [Link](https://www.independent.co.uk/bulletin/sport/liu-jiayu-crash-snowboarding-chloe-kim-b2918290.html)
+- **Veterans lead charge in halfpipe qualifier**: [Link](https://www.globaltimes.cn/page/202602/1355228.shtml)
+
+
 ### أتلتيك بيلباو ضد ريال سوسيداد (N/A, Wed, 11 Feb 2026 14:10:00 -0800)
 
 - **كأس ملك إسبانيا...سانادي غائب أمام ريال سوسييداد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7%D8%B3%D8%A7%D9%86%D8%A7%D8%AF%D9%8A-%D8%BA%D8%A7%D8%A6%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF/15609)
