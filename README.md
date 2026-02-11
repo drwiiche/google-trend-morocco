@@ -1,3 +1,45 @@
+### bayern – rb leipzig (N/A, Wed, 11 Feb 2026 11:10:00 -0800)
+
+- **Tipps zur Anreise zum Pokalspiel vs. RB Leipzig**: [Link](https://fcbayern.com/de/news/2026/02/verdi-streik-der-fc-bayern-gibt-tipps-zur-anreise)
+- **Die merkwürdige Sehnsucht des FC Bayern nach dem DFB-Pokalsieg**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/die-merkwuerdige-sehnsucht-des-fc-bayern-nach-dem-dfb-pokalsieg-zr-94164556.html)
+- **Schwache Schiris und ein perfekter Abschied: Bayerns Pokalduelle mit RB**: [Link](https://www.kicker.de/schwache-schiris-und-ein-perfekter-abschied-bayerns-pokalduelle-mit-rb-1192179/artikel)
+
+
+### nottm forest – wolves (N/A, Wed, 11 Feb 2026 11:10:00 -0800)
+
+- **Nottingham Forest boss challenges players ahead of Wolves clash**: [Link](https://www.expressandstar.com/sport/2026/02/10/nottingham-forest-boss-challenges-players-ahead-of-wolves-clash/)
+- **TEAM NEWS | LUCCA MAKES FULL FOREST DEBUT**: [Link](https://www.nottinghamforest.co.uk/news/2026/february/11/team-news---fores-v-wolves/)
+- **Nottingham Forest vs Wolves Prediction, Betting Pick, Latest Premier League Odds for Wednesday, February 11th**: [Link](https://www.oddschecker.com/us/picks-parlays/soccer/20260211-nottingham-forest-vs-wolves-prediction-betting-pick-latest-premier-league-odds-for-wednesday-february-11th)
+
+
+### crystal palace – burnley (N/A, Wed, 11 Feb 2026 11:00:00 -0800)
+
+- **Glasner on new boys, Henderson & milestone ahead of Burnley**: [Link](https://www.cpfc.co.uk/news/first-team/glasner-press-conference-talking-points-burnley/)
+- **Prem kick-off delayed due to heavy traffic less than an hour before game begins**: [Link](https://www.thesun.co.uk/sport/38196471/premier-league-kick-off-delayed-heavy-traffic/)
+- **Use Midnite’s promo code to net £30 in free bets ahead of Crystal Palace vs Burnley**: [Link](https://talksport.com/betting/3975972/crystal-palace-vs-burnley-midnite-free-bets/)
+
+
+### aston villa – brighton (N/A, Wed, 11 Feb 2026 11:00:00 -0800)
+
+- **Brighton receive big injury boost pre-Aston Villa clash amid Fabian Hurzeler pressure**: [Link](https://www.birminghamworld.uk/sport/football/aston-villa/aston-villa-upcoming-opponents-brighton-and-hove-albion-suffer-injury-boost-5524282)
+- **Man City vs Fulham: Odds, Lineups, Prediction and Bet Builder Tip**: [Link](https://www.oddschecker.com/tips/football/premier-league/man-city-vs-fulham-odds-lineups-prediction-and-bet-builder-tip)
+- **Use Midnite’s promo code to net £30 in free bets ahead of Aston Villa vs Brighton**: [Link](https://talksport.com/betting/3975734/aston-villa-vs-brighton-midnite-free-bets/)
+
+
+### مان سيتي ضد فولهام (N/A, Wed, 11 Feb 2026 10:50:00 -0800)
+
+- **جوارديولا: نجم السيتي ليس شكسبير.. وهذه أسباب تصدي دوناروما الخرافي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%84%D9%8A%D8%B3-%D8%B4%D9%83%D8%B3%D8%A8%D9%8A%D8%B1--%D9%88%D9%87%D8%B0%D9%87-%D8%A7%D9%94%D8%B3%D8%A8%D8%A7%D8%A8-%D8%AA%D8%B5%D8%AF%D9%8A-%D8%AF%D9%88%D9%86%D8%A7%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%84%D8%AE%D8%B1%D8%A7%D9%81%D9%8A/blt2979c9adcb8f3770)
+- **بطولة إنكلترا: غوارديولا يبحث عن حلول لمعالجة تراجع سيتي في الشوط الثاني**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260210-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%AD%D9%84%D9%88%D9%84-%D9%84%D9%85%D8%B9%D8%A7%D9%84%D8%AC%D8%A9-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%88%D8%B7-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A)
+- **غوارديولا: المنافسة مع أرسنال صعبة**: [Link](https://www.hesport.com/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D9%85%D8%B9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B5%D8%B9%D8%A8%D8%A9-426546.html)
+
+
+### manchester city – fulham (N/A, Wed, 11 Feb 2026 10:40:00 -0800)
+
+- **Manchester City vs Fulham predictions: City extend historic H2H run**: [Link](https://www.goal.com/en-ca/betting/tips/manchester-city-vs-fulham-predictions-2-11-2026/A%3Ablt9c3fe4d5b5be0825)
+- **Guardiola predicts Silva will become one of the world's best managers**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/guardiola-predicts-silva-will-become-one-of-the-worlds-best-managers-2026-02-10)
+- **Manchester City aims to close gap on Arsenal with crucial clash against Fulham**: [Link](https://news.ssbcrack.com/manchester-city-aims-to-close-gap-on-arsenal-with-crucial-clash-against-fulham/)
+
+
 ### fabrice aidan (N/A, Wed, 11 Feb 2026 00:10:00 -0800)
 
 - **Affaire Epstein : en une semaine, la publication de millions d’archives a provoqué des secousses**: [Link](https://pontivy.maville.com/actu/actudet_-affaire-epstein-en-une-semaine-la-publication-de-millions-d-archives-a-provoque-des-secousses-dans-le-monde-entier-_54135-7179805_actu.Htm)
