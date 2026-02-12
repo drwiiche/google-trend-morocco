@@ -1,3 +1,10 @@
+### الأحوال الجوية: طنجة (N/A, Wed, 11 Feb 2026 21:20:00 -0800)
+
+- **تعليق الملاحة البحرية بين طريفة وطنجة**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B7%D8%B1%D9%8A%D9%81%D8%A9-%D9%88%D8%B7%D9%86%D8%AC%D8%A9-1700869.html)
+- **رفع وتيرة عبور الشاحنات بين الجزيرة الخضراء وطنجة لتخفيف الاكتظاظ**: [Link](https://tanjanews.com/181385.html)
+- **العاصفة “مارتا” تغلق ميناء طنجة المتوسط وتعلق الربط البحري مع إسبانيا**: [Link](https://al3omk.com/1136891.html)
+
+
 ### maroc (N/A, Thu, 12 Feb 2026 04:30:00 -0800)
 
 - **Jack Lang, figure des réseaux d’influence entre la France et le Maroc**: [Link](https://www.lemonde.fr/afrique/article/2026/02/10/jack-lang-figure-des-reseaux-d-influence-entre-la-france-et-le-maroc_6666126_3212.html)
