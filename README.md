@@ -1,3 +1,10 @@
+### jack lang (N/A, Wed, 11 Feb 2026 20:40:00 -0800)
+
+- **Jack Lang et le Maroc : la fin d’une décennie de réseaux dorés**: [Link](https://ledesk.ma/grandangle/jack-lang-et-le-maroc-la-fin-dune-decennie-de-reseaux-dores/)
+- **Notes impayées, demandes de faveurs : les témoignages se multiplient sur la pingrerie du très riche Jack Lang**: [Link](https://www.liberation.fr/culture/notes-impayees-demandes-de-faveurs-les-temoignages-se-multiplient-sur-la-pingrerie-du-tres-riche-jack-lang-20260210_ZNCTSG2J2FB6FNHZHSOY44ZDGY/)
+- **Jack Lang dans « Le Monde », splendeurs et misères d’une carrière de plus de soixante ans**: [Link](https://www.lemonde.fr/m-le-mag/article/2026/02/11/jack-lang-dans-le-monde-splendeurs-et-miseres-d-une-carriere-de-plus-de-soixante-ans_6666301_4500055.html)
+
+
 ### الطقس طنجة (N/A, Wed, 11 Feb 2026 22:50:00 -0800)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-66-1700639.html)
