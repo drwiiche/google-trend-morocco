@@ -1,3 +1,17 @@
+### drive (N/A, Thu, 12 Feb 2026 01:20:00 -0800)
+
+- **Stellantis issues 'Do Not Drive' alert for 225,000 older US vehicles**: [Link](https://www.reuters.com/business/stellantis-issues-do-not-drive-alert-225000-older-us-vehicles-2026-02-11/)
+- **Is Your Car One of Millions with Takata Airbags That Are Under a 'Do Not Drive' Warning?**: [Link](https://www.caranddriver.com/news/a70315078/takata-air-bags-do-not-drive-vehicles-warning/)
+- **Stellantis issues 'stop-drive' alert for 225K Dodge, Chrysler, Jeep cars**: [Link](https://www.usatoday.com/story/cars/recalls/2026/02/11/stellantis-stop-drive-alert-dodge-chrysler-jeep/88623516007/)
+
+
+### cuba (N/A, Wed, 11 Feb 2026 19:20:00 -0800)
+
+- **Cuba: UN warns of possible humanitarian ‘collapse’, as oil supplies dwindle**: [Link](https://news.un.org/en/story/2026/02/1166895)
+- **The blow to tourism puts Cuba’s economy on the brink of collapse**: [Link](https://english.elpais.com/international/2026-02-11/the-blow-to-tourism-puts-cubas-economy-on-the-brink-of-collapse.html)
+- **Russia evacuates tourists from Cuba as US-engineered fuel crisis deepens**: [Link](https://www.aljazeera.com/news/2026/2/12/russia-to-evacuate-tourists-from-cuba-amid-us-engineered-fuel-crisis)
+
+
 ### pix (N/A, Wed, 11 Feb 2026 23:10:00 -0800)
 
 - **Pix bate recorde, mas revela gargalo invisível na gestão do varejo**: [Link](https://gironews.com/opinioes/pix-bate-recorde-mas-revela-gargalo-invisivel-na-gestao-do-varejo/)
