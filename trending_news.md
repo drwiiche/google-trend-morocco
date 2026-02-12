@@ -1,3 +1,10 @@
+### konami (N/A, Wed, 11 Feb 2026 23:30:00 -0800)
+
+- **Silent Hill Transmission Airing This Week Will Feature Updates On Silent Hill: Townfall**: [Link](https://gameinformer.com/2026/02/11/silent-hill-transmission-airing-this-week-will-feature-updates-on-silent-hill-townfall)
+- **More on Silent Hill: Townfall to be revealed this week**: [Link](https://www.screenhub.com.au/news/games/silent-hill-townfall-reveal-2693116/)
+- **Konami Announces Silent Hill Transmission for Friday at 11am**: [Link](https://explosionnetwork.com/konami-announces-silent-hill-transmission-for-friday-at-11am/)
+
+
 ### drive (N/A, Thu, 12 Feb 2026 01:20:00 -0800)
 
 - **Stellantis issues 'Do Not Drive' alert for 225,000 older US vehicles**: [Link](https://www.reuters.com/business/stellantis-issues-do-not-drive-alert-225000-older-us-vehicles-2026-02-11/)
