@@ -1,3 +1,17 @@
+### 2026 winter olympics men's figure skating (N/A, Thu, 12 Feb 2026 15:30:00 -0800)
+
+- **Jordan Stolz wins his first gold medal in the weirdest way possible**: [Link](https://www.washingtonpost.com/sports/olympics/2026/02/11/jordan-stolz-speed-skating-gold/)
+- **February 11, 2026 - Winter Olympics updates**: [Link](https://www.cnn.com/sport/live-news/milan-winter-olympics-results-highlights-medals-02-11-26)
+- **Jordan Stolz nabs Olympic record and 1000m speedskating gold**: [Link](https://www.nytimes.com/athletic/7039131/2026/02/11/jordan-stolz-winter-olympics-speedskating-1000-meters/)
+
+
+### patinage artistique hommes aux jeux olympiques d'hiver 2026 (N/A, Thu, 12 Feb 2026 15:20:00 -0800)
+
+- **Julia Simon explique son geste de célébration après sa victoire aux Jeux olympiques**: [Link](https://www.huffingtonpost.fr/sport/video/apres-sa-deuxieme-medaille-d-or-la-biathlete-julia-simon-explique-son-geste-et-aimerait-qu-on-lui-foute-la-paix_260316.html)
+- **« C’est inacceptable »: Nouvelle affaire chez les Bleues du biathlon !**: [Link](https://www.sports.fr/ski/jo-2026/nouvelle-affaire-chez-les-bleues-du-biathlon-990080.html)
+- **JO 2026 : Trespeuch, Perrot, Siao Him Fa… les chances de médailles françaises ce vendredi 13 février**: [Link](https://www.tf1info.fr/jeux-olympiques/jo-d-hiver-2026-trespeuch-perrot-siao-him-fa-les-chances-de-medailles-francaises-ce-vendredi-13-fevrier-2424159.html)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Thu, 12 Feb 2026 14:50:00 -0800)
 
 - **الدوري الإنجليزي الممتاز: نتائج الجولة 26 وترتيب الفرق**: [Link](https://www.aljazeera.net/sport/2026/2/12/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC)
