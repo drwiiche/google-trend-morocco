@@ -1,3 +1,17 @@
+### 365 (N/A, Thu, 12 Feb 2026 13:20:00 -0800)
+
+- **ESW Launches MissionReady365™ to Accelerate Microsoft 365 Staffing for Government Projects**: [Link](https://sg.finance.yahoo.com/news/esw-launches-missionready365-accelerate-microsoft-103000737.html)
+- **Discover Thrive 365: A safe haven for youth empowerment**: [Link](https://www.dchieftain.com/news/thrive-365-offers-safe-space-leadership-and-connection-for-local-youth/2972871)
+- **Colorado Law Expands Black History Studies in All K-12 Schools**: [Link](https://sdvoice.info/colorado-law-expands-black-history-studies-in-all-k-12-schools/)
+
+
+### أتلتيكو مدريد ضد برشلونة (N/A, Thu, 12 Feb 2026 12:10:00 -0800)
+
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في نصف نهائي كأس ملك إسبانيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+- **هل يفاوض أتلتيكو مدريد حول ألفاريز؟.. رئيس برشلونة يرد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D9%81%D8%A7%D9%88%D8%B6-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AD%D9%88%D9%84-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B1%D8%AF/bltb1b131facb331467)
+- **رافينيا وراشفورد يغيبان عن برشلونة ضد أتلتيكو مدريد في نصف نهائي كأس الملك**: [Link](https://m.elbotola.com/article/2026-02-11-19-03-697.html)
+
+
 ### arsenal (N/A, Thu, 12 Feb 2026 12:50:00 -0800)
 
 - **Why William Saliba is not playing for Arsenal against Brentford today**: [Link](https://metro.co.uk/2026/02/12/william-saliba-not-playing-arsenal-brentford-today-26859074/)
