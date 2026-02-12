@@ -1,3 +1,10 @@
+### maroc (N/A, Thu, 12 Feb 2026 04:30:00 -0800)
+
+- **Jack Lang, figure des réseaux d’influence entre la France et le Maroc**: [Link](https://www.lemonde.fr/afrique/article/2026/02/10/jack-lang-figure-des-reseaux-d-influence-entre-la-france-et-le-maroc_6666126_3212.html)
+- **Notes impayées, demandes de faveurs : les témoignages se multiplient sur la pingrerie du très riche Jack Lang**: [Link](https://www.liberation.fr/culture/notes-impayees-demandes-de-faveurs-les-temoignages-se-multiplient-sur-la-pingrerie-du-tres-riche-jack-lang-20260210_ZNCTSG2J2FB6FNHZHSOY44ZDGY/)
+- **Jack Lang et le Maroc : la fin d’une décennie de réseaux dorés**: [Link](https://ledesk.ma/grandangle/jack-lang-et-le-maroc-la-fin-dune-decennie-de-reseaux-dores/)
+
+
 ### rappel bmw (N/A, Thu, 12 Feb 2026 02:00:00 -0800)
 
 - **BMW rappelle des centaines de milliers de véhicules pour un risque d’incendie**: [Link](https://www.20minutes.fr/economie/4201027-20260211-automobile-bmw-rappelle-centaines-milliers-voitures-risque-incendie)
