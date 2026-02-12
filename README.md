@@ -1,3 +1,10 @@
+### rappel bmw (N/A, Thu, 12 Feb 2026 02:00:00 -0800)
+
+- **BMW rappelle des centaines de milliers de véhicules pour un risque d’incendie**: [Link](https://www.20minutes.fr/economie/4201027-20260211-automobile-bmw-rappelle-centaines-milliers-voitures-risque-incendie)
+- **Alerte mondiale chez BMW : le constructeur rappelle des centaines de milliers de voitures, voici les modèles visés, la Belgique concernée**: [Link](https://www.rtl.be/actu/belgique/societe/alerte-mondiale-chez-bmw-le-constructeur-rappelle-des-centaines-de-milliers-de/2026-02-11/article/779509)
+- **01net morning : rappel massif chez BMW, le rachat de SFR avance, un premier véhicule chinois exempté des surtaxes européennes**: [Link](https://www.01net.com/actualites/01net-morning-rappel-massif-chez-bmw-le-rachat-de-sfr-avance-un-premier-vehicule-chinois-exempte-des-surtaxes-europeennes.html)
+
+
 ### konami (N/A, Wed, 11 Feb 2026 23:30:00 -0800)
 
 - **Silent Hill Transmission Airing This Week Will Feature Updates On Silent Hill: Townfall**: [Link](https://gameinformer.com/2026/02/11/silent-hill-transmission-airing-this-week-will-feature-updates-on-silent-hill-townfall)
