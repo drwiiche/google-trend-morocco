@@ -1,3 +1,31 @@
+### bruno retailleau (N/A, Thu, 12 Feb 2026 13:50:00 -0800)
+
+- **«J’ai pris la décision d’être candidat» : de la Place Beauvau à la conquête de l’Élysée, la mue présidentielle de Bruno Retailleau**: [Link](https://www.lefigaro.fr/politique/j-ai-pris-la-decision-d-etre-candidat-de-la-place-beauvau-a-la-conquete-de-l-elysee-la-mue-presidentielle-de-bruno-retailleau-20260212)
+- **Le patron des Républicains, Bruno Retailleau, annonce sa candidature à la présidentielle 2027 dans un message envoyé à des élus de son parti**: [Link](https://www.franceinfo.fr/elections/presidentielle/info-franceinfo-le-patron-des-republicains-bruno-retailleau-annonce-sa-candidature-a-la-presidentielle-2027-dans-un-message-envoye-a-des-elus-de-son-parti_7801118.html)
+- **EN DIRECT - Présidentielle 2027 : "Je veux changer la Constitution pour redonner la parole au peuple", affirme Bruno Retailleau au 20H de TF1**: [Link](https://www.tf1info.fr/politique/direct-video-candidat-a-la-presidentielle-2027-bruno-retailleau-invite-du-jt-de-tf1-2424431.html)
+
+
+### lookman (N/A, Thu, 12 Feb 2026 13:40:00 -0800)
+
+- **😍 Atleti SHOW, Barça 0-4 in 45' dopo 73 anni 😱 Lookman 🎯 Julian-gol 🔙**: [Link](https://onefootball.com/it/notizie/atleti-show-barca-0-4-in-45-dopo-73-anni-lookman-julian-gol-42400943)
+- **Il Barcellona spera in una grande rimonta contro l'Atletico: ne ha già realizzate 9 in stagione**: [Link](https://tribuna.com/it/news/2026-02-12-il-barcellona-spera-in-una-grande-rimonta-contro-latletico-ne-ha-gia-realizzate-9-in-stag/)
+- **Griezmann segna contro l’ex club e l’Atlético de Madrid batte 2-0 il Barcellona al 14′ in Copa del Rey**: [Link](https://www.mixvale.com.br/2026/02/12/griezmann-segna-contro-lex-club-e-latletico-de-madrid-batte-2-0-il-barcellona-al-14-in-copa-del-rey-it/)
+
+
+### fcb vs atm (N/A, Thu, 12 Feb 2026 12:40:00 -0800)
+
+- **El Atlético tiene el arma de Mola contra el Barça**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260211/1002618683/atletico-arma-mola-barca.html)
+- **Ademola Lookman brilla con Atlético ante Barcelona tras su éxito en AFCON 2025**: [Link](https://www.beinsports.com/es-us/football/copa-del-rey/articles/ademola-lookman-de-brillar-en-afcon-2025-a-ser-figura-del-atl%C3%A9tico-ante-barcelona-2026-02-12)
+- **”El Barça tiene que preocuparse para las semis de Copa con este nuevo Atleti de Lookman”**: [Link](https://www.marca.com/radio/2026/02/06/barca-preocuparse-semis-copa-nuevo-atleti-lookman.html)
+
+
+### kooora (N/A, Thu, 12 Feb 2026 12:20:00 -0800)
+
+- **بعد حديثه مع كارفاخال.. أربيلوا يطيح بلاعب ريال مدريد من الفريق الأول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AD%D8%AF%D9%8A%D8%AB%D9%87-%D9%85%D8%B9-%D9%83%D8%A7%D8%B1%D9%81%D8%A7%D8%AE%D8%A7%D9%84--%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%B7%D9%8A%D8%AD-%D8%A8%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84/blt11a80213df13e6d1)
+- **نزاع شديد في "المستايا" واجتماع حاسم في التداريب.. تفاصيل أزمة كارفاخال وأربيلوا**: [Link](https://sport.lesiteinfo.com/monde/487836.html)
+- **أربيلوا يجتمع بكارفاخال لحسم وضعه داخل ريال مدريد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%AC%D8%AA%D9%85%D8%B9-%D8%A8%D9%83%D8%A7%D8%B1%D9%81%D8%A7%D8%AE%D8%A7%D9%84-%D9%84%D8%AD%D8%B3%D9%85-%D9%88%D8%B6%D8%B9%D9%87-%D8%AF%D8%A7%D8%AE%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/15599)
+
+
 ### 365 (N/A, Thu, 12 Feb 2026 13:20:00 -0800)
 
 - **ESW Launches MissionReady365™ to Accelerate Microsoft 365 Staffing for Government Projects**: [Link](https://sg.finance.yahoo.com/news/esw-launches-missionready365-accelerate-microsoft-103000737.html)
