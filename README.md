@@ -1,3 +1,24 @@
+### shell (N/A, Wed, 11 Feb 2026 17:10:00 -0800)
+
+- **Shell needs big discovery or deals as oil, gas reserves dwindle**: [Link](https://www.reuters.com/business/energy/shell-needs-big-discovery-or-deals-oil-gas-reserves-dwindle-2026-02-09/)
+- **Shell Not Rushing to Buy Assets to Boost Reserves**: [Link](https://oilprice.com/Latest-Energy-News/World-News/Shell-Not-Rushing-to-Buy-Assets-to-Boost-Reserves.html)
+- **Shell News Update — 11 February 2026**: [Link](https://royaldutchshellplc.com/2026/02/11/shell-news-update-11-february-2026/?share=print&nb=1)
+
+
+### ev charging (N/A, Wed, 11 Feb 2026 16:50:00 -0800)
+
+- **Trump kills EV charging programs in blue states**: [Link](https://www.eenews.net/articles/trump-kills-ev-charging-programs-in-blue-states/)
+- **Trump administration moves to restrict federal funds for EV chargers**: [Link](https://thehill.com/policy/energy-environment/5732153-trump-administration-restricts-ev-charger-funds/)
+- **US proposes boosting 'Buy America' requirements for government-funded EV charging stations**: [Link](https://www.reuters.com/business/autos-transportation/us-proposes-boosting-buy-america-requirements-government-funded-ev-charging-2026-02-10/)
+
+
+### nottingham forest (N/A, Wed, 11 Feb 2026 13:20:00 -0800)
+
+- **Sean Dyche’s future in doubt if Nottingham Forest fail to beat Wolves**: [Link](https://www.telegraph.co.uk/football/2026/02/09/sean-dyche-future-nottingham-forest-do-not-beat-wolves/)
+- **CLUB STATEMENT**: [Link](https://www.nottinghamforest.co.uk/news/2026/february/12/club-statement/)
+- **Sources: Nottingham Forest turn attention to Marco Silva approach after Fulham news**: [Link](https://www.footballinsider247.com/sources-nottingham-forest-turn-attention-to-marco-silva-approach-after-fulham-news/)
+
+
 ### 2026 winter olympics women's snowboarding halfpipe (N/A, Wed, 11 Feb 2026 15:20:00 -0800)
 
 - **Chinese snowboarder Liu Jiayu confirmed free of spinal injury after crash in Olympic women's halfpipe**: [Link](https://english.news.cn/20260212/8c4f8c67ee8843128f090f12df84334b/c.html)
