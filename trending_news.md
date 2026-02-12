@@ -1,3 +1,10 @@
+### الطقس طنجة (N/A, Wed, 11 Feb 2026 22:50:00 -0800)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-66-1700639.html)
+- **"شبكات".. مخاوف بالمغرب من "مارتا" و"السوبر ليغ" على مفترق طرق**: [Link](https://www.aljazeera.net/video/networks/2026/2/8/%D8%B4%D8%A8%D9%83%D8%A7%D8%AA-%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86-%D9%85%D8%A7%D8%B1%D8%AA%D8%A7)
+- **"مديرية الأرصاد": أجواء ماطرة بشمال المغرب يومي الجمعة والسبت**: [Link](https://ar.lesiteinfo.com/maroc/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%85%D8%A7%D8%B7%D8%B1%D8%A9-%D8%A8%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%85-985048.html)
+
+
 ### snowboard halfpipe femmes aux jeux olympiques d'hiver 2026 (N/A, Wed, 11 Feb 2026 15:20:00 -0800)
 
 - **JO 2026 : en snowboard half-pipe, Chloe Kim veut consolider sa réputation d’invincible**: [Link](https://www.la-croix.com/sport/jo-2026-en-snowboard-half-pipe-chloe-kim-veut-consolider-sa-reputation-d-invincible-20260210)
