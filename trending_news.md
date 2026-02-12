@@ -1,3 +1,10 @@
+### ترتيب الدوري الانجليزي (N/A, Thu, 12 Feb 2026 14:50:00 -0800)
+
+- **الدوري الإنجليزي الممتاز: نتائج الجولة 26 وترتيب الفرق**: [Link](https://www.aljazeera.net/sport/2026/2/12/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC)
+- **ترتيب هدافي الدوري الإنجليزي بعد هدف هالاند في مباراة مانشستر سيتي وفولهام**: [Link](https://www.btolat.com/news/393090)
+- **الرئيسية**: [Link](https://www.africa4press.com/art-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%AD%D8%B5%D8%AF-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A3%D9%83%D8%AB%D8%B1-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-africa4press-41983.html)
+
+
 ### bruno retailleau (N/A, Thu, 12 Feb 2026 13:50:00 -0800)
 
 - **«J’ai pris la décision d’être candidat» : de la Place Beauvau à la conquête de l’Élysée, la mue présidentielle de Bruno Retailleau**: [Link](https://www.lefigaro.fr/politique/j-ai-pris-la-decision-d-etre-candidat-de-la-place-beauvau-a-la-conquete-de-l-elysee-la-mue-presidentielle-de-bruno-retailleau-20260212)
