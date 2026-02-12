@@ -1,3 +1,10 @@
+### bmw rappel incendie (N/A, Thu, 12 Feb 2026 09:20:00 -0800)
+
+- **BMW rappelle des centaines de milliers de véhicules pour un risque d’incendie**: [Link](https://www.20minutes.fr/economie/4201027-20260211-automobile-bmw-rappelle-centaines-milliers-voitures-risque-incendie)
+- **Alerte mondiale chez BMW : le constructeur rappelle des centaines de milliers de voitures, voici les modèles visés, la Belgique concernée**: [Link](https://www.rtl.be/actu/belgique/societe/alerte-mondiale-chez-bmw-le-constructeur-rappelle-des-centaines-de-milliers-de/2026-02-11/article/779509)
+- **BMW rappelle 575.000 véhicules à cause d'un risque d'incendie**: [Link](https://actu.orange.fr/videos/france/bmw-rappelle-575-000-vehicules-a-cause-d-un-risque-d-incendie-CNT000002nj1ra.html)
+
+
 ### air arabia (N/A, Thu, 12 Feb 2026 03:10:00 -0800)
 
 - **Air Arabia reports record Dh1.8 billion profit as passenger demand surges in 2025**: [Link](https://www.khaleejtimes.com/business/aviation/air-arabia-reports-record-dh18-billion-profit-as-passenger-demand-surges-in-2025)
