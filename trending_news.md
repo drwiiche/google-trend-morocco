@@ -1,3 +1,45 @@
+### coupe du roi (N/A, Thu, 12 Feb 2026 12:10:00 -0800)
+
+- **Atlético Madrid - Barcelone : sur quelle chaîne et à quelle heure voir le match de Coupe du Roi en direct ?**: [Link](https://www.ouest-france.fr/sport/football/espagne/fc-barcelone/atletico-madrid-barcelone-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-coupe-du-roi-en-direct-622443c2-0661-11f1-900b-ad4c91c3d8b7)
+- **Hansi Flick : "Prêts pour cette demi-finale relevée"**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4448470/hansi-flick-prets-pour-cette-demi-finale-relevee)
+- **Raphinha et Rashford forfaits pour le Barça face à l'Atlético en demi-finale de Coupe du Roi**: [Link](https://m.elbotola.com/fr/article/2026-02-11-19-03-200.html)
+
+
+### yallakora (N/A, Thu, 12 Feb 2026 12:10:00 -0800)
+
+- **رحلة خاصة و3 حصص تدريبية.. الجيش الملكي يشد الرحال إلى مصر**: [Link](https://ar.telquel.ma/%D8%B1%D8%AD%D9%84%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%883-%D8%AD%D8%B5%D8%B5-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A/)
+- **سفير المغرب في مصر يستقبل الجيش**: [Link](https://www.hesport.com/%D8%B3%D9%81%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-426806.html)
+- **الأهلي يكشف لـ في الجول عدد الحضور لمباراة الجيش الملكي**: [Link](https://www.filgoal.com/articles/523205)
+
+
+### kooora tv (N/A, Thu, 12 Feb 2026 12:10:00 -0800)
+
+- **جدول مباريات اليوم الخميس 12 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-12-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt9d85ff55214d3b4c)
+- **ابرز الاحداث الرياضية ليوم الخميس في 12-02-2026**: [Link](https://www.elsport.com/news/show/811611/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-12-02-2026)
+- **مواجهات نارية بالكرة.. هل يحسم العمالقة موقعهم أمام مفاجآت اليوم؟**: [Link](https://akhbaralasr.com/story1054112)
+
+
+### match barca (N/A, Thu, 12 Feb 2026 12:10:00 -0800)
+
+- **Copa del Rey: Lookman's early goal against Barça (video)**: [Link](https://foot-africa.com/en/news/copa-del-rey-lookmans-early-goal-against-barca-video-1083803/)
+- **Barcelona’s projected lineup vs. Atlético: the major question mark lies on the left wing**: [Link](https://www.mundodeportivo.com/us/en/20260212/740279/barcelona-s-projected-lineup-vs-atletico-the-major-question-mark-lies-on-the-left-wing.html)
+- **PREVIEW | Atlético Madrid v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/news/4447702/preview-atletico-madrid-v-fc-barcelona)
+
+
+### atlético madrid – barcelone (N/A, Thu, 12 Feb 2026 11:50:00 -0800)
+
+- **Alineación posible del Barcelona ante al Atlético hoy en semifinales de Copa del Rey**: [Link](https://as.com/futbol/alineacion-posible-del-barcelona-ante-al-atletico-hoy-en-semifinales-de-copa-del-rey-f202602-n/)
+- **La afición del Atlético responde a la llamada de Simeone con un brutal recibimiento en el Metropolitano**: [Link](https://okdiario.com/deportes/aficion-del-atletico-responde-llamada-simeone-brutal-recibimiento-metropolitano-16234609)
+- **🟠 América TV Go (Canal 4) EN VIVO | mirar partido FC Barcelona - Atlético Madrid gratis por señal abierta**: [Link](https://gestion.pe/mix/sports/america-tv-go-en-vivo-gratis-donde-ver-partido-fc-barcelona-vs-atletico-madrid-por-futbol-tv-y-canal-4-online-nnda-nnrt-noticia/)
+
+
+### mbc masr 2 (N/A, Thu, 12 Feb 2026 11:30:00 -0800)
+
+- **كارثة في برشلونة قبل مواجهة أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blte1de6ac190288183)
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في نصف نهائي كأس ملك إسبانيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7?update=8819354)
+- **رافينيا وراشفورد يغيبان عن برشلونة ضد أتلتيكو مدريد في نصف نهائي كأس الملك**: [Link](https://m.elbotola.com/article/2026-02-11-19-03-697.html)
+
+
 ### برينتفورد ضد آرسنال (N/A, Thu, 12 Feb 2026 11:20:00 -0800)
 
 - **قبل مرحلة الحسم.. إصابة جديدة تزيد متاعب آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B2%D9%8A%D8%AF-%D9%85%D8%AA%D8%A7%D8%B9%D8%A8-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt23776968f9f21c8e)
