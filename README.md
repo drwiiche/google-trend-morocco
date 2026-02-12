@@ -1,3 +1,29 @@
+### google (N/A, Wed, 11 Feb 2026 20:00:00 -0800)
+
+- **Live updates: FBI searching roads near Nancy Guthrie’s home as man detained in case says he wants to clear his name**: [Link](https://www.cnn.com/us/live-news/nancy-guthrie-savannah-missing-mom-02-11-26)
+- **Investigators fan out in search of Nancy Guthrie, analyze discarded glove**: [Link](https://www.reuters.com/world/us/investigators-fan-out-search-nancy-guthrie-analyze-discarded-glove-2026-02-12/)
+- **Nancy Guthrie disappearance: New letter to TMZ claims to know who kidnapper is**: [Link](https://www.foxnews.com/live-news/nancy-guthrie-disappearance-arizona-feb-11-live-updates)
+
+
+### translate (N/A, Wed, 11 Feb 2026 19:10:00 -0800)
+
+- **T-Mobile's Live Translation AI Agent Will Be Baked Into Your Phone Calls**: [Link](https://www.cnet.com/tech/mobile/t-mobile-live-translation-ai-agent/)
+- **T-Mobile's new network-based AI will translate live calls**: [Link](https://www.theregister.com/2026/02/11/tmobile_network_ai_translate_live_calls/)
+- **T-Mobile Will Start Testing Live Translation on Calls, No App Required**: [Link](https://gizmodo.com/t-mobile-will-start-testing-live-translation-on-calls-no-app-required-2000720593)
+
+
+### g (N/A, Wed, 11 Feb 2026 18:50:00 -0800)
+
+- **A syrupy sweet ending: U.S. skier Ryan Cochran-Siegle wins Olympic silver**: [Link](https://www.washingtonpost.com/sports/olympics/2026/02/11/ryan-cochran-siegle-silver-super-g-olympics/)
+- **Ryan Cochran-Siegle throws down silver-worthy performance**: [Link](https://www.nbcolympics.com/videos/ryan-cochran-siegle-throws-down-silver-worthy-performance)
+- **Did the US get a medal in the men's Super-G event?**: [Link](https://www.9news.com/article/sports/olympics/mens-super-g-ski-event-results/507-86b8e4c3-e41d-4a03-9340-5401b6d5609f)
+
+
+### الألعاب الأولمبية الشتوية 2026: التزلج على الثلوج داخل نصف أنبوب للسيدات (N/A, Wed, 11 Feb 2026 15:30:00 -0800)
+
+
+
+
 ### shell (N/A, Wed, 11 Feb 2026 17:10:00 -0800)
 
 - **Shell needs big discovery or deals as oil, gas reserves dwindle**: [Link](https://www.reuters.com/business/energy/shell-needs-big-discovery-or-deals-oil-gas-reserves-dwindle-2026-02-09/)
