@@ -1,3 +1,31 @@
+### برينتفورد ضد آرسنال (N/A, Thu, 12 Feb 2026 11:20:00 -0800)
+
+- **قبل مرحلة الحسم.. إصابة جديدة تزيد متاعب آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B2%D9%8A%D8%AF-%D9%85%D8%AA%D8%A7%D8%B9%D8%A8-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt23776968f9f21c8e)
+- **إصابة أخرى، أرسنال بدون كاي هافيرتز ضد توتنهام هوتسبير**: [Link](https://voi.id/ar/sports/558295)
+- **القنوات الناقلة لمباراة أرسنال ضد برينتفورد اليوم في الدوري الإنجليزي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/821060633290113-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### brentford – arsenal (N/A, Thu, 12 Feb 2026 11:10:00 -0800)
+
+- **Preview: Brentford v Arsenal | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-brentford-v-arsenal-3)
+- **Keith Andrews relishing Arsenal set-piece battle**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-arsenal-keith-andrews-set-pieces-premier-league)
+- **“Just enjoy that.” Arteta insists that Arsenal must focus on its own matches**: [Link](https://onefootball.com/pt-br/noticias/just-enjoy-that-arteta-insists-that-arsenal-must-focus-on-its-own-matches-42397912)
+
+
+### القنوات الناقلة لمباراة برشلونة اليوم (N/A, Thu, 12 Feb 2026 11:00:00 -0800)
+
+- **هل يفاوض أتلتيكو مدريد حول ألفاريز؟.. رئيس برشلونة يرد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D9%81%D8%A7%D9%88%D8%B6-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AD%D9%88%D9%84-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B1%D8%AF/bltb1b131facb331467)
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في نصف نهائي كأس ملك إسبانيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+- **رافينيا وراشفورد يغيبان عن برشلونة ضد أتلتيكو مدريد في نصف نهائي كأس الملك**: [Link](https://m.elbotola.com/article/2026-02-11-19-03-697.html)
+
+
+### barca vs atletico (N/A, Thu, 12 Feb 2026 10:30:00 -0800)
+
+- **Alineación posible del Barcelona ante al Atlético hoy en semifinales de Copa del Rey**: [Link](https://as.com/futbol/alineacion-posible-del-barcelona-ante-al-atletico-hoy-en-semifinales-de-copa-del-rey-f202602-n/)
+- **La afición del Atlético responde a la llamada de Simeone con un brutal recibimiento en el Metropolitano**: [Link](https://okdiario.com/deportes/aficion-del-atletico-responde-llamada-simeone-brutal-recibimiento-metropolitano-16234609)
+- **¿La semifinal de la Copa del Rey es a doble partido?**: [Link](https://www.sport.es/es/noticias/futbol/copa-rey/semifinal-copa-rey-doble-partido-126773300)
+
+
 ### bmw rappel incendie (N/A, Thu, 12 Feb 2026 09:20:00 -0800)
 
 - **BMW rappelle des centaines de milliers de véhicules pour un risque d’incendie**: [Link](https://www.20minutes.fr/economie/4201027-20260211-automobile-bmw-rappelle-centaines-milliers-voitures-risque-incendie)
