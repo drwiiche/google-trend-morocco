@@ -1,3 +1,10 @@
+### pix (N/A, Wed, 11 Feb 2026 23:10:00 -0800)
+
+- **Pix bate recorde, mas revela gargalo invisível na gestão do varejo**: [Link](https://gironews.com/opinioes/pix-bate-recorde-mas-revela-gargalo-invisivel-na-gestao-do-varejo/)
+- **A partir de 2026, brasileiros devem se preparar para 6 novidades no PIX**: [Link](https://www.tnh1.com.br/variedades/a-partir-de-2026-brasileiros-devem-se-preparar-para-6-novidades-no-pix/)
+- **Pix deve abocanhar metade do e-commerce em 2028 após inédita liderança sobre cartões de crédito em 2025**: [Link](https://br.tradingview.com/news/reuters.com,2026:newsml_L1N3Z513G:0/)
+
+
 ### jack lang (N/A, Wed, 11 Feb 2026 20:40:00 -0800)
 
 - **Jack Lang et le Maroc : la fin d’une décennie de réseaux dorés**: [Link](https://ledesk.ma/grandangle/jack-lang-et-le-maroc-la-fin-dune-decennie-de-reseaux-dores/)
