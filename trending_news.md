@@ -1,3 +1,31 @@
+### arsenal (N/A, Thu, 12 Feb 2026 12:50:00 -0800)
+
+- **Why William Saliba is not playing for Arsenal against Brentford today**: [Link](https://metro.co.uk/2026/02/12/william-saliba-not-playing-arsenal-brentford-today-26859074/)
+- **Why William Saliba is out for Arsenal vs Brentford as Mikel Arteta handed new blow**: [Link](https://www.mirror.co.uk/sport/football/news/william-saliba-arsenal-illness-brentford-36714518)
+- **Brentford vs Arsenal LIVE: Saliba missing, Hincapie and Gyokeres start with Trossard, Saka back**: [Link](https://www.football.london/arsenal-fc/fixtures-results/brentford-vs-arsenal-live-kick-33412779)
+
+
+### barca (N/A, Thu, 12 Feb 2026 12:30:00 -0800)
+
+- **Il Sales & Marketing Manager di Garmin Marine: "La barca connessa è già realtà"**: [Link](https://www.dailynautica.com/interviste/il-sales-marketing-manager-di-garmin-marine-il-futuro-passa-da-integrazione-connettivita-e-software/184893/)
+- **Elettronica: dentro il "cervello" della tua barca**: [Link](https://www.barcheamotore.com/elettronica-dentro-il-cervello-della-tua-barca/)
+- **Cosa trovi sul nuovo Numero Speciale "Migliorare la barca" del Giornale della Vela**: [Link](https://www.giornaledellavela.com/2026/02/04/numero-speciale-migliorare-barca/)
+
+
+### barca vs (N/A, Thu, 12 Feb 2026 12:30:00 -0800)
+
+- **In numbers: Barcelona forward’s strong record against Atletico Madrid sparks optimism**: [Link](https://barcauniversal.com/in-numbers-barcelona-forwards-strong-record-against-atletico-madrid-sparks-optimism/)
+- **Barcelona’s projected lineup vs. Atlético: the major question mark lies on the left wing**: [Link](https://www.mundodeportivo.com/us/en/20260212/740279/barcelona-s-projected-lineup-vs-atletico-the-major-question-mark-lies-on-the-left-wing.html)
+- **Nightmare at the Metropolitano: Atletico sink Barca in 15-minute blitz following keeper nightmare**: [Link](https://www.besoccer.com/new/atleti-strike-twice-joan-garcias-blunder-leads-to-griezmann-goal-1394400)
+
+
+### bein sport (N/A, Thu, 12 Feb 2026 12:30:00 -0800)
+
+- **Nicolas de Tavernost quits LFP Media amid World Cup rights setback**: [Link](https://onefootball.com/fr/news/nicolas-de-tavernost-quits-lfp-media-amid-world-cup-rights-setback-42400985)
+- **World Cup broadcast: beIN Sports lands a major coup!**: [Link](https://foot-africa.com/en/news/world-cup-broadcast-bein-sports-lands-a-major-coup-1081601/)
+- **Nasser Al-Khelaifi once again in the fans' sights for his PSG/BeIN Sports conflict of interest - supporters divided**: [Link](https://tribuna.com/en/blogs/nasser-alkhelaifi-once-again-in-the-fans-sights-for-his-psgb/)
+
+
 ### coupe du roi (N/A, Thu, 12 Feb 2026 12:10:00 -0800)
 
 - **Atlético Madrid - Barcelone : sur quelle chaîne et à quelle heure voir le match de Coupe du Roi en direct ?**: [Link](https://www.ouest-france.fr/sport/football/espagne/fc-barcelone/atletico-madrid-barcelone-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-coupe-du-roi-en-direct-622443c2-0661-11f1-900b-ad4c91c3d8b7)
