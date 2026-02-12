@@ -1,3 +1,10 @@
+### snowboard halfpipe femmes aux jeux olympiques d'hiver 2026 (N/A, Wed, 11 Feb 2026 15:20:00 -0800)
+
+- **JO 2026 : en snowboard half-pipe, Chloe Kim veut consolider sa réputation d’invincible**: [Link](https://www.la-croix.com/sport/jo-2026-en-snowboard-half-pipe-chloe-kim-veut-consolider-sa-reputation-d-invincible-20260210)
+- **Aucun Suisse, ou Brésilien, en finale de halfpipe**: [Link](https://skiactu.ch/aucun-suisse-ou-bresilien-en-finale-de-halfpipe/)
+- **JO: Federica Brignone juste à temps, Chloé Kim pour un triplé historique**: [Link](https://www.rfi.fr/fr/jeux-olympiques/20260212-jo-federica-brignone-juste-%C3%A0-temps-chlo%C3%A9-kim-pour-un-tripl%C3%A9-historique)
+
+
 ### google (N/A, Wed, 11 Feb 2026 20:00:00 -0800)
 
 - **Live updates: FBI searching roads near Nancy Guthrie’s home as man detained in case says he wants to clear his name**: [Link](https://www.cnn.com/us/live-news/nancy-guthrie-savannah-missing-mom-02-11-26)
