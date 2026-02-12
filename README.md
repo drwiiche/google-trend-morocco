@@ -1,3 +1,9 @@
+### air arabia (N/A, Thu, 12 Feb 2026 03:10:00 -0800)
+
+- **Air Arabia reports record Dh1.8 billion profit as passenger demand surges in 2025**: [Link](https://www.khaleejtimes.com/business/aviation/air-arabia-reports-record-dh18-billion-profit-as-passenger-demand-surges-in-2025)
+- **Sharjah’s Air Arabia breaks profit record as travel demand soars**: [Link](https://gulfnews.com/business/aviation/sharjahs-air-arabia-breaks-profit-record-as-travel-demand-soars-1.500441265)
+
+
 ### الأحوال الجوية: طنجة (N/A, Wed, 11 Feb 2026 21:20:00 -0800)
 
 - **تعليق الملاحة البحرية بين طريفة وطنجة**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B7%D8%B1%D9%8A%D9%81%D8%A9-%D9%88%D8%B7%D9%86%D8%AC%D8%A9-1700869.html)
