@@ -1,3 +1,10 @@
+### برشلونة (N/A, Thu, 12 Feb 2026 12:30:00 -0800)
+
+- **أتلتيكو يُذلّ برشلونة في كأس إسبانيا**: [Link](https://www.hespress.com/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%8A%D9%8F%D8%B0%D9%84%D9%91-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-1701076.html)
+- **بالفيديو.. جارسيا يتسبب في هدف هزلي بشباك برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%AC%D8%A7%D8%B1%D8%B3%D9%8A%D8%A7-%D9%8A%D8%AA%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A-%D9%87%D8%AF%D9%81-%D9%87%D8%B2%D9%84%D9%8A-%D8%A8%D8%B4%D8%A8%D8%A7%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt09bdb98977a0be2b)
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في نصف نهائي كأس ملك إسبانيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7?update=8819255)
+
+
 ### arsenal vs (N/A, Thu, 12 Feb 2026 13:10:00 -0800)
 
 - **Limited Number of Extra Tickets Made Available for Arsenal**: [Link](https://wiganathletic.com/news/2026/february/09/limited-number-of-extra-tickets-made-available-for-arsenal-/)
