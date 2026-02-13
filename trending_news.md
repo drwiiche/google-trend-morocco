@@ -1,3 +1,17 @@
+### tax filing deadline (N/A, Thu, 12 Feb 2026 18:10:00 -0800)
+
+- **US 2025 tax returns: What is the deadline to file taxes? What happens if you miss it during the 2026 tax filing season?**: [Link](https://www.livemint.com/money/personal-finance/us-2025-tax-returns-what-is-the-deadline-to-file-taxes-what-happens-if-you-miss-it-during-the-2026-tax-filing-season-11770861048855.html)
+- **When are New Jersey income taxes due in 2026? Filing deadlines, refund timeline**: [Link](https://finance.yahoo.com/news/jersey-income-taxes-due-2026-160555854.html)
+- **How can I avoid penalties when filing taxes in Washington? Follow these tips**: [Link](https://www.thenewstribune.com/news/state/washington/article314650345.html)
+
+
+### movie theaters near me (N/A, Thu, 12 Feb 2026 17:40:00 -0800)
+
+- **HOUSTON IS NOW CLOSED**: [Link](https://drafthouse.com/content/closure-notice-houston)
+- **Flix Brewhouse taking over Alamo Drafthouse here in Lubbock**: [Link](https://www.kcbd.com/2026/02/08/flix-brewhouse-taking-over-alamo-drafthouse/)
+- **After Alamo Drafthouse's surprise closure in Katy, Round Rock's Flix Brewhouse to take over space**: [Link](https://www.msn.com/en-us/movies/news/after-alamo-drafthouses-surprise-closure-in-katy-round-rocks-flix-brewhouse-to-take-over-space/ar-AA1W4blk)
+
+
 ### barsa (N/A, Thu, 12 Feb 2026 13:40:00 -0800)
 
 - **“A veces está bien recibir una lección así”**: [Link](https://as.com/futbol/fc-barcelona/a-veces-esta-bien-recibir-una-leccion-asi-f202602-n/)
