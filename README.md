@@ -1,3 +1,10 @@
+### 2026 winter olympics ski jumping men's large hill results (N/A, Fri, 13 Feb 2026 15:20:00 -0800)
+
+- **Winter Olympics 2026: Stefan Kraft seeks final remaining accolade for ski jumping superstardom**: [Link](https://www.olympics.com/en/milano-cortina-2026/news/ski-jumping-stefan-kraft-feature)
+- **Why Slovenia, a nation of 2 million, is one of sport’s biggest overperformers - The Athletic**: [Link](https://www.nytimes.com/athletic/7031154/2026/02/09/slovenia-winter-olympics-ski-jumping-prevc-luka-doncic/)
+- **Olympic Ski Jumping: Men's Individual Large Hill Final: Date, schedule, history and more**: [Link](https://news.bet365.com/en-us/article/olympic-ski-jumping-mens-individual-large-hill-final-all-you-need-to-know/2026021316154047076)
+
+
 ### safran maroc (N/A, Fri, 13 Feb 2026 14:00:00 -0800)
 
 - **Mohammed VI lance le projet d’une usine de trains d’atterrissage de Safran à Nouaceur**: [Link](https://ledesk.ma/2026/02/13/mohammed-vi-lance-a-nouaceur-le-projet-dune-usine-de-trains-datterrissage-de-safran/)
