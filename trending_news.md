@@ -1,3 +1,10 @@
+### safran maroc (N/A, Fri, 13 Feb 2026 14:00:00 -0800)
+
+- **Mohammed VI lance le projet d’une usine de trains d’atterrissage de Safran à Nouaceur**: [Link](https://ledesk.ma/2026/02/13/mohammed-vi-lance-a-nouaceur-le-projet-dune-usine-de-trains-datterrissage-de-safran/)
+- **Le Roi préside le lancement du projet de réalisation à Nouaceur d’une usine de production des trains d’atterrissage du groupe Safran**: [Link](https://fr.hespress.com/462419-le-roi-preside-le-lancement-du-projet-de-realisation-a-nouaceur-dune-usine-de-production-des-trains-datterrissage-du-groupe-safran.html)
+- **« Le Maroc est stratégique pour Safran », assure le patron du groupe**: [Link](https://h24info.ma/economie/le-maroc-est-strategique-pour-safran-assure-le-patron-du-groupe/)
+
+
 ### valentine day (N/A, Fri, 13 Feb 2026 14:40:00 -0800)
 
 - **Weekend Storm Trying To Third Wheel Your Valentine's Day?**: [Link](https://weather.com/forecast/regional/video/valentines-day-weekend-storm-severe-rain)
