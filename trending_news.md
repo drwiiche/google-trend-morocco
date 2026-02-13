@@ -1,3 +1,43 @@
+### رين ضد بي اس جي (N/A, Fri, 13 Feb 2026 09:40:00 -0800)
+
+- **لويس إنريكي يعمل على تجهيز سان جيرمان لـ"أهم مرحلة في الموسم"**: [Link](https://www.hesport.com/%D9%84%D9%88%D9%8A%D8%B3-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B9%D9%85%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%AC%D9%87%D9%8A%D8%B2-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%84-426842.html)
+- **القنوات الناقلة لمباراة باريس سان جيرمان اليوم ضد رين في الدوري الفرنسي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/969263164195670-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **انريكي يلمّح لإشراك درو اساسيًا**: [Link](https://www.elsport.com/news/show/811693/%D8%A7%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D9%84%D9%85%D9%91%D8%AD-%D9%84%D8%A5%D8%B4%D8%B1%D8%A7%D9%83-%D8%AF%D8%B1%D9%88-%D8%A7%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7)
+
+
+### rennes vs psg (N/A, Fri, 13 Feb 2026 09:40:00 -0800)
+
+- **Rennes vs PSG LIVE today: score and goals in Ligue 1**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/rennes-vs-psg-live-goals-and-score-updates-on-bein-sports-2026-02-13)
+- **Ligue 1+ on OneFootball: this weekend’s fixtures 🇫🇷📱**: [Link](https://onefootball.com/en/news/ligue-1-on-onefootball-this-weekends-fixtures-42404459)
+- **🚨Confirmed XIs: PSG look to capitalise on Rennais' crisis**: [Link](https://sports.yahoo.com/articles/confirmed-xis-psg-look-capitalise-171900223.html)
+
+
+### galatasaray – eyüpspor (N/A, Fri, 13 Feb 2026 09:40:00 -0800)
+
+- **Okan Buruk’tan Osimhen ve Icardi sürprizi**: [Link](https://www.babaocagi.com.tr/okan-buruktan-osimhen-ve-icardi-surprizi)
+- **Galatasaray'da 5 değişiklik**: [Link](https://www.bizimsakarya.com.tr/galatasarayda-5-degisiklik-4)
+- **CANLI YAYIN: Galatasaray - Eyüpspor CANLI ANLATIM - 2025-2026 sezonu Trendyol Süper Lig 22. haftası**: [Link](https://www.cumhuriyet.com.tr/spor/canli-yayin-galatasaray-eyupspor-canli-anlatim-2025-2026-sezonu-trendyol-super-lig-22-haftasi-2478631)
+
+
+### rennes – paris-sg (N/A, Fri, 13 Feb 2026 09:30:00 -0800)
+
+- **Rennes-PSG : les compositions probables**: [Link](https://www.footmercato.net/a8515537152250421951-rennes-psg-les-compositions-probables)
+- **Luis Enrique sur la situation du PSG : « C'est le meilleur moment de la saison »**: [Link](https://www.lequipe.fr/Football/Actualites/Luis-enrique-sur-la-situation-du-psg-c-est-le-meilleur-moment-de-la-saison/1641606)
+- **Football : les rencontres à suivre ce soir en Ligue 1, Serie A et Bundesliga**: [Link](https://www.lapresse.tn/2026/02/13/football-les-rencontres-a-suivre-ce-soir-en-ligue-1-serie-a-et-bundesliga/)
+
+
+### الاتحاد ضد ألفيحاء (N/A, Fri, 13 Feb 2026 09:20:00 -0800)
+
+
+
+
+### sonia mabrouk (N/A, Fri, 13 Feb 2026 09:20:00 -0800)
+
+- **Sonia Mabrouk annonce son départ d’Europe 1, et donc des médias de Vincent Bolloré**: [Link](https://www.lemonde.fr/actualite-medias/article/2026/02/13/sonia-mabrouk-quitte-europe-1-et-les-medias-de-vincent-bollore_6666603_3236.html)
+- **« Elle a déjà des propositions d’autres chaînes » : les coulisses du départ de Sonia Mabrouk de CNews**: [Link](https://www.leparisien.fr/culture-loisirs/tv/elle-a-deja-des-propositions-dautres-chaines-les-coulisses-du-depart-de-sonia-mabrouk-de-cnews-06-02-2026-3EWCWHME5RBPHP27CGBQWZMFH4.php)
+- **Après avoir quitté CNews, Sonia Mabrouk démissionne aussi d’Europe 1**: [Link](https://www.20minutes.fr/arts-stars/medias/4201301-20260213-affaire-morandini-sonia-mabrouk-demissionne-europe-va-aussi-quitter-medias-bollore)
+
+
 ### spiderman noir (N/A, Fri, 13 Feb 2026 07:40:00 -0800)
 
 - **Jack Huston incarnera l’antagoniste principal dans la série Spider-Man Noir avec Nicolas Cage**: [Link](https://www.begeek.fr/jack-huston-incarnera-lantagoniste-principal-dans-la-serie-spider-man-noir-avec-nicolas-cage-428073)
