@@ -1,3 +1,43 @@
+### monaco – nantes (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
+
+- **El-Arabi préféré à Mohamed, Machado titulaire… la compo probable du FC Nantes à Monaco, selon L'Équipe**: [Link](https://tribunenantaise.fr/actus-fcnantes/el-arabi-prefere-a-mohamed-machado-titulaire-la-compo-probable-du-fc-nantes-a-monaco-selon-lequipe/)
+- **ASM – FCN : Le groupe monégasque**: [Link](https://asm-supporters.fr/actualites/65220-asm-fcn-le-groupe-monegasque-5)
+- **DIRECT. Monaco-Nantes: suivez le match de la 22e journée de Ligue 1 en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-monaco-nantes-suivez-le-match-de-la-22e-journee-de-ligue-1-en-live_LS-202602130815.html)
+
+
+### raja casablanca (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
+
+- **Le président du CODM a suivi le match depuis le terrain : La Ligue professionnelle va-t-elle le sanctionner**: [Link](https://m.elbotola.com/fr/article/2026-02-12-20-36-584.html)
+- **Le Raja de Casablanca s’incline face au Club de Meknès |**: [Link](https://fr.hibapress.com/news-233966.html)
+- **J11. Botola D1 : Zemamra s’impose face à Tanger**: [Link](https://lopinion.ma/fr/sport/newsroom/j11-botola-d1--zemamra-simpose-face-a-tanger-_a67456?articleId=ec52ebdb-1bd0-4a44-93d2-711640398014)
+
+
+### raja match (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
+
+- **Ethics Committee Suspends Raja's Radouane Tantawi for Two Matches; Club Plans Appeal**: [Link](https://m.elbotola.com/en/article/2026-02-12-17-59-672.html)
+
+
+### raja vs (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
+
+- **Khafifi Returns to Lead Raja Defense as Conte Prepares for Debut**: [Link](https://m.elbotola.com/en/article/2026-02-13-15-11-481.html)
+- **Bouslim to Officiate Raja vs. Ittihad Yaacoub El Mansour as Referees Announced for Botola Pro Matchday 12**: [Link](https://m.elbotola.com/en/article/2026-02-12-16-57-301.html)
+- **Raja Recovers Defender Khafifi for Union Yacoub El Mansour Clash**: [Link](https://m.elbotola.com/en/article/2026-02-11-16-54-185.html)
+
+
+### elche – osasuna (N/A, Fri, 13 Feb 2026 11:20:00 -0800)
+
+- **Elche - Osasuna: cómo ver en directo en TV y cómo seguir online la Liga EA Sports**: [Link](https://as.com/futbol/primera/elche-osasuna-como-ver-en-directo-en-tv-y-como-seguir-online-la-liga-ea-sports-f202602-n/)
+- **El fútbol, con especial foco en LaLiga, contado con todo detalle**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-vuelve-laliga-con-el-elche-osasuna/AVF07kue/)
+- **Alineaciones confirmadas en el Elche - Osasuna de LaLiga EA Sports**: [Link](https://www.sportaragon.com/articulo/futbol-aragon/alineaciones-confirmadas-elche-osasuna-laliga-ea-sports/20260213194754147439.html)
+
+
+### volendam – psv eindhoven (N/A, Fri, 13 Feb 2026 10:40:00 -0800)
+
+- **Preview: FC Volendam vs. PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/fc-volendam/eredivisie-title-race/preview/volendam-vs-psv-prediction-team-news-lineups_591808.html)
+- **How to watch today's FC Volendam vs PSV Eindhoven Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-fc-volendam-psv-eindhoven-13022026/bltf0264ffd92ab3472)
+- **Watch FC Volendam vs PSV Eindhoven Eredivisie: Live Stream and TV Details**: [Link](https://www.filmogaz.com/148074)
+
+
 ### dortmund – mainz 05 (N/A, Fri, 13 Feb 2026 11:10:00 -0800)
 
 - **BVB: So löst Niko Kovac die Abwehr-Not gegen Mainz 05**: [Link](https://www.bild.de/sport/fussball/bvb-so-loest-niko-kovac-die-abwehr-not-gegen-mainz-05-698f6235f4d0b8d94ca1bc78)
