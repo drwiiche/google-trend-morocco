@@ -1,3 +1,24 @@
+### safran (N/A, Fri, 13 Feb 2026 10:10:00 -0800)
+
+- **King Mohammed VI Chairs Launch of Safran Landing Gear Factory in Nouaceur**: [Link](https://www.moroccoworldnews.com/2026/02/278728/king-mohammed-vi-chairs-launch-of-safran-landing-gear-factory-in-nouaceur/)
+- **Safran to open landing gear plant in Morocco**: [Link](https://uk.finance.yahoo.com/news/safran-open-landing-gear-plant-175808611.html)
+- **Casablanca-Settat: HM the King Chairs Presentation, Launch Ceremony of Project to Build Safran Group’s Landing Gear Production Factory – Sahara News**: [Link](https://sahara-news.org/17611-casablanca-settat-hm-the-king-chairs-presentation-launch-ceremony-of-project-to-build-safran-groups-landing-gear-production-factory.html)
+
+
+### zabiri (N/A, Fri, 13 Feb 2026 10:10:00 -0800)
+
+- **Minor Injury Delays Zabiri’s Rennes Debut**: [Link](https://www.moroccoworldnews.com/2026/02/277802/minor-injury-delays-zabiris-rennes-debut/)
+- **Ligue 1: Will Yasser Zabiri make his debut for Stade Rennais?**: [Link](https://foot-africa.com/en/news/ligue-1-will-yasser-zabiri-make-his-debut-for-stade-rennais-1084271/)
+- **Morocco: Yassir Zibari will miss the next match against Lens!**: [Link](https://foot-africa.com/en/news/morocco-yassir-zibari-will-miss-the-next-match-against-lens-1076189/)
+
+
+### santa clara – benfica (N/A, Fri, 13 Feb 2026 09:50:00 -0800)
+
+- **Benfica `proibido` de perder pontos nos Açores**: [Link](https://www.rtp.pt/noticias/benfica/benfica-proibido-de-perder-pontos-nos-acores_d1718838)
+- **Os resultados, os golos, as crónicas e as melhores imagens da jornada**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-2-jornada-ao-vivo-santa-clara-benfica-em-acao-em-dia-de-psg-chelsa-e-ac-milan/EksJfCek/)
+- **Atenção, Mourinho: céu limpo, sol e relvado em boas condições nos Açores**: [Link](https://cnnportugal.iol.pt/benfica/mourinho/atencao-mourinho-ceu-limpo-sol-e-relvado-em-boas-condicoes-nos-acores)
+
+
 ### رين ضد بي اس جي (N/A, Fri, 13 Feb 2026 09:40:00 -0800)
 
 - **لويس إنريكي يعمل على تجهيز سان جيرمان لـ"أهم مرحلة في الموسم"**: [Link](https://www.hesport.com/%D9%84%D9%88%D9%8A%D8%B3-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B9%D9%85%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%AC%D9%87%D9%8A%D8%B2-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%84-426842.html)
