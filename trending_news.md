@@ -1,3 +1,9 @@
+### سانتا كلارا ضد بنفيكا (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
+
+- **1-2: فوز بنفيكا قبل استضافته ريال مدريد**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/latest-news/x-x-victoria-del-benfica-en-casa-antes-de-recibir-al-real-madrid-13-02-2026)
+- **بنفيكا يفوز على سانتا كلارا في الدوري البرتغالي**: [Link](https://gate.ahram.org.eg/News/5529931.aspx)
+
+
 ### pisa vs milan (N/A, Fri, 13 Feb 2026 13:30:00 -0800)
 
 - **GdS: ‘Allegri votes Nkunku’ – Frenchman to lead line in Pisa with aim to put pressure on Inter**: [Link](https://sempremilan.com/allegri-votes-nkunku-pisa-pressure-inter)
