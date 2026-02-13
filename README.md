@@ -1,3 +1,10 @@
+### al shabab – al-ahli saudi (N/A, Fri, 13 Feb 2026 05:30:00 -0800)
+
+- **Al-Ahly's Expected Lineup Against Al-Shabab**: [Link](https://www.ysscores.com/en/news/13910032/Al-Ahly's-Expected-Lineup-Against-Al-Shabab)
+- **Preview: Al Shabab vs Al Ahli Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-shabab-vs-al-ahli-preview-202602)
+- **Al-Shabab Vs Al-Ahli Live Score, Saudi Pro League: Royals Target Another Step Toward The Summit**: [Link](https://www.outlookindia.com/sports/football/al-shabab-vs-al-ahli-live-score-saudi-pro-league-2025-26-matchday-22-updates)
+
+
 ### وزارة الأوقاف والشؤون الإسلامية (N/A, Fri, 13 Feb 2026 04:50:00 -0800)
 
 - **بلاغ هام بشأن خطبة آخر جمعة قبل حلول رمضان بالمغرب**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A8%D9%84%D8%A7%D8%BA-%D9%87%D8%A7%D9%85-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A2%D8%AE%D8%B1-%D8%AC%D9%85%D8%B9%D8%A9-%D9%82%D8%A8%D9%84-%D8%AD%D9%84%D9%88%D9%84-%D8%B1%D9%85%D8%B6-985480.html)
