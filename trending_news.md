@@ -1,3 +1,10 @@
+### fcb (N/A, Thu, 12 Feb 2026 12:30:00 -0800)
+
+- **How BBDO is rethinking leadership and strategy with addition of FCB**: [Link](https://www.chicagobusiness.com/marketing-media/how-bbdo-rethinking-leadership-strategy-fcb-addition)
+- **Atletico Madrid 4-0 Barcelona - Atletico stun Barcelona in first leg of Copa del Rey**: [Link](https://www.bbc.com/sport/football/live/cr5lnnev808t)
+- **Simeone delighted for Alvarez’s goal in Atlético’s Barça beatdown**: [Link](https://www.intothecalderon.com/atletico-madrid-quotes/21509/diego-simeone-lauds-atletico-madrid-energy-after-barcelona-copa-del-rey-thrashing-griezmann-alvarez-lookman)
+
+
 ### tax filing deadline (N/A, Thu, 12 Feb 2026 18:10:00 -0800)
 
 - **US 2025 tax returns: What is the deadline to file taxes? What happens if you miss it during the 2026 tax filing season?**: [Link](https://www.livemint.com/money/personal-finance/us-2025-tax-returns-what-is-the-deadline-to-file-taxes-what-happens-if-you-miss-it-during-the-2026-tax-filing-season-11770861048855.html)
