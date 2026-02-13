@@ -1,3 +1,17 @@
+### spiderman noir (N/A, Fri, 13 Feb 2026 07:40:00 -0800)
+
+- **Jack Huston incarnera l’antagoniste principal dans la série Spider-Man Noir avec Nicolas Cage**: [Link](https://www.begeek.fr/jack-huston-incarnera-lantagoniste-principal-dans-la-serie-spider-man-noir-avec-nicolas-cage-428073)
+- **[Série] Nicolas Cage prêt à incarner Spider-Man Noir en chair et en os pour Amazon**: [Link](https://seriesdefilms.com/2026/02/12/serie-nicolas-cage-pret-a-incarner-spider-man-noir-en-chair-et-en-os-pour-amazon/)
+- **Spider-Noir : Amazon agrandit son casting et on sait qui va jouer l’Homme-Sable**: [Link](https://www.ecranlarge.com/series/news/spider-noir-amazon-casting-homme-sable-jack-huston)
+
+
+### الهلال ضد الاتفاق (N/A, Fri, 13 Feb 2026 07:20:00 -0800)
+
+- **حسم موقف ياسين بونو من موقعة الاتفاق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%85%D9%86-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82/bltd8648295f82c78ec)
+- **مباشر مباراة الهلال ضد الاتفاق في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/13/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A?update=8821886)
+- **من سيعوض غياب ثيو هيرنانديز أمام الاتفاق ؟**: [Link](https://hihi2.com/2026/02/13/p3648322.html)
+
+
 ### al-hilal – al-ettifaq (N/A, Fri, 13 Feb 2026 06:40:00 -0800)
 
 - **Al Hilal's Expected Lineup Against Al Ittifaq**: [Link](https://www.ysscores.com/en/news/13910016/Al-Hilal's-Expected-Lineup-Against-Al-Ittifaq)
