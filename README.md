@@ -1,3 +1,10 @@
+### barsa (N/A, Thu, 12 Feb 2026 13:40:00 -0800)
+
+- **“A veces está bien recibir una lección así”**: [Link](https://as.com/futbol/fc-barcelona/a-veces-esta-bien-recibir-una-leccion-asi-f202602-n/)
+- **El CTA justifica los seis minutos de revisión en el gol anulado a Cubarsí: "Falló el sistema de modelización"**: [Link](https://www.marca.com/futbol/barcelona/2026/02/12/revision-historica-var-siete-minutos-analizar-gol-cubarsi.html)
+- **Así explica el CTA cómo falló la tecnología del fuera de juego semiautomático**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260212/1002619761/asi-explica-cta-como-fallo-tecnologia-fuera-juego-semiautomatico.html)
+
+
 ### 2026 winter olympics men's figure skating (N/A, Thu, 12 Feb 2026 15:30:00 -0800)
 
 - **Jordan Stolz wins his first gold medal in the weirdest way possible**: [Link](https://www.washingtonpost.com/sports/olympics/2026/02/11/jordan-stolz-speed-skating-gold/)
