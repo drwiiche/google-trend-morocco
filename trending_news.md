@@ -1,3 +1,31 @@
+### عيد الحب (N/A, Fri, 13 Feb 2026 12:10:00 -0800)
+
+- **سوزان ممدوح تتألق بأغاني زمن الفن الجميل في احتفالات عيد الحب بالأوبرا**: [Link](https://twaslnews.twaslnews.com/391475/)
+- **حفل مدحت صالح في دار الأوبرا بمناسبة عيد الحب يشهد إقبالاً كبيراً**: [Link](https://mwlana.com/services/%D8%AD%D9%81%D9%84-%D9%85%D8%AF%D8%AD%D8%AA-%D8%B5%D8%A7%D9%84%D8%AD-%D9%81%D9%8A-%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A8%D8%B1%D8%A7-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B9%D9%8A/)
+- **(مدحت صالح ونادية مصطفى وعمر خيرت) يحييون (عيد الحب) في الأوبرا**: [Link](https://shahrayar-stars.com/2026/02/109729/)
+
+
+### hull city vs chelsea (N/A, Fri, 13 Feb 2026 11:50:00 -0800)
+
+- **Chelsea vs Hull Confirmed Lineups for February 13**: [Link](https://lastwordonsports.com/football/2026/02/13/chelsea-vs-hull-confirmed-lineups-february/)
+- **Report reveals how the Spanish Football Federation really feel about Marc Cucurella’s injury**: [Link](https://onefootball.com/en/news/report-reveals-how-the-spanish-football-federation-really-feel-about-marc-cucurellas-injury-42404038)
+- **Liam Rosenior makes Reece James decision as Chelsea wonderkids included vs Hull City**: [Link](https://www.football.london/chelsea-fc/news/liam-rosenior-makes-reece-james-33424059)
+
+
+### هال سيتي ضد تشيلسي (N/A, Fri, 13 Feb 2026 11:50:00 -0800)
+
+- **شاهد الآن البث المباشر لمباراة تشيلسي وهال سيتي في كأس الاتحاد الإنجليزي**: [Link](https://twaslnews.twaslnews.com/391290/)
+- **ليام روسينيور يعود إلى هال سيتي ويسترجع ذكريات الماضي**: [Link](https://www.ysscores.com/ar/news/13910215/%D9%84%D9%8A%D8%A7%D9%85-%D8%B1%D9%88%D8%B3%D9%8A%D9%86%D9%8A%D9%88%D8%B1-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%8A%D8%B3%D8%AA%D8%B1%D8%AC%D8%B9-%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A)
+- **سلوت يدعو ليفربول للحفاظ على سلسلة الانتصارات**: [Link](https://mwlana.com/sports/%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%AF%D8%B9%D9%88-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%84%D8%AD%D9%81%D8%A7%D8%B8-%D8%B9%D9%84%D9%89-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%A7%D9%84%D8%A7/)
+
+
+### الرجاء (N/A, Fri, 13 Feb 2026 11:50:00 -0800)
+
+- **عودة نجم الرجاء تطمئن فادلو قبل مواجهة يعقوب المنصور**: [Link](https://sport.lesiteinfo.com/elbotola/487924.html)
+- **الكشف عن حكام الجولة 12 من البطولة**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AD%D9%83%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-12-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-426819.html)
+- **مباريات حاسمة في الجولة 12 من البطولة الوطنية الاحترافية**: [Link](https://assabah.ma/901929.html)
+
+
 ### monaco – nantes (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
 
 - **El-Arabi préféré à Mohamed, Machado titulaire… la compo probable du FC Nantes à Monaco, selon L'Équipe**: [Link](https://tribunenantaise.fr/actus-fcnantes/el-arabi-prefere-a-mohamed-machado-titulaire-la-compo-probable-du-fc-nantes-a-monaco-selon-lequipe/)
