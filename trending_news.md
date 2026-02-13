@@ -1,3 +1,24 @@
+### pisa vs milan (N/A, Fri, 13 Feb 2026 13:30:00 -0800)
+
+- **GdS: ‘Allegri votes Nkunku’ – Frenchman to lead line in Pisa with aim to put pressure on Inter**: [Link](https://sempremilan.com/allegri-votes-nkunku-pisa-pressure-inter)
+- **🔴 Pisa v Milan 0-1: Loftus-Cheek strikes after quiet start 💥**: [Link](https://onefootball.com/en/news/pisa-v-milan-0-1-loftus-cheek-strikes-after-quiet-start-42405827)
+- **Allegri respect for Pisa, but warning for Milan ahead of Inter battle**: [Link](https://football-italia.net/allegri-respect-for-pisa-warning-milan-inter/)
+
+
+### ترتيب الدوري المغربي (N/A, Fri, 13 Feb 2026 13:00:00 -0800)
+
+- **بوناكا: الإصابة أثرت على مساري**: [Link](https://assabah.ma/902013.html)
+- **حسنية أكادير تطرح تذاكر مواجهة مكناس**: [Link](https://www.hesport.com/%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%83%D9%86%D8%A7%D8%B3-426666.html)
+- **الدورة 12: الحسنية لتأكيد صحوته والأوضي من أجل تصالح جماهيري**: [Link](https://sabahagadir.ma/439713.html)
+
+
+### hull city – chelsea (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
+
+- **Hull City vs Chelsea live online: score, stats, goals & updates | FA Cup 2025/26**: [Link](https://en.as.com/soccer/hull-city-vs-chelsea-live-online-score-stats-goals-updates-fa-cup-202526-f202602-n/)
+- **Report reveals how the Spanish Football Federation really feel about Marc Cucurella’s injury**: [Link](https://onefootball.com/en/news/report-reveals-how-the-spanish-football-federation-really-feel-about-marc-cucurellas-injury-42404038)
+- **Liam Rosenior makes Reece James decision as Chelsea wonderkids included vs Hull City**: [Link](https://www.football.london/chelsea-fc/news/liam-rosenior-makes-reece-james-33424059)
+
+
 ### feuille de soins (N/A, Fri, 13 Feb 2026 12:50:00 -0800)
 
 - **AMO : la Feuille de soins électronique pour mars 2026**: [Link](https://lematin.ma/nation/amo-la-feuille-de-soins-electronique-pour-mars-2026/329430)
