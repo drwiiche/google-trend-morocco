@@ -1,3 +1,10 @@
+### feuille de soins (N/A, Fri, 13 Feb 2026 12:50:00 -0800)
+
+- **AMO : la Feuille de soins électronique pour mars 2026**: [Link](https://lematin.ma/nation/amo-la-feuille-de-soins-electronique-pour-mars-2026/329430)
+- **La revue de presse de ce jeudi 12 février**: [Link](https://h24info.ma/maroc/kiosque/la-revue-de-presse-de-ce-jeudi-12-fevrier/)
+- **Feuille de soins électronique : une phase pilote et des médecins sceptiques**: [Link](https://lareleve.ma/182316/)
+
+
 ### عيد الحب (N/A, Fri, 13 Feb 2026 12:10:00 -0800)
 
 - **سوزان ممدوح تتألق بأغاني زمن الفن الجميل في احتفالات عيد الحب بالأوبرا**: [Link](https://twaslnews.twaslnews.com/391475/)
