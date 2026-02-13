@@ -1,3 +1,17 @@
+### al-hilal – al-ettifaq (N/A, Fri, 13 Feb 2026 06:40:00 -0800)
+
+- **Al Hilal's Expected Lineup Against Al Ittifaq**: [Link](https://www.ysscores.com/en/news/13910016/Al-Hilal's-Expected-Lineup-Against-Al-Ittifaq)
+- **Boost for Al Hilal as Morocco top goalkeeper Yassine Bounou returns for high-stake clash against Al Ettifaq**: [Link](https://africasoccer.com/boost-for-al-hilal-as-morocco-top-goalkeeper-yassine-bounou-returns-for-high-stake-clash-against-al-ettifaq/)
+- **How to watch today's Al Hilal vs Al-Ettifaq Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-al-hilal-al-ettifaq-13022026/bltae9e53ce19f37cf1)
+
+
+### الشباب ضد الأهلي (N/A, Fri, 13 Feb 2026 06:40:00 -0800)
+
+- **الكشف عن موقف ديميرال من موقعة الأهلي والشباب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%88%D9%82%D9%81-%D8%AF%D9%8A%D9%85%D9%8A%D8%B1%D8%A7%D9%84-%D9%85%D9%86-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/blte7c2988dc7828f0a)
+- **أخبار سارة في تدريبات الأهلي !**: [Link](https://hihi2.com/2026/02/12/p3646858.html)
+- **الشباب يصطدم بالأهلي في قمة الـ 22**: [Link](https://onefootball.com/pt-br/noticias/22-42403155)
+
+
 ### al shabab – al-ahli saudi (N/A, Fri, 13 Feb 2026 05:30:00 -0800)
 
 - **Al-Ahly's Expected Lineup Against Al-Shabab**: [Link](https://www.ysscores.com/en/news/13910032/Al-Ahly's-Expected-Lineup-Against-Al-Shabab)
