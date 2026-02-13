@@ -1,3 +1,10 @@
+### arsenal vs (N/A, Thu, 12 Feb 2026 13:10:00 -0800)
+
+- **Limited Number of Extra Tickets Made Available for Arsenal**: [Link](https://wiganathletic.com/news/2026/february/09/limited-number-of-extra-tickets-made-available-for-arsenal-/)
+- **Arsenal vs. Wigan Athletic preview, kick-off time, how to watch, and team news**: [Link](https://www.hitc.com/arsenal-vs-wigan-athletic-preview-kick-off-time-how-to-watch-and-team-news/)
+- **'Fear is your friend', insists Latics FA Cup hero ahead of Arsenal challenge**: [Link](https://www.wigantoday.net/sport/football/fear-is-your-friend-insists-wigan-athletic-fa-cup-hero-ahead-of-arsenal-challenge-5596015)
+
+
 ### fcb (N/A, Thu, 12 Feb 2026 12:30:00 -0800)
 
 - **How BBDO is rethinking leadership and strategy with addition of FCB**: [Link](https://www.chicagobusiness.com/marketing-media/how-bbdo-rethinking-leadership-strategy-fcb-addition)
