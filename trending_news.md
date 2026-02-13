@@ -1,3 +1,17 @@
+### valentine day (N/A, Fri, 13 Feb 2026 14:40:00 -0800)
+
+- **Weekend Storm Trying To Third Wheel Your Valentine's Day?**: [Link](https://weather.com/forecast/regional/video/valentines-day-weekend-storm-severe-rain)
+- **Houston is getting ready to keep the chocolates dry for Valentine’s Day evening!**: [Link](https://www.click2houston.com/weather/2026/02/13/houston-is-getting-ready-to-keep-the-chocolates-dry-for-valentines-day-evening/)
+- **Storms Expected For Valentine's Day**: [Link](https://kfdm.com/news/local/storms-expected-for-valentines-day)
+
+
+### demain nous appartient (N/A, Fri, 13 Feb 2026 14:30:00 -0800)
+
+- **Demain nous appartient : ce qui vous attend dans l'épisode 2141 du lundi 16 février 2026 [SPOILERS]**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000189006.html)
+- **Demain nous appartient (spoiler) : Fred kidnappé, Victoire en panique**: [Link](https://toutelatele.ouest-france.fr/demain-nous-appartient-spoiler-fred-kidnappe-victoire-en-panique-183510)
+- **Demain nous appartient en avance : le 16 février, un kidnappeur d ...**: [Link](https://www.telestar.fr/serie_tv/demain-nous-appartient-en-avance-le-16-fevrier-un-kidnappeur-debarque-a-sete-et-roxane-enchaine-les-rejets-face-a-sara-1754076)
+
+
 ### سانتا كلارا ضد بنفيكا (N/A, Fri, 13 Feb 2026 11:30:00 -0800)
 
 - **1-2: فوز بنفيكا قبل استضافته ريال مدريد**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/latest-news/x-x-victoria-del-benfica-en-casa-antes-de-recibir-al-real-madrid-13-02-2026)
