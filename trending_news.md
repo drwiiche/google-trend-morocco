@@ -1,3 +1,34 @@
+### dortmund – mainz 05 (N/A, Fri, 13 Feb 2026 11:10:00 -0800)
+
+- **BVB: So löst Niko Kovac die Abwehr-Not gegen Mainz 05**: [Link](https://www.bild.de/sport/fussball/bvb-so-loest-niko-kovac-die-abwehr-not-gegen-mainz-05-698f6235f4d0b8d94ca1bc78)
+- **Der Sporttalk mit Julian Beimel**: [Link](https://www.1730live.de/2026/02/13/der-sporttalk-mit-julian-beimel-12/)
+- **Wo läuft was? Der 22. Bundesliga-Spieltag live im TV**: [Link](https://www.fussballdaten.de/news/wo-laeuft-was-der-22-bundesliga-spieltag-live-im-tv-a05ab2eb/)
+
+
+### raja ca vs yacoub el mansour (N/A, Fri, 13 Feb 2026 11:00:00 -0800)
+
+- **Botola : le programme des mises à jour dévoilé, le clasico WAC-AS FAR prévu le 3 mars**: [Link](https://lematin.ma/sports/botola-le-clasico-wac-as-far-prevu-le-3-mars/329601)
+- **programme 13, 14 et 15e journées de la Botola Pro Inwi**: [Link](https://sport.le360.ma/internal-gallery/programme-13-14-et-15e-journees-de-la-botola-pro-inwi_FY2622Z6O5FTBPVQD7VU4QCH3M/)
+- **Khafifi de retour en défense pour le Raja, Konte prêt pour ses débuts**: [Link](https://m.elbotola.com/fr/article/2026-02-13-15-11-152.html)
+
+
+### al ittihad (N/A, Fri, 13 Feb 2026 11:00:00 -0800)
+
+- **Real Madrid midfielder targeted as big-name replacement in Saudi Arabia – report**: [Link](https://sports.yahoo.com/articles/real-madrid-midfielder-targeted-big-082000792.html)
+- **Saudi Pro League club want to sign 'quality' Real Madrid star - It's not Vinicius**: [Link](https://therealchamps.com/saudi-pro-league-club-want-real-madrid-star-camavinga-not-vinicius-transfer-news)
+- **Al-Ittihad eye up €60m Real Madrid star after losing N'Golo Kante to Fenerbahce**: [Link](https://www.goal.com/en/lists/al-ittihad-eur60m-real-madrid-star-losing-n-golo-kante-fenerbahce/blt9fc01232d91d9992)
+
+
+### juegos olímpicos de invierno 2026 patinaje artístico masculino (N/A, Fri, 13 Feb 2026 11:00:00 -0800)
+
+
+
+
+### match raja (N/A, Fri, 13 Feb 2026 10:40:00 -0800)
+
+- **Ethics Committee Suspends Raja's Radouane Tantawi for Two Matches; Club Plans Appeal**: [Link](https://m.elbotola.com/en/article/2026-02-12-17-59-672.html)
+
+
 ### safran (N/A, Fri, 13 Feb 2026 10:10:00 -0800)
 
 - **King Mohammed VI Chairs Launch of Safran Landing Gear Factory in Nouaceur**: [Link](https://www.moroccoworldnews.com/2026/02/278728/king-mohammed-vi-chairs-launch-of-safran-landing-gear-factory-in-nouaceur/)
