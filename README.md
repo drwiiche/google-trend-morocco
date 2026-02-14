@@ -1,3 +1,17 @@
+### ski alpin aux jeux olympiques d'hiver 2026 (N/A, Sat, 14 Feb 2026 15:20:00 -0800)
+
+- **Les chances de médailles et les Français engagés samedi 14 février aux JO 2026 de Milan-Cortina**: [Link](https://www.lequipe.fr/Jo-2026-milan-cortina/Tous-sports/Actualites/Les-chances-de-medailles-et-les-francais-engages-samedi-14-fevrier-aux-jo-2026-de-milan-cortina/1652094)
+- **Tableau des médailles JO 2026 : la France se rapproche du record, le classement en direct**: [Link](https://www.linternaute.com/sport/competitions/9785484-tableau-des-medailles-jo-2026-vers-un-record-le-classement-de-la-france/)
+- **Jeux olympiques d’hiver de Milan 2026 : la Norvège en tête du classement, la France en 4e place**: [Link](https://legrandcontinent.eu/fr/2026/02/14/suivez-le-tableau-des-medailles-des-jeux-olympiques-dhiver-de-milan-2026-vii/)
+
+
+### 2026 winter olympics alpine skiing (N/A, Sat, 14 Feb 2026 15:20:00 -0800)
+
+- **An Olympics of Firsts: Brazil and Kazakhstan Claim Surprise Golds**: [Link](https://www.nytimes.com/2026/02/14/world/olympics/brazil-kazakhstan-gold-medals-winter-olympics.html)
+- **Winter Olympics Photo of the Day: A Victory Leap**: [Link](https://www.theatlantic.com/photography/2026/02/winter-olympics-photo-day-victory-leap/686013/)
+- **From the sports desk: South America breaks 102-year drought**: [Link](https://www.nbcnews.com/sports/speed-skating/sports-newsletter-south-america-breaks-102-year-drought-rcna259085)
+
+
 ### rma vs (N/A, Sat, 14 Feb 2026 13:40:00 -0800)
 
 - **UC San Diego vs. UCLA (Feb 14, 2026) Live Score**: [Link](https://www.espn.com/college-baseball/game/_/gameId/401852667)
