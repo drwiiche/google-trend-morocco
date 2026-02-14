@@ -1,3 +1,17 @@
+### bein sport (N/A, Sat, 14 Feb 2026 12:50:00 -0800)
+
+- **Imported Article – 2026-02-14 14:55:53**: [Link](https://www.surfcoastnews.com.au/sport/10907/)
+- **Marseille, Lyon, Rennes and Le Havre call for urgent reform of Ligue 1 to tackle financial woes - reports**: [Link](https://tribuna.com/en/news/2026-02-14-marseille-lyon-rennes-and-le-havre-call-for-urgent-reform-of-ligue-1-to-tackle-financial/)
+- **Clubs, CVC and FFF jostle in LFP Media succession after Nicolas de Tavernost**: [Link](https://onefootball.com/en/news/clubs-cvc-and-fff-jostle-in-lfp-media-succession-after-nicolas-de-tavernost-42407874)
+
+
+### match real (N/A, Sat, 14 Feb 2026 12:50:00 -0800)
+
+- **Kylian Mbappé est diminué mais le Real n'envisage pas la vie sans son meilleur buteur : les Bleus peuvent-ils en pâtir ?**: [Link](https://www.lequipe.fr/Football/Article/Kylian-mbappe-est-diminue-mais-le-real-n-envisage-pas-la-vie-sans-son-meilleur-buteur-les-bleus-peuvent-ils-en-patir/1641948)
+- **Real Madrid - Real Sociedad : les compositions officielles**: [Link](https://www.footmercato.net/a3263119006150301881-real-madrid-real-sociedad-les-compositions-officielles)
+- **Kylian Mbappé, le verdict est confirmé**: [Link](https://www.sports.fr/football/real-madrid/kylian-mbappe-le-verdict-est-confirme-990853.html)
+
+
 ### paris fc – lens (N/A, Sat, 14 Feb 2026 12:30:00 -0800)
 
 - **Paris FC-Lens, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/paris-fc-lens-quelle-chaine-diffuse-le-match-989588.html)
