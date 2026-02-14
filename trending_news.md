@@ -1,3 +1,24 @@
+### espanyol – celta vigo (N/A, Sat, 14 Feb 2026 04:20:00 -0800)
+
+- **Preview: Espanyol vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-celta-vigo-prediction-team-news-lineups_591933.html)
+- **Fan Zone for game against RC Celta**: [Link](https://www.rcdespanyol.com/en/new/fan-zone-for-game-against-rc-celta/19781)
+- **PREVIEW | Espanyol vs Celta de Vigo - team news, lineups, predictions**: [Link](https://onefootball.com/fr/news/preview-espanyol-vs-celta-de-vigo-team-news-lineups-predictions-42398588)
+
+
+### groupe safran (N/A, Sat, 14 Feb 2026 04:00:00 -0800)
+
+- **Mohammed VI lance le projet d’une usine de trains d’atterrissage de Safran à Nouaceur**: [Link](https://ledesk.ma/2026/02/13/mohammed-vi-lance-a-nouaceur-le-projet-dune-usine-de-trains-datterrissage-de-safran/)
+- **Le Roi préside le lancement du projet de réalisation à Nouaceur d’une usine de production des trains d’atterrissage du groupe Safran**: [Link](https://fr.hespress.com/462419-le-roi-preside-le-lancement-du-projet-de-realisation-a-nouaceur-dune-usine-de-production-des-trains-datterrissage-du-groupe-safran.html)
+- **« Le Maroc est stratégique pour Safran », assure le patron du groupe**: [Link](https://h24info.ma/economie/le-maroc-est-strategique-pour-safran-assure-le-patron-du-groupe/)
+
+
+### saint valentin 2026 (N/A, Fri, 13 Feb 2026 23:50:00 -0800)
+
+- **Horoscope de la Saint-Valentin 2026 : amour, passion, séduction… découvrez ce que vous réservent les astres pour la fête des amoureux**: [Link](https://www.ladepeche.fr/2026/02/14/horoscope-de-la-saint-valentin-2026-amour-passion-seduction-decouvrez-ce-que-vous-reservent-les-astres-pour-la-fete-des-amoureux-13223749.php)
+- **Oubliez le dîner aux chandelles : pourquoi ce 14 février 2026 s'annonce comme la pire journée de l'année pour les couples**: [Link](https://www.bibamagazine.fr/lifestyle/astro/oubliez-le-diner-aux-chandelles-pourquoi-ce-14-fevrier-2026-sannonce-comme-la-pire-journee-de-lannee-pour-les-couples-504846.html)
+- **Astrologie. Votre horoscope signe par signe du 14 février**: [Link](https://www.larenaissancehebdo.fr/actualite-49257-astrologie-votre-horoscope-signe-par-signe-du-14-fevrier)
+
+
 ### burton – west ham (N/A, Sat, 14 Feb 2026 03:50:00 -0800)
 
 - **FA Cup LIVE: Build-up, team news, scores and live text updates from the fourth round of the FA Cup**: [Link](https://www.bbc.com/sport/football/live/c2d776j7pzrt)
