@@ -1,3 +1,10 @@
+### aston villa – newcastle (N/A, Sat, 14 Feb 2026 09:00:00 -0800)
+
+- **“Bonkers” – Chris Sutton reveals Newcastle shock and predicts Aston Villa clash**: [Link](https://www.nufcblog.co.uk/2026/02/14/bonkers-chris-sutton-reveals-newcastle-shock-and-predicts-aston-villa-clash/)
+- **Aston Villa vs Newcastle preview, predictions, betting tips and latest odds**: [Link](https://www.thesun.co.uk/sport/38203252/aston-villa-newcastle-preview-predictions-betting-tips-odds/)
+- **Tammy Abraham to start for Aston Villa vs Newcastle after regular Unai Emery talks**: [Link](https://www.astonvillanews.co.uk/2026/02/14/tammy-abraham-to-start-for-aston-villa-vs-newcastle-after-regular-unai-emery-talks/)
+
+
 ### burnley – mansfield (N/A, Sat, 14 Feb 2026 08:00:00 -0800)
 
 - **Ashley Barnes on his Burnley future, lack of game time, survival and Mansfield Town cup tie**: [Link](https://www.burnleyexpress.net/sport/football/ashley-barnes-on-his-burnley-future-lack-of-game-time-survival-and-mansfield-town-cup-tie-5598053)
