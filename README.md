@@ -1,3 +1,10 @@
+### burnley – mansfield (N/A, Sat, 14 Feb 2026 08:00:00 -0800)
+
+- **Ashley Barnes on his Burnley future, lack of game time, survival and Mansfield Town cup tie**: [Link](https://www.burnleyexpress.net/sport/football/ashley-barnes-on-his-burnley-future-lack-of-game-time-survival-and-mansfield-town-cup-tie-5598053)
+- **Football Bet Of The Day: James Milton has an 11-5 selection from the FA Cup**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-james-milton-has-an-11-5-selection-from-the-fa-cup-aa46I9x6SXka/)
+- **Where Are They Now? The last Mansfield Town side to play at Burnley**: [Link](https://www.chad.co.uk/sport/football/where-are-they-now-the-last-mansfield-town-side-to-play-at-burnley-5486617)
+
+
 ### marseille – strasbourg (N/A, Sat, 14 Feb 2026 07:40:00 -0800)
 
 - **OM : le groupe pour affronter Strasbourg sans Balerdi**: [Link](https://www.footmercato.net/a7318706351951630188-om-le-groupe-pour-affronter-strasbourg-sans-balerdi)
