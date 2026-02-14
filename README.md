@@ -1,3 +1,17 @@
+### lionel messi (N/A, Sat, 14 Feb 2026 00:30:00 -0800)
+
+- **Injury Update: Lionel Messi**: [Link](https://www.intermiamicf.com/news/injury-update-lionel-messi-x6635)
+- **Puerto Rico Champions Tour finale postponed to 26 February**: [Link](https://onefootball.com/en/news/puerto-rico-champions-tour-finale-postponed-to-26-february-42396043)
+- **You haven't seen it like that before! He sat on the stairs and recorded an apology video.**: [Link](https://en.haberler.com/you-haven-t-seen-it-like-that-before-he-sat-on-the-19561083/)
+
+
+### can 2025 maroc sénégal caf (N/A, Sat, 14 Feb 2026 00:20:00 -0800)
+
+- **CAN : Motsepe salue « la plus réussie de l’histoire » au Maroc et évoque une extension à 28 équipes**: [Link](https://ledesk.ma/encontinu/can-motsepe-salue-la-plus-reussie-de-lhistoire-au-maroc-et-evoque-une-extension-a-28-equipes/)
+- **REGARDEZ EN DIRECT : La conférence de presse du Président de la CAF, Dr Patrice Motsepe à 13h30 heure locale / 10h30 GMT**: [Link](https://www.cafonline.com/fr/infos/regardez-en-direct-la-conference-de-presse-du-president-de-la-caf-dr-patrice-motsepe-a-13h30-heure-locale-10h30-gmt/)
+- **CAN 2027 : Motsepe promet que la compétition aura bien lieu en temps et en heure en Afrique de l'Est**: [Link](https://www.france24.com/fr/sports/20260213-patrice-motsepe-promet-can-2027-temps-heure-afrique-est)
+
+
 ### طقس مراكش (N/A, Sat, 14 Feb 2026 00:00:00 -0800)
 
 
