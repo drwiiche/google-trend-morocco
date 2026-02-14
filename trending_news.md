@@ -1,3 +1,31 @@
+### مان سيتي ضد سالفورد سيتي (N/A, Sat, 14 Feb 2026 06:30:00 -0800)
+
+- **غوارديولا: "هذه الذكريات ستظل معي طوال حياتي"**: [Link](https://www.aljazeera.net/sport/2026/2/14/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7)
+- **جوارديولا يحذر نجوم مانشستر سيتي من موقعة الكأس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%86%D8%AC%D9%88%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%85%D9%86-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%94%D8%B3/blt885d50e1c7ee1931)
+- **كاس إنجلترا...السيتي يواجه سالفورد وآرسنال يستضيف ويغان : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D8%B3-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B3%D8%A7%D9%84%D9%81%D9%88%D8%B1%D8%AF-%D9%88%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D9%88%D9%8A%D8%BA%D8%A7%D9%86/15747)
+
+
+### getafe – villarreal (N/A, Sat, 14 Feb 2026 06:30:00 -0800)
+
+- **Pedraza, Oluwaseyi y Hugo López, novedades del Villarreal; Abqar, en el Getafe**: [Link](https://www.infobae.com/espana/agencias/2026/02/14/pedraza-oluwaseyi-y-hugo-lopez-novedades-del-villarreal-abqar-en-el-getafe/)
+- **Getafe-Villarreal: una ‘cita especial’ en el Coliseum**: [Link](https://villarrealcf.es/getafe-villarreal-una-cita-especial-en-el-coliseum/)
+- **Alineaciones confirmadas de Getafe y Villarreal en la jornada 24 de LALIGA EA Sports**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260214/alineaciones-confirmadas-getafe-villarreal-laliga-ea-sports-jornada-24_18_018349899.html)
+
+
+### côme – fiorentina (N/A, Sat, 14 Feb 2026 06:30:00 -0800)
+
+- **Fiorentina, Vanoli rimanda il tournover alla Conference e conferma il 4‑1‑4‑1**: [Link](https://onefootball.com/it/notizie/fiorentina-vanoli-rimanda-il-tournover-alla-conference-e-conferma-il-4141-42408609)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-como-fiorentina-0-1-questa-sera-il-big-match-tra-inter-e-juve/ADhcZEsm/)
+- **Marchetti: la scheda dell’arbitro di Como-Fiorentina**: [Link](https://www.violanews.com/esclusive/gli-opinionisti/matteo-marchetti-la-scheda-dellarbitro-di-fiorentina-napoli/)
+
+
+### manchester city – salford city (N/A, Sat, 14 Feb 2026 06:10:00 -0800)
+
+- **Man City XI vs Salford: Haaland injury and confirmed team news**: [Link](https://www.standard.co.uk/sport/football/man-city-xi-vs-salford-haaland-injury-latest-predicted-lineup-confirmed-team-news-fa-cup-2026-today-b1270885.html)
+- **Live Commentary - Burton Alb vs West Ham | 14.02.2026**: [Link](https://www.skysports.com/football/burton-alb-vs-west-ham/live/552095)
+- **Manchester City vs Salford LIVE Score Updates in FA Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/14/1250805-manchester-city-vs-salford-live-score-fa-cup.html)
+
+
 ### werder – bayern (N/A, Sat, 14 Feb 2026 05:50:00 -0800)
 
 - **Bundesliga-Konferenz live: Bayern zu Gast bei schwer angeschlagenen Bremern**: [Link](https://www.focus.de/sport/fussball/bundesliga-konferenz-live-bayern-zu-gast-bei-schwer-angeschlagenen-bremern_f1894875-5095-4633-9b09-da235b3922e4.html)
