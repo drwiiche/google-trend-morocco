@@ -1,3 +1,10 @@
+### cybersecurity tips (N/A, Fri, 13 Feb 2026 20:00:00 -0800)
+
+- **FG to launch cybersecurity framework to combat rising AI-driven attacks**: [Link](https://nairametrics.com/2026/02/10/fg-to-launch-cybersecurity-framework-to-combat-rising-ai-driven-attacks/)
+- **Nigeria Tops Africa in Cyberattacks, Facing 4,701 Weekly Threats per Organisation**: [Link](https://www.tv360nigeria.com/nigeria-tops-africa-in-cyberattacks-facing-4701-weekly-threats-per-organisation/)
+- **Nigeria Faces 4,701 Cyber Attacks Weekly as AI Risks Grow**: [Link](https://innovation-village.com/nigeria-faces-4701-cyber-attacks-weekly-as-ai-risks-grow/)
+
+
 ### عيد الحب 2026 (N/A, Fri, 13 Feb 2026 15:10:00 -0800)
 
 - **بمناسبة عيد الحب 2026.. رسائل نصية تكشف مدى إعجاب الرجل بك**: [Link](https://www.almasryalyoum.com/news/details/4197315)
