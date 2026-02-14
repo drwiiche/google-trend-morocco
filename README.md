@@ -1,3 +1,10 @@
+### فيردر بريمين ضد البايرن (N/A, Sat, 14 Feb 2026 07:20:00 -0800)
+
+- **بطولة ألمانيا: بايرن لمواصلة انتفاضته أمام بريمن الجريح**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260213-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%8A%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AD)
+- **الحلم سبورت : كومباني: المنافسة على الدوري جعلتني متوترا**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%88/)
+- **فيردر بريمن ضد البايرن.. التشكيل الرسمي للبافاري فى الدوري الألماني**: [Link](https://www.youm7.com/story/2026/2/14/%D9%81%D9%8A%D8%B1%D8%AF%D8%B1-%D8%A8%D8%B1%D9%8A%D9%85%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%84%D8%A8%D8%A7%D9%81%D8%A7%D8%B1%D9%8A-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/7304534)
+
+
 ### leverkusen – sankt pauli (N/A, Sat, 14 Feb 2026 06:50:00 -0800)
 
 - **Preview: Bayer Leverkusen vs St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/b-leverkusen-vs-st-pauli-prediction-team-news-lineups_591954.html)
