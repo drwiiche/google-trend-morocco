@@ -1,3 +1,17 @@
+### عيد الحب 2026 (N/A, Fri, 13 Feb 2026 15:10:00 -0800)
+
+- **بمناسبة عيد الحب 2026.. رسائل نصية تكشف مدى إعجاب الرجل بك**: [Link](https://www.almasryalyoum.com/news/details/4197315)
+- **رحلة الفالنتاين.. كيف تحول عيد الحب من أسطورة قديمة إلى تريند عالمي؟**: [Link](https://24.ae/article/946399/)
+- **عيد الحب 2026.. دليلك لاختيار هدية مناسبة لشريكة حياتك فى الفلانتين**: [Link](https://www.youm7.com/story/2026/2/12/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AD%D8%A8-2026-%D8%AF%D9%84%D9%8A%D9%84%D9%83-%D9%84%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D9%87%D8%AF%D9%8A%D8%A9-%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D9%84%D8%B4%D8%B1%D9%8A%D9%83%D8%A9-%D8%AD%D9%8A%D8%A7%D8%AA%D9%83-%D9%81%D9%89/7302236)
+
+
+### botola (N/A, Fri, 13 Feb 2026 13:30:00 -0800)
+
+- **Professional League: Raja Draws with Ittihad Yaacoub El Mansour (0-0), Climbs to Third**: [Link](https://m.elbotola.com/en/article/2026-02-13-21-01-926.html)
+- **Bouslim to Officiate Raja vs. Ittihad Yaacoub El Mansour as Referees Announced for Botola Pro Matchday 12**: [Link](https://m.elbotola.com/en/article/2026-02-12-16-57-301.html)
+- **Botola Pro 1: Key absences and returns in Raja Casablanca squad ahead of Yaacoub El Mansour clash**: [Link](https://africasoccer.com/botola-pro-1-key-absences-and-returns-in-raja-casablanca-squad-ahead-of-yaacoub-el-mansour-clash/)
+
+
 ### macky sall (N/A, Fri, 13 Feb 2026 17:20:00 -0800)
 
 - **Candidature de Macky Sall à l’ONU : au sommet de l’UA, le mystère perdure**: [Link](https://www.jeuneafrique.com/1765139/politique/candidature-de-macky-sall-a-lonu-au-sommet-de-lua-le-mystere-perdure/)
