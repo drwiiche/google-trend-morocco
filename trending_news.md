@@ -1,3 +1,10 @@
+### liverpool – brighton (N/A, Sat, 14 Feb 2026 11:20:00 -0800)
+
+- **Arne Slot Prepares for Challenging Brighton Showdown**: [Link](https://www.filmogaz.com/149281)
+- **Liverpool Line Up Confirmed with Szoboszlai Return and Chiesa Start**: [Link](https://anfieldindex.com/91242/liverpool-line-up-confirmed-with-szoboszlai-return-and-chiesa-start.html)
+- **“It means a lot” – Virgil van Dijk sends message to Liverpool fans ahead of Brighton clash**: [Link](https://onefootball.com/es/noticias/it-means-a-lot-virgil-van-dijk-sends-message-to-liverpool-fans-ahead-of-brighton-clash-42409310)
+
+
 ### real madrid – real sociedad (N/A, Sat, 14 Feb 2026 11:10:00 -0800)
 
 - **Alineación confirmada del Real Madrid ante la Real Sociedad en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-hoy-ante-la-real-sociedad-en-laliga-ea-sports-2526-f202602-n/)
