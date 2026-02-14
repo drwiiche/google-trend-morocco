@@ -1,3 +1,10 @@
+### inter vs juventus (N/A, Sat, 14 Feb 2026 11:40:00 -0800)
+
+- **Best team in Europe? Indomitable Inter Milan could run riot vs Juventus in Derby d'Italia**: [Link](https://www.transfermarkt.com/best-team-in-europe-indomitable-inter-milan-could-run-riot-vs-juventus-in-derby-ditalia/view/news/475443)
+- **Inter Milan Coach Cristian Chivu Refuses To Get Involved With Contemporaries’ Complaints: ‘Referees Are Not The Problem’**: [Link](https://sempreinter.com/2026/02/14/inter-chivu-coach-referees-serie-a-problem/)
+- **🚨 Calhanoglu, Barella, McKennie... XIs set for Inter v Juve**: [Link](https://onefootball.com/en/news/calhanoglu-barella-mckennie-xis-set-for-inter-v-juve-42410830)
+
+
 ### liverpool – brighton (N/A, Sat, 14 Feb 2026 11:20:00 -0800)
 
 - **Arne Slot Prepares for Challenging Brighton Showdown**: [Link](https://www.filmogaz.com/149281)
