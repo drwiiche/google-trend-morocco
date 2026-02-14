@@ -1,3 +1,17 @@
+### أستون فيلا ضد نيوكاسل يونايتد (N/A, Sat, 14 Feb 2026 10:20:00 -0800)
+
+- **إحصائيات نصف ساعة من مباراة نيوكاسل وأستون فيلا**: [Link](https://hihi2.com/2026/02/14/p3650220.html)
+- **الفرق والتشكيلات المؤكدة في الجولة الرابعة لكأس الاتحاد الإنجليزي 2025/26**: [Link](https://albalad.news/sport/%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A4%D9%83%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84/366611/)
+- **بث مباشر لمباراة أستون فيلا ونيوكاسل اليوم في كأس الاتحاد الإنجليزي**: [Link](https://m.alsaudinews.com/78096/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D8%A7/)
+
+
+### أولمبيك مارسيليا ضد ستراسبورغ (N/A, Sat, 14 Feb 2026 08:40:00 -0800)
+
+- **غويري يتألق بهدف وتمريرة حاسم في تعادل مارسيليا وستراسبورغ**: [Link](https://www.ennaharonline.com/%D8%BA%D9%88%D9%8A%D8%B1%D9%8A-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D8%A8%D9%87%D8%AF%D9%81-%D9%88%D8%AA%D9%85%D8%B1%D9%8A%D8%B1%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85-%D9%81%D9%8A_-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84_/)
+- **الموعد والقنوات الناقلة لمباراة أولمبيك مارسيليا ضد ستراسبورج في الدوري الفرنسي**: [Link](https://alamriyadi.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%B3%D8%AA%D8%B1%D8%A7%D8%B3%D8%A8%D9%88%D8%B1%D8%AC/)
+- **الدوري الفرنسي، ستراسبورج يخطف تعادلا دراماتيكيا أمام أولمبيك مارسيليا في اللحظات الأخيرة**: [Link](https://www.vetogate.com/5594874)
+
+
 ### al fateh vs al-nassr (N/A, Sat, 14 Feb 2026 09:50:00 -0800)
 
 - **How to watch today's Al Fateh FC vs Al Nassr FC Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-al-fateh-fc-v-al-nassr-fc-14022026/blt79e9318b864e8b28)
