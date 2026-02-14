@@ -1,3 +1,17 @@
+### macky sall (N/A, Fri, 13 Feb 2026 17:20:00 -0800)
+
+- **Candidature de Macky Sall à l’ONU : au sommet de l’UA, le mystère perdure**: [Link](https://www.jeuneafrique.com/1765139/politique/candidature-de-macky-sall-a-lonu-au-sommet-de-lua-le-mystere-perdure/)
+- **Diomaye soutient Macky à l’ONU? Révélations exclusives de SESAG "SONKO Bëss Bou Démé…Bentaleb Limou Wakh…" (Vidéo)**: [Link](https://senegal7.com/diomaye-soutient-macky-a-lonu-revelations-exclusives-de-sesag-sonko-bess-bou-demebentaleb-limou-wakh-video/)
+- **Bougar Diouf soutient la candidature de Macky Sall au secrétariat de l’ONU**: [Link](https://www.leral.net/Bougar-Diouf-soutient-la-candidature-de-Macky-Sall-au-secretariat-de-l-ONU_a394820.html)
+
+
+### 14 fevrier (N/A, Fri, 13 Feb 2026 15:50:00 -0800)
+
+- **Météo: les couleurs du ciel et les températures ce jeudi 12 février**: [Link](https://h24info.ma/maroc/meteo-les-couleurs-du-ciel-et-les-temperatures-ce-jeudi-12-fevrier/)
+- **Les prévisions météo pour ce mercredi 11 février - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/02/11/les-previsions-meteo-pour-ce-mercredi-11-fevrier-1626189/)
+- **Météo. Température en hausse sur le Sud-Est, l’Atlas, le sud du pays et près des côtes Nord et Centre ce jeudi 12 février**: [Link](https://fr.le360.ma/societe/meteo-temperature-en-hausse-sur-le-sud-est-latlas-le-sud-du-pays-et-pres-des-cotes-nord-et-centre-ce_EIRJNZVRK5ADNHTFNBVMOG5R6A/)
+
+
 ### 2026 winter olympics ski jumping men's large hill results (N/A, Fri, 13 Feb 2026 15:20:00 -0800)
 
 - **Winter Olympics 2026: Stefan Kraft seeks final remaining accolade for ski jumping superstardom**: [Link](https://www.olympics.com/en/milano-cortina-2026/news/ski-jumping-stefan-kraft-feature)
