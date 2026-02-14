@@ -1,3 +1,10 @@
+### marseille – strasbourg (N/A, Sat, 14 Feb 2026 07:40:00 -0800)
+
+- **OM : le groupe pour affronter Strasbourg sans Balerdi**: [Link](https://www.footmercato.net/a7318706351951630188-om-le-groupe-pour-affronter-strasbourg-sans-balerdi)
+- **Abardonado, coup dur annoncé avant OM-Strasbourg**: [Link](https://www.sports.fr/football/ligue-1/abardonado-coup-dur-annonce-avant-om-strasbourg-990567.html)
+- **PHOTO : la banderole cash des SW !**: [Link](https://www.maxifoot.fr/photo/la-banderole-cash-des-sw-foot-450256.htm)
+
+
 ### فيردر بريمين ضد البايرن (N/A, Sat, 14 Feb 2026 07:20:00 -0800)
 
 - **بطولة ألمانيا: بايرن لمواصلة انتفاضته أمام بريمن الجريح**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260213-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D9%8A%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AD)
