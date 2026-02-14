@@ -1,3 +1,10 @@
+### al nassr (N/A, Sat, 14 Feb 2026 10:10:00 -0800)
+
+- **Cristiano Ronaldo Returns to Al-Nassr After Protest**: [Link](https://www.moroccoworldnews.com/2026/02/278759/cristiano-ronaldo-returns-to-al-nassr-after-protest/)
+- **Turkmen government “depressed” as Ronaldo fails to appear for football clash in Ashgabat**: [Link](https://www.intellinews.com/turkmen-government-depressed-as-ronaldo-fails-to-appear-for-football-clash-in-ashgabat-425539/)
+- **Cristiano Ronaldo could be 'appeased' by transfer move involving Liverpool star**: [Link](https://www.liverpool.com/liverpool-fc-news/features/cristiano-ronaldo-transfer-liverpool-salah-33419887)
+
+
 ### أستون فيلا ضد نيوكاسل يونايتد (N/A, Sat, 14 Feb 2026 10:20:00 -0800)
 
 - **إحصائيات نصف ساعة من مباراة نيوكاسل وأستون فيلا**: [Link](https://hihi2.com/2026/02/14/p3650220.html)
