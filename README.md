@@ -1,3 +1,24 @@
+### real madrid – real sociedad (N/A, Sat, 14 Feb 2026 11:10:00 -0800)
+
+- **Alineación confirmada del Real Madrid ante la Real Sociedad en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-hoy-ante-la-real-sociedad-en-laliga-ea-sports-2526-f202602-n/)
+- **¿Derribará a otro gigante? Exentrenador de la Bundesliga agita la élite**: [Link](https://onefootball.com/es/noticias/derribara-a-otro-gigante-exentrenador-de-la-bundesliga-agita-la-elite-42408501)
+- **Real Madrid - Real Sociedad: Trent titular, Rüdiger vuelve y Mbappé al banquillo**: [Link](https://www.mundiario.com/articulo/deportes/real-madrid-real-sociedad-trent-titular-rudiger-vuelve-mbappe-banquillo/20260214193253374769.html)
+
+
+### الريال ضد ريال سوسيداد (N/A, Sat, 14 Feb 2026 11:10:00 -0800)
+
+- **رغم الآلام الشديدة.. أربيلوا يلعب بالنار مع مبابي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%A7%D9%93%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9--%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D9%84%D8%B9%D8%A8-%D8%A8%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%85%D8%B9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A/blt69625e85fc7f708e)
+- **أربيلوا يزف خبرا سعيدا إلى جمهور ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/2/13/%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A)
+- **ريال مدريد يتلقى صدمة جديدة بسبب مبابي قبل مواجهة ريال سوسيداد**: [Link](https://www.btolat.com/news/393135)
+
+
+### inter – juventus (N/A, Sat, 14 Feb 2026 11:00:00 -0800)
+
+- **🔥 Inter-Juve, XI a confronto⚔️ McKennie batte Barella! Lautaro-Yildiz...👀**: [Link](https://onefootball.com/es/noticias/inter-juve-xi-a-confronto-mckennie-batte-barella-lautaro-yildiz-42408619)
+- **Fumetti, marionette e scudetti di cartone: 5 coreografie che hanno fatto la storia di Inter-Juventus**: [Link](https://tribuna.com/it/blogs/fumetti-marionette-e-scudetti-di-cartone-5-coreografie-che-h/)
+- **Sondaggio di San Valentino: cena romantica o derby d'Italia?**: [Link](https://www.sanmarinortv.sm/news/attualita-c4/sondaggio-di-san-valentino-cena-romantica-o-derby-d-italia-a286510)
+
+
 ### al nassr (N/A, Sat, 14 Feb 2026 10:10:00 -0800)
 
 - **Cristiano Ronaldo Returns to Al-Nassr After Protest**: [Link](https://www.moroccoworldnews.com/2026/02/278759/cristiano-ronaldo-returns-to-al-nassr-after-protest/)
