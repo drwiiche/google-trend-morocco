@@ -1,3 +1,10 @@
+### werder – bayern (N/A, Sat, 14 Feb 2026 05:50:00 -0800)
+
+- **Bundesliga-Konferenz live: Bayern zu Gast bei schwer angeschlagenen Bremern**: [Link](https://www.focus.de/sport/fussball/bundesliga-konferenz-live-bayern-zu-gast-bei-schwer-angeschlagenen-bremern_f1894875-5095-4633-9b09-da235b3922e4.html)
+- **Ankündigung umgesetzt: Thioune nimmt vier Veränderungen vor**: [Link](https://www.werder.de/news/maenner/2025-2026/aufstellung-bayern-14022026)
+- **Punkte gegen den Abstieg oder für die Meisterschaft**: [Link](https://www.traunsteiner-tagblatt.de/startseite_artikel,-punkte-gegen-den-abstieg-oder-fuer-die-meisterschaft-_arid,981326.html)
+
+
 ### espanyol – celta vigo (N/A, Sat, 14 Feb 2026 04:20:00 -0800)
 
 - **Preview: Espanyol vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/espanyol/preview/espanyol-vs-celta-vigo-prediction-team-news-lineups_591933.html)
