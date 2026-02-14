@@ -1,3 +1,38 @@
+### paris fc – lens (N/A, Sat, 14 Feb 2026 12:30:00 -0800)
+
+- **Paris FC-Lens, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/ligue-1/paris-fc-lens-quelle-chaine-diffuse-le-match-989588.html)
+- **Lens : la tuile pour Samson Baidoo, victime d'une rechute**: [Link](https://www.foot-national.com/actus/lens-la-tuile-pour-samson-baidoo-victime-dune-rechute-938334)
+- **Paris FC - Lens : après l'OM, une invasion lensoise en vue à Jean-Bouin ?**: [Link](https://www.onzemondial.com/ligue-1/paris-fc-lens-apres-lom-une-invasion-lensoise-en-vue-a-jean-bouin-980237)
+
+
+### real vs (N/A, Sat, 14 Feb 2026 12:30:00 -0800)
+
+- **Diaz Benched Against Real Sociedad, Mbappé Also Starts from Bench**: [Link](https://m.elbotola.com/en/article/2026-02-14-19-25-320.html)
+- **Open Thread: 14 February 2026**: [Link](https://www.managingmadrid.com/general/103931/open-thread-14-february-2026)
+- **Kylian Mbappe Injury Setback Overshadows Big Name Returns for Real Madrid**: [Link](https://www.si.com/soccer/kylian-mbappe-injury-setback-overshadows-big-name-returns-real-madrid)
+
+
+### kooora tv (N/A, Sat, 14 Feb 2026 12:30:00 -0800)
+
+- **جامل لاعبي السنغال؟.. رئيس حكام الكاف يدهش الجميع بتصريح حول نهائي أمم إفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%A7%D9%85%D9%84-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%AD%D9%83%D8%A7%D9%85-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D8%AF%D9%87%D8%B4-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%AD%D9%88%D9%84-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltd7ea3f2860b20ad5)
+- **تجنبوا القضية الكبرى في النهائي.. رئيس لجنة الحكام في "الكاف" يفجّر مفاجأة صادمة**: [Link](https://www.eremnews.com/sports/hnrxrar)
+- **سفاري: خالفنا اللوائح في النهائي خوفاً من عدم اكتمال المباراة**: [Link](https://www.radiomars.ma/%D8%B3%D9%81%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B9%D8%AA%D8%B1%D9%81-%D8%AE%D8%A7%D9%84%D9%81%D9%86%D8%A7-%D8%A7%D9%84%D9%84%D9%88%D8%A7%D8%A6%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A/)
+
+
+### ليفربول ضد برايتون (N/A, Sat, 14 Feb 2026 12:00:00 -0800)
+
+- **فان دايك يكيل المديح لنجم برايتون: أنت أسطورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%8A%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%AD-%D9%84%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D8%A7%D9%94%D9%86%D8%AA-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9/blt081ad35a8a59a9b8)
+- **اللاعب الوحيد الذي سجل ٣ أهداف على ليفربول في الأنفيلد**: [Link](https://hihi2.com/2026/02/14/p3650295.html)
+- **مشاهدة مباراة ليفربول وبرايتون بث مباشر في كأس الاتحاد الإنجليزي**: [Link](https://twaslnews.twaslnews.com/415827/)
+
+
+### الإنتر ضد يوفنتوس (N/A, Sat, 14 Feb 2026 11:50:00 -0800)
+
+- **ديربي النار.. سومر ودي جريجوريو على حافة الانهيار**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D9%86%D8%A7%D8%B1--%D8%B3%D9%88%D9%85%D8%B1-%D9%88%D8%AF%D9%8A-%D8%AC%D8%B1%D9%8A%D8%AC%D9%88%D8%B1%D9%8A%D9%88-%D8%B9%D9%84%D9%89-%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1/blt9b2ebd574bda1fd3)
+- **بطولة إيطاليا: إنتر يصطدم بيوفنتوس المنتعش في مرحلة مواجهات العيار الثقيل**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260213-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A5%D9%86%D8%AA%D8%B1-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B9%D8%B4-%D9%81%D9%8A-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84)
+- **تشكيلة يوفنتوس الرسمية ضد إنتر ميلان في الدوري الإيطالي**: [Link](https://hihi2.com/2026/02/14/p3650315.html)
+
+
 ### inter vs juventus (N/A, Sat, 14 Feb 2026 11:40:00 -0800)
 
 - **Best team in Europe? Indomitable Inter Milan could run riot vs Juventus in Derby d'Italia**: [Link](https://www.transfermarkt.com/best-team-in-europe-indomitable-inter-milan-could-run-riot-vs-juventus-in-derby-ditalia/view/news/475443)
