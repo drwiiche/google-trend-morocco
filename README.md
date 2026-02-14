@@ -1,3 +1,38 @@
+### al fateh vs al-nassr (N/A, Sat, 14 Feb 2026 09:50:00 -0800)
+
+- **How to watch today's Al Fateh FC vs Al Nassr FC Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-al-fateh-fc-v-al-nassr-fc-14022026/blt79e9318b864e8b28)
+- **Is Cristiano Ronaldo playing today? Projected lineups for Al Fateh vs. Al Nassr in Saudi Pro League**: [Link](https://worldsoccertalk.com/news/is-cristiano-ronaldo-playing-today-projected-lineups-for-al-fateh-vs-al-nassr-in-saudi-pro-league/)
+- **Significant Absences in Al-Nassr Before the Al-Fateh Match in Roshan**: [Link](https://www.ysscores.com/en/news/13910663/Significant-Absences-in-Al-Nassr-Before-the-Al-Fateh-Match-in-Roshan)
+
+
+### الفتح ضد النصر (N/A, Sat, 14 Feb 2026 09:50:00 -0800)
+
+- **مباشر مباراة النصر ضد الفتح في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/14/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82)
+- **ما القنوات الناقلة لمباراة النصر والفتح في دوري روشن السعودي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt79e9318b864e8b28)
+- **موقف سيماكان من المشاركة مع النصر أمام الفتح**: [Link](https://hihi2.com/2026/02/13/p3648098.html)
+
+
+### lille – brest (N/A, Sat, 14 Feb 2026 09:50:00 -0800)
+
+- **Avant Lille et l'OM, Brest doit rectifier le tir face aux gros de Ligue 1 pour continuer à regarder plus haut**: [Link](https://www.lequipe.fr/Football/Actualites/Avant-lille-et-l-om-brest-doit-rectifier-le-tir-face-aux-gros-de-ligue-1-pour-continuer-a-regarder-plus-haut/1642016)
+- **LOSC : Aïssa Mandi a eu droit à « quelques jours de repos » post-CAN, pas encore pour Chancel Mbemba**: [Link](https://lepetitlillois.com/2026/02/14/losc-aissa-mandi-a-eu-droit-a-quelques-jours-de-repos-post-can-pas-encore-pour-chancel-mbemba/)
+- **LOSC – Stade Brestois : Diaoune titulaire, Bouaddi latéral ! – les compositions officielles**: [Link](https://le11hdf.fr/losc-stade-brestois-diaoune-compositions-officielles/)
+
+
+### trabzonspor – fenerbahçe (N/A, Sat, 14 Feb 2026 09:40:00 -0800)
+
+- **Sadettin Saran derbi öncesi Kerem Aktürkoğlu ile özel görüştü**: [Link](https://www.yenicaggazetesi.com/sadettin-saran-derbi-oncesi-kerem-akturkoglu-ile-ozel-gorustu-1001222h.htm)
+- **Süper Lig'de dev maç: Trabzonspor ve Fenerbahçe'nin 11'leri belli oldu**: [Link](https://www.babaocagi.com.tr/super-ligde-dev-mac-trabzonspor-ve-fenerbahcenin-11leri-belli-oldu)
+- **Anthony Nwakaeme: Bu maçın şehir için önemini biliyoruz!**: [Link](https://www.aspor.com.tr/trabzonspor/2026/02/14/anthony-nwakaeme-bu-macin-sehir-icin-onemini-biliyoruz)
+
+
+### lazio – atalanta (N/A, Sat, 14 Feb 2026 09:40:00 -0800)
+
+- **Lazio-Atalanta, Isaksen: “Oggi è fondamentale per la nostra stagione”**: [Link](https://onefootball.com/de/news/lazio-atalanta-isaksen-oggi-e-fondamentale-per-la-nostra-stagione-42410027)
+- **Serie A: Lazio-Atalanta 0-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/02/14/serie-a-lazio-atalanta-0-0-diretta-e-foto_7bd0c290-b10e-4ff8-93e5-b7673b7d6ae3.html)
+- **Fantacalcio, le formazioni ufficiali di Lazio-Atalanta: Tavares e Scamacca…**: [Link](https://www.fcinter1908.it/serie-a/fantacalcio-formazioni-ufficiali-lazio-atalanta-tavares-scamacca/)
+
+
 ### aston villa – newcastle (N/A, Sat, 14 Feb 2026 09:00:00 -0800)
 
 - **“Bonkers” – Chris Sutton reveals Newcastle shock and predicts Aston Villa clash**: [Link](https://www.nufcblog.co.uk/2026/02/14/bonkers-chris-sutton-reveals-newcastle-shock-and-predicts-aston-villa-clash/)
