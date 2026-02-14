@@ -1,3 +1,10 @@
+### rma vs (N/A, Sat, 14 Feb 2026 13:40:00 -0800)
+
+- **UC San Diego vs. UCLA (Feb 14, 2026) Live Score**: [Link](https://www.espn.com/college-baseball/game/_/gameId/401852667)
+- **College Basketball Best Bets: Top NCAAM Betting Picks in The CBB Board Betting Group for Friday 2/13/26**: [Link](https://dknetwork.draftkings.com/2026/02/13/college-basketball-best-bets-top-ncaam-betting-picks-in-the-cbb-board-betting-group-for-friday-2-13-26-transcript/)
+- **Kentucky 75-55 Texas A&M (Feb 12, 2026) Game Recap**: [Link](https://www.espn.com/womens-college-basketball/recap/_/gameId/401807619)
+
+
 ### نهضة بركان (N/A, Sat, 14 Feb 2026 13:00:00 -0800)
 
 - **3 سيناريوهات تقود نهضة بركان إلى ربع نهائي أبطال أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/3-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D8%AA%D9%82%D9%88%D8%AF-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt313a760fffb3ed00)
