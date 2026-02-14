@@ -1,3 +1,10 @@
+### résultats du grand tremplin hommes de saut à ski aux jeux olympiques d'hiver 2026 (N/A, Fri, 13 Feb 2026 15:20:00 -0800)
+
+- **Après son top 5 sur le petit tremplin, Valentin Foubert peut-il créer la surprise en grand tremplin ?**: [Link](https://www.ledauphine.com/jeux-olympiques/2026/02/14/apres-son-top-5-sur-le-petit-tremplin-valentin-foubert-peut-il-creer-la-surprise-en-grand-tremplin)
+- **JO : Valentin Foubert, "artiste" et perfectionniste de la voltige**: [Link](https://www.france24.com/fr/info-en-continu/20260209-jo-valentin-foubert-artiste-et-perfectionniste-de-la-voltige)
+- **JO 2026 – La journée du lundi 9 février en direct**: [Link](https://www.sport.fr/sp-dhiver/jo-2026-la-journee-du-lundi-9-fevrier-en-direct-1418645.shtm)
+
+
 ### cybersecurity tips (N/A, Fri, 13 Feb 2026 20:00:00 -0800)
 
 - **FG to launch cybersecurity framework to combat rising AI-driven attacks**: [Link](https://nairametrics.com/2026/02/10/fg-to-launch-cybersecurity-framework-to-combat-rising-ai-driven-attacks/)
