@@ -1,3 +1,10 @@
+### leverkusen – sankt pauli (N/A, Sat, 14 Feb 2026 06:50:00 -0800)
+
+- **Preview: Bayer Leverkusen vs St Pauli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bayer-leverkusen/preview/b-leverkusen-vs-st-pauli-prediction-team-news-lineups_591954.html)
+- **Leverkusen cannot always play 'champagne football', says Hjulmand**: [Link](https://www.beinsports.com/en-us/soccer/bundesliga/articles/leverkusen-cannot-always-play-champagne-football-says-hjulmand-2026-02-13)
+- **How to Watch Bayer Leverkusen vs. FC St. Pauli: Live Stream, TV Channel, Start Time | 2/14/2026**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/02/10/how-to-watch-bayer-leverkusen-vs-fc-st-pauli-live-stream-tv-2-14-2026/88606810007/)
+
+
 ### مان سيتي ضد سالفورد سيتي (N/A, Sat, 14 Feb 2026 06:30:00 -0800)
 
 - **غوارديولا: "هذه الذكريات ستظل معي طوال حياتي"**: [Link](https://www.aljazeera.net/sport/2026/2/14/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7)
