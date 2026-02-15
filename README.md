@@ -1,3 +1,38 @@
+### نابولي ضد روما (N/A, Sun, 15 Feb 2026 12:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة نابولي وروما في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4bb4ec7656bd1696)
+- **تشكيلة روما الرسمية ضد نابولي في الدوري الإيطالي**: [Link](https://hihi2.com/2026/02/15/p3652254.html)
+- **غاسبيريني: أُفضّل دائمًا اللعب في بطولات الكأس**: [Link](https://www.elsport.com/news/show/811945/%D8%BA%D8%A7%D8%B3%D8%A8%D9%8A%D8%B1%D9%8A%D9%86%D9%8A-%D8%A3%D9%8F%D9%81%D8%B6%D9%91%D9%84-%D8%AF%D8%A7%D8%A6%D9%85%D9%8B%D8%A7-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A3%D8%B3)
+
+
+### napoli vs roma (N/A, Sun, 15 Feb 2026 12:10:00 -0800)
+
+- **Napoli al minimo storico in panchina: contro la Roma solo 6 giocatori di movimento**: [Link](https://www.goal.com/it/liste/napoli-roma-panchina-giocatori/blt02a37ac4d876149f)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-napoli-roma-0-1-gol-di-malen/ADhcZEsm/)
+- **Parla il papà della bimba di 18 mesi che un 37enne senza fissa dimora ha tentato di rapire in un supermercato 📹 Intervista Alfredo Ranavolo/Tg1**: [Link](https://www.facebook.com/RaiNews/posts/parla-il-pap%C3%A0-della-bimba-di-18-mesi-che-un-37enne-senza-fissa-dimora-ha-tentato/1391362983030218/)
+
+
+### mallorca vs real betis (N/A, Sun, 15 Feb 2026 12:10:00 -0800)
+
+- **Where to Watch RCD Mallorca vs. Real Betis: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/14/where-to-watch-rcd-mallorca-vs-real-betis-tv-channel-start-time-and-live-stream-2/)
+- **R.C.D. Mallorca - Real Betis: Warm-up, lineups and a verdiblanco tide in Palma**: [Link](https://www.filmogaz.com/151668)
+- **Mallorca vs Real Betis Prediction: Match Preview and Analysis | La Liga 15-02-2026**: [Link](https://betmines.com/match-preview/mallorca-vs-real-betis-prediction-match-preview-and-analysis-la-liga-15-02-2026)
+
+
+### medhi benatia (N/A, Sun, 15 Feb 2026 11:10:00 -0800)
+
+- **Belhanda Criticizes De Zerbi: 'He Left Marseille Mid-Season Without Pressure'**: [Link](https://m.elbotola.com/en/article/2026-02-14-17-19-202.html)
+- **OM: Medhi Benatia resigns (official)**: [Link](https://foot-africa.com/en/news/om-medhi-benatia-resigns-official-1087172/)
+- **L'Équipe: Habib Beye favorite to take charge of OM**: [Link](https://onefootball.com/en/news/lequipe-habib-beye-favorite-to-take-charge-of-om-42414908)
+
+
+### océane michelon (N/A, Sun, 15 Feb 2026 11:10:00 -0800)
+
+- **Océane Michelon, l'éternelle insatisfaite comblée par sa médaille d'argent aux JO de Milan-Cortina : « J'avais à coeur de faire ce que je sais faire »**: [Link](https://www.lequipe.fr/Jo-2026-milan-cortina/Biathlon/Article/Oceane-michelon-l-eternelle-insatisfaite-comblee-par-sa-medaille-d-argent-aux-jo-de-milan-cortina-j-avais-a-coeur-de-faire-ce-que-je-sais-faire/1652280)
+- **JO 2026: pas de médaille en saut à ski, le biathlon répond encore présent... Revivez la journée du samedi 14 février 2026**: [Link](https://rmcsport.bfmtv.com/jeux-olympiques/direct-jo-2026-biathlon-ski-alpin-suivez-les-epreuves-des-jeux-olympiques-d-hiver-de-ce-samedi-14-fevrier_LN-202602140053.html)
+- **JO 2026 : gendarme, carabine trafiquée, opération du cœur… qui est Océane Michelon, la biathlète en argent au sprint**: [Link](https://www.lefigaro.fr/sports/jeux-olympiques/jo-2026-gendarme-carabine-trafiquee-operation-du-coeur-qui-est-oceane-michelon-la-biathlete-en-argent-au-sprint-20260214)
+
+
 ### متى رمضان 2026 (N/A, Sun, 15 Feb 2026 11:50:00 -0800)
 
 - **رسميا.. عُمان أول دولة عربية تحدد موعد بداية شهر رمضان**: [Link](https://www.skynewsarabia.com/varieties/1852423-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AF%D9%88%D9%84%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
