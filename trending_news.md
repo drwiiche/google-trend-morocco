@@ -1,3 +1,10 @@
+### napoli (N/A, Sun, 15 Feb 2026 12:20:00 -0800)
+
+- **🔴 Napoli-Roma | ✅ UFFICIALI: Soulé in panchina! Milinkovic e Gutierrez 👀**: [Link](https://onefootball.com/id/berita/napoli-roma-ufficiali-soule-in-panchina-milinkovic-e-gutierrez-42415533)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-napoli-roma-1-2-svilar-ferma-alisson-santos/ADhcZEsm/)
+- **Il pullman del Napoli è arrivato al Maradona! L’accoglienza dei tifosi azzurri VIDEO**: [Link](https://www.calcionapoli1926.it/video/il-pullman-del-napoli-e-arrivato-al-maradona-laccoglienza-dei-tifosi-azzurri-video/)
+
+
 ### مايوركا ضد ريال بتيس (N/A, Sun, 15 Feb 2026 11:40:00 -0800)
 
 - **ريال بيتيس يتفوق على مايوركا بهدفين في الشوط الأول**: [Link](https://iq.arabsvoice.net/106407/)
