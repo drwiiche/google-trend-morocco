@@ -1,3 +1,31 @@
+### gta 6 (N/A, Sun, 15 Feb 2026 04:30:00 -0800)
+
+- **GTA 6 Could Mark The Return of These 6 Minigames**: [Link](https://www.gamingbible.com/list/features/gta-6-return-of-these-minigames-534001-20260213)
+- **GTA6 Release Date Set — But Is the Industry Ready?**: [Link](https://creativelearningguild.co.uk/news/gta6-release-date-set-but-is-the-industry-ready/)
+- **Here's Which Locations We'll Visit In GTA 6**: [Link](https://gamerant.com/grand-theft-auto-6-every-confirmed-major-city-location/)
+
+
+### real oviedo – ath. bilbao (N/A, Sun, 15 Feb 2026 04:20:00 -0800)
+
+- **Previa del Real Oviedo-Athletic: otra final para seguir jugando finales**: [Link](https://www.lavozdeasturias.es/noticia/azulcarbayon/2026/02/14/previa-real-oviedo-athletic/00031771103816548326706.htm)
+- **El viaje de una quincena de miembros de Herri Norte provoca que el Oviedo-Athletic sea de 'Alto riesgo'**: [Link](https://www.elcorreo.com/athletic/viaje-quincena-miembros-herri-norte-provoca-oviedoathletic-20260215112017-nt.html)
+- **El Athletic se encomienda a Sancet y el Oviedo, al Carlos Tartiere**: [Link](https://as.com/futbol/primera/el-athletic-se-encomienda-a-sancet-y-el-oviedo-al-carlos-tartiere-f202602-n/)
+
+
+### match wydad (N/A, Sun, 15 Feb 2026 04:20:00 -0800)
+
+- **Coupe de la CAF : le WAC et l'OCS décidés à finir leaders de leurs groupes**: [Link](https://lematin.ma/sports/coupe-de-la-caf-le-wac-et-locs-decides-a-finir-leaders-de-leurs-groupes/329797)
+- **Coupe de la CAF: où et quand suivre Wydad-Azam FC**: [Link](https://sport.le360.ma/football/coupe-caf/coupe-de-la-caf-ou-et-quand-suivre-wydad-azam-fc_TIQGOW2HM5AIHN6MO4BGTR7XSI/)
+- **Wydad-Azzam FC (Coupe de la CAF) : quelle heure, quelle chaînes**: [Link](https://medias24.com/2026/02/13/wydad-azzam-fc-coupe-de-la-caf-quelle-heure-quelle-chaines-1627887/)
+
+
+### mikhail shaidorov (N/A, Sun, 15 Feb 2026 03:20:00 -0800)
+
+- **Ilia Malinin hot mic says Beijing Olympics experience could have prevented 2026 disaster**: [Link](https://www.usatoday.com/story/sports/olympics/2026/02/13/ilia-malinin-hot-mic-interview-olympics-beijing-2022/88668398007/)
+- **Gasps and disbelief in US as 'Quad God's' Olympic dream crumbles**: [Link](https://www.bbc.com/news/videos/c93wgxnk351o)
+- **Ilia Malinin won gold and left Novak Djokovic in awe. Now, the US star aims for more at the Olympics**: [Link](https://apnews.com/article/winter-olympics-ilia-malinin-figure-skating-4494f8a74c786435f175d5617d63707d)
+
+
 ### birmingham – leeds united (N/A, Sun, 15 Feb 2026 03:40:00 -0800)
 
 - **FA Cup LIVE: Build-up, team news, scores and live text updates from the fourth round of the FA Cup**: [Link](https://www.bbc.com/sport/football/live/cdree8627net)
