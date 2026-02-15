@@ -1,3 +1,10 @@
+### birmingham – leeds united (N/A, Sun, 15 Feb 2026 03:40:00 -0800)
+
+- **FA Cup LIVE: Build-up, team news, scores and live text updates from the fourth round of the FA Cup**: [Link](https://www.bbc.com/sport/football/live/cdree8627net)
+- **How to watch Birmingham vs Leeds - TV channel, live stream, radio coverage**: [Link](https://www.mirror.co.uk/sport/football/news/birmingham-leeds-fa-cup-stream-36718251)
+- **Information for supporters travelling to St. Andrew's Stadium**: [Link](https://onefootball.com/pt-br/noticias/information-for-supporters-travelling-to-st-andrews-stadium-42408118)
+
+
 ### serie a (N/A, Sat, 14 Feb 2026 14:10:00 -0800)
 
 - **Udinese, ripartire è un must: contro il Sassuolo è l’occasione del riscatto**: [Link](https://www.messaggeroveneto.it/speciali/udinese-calcio/udinese-sassuolo-probabili-formazioni-serie-a-eht5r1t0)
