@@ -1,3 +1,10 @@
+### ليفانتي ضد فالنسيا (N/A, Sun, 15 Feb 2026 09:50:00 -0800)
+
+- **جدول مباريات اليوم الأحد 15 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-15-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt5611553b859e1d86)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/947121/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF)
+- **مواعيد مباريات اليوم الأحد 15-2-2026 والقنوات الناقلة.. الأهلي ضد الجيش الملكي ومواجهات قوية في الدوري الإسباني**: [Link](https://www.btolat.com/news/393400)
+
+
 ### giorgia meloni (N/A, Sun, 15 Feb 2026 09:30:00 -0800)
 
 - **Caivano, minacce a Meloni e don Patriciello? Giuseppe Conte attacca il governo | Libero Quotidiano.it**: [Link](https://www.liberoquotidiano.it/news/politica/46359815/caivano-minacce-meloni-don-patriciello-giuseppe-conte-attacca-governo/)
