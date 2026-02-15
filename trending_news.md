@@ -1,3 +1,10 @@
+### naples – roma (N/A, Sun, 15 Feb 2026 11:10:00 -0800)
+
+- **🔴 Napoli v Roma: Soulé benched, Milinkovic and Gutierrez start 👀**: [Link](https://sports.yahoo.com/articles/napoli-v-roma-soul-benched-184400941.html)
+- **Six Points and No Mercy: Roma’s Season on Trial in Naples**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/39714/six-points-and-no-mercy-romas-season-on-trial-in-naples)
+- **Gasperini's pre-Napoli media conference**: [Link](https://www.asroma.com/en/news/74878/gasperinis-pre-napoli-media-conference)
+
+
 ### codm vs husa (N/A, Sun, 15 Feb 2026 10:00:00 -0800)
 
 - **بوناكا: الإصابة أثرت على مساري**: [Link](https://assabah.ma/902013.html)
