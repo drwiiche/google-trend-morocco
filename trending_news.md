@@ -1,3 +1,31 @@
+### رايو فاليكانو ضد أتلتيكو مدريد (N/A, Sun, 15 Feb 2026 06:40:00 -0800)
+
+- **أرقام مهمة قبل مباراة أتلتيكو مدريد ورايو فاليكانو**: [Link](https://hihi2.com/2026/02/15/p3651157.html)
+- **اختبار خارج الديار لأتلتيكو مدريد أمام جاره رايو فاليكانو المهدد بالهبوط (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/02/rayovallecano-atleticomadrid-j24-laliga-pronostic.html)
+- **أتلتيكو مدريد يسعى للفوز على رايو فاليكانو في الليجا**: [Link](https://iq.arabsvoice.net/105005/)
+
+
+### rayo – atlético madrid (N/A, Sun, 15 Feb 2026 06:30:00 -0800)
+
+- **Comunicado Oficial: Rayo Vallecano - Atlético de Madrid**: [Link](https://www.rayovallecano.es/noticias/comunicado-oficial-rayo-vallecano-atletico-de-madrid)
+- **Necesidad, exigencia y rotaciones en Butarque**: [Link](https://es-us.noticias.yahoo.com/deportes/necesidad-exigencia-rotaciones-butarque-125216834.html)
+- **De aquella hierba, este barro**: [Link](https://as.com/futbol/primera/de-aquella-hierba-este-barro-f202602-n/)
+
+
+### wydad vs azam (N/A, Sun, 15 Feb 2026 06:30:00 -0800)
+
+- **Benhachem Finalizes Squad Preparations Ahead of Azam Tanzania Clash**: [Link](https://m.elbotola.com/en/article/2026-02-14-12-00-883.html)
+- **Confederation Cup: what time and on which channel to watch Wydad AC vs Azam FC?**: [Link](https://foot-africa.com/en/news/confederation-cup-what-time-and-on-which-channel-to-watch-wydad-ac-vs-azam-fc-1085729/)
+- **CAF Confed Cup: Maniema Union a point shy of the exploit**: [Link](https://sportnewsafrica.com/articles/caf-confed-cup-maniema-union-a-point-shy-of-the-exploit)
+
+
+### r1c5 (N/A, Sun, 15 Feb 2026 06:20:00 -0800)
+
+- **Manhattan Emgé collectionne les Groupes 3 cagnois**: [Link](https://www.letrot.com/actualites/manhattan-emge-collectionne-les-groupes-3-cagnois-26688)
+- **Le conseil de jeu de Lucas Quentin pour le Pick 5 de ce jeudi 12 février à Cagnes-sur-Mer (R1C5)**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/le-conseil-de-jeu-de-lucas-quentin-pour-le-pick-5-de-ce-jeudi-12-fevrier-a-cagnes-sur-mer-r1c5)
+- **Jeudi à Cagnes-sur-Mer - Favori/Outsider : Qui jouer dans le Prix Henri Callier (Gr. 3) ?**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/jeudi-a-cagnes-sur-mer-favori-outsider-qui-jouer-dans-le-prix-henri-callier-gr-3)
+
+
 ### القنوات الناقلة لمباراة الوداد اليوم (N/A, Sun, 15 Feb 2026 06:10:00 -0800)
 
 - **"الكاف" تكشف برنامج دور المجموعات.. 4 أندية مغربية تدخل السباق الإفريقي بقوة**: [Link](https://ar.telquel.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D9%87%D9%8A-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D8%A8%D8%A7%D8%B1/)
