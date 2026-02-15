@@ -1,3 +1,10 @@
+### lyon – nice (N/A, Sun, 15 Feb 2026 11:30:00 -0800)
+
+- **L'arme secrète de l'OL terrifie Claude Puel**: [Link](https://www.foot01.com/ol/larme-secrete-de-lol-terrifie-claude-puel)
+- **Tout savoir sur Lyon - Nice (J22)**: [Link](https://www.ogcnice.com/fr/article/129940/tout-savoir-sur-lyon-nice-j22.html)
+- **Ligue 1. Le clash du dimanche soir : Noah Nartey x Mohamed-Ali Cho**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-le-clash-du-dimanche-soir-noah-nartey-x-mohamed-ali-cho/8GlpzqEL/)
+
+
 ### naples – roma (N/A, Sun, 15 Feb 2026 11:10:00 -0800)
 
 - **🔴 Napoli v Roma: Soulé benched, Milinkovic and Gutierrez start 👀**: [Link](https://sports.yahoo.com/articles/napoli-v-roma-soul-benched-184400941.html)
