@@ -1,3 +1,24 @@
+### شهر رمضان بالمغرب (N/A, Sun, 15 Feb 2026 10:20:00 -0800)
+
+- **رسميا.. عُمان أول دولة عربية تحدد موعد بداية شهر رمضان**: [Link](https://www.skynewsarabia.com/varieties/1852423-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AF%D9%88%D9%84%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **تركيا وعمان وسنغافورة وقطر يعلنون موعد أول أيام شهر رمضان 2026**: [Link](https://www.youm7.com/story/2026/2/13/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D9%88%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86%D9%88%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86/7303890)
+- **خبير فلكي: غرة شهر رمضان الأبرك توافق يوم الخميس المقبل في المغرب**: [Link](https://www.hespress.com/%D8%AE%D8%A8%D9%8A%D8%B1-%D9%81%D9%84%D9%83%D9%8A-%D8%BA%D8%B1%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D8%A8%D8%B1%D9%83-%D8%AA%D9%88%D8%A7%D9%81%D9%82-%D9%8A%D9%88-1701791.html)
+
+
+### kylian mbappé real madrid (N/A, Sun, 15 Feb 2026 10:20:00 -0800)
+
+- **Real Madrid 4-1 Real Sociedad: Trent Alexander-Arnold get assist on return**: [Link](https://www.bbc.com/sport/football/live/c5yvj2qn54jt)
+- **Real Madrid’s Arbeloa heralds Vini Jr as “one of the best in the world”**: [Link](https://onefootball.com/de/news/real-madrids-arbeloa-heralds-vini-jr-as-one-of-the-best-in-the-world-42412114)
+- **No VAR intervention on second penalty following Vinícius’ dive**: [Link](https://www.mundodeportivo.com/us/en/20260215/740435/var-intervention-on-second-penalty-following-vinicius-dive.html)
+
+
+### far rabat (N/A, Sun, 15 Feb 2026 10:10:00 -0800)
+
+- **FAR Rabat Fans Allege 'Blatant' Assault by Security at Cairo Stadium**: [Link](https://m.elbotola.com/en/article/2026-02-15-17-29-987.html)
+- **Pep Guardiola just said what Arsenal fans already knew about the title race**: [Link](https://paininthearsenal.com/pep-guardiola-just-said-what-arsenal-fans-already-knew-about-the-title-race-01kgzv7tbdj4)
+- **Egyptian Football - Sports**: [Link](https://english.ahram.org.eg/Category/6/51/Sports/Match-facts-Ahly-v-AS-FAR-Rabat-CAF-Cham.aspx)
+
+
 ### ليفانتي ضد فالنسيا (N/A, Sun, 15 Feb 2026 09:50:00 -0800)
 
 - **جدول مباريات اليوم الأحد 15 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-15-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt5611553b859e1d86)
