@@ -1,3 +1,17 @@
+### real betis (N/A, Sun, 15 Feb 2026 12:50:00 -0800)
+
+- **El Real Betis, a rematar en Son Moix una jornada fantástica**: [Link](https://mundobetis.com/2026/02/15/el-real-betis-a-rematar-en-son-moix-una-jornada-fantastica/)
+- **El Mallorca arranca el partido en descenso**: [Link](https://www.futboldesdemallorca.com/blog/2026/02/15/sin-sorpresas-4/)
+- **La marea verdiblanca arranca motores en Palma**: [Link](https://www.ultimahora.es/deportes/real-mallorca/2026/02/15/2570935/marea-verdiblanca-arranca-motores.html)
+
+
+### متى رمضان 2026 في المغرب (N/A, Sun, 15 Feb 2026 12:50:00 -0800)
+
+- **رسميا.. عُمان أول دولة عربية تحدد موعد بداية شهر رمضان**: [Link](https://www.skynewsarabia.com/varieties/1852423-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AF%D9%88%D9%84%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **تركيا وعمان وسنغافورة وقطر يعلنون موعد أول أيام شهر رمضان 2026**: [Link](https://www.youm7.com/story/2026/2/13/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D9%88%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86%D9%88%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86/7303890)
+- **جمعية الشعرى.. هذا أول أيام رمضان بالجزائر فلكيا**: [Link](https://www.ennaharonline.com/%D8%AC%D9%85%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D8%B9%D8%B1%D9%89-%D9%87%D8%B0%D8%A7-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%AC%D8%B2%D8%A7/)
+
+
 ### نابولي ضد روما (N/A, Sun, 15 Feb 2026 12:30:00 -0800)
 
 - **ما القنوات الناقلة لمباراة نابولي وروما في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4bb4ec7656bd1696)
