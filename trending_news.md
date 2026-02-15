@@ -1,3 +1,17 @@
+### arsenal – wigan (N/A, Sun, 15 Feb 2026 07:50:00 -0800)
+
+- **Christian Norgaard sends Arsenal dressing room message and responds to Leandro Trossard claim**: [Link](https://www.football.london/arsenal-fc/news/arsenal-news-christian-norgaard-wigan-33421147)
+- **Mikel Arteta should make Myles Lewis-Skelly position switch amid Arsenal's current injury list**: [Link](https://www.arsenalinsider.com/opinion/mikel-arteta-should-make-myles-lewis-skelly-position-switch-amid-arsenals-current-injury-list/)
+- **Preview: Arsenal v Wigan Athletic | Pre-Match Report | News**: [Link](https://www.arsenal.com/news/preview-arsenal-v-wigan-athletic)
+
+
+### wydad vs (N/A, Sun, 15 Feb 2026 06:40:00 -0800)
+
+- **Benhachem Finalizes Squad Preparations Ahead of Azam Tanzania Clash**: [Link](https://m.elbotola.com/en/article/2026-02-14-12-00-883.html)
+- **Confederation Cup: what time and on which channel to watch Wydad AC vs Azam FC?**: [Link](https://foot-africa.com/en/news/confederation-cup-what-time-and-on-which-channel-to-watch-wydad-ac-vs-azam-fc-1085729/)
+- **CAF Confed Cup: Maniema Union a point shy of the exploit**: [Link](https://sportnewsafrica.com/articles/caf-confed-cup-maniema-union-a-point-shy-of-the-exploit)
+
+
 ### le havre – toulouse (N/A, Sun, 15 Feb 2026 07:20:00 -0800)
 
 - **Trois mois après le geste controversé d'Aron Dönnum envers Simon Ebonog, des retrouvailles dans un climat apaisé**: [Link](https://www.lequipe.fr/Football/Article/Trois-mois-apres-le-geste-controverse-d-aron-donnum-envers-simon-ebonog-des-retrouvailles-dans-un-climat-apaise/1652262)
