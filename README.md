@@ -1,3 +1,38 @@
+### آرسنال ضد ويجان (N/A, Sun, 15 Feb 2026 08:20:00 -0800)
+
+- **هداف أرسنال في كأس الاتحاد**: [Link](https://hihi2.com/2026/02/15/p3651754.html)
+- **الموعد والقنوات الناقلة لمباراة أرسنال ضد ويجان أتلتيك في كأس الاتحاد الإنجليزي**: [Link](https://alamriyadi.com/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D9%88%D9%8A%D8%AC%D8%A7%D9%86-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84/)
+- **القنوات الناقلة لمباراة أرسنال ضد ويغان اليوم في كأس إنجلترا مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/494085039599685-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D9%88%D9%8A%D8%BA%D8%A7%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### ligue des champions de la caf (N/A, Sun, 15 Feb 2026 08:20:00 -0800)
+
+- **Al Ahly-AS FAR: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/al-ahly-as-far-a-quelle-heure-et-sur-quelle-chaine_UXRWYNXFYBH3NODXYLSQHU4S7Q/)
+- **Ait Ourkane évoque la forte affluence attendue des supporters d'Al Ahly au Stade International du Caire**: [Link](https://m.elbotola.com/fr/article/2026-02-14-14-28-74.html)
+- **Coupes africaines interclubs Une démonstration de force pour clôturer la phase de groupes**: [Link](https://aujourdhui.ma/sports/coupes-africaines-interclubs-une-demonstration-de-force-pour-cloturer-la-phase-de-groupes)
+
+
+### atletico madrid (N/A, Sun, 15 Feb 2026 08:10:00 -0800)
+
+- **Atlético de Madrid: Diego Simeone declares his love for the club**: [Link](https://foot-africa.com/en/news/atletico-de-madrid-diego-simeone-declares-his-love-for-the-club-1087142/)
+- **'I can't find the words to define what I feel for Atletico'**: [Link](https://www.besoccer.com/new/i-cant-find-the-words-to-define-what-i-feel-for-atleti-1394656)
+- **Rayo - Atletico live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/rayo-atletico/2026/02/15/01_0101_20260215_184_175-live.html)
+
+
+### دوري ابطال افريقيا (N/A, Sun, 15 Feb 2026 08:10:00 -0800)
+
+- **مباشر مباراة الأهلي المصري والجيش الملكي في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/15/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A2%D9%86-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A)
+- **توروب يصدم بلعمري وإمام عاشور أمام الجيش الملكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%88%D8%A8-%D9%8A%D8%B5%D8%AF%D9%85-%D8%A8%D9%84%D8%B9%D9%85%D8%B1%D9%8A-%D9%88%D8%A7%D9%95%D9%85%D8%A7%D9%85-%D8%B9%D8%A7%D8%B4%D9%88%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A/blte3fff3d611503615)
+- **إدارة الجيش الملكي تصدر بلاغًا هامًا لجماهيرها المتواجدة في مصر**: [Link](https://sport.lesiteinfo.com/competitions-continentales/488071.html)
+
+
+### far vs ahly (N/A, Sun, 15 Feb 2026 08:00:00 -0800)
+
+- **Santos: 'Everyone is Ready to Give Their Maximum Against Al Ahly'**: [Link](https://m.elbotola.com/en/article/2026-02-14-13-09-989.html)
+- **Technical Meeting Finalizes Details of Cairo Summit**: [Link](https://www.ysscores.com/en/news/13911324/Technical-Meeting-Finalizes-Details-of-Cairo-Summit)
+- **CAF Champions League: Jess Thorup expresses Al Ahly readiness ahead of AS FAR clash**: [Link](https://africasoccer.com/caf-champions-league-jess-thorup-expresses-al-ahly-readiness-ahead-of-as-far-clash/)
+
+
 ### arsenal – wigan (N/A, Sun, 15 Feb 2026 07:50:00 -0800)
 
 - **Christian Norgaard sends Arsenal dressing room message and responds to Leandro Trossard claim**: [Link](https://www.football.london/arsenal-fc/news/arsenal-news-christian-norgaard-wigan-33421147)
