@@ -1,3 +1,10 @@
+### sporting (N/A, Sun, 15 Feb 2026 14:00:00 -0800)
+
+- **Sporting 0–0 Famalicão | Visitantes marcaram, mas o golo foi anulado**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/20260215-193215-o-onze-do-sporting-para-o-jogo-com-o-famalicao)
+- **AO VIVO: Carevic nega o 1-0 a Luís Guilherme (34')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-carevic-nega-o-1-0-a-luis-guilherme-34/CIEfmX9L/)
+- **Não 1 mas... 2 avançados para fazerem de Suárez: o onze provável do Sporting**: [Link](https://www.abola.pt/noticias/nao-1-mas-2-avancados-para-fazerem-de-suarez-o-onze-provavel-do-sporting-2026021422161707321)
+
+
 ### napoli (N/A, Sun, 15 Feb 2026 12:20:00 -0800)
 
 - **🔴 Napoli-Roma | ✅ UFFICIALI: Soulé in panchina! Milinkovic e Gutierrez 👀**: [Link](https://onefootball.com/id/berita/napoli-roma-ufficiali-soule-in-panchina-milinkovic-e-gutierrez-42415533)
