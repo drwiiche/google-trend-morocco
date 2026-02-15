@@ -1,3 +1,10 @@
+### الألعاب الأولمبية الشتوية: التزلج الألبي (N/A, Sat, 14 Feb 2026 15:20:00 -0800)
+
+- **عبد الرحيم كميشة يفتتح المشاركة المغربية في أولمبياد ميلانو كورتينا 2026 غدا الجمعة – اليوم 24**: [Link](https://alyaoum24.com/2010011.html)
+- **فايق عابدي يمثل السعودية في الأولمبياد الشتوي 2026**: [Link](https://mwlana.com/sports/%D9%81%D8%A7%D9%8A%D9%82-%D8%B9%D8%A7%D8%A8%D8%AF%D9%8A-%D9%8A%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7-6/)
+- **مسؤول إماراتي لـRT: المشاركة في أولمبياد 2026 تعكس التزام الدولة بتطوير الرياضات الشتوية**: [Link](https://a5r5br.net/international/sports/7283352-%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%84%D9%80rt-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-2026-%D8%AA%D8%B9%D9%83%D8%B3-%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A8%D8%AA%D8%B7%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9)
+
+
 ### heure france (N/A, Sat, 14 Feb 2026 16:20:00 -0800)
 
 - **XV de France, le verdict tombe avant Galles**: [Link](https://www.sports.fr/rugby/6-nations/xv-de-france-le-verdict-tombe-avant-galles-990782.html)
