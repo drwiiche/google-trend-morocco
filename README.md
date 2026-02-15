@@ -1,3 +1,10 @@
+### متى رمضان 2026 (N/A, Sun, 15 Feb 2026 11:50:00 -0800)
+
+- **رسميا.. عُمان أول دولة عربية تحدد موعد بداية شهر رمضان**: [Link](https://www.skynewsarabia.com/varieties/1852423-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AF%D9%88%D9%84%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **تركيا وعمان وسنغافورة وقطر يعلنون موعد أول أيام شهر رمضان 2026**: [Link](https://www.youm7.com/story/2026/2/13/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D9%88%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86%D9%88%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86/7303890)
+- **هل رمضان سيكون الأربعاء أم الخميس؟**: [Link](https://www.bbc.com/arabic/articles/cwyxw0vzq2jo)
+
+
 ### lyon – nice (N/A, Sun, 15 Feb 2026 11:30:00 -0800)
 
 - **L'arme secrète de l'OL terrifie Claude Puel**: [Link](https://www.foot01.com/ol/larme-secrete-de-lol-terrifie-claude-puel)
