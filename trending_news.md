@@ -1,3 +1,24 @@
+### caf champions league (N/A, Sun, 15 Feb 2026 08:40:00 -0800)
+
+- **Al-Hilal top Group C as Sundowns sink MC Alger to seal quarter-final spot**: [Link](https://www.cafonline.com/caf-champions-league/news/al-hilal-top-group-c-as-sundowns-sink-mc-alger-to-seal-quarter-final-spot/)
+- **A 2-0 Triumph Books Masandawana a Spot in the CAFCL Knockout Round**: [Link](https://sundownsfc.co.za/a-2-0-triumph-books-masandawana-a-spot-in-the-cafcl-knockout-round/)
+- **We didn’t get knocked out today – Rulani Mokwena reflects on MC Alger’s CAF exit**: [Link](https://themercury.co.za/sport/soccer/2026-02-15-we-didnt-get-knocked-out-today--rulani-mokwena-reflects-on-mc-algers-caf-exit/)
+
+
+### الجيش الملكي (N/A, Sun, 15 Feb 2026 08:30:00 -0800)
+
+- **مباشر مباراة الأهلي المصري والجيش الملكي في دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/15/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A2%D9%86-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A)
+- **توروب يصدم بلعمري وإمام عاشور أمام الجيش الملكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%88%D8%A8-%D9%8A%D8%B5%D8%AF%D9%85-%D8%A8%D9%84%D8%B9%D9%85%D8%B1%D9%8A-%D9%88%D8%A7%D9%95%D9%85%D8%A7%D9%85-%D8%B9%D8%A7%D8%B4%D9%88%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A/blte3fff3d611503615)
+- **إدارة الجيش الملكي تصدر بلاغًا هامًا لجماهيرها المتواجدة في مصر**: [Link](https://sport.lesiteinfo.com/competitions-continentales/488071.html)
+
+
+### wac (N/A, Sun, 15 Feb 2026 07:30:00 -0800)
+
+- **Maniema and Wydad book TotalEnergies CAF Confederation Cup quarter-final places**: [Link](https://www.cafonline.com/caf-confederation-cup/news/maniema-and-wydad-book-totalenergies-caf-confederation-cup-quarter-final-places/)
+- **Wydad Defeat Azam to Reach Confederation Cup Knockouts**: [Link](https://www.moroccoworldnews.com/2026/02/278876/wydad-defeat-azam-to-reach-confederation-cup-knockouts/)
+- **Benhachem Finalizes Squad Preparations Ahead of Azam Tanzania Clash**: [Link](https://m.elbotola.com/en/article/2026-02-14-12-00-883.html)
+
+
 ### آرسنال ضد ويجان (N/A, Sun, 15 Feb 2026 08:20:00 -0800)
 
 - **هداف أرسنال في كأس الاتحاد**: [Link](https://hihi2.com/2026/02/15/p3651754.html)
