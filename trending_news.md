@@ -1,3 +1,10 @@
+### serie a (N/A, Sat, 14 Feb 2026 14:10:00 -0800)
+
+- **Udinese, ripartire è un must: contro il Sassuolo è l’occasione del riscatto**: [Link](https://www.messaggeroveneto.it/speciali/udinese-calcio/udinese-sassuolo-probabili-formazioni-serie-a-eht5r1t0)
+- **⚫️🟢 Grosso: “Il 5-0 con l’Inter è già il passato! Sul sostituto di Matic e gli errori di Muric…”**: [Link](https://onefootball.com/de/news/grosso-il-5-0-con-linter-e-gia-il-passato-sul-sostituto-di-matic-e-gli-errori-di-muric-42409116)
+- **Serie A, le probabili formazioni di Udinese-Sassuolo**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-probabili-formazioni-del-15-febbraio-si-parte-con-la-sfida-tra-udinese-e-sassuolo/EejmdObT/)
+
+
 ### ramadan 2026 maroc (N/A, Sun, 15 Feb 2026 03:00:00 -0800)
 
 
