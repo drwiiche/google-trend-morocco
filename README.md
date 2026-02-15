@@ -1,3 +1,10 @@
+### le havre – toulouse (N/A, Sun, 15 Feb 2026 07:20:00 -0800)
+
+- **Trois mois après le geste controversé d'Aron Dönnum envers Simon Ebonog, des retrouvailles dans un climat apaisé**: [Link](https://www.lequipe.fr/Football/Article/Trois-mois-apres-le-geste-controverse-d-aron-donnum-envers-simon-ebonog-des-retrouvailles-dans-un-climat-apaise/1652262)
+- **DIRECT. Le Havre-Toulouse: les Havrais prennent l'avantage en infériorité numérique**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-le-havre-toulouse-suivez-en-live-le-match-de-la-22e-journee-de-ligue-1_LS-202602150206.html)
+- **HAC - TFC : discutez en direct entre supporters ici !**: [Link](https://www.lesviolets.com/actu/hac-tfc-discutez-en-direct-entre-supporters-ici,81318.html)
+
+
 ### barrages du maroc (N/A, Sun, 15 Feb 2026 07:00:00 -0800)
 
 - **Oum Er-Rbia : reprise nette des principaux barrages, Bin El Ouidane et Hansali en forte hausse (images satellites)**: [Link](https://medias24.com/2026/02/14/oum-er-rbia-reprise-nette-des-principaux-barrages-bin-el-ouidane-et-hansali-en-forte-hausse-images-satellites-1628131/)
