@@ -1,3 +1,38 @@
+### القنوات الناقلة لمباراة الوداد اليوم (N/A, Sun, 15 Feb 2026 06:10:00 -0800)
+
+- **"الكاف" تكشف برنامج دور المجموعات.. 4 أندية مغربية تدخل السباق الإفريقي بقوة**: [Link](https://ar.telquel.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D9%87%D9%8A-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D8%A8%D8%A7%D8%B1/)
+- **تشكيلة الوداد أمام عزام.. بنهاشم يعتمد على الوافي ومفيد في الدفاع وبانياغوا يقود الهجوم رفقة هنوري**: [Link](https://m.elbotola.com/article/2026-02-15-13-11-358.html)
+- **"الوينرز" يحذر من فخ عزام في "الكاف"**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%81%D8%AE-%D8%B9%D8%B2%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%81-427075.html)
+
+
+### wydad (N/A, Sun, 15 Feb 2026 06:00:00 -0800)
+
+- **Coupe de la CAF : le WAC et l'OCS décidés à finir leaders de leurs groupes**: [Link](https://lematin.ma/sports/coupe-de-la-caf-le-wac-et-locs-decides-a-finir-leaders-de-leurs-groupes/329797)
+- **Coupe de la CAF: où et quand suivre Wydad-Azam FC**: [Link](https://sport.le360.ma/football/coupe-caf/coupe-de-la-caf-ou-et-quand-suivre-wydad-azam-fc_TIQGOW2HM5AIHN6MO4BGTR7XSI/)
+- **Wydad-Azzam FC (Coupe de la CAF) : quelle heure, quelle chaînes**: [Link](https://medias24.com/2026/02/13/wydad-azzam-fc-coupe-de-la-caf-quelle-heure-quelle-chaines-1627887/)
+
+
+### oxford united – sunderland (N/A, Sun, 15 Feb 2026 06:00:00 -0800)
+
+- **Fan Focus: What Can Sunderland Expect From Oxford?**: [Link](https://rokerreport.sbnation.com/fan-focus/126021/fan-focus-what-can-sunderland-expect-from-oxford)
+- **Use QuinnBet’s bonus code to get 50% back up to £25 ahead of Oxford vs Sunderland**: [Link](https://talksport.com/betting/3979809/oxford-united-vs-sunderland-quinnbet-free-bets/)
+- **Oxford United and Sunderland fans warned of traffic as FA Cup clash approaches**: [Link](https://www.oxfordmail.co.uk/news/25856287.oxford-united-sunderland-fans-warned-traffic-delays/)
+
+
+### stoke city – fulham (N/A, Sun, 15 Feb 2026 06:00:00 -0800)
+
+- **Stoke City team news vs Fulham as Mark Robins makes four changes**: [Link](https://www.stokesentinel.co.uk/sport/football/football-news/stoke-city-fulham-team-news-10816336)
+- **FA Cup: Marco Silva to bench Samuel Chukwueze for new Man City import**: [Link](https://soccernet.ng/2026/02/fa-cup-silva-samuel-chukwueze-man-city.html)
+- **Boothen Quarter open from 11am ahead of FA Cup clash**: [Link](https://www.stokecityfc.com/news/2026/february/14/boothen-quarter-open-from-11am-ahead-of-fa-cup-clash/)
+
+
+### bein sport (N/A, Sun, 15 Feb 2026 06:00:00 -0800)
+
+- **Real Madrid 4-1 Real Sociedad: Trent Alexander-Arnold get assist on return**: [Link](https://www.bbc.com/sport/football/live/c5yvj2qn54jt)
+- **Diaz Benched Against Real Sociedad, Mbappé Also Starts from Bench**: [Link](https://m.elbotola.com/en/article/2026-02-14-19-25-320.html)
+- **No VAR intervention on second penalty following Vinícius’ dive**: [Link](https://www.mundodeportivo.com/us/en/20260215/740435/var-intervention-on-second-penalty-following-vinicius-dive.html)
+
+
 ### ريال أوفييدو ضد أتلتيك بيلباو (N/A, Sun, 15 Feb 2026 05:20:00 -0800)
 
 - **نيكو ويليامز يغيب عن أتلتيك بيلباو أمام أوفييدو بسبب الإصابة**: [Link](https://www.ysscores.com/ar/news/13911296/%D9%86%D9%8A%D9%83%D9%88-%D9%88%D9%8A%D9%84%D9%8A%D8%A7%D9%85%D8%B2-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9)
