@@ -1,3 +1,31 @@
+### codm vs husa (N/A, Sun, 15 Feb 2026 10:00:00 -0800)
+
+- **بوناكا: الإصابة أثرت على مساري**: [Link](https://assabah.ma/902013.html)
+- **البطولة الإحترافية 1.. التعادل يحسم اصطدام حسنية أكادير والنادي المكناسي**: [Link](https://www.almountakhab.com/node/13222761)
+- **الدورة 12 من البطولة الاحترافية الأولى .. مباريات قوية تعيد خلط أوراق الترتيب**: [Link](https://alittihad.info/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D8%A9-12-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89/)
+
+
+### atletico (N/A, Sun, 15 Feb 2026 09:20:00 -0800)
+
+- **Rayo v Atlético Madrid: police, mariachis, ticket row and Iñigo Pérez anger**: [Link](https://onefootball.com/de/news/rayo-v-atletico-madrid-police-mariachis-ticket-row-and-inigo-perez-anger-42414394)
+- **Rayo Thrash Atletico Who 'Deserved To Lose'**: [Link](https://www.barrons.com/news/rayo-thrash-atletico-who-deserved-to-lose-5475b40c)
+- **🚨 Changes at Butarque: the line-ups for Rayo Vallecano v Atlético**: [Link](https://sports.yahoo.com/articles/changes-butarque-line-ups-rayo-141900378.html)
+
+
+### coupe de la caf (N/A, Sun, 15 Feb 2026 08:50:00 -0800)
+
+- **CR Belouizdad : Quatre matchs sans encaisser, Chaâl s’illustre - Sports**: [Link](https://www.lesoirdalgerie.com/sports/quatre-matchs-sans-encaisser-chaal-s-illustre-147078)
+- **Coupe CAF : CR Bélouizdad vs AS Otoho, les compositions officielles**: [Link](https://www.africatopsports.com/2026/02/15/coupe-caf-cr-belouizdad-vs-as-otoho-les-compositions-officielles/)
+- **Coupe de la Confédération : le CRB enchaîne et boucle la phase de groupes en leader**: [Link](https://www.competition.dz/actualites/coupe-de-la-caf/coupe-de-la-confederation-le-crb-simpose-et-boucle-la-phase-de-groupes-en-leader.html)
+
+
+### asfar (N/A, Sun, 15 Feb 2026 08:40:00 -0800)
+
+- **Goncalves sets clear target: Quarter-final spot**: [Link](https://ippmedia.com/the-guardian/sports/football/read/goncalves-sets-clear-target-quarter-final-spot-2026-02-13-121924)
+- **JS Kabylie Loses 3-0 to Young Africans and Exits the African Champions League**: [Link](https://www.ysscores.com/en/news/13911940/JS-Kabylie-Loses-3-0-to-Young-Africans-and-Exits-the-African-Champions-League)
+- **CAF Champions League: JSK on a pride mission against Young Africans**: [Link](https://foot-africa.com/en/news/caf-champions-league-jsk-on-a-pride-mission-against-young-africans-1084319/)
+
+
 ### شهر رمضان بالمغرب (N/A, Sun, 15 Feb 2026 10:20:00 -0800)
 
 - **رسميا.. عُمان أول دولة عربية تحدد موعد بداية شهر رمضان**: [Link](https://www.skynewsarabia.com/varieties/1852423-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AF%D9%88%D9%84%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
