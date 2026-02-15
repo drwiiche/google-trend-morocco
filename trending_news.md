@@ -1,3 +1,10 @@
+### time (N/A, Sat, 14 Feb 2026 19:50:00 -0800)
+
+- **Daytona 500 lineup tracker: Follow for updates after single-car qualifying, Duels**: [Link](https://www.nascar.com/news-media/2026/02/11/daytona-500-lineup-tracker-follow-for-updates-after-single-car-qualifying-duels/)
+- **Daytona 500 start time moved up an hour as bad weather looms**: [Link](https://www.espn.com/racing/nascar/cup/story/_/id/47928727/daytona-500-start-moved-hour-bad-weather-looms)
+- **Daytona 500 longshots: 5 dark-horse drivers who could win big**: [Link](https://www.news-journalonline.com/story/sports/nascar/2026/02/14/daytona-500-2026-betting-odds-favorites-predictions-underdogs/88663532007/)
+
+
 ### الألعاب الأولمبية الشتوية: التزلج الألبي (N/A, Sat, 14 Feb 2026 15:20:00 -0800)
 
 - **عبد الرحيم كميشة يفتتح المشاركة المغربية في أولمبياد ميلانو كورتينا 2026 غدا الجمعة – اليوم 24**: [Link](https://alyaoum24.com/2010011.html)
