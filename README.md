@@ -1,3 +1,10 @@
+### real madrid vs (N/A, Sat, 14 Feb 2026 12:30:00 -0800)
+
+- **El Benfica vuelve a poner a prueba al Real Madrid en la UEFA Champions League: últimas entradas disponibles para el partido de ida**: [Link](https://www.marca.com/futbol/2026/02/14/benfica-vuelve-poner-prueba-real-madrid-uefa-champions-league-ultimas-entradas-disponibles-partido-ida.html)
+- **ESPN trae los playoffs de la UEFA Champions League, con el partidazo Benfica–Real Madrid**: [Link](https://espnpressroom.com/latinamerica/press-releases/2026/02/espn-trae-los-playoffs-de-la-uefa-champions-league-con-el-partidazo-benfica-real-madrid/)
+- **Mourinho comenta su regreso al Santiago Bernabéu**: [Link](https://www.flashscore.es/noticias/futbol-champions-league-jose-mourinho-y-el-regreso-al-santiago-bernabeu-voy-a-intentar-no-sentir-nada/htroPMAl/)
+
+
 ### time (N/A, Sat, 14 Feb 2026 19:50:00 -0800)
 
 - **Daytona 500 lineup tracker: Follow for updates after single-car qualifying, Duels**: [Link](https://www.nascar.com/news-media/2026/02/11/daytona-500-lineup-tracker-follow-for-updates-after-single-car-qualifying-duels/)
