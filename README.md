@@ -1,3 +1,10 @@
+### giorgia meloni (N/A, Sun, 15 Feb 2026 09:30:00 -0800)
+
+- **Caivano, minacce a Meloni e don Patriciello? Giuseppe Conte attacca il governo | Libero Quotidiano.it**: [Link](https://www.liberoquotidiano.it/news/politica/46359815/caivano-minacce-meloni-don-patriciello-giuseppe-conte-attacca-governo/)
+- **Periferie: don Patriciello al podcast dell’Avvenire di Calabria, “oggi il Parco Verde di Caivano non è più la più grande piazza di spaccio d’Europa”**: [Link](https://www.agensir.it/quotidiano/2026/2/13/periferie-don-patriciello-al-podcast-dellavvenire-di-calabria-oggi-il-parco-verde-di-caivano-non-e-piu-la-piu-grande-piazza-di-spaccio-deuropa/)
+- **FI - FORZA ITALIA * CAMERA: «CAIVANO, BATTILOCCHIO: “SOLIDARIETÀ A DON PATRICELLO. INSIEME PER LEGALITÀ E RISPETTO REGOLE”**: [Link](https://www.agenziagiornalisticaopinione.it/opinionmix/fi-forza-italia-camera-caivano-battilocchio-solidarieta-a-don-patricello-insieme-per-legalita-e-rispetto-regole/)
+
+
 ### caf champions league (N/A, Sun, 15 Feb 2026 08:40:00 -0800)
 
 - **Al-Hilal top Group C as Sundowns sink MC Alger to seal quarter-final spot**: [Link](https://www.cafonline.com/caf-champions-league/news/al-hilal-top-group-c-as-sundowns-sink-mc-alger-to-seal-quarter-final-spot/)
