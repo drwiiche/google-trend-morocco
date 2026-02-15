@@ -1,3 +1,17 @@
+### barrages du maroc (N/A, Sun, 15 Feb 2026 07:00:00 -0800)
+
+- **Oum Er-Rbia : reprise nette des principaux barrages, Bin El Ouidane et Hansali en forte hausse (images satellites)**: [Link](https://medias24.com/2026/02/14/oum-er-rbia-reprise-nette-des-principaux-barrages-bin-el-ouidane-et-hansali-en-forte-hausse-images-satellites-1628131/)
+- **Barrage de l’Oued El Maleh: une situation maîtrisée malgré un taux de remplissage élevé**: [Link](https://fr.le360.ma/economie/barrage-de-loued-el-maleh-une-situation-maitrisee-malgre-un-taux-de-remplissage-eleve_3HGGSWXNCNDOHBYK3OHUVLWTCY/)
+- **Les barrages du Maroc franchissent les 70% de remplissage et atteignent 11,8 milliards de m³**: [Link](https://lematin.ma/nation/les-barrages-du-maroc-franchissent-les-70-de-remplissage/329968)
+
+
+### الوداد (N/A, Sun, 15 Feb 2026 06:50:00 -0800)
+
+- **"الكاف" تكشف برنامج دور المجموعات.. 4 أندية مغربية تدخل السباق الإفريقي بقوة**: [Link](https://ar.telquel.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D9%87%D9%8A-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D8%A8%D8%A7%D8%B1/)
+- **تشكيلة الوداد أمام عزام.. بنهاشم يعتمد على الوافي ومفيد في الدفاع وبانياغوا يقود الهجوم رفقة هنوري**: [Link](https://m.elbotola.com/article/2026-02-15-13-11-358.html)
+- **"الوينرز" يحذر من فخ عزام في "الكاف"**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%81%D8%AE-%D8%B9%D8%B2%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%81-427075.html)
+
+
 ### رايو فاليكانو ضد أتلتيكو مدريد (N/A, Sun, 15 Feb 2026 06:40:00 -0800)
 
 - **أرقام مهمة قبل مباراة أتلتيكو مدريد ورايو فاليكانو**: [Link](https://hihi2.com/2026/02/15/p3651157.html)
