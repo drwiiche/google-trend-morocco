@@ -1,3 +1,10 @@
+### heure france (N/A, Sat, 14 Feb 2026 16:20:00 -0800)
+
+- **XV de France, le verdict tombe avant Galles**: [Link](https://www.sports.fr/rugby/6-nations/xv-de-france-le-verdict-tombe-avant-galles-990782.html)
+- **XV de France: trois semaines d’arrêt pour Nicolas Depoortère**: [Link](https://rmcsport.bfmtv.com/rugby/xv-de-france/xv-de-france-trois-semaines-d-arret-pour-nicolas-depoortere_AV-202602100924.html)
+- **XV de France : touché au genou, Moefana incertain pour le deuxième match contre les Gallois**: [Link](https://www.lefigaro.fr/sports/rugby/6-nations/six-nations-touche-au-genou-moefana-incertain-pour-le-deuxieme-match-contre-les-gallois-20260207)
+
+
 ### heure maroc (N/A, Sat, 14 Feb 2026 13:30:00 -0800)
 
 - **Voici les nouveaux horaires scolaires pour Ramadan 2026**: [Link](https://lematin.ma/enseignement/ramadan-2026-nouveaux-horaires-scolaires/329732)
