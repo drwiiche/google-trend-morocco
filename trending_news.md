@@ -1,3 +1,17 @@
+### caf senegal maroc (N/A, Sat, 14 Feb 2026 17:20:00 -0800)
+
+- **REGARDEZ EN DIRECT : La conférence de presse du Président de la CAF, Dr Patrice Motsepe à 13h30 heure locale / 10h30 GMT**: [Link](https://www.cafonline.com/fr/infos/regardez-en-direct-la-conference-de-presse-du-president-de-la-caf-dr-patrice-motsepe-a-13h30-heure-locale-10h30-gmt/)
+- **CAN : Motsepe salue « la plus réussie de l’histoire » au Maroc et évoque une extension à 28 équipes**: [Link](https://ledesk.ma/encontinu/can-motsepe-salue-la-plus-reussie-de-lhistoire-au-maroc-et-evoque-une-extension-a-28-equipes/)
+- **CAN 2025 : nouvelles révélations explosives sur la finale Sénégal-Maroc**: [Link](https://www.footmercato.net/a3905911699571756183-can-2025-nouvelles-revelations-explosives-sur-la-finale-senegal-maroc)
+
+
+### heure gmt (N/A, Sat, 14 Feb 2026 16:00:00 -0800)
+
+- **Voici les nouveaux horaires scolaires pour Ramadan 2026**: [Link](https://lematin.ma/enseignement/ramadan-2026-nouveaux-horaires-scolaires/329732)
+- **Retour à l’heure GMT: n’oubliez pas de régler vos montres**: [Link](https://www.lesiteinfo.com/maroc/666734-retour-a-lheure-gmt-noubliez-pas-de-regler-vos-montres.html)
+- **Ramadan 2026 : les administrations passent à l’horaire continu**: [Link](https://femmesdumaroc.com/inspiration/radar/ramadan-2026-les-administrations-passent-a-lhoraire-continu)
+
+
 ### ski alpin aux jeux olympiques d'hiver 2026 (N/A, Sat, 14 Feb 2026 15:20:00 -0800)
 
 - **Les chances de médailles et les Français engagés samedi 14 février aux JO 2026 de Milan-Cortina**: [Link](https://www.lequipe.fr/Jo-2026-milan-cortina/Tous-sports/Actualites/Les-chances-de-medailles-et-les-francais-engages-samedi-14-fevrier-aux-jo-2026-de-milan-cortina/1652094)
