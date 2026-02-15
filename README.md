@@ -1,3 +1,9 @@
+### مايوركا ضد ريال بتيس (N/A, Sun, 15 Feb 2026 11:40:00 -0800)
+
+- **ريال بيتيس يتفوق على مايوركا بهدفين في الشوط الأول**: [Link](https://iq.arabsvoice.net/106407/)
+- **ريال بيتيس يتقدم بثنائية على مايوركا في الشوط الأول بالليجا**: [Link](https://www.elbalad.news/6871825)
+
+
 ### real betis (N/A, Sun, 15 Feb 2026 12:50:00 -0800)
 
 - **El Real Betis, a rematar en Son Moix una jornada fantástica**: [Link](https://mundobetis.com/2026/02/15/el-real-betis-a-rematar-en-son-moix-una-jornada-fantastica/)
