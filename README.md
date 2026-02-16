@@ -1,3 +1,10 @@
+### رمضان 2026 (N/A, Mon, 16 Feb 2026 03:10:00 -0800)
+
+- **دليلك لأقوى مسلسلات رمضان... دراما 2026 تستوحي حكاياتها من الواقع**: [Link](https://aawsat.com/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%B1%D9%82/5240970-%D8%AF%D9%84%D9%8A%D9%84%D9%83-%D9%84%D8%A3%D9%82%D9%88%D9%89-%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-2026-%D8%AA%D8%B3%D8%AA%D9%88%D8%AD%D9%8A-%D8%AD%D9%83%D8%A7%D9%8A%D8%A7%D8%AA%D9%87%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%A7%D9%82%D8%B9)
+- **الدراما الخليجية في رمضان 2026: حضور نسائي لافت واستثمار في النجاحات السابقة**: [Link](https://www.aljazeera.net/arts/2026/2/10/%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D8%AD%D8%B6%D9%88%D8%B1)
+- **تنوع يجمع بين الإثارة والكوميديا والدراما**: [Link](https://www.albiladpress.com/news/2026/6334/spaces/978224.html)
+
+
 ### pix (N/A, Mon, 16 Feb 2026 01:40:00 -0800)
 
 - **Mais de 5 mil clientes de Pix no Agibank tiveram dados vazados**: [Link](https://gauchazh.clicrbs.com.br/colunistas/giane-guerra/noticia/2026/02/mais-de-5-mil-clientes-de-pix-no-agibank-tiveram-dados-vazados-cmloz4g01000b013km0hgmwia.html)
