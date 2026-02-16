@@ -1,3 +1,22 @@
+### x (N/A, Mon, 16 Feb 2026 06:10:00 -0800)
+
+- **X down? Users report widespread outage Monday morning**: [Link](https://www.kron4.com/news/national/x-down-users-report-widespread-outage-monday-morning/)
+- **Is X Down? What We Know About Twitter Outage**: [Link](https://www.forbes.com/sites/maryroeloffs/2026/02/16/major-x-outage-reported-musks-platform-down-for-thousands-monday-morning/)
+- **Is X down? Outages reported on app formerly known as Twitter**: [Link](https://www.northjersey.com/story/news/2026/02/16/x-outages-reported-for-app-formerly-known-as-twitter/88700282007/)
+
+
+### ramadan maroc 2026 (N/A, Mon, 16 Feb 2026 05:50:00 -0800)
+
+
+
+
+### ramadan 2026 au maroc (N/A, Mon, 16 Feb 2026 00:30:00 -0800)
+
+- **Ramadan 2026 en France : quelle date de début du mois de jeûne ?**: [Link](https://www.larepubliquedespyrenees.fr/evergreen/ramadan-2026-en-france-quelle-date-de-debut-du-mois-de-jeune-27867713.php)
+- **Voici la date de Aïd al-Fitr 2026 au Maroc selon le calcul astronomique**: [Link](https://medias24.com/2026/02/13/voici-la-date-de-aid-al-fitr-2026-au-maroc-selon-le-calcul-astronomique-1627599/)
+- **L’Arabie saoudite appelle à l’observation du croissant de lune du Ramadan mardi soir.**: [Link](https://www.arabiaweather.com/fr/content/%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D8%AA%D8%AD%D8%B1%D9%8A-%D8%B1%D8%A4%D9%8A%D8%A9-%D9%87%D9%84%D8%A7%D9%84-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%85%D8%B3%D8%A7%D8%A1-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1)
+
+
 ### aid el fitr 2026 (N/A, Mon, 16 Feb 2026 01:50:00 -0800)
 
 - **Voici la date de Aïd al-Fitr 2026 au Maroc selon le calcul astronomique**: [Link](https://medias24.com/2026/02/13/voici-la-date-de-aid-al-fitr-2026-au-maroc-selon-le-calcul-astronomique-1627599/)
