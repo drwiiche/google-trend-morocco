@@ -1,3 +1,31 @@
+### كورة (N/A, Mon, 16 Feb 2026 14:10:00 -0800)
+
+- **دوري أبطال أوروبا: كوفاتش يدعو فريقه إلى استحضار مستواه المحلي أمام أتالانتا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260216-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%83%D9%88%D9%81%D8%A7%D8%AA%D8%B4-%D9%8A%D8%AF%D8%B9%D9%88-%D9%81%D8%B1%D9%8A%D9%82%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D8%AD%D8%B6%D8%A7%D8%B1-%D9%85%D8%B3%D8%AA%D9%88%D8%A7%D9%87-%D8%A7%D9%84%D9%85%D8%AD%D9%84%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7)
+- **أزمة دفاعية تضرب دورتموند**: [Link](https://arriyadiyah.com/884983/%D8%A3%D8%B2%D9%85%D8%A9-%D8%AF%D9%81%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF)
+- **بوروسيا دورتموند يواجه أتالانتا بيرغامو في دوري أبطال أوروبا مع غياب شلوتربيك وزوله**: [Link](https://blinksport.net/%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D8%A8%D9%8A%D8%B1%D8%BA%D8%A7%D9%85%D9%88-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%B9-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B4%D9%84%D9%88%D8%AA%D8%B1%D8%A8%D9%8A%D9%83-%D9%88%D8%B2%D9%88%D9%84%D9%87)
+
+
+### هلال شهر رمضان (N/A, Mon, 16 Feb 2026 14:10:00 -0800)
+
+- **السعودية.. المحكمة العليا تحدد موعد تحري هلال رمضان 2026**: [Link](https://arabic.cnn.com/middle-east/article/2026/02/15/saudi-ramadan-2026-date-observation-hight-court-statement)
+- **زياد علاوي للجزيرة نت: المعايير الفلكية مهمة لتحديد احتمال رؤية الهلال**: [Link](https://www.aljazeera.net/science/2026/2/15/%D8%B2%D9%8A%D8%A7%D8%AF-%D8%B9%D9%84%D8%A7%D9%88%D9%8A-%D9%84%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%86%D8%AA-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D9%8A%D9%8A%D8%B1)
+- **دول تدعو لتحرى هلال رمضان غدًا.. وأخرى حسمت موعد بدء الصيام**: [Link](https://www.youm7.com/story/2026/2/16/%D8%AF%D9%88%D9%84-%D8%AA%D8%AF%D8%B9%D9%88-%D9%84%D8%AA%D8%AD%D8%B1%D9%89-%D9%87%D9%84%D8%A7%D9%84-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%BA%D8%AF%D9%8B%D8%A7-%D9%88%D8%A3%D8%AE%D8%B1%D9%89-%D8%AD%D8%B3%D9%85%D8%AA-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A1/7306594)
+
+
+### flashscore (N/A, Mon, 16 Feb 2026 14:00:00 -0800)
+
+- **Winter Olympics 2026: Elana Meyers Taylor wins monobob gold for USA; Canada’s Oldham lands freeski big air crown – live**: [Link](https://www.theguardian.com/sport/live/2026/feb/16/winter-olympics-2026-men-slalom-plus-curling-speed-skating-and-more-day-10-live)
+- **USA's Elana Meyers Taylor, 41, wins 1st Olympic gold in monobob**: [Link](https://www.espn.com/olympics/story/_/id/47949476/usa-elana-meyers-taylor-41-wins-1st-olympic-gold-monobob)
+- **2026 Winter Olympics live updates: Figure skating pairs wraps with emotional victory for Miura/Kihara; Elana Meyers Taylor claims gold in monobob**: [Link](https://www.nbcolympics.com/news/live/2026-winter-olympics-live-updates-mon-feb-16-highlights-scores-results-medals-day-10)
+
+
+### classement liga (N/A, Mon, 16 Feb 2026 14:00:00 -0800)
+
+- **Au tour de l'Atlético de se faire gifler**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/la-liga-latletico-madrid-corrige-par-le-rayo-3-0-laisse-filer-le-real-et-le-barca_sto23271373/story.shtml)
+- **Pas de vainqueur entre Naples et l'AS Rome, l'Atlético de Madrid tombe de très haut devant le Rayo Vallecano**: [Link](https://www.kawarji.com/actu-98412-pas-de-vainqueur-entre-naples-et-l-as-rome-l-atletico-de-madrid-tombe-de-tres-haut-devant-le-rayo-vallecano.html)
+- **Atletico Madrid : Oblak monte au créneau et exprime sa colère**: [Link](https://culturap.fr/atletico-madrid-oblak-monte-au-creneau-et-exprime-sa-colere/)
+
+
 ### لا ليغا (N/A, Mon, 16 Feb 2026 13:20:00 -0800)
 
 - **ناصر بن حمد: تعزيز الحضور البحريني في الملاعب الأوروبية**: [Link](https://www.alayam.com/alayam/first/1122857/News.html)
