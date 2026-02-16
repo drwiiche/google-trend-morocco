@@ -1,3 +1,38 @@
+### girona – barcelone (N/A, Mon, 16 Feb 2026 11:10:00 -0800)
+
+- **PREVIEW | Girona v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4450834/preview-girona-v-fc-barcelona)
+- **Preview: Barca face fellow Catalans Girona in bid to take back top spot**: [Link](https://www.fotmob.com/el/topnews/26006-preview-barca-face-fellow-catalans-girona-bid-take-back-top-spot?utm_source=fotmob)
+- **Kalshi promo code ALCOM: Get a $10 bonus for Girona vs. Barcelona today**: [Link](https://www.al.com/betting/2026/02/kalshi-promo-code-alcom-get-a-10-bonus-for-girona-vs-barcelona-today.html)
+
+
+### غيرونا ضد برشلونة (N/A, Mon, 16 Feb 2026 11:10:00 -0800)
+
+- **صافرة معلونة.. ذكريات "كلاسيكو الظلم" تحاصر حكم برشلونة وحيرونا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%A7%D9%81%D8%B1%D8%A9-%D9%85%D8%B9%D9%84%D9%88%D9%86%D8%A9--%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%B8%D9%84%D9%85-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1-%D8%AD%D9%83%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%AD%D9%8A%D8%B1%D9%88%D9%86%D8%A7/bltd44a27087e87750d)
+- **مباشر مباراة برشلونة ضد جيرونا في الدوري الإسباني لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/16/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A2%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7)
+- **رافينيا يعود إلى قائمة برشلونة قبل مواجهة جيرونا في الليغا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7/15814)
+
+
+### girona vs barcelona (N/A, Mon, 16 Feb 2026 11:10:00 -0800)
+
+- **Girona - Barcelona hoy, en directo: última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/girona-barcelona-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Flick, sin 'castigos' pero zarandeará el once en Montilivi**: [Link](https://www.sport.es/es/noticias/barca/flick-castigos-zarandeara-once-montilivi-126868929)
+- **Sin Rashford ni Pedri, el Barça busca asaltar Girona**: [Link](https://www.vavel.com/es/futbol/2026/02/16/fc-barcelona/1251069-sin-rashford-ni-pedri-el-barca-busca-asaltar-girona.html)
+
+
+### al-hilal vs al wahda (N/A, Mon, 16 Feb 2026 11:00:00 -0800)
+
+- **How to watch today's Al Hilal vs Al-Wahda AFC Champions League Elite game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-al-hilal-v-al-wahda-16022026/bltcfd926ec7b3dde3f)
+- **Inzaghi: We Aim to Win Against Al-Wahda Despite Securing Qualification**: [Link](https://www.ysscores.com/en/news/13912043/Inzaghi:-We-Aim-to-Win-Against-Al-Wahda-Despite-Securing-Qualification)
+- **Malcom’s Injury Unveiled Ahead of Al Wahda UAE Showdown**: [Link](https://www.filmogaz.com/152948)
+
+
+### robert duvall (N/A, Mon, 16 Feb 2026 10:50:00 -0800)
+
+- **Robert Duvall, indelible actor from 'The Godfather' and 'Apocalypse Now,' dies at 95**: [Link](https://www.nbcnews.com/news/obituaries/robert-duvall-actor-godfather-apocalypse-now-dies-95-rcna42438)
+- **Actor Robert Duvall has died — he brought a compassionate center to edgy hard roles**: [Link](https://www.npr.org/2026/02/16/1133879591/robert-duvall-dead-obituary)
+- **Robert DuVall reflects on 'The Godfather' in final USA TODAY interview**: [Link](https://www.usatoday.com/story/entertainment/movies/2026/02/16/robert-duvall-death-final-interview/88705143007/)
+
+
 ### الهلال ضد الوحدة (N/A, Mon, 16 Feb 2026 10:20:00 -0800)
 
 - **مباشر مباراة الهلال السعودي ضد الوحدة الإماراتي في دوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/16/%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9)
