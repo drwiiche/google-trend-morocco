@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Mon, 16 Feb 2026 09:20:00 -0800)
+
+- **ATP Doha 2026, Sinner dimentica il ko con Djokovic e travolge Machac: al 2° turno con Popyrin**: [Link](https://www.lottomatica.sport/news/tennis/atp-doha-2026-sinner-dimentica-il-ko-con-djokovic-e-travolge-machac-al-2-turno-con-popyrin/)
+- **Tutto il tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-doha-atp-singolare-tennis-tracker-sinner-debutta-con-machac-a-doha-1-0/vRV8BHy1/)
+- **Sinner-Machac diretta 5-1, break di Jannik. In palio gli ottavi dell'Atp di Doha: dove vederla in tv e precedenti**: [Link](https://www.ilmattino.it/sport/tennis/sinner_machac_diretta_doha_tennis-9363461.html)
+
+
 ### al-ahli saudi – shabab al-ahli (N/A, Mon, 16 Feb 2026 07:50:00 -0800)
 
 - **Al-Ahli Saudi's Expected Lineup Against Shabab Al-Ahli**: [Link](https://www.ysscores.com/en/news/13912201/Al-Ahli-Saudi's-Expected-Lineup-Against-Shabab-Al-Ahli)
