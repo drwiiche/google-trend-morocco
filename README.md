@@ -1,3 +1,24 @@
+### الهلال ضد الوحدة (N/A, Mon, 16 Feb 2026 10:20:00 -0800)
+
+- **مباشر مباراة الهلال السعودي ضد الوحدة الإماراتي في دوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/16/%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9)
+- **بعد غيابه أمام الاتفاق.. هل يشارك ثيو هيرنانديز ضد الوحدة الإماراتي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82--%D9%87%D9%84-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D8%AB%D9%8A%D9%88-%D9%87%D9%8A%D8%B1%D9%86%D8%A7%D9%86%D8%AF%D9%8A%D8%B2-%D8%B6%D8%AF-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A/blt3d9690c7663df269)
+- **إنزاغي يقرر إراحة بونو في مباراة الهلال أمام الوحدة**: [Link](https://m.elbotola.com/article/2026-02-16-17-45-514.html)
+
+
+### متى رمضان (N/A, Mon, 16 Feb 2026 10:20:00 -0800)
+
+- **تركيا وعمان وسنغافورة وقطر يعلنون موعد أول أيام شهر رمضان 2026**: [Link](https://www.youm7.com/story/2026/2/13/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D9%88%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86%D9%88%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86/7303890)
+- **السعودية.. المحكمة العليا تحدد موعد تحري هلال رمضان 2026**: [Link](https://arabic.cnn.com/middle-east/article/2026/02/15/saudi-ramadan-2026-date-observation-hight-court-statement)
+- **رسميا.. عُمان أول دولة عربية تحدد موعد بداية شهر رمضان**: [Link](https://www.skynewsarabia.com/varieties/1852423-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AF%D9%88%D9%84%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+
+
+### barrage oued el makhazine (N/A, Mon, 16 Feb 2026 10:00:00 -0800)
+
+- **Inondations: Les leçons agricoles du passé**: [Link](https://www.leconomiste.com/inondations-les-lecons-agricoles-du-passe/)
+- **Lancement imminent d’un nouveau barrage dans le Loukkos pour soulager Oued El Makhazine**: [Link](https://fr.le360.ma/economie/lancement-imminent-dun-nouveau-barrage-dans-le-loukkos-pour-soulager-oued-el-makhazine_7IOLBLL6RFAB3GTSIXY67I4L5M/)
+- **Plaine du Loukkos: Renforcement de la protection des infrastructures hydro-agricoles**: [Link](https://www.maroc.ma/fr/actualites/plaine-du-loukkos-renforcement-de-la-protection-des-infrastructures-hydro-agricoles)
+
+
 ### jannik sinner (N/A, Mon, 16 Feb 2026 09:20:00 -0800)
 
 - **ATP Doha 2026, Sinner dimentica il ko con Djokovic e travolge Machac: al 2° turno con Popyrin**: [Link](https://www.lottomatica.sport/news/tennis/atp-doha-2026-sinner-dimentica-il-ko-con-djokovic-e-travolge-machac-al-2-turno-con-popyrin/)
