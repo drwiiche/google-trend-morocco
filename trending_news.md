@@ -1,3 +1,17 @@
+### رمضان (N/A, Mon, 16 Feb 2026 11:30:00 -0800)
+
+- **تركيا وعمان وسنغافورة وقطر يعلنون موعد أول أيام شهر رمضان 2026**: [Link](https://www.youm7.com/story/2026/2/13/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D9%88%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86%D9%88%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86/7303890)
+- **جمعية الشعرى.. هذا أول أيام رمضان بالجزائر فلكيا**: [Link](https://www.ennaharonline.com/%D8%AC%D9%85%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D8%B9%D8%B1%D9%89-%D9%87%D8%B0%D8%A7-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%AC%D8%B2%D8%A7/)
+- **السعودية.. المحكمة العليا تحدد موعد تحري هلال رمضان 2026**: [Link](https://arabic.cnn.com/middle-east/article/2026/02/15/saudi-ramadan-2026-date-observation-hight-court-statement)
+
+
+### محمد بن زايد (N/A, Mon, 16 Feb 2026 11:30:00 -0800)
+
+- **بعد أنباء تعرضه لوعكة.. الشيخ محمد بن زايد يرسل رسالة طمأنة عن وضعه الصحي**: [Link](https://www.egyptke.com/190805)
+- **رئيس دولة الإمارات يجري اتصالا هاتفيا مع رئيس وزراء اليونان - المشهد**: [Link](https://almashhad.com/article/773112298002792-News/426971778078304-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%B1%D8%A6%D9%8A%D8%B3-%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-%D9%8A%D8%A8%D8%AD%D8%AB%D8%A7%D9%86-%D9%87%D8%A7%D8%AA%D9%81%D9%8A%D8%A7-%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A9/)
+- **رئيس الدولة يجري اتصالا هاتفيا مع رئيس وزراء اليونان**: [Link](https://alwatan.ae/posts/1598938)
+
+
 ### girona – barcelone (N/A, Mon, 16 Feb 2026 11:10:00 -0800)
 
 - **PREVIEW | Girona v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4450834/preview-girona-v-fc-barcelona)
