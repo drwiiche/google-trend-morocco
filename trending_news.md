@@ -1,3 +1,10 @@
+### aid el fitr 2026 (N/A, Mon, 16 Feb 2026 01:50:00 -0800)
+
+- **Voici la date de Aïd al-Fitr 2026 au Maroc selon le calcul astronomique**: [Link](https://medias24.com/2026/02/13/voici-la-date-de-aid-al-fitr-2026-au-maroc-selon-le-calcul-astronomique-1627599/)
+- **Avertissement : Observer le croissant de Ramadan à l'œil nu peut provoquer la cécité !**: [Link](https://www.arabiaweather.com/fr/content/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%B1%D8%B5%D8%AF-%D9%87%D9%84%D8%A7%D9%84-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%AC%D8%B1%D8%AF%D8%A9-%D9%82%D8%AF-%D9%8A%D8%B3%D8%A8%D8%A8-%D9%81%D9%82%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%A8%D8%B5%D8%B1)
+- **Observation mardi du croissant lunaire du Ramadhan 1447 H**: [Link](https://www.aps.dz/fr/algerie/societe/mlo47noo-observation-mardi-du-croissant-lunaire-du-ramadhan-1447-h)
+
+
 ### رمضان 2026 (N/A, Mon, 16 Feb 2026 03:10:00 -0800)
 
 - **دليلك لأقوى مسلسلات رمضان... دراما 2026 تستوحي حكاياتها من الواقع**: [Link](https://aawsat.com/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%B1%D9%82/5240970-%D8%AF%D9%84%D9%8A%D9%84%D9%83-%D9%84%D8%A3%D9%82%D9%88%D9%89-%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-2026-%D8%AA%D8%B3%D8%AA%D9%88%D8%AD%D9%8A-%D8%AD%D9%83%D8%A7%D9%8A%D8%A7%D8%AA%D9%87%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%A7%D9%82%D8%B9)
