@@ -1,3 +1,17 @@
+### ramadan 2026 (N/A, Mon, 16 Feb 2026 00:20:00 -0800)
+
+- **Ramadan 2026 Forecasted to Start on February 19 in Pakistan**: [Link](https://www.moroccoworldnews.com/2026/02/278794/ramadan-2026-forecasted-to-start-on-february-19-in-pakistan/)
+- **The Supreme Court calls for the sighting of the crescent moon of Ramadan 1447 on Tuesday evening**: [Link](https://news50.sa/en/local/supreme-court-calls-sighting-ramadan-crescent-1447/)
+- **Saudi Supreme Court Calls on Muslims to Sight Ramadan Crescent on Tuesday Evening**: [Link](https://english.aawsat.com/gulf/5241170-saudi-supreme-court-calls-muslims-sight-ramadan-crescent-tuesday-evening)
+
+
+### lyon fc (N/A, Sun, 15 Feb 2026 13:50:00 -0800)
+
+- **CN U17 – J19 : Les Gones remportent le choc face à Sochaux et creusent l’écart en tête (4-2)**: [Link](https://www.ol.fr/fr/actualites/cn-u17-j19-les-gones-remportent-le-choc-face-a-sochaux-et-creusent-l-ecart-en-tete-4-2)
+- **[VIDÉO] OL : un jeune joueur de 17 ans marque un but de plus de 70 mètres !**: [Link](https://www.radioscoop.com/sport/video-ol-un-jeune-joueur-de-17-ans-marque-un-but-de-plus-de-70-metres_349040)
+- **Football. VIDEO. Avec un but rare de 70 m, les U17 de l'OL consolident leur leadership**: [Link](https://www.leprogres.fr/sport/2026/02/16/ol-academie-avec-un-but-rare-de-70-m-les-u17-consolident-leur-leadership)
+
+
 ### sporting – famalicão (N/A, Sun, 15 Feb 2026 13:50:00 -0800)
 
 - **Miguel Ribeiro explode: “VAR anda de lupa, e sempre para o mesmo lado”**: [Link](https://onefootball.com/de/news/miguel-ribeiro-explode-var-anda-de-lupa-e-sempre-para-o-mesmo-lado-42416799)
