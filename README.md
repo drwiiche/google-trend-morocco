@@ -1,3 +1,24 @@
+### iphone 18 pro (N/A, Mon, 16 Feb 2026 14:50:00 -0800)
+
+- **Five iPhone 18 Pro Features Revealed in New Report**: [Link](https://www.macrumors.com/2026/02/13/five-iphone-18-pro-features-revealed-in-new-report/)
+- **Report: Apple testing camera with variable aperture for iPhone 18 series**: [Link](https://www.jpost.com/consumerism/article-886074)
+- **iPhone 18 Pro’s new C2 chip will bring three advantages over iPhone 17**: [Link](https://9to5mac.com/2026/02/12/iphone-18-pros-new-c2-chip-will-bring-three-advantages-over-iphone-17/)
+
+
+### kooora (N/A, Mon, 16 Feb 2026 14:20:00 -0800)
+
+- **تصعيد رسمي وموقف حاسم.. الأهلي يكشف الحقائق بعد فوضى مباراة الجيش الملكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%B1%D8%B3%D9%85%D9%8A-%D9%88%D9%85%D9%88%D9%82%D9%81-%D8%AD%D8%A7%D8%B3%D9%85--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AD%D9%82%D8%A7%D9%8A%D9%94%D9%82-%D8%A8%D8%B9%D8%AF-%D9%81%D9%88%D8%B6%D9%89-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A/blt991ba179ab032827)
+- **الأهلي يحاول الإفلات من العقوبات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%AD%D8%A7%D9%88%D9%84-%D8%A7%D9%84%D8%A5%D9%81%D9%84%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-1702816.html)
+- **دوري أبطال أفريقيا.. "الكاف" يدين حوادث الأهلي ضد الجيش الملكي ويحيلها للجنة الانضباط**: [Link](https://www.aljazeera.net/sport/2026/2/16/%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+
+
+### teheran serie (N/A, Mon, 16 Feb 2026 14:00:00 -0800)
+
+- **„Teheran“-Produzentin: Dana Eden leblos in Hotel gefunden**: [Link](https://www.bild.de/unterhaltung/stars-und-leute/teheran-produzentin-dana-eden-leblos-in-hotel-gefunden-6992e51cd5f9f0ad1f6e89cb)
+- **„Teheran“-Produzentin Dana Eden in Athen tot aufgefunden**: [Link](https://orf.at/stories/3420368/)
+- **"Teheran"-Serienmacher kontern Spekulationen**: [Link](https://www.n-tv.de/leute/Teheran-Serienmacher-kontern-Spekulationen-id30368622.html)
+
+
 ### as (N/A, Mon, 16 Feb 2026 14:00:00 -0800)
 
 - **Ricardo Clark brings Sounders ethos and fresh perspective into first season as First Team assistant**: [Link](https://www.soundersfc.com/news/ricardo-clark-brings-sounders-ethos-and-fresh-perspective-into-first-season-as-first-team-assistant)
