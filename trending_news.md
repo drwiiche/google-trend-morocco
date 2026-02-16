@@ -1,3 +1,38 @@
+### classement la liga (N/A, Mon, 16 Feb 2026 13:30:00 -0800)
+
+- **DIRECT. Gérone-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-fc-barcelone-live/676949)
+- **Girona - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a7243581629093294484-girona-fc-barcelone-les-compositions-officielles)
+- **Accident ou début de crise ? Le Barça face à ses principes**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/liga-entre-doutes-et-ajustement-tactiques-le-barca-a-un-tournant-face-a-gerone_sto23270707/story.shtml)
+
+
+### barca (N/A, Mon, 16 Feb 2026 13:20:00 -0800)
+
+- **Dinghy a chiglia: Sailhorse è ora in costruzione da Neptun**: [Link](https://www.yacht.de/it/yachts/gommoni/dinghy-a-chiglia-sailhorse-e-ora-in-costruzione-da-neptun/)
+- **Salerno, barca non rimossa nonostante la diffida della Capitaneria: pronto l’esposto**: [Link](https://www.salernotoday.it/cronaca/diffida-barca-balnea-esposto-mercatello-16-febbraio-2026.html)
+- **Degrado al lido Balnea, imbarcazione abbandonata e rifiuti**: [Link](https://www.liratv.it/news/cronaca/degrado-al-lido-balnea-imbarcazione-abbandonata-e-rifiuti/)
+
+
+### fcb (N/A, Mon, 16 Feb 2026 13:20:00 -0800)
+
+- **Barcelona receive major injury boost as star attacker cleared to play vs Girona**: [Link](https://barcauniversal.com/barcelona-receive-major-injury-boost-as-star-attacker-cleared-to-play-vs-girona/)
+- **Barça look to Raphinha after Atlético rout**: [Link](https://onefootball.com/en/news/barca-look-to-raphinha-after-atletico-rout-42417279)
+- **Flick welcomes Raphinha return as Barca target LaLiga summit**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/flick-welcomes-raphinha-return-as-barca-target-laliga-summit-2026-02-15)
+
+
+### barack obama (N/A, Mon, 16 Feb 2026 13:20:00 -0800)
+
+- **Obama addresses racist video shared by Trump depicting him as an ape**: [Link](https://www.bbc.com/news/articles/c74754j7qwgo)
+- **My Conversation with Brian Tyler Cohen**: [Link](https://barackobama.medium.com/my-conversation-with-brian-tyler-cohen-e25cac125f44)
+- **Obama said that Americans still value 'decency, courtesy and kindness'**: [Link](https://www.facebook.com/ManchesterEveningNews/posts/obama-said-that-americans-still-value-decency-courtesy-and-kindness/1374438671385161/)
+
+
+### lamine yamal (N/A, Mon, 16 Feb 2026 13:00:00 -0800)
+
+- **Nico Williams seeks private specialist to avoid season-ending surgery**: [Link](https://www.besoccer.com/new/nico-williams-seeks-private-specialist-treatment-for-pubalgia-1394994)
+- **Lamine Yamal hit with huge setback as Spain star teammate in doubt for Finalissima vs. Argentina**: [Link](https://worldsoccertalk.com/news/lamine-yamal-hit-with-huge-setback-as-spain-star-teammate-in-doubt-for-finalissima-vs-argentina/)
+- **Nico begins treatment in Pamplona as pubalgia persists**: [Link](https://onefootball.com/fr/news/nico-begins-treatment-in-pamplona-as-pubalgia-persists-42419885)
+
+
 ### ترتيب الدوري الاسباني (N/A, Mon, 16 Feb 2026 12:50:00 -0800)
 
 - **ترتيب هدافي الدوري الإسباني بعد ثنائية فينيسيوس في مباراة ريال مدريد وريال سوسيداد**: [Link](https://www.btolat.com/news/393372)
