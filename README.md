@@ -1,3 +1,10 @@
+### al-ahli saudi – shabab al-ahli (N/A, Mon, 16 Feb 2026 07:50:00 -0800)
+
+- **Al-Ahli Saudi's Expected Lineup Against Shabab Al-Ahli**: [Link](https://www.ysscores.com/en/news/13912201/Al-Ahli-Saudi's-Expected-Lineup-Against-Shabab-Al-Ahli)
+- **Al Ahli Saudi FC and Shabab Al Ahli Dubai Clash in Key Matchup**: [Link](https://news.ssbcrack.com/al-ahli-saudi-fc-and-shabab-al-ahli-dubai-clash-in-key-matchup/)
+- **Al Ahli Vs Shabab Al-Ahli Live score, AFC Champions League Elite: Saudi Favourites Tested By Resilient Opponents**: [Link](https://www.outlookindia.com/sports/football/al-ahli-vs-shabab-al-ahli-live-score-afc-champions-league-elite-2025-26-group-b-matchday-8-updates-highlights)
+
+
 ### x (N/A, Mon, 16 Feb 2026 06:10:00 -0800)
 
 - **X down? Users report widespread outage Monday morning**: [Link](https://www.kron4.com/news/national/x-down-users-report-widespread-outage-monday-morning/)
