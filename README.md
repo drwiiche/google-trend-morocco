@@ -1,3 +1,10 @@
+### ترتيب الدوري الاسباني (N/A, Mon, 16 Feb 2026 12:50:00 -0800)
+
+- **ترتيب هدافي الدوري الإسباني بعد ثنائية فينيسيوس في مباراة ريال مدريد وريال سوسيداد**: [Link](https://www.btolat.com/news/393372)
+- **بالأرقام.. مبابي يتفوق على يامال وفينيسيوس في سباق الإبداع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%81%D9%8A-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D8%A7%D9%95%D8%A8%D8%AF%D8%A7%D8%B9/bltd12cb5e24a883fb0)
+- **سباق النجوم.. قائمة أفضل 5 لاعبين في الموسم الحالي**: [Link](https://www.elbalad.news/6865675)
+
+
 ### fc barcelone (N/A, Mon, 16 Feb 2026 12:30:00 -0800)
 
 - **DIRECT. Gérone-FC Barcelone (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-fc-barcelone-live/676949)
