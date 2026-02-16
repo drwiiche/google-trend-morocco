@@ -1,3 +1,10 @@
+### sporting – famalicão (N/A, Sun, 15 Feb 2026 13:50:00 -0800)
+
+- **Miguel Ribeiro explode: “VAR anda de lupa, e sempre para o mesmo lado”**: [Link](https://onefootball.com/de/news/miguel-ribeiro-explode-var-anda-de-lupa-e-sempre-para-o-mesmo-lado-42416799)
+- **A análise de Pedro Henriques à arbitragem do Sporting-Famalicão**: [Link](https://www.abola.pt/noticias/a-analise-de-pedro-henriques-a-arbitragem-do-sporting-famalicao-2026021600432335174)
+- **Presidente do Famalicão critica equipa de arbitragem: «Não acredito que anulassem este golo ao Sporting»**: [Link](https://www.zerozero.pt/videos/conferencias/presidente-do-famalicao-critica-equipa-de-arbitragem-nao-acredito-que-anulassem-este-golo-ao-sporting-/1420465)
+
+
 ### sporting (N/A, Sun, 15 Feb 2026 14:00:00 -0800)
 
 - **Sporting 0–0 Famalicão | Visitantes marcaram, mas o golo foi anulado**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/20260215-193215-o-onze-do-sporting-para-o-jogo-com-o-famalicao)
