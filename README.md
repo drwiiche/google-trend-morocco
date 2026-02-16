@@ -1,3 +1,10 @@
+### jeux olympiques d hiver 2026 medailles (N/A, Mon, 16 Feb 2026 10:50:00 -0800)
+
+- **Voici le montant d'argent que Nick Suzuki et ses coéquipiers recevront s'ils gagnent la médaille d'or à Milan**: [Link](https://www.habsetlnh.com/equipe-lnh/canadiens-de-montreal/jo-2026-voici-le-montant-precis-que-nick-suzuki-touchera-pour-or)
+- **Les pays qui paient le mieux les athlètes médaillés aux JO 2026**: [Link](https://www.20minutes.fr/sport/4201267-20260213-jo-hiver-2026-pays-paient-mieux-moins-athletes-medailles)
+- **Des écarts de masse salariale qui donnent le vertige aux Jeux olympiques**: [Link](https://www.habsolumentfan.com/autres-ligues/des-ecarts-de-masse-salariale-qui-donnent-le-vertige-aux-jeux-olympiques)
+
+
 ### رمضان (N/A, Mon, 16 Feb 2026 11:30:00 -0800)
 
 - **تركيا وعمان وسنغافورة وقطر يعلنون موعد أول أيام شهر رمضان 2026**: [Link](https://www.youm7.com/story/2026/2/13/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D9%88%D8%B9%D9%85%D8%A7%D9%86-%D9%88%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86%D9%88%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86/7303890)
