@@ -1,3 +1,17 @@
+### لا ليغا (N/A, Mon, 16 Feb 2026 13:20:00 -0800)
+
+- **ناصر بن حمد: تعزيز الحضور البحريني في الملاعب الأوروبية**: [Link](https://www.alayam.com/alayam/first/1122857/News.html)
+- **ناصر بن حمد يستقبل رئيس "لاليغا" ويؤكد أهمية الشراكات الرياضية الدولية**: [Link](https://menafn.com/arabic/1110744830/%D9%86%D8%A7%D8%B5%D8%B1-%D8%A8%D9%86-%D8%AD%D9%85%D8%AF-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D9%84%D8%A7%D9%84%D9%8A%D8%BA%D8%A7-%D9%88%D9%8A%D9%88%D9%94%D9%83%D8%AF-%D8%A7%D9%94%D9%87%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D8%A7%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D8%A9)
+- **ريال سوسييداد يستعد لأوفيدو وعودة محتملة للاعبين**: [Link](http://www.elbotola.com/article/2026-02-16-18-30-275.html)
+
+
+### match barca (N/A, Mon, 16 Feb 2026 13:00:00 -0800)
+
+- **Girona vs. Barcelona (16 Feb, 2026) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/748381)
+- **Iowa 80-67 Nebraska (Feb 16, 2026) Game Recap**: [Link](http://www.espn.com/ncw/recap?gameId=401825349)
+- **Kentucky 75-55 Texas A&M (Feb 12, 2026) Game Recap**: [Link](https://www.espn.com/womens-college-basketball/recap/_/gameId/401807619)
+
+
 ### classement la liga (N/A, Mon, 16 Feb 2026 13:30:00 -0800)
 
 - **DIRECT. Gérone-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/girona-fc-barcelone-live/676949)
