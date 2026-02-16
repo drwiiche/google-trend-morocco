@@ -1,3 +1,15 @@
+### pix (N/A, Mon, 16 Feb 2026 01:40:00 -0800)
+
+- **Mais de 5 mil clientes de Pix no Agibank tiveram dados vazados**: [Link](https://gauchazh.clicrbs.com.br/colunistas/giane-guerra/noticia/2026/02/mais-de-5-mil-clientes-de-pix-no-agibank-tiveram-dados-vazados-cmloz4g01000b013km0hgmwia.html)
+- **BC comunica vazamento de dados de quase 5,3 mil chaves Pix do Agibank; saiba o que fazer**: [Link](https://opopular.com.br/economia/bc-comunica-vazamento-de-dados-de-quase-5-3-chaves-pix-do-agibank-saiba-o-que-fazer-1.3374376)
+- **Banco Central comunica incidente com chaves Pix de clientes do Agibank**: [Link](https://www.capitalnews.com.br/economia-e-agronegocio/economia/banco-central-comunica-incidente-com-chaves-pix-de-clientes-do-agibank/435781)
+
+
+### ramadan maroc (N/A, Mon, 16 Feb 2026 00:30:00 -0800)
+
+
+
+
 ### ramadan 2026 (N/A, Mon, 16 Feb 2026 00:20:00 -0800)
 
 - **Ramadan 2026 Forecasted to Start on February 19 in Pakistan**: [Link](https://www.moroccoworldnews.com/2026/02/278794/ramadan-2026-forecasted-to-start-on-february-19-in-pakistan/)
