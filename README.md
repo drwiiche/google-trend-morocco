@@ -1,3 +1,10 @@
+### where to watch champions league (N/A, Mon, 16 Feb 2026 19:00:00 -0800)
+
+- **Champions League play-offs: Benfica v Real Madrid - Mourinho preview**: [Link](https://www.bbc.com/sport/football/articles/cvg39xezen1o)
+- **Real Madrid: Eduardo Camavinga makes a confession**: [Link](https://foot-africa.com/en/news/real-madrid-eduardo-camavinga-makes-a-confession-1089074/)
+- **Revenge not on Arbeloa's mind as Madrid urged to deliver 'complete' display at Benfica**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/revenge-not-on-arbeloas-mind-as-madrid-urged-to-deliver-complete-display-at-benfica-2026-02-16)
+
+
 ### latest iphone rumors (N/A, Mon, 16 Feb 2026 22:30:00 -0800)
 
 - **Five iPhone 18 Pro Features Revealed in New Report**: [Link](https://www.macrumors.com/2026/02/13/five-iphone-18-pro-features-revealed-in-new-report/)
