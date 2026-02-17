@@ -1,3 +1,43 @@
+### real madrid (N/A, Tue, 17 Feb 2026 11:00:00 -0800)
+
+- **Alineación posible del Real Madrid hoy contra el Benfica en la Champions League**: [Link](https://as.com/futbol/champions/alineacion-posible-del-real-madrid-hoy-contra-el-benfica-en-la-champions-league-f202602-n/)
+- **Arbeloa: "El objetivo es ganar la Champions, no una venganza con el Benfica"**: [Link](https://www.marca.com/futbol/real-madrid/2026/02/16/arbeloa-objetivo-ganar-champions-venganza-benfica.html)
+- **El partido entre el equipo portugués y el club blanco tendrá lugar en el Estadio Da Luz este martes 17 de febrero**: [Link](https://www.facebook.com/InfobaeEspana/posts/el-partido-entre-el-equipo-portugu%C3%A9s-y-el-club-blanco-tendr%C3%A1-lugar-en-el-estadio/882607824747753/)
+
+
+### hespress (N/A, Tue, 17 Feb 2026 10:40:00 -0800)
+
+
+
+
+### real madrid vs benfica (N/A, Tue, 17 Feb 2026 10:30:00 -0800)
+
+- **Champions League play-offs: Benfica v Real Madrid - Mourinho preview**: [Link](https://www.bbc.com/sport/football/articles/cvg39xezen1o)
+- **Arbeloa: "Our Goal Is Not Just to Eliminate Benfica, But to Win the Champions League"**: [Link](https://m.elbotola.com/en/article/2026-02-16-21-18-779.html)
+- **Fenerbahce 5th & Man Utd 7th: José Mourinho's points record at every club ranked**: [Link](https://www.transfermarkt.com/fenerbahce-5th-amp-man-utd-7th-jose-mourinhos-points-record-at-every-club-ranked/view/news/475533)
+
+
+### juventus (N/A, Tue, 17 Feb 2026 10:10:00 -0800)
+
+- **Juventus e Galatasaray si sfidano per un posto agli ottavi! Segui il match in diretta**: [Link](https://www.bluewin.ch/it/sport/champions-league/juventus-e-galatasaray-si-sfidano-per-un-posto-agli-ottavisegui-il-match-in-diretta-3102524.html)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-bastoni-chiede-scusa-in-campo-galatasaray-juventus-2-2/tWcCISYF/)
+- **Playoff UCL | Le formazioni ufficiali di Galatasaray-Juventus**: [Link](https://www.juventus.com/it/news/articoli/playoff-ucl-2025-2026-galatasaray-juventus-formazioni-ufficiali)
+
+
+### رئيس دولة الامارات محمد بن زايد (N/A, Tue, 17 Feb 2026 09:40:00 -0800)
+
+- **أردوغان يعلن تأجيل زيارته لأبوظبي بسبب "عارض صحي" لمحمد بن زايد**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260216-%D8%A3%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D8%A3%D8%A8%D9%88%D8%B8%D8%A8%D9%8A-%D8%B9%D8%A7%D8%B1%D8%B6-%D8%B5%D8%AD%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D9%86-%D8%B2%D8%A7%D9%8A%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7)
+- **الرئيس أردوغان يبحث مع نظيره الإماراتي فرص التعاون وتعزيز العلاقات**: [Link](https://www.aa.com.tr/ar/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A3%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%85%D8%B9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%81%D8%B1%D8%B5-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%88%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-/3830936)
+- **ندوة لـ”تريندز” تناقش “علاقات تركيا بالشرق الأوسط وشمال إفريقيا”**: [Link](https://alwatan.ae/posts/1598777)
+
+
+### ramadan france 2026 (N/A, Tue, 17 Feb 2026 07:50:00 -0800)
+
+- **Morocco to Sight Crescent Moon for Ramadan 2026 on Wednesday**: [Link](https://www.moroccoworldnews.com/2026/02/279027/morocco-to-sight-crescent-moon-for-ramadan-2026-on-wednesday/)
+- **Ramadan 2026 date: Ramadan go start on Wednesday as dem sight crescent moon for Saudi Arabia**: [Link](https://www.bbc.com/pidgin/articles/cwy8j8pymlgo)
+- **Moon sighting is a key part of Muslim life – how the lunar cycle determines the start of Ramadan and Eid**: [Link](https://theconversation.com/moon-sighting-is-a-key-part-of-muslim-life-how-the-lunar-cycle-determines-the-start-of-ramadan-and-eid-276195)
+
+
 ### galatasaray vs juventus (N/A, Tue, 17 Feb 2026 09:50:00 -0800)
 
 - **Champions League Preview: Juventus vs. Galatasaray**: [Link](https://www.blackwhitereadallover.com/previews-reviews/36495/galatasaray-juventus-2026-champions-league-playoff-round-leg-1-preview-team-news-schedule-how-to-watch)
