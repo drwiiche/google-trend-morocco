@@ -1,3 +1,17 @@
+### latest iphone rumors (N/A, Mon, 16 Feb 2026 22:30:00 -0800)
+
+- **Five iPhone 18 Pro Features Revealed in New Report**: [Link](https://www.macrumors.com/2026/02/13/five-iphone-18-pro-features-revealed-in-new-report/)
+- **As a former phone engineer, I have some serious concerns about Apple potentially introducing variable apertures into the iPhone 18 Pro**: [Link](https://www.tomsguide.com/phones/iphones/as-a-former-phone-engineer-i-have-some-serious-concerns-about-apple-potentially-introducing-variable-apertures-into-the-iphone-18-pro)
+- **iPhone 18 Pro’s new C2 chip will bring three advantages over iPhone 17**: [Link](https://9to5mac.com/2026/02/12/iphone-18-pros-new-c2-chip-will-bring-three-advantages-over-iphone-17/)
+
+
+### وفاة محمد بن زايد (N/A, Mon, 16 Feb 2026 15:10:00 -0800)
+
+- **أردوغان يعلن تأجيل زيارته لأبوظبي بسبب "عارض صحي" لمحمد بن زايد**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260216-%D8%A3%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D8%A3%D8%A8%D9%88%D8%B8%D8%A8%D9%8A-%D8%B9%D8%A7%D8%B1%D8%B6-%D8%B5%D8%AD%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D9%86-%D8%B2%D8%A7%D9%8A%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7)
+- **مجلس الأعمال التركي-الإماراتي: نهدف لتبادل تجاري بقيمة 40 مليار دولار**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%86%D9%87%D8%AF%D9%81-%D9%84%D8%AA%D8%A8%D8%A7%D8%AF%D9%84-%D8%AA%D8%AC%D8%A7%D8%B1%D9%8A-%D8%A8%D9%82%D9%8A%D9%85%D8%A9-40-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D9%88%D9%84%D8%A7%D8%B1/3830560)
+- **هل تؤكد غلطة أردوغان إشاعة مرض رئيس دولة الإمارات محمد بن زايد؟**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260216-%D9%87%D9%84-%D8%AA%D8%A4%D9%83%D8%AF-%D8%BA%D9%84%D8%B7%D8%A9-%D8%A3%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D8%A5%D8%B4%D8%A7%D8%B9%D8%A9-%D9%85%D8%B1%D8%B6-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%AF%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D9%86-%D8%B2%D8%A7%D9%8A%D8%AF)
+
+
 ### 2026 winter olympics men's freestyle skiing big air results (N/A, Mon, 16 Feb 2026 16:30:00 -0800)
 
 - **Day 10 Roundup: China's Gu adds silver in big air, Velzeboer achieves golden double in short track**: [Link](https://english.news.cn/20260217/ef817b9107a84b9d8d13148b4a9f4e0a/c.html)
