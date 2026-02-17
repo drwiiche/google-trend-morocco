@@ -1,3 +1,17 @@
+### galatasaray – juventus (N/A, Tue, 17 Feb 2026 09:00:00 -0800)
+
+- **Galatasaray'da Okan Buruk'un Sane kararı belli oldu**: [Link](https://www.yenicaggazetesi.com/galatasarayda-okan-burukun-sane-karari-belli-oldu-1002013h.htm)
+- **Günay Güvenç'ten Juventus yorumu: "Taraftarlarımızı ve camiamızı mutlu etmek istiyoruz"**: [Link](https://www.ntvspor.net/futbol/gunay-guvencten-juventus-yorumu-taraftarlarimizi-ve-camiamizi-mutlu-etmek-istiyoruz-417906)
+- **Şampiyonlar Ligi'nde bu hafta hangi maçlar var? Şampiyonlar Ligi'nde son 16 play-off turu heyecanı bu akşam başlıyor**: [Link](https://www.ntv.com.tr/sporskor/sampiyonlar-liginde-bu-hafta-hangi-maclar-var-sampiyonlar-liginde-son-16-play-off-turu-heyecani-bu-aksam-basliyor-1712326)
+
+
+### carlos alcaraz (N/A, Tue, 17 Feb 2026 08:50:00 -0800)
+
+- **Alcaraz es un vendaval en Doha ante Tsitsipas: cede tres juegos en el último test antes del debut**: [Link](https://www.marca.com/tenis/2026/02/16/alcaraz-vendaval-doha-tsitsipas-cede-tres-juegos-ultimo-test-debut.html)
+- **Río de Janeiro y Qatar: qué pasará en los torneos ATP 500 de esta semana**: [Link](https://www.sportytrader.com/es/actualidad/atp-rio-de-janeiro-open-doha-500-pronosticos-tenis/)
+- **Horarios y orden de juego (día 2): Primera noche catarí para Alcaraz y tres españoles**: [Link](https://espanol.eurosport.com/tenis/atp-doha/2026/cuadro-orden-de-juego-horario-canal-tv-donde-ver-carlos-alcaraz-jannik-sinner-doha_sto23271782/story.shtml)
+
+
 ### ramadan 2026 arabie saoudite (N/A, Tue, 17 Feb 2026 07:40:00 -0800)
 
 - **Ramadan 2026 : mercredi 18 février ou jeudi 19, la date de début du mois du jeûne encore en balance en France**: [Link](https://www.liberation.fr/societe/religions/ramadan-2026-mercredi-18-fevrier-ou-jeudi-19-la-date-de-debut-du-mois-du-jeune-encore-en-balance-en-france-20260216_7SCOFV2OKFG7PPM6GZSFC2TL5E/)
