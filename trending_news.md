@@ -1,3 +1,24 @@
+### yallakora (N/A, Tue, 17 Feb 2026 12:40:00 -0800)
+
+- **الهلال السوداني: لا نخشى مواجهة الأهلي في دوري أبطال أفريقيا**: [Link](https://www.yallakora.com/african-champions-league/2965/news/541787/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D9%84%D8%A7%D9%86%D8%AE%D8%B4%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **الهلال السودانى عن مواجهة الأهلي المحتملة: لا نخشي أي فريق في إفريقيا**: [Link](https://www.elnabaa.net/1158583/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%89-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%85%D9%84%D8%A9-%D9%84%D8%A7-%D9%86%D8%AE%D8%B4%D9%8A-%D8%A3%D9%8A-%D9%81%D8%B1%D9%8A%D9%82-%D9%81%D9%8A-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **شروط قاسية من أنشيلوتي لعودة نيمار إلى المنتخب البرازيلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%B1%D9%88%D8%B7-%D9%82%D8%A7%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%86%D9%8A%D9%85%D8%A7%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A/bltdc00b0eab6a1a4df)
+
+
+### rma (N/A, Tue, 17 Feb 2026 12:40:00 -0800)
+
+- **5PCS/LOT KINGBO RMA-218 10cc Solder Flux Paste For BGA Solder Station**: [Link](https://hotelier.com.py/product/KINGBO-RMA-218-10cc-Solder-Flux-Paste-For-BGA-Solder-Station/850345)
+- **RMA overhaul: Farmers accuse Govt of ‘water tax’ door**: [Link](https://businessdesk.co.nz/article/primary-sector/rma-overhaul-farmers-accuse-govt-of-water-tax-door)
+- **Coalition promises to snuff out feared 'water tax' for farmers**: [Link](https://www.rnz.co.nz/news/top/586738/coalition-promises-to-snuff-out-feared-water-tax-for-farmers)
+
+
+### yalla kora (N/A, Tue, 17 Feb 2026 12:20:00 -0800)
+
+- **فتحي سند يعلق على تأهل سيراميكا كليوباترا لربع نهائي كأس مصر**: [Link](https://iq.arabsvoice.net/110760/)
+- **أضا: الزمالك فقد هويته بغياب الجماهير.. وسيراميكا كليوباترا استحق الفوز**: [Link](https://elbaladtv.net/%D8%A3%D8%B6%D8%A7-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%81%D9%82%D8%AF-%D9%87%D9%88%D9%8A%D8%AA%D9%87-%D8%A8%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1)
+- **سيراميكا كليوباترا يعلن تعاقده مع المهاجم النيجيري ماثيو**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=11022026&id=46a3f4b2-e696-41cf-b6e1-ddb14e907b0e)
+
+
 ### koora tv (N/A, Tue, 17 Feb 2026 12:10:00 -0800)
 
 - **جدول مباريات اليوم الأحد 15 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-15-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt5611553b859e1d86)
