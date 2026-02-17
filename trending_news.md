@@ -1,3 +1,15 @@
+### galatasaray vs juventus (N/A, Tue, 17 Feb 2026 09:50:00 -0800)
+
+- **Champions League Preview: Juventus vs. Galatasaray**: [Link](https://www.blackwhitereadallover.com/previews-reviews/36495/galatasaray-juventus-2026-champions-league-playoff-round-leg-1-preview-team-news-schedule-how-to-watch)
+- **Follow the UEFA Champions League playoff first legs LIVE!**: [Link](https://www.flashscore.com/news/soccer-champions-league-champions-league-live-juventus-striker-less-for-crunch-playoff-clash-with-galatasaray/23PlGDtS/)
+- **Spalletti: ‘Osimhen a complete striker, Juventus all about the press’**: [Link](https://sports.yahoo.com/articles/spalletti-osimhen-complete-striker-juventus-173000073.html)
+
+
+### ramadan france (N/A, Tue, 17 Feb 2026 08:40:00 -0800)
+
+
+
+
 ### galatasaray – juventus (N/A, Tue, 17 Feb 2026 09:00:00 -0800)
 
 - **Galatasaray'da Okan Buruk'un Sane kararı belli oldu**: [Link](https://www.yenicaggazetesi.com/galatasarayda-okan-burukun-sane-karari-belli-oldu-1002013h.htm)
