@@ -1,3 +1,17 @@
+### habous (N/A, Tue, 17 Feb 2026 00:40:00 -0800)
+
+- **Le Roi Mohammed VI ordonne l'ouverture de 157 mosquées pour le Ramadan**: [Link](https://medias24.com/2026/02/16/le-roi-mohammed-vi-ordonne-louverture-de-157-mosquees-pour-le-ramadan-1628927/)
+- **Ramadan : le roi ordonne l'ouverture des 157 mosquées édifiées, reconstruites ou restaurées**: [Link](https://telquel.ma/instant-t/2026/02/16/ramadan-le-roi-ordonne-louverture-des-157-mosquees-edifiees-reconstruites-ou-restaurees_1975494/)
+- **S.M. le Roi Mohammed VI ordonne l'ouverture au début du Ramadan des mosquées édifiées, reconstruites ou restaurées**: [Link](https://lematin.ma/activites-royales/ramadan-sm-le-roi-ordonne-louverture-des-mosquees-edifiees-ou-restaurees/330197)
+
+
+### شعبان (N/A, Mon, 16 Feb 2026 23:50:00 -0800)
+
+- **هل اليوم هو آخر أيام شهر شعبان؟ دليلك الكامل لموعد غرة رمضان 2026**: [Link](https://www.matnnews.com/269455)
+- **تعرف على التاريخ الهجري اليوم.. ما موعد صيام رمضان؟**: [Link](https://www.elwatannews.com/news/details/8225176)
+- **النهاردة كام شعبان؟ ورقة النتيجة اليوم بالتاريخ الهجري يوافق الاثنين 16 فبراير 2026**: [Link](https://m.khabars7.com/128835/%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%B1%D8%AF%D8%A9-%D9%83%D8%A7%D9%85-%D8%B4%D8%B9%D8%A8%D8%A7%D9%86%D8%9F-%D9%88%D8%B1%D9%82%D8%A9-%D8%A7%D9%84%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A7%D9%84%D9%8A%D9%88/)
+
+
 ### when is ramadan (N/A, Tue, 17 Feb 2026 00:10:00 -0800)
 
 - **Ramadan 2026: Fasting hours, suhoor and iftar times around the world**: [Link](https://www.aljazeera.com/news/2026/2/15/ramadan-2026-fasting-hours-suhoor-and-iftar-times-around-the-world)
