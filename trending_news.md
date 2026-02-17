@@ -1,3 +1,24 @@
+### dortmund vs atalanta (N/A, Tue, 17 Feb 2026 13:00:00 -0800)
+
+- **Guirassy stars as Dortmund dispatch Atalanta**: [Link](https://www.bbc.com/sport/football/live/cev79r79338t)
+- **Nico Schlotterbeck and Niklas Süle to miss Borussia Dortmund's Champions League game against Atalanta**: [Link](https://www.getfootballnewsgermany.com/2026/schlotterbeck-sule-dortmund/)
+- **Bergamo coach ahead of reunion with former teammate: “Meeting a strong team”**: [Link](https://onefootball.com/de/news/bergamo-coach-ahead-of-reunion-with-former-teammate-meeting-a-strong-team-42424017)
+
+
+### real madrid cf (N/A, Tue, 17 Feb 2026 12:20:00 -0800)
+
+- **Real Madrid starlet handed senior debut vs Benfica**: [Link](https://ca.sports.yahoo.com/news/real-madrid-starlet-handed-senior-223000072.html)
+- **Report – How Real Madrid stopped 18-year-old midfield gem from joining Benfica**: [Link](https://madriduniversal.com/report-how-real-madrid-stopped-18-year-old-midfield-gem-from-joining-benfica/)
+- **Champions League LIVE: Real Madrid beat Benfica in match halted for alleged racist abuse**: [Link](https://www.bbc.com/sport/football/live/c1jekrl3x5jt)
+
+
+### date ramadan 2026 (N/A, Tue, 17 Feb 2026 12:10:00 -0800)
+
+- **Ramadan 2026 is Officially on Wednesday**: [Link](https://www.moroccoworldnews.com/2026/02/279176/ramadan-2026-is-officially-on-wednesday/)
+- **Saudi Arabia confirms first day of Ramadan**: [Link](https://gulfnews.com/world/gulf/saudi/saudi-arabia-confirms-first-day-of-ramadan-1.500446178)
+- **Many Muslims, including in Holy Land, start marking month of Ramadan after moon sighting**: [Link](https://www.timesofisrael.com/many-muslims-including-in-holy-land-start-marking-month-of-ramadan-after-moon-sighting/)
+
+
 ### paris vs (N/A, Tue, 17 Feb 2026 14:10:00 -0800)
 
 - **Mairie de Paris VS Mairie d’arrondissement : qui fait quoi ?**: [Link](https://www.pariszigzag.fr/paris-au-quotidien/mairie-de-paris-vs-mairie-darrondissement-qui-fait-quoi/)
