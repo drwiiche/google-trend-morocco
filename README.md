@@ -1,3 +1,10 @@
+### paris vs (N/A, Tue, 17 Feb 2026 14:10:00 -0800)
+
+- **Mairie de Paris VS Mairie d’arrondissement : qui fait quoi ?**: [Link](https://www.pariszigzag.fr/paris-au-quotidien/mairie-de-paris-vs-mairie-darrondissement-qui-fait-quoi/)
+- **DIRECT. Monaco-PSG (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/monaco-psg-live/688572)
+- **AS Monaco - PSG : les compositions officielles**: [Link](https://www.footmercato.net/a1304619622072355080-as-monaco-psg-les-compositions-officielles)
+
+
 ### prestianni (N/A, Tue, 17 Feb 2026 13:40:00 -0800)
 
 - **prestianni benfica: Benfica Step Up Interest in South American Teen Forward**: [Link](https://www.filmogaz.com/154753)
