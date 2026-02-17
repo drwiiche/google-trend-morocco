@@ -1,3 +1,31 @@
+### ramadan 2026 arabie saoudite (N/A, Tue, 17 Feb 2026 07:40:00 -0800)
+
+- **Ramadan 2026 : mercredi 18 février ou jeudi 19, la date de début du mois du jeûne encore en balance en France**: [Link](https://www.liberation.fr/societe/religions/ramadan-2026-mercredi-18-fevrier-ou-jeudi-19-la-date-de-debut-du-mois-du-jeune-encore-en-balance-en-france-20260216_7SCOFV2OKFG7PPM6GZSFC2TL5E/)
+- **Voici la date de Aïd al-Fitr 2026 au Maroc selon le calcul astronomique**: [Link](https://medias24.com/2026/02/13/voici-la-date-de-aid-al-fitr-2026-au-maroc-selon-le-calcul-astronomique-1627599/)
+- **Ramadan 2026: pourquoi la date exacte du début du jeûne est-elle encore incertaine?**: [Link](https://www.bfmtv.com/societe/religions/ramadan-2026-pourquoi-la-date-exacte-du-debut-du-jeune-est-elle-encore-incertaine_AN-202602170404.html)
+
+
+### al sadd – al ittihad (N/A, Tue, 17 Feb 2026 07:30:00 -0800)
+
+- **ACL Elite: Mancini tells Al Sadd to ‘seize opportunity’ in crunch Al Ittihad clash**: [Link](https://thepeninsulaqatar.com/article/17/02/2026/acl-elite-mancini-tells-al-sadd-to-seize-opportunity-in-crunch-al-ittihad-clash)
+- **Mancini: No Alternative to Winning Against Al-Ittihad in Asian Elite**: [Link](https://www.ysscores.com/en/news/13912560/Mancini:-No-Alternative-to-Winning-Against-Al-Ittihad-in-Asian-Elite)
+- **Conceição Settles Rotation Debate, Commends Mancini**: [Link](https://www.filmogaz.com/154408)
+
+
+### ramadan 2026 saudi arabia (N/A, Tue, 17 Feb 2026 07:30:00 -0800)
+
+- **Ramadan Mubarak 2026: Hear greetings in different languages**: [Link](https://www.aljazeera.com/news/2026/2/17/ramadan-mubarak-2026-hear-greetings-in-different-languages)
+- **Ramadan 2026 date: Ramadan go start on Wednesday as dem sight crescent moon for Saudi Arabia**: [Link](https://www.bbc.com/pidgin/articles/cwy8j8pymlgo)
+- **When is Ramadan 2026? What to know about Islam’s holiest month**: [Link](https://www.tcpalm.com/story/news/2026/02/16/ramadan-2026-what-know-about-dates-fasting-exemptions/88699771007/)
+
+
+### jetour maroc (N/A, Tue, 17 Feb 2026 06:50:00 -0800)
+
+- **Jetour inaugure un showroom à Casablanca et lance son SUV compact Dashing | L'observateur**: [Link](https://lobservateur.info/article/117271/auto/jetour-inaugure-un-showroom-a-casablanca-et-lance-son-suv-compact-dashing)
+- **Vidéo. Lancement par Smeia de la marque chinoise Jetour sur le marché marocain**: [Link](https://aujourdhui.ma/videos/video-lancement-par-smeia-de-la-marque-chinoise-jetour-sur-le-marche-marocain-2)
+- **Jetour fait son entrée sur le marché mauricien**: [Link](https://ecoaustral.com/jetour-fait-son-entree-sur-le-marche-mauricien/)
+
+
 ### ramadan 2026 morocco (N/A, Tue, 17 Feb 2026 05:40:00 -0800)
 
 - **Morocco to Sight Crescent Moon for Ramadan 2026 on Wednesday**: [Link](https://www.moroccoworldnews.com/2026/02/279027/morocco-to-sight-crescent-moon-for-ramadan-2026-on-wednesday/)
