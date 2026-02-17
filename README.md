@@ -1,3 +1,29 @@
+### الفيديو (N/A, Tue, 17 Feb 2026 04:40:00 -0800)
+
+- **الطلاب يفترشون الأرض.. شكوى ولي أمر بسبب شرح معلمة للطلاب داخل فناء المدرسة بالشرقية**: [Link](https://www.cairo24.com/2373468)
+- **فيديو لمعلمة تشرح لطلاب يفترشون الأرض داخل مدرسة بالشرقية يثير غضب المتابعين**: [Link](https://ahlmasrnews.com/news/local-news/13450439/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%85%D8%B9%D9%84%D9%85%D8%A9-%D8%AA%D8%B4%D8%B1%D8%AD-%D9%84%D8%B7%D9%84%D8%A7%D8%A8-%D9%8A%D9%81%D8%AA%D8%B1%D8%B4%D9%88%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%AF%D8%A7%D8%AE%D9%84-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D8%A8%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%BA%D8%B6%D8%A8-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D9%8A%D9%86)
+- **اليوم الدراسي الكامل في مصر.. نهاية نظام الفترتين وبداية فصل جديد للتعليم «تقرير»**: [Link](https://www.almawq3.com/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%86%D8%B8%D8%A7%D9%85/)
+
+
+### رمضان كريم (N/A, Tue, 17 Feb 2026 03:50:00 -0800)
+
+- **مع اقتراب غروب اليوم.. كيف يستقبل المسلمون شهر رمضان بالدعاء والابتهال**: [Link](https://twaslnews.twaslnews.com/479715/)
+- **أجمل تهنئة وتعبيرات رمضان كريم 2026… رمضان أحلى مع اسمك واسم حبايبك**: [Link](https://portal.24masr.com/2026/02/17/%D8%A3%D8%AC%D9%85%D9%84-%D8%AA%D9%87%D9%86%D8%A6%D8%A9-%D9%88%D8%AA%D8%B9%D8%A8%D9%8A%D8%B1%D8%A7%D8%AA-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%83%D8%B1%D9%8A%D9%85-2026-%D8%B1%D9%85%D8%B6%D8%A7/)
+- **أجمل رسائل تهنئة رمضان 2026 مع عبارات محبة ودعوات صادقة | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-02-16/%D8%A3%D8%AC%D9%85%D9%84-%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D8%AA%D9%87%D9%86%D8%A6%D8%A9-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D9%85%D8%B9-%D8%B9%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D8%AD%D8%A8%D8%A9-%D9%88%D8%AF%D8%B9%D9%88%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%82%D8%A9-6316246/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+
+
+### resultados de la prueba masculina de esquí acrobático big air de los juegos olímpicos de invierno 2026 (N/A, Tue, 17 Feb 2026 03:30:00 -0800)
+
+- **Juegos Olímpicos de Invierno 2026: actualizaciones en vivo desde Milán Cortina**: [Link](https://www.ucvradio.pe/deporte/juegos-olimpicos-de-invierno-2026-actualizaciones-en-vivo-desde-milan-cortina/131122/)
+
+
+### اول ايام رمضان 2026 (N/A, Mon, 16 Feb 2026 23:00:00 -0800)
+
+- **رمضان 2026.. أطول وأقصر ساعات الصيام في العالم**: [Link](https://www.aljazeera.net/lifestyle/2026/2/8/%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%A3%D8%B7%D9%88%D9%84-%D9%88%D8%A3%D9%82%D8%B5%D8%B1-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **صيام رمضان 2026.. هذه الدول ستعاني الساعات الطويلة**: [Link](https://www.skynewsarabia.com/varieties/1853492-%D8%B5%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026..-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%B3%D8%AA%D8%B9%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%88%D9%8A%D9%84%D8%A9)
+- **موعد أذان المغرب في أول أيام شهر رمضان المبارك**: [Link](https://www.youm7.com/story/2026/2/15/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83/7306114)
+
+
 ### kick (N/A, Mon, 16 Feb 2026 18:10:00 -0800)
 
 - **U.S. and Iran Gear Up for Nuclear Talks Amid Rising Tensions**: [Link](https://www.nytimes.com/2026/02/17/us/politics/us-iran-nuclear-talks.html)
