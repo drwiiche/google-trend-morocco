@@ -1,3 +1,15 @@
+### gianluca prestianni (N/A, Tue, 17 Feb 2026 13:20:00 -0800)
+
+- **Prestianni suspended for Benfica’s 23rd-round meeting with AFS**: [Link](https://onefootball.com/en/news/prestianni-suspended-for-benficas-23rd-round-meeting-with-afs-42413215)
+
+
+### paris (N/A, Tue, 17 Feb 2026 13:10:00 -0800)
+
+- **La France et l’Algérie relancent une « coopération sécuritaire de très haut niveau », annonce Laurent Nuñez**: [Link](https://www.lemonde.fr/afrique/article/2026/02/17/la-france-et-l-algerie-relancent-une-cooperation-securitaire-de-tres-haut-niveau-annonce-laurent-nunez_6667136_3212.html)
+- **«Ça me paraît indispensable» : Laurent Nuñez en visite en Algérie ce mardi pour tenter de renouer le dialogue**: [Link](https://www.lefigaro.fr/international/ca-me-parait-indispensable-laurent-nunez-attendu-ce-lundi-et-mardi-en-algerie-pour-tenter-de-renouer-le-dialogue-20260216)
+- **Algérie : le ministre français de l'Intérieur va tenter de renouer des liens**: [Link](https://www.france24.com/fr/vid%C3%A9o/20260216-alger-a-appr%C3%A9ci%C3%A9-que-nunez-ne-mette-pas-de-conditions-%C3%A0-sa-venue)
+
+
 ### yallakora (N/A, Tue, 17 Feb 2026 12:40:00 -0800)
 
 - **الهلال السوداني: لا نخشى مواجهة الأهلي في دوري أبطال أفريقيا**: [Link](https://www.yallakora.com/african-champions-league/2965/news/541787/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D9%84%D8%A7%D9%86%D8%AE%D8%B4%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
