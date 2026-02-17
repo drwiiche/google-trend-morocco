@@ -1,3 +1,17 @@
+### ramadan 2026 morocco (N/A, Tue, 17 Feb 2026 05:40:00 -0800)
+
+- **Morocco to Sight Crescent Moon for Ramadan 2026 on Wednesday**: [Link](https://www.moroccoworldnews.com/2026/02/279027/morocco-to-sight-crescent-moon-for-ramadan-2026-on-wednesday/)
+- **How to wish someone a ‘Happy Ramadan’**: [Link](https://www.independent.co.uk/life-style/happy-ramadan-greetings-2026-wishes-messages-b2921870.html)
+- **Muslim fasting month of Ramadan to start on Feb 19**: [Link](https://sg.news.yahoo.com/muslim-fasting-month-ramadan-start-115048493.html)
+
+
+### far rabat (N/A, Tue, 17 Feb 2026 04:00:00 -0800)
+
+- **CAF Judicial Bodies Investigating Unacceptable incidents during the Al Ahly and ASFAR match**: [Link](https://www.cafonline.com/news/caf-judicial-bodies-investigating-unacceptable-incidents-during-the-al-ahly-and-asfar-match/)
+- **Santos: "I have never been a coach who tries to waste time, and our goal is to win and qualify against any team we face in the quarter-finals"**: [Link](https://m.elbotola.com/en/article/2026-02-15-19-57-748.html)
+- **AS FAR condemns Al-Ahly fans' unsportsmanlike behavior and seeks CAF intervention**: [Link](https://en.yabiladi.com/articles/details/188329/condemns-al-ahly-fans--unsportsmanlike-behavior.html)
+
+
 ### الفيديو (N/A, Tue, 17 Feb 2026 04:40:00 -0800)
 
 - **الطلاب يفترشون الأرض.. شكوى ولي أمر بسبب شرح معلمة للطلاب داخل فناء المدرسة بالشرقية**: [Link](https://www.cairo24.com/2373468)
