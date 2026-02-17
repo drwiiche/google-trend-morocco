@@ -1,3 +1,24 @@
+### koora tv (N/A, Tue, 17 Feb 2026 12:10:00 -0800)
+
+- **جدول مباريات اليوم الأحد 15 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-15-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt5611553b859e1d86)
+- **ابرز الاحداث الرياضية ليوم الاحد في 15-02-2026**: [Link](https://www.elsport.com/news/show/811984/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF-15-02-2026)
+- **قمة مثيرة في إيطاليا.. تعرف على أبرز مواعيد مباريات اليوم الأحد**: [Link](https://www.arrajol.com/content/398129/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D9%85%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF)
+
+
+### dortmund (N/A, Tue, 17 Feb 2026 12:10:00 -0800)
+
+- **BVB gegen Atalanta: Kovac mit überraschender Startelf**: [Link](https://www.fussballtransfers.com/a3584034307683130768-bvb-gegen-atalanta-kovac-ueberrascht-mit-startelf)
+- **BVB wehrt sich gegen Ausschluss bestimmter Fan-Gruppen in Bergamo**: [Link](https://www1.wdr.de/sport/fussball/champions-league/borussia-dortmund-bergamo-fan-ausschluss-protest-100.html)
+- **Dortmund-Boss verwundert: BVB-Spiel beginnt später: Hummels mit Grönemeyer-Verdacht**: [Link](https://www.express.de/sport/fussball/borussia-dortmund/anpfiff-von-bvb-spiel-spaeter-hummels-mit-groenemeyer-verdacht-1223834)
+
+
+### benfica (N/A, Tue, 17 Feb 2026 12:00:00 -0800)
+
+- **“Sabemos o que fizemos aos reis na Liga dos Campeões, eles estão feridos”**: [Link](https://www.segundabase.com.br/competicoes/sabemos-o-que-fizemos-aos-reis-na-liga-dos-campeoes-eles-estao-feridos/122306/)
+- **AO VIVO: Mbappé e Vini Jr. comandam ataque do Real Madrid na Luz**: [Link](https://www.flashscore.pt/noticias/futebol-liga-dos-campeoes-ao-vivo-mbappe-e-vini-jr-comandam-ataque-do-real-madrid-na-luz/CAIJDZxK/)
+- **SC Braga: Rodrigo Zalazar assume estar «feliz» mas deixa futuro em aberto**: [Link](https://www.abola.pt/noticias/sc-braga-rodrigo-zalazar-assume-estar-feliz-mas-deixa-futuro-em-aberto-2026021717125397032)
+
+
 ### monaco vs psg (N/A, Tue, 17 Feb 2026 11:30:00 -0800)
 
 - **Monaco vs PSG predictions: Flying Parisiens dominate Les Monégasques**: [Link](https://www.goal.com/en-ca/betting/tips/monaco-vs-psg-predictions-02-17/A%3Abltbd2596d7148f1c10)
