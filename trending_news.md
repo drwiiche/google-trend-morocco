@@ -1,3 +1,10 @@
+### when is ramadan (N/A, Tue, 17 Feb 2026 00:10:00 -0800)
+
+- **Ramadan 2026: Fasting hours, suhoor and iftar times around the world**: [Link](https://www.aljazeera.com/news/2026/2/15/ramadan-2026-fasting-hours-suhoor-and-iftar-times-around-the-world)
+- **Ramadan 2026 begins Feb. 17. See events happening in Reno**: [Link](https://www.rgj.com/story/life/2026/02/16/ramadan-2026-reno-events/88703704007/)
+- **Ramadan Mubarak 2026: Top 80 Ramzan Wishes, Messages, Quotes and Greetings Card to share with your loved**: [Link](https://timesofindia.indiatimes.com/etimes/trending/ramadan-mubarak-2026-top-50-ramzan-wishes-messages-quotes-greetings-card-whatsapp-instagram-story-to-share-with-your-loved-ones-ramadan-mubarak/articleshow/128427296.cms)
+
+
 ### where to watch champions league (N/A, Mon, 16 Feb 2026 19:00:00 -0800)
 
 - **Champions League play-offs: Benfica v Real Madrid - Mourinho preview**: [Link](https://www.bbc.com/sport/football/articles/cvg39xezen1o)
