@@ -1,3 +1,17 @@
+### 2026 winter olympics men's freestyle skiing big air results (N/A, Mon, 16 Feb 2026 16:30:00 -0800)
+
+- **Day 10 Roundup: China's Gu adds silver in big air, Velzeboer achieves golden double in short track**: [Link](https://english.news.cn/20260217/ef817b9107a84b9d8d13148b4a9f4e0a/c.html)
+- **Oldham takes Big Air gold, Italy wins first Freestyle Skiing medal, Gu ties Freestyle medal record**: [Link](https://www.fis-ski.com/freeski-park-and-pipe/news/2025-26/oldham-takes-big-air-gold-italy-wins-first-freestyle-skiing-medal)
+- **Photo Gallery: Canada's Day 10 at Milan Cortina Olympics**: [Link](https://ca.news.yahoo.com/photo-gallery-canadas-day-10-004423617.html)
+
+
+### résultats du ski acrobatique big air hommes aux jeux olympiques d'hiver 2026 (N/A, Mon, 16 Feb 2026 16:20:00 -0800)
+
+- **JO 2026: une journée à trois médailles pour les Bleus, deux Français en finale du Big Air... Revivez la journée du dimanche 15 février**: [Link](https://rmcsport.bfmtv.com/jeux-olympiques/direct-jo-2026-biathlon-snowboard-ski-de-fond-suivez-les-epreuves-des-jeux-olympiques-d-hiver-de-ce-dimanche-15-fevrier_LN-202602150033.html)
+- **Le point sur le tableau des médailles après dix journées de compétition aux JO 2026 de Milan-Cortina**: [Link](https://www.lequipe.fr/Jo-2026-milan-cortina/Tous-sports/Actualites/Le-point-sur-le-tableau-des-medailles-apres-dix-journees-de-competition-aux-jo-2026-de-milan-cortina/1652897)
+- **L'Italie devrait établir un record de médailles d'or aux Jeux olympiques d'hiver de 2026.**: [Link](https://www.vietnam.vn/fr/italia-lap-ky-luc-hcv-tai-olympic-mua-dong-2026)
+
+
 ### iphone 18 pro (N/A, Mon, 16 Feb 2026 14:50:00 -0800)
 
 - **Five iPhone 18 Pro Features Revealed in New Report**: [Link](https://www.macrumors.com/2026/02/13/five-iphone-18-pro-features-revealed-in-new-report/)
