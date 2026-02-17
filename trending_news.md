@@ -1,3 +1,52 @@
+### monaco vs psg (N/A, Tue, 17 Feb 2026 11:30:00 -0800)
+
+- **Monaco vs PSG predictions: Flying Parisiens dominate Les Monégasques**: [Link](https://www.goal.com/en-ca/betting/tips/monaco-vs-psg-predictions-02-17/A%3Abltbd2596d7148f1c10)
+- **Monaco-PSG: Thilo Kehrer and Ansu Fati ruled out of Champions League tie**: [Link](https://www.getfootballnewsfrance.com/2026/monaco-psg-thilo-kehrer-and-ansu-fati-ruled-out-of-champions-league-tie/)
+- **Why is Paul Pogba not playing today for Monaco vs PSG in 2026 Champions League KO phase first leg?**: [Link](https://bolavip.com/en/soccer/why-is-paul-pogba-not-playing-today-for-monaco-vs-psg-in-2026-champions-league-ko-phase-first-leg)
+
+
+### dortmund – atalanta (N/A, Tue, 17 Feb 2026 11:30:00 -0800)
+
+- **Palladino disagrees with Kovac before Dortmund vs. Atalanta: ‘I never do percentages’**: [Link](https://football-italia.net/palladino-disagrees-kovac-dortmund-atalanta/)
+- **Bergamo coach ahead of reunion with former teammate: “Meeting a strong team”**: [Link](https://onefootball.com/en/news/bergamo-coach-ahead-of-reunion-with-former-teammate-meeting-a-strong-team-42424017)
+- **Borussia Dortmund vs. Atalanta: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/borussia-dortmund-vs-atalanta-preview-predictions-lineups-2-17-26)
+
+
+### موناكو ضد بي اس جي (N/A, Tue, 17 Feb 2026 11:20:00 -0800)
+
+- **إنريكي ساخرًا: ربما نلعب دون حارس مرمى أمام موناكو!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%B3%D8%A7%D8%AE%D8%B1%D9%8B%D8%A7-%D8%B1%D8%A8%D9%85%D8%A7-%D9%86%D9%84%D8%B9%D8%A8-%D8%AF%D9%88%D9%86-%D8%AD%D8%A7%D8%B1%D8%B3-%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88/bltc8223ee2642bfc42)
+- **تأكيد مشاركة مغنيس أكليوش مع موناكو ضد باريس سان جيرمان**: [Link](https://m.elbotola.com/article/2026-02-17-13-00-889.html)
+- **حكيمي حاضر في قمة الغد امام موناكو**: [Link](https://www.almountakhab.com/node/16222781)
+
+
+### match real (N/A, Tue, 17 Feb 2026 11:20:00 -0800)
+
+- **Benfica crie déjà au scandale arbitral avant le choc contre le Real Madrid !**: [Link](https://www.footmercato.net/a8726399092064998582-benfica-crie-deja-au-scandale-arbitral-avant-le-choc-contre-le-real-madrid)
+- **Football - Ligue des champions : Arbeloa : « Mourinho ne peut pas me surprendre car je sais de quoi il est capable »**: [Link](https://www.lequipe.fr/Football/Video/Ligue-des-champions-arbeloa-mourinho-ne-peut-pas-me-surprendre-car-je-sais-de-quoi-il-est-capable/20226390)
+- **Mercato : Le Real Madrid tente le gros coup Mourinho ?**: [Link](https://mediafoot.net/mercato-le-real-madrid-tente-le-gros-coup-mourinho/)
+
+
+### benfica – real madrid (N/A, Tue, 17 Feb 2026 11:10:00 -0800)
+
+- **Champions League play-offs: Benfica v Real Madrid - Mourinho preview**: [Link](https://www.bbc.com/sport/football/articles/cvg39xezen1o)
+- **Arbeloa: "Our Goal Is Not Just to Eliminate Benfica, But to Win the Champions League"**: [Link](https://m.elbotola.com/en/article/2026-02-16-21-18-779.html)
+- **The Numbers Game: Can Mourinho mastermind another Champions League triumph over Real Madrid?**: [Link](https://www.fotmob.com/el/news/198olsxnwysw911kvbyskmpsrf-numbers-game-can-mourinho-mastermind-another-champions-league-triumph-over-real-madrid)
+
+
+### بنفيكا ضد الريال (N/A, Tue, 17 Feb 2026 11:10:00 -0800)
+
+- **ثلاثي ريال مدريد تحت التهديد أمام بنفيكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D9%86%D9%88%D8%B1--%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%AD%D8%A8%D9%84-%D9%85%D8%B4%D8%AF%D9%88%D8%AF/blt37f59ffd731b7e8b)
+- **مباشر مباراة ريال مدريد وبنفيكا في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/17/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7)
+- **أربيلوا يرد على تصريحات مورينيو.. ويترك مبابي في دائرة الشك**: [Link](https://sport.lesiteinfo.com/monde/488233.html)
+
+
+### monaco – paris-sg (N/A, Tue, 17 Feb 2026 11:10:00 -0800)
+
+- **Le doute Ousmane Dembélé : le Ballon d'Or victime d'une gêne à l'entrainement avant Monaco-PSG**: [Link](https://www.lequipe.fr/Football/Actualites/Le-doute-ousmane-dembele-le-ballon-d-or-victime-d-une-gene-a-l-entrainement-avant-monaco-psg/1652833)
+- **Ousmane Dembélé, problème annoncé avant Monaco**: [Link](https://www.sports.fr/football/ligue-des-champions-football/ousmane-dembele-probleme-annonce-avant-monaco-991572.html)
+- **Ligue des champions : La statistique que le PSG va adorer !**: [Link](https://le10sport.com/football/ligue1/psg/ligue-des-champions-la-statistique-que-le-psg-va-adorer-775048)
+
+
 ### real madrid (N/A, Tue, 17 Feb 2026 11:00:00 -0800)
 
 - **Alineación posible del Real Madrid hoy contra el Benfica en la Champions League**: [Link](https://as.com/futbol/champions/alineacion-posible-del-real-madrid-hoy-contra-el-benfica-en-la-champions-league-f202602-n/)
