@@ -1,3 +1,17 @@
+### kick (N/A, Mon, 16 Feb 2026 18:10:00 -0800)
+
+- **U.S. and Iran Gear Up for Nuclear Talks Amid Rising Tensions**: [Link](https://www.nytimes.com/2026/02/17/us/politics/us-iran-nuclear-talks.html)
+- **Nuclear talks hinge on US avoiding unrealistic demands, Iranian official says**: [Link](https://www.timesofisrael.com/liveblog_entry/nuclear-talks-hinge-on-us-avoiding-unrealistic-demands-iranian-official-says/)
+- **The patience and the poker face: Iran’s wily diplomat set to face the US in nuclear talks**: [Link](https://www.theguardian.com/world/2026/feb/16/the-patience-and-the-poker-face-irans-wily-diplomat-set-to-face-the-us-in-nuclear-talks)
+
+
+### liga classement (N/A, Mon, 16 Feb 2026 14:50:00 -0800)
+
+- **Madrid vs Barcelone : la terre, la mer et deux visions de l’Espagne**: [Link](https://lepetitjournal.com/barcelone/comprendre-espagne/madrid-vs-barcelone-terre-mer-deux-visions-espagne-435013)
+- **FC Barcelone, Real Madrid : Quel sera le classement final de Liga selon l'I.A d'Opta après la 24ème journée**: [Link](https://www.90min.com/fr/fc-barcelone-real-madrid-quel-sera-le-classement-final-de-liga-selon-l-i-a-d-opta-apres-la-24eme-journee-17-02-2026)
+- **24e journée du Championnat d'Espagne de football : le Barça leader, le Real Madrid à un point**: [Link](https://www.webmanagercenter.com/2026/02/14/561783/24e-journee-du-championnat-despagne-de-football-le-barca-leader-le-real-madrid-a-un-point/)
+
+
 ### habous (N/A, Tue, 17 Feb 2026 00:40:00 -0800)
 
 - **Le Roi Mohammed VI ordonne l'ouverture de 157 mosquées pour le Ramadan**: [Link](https://medias24.com/2026/02/16/le-roi-mohammed-vi-ordonne-louverture-de-157-mosquees-pour-le-ramadan-1628927/)
