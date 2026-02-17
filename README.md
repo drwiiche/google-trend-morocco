@@ -1,3 +1,38 @@
+### prestianni (N/A, Tue, 17 Feb 2026 13:40:00 -0800)
+
+- **prestianni benfica: Benfica Step Up Interest in South American Teen Forward**: [Link](https://www.filmogaz.com/154753)
+- **(Video) Racist abuse stops Real Madrid–Benfica match**: [Link](https://foot-africa.com/en/news/video-racist-abuse-stops-real-madridbenfica-match-1090616/)
+- **Caught on camera: Alvaro Arbeloa's passionate speech that convinced Vini Jr to resume playing against Benfica**: [Link](https://tribuna.com/en/blogs/caught-on-camera-alvaro-arbeloas-passionate-speech-that-conv/)
+
+
+### vinicius júnior (N/A, Tue, 17 Feb 2026 13:40:00 -0800)
+
+- **Vini Jr. é alvo de suposto racismo após marcar golaço contra o Benfica 📹**: [Link](https://onefootball.com/pt-br/noticias/vini-jr-e-alvo-de-suposto-racismo-apos-marcar-golaco-contra-o-benfica-42426172)
+- **Benfica x Real Madrid AO VIVO: O grande golo de Vinicius (0-1)**: [Link](https://www.vavel.com/br/futebol-internacional/2026/02/17/1251125-benfica-x-real-madrid-ao-vivo-liga-dos-campeoes.html)
+- **Vídeo: Vinícius Jr. marca golaço e incendeia o Estádio da Luz**: [Link](https://sapo.pt/artigo/video-vinicius-jr-marca-golaco-e-incendeia-o-estadio-da-luz-6994de75bef01392d9368fa9)
+
+
+### مدريد (N/A, Tue, 17 Feb 2026 13:20:00 -0800)
+
+- **تسريب قميص ريال مدريد للاحتفال بالذكرى 125 على التأسيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8-%D9%82%D9%85%D9%8A%D8%B5-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-125-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%A7%D9%94%D8%B3%D9%8A%D8%B3/blt7ee33ac21b62a141)
+- **قميص استثنائي لريال مدريد احتفالا بذكرى تأسيسه الـ125**: [Link](https://www.aljazeera.net/sport/2026/2/17/%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D8%A7)
+- **تسريب قميص ريال مدريد الخاص بالذكرى 125 لتأسيسه**: [Link](https://elsport.com/news/show/812315/%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8-%D9%82%D9%85%D9%8A%D8%B5-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5-%D8%A8%D8%A7%D9%84%D8%B0%D9%83%D8%B1%D9%89-125-%D9%84%D8%AA%D8%A3%D8%B3%D9%8A%D8%B3%D9%87)
+
+
+### مباريات اليوم مباشر (N/A, Tue, 17 Feb 2026 12:30:00 -0800)
+
+- **جدول مباريات اليوم الأحد 15 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-15-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt5611553b859e1d86)
+- **ابرز الاحداث الرياضية ليوم الاحد في 15-02-2026**: [Link](https://www.elsport.com/news/show/811984/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF-15-02-2026)
+- **قمة مثيرة في إيطاليا.. تعرف على أبرز مواعيد مباريات اليوم الأحد**: [Link](https://www.arrajol.com/content/398129/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D9%85%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF)
+
+
+### rma vs (N/A, Tue, 17 Feb 2026 12:10:00 -0800)
+
+- **(Video) Racist abuse stops Real Madrid–Benfica match**: [Link](https://foot-africa.com/en/news/video-racist-abuse-stops-real-madridbenfica-match-1090616/)
+- **Caught on camera: Alvaro Arbeloa's passionate speech that convinced Vini Jr to resume playing against Benfica**: [Link](https://tribuna.com/en/blogs/caught-on-camera-alvaro-arbeloas-passionate-speech-that-conv/)
+- **What happened to Vinicius Junior and why was Champions League clash between Real Madrid and Benfica delayed?**: [Link](https://worldsoccertalk.com/news/what-happened-to-vinicius-junior-and-why-was-champions-league-clash-between-real-madrid-and-benfica-delayed/)
+
+
 ### gianluca prestianni (N/A, Tue, 17 Feb 2026 13:20:00 -0800)
 
 - **Prestianni suspended for Benfica’s 23rd-round meeting with AFS**: [Link](https://onefootball.com/en/news/prestianni-suspended-for-benficas-23rd-round-meeting-with-afs-42413215)
