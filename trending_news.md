@@ -1,3 +1,17 @@
+### الفنانة زينة (N/A, Wed, 18 Feb 2026 13:00:00 -0800)
+
+- **بعد إصابة طفليها في ملعب الأطفال.. نيابة الشيخ زايد تحيل جار زينة ومالك الكلب للمحاكمة**: [Link](https://twaslnews.twaslnews.com/513793/)
+- **نيابة الشيخ زايد تقرر حفظ التحقيقات في مشاجرة الفنانة زينة وجارها**: [Link](https://www.almasryalyoum.com/news/details/4202304)
+- **قرار جديد بشأن المتهمين في واقعة تعرض نجلي الفنانة زينة لمطاردة من كلب**: [Link](https://m.akhbarelyom.com/news/newdetails/4775542/1/%D9%86%D8%AC%D9%84%D9%8A-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%B2%D9%8A%D9%86%D8%A9/amp)
+
+
+### milan vs como (N/A, Wed, 18 Feb 2026 13:00:00 -0800)
+
+- **Allegri reitera las ambiciones del Milan antes del examen ante el Como**: [Link](https://www.fotmob.com/es/news/55fslxm1ed5e1am6ktw87gisc_es-allegri-reitera-las-ambiciones-del-milan-antes-del-examen-ante-el-como)
+- **Tino previa de la Serie A: Milán vs Como – Noticiario del equipo, alineaciones y predicción**: [Link](https://bitacora.com.uy/tino-previa-de-la-serie-a-milan-vs-como-noticiario-del-equipo-alineaciones-y-prediccion/)
+- **EN VIVO: Primer tiempo finalizado: Como 1907 se impone 1-0 sobre Milan**: [Link](https://www.directvsports.com/futbol/en-vivo-primer-tiempo-finalizado-como-1907-se-impone-1-0-sobre-milan-20260215-0007.html)
+
+
 ### shahid (N/A, Wed, 18 Feb 2026 12:10:00 -0800)
 
 - **Leila Shahid, Palestinian diplomat, dies in France aged 76**: [Link](https://www.aljazeera.com/news/2026/2/18/leila-shahid-palestinian-diplomat-dies-in-france-aged-76)
