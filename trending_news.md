@@ -1,3 +1,10 @@
+### اليوم العالمي للسلامة الطرقية (N/A, Wed, 18 Feb 2026 00:50:00 -0800)
+
+- **السلامة الطرقية: قوانين عالقة تحسيس مناسباتي ومسؤولية مشتركة**: [Link](https://al3omk.com/1139206.html)
+- **الناظور : جمعية المبادرة المغربية للعلوم والفكر تنظم حملة السلامة الطرقية لمتدربي ومتدربات cmc**: [Link](https://www.ariffino.net/nador-live/%D8%A7%D9%84%D9%86%D8%A7%D8%B8%D9%88%D8%B1-%D8%AC%D9%85%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D8%B9%D9%84-33)
+- **روض النسيم بأزيلال يحتفل باليوم الوطني للسلامة الطرقية بأنشطة توعوية لفائدة الأطفال**: [Link](https://www.atlasscoop.com/111149/)
+
+
 ### marsa maroc (N/A, Tue, 17 Feb 2026 17:30:00 -0800)
 
 - **Marsa Maroc: Les indicateurs au vert**: [Link](https://www.leconomiste.com/marsa-maroc-les-indicateurs-au-vert/)
