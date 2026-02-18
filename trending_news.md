@@ -1,3 +1,31 @@
+### youtube down (N/A, Tue, 17 Feb 2026 17:30:00 -0800)
+
+- **YouTube down for more than 240,000 users in the U.S., Downdetector shows**: [Link](https://www.detroitnews.com/story/tech/2026/02/17/youtube-down-for-more-than-240000-users-in-the-u-s-downdetector-shows/88729296007/)
+- **Users report YouTube outage, according to Downdetector**: [Link](https://www.wcvb.com/article/youtube-outage-february-2026/70398656)
+- **Is YouTube down? Thousands of users experience issues with platform**: [Link](https://www.10tv.com/article/news/nation-world/youtube-outage-thousands-report-issues/507-b71b54d0-204f-4b33-b9a1-d68ca96100b5)
+
+
+### يوتيوب (N/A, Tue, 17 Feb 2026 17:20:00 -0800)
+
+- **بلاغات عن عطل واسع النطاق فى يوتيوب**: [Link](https://www.youm7.com/story/2026/2/18/%D8%A8%D9%84%D8%A7%D8%BA%D8%A7%D8%AA-%D8%B9%D9%86-%D8%B9%D8%B7%D9%84-%D9%88%D8%A7%D8%B3%D8%B9-%D8%A7%D9%84%D9%86%D8%B7%D8%A7%D9%82-%D9%81%D9%89-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8/7308763)
+- **أبل تطلق تجربة بودكاست مرئي لتعزيز المنافسة مع يوتيوب وسبوتيفاي**: [Link](https://detafour.com/%D8%A3%D8%A8%D9%84-%D8%AA%D8%B7%D9%84%D9%82-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%A8%D9%88%D8%AF%D9%83%D8%A7%D8%B3%D8%AA-%D9%85%D8%B1%D8%A6%D9%8A-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D9%85/)
+- **تتنافس Apple مع YouTube وSpotify من خلال دفعة جديدة لبث الفيديو**: [Link](https://www.al-bayader.com/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/61901/%D8%AA%D8%AA%D9%86%D8%A7%D9%81%D8%B3-apple-%D9%85%D8%B9-youtube-%D9%88spotify-%D9%85%D9%86-%D8%AE%D9%84%D8%A7%D9%84-%D8%AF%D9%81%D8%B9%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%A8%D8%AB-%D8%A7/)
+
+
+### 2026 winter olympics men's snowboarding slopestyle (N/A, Tue, 17 Feb 2026 16:30:00 -0800)
+
+- **Su Yiming reaches men's snowboard slopestyle final at Milano Cortina**: [Link](https://news.cgtn.com/news/2026-02-16/Su-Yiming-reaches-men-s-snowboard-slopestyle-final-at-Milano-Cortina-1KO20JQJCpy/p.html)
+- **Red Gerard overslept and won Olympic gold in 2018. In Italy, no alarm clock will be needed**: [Link](https://www.nytimes.com/athletic/7050315/2026/02/17/red-gerard-snowboard-slopestyle-2026-winter-olympics/)
+- **Northeast Ohio native’s family finds unique lodgings for Olympics**: [Link](https://sports.yahoo.com/articles/northeast-ohio-native-family-finds-175846681.html)
+
+
+### date ramadan maroc (N/A, Tue, 17 Feb 2026 16:00:00 -0800)
+
+- **Ramadan 2026 : la date officielle du début du jeûne annoncée en France**: [Link](https://www.rtl.fr/actu/debats-societe/ramadan-2026-la-date-officielle-du-debut-du-jeune-annoncee-en-france-7900602342)
+- **Voici la date de Aïd al-Fitr 2026 au Maroc selon le calcul astronomique**: [Link](https://medias24.com/2026/02/13/voici-la-date-de-aid-al-fitr-2026-au-maroc-selon-le-calcul-astronomique-1627599/)
+- **La date de début du Ramadan en Belgique dévoilée**: [Link](https://www.lesoir.be/729424/article/2026-02-17/la-date-de-debut-du-ramadan-en-belgique-devoilee)
+
+
 ### dortmund vs atalanta (N/A, Tue, 17 Feb 2026 13:00:00 -0800)
 
 - **Guirassy stars as Dortmund dispatch Atalanta**: [Link](https://www.bbc.com/sport/football/live/cev79r79338t)
