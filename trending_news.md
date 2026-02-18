@@ -1,3 +1,38 @@
+### موعد صلاة العشاء (N/A, Wed, 18 Feb 2026 11:40:00 -0800)
+
+- **أول صلاة تراويح في رمضان من مسجد الحسين (بث مباشر)**: [Link](https://www.mobtada.com/misc/1589206/%D8%A3%D9%88%D9%84-%D8%B5%D9%84%D8%A7%D8%A9-%D8%AA%D8%B1%D8%A7%D9%88%D9%8A%D8%AD-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%85%D9%86-%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **هل تجوز صلاة التراويح في المنزل؟**: [Link](https://www.tuniscope.com/ar/article/425491/arabe/actu-arabe/tarawih-235016)
+- **في أجواء روحانية.. "الأزهر" يحتضن آلاف المصلين صلاة العشاء والتراويج**: [Link](https://pulse.mubasher.info/news/variety/95760/%D9%81%D9%8A-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B1%D9%88%D8%AD%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B2%D9%87%D8%B1-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D8%A2%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D8%B5%D9%84%D9%8A%D9%86-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B4%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D9%88%D9%8A%D8%AC)
+
+
+### olympiakos – leverkusen (N/A, Wed, 18 Feb 2026 11:30:00 -0800)
+
+- **Can Olympiacos Do It Again Against Leverkusen? The Tactical Battle That Will Decide It**: [Link](https://onefootball.com/pt-br/noticias/can-olympiacos-do-it-again-against-leverkusen-the-tactical-battle-that-will-decide-it-42427809)
+- **Olympiacos vs Bayer Leverkusen LIVE Score Updates in UEFA Champions League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/18/1251186-olympiacos-vs-leverkusen-live-score-champions-league-match.html)
+- **Hjulmand & Andrich preview Olympiacos first leg**: [Link](https://www.bundesliga.com/en/bundesliga/videos/watch/hjulmand-and-andrich-preview-olympiacos-first-leg-q5yfPYBi)
+
+
+### وولفرهامبتون ضد آرسنال (N/A, Wed, 18 Feb 2026 11:30:00 -0800)
+
+- **لمنع وقوع كارثة.. تحذير مهم قبل مواجهة وولفرهامبتون وآرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85%D9%86%D8%B9-%D9%88%D9%82%D9%88%D8%B9-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9--%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%87%D9%85-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%88%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/bltbad3a4708d10dcc2)
+- **إحصائيات أرسنال الهجومية هذا الموسم**: [Link](https://hihi2.com/2026/02/18/p3656014.html)
+- **تشكيل أرسنال - 3 تغييرات من أرتيتا ضد ولفرهامبتون**: [Link](https://onefootball.com/es/noticias/3-42430952)
+
+
+### كلوب بروج ضد أتلتيكو مدريد (N/A, Wed, 18 Feb 2026 11:20:00 -0800)
+
+- **ديغو سيميوني: أتلتيكو مدريد يحتاج لجميع لاعبيه**: [Link](https://www.hesport.com/%D8%AF%D9%8A%D8%BA%D9%88-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D9%84%D8%AC%D9%85%D9%8A-427524.html)
+- **مواجهة مرتقبة بين كلوب بروج وأتليتيكو مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC-%D9%88%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2026-02-18)
+- **جريزمان ضد تزوليس، تشكيل أتليتكو مدريد وكلوب بروج في دوري الأبطال**: [Link](https://www.egypttelegraph.com/article/221283/%D8%AC%D8%B1%D9%8A%D8%B2%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D8%AA%D8%B2%D9%88%D9%84%D9%8A%D8%B3%D8%8C-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%83%D9%84%D9%88%D8%A8)
+
+
+### توقيت رمضان 2026 (N/A, Wed, 18 Feb 2026 11:00:00 -0800)
+
+- **توقيت العمل بالإدارات العمومية خلال رمضان**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1502120/%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B9%D9%85%D9%84-%D8%A8%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%85%D9%88%D9%85%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **هذه هي مواقيت العمل خلال شهر رمضان – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%87%D8%B0%D9%87-%D9%87%D9%8A-%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B9%D9%85%D9%84-%D8%AE%D9%84%D8%A7%D9%84-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **مكاتب التشغيل وفضاءات المبادرة.. توقيت عمل شهر رمضان**: [Link](https://www.assabahnews.tn/ar/%D8%A7%D9%84%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%B7%D9%86%D9%8A%D8%A9/140482-%D9%85%D9%83%D8%A7%D8%AA%D8%A8-%D8%A7%D9%84%D8%AA%D8%B4%D8%BA%D9%8A%D9%84-%D9%88%D9%81%D8%B6%D8%A7%D8%A1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%B9%D9%85%D9%84-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+
+
 ### bodø/glimt – inter (N/A, Wed, 18 Feb 2026 11:20:00 -0800)
 
 - **Report – Turkey Megastar At Risk Of Missing Inter Milan Vs Bodo/Glimt Champions League Second Leg**: [Link](https://sempreinter.com/2026/02/18/calhanoglu-risk-missing-inter-milan-bodo-glimt-second-leg/)
