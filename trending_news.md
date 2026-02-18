@@ -1,3 +1,16 @@
+### youtube music (N/A, Tue, 17 Feb 2026 17:20:00 -0800)
+
+- **Apple takes on YouTube and Spotify with new video podcasting push**: [Link](https://www.cnbc.com/2026/02/16/apple-takes-on-youtube-and-spotify-with-new-video-podcasting-push.html)
+- **Apple Revamps Video Podcasts as Industry Shifts Toward Visuals**: [Link](https://www.bloomberg.com/news/articles/2026-02-16/apple-revamps-video-podcasts-as-industry-shifts-toward-visuals)
+- **Apple introduces a new video podcast experience on Apple Podcasts**: [Link](https://www.apple.com/newsroom/2026/02/apple-introduces-a-new-video-podcast-experience-on-apple-podcasts/)
+
+
+### otamendi (N/A, Tue, 17 Feb 2026 13:20:00 -0800)
+
+- **Benfica defender Nicolas Otamendi triggers Vini Jr with Leo Messi tattoo in UCL clash - what did he mean by it?**: [Link](https://tribuna.com/en/blogs/benfica-defender-nicolas-otamendi-triggers-vini-jr-with-leo/)
+- **Nicolas Otamendi Flaunts Lionel Messi World Cup Tattoo To Wind Up Vinicius Jr During Real Madrid vs Benfica**: [Link](https://www.freepressjournal.in/sports/nicolas-otamendi-flaunts-lionel-messi-world-cup-tattoo-to-wind-up-vinicius-jr-during-real-madrid-vs-benfica-champions-league-clash-video)
+
+
 ### snowboard slopestyle hommes aux jeux olympiques d'hiver 2026 (N/A, Tue, 17 Feb 2026 16:20:00 -0800)
 
 
