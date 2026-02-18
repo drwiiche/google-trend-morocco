@@ -1,3 +1,10 @@
+### marsa maroc (N/A, Tue, 17 Feb 2026 17:30:00 -0800)
+
+- **Marsa Maroc: Les indicateurs au vert**: [Link](https://www.leconomiste.com/marsa-maroc-les-indicateurs-au-vert/)
+- **Tanger Med domine Valence et Algésiras réunis et consolide son leadership méditerranéen**: [Link](https://fr.le360.ma/economie/tanger-med-domine-valence-et-algesiras-reunis-et-consolide-son-leadership-mediterraneen_WW63EUMDFRFLRNFNJ7BDLFWZOA/)
+- **Marsa Maroc : une année 2025 de records et de changement d’échelle**: [Link](http://ledesk.ma/encontinu/marsa-maroc-une-annee-2025-de-records-et-de-changement-dechelle/)
+
+
 ### youtube music (N/A, Tue, 17 Feb 2026 17:20:00 -0800)
 
 - **Apple takes on YouTube and Spotify with new video podcasting push**: [Link](https://www.cnbc.com/2026/02/16/apple-takes-on-youtube-and-spotify-with-new-video-podcasting-push.html)
