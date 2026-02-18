@@ -1,3 +1,17 @@
+### دعاء صيام رمضان (N/A, Wed, 18 Feb 2026 14:40:00 -0800)
+
+- **دعاء اليوم الأول من شهر رمضان 2026**: [Link](https://www.sayidaty.net/%D8%A8%D9%84%D8%B3/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/1807135-%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **الدعاء في رمضان.. فرصة ذهبية لمغفرة الذنوب وتحقيق الأمنيات**: [Link](https://www.elwatannews.com/news/details/8227504)
+- **دعاء اليوم الاول من شهر رمضان 2026 أدعية أول يوم في رمضان 1447 هـ مكتوبة**: [Link](https://www.rgtrustschool.net/ar/89/)
+
+
+### pl (N/A, Wed, 18 Feb 2026 14:30:00 -0800)
+
+- **Rząd mówi o repolonizacji. Ale kto naprawdę zarobi na wielkich inwestycjach?**: [Link](https://serwisy.gazetaprawna.pl/energetyka/artykuly/10645765,gdyby-decydowal-tylko-local-content-ile-kraju-w-krajowych-inwestycjac.html)
+- **Prywatny biznes dobrym partnerem państwa? MAP pracuje nad definicją local content**: [Link](https://superbiz.se.pl/wiadomosci/prywatny-biznes-dobrym-partnerem-panstwa-map-pracuje-nad-definicja-local-content-aa-y15A-4uBf-ZDVY.html)
+- **Minister aktywów państwowych zapowiada krok naprzód w sprawie local content**: [Link](https://businessinsider.com.pl/biznes/minister-aktywow-panstwowych-zapowiada-krok-naprzod-w-sprawie-local-content/93ffn0t)
+
+
 ### موعد صلاة الفجر (N/A, Wed, 18 Feb 2026 14:10:00 -0800)
 
 - **مواقيت الصلاة ليوم الأربعاء 18 فبراير 2026 مع أذان الظهر**: [Link](https://akher.news/41775/%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-18-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026-%D9%85/)
