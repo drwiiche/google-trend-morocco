@@ -1,3 +1,69 @@
+### bodø/glimt – inter (N/A, Wed, 18 Feb 2026 11:20:00 -0800)
+
+- **Report – Turkey Megastar At Risk Of Missing Inter Milan Vs Bodo/Glimt Champions League Second Leg**: [Link](https://sempreinter.com/2026/02/18/calhanoglu-risk-missing-inter-milan-bodo-glimt-second-leg/)
+- **Cristian Chivu issues warning ahead of Champions League playoff**: [Link](https://tribuna.com/en/news/2026-02-18-cristian-chivu-issues-warning-ahead-of-champions-league-playoff/)
+- **Champions League playoffs: Bodø/Glimt targets another upset against Inter Milan**: [Link](https://infonews.ca/news/7541800/champions-league-playoffs-bodglimt-targets-another-upset-against-inter-milan/)
+
+
+### wolves – arsenal (N/A, Wed, 18 Feb 2026 11:10:00 -0800)
+
+- **Edwards | 'We'll be ready to run and fight' | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20260217-edwards-well-be-ready-to-run-and-fight/)
+- **Arteta admits they want to run away at the top of the Premier League table**: [Link](https://onefootball.com/fr/news/arteta-admits-they-want-to-run-away-at-the-top-of-the-premier-league-table-42430380)
+- **Preview: Bottom meets top in midweek Premier League clash**: [Link](https://www.fotmob.com/topnews/26047-preview-bottom-meets-top-midweek-premier-league-clash?utm_source=fotmob)
+
+
+### ac milan – côme (N/A, Wed, 18 Feb 2026 11:10:00 -0800)
+
+- **Allegri discusses selection doubts, Inter-Juventus drama, injuries and Fabregas battle**: [Link](https://sempremilan.com/allegri-doubts-inter-juventus-injuries-fabregas)
+- **AC Milan setback before Como match: Loftus-Cheek out?**: [Link](https://milanreports.com/2026/02/18/ac-milan-como-loftus-cheek-out/)
+- **Allegri weighs in on diving debate and asks for offside rule change**: [Link](https://football-italia.net/allegri-weighs-in-on-diving-debate/)
+
+
+### club brugge – atlético madrid (N/A, Wed, 18 Feb 2026 11:10:00 -0800)
+
+- **Atletico’s Belgian hoodoo: Six trips, five defeats and a solitary goal**: [Link](https://www.besoccer.com/new/atleticos-belgian-hoodoo-six-trips-five-defeats-and-a-solitary-goal-1395318)
+- **Club Brugge vs Atletico Prediction: Team News, Predicted Lineups & Where to Watch**: [Link](https://www.whoscored.com/articles/tM2hbJ2MxUO5XVNOonkiVA/show/club-brugge-vs-atletico-prediction-team-news-predicted-lineups-where-to-watch)
+- **Champions League: probable lineups for Club Brugge vs Atlético Madrid**: [Link](https://sports.yahoo.com/articles/champions-league-probable-lineups-club-150000287.html)
+
+
+### kech24 (N/A, Wed, 18 Feb 2026 11:00:00 -0800)
+
+
+
+
+### hibapress (N/A, Wed, 18 Feb 2026 10:50:00 -0800)
+
+- **الأربعاء أول أيام رمضان في فرنسا وفي عدد من الدول العربية**: [Link](https://www.france24.com/ar/%D9%85%D8%AC%D8%AA%D9%85%D8%B9/20260217-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9)
+- **تضارب إعلان رمضان يخلق استياء واسعا داخل الجالية المغربية بفرنسا**: [Link](https://www.hespress.com/%D8%AA%D8%B6%D8%A7%D8%B1%D8%A8-%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%8A%D8%AE%D9%84%D9%82-%D8%A7%D8%B3%D8%AA%D9%8A%D8%A7%D8%A1-%D9%88%D8%A7%D8%B3%D8%B9%D8%A7-%D8%AF%D8%A7-1703598.html)
+- **منظومة المغرب لمراقبة الهلال الأكثر دقة في العالم الإسلامي**: [Link](https://ar.hibapress.com/details-703506.html)
+
+
+### akhbarona (N/A, Wed, 18 Feb 2026 10:50:00 -0800)
+
+
+
+
+### نية الصيام (N/A, Wed, 18 Feb 2026 10:40:00 -0800)
+
+- **عقد نية الصوم كل ليلة من رمضان.. وحالة واحدة تلغي النية وهذه الدول تبدأ الصيام غداً الخميس**: [Link](https://beirutcom.net/375890)
+- **عالم أزهرى يحسم الجدل حول دعاء نية الصيام وتجديدها يوميًا في رمضان**: [Link](https://www.youm7.com/story/2026/2/18/%D8%B9%D8%A7%D9%84%D9%85-%D8%A3%D8%B2%D9%87%D8%B1%D9%89-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84-%D8%AF%D8%B9%D8%A7%D8%A1-%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D8%A7%D9%85-%D9%88%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF%D9%87%D8%A7-%D9%8A%D9%88%D9%85%D9%8A%D9%8B%D8%A7/7309775)
+- **النية في رمضان: هندسة الانبعاث من الداخل**: [Link](https://www.omandaily.om/%D8%B1%D9%88%D8%B6%D8%A9-%D8%A7%D9%84%D8%B5%D8%A7%D8%A6%D9%85/na/%D8%A7%D9%84%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%87%D9%86%D8%AF%D8%B3%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%A8%D8%B9%D8%A7%D8%AB-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84)
+
+
+### snrt (N/A, Wed, 18 Feb 2026 10:40:00 -0800)
+
+- **Programmes du Ramadan sur les ondes de "Alidaa Alwatania": un contenu varié et toujours à l’écoute des auditeurs marocains**: [Link](https://snrtnews.com/fr/article/programmes-du-ramadan-sur-les-ondes-de-alidaa-alwatania-un-contenu-varie-et-toujours-a)
+- **Elle offre un voyage spirituel au cœur du plaisir culturel… Ramadan 2026 : La chaîne Athakafia dévoile son programme**: [Link](https://aujourdhui.ma/culture/elle-offre-un-voyage-spirituel-au-coeur-du-plaisir-culturel-ramadan-2026-la-chaine-athakafia-devoile-son-programme)
+- **Ramadan : Fiction sociale et mémoire vivante sur la chaîne Tamazight**: [Link](https://femmesdumaroc.com/inspiration/radar/ramadan-fiction-sociale-et-memoire-vivante-sur-la-chaine-tamazight)
+
+
+### رمضان كريم 2026 (N/A, Wed, 18 Feb 2026 10:30:00 -0800)
+
+- **الأربعاء بداية رمضان في 10 دول إسلامية والخميس في دول أخرى**: [Link](https://www.aljazeera.net/misc/2026/2/17/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D8%AA%D8%B9%D9%84%D9%86%D8%A7%D9%86-%D8%A3%D9%86-%D8%BA%D8%AF%D8%A7)
+- **خبراء فلكيون يفسرون تباين رصد غرة شهر رمضان في الدول العربية وأوروبا**: [Link](https://www.hespress.com/%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%81%D9%84%D9%83%D9%8A%D9%88%D9%86-%D9%8A%D9%81%D8%B3%D8%B1%D9%88%D9%86-%D8%AA%D8%A8%D8%A7%D9%8A%D9%86-%D8%B1%D8%B5%D8%AF-%D8%BA%D8%B1%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1-1703645.html)
+- **ثبوت رؤية الهلال.. الأربعاء غُرة رمضان في السعودية والإمارات وقطر**: [Link](https://arabic.cnn.com/middle-east/article/2026/02/17/saudi-arabia-announces-wednesday-as-the-first-day-of-ramadan)
+
+
 ### hespress (N/A, Wed, 18 Feb 2026 10:20:00 -0800)
 
 - **رصيف الصحافة: مستهلكون يشتكون من التلاعب في "بيع الكبد المستورد"**: [Link](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D9%85%D8%B3%D8%AA%D9%87%D9%84%D9%83%D9%88%D9%86-%D9%8A%D8%B4%D8%AA%D9%83%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D9%84%D8%A7-1703406.html)
