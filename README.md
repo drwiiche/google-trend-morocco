@@ -1,3 +1,9 @@
+### dailymotion (N/A, Tue, 17 Feb 2026 17:20:00 -0800)
+
+- **Dailymotion Pro and OKAST partner on integrated OTT and FAST platform offer**: [Link](https://www.broadbandtvnews.com/2026/02/18/dailymotion-pro-and-okast-partner-on-integrated-ott-and-fast-platform-offer/)
+- **Dailymotion Pro and Oksat team up to fast-track OTT and FAST platforms**: [Link](https://indiantelevision.com/iworld/dailymotion-pro-and-oksat-team-up-to-fast-track-ott-and-fast-platforms/)
+
+
 ### اليوم العالمي للسلامة الطرقية (N/A, Wed, 18 Feb 2026 00:50:00 -0800)
 
 - **السلامة الطرقية: قوانين عالقة تحسيس مناسباتي ومسؤولية مشتركة**: [Link](https://al3omk.com/1139206.html)
