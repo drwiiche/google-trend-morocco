@@ -1,3 +1,10 @@
+### juegos olímpicos de invierno 2026 snowboard slopestyle masculino (N/A, Wed, 18 Feb 2026 05:30:00 -0800)
+
+- **El noruego Klaebo eleva a 10 su récord de oros olímpicos de invierno**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20260218-el-noruego-klaebo-eleva-a-10-su-r%C3%A9cord-de-oros-ol%C3%ADmpicos-de-invierno)
+- **Más medallas de oro en la historia de los Juegos Olímpicos: cómo se compara el récord del noruego Johannes Hosflat Klebo con el de Michael Phelps**: [Link](https://www.ucvradio.pe/mas-actualidad/mas-medallas-de-oro-en-la-historia-de-los-juegos-olimpicos-como-se-compara-el-record-del-noruego-johannes-hosflat-klebo-con-el-de-michael-phelps/134032/)
+- **¡Ya son 10 oros! Noruega vence en el sprint por equipos con Johannes Hoesflot Klaebo**: [Link](https://www.tudn.com/juegos-olimpicos/milano-cortina-2026/johannes-hoesflot-klaebo-decimo-oro-olimpicos-sprint-por-equipos)
+
+
 ### طقس فاس (N/A, Wed, 18 Feb 2026 05:20:00 -0800)
 
 
