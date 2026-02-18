@@ -1,3 +1,17 @@
+### shahid (N/A, Wed, 18 Feb 2026 12:10:00 -0800)
+
+- **Leila Shahid, Palestinian diplomat, dies in France aged 76**: [Link](https://www.aljazeera.com/news/2026/2/18/leila-shahid-palestinian-diplomat-dies-in-france-aged-76)
+- **First woman envoy for Palestinians dies in France, family says**: [Link](https://www.timesofisrael.com/liveblog_entry/first-woman-envoy-for-palestinians-dies-in-france-family-says/)
+- **Former Palestinian delegate to France Leïla Shahid dies age 76**: [Link](https://www.france24.com/en/middle-east/20260218-former-palestinian-delegate-to-france-le%C3%AFla-shahid-dies-age-76)
+
+
+### موعد اذان الفجر (N/A, Wed, 18 Feb 2026 12:00:00 -0800)
+
+- **رمضان 2026: تعرف على أطول وأقصر ساعات الصيام حول العالم**: [Link](https://www.bbc.com/arabic/articles/cre08el7x2zo)
+- **صيام رمضان 2026.. هذه الدول ستعاني الساعات الطويلة**: [Link](https://www.skynewsarabia.com/varieties/1853492-%D8%B5%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026..-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%B3%D8%AA%D8%B9%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%88%D9%8A%D9%84%D8%A9)
+- **موعد أذان المغرب في أول أيام شهر رمضان المبارك**: [Link](https://www.youm7.com/story/2026/2/15/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83/7306114)
+
+
 ### موعد صلاة العشاء (N/A, Wed, 18 Feb 2026 11:40:00 -0800)
 
 - **أول صلاة تراويح في رمضان من مسجد الحسين (بث مباشر)**: [Link](https://www.mobtada.com/misc/1589206/%D8%A3%D9%88%D9%84-%D8%B5%D9%84%D8%A7%D8%A9-%D8%AA%D8%B1%D8%A7%D9%88%D9%8A%D8%AD-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%85%D9%86-%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
