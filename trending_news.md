@@ -1,3 +1,17 @@
+### milan ac (N/A, Wed, 18 Feb 2026 13:40:00 -0800)
+
+- **Bologne lève l’option d’achat pour Tommaso Pobega, le Milan encaisse 7 M€**: [Link](https://tribuna.com/fr/news/2026-02-18-bologne-leve-loption-dachat-pour-tommaso-pobega-le-milan-encaisse-7-m/)
+- **Pobega quitte définitivement Milan**: [Link](https://www.les-transferts.com/rumeurs-transferts/le-milan-ac-recupere-7-millions-pour-cet-indesirable/)
+- **Le Milan AC et l’Inter affichent un front commun en vue de l’Euro 2032 en Italie**: [Link](https://onefootball.com/de/news/le-milan-ac-et-linter-affichent-un-front-commun-en-vue-de-leuro-2032-en-italie-42424970)
+
+
+### بودو/ غليمت ضد الإنتر (N/A, Wed, 18 Feb 2026 13:20:00 -0800)
+
+- **دوري أبطال أوروبا.. إنتر وأتلتيكو لتحقيق الفوز في الذهاب**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A5%D9%86%D8%AA%D8%B1-%D9%88%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D8%B0%D9%87%D8%A7%D8%A8)
+- **الحلم سبورت : الشوط الأول – إنتر ميلان يتعادل مع بودو غليمت بهدف لمثله**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D8%B4%D9%88%D8%B7-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A/)
+- **18 فبراير: المجمع الأوروبي يوم الأربعاء – 4/1 خاص، نصائح وتحليلات الرهان**: [Link](https://albalad.news/sport/18-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D8%B9-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-4-1/369322/)
+
+
 ### الفنانة زينة (N/A, Wed, 18 Feb 2026 13:00:00 -0800)
 
 - **بعد إصابة طفليها في ملعب الأطفال.. نيابة الشيخ زايد تحيل جار زينة ومالك الكلب للمحاكمة**: [Link](https://twaslnews.twaslnews.com/513793/)
