@@ -1,3 +1,10 @@
+### thiago pitarch (N/A, Wed, 18 Feb 2026 04:00:00 -0800)
+
+- **Thiago makes his official debut with Real Madrid**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/thiago-debuta-en-partido-oficial-con-el-real-madrid-17-02-2026)
+- **Report – How Real Madrid stopped 18-year-old midfield gem from joining Benfica**: [Link](https://ca.sports.yahoo.com/news/report-real-madrid-stopped-18-084500170.html)
+- **Real Madrid starlet handed senior debut vs Benfica**: [Link](https://getfootballnewsspain.com/real-madrid-starlet-handed-senior-debut-vs-benfica/)
+
+
 ### dailymotion (N/A, Tue, 17 Feb 2026 17:20:00 -0800)
 
 - **Dailymotion Pro and OKAST partner on integrated OTT and FAST platform offer**: [Link](https://www.broadbandtvnews.com/2026/02/18/dailymotion-pro-and-okast-partner-on-integrated-ott-and-fast-platform-offer/)
