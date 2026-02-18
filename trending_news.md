@@ -1,3 +1,45 @@
+### al-nassr fc – fk arkadag (N/A, Wed, 18 Feb 2026 09:30:00 -0800)
+
+- **Al-Nassr vs Arkadag LIVE Score Updates in AFC Champions League Two Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/18/1251215-al-nassr-vs-arkadag-live-score-afc-champions-league-two.html)
+- **How to watch today's Al Nassr FC vs Arkadag AFC Champions League Two game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-gh/news/how-where-to-watch-al-nassr-fc-arkadag-18022026/blt0372401263462073)
+- **Al-Nassr Vs Arkadag LIVE Score, AFC Champions League Two: Ronaldo And Co Look To Defend First-Leg Lead**: [Link](https://www.outlookindia.com/sports/football/al-nassr-vs-arkadag-live-score-afc-champions-league-two-2025-26-round-of-16-leg-2-updates-highlights)
+
+
+### bourse maroc (N/A, Wed, 18 Feb 2026 09:30:00 -0800)
+
+- **Bourse de Casablanca : le MASI recule légèrement lors de la séance du 18 février**: [Link](https://medias24.com/2026/02/18/bourse-de-casablanca-le-masi-recule-legerement-lors-de-la-seance-du-18-fevrier-1630399/)
+- **Flash Momentum : Scoring technique des valeurs du MASI20**: [Link](https://boursenews.ma/article/graphiques-et-analyse-technique/Flash-Momentum-16-fevrier-2026)
+- **Bourse de Casablanca: Le MASI rebondit de 1,37% et efface presque ses pertes annuelles**: [Link](https://boursenews.ma/article/marches/bourse-de-casablanca-cloture-du-16-fevrier-2026)
+
+
+### المنحة (N/A, Wed, 18 Feb 2026 09:30:00 -0800)
+
+- **حلول شهر رمضان يصرف الشطر الثاني من المنح الجامعية بالمغرب**: [Link](https://www.hespress.com/%D8%AD%D9%84%D9%88%D9%84-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%8A%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D8%B4%D8%B7%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%85-1703132.html)
+- **بشرى للطلبة.. صرف الشطر الثاني من المنحة بداية من الأسبوع الأول لرمضان**: [Link](https://ar.hibapress.com/details-703376.html)
+- **صرف الدفعة الثانية من المنحة الجامعية**: [Link](https://www.chtoukapress.com/301384.html/)
+
+
+### رؤية الهلال (N/A, Wed, 18 Feb 2026 09:30:00 -0800)
+
+- **الأربعاء بداية رمضان في 10 دول إسلامية والخميس في دول أخرى**: [Link](https://www.aljazeera.net/misc/2026/2/17/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D9%82%D8%B7%D8%B1-%D8%AA%D8%B9%D9%84%D9%86%D8%A7%D9%86-%D8%A3%D9%86-%D8%BA%D8%AF%D8%A7)
+- **الفلك والفقه يلتقيان لضمان دقة تحديد أول أيام شهر رمضان في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D9%84%D9%83-%D9%88%D8%A7%D9%84%D9%81%D9%82%D9%87-%D9%8A%D9%84%D8%AA%D9%82%D9%8A%D8%A7%D9%86-%D9%84%D8%B6%D9%85%D8%A7%D9%86-%D8%AF%D9%82%D8%A9-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D8%A3-1703422.html)
+- **ثبوت رؤية الهلال.. الأربعاء غُرة رمضان في السعودية والإمارات وقطر**: [Link](https://arabic.cnn.com/middle-east/article/2026/02/17/saudi-arabia-announces-wednesday-as-the-first-day-of-ramadan)
+
+
+### fk qarabag – newcastle (N/A, Wed, 18 Feb 2026 09:00:00 -0800)
+
+- **Newcastle United Set for European Knockout Stage Debut**: [Link](http://m.elbotola.com/en/article/2026-02-18-13-45-725.html)
+- **THE SPECIAL - Qarabag Away in the Champions League**: [Link](https://tf1892.substack.com/p/the-special-qarabag-away-in-the-champions)
+- **Confirmed line up: Four changes for Qarabağ clash, Joelinton on bench**: [Link](https://onefootball.com/en/news/confirmed-line-up-four-changes-for-qarabag-clash-joelinton-on-bench-42430066)
+
+
+### bourse (N/A, Wed, 18 Feb 2026 09:00:00 -0800)
+
+- **Les Bourses européennes terminent à des niveaux records**: [Link](https://medias24.com/agence-presse/les-bourses-europeennes-terminent-a-des-niveaux-records/)
+- **Bourse de Paris: l'indice vedette CAC 40 atteint un nouveau record absolu**: [Link](https://www.france24.com/fr/info-en-continu/20260218-bourse-de-paris-l-indice-vedette-cac-40-atteint-un-nouveau-record-absolu)
+- **Arbitrage : Le CAC40 repart vers ses derniers records - 18/02**: [Link](https://www.bfmtv.com/economie/replay-emissions/bfm-patrimoine/video-arbitrage-le-cac40-repart-vers-ses-derniers-records-18-02_VN-202602180442.html)
+
+
 ### demain nous appartient (N/A, Wed, 18 Feb 2026 07:30:00 -0800)
 
 - **Demain nous appartient du 19 février 2026 : Georges se rapproche du but et Charles montre son vrai visage**: [Link](https://www.nextplz.fr/serie/535608-demain-nous-appartient-du-19-fevrier-2026-georges-se-rapproche-du-but-et-charles-montre-son-vrai-visage)
