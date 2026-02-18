@@ -1,3 +1,31 @@
+### hespress (N/A, Wed, 18 Feb 2026 10:20:00 -0800)
+
+- **رصيف الصحافة: مستهلكون يشتكون من التلاعب في "بيع الكبد المستورد"**: [Link](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D9%85%D8%B3%D8%AA%D9%87%D9%84%D9%83%D9%88%D9%86-%D9%8A%D8%B4%D8%AA%D9%83%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D9%84%D8%A7-1703406.html)
+- **المغرب يتولى رئاسة مؤتمر نزع السلاح**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D9%88%D9%84%D9%89-%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D9%86%D8%B2%D8%B9-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D8%AD-1703569.html)
+- **المغرب يتولى رئاسة مؤتمر نزع السلاح في جنيف - تليكسبريس**: [Link](https://telexpresse.com/456193.html)
+
+
+### levante – villarreal (N/A, Wed, 18 Feb 2026 10:20:00 -0800)
+
+- **El Levante UD lanza una promoción especial para jóvenes y estudiantes de cara al partido ante el Villarreal CF**: [Link](https://www.levanteud.com/noticias/el-levante-ud-lanza-una-promocion-especial-para-jovenes-y-estudiantes-de-cara-al-partido-ante-el-villarreal-cf)
+- **Marcelino explica cómo están Gerard Moreno, Parejo y Moleiro: "Valoraremos hoy"**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260217/marcelino-explica-bajas-gerard-moreno-dani-parejo-alberto-moleiro_18_018373454.html)
+- **El Villarreal quiere aprovechar el as en la manga**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/castellon/deportes/villarreal-quiere-aprovechar-manga_202602186995bc589243cc133c50c822.html)
+
+
+### قره باغ ضد نيوكاسل يونايتد (N/A, Wed, 18 Feb 2026 10:00:00 -0800)
+
+- **نيوكاسل يونايتد يستهل مشواره في الأدوار الإقصائية الأوروبية**: [Link](https://m.elbotola.com/article/2026-02-18-13-45-893.html)
+- **صدام الطموح بالتاريخ في ملحق دوري أبطال أوروبا بمواجهات نارية متباينة**: [Link](https://www.almaghribtoday.net/1257/225641-%D8%B5%D8%AF%D8%A7%D9%85-%D8%A7%D9%84%D8%B7%D9%85%D9%88%D8%AD-%D8%A8%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%81%D9%8A-%D9%85%D9%84%D8%AD%D9%82-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D8%AA%D8%A8%D8%A7%D9%8A%D9%86%D8%A9)
+- **نيوكاسل في مهمة صعبة أمام كاراباج وأتلتيكو يواجه بروج في ليلة دوري الأبطال**: [Link](https://alwasat.ly/news/international-sports/508702)
+
+
+### jannik sinner (N/A, Wed, 18 Feb 2026 09:50:00 -0800)
+
+- **Buona la prima di Sinner a Doha, Machac ko in 2 set**: [Link](https://www.primaradio.net/buona-la-prima-di-sinner-a-doha-machac-ko-in-2-set-5/)
+- **Tutte le partite e le notizie di tennis in Diretta**: [Link](https://www.diretta.it/news/tennis-tracker-rybakina-eliminata-a-dubai-sinner-batte-popyrin-6-3-7-5/tdJBNZxA/)
+- **Sinner-Popyrin 6-3 7-5: Jannik alza il livello e chiude con un break finale**: [Link](https://www.altoadige.it/sport/sinner-popyrin-6-3-7-5-jannik-alza-il-livello-e-chiude-con-un-break-finale-1.4297104)
+
+
 ### al-nassr fc – fk arkadag (N/A, Wed, 18 Feb 2026 09:30:00 -0800)
 
 - **Al-Nassr vs Arkadag LIVE Score Updates in AFC Champions League Two Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/18/1251215-al-nassr-vs-arkadag-live-score-afc-champions-league-two.html)
