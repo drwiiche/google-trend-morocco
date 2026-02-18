@@ -1,3 +1,29 @@
+### موعد صلاة الفجر (N/A, Wed, 18 Feb 2026 14:10:00 -0800)
+
+- **مواقيت الصلاة ليوم الأربعاء 18 فبراير 2026 مع أذان الظهر**: [Link](https://akher.news/41775/%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-18-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026-%D9%85/)
+- **موعد أذان الفجر.. مواقيت الصلاة اليوم الخميس 19 فبراير 2026 بالمحافظات**: [Link](https://www.youm7.com/story/2026/2/19/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-19-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026/7309287)
+- **موعد أذان وصلاة العصر اليوم الأربعاء 18 فبراير.. ودعاء بعد ختم الصلاة**: [Link](https://www.masrawy.com/islameyat/others-islamic_ppl_news/details/2026/2/18/2944688/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-18-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D9%88%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%AA%D9%85-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9)
+
+
+### loto (N/A, Wed, 18 Feb 2026 14:10:00 -0800)
+
+
+
+
+### arsenal vs (N/A, Wed, 18 Feb 2026 14:10:00 -0800)
+
+- **Martin Odegaard is Arsenal's biggest miss - he cannot come back soon enough**: [Link](https://www.mirror.co.uk/sport/football/news/martin-odegaard-arsenals-biggest-miss-36743129)
+- **Arsenal handed TRIPLE injury boost ahead of next two fixtures**: [Link](https://www.nowarsenal.com/latest-news/arsenal-handed-triple-injury-boost-ahead-of-next-two-fixtures/)
+- **Britain Soccer**: [Link](https://www.chronicle-tribune.com/sports/wire/britain-soccer/image_01791947-1715-5eba-b268-d19859a6f1b7.html)
+
+
+### club brujas - atlético madrid (N/A, Wed, 18 Feb 2026 13:20:00 -0800)
+
+- **Brujas 3-3 Atlético: resumen, goles y resultado**: [Link](https://as.com/futbol/champions/brujas-atletico-en-directo-previa-y-ultima-hora-de-la-champions-league-hoy-en-vivo-f202602-d/)
+- **Atlético Se Jugará En Casa El Pase A Octavos De Champions Tras Empatar En Brujas (3-3)**: [Link](https://www.barrons.com/news/spanish/atletico-se-jugara-en-casa-el-pase-a-octavos-de-champions-tras-empatar-en-brujas-3-3-dd1cda57?refsec=topics_afp-news)
+- **La perfecta ejecución de penal de Julián Álvarez para el Atlético de Madrid ante Brujas por la Champions: sus impactantes números**: [Link](https://www.infobae.com/deportes/2026/02/18/atletico-de-madrid-le-gana-a-brujas-por-la-champions-con-una-perfecta-ejecucion-de-penal-de-julian-alvarez-sus-impactantes-numeros/)
+
+
 ### milan ac (N/A, Wed, 18 Feb 2026 13:40:00 -0800)
 
 - **Bologne lève l’option d’achat pour Tommaso Pobega, le Milan encaisse 7 M€**: [Link](https://tribuna.com/fr/news/2026-02-18-bologne-leve-loption-dachat-pour-tommaso-pobega-le-milan-encaisse-7-m/)
