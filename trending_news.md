@@ -1,3 +1,15 @@
+### snowboard slopestyle hommes aux jeux olympiques d'hiver 2026 (N/A, Tue, 17 Feb 2026 16:20:00 -0800)
+
+
+
+
+### دورتموند ضد أتالانتا (N/A, Tue, 17 Feb 2026 13:00:00 -0800)
+
+- **شاهد.. غيراسي يقود دورتموند للفوز على أتلانتا بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/2/18/%D8%BA%D9%8A%D8%B1%D8%A7%D8%B3%D9%8A-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A3%D8%AA%D9%84%D8%A7%D9%86%D8%AA%D8%A7)
+- **أفضل من هالاند ومبابي.. نجم أفريقي يتفوق على الجميع بدوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%85%D9%86-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D9%86%D8%AC%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt3e09192b3012d618)
+- **دوري أبطال أوروبا: كوفاتش يدعو فريقه إلى استحضار مستواه المحلي أمام أتالانتا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260216-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%83%D9%88%D9%81%D8%A7%D8%AA%D8%B4-%D9%8A%D8%AF%D8%B9%D9%88-%D9%81%D8%B1%D9%8A%D9%82%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D8%AD%D8%B6%D8%A7%D8%B1-%D9%85%D8%B3%D8%AA%D9%88%D8%A7%D9%87-%D8%A7%D9%84%D9%85%D8%AD%D9%84%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7)
+
+
 ### youtube down (N/A, Tue, 17 Feb 2026 17:30:00 -0800)
 
 - **YouTube down for more than 240,000 users in the U.S., Downdetector shows**: [Link](https://www.detroitnews.com/story/tech/2026/02/17/youtube-down-for-more-than-240000-users-in-the-u-s-downdetector-shows/88729296007/)
