@@ -1,3 +1,24 @@
+### kick (N/A, Wed, 18 Feb 2026 16:50:00 -0800)
+
+- **‘Could’ve been killed’: Nurse tends to rider pushed into moving train by teens at Back Bay Station**: [Link](https://www.yahoo.com/news/articles/could-ve-killed-nurse-tends-025409974.html)
+- **Juveniles kick man into departing Orange Line train at Back Bay station, police say**: [Link](https://www.bostonglobe.com/2026/02/18/metro/back-bay-man-kicked-train/)
+- **Group of teens allegedly kick man into train at MBTA Back Bay station**: [Link](https://www.bostonherald.com/2026/02/18/group-of-teens-allegedly-kick-man-into-train-at-mbta-back-bay-station/)
+
+
+### توقيت الصلاة رمضان 2026 (N/A, Wed, 18 Feb 2026 16:20:00 -0800)
+
+- **الجامع الأزهر يفتتح أولى ليالي رمضان بصلاة العشاء والتراويح وسط آلاف المصلين**: [Link](https://almasdare.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9-%D8%A7%D9%84%D8%A3%D8%B2%D9%87%D8%B1-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A3%D9%88%D9%84%D9%89-%D9%84%D9%8A%D8%A7%D9%84%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A8/)
+- **أول صلاة تراويح في رمضان من مسجد الحسين (فيديو)**: [Link](https://www.mobtada.com/misc/1589206/%D8%A3%D9%88%D9%84-%D8%B5%D9%84%D8%A7%D8%A9-%D8%AA%D8%B1%D8%A7%D9%88%D9%8A%D8%AD-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%85%D9%86-%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **مدير الجامع الأزهر لـ«الشروق»: مفاجآت فى أئمة صلاة التراويح بالجامع**: [Link](https://twaslnews.twaslnews.com/516565/)
+
+
+### فجر (N/A, Wed, 18 Feb 2026 14:30:00 -0800)
+
+- **دعاء اليوم الأول من شهر رمضان 2026**: [Link](https://www.sayidaty.net/%D8%A8%D9%84%D8%B3/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/1807135-%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **أدعية استقبال شهر رمضان.. الصيغ المستحبة عند رؤية الهلال**: [Link](https://www.elwatannews.com/news/details/8226863)
+- **دعاء اليوم الاول من شهر رمضان**: [Link](https://www.nablustv.net/internal.asp?page=details&newsID=470291&cat=71)
+
+
 ### دعاء صوم رمضان (N/A, Wed, 18 Feb 2026 16:50:00 -0800)
 
 - **أدعية اليوم الأول من رمضان 1447هـ – دعاء 1 رمضان 2026**: [Link](https://mwlana.com/services/%D8%A3%D8%AF%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-1447%D9%87%D9%80-%D8%AF%D8%B9%D8%A7%D8%A1-1-%D8%B1%D9%85/)
