@@ -1,3 +1,36 @@
+### 2m tv (N/A, Thu, 19 Feb 2026 10:20:00 -0800)
+
+
+
+
+### دعاء الصوم (N/A, Thu, 19 Feb 2026 10:20:00 -0800)
+
+- **مفتي الجمهورية: النية ينبغي أن تكون حاضرة في كل العبادات**: [Link](https://ahlmasrnews.com/news/talk-show/13450822/%D9%85%D9%81%D8%AA%D9%8A-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D8%A9-%D9%8A%D9%86%D8%A8%D8%BA%D9%8A-%D8%A3%D9%86-%D8%AA%D9%83%D9%88%D9%86-%D8%AD%D8%A7%D8%B6%D8%B1%D8%A9-%D9%81%D9%8A-%D9%83%D9%84-%D8%A7%D9%84%D8%B9%D8%A8%D8%A7%D8%AF%D8%A7%D8%AA)
+- **هل يشترط التلفظ بـ نية الصيام فى كل يوم من أيام رمضان؟.. الأزهر يجيب**: [Link](https://www.almasryalyoum.com/news/details/4203011)
+- **دار الإفتاء المصرية**: [Link](https://www.facebook.com/EgyptDarAlIfta/posts/1394055002754111/)
+
+
+### heure ftour ramadan 2026 (N/A, Thu, 19 Feb 2026 10:20:00 -0800)
+
+- **Ramadan 2026 : 30 recettes de plats à préparer à l'avance pour un ftour 100% zen**: [Link](https://www.cuisineaz.com/diaporamas/ramadan-2026-30-recettes-de-plats-a-preparer-a-l-avance-pour-un-ftour-100-zen-7114/interne/1.aspx)
+- **Repas de l'Iftar pour le Ramadan 2026 : 3 astuces de mamans organisées pour ne pas passer sa vie en cuisine**: [Link](https://www.aufeminin.com/societe/news-societe/ramadan-2/repas-de-liftar-pour-le-ramadan-2026-3-astuces-de-mamans-organisees-pour-ne-pas-passer-sa-vie-en-cuisine-2702175.html)
+- **Ramadan 2026 : Aliments de saison pour un ftour sain**: [Link](https://www.fourchette-et-bikini.fr/actus/ramadan-2026-aliments-de-saison-pour-un-ftour-sain-39236.html)
+
+
+### snrt (N/A, Thu, 19 Feb 2026 10:00:00 -0800)
+
+- **Boudra et Khairat au PPS : la stratégie de Benabdallah pour peser en 2026**: [Link](https://medias24.com/2026/02/16/boudra-et-khairat-au-pps-la-strategie-de-benabdallah-pour-peser-en-2026-1628845/)
+- **Boudra et Khayrat rejoignent le PPS: un tournant stratégique?**: [Link](https://snrtnews.com/fr/article/boudra-et-khayrat-rejoignent-le-pps-un-tournant-strategique-146645)
+- **PPS: entre grandeur morale et tentation opportuniste**: [Link](https://lecollimateur.ma/205263)
+
+
+### موعد أذان المغرب في طنجة (N/A, Thu, 19 Feb 2026 08:00:00 -0800)
+
+- **هذه مواقيت الصلاة بطنجة لشهر رمضان المبارك**: [Link](https://ecopress.ma/%D9%87%D8%B0%D9%87-%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A8%D8%B7%D9%86%D8%AC%D8%A9-%D9%84%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A7%D9%84%D9%85/)
+- **رمضان 2026 في أكادير.. جدول مواقيت أذان الفجر طيلة الشهر الكريم**: [Link](https://agadirtv.ma/120394.html)
+- **✅✅ أوقات الصلاة في طنجة اليوم**: [Link](https://almaghribi.ma/prayer-citytangier)
+
+
 ### المغرب اليوم (N/A, Thu, 19 Feb 2026 09:30:00 -0800)
 
 - **كيف يساعد الثوم في خفض الكوليسترول بشكل طبيعي؟**: [Link](https://aawsat.com/%D8%B5%D8%AD%D8%AA%D9%83/5242549-%D9%83%D9%8A%D9%81-%D9%8A%D8%B3%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%AB%D9%88%D9%85-%D9%81%D9%8A-%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D9%83%D9%88%D9%84%D9%8A%D8%B3%D8%AA%D8%B1%D9%88%D9%84-%D8%A8%D8%B4%D9%83%D9%84-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A%D8%9F)
