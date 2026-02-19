@@ -1,3 +1,31 @@
+### lille – étoile rouge (N/A, Thu, 19 Feb 2026 11:30:00 -0800)
+
+- **Après des débuts en fanfare avec le LOSC, Olivier Giroud cherche un second souffle**: [Link](https://www.lequipe.fr/Football/Actualites/Apres-des-debuts-en-fanfare-avec-le-losc-olivier-giroud-cherche-un-second-souffle/1653360)
+- **"La seule crise que je vois, c'est celle des résultats" : Les déclarations de Dejan Stankovic, entraîneur serbe, avant LOSC – Étoile Rouge de Belgrade**: [Link](https://lepetitlillois.com/2026/02/19/la-seule-crise-que-je-vois-cest-celle-des-resultats-les-declarations-de-dejan-stankovic-entraineur-serbe-avant-losc-etoile-rouge-de-belgrade/)
+- **PRONOS PARIS RMC Le pari football d’Éric Di Meco du 19 février - Ligue Europa**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-d-eric-di-meco-du-19-fevrier-ligue-europa_AN-202602190567.html)
+
+
+### al-ettifaq – al-fateh (N/A, Thu, 19 Feb 2026 11:30:00 -0800)
+
+- **Preview: Al Ettifaq vs Al Fateh Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-ettifaq-vs-al-fateh-preview-202602)
+- **Al-Ettifaq Striker Dilemma: Al-Shehri Chooses Between Nkota and Matija**: [Link](https://koorabreak.com/en/258839/)
+- **Al Ettifaq vs Al Fateh Preview & Prediction**: [Link](https://www.thestatszone.com/al-ettifaq-vs-al-fateh-preview-prediction-171317)
+
+
+### al ahly – el gouna fc (N/A, Thu, 19 Feb 2026 11:20:00 -0800)
+
+- **Torreau Grants Bencharki and Belamri Important Roles in Al-Ahly's Formation**: [Link](https://www.ysscores.com/en/news/13914080/Torreau-Grants-Bencharki-and-Belamri-Important-Roles-in-Al-Ahly's-Formation)
+- **Al Ahly defender Amr Al-Gazzar to miss El Gouna clash due to muscle fatigue**: [Link](https://africasoccer.com/al-ahly-defender-amr-al-gazzar-to-miss-el-gouna-clash-due-to-muscle-fatigue/)
+- **Amin Omar Appointed as Referee for Al Ahly vs El Gouna Match in Premier League**: [Link](https://www.ysscores.com/en/news/13914013/Amin-Omar-Appointed-as-Referee-for-Al-Ahly-vs-El-Gouna-Match-in-Premier-League)
+
+
+### شاهد (N/A, Thu, 19 Feb 2026 11:10:00 -0800)
+
+- **أفضل التطبيقات الناقلة لمسلسلات رمضان 2026 لمشاهدة الحلقات بجودة HD وبدون تقطيع**: [Link](https://lite.iqraa.news/22778/%D8%A3%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%AA%D8%B7%D8%A8%D9%8A%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%B1%D9%85%D8%B6%D8%A7/)
+- **الأمان والخصوصية: كيفية حماية حسابك عند تسجيل الدخول إلى MBC شاهد من أجهزة متعددة**: [Link](https://www.matnnews.com/269710)
+- **لا تفوت أي حلقة بعد اليوم.. تحميل تطبيق دراما رمضان 2026 خطوة بخطوة**: [Link](https://portal.24masr.com/2026/02/19/%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA-%D8%A3%D9%8A-%D8%AD%D9%84%D9%82%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%AD%D9%85%D9%8A%D9%84-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D8%AF/)
+
+
 ### العشاء (N/A, Thu, 19 Feb 2026 10:50:00 -0800)
 
 
