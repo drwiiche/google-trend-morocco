@@ -1,3 +1,22 @@
+### quran (N/A, Wed, 18 Feb 2026 16:50:00 -0800)
+
+- **Quran burning conviction should have been upheld, High Court told**: [Link](https://www.bbc.com/news/articles/c3v7w1yw771o)
+- **White House set to accept Koran burner as refugee**: [Link](https://www.telegraph.co.uk/news/2026/02/15/white-house-koran-burner-refugee/)
+- **Man who burned Quran in London may get US asylum as case draws Trump administration attention**: [Link](https://www.foxnews.com/world/man-who-burned-quran-london-may-get-us-asylum-case-draws-trump-administration-attention)
+
+
+### patinage individuel femmes, programme libre, jeux olympiques d'hiver 2026 (N/A, Wed, 18 Feb 2026 16:20:00 -0800)
+
+
+
+
+### دعاء الصيام (N/A, Wed, 18 Feb 2026 15:10:00 -0800)
+
+- **دعاء الصباح اليوم الأول من رمضان 19-2-2026**: [Link](https://mwlana.com/services/%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D8%B5%D8%A8%D8%A7%D8%AD-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-19-2-2026/)
+- **سحور أول يوم رمضان 2026 في مصر.. 10 أدعية**: [Link](https://al-ain.com/article/dua-suhur-first-day-ramadan2026)
+- **دعاء اليوم الثاني من شهر رمضان 2026 ادعية ثاني يوم رمضان 1447**: [Link](https://www.rgtrustschool.net/ar/101/)
+
+
 ### kick (N/A, Wed, 18 Feb 2026 16:50:00 -0800)
 
 - **‘Could’ve been killed’: Nurse tends to rider pushed into moving train by teens at Back Bay Station**: [Link](https://www.yahoo.com/news/articles/could-ve-killed-nurse-tends-025409974.html)
