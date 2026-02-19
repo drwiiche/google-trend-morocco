@@ -1,3 +1,10 @@
+### instagram (N/A, Thu, 19 Feb 2026 00:20:00 -0800)
+
+- **Mark Zuckerberg said he reached out to Apple CEO Tim Cook to discuss 'wellbeing of teens and kids'**: [Link](https://www.cnbc.com/2026/02/18/meta-mark-zuckerberg-social-media-safety-trial.html)
+- **Meta’s Zuckerberg testifies about social media’s effects on children in landmark trial**: [Link](https://www.cnn.com/2026/02/18/tech/meta-mark-zuckerberg-testifies-social-media-addiction-trial)
+- **Judge scolds Mark Zuckerberg's entourage for sporting Meta glasses with cameras in court**: [Link](https://www.yahoo.com/news/videos/judge-scolds-mark-zuckerbergs-entourage-220005210.html)
+
+
 ### دعاء اول يوم رمضان (N/A, Wed, 18 Feb 2026 21:40:00 -0800)
 
 - **دعاء الصباح اليوم الأول من رمضان 19-2-2026**: [Link](https://mwlana.com/services/%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D8%B5%D8%A8%D8%A7%D8%AD-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-19-2-2026/)
