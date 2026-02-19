@@ -1,3 +1,30 @@
+### keno (N/A, Thu, 19 Feb 2026 13:30:00 -0800)
+
+- **Keno Winner**: [Link](https://trfm.com.au/articles/keno-winner/)
+- **Keno luck pays off**: [Link](https://lakespost.com.au/17581/keno-luck-pays-off/)
+- **Winning numbers drawn in Wednesday’s Washington Keno**: [Link](https://apnews.com/article/winning-numbers-data-skrive-8afabfcbf0a4400d9c5df61bb7ccde2d)
+
+
+### الهيبة راس الجبل (N/A, Thu, 19 Feb 2026 13:10:00 -0800)
+
+- **أسعد بواب لـ”العمق”: لا أقلد “تيم حسن” في “الهيبة”.. وهذه تفاصيل عودتي للمغرب**: [Link](https://al3omk.com/1138686.html)
+- **مواعيد عرض مسلسل الهيبة رأس الجبل والقنوات الناقلة مع القصة والأبطال - المشهد**: [Link](https://almashhad.com/article/459217420284850-entertainment/546506751816959-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%B9%D8%B1%D8%B6-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D9%87%D9%8A%D8%A8%D8%A9-%D8%B1%D8%A3%D8%B3-%D8%A7%D9%84%D8%AC%D8%A8%D9%84-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D9%82%D8%B5%D8%A9-%D9%88%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84/)
+- **مسلسل الهيبة رأس الجبل رمضان 2026 المواعيد والإعادة المنصات والقنوات الناقلة**: [Link](https://www.iqraa24.com/news/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D9%87%D9%8A%D8%A8%D8%A9-%D8%B1%D8%A3%D8%B3-%D8%A7%D9%84%D8%AC%D8%A8%D9%84-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B9%D9%8A/)
+
+
+### مسلسل رحمة الجزء الثاني (N/A, Thu, 19 Feb 2026 12:30:00 -0800)
+
+- **وينزا يتراجع عن الغياب في رمضان ويعلن مشاركته في «رحمة 2»**: [Link](https://ar.le360.ma/people/OKQ5DLOTDNHPHFZR55UNDOWCPI/)
+- **مواعيد عرض مسلسل رحمة الجزء الثاني والقنوات الناقلة مع القصة والأبطال - المشهد**: [Link](https://almashhad.com/article/459217420284850-entertainment/292329870770402-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%B9%D8%B1%D8%B6-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B1%D8%AD%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A1-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D9%82%D8%B5%D8%A9-%D9%88%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84/)
+- **أيوب اليوسفي ينتهي من تصوير مشاهده في الجزء الثاني من مسلسل "رحمة"**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%A3%D9%8A%D9%88%D8%A8-%D8%A7%D9%84%D9%8A%D9%88%D8%B3%D9%81%D9%8A-%D9%8A%D9%86%D8%AA%D9%87%D9%8A-%D9%85%D9%86-%D8%AA%D8%B5%D9%88%D9%8A%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D9%87-%D9%81%D9%8A-%D8%A7-244479.html)
+
+
+### بنات لالة منانة الجزء الثالث (N/A, Thu, 19 Feb 2026 11:50:00 -0800)
+
+- **"بنات لالة منانة" نوستالجيا مغربية تعود من جديد في جزء ثالث يفتح صفحة الأحفاد تشاهدونها في رمضان على 2M**: [Link](https://2m.ma/ar/news/%D8%A8%D9%86%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D9%85%D9%86%D8%A7%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%81%D9%8A-%D8%AC%D8%B2%D8%A1-%D8%AB%D8%A7%D9%84%D8%AB-%D9%86%D9%88%D8%B3%D8%AA%D8%A7%D9%84%D8%AC%D9%8A%D8%A7-%D9%88%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-%D8%A5%D9%84%D9%89-20260128)
+- **بعد عرض الحلقة الأولى.. نشطاء يشيدون بالجزء الثالث من سلسلة “بنات لالة منانة”**: [Link](https://kifache.com/%D8%A8%D8%B9%D8%AF-%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%86%D8%B4%D8%B7%D8%A7%D8%A1-%D9%8A%D8%B4%D9%8A%D8%AF%D9%88%D9%86-%D8%A8%D8%A7%D9%84/)
+
+
 ### weather tomorrow (N/A, Thu, 19 Feb 2026 12:40:00 -0800)
 
 - **Severe Weather Threat Increasing Across Ohio Valley Today**: [Link](https://weather.com/storms/severe/video/severe-weather-threat-increasing-thursday-ohio-valley)
