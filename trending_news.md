@@ -1,3 +1,38 @@
+### المغرب اليوم (N/A, Thu, 19 Feb 2026 09:30:00 -0800)
+
+- **كيف يساعد الثوم في خفض الكوليسترول بشكل طبيعي؟**: [Link](https://aawsat.com/%D8%B5%D8%AD%D8%AA%D9%83/5242549-%D9%83%D9%8A%D9%81-%D9%8A%D8%B3%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%AB%D9%88%D9%85-%D9%81%D9%8A-%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D9%83%D9%88%D9%84%D9%8A%D8%B3%D8%AA%D8%B1%D9%88%D9%84-%D8%A8%D8%B4%D9%83%D9%84-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A%D8%9F)
+- **هل تحمي مكملات الثوم صحة القلب فعلا؟**: [Link](https://www.eremnews.com/health/ql5kle8)
+- **الثوم قد يساهم في خفض الكوليسترول وفق دراسات حديثة**: [Link](https://www.almaghribtoday.net/487/144630-%D8%A7%D9%84%D8%AB%D9%88%D9%85-%D9%82%D8%AF-%D9%8A%D8%B3%D8%A7%D9%87%D9%85-%D9%81%D9%8A-%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D9%83%D9%88%D9%84%D9%8A%D8%B3%D8%AA%D8%B1%D9%88%D9%84-%D9%88%D9%81%D9%82-%D8%AF%D8%B1%D8%A7%D8%B3%D8%A7%D8%AA-%D8%AD%D8%AF%D9%8A%D8%AB%D8%A9)
+
+
+### carlos alcaraz (N/A, Thu, 19 Feb 2026 09:30:00 -0800)
+
+- **Esto es lo que le dijo Royer a Alcaraz en la red: "Vendré a por ti y a por Jannik"**: [Link](https://www.puntodebreak.com/2026/02/18/esto-le-dijo-royer-alcaraz-red-vendre-jannik)
+- **Así reaccionó reconocido tenista cuando su rival, el número uno del mundo, en el saludo en la red le preguntó si lo había dejado ganar**: [Link](https://www.ntn24.com/noticias-deportes/asi-reacciono-reconocido-tenista-cuando-su-rival-el-numero-uno-del-mundo-en-el-saludo-en-la-red-le-pregunto-si-lo-habia-dejado-ganar-607256)
+- **Horarios y orden de juego (día 4): Alcaraz y Sinner meten una marcha más en Doha**: [Link](https://espanol.eurosport.com/tenis/atp-doha/2026/cuadro-orden-de-juego-horario-canal-tv-donde-ver-carlos-alcaraz-jannik-sinner-doha_sto23272768/story.shtml)
+
+
+### paok – celta vigo (N/A, Thu, 19 Feb 2026 09:20:00 -0800)
+
+- **And now for… Celta**: [Link](https://www.paokfc.gr/en/news/20260218-kai-tora-celta/)
+- **PAOK Thessaloniki Faces Celta Vigo in Europa League Round of 16 Playoff First Leg**: [Link](https://news.ssbcrack.com/paok-thessaloniki-faces-celta-vigo-in-europa-league-round-of-16-playoff-first-leg/)
+- **Europa League: Jorge Sánchez eyes debut with PAOK against Celta de Vigo**: [Link](https://www.soyfutbol.com/en/news/europa-league-jorge-sanchez-eyes-debut-with-paok-against-celta-de-vigo-20260218-0047.html)
+
+
+### zrinjski mostar – crystal palace (N/A, Thu, 19 Feb 2026 09:10:00 -0800)
+
+- **Zrinjski vs Crystal Palace LIVE Score Updates in UEFA Conference League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/19/1251359-zrinjski-vs-crystal-palace-live-score-conference-league.html)
+- **Fenerbahce vs Nottingham Forest Predictions, Picks & Odds**: [Link](https://www.toffeeweb.com/fenerbahce-vs-nottingham-forest-predictions-18-02-2026/)
+- **Football Tips: Thursday night’s 11/1 Conference League Acca**: [Link](https://news.paddypower.com/football/2026/02/19/football-tips-thursday-night-conference-league-acca-feb-19/)
+
+
+### موعد مباراة المغرب (N/A, Thu, 19 Feb 2026 08:10:00 -0800)
+
+- **مصدر خاص يكشف تفاصيل عيادة الرجاء قبل مواجهة اتحاد طنجة في "البطولة برو".**: [Link](https://www.hesport.com/%D9%85%D8%B5%D8%AF%D8%B1-%D8%AE%D8%A7%D8%B5-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B9%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%82%D8%A8%D9%84-%D9%85-427635.html)
+- **غياب أحد نجوم الرجاء يبعثر حسابات فادلو أمام اتحاد طنجة**: [Link](https://sport.lesiteinfo.com/elbotola/488373.html)
+- **انطلاق بيع تذاكر مباراة الرجاء ضد اتحاد طنجة.. أثمنتها تتراوح بين 60 و 1400 درهم**: [Link](https://m.elbotola.com/article/2026-02-18-10-24-329.html)
+
+
 ### maghreb (N/A, Thu, 19 Feb 2026 07:40:00 -0800)
 
 - **Demande de dissolution de l’«Union du Maghreb Arabe (UMA) » et proposition de création de l’«Union de Tamazgha**: [Link](https://amadalamazigh.press.ma/fr/demande-de-dissolution-de-lunion-du-maghreb-arabe-uma-et-proposition-de-creation-de-lunion-de-tamazgha/)
