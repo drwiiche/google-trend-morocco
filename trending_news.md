@@ -1,3 +1,31 @@
+### دعاء صوم رمضان (N/A, Wed, 18 Feb 2026 16:50:00 -0800)
+
+- **أدعية اليوم الأول من رمضان 1447هـ – دعاء 1 رمضان 2026**: [Link](https://mwlana.com/services/%D8%A3%D8%AF%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-1447%D9%87%D9%80-%D8%AF%D8%B9%D8%A7%D8%A1-1-%D8%B1%D9%85/)
+- **سحور أول يوم رمضان 2026 في مصر.. 10 أدعية**: [Link](https://al-ain.com/article/dua-suhur-first-day-ramadan2026)
+- **أدعية استقبال شهر رمضان.. الصيغ المستحبة عند رؤية الهلال**: [Link](https://www.elwatannews.com/news/details/8226863)
+
+
+### 2026 winter olympics women's single skating free skating (N/A, Wed, 18 Feb 2026 16:20:00 -0800)
+
+- **Japan’s Ami Nakai surges into Olympic lead after short program as US struggles at the Winter Games**: [Link](https://apnews.com/article/milan-cortina-olympics-figure-skating-women-us-0870a87177fc4cb07e2a0474fa708fa0)
+- **2026 Winter Olympics: Who will win medals in fascinating women's figure skating?**: [Link](https://www.bbc.com/sport/articles/cn0z5e4vj27o)
+- **How Is A Figure Skater Like A Tree?**: [Link](https://defector.com/alysa-liu-amber-glenn-how-is-a-figure-skater-like-a-tree)
+
+
+### وقت السحور (N/A, Wed, 18 Feb 2026 16:00:00 -0800)
+
+- **من الإفطار إلى السحور .. نصائح لصيام شهر رمضان بلا إرهاق أو جفاف**: [Link](https://www.hespress.com/%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%81%D8%B7%D8%A7%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%AD%D9%88%D8%B1-%D9%86%D8%B5%D8%A7%D8%A6%D8%AD-%D9%84%D8%B5%D9%8A%D8%A7%D9%85-%D8%B4%D9%87%D8%B1-1703800.html)
+- **علماء للجزيرة نت: الفيزياء تفسر خمول ما بعد الإفطار الرمضاني**: [Link](https://www.aljazeera.net/science/2026/2/18/%D8%B9%D9%84%D9%85%D8%A7%D8%A1-%D9%84%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%86%D8%AA-%D8%A7%D9%84%D9%81%D9%8A%D8%B2%D9%8A%D8%A7%D8%A1-%D8%AA%D9%81%D8%B3%D8%B1-%D8%AE%D9%85%D9%88%D9%84-%D9%85%D8%A7)
+- **كسر الصيام في رمضان- ماذا يحدث إذا تناولت الإفطار مباشرة؟**: [Link](https://www.elconsolto.com/medical-advice/advice-news/details/2026/2/18/2945024/%D9%83%D8%B3%D8%B1-%D8%A7%D9%84%D8%B5%D9%8A%D8%A7%D9%85-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AD%D8%AF%D8%AB-%D8%A5%D8%B0%D8%A7-%D8%AA%D9%86%D8%A7%D9%88%D9%84%D8%AA-%D8%A7%D9%84%D8%A5%D9%81%D8%B7%D8%A7%D8%B1-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-)
+
+
+### المداح (N/A, Wed, 18 Feb 2026 15:30:00 -0800)
+
+- **حمادة هلال يكشف مفاجأة عن مشاركة أحمد السقا في "المدّاح 6" (فيديو)**: [Link](https://www.lahamag.com/article/234628-%D8%AD%D9%85%D8%A7%D8%AF%D8%A9-%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D9%82%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D8%AD-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **أحمد السقا ضيف شرف في الجزء السادس من مسلسل «المداح» مع حمادة هلال**: [Link](https://www.raialyoum.com/%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D9%82%D8%A7-%D8%B6%D9%8A%D9%81-%D8%B4%D8%B1%D9%81-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A1-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%85%D9%86-%D9%85%D8%B3/)
+- **يسرا اللوزي تشعل شرارة «أسطورة النهاية» من مسلسل المداح**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=18022026&id=7a215c92-0574-4c5c-ba5d-141e03f61167)
+
+
 ### توقيت الاذان في شهر رمضان 2026 (N/A, Wed, 18 Feb 2026 15:30:00 -0800)
 
 - **مدير الجامع الأزهر لـ«الشروق»: مفاجآت فى أئمة صلاة التراويح بالجامع**: [Link](https://twaslnews.twaslnews.com/516565/)
