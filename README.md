@@ -1,3 +1,10 @@
+### prince andrew (N/A, Thu, 19 Feb 2026 04:00:00 -0800)
+
+- **Andrew Mountbatten-Windsor arrested and in custody on suspicion of misconduct in public office**: [Link](https://www.bbc.com/news/live/c70kjr9wjw0t)
+- **Live updates: Andrew Mountbatten-Windsor arrested in connection with Epstein files revelations**: [Link](https://www.cnn.com/world/live-news/andrew-mountbatten-windsor-arrested-uk-police-02-19-26)
+- **Andrew Mountbatten-Windsor arrested on suspicion of misconduct in public office – live**: [Link](https://www.theguardian.com/uk-news/live/2026/feb/19/police-arrest-former-prince-andrew-mountbatten-windsor-sandringham-latest-updates)
+
+
 ### instagram (N/A, Thu, 19 Feb 2026 00:20:00 -0800)
 
 - **Mark Zuckerberg said he reached out to Apple CEO Tim Cook to discuss 'wellbeing of teens and kids'**: [Link](https://www.cnbc.com/2026/02/18/meta-mark-zuckerberg-social-media-safety-trial.html)
