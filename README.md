@@ -1,3 +1,10 @@
+### maghreb (N/A, Thu, 19 Feb 2026 07:40:00 -0800)
+
+- **Demande de dissolution de l’«Union du Maghreb Arabe (UMA) » et proposition de création de l’«Union de Tamazgha**: [Link](https://amadalamazigh.press.ma/fr/demande-de-dissolution-de-lunion-du-maghreb-arabe-uma-et-proposition-de-creation-de-lunion-de-tamazgha/)
+- **Une ONG amazighe demande la dissolution de l’«Union du Maghreb Arabe»**: [Link](https://www.yabiladi.com/articles/details/188398/amazighe-demande-dissolution-union-maghreb.html)
+- **Projet de ligne ferroviaire transmaghrébine : la Tunisie lance les études**: [Link](https://lalgerieaujourdhui.dz/projet-de-ligne-ferroviaire-transmaghrebine-la-tunisie-lance-les-etudes/)
+
+
 ### المغرب (N/A, Thu, 19 Feb 2026 07:00:00 -0800)
 
 - **شعبان يكتفي بـ29 يوما.. والخميس غرة شهر رمضان المبارك في المغرب**: [Link](https://www.hespress.com/%D8%B4%D8%B9%D8%A8%D8%A7%D9%86-%D9%8A%D9%83%D8%AA%D9%81%D9%8A-%D8%A8%D9%8029-%D9%8A%D9%88%D9%85%D8%A7-%D9%88%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%BA%D8%B1%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85-1703705.html)
