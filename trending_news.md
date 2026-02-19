@@ -1,3 +1,31 @@
+### jannik sinner (N/A, Thu, 19 Feb 2026 12:30:00 -0800)
+
+- **LIVE Sinner-Mensik: Jannik in vantaggio 2-1 nel secondo set dopo aver perso il primo al tie-break**: [Link](https://www.gazzetta.it/Tennis/ATP/19-02-2026/sinner-mensik-live-a-doha-la-diretta.shtml)
+- **Le tappe bruciate e il trionfo a Miami: chi è Jakub Mensik, il prossimo avversario di Sinner**: [Link](https://www.ubitennis.com/blog/2026/02/19/le-tappe-bruciate-e-il-trionfo-a-miami-chi-e-jakub-mensik-il-prossimo-avversario-di-sinner/)
+- **ATP Doha: Sinner, attenzione al sorprendente Mensik**: [Link](https://www.tennisitaliano.it/atp-doha-sinner-attenzione-al-sorprendente-mensik/)
+
+
+### celtic glasgow – stuttgart (N/A, Thu, 19 Feb 2026 12:20:00 -0800)
+
+- **Celtic Glasgow zwischen Chaos & Aufwind – Mit Cvancara und Adamu „zurück zu den Basics“**: [Link](https://www.transfermarkt.de/celtic-glasgow-zwischen-chaos-amp-aufwind-mit-cvancara-und-adamu-zuruck-zu-den-basics-quot-/view/news/475605)
+- **Celtic FC gegen VfB Stuttgart: Choreo und Spielunterbrechung im Celtic Park**: [Link](https://www.stuttgarter-nachrichten.de/inhalt.celtic-fc-gegen-vfb-stuttgart-choreo-und-spielunterbrechung-im-celtic-park.6a7d14ad-6d57-4042-8957-cfb2c16f41c2.html)
+- **O'Neill durchbricht gegen Stuttgart eine Schallmauer - "Angst" vor dem VfB?**: [Link](https://www.kicker.at/o-neill-durchbricht-gegen-stuttgart-eine-schallmauer-angst-vor-dem-vfb-1194928/artikel)
+
+
+### الأهلي ضد الجونة (N/A, Thu, 19 Feb 2026 12:10:00 -0800)
+
+- **خاص | تفاصيل إصابة لاعب الأهلي الجديد ومدة غيابه**: [Link](https://www.winwin.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A7%D8%B5-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%88%D9%85%D8%AF%D8%A9-%D8%BA%D9%8A%D8%A7%D8%A8%D9%87)
+- **بلعمري و بنشرقي أساسيان مع الأهلي أمام الجونة**: [Link](https://infosports.ma/211959/)
+- **مجانًا.. رابط مشاهدة بث مباشر مباراة الأهلي والجونة الآن في الدوري المصري**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%AC%D9%88%D9%86%D8%A9/)
+
+
+### مسلسلات رمضان (N/A, Thu, 19 Feb 2026 11:10:00 -0800)
+
+- **الأبرز في مسلسلات رمضان 2026.. السعودية والخليجية والسورية والمصرية**: [Link](https://arabic.cnn.com/entertainment/video/2026/02/18/v189105-trending-segment-ramadan-tv-series-2026-saudi-syrian-and-egyptian)
+- **تردد قناة CBC سي بي سي 2026 الجديد على نايل سات وطريقة ضبط القناة بسهولة**: [Link](https://lite.iqraa.news/22176/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-cbc-%D8%B3%D9%8A-%D8%A8%D9%8A-%D8%B3%D9%8A-2026-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D9%8A%D9%84-%D8%B3%D8%A7%D8%AA/)
+- **رمضان 2026.. دراما تقترب من الواقع وتفتح دفاتر التاريخ**: [Link](https://www.elwatannews.com/news/details/8228162)
+
+
 ### lille – étoile rouge (N/A, Thu, 19 Feb 2026 11:30:00 -0800)
 
 - **Après des débuts en fanfare avec le LOSC, Olivier Giroud cherche un second souffle**: [Link](https://www.lequipe.fr/Football/Actualites/Apres-des-debuts-en-fanfare-avec-le-losc-olivier-giroud-cherche-un-second-souffle/1653360)
