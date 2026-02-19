@@ -1,3 +1,10 @@
+### دعاء اول يوم رمضان (N/A, Wed, 18 Feb 2026 21:40:00 -0800)
+
+- **دعاء الصباح اليوم الأول من رمضان 19-2-2026**: [Link](https://mwlana.com/services/%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D8%B5%D8%A8%D8%A7%D8%AD-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-19-2-2026/)
+- **سحور أول يوم رمضان 2026 في مصر.. 10 أدعية**: [Link](https://al-ain.com/article/dua-suhur-first-day-ramadan2026)
+- **دعاء اليوم الاول من شهر رمضان**: [Link](https://www.nablustv.net/internal.asp?page=details&newsid=470291&cat=71)
+
+
 ### quran (N/A, Wed, 18 Feb 2026 16:50:00 -0800)
 
 - **Quran burning conviction should have been upheld, High Court told**: [Link](https://www.bbc.com/news/articles/c3v7w1yw771o)
