@@ -1,3 +1,10 @@
+### om (N/A, Fri, 20 Feb 2026 12:20:00 -0800)
+
+- **Machtsstrijd binnen BBB: Mona Keijzer zou stokje eigenlijk overnemen**: [Link](https://www.ad.nl/politiek/machtsstrijd-binnen-bbb-mona-keijzer-zou-stokje-eigenlijk-overnemen~aad67835/)
+- **Henk Vermeer volgt Caroline van der Plas op als partijleider en fractievoorzitter BBB**: [Link](https://boerburgerbeweging.nl/fractienieuws/henk-vermeer-volgt-caroline-van-der-plas-op-als-partijleider-en-fractievoorzitter-bbb/)
+- **Man met het charisma van een staldeur moet klompen Caroline vullen**: [Link](https://www.limburger.nl/opinie/column/man-met-het-charisma-van-een-staldeur-moet-klompen-caroline-vullen/134888344.html)
+
+
 ### brest vs marseille (N/A, Fri, 20 Feb 2026 12:30:00 -0800)
 
 - **Preview: Brest vs Marseille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brest/preview/brest-vs-marseille-prediction-team-news-lineups_592211.html)
