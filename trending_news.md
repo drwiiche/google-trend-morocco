@@ -1,3 +1,10 @@
+### icloud (N/A, Thu, 19 Feb 2026 17:20:00 -0800)
+
+- **State sues Apple for negligence over the alleged distribution of child sexual abuse materials on iCloud and devices**: [Link](https://www.cnn.com/2026/02/19/tech/apple-west-virginia-lawsuit-icloud)
+- **Apple Sued Over Allegations of CSAM on iCloud**: [Link](https://www.cnet.com/tech/services-and-software/apple-sued-over-csam-icloud-allegations/)
+- **West Virginia sues Apple over child sex abuse material stored and shared on iCloud**: [Link](https://www.theguardian.com/technology/2026/feb/19/west-virginia-apple-child-sex-abuse-material)
+
+
 ### eric dane (N/A, Thu, 19 Feb 2026 19:30:00 -0800)
 
 - **Grey's Anatomy to X-Men: 8 Must-watch films and shows featuring Eric Dane**: [Link](https://www.wionews.com/photos/grey-s-anatomy-to-x-men-8-must-watch-films-and-shows-featuring-eric-dane-1771556685362)
