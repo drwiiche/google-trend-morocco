@@ -1,3 +1,10 @@
+### donald trump (N/A, Fri, 20 Feb 2026 04:00:00 -0800)
+
+- **Trump says he's directing the Pentagon to release files related to UFOs and aliens**: [Link](https://www.nbcnews.com/politics/trump-administration/trump-says-directing-pentagon-release-files-related-ufos-aliens-rcna259833)
+- **Trump orders UFO files release after slamming Obama over alien comments**: [Link](https://www.axios.com/2026/02/20/trump-alien-ufo-government-files-release-obama)
+- **Alien files: Trump to order U.S. agencies to release documents on 'extraterrestrial life'**: [Link](https://www.cnbc.com/2026/02/20/trump-us-aliens-ufo-extraterrestrial-files.html)
+
+
 ### abde (N/A, Fri, 20 Feb 2026 03:10:00 -0800)
 
 - **Liga : Abde Ezzalzouli nommé pour le titre de joueur du mois de février**: [Link](https://h24info.ma/sport/liga-abde-ezzalzouli-nomme-pour-le-titre-de-joueur-du-mois-de-fevrier/)
