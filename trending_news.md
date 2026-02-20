@@ -1,3 +1,17 @@
+### netflix (N/A, Thu, 19 Feb 2026 17:40:00 -0800)
+
+- **Inside Warner Bros. Discovery, Mood Among Many Staffers Shifts in Favor of Netflix Sale vs. Paramount Takeover**: [Link](https://variety.com/2026/tv/news/inside-warner-bros-discovery-in-favor-of-netflix-vs-paramount-1236667570/)
+- **Netflix Reportedly Has Cash to Raise WBD Asset Acquisition Offer**: [Link](https://www.mediaplaynews.com/netflix-has-the-cash-to-raise-wbd-asset-acquisition-offer/)
+- **Could EU Regulators Favor Paramount Over Netflix in Battle for Warner Bros. Discovery?**: [Link](https://www.imdb.com/de/news/ni65715309/?ref_=nwc_art_perm)
+
+
+### 2026 winter olympics ice hockey (N/A, Thu, 19 Feb 2026 17:30:00 -0800)
+
+- **Laila Edwards to Hillary Knight for Olympic final-tying goal is poetic for US on way to gold**: [Link](https://apnews.com/article/hilary-knight-last-olympics-3d7b73a94ebfb64683a6612e415973fb)
+- **The nastiest rivalry in hockey? Canada vs. USA women’s hockey has drama, line brawls, hatred - The Athletic**: [Link](https://www.nytimes.com/athletic/7033583/2026/02/17/olympics-womens-hockey-2026-canada-usa-rivalry/)
+- **Winter Olympics women’s ice hockey final: USA v Canada goes to overtime – live**: [Link](https://www.theguardian.com/sport/live/2026/feb/19/winter-olympics-womens-ice-hockey-final-usa-v-canada-live?page=with:block-6997723c8f08446dc4696c71)
+
+
 ### مسلسل علي كلاي (N/A, Thu, 19 Feb 2026 14:50:00 -0800)
 
 - **أحمد العوضي يواجه انتقادات استخدامه دوبلير... ومصمّم معاركه يوضح الحقيقة | مجلة لها**: [Link](https://www.lahamag.com/article/234674-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85%D9%87-%D8%AF%D9%88%D8%A8%D9%84%D9%8A%D8%B1-%D9%88%D9%85%D8%B5%D9%85%D9%85-%D9%85%D8%B9%D8%A7%D8%B1%D9%83%D9%87-%D9%8A%D9%88%D8%B6%D8%AD-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9)
