@@ -1,3 +1,10 @@
+### leïla shahid (N/A, Fri, 20 Feb 2026 07:10:00 -0800)
+
+- **Leïla Shahid, la voix de la Palestine en France et en Europe s’est tue**: [Link](https://medias24.com/2026/02/19/leila-shahid-la-voix-de-la-palestine-en-france-et-en-europe-sest-tue-1631035/)
+- **Mort de la diplomate Leïla Shahid, éternel visage de la Palestine en France**: [Link](https://www.liberation.fr/international/afrique/lancienne-representante-de-la-palestine-en-france-leila-shahid-est-morte-20260218_ADE4RGP2VJFAXOJED2BGSW4SWM/)
+- **Hommage : Leïla Shahid, la lutte jusqu’au bout**: [Link](https://mobile.telquel.ma/2026/02/19/hommage-leila-shahid-la-lutte-jusquau-bout_1975857)
+
+
 ### توقيت صلاة الجمعة اليوم (N/A, Fri, 20 Feb 2026 05:00:00 -0800)
 
 
