@@ -1,3 +1,31 @@
+### بنات لالة منانة (N/A, Fri, 20 Feb 2026 10:50:00 -0800)
+
+- **برمجة مسلسلات تركية في رمضان تضع "دوزيم" تحت مجهر الانتقادات**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D9%85%D8%AC%D8%A9-%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%AA%D8%B6%D8%B9-%D8%AF%D9%88%D8%B2%D9%8A%D9%85-1704612.html)
+- **"بنات لالة منانة" نوستالجيا مغربية تعود من جديد في جزء ثالث يفتح صفحة الأحفاد تشاهدونها في رمضان على 2M**: [Link](https://2m.ma/ar/news/%D8%A8%D9%86%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D9%85%D9%86%D8%A7%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%81%D9%8A-%D8%AC%D8%B2%D8%A1-%D8%AB%D8%A7%D9%84%D8%AB-%D9%86%D9%88%D8%B3%D8%AA%D8%A7%D9%84%D8%AC%D9%8A%D8%A7-%D9%88%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-%D8%A5%D9%84%D9%89-20260128)
+- **عودة قوية.. "بنات لالة منانة" يتصدر المشاهدة في أول أيام رمضان**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%B9%D9%88%D8%AF%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D9%86%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D9%85%D9%86%D8%A7%D9%86%D8%A9-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7-244516.html)
+
+
+### bet365 (N/A, Fri, 20 Feb 2026 10:40:00 -0800)
+
+- **bet365 Bonus Code FOX365 Unlocks $150 in Bonus Bets for USA vs Slovakia in the Olympic Hockey Semi Final**: [Link](https://www.foxsports.com/stories/betting/bet365-bonus-code-fox365-unlocks-150-bonus-bets-usa-vs-slovakia-olympic-hockey-semi-final)
+- **Bet365 Promo Code TSN365: Claim $150 NBA Bonus for Mavs-Timberwolves, Any NBA Game**: [Link](https://www.sportingnews.com/us/betting/promos/bet365-promo-code-tsn365-claim-150-nba-bonus-mavericks-timberwolves/4736a97109dd93e4bfe13f9d)
+- **bet365 Bonus Code ROTOWIRE: Bet $5 Get $150 Instantly (2/19)**: [Link](https://www.rotowire.com/news/bet365-bonus-code-rotowire-bet-5-get-150-instantly-219-105731)
+
+
+### 2 (N/A, Fri, 20 Feb 2026 10:30:00 -0800)
+
+- **Megan Keller's OT goal lifts U.S. past Canada for Olympic gold**: [Link](https://www.espn.com/olympics/story/_/id/47979254/megan-keller-ot-goal-lifts-us-canada-olympic-gold)
+- **Youth hockey team looks to Team USA for inspiration**: [Link](https://www.foxnews.com/video/6389633805112)
+- **'Just happy to have a gold medal': Knight reflects on win**: [Link](https://www.nbcolympics.com/videos/just-happy-have-gold-medal-knight-reflects-win)
+
+
+### snrt (N/A, Fri, 20 Feb 2026 10:20:00 -0800)
+
+- **Ramadan TV: les chaînes nationales accaparent 70,4% de parts d’audience au 1er jour**: [Link](https://h24info.ma/maroc/societe/ramadan-tv-les-chaines-nationales-accaparent-704-de-parts-daudience-au-1er-jour/)
+- **La Radio Amazighe: Une grille de programmes riche et entièrement adaptée aux spécificités du Ramadan**: [Link](https://snrtnews.com/fr/article/la-radio-amazighe-une-grille-de-programmes-riche-et-entierement-adaptee-aux-specificites-du)
+- **«Inter Matin», «Interactivité », «Maidat Al Iftar»… Ramadan 2026 : Ce que propose la radio «Chaîne Inter»**: [Link](https://aujourdhui.ma/culture/inter-matin-interactivite-maidat-al-iftar-ramadan-2026-ce-que-propose-la-radio-chaine-inter)
+
+
 ### carlos alcaraz (N/A, Fri, 20 Feb 2026 09:20:00 -0800)
 
 - **¿A qué hora juega hoy Alcaraz? Canal TV, cómo y dónde ver el partido de semifinales contra Rublev en el ATP 50**: [Link](https://as.com/tenis/a-que-hora-juega-hoy-alcaraz-canal-tv-como-y-donde-ver-el-partido-de-semifinales-contra-rublev-en-el-atp-500-de-doha-f202602-n/)
