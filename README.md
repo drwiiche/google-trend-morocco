@@ -1,3 +1,17 @@
+### ousmane dembélé (N/A, Fri, 20 Feb 2026 14:30:00 -0800)
+
+- **Four absentees confirmed — PSG reveal squad issues ahead of Metz clash**: [Link](https://onefootball.com/en/news/four-absentees-confirmed-psg-reveal-squad-issues-ahead-of-metz-clash-42441436)
+- **Luis Enrique Gets Emotional With the Fans in Paris Saint-Germain’s Victory Against as Monaco**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/luis-enrique-gets-emotional-with-the-fans-in-paris-saint-germain-s-victory-against-as-monaco-2026-02-18)
+- **Another injury setback for Ousmane Dembele! PSG's Ballon d'Or winner forced off in Champions League play-off clash with Monaco**: [Link](https://www.goal.com/en/lists/injury-ousmane-dembele-psg-s-ballon-d-or-winner-champions-league-play-off-monaco/blt8653da65fdf48771)
+
+
+### مسلسل عرس الجن (N/A, Fri, 20 Feb 2026 12:10:00 -0800)
+
+- **رعب يحبس الأنفاس في "عرس الجن".. إلهام علي تنال الإشادات عن أدائها**: [Link](https://www.aljazeera.net/arts/2026/2/20/%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B9%D9%84%D9%8A-%D8%AA%D8%AD%D8%A8%D8%B3-%D8%A7%D9%84%D8%A3%D9%86%D9%81%D8%A7%D8%B3-%D8%A8%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A)
+- **موعد عرض مسلسل «وحوش 2 قصة عرس الجن» على قناة شاشا | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-02-19/%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D8%B1%D8%B6-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%88%D8%AD%D9%88%D8%B4-2-%D9%82%D8%B5%D8%A9-%D8%B9%D8%B1%D8%B3-%D8%A7%D9%84%D8%AC%D9%86-%D8%B9%D9%84%D9%89-%D9%82%D9%86%D8%A7%D8%A9-%D8%B4%D8%A7%D8%B4%D8%A7-6321546/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+- **بعد تألقها في "عرس الجن".. استوحي إطلالتك الرمضانية من النجمة السعودية إلهام علي تزامنًا مع احتفالات يوم التأسيس**: [Link](https://www.hiamag.com/%D9%85%D9%88%D8%B6%D8%A9/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D9%88-%D9%85%D9%88%D8%B6%D8%A9/1794432-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%84%D9%82%D9%87%D8%A7-%D9%81%D9%8A-%D8%B9%D8%B1%D8%B3-%D8%A7%D9%84%D8%AC%D9%86-%D8%A7%D8%B3%D8%AA%D9%88%D8%AD%D9%8A-%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%AA%D9%83-%D8%A7%D9%84%D8%B1%D9%85%D8%B6%D8%A7%D9%86%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A5%D9%84%D9%87%D8%A7%D9%85)
+
+
 ### botola (N/A, Fri, 20 Feb 2026 14:10:00 -0800)
 
 
