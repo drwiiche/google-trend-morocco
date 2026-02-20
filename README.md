@@ -1,3 +1,10 @@
+### alysa liu (N/A, Thu, 19 Feb 2026 23:40:00 -0800)
+
+- **Liu wins elusive Olympic women's figure skating gold for U.S.**: [Link](https://www.espn.com/olympics/story/_/id/47979855/liu-wins-rare-olympic-women-figure-skating-gold-us)
+- **'It took a lot to get to this point': Alysa Liu hopes to inspire after dazzling figure skating gold**: [Link](https://www.yahoo.com/news/videos/took-lot-point-alysa-liu-101943824.html)
+- **2026 Winter Olympics: Team USA and Alysa Liu win gold in women's hockey and figure skating**: [Link](https://www.nbcnews.com/sports/olympics/live-blog/2026-winter-olympics-live-updates-womens-figure-skating-hockey-rcna256611)
+
+
 ### maroc (N/A, Fri, 20 Feb 2026 01:00:00 -0800)
 
 - **Affaire Epstein : Bill Gates annule son discours au sommet mondial sur l’IA**: [Link](https://www.lemonde.fr/international/article/2026/02/19/affaire-epstein-bill-gates-annule-son-discours-au-sommet-mondial-sur-l-ia_6667333_3210.html)
