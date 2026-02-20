@@ -1,3 +1,10 @@
+### brest vs marseille (N/A, Fri, 20 Feb 2026 12:30:00 -0800)
+
+- **Preview: Brest vs Marseille - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/brest/preview/brest-vs-marseille-prediction-team-news-lineups_592211.html)
+- **Ludovic Ajorque’s Goal Stuns OM in Brest Clash**: [Link](https://www.el-balad.com/6856769)
+- **Brest: what Éric Roy expects against Habib Beye's OM**: [Link](https://foot-africa.com/en/news/brest-what-ric-roy-expects-against-habib-beyes-om-1093295/)
+
+
 ### صلاة التراويح (N/A, Fri, 20 Feb 2026 12:00:00 -0800)
 
 
