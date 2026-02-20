@@ -1,3 +1,29 @@
+### carlos alcaraz (N/A, Fri, 20 Feb 2026 09:20:00 -0800)
+
+- **¿A qué hora juega hoy Alcaraz? Canal TV, cómo y dónde ver el partido de semifinales contra Rublev en el ATP 50**: [Link](https://as.com/tenis/a-que-hora-juega-hoy-alcaraz-canal-tv-como-y-donde-ver-el-partido-de-semifinales-contra-rublev-en-el-atp-500-de-doha-f202602-n/)
+- **Todo lo que debes saber sobre el Tenis en directo para el 19/02/26**: [Link](https://www.flashscore.es/noticias/tenis-doha-atp-individuales-tenis-en-directo-alcaraz-ya-esta-entre-los-cuatro-mejores-en-doha-sinner-cae-ante-mensik/0zZLALdc/)
+- **Alcaraz-Khachanov: Décima victoria consecutiva y a semifinales 6-7(3), 6-4 y 6-3**: [Link](https://espanol.eurosport.com/tenis/atp-doha/2026/carlos-alcaraz-karen-khachanov-video-resumen-mejores-puntos-y-resultado-atp-doha-2026-cuartos-de-final-hoy_vid60058602/video.shtml)
+
+
+### صلاة المغرب اليوم (N/A, Fri, 20 Feb 2026 09:00:00 -0800)
+
+
+
+
+### ez abde (N/A, Fri, 20 Feb 2026 08:40:00 -0800)
+
+- **Abde y Pellegrini, nominados a mejor jugador y entrenador del mes de febrero**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/abde-pellegrini-nominados-mejor-jugador-entrenador-mes-20260218190214-nts.html)
+- **Abde Ez, nominado al Jugador del Mes de febrero en LaLiga**: [Link](https://es.rue20.com/2026/02/20/abde-ez-nominado-al-jugador-del-mes-de-febrero-en-laliga/)
+- **Pellegrini y Abde, en el punto de mira de LaLiga**: [Link](https://www.estadiodeportivo.com/futbol/betis/pellegrini-abde-punto-mira-laliga-20260218-530054.html)
+
+
+### action justice pensions agirc arrco (N/A, Fri, 20 Feb 2026 07:10:00 -0800)
+
+- **Virement Agirc-Arrco : certains retraités vont recevoir un bonus, d'autres subiront un gros prélèvement**: [Link](https://www.pleinevie.fr/retraite-travail/retraite/virement-agirc-arrco-certains-retraites-vont-recevoir-un-bonus-dautres-subiront-un-gros-prelevement-192093.html)
+- **En hausse ou en baisse ? 14 millions de retraités vont constater un gros changement sur leur pension**: [Link](https://www.presse-citron.net/en-hausse-ou-en-baisse-14-millions-de-retraites-vont-constater-un-gros-changement-sur-leur-pension/)
+- **Malgré +0,9 %, votre pension a diminué ? Voici ce qui s’est réellement passé en février**: [Link](https://www.cesdefrance.fr/actualite/malgre-09-votre-pension-a-diminue-voici-ce-qui-sest-reellement-passe-en-fevrier/)
+
+
 ### leïla shahid (N/A, Fri, 20 Feb 2026 07:10:00 -0800)
 
 - **Leïla Shahid, la voix de la Palestine en France et en Europe s’est tue**: [Link](https://medias24.com/2026/02/19/leila-shahid-la-voix-de-la-palestine-en-france-et-en-europe-sest-tue-1631035/)
