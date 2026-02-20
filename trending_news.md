@@ -1,3 +1,10 @@
+### maroc (N/A, Fri, 20 Feb 2026 01:00:00 -0800)
+
+- **Affaire Epstein : Bill Gates annule son discours au sommet mondial sur l’IA**: [Link](https://www.lemonde.fr/international/article/2026/02/19/affaire-epstein-bill-gates-annule-son-discours-au-sommet-mondial-sur-l-ia_6667333_3210.html)
+- **Inde : le Maroc participe au Sommet mondial de l’intelligence artificielle à New Delhi**: [Link](https://telquel.ma/instant-t/2026/02/19/inde-le-maroc-participe-au-sommet-mondial-de-lintelligence-artificielle-a-new-delhi_1975916/)
+- **Inde: Modi, Macron, Lula et les patrons de la tech attendus au sommet mondial de l'IA**: [Link](https://medias24.com/agence-presse/inde-modi-macron-lula-et-les-patrons-de-la-tech-attendus-au-sommet-mondial-de-lia/)
+
+
 ### icloud (N/A, Thu, 19 Feb 2026 17:20:00 -0800)
 
 - **State sues Apple for negligence over the alleged distribution of child sexual abuse materials on iCloud and devices**: [Link](https://www.cnn.com/2026/02/19/tech/apple-west-virginia-lawsuit-icloud)
