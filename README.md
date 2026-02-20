@@ -1,3 +1,38 @@
+### eric dane (N/A, Thu, 19 Feb 2026 19:30:00 -0800)
+
+- **Grey's Anatomy to X-Men: 8 Must-watch films and shows featuring Eric Dane**: [Link](https://www.wionews.com/photos/grey-s-anatomy-to-x-men-8-must-watch-films-and-shows-featuring-eric-dane-1771556685362)
+- **Meet Eric Dane's Wife, Rebecca Gayheart, Actress Dismissed Their Divorce After Actor's ALS Diagnosis**: [Link](https://www.bollywoodshaadis.com/articles/eric-dane-passes-away-meet-his-wife-75256)
+- **The heartfelt way Johnny Depp eased Eric Dane's burden while battling ALS**: [Link](https://www.marca.com/en/lifestyle/celebrities/2026/02/20/6997d518ca47414b4c8b456c.html)
+
+
+### nba (N/A, Thu, 19 Feb 2026 18:20:00 -0800)
+
+- **JB Bickerstaff: "It's just playing good basketball. …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/02/19/jb-bickerstaff-its-just-playing-good-basketball/88771203007/)
+- **HIGHLIGHTS: Brunson's 33 not enough as Knicks fall to Pistons**: [Link](https://www.nbcchicago.com/video/nba/nba-knicks-vs-pistons-feb-19-2026-highlights/3896985/)
+- **It took one game after the break for Cade Cunningham to have signature MVP moment**: [Link](https://pistonpowered.com/detroit-pistons-took-one-game-after-break-cade-cunningham-have-signature-mvp-moment)
+
+
+### telegram (N/A, Thu, 19 Feb 2026 18:00:00 -0800)
+
+- **Foreign spies can see Telegram messages sent by Russian soldiers, Ifax cites minister**: [Link](https://www.reuters.com/business/retail-consumer/foreign-spies-can-see-telegram-messages-sent-by-russian-soldiers-ukraine-ifax-2026-02-18/)
+- **Russia Further Restricts Telegram, Escalating Internet Clampdown**: [Link](https://www.nytimes.com/2026/02/10/world/europe/telegram-throttled-internet-russia.html)
+- **Resisting the Kremlin's Communication Crackdown Requires New Thinking**: [Link](https://www.themoscowtimes.com/2026/02/17/resisting-the-kremlins-communication-crackdown-requires-new-thinking-a91978)
+
+
+### bill gates (N/A, Thu, 19 Feb 2026 17:30:00 -0800)
+
+- **Bill Gates pulls out of India's AI summit over Epstein files controversy**: [Link](https://www.bbc.com/news/articles/c309qv9zglno)
+- **Bill Gates cancels keynote speech in India amid questions over Epstein ties**: [Link](https://www.theguardian.com/us-news/2026/feb/19/bill-gates-cancels-india-ai-impact-summit-keynote-speech-epstein-files)
+- **Bill Gates pulls out…of AI Summit, grieving parents anger at Zuckerberg**: [Link](https://www.techdigest.tv/2026/02/bill-gates-pulls-out-of-ai-summit-grieving-parents-anger-at-zuckerberg.html)
+
+
+### مسلسل افراج (N/A, Thu, 19 Feb 2026 16:30:00 -0800)
+
+- **عمرو سعد يعلن تخصيص 10 ملايين جنيه من صناع مسلسل "إفراج" للأعمال الخيرية**: [Link](https://www.aljazeera.net/arts/2026/2/19/%D8%B9%D9%85%D8%B1%D9%88-%D8%B3%D8%B9%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%AE%D8%B5%D9%8A%D8%B5-10-%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D8%AC%D9%86%D9%8A%D9%87-%D9%85%D9%86)
+- **خروج عمرو سعد من السجن يشعل الانقسامات في صفوف عائلته ضمن أحداث الحلقة الأولى من مسلسل إفراج**: [Link](https://www.khabrabyad.com/45717)
+- **تارا عماد تغني لأول مرة بصوتها في مسلسل "إفراج"**: [Link](https://darelhilal.com/News/3181832.aspx)
+
+
 ### netflix (N/A, Thu, 19 Feb 2026 17:40:00 -0800)
 
 - **Inside Warner Bros. Discovery, Mood Among Many Staffers Shifts in Favor of Netflix Sale vs. Paramount Takeover**: [Link](https://variety.com/2026/tv/news/inside-warner-bros-discovery-in-favor-of-netflix-vs-paramount-1236667570/)
