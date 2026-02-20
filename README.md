@@ -1,3 +1,15 @@
+### توقيت صلاة الجمعة اليوم (N/A, Fri, 20 Feb 2026 05:00:00 -0800)
+
+
+
+
+### محاكم (N/A, Fri, 20 Feb 2026 02:20:00 -0800)
+
+- **القضاء الإداري يعزل خمسة منتخبين بجماعة إنزكان على خلفية “تضارب المصالح”**: [Link](https://lakome2.com/justice/409439/)
+- **ملف تضارب المصالح.. إدارية أكادير تقضي بعزل عدد من أعضاء جماعة إنزكان**: [Link](https://al3omk.com/1139662.html)
+- **المحامي القنفود يُثير شبهة “تبديد أموال عامة” في جماعة إنزكان في مراسلة للداخلية ويطالب بإحالة الملف على النيابة العامة**: [Link](https://barlamane.com/%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%85%D9%8A-%D8%A7%D9%84%D9%82%D9%86%D9%81%D9%88%D8%AF-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%B4%D8%A8%D9%87%D8%A9-%D8%AA%D8%A8%D8%AF%D9%8A%D8%AF-%D8%A3%D9%85%D9%88%D8%A7%D9%84/)
+
+
 ### jeux olympiques 2026 (hockey masculin) (N/A, Fri, 20 Feb 2026 03:40:00 -0800)
 
 - **Dire que certains ont douté de Nick Suzuki...**: [Link](https://www.journaldequebec.com/2026/02/20/dire-que-certains-ont-doute-de-nick-suzuki)
