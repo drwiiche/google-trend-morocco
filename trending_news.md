@@ -1,3 +1,10 @@
+### jeux olympiques 2026 (hockey masculin) (N/A, Fri, 20 Feb 2026 03:40:00 -0800)
+
+- **Dire que certains ont douté de Nick Suzuki...**: [Link](https://www.journaldequebec.com/2026/02/20/dire-que-certains-ont-doute-de-nick-suzuki)
+- **Analyse Une frousse qui pourrait rendre le Canada plus fort**: [Link](https://ici.radio-canada.ca/jeux-olympiques/nouvelle/2230364/canada-tchequie-hockey-crosby-suzuki)
+- **L’énorme erreur d’arbitrage qui a failli coûter la qualif au Canada**: [Link](https://www.20minutes.fr/sport/jo-hiver/4202298-20260219-jo-hiver-2026-trois-joueurs-trop-terrain-enorme-erreur-arbitrage-failli-couter-cher-canada)
+
+
 ### donald trump (N/A, Fri, 20 Feb 2026 04:00:00 -0800)
 
 - **Trump says he's directing the Pentagon to release files related to UFOs and aliens**: [Link](https://www.nbcnews.com/politics/trump-administration/trump-says-directing-pentagon-release-files-related-ufos-aliens-rcna259833)
