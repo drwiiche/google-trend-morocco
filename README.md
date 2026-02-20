@@ -1,3 +1,29 @@
+### abde (N/A, Fri, 20 Feb 2026 03:10:00 -0800)
+
+- **Liga : Abde Ezzalzouli nommé pour le titre de joueur du mois de février**: [Link](https://h24info.ma/sport/liga-abde-ezzalzouli-nomme-pour-le-titre-de-joueur-du-mois-de-fevrier/)
+- **Le Betis va faire le business du siècle avec le crack marocain Abde**: [Link](https://www.footmercato.net/a7876977559536124166-le-betis-va-faire-le-business-du-siecle-avec-le-crack-marocain-abde)
+- **Le Real Bétis prêt à capitaliser sur la saison XXL d’Abde Ezzalzouli**: [Link](https://lematin.ma/sports/le-real-betis-pret-a-capitaliser-sur-la-saison-xxl-dabde-ezzalzouli/330845)
+
+
+### air arabia (N/A, Fri, 20 Feb 2026 02:50:00 -0800)
+
+- **Italian Flight-Training Hub Welcomes New Cadets from Air Arabia**: [Link](https://www.visahq.com/news/2026-02-18/it/italian-flight-training-hub-welcomes-new-cadets-from-air-arabia/)
+- **Air Arabia Preps For More Growth, Participation In New Saudi LCC**: [Link](https://aviationweek.com/air-transport/airlines-lessors/air-arabia-preps-more-growth-participation-new-saudi-lcc)
+
+
+### kacm (N/A, Fri, 20 Feb 2026 02:40:00 -0800)
+
+- **Hafidi Continues Absence from Kawkab Marrakech Due to Injury**: [Link](https://m.elbotola.com/en/article/2026-02-20-01-47-320.html)
+- **Kawkab Marrakech Returns to El Harti Stadium**: [Link](https://m.elbotola.com/en/article/2026-02-20-00-54-695.html)
+
+
+### aid el fitr 2026 (N/A, Fri, 20 Feb 2026 02:00:00 -0800)
+
+- **Will Eid Al Fitr be a three or four day holiday in Dubai?**: [Link](https://www.timeoutdubai.com/news/eid-al-fitr-2026-explained)
+- **UAE residents could get 4-day holiday for Eid Al Fitr 2026, here's how**: [Link](https://timesofindia.indiatimes.com/world/middle-east/uae-residents-could-get-4-day-holiday-for-eid-al-fitr-heres-how/articleshow/128597664.cms)
+- **Ramadan Begins In UAE: 3 Or 4 Days Break For Eid Al Fitr Holiday Explained**: [Link](https://menafn.com/1110757077/Ramadan-Begins-In-UAE-3-Or-4-Days-Break-For-Eid-Al-Fitr-Holiday-Explained)
+
+
 ### alysa liu (N/A, Thu, 19 Feb 2026 23:40:00 -0800)
 
 - **Liu wins elusive Olympic women's figure skating gold for U.S.**: [Link](https://www.espn.com/olympics/story/_/id/47979855/liu-wins-rare-olympic-women-figure-skating-gold-us)
