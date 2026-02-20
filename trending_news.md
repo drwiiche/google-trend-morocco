@@ -1,3 +1,43 @@
+### walid regragui (N/A, Fri, 20 Feb 2026 11:30:00 -0800)
+
+- **Regragui a-t-il encore un avenir avec les Lions de l’Atlas?**: [Link](https://sport.le360.ma/football/lions-atlas/regragui-a-t-il-encore-un-avenir-avec-les-lions-de-latlas_I2H2HUXMNNF5RKK6GDKUANR4PQ/)
+- **Maroc: Walid Regragui mis dehors**: [Link](https://www.football.fr/afrique/walid-regragui-mis-dehors-801009.html)
+- **Cap sur 2026 : La tanière a besoin d’évolution, pas de révolution**: [Link](https://lionsdelatlas.ma/cap-sur-2026-la-taniere-a-besoin-devolution-pas-de-revolution/)
+
+
+### bet 365 (N/A, Fri, 20 Feb 2026 11:30:00 -0800)
+
+- **Cloudflare CEO Matthew Prince rejects outage reports, hints at legal action**: [Link](https://m.economictimes.com/tech/technology/cloudflare-founder-matthew-prince-rejects-reports-of-service-outage/articleshow/128435868.cms)
+- **UberEats and Bet365 not working after internet hit by Cloudflare outage leaving dozens of sites down**: [Link](https://www.thesun.co.uk/tech/38290641/bet365-uber-eats-not-working-cloudfare-down/)
+- **Are AWS and Cloudflare facing an outage?**: [Link](https://www.newsbytesapp.com/news/science/aws-denies-service-disruption-reports-outage-affects-cloudflare/story)
+
+
+### ath. bilbao – elche (N/A, Fri, 20 Feb 2026 11:20:00 -0800)
+
+- **Athletic – Elche: tres puntos con distintos objetivos**: [Link](https://onefootball.com/pt-br/noticias/athletic-elche-tres-puntos-con-distintos-objetivos-42439001)
+- **Sarabia regresa a casa: 'Hay muchísimas emociones, vamos con convicción y fortaleza mental'**: [Link](https://tribuna.com/es/news/2026-02-20-sarabia-regresa-a-casa-hay-muchisimas-emociones-vamos-con-conviccion-y-fortaleza-mental/)
+- **Tertulia Athletic con José Manuel Monje (20/02/26) | El Athletic necesita ganar al Elche para reforzar su confianza**: [Link](https://www.ondavasca.com/tertulia-athletic-con-jose-manuel-monje-200226-el-athletic-necesita-ganar-al-elche-para-reforzar-su-confianza/)
+
+
+### brest – marseille (N/A, Fri, 20 Feb 2026 11:10:00 -0800)
+
+- **Brest - OM : les compositions probables**: [Link](https://www.footmercato.net/a3206067302704332055-brest-om-les-compositions-probables)
+- **Arthur Vermeeren titulaire pour la première sortie d’Habib Beye avec l’OM**: [Link](https://www.sudinfo.be/id1112270/article/2026-02-20/arthur-vermeeren-titulaire-pour-la-premiere-sortie-dhabib-beye-avec-lom)
+- **Stade Brestois : Trois retours dans le groupe du SB29 pour le match face à l'OM**: [Link](https://madeinfoot.ouest-france.fr/infos/article-stade-brestois-trois-retours-dans-le-groupe-du-sb29-pour-le-match-face-a-l-om-513444.html)
+
+
+### العشاء (N/A, Fri, 20 Feb 2026 11:10:00 -0800)
+
+
+
+
+### trump (N/A, Fri, 20 Feb 2026 11:10:00 -0800)
+
+- **Trump announces new 10% global tariff after raging over Supreme Court loss**: [Link](https://www.cnbc.com/2026/02/20/trump-global-trade-tariff-supreme-court.html)
+- **Trump calls Supreme Court justices 'disloyal to the Constitution' over tariffs ruling**: [Link](https://www.nbcnews.com/politics/donald-trump/trump-calls-supreme-court-justices-disloyal-unpatriotic-tariffs-rcna259948)
+- **‘I feel vindicated’: Anti-tariff Republicans cheer as Supreme Court checks Trump**: [Link](https://www.politico.com/news/2026/02/20/anti-tariff-republicans-cheer-supreme-court-decision-checking-trump-00790772)
+
+
 ### بنات لالة منانة (N/A, Fri, 20 Feb 2026 10:50:00 -0800)
 
 - **برمجة مسلسلات تركية في رمضان تضع "دوزيم" تحت مجهر الانتقادات**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D9%85%D8%AC%D8%A9-%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%AA%D8%B6%D8%B9-%D8%AF%D9%88%D8%B2%D9%8A%D9%85-1704612.html)
