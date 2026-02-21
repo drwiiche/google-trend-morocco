@@ -1,3 +1,10 @@
+### ترتيب الدوري المغربي (N/A, Fri, 20 Feb 2026 14:40:00 -0800)
+
+- **حادثة مفجعة.. مصرع لاعبتين في الدار البيضاء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%A7%D8%AF%D8%AB%D8%A9-%D9%85%D9%81%D8%AC%D8%B9%D8%A9--%D9%85%D8%B5%D8%B1%D8%B9-%D9%84%D8%A7%D8%B9%D8%A8%D8%AA%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1/bltaed56cbb78d55d66)
+- **مصرع لاعبتين يهز كرة القدم النسوية**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%B1%D8%B9-%D9%84%D8%A7%D8%B9%D8%A8%D8%AA%D9%8A%D9%86-%D9%8A%D9%87%D8%B2-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A%D8%A9-1704108.html)
+- **فاجعة في الكرة النسوية المغربية.. مصرع لاعبتين صدمهما قطار بالدارالبيضاء**: [Link](https://rue20.com/980404.html)
+
+
 ### audi rs5 (N/A, Fri, 20 Feb 2026 21:30:00 -0800)
 
 - **View Exterior and Interior Photos of the 2027 Audi RS5, Now a High-Performance Plug-In Hybrid**: [Link](https://www.caranddriver.com/photos/g70411352/2027-audi-rs5-revealed-gallery/)
