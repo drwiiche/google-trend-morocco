@@ -1,3 +1,15 @@
+### 2026 winter olympics freestyle skiing (N/A, Fri, 20 Feb 2026 16:30:00 -0800)
+
+- **Indiana's Nick Goepper knocked out of bronze medal on final run of Olympic freestyle halfpipe**: [Link](https://www.ipm.org/news/2026-02-20/indianas-nick-goepper-knocked-out-of-bronze-medal-on-final-run-of-olympic-freestyle-halfpipe)
+- **Winter Olympics 2026 - Alex Ferreira on his golden performance: “This is my Lionel Messi moment”**: [Link](https://www.olympics.com/en/milano-cortina-2026/news/winter-olympics-2026-alex-ferreira-my-lionel-messi-moment)
+- **Tough Conditions Shape Men’s Olympic Halfpipe Qualification**: [Link](https://www.freeskier.com/tough-conditions-shape-mens-olympic-halfpipe-qualification)
+
+
+### botola pro (N/A, Fri, 20 Feb 2026 16:00:00 -0800)
+
+
+
+
 ### ousmane dembélé (N/A, Fri, 20 Feb 2026 14:30:00 -0800)
 
 - **Four absentees confirmed — PSG reveal squad issues ahead of Metz clash**: [Link](https://onefootball.com/en/news/four-absentees-confirmed-psg-reveal-squad-issues-ahead-of-metz-clash-42441436)
