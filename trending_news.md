@@ -1,3 +1,24 @@
+### hilal (N/A, Sat, 21 Feb 2026 13:00:00 -0800)
+
+- **Flamengo Vs Al Hilal: Watch Live Today!**: [Link](https://www.thedetroitbureau.com/today-report/flamengo-vs-al-hilal-watch-live-today-1767646476)
+- **Darwin Nunez’s Saudi Arabia move has soured. What now for Liverpool’s former £64m man? - The Athletic**: [Link](https://www.nytimes.com/athletic/7049934/2026/02/17/darwin-nunez-al-hilal-squad/)
+- **Report: Tottenham Hotspur eyeing shock move to sign former Liverpool forward**: [Link](https://sports.yahoo.com/articles/report-tottenham-hotspur-eyeing-shock-200500912.html)
+
+
+### ترتيب الدوري السعودي (N/A, Sat, 21 Feb 2026 13:00:00 -0800)
+
+- **توني يضم النجمة إلى ضحاياه برقم مذهل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%86%D9%8A-%D9%8A%D8%B6%D9%85-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7%D9%87-%D8%A8%D8%B1%D9%82%D9%85-%D9%85%D8%B0%D9%87%D9%84/bltd862b44293f13b2c)
+- **أخبار الأهلي اليوم | يايسله يحسم موقف كيسييه وإيبانيز أمام شباب الأهلي .. وإيفان توني لا يستبعد العودة إلى إنجلترا!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A5%D9%8A%D9%81%D8%A7%D9%86-%D8%AA%D9%88%D9%86%D9%8A-%D9%8A%D8%A7%D9%8A%D8%B3%D9%84%D9%87-%D9%81%D8%B1%D8%A7%D9%86%D9%83-%D9%83%D9%8A%D8%B3%D9%8A%D9%8A%D9%87-%D8%A5%D9%8A%D8%A8%D8%A7%D9%86%D9%8A%D8%B2-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9/blt1338d9158007774f)
+- **الحلم سبورت : إيفان توني يتفوق على رونالدو !**: [Link](https://al7lmnews.com/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A5%D9%8A%D9%81%D8%A7%D9%86-%D8%AA%D9%88%D9%86%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%B1%D9%88%D9%86%D8%A7%D9%84/)
+
+
+### championnat d'arabie saoudite (N/A, Sat, 21 Feb 2026 12:30:00 -0800)
+
+- **Al-Hilal 1-1 Al-Ittihad, Championnat d'Arabie Saoudite : résumé du match (21/02/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-arabie-saoudite/2025-2026/al-hilal-al-ittihad-live/685255)
+- **Pronostic Al Hilal - Al-Ittihad, Saudi Pro League**: [Link](https://www.sportytrader.com/pronostics/al-hilal-ittihad-jeddah-328682/)
+- **Un coup dur pour l'Union avant le Clasico dans quelques heures**: [Link](https://www.ysscores.com/fr/news/13915422/Un-coup-dur-pour-l'Union-avant-le-Clasico-dans-quelques-heures)
+
+
 ### atlético madrid vs espanyol (N/A, Sat, 21 Feb 2026 12:10:00 -0800)
 
 - **Preview: Atletico Madrid vs Espanyol - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/preview/atletico-vs-espanyol-prediction-team-news-lineups_592325.html)
