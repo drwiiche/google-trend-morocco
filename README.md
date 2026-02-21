@@ -1,3 +1,38 @@
+### betis – rayo (N/A, Sat, 21 Feb 2026 06:40:00 -0800)
+
+- **El Betis recibe al Rayo camino del récord**: [Link](https://mundobetis.com/2026/02/21/el-betis-recibe-al-rayo-camino-del-record/)
+- **Abde-Ilias: reyes de lo imprevisible**: [Link](https://as.com/futbol/primera/abde-ilias-reyes-de-lo-imprevisible-f202602-n/)
+- **Nos visita el Rayo Vallecano. – Historia bética**: [Link](https://www.manquepierda.com/historiarealbetis/nos-visita-el-rayo-vallecano-11/)
+
+
+### aston villa – leeds united (N/A, Sat, 21 Feb 2026 06:40:00 -0800)
+
+- **Team news for Leeds United test**: [Link](https://www.avfc.co.uk/news/2026/february/20/prematch-leeds-united-team-news/)
+- **Jadon Sancho: ‘The job’s not finished’**: [Link](https://www.vavel.com/en/football/2026/02/20/aston-villa/1251468-jadon-sancho-the-jobs-not-finished.html)
+- **Manchester City vs Newcastle United Predictions, Picks & Odds**: [Link](https://www.toffeeweb.com/manchester-city-vs-newcastle-united-predictions-21-02-2026/)
+
+
+### brentford – brighton (N/A, Sat, 21 Feb 2026 06:40:00 -0800)
+
+- **Hurzeler ready for striker choice as Albion bid to end goal drought**: [Link](https://www.theargus.co.uk/sport/25873890.brighton-striker-decision-brentford-trip/)
+- **Thiago, Schade, Henderson: Brentford injury latest for FPL Gameweek 27**: [Link](https://www.fantasyfootballscout.co.uk/2026/02/20/thiago-schade-henderson-brentford-injury-latest-for-fpl-gameweek-27/)
+- **Fabian Hurzeler press conference: Brentford vs Brighton**: [Link](https://www.bbc.com/sport/football/articles/c0q3g10j39po)
+
+
+### juventus vs como (N/A, Sat, 21 Feb 2026 06:30:00 -0800)
+
+- **Juventus vs Como: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/juventus-vs-como-previa-predicciones-y-alineaciones)
+- **La Juve busca redimirse, pero el Como no le hará descuentos. El Inter viaja a Lecce para consolidar su ventaja.**: [Link](https://www.firstonline.info/es/La-Juventus-busca-la-redenci%C3%B3n--pero-el-Como-no-le-dar%C3%A1-ning%C3%BAn-descuento-al-Inter-en-Lecce-para-consolidar-su-escapada./)
+- **Juventus - Como en directo**: [Link](https://www.elmundo.es/deportes/futbol/serie-a/juventus-como/2026/02/21/01_0107_20260221_128_1065-directo.html)
+
+
+### chelsea – burnley (N/A, Sat, 21 Feb 2026 06:20:00 -0800)
+
+- **Liam Rosenior delivers latest Chelsea team news ahead of Burnley | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/liam-rosenior-delivers-the-latest-chelsea-team-news-ahead-of-burnley)
+- **Why Estevao Willian isn't in the Chelsea squad to take on Burnley as Romeo Lavia returns**: [Link](https://www.football.london/chelsea-fc/news/estevao-willian-isnt-chelsea-squad-33466497)
+- **Chelsea fans’ preferred lineup against Burnley: Estêvão ahead of Neto**: [Link](https://weaintgotnohistory.sbnation.com/premier-league/166353/chelsea-fans-preferred-lineup-against-burnley-estevao-ahead-of-neto)
+
+
 ### bayern – eintracht francfort (N/A, Sat, 21 Feb 2026 06:00:00 -0800)
 
 - **Bayern München – Eintracht Frankfurt im TV: Anstoßzeit, Sender und Statistik**: [Link](https://onefootball.com/de/news/bayern-muenchen-eintracht-frankfurt-im-tv-anstosszeit-sender-und-statistik-42444114)
