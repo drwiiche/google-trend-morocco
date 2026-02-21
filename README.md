@@ -1,3 +1,17 @@
+### yalla kora (N/A, Sat, 21 Feb 2026 09:50:00 -0800)
+
+- **الدباغ في الصدارة.. ترتيب هدافي الدوري بعد الجولة 18**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=21022026&id=39536ae0-1243-411a-b37b-a77714abb070)
+- **مفاجأة في أرقام مبارايات الجولة الـ 18للدوري**: [Link](https://www.elbalad.news/6877993)
+- **سهرة كروية رمضانية في ختام الجولة ١٨ بالدوري**: [Link](https://almelnoujoum.com/%D8%B3%D9%87%D8%B1%D8%A9-%D9%83%D8%B1%D9%88%D9%8A%D8%A9-%D8%B1%D9%85%D8%B6%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D9%A1%D9%A8-%D8%A8%D8%A7/)
+
+
+### rb leipzig – dortmund (N/A, Sat, 21 Feb 2026 09:40:00 -0800)
+
+- **Irre Zahlen aufgedeckt: Profitiert der BVB gar vom Ausfall seines Abwehr-Chefs Nico Schlotterbeck?**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/profitiert-der-bvb-gar-vom-schlotterbeck-ausfall-irre-statistik-verbluefft-94180560.html)
+- **Bundesliga - RB Leipzig vs. Borussia Dortmund heute live im Ticker: Bleibt der BVB im Meisterrennen? - Liveticker**: [Link](https://www.eurosport.de/fussball/bundesliga/2025-2026/live-rb-leipzig-borussia-dortmund_mtc1609209/live-commentary.shtml)
+- **RB Leipzig - BVB im Liveticker: Beier hat die Dortmunder Führung auf dem Fuß**: [Link](https://www.welt.de/sport/fussball/bundesliga/article6999d907d2efdf1bd0d2dbee/rb-leipzig-bvb-im-liveticker-beier-hat-die-dortmunder-fuehrung-auf-dem-fuss.html)
+
+
 ### benfica – avs (N/A, Sat, 21 Feb 2026 09:30:00 -0800)
 
 - **Onze do Benfica com muitas (e grandes) novidades!**: [Link](https://sapo.pt/artigo/onze-do-benfica-com-muitas-e-grandes-novidades-6999e21428b84438004cea74)
