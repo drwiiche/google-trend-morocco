@@ -1,3 +1,10 @@
+### bayern – eintracht francfort (N/A, Sat, 21 Feb 2026 06:00:00 -0800)
+
+- **Bayern München – Eintracht Frankfurt im TV: Anstoßzeit, Sender und Statistik**: [Link](https://onefootball.com/de/news/bayern-muenchen-eintracht-frankfurt-im-tv-anstosszeit-sender-und-statistik-42444114)
+- **Ersatzgeschwächter Außenseiter: SGE in München gefordert**: [Link](https://www.sge4ever.de/ersatzgeschwaechter-aussenseiter-sge-in-muenchen-gefordert/)
+- **Eine Woche vor Liga-Gipfel: Für Kompany zählt nur Eintracht**: [Link](https://www.traunsteiner-tagblatt.de/region/nachrichten-aus-bayern_artikel,-eine-woche-vor-ligagipfel-fuer-kompany-zaehlt-nur-eintracht-_arid,982657.html)
+
+
 ### juventus – côme (N/A, Sat, 21 Feb 2026 05:20:00 -0800)
 
 - **Serie A: Juventus vs. Como – probable line-ups, where to watch on TV**: [Link](https://football-italia.net/juventus-v-como-probable-line-ups-watch-on-tv/)
