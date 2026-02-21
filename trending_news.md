@@ -1,3 +1,69 @@
+### مان سيتي ضد نيوكاسل يونايتد (N/A, Sat, 21 Feb 2026 11:40:00 -0800)
+
+- **"ادفعوا رواتب أعلى للمعلمين والأطباء".. هكذا علق غوارديولا على العنصرية ضد فينيسيوس**: [Link](https://www.aljazeera.net/sport/2026/2/20/%D8%A8%D9%8A%D8%A8-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D8%B9%D9%86%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B1%D9%88%D8%A7%D8%AA%D8%A8-%D9%81%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3)
+- **جوارديولا يتحدث عن.. موقف هالاند وسباق اللقب و"أهمية المعلمين" بعد حادثة فينيسيوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86--%D9%85%D9%88%D9%82%D9%81-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D9%88-%D8%A7%D9%94%D9%87%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%85%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%AD%D8%A7%D8%AF%D8%AB%D8%A9-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/bltafc2647fbdde3df7)
+- **غوارديولا يتجاهل نزيف نقاط أرسنال**: [Link](https://www.hesport.com/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AA%D8%AC%D8%A7%D9%87%D9%84-%D9%86%D8%B2%D9%8A%D9%81-%D9%86%D9%82%D8%A7%D8%B7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-427840.html)
+
+
+### كورة (N/A, Sat, 21 Feb 2026 11:40:00 -0800)
+
+- **بسبب فليك.. اليويفا يعاقب برشلونة ويوجه تحذيرا للمدرب الألماني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D8%A8%D8%A8-%D9%81%D9%84%D9%8A%D9%83--%D8%A7%D9%84%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D9%8A%D8%B9%D8%A7%D9%82%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%8A%D9%88%D8%AC%D9%87-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7-%D9%84%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A/blt8cba2ffc4ce07e18)
+- **يويفا يفرض عقوبة على برشلونة.. وفليك يتلقى إنذارًا**: [Link](https://www.btolat.com/news/393829)
+- **رسمياً.. اليويفا يعاقب برشلونة ويحذر هانز فليك**: [Link](https://www.raialyoum.com/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%A7%D9%84%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D9%8A%D8%B9%D8%A7%D9%82%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%8A%D8%AD%D8%B0%D8%B1-%D9%87%D8%A7/)
+
+
+### al hilal (N/A, Sat, 21 Feb 2026 11:40:00 -0800)
+
+- **Calzada Sparks Debate Over Al Hilal's Participation in the Champions League and Signing Vinicius**: [Link](https://www.ysscores.com/en/news/13914767/Calzada-Sparks-Debate-Over-Al-Hilal's-Participation-in-the-Champions-League-and-Signing-Vinicius)
+- **Saudi Pro League: What time and on which channel to watch Al-Hilal vs Al-Ittihad?**: [Link](https://foot-africa.com/en/news/saudi-pro-league-what-time-and-on-which-channel-to-watch-al-hilal-vs-al-ittihad-1095293/)
+- **Expected Lineup for Al Hilal and Al Ittihad in Tonight's Clasico**: [Link](https://www.ysscores.com/en/news/13915195/Expected-Lineup-for-Al-Hilal-and-Al-Ittihad-in-Tonight's-Clasico)
+
+
+### paris-sg – metz (N/A, Sat, 21 Feb 2026 11:30:00 -0800)
+
+- **Blessure de Dembélé : forfait contre Metz et incertain pour Monaco**: [Link](https://m.elbotola.com/fr/article/2026-02-20-16-30-227.html)
+- **«Ce que vous voulez est impossible», la demande qui agace le PSG**: [Link](https://le10sport.com/football/ce-que-vous-voulez-est-impossible-la-demande-qui-agace-le-psg-775348)
+- **Une quatrième fois avec Delajod au sifflet**: [Link](https://www.ladiagonale.net/index.php/2026/02/21/une-quatrieme-fois-avec-delajod-au-sifflet/)
+
+
+### koora (N/A, Sat, 21 Feb 2026 11:30:00 -0800)
+
+- **بالفيديو.. إصابة مروعة بشفرة حذاء تزلج تهز الألعاب الأولمبية**: [Link](https://www.aljazeera.net/sport/2026/2/21/%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B4%D8%AA%D8%A7%D8%A1-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89)
+- **بالفيديو.. إصابة مروعة تهز الألعاب الأولمبية الشتوية**: [Link](https://www.kooora.com/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A7%D8%AA-%D8%A7%D9%94%D8%AE%D8%B1%D9%89/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%B1%D9%88%D8%B9%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9/blt350d895040afb6ed)
+- **وجهها ينزف.. متزلجة بولندية تصاب بـ"شفرة" حذاء في الأولمبياد الشتوي**: [Link](https://www.alarabiya.net/sport/videos/2026/02/21/%D9%88%D8%AC%D9%87%D9%87%D8%A7-%D9%8A%D9%86%D8%B2%D9%81-%D9%85%D8%AA%D8%B2%D9%84%D8%AC%D8%A9-%D8%A8%D9%88%D9%84%D9%86%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B5%D8%A7%D8%A8-%D8%A8%D9%80%D8%B4%D9%81%D8%B1%D8%A9-%D8%AD%D8%B0%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A)
+
+
+### بي اس جي ضد ميتز (N/A, Sat, 21 Feb 2026 11:30:00 -0800)
+
+- **إنريكي: ما حدث لديمبيلي ضربة موجعة.. ولا أستطيع تعديل التشكيل أمام ميتز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%85%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%84%D8%AF%D9%8A%D9%85%D8%A8%D9%8A%D9%84%D9%8A-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AC%D8%B9%D8%A9--%D9%88%D9%84%D8%A7-%D8%A7%D9%94%D8%B3%D8%AA%D8%B7%D9%8A%D8%B9-%D8%AA%D8%B9%D8%AF%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D9%8A%D8%AA%D8%B2/blt919abeda2a2074a5)
+- **إصابة ديمبيلي تبعده عن مباراة ميتز وتثير الشكوك حول لقاء موناكو**: [Link](https://m.elbotola.com/article/2026-02-20-16-30-884.html)
+- **باريس سان جيرمان يفقد أحد أسلحته الهجومية أمام ميتز**: [Link](https://arabi21.com/story/1739252/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%81%D9%82%D8%AF-%D8%A3%D8%AD%D8%AF-%D8%A3%D8%B3%D9%84%D8%AD%D8%AA%D9%87-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%8A%D8%AA%D8%B2)
+
+
+### أتلتيكو مدريد ضد إسبانيول (N/A, Sat, 21 Feb 2026 11:30:00 -0800)
+
+- **إيقاف رودريغو ميندوزا عن مباراة أتلتيكو مدريد المقبلة**: [Link](https://m.elbotola.com/article/2026-02-19-13-30-248.html)
+- **موعد مشاهدة بث مباشر مباراة إسبانيول وأتلتيكو مدريد اليوم في الدوري الإسباني عبر القنوات الناقلة**: [Link](https://www.cairo24.com/2376013)
+- **القنوات الناقلة لمباراة أتلتيكو مدريد ضد إسبانيول اليوم في الدوري الإسباني مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/787286191851884-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### kora (N/A, Sat, 21 Feb 2026 11:30:00 -0800)
+
+
+
+
+### العشاء (N/A, Sat, 21 Feb 2026 11:30:00 -0800)
+
+
+
+
+### البطولة (N/A, Sat, 21 Feb 2026 11:30:00 -0800)
+
+- **مدرب الماص بعد الفوز على ا.يعقوب المنصور: "من المؤسف أن جمهورنا لم يحضر لكننا نقدّر كل ما يفعلونه من أجل الفريق"**: [Link](https://m.elbotola.com/article/2026-02-21-12-51-388.html)
+- **“التحكيم” في مرمى غضب اتحاد يعقوب المنصور**: [Link](https://www.radiomars.ma/%D8%BA%D8%B6%D8%A8-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D8%B9%D9%82%D9%88%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%83/)
+- **البطولة: المغرب الفاسي يحافظ على الصدارة والنادي المكناسي يواصل المطاردة – اليوم 24**: [Link](https://alyaoum24.com/2011453.html)
+
+
 ### atlético madrid – espanyol (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
 
 - **Atlético - Espanyol | Otra ‘final’ en la montaña rusa**: [Link](https://www.marca.com/futbol/primera-division/2026/02/21/atletico-espanyol-final-montana-rusa.html)
