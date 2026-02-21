@@ -1,3 +1,17 @@
+### العصر (N/A, Sat, 21 Feb 2026 08:00:00 -0800)
+
+- **موعد أذان المغرب والعشاء اليوم السبت 21 فبراير 2026 في مصر**: [Link](https://al-ain.com/article/maghrib-isha-prayer-times)
+- **عاجل: مواقيت الصلاة الرسمية لليوم الثالث من رمضان في جميع محافظات مصر - الفجر يبدأ من 4:50 ص**: [Link](https://yemen-press.net/news168048.html)
+- **موعد أذان الظهر اليوم السبت 21 فبراير 2026 في محافظة الغربية**: [Link](https://akher.news/47517/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D8%A7%D9%84%D8%B8%D9%87%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-21-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026-%D9%81%D9%8A/)
+
+
+### ريال بتيس ضد رايو فاليكانو (N/A, Sat, 21 Feb 2026 07:10:00 -0800)
+
+- **Betis - Rayo live**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/betis-rayo/2026/02/21/01_0101_20260221_185_184-live.html)
+- **Football Bet of the Day: Back Betis to bag all three points on Saturday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-betis-to-bag-all-three-points-on-saturday/)
+- **Real Betis Vs Rayo Vallecano preview: prediction, team news and betting angle**: [Link](https://www.filmogaz.com/160292)
+
+
 ### real betis vs rayo vallecano (N/A, Sat, 21 Feb 2026 07:40:00 -0800)
 
 - **Where to Watch Real Betis vs. Rayo Vallecano: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/20/where-to-watch-real-betis-vs-rayo-vallecano-tv-channel-start-time-and-live-stream-2/)
