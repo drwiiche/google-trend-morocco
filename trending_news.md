@@ -1,3 +1,31 @@
+### الهلال ضد الاتحاد (N/A, Sat, 21 Feb 2026 10:40:00 -0800)
+
+- **تشكيل الكلاسيكو يمنح الهلال رقمًا شخصيًا في دوري روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%8A%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B1%D9%82%D9%85%D9%8B%D8%A7-%D8%B4%D8%AE%D8%B5%D9%8A%D9%8B%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/blt7008677e23a081bd)
+- **مباشر.. مباراة الهلال ضد الاتحاد في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86)
+- **عاجل: كلاسيكو بـ364 مليون يورو يشعل الليلة - بنزيما يواجه فريقه السابق في معركة الصدارة!**: [Link](https://yemen-press.net/news167911.html)
+
+
+### carlos alcaraz (N/A, Sat, 21 Feb 2026 10:40:00 -0800)
+
+- **El tenista español buscará conquistar su primer título en Doha tras imponerse en semifinales a Andrey Rublev y mantener su racha invicta en la temporada**: [Link](https://www.facebook.com/InfobaeEspana/posts/el-tenista-espa%C3%B1ol-buscar%C3%A1-conquistar-su-primer-t%C3%ADtulo-en-doha-tras-imponerse-en/885774377764431/)
+- **Carlos Alcaraz vs Arthur Fils en vivo: horarios, transmisión online y canales de la final del Torneo de Doha ATP 500 en España, Latinoamérica, México y Estados Unidos**: [Link](https://www.dazn.com/es-MX/news/tennis/carlos-alcaraz-vs-arthur-fils-vivo-horarios-transmision-online-canales-final-torneo-doha-atp-500-espana-latinoamerica-mexico-estados-unidos/r36mnwf5o75f124dszonq6zyf)
+- **Fils: “Quizá sea yo el primero que le haga perder un partido a Alcaraz”**: [Link](https://as.com/tenis/mas_tenis/fils-quiza-sea-yo-el-primero-que-le-haga-perder-un-partido-a-alcaraz-f202602-n/)
+
+
+### موعد أذان المغرب (N/A, Sat, 21 Feb 2026 10:40:00 -0800)
+
+- **موعد أذان الفجر وعدد ساعات الصيام في المنيا غدا الأحد 22-2-2026**: [Link](https://www.egyptke.com/195838)
+- **موعد أذان المغرب اليوم السبت 3 رمضان في القاهرة والمحافظات**: [Link](https://m.akhbarelyom.com/news/newdetails/4776807/1/%D8%A3%D8%B0%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **أجواء روحانية تتجدد مع موعد اذان المغرب في السويس خلال رمضان**: [Link](https://akher.news/47644/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B1%D9%88%D8%AD%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AC%D8%AF%D8%AF-%D9%85%D8%B9-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D8%B0%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1/)
+
+
+### snrt (N/A, Sat, 21 Feb 2026 10:30:00 -0800)
+
+- **Ramadan : 2M et la SNRT dominent l’audience dès le premier jour**: [Link](https://www.leconomiste.com/flash-infos/ramadan-2m-et-la-snrt-dominent-laudience-des-le-premier-jour/)
+- **Ramadan TV: les chaînes nationales accaparent 70,4% de parts d’audience au 1er jour**: [Link](https://h24info.ma/maroc/societe/ramadan-tv-les-chaines-nationales-accaparent-704-de-parts-daudience-au-1er-jour/)
+- **La Radio Amazighe: Une grille de programmes riche et entièrement adaptée aux spécificités du Ramadan**: [Link](https://snrtnews.com/fr/article/la-radio-amazighe-une-grille-de-programmes-riche-et-entierement-adaptee-aux-specificites-du)
+
+
 ### al-hilal – al ittihad (N/A, Sat, 21 Feb 2026 10:20:00 -0800)
 
 - **Saudi Pro League: What time and on which channel to watch Al-Hilal vs Al-Ittihad?**: [Link](https://foot-africa.com/en/news/saudi-pro-league-what-time-and-on-which-channel-to-watch-al-hilal-vs-al-ittihad-1095293/)
