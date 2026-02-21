@@ -1,3 +1,10 @@
+### wydad (N/A, Sat, 21 Feb 2026 14:50:00 -0800)
+
+- **Botola : derby de Rabat AS FAR–UTS, choc RSB–FUS en tête d’affiche**: [Link](https://lematin.ma/sports/botola-derby-de-rabat-as-faruts-choc-rsbfus-en-tete-daffiche/331039)
+- **Ouverture de la 13e journée : le CODM face à l'Olympique Safi, l'Ittihad Yacoub El Mansour reçoit le Maghreb de Fès**: [Link](https://m.elbotola.com/fr/article/2026-02-20-19-24-459.html)
+- **Botola Pro D1 Inwi: le programme de ce samedi 21 février, un derby rbati en tête d’affiche**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-inwi-le-programme-de-ce-samedi-21-fevrier-un-derby-rbati-en-tete-daffiche_LTQCPOXXURFD7FHUVHRSEEJZLQ/)
+
+
 ### wac (N/A, Sat, 21 Feb 2026 14:30:00 -0800)
 
 - **Payton Hull Leads ACU Against Southern Utah for WAC Top Spot**: [Link](https://bvmsports.com/2026/02/21/payton-hull-leads-acu-against-southern-utah-for-wac-top-spot/)
