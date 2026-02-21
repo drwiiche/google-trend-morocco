@@ -1,3 +1,17 @@
+### wac (N/A, Sat, 21 Feb 2026 14:30:00 -0800)
+
+- **Payton Hull Leads ACU Against Southern Utah for WAC Top Spot**: [Link](https://bvmsports.com/2026/02/21/payton-hull-leads-acu-against-southern-utah-for-wac-top-spot/)
+- **Southern Utah Thunderbirds vs Abilene Christian Wildcats Prediction, 2/21/2026 College Basketball Picks, Best Bets & Odds**: [Link](https://www.docsports.com/free-picks/ncaa-college-basketball/2026/southern-utah-thunderbirds-vs-abilene-christian-wildcats-prediction-2-21-2026-college-basketball-picks-best-bets-odds.html)
+- **Southern Utah vs Abilene Christian Prediction, Odds & Best Bets Today – NCAAB, Feb. 21**: [Link](https://sports.betmgm.com/en/blog/ncaab/southern-utah-abilene-christian-prediction-odds-picks-feb-21-college-basketball-jaa/)
+
+
+### botola pro (N/A, Sat, 21 Feb 2026 14:30:00 -0800)
+
+- **Benhachem Announces Wydad Lineup for Olympique Dcheira: Mossadeq, Khali in Defense; Benyadir Leads Attack with Ziyech and Amrabat**: [Link](https://m.elbotola.com/en/article/2026-02-21-21-06-617.html)
+- **Olympique Dcheira Releases Tickets for Wydad Match**: [Link](https://www.ysscores.com/en/news/13914099/Olympique-Dcheira-Releases-Tickets-for-Wydad-Match)
+- **Nabil Khali returns to Wydad squad for Olympique Dcheira clash**: [Link](https://africasoccer.com/nabil-khali-returns-to-wydad-squad-for-olympique-dcheira-clash/)
+
+
 ### botola (N/A, Sat, 21 Feb 2026 14:00:00 -0800)
 
 - **Benhachem Announces Wydad Lineup for Olympique Dcheira: Mossadeq, Khali in Defense; Benyadir Leads Attack with Ziyech and Amrabat**: [Link](https://m.elbotola.com/en/article/2026-02-21-21-06-617.html)
