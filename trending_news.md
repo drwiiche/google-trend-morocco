@@ -1,3 +1,17 @@
+### botola (N/A, Sat, 21 Feb 2026 14:00:00 -0800)
+
+- **Benhachem Announces Wydad Lineup for Olympique Dcheira: Mossadeq, Khali in Defense; Benyadir Leads Attack with Ziyech and Amrabat**: [Link](https://m.elbotola.com/en/article/2026-02-21-21-06-617.html)
+- **Olympique Dcheira Releases Tickets for Wydad Match**: [Link](https://www.ysscores.com/en/news/13914099/Olympique-Dcheira-Releases-Tickets-for-Wydad-Match)
+- **Nabil Khali returns to Wydad squad for Olympique Dcheira clash**: [Link](https://africasoccer.com/nabil-khali-returns-to-wydad-squad-for-olympique-dcheira-clash/)
+
+
+### الدوري المغربي (N/A, Sat, 21 Feb 2026 14:00:00 -0800)
+
+- **3 أهداف وذكريات لا تُنسى.. زياش يعود لإشعال الملاعب المغربية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/3-%D8%A7%D9%94%D9%87%D8%AF%D8%A7%D9%81-%D9%88%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D9%84%D8%A7-%D8%AA%D9%8F%D9%86%D8%B3%D9%89--%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%A7%D9%95%D8%B4%D8%B9%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9/blt20f3414fa8184299)
+- **غيابات جديدة في صفوف الوداد**: [Link](https://sport.lesiteinfo.com/elbotola/488499.html)
+- **أولمبيك الدشيرة يعلن تمديد فترة بيع تذاكر مواجهة الوداد بسبب الإقبال الكبير**: [Link](https://m.elbotola.com/article/2026-02-20-20-58-941.html)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Sat, 21 Feb 2026 13:30:00 -0800)
 
 - **فيلا وتشيلسي يهدران التقدم في البريميرليغ وميلنر يحطم رقما قياسيا**: [Link](https://www.aljazeera.net/sport/2026/2/21/%D9%81%D9%8A%D9%84%D8%A7-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%B6%D9%8A%D8%B9%D8%A7%D9%86-%D9%86%D9%82%D8%A7%D8%B7%D8%A7-%D9%88%D9%85%D9%8A%D9%84%D9%86%D8%B1-%D9%8A%D8%AD%D8%B7%D9%85)
