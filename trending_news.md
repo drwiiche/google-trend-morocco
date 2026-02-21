@@ -1,3 +1,24 @@
+### west ham – bournemouth (N/A, Sat, 21 Feb 2026 09:00:00 -0800)
+
+- **Predicted: Nuno makes 9 West Ham changes for Bournemouth**: [Link](https://www.hammers.news/match-report/predicted-nuno-makes-nine-west-ham-changes-for-bournemouth-after-jean-clair-todibo-call/)
+- **Football Bet Of The Day: Joe Casey has an even-money selection from the Premier League**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-joe-casey-has-an-even-money-selection-from-the-premier-league-aQauD9h7KxFa/)
+- **NUNO: THESE HAMMERS ARE MADE OF IRON**: [Link](https://www.pressreader.com/ireland/irish-daily-mirror/20260221/282729118366113)
+
+
+### osasuna vs real madrid (N/A, Sat, 21 Feb 2026 08:50:00 -0800)
+
+- **Real Madrid announce squad for La Liga match against Osasuna**: [Link](https://www.managingmadrid.com/104255/real-madrid-osasuna-2026-news-squad-list)
+- **Mission (almost) impossible: 15 years without beating Real and La Liga's longest streak**: [Link](https://www.besoccer.com/new/mission-almost-impossible-15-years-without-beating-real-and-la-ligas-longest-streak-1395197)
+- **“Tough battle” awaits Real Madrid in Osasuna, warns Arbeloa**: [Link](https://onefootball.com/de/news/tough-battle-awaits-real-madrid-in-osasuna-warns-arbeloa-42443106)
+
+
+### chelsea (N/A, Sat, 21 Feb 2026 08:50:00 -0800)
+
+- **Estevao injury news: Chelsea and Brazil star out, set for scan**: [Link](https://sports.yahoo.com/articles/estevao-injury-news-chelsea-brazil-143345761.html)
+- **Why Estevao Willian has been left out of Chelsea squad by Liam Rosenior for clash with Burnley**: [Link](https://www.goal.com/en-ca/lists/why-estevao-willian-out-chelsea-clash-with-burnley/blt2c9b5dd606c55474)
+- **Chelsea hit with huge new injury blow ahead of Arsenal showdown**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-estevao-injury-b1271930.html)
+
+
 ### osasuna – real madrid (N/A, Sat, 21 Feb 2026 08:40:00 -0800)
 
 - **Osasuna - Real Madrid hoy, en directo: previa de LaLiga EA Sports, última hora en El Sadar**: [Link](https://as.com/futbol/primera/osasuna-real-madrid-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
