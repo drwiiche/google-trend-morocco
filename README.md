@@ -1,3 +1,17 @@
+### benfica – avs (N/A, Sat, 21 Feb 2026 09:30:00 -0800)
+
+- **Onze do Benfica com muitas (e grandes) novidades!**: [Link](https://sapo.pt/artigo/onze-do-benfica-com-muitas-e-grandes-novidades-6999e21428b84438004cea74)
+- **Águia pressionada e Ave em aflição: Obrigação e sobrevivência cruzam-se na Luz | Benfica x AVS SAD**: [Link](https://bolanarede.pt/desporto/aguia-pressionada-e-ave-em-aflicao-obrigacao-e-sobrevivencia-cruzam-se-na-luz-benfica-x-avs-sad/)
+- **Mourinho diz que tem sido difícil gerir a equipa após duelo com o Real Madrid**: [Link](https://observador.pt/2026/02/20/mourinho-diz-que-tem-sido-dificil-gerir-a-equipa-apos-duelo-com-o-real-madrid/)
+
+
+### alerte bombe paris (N/A, Sat, 21 Feb 2026 08:20:00 -0800)
+
+- **INFO BFMTV. Tour Montparnasse et Sciences Po évacués après un signalement: levée de doute terminée, aucun engin explosif trouvé**: [Link](https://www.bfmtv.com/police-justice/info-bfmtv-plusieurs-etablissements-en-cours-d-evacuation-pour-une-levee-de-doute-apres-le-signalement-d-un-engin-explosif_AN-202602200873.html)
+- **Sciences Po Paris, tour Montparnasse : plusieurs établissements évacués après des menaces «de faire exploser divers endroits» de la capitale**: [Link](https://www.lefigaro.fr/faits-divers/paris-plusieurs-etablissements-en-cours-d-evacuation-apres-des-menaces-de-faire-exploser-divers-endroits-de-la-capitale-20260220)
+- **Quatre sites parisiens, dont la tour Montparnasse et Sciences Po, visés par une alerte à la bombe**: [Link](https://www.franceinfo.fr/france/ile-de-france/plusieurs-sites-parisiens-dont-la-tour-montparnasse-evacues-apres-des-alertes-a-la-bombe_7819406.html)
+
+
 ### west ham – bournemouth (N/A, Sat, 21 Feb 2026 09:00:00 -0800)
 
 - **Predicted: Nuno makes 9 West Ham changes for Bournemouth**: [Link](https://www.hammers.news/match-report/predicted-nuno-makes-nine-west-ham-changes-for-bournemouth-after-jean-clair-todibo-call/)
