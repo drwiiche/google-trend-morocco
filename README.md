@@ -1,3 +1,10 @@
+### wydad ac (N/A, Sat, 21 Feb 2026 15:20:00 -0800)
+
+- **Ziyech to Make First Botola Appearance for Wydad Today**: [Link](https://www.moroccoworldnews.com/2026/02/279703/ziyech-to-make-first-botola-appearance-for-wydad-today/)
+- **El Ouafi: "We are preparing seriously for Olympique Dcheira match to return to Casablanca with three points"**: [Link](https://m.elbotola.com/en/article/2026-02-19-16-06-389.html)
+- **Olympique Dcheira vs Wydad Casablanca - live score, predicted lineups and H2H stats**: [Link](https://www.fotmob.com/matches/wydad-casablanca-vs-olympique-dcheira/2vw679ks)
+
+
 ### botola pro 1 (N/A, Sat, 21 Feb 2026 15:10:00 -0800)
 
 - **Pep Mel (entraîneur de l'Ittihad de Tanger) : « Je n'ai disputé que quatre matchs et je ne peux pas inventer des joueurs que je n'ai pas**: [Link](https://m.elbotola.com/fr/article/2026-02-14-21-17-357.html)
