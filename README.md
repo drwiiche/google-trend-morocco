@@ -1,3 +1,10 @@
+### audi rs5 (N/A, Fri, 20 Feb 2026 21:30:00 -0800)
+
+- **View Exterior and Interior Photos of the 2027 Audi RS5, Now a High-Performance Plug-In Hybrid**: [Link](https://www.caranddriver.com/photos/g70411352/2027-audi-rs5-revealed-gallery/)
+- **The new Audi RS 5 : high performance in a hybrid**: [Link](https://www.audi-mediacenter.com/en/press-releases/the-new-audi-rs-5-high-performance-in-a-hybrid-17012)
+- **2027 Audi RS 5 Wagon & Sedan: Exterior and Interior Photo Gallery**: [Link](https://www.edmunds.com/car-news/2027-audi-rs-5-avant-sportback-photo-gallery.html)
+
+
 ### netflix (N/A, Fri, 20 Feb 2026 20:40:00 -0800)
 
 - **Eric Dane, Grey's Anatomy and Euphoria Star, Dead at 53 Nearly 1 Year After Announcing ALS Diagnosis**: [Link](https://people.com/eric-dane-dead-greys-anatomy-star-was-53-11717334)
