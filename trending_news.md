@@ -1,3 +1,10 @@
+### psg vs metz (N/A, Sat, 21 Feb 2026 11:50:00 -0800)
+
+- **Saturday's Ligue 1 predictions and previews including PSG vs. Metz and Lens vs. Monaco**: [Link](https://www.sportsmole.co.uk/football/psg/ligue-1-predictions/feature/psg-lens-aiming-for-crucial-wins-saturdays-ligue-1-predictions-and-previews_592416.html)
+- **PSG predicted XI v Metz: Ousmane Dembélé out**: [Link](https://sports.yahoo.com/articles/psg-predicted-xi-v-metz-111000084.html)
+- **'PSG need those three points', says Luis Enrique ahead of Metz test**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/psg-need-those-three-points-says-luis-enrique-ahead-of-metz-test-2026-02-20)
+
+
 ### مان سيتي ضد نيوكاسل يونايتد (N/A, Sat, 21 Feb 2026 11:40:00 -0800)
 
 - **"ادفعوا رواتب أعلى للمعلمين والأطباء".. هكذا علق غوارديولا على العنصرية ضد فينيسيوس**: [Link](https://www.aljazeera.net/sport/2026/2/20/%D8%A8%D9%8A%D8%A8-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D8%B9%D9%86%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B1%D9%88%D8%A7%D8%AA%D8%A8-%D9%81%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3)
