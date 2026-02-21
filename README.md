@@ -1,3 +1,17 @@
+### juventus – côme (N/A, Sat, 21 Feb 2026 05:20:00 -0800)
+
+- **Serie A: Juventus vs. Como – probable line-ups, where to watch on TV**: [Link](https://football-italia.net/juventus-v-como-probable-line-ups-watch-on-tv/)
+- **Official Juventus team to face Como – Openda and Yildiz start**: [Link](https://sports.yahoo.com/articles/official-juventus-team-face-como-130000776.html)
+- **Blow for Fabregas as Como’s ultimate star will be banned for Juventus clash**: [Link](https://www.juvefc.com/blow-como-nico-paz-banned-juventus/)
+
+
+### ski acrobatique jo 2026 (N/A, Sat, 21 Feb 2026 04:10:00 -0800)
+
+- **Les JO EN DIRECT : Harrop et Anselmet décrochent l'or sur le relais mixte, la mass start dames du biathlon va débuter**: [Link](https://www.eurosport.fr/jeux-olympiques/jeux-olympiques-milan-cortina-2026-en-direct-jour-15/2026/liveevent.shtml)
+- **Ski acrobatique (H) : Melvin Tchiknavorian lance parfaitement sa compétition de skicross**: [Link](https://www.france.tv/sport/les-jeux-olympiques-d-hiver/8230923-ski-acrobatique-h-melvin-tchiknavorian-lance-parfaitement-sa-competition-de-skicross.html)
+- **Jeux olympiques: l'équipe féminine suisse de curling dispute sa demi-finale contre les Etats-Unis ce vendredi**: [Link](https://www.rts.ch/audio-podcast/2026/audio/jeux-olympiques-l-equipe-feminine-suisse-de-curling-dispute-sa-demi-finale-contre-les-etats-unis-ce-vendredi-29158475.html)
+
+
 ### real sociedad – real oviedo (N/A, Sat, 21 Feb 2026 04:10:00 -0800)
 
 - **Pellegrino Matarazzo admite una preferencia nocturna y responde a Haissem Hassan y Barrenetxea: "Siesta"**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260220/real-sociedad-pellegrino-matarazzo-preferencia-nocturna-responde-haissem-hassan-ander-barrenetxea_18_018410966.html)
