@@ -1,3 +1,10 @@
+### netflix (N/A, Fri, 20 Feb 2026 20:40:00 -0800)
+
+- **Eric Dane, Grey's Anatomy and Euphoria Star, Dead at 53 Nearly 1 Year After Announcing ALS Diagnosis**: [Link](https://people.com/eric-dane-dead-greys-anatomy-star-was-53-11717334)
+- **Exclusive | The surprising way Johnny Depp helped Eric Dane during the ‘Grey’s Anatomy’ star’s devastating ALS battle**: [Link](https://pagesix.com/2026/02/19/celebrity-news/the-surprising-way-johnny-depp-is-helping-eric-dane-as-he-battles-als/)
+- **Eric Dane Remembered by ‘Euphoria’ Creator Sam Levinson: ‘Being His Friend Was a Gift’**: [Link](https://variety.com/2026/tv/news/eric-dane-tribute-euphoria-1236667986/)
+
+
 ### gianluca prestianni (N/A, Fri, 20 Feb 2026 12:40:00 -0800)
 
 - **Mourinho made 'unacceptable, huge mistake' - Kompany**: [Link](https://www.bbc.com/sport/football/articles/crl4jx0jw11o)
