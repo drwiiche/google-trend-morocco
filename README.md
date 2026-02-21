@@ -1,3 +1,17 @@
+### ترتيب الدوري الانجليزي (N/A, Sat, 21 Feb 2026 13:30:00 -0800)
+
+- **فيلا وتشيلسي يهدران التقدم في البريميرليغ وميلنر يحطم رقما قياسيا**: [Link](https://www.aljazeera.net/sport/2026/2/21/%D9%81%D9%8A%D9%84%D8%A7-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%B6%D9%8A%D8%B9%D8%A7%D9%86-%D9%86%D9%82%D8%A7%D8%B7%D8%A7-%D9%88%D9%85%D9%8A%D9%84%D9%86%D8%B1-%D9%8A%D8%AD%D8%B7%D9%85)
+- **هدف متأخر ينقذ أستون فيلا من الهزيمة أمام ليدز يونايتد**: [Link](https://m.elbotola.com/article/2026-02-21-17-45-572.html)
+- **مباريات الجولة 27 من الدوري الإنجليزي الممتاز: المنافسة على اللقب في حالة اضطراب**: [Link](https://www.vietnam.vn/ar/lich-thi-dau-vong-27-ngoai-hang-anh-duong-dua-vo-dich-day-song)
+
+
+### al nassr (N/A, Sat, 21 Feb 2026 11:50:00 -0800)
+
+- **Al-Nassr 4-0 Al-Hazem: Ronaldo at the double to send hosts top of Saudi Pro League table**: [Link](https://www.fotmob.com/news/1soncx1zccmui178rj1doa7x2q-al-nassr-4-0-al-hazem-ronaldo-at-double-send-hosts-top-saudi-pro-league-table)
+- **Cristiano Ronaldo’s 963rd career goal adds another jaw-dropping chapter to his legacy as Al-Nassr star hits...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldos-963rd-career-goal-adds-another-jaw-dropping-chapter-to-his-legacy-as-al-nassr-star-reaches-500-goals-after-age-30-milestone-video/)
+- **📹 CR7 bags a brace, tops 500 goals after turning 30 as Al-Nassr go top**: [Link](https://sports.yahoo.com/articles/cr7-bags-brace-tops-500-210300330.html)
+
+
 ### hilal (N/A, Sat, 21 Feb 2026 13:00:00 -0800)
 
 - **Flamengo Vs Al Hilal: Watch Live Today!**: [Link](https://www.thedetroitbureau.com/today-report/flamengo-vs-al-hilal-watch-live-today-1767646476)
