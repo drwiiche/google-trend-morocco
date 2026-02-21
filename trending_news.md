@@ -1,3 +1,24 @@
+### real sociedad – real oviedo (N/A, Sat, 21 Feb 2026 04:10:00 -0800)
+
+- **Pellegrino Matarazzo admite una preferencia nocturna y responde a Haissem Hassan y Barrenetxea: "Siesta"**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260220/real-sociedad-pellegrino-matarazzo-preferencia-nocturna-responde-haissem-hassan-ander-barrenetxea_18_018410966.html)
+- **Real Sociedad – Real Oviedo: Europa y el descenso chocan en Anoeta**: [Link](https://onefootball.com/pt-br/noticias/real-sociedad-real-oviedo-europa-y-el-descenso-chocan-en-anoeta-42443348)
+- **El pan y la mantequilla**: [Link](https://www.realsociedad.eus/es/noticias/detalle/el-pan-y-la-mantequilla)
+
+
+### maroc (N/A, Sat, 21 Feb 2026 04:00:00 -0800)
+
+- **Diapo. ONDA: lancement de la campagne «Let’s Take Off»**: [Link](https://fr.le360.ma/societe/diapo-onda-lancement-de-la-campagne-lets-take-off_33WWF3YJZFDH3F3JDGLWSNLSGE/)
+- **« Let’s Take Off » : Airports of Morocco lance sa campagne pour les aéroports à l’horizon 2030**: [Link](https://ledesk.ma/encontinu/lets-take-off-airports-of-morocco-lance-sa-campagne-pour-les-aeroports-a-lhorizon-2030/)
+- **Aéroports 2030 : Airports of Morocco lance sa nouvelle campagne “Let’s Take Off”**: [Link](https://www.leconomiste.com/flash-infos/aeroports-2030-airports-of-morocco-lance-sa-nouvelle-campagne-lets-take-off/)
+
+
+### jeux (N/A, Sat, 21 Feb 2026 02:00:00 -0800)
+
+- **Captain Blood et 2 autres jeux gratuits sur Amazon Gaming dès maintenant**: [Link](https://www.goclecd.fr/captain-blood-et-2-autres-jeux-gratuits-sur-amazon-gaming-des-maintenant-news-n/)
+- **20/02 Bon Plan : quatre jeux pour les abonnés Amazon Prime**: [Link](https://www.cowcotland.com/news/99785/bon-plan-quatre-jeux-pour-les-abonnes-amazon-prime.html)
+- **Prime Gaming frappe fort avec 4 jeux gratuits à conserver définitivement**: [Link](https://www.lacremedugaming.fr/actus/prime-gaming-frappe-fort-avec-4-jeux-gratuits-a-conserver-definitivement-207610.html)
+
+
 ### ترتيب الدوري المغربي (N/A, Fri, 20 Feb 2026 14:40:00 -0800)
 
 - **حادثة مفجعة.. مصرع لاعبتين في الدار البيضاء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%A7%D8%AF%D8%AB%D8%A9-%D9%85%D9%81%D8%AC%D8%B9%D8%A9--%D9%85%D8%B5%D8%B1%D8%B9-%D9%84%D8%A7%D8%B9%D8%A8%D8%AA%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1/bltaed56cbb78d55d66)
