@@ -1,3 +1,24 @@
+### al-hilal – al ittihad (N/A, Sat, 21 Feb 2026 10:20:00 -0800)
+
+- **Saudi Pro League: What time and on which channel to watch Al-Hilal vs Al-Ittihad?**: [Link](https://foot-africa.com/en/news/saudi-pro-league-what-time-and-on-which-channel-to-watch-al-hilal-vs-al-ittihad-1095293/)
+- **Expected Lineup for Al Hilal and Al Ittihad in Tonight's Clasico**: [Link](https://www.ysscores.com/en/news/13915195/Expected-Lineup-for-Al-Hilal-and-Al-Ittihad-in-Tonight's-Clasico)
+- **Inzaghi Decides Marcos Leonardo’s Fate Ahead of Al Hilal–Al Ittihad Clasico**: [Link](https://koorabreak.com/en/258989/)
+
+
+### المغرب (N/A, Sat, 21 Feb 2026 10:20:00 -0800)
+
+- **أزمة "الكلاب الضالة".. صرخة حقوقية تهدد حلم المغرب المونديالي!!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%A8-%D8%A7%D9%84%D8%B6%D8%A7%D9%84%D8%A9--%D8%B5%D8%B1%D8%AE%D8%A9-%D8%AD%D9%82%D9%88%D9%82%D9%8A%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A/blta943fbbd03d3b435)
+- **المغاربة يقتلون "الكلاب'' لإرضاء الأجانب في مونديال 2030**: [Link](https://www.dzair-tube.dz/%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D9%82%D8%AA%D9%84%D9%88%D9%86-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%A8-%D9%84%D8%A5%D8%B1%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D8%AC%D8%A7/)
+- **قبل مونديال 2030.. عاصفة حقوق الحيوان تحرج المغرب دوليا**: [Link](https://www.alquds.co.uk/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D8%AD%D9%8A%D9%88%D8%A7%D9%86-%D8%AA%D8%AD%D8%B1%D8%AC-%D8%A7/)
+
+
+### psv eindhoven – heerenveen (N/A, Sat, 21 Feb 2026 10:00:00 -0800)
+
+- **All about | PSV aims for 25th home win over sc Heerenveen**: [Link](https://www.psv.nl/en/media/artikel/alles-over-psv-doelt-op-25e-thuiszege-op-sc-heerenveen)
+- **How to watch today's PSV Eindhoven vs SC Heerenveen Eredivisie game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sg/news/how-to-watch-psv-eindhoven-sc-heerenveen-21022026/bltc61d2be4a2645a43)
+- **PSV v Heerenveen: leaders' title charge meets play-off push**: [Link](https://onefootball.com/en/news/psv-v-heerenveen-leaders-title-charge-meets-play-off-push-42441089)
+
+
 ### yalla kora (N/A, Sat, 21 Feb 2026 09:50:00 -0800)
 
 - **الدباغ في الصدارة.. ترتيب هدافي الدوري بعد الجولة 18**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=21022026&id=39536ae0-1243-411a-b37b-a77714abb070)
