@@ -1,3 +1,73 @@
+### atlético madrid – espanyol (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **Atlético - Espanyol | Otra ‘final’ en la montaña rusa**: [Link](https://www.marca.com/futbol/primera-division/2026/02/21/atletico-espanyol-final-montana-rusa.html)
+- **Cómo hemos cambiado**: [Link](https://as.com/futbol/primera/como-hemos-cambiado-f202602-n/)
+- **Simeone: “Es más importante ganar que dar una buena imagen este sábado”**: [Link](https://laconexionusa.com/simeone-es-mas-importante-ganar-que-dar-una-buena-imagen-este-sabado/)
+
+
+### manchester city – newcastle (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **Manchester City vs Newcastle: Latest City injury and team news, and predicted City starting XI**: [Link](https://esteemedkompany.com/2026/02/21/manchester-city-vs-newcastle-latest-city-injury-and-team-news-and-predicted-city-starting-xi/)
+- **Kalshi Promo Code GOALMAX: Get $10 in Bonuses for Man City vs Newcastle Trading**: [Link](https://www.goal.com/en-us/betting/kalshi-promo-code-goalmax-get-10-bonuses-man-city-vs-newcastle-trading-2-21/blta0c9440725acbc17)
+- **Confirmed line up: One change for Man City clash**: [Link](https://sports.yahoo.com/articles/confirmed-line-one-change-man-184500899.html)
+
+
+### ترتيب الدوري الاسباني (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **ترتيب هدافي الدوري الإسباني بعد هدف بوديمير في مباراة ريال مدريد وأوساسونا**: [Link](https://www.btolat.com/news/393902)
+- **مبابي يوسع الفارق في صدارة هدافي الليجا.. تعرف على الترتيب كاملاً**: [Link](https://akhbaralasr.com/story1055440)
+- **الحلم سبورت : ترتيب هدافي الدوري الإسباني بعد هدف بوديمير في مباراة ريال مدريد وأوساسونا**: [Link](https://al7lmnews.com/news/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7-2/)
+
+
+### classement la liga (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **DIRECT. Osasuna-Real Madrid (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/osasuna-real-madrid-live/676959)
+- **25e journée de Liga : Suivez Osasuna - Real Madrid EN DIRECT.**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-osasuna-real-madrid_mtc1610865/live-commentary.shtml)
+- **Convocation du Real Madrid contre Osasuna**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/convocations/convocatoria-del-real-madrid-ante-osasuna-20-02-2026)
+
+
+### al-nassr vs al-hazem (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **Jesus Shocks Al-Nassr's Foreign Duo Before Facing Al-Hazm**: [Link](https://www.ysscores.com/en/news/13915026/Jesus-Shocks-Al-Nassr's-Foreign-Duo-Before-Facing-Al-Hazm)
+- **Al Nassr vs Al Hazem: Live streaming, TV channel, kick-off time & where to watch Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-nassr-vs-al-hazem-where-to-watch-202602)
+- **Is Cristiano Ronaldo Playing Tonight for Al-Nassr vs Al Hazem?**: [Link](https://sports.yahoo.com/articles/cristiano-ronaldo-playing-tonight-al-150300500.html)
+
+
+### flashscore (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **Jorrit Bergsma wins mass start to continue golden Winter Olympics for 40-somethings**: [Link](https://www.theguardian.com/sport/2026/feb/21/jorrit-bergsma-wins-mass-start-to-continue-golden-winter-olympics-for-40-somethings)
+- **Dutch Double As Bergsma And Groenewoud Win Olympic Speed Skating Gold**: [Link](https://www.barrons.com/news/dutch-double-as-bergsma-and-groenewoud-win-olympic-speed-skating-gold-81869177?gaa_at=eafs&gaa_n=AWEtsqdYLH2qCGGC-BV7w8IBKZZjOOICNAI1jPENrlRQmEUENahSpm4eTO57&gaa_ts=699a0bff&gaa_sig=hvCnQxkk2bI58SlN6Cmt5oP0SwAuSsvC0_wUMxjcOwDwtrXbZJvwYNwfl3wA2H0g4hZb-YqeQjTDvjAyhmWrtg%3D%3D)
+- **Speed skating-Dutchwoman Groenewoud wins women's mass start at Milano Cortina**: [Link](https://www.reuters.com/sports/speed-skating-dutchwoman-groenewoud-wins-womens-mass-start-milano-cortina-2026-02-21/)
+
+
+### بنات لالة منانة (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **برمجة مسلسلات تركية في رمضان تضع "دوزيم" تحت مجهر الانتقادات**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D9%85%D8%AC%D8%A9-%D9%85%D8%B3%D9%84%D8%B3%D9%84%D8%A7%D8%AA-%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%AA%D8%B6%D8%B9-%D8%AF%D9%88%D8%B2%D9%8A%D9%85-1704612.html)
+- **هل هي “رسالة اباحية”؟.. مشهد في مسلسل رمضاني على القناة المغربية الرسمية يثير موجة غضب ومطالب بتفعيل الرقابة**: [Link](https://www.raialyoum.com/%D9%87%D9%84-%D9%87%D9%8A-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%A7%D8%A8%D8%A7%D8%AD%D9%8A%D8%A9%D8%9F-%D9%85%D8%B4%D9%87%D8%AF-%D9%81%D9%8A-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B1%D9%85%D8%B6%D8%A7/)
+- **عودة قوية.. "بنات لالة منانة" يتصدر المشاهدة في أول أيام رمضان**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%B9%D9%88%D8%AF%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D9%86%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D9%85%D9%86%D8%A7%D9%86%D8%A9-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7-244516.html)
+
+
+### benfica vs avs (N/A, Sat, 21 Feb 2026 11:20:00 -0800)
+
+- **Benfica Vs Avs: How Saturday’s clash will land hardest on a struggling AVS and test Benfica’s momentum**: [Link](https://www.filmogaz.com/160492)
+- **Benfica vs. AVS: Expert Predictions and Tips for February 21, 2026**: [Link](https://www.el-balad.com/6857434)
+- **Sport Lisboa e Benfica – AVS prediction & tips 21.02.2026**: [Link](https://www.ubirataonline.com.br/sport-lisboa-e-benfica-avs-prediction-tips-21-02-2026/)
+
+
+### النصر ضد الحزم (N/A, Sat, 21 Feb 2026 11:10:00 -0800)
+
+- **مباشر.. مباراة النصر ضد الحزم في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%AD%D8%B2%D9%85-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+- **ما القنوات الناقلة لمباراة النصر والحزم في دوري روشن السعودي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%AD%D8%B2%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5739c7a62d5ee0fc)
+- **الذكاء الاصطناعي يختار الفائز من مباراة النصر والحزم**: [Link](https://hihi2.com/2026/02/20/p3659031.html)
+
+
+### yallakora (N/A, Sat, 21 Feb 2026 11:10:00 -0800)
+
+- **ريال أوفيدو يخطف تعادلاً متأخراً من ريال سوسيداد**: [Link](https://m.elbotola.com/article/2026-02-21-15-45-237.html)
+- **الدوري الاسباني: اوفييدو يحرم سوسييداد من فوز في الوقت البدل عن ضائع**: [Link](https://www.elsport.com/news/show/812885/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A7%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D9%8A%D8%AD%D8%B1%D9%85-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF-%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D8%A7%D9%84)
+- **الأسيست الثالث في الليجا.. ماذا قدم هيثم حسن أمام ريال سوسيداد؟ (أرقام)**: [Link](https://www.msn.com/ar-eg/sports/other/%D8%A7%D9%84%D8%A3%D8%B3%D9%8A%D8%B3%D8%AA-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%AF%D9%85-%D9%87%D9%8A%D8%AB%D9%85-%D8%AD%D8%B3%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D8%A3%D8%B1%D9%82%D8%A7%D9%85/ar-AA1WNKg3)
+
+
 ### الهلال ضد الاتحاد (N/A, Sat, 21 Feb 2026 10:40:00 -0800)
 
 - **تشكيل الكلاسيكو يمنح الهلال رقمًا شخصيًا في دوري روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%8A%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B1%D9%82%D9%85%D9%8B%D8%A7-%D8%B4%D8%AE%D8%B5%D9%8A%D9%8B%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/blt7008677e23a081bd)
