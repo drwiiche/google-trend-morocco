@@ -1,3 +1,31 @@
+### real betis vs rayo vallecano (N/A, Sat, 21 Feb 2026 07:40:00 -0800)
+
+- **Where to Watch Real Betis vs. Rayo Vallecano: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/02/20/where-to-watch-real-betis-vs-rayo-vallecano-tv-channel-start-time-and-live-stream-2/)
+- **Football Bet of the Day: Back Betis to bag all three points on Saturday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-back-betis-to-bag-all-three-points-on-saturday/)
+- **Betis Poised for Victory: Secure Three Points This Saturday**: [Link](https://www.filmogaz.com/160298)
+
+
+### تشيلسي ضد بيرنلي (N/A, Sat, 21 Feb 2026 07:40:00 -0800)
+
+- **مساهمات جواو بيدرو هذا الموسم**: [Link](https://hihi2.com/2026/02/21/p3660482.html)
+- **هدافو تشيلسي و بيرنلي في الدوري الانجليزي**: [Link](https://hihi2.com/2026/02/21/p3660053.html)
+- **رقم مميز لـ مارك كوكوريا هذا الموسم**: [Link](https://hihi2.com/2026/02/21/p3660239.html)
+
+
+### البايرن ضد آينتراخت (N/A, Sat, 21 Feb 2026 07:40:00 -0800)
+
+- **موقف نوير من المشاركة ضد فرانكفورت**: [Link](https://hihi2.com/2026/02/20/p3659292.html)
+- **موعد مشاهدة بث مباشر مباراة فرانکفورت وبايرن ميونيخ اليوم في الدوري الألماني عبر القنوات الناقلة**: [Link](https://www.cairo24.com/2375927)
+- **اختبار صعب لبايرن ودورتموند فـي صراعهما على اللقب**: [Link](https://akhbar-alkhaleej.com/news/article/1429686)
+
+
+### lens – monaco (N/A, Sat, 21 Feb 2026 07:30:00 -0800)
+
+- **Lens - Monaco : Diffusion TV et en clair, streaming et compos probables**: [Link](https://www.goal.com/fr/news/lens-monaco-diffusion-tv-et-en-clair-streaming-et-compos-probables/blt191b375ffc646aab)
+- **Monaco : Akliouche absent à Lens, Fati revient : Sports - Orange**: [Link](https://sports.orange.fr/football/ligue-1/monaco/article/monaco-akliouche-absent-a-lens-fati-revient-CNT000002nuWHD.html)
+- **Leader, Bollaert-Delelis, reconstruction… Tout savoir sur le RC Lens**: [Link](https://onefootball.com/pt-br/noticias/leader-bollaert-delelis-reconstruction-tout-savoir-sur-le-rc-lens-42443884)
+
+
 ### union berlin – leverkusen (N/A, Sat, 21 Feb 2026 07:00:00 -0800)
 
 - **Kurzpässe vor #FCUB04: Bei Standard-Spezialisten Ungeschlagen-Serie fortsetzen**: [Link](https://www.bayer04.de/pt-br/news/bundesliga/notas-rapidas-antes-de-fcub04-manter-a-invencibilidade-diante-dos-especialistas-em-bola-parada)
