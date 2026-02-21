@@ -1,3 +1,10 @@
+### مسلسل علي كلاي (N/A, Fri, 20 Feb 2026 17:20:00 -0800)
+
+- **أحمد العوضي يواجه انتقادات استخدامه دوبلير... ومصمّم معاركه يوضح الحقيقة | مجلة لها**: [Link](https://www.lahamag.com/article/234674-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85%D9%87-%D8%AF%D9%88%D8%A8%D9%84%D9%8A%D8%B1-%D9%88%D9%85%D8%B5%D9%85%D9%85-%D9%85%D8%B9%D8%A7%D8%B1%D9%83%D9%87-%D9%8A%D9%88%D8%B6%D8%AD-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9)
+- **مسلسل علي كلاي الحلقة 3..العوضي ينقذ أسرة روح**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B9%D9%84%D9%8A-%D9%83%D9%84%D8%A7%D9%8A-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-3%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%8A%D9%86%D9%82%D8%B0-%D8%A3%D8%B3%D8%B1%D8%A9-%D8%B1%D9%88%D8%AD)
+- **مواعيد عرض مسلسل علي كلاي لـ أحمد العوضي في رمضان 2026 والقنوات الناقلة | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-02-19/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%B9%D8%B1%D8%B6-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B9%D9%84%D9%8A-%D9%83%D9%84%D8%A7%D9%8A-%D9%84%D9%80-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-6321426/%D9%81%D9%86%D9%88%D9%86)
+
+
 ### 2026 winter olympics freestyle skiing (N/A, Fri, 20 Feb 2026 16:30:00 -0800)
 
 - **Indiana's Nick Goepper knocked out of bronze medal on final run of Olympic freestyle halfpipe**: [Link](https://www.ipm.org/news/2026-02-20/indianas-nick-goepper-knocked-out-of-bronze-medal-on-final-run-of-olympic-freestyle-halfpipe)
