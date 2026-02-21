@@ -1,3 +1,10 @@
+### union berlin – leverkusen (N/A, Sat, 21 Feb 2026 07:00:00 -0800)
+
+- **Kurzpässe vor #FCUB04: Bei Standard-Spezialisten Ungeschlagen-Serie fortsetzen**: [Link](https://www.bayer04.de/pt-br/news/bundesliga/notas-rapidas-antes-de-fcub04-manter-a-invencibilidade-diante-dos-especialistas-em-bola-parada)
+- **Halbzeit in der Alten Försterei**: [Link](https://www.bz-berlin.de/ticker/halbzeit-in-der-alten-foersterei-10)
+- **Gelingt dem 1. FC Union gegen Leverkusen der erste Sieg seit Dezember?**: [Link](https://www.rbb24.de/sport/beitrag/2026/02/fussball-bundesliga-union-berlin-bayer-leverkusen-liveticker-audiostream-spielbericht.html)
+
+
 ### betis – rayo (N/A, Sat, 21 Feb 2026 06:40:00 -0800)
 
 - **El Betis recibe al Rayo camino del récord**: [Link](https://mundobetis.com/2026/02/21/el-betis-recibe-al-rayo-camino-del-record/)
