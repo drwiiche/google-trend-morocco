@@ -1,3 +1,10 @@
+### gianluca prestianni (N/A, Fri, 20 Feb 2026 12:40:00 -0800)
+
+- **Mourinho made 'unacceptable, huge mistake' - Kompany**: [Link](https://www.bbc.com/sport/football/articles/crl4jx0jw11o)
+- **Benfica Opens Investigation into Racist Gestures by Fans Against Vinicius**: [Link](https://m.elbotola.com/en/article/2026-02-20-18-32-218.html)
+- **Report: Prestianni Gives Evidence in UEFA Probe Into Alleged Abuse of Vinícius Jr**: [Link](https://www.managingmadrid.com/latest-news/104252/report-prestianni-gives-evidence-in-uefa-probe-into-alleged-abuse-of-vinicius-jr)
+
+
 ### مسلسل علي كلاي (N/A, Fri, 20 Feb 2026 17:20:00 -0800)
 
 - **أحمد العوضي يواجه انتقادات استخدامه دوبلير... ومصمّم معاركه يوضح الحقيقة | مجلة لها**: [Link](https://www.lahamag.com/article/234674-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85%D9%87-%D8%AF%D9%88%D8%A8%D9%84%D9%8A%D8%B1-%D9%88%D9%85%D8%B5%D9%85%D9%85-%D9%85%D8%B9%D8%A7%D8%B1%D9%83%D9%87-%D9%8A%D9%88%D8%B6%D8%AD-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9)
