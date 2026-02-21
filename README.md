@@ -1,3 +1,24 @@
+### osasuna – real madrid (N/A, Sat, 21 Feb 2026 08:40:00 -0800)
+
+- **Osasuna - Real Madrid hoy, en directo: previa de LaLiga EA Sports, última hora en El Sadar**: [Link](https://as.com/futbol/primera/osasuna-real-madrid-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Convocatoria del Real Madrid ante Osasuna**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-ante-osasuna-20-02-2026)
+- **Lisci: "Me han dicho que el ambiente con el Real Madrid siempre es increíble"**: [Link](https://www.marca.com/futbol/osasuna/2026/02/20/lisci-me-han-dicho-ambiente-real-madrid-siempre-increible.html)
+
+
+### أوساسونا ضد الريال (N/A, Sat, 21 Feb 2026 08:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة أوساسونا وريال مدريد في الدوري الإسباني 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltca3de6fdc1e9335e)
+- **لماذا يخشى ريال مدريد الحكم كوينتيرو غونزاليس في مباراة أوساسونا؟**: [Link](https://www.aljazeera.net/sport/2026/2/20/%D8%A8%D9%8A%D8%BA%D8%B1%D9%8A%D8%B1%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7)
+- **ريال مدريد يتلقى ضربة موجعة قبل مباراة أوساسونا في الدوري الإسباني**: [Link](https://www.btolat.com/news/393816)
+
+
+### lecce – inter (N/A, Sat, 21 Feb 2026 08:30:00 -0800)
+
+- **🔴 Lecce-Inter | UFFICIALI: Bonny o Pio? La scelta su Dimarco e Sottil**: [Link](https://onefootball.com/id/berita/lecce-inter-ufficiali-bonny-o-pio-la-scelta-su-dimarco-e-sottil-42445267)
+- **Le formazioni ufficiali di Lecce-Inter**: [Link](https://www.inter.it/it/notizie/formazioni-ufficiali-lecce-inter-serie-a-25-26)
+- **CALCIO CAMPIONATO SERIE A 26ª giornata LECCE vs INTER – Le Formazioni Ufficiali**: [Link](https://www.lecceoggi.com/calcio-campionato-serie-a-26a-giornata-lecce-vs-inter-le-formazioni-ufficiali/)
+
+
 ### العصر (N/A, Sat, 21 Feb 2026 08:00:00 -0800)
 
 - **موعد أذان المغرب والعشاء اليوم السبت 21 فبراير 2026 في مصر**: [Link](https://al-ain.com/article/maghrib-isha-prayer-times)
