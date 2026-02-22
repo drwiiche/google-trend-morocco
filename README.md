@@ -1,3 +1,23 @@
+### rca (N/A, Sun, 22 Feb 2026 14:30:00 -0800)
+
+- **Toate modelele de trotinete electrice Xiaomi de pe piața din România se încadrează în categoria exceptată de la obligația de asigurare RCA**: [Link](https://www.smark.ro/articol/74692/toate-modelele-de-trotinete-electrice-xiaomi-de-pe-piata-din-romania-se)
+- **Prins de polițiști fără permis, RCA și ITP valabil**: [Link](https://obiectivbr.ro/prins-de-politisti-fara-permis-rca-si-itp-valabil/)
+- **Ghinion la ceas de seară: tânăr prins în trafic, fără permis auto, la volanul unui autoturism care nu avea nici ITP sau RCA valabile**: [Link](https://ziarulamprenta.ro/stirile-zilei/ghinion-la-ceas-de-seara-tanar-prins-in-trafic-fara-permis-auto-la-volanul-unui-autoturism-care-nu-avea-nici-itp-sau-rca-valabile/524260/)
+
+
+### raja casablanca (N/A, Sun, 22 Feb 2026 14:20:00 -0800)
+
+- **Raja: la direction maintient sa confiance en Fadlu Davids et dément toute volonté de limogeage**: [Link](https://sport.le360.ma/football/botola/raja-la-direction-maintient-sa-confiance-en-fadlu-davids-et-dement-toute-volonte-de-limogeage_E325AZSZXJEJPF3QCVEG4Z4IDY/)
+- **Le Raja Club Athletic renouvelle sa confiance en Fadlu Davids et dément les rumeurs de licenciement**: [Link](https://www.ysscores.com/fr/news/13915887/Le-Raja-Club-Athletic-renouvelle-sa-confiance-en-Fadlu-Davids-et-d%C3%A9ment-les-rumeurs-de-licenciement)
+- **Le Raja Casablanca délocalise ses entraînements à l'Oasis en prévision du match contre l'Ittihad Tanger**: [Link](https://m.elbotola.com/fr/article/2026-02-20-19-06-29.html)
+
+
+### ستراسبورغ ضد أولمبيك ليون (N/A, Sun, 22 Feb 2026 13:40:00 -0800)
+
+- **3 محطات قاسية صنعت مقاتلا.. القصة الكاملة لموهبة مغربية في فرنسا**: [Link](https://al-ain.com/article/warrior-morocco-talent-story)
+- **طرد بسبب وزنه، ثم عاد ليثبت نفسه.. رحلة الموهبة المغربية سمير المورابيط المذهلة بستراسبورغ**: [Link](https://www.almountakhab.com/node/13222844)
+
+
 ### el mencho (N/A, Sun, 22 Feb 2026 13:00:00 -0800)
 
 - **¿Quién es Rosalinda González Valencia, la esposa de "El Mencho", líder del CJNG?**: [Link](https://www.univision.com/noticias/america-latina/quien-es-rosalinda-gonzalez-valencia-la-esposa-de-el-mencho-lider-del-cjng)
