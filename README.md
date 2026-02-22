@@ -1,3 +1,36 @@
+### marocains (N/A, Sat, 21 Feb 2026 16:30:00 -0800)
+
+- **Intelligence artificielle : le Maroc trace sa “troisième voie” régionale**: [Link](https://www.leconomiste.com/flash-infos/intelligence-artificielle-le-maroc-trace-sa-troisieme-voie-regionale/)
+- **PME industrielles: l’IA peut-elle transformer la compétitivité du tissu productif marocain?**: [Link](https://fr.le360.ma/economie/pme-industrielles-lia-peut-elle-transformer-la-competitivite-du-tissu-productif-marocain_46ZCZDF3JJCWVDF5GJ4UOTLKAQ/)
+- **"AI Impact Summit" à New Delhi: Interview avec Amal El Fallah Seghrouchni, ministre déléguée chargée de la Transition numérique et de la Réforme de l’administration**: [Link](https://www.maroc24.com/fr/116170-ai-impact-summit-a-new-delhi-interview-avec-amal-el-fallah-seghrouchni-ministre-deleguee-chargee-de-la-transition-numerique-et-de-la-reforme-de-ladministration/)
+
+
+### elbotola (N/A, Sat, 21 Feb 2026 16:00:00 -0800)
+
+
+
+
+### الكوكب المراكشي (N/A, Sat, 21 Feb 2026 15:50:00 -0800)
+
+- **البطولة: الوداد يكتسح الدشيرة بخماسية والتعادل يحسم مواجهتي الجيش وتواركة والكوكب أمام الجديدة – اليوم 24**: [Link](https://alyaoum24.com/2011616.html)
+- **التعادل يحسم مباراة الكوكب والدفاع**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%88%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-428059.html)
+- **بسبب التذاكر.. الجماهير الدكالية تقاطع مباراة فريقها أمام الكوكب المراكشي – الرياضة**: [Link](https://anbaetv.ma/1170257)
+
+
+### sonia mabrouk bfmtv (N/A, Sat, 21 Feb 2026 14:50:00 -0800)
+
+- **Sonia Mabrouk : «Pourquoi j’ai choisi de rejoindre BFMTV»**: [Link](https://www.lefigaro.fr/medias/sonia-mabrouk-pourquoi-j-ai-choisi-de-rejoindre-bfmtv-20260220)
+- **Sonia Mabrouk fera sa rentrée sur BFM-TV**: [Link](https://www.lemonde.fr/economie/article/2026/02/20/sonia-mabrouk-fera-sa-rentree-sur-bfm-tv_6667623_3234.html)
+- **« L’accueil a été glacial » : Sonia Mabrouk chez BFMTV, une arrivée annoncée, et déjà chahutée**: [Link](https://www.leparisien.fr/culture-loisirs/tv/laccueil-a-ete-glacial-sonia-mabrouk-chez-bfmtv-une-arrivee-annoncee-et-deja-chahutee-21-02-2026-Y2VILE6RWVAH3C773NGBXDZDVY.php)
+
+
+### olympique dcheira – wydad ac (N/A, Sat, 21 Feb 2026 14:20:00 -0800)
+
+- **Botola Pro: Le Wydad inflige une manita à Dcheira et prend les commandes**: [Link](https://sport.le360.ma/football/botola/botola-pro-le-wydad-inflige-une-manita-a-dcheira-et-prend-les-commandes_GVJ4GWPH2BE67FK4I752OTSHNQ/)
+- **L'Olympique Dcheira prolonge la vente des billets pour le Wydad face à l'affluence**: [Link](https://m.elbotola.com/fr/article/2026-02-20-20-58-875.html)
+- **Hakim Ziyech : sur quelle chaîne et à quelle heure suivre son 1er match avec le Wydad en Botola ?**: [Link](https://www.afrik-foot.com/hakim-ziyech-sur-quelle-chaine-et-a-quelle-heure-suivre-son-1er-match-avec-le-wydad-en-botola)
+
+
 ### wydad ac (N/A, Sat, 21 Feb 2026 15:20:00 -0800)
 
 - **Ziyech to Make First Botola Appearance for Wydad Today**: [Link](https://www.moroccoworldnews.com/2026/02/279703/ziyech-to-make-first-botola-appearance-for-wydad-today/)
