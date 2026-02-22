@@ -1,3 +1,24 @@
+### nottm forest – liverpool (N/A, Sun, 22 Feb 2026 05:10:00 -0800)
+
+- **Liverpool can end year-long Premier League wait vs. Nottingham Forest**: [Link](https://www.thisisanfield.com/2026/02/nottingham-forest-vs-liverpool-stats-preview/)
+- **TRICKY TREES VS REDS: POSSIBLE LINEUPS!**: [Link](https://www.besoccer.com/new/live-nottingham-forest-vs-liverpool-1395939)
+- **Use Boylesports' bonus code to get £40 in free bets for Nott Forest vs Liverpool**: [Link](https://talksport.com/betting/3995608/nott-forest-vs-liverpool-boylesports-free-bets/)
+
+
+### getafe – séville (N/A, Sun, 22 Feb 2026 04:20:00 -0800)
+
+- **Adnan Januzaj de retour dans le groupe de Séville pour Getafe après une absence pour blessure**: [Link](https://m.elbotola.com/fr/article/2026-02-21-18-00-912.html)
+- **Liga : Getafe - FC Seville, quelle chaîne et quelle heure pour voir le match en direct en streaming ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-liga-getafe-fc-seville-quelle-chaine-et-quelle-heure-pour-voir-le-match-en-direct-en-streaming-ij-512946.html)
+- **Séville FC : Sánchez, Januzaj et Azpilicueta de retour à l’entraînement**: [Link](https://africafootunited.com/seville-fc-sanchez-januzaj-et-azpilicueta-de-retour-a-lentrainement/)
+
+
+### trump (N/A, Sun, 22 Feb 2026 03:40:00 -0800)
+
+- **Supreme Court gives Trump — and the rest of the GOP — a gift in disguise**: [Link](https://www.cnn.com/2026/02/21/politics/tariffs-ruling-supreme-court-trump-gop)
+- **Tariff ruling limits Trump's leverage but won't end uncertainty for trade partners**: [Link](https://www.reuters.com/world/us/tariff-ruling-limits-trumps-leverage-wont-end-uncertainty-trade-partners-2026-02-22/)
+- **The supreme court’s tariffs ruling puts Trump on notice with a bloody nose**: [Link](https://www.theguardian.com/us-news/2026/feb/21/trump-tariffs-ruling-supreme-court)
+
+
 ### nafila du jour (N/A, Sat, 21 Feb 2026 22:40:00 -0800)
 
 - **Ramadan 2026 : Voici le « Nafila » de la 4e nuit de ce samedi 21 février 2026**: [Link](https://www.senenews.com/actualites/ramadan-2026-voici-le-nafila-de-la-4e-nuit-de-ce-samedi-21-fevrier-2026_576990.html)
