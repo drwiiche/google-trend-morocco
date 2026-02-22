@@ -1,3 +1,10 @@
+### nafila du jour (N/A, Sat, 21 Feb 2026 22:40:00 -0800)
+
+- **Ramadan 2026 : Voici le « Nafila » de la 4e nuit de ce samedi 21 février 2026**: [Link](https://www.senenews.com/actualites/ramadan-2026-voici-le-nafila-de-la-4e-nuit-de-ce-samedi-21-fevrier-2026_576990.html)
+- **Nafila du jour : six (06) rakas pour «avoir les grâces d’un docteur qui aurait guéri 1 000 malades à ses frais»**: [Link](https://www.pressafrik.com/Nafila-du-jour-six-06-rakas-pour-avoir-les-graces-d-un-docteur-qui-aurait-gueri-1-000-malades-a-ses-frais_a301484.html)
+- **Ramadan 2026 – Nafila de la 4ᵉ Nuit (vidéo)**: [Link](https://senego.com/ramadan-2026-nafila-de-la-4%E1%B5%89-nuit-video_1928494.html)
+
+
 ### olympique dcheira vs wydad ac (N/A, Sat, 21 Feb 2026 16:10:00 -0800)
 
 - **Professional League: Wydad Rout Olympique Dcheira 5-0 to Claim Top Spot**: [Link](https://m.elbotola.com/en/article/2026-02-21-23-57-4.html)
