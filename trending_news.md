@@ -1,3 +1,10 @@
+### olympique dcheira vs wydad ac (N/A, Sat, 21 Feb 2026 16:10:00 -0800)
+
+- **Professional League: Wydad Rout Olympique Dcheira 5-0 to Claim Top Spot**: [Link](https://m.elbotola.com/en/article/2026-02-21-23-57-4.html)
+- **Nabil Khali returns to Wydad squad for Olympique Dcheira clash**: [Link](https://africasoccer.com/nabil-khali-returns-to-wydad-squad-for-olympique-dcheira-clash/)
+- **Olympique Dcheira Releases Tickets for Wydad Match**: [Link](https://www.ysscores.com/en/news/13914099/Olympique-Dcheira-Releases-Tickets-for-Wydad-Match)
+
+
 ### لوس أنجلوس لكرة القدم ضد إنتر ميامي (N/A, Sat, 21 Feb 2026 21:00:00 -0800)
 
 - **ميسي يصل إلى "أمسية 900 هدف"**: [Link](https://www.hespress.com/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D8%A3%D9%85%D8%B3%D9%8A%D8%A9-900-%D9%87%D8%AF%D9%81-1705038.html)
