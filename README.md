@@ -1,3 +1,10 @@
+### فياريال ضد فالنسيا (N/A, Sun, 22 Feb 2026 12:40:00 -0800)
+
+- **تعرّف على تفاصيل مباراة فياريال ضد فالنسيا في الدوري الإسباني بتاريخ 2026/02/22 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A8%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-2026-02-2)
+- **شوط أول بدون أهداف في مباراة ليفانتي وفياريال بالدوري الإسباني**: [Link](https://iq.arabsvoice.net/112929/)
+- **هزيمة مرة لليفانتي أمام فياريال وسط جماهيره.. و"ميكاوتادزي" يقرب شبح الهبوط**: [Link](https://www.maspero.eg/sport/2026/02/18/929726/%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%85%D8%B1%D8%A9-%D9%84%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%B3%D8%B7-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%87--%D9%88%D9%85%D9%8A%D9%83%D8%A7%D9%88%D8%AA%D8%A7%D8%AF%D8%B2%D9%8A-%D9%8A%D9%82%D8%B1%D8%A8-%D8%B4%D8%A8%D8%AD-%D8%A7%D9%84%D9%87%D8%A8%D9%88%D8%B7)
+
+
 ### málaga – albacete (N/A, Sun, 22 Feb 2026 12:10:00 -0800)
 
 - **Partido clave del Albacete Balompié en Málaga**: [Link](https://www.albacetebalompie.es/noticias/el-albacete-balompie-se-reta-a-si-mismo-en-un-gran-escenario)
