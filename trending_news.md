@@ -1,3 +1,17 @@
+### fcb (N/A, Sun, 22 Feb 2026 09:10:00 -0800)
+
+- **Fermin and Olmo to start in a 4-3-3: How Barcelona can line up against Levante**: [Link](https://barcauniversal.com/fermin-and-olmo-to-start-in-a-4-3-3-how-barcelona-can-line-up-against-levante/)
+- **Barcelona vs Levante team news: Confirmed lineups as Barca look to capitalise on shock Real Madrid defeat**: [Link](https://www.101greatgoals.com/football/barcelona-levante-team-news-confirmed-lineups-la-liga/)
+- **WATCH: Marc Bernal scores inside four minutes, Frenkie de Jong doubles Barcelona lead**: [Link](https://sports.yahoo.com/articles/watch-marc-bernal-scores-inside-153000932.html)
+
+
+### nantes – le havre (N/A, Sun, 22 Feb 2026 09:10:00 -0800)
+
+- **Comment regarder FC Nantes - Le Havre ? Date, heure, streaming et comment regarder la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN​**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-fc-nantes-le-havre-date-heure-streaming-et-comment-regarder-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/syismgzr1w7b1xbjbfal2ej8i)
+- **Football - HAC : des cadeaux et des inondations, les échos avant le déplacement à Nantes**: [Link](https://www.paris-normandie.fr/id698543/article/2026-02-21/football-hac-des-cadeaux-et-des-inondations-les-echos-avant-le-deplacement)
+- **Le Havre AC - Un combat pour le maintien (2-0)**: [Link](https://www.fcnantes.com/articles/article2809.php?num=48702)
+
+
 ### ac milan – parme (N/A, Sun, 22 Feb 2026 08:40:00 -0800)
 
 
