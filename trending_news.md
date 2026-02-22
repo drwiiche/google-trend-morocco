@@ -1,3 +1,38 @@
+### barcelone – levante (N/A, Sun, 22 Feb 2026 06:30:00 -0800)
+
+- **Dernière session avant Levante**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4454721/derniere-session-avant-levante)
+- **Barcelone - Getafe : un rebond attendu pour les Catalans avec le retour d'un cadre**: [Link](https://www.linternaute.com/sport/foot/9920838-barcelone-getafe-un-rebond-attendu-pour-les-catalans-avec-le-retour-d-un-cadre/)
+- **Le Barça enchaîne les faux pas : la campagne pour sauver Hansi Flick**: [Link](https://www.vietnam.vn/fr/barca-lien-tuc-vap-nga-chien-dich-giai-cuu-hansi-flick)
+
+
+### برشلونة ضد ليفانتي (N/A, Sun, 22 Feb 2026 06:30:00 -0800)
+
+- **ثلاثي برشلونة يخوض موقعة ليفانتي تحت التهديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AE%D9%88%D8%B6-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D9%8A%D8%AF/blta4ddd8224a9fcdbd)
+- **فليك يترقب انتفاضة برشلونة أمام ليفانتي**: [Link](https://www.hesport.com/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%A7%D9%86-427997.html)
+- **إمكانية عودة بيدري لبرشلونة وتحديث حول حالة غافي**: [Link](https://m.elbotola.com/article/2026-02-21-17-30-508.html)
+
+
+### barcelona vs levante (N/A, Sun, 22 Feb 2026 06:30:00 -0800)
+
+- **Barcelona - Levante hoy, en directo: LaLiga EA Sports en vivo, última hora en el Spotify Camp Nou**: [Link](https://as.com/futbol/primera/barcelona-levante-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Barcelona vs Levante: A qué hora juegan y cómo seguir el partido de LaLiga**: [Link](https://www.365scores.com/es/news/barcelona-vs-levante-a-que-hora-juegan/)
+- **FC Barcelona – Levante UD: Necesidad de puntuar**: [Link](https://onefootball.com/es/noticias/fc-barcelona-levante-ud-necesidad-de-puntuar-42449344)
+
+
+### atalanta – naples (N/A, Sun, 22 Feb 2026 06:20:00 -0800)
+
+- **Preview: Atalanta BC vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atalanta-bc/preview/atalanta-vs-napoli-prediction-team-news-lineups_592420.html)
+- **Conte: ‘Napoli and Atalanta don’t hold back, ask doctors about McTominay’**: [Link](https://onefootball.com/fr/news/conte-napoli-and-atalanta-dont-hold-back-ask-doctors-about-mctominay-42450183)
+- **Palladino has new Atalanta injury problem and wants focus on Napoli**: [Link](https://sports.yahoo.com/articles/palladino-atalanta-injury-problem-wants-135000667.html)
+
+
+### israël (N/A, Sun, 22 Feb 2026 05:40:00 -0800)
+
+- **L’ambassadeur américain à Jérusalem provoque la colère des pays arabes pour ses propos sur le droit d’Israël à occuper des terres sur une large partie du Moyen-Orient**: [Link](https://www.lemonde.fr/international/article/2026/02/21/l-ambassadeur-americain-a-jerusalem-provoque-la-colere-des-pays-arabes-apres-ses-propos-sur-le-droit-d-israel-a-occuper-des-terres-sur-une-large-partie-du-moyen-orient_6667757_3210.html)
+- **"Droit biblique" d'Israël à occuper le Proche-Orient : les propos de l'ambassadeur américain provoquent un tollé**: [Link](https://fr.euronews.com/2026/02/22/droit-biblique-disrael-a-occuper-le-proche-orient-les-propos-de-lambassadeur-americain-pro)
+- **La LIM : les déclarations de Huckabee manquent du minimum de responsabilité politique**: [Link](https://sana.sy/fr/breaking-news/2291364/)
+
+
 ### سكينة بنجلون (N/A, Sun, 22 Feb 2026 05:00:00 -0800)
 
 - **سكينة بنجلون خارج أسوار سجن عكاشة**: [Link](https://www.hespress.com/%D8%B3%D9%83%D9%8A%D9%86%D8%A9-%D8%A8%D9%86%D8%AC%D9%84%D9%88%D9%86-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A3%D8%B3%D9%88%D8%A7%D8%B1-%D8%B3%D8%AC%D9%86-%D8%B9%D9%83%D8%A7%D8%B4%D8%A9-1705514.html)
