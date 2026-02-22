@@ -1,3 +1,24 @@
+### tottenham – arsenal (N/A, Sun, 22 Feb 2026 07:50:00 -0800)
+
+- **What's eating Arsenal? North London derby now a test of Gunners' 'bottle'**: [Link](https://www.bbc.com/sport/football/articles/cjwzqn3e193o)
+- **LIVE: Tottenham Hotspur vs Arsenal – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/2/22/live-tottenham-hotspur-vs-arsenal-premier-league)
+- **Only 13 Spurs players guaranteed available vs Arsenal**: [Link](https://dailycannon.com/2026/02/spurs-players-available-arsenal/)
+
+
+### barca (N/A, Sun, 22 Feb 2026 07:50:00 -0800)
+
+- **Guidi è l’azienda che protegge gli eroi invisibili della tua barca**: [Link](https://www.giornaledellavela.com/2026/02/21/guidi-migliorare-la-barca/)
+- **«Aver rimosso la vela è stato un colpo duro»**: [Link](https://www.laprovinciacv.it/news/cronaca/1335244/aver-rimosso-la-vela-e-stato-un-colpo-duro.html)
+- **Ladispoli, addio alla "Barca": polemiche e nostalgia dopo la rimozione**: [Link](https://www.virgilio.it/italia/ladispoli/notizielocali/ladispoli_addio_alla_barca_polemiche_e_nostalgia_dopo_la_rimozione-76479402.html)
+
+
+### yallakora (N/A, Sun, 22 Feb 2026 07:50:00 -0800)
+
+- **الغضب يجتاح أروقة ريال مدريد.. و"حكم الإعدام" يهدد أربيلوا ضد بنفيكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%BA%D8%B6%D8%A8-%D9%8A%D8%AC%D8%AA%D8%A7%D8%AD-%D8%A7%D9%94%D8%B1%D9%88%D9%82%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D9%88-%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D8%AF%D8%A7%D9%85-%D9%8A%D9%87%D8%AF%D8%AF-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D8%B6%D8%AF-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7/blte07e262e717c7d09)
+- **أربيلوا يعتمد هذا التكتيك لإعادة ريال مدريد إلى المسار الصحيح**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%B9%D8%AA%D9%85%D8%AF-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%AA%D9%83%D8%AA%D9%8A%D9%83-%D9%84%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%B1-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%AD)
+- **المخطط نجح .. أسقطوا ألونسو وانطلقوا مع أربيلوا !**: [Link](https://hihi2.com/2026/02/21/p3659714.html)
+
+
 ### pedri (N/A, Sun, 22 Feb 2026 06:30:00 -0800)
 
 - **Un tridente para soñar**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260221/1004131968/tridente-sonar.html)
