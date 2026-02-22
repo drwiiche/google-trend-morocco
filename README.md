@@ -1,3 +1,10 @@
+### arsenal vs (N/A, Sun, 22 Feb 2026 08:40:00 -0800)
+
+- **Premier League: Kolo Muani finds quick reply as Tottenham level with Arsenal**: [Link](https://www.bbc.com/sport/football/live/c4g79d0dnent)
+- **HT: 1-1 DRAW IN LONDON!**: [Link](https://www.besoccer.com/new/live-tottenham-hotspur-vs-arsenal-1395961)
+- **Pick your all-time COMBINED Spurs and Arsenal line-up**: [Link](https://www.premierleague.com/en/news/4593687/pick-your-all-time-combined-spurs-and-arsenal-line-up/)
+
+
 ### fcb (N/A, Sun, 22 Feb 2026 09:10:00 -0800)
 
 - **Fermin and Olmo to start in a 4-3-3: How Barcelona can line up against Levante**: [Link](https://barcauniversal.com/fermin-and-olmo-to-start-in-a-4-3-3-how-barcelona-can-line-up-against-levante/)
