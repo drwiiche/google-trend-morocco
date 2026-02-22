@@ -1,3 +1,10 @@
+### lafc – inter miami (N/A, Sat, 21 Feb 2026 18:00:00 -0800)
+
+- **LAFC vs Inter Miami LIVE SCORE: Lionel Messi and Co. are behind! LAFC v MIA real-time updates in Major League Soccer**: [Link](https://sportstar.thehindu.com/football/lafc-vs-inter-miami-live-score-los-angeles-fc-vs-mia-messi-goal-mls-major-league-soccer-updates-highlights/article70662332.ece)
+- **Inter Miami MLS 2026 Schedule: Messi Eyes Back-to-Back MLS Cup**: [Link](https://www.chaseyoursport.com/football/inter-miami-mls-2026-full-schedule-and-fixtures/11702)
+- **How to watch today's Los Angeles FC vs Inter Miami CF Major League Soccer game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-us/news/how-to-watch-los-angeles-fc-v-inter-miami-cf-22022026/bltafbf7a38200aaad4)
+
+
 ### marocains (N/A, Sat, 21 Feb 2026 16:30:00 -0800)
 
 - **Intelligence artificielle : le Maroc trace sa “troisième voie” régionale**: [Link](https://www.leconomiste.com/flash-infos/intelligence-artificielle-le-maroc-trace-sa-troisieme-voie-regionale/)
