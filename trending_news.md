@@ -1,3 +1,10 @@
+### mexique (N/A, Sun, 22 Feb 2026 15:00:00 -0800)
+
+- **« El Mencho », baron de la drogue mexicain, a été tué lors d’une opération militaire, annonce l’armée**: [Link](https://www.lemonde.fr/international/article/2026/02/22/el-mencho-baron-de-la-drogue-mexicain-a-ete-tue-lors-d-une-operation-militaire-annonce-un-responsable-de-l-armee-mexicaine_6667841_3210.html)
+- **Troubles au Mexique après la mort du chef d'un des principaux cartels, tué par l'armée**: [Link](https://medias24.com/agence-presse/troubles-au-mexique-apres-la-mort-du-chef-dun-des-principaux-cartels-tue-par-larmee/)
+- **L'armée mexicaine élimine "El Mencho", le baron de la drogue le plus recherché au monde**: [Link](https://fr.euronews.com/2026/02/22/larmee-mexicaine-tue-el-mencho-le-baron-de-la-drogue-le-plus-recherche-au-monde)
+
+
 ### الرجاء (N/A, Sun, 22 Feb 2026 14:50:00 -0800)
 
 - **الرجاء يفتقد ثلاثة لاعبين أمام طنجة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%81%D8%AA%D9%82%D8%AF-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%B7%D9%86%D8%AC%D8%A9-1705375.html)
