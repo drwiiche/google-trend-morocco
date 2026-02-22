@@ -1,3 +1,15 @@
+### ac milan – parme (N/A, Sun, 22 Feb 2026 08:40:00 -0800)
+
+
+
+
+### arsenal (N/A, Sun, 22 Feb 2026 08:10:00 -0800)
+
+- **Team news: Six changes for FA Cup fifth round**: [Link](https://www.arsenal.com/news/team-news-six-changes-fa-cup-fifth-round)
+- **Borbe starts in goal, Smith upfront for Arsenal against Bristol City Women**: [Link](https://arseblog.news/2026/02/borbe-starts-in-goal-smith-upfront-for-arsenal-against-bristol-city-women/)
+- **Smith taken off on stretcher in Arsenal FA Cup win**: [Link](https://www.bbc.com/sport/football/articles/c98qjnj032eo)
+
+
 ### barca match (N/A, Sun, 22 Feb 2026 08:30:00 -0800)
 
 - **Fermin and Olmo to start in a 4-3-3: How Barcelona can line up against Levante**: [Link](https://barcauniversal.com/fermin-and-olmo-to-start-in-a-4-3-3-how-barcelona-can-line-up-against-levante/)
