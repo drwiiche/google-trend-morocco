@@ -1,3 +1,31 @@
+### barca match (N/A, Sun, 22 Feb 2026 08:30:00 -0800)
+
+- **Fermin and Olmo to start in a 4-3-3: How Barcelona can line up against Levante**: [Link](https://barcauniversal.com/fermin-and-olmo-to-start-in-a-4-3-3-how-barcelona-can-line-up-against-levante/)
+- **Barcelona vs Levante team news: Confirmed lineups as Barca look to capitalise on shock Real Madrid defeat**: [Link](https://www.101greatgoals.com/football/barcelona-levante-team-news-confirmed-lineups-la-liga/)
+- **Barcelona vs Levante LIVE: LaLiga Matchday 25 score and updates**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/barcelona-vs-levante-live-goals-and-score-updates-from-laliga-2026-02-22)
+
+
+### angers – lille (N/A, Sun, 22 Feb 2026 08:20:00 -0800)
+
+- **Angers - Lille. Vers un report du match de Ligue 1 à cause des inondations ?**: [Link](https://www.ouest-france.fr/sport/football/angers-sco/football-vers-un-report-du-match-match-de-ligue-1-angers-sco-lille-a-cause-des-inondations-9b0cbbfe-0e33-11f1-8e97-58d10b9feb4d)
+- **Amine Sbaï retrouve une place de titulaire, le onze pour le choc entre Angers SCO et Lille dévoilé**: [Link](https://my-angers.info/02/22/amine-sbai-retrouve-une-place-de-titulaire-le-onze-pour-le-choc-entre-angers-sco-et-lille-devoile/178955)
+- **Angers SCO – LOSC : Les compositions officielles, Giroud titulaire**: [Link](https://lepetitlillois.com/2026/02/22/angers-sco-losc-les-compositions-officielles-giroud-titulaire/)
+
+
+### العصر (N/A, Sun, 22 Feb 2026 08:20:00 -0800)
+
+- **مواقيت الصلاة في مصر اليوم الأحد 22 فبراير / شباط 2026**: [Link](https://www.almaghribtoday.net/2494/075723-%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-22-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D8%B4%D8%A8%D8%A7%D8%B7-2026)
+- **موعد أذان وصلاة العصر اليوم الأحد الموافق 4 رمضان 2026**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/2/22/2946772/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D9%88%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%81%D9%82-4-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026)
+- **الدقة الفلكية في 2026.. كل ما تريد معرفته عن توقيت الشروق والظل اليوم**: [Link](https://www.matnnews.com/270246)
+
+
+### توتنهام ضد آرسنال (N/A, Sun, 22 Feb 2026 08:10:00 -0800)
+
+- **أرتيتا يهدد لاعبي آرسنال: من لا يحتمل ضجيج المنافسة يمكنه الرحيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D9%87%D8%AF%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D9%86-%D9%84%D8%A7-%D9%8A%D8%AD%D8%AA%D9%85%D9%84-%D8%B6%D8%AC%D9%8A%D8%AC-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D9%8A%D9%85%D9%83%D9%86%D9%87-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84/blt119fc207ca737449)
+- **أكثر اللاعبين حصولا على البطاقات في ديربي أرسنال و توتنهام**: [Link](https://hihi2.com/2026/02/22/p3662130.html)
+- **إحصائيات ساكا في الدوري الانجليزي**: [Link](https://hihi2.com/2026/02/22/p3661941.html)
+
+
 ### tottenham – arsenal (N/A, Sun, 22 Feb 2026 07:50:00 -0800)
 
 - **What's eating Arsenal? North London derby now a test of Gunners' 'bottle'**: [Link](https://www.bbc.com/sport/football/articles/cjwzqn3e193o)
