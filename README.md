@@ -1,3 +1,17 @@
+### heidenheim – stuttgart (N/A, Sun, 22 Feb 2026 10:50:00 -0800)
+
+- **So könnte der VfB auf dem Schlossberg auflaufen**: [Link](https://www.stuttgarter-zeitung.de/inhalt.vfb-stuttgart-so-koennte-der-vfb-auf-dem-schlossberg-auflaufen.8cbbc28c-05fd-49f1-bf3f-3dd161efbe46.html)
+- **Rund um das Spiel in Heidenheim: Im Gespräch mit Heidenheim-Fan Fladdy**: [Link](https://rundumdenbrustring.de/rund-um-das-spiel-in-heidenheim-im-gespraech-mit-heidenheim-fan-fladdy)
+- **Startelf des VfB Stuttgart: Aufstellung in Heidenheim ohne Karazor und Leweling**: [Link](https://www.stimme.de/sport/vfb-stuttgart/aufstellung-bundesliga-sonntag-fc-heidenheim-rotation-position-wechsel-startelf-jamie-leweling-atakan-karazor-bank-art-5143888)
+
+
+### mike huckabee (N/A, Sun, 22 Feb 2026 09:50:00 -0800)
+
+- **US ambassador's Israel comments condemned by Arab and Muslim nations**: [Link](https://www.bbc.com/news/articles/cn5gkkgdzkyo)
+- **Egypt, 13 Arab and Muslim nations condemn US ambassador backing of Israeli expansion**: [Link](https://sis.gov.eg/en/media-center/news/egypt-13-arab-and-muslim-nations-condemn-us-ambassador-backing-of-israeli-expansion/)
+- **Tachles with Aviel – Israel falsely accused of imperialistic ambitions**: [Link](https://www.israeltoday.co.il/read/tachles-with-aviel-israel-falsely-accused-of-imperialistic-ambitions/)
+
+
 ### laliga (N/A, Sun, 22 Feb 2026 09:50:00 -0800)
 
 - **Barcelona Displaces Real Madrid, Reclaims La Liga Lead**: [Link](https://m.elbotola.com/en/article/2026-02-22-16-58-83.html)
