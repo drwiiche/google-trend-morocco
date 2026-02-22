@@ -1,3 +1,17 @@
+### الرجاء (N/A, Sun, 22 Feb 2026 14:50:00 -0800)
+
+- **الرجاء يفتقد ثلاثة لاعبين أمام طنجة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%81%D8%AA%D9%82%D8%AF-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%B7%D9%86%D8%AC%D8%A9-1705375.html)
+- **بداية توافد الجماهير.. الأجواء في "دونور" قبل أقل من ساعتين على بداية مباراة الرجاء واتحاد طنجة 🏟️**: [Link](https://m.elbotola.com/video/details/699b6a9cc19d686bd1490dee/)
+- **فادلو يقرر استبعاد أحد اللاعبين عن قائمة الرجاء الخاصة بلقاء اتحاد طنجة**: [Link](https://sport.lesiteinfo.com/elbotola/488679.html)
+
+
+### ترتيب البطولة المغربية (N/A, Sun, 22 Feb 2026 14:50:00 -0800)
+
+- **لاعبو الوداد: الروح القتالية سر الخماسية**: [Link](https://www.hespress.com/%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%88%D8%AD-%D8%A7%D9%84%D9%82%D8%AA%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%AE%D9%85-1705491.html)
+- **3 أهداف وذكريات لا تُنسى.. زياش يعود لإشعال الملاعب المغربية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/3-%D8%A7%D9%94%D9%87%D8%AF%D8%A7%D9%81-%D9%88%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D9%84%D8%A7-%D8%AA%D9%8F%D9%86%D8%B3%D9%89--%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%A7%D9%95%D8%B4%D8%B9%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9/blt20f3414fa8184299)
+- **أولمبيك الدشيرة يهزم السوالم بثلاثية ويصعد إلى القسم الاحترافي الأول**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D9%85%D8%B7%D8%B1-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A7%D9%84%D8%AF%D8%B4%D9%8A%D8%B1%D8%A9-%D9%88%D9%8A%D8%B3%D8%AA/)
+
+
 ### rca (N/A, Sun, 22 Feb 2026 14:30:00 -0800)
 
 - **Toate modelele de trotinete electrice Xiaomi de pe piața din România se încadrează în categoria exceptată de la obligația de asigurare RCA**: [Link](https://www.smark.ro/articol/74692/toate-modelele-de-trotinete-electrice-xiaomi-de-pe-piata-din-romania-se)
