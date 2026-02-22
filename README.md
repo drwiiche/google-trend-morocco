@@ -1,3 +1,31 @@
+### crystal palace – wolves (N/A, Sun, 22 Feb 2026 05:40:00 -0800)
+
+- **Crystal Palace vs. Wolves: How Jorgen Strand Larsen can replicate Henrikh Mkhitaryan Premier League record against former club**: [Link](https://www.sportsmole.co.uk/football/crystal-palace/news/how-strand-larsen-can-replicate-mkhitaryan-premier-league-feat-in-palace-vs-wolves_592434.html)
+- **Crystal Palace vs Wolverhampton Wanderers: Key stats and talking points**: [Link](https://www.bbc.co.uk/sport/football/articles/cx2gjjpprn3o)
+- **Edwards thrilled with Wolves' improvement ahead of facing Palace**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/edwards-thrilled-with-wolves-improvement-ahead-of-facing-palace-2026-02-21)
+
+
+### نوتينغهام فورست ضد ليفربول (N/A, Sun, 22 Feb 2026 05:40:00 -0800)
+
+- **ليفربول يواجه كابوس نوتنجهام.. انتصار يتيم وسجل سلبي نادر لصلاح**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%83%D8%A7%D8%A8%D9%88%D8%B3-%D9%86%D9%88%D8%AA%D9%86%D8%AC%D9%87%D8%A7%D9%85--%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%8A%D8%AA%D9%8A%D9%85-%D9%88%D8%B3%D8%AC%D9%84-%D8%B3%D9%84%D8%A8%D9%8A-%D9%86%D8%A7%D8%AF%D8%B1-%D9%84%D8%B5%D9%84%D8%A7%D8%AD/blt81d3385ef87087ae)
+- **كيفية مشاهدة مباراة ليفربول ونوتنجهام بث مباشر في الدوري الإنجليزي | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-02-22/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%86%D9%88%D8%AA%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-6325391/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A)
+- **محمد صلاح أساسيا فى تشكيل مباراة نوتينجهام فورست ضد ليفربول بالدوري الإنجليزي**: [Link](https://www.youm7.com/story/2026/2/22/%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A7-%D9%81%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%88%D8%AA%D9%8A%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%81%D9%88%D8%B1%D8%B3%D8%AA-%D8%B6%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/7314216)
+
+
+### auxerre – rennes (N/A, Sun, 22 Feb 2026 05:30:00 -0800)
+
+- **Yassir Zabiri (Stade Rennais)**: [Link](https://sport.le360.ma/internal-gallery/yassir-zabiri-stade-rennais_YKFEHTKSUVGV7L5UBDX5B42X7A/)
+- **« On peut changer une équipe qui gagne » : malgré le succès face au PSG, Franck Haise brouille les pistes sur la composition rennaise**: [Link](https://www.lequipe.fr/Football/Actualites/-on-peut-changer-une-equipe-qui-gagne-malgre-le-succes-face-au-psg-franck-haise-brouille-les-pistes-sur-la-composition-rennaise/1654066)
+- **Auxerre-Rennes en direct**: [Link](https://www.football.fr/ligue-1/auxerre-rennes-en-direct-2-801291.html)
+
+
+### sunderland – fulham (N/A, Sun, 22 Feb 2026 05:30:00 -0800)
+
+- **Starting XI: Is This The Sunderland Team That Will Take On Fulham Today?**: [Link](https://rokerreport.sbnation.com/match-previews/127639/starting-xi-is-this-the-sunderland-team-that-will-take-on-fulham-today)
+- **Régis Le Bris aims to attack remaining Premier League games**: [Link](https://www.safc.com/news/2026/february/20/r-gis-le-bris-aims-to-attack-remaining-premier-league-games/)
+- **Sunderland home form compared to Premier League rivals following Liverpool defeat**: [Link](https://www.sunderlandecho.com/sport/football/sunderland-afc/sunderland-premier-league-home-form-compared-5603799)
+
+
 ### nottm forest – liverpool (N/A, Sun, 22 Feb 2026 05:10:00 -0800)
 
 - **Liverpool can end year-long Premier League wait vs. Nottingham Forest**: [Link](https://www.thisisanfield.com/2026/02/nottingham-forest-vs-liverpool-stats-preview/)
