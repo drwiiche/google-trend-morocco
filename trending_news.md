@@ -1,3 +1,10 @@
+### لوس أنجلوس لكرة القدم ضد إنتر ميامي (N/A, Sat, 21 Feb 2026 21:00:00 -0800)
+
+- **ميسي يصل إلى "أمسية 900 هدف"**: [Link](https://www.hespress.com/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D8%A3%D9%85%D8%B3%D9%8A%D8%A9-900-%D9%87%D8%AF%D9%81-1705038.html)
+- **ما القنوات الناقلة لمباراة إنتر ميامي ولوس أنجلوس في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%84%D9%88%D8%B3-%D8%A7%D9%94%D9%86%D8%AC%D9%84%D9%88%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt0eae0d0588edd0b9)
+- **جاذبية ميسي وكأس العالم 2026 رهان الدوري الأمريكي بالموسم الجديد**: [Link](https://www.aljazeera.net/sport/2026/2/20/%D9%85%D9%8A%D8%B3%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%B3%D9%88%D9%86)
+
+
 ### lafc – inter miami (N/A, Sat, 21 Feb 2026 18:00:00 -0800)
 
 - **LAFC vs Inter Miami LIVE SCORE: Lionel Messi and Co. are behind! LAFC v MIA real-time updates in Major League Soccer**: [Link](https://sportstar.thehindu.com/football/lafc-vs-inter-miami-live-score-los-angeles-fc-vs-mia-messi-goal-mls-major-league-soccer-updates-highlights/article70662332.ece)
