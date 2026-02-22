@@ -1,3 +1,10 @@
+### el mencho (N/A, Sun, 22 Feb 2026 13:00:00 -0800)
+
+- **¿Quién es Rosalinda González Valencia, la esposa de "El Mencho", líder del CJNG?**: [Link](https://www.univision.com/noticias/america-latina/quien-es-rosalinda-gonzalez-valencia-la-esposa-de-el-mencho-lider-del-cjng)
+- **¿Sicarios en el Aeropuerto de Guadalajara? La versión de las autoridades l Videos**: [Link](https://www.infobae.com/mexico/2026/02/22/sicarios-en-el-aeropuerto-de-guadalajara-la-version-de-las-autoridades-l-videos/)
+- **Despliegan operativo preventivo en Coahuila; militares y elementos estatales vigilan por aire y tierra**: [Link](https://www.proceso.com.mx/nacional/estados/2026/2/22/despliegan-operativo-preventivo-en-coahuila-militares-elementos-estatales-vigilan-por-aire-tierra-368938.html)
+
+
 ### فياريال ضد فالنسيا (N/A, Sun, 22 Feb 2026 12:40:00 -0800)
 
 - **تعرّف على تفاصيل مباراة فياريال ضد فالنسيا في الدوري الإسباني بتاريخ 2026/02/22 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A8%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-2026-02-2)
