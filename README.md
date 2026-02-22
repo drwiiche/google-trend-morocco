@@ -1,3 +1,10 @@
+### pedri (N/A, Sun, 22 Feb 2026 06:30:00 -0800)
+
+- **Un tridente para soñar**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260221/1004131968/tridente-sonar.html)
+- **Pedri, al rescate del Barcelona**: [Link](https://www.pressreader.com/usa/la-opinion-2078/20260222/281904484647163)
+- **Charla de Flick para convencer al equipo: "Hay que hacer mejor las cosas"**: [Link](https://www.cope.es/programas/tiempo-de-juego/noticias/charla-flick-convencer-equipo-hay-mejor-cosas-20260221_3312552.html)
+
+
 ### barcelone – levante (N/A, Sun, 22 Feb 2026 06:30:00 -0800)
 
 - **Dernière session avant Levante**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4454721/derniere-session-avant-levante)
