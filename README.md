@@ -1,3 +1,17 @@
+### puerto vallarta (N/A, Sun, 22 Feb 2026 22:50:00 -0800)
+
+- **El Mencho, el capo discreto que revolucionó el mapa criminal de México**: [Link](https://elpais.com/mexico/2026-02-22/el-mencho-el-capo-discreto-que-revoluciono-el-mapa-criminal-de-mexico.html)
+- **El narco desata su furia en México tras la muerte de 'El Mencho', el gran líder del Cártel Jalisco Nueva Generación**: [Link](https://www.elmundo.es/internacional/2026/02/22/699b4725e85ecee81b8b4582.html)
+- **EE.UU. sorprende y vence a Canadá en la final del hockey olímpico en Milán-Cortina**: [Link](https://www.telemundo.com/noticias/noticias-telemundo-en-la-noche/internacional/video/eeuu-sorprende-y-vence-canada-en-la-final-del-hockey-olimpico-en-milan-cortina-tmvo13130668)
+
+
+### iphone 18 pro max (N/A, Sun, 22 Feb 2026 21:40:00 -0800)
+
+- **Apple is Testing These iPhone 18 Pro and Foldable iPhone Colors**: [Link](https://www.macrumors.com/2026/02/22/iphone-18-pro-foldable-iphone-rumored-colors/)
+- **iPhone 18 Pro could get another selfie camera upgrade in 2026**: [Link](https://www.gizmochina.com/2026/02/23/iphone-18-pro-could-get-another-selfie-camera-upgrade-in-2026/)
+- **iPhone 18 Pro may come in deep red after success of its orange predecessor**: [Link](https://appleinsider.com/articles/26/02/22/iphone-18-pro-may-come-in-deep-red-after-success-of-its-orange-predecessor)
+
+
 ### séisme (N/A, Sun, 22 Feb 2026 22:20:00 -0800)
 
 - **Un séisme de magnitude 7,1 frappe en pleine mer, à moins de 100 km des côtes**: [Link](https://www.midilibre.fr/2026/02/22/un-seisme-de-magnitude-71-frappe-en-pleine-mer-a-moins-de-100-km-des-cotes-13239680.php)
