@@ -1,3 +1,10 @@
+### baftas (N/A, Mon, 23 Feb 2026 04:20:00 -0800)
+
+- **BAFTAs Host Alan Cumming Asks for ‘Understanding’ as Tourette Syndrome Campaigner John Davidson Shouts ‘Strong Language’ and Slurs at Winners and Presenters**: [Link](https://variety.com/2026/film/awards/alan-cumming-john-davidson-i-swear-outbursts-1236669691/)
+- **BAFTA Film Awards Host Alan Cumming Apologizes For “Strong Language” From Nominee With Tourette’s Syndrome**: [Link](https://deadline.com/2026/02/alan-cumming-bafta-film-awards-i-swear-tourettes-1236732568/)
+- **British acting awards interrupted by racist slur from man with Tourette Syndrome**: [Link](https://www.cnn.com/2026/02/22/entertainment/baftas-2026-tourettes-racist-slur)
+
+
 ### claude (N/A, Mon, 23 Feb 2026 02:20:00 -0800)
 
 - **Making frontier cybersecurity capabilities available to defenders**: [Link](https://www.anthropic.com/news/claude-code-security)
