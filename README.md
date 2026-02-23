@@ -1,3 +1,45 @@
+### deportivo alavés – girona (N/A, Mon, 23 Feb 2026 11:20:00 -0800)
+
+- **Alavés-Girona: horario, dónde ver hoy por TV y alineaciones probables del partido de LaLiga EA Sports**: [Link](https://www.msn.com/es-es/deportes/futbol/alav%C3%A9s-girona-horario-d%C3%B3nde-ver-hoy-por-tv-y-alineaciones-probables-del-partido-de-laliga-ea-sports/ar-AA1WNomr)
+- **Nuevo duelo de urgencias en ‘Mendi’**: [Link](https://www.noticiasdealava.eus/alaves/2026/02/23/nuevo-duelo-urgencias-mendi-10735014.html)
+- **Alineaciones Alavés - Girona: Alineación posible de Alavés y Girona en el partido de la jornada 25 de LaLiga**: [Link](https://www.estadiodeportivo.com/futbol/primera-division/alineaciones-alaves-girona-alineacion-posible-alaves-girona-partido-jornada-laliga-20260223-530532.html)
+
+
+### everton – manchester united (N/A, Mon, 23 Feb 2026 11:20:00 -0800)
+
+- **Team news for Everton trip**: [Link](https://www.manutd.com/en/news/detail/team-news-for-everton-v-man-utd-on-23-february-2026)
+- **TOFFEES VS RED DEVILS: POSSIBLE LINEUPS!**: [Link](https://www.besoccer.com/new/live-everton-vs-manchester-united-1396153)
+- **'Great experiences': Michael Carrick explains 'different reasons' why Man Utd must be in Champions League next season**: [Link](https://www.unitedinfocus.com/news/great-experiences-michael-carrick-explains-different-reasons-why-man-utd-must-be-in-champions-league-next-season/)
+
+
+### بنات لالة منانة (N/A, Mon, 23 Feb 2026 11:20:00 -0800)
+
+- **بنات لالة منانة 3: الحلقة الرابعة**: [Link](https://2m.ma/ar/news/%D8%A8%D9%86%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D9%85%D9%86%D8%A7%D9%86%D8%A9-3-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-20260222)
+- **الجرأة وحدودها في الجزء الثالث من « بنات للا منانة ».. بين إشادة بالطرح وانتقادات لحدة المعالجة – اليوم 24**: [Link](https://alyaoum24.com/2011840.html)
+- **هل هي “رسالة اباحية”؟.. مشهد في مسلسل رمضاني على القناة المغربية الرسمية يثير موجة غضب ومطالب بتفعيل الرقابة**: [Link](https://www.raialyoum.com/%D9%87%D9%84-%D9%87%D9%8A-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%A7%D8%A8%D8%A7%D8%AD%D9%8A%D8%A9%D8%9F-%D9%85%D8%B4%D9%87%D8%AF-%D9%81%D9%8A-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B1%D9%85%D8%B6%D8%A7/)
+
+
+### snrt (N/A, Mon, 23 Feb 2026 10:50:00 -0800)
+
+- **Botola: la RS Berkane assure l’essentiel face au FUS**: [Link](https://sport.le360.ma/football/botola-la-rs-berkane-assure-lessentiel-face-au-fus_IIUCDDN5VFHDFFH5Q32WKETQBA/)
+- **Zniti prêt pour ses débuts avec la RS Berkane en Botola Pro**: [Link](https://m.elbotola.com/fr/article/2026-02-21-17-18-673.html)
+- **Botola Pro : Paul Valère Bassène enchaîne et porte la RS Berkane**: [Link](https://senegal7.com/botola-pro-paul-valere-bassene-enchaine-et-porte-la-rs-berkane/)
+
+
+### fenerbahçe – kasımpaşa (N/A, Mon, 23 Feb 2026 10:00:00 -0800)
+
+- **Kadıköy'de kazanan yok: Fenerbahçe 1-1 Kasımpaşa**: [Link](https://www.cumhuriyet.com.tr/spor/kadikoy-de-kazanan-yok-fenerbahce-1-1-kasimpasa-2481409)
+- **Fenerbahçe - Kasımpaşa maçında kırmızı kart çıktı! İşte o pozisyon…**: [Link](https://www.fotomac.com.tr/fenerbahce/2026/02/23/kadikoyde-kirmizi-kart-cikti-iste-o-pozisyon)
+- **90+11'de büyük şok! (Maç özeti | Fenerbahçe 1-1 Kasımpaşa)**: [Link](https://www.fanatik.com.tr/video/video-90-11de-buyuk-sok-mac-ozeti-fenerbahce-1-1-kasimpasa-2613542)
+
+
+### عرس الجن (N/A, Mon, 23 Feb 2026 09:20:00 -0800)
+
+- **رعب يحبس الأنفاس في "عرس الجن".. إلهام علي تنال الإشادات عن أدائها**: [Link](https://www.aljazeera.net/arts/2026/2/20/%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B9%D9%84%D9%8A-%D8%AA%D8%AD%D8%A8%D8%B3-%D8%A7%D9%84%D8%A3%D9%86%D9%81%D8%A7%D8%B3-%D8%A8%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A)
+- **عرس الجن من مسلسل وحوش الحلقة 1 و 2 : رعب من أول لحظة**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D8%B9%D8%B1%D8%B3-%D8%A7%D9%84%D8%AC%D9%86-%D9%85%D9%86-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%88%D8%AD%D9%88%D8%B4-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-1-%D9%88-2-%D8%B1%D8%B9%D8%A8-%D9%85%D9%86-%D8%A3%D9%88%D9%84-%D9%84%D8%AD%D8%B8%D8%A9)
+- **إطلالات جمالية ناعمة ليوم التأسيس من وحي بطلة مسلسل "شارع الأعشى" إلهام علي**: [Link](https://www.hiamag.com/%D8%AC%D9%85%D8%A7%D9%84/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D9%88%D8%AC%D9%85%D8%A7%D9%84/1794498-%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A7%D8%AA-%D8%AC%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%86%D8%A7%D8%B9%D9%85%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D8%B3%D9%8A%D8%B3-%D9%85%D9%86-%D9%88%D8%AD%D9%8A-%D8%A8%D8%B7%D9%84%D8%A9-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B4%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D8%A3%D8%B9%D8%B4%D9%89-%D8%A5%D9%84%D9%87%D8%A7%D9%85-%D8%B9%D9%84%D9%8A)
+
+
 ### classroom (N/A, Mon, 23 Feb 2026 05:40:00 -0800)
 
 - **Court Clears Way for Louisiana Law Requiring Ten Commandments in Classrooms**: [Link](https://www.nytimes.com/2026/02/20/us/louisiana-classrooms-ten-commandments.html)
