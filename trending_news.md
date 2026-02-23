@@ -1,3 +1,17 @@
+### claude (N/A, Mon, 23 Feb 2026 02:20:00 -0800)
+
+- **Making frontier cybersecurity capabilities available to defenders**: [Link](https://www.anthropic.com/news/claude-code-security)
+- **Claude Code Security didn’t kill cybersecurity. It exposed what’s coming next.**: [Link](https://www.calcalistech.com/ctechnews/article/h1vc00n00dwe)
+- **Cyber Stocks Slide as Anthropic Unveils ‘Claude Code Security’**: [Link](https://www.bloomberg.com/news/articles/2026-02-20/cyber-stocks-slide-as-anthropic-unveils-claude-code-security)
+
+
+### email (N/A, Mon, 23 Feb 2026 01:20:00 -0800)
+
+- **ISABEL OAKESHOTT: A stark warning to the Palace that Andrew had been playing with fire**: [Link](https://www.dailymail.co.uk/news/article-15581007/stark-warning-Palace-Andrew-playing-fire-Epstein-trade.html)
+- **GB News host Emily Carver discusses new revelations about the King when it comes to his brother, Andrew Mountbatten-Windsor and his ties to Jeffrey Epstein.**: [Link](https://www.facebook.com/SkyNewsAustralia/posts/gb-news-host-emily-carver-discusses-new-revelations-about-the-king-when-it-comes/1358177373006524/)
+- **Ignored Warnings, Eroded Trust: The Monarch’s Self-Inflicted Crisis**: [Link](https://eutoday.net/the-monarchs-self-inflicted-crisis/)
+
+
 ### yahoo (N/A, Mon, 23 Feb 2026 02:30:00 -0800)
 
 - **Rep. Randy Fine censure threat could spark tit-for-tat cycle**: [Link](https://thehill.com/homenews/house/5749468-randy-fine-censure-house/)
