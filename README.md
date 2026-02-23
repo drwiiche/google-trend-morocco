@@ -1,3 +1,10 @@
+### الجريدة الرسمية (N/A, Mon, 23 Feb 2026 07:40:00 -0800)
+
+- **مع الاحتفاظ بالمصرية.. الداخلية توافق على تجنس 21 مواطنا بجنسيات أجنبية**: [Link](https://www.egyptke.com/197508)
+- **بعد منحها لـ41 مواطنًا.. شروط التجنس بجنسية أجنبية مع الاحتفاظ بالمصرية**: [Link](https://www.elbalad.news/6880038)
+- **قرار جديد من وزير الداخلية بشأن تغيير جنسية 41 مواطنًا (الأسماء)**: [Link](https://www.almasryalyoum.com/news/details/4205746)
+
+
 ### othmane maamma (N/A, Mon, 23 Feb 2026 11:50:00 -0800)
 
 - **Watford: Othmane Maamma contraint de sortir sur blessure face à Derby County**: [Link](https://sport.le360.ma/football/autres-championnats/championship-othmane-maamma-contraint-de-sortir-sur-blessure-face-a-derby_2OFWDOLWKFD3JGJSDKBQGD74UY/)
