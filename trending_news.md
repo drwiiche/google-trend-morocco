@@ -1,3 +1,17 @@
+### endrick (N/A, Mon, 23 Feb 2026 05:30:00 -0800)
+
+- **Endrick: “I want to win the Champions League with Mbappé and Vinicius”**: [Link](https://www.managingmadrid.com/104319/endrick-lyon-real-madrid-2026-quotes)
+- **Real Madrid youngster reveals two teammates who advised him to join Lyon – “I thank them”**: [Link](https://madriduniversal.com/real-madrid-youngster-reveals-two-teammates-who-advised-him-to-join-lyon-i-thank-them/)
+- **Endrick reveals Kylian Mbappe advice and admits he's unsure about his new nickname at Lyon**: [Link](https://www.goal.com/en/lists/endrick-reveals-kylian-mbappe-advice-real-madrid-lyon/blt6a6f3a0ab0aa2230)
+
+
+### rondale moore (N/A, Mon, 23 Feb 2026 00:10:00 -0800)
+
+- **NFL wide receiver, Louisville area stand out Rondale Moore dies at 25**: [Link](https://www.wlky.com/article/nfl-wide-receiver-local-stand-out-rondale-moore-death-indiana/70448738)
+- **NFL receiver and former Trinity High School star Rondale Moore dead at 25**: [Link](https://www.whas11.com/article/sports/football/rondale-moore-dead-at-25-nfl-receiver/417-ce00893c-7823-4deb-9da7-1d6e63df2a48)
+- **Giants’ Russell Wilson Preaches Kindness & Unity in Light of Rondale Moore Tragedy**: [Link](https://sports.yahoo.com/articles/giants-russell-wilson-preaches-kindness-212246465.html)
+
+
 ### claude ai (N/A, Mon, 23 Feb 2026 02:00:00 -0800)
 
 - **Making frontier cybersecurity capabilities available to defenders**: [Link](https://www.anthropic.com/news/claude-code-security)
