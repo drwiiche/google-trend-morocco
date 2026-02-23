@@ -1,3 +1,10 @@
+### claude ai (N/A, Mon, 23 Feb 2026 02:00:00 -0800)
+
+- **Making frontier cybersecurity capabilities available to defenders**: [Link](https://www.anthropic.com/news/claude-code-security)
+- **Claude Code Security didn’t kill cybersecurity. It exposed what’s coming next.**: [Link](https://www.calcalistech.com/ctechnews/article/h1vc00n00dwe)
+- **Anthropic’s New Security Tool Sends Cyber Stocks Reeling**: [Link](https://www.theinformation.com/briefings/anthropics-new-security-tool-sends-cyber-stocks-reeling)
+
+
 ### baftas (N/A, Mon, 23 Feb 2026 04:20:00 -0800)
 
 - **BAFTAs Host Alan Cumming Asks for ‘Understanding’ as Tourette Syndrome Campaigner John Davidson Shouts ‘Strong Language’ and Slurs at Winners and Presenters**: [Link](https://variety.com/2026/film/awards/alan-cumming-john-davidson-i-swear-outbursts-1236669691/)
