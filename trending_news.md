@@ -1,3 +1,10 @@
+### classroom (N/A, Mon, 23 Feb 2026 05:40:00 -0800)
+
+- **Court Clears Way for Louisiana Law Requiring Ten Commandments in Classrooms**: [Link](https://www.nytimes.com/2026/02/20/us/louisiana-classrooms-ten-commandments.html)
+- **Appeals court sides with Louisiana on Ten Commandments in schools**: [Link](https://thehill.com/homenews/education/5750744-louisiana-ten-commandments-public-schools/)
+- **Louisiana schools can display Ten Commandments, appeals court rules**: [Link](https://www.theguardian.com/us-news/2026/feb/21/louisiana-ten-commandments-schools-ruling)
+
+
 ### endrick (N/A, Mon, 23 Feb 2026 05:30:00 -0800)
 
 - **Endrick: “I want to win the Champions League with Mbappé and Vinicius”**: [Link](https://www.managingmadrid.com/104319/endrick-lyon-real-madrid-2026-quotes)
