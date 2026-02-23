@@ -1,3 +1,24 @@
+### ترتيب الدوري الانجليزي (N/A, Mon, 23 Feb 2026 14:00:00 -0800)
+
+- **صراع المقاعد الأمامية.. 5 أندية إنكليزية تحلم بدوري الأبطال**: [Link](https://www.al-akhbar.com/news/sports/880079/%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D8%A7%D9%85%D9%8A%D8%A9---5-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D8%AA%D8%AD%D9%84%D9%85-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **ترتيب هدافي الدوري الإنجليزي بعد نهاية الجولة 27**: [Link](https://www.btolat.com/news/394098)
+- **ترتيب البريمييرليغ بعد مباريات الاحد من الجولة 27**: [Link](https://www.elsport.com/news/show/813011/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9)
+
+
+### إيفرتون ضد مان يونايتد (N/A, Mon, 23 Feb 2026 13:00:00 -0800)
+
+- **بالفيديو: رصاصة قاتلة تشعل البريميرليج.. مانشستر يونايتد يقتحم المربع الذهبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B1%D8%B5%D8%A7%D8%B5%D8%A9-%D9%82%D8%A7%D8%AA%D9%84%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC--%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%82%D8%AA%D8%AD%D9%85-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/bltb6121fba29a5ef84)
+- **نجم اليونايتد يتعرض لاصابة جديدة**: [Link](https://www.elsport.com/news/show/813140/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+- **الآن بث مباشر مباراة مانشستر يونايتد وايفرتون (0-0) في الدوري الإنجليزي**: [Link](https://twaslnews.twaslnews.com/628550/)
+
+
+### akdital (N/A, Mon, 23 Feb 2026 11:40:00 -0800)
+
+- **Akdital réalise 4,4 milliards de dirhams de revenus en 2025**: [Link](https://lematin.ma/economie/akdital-realise-44-milliards-de-dirhams-de-revenus-en-2025/331493)
+- **Akdital: Chiffre d’affaires en hausse de +49 % à fin 2025**: [Link](https://boursenews.ma/article/marches/Akdital-indicateurs-T4-2025)
+- **Akdital franchit le cap des 4,4 MMDH en 2025 pour son CA, une hausse de 49 %**: [Link](https://ledesk.ma/encontinu/akdital-franchit-le-cap-des-44-mmdh-en-2025-pour-son-ca-une-hausse-de-49/)
+
+
 ### الجريدة الرسمية (N/A, Mon, 23 Feb 2026 07:40:00 -0800)
 
 - **مع الاحتفاظ بالمصرية.. الداخلية توافق على تجنس 21 مواطنا بجنسيات أجنبية**: [Link](https://www.egyptke.com/197508)
