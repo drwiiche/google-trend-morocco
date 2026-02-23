@@ -1,3 +1,17 @@
+### yahoo (N/A, Mon, 23 Feb 2026 02:30:00 -0800)
+
+- **Rep. Randy Fine censure threat could spark tit-for-tat cycle**: [Link](https://thehill.com/homenews/house/5749468-randy-fine-censure-house/)
+- **Anti-Muslim 'dogs' post prompts calls for Republican congressman to resign**: [Link](https://www.usatoday.com/story/news/politics/2026/02/18/randy-fine-islamophobic-post-resign/88736044007/)
+- **Republican congressman's anti-Muslim remark prompts calls for his resignation**: [Link](https://www.nbcnews.com/politics/congress/randy-fine-anti-muslim-post-on-x-dogs-calls-for-resignation-rcna259270)
+
+
+### aid el fitr 2026 (N/A, Mon, 23 Feb 2026 01:30:00 -0800)
+
+- **Eid Al Fitr 2026 in Dubai is most likely to begin on this date – here’s why**: [Link](https://www.timeoutdubai.com/news/when-is-eid-al-fitr-2026-dubai)
+- **UAE announces Eid Al Fitr holiday for 2026**: [Link](https://filipinotimes.net/latest-news/2026/02/23/uae-announces-eid-al-fitr-holiday-for-2026/)
+- **FAHR and MoHRE: Eid Al Fitr holiday starts March 19**: [Link](https://www.gulftoday.ae/news/2026/02/23/fahr-and-mohre-eid-al-fitr-holiday-starts-march-19)
+
+
 ### puerto vallarta (N/A, Sun, 22 Feb 2026 22:50:00 -0800)
 
 - **El Mencho, el capo discreto que revolucionó el mapa criminal de México**: [Link](https://elpais.com/mexico/2026-02-22/el-mencho-el-capo-discreto-que-revoluciono-el-mapa-criminal-de-mexico.html)
