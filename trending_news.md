@@ -1,3 +1,10 @@
+### séisme (N/A, Sun, 22 Feb 2026 22:20:00 -0800)
+
+- **Un séisme de magnitude 7,1 frappe en pleine mer, à moins de 100 km des côtes**: [Link](https://www.midilibre.fr/2026/02/22/un-seisme-de-magnitude-71-frappe-en-pleine-mer-a-moins-de-100-km-des-cotes-13239680.php)
+- **Malaisie : séisme de magnitude 7,1 au large des côtes malaisiennes**: [Link](https://beninwebtv.com/malaisie-seisme-de-magnitude-71-au-large-des-cotes-malaisiennes/)
+- **Tremblement de terre de magnitude M7 en Malaisie, BMKG: Pas de tsunami en Indonésie**: [Link](https://voi.id/fr/berita/560096)
+
+
 ### المكسيك (N/A, Sun, 22 Feb 2026 18:20:00 -0800)
 
 - **مقتل زعيم أكبر عصابة مخدرات في المكسيك**: [Link](https://www.aljazeera.net/news/2026/2/22/%D9%85%D9%82%D8%AA%D9%84-%D8%B2%D8%B9%D9%8A%D9%85-%D8%A3%D9%83%D8%A8%D8%B1-%D8%B9%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83)
