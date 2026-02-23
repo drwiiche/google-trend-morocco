@@ -1,3 +1,17 @@
+### ياسمين عبد العزيز (N/A, Mon, 23 Feb 2026 15:20:00 -0800)
+
+- **هل ينتصر الحب في مسلسل و ننسى اللي كان**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%87%D9%84-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%A7%D9%84%D8%AD%D8%A8-%D9%81%D9%8A-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%88-%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86)
+- **وننسى اللي كان الحلقة 6، جليلة تطلب القتل مقابل ملايين الدولارات وبدر ينقذها من اعتداء زوجها**: [Link](https://www.vetogate.com/5601220)
+- **"وَننسى اللي كان": دراما البريق وسط أعمال القهر والفقر في رمضان**: [Link](https://hawacom.tv/article/20566-%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86-%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%82-%D9%88%D8%B3%D8%B7-%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%82%D9%87%D8%B1-%D9%88%D8%A7%D9%84%D9%81%D9%82%D8%B1-%D9%81%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+
+
+### mutandis (N/A, Mon, 23 Feb 2026 12:40:00 -0800)
+
+- **Résultats 2025 : malgré une année perturbée, Mutandis maintient le cap**: [Link](https://medias24.com/2026/02/23/resultats-2025-malgre-une-annee-perturbee-mutandis-maintient-le-cap-1632267/)
+- **Mutandis : Des résultats impactés par une panne industrielle et la baisse de la disponibilié de la sardine**: [Link](https://www.leconomiste.com/flash-infos/mutandis-des-resultats-impactes-par-une-panne-industrielle-et-la-baisse-de-la-disponibilie-de-la-sardine/)
+- **Après la baisse de ses bénéfices en 2025, Mutandis s'explique**: [Link](https://lematin.ma/economie/apres-la-baisse-de-ses-benefices-en-2025-mutandis-sexplique/331346)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Mon, 23 Feb 2026 14:00:00 -0800)
 
 - **صراع المقاعد الأمامية.. 5 أندية إنكليزية تحلم بدوري الأبطال**: [Link](https://www.al-akhbar.com/news/sports/880079/%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D8%A7%D9%85%D9%8A%D8%A9---5-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D8%AA%D8%AD%D9%84%D9%85-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
