@@ -1,3 +1,10 @@
+### hakimi (N/A, Tue, 24 Feb 2026 03:20:00 -0800)
+
+- **Achraf Hakimi, futbolista del PSG y de Marruecos, irá a juicio por presunta violación**: [Link](https://www.france24.com/es/minuto-a-minuto/20260224-achraf-hakimi-futbolista-del-psg-y-de-marruecos-ir%C3%A1-a-juicio-por-presunta-violaci%C3%B3n)
+- **Marruecos, próximo rival de Paraguay, tiene un importante drama**: [Link](https://onefootball.com/en/news/marruecos-proximo-rival-de-paraguay-tiene-un-importante-drama-42459847)
+- **Achraf Hakimi será juzgado por violación tras una denuncia de una mujer en 2023 y reacciona en sus redes**: [Link](https://www.eldesmarque.com/futbol/mas-futbol/20260224/achraf-hakimi-sera-juzgado-violacion-denuncia-mujer_18_018438681.html)
+
+
 ### romain saïss (N/A, Tue, 24 Feb 2026 02:20:00 -0800)
 
 - **Romain Saïss retires from international football**: [Link](https://www.yabiladi.com/articles/details/188949/romain-saiss-retires-from-international.html)
