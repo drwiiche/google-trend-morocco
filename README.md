@@ -1,3 +1,38 @@
+### regragui (N/A, Tue, 24 Feb 2026 11:50:00 -0800)
+
+- **Walid Regragui n’est plus sélectionneur des Lions de l’Atlas**: [Link](https://sport.le360.ma/football/lions-atlas/walid-regragui-nest-plus-selectionneur-des-lions-de-latlas_FNGLEW5JMVAQVIIVYF2AUD44CU/)
+- **Nasser Larguet : Il faut continuer à soutenir Regragui et l’amener à la Coupe du monde**: [Link](https://lematin.ma/sports/nasser-larguet-il-faut-continuer-a-soutenir-regragui/331715)
+- **L’ère de Regragui avec l’équipe nationale marocaine touche à sa fin… Et voici l’entraîneur le plus proche pour lui succéder |**: [Link](https://fr.hibapress.com/news-236624.html)
+
+
+### leverkusen – olympiakos (N/A, Tue, 24 Feb 2026 11:30:00 -0800)
+
+- **Olympiacos Gears Up for Dramatic Comeback in Leverkusen**: [Link](https://www.tovima.com/sports/olympiacos-gears-up-for-dramatic-comeback-in-leverkusen/)
+- **Bayer Leverkusen vs Olympiacos: predictions, stats, tips & odds**: [Link](https://www.squawka.com/en/news/match-preview-bayer-leverkusen-vs-olympiacos-24-02-26-champions-league/)
+- **Champions League Playoffs: Leverkusen Stuns Olympiacos, Christos Tzolis Scores Against Atletico**: [Link](https://www.thenationalherald.com/champions-league-playoffs-leverkusen-stuns-olympiacos-christos-tzolis-scores-against-atletico/)
+
+
+### كووورة (N/A, Tue, 24 Feb 2026 11:30:00 -0800)
+
+- **هل يغيب عن المونديال؟.. مبابي يطلق أجراس الخطر قبل لقاء بنفيكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B7%D9%84%D9%82-%D8%A7%D9%94%D8%AC%D8%B1%D8%A7%D8%B3-%D8%A7%D9%84%D8%AE%D8%B7%D8%B1-%D9%82%D8%A8%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7/bltc74922f0f2c2ba6f)
+- **محروم.. كشف سبب التدهور الحاد في مستوى مبابي**: [Link](https://www.raialyoum.com/%D9%85%D8%AD%D8%B1%D9%88%D9%85-%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%AA%D8%AF%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D9%85/)
+- **بين صراع الكرة والتسويق.. مبابي ينهار بدنياً**: [Link](https://24.ae/article/948251/%D8%A8%D9%8A%D9%86-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B3%D9%88%D9%8A%D9%82-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%86%D9%87%D8%A7%D8%B1-%D8%A8%D8%AF%D9%86%D9%8A%D8%A7%D9%8B)
+
+
+### inter – bodø/glimt (N/A, Tue, 24 Feb 2026 11:20:00 -0800)
+
+- **Inter Recalls Dumfries for Champions League, Calhanoglu Remains Out**: [Link](http://m.elbotola.com/en/article/2026-02-24-12-00-628.html)
+- **UEFA Champions League Preview: Inter vs Bodo/Glimt – Team News, Lineups & Prediction**: [Link](https://cultofcalcio.com/uefa-champions-league-preview-inter-vs-bodo-glimt-team-news-lineups-prediction/)
+- **Chivu on Inter fightback and Frattesi pick: ‘It can be done’**: [Link](https://onefootball.com/en/news/chivu-on-inter-fightback-and-frattesi-pick-it-can-be-done-42461902)
+
+
+### ldc (N/A, Tue, 24 Feb 2026 11:00:00 -0800)
+
+- **"Ce n’est pas Messi ou Yamal, mais..." : l'ascension fulgurante de Pio Esposito**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-i-inter-bodoglimt-i-pio-esposito-lascension-fulgurante_sto23274569/story.shtml)
+- **Le Giuseppe Meazza aura l’honneur d’accueillir deux invités de prestige**: [Link](https://internazionale.fr/articles/inter-milan/le-giuseppe-meazza-aura-lhonneur-daccueillir-deux-invit%C3%A9s-de-prestige-r22176/)
+- **Ce club de 55 000 membres a fait quelque chose auquel toute l'Europe ne s'attendait pas.**: [Link](https://www.vietnam.vn/fr/clb-55-000-dan-lam-dieu-ca-chau-au-khong-ngo-toi)
+
+
 ### newcastle – fk qarabag (N/A, Tue, 24 Feb 2026 11:20:00 -0800)
 
 - **Can Newcastle break record? Biggest aggregate knockout wins in Champions League history**: [Link](https://www.transfermarkt.com/can-newcastle-break-record-biggest-aggregate-knockout-wins-in-champions-league-history/view/news/475858)
