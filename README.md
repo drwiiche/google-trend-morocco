@@ -1,3 +1,45 @@
+### newcastle – fk qarabag (N/A, Tue, 24 Feb 2026 11:20:00 -0800)
+
+- **Can Newcastle break record? Biggest aggregate knockout wins in Champions League history**: [Link](https://www.transfermarkt.com/can-newcastle-break-record-biggest-aggregate-knockout-wins-in-champions-league-history/view/news/475858)
+- **How Anthony Gordon is eclipsing European football’s greatest strikers in the Champions League**: [Link](https://www.dazn.com/en-US/news/soccer/how-anthony-gordon-is-eclipsing-european-footballs-greatest-strikers-in-the-champions-league/19cmb21oxx4cw1rnu2y53hn5fb)
+- **Sky Bet Champions League Offer | 50/1 for Newcastle to beat Qarabag**: [Link](https://www.live-darts.com/betting-offers/skybet-newcastle-qarabag-offer/)
+
+
+### الحزم ضد الاتحاد (N/A, Tue, 24 Feb 2026 11:20:00 -0800)
+
+- **لأول مرة.. إلينيخنا يقود هجوم الاتحاد أمام الحزم.. وغيابات بالجملة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9--%D8%A7%D9%95%D9%84%D9%8A%D9%86%D9%8A%D8%AE%D9%86%D8%A7-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AD%D8%B2%D9%85--%D9%88%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%AC%D9%85%D9%84%D8%A9/blt075bbc56d5010f8b)
+- **النصيري خارج قائمة الاتحاد لمواجهة الحزم**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84-428362.html)
+- **كونيسيساو يستبعد النصيري وعوار من قائمة مباراة الحزم**: [Link](https://www.filgoal.com/articles/523957)
+
+
+### التعاون ضد الهلال (N/A, Tue, 24 Feb 2026 11:10:00 -0800)
+
+- **بعد 25 يومًا.. بنزيما يعيد ماركوس ليوناردو لقيادة الهلال أمام التعاون (تجهيز)**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-25-%D9%8A%D9%88%D9%85%D9%8B%D8%A7--%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D9%8A%D8%B9%D9%8A%D8%AF-%D9%85%D8%A7%D8%B1%D9%83%D9%88%D8%B3-%D9%84%D9%8A%D9%88%D9%86%D8%A7%D8%B1%D8%AF%D9%88-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86/blt3771c40583672cc7)
+- **القنوات الناقلة لمباراة الهلال ضد التعاون اليوم في دوري روشن السعودي مع الموعد - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/200786564424746-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF/)
+- **مفاجأة.. كريم بنزيما لن يكون قادرا على اللعب بعد سنة**: [Link](https://sport.lesiteinfo.com/monde/488814.html)
+
+
+### بنات لالة منانة (N/A, Tue, 24 Feb 2026 11:10:00 -0800)
+
+- **بنات لالة منانة 3: الحلقة الخامسة**: [Link](https://2m.ma/ar/news/%D8%A8%D9%86%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D9%85%D9%86%D8%A7%D9%86%D8%A9-3-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9-20260223)
+- **حركة "غير لائقة" تضع "بنات لالة منانة" في مرمى الانتقادات**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%AD%D8%B1%D9%83%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%84%D8%A7%D8%A6%D9%82%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%A8%D9%86%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D9%85%D9%86%D8%A7%D9%86%D8%A9-%D9%81%D9%8A-244675.html)
+- **الجرأة وحدودها في الجزء الثالث من « بنات للا منانة ».. بين إشادة بالطرح وانتقادات لحدة المعالجة – اليوم 24**: [Link](https://alyaoum24.com/2011840.html)
+
+
+### دوري الأبطال (N/A, Tue, 24 Feb 2026 10:40:00 -0800)
+
+- **ديماركو: أفضل التتويج بالدوري الإيطالي على "تشامبيونز ليج"!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D9%85%D8%A7%D8%B1%D9%83%D9%88-%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D8%A7%D9%85%D8%A8%D9%8A%D9%88%D9%86%D8%B2-%D9%84%D9%8A%D8%AC/blt327ce39a88c84ce7)
+- **دوري أبطال أوروبا: كيفو واثق بقدرة إنتر على قلب الطاولة أمام بودو غليمت**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260223-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%83%D9%8A%D9%81%D9%88-%D9%88%D8%A7%D8%AB%D9%82-%D8%A8%D9%82%D8%AF%D8%B1%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D8%B9%D9%84%D9%89-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA)
+- **ملخص ما قدمه لاوتارو مارتينيز في دوري أبطال أوروبا هذا الموسم**: [Link](https://hihi2.com/2026/02/24/p3665360.html)
+
+
+### ucl (N/A, Tue, 24 Feb 2026 10:30:00 -0800)
+
+- **Ex-Italy head coach believes Juventus will overturn Galatasaray: ‘Why not?’**: [Link](https://football-italia.net/prandelli-juventus-will-overturn-galatasaray/)
+- **Spalletti & Kelly: Playing at home gives us belief**: [Link](https://sports.yahoo.com/articles/spalletti-kelly-playing-home-gives-162200201.html)
+- **UEFA Champions League: date, time, channels and probable lineups for Juventus vs Galatasaray**: [Link](https://onefootball.com/en/news/uefa-champions-league-date-time-channels-and-probable-lineups-for-juventus-vs-galatasaray-42460610)
+
+
 ### al hazm – al ittihad (N/A, Tue, 24 Feb 2026 10:30:00 -0800)
 
 - **Conceição Shocks Al-Ittihad Duo Before Al-Hazm Clash**: [Link](https://www.ysscores.com/en/news/13916790/Concei%C3%A7%C3%A3o-Shocks-Al-Ittihad-Duo-Before-Al-Hazm-Clash)
