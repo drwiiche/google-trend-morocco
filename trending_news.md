@@ -1,3 +1,31 @@
+### وليد الركراكي (N/A, Tue, 24 Feb 2026 12:50:00 -0800)
+
+- **الركراكي يبلغ لاعبي منتخب المغرب بمصيره قبل مونديال 2026**: [Link](https://www.aljazeera.net/sport/2026/2/24/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85-%D9%85%D8%AF%D8%B1%D8%A8)
+- **اتخذ قراره.. الركراكي يبلغ المقربين بمصيره مع المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%AA%D8%AE%D8%B0-%D9%82%D8%B1%D8%A7%D8%B1%D9%87--%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D9%85%D9%82%D8%B1%D8%A8%D9%8A%D9%86-%D8%A8%D9%85%D8%B5%D9%8A%D8%B1%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt90a7dcbc3a0b62c0)
+- **مصادر: الركراكي خارج أسوار المنتخب**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A3%D8%B3%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1706699.html)
+
+
+### نيوكاسل يونايتد ضد قره باغ (N/A, Tue, 24 Feb 2026 12:40:00 -0800)
+
+- **ليس فينيسيوس.. لاعب واحد من ريال مدريد في التشكيل المثالي لدوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3--%D9%84%D8%A7%D8%B9%D8%A8-%D9%88%D8%A7%D8%AD%D8%AF-%D9%85%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt13a388afff979e94)
+- **إحصائيات نصف ساعة من مباراة نيوكاسل وقره باغ في دوري أبطال أوروبا**: [Link](https://hihi2.com/2026/02/24/p3665747.html)
+- **أداء أنتوني جوردون المذهل في دوري أبطال أوروبا يبشر بالخير لآمال إنجلترا في كأس العالم، حيث يتنافس جناح نيوكاسل مع كيليان مبابي على صدارة هدافي البطولة الأوروبية**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%AF%D8%A7%D8%A1-%D8%A7%D9%94%D9%86%D8%AA%D9%88%D9%86%D9%8A-%D8%AC%D9%88%D8%B1%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%B0%D9%87%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%8A%D8%A8%D8%B4%D8%B1-%D8%A8%D8%A7%D9%84%D8%AE%D9%8A%D8%B1-%D9%84%D8%A7%D9%93%D9%85%D8%A7%D9%84-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AD%D9%8A%D8%AB-%D9%8A%D8%AA%D9%86%D8%A7%D9%81%D8%B3-%D8%AC%D9%86%D8%A7%D8%AD-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%85%D8%B9-%D9%83%D9%8A%D9%84%D9%8A%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%B9%D9%84%D9%89-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/blt53affffffbe5bf6d)
+
+
+### al-taawoun vs al-hilal (N/A, Tue, 24 Feb 2026 12:30:00 -0800)
+
+- **Leonardo Leads Al-Hilal's Attack Against Al-Taawoun in the League**: [Link](https://www.ysscores.com/en/news/13917468/Leonardo-Leads-Al-Hilal's-Attack-Against-Al-Taawoun-in-the-League)
+- **Al-taawoun Vs Al-hilal: Match at Alinma Stadium Ends Locked at 1-1 After Two Penalties**: [Link](https://www.filmogaz.com/166091)
+- **Al Taawoun vs Al Hilal LIVE streaming, TV channel, kick-off time & where to watch Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-taawoun-vs-al-hilal-where-to-watch-202602)
+
+
+### xavi (N/A, Tue, 24 Feb 2026 12:10:00 -0800)
+
+- **VIDEO | Banda MS y Xavi lanzan ‘Aguántame’, el himno romántico que ya es tendencia**: [Link](https://www.aztecajalisco.com/espectaculos/banda-ms-xavi-aguantame-nueva-cancion-estreno-regional-mexicano-2026-video/)
+- **Banda MS y Xavi nos sorprenden con su nuevo tema**: [Link](https://lamejor.com.mx/galerias/2026/2/23/banda-ms-xavi-nos-sorprenden-con-su-nuevo-tema-25575.html)
+- **“Aguántame”, Banda MS y Xavi: Letra y significado**: [Link](https://www.soygrupero.com.mx/canciones/letra-aguantame-banda-ms-y-xavi-y-significado/2026/02/)
+
+
 ### الإنتر ضد بودو/ غليمت (N/A, Tue, 24 Feb 2026 12:30:00 -0800)
 
 - **ديماركو: أفضل التتويج بالدوري الإيطالي على "تشامبيونز ليج"!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D9%85%D8%A7%D8%B1%D9%83%D9%88-%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D8%A7%D9%85%D8%A8%D9%8A%D9%88%D9%86%D8%B2-%D9%84%D9%8A%D8%AC/blt327ce39a88c84ce7)
