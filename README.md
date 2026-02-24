@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Tue, 24 Feb 2026 05:40:00 -0800)
+
+- **Achraf será juzgado por violación**: [Link](https://as.com/futbol/internacional/achraf-sera-juzgado-por-violacion-f202602-n/)
+- **Hakimi será juzgado por violación: "Es tan injusto para los inocentes como para las víctimas sinceras"**: [Link](https://www.marca.com/futbol/psg/2026/02/24/hakimi-sera-juzgado-violacion-injusto-inocentes-victimas-sinceras.html)
+- **Marruecos, próximo rival de Paraguay, tiene un importante drama**: [Link](https://onefootball.com/es/noticias/marruecos-proximo-rival-de-paraguay-tiene-un-importante-drama-42459847)
+
+
 ### hakimi (N/A, Tue, 24 Feb 2026 03:20:00 -0800)
 
 - **Achraf Hakimi, futbolista del PSG y de Marruecos, irá a juicio por presunta violación**: [Link](https://www.france24.com/es/minuto-a-minuto/20260224-achraf-hakimi-futbolista-del-psg-y-de-marruecos-ir%C3%A1-a-juicio-por-presunta-violaci%C3%B3n)
