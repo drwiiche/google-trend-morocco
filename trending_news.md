@@ -1,3 +1,10 @@
+### charles kushner (N/A, Tue, 24 Feb 2026 04:50:00 -0800)
+
+- **Hundreds march in Lyon to protest far-right activist’s killing as Macron urges calm**: [Link](https://apnews.com/article/france-farright-student-beating-macron-84620fcc1c5c6a3f810b1df5e9aa5362)
+- **France blocks US ambassador’s access to officials after he fails to attend meeting**: [Link](https://www.theguardian.com/world/2026/feb/23/us-ambassador-to-paris-banned-from-meeting-french-ministers-after-no-show)
+- **French minister moves to block US envoy Kushner from government access**: [Link](https://www.bbc.com/news/articles/c8d5eg5pl34o)
+
+
 ### achraf hakimi (N/A, Tue, 24 Feb 2026 05:40:00 -0800)
 
 - **Achraf será juzgado por violación**: [Link](https://as.com/futbol/internacional/achraf-sera-juzgado-por-violacion-f202602-n/)
