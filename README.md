@@ -1,3 +1,38 @@
+### atlético madrid – club brugge (N/A, Tue, 24 Feb 2026 09:00:00 -0800)
+
+- **Barrios and Gonzalez Out for Atletico Madrid's Crucial Clash Against Club Brugge**: [Link](https://m.elbotola.com/en/article/2026-02-23-20-00-860.html)
+- **'Koke and Griezmann are crucial regardless of their playing time'**: [Link](https://www.besoccer.com/new/koke-and-griezmann-are-crucial-regardless-of-their-playing-time-1396233)
+- **Simeone: "We need our fans, their energy keeps us going"**: [Link](https://onefootball.com/en/news/simeone-we-need-our-fans-their-energy-keeps-us-going-42458796)
+
+
+### أتلتيكو مدريد ضد كلوب بروج (N/A, Tue, 24 Feb 2026 09:00:00 -0800)
+
+- **أتلتيكو على حافة الهاوية.. وسيميوني يطالب بثورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%B9%D9%84%D9%89-%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D9%87%D8%A7%D9%88%D9%8A%D8%A9--%D9%88%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%AB%D9%88%D8%B1%D8%A9/bltb1bbcb04b5060dca)
+- **أتلتيكو مدريد يصارع كلوب بروج على بطاقة ثمن نهائي دوري أبطال أوروبا**: [Link](https://www.youm7.com/story/2026/2/24/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B5%D8%A7%D8%B1%D8%B9-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC-%D8%B9%D9%84%D9%89-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A/7315619)
+- **غياب باريوس وغونزاليس عن أتلتيكو مدريد في مواجهة حاسمة ضد كلوب بروج**: [Link](https://m.elbotola.com/article/2026-02-23-20-00-514.html)
+
+
+### tony yoka (N/A, Tue, 24 Feb 2026 08:30:00 -0800)
+
+- **Tony Yoka boxera désormais pour la République démocratique du Congo avec les Jeux Olympiques dans le viseur**: [Link](https://www.lequipe.fr/Boxe/Actualites/Tony-yoka-boxera-desormais-pour-la-republique-democratique-du-congo-avec-les-jeux-olympiques-dans-le-viseur/1654709)
+- **Tony Yoka, champion olympique de boxe avec la France à Rio en 2016, change de nationalité sportive**: [Link](https://www.lemonde.fr/sport/article/2026/02/24/tony-yoka-champion-olympique-de-boxe-avec-la-france-a-rio-2016-change-de-nationalite-sportive_6668033_3242.html)
+- **"Faire rayonner la RD Congo": le boxeur Tony Yoka change de nationalité sportive et vise les JO de 2028**: [Link](https://information.tv5monde.com/sport/faire-rayonner-la-rd-congo-le-boxeur-tony-yoka-change-de-nationalite-sportive-et-vise-les-jo-de-2028-2810972)
+
+
+### samsung galaxy s26 ultra (N/A, Tue, 24 Feb 2026 07:50:00 -0800)
+
+- **How Samsung’s Galaxy S26 Ultra Will Change Smartphones Forever**: [Link](https://www.forbes.com/sites/ewanspence/2026/02/23/samsung-galaxy-s26-ultra-launch-agentic-ai-privacy-specs/)
+- **Samsung is on slop watch at Unpacked**: [Link](https://www.theverge.com/tech/883225/samsung-galaxy-unpacked-s26-2026)
+- **Coming Soon: A Seamless Galaxy Camera Experience for Easy Content Creation**: [Link](https://news.samsung.com/us/coming-soon-seamless-galaxy-camera-experience-easy-content-creation/)
+
+
+### ounahi (N/A, Tue, 24 Feb 2026 04:30:00 -0800)
+
+- **Girona Coach on Ounahi's Return: "He Gave Us Quality Between the Lines After Two-Month Absence"**: [Link](https://m.elbotola.com/en/article/2026-02-24-12-15-637.html)
+- **Injured during AFCON, Azzedine Ounahi returns to Girona after recovery**: [Link](https://en.yabiladi.com/articles/details/188865/injured-during-afcon-azzedine-ounahi.html)
+- **Azzedine Ounahi Cleared to Play Ahead of Morocco’s World Cup Friendlies**: [Link](https://barlamantoday.com/2026/02/23/moroccan-midfielder-azzedine-ounahi-cleared-to-play-ahead-of-moroccos-friendlies/)
+
+
 ### الجزيرة (N/A, Mon, 23 Feb 2026 22:50:00 -0800)
 
 - **حقيقة أم خيال؟.. رصاصة تستقر في وجه جندي مكسيكي وتفجر المنصات**: [Link](https://www.aljazeera.net/news/2026/2/24/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A3%D9%85-%D8%AE%D9%8A%D8%A7%D9%84-%D8%B1%D8%B5%D8%A7%D8%B5%D8%A9-%D8%AA%D8%B3%D8%AA%D9%82%D8%B1-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%AC%D9%86%D8%AF%D9%8A)
