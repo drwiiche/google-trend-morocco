@@ -1,3 +1,24 @@
+### الجامعة الملكية المغربية لكرة القدم (N/A, Tue, 24 Feb 2026 13:30:00 -0800)
+
+- **مصادر: الركراكي خارج أسوار المنتخب**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A3%D8%B3%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1706699.html)
+- **اتخذ قراره.. الركراكي يبلغ المقربين بمصيره مع المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%AA%D8%AE%D8%B0-%D9%82%D8%B1%D8%A7%D8%B1%D9%87--%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D9%85%D9%82%D8%B1%D8%A8%D9%8A%D9%86-%D8%A8%D9%85%D8%B5%D9%8A%D8%B1%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt90a7dcbc3a0b62c0)
+- **الركراكي يبلغ لاعبي منتخب المغرب بمصيره قبل مونديال 2026**: [Link](https://www.aljazeera.net/sport/2026/2/24/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85-%D9%85%D8%AF%D8%B1%D8%A8)
+
+
+### frmf (N/A, Tue, 24 Feb 2026 12:30:00 -0800)
+
+- **CAN : au Sénégal, appels au boycott des produits marocains après la condamnation des supporters**: [Link](https://mobile.telquel.ma/2026/02/23/boycott-et-manifestations-les-remous-de-la-condamnation-des-supporters-senegalais_1976286)
+- **Finale Maroc-Sénégal : la FRMF dépose un dossier détaillé auprès du jury**: [Link](https://medias24.com/2026/02/23/finale-maroc-senegal-la-frmf-depose-un-dossier-detaille-aupres-du-jury-1632611/)
+- **Sénégal, le TAS a obligé à rejouer le match !**: [Link](https://www.sports.fr/football/can/senegal-le-tas-a-oblige-a-rejouer-le-match-991740.html)
+
+
+### champions league 2026 (N/A, Tue, 24 Feb 2026 12:20:00 -0800)
+
+- **Champions League 2025/26: Predicted lineups for return legs of knockout play-offs**: [Link](https://bulinews.com/champions-league-2025/26-predicted-lineups-for-return-legs-knockout-play-offs)
+- **Champions League Playoffs bracket and schedule 2025-26: Today's matches, results, and standings**: [Link](https://www.marca.com/en/football/champions-league/2026/02/24/699dd6f622601d933b8b45e4.html)
+- **Champions League Playoff Match Recap and Predictions for the Round of 16**: [Link](https://news.ssbcrack.com/champions-league-playoff-match-recap-and-predictions-for-the-round-of-16/)
+
+
 ### وليد الركراكي (N/A, Tue, 24 Feb 2026 12:50:00 -0800)
 
 - **الركراكي يبلغ لاعبي منتخب المغرب بمصيره قبل مونديال 2026**: [Link](https://www.aljazeera.net/sport/2026/2/24/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85-%D9%85%D8%AF%D8%B1%D8%A8)
