@@ -1,3 +1,17 @@
+### الإنتر ضد بودو/ غليمت (N/A, Tue, 24 Feb 2026 12:30:00 -0800)
+
+- **ديماركو: أفضل التتويج بالدوري الإيطالي على "تشامبيونز ليج"!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D9%85%D8%A7%D8%B1%D9%83%D9%88-%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D8%A7%D9%85%D8%A8%D9%8A%D9%88%D9%86%D8%B2-%D9%84%D9%8A%D8%AC/blt327ce39a88c84ce7)
+- **دوري أبطال أوروبا: كيفو واثق بقدرة إنتر على قلب الطاولة أمام بودو غليمت**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260223-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%83%D9%8A%D9%81%D9%88-%D9%88%D8%A7%D8%AB%D9%82-%D8%A8%D9%82%D8%AF%D8%B1%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D8%B9%D9%84%D9%89-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA)
+- **ملخص ما قدمه لاوتارو مارتينيز في دوري أبطال أوروبا هذا الموسم**: [Link](https://hihi2.com/2026/02/24/p3665360.html)
+
+
+### watford – ipswich town (N/A, Tue, 24 Feb 2026 12:20:00 -0800)
+
+- **Predicting Ed Still's Watford XI to take on Ipswich Town**: [Link](https://www.watfordobserver.co.uk/sport/25879149.predicting-ed-stills-watford-xi-take-ipswich-town/)
+- **Championship Tips: Expect a glut of goals between Watford and Ipswich**: [Link](https://betting.betfair.com/football/championship/championship-tips-1-220226-904.html)
+- **'We need to rectify the errors we made against Wrexham' - Town boss on Watford trip**: [Link](https://www.eadt.co.uk/sport/25877876.ipswich-town-kieran-mckenna-watford-trip-new-boss-ed-still/)
+
+
 ### regragui (N/A, Tue, 24 Feb 2026 11:50:00 -0800)
 
 - **Walid Regragui n’est plus sélectionneur des Lions de l’Atlas**: [Link](https://sport.le360.ma/football/lions-atlas/walid-regragui-nest-plus-selectionneur-des-lions-de-latlas_FNGLEW5JMVAQVIIVYF2AUD44CU/)
