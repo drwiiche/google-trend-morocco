@@ -1,3 +1,31 @@
+### al hazm – al ittihad (N/A, Tue, 24 Feb 2026 10:30:00 -0800)
+
+- **Conceição Shocks Al-Ittihad Duo Before Al-Hazm Clash**: [Link](https://www.ysscores.com/en/news/13916790/Concei%C3%A7%C3%A3o-Shocks-Al-Ittihad-Duo-Before-Al-Hazm-Clash)
+- **Al-Hazem vs Al-Ittihad Prediction, Betting Tips & Booking Code (Feb 24)**: [Link](https://news.22bet.com/predictions/al-hazem-vs-al-ittihad-prediction-booking-code-24-02-2026/)
+- **Al Ittihad vs Al Hazem Saudi Pro League clash: Kick-off time and TV channel**: [Link](https://koorabreak.com/en/260795/)
+
+
+### ligue des champions (N/A, Tue, 24 Feb 2026 10:10:00 -0800)
+
+- **PSG-Monaco: Dembélé et Ruiz incertains pour le barrage retour**: [Link](https://www.lesiteinfo.com/sport/667348-psg-monaco-dembele-et-ruiz-incertains-pour-le-barrage-retour.html)
+- **Ligue des champions : Istvan Kovacs au sifflet, un (très) bon présage pour le PSG**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/ligue-des-champions-istvan-kovacs-au-sifflet-un-tres-bon-presage-pour-le-psg-20260224)
+- **Distractions, pression, ambiance... Qui a le meilleur cadre de vie entre footballeur au PSG et à Monaco ?**: [Link](https://www.lequipe.fr/Football/Article/Distractions-pression-ambiance-qui-a-le-meilleur-cadre-de-vie-entre-footballeur-au-psg-et-a-monaco/1654841)
+
+
+### atlético madrid - club brujas (N/A, Tue, 24 Feb 2026 10:10:00 -0800)
+
+- **Atlético de Madrid - Brujas hoy, en directo: última hora del playoff de la Champions League, en vivo**: [Link](https://as.com/futbol/champions/atletico-brujas-en-directo-ultima-hora-del-playoff-de-la-champions-league-hoy-en-vivo-f202602-d/)
+- **Sorloth, Julián, Cardoso y Baena, en el once; Lookman y Griezmann suplentes**: [Link](https://es-us.noticias.yahoo.com/deportes/sorloth-juli%C3%A1n-cardoso-baena-once-171220238.html)
+- **Simeone: «Necesitamos a nuestra gente, con esa energía que nos alimenta»**: [Link](https://onefootball.com/de/news/simeone-necesitamos-a-nuestra-gente-con-esa-energia-que-nos-alimenta-42458793)
+
+
+### champions league (N/A, Tue, 24 Feb 2026 10:00:00 -0800)
+
+- **Inter Recalls Dumfries for Champions League, Calhanoglu Remains Out**: [Link](http://m.elbotola.com/en/article/2026-02-24-12-00-628.html)
+- **Tunnel change and talks with old Milan team-mates: Hauge at home ahead of San Siro return**: [Link](https://sempremilan.com/hauge-at-home-milan-inter-bodo-glimt)
+- **Bodø/Glimt: The Norwegians making their mark on the biggest stage of all**: [Link](https://www.fotmob.com/topnews/26163-bodglimt-norwegians-making-their-mark-biggest-stage-all?utm_source=fotmob)
+
+
 ### atlético madrid – club brugge (N/A, Tue, 24 Feb 2026 09:00:00 -0800)
 
 - **Barrios and Gonzalez Out for Atletico Madrid's Crucial Clash Against Club Brugge**: [Link](https://m.elbotola.com/en/article/2026-02-23-20-00-860.html)
