@@ -1,3 +1,31 @@
+### algérie sahara occidental (N/A, Mon, 23 Feb 2026 17:00:00 -0800)
+
+- **Sahara occidental : comment Alger et le Polisario ont été contraints de renoncer à l’indépendance**: [Link](https://www.jeuneafrique.com/1767757/politique/sahara-occidental-comment-alger-et-le-polisario-ont-ete-contraints-de-renoncer-a-lindependance/)
+- **Sahara marocain : L’Algérie change-t-elle enfin de cap ?**: [Link](https://maroc-diplomatique.net/sahara-marocain-lalgerie-change-t-elle-enfin-de-cap/)
+- **Sahara marocain : Un nouveau round de négociations à Washington**: [Link](https://www.leconomiste.com/flash-infos/sahara-marocain-un-nouveau-round-de-negociations-a-washington/)
+
+
+### classement premier league (N/A, Mon, 23 Feb 2026 14:00:00 -0800)
+
+- **Sesko sort MU de la monotonie**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/premier-league-benjamin-sesko-buteur-pour-mu-dans-la-monotonie-a-everton-0-1_sto23274768/story.shtml)
+- **Tout bénef pour Manchester United**: [Link](https://www.sports.fr/football/angleterre/tout-benef-pour-manchester-united-993585.html)
+- **Man United s’impose à Goodison Park et double Chelsea et Liverpool**: [Link](https://www.football365.fr/man-united-simpose-a-goodison-park-et-double-chelsea-et-liverpool-10280930.html)
+
+
+### الدوري الانجليزي (N/A, Mon, 23 Feb 2026 14:00:00 -0800)
+
+- **بالفيديو: رصاصة قاتلة تشعل البريميرليج.. مانشستر يونايتد يقتحم المربع الذهبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B1%D8%B5%D8%A7%D8%B5%D8%A9-%D9%82%D8%A7%D8%AA%D9%84%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC--%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%82%D8%AA%D8%AD%D9%85-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/bltb6121fba29a5ef84)
+- **مزراوي حضر فوز مان يونايتد بإيفرطون**: [Link](https://www.almountakhab.com/node/13222997)
+- **سيسكو: المباراة كانت متكافئة.. ومن المهم أن أساعد الفريق مهما كانت دقائق مشاركتي**: [Link](https://www.filgoal.com/articles/523980/%D8%B3%D9%8A%D8%B3%D9%83%D9%88-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D8%A7%D9%86%D8%AA-%D9%85%D8%AA%D9%83%D8%A7%D9%81%D8%A6%D8%A9-%D9%88%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%87%D9%85-%D8%A3%D9%86-%D8%A3%D8%B3%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D9%85%D9%87%D9%85%D8%A7-%D9%83%D8%A7%D9%86%D8%AA-%D8%AF%D9%82%D8%A7%D8%A6%D9%82-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%AA%D9%8A)
+
+
+### زلزال ماليزيا (N/A, Mon, 23 Feb 2026 12:10:00 -0800)
+
+- **زلزال بقوة 7.1 درجات يضرب قبالة شرقي ماليزيا**: [Link](https://www.aljazeera.net/news/2026/2/22/%D8%B9%D8%A7%D8%AC%D9%84-%D9%87%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%AD-%D8%A7%D9%84%D8%AC%D9%8A%D9%88%D9%84%D9%88%D8%AC%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9)
+- **بلغت شدته 7 درجات.. زلزال قوي يضرب ماليزيا وتايلاند**: [Link](https://www.alarabiya.net/arab-and-world/2026/02/22/%D8%A8%D9%84%D8%BA%D8%AA-%D8%B4%D8%AF%D8%AA%D9%87-7-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%82%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%85%D8%A7%D9%84%D9%8A%D8%B2%D9%8A%D8%A7-%D9%88%D8%AA%D8%A7%D9%8A%D9%84%D8%A7%D9%86%D8%AF)
+- **زلزال بقوة 7.1 درجات يضرب ماليزيا**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-71-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%85%D8%A7%D9%84%D9%8A%D8%B2%D9%8A%D8%A7/3837277)
+
+
 ### ياسمين عبد العزيز (N/A, Mon, 23 Feb 2026 15:20:00 -0800)
 
 - **هل ينتصر الحب في مسلسل و ننسى اللي كان**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%87%D9%84-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%A7%D9%84%D8%AD%D8%A8-%D9%81%D9%8A-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D9%88-%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86)
