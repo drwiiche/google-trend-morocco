@@ -1,3 +1,10 @@
+### romain saïss (N/A, Tue, 24 Feb 2026 02:20:00 -0800)
+
+- **Romain Saïss retires from international football**: [Link](https://www.yabiladi.com/articles/details/188949/romain-saiss-retires-from-international.html)
+- **Bounou Bids Farewell to Saïss: "It Was a Great Honor to Share It With You… You Are a Legend of Our National Team"**: [Link](https://m.elbotola.com/en/article/2026-02-23-22-18-716.html)
+- **Morocco Captain Saiss Announces International Retirement**: [Link](https://english.aawsat.com/sports/5244229-morocco-captain-saiss-announces-international-retirement%C2%A0)
+
+
 ### algérie sahara occidental (N/A, Mon, 23 Feb 2026 17:00:00 -0800)
 
 - **Sahara occidental : comment Alger et le Polisario ont été contraints de renoncer à l’indépendance**: [Link](https://www.jeuneafrique.com/1767757/politique/sahara-occidental-comment-alger-et-le-polisario-ont-ete-contraints-de-renoncer-a-lindependance/)
