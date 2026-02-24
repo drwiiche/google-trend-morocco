@@ -1,3 +1,10 @@
+### الجزيرة (N/A, Mon, 23 Feb 2026 22:50:00 -0800)
+
+- **حقيقة أم خيال؟.. رصاصة تستقر في وجه جندي مكسيكي وتفجر المنصات**: [Link](https://www.aljazeera.net/news/2026/2/24/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A3%D9%85-%D8%AE%D9%8A%D8%A7%D9%84-%D8%B1%D8%B5%D8%A7%D8%B5%D8%A9-%D8%AA%D8%B3%D8%AA%D9%82%D8%B1-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%AC%D9%86%D8%AF%D9%8A)
+- **فيديو: بعد سماع دوي انفجارات.. هروب جماعي من مباراة في الدوري المكسيكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B9%D8%AF-%D8%B3%D9%85%D8%A7%D8%B9-%D8%AF%D9%88%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA--%D9%87%D8%B1%D9%88%D8%A8-%D8%AC%D9%85%D8%A7%D8%B9%D9%8A-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83%D9%8A/bltfdf62dbca861debf)
+- **مونديال أقل من 20 سنة.. المغرب يتعثر أمام المكسيك ويتصدر المجموعة الثالثة**: [Link](https://ar.telquel.ma/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83-%D8%AA%D9%87%D8%AF%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82/)
+
+
 ### charles kushner (N/A, Tue, 24 Feb 2026 04:50:00 -0800)
 
 - **Hundreds march in Lyon to protest far-right activist’s killing as Macron urges calm**: [Link](https://apnews.com/article/france-farright-student-beating-macron-84620fcc1c5c6a3f810b1df5e9aa5362)
