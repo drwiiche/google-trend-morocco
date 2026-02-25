@@ -1,3 +1,10 @@
+### claude ai (N/A, Wed, 25 Feb 2026 01:40:00 -0800)
+
+- **"Claude Killed Our Startup": San Francisco Entrepreneur Says AI Tool Made Her Product Obsolete**: [Link](https://www.ndtv.com/feature/claude-killed-our-startup-san-francisco-entrepreneur-says-ai-tool-made-her-product-obsolete-11130230)
+- **Claude AI Killed My Business: Startup Founder Warns of Ruthless AI Disruption**: [Link](https://www.republicworld.com/tech/claude-ai-killed-my-business-startup-founder-warns-of-ruthless-ai-disruption)
+- **Ira Bodnar says Anthropic’s Claude AI made her startup ‘obsolete’: San Francisco founder reveals how one**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/ira-bodnar-says-anthropics-claude-ai-made-her-startup-obsolete-san-francisco-founder-reveals-how-one-feature-update-killed-her-startup/articleshow/128772418.cms)
+
+
 ### bolivie rasd (N/A, Tue, 24 Feb 2026 16:00:00 -0800)
 
 - **Maroc-Bolivie : sécurité alimentaire et engrais au cœur du rapprochement**: [Link](https://ledesk.ma/encontinu/maroc-bolivie-securite-alimentaire-et-engrais-au-coeur-du-rapprochement/)
