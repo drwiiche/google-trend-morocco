@@ -1,3 +1,10 @@
+### rca (N/A, Wed, 25 Feb 2026 15:10:00 -0800)
+
+- **Veste bună! Constatarea amiabilă a accidentelor va fi disponibilă în format digital și iată două mari beneficii**: [Link](https://autoblog.md/veste-buna-constatarea-amiabila-a-accidentelor-va-fi-disponibila-in-format-digital-si-iata-doua-mari-beneficii/)
+- **Accidente minore, raportate prin aplicația EVO: limita despăgubirilor ajunge la 50.000 de lei**: [Link](https://radiomoldova.md/p/70497)
+- **Proiect BNM // Tarife libere la RCA și sistem centralizat de evidență a daunelor**: [Link](https://deschide.md/articole/proiect-bnm-tarife-libere-la-rca-si-sistem-centralizat-de-evidenta-a-daunelor)
+
+
 ### raja vs berkane (N/A, Wed, 25 Feb 2026 14:40:00 -0800)
 
 - **Raja's Lineup Against RS Berkane: Mouqaddem, Khafifi, Banoun in Defense, Khafi and Matias Lead Attack**: [Link](https://m.elbotola.com/en/article/2026-02-25-21-14-566.html)
