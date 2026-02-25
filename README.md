@@ -1,3 +1,10 @@
+### atalanta – dortmund (N/A, Wed, 25 Feb 2026 09:10:00 -0800)
+
+- **Palladino: ‘Atalanta will be aggressive with Dortmund, Ederson not 100 per cent’**: [Link](https://onefootball.com/pt-br/noticias/palladino-atalanta-will-be-aggressive-with-dortmund-ederson-not-100-per-cent-42466571)
+- **Kovač: "We have a good result, nothing more"**: [Link](https://www.bundesliga.com/en/bundesliga/videos/watch/kovac-we-have-a-good-result-nothing-more-r3n7Izpl)
+- **UEFA Champions League: the ticker for the trip to Bergamo**: [Link](https://sports.yahoo.com/articles/uefa-champions-league-ticker-trip-205000779.html)
+
+
 ### test (N/A, Wed, 25 Feb 2026 05:10:00 -0800)
 
 - **New blood test signals who is most likely to live longer, study finds**: [Link](https://medicalxpress.com/news/2026-02-blood-longer.html)
