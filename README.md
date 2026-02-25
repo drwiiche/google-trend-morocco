@@ -1,3 +1,10 @@
+### bolivie rasd (N/A, Tue, 24 Feb 2026 16:00:00 -0800)
+
+- **Maroc-Bolivie : sécurité alimentaire et engrais au cœur du rapprochement**: [Link](https://ledesk.ma/encontinu/maroc-bolivie-securite-alimentaire-et-engrais-au-coeur-du-rapprochement/)
+- **Sahara : la Bolivie suspend sa reconnaissance de la RASD**: [Link](https://mobile.telquel.ma/instant-t/2026/02/24/sahara-la-bolivie-suspend-sa-reconnaissance-de-la-rasd_1976329/)
+- **L’œil de Gueddar. La Bolivie coupe ses liens avec le Polisario**: [Link](https://fr.le360.ma/medias/loeil-de-gueddar-la-bolivie-coupe-ses-liens-avec-le-polisario_55JHURGV3JFJTKLE4ENDDCVQ2I/)
+
+
 ### newcastle (N/A, Tue, 24 Feb 2026 13:10:00 -0800)
 
 - **Champions League: Premier League clubs to learn last-16 opponents in Friday's draw**: [Link](https://www.skysports.com/football/news/11945/13511136/champions-league-premier-league-clubs-to-learn-last-16-opponents-in-fridays-draw)
