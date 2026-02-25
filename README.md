@@ -1,3 +1,52 @@
+### بي اس جي ضد موناكو (N/A, Wed, 25 Feb 2026 11:20:00 -0800)
+
+- **"لا نتيجة نحميها".. تصريح إنريكي الناري قبل إياب الملحق الأوروبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%86%D8%AD%D9%85%D9%8A%D9%87%D8%A7--%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%A7%D9%84%D9%86%D8%A7%D8%B1%D9%8A-%D9%82%D8%A8%D9%84-%D8%A7%D9%95%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A/blte63aaf35b4492905)
+- **دوري أبطال أوروبا: القائد ماركينيوس لتعبيد الطريق أمام سان جرمان**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260224-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%85%D8%A7%D8%B1%D9%83%D9%8A%D9%86%D9%8A%D9%88%D8%B3-%D9%84%D8%AA%D8%B9%D8%A8%D9%8A%D8%AF-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86)
+- **حكيمي ضمن قائمة باريس لمواجهة موناكو**: [Link](https://www.hesport.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B6%D9%85%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-428544.html)
+
+
+### juventus – galatasaray (N/A, Wed, 25 Feb 2026 11:20:00 -0800)
+
+- **Juventus-Galatasaray MAÇI CANLI | Juventus-Galatasaray maçı ne zaman, saat kaçta ve hangi kanalda?**: [Link](https://www.fotomac.com.tr/galatasaray/2026/02/25/juventus-galatasaray-canli-ne-zaman-saat-kacta-ve-hangi-kanalda-1772034619)
+- **İtalya'da olay! Juventus maçı öncesi Galatasaray taraftarlarına müdahale...**: [Link](https://www.fanatik.com.tr/galatasaray/son-dakika-italyada-mac-oncesi-olay-juventus-maci-oncesi-galatasaray-taraftarlarina-mudahale-2613847)
+- **Spalletti taraftarlardan destek istedi veya Juventus bir mucizeye ihtiyaç duyuyor**: [Link](https://zamin.uz/tr/spor/191585-spalletti-taraftarlardan-destek-istedi-veya-juventus-bir-mucizeye-ihtiyac-duyuyor.html)
+
+
+### psg vs monaco (N/A, Wed, 25 Feb 2026 11:20:00 -0800)
+
+- **UEFA Appoints Kovacs to Officiate Paris Saint-Germain vs. Monaco Match**: [Link](http://m.elbotola.com/en/article/2026-02-24-11-45-458.html)
+- **These 5 French feats ASM should take inspiration from before facing PSG**: [Link](https://onefootball.com/en/news/these-5-french-feats-asm-should-take-inspiration-from-before-facing-psg-42466331)
+- **Champions League: PSG boss Enrique says no resting on laurels against Monaco**: [Link](https://www.rfi.fr/en/sports/20260225-champions-league-psg-boss-enrique-says-no-resting-on-laurels-against-monaco)
+
+
+### paris-sg – monaco (N/A, Wed, 25 Feb 2026 11:10:00 -0800)
+
+- **LdC: le PSG privé de Dembélé et Ruiz face à Monaco (Barrage retour)**: [Link](https://www.lesiteinfo.com/sport/667474-ldc-le-psg-prive-de-dembele-et-ruiz-face-a-monaco-barrage-retour.html)
+- **Distractions, pression, ambiance... Qui a le meilleur cadre de vie entre footballeur au PSG et à Monaco ?**: [Link](https://www.lequipe.fr/Football/Article/Distractions-pression-ambiance-qui-a-le-meilleur-cadre-de-vie-entre-footballeur-au-psg-et-a-monaco/1654841)
+- **PSG-Monaco, un carton annoncé !**: [Link](https://www.sports.fr/football/psg/psg-monaco-un-carton-annonce-993907.html)
+
+
+### الريال ضد بنفيكا (N/A, Wed, 25 Feb 2026 11:10:00 -0800)
+
+- **التشكيل الرسمي: في غياب مبابي.. قائد شاب لهجوم ريال مدريد ضد بنفيكا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D9%82%D8%A7%D9%8A%D9%94%D8%AF-%D8%B4%D8%A7%D8%A8-%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7/blt9c4b73fd3e047482)
+- **مباشر مباراة ريال مدريد ضد بنفيكا في إياب دوري أبطال أوروبا 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/25/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7?update=8872158)
+- **كيليان مبابي يغيب عن مباراة بنفيكا**: [Link](https://www.hesport.com/%D9%83%D9%8A%D9%84%D9%8A%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7-428524.html)
+
+
+### samsung (N/A, Wed, 25 Feb 2026 11:10:00 -0800)
+
+- **Samsung Galaxy S26 Ultra introduces breakthrough privacy screen**: [Link](https://www.usatoday.com/story/tech/columnists/2026/02/25/samsung-galaxy-privacy-screen-display/88860603007/)
+- **Big Shock: Samsung's Galaxy S26 Ultra Camera Updates Have a Ton of AI**: [Link](https://www.cnet.com/tech/mobile/samsung-galaxy-s26-ultra-camera-updates/)
+- **Everything Samsung Announced at Galaxy Unpacked 2026**: [Link](https://www.wired.com/story/samsung-galaxy-s26-series-galaxy-unpacked/)
+
+
+### النجمة ضد النصر (N/A, Wed, 25 Feb 2026 10:40:00 -0800)
+
+- **الكلاسيكو يورط إينيجو مارتينيز في النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%8A%D9%88%D8%B1%D8%B7-%D8%A7%D9%95%D9%8A%D9%86%D9%8A%D8%AC%D9%88-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt25f030d7d39e17ec)
+- **تأكيد الفرق على استهداف كريستيانو رونالدو لقمة الدوري السعودي للمحترفين**: [Link](https://albalad.news/sport/%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86/375646/)
+- **الحلم سبورت : دونجا في مواجهة رونالدو.. النصر يبحث عن العودة للصدارة أمام النجمة بالدوري السعودي**: [Link](https://al7lmnews.com/news/%D9%83%D8%B1%D8%A9-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AF%D9%88%D9%86%D8%AC%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A7/)
+
+
 ### dortmund (N/A, Wed, 25 Feb 2026 10:20:00 -0800)
 
 - **Traustein: Mutter soll Kleinkind getötet haben – Polizei ermittelt**: [Link](https://www.spiegel.de/panorama/traustein-mutter-soll-kleinkind-getoetet-haben-polizei-ermittelt-a-f69a8a8a-780a-43c2-8294-afdf3732c4a3)
