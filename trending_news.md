@@ -1,3 +1,22 @@
+### raja casablanca (N/A, Wed, 25 Feb 2026 15:40:00 -0800)
+
+- **RS Berkane annonce la blessure de Lamlioui et son absence contre le Raja**: [Link](https://m.elbotola.com/fr/article/2026-02-25-11-38-602.html)
+- **Le Raja à Oujda en vue du match reporté contre la RS Berkane**: [Link](https://m.elbotola.com/fr/article/2026-02-23-22-48-980.html)
+- **Le Raja retrouve Ismaïl Khafi face à la RS Berkane après sa suspension**: [Link](https://m.elbotola.com/fr/article/2026-02-24-16-20-888.html)
+
+
+### عاصفة رعدية (N/A, Wed, 25 Feb 2026 15:30:00 -0800)
+
+- **ستشهد المنطقة الشمالية عواصف رعدية متفرقة.**: [Link](https://www.vietnam.vn/ar/mien-bac-co-mua-dong-rai-rac)
+- **طقس بارد وعواصف رعدية واسعة النطاق تتسبب في اضطرابات جوية قوية في شمال فيتنام وتثير القلق بين السكان**: [Link](https://akher.news/55071/%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%88%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%A7%D8%B3%D8%B9%D8%A9-%D8%A7%D9%84%D9%86%D8%B7%D8%A7%D9%82-%D8%AA%D8%AA%D8%B3/)
+- **جنوب فيتنام يسجل درجات حرارة مرتفعة تصل إلى 36 درجة مئوية بدلاً من هانوي التي تشهد أمطاراً خفيفة**: [Link](https://www.iqraa24.com/news/%D8%AC%D9%86%D9%88%D8%A8-%D9%81%D9%8A%D8%AA%D9%86%D8%A7%D9%85-%D9%8A%D8%B3%D8%AC%D9%84-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A9-%D8%AA%D8%B5/)
+
+
+### نتائج مباريات اليوم (N/A, Wed, 25 Feb 2026 14:30:00 -0800)
+
+
+
+
 ### rca (N/A, Wed, 25 Feb 2026 15:10:00 -0800)
 
 - **Veste bună! Constatarea amiabilă a accidentelor va fi disponibilă în format digital și iată două mari beneficii**: [Link](https://autoblog.md/veste-buna-constatarea-amiabila-a-accidentelor-va-fi-disponibila-in-format-digital-si-iata-doua-mari-beneficii/)
