@@ -1,3 +1,24 @@
+### dortmund (N/A, Wed, 25 Feb 2026 10:20:00 -0800)
+
+- **Traustein: Mutter soll Kleinkind getötet haben – Polizei ermittelt**: [Link](https://www.spiegel.de/panorama/traustein-mutter-soll-kleinkind-getoetet-haben-polizei-ermittelt-a-f69a8a8a-780a-43c2-8294-afdf3732c4a3)
+- **Traunstein: Mutter tötet ihr Kind und verletzt sich selbst**: [Link](https://www.br.de/nachrichten/bayern/traunstein-mutter-toetet-ihr-kind-und-verletzt-sich-selbst,VCFsI9Z)
+- **Mutter soll Kleinkind in Bayern getötet haben: Verdächtige in Psychiatrie**: [Link](https://www.stern.de/news/mutter-soll-kleinkind-in-bayern-getoetet-haben--verdaechtige-in-psychiatrie-37170530.html)
+
+
+### real madrid – benfica (N/A, Wed, 25 Feb 2026 09:30:00 -0800)
+
+- **Doubt Surrounds Mbappé's Participation for Real Madrid Against Benfica Due to Renewed Knee Injury**: [Link](https://m.elbotola.com/en/article/2026-02-24-19-00-491.html)
+- **Mbappe season on ice ahead of silverware sprint, World Cup**: [Link](https://www.rfi.fr/en/sports/20260225-mbappe-season-on-ice-ahead-of-silverware-sprint-world-cup)
+- **Vini Jr backed by Bernabéu mosaic as UEFA upholds Prestianni ban for Benfica return**: [Link](https://onefootball.com/de/news/vini-jr-backed-by-bernabeu-mosaic-as-uefa-upholds-prestianni-ban-for-benfica-return-42466834)
+
+
+### al-hazem vs al-ittihad (N/A, Tue, 24 Feb 2026 13:10:00 -0800)
+
+- **Al-Hazem 1-1 Al-Ittihad: Al Dhuwayhi's late leveller continues visitors' away-day struggles**: [Link](https://www.fotmob.com/sw/news/f5ib3n47jv4s1d705f0ntjqua-al-hazem-1-1-al-ittihad-al-dhuwayhis-late-leveller-continues-visitors-away-day-struggles)
+- **Concern in Al-Ettifaq Before Facing Al-Hazm Due to Team Star**: [Link](https://www.ysscores.com/en/news/13917505/Concern-in-Al-Ettifaq-Before-Facing-Al-Hazm-Due-to-Team-Star)
+- **Al Hazem vs Al Ettifaq Preview & Prediction**: [Link](https://www.thestatszone.com/al-hazem-vs-al-ettifaq-preview-prediction-172930)
+
+
 ### atalanta – dortmund (N/A, Wed, 25 Feb 2026 09:10:00 -0800)
 
 - **Palladino: ‘Atalanta will be aggressive with Dortmund, Ederson not 100 per cent’**: [Link](https://onefootball.com/pt-br/noticias/palladino-atalanta-will-be-aggressive-with-dortmund-ederson-not-100-per-cent-42466571)
