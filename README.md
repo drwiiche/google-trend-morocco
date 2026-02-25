@@ -1,3 +1,24 @@
+### raja vs berkane (N/A, Wed, 25 Feb 2026 14:40:00 -0800)
+
+- **Raja's Lineup Against RS Berkane: Mouqaddem, Khafifi, Banoun in Defense, Khafi and Matias Lead Attack**: [Link](https://m.elbotola.com/en/article/2026-02-25-21-14-566.html)
+- **Raja Club Athletic Travels to Oujda Ahead of RS Berkane Clash**: [Link](https://m.elbotola.com/en/article/2026-02-23-22-48-578.html)
+- **RS Berkane Releases Raja Match Tickets, Priced Between 30 and 150 Dirhams**: [Link](https://m.elbotola.com/en/article/2026-02-23-13-47-773.html)
+
+
+### الدعم الاجتماعي المباشر (N/A, Wed, 25 Feb 2026 14:40:00 -0800)
+
+- **الوكالة الوطنية للدعم الاجتماعي تفتتح أول تمثيلية ترابية لها بالجديدة لتقريب الخدمات من المرتفقين**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D8%AA%D9%81%D8%AA%D8%AA%D8%AD-%D8%A3%D9%88%D9%84-%D8%AA%D9%85%D8%AB%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D9%84%D9%87%D8%A7-%D8%A8%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%AA%D9%82%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%81%D9%82%D9%8A%D9%86)
+- **الجديدة.. افتتاح أول تمثيلية ترابية للوكالة الوطنية للدعم الاجتماعي**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A3%D9%88%D9%84-%D8%AA%D9%85%D8%AB%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%88/)
+- **"وكالة الدعم" تفتتح أول تمثيلية ترابية**: [Link](https://www.hespress.com/%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%AA%D9%81%D8%AA%D8%AA%D8%AD-%D8%A3%D9%88%D9%84-%D8%AA%D9%85%D8%AB%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-1707012.html)
+
+
+### مباريات اليوم (N/A, Wed, 25 Feb 2026 13:20:00 -0800)
+
+- **جدول مباريات اليوم الخميس 26 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-26-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt259bf0b7bcf94ae4)
+- **نتائج مباشرة و مصيرية فى مواجهات اليوم فى دوريات العالم**: [Link](https://twaslnews.twaslnews.com/662838/)
+- **معركة الـ "برنابيو" و"حديقة الأمراء": من سيكمل عقد أوروبا الكبير الليلة؟**: [Link](https://akhbaralasr.com/story1056087)
+
+
 ### psg - mónaco (N/A, Wed, 25 Feb 2026 14:00:00 -0800)
 
 - **PSG 2 (5)- (4) 2 Mónaco: Resumen, resultado y goles del partido | Champions League en directo**: [Link](https://as.com/futbol/champions/psg-monaco-en-directo-playoffs-de-uefa-champions-league-hoy-f202602-d/)
