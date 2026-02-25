@@ -1,3 +1,10 @@
+### newcastle (N/A, Tue, 24 Feb 2026 13:10:00 -0800)
+
+- **Champions League: Premier League clubs to learn last-16 opponents in Friday's draw**: [Link](https://www.skysports.com/football/news/11945/13511136/champions-league-premier-league-clubs-to-learn-last-16-opponents-in-fridays-draw)
+- **PSG vs. Barça? Real Madrid vs. Man City? Atleti vs. Liverpool? Potential outcomes for the Champions League draw**: [Link](https://www.gamereactor.eu/psg-vs-barca-real-madrid-vs-man-city-atleti-vs-liverpool-potential-outcomes-for-the-champions-league-draw-1680123/)
+- **UEFA Champions League: When is the knockout stage draw, who can Chelsea play, how to watch live**: [Link](https://www.chelseafc.com/en/news/article/uefa-champions-league-when-is-the-knockout-stage-draw-who-can-chelsea-play)
+
+
 ### walid regragui (N/A, Tue, 24 Feb 2026 12:10:00 -0800)
 
 
