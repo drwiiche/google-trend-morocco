@@ -1,3 +1,24 @@
+### psg - mónaco (N/A, Wed, 25 Feb 2026 14:00:00 -0800)
+
+- **PSG 2 (5)- (4) 2 Mónaco: Resumen, resultado y goles del partido | Champions League en directo**: [Link](https://as.com/futbol/champions/psg-monaco-en-directo-playoffs-de-uefa-champions-league-hoy-f202602-d/)
+- **🎂 La estrella del Mónaco logra el regalo de cumpleaños perfecto ante el PSG**: [Link](https://onefootball.com/de/news/la-estrella-del-monaco-logra-el-regalo-de-cumpleanos-perfecto-ante-el-psg-42467584)
+- **Paris Saint-Germain tiene dominado al Monaco, ¿verdad?**: [Link](https://www.foxdeportes.com/champions-league/nota/paris-saint-germain-tiene-dominado-al-monaco-verdad)
+
+
+### paris (N/A, Wed, 25 Feb 2026 13:50:00 -0800)
+
+- **INFO BFMTV. Rachida Dati a remis sa démission et annonce quitter le gouvernement pour se consacrer à sa campagne pour les municipales à Paris**: [Link](https://www.bfmtv.com/politique/gouvernement/info-bfmtv-la-ministre-de-la-culture-rachida-dati-annonce-quitter-le-gouvernement-pour-se-consacrer-a-sa-campagne-pour-les-municipales-a-paris_AN-202602250845.html)
+- **« Ce sera mercredi au plus tôt » : le « réajustement gouvernemental » repoussé**: [Link](https://www.leparisien.fr/politique/ce-sera-mercredi-au-plus-tot-le-reajustement-gouvernemental-repousse-21-02-2026-S6BZOYOMRFAGRC3SHYVGXQ5MRY.php)
+- **Rachida Dati va se consacrer exclusivement aux municipales à Paris**: [Link](https://www.swissinfo.ch/fre/rachida-dati-va-se-consacrer-exclusivement-aux-municipales-%C3%A0-paris/90999471)
+
+
+### كورة (N/A, Wed, 25 Feb 2026 13:30:00 -0800)
+
+- **يحدث لأول مرة.. رقم تاريخي يزين عودة النصر لصدارة دوري روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%AD%D8%AF%D8%AB-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9--%D8%B1%D9%82%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%8A%D8%B2%D9%8A%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/bltd2993d3e48ef60b5)
+- **مدرب النصر: "أثناء الصيام لا يُسمح لأي لاعب بشرب الماء قبل نهاية الحصة التدريبية احتراما لعادات السعوديين"**: [Link](https://m.elbotola.com/article/2026-02-25-14-57-204.html)
+- **البرتغالي جورجي جيسوس مدرب نادي النصر السعودي (x/Al Nassr) - winwin**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%B7%D9%88%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%A3%D9%84%D9%88%D9%81%D8%A9-%D9%85%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+
+
 ### rma (N/A, Wed, 25 Feb 2026 13:30:00 -0800)
 
 - **HortNZ calls for major changes to proposed replacement of the RMA**: [Link](https://www.hortidaily.com/article/9814314/hortnz-calls-for-major-changes-to-proposed-replacement-of-the-rma/)
