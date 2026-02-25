@@ -1,3 +1,45 @@
+### kooora (N/A, Wed, 25 Feb 2026 13:10:00 -0800)
+
+- **خبير تحكيمي يجيب.. هل استحق فينيسيوس ركلة جزاء أمام بنفيكا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A8%D9%8A%D8%B1-%D8%AA%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%AC%D9%8A%D8%A8--%D9%87%D9%84-%D8%A7%D8%B3%D8%AA%D8%AD%D9%82-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7/blte1340c09cd0a0a55)
+- **"لقد فاز بقلبي اليوم".. المدريديستا يشيدون ببطولة أحد لاعبي ريال مدريد في الفوز على بنفيكا**: [Link](https://tribuna.com/ar/blogs/lqd-fz-bqlby-lywm-lmdrydyst-yshydwn-bbtwl-hd-lby-ryl-mdryd-f/)
+- **“فضيحة” الحكم يحرم ريال مدريد من ركلة جزاء واضحة أمام بنفيكا!**: [Link](https://hihi2.com/2026/02/26/p3667348.html)
+
+
+### yalla kora (N/A, Wed, 25 Feb 2026 13:10:00 -0800)
+
+- **جدول مباريات اليوم الخميس 26 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-26-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt259bf0b7bcf94ae4)
+- **نتائج مباشرة و مصيرية فى مواجهات اليوم فى دوريات العالم**: [Link](https://twaslnews.twaslnews.com/662838/)
+- **معركة الـ "برنابيو" و"حديقة الأمراء": من سيكمل عقد أوروبا الكبير الليلة؟**: [Link](https://akhbaralasr.com/story1056087)
+
+
+### koora (N/A, Wed, 25 Feb 2026 13:10:00 -0800)
+
+- **العلاقة تتدهور.. أليجري يتمهل قبل حسم مستقبله مع ميلان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A9-%D8%AA%D8%AA%D8%AF%D9%87%D9%88%D8%B1--%D8%A7%D9%94%D9%84%D9%8A%D8%AC%D8%B1%D9%8A-%D9%8A%D8%AA%D9%85%D9%87%D9%84-%D9%82%D8%A8%D9%84-%D8%AD%D8%B3%D9%85-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84%D9%87-%D9%85%D8%B9-%D9%85%D9%8A%D9%84%D8%A7%D9%86/blt5bfa63673d257333)
+- **"غاضب وغير راض".. أليغري يفكر في الرحيل عن ميلان**: [Link](https://www.alarabiya.net/sport/2026/02/25/%D8%BA%D8%A7%D8%B6%D8%A8-%D9%88%D8%BA%D9%8A%D8%B1-%D8%B1%D8%A7%D8%B6-%D8%A7%D9%84%D9%8A%D8%BA%D8%B1%D9%8A-%D9%8A%D9%81%D9%83%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D9%85%D9%8A%D9%84%D8%A7%D9%86)
+- **أليغري غاضب ويفكر في ترك ميلان**: [Link](https://slaati.com/2026/02/25/p2753731.html)
+
+
+### otamendi (N/A, Wed, 25 Feb 2026 13:10:00 -0800)
+
+- **Nicolás Otamendi’s Mockery of Vinícius With His World Cup and Copa América Tattoo During Benfica vs Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/nicol%C3%A1s-otamendi-s-mockery-of-vin%C3%ADcius-with-his-world-cup-and-copa-am%C3%A9rica-tattoo-during-benfica-vs-real-madrid-2026-02-18)
+- **Roncero calls him a thug, overrated and finished: 'today they will tear him apart'**: [Link](https://madrid-barcelona.com/en/real-madrid/roncero-calls-him-an-overrated-washed-up-thug-today-they-will-have-broken-him)
+- **Real Madrid Fans’ Reaction to Nicolás Otamendi After He Showed the World Cup to Vinícius**: [Link](https://www.elfutbolero.us/champions-league/real-madrid-fans-reaction-to-nicolas-otamendi-after-he-showed-the-world-cup-to-vinicius-20260225-52070.html)
+
+
+### بث مباشر (N/A, Wed, 25 Feb 2026 13:00:00 -0800)
+
+- **الحلم سبورت : أرنولد إيبا و حسام حسن يقودان هجوم مودرن أمام المصرى**: [Link](https://al7lmnews.com/news/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A3%D8%B1%D9%86%D9%88%D9%84%D8%AF-%D8%A5%D9%8A%D8%A8%D8%A7-%D9%88-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%8A%D9%82%D9%88/)
+- **الدوري الممتاز.. المصري البورسعيدي يتعادل مع مودرن سبورت في الشوط الأول**: [Link](https://darelhilal.com/News/3185510.aspx)
+- **عاجل: المصري في خطر! مواجهة نارية الليلة قد تُخرجه من السبعة الكبار نهائياً**: [Link](https://yemen-press.net/news168863.html)
+
+
+### s26 ultra (N/A, Wed, 25 Feb 2026 12:50:00 -0800)
+
+- **Samsung unveils Galaxy S26; lifts prices in key markets amid chip price surge**: [Link](https://www.globalbankingandfinance.com/samsung-unveils-galaxy-s26-lifts-prices-key-markets-amid/)
+- **Samsung Galaxy S26 vs Galaxy S25 FE: For me, the premium is worth it**: [Link](https://www.androidauthority.com/galaxy-s26-vs-galaxy-s25-fe-3643560/)
+- **Samsung S26 Ultra's Privacy Display Makes Shoulder Surfing a Thing of the Past**: [Link](https://www.cnet.com/tech/mobile/samsung-s26-ultras-privacy-display-feature-makes-shoulder-surfing-a-thing-of-the-past/)
+
+
 ### yallakora (N/A, Wed, 25 Feb 2026 12:40:00 -0800)
 
 - **جدول مباريات اليوم الأربعاء 25 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-25-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt6f4bf456e9f6ee9e)
