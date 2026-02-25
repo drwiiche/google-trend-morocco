@@ -1,3 +1,10 @@
+### champions league (N/A, Wed, 25 Feb 2026 11:20:00 -0800)
+
+- **Newcastle 3-2 Qarabag (agg 9-3): Eddie Howe's side into Champions League last 16**: [Link](https://www.bbc.com/sport/football/live/c5yg2842n3kt)
+- **Main news from English football on 24th February**: [Link](https://www.besoccer.com/new/main-news-from-english-football-on-24th-february-1396382)
+- **TF Match Report - United 3-2 Qarabag (9-3 agg)**: [Link](https://tf1892.substack.com/p/tf-match-report-united-3-2-qarabag)
+
+
 ### بي اس جي ضد موناكو (N/A, Wed, 25 Feb 2026 11:20:00 -0800)
 
 - **"لا نتيجة نحميها".. تصريح إنريكي الناري قبل إياب الملحق الأوروبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D9%86%D8%AD%D9%85%D9%8A%D9%87%D8%A7--%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%A7%D9%84%D9%86%D8%A7%D8%B1%D9%8A-%D9%82%D8%A8%D9%84-%D8%A7%D9%95%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A/blte63aaf35b4492905)
