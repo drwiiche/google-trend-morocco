@@ -1,3 +1,66 @@
+### yallakora (N/A, Wed, 25 Feb 2026 12:40:00 -0800)
+
+- **جدول مباريات اليوم الأربعاء 25 فبراير 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-25-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt6f4bf456e9f6ee9e)
+- **جدول مباريات اليوم الأربعاء 25 فبراير ومواعيد مباريات الغد**: [Link](https://yallanews.net/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-25-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D9%88%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%BA%D8%AF)
+- **الحلم سبورت : مواعيد مباريات اليوم.. الريال ضد بنفيكا وباريس سان جيرمان مع موناكو**: [Link](https://al7lmnews.com/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B1/)
+
+
+### يوفنتوس ضد غلطة سراي (N/A, Wed, 25 Feb 2026 12:40:00 -0800)
+
+- **سباليتي يطالب جماهير يوفنتوس بدعم مكثف لتعويض الخسارة أمام غلطة سراي**: [Link](https://m.elbotola.com/article/2026-02-24-16-45-559.html)
+- **يوفنتوس يبحث عن ريمونتادا تاريخية أمام جالاتا سراي في دوري الأبطال**: [Link](https://www.youm7.com/story/2026/2/25/%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%AC%D8%A7%D9%84%D8%A7%D8%AA%D8%A7-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A/7316778)
+- **من أجل الريمونتادا.. تشكيلة يوفنتوس أمام غلطة سراي بدوري أبطال أوروبا**: [Link](https://sports.asharq.com/football/101265/%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%A7%D9%84%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A/)
+
+
+### bolivie (N/A, Wed, 25 Feb 2026 12:40:00 -0800)
+
+- **Maroc-Bolivie : sécurité alimentaire et engrais au cœur du rapprochement**: [Link](https://ledesk.ma/encontinu/maroc-bolivie-securite-alimentaire-et-engrais-au-coeur-du-rapprochement/)
+- **Sahara : la Bolivie suspend sa reconnaissance de la RASD**: [Link](https://mobile.telquel.ma/instant-t/2026/02/24/sahara-la-bolivie-suspend-sa-reconnaissance-de-la-rasd_1976329/)
+- **Bolivie–Maroc : les ressorts d’un revirement diplomatique**: [Link](https://lematin.ma/nation/boliviemaroc-les-ressorts-dun-revirement-diplomatique/331925)
+
+
+### real madrid (N/A, Wed, 25 Feb 2026 12:30:00 -0800)
+
+- **Real Madrid - Benfica, en directo: playoff de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-benfica-en-directo-ultima-hora-del-playoff-de-la-champions-league-hoy-en-vivo-f202602-d/)
+- **“No al racismo” y “Respect”, el apoyo del Bernabéu a Vinícius**: [Link](https://es-us.noticias.yahoo.com/deportes/racismo-respect-apoyo-bernab%C3%A9u-vin%C3%ADcius-203430679.html)
+- **Tchouaméni despierta al Real Madrid con un tiro a lo Kroos tras un jugadón colectivo**: [Link](https://okdiario.com/diariomadridista/real-madrid/tchouameni-despierta-real-madrid-tiro-lo-kroos-jugadon-610227)
+
+
+### juventus (N/A, Wed, 25 Feb 2026 12:30:00 -0800)
+
+- **Spalletti chiama lo Stadium: "Tifosi con noi! Retroscena Yildiz, Bremer di pasta bianconera e Di Gregorio..."**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/02/24-146839509/spalletti_chiama_lo_stadium_tifosi_con_noi_retroscena_yildiz_bremer_di_pasta_bianconera_e_di_gregorio_)
+- **Juventus - Galatasaray, anteprima di Champions League: dove guardarla, stato di forma e dichiarazioni**: [Link](https://it.uefa.com/uefachampionsleague/news/02a2-2002a5707439-cce1d863acd4-1000--juventus-galatasaray-anteprima-di-champions-league-dove-/)
+- **✅ Le UFFICIALI di Juve-Gala: le scelte su Bremer, Yildiz, Koop e Osimhen**: [Link](https://onefootball.com/it/notizie/le-ufficiali-di-juve-gala-le-scelte-su-bremer-yildiz-koop-e-osimhen-42466916)
+
+
+### juventus vs galatasaray (N/A, Wed, 25 Feb 2026 12:30:00 -0800)
+
+- **How much Juventus will earn if they overturn 5-2 Galatasaray scoreline**: [Link](https://football-italia.net/how-much-juventus-will-earn-overturn-gala/)
+- **🔴 Juve-Gala 0-0: Locatelli-Conceicao go close, Gatti-Osimhen clash 💥**: [Link](https://onefootball.com/en/news/juve-gala-0-0-locatelli-conceicao-go-close-gatti-osimhen-clash-42466917)
+- **Chiellini tells Juventus: ‘Score a goal, then we’ll see…’**: [Link](https://sports.yahoo.com/articles/chiellini-tells-juventus-score-goal-202500953.html)
+
+
+### bein match (N/A, Wed, 25 Feb 2026 12:20:00 -0800)
+
+- **دوري أبطال أوروبا للشباب: باريس سان جيرمان يحقق فوزاً كبيراً أمام هيلسنكي ويتأهل إلى ربع النهائي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D9%87%D9%8A%D9%84%D8%B3%D9%86%D9%83%D9%8A-%D9%88%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-2026-02-25)
+- **نجم منتخب تونس يقود سان جيرمان لربع نهائي أبطال أوروبا للشباب (فيديو)**: [Link](https://www.eremnews.com/sports/lmgizui)
+- **بالفيديو: أسينسيو يمنح بنفيكا هدفًا بتسديدة كوميدية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%94%D8%B3%D9%8A%D9%86%D8%B3%D9%8A%D9%88-%D9%8A%D9%85%D9%86%D8%AD-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7-%D9%87%D8%AF%D9%81%D9%8B%D8%A7-%D8%A8%D8%AA%D8%B3%D8%AF%D9%8A%D8%AF%D8%A9-%D9%83%D9%88%D9%85%D9%8A%D8%AF%D9%8A%D8%A9/blt26a5413f6f830040)
+
+
+### benfica (N/A, Wed, 25 Feb 2026 12:10:00 -0800)
+
+- **O Santiago Bernabéu vai inaugurar um mosaico diante do Benfica com as mensagens “sem racismo” e “respeito”.**: [Link](https://www.segundabase.com.br/estatisticas/o-santiago-bernabeu-vai-inaugurar-um-mosaico-diante-do-benfica-com-as-mensagens-sem-racismo-e-respeito/138730/)
+- **Torcida do Real mostra faixa após denúncia feita por Vini Jr. 👇🏽**: [Link](https://onefootball.com/pt-br/noticias/torcida-do-real-mostra-faixa-apos-denuncia-feita-por-vini-jr-42467347)
+- **Real Madrid-Benfica (equipas): Richard Ríos rende Prestianni no Bernabéu**: [Link](https://tvi.iol.pt/noticias/liga-campeoes/benfica/real-madrid-benfica-equipas-richard-rios-rende-prestianni-no-bernabeu)
+
+
+### match real (N/A, Wed, 25 Feb 2026 12:10:00 -0800)
+
+- **Real Madrid-Benfica : les compositions officielles**: [Link](https://www.footmercato.net/a2053244621056716540-real-madrid-benfica-les-compositions-officielles)
+- **Marqué par l'affaire Vinicius-Prestianni, le play-off retour entre le Real Madrid et Benfica s'annonce brûlant : « La bronca qu'on leur réserve va être monumentale »**: [Link](https://www.lequipe.fr/Football/Article/Marque-par-l-affaire-vinicius-prestianni-le-play-off-retour-entre-le-real-madrid-et-benfica-s-annonce-brulant-la-bronca-qu-on-leur-reserve-va-etre-monumentale/1654799)
+- **Real Madrid-Benfica : pour la qualification en huitièmes de la Champions**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/preliminaires/real-madrid-benfica-a-por-la-clasificacion-para-los-octavos-de-la-champions-25-02-2026)
+
+
 ### champions league (N/A, Wed, 25 Feb 2026 11:20:00 -0800)
 
 - **Newcastle 3-2 Qarabag (agg 9-3): Eddie Howe's side into Champions League last 16**: [Link](https://www.bbc.com/sport/football/live/c5yg2842n3kt)
