@@ -1,3 +1,10 @@
+### walid regragui maroc (N/A, Wed, 25 Feb 2026 03:50:00 -0800)
+
+- **Walid Regragui quitte les Lions de l’Atlas à quelques mois du Mondial 2026**: [Link](https://ledesk.ma/encontinu/walid-regragui-quitte-les-lions-de-latlas-a-quelques-mois-du-mondial-2026/)
+- **Football : Walid Regragui sur le départ de la sélection marocaine, plusieurs noms circulent déjà pour le remplacer**: [Link](https://www.leparisien.fr/sports/football/coupe-du-monde/football-walid-regragui-sur-le-depart-de-la-selection-marocaine-plusieurs-noms-circulent-deja-pour-le-remplacer-24-02-2026-RWCJOLAMMNHLNFSSJHIIQ36KTA.php)
+- **Le Maroc dément un départ de Walid Regragui**: [Link](https://www.footmercato.net/a3695915593373596776-le-maroc-dement-un-depart-de-walid-regragui)
+
+
 ### claude ai (N/A, Wed, 25 Feb 2026 01:40:00 -0800)
 
 - **"Claude Killed Our Startup": San Francisco Entrepreneur Says AI Tool Made Her Product Obsolete**: [Link](https://www.ndtv.com/feature/claude-killed-our-startup-san-francisco-entrepreneur-says-ai-tool-made-her-product-obsolete-11130230)
