@@ -1,3 +1,24 @@
+### nottm forest – fenerbahçe (N/A, Thu, 26 Feb 2026 11:30:00 -0800)
+
+- **The 5 Forest stars who will miss the Fenerbahce clash this week including Wood and Sels**: [Link](https://www.tribalfootball.com/article/soccer-europa-league-the-5-forest-stars-who-will-miss-the-fenerbahce-clash-this-week-including-wood-and-sels-b28b85da-ed5c-4817-9cc0-b96059b93665)
+- **VÍTOR PEREIRA'S FENERBAHÇE PROGRAMME NOTES**: [Link](https://www.nottinghamforest.co.uk/news/2026/february/26/v-tor-pereira-s-fenerbah-e-programme-notes/)
+- **Nottingham Forest news: Vitor Pereira making right noises before Europa League game**: [Link](https://www.bbc.co.uk/sport/football/articles/c627lgxz077o)
+
+
+### crystal palace – zrinjski mostar (N/A, Thu, 26 Feb 2026 11:30:00 -0800)
+
+- **Henderson calls for ‘unity’ as fractious Palace face crucial clash with Zrinjski**: [Link](https://www.theguardian.com/football/2026/feb/26/crystal-palace-europa-conference-league-dean-henderson-oliver-glasner-zrinjski-mostar)
+- **Crystal Palace vs Zrinjski: Confirmed team news**: [Link](https://www.bbc.com/sport/football/articles/cjrzez2jre1o?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
+- **STAR FOOTBALL PREVIEW Thurs: Crystal Palace vs Zrinjski Mostar**: [Link](https://www.starsportsbet.co.uk/star-football-preview-thurs-crystal-palace-vs-zrinjski-mostar/)
+
+
+### الجامعة الملكية المغربية لكرة القدم (N/A, Thu, 26 Feb 2026 06:00:00 -0800)
+
+- **جامعة الكرة تناقش تقييم كأس إفريقيا**: [Link](https://www.hespress.com/%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%AA%D9%86%D8%A7%D9%82%D8%B4-%D8%AA%D9%82%D9%8A%D9%8A%D9%85-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1707542.html)
+- **فوزي لقجع يحدد موعد تقييم مشوار المنتخب “الكـان”**: [Link](https://www.radiomars.ma/%D9%81%D9%88%D8%B2%D9%8A-%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AA%D9%82%D9%8A%D9%8A%D9%85-%D9%85%D8%B4%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE/)
+- **العصبة الاحترافية ترفع مقترحات تعديلية للجامعة**: [Link](https://www.ahdath.info/article/249999/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%AA%D8%B1%D9%81%D8%B9-%D9%85%D9%82%D8%AA%D8%B1%D8%AD%D8%A7%D8%AA-%D8%AA%D8%B9%D8%AF%D9%8A%D9%84%D9%8A%D8%A9-%D9%84%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9)
+
+
 ### fiorentina – jagiellonia białystok (N/A, Thu, 26 Feb 2026 10:50:00 -0800)
 
 - **Kolejorz walczy o 1/8 finału LK! Lech – KuPS [LIVE]**: [Link](https://pilkanozna.pl/kolejorz-walczy-o-1-8-finalu-lk-lech-kups-live/)
