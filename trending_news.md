@@ -1,3 +1,10 @@
+### طقس مراكش (N/A, Thu, 26 Feb 2026 00:30:00 -0800)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-68-1707209.html)
+- **نشرة إنذارية (الظهيرة)**: [Link](https://2m.ma/ar/news/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B8%D9%87%D9%8A%D8%B1%D8%A9-20260225)
+- **أمطار رعدية ورياح قوية مرتقبة خلال الأيام المقبلة بهذه المناطق**: [Link](https://www.marrakechalaan.com/article-667906)
+
+
 ### what is a data breach (N/A, Wed, 25 Feb 2026 19:10:00 -0800)
 
 - **Another Data Breach? Here's How to Lock Down Your Online Accounts**: [Link](https://www.cnet.com/tech/services-and-software/another-data-breach-heres-how-to-lock-down-your-online-accounts/)
