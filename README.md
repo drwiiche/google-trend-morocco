@@ -1,3 +1,24 @@
+### asd (N/A, Thu, 26 Feb 2026 09:20:00 -0800)
+
+- **Anchorage School Board passes budget with closures and significant staff cuts**: [Link](https://www.adn.com/alaska-news/education/2026/02/25/anchorage-school-board-passes-budget-with-closures-and-significant-staff-cuts/)
+- **Anchorage School Board votes to close 3 schools amid $90M deficit**: [Link](https://www.alaskasnewssource.com/2026/02/25/anchorage-school-board-votes-close-multiple-schools-overhaul/)
+- **Anchorage School Board approves ‘severe’ budget with hundreds of staff layoffs and 3 school closures**: [Link](https://alaskapublic.org/news/education/2026-02-24/anchorage-school-board-approves-severe-budget-with-hundreds-of-staff-layoffs-and-3-school-closures)
+
+
+### étoile rouge – lille (N/A, Thu, 26 Feb 2026 09:10:00 -0800)
+
+- **Arnautovic, vie et frasques du "Zlatan du pauvre"**: [Link](https://www.eurosport.fr/football/ligue-europa/2025-2026/avant-etoile-rouge-de-belgrade-lille-marko-arnautovic-le-zlatan-du-pauvre-sest-enfin-assagi_sto23275176/story.shtml)
+- **Conforté par son président Olivier Létang, Bruno Genesio reste en place et sera sur le banc du LOSC à Angers**: [Link](https://www.lequipe.fr/Football/Actualites/Conforte-par-son-president-olivier-letang-bruno-genesio-reste-en-place-et-sera-sur-le-banc-du-losc-a-angers/1653678)
+- **LOSC : Thomas Meunier de retour à l’entraînement collectif, Ethan Mbappé en reprise individuelle**: [Link](https://footballko.com/2026/02/25/losc-thomas-meunier-de-retour-a-lentrainement-collectif-ethan-mbappe-en-reprise-individuelle/)
+
+
+### maroc sahara occidental (N/A, Thu, 26 Feb 2026 08:00:00 -0800)
+
+- **Les négociations de paix au Sahara-Occidental : une «odeur de pierre» à la couleur du leurre**: [Link](https://www.liberation.fr/idees-et-debats/tribunes/les-negociations-de-paix-au-sahara-occidental-une-odeur-de-pierre-a-la-couleur-du-leurre-20260226_S5YGS3Z7OFHRNL7RJEL7FXOQQA/)
+- **Du multilatéralisme normatif à la négociation sous contrainte stratégique**: [Link](https://www.leconomiste.com/du-multilateralisme-normatif-a-la-negociation-sous-contrainte-strategique/)
+- **ONU : Staffan de Mistura copréside à Washington des négociations sur le Sahara**: [Link](https://mobile.telquel.ma/instant-t/2026/02/25/onu-staffan-de-mistura-copreside-a-washington-des-negociations-sur-le-sahara_1976546/)
+
+
 ### المجلس الأعلى للسلطة القضائية (N/A, Thu, 26 Feb 2026 06:40:00 -0800)
 
 - **النطق بأحكام غير محررة يغضب عبد النباوي**: [Link](https://assabah.ma/904768.html)
