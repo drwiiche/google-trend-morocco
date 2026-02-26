@@ -1,3 +1,10 @@
+### محمد وهبي (N/A, Thu, 26 Feb 2026 03:30:00 -0800)
+
+- **ليس تشافي.. المغرب يقبل استقالة الركراكي ويعلن بديله خلال ساعات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D8%AA%D9%87%D8%AA-%D8%A7%D9%84%D8%B1%D8%AD%D9%84%D8%A9--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%A8%D9%84-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%88%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A8%D8%AF%D9%8A%D9%84%D9%87-%D8%A7%D9%84%D9%8A%D9%88%D9%85/blt5ba92432e74f1bec)
+- **المكتب المديري للجامعة الملكية المغربية لكرة القدم يعقد اجتماعا غدا الخميس**: [Link](https://m.elbotola.com/article/2026-02-25-19-16-700.html)
+- **لقجع يستدعي أعضاء المكتب المديري ورؤساء العصب لاجتماع غدا**: [Link](https://www.hesport.com/%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A-%D9%88%D8%B1%D8%A4%D8%B3-428568.html)
+
+
 ### cih (N/A, Thu, 26 Feb 2026 02:50:00 -0800)
 
 - **CIH Bank, de la quasi-faillite à l’innovation digitale**: [Link](https://fr.le360.ma/economie/cih-bank-de-la-quasi-faillite-a-linnovation-digitale_VVJK5NFHCBDWDHFHUGOBA2EI4E/)
