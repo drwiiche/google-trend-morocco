@@ -1,3 +1,10 @@
+### samsung galaxy s26 ultra (N/A, Wed, 25 Feb 2026 22:20:00 -0800)
+
+- **[Galaxy Unpacked 2026] A First Look at the Galaxy S26 Series: Samsung’s Most Intuitive AI Phone Yet**: [Link](https://news.samsung.com/global/galaxy-unpacked-2026-a-first-look-at-the-galaxy-s26-series-samsungs-most-intuitive-ai-phone-yet)
+- **Samsung Releases New Flagship Phones With Focus on Easy-to-Use AI**: [Link](https://www.wsj.com/tech/ai/samsung-releases-new-flagship-phones-with-focus-on-easy-to-use-ai-d7fa57f2?gaa_at=eafs&gaa_n=AWEtsqeWEivueflci2Dk-rV6F7c6RNOZJ_OBVQ8C-Rs1CKW1NxzcmX9qEKdj&gaa_ts=699fed1f&gaa_sig=t0xWpf-wpyf2JhRjJRxF2YDYKqZcp6m2hI06FZPOhmblxUNeIPP3vwKuT6lAp4exlzRB-_75JNBKNeWJnq0ETA%3D%3D)
+- **New Samsung Galaxy S26 phones just dropped: here’s everything you need to know**: [Link](https://www.nbcnews.com/select/shopping/samsung-galaxy-s26-ultra-buds-4-launch-preorder-rcna260687)
+
+
 ### movie theaters near me (N/A, Wed, 25 Feb 2026 18:50:00 -0800)
 
 - **ILs Largest Movie Theater Chain Plans To Close More Locations**: [Link](https://patch.com/illinois/tinleypark/ils-largest-movie-theater-chain-plans-close-more-locations)
