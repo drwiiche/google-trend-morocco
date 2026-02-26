@@ -1,3 +1,10 @@
+### resident evil requiem (N/A, Thu, 26 Feb 2026 11:40:00 -0800)
+
+- **Review | I played ‘Resident Evil Requiem’ 9 times. Here’s what does and doesn’t work.**: [Link](https://www.washingtonpost.com/entertainment/video-games/2026/02/25/resident-evil-requiem-video-game-review/)
+- **Resident Evil™ Requiem GeForce Game Ready Driver Released**: [Link](https://www.nvidia.com/en-us/geforce/news/resident-evil-requiem-geforce-game-ready-driver/)
+- **The Chicken’s Guide to Surviving Resident Evil Requiem**: [Link](https://news.xbox.com/en-us/2026/02/26/resident-evil-requiem-guide/)
+
+
 ### nottm forest – fenerbahçe (N/A, Thu, 26 Feb 2026 11:30:00 -0800)
 
 - **The 5 Forest stars who will miss the Fenerbahce clash this week including Wood and Sels**: [Link](https://www.tribalfootball.com/article/soccer-europa-league-the-5-forest-stars-who-will-miss-the-fenerbahce-clash-this-week-including-wood-and-sels-b28b85da-ed5c-4817-9cc0-b96059b93665)
