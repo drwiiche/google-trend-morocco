@@ -1,3 +1,17 @@
+### botola pro (N/A, Wed, 25 Feb 2026 16:10:00 -0800)
+
+- **Botola Pro: Raja Climbs to Top Spot After 1-1 Draw Against RS Berkane in Rescheduled Matchday 7 Fixture**: [Link](https://m.elbotola.com/en/article/2026-02-25-23-55-553.html)
+- **RS Berkane Releases Raja Match Tickets, Priced Between 30 and 150 Dirhams**: [Link](https://m.elbotola.com/en/article/2026-02-23-13-47-773.html)
+- **Raja Casablanca without three key players ahead of RS Berkane clash -**: [Link](https://africasoccer.com/raja-casablanca-without-three-key-players-ahead-of-rs-berkane-clash/)
+
+
+### ترتيب الدوري المغربي (N/A, Wed, 25 Feb 2026 16:00:00 -0800)
+
+- **الرجاء ينفرد مؤقتا بصدارة البطولة بعد تعادله مع نهضة بركان**: [Link](https://www.ahdath.info/article/249998/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%86%D9%81%D8%B1%D8%AF-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D8%A8%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D9%87-%D9%85%D8%B9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86)
+- **فادلو ديفيدز ينتقد التحكيم: "الهدف المبكر كان نقمة علينا والأخطاء تتكرر كل أسبوع"**: [Link](https://m.elbotola.com/article/2026-02-26-00-55-163.html)
+- **الشعباني يتلقى ضربة موجعة قبل مواجهة الرجاء**: [Link](https://sport.lesiteinfo.com/elbotola/488853.html)
+
+
 ### direction générale des impôts (N/A, Wed, 25 Feb 2026 15:50:00 -0800)
 
 - **Déclarations fiscales annuelles : le 2 mars 2026, dernier délai pour plusieurs catégories de contribuables**: [Link](https://www.leconomiste.com/flash-infos/declarations-fiscales-annuelles-le-2-mars-2026-dernier-delai-pour-plusieurs-categories-de-contribuables/)
