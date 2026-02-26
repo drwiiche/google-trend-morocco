@@ -1,3 +1,10 @@
+### dgi maroc (N/A, Thu, 26 Feb 2026 02:30:00 -0800)
+
+- **Revue de presse de ce jeudi 26 février 2026**: [Link](https://fr.hespress.com/463600-revue-de-presse-de-ce-jeudi-26-fevrier-2026.html)
+- **Déclarations fiscales: la piqûre de rappel de la DGI**: [Link](https://fr.le360.ma/economie/declarations-fiscales-la-piqure-de-rappel-de-la-dgi_PGBUOT4NWJABNL5HFYIVGUP2GU/)
+- **Déclarations fiscales annuelles : Le 2 mars, dernier délai pour plusieurs catégories de contribuables**: [Link](https://lematin.ma/economie/declarations-fiscales-le-2-mars-dernier-delai-pour-certains-contribuables/331939)
+
+
 ### محمد وهبي (N/A, Thu, 26 Feb 2026 03:30:00 -0800)
 
 - **ليس تشافي.. المغرب يقبل استقالة الركراكي ويعلن بديله خلال ساعات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D8%AA%D9%87%D8%AA-%D8%A7%D9%84%D8%B1%D8%AD%D9%84%D8%A9--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%A8%D9%84-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%88%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A8%D8%AF%D9%8A%D9%84%D9%87-%D8%A7%D9%84%D9%8A%D9%88%D9%85/blt5ba92432e74f1bec)
