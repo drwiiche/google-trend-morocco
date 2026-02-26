@@ -1,3 +1,10 @@
+### frmf (N/A, Thu, 26 Feb 2026 06:20:00 -0800)
+
+- **Le Maroc accepte la démission de Walid Regragui et a trouvé son successeur !**: [Link](https://www.footmercato.net/a8074012815850716355-le-maroc-accepte-la-demission-de-walid-regragui-et-a-trouve-son-successeur)
+- **Walid Regragui quitte les Lions de l’Atlas à quelques mois du Mondial 2026**: [Link](https://ledesk.ma/encontinu/walid-regragui-quitte-les-lions-de-latlas-a-quelques-mois-du-mondial-2026/)
+- **Regragui sur le départ ? La FRMF dément encore et met fin aux rumeurs**: [Link](https://medias24.com/2026/02/24/regragui-sur-le-depart-la-frmf-dement-encore-et-met-fin-aux-rumeurs-1633471/)
+
+
 ### dgi maroc (N/A, Thu, 26 Feb 2026 02:30:00 -0800)
 
 - **Revue de presse de ce jeudi 26 février 2026**: [Link](https://fr.hespress.com/463600-revue-de-presse-de-ce-jeudi-26-fevrier-2026.html)
