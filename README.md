@@ -1,3 +1,17 @@
+### direction générale des impôts (N/A, Wed, 25 Feb 2026 15:50:00 -0800)
+
+- **Déclarations fiscales annuelles : le 2 mars 2026, dernier délai pour plusieurs catégories de contribuables**: [Link](https://www.leconomiste.com/flash-infos/declarations-fiscales-annuelles-le-2-mars-2026-dernier-delai-pour-plusieurs-categories-de-contribuables/)
+- **Déclarations fiscales: la piqûre de rappel de la DGI**: [Link](https://fr.le360.ma/economie/declarations-fiscales-la-piqure-de-rappel-de-la-dgi_PGBUOT4NWJABNL5HFYIVGUP2GU/)
+- **Retraités étrangers au Maroc : n'oubliez pas vos attestations bancaires pour payer moins d'impôts**: [Link](https://www.bladi.net/retraites-etrangers-maroc-oubliez-attestations-bancaires,119702.html)
+
+
+### raja match (N/A, Wed, 25 Feb 2026 15:50:00 -0800)
+
+- **Five Referees Suspended After Raja Casablanca - Ittihad Tanger Match**: [Link](https://www.moroccoworldnews.com/2026/02/280744/five-referees-suspended-after-raja-casablanca-ittihad-tanger-match/)
+- **Raja Club Athletic Contacts Refereeing Directorate Protesting Decisions Against Ittihad Tanger, Demands Technical Clarifications**: [Link](https://m.elbotola.com/en/article/2026-02-24-13-54-582.html)
+- **🔥The fans complain about the officiating of the Ittihad Tangier match!!**: [Link](https://tanja7.com/en/7798)
+
+
 ### raja casablanca (N/A, Wed, 25 Feb 2026 15:40:00 -0800)
 
 - **RS Berkane annonce la blessure de Lamlioui et son absence contre le Raja**: [Link](https://m.elbotola.com/fr/article/2026-02-25-11-38-602.html)
