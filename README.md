@@ -1,3 +1,10 @@
+### rachida dati (N/A, Thu, 26 Feb 2026 12:10:00 -0800)
+
+- **French Culture Minister Dati quits to focus on run for Paris mayor**: [Link](https://www.reuters.com/world/french-culture-minister-dati-quits-focus-run-paris-mayor-2026-02-25/)
+- **Rachida Dati vows to end Socialist grip on Paris**: [Link](https://www.ft.com/content/5d4d08ae-75b4-4697-82d1-1d4c57ddcb75)
+- **Former Château de Versailles President Catherine Pégard Appointed France’s Culture Minister, Succeeding Rachida Dati**: [Link](https://www.yahoo.com/news/articles/former-ch-teau-versailles-president-191453853.html)
+
+
 ### resident evil requiem (N/A, Thu, 26 Feb 2026 11:40:00 -0800)
 
 - **Review | I played ‘Resident Evil Requiem’ 9 times. Here’s what does and doesn’t work.**: [Link](https://www.washingtonpost.com/entertainment/video-games/2026/02/25/resident-evil-requiem-video-game-review/)
