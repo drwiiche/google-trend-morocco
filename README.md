@@ -1,3 +1,10 @@
+### fiorentina – jagiellonia białystok (N/A, Thu, 26 Feb 2026 10:50:00 -0800)
+
+- **Kolejorz walczy o 1/8 finału LK! Lech – KuPS [LIVE]**: [Link](https://pilkanozna.pl/kolejorz-walczy-o-1-8-finalu-lk-lech-kups-live/)
+- **Bartosz Mazurek bohaterem Jagiellonii Białystok. Hat-trick 19-latka w meczu Ligi Konferencji [WIDEO]**: [Link](https://transfery.info/aktualnosci/bartosz-mazurek-bohaterem-jagiellonii-bialystok-dublet-19-latka-w-pierwszej-polowie-meczu-ligi-konferencji-wideo/266922)
+- **Europejskie puchary NA ŻYWO: Jagiellonia chce sprawić sensację, Giroud z bramką**: [Link](https://www.flashscore.pl/wiadomosci/pi-ka-nozna-liga-konferencji-europejskie-puchary-na-zywo-jagiellonia-chce-sprawic-sensacje-giroud-z-bramka/bBvISg5d/)
+
+
 ### europa league (N/A, Thu, 26 Feb 2026 09:50:00 -0800)
 
 - **Lille - Crvena zvezda 0:1**: [Link](https://www.flashscore.com/match/football/crvena-zvezda-ncRzHK14/lille-pfDZL71o/report/?mid=zJe3QYh5)
