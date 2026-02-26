@@ -1,3 +1,9 @@
+### cih (N/A, Thu, 26 Feb 2026 02:50:00 -0800)
+
+- **CIH Bank, de la quasi-faillite à l’innovation digitale**: [Link](https://fr.le360.ma/economie/cih-bank-de-la-quasi-faillite-a-linnovation-digitale_VVJK5NFHCBDWDHFHUGOBA2EI4E/)
+- **De la quasi-faillite à l’innovation digitale : la transformation de CIH Bank**: [Link](https://maroc-actu.com/de-la-quasi-faillite-a-linnovation-digitale-la-transformation-de-cih-bank/)
+
+
 ### طقس مراكش (N/A, Thu, 26 Feb 2026 00:30:00 -0800)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-68-1707209.html)
