@@ -1,3 +1,17 @@
+### europa league (N/A, Thu, 26 Feb 2026 09:50:00 -0800)
+
+- **Lille - Crvena zvezda 0:1**: [Link](https://www.flashscore.com/match/football/crvena-zvezda-ncRzHK14/lille-pfDZL71o/report/?mid=zJe3QYh5)
+- **Europa League (Return Playoffs): What TV channel and what time to watch Red Star**: [Link](https://www.surfcoastnews.com.au/sport/22932/)
+- **Serbia Europa League Soccer**: [Link](https://www.hjnews.com/sports/nation/serbia-europa-league-soccer/image_445fdf06-b7a6-5786-b187-cc1f564a28cd.html)
+
+
+### stuttgart – celtic glasgow (N/A, Thu, 26 Feb 2026 09:40:00 -0800)
+
+- **VfB-Schock nach nur 30 Sekunden!**: [Link](https://www.sport.de/video/en665026/vfb-schock-nach-nur-30-sekunden/)
+- **Ticker: Celtic schockt Stuttgart mit Blitzstart nach 28 Sekunden | blue News**: [Link](https://www.bluewin.ch/de/sport/europa-league/loest-stuttgart-im-rueckspiel-gegen-celtic-das-achtelfinal-ticket-3115989.html)
+- **Übertragung der Europa League 25/26: Wo läuft die EL im Free-TV und Stream?**: [Link](https://www.augsburger-allgemeine.de/sport/europa-league-25-26-live-im-free-tv-stream-el-uebertragung-bei-rtl-26-2-26-110387849)
+
+
 ### asd (N/A, Thu, 26 Feb 2026 09:20:00 -0800)
 
 - **Anchorage School Board passes budget with closures and significant staff cuts**: [Link](https://www.adn.com/alaska-news/education/2026/02/25/anchorage-school-board-passes-budget-with-closures-and-significant-staff-cuts/)
