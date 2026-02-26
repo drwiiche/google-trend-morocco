@@ -1,3 +1,10 @@
+### what is a data breach (N/A, Wed, 25 Feb 2026 19:10:00 -0800)
+
+- **Another Data Breach? Here's How to Lock Down Your Online Accounts**: [Link](https://www.cnet.com/tech/services-and-software/another-data-breach-heres-how-to-lock-down-your-online-accounts/)
+- **Expert advice to recover from a data breach**: [Link](https://www.investigatetv.com/2026/02/25/expert-advice-recover-data-breach/)
+- **Expert advice to recover from a data breach**: [Link](https://www.kswo.com/2026/02/25/expert-advice-recover-data-breach/)
+
+
 ### samsung galaxy s26 ultra (N/A, Wed, 25 Feb 2026 22:20:00 -0800)
 
 - **[Galaxy Unpacked 2026] A First Look at the Galaxy S26 Series: Samsung’s Most Intuitive AI Phone Yet**: [Link](https://news.samsung.com/global/galaxy-unpacked-2026-a-first-look-at-the-galaxy-s26-series-samsungs-most-intuitive-ai-phone-yet)
