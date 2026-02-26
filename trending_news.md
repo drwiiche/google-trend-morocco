@@ -1,3 +1,17 @@
+### المجلس الأعلى للسلطة القضائية (N/A, Thu, 26 Feb 2026 06:40:00 -0800)
+
+- **النطق بأحكام غير محررة يغضب عبد النباوي**: [Link](https://assabah.ma/904768.html)
+- **مجلس القضاء يوجه تعلميات جديدة لرؤساء المحاكم: لا نطق بالأحكام دون تحريرها الكامل**: [Link](https://al3omk.com/1140346.html)
+- **المجلس القضائي يحذر من تأخر تحرير الأحكام**: [Link](https://hnews.ma/100418/)
+
+
+### almountakhab (N/A, Thu, 26 Feb 2026 06:30:00 -0800)
+
+- **الحضور المغربي في عصبة الأبطال تقلص لثلاثة**: [Link](https://www.almountakhab.com/node/13223067)
+- **ثلاثي مغربي يلمع في سماء أوروبا.. حكيمي ودياز وبنصغير في ثمن نهائي دوري الأبطال**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%84%D9%85%D8%B9-%D9%81%D9%8A-%D8%B3%D9%85%D8%A7%D8%A1-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%AF%D9%8A%D8%A7%D8%B2-%D9%88%D8%A8%D9%86%D8%B5%D8%BA%D9%8A%D8%B1-%D9%81%D9%8A-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84/16257)
+- **قبل ثمن النهائي.. حصاد النجوم العرب في دوري أبطال أوروبا**: [Link](https://al-ain.com/article/arab-stars-champions-league-uefa)
+
+
 ### frmf (N/A, Thu, 26 Feb 2026 06:20:00 -0800)
 
 - **Le Maroc accepte la démission de Walid Regragui et a trouvé son successeur !**: [Link](https://www.footmercato.net/a8074012815850716355-le-maroc-accepte-la-demission-de-walid-regragui-et-a-trouve-son-successeur)
