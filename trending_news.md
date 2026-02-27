@@ -1,3 +1,31 @@
+### albacete – almería (N/A, Fri, 27 Feb 2026 11:00:00 -0800)
+
+- **Albacete BP vs UD Almería: horario, alineaciones y minuto a minuto | LaLiga Hypermotion 25-26**: [Link](https://rtvc.es/albacete-bp-vs-ud-almeria-j28-laliga-hypermotion-25-26/)
+- **El calendario soñado del Almería tras el terremoto Cristiano Ronaldo**: [Link](https://www.lavozdealmeria.com/ud-almeria/471360/calendario-sonado-almeria-dar-golpe-definitivo.html)
+- **Una victoria de la UD Almería le daría 'empate' en sus visitas al Alba**: [Link](https://www.ideal.es/udalmeria/victoria-almeria-daria-empate-visitas-alba-20260227203524-nt.html)
+
+
+### الاتحاد ضد الخليج (N/A, Fri, 27 Feb 2026 11:00:00 -0800)
+
+- **قبل مواجهة الخليج.. اتحاد جدة يستعيد النصيري ومنبوذ كونسيساو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC--%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AC%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%88%D9%85%D9%86%D8%A8%D9%88%D8%B0-%D9%83%D9%88%D9%86%D8%B3%D9%8A%D8%B3%D8%A7%D9%88/blt6da4db7fc04d12ba)
+- **بعد غيابه عن مواجهة الحزم.. الاتحاد يستعيد خدمات مهاجمه النصيري**: [Link](https://m.elbotola.com/article/2026-02-26-13-40-530.html)
+- **عاجل: الاتحاد يستقبل "المنبوذ" العبود بعد 60 يوماً من المنفى... عودة صادمة تثير الجدل!**: [Link](https://yemen-press.net/news169254.html)
+
+
+### equidia quinté (N/A, Fri, 27 Feb 2026 10:50:00 -0800)
+
+- **Les pronos hippiques du vendredi 27 février 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-27-fevrier-2026_AN-202602250607.html)
+- **Tiercé. Les pronostics de L'Alsace pour vendredi 27 février - Prix Emile Allix Courboy**: [Link](https://www.lalsace.fr/actualite/2026/02/26/les-pronostics-de-l-alsace-pour-vendredi-27-fevrier-prix-emile-allix-courboy)
+- **Quinté Express : Analyse du Quinté+ du vendredi 27 février**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/quinte-express-analyse-du-quinte-du-vendredi-27-fevrier)
+
+
+### الشباب ضد الهلال (N/A, Fri, 27 Feb 2026 10:30:00 -0800)
+
+- **إنزاجي يفجر قنبلة مدوية قبل مواجهة الشباب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D9%81%D8%AC%D8%B1-%D9%82%D9%86%D8%A8%D9%84%D8%A9-%D9%85%D8%AF%D9%88%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/blt030692aaa5b0a70a)
+- **مباشر مباراة الهلال ضد الشباب في الدوري السعودي للمحترفين**: [Link](https://www.aljazeera.net/sport/liveblog/2026/2/27/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8)
+- **موقف أوناي هيرنانديز من مباراة الهلال والشباب**: [Link](https://hihi2.com/2026/02/27/p3668852.html)
+
+
 ### al shabab – al-hilal (N/A, Fri, 27 Feb 2026 10:20:00 -0800)
 
 - **Al-Shabab Coach Dispels Rumors: "No Problem Between Carrasco and Hamdallah"**: [Link](https://m.elbotola.com/en/article/2026-02-27-15-52-286.html)
