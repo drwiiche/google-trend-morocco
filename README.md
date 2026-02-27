@@ -1,3 +1,17 @@
+### iran (N/A, Fri, 27 Feb 2026 09:50:00 -0800)
+
+- **Trump says he is ‘not happy’ with Iran situation and military force is still an option**: [Link](https://www.theguardian.com/world/2026/feb/27/us-urges-citizens-leave-israel-threat-strike-iran)
+- **Trump Says Top General Predicts Easy Victory Over Iran; He Says Otherwise in Private**: [Link](https://www.nytimes.com/2026/02/23/us/politics/general-caine-iran-strikes-trump.html)
+- **Trump's top general warns of Iran strike risks**: [Link](https://www.axios.com/2026/02/23/iran-strike-trump-gen-dan-caine-vance-rubio)
+
+
+### jim carrey (N/A, Fri, 27 Feb 2026 06:30:00 -0800)
+
+- **Jim Carrey Delivers Emotional Speech in French While Receiving Cesar Awards Honor: ‘My Tongue Is Tired’**: [Link](https://variety.com/2026/film/global/jim-carrey-speech-french-cesar-awards-honor-1236674119/)
+- **Movie Fans Believe Jim Carrey Has Been Cloned In Conspiracy That Has Been Kept Under Wraps**: [Link](https://brobible.com/culture/article/jim-carrey-clone-conspiracy-movies/)
+- **Jim Carrey Goes Public with Girlfriend Minzi After Years Together, Thanks Her at Cesar Awards**: [Link](https://www.justjared.com/2026/02/26/jim-carrey-goes-public-with-girlfriend-minzi-after-years-together-thanks-her-at-cesar-awards/)
+
+
 ### wolves – aston villa (N/A, Fri, 27 Feb 2026 11:20:00 -0800)
 
 - **Wolverhampton vs Aston Villa LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/27/1252259-wolves-vs-aston-villa-live-score-premier-league.html)
