@@ -1,3 +1,24 @@
+### wolves – aston villa (N/A, Fri, 27 Feb 2026 11:20:00 -0800)
+
+- **Wolverhampton vs Aston Villa LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/27/1252259-wolves-vs-aston-villa-live-score-premier-league.html)
+- **Villa boss Emery desperate to end Molineux hoodoo tonight**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-villa-boss-emery-desperate-to-end-molineux-hoodoo-tonight-b74022cd-7c93-4d3d-9fd0-78cfe7232234)
+- **talkSPORT tips – Best football bets and expert advice on Friday 26 February**: [Link](https://talksport.com/football/4007721/talksport-tips-best-football-bets-friday-26-february/)
+
+
+### levante – deportivo alavés (N/A, Fri, 27 Feb 2026 11:10:00 -0800)
+
+- **En medio de los rumores de salida de Coudet, Alavés visita a Levante por LaLiga**: [Link](https://espndeportes.espn.com/futbol/argentina/nota/_/id/16366559/alaves-vs-levante-la-liga-eduardo-coudet-river)
+- **Levante-Álaves: Ganar para coger aire**: [Link](https://onefootball.com/de/news/levante-alaves-ganar-para-coger-aire-42474796)
+- **Pacheco regresa al once del Alavés**: [Link](https://www.elcorreo.com/alaves/pacheco-regresa-once-alaves-20260227200546-nt.html)
+
+
+### strasbourg – lens (N/A, Fri, 27 Feb 2026 11:10:00 -0800)
+
+- **Le capitaine de Lens appelle les supporters à garder espoir pour le titre de Ligue 1 après la défaite face à Monaco**: [Link](https://m.elbotola.com/fr/article/2026-02-26-14-15-502.html)
+- **L'arbitre de la rencontre entre Le Havre et le PSG désigné**: [Link](https://canal-supporters.com/larbitre-de-la-rencontre-entre-le-havre-et-le-psg-designe/)
+- **En direct Ligue 1. Le Racing Club de Strasbourg vise un nouveau tour de force contre l'ex-leader Lens : suivez la rencontre en direct (20h45)**: [Link](https://www.dna.fr/sport/2026/02/27/le-racing-club-de-strasbourg-vise-un-nouveau-tour-de-force-contre-l-ex-leader-lens-suivez-la-rencontre-en-direct-(a-partir-de-20h45))
+
+
 ### albacete – almería (N/A, Fri, 27 Feb 2026 11:00:00 -0800)
 
 - **Albacete BP vs UD Almería: horario, alineaciones y minuto a minuto | LaLiga Hypermotion 25-26**: [Link](https://rtvc.es/albacete-bp-vs-ud-almeria-j28-laliga-hypermotion-25-26/)
