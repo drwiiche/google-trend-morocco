@@ -1,3 +1,10 @@
+### al shabab – al-hilal (N/A, Fri, 27 Feb 2026 10:20:00 -0800)
+
+- **Al-Shabab Coach Dispels Rumors: "No Problem Between Carrasco and Hamdallah"**: [Link](https://m.elbotola.com/en/article/2026-02-27-15-52-286.html)
+- **How to watch today's Al Shabab vs Al Hilal Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/how-to-watch-al-shabab-al-hilal-27022026/blta8b25415d88416cd)
+- **European Referee to Lead Riyadh Derby between Al-Hilal and Al-Shabab**: [Link](https://www.ysscores.com/en/news/13919159/European-Referee-to-Lead-Riyadh-Derby-between-Al-Hilal-and-Al-Shabab)
+
+
 ### karim benzema (N/A, Fri, 27 Feb 2026 05:00:00 -0800)
 
 - **Karim Benzema injured: Al-Hilal announces the length of his absence**: [Link](https://sports.yahoo.com/articles/karim-benzema-injured-al-hilal-115500077.html)
