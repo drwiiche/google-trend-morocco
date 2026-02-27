@@ -1,3 +1,10 @@
+### champions league 2026 (N/A, Fri, 27 Feb 2026 03:40:00 -0800)
+
+- **UEFA Champions League round of 16, quarter-final and semi-final draw: Where is it, when is it, who is involved?**: [Link](https://www.uefa.com/uefachampionsleague/news/02a2-1ffe3d954170-60c0b7443c85-1000--uefa-champions-league-round-of-16-quarter-final-and-semi/)
+- **[Official] PSG-Chelsea, Real-Man City and other UCL round of 16 matches have been confirmed**: [Link](https://www.starnewskorea.com/en/sports/2026/02/27/2026022720000034215)
+- **Real Madrid and Man City to meet again as Newcastle paired with Barcelona in Uefa Champions League last 16**: [Link](https://www.thenationalnews.com/sport/2026/02/27/uefa-champions-league-draw-real-madrid-and-man-city-to-meet-again-as-newcastle-paired-with-barcelona/)
+
+
 ### قرعة دوري ابطال اوروبا (N/A, Fri, 27 Feb 2026 02:30:00 -0800)
 
 - **بث مباشر: شاهد قرعة دور الـ 16 في دوري أبطال أوروبا 2025-2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D9%85%D9%84%D8%AD%D9%82-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2025-2026/blt4c3b12ffca809e9a)
