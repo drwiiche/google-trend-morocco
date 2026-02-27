@@ -1,3 +1,17 @@
+### claude (N/A, Fri, 27 Feb 2026 05:40:00 -0800)
+
+- **Une simple demande à l'IA Claude aura suffi: grâce au chatbot d'Anthropic, un pirate arrive à récupérer 150 Go de données ultra sensibles du gouvernement mexicain**: [Link](https://www.bfmtv.com/tech/intelligence-artificielle/une-simple-demande-a-l-ia-claude-aura-suffi-grace-au-chatbot-d-anthropic-un-pirate-arrive-a-recuperer-150-go-de-donnees-ultra-sensibles-du-gouvernement-mexicain_AV-202602270519.html)
+- **Un pirate exploite le chatbot Claude d'Anthropic pour cibler plusieurs agences gouvernementales mexicaines**: [Link](https://www.begeek.fr/un-pirate-exploite-le-chatbot-claude-danthropic-pour-cibler-plusieurs-agences-gouvernementales-mexicaines-428757)
+- **L'IA Claude utilisée pour dérober 150 Go de données au Mexique**: [Link](https://www.generation-nt.com/actualites/claude-anthropic-detournement-mexique-cyberattaque-2071485)
+
+
+### محمد وهبي مدرب المنتخب المغربي (N/A, Thu, 26 Feb 2026 23:10:00 -0800)
+
+- **كلاكيت ثالث مرة.. الاتحاد المغربي يصدر بيانًا رسميًا حول مصير الركراكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%84%D8%A7%D9%83%D9%8A%D8%AA-%D8%AB%D8%A7%D9%84%D8%AB-%D9%85%D8%B1%D8%A9--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D9%8B%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%AD%D9%88%D9%84-%D9%85%D8%B5%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A/blt8e1069164c55332c)
+- **هل تم تعيين وهبي خلفا للركراكي؟ الاتحاد المغربي يجيب**: [Link](https://www.aljazeera.net/sport/2026/2/27/%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D8%B9%D9%8A%D9%8A%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A)
+- **الغموض يلف مصير مدرب "الأسود" الركراكي.. وهذه مؤشرات الرحيل المرتقب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%BA%D9%85%D9%88%D8%B6-%D9%8A%D9%84%D9%81-%D9%85%D8%B5%D9%8A%D8%B1-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-1707651.html)
+
+
 ### ligue europa (N/A, Thu, 26 Feb 2026 11:30:00 -0800)
 
 - **Ligue Europa : tous les qualifiés pour les huitièmes de finale**: [Link](https://www.footmercato.net/a8617853260859264827-ligue-europa-tous-les-qualifies-pour-les-huitiemes-de-finale)
