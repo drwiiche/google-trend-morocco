@@ -1,3 +1,10 @@
+### sporting – estoril (N/A, Fri, 27 Feb 2026 14:20:00 -0800)
+
+- **Sporting x Estoril AO VIVO: link para assistir online (27/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/sporting-x-estoril-ao-vivo-link-para-assistir-online/808a518b138f3a0e53fc6996)
+- **Vitória leonina com bancadas compostas em Alvalade**: [Link](https://www.ligaportugal.pt/news/27007/vitoria-leonina-com-bancadas-compostas-em-alvalade)
+- **Rui Borges justifica ausência de Pote: «Dentro da nossa perspetiva foi melhor não utilizá-lo...»**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/sporting/detalhe/rui-borges-justifica-ausencia-de-pote-dentro-da-nossa-perspetiva-foi-melhor-nao-utiliza-lo)
+
+
 ### ليفانتي ضد ألافيس (N/A, Fri, 27 Feb 2026 11:50:00 -0800)
 
 - **ليفانتي يتخطّى ديبورتيفو ألافيس بثنائية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A-%D9%8A%D8%AA%D8%AE%D8%B7-%D9%89-%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-2026-02-27)
