@@ -1,3 +1,10 @@
+### quinte demain (N/A, Fri, 27 Feb 2026 13:50:00 -0800)
+
+- **Les pronos hippiques du vendredi 27 février 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-27-fevrier-2026_AN-202602250607.html)
+- **Tiercé. Les pronostics de L'Alsace pour vendredi 27 février - Prix Emile Allix Courboy**: [Link](https://www.lalsace.fr/actualite/2026/02/26/les-pronostics-de-l-alsace-pour-vendredi-27-fevrier-prix-emile-allix-courboy)
+- **Faites le papier du Quinté+ de ce samedi 28 février**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-samedi-28-fevrier)
+
+
 ### bristol city – watford (N/A, Fri, 27 Feb 2026 12:20:00 -0800)
 
 - **Team news: Goglichidze should return and Bove 'probably not' ready to start**: [Link](https://www.watfordobserver.co.uk/sport/25889918.team-news-goglichidze-return-bove-not-ready-start/)
