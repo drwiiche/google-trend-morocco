@@ -1,3 +1,17 @@
+### ligue europa (N/A, Thu, 26 Feb 2026 11:30:00 -0800)
+
+- **Ligue Europa : tous les qualifiés pour les huitièmes de finale**: [Link](https://www.footmercato.net/a8617853260859264827-ligue-europa-tous-les-qualifies-pour-les-huitiemes-de-finale)
+- **Quels adversaires pour l’OL, Lille et Strasbourg en 8e de finale ?**: [Link](https://www.sports.fr/football/quels-adversaires-pour-lol-lille-et-strasbourg-en-8e-de-finale-994273.html)
+- **Aston Villa ou l'OL pour Lille, Lille ou le Celta Vigo pour l'OL : les affiches des huitièmes de finale de la Ligue Europa**: [Link](https://www.lequipe.fr/Football/Actualites/Aston-villa-ou-l-ol-pour-lille-lille-ou-le-celta-vigo-pour-l-ol-les-affiches-des-huitiemes-de-finale-de-la-ligue-europa/1655311)
+
+
+### celta vigo – paok (N/A, Thu, 26 Feb 2026 11:20:00 -0800)
+
+- **Celta Vigo vs PAOK: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ckg83yj0r2jt)
+- **Spain Europa League Soccer**: [Link](https://lufkindailynews.com/anpa/sports/spain-europa-league-soccer/image_04bee49f-773a-53dc-8ac4-a727187d8a3c.html)
+- **Celta Vigo vs PAOK Thessaloniki FC Prediction, Same Game Parlay, Latest Europa League Odds for Play-Off Leg 2**: [Link](https://www.oddschecker.com/us/picks-parlays/soccer/20260226-celta-vigo-vs-paok-thessaloniki-fc-prediction-same-game-parlay-latest-europa-league-odds-for-play-off-leg-2)
+
+
 ### champions league 2026 (N/A, Fri, 27 Feb 2026 03:40:00 -0800)
 
 - **UEFA Champions League round of 16, quarter-final and semi-final draw: Where is it, when is it, who is involved?**: [Link](https://www.uefa.com/uefachampionsleague/news/02a2-1ffe3d954170-60c0b7443c85-1000--uefa-champions-league-round-of-16-quarter-final-and-semi/)
