@@ -1,3 +1,10 @@
+### نشرة إنذارية (N/A, Thu, 26 Feb 2026 22:50:00 -0800)
+
+- **الأرصاد تحذر من عواصف رملية بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D9%85%D9%84%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1707474.html)
+- **طقس الجمعة.. أجواء باردة مع صقيع بالمرتفعات**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A/)
+- **نشرة إنذارية (الظهيرة)**: [Link](https://2m.ma/ar/news/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B8%D9%87%D9%8A%D8%B1%D8%A9-20260225)
+
+
 ### rachida dati (N/A, Thu, 26 Feb 2026 12:10:00 -0800)
 
 - **French Culture Minister Dati quits to focus on run for Paris mayor**: [Link](https://www.reuters.com/world/french-culture-minister-dati-quits-focus-run-paris-mayor-2026-02-25/)
