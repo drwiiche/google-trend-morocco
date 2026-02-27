@@ -1,3 +1,10 @@
+### champions league (N/A, Fri, 27 Feb 2026 04:10:00 -0800)
+
+- **Latest. Magpies to face Barcelona in UEFA Champions League round of 16**: [Link](https://www.newcastleunited.com/en/news/magpies-to-face-barcelona-in-uefa-champions-league-round-of-16)
+- **Newcastle first English team to play at iconic stadium after £1.3bn renovation**: [Link](https://www.thesun.co.uk/sport/38357661/newcastle-barcelona-champions-league-nou-camp/)
+- **Newcastle handed Champions League rematch after controversial VAR decision**: [Link](https://www.express.co.uk/sport/football/2175950/Newcastle-Champions-League-draw-Chelsea-Barcelona)
+
+
 ### claude (N/A, Fri, 27 Feb 2026 05:40:00 -0800)
 
 - **Une simple demande à l'IA Claude aura suffi: grâce au chatbot d'Anthropic, un pirate arrive à récupérer 150 Go de données ultra sensibles du gouvernement mexicain**: [Link](https://www.bfmtv.com/tech/intelligence-artificielle/une-simple-demande-a-l-ia-claude-aura-suffi-grace-au-chatbot-d-anthropic-un-pirate-arrive-a-recuperer-150-go-de-donnees-ultra-sensibles-du-gouvernement-mexicain_AV-202602270519.html)
