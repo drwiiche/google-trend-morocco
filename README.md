@@ -1,3 +1,17 @@
+### bristol city – watford (N/A, Fri, 27 Feb 2026 12:20:00 -0800)
+
+- **Team news: Goglichidze should return and Bove 'probably not' ready to start**: [Link](https://www.watfordobserver.co.uk/sport/25889918.team-news-goglichidze-return-bove-not-ready-start/)
+- **Championship Tips: Back goals for both sides in Friday night encounter**: [Link](https://onefootball.com/fr/news/championship-tips-back-goals-for-both-sides-in-friday-night-encounter-42470417)
+- **Football Bet of the Day: Dan Childs has a 23-20 selection in the Championship**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-dan-childs-championship-bristol-city-watford-aMzML7c1QY1S/)
+
+
+### al-ittihad vs al-khaleej (N/A, Fri, 27 Feb 2026 12:00:00 -0800)
+
+- **Al-Ittihad Recovers Striker En-Nesyri After Al-Hazm Absence**: [Link](https://m.elbotola.com/en/article/2026-02-26-13-40-148.html)
+- **Al Ittihad vs Al Khaleej: Prediction, Team News, Lineups Revealed**: [Link](https://www.el-balad.com/6862402)
+- **Al-Ittihad Regains Al-Shehri and Al-Julaydan Ahead of Clash with Al-Khaleej**: [Link](https://koorabreak.com/en/261545/)
+
+
 ### iran (N/A, Fri, 27 Feb 2026 09:50:00 -0800)
 
 - **Trump says he is ‘not happy’ with Iran situation and military force is still an option**: [Link](https://www.theguardian.com/world/2026/feb/27/us-urges-citizens-leave-israel-threat-strike-iran)
