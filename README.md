@@ -1,3 +1,17 @@
+### قرعة دوري ابطال اوروبا (N/A, Fri, 27 Feb 2026 02:30:00 -0800)
+
+- **بث مباشر: شاهد قرعة دور الـ 16 في دوري أبطال أوروبا 2025-2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D9%85%D9%84%D8%AD%D9%82-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2025-2026/blt4c3b12ffca809e9a)
+- **المواجهات المحتملة في ثمن نهائي دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/2/26/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2)
+- **دوري أبطال أوروبا: ريال مدريد-مانشستر سيتي وباريس سان جرمان-برشلونة في ثمن النهائي؟**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20260226-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86)
+
+
+### tirage au sort ligue des champions (N/A, Fri, 27 Feb 2026 02:00:00 -0800)
+
+- **Le tableau des 8es de finale après les barrages de la Ligue des Champions**: [Link](https://www.20minutes.fr/sport/football/4203462-20260225-ligue-champions-tableau-potentiel-8es-finale-apres-barrages)
+- **Chelsea ou le FC Barcelone : quel serait le meilleur adversaire pour le PSG en huitièmes de finale de la Ligue des champions ?**: [Link](https://www.lequipe.fr/Football/Article/Chelsea-ou-le-fc-barcelone-quel-serait-le-meilleur-adversaire-pour-le-psg-en-huitiemes-de-finale-de-la-ligue-des-champions/1655209)
+- **Ligue des Champions: Le PSG, le Real et Galatasaray qualifiés en 8èmes**: [Link](https://fr.hespress.com/463841-ligue-des-champions-le-psg-le-real-et-galatasaray-qualifies-en-8emes.html)
+
+
 ### كهرباء (N/A, Thu, 26 Feb 2026 22:20:00 -0800)
 
 - **أسعار شرائح الكهرباء 2026.. هل هناك زيادة جديدة؟**: [Link](https://twaslnews.twaslnews.com/702716/)
