@@ -1,3 +1,10 @@
+### karim benzema (N/A, Fri, 27 Feb 2026 05:00:00 -0800)
+
+- **Karim Benzema injured: Al-Hilal announces the length of his absence**: [Link](https://sports.yahoo.com/articles/karim-benzema-injured-al-hilal-115500077.html)
+- **Cristiano Ronaldo and Al-Nassr receive Saudi Pro League title boost as Karim Benzema injury confirmed: Al-H...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-and-al-nassr-receive-saudi-pro-league-title-boost-as-karim-benzema-injury-confirmed-al-hilal-reveals-timeline-for-his-absence/)
+- **Al-Hilal Announces the Absence Duration of Benzema and Nasser Al-Dosari Due to Injury**: [Link](https://www.ysscores.com/en/news/13918234/Al-Hilal-Announces-the-Absence-Duration-of-Benzema-and-Nasser-Al-Dosari-Due-to-Injury)
+
+
 ### champions league (N/A, Fri, 27 Feb 2026 04:10:00 -0800)
 
 - **Latest. Magpies to face Barcelona in UEFA Champions League round of 16**: [Link](https://www.newcastleunited.com/en/news/magpies-to-face-barcelona-in-uefa-champions-league-round-of-16)
