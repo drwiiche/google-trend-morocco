@@ -1,3 +1,10 @@
+### claude ai (N/A, Sat, 28 Feb 2026 05:30:00 -0800)
+
+- **OpenAI strikes deal with Pentagon hours after Trump admin bans Anthropic**: [Link](https://www.cnn.com/2026/02/27/tech/openai-pentagon-deal-ai-systems)
+- **Opinion | If A.I. Is a Weapon, Who Should Control It? - The New York Times**: [Link](https://www.nytimes.com/2026/02/28/opinion/artificial-intelligence-trump-hegseth-anthropic.html)
+- **Trump moves to blacklist Anthropic AI from all government work**: [Link](https://www.axios.com/2026/02/27/anthropic-pentagon-supply-chain-risk-claude)
+
+
 ### iran états-unis (N/A, Sat, 28 Feb 2026 05:00:00 -0800)
 
 - **EN DIRECT, bombardements en Iran : les gardiens de la révolution confirment avoir ciblé la marine américaine à Bahreïn, des explosions également entendues à Riyad, Doha et Abou Dhabi**: [Link](https://www.lemonde.fr/international/live/2026/02/28/en-direct-bombardements-en-iran-les-gardiens-de-la-revolution-confirment-avoir-cible-la-marine-americaine-a-bahrein-des-explosions-egalement-entendues-a-riyad-doha-et-abou-dhabi_6668663_3210.html)
