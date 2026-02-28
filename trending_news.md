@@ -1,3 +1,36 @@
+### ترتيب الدوري المغربي (N/A, Fri, 27 Feb 2026 16:30:00 -0800)
+
+- **"بصحتكم وبصحتنا".. حوار بين بانون ورئيس نهضة بركان**: [Link](https://m.elbotola.com/video/details/699f90e84037420513b7ae9d/)
+- **منصب فادلو في خطر**: [Link](https://assabah.ma/905235.html)
+- **الرجاء ينفرد مؤقتا بصدارة البطولة بعد تعادله مع نهضة بركان**: [Link](https://www.ahdath.info/article/249998/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%86%D9%81%D8%B1%D8%AF-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D8%A8%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D9%87-%D9%85%D8%B9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86)
+
+
+### botola pro (N/A, Fri, 27 Feb 2026 16:00:00 -0800)
+
+- **AS FAR Rabat Secures Dominant Victory Over CODM Meknès with Three Unanswered Goals**: [Link](https://m.elbotola.com/en/article/2026-02-28-00-06-825.html)
+
+
+### botola (N/A, Fri, 27 Feb 2026 16:00:00 -0800)
+
+- **Botola Pro: Top clash of matchday 14 between Wydad and Berkane**: [Link](https://ca.sports.yahoo.com/news/botola-pro-top-clash-matchday-160000392.html)
+- **Wydad Fans Demand Team Protection Before Facing Berkane**: [Link](https://www.ysscores.com/en/news/13918726/Wydad-Fans-Demand-Team-Protection-Before-Facing-Berkane)
+- **Wydad AC Releases Tickets for RS Berkane Clash, Prices from 60 to 2000 MAD**: [Link](https://m.elbotola.com/en/article/2026-02-24-13-30-222.html)
+
+
+### mas fès (N/A, Fri, 27 Feb 2026 15:50:00 -0800)
+
+- **Botola Pro Inwi: l’AS FAR s’offre le CODM**: [Link](https://sport.le360.ma/football/botola/botola-pro-inwi-las-far-soffre-le-codm_Z453L6CRC5FHXKRTZB5URH7TFI/)
+- **Botola : l’AS FAR décimée par les absences avant le duel au sommet face au CODM**: [Link](https://lematin.ma/sports/botola-las-far-decimee-par-les-absences-avant-le-duel-face-au-codm/331928)
+- **Un plat footballistique de la belle époque lors d’une soirée ramadanesque au championnat professionnel**: [Link](https://fr.hibapress.com/news-237125.html)
+
+
+### المغرب الفاسي (N/A, Fri, 27 Feb 2026 15:20:00 -0800)
+
+- **بث مباشر.. المغرب الفاسي ضد الكوكب المراكشي**: [Link](https://snrtnews.com/live/bth-mbashr-almghrb-alfasy-dd-alkwkb-almrakshy-146993)
+- **حكيمي يسجل هدفا في فوز مثير لباريس سان جرمان على موناكو**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%AE%D8%B5%D8%B5-5000-%D8%AA%D8%B0%D9%83%D8%B1%D8%A9-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%85%D8%AA%D8%AE%D9%84/)
+- **تحديد أثمنة تذاكر مباراة “الماص” والكوكب**: [Link](https://www.hesport.com/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D8%A3%D8%AB%D9%85%D9%86%D8%A9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%83-428730.html)
+
+
 ### sporting – estoril (N/A, Fri, 27 Feb 2026 14:20:00 -0800)
 
 - **Sporting x Estoril AO VIVO: link para assistir online (27/02)**: [Link](https://www.sportingnews.com/br/futebol/noticias/sporting-x-estoril-ao-vivo-link-para-assistir-online/808a518b138f3a0e53fc6996)
