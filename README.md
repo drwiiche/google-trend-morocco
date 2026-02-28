@@ -1,3 +1,24 @@
+### دورتموند ضد البايرن (N/A, Sat, 28 Feb 2026 10:00:00 -0800)
+
+- **صدمة البايرن قبل الكلاسيكر.. نوير ينهار في التدريب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D8%B1--%D9%86%D9%88%D9%8A%D8%B1-%D9%8A%D9%86%D9%87%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8/bltd0412f65c72052b5)
+- **بطولة ألمانيا: كومباني يرى الفوز على دورتموند أشبه بـ"لقب صغير"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260227-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B1%D9%89-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A3%D8%B4%D8%A8%D9%87-%D8%A8%D9%80-%D9%84%D9%82%D8%A8-%D8%B5%D8%BA%D9%8A%D8%B1)
+- **قمة ألمانية بين الكبيرين.. دورتموند "الجريح" يواجه غضباً جماهيرياً**: [Link](https://24.ae/article/948683/%D9%82%D9%85%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1%D9%8A%D9%86-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AD-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%BA%D8%B6%D8%A8%D8%A7%D9%8B-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A%D8%A7%D9%8B)
+
+
+### bundesliga (N/A, Sat, 28 Feb 2026 09:50:00 -0800)
+
+- **Sieg über Heidenheim: Werder findet die eine Bundesliga-Mannschaft, bei der noch mehr schiefläuft**: [Link](https://www.spiegel.de/sport/fussball/fussball-bundesliga-werder-bremen-gewinnt-nach-13-spielen-wieder-1-fc-heidenheim-vor-abstieg-a-3e2d399c-4058-420e-bf70-263b80924996)
+- **FCH in der Einzelkritik: Welche Noten geben Sie den Spielern für die Leistung gegen Werder Bremen?**: [Link](https://www.hz.de/sport/1-fc-heidenheim/fch-in-der-einzelkritik-welche-noten-geben-sie-den-spielern-fuer-die-leistung-gegen-werder-bremen)
+- **Schmid-Assist bei Bremer Befreiungsschlag – Überraschende Pleite für Ilzer**: [Link](https://www.skysportaustria.at/schmid-assist-bei-bremer-befreiungsschlag-ueberraschende-pleite-fuer-ilzer/)
+
+
+### bayern munich (N/A, Sat, 28 Feb 2026 09:40:00 -0800)
+
+- **Predicted line-up: How Bayern could play at BVB**: [Link](https://fcbinside.com/2026/02/28/predicted-line-up-how-bayern-could-play-at-bvb/)
+- **Klassiker against Dortmund is like a title match, says Kompany**: [Link](http://www.china.org.cn/2026-02/28/content_118350603.shtml)
+- **Videos & highlights: Dortmund vs. FC Bayern - Bundesliga 25/26**: [Link](https://fcbayern.com/en/matches/profis/bundesliga/2025-2026/borussia-dortmund-fc-bayern-muenchen-28-02-2026/videos)
+
+
 ### لا ليغا (N/A, Sat, 28 Feb 2026 09:30:00 -0800)
 
 - **"القانون المناهض لبيكيه" يهدد حلم رونالدو في إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%87%D8%B6-%D9%84%D8%A8%D9%8A%D9%83%D9%8A%D9%87-%D9%8A%D9%87%D8%AF%D8%AF-%D8%AD%D9%84%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blte9ef6d4b7b0207e1)
