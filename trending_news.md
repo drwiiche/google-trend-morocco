@@ -1,3 +1,10 @@
+### burnley – brentford (N/A, Sat, 28 Feb 2026 07:20:00 -0800)
+
+- **Brentford out to achieve winning feat for first time in 91 years in Burnley Premier League fixture**: [Link](https://www.sportsmole.co.uk/football/brentford/news/brentford-out-to-achieve-winning-feat-for-first-time-in-91-years-in-burnley-fixture_592920.html)
+- **Fan photos: Did our photographer spot you arriving at The Turf this afternoon?**: [Link](https://www.burnleyexpress.net/sport/football/21-photos-of-burnley-fans-arriving-at-turf-moor-for-premier-league-fixture-against-brentford-5615206)
+- **Things to know if travelling to Turf Moor**: [Link](https://www.brentfordfc.com/en/news/article/stadium-guide-burnley-turf-moor-premier-league-28-02-2026)
+
+
 ### ليفربول ضد وست هام (N/A, Sat, 28 Feb 2026 06:50:00 -0800)
 
 - **فان دايك يكشف خطة ليفربول لدهس المنافسين في البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%8A%D9%83%D8%B4%D9%81-%D8%AE%D8%B7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D8%AF%D9%87%D8%B3-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/bltb9055e0fb94a566c)
