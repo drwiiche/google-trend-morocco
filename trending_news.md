@@ -1,3 +1,17 @@
+### ali khamenei (N/A, Sat, 28 Feb 2026 11:20:00 -0800)
+
+- **Unmasking the Bayt: Inside the Supreme Leader’s Office, the Hidden Nerve Center of the Islamic Republic**: [Link](https://www.unitedagainstnucleariran.com/unmasking-bayt-inside-supreme-leaders-office-hidden-nerve-center-of-islamic-republic)
+- **Inside Iran’s Preparations for War and Plans for Survival**: [Link](https://www.nytimes.com/2026/02/22/world/middleeast/iran-larijani-khamenei-pezeshkian.html)
+- **A brief guide to Iran’s complex regime**: [Link](https://www.ft.com/content/44edd1b7-7b28-4b38-b30e-6607e4b148d7)
+
+
+### ابراهيم يلدز (N/A, Sat, 28 Feb 2026 11:20:00 -0800)
+
+- **في 27 من عمره..الموت يخطف فنانا شهير**: [Link](https://www.belpresse.com/lastnews/617260.html)
+- **وفاة إبراهيم يلديز بعد 6 أشهر من بقائه في العناية المركزة**: [Link](https://etbilarabi.com/%D9%85%D9%8A%D9%83%D8%B3/%D9%88%D9%81%D8%A7%D8%A9-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D9%8A%D9%84%D8%AF%D9%8A%D8%B2-%D8%A8%D8%B9%D8%AF-6-%D8%A3%D8%B4%D9%87%D8%B1-%D9%85%D9%86-%D8%A8%D9%82%D8%A7%D8%A6%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D8%A9)
+- **وفاة ممثل تركي سقطت عليه شجرة في يوم عاصف (فيديو)**: [Link](https://www.eremnews.com/entertainment/c2wouta)
+
+
 ### لوهافر ضد بي اس جي (N/A, Sat, 28 Feb 2026 11:30:00 -0800)
 
 - **حكيمي وبوفال وجها لوجه في قمة "الليغ 1"**: [Link](https://thevoice.ma/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%A8%D9%88%D9%81%D8%A7%D9%84-%D9%88%D8%AC%D9%87%D8%A7-%D9%84%D9%88%D8%AC%D9%87-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%BA-1/)
