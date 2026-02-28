@@ -1,3 +1,10 @@
+### bahrain (N/A, Sat, 28 Feb 2026 09:40:00 -0800)
+
+- **Iran Hits Back Across the Mideast, Targeting U.S. Bases and Allies**: [Link](https://www.nytimes.com/2026/02/28/world/middleeast/iran-retaliatory-strikes-region.html)
+- **Hotel in Dubai on fire after reported Iranian strike**: [Link](https://www.foxnews.com/video/6390162956112)
+- **Missile strikes near US Navy base in Bahrain**: [Link](https://www.cnn.com/2026/02/28/world/video/missile-strikes-near-us-navy-base-in-bahrain-digvid)
+
+
 ### man city (N/A, Sat, 28 Feb 2026 10:40:00 -0800)
 
 - **Leeds vs Manchester City - Premier League LIVE: Latest score and updates as Pep Guardiola's side strike...**: [Link](https://www.dailymail.co.uk/sport/football/article-15598951/Leeds-vs-Manchester-City-Premier-League-2025-26-LIVE-Result.html)
