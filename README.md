@@ -1,3 +1,24 @@
+### airbnb (N/A, Fri, 27 Feb 2026 18:30:00 -0800)
+
+- **You Can Soon Rent the ‘Heated Rivalry’ Cottage**: [Link](https://www.nytimes.com/2026/02/24/realestate/heated-rivalry-cottage-airbnb-rental.html)
+- **‘Heated Rivalry’ cottage: Fancy a similar getaway? Shane and Ilya’s love nest is on Airbnb**: [Link](https://www.cnn.com/2026/02/25/travel/heated-rivalry-cottage-airbnb-intl-scli)
+- **The Heated Rivalry Cottage Is Now Listed on Airbnb and the Price Is a Nod to Shane and Ilya**: [Link](https://people.com/the-heated-rivalry-cottage-is-now-listed-on-airbnb-11913177)
+
+
+### mcdonald's (N/A, Fri, 27 Feb 2026 17:50:00 -0800)
+
+- **McDonald’s Is Bringing Back The $1 Egg McMuffin For One Day Only**: [Link](https://www.yahoo.com/lifestyle/articles/mcdonald-bringing-back-1-egg-160003969.html)
+- **McDonald’s Is Giving Away $1 McMuffins Next Week**: [Link](https://people.com/mcdonalds-has-1-dollar-mcmuffins-on-march-2-11914205)
+- **McDonald’s Is Selling Egg McMuffins for $1 — Here’s How to Get One**: [Link](https://www.today.com/food/restaurants/1-dollar-mcmuffin-day-mcdonalds-2026-rcna260693)
+
+
+### anthropic (N/A, Fri, 27 Feb 2026 17:00:00 -0800)
+
+- **The Trump Administration Is Trying to Make an Example of the AI Giant Anthropic**: [Link](https://www.americanprogress.org/article/the-trump-administration-is-trying-to-make-an-example-of-the-ai-giant-anthropic/)
+- **Exclusive | Altman Says OpenAI Is Working on Pentagon Deal Amid Anthropic Standoff**: [Link](https://www.wsj.com/tech/ai/openais-sam-altman-calls-for-de-escalation-in-anthropic-showdown-with-hegseth-03ecbac8)
+- **Exclusive: Anthropic Drops Flagship Safety Pledge**: [Link](https://time.com/7380854/exclusive-anthropic-drops-flagship-safety-pledge/)
+
+
 ### ترتيب الدوري المغربي (N/A, Fri, 27 Feb 2026 16:30:00 -0800)
 
 - **"بصحتكم وبصحتنا".. حوار بين بانون ورئيس نهضة بركان**: [Link](https://m.elbotola.com/video/details/699f90e84037420513b7ae9d/)
