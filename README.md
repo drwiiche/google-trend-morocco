@@ -1,3 +1,17 @@
+### لوهافر ضد بي اس جي (N/A, Sat, 28 Feb 2026 11:30:00 -0800)
+
+- **حكيمي وبوفال وجها لوجه في قمة "الليغ 1"**: [Link](https://thevoice.ma/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%A8%D9%88%D9%81%D8%A7%D9%84-%D9%88%D8%AC%D9%87%D8%A7-%D9%84%D9%88%D8%AC%D9%87-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%BA-1/)
+- **باريس سان جيرمان يحل ضيفاً ثقيلاً على لوهافر**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A7-%D8%AB%D9%82%D9%8A%D9%84%D8%A7-%D8%B9%D9%84%D9%89-%D9%84%D9%88%D9%87%D8%A7%D9%81%D8%B1-2026-02-28)
+- **الحلم سبورت : تاريخ مواجهات باريس سان جيرمان ولوهافر في الدوري الفرنسي**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A-3/)
+
+
+### ريال أوفييدو ضد أتلتيكو مدريد (N/A, Sat, 28 Feb 2026 11:30:00 -0800)
+
+- **ألماذا يشيد بقوة أتلتيكو مدريد قبل مواجهة السبت ويصف تشكيلته بالأفضل**: [Link](https://m.elbotola.com/article/2026-02-27-14-30-140.html)
+- **صورة : سيميوني يخاطر بمباراة اوفييدو تحضيرا لمواجهة برشلونة**: [Link](https://hihi2.com/2026/02/28/p3671632.html)
+- **موعد مباراة ريال أوفييدو وأتليتكو مدريد في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/553402)
+
+
 ### le havre – paris-sg (N/A, Sat, 28 Feb 2026 11:20:00 -0800)
 
 - **PSG, plusieurs absences annoncées face au Havre**: [Link](https://www.sports.fr/football/ligue-1/psg-plusieurs-absences-annoncees-face-au-havre-994673.html)
