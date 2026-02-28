@@ -1,3 +1,17 @@
+### reuters (N/A, Sat, 28 Feb 2026 12:20:00 -0800)
+
+- **NASCAR O’Reilly Auto Parts: Cup Practice**: [Link](https://www.reutersconnect.com/item/nascar-oreilly-auto-parts-cup-practice/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVVTQVRPREFZMjgzNjM3MDg%3D/?utm_medium=rcom-article-media&utm_campaign=rcom-rcp-lead)
+- **McDowell paces practice at COTA**: [Link](https://racer.com/2026/02/28/mcdowell-paces-practice-at-cota)
+- **COTA DuraMAX Grand Prix NASCAR Practice 5 and 10-Lap Averages**: [Link](https://ifantasyrace.com/2026/02/28/cota-duramax-grand-prix-nascar-practice-5-and-10-lap-averages/)
+
+
+### مسلسل الست موناليزا (N/A, Sat, 28 Feb 2026 11:20:00 -0800)
+
+- **مسلسل "الست موناليزا" يتصدر المشاهدات.. جدل واسع وانقسام جماهيري**: [Link](https://www.aljazeera.net/arts/2026/2/23/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%B3%D8%AA-%D9%85%D9%88%D9%86%D8%A7%D9%84%D9%8A%D8%B2%D8%A7-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A7%D8%AA)
+- **أحمد مجدي: شخصية النرجسي المخادع في «الست موناليزا» استفزتني فنياً**: [Link](https://aawsat.com/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%B1%D9%82/5245501-%D8%A3%D8%AD%D9%85%D8%AF-%D9%85%D8%AC%D8%AF%D9%8A-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%A7%D9%84%D9%86%D8%B1%D8%AC%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%AF%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%AA-%D9%85%D9%88%D9%86%D8%A7%D9%84%D9%8A%D8%B2%D8%A7-%D8%A7%D8%B3%D8%AA%D9%81%D8%B2%D8%AA%D9%86%D9%8A-%D9%81%D9%86%D9%8A%D8%A7%D9%8B)
+- **تفكيك سلوكيات سامة لمجتمع يشرعن الاستغلال في 'الست موناليزا'**: [Link](https://www.middle-east-online.com/%D8%AA%D9%81%D9%83%D9%8A%D9%83-%D8%B3%D9%84%D9%88%D9%83%D9%8A%D8%A7%D8%AA-%D8%B3%D8%A7%D9%85%D8%A9-%D9%84%D9%85%D8%AC%D8%AA%D9%85%D8%B9-%D9%8A%D8%B4%D8%B1%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%BA%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%AA-%D9%85%D9%88%D9%86%D8%A7%D9%84%D9%8A%D8%B2%D8%A7)
+
+
 ### polymarket (N/A, Sat, 28 Feb 2026 11:30:00 -0800)
 
 - **Suspected insiders make over $1.2 million on Polymarket ahead of U.S. strike on Iran**: [Link](https://www.coindesk.com/markets/2026/02/28/suspected-insiders-make-over-usd1-2-million-on-polymarket-ahead-of-u-s-strike-on-iran)
