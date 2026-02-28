@@ -1,3 +1,10 @@
+### polymarket (N/A, Sat, 28 Feb 2026 11:30:00 -0800)
+
+- **Suspected insiders make over $1.2 million on Polymarket ahead of U.S. strike on Iran**: [Link](https://www.coindesk.com/markets/2026/02/28/suspected-insiders-make-over-usd1-2-million-on-polymarket-ahead-of-u-s-strike-on-iran)
+- **Polymarket Trader Loses $6 Million Betting on the US Iran Strikes**: [Link](https://beincrypto.com/us-iran-strikes-spark-crypto-loss-on-polymarket/)
+- **Insider Trading Scandal? 6 Wallets Made $1.2M on Iran Strike Bets**: [Link](https://cryptopotato.com/insider-trading-scandal-6-wallets-made-1-2m-on-iran-strike-bets/)
+
+
 ### الأهلي ضد زد (N/A, Sat, 28 Feb 2026 12:00:00 -0800)
 
 - **"لون دمك".. رسالة خاصة من جماهير الأهلي للاعبي الفريق خلال مباراة زد**: [Link](https://www.masrawy.com/sports/sports_news/details/2026/2/28/2950171/-%D9%84%D9%88%D9%86-%D8%AF%D9%85%D9%83-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%85%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%AE%D9%84%D8%A7%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B2%D8%AF)
