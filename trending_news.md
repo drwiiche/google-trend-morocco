@@ -1,3 +1,10 @@
+### rennes – toulouse (N/A, Sat, 28 Feb 2026 07:30:00 -0800)
+
+- **Changement de système, management participatif et premiers choix dans la douceur : la rupture tranquille de Franck Haise [Inserer Titre ici]mise sur la continuité et la douceur avant sa première au Roazhon Park avec Rennes face à Toulouse**: [Link](https://www.lequipe.fr/Football/Article/Franck-haise-mise-sur-la-continuite-et-la-douceur-avant-sa-premiere-au-roazhon-park-avec-rennes-face-a-toulouse/1655548)
+- **Sanction maintenue pour Donnum : la réaction claire de Martinez Novell**: [Link](https://www.lesviolets.com/actu/sanction-maintenue-pour-donnum-la-reaction-claire-de-martinez-novell,81515.html)
+- **« Rennes n’est pas un petit club », il demande du respect**: [Link](https://www.foot01.com/rennes/rennes-nest-pas-un-petit-club-il-demande-du-respect)
+
+
 ### burnley – brentford (N/A, Sat, 28 Feb 2026 07:20:00 -0800)
 
 - **Brentford out to achieve winning feat for first time in 91 years in Burnley Premier League fixture**: [Link](https://www.sportsmole.co.uk/football/brentford/news/brentford-out-to-achieve-winning-feat-for-first-time-in-91-years-in-burnley-fixture_592920.html)
