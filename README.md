@@ -1,3 +1,10 @@
+### abu dhabi (N/A, Sat, 28 Feb 2026 03:10:00 -0800)
+
+- **Saudi Arabia and Qatar condemn Iranian missile strikes and warn of wider escalation**: [Link](https://en.hespress.com/132715-saudi-arabia-and-qatar-condemn-iranian-missile-strikes-and-warn-of-wider-escalation.html)
+- **Explosions heard in Riyadh amid regional tensions**: [Link](https://news.az/news/explosions-heard-in-riyadh-amid-regional-tensions)
+- **UAE confirms one dead in Iran strike on Abu Dhabi**: [Link](https://breakingthenews.net/Article/UAE-confirms-one-dead-in-Iran-strike-on-Abu-Dhabi/65767936)
+
+
 ### احوال الطقس (N/A, Sat, 28 Feb 2026 02:00:00 -0800)
 
 - **صور الأقمار الاصطناعية ترصد "سحابة غبارية ضخمة" قادمة نحو المغرب**: [Link](https://www.hespress.com/%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%82%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D8%B1%D8%B5%D8%AF-%D8%B3%D8%AD%D8%A7%D8%A8%D8%A9-%D8%BA%D8%A8%D8%A7-1707947.html)
