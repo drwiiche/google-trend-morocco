@@ -1,3 +1,10 @@
+### al jazeera (N/A, Fri, 27 Feb 2026 22:40:00 -0800)
+
+- **Comparing the BBC and Al Jazeera style guides**: [Link](https://camera-uk.org/2026/02/27/comparing-the-bbc-and-al-jazeera-style-guides/)
+- **Al Jazeera Style Guide Prohibits Calling ISIS a ‘Terrorist’ Organization**: [Link](https://www.filmogaz.com/173143)
+- **Inside Al Jazeera’s Style Guide, Which Forbids Reporters From Calling ISIS a ‘Terrorist’ Organization**: [Link](https://freebeacon.com/media/inside-al-jazeeras-style-guide-which-forbids-reporters-from-calling-isis-a-terrorist-organization/)
+
+
 ### abu dhabi (N/A, Sat, 28 Feb 2026 03:10:00 -0800)
 
 - **Saudi Arabia and Qatar condemn Iranian missile strikes and warn of wider escalation**: [Link](https://en.hespress.com/132715-saudi-arabia-and-qatar-condemn-iranian-missile-strikes-and-warn-of-wider-escalation.html)
