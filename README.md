@@ -1,3 +1,31 @@
+### barca (N/A, Sat, 28 Feb 2026 08:00:00 -0800)
+
+- **Come sarà l’elettronica nautica del futuro? Ecco cosa dice l’esperto**: [Link](https://www.boatmag.it/come-si-evolvera-elettronica-nautica-futuro-parla-esperto-carlo-brevini-garmin/)
+- **La connessione in barca non è più un privilegio**: [Link](https://www.barcheamotore.com/la-connessione-in-barca-non-e-piu-un-privilegio/)
+- **Turismo, connessione Internet in crociera: come funziona?**: [Link](https://www.adriaeco.eu/2026/02/21/turismo-connessione-internet-in-crociera-come-funziona/)
+
+
+### fc barcelone (N/A, Sat, 28 Feb 2026 07:50:00 -0800)
+
+- **DIRECT. FC Barcelone-Villarreal (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-villarreal-live/676962)
+- **« Nous allons essayer de ne pas accorder de pénalités douteuses ! » - Marcelino relance le débat sur l'arbitrage alors que Villarreal se prépare à affronter Barcelone**: [Link](https://www.goal.com/fr/listes/nous-allons-essayer-de-ne-pas-accorder-de-penalites-douteuses-marcelino-relance-le-debat-sur-l-arbitrage-alors-que-villarreal-se-prepare-a-affronter-barcelone/blt9917f0aaeca411d4)
+- **Sur quelle chaîne et à quelle heure regarder Barcelone-Villarreal, Dortmund-Bayern et Le Havre-PSG ?**: [Link](https://www.diverto.tv/actualites/tele/sur-quelle-chaine-et-a-quelle-heure-regarder-barcelone-villarreal-dortmund-bayern-et-le-havre-psg)
+
+
+### yalla kora (N/A, Sat, 28 Feb 2026 07:50:00 -0800)
+
+- **بالفيديو: ريمونتادا إيطالية.. طرد وركلة جزاء ضد نجم الجزائر يطيحان بدورتموند خارج الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A9--%D8%B7%D8%B1%D8%AF-%D9%88%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%B6%D8%AF-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%8A%D8%B7%D9%8A%D8%AD%D8%A7%D9%86-%D8%A8%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt2ab12676df129a34)
+- **قدم.. أتالانتا يتخطى بوروسيا دورتموند في دوري أبطال أوروبا**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/3840286)
+- **كوبيل يحمل نفسه مسؤولية الإخفاق**: [Link](https://www.hesport.com/%D9%83%D9%88%D8%A8%D9%8A%D9%84-%D9%8A%D8%AD%D9%85%D9%84-%D9%86%D9%81%D8%B3%D9%87-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D9%81%D8%A7%D9%82-%D9%81%D9%8A-%D8%A3%D8%A8%D8%B7-428628.html)
+
+
+### liverpool (N/A, Sat, 28 Feb 2026 07:30:00 -0800)
+
+- **Premier League: Liverpool 3-1 up, Everton in front at Newcastle, Burnley 2-3 Brentford**: [Link](https://www.bbc.com/sport/football/live/cdrexy557net)
+- **Liverpool v West Ham, Newcastle v Everton, Burnley v Brentford: football – live**: [Link](https://www.theguardian.com/football/live/2026/feb/28/liverpool-west-ham-newcastle-everton-burnley-brentford-football-live)
+- **Liverpool vs West Ham live score: Plus Premier League latest from Newcastle vs Everton**: [Link](https://www.telegraph.co.uk/football/2026/02/28/premier-league-live-scores-latest-updates-watch/)
+
+
 ### rennes – toulouse (N/A, Sat, 28 Feb 2026 07:30:00 -0800)
 
 - **Changement de système, management participatif et premiers choix dans la douceur : la rupture tranquille de Franck Haise [Inserer Titre ici]mise sur la continuité et la douceur avant sa première au Roazhon Park avec Rennes face à Toulouse**: [Link](https://www.lequipe.fr/Football/Article/Franck-haise-mise-sur-la-continuite-et-la-douceur-avant-sa-premiere-au-roazhon-park-avec-rennes-face-a-toulouse/1655548)
