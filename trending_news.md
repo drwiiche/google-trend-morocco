@@ -1,3 +1,17 @@
+### majorque – real sociedad (N/A, Sat, 28 Feb 2026 08:50:00 -0800)
+
+- **Preview: Mallorca vs Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/mallorca-vs-real-sociedad-prediction-team-news-lineups_592808.html)
+- **Mallorca-Real Sociedad - LaLiga 2025/2026 Statistical Preview**: [Link](https://www.whoscored.com/matches/1914138/preview/spain-laliga-2025-2026-mallorca-real-sociedad)
+- **Mallorca vs Real Sociedad: predictions, stats, tips & odds**: [Link](https://www.squawka.com/en/news/match-preview-mallorca-vs-real-sociedad-28-02-26-la-liga/)
+
+
+### fcb (N/A, Sat, 28 Feb 2026 08:00:00 -0800)
+
+- **Lionel Messi fans shocked as ex-Barcelona defender Jeremy Mathieu claims he surpassed the Argentina superst...**: [Link](https://worldsoccertalk.com/news/lionel-messi-fans-shocked-as-ex-barcelona-defender-jeremy-mathieu-claims-he-surpassed-the-argentina-superstar-in-one-key-area/)
+- **Former Barcelona defender Jeremy Mathieu: ‘I took free kicks better than Messi’**: [Link](https://barcauniversal.com/former-barcelona-defender-jeremy-mathieu-i-took-free-kicks-better-than-messi/)
+- **Former Barcelona star Jérémy Mathieu jokes he took free kicks better than Lionel Messi**: [Link](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/113879/former-barcelona-star-jeremy-mathieu-jokes-he-took-free-kicks-better-than-lionel-messi)
+
+
 ### leeds united – manchester city (N/A, Sat, 28 Feb 2026 08:50:00 -0800)
 
 - **Guardiola provides Doku fitness update**: [Link](https://www.mancity.com/news/mens/pep-guardiola-pre-leeds-injury-news-63907784)
