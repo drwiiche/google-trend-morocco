@@ -1,3 +1,10 @@
+### إبراهيم يلدز (N/A, Sat, 28 Feb 2026 12:00:00 -0800)
+
+- **في 27 من عمره..الموت يخطف فنانا شهير**: [Link](https://www.belpresse.com/lastnews/617260.html)
+- **وفاة إبراهيم يلديز بعد 6 أشهر من بقائه في العناية المركزة**: [Link](https://etbilarabi.com/%D9%85%D9%8A%D9%83%D8%B3/%D9%88%D9%81%D8%A7%D8%A9-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D9%8A%D9%84%D8%AF%D9%8A%D8%B2-%D8%A8%D8%B9%D8%AF-6-%D8%A3%D8%B4%D9%87%D8%B1-%D9%85%D9%86-%D8%A8%D9%82%D8%A7%D8%A6%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D8%A9)
+- **ما سبب وفاة الممثل التركي إبراهيم يلدز؟ 11 معلومة - المشهد**: [Link](https://almashhad.com/article/459217420284850-entertainment/483241365501361-%D9%85%D8%A7-%D8%B3%D8%A8%D8%A8-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D9%8A%D9%84%D8%AF%D8%B2-11-%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A9-%D8%B9%D9%86-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D9%80-27-%D8%B9%D8%A7%D9%85%D8%A7/)
+
+
 ### dubai airport (N/A, Sat, 28 Feb 2026 14:20:00 -0800)
 
 - **Flights cancelled as travel warnings issued after strikes on Iran**: [Link](https://www.bbc.com/news/articles/c0rjpr575g9o)
