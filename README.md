@@ -1,3 +1,10 @@
+### côme – lecce (N/A, Sat, 28 Feb 2026 06:40:00 -0800)
+
+- **✅ UFFICIALI Como-Lecce: FUORI Nico Paz! La scelta su Douvikas, Kuhn e Banda**: [Link](https://onefootball.com/fr/news/ufficiali-como-lecce-fuori-nico-paz-la-scelta-su-douvikas-kuhn-e-banda-42481325)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-como-lecce-0-1-gol-di-coulibaly/KUUb6avQ/)
+- **Serie A, ecco le formazioni ufficiali della sfda del "Sinigaglia" tra Como 1907 e Lecce**: [Link](https://www.tuttocampo.it/Italia/News/1818508/serie-a-ecco-le-formazioni-ufficiali-della-sfda-del-sinigaglia-tra-como-1907-e-lecce)
+
+
 ### برشلونة ضد فياريال (N/A, Sat, 28 Feb 2026 06:30:00 -0800)
 
 - **فليك يُراهن على "الساحر" أمام فياريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%8F%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84/blt75b9147237081259)
