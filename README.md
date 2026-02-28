@@ -1,3 +1,24 @@
+### bournemouth – sunderland (N/A, Sat, 28 Feb 2026 04:00:00 -0800)
+
+- **Bournemouth v Sunderland: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/feb/28/bournemouth-v-sunderland-premier-league-live)
+- **Premier League LIVE: Latest news, scores & updates**: [Link](https://www.flashscore.co.uk/news/premier-league-live-latest-news-scores-updates/MX1tdMZH/)
+- **Andoni Iraola press conference: Bournemouth vs Sunderland**: [Link](https://www.bbc.co.uk/sport/football/articles/c5yvpql3gzyo)
+
+
+### cnn (N/A, Sat, 28 Feb 2026 02:50:00 -0800)
+
+- **All the Ways Netflix Actually Won Even Though It Lost Warner**: [Link](https://www.wsj.com/business/media/netflix-deal-warner-bros-discover-3b33b02c?gaa_at=eafs&gaa_n=AWEtsqdzVcIBtaVGlsYi5BMdM6b7_LOCV2F-FmNBYwZJ44HwCBEbg3w6nYe5&gaa_ts=69a2e1a4&gaa_sig=hp7Oo-cp_7QIlB8Ry4a3v50ueKk5HWxIeSmPbKd960POYAp7m11pbXnyNVZJV5cTVEZvZuEZ06SbNJgwtMfMVg%3D%3D)
+- **Trump just got much closer to bringing CNN to heel | Margaret Sullivan**: [Link](https://www.theguardian.com/commentisfree/2026/feb/28/trump-paramount-skydance-warner-bros-cnn-netflix)
+- **With Trump’s apparent blessing, the Ellisons are amassing a media empire**: [Link](https://www.cnn.com/2026/02/26/business/paramount-wbd-merger-david-ellison)
+
+
+### gold price (N/A, Sat, 28 Feb 2026 01:50:00 -0800)
+
+- **Gold nears one-month high, set for seventh straight monthly rise**: [Link](https://www.cnbc.com/2026/02/27/gold-heads-for-seventh-straight-monthly-gain-on-safe-haven-demand.html)
+- **Gold And Silver Rally As U.S.-Iran Nuclear Deal Remains Out Of Reach**: [Link](https://www.forbes.com/sites/antoniopequenoiv/2026/02/27/gold-and-silver-rally-as-us-iran-nuclear-deal-remains-out-of-reach/)
+- **Investors continue to cling to their gold during the weekend**: [Link](https://www.kitco.com/news/article/2026-02-27/investors-continue-cling-their-gold-during-weekend)
+
+
 ### news (N/A, Sat, 28 Feb 2026 03:20:00 -0800)
 
 - **Trump orders government to stop using Anthropic in battle over AI use**: [Link](https://www.bbc.com/news/articles/cn48jj3y8ezo)
