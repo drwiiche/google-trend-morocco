@@ -1,3 +1,10 @@
+### alarabiya (N/A, Sat, 28 Feb 2026 00:50:00 -0800)
+
+- **Live updates: US, Israel attack Iran in ‘preemptive strike,’ Trump posts video on Truth Social**: [Link](https://www.cnn.com/world/live-news/israel-iran-attack-02-28-26-hnk-intl)
+- **IDF urgently warns all Iranians inside or near military sites to evacuate; 'your presence in these areas puts your life at risk'**: [Link](https://www.timesofisrael.com/liveblog_entry/idf-urgently-warns-all-iranians-inside-or-near-military-sites-to-evacuate-your-presence-in-these-areas-puts-your-life-at-risk/)
+- **Live updates: U.S. and Israel launch attack on Iran as Trump calls for regime change**: [Link](https://www.washingtonpost.com/world/2026/02/28/israel-strikes-iran-live-updates/)
+
+
 ### مي عمر (N/A, Fri, 27 Feb 2026 16:10:00 -0800)
 
 - **مسلسل "الست موناليزا" يتصدر المشاهدات.. جدل واسع وانقسام جماهيري**: [Link](https://www.aljazeera.net/arts/2026/2/23/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%B3%D8%AA-%D9%85%D9%88%D9%86%D8%A7%D9%84%D9%8A%D8%B2%D8%A7-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A7%D8%AA)
