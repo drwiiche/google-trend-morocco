@@ -1,3 +1,10 @@
+### guerre iran usa (N/A, Sat, 28 Feb 2026 04:50:00 -0800)
+
+- **Les premières images des dégâts en Iran après les frappes américaines et israéliennes**: [Link](https://www.bfmtv.com/international/moyen-orient/iran/video-les-premieres-images-des-degats-en-iran-apres-les-frappes-americaines-et-israeliennes_VN-202602280184.html)
+- **Afflux de réfugiés, crise pétrolière : quels risques au Moyen-Orient après l'attaque contre l'Iran**: [Link](https://www.france24.com/fr/moyen-orient/20260228-vagues-migratoires-r%C3%A9fugi%C3%A9s-crise-p%C3%A9troli%C3%A8re-quels-risques-moyen-orient-apr%C3%A8s-attaque-contre-iran)
+- **Trump se déjuge et appelle au soulèvement populaire en Iran**: [Link](https://medias24.com/agence-presse/trump-se-dejuge-et-appelle-au-soulevement-populaire-en-iran/)
+
+
 ### claude ai (N/A, Sat, 28 Feb 2026 05:30:00 -0800)
 
 - **OpenAI strikes deal with Pentagon hours after Trump admin bans Anthropic**: [Link](https://www.cnn.com/2026/02/27/tech/openai-pentagon-deal-ai-systems)
