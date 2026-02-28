@@ -1,3 +1,10 @@
+### news (N/A, Sat, 28 Feb 2026 03:20:00 -0800)
+
+- **Trump orders government to stop using Anthropic in battle over AI use**: [Link](https://www.bbc.com/news/articles/cn48jj3y8ezo)
+- **OpenAI reaches Pentagon agreement as Trump orders Anthropic off federal systems**: [Link](https://www.foxbusiness.com/politics/openai-reaches-pentagon-agreement-trump-orders-anthropic-off-federal-systems)
+- **Trump moves to blacklist Anthropic AI from all government work**: [Link](https://www.axios.com/2026/02/27/anthropic-pentagon-supply-chain-risk-claude)
+
+
 ### al jazeera (N/A, Fri, 27 Feb 2026 22:40:00 -0800)
 
 - **Comparing the BBC and Al Jazeera style guides**: [Link](https://camera-uk.org/2026/02/27/comparing-the-bbc-and-al-jazeera-style-guides/)
