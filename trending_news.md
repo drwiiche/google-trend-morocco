@@ -1,3 +1,31 @@
+### iran états-unis (N/A, Sat, 28 Feb 2026 05:00:00 -0800)
+
+- **EN DIRECT, bombardements en Iran : les gardiens de la révolution confirment avoir ciblé la marine américaine à Bahreïn, des explosions également entendues à Riyad, Doha et Abou Dhabi**: [Link](https://www.lemonde.fr/international/live/2026/02/28/en-direct-bombardements-en-iran-les-gardiens-de-la-revolution-confirment-avoir-cible-la-marine-americaine-a-bahrein-des-explosions-egalement-entendues-a-riyad-doha-et-abou-dhabi_6668663_3210.html)
+- **Vidéo. Sirènes d'alerte à Jérusalem et Téhéran après des frappes israéliennes en Iran**: [Link](https://fr.euronews.com/video/2026/02/28/sirenes-dalerte-a-jerusalem-et-teheran-apres-des-frappes-israeliennes-en-iran)
+- **Iran : la déclaration de guerre de Donald Trump**: [Link](https://legrandcontinent.eu/fr/2026/02/28/iran-la-declaration-de-guerre-de-donald-trump/)
+
+
+### dubai (N/A, Sat, 28 Feb 2026 04:30:00 -0800)
+
+- **Airspace closed, airlines halt flights as US, Israel attack, Iran responds**: [Link](https://www.aljazeera.com/news/2026/2/28/airspace-closed-airlines-halt-flights-as-us-israel-attack-iran-responds)
+- **KQ suspends UAE flights as Middle East conflict explodes**: [Link](https://www.pulse.co.ke/story/kenya-airways-suspends-all-flights-to-dubai-sharjah-amid-uae-airspace-closure-2026022812343338216)
+- **Rising Tensions in the Persian Gulf: US-Iran Conflict Forces Europe, UK, US, and More to Warn Citizens—What Travelers Must Know Before Visiting the UAE, Qatar, and Beyond!**: [Link](https://www.travelandtourworld.com/news/article/rising-tensions-in-the-persian-gulf-us-iran-conflict-forces-europe-uk-us-and-more-to-warn-citizens-what-travelers-must-know-before-visiting-the-uae-qatar-and-beyond/)
+
+
+### actualités (N/A, Sat, 28 Feb 2026 03:20:00 -0800)
+
+- **ACTA prépare son vide greniers**: [Link](https://lejournaldugers.fr/article/89905-acta-prepare-son-vide-greniers)
+- **Calendrier des actualités de REUTERS à 6h GMT/1h ET**: [Link](https://www.boursorama.com/bourse/actualites/calendrier-des-actualites-de-reuters-a-6h-gmt-1h-et-43b69c6fee5c640014a26dccf2652b32)
+- **Abivax abandonne 0,19%**: [Link](https://www.boursier.com/actions/actualites/news/abivax-abandonne-0-19-967283.html)
+
+
+### flight radar (N/A, Fri, 27 Feb 2026 22:50:00 -0800)
+
+- **Flightradar24: website showing error messages for some users as visitor numbers skyrocket**: [Link](https://www.reuters.com/world/middle-east/flightradar24-website-showing-error-messages-some-users-visitor-numbers-2026-02-28/)
+- **Flightradar24 Down? What Is Flightradar24 And Why Is It Trending Today**: [Link](https://www.timesnownews.com/technology-science/flightradar24-down-what-is-flightradar24-and-why-is-it-trending-today-article-153719441)
+- **Trump: ‘Freedom’ for Iran is goal of ‘major military operation’**: [Link](https://www.washingtonpost.com/national-security/2026/02/28/trump-iran-war-regime-change-freedom/)
+
+
 ### bournemouth – sunderland (N/A, Sat, 28 Feb 2026 04:00:00 -0800)
 
 - **Bournemouth v Sunderland: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/feb/28/bournemouth-v-sunderland-premier-league-live)
