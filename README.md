@@ -1,3 +1,10 @@
+### الجزيرة (N/A, Fri, 27 Feb 2026 22:50:00 -0800)
+
+- **عاجل | الجبهة الداخلية الإسرائيلية: صفارات الإنذار تدوي في كل أرجاء إسرائيل**: [Link](https://www.aljazeera.net/news/2026/2/28/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D8%A8%D9%87%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-15)
+- **فيديو.. إسرائيل تشن هجوما على إيران**: [Link](https://www.skynewsarabia.com/middle-east/1855672-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%B4%D9%86-%D9%87%D8%AC%D9%88%D9%85%D8%A7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **إسرائيل تهاجم إيران بضربات "استباقية"**: [Link](https://arabic.cnn.com/middle-east/article/2026/02/28/israel-starts-attack-iran)
+
+
 ### aljazeera (N/A, Fri, 27 Feb 2026 22:30:00 -0800)
 
 - **Comparing the BBC and Al Jazeera style guides**: [Link](https://camera-uk.org/2026/02/27/comparing-the-bbc-and-al-jazeera-style-guides/)
