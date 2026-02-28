@@ -1,3 +1,10 @@
+### ليفربول ضد وست هام (N/A, Sat, 28 Feb 2026 06:50:00 -0800)
+
+- **فان دايك يكشف خطة ليفربول لدهس المنافسين في البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%8A%D9%83%D8%B4%D9%81-%D8%AE%D8%B7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D8%AF%D9%87%D8%B3-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/bltb9055e0fb94a566c)
+- **سانتو مدرب ويستهام يؤكد أن فريقه في معركة مستمرة قبل مواجهة ليفربول**: [Link](https://www.alquds.co.uk/%D8%B3%D8%A7%D9%86%D8%AA%D9%88-%D9%85%D8%AF%D8%B1%D8%A8-%D9%88%D9%8A%D8%B3%D8%AA%D9%87%D8%A7%D9%85-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D9%81%D8%B1%D9%8A%D9%82%D9%87-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1/)
+- **ليفربول ضد وست هام.. محمد صلاح يقود تشكيل الريدز فى الدوري الإنجليزي**: [Link](https://www.youm7.com/story/2026/2/28/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D9%8A%D8%AF%D8%B2-%D9%81%D9%89/7322178)
+
+
 ### côme – lecce (N/A, Sat, 28 Feb 2026 06:40:00 -0800)
 
 - **✅ UFFICIALI Como-Lecce: FUORI Nico Paz! La scelta su Douvikas, Kuhn e Banda**: [Link](https://onefootball.com/fr/news/ufficiali-como-lecce-fuori-nico-paz-la-scelta-su-douvikas-kuhn-e-banda-42481325)
