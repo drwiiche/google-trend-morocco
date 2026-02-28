@@ -1,3 +1,24 @@
+### leeds united – manchester city (N/A, Sat, 28 Feb 2026 08:50:00 -0800)
+
+- **Guardiola provides Doku fitness update**: [Link](https://www.mancity.com/news/mens/pep-guardiola-pre-leeds-injury-news-63907784)
+- **Leeds United vs Manchester City LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/28/1252413-leeds-vs-manchester-city-live-score-premier-league.html)
+- **Kalshi Promo Code GOALMAX: Get $10 in Bonuses for Leeds vs Man City Predictions & Trading**: [Link](https://www.goal.com/en-us/betting/kalshi-promo-code-goalmax-get-10-bonuses-leeds-vs-man-city-predictions-trading-2-28/blt34df88ea42f76646)
+
+
+### dortmund – bayern (N/A, Sat, 28 Feb 2026 08:50:00 -0800)
+
+- **Fußball heute live: Läuft BVB (Borussia Dortmund) vs. FC Bayern live im Free TV bei ARD, ZDF, Sat.1 oder RTL?**: [Link](https://www.goal.com/de/listen/fussball-heute-live-laeuft-bvb-borussia-dortmund-vs-fc-bayern-live-im-free-tv-bei-ard-zdf-sat-1-oder-rtl/blt7921181eacf82ad3)
+- **Bundesliga im Liveticker: Kracher! Nach CL-Debakel empfängt BVB die Bayern**: [Link](https://www.focus.de/sport/fussball/bundesliga-im-liveticker-kracher-nach-cl-debakel-empfaengt-bvb-die-bayern_ce38c006-7a8a-44cb-9771-2ff8a85ac5bd.html)
+- **Das fordert Kovac gegen die Bayern**: [Link](https://www.sport1.de/tv-video/video/das-fordert-kovac-gegen-die-bayern-__FA385475-9541-419B-8D93-C8F95C50C5C8)
+
+
+### مضيق هرمز (N/A, Sat, 28 Feb 2026 08:50:00 -0800)
+
+- **كيف يؤثر إغلاق مضيق هرمز على أسعار النفط؟ وما بدائل التصدير بالمنطقة؟**: [Link](https://www.aljazeera.net/ebusiness/2026/2/28/%D9%83%D9%8A%D9%81-%D9%8A%D8%A4%D8%AB%D8%B1-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2-%D8%B9%D9%84%D9%89-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1)
+- **مباشر. الحرب الأمريكية الإسرائيلية مستمرة على طهران.. إيران تمنع مرور السفن من مضيق هرمز**: [Link](https://arabic.euronews.com/2026/02/28/iranian-media-explosions-heard-in-tehran)
+- **العربى الناصرى: الهجمات الأمريكية الإسرائيلية على إيران تهدد التجارة العالمية**: [Link](https://www.youm7.com/story/2026/2/28/%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%89-%D8%A7%D9%84%D9%86%D8%A7%D8%B5%D8%B1%D9%89-%D8%A7%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D8%AA%D8%AC%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/7321992)
+
+
 ### lamine yamal (N/A, Sat, 28 Feb 2026 08:20:00 -0800)
 
 - **Barcelona to Host Villarreal in La Liga's 26th Round Amidst Title and European Race**: [Link](https://m.elbotola.com/en/article/2026-02-27-18-15-675.html)
