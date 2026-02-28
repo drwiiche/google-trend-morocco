@@ -1,3 +1,10 @@
+### احوال الطقس (N/A, Sat, 28 Feb 2026 02:00:00 -0800)
+
+- **صور الأقمار الاصطناعية ترصد "سحابة غبارية ضخمة" قادمة نحو المغرب**: [Link](https://www.hespress.com/%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%82%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D8%B1%D8%B5%D8%AF-%D8%B3%D8%AD%D8%A7%D8%A8%D8%A9-%D8%BA%D8%A8%D8%A7-1707947.html)
+- **الطقس اليوم الجمعة.. قطرات مطرية متوقعة بهذه المناطق**: [Link](https://ar.hibapress.com/details-705879.html)
+- **طقس السبت: أجواء غائمة مرتقبة بعدة مناطق**: [Link](https://ar.le360.ma/societe/QM2ARMJHUNHU5JXWLYT7LOUG3A/)
+
+
 ### alarabiya (N/A, Sat, 28 Feb 2026 00:50:00 -0800)
 
 - **Live updates: US, Israel attack Iran in ‘preemptive strike,’ Trump posts video on Truth Social**: [Link](https://www.cnn.com/world/live-news/israel-iran-attack-02-28-26-hnk-intl)
