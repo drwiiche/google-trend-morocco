@@ -1,3 +1,10 @@
+### dubai airport (N/A, Sat, 28 Feb 2026 14:20:00 -0800)
+
+- **Flights cancelled as travel warnings issued after strikes on Iran**: [Link](https://www.bbc.com/news/articles/c0rjpr575g9o)
+- **US strikes on Iran spark travel chaos as airlines cancel flights**: [Link](https://www.reuters.com/world/europe/airlines-suspend-middle-east-flights-after-us-israel-strikes-iran-2026-02-28/)
+- **Saudi Airlines cancels flights, Muscat airport shuts amid Iran-Israel escalation**: [Link](https://www.aa.com.tr/en/middle-east/saudi-airlines-cancels-flights-muscat-airport-shuts-amid-iran-israel-escalation/3843389)
+
+
 ### khomeini (N/A, Sat, 28 Feb 2026 13:10:00 -0800)
 
 - **What to know about Ali Khamenei, Iran's supreme leader**: [Link](https://www.axios.com/2026/02/28/iran-leader-ali-khamenei-what-to-know)
