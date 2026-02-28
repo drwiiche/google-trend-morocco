@@ -1,3 +1,10 @@
+### ibrahim yildiz (N/A, Fri, 27 Feb 2026 17:30:00 -0800)
+
+- **Üzerine ağaç devrilmiş, aylarca yoğun bakımda kalmıştı: Oyuncu İbrahim Yıldız hayatını kaybetti**: [Link](https://t24.com.tr/magazin/uzerine-agac-devrilmis-aylarca-yogun-bakimda-kalmisti-oyuncu-ibrahim-yildiz-hayatini-kaybetti,1303156)
+- **İbrahim Yıldız kimdir, neden vefat etti? İbrahim Yıldız yaşındaydı, hangi dizilerde ve filmlerde oynadı?**: [Link](https://www.hurriyet.com.tr/galeri-ibrahim-yildiz-kimdir-neden-vefat-etti-ibrahim-yildiz-yasindaydi-hangi-dizilerde-ve-filmlerde-oynadi-43118266)
+- **Rabia Soytürk’ten rol arkadaşı İbrahim Duymaz’a duygusal veda**: [Link](https://www.cgtnturk.com/rabia-soyturkten-rol-arkadasi-ibrahim-duymaza-duygusal-veda)
+
+
 ### as far – cod meknès (N/A, Fri, 27 Feb 2026 14:40:00 -0800)
 
 - **AS FAR Rabat Secures Dominant Victory Over CODM Meknès with Three Unanswered Goals**: [Link](https://m.elbotola.com/en/article/2026-02-28-00-06-825.html)
