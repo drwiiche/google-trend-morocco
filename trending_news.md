@@ -1,3 +1,38 @@
+### برشلونة ضد فياريال (N/A, Sat, 28 Feb 2026 06:30:00 -0800)
+
+- **فليك يُراهن على "الساحر" أمام فياريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%8F%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84/blt75b9147237081259)
+- **موعد مباراة برشلونة وفياريال في الدوري الإسباني والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/2/28/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84)
+- **ما القنوات الناقلة لمباراة برشلونة وفياريال في الدوري الإسباني 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd4c14147c1f8e525)
+
+
+### barcelona vs villarreal (N/A, Sat, 28 Feb 2026 06:30:00 -0800)
+
+- **Barcelona - Villarreal hoy, en directo: LaLiga EA Sports, última hora en el Spotify Camp Nou, en vivo**: [Link](https://as.com/futbol/primera/barcelona-villarreal-en-directo-laliga-ea-sports-hoy-en-vivo-f202602-d/)
+- **Marcelino se juega un triple histórico contra el Barcelona**: [Link](https://www.marca.com/futbol/villarreal/2026/02/28/marcelino-juega-triple-historico-barcelona.html)
+- **Barça - Villarreal: prueba de líder con el mago Pedri**: [Link](https://www.sport.es/es/noticias/barca/barca-villarreal-prueba-lider-mago-pedri-liga-127365902)
+
+
+### leverkusen – mainz 05 (N/A, Sat, 28 Feb 2026 06:30:00 -0800)
+
+- **Bittere Pille um Amiri**: [Link](https://www.fussballtransfers.com/a342435237900750208-bittere-pille-um-amiri)
+- **Leverkusen empfängt mainz: werkself will die weiße weste verteidigen**: [Link](https://tsv-pelkum.de/sport/leverkusen-empfangt-mainz-werkself-will-die-weise-weste-verteidigen)
+- **Verletzten-Update: Bayer hofft auf Juwel, spielt Neuer im Klassiker?**: [Link](https://magazin.comunio.de/verletzten-update-24-spieltag-bayer-04-leverkusen-ibrahim-maza-fc-bayern-munchen-manuel-neuer-klassiker/)
+
+
+### rayo vallecano vs athletic club (N/A, Sat, 28 Feb 2026 06:30:00 -0800)
+
+- **Alineaciones confirmadas de Rayo Vallecano y Athletic en la jornada 26 de LALIGA: vuelven Álvaro, Jauregizar y Areso**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260228/rayo-vallecano-athletic-alineaciones-onces-titulares_18_018473031.html)
+- **El césped de Vallecas pasa el examen**: [Link](https://as.com/futbol/primera/el-cesped-de-vallecas-pasa-el-examen-f202602-n/)
+- **Tertulia Athletic con José Manuel Monje (27/02/26) | El Athletic visita a un complicado Rayo Vallecano con la mente también en la Copa**: [Link](https://www.ondavasca.com/tertulia-athletic-con-jose-manuel-monje-270226-el-athletic-visita-a-un-complicado-rayo-vallecano-con-la-mente-tambien-en-la-copa/)
+
+
+### newcastle – everton (N/A, Sat, 28 Feb 2026 06:20:00 -0800)
+
+- **David Moyes has clear Everton transfer priority after Alan Shearer prediction for Newcastle clash**: [Link](https://www.goodisonnews.com/2026/02/27/david-moyes-has-clear-everton-transfer-priority-after-alan-shearer-prediction-for-newcastle-clash/)
+- **Moyes Reveals Everton Team News For Newcastle Trip**: [Link](https://www.evertonfc.com/news/2026/february/27/moyes-reveals-everton-team-news-for-newcastle-trip/)
+- **Everton (H) – Pre-match thoughts, team news, possible XI and prediction**: [Link](https://www.nufcblog.co.uk/2026/02/27/everton-h-pre-match-thoughts-team-news-possible-xi-and-prediction/)
+
+
 ### liverpool – west ham (N/A, Sat, 28 Feb 2026 06:10:00 -0800)
 
 - **Possible lineups for Liverpool v West Ham!**: [Link](https://www.besoccer.com/new/live-liverpool-v-west-ham-1396903)
