@@ -1,3 +1,16 @@
+### aljazeera (N/A, Fri, 27 Feb 2026 22:30:00 -0800)
+
+- **Comparing the BBC and Al Jazeera style guides**: [Link](https://camera-uk.org/2026/02/27/comparing-the-bbc-and-al-jazeera-style-guides/)
+- **Inside Al Jazeera’s Style Guide, Which Forbids Reporters From Calling ISIS a ‘Terrorist’ Organization**: [Link](https://freebeacon.com/media/inside-al-jazeeras-style-guide-which-forbids-reporters-from-calling-isis-a-terrorist-organization/)
+
+
+### الجزيرة نت (N/A, Fri, 27 Feb 2026 22:30:00 -0800)
+
+- **عاجل | الجبهة الداخلية الإسرائيلية: صفارات الإنذار تدوي في كل أرجاء إسرائيل**: [Link](https://www.aljazeera.net/news/2026/2/28/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D8%A8%D9%87%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-15)
+- **إسرائيل تشن هجوما على إيران**: [Link](https://www.skynewsarabia.com/middle-east/1855672-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%B4%D9%86-%D9%87%D8%AC%D9%88%D9%85%D8%A7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **تقديرات في إسرائيل بأن ترامب يقترب من اتخاذ قرار مهاجمة إيران**: [Link](https://www.alquds.co.uk/%D8%AA%D9%82%D8%AF%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A8%D8%A3%D9%86-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7/)
+
+
 ### ibrahim yildiz (N/A, Fri, 27 Feb 2026 17:30:00 -0800)
 
 - **Üzerine ağaç devrilmiş, aylarca yoğun bakımda kalmıştı: Oyuncu İbrahim Yıldız hayatını kaybetti**: [Link](https://t24.com.tr/magazin/uzerine-agac-devrilmis-aylarca-yogun-bakimda-kalmisti-oyuncu-ibrahim-yildiz-hayatini-kaybetti,1303156)
