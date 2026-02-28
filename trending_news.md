@@ -1,3 +1,10 @@
+### burj khalifa (N/A, Sat, 28 Feb 2026 15:20:00 -0800)
+
+- **UAE says staple goods reserves secure, urges public not to stockpile**: [Link](https://www.marketscreener.com/news/uae-says-staple-goods-reserves-secure-urges-public-not-to-stockpile-ce7e5cdfd08ff224)
+- **UAE says staple goods reserves secure, urges public not to stockpile**: [Link](https://www.khaleejtimes.com/uae/uae-staple-goods-reserves-secure-public-not-to-stockpile)
+- **UAE market stability, food prices, stock update amid…**: [Link](https://www.inkl.com/news/uae-market-stability-food-prices-stock-update-amid-iran-us-israel-escalation-panic-buying-in-the-emirates-as-oil-prices-surge)
+
+
 ### إبراهيم يلدز (N/A, Sat, 28 Feb 2026 12:00:00 -0800)
 
 - **في 27 من عمره..الموت يخطف فنانا شهير**: [Link](https://www.belpresse.com/lastnews/617260.html)
