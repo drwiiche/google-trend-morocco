@@ -1,3 +1,10 @@
+### liverpool – west ham (N/A, Sat, 28 Feb 2026 06:10:00 -0800)
+
+- **Possible lineups for Liverpool v West Ham!**: [Link](https://www.besoccer.com/new/live-liverpool-v-west-ham-1396903)
+- **“We have to show the right mentality” – Virgil van Dijk previews Liverpool’s clash with West Ham**: [Link](https://onefootball.com/de/news/we-have-to-show-the-right-mentality-virgil-van-dijk-previews-liverpools-clash-with-west-ham-42480884)
+- **Liverpool vs West Ham LIVE Score Updates in Premier League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/02/28/1252403-liverpool-vs-west-ham-live-score-premier-league.html)
+
+
 ### guerre iran usa (N/A, Sat, 28 Feb 2026 04:50:00 -0800)
 
 - **Les premières images des dégâts en Iran après les frappes américaines et israéliennes**: [Link](https://www.bfmtv.com/international/moyen-orient/iran/video-les-premieres-images-des-degats-en-iran-apres-les-frappes-americaines-et-israeliennes_VN-202602280184.html)
