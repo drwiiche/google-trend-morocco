@@ -1,3 +1,31 @@
+### لا ليغا (N/A, Sat, 28 Feb 2026 09:30:00 -0800)
+
+- **"القانون المناهض لبيكيه" يهدد حلم رونالدو في إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%87%D8%B6-%D9%84%D8%A8%D9%8A%D9%83%D9%8A%D9%87-%D9%8A%D9%87%D8%AF%D8%AF-%D8%AD%D9%84%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blte9ef6d4b7b0207e1)
+- **كريستيانو رونالدو شريكاً في ملكية ألميريا المملوك للسعودية**: [Link](https://elaph.com/Web/Sports/2026/02/1589544.html)
+- **رونالدو يستثمر في الدوري الإنجليزي بعد خطوة ألميريا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%B3%D8%AA%D8%AB%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B7%D9%88%D8%A9-%D8%A3%D9%84%D9%85%D9%8A%D8%B1%D9%8A%D8%A7/16307)
+
+
+### monaco – angers (N/A, Sat, 28 Feb 2026 09:20:00 -0800)
+
+- **Avant Monaco, Alexandre Dujeux veut que ses joueurs tentent plus : « On a des garçons qui ont une bonne frappe »**: [Link](https://www.lequipe.fr/Football/Actualites/Avant-monaco-alexandre-dujeux-veut-que-ses-joueurs-tentent-plus-on-a-des-garcons-qui-ont-une-bonne-frappe/1655540)
+- **Dynamiques, buts dans le jeu, muraille… Les stats à connaître avant Angers**: [Link](https://www.asmonaco.com/dynamiques-buts-dans-le-jeu-muraille-les-stats-a-connaitre-avant-monaco-angers-24e-journee-ligue1/)
+- **Maintien, style Dujeux, Hervé Koffi… Tout savoir sur le SCO d’Angers**: [Link](https://onefootball.com/de/news/maintien-style-dujeux-herve-koffi-tout-savoir-sur-le-sco-dangers-42480407)
+
+
+### ليدز ضد مان سيتي (N/A, Sat, 28 Feb 2026 09:20:00 -0800)
+
+- **مانشستر سيتي يفتقد خدمات هدافه إرلينغ هالاند في مواجهة ليدز يونايتد**: [Link](https://m.elbotola.com/article/2026-02-28-16-30-141.html)
+- **قبل مباراته رقم 50.. ماذا قدم عمر مرموش مع مانشستر سيتي؟**: [Link](https://www.mobtada.com/sports/1591742/%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%B1%D9%82%D9%85-50-%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%AF%D9%85-%D8%B9%D9%85%D8%B1-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%85%D8%B9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **"الفخ" الذي ينتظر مانشستر سيتي في ملعب إيلاند رود.**: [Link](https://www.vietnam.vn/ar/cam-bay-elland-road-cho-man-city)
+
+
+### المنامة (N/A, Sat, 28 Feb 2026 09:10:00 -0800)
+
+- **بفعل صواريخ إيران.. انفجارات بأبو ظبي ودبي والمنامة والرياض والكويت والدوحة**: [Link](https://www.aljazeera.net/news/2026/2/28/%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%AF%D9%88%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D9%87%D8%A7%D8%A6%D9%84-%D9%81%D9%8A-%D8%A3%D8%A8%D9%88-%D8%B8%D8%A8%D9%8A)
+- **الاتحاد البحريني لكرة القدم يتحرك رسميًا بعد الاعتداء الصاروخي على الجفير**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%81%D9%8A%D8%B1/bltb658c714f536fa0a)
+- **تصعيد إيراني يستهدف القواعد الأميركية**: [Link](https://www.hespress.com/%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-1708247.html)
+
+
 ### majorque – real sociedad (N/A, Sat, 28 Feb 2026 08:50:00 -0800)
 
 - **Preview: Mallorca vs Real Sociedad - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/mallorca-vs-real-sociedad-prediction-team-news-lineups_592808.html)
