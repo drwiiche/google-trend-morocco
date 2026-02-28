@@ -1,3 +1,59 @@
+### le havre – paris-sg (N/A, Sat, 28 Feb 2026 11:20:00 -0800)
+
+- **PSG, plusieurs absences annoncées face au Havre**: [Link](https://www.sports.fr/football/ligue-1/psg-plusieurs-absences-annoncees-face-au-havre-994673.html)
+- **Luis Enrique avant Le Havre-PSG : « On a payé le prix de ce qu'on a fait l'an dernier. Les joueurs ne sont pas des machines »**: [Link](https://www.lequipe.fr/Football/Actualites/Luis-enrique-avant-le-havre-psg-on-a-paye-le-prix-de-ce-qu-on-a-fait-l-an-dernier-les-joueurs-ne-sont-pas-des-machines/1655417)
+- **Football. Ligue 1 : au PSG, le banc des remplaçants est attendu au tournant**: [Link](https://www.lalsace.fr/sport/2026/02/28/ligue-1-au-psg-le-banc-des-remplacants-est-attendu-au-tournant)
+
+
+### al ahly – zed (N/A, Sat, 28 Feb 2026 11:20:00 -0800)
+
+- **Egyptian Premier League: date, time, channel and head-to-head history for Al Ahly vs ZED FC**: [Link](https://foot-africa.com/en/news/egyptian-premier-league-date-time-channel-and-head-to-head-history-for-al-ahly-vs-zed-fc-1104698/)
+- **History of Al Ahly vs Zed Encounters Before Tonight's Match**: [Link](https://www.ysscores.com/en/news/13919503/History-of-Al-Ahly-vs-Zed-Encounters-Before-Tonight's-Match)
+- **Al Ahly: Trezeguet and Zizo train with teammates ahead of Zed clash on Saturday -**: [Link](https://africasoccer.com/al-ahly-trezeguet-and-zizo-train-with-teammates-ahead-of-zed-clash-on-saturday/)
+
+
+### real oviedo – atlético madrid (N/A, Sat, 28 Feb 2026 11:10:00 -0800)
+
+- **Oviedo vs Atlético de Madrid: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/oviedo-vs-atletico-de-madrid-previa-predicciones-y-alineaciones)
+- **Guillermo Almada: "Indudablemente el equipo que ponga Simeone va a ser de primera línea"**: [Link](https://www.notimerica.com/deportes/noticia-guillermo-almada-indudablemente-equipo-ponga-simeone-va-ser-primera-linea-20260227201355.html)
+- **Castellón - Racing Santander en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-hypermotion/castellon-racing-santander/2026/02/28/01_0102_20260228_2500_189-directo.html)
+
+
+### ألفيحاء ضد النصر (N/A, Sat, 28 Feb 2026 11:10:00 -0800)
+
+- **مفاجأة.. جيسوس يصدم ثنائي النصر قبل مباراة الفيحاء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9--%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D8%B5%D8%AF%D9%85-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D8%AD%D8%A7%D8%A1/bltdfe8906b825a52f9)
+- **مباريات دوري روشن اليوم ملامح حاسمة لصراع الصدارة ومعركة البقاء في القاع**: [Link](https://almadinapress.com/18381/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D8%B5/)
+- **تشكيلة النصر الأساسية ضد الفيحاء في دوري روشن السعودي**: [Link](https://sports.asharq.com/football/101493/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D9%81%D9%8A%D8%AD%D8%A7%D8%A1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/)
+
+
+### inter – genoa (N/A, Sat, 28 Feb 2026 11:10:00 -0800)
+
+- **Inter-Genoa: Formazioni ufficiali e Cronaca in diretta**: [Link](https://sport.virgilio.it/dirette/live/serie-a/28-2-2026/inter-genoa/2558770/)
+- **Perché Bastoni, Calhanoglu, Dumfries e Pio Esposito non giocano titolari in Inter-Genoa: infortunio, scelta tecnica o sono squalificati? Le formazioni ufficiali**: [Link](https://www.goal.com/it/liste/perche-bastoni-calhanoglu-dumfries-e-pio-esposito-non-giocano-titolari-in-inter-genoa-infortunio-scelta-tecnica-o-sono-squalificati-le-formazioni-ufficiali/blt27c7dbc60702865c)
+- **The official line-ups for Inter vs. Genoa**: [Link](https://www.inter.it/en/news/official-line-ups-inter-vs-genoa-serie-a-25-26)
+
+
+### الست موناليزا (N/A, Sat, 28 Feb 2026 11:10:00 -0800)
+
+- **مسلسل "الست موناليزا" يتصدر المشاهدات.. جدل واسع وانقسام جماهيري**: [Link](https://www.aljazeera.net/arts/2026/2/23/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%B3%D8%AA-%D9%85%D9%88%D9%86%D8%A7%D9%84%D9%8A%D8%B2%D8%A7-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A7%D8%AA)
+- **تزامناً مع وفاة والدها... مي عمر تشعل مواقع التواصل بتعليق مثير عن مسلسلها**: [Link](https://www.lahamag.com/article/234932-%D8%AA%D8%B2%D8%A7%D9%85%D9%86%D8%A7-%D9%85%D8%B9-%D9%88%D9%81%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D8%AF%D9%87%D8%A7-%D9%85%D9%8A-%D8%B9%D9%85%D8%B1-%D8%AA%D8%B4%D8%B9%D9%84-%D9%85%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A8%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%86-%D9%85%D8%B3%D9%84%D8%B3%D9%84%D9%87%D8%A7)
+- **هل أدهم هو الفخّ المقنّع؟ قراءة في رمزية التتر وتحوّلات الشخصية في مسلسل “الست موناليزا”**: [Link](https://hawacom.tv/article/20686-%D9%87%D9%84-%D8%A3%D8%AF%D9%87%D9%85-%D9%87%D9%88-%D8%A7%D9%84%D9%81%D8%AE-%D8%A7%D9%84%D9%85%D9%82%D9%86%D8%B9-%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%81%D9%8A-%D8%B1%D9%85%D8%B2%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AA%D8%B1-%D9%88%D8%AA%D8%AD%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%B3%D8%AA)
+
+
+### al feiha – al-nassr fc (N/A, Sat, 28 Feb 2026 10:30:00 -0800)
+
+- **Jesus Settles on a Fiery Attacking Trio in Al-Nassr's Lineup Against Al-Fayha**: [Link](https://www.ysscores.com/en/news/13919390/Jesus-Settles-on-a-Fiery-Attacking-Trio-in-Al-Nassr's-Lineup-Against-Al-Fayha)
+- **How to watch today's Al-Fayha vs Al Nassr FC Saudi Pro League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en/news/how-to-watch-al-fayha-v-al-nassr-fc-28022026/bltcf46641ab2f4880e)
+- **EXPLOSIONS in Riyadh, Saudi Arabia! Will Cristiano Ronaldo Play For Al Nassr Against Al Fayha?**: [Link](https://www.newsx.com/sports/explosions-riyadh-saudi-arabia-will-cristiano-ronaldo-play-al-nassr-vs-al-fayha-israel-iran-war-conflict-175003/)
+
+
+### manchester city (N/A, Sat, 28 Feb 2026 10:20:00 -0800)
+
+- **Erling Haaland left out of Man City's squad for trip to Leeds with 'little injury'**: [Link](https://www.espn.com/soccer/story/_/id/48062103/erling-haaland-left-man-city-squad-trip-leeds)
+- **Erling Haaland out of Leeds clash with injury in huge blow for Man City**: [Link](https://www.the-independent.com/sport/football/erling-haaland-injury-update-man-city-leeds-b2929496.html)
+- **Haaland missing for Man City at Leeds because of ‘little injury,’ Guardiola says**: [Link](https://www.wavy.com/sports/ap-haaland-missing-for-man-city-at-leeds-because-of-little-injury-guardiola-says/)
+
+
 ### bahrain (N/A, Sat, 28 Feb 2026 09:40:00 -0800)
 
 - **Iran Hits Back Across the Mideast, Targeting U.S. Bases and Allies**: [Link](https://www.nytimes.com/2026/02/28/world/middleeast/iran-retaliatory-strikes-region.html)
