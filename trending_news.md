@@ -1,3 +1,10 @@
+### khomeini (N/A, Sat, 28 Feb 2026 13:10:00 -0800)
+
+- **What to know about Ali Khamenei, Iran's supreme leader**: [Link](https://www.axios.com/2026/02/28/iran-leader-ali-khamenei-what-to-know)
+- **U.S. Ability to Determine What Comes Next in Iran Might Be Limited**: [Link](https://www.nytimes.com/2026/02/28/us/politics/trump-iran-intelligence.html)
+- **A look at Iran's key political and religious figures**: [Link](https://www.washingtonpost.com/national/2026/02/28/iran-leadership-tehran-trump-israel/3bac5a04-14df-11f1-8e8d-fe91db44677b_story.html)
+
+
 ### الإنتر ضد جنوى (N/A, Sat, 28 Feb 2026 13:40:00 -0800)
 
 - **ما القنوات الناقلة لمباراة إنتر وجنوى في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%AC%D9%86%D9%88%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb8d1ad2354d6f6e6)
