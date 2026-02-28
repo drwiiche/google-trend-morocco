@@ -1,3 +1,10 @@
+### الأهلي ضد زد (N/A, Sat, 28 Feb 2026 12:00:00 -0800)
+
+- **"لون دمك".. رسالة خاصة من جماهير الأهلي للاعبي الفريق خلال مباراة زد**: [Link](https://www.masrawy.com/sports/sports_news/details/2026/2/28/2950171/-%D9%84%D9%88%D9%86-%D8%AF%D9%85%D9%83-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%85%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%AE%D9%84%D8%A7%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B2%D8%AF)
+- **هدف مصطفي ميسي في مرمي الاهلي بالدروي المصري**: [Link](https://www.btolat.com/video/91541)
+- **30 دقيقة.. الأهلى يبحث عن هدف التعادل وزد يحافظ على تقدمه بهدف**: [Link](https://www.youm7.com/story/2026/2/28/30-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%89-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%88%D8%B2%D8%AF-%D9%8A%D8%AD%D8%A7%D9%81%D8%B8-%D8%B9%D9%84%D9%89/7322753)
+
+
 ### ali khamenei (N/A, Sat, 28 Feb 2026 11:20:00 -0800)
 
 - **Unmasking the Bayt: Inside the Supreme Leader’s Office, the Hidden Nerve Center of the Islamic Republic**: [Link](https://www.unitedagainstnucleariran.com/unmasking-bayt-inside-supreme-leaders-office-hidden-nerve-center-of-islamic-republic)
