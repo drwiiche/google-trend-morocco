@@ -1,3 +1,10 @@
+### الدوري المغربي (N/A, Fri, 27 Feb 2026 16:00:00 -0800)
+
+- **الجيش يعلن عن حزمة من التدابير التنظيمية**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%AD%D8%B2%D9%85%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%AF%D8%A7%D8%A8%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%85-428815.html)
+- **البطولة: صراع الصدارة متواصل بين ركب المقدمة ومواجهات قوية في أسفل الترتيب – اليوم 24**: [Link](https://alyaoum24.com/2012515.html)
+- **الجولة 14.. الكوكب المراكشي ضيفا على المغرب الفاسي وأولمبيك آسفي يواجه الدشيرة**: [Link](https://www.marrakechalaan.com/article-668212)
+
+
 ### airbnb (N/A, Fri, 27 Feb 2026 18:30:00 -0800)
 
 - **You Can Soon Rent the ‘Heated Rivalry’ Cottage**: [Link](https://www.nytimes.com/2026/02/24/realestate/heated-rivalry-cottage-airbnb-rental.html)
