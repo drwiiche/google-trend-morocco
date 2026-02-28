@@ -1,3 +1,27 @@
+### man city (N/A, Sat, 28 Feb 2026 10:40:00 -0800)
+
+- **Leeds vs Manchester City - Premier League LIVE: Latest score and updates as Pep Guardiola's side strike...**: [Link](https://www.dailymail.co.uk/sport/football/article-15598951/Leeds-vs-Manchester-City-Premier-League-2025-26-LIVE-Result.html)
+- **Erling Haaland out of Leeds clash with injury in huge blow for Man City**: [Link](https://www.aol.com/articles/erling-haaland-leeds-clash-injury-163954492.html)
+- **Haaland missing for Man City for Premier League match at Leeds**: [Link](https://www.cecildaily.com/ap/nation/sports/haaland-missing-for-man-city-for-premier-league-match-at-leeds/article_44a38d54-dfce-59c4-87d0-4c6afaddffc4.html)
+
+
+### مايوركا ضد ريال سوسيداد (N/A, Sat, 28 Feb 2026 10:20:00 -0800)
+
+- **موعد مباراة مايوركا وريال سوسيداد في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/553399)
+
+
+### galatasaray – alanyaspor (N/A, Sat, 28 Feb 2026 10:10:00 -0800)
+
+- **Alanyaspor, Galatasaray maçı hazırlıklarına başladı**: [Link](https://www.sonses.tv/alanyaspor-galatasaray-maci-hazirliklarina-basladi-1)
+
+
+### classement fc barcelone – villarreal (N/A, Sat, 28 Feb 2026 09:50:00 -0800)
+
+- **Liga : le FC Barcelone écrase Villarreal grâce à un triplé de Yamal**: [Link](https://fr.hespress.com/464238-liga-le-fc-barcelone-ecrase-villarreal-grace-a-un-triple-de-yamal.html)
+- **Espagne: Lamine Yamal fait le show, le Barça creuse l’écart**: [Link](https://sport.le360.ma/football/liga/espagne-lamine-yamal-fait-le-show-le-barca-creuse-lecart_IE5ZC4XHEBDAVJQD7QLJQHMN4A/)
+- **Villarreal : Choc exigeant pour le leader**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4458659/fc-barcelone--villarreal-choc-exigeant-pour-le-leader)
+
+
 ### دورتموند ضد البايرن (N/A, Sat, 28 Feb 2026 10:00:00 -0800)
 
 - **صدمة البايرن قبل الكلاسيكر.. نوير ينهار في التدريب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D8%B1--%D9%86%D9%88%D9%8A%D8%B1-%D9%8A%D9%86%D9%87%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8/bltd0412f65c72052b5)
