@@ -1,3 +1,10 @@
+### brighton – nottm forest (N/A, Sun, 1 Mar 2026 06:00:00 -0800)
+
+- **Forest told to play without pressure in 'tough match' at the Amex**: [Link](https://www.theargus.co.uk/sport/25896723.brighton-v-nottingham-forest-vitor-pereiras-orders/)
+- **Hürzeler urges disgruntled fans to back Brighton and Hove Albion**: [Link](https://www.brightonandhovenews.org/2026/02/28/hurzeler-urges-disgruntled-fans-to-back-brighton-and-hove-albion/)
+- **TEAM NEWS | SELS RETURNS IN THE FOREST GOAL**: [Link](https://www.nottinghamforest.co.uk/news/2026/march/01/team-news---sels-returns-in-the-forest-goal/)
+
+
 ### fulham – tottenham (N/A, Sun, 1 Mar 2026 05:30:00 -0800)
 
 - **Tottenham predicted team vs Fulham - Three changes as Igor Tudor changes tactics**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-predicted-team-vs-fulham-33509864)
