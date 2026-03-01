@@ -1,3 +1,24 @@
+### fulham – tottenham (N/A, Sun, 1 Mar 2026 05:30:00 -0800)
+
+- **Tottenham predicted team vs Fulham - Three changes as Igor Tudor changes tactics**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-predicted-team-vs-fulham-33509864)
+- **Fulham vs Tottenham Hotspur predictions: Derby day delight for Fulham**: [Link](https://www.goal.com/en-ca/betting/tips/fulham-vs-tottenham-predictions-03-01-2026/A%3Ablt41822b645b170716)
+- **The Daly Brief | Fulham vs Spurs, Premier League**: [Link](https://onefootball.com/id/berita/the-daly-brief-fulham-vs-spurs-premier-league-42483158)
+
+
+### مان يونايتد ضد كريستال بالاس (N/A, Sun, 1 Mar 2026 05:30:00 -0800)
+
+- **كاريك يتحدى جلاسنر: لا أهتم بصراع "خليفة أموريم".. وتركيزي على هذا الأمر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%AC%D9%84%D8%A7%D8%B3%D9%86%D8%B1-%D9%84%D8%A7-%D8%A7%D9%94%D9%87%D8%AA%D9%85-%D8%A8%D8%B5%D8%B1%D8%A7%D8%B9-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%A7%D9%94%D9%85%D9%88%D8%B1%D9%8A%D9%85--%D9%88%D8%AA%D8%B1%D9%83%D9%8A%D8%B2%D9%8A-%D8%B9%D9%84%D9%89-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1/blt4e2685ecc1ff35b4)
+- **مانشستر يونايتد يواجه كريستال بالاس في أولد ترافورد سعياً لتعزيز موقعه في المربع الذهبي**: [Link](https://m.elbotola.com/article/2026-02-28-00-30-741.html)
+- **إحصائيات كاسيميرو في الدوري الانجليزي هذا الموسم**: [Link](https://hihi2.com/2026/03/01/p3672492.html)
+
+
+### manchester united – crystal palace (N/A, Sun, 1 Mar 2026 05:10:00 -0800)
+
+- **Team news for Man Utd v Crystal Palace | 1 March 2026 | Manchester United**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-crystal-palace-1-march-2026)
+- **Manchester United Face Crystal Palace at Old Trafford Seeking to Bolster Top-Four Position**: [Link](https://m.elbotola.com/en/article/2026-02-28-00-30-469.html)
+- **Why Lisandro Martinez and Mason Mount are not in Man United squad vs Crystal Palace**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/man-united-martinez-mount-palace-33511099)
+
+
 ### elche – espanyol (N/A, Sun, 1 Mar 2026 04:20:00 -0800)
 
 - **Manolo González afronta el Elche - Espanyol con la urgencia de cortar la racha: "Somos conscientes de la importancia de este partido"**: [Link](https://lagrada.org/manolo-gonzalez-afronta-el-elche-espanyol-con-la-urgencia-de-cortar-la-racha-somos-conscientes-de-la-importancia-de-este-partido/)
