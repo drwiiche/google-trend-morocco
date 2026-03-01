@@ -1,3 +1,8 @@
+### betis – séville (N/A, Sun, 1 Mar 2026 08:50:00 -0800)
+
+- **⚖️ Referees named for the Seville derby and the rest of Sunday’s matches**: [Link](https://sports.yahoo.com/articles/referees-named-seville-derby-rest-105900790.html)
+
+
 ### lille – nantes (N/A, Sun, 1 Mar 2026 08:20:00 -0800)
 
 - **LOSC – FC Nantes. Les prédictions d’Opta**: [Link](https://sportune.20minutes.fr/losc-fc-nantes-les-predictions-dopta-396201)
