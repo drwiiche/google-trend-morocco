@@ -1,3 +1,10 @@
+### الخميني (N/A, Sat, 28 Feb 2026 14:00:00 -0800)
+
+- **ولي عهد إيران السابق يعلق على مقتل خامنئي**: [Link](https://arabic.cnn.com/middle-east/article/2026/03/01/son-of-last-shah-of-iran-welcomes-death-of-khamenei)
+- **بهلوي: بوفاة خامنئي انتهت «الجمهورية الإسلامية» فعلياً**: [Link](https://aawsat.com/%D8%B4%D8%A4%D9%88%D9%86-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9/5246031-%D8%A8%D9%87%D9%84%D9%88%D9%8A-%D8%A8%D9%88%D9%81%D8%A7%D8%A9-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%A7%D9%86%D8%AA%D9%87%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D9%81%D8%B9%D9%84%D9%8A%D8%A7%D9%8B)
+- **"النصر على الجمهورية الإسلامية يقترب".. نجل الشاه المخلوع: الغارات الإسرائيلية الأمريكية تدخل إنساني**: [Link](https://arabic.euronews.com/2026/02/28/reza-pahlavi-strikes-on-iran-humanitarian-intervention-donald-trump-us-military-operat)
+
+
 ### طقس مراكش (N/A, Sat, 28 Feb 2026 23:20:00 -0800)
 
 - **صور الأقمار الاصطناعية ترصد "سحابة غبارية ضخمة" قادمة نحو المغرب**: [Link](https://www.hespress.com/%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%82%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D8%B1%D8%B5%D8%AF-%D8%B3%D8%AD%D8%A7%D8%A8%D8%A9-%D8%BA%D8%A8%D8%A7-1707947.html)
