@@ -1,3 +1,10 @@
+### بيت شيمش (N/A, Sun, 1 Mar 2026 06:40:00 -0800)
+
+- **شاهد.. صاروخ إيراني يضرب مستوطنة إسرائيلية ويوقع قتلى**: [Link](https://www.aljazeera.net/news/2026/3/1/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-12-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-4-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A)
+- **ارتفاع عدد القتلى جراء سقوط صاروخ في بيت شيمش قرب القدس إلى 8**: [Link](https://www.alarabiya.net/arab-and-world/2026/03/01/8-%D9%82%D8%AA%D9%84%D9%89-%D8%A8%D8%B3%D9%82%D9%88%D8%B7-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE-%D8%B9%D9%84%D9%89-%D8%A8%D9%8A%D8%AA-%D8%B4%D9%8A%D9%85%D8%B4-%D9%88%D8%B3%D8%B7-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **مقتل 8 أشخاص في قصف على إسرائيل**: [Link](https://www.hespress.com/%D9%85%D9%82%D8%AA%D9%84-6-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%81%D9%8A-%D9%82%D8%B5%D9%81-%D8%B9%D9%84%D9%89-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-1708886.html)
+
+
 ### brighton – nottm forest (N/A, Sun, 1 Mar 2026 06:00:00 -0800)
 
 - **Forest told to play without pressure in 'tough match' at the Amex**: [Link](https://www.theargus.co.uk/sport/25896723.brighton-v-nottingham-forest-vitor-pereiras-orders/)
