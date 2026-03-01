@@ -1,3 +1,10 @@
+### cremonese – ac milan (N/A, Sun, 1 Mar 2026 03:10:00 -0800)
+
+- **Preview: Cremonese vs AC Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cremonese/race-for-the-serie-a-title/preview/cremonese-vs-ac-milan-prediction-team-news-lineups_592872.html)
+- **Football Tracker: AC Milan facing Cremonese as Rangers & Celtic meet in Old Firm derby**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-updates-march-1/bTq31myH/)
+- **Cremonese v AC Milan, Serie A 2025/2026: Coach Massimiliano Allegri's pre-match press conference**: [Link](https://www.acmilan.com/en/news/articles/press-conference/2026-02-28/allegri-we-re-taking-it-a-game-at-a-time)
+
+
 ### علي خامنئي (N/A, Sat, 28 Feb 2026 12:20:00 -0800)
 
 - **بديل خامنئي.. تقرير يتحدث عن توقعات المخابرات الأميركية**: [Link](https://www.skynewsarabia.com/middle-east/1855821-%D8%A8%D8%AF%D9%8A%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%A8%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9)
