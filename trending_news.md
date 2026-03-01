@@ -1,3 +1,10 @@
+### roma vs juventus (N/A, Sun, 1 Mar 2026 11:40:00 -0800)
+
+- **Roma & Juventus are having historic seasons, but for very different reasons**: [Link](https://www.flashscore.com/news/soccer-serie-a-why-roma-vs-juventus-is-a-key-clash-between-one-club-on-the-rise-one-in-decline/rF0y8oro/)
+- **Dybala and El Shaarawy called up vs Juve, Hermoso, Soule out**: [Link](https://romapress.net/dybala-and-el-shaarawy-called-up-vs-juve-hermoso-soule-out/)
+- **Massara: ‘Roma will be attacking and aggressive with Juventus’**: [Link](https://sports.yahoo.com/articles/massara-roma-attacking-aggressive-juventus-192000403.html)
+
+
 ### real betis (N/A, Sun, 1 Mar 2026 11:40:00 -0800)
 
 - **¡Celébralo, Fidalgo! El mexicano marcó su primer gol en España**: [Link](https://www.foxdeportes.com/la-liga/galeria/celebralo-fidalgo-el-mexicano-marco-su-primer-gol-en-espana)
