@@ -1,3 +1,24 @@
+### real betis (N/A, Sun, 1 Mar 2026 11:40:00 -0800)
+
+- **¡Celébralo, Fidalgo! El mexicano marcó su primer gol en España**: [Link](https://www.foxdeportes.com/la-liga/galeria/celebralo-fidalgo-el-mexicano-marco-su-primer-gol-en-espana)
+- **Betis vs. Sevilla EN VIVO: Fidalgo titular en el derbi**: [Link](https://www.tudn.com/futbol/la-liga/fidalgo-con-betis-vs-sevilla-en-vivo-goles-resumen-y-resultado-del-partido-jornada-26-laliga)
+- **Álvaro Fidalgo opina sobre su debut inolvidable en el derbi de Sevilla: "Lo soñé varias veces ayer por la noche"**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/alvaro-fidalgo-opina-sobre-debut-inolvidable-derbi-sevilla-sone-varias-veces-ayer-noche/1kx8q1fwccnx41q6a5hfnca5vj)
+
+
+### betis (N/A, Sun, 1 Mar 2026 11:30:00 -0800)
+
+- **El uno a uno de la IA también da favorito al Betis en el derbi**: [Link](https://www.marca.com/futbol/primera-division/2026/03/01/ia-tambien-da-favorito-betis-derbi.html)
+- **La Cartuja se viste de gala para ‘El Gran Derbi’ sevillano**: [Link](https://onefootball.com/es/noticias/la-cartuja-se-viste-de-gala-para-el-gran-derbi-sevillano-42486346)
+- **La Policía Nacional frena dos intentos de reyerta en Sevilla en la previa del Betis-Sevilla**: [Link](https://www.diarioavanza.es/articulo/sevilla/policia-nacional-frena-dos-intentos-reyerta-sevilla-previa-betis-sevilla/20260301142707016088.html)
+
+
+### b2 (N/A, Sun, 1 Mar 2026 11:00:00 -0800)
+
+- **U.S. Used Stealth B-2 Bombers in Operation Epic Fury**: [Link](https://www.wsj.com/livecoverage/iran-strikes-2026/card/u-s-used-stealth-b-2-bombers-in-operation-epic-fury-T6FpPweOhoy2JxSGM3rz?gaa_at=eafs&gaa_n=AWEtsqdeNuLPgNV5XN1pS0ANUMYDn1g-EqvHBlLwcmzNvznC1KbAQ44Y1iVt&gaa_ts=69a49b2f&gaa_sig=BT09q0zYp3-xJvOTyypX20gfvSAGLaW23YIdy8-nPnRzVCu_6YjpBa6EIBK3j6JTweq24alAoeB4rScvFD_2eQ%3D%3D)
+- **US official confirms B-2s conducted recent strikes on Iran**: [Link](https://www.timesofisrael.com/liveblog_entry/us-official-confirms-b-2s-conducted-recent-strikes-on-iran/)
+- **US military used stealth B-2 bombers to strike Iran’s ballistic missile facilities**: [Link](https://thehill.com/policy/defense/5761746-b2-bombers-iran-strikes-centcom/)
+
+
 ### marseille – lyon (N/A, Sun, 1 Mar 2026 11:10:00 -0800)
 
 - **Le groupe de l’OM avec un absent surprise face à l’OL**: [Link](https://www.footmercato.net/a5524572936082913600-le-groupe-de-lom-avec-un-absent-surprise-face-a-lol)
