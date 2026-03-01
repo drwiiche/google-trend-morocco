@@ -1,3 +1,10 @@
+### elche – espanyol (N/A, Sun, 1 Mar 2026 04:20:00 -0800)
+
+- **Manolo González afronta el Elche - Espanyol con la urgencia de cortar la racha: "Somos conscientes de la importancia de este partido"**: [Link](https://lagrada.org/manolo-gonzalez-afronta-el-elche-espanyol-con-la-urgencia-de-cortar-la-racha-somos-conscientes-de-la-importancia-de-este-partido/)
+- **Pace y Watt, estarán en el Martínez Valero apoyando al equipo**: [Link](https://onefootball.com/es/noticias/pace-y-watt-estaran-en-el-martinez-valero-apoyando-al-equipo-42486697)
+- **El fútbol en directo: noticias, resultados, crónicas, entrevistas**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-futbol-en-directo-elche-y-espanyol-abren-el-domingo/SOZJMted/)
+
+
 ### iran president (N/A, Sat, 28 Feb 2026 13:40:00 -0800)
 
 - **'Renewed hope' for Iran after ayatollah's death, von der Leyen says**: [Link](https://www.euronews.com/2026/03/01/iran-security-official-says-khamenei-transition-process-to-begin-on-sunday)
