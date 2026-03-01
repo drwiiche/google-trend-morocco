@@ -1,3 +1,31 @@
+### real betis vs sevilla (N/A, Sun, 1 Mar 2026 09:50:00 -0800)
+
+- **Real Betis vs Sevilla: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c795l24n9r2t)
+- **EL GRAN DERBI BY THE NUMBERS: Setting the Stage for the 110th La Liga Clash**: [Link](https://www.365scores.com/news/el-gran-derbi-by-the-numbers-setting-the-stage-for-the-110th-la-liga-clash)
+- **Álvaro Fidalgo to Experience His First Big Derby: Time and Where to Watch Real Betis vs Sevilla**: [Link](https://www.soyfutbol.com/en/news/alvaro-fidalgo-to-experience-his-first-big-derby-time-and-where-to-watch-real-betis-vs-sevilla-20260228-0062.html)
+
+
+### classement premier league (N/A, Sun, 1 Mar 2026 08:50:00 -0800)
+
+- **Leeds 0-1 Manchester City, Premier League : résumé du match (28/02/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/leeds-manchester-city-live/673778)
+- **Man City : inquiétude pour Erling Haaland avant le Real Madrid**: [Link](https://www.footmercato.net/a4734200818213727563-man-city-inquietude-pour-erling-haaland-avant-le-real-madrid)
+- **Leeds vs Manchester City**: [Link](https://www.football365.fr/direct-foot/200226/200438/leeds-manchester-city.html)
+
+
+### pl (N/A, Sun, 1 Mar 2026 08:10:00 -0800)
+
+- **Rozporządzenie 2026/464 w sprawie zmiany rozporządzenia (UE) 2024/1348 w odniesieniu do ustanowienia wykazu bezpiecznych krajów pochodzenia na poziomie Unii**: [Link](https://www.prawo.pl/akty/dz-u-ue-l-2026-464,72571735.html)
+- **Polityka migracyjna UE. Będzie szybsze odsyłanie migrantów**: [Link](https://www.gazetaprawna.pl/wiadomosci/swiat/artykuly/10651293,ue-otwiera-furtke-dla-hubow-migracyjnych.html)
+- **Rozporządzenie 2026/463 w sprawie zmiany rozporządzenia (UE) 2024/1348 w odniesieniu do stosowania koncepcji bezpiecznego kraju trzeciego**: [Link](https://www.prawo.pl/akty/dz-u-ue-l-2026-463,72571734.html)
+
+
+### sassuolo – atalanta (N/A, Sun, 1 Mar 2026 07:50:00 -0800)
+
+- **Il primo stop dell’anno in A non cambia gli obiettivi**: [Link](https://zonamistamagazine.com/il-primo-stop-dell-anno-in-a-non-cambia-gli-obiettivi/)
+- **Le pagelle di Sassuolo-Atalanta. Grosso ricorda molto il Lippi del Mondiale 2006**: [Link](https://terzotemposportmagazine.it/atalanta/le-pagelle-di-sassuolo-atalanta-grosso-ricorda-molto-il-lippi-del-mondiale-2006/)
+- **Palladino: "Gestita male la superiorità numerica. Grave concedere il 2-0 così"**: [Link](https://www.bergamonews.it/2026/03/01/palladino-gestita-male-la-superiorita-numerica-grave-concedere-il-2-0-cosi/872136/)
+
+
 ### betis – séville (N/A, Sun, 1 Mar 2026 08:50:00 -0800)
 
 - **⚖️ Referees named for the Seville derby and the rest of Sunday’s matches**: [Link](https://sports.yahoo.com/articles/referees-named-seville-derby-rest-105900790.html)
