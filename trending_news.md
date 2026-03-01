@@ -1,3 +1,10 @@
+### marseille – lyon (N/A, Sun, 1 Mar 2026 11:10:00 -0800)
+
+- **Le groupe de l’OM avec un absent surprise face à l’OL**: [Link](https://www.footmercato.net/a5524572936082913600-le-groupe-de-lom-avec-un-absent-surprise-face-a-lol)
+- **Première composition pour Habib Beye au Vélodrome : Kondogbia et Traoré titulaires avec l'OM face à l'OL**: [Link](https://www.lequipe.fr/Football/Actualites/Premiere-composition-pour-habib-beye-au-velodrome-kondogbia-et-traore-titulaires-avec-l-om-face-a-l-ol/1656037)
+- **Nouveau coup dur pour l'effectif de l'OL**: [Link](https://www.boursorama.com/actualite-economique/actualites/nouveau-coup-dur-pour-l-effectif-de-l-ol-9dd125b35e5d06bd9e209bdb5b2f761d)
+
+
 ### roma – juventus (N/A, Sun, 1 Mar 2026 11:00:00 -0800)
 
 - **Roma-Juventus: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74964/roma-juventus-le-formazioni-ufficiali)
