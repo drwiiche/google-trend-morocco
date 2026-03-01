@@ -1,3 +1,17 @@
+### lille – nantes (N/A, Sun, 1 Mar 2026 08:20:00 -0800)
+
+- **LOSC – FC Nantes. Les prédictions d’Opta**: [Link](https://sportune.20minutes.fr/losc-fc-nantes-les-predictions-dopta-396201)
+- **DIRECT : Suivez toute la Ligue 1 sur Flashscore**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-auxerre-lance-le-multi-ligue-1-avec-un-but-face-a-lorient-suivez-les-matchs-en-live/CMAvlN34/)
+- **Compositions de Lille-Nantes : Bruno Genesio fait tourner et met Giroud sur le banc, Mathis Abline remplaçant aussi**: [Link](https://www.lequipe.fr/Football/Actualites/Compositions-de-lille-nantes-bruno-genesio-fait-tourner-et-met-olivier-giroud-sur-le-banc-matthis-abline-remplacant-aussi/1655961)
+
+
+### فولهام ضد توتنهام (N/A, Sun, 1 Mar 2026 07:30:00 -0800)
+
+- **فولهام يستضيف توتنهام في مواجهة لتعزيز المراكز بجدول الدوري الأنجليزي الممتاز**: [Link](https://m.elbotola.com/article/2026-02-28-00-15-103.html)
+- **صامويل تشوكويزي يستعد للعب ضد توتنهام!**: [Link](https://foot-africa.com/ar/news/%D8%B5%D8%A7%D9%85%D9%88%D9%8A%D9%84-%D8%AA%D8%B4%D9%88%D9%83%D9%88%D9%8A%D8%B2%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D8%B9%D8%A8-%D8%B6%D8%AF-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-1104560/)
+- **الحلم سبورت : تاريخ مواجهات توتنهام وفولهام في الدوري الإنجليزي**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%88%D9%81%D9%88/)
+
+
 ### آرسنال ضد تشيلسي (N/A, Sun, 1 Mar 2026 07:50:00 -0800)
 
 - **إنجاز سلوت ينتظر روسينيور.. وسفاح الديربي يتربص بتشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%B1%D9%88%D8%B3%D9%8A%D9%86%D9%8A%D9%88%D8%B1--%D9%88%D8%B3%D9%81%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AA%D8%B1%D8%A8%D8%B5-%D8%A8%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/bltf39f5faabd6d373c)
