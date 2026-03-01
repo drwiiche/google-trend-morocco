@@ -1,3 +1,45 @@
+### أولمبيك مارسيليا ضد أولمبيك ليون (N/A, Sun, 1 Mar 2026 12:20:00 -0800)
+
+- **صراع المربع الذهبي يجمع مارسيليا وليون في قمة الجولة الرابعة والعشرين من الدوري الفرنسي**: [Link](https://m.elbotola.com/article/2026-02-28-17-46-292.html)
+- **عبدلي يخطف انظار مدربه الجديد عشية مواجهة اولمبيك ليون**: [Link](https://akhersaa.net/%D8%B9%D8%A8%D8%AF%D9%84%D9%8A-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%86%D8%B8%D8%A7%D8%B1-%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D8%B4%D9%8A%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D9%84%D9%8A%D9%88%D9%86)
+- **مرسيليا يراهن على غويري للتدارك في البطولة الفرنسية**: [Link](https://www.el-massa.com/dz/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%BA%D9%88%D9%8A%D8%B1%D9%8A-%D9%84%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9)
+
+
+### روما ضد يوفنتوس (N/A, Sun, 1 Mar 2026 12:20:00 -0800)
+
+- **4 غيابات تضرب يوفنتوس في قمة روما**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/4-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%B1%D9%88%D9%85%D8%A7/blt9a9dc1036d2d261a)
+- **غاسبيريني يستبعد مشاركة ديبالا في مواجهة روما ويوفنتوس بالدوري الإيطالي**: [Link](https://m.elbotola.com/article/2026-02-28-14-00-807.html)
+- **بث مباشر الآن.. كيفية مشاهدة مباراة يوفنتوس وروما في الدوري الإيطالي؟**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%88%D8%B1%D9%88%D9%85%D8%A7/)
+
+
+### om (N/A, Sun, 1 Mar 2026 12:20:00 -0800)
+
+- **‘Ik ben elke dag wel met verkiezingen bezig’**: [Link](https://www.rotterdam.nl/ik-ben-elke-dag-wel-met-verkiezingen-bezig)
+- **Overal pogingen om opkomst te verhogen: 'Sleutelfiguren hebben nog wel invloed'**: [Link](https://nos.nl/artikel/2604582-overal-pogingen-om-opkomst-te-verhogen-sleutelfiguren-hebben-nog-wel-invloed)
+- **Van boksring tot vliegveld: drie verkiezingsdebatten uitgelicht**: [Link](https://www.dehavenloods.nl/nieuws/algemeen/63345/van-boksring-tot-vliegveld-drie-verkiezingsdebatten-uitgelicht)
+
+
+### pyramids – zamalek (N/A, Sun, 1 Mar 2026 12:10:00 -0800)
+
+- **Mido Sends Support Message to Zamalek Players Before Facing Pyramids**: [Link](https://www.ysscores.com/en/news/13920158/Mido-Sends-Support-Message-to-Zamalek-Players-Before-Facing-Pyramids)
+- **Today's match schedule and broadcast channels: Pyramids vs Zamalek clash and a fiery encounter between Arsenal and Chelsea**: [Link](https://www.voiceofemirates.com/en/sport/2026/03/01/todays-match-schedule-and-broadcast-channels-pyramids-vs-zamalek-clash-and-a-fiery-encounter-between-arsenal-and-chelsea/)
+- **Pyramids vs Zamalek: date and time for the big Egyptian League clash**: [Link](https://www.panafricafootball.com/post/pyramids-zamalek-egyptian-league/)
+
+
+### ahmadinejad (N/A, Sun, 1 Mar 2026 11:50:00 -0800)
+
+- **Former Iran President Mahmoud Ahmadinejad Reportedly Killed in Tehran Missile Strike**: [Link](https://www.moroccoworldnews.com/2026/03/281178/former-iran-president-mahmoud-ahmadinejad-reportedly-killed-in-tehran-missile-strike/)
+- **Party of former Iranian president Ahmadinejad denies his death**: [Link](https://www.yahoo.com/news/articles/party-former-iranian-president-ahmadinejad-192829008.html)
+- **Former Iranian President Mahmoud Ahmadinejad killed in US-Israeli strikes**: [Link](https://realnewsmagazine.net/former-iranian-president-mahmoud-ahmadinejad-killed-in-us-israeli-strikes/)
+
+
+### rafa mir (N/A, Sun, 1 Mar 2026 11:20:00 -0800)
+
+- **Carlos Romero, del golazo al penalti en el Elche - Espanyol: “Me voy jodido, se nos ha escapado”**: [Link](https://lagrada.org/carlos-romero-declaraciones-elche-espanyol-gol-penalti/)
+- **Detenido el partido cinco minutos por un incidente racista**: [Link](https://es-us.noticias.yahoo.com/deportes/detenido-partido-minutos-incidente-racista-150706705.html)
+- **Manolo: “El equipo volvió a ser reconocible”**: [Link](https://as.com/futbol/primera/manolo-el-equipo-volvio-a-ser-reconocible-f202603-n/)
+
+
 ### roma vs juventus (N/A, Sun, 1 Mar 2026 11:40:00 -0800)
 
 - **Roma & Juventus are having historic seasons, but for very different reasons**: [Link](https://www.flashscore.com/news/soccer-serie-a-why-roma-vs-juventus-is-a-key-clash-between-one-club-on-the-rise-one-in-decline/rF0y8oro/)
