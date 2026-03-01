@@ -1,3 +1,10 @@
+### arsenal – chelsea (N/A, Sun, 1 Mar 2026 07:40:00 -0800)
+
+- **Pick your all-time COMBINED Arsenal and Chelsea line-up**: [Link](https://www.premierleague.com/en/news/4599277/pick-your-all-time-combined-arsenal-v-chelsea-xi-of-premier-league-players)
+- **Every word from Mikel Arteta's pre-Chelsea presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikel-artetas-pre-chelsea-presser-1)
+- **How Liam Rosenior has prepared Chelsea to beat set-piece kings Arsenal at their own game**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-arsenal-rosenior-set-piece-b1272848.html)
+
+
 ### manchester united (N/A, Sun, 1 Mar 2026 06:00:00 -0800)
 
 - **Michael Carrick's 75-minute training technique is working brilliantly at Man Utd but it does carry a risk**: [Link](https://www.unitedinfocus.com/opinion/michael-carricks-75-minute-training-technique-is-working-brilliantly-at-man-utd-but-it-does-carry-a-risk/)
