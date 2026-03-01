@@ -1,3 +1,10 @@
+### manchester united (N/A, Sun, 1 Mar 2026 06:00:00 -0800)
+
+- **Michael Carrick's 75-minute training technique is working brilliantly at Man Utd but it does carry a risk**: [Link](https://www.unitedinfocus.com/opinion/michael-carricks-75-minute-training-technique-is-working-brilliantly-at-man-utd-but-it-does-carry-a-risk/)
+- **How Carrick's coaches are helping us improve**: [Link](https://www.manutd.com/en/news/detail/michael-carrick-on-how-his-coaches-are-helping-develop-squad-travis-binnion-benjamin-sesko)
+- **Michael Carrick causes another change at Man United as Ruben Amorim criticism emerges**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/carrick-man-united-manager-latest-33508220)
+
+
 ### بيت شيمش (N/A, Sun, 1 Mar 2026 06:40:00 -0800)
 
 - **شاهد.. صاروخ إيراني يضرب مستوطنة إسرائيلية ويوقع قتلى**: [Link](https://www.aljazeera.net/news/2026/3/1/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-12-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-4-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A)
