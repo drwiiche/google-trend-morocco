@@ -1,3 +1,10 @@
+### iran president (N/A, Sat, 28 Feb 2026 13:40:00 -0800)
+
+- **'Renewed hope' for Iran after ayatollah's death, von der Leyen says**: [Link](https://www.euronews.com/2026/03/01/iran-security-official-says-khamenei-transition-process-to-begin-on-sunday)
+- **‘Overwhelming support’ in Israel for attacks on Iran says former Israeli ambassador to U.S.**: [Link](https://www.nbcnews.com/video/-overwhelming-support-in-israel-for-attacks-on-iran-says-former-israeli-ambassador-to-u-s-258486853505)
+- **"This is a war of no choice for the state of Israel," says former Israeli ambassador to U.S.**: [Link](https://www.cbsnews.com/video/this-is-a-war-of-no-choice-for-the-state-of-israel-says-former-israeli-ambassador-to-us/)
+
+
 ### cremonese – ac milan (N/A, Sun, 1 Mar 2026 03:10:00 -0800)
 
 - **Preview: Cremonese vs AC Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cremonese/race-for-the-serie-a-title/preview/cremonese-vs-ac-milan-prediction-team-news-lineups_592872.html)
