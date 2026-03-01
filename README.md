@@ -1,3 +1,10 @@
+### qatar airways (N/A, Sun, 1 Mar 2026 01:00:00 -0800)
+
+- **US-Iran conflict disrupts thousands of flights as travel chaos deepens**: [Link](https://www.reuters.com/world/middle-east/us-iran-conflict-disrupts-thousands-flights-travel-chaos-deepens-2026-03-01/)
+- **Photos show chaos at airports as passengers are left stranded due to canceled flights**: [Link](https://www.businessinsider.com/dubai-international-airport-photos-iran-strikes-canceled-flights-passengers-stranded-2026-2)
+- **Airlines cancel hundreds of flights after U.S., Israeli attacks on Iran**: [Link](https://www.cnbc.com/2026/02/28/airspace-closure-middle-east-flights-us-strikes.html)
+
+
 ### al arabiya (N/A, Sun, 1 Mar 2026 00:40:00 -0800)
 
 - **ضربات صاروخية إيرانية تدفع ملايين الإسرائيليين إلى الملاجئ**: [Link](https://www.aljazeera.net/news/2026/3/1/5-%D8%AF%D9%81%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%A3%D8%AC%D8%A8%D8%B1%D8%AA)
