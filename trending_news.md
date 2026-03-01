@@ -1,3 +1,10 @@
+### chelsea (N/A, Sun, 1 Mar 2026 09:00:00 -0800)
+
+- **Liam Rosenior Confident in Chelsea's Readiness for Arsenal and Aston Villa Clashes**: [Link](https://m.elbotola.com/en/article/2026-02-27-15-15-107.html)
+- **ARSENAL V CHELSEA: POSSIBLE LINEUPS FOR THE LONDON DERBY!**: [Link](https://www.besoccer.com/new/live-arsenal-v-chelsea-1397044)
+- **Liam Rosenior makes Mikel Arteta admission as Chelsea boss faces question over future**: [Link](https://www.football.london/chelsea-fc/news/liam-rosenior-makes-mikel-arteta-33507487)
+
+
 ### real betis vs sevilla (N/A, Sun, 1 Mar 2026 09:50:00 -0800)
 
 - **Real Betis vs Sevilla: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c795l24n9r2t)
