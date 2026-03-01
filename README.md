@@ -1,3 +1,10 @@
+### roma – juventus (N/A, Sun, 1 Mar 2026 11:00:00 -0800)
+
+- **Roma-Juventus: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/74964/roma-juventus-le-formazioni-ufficiali)
+- **Roma-Juve diretta Serie A: segui la sfida tra Gasperini e Spalletti LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2026/03/01-146974238/roma-juve_diretta_serie_a_segui_la_sfida_tra_gasperini_e_spalletti_live)
+- **Rispettateci. Rispettiamoci.**: [Link](https://www.rivistalaroma.it/2026/03/rispettateci-rispettiamoci/)
+
+
 ### chelsea (N/A, Sun, 1 Mar 2026 09:00:00 -0800)
 
 - **Liam Rosenior Confident in Chelsea's Readiness for Arsenal and Aston Villa Clashes**: [Link](https://m.elbotola.com/en/article/2026-02-27-15-15-107.html)
