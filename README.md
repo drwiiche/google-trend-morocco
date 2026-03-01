@@ -1,3 +1,10 @@
+### علي خامنئي (N/A, Sat, 28 Feb 2026 12:20:00 -0800)
+
+- **بديل خامنئي.. تقرير يتحدث عن توقعات المخابرات الأميركية**: [Link](https://www.skynewsarabia.com/middle-east/1855821-%D8%A8%D8%AF%D9%8A%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%A8%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9)
+- **إيران.. 5 أسماء مرشحة لخلافة خامنئي بعد مقتله**: [Link](https://arabic.cnn.com/middle-east/article/2026/03/01/who-could-lead-iran-after-death-of-the-supreme-leader)
+- **من – أو ماذا – بعد خامنئي؟**: [Link](https://alhurra.com/14654)
+
+
 ### قناة الجزيرة (N/A, Sun, 1 Mar 2026 02:00:00 -0800)
 
 - **فيديو.. هجمات إسرائيلية على طهران وانفجارات "هائلة"**: [Link](https://www.skynewsarabia.com/middle-east/1855938-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%88%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D9%87%D8%A7%D8%A6%D9%84%D8%A9)
