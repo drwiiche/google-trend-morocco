@@ -1,3 +1,17 @@
+### kick (N/A, Sat, 28 Feb 2026 17:00:00 -0800)
+
+- **What we know about Kick streamer Matthewdota, his net worth**: [Link](https://win.gg/matthewdota-net-worth/)
+- **Stake Pushes Back After Analysis Claims Statistical Miracles for Big Kick Streamers**: [Link](https://www.filmogaz.com/173267)
+- **Unlikely Wins and Comped Spins: Inside Stake’s Empire**: [Link](https://www.bloomberg.com/features/2026-stake-drake-crypto-casino-adin-ross-gambling/)
+
+
+### burj al arab (N/A, Sat, 28 Feb 2026 14:50:00 -0800)
+
+- **Dubai authorities say drone debris causes fire at Burj Al Arab Hotel**: [Link](https://en.hespress.com/132818-dubai-authorities-say-drone-debris-causes-fire-at-burj-al-arab-hotel.html)
+- **One killed, seven wounded in ‘incident’ at Abu Dhabi airport**: [Link](https://english.alarabiya.net/News/gulf/2026/03/01/one-killed-seven-wounded-in-incident-at-abu-dhabi-airport)
+- **Injuries at Dubai airport as Iran strikes UAE**: [Link](https://www.thetimes.com/world/middle-east/article/iran-dubai-hotel-uae-dcc8bvbnf)
+
+
 ### burj khalifa (N/A, Sat, 28 Feb 2026 15:20:00 -0800)
 
 - **UAE says staple goods reserves secure, urges public not to stockpile**: [Link](https://www.marketscreener.com/news/uae-says-staple-goods-reserves-secure-urges-public-not-to-stockpile-ce7e5cdfd08ff224)
