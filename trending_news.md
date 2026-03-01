@@ -1,3 +1,24 @@
+### محمد باكبور (N/A, Sat, 28 Feb 2026 20:10:00 -0800)
+
+- **أبرز أحداث اليوم الأول للحرب الأمريكية الإسرائيلية على إيران**: [Link](https://www.aljazeera.net/news/2026/3/1/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%84%D8%AD%D8%B1%D8%A8)
+- **انفجارات تخلف إصابات في تل أبيب**: [Link](https://www.hespress.com/%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%AE%D9%84%D9%81-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D9%84-%D8%A3%D8%A8%D9%8A%D8%A8-1708623.html)
+- **أبرز ردود الفعل على الهجمات الإسرائيلية الأمريكية على إيران**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260228-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%B1%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D8%B9%D9%84-%D8%A7%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%84%D8%A8%D9%86%D8%A7%D9%86)
+
+
+### عيد الفطر 2026 (N/A, Sat, 28 Feb 2026 20:00:00 -0800)
+
+- **الحسابات الفلكية تكشف موعد ميلاد شهر شوال وأول أيام عيد الفطر المبارك فلكيا**: [Link](https://www.youm7.com/story/2026/2/27/%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF-%D8%B4%D9%87%D8%B1-%D8%B4%D9%88%D8%A7%D9%84-%D9%88%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF/7320578)
+- **الدكتور المسند يعرف سراً عن موعد العيد.. والسبب العلمي الذي يجعل رمضان 30 يوماً هذا العام مؤكد فلكياً**: [Link](https://yemen-press.net/news169737.html)
+- **عاجل : فلكيا... رمضان 30 يوما والعيد 20 مارس في هذه الدولة**: [Link](https://www.tuniscope.com/ar/article/426174/arabe/societe/ramadan-2026-111513)
+
+
+### ligue 1 (N/A, Sat, 28 Feb 2026 12:00:00 -0800)
+
+- **OM : les grandes annonces d’Habib Beye avant le choc face à l’OL**: [Link](https://www.footmercato.net/a5550301038894999520-om-les-grandes-annonces-dhabib-beye-avant-le-choc-face-a-lol)
+- **Ligue 1 : «Il faut trouver des solutions», l’attaque lyonnaise décimée avant le déplacement à Marseille**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/ligue-1-il-faut-trouver-des-solutions-l-attaque-lyonnaise-decimee-avant-le-deplacement-a-marseille-20260228)
+- **Marseille - Lyon : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en direct ?**: [Link](https://www.ouest-france.fr/sport/football/olympique-de-marseille/marseille-lyon-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-da17509c-131b-11f1-ac20-ad3e04eb72b3)
+
+
 ### kick (N/A, Sat, 28 Feb 2026 17:00:00 -0800)
 
 - **What we know about Kick streamer Matthewdota, his net worth**: [Link](https://win.gg/matthewdota-net-worth/)
