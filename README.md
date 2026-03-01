@@ -1,3 +1,17 @@
+### claude ai (N/A, Sun, 1 Mar 2026 00:30:00 -0800)
+
+- **OpenAI strikes deal with Pentagon hours after Trump admin bans Anthropic**: [Link](https://www.cnn.com/2026/02/27/tech/openai-pentagon-deal-ai-systems)
+- **US Used Anthropic's Claude AI In Iran Strikes Hours After Trump's Ban: Report**: [Link](https://www.ndtv.com/world-news/us-used-anthropics-claude-ai-in-iran-strikes-hours-after-trumps-ban-report-iran-israel-us-war-donald-trump-vs-anthropic-11153230)
+- **Our agreement with the Department of War**: [Link](https://openai.com/index/our-agreement-with-the-department-of-war/)
+
+
+### ai (N/A, Sat, 28 Feb 2026 20:10:00 -0800)
+
+- **Kite Jumps 3% as New 20x Futures Fuel Leverage Spike**: [Link](https://coinmarketcap.com/top-stories/69a32e73edc56a1f8bd50233/)
+- **How KITE’s pullback tests bullish resolve after 74% February rally**: [Link](https://ambcrypto.com/how-kites-pullback-tests-bullish-resolve-after-74-february-rally/)
+- **This Artificial Intelligence (AI) Crypto Is Up 140% Over the Past 90 Days, But Is It a Buy?**: [Link](https://www.fool.com/investing/2026/03/01/this-artificial-intelligence-ai-crypto-is-up-140-o/)
+
+
 ### الخميني (N/A, Sat, 28 Feb 2026 14:00:00 -0800)
 
 - **ولي عهد إيران السابق يعلق على مقتل خامنئي**: [Link](https://arabic.cnn.com/middle-east/article/2026/03/01/son-of-last-shah-of-iran-welcomes-death-of-khamenei)
