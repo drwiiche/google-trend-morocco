@@ -1,3 +1,10 @@
+### al arabiya (N/A, Sun, 1 Mar 2026 00:40:00 -0800)
+
+- **ضربات صاروخية إيرانية تدفع ملايين الإسرائيليين إلى الملاجئ**: [Link](https://www.aljazeera.net/news/2026/3/1/5-%D8%AF%D9%81%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%A3%D8%AC%D8%A8%D8%B1%D8%AA)
+- **الوضع العسكري بعد مرور 24 ساعة على بدء ضربات إيران**: [Link](https://arabic.cnn.com/middle-east/article/2026/03/01/where-we-are-militarily-24-hours-after-strikes-began)
+- **انفجارات تخلف إصابات في تل أبيب**: [Link](https://www.hespress.com/%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%AE%D9%84%D9%81-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D9%84-%D8%A3%D8%A8%D9%8A%D8%A8-1708623.html)
+
+
 ### claude ai (N/A, Sun, 1 Mar 2026 00:30:00 -0800)
 
 - **OpenAI strikes deal with Pentagon hours after Trump admin bans Anthropic**: [Link](https://www.cnn.com/2026/02/27/tech/openai-pentagon-deal-ai-systems)
