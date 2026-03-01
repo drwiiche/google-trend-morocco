@@ -1,3 +1,10 @@
+### wac vs berkane (N/A, Sun, 1 Mar 2026 14:50:00 -0800)
+
+- **Emirati Glory Requests to Purchase Pedrinho from Wydad**: [Link](https://www.ysscores.com/en/news/13920468/Emirati-Glory-Requests-to-Purchase-Pedrinho-from-Wydad)
+- **Wydad Misses Three Players Against Renaissance Berkane in Moroccan League**: [Link](https://www.ysscores.com/en/news/13920336/Wydad-Misses-Three-Players-Against-Renaissance-Berkane-in-Moroccan-League)
+- **Botola Pro Morocco: date, time, channel and head-to-head history of Wydad vs Berkane**: [Link](https://ca.sports.yahoo.com/news/botola-pro-morocco-date-time-065500680.html)
+
+
 ### الوداد (N/A, Sun, 1 Mar 2026 15:10:00 -0800)
 
 - **عزري لـ راديو مارس: عيننا على النقاط الثلاث في مباراة الوداد**: [Link](https://www.radiomars.ma/%D8%A3%D9%85%D9%8A%D9%86-%D8%B9%D8%B2%D8%B1%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D8%B3%D9%82%D9%81-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9/)
