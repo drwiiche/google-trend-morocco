@@ -1,3 +1,17 @@
+### weather (N/A, Sun, 1 Mar 2026 23:10:00 -0800)
+
+- **Kauai Weather Forecast for March 02, 2026**: [Link](https://kauainownews.com/2026/03/01/kauai-weather-forecast-for-march-02-2026/)
+- **Snow Accumulation In Jersey City NJ Weather Forecast: See Map, Timing**: [Link](https://patch.com/new-jersey/jersey-city/snow-accumulation-jersey-city-nj-weather-forecast-see-map-timing)
+- **Paramus DPW Thanks Community for Snowstorm Assistance**: [Link](https://www.tapinto.net/towns/paramus/sections/government/articles/paramus-dpw-thanks-community-for-snowstorm-assistance)
+
+
+### wydad vs berkane (N/A, Sun, 1 Mar 2026 16:00:00 -0800)
+
+- **Hakim Ziyech Scores First Goal for Wydad**: [Link](https://m.elbotola.com/en/article/2026-03-02-00-42-586.html)
+- **Botola Pro Morocco: date, time, channel and head-to-head history of Wydad vs Berkane**: [Link](https://onefootball.com/en/news/botola-pro-morocco-date-time-channel-and-head-to-head-history-of-wydad-vs-berkane-42479875)
+- **Wydad Misses Three Players Against Renaissance Berkane in Moroccan League**: [Link](https://www.ysscores.com/en/news/13920336/Wydad-Misses-Three-Players-Against-Renaissance-Berkane-in-Moroccan-League)
+
+
 ### claude ai (N/A, Sun, 1 Mar 2026 22:30:00 -0800)
 
 - **How Talks Between Anthropic and the Defense Dept. Fell Apart - The New York Times**: [Link](https://www.nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html)
