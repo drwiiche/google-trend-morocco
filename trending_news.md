@@ -1,3 +1,10 @@
+### طقس فاس (N/A, Mon, 2 Mar 2026 00:20:00 -0800)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-53-1708897.html)
+- **أجواء باردة مع صقيع فوق المرتفعات متوقعة اليوم الاثنين**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D8%B9-%D9%82%D8%B7%D8%B1%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85/)
+- **عاصفة قوية تلحق أضراراً واسعة بالقطاع الفلاحي في اشتوكة أيت باها**: [Link](https://lakome2.com/societe/410352/)
+
+
 ### f15 (N/A, Mon, 2 Mar 2026 04:30:00 -0800)
 
 - **American Military Jet Downed in Kuwait**: [Link](https://www.wsj.com/livecoverage/iran-israel-us-strikes-2026/card/american-aircraft-downed-in-kuwait-5h0iQXZtWDoaNtEILvCo?gaa_at=eafs&gaa_n=AWEtsqfLMED7jTFhkJTkUGv52V9D56aSuX74l6oagMGfnuTdMX9Rc9_eog0f&gaa_ts=69a596f5&gaa_sig=okEmbcKcRPoZLE6OGABm4WL5dVeBkau4VyBEqdovq5k2vW5pJq9za_F2-tZvqdbjY910UCuxlfFwTvYalYD4WQ%3D%3D)
