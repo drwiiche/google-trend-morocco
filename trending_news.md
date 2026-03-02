@@ -1,3 +1,10 @@
+### مباريات اليوم مباشر (N/A, Mon, 2 Mar 2026 12:10:00 -0800)
+
+- **لغز إصابة مبابي يثير الحيرة والقلق في ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/3/2/%D9%84%D8%BA%D8%B2-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **قرار بشأن الجراحة.. ريال مدريد يعلن تفاصيل جديدة في إصابة مبابي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D8%AD%D8%A9--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A/blt2fd72c66d7c11069)
+- **توجه كيليان مبابي إلى فرنسا لاستشارة متخصصين وسط شكوك حول إصابة الركبة**: [Link](https://m.elbotola.com/article/2026-03-02-11-45-508.html)
+
+
 ### gil vicente – benfica (N/A, Mon, 2 Mar 2026 11:40:00 -0800)
 
 - **Mourinho toma decisão sobre Prestianni: os onzes de Benfica e Gil Vicente**: [Link](https://sapo.pt/artigo/mourinho-toma-decisao-sobre-prestianni-os-onzes-de-benfica-e-gil-vicente-69a5dffd0b36bc01281f5ee9)
