@@ -1,3 +1,17 @@
+### match real (N/A, Mon, 2 Mar 2026 13:30:00 -0800)
+
+- **Real Madrid - Getafe : les compositions officielles**: [Link](https://www.footmercato.net/a6062198970504166454-real-madrid-getafe-les-compositions-officielles)
+- **26e journée de LA LIGA : Suivez Real Madrid - Getafe EN DIRECT**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-real-madrid-getafe-cf_mtc1610870/live-commentary.shtml)
+- **Eduardo Camavinga, mauvaise nouvelle confirmée**: [Link](https://www.football.fr/real-madrid/eduardo-camavinga-mauvaise-nouvelle-confirmee-802875.html)
+
+
+### 2 (N/A, Mon, 2 Mar 2026 10:50:00 -0800)
+
+- **Iran Update Morning Special Report, March 2, 2026**: [Link](https://understandingwar.org/research/middle-east/iran-update-morning-special-report-march-2-2026/)
+- **Iran Update, February 25, 2026**: [Link](https://www.criticalthreats.org/analysis/iran-update-february-25-2026)
+- **Iran News in Brief – February 26, 2026**: [Link](https://www.ncr-iran.org/en/news/iran-news-in-brief-news/iran-news-in-brief-february-26-2026/)
+
+
 ### الطقس غدًا (N/A, Mon, 2 Mar 2026 13:00:00 -0800)
 
 - **استعدادات مكثفة بالبحيرة لمواجهة تقلبات الطقس وأمطار متوقعة غدًا**: [Link](https://besraha.com/245699)
