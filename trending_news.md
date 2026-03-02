@@ -1,3 +1,31 @@
+### thiago pitarch (N/A, Mon, 2 Mar 2026 11:30:00 -0800)
+
+- **Official: Real Madrid starting lineup against Getafe – first start for academy gem**: [Link](https://sports.yahoo.com/articles/official-real-madrid-starting-lineup-183000905.html)
+- **Real Madrid vs Getafe: Arbeloa set to start a future superstar**: [Link](https://therealchamps.com/real-madrid-vs-getafe-arbeloa-set-to-start-pitarch-football-soccer)
+- **Alvaro Arbeloa considers handing first Real Madrid start to 18-year-old midfielder**: [Link](https://www.football-espana.net/2026/03/02/arbeloa-first-real-madrid-start-midfielder)
+
+
+### real madrid – getafe (N/A, Mon, 2 Mar 2026 11:10:00 -0800)
+
+- **Alineación posible del Real Madrid contra el Getafe en LaLiga EA Sports**: [Link](https://as.com/futbol/alineacion-posible-del-real-madrid-contra-el-getafe-en-laliga-ea-sports-f202603-n/)
+- **Último entrenamiento antes del partido contra el Getafe**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-01-03-2026)
+- **Convocatoria del Real Madrid contra el Getafe: se queda fuera Camavinga y vuelven Huijsen y Rodrygo**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/02/convovatoria-real-madrid-getafe-queda-fuera-camavinga-vuelven-huijsen-rodrygo.html)
+
+
+### الريال ضد خيتافي (N/A, Mon, 2 Mar 2026 11:10:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 3 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-3-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltbd0537f33f5eee98)
+- **مباشر مباراة ريال مدريد ضد خيتافي في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/2/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+- **ثلاثي ريال مدريد في خطر!!**: [Link](https://hihi2.com/2026/03/02/p3673869.html)
+
+
+### real madrid vs getafe (N/A, Mon, 2 Mar 2026 11:10:00 -0800)
+
+- **Real Madrid announce squad for La Liga match against Getafe**: [Link](https://www.managingmadrid.com/104672/real-madrid-squad-la-liga-getafe)
+- **Arbeloa Sends Strong Message Over Rodrygo’s Future Amid Summer Exit Rumors**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/arbeloa-sends-strong-message-over-rodrygo-s-future-amid-summer-exit-rumors-2026-03-01)
+- **Getafe striker Satriano: Playing Real Madrid is a dream**: [Link](https://www.tribalfootball.com/article/soccer-laliga-getafe-striker-satriano-playing-real-madrid-is-a-dream-62f5998a-b635-41c1-a0ae-977425dc166e)
+
+
 ### su24 (N/A, Mon, 2 Mar 2026 08:10:00 -0800)
 
 - **Qatar says it downed two Iranian fighter jets as conflict widens**: [Link](https://www.aljazeera.com/news/2026/3/2/qatar-says-it-downed-two-iranian-fighter-jets-as-conflict-widens)
