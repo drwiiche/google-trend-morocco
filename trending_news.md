@@ -1,3 +1,36 @@
+### classement la liga (N/A, Mon, 2 Mar 2026 14:10:00 -0800)
+
+- **26e journée de LA LIGA : Suivez Real Madrid - Getafe EN DIRECT**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/live-real-madrid-getafe-cf_mtc1610870/live-commentary.shtml)
+- **Real Madrid - Getafe : les compositions officielles**: [Link](https://www.footmercato.net/a6062198970504166454-real-madrid-getafe-les-compositions-officielles)
+- **DIRECT: Real Madrid-Getafe: un but extraordinaire de Satriano débloque la partie, le Real dos au mur**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-real-madrid-getafe-suivez-en-live-le-match-de-la-26e-journee-de-liga_LS-202603020595.html)
+
+
+### لا ليغا (N/A, Mon, 2 Mar 2026 14:10:00 -0800)
+
+- **هدف كارلوس سولير يمنح ريال سوسيداد الفوز على مايوركا في الدوري الإسباني**: [Link](https://m.elbotola.com/article/2026-02-28-20-15-538.html)
+- **الدوري الاسباني: فوز مهم لسوسييداد من ملعب مايوركا**: [Link](https://www.elsport.com/news/show/813799/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%81%D9%88%D8%B2-%D9%85%D9%87%D9%85-%D9%84%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF-%D9%85%D9%84%D8%B9%D8%A8-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7)
+- **ريال سوسيداد ينضم لنادي النخبة التي كسرت حاجز الـ1000 انتصار في الليغا**: [Link](https://a5r5br.net/international/sports/7358624-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D8%B6%D9%85-%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D9%83%D8%B3%D8%B1%D8%AA-%D8%AD%D8%A7%D8%AC%D8%B2-%D8%A7%D9%84%D9%801000-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7)
+
+
+### classement liga (N/A, Mon, 2 Mar 2026 14:10:00 -0800)
+
+- **OM 3-2 OL, Ligue 1 : résumé du match (01/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/om-lyon-live/676009)
+- **OM - OL : Balerdi, Emerson, Aguerd… la défense marseillaise inquiète toujours autant**: [Link](https://www.footmercato.net/a7622060185802166746-om-ol-balerdi-emerson-aguerd-la-defense-marseillaise-inquiete-toujours-autant)
+- **OM-OL: Igor Paixão impliqué sur les trois buts marseillais, le coaching gagnant d'Habib Beye... qui n'en était pas tout à fait un**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/om-ol-igor-paixao-implique-sur-les-trois-buts-marseillais-le-coaching-gagnant-d-habib-beye-qui-n-en-etait-pas-tout-a-fait-un_AV-202603010395.html)
+
+
+### rma vs (N/A, Mon, 2 Mar 2026 14:10:00 -0800)
+
+
+
+
+### real (N/A, Mon, 2 Mar 2026 13:20:00 -0800)
+
+- **Real Madrid ohne Spieler gegen Getafe**: [Link](https://indeksonline.net/de/reali-me-mungesa-ndaj-getafes/)
+- **Fußball heute live: Real Madrid – Getafe Übertragung live im TV & Stream**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/fussball-heute-live-real-madrid-getafe-uebertragung-live-im-tv-stream)
+- **Liveticker | Real Madrid - FC Getafe 0:1 | 26. Spieltag | La Liga 2025/26**: [Link](https://www.kicker.de/real-madrid-gegen-getafe-2026-la-liga-5055136/ticker)
+
+
 ### match real (N/A, Mon, 2 Mar 2026 13:30:00 -0800)
 
 - **Real Madrid - Getafe : les compositions officielles**: [Link](https://www.footmercato.net/a6062198970504166454-real-madrid-getafe-les-compositions-officielles)
