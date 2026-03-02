@@ -1,3 +1,17 @@
+### gil vicente – benfica (N/A, Mon, 2 Mar 2026 11:40:00 -0800)
+
+- **Mourinho toma decisão sobre Prestianni: os onzes de Benfica e Gil Vicente**: [Link](https://sapo.pt/artigo/mourinho-toma-decisao-sobre-prestianni-os-onzes-de-benfica-e-gil-vicente-69a5dffd0b36bc01281f5ee9)
+- **O jogo maior é hoje**: [Link](https://rr.pt/artigo/ribeiro-cristovao/2026/03/02/o-jogo-maior-e-hoje/461362/)
+- **«Gil Vicente vai ser bom para testar o estado mental dos jogadores do Benfica»**: [Link](https://www.abola.pt/video/gil-vicente-vai-ser-bom-para-testar-o-estado-mental-dos-jogadores-do-benfica-2026030122433423456)
+
+
+### barca vs atletico (N/A, Mon, 2 Mar 2026 11:00:00 -0800)
+
+- **El ejemplo que pone Flick para buscar la remontada ante el Atlético**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260302/1004140714/ejemplo-pone-flick-buscar-remontada-atletico.html)
+- **Tras su triplete a Villarreal Lamine Yamal avisa al Atlético y promete una noche mágica**: [Link](https://www.lahinchada.com.pe/tras-su-triplete-a-villarreal-lamine-yamal-avisa-al-atletico-y-promete-una-noche-magica/)
+- **¡Con bajas sensibles! Alineación probable del Barcelona ante Atlético de Madrid por Copa del Rey**: [Link](https://www.365scores.com/es/news/alineacion-probable-barcelona-atletico/)
+
+
 ### thiago pitarch (N/A, Mon, 2 Mar 2026 11:30:00 -0800)
 
 - **Official: Real Madrid starting lineup against Getafe – first start for academy gem**: [Link](https://sports.yahoo.com/articles/official-real-madrid-starting-lineup-183000905.html)
