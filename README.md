@@ -1,3 +1,38 @@
+### claude (N/A, Mon, 2 Mar 2026 02:10:00 -0800)
+
+- **Donald Trump ordonne à son administration de «cesser immédiatement» d'utiliser l'IA d'Anthropic**: [Link](https://www.lefigaro.fr/secteur/high-tech/donald-trump-ordonne-a-l-administration-americaine-de-cesser-immediatement-d-utiliser-l-ia-d-anthropic-20260227)
+- **De la bombe A à l’IA**: [Link](https://mobile.telquel.ma/2026/02/27/de-la-bombe-a-a-lia_1976828)
+- **L’intelligence artificielle au service de la guerre**: [Link](https://www.letemps.ch/opinions/l-intelligence-artificielle-au-service-de-la-guerre)
+
+
+### prix du baril (N/A, Mon, 2 Mar 2026 01:40:00 -0800)
+
+- **Les bombardements en Iran ravivent les craintes d’un choc pétrolier**: [Link](https://www.lemonde.fr/economie/article/2026/03/01/les-bombardements-en-iran-ravivent-les-craintes-d-un-choc-petrolier_6668907_3234.html)
+- **Guerre au Moyen Orient: le pétrole et le gaz bondissent, les Bourses accusent le coup**: [Link](https://telquel.ma/instant-t/2026/03/02/guerre-au-moyen-orient-le-petrole-et-le-gaz-bondissent-les-bourses-accusent-le-coup_1977036/)
+- **Tensions au Moyen-Orient : le pétrole flambe, l’escalade militaire s’étend**: [Link](https://lematin.ma/monde/tensions-au-moyen-orient-le-petrole-flambe-lescalade-militaire-setend/332591)
+
+
+### mars (N/A, Mon, 2 Mar 2026 01:40:00 -0800)
+
+- **NASA outlines objectives for Mars communications orbiter**: [Link](https://spacenews.com/nasa-outlines-objectives-for-mars-communications-orbiter/)
+- **NASA’s Curiosity Rover Sees Martian ‘Spiderwebs’ Up Close**: [Link](https://www.jpl.nasa.gov/news/nasas-curiosity-rover-sees-martian-spiderwebs-up-close/)
+- **Curiosity studies nodules on Mars boxwork formations**: [Link](https://phys.org/news/2026-02-curiosity-nodules-mars-boxwork-formations.html)
+
+
+### احوال الطقس (N/A, Sun, 1 Mar 2026 23:50:00 -0800)
+
+- **توقعات أحوال الطقس في العديد من مناطق المملكة اليوم الثلاثاء**: [Link](https://barlamane.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-131/)
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-53-1708897.html)
+- **أجواء باردة مع صقيع فوق المرتفعات متوقعة اليوم الاثنين**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D8%B9-%D9%82%D8%B7%D8%B1%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85/)
+
+
+### الجزيرة البث الحي (N/A, Sun, 1 Mar 2026 22:30:00 -0800)
+
+- **أكسيوس يكشف كواليس اغتيال خامنئي وتأخير ضربة إيران لأسبوع**: [Link](https://www.aljazeera.net/news/2026/3/2/%D8%A3%D9%83%D8%B3%D9%8A%D9%88%D8%B3-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A)
+- **أكسيوس: عملية ضرب إيران تأجلت أسبوعا لسببين رئيسيين**: [Link](https://www.skynewsarabia.com/world/1856104-%D8%A3%D9%83%D8%B3%D9%8A%D9%88%D8%B3-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%B6%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%A3%D8%AC%D9%84%D8%AA-%D8%A3%D8%B3%D8%A8%D9%88%D8%B9%D8%A7-%D9%84%D8%B3%D8%A8%D8%A8%D9%8A%D9%86-%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D9%8A%D9%86)
+- **الهجوم الأمريكي الإسرائيلي على إيران 2026: أشهر من التخطيط للمهمة الأمريكية الإسرائيلية لاستهداف المرشد الأعلى الإيراني**: [Link](https://www.bbc.com/arabic/articles/c80j1e3kmr2o)
+
+
 ### bourse de casablanca (N/A, Mon, 2 Mar 2026 01:50:00 -0800)
 
 - **Bourse de Casablanca : performance mensuelle négative**: [Link](https://fr.hespress.com/464133-bourse-de-casablanca-performance-mensuelle-negative.html)
