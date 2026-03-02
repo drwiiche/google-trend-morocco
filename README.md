@@ -1,3 +1,10 @@
+### benjamin netanyahu (N/A, Sun, 1 Mar 2026 20:20:00 -0800)
+
+- **US, Israel attack Iran live: Tehran says no US talks, Israel bombs Lebanon**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/2/us-israel-attack-iran-live)
+- **Los Angeles-area Iranians rally for freedom after U.S. and Israeli military action**: [Link](https://www.cbsnews.com/losangeles/news/los-angeles-westwood-iranian-rally/)
+- **US-Israeli strikes kill Khamenei and Iranian retaliation shakes Gulf - As it happened**: [Link](https://www.reuters.com/world/iran-crisis-live-explosions-tehran-israel-announces-strike-2026-02-28/)
+
+
 ### gold price (N/A, Sun, 1 Mar 2026 17:00:00 -0800)
 
 - **Gold, Silver Rise as Middle East Conflict Spurs Safe-Haven Demand**: [Link](https://www.wsj.com/finance/commodities-futures/gold-silver-rise-as-middle-east-conflict-spurs-safe-haven-demand-7be4c63d?gaa_at=eafs&gaa_n=AWEtsqdFCmHXQ_HiZJ6MIh2bDmcsoJKKJB1YOt-tgqbdPbdzrF2Zk-NRGsC6&gaa_ts=69a51dcf&gaa_sig=sNuSXrGPd7bLULj4HZLYgclBLId0ngCs8lMJoE1Ee4wUFeGYBTgQoUn7HmS8_r3AVoHGIa3P0Hcxv4gV6Uzo5Q%3D%3D)
