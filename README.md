@@ -1,3 +1,10 @@
+### f15 (N/A, Mon, 2 Mar 2026 04:30:00 -0800)
+
+- **American Military Jet Downed in Kuwait**: [Link](https://www.wsj.com/livecoverage/iran-israel-us-strikes-2026/card/american-aircraft-downed-in-kuwait-5h0iQXZtWDoaNtEILvCo?gaa_at=eafs&gaa_n=AWEtsqfLMED7jTFhkJTkUGv52V9D56aSuX74l6oagMGfnuTdMX9Rc9_eog0f&gaa_ts=69a596f5&gaa_sig=okEmbcKcRPoZLE6OGABm4WL5dVeBkau4VyBEqdovq5k2vW5pJq9za_F2-tZvqdbjY910UCuxlfFwTvYalYD4WQ%3D%3D)
+- **US fighter jet crashes in Kuwait after being hit by ‘friendly fire’**: [Link](https://www.cnn.com/2026/03/02/world/video/us-fight-jets-crash-kuwait-friendly-fire-iran-watson-ldn-digvid)
+- **3 US warplanes shot down by Kuwaiti air defenses, pilots bail out in friendly fire incident, CENTCOM says**: [Link](https://www.foxnews.com/politics/3-us-warplanes-shot-down-kuwaiti-air-defenses-pilots-bail-out-friendly-fire-incident-centcom-says)
+
+
 ### claude (N/A, Mon, 2 Mar 2026 02:10:00 -0800)
 
 - **Donald Trump ordonne à son administration de «cesser immédiatement» d'utiliser l'IA d'Anthropic**: [Link](https://www.lefigaro.fr/secteur/high-tech/donald-trump-ordonne-a-l-administration-americaine-de-cesser-immediatement-d-utiliser-l-ia-d-anthropic-20260227)
