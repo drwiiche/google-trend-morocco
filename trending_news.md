@@ -1,3 +1,10 @@
+### su24 (N/A, Mon, 2 Mar 2026 08:10:00 -0800)
+
+- **Qatar says it downed two Iranian fighter jets as conflict widens**: [Link](https://www.aljazeera.com/news/2026/3/2/qatar-says-it-downed-two-iranian-fighter-jets-as-conflict-widens)
+- **Trump says Iran operations are likely to last 4 to 5 weeks but could go longer**: [Link](https://www.wral.com/news/ap/cb429-trump-says-iran-operations-are-likely-to-last-4-to-5-weeks-but-could-go-longer/)
+- **In Qatar: Woman on reality of living in Doha after strikes on Iran**: [Link](https://www.bbc.com/news/articles/clyv5xzj0d0o)
+
+
 ### aramco (N/A, Mon, 2 Mar 2026 06:20:00 -0800)
 
 - **Saudi Arabia halts some operations at massive Ras Tanura refinery**: [Link](https://en.hespress.com/132920-saudi-arabia-halts-some-operations-at-massive-ras-tanura-refinery.html)
