@@ -1,3 +1,10 @@
+### claude ai (N/A, Sun, 1 Mar 2026 22:30:00 -0800)
+
+- **How Talks Between Anthropic and the Defense Dept. Fell Apart - The New York Times**: [Link](https://www.nytimes.com/2026/03/01/technology/anthropic-defense-dept-openai-talks.html)
+- **US using AI, B-2 bombers and suicide drones in Iran strikes**: [Link](https://www.scmp.com/news/world/middle-east/article/3345079/us-using-ai-b-2-bombers-and-suicide-drones-iran-strikes)
+- **Anthropic got blacklisted by the Pentagon. Then Claude hit No. 1 in the app store.**: [Link](https://www.axios.com/2026/03/01/anthropic-claude-chatgpt-app-downloads-pentagon)
+
+
 ### benjamin netanyahu (N/A, Sun, 1 Mar 2026 20:20:00 -0800)
 
 - **US, Israel attack Iran live: Tehran says no US talks, Israel bombs Lebanon**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/2/us-israel-attack-iran-live)
