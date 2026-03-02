@@ -1,3 +1,10 @@
+### gold price (N/A, Sun, 1 Mar 2026 17:00:00 -0800)
+
+- **Gold, Silver Rise as Middle East Conflict Spurs Safe-Haven Demand**: [Link](https://www.wsj.com/finance/commodities-futures/gold-silver-rise-as-middle-east-conflict-spurs-safe-haven-demand-7be4c63d?gaa_at=eafs&gaa_n=AWEtsqdFCmHXQ_HiZJ6MIh2bDmcsoJKKJB1YOt-tgqbdPbdzrF2Zk-NRGsC6&gaa_ts=69a51dcf&gaa_sig=sNuSXrGPd7bLULj4HZLYgclBLId0ngCs8lMJoE1Ee4wUFeGYBTgQoUn7HmS8_r3AVoHGIa3P0Hcxv4gV6Uzo5Q%3D%3D)
+- **Gold climbs as US-Israel strikes on Iran spark safe-haven demand**: [Link](https://www.reuters.com/world/india/gold-rises-1-us-israel-strikes-iran-raise-regional-temperature-2026-03-01/)
+- **Gold price today, Friday, February 27: Gold remains above $5,100 as U.S.-Iran talks set to continue**: [Link](https://finance.yahoo.com/personal-finance/investing/article/gold-price-today-friday-february-27-gold-remains-above-5100-as-us-iran-talks-set-to-continue-124058321.html)
+
+
 ### أورلاندو سيتي ضد إنتر ميامي (N/A, Sun, 1 Mar 2026 18:00:00 -0800)
 
 - **ميسي يشعل الأضواء مجددًا.. حدث غير مسبوق في انتظاره**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A7%D9%94%D8%B6%D9%88%D8%A7%D8%A1-%D9%85%D8%AC%D8%AF%D8%AF%D9%8B%D8%A7--%D8%AD%D8%AF%D8%AB-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1%D9%87/blt6b6e3805094bbee8)
