@@ -1,3 +1,64 @@
+### مقتل نتنياهو (N/A, Sun, 1 Mar 2026 17:00:00 -0800)
+
+- **مجلس القيادة المؤقت في إيران يعقد اجتماعه الثاني منذ تشكيله**: [Link](https://www.aljazeera.net/news/2026/3/2/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%A4%D9%82%D8%AA-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D8%B9%D9%82%D8%AF)
+- **حزب الله: "سنقوم بواجبنا في التصدي للعدوان" عقب مقتل خامنئي**: [Link](https://www.alarabiya.net/arab-and-world/2026/03/02/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%B3%D9%86%D9%82%D9%88%D9%85-%D8%A8%D9%88%D8%A7%D8%AC%D8%A8%D9%86%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B5%D8%AF%D9%8A-%D9%84%D9%84%D8%B9%D8%AF%D9%88%D8%A7%D9%86-%D8%B9%D9%82%D8%A8-%D9%85%D9%82%D8%AA%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A)
+- **لاريجاني، بيزشكيان، أعرافي... من يحكم إيران في المرحلة الانتقالية بعد مقتل خامنئي؟**: [Link](https://www.france24.com/ar/%D8%A2%D8%B3%D9%8A%D8%A7/20260301-%D9%85%D9%86-%D9%8A%D8%AD%D9%83%D9%85-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B2%D8%B4%D9%83%D9%8A%D8%A7%D9%86-%D9%84%D8%A7%D8%B1%D9%8A%D8%AC%D8%A7%D9%86%D9%8A-%D8%A3%D8%B9%D8%B1%D8%A7%D9%81%D9%8A-%D9%85%D9%82%D8%AA%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A)
+
+
+### نتنياهو (N/A, Sun, 1 Mar 2026 16:50:00 -0800)
+
+- **استهداف التلفزيون الإيراني بضربات.. ونتانياهو يقول إن الهجوم على طهران "سيتصاعد"**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260301-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%85%D9%82%D8%AA%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AF-%D8%A7%D9%84%D8%A3%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%B9%D9%84%D9%8A-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%B7%D9%87%D8%B1%D8%A7%D9%86)
+- **قصف "غريب" يضرب طهران.. أي أسلحة استُخدمت وماذا استهدف؟**: [Link](https://www.aljazeera.net/news/2026/3/1/%D9%82%D8%B5%D9%81-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%A3%D9%8A-%D8%A3%D8%B3%D9%84%D8%AD%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D8%AA)
+- **إيران تعلن شن هجمات جديدة ضد أهداف أمريكية وإسرائيلية ودوي انفجارات بطهران**: [Link](https://www.aa.com.tr/ar/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%B4%D9%86-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%88%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%88%D8%AF%D9%88%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D8%B7%D9%87%D8%B1%D8%A7%D9%86/3844823)
+
+
+### flashscore (N/A, Sun, 1 Mar 2026 16:10:00 -0800)
+
+- **PSG looking to postpone Ligue 1 game to provide extra rest days inbetween Champions League ties against Chelsea**: [Link](https://www.getfootballnewsfrance.com/2026/psg-looking-to-postpone-ligue-1-game-to-provide-extra-rest-days-inbetween-champions-league-ties-against-chelsea/)
+- **Paris Saint-Germain Requests Postponement of Nantes Match to Prepare for Chelsea Clash**: [Link](https://m.elbotola.com/en/article/2026-02-27-21-31-61.html)
+- **Luis Enrique on the decision to postpone PSG’s match to aid Chelsea preparations: ‘I think it is important for the city of Paris and for France.’**: [Link](https://sports.yahoo.com/articles/luis-enrique-decision-postpone-psg-084500005.html)
+
+
+### البطولة المغربية (N/A, Sun, 1 Mar 2026 16:10:00 -0800)
+
+- **فوزي لقجع يحدد موعد تقييم مشوار المنتخب “الكـان”**: [Link](https://www.radiomars.ma/%D9%81%D9%88%D8%B2%D9%8A-%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AA%D9%82%D9%8A%D9%8A%D9%85-%D9%85%D8%B4%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE/)
+- **اعتماد قانون اللاعب "الجوكر" في البطولة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D8%B9%D8%AA%D9%85%D8%A7%D8%AF-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%AC%D9%88%D9%83%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/16404)
+- **أحداث نهائي كأس الأمم الأفريقية 2025: الجامعة تواصل الضغط على "الكاف" - تليكسبريس**: [Link](https://telexpresse.com/458270.html)
+
+
+### الرجاء (N/A, Sun, 1 Mar 2026 16:00:00 -0800)
+
+- **الرجاء يعود بفوز ثمين من أكادير**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D9%81%D9%88%D8%B2-%D8%AB%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-1709262.html)
+- **غياب بارز للرجاء ضد الحسنية**: [Link](https://www.ahdath.info/article/250094/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A8%D8%A7%D8%B1%D8%B2-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A%D8%A9)
+- **"إيغلز" و"غرين بويز" يعلنان مقاطعة مباراة حسنية أكادير وينتقدان تدبير تذاكر جماهير الرجاء**: [Link](https://m.elbotola.com/article/2026-02-28-17-14-712.html)
+
+
+### raja casablanca (N/A, Sun, 1 Mar 2026 16:00:00 -0800)
+
+- **"Eagles" et "Green Boys" appellent la direction du Raja à l'escalade contre l'arbitrage**: [Link](https://m.elbotola.com/fr/article/2026-02-28-19-34-481.html)
+- **MAJ J7 Botola D1 : RSB - Raja, duel test ce soir**: [Link](https://lopinion.ma/fr/sport/newsroom/maj-j7-botola-d1--rsb---raja-duel-test-ce-soir_a15065?articleId=53822be8-5318-43a3-80a0-db5f26595c44)
+- **Nomination de Saïd Boujidi comme arbitre pour le match de sommet entre Nahdat Berkane et Raja**: [Link](https://www.ysscores.com/fr/news/13917638/Nomination-de-Sa%C3%AFd-Boujidi-comme-arbitre-pour-le-match-de-sommet-entre-Nahdat-Berkane-et-Raja)
+
+
+### botola pro 1 (N/A, Sun, 1 Mar 2026 16:00:00 -0800)
+
+- **Botola Pro: Ittihad Tanger Held to 1-1 Draw by Union Touarga**: [Link](https://m.elbotola.com/en/article/2026-02-28-23-55-319.html)
+
+
+### match raja (N/A, Sun, 1 Mar 2026 16:00:00 -0800)
+
+- **Raja Heads to Agadir Tonight Ahead of Hassania Clash**: [Link](https://m.elbotola.com/en/article/2026-02-28-21-17-633.html)
+- **Raja Casablanca Defeats Hassania Agadir and Tops the Moroccan League**: [Link](https://www.ysscores.com/en/news/13920521/Raja-Casablanca-Defeats-Hassania-Agadir-and-Tops-the-Moroccan-League)
+- **BIG BLOW: Raja Casablanca to face Hassania Agadir without two key players -**: [Link](https://africasoccer.com/big-blow-raja-casablanca-to-face-hassania-agadir-without-two-key-players/)
+
+
+### xm (N/A, Sun, 1 Mar 2026 15:50:00 -0800)
+
+- **A Look At Sirius XM Holdings (SIRI) Valuation As Shares Show Short Term Gains And Long Term Weakness**: [Link](https://finance.yahoo.com/news/look-sirius-xm-holdings-siri-061302757.html)
+- **Sirius XM Holdings Inc. stock outperforms competitors on strong trading day**: [Link](https://www.marketwatch.com/data-news/sirius-xm-holdings-inc-stock-outperforms-competitors-on-strong-trading-day-32dd5b06-142f0c5f73a9?mod=mw_quote_news&gaa_at=eafs&gaa_n=AWEtsqcjquwunBDLOosi-InkzY7zm51b_ENC0gZ2ioLRovBGNyWQI6zmrWe7&gaa_ts=69a4e9d1&gaa_sig=scxSiIwA0RlGccAX29O9PVRBHRUY8Q1RwfXwmwJD9kLKaMClwEQvhfnqmnhHc83uYSwh_3EIIeTBMSwADTHh0g%3D%3D)
+- **What to Know Before Buying Sirius XM in 2026**: [Link](https://www.aol.com/articles/know-buying-sirius-xm-2026-132000703.html)
+
+
 ### orlando city – inter miami (N/A, Sun, 1 Mar 2026 15:40:00 -0800)
 
 - **Orlando City vs. Inter Miami LIVE Updates: Minute-by-Minute Coverage of the 2026 MLS Florida Derby**: [Link](https://worldsoccertalk.com/news/orlando-city-vs-inter-miami-live-updates-minute-by-minute-coverage-of-the-2026-mls-florida-derby/)
