@@ -1,3 +1,10 @@
+### الطقس غدًا (N/A, Mon, 2 Mar 2026 13:00:00 -0800)
+
+- **استعدادات مكثفة بالبحيرة لمواجهة تقلبات الطقس وأمطار متوقعة غدًا**: [Link](https://besraha.com/245699)
+- **رفع درجة التأهب في البحيرة لمواجهة التقلبات الجوية غدًا**: [Link](https://alkhabrlive.com/bahrawy/rfaa-drg-altahb-fy-albhyr-lmoagh-altklbat-algoy-ghda)
+- **طقس شديد البرودة ليلًا وفي الصباح الباكر بمحافظة البحيرة**: [Link](https://gate.ahram.org.eg/News/5540260.aspx)
+
+
 ### مباريات اليوم مباشر (N/A, Mon, 2 Mar 2026 12:10:00 -0800)
 
 - **لغز إصابة مبابي يثير الحيرة والقلق في ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/3/2/%D9%84%D8%BA%D8%B2-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
