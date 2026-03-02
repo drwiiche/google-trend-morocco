@@ -1,3 +1,17 @@
+### bourse de casablanca (N/A, Mon, 2 Mar 2026 01:50:00 -0800)
+
+- **Bourse de Casablanca : performance mensuelle négative**: [Link](https://fr.hespress.com/464133-bourse-de-casablanca-performance-mensuelle-negative.html)
+- **Marché central “Actions” : l’essentiel des volumes hebdomadaires**: [Link](https://www.leconomiste.com/flash-infos/marche-central-actions-lessentiel-des-volumes-hebdomadaires/)
+- **MASI : une phase d’ajustement en ce début 2026**: [Link](https://medias24.com/2026/02/27/masi-une-phase-dajustement-en-ce-debut-2026-1634909/)
+
+
+### al jazeera arabic (N/A, Mon, 2 Mar 2026 01:50:00 -0800)
+
+- **March 1, 2026 — Day two of the launch of a US-Israeli military operation against Iran**: [Link](https://www.cnn.com/world/live-news/us-israel-iran-attack-03-01-26-intl)
+- **A visual guide to US-Israeli strikes on Iran and Tehran’s response**: [Link](https://www.theguardian.com/world/2026/feb/28/us-israel-strikes-iran-tehran-response-visual-guide)
+- **Iran latest: War expands as dozens killed in Lebanon as Israel strikes Hezbollah and US fighter jets crash in Kuwait**: [Link](https://news.sky.com/story/iran-latest-israel-launches-preventative-attack-defence-minister-says-13509565)
+
+
 ### حالة الطقس (N/A, Mon, 2 Mar 2026 00:50:00 -0800)
 
 - **أمطار ورياح.. بيان مهم من الأرصاد يكشف حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/4211585)
