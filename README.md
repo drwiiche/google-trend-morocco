@@ -1,3 +1,24 @@
+### الطقس (N/A, Mon, 2 Mar 2026 00:10:00 -0800)
+
+- **توقعات طقس اليوم الأحد في المغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-50-1708615.html)
+- **عاصفة قوية تلحق أضراراً واسعة بالقطاع الفلاحي في اشتوكة أيت باها**: [Link](https://lakome2.com/societe/410352/)
+- **سوء الأحوال الجوية‎ يعلق الأنشطة البحرية بميناء العيون**: [Link](https://ar.le360.ma/economie/7NNIEPELSBAV7III6JTWSHI5FE/)
+
+
+### météo (N/A, Sun, 1 Mar 2026 23:50:00 -0800)
+
+- **Le temps qu'il fera ce samedi 28 février 2026**: [Link](https://fr.hespress.com/464087-le-temps-quil-fera-ce-samedi-28-fevrier-2026.html)
+- **Météo. Températures en légère baisse sur les provinces marocaines ce samedi 28 février, avec des flocons de neige sur l’Atlas**: [Link](https://fr.le360.ma/societe/meteo-temperatures-en-legere-baisse-sur-les-provinces-marocaines-ce-samedi-28-fevrier-avec-des_2DF6OHWTDJB53KGMZU34CAH4VM/)
+- **Retour des chutes de neige, du mardi au jeudi, dans plusieurs provinces du Royaume**: [Link](https://mobile.telquel.ma/instant-t/2026/03/01/retour-des-chutes-de-neige-du-mardi-au-jeudi-dans-plusieurs-provinces-du-royaume_1976987/)
+
+
+### الطقس اليوم (N/A, Sun, 1 Mar 2026 23:30:00 -0800)
+
+- **أمطار ورياح.. بيان مهم من الأرصاد يكشف حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/4211585)
+- **عاجل: الأرصاد تحذر من مفاجأة طقس غدًا الأحد أول مارس… درجات حرارة غير متوقعة!**: [Link](https://yemen-press.net/news169837.html)
+- **درجات الحرارة اليوم الإثنين 2 مارس 2026.. انخفاض ونشاط رياح والصغرى بالقاهرة 9**: [Link](https://www.youm7.com/story/2026/3/2/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-2-%D9%85%D8%A7%D8%B1%D8%B3-2026-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%88%D9%86%D8%B4%D8%A7%D8%B7-%D8%B1%D9%8A%D8%A7%D8%AD/7323706)
+
+
 ### weather (N/A, Sun, 1 Mar 2026 23:10:00 -0800)
 
 - **Kauai Weather Forecast for March 02, 2026**: [Link](https://kauainownews.com/2026/03/01/kauai-weather-forecast-for-march-02-2026/)
