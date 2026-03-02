@@ -1,3 +1,10 @@
+### aramco (N/A, Mon, 2 Mar 2026 06:20:00 -0800)
+
+- **Saudi Arabia halts some operations at massive Ras Tanura refinery**: [Link](https://en.hespress.com/132920-saudi-arabia-halts-some-operations-at-massive-ras-tanura-refinery.html)
+- **As Iran targets oil infrastructure, Middle East war threatens global economy**: [Link](https://www.france24.com/en/middle-east/20260302-as-iran-targets-oil-infrastructure-middle-east-war-threatens-global-economy)
+- **Saudi Intercepts Five Hostile Drones Near Prince Sultan Air Base**: [Link](https://cairoscene.com/Buzz/Saudi-Intercepts-Five-Hostile-Drones-Near-Prince-Sultan-Air-Base)
+
+
 ### طقس فاس (N/A, Mon, 2 Mar 2026 00:20:00 -0800)
 
 - **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-53-1708897.html)
