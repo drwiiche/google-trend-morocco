@@ -1,3 +1,31 @@
+### flash score (N/A, Tue, 3 Mar 2026 13:30:00 -0800)
+
+- **Inter Milan Legend Draws Comparison Between In-Form Italy Wingback & Nerazzurri Icon: “I Like The Comparison”**: [Link](https://ca.sports.yahoo.com/news/inter-milan-legend-draws-comparison-121000414.html)
+- **Flashscore Player of the Month: Dimarco in form despite Inter's exit from Champions League**: [Link](https://www.flashscore.com/news/soccer-serie-a-flashscore-player-of-the-month-dimarco-in-form-despite-inter-s-exit-from-champions-league/j5aqgt6C/)
+- **Inter Milan & Italy Star Wingback Sends ‘Clear’ Message Amid Rich Vein Of Form**: [Link](https://sempreinter.com/2026/03/02/inter-milan-ace-dimarco-sends-clear-message-top-form/)
+
+
+### liverpool (N/A, Tue, 3 Mar 2026 13:10:00 -0800)
+
+- **Liverpool midfielder Dominik Szoboszlai shocks fans with new look for Wolves game**: [Link](https://www.independent.co.uk/sport/football/dominik-szoboszlai-haircut-cornrows-liverpool-wolves-b2931390.html)
+- **(Image) Liverpool fans won’t recognise one player following arrival at Molineux**: [Link](https://onefootball.com/fr/news/image-liverpool-fans-wont-recognise-one-player-following-arrival-at-molineux-42499461)
+- **Dominik Szoboszlai shows off new hairstyle ahead of Wolves clash - fans already reveal main influencer behind the look**: [Link](https://tribuna.com/en/blogs/dominik-szoboszlai-shows-off-new-hairstyle-ahead-of-wolves-c/)
+
+
+### flashscore (N/A, Tue, 3 Mar 2026 12:40:00 -0800)
+
+- **Manchester United could spend eye-watering $230 million to replace Casemiro**: [Link](https://en.as.com/soccer/manchester-united-could-spend-eye-watering-230-million-to-replace-casemiro-f202603-n/)
+- **Man Utd Open Talks to Sign £100m Premier League Star, He Wants to Join**: [Link](https://www.givemesport.com/man-utd-open-talks-sandro-tonali-newcastle-transfer-news/)
+- **Gossip: Man Utd keen on Guimaraes**: [Link](https://www.aol.com/articles/gossip-man-utd-keen-guimaraes-065301002.html)
+
+
+### bein sport live (N/A, Tue, 3 Mar 2026 12:40:00 -0800)
+
+- **Preview: Sporting Lisbon vs Porto - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sporting-lisbon/taca-de-portugal/preview/sporting-lisbon-vs-porto-prediction-team-news-lineups_593016.html)
+- **Info for fans heading to Alvalade today**: [Link](https://onefootball.com/fr/news/info-for-fans-heading-to-alvalade-today-42496390)
+- **Sporting CP vs FC Porto: Where to watch the match online, live stream, TV channels, and kick-off time**: [Link](https://www.goal.com/en/news/how-to-watch-sporting-cp-fc-porto-03032026/bltd8215079f130bda0)
+
+
 ### bet 365 (N/A, Tue, 3 Mar 2026 12:50:00 -0800)
 
 - **Bet365 bonus code CBSBET365: Get $150 in bonus bets for Knicks-Raptors, 76ers-Spurs, Nebraska-UCLA on Tuesday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-get-150-bonus-bets-knicks-raptors-76ers-spurs-nebraska-ucla-tuesday/)
