@@ -1,3 +1,24 @@
+### طقس اكادير (N/A, Mon, 2 Mar 2026 16:50:00 -0800)
+
+- **عودة التقلبات الجوية إلى المغرب.. أمطار رعدية وثلوج فوق المرتفعات**: [Link](https://www.hespress.com/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-1709437.html)
+- **طقس متقلب هذا الأسبوع.. يوعابد: سيكون غير مستقر وماطرا بعدد من المناطق**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D8%B3%D9%8A%D9%83%D9%88%D9%86-%D8%BA%D9%8A/)
+- **ثلوج الأطلس تضع الحوز وشيشاوة في حالة استنفار قصوى وسط آمال بانتعاش الفرشة المائية**: [Link](https://www.marrakechalaan.com/article-668592)
+
+
+### turf paradise (N/A, Mon, 2 Mar 2026 15:40:00 -0800)
+
+- **Race 7 - Allowance Optional Claiming**: [Link](https://www.sportinglife.com/racing/racecards/2026-03-03/turf-paradise/racecard/906158/race-7-allowance-optional-claiming)
+- **Race 7 - Allowance Optional Claiming**: [Link](https://www.sportinglife.com/racing/racecards/2026-03-01/laurel-park/racecard/905900/race-7-allowance-optional-claiming)
+- **Horse Racing Picks Today at Turf Paradise for Monday, March 2**: [Link](https://vsin.com/horse-racing/horse-racing-picks-today-at-turf-paradise-for-monday-march-2/)
+
+
+### weather tomorrow (N/A, Mon, 2 Mar 2026 12:50:00 -0800)
+
+- **A total lunar eclipse will turn the full moon blood red for over 3 billion people tonight (March 3)**: [Link](https://www.space.com/stargazing/lunar-eclipses/a-total-lunar-eclipse-will-turn-the-full-moon-blood-red-for-over-3-billion-people-tonight)
+- **Blood moon: How to see the total lunar eclipse in California on Tuesday**: [Link](https://www.kcra.com/article/blood-moon-lunar-eclipse-california-tuesday/70579719)
+- **Does the lunar eclipse have a path of totality? When to view blood moon**: [Link](https://www.beaconjournal.com/story/lifestyle/nature-wildlife/2026/03/02/lunar-eclipse-2026-map-shows-ohio-blood-moon-visibility-forecast/88939015007/)
+
+
 ### wydad ticketing (N/A, Mon, 2 Mar 2026 14:30:00 -0800)
 
 - **الوداد يطرح تذاكر مباراة "الكلاسيكو" أمام الجيش الملكي**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/470013.html)
