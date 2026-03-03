@@ -1,3 +1,15 @@
+### wetter (N/A, Mon, 2 Mar 2026 23:20:00 -0800)
+
+- **Himmel könnte milchig erscheinen – Wetterphänomen zeigt sich noch in dieser Woche**: [Link](https://www.fr.de/panorama/himmel-koennte-milchig-erscheinen-wetterphaenomen-zeigt-sich-noch-in-dieser-woche-zr-94194757.html)
+
+
+### ترتيب الدوري الاسباني (N/A, Mon, 2 Mar 2026 14:20:00 -0800)
+
+- **لامين جمال يلهم متابعيه بإفطار على 3 تمرات بعد أول "هاتريك" في تاريخه**: [Link](https://www.aljazeera.net/sport/2026/3/2/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%B5%D8%A7%D8%A6%D9%85-%D9%8A%D9%81%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-3-%D8%AA%D9%85%D8%B1%D8%A7%D8%AA)
+- **"دون المستوى".. هجوم كتالوني على حكم مباراة فياريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D9%89--%D9%87%D8%AC%D9%88%D9%85-%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%AD%D9%83%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84/bltfc458a6cd5d3939a)
+- **"هاتريك" ورقمان قياسيان.. لامين يامال يتصدر المشهد في "لاليغا"**: [Link](https://arabic.cnn.com/sport/article/2026/02/28/lamine-yamal-barcelona-laliga)
+
+
 ### meteo maroc (N/A, Tue, 3 Mar 2026 00:00:00 -0800)
 
 - **Les températures attendues ce mardi 3 mars 2026**: [Link](https://fr.hespress.com/464474-les-temperatures-attendues-ce-mardi-3-mars-2026.html)
