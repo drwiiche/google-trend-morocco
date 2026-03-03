@@ -1,3 +1,17 @@
+### حاروف (N/A, Tue, 3 Mar 2026 14:50:00 -0800)
+
+- **مقتل 3 أشخاص وإصابة 16 آخرين في قصف إسرائيلي على جنوب لبنان**: [Link](https://www.raya.com/2026/03/03/%D9%85%D9%82%D8%AA%D9%84-3-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%88%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-16-%D8%A2%D8%AE%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D9%82%D8%B5%D9%81-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%AC%D9%86%D9%88%D8%A8-%D9%84%D8%A8%D9%86%D8%A7%D9%86)
+- **غارة اسرائيلية على المبنى المهدد في حاروف**: [Link](https://www.akhbaralyawm.com/news/521767/%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%A8%D9%86%D9%89-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D8%AF-%D9%81%D9%8A-%D8%AD%D8%A7%D8%B1%D9%88%D9%81)
+- **الرئيس اللبناني يبحث هاتفيا مع الرئيس العراقي الأوضاع الراهنة في المنطقة**: [Link](https://qna.org.qa/ar-QA/News-Area/News/2026-3/3/%D8%A7%D9%84%D8%B1%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%87%D8%A7%D8%AA%D9%81%D9%8A%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%B1%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A-%D8%A7%D9%84%D8%A7%D9%88%D8%B6%D8%A7%D8%B9-%D8%A7%D9%84%D8%B1%D8%A7%D9%87%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9)
+
+
+### barça vs (N/A, Tue, 3 Mar 2026 13:40:00 -0800)
+
+- **Barcelona amanece con las grandes remontadas por medio de la Grada d'Animació**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260303/1004144779/barcelona-amanece-grandes-remontadas-medio-grada-d-animacio.html)
+- **El Spotify Camp Nou recupera su motor de animación**: [Link](https://www.elcatalan.es/el-spotify-camp-nou-recupera-su-motor-de-animacion)
+- **El FC Barcelona refuerza su compromiso con los socios y socias con 14.000 nuevas localidades en el Spotify Camp Nou**: [Link](https://www.fcbarcelona.es/es/club/noticias/4457581/el-fc-barcelona-refuerza-su-compromiso-con-los-socios-y-socias-con-14000-nuevas-localidades-en-el-spotify-camp-nou)
+
+
 ### 365scores (N/A, Tue, 3 Mar 2026 14:10:00 -0800)
 
 - **Alajbegovic is your Player of the Month for February!**: [Link](https://www.redbullsalzburg.at/en/recent/voting/spieler-des-monats-februar-2026)
