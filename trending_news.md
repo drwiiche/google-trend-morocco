@@ -1,3 +1,10 @@
+### real madrid vs (N/A, Mon, 2 Mar 2026 13:40:00 -0800)
+
+- **Real Madrid vs. Barcelona: Día, hora y transmisión para ver EN VIVO y EN DIRECTO la Copa de Leyendas en el ...**: [Link](https://chivaspasion.bolavip.com/noticias/real-madrid-vs-barcelona-dia-hora-y-transmision-para-ver-en-vivo-y-en-directo-la-copa-de-leyendas-en-el-estadio-akron-de-chivas)
+- **Rafa Márquez lanza contundente mensaje sobre la situación de violencia en México**: [Link](https://www.excelsior.com.mx/deportes/rafa-marquez-defiende-mexico-somos-mas-que-violencia-que-vive)
+- **Amaury Vergara agradece voto de confianza a 100 días del Mundial**: [Link](https://www.espn.com.mx/futbol/mundial/nota/_/id/16381271/mundial-2026-amaury-vergara-sede-guadalajara-voto-confianza)
+
+
 ### طقس (N/A, Mon, 2 Mar 2026 20:30:00 -0800)
 
 - **عودة التقلبات الجوية إلى المغرب.. أمطار رعدية وثلوج فوق المرتفعات**: [Link](https://www.hespress.com/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-1709437.html)
