@@ -1,3 +1,59 @@
+### bournemouth – brentford (N/A, Tue, 3 Mar 2026 11:00:00 -0800)
+
+- **Bournemouth vs Brentford predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/ce8ngv82p22o)
+- **Bournemouth vs Brentford Prediction, Betting Pick, Latest Premier League Odds for Tuesday, March 3rd**: [Link](https://www.oddschecker.com/us/picks-parlays/soccer/20260303-bournemouth-vs-brentford-prediction-betting-pick-latest-premier-league-odds-for-tuesday-march-3rd)
+- **Get £40 in free bets with Ladbrokes ahead of Bournemouth vs Brentford**: [Link](https://talksport.com/betting/4021018/bournemouth-vs-brentford-ladbrokes-free-bets/)
+
+
+### everton – burnley (N/A, Tue, 3 Mar 2026 11:00:00 -0800)
+
+- **Everton Hosts Burnley in Premier League Amidst Contrasting Table Struggles**: [Link](https://m.elbotola.com/en/article/2026-03-02-16-45-817.html)
+- **Premier League LIVE: Everton host Burnley before Liverpool travel to Wolves**: [Link](https://www.flashscore.co.uk/news/football-tracker-premier-league-live-03-03/0YZVJZen/)
+- **Matchday Guide: Everton v Burnley**: [Link](https://www.evertonfc.com/news/2026/march/02/matchday-guide--everton-v-burnley/)
+
+
+### leeds united – sunderland (N/A, Tue, 3 Mar 2026 11:00:00 -0800)
+
+- **Rodon, Justin, Okafor: Leeds injury latest for FPL Gameweek 29**: [Link](https://www.fantasyfootballscout.co.uk/2026/03/03/rodon-justin-okafor-leeds-injury-latest-for-fpl-gameweek-29/)
+- **Use code B5G30 to net £30 in free bets with SBK ahead of Leeds vs Sunderland**: [Link](https://talksport.com/betting/4018124/leeds-vs-sunderland-sbk-free-bets/)
+- **Leeds United vs Sunderland: Farke absent from touchline in Premier League clash**: [Link](https://www.express.co.uk/sport/football/2177641/leeds-united-vs-sunderland-farke-absent-from-touchline-premier-league-clash)
+
+
+### fc barcelone (N/A, Tue, 3 Mar 2026 11:00:00 -0800)
+
+- **A quelle heure et sur quelle chaîne voir Barcelone - Atlético de Madrid?**: [Link](https://www.lequipe.fr/Football/Actualites/Coupe-du-roi-a-quelle-heure-et-sur-quelle-chaine-voir-barcelone-atletico-de-madrid/1656314)
+- **Atlético : la curieuse idée de Diego Simeone pour contrecarrer le Barça**: [Link](https://www.footmercato.net/a1610056839102254093-atletico-la-curieuse-idee-de-diego-simeone-pour-contrecarrer-le-barca)
+- **Copa del Rey : Lewandowski forfait face à l’Atlético**: [Link](https://fr.hespress.com/464355-copa-del-rey-lewandowski-forfait-face-a-latletico.html)
+
+
+### fcb (N/A, Tue, 3 Mar 2026 10:50:00 -0800)
+
+- **'1% chance, 99% faith' - Barcelona duo demand full Camp Nou backing for Atletico comeback**: [Link](https://barcauniversal.com/1-chance-99-faith-barcelona-duo-demand-full-camp-nou-backing-for-atletico-comeback/)
+- **Attack the best form of defence for Atleti against Yamal, says Simeone**: [Link](https://www.beinsports.com/en-nz/football/copa-del-rey/articles/attack-the-best-form-of-defence-for-atleti-against-yamal-says-simeone-2026-03-02)
+- **Lookman.. From Barcelona's Interest to a Real Threat**: [Link](https://www.ysscores.com/en/news/13921134/Lookman..-From-Barcelona's-Interest-to-a-Real-Threat)
+
+
+### match barca (N/A, Tue, 3 Mar 2026 10:50:00 -0800)
+
+- **Grâce au triplé de Lamine Yamal, le FC Barcelone écrase Villarreal !**: [Link](https://onefootball.com/en/news/grace-au-triple-de-lamine-yamal-le-fc-barcelone-ecrase-villarreal-42482645)
+- **'1% chance, 99% faith' - Barcelona duo demand full Camp Nou backing for Atletico comeback**: [Link](https://barcauniversal.com/1-chance-99-faith-barcelona-duo-demand-full-camp-nou-backing-for-atletico-comeback/)
+- **Attack the best form of defence for Atleti against Yamal, says Simeone**: [Link](https://www.beinsports.com/en-nz/football/copa-del-rey/articles/attack-the-best-form-of-defence-for-atleti-against-yamal-says-simeone-2026-03-02)
+
+
+### barcelona (N/A, Tue, 3 Mar 2026 10:40:00 -0800)
+
+- **Posible alineación del Barça hoy ante el Atlético en Copa: el ‘milagro’ empieza con Joan García**: [Link](https://as.com/futbol/copa_del_rey/posible-alineacion-del-barca-ante-el-atletico-el-milagro-empieza-con-joan-garcia-f202603-n/)
+- **El ejemplo que pone Flick para buscar la remontada ante el Atlético**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260302/1004140714/ejemplo-pone-flick-buscar-remontada-atletico.html)
+- **¿Qué necesita Barcelona para clasificar a la final de la Copa del Rey?**: [Link](https://www.365scores.com/es/news/que-necesita-barcelona-clasificar-final/)
+
+
+### barca (N/A, Tue, 3 Mar 2026 10:30:00 -0800)
+
+- **Portoferraio, urto in banchina: il tribunale condanna l’armatore di una barca a vela a pagare 36mila euro**: [Link](https://www.solovela.net/notizie/3/portoferraio-urto-in-porto-condanna-armatore-barca-a-vela-36mila-euro/1354503/)
+- **Portoferraio, velista pagherà 40mila euro dopo lo scontro con la barca**: [Link](https://www.iltirreno.it/piombino/cronaca/2026/03/01/news/portoferraio-velista-paghera-40mila-euro-dopo-lo-scontro-con-la-barca-1.100838958)
+- **Il nuovo modello di scarpe da barca perfette per la primavera**: [Link](https://www.marieclaire.it/moda/scarpe/a70572476/nuovo-modello-scarpe-da-barca-perfette-primavera/)
+
+
 ### alanyaspor – galatasaray (N/A, Tue, 3 Mar 2026 09:40:00 -0800)
 
 
