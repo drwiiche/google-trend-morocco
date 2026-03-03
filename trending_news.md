@@ -1,3 +1,38 @@
+### 365 (N/A, Tue, 3 Mar 2026 12:40:00 -0800)
+
+- **Microsoft reportedly eyes E7 tier for AI agents**: [Link](https://www.theregister.com/2026/03/03/microsoft_365_e7_rumors/)
+- **Microsoft is considering a new AI-loaded software bundle for Microsoft 365, sources say**: [Link](https://www.businessinsider.com/microsoft-plans-long-awaited-365-bundle-with-ai-features-2026-2)
+- **A new Microsoft 365 "E7" tier could cost up to $99 a…**: [Link](https://www.inkl.com/news/a-new-microsoft-365-e7-tier-could-cost-up-to-99-a-month-for-premium-ai-but-only-3-3-of-existing-users-pay-for-copilot)
+
+
+### live match (N/A, Tue, 3 Mar 2026 12:30:00 -0800)
+
+- **Ryan Reynolds, Rob Mac to do live commentary on Wrexham match**: [Link](https://www.espn.com/soccer/story/_/id/48089460/ryan-reynolds-rob-mac-do-live-commentary-wrexham-match)
+- **Ryan Reynolds and Rob Mac to commentate exclusively on Sky Sports for Wrexham vs Swansea**: [Link](https://www.skysports.com/football/news/11775/13514580/ryan-reynolds-and-rob-mac-to-commentate-exclusively-on-sky-sports-for-wrexham-vs-swansea)
+- **Ryan Reynolds and Rob Mac Will Call a Live Wrexham Soccer Match This Month**: [Link](https://www.hollywoodreporter.com/tv/tv-news/ryan-reynolds-rob-mac-host-live-wrexham-broadcast-1236520426/)
+
+
+### bein sport (N/A, Tue, 3 Mar 2026 12:20:00 -0800)
+
+- **Richard Keys slammed for tasteless Premier League claim after being forced off air by Iran war**: [Link](https://uk.sports.yahoo.com/news/richard-keys-slammed-tasteless-premier-145145184.html)
+- **Donald Trump branded 'idiot' by soccer broadcaster forced off air by Iran conflict**: [Link](https://www.irishstar.com/sport/soccer/donald-trump-branded-idiot-soccer-36795939)
+- **Richard Keys slammed for 'tone-deaf' beIN Sports comments after Iranian missile strikes**: [Link](https://www.dailystar.co.uk/sport/football/richard-keys-bein-sports-iran-36810988)
+
+
+### sports (N/A, Tue, 3 Mar 2026 12:20:00 -0800)
+
+- **Iowa State To Reimagine Women's Sports Lineup**: [Link](https://cyclones.com/news/2026/3/3/gymnastics-iowa-state-to-reimagine-womens-sports-lineup)
+- **Iowa State announces end of women's gymnastics program**: [Link](https://www.kcci.com/article/iowa-state-gymnastics-program-discontinued-2026/70590995)
+- **ISU ends women’s gymnastics program after ‘unreconcilable internal conflicts’**: [Link](https://who13.com/sports/iowa-state-ends-womens-gymnastics/)
+
+
+### yalla kora (N/A, Tue, 3 Mar 2026 12:10:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 3 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-3-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltbd0537f33f5eee98)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/948984/)
+- **جدول مباريات اليوم الثلاثاء 3 مارس 2026 والقنوات الناقلة والمعلقين**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-3-%D9%85%D8%A7%D8%B1%D8%B3-2026-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blta9155c369aa78e9b)
+
+
 ### live (N/A, Tue, 3 Mar 2026 12:10:00 -0800)
 
 - **How to live a long and healthy life, according to the ancients**: [Link](https://theconversation.com/how-to-live-a-long-and-healthy-life-according-to-the-ancients-274975)
