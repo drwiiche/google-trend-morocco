@@ -1,3 +1,17 @@
+### الطقس (N/A, Mon, 2 Mar 2026 23:00:00 -0800)
+
+- **عودة التقلبات الجوية إلى المغرب.. أمطار رعدية وثلوج فوق المرتفعات**: [Link](https://www.hespress.com/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-1709437.html)
+- **طقس متقلب هذا الأسبوع.. يوعابد: سيكون غير مستقر وماطرا بعدد من المناطق**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D8%B3%D9%8A%D9%83%D9%88%D9%86-%D8%BA%D9%8A/)
+- **نشؤرة إنذارية (الظهيرة)**: [Link](https://2m.ma/ar/news/%D9%86%D8%B4%D8%A4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B8%D9%87%D9%8A%D8%B1%D8%A9-20260302)
+
+
+### weather (N/A, Mon, 2 Mar 2026 23:00:00 -0800)
+
+- **Unseasonably warm weather breaks records in New Mexico**: [Link](https://www.kunm.org/2026-03-02/unseasonably-warm-weather-breaks-records-in-new-mexico)
+- **Monday evening forecast**: [Link](https://www.kob.com/new-mexico/monday-evening-forecast-15/)
+- **Breezy winds move in through the workweek**: [Link](https://www.krqe.com/weather/video-forecast/breezy-winds-move-in-through-the-workweek/)
+
+
 ### real madrid vs (N/A, Mon, 2 Mar 2026 13:40:00 -0800)
 
 - **Real Madrid vs. Barcelona: Día, hora y transmisión para ver EN VIVO y EN DIRECTO la Copa de Leyendas en el ...**: [Link](https://chivaspasion.bolavip.com/noticias/real-madrid-vs-barcelona-dia-hora-y-transmision-para-ver-en-vivo-y-en-directo-la-copa-de-leyendas-en-el-estadio-akron-de-chivas)
