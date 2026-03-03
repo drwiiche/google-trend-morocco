@@ -1,3 +1,10 @@
+### météo (N/A, Tue, 3 Mar 2026 00:10:00 -0800)
+
+- **Météo en Belgique : conditions météo printanières ce mardi**: [Link](https://www.rtbf.be/article/meteo-en-belgique-conditions-meteo-printanieres-ce-mardi-11688177)
+- **Un météorologue belge met en garde face à la "semaine remarquable" que nous allons connaître: "Il faut rester attentif"**: [Link](https://www.lalibre.be/belgique/societe/2026/03/02/la-belgique-va-connaitre-une-semaine-remarquable-en-termes-de-meteo-cest-un-peu-tot-pour-parler-de-probleme-mais-il-faut-rester-attentif-ZNJOSU2U6NBLFA7YJ3V62C7X3A/)
+- **Météo - Une semaine ensoleillée en perspective**: [Link](https://www.dhnet.be/dernieres-depeches/2026/03/02/meteo-une-semaine-ensoleillee-en-perspective-IJFDW37HWFDBBPV6C3UNT3ER4Q/)
+
+
 ### الطقس (N/A, Mon, 2 Mar 2026 23:00:00 -0800)
 
 - **عودة التقلبات الجوية إلى المغرب.. أمطار رعدية وثلوج فوق المرتفعات**: [Link](https://www.hespress.com/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-1709437.html)
