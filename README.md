@@ -1,3 +1,10 @@
+### facebook (N/A, Tue, 3 Mar 2026 14:40:00 -0800)
+
+- **Is Facebook down? Thousands of users report outage March 3**: [Link](https://www.usatoday.com/story/tech/2026/03/03/is-facebook-down-outage-reported/88969254007/)
+- **Facebook down for thousands of users in the US, Downdetector shows**: [Link](https://www.yahoo.com/news/articles/facebook-down-thousands-users-us-225312381.html)
+- **Is Facebook Down? What We Know After Outage Reports Spike**: [Link](https://www.forbes.com/sites/antoniopequenoiv/2026/03/03/facebook-outage-reports-surge-as-website-experiences-issues/)
+
+
 ### حاروف (N/A, Tue, 3 Mar 2026 14:50:00 -0800)
 
 - **مقتل 3 أشخاص وإصابة 16 آخرين في قصف إسرائيلي على جنوب لبنان**: [Link](https://www.raya.com/2026/03/03/%D9%85%D9%82%D8%AA%D9%84-3-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%88%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-16-%D8%A2%D8%AE%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D9%82%D8%B5%D9%81-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%AC%D9%86%D9%88%D8%A8-%D9%84%D8%A8%D9%86%D8%A7%D9%86)
