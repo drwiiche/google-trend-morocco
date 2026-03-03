@@ -1,3 +1,52 @@
+### macron (N/A, Tue, 3 Mar 2026 11:40:00 -0800)
+
+- **DIRECT. Guerre en Iran: Emmanuel Macron annonce que deux bases militaires françaises ont subi des "frappes limitées"**: [Link](https://www.bfmtv.com/international/moyen-orient/direct-guerre-au-moyen-orient-l-ambassade-americaine-a-ryad-attaquee-par-des-drones-donald-trump-promet-que-les-etats-unis-repondront-bientot_LN-202603030067.html)
+- **Consignes de sécurité pour les Français de l'étranger - situation au Moyen-Orient (03.03.26)**: [Link](https://www.diplomatie.gouv.fr/fr/dossiers-pays/afrique-du-nord-moyen-orient/evenements/article/consignes-de-securite-pour-les-francais-de-l-etranger-situation-au-moyen-orient)
+- **EN DIRECT Guerre en Iran : « Deux vols évacuant des Français arrivent à Par…**: [Link](https://www.20minutes.fr/monde/etats-unis/4204266-20260303-direct-guerre-iran-selon-rubio-objectif-chute-gouvernement-iran)
+
+
+### wolves – liverpool (N/A, Tue, 3 Mar 2026 11:30:00 -0800)
+
+- **Wolverhampton Wanderers v Liverpool: Team news**: [Link](https://www.liverpoolfc.com/news/wolverhampton-wanderers-v-liverpool-team-news-3)
+- **Build up & team news to all four Premier League fixtures**: [Link](https://onefootball.com/en/news/build-up-team-news-to-all-four-premier-league-fixtures-42499320)
+- **Confirmed Lineups: Wolves vs Liverpool - Frimpong Returns**: [Link](https://lfcglobe.co.uk/wolves-vs-liverpool-confirmed-lineups-mar-2026/)
+
+
+### مباريات اليوم (N/A, Tue, 3 Mar 2026 11:30:00 -0800)
+
+- **جدول مباريات اليوم الثلاثاء 3 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-3-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltbd0537f33f5eee98)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/948984/)
+- **3 مارس: ثنائية الدوري الإنجليزي الممتاز يوم الثلاثاء – 7/1 خاص، نصائح وتوقعات الرهان**: [Link](https://albalad.news/sport/3-%D9%85%D8%A7%D8%B1%D8%B3-%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/379860/)
+
+
+### الفجيرة (N/A, Tue, 3 Mar 2026 11:30:00 -0800)
+
+- **الإمارات.. حريقان بمنطقة بترولية وميناء الفجيرة جراء اعتراض مسيرتين**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AD%D8%B1%D9%8A%D9%82%D8%A7%D9%86-%D8%A8%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%A8%D8%AA%D8%B1%D9%88%D9%84%D9%8A%D8%A9-%D9%88%D9%85%D9%8A%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D9%81%D8%AC%D9%8A%D8%B1%D8%A9-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D8%B6-%D9%85%D8%B3%D9%8A%D8%B1%D8%AA%D9%8A%D9%86-/3848317)
+- **الإمارات.. السيطرة على حريق بالفجيرة إثر سقوط شظايا مسيرة**: [Link](https://www.skynewsarabia.com/middle-east/1856400-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D9%8A%D8%B7%D8%B1%D8%A9-%D8%AD%D8%B1%D9%8A%D9%82-%D8%A8%D8%A7%D9%84%D9%81%D8%AC%D9%8A%D8%B1%D8%A9-%D8%A5%D8%AB%D8%B1-%D8%B3%D9%82%D9%88%D8%B7-%D8%B4%D8%B8%D8%A7%D9%8A%D8%A7-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9)
+- **بالفيديو: مسيرة تسقط على منشأة نفط عمانية وحريق في الفجيرة الإماراتية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260303-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%AA%D8%B3%D9%82%D8%B7-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%B4%D8%A3%D8%A9-%D9%86%D9%81%D8%B7-%D8%B9%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D9%88%D8%AD%D8%B1%D9%8A%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D9%81%D8%AC%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D8%A9)
+
+
+### كورة (N/A, Tue, 3 Mar 2026 11:30:00 -0800)
+
+- **"موسم استثنائي".. ديكو يكشف استراتيجية برشلونة أمام نيوكاسل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A--%D8%AF%D9%8A%D9%83%D9%88-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/bltaa4dc880dcbaa271)
+- **برشلونة ونهائي الأبطال: طريق مفتوح أم اختبار أخير للنضج القاري؟**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%B7%D8%B1%D9%8A%D9%82-%D9%85%D9%81%D8%AA%D9%88%D8%AD-%D8%A3%D9%85-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A3%D8%AE%D9%8A%D8%B1-%D9%84%D9%84%D9%86%D8%B6%D8%AC-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A)
+- **بعد 55 مباراة.. هل يتفوّق برشلونة في تاريخ مواجهاته مع أندية إنجلترا؟**: [Link](https://sports.asharq.com/football/101418/%D9%87%D9%84-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA%D9%87-%D9%85%D8%B9-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7/)
+
+
+### kooora (N/A, Tue, 3 Mar 2026 11:20:00 -0800)
+
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في إياب نصف نهائي كأس ملك إسبانيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/3/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83)
+- **بالفيديو.. جماهير برشلونة ترعب أتلتيكو وتهتف ضد الريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AA%D8%B1%D8%B9%D8%A8-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%88%D8%AA%D9%87%D8%AA%D9%81-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt85a036f1a46ff0b3)
+- **القناة الناقلة لمباراة برشلونة وأتلتيكو مدريد اليوم في كأس ملك إسبانيا**: [Link](https://www.btolat.com/news/394638)
+
+
+### koora (N/A, Tue, 3 Mar 2026 11:20:00 -0800)
+
+- **معركة 15 مارس.. الذكاء الاصطناعي يتوقع الرئيس الجديد لبرشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D8%B1%D9%83%D8%A9-15-%D9%85%D8%A7%D8%B1%D8%B3--%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltd8c41c9e87332cc7)
+- **تحالف انتخابي يهدد حظوظ لابورتا في رئاسة برشلونة : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D8%A7%D9%84%D9%81-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D9%8A-%D9%8A%D9%87%D8%AF%D8%AF-%D8%AD%D8%B8%D9%88%D8%B8-%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/16507)
+- **نتيجة المرحلة الأولى من انتخابات برشلونة**: [Link](https://hihi2.com/2026/03/02/p3674214.html)
+
+
 ### bournemouth – brentford (N/A, Tue, 3 Mar 2026 11:00:00 -0800)
 
 - **Bournemouth vs Brentford predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/ce8ngv82p22o)
