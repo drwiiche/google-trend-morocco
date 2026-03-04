@@ -1,3 +1,24 @@
+### city (N/A, Wed, 4 Mar 2026 13:40:00 -0800)
+
+- **Homeless encampment near Grady Hospital causing concern; city set to close it**: [Link](https://www.11alive.com/article/news/local/homeless-encampment-near-grady-hospital-causing-concern-city-to-close-it/85-4aa034c8-11b9-4df6-af9e-5e072bb596ca)
+- **Rabid fox attacks person in Hill Country city, officials confirm**: [Link](https://www.expressnews.com/news/article/san-marcos-fox-rabies-21955495.php)
+- **Tucson’s Safe City initiative aims to link people to help. Arrests still drive the strategy**: [Link](https://apnews.com/article/general-news-justin-hamilton-law-enforcement-regina-romero-tucson-88220cc29ce1e6cbebc270c072565b57)
+
+
+### lazio – atalanta (N/A, Wed, 4 Mar 2026 13:20:00 -0800)
+
+- **La moviola di Lazio-Atalanta: Manganiello gestisce in parte**: [Link](https://onefootball.com/de/news/la-moviola-di-lazio-atalanta-manganiello-gestisce-in-parte-42505507)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-le-ufficiali-di-lazio-atalanta/8Ya56x63/)
+- **In campo alle 21 con Samardzic, Zalewski e Krstovic -Le formazioni ufficiali**: [Link](https://www.ecodibergamo.it/live/sport/detail/lazio_atalanta_2600_12/)
+
+
+### coupe de france (N/A, Wed, 4 Mar 2026 11:40:00 -0800)
+
+- **"Il est peut-être sous-coté": à Lorient, Olivier Pantaloni vit "caché et heureux"**: [Link](https://rmcsport.bfmtv.com/football/coupe-de-france/il-est-peut-etre-sous-cote-a-lorient-olivier-pantaloni-vit-cache-et-heureux_AV-202603040382.html)
+- **OGC Nice : Yehvann Diouf vit très mal son déclassement**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ogc-nice-yehvann-diouf-vit-tres-mal-son-declassement-514821.html)
+- **FC Lorient – CdF : Arsène Kouassi de retour, Igor Silva préservé avant l’OGC Nice**: [Link](https://footballko.com/2026/03/04/fc-lorient-cdf-arsene-kouassi-de-retour-igor-silva-preserve-avant-logc-nice/)
+
+
 ### ترتيب الدوري الانجليزي (N/A, Wed, 4 Mar 2026 13:30:00 -0800)
 
 - **جيرارد: ليفربول يائس.. وأطالب بمشاركة هذا اللاعب أساسيًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D9%8A%D8%B1%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%A7%D9%8A%D9%94%D8%B3--%D9%88%D8%A7%D9%94%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7/bltcdb02ea33082b5d2)
