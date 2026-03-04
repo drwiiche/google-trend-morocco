@@ -1,3 +1,10 @@
+### tajnid (N/A, Wed, 4 Mar 2026 05:00:00 -0800)
+
+- **الخدمة العسكرية 2025.. انطلاق عملية الإحصاء لفائدة الشباب ما بين 19 و25 سنة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5/)
+- **انطلاق عملية الإحصاء المتعلق بالخدمة العسكرية لسنة 2026 – اليوم 24**: [Link](https://alyaoum24.com/2013165.html)
+- **انطلاق عملية إحصاء الخدمة العسكرية لفوج شتنبر 2026**: [Link](https://assabah.ma/906326.html)
+
+
 ### bourse de casablanca (N/A, Wed, 4 Mar 2026 02:10:00 -0800)
 
 - **Bourse de Casablanca : clôture dans le rouge**: [Link](https://fr.hespress.com/464585-bourse-de-casablanca-cloture-dans-le-rouge-95.html)
