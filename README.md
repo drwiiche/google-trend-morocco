@@ -1,3 +1,10 @@
+### apple (N/A, Tue, 3 Mar 2026 17:30:00 -0800)
+
+- **Say hello to MacBook Neo**: [Link](https://www.apple.com/newsroom/2026/03/say-hello-to-macbook-neo/)
+- **The Colorful MacBook Neo Is Apple’s Cheapest Laptop Ever**: [Link](https://www.wired.com/story/new-budget-apple-macbook-2026/)
+- **Apple March event LIVE: MacBook Neo unveiled, iPhone 17e, iPad Air M4 and everything announced this week**: [Link](https://www.tomsguide.com/news/live/apple-march-event-2026-live)
+
+
 ### maroc (N/A, Wed, 4 Mar 2026 05:30:00 -0800)
 
 - **ITB Berlin : L’ONMT se mobilise pour accélérer la croissance du marché allemand**: [Link](https://www.leconomiste.com/flash-infos/itb-berlin-lonmt-se-mobilise-pour-accelerer-la-croissance-du-marche-allemand/)
