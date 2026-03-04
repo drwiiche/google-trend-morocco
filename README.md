@@ -1,3 +1,10 @@
+### طقس تطوان (N/A, Tue, 3 Mar 2026 18:50:00 -0800)
+
+- **خبراء يدعون إلى "يقظة السدود" مع عودة الاضطرابات الجوية في المغرب**: [Link](https://www.hespress.com/%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%8A%D8%AF%D8%B9%D9%88%D9%86-%D8%A5%D9%84%D9%89-%D9%8A%D9%82%D8%B8%D8%A9-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%AF-%D9%85%D8%B9-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84-1710127.html)
+- **طقس متقلب هذا الأسبوع.. يوعابد: سيكون غير مستقر وماطرا بعدد من المناطق**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D8%B3%D9%8A%D9%83%D9%88%D9%86-%D8%BA%D9%8A/)
+- **نشؤرة إنذارية (الظهيرة)**: [Link](https://2m.ma/ar/news/%D9%86%D8%B4%D8%A4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B8%D9%87%D9%8A%D8%B1%D8%A9-20260302)
+
+
 ### facebook (N/A, Tue, 3 Mar 2026 14:40:00 -0800)
 
 - **Is Facebook down? Thousands of users report outage March 3**: [Link](https://www.usatoday.com/story/tech/2026/03/03/is-facebook-down-outage-reported/88969254007/)
