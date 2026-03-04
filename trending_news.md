@@ -1,3 +1,10 @@
+### maroc (N/A, Wed, 4 Mar 2026 05:30:00 -0800)
+
+- **ITB Berlin : L’ONMT se mobilise pour accélérer la croissance du marché allemand**: [Link](https://www.leconomiste.com/flash-infos/itb-berlin-lonmt-se-mobilise-pour-accelerer-la-croissance-du-marche-allemand/)
+- **Tourisme : à l’ITB Berlin 2026, l’ONMT lance une offensive sur le marché allemand**: [Link](http://ledesk.ma/encontinu/tourisme-a-litb-berlin-2026-lonmt-lance-une-offensive-sur-le-marche-allemand/)
+- **Tourisme : Le Maroc prend part à la 60e édition du Salon international de Berlin**: [Link](https://femmesdumaroc.com/inspiration/radar/tourisme-le-maroc-prend-part-a-la-60e-edition-du-salon-international-de-berlin)
+
+
 ### tajnid (N/A, Wed, 4 Mar 2026 05:00:00 -0800)
 
 - **الخدمة العسكرية 2025.. انطلاق عملية الإحصاء لفائدة الشباب ما بين 19 و25 سنة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%AD%D8%B5/)
