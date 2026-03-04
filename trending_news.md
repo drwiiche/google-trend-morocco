@@ -1,3 +1,38 @@
+### ترتيب الدوري الانجليزي (N/A, Wed, 4 Mar 2026 13:30:00 -0800)
+
+- **جيرارد: ليفربول يائس.. وأطالب بمشاركة هذا اللاعب أساسيًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D9%8A%D8%B1%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%A7%D9%8A%D9%94%D8%B3--%D9%88%D8%A7%D9%94%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7/bltcdb02ea33082b5d2)
+- **قدم.. ليفربول يتكبد خسارة مفاجئة أمام ولفرهامبتون متذيل الترتيب**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%AA%D9%83%D8%A8%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%85%D8%AA%D8%B0%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8/3849046)
+- **ولفرهامبتون يواصل مفاجآته ويهزم ليفربول**: [Link](https://www.hesport.com/%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA%D9%87-%D9%88%D9%8A%D9%87%D8%B2%D9%85-%D9%84%D9%8A%D9%81%D8%B1-429404.html)
+
+
+### الطقس غدًا (N/A, Wed, 4 Mar 2026 13:10:00 -0800)
+
+- **ارتفاع درجة الحرارة فى هذه الأوقات.. تفاصيل حالة الطقس الساعات المقبلة**: [Link](https://www.youm7.com/story/2026/3/4/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%89-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D8%AA-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA/7327376)
+- **عاجل: الأرصاد تحذر من شبورة مائية قاتلة صباح الأربعاء... ونشاط رياح يستمر 5 أيام!**: [Link](https://yemen-press.net/news170505.html)
+- **تحسن نسبي في الطقس وارتفاع تدريجي بالحرارة.. والأرصاد تحذر من برودة الليل القارسة**: [Link](https://www.almawq3.com/%D8%AA%D8%AD%D8%B3%D9%86-%D9%86%D8%B3%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%88%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A-%D8%A8%D8%A7%D9%84%D8%AD/)
+
+
+### مفاعل ديمونا (N/A, Wed, 4 Mar 2026 13:10:00 -0800)
+
+- **مسؤول عسكري إيراني يتوعد بضرب مفاعل ديمونا بصواريخ نوعية**: [Link](https://www.aljazeera.net/news/2026/3/4/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%84%D9%85%D9%88%D9%82%D8%B9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **مسؤول عسكري إيراني لموقع إيران نوانس: تفعيل خطة إسقاط النظام سيدفعنا لضرب البنى التحتية للطاقة في المنطقة**: [Link](https://www.lbcgroup.tv/news/latest-news/910582/%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%84%D9%85%D9%88%D9%82%D8%B9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%86%D9%88%D8%A7%D9%86%D8%B3-%D8%AA%D9%81%D8%B9%D9%8A%D9%84-%D8%AE%D8%B7%D8%A9-%D8%A5%D8%B3%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D9%86%D8%B8%D8%A7%D9%85-%D8%B3%D9%8A%D8%AF%D9%81%D8%B9%D9%86%D8%A7-%D9%84%D8%B6/ar)
+- **مسؤول عسكري إيراني: إن اتجهت واشنطن وتل أبيب لقلب النظام بالفوضى المسلحة سنضرب مفاعل ديمونا**: [Link](https://elayem.news/%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%A5%D9%86-%D8%A7%D8%AA%D8%AC%D9%87%D8%AA-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D9%88%D8%AA%D9%84/)
+
+
+### manchester united (N/A, Wed, 4 Mar 2026 13:10:00 -0800)
+
+- **'If Casemiro did that…' - Man Utd fans fume as Newcastle star gets away with 'disgusting elbow' on Luke Shaw**: [Link](https://www.thesun.co.uk/sport/38413056/man-utd-newcastle-luke-shaw-dan-burn-casemiro/)
+- **Fans outraged as Dan Burn elbow on Luke Shaw goes unpunished: 'If that was Casemiro it would've been a direct red card'**: [Link](https://tribuna.com/en/blogs/fans-outraged-as-dan-burn-elbow-on-luke-shaw-goes-unpunished/)
+- **Manchester United Face Newcastle United in Premier League Third-Place Test**: [Link](https://m.elbotola.com/en/article/2026-03-03-12-45-926.html)
+
+
+### chelsea (N/A, Wed, 4 Mar 2026 12:20:00 -0800)
+
+- **Aston Villa players left incensed at rare delay tactic used by Chelsea**: [Link](https://talksport.com/football/4025047/aston-villa-players-incensed-rare-delay-tactic-chelsea/)
+- **Aston Villa stars left fuming as Chelsea delay second half with crafty team huddle on halfway line**: [Link](https://www.thesun.co.uk/sport/38413028/aston-villa-fuming-chelsea-delay-second-half-crafty-huddle/)
+- **Aston Villa vs Chelsea: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c20zeq095r9t)
+
+
 ### ريال سوسيداد ضد أتلتيك بيلباو (N/A, Wed, 4 Mar 2026 12:20:00 -0800)
 
 - **كأس ملك إسبانيا... سوسييداد يواجه بيلباو في صراع الوصول إلى النهائي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%A8%D8%A7%D8%B3%D9%83-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/16607)
