@@ -1,3 +1,10 @@
+### حالة الطقس اليوم (N/A, Tue, 3 Mar 2026 21:30:00 -0800)
+
+- **عودة ارتفاع درجات الحرارة اليوم.. الأرصاد تكشف حالة الطقس المتوقعة اليوم الثلاثاء**: [Link](https://www.almasryalyoum.com/news/details/4212695)
+- **شتاء قارس رغم ارتفاع درجات الحرارة، الأرصاد تحذر من موجة صقيع ليلا، أمطار ورياح تضرب هذه المناطق**: [Link](https://www.vetogate.com/5607010)
+- **ارتفاع درجات الحرارة تدريجياً مع توقع شبورة كثيفة صباحاً**: [Link](https://www.iqraa24.com/news/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A%D8%A7%D9%8B-%D9%85%D8%B9-%D8%AA%D9%88%D9%82%D8%B9/)
+
+
 ### bts (N/A, Tue, 3 Mar 2026 21:20:00 -0800)
 
 - **BTS Unveil Track List for 'Arirang' Featuring Collabs With Mike WiLL Made-It, El Guincho, More**: [Link](https://www.rollingstone.com/music/music-news/bts-arirang-track-list-1235524160/)
