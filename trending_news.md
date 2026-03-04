@@ -1,3 +1,24 @@
+### ريال سوسيداد ضد أتلتيك بيلباو (N/A, Wed, 4 Mar 2026 12:20:00 -0800)
+
+- **كأس ملك إسبانيا... سوسييداد يواجه بيلباو في صراع الوصول إلى النهائي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%A8%D8%A7%D8%B3%D9%83-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/16607)
+- **ريال سوسيداد يسعى لتأكيد تفوقه أمام أتلتيك بلباو في إياب نصف نهائي كأس الملك الاسباني**: [Link](https://m.elbotola.com/article/2026-03-03-18-45-212.html)
+- **فالفيردي: متمسكون بالتأهل لنهائي كأس الملك**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5247186-%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D8%AF%D9%8A-%D9%85%D8%AA%D9%85%D8%B3%D9%83%D9%88%D9%86-%D8%A8%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83)
+
+
+### hambourg – leverkusen (N/A, Wed, 4 Mar 2026 11:50:00 -0800)
+
+- **Darum fehlen Otele & Poulsen dem HSV gegen Leverkusen**: [Link](https://www.90min.de/darum-fehlen-otele-poulsen-dem-hsv-gegen-leverkusen)
+- **Welche Fußballspiele sind heute? Die Übertragungen am Mittwoch (4.3.)**: [Link](https://www.dazn.com/de-DE/news/fussball/fussballspiele-heute-uebertragungen-mittwoch-4-maerz/7ttcrkdh8tra1lv0x9twhrr60)
+- **Bayer Leverkusen: Startelf gegen HSV: Bayer-Coach Kasper Hjulmand sorgt für Mega-Überraschung**: [Link](https://www.bild.de/sport/fussball/bayer-leverkusen-startelf-gegen-hsv-bayer-coach-kasper-hjulmand-sorgt-fuer-mega-ueberraschung-69a82d6aa914a4734f136651)
+
+
+### نيوكاسل يونايتد ضد مان يونايتد (N/A, Wed, 4 Mar 2026 11:40:00 -0800)
+
+- **مانشستر يونايتد يواجه نيوكاسل يونايتد في اختبار الحفاظ على المركز الثالث بالدوري الأنجليزي الممتاز**: [Link](http://m.elbotola.com/article/2026-03-03-12-45-784.html)
+- **الفرق والتشكيلات المؤكدة في الدوري الإنجليزي 2025/26**: [Link](https://albalad.news/sport/%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A4%D9%83%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84-5/382124/)
+- **هاو يشدد على صعوبة الفترة المقبلة**: [Link](https://menafn.com/arabic/1110814826/%D9%87%D8%A7%D9%88-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D9%81%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9)
+
+
 ### newcastle – manchester united (N/A, Wed, 4 Mar 2026 11:30:00 -0800)
 
 - **Manchester United Face Newcastle United in Premier League Third-Place Test**: [Link](https://m.elbotola.com/en/article/2026-03-03-12-45-926.html)
