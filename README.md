@@ -1,3 +1,59 @@
+### newcastle – manchester united (N/A, Wed, 4 Mar 2026 11:30:00 -0800)
+
+- **Manchester United Face Newcastle United in Premier League Third-Place Test**: [Link](https://m.elbotola.com/en/article/2026-03-03-12-45-926.html)
+- **LINEUPS HAVE LANDED AT ST JAMES' PARK!!**: [Link](https://www.besoccer.com/new/live-newcastle-v-man-utd-1397637)
+- **Confirmed line-up: Ramsdale and Barnes start against Reds**: [Link](https://onefootball.com/en/news/confirmed-line-up-ramsdale-and-barnes-start-against-reds-42504673)
+
+
+### أستون فيلا ضد تشيلسي (N/A, Wed, 4 Mar 2026 11:30:00 -0800)
+
+- **أستون فيلا يسعى لتعزيز مركزه الرابع أمام تشيلسي في قمة الدوري الإنجليزي بملعب فيلا بارك**: [Link](https://m.elbotola.com/article/2026-03-03-00-15-307.html)
+- **التشكيلات والإحصائيات والمعاينة بما في ذلك التلفزيون والبث المباشر وأخبار الفريق وتوقعات الدوري الإنجليزي الممتاز**: [Link](https://albalad.news/sport/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D9%8A%D9%86%D8%A9-%D8%A8%D9%85%D8%A7-5/381086/)
+- **تشلسي يحلّ ضيفاً على أستون فيلا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A7-%D8%B9%D9%84%D9%89-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-2026-03-04?videopage=true)
+
+
+### marseille – toulouse (N/A, Wed, 4 Mar 2026 11:20:00 -0800)
+
+- **OM : la prise de position osée de Grégory Sertic**: [Link](https://www.footmercato.net/a786722562135840359-om-la-prise-de-position-osee-de-gregory-sertic)
+- **Habib Beye titularise Abdelli et Vermeeren, Toulouse avec Dönnum et Nicolaisen en Coupe de France**: [Link](https://www.lequipe.fr/Football/Actualites/Habib-beye-titularise-abdelli-et-vermeeren-toulouse-avec-donnum-et-nicolaisen-en-quarts-de-finale-de-la-coupe-de-france/1656790)
+- **Toulouse/OM - un arbitre qui réussit plutôt aux Marseillais désigné**: [Link](https://www.lephoceen.fr/infos-om/saison/toulouse-om-un-arbitre-qui-reussit-plutot-aux-marseillais-designe-233664)
+
+
+### real sociedad – ath. bilbao (N/A, Wed, 4 Mar 2026 11:20:00 -0800)
+
+- **Matarazzo: «Sé lo especial que es este partido, pero nosotros debemos centrarnos en jugar bien al fútbol y ganar»**: [Link](https://www.diariovasco.com/real-sociedad/matarazzo-especial-partido-debemos-centrarnos-jugar-bien-20260303145439-nt.html)
+- **En qué canal pasan Real Sociedad vs. Athletic Bilbao por la Copa del Rey 2025-2026 hoy**: [Link](https://es-us.noticias.yahoo.com/deportes/canal-pasan-real-sociedad-vs-164543584.html)
+- **El derbi vasco a través de los ojos de los maestros del pasado**: [Link](https://onefootball.com/es/noticias/el-derbi-vasco-a-traves-de-los-ojos-de-los-maestros-del-pasado-42502007)
+
+
+### rayo – real oviedo (N/A, Wed, 4 Mar 2026 11:20:00 -0800)
+
+- **Almada: "El del Rayo es el partido más importante del año"**: [Link](https://www.marca.com/futbol/oviedo/2026/03/03/almada-rayo-partido-importante-ano.html)
+- **El encuentro de los desencuentros**: [Link](https://as.com/futbol/primera/el-encuentro-de-los-desencuentros-f202603-n/)
+- **El Oviedo tiene mucho que ganar en Vallecas**: [Link](https://www.elcomercio.es/real-oviedo/oviedo-ganar-vallecas-20260303195549-nt.html)
+
+
+### برايتون ضد آرسنال (N/A, Wed, 4 Mar 2026 11:20:00 -0800)
+
+- **أرتيتا يحافظ على تشكيلة الفوز في ليلة ساكا الاستثنائية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%AD%D8%A7%D9%81%D8%B8-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%B3%D8%A7%D9%83%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9/blt3d7dbeec87749e7a)
+- **أرسنال يسعى لتعزيز صدارته أمام برايتون في الدوري الأنجليزي الممتاز**: [Link](https://m.elbotola.com/article/2026-03-03-00-30-959.html)
+- **كيفية مشاهدة مباراة أرسنال وبرايتون في الدوري الإنجليزي بث مباشر**: [Link](https://www.alkhaleej.ae/2026-03-04/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-6342926/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A)
+
+
+### مان سيتي ضد نوتينغهام فورست (N/A, Wed, 4 Mar 2026 11:10:00 -0800)
+
+- **قبل مواجهة ريال مدريد.. جوارديولا يدلي بتحديث مهم عن إصابة هالاند**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AF%D9%84%D9%8A-%D8%A8%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-%D9%85%D9%87%D9%85-%D8%B9%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF/bltd19441c25a884cd4)
+- **مانشستر سيتي يستضيف نوتينغهام فورست في ملعب الاتحاد لتعزيز مركزه الثاني في الدوري الأنجليزي**: [Link](https://m.elbotola.com/article/2026-03-03-13-45-307.html)
+- **الحلم سبورت : موقف سيمينو من مباراة نوتنغهام فوريست**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D9%85%D9%88%D9%82%D9%81-%D8%B3%D9%8A%D9%85%D9%8A%D9%86%D9%88-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%88%D8%AA%D9%86/)
+
+
+### fulham – west ham (N/A, Wed, 4 Mar 2026 11:10:00 -0800)
+
+- **Nuno to worry as official Premier League announcement for Fulham rings in West Ham first**: [Link](https://www.westhamzone.com/opinion/nuno-to-worry-as-official-premier-league-announcement-for-fulham-rings-in-west-ham-first/)
+- **From the Press Box: Wilson to be assessed ahead of Hammers clash**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-wilson-to-be-assessed)
+- **Wilson, Andersen, Kevin: Fulham injury latest for FPL Gameweek 29**: [Link](https://www.fantasyfootballscout.co.uk/2026/03/03/wilson-andersen-kevin-fulham-injury-latest-for-fpl-gameweek-29/)
+
+
 ### manchester city – nottm forest (N/A, Wed, 4 Mar 2026 10:50:00 -0800)
 
 - **Training: Focusing on Forest**: [Link](https://www.mancity.com/news/mens/training-gallery-3-march-nottingham-forest-63908166)
