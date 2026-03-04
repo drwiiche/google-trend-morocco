@@ -1,3 +1,59 @@
+### manchester city – nottm forest (N/A, Wed, 4 Mar 2026 10:50:00 -0800)
+
+- **Training: Focusing on Forest**: [Link](https://www.mancity.com/news/mens/training-gallery-3-march-nottingham-forest-63908166)
+- **Manchester City**: [Link](https://www.flashscore.com/match/football/manchester-city-Wtn9Stg0/nottingham-UsushcZr/summary/lineups/?mid=jHyOcnOk)
+- **Manchester City Host Nottingham Forest at Etihad to Solidify Second Place in Premier League**: [Link](https://m.elbotola.com/en/article/2026-03-03-13-45-451.html)
+
+
+### brighton – arsenal (N/A, Wed, 4 Mar 2026 10:50:00 -0800)
+
+- **Arteta's update on Havertz, Rice and Odegaard | Press conference | News**: [Link](https://www.arsenal.com/news/artetas-update-havertz-rice-and-odegaard)
+- **🚨 Brighton v Arsenal line-ups: Arteta names a side without Saliba!**: [Link](https://onefootball.com/en/news/brighton-v-arsenal-line-ups-arteta-names-a-side-without-saliba-42504528)
+- **Brighton vs Arsenal predictions: Gunners to edge Amex battle**: [Link](https://www.goal.com/en-ca/betting/tips/brighton-vs-arsenal-predictions-03-04/A%3Abltea76dac6640f00ca)
+
+
+### aston villa – chelsea (N/A, Wed, 4 Mar 2026 10:50:00 -0800)
+
+- **11 players could miss Aston Villa vs Chelsea as Marc Cucurella hope explained**: [Link](https://www.football.london/chelsea-fc/news/chelsea-aston-villa-marc-cucurella-33525786)
+- **Predicted XI: Liam Rosenior has an obvious solution to Pedro Neto suspension**: [Link](https://sports.yahoo.com/articles/predicted-xi-liam-rosenior-obvious-150000323.html)
+- **Chelsea handed Cole Palmer boost as Liam Rosenior offers fitness relief vs Aston Villa**: [Link](https://www.si.com/onsi/soccer/chelsea/news/chelsea-handed-cole-palmer-boost-as-liam-rosenior-offers-fitness-relief-vs-aston-villa-01kjsnsc8ewy)
+
+
+### finalissima (N/A, Wed, 4 Mar 2026 09:50:00 -0800)
+
+- **London favourite to host Spain v Argentina Finalissima after Doha doubts**: [Link](https://www.reuters.com/sports/soccer/london-favourite-host-spain-v-argentina-finalissima-after-doha-doubts-2026-03-03/)
+- **War disrupts sports, with doubt over Messi's 'Finalissima,' Ronaldo games and F1 races**: [Link](https://www.sportsnet.ca/soccer/article/war-disrupts-sports-with-doubt-over-messis-finalissima-ronaldo-games-and-f1-races/)
+- **How Middle East Conflict Could Disrupt the World Cup and Formula 1**: [Link](https://frontofficesports.com/videos/how-middle-east-conflict-could-disrupt-the-world-cup-and-formula-1/)
+
+
+### macky sall (N/A, Wed, 4 Mar 2026 09:40:00 -0800)
+
+- **Le Burundi propose Macky Sall au poste de secrétaire général de l’ONU**: [Link](https://medias24.com/2026/03/04/le-burundi-propose-macky-sall-au-poste-de-secretaire-general-de-lonu-1637342/)
+- **Un Africain comme prochain Secrétaire général de l’Onu ?**: [Link](https://www.dw.com/fr/face-ex-pr%C3%A9sident-macky-sall-opposes-candidats-dont-zone-geographique-pourrait-peser-dans-election/a-76203821)
+- **Qui pour succéder à Antonio Guteres ? Le Sénégalais Macky Sall “a le profil de l’emploi”**: [Link](https://www.courrierinternational.com/article/onu-qui-pour-succeder-a-antonio-guteres-le-senegalais-macky-sall-a-le-profil-de-l-emploi_241330)
+
+
+### gessime yassine (N/A, Wed, 4 Mar 2026 09:00:00 -0800)
+
+- **Strasbourg : la folle performance de Gessime Yassine enflamme Chelsea et l’Angleterre**: [Link](https://www.footmercato.net/a7968877742839224188-strasbourg-la-folle-performance-de-gessime-yassine-enflamme-chelsea-et-langleterre)
+- **«La lumière est surtout venue de lui»: L’Équipe dithyrambique au sujet de Gessime Yassine**: [Link](https://sport.le360.ma/football/ligue-1/la-lumiere-est-surtout-venue-de-lui-lequipe-dithyrambique-au-sujet-de-gessime-yassine_HAKMYCBUDBAJXCVMRHW4QZIK5I/)
+- **25 ans après, Strasbourg retrouve le dernier carré**: [Link](https://www.eurosport.fr/football/coupe-de-france/2025-2026/coupe-de-france-i-strasbourg-en-demi-finale-grace-a-sa-victoire-contre-reims-2-1-avec-deux-penalties_sto23277362/story.shtml)
+
+
+### wac vs far (N/A, Wed, 4 Mar 2026 08:50:00 -0800)
+
+- **Wydad vs AS FAR: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/03/281474/wydad-vs-as-far-how-when-to-watch/)
+- **Curva Che Announces Mass Trip to Casablanca to Support AS FAR in Clasico Against Wydad**: [Link](https://m.elbotola.com/en/article/2026-03-03-22-08-805.html)
+- **Wydad Athletic Club hit by Joseph Bakasu suspension ahead of decisive AS FAR clash -**: [Link](https://africasoccer.com/wydad-athletic-club-hit-by-joseph-bakasu-suspension-ahead-of-decisive-as-far-clash/)
+
+
+### iphone 17e (N/A, Wed, 4 Mar 2026 08:10:00 -0800)
+
+- **iPhone 17eを発表**: [Link](https://www.apple.com/jp/newsroom/2026/03/apple-introduces-iphone-17e/)
+- **iPhone17eのディスプレイサプライヤー判明〜16eから大幅に変更と報道 - iPhone Mania**: [Link](https://iphone-mania.jp/iphone17-600684/)
+- **iPhone17eとiPhone17を比較！価格・スペック・バッテリー・カメラなど違いは6つ**: [Link](https://www.showcase-tv.com/mobile/iphone17e-iphone17-comparison/)
+
+
 ### macbook neo (N/A, Wed, 4 Mar 2026 08:30:00 -0800)
 
 - **Say hello to MacBook Neo**: [Link](https://www.apple.com/newsroom/2026/03/say-hello-to-macbook-neo/)
