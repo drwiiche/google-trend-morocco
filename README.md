@@ -1,3 +1,10 @@
+### bourse de casablanca (N/A, Wed, 4 Mar 2026 02:10:00 -0800)
+
+- **Bourse de Casablanca : clôture dans le rouge**: [Link](https://fr.hespress.com/464585-bourse-de-casablanca-cloture-dans-le-rouge-95.html)
+- **Guerre au Moyen-Orient : pourquoi Casablanca a tremblé plus fort que Wall Street**: [Link](https://mobile.telquel.ma/2026/03/03/guerre-au-moyen-orient-pourquoi-casablanca-a-tremble-plus-fort-que-wall-street_1977195)
+- **Bourse de Casablanca. Le MASI chute de 5,6% le 3 mars et repasse sous les 17.000 points**: [Link](https://medias24.com/2026/03/03/bourse-de-casablanca-le-masi-chute-de-45-le-3-mars-et-repasse-sous-les-17-000-points-1636751/)
+
+
 ### الطقس (N/A, Wed, 4 Mar 2026 00:10:00 -0800)
 
 - **عودة ارتفاع درجات الحرارة اليوم.. الأرصاد تكشف حالة الطقس المتوقعة اليوم الثلاثاء**: [Link](https://www.almasryalyoum.com/news/details/4212695)
