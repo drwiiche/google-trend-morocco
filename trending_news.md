@@ -1,3 +1,24 @@
+### macbook neo (N/A, Wed, 4 Mar 2026 08:30:00 -0800)
+
+- **Say hello to MacBook Neo**: [Link](https://www.apple.com/newsroom/2026/03/say-hello-to-macbook-neo/)
+- **Apple Accidentally Leaks 'MacBook Neo'**: [Link](https://www.macrumors.com/2026/03/03/apple-accidentally-leaks-macbook-neo/)
+- **​​Dear Bored Windows Users: The Time To Give Mac A Try Has Finally Arrived**: [Link](https://www.slashgear.com/2115576/why-windows-users-should-try-mac/)
+
+
+### rodrygo (N/A, Wed, 4 Mar 2026 08:30:00 -0800)
+
+- **Rodrygo se rompe el cruzado**: [Link](https://as.com/futbol/primera/rodrygo-se-rompe-el-cruzado-f202603-n/)
+- **Carta de Rodrygo sobre su lesión: "La vida ha sido un poco cruel conmigo últimamente..."**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/03/carta-rodrygo-sobre-lesion-vida-sido-poco-cruel-ultimamente.html)
+- **Lesión de Rodrygo abre plaza mundialista, regreso de Neymar, si está apto**: [Link](https://onefootball.com/es/noticias/lesion-de-rodrygo-abre-plaza-mundialista-regreso-de-neymar-si-esta-apto-42504009)
+
+
+### conflit iran (N/A, Wed, 4 Mar 2026 07:20:00 -0800)
+
+- **EN DIRECT, Iran : le secrétaire à la défense américain, Pete Hegseth, affirme qu’un de ses sous-marins a « coulé un navire de guerre iranien » au large du Sri Lanka**: [Link](https://www.lemonde.fr/international/live/2026/03/04/en-direct-iran-le-secretaire-americain-a-la-defense-pete-hegsethun-affirme-qu-un-de-ses-sous-marins-a-coule-un-navire-de-guerre-iranien-au-large-du-sri-lanka_6668663_3210.html)
+- **DIRECT. Guerre au Moyen-Orient : un sous-marin américain a coulé un navire iranien dans l'océan Indien, affirme le secrétaire à la Défense américain**: [Link](https://www.franceinfo.fr/monde/iran/guerre-entre-les-etats-unis-israel-et-l-iran/direct-l-iran-affirme-avoir-le-controle-total-du-detroit-d-ormuz-de-nouvelles-frappes-israeliennes-font-au-moins-11-morts-au-liban_7844384.html)
+- **Direct – Moyen-Orient : le trafic de pétroliers traversant le détroit d'Ormuz a chuté de 90% en une semaine**: [Link](https://www.rtbf.be/article/direct-guerre-au-moyen-orient-israel-lance-une-nouvelle-vague-de-frappes-les-usa-revendiquent-pres-de-2-000-cibles-touchees-en-4-jours-11688784)
+
+
 ### apple (N/A, Tue, 3 Mar 2026 17:30:00 -0800)
 
 - **Say hello to MacBook Neo**: [Link](https://www.apple.com/newsroom/2026/03/say-hello-to-macbook-neo/)
