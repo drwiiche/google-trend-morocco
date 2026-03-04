@@ -1,3 +1,17 @@
+### الطقس (N/A, Wed, 4 Mar 2026 00:10:00 -0800)
+
+- **عودة ارتفاع درجات الحرارة اليوم.. الأرصاد تكشف حالة الطقس المتوقعة اليوم الثلاثاء**: [Link](https://www.almasryalyoum.com/news/details/4212695)
+- **شتاء قارس رغم ارتفاع درجات الحرارة، الأرصاد تحذر من موجة صقيع ليلا، أمطار ورياح تضرب هذه المناطق**: [Link](https://www.vetogate.com/5607010)
+- **طقس دافئ نهارا شديد البرودة ليلا بكفر الشيخ الأربعاء 4 مارس 2026**: [Link](https://www.youm7.com/story/2026/3/4/%D8%B7%D9%82%D8%B3-%D8%AF%D8%A7%D9%81%D8%A6-%D9%86%D9%87%D8%A7%D8%B1%D8%A7-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%84%D9%8A%D9%84%D8%A7-%D8%A8%D9%83%D9%81%D8%B1-%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-4/7327362)
+
+
+### météo (N/A, Wed, 4 Mar 2026 00:00:00 -0800)
+
+- **Alerte météo. Averses orageuses, neige et temps froid dans plusieurs régions**: [Link](https://medias24.com/2026/03/03/alerte-meteo-averses-orageuses-neige-et-temps-froid-dans-plusieurs-regions-1636683/)
+- **Météo : Les pluies et neiges relancent les réserves des barrages**: [Link](https://lematin.ma/videos/meteo-les-pluies-et-neiges-relancent-les-reserves-des-barrages/332975)
+- **Le Maroc vit un nouvel épisode de perturbations avec pluies, neige et vents soutenus**: [Link](https://fr.hespress.com/464531-le-maroc-vit-un-nouvel-episode-de-perturbations-avec-pluies-neige-et-vents-soutenus.html)
+
+
 ### weather (N/A, Tue, 3 Mar 2026 23:50:00 -0800)
 
 - **Severe storms aim for Texas over next 5 days. Here’s an update.**: [Link](https://www.expressnews.com/san-antonio-weather/article/severe-texas-hail-storms-weather-forecast-21952668.php)
