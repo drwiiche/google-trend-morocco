@@ -1,3 +1,17 @@
+### weather (N/A, Tue, 3 Mar 2026 23:50:00 -0800)
+
+- **Severe storms aim for Texas over next 5 days. Here’s an update.**: [Link](https://www.expressnews.com/san-antonio-weather/article/severe-texas-hail-storms-weather-forecast-21952668.php)
+- **Severe Weather, Including Tornado Threat, Increases In Plains From Texas To Midwest Wednesday Into The Weekend**: [Link](https://weather.com/storms/severe/news/2026-02-28-weather-week-severe-storms-texas-southern-plains-drought)
+- **Four days of severe weather targeting millions across South with thunderstorms, hail, possible tornadoes**: [Link](https://www.foxweather.com/weather-news/five-day-severe-storm-threat-across-u-s-start-march)
+
+
+### fb (N/A, Tue, 3 Mar 2026 15:00:00 -0800)
+
+- **Case Against Kashmir MP Over Social Media Posts On Khamenei Killing Protests**: [Link](https://www.ndtv.com/india-news/aga-syed-ruhullah-mehdi-khamenei-killing-kashmir-protests-case-against-kashmir-mp-over-social-media-posts-on-khamenei-killing-protests-11166522)
+- **Protests over Ayatollah Khamenei’s killing in Kashmir: Meta blocks media pages, MP Ruhullah Mehdi booked**: [Link](https://timesofindia.indiatimes.com/city/srinagar/kashmir-tense-over-ayatollah-khameneis-killing-meta-blocks-media-pages-mp-ruhullah-mehdi-booked-for-misleading-content/articleshow/129012105.cms)
+- **J&K Police Book National Conference MP and Srinagar Ex-Mayor for Posts on Iran Protests**: [Link](https://m.thewire.in/article/government/ex-srinagar-mayor-junaid-mattu-says-security-cover-withdrawn-over-criticism-of-us-israel-strike-on-iran)
+
+
 ### الأحوال الجوية: طنجة (N/A, Tue, 3 Mar 2026 19:40:00 -0800)
 
 - **توقيف إيطالي بميناء طريفة الإسباني بعد وصوله من المغرب مطلوب في قضية اختطاف ببلاده**: [Link](https://ar.telquel.ma/%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D8%B1%D8%AD%D9%84%D8%A7%D8%AA-%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B7%D8%B1%D9%8A%D9%81%D8%A9-%D9%88%D8%B7%D9%86%D8%AC%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8/)
