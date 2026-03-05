@@ -1,3 +1,24 @@
+### konami (N/A, Thu, 5 Mar 2026 09:30:00 -0800)
+
+- **Konami Stealth Drops Free PS5 Game on PS Store, Players Like It**: [Link](https://www.playstationlifestyle.net/2026/03/05/free-konami-ps5-game-ebaseball-pro-spirit-ps-store/)
+- **Konami Shadow Drops New Free-to-Play Baseball Game on PC and PS5**: [Link](https://www.sportsgamersonline.com/news/konami-shadow-drops-new-free-to-play-baseball-game-on-pc-and-ps5/)
+- **Konami announces free-to-play eBaseball: PRO SPIRIT for PS5 and PC, now available**: [Link](https://www.gematsu.com/2026/03/konami-announces-free-to-play-ebaseball-pro-spirit-for-ps5-and-pc-now-available)
+
+
+### harry maguire (N/A, Thu, 5 Mar 2026 08:00:00 -0800)
+
+- **Harry Maguire: Man Utd defender given 15-month suspended sentence over Greece incident**: [Link](https://www.bbc.com/sport/football/articles/cgl55zk5417o)
+- **Harry Maguire rejected £43K bribe after Greek arrest to make his assault case disappear**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-harry-maguire-rejected-43k-bribe-after-greek-arrest-to-make-his-assault-case-disappear-b21b5ded-b258-4979-a63d-2e2a45b5c731)
+- **Harry Maguire assault conviction UPHELD 6yrs after arrest on Greek hols**: [Link](https://www.thesun.co.uk/sport/38402367/harry-maguire-shock-arrest-mykonos-holiday/)
+
+
+### apple macbook neo (N/A, Thu, 5 Mar 2026 07:20:00 -0800)
+
+- **MacBook Neo**: [Link](https://www.apple.com/macbook-neo/)
+- **Apple Just Released a Slew of Products Under $1,000**: [Link](https://www.esquire.com/lifestyle/a70606426/apple-releases-march-2026/)
+- **A $500 MacBook Neo might've saved me from my college laptop nightmare**: [Link](https://www.zdnet.com/article/macbook-neo-saved-me-windows-pc-college-student/)
+
+
 ### ziyech (N/A, Wed, 4 Mar 2026 15:20:00 -0800)
 
 - **Wydad Fans Call for Hakim Ziyech’s Return to Morocco National Team**: [Link](https://www.moroccoworldnews.com/2026/03/281607/wydad-fans-call-for-hakim-ziyechs-return-to-morocco-national-team/)
