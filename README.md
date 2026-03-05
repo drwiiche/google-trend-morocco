@@ -1,3 +1,22 @@
+### molde – bodø/glimt (N/A, Thu, 5 Mar 2026 10:20:00 -0800)
+
+
+
+
+### donald trump espagne (N/A, Thu, 5 Mar 2026 08:30:00 -0800)
+
+- **EN DIRECT, guerre en Iran : la Maison Blanche affirme que l’Espagne a « accepté de coopérer » avec les forces armées américaines**: [Link](https://www.lemonde.fr/international/live/2026/03/04/en-direct-iran-le-secretaire-americain-a-la-defense-pete-hegsethun-affirme-qu-un-de-ses-sous-marins-a-coule-un-navire-de-guerre-iranien-au-large-du-sri-lanka_6668663_3210.html)
+- **"Non à la guerre": Pedro Sanchez tient tête à Trump et reçoit le soutien des Européens**: [Link](https://medias24.com/agence-presse/non-a-la-guerre-pedro-sanchez-tient-tete-a-trump-et-recoit-le-soutien-des-europeens/)
+- **Emmanuel Macron a exprimé "la solidarité européenne de la France" au Premier ministre espagnol face aux menaces américaines**: [Link](https://www.bfmtv.com/politique/elysee/emmanuel-macron-a-exprime-la-solidarite-europeenne-de-la-france-au-premier-ministre-espagnol-face-aux-menaces-americaines_AN-202603040515.html)
+
+
+### jürgen klopp (N/A, Thu, 5 Mar 2026 07:00:00 -0800)
+
+- **„Gespannt, welche Zündschnur als Erstes hochgeht“: Thomas Müller und Jürgen Klopp werden Co-Experten bei WM**: [Link](https://www.merkur.de/sport/fc-bayern/bei-juergen-klopp-wm-2026-thomas-mueller-erwartet-kurze-zuendschnur-94195407.html)
+- **Müller: "Diese Stabilität beim DFB-Team sehe ich nicht"**: [Link](https://www.sport1.de/tv-video/video/-oder-wir-sind-einfach-nur-der-schandfleck-der-nation-__B94F7D0C-A339-4F18-864B-C1AE597C2427)
+- **"Ich tippe auf Kloppo": Bayern-Legende Müller scherzt über TV-Kollegen**: [Link](https://www.abendzeitung-muenchen.de/sport/fcbayern/ich-tippe-auf-kloppo-bayern-legende-mueller-scherzt-ueber-tv-kollegen-art-1116224)
+
+
 ### konami (N/A, Thu, 5 Mar 2026 09:30:00 -0800)
 
 - **Konami Stealth Drops Free PS5 Game on PS Store, Players Like It**: [Link](https://www.playstationlifestyle.net/2026/03/05/free-konami-ps5-game-ebaseball-pro-spirit-ps-store/)
