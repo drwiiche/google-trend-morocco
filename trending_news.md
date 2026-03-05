@@ -1,3 +1,10 @@
+### joao sacramento (N/A, Thu, 5 Mar 2026 14:30:00 -0800)
+
+- **Waleed Regragai: O técnico do Marrocos saiu quando Mohamed Ohabi assumiu o comando.**: [Link](https://www.segundabase.com.br/noticias/waleed-regragai-o-tecnico-do-marrocos-saiu-quando-mohamed-ohabi-assumiu-o-comando/155227/)
+- **⚠️ Rival da estreia da Seleção Brasileira na Copa-2026 fica sem técnico**: [Link](https://onefootball.com/id/berita/rival-da-estreia-da-selecao-brasileira-na-copa-2026-fica-sem-tecnico-42509740)
+- **Após suposto acordo com Sampaoli, seleção marroquina escolhe técnico campeão mundial sub-20**: [Link](https://www.ogol.com.br/noticias/apos-suposto-acordo-com-sampaoli-selecao-marroquina-escolhe-tecnico-campeao-mundial-sub-20/1068876)
+
+
 ### sacramento (N/A, Thu, 5 Mar 2026 14:40:00 -0800)
 
 - **One person in custody after pursuit closed portion of U.S. 50 in Meyers | California News | 2news.com**: [Link](https://www.2news.com/news/california/one-person-in-custody-after-pursuit-closed-portion-of-u-s-50-in-meyers/article_6bdd2859-1df5-47f3-9fe1-14060f5345a8.html)
