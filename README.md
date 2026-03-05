@@ -1,3 +1,10 @@
+### claude ai (N/A, Thu, 5 Mar 2026 01:40:00 -0800)
+
+- **Anthropic’s AI tool Claude central to U.S. campaign in Iran, amid a bitter feud**: [Link](https://www.washingtonpost.com/technology/2026/03/04/anthropic-ai-iran-campaign/)
+- **A Dire Warning From the Tech World**: [Link](https://www.theatlantic.com/technology/2026/03/dean-ball-anthropic-interview/686226/)
+- **Our agreement with the Department of War**: [Link](https://openai.com/index/our-agreement-with-the-department-of-war/)
+
+
 ### weather (N/A, Thu, 5 Mar 2026 00:00:00 -0800)
 
 - **Wind Advisory issued March 5 at 12:15AM PST until March 5 at 10:00PM PST by NWS Las Vegas NV**: [Link](https://kesq.com/weather/alerts-weather/2026/03/05/wind-advisory-issued-march-5-at-1215am-pst-until-march-5-at-1000pm-pst-by-nws-las-vegas-nv-4/)
