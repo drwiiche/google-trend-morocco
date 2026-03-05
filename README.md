@@ -1,3 +1,22 @@
+### lyon – lens (N/A, Thu, 5 Mar 2026 11:30:00 -0800)
+
+
+
+
+### al mokawloon – al ahly (N/A, Thu, 5 Mar 2026 11:20:00 -0800)
+
+- **Egyptian Premier League: date, time, channels and head-to-head history for Al Ahly vs Al Mokawloon**: [Link](https://sports.yahoo.com/articles/egyptian-premier-league-date-time-101000030.html)
+- **Reason for Excluding Mohamed Hani from the Arab Contractors Match**: [Link](https://www.ysscores.com/en/news/13922455/Reason-for-Excluding-Mohamed-Hani-from-the-Arab-Contractors-Match)
+- **Egyptian league: Al Ahly missing several players against Al Mokawloon**: [Link](https://foot-africa.com/en/news/egyptian-league-al-ahly-missing-several-players-against-al-mokawloon-1111478/)
+
+
+### tottenham – crystal palace (N/A, Thu, 5 Mar 2026 11:10:00 -0800)
+
+- **Tottenham Host Crystal Palace in Premier League Relegation Battle**: [Link](https://m.elbotola.com/en/article/2026-03-04-16-45-490.html)
+- **Preview: Spurs and Palace close off the midweek round of Premier League games**: [Link](https://www.fotmob.com/id/topnews/26385-preview-spurs-palace-close-off-midweek-round-premier-league-games?utm_source=fotmob)
+- **bet365 bonus code SUN365: Get £30 bonus for Tottenham vs Crystal Palace**: [Link](https://www.thesun.co.uk/betting/38416031/bet365-bonus-code-tottenham-vs-crystal-palace-sun365/)
+
+
 ### molde – bodø/glimt (N/A, Thu, 5 Mar 2026 10:20:00 -0800)
 
 
