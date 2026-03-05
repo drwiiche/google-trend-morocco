@@ -1,3 +1,17 @@
+### sacramento (N/A, Thu, 5 Mar 2026 14:40:00 -0800)
+
+- **One person in custody after pursuit closed portion of U.S. 50 in Meyers | California News | 2news.com**: [Link](https://www.2news.com/news/california/one-person-in-custody-after-pursuit-closed-portion-of-u-s-50-in-meyers/article_6bdd2859-1df5-47f3-9fe1-14060f5345a8.html)
+- **Highway 50 chase from Sacramento ends near Lake Tahoe**: [Link](https://www.kcra.com/article/highway-50-chase-from-sacramento-ends-near-lake-tahoe/70625560)
+- **Update: Vehicle pursuit closes US-50 near Meyers, one person arrested**: [Link](https://www.tahoedailytribune.com/news/vehicle-pursuit-closes-us-50-near-meyers/)
+
+
+### lyon vs lens (N/A, Thu, 5 Mar 2026 14:00:00 -0800)
+
+- **Preview: Lyon vs Lens - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lyon/coupe-de-france/preview/lyon-vs-lens-prediction-team-news-lineups_593099.html)
+- **Endrick starts, Florian Thauvin too, line-ups for OL vs Lens Coupe de France quarter-final**: [Link](https://onefootball.com/fr/news/endrick-starts-florian-thauvin-too-line-ups-for-ol-vs-lens-coupe-de-france-quarter-final-42511243)
+- **Coupe de France: Pierre Sage Reunites with Lyon in Emotional Return**: [Link](https://www.filmogaz.com/180460)
+
+
 ### محمد وهبي (N/A, Thu, 5 Mar 2026 13:40:00 -0800)
 
 - **مدرب المنتخب وليد الركراكي يودع المغاربة باستحضار ذكريات "الأسود"**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D9%88%D8%AF%D8%B9-%D8%A7%D9%84-1711358.html)
