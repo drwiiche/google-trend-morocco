@@ -1,3 +1,10 @@
+### mohamed ouahbi (N/A, Thu, 5 Mar 2026 05:50:00 -0800)
+
+- **Walid Regragui et le Maroc c'est terminé : les coulisses d'un départ attendu**: [Link](https://www.lequipe.fr/Football/Article/Walid-regragui-et-le-maroc-c-est-termine-les-coulisses-d-un-depart-attendu/1656778)
+- **Lions de l’Atlas / Coupe du monde 2026 : Lino Bacco en débat à L’Info en Face**: [Link](https://lematin.ma/videos/lions-de-latlas-mondial-2026-lino-bacco-a-linfo-en-face/333119)
+- **Qui est Mohamed Ouahbi, le nouveau patron des Lions de l’Atlas?**: [Link](https://sport.le360.ma/football/lions-atlas/qui-est-mohamed-ouahbi-le-nouveau-patron-des-lions-de-latlas_VSRAQXJ6XFFULOZ4IJO3NHO62U/)
+
+
 ### claude ai (N/A, Thu, 5 Mar 2026 01:40:00 -0800)
 
 - **Anthropic’s AI tool Claude central to U.S. campaign in Iran, amid a bitter feud**: [Link](https://www.washingtonpost.com/technology/2026/03/04/anthropic-ai-iran-campaign/)
