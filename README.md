@@ -1,3 +1,10 @@
+### المقاولون ضد الأهلي (N/A, Thu, 5 Mar 2026 13:20:00 -0800)
+
+- **مباشر مباراة الأهلي ضد المقاولون العرب في الجولة 21 من الدوري المصري 2025/ 2026**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%84%D9%88%D9%86-%D8%A7%D9%84%D8%B9%D8%B1/)
+- **في الركبة.. التشخيص المبدئي لإصابة كريم فؤاد**: [Link](https://www.almasryalyoum.com/news/details/4214948)
+- **حدث فجرا في الأهلي.. الإطاحة بخمس لاعبين من التشكيل الأساسي وعقوبة مغلظة من كاف**: [Link](https://sport.elwatannews.com/ar/1/1/1298806)
+
+
 ### programme tv (N/A, Thu, 5 Mar 2026 12:40:00 -0800)
 
 - **La chute de Yann : la vie de Johanna vole en éclats - Un si grand soleil (spoilers) du 23 au 27 mars 2026**: [Link](https://www.nouveautes-tele.com/349899-la-chute-de-yann-la-vie-de-johanna-vole-en-eclats-un-si-grand-soleil-spoilers-du-23-au-27-mars-2026.html)
