@@ -1,3 +1,17 @@
+### weather (N/A, Thu, 5 Mar 2026 00:00:00 -0800)
+
+- **Wind Advisory issued March 5 at 12:15AM PST until March 5 at 10:00PM PST by NWS Las Vegas NV**: [Link](https://kesq.com/weather/alerts-weather/2026/03/05/wind-advisory-issued-march-5-at-1215am-pst-until-march-5-at-1000pm-pst-by-nws-las-vegas-nv-4/)
+- **Gusty winds expected across Reno and Tahoe as cold front moves through**: [Link](https://www.rgj.com/story/weather/2026/03/04/reno-tahoe-wind-forecast/88982388007/)
+- **Calm before the storm: Powerful winds coming for Las Vegas valley**: [Link](https://news3lv.com/news/local/powerful-winds-las-vegas-valley-southern-nevada-weather-wx-forecast-sunny-cloudy-storm-highs-lows-air-quality)
+
+
+### fes meteo (N/A, Wed, 4 Mar 2026 23:50:00 -0800)
+
+- **Les prévisions météo pour le jeudi 5 mars - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/03/04/les-previsions-meteo-pour-ce-jeudi-5-mars-1637619/)
+- **Averses orageuses, chutes de neige et fortes rafales de vent, mercredi et jeudi, dans plusieurs provinces**: [Link](https://mobile.telquel.ma/instant-t/2026/03/04/averses-orageuses-chutes-de-neige-et-fortes-rafales-de-vent-mercredi-et-jeudi-dans-plusieurs-provinces_1977443/)
+- **Météo : Les pluies et neiges relancent les réserves des barrages**: [Link](https://lematin.ma/videos/meteo-les-pluies-et-neiges-relancent-les-reserves-des-barrages/332975)
+
+
 ### حالة الطقس اليوم (N/A, Wed, 4 Mar 2026 23:40:00 -0800)
 
 - **ارتفاع درجة الحرارة فى هذه الأوقات.. تفاصيل حالة الطقس الساعات المقبلة**: [Link](https://www.youm7.com/story/2026/3/4/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%89-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D8%AA-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA/7327376)
