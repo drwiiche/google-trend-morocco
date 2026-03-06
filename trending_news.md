@@ -1,3 +1,31 @@
+### f1 (N/A, Thu, 5 Mar 2026 17:10:00 -0800)
+
+- **LIVE COVERAGE: First Practice in Australia**: [Link](https://www.formula1.com/en/latest/article/live-coverage-first-practice-in-australia-2026.6yY9JoKzybIoZUlNBuuh92)
+- **F1 unveil new look for 2026 season**: [Link](https://racingnews365.com/f1-unveil-new-look-for-2026-season)
+- **It’s Lights Out And Away We Go!**: [Link](https://10.com.au/formula-1/articles/its-lights-out-and-away-we-go/tpa260305ftqgw)
+
+
+### kristi noem (N/A, Thu, 5 Mar 2026 16:00:00 -0800)
+
+- **Exclusive: Trump tells Reuters he did not sign off on ad campaign featuring homeland security secretary**: [Link](https://www.reuters.com/world/us/trump-says-he-didnt-sign-off-200-million-border-security-ad-campaign-2026-03-05/)
+- **Exclusive: Trump Considering Mullin as Replacement for Noem, Privately Furious over Senate Testimony**: [Link](https://www.nationalreview.com/news/exclusive-trump-privately-furious-with-noem-over-senate-testimony-considering-mullin-as-replacement/)
+- **Trump fires Noem as frustrations build among White House officials, GOP lawmakers**: [Link](https://www.cnn.com/2026/03/05/politics/kristi-noem-trump-homeland-security-replace)
+
+
+### wahbi (N/A, Thu, 5 Mar 2026 13:50:00 -0800)
+
+- **Mohamed Wahbi Details First Steps with Moroccan National Team**: [Link](https://m.elbotola.com/en/article/2026-03-05-23-28-857.html)
+- **La FRMF nomme Mohamed Ouahbi sélectionneur de l’Équipe Nationale A et renforce son encadrement de performance dans le cadre de sa feuille de route « Maroc 2030 » – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA-22/)
+- **Walid Regragui et le Maroc c'est terminé : les coulisses d'un départ attendu**: [Link](https://www.lequipe.fr/Football/Article/Walid-regragui-et-le-maroc-c-est-termine-les-coulisses-d-un-depart-attendu/1656778)
+
+
+### polymarket (N/A, Thu, 5 Mar 2026 13:10:00 -0800)
+
+- **Bettors wagered $54 million on Khamenei’s death. Now they’re not getting paid.**: [Link](https://www.washingtonpost.com/technology/2026/03/04/kalshi-khamenei-bet-controversy/)
+- **Prediction market trader 'Magamyman' made $553,000 on death of Iran's supreme leader**: [Link](https://www.npr.org/2026/03/01/nx-s1-5731568/polymarket-trade-iran-supreme-leader-killing)
+- **How Anonymous Bettors Cashed In on the Iran Strike, Just Hours Before It Happened**: [Link](https://www.nytimes.com/2026/03/03/upshot/prediction-markets-iran-strikes.html)
+
+
 ### مجتبى خامنئي (N/A, Thu, 5 Mar 2026 15:00:00 -0800)
 
 - **ترامب يقول إن الجيش الأمريكي "يدمر إيران تدميراً كاملاً"، وإيران تطلق صواريخ باتجاه إسرائيل**: [Link](https://www.bbc.com/arabic/live/cn0eep6lk02t)
