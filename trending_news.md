@@ -1,3 +1,10 @@
+### مجتبى خامنئي (N/A, Thu, 5 Mar 2026 15:00:00 -0800)
+
+- **ترامب يقول إن الجيش الأمريكي "يدمر إيران تدميراً كاملاً"، وإيران تطلق صواريخ باتجاه إسرائيل**: [Link](https://www.bbc.com/arabic/live/cn0eep6lk02t)
+- **مجتبى خامنئي.. هل يخلف والده مرشدا لإيران؟**: [Link](https://www.aljazeera.net/news/2026/3/5/%D9%85%D8%AC%D8%AA%D8%A8%D9%89-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D9%87%D9%84-%D9%8A%D8%AE%D9%84%D9%81-%D9%88%D8%A7%D9%84%D8%AF%D9%87-%D9%85%D8%B1%D8%B4%D8%AF%D8%A7)
+- **ترامب يفتح ملف القيادة الجديدة في إيران ويستبعد نجل خامنئي**: [Link](https://www.skynewsarabia.com/world/1857058-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%81%D8%AA%D8%AD-%D9%85%D9%84%D9%81-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D9%8A%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF-%D9%86%D8%AC%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A)
+
+
 ### joao sacramento (N/A, Thu, 5 Mar 2026 14:30:00 -0800)
 
 - **Waleed Regragai: O técnico do Marrocos saiu quando Mohamed Ohabi assumiu o comando.**: [Link](https://www.segundabase.com.br/noticias/waleed-regragai-o-tecnico-do-marrocos-saiu-quando-mohamed-ohabi-assumiu-o-comando/155227/)
