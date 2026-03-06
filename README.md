@@ -1,3 +1,10 @@
+### sacramento joao (N/A, Thu, 5 Mar 2026 14:40:00 -0800)
+
+- **Joao Sacramento: The 37 year old "Brain" tasked with reforming Morocco’s strategy**: [Link](https://ca.sports.yahoo.com/news/joao-sacramento-37-old-brain-151000811.html)
+- **Former Tottenham ace behind viral Jose Mourinho head loss lands shock new job ahead of World Cup**: [Link](https://www.thesun.ie/sport/16637820/tottenham-jose-mourinho-world-cup-joao-sacramento-morocco/)
+- **Foot Mercato: FRMF in talks with João Sacramento**: [Link](https://sports.yahoo.com/articles/foot-mercato-frmf-talks-jo-110000172.html)
+
+
 ### radio mars (N/A, Fri, 6 Mar 2026 00:50:00 -0800)
 
 - **قرار حاسم من “الكاف” بشأن كأس أمم إفريقيا للسيدات**: [Link](https://www.radiomars.ma/%D9%82%D8%B1%D8%A7%D8%B1-%D8%AD%D8%A7%D8%B3%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A8%D8%B4%D8%A3%D9%86-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A/)
