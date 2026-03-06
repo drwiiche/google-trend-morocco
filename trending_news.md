@@ -1,3 +1,17 @@
+### الأهلي ضد الاتحاد (N/A, Fri, 6 Mar 2026 10:40:00 -0800)
+
+- **فضيحة ولمسة وهمية.. الاتحاد في مهمة سحب "عصا" محرز السحرية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%88%D9%84%D9%85%D8%B3%D8%A9-%D9%88%D9%87%D9%85%D9%8A%D8%A9--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D9%85%D9%87%D9%85%D8%A9-%D8%B3%D8%AD%D8%A8-%D8%B9%D8%B5%D8%A7-%D9%85%D8%AD%D8%B1%D8%B2-%D8%A7%D9%84%D8%B3%D8%AD%D8%B1%D9%8A%D8%A9/blt178ba269466a9cbe)
+- **مباشر الاتحاد ضد الأهلي في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/6/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+- **نجم واحد قد يغير كل شيء في ديربي جدة .. من هو ؟**: [Link](https://hihi2.com/2026/03/06/p3678575.html)
+
+
+### al-ahli saudi – al ittihad (N/A, Fri, 6 Mar 2026 10:20:00 -0800)
+
+- **The market value of Al-Ahli and Al-Ittihad before the anticipated Jeddah derby**: [Link](https://news50.sa/en/sports/al-ahli-vs-al-ittihad-market-value-jeddah-derby/)
+- **Conceição Excludes Al-Ittihad's Professional Player Against Al-Ahli**: [Link](https://www.ysscores.com/en/news/13922826/Concei%C3%A7%C3%A3o-Excludes-Al-Ittihad's-Professional-Player-Against-Al-Ahli)
+- **Saudi Pro League: Mahrez faces off against Aouar in Al-Ahli vs Al-Ittihad clash**: [Link](https://foot-africa.com/en/news/saudi-pro-league-mahrez-faces-off-against-aouar-in-al-ahli-vs-al-ittihad-clash-1113038/)
+
+
 ### jorge sampaoli (N/A, Fri, 6 Mar 2026 08:10:00 -0800)
 
 - **Mohamed Ouahbi opens a new chapter with the Atlas Lions**: [Link](https://www.cafonline.com/news/mohamed-ouahbi-opens-a-new-chapter-with-the-atlas-lions/)
