@@ -1,3 +1,10 @@
+### أحوال الطقس (N/A, Fri, 6 Mar 2026 01:30:00 -0800)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-63-1711371.html)
+- **مديرية الأرصاد تحذر من موجة برد بعديد مناطق الأطلسين**: [Link](https://2m.ma/ar/news/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%85%D9%88%D8%AC%D8%A9-%D8%A8%D8%B1%D8%AF-%D8%A8%D8%B9%D8%AF%D9%8A%D8%AF-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3%D9%8A%D9%86-20260305)
+- **نشرة إنذارية.. موجة برد قارس تضرب إقليمي الحوز وشيشاوة ابتداءً من الجمعة**: [Link](https://www.marrakechalaan.com/article-669142)
+
+
 ### vague de froid (N/A, Thu, 5 Mar 2026 23:00:00 -0800)
 
 - **Alerte météo. Vague de froid, fortes pluies et chutes de neige**: [Link](https://medias24.com/2026/03/05/alerte-meteo-vague-de-froid-fortes-pluies-et-chutes-de-neige-1638287/)
