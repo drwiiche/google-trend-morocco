@@ -1,3 +1,38 @@
+### napoli (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
+
+- **Serie A: in campo Napoli-Torino 1-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/03/06/serie-a-in-campo-napoli-torino-1-0-diretta-e-foto_b8620d83-3c42-4a28-a4f1-1f3f9eea4754.html)
+- **Emozioni al Maradona: dopo il giro d'onore di Sal Da Vinci il Napoli batte il Torino 2-1**: [Link](https://napoli.corriere.it/notizie/sport/26_marzo_06/emozioni-al-maradona-dopo-sal-da-vinci-il-napoli-batte-il-torino-2-1-abc32b43-7112-40a6-b67b-167b40795xlk.shtml)
+- **Napoli, Conte: "Anguissa e De Bruyne recuperati. A fine stagione..."**: [Link](https://www.fantacalcio.it/news/calcio-italia/06_03_2026/napoli-conte-anguissa-e-de-bruyne-recuperati-a-fine-stagione-490001)
+
+
+### rma vs (N/A, Fri, 6 Mar 2026 13:50:00 -0800)
+
+- **Sounds like the Rangers did make one additional move: Brennan Othmann to Calgary. In the queue.**: [Link](https://www.espn.com/contributor/emily-kaplan/4639147af4513)
+- **Duke 60-46 Clemson (Mar 6, 2026) Game Recap**: [Link](https://www.espn.com/womens-college-basketball/recap/_/gameId/401851191)
+- **Angels vs. Guardians (Mar 6, 2026) Game Stats**: [Link](https://www.espn.com/mlb/matchup?gameId=401833073)
+
+
+### لا ليغا (N/A, Fri, 6 Mar 2026 13:50:00 -0800)
+
+- **فالفيردي: الجميع متحمس للثأر من برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D8%AF%D9%8A-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D9%85%D8%AA%D8%AD%D9%85%D8%B3-%D9%84%D9%84%D8%AB%D8%A7%D9%94%D8%B1-%D9%85%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltaf6c4ec159bb1a44)
+- **هانسي فليك يتحمل مسؤولية الإصابات ويعلن تدوير التشكيلة أمام أتلتيك بيلباو**: [Link](https://m.elbotola.com/article/2026-03-06-12-45-509.html)
+- **صدمة في "سان ماميس".. نيكو ويليامز خارج حسابات القمة المرتقبة ضد برشلونة بداعي الإصابة**: [Link](https://tribuna.com/ar/news/2026-03-06-sdm-fy-sn-mmys-nykw-wylymz-khrj-hsbt-lqm-lmrtqb-dd-brshlwn-bdy-lsb/)
+
+
+### brahim díaz (N/A, Fri, 6 Mar 2026 13:50:00 -0800)
+
+- **Romain Saiss reflects on Diaz’s panenka penalty in AFCON final**: [Link](https://en.hespress.com/133236-romain-saiss-reflects-on-diazs-panenka-penalty-in-afcon-final.html)
+- **Saïss rebukes Brahim Díaz after the final: "He wanted to be the superhero"**: [Link](https://mountakhab.net/en/saiss-rebukes-brahim-diaz-after-the-final-he-wanted-to-be-the-superhero/)
+- **Saiss recalls 'Panenka' heartbreak: 'Brahim could have been the hero, but he wanted to be the superhero'**: [Link](https://www.besoccer.com/new/saiss-recalls-panenka-heartbreak-brahim-1397901)
+
+
+### bet 365 (N/A, Fri, 6 Mar 2026 13:50:00 -0800)
+
+- **Bet365 Bonus Code AMNY365: Claim $150 Bonus for Nuggets-Knicks, UNC-Duke, Any Game**: [Link](https://www.amny.com/sports/bet365-bonus-code-amny365-claim-150-bonus-for-nuggets-knicks-unc-duke-any-game/)
+- **bet365 Bonus Code: Bet $5, Get $150 for UFC 326 Odds, Huge NCAAB Showdowns & March Madness**: [Link](https://ftw.usatoday.com/story/sports/2026/03/06/bet365-bonus-code-bet-5-get-150-ufc-326-odds-ncaab-showdowns-march-madness/88950400007/)
+- **Bet365 Bonus Code MASSLIVE extends $150 “Bet and Get” for NBA and golf**: [Link](https://www.syracuse.com/betting/2026/03/extended-bet365-bonus-code-unlocks-115k-bonus-for-sports-betting-odds-this-friday.html)
+
+
 ### zamalek – al ittihad (N/A, Fri, 6 Mar 2026 13:20:00 -0800)
 
 - **History of Encounters Between Zamalek and Al Ittihad Alexandria Before Tonight's Match**: [Link](https://www.ysscores.com/en/news/13922810/History-of-Encounters-Between-Zamalek-and-Al-Ittihad-Alexandria-Before-Tonight's-Match)
