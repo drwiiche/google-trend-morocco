@@ -1,3 +1,30 @@
+### zamalek – al ittihad (N/A, Fri, 6 Mar 2026 13:20:00 -0800)
+
+- **History of Encounters Between Zamalek and Al Ittihad Alexandria Before Tonight's Match**: [Link](https://www.ysscores.com/en/news/13922810/History-of-Encounters-Between-Zamalek-and-Al-Ittihad-Alexandria-Before-Tonight's-Match)
+- **Amr Nasser returns to Zamalek ahead of Al-Ittihad Alexandria clash -**: [Link](https://africasoccer.com/amr-nasser-returns-to-zamalek-ahead-of-al-ittihad-alexandria-clash/)
+- **Al Ittihad Alexandria Squad for the Match Against Zamalek in the Premier League**: [Link](https://www.ysscores.com/en/news/13922801/Al-Ittihad-Alexandria-Squad-for-the-Match-Against-Zamalek-in-the-Premier-League)
+
+
+### livescore (N/A, Fri, 6 Mar 2026 13:10:00 -0800)
+
+- **Novibet Cheltenham Festival Free Bets March 2026: Get €70 No Deposit Free Bets**: [Link](https://bookies.com/ie/news/novibet-cheltenham-festival-free-bets-betting-offers-6-march-2026)
+- **LiveScore Bet Cheltenham Festival Free Bets March 2026: Get €50 in Free Bets**: [Link](https://bookies.com/ie/news/livescore-bet-cheltenham-festival-free-bets-betting-offers-06-03-2026)
+
+
+### match real (N/A, Fri, 6 Mar 2026 13:00:00 -0800)
+
+- **DIRECT. Celta Vigo-Real Madrid (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/celta-vigo-real-madrid-live/676974)
+- **Le Real Madrid face à une grave crise de blessures avant le Celta Vigo en Liga**: [Link](https://m.elbotola.com/fr/article/2026-03-06-10-15-927.html)
+- **Celta Vigo - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a8099056391169281054-celta-vigo-real-madrid-les-compositions-officielles)
+
+
+### bayern munich (N/A, Fri, 6 Mar 2026 12:50:00 -0800)
+
+- **Bundesliga - Bayern Munich v Borussia Moenchengladbach**: [Link](https://www.reutersconnect.com/item/bundesliga-bayern-munich-v-borussia-moenchengladbach/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNMzYxTVlIRDQ)
+- **North Carolina Primary Election 2026: Live Results**: [Link](https://www.nytimes.com/interactive/2026/us/elections/results-north-carolina-primary.html)
+- **North Carolina Primary Map: Live Election Results**: [Link](https://www.newyorker.com/news/election-2026/north-carolina-primary-map-live-election-results)
+
+
 ### real madrid (N/A, Fri, 6 Mar 2026 12:40:00 -0800)
 
 - **Celta - Real Madrid, en directo: última hora de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/celta-real-madrid-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202603-d/)
