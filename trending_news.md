@@ -1,3 +1,17 @@
+### jorge sampaoli (N/A, Fri, 6 Mar 2026 08:10:00 -0800)
+
+- **Mohamed Ouahbi opens a new chapter with the Atlas Lions**: [Link](https://www.cafonline.com/news/mohamed-ouahbi-opens-a-new-chapter-with-the-atlas-lions/)
+- **Morocco coach Regragui posts farewell video ahead of expected exit**: [Link](https://en.hespress.com/133201-morocco-coach-regragui-posts-farewell-video-ahead-of-expected-exit.html)
+- **Wahbi: Consistent Domestic League Performance Crucial for National Team Inclusion**: [Link](https://m.elbotola.com/en/article/2026-03-06-00-36-582.html)
+
+
+### andrés iniesta (N/A, Fri, 6 Mar 2026 07:50:00 -0800)
+
+- **Lío en Marruecos: Regragui deja la selección**: [Link](https://as.com/futbol/internacional/lio-en-marruecos-regragui-deja-la-seleccion-f202603-n/)
+- **La verdad sobre la ruptura de Iniesta con Marruecos y el comunicado filtrado**: [Link](https://www.marca.com/futbol/2026/03/06/iniesta-negocio-director-futbol-marruecos-comunicado-filtro-acuerdo-roto-dias.html)
+- **Ouahbi, artífice del título mundial Sub-20, promete seguir haciendo historia con Marruecos**: [Link](https://es.rue20.com/2026/03/05/ouahbi-artifice-del-titulo-mundial-sub-20-promete-seguir-haciendo-historia-con-marruecos/)
+
+
 ### sacramento joao (N/A, Thu, 5 Mar 2026 14:40:00 -0800)
 
 - **Joao Sacramento: The 37 year old "Brain" tasked with reforming Morocco’s strategy**: [Link](https://ca.sports.yahoo.com/news/joao-sacramento-37-old-brain-151000811.html)
