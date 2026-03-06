@@ -1,3 +1,73 @@
+### celta de vigo - real madrid (N/A, Fri, 6 Mar 2026 11:30:00 -0800)
+
+- **Alineación probable del Real Madrid contra el Celta en LaLiga**: [Link](https://as.com/futbol/primera/alineacion-probable-del-real-madrid-contra-el-celta-en-laliga-f202603-n/)
+- **Asencio se suma a una lista con diez bajas y siete canteranos**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/06/asencio-suman-lista-diez-bajas-siete-canteranos.html)
+- **Arbeloa: "Afrontamos otra salida muy complicada y exigente"**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/ruedas-de-prensa/arbeloa-05-03-2026)
+
+
+### wolves – liverpool (N/A, Fri, 6 Mar 2026 11:20:00 -0800)
+
+- **Wolves Team News and Predicted Lineup vs Liverpool for March 6**: [Link](https://lastwordonsports.com/football/2026/03/06/wolves-predicted-lineup-liverpool-2/)
+- **Slot Talk: “A Few” Options to Rotate the Team in Quick Turnaround**: [Link](https://liverpooloffside.sbnation.com/liverpool-fa-cup-coverage/79017/slot-talk-a-few-options-to-rotate-the-team-in-quick-turnaround)
+- **BOYLE Sports offer - Bet £10 Get £40 + 50% BET BUILDER BOOST on Newcastle vs Man City**: [Link](https://www.squawka.com/en/betting-offers/boyle-sports-newcastle-man-city-07-03-2026/)
+
+
+### الهلال ضد النجمة (N/A, Fri, 6 Mar 2026 11:20:00 -0800)
+
+- **بقيادة بنزيما.. إنزاجي يغيِّر وجه الهلال في موقعة النجمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7--%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D8%BA%D9%8A%D9%90%D9%91%D8%B1-%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9/blt20f4942015f941a1)
+- **الهلال ضد النجمة والاتحاد ضد الأهلي في الدوري السعودي.. الموعد والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/3/5/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B1%D9%88%D8%B4%D9%86)
+- **الحلم سبورت : أجانب الهلال في مواجهة النجمة**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A3%D8%AC%D8%A7%D9%86%D8%A8-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%86/)
+
+
+### celta vigo – real madrid (N/A, Fri, 6 Mar 2026 11:10:00 -0800)
+
+- **Celta Vigo vs Real Madrid predictions: Los Blancos to struggle again**: [Link](https://www.goal.com/en-ca/betting/tips/celta-vigo-vs-real-madrid-predictions-03-06-26/A%3Abltc32883dda362bc49)
+- **Debuts, tension and a cup final dry run in La Liga's matchday 27**: [Link](http://www.china.org.cn/2026-03/06/content_118365005.shtml)
+- **Arbeloa backs injury-hit Real Madrid**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/arbeloa-backs-injury-hit-real-madrid-2026-03-05)
+
+
+### سلتا فيغو ضد الريال (N/A, Fri, 6 Mar 2026 11:10:00 -0800)
+
+- **أسلوب سيلتا فيجو يدفع أربيلوا نحو إبراهيم دياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D9%84%D9%88%D8%A8-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%AC%D9%88-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%86%D8%AD%D9%88-%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2/bltf4a98c8f0bd3bb18)
+- **مباشر ريال مدريد ضد سيلتا فيغو في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/6/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-2)
+- **بطولة إسبانيا: أربيلوا يتعهد أن ريال سيواصل القتال في سباق اللقب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260305-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%AA%D8%B9%D9%87%D8%AF-%D8%A3%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D9%82%D8%AA%D8%A7%D9%84-%D9%81%D9%8A-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%84%D9%82%D8%A8)
+
+
+### paris-sg – monaco (N/A, Fri, 6 Mar 2026 11:10:00 -0800)
+
+- **Le Paris Saint-Germain vise à consolider sa première place en Ligue 1 face à Monaco**: [Link](https://m.elbotola.com/fr/article/2026-03-05-17-45-263.html)
+- **Au top, pression intense, 100e… Les stats avant le PSG by VBET**: [Link](https://onefootball.com/en/news/au-top-pression-intense-100e-les-stats-avant-le-psg-by-vbet-42514171)
+- **Les compositions de PSG-Monaco : Marquinhos sur le banc, Illia Zabarnyi et Dro Fernandez d'entrée côté parisien**: [Link](https://www.lequipe.fr/Football/Actualites/Les-compositions-de-psg-monaco-marquinhos-sur-le-banc-illia-zabarnyi-et-dro-fernandez-d-entree-cote-parisien/1657355)
+
+
+### bayern – mönchengladbach (N/A, Fri, 6 Mar 2026 11:10:00 -0800)
+
+- **Ein Fußball-Freitag, wie es ihn nur selten gibt**: [Link](https://www.kicker.de/ein-fussball-freitag-wie-es-ihn-nur-selten-gibt-1198918/artikel)
+- **Bundesliga - FC Bayern München gegen Borussia Mönchengladbach heute live im Ticker: FCB ohne Kane - Liveticker**: [Link](https://www.eurosport.de/fussball/bundesliga/2025-2026/live-fc-bayern-muenchen-borussia-mgladbach_mtc1609197/live-commentary.shtml)
+- **Gladbachs irrer Bayern-Plan: Top-Knipser Haris Tabakovic wohl nur Joker – Überraschung für die Abwehr?**: [Link](https://www.gladbachlive.de/news/gladbachs-irrer-bayern-plan-top-knipser-haris-tabakovic-wohl-nur-joker-ueberraschung-fuer-die-abwehr-1237205)
+
+
+### بي اس جي ضد موناكو (N/A, Fri, 6 Mar 2026 11:10:00 -0800)
+
+- **عودة عثمان ديمبيلي إلى قائمة باريس سان جيرمان لمواجهة موناكو في الدوري الفرنسي**: [Link](https://m.elbotola.com/article/2026-03-06-15-30-266.html)
+- **صدام جديد بين باريس سان جيرمان وموناكو في الدوري الفرنسي**: [Link](https://www.raya.com/2026/03/05/%D8%B5%D8%AF%D8%A7%D9%85-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A)
+- **قنوات الكأس الرياضية - الأخبار - لويس انريكي مدرب باريس سان جيرمان: مواجهة موناكو ستكون في مستوى دوري الأبطال**: [Link](https://www.alkass.net/news_details?news_id=178911)
+
+
+### psg vs monaco (N/A, Fri, 6 Mar 2026 11:10:00 -0800)
+
+- **Monaco go to PSG in search of "revenge"**: [Link](https://ligue1.com/en/articles/l1_article_4503-monaco-go-to-psg-in-search-of-revenge)
+- **Luis Enrique: The best part of the season is about to begin**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/luis-enrique-the-best-part-of-the-season-is-about-to-begin-2026-03-05)
+- **PSG predicted XI v Monaco: Bradley Barcola to start as No.9?**: [Link](https://sports.yahoo.com/articles/psg-predicted-xi-v-monaco-090000219.html)
+
+
+### جدول مباريات اليوم (N/A, Fri, 6 Mar 2026 11:10:00 -0800)
+
+- **جدول مباريات اليوم الجمعة 6 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-6-%D9%85%D8%A7%D8%B1%D8%B3-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blte410d3855653b330)
+- **أبرز المباريات العربية والعالمية اليوم الجمعة**: [Link](https://24.ae/article/949673/)
+- **مباريات اليوم الخميس 5 مارس 2026.. مواجهات قوية في دوري روشن**: [Link](https://www.arrajol.com/content/399232/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-5-%D9%85%D8%A7%D8%B1%D8%B3-2026-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86)
+
+
 ### الأهلي ضد الاتحاد (N/A, Fri, 6 Mar 2026 10:40:00 -0800)
 
 - **فضيحة ولمسة وهمية.. الاتحاد في مهمة سحب "عصا" محرز السحرية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%88%D9%84%D9%85%D8%B3%D8%A9-%D9%88%D9%87%D9%85%D9%8A%D8%A9--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D9%85%D9%87%D9%85%D8%A9-%D8%B3%D8%AD%D8%A8-%D8%B9%D8%B5%D8%A7-%D9%85%D8%AD%D8%B1%D8%B2-%D8%A7%D9%84%D8%B3%D8%AD%D8%B1%D9%8A%D8%A9/blt178ba269466a9cbe)
