@@ -1,3 +1,10 @@
+### 8 mars (N/A, Fri, 6 Mar 2026 01:50:00 -0800)
+
+- **La mémoire de l’internationale féministe**: [Link](https://pivot.quebec/2026/03/06/la-memoire-de-linternationale-feministe/)
+- **Les expositions incontournables à voir pour le Mois international des droits des femmes**: [Link](https://hypebae.com/fr/2026/3/art-exhibitions-international-womens-month-london-new-york-paris)
+- **Une histoire du 8 mars**: [Link](https://www.europe1.fr/emissions/au-coeur-de-lhistoire/une-histoire-du-8-mars-909580)
+
+
 ### جواو ساكرامنتو (N/A, Thu, 5 Mar 2026 14:50:00 -0800)
 
 - **الاتحاد المغربي يشكر الركراكي ويعين وهبي مدربا لـ"أسود الأطلس"**: [Link](https://www.aljazeera.net/sport/2026/3/6/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%88%D9%87%D8%A8%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
