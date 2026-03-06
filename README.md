@@ -1,3 +1,10 @@
+### real madrid (N/A, Fri, 6 Mar 2026 12:40:00 -0800)
+
+- **Celta - Real Madrid, en directo: última hora de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/celta-real-madrid-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202603-d/)
+- **Asencio se suma a una lista con diez bajas y siete canteranos**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/06/asencio-suman-lista-diez-bajas-siete-canteranos.html)
+- **Arbeloa: "Afrontamos otra salida muy complicada y exigente"**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/ruedas-de-prensa/arbeloa-05-03-2026)
+
+
 ### البايرن ضد بوروسيا مونشنغلادباخ (N/A, Fri, 6 Mar 2026 12:30:00 -0800)
 
 - **في صالح ليفاندوفسكي.. كومباني يعلن إصابة هاري كين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%B5%D8%A7%D9%84%D8%AD-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A--%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86/blteb100a25858011d8)
