@@ -1,3 +1,10 @@
+### موجة برد (N/A, Thu, 5 Mar 2026 22:00:00 -0800)
+
+- **طقس متقلب وأمطار رعدية بعدة جهات**: [Link](https://www.hespress.com/%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%A9-%D8%AC%D9%87%D8%A7%D8%AA-1711050.html)
+- **مديرية الأرصاد تحذر من موجة برد بعديد مناطق الأطلسين**: [Link](https://2m.ma/ar/news/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%85%D9%88%D8%AC%D8%A9-%D8%A8%D8%B1%D8%AF-%D8%A8%D8%B9%D8%AF%D9%8A%D8%AF-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3%D9%8A%D9%86-20260305)
+- **توقعات أحوال الطقس ليوم غد الجمعة**: [Link](https://febrayer.com/1137475.html)
+
+
 ### f1 (N/A, Thu, 5 Mar 2026 17:10:00 -0800)
 
 - **LIVE COVERAGE: First Practice in Australia**: [Link](https://www.formula1.com/en/latest/article/live-coverage-first-practice-in-australia-2026.6yY9JoKzybIoZUlNBuuh92)
