@@ -1,3 +1,17 @@
+### trump kristi noem (N/A, Fri, 6 Mar 2026 14:40:00 -0800)
+
+- **Exclusive: Trump tells Reuters he did not sign off on ad campaign featuring homeland security secretary**: [Link](https://www.reuters.com/world/us/trump-says-he-didnt-sign-off-200-million-border-security-ad-campaign-2026-03-05/)
+- **What led Trump to replace Kristi Noem**: [Link](https://www.nbcnews.com/politics/white-house/rump-kristi-noem-replacements-dhs-secretary-congress-hearings-rcna261915)
+- **From killing her dog to luxury jets: Six times Kristi Noem made headlines**: [Link](https://www.bbc.com/news/articles/ce94mggvp9do)
+
+
+### liga (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
+
+- **Flick talks Lewandowski, Gavi, Pedri, Casado, Cancelo, Espart, Cortes ahead of Athletic Club vs Barcelona**: [Link](https://barcauniversal.com/flick-talks-lewandowski-gavi-pedri-casado-cancelo-espart-cortes-ahead-of-athletic-club-vs-barcelona/)
+- **Garcia To Start, Araujo On The Bench | 4-2-3-1 Barcelona Predicted Lineup Vs Athletic Bilbao**: [Link](https://onefootball.com/fr/news/garcia-to-start-araujo-on-the-bench-4-2-3-1-barcelona-predicted-lineup-vs-athletic-bilbao-42515540)
+- **Champions League ambitions encourage Barca gamble in Bilbao**: [Link](https://sports.yahoo.com/articles/champions-league-ambitions-encourage-barca-164807610.html)
+
+
 ### napoli (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
 
 - **Serie A: in campo Napoli-Torino 1-0 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/03/06/serie-a-in-campo-napoli-torino-1-0-diretta-e-foto_b8620d83-3c42-4a28-a4f1-1f3f9eea4754.html)
