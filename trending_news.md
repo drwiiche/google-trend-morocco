@@ -1,3 +1,24 @@
+### البايرن ضد بوروسيا مونشنغلادباخ (N/A, Fri, 6 Mar 2026 12:30:00 -0800)
+
+- **في صالح ليفاندوفسكي.. كومباني يعلن إصابة هاري كين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%B5%D8%A7%D9%84%D8%AD-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A--%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86/blteb100a25858011d8)
+- **بطولة ألمانيا: الصدارة تمنح بايرن حرية هجومية في مواجهة مونشنغلادباخ**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260305-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%AA%D9%85%D9%86%D8%AD-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D9%83%D8%A7%D9%8A%D9%86-%D8%AD%D8%B1%D9%8A%D8%A9-%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%88%D9%86%D8%B4%D9%86%D8%BA%D9%84%D8%A7%D8%AF%D8%A8%D8%A7%D8%AE)
+- **بايرن ميونخ يواجه مونشنغلادباخ في أليانز أرينا لتعزيز صدارة الدوري الألماني بفارق 11 نقطة**: [Link](https://m.elbotola.com/article/2026-03-05-09-45-327.html)
+
+
+### bayern vs mönchengladbach (N/A, Fri, 6 Mar 2026 12:20:00 -0800)
+
+- **Bayern Munich to Face Mönchengladbach at Allianz Arena, Aiming to Extend Bundesliga Lead to 11 Points**: [Link](https://m.elbotola.com/en/article/2026-03-05-09-45-651.html)
+- **Harry Kane is out: Who will replace the top scorer against Gladbach?**: [Link](https://fcbinside.com/2026/03/06/harry-kane-is-out-who-will-replace-the-top-scorer-against-gladbach/)
+- **Bayern Munich vs. Borussia Mönchengladbach: Gamethread and Live Blog — Lineups are out! Mega rotation in the starting XI**: [Link](https://sports.yahoo.com/articles/bayern-munich-vs-borussia-m-163000111.html)
+
+
+### وولفرهامبتون ضد ليفربول (N/A, Fri, 6 Mar 2026 12:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة وولفرهامبتون وليفربول في كأس الاتحاد الإنجليزي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D9%88%D9%84%D9%81%D8%B1%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt55491c2acd30a693)
+- **ليفربول يدخل تاريخ البريميرليغ برقم سلبي غير مسبوق**: [Link](https://www.aljazeera.net/sport/2026/3/5/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D8%B9%D9%86%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+- **هدف محمد صلاح الرائع في مرمي ولفرهامبتون بالدوري الانجليزي**: [Link](https://www.btolat.com/video/91605)
+
+
 ### celta de vigo - real madrid (N/A, Fri, 6 Mar 2026 11:30:00 -0800)
 
 - **Alineación probable del Real Madrid contra el Celta en LaLiga**: [Link](https://as.com/futbol/primera/alineacion-probable-del-real-madrid-contra-el-celta-en-laliga-f202603-n/)
