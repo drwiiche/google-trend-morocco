@@ -1,3 +1,10 @@
+### vol air france dubai demi tour (N/A, Fri, 6 Mar 2026 21:20:00 -0800)
+
+- **Un avion d’Air France qui se rendait aux Emirats arabes unis pour rapatrier des Français fait demi-tour à cause de tirs de missiles «dans la zone**: [Link](https://www.liberation.fr/international/moyen-orient/un-avion-dair-france-qui-se-rendait-aux-emirats-arabes-pour-rapatrier-des-francais-fait-demi-tour-a-cause-de-tirs-de-missiles-dans-la-zone-20260305_ASW2TYSFSBF3PN363TX2SRPLHY/)
+- **EN DIRECT, guerre en Iran : l’armée israélienne a reçu l’ordre d’avancer plus en profondeur au Liban ; un avion de rapatriement d’Air France contraint de faire demi-tour en raison de tirs de missiles**: [Link](https://www.lemonde.fr/international/live/2026/03/05/en-direct-guerre-en-iran-emmanuel-macron-veut-etablir-un-plan-pour-mettre-un-terme-aux-operations-militaires-du-hezbollah-et-d-israel_6668663_3210.html)
+- **Royal Air Maroc annule ses vols vers Doha jusqu’au 15 mars et suspend une liaison vers Dubaï**: [Link](https://ledesk.ma/encontinu/royal-air-maroc-annule-ses-vols-vers-doha-jusquau-15-mars-et-suspend-une-liaison-vers-dubai/)
+
+
 ### la liga (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
 
 - **Barcelona interim president confident of a comeback vs Atletico Madrid – ‘I believe’**: [Link](https://barcauniversal.com/barcelona-interim-president-confident-of-a-comeback-vs-atletico-madrid-i-believe/)
