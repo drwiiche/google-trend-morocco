@@ -1,3 +1,17 @@
+### wrexham – chelsea (N/A, Sat, 7 Mar 2026 09:10:00 -0800)
+
+- **FA Cup fifth round LIVE: Watch live, plus score and live text updates as Chelsea visit Wrexham**: [Link](https://www.bbc.com/sport/football/live/cx2rexpvweqt)
+- **Chelsea 16-year-old Reggie Watson makes ‘scary’ impression in first-team training**: [Link](https://www.thechelseachronicle.com/news/chelsea-16-year-old-reggie-watson-makes-scary-impression-in-first-team-training/)
+- **Liam Rosenior on Wrexham's rise and chasing FA Cup glory | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/liam-rosenior-on-wrexhams-rise-and-chasing-fa-cup-glory)
+
+
+### besiktas – galatasaray (N/A, Sat, 7 Mar 2026 09:10:00 -0800)
+
+- **Montella Galatasaray-Beşiktaş derbisi için Tüpraş Stadyumu'na geldi**: [Link](https://www.yenicaggazetesi.com/montella-galatasaray-besiktas-derbisi-icin-tupras-stadyumuna-geldi-1006952h.htm)
+- **Beşiktaş Kulübü Başkanı Serdal Adalı'dan derbi öncesi hakem uyarısı**: [Link](https://www.aa.com.tr/tr/spor/besiktas-kulubu-baskani-serdal-adalidan-derbi-oncesi-hakem-uyarisi/3852912)
+- **Ömer Faruk Turtay kimdir? Beşiktaş - Galatasaray derbisinin VAR hakemi Ömer Faruk Turtay oldu!**: [Link](https://www.hurriyet.com.tr/sporarena/omer-faruk-turtay-kimdir-besiktas-galatasaray-derbisinin-var-hakemi-omer-faruk-turtay-oldu-43123630)
+
+
 ### أتلتيكو مدريد ضد ريال سوسيداد (N/A, Sat, 7 Mar 2026 08:50:00 -0800)
 
 - **أعلن أتلتيكو مدريد قائمة تضم 24 لاعباً لمواجهة ريال سوسيداد مع استمرار غياب باريوس**: [Link](https://m.elbotola.com/article/2026-03-06-20-15-832.html)
