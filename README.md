@@ -1,3 +1,31 @@
+### الدشيرة ضد المغرب الفاسي (N/A, Sat, 7 Mar 2026 14:50:00 -0800)
+
+- **تغيير آخر لحظة بمباراة الدشيرة و”الماص”**: [Link](https://assabah.ma/906604.html)
+- **القنوات الناقلة لمباراة المغرب الفاسي ضد أولمبيك الدشيرة اليوم في الدوري المغربي مع الموعد والتوقيت والبث المباشر**: [Link](https://www.alphaspot59.com/2026/03/chaine-match-mas-olympic-dchira.html)
+- **ضغط المؤجلات يدفع العصبة لتقديم موعد مباراة مهمة**: [Link](https://infosports.ma/213023/)
+
+
+### jorge sampaoli maroc (N/A, Sat, 7 Mar 2026 14:50:00 -0800)
+
+- **La FRMF nomme Mohamed Ouahbi sélectionneur de l’Équipe Nationale A et renforce son encadrement de performance dans le cadre de sa feuille de route « Maroc 2030 » – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA-22/)
+- **Mohamed Ouahbi, le pédagogue devenu sélectionneur du Maroc**: [Link](https://mobile.telquel.ma/2026/03/06/mohamed-ouahbi-le-pedagogue-devenu-selectionneur-du-maroc_1977865)
+- **Entre exploit et usure : que retenir de l’ère Walid Regragui ?**: [Link](https://fr.hespress.com/463778-entre-exploit-et-usure-que-retenir-de-lere-walid-regragui.html)
+
+
+### الدوري المغربي (N/A, Sat, 7 Mar 2026 14:40:00 -0800)
+
+- **في مقدمتهم زياش وأمرابط.. الوداد يحل ضيفًا على اتحاد تواركة محروما من خدمات عدد من لاعبيه**: [Link](https://m.elbotola.com/article/2026-03-07-16-45-58.html)
+- **صدارة الوداد تمر عبر بوابة فرق العاصمة**: [Link](https://www.almountakhab.com/node/16223320)
+- **مطالب ودادية للتعاقد مع أحد أبرز المدربين المغاربة مقابل الاستغناء عن بنهاشم**: [Link](https://sport.lesiteinfo.com/elbotola/489655.html)
+
+
+### brussels airport (N/A, Sat, 7 Mar 2026 13:40:00 -0800)
+
+- **Zero Departures: Brussels Airport Braces For 24-Hour Shutdown Amid Security Strike**: [Link](https://simpleflying.com/zero-departures-brussels-airport-24-hour-shutdown-security-strike/)
+- **Strikes looming in Belgium and Italy**: [Link](https://www.voyages-d-affaires.com/en/strikes-in-belgium-and-italy)
+- **UK travellers issued 'severe disruption' warning for destination in Europe**: [Link](https://www.chroniclelive.co.uk/news/world-news/uk-travellers-issued-severe-disruption-33541906)
+
+
 ### novak djokovic (N/A, Sat, 7 Mar 2026 14:20:00 -0800)
 
 - **Novak Djokovic 'a different player' after Carlos Alcaraz heartache as Serb sends message**: [Link](https://www.express.co.uk/sport/tennis/2179103/Novak-Djokovic-Carlos-Alcaraz-Indian-Wells-Australian-Open)
