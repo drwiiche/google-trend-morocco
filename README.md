@@ -1,3 +1,24 @@
+### مانسفيلد ضد آرسنال (N/A, Sat, 7 Mar 2026 04:20:00 -0800)
+
+- **أرتيتا: الملاعب السيئة تضع سمعة آرسنال على المحك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D9%8A%D9%94%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%B3%D9%85%D8%B9%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AD%D9%83/blt58bffe2295dd5995)
+- **خصم أرسنال في كأس الاتحاد «مشجع بالوراثة» لفريق المدفعجية**: [Link](https://www.alkhaleej.ae/2026-03-07/%D8%AE%D8%B5%D9%85-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%85%D8%B4%D8%AC%D8%B9-%D8%A8%D8%A7%D9%84%D9%88%D8%B1%D8%A7%D8%AB%D8%A9-%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%AF%D9%81%D8%B9%D8%AC%D9%8A%D8%A9-6347066/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+- **القنوات الناقلة لمباراة آرسنال ومانسفيلد تاون بث مباشر اليوم في كأس الاتحاد الإنجليزي 2025 2026 والتشكيل**: [Link](https://www.cairo24.com/2383979)
+
+
+### mansfield – arsenal (N/A, Sat, 7 Mar 2026 03:50:00 -0800)
+
+- **Arteta on Mansfield test, rotation, Dowman’s return and Saliba’s ankle**: [Link](https://arseblog.news/2026/03/arteta-on-mansfield-test-rotation-dowmans-return-and-salibas-ankle/)
+- **Declan Rice and Gabriel among eight Arsenal players missing in training ahead of Mansfield**: [Link](https://www.football.london/arsenal-fc/news/declan-rice-gabriel-among-eight-33545031)
+- **DOWMAN WITH THE EARLY CHANCE!**: [Link](https://www.besoccer.com/new/live-mansfield-v-arsenal-1398054)
+
+
+### هذا البحر سوف يفيض (N/A, Fri, 6 Mar 2026 17:30:00 -0800)
+
+- **"إيليني" تواجه الموت في مسلسل "هذا البحر سوف يفيض" الحلقة 20**: [Link](https://www.foochia.com/celebrities/iug50z1)
+- **هذا ما ينتظركم في "البحر سوف يفيض"**: [Link](https://elfann.com/international-celebrities/1413163/%D9%87%D8%B0%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1%D9%83%D9%85-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%B3%D9%88%D9%81-%D9%8A%D9%81%D9%8A%D8%B6)
+- **موعد عرض مسلسل "هذا البحر سوف يفيض" الحلقة 20 بعد تأجيلها**: [Link](https://www.foochia.com/celebrities/vrdpllr)
+
+
 ### cod meknès – ittihad tanger (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
 
 - **Al-Ahli FC 3-1 Al-Ittihad, Championnat d'Arabie Saoudite : résumé du match (06/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-arabie-saoudite/2025-2026/al-ahli-fc-al-ittihad-live/685271)
