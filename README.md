@@ -1,3 +1,10 @@
+### atalanta – udinese (N/A, Sat, 7 Mar 2026 10:00:00 -0800)
+
+- **LA DEA si sdoppia**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport-mil/20260307/282535844866652)
+- **Serie A, oggi Atalanta - Udinese - La partita in diretta**: [Link](https://www.virgilio.it/italia/biella/notizielocali/serie_a_oggi_atalanta_udinese_la_partita_in_diretta-76547037.html)
+- **Le formazioni di Atalanta-Udinese | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-atalanta-udinese-serie-a-enilive-2025-26)
+
+
 ### auxerre – strasbourg (N/A, Sat, 7 Mar 2026 09:40:00 -0800)
 
 - **Les infos pratiques pour AJA-Strasbourg**: [Link](https://www.aja.fr/les-infos-pratiques-pour-aja-strasbourg/)
