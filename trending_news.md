@@ -1,3 +1,24 @@
+### novak djokovic (N/A, Sat, 7 Mar 2026 14:20:00 -0800)
+
+- **Novak Djokovic 'a different player' after Carlos Alcaraz heartache as Serb sends message**: [Link](https://www.express.co.uk/sport/tennis/2179103/Novak-Djokovic-Carlos-Alcaraz-Indian-Wells-Australian-Open)
+- **Novak Djokovic’s L.A. sports tour and 2026 start in his own words**: [Link](https://www.filmogaz.com/183027)
+- **Hot Shot: First point wonâ€¦ Cue the Djokovic bow in Indian Wells**: [Link](https://www.atptour.com/en/video/hot-shot-first-point-won-cue-the-djokovic-bow-in-indian-wells)
+
+
+### دي سي يونايتد ضد إنتر ميامي (N/A, Sat, 7 Mar 2026 14:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة دي سي يونايتد وإنتر ميامي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AF%D9%8A-%D8%B3%D9%8A-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt8badf32757b60192)
+- **بث مباشر ميسي الآن.. رابط مشاهدة مباراة إنتر ميامي ودي سي يونايتد في الدوري الأمريكي**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%AF%D9%8A-%D8%B3%D9%8A-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
+- **اتفرج على الكلاسيكو مجانًا.. كيفية مشاهدة مباراة إنتر ميامي ضد دي سي يونايتد في الـ MLS**: [Link](https://www.sabaharabi.com/702650)
+
+
+### snrt (N/A, Sat, 7 Mar 2026 14:10:00 -0800)
+
+- **La FRMF nomme Mohamed Ouahbi sélectionneur de l’Équipe Nationale A et renforce son encadrement de performance dans le cadre de sa feuille de route « Maroc 2030 » – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA-22/)
+- **Mohamed Ouahbi, le pédagogue devenu sélectionneur du Maroc**: [Link](https://mobile.telquel.ma/2026/03/06/mohamed-ouahbi-le-pedagogue-devenu-selectionneur-du-maroc_1977865)
+- **Entre exploit et usure : que retenir de l’ère Walid Regragui ?**: [Link](https://fr.hespress.com/463778-entre-exploit-et-usure-que-retenir-de-lere-walid-regragui.html)
+
+
 ### الرجاء ضد أولمبيك أسفي (N/A, Sat, 7 Mar 2026 14:00:00 -0800)
 
 - **تشكيلة الرجاء الرياضي لمواجهة أولمبيك آسفي**: [Link](https://www.hesport.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A-2-429918.html)
