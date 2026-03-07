@@ -1,3 +1,10 @@
+### auxerre – strasbourg (N/A, Sat, 7 Mar 2026 09:40:00 -0800)
+
+- **Les infos pratiques pour AJA-Strasbourg**: [Link](https://www.aja.fr/les-infos-pratiques-pour-aja-strasbourg/)
+- **Ligue 1. Dans sa course à l'Europe, le Racing Club de Strasbourg n'a pas le droit à l'erreur à Auxerre : suivez le match en direct (19h)**: [Link](https://www.dna.fr/sport/2026/03/07/dans-sa-coyurse-a-l-europe-le-racing-club-de-strasbourg-n-a-pas-le-droit-a-l-erreur-a-auxerre-suivez-le-match-en-direct-(19h))
+- **"On est même à côté dans le vestiaire" : à droite de la défense de l'AJA, c'est l'entente cordiale entre Marvin Senaya et Lamine Sy**: [Link](https://www.lyonne.fr/auxerre-89000/sports/on-est-meme-a-cote-dans-le-vestiaire-a-droite-de-la-defense-de-l-aja-c-est-l-entente-cordiale-entre-marvin-senaya-et-lamine-sy_14885939/)
+
+
 ### wrexham – chelsea (N/A, Sat, 7 Mar 2026 09:10:00 -0800)
 
 - **FA Cup fifth round LIVE: Watch live, plus score and live text updates as Chelsea visit Wrexham**: [Link](https://www.bbc.com/sport/football/live/cx2rexpvweqt)
