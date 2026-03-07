@@ -1,3 +1,17 @@
+### أتلتيكو مدريد ضد ريال سوسيداد (N/A, Sat, 7 Mar 2026 08:50:00 -0800)
+
+- **أعلن أتلتيكو مدريد قائمة تضم 24 لاعباً لمواجهة ريال سوسيداد مع استمرار غياب باريوس**: [Link](https://m.elbotola.com/article/2026-03-06-20-15-832.html)
+- **نتيجة آخر مباراة بين أتلتيكو مدريد وسوسيداد**: [Link](https://hihi2.com/2026/03/07/p3679589.html)
+- **الحلم سبورت : أرقام مهمة قبل مباراة أتلتيكو مدريد وسوسيداد**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%85%D9%87%D9%85%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA-4/)
+
+
+### atlético madrid – real sociedad (N/A, Sat, 7 Mar 2026 08:40:00 -0800)
+
+- **Atlético de Madrid vs Real Sociedad EN VIVO Hoy. Partido de Obed Vargas en LaLiga 2026**: [Link](https://www.marca.com/mx/futbol/atletico-real-sociedad/2026/03/07/01_0101_20260307_175_188-directo.html)
+- **La Liga es el pan; Sevilla, el postre**: [Link](https://as.com/opinion/la-liga-es-el-pan-sevilla-el-postre-f202603-n/)
+- **La Real de Matarazzo: el rival que llega lanzado al Metropolitano**: [Link](https://www.vavel.com/es/futbol/2026/03/07/atletico-de-madrid/1253185-la-real-de-matarazzo-el-rival-que-llega-lanzado-al-metropolitano.html)
+
+
 ### gta 6 (N/A, Sat, 7 Mar 2026 07:30:00 -0800)
 
 - **GTA 6 LIVE: Pre-order and price 'reveal' blow**: [Link](https://www.indy100.com/gaming/gta-6-preorder-price-release-date-2675622749)
