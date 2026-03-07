@@ -1,3 +1,17 @@
+### levante – girona (N/A, Sat, 7 Mar 2026 06:30:00 -0800)
+
+- **El once del Levante UD para enfrentarse al Girona FC**: [Link](https://plazadeportiva.valenciaplaza.com/plazadeportiva/levanteud/el-once-del-levante-ud-para-enfrentarse-al-girona-fc)
+- **El Ciutat de València pide pista de despegue hacia la salvación**: [Link](https://www.levante-emv.com/deportes/2026/03/07/ciutat-valencia-pide-pista-despegue-127659729.html)
+- **RUEDA DE PRENSA | Luís Castro: “El nivel de concentración durante todo el partido es el que nos va a generar la posibilidad de ganar”**: [Link](https://www.levanteud.com/noticias/luis-castro-el-nivel-de-concentracion-durante-todo-el-partido-es-el-que-nos-va-a-generar-la-posibilidad-de-ganar)
+
+
+### cagliari – côme (N/A, Sat, 7 Mar 2026 06:30:00 -0800)
+
+- **Cagliari-Como, le formazioni ufficiali: sorpresa Pisacane, in attacco c'è Folorunsho**: [Link](https://www.gazzetta.it/calcio/fantanews/07-03-2026/cagliari-como-le-formazioni-ufficiali-tutti-i-titolari.shtml)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-davis-in-esclusiva-neuer-di-nuovo-ko-alle-15-inizia-cagliari-como/42pjmx5e/)
+- **Como, Fabregas: "Diao ha fatto un provino, non se la sentiva"**: [Link](https://www.fantacalcio.it/news/calcio-italia/07_03_2026/como-fabregas-diao-ha-fatto-un-provino-non-se-la-sentiva-490029)
+
+
 ### donald trump (N/A, Sat, 7 Mar 2026 04:40:00 -0800)
 
 - **Live updates: Trump signals he will escalate war with Iran as Tehran apologises to neighbors for strikes**: [Link](https://www.cnn.com/world/live-news/iran-war-us-israel-trump-03-07-26)
