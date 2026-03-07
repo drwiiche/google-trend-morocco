@@ -1,3 +1,17 @@
+### gta 6 (N/A, Sat, 7 Mar 2026 07:30:00 -0800)
+
+- **GTA 6 LIVE: Pre-order and price 'reveal' blow**: [Link](https://www.indy100.com/gaming/gta-6-preorder-price-release-date-2675622749)
+- **PlayStation Gamers Are Using a Glitch to Make It Look Like They’ve Played GTA 6 Already**: [Link](https://www.ign.com/articles/playstation-gamers-are-using-a-glitch-to-make-it-look-like-theyve-played-gta-6-already)
+- **Rockstar Cracks Down on PS5 Users Listing GTA 6 as ‘Recently Played’**: [Link](https://www.aol.com/articles/rockstar-cracks-down-ps5-users-140153835.html)
+
+
+### أوساسونا ضد مايوركا (N/A, Sat, 7 Mar 2026 06:20:00 -0800)
+
+- **مارتين ديميكيليس يبدأ مشواره مع ريال مايوركا بمواجهة أوساسونا ويطالب لاعبيه بروح المحاربين**: [Link](https://m.elbotola.com/article/2026-03-06-14-30-170.html)
+- **تعادل مثير بين أوساسونا ومايوركا في الدوري الإسباني**: [Link](https://www.maspero.eg/sport/2026/03/07/934501/%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%AB%D9%8A%D8%B1-%D8%A8%D9%8A%D9%86-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%88%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+- **موعد مباراة أوساسونا ومايوركا في الدوري الإسباني**: [Link](https://almashhadalaraby.com/news/554108)
+
+
 ### huesca – albacete (N/A, Sat, 7 Mar 2026 08:00:00 -0800)
 
 - **Imágenes: Fotos | Partido SD Huesca-Albacete, jornada 29 de Segunda División, en El Alcoraz**: [Link](https://www.heraldo.es/multimedia/imagenes/deportes/fotos-partido-huesca-albacete-segunda-division-alcoraz/)
