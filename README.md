@@ -1,3 +1,17 @@
+### xiaomi 17 ultra (N/A, Sat, 7 Mar 2026 12:10:00 -0800)
+
+- **Xiaomi 17: a versatile, compact flagship with excellent battery life**: [Link](https://mezha.ua/en/reviews/oglyad-xiaomi-17-309166/)
+- **The "boring" phone that's actually the smartest buy of 2026**: [Link](https://www.phonearena.com/news/The-boring-phone-thats-actually-the-smartest-buy-of-2026_id178735)
+- **Yes, Leica Also Makes Smartphones. And They're Going Global**: [Link](https://www.highsnobiety.com/p/leica-leitzphone/)
+
+
+### عيد الفطر في المغرب 2026 (N/A, Sat, 7 Mar 2026 12:10:00 -0800)
+
+- **البحوث الفلكية تحدد موعد أول أيام عيد الفطر في مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/03/05/%D8%A7%D9%84%D8%A8%D8%AD%D9%88%D8%AB-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%84%D9%80%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9%D9%86%D8%AA-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%88%D9%84-%D8%A7%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+- **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
+- **مع اقتراب يوم الأم 2026 | حب الأم لأبنائها غير مشروط**: [Link](https://akhbarelyom.com/news/newdetails/4784721/1/%D9%85%D8%B9-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%85-2026--%D8%AD%D8%A8-%D8%A7%D9%84%D8%A3%D9%85-%D9%84%D8%A3%D8%A8%D9%86%D8%A7%D8%A6%D9%87)
+
+
 ### al-nassr vs neom (N/A, Sat, 7 Mar 2026 12:00:00 -0800)
 
 - **How & Where to Watch Al-Nassr vs. Neom SC? Live Streaming & TV Channels for Saudi Pro League**: [Link](https://sports.yahoo.com/articles/where-watch-al-nassr-vs-143000753.html)
