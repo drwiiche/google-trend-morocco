@@ -1,3 +1,55 @@
+### newcastle – manchester city (N/A, Sat, 7 Mar 2026 11:20:00 -0800)
+
+- **Newcastle United vs Manchester City: FA Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c14mr7jv2ekt)
+- **Pep delivers updates on Gvardiol, Kovacic and Lewis fitness**: [Link](https://www.mancity.com/news/mens/pep-guardiola-josko-gvardiol-mateo-kovacic-rico-lewis-fitness-63908404)
+- **Confirmed line-up: Four changes for Man City FA Cup tie, Livramento on bench**: [Link](https://onefootball.com/en/news/confirmed-line-up-four-changes-for-man-city-fa-cup-tie-livramento-on-bench-42520263)
+
+
+### juventus – pise (N/A, Sat, 7 Mar 2026 11:20:00 -0800)
+
+- **Juve-Pisa, ufficiali: Perin resta il titolare in porta, c'è anche Gatti dal 1'**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/juventus-pisa-le-formazioni-ufficiali-perin-resta-il-titolare-in-porta-ce-anche-gatti-dal-1_sto23278626/story.shtml)
+- **Spalletti “Vlahovic indisponibile, del futuro ne parleremo, senza stress”**: [Link](https://www.primaradio.net/spalletti-vlahovic-indisponibile-del-futuro-ne-parleremo-senza-stress-2/)
+- **Convocati Juve, Spalletti ritrova Locatelli: la lista completa e la scelta su Yildiz**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/03/07-147104235/convocati_juve_spalletti_ritrova_locatelli_la_lista_completa_e_la_scelta_su_yildiz)
+
+
+### atletico madrid (N/A, Sat, 7 Mar 2026 11:20:00 -0800)
+
+- **Atletico Madrid Host Real Sociedad in Third-Place Battle**: [Link](https://m.elbotola.com/en/article/2026-03-06-18-15-222.html)
+- **Sorloth straddles Atleti’s two units ahead of Real Sociedad return**: [Link](https://onefootball.com/fr/news/sorloth-straddles-atletis-two-units-ahead-of-real-sociedad-return-42517693)
+- **Simeone wants ‘good atmosphere’ in Copa final preview vs Real Sociedad**: [Link](https://sports.yahoo.com/articles/simeone-wants-good-atmosphere-copa-152635822.html)
+
+
+### أتلتيك بيلباو ضد برشلونة (N/A, Sat, 7 Mar 2026 11:10:00 -0800)
+
+- **عودة مميزة و5 غيابات في قائمة برشلونة لمواجهة أتلتيك بيلباو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%85%D9%8A%D8%B2%D8%A9-%D9%885-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88/bltf96d736fa17cc5df)
+- **مباشر مباراة برشلونة ضد أتليتك بلباو في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/7/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7)
+- **إرنيستو فالفيردي يؤكد غياب المدافع أيتور باريديس عن مواجهة برشلونة**: [Link](https://m.elbotola.com/article/2026-03-06-17-00-604.html)
+
+
+### athletic club vs barcelona (N/A, Sat, 7 Mar 2026 11:10:00 -0800)
+
+- **Alineación posible del Barça hoy ante el Athletic en LaLiga EA Sports: Eric y Lewandowski, novedades**: [Link](https://as.com/futbol/primera/posible-alineacion-del-barca-ante-el-athletic-eric-y-lewandowski-las-novedades-f202603-n/)
+- **El Barça llega al hotel de concentración de Bilbao animado por sus seguidores**: [Link](https://www.mundodeportivo.com/videos/fc-barcelona/20260307/1004147649/barca-llega-hotel-concentracion-bilbao-animado-seguidores.html)
+- **Athletic - Barcelona en directo, el partido de la Liga en vivo**: [Link](https://elpais.com/deportes/futbol/2026-03-07/athletic-barcelona-en-directo-el-partido-de-la-liga-en-vivo.html)
+
+
+### النصر ضد نيوم (N/A, Sat, 7 Mar 2026 11:10:00 -0800)
+
+- **صدمة جديدة تضرب العقيدي مع النصر السعودي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%B9%D9%82%D9%8A%D8%AF%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/blt1cf4f6ad8884cc2f)
+- **عاجل: جيسوس يجرب سلاحين سريين في النصر.. هل يحل ماني والحمدان أزمة غياب رونالدو؟**: [Link](https://yemen-press.net/news171040.html)
+- **تشكيلة النصر أمام نيوم.. الحمدان يعوّض غياب كريستيانو رونالدو**: [Link](https://sports.asharq.com/football/102080/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AD%D9%85%D8%AF%D8%A7%D9%86-%D9%8A%D8%B9%D9%88%D8%B6-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88/)
+
+
+### al-ettifaq – al shabab (N/A, Sat, 7 Mar 2026 11:10:00 -0800)
+
+- **Al Ettifaq vs Al Shabab Preview & Prediction**: [Link](https://www.thestatszone.com/al-ettifaq-vs-al-shabab-preview-prediction-175051)
+
+
+### match raja (N/A, Sat, 7 Mar 2026 10:20:00 -0800)
+
+
+
+
 ### ريكسهام ضد تشيلسي (N/A, Sat, 7 Mar 2026 10:20:00 -0800)
 
 - **كاس إنكلترا: أرسنال وتشلسي لتفادي الخروج المحرج وليفربول للثأر**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260306-%D9%83%D8%A7%D8%B3-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%84%D8%AA%D9%81%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D8%AE%D8%B1%D9%88%D8%AC-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D8%AC-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%84%D8%AB%D8%A3%D8%B1)
