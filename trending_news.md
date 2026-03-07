@@ -1,3 +1,17 @@
+### ريكسهام ضد تشيلسي (N/A, Sat, 7 Mar 2026 10:20:00 -0800)
+
+- **كاس إنكلترا: أرسنال وتشلسي لتفادي الخروج المحرج وليفربول للثأر**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260306-%D9%83%D8%A7%D8%B3-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%84%D8%AA%D9%81%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D8%AE%D8%B1%D9%88%D8%AC-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D8%AC-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%84%D8%AB%D8%A3%D8%B1)
+- **مدرب تشلسي يُشيد بإمكانيات فريق ريكسام**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%AF%D8%B1%D8%A8-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A-%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A5%D9%85%D9%83%D8%A7%D9%86%D9%8A%D8%A7%D8%AA-%D9%81%D8%B1%D9%8A%D9%82-%D8%B1%D9%8A%D9%83%D8%B3%D8%A7%D9%85-2026-03-07?videopage=true)
+- **معاينة المباراة: ريكسهام ضد تشيلسي، الساعة 00:45 يوم 8 مارس: مباراة صعبة خارج أرضنا.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-tran-dau-wrexham-vs-chelsea-0h45-ngay-8-3-song-gio-noi-dat-khach)
+
+
+### nantes – angers (N/A, Sat, 7 Mar 2026 09:40:00 -0800)
+
+- **Nantes : en pleine crise, Ahmed Kantari écarte Tylel Tati et 4 autres joueurs !**: [Link](https://www.footmercato.net/a7815889086066658719-nantes-en-pleine-crise-ahmed-kantari-ecarte-tylel-tati-et-4-autres-joueurs)
+- **DIRECT. La Ligue 1 et le football européen en live**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-angers-enfonce-nantes-auxerre-strasbourg-et-le-football-europeen-en-live-sur-flashscore/tM8XCKRG/)
+- **Le XI angevin :**: [Link](https://angers-sco.fr/fc-nantes-angers-sco-le-derby-reste-noirblanc/)
+
+
 ### atalanta – udinese (N/A, Sat, 7 Mar 2026 10:00:00 -0800)
 
 - **LA DEA si sdoppia**: [Link](https://www.pressreader.com/italy/la-gazzetta-dello-sport-mil/20260307/282535844866652)
