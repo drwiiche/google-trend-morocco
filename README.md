@@ -1,3 +1,10 @@
+### mainz 05 – stuttgart (N/A, Sat, 7 Mar 2026 06:50:00 -0800)
+
+- **Mainz 05 vs VfB Stuttgart: Team news and predicted line-up**: [Link](https://sports.yahoo.com/articles/mainz-05-vs-stuttgart-team-201000100.html)
+- **VfB Stuttgart vs. FSV Mainz Prediction, Picks, Live Odds – March 7**: [Link](https://www.bleachernation.com/picks/2026/03/06/vfb-stuttgart-vs-fsv-mainz-prediction-picks-live-odds-march-7/)
+- **Confirmed Lineups: Mainz 05 vs. VfB Stuttgart**: [Link](https://bulinews.com/confirmed-lineups-mainz-05-vfb-stuttgart-1)
+
+
 ### levante – girona (N/A, Sat, 7 Mar 2026 06:30:00 -0800)
 
 - **El once del Levante UD para enfrentarse al Girona FC**: [Link](https://plazadeportiva.valenciaplaza.com/plazadeportiva/levanteud/el-once-del-levante-ud-para-enfrentarse-al-girona-fc)
