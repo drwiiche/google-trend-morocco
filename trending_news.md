@@ -1,3 +1,17 @@
+### الرجاء ضد أولمبيك أسفي (N/A, Sat, 7 Mar 2026 14:00:00 -0800)
+
+- **تشكيلة الرجاء الرياضي لمواجهة أولمبيك آسفي**: [Link](https://www.hesport.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A-2-429918.html)
+- **فادلو يستدعي 20 لاعبا لمواجهة أولمبيك آسفي والمعموري أبرز الغائبين عن القائمة**: [Link](https://m.elbotola.com/article/2026-03-07-15-11-384.html)
+- **الرجاء يستقبل آسفي في قمة المتناقضات**: [Link](https://febrayer.com/1137590.html)
+
+
+### classement la liga (N/A, Sat, 7 Mar 2026 14:00:00 -0800)
+
+- **Atlético de Madrid 3-2 Real Sociedad, La Liga : résumé du match (07/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/atletico-de-madrid-real-sociedad-live/676973)
+- **Totale Europe : Osimhen héros du derby, l'Atlético a tremblé jusqu'au bout**: [Link](https://onefootball.com/fr/news/totale-europe-osimhen-heros-du-derby-latletico-a-tremble-jusquau-bout-42518399)
+- **Esp. : la passe de trois pour l'Atletico**: [Link](https://m.maxifoot.fr/espagne/la-passe-de-trois-pour-l-atletico-foot-451600.htm)
+
+
 ### يوفنتوس ضد بيزا (N/A, Sat, 7 Mar 2026 13:40:00 -0800)
 
 - **ما القنوات الناقلة لمباراة يوفنتوس وبيسا في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%A8%D9%8A%D8%B3%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt7613799a7c78cff7)
