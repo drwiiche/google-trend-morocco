@@ -1,3 +1,17 @@
+### dc united – inter miami (N/A, Sat, 7 Mar 2026 13:00:00 -0800)
+
+- **Why is D.C. United going to Baltimore to host Lionel Messi and Inter Miami?**: [Link](https://www.cbssports.com/soccer/news/dc-united-lionel-messi-and-inter-miami-baltimore/)
+- **"Charm'tastic Mile" Unveils its MLS In B'more Promo-Poster, Inter Miami (Lionel Messi) vs DC United**: [Link](https://patch.com/maryland/baltimore/calendar/event/20260307/ce2059e7-6e48-49ff-9df8-08c291b967de/charmtastic-mile-unveils-its-mls-in-b-more-promo-poster-inter-miami-lionel-messi-vs-dc-united)
+- **Weekend Road Closures for Friday, March 6th Through Sunday, March 8, 2026**: [Link](https://www.baltimorecity.gov/transportation/news/weekend-road-closures-for-friday-march-6th-through-sunday-march-8-2026)
+
+
+### fc barcelone (N/A, Sat, 7 Mar 2026 13:00:00 -0800)
+
+- **DIRECT. Athletic Bilbao-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/athletic-bilbao-fc-barcelone-live/676972)
+- **Lewandowski dans le groupe du Barça pour le déplacement à Bilbao**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4463027/lewandowski-dans-le-groupe-du-barca-pour-le-deplacement-a-bilbao)
+- **Flick assume la responsabilité des blessures et annonce un turnover contre l'Athletic Bilbao**: [Link](https://m.elbotola.com/fr/article/2026-03-06-12-45-456.html)
+
+
 ### city (N/A, Sat, 7 Mar 2026 12:50:00 -0800)
 
 - **At least six dead after tornadoes sweep across Michigan and Oklahoma, officials say**: [Link](https://www.bbc.com/news/articles/crrxpwzvd5vo)
