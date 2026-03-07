@@ -1,3 +1,10 @@
+### huesca – albacete (N/A, Sat, 7 Mar 2026 08:00:00 -0800)
+
+- **Imágenes: Fotos | Partido SD Huesca-Albacete, jornada 29 de Segunda División, en El Alcoraz**: [Link](https://www.heraldo.es/multimedia/imagenes/deportes/fotos-partido-huesca-albacete-segunda-division-alcoraz/)
+- **El Albacete vuelve a jugar con presión**: [Link](https://www.latribunadealbacete.es/noticia/zcfb0a4e4-f28c-4bd5-a8a92679f4c58b2c/202603/el-albacete-vuelve-a-jugar-con-presion)
+- **El Albacete busca escapar del descenso ante la dupla Enol-Escobar**: [Link](https://as.com/futbol/segunda/el-albacete-busca-escapar-del-descenso-ante-la-dupla-enol-escobar-f202603-n/)
+
+
 ### mainz 05 – stuttgart (N/A, Sat, 7 Mar 2026 06:50:00 -0800)
 
 - **Mainz 05 vs VfB Stuttgart: Team news and predicted line-up**: [Link](https://sports.yahoo.com/articles/mainz-05-vs-stuttgart-team-201000100.html)
