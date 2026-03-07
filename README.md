@@ -1,3 +1,24 @@
+### city (N/A, Sat, 7 Mar 2026 12:50:00 -0800)
+
+- **At least six dead after tornadoes sweep across Michigan and Oklahoma, officials say**: [Link](https://www.bbc.com/news/articles/crrxpwzvd5vo)
+- **Tornado that hit Union Lake area had 150 mph winds**: [Link](https://www.detroitnews.com/story/weather/2026/03/07/tornado-that-hit-union-lake-area-had-150-mph-winds/89038856007/)
+- **4 dead in Michigan as powerful storms that produced at least 1 tornado rip through state**: [Link](https://www.uppermichiganssource.com/2026/03/07/3-dead-michigan-after-an-apparent-tornado-rips-through-state/)
+
+
+### barca match (N/A, Sat, 7 Mar 2026 12:40:00 -0800)
+
+- **Athletic Bilbao vs Barcelona: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/03/281879/athletic-bilbao-vs-barcelona-how-when-to-watch/)
+- **Flick Takes Responsibility for Injuries, Announces Squad Rotation Against Athletic Bilbao**: [Link](https://m.elbotola.com/en/article/2026-03-06-12-45-470.html)
+- **Champions League ambitions encourage Barca gamble in Bilbao**: [Link](https://www.france24.com/en/live-news/20260306-champions-league-ambitions-encourage-barca-gamble-in-bilbao)
+
+
+### اسماعيل قاآني (N/A, Sat, 7 Mar 2026 11:50:00 -0800)
+
+- **إسماعيل قآني: "رأفت الهجان" الذي نسيته طهران**: [Link](https://assafir24.ma/206372/)
+- **نجا من 3 اغتيالات.. لماذا أصبح قآاني اللغز الأكثر رعباً بأروقة الموساد؟**: [Link](https://www.eremnews.com/news/world/9nhpkr8)
+- **شبهات خيانة واختفاء غامض.. تقارير دولية تفتح ملف إسماعيل قاني**: [Link](https://www.baladnaelyoum.com/1131537)
+
+
 ### xiaomi 17 ultra (N/A, Sat, 7 Mar 2026 12:10:00 -0800)
 
 - **Xiaomi 17: a versatile, compact flagship with excellent battery life**: [Link](https://mezha.ua/en/reviews/oglyad-xiaomi-17-309166/)
