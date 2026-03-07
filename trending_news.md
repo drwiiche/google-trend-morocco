@@ -1,3 +1,10 @@
+### la liga (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
+
+- **Barcelona interim president confident of a comeback vs Atletico Madrid – ‘I believe’**: [Link](https://barcauniversal.com/barcelona-interim-president-confident-of-a-comeback-vs-atletico-madrid-i-believe/)
+- **First hat-trick for Lamine Yamal the best moment in February**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4461349/first-hat-trick-for-lamine-yamal-the-best-moment-in-february/featured)
+- **Flick: 'We're planning for Pedri to start on Tuesday'**: [Link](https://www.besoccer.com/new/flick-were-planning-for-pedri-to-start-on-tuesday-1397036)
+
+
 ### وزارة العدل (N/A, Fri, 6 Mar 2026 17:50:00 -0800)
 
 - **العدل الأمريكية تنشر وثائق تتضمن اتهامات لترمب بقضية إبستين**: [Link](https://www.aljazeera.net/news/2026/3/6/%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1-%D9%88%D8%AB%D8%A7%D8%A6%D9%82-%D8%AA%D8%AA%D8%B6%D9%85%D9%86)
