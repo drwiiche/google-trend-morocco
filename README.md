@@ -1,3 +1,17 @@
+### as far (N/A, Sat, 7 Mar 2026 15:30:00 -0800)
+
+- **Hrimat: ‘AS FAR Showed Champion’s Character in Win Over Wydad’**: [Link](https://www.moroccoworldnews.com/2026/03/281661/hrimat-as-far-showed-champions-character-in-win-over-wydad/)
+- **Hakim Ziyech, like in the golden days, scored a Euro goal last night**: [Link](https://indeksonline.net/en/Hakim-Ziyech-scored-a-Euro-goal-last-night--like-in-the-golden-days/)
+- **Botola Pro1 Inwi: date, time, channels and head-to-head history for WAC – AS FAR clash**: [Link](https://ca.sports.yahoo.com/news/botola-pro1-inwi-date-time-100000812.html)
+
+
+### الكوكب المراكشي (N/A, Sat, 7 Mar 2026 15:20:00 -0800)
+
+- **تدابير تنظيمية لجماهير الكوكب والحسنية**: [Link](https://www.hesport.com/%D8%AA%D8%AF%D8%A7%D8%A8%D9%8A%D8%B1-%D8%AA%D9%86%D8%B8%D9%8A%D9%85%D9%8A%D8%A9-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%88%D8%A7%D9%84%D8%AD%D8%B3%D9%86-429887.html)
+- **الدميعي: أدينا ثمن أخطاء ساذجة**: [Link](https://assabah.ma/907077.html)
+- **الكوكب المراكشي يخصص 1250 تذكرة لجماهير حسنية أكادير**: [Link](https://m.elbotola.com/article/2026-03-06-12-54-833.html)
+
+
 ### البطولة المغربية (N/A, Sat, 7 Mar 2026 15:10:00 -0800)
 
 - **النادي المكناسي يفوز على اتحاد طنجة**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-429821.html)
