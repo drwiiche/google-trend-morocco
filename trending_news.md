@@ -1,3 +1,17 @@
+### toulouse – marseille (N/A, Sat, 7 Mar 2026 11:30:00 -0800)
+
+- **Ligue 1 | Toulouse - Marseille | Expressifs mais peu agressifs, les joueurs de l'OM sont-ils des faux méchants**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-toulouse-marseille-expressifs-mais-peu-agressifs-les-joueurs-de-lom-sont-ils-des-faux-mechants_sto23278309/story.shtml)
+- **Le groupe de l’OM à Toulouse sans Nayef Aguerd ni Bilal Nadir**: [Link](https://www.footmercato.net/a3939593895730809601-le-groupe-de-lom-a-toulouse-sans-nayef-aguerd-et-bilal-nadir)
+- **OM, deux absences confirmées face à Toulouse**: [Link](https://www.sports.fr/football/ligue-1/om-deux-absences-confirmees-face-a-toulouse-996456.html)
+
+
+### نيوكاسل يونايتد ضد مان سيتي (N/A, Sat, 7 Mar 2026 11:30:00 -0800)
+
+- **جوارديولا: هذا الأمر "سلاح ذو حدين" قبل مواجهة ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1-%D8%B3%D9%84%D8%A7%D8%AD-%D8%B0%D9%88-%D8%AD%D8%AF%D9%8A%D9%86-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blte328e963ef030686)
+- **التشكيلة المتوقعة لقمة مانشستر سيتي ونيوكاسل.. هل يغيب هالاند؟**: [Link](https://www.arrajol.com/content/399305/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%82%D9%85%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%87%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF%D8%9F)
+- **السيتي يتحدى نيوكاسل للحفاظ على آماله في الثلاثية التاريخية**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4649676/%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%84%D9%84%D8%AD%D9%81%D8%A7%D8%B8-%D8%B9%D9%84%D9%89-%D8%A2%D9%85%D8%A7%D9%84%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9)
+
+
 ### newcastle – manchester city (N/A, Sat, 7 Mar 2026 11:20:00 -0800)
 
 - **Newcastle United vs Manchester City: FA Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c14mr7jv2ekt)
