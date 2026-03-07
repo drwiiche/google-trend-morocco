@@ -1,3 +1,17 @@
+### وزارة العدل (N/A, Fri, 6 Mar 2026 17:50:00 -0800)
+
+- **العدل الأمريكية تنشر وثائق تتضمن اتهامات لترمب بقضية إبستين**: [Link](https://www.aljazeera.net/news/2026/3/6/%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1-%D9%88%D8%AB%D8%A7%D8%A6%D9%82-%D8%AA%D8%AA%D8%B6%D9%85%D9%86)
+- **"العدل الأميركية" تنشر اتهام امرأة لترامب.. من ملفات إبستين**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/03/06/%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%A7%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1-%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D8%A7%D9%85%D8%B1%D8%A7%D8%A9-%D9%84%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%85%D9%86-%D9%85%D9%84%D9%81%D8%A7%D8%AA-%D8%A7%D8%A8%D8%B3%D8%AA%D9%8A%D9%86)
+- **دفعة جديدة من ملفات إبستين تورط ترامب فى اعتداء جنسى**: [Link](https://www.youm7.com/story/2026/3/6/%D8%AF%D9%81%D8%B9%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D9%85%D9%84%D9%81%D8%A7%D8%AA-%D8%A5%D8%A8%D8%B3%D8%AA%D9%8A%D9%86-%D8%AA%D9%88%D8%B1%D8%B7-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%81%D9%89-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D8%AC%D9%86%D8%B3%D9%89/7330142)
+
+
+### borja iglesias (N/A, Fri, 6 Mar 2026 13:50:00 -0800)
+
+- **Borja Iglesias lamenta la derrota: "Duele porque es en la última acción"**: [Link](https://es-us.noticias.yahoo.com/deportes/borja-iglesias-lamenta-derrota-duele-222120993.html)
+- **Gol de Borja Iglesias (1-1) en el Celta de Vigo 1-2 Real Madrid**: [Link](https://www.marca.com/futbol/2026/03/06/gol-borja-iglesias-1-1-celta-vigo-1-2-real-madr-video.html)
+- **Borja Iglesias: «Duele que se escape en la última acción»**: [Link](https://www.lavozdegalicia.es/noticia/gradario/2026/03/06/borja-iglesias-duele-escape-ultima-accion/00031772836661810485633.htm)
+
+
 ### ester exposito (N/A, Fri, 6 Mar 2026 15:30:00 -0800)
 
 - **Kylian Mbappé y Ester Expósito desatan rumores de romance tras supuestos encuentros en París**: [Link](https://www.elcomercio.com/deportes/futbol/kylian-mbappe-ester-exposito-paris-futbol-real-madrid/)
