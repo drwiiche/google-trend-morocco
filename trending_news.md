@@ -1,3 +1,17 @@
+### barca (N/A, Sat, 7 Mar 2026 13:20:00 -0800)
+
+- **Athletic Club vs. Barcelona: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/athletic-club-vs-barcelona-preview-predictions-lineups-3-7-26)
+- **LIVE: Athletic Bilbao vs Barcelona – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2026/3/7/live-athletic-bilbao-vs-barcelona-la-liga)
+- **Hansi Flick: 'Athletic a different team at home'**: [Link](https://www.fcbarcelona.com/en/news/4463116/hansi-flick-athletic-a-different-team-at-home)
+
+
+### barcelona vs (N/A, Sat, 7 Mar 2026 12:40:00 -0800)
+
+- **Un nuevo duelo de hermanos habrá en el Clásico del Astillero entre Barcelona y Emelec**: [Link](https://espndeportes.espn.com/futbol/ecuador/nota/_/id/16400121/un-nuevo-duelo-de-hermanos-habra-en-el-clasico-del-astillero-entre-barcelona-y-emelec)
+- **Qué canal pasa Barcelona vs Emelec hoy: dónde ver GRATIS y EN VIVO el Clásico del Astillero**: [Link](https://www.365scores.com/es/news/barcelona-vs-emelec-donde-ver-gratis-hoy/)
+- **Farías previo al Clásico: “Contamos con una ventaja, tenemos más ritmo que el rival”**: [Link](https://onefootball.com/es/noticias/farias-previo-al-clasico-contamos-con-una-ventaja-tenemos-mas-ritmo-que-el-rival-42515246)
+
+
 ### dc united – inter miami (N/A, Sat, 7 Mar 2026 13:00:00 -0800)
 
 - **Why is D.C. United going to Baltimore to host Lionel Messi and Inter Miami?**: [Link](https://www.cbssports.com/soccer/news/dc-united-lionel-messi-and-inter-miami-baltimore/)
