@@ -1,3 +1,38 @@
+### يوفنتوس ضد بيزا (N/A, Sat, 7 Mar 2026 13:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة يوفنتوس وبيسا في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%A8%D9%8A%D8%B3%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt7613799a7c78cff7)
+- **الحلم سبورت : تاريخ خال من الهزائم ليوفنتوس أمام بيزا**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%AE%D8%A7%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%B2%D8%A7%D8%A6%D9%85-%D9%84%D9%8A%D9%88%D9%81%D9%86/)
+- **لتحسين موقعه فى"الكالتشيو".. يوفنتوس يواجه بيزا بالثلاثى يلدز وديفيد وكونسيساو**: [Link](https://www.maspero.eg/sport/2026/03/07/934582/%D9%84%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D9%85%D9%88%D9%82%D8%B9%D9%87-%D9%81%D9%89%D8%A7%D9%84%D9%83%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%88--%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D9%8A%D8%B2%D8%A7-%D8%A8%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%89-%D9%8A%D9%84%D8%AF%D8%B2-%D9%88%D8%AF%D9%8A%D9%81%D9%8A%D8%AF-%D9%88%D9%83%D9%88%D9%86%D8%B3%D9%8A%D8%B3%D8%A7%D9%88)
+
+
+### fcb (N/A, Sat, 7 Mar 2026 13:30:00 -0800)
+
+- **Why is fcb Trending in Google Trends on March, 08 2026: Check Latest News on fcb Today from Google and LatestLY**: [Link](https://www.latestly.com/google-trends/08032026/fcb/)
+- **At FC Barcelona, there is a clear concern: protecting Lamine Yamal.**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/hansi-flick-wants-to-protect-lamine-yamal-2026-03-06)
+- **Hansi Flick explains why he benched Robert Lewandowski, Raphinha and Pedri for Barcelona clash as Lamine Yamal & Marcus Rashford get the nod**: [Link](https://www.goal.com/en-qa/lists/hansi-flick-explains-why-robert-lewandowski-raphinha-pedri-barcelona-lamine-yamal-marcus-rashford/blt628dcf8a1d8feb17)
+
+
+### lamine yamal (N/A, Sat, 7 Mar 2026 13:30:00 -0800)
+
+- **Lamine Yamal goes past Lionel Messi’s record from first four years at Barcelona**: [Link](https://sports.yahoo.com/articles/lamine-yamal-goes-past-lionel-172500502.html)
+- **At FC Barcelona, there is a clear concern: protecting Lamine Yamal.**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/hansi-flick-wants-to-protect-lamine-yamal-2026-03-06)
+- **Hansi Flick explains why he benched Robert Lewandowski, Raphinha and Pedri for Barcelona clash as Lamine Yamal & Marcus Rashford get the nod**: [Link](https://www.goal.com/en-qa/lists/hansi-flick-explains-why-robert-lewandowski-raphinha-pedri-barcelona-lamine-yamal-marcus-rashford/blt628dcf8a1d8feb17)
+
+
+### barca vs (N/A, Sat, 7 Mar 2026 13:20:00 -0800)
+
+- **FC Barcelona golea al Atlético Madrid, pero no le alcanza para avanzar a la final de la Copa del Rey**: [Link](https://www.msn.com/es-us/deportes/other/fc-barcelona-golea-al-atl%C3%A9tico-madrid-pero-no-le-alcanza-para-avanzar-a-la-final-de-la-copa-del-rey/ar-AA1Xuhlg)
+- **Cholo Simeone y Su gran deseo de ser campeón de la copa del Rey**: [Link](https://www.hsbnoticias.com/cholo-simeone-y-su-gran-deseo-de-ser-campeon-de-la-copa-del-rey/)
+- **Los 5 puntos que puede rescatar Hansi Flick después de casi remontar ante el Atlético de Madrid**: [Link](https://www.si.com/es-us/futbol/los-5-puntos-que-puede-rescatar-hansi-flick-despues-de-casi-remontar-ante-el-atletico-de-madrid)
+
+
+### braga – sporting (N/A, Sat, 7 Mar 2026 12:40:00 -0800)
+
+- **Braga frustra o Sporting, que pode ver o Porto disparar na liderança**: [Link](https://onefootball.com/en/news/braga-frustra-o-sporting-que-pode-ver-o-porto-disparar-na-lideranca-42520645)
+- **A ingratidão do golo no final e um falhanço que faz parte: tudo o que disse Rui Borges**: [Link](https://www.abola.pt/noticias/a-ingratidao-do-golo-no-final-e-um-falhanco-que-faz-parte-tudo-o-que-disse-rui-borges-2026030721234087089)
+- **Rui Borges e as contas: "No final do campeonato veremos..."**: [Link](https://www.ojogo.pt/futebol/artigo/rui-borges-e-as-contas-no-final-do-campeonato-veremos/18059699)
+
+
 ### barca (N/A, Sat, 7 Mar 2026 13:20:00 -0800)
 
 - **Athletic Club vs. Barcelona: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/athletic-club-vs-barcelona-preview-predictions-lineups-3-7-26)
