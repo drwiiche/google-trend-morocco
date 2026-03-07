@@ -1,3 +1,10 @@
+### donald trump (N/A, Sat, 7 Mar 2026 04:40:00 -0800)
+
+- **Live updates: Trump signals he will escalate war with Iran as Tehran apologises to neighbors for strikes**: [Link](https://www.cnn.com/world/live-news/iran-war-us-israel-trump-03-07-26)
+- **Trump says U.S. will expand Iran targets after Tehran apologizes to neighbors**: [Link](https://www.washingtonpost.com/world/2026/03/07/iran-war-us-trump-israel-strikes/)
+- **Iran war live: Trump vows ‘very hard’ strikes; Iran says will not surrender**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/7/iran-war-live-trump-says-no-deal-with-iran-until-unconditional-surrender)
+
+
 ### مانسفيلد ضد آرسنال (N/A, Sat, 7 Mar 2026 04:20:00 -0800)
 
 - **أرتيتا: الملاعب السيئة تضع سمعة آرسنال على المحك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D9%8A%D9%94%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%B3%D9%85%D8%B9%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AD%D9%83/blt58bffe2295dd5995)
