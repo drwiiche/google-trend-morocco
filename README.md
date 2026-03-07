@@ -1,3 +1,10 @@
+### madrid (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
+
+- **Detenidos dos expertos luchadores de MMA por terrorismo islámico desde gimnasios de Madrid**: [Link](https://www.abc.es/espana/madrid/detenidos-dos-expertos-luchadores-mma-terrorismo-islamico-20260307103658-nt.html)
+- **La amenaza invisible: Expertos en lucha detenidos por vínculos con la yihad violenta**: [Link](https://jerezsinfronteras.es/detencion-yihadistas-expertos-mma-madrid/)
+- **Detenidos en Madrid dos expertos en MMA por difundir propaganda yihadista y promover el martirio**: [Link](https://www.epe.es/es/madrid/20260307/detenidos-madrid-expertos-mma-difundir-propaganda-yihadista-127668536)
+
+
 ### real vs (N/A, Fri, 6 Mar 2026 13:50:00 -0800)
 
 - **Man City v Real Madrid - Ticket Information 25/26**: [Link](https://www.mancity.com/tickets/mens/man-city-v-real-madrid-ticket-information-2526)
