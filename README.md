@@ -1,3 +1,10 @@
+### real vs (N/A, Fri, 6 Mar 2026 13:50:00 -0800)
+
+- **Man City v Real Madrid - Ticket Information 25/26**: [Link](https://www.mancity.com/tickets/mens/man-city-v-real-madrid-ticket-information-2526)
+- **‘We need our best version’: Vini Jr previews Manchester City clash**: [Link](https://tribuna.com/en/news/2026-03-07-we-need-our-best-version-vini-jr-previews-manchester-city-clash/)
+- **Haaland hat-trick chaos as City edge Real in Champions League live thriller**: [Link](https://www.ad-hoc-news.de/boerse/news/ueberblick/haaland-hat-trick-chaos-as-city-edge-real-in-champions-league-live/68637766)
+
+
 ### vol air france dubai demi tour (N/A, Fri, 6 Mar 2026 21:20:00 -0800)
 
 - **Un avion d’Air France qui se rendait aux Emirats arabes unis pour rapatrier des Français fait demi-tour à cause de tirs de missiles «dans la zone**: [Link](https://www.liberation.fr/international/moyen-orient/un-avion-dair-france-qui-se-rendait-aux-emirats-arabes-pour-rapatrier-des-francais-fait-demi-tour-a-cause-de-tirs-de-missiles-dans-la-zone-20260305_ASW2TYSFSBF3PN363TX2SRPLHY/)
