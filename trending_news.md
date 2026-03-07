@@ -1,3 +1,24 @@
+### ester exposito (N/A, Fri, 6 Mar 2026 15:30:00 -0800)
+
+- **Kylian Mbappé y Ester Expósito desatan rumores de romance tras supuestos encuentros en París**: [Link](https://www.elcomercio.com/deportes/futbol/kylian-mbappe-ester-exposito-paris-futbol-real-madrid/)
+- **¿La actriz y modelo Ester Expósito está saliendo con Kylian Mbappé? Esto es lo que se sabe:**: [Link](https://www.tvazteca.com/azteca7/chisme-deportivo/senalan-en-redes-que-kylian-mbappe-estaria-saliendo-con-ester-exposito/)
+- **¡Kylian Mbappé y Ester Expósito! Medios en Europa hablan de la pareja del año**: [Link](https://www.deportesrcn.com/mas-alla-del-deporte/kylian-mbappe-y-ester-exposito-medios-en-europa-hablan-de-la-pareja-del-ano-147065)
+
+
+### apple iphone 17e (N/A, Fri, 6 Mar 2026 15:20:00 -0800)
+
+- **Apple introduces iPhone 17e**: [Link](https://www.apple.com/newsroom/2026/03/apple-introduces-iphone-17e/)
+- **Why the new iPhone 17e and iPad Air M4 are both ripoffs in SA right now**: [Link](https://themercury.co.za/technology/gadgets/2026-03-06-why-the-new-iphone-17e-and-ipad-air-m4-are-both-ripoffs-in-sa-right-now/)
+- **Macworld Podcast: MacBook Neo, iPhone 17e, M5 Pro and M5 Max, and more new Apple products**: [Link](https://www.macworld.com/article/3077229/macworld-podcast-macbook-neo-iphone-17e-m5-pro-and-m5-max-and-more-new-apple-products.html)
+
+
+### laliga (N/A, Fri, 6 Mar 2026 14:00:00 -0800)
+
+- **Flick Takes Responsibility for Injuries, Announces Squad Rotation Against Athletic Bilbao**: [Link](https://m.elbotola.com/en/article/2026-03-06-12-45-470.html)
+- **Garcia To Start, Araujo On The Bench | 4-2-3-1 Barcelona Predicted Lineup Vs Athletic Bilbao**: [Link](https://onefootball.com/fr/news/garcia-to-start-araujo-on-the-bench-4-2-3-1-barcelona-predicted-lineup-vs-athletic-bilbao-42515540)
+- **Champions League ambitions encourage Barca gamble in Bilbao**: [Link](https://sports.yahoo.com/articles/champions-league-ambitions-encourage-barca-164807610.html)
+
+
 ### trump kristi noem (N/A, Fri, 6 Mar 2026 14:40:00 -0800)
 
 - **Exclusive: Trump tells Reuters he did not sign off on ad campaign featuring homeland security secretary**: [Link](https://www.reuters.com/world/us/trump-says-he-didnt-sign-off-200-million-border-security-ad-campaign-2026-03-05/)
