@@ -1,3 +1,10 @@
+### moody's (N/A, Sun, 8 Mar 2026 07:40:00 -0700)
+
+- **Moody’s raises Morocco’s economic outlook to positive, retains Ba1 rating**: [Link](https://en.hespress.com/133306-moodys-raises-moroccos-economic-outlook-to-positive-retains-ba1-rating.html)
+- **Moody's upgrades Morocco's credit outlook to positive**: [Link](https://en.yabiladi.com/articles/details/189768/moody-s-upgrades-morocco-s-credit-outlook.html)
+- **Moody’s Revises Morocco’s Outlook to ‘Positive,’ Citing Growth Prospects**: [Link](https://www.moroccoworldnews.com/2026/03/281905/moodys-revises-moroccos-outlook-to-positive-citing-growth-prospects/)
+
+
 ### getafe vs real betis (N/A, Sun, 8 Mar 2026 08:30:00 -0700)
 
 - **Pellegrini Confirms Isco's Absence for Real Betis Until After International Break**: [Link](https://m.elbotola.com/en/article/2026-03-06-11-45-227.html)
