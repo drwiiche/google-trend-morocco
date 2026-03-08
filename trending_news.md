@@ -1,3 +1,17 @@
+### إسماعيل قاآني (N/A, Sun, 8 Mar 2026 00:10:00 -0800)
+
+- **إبراهيم أبو عواد يكتب لوطن: كيف نجا إسماعيل قاآني قائد فيلق القدس من محاولات الاغتيال ؟**: [Link](https://www.wattan.net/ar/news/482164.html)
+- **'شوهد قبيل اغتيال خامنئي'... مصير غامض لقائد فيلق القدس قاآني**: [Link](https://www.annahar.com/international/iran/284606/%D8%B4%D9%88%D9%87%D8%AF-%D9%82%D8%A8%D9%8A%D9%84-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%A8%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D9%85%D8%B5%D9%8A%D8%B1-%D8%BA%D8%A7%D9%85%D8%B6-%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%81%D9%8A%D9%84%D9%82-%D8%A7%D9%84%D9%82%D8%AF%D8%B3-%D9%82%D8%A7%D9%86%D9%8A)
+- **إسماعيل قآني: "رأفت الهجان" الذي نسيته طهران**: [Link](https://assafir24.ma/206372/)
+
+
+### kawkab marrakech (N/A, Sat, 7 Mar 2026 15:50:00 -0800)
+
+- **Botola Pro : Kawkab Marrakech s'impose face au Hassania Agadir (2-1)**: [Link](https://m.elbotola.com/fr/article/2026-03-08-00-05-662.html)
+- **Pronostic : Kawkab Athletic Club Marrakech vs Hassania d'Agadir | 07/03/2026**: [Link](https://www.footix.fr/pronostic-kawkab-athletic-club-marrakech-vs-hassania-dagadir-07-03-2026/)
+- **Victoire à domicile du Kawkab de Marrakech sur le Hassania d’Agadir 2 à 1**: [Link](https://www.medi1news.com/fr/article/386416.html)
+
+
 ### رمضان 2026 المغرب (N/A, Sat, 7 Mar 2026 21:20:00 -0800)
 
 - **موعد أذان المغرب في الشرقية اليوم الأحد 8-3-2026**: [Link](https://www.elwatannews.com/news/details/8241026)
