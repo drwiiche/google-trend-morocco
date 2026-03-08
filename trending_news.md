@@ -1,3 +1,15 @@
+### 8مارس (N/A, Sat, 7 Mar 2026 21:30:00 -0800)
+
+
+
+
+### charles oliveira (N/A, Sat, 7 Mar 2026 17:20:00 -0800)
+
+- **Main Card Results | UFC 326: Holloway vs Oliveira 2**: [Link](https://www.ufc.com/news/ufc-326-results-holloway-vs-oliveira-2-main-card-highlights-winners-interviews)
+- **UFC 326 results: Charles Oliveira beats Max Holloway for BMF belt**: [Link](https://www.espn.com/mma/story/_/id/48091127/ufc-326-live-results-analysis-bmf-title-max-holloway-vs-charles-oliveira-2)
+- **UFC 326 post-fight press conference video**: [Link](https://www.mmafighting.com/ufc/475661/ufc-326-post-fight-press-conference-video)
+
+
 ### إسماعيل قاآني (N/A, Sun, 8 Mar 2026 00:10:00 -0800)
 
 - **إبراهيم أبو عواد يكتب لوطن: كيف نجا إسماعيل قاآني قائد فيلق القدس من محاولات الاغتيال ؟**: [Link](https://www.wattan.net/ar/news/482164.html)
