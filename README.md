@@ -1,3 +1,10 @@
+### عيد الفطر 2026 المغرب (N/A, Sun, 8 Mar 2026 06:30:00 -0700)
+
+- **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
+- **الجروان: الجمعة 20 مارس أول أيام عيد الفطر فلكياً | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-03-08/%D8%A7%D9%84%D8%AC%D8%B1%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-20-%D9%85%D8%A7%D8%B1%D8%B3-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%84%D9%83%D9%8A%D8%A7%D9%8B-6348556/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1)
+- **فلكيا.. تعرّف على موعد أول أيام عيد الفطر**: [Link](https://www.echoroukonline.com/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D8%AA%D8%B9%D8%B1%D9%91%D9%81-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7)
+
+
 ### villarreal – elche (N/A, Sun, 8 Mar 2026 05:20:00 -0700)
 
 - **Misma necesidad de victoria para distintos objetivos**: [Link](https://es-us.noticias.yahoo.com/deportes/necesidad-victoria-distintos-objetivos-125500750.html)
