@@ -1,3 +1,24 @@
+### ramadan 2026 (N/A, Sun, 8 Mar 2026 12:20:00 -0700)
+
+- **Is it an odd night in Ramadan? Importance of Ramadan's last 10 nights**: [Link](https://www.dispatch.com/story/lifestyle/faith/2026/03/08/odd-night-ramadan-last-10-nights-laylat-al-qadr-eid-al-fitr-come/88999826007/)
+- **Awqaf urges Muslims to intensify worship in Ramadan’s last 10 days**: [Link](https://www.qatar-tribune.com/article/223077/nation/awqaf-urges-muslims-to-intensify-worship-in-ramadans-last-10-days)
+- **Nooruz and Orozo Ait may coincide: How Kyrgyzstan plans to mark double holiday**: [Link](https://24.kg/english/364477__Nooruz_and_Orozo_Ait_may_coincide_How_Kyrgyzstan_plans_to_mark_double_holiday/)
+
+
+### ليلة القدر 2026 (N/A, Sun, 8 Mar 2026 12:20:00 -0700)
+
+- **ما أهمية ليلة القدر للمسلمين؟**: [Link](https://altanwer.com/%D9%85%D8%A7-%D8%A3%D9%87%D9%85%D9%8A%D8%A9-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-%D9%84%D9%84%D9%85%D8%B3%D9%84%D9%85%D9%8A%D9%86%D8%9F/)
+- **الفرصة التي لا يُضيّعها إلا غافل محروم!**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D9%81%D8%B1%D8%B5%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D9%84%D8%A7-%D9%8A%D9%8F%D8%B6%D9%8A%D9%91%D8%B9%D9%87%D8%A7-%D8%A5%D9%84%D8%A7-%D8%BA%D8%A7%D9%81%D9%84-%D9%85%D8%AD%D8%B1%D9%88%D9%85)
+- **لكلِّ من أثقلتْه الهموم… توقّف لحظة عن الركض في مشاغل الدنيا، وتنفس بنَسيم القرآن.**: [Link](https://www.facebook.com/EgyptDarAlIfta/posts/%D9%84%D9%83%D9%84%D9%91%D9%90-%D9%85%D9%86-%D8%A3%D8%AB%D9%82%D9%84%D8%AA%D9%92%D9%87-%D8%A7%D9%84%D9%87%D9%85%D9%88%D9%85%D8%AA%D9%88%D9%82%D9%91%D9%81-%D9%84%D8%AD%D8%B8%D8%A9-%D8%B9%D9%86-%D8%A7%D9%84%D8%B1%D9%83%D8%B6-%D9%81%D9%8A-%D9%85%D8%B4%D8%A7%D8%BA%D9%84-%D8%A7%D9%84%D8%AF%D9%86%D9%8A%D8%A7-%D9%88%D8%AA%D9%86%D9%81%D8%B3-%D8%A8%D9%86%D9%8E%D8%B3%D9%8A%D9%85-%D8%A7%D9%84%D9%82%D8%B1%D8%A2%D9%86/1388167886676156/)
+
+
+### fenerbahçe – samsunspor (N/A, Sun, 8 Mar 2026 12:10:00 -0700)
+
+- **Guendouzi Süper Lig'de ilk golünü Samsunspor'a attı**: [Link](https://www.yenicaggazetesi.com/guendouzi-super-ligde-ilk-golunu-samsunspora-atti-1007206h.htm)
+- **Kadıköy'de nefes kesen maç! Fenerbahçe son dakikalarda geri döndü**: [Link](https://www.iha.com.tr/istanbul-haberleri/kadikoyde-nefes-kesen-mac-fenerbahce-son-dakikalarda-geri-dondu-389718715)
+- **Fenerbahçe'de Domenico Tedesco iyileşti, kulübeye döndü! - Fenerbahçe Haberleri**: [Link](https://www.haberturk.com/fenerbahce-de-domenico-tedesco-iyilesti-kulubeye-dondu-3868076-spor)
+
+
 ### ac milan – inter (N/A, Sun, 8 Mar 2026 12:00:00 -0700)
 
 - **AC Milan Vs Inter Milan – Official Starting Lineups: Francesco Pio Esposito & Ange-Yoan Bonny Start**: [Link](https://sports.yahoo.com/articles/ac-milan-vs-inter-milan-183500818.html)
