@@ -1,3 +1,24 @@
+### ac milan – inter (N/A, Sun, 8 Mar 2026 12:00:00 -0700)
+
+- **AC Milan Vs Inter Milan – Official Starting Lineups: Francesco Pio Esposito & Ange-Yoan Bonny Start**: [Link](https://sports.yahoo.com/articles/ac-milan-vs-inter-milan-183500818.html)
+- **AC Milan vs. Inter prediction, where to watch, time for Serie A match**: [Link](https://www.usatoday.com/story/sports/soccer/2026/03/08/where-to-watch-ac-milan-inter-prediction-odds-stream/89049706007/)
+- **Excited Modric invites 60 friends and family to Milan Derby**: [Link](https://football-italia.net/excited-modric-invites-60-friends-milan-derby/)
+
+
+### إشبيلية ضد رايو فاليكانو (N/A, Sun, 8 Mar 2026 11:50:00 -0700)
+
+- **إشبيلية يستعيد فارغاس وخوردان في قائمته لمواجهة رايو فاليكانو**: [Link](https://m.elbotola.com/article/2026-03-07-18-30-106.html)
+- **رايو فاييكانو: حالة شك حول مشاركة باتي إسماعيل سيس في مواجهة إشبيلية**: [Link](https://foot-africa.com/ar/news/%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%AD%D8%A7%D9%84%D8%A9-%D8%B4%D9%83-%D8%AD%D9%88%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A8%D8%A7%D8%AA%D9%8A-%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%B3%D9%8A%D8%B3-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-1115792/)
+- **مدرب إشبيلية يؤكد استدعاء روبن فارغاس لمواجهة رايو فايكانو في الدوري الإسباني**: [Link](https://m.elbotola.com/article/2026-03-06-13-15-464.html)
+
+
+### brest – le havre (N/A, Sun, 8 Mar 2026 11:00:00 -0700)
+
+- **Ligue 1 : Brest enchaîne face au Havre et grimpe au 9e rang**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-del-castillo-et-ajorque-punissent-le-havre-au-meilleur-des-moments/Ec9KnkZF/)
+- **VIDEO : le joli lob de Del Castillo**: [Link](https://news.maxifoot.fr/video/le-joli-lob-de-del-castillo-foot-451683.htm)
+- **PRONOS PARIS RMC Le pari à domicile du 8 mars - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-8-mars-ligue-1_AN-202603070439.html)
+
+
 ### خيتافي ضد ريال بتيس (N/A, Sun, 8 Mar 2026 08:00:00 -0700)
 
 - **بعد الفوز على ريال مدريد.. خيتافي يواصل انتصاراته على حساب بيتيس في الليجا**: [Link](https://www.yallakora.com/la-liga/2982/news/543848/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7)
