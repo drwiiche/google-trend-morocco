@@ -1,3 +1,17 @@
+### lens – metz (N/A, Sun, 8 Mar 2026 07:40:00 -0700)
+
+- **DIRECT. La Ligue 1 et le football européen en live**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-lens-ouvre-le-score-avant-la-pause-suivez-le-football-en-live-sur-flashscore/tM8XCKRG/)
+- **Pierre Sage ne fait finalement pas tourner et aligne le même onze qu'en Coupe de France face à Metz**: [Link](https://www.lequipe.fr/Football/Actualites/Pierre-sage-ne-fait-finalement-pas-tourner-et-aligne-le-meme-onze-qu-en-coupe-de-france-face-a-metz/1657814)
+- **Lens-Metz : à quelle heure et sur quelle chaîne TV suivre le match de la 25e journée de Ligue 1**: [Link](https://www.leparisien.fr/sports/football/ligue-1/lens-metz-a-quelle-heure-et-sur-quelle-chaine-tv-suivre-le-match-de-la-25e-journee-de-ligue-1-08-03-2026-CLDU5Q3EJFDUXCKSGUJTS7TFA4.php)
+
+
+### getafe – betis (N/A, Sun, 8 Mar 2026 07:30:00 -0700)
+
+- **El Betis, a meter la quinta en el Coliseum**: [Link](https://mundobetis.com/2026/03/08/el-betis-a-meter-la-quinta-en-el-coliseum/)
+- **Nueva reválida fuera ante otro equipo de la zona media baja de la tabla**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/nueva-revalida-ante-equipo-zona-media-baja-20260308082832-nts.html)
+- **Pellegrini rota con 7 cambios; Bordalás recupera a Djené y Abqar para su once**: [Link](https://www.infobae.com/espana/agencias/2026/03/08/pellegrini-rota-con-7-cambios-bordalas-recupera-a-djene-y-abqar-para-su-once/)
+
+
 ### عيد المرأة 2026 (N/A, Sun, 8 Mar 2026 05:00:00 -0700)
 
 - **«العطاء لنكسب».. رسائل تهنئة بمناسبة اليوم العالمي للمرأة 2026**: [Link](https://al-ain.com/article/international-womens-day-2026-messages)
