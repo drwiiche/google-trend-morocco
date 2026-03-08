@@ -1,3 +1,10 @@
+### خيتافي ضد ريال بتيس (N/A, Sun, 8 Mar 2026 08:00:00 -0700)
+
+- **بعد الفوز على ريال مدريد.. خيتافي يواصل انتصاراته على حساب بيتيس في الليجا**: [Link](https://www.yallakora.com/la-liga/2982/news/543848/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7)
+- **بيلغريني يؤكد غياب إيسكو عن ريال بيتيس حتى نهاية فترة التوقف الدولي**: [Link](https://m.elbotola.com/article/2026-03-06-11-45-380.html)
+- **خيتافي يفوز على ريال بيتيس بثنائية في الدوري الإسباني**: [Link](https://www.vetogate.com/5610189)
+
+
 ### benfica – porto (N/A, Sun, 8 Mar 2026 10:20:00 -0700)
 
 - **Farioli pode entrar na história do FC Porto já no clássico com o Benfica**: [Link](https://onefootball.com/id/berita/farioli-pode-entrar-na-historia-do-fc-porto-ja-no-classico-com-o-benfica-42525067)
