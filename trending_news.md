@@ -1,3 +1,17 @@
+### متى عيد الفطر 2026 (N/A, Sun, 8 Mar 2026 04:20:00 -0700)
+
+- **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
+- **عدد أيام رمضان وتوقيت صلاة العيد في النصف الثاني من الشهر الفضيل**: [Link](https://www.npa-ar.com/57290/%D8%B9%D8%AF%D8%AF-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%88%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%86/)
+- **الجروان: الجمعة 20 مارس أول أيام عيد الفطر فلكياً | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-03-08/%D8%A7%D9%84%D8%AC%D8%B1%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-20-%D9%85%D8%A7%D8%B1%D8%B3-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%84%D9%83%D9%8A%D8%A7%D9%8B-6348556/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1)
+
+
+### 8 mars 2026 (N/A, Sun, 8 Mar 2026 03:20:00 -0700)
+
+- **Comment la météo amplifie la pollution en Île-de-France, qui se retrouve en alerte**: [Link](https://www.huffingtonpost.fr/environnement/article/comment-la-meteo-amplifie-la-pollution-en-ile-de-france-qui-se-retrouve-en-alerte-rouge_261205.html)
+- **"La vitesse est abaissée de 20 km/h": la préfecture de Seine-Maritime maintient sa procédure d'alerte contre les particules fines**: [Link](https://www.bfmtv.com/normandie/la-vitesse-est-abaissee-de-20-km-h-la-prefecture-de-seine-maritime-maintient-sa-procedure-d-alerte-contre-les-particules-fines_AN-202603070276.html)
+- **Plusieurs régions concernées par des restrictions de circulation après un épisode de pollution aux particules**: [Link](https://www.tf1info.fr/transports/pollution-aux-particules-ile-de-france-hauts-de-france-plusieurs-regions-concernees-par-des-restrictions-de-circulation-2428786.html)
+
+
 ### oliveira vs holloway (N/A, Sat, 7 Mar 2026 17:40:00 -0800)
 
 - **Main Card Results | UFC 326: Holloway vs Oliveira 2**: [Link](https://www.ufc.com/news/ufc-326-results-holloway-vs-oliveira-2-main-card-highlights-winners-interviews)
