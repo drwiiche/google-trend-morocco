@@ -1,3 +1,24 @@
+### fulham – southampton (N/A, Sun, 8 Mar 2026 05:10:00 -0700)
+
+- **FA Cup Fifth Round LIVE: Build-up, team news, score and live text updates**: [Link](https://www.bbc.com/sport/football/live/cvgjpjne9kdt)
+- **Is Fulham vs Southampton on TV? Channel, live stream and kick-off time for FA Cup clash**: [Link](https://www.mirror.co.uk/sport/football/news/fulham-vs-southampton-tv-channel-36821442)
+- **FA Cup Fifth Round Predictions, Predicted XIs, Injury News and Betting Tips — 8 March 2026**: [Link](https://thephrasemaker.com/2026/03/07/fa-cup-fifth-round-predictions-predicted-xis-injury-news-and-betting-tips-8-march-2026/)
+
+
+### عيد الفطر في المغرب 2026 (N/A, Sun, 8 Mar 2026 04:50:00 -0700)
+
+- **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
+- **عدد أيام رمضان وتوقيت صلاة العيد في النصف الثاني من الشهر الفضيل**: [Link](https://www.npa-ar.com/57290/%D8%B9%D8%AF%D8%AF-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%88%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%86/)
+- **الجروان: الجمعة 20 مارس أول أيام عيد الفطر فلكياً | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-03-08/%D8%A7%D9%84%D8%AC%D8%B1%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-20-%D9%85%D8%A7%D8%B1%D8%B3-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%84%D9%83%D9%8A%D8%A7%D9%8B-6348556/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1)
+
+
+### nayef aguerd (N/A, Sun, 8 Mar 2026 00:40:00 -0800)
+
+- **Un baume sur la plaie : l'OM a gagné à Toulouse mais n'a pas reconquis les coeurs**: [Link](https://www.lequipe.fr/Football/Article/Un-baume-sur-la-plaie-a-toulouse-l-om-a-gagne-mais-pas-reconquis-les-coeurs/1657743)
+- **"On était obligé de réagir" : l’OM, une revanche pour revivre**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-on-etait-oblige-de-reagir-une-revanche-contre-toulouse-1-0-et-lom-reprend-des-couleurs_sto23278704/story.shtml)
+- **TFC - OM : Marseille s'impose sans briller et met la pression sur l'OL... Revivez le match avec nous**: [Link](https://www.20minutes.fr/sport/football/ligue-1/4204881-20260307-direct-tfc-om-marseille-revanche-prendre-stadium-suivez-match)
+
+
 ### متى عيد الفطر 2026 (N/A, Sun, 8 Mar 2026 04:20:00 -0700)
 
 - **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
