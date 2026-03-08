@@ -1,3 +1,17 @@
+### getafe vs real betis (N/A, Sun, 8 Mar 2026 08:30:00 -0700)
+
+- **Pellegrini Confirms Isco's Absence for Real Betis Until After International Break**: [Link](https://m.elbotola.com/en/article/2026-03-06-11-45-227.html)
+- **Getafe vs. Real Betis prediction, odds, La Liga picks [3/8/2026]**: [Link](https://www.dimers.com/news/getafe-vs-real-betis-prediction-la-liga-sunday-03-08-2026-ac)
+- **Getafe – Real Betis: A new away test in the Coliseum as the race for fifth tightens (ET)**: [Link](https://www.el-balad.com/16873418)
+
+
+### تهنئة عيد المرأة (N/A, Sun, 8 Mar 2026 05:40:00 -0700)
+
+- **كتب مؤسِّسة في تاريخ النسوية.. من ولستونكرافت إلى المرنيسي**: [Link](https://www.alaraby.co.uk/culture/%D9%83%D8%AA%D8%A8-%D9%85%D8%A4%D8%B3%D9%91%D9%90%D8%B3%D8%A9-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A%D8%A9-%D9%85%D9%86-%D9%88%D9%84%D8%B3%D8%AA%D9%88%D9%86%D9%83%D8%B1%D8%A7%D9%81%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B1%D9%86%D9%8A%D8%B3%D9%8A)
+- **احتجاجات في الأرجنتين.. مظاهر الاحتفال بيوم المرأة العالمي حول العالم**: [Link](https://www.egyptke.com/211163)
+- **«العطاء لنكسب».. رسائل تهنئة بمناسبة اليوم العالمي للمرأة 2026**: [Link](https://al-ain.com/article/international-womens-day-2026-messages)
+
+
 ### lens – metz (N/A, Sun, 8 Mar 2026 07:40:00 -0700)
 
 - **DIRECT. La Ligue 1 et le football européen en live**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-lens-ouvre-le-score-avant-la-pause-suivez-le-football-en-live-sur-flashscore/tM8XCKRG/)
