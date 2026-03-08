@@ -1,3 +1,10 @@
+### رمضان 2026 المغرب (N/A, Sat, 7 Mar 2026 21:20:00 -0800)
+
+- **موعد أذان المغرب في الشرقية اليوم الأحد 8-3-2026**: [Link](https://www.elwatannews.com/news/details/8241026)
+- **دليل المسلم في 17 رمضان: مواقيت الصلاة وأحكام زكاة الفطر**: [Link](https://www.npa-ar.com/55747/%D8%AF%D9%84%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D9%85-%D9%81%D9%8A-17-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D9%88%D8%A3/)
+- **اذان المغرب اليوم.. اعرف هتفطر إمتى 17 رمضان 2026**: [Link](https://www.elbalad.news/6894089)
+
+
 ### formula 1 (N/A, Sat, 7 Mar 2026 20:00:00 -0800)
 
 - **George Russell wins F1's Australian GP as Mercedes goes 1-2**: [Link](https://www.espn.com/racing/story/_/id/48140119/george-russell-wins-f1-australian-gp-mercedes-goes-1-2)
