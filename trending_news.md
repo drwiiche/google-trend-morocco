@@ -1,3 +1,31 @@
+### mojtaba khamenei (N/A, Sun, 8 Mar 2026 14:50:00 -0700)
+
+- **‘Act of defiance’: Iran picks Khamenei’s son to lead as US-Israel attack**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/8/iran-live-israel-bombs-tehran-oil-depots-attacks-on-gulf-states-continue)
+- **Live updates: Iran war news; Tehran names Khamenei’s son new supreme leader**: [Link](https://www.cnn.com/world/live-news/iran-war-us-israel-trump-03-08-26)
+- **Iran Says It’s Close to Naming New Supreme Leader as Attacks on Infrastructure Grow: Live Updates**: [Link](https://www.nytimes.com/live/2026/03/08/world/iran-war-trump-israel-lebanon)
+
+
+### milan ac (N/A, Sun, 8 Mar 2026 14:50:00 -0700)
+
+- **DIRECT. AC Milan-Inter Milan (Serie A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2025-2026/ac-milan-inter-milan-live/673235)
+- **AC Milan : l’incroyable initiative de Luka Modrić avant le derby contre l’Inter**: [Link](https://www.footmercato.net/a476015625069311304-ac-milan-lincroyable-initiative-de-luka-modric-avant-le-derby-contre-linter)
+- **AC Milan-Inter : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/ac-milan-inter-streaming-chaine-tv-et-compos-10282764.html)
+
+
+### milan (N/A, Sun, 8 Mar 2026 14:50:00 -0700)
+
+- **International Women's Day demonstration in Cuernavaca**: [Link](https://www.reutersconnect.com/item/international-womens-day-demonstration-in-cuernavaca/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMkwwS0FJUzdWTw)
+- **Aftermath of an Israeli strike on an apartment in the Ramada Plaza hotel building, in Beirut**: [Link](https://www.reutersconnect.com/item/aftermath-of-an-israeli-strike-on-an-apartment-in-the-ramada-plaza-hotel-building-in-beirut/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMjYwS0FRTDhDUw)
+- **Baden-Wuerttemberg state election**: [Link](https://www.reutersconnect.com/item/baden-wuerttemberg-state-election/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMkgwS0FBUlNNUQ)
+
+
+### ترتيب الدوري الايطالي (N/A, Sun, 8 Mar 2026 14:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة جنوى وروما في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%86%D9%88%D9%89-%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltba709e32b32d40bc)
+- **قدم.. جنوى يلحق هزيمة مفاجئة بروما في الدوري الإيطالي**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%AC%D9%86%D9%88%D9%89-%D9%8A%D9%84%D8%AD%D9%82-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%A8%D8%B1%D9%88%D9%85%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-/3855532)
+- **القنوات الناقلة لمباراة روما ضد جنوى اليوم في الدوري الإيطالي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/210206861597741-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%88%D9%85%D8%A7-%D8%B6%D8%AF-%D8%AC%D9%86%D9%88%D9%89-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
 ### مجتبى خامنئي (N/A, Sun, 8 Mar 2026 14:30:00 -0700)
 
 - **عضو بمجلس الخبراء الإيراني يؤكد انتخاب مرشد جديد**: [Link](https://www.aljazeera.net/news/2026/3/8/%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%AB-%D8%A8%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%84%D9%86)
