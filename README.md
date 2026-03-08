@@ -1,3 +1,31 @@
+### lyon – paris fc (N/A, Sun, 8 Mar 2026 12:40:00 -0700)
+
+- **PREVIEW | Lyon vs Paris FC - team news, lineups, predictions**: [Link](https://sports.yahoo.com/articles/preview-lyon-vs-paris-fc-195000185.html)
+- **Lyon predicted XI v Paris FC: Rémi Himbert to start alongside Endrick**: [Link](https://www.getfootballnewsfrance.com/2026/lyon-predicted-xi-v-paris-fc-remi-himbert-to-start-alongside-endrick/)
+- **LIVE! Olympique Lyon vs Paris FC in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-olympique-lyon-vs-paris-fc-in-ligue-1-on-bein-sports-2026-03-08)
+
+
+### ميلان ضد الإنتر (N/A, Sun, 8 Mar 2026 12:30:00 -0700)
+
+- **ديربي الغضب يحقق إيرادات قياسية غير مسبوقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%BA%D8%B6%D8%A8-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D8%AF%D8%A7%D8%AA-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9/blta16b028d64217754)
+- **تشيفو يستقر على تشكيل الإنتر للديربي ومخيتاريان يعوض تشالهان أوغلو**: [Link](https://m.elbotola.com/article/2026-03-07-19-15-864.html)
+- **5 محاور حاسمة قد تحدد مصير ديربي ميلانو**: [Link](https://www.alaraby.co.uk/sport/5-%D9%85%D8%AD%D8%A7%D9%88%D8%B1-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%82%D8%AF-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D8%B5%D9%8A%D8%B1-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D9%8A%D9%84%D8%A7%D9%86%D9%88)
+
+
+### serie a (N/A, Sun, 8 Mar 2026 12:10:00 -0700)
+
+- **De Rossi: "Speravo di battere la Roma a prescindere dal mio passato"**: [Link](https://www.sportmediaset.mediaset.it/calcio/genoa/de-rossi-speravo-di-battere-la-roma-a-prescindere-dal-mio-passato_109781201-202602k.shtml)
+- **Serie A, 28esimo turno: le formazioni ufficiali di Milan-Inter**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-formazioni-ufficiali-di-milan-inter-allegri-con-leao-pulisic-chivu-con-bonny-esposito/pzof8OvH/)
+- **Genoa-Roma 2-1, le pagelle della partita di Serie A**: [Link](https://sport.sky.it/calcio/serie-a/2026/03/08/genoa-roma-pagelle)
+
+
+### ester expósito (N/A, Sun, 8 Mar 2026 11:10:00 -0700)
+
+- **Salen a la luz imágenes más picantes de Mbappé y Ester Expósito: ¡Expareja de Vinicius!**: [Link](https://www.sport.es/es/noticias/real-madrid/salen-luz-imagenes-picantes-mbappe-127697435)
+- **Se desatan los rumores de que Mbappé y Ester Expósito podrían estar juntos**: [Link](https://www.marca.com/tiramillas/sociedad/2026/03/07/desatan-rumores-mbappe-ester-exposito-podrian.html)
+- **Una cena en París y una foto en las redes desataron rumores de romance entre Ester Expósito y Kylian Mbappé**: [Link](https://tn.com.ar/deportes/futbol/2026/03/08/una-cena-en-paris-y-una-foto-en-las-redes-desataron-rumores-de-romance-entre-ester-exposito-y-kylian-mbappe/)
+
+
 ### ramadan 2026 (N/A, Sun, 8 Mar 2026 12:20:00 -0700)
 
 - **Is it an odd night in Ramadan? Importance of Ramadan's last 10 nights**: [Link](https://www.dispatch.com/story/lifestyle/faith/2026/03/08/odd-night-ramadan-last-10-nights-laylat-al-qadr-eid-al-fitr-come/88999826007/)
