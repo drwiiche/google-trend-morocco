@@ -1,3 +1,24 @@
+### نهضة بركان ضد الدفاع الجديدي (N/A, Sun, 8 Mar 2026 15:30:00 -0700)
+
+- **رئيس نهضة بركان يحفز اللاعبين قبل مواجهة الدفاع الحسني الجديدي**: [Link](https://febrayer.com/1137813.html)
+- **الإصابات تبعتر أوراق الشعباني قبل ملاقاة حسنية أكادير : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%A8%D8%B9%D8%AA%D8%B1-%D8%A3%D9%88%D8%B1%D8%A7%D9%82-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D8%A7%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1/16626)
+- **نهضة بركان يهزم الحسنية في البطولة**: [Link](https://www.hesport.com/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-429554.html)
+
+
+### wydad athletic club (N/A, Sun, 8 Mar 2026 15:20:00 -0700)
+
+- **Le Wydad se déplace à l'Union Touarga privé de plusieurs joueurs, dont Ziyech et Amrabat**: [Link](https://m.elbotola.com/fr/article/2026-03-07-16-45-311.html)
+- **Blessé, Hakim Ziyech absent des prochains matchs du Wydad**: [Link](https://www.lesiteinfo.com/sport/668205-blesse-hakim-ziyech-absent-des-prochains-matchs-du-wydad.html)
+- **WAC : Les Winners dénoncent la règle des 5 % et annoncent leur absence face à l’Union Touarga**: [Link](https://fr.hespress.com/465099-wac-les-winners-denoncent-la-regle-des-5-et-annoncent-leur-absence-face-a-lunion-touarga.html)
+
+
+### alerte neige maroc (N/A, Sun, 8 Mar 2026 15:00:00 -0700)
+
+- **Alerte météo : un début de semaine instable avec pluies, neige et vents soutenus avant une accalmie jeudi**: [Link](https://ledesk.ma/encontinu/alerte-meteo-un-debut-de-semaine-instable-avec-pluies-neige-et-vents-soutenus-avant-une-accalmie-jeudi/)
+- **Alerte météo. Chutes de neige à partir de 1400m dans 15 provinces**: [Link](https://medias24.com/2026/03/08/alerte-meteo-chutes-de-neige-a-partir-de-1400m-dans-15-provinces-1639569/)
+- **Météo : Des chutes de neige attendues mardi et mercredi**: [Link](https://www.leconomiste.com/flash-infos/meteo-des-chutes-de-neige-attendues-mardi-et-mercredi-2/)
+
+
 ### mojtaba khamenei (N/A, Sun, 8 Mar 2026 14:50:00 -0700)
 
 - **‘Act of defiance’: Iran picks Khamenei’s son to lead as US-Israel attack**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/8/iran-live-israel-bombs-tehran-oil-depots-attacks-on-gulf-states-continue)
