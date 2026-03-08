@@ -1,3 +1,10 @@
+### nice – rennes (N/A, Sun, 8 Mar 2026 09:00:00 -0700)
+
+- **Franck Haise revient à Nice avec Rennes deux mois après son départ : «J'ai perdu de l'énergie dans des zones qui n'étaient pas les miennes»**: [Link](https://www.lequipe.fr/Football/Article/Franck-haise-revient-a-nice-avec-rennes-deux-mois-apres-son-depart-j-ai-perdu-de-l-energie-dans-des-zones-qui-n-etaient-pas-les-miennes/1657613)
+- **DIRECT. OGC Nice - Stade Rennais : suivez le match de la 25e journée de Ligue 1 en live**: [Link](https://www.ouest-france.fr/sport/football/ligue-1/direct/direct-ogc-nice-stade-rennais-suivez-le-match-de-la-25e-journee-de-ligue-1-en-live-768110c7-5548-4f88-be9b-018e150c1b65)
+- **Le onze du Gym face à Rennes**: [Link](https://www.ogcnice.com/fr/article/130057/le-onze-du-gym-face-a-rennes.html)
+
+
 ### moody's (N/A, Sun, 8 Mar 2026 07:40:00 -0700)
 
 - **Moody’s raises Morocco’s economic outlook to positive, retains Ba1 rating**: [Link](https://en.hespress.com/133306-moodys-raises-moroccos-economic-outlook-to-positive-retains-ba1-rating.html)
