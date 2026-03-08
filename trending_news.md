@@ -1,3 +1,10 @@
+### مجتبى خامنئي (N/A, Sun, 8 Mar 2026 14:30:00 -0700)
+
+- **عضو بمجلس الخبراء الإيراني يؤكد انتخاب مرشد جديد**: [Link](https://www.aljazeera.net/news/2026/3/8/%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%AB-%D8%A8%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%84%D9%86)
+- **مجلس خبراء القيادة الإيراني يختار مجتبى خامنئي زعيماً جديداً خلفاً لوالده**: [Link](https://www.bbc.com/arabic/live/c24d2l7j133t)
+- **مباشر: مجلس خبراء القيادة يختار مجتبى خامنئي زعيما أعلى جديدا لإيران**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260308-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-450-000-%D9%86%D8%A7%D8%B2%D8%AD-%D9%81%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B6%D8%B1%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A)
+
+
 ### andrés iniesta (N/A, Sun, 8 Mar 2026 12:30:00 -0700)
 
 - **Xavi-Iniesta, todo es posible**: [Link](https://as.com/futbol/internacional/xavi-iniesta-todo-es-posible-f202603-n/)
