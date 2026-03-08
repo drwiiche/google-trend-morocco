@@ -1,3 +1,10 @@
+### formula 1 (N/A, Sat, 7 Mar 2026 20:00:00 -0800)
+
+- **George Russell wins F1's Australian GP as Mercedes goes 1-2**: [Link](https://www.espn.com/racing/story/_/id/48140119/george-russell-wins-f1-australian-gp-mercedes-goes-1-2)
+- **Mercedes' George Russell wins F1 season-opener as polarizing rule change takes effect**: [Link](https://www.nbcnews.com/sports/formula-1/mercedes-george-russell-wins-f1-season-opener-polarizing-rule-change-t-rcna262280)
+- **LIVE COVERAGE: Qualifying in Australia**: [Link](https://www.formula1.com/en/latest/article/live-coverage-qualifying-in-australia-2026.140thrSUo1ciir5j4YX7yE)
+
+
 ### رمضان 2026 (N/A, Sat, 7 Mar 2026 21:10:00 -0800)
 
 - **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
