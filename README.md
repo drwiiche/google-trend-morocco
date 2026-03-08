@@ -1,3 +1,38 @@
+### benfica – porto (N/A, Sun, 8 Mar 2026 10:20:00 -0700)
+
+- **Farioli pode entrar na história do FC Porto já no clássico com o Benfica**: [Link](https://onefootball.com/id/berita/farioli-pode-entrar-na-historia-do-fc-porto-ja-no-classico-com-o-benfica-42525067)
+- **Confira os onzes iniciais de ambas as equipas:**: [Link](https://golo.fm/primeira-liga/classico-da-luz-confira-os-onzes-iniciais-de-ambas-as-equipas/)
+- **Petardos e cânticos: o momento da chegada do Benfica ao Estádio da Luz**: [Link](https://cnnportugal.iol.pt/videos/petardos-e-canticos-o-momento-da-chegada-do-benfica-ao-estadio-da-luz/69ada5400cf21fcd8376cd89)
+
+
+### séville – rayo (N/A, Sun, 8 Mar 2026 10:10:00 -0700)
+
+- **PREVIEW | Sevilla vs Rayo Vallecano - team news, lineups, predictions**: [Link](https://sports.yahoo.com/articles/preview-sevilla-vs-rayo-vallecano-173500088.html)
+- **Rayo Vallecano Aims for Successive Wins Against Sevilla in La Liga Clash**: [Link](https://news.ssbcrack.com/rayo-vallecano-aims-for-successive-wins-against-sevilla-in-la-liga-clash/)
+- **Joaquin Martinez Ouso Nears Sevilla Starting XI Spot Against Rayo Vallecano**: [Link](https://m.elbotola.com/en/article/2026-03-03-13-15-407.html)
+
+
+### genoa – roma (N/A, Sun, 8 Mar 2026 10:10:00 -0700)
+
+- **Champions League Pressure Mounts as Roma Visit Genoa**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/39994/champions-league-pressure-mounts-as-roma-visit-genoa)
+- **Gasperini to give Venturino a chance versus Genoa**: [Link](https://romapress.net/gasperini-to-give-venturino-a-chance-versus-genoa/)
+- **De Rossi: ‘Must put love for Roma aside or I can’t do my job’**: [Link](https://football-italia.net/de-rossi-must-put-love-for-roma-aside-my-job/)
+
+
+### lamine yamal (N/A, Sun, 8 Mar 2026 10:00:00 -0700)
+
+- **Atheltic Club 0-1 Barcelona: Lamine Yamal winner sends Barca four points clear in La Liga**: [Link](https://www.bbc.com/sport/football/live/c78jen9e908t)
+- **Athletic Bilbao vs Barcelona: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/03/281879/athletic-bilbao-vs-barcelona-how-when-to-watch/)
+- **Barcelona Players Demand Fitness Staff Changes Amid Injury Crisis**: [Link](https://m.elbotola.com/en/article/2026-03-05-13-45-56.html)
+
+
+### cristiano ronaldo (N/A, Sun, 8 Mar 2026 08:40:00 -0700)
+
+- **Jesus: "Ronaldo's Injury More Serious Than Expected, He Has Left for Spain for Treatment"**: [Link](http://m.elbotola.com/en/article/2026-03-06-16-10-964.html)
+- **Ronaldo is on the verge of falling from the World Cup, going to Spain during the season... Fatal injury occurs**: [Link](https://www.starnewskorea.com/en/sports/2026/03/08/2026030808464223863)
+- **Cristiano Ronaldo Continues Recovery and Will Support Al Nassr From the Bench**: [Link](https://www.beinsports.com/en-us/soccer/articles/cristiano-ronaldo-continues-recovery-and-will-support-al-nassr-from-the-bench-2026-03-07)
+
+
 ### leeds united – norwich city (N/A, Sun, 8 Mar 2026 09:40:00 -0700)
 
 - **Is Leeds vs Norwich on TV? Channel and live stream info for FA Cup clash**: [Link](https://www.express.co.uk/sport/football/2179703/Leeds-Norwich-TV-FA-Cup-channel-live-stream)
