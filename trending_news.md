@@ -1,3 +1,36 @@
+### international women's day (N/A, Sat, 7 Mar 2026 16:20:00 -0800)
+
+- **International Women’s Day 2026 – Give To Gain**: [Link](https://korfball.sport/international-womens-day-2026-give-to-gain/)
+- **International Women's Day 2026: Balancing the Scales**: [Link](https://womenlovetech.com/international-womens-day-2026-balancing-the-scales/)
+- **How can brands and agencies put their money where their mouth is this IWD?**: [Link](https://www.creativebloq.com/creative-inspiration/how-can-brands-and-agencies-put-their-money-where-their-mouth-is-this-iwd)
+
+
+### اليوم العالمي للمرأة (N/A, Sat, 7 Mar 2026 16:10:00 -0800)
+
+- **هل تتحمل النساء انتظارَ 286 عاماً؟**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D8%A3%D9%8A/5248079-%D9%87%D9%84-%D8%AA%D8%AA%D8%AD%D9%85%D9%84-%D8%A7%D9%84%D9%86%D8%B3%D8%A7%D8%A1-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1%D9%8E-286-%D8%B9%D8%A7%D9%85%D8%A7%D9%8B%D8%9F)
+- **أصل اليوم العالمي للمرأة، 8 مارس.**: [Link](https://www.vietnam.vn/ar/nguon-goc-ngay-quoc-te-phu-nu-8-3)
+- **يوم المرأة العالمي 2026: عروض ممتعة لا تفوّت في باريس**: [Link](https://www.sortiraparis.com/ar/mada-tara-fi-baris/ard-masrahi/guides/271470-ywm-hqwq-almrat-2026-al-rwd-alfnyt-alty-la-yjb-an-tfwtha-fy-barys)
+
+
+### ufc (N/A, Sat, 7 Mar 2026 16:10:00 -0800)
+
+- **The UFC 326 Live Blog**: [Link](https://www.mmacrossfire.com/2026/03/07/the-ufc-326-live-blog/)
+- **Max Holloway told he must avoid MMA’s ‘death trap’ to beat Charles Oliveira at UFC 326**: [Link](https://bloodyelbow.com/2026/03/07/max-holloway-told-he-must-avoid-mmas-death-trap-to-beat-charles-oliveira-at-ufc-326/)
+- **UFC 326 Livestream: How to Watch Max Holloway vs. Charles Oliveira 2 Title Fight Live Online**: [Link](https://variety.com/2026/shopping/news/how-to-watch-ufc-326-holloway-vs-oliveira-2-live-online-free-1236678592/)
+
+
+### elbotola (N/A, Sat, 7 Mar 2026 16:00:00 -0800)
+
+
+
+
+### الجيش الملكي (N/A, Sat, 7 Mar 2026 15:20:00 -0800)
+
+- **التعادل يحسم مواجهة الزمامرة والجيش**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-429957.html)
+- **تشكيلة الجيش أمام نهضة الزمامرة.. المصباحي في حراسة المرمى وخابا يعود لقيادة خط الهجوم رفقة الفحلي**: [Link](https://m.elbotola.com/article/2026-03-07-21-09-530.html)
+- **البطولة الوطنية الاحترافية "إنوي" للقسم الأول لكرة القدم (الدورة 15).. التعادل السلبي يحسم المواجهة بين نهضة الزمامرة وضيفه الجيش الملكي (0-0)**: [Link](https://mapsport.ma/%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D9%84%D9%84%D9%82%D8%B3-258/?lang=ar)
+
+
 ### botola (N/A, Sat, 7 Mar 2026 15:40:00 -0800)
 
 
