@@ -1,3 +1,10 @@
+### فالنسيا ضد ألافيس (N/A, Sun, 8 Mar 2026 15:00:00 -0700)
+
+- **فالنسيا يخطف فوزًا قاتلًا من ألافيس في الليجا**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%8A%D8%AE%D8%B7%D9%81-%D9%81%D9%88%D8%B2%D8%A7-%D9%82%D8%A7%D8%AA%D9%84%D8%A7-%D9%85%D9%86-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-110536)
+- **فالنسيا يقلب الطاولة على ديبورتيفو ألافيس 3-2 في الدوري الإسباني**: [Link](https://www.elbalad.news/6895983)
+- **تعرّف على تفاصيل مباراة فالنسيا ضد ألافيس في الدوري الإسباني بتاريخ 2026/03/08 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%88%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D8%A8%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-2026-03-08)
+
+
 ### wydad ac (N/A, Sun, 8 Mar 2026 15:50:00 -0700)
 
 - **Coupe de la Confédération : calendrier des quarts, choc du Maghreb et effet Ziyech au Wydad**: [Link](https://www.afrik.com/coupe-de-la-confederation-calendrier-des-quarts-choc-du-maghreb-et-effet-ziyech-au-wydad)
