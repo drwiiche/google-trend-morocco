@@ -1,3 +1,38 @@
+### carlos alcaraz (N/A, Sat, 7 Mar 2026 17:10:00 -0800)
+
+- **Alcaraz no tiene rival contra el revés a una mano de Dimitrov y pasa a tercera ronda de Indian Wells**: [Link](https://www.marca.com/tenis/indian-wells/2026/03/08/alcaraz-rival-reves-mano-dimitrov-pasa-tercera-ronda-indian-wells.html)
+- **Horario y dónde ver por televisión el Alcaraz-Rinderknech de tercera ronda en Indian Wells 2026**: [Link](https://espanol.eurosport.com/tenis/horario-donde-ver-alcaraz-rinderknech-tercera-ronda-indian-wells-2026-fecha-enlace-gratis-ver-hoy_sto23278709/story.shtml)
+- **Masters de Indian Wells: Qué debes saber rumbo a la final del torneo de tenis**: [Link](https://www.gq.com.mx/articulo/masters-de-indian-wells-2026-fecha-sede-donde-ver-resultados-final-del-torneo)
+
+
+### 8mars (N/A, Sat, 7 Mar 2026 17:10:00 -0800)
+
+- **[Publictionnaire] Dimanche, c’est le 8-Mars**: [Link](https://factuel.univ-lorraine.fr/article/publictionnaire-dimanche-cest-le-8-mars/)
+- **Une "zone d'occupation féministe" à Évreux pour le 8 mars**: [Link](https://actu.fr/normandie/evreux_27229/une-zone-doccupation-feministe-a-evreux-pour-le-8-mars_63941526.html)
+- **Parcours, programme, perturbations: tout ce qu'il faut savoir sur la manifestation du 8 mars à Bruxelles**: [Link](https://www.bruxellestoday.be/actualite/parcours-programme-perturbations-8-mars.html)
+
+
+### women's day (N/A, Sat, 7 Mar 2026 16:20:00 -0800)
+
+- **Celebrating women’s contribution in times of war and peace | Brief letters**: [Link](https://www.theguardian.com/world/2026/mar/05/celebrating-womens-contribution-in-times-of-war-and-peace)
+- **“How Can There Be Peace Without Us?”**: [Link](https://iwpr.net/global-voices/how-can-there-peace-without)
+- **Podcast: From Brussels to Iran — celebrations and struggles this International Women’s Day**: [Link](https://www.euronews.com/my-europe/2026/03/06/podcast-from-brussels-to-iran-celebrations-and-struggles-this-nternational-womens-day)
+
+
+### journée internationale des droits des femmes (N/A, Sat, 7 Mar 2026 16:10:00 -0800)
+
+- **Droits des femmes : Antonio Guterres prône huit mesures pour un monde plus égalitaire (Tribune)**: [Link](https://lematin.ma/chroniques/droits-des-femmes-antonio-guterres-prone-huit-mesures/333577)
+- **Demain c'est Notre journée ...**: [Link](https://blogs.mediapart.fr/axl650/blog/070326/demain-cest-notre-journee)
+- **« Il y a encore plein de choses à faire bouger » : plus d’un millier de manifestants pour les droits des femmes à Angers**: [Link](https://angers.maville.com/actu/actudet_--il-y-a-encore-plein-de-choses-a-faire-bouger-plus-d-un-millier-de-manifestants-pour-les-droits-des-femmes-a-angers-_fil-7221822_actu.Htm)
+
+
+### ترتيب الدوري المغربي (N/A, Sat, 7 Mar 2026 16:00:00 -0800)
+
+- **النادي المكناسي يفوز على اتحاد طنجة**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-429821.html)
+- **البطولة: الجولة الـ15 تختتم مرحلة الذهاب وسط صراع محتدم على الصدارة – اليوم 24**: [Link](https://alyaoum24.com/2013671.html)
+- **الكوديم يصعد للمركز الثالث والفتح يؤزم وضعية يعقوب المنصور**: [Link](https://www.ahdath.info/article/250286/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D9%83%D9%88%D8%AF%D9%8A%D9%85-%D9%8A%D8%B5%D8%B9%D8%AF-%D9%84%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%8A%D8%A4%D8%B2%D9%85-%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D9%8A%D8%B9%D9%82%D9%88%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1)
+
+
 ### international women's day (N/A, Sat, 7 Mar 2026 16:20:00 -0800)
 
 - **International Women’s Day 2026 – Give To Gain**: [Link](https://korfball.sport/international-womens-day-2026-give-to-gain/)
