@@ -1,3 +1,10 @@
+### andrés iniesta (N/A, Sun, 8 Mar 2026 12:30:00 -0700)
+
+- **Xavi-Iniesta, todo es posible**: [Link](https://as.com/futbol/internacional/xavi-iniesta-todo-es-posible-f202603-n/)
+- **Sampaoli pudo haber sido el elegido de Marruecos**: [Link](https://www.marca.com/futbol/2026/03/08/sampaoli-pudo-haber-sido-elegido-marruecos.html)
+- **Infantino destaca el legado de Regragui con Marruecos**: [Link](https://es.rue20.com/2026/03/07/infantino-destaca-el-legado-de-regragui-con-marruecos/)
+
+
 ### benfica vs porto (N/A, Sun, 8 Mar 2026 11:40:00 -0700)
 
 - **Como assistir ao jogo de hoje entre Benfica e FC Porto pela Liga Portugal: transmissão ao vivo, canal de TV e horário de início**: [Link](https://www.goal.com/br/not%C3%ADcias/como-assistir-ao-jogo-de-hoje-entre-benfica-e-fc-porto-pela-liga-portugal-transmissao-ao-vivo-canal-de-tv-e-horario-de-inicio/blt25f401a132ea263d)
