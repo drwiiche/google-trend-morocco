@@ -1,3 +1,17 @@
+### رمضان 2026 (N/A, Sat, 7 Mar 2026 21:10:00 -0800)
+
+- **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
+- **حسابات فلكية: هذا هو موعد عيد الفطر بالمغرب**: [Link](https://www.telegraphe.ma/%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D9%87%D8%B0%D8%A7-%D9%87%D9%88-%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **البحوث الفلكية تحدد موعد أول أيام عيد الفطر في مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/03/05/%D8%A7%D9%84%D8%A8%D8%AD%D9%88%D8%AB-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%84%D9%80%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9%D9%86%D8%AA-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%88%D9%84-%D8%A7%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+
+
+### f1 live (N/A, Sat, 7 Mar 2026 21:00:00 -0800)
+
+- **LIVE COVERAGE: Qualifying in Australia**: [Link](https://www.formula1.com/en/latest/article/live-coverage-qualifying-in-australia-2026.140thrSUo1ciir5j4YX7yE)
+- **LIVE: F1 Australian Grand Prix updates - Oscar Piastri crashes on way to grid | Live text**: [Link](https://www.motorsport.com/f1/live-text/f1-australian-gp-live-commentary-and-updates-race-day/1126453/)
+- **George Russell vows to 'make hay while the sun shines' after Australian GP pole**: [Link](https://www.espn.com/f1/story/_/id/48130549/george-russell-vows-make-hay-sun-shines-australian-gp-qualifying-pole)
+
+
 ### t-mobile arena (N/A, Sat, 7 Mar 2026 19:00:00 -0800)
 
 - **NHL: Minnesota Wild at Vegas Golden Knights**: [Link](https://www.reutersconnect.com/item/nhl-minnesota-wild-at-vegas-golden-knights/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sXzI4NDI0MzA5)
