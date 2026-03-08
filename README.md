@@ -1,3 +1,31 @@
+### wydad ac (N/A, Sun, 8 Mar 2026 15:50:00 -0700)
+
+- **Coupe de la Confédération : calendrier des quarts, choc du Maghreb et effet Ziyech au Wydad**: [Link](https://www.afrik.com/coupe-de-la-confederation-calendrier-des-quarts-choc-du-maghreb-et-effet-ziyech-au-wydad)
+- **Coupes d’Afrique Interclubs : la VAR fera son entrée en quart de finale**: [Link](https://www.elmoudjahid.dz/fr/sports/coupes-d-afrique-interclubs-la-var-fera-son-entree-en-quart-de-finale-248874)
+- **Le calendrier des quarts de finale dévoilé par la CAF**: [Link](https://www.aps.dz/fr/sports/sport-collectif/mmgdpw9g-le-calendrier-des-quarts-de-finale-devoile-par-la-caf)
+
+
+### wac (N/A, Sun, 8 Mar 2026 15:40:00 -0700)
+
+- **Utah Valley Secures No. 1 Seed in Air Force Reserve WAC Tournament**: [Link](https://gouvu.com/news/2026/3/8/mens-basketball-utah-valley-secures-no-1-seed-in-air-force-reserve-wac-tournament.aspx)
+- **2026 WAC Conference Basketball Tournament Odds & Predictions**: [Link](https://vsin.com/college-basketball/2026-wac-conference-basketball-tournament-odds-predictions/)
+- **2026 Air Force Reserve WAC Women’s Basketball Tournament Bracket Announced**: [Link](https://wacsports.com/news/2026/3/8/basketball-w-2026-air-force-reserve-wac-womens-basketball-tournament-bracket-announced.aspx)
+
+
+### wydad (N/A, Sun, 8 Mar 2026 15:40:00 -0700)
+
+- **Le Wydad se déplace à l'Union Touarga privé de plusieurs joueurs, dont Ziyech et Amrabat**: [Link](https://m.elbotola.com/fr/article/2026-03-07-16-45-311.html)
+- **Blessé, Hakim Ziyech absent des prochains matchs du Wydad**: [Link](https://www.lesiteinfo.com/sport/668205-blesse-hakim-ziyech-absent-des-prochains-matchs-du-wydad.html)
+- **WAC : Les Winners dénoncent la règle des 5 % et annoncent leur absence face à l’Union Touarga**: [Link](https://fr.hespress.com/465099-wac-les-winners-denoncent-la-regle-des-5-et-annoncent-leur-absence-face-a-lunion-touarga.html)
+
+
+### الوداد (N/A, Sun, 8 Mar 2026 15:40:00 -0700)
+
+- **تغييرات كبيرة في تشكيلة الوداد أمام اتحاد تواركة.. حضور أساسي للوافي وبوشواري وبانياغوا حاضر في الهجوم رفقة ناسي وبن يدير**: [Link](https://m.elbotola.com/article/2026-03-08-21-06-75.html)
+- **الوينرز يهاجم نسبة 5% ويؤكد غيابه عن مباراة تواركة لعدم توفره على التذاكر**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D9%86%D8%B3%D8%A8%D8%A9-5-%D9%88%D9%8A%D8%A4%D9%83%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8%D9%87-%D8%B9%D9%86-%D9%85%D8%A8%D8%A7%D8%B1-429966.html)
+- **خسارة الكلاسيكو تدفع بنهاشم لمراجعة أوراقه قبل مواجهة التواركة**: [Link](https://febrayer.com/1137781.html)
+
+
 ### نهضة بركان ضد الدفاع الجديدي (N/A, Sun, 8 Mar 2026 15:30:00 -0700)
 
 - **رئيس نهضة بركان يحفز اللاعبين قبل مواجهة الدفاع الحسني الجديدي**: [Link](https://febrayer.com/1137813.html)
