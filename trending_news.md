@@ -1,3 +1,17 @@
+### leeds united – norwich city (N/A, Sun, 8 Mar 2026 09:40:00 -0700)
+
+- **Is Leeds vs Norwich on TV? Channel and live stream info for FA Cup clash**: [Link](https://www.express.co.uk/sport/football/2179703/Leeds-Norwich-TV-FA-Cup-channel-live-stream)
+- **FORMER BOSS FARKE WARY OF CANARIES**: [Link](https://www.pressreader.com/uk/the-football-league-paper/20260308/281938844413243)
+- **Krul’s Message to Norwich: "Build Your Own Story" at Elland Road**: [Link](https://readnorwich.com/2026/03/08/tim-krul-tells-city-to-believe-at-elland-road-go-there-with-real-confidence)
+
+
+### lille – lorient (N/A, Sun, 8 Mar 2026 09:40:00 -0700)
+
+- **Olivier Giroud absent de dernière minute pour la rencontre entre Lille et Lorient ce dimanche**: [Link](https://www.lequipe.fr/Football/Actualites/Olivier-giroud-absent-de-derniere-minute-pour-lille-lorient/1657822)
+- **Bruno Genesio redoute le piège du FC Lorient**: [Link](https://madeindogues.ouest-france.fr/infos/article-losc-bruno-genesio-redoute-le-piege-du-fc-lorient-515239.html)
+- **Ligue 1 : Enorme coup dur à encaisser pour Lorient…**: [Link](https://www.sport.fr/football/ligue-1-enorme-coup-dur-a-encaisser-pour-lorient-1429352.shtm)
+
+
 ### nice – rennes (N/A, Sun, 8 Mar 2026 09:00:00 -0700)
 
 - **Franck Haise revient à Nice avec Rennes deux mois après son départ : «J'ai perdu de l'énergie dans des zones qui n'étaient pas les miennes»**: [Link](https://www.lequipe.fr/Football/Article/Franck-haise-revient-a-nice-avec-rennes-deux-mois-apres-son-depart-j-ai-perdu-de-l-energie-dans-des-zones-qui-n-etaient-pas-les-miennes/1657613)
