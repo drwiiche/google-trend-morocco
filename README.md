@@ -1,3 +1,10 @@
+### benfica vs porto (N/A, Sun, 8 Mar 2026 11:40:00 -0700)
+
+- **Como assistir ao jogo de hoje entre Benfica e FC Porto pela Liga Portugal: transmissão ao vivo, canal de TV e horário de início**: [Link](https://www.goal.com/br/not%C3%ADcias/como-assistir-ao-jogo-de-hoje-entre-benfica-e-fc-porto-pela-liga-portugal-transmissao-ao-vivo-canal-de-tv-e-horario-de-inicio/blt25f401a132ea263d)
+- **Confira os onzes iniciais de ambas as equipas:**: [Link](https://golo.fm/primeira-liga/classico-da-luz-confira-os-onzes-iniciais-de-ambas-as-equipas/)
+- **Mourinho faz três alterações no Benfica, Farioli com nova ‘revolução’ no FC Porto**: [Link](https://www.correiodamanhacanada.com/mourinho-faz-tres-alteracoes-no-benfica-farioli-com-nova-revolucao-no-fc-porto/)
+
+
 ### lyon – paris fc (N/A, Sun, 8 Mar 2026 12:40:00 -0700)
 
 - **PREVIEW | Lyon vs Paris FC - team news, lineups, predictions**: [Link](https://sports.yahoo.com/articles/preview-lyon-vs-paris-fc-195000185.html)
