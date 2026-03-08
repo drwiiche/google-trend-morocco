@@ -1,3 +1,17 @@
+### villarreal – elche (N/A, Sun, 8 Mar 2026 05:20:00 -0700)
+
+- **Misma necesidad de victoria para distintos objetivos**: [Link](https://es-us.noticias.yahoo.com/deportes/necesidad-victoria-distintos-objetivos-125500750.html)
+- **Marín y Buchanan regresan en el Villarreal ante un Elche con cuatro novedades**: [Link](https://www.infobae.com/espana/agencias/2026/03/08/marin-y-buchanan-regresan-en-el-villarreal-ante-un-elche-con-cuatro-novedades/)
+- **Eder Sarabia habla sobre el Villarreal vs Elche**: [Link](https://www.mundodeportivo.com/videos/futbol/20260308/1004148216/eder-sarabia-habla-sobre-villarreal-vs-elche.html)
+
+
+### عيد الفطر المبارك (N/A, Sun, 8 Mar 2026 05:10:00 -0700)
+
+- **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
+- **عدد أيام رمضان وتوقيت صلاة العيد في النصف الثاني من الشهر الفضيل**: [Link](https://www.npa-ar.com/57290/%D8%B9%D8%AF%D8%AF-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%88%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%86/)
+- **الجروان: الجمعة 20 مارس أول أيام عيد الفطر فلكياً | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-03-08/%D8%A7%D9%84%D8%AC%D8%B1%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-20-%D9%85%D8%A7%D8%B1%D8%B3-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%84%D9%83%D9%8A%D8%A7%D9%8B-6348556/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1)
+
+
 ### fulham – southampton (N/A, Sun, 8 Mar 2026 05:10:00 -0700)
 
 - **FA Cup Fifth Round LIVE: Build-up, team news, score and live text updates**: [Link](https://www.bbc.com/sport/football/live/cvgjpjne9kdt)
