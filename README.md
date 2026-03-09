@@ -1,3 +1,17 @@
+### heure france (N/A, Mon, 9 Mar 2026 02:00:00 -0700)
+
+- **Vers une "arnaque de grande ampleur"? La colère de centaines de fans français, privés du match Ecosse-France à Murrayfield**: [Link](https://rmcsport.bfmtv.com/rugby/xv-de-france/vers-une-arnaque-de-grande-ampleur-la-colere-de-centaines-de-fans-francais-prives-du-match-ecosse-france-a-murrayfield_AV-202603080275.html)
+- **Défaite cinglante, Dupont sorti trop tard, mental fragile... Une débâcle en Écosse qui pose questions**: [Link](https://www.lequipe.fr/Rugby/Article/Defaite-cinglante-dupont-sorti-trop-tard-mentalite-fragile-une-debacle-en-ecosse-qui-pose-un-certain-nombre-de-questions/1657872)
+- **Écosse-France : les raisons de la vive réaction d’Antoine Dupont envers Ben White**: [Link](https://www.lefigaro.fr/sports/rugby/6-nations/ecosse-france-la-vive-reaction-d-antoine-dupont-envers-ben-white-20260308)
+
+
+### aid el fitr 2026 maroc (N/A, Mon, 9 Mar 2026 01:30:00 -0700)
+
+- **La date de l’Aïd el-Fitr 2026 est connue en France (elle sera commune)**: [Link](https://www.bladi.net/date-aid-el-fitr-connue-france-sera-commune,119912.html)
+- **La Cité des Sciences de Tunis annonce le premier jour de l’Aïd al-Fitr**: [Link](https://www.lapresse.tn/2026/03/06/cite-des-sciences-de-tunis-annonce-le-premier-jour-de-laid-al-fitr/)
+- **Approvisionnement et permanence pendant l’Aïd : Le wali d’Alger veille à la continuité de service - Actualités**: [Link](https://www.lesoirdalgerie.com/actualites/le-wali-d-alger-veille-a-la-continuite-de-service-148080)
+
+
 ### ramadan (N/A, Sun, 8 Mar 2026 22:40:00 -0700)
 
 - **We Asked Food Influencers For Their Favourite Eftekasa This Ramadan**: [Link](https://cairoscene.com/Eats/We-Asked-Food-Influencers-For-Their-Favourite-Eftekasa-This-Ramadan)
