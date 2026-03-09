@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Mon, 9 Mar 2026 11:50:00 -0700)
+
+- **Djokovic battles through as Alcaraz starts flawlessly at Indian Wells**: [Link](https://www.beinsports.com/en-nz/tennis/articles/djokovic-battles-through-as-alcaraz-starts-flawlessly-at-indian-wells-2026-03-08)
+- **Highlights: Novak Djokovic recovers to beat Kamil Majchrzak and making winning start at Indian Wells**: [Link](https://www.tntsports.co.uk/tennis/atp-indian-wells/2026/highlights-djokovic-recovers-to-making-winning-start-at-indian-wells_vid60062051/video.shtml)
+- **Alcaraz cruises into Indian Wells third round, Djokovic fights through**: [Link](https://www.dawn.com/news/1979960/alcaraz-cruises-into-indian-wells-third-round-djokovic-fights-through)
+
+
 ### gta 6 (N/A, Mon, 9 Mar 2026 09:40:00 -0700)
 
 - **Will GTA 6 Be Delayed Again? Speculation Rises After Jailed Hacker Arion Kurtaj Claims 'Stolen Source Code' May Leak**: [Link](https://sundayguardianlive.com/tech-news/will-gta-6-be-delayed-again-speculation-rises-after-jailed-hacker-2022-rockstar-hack-arion-kurtaj-claims-stolen-source-code-may-leak-175089/)
