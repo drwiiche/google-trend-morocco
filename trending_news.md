@@ -1,3 +1,10 @@
+### esmail qaani (N/A, Sun, 8 Mar 2026 18:00:00 -0700)
+
+- **Speculation grows over possible execution of Iranian general for espionage**: [Link](https://www.france24.com/en/speculation-grows-over-possible-execution-of-iranian-general-for-espionage)
+- **Sensi Media(@Shamim-Alom)'s insights**: [Link](https://www.binance.com/en/square/post/298806091809281)
+- **Who is Esmail Qaani, and was Iran's top military leader a spy? Reports raise questions about IRGC Quds For**: [Link](https://m.economictimes.com/news/international/us/who-is-esmail-qaani-and-was-irans-top-military-leader-a-spy-reports-raise-questions-about-irgc-quds-force-chief/articleshow/129235527.cms)
+
+
 ### botola classement (N/A, Sun, 8 Mar 2026 17:00:00 -0700)
 
 - **Botola: Raja Extend Lead, Maghreb Fes Rise to Second, AS FAR Held Back**: [Link](https://www.moroccoworldnews.com/2026/03/281977/botola-raja-extend-lead-maghreb-fes-rise-to-second-as-far-held-back/)
