@@ -1,3 +1,10 @@
+### prix du baril (N/A, Sun, 8 Mar 2026 22:50:00 -0700)
+
+- **Le blocage du détroit d’Ormuz menace de fortes perturbations le marché des engrais et les importations agricoles au Moyen-Orient**: [Link](https://www.lemonde.fr/economie/article/2026/03/08/le-blocage-du-detroit-d-ormuz-menace-de-fortes-perturbations-le-marche-des-engrais-et-les-importations-agricoles-au-moyen-orient_6670011_3234.html)
+- **Face au pétrole à 100 dollars, Trump relativise et tacle les « imbéciles »**: [Link](https://www.20minutes.fr/monde/etats-unis/4205105-20260309-guerre-iran-face-petrole-plus-100-dollars-trump-relativise-tacle-imbeciles)
+- **"Exposer les gens à devenir des cibles faciles": Washington met 20 milliards de dollars sur la table pour assurer les bateaux qui s'aventuraient dans le détroit d'Ormuz**: [Link](https://www.bfmtv.com/economie/international/washington-presente-un-plan-a-20-milliards-de-dollars-pour-essayer-de-debloquer-le-trafic-dans-le-detroit-d-ormuz-et-calmer-la-hausse-des-prix-du-petrole_AV-202603070303.html)
+
+
 ### heure france (N/A, Mon, 9 Mar 2026 02:00:00 -0700)
 
 - **Vers une "arnaque de grande ampleur"? La colère de centaines de fans français, privés du match Ecosse-France à Murrayfield**: [Link](https://rmcsport.bfmtv.com/rugby/xv-de-france/vers-une-arnaque-de-grande-ampleur-la-colere-de-centaines-de-fans-francais-prives-du-match-ecosse-france-a-murrayfield_AV-202603080275.html)
