@@ -1,3 +1,29 @@
+### تاريخ اليوم (N/A, Sun, 8 Mar 2026 21:30:00 -0700)
+
+- **سباق الطاعات في 17 رمضان.. تعرف على تاريخ اليوم الهجري والميلادي بالتفصيل**: [Link](https://www.matnnews.com/272835)
+- **فلكيا..هذا آخر أيام شهر رمضان وموعد عيد الفطر 2026**: [Link](https://www.eldjazaireldjadida.dz/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-8/)
+- **«والله لسه بدري يا شهر الصيام».. النهارده كام رمضان في مصر؟**: [Link](https://www.elwatannews.com/news/details/8240526)
+
+
+### ليلة القدر (N/A, Sun, 8 Mar 2026 19:20:00 -0700)
+
+- **الفرصة التي لا يُضيّعها إلا غافل محروم! – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D9%81%D8%B1%D8%B5%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D9%84%D8%A7-%D9%8A%D9%8F%D8%B6%D9%8A%D9%91%D8%B9%D9%87%D8%A7-%D8%A5%D9%84%D8%A7-%D8%BA%D8%A7%D9%81%D9%84-%D9%85%D8%AD%D8%B1%D9%88%D9%85)
+- **تعرف على ليالي شهر رمضان الوترية.. الإفتاء توضح**: [Link](https://darelhilal.com/News/3192780.aspx)
+- **ما أهمية ليلة القدر للمسلمين؟**: [Link](https://altanwer.com/%D9%85%D8%A7-%D8%A3%D9%87%D9%85%D9%8A%D8%A9-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-%D9%84%D9%84%D9%85%D8%B3%D9%84%D9%85%D9%8A%D9%86%D8%9F/)
+
+
+### resultat loto fdj (N/A, Sun, 8 Mar 2026 19:00:00 -0700)
+
+
+
+
+### botola (N/A, Sun, 8 Mar 2026 17:00:00 -0700)
+
+- **Significant Changes in Wydad Lineup Against Ittihad Touarga: El Ouafi, Bouchouari Start, Paniagua Leads Attack with Nassi and Benyadir**: [Link](https://m.elbotola.com/en/article/2026-03-08-21-06-729.html)
+- **Wydad Faces Touarga Without Key Players, Including Ziyech and Amrabat**: [Link](https://m.elbotola.com/en/article/2026-03-07-16-45-293.html)
+- **Wydad Faces Union Touarga in Crucial Match for Benhachem's Future**: [Link](https://m.elbotola.com/en/article/2026-03-06-22-59-932.html)
+
+
 ### haaland (N/A, Sun, 8 Mar 2026 18:50:00 -0700)
 
 - **Joe Cole explains why Chelsea star Joao Pedro is different to Man City’s Erling Haaland**: [Link](https://www.thechelseachronicle.com/news/joe-cole-explains-why-chelsea-star-joao-pedro-is-different-to-man-citys-erling-haaland/)
