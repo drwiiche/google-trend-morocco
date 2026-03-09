@@ -1,3 +1,38 @@
+### haaland (N/A, Sun, 8 Mar 2026 18:50:00 -0700)
+
+- **Joe Cole explains why Chelsea star Joao Pedro is different to Man City’s Erling Haaland**: [Link](https://www.thechelseachronicle.com/news/joe-cole-explains-why-chelsea-star-joao-pedro-is-different-to-man-citys-erling-haaland/)
+- **Rosenior believes 'world-class' Joao Pedro can become even better | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/rosenior-believes-world-class-joao-pedro-can-become-even-better)
+- **'Captain without armband': Joao Pedro grows into leadership role at Chelsea**: [Link](https://tribuna.com/en/news/2026-03-08-captain-without-armband-joao-pedro-grows-into-leadership-role-at-chelsea/)
+
+
+### الوداد اليوم (N/A, Sun, 8 Mar 2026 17:10:00 -0700)
+
+- **مدرب الوداد السابق ينضم لمساعدة وهبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D9%86%D8%B6%D9%85-%D9%84%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D8%A9-%D9%88%D9%87%D8%A8%D9%8A/bltb18b89eb8c0919ec)
+- **ساكرامنتو: الانضمام لـ"الأسود" شرف**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%83%D8%B1%D8%A7%D9%85%D9%86%D8%AA%D9%88-%D8%A7%D9%84%D8%A7%D9%86%D8%B6%D9%85%D8%A7%D9%85-%D9%84%D9%80%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%B4%D8%B1%D9%81-1712292.html)
+- **الركراكي يتلقى رسالة مفاجئة من جياني إنفانتينو**: [Link](https://www.radiomars.ma/%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7/)
+
+
+### ترتيب البطولة المغربية (N/A, Sun, 8 Mar 2026 17:00:00 -0700)
+
+- **الحارس البديل للكوديم سفيان الطاهر يصنع الفارق كرجل مباراة**: [Link](https://www.ahdath.info/article/250292/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D8%A8%D8%AF%D9%8A%D9%84-%D9%84%D9%84%D9%83%D9%88%D8%AF%D9%8A%D9%85-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D8%B7%D8%A7%D9%87%D8%B1-%D9%8A%D8%B5%D9%86%D8%B9-%D8%A7%D9%84%D9%81%D8%A7%D8%B1%D9%82-%D9%83%D8%B1%D8%AC%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9)
+- **البطولة: الجولة الـ15 تختتم مرحلة الذهاب وسط صراع محتدم على الصدارة – اليوم 24**: [Link](https://alyaoum24.com/2013671.html)
+- **النادي المكناسي بأفضل إنجاز منذ التتويج**: [Link](https://www.almountakhab.com/node/13223343)
+
+
+### match (N/A, Sun, 8 Mar 2026 17:00:00 -0700)
+
+- **Welcome to Sunday: Live updates from the BNP Paribas Open including Eala-Gauff**: [Link](https://www.desertsun.com/live-story/sports/tennis/bnp/2026/03/06/live-updates-of-jannik-sinner-coco-gauff-alexandra-eala-in-action-friday-in-indian-wells/89020276007/)
+- **Alex Eala reaches Indian Wells Ro16 as Coco Gauff retires**: [Link](https://www.espn.com/tennis/story/_/id/48149413/alex-eala-reaches-indian-wells-round-16-coco-gauff-retires)
+- **Eala Advances As Gauff Retires Due To Injury**: [Link](https://bnpparibasopen.com/news/eala-advances-gauff-retires)
+
+
+### wac vs touarga (N/A, Sun, 8 Mar 2026 16:10:00 -0700)
+
+- **Significant Changes in Wydad Lineup Against Ittihad Touarga: El Ouafi, Bouchouari Start, Paniagua Leads Attack with Nassi and Benyadir**: [Link](https://m.elbotola.com/en/article/2026-03-08-21-06-729.html)
+- **Wydad Faces Touarga Without Key Players, Including Ziyech and Amrabat**: [Link](https://m.elbotola.com/en/article/2026-03-07-16-45-293.html)
+- **Wydad Faces Union Touarga in Crucial Match for Benhachem's Future**: [Link](https://m.elbotola.com/en/article/2026-03-06-22-59-932.html)
+
+
 ### botola pro (N/A, Sun, 8 Mar 2026 17:10:00 -0700)
 
 - **Significant Changes in Wydad Lineup Against Ittihad Touarga: El Ouafi, Bouchouari Start, Paniagua Leads Attack with Nassi and Benyadir**: [Link](https://m.elbotola.com/en/article/2026-03-08-21-06-729.html)
