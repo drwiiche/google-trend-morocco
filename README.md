@@ -1,3 +1,10 @@
+### منصة المسطرة الغيابية (N/A, Sun, 8 Mar 2026 17:50:00 -0700)
+
+- **أزيد من 625 "روشيرشي".. وزارة العدل تنشر لائحتهم وتدعوهم لتسليم أنفسهم**: [Link](https://ar.telquel.ma/%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-625-%D8%B1%D9%88%D8%B4%D9%8A%D8%B1%D8%B4%D9%8A-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D9%86%D8%B4%D8%B1-%D9%84%D8%A7%D8%A6/)
+- **​بضغطة زر.. وزارة العدل ترفع الستار عن لائحة المبحوث عنهم بالمغرب!..**: [Link](https://le12.ma/%D8%A8%D8%B6%D8%BA%D8%B7%D8%A9-%D8%B2%D8%B1-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%B3%D8%AA%D8%A7%D8%B1-%D8%B9%D9%86-%D9%84/)
+- **إطلاق منصة رقمية لتسهيل الوصول إلى الفارين من العدالة "روشيرشي"**: [Link](https://rue20.com/984699.html)
+
+
 ### prix du baril (N/A, Sun, 8 Mar 2026 22:50:00 -0700)
 
 - **Le blocage du détroit d’Ormuz menace de fortes perturbations le marché des engrais et les importations agricoles au Moyen-Orient**: [Link](https://www.lemonde.fr/economie/article/2026/03/08/le-blocage-du-detroit-d-ormuz-menace-de-fortes-perturbations-le-marche-des-engrais-et-les-importations-agricoles-au-moyen-orient_6670011_3234.html)
