@@ -1,3 +1,10 @@
+### botola classement (N/A, Sun, 8 Mar 2026 17:00:00 -0700)
+
+- **Botola: Raja Extend Lead, Maghreb Fes Rise to Second, AS FAR Held Back**: [Link](https://www.moroccoworldnews.com/2026/03/281977/botola-raja-extend-lead-maghreb-fes-rise-to-second-as-far-held-back/)
+- **Raja Fans Await Clarification from Club Management Following Olympic Safi Match Incidents**: [Link](https://m.elbotola.com/en/article/2026-03-08-21-18-181.html)
+- **Botola Pro 1: Raja Athletic Club coach Fadlu Davids demands more from players after win against Olympique Safi**: [Link](https://africasoccer.com/botola-pro-1-raja-athletic-club-coach-fadlu-davids-demands-more-from-players-after-win-against-olympique-safi/)
+
+
 ### منصة المسطرة الغيابية (N/A, Sun, 8 Mar 2026 17:50:00 -0700)
 
 - **أزيد من 625 "روشيرشي".. وزارة العدل تنشر لائحتهم وتدعوهم لتسليم أنفسهم**: [Link](https://ar.telquel.ma/%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-625-%D8%B1%D9%88%D8%B4%D9%8A%D8%B1%D8%B4%D9%8A-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D9%86%D8%B4%D8%B1-%D9%84%D8%A7%D8%A6/)
