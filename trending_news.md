@@ -1,3 +1,17 @@
+### nicolas sarkozy (N/A, Mon, 9 Mar 2026 16:30:00 -0700)
+
+- **Confusion des peines : la requête de Nicolas Sarkozy refusée**: [Link](https://www.lefigaro.fr/actualite-france/confusion-des-peines-la-requete-de-nicolas-sarkozy-refusee-20260309)
+- **Nicolas Sarkozy devra purger sa peine ferme (mais aménageable) dans l’affaire Bygmalion**: [Link](https://www.20minutes.fr/justice/4205299-20260309-tribunal-decide-nicolas-sarkozy-doit-purger-peine-ferme)
+- **Affaire Bygmalion: Nicolas Sarkozy devra purger 6 mois de prison ferme**: [Link](https://www.7sur7.be/monde/nicolas-sarkozy-devra-purger-6-mois-de-prison-ferme~a26e317e/)
+
+
+### météo pour demain (N/A, Mon, 9 Mar 2026 14:20:00 -0700)
+
+- **Météo : le modèle européen confirme un profond changement de temps à partir de cette date en France. Nos prévisions**: [Link](https://www.tameteo.com/actualites/previsions/meteo-le-modele-europeen-confirme-un-profond-changement-de-temps-a-partir-de-cette-date-en-france-nos-previsions-cartes.html)
+- **Météo : Retour de l'hiver avec neige et froid en fin de semaine ! 09/03/2026**: [Link](https://www.meteo-paris.com/actualites/meteo-changement-radical-en-fin-de-semaine)
+- **La météo du 10 mars : ciel couvert et douceur persistante**: [Link](https://www.lefigaro.fr/meteo/la-meteo-du-10-mars-ciel-couvert-et-douceur-persistante-20260309)
+
+
 ### jacob kiplimo (N/A, Mon, 9 Mar 2026 12:30:00 -0700)
 
 - **Ugandan Breaks Half-Marathon World Record With Pace That Doesn't Seem Humanly Possible**: [Link](https://www.outkick.com/sports/half-marathon-world-record-broken-jacob-kiplimo-pace)
