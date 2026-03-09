@@ -1,3 +1,24 @@
+### gta 6 (N/A, Mon, 9 Mar 2026 09:40:00 -0700)
+
+- **Will GTA 6 Be Delayed Again? Speculation Rises After Jailed Hacker Arion Kurtaj Claims 'Stolen Source Code' May Leak**: [Link](https://sundayguardianlive.com/tech-news/will-gta-6-be-delayed-again-speculation-rises-after-jailed-hacker-2022-rockstar-hack-arion-kurtaj-claims-stolen-source-code-may-leak-175089/)
+- **Looks Like the GTA VI Leaker Got a Phone in Prison and Made Contact - He Knows Something About the Source Code Leak**: [Link](https://ixbt.games/en/news/2026/03/09/poxoze-slivsii-gta-vi-xaker-dostal-telefon-v-tiurme-i-vysel-na-sviaz-on-koe-cto-znaet-pro-isxodnyi-kod.html)
+- **Imprisoned GTA 6 hacker allegedly using smuggled phone to post more about the game**: [Link](https://www.dexerto.com/gta/imprisoned-gta-6-hacker-allegedly-using-smuggled-phone-to-post-more-about-the-game-3331646/)
+
+
+### baril pétrole (N/A, Mon, 9 Mar 2026 09:40:00 -0700)
+
+- **Le blocage du détroit d’Ormuz menace de fortes perturbations le marché des engrais et les importations agricoles au Moyen-Orient**: [Link](https://www.lemonde.fr/economie/article/2026/03/08/le-blocage-du-detroit-d-ormuz-menace-de-fortes-perturbations-le-marche-des-engrais-et-les-importations-agricoles-au-moyen-orient_6670011_3234.html)
+- **Roland Lescure : « Nous n’avons pas de risque d’approvisionnement, ni en gaz ni en essence... à court terme**: [Link](https://www.leparisien.fr/economie/roland-lescure-sur-la-guerre-de-liran-nous-navons-pas-de-risque-dapprovisionnement-ni-en-gaz-ni-en-essence-a-court-terme-05-03-2026-4CK2OGQSWZCUFNALTBFXVB4YSU.php)
+- **Face au pétrole à 100 dollars, Trump relativise et tacle les « imbéciles »**: [Link](https://www.20minutes.fr/monde/etats-unis/4205105-20260309-guerre-iran-face-petrole-plus-100-dollars-trump-relativise-tacle-imbeciles)
+
+
+### المسطرة الغيابية (N/A, Mon, 9 Mar 2026 07:50:00 -0700)
+
+- **أزيد من 625 "روشيرشي".. وزارة العدل تنشر لائحتهم وتدعوهم لتسليم أنفسهم**: [Link](https://ar.telquel.ma/%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-625-%D8%B1%D9%88%D8%B4%D9%8A%D8%B1%D8%B4%D9%8A-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D9%86%D8%B4%D8%B1-%D9%84%D8%A7%D8%A6/)
+- **إطلاق منصة رقمية جديدة تتيح التبليغ والبحث عن الأشخاص الـ"روشبرشي"**: [Link](https://tanja24.com/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%86%D8%B5%D8%A9-%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%AA%D9%8A%D8%AD-%D8%A7%D9%84%D8%AA%D8%A8%D9%84%D9%8A%D8%BA-%D9%88%D8%A7/)
+- **وزارة العدل تنشر لائحة المبحوث عنهم و تدعو للتبليغ عنهم في منصة رقمية**: [Link](https://ar.hibapress.com/details-708750.html)
+
+
 ### شيرين (N/A, Mon, 9 Mar 2026 07:40:00 -0700)
 
 - **نقل شيرين عبد الوهاب إلى المستشفى وخضوعها لعملية جراحية**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/08/%D9%86%D9%82%D9%84-%D8%B4%D9%8A%D8%B1%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%88%D9%87%D8%A7%D8%A8-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89-%D9%88%D8%AE%D8%B6%D9%88%D8%B9%D9%87%D8%A7-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%AC%D8%B1%D8%A7%D8%AD%D9%8A%D8%A9)
