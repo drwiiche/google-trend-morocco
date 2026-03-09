@@ -1,3 +1,24 @@
+### الطقس غدًا (N/A, Mon, 9 Mar 2026 14:00:00 -0700)
+
+- **الأرصاد تكشف حالة الطقس غدًا في مصر.. أجواء دافئة نهارًا وشبورة كثيفة صباحًا**: [Link](https://www.altreeq.com/530992)
+- **طقس اليوم.. الأرصاد: نشاط رياح وفرص أمطار على تلك المناطق**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=08032026&id=69ae8423-f69d-4524-b7b1-90a503ddb84b)
+- **حالة الطقس اليوم في مصر**: [Link](https://mwlana.com/egypt-news/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-3/)
+
+
+### شهر رمضان 2026 (N/A, Mon, 9 Mar 2026 13:00:00 -0700)
+
+- **هل تختلف ليلة القدر باختلاف المطالع الباحث الشرعي يوضح الأمر**: [Link](https://tawusal.com/9021/%D9%87%D9%84-%D8%AA%D8%AE%D8%AA%D9%84%D9%81-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-%D8%A8%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D9%84%D8%B9-%D8%A7%D9%84/)
+- **الشيخ أبو بكر الجندي يكتب عن: العشر الأواخر من رمضان**: [Link](https://po-news-eg.net/News_Details.aspx?id=96730&Title=%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%A3%D8%A8%D9%88-%D8%A8%D9%83%D8%B1-%D8%A7%D9%84%D8%AC%D9%86%D8%AF%D9%8A-%D9%8A%D9%83%D8%AA%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6-%D8%A7%D9%84%D8%B1%D8%A3%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%85)
+- **النهارده كام رمضان؟.. اعرف موعد الليالي الوترية وليلة القدر**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/9/2954935/%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%B1%D8%AF%D9%87-%D9%83%D8%A7%D9%85-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A7%D8%B9%D8%B1%D9%81-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%84%D9%8A%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D9%88%D8%AA%D8%B1%D9%8A%D8%A9-%D9%88%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1)
+
+
+### atletico mineiro (N/A, Mon, 9 Mar 2026 12:40:00 -0700)
+
+- **‘It’s turned into MMA!’: how a Brazil final descended into anarchy — and 23 red cards - The Athletic**: [Link](https://www.nytimes.com/athletic/7100799/2026/03/09/brazil-fight-red-cards-hulk-cruzeiro-atletico-mineiro/)
+- **Football Madness: The Day the Pitch Turned into a Battleground**: [Link](https://streamlinefeed.co.ke/news/football-madness-23-red-cards-in-violent-clash-in-brazil-final)
+- **This Is How the Atlético Mineiro Goalkeeper’s Face Looked After the Mass Brawl**: [Link](https://www.beinsports.com/en-us/soccer/articles/this-is-how-the-atl%C3%A9tico-mineiro-goalkeeper-s-face-looked-after-the-mass-brawl-2026-03-09)
+
+
 ### طلائع الجيش ضد الأهلي (N/A, Mon, 9 Mar 2026 13:20:00 -0700)
 
 - **بث مباشر لحظة بلحظة: مباراة الأهلي والجيش في الدوري المصري 2026**: [Link](https://al-ain.com/article/el-gaish-vs-al-ahly-epl-match-live-2026)
