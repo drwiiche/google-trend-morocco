@@ -1,3 +1,10 @@
+### طلائع الجيش ضد الأهلي (N/A, Mon, 9 Mar 2026 13:20:00 -0700)
+
+- **بث مباشر لحظة بلحظة: مباراة الأهلي والجيش في الدوري المصري 2026**: [Link](https://al-ain.com/article/el-gaish-vs-al-ahly-epl-match-live-2026)
+- **مباشر مباراة الأهلي ضد طلائع الجيش في الدوري المصري 2025-2026**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%B7%D9%84%D8%A7%D8%A6%D8%B9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%81%D9%8A-%D8%A7/)
+- **الأهلي يمنح محمد عاطف إنجازًا محليًا.. ما علاقة الزمالك؟**: [Link](https://www.almasryalyoum.com/news/details/4218114)
+
+
 ### espanyol – real oviedo (N/A, Mon, 9 Mar 2026 12:20:00 -0700)
 
 - **Manolo González tira con bala: “Que le dejen jugar a fútbol y que la gente que tiene cerca deje de mover las cosas por el lado”**: [Link](https://www.mundodeportivo.com/futbol/rcd-espanyol/20260308/1004148333/manolo-gonzalez-tira-bala-le-dejen-jugar-futbol-gente-cerca-deje-mover-cosas-lado.html)
