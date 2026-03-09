@@ -1,3 +1,10 @@
+### ramadan (N/A, Sun, 8 Mar 2026 22:40:00 -0700)
+
+- **We Asked Food Influencers For Their Favourite Eftekasa This Ramadan**: [Link](https://cairoscene.com/Eats/We-Asked-Food-Influencers-For-Their-Favourite-Eftekasa-This-Ramadan)
+- **The Sikh – A Ramadan Short Story**: [Link](https://muslimmatters.org/2026/03/08/the-sikh-a-ramadan-short-story/)
+- **The Vitamins To Reach For During Ramadan**: [Link](https://www.arabianbusiness.com/t-magazine/food/vitamins-to-reach-for-during-ramadan)
+
+
 ### موعد عيد الفطر بالمغرب (N/A, Sun, 8 Mar 2026 22:40:00 -0700)
 
 - **أول أيام عيد الفطر المبارك 2026 فلكيا.. وهذا موعد الإجازة الرسمية المقبلة**: [Link](https://www.youm7.com/story/2026/3/7/%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-2026-%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%AC%D8%A7%D8%B2%D8%A9/7328609)
