@@ -1,3 +1,10 @@
+### jacob kiplimo (N/A, Mon, 9 Mar 2026 12:30:00 -0700)
+
+- **Ugandan Breaks Half-Marathon World Record With Pace That Doesn't Seem Humanly Possible**: [Link](https://www.outkick.com/sports/half-marathon-world-record-broken-jacob-kiplimo-pace)
+- **Sports: Kiplimo returns to action in Lisbon with World Recor**: [Link](https://www.newvision.co.ug/category/sports/kiplimo-returns-to-action-in-lisbon-with-worl-NV_229277_032026)
+- **Kiplimo sends London warning with Lisbon triumph**: [Link](https://www.monitor.co.ug/uganda/sports/athletics/kiplimo-sends-london-warning-with-lisbon-triumph-5384138)
+
+
 ### weather tomorrow (N/A, Mon, 9 Mar 2026 14:00:00 -0700)
 
 - **Severe Thunderstorm watch issued for these Kentucky counties**: [Link](https://www.whas11.com/article/weather/severe-weather/severe-thunderstorm-watch-kentucky-counties/417-c47d01b1-f72e-4b33-85e9-121e9a3623dc)
