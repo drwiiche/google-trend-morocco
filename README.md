@@ -1,3 +1,10 @@
+### weather tomorrow (N/A, Mon, 9 Mar 2026 14:00:00 -0700)
+
+- **Severe Thunderstorm watch issued for these Kentucky counties**: [Link](https://www.whas11.com/article/weather/severe-weather/severe-thunderstorm-watch-kentucky-counties/417-c47d01b1-f72e-4b33-85e9-121e9a3623dc)
+- **FORECAST: Watching Wednesday for strong to severe storms**: [Link](https://www.wave3.com/2026/03/09/forecast-watching-wednesday-strong-severe-storms/)
+- **FIRST ALERT WEATHER | Chris Bailey looks ahead toward a wild ride**: [Link](https://www.wkyt.com/2026/03/09/first-alert-weather-chris-bailey-looks-ahead-toward-wild-ride/)
+
+
 ### الطقس غدًا (N/A, Mon, 9 Mar 2026 14:00:00 -0700)
 
 - **الأرصاد تكشف حالة الطقس غدًا في مصر.. أجواء دافئة نهارًا وشبورة كثيفة صباحًا**: [Link](https://www.altreeq.com/530992)
