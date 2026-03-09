@@ -1,3 +1,17 @@
+### شيرين (N/A, Mon, 9 Mar 2026 07:40:00 -0700)
+
+- **نقل شيرين عبد الوهاب إلى المستشفى وخضوعها لعملية جراحية**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/08/%D9%86%D9%82%D9%84-%D8%B4%D9%8A%D8%B1%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%88%D9%87%D8%A7%D8%A8-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89-%D9%88%D8%AE%D8%B6%D9%88%D8%B9%D9%87%D8%A7-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%AC%D8%B1%D8%A7%D8%AD%D9%8A%D8%A9)
+- **بعد نقلها إلى المستشفى.. تطورات الحالة الصحية لشيرين عبدالوهاب**: [Link](https://al-ain.com/article/sherine-abdelwahab-hospital-gallbladder-surgery)
+- **نقل شيرين عبد الوهاب للمستشفى: ما السبب؟**: [Link](https://www.alquds.co.uk/%D9%86%D9%82%D9%84-%D8%B4%D9%8A%D8%B1%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%88%D9%87%D8%A7%D8%A8-%D9%84%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89-%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8/)
+
+
+### محاكم (N/A, Mon, 9 Mar 2026 06:40:00 -0700)
+
+- **محاكم طنجة في رمضان… ارتباك وتأجيلات**: [Link](https://assabah.ma/907160.html)
+- **ظروف العمل بالمحكمة الابتدائية بالحسيمة تثير غضب نقابة كتابة الضبط**: [Link](https://dalil-rif.com/permalink/37636.html)
+- **نقابة UNTM في العدل تطالب بتسريع الهيكلة الإدارية للمحاكم – اليوم 24**: [Link](https://alyaoum24.com/2013562.html)
+
+
 ### esmail qaani (N/A, Sun, 8 Mar 2026 18:00:00 -0700)
 
 - **Speculation grows over possible execution of Iranian general for espionage**: [Link](https://www.france24.com/en/speculation-grows-over-possible-execution-of-iranian-general-for-espionage)
