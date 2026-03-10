@@ -1,3 +1,24 @@
+### دعاء العشر الأواخر من رمضان (N/A, Mon, 9 Mar 2026 20:20:00 -0700)
+
+- **ليلة 21 رمضان بدأت في السعودية وغداً في مصر.. هل تختلف ليلة القدر باختلاف المطالع؟**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/9/2955001/%D9%84%D9%8A%D9%84%D8%A9-21-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A8%D8%AF%D8%A3%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%BA%D8%AF%D8%A7-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%87%D9%84-%D8%AA%D8%AE%D8%AA%D9%84%D9%81-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-%D8%A8%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D9%84%D8%B9-)
+- **فضل العشر الأواخر من شهر رمضان المبارك: نفحات إيمانية وفرص عظيمة للطاعات**: [Link](https://mwlana.com/education/%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83/)
+- **الإعلامي أشرف محمود: العشر الأواخر جهاد روحي والسبيل الأمثل للعتق من النار**: [Link](https://www.altreeq.com/531041)
+
+
+### carlos alcaraz (N/A, Mon, 9 Mar 2026 20:00:00 -0700)
+
+- **Carlos Alcaraz - Arthur Rinderknech en directo**: [Link](https://www.marca.com/tenis/indian-wells/carlos-alcaraz-arthur-rinderknech/2026/03/10/04_0405_20260310_97-directo.html)
+- **Espectáculo En El Tenis Mundial Durante El Torneo De Indian Wells 2026**: [Link](https://pausa.mx/espectaculo-en-el-tenis-mundial-durante-el-torneo-de-indian-wells-2026/)
+- **Alcaraz buscará el billete a octavos del Masters 1000 ante un viejo conocido que no ha conseguido ganarle: así puedes verlo**: [Link](https://www.mundodeportivo.com/elrecomendador/deportes/20260309/1004148672/alcaraz-buscara-billete-octavos-masters-1000-viejo-conocido-conseguido-ganarle-asi-puedes-verlo-mkt-movi.html)
+
+
+### ben gvir (N/A, Mon, 9 Mar 2026 18:10:00 -0700)
+
+- **Ben Gvir significantly widens gun license eligibility for Jewish Jerusalemites**: [Link](https://www.timesofisrael.com/ben-gvir-significantly-widens-gun-license-eligibility-for-jewish-jerusalemites/)
+- **Fattouh: Arming settlers in Jerusalem is a serious escalation**: [Link](https://yaffaps.com/en/page-88334.html)
+- **Al-Quds Governorate: Arming Settlers in Al-Quds is Racist Incitement**: [Link](https://www.saba.ye/en/news3662231.htm)
+
+
 ### neige (N/A, Mon, 9 Mar 2026 16:50:00 -0700)
 
 - **Météo: voici les surprises que le mois de mars nous réserve**: [Link](https://www.salutbonjour.ca/2026/03/03/meteo-voici-les-surprises-que-le-mois-de-mars-nous-reserve)
