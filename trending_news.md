@@ -1,3 +1,24 @@
+### neige (N/A, Mon, 9 Mar 2026 16:50:00 -0700)
+
+- **Météo: voici les surprises que le mois de mars nous réserve**: [Link](https://www.salutbonjour.ca/2026/03/03/meteo-voici-les-surprises-que-le-mois-de-mars-nous-reserve)
+- **Jusqu’à 40 cm à venir : déjà des annulations au Bas-Saint-Laurent**: [Link](https://journallesoir.ca/2026/03/09/jusqua-40-cm-a-venir-deja-des-annulations-au-bas-saint-laurent/)
+- **Une tempête hivernale prévue après des records de chaleur**: [Link](https://ici.radio-canada.ca/nouvelle/2236313/meteo-celsius-degres-vents-neige)
+
+
+### وست هام ضد برينتفورد (N/A, Mon, 9 Mar 2026 15:10:00 -0700)
+
+- **وست هام يتأهل لدور الثمانية في كأس الاتحاد الإنجليزي بفوزه بركلات الترجيح على برنتفورد**: [Link](https://www.reuters.com/ar/sports/4BD275M3Q5JTBIJD7XYXO7UVKI-2026-03-09/)
+- **وست هام يحجز آخر بطاقات ربع نهائي كأس الاتحاد الإنجليزي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D9%8A%D8%AD%D8%AC%D8%B2-%D8%A2%D8%AE%D8%B1-%D8%A8%D8%B7%D8%A7%D9%82%D8%A7%D8%AA-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-03-09)
+- **القنوات الناقلة لمباراة وست هام ضد برينتفورد اليوم في كأس الاتحاد الإنجليزي مع الموعد والتشكيلة - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/801658763689200-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D8%B6%D8%AF-%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### lazio – sassuolo (N/A, Mon, 9 Mar 2026 14:10:00 -0700)
+
+- **Preview: Lazio vs Sassuolo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lazio/preview/lazio-vs-sassuolo-prediction-team-news-lineups_593368.html)
+- **💥 Maldini scores first goal for Lazio, Laurienté shines: 1-1 at half-time❗**: [Link](https://onefootball.com/fr/news/maldini-scores-first-goal-for-lazio-lauriente-shines-1-1-at-half-time-42531613)
+- **Lazio lineup confirms squad strains and points toward tougher matches**: [Link](https://www.filmogaz.com/186477)
+
+
 ### nicolas sarkozy (N/A, Mon, 9 Mar 2026 16:30:00 -0700)
 
 - **Confusion des peines : la requête de Nicolas Sarkozy refusée**: [Link](https://www.lefigaro.fr/actualite-france/confusion-des-peines-la-requete-de-nicolas-sarkozy-refusee-20260309)
