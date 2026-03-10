@@ -1,3 +1,17 @@
+### ligue des champions (N/A, Tue, 10 Mar 2026 15:00:00 -0700)
+
+- **Ligue des champions : Liverpool, Barça, Bayern ... Voici le progamme de ce mardi**: [Link](https://fr.hespress.com/465315-ligue-des-champions-liverpool-barca-bayern-voici-le-progamme-de-ce-mardi.html)
+- **Ligue des champions : revanche du PSG face aux Blues, le Real sans Mbappé face à City**: [Link](https://www.france24.com/fr/sports/20260309-ligue-des-champions-revanche-psg-chelsea-le-real-mbappe-face-city)
+- **UEFA Champions League, compos probables des huitièmes de finale aller**: [Link](https://fr.uefa.com/uefachampionsleague/news/02a3-201aa52c823b-b122c0998175-1000--uefa-champions-league-compos-probables-des-huitiemes-de-fi/)
+
+
+### sheffield wednesday – watford (N/A, Tue, 10 Mar 2026 14:00:00 -0700)
+
+- **Sheffield Wednesday Vs Watford: Still’s mini pre-season and the Owls’ last run at Hillsborough**: [Link](https://www.el-balad.com/16876000)
+- **MATCHDAY LIVE: Sheffield Wednesday 1-0 Watford**: [Link](https://www.watfordobserver.co.uk/sport/25925477.matchday-live-sheffield-wednesday-1-0-watford/)
+- **Sheffield Wednesday 1-1 Watford: Vivaldo Semedo strikes late to deny Owls first home win of the season**: [Link](https://www.skysports.com/football/sheff-wed-vs-watford/report/534756)
+
+
 ### bet 365 (N/A, Tue, 10 Mar 2026 14:50:00 -0700)
 
 - **Bet365 bonus code CBSBET365: Get $365 in bonus bets for Spurs-Celtics, Lakers-Timberwolves on Tuesday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-get-365-bonus-bets-spurs-celtics-lakers-timberwolves-tuesday-march-10/)
