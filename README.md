@@ -1,3 +1,10 @@
+### barca vs newcastle (N/A, Tue, 10 Mar 2026 10:50:00 -0700)
+
+- **Eric Garcia is a major doubt for Barcelona’s match against Newcastle**: [Link](https://www.mundodeportivo.com/en/20260310/1004149802/eric-garcia-is-major-doubt-for-barcelona-s-match-against-newcastle.html)
+- **Lewandowski's moment**: [Link](https://www.besoccer.com/new/lewandowskis-moment-1398563)
+- **LIVE: Newcastle United vs Barcelona – Champions League last 16**: [Link](https://www.aljazeera.com/sports/liveblog/2026/3/10/live-newcastle-united-vs-barcelona-champions-league-last-16)
+
+
 ### غلطة سراي ضد ليفربول (N/A, Tue, 10 Mar 2026 10:10:00 -0700)
 
 - **مباشر ليفربول ضد غلطة سراي في دوري أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/10/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
