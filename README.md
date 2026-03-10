@@ -1,3 +1,24 @@
+### غلطة سراي ضد ليفربول (N/A, Tue, 10 Mar 2026 10:10:00 -0700)
+
+- **مباشر ليفربول ضد غلطة سراي في دوري أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/10/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
+- **سلوت: لن نلعب ضد المشجعين.. وهذا السلاح الأخطر لجالطة سراي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B3%D9%84%D9%88%D8%AA-%D9%84%D9%86-%D9%86%D9%84%D8%B9%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%B4%D8%AC%D8%B9%D9%8A%D9%86--%D9%88%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D8%B7%D8%B1-%D9%84%D8%AC%D8%A7%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A/blt73ff5d35b867e0b7)
+- **صلاح على موعد مع رقمين قياسيين في لقاء ليفربول وجالاتا سراي**: [Link](https://www.raialyoum.com/%D8%B5%D9%84%D8%A7%D8%AD-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%B9-%D8%B1%D9%82%D9%85%D9%8A%D9%86-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D9%8A%D9%86-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D9%84/)
+
+
+### galatasaray vs liverpool (N/A, Tue, 10 Mar 2026 10:10:00 -0700)
+
+- **Alisson ruled out of Liverpool Champions League game**: [Link](https://www.thetimes.com/sport/football/article/alisson-injury-liverpool-fc-galatasaray-champions-league-gzqd3d880)
+- **Exclusive: Ben Jacobs to Foot Africa: "Osimhen is happy in Istanbul, and Alisson's absence is a big loss for Liverpool"**: [Link](https://foot-africa.com/en/news/exclusive-ben-jacobs-to-foot-africa-osimhen-is-happy-in-istanbul-and-alissons-absence-is-a-big-loss-for-liverpool-1118279/)
+- **Preview: Liverpool go back to Galatasaray as Round of 16 gets underway**: [Link](https://www.fotmob.com/tr/topnews/26522-preview-liverpool-go-back-galatasaray-round-16-gets-underway?utm_source=fotmob)
+
+
+### galatasaray – liverpool (N/A, Tue, 10 Mar 2026 10:00:00 -0700)
+
+- **İbrahim Hacıosmanoğlu, Galatasaray-Liverpool maçını tribünden izleyecek**: [Link](https://www.yenicaggazetesi.com/ibrahim-haciosmanoglu-galatasaray-liverpool-macini-tribunden-izleyecek-1007830h.htm)
+- **Tir tir titriyorlar! Ali Sami Yen cehennemi Avrupa'nın bir numaralı gündemi oldu**: [Link](https://www.sondakika.com/spor/haber-tir-tir-titriyorlar-ali-sami-yen-cehennemi-19644263/)
+- **Galatasaray, Şampiyonlar Ligi'nde çeyrek finale kalırsa ne kadar kazanacak? | GALATASARAY HABERLERİ**: [Link](https://www.gzt.com/foto-galeri/spor/galatasaray-sampiyonlar-liginde-ceyrek-finale-kalirsa-ne-kadar-kazanacak-galatasaray-haberleri-4022732)
+
+
 ### iran mojtaba khamenei (N/A, Tue, 10 Mar 2026 09:20:00 -0700)
 
 - **Vance and Hegseth attend dignified transfer ceremony – as it happened**: [Link](https://www.theguardian.com/world/live/2026/mar/09/iran-war-live-updates-new-supreme-leader-mojtaba-khamenei-oil-prices-soar)
