@@ -1,3 +1,45 @@
+### atalanta – bayern (N/A, Tue, 10 Mar 2026 12:20:00 -0700)
+
+- **Rummenigge tells Bayern: Don’t make the same Man City ‘mistake’ against Atalanta**: [Link](https://football-italia.net/rummenigge-bayern-no-same-mistake-man-city/)
+- **Should Jamal Musiala start vs. Atalanta in the Champions League?**: [Link](https://sports.yahoo.com/articles/jamal-musiala-start-vs-atalanta-100000813.html)
+- **„Don’t underestimate them!“: Rummenigge warns of Bundesliga fright Bergamo**: [Link](https://fcbinside.com/2026/03/10/dont-underestimate-them-rummenigge-warns-of-bundesliga-fright-bergamo/)
+
+
+### newcastle – barcelone (N/A, Tue, 10 Mar 2026 12:10:00 -0700)
+
+- **Barça : énorme danger pour Lamine Yamal contre Newcastle**: [Link](https://www.onzemondial.com/ligue-des-champions/barca-enorme-danger-pour-lamine-yamal-contre-newcastle-982490)
+- **Ligue des champions: Newcastle-Barcelone, le souffle de l'histoire à St James' Park**: [Link](https://information.tv5monde.com/sport/ligue-des-champions-newcastle-barcelone-le-souffle-de-lhistoire-st-james-park-2812977)
+- **Le Barça sans Eric Garcia contre Newcastle, Ronald Araujo titularisé en 8es de finale de la Ligue des champions**: [Link](https://www.lequipe.fr/Football/Actualites/Le-barca-sans-eric-garcia-contre-newcastle-ronald-araujo-titularise-en-8es-de-finale-de-la-ligue-des-champions/1658412)
+
+
+### نيوكاسل يونايتد ضد برشلونة (N/A, Tue, 10 Mar 2026 12:10:00 -0700)
+
+- **ضربة جديدة تربك حسابات فليك قبل صدام نيوكاسل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B1%D8%A8%D9%83-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D9%81%D9%84%D9%8A%D9%83-%D9%82%D8%A8%D9%84-%D8%B5%D8%AF%D8%A7%D9%85-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/blt61cd78d45dab0a99)
+- **بيدري أساسيا أمام نيوكاسل.. تغييرات بالجملة في دفاع وهجوم برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%AF%D8%B1%D9%8A-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D8%A7--%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%AC%D9%85%D9%84%D8%A9-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/bltd0e144be8b291764)
+- **الذكاء الاصطناعي يتوقع الفائز من مباراة برشلونة ونيوكاسل**: [Link](https://hihi2.com/2026/03/10/p3683736.html)
+
+
+### newcastle vs barcelona (N/A, Tue, 10 Mar 2026 12:10:00 -0700)
+
+- **Newcastle - Barcelona hoy, en directo: ida de octavos de Champions League, última hora en vivo**: [Link](https://as.com/futbol/champions/newcastle-barcelona-en-directo-ultima-hora-de-la-champions-league-hoy-en-vivo-f202603-d/)
+- **El Barça detiene la venta de entradas para la vuelta de la Champions para evitar una invasión de ingleses**: [Link](https://www.marca.com/futbol/barcelona/2026/03/09/barca-detiene-venta-entradas-vuelta-champions-evitar-invasion-ingleses.html)
+- **Joan García: La eliminación contra Atlético de Madrid nos dejó un aprendizaje**: [Link](https://onefootball.com/pt-br/noticias/joan-garcia-la-eliminacion-contra-atletico-de-madrid-nos-dejo-un-aprendizaje-42535558)
+
+
+### uefa champions league (N/A, Tue, 10 Mar 2026 11:50:00 -0700)
+
+- **Barcelona hit by another injury blow as Eric Garcia a ‘serious doubt’ to face Newcastle**: [Link](https://www.barcablaugranes.com/barcelona-uefa-champions-league/114866/barcelona-hit-by-another-injury-blow-as-eric-garcia-a-serious-doubt-to-face-newcastle)
+- **I’m really forward to go up against Lamine Yamal- Newcastle United’s Lewis Hall**: [Link](https://citisportsonline.com/2026/03/im-really-forward-to-go-up-against-lamine-yamal-newcastle-uniteds-lewis-hall/)
+- **Rafael Yuste: 'We are well prepared for the tie'**: [Link](https://www.fcbarcelona.com/en/club/news/4465853/rafael-yuste-we-are-well-prepared-for-the-tie)
+
+
+### liverpool (N/A, Tue, 10 Mar 2026 10:40:00 -0700)
+
+- **Galatasaray vs Liverpool: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx2jwp0lwp8t)
+- **Alisson ruled out of Liverpool Champions League game**: [Link](https://www.thetimes.com/sport/football/article/alisson-injury-liverpool-fc-galatasaray-champions-league-gzqd3d880)
+- **Exclusive: Ben Jacobs to Foot Africa: "Osimhen is happy in Istanbul, and Alisson's absence is a big loss for Liverpool"**: [Link](https://foot-africa.com/en/news/exclusive-ben-jacobs-to-foot-africa-osimhen-is-happy-in-istanbul-and-alissons-absence-is-a-big-loss-for-liverpool-1118279/)
+
+
 ### barca vs newcastle (N/A, Tue, 10 Mar 2026 10:50:00 -0700)
 
 - **Eric Garcia is a major doubt for Barcelona’s match against Newcastle**: [Link](https://www.mundodeportivo.com/en/20260310/1004149802/eric-garcia-is-major-doubt-for-barcelona-s-match-against-newcastle.html)
