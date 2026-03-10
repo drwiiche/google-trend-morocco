@@ -1,3 +1,10 @@
+### real madrid – manchester city (N/A, Tue, 10 Mar 2026 13:20:00 -0700)
+
+- **Real Madrid vs Man City: Alvaro Arbeloa sets the tone for the showdown**: [Link](https://foot-africa.com/en/news/real-madrid-vs-man-city-alvaro-arbeloa-sets-the-tone-for-the-showdown-1118858/)
+- **Valverde: This is What We Hope For, and an Amazing Match Awaits Us**: [Link](https://www.ysscores.com/en/news/13925247/Valverde:-This-is-What-We-Hope-For,-and-an-Amazing-Match-Awaits-Us)
+- **Managing Madrid Podcast: Can Real Madrid Beat Manchester City? 1st Leg Preview!**: [Link](https://www.managingmadrid.com/managing-madrid-podcast/104959/managing-madrid-podcast-can-real-madrid-beat-manchester-city-1st-leg-preview)
+
+
 ### barca (N/A, Tue, 10 Mar 2026 13:30:00 -0700)
 
 - **Frauscher x Porsche 790 Spectre, l'elettrica col motore della Macan**: [Link](https://www.boatmag.it/frauscher-x-porsche-790-spectre-barca-elettrica-sette-metri/)
