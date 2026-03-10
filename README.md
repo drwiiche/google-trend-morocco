@@ -1,3 +1,17 @@
+### أتلتيكو مدريد (N/A, Tue, 10 Mar 2026 15:20:00 -0700)
+
+- **فيديو: أتلتيكو مدريد يسحق توتنهام ويضع قدما في ربع النهائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%AD%D9%82-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%88%D9%8A%D8%B6%D8%B9-%D9%82%D8%AF%D9%85%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A/bltd5562f8a631ca5e4)
+- **3 أرقام تاريخية في اكتساح أتلتيكو مدريد لتوتنهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/3-%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%83%D8%AA%D8%B3%D8%A7%D8%AD-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85/bltf30acbd1f63384d4)
+- **دوري أبطال أوروبا: سيميوني يرى أن الفرق الإنكليزية أسرع من غيرها**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260309-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B1%D9%89-%D8%A3%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D8%A5%D9%86%D9%83%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D8%A3%D8%B3%D8%B1%D8%B9-%D9%85%D9%86-%D8%BA%D9%8A%D8%B1%D9%87%D8%A7)
+
+
+### fcb (N/A, Tue, 10 Mar 2026 14:00:00 -0700)
+
+- **Tebas Refutes Xavi: "La Liga Did Not Authorize Messi's Return to Barcelona in 2023"**: [Link](https://m.elbotola.com/en/article/2026-03-09-17-57-793.html)
+- **Víctor Font: “Hopefully Lionel Messi speaks out and explains the truth”**: [Link](https://www.mundodeportivo.com/en/20260310/1004149539/victor-font-hopefully-lionel-messi-speaks-out-and-explains-the-truth.html)
+- **Joan Laporta fires back at Xavi as he brutally criticises Barcelona legend's managerial skills & says Hansi Flick is 'winning games with the same players'**: [Link](https://www.goal.com/en/lists/joan-laporta-xavi-criticises-barcelona-legend-hansi-flick/bltba4880d23c559ca2)
+
+
 ### ligue des champions (N/A, Tue, 10 Mar 2026 15:00:00 -0700)
 
 - **Ligue des champions : Liverpool, Barça, Bayern ... Voici le progamme de ce mardi**: [Link](https://fr.hespress.com/465315-ligue-des-champions-liverpool-barca-bayern-voici-le-progamme-de-ce-mardi.html)
