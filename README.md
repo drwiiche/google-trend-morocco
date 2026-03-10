@@ -1,3 +1,17 @@
+### iran mojtaba khamenei (N/A, Tue, 10 Mar 2026 09:20:00 -0700)
+
+- **Vance and Hegseth attend dignified transfer ceremony – as it happened**: [Link](https://www.theguardian.com/world/live/2026/mar/09/iran-war-live-updates-new-supreme-leader-mojtaba-khamenei-oil-prices-soar)
+- **Trump gives conflicting answers on how long the Iran war will last**: [Link](https://www.cnn.com/world/live-news/iran-war-us-israel-trump-03-09-26)
+- **Iran war updates: Trump says conflict may be ‘short-term’ as oil fears rise**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/9/iran-war-live-mojtaba-khamenei-named-supreme-leader-israel-bombs-tehran)
+
+
+### dacia striker (N/A, Tue, 10 Mar 2026 07:20:00 -0700)
+
+- **Striker: the name of the new Dacia crossover that breaks the rules**: [Link](https://media.dacia.com/striker-the-name-of-the-new-dacia-crossover-that-breaks-the-rules/?lang=eng)
+- **Romanian car brand Dacia to expand its portfolio of electric models in the coming years**: [Link](https://www.romania-insider.com/romanian-dacia-electric-models-plans-2026)
+- **Star signing? Dacia confirms Striker name for new £25k estate**: [Link](https://www.autocar.co.uk/car-news/new-cars/dacia-striker-new-%C2%A325k-petrol-estate-be-revealed-next-week)
+
+
 ### محاكم (N/A, Tue, 10 Mar 2026 05:30:00 -0700)
 
 - **أزيد من 625 "روشيرشي".. وزارة العدل تنشر لائحتهم وتدعوهم لتسليم أنفسهم**: [Link](https://ar.telquel.ma/%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-625-%D8%B1%D9%88%D8%B4%D9%8A%D8%B1%D8%B4%D9%8A-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D9%86%D8%B4%D8%B1-%D9%84%D8%A7%D8%A6/)
