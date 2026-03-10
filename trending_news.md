@@ -1,3 +1,17 @@
+### météo (N/A, Tue, 10 Mar 2026 00:40:00 -0700)
+
+- **Alerte météo : un début de semaine instable avec pluies, neige et vents soutenus avant une accalmie jeudi**: [Link](https://ledesk.ma/encontinu/alerte-meteo-un-debut-de-semaine-instable-avec-pluies-neige-et-vents-soutenus-avant-une-accalmie-jeudi/)
+- **Prévisions météo pour lundi 9 mars 2026 - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/03/08/previsions-meteo-pour-lundi-9-mars-2026-1639669/)
+- **Des chutes de neige, de mardi à mercredi, dans plusieurs provinces**: [Link](https://mobile.telquel.ma/instant-t/2026/03/09/des-chutes-de-neige-de-mardi-a-mercredi-dans-plusieurs-provinces_1977925/)
+
+
+### weather (N/A, Tue, 10 Mar 2026 00:30:00 -0700)
+
+- **Gov. Green issues emergency proclamation ahead of expected storm to Hawaiian Islands**: [Link](https://bigislandnow.com/2026/03/09/gov-green-issues-emergency-proclamation-ahead-of-expected-storm-to-hawaiian-islands/)
+- **Preparing for heavy rain to hit Hawaii**: [Link](https://www.kitv.com/preparing-for-heavy-rain-to-hit-hawaii/article_7a3e9210-b5a1-4a1e-bb68-93fe6b93cbda.html)
+- **3/9/26 – STATE PARK CLOSURES DUE TO SEVERE WEATHER: KAUAʻI AND OʻAHU**: [Link](https://dlnr.hawaii.gov/blog/2026/03/09/nr26-23/)
+
+
 ### أحوال الطقس (N/A, Mon, 9 Mar 2026 21:50:00 -0700)
 
 - **"شتاء استثنائي" يضاعف التساقطات ويحطم الأرقام القياسية في المغرب**: [Link](https://www.hespress.com/%D8%B4%D8%AA%D8%A7%D8%A1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%8A%D8%B6%D8%A7%D8%B9%D9%81-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%88%D9%8A%D8%AD%D8%B7%D9%85-1713149.html)
