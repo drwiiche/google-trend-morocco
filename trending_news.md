@@ -1,3 +1,10 @@
+### الطقس (N/A, Tue, 10 Mar 2026 01:10:00 -0700)
+
+- **عاجل: إنذار أحمر في فيتنام... فيضانات مدمرة تهدد 25 منطقة وانهيارات أرضية تحاصر الآلاف!**: [Link](https://yemen-press.net/news171288.html)
+- **طقس اليوم (10 مارس): يتحول شمال البلاد إلى منطقة باردة.**: [Link](https://www.vietnam.vn/ar/thoi-tiet-hom-nay-10-3-mien-bac-chuyen-ret)
+- **عواصف رعدية محلية تؤثر على عدة مناطق اليوم**: [Link](https://mwlana.com/egypt-news/%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A9-%D8%AA%D8%A4%D8%AB%D8%B1-%D8%B9%D9%84%D9%89-%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84/)
+
+
 ### météo (N/A, Tue, 10 Mar 2026 00:40:00 -0700)
 
 - **Alerte météo : un début de semaine instable avec pluies, neige et vents soutenus avant une accalmie jeudi**: [Link](https://ledesk.ma/encontinu/alerte-meteo-un-debut-de-semaine-instable-avec-pluies-neige-et-vents-soutenus-avant-une-accalmie-jeudi/)
