@@ -1,3 +1,17 @@
+### newcastle - barcelona (N/A, Tue, 10 Mar 2026 12:40:00 -0700)
+
+- **Barcelona hit by another injury blow as Eric Garcia a ‘serious doubt’ to face Newcastle**: [Link](https://www.barcablaugranes.com/barcelona-uefa-champions-league/114866/barcelona-hit-by-another-injury-blow-as-eric-garcia-a-serious-doubt-to-face-newcastle)
+- **Rafael Yuste: 'We are well prepared for the tie'**: [Link](https://www.fcbarcelona.com/en/club/news/4465853/rafael-yuste-we-are-well-prepared-for-the-tie)
+- **I’m really forward to go up against Lamine Yamal- Newcastle United’s Lewis Hall**: [Link](https://citisportsonline.com/2026/03/im-really-forward-to-go-up-against-lamine-yamal-newcastle-uniteds-lewis-hall/)
+
+
+### atlético madrid vs tottenham (N/A, Tue, 10 Mar 2026 12:40:00 -0700)
+
+- **450-Strong Security Plan Activated for Atlético Madrid vs. Tottenham Champions League Tie**: [Link](https://m.elbotola.com/en/article/2026-03-09-14-15-428.html)
+- **Tudor: Champions League can help Spurs improve, but Premier League the priority**: [Link](https://www.fotmob.com/fa/news/myjiaqc3uwaa1knyj2wt4bhxj-tudor-champions-league-can-help-spurs-improve-but-premier-league-priority)
+- **Pablo Barrios Returns to the Atletico de Madrid Squad on the Eve of the Match Against Tottenham**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/pablo-barrios-returns-to-the-atletico-de-madrid-squad-on-the-eve-of-the-match-against-tottenham-2026-03-10)
+
+
 ### atalanta – bayern (N/A, Tue, 10 Mar 2026 12:20:00 -0700)
 
 - **Rummenigge tells Bayern: Don’t make the same Man City ‘mistake’ against Atalanta**: [Link](https://football-italia.net/rummenigge-bayern-no-same-mistake-man-city/)
