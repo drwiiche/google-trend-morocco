@@ -1,3 +1,45 @@
+### barca (N/A, Tue, 10 Mar 2026 13:30:00 -0700)
+
+- **Frauscher x Porsche 790 Spectre, l'elettrica col motore della Macan**: [Link](https://www.boatmag.it/frauscher-x-porsche-790-spectre-barca-elettrica-sette-metri/)
+- **Barca ferma in porto, guasti evitabili e controlli che molti proprietari rimandano troppo a lungo**: [Link](https://notiziaoggi.it/idee-consigli/barca-ferma-porto-guasti-evitabili-controlli-che-molti-proprietari-rimandano-troppo-a-lungo/)
+- **In barca per rinascere: i benefici della vela su autostima e stabilità nei pazienti con patologie scheletriche rare**: [Link](https://www.ilnautilus.it/cultura/2026-03-10/in-barca-per-rinascere-i-benefici-della-vela-su-autostima-e-stabilita-nei-pazienti-con-patologie-scheletriche-rare_182955/)
+
+
+### tottenham (N/A, Tue, 10 Mar 2026 13:30:00 -0700)
+
+- **As Bad as Dragusin: 2/10 Flop Must Never Play for Tottenham Again Ahead of Atletico**: [Link](https://www.givemesport.com/tottenham-goalkeeper-guglielmo-vicario-should-never-play-again/)
+- **Tottenham decision confirmed after 'dropped' claims as Igor Tudor makes decision**: [Link](https://www.express.co.uk/sport/football/2178710/tottenham-tudor-palace-vicario-kinsky)
+- **Igor Tudor set to hand Tottenham Hotspur player his first start since October**: [Link](https://www.spurs-web.com/spurs-news/igor-tudor-set-to-hand-tottenham-hotspur-player-his-first-start-since-october/)
+
+
+### bayern (N/A, Tue, 10 Mar 2026 13:30:00 -0700)
+
+- **Michael Olise und Luis Díaz: Das beste Flügelduo Europas im Interview vor Bergamo**: [Link](https://fcbayern.com/de/news/2026/03/michael-olise-und-luis-diaz-das-beste-fluegelduo-europas-im-interview-vor-bergamo)
+- **Champions League: Was die Bayern bei Bergamos "La Dea" erwartet**: [Link](https://www.zdfheute.de/sport/fussball-champions-league-atalanta-bergamo-fc-bayern-muenchen-100.html)
+- **Taktik-Analyse: Bayerns linkes Ding mit Diaz**: [Link](https://www.merkur.de/sport/fc-bayern/diaz-erfolgsrezept-in-bergamo-bayerns-linkes-ding-mit-zr-94208982.html)
+
+
+### yallakora (N/A, Tue, 10 Mar 2026 13:20:00 -0700)
+
+- **قائمة بيراميدز.. حضور الشيبي وغياب الكرتي**: [Link](https://www.hesport.com/%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%AD%D8%B6%D9%88%D8%B1-%D8%A7%D9%84%D8%B4%D9%8A%D8%A8%D9%8A-%D9%88%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D9%83%D8%B1-430358.html)
+- **الجيش الملكي في بلاغ رسمي: "نستغرب بث إذاعة خاصة لتصريحات تثير الفتنة ولا نقبل المساس بكرامة وتاريخ النادي"**: [Link](https://m.elbotola.com/article/2026-03-10-17-13-927.html)
+- **الجيش الملكي يجهز حارسه لأول ظهور إفريقي - فبراير.كوم | موقع مغربي إخباري شامل يتجدد على مدار الساعة**: [Link](https://febrayer.com/1138167.html)
+
+
+### أتالانتا ضد البايرن (N/A, Tue, 10 Mar 2026 13:00:00 -0700)
+
+- **دوري أبطال أوروبا: أتالانتا يرفع لواء إيطاليا بعد إقصاء العمالقة**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260309-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%8A%D8%B1%D9%81%D8%B9-%D9%84%D9%88%D8%A7%D8%A1-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%84%D9%82%D8%A9)
+- **شكوك حول مشاركة هاري كين أمام أتالانتا**: [Link](https://24.ae/article/950126/)
+- **دوري الابطال...البايرن يتطلع لدور الربع من بوابة أتالانتا : lematinsports**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%A8%D8%B7%D8%A7%D9%84%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D8%AA%D8%B7%D9%84%D8%B9-%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%B1%D8%A8%D8%B9-%D9%85%D9%86-%D8%A8%D9%88%D8%A7%D8%A8%D8%A9-%D8%A3%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7/16895)
+
+
+### bein sport (N/A, Tue, 10 Mar 2026 13:00:00 -0700)
+
+- **BeIN lodges appeal in LFP match picks case**: [Link](https://www.sportbusiness.com/news/bein-lodges-appeal-in-lfp-match-picks-case/)
+- **beIN Sports appeals ruling in Ligue 1 payment dispute**: [Link](https://www.broadbandtvnews.com/2026/03/09/bein-sports-appeals-ruling-in-ligue-1-payment-dispute/)
+- **Canal+ and beIN file Court of Cassation appeal over Ligue 1 TV rights**: [Link](https://onefootball.com/en/news/canal-and-bein-file-court-of-cassation-appeal-over-ligue-1-tv-rights-42487700)
+
+
 ### newcastle - barcelona (N/A, Tue, 10 Mar 2026 12:40:00 -0700)
 
 - **Barcelona hit by another injury blow as Eric Garcia a ‘serious doubt’ to face Newcastle**: [Link](https://www.barcablaugranes.com/barcelona-uefa-champions-league/114866/barcelona-hit-by-another-injury-blow-as-eric-garcia-a-serious-doubt-to-face-newcastle)
