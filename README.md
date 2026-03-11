@@ -1,3 +1,10 @@
+### bam adebayo (N/A, Wed, 11 Mar 2026 01:40:00 -0700)
+
+- **Bam and A'ja, basketball power couple, now with shared distinction**: [Link](https://www.si.com/nba/heat/onsi/news/bam-and-a-ja-basketball-power-couple-now-with-shared-distinction-01kkdfeemfgd)
+- **LeBron James reacts to Bam Adebayo's 83-point eruption**: [Link](https://lebronwire.usatoday.com/story/sports/nba/lebron/2026/03/10/lebron-james-reacts-to-bam-adebayos-83-point-eruption/89094488007/)
+- **Bam Adebayo pays tribute to Kobe Bryant after historic 83-point night**: [Link](https://basketnews.com/news-242817-.html)
+
+
 ### jannik sinner (N/A, Tue, 10 Mar 2026 22:10:00 -0700)
 
 - **Sinner-Fonseca all'Atp Indian Wells 2026, dove vedere in tv e streaming**: [Link](https://sport.sky.it/tennis/2026/03/09/sinner-fonseca-atp-indian-wells-2026-tv-streaming)
