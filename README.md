@@ -1,3 +1,17 @@
+### parcoursup (N/A, Wed, 11 Mar 2026 05:50:00 -0700)
+
+- **Parcoursup : des frais de dossier pour certaines formations**: [Link](https://www.leparisien.fr/etudiant/etudes/parcoursup/parcoursup-des-frais-de-dossier-pour-certaines-formations-VLYJATW2RNNGDLN7I6X5XXGMGU.php)
+- **Les sénateurs communistes déposent une PPL pour "lutter contre les effets discriminatoires de Parcoursup"**: [Link](https://www.aefinfo.fr/depeche/747113-les-senateurs-communistes-deposent-une-ppl-pour-lutter-contre-les-effets-discriminatoires-de-parcoursup)
+- **«Les parents sont des guides, mais le lycéen reste le pilote»: les conseils de Marie Tarditi, coach en orientation**: [Link](https://etudiant.lefigaro.fr/article/lycee/les-parents-sont-des-guides-mais-le-lyceen-reste-le-pilote-les-conseils-de-marie-tarditi-coach-en-orientation-20260309/)
+
+
+### ادعية ليلة القدر (N/A, Tue, 10 Mar 2026 20:50:00 -0700)
+
+- **فيديو : العشر الأواخر من رمضان .. طقوس دينية عالية وتقاليد أصيلة في ليلة القدر**: [Link](https://www.medi1tv.com/ar/reportage/386799/%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-.-%D8%B7%D9%82%D9%88%D8%B3-%D8%AF%D9%8A%D9%86%D9%8A%D8%A9-%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%AF-%D8%A3%D8%B5%D9%8A%D9%84%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1)
+- **اغتنام الثلث الأخير.. أفضل الأدعية المستجابة في ليالي العشر الأواخر المباركة**: [Link](https://www.matnnews.com/273264)
+- **أول ليلة وترية.. تعرف على موعد أذان الفجر**: [Link](https://darelhilal.com/News/3193662.aspx)
+
+
 ### maroc (N/A, Wed, 11 Mar 2026 05:40:00 -0700)
 
 - **A Paris, Akhannouch représente le Roi au deuxième Sommet international sur l’énergie nucléaire**: [Link](https://ledesk.ma/encontinu/a-paris-akhannouch-represente-le-roi-au-deuxieme-sommet-international-sur-lenergie-nucleaire/)
