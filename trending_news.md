@@ -1,3 +1,17 @@
+### بودو غليمت (N/A, Wed, 11 Mar 2026 14:50:00 -0700)
+
+- **بودو غليمت يسحق سبورتينغ ويواصل حلمه في دوري أبطال أوروبا**: [Link](https://sports.asharq.com/football/102481/%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA-%D9%8A%D8%B3%D8%AD%D9%82-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%88%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AD%D9%84%D9%85%D9%87-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/)
+- **جليمت.. بلدة تحجب الشمس وتشع في دوري الأبطال**: [Link](https://arriyadiyah.com/886630/%D8%AC%D9%84%D9%8A%D9%85%D8%AA..-%D8%A8%D9%84%D8%AF%D8%A9-%D8%AA%D8%AD%D8%AC%D8%A8-%D8%A7%D9%84%D8%B4%D9%85%D8%B3-%D9%88%D8%AA%D8%B4%D8%B9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **مدرب سبورتنغ: بودو غليمت فريق قوي ولا مجال للأعذار**: [Link](https://www.elsport.com/news/show/815154/%D9%85%D8%AF%D8%B1%D8%A8-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%86%D8%BA-%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA-%D9%81%D8%B1%D9%8A%D9%82-%D9%82%D9%88%D9%8A-%D9%88%D9%84%D8%A7-%D9%85%D8%AC%D8%A7%D9%84-%D9%84%D9%84%D8%A3%D8%B9%D8%B0%D8%A7%D8%B1)
+
+
+### psg - chelsea (N/A, Wed, 11 Mar 2026 14:00:00 -0700)
+
+- **Al-Khelaïfi remains stranded in Qatar, missing PSG – Chelsea match**: [Link](https://www.gazetaexpress.com/en/Alkhelaifi-remains-stranded-in-Qatar--missing-PSG-Chelsea-match/)
+- **They were shocked by the sound that came to their phones while commenting on the Galatasaray-Liverpool match.**: [Link](https://en.haberler.com/they-were-shocked-by-the-sound-that-came-to-their-19645517/)
+- **Panik gjatë një transmetimi televiziv në Katar, ndërpritet emisioni i Championsit pasi bie alarmi për raketat nga Irani**: [Link](https://reporteri.net/en/sport/Panic-during-a-TV-broadcast-in-Qatar--the-Champions-League-broadcast-is-interrupted-after-the-alarm-sounds-about-missiles-from-Iran/)
+
+
 ### sporting (N/A, Wed, 11 Mar 2026 14:40:00 -0700)
 
 - **UEFA Champions League 2026: quem é o Bodo/Glimt, surpresa do futebol europeu**: [Link](https://www.olympics.com/pt/noticias/uefa-champions-league-2026-bodo-glimt)
