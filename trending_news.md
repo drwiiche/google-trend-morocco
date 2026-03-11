@@ -1,3 +1,45 @@
+### paris (N/A, Wed, 11 Mar 2026 13:40:00 -0700)
+
+- **Dates, horaires, détails : on vous dit tout sur la réouverture des terrasses éphémères à Paris**: [Link](https://www.timeout.fr/paris/actualites/dates-horaires-details-tout-savoir-reouverture-terrasses-ephemeres-paris-030926)
+- **Cette carte interactive vous indique en temps réel toutes les terrasses ensoleillées à Paris**: [Link](https://www.pariszigzag.fr/paris-au-quotidien/carte-terrasses-soleil-paris/)
+- **À Bordeaux, elle a une solution pour ne plus perdre de temps à chercher le soleil en terrasse**: [Link](https://actu.fr/nouvelle-aquitaine/bordeaux_33063/a-bordeaux-elle-a-une-solution-pour-ne-plus-perdre-de-temps-a-chercher-le-soleil-en-terrasse_63939234.html)
+
+
+### flashscore (N/A, Wed, 11 Mar 2026 13:30:00 -0700)
+
+- **Arsenal set to ‘break the transfer market’ for £69m winger as Romano confirms ‘first signing’**: [Link](https://www.football365.com/news/arsenal-break-transfer-market-kvaratskhelia-psg-romano-hincapie-first-signing)
+- **Huge Cunha Upgrade: Man Utd Have Perfect Chance to Sign 'Elite' George Best-Like Star**: [Link](https://www.givemesport.com/man-utd-have-opportunity-to-sign-khvicha-kvaratskhelia/)
+- **Arsenal transfer news today: Arteta breaks the market as Real Madrid raid confirmed**: [Link](https://www.msn.com/en-gb/sport/other/arsenal-transfer-news-today-arteta-breaks-the-market-as-real-madrid-raid-confirmed/ar-AA1XQXsn)
+
+
+### yallakora (N/A, Wed, 11 Mar 2026 13:30:00 -0700)
+
+- **إنفانتينو يفتح باب المفاجآت بشأن عدد الفرق في مونديال الأندية 2029**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D9%81%D8%AC%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D8%AD%D9%88%D9%84-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%A7%D9%94%D9%86%D8%AF%D9%8A%D8%A9-2029/bltcdfb6ccef2b00ba7)
+- **برشلونة وريال مدريد يشعلان صراعًا في كأس العالم للأندية**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B4%D8%B9%D9%84%D8%A7%D9%86-%D8%B5%D8%B1%D8%A7%D8%B9%D9%8B%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9)
+- **المكسيك تنضم لسباق المرشحين لاستضافة كأس العالم للأندية في 2029**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=11032026&id=214d64f1-526f-4af4-9569-e4f24c699006)
+
+
+### yalla (N/A, Wed, 11 Mar 2026 13:30:00 -0700)
+
+- **Yalla Group’s $150 Million Buyback: Confidence Signal or Strategic Necessity?**: [Link](https://steady.page/en/dividends/posts/13cbbfac-60a0-45ee-a575-f26359b0ca2a)
+- **Yale Technology's Q4 revenue reached 83.9 million US dollars, with the number of paying users decreasing by 15% year-on-year.**: [Link](https://news.futunn.com/en/post/69825631/yale-technology-s-q4-revenue-reached-83-9-million-us)
+- **YALA: Strong 2025 growth, new games, and major share repurchases position for MENA market leadership**: [Link](https://www.tradingview.com/news/urn:summary_document_transcript:quartr.com:3038733:0-yala-strong-2025-growth-new-games-and-major-share-repurchases-position-for-mena-market-leadership/)
+
+
+### الطفلة سندس (N/A, Wed, 11 Mar 2026 13:10:00 -0700)
+
+- **نهاية مأساوية لاختفاء "الطفلة سندس"**: [Link](https://www.hespress.com/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%85%D8%A3%D8%B3%D8%A7%D9%88%D9%8A%D8%A9-%D9%84%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-%D8%A7%D9%84%D8%B7%D9%81%D9%84%D8%A9-%D8%B3%D9%86%D8%AF%D8%B3-1714278.html)
+- **بعد 15 يوما من الاختفاء.. العثور على جثة الطفلة سندس بشفشاون**: [Link](https://thevoice.ma/%D8%A8%D8%B9%D8%AF-15-%D9%8A%D9%88%D9%85%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%AB%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D8%AC%D8%AB%D8%A9-%D8%A7%D9%84/)
+- **العثور على جثمان الطفلة سندس بمجرى واد في شفشاون بعد ساعات من البحث**: [Link](https://febrayer.com/1138379.html)
+
+
+### rma (N/A, Wed, 11 Mar 2026 12:30:00 -0700)
+
+- **Sesame, IVI RMA, and Costco Transform Fertility Care for Costco Members with New Partnership Offering Expanded Access to Quality Care and 80% Medication Savings**: [Link](https://www.businesswire.com/news/home/20260309898627/en/Sesame-IVI-RMA-and-Costco-Transform-Fertility-Care-for-Costco-Members-with-New-Partnership-Offering-Expanded-Access-to-Quality-Care-and-80-Medication-Savings)
+- **Costco slashes fertility drug prices by up to 80% with new partnership**: [Link](https://www.wral.com/lifestyles/health/costco-members-fertility-medication-discounts-march-2026/)
+- **Costco to offer fertility medications**: [Link](https://www.king5.com/article/news/nation-world/costco-offering-fertility-medications/507-8a68c610-153e-4b2e-8e30-f4ef0ba4db57)
+
+
 ### yalla kora (N/A, Wed, 11 Mar 2026 13:10:00 -0700)
 
 - **بث مباشر لحظة بلحظة: مباراة الزمالك وإنبي في الدوري المصري 2026**: [Link](https://al-ain.com/article/enppi-zamalek-epl-match-live-2026)
