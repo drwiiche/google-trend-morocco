@@ -1,3 +1,23 @@
+### رمضان 2026 المغرب (N/A, Tue, 10 Mar 2026 22:40:00 -0700)
+
+- **فلكي: رمضان يكمل 30 يوما .. وعيد الفطر يوافق 21 مارس في المغرب**: [Link](https://www.hespress.com/%D9%81%D9%84%D9%83%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%8A%D9%83%D9%85%D9%84-30-%D9%8A%D9%88%D9%85%D8%A7-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%8A%D9%88%D8%A7%D9%81%D9%82-1712875.html)
+- **International Astronomical Center (IAC)**: [Link](https://astronomycenter.net/articles/2026/03/06/shw47)
+- **فلكيا هذا موعد أوّل أيام عيد الفطر المبارك**: [Link](https://www.ennaharonline.com/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D9%88%D9%91%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8/)
+
+
+### christophe lecourtier (N/A, Tue, 10 Mar 2026 22:10:00 -0700)
+
+- **Christophe Lecourtier, actuel ambassadeur au Maroc, proposé pour remplacer Rémy Rioux à la tête de l’Agence française de développement**: [Link](https://www.lemonde.fr/international/article/2026/03/10/christophe-lecourtier-actuel-ambassadeur-au-maroc-propose-pour-remplacer-remy-rioux-a-la-tete-de-l-agence-francaise-de-developpement_6670282_3210.html)
+- **L’ambassadeur Christophe Lecourtier proposé par Emmanuel Macron pour diriger l’Agence française de développement**: [Link](https://www.ouest-france.fr/politique/lambassadeur-christophe-lecourtier-propose-par-emmanuel-macron-pour-diriger-lagence-francaise-de-developpement-03c68b70-1cad-11f1-ac5d-3a2f3c7ecfe2)
+- **L'ambassadeur de France au Maroc Christophe Lecourtier proposé à la tête de l’AFD**: [Link](https://medias24.com/2026/03/10/lambassadeur-de-france-au-maroc-christophe-lecourtier-propose-a-la-tete-de-lafd-1641063/)
+
+
+### xavi espart (N/A, Tue, 10 Mar 2026 15:30:00 -0700)
+
+- **Xavi Espart makes first team debut against Newcastle**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4466075/xavi-espart-makes-first-team-debut-against-newcastle)
+- **‘It's a dream, I'm still processing it’: Xavi Espart reacts to Barca debut vs Newcastle**: [Link](https://tribuna.com/en/news/2026-03-11-its-a-dream-im-still-processing-it-xavi-espart-reacts-to-barca-debut-vs-newcastle/)
+
+
 ### علامات ليلة القدر (N/A, Tue, 10 Mar 2026 21:50:00 -0700)
 
 - **انطلاق سباق الفوز مع أعظم ليالي السنة ليلة القدر وأفضل الطرق لاغتنام فضلها**: [Link](https://tawusal.com/11127/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%85%D8%B9-%D8%A3%D8%B9%D8%B8%D9%85-%D9%84%D9%8A%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D8%A9-%D9%84/)
