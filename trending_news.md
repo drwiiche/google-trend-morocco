@@ -1,3 +1,17 @@
+### xavi espart (N/A, Wed, 11 Mar 2026 11:50:00 -0700)
+
+- **Barcelona debutant reveals what Flick told him before coming on: ‘I’m still taking it in’**: [Link](https://barcauniversal.com/barcelona-debutant-reveals-what-flick-told-him-before-coming-on-im-still-taking-it-in/)
+- **‘He’s a little bit like Philipp Lahm’ – Hansi Flick’s high praise for Barcelona youngster**: [Link](https://www.football-espana.net/2026/03/06/flick-lahm-espart)
+- **FC Barcelona: Hansi Flick backs Xavi Espart**: [Link](https://foot-africa.com/en/news/fc-barcelona-hansi-flick-backs-xavi-espart-1113764/)
+
+
+### arsenal (N/A, Wed, 11 Mar 2026 11:10:00 -0700)
+
+- **Football gossip: Brandt, Tonali, Delap, Rashford, Silva, Collins**: [Link](https://www.bbc.com/sport/football/articles/c4geyndly41o)
+- **Barcelona reportedly pursue Bundesliga star in free-agent race with Premier League club**: [Link](https://worldsoccertalk.com/news/barcelona-reportedly-pursue-bundesliga-star-in-free-agent-race-with-premier-league-club/)
+- **Outbound Borussia Dortmund Star Linked Serie A, Inter**: [Link](https://cultofcalcio.com/outbound-borussia-dortmund-star-brandt-linked-serie-a-inter/)
+
+
 ### ليفركوزن ضد آرسنال (N/A, Wed, 11 Mar 2026 10:10:00 -0700)
 
 - **أرتيتا: لم أملك الشجاعة للتحدث مع تشابي ألونسو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%84%D9%85-%D8%A7%D9%94%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B4%D8%AC%D8%A7%D8%B9%D8%A9-%D9%84%D9%84%D8%AA%D8%AD%D8%AF%D8%AB-%D9%85%D8%B9-%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88/blte867e819687bf4da)
