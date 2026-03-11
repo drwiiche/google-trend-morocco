@@ -1,3 +1,24 @@
+### sporting (N/A, Wed, 11 Mar 2026 14:40:00 -0700)
+
+- **UEFA Champions League 2026: quem é o Bodo/Glimt, surpresa do futebol europeu**: [Link](https://www.olympics.com/pt/noticias/uefa-champions-league-2026-bodo-glimt)
+- **AO VIVO: Hjulmand desvia, mas Suárez falha o toque final (74')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-dos-campeoes-ao-vivo-hjulmand-desvia-mas-suarez-falha-o-toque-final-74/6RErOP8K/)
+- **«Sou muito feliz, sou sportingui­sta»**: [Link](https://www.pressreader.com/portugal/a-bola-358a/20260311/282235197163128)
+
+
+### live score (N/A, Wed, 11 Mar 2026 14:40:00 -0700)
+
+- **Hoggard girls' basketball vs Mallard Creek score updates from NCHSAA 8A Championship game**: [Link](https://www.starnewsonline.com/story/sports/high-school/basketball/2026/03/11/nchsaa-8a-girls-basketball-championship-live-score-updates-highlights/89065836007/)
+- **Making History: Hoggard Faces Off Against West Charlotte**: [Link](https://www.phenomhoopreport.com/making-history-hoggard-faces-off-against-west-charlotte/)
+- **Hoggard downs Willow Spring 58-38 to advance to state title game**: [Link](https://www.wwaytv3.com/hoggard-downs-willow-spring-58-38-to-advance-to-state-title-game/)
+
+
+### 365scores (N/A, Wed, 11 Mar 2026 14:20:00 -0700)
+
+- **Sense of missed opportunity for Newcastle after late Barca blow**: [Link](https://www.bbc.com/sport/football/articles/cvg37lqdy46o)
+- **Newcastle 1-1 Barcelona (Mar 10, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401862577)
+- **Newcastle and Barnes confound assumptions and make life awkward for Barcelona | Louise Taylor**: [Link](https://www.theguardian.com/football/2026/mar/10/newcastle-and-barnes-confound-assumptions-and-make-life-awkward-for-barcelona)
+
+
 ### city (N/A, Wed, 11 Mar 2026 14:10:00 -0700)
 
 - **Carrying signs saying ‘Fair Contract Now,’ Aurora city employees picket outside City Hall**: [Link](https://www.chicagotribune.com/2026/03/11/carrying-signs-saying-fair-contract-now-aurora-city-employees-picket-outside-city-hall/)
