@@ -1,3 +1,73 @@
+### مباريات اليوم (N/A, Wed, 11 Mar 2026 12:30:00 -0700)
+
+- **جدول مباريات اليوم الأربعاء 11 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-11-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt46a6dfb69ef6bc85)
+- **3 قمم مليارية تشعل ثمن نهائي دوري الأبطال .. ريال مدريد الأغلى**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/3-%D9%82%D9%85%D9%85-%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D9%89-7678)
+- **ريال مدريد ومانشستر سيتي في الأبطال: لعبة الشطرنج وكش ملك قاتلة**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%84%D8%B9%D8%A8%D8%A9-%D8%A7%D9%84%D8%B4%D8%B7%D8%B1%D9%86%D8%AC-%D9%88%D9%83%D8%B4-%D9%85%D9%84%D9%83-%D9%82%D8%A7%D8%AA%D9%84%D8%A9)
+
+
+### match real (N/A, Wed, 11 Mar 2026 12:30:00 -0700)
+
+- **LdC : le groupe du Real Madrid face à Man City**: [Link](https://www.footmercato.net/a4286354805656088262-ldc-le-groupe-du-real-madrid-face-a-man-city)
+- **Arbeloa fait appel à des joueurs de l'académie pour le Real Madrid face à Manchester City**: [Link](https://m.elbotola.com/fr/article/2026-03-11-11-30-664.html)
+- **Ligue des champions: Le Madrilène Alvaro Carreras forfait contre Manchester City**: [Link](https://aujourdhui.ma/sports/ligue-des-champions-le-madrilene-alvaro-carreras-forfait-contre-manchester-city)
+
+
+### paris-sg – chelsea (N/A, Wed, 11 Mar 2026 12:20:00 -0700)
+
+- **L’Angleterre retourne sa veste avec le PSG**: [Link](https://www.footmercato.net/a1198114517967437897-langleterre-retourne-sa-veste-avec-le-psg)
+- **4 hommes pour 3 places : quelle attaque pour le PSG ?**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/doue-kvara-dembele-barcola...-quatre-hommes-pour-trois-places-quelle-attaque-pour-le-psg-avant-daffronter-chelsea-en-ligue-des-champions_sto23279524/story.shtml)
+- **Ligue des champions : face à Chelsea, l'heure de vérité pour le PSG**: [Link](https://www.france24.com/fr/sports/20260311-ligue-des-champions-l-heure-de-v%C3%A9rit%C3%A9-pour-le-psg-contre-chelsea)
+
+
+### real madrid (N/A, Wed, 11 Mar 2026 12:20:00 -0700)
+
+- **Real Madrid - Manchester City, en directo: última hora de los octavos de la Champions League, hoy en vivo**: [Link](https://as.com/futbol/champions/real-madrid-manchester-city-en-directo-previa-y-ultima-hora-de-la-champions-league-hoy-en-vivo-f202603-d/)
+- **La convocatoria de Arbeloa se llena de canteranos para recibir al City**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/11/convocatoria-arbeloa-llena-canteranos-recibir-city.html)
+- **"A mí no me gusta": Iturralde manda un aviso sobre el árbitro del Real Madrid - Manchester City**: [Link](https://cadenaser.com/nacional/2026/03/11/a-mi-no-me-gusta-iturralde-manda-un-aviso-sobre-el-arbitro-del-real-madrid-manchester-city-cadena-ser/)
+
+
+### بي اس جي ضد تشيلسي (N/A, Wed, 11 Mar 2026 12:20:00 -0700)
+
+- **الهجمات الإيرانية تحاصر الخليفي وتحرمه من موقعة تشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D9%81%D9%8A-%D9%88%D8%AA%D8%AD%D8%B1%D9%85%D9%87-%D9%85%D9%86-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/blte2fee1135a81cf2d)
+- **حضور حكيمي يزين قائمة لويس إنريكي**: [Link](https://www.hesport.com/%D8%AD%D8%B6%D9%88%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%B2%D9%8A%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%84%D9%88%D9%8A%D8%B3-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-430494.html)
+- **دوري أبطال أوروبا: روسينيور يعول على خبرته الفرنسية في مواجهة سان جرمان**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260310-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B1%D9%88%D8%B3%D9%8A%D9%86%D9%8A%D9%88%D8%B1-%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AE%D8%A8%D8%B1%D8%AA%D9%87-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86)
+
+
+### psg vs chelsea (N/A, Wed, 11 Mar 2026 12:20:00 -0700)
+
+- **PSG vs Chelsea: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/03/282247/psg-vs-chelsea-how-when-to-watch/)
+- **Man City vs Real Madrid Live Free Champions League 2026**: [Link](https://www.hackster.io/crameremiled/man-city-vs-real-madrid-live-free-champions-league-2026-0ef71d)
+- **Chelsea travelling squad for Paris Saint-Germain confirmed | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/chelsea-travelling-squad-for-paris-saint-germain-confirmed)
+
+
+### الريال ضد مان سيتي (N/A, Wed, 11 Mar 2026 12:10:00 -0700)
+
+- **تشكيل الموقعة.. هالاند يتحدى فينيسيوس ودياز في قلب البرنابيو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9--%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%AF%D9%8A%D8%A7%D8%B2-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88/blt8a93c5a1a062e1c9)
+- **مباشر مباراة ريال مدريد ضد مانشستر سيتي في دوري أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/11/real-madrid-vs-manchester-city-live1)
+- **دوناروما: لقاء الريال في برنابيو اختبار حقيقي**: [Link](https://www.hesport.com/%D8%AF%D9%88%D9%86%D8%A7%D8%B1%D9%88%D9%85%D8%A7-%D9%84%D9%82%D8%A7%D8%A1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%AD-430418.html)
+
+
+### thiago pitarch (N/A, Wed, 11 Mar 2026 12:10:00 -0700)
+
+- **Real Madrid youngster Thiago Pitarch at center of Morocco-Spain tug-of-war**: [Link](https://en.yabiladi.com/articles/details/189928/real-madrid-youngster-thiago-pitarch.html)
+- **18-year-old midfielder permanently promoted to Real Madrid first team**: [Link](https://ca.sports.yahoo.com/news/18-old-midfielder-permanently-promoted-093000487.html)
+- **Real Madrid not surprised by 18-year-old starlet’s recent breakthrough**: [Link](https://madriduniversal.com/real-madrid-not-surprised-by-18-year-old-starlets-recent-breakthrough/)
+
+
+### 365 (N/A, Wed, 11 Mar 2026 12:10:00 -0700)
+
+- **Renesas Announces General Availability of Renesas 365**: [Link](https://www.eagletribune.com/region/renesas-announces-general-availability-of-renesas-365/article_5aa69d42-f633-5537-8ef6-9bc46b1a645d.html)
+- **Renesas 365 Development Platform Supports RA MCUs**: [Link](https://www.embedded.com/renesas-365-development-platform-supports-ra-mcus)
+- **Renesas Announces General Availability of Renesas 365**: [Link](https://www.rutlandherald.com/news/business/renesas-announces-general-availability-of-renesas-365/article_08ee92bb-9c6d-5510-b331-df639705e3cb.html)
+
+
+### sahara occidental (N/A, Wed, 11 Mar 2026 11:50:00 -0700)
+
+- **Sahara occidental : l’ancien émissaire onusien Christopher Ross sort de son silence**: [Link](https://www.jeuneafrique.com/1772895/politique/sahara-occidental-lancien-emissaire-onusien-christopher-ross-sort-de-son-silence/)
+- **Sahara : le Polisario tente le cheval de Troie du modèle Porto Rico**: [Link](https://ledesk.ma/2026/03/09/sahara-le-polisario-tente-le-cheval-de-troie-du-modele-porto-rico/)
+- **L’Algérie, le Sahara occidental et le processus de Madrid**: [Link](https://fr.le360.ma/politique/lalgerie-le-sahara-occidental-et-le-processus-de-madrid_MBLWGKQ2TNHELPP6JYQWNADVCY/)
+
+
 ### xavi espart (N/A, Wed, 11 Mar 2026 11:50:00 -0700)
 
 - **Barcelona debutant reveals what Flick told him before coming on: ‘I’m still taking it in’**: [Link](https://barcauniversal.com/barcelona-debutant-reveals-what-flick-told-him-before-coming-on-im-still-taking-it-in/)
