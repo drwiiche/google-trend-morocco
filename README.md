@@ -1,3 +1,17 @@
+### علامات ليلة القدر (N/A, Tue, 10 Mar 2026 21:50:00 -0700)
+
+- **انطلاق سباق الفوز مع أعظم ليالي السنة ليلة القدر وأفضل الطرق لاغتنام فضلها**: [Link](https://tawusal.com/11127/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%85%D8%B9-%D8%A3%D8%B9%D8%B8%D9%85-%D9%84%D9%8A%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D8%A9-%D9%84/)
+- **أفضل الأعمال في العشر الأواخر من رمضان**: [Link](https://www.alkhaleej.ae/2026-03-10/%D8%A3%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-6352486/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+- **أول ليلة وترية.. تعرف على موعد أذان الفجر**: [Link](https://darelhilal.com/News/3193662.aspx)
+
+
+### دوري الأبطال (N/A, Tue, 10 Mar 2026 13:50:00 -0700)
+
+- **جوارديولا: لا أعرف أربيلوا.. وهذه خطتنا لإيقاف نجم الريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%84%D8%A7-%D8%A7%D9%94%D8%B9%D8%B1%D9%81-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7--%D9%88%D9%87%D8%B0%D9%87-%D8%AE%D8%B7%D8%AA%D9%86%D8%A7-%D9%84%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/bltd590017369d541c4)
+- **خسر 3 مرات في 14 مواجهة.. غوارديولا كابوس ريال مدريد في سانتياغو برنابيو**: [Link](https://www.aljazeera.net/sport/2026/3/10/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B3%D8%A7%D9%86%D8%AA%D9%8A%D8%A7%D8%BA%D9%88-%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88)
+- **صدام تاريخي في "البرنابيو".. ريال مدريد يواجه مانشستر سيتي في اختبار القمة بدور الـ16 الأوروبي**: [Link](https://www.alquds.co.uk/%D8%B5%D8%AF%D8%A7%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/)
+
+
 ### nba (N/A, Tue, 10 Mar 2026 19:20:00 -0700)
 
 - **Bam Adebayo Becomes Second-Highest Single-Game Scorer In NBA History**: [Link](https://www.hoopsrumors.com/2026/03/bam-adebayo-becomes-second-highest-single-game-scorer-in-nba-history.html)
