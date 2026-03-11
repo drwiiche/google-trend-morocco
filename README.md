@@ -1,3 +1,38 @@
+### carlos alcaraz (N/A, Wed, 11 Mar 2026 15:30:00 -0700)
+
+- **Alcaraz, enemigo nº 1 hoy en Indian Wells: "Es algo que me preocupa"**: [Link](https://www.mundodeportivo.com/tenis/20260311/1004149908/alcaraz-enemigo-no-1-hoy-indian-wells-me-preocupa.html)
+- **Alcaraz y Djokovic se meten en octavos de final en Indian Wells**: [Link](https://www.diariolasamericas.com/deportes/alcaraz-y-djokovic-se-meten-octavos-final-indian-wells-n5391754)
+- **Carlos Alcaraz-Casper Ruud: previa, cuándo es y cómo ver el partido de octavos de final Indian Wells 2026 · Tenis**: [Link](https://www.olympics.com/es/noticias/carlos-alcaraz-casper-ruud-cuando-es-como-ver-octavos-final-indian-wells-2026-tenis)
+
+
+### turf paradise (N/A, Wed, 11 Mar 2026 15:20:00 -0700)
+
+- **Jeremy Plonk: Turf Paradise Bet $100, Get $10 Promo Plays | Tuesday, March 10, 2026**: [Link](https://www.xpressbet.com/component/content/article/21383-jeremy-plonk-turf-paradise-bet-100-get-10-promo-plays-tuesday-march-10-2026)
+- **Horse Racing Picks Today at Turf Paradise for Monday, March 9**: [Link](https://vsin.com/horse-racing/horse-racing-picks-today-at-turf-paradise-for-monday-march-9/)
+- **A New Lease On Life At Turf Paradise**: [Link](https://paulickreport.com/news/ray-s-paddock/a-new-lease-on-life-at-turf-paradise)
+
+
+### نتائج مباريات اليوم (N/A, Wed, 11 Mar 2026 15:10:00 -0700)
+
+- **جدول مباريات اليوم الأربعاء 11 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-11-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt46a6dfb69ef6bc85)
+- **3 قمم مليارية تشعل ثمن نهائي دوري الأبطال .. ريال مدريد الأغلى**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/3-%D9%82%D9%85%D9%85-%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D9%89-7678)
+- **ريال مدريد ومانشستر سيتي في الأبطال: لعبة الشطرنج وكش ملك قاتلة**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%84%D8%B9%D8%A8%D8%A9-%D8%A7%D9%84%D8%B4%D8%B7%D8%B1%D9%86%D8%AC-%D9%88%D9%83%D8%B4-%D9%85%D9%84%D9%83-%D9%82%D8%A7%D8%AA%D9%84%D8%A9)
+
+
+### koora (N/A, Wed, 11 Mar 2026 14:00:00 -0700)
+
+- **عرض مكتوب من يوفنتوس لنجم البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%B1%D8%B6-%D9%85%D9%83%D8%AA%D9%88%D8%A8-%D9%85%D9%86-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt8e566efa0ca880cc)
+- **برشلونة يقترب حسم التعاقد مع ماركوس سينيسي - المشهد**: [Link](https://almashhad.com/article/218257510540304-sports/525783061558943-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%85%D8%A7%D8%B1%D9%83%D9%88%D8%B3-%D8%B3%D9%8A%D9%86%D9%8A%D8%B3%D9%8A/)
+- **برشلونة يقتحم سباق التعاقد مع مدافع بورنموث**: [Link](https://www.almasryalyoum.com/news/details/4215313)
+
+
+### kooora (N/A, Wed, 11 Mar 2026 13:50:00 -0700)
+
+- **جماهير ريال مدريد تمارس تقليدها المعتاد مع جوارديولا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D9%85%D8%A7%D8%B1%D8%B3-%D8%AA%D9%82%D9%84%D9%8A%D8%AF%D9%87%D8%A7-%D8%A7%D9%84%D9%85%D8%B9%D8%AA%D8%A7%D8%AF-%D9%85%D8%B9-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%88%D9%8A%D9%84%D8%A7/bltf436320b6ff1a577)
+- **ريال مدريد يطلب من مشجعيه عدم التعرض لغوارديولا**: [Link](https://www.alquds.co.uk/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B7%D9%84%D8%A8-%D9%85%D9%86-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A%D9%87-%D8%B9%D8%AF%D9%85-%D8%A7%D9%84%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%BA/)
+- **ريال مدريد في مرمى عقوبات يويفا بسبب التحية النازية**: [Link](https://www.aljazeera.net/sport/2026/3/6/%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D8%BA%D8%B1%D8%A7%D9%85%D8%A9-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84)
+
+
 ### بودو غليمت (N/A, Wed, 11 Mar 2026 14:50:00 -0700)
 
 - **بودو غليمت يسحق سبورتينغ ويواصل حلمه في دوري أبطال أوروبا**: [Link](https://sports.asharq.com/football/102481/%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA-%D9%8A%D8%B3%D8%AD%D9%82-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%88%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AD%D9%84%D9%85%D9%87-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/)
