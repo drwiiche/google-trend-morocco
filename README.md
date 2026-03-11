@@ -1,3 +1,38 @@
+### yalla kora (N/A, Wed, 11 Mar 2026 13:10:00 -0700)
+
+- **بث مباشر لحظة بلحظة: مباراة الزمالك وإنبي في الدوري المصري 2026**: [Link](https://al-ain.com/article/enppi-zamalek-epl-match-live-2026)
+- **سبب استبعاد محمد صبحي من تشكيل الزمالك أمام إنبي**: [Link](https://sport.elwatannews.com/ar/1/1/1299531/%D8%B3%D8%A8%D8%A8-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D8%A8%D8%AD%D9%8A-%D9%85%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%86%D8%A8%D9%8A)
+- **أحمد دويدار يحذر لاعبي الزمالك: اوعى تصدق انك أخدت الدوري**: [Link](https://www.elbalad.news/6898982)
+
+
+### مباريات اليوم مباشر (N/A, Wed, 11 Mar 2026 13:10:00 -0700)
+
+- **إيقاف الدوري المغربي رسميًا.. ما السبب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8/blt7fd41842a75efb4d)
+- **العصبة الوطنية لكرة القدم الاحترافية تعلن توقيف البطولة تأهبا لـ"الكان"**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%A4%D9%82%D8%AA-%D9%84%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A7%D8%AA/)
+- **العصبة تتخذ قرارا حاسما بشأن مباريات الجولة 16**: [Link](https://www.radiomars.ma/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%AA%D8%AA%D8%AE%D8%B0-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7-%D8%AD%D8%A7%D8%B3%D9%85%D8%A7-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D8%A8%D8%A7%D8%B1/)
+
+
+### سندس (N/A, Wed, 11 Mar 2026 13:10:00 -0700)
+
+- **نهاية مأساوية لاختفاء "الطفلة سندس"**: [Link](https://www.hespress.com/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%85%D8%A3%D8%B3%D8%A7%D9%88%D9%8A%D8%A9-%D9%84%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-%D8%A7%D9%84%D8%B7%D9%81%D9%84%D8%A9-%D8%B3%D9%86%D8%AF%D8%B3-1714278.html)
+- **بعد اختفائها قبل أيام.. العثور على جثة الطفلة سندس بشفشاون**: [Link](https://al3omk.com/1144439.html)
+- **العثور على جثمان الطفلة سندس بمجرى واد في شفشاون بعد ساعات من البحث**: [Link](https://febrayer.com/1138379.html)
+
+
+### bodo glimt (N/A, Wed, 11 Mar 2026 13:00:00 -0700)
+
+- **Norwegian fans left frustrated over Bodo postponements as Champions League run goes on**: [Link](https://www.flashscore.com/news/soccer-champions-league-norwegian-fans-left-frustrated-over-bodo-postponements-as-champions-league-run-goes-on/dWsdJql3/)
+- **FotMob Interview: Jens Petter Hauge driving Bodø/Glimt’s European charge**: [Link](https://www.fotmob.com/topnews/26514-fotmob-interview-jens-petter-hauge-driving-bodglimts-european-charge)
+- **The Bodø/Glimt effect: City optimism and regional pride far beyond the football pitch**: [Link](https://en.highnorthnews.com/science/optimism-and-regional-pride-far-beyond-the-football-field/1106234)
+
+
+### ميناء صلالة (N/A, Wed, 11 Mar 2026 12:30:00 -0700)
+
+- **الهجمات على الخليج.. استهداف خزانات وقود بميناء صلالة وحريق بمطار أبو ظبي**: [Link](https://www.aljazeera.net/news/2026/3/11/%D8%B9%D8%A7%D8%AC%D9%84-%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%86%D8%A8%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D9%86-%D9%85%D8%B5%D8%AF%D8%B1-2)
+- **سلطنة عمان تعلن إسقاط مسيّرة وسقوط أخرى بالبحر**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%B3%D9%84%D8%B7%D9%86%D8%A9-%D8%B9%D9%85%D8%A7%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%A5%D8%B3%D9%82%D8%A7%D8%B7-%D9%85%D8%B3%D9%8A%D9%91%D8%B1%D8%A9-%D9%88%D8%B3%D9%82%D9%88%D8%B7-%D8%A3%D8%AE%D8%B1%D9%89-%D8%A8%D8%A7%D9%84%D8%A8%D8%AD%D8%B1/3859691)
+- **سلطان عُمان لـ الرئيس الإيراني: سنتخذ الإجراءات كافة للحفاظ على أمننا واستقرارنا**: [Link](https://www.alarabiya.net/arab-and-world/gulf/2026/03/11/%D8%B3%D9%84%D8%B7%D8%A7%D9%86-%D8%B9-%D9%85%D8%A7%D9%86-%D9%84%D9%80-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A7%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%B3%D9%86%D8%AA%D8%AE%D8%B0-%D8%A7%D9%84%D8%A7%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D9%83%D9%81%D8%A7%D8%A9-%D9%84%D9%84%D8%AD%D9%81%D8%A7%D8%B8-%D8%B9%D9%84%D9%89-%D8%A7%D9%85%D9%86%D9%86%D8%A7-%D9%88%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1%D9%86%D8%A7-)
+
+
 ### مباريات اليوم (N/A, Wed, 11 Mar 2026 12:30:00 -0700)
 
 - **جدول مباريات اليوم الأربعاء 11 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-11-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt46a6dfb69ef6bc85)
