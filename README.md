@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Tue, 10 Mar 2026 22:10:00 -0700)
+
+- **Sinner-Fonseca all'Atp Indian Wells 2026, dove vedere in tv e streaming**: [Link](https://sport.sky.it/tennis/2026/03/09/sinner-fonseca-atp-indian-wells-2026-tv-streaming)
+- **Tennis oggi: Indian Wells Open, notizie, risultati, novità, classifiche, live, streaming, dirette, aggiornamenti in tempo reale [NEWS]**: [Link](https://www.musicletter.it/home/2026/03/11/notizie-tennis-oggi-news/)
+- **Live Learner Tien - Jannik Sinner - Indian Wells Men's Singles -: Punteggi & Highlights Tennis - 12/03/2026**: [Link](https://www.eurosport.it/tennis/atp-indian-wells/2026/live-learner-tien-jannik-sinner_mtc20002172/live.shtml)
+
+
 ### رمضان 2026 المغرب (N/A, Tue, 10 Mar 2026 22:40:00 -0700)
 
 - **فلكي: رمضان يكمل 30 يوما .. وعيد الفطر يوافق 21 مارس في المغرب**: [Link](https://www.hespress.com/%D9%81%D9%84%D9%83%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%8A%D9%83%D9%85%D9%84-30-%D9%8A%D9%88%D9%85%D8%A7-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%8A%D9%88%D8%A7%D9%81%D9%82-1712875.html)
