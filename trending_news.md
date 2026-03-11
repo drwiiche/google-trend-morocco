@@ -1,3 +1,10 @@
+### ادعية العشر الاواخر من رمضان (N/A, Tue, 10 Mar 2026 21:20:00 -0700)
+
+- **دعاء يوم 21 رمضان 2026: اللهمَّ احمنا من كل أذى واشغلنا بك عن همومنا**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/11/2955689/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%8A%D9%88%D9%85-21-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D8%A7%D9%84%D9%84%D9%87%D9%85-%D8%A7%D8%AD%D9%85%D9%86%D8%A7-%D9%85%D9%86-%D9%83%D9%84-%D8%A3%D8%B0%D9%89-%D9%88%D8%A7%D8%B4%D8%BA%D9%84%D9%86%D8%A7-%D8%A8%D9%83-%D8%B9%D9%86-%D9%87%D9%85%D9%88%D9%85%D9%86%D8%A7-)
+- **دعاء اليوم التاسع عشر من رمضان لاغتنام العشر الأواخر**: [Link](https://www.almaghribtoday.net/2494/105747-%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AA%D8%A7%D8%B3%D8%B9-%D8%B9%D8%B4%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%84%D8%A7%D8%BA%D8%AA%D9%86%D8%A7%D9%85-%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1)
+- **دعاء اليوم الثاني والعشرين من شهر رمضان 2026**: [Link](https://www.sayidaty.net/%D8%A8%D9%84%D8%B3/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/1808622-%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%88%D8%A7%D9%84%D8%B9%D8%B4%D8%B1%D9%8A%D9%86-%D9%85%D9%86-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+
+
 ### bam adebayo (N/A, Wed, 11 Mar 2026 01:40:00 -0700)
 
 - **Bam and A'ja, basketball power couple, now with shared distinction**: [Link](https://www.si.com/nba/heat/onsi/news/bam-and-a-ja-basketball-power-couple-now-with-shared-distinction-01kkdfeemfgd)
