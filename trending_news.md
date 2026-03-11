@@ -1,3 +1,45 @@
+### city (N/A, Wed, 11 Mar 2026 14:10:00 -0700)
+
+- **Carrying signs saying ‘Fair Contract Now,’ Aurora city employees picket outside City Hall**: [Link](https://www.chicagotribune.com/2026/03/11/carrying-signs-saying-fair-contract-now-aurora-city-employees-picket-outside-city-hall/)
+- **Coconut Grove residents suing city over infamous ‘Old Smokey’ incinerator: ‘An injustice was done’**: [Link](https://www.local10.com/news/local/2026/03/11/coconut-grove-residents-suing-city-over-infamous-old-smokey-incinerator-an-injustice-was-done/)
+- **Lawsuit over ‘Old Smokey' trash incinerator back in court**: [Link](https://www.nbcmiami.com/video/nbc-6-news/lawsuit-over-old-smokey-trash-incinerator-back-in-court/3779276/)
+
+
+### brahim díaz (N/A, Wed, 11 Mar 2026 14:10:00 -0700)
+
+- **brahim díaz - More News on LatestLY**: [Link](https://www.latestly.com/google-trends/12032026/brahim-diaz/)
+- **The history behind the 'Panenka' penalty kick**: [Link](https://www.bbc.co.uk/news/videos/c2e4y8kew34o)
+- **From Brahim Diaz to Sergio Aguero: Five Panenka penalties that went horribly wrong**: [Link](https://www.thesportsnewsblitz.com/news/from-brahim-diaz-to-sergio-aguero-five-panenka-penalties-that-went-horribly-wrong)
+
+
+### كورة (N/A, Wed, 11 Mar 2026 14:00:00 -0700)
+
+- **تأجيل موعد المحاكمة الجديدة بشأن ملابسات وفاة مارادونا الى منتصف إبريل**: [Link](https://www.alkhaleej.ae/2026-03-12/%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D9%84%D8%A7%D8%A8%D8%B3%D8%A7%D8%AA-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%A7%D8%B1%D8%A7%D8%AF%D9%88%D9%86%D8%A7-%D8%A7%D9%84%D9%89-%D9%85%D9%86%D8%AA%D8%B5%D9%81-%D8%A5%D8%A8%D8%B1%D9%8A%D9%84-6354716/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+- **تأجيل محاكمة قضية وفاة مارادونا إلى منتصف أبريل**: [Link](https://koorabreak.com/ar/266703/)
+- **فيديو: استقبال عدائي من جماهير ريال مدريد لحافلة مانشستر سيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-%D8%B9%D8%AF%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D8%AD%D8%A7%D9%81%D9%84%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt60d3254e7195d12e)
+
+
+### مباراة اليوم (N/A, Wed, 11 Mar 2026 13:50:00 -0700)
+
+- **جدول مباريات اليوم الأربعاء 11 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-11-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt46a6dfb69ef6bc85)
+- **3 قمم مليارية تشعل ثمن نهائي دوري الأبطال .. ريال مدريد الأغلى**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/3-%D9%82%D9%85%D9%85-%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%AB%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D9%89-7678)
+- **ريال مدريد ومانشستر سيتي في الأبطال: لعبة الشطرنج وكش ملك قاتلة**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%84%D8%B9%D8%A8%D8%A9-%D8%A7%D9%84%D8%B4%D8%B7%D8%B1%D9%86%D8%AC-%D9%88%D9%83%D8%B4-%D9%85%D9%84%D9%83-%D9%82%D8%A7%D8%AA%D9%84%D8%A9)
+
+
+### live (N/A, Wed, 11 Mar 2026 13:50:00 -0700)
+
+- **VIDEO | Jean Silva shoves Bryce Mitchell ahead of grappling match in first faceoff since UFC feud**: [Link](https://www.bjpenn.com/mma-news/jean-silva/video-jean-silva-shoves-bryce-mitchell-grappling-match-faceoff/)
+- **Jorge Masvidal mocks 'one eye' Shara Magomedov in back-and-forth following Hype FC withdrawal**: [Link](https://bloodyelbow.com/2026/03/09/jorge-masvidal-mocks-one-eye-shara-magomedov-in-back-and-forth-following-hype-fc-withdrawal/)
+- **HYPE Brazil: Tsarukyan vs Mokaev Live free Boxingstreams PPV**: [Link](https://www.hackster.io/liamappsdsf/hype-brazil-tsarukyan-vs-mokaev-live-free-boxingstreams-ppv-869656?tyh)
+
+
+### match (N/A, Wed, 11 Mar 2026 13:40:00 -0700)
+
+- **Plans for WrestleMania 42 Championship Match in Jeopardy Due to Injury**: [Link](https://sports.yahoo.com/articles/plans-wrestlemania-42-championship-match-160032574.html)
+- **WWE WrestleMania 42 Confirmed Card And Expected Matches**: [Link](https://www.forbes.com/sites/blakeoestriecher/2026/03/10/wwe-wrestlemania-42-confirmed-card-and-expected-matches/)
+- **WrestleMania 42 Is Quietly Becoming a Showcase for WWE's Women**: [Link](https://bleacherreport.com/articles/25404459-wrestlemania-42-quietly-becoming-showcase-wwes-women)
+
+
 ### paris (N/A, Wed, 11 Mar 2026 13:40:00 -0700)
 
 - **Dates, horaires, détails : on vous dit tout sur la réouverture des terrasses éphémères à Paris**: [Link](https://www.timeout.fr/paris/actualites/dates-horaires-details-tout-savoir-reouverture-terrasses-ephemeres-paris-030926)
