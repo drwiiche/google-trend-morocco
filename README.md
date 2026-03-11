@@ -1,3 +1,24 @@
+### maroc (N/A, Wed, 11 Mar 2026 05:40:00 -0700)
+
+- **A Paris, Akhannouch représente le Roi au deuxième Sommet international sur l’énergie nucléaire**: [Link](https://ledesk.ma/encontinu/a-paris-akhannouch-represente-le-roi-au-deuxieme-sommet-international-sur-lenergie-nucleaire/)
+- **À Paris, 27 pays dont le Maroc signent une déclaration sur le financement de l’énergie nucléaire**: [Link](https://telquel.ma/instant-t/2026/03/11/a-paris-27-pays-dont-le-maroc-signent-une-declaration-sur-le-financement-de-lenergie-nucleaire_1978305/)
+- **Ursula von der Leyen considère que l’UE a fait une « erreur stratégique » en réduisant les investissements dans le nucléaire civil en Europe**: [Link](https://www.lemonde.fr/economie/article/2026/03/10/ursula-von-der-leyen-considere-que-l-ue-a-fait-une-erreur-strategique-en-reduisant-les-investissements-dans-le-nucleaire-civil-en-europe_6670230_3234.html)
+
+
+### antonin kinsky tottenham (N/A, Wed, 11 Mar 2026 04:40:00 -0700)
+
+- **Tottenham reaction: Pressure builds on Spurs boss Tudor after 'selfish' Kinsky move backfires**: [Link](https://www.bbc.com/sport/football/live/cn9e4w5rpd5t)
+- **Humiliation for Kinsky as Tottenham crumble early in thrashing by Atlético Madrid**: [Link](https://www.theguardian.com/football/2026/mar/10/humiliation-for-kinsky-as-tottenham-are-thrashed-by-atletico-madrid)
+- **Di Canio: Tudor might ‘pay’ for Vicario-Kinský decision, hints at new Tottenham coach**: [Link](https://onefootball.com/fr/news/di-canio-tudor-might-pay-for-vicario-kinsky-decision-hints-at-new-tottenham-coach-42539238)
+
+
+### claude (N/A, Wed, 11 Mar 2026 03:00:00 -0700)
+
+- **Le propriétaire de l’ex-égérie de Claude François, qui ne paye plus ses loyers, manifeste devant chez elle**: [Link](https://www.leparisien.fr/hauts-de-seine-92/le-proprietaire-de-lex-egerie-de-claude-francois-qui-ne-paye-plus-ses-loyers-manifeste-devant-chez-elle-11-03-2026-4VFM7QWNXRB5DGUCVI4NXOMO3U.php)
+- **Annie Philippe face à la polémique : pourquoi l’ex-complice de Claude François refait parler d’elle à Boulogne-Billancourt**: [Link](https://www.gala.fr/l_actu/news_de_stars/annie-philippe-face-a-la-polemique-pourquoi-l-ex-complice-de-claude-francois-refait-parler-d-elle-a-boulogne-billancourt-20260311)
+- **Cette chanteuse des années 1960, ancienne égérie de Claude François, n'est plus en mesure de payer son logement**: [Link](https://www.purepeople.com/article/cette-chanteuse-des-annees-1960-ancienne-egerie-de-claude-francois-nest-plus-en-mesure-de-payer-son-logement_a548182/1)
+
+
 ### ادعية العشر الاواخر من رمضان (N/A, Tue, 10 Mar 2026 21:20:00 -0700)
 
 - **دعاء يوم 21 رمضان 2026: اللهمَّ احمنا من كل أذى واشغلنا بك عن همومنا**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/11/2955689/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%8A%D9%88%D9%85-21-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D8%A7%D9%84%D9%84%D9%87%D9%85-%D8%A7%D8%AD%D9%85%D9%86%D8%A7-%D9%85%D9%86-%D9%83%D9%84-%D8%A3%D8%B0%D9%89-%D9%88%D8%A7%D8%B4%D8%BA%D9%84%D9%86%D8%A7-%D8%A8%D9%83-%D8%B9%D9%86-%D9%87%D9%85%D9%88%D9%85%D9%86%D8%A7-)
