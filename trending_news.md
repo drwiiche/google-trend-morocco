@@ -1,3 +1,17 @@
+### ليفركوزن ضد آرسنال (N/A, Wed, 11 Mar 2026 10:10:00 -0700)
+
+- **أرتيتا: لم أملك الشجاعة للتحدث مع تشابي ألونسو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%84%D9%85-%D8%A7%D9%94%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B4%D8%AC%D8%A7%D8%B9%D8%A9-%D9%84%D9%84%D8%AA%D8%AD%D8%AF%D8%AB-%D9%85%D8%B9-%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88/blte867e819687bf4da)
+- **باير ليفركوزن يستقبل آرسنال في ذهاب ثمن النهائي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D9%8A%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D8%B0%D9%87%D8%A7%D8%A8-%D8%AB%D9%85%D9%86-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-2026-03-10)
+- **هيولماند: ارسنال الأفضل في أوروبا لكن المفاجأة ممكنة**: [Link](https://www.elsport.com/news/show/815133/%D9%87%D9%8A%D9%88%D9%84%D9%85%D8%A7%D9%86%D8%AF-%D8%A7%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%83%D9%86-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D9%85%D9%85%D9%83%D9%86%D8%A9)
+
+
+### leverkusen – arsenal (N/A, Wed, 11 Mar 2026 10:00:00 -0700)
+
+- **Every word from Arteta's pre-Leverkusen presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-leverkusen-presser)
+- **Follow the first legs of the Champions League last-16 clashes**: [Link](https://www.flashscore.com/news/soccer-champions-league-champions-league-live-arsenal-visiting-leverkusen-before-real-madrid-clash-with-man-city/KAK7GOL8/)
+- **Arsenal Champions League test draws clear warning from Arteta**: [Link](https://dailycannon.com/2026/03/arsenal-arteta-leverkusen/)
+
+
 ### parcoursup (N/A, Wed, 11 Mar 2026 05:50:00 -0700)
 
 - **Parcoursup : des frais de dossier pour certaines formations**: [Link](https://www.leparisien.fr/etudiant/etudes/parcoursup/parcoursup-des-frais-de-dossier-pour-certaines-formations-VLYJATW2RNNGDLN7I6X5XXGMGU.php)
