@@ -1,3 +1,29 @@
+### nba (N/A, Tue, 10 Mar 2026 19:20:00 -0700)
+
+- **Bam Adebayo Becomes Second-Highest Single-Game Scorer In NBA History**: [Link](https://www.hoopsrumors.com/2026/03/bam-adebayo-becomes-second-highest-single-game-scorer-in-nba-history.html)
+- **NBA's ALL-TIME record for points in a single game:**: [Link](https://ca.sports.yahoo.com/news/nbas-time-record-points-single-021658891.html)
+- **Bam Adebayo sends strong message as he overtakes Kobe Bryant in NBA history**: [Link](https://allucanheat.com/bam-adebayo-sends-strong-message-as-he-overtakes-kobe-bryant-in-nba-history)
+
+
+### وزارة العدل المسطرة الغيابية (N/A, Tue, 10 Mar 2026 19:20:00 -0700)
+
+- **أزيد من 625 "روشيرشي".. وزارة العدل تنشر لائحتهم وتدعوهم لتسليم أنفسهم**: [Link](https://ar.telquel.ma/%D8%A3%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-625-%D8%B1%D9%88%D8%B4%D9%8A%D8%B1%D8%B4%D9%8A-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D9%86%D8%B4%D8%B1-%D9%84%D8%A7%D8%A6/)
+- **منصة المسطرة الغيابية تضم 37 “روشيرشي” من مراكش**: [Link](https://kech24.com/%D9%85%D9%86%D8%B5%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%B7%D8%B1%D8%A9-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B6%D9%85-37-%D8%B1%D9%88%D8%B4%D9%8A%D8%B1%D8%B4%D9%8A-%D9%85%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4.html)
+- **وزارة العدل تطلق منصة خاصة بأسماء المبحوث عنهم وتدعو للتبليغ عنهم**: [Link](https://www.belpresse.com/lastnews/619008.html)
+
+
+### guerre iran israël (N/A, Tue, 10 Mar 2026 18:50:00 -0700)
+
+- **EN DIRECT, guerre au Moyen-Orient : Israël annonce de nouvelles frappes en Iran ainsi que sur la banlieue sud de Beyrouth ; Téhéran dit mener des attaques de grande ampleur**: [Link](https://www.lemonde.fr/international/live/2026/03/11/en-direct-guerre-au-moyen-orient-israel-annonce-de-nouvelles-frappes-en-iran-ainsi-que-sur-la-banlieue-sud-de-beyrouth_6669855_3210.html)
+- **EN DIRECT Guerre en Iran : Téhéran cible des bases américaines, Israël procède à une nouvelle vague de frappes...**: [Link](https://www.20minutes.fr/monde/etats-unis/4205405-20260310-direct-guerre-iran-cours-petrole-redescendent-apres-annonces-trump)
+- **Raffineries et usines de dessalement frappées : en Iran, une grave crise sanitaire se profile**: [Link](https://fr.euronews.com/2026/03/10/grave-crise-de-leau-en-vue-usines-de-dessalement-du-moyen-orient-visees-pluies-acides)
+
+
+### un si grand soleil (N/A, Tue, 10 Mar 2026 18:30:00 -0700)
+
+
+
+
 ### أتلتيكو مدريد (N/A, Tue, 10 Mar 2026 15:20:00 -0700)
 
 - **فيديو: أتلتيكو مدريد يسحق توتنهام ويضع قدما في ربع النهائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%AD%D9%82-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%88%D9%8A%D8%B6%D8%B9-%D9%82%D8%AF%D9%85%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A/bltd5562f8a631ca5e4)
