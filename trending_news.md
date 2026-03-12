@@ -1,3 +1,10 @@
+### ليلة القدر 2026 (N/A, Wed, 11 Mar 2026 23:10:00 -0700)
+
+- **الأدعية المستحبة في الليلة الوترية 23 رمضان 2026.. هل هي ليلة القدر؟**: [Link](https://al-ain.com/article/night-of-destiny)
+- **ما كان يفعله النبي صلى الله عليه وسلم في العشر الأواخر من رمضان**: [Link](https://tawusal.com/14737/%D9%85%D8%A7-%D9%83%D8%A7%D9%86-%D9%8A%D9%81%D8%B9%D9%84%D9%87-%D8%A7%D9%84%D9%86%D8%A8%D9%8A-%D8%B5%D9%84%D9%89-%D8%A7%D9%84%D9%84%D9%87-%D8%B9%D9%84%D9%8A%D9%87-%D9%88%D8%B3%D9%84%D9%85-%D9%81%D9%8A/)
+- **الإعلامي أشرف محمود: الاعتكاف جنة الأرض في رحاب العشر الأواخر**: [Link](https://www.altreeq.com/531200)
+
+
 ### iphone 18 pro max (N/A, Wed, 11 Mar 2026 21:20:00 -0700)
 
 - **iPhone 18 Pro series now rumored to miss out on an important upgrade - GSMArena.com news**: [Link](https://www.gsmarena.com/iphone_18_pro_series_now_rumored_to_miss_on_an_important_upgrade-news-71914.php)
