@@ -1,3 +1,31 @@
+### ligue europa (N/A, Thu, 12 Mar 2026 11:40:00 -0700)
+
+- **Un pays qu'il connaît, un adversaire qu'il a déjà martyrisé : Endrick en terrain connu et très attendu avec l'OL face au Celta Vigo**: [Link](https://www.lequipe.fr/Football/Article/Un-pays-qu-il-connait-un-adversaire-qu-il-a-deja-martyrise-endrick-en-terrain-connu-et-tres-attendu-avec-l-ol-face-au-celta-vigo/1658698)
+- **OL : le retour d’Endrick en Espagne prend une tournure inattendue**: [Link](https://www.footmercato.net/a6289655313557989893-ol-le-retour-dendrick-en-espagne-prend-une-tournure-inattendue)
+- **Un échange de tirs a éclaté dans une synagogue à West Bloomfield, Michigan. La police mène une vaste opération tandis que la gouverneure Gretchen Whitmer dénonce l'antisémitisme et appelle au calme.**: [Link](https://www.facebook.com/blickfr/posts/un-%C3%A9change-de-tirs-a-%C3%A9clat%C3%A9-dans-une-synagogue-%C3%A0-west-bloomfield-michigan-la-pol/1300015625517027/)
+
+
+### panathinaikos vs real betis (N/A, Thu, 12 Mar 2026 11:40:00 -0700)
+
+- **Panathinaikos vs Real Betis live online: score, stats, goals & updates | Europa League Round of 16 first leg 2025/26**: [Link](https://en.as.com/soccer/panathinaikos-vs-real-betis-live-online-score-stats-goals-updates-europa-league-round-of-16-first-leg-202526-f202603-n/)
+- **Panathinaikos vs Betis Prediction: betting on a productive draw**: [Link](https://www.telecomasia.net/sports-betting/tips/football/panathinaikos-vs-betis-match-prediction-12-march-2026/)
+- **The European Debut of the 'Little Wizard': Fidalgo Leads Betis into the Athens Cauldron**: [Link](https://www.soyfutbol.com/en/news/the-european-debut-of-the-little-wizard-fidalgo-leads-betis-into-the-athens-cauldron-20260311-0036.html)
+
+
+### europa league (N/A, Thu, 12 Mar 2026 11:30:00 -0700)
+
+- **Preview: Bologna vs Roma - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/bologna/europa-league/preview/bologna-vs-roma-prediction-team-news-lineups_593566.html)
+- **Gasperini: ‘Roma confident Zaragoza will help and not worried by defence’**: [Link](https://onefootball.com/en/news/gasperini-roma-confident-zaragoza-will-help-and-not-worried-by-defence-42547313)
+- **Bologna vs Roma – Kone in the stands after muscle strain persists**: [Link](https://football-italia.net/bologna-vs-roma-kone-injury/)
+
+
+### aid el fitr (N/A, Thu, 12 Mar 2026 11:10:00 -0700)
+
+- **La date de fin du ramadan 2026 est connue : voici quand aura lieu l'Aïd el-Fitr, selon le CFCM**: [Link](https://actu.fr/societe/ramadan-2026-a-quelle-date-se-deroule-l-aid-el-fitr-qui-marque-la-fin-du-mois-de-jeune-pour-les-musulmans_63948999.html)
+- **Quand a lieu l’Aïd al-Fitr 2026, la fête qui marque la fin du Ramadan ?**: [Link](https://www.larepubliquedespyrenees.fr/societe/religion/quand-a-lieu-l-aid-al-fitr-2026-la-fete-qui-marque-la-fin-du-ramadan-28240657.php)
+- **France : l’Aïd el-Fitr célébré le 20 mars, la Zakat el-Fitr fixée à 9€**: [Link](https://ar.yabiladi.com/articles/details/189902/france-l-aid-el-fitr-celebre-mars.html)
+
+
 ### rijeka – strasbourg (N/A, Thu, 12 Mar 2026 10:40:00 -0700)
 
 
