@@ -1,3 +1,38 @@
+### samsunspor – rayo (N/A, Thu, 12 Mar 2026 10:20:00 -0700)
+
+- **Temsilcimiz Samsunspor İspanyol ekibi Vallecano karşısında: İşte muhtemel 11'ler**: [Link](https://www.yenicaggazetesi.com/samsunspor-rayo-vallecano-maci-saat-kacta-hangi-kanalda-muhtemel-11ler-1008461h.htm)
+- **Thorsten Fink "tarih yazmak için şart" dedi: Dev maçın planını açıkladı**: [Link](https://www.ntvspor.net/futbol/thorsten-fink-tarih-yazmak-icin-sart-dedi-dev-macin-planini-acikladi-419162)
+- **Samsun'da yaşlıların en çok yaşadığı ilçe açıklandı**: [Link](https://www.gazetegercek.com.tr/samsunda-yaslilarin-en-cok-yasadigi-ilce-aciklandi/215792)
+
+
+### lille – aston villa (N/A, Thu, 12 Mar 2026 10:10:00 -0700)
+
+- **Aston Villa handed huge injury boost ahead of Man United clash**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/aston-villa-handed-huge-injury-33577343)
+- **The 9 players who will miss Aston Villa's clash with Lille including Cash and Mbappe**: [Link](https://www.tribalfootball.com/article/soccer-europa-league-the-9-players-who-will-miss-aston-villa-s-clash-with-lille-including-cash-and-mbappe-bc64443e-e25b-40f3-9616-ebea1a606eff)
+- **Lille vs. Aston Villa Europa League prediction, start time, how to watch**: [Link](https://www.usatoday.com/story/sports/soccer/epl/2026/03/12/lille-aston-villa-prediction-odds-where-to-watch-europa-league/89109917007/)
+
+
+### جثة الطفلة سندس (N/A, Thu, 12 Mar 2026 10:00:00 -0700)
+
+- **نهاية مأساوية لرحلة البحث عن الطفلة سندس بشفشاون**: [Link](https://snrtnews.com/article/147969)
+- **بعد أسابيع من الاختفاء.. العثور على جثة الطفلة سندس بمجرى واد**: [Link](https://ar.le360.ma/societe/CO4NAUSARFBXLA4L5HDEF2V3KY/)
+- **العثور على جثمان الطفلة سندس بمجرى واد في شفشاون بعد ساعات من البحث**: [Link](https://febrayer.com/1138379.html)
+
+
+### المهدي حيجاوي (N/A, Thu, 12 Mar 2026 09:30:00 -0700)
+
+- **نجل المهدي حيجاوي: والدي مصاب بـ"متلازمة الكذب" .. والعائلة أول ضحاياه**: [Link](https://www.hespress.com/%D9%86%D8%AC%D9%84-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D9%8A-%D8%AD%D9%8A%D8%AC%D8%A7%D9%88%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D9%8A-%D9%85%D8%B5%D8%A7%D8%A8-%D8%A8%D9%80%D9%85%D8%AA%D9%84%D8%A7%D8%B2%D9%85-1714694.html)
+- **استئنافية الدار البيضاء تؤيد حكما بثلاث سنوات حبسا نافذا في حق وسطاء لهشام جيراندو**: [Link](https://barlamane.com/%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%AA%D8%A4%D9%8A%D8%AF-%D8%AD%D9%83%D9%85%D8%A7-%D8%A8%D8%AB%D9%84/)
+- **الخيانة الرقمية… حين يتحول النصب والتشهير إلى سلاح ضد الوطن، هشام جيراندو نموذجا**: [Link](https://www.siyassi.com/avis/340849/)
+
+
+### google map (N/A, Thu, 12 Mar 2026 03:20:00 -0700)
+
+- **How we’re reimagining Maps with Gemini**: [Link](https://blog.google/products-and-platforms/products/maps/ask-maps-immersive-navigation/)
+- **Google brings more AI to navigation with 'Ask Maps' feature that lets users ask complex questions**: [Link](https://www.cnbc.com/2026/03/12/google-brings-more-gemini-ai-to-navigation-with-ask-maps-feature.html)
+- **Google Maps Just Got a Massive Makeover and New AI Features for Drivers**: [Link](https://www.roadandtrack.com/news/a70715358/google-maps-makeover/)
+
+
 ### espagne (N/A, Thu, 12 Mar 2026 09:10:00 -0700)
 
 - **La date et le stade où se jouera la Finalissima sont connus**: [Link](https://www.footmercato.net/a7945730525896722120-la-date-et-le-stade-ou-se-jouera-la-finalissima-sont-connus)
