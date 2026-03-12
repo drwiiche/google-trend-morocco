@@ -1,3 +1,17 @@
+### aid el fitr 2026 france (N/A, Wed, 11 Mar 2026 19:00:00 -0700)
+
+- **Quand a lieu l’Aïd al-Fitr 2026, la fête qui marque la fin du Ramadan ?**: [Link](https://www.larepubliquedespyrenees.fr/societe/religion/quand-a-lieu-l-aid-al-fitr-2026-la-fete-qui-marque-la-fin-du-ramadan-28198813.php)
+- **France : l’Aïd el-Fitr célébré le 20 mars, la Zakat el-Fitr fixée à 9€**: [Link](https://ar.yabiladi.com/articles/details/189902/france-l-aid-el-fitr-celebre-mars.html)
+- **Jordanie | Le gouvernement fixe les dates des fêtes de l'Aïd el-Fitr pour 2026**: [Link](https://www.arabiaweather.com/fr/content/jordanie-le-gouvernement-fixe-les-dates-des-ftes-de-l39ad-elfitr-pour-2026)
+
+
+### real madrid live (N/A, Wed, 11 Mar 2026 14:40:00 -0700)
+
+- **Champions League: Federico Valverde scores hat-trick for Real Madrid vs Man City, PSG put five past Chelsea**: [Link](https://www.bbc.com/sport/football/live/clygg57vve7t)
+- **Paris Saint-Germain v Chelsea, Bodø/Glimt v Sporting, and more: football – as it happened**: [Link](https://www.theguardian.com/football/live/2026/mar/11/paris-saint-germain-v-chelsea-bodglimt-v-sporting-and-more-football-live)
+- **📸 Incredible night: Kvara shines, PSG and Bodø on fire 🔥**: [Link](https://onefootball.com/fr/news/incredible-night-kvara-shines-psg-and-bodo-on-fire-42542435)
+
+
 ### inter miami (N/A, Wed, 11 Mar 2026 17:30:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Set to Visit Nashville SC for Champions Cup Round of 16 First Leg**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-visit-nashville-sc-for-champions-cup-round-of-16-first-leg)
