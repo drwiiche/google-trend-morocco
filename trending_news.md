@@ -1,3 +1,10 @@
+### pitarch (N/A, Wed, 11 Mar 2026 15:20:00 -0700)
+
+- **Thierry Henry se rinde a Pitarch: "No sé cómo pronunciar su nombre, pero... ¡qué partido ha hecho!"**: [Link](https://www.marca.com/futbol/champions-league/2026/03/11/thierry-henry-rinde-pitarch-pronunciar-nombre-partido-hecho.html)
+- **"Soy muy del Barça y, obviamente, no quiero usar esa camiseta, pero si me la pongo quizá me ayude a recuperar el pelo"**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20260312/1004150760/barca-quiero-camiseta-me-pongo-quiza-me-ayude-recuperar-pelo.html)
+- **Henry bromea sobre el poder del Real Madrid: ¡Quizás me devuelva el cabello!**: [Link](https://www.ysscores.com/es/news/13926383/Henry-bromea-sobre-el-poder-del-Real-Madrid:-%C2%A1Quiz%C3%A1s-me-devuelva-el-cabello!)
+
+
 ### ليلة القدر 2026 (N/A, Wed, 11 Mar 2026 23:10:00 -0700)
 
 - **الأدعية المستحبة في الليلة الوترية 23 رمضان 2026.. هل هي ليلة القدر؟**: [Link](https://al-ain.com/article/night-of-destiny)
