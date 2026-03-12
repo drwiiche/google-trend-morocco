@@ -1,3 +1,17 @@
+### vle (N/A, Thu, 12 Mar 2026 01:10:00 -0700)
+
+- **Latest Supercar News: Mercedes-Benz ushers in new era with all-new electric VLE, while Porsche expands SUV lineup with 2026 Cayenne S**: [Link](https://supercarblondie.com/mercedes-benz-vle-porsche-cayenne-s-electric-kia-telluride-hybrid-lamborghini-miura/)
+- **Rita Ora shines in Germany, performing as a special guest at the Mercedes-Benz event promoting the new electric car**: [Link](https://telegrafi.com/en/Rita-Ora-shines-in-Germany-as-she-performs-as-a-special-guest-at-the-Mercedes-Benz-event-promoting-the-new-electric-car/)
+- **MERCEDES VLE, THE SPACE OF LUXURY**: [Link](https://autodesignmagazine.com/en/2026/03/mercedes-vle-the-space-of-luxury/)
+
+
+### الحركة الانتقالية (N/A, Wed, 11 Mar 2026 23:20:00 -0700)
+
+- **وزارة التربية تطلق الحركة الانتقالية**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B7%D9%84%D9%82-%D8%A7%D9%84%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-1714438.html)
+- **وزارة التعليم تطلق الحركة الانتقالية.. سنتان أقدمية شرط إلزامي وهذه معايير التنقيط والأولوية**: [Link](https://al3omk.com/1144479.html)
+- **وزارة التربية الوطنية تُطلق الحركة الانتقالية**: [Link](https://ar.le360.ma/societe/NIDGW5JP75FBPJXSPR75NYKT24/)
+
+
 ### rachid benmahmoud (N/A, Thu, 12 Mar 2026 06:40:00 -0700)
 
 - **Équipe nationale. À deux semaines des amicaux, Mohamed Ouahbi toujours sans staff complet**: [Link](https://medias24.com/2026/03/11/equipe-nationale-a-deux-semaines-des-amicaux-mohamed-ouahbi-toujours-sans-staff-complet-1641539/)
