@@ -1,3 +1,10 @@
+### rachid benmahmoud (N/A, Thu, 12 Mar 2026 06:40:00 -0700)
+
+- **Équipe nationale. À deux semaines des amicaux, Mohamed Ouahbi toujours sans staff complet**: [Link](https://medias24.com/2026/03/11/equipe-nationale-a-deux-semaines-des-amicaux-mohamed-ouahbi-toujours-sans-staff-complet-1641539/)
+- **Lions de l’Atlas : Les chantiers prioritaires de Mohamed Ouahbi avant le Mondial 2026**: [Link](https://lematin.ma/videos/lions-de-latlas-les-chantiers-de-mohamed-ouahbi-avant-le-mondial-2026/334411)
+- **Les 12 Travaux de Ouahbi**: [Link](https://sport.le360.ma/football/lions-atlas/les-12-travaux-de-ouahbi_TAZEOI4D7NFCNAWLU54UCHYDHE/)
+
+
 ### ice (N/A, Thu, 12 Mar 2026 05:50:00 -0700)
 
 - **Demonstrators arrested during chaotic ICE protest in South Burlington**: [Link](https://www.wcax.com/2026/03/12/demonstrators-arrested-during-chaotic-ice-protest-south-burlington/)
