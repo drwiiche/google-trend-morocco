@@ -1,3 +1,24 @@
+### تاجيل العطلة البينية (N/A, Thu, 12 Mar 2026 15:10:00 -0700)
+
+- **"وزارة التعليم": لا تغيير في تاريخ العطلة البينية**: [Link](https://madar21.com/412445.html)
+- **التداخل بين عيد الفطر و"العطلة البينية" يثير الجدل في الأوساط التعليمية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%AF%D8%A7%D8%AE%D9%84-%D8%A8%D9%8A%D9%86-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%88%D8%A7%D9%84%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D9%8A%D9%86%D9%8A%D8%A9-1713674.html)
+- **البرلماني خالد السطي يسحب سؤاله الكتابي حول ”تأجيل العطلة البينية” – ChoufTV :: TV شوف**: [Link](https://chouftv.ma/press/778094.html)
+
+
+### nottm forest – midtjylland (N/A, Thu, 12 Mar 2026 14:20:00 -0700)
+
+- **Nottm Forest Vs Midtjylland: Pereira balances priorities, ticket cuts and spirit**: [Link](https://www.filmogaz.com/191045)
+- **Nottingham Forest and Crystal Palace suffer shoddy home performances in Europe**: [Link](https://www.gbnews.com/sport/football/nottingham-forest-crystal-palace-europa)
+- **Forest stunned by Midtjylland, Villa beat Lille in Europa League**: [Link](https://uk.sports.yahoo.com/news/watkins-ends-drought-villa-snatch-195500687.html)
+
+
+### زكاة الفطر (N/A, Thu, 12 Mar 2026 12:10:00 -0700)
+
+- **باحثون يضعون "مقدار زكاة الفطر" في السياق الاقتصادي والاجتماعي بالمغرب**: [Link](https://www.hespress.com/%D8%A8%D8%A7%D8%AD%D8%AB%D9%88%D9%86-%D9%8A%D8%B6%D8%B9%D9%88%D9%86-%D9%85%D9%82%D8%AF%D8%A7%D8%B1-%D8%B2%D9%83%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D9%8A-1714454.html)
+- **25 درهما مقدار زكاة الفطر نقدا لعام 1447هـ/2026م (المجلس العلمي الأعلى)**: [Link](https://2m.ma/ar/news/25-%D8%AF%D8%B1%D9%87%D9%85%D8%A7-%D9%85%D9%82%D8%AF%D8%A7%D8%B1-%D8%B2%D9%83%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%86%D9%82%D8%AF%D8%A7-%D9%84%D8%B9%D8%A7%D9%85-1447%D9%87%D9%80-2026%D9%85-%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B9%D9%84%D9%85%D9%8A-20260312)
+- **المجلس العلمي الأعلى يحدّد قيمة زكاة الفطر لهذا العام**: [Link](https://ar.hibapress.com/details-709664.html)
+
+
 ### باناثينايكوس ضد ريال بتيس (N/A, Thu, 12 Mar 2026 11:10:00 -0700)
 
 - **باناثينايكوس يفاجئ ريال بيتيس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D9%86%D8%A7%D8%AB%D9%8A%D9%86%D8%A7%D9%8A%D9%83%D9%88%D8%B3-%D9%8A%D9%81%D8%A7%D8%AC%D8%A6-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-2026-03-12)
