@@ -1,3 +1,10 @@
+### inter miami (N/A, Wed, 11 Mar 2026 17:30:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Set to Visit Nashville SC for Champions Cup Round of 16 First Leg**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-visit-nashville-sc-for-champions-cup-round-of-16-first-leg)
+- **Messi Mania: The Hunt for 900**: [Link](https://www.365scores.com/news/messi-mania-the-hunt-for-900)
+- **Pep Guardiola shows the world what he really thinks of Real Madrid’s Champions League trophies**: [Link](https://en.as.com/soccer/pep-guardiola-shows-the-world-what-he-really-thinks-of-real-madrids-champions-league-trophies-f202603-v/)
+
+
 ### carlos alcaraz (N/A, Wed, 11 Mar 2026 15:30:00 -0700)
 
 - **Alcaraz, enemigo nº 1 hoy en Indian Wells: "Es algo que me preocupa"**: [Link](https://www.mundodeportivo.com/tenis/20260311/1004149908/alcaraz-enemigo-no-1-hoy-indian-wells-me-preocupa.html)
