@@ -1,3 +1,10 @@
+### espagne (N/A, Thu, 12 Mar 2026 09:10:00 -0700)
+
+- **La date et le stade où se jouera la Finalissima sont connus**: [Link](https://www.footmercato.net/a7945730525896722120-la-date-et-le-stade-ou-se-jouera-la-finalissima-sont-connus)
+- **Guerre au Moyen-Orient: changement de lieu pour la Finalissima Espagne-Argentine à cause des bombardements au Qatar**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/guerre-au-moyen-orient-changement-de-lieu-pour-la-finalissima-espagne-argentine-a-cause-des-bombardements-au-qatar_AV-202603120538.html)
+- **Le Santiago Bernabéu accueillera la Finalissima entre l'Espagne et l'Argentine**: [Link](https://m.elbotola.com/fr/article/2026-03-12-13-14-863.html)
+
+
 ### vle (N/A, Thu, 12 Mar 2026 01:10:00 -0700)
 
 - **Latest Supercar News: Mercedes-Benz ushers in new era with all-new electric VLE, while Porsche expands SUV lineup with 2026 Cayenne S**: [Link](https://supercarblondie.com/mercedes-benz-vle-porsche-cayenne-s-electric-kia-telluride-hybrid-lamborghini-miura/)
