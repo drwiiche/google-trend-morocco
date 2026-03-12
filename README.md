@@ -1,3 +1,17 @@
+### ice (N/A, Thu, 12 Mar 2026 05:50:00 -0700)
+
+- **Demonstrators arrested during chaotic ICE protest in South Burlington**: [Link](https://www.wcax.com/2026/03/12/demonstrators-arrested-during-chaotic-ice-protest-south-burlington/)
+- **'Not how we would do things.' South Burlington Police on ICE arrest**: [Link](https://www.burlingtonfreepress.com/story/news/local/vermont/2026/03/11/ice-officers-are-in-vermont-at-a-south-burlington-home/89097732007/)
+- **PHOTOS: Protesters gather to block ICE agents from apprehending man in South Burlington**: [Link](https://vtdigger.org/2026/03/11/photos-protesters-gather-to-block-ice-agents-from-apprehending-man-in-south-burlington/)
+
+
+### aïd el fitr 2026 france (N/A, Thu, 12 Mar 2026 05:40:00 -0700)
+
+- **La date de fin du ramadan 2026 est connue : voici quand aura lieu l'Aïd el-Fitr, selon le CFCM**: [Link](https://actu.fr/societe/ramadan-2026-a-quelle-date-se-deroule-l-aid-el-fitr-qui-marque-la-fin-du-mois-de-jeune-pour-les-musulmans_63948999.html)
+- **Ramadan 2026 : quelle date pour la fin du Ramadan et l’Aïd el-Fitr en France ?**: [Link](https://www.larepubliquedespyrenees.fr/societe/religion/ramadan-2026-quelle-date-pour-la-fin-du-ramadan-et-l-aid-el-fitr-en-france-28225602.php)
+- **France : l’Aïd el-Fitr célébré le 20 mars, la Zakat el-Fitr fixée à 9€**: [Link](https://www.yabiladi.com/articles/details/189902/france-l-aid-el-fitr-celebre-mars.html)
+
+
 ### pitarch (N/A, Wed, 11 Mar 2026 15:20:00 -0700)
 
 - **Thierry Henry se rinde a Pitarch: "No sé cómo pronunciar su nombre, pero... ¡qué partido ha hecho!"**: [Link](https://www.marca.com/futbol/champions-league/2026/03/11/thierry-henry-rinde-pitarch-pronunciar-nombre-partido-hecho.html)
