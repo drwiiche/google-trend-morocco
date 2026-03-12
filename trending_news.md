@@ -1,3 +1,8 @@
+### rijeka – strasbourg (N/A, Thu, 12 Mar 2026 10:40:00 -0700)
+
+
+
+
 ### samsunspor – rayo (N/A, Thu, 12 Mar 2026 10:20:00 -0700)
 
 - **Temsilcimiz Samsunspor İspanyol ekibi Vallecano karşısında: İşte muhtemel 11'ler**: [Link](https://www.yenicaggazetesi.com/samsunspor-rayo-vallecano-maci-saat-kacta-hangi-kanalda-muhtemel-11ler-1008461h.htm)
