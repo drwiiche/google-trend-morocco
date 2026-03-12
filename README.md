@@ -1,3 +1,17 @@
+### gaspillage alimentaire (N/A, Thu, 12 Mar 2026 15:40:00 -0700)
+
+- **Le Marocain jette plus de 113 Kg de nourriture par an, le CESE s'alarme**: [Link](https://lematin.ma/nation/le-marocain-jette-plus-de-113-kg-de-nourriture-par-an-le-cese-salarme/334417)
+- **Gaspillage alimentaire : le CESE appelle à un plan d’action national ciblé**: [Link](https://fr.hespress.com/465514-gaspillage-alimentaire-le-cese-appelle-a-un-plan-daction-national-cible.html)
+- **Les maillons faibles de la chaîne agroalimentaire**: [Link](https://www.leconomiste.com/les-maillons-faibles-de-la-chaine-agroalimentaire/)
+
+
+### تياغو بيتارش (N/A, Thu, 12 Mar 2026 12:00:00 -0700)
+
+- **إسبانيا أم المغرب؟.. بيتارش يكشف موقفه ودور إبراهيم دياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%94%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D8%A8%D9%8A%D8%AA%D8%A7%D8%B1%D8%B4-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%88%D8%AF%D9%88%D8%B1-%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2/blt7e9dac640c883dfc)
+- **بيتارش: لم أحسم قرار اللعب للمغرب أو إسبانيا.. ودياز يتحدث معي عن "الأسود"**: [Link](https://www.hesport.com/%D8%A8%D9%8A%D8%AA%D8%A7%D8%B1%D8%B4-%D9%84%D9%85-%D8%A3%D8%AD%D8%B3%D9%85-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%88-%D8%A5%D8%B3%D8%A8-430596.html)
+- **جوهرة ريال مدريد تياغو بيتارتش يتحدث لأول مرة عن موضوع لعبه بقميص أسود الأطلس**: [Link](https://www.akhbarona.com/sport/lionatlas/422903.html)
+
+
 ### تاجيل العطلة البينية (N/A, Thu, 12 Mar 2026 15:10:00 -0700)
 
 - **"وزارة التعليم": لا تغيير في تاريخ العطلة البينية**: [Link](https://madar21.com/412445.html)
