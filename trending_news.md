@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Thu, 12 Mar 2026 16:40:00 -0700)
+
+- **Sinner si sbarazza di Tien e approda in semifinale**: [Link](https://www.rsi.ch/sport/tennis/Sinner-si-sbarazza-di-Tien-e-approda-in-semifinale--3588675.html)
+- **ATP Indian Wells 2026, Tien è il nuovo De Minaur: travolto da Sinner che raggiunge Zverev in semifinale**: [Link](https://www.lottomatica.sport/news/tennis/atp-indian-wells-2026-tien-e-il-nuovo-de-minaur-travolto-da-sinner-che-raggiunge-zverev-in-semifinale/)
+- **Sinner è tornato: Jannik svela il segreto della svolta a Indian Wells, ma il direttore Haas punta tutto su Alcaraz**: [Link](https://sport.virgilio.it/sinner-e-tornato-jannik-svela-segreto-svolta-indian-wells-direttore-haas-alcaraz-947344)
+
+
 ### gaspillage alimentaire (N/A, Thu, 12 Mar 2026 15:40:00 -0700)
 
 - **Le Marocain jette plus de 113 Kg de nourriture par an, le CESE s'alarme**: [Link](https://lematin.ma/nation/le-marocain-jette-plus-de-113-kg-de-nourriture-par-an-le-cese-salarme/334417)
