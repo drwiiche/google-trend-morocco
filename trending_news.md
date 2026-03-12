@@ -1,3 +1,10 @@
+### iphone 18 pro max (N/A, Wed, 11 Mar 2026 21:20:00 -0700)
+
+- **iPhone 18 Pro series now rumored to miss out on an important upgrade - GSMArena.com news**: [Link](https://www.gsmarena.com/iphone_18_pro_series_now_rumored_to_miss_on_an_important_upgrade-news-71914.php)
+- **Apple May Use iPhone 17 Pro Moulds For iPhone 18 Pro — Meaning No Design Changes Or Under-Display Face ID**: [Link](https://www.ndtvprofit.com/technology/apple-may-use-iphone-17-pro-moulds-for-iphone-18-pro-meaning-no-design-changes-or-under-display-face-id-11203832)
+- **New iPhone 18 Pro leaks explore design details, dimensions, more**: [Link](https://9to5mac.com/2026/03/11/new-iphone-18-pro-leaks-explore-design-details-dimensions-more/)
+
+
 ### هاني شاكر (N/A, Wed, 11 Mar 2026 22:10:00 -0700)
 
 
