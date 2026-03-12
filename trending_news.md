@@ -1,3 +1,38 @@
+### سلتا فيغو ضد أولمبيك ليون (N/A, Thu, 12 Mar 2026 12:40:00 -0700)
+
+- **فونسيكا يرفض "تهويل" وضع أولمبيك ليون قبل مواجهة سيلتا فيغو الحاسمة**: [Link](https://m.elbotola.com/article/2026-03-12-11-00-881.html)
+- **«عودة الفتى الذهبي».. إندريك يطأ الملاعب الإسبانية مجدداً بقميص ليون لمواجهة سيلتا فيجو**: [Link](https://tribuna.com/ar/news/2026-03-12-wd-lft-ldhhby-ndryk-yt-lmlb-lsbny-mjdd-bqmys-lywn-lmwjh-sylt-fyjw/)
+- **قمّة واعدة بين سيلتا فيغو وليون**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85-%D8%A9-%D9%88%D8%A7%D8%B9%D8%AF%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%88%D9%84%D9%8A%D9%88%D9%86-2026-03-12)
+
+
+### livescore (N/A, Thu, 12 Mar 2026 12:40:00 -0700)
+
+- **Four more bets for day three of the Cheltenham Festival**: [Link](https://spectator.com/article/four-more-bets-for-day-3-of-the-cheltenham-festival/)
+- **Jeffbet Welcome Offer for St Patricks Thursday Betting**: [Link](https://www.livescore.com/en/news/horse-racing/cheltenham-festival/jeffbet-welcome-offer-for-st-patricks-thursday-betting/)
+- **Ladbrokes Cheltenham Gold Cup day offer: bet £10 get £40 in free bets**: [Link](https://www.racingpost.com/news/betting-offers/ladbrokes-cheltenham-gold-cup-day-offer-bet-10-get-40-in-free-bets-aRtok8f4OniE/)
+
+
+### crystal palace – aek larnaca (N/A, Thu, 12 Mar 2026 12:30:00 -0700)
+
+- **Team News: Crystal Palace vs. Larnaca injury, suspension list, predicted XIs**: [Link](https://www.sportsmole.co.uk/football/crystal-palace/europa-conference-league/team-news/crystal-palace-vs-larnaca-injury-suspension-list-predicted-xis_593544.html)
+- **Get £40 in free bets with Betway ahead of Crystal Palace vs AEK Larnaca**: [Link](https://talksport.com/betting/4054043/crystal-palace-vs-aek-larnaca-betway-free-bets/)
+- **Kick Off 8pm: Crystal Palace vs AEK Larnaca**: [Link](https://www.skysports.com/football/live-blog/11706/13517798/crystal-palace-vs-aek-larnaca-live-uefa-conference-league-last-16-first-leg-score-match-updates-team-news-and-commentary)
+
+
+### celta vigo – lyon (N/A, Thu, 12 Mar 2026 12:10:00 -0700)
+
+- **🚨 Celta speak out after trouble before Lyon clash**: [Link](https://sports.yahoo.com/articles/celta-speak-trouble-lyon-clash-115200152.html)
+- **Celta Vigo vs. Lyon Europa League prediction, start time, how to watch**: [Link](https://www.usatoday.com/story/sports/soccer/2026/03/12/celta-vigo-lyon-prediction-odds-where-to-watch-europa-league/89112449007/)
+- **Lyon fans attacked by Celta Vigo ultras ahead of Europa League clash in Spain**: [Link](https://ghanasoccernet.com/lyon-fans-attacked-by-celta-vigo-ultras-ahead-of-europa-league-clash-in-spain)
+
+
+### grand theft auto vi (N/A, Thu, 12 Mar 2026 12:10:00 -0700)
+
+- **GTA 6 File Size Has Gamers Braced To Clear A Ton Of Space**: [Link](https://screenrant.com/gta-6-file-size-gamer-reaction-speculation/)
+- **GTA 6 Studio "Must Be Quaking" With Nervousness About Living Up To Hype, Hell Let Loose Dev Says**: [Link](https://www.gamespot.com/articles/gta-6-studio-must-be-quaking-with-nervousness-about-living-up-to-hype-hell-let-loose-dev-says/1100-6538592/)
+- **The GTA 6 Developers Are Facing Unparalleled Expectations**: [Link](https://kotaku.com/gta-6-hype-expectations-open-world-realism-2000676310)
+
+
 ### ligue europa (N/A, Thu, 12 Mar 2026 11:40:00 -0700)
 
 - **Un pays qu'il connaît, un adversaire qu'il a déjà martyrisé : Endrick en terrain connu et très attendu avec l'OL face au Celta Vigo**: [Link](https://www.lequipe.fr/Football/Article/Un-pays-qu-il-connait-un-adversaire-qu-il-a-deja-martyrise-endrick-en-terrain-connu-et-tres-attendu-avec-l-ol-face-au-celta-vigo/1658698)
