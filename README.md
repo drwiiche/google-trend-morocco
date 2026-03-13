@@ -1,3 +1,24 @@
+### carlos alcaraz (N/A, Thu, 12 Mar 2026 19:50:00 -0700)
+
+- **Carlos Alcaraz - Cameron Norrie | En directo los cuartos de final de Indian Wells**: [Link](https://www.marca.com/tenis/indian-wells/carlos-alcaraz-cameron-norrie/2026/03/13/04_0405_20260313_121-directo.html)
+- **El nuevo récord de Carlos Alcaraz que lo iguala a otras leyendas**: [Link](https://www.flashscore.es/noticias/tenis-indian-wells-atp-individuales-alcaraz-en-indian-wells-amplia-su-racha-e-iguala-a-otras-leyendas-del-tenis/ja6t3hdU/)
+- **Alcaraz: "Veremos más de Fonseca en el futuro"**: [Link](https://www.atptour.com/es/news/alcaraz-fonseca-indian-wells-2026-reaction)
+
+
+### علامات ليلة القدر (N/A, Thu, 12 Mar 2026 18:30:00 -0700)
+
+- **دعاء ليلة القدر اليوم 21 رمضان 2026.. أدعية مستحبة في أول ليلة وترية بالعشر الأواخر**: [Link](https://al-ain.com/article/dua-laylat-al-qadr-21-ramadan-2026)
+- **فيديو : العشر الأواخر من رمضان .. طقوس دينية عالية وتقاليد أصيلة في ليلة القدر**: [Link](https://www.medi1tv.com/ar/reportage/386799/%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-.-%D8%B7%D9%82%D9%88%D8%B3-%D8%AF%D9%8A%D9%86%D9%8A%D8%A9-%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%AF-%D8%A3%D8%B5%D9%8A%D9%84%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1)
+- **موعد ليلة 23 رمضان 2026 والحكمة من إخفاء ليلة القدر في الليالي الوترية**: [Link](https://tawusal.com/15457/%D9%85%D9%88%D8%B9%D8%AF-%D9%84%D9%8A%D9%84%D8%A9-23-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D9%88%D8%A7%D9%84%D8%AD%D9%83%D9%85%D8%A9-%D9%85%D9%86-%D8%A5%D8%AE%D9%81%D8%A7%D8%A1-%D9%84%D9%8A%D9%84%D8%A9/)
+
+
+### dv lottery (N/A, Thu, 12 Mar 2026 18:10:00 -0700)
+
+- **New rules for Diversity Visa: Valid, unexpired passport required from applicants for combatting fraud**: [Link](https://timesofindia.indiatimes.com/world/us/new-rules-for-diversity-visa-valid-unexpired-passport-required-from-applicants-for-combatting-fraud/articleshow/129405424.cms)
+- **Green Card Lottery Update as Change Revealed For Applicants**: [Link](https://www.newsweek.com/green-card-lottery-update-change-applicants-passport-11658290)
+- **State Department Mandates Passports for Diversity Visa Seekers**: [Link](https://news.bloomberglaw.com/daily-labor-report/state-department-mandates-passports-for-diversity-visa-seekers)
+
+
 ### kc 135 (N/A, Thu, 12 Mar 2026 17:50:00 -0700)
 
 - **Middle East crisis live: rescue under way after US military refuelling plane crashes in Iraq; top Iranian nuclear scientists killed, Israel says**: [Link](https://www.theguardian.com/world/live/2026/mar/12/iran-war-live-updates-oil-trump-middle-east-crisis-israel-lebanon-iraq-latest-news)
