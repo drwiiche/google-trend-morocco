@@ -1,3 +1,38 @@
+### jour férié aid al fitr maroc (N/A, Fri, 13 Mar 2026 13:40:00 -0700)
+
+- **Aïd al-Fitr : jour férié exceptionnel le lundi 23 mars dans les administrations**: [Link](https://medias24.com/2026/03/13/aid-al-fitr-jour-ferie-exceptionnel-le-lundi-23-mars-dans-les-administrations-1642967/)
+- **Aid Al Fitr : la CMR versera les pensions, de manière exceptionnelle, à partir du 18 mars**: [Link](https://mobile.telquel.ma/instant-t/2026/03/13/aid-al-fitr-la-cmr-versera-les-pensions-de-maniere-exceptionnelle-a-partir-du-18-mars_1978830/)
+- **Aïd Al-Fitr : Lundi 23 mars, jour de congé exceptionnel dans le public**: [Link](https://lematin.ma/nation/aid-al-fitr-lundi-23-mars-jour-de-conge-exceptionnel-dans-le-public/334808)
+
+
+### ألافيس ضد فياريال (N/A, Fri, 13 Mar 2026 13:00:00 -0700)
+
+- **"الليغا" في جولة جديدة من اليوم..**: [Link](https://almarkazia.com/ar/%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D9%81%D9%8A-%D8%AC%D9%88%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-1)
+- **فالنسيا يخطف فوزًا قاتلًا من ألافيس في الليجا**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%8A%D8%AE%D8%B7%D9%81-%D9%81%D9%88%D8%B2%D8%A7-%D9%82%D8%A7%D8%AA%D9%84%D8%A7-%D9%85%D9%86-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-110536)
+- **لقاء بطموحات متباينة يجمع فياريال بمضيفه ألافيس (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/03/alaves-villareal-j28-laliga-pronostic.html)
+
+
+### far vs pyramids (N/A, Fri, 13 Mar 2026 12:50:00 -0700)
+
+- **Rabat set for electric night as FAR and Pyramids clash in TotalEnergies CAF Champions League quarter-final**: [Link](https://www.cafonline.com/caf-champions-league/news/rabat-set-for-electric-night-as-far-and-pyramids-clash-in-totalenergies-caf-champions-league-quarter-final/)
+- **Bach: 'Fans' Absence a Factor; We Aim for Positive Result to Secure Qualification in Egypt'**: [Link](https://m.elbotola.com/en/article/2026-03-12-16-15-909.html)
+- **CAF Champions League: Pyramids FC coach Krunoslav Jurčić braces for tough FAR Rabat quarterfinal test**: [Link](https://africasoccer.com/caf-champions-league-pyramids-fc-coach-krunoslav-jurcic-braces-for-tough-far-rabat-quarterfinal-test/)
+
+
+### quinté du jour (N/A, Fri, 13 Mar 2026 12:30:00 -0700)
+
+- **1 Iron du Gers - Trot**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-1-iron-du-gers-129290.html)
+- **Faites le papier du Quinté+ de ce samedi 14 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-samedi-14-mars)
+- **Quinté Plus PMU : Muloughboy a beaucoup d'atouts dans son jeu**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-muloughboy-a-beaucoup-d-atouts-dans-son-jeu-129296.html)
+
+
+### الجيش الملكي (N/A, Fri, 13 Mar 2026 12:20:00 -0700)
+
+- **الجيش يسعى لاستثمار أفضلية الذهاب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1-%D8%A3%D9%81%D8%B6%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A7%D8%A8-1714980.html)
+- **عصبة الأبطال.. مواجهات قوية تنتظر الجيش الملكي ونهضة بركان في ربع النهائي**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%88%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84/)
+- **غيابات وازنة في صفوف الجيش الملكي قبل مواجهة بيراميدز**: [Link](https://www.radiomars.ma/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%88%D8%A7%D8%B2%D9%86%D8%A9-%D9%81%D9%8A-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%82%D8%A8%D9%84-%D9%85/)
+
+
 ### zeturf (N/A, Fri, 13 Mar 2026 12:30:00 -0700)
 
 - **ZEturf dévoile un nouveau programme de fidélité**: [Link](https://www.zone-turf.fr/actualite/trot/zeturf-devoile-un-nouveau-programme-de-fidelite-129306.html)
