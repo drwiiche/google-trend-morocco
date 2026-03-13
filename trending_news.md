@@ -1,3 +1,10 @@
+### chat (N/A, Fri, 13 Mar 2026 02:50:00 -0700)
+
+- **Claude can now generate charts and diagrams**: [Link](https://www.engadget.com/ai/claude-can-now-generate-charts-and-diagrams-160000369.html)
+- **Anthropic’s Claude AI can respond with charts, diagrams, and other visuals now**: [Link](https://www.theverge.com/ai-artificial-intelligence/893625/anthropic-claude-ai-charts-diagrams)
+- **Anthropic’s Claude can now draw interactive charts and diagrams**: [Link](https://thenewstack.io/anthropics-claude-interactive-visualizations/)
+
+
 ### classroom (N/A, Fri, 13 Mar 2026 02:50:00 -0700)
 
 - **Students ‘render gunman no longer alive’ after campus shooting that killed 1, injured 2**: [Link](https://www.wavy.com/news/local-news/old-dominion-university-issues-active-threat-at-constant-hall/)
