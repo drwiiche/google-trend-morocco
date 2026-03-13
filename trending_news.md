@@ -1,3 +1,10 @@
+### classroom (N/A, Fri, 13 Mar 2026 02:50:00 -0700)
+
+- **Students ‘render gunman no longer alive’ after campus shooting that killed 1, injured 2**: [Link](https://www.wavy.com/news/local-news/old-dominion-university-issues-active-threat-at-constant-hall/)
+- **2 ROTC members injured, gunman dead in shooting at Virginia’s ODU and more headlines**: [Link](https://www.yahoo.com/news/articles/2-rotc-members-injured-gunman-090542784.html)
+- **1 killed, 2 injured and shooter dead at Old Dominion University in Virginia; FBI investigating as act of terrorism**: [Link](https://www.13newsnow.com/article/news/local/mycity/norfolk/odu-issues-active-threat-at-constant-hall/291-5f7b11d7-9fba-4a75-9363-d43522e76e01)
+
+
 ### رمضان (N/A, Fri, 13 Mar 2026 00:50:00 -0700)
 
 - **دعاء العشر الأواخر من رمضان مكتوب.. خير ما يقال في ليلة القدر 2026**: [Link](https://al-ain.com/article/dua-last-ten-days-ramadan-2026)
