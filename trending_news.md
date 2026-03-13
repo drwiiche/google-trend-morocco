@@ -1,3 +1,24 @@
+### karagümrük – fenerbahçe (N/A, Fri, 13 Mar 2026 10:10:00 -0700)
+
+- **CANLI | Fatih Karagümrük - Fenerbahçe maçı Canlı Anlatım - FKG FB maçı kadroları, skoru ve istatistikleri (Süper Lig 26. hafta maçı)**: [Link](https://www.fanatik.com.tr/fenerbahce/live-fatih-karagumruk-fenerbahce-maci-canli-anlatim-fkg-fb-maci-kadrolari-skoru-ve-istatistikleri-super-lig-2615867)
+- **Fenerbahçe'den sakatlık açıklaması**: [Link](https://www.yenicaggazetesi.com/fenerbahceden-sakatlik-aciklamasi-1008933h.htm)
+- **Asensio ve Nene neden ilk 11'de yok? Fenerbahçe'den açıklama**: [Link](https://www.ntvspor.net/foto-galeri/asensio-ve-nene-neden-ilk-11de-yok-fenerbahceden-aciklama-419227)
+
+
+### séisme (N/A, Fri, 13 Mar 2026 09:10:00 -0700)
+
+- **Turquie | Un séisme de magnitude 5,5 touche le nord-est du pays**: [Link](https://www.lapresse.ca/international/europe/2026-03-12/turquie/un-seisme-de-magnitude-5-5-touche-le-nord-est-du-pays.php)
+- **Un séisme de magnitude 5,5 a frappé la province de Tokat, au nord-est de la Turquie, ce vendredi. La secousse, ressentie dans plusieurs provinces, n'a cependant pas causé de dégât pour l'heure. 👉 Retrouvez l'article complet : https://brnw.ch/21x0HuU**: [Link](https://www.facebook.com/blickfr/posts/un-s%C3%A9isme-de-magnitude-55-a-frapp%C3%A9-la-province-de-tokat-au-nord-est-de-la-turqui/1300415088810414/)
+- **Un séisme de magnitude 5,1 frappe la province turque de Denizli**: [Link](https://www.lalibre.be/dernieres-depeches/2026/03/09/un-seisme-de-magnitude-51-frappe-la-province-turque-de-denizli-ICK2SQK26BDXJKII6XLYRB6FBQ/)
+
+
+### eid al fitr 2026 (N/A, Fri, 13 Mar 2026 08:10:00 -0700)
+
+- **When is Eid al-Fitr 2026? What to know about the last days of Ramadan**: [Link](https://www.rgj.com/story/life/2026/03/11/eid-al-fitr-2026/89102590007/)
+- **Eid al-Fitr 2026: Will UAE, Saudi Arabia, Qatar, and GCC Celebrate as Usual Amid Rising Middle East Tensions? What Travelers Should Know Before Planning Their Holiday**: [Link](https://www.travelandtourworld.com/news/article/eid-al-fitr-2026-will-uae-saudi-arabia-qatar-and-gcc-celebrate-as-usual-amid-rising-middle-east-tensions-what-travelers-should-know-before-planning-their-holiday/)
+- **Eidul Fitr likely to fall on March 21: Suparco**: [Link](https://www.dawn.com/news/1980975)
+
+
 ### عيد الفطر (N/A, Fri, 13 Mar 2026 07:30:00 -0700)
 
 - **عطلة استثنائية لإدارات الدولة بالمغرب**: [Link](https://www.hespress.com/%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1715201.html)
