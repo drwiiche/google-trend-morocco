@@ -1,3 +1,24 @@
+### hespress (N/A, Fri, 13 Mar 2026 07:20:00 -0700)
+
+- **عطلة استثنائية لإدارات الدولة بالمغرب**: [Link](https://www.hespress.com/%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1715201.html)
+- **عطلة استثنائية بمناسبة عيد الفطر**: [Link](https://snrtnews.com/article/148094)
+- **بشرى للموظفين.. الحكومة تعلن يوم الاثنين عطلة استثنائية بمناسبة عيد الفطر**: [Link](https://ar.hibapress.com/details-709910.html)
+
+
+### nayef aguerd (N/A, Fri, 13 Mar 2026 06:00:00 -0700)
+
+- **Le message touchant d’Achraf Hakimi pour Nayef Aguerd**: [Link](https://www.footmercato.net/a3106625697934352475-le-message-touchant-dachraf-hakimi-pour-nayef-aguerd)
+- **Lions de l’Atlas : la défense centrale en crise, premier casse‑tête pour Mohamed Ouahbi**: [Link](https://lematin.ma/sports/lions-de-latlas-la-defense-premier-cassetete-pour-mohamed-ouahbi/334391)
+- **OM, Nayef Aguerd passe aux aveux**: [Link](https://www.sports.fr/football/om-nayef-aguerd-passe-aux-aveux-997916.html)
+
+
+### متى عيد الفطر 2026 (N/A, Fri, 13 Mar 2026 00:10:00 -0700)
+
+- **فلكي: رمضان يكمل 30 يوما .. وعيد الفطر يوافق 21 مارس في المغرب**: [Link](https://www.hespress.com/%D9%81%D9%84%D9%83%D9%8A-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%8A%D9%83%D9%85%D9%84-30-%D9%8A%D9%88%D9%85%D8%A7-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%8A%D9%88%D8%A7%D9%81%D9%82-1712875.html)
+- **International Astronomical Center (IAC)**: [Link](https://astronomycenter.net/articles/2026/03/06/shw47)
+- **مسجد باريس الكبير يواصل إثارة الفتنة بين مسلمي فرنسا بإعلان مخالف لزكاة الفطر**: [Link](https://ar.hibapress.com/details-709816.html)
+
+
 ### عطلة عيد الفطر 2026 المغرب (N/A, Fri, 13 Mar 2026 07:30:00 -0700)
 
 - **عطلة استثنائية لإدارات الدولة بالمغرب**: [Link](https://www.hespress.com/%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1715201.html)
