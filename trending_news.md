@@ -1,3 +1,17 @@
+### zeturf quinté demain (N/A, Fri, 13 Mar 2026 13:50:00 -0700)
+
+- **Quinté du vendredi 13 mars 2026 en nocturne à Enghien-Soisy : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-vendredi-13-mars-2026-en-nocturne-a-enghien-soisy-les-pronostics-7900611454)
+- **Vendredi 13 s’invite avec une cagnotte de 13 000€ de Bonus**: [Link](https://www.pmu.fr/point-de-vente/cote-courses/cagnotte-vendredi-13-bonus-promo/)
+- **Iris From, l'outsider séduisant du Quinté+ de ce vendredi 13 mars**: [Link](https://www.equidia.fr/articles/actualite/iris-from-loutsider-seduisant-du-quinte-de-ce-vendredi-13-mars)
+
+
+### listériose (N/A, Fri, 13 Mar 2026 12:50:00 -0700)
+
+- **Cas confirmés de listériose en lien avec le retrait-rappel des produits de charcuterie cuite de l’entreprise Drôme Ardèche Tradition**: [Link](https://agriculture.gouv.fr/cas-confirmes-de-listeriose-en-lien-avec-le-retrait-rappel-des-produits-de-charcuterie-cuite-de)
+- **Listériose: 12 cas, dont 2 mortels, en lien avec des charcuteries d'une entreprise de la Drôme**: [Link](https://medias24.com/agence-presse/listeriose-12-cas-dont-2-mortels-en-lien-avec-des-charcuteries-dune-entreprise-de-la-drome/)
+- **Alerte à la listériose en France : deux morts et dix autres personnes contaminées, de la charcuterie retirée de la vente**: [Link](https://www.ouest-france.fr/sante/alerte-a-la-listeriose-en-france-deux-morts-et-dix-autres-patients-contamines-de-la-charcuterie-retiree-de-la-vente-e732457a-1e1f-11f1-b87e-6bbdedfb4d07)
+
+
 ### jour férié aid al fitr maroc (N/A, Fri, 13 Mar 2026 13:40:00 -0700)
 
 - **Aïd al-Fitr : jour férié exceptionnel le lundi 23 mars dans les administrations**: [Link](https://medias24.com/2026/03/13/aid-al-fitr-jour-ferie-exceptionnel-le-lundi-23-mars-dans-les-administrations-1642967/)
