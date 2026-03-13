@@ -1,3 +1,17 @@
+### yalla kora (N/A, Fri, 13 Mar 2026 15:40:00 -0700)
+
+- **بالفيديو.. إنبي يفاجئ الأهلي وبيراميدز بهدية ثمينة على حساب الزمالك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%95%D9%86%D8%A8%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%A8%D9%87%D8%AF%D9%8A%D8%A9-%D8%AB%D9%85%D9%8A%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83/blt9da7ddc685110659)
+- **«الخسارة» تعكر رحلة الزمالك للكونغو لمواجهة أوتوهو بالكونفيدرالية**: [Link](https://gate.ahram.org.eg/daily/News/205525/69/1011253/%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%89/%C2%AB%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9%C2%BB-%D8%AA%D8%B9%D9%83%D8%B1-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%84%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D8%AA%D9%88%D9%87%D9%88.aspx)
+- **الحلم سبورت : حسام عبد المجيد يحرم دجلة وزد من اللعب مع الكبار بمرحلة تتويج الدورى**: [Link](https://al7lmnews.com/news/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AD%D8%B3%D8%A7%D9%85-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%85%D8%AC%D9%8A%D8%AF-%D9%8A%D8%AD%D8%B1%D9%85-%D8%AF%D8%AC%D9%84%D8%A9/)
+
+
+### caf champions league (N/A, Fri, 13 Mar 2026 14:40:00 -0700)
+
+- **Clinical Downs cruise past Stade Malien**: [Link](https://www.cafonline.com/caf-champions-league/news/clinical-downs-cruise-past-stade-malien/)
+- **'I'm not finding excuses' - Miguel Cardoso on fixture congestion cry**: [Link](https://foot-africa.com/en/news/im-not-finding-excuses-miguel-cardoso-on-fixture-congestion-cry-1123088/)
+- **Sundowns put one foot in CAF CL semifinals**: [Link](https://supersport.com/football/news/896a82e2-d036-4ca3-88de-77507c6a401b/sundowns-put-one-foot-in-cafcl-semifinals)
+
+
 ### رفيق بوبكر (N/A, Fri, 13 Mar 2026 14:30:00 -0700)
 
 - **رشيد رفيق يغضب من "شائعة الوفاة"**: [Link](https://www.hespress.com/%D8%B1%D8%B4%D9%8A%D8%AF-%D8%B1%D9%81%D9%8A%D9%82-%D9%8A%D8%BA%D8%B6%D8%A8-%D9%85%D9%86-%D8%B4%D8%A7%D8%A6%D8%B9%D8%A9-%D8%A7%D9%84%D9%88%D9%81%D8%A7%D8%A9-1714548.html)
