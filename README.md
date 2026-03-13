@@ -1,3 +1,24 @@
+### دعاء العشر الأواخر من رمضان (N/A, Thu, 12 Mar 2026 22:00:00 -0700)
+
+- **خطة عملية لاستغلال العشر الأواخر من رمضان**: [Link](https://www.youm7.com/story/2026/3/13/%D8%AE%D8%B7%D8%A9-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%84%D8%A7%D8%B3%D8%AA%D8%BA%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86/7335051)
+- **توزيع 240 مسجدًا للاعتكاف بالمنيا خلال العشر الأواخر من رمضان**: [Link](https://www.egyptke.com/214661)
+- **أحكام الاعتكاف في شهر رمضان وخارجه: توضيحات وزارة الأوقاف**: [Link](https://mwlana.com/mix/%D8%A3%D8%AD%D9%83%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D9%83%D8%A7%D9%81-%D9%81%D9%8A-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%88%D8%AE%D8%A7%D8%B1%D8%AC%D9%87-%D8%AA%D9%88%D8%B6/)
+
+
+### thiago pitarch real madrid (N/A, Thu, 12 Mar 2026 21:10:00 -0700)
+
+- **Thiago Pitarch, una realidad aplastante**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/12/thiago-pitarch-realidad-aplastante.html)
+- **Ha nacido una superestrella**: [Link](https://as.com/futbol/champions/ha-nacido-una-superestrella-f202603-n/)
+- **Hay muchas cosas buenas en Pitarch, pero lo mejor para el Madrid lo enseñó su error**: [Link](https://www.elconfidencial.com/deportes/futbol/2026-03-13/thiago-pitarch-huijsen-cinco-arbeloa_4319074/)
+
+
+### ليلة القدر 2026 (N/A, Thu, 12 Mar 2026 19:20:00 -0700)
+
+- **وكالة ناسا تحدد موعد ليلة القدر لعام 2026 باستخدام ظواهر الكرات النارية**: [Link](https://tawusal.com/14827/%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%B3%D8%A7-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-%D9%84%D8%B9%D8%A7%D9%85-2026-%D8%A8/)
+- **مفاجأة.. «البحوث الفلكية» يدرج موعد ليلة القدر 2026 ضمن المواسم الإسلامية |عاجل - الوطن**: [Link](https://a5r5br.net/egypt/local-news/7403488-%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D8%A7%D9%84%D8%A8%D8%AD%D9%88%D8%AB-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D9%8A%D8%AF%D8%B1%D8%AC-%D9%85%D9%88%D8%B9%D8%AF-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-2026-%D8%B6%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%88%D8%B7%D9%86)
+- **فضل ليلة القدر 2026 وعلاماتها الكاملة وأبرز الأعمال المستحبة فيها**: [Link](https://al-ain.com/article/laylat-alqadr-signs-ramadan-2026)
+
+
 ### دعاء ليلة القدر (N/A, Thu, 12 Mar 2026 19:50:00 -0700)
 
 - **فضل ليلة القدر 2026 وعلاماتها الكاملة وأبرز الأعمال المستحبة فيها**: [Link](https://al-ain.com/article/laylat-alqadr-signs-ramadan-2026)
