@@ -1,3 +1,10 @@
+### عطلة عيد الفطر 2026 المغرب (N/A, Fri, 13 Mar 2026 07:30:00 -0700)
+
+- **عطلة استثنائية لإدارات الدولة بالمغرب**: [Link](https://www.hespress.com/%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1715201.html)
+- **عطلة استثنائية بمناسبة عيد الفطر**: [Link](https://ar.telquel.ma/%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-2/)
+- **الحكومة تقر عطلة استثنائية عن العمل يوم الإثنين 23 مارس بمناسبة عيد الفطر**: [Link](https://al3omk.com/1145000.html)
+
+
 ### chat (N/A, Fri, 13 Mar 2026 02:50:00 -0700)
 
 - **Claude can now generate charts and diagrams**: [Link](https://www.engadget.com/ai/claude-can-now-generate-charts-and-diagrams-160000369.html)
