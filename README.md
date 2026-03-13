@@ -1,3 +1,38 @@
+### al-riyadh vs al-ittihad (N/A, Fri, 13 Mar 2026 12:30:00 -0700)
+
+- **Al-Nassiri Nears Appearance Against Riyadh**: [Link](https://www.ysscores.com/en/news/13925844/Al-Nassiri-Nears-Appearance-Against-Riyadh)
+- **Predicted Al-Ittihad XI vs Al-Riyadh: Can Conceição’s Men Keep Momentum? – كورة بريك**: [Link](https://koorabreak.com/en/267303/)
+- **Moroccan striker Youssef En-Nesyri available for Al-Ittihad's clash against Al-Riyadh -**: [Link](https://africasoccer.com/moroccan-striker-youssef-en-nesyri-available-for-al-ittihads-clash-against-al-riyadh/)
+
+
+### deportivo alavés – villarreal (N/A, Fri, 13 Mar 2026 12:20:00 -0700)
+
+- **La Liga de Campeones y la permanencia, en juego en el debut de Quique en Mendizorroza**: [Link](https://es-us.noticias.yahoo.com/deportes/liga-campeones-permanencia-juego-debut-141448401.html)
+- **Alineaciones confirmadas del Deportivo Alavés - Villarreal de la jornada 28 de LALIGA EA Sports**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260313/alineaciones-confirmadas-deportivo-alaves-villarreal-jornada-28-laliga-ea-sports_18_018615343.html)
+- **Todas las noticias más actuales del mundo del fútbol en directo**: [Link](https://www.flashscore.com.ar/noticias/futbol-laliga-ea-sports-futbol-en-directo-onces-confirmados-en-el-alaves-villarreal/46dasJjT/)
+
+
+### equidia (N/A, Fri, 13 Mar 2026 12:20:00 -0700)
+
+- **Quinté du vendredi 13 mars 2026 en nocturne à Enghien-Soisy : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-vendredi-13-mars-2026-en-nocturne-a-enghien-soisy-les-pronostics-7900611454)
+- **Vendredi 13 s’invite avec une cagnotte de 13 000€ de Bonus**: [Link](https://www.pmu.fr/point-de-vente/cote-courses/cagnotte-vendredi-13-bonus-promo/)
+- **Iris From, l'outsider séduisant du Quinté+ de ce vendredi 13 mars**: [Link](https://www.equidia.fr/articles/actualite/iris-from-loutsider-seduisant-du-quinte-de-ce-vendredi-13-mars)
+
+
+### marseille – auxerre (N/A, Fri, 13 Mar 2026 12:10:00 -0700)
+
+- **OM : «J’ai hâte», ce joueur impatient de débarquer à Marseille après son transfert**: [Link](https://le10sport.com/football/ligue1/om/om-jai-hate-ce-joueur-impatient-de-debarquer-a-marseille-apres-son-transfert-777261)
+- **DIRECT. Ligue 1: suivez en live toutes les infos de la 26e journée**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-ligue-1-suivez-en-live-toutes-les-infos-de-la-25e-journee_LN-202603130281.html)
+- **Ligue 1 - Pélissier (AJ Auxerre) : « À nous de rendre l'ambiance un peu difficile pour eux »**: [Link](https://www.footmarseille.com/143630-pelissier-aj-auxerre-a-nous-de-rendre-lambiance-un-peu-difficile-pour-eux)
+
+
+### الرياض ضد الاتحاد (N/A, Fri, 13 Mar 2026 12:10:00 -0700)
+
+- **قرار مفاجئ من كونسيساو قبل مباراة الاتحاد والرياض**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%85%D9%86-%D9%83%D9%88%D9%86%D8%B3%D9%8A%D8%B3%D8%A7%D9%88-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6/blt575945b80a029eff)
+- **النصيري يعود للتداريب الجماعية للاتحاد**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A%D8%A9-%D9%84%D9%84%D8%A7%D8%AA%D8%AD-430545.html)
+- **بث مباشر لحظة بلحظة: مباراة الأهلي والقادسية في الدوري السعودي 2026**: [Link](https://al-ain.com/article/al-qadsiah-al-ahli-saudi-pro-league-live-2026)
+
+
 ### karagümrük – fenerbahçe (N/A, Fri, 13 Mar 2026 10:10:00 -0700)
 
 - **CANLI | Fatih Karagümrük - Fenerbahçe maçı Canlı Anlatım - FKG FB maçı kadroları, skoru ve istatistikleri (Süper Lig 26. hafta maçı)**: [Link](https://www.fanatik.com.tr/fenerbahce/live-fatih-karagumruk-fenerbahce-maci-canli-anlatim-fkg-fb-maci-kadrolari-skoru-ve-istatistikleri-super-lig-2615867)
