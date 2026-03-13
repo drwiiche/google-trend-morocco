@@ -1,3 +1,24 @@
+### kc 135 (N/A, Thu, 12 Mar 2026 17:50:00 -0700)
+
+- **Middle East crisis live: rescue under way after US military refuelling plane crashes in Iraq; top Iranian nuclear scientists killed, Israel says**: [Link](https://www.theguardian.com/world/live/2026/mar/12/iran-war-live-updates-oil-trump-middle-east-crisis-israel-lebanon-iraq-latest-news)
+- **Iran War Live Updates: U.S. Officials Say Iran Is Laying Mines in Strait of Hormuz**: [Link](https://www.nytimes.com/live/2026/03/12/world/iran-war-news-trump-oil-israel)
+- **Live updates: US military says a refueling aircraft went down in Iraq, rescue efforts are underway**: [Link](https://apnews.com/live/iran-war-israel-trump-03-12-2026)
+
+
+### zeturf demain (N/A, Thu, 12 Mar 2026 17:30:00 -0700)
+
+- **Les pronos hippiques du vendredi 13 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-13-mars-2026_AN-202603110616.html)
+- **Quinté Express : Analyse du Quinté+ du vendredi 13 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/quinte-express-analyse-du-quinte-du-vendredi-13-mars)
+- **Quinté Plus PMU : Jobspost peut réaliser la passe de trois**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-jobspost-peut-realiser-la-passe-de-trois-129291.html)
+
+
+### رشيد رفيق (N/A, Thu, 12 Mar 2026 17:10:00 -0700)
+
+- **رشيد رفيق يغضب من "شائعة الوفاة"**: [Link](https://www.hespress.com/%D8%B1%D8%B4%D9%8A%D8%AF-%D8%B1%D9%81%D9%8A%D9%82-%D9%8A%D8%BA%D8%B6%D8%A8-%D9%85%D9%86-%D8%B4%D8%A7%D8%A6%D8%B9%D8%A9-%D8%A7%D9%84%D9%88%D9%81%D8%A7%D8%A9-1714548.html)
+- **الموت يفجع رشيد رفيق .. رسالة مؤثرة في وفاة أحد أقاربه (شاهد)**: [Link](https://www.raya.ps/news/1213560.html)
+- **الإشاعة تقتل رشيد رفيق**: [Link](https://machahid24.com/panorama/494397.html)
+
+
 ### jannik sinner (N/A, Thu, 12 Mar 2026 16:40:00 -0700)
 
 - **Sinner si sbarazza di Tien e approda in semifinale**: [Link](https://www.rsi.ch/sport/tennis/Sinner-si-sbarazza-di-Tien-e-approda-in-semifinale--3588675.html)
