@@ -1,3 +1,24 @@
+### zeturf (N/A, Fri, 13 Mar 2026 12:30:00 -0700)
+
+- **ZEturf dévoile un nouveau programme de fidélité**: [Link](https://www.zone-turf.fr/actualite/trot/zeturf-devoile-un-nouveau-programme-de-fidelite-129306.html)
+- **Quinté+: PRIX JOCKER - CHANTILLY - 12/03/2026 : partants, pronostics et résultats en vidéos - Course 1**: [Link](https://www.equidia.fr/courses/2026-03-12/R1/C1)
+- **Résultats PMU : Arrivée du Tiercé du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-tierce-du-jour-129294.html)
+
+
+### zone turf (N/A, Fri, 13 Mar 2026 12:30:00 -0700)
+
+- **Faites le papier du Quinté+ de ce samedi 14 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-samedi-14-mars)
+- **Quinté Plus PMU : Muloughboy a beaucoup d'atouts dans son jeu**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-muloughboy-a-beaucoup-d-atouts-dans-son-jeu-129296.html)
+- **Les pronos hippiques du samedi 14 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-14-mars-2026_AN-202603130653.html)
+
+
+### resultat quinte (N/A, Fri, 13 Mar 2026 12:30:00 -0700)
+
+- **Quinté+: PRIX JOCKER - CHANTILLY - 12/03/2026 : partants, pronostics et résultats en vidéos - Course 1**: [Link](https://www.equidia.fr/courses/2026-03-12/R1/C1)
+- **Résultats PMU : Arrivée du Tiercé du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-tierce-du-jour-129294.html)
+- **Pronostics hippiques de Tony Gonzalez du du jeudi 12 mars**: [Link](https://stampa-paese.com/actus/article/pronostics-hippiques-de-tony-gonzalez-du-du-jeudi-12-mars)
+
+
 ### al-riyadh vs al-ittihad (N/A, Fri, 13 Mar 2026 12:30:00 -0700)
 
 - **Al-Nassiri Nears Appearance Against Riyadh**: [Link](https://www.ysscores.com/en/news/13925844/Al-Nassiri-Nears-Appearance-Against-Riyadh)
