@@ -1,3 +1,10 @@
+### match far (N/A, Fri, 13 Mar 2026 16:00:00 -0700)
+
+- **AS FAR-Pyramids FC: à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/as-far-pyramids-fc-a-quelle-heure-et-sur-quelles-chaines_MHX742VMVBHNLMZTLBWVUBRSMI/)
+- **LDC d’Afrique : l’AS FAR et la RS Berkane à l’assaut du dernier carré**: [Link](https://mobile.telquel.ma/instant-t/2026/03/12/ldc-dafrique-las-far-et-la-rs-berkane-a-lassaut-du-dernier-carre_1978541/)
+- **Ligue des champions : AS FAR-Pyramids pour la revanche et pour une place en demi-finale**: [Link](https://lematin.ma/sports/ligue-des-champions-as-far-pyramids-pour-une-place-en-demi-finale/334617)
+
+
 ### yalla kora (N/A, Fri, 13 Mar 2026 15:40:00 -0700)
 
 - **بالفيديو.. إنبي يفاجئ الأهلي وبيراميدز بهدية ثمينة على حساب الزمالك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%95%D9%86%D8%A8%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%A8%D9%87%D8%AF%D9%8A%D8%A9-%D8%AB%D9%85%D9%8A%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83/blt9da7ddc685110659)
