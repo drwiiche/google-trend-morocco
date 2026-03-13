@@ -1,3 +1,10 @@
+### دعاء ليلة القدر (N/A, Thu, 12 Mar 2026 19:50:00 -0700)
+
+- **فضل ليلة القدر 2026 وعلاماتها الكاملة وأبرز الأعمال المستحبة فيها**: [Link](https://al-ain.com/article/laylat-alqadr-signs-ramadan-2026)
+- **كيف تغتنم الحائض ليالي العتق من النيران في رمضان؟.. أمين الفتوى يجيب**: [Link](https://www.egypttelegraph.com/article/226896/%D9%83%D9%8A%D9%81-%D8%AA%D8%BA%D8%AA%D9%86%D9%85-%D8%A7%D9%84%D8%AD%D8%A7%D8%A6%D8%B6-%D9%84%D9%8A%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D8%AA%D9%82-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D9%8A%D8%B1%D8%A7%D9%86)
+- **فيديو : العشر الأواخر من رمضان .. طقوس دينية عالية وتقاليد أصيلة في ليلة القدر**: [Link](https://www.medi1tv.com/ar/reportage/386799/%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-.-%D8%B7%D9%82%D9%88%D8%B3-%D8%AF%D9%8A%D9%86%D9%8A%D8%A9-%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%AF-%D8%A3%D8%B5%D9%8A%D9%84%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1)
+
+
 ### carlos alcaraz (N/A, Thu, 12 Mar 2026 19:50:00 -0700)
 
 - **Carlos Alcaraz - Cameron Norrie | En directo los cuartos de final de Indian Wells**: [Link](https://www.marca.com/tenis/indian-wells/carlos-alcaraz-cameron-norrie/2026/03/13/04_0405_20260313_121-directo.html)
