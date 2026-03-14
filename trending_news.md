@@ -1,3 +1,38 @@
+### galatasaray – istanbul bb (N/A, Sat, 14 Mar 2026 10:10:00 -0700)
+
+- **How to watch today's Galatasaray vs Istanbul Basaksehir Super Lig game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-om/news/how-to-watch-galatasaray-istanbul-basaksehir-14032026/blta6a9714740865aee)
+- **Will Shomurodov play in the starting lineup against Galatasaray?**: [Link](https://zamin.uz/en/sport/194307-will-shomurodov-play-in-the-starting-lineup-against-galatasaray.html)
+- **Osimhen aims to extend impressive run as Galatasaray host Başakşehir**: [Link](https://boldsportsng.com/osimhen-aims-to-extend-impressive-run-as-galatasaray-host-basaksehir/)
+
+
+### تشيلسي ضد نيوكاسل يونايتد (N/A, Sat, 14 Mar 2026 10:00:00 -0700)
+
+- **تشيلسي يواجه نيوكاسل في ستامفورد بريدج وعينه على تقليص الفارق مع المربع الذهبي**: [Link](https://m.elbotola.com/article/2026-03-13-14-30-44.html)
+- **تشكيل مباراة تشيلسي ونيوكاسل يونايتد في الدوري الإنجليزي**: [Link](https://www.elbalad.news/6902368)
+- **الحلم سبورت : إحصائيات قبل مباراة تشيلسي ونيوكاسل في الدوري الإنجليزي**: [Link](https://al7lmnews.com/news/%D9%83%D8%B1%D8%A9-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A5%D8%AD%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3/)
+
+
+### ayyoub bouaddi (N/A, Sat, 14 Mar 2026 10:00:00 -0700)
+
+- **Le Maroc va convoquer Ayyoub Bouaddi en mars !**: [Link](https://www.footmercato.net/a5301310314411430234-le-maroc-va-convoquer-ayyoub-bouaddi-en-mars)
+- **Lions de l’Atlas: Ouahbi et Lekjaa à Lille pour Bouaddi**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-ouahbi-et-lekjaa-a-lille-pour-bouaddi_2GSNDNJMJRD6DA36S4QD2VMOPQ/)
+- **Deux Bleuets font le choix du Maroc**: [Link](https://www.football.fr/afrique/deux-bleuets-font-le-choix-du-maroc-804787.html)
+
+
+### inter vs atalanta (N/A, Sat, 14 Mar 2026 09:10:00 -0700)
+
+- **Preview: Inter Milan vs Atalanta BC - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/inter-milan/race-for-the-serie-a-title/preview/inter-milan-vs-atalanta-prediction-team-news-lineups_593713.html)
+- **Inter protest over the contact between Sulemana and Dumfries during Krstovic’s goal. Marelli: “A legitimate goal”**: [Link](https://www.goal.com/en-ca/lists/inter-protest-over-the-contact-between-sulemana-and-dumfries-during-krstovic-s-goal-marelli-a-legitimate-goal/bltda372f9ded29f529)
+- **Inter Vs Atalanta: Official Line-Ups See Sucic And Thuram Start; Bastoni Likely To Miss Out**: [Link](https://www.filmogaz.com/192504)
+
+
+### avion ravitailleur américain irak (N/A, Sat, 14 Mar 2026 09:00:00 -0700)
+
+- **Irak : les six membres d’équipage tués dans le crash d’un avion ravitailleur américain KC-135**: [Link](https://www.lefigaro.fr/international/un-avion-ravitailleur-americain-kc-135-s-ecrase-en-irak-20260312)
+- **Guerre au Moyen-Orient: l'armée américaine annonce la perte d'un avion ravitailleur en Irak**: [Link](https://www.bfmtv.com/international/moyen-orient/irak/guerre-au-moyen-orient-l-armee-americaine-annonce-la-perte-d-un-avion-ravitailleur-en-irak_AD-202603120970.html)
+- **Quatre membres d'équipage ont trouvé la mort après le crash d'un avion ravitailleur américain en Irak**: [Link](https://www.bbc.com/afrique/articles/cvg8y13dlzvo)
+
+
 ### chelsea – newcastle (N/A, Sat, 14 Mar 2026 09:40:00 -0700)
 
 - **Chelsea vs Newcastle predictions: Blues to bounce back at the Bridge**: [Link](https://www.goal.com/en-ca/betting/tips/chelsea-vs-newcastle-predictions-03-14/A%3Ablt8e84c6ff6d12859d)
