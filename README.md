@@ -1,3 +1,17 @@
+### al-fateh – al-hilal (N/A, Sat, 14 Mar 2026 11:20:00 -0700)
+
+- **Al-Fateh Vs Al-Hilal Live Streaming, Saudi Pro League 2025/26: When, Where To Watch Live? Check Head-To-Head**: [Link](https://www.outlookindia.com/sports/football/al-fateh-vs-al-hilal-live-streaming-saudi-pro-league-2025-26-where-to-watch-head-to-head)
+- **Inzaghi Loses Three Players at Once Before Al-Fateh Match**: [Link](https://www.ysscores.com/en/news/13927289/Inzaghi-Loses-Three-Players-at-Once-Before-Al-Fateh-Match)
+- **Preview: Al Fateh vs Al Hilal Prediction, lineups, betting tips & odds | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-fateh-vs-al-hilal-preview-202603)
+
+
+### donald trump (N/A, Sat, 14 Mar 2026 11:20:00 -0700)
+
+- **US ‘hideouts’ in UAE ‘legitimate targets’ after Kharg island attacks: IRGC**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/14/iran-war-live-pentagon-vows-to-ramp-up-us-military-campaign-against-iran)
+- **Tehran says the US attacked it from the UAE as Iran war enters its third week**: [Link](https://thehill.com/homenews/ap/ap-international/ap-us-bombs-military-sites-on-iranian-island-as-trump-threatens-its-oil-infrastructure/mlite/)
+- **Iran War Live Updates: Iran Defies Trump’s Threats Over Strait of Hormuz Blockade**: [Link](https://www.nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel)
+
+
 ### naples – lecce (N/A, Sat, 14 Mar 2026 10:50:00 -0700)
 
 - **Serie A, Napoli v Lecce LIVE**: [Link](https://www.goal.com/en-us/lists/serie-a-napoli-v-lecce-live/blta01ce734d5130672)
