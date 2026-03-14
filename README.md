@@ -1,3 +1,38 @@
+### monaco – brest (N/A, Sat, 14 Mar 2026 12:30:00 -0700)
+
+- **PRONOS PARIS RMC Les paris sur Monaco - Brest du 14 mars - Ligue 1**: [Link](https://rmcsport.bfmtv.com/replay-emissions/les-paris-rmc/pronos-paris-rmc-les-paris-sur-monaco-brest-du-14-mars-ligue-1_AN-202603130719.html)
+- **Junior Dina-Ebimbe n’a pas bien vécu son transfert avorté à Monaco**: [Link](https://www.footmercato.net/a7864493597676349496-brest-dina-ebimbe-na-pas-bien-vecu-son-transfert-avorte-a-monaco)
+- **Progrès dans son placement, déclic psychologique… Comment Folarin Balogun est devenu l’arme fatale de l’AS Monaco avant la réception de Brest ?**: [Link](https://www.nicematin.com/sports/football/progres-dans-son-placement-declic-psychologique-comment-folarin-balogun-est-devenu-l-arme-fatale-de-l-as-monaco-avant-la-reception-de-brest-10672577)
+
+
+### al-khaleej vs al-nassr (N/A, Sat, 14 Mar 2026 12:30:00 -0700)
+
+- **Preview: Al Khaleej vs Al-Nassr - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-nassr/preview/al-khaleej-vs-al-nassr-prediction-team-news-lineups_593700.html)
+- **Why isn’t Cristiano Ronaldo playing for Al-Nassr against Al-Khaleej in the Saudi Pro League?**: [Link](https://worldsoccertalk.com/news/why-isnt-cristiano-ronaldo-playing-for-al-nassr-against-al-khaleej-in-the-saudi-pro-league/)
+- **Jesus Determines Al-Nassr's Main Goalkeeper Against Al-Khaleej**: [Link](https://www.ysscores.com/en/news/13927271/Jesus-Determines-Al-Nassr's-Main-Goalkeeper-Against-Al-Khaleej)
+
+
+### west ham – manchester city (N/A, Sat, 14 Mar 2026 12:20:00 -0700)
+
+- **Pep: We will not give up on anything**: [Link](https://www.mancity.com/news/mens/west-ham-v-man-city-pep-guardiola-injury-update-63909001)
+- **Manchester City Chases Top Spot Against West Ham Fighting for Survival in Premier League**: [Link](http://m.elbotola.com/en/article/2026-03-13-15-46-171.html)
+- **Marmoush, Ait-Nouri and Nunes return for Hammers test**: [Link](https://onefootball.com/de/news/marmoush-ait-nouri-and-nunes-return-for-hammers-test-42557566)
+
+
+### وست هام ضد مان سيتي (N/A, Sat, 14 Mar 2026 12:20:00 -0700)
+
+- **"نركز على وست هام".. غوارديولا يغلق ملف ريال مدريد مؤقتا**: [Link](https://www.aljazeera.net/sport/2026/3/13/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **موعد مباراة وست هام ومانشستر سيتي في الدوري الإنجليزي 2025-2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt0368f8f06bead9f5)
+- **مانشستر سيتي يطارد الصدارة في مواجهة وست هام الباحث عن النجاة ضمن الدوري الأنجليزي الممتاز**: [Link](https://m.elbotola.com/article/2026-03-13-15-46-125.html)
+
+
+### udinese – juventus (N/A, Sat, 14 Mar 2026 12:20:00 -0700)
+
+- **Pronostici Udinese - Juventus con Boga possibile protagonista**: [Link](https://www.goal.com/de/sportwetten/tipps/pronostici-udinese-juventus-14-03-26/A%3Ablt6db92b79023f3e30)
+- **Udinese-Juve diretta Serie A: segui la partita tra Spalletti e Runjaic LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2026/03/14-147275274/udinese-juve_diretta_serie_a_segui_la_partita_tra_spalletti_e_runiajc_live)
+- **Serie A | Le formazioni ufficiali di Udinese-Juventus**: [Link](https://www.juventus.com/it/news/articoli/serie-a-le-formazioni-ufficiali-di-udinese-juventus)
+
+
 ### real madrid – elche (N/A, Sat, 14 Mar 2026 12:10:00 -0700)
 
 - **Alineación posible del Real Madrid hoy contra el Elche en LaLiga EA Sports**: [Link](https://as.com/futbol/alineacion-posible-del-real-madrid-contra-el-elche-en-laliga-f202603-n/)
