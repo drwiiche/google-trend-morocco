@@ -1,3 +1,17 @@
+### vahid halilhodžić (N/A, Fri, 13 Mar 2026 17:30:00 -0700)
+
+- **Vahid Halilhodzic en veut terriblement au Maroc**: [Link](https://www.footmercato.net/a8194077670442719601-vahid-halilhodzic-en-veut-terriblement-au-maroc)
+- **"Abline a mis 4 buts cette saison, j’en ai mis 4 en un match" : Halilhodzic fait déjà du Vahid**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/fc-nantes-lutte-pour-le-maintien-abline-a-mis-4-buts-cette-saison-jen-ai-mis-4-en-un-match-halilhodzic-fait-deja-du-vahid_sto23280588/story.shtml)
+- **De retour sur le banc nantais, Vahid Halilhodzic est prêt pour la mission maintien : « Maintenant, on va gagner et il va y avoir du soleil »**: [Link](https://www.lequipe.fr/Football/Article/De-retour-sur-le-banc-nantais-vahid-halilhodzic-est-pret-pour-la-mission-maintien-maintenant-on-va-gagner-et-il-va-y-avoir-du-soleil/1659370)
+
+
+### germany school (N/A, Fri, 13 Mar 2026 15:00:00 -0700)
+
+- **In 140 cities, German youth reject conscription threat**: [Link](https://www.workers.org/2026/03/91489/)
+- **War, Pacifism, and the Failure of German Political Leadership**: [Link](https://europeanconservative.com/articles/commentary/war-pacifism-and-the-failure-of-german-political-leadership/)
+- **Germany: over 50,000 school students strike against conscription!**: [Link](https://marxist.com/germany-over-50-000-school-students-strike-against-conscription.htm)
+
+
 ### دعاء العشر الأواخر من رمضان (N/A, Fri, 13 Mar 2026 22:10:00 -0700)
 
 - **لماذا تعتبر العشر الأواخر من رمضان من أفضل أيام السنة**: [Link](https://tawusal.com/17466/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D8%B9%D8%AA%D8%A8%D8%B1-%D8%A7%D9%84%D8%B9%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%A7%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%85%D9%86-%D8%A3/)
