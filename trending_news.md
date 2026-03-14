@@ -1,3 +1,52 @@
+### real madrid – elche (N/A, Sat, 14 Mar 2026 12:10:00 -0700)
+
+- **Alineación posible del Real Madrid hoy contra el Elche en LaLiga EA Sports**: [Link](https://as.com/futbol/alineacion-posible-del-real-madrid-contra-el-elche-en-laliga-f202603-n/)
+- **Cumbre del pánico en Valdebebas**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/14/cumbre-panico-valdebebas.html)
+- **Asencio, con problemas musculares, aumenta a diez las bajas de Arbeloa**: [Link](https://es-us.noticias.yahoo.com/deportes/asencio-problemas-musculares-aumenta-diez-181213867.html)
+
+
+### الريال ضد إلتشيه (N/A, Sat, 14 Mar 2026 12:10:00 -0700)
+
+- **أربيلوا يستنجد باكتشاف أنشيلوتي أمام إلتشي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%B3%D8%AA%D9%86%D8%AC%D8%AF-%D8%A8%D8%A7%D9%83%D8%AA%D8%B4%D8%A7%D9%81-%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%84%D8%AA%D8%B4%D9%8A/bltb2462c6c7f9b9d69)
+- **مباراة ريال مدريد ضد إلتشي في الدوري الإسباني.. الموعد والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/3/13/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **مدرب ريال مدريد: نرغب في مواجهة إلتشي بنفس طريقة مانشستر سيتي**: [Link](https://www.hesport.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%86%D8%B1%D8%BA%D8%A8-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-%D8%A8%D9%86-430787.html)
+
+
+### real madrid vs elche (N/A, Sat, 14 Mar 2026 12:10:00 -0700)
+
+- **Real Madrid vs Elche: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/03/282636/real-madrid-vs-elche-how-when-to-watch/)
+- **Real Madrid’s Academy Steps In**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/real-madrid-s-academy-steps-in-2026-03-13)
+- **Real Madrid announce squad for La Liga match against Elche**: [Link](https://www.managingmadrid.com/105217/real-madrid-elche-2026-squad-list-news)
+
+
+### الخليج ضد النصر (N/A, Sat, 14 Mar 2026 12:10:00 -0700)
+
+- **ساديو ماني يؤرق النصر قبل معركة الخليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D9%94%D8%B1%D9%82-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC/bltcfdfc871bb82ddd3)
+- **مباراة الخليج والنصر قمة صناعة الأهداف في الدوري !**: [Link](https://hihi2.com/2026/03/14/p3688642.html)
+- **الحلم سبورت : النصر ضيفًا على الخليج في اختبار جديد للحفاظ على صدارة دوري روشن**: [Link](https://al7lmnews.com/news/%D9%83%D8%B1%D8%A9-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D9%8A%D9%81%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D9%81%D9%8A/)
+
+
+### arsenal (N/A, Sat, 14 Mar 2026 12:10:00 -0700)
+
+- **'Once a Gunner...' - Arsenal fans rejoice as 54-goal striker returns to Emirates Stadium for Everton clash**: [Link](https://www.thesun.co.uk/sport/38516105/arsenal-alexandre-lacazette-returns-emirates-everton-fans/)
+- **Arsenal given Kai Havertz penalty verdict as VAR explains controversial decision**: [Link](https://www.dailystar.co.uk/sport/football/arsenal-var-havertz-penalty-everton-36868326)
+- **Jamie Redknapp fumes over Arsenal penalty decision - 'An absolute disgrace'**: [Link](https://www.mirror.co.uk/sport/football/news/arsenal-var-jamie-redknapp-everton-36868357)
+
+
+### premier league (N/A, Sat, 14 Mar 2026 12:00:00 -0700)
+
+- **Arsenal given Kai Havertz penalty verdict as VAR explains controversial decision**: [Link](https://www.dailystar.co.uk/sport/football/arsenal-var-havertz-penalty-everton-36868326)
+- **Jamie Redknapp fumes over Arsenal penalty decision - 'An absolute disgrace'**: [Link](https://www.mirror.co.uk/sport/football/news/arsenal-var-jamie-redknapp-everton-36868357)
+- **Premier League explains why Arsenal were not given a penalty vs Everton**: [Link](https://metro.co.uk/2026/03/14/premier-league-explains-arsenal-not-given-a-penalty-vs-everton-27434089/)
+
+
+### chelsea (N/A, Sat, 14 Mar 2026 11:20:00 -0700)
+
+- **Why Chelsea gather in a circle before each half**: [Link](https://www.bbc.com/sport/football/articles/c4g77eyvkl4o)
+- **(Video): A meme is born: Chelsea’s bizarre moment with the referee will be famous forever**: [Link](https://chelsea.news/2026/03/chelsea-moment-referee-bizarre-meme-is-born/)
+- **Chelsea’s centre-circle ritual that is winding up opposition players, fans and even pundits**: [Link](https://www.nytimes.com/athletic/7098878/2026/03/09/chelsea-centre-circle-ritual-huddle/)
+
+
 ### al-fateh – al-hilal (N/A, Sat, 14 Mar 2026 11:20:00 -0700)
 
 - **Al-Fateh Vs Al-Hilal Live Streaming, Saudi Pro League 2025/26: When, Where To Watch Live? Check Head-To-Head**: [Link](https://www.outlookindia.com/sports/football/al-fateh-vs-al-hilal-live-streaming-saudi-pro-league-2025-26-where-to-watch-head-to-head)
