@@ -1,3 +1,24 @@
+### الإنتر ضد أتالانتا (N/A, Sat, 14 Mar 2026 08:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر وأتالانتا في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%94%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1dd7b9be0f188773)
+- **إنتر ميلان يسعى لتعزيز صدارته للدوري الإيطالي بفارق سبع نقاط أمام ضيفه أتالانتا**: [Link](https://m.elbotola.com/article/2026-03-13-20-00-826.html)
+- **مباراة إنتر وأتالانتا مباشرةً من الساعة 3 عصراً، آخر المستجدات حول التشكيلات | مصر Goal.com**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%94%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-0-0-%D8%B3%D9%83%D8%A7%D9%85%D8%A7%D9%83%D8%A7-%D9%8A%D8%AD%D8%A7%D9%88%D9%84/blt18575159cb8b55b8)
+
+
+### أتلتيكو مدريد ضد خيتافي (N/A, Sat, 14 Mar 2026 07:50:00 -0700)
+
+- **أتلتيكو مدريد يواجه خيتافي في الدوري الإسباني وعينه على فض الشراكة مع فياريال في المركز الثالث**: [Link](https://m.elbotola.com/article/2026-03-13-18-45-689.html)
+- **«صدمة في "الروخي بلانكوس"».. إصابة مفاجئة تبعد يان أوبلاك عن مواجهة خيتافي**: [Link](https://tribuna.com/ar/news/2026-03-14-sdm-fy-lrwkhy-blnkws-sb-mfj-tbd-yn-wblk-n-mwjh-khytfy/)
+- **موعد مشاهدة بث مباشر مباراة أتلتيكو مدريد وخيتافي اليوم في الدوري الإسباني عبر القنوات الناقلة**: [Link](https://www.cairo24.com/2388019)
+
+
+### sunderland – brighton (N/A, Sat, 14 Mar 2026 07:50:00 -0700)
+
+- **Premier League: Build-up as Burnley host Bournemouth and Sunderland face Brighton**: [Link](https://www.bbc.com/sport/football/live/czr0v3g1gd5t)
+- **Fabian Hurzeler makes Stadium of Light atmosphere comment ahead of Sunderland clash**: [Link](https://www.sussexexpress.co.uk/sport/football/brighton-and-hove-albion/fabian-hurzeler-makes-stadium-of-light-atmosphere-comment-ahead-of-sunderland-clash-5725482)
+- **Albion have the winning blueprint for a red letter day in the North East**: [Link](https://www.theargus.co.uk/sport/25936616.albion-go-sunderland-focus-firmly-awayday-blueprint/)
+
+
 ### ليفركوزن ضد البايرن (N/A, Sat, 14 Mar 2026 07:40:00 -0700)
 
 - **بطولة ألمانيا: ليفركوزن في امتحان صعب أمام بايرن**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260313-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D9%81%D9%8A-%D8%A7%D9%85%D8%AA%D8%AD%D8%A7%D9%86-%D8%B5%D8%B9%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86)
