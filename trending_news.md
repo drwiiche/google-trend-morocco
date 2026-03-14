@@ -1,3 +1,38 @@
+### chelsea – newcastle (N/A, Sat, 14 Mar 2026 09:40:00 -0700)
+
+- **Chelsea vs Newcastle predictions: Blues to bounce back at the Bridge**: [Link](https://www.goal.com/en-ca/betting/tips/chelsea-vs-newcastle-predictions-03-14/A%3Ablt8e84c6ff6d12859d)
+- **Woltemade starts, Tonali ill – Confirmed Newcastle and Chelsea team news**: [Link](https://www.nufcblog.co.uk/2026/03/14/woltemade-starts-tonali-ill-confirmed-newcastle-and-chelsea-team-news/)
+- **Chelsea fans’ preferred lineup against Newcastle: Back to basics**: [Link](https://weaintgotnohistory.sbnation.com/premier-league/166903/chelsea-fans-preferred-lineup-against-newcastle-back-to-basics)
+
+
+### arsenal – everton (N/A, Sat, 14 Mar 2026 09:40:00 -0700)
+
+- **“Their style of play suits them” Alan Shearer predicts Arsenal v Everton**: [Link](https://onefootball.com/fr/news/their-style-of-play-suits-them-alan-shearer-predicts-arsenal-v-everton-42556603)
+- **Everton at Arsenal: Opposition Analysis| Can the Blues Hold Out at the Emirates?**: [Link](https://royalbluemersey.sbnation.com/tactical-analysis/78754/everton-at-arsenal-opposition-analysis-can-the-blues-hold-out-at-the-emirates)
+- **Arsenal vs Everton: Gunners’ TITLE CHARGE — Lineups & Key Stats**: [Link](https://www.sofascore.com/news/arsenal-vs-everton-gunners-title-charge-lineups-key-stats/)
+
+
+### lorient – lens (N/A, Sat, 14 Mar 2026 09:40:00 -0700)
+
+- **PRONOS PARIS RMC Les paris sur Lorient - Lens du 14 mars - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-lorient-lens-du-14-mars-ligue-1_AN-202603130694.html)
+- **« Se mettre des œillères et continuer d’avancer » : Florian Thauvin, moteur du rêve sang et or avant Lorient-Lens**: [Link](https://www.leparisien.fr/sports/football/ligue-1/se-mettre-des-oeilleres-et-continuer-davancer-florian-thauvin-moteur-du-reve-sang-et-or-avant-lorient-lens-14-03-2026-YQHG7NMPCVBOHETTARRSDQAMKM.php)
+- **FC Lorient. « On vit une saison extraordinaire » : Romaric Boch va faire son retour au Moustoir avec Lens**: [Link](https://www.ouest-france.fr/sport/football/fc-lorient/fc-lorient-on-vit-une-saison-extraordinaire-romaric-boch-va-faire-son-retour-au-moustoir-avec-lens-e0b8e628-1e0f-11f1-b99e-35f0b9861d37)
+
+
+### pronostics (N/A, Sat, 14 Mar 2026 09:40:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour samedi 14 mars - Grand Prix Général de Rougemont**: [Link](https://www.lalsace.fr/actualite/2026/03/13/les-pronostics-de-l-alsace-pour-samedi-14-mars-grand-prix-du-prix-du-general-de-rougemont)
+- **Boulevard Bourdon, l'outsider séduisant du Quinté+ de ce samedi 14 mars**: [Link](https://www.equidia.fr/articles/actualite/boulevard-bourdon-loutsider-seduisant-du-quinte-de-ce-samedi-14-mars)
+- **Les pronos hippiques du samedi 14 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-14-mars-2026_AN-202603130653.html)
+
+
+### kylian mbappé real madrid (N/A, Sat, 14 Mar 2026 08:50:00 -0700)
+
+- **A Major Crisis Looms Regarding Mbappe**: [Link](https://www.ysscores.com/en/news/13927411/A-Major-Crisis-Looms-Regarding-Mbappe)
+- **Real Madrid: Kylian Mbappé is back! (Official)**: [Link](https://foot-africa.com/en/news/real-madrid-kylian-mbappe-is-back-official-1123403/)
+- **Arbeloa clears up Mbappé doubts, confident he'll travel to Manchester**: [Link](https://onefootball.com/en/news/arbeloa-clears-up-mbappe-doubts-confident-hell-travel-to-manchester-42550185)
+
+
 ### bayern (N/A, Sat, 14 Mar 2026 08:50:00 -0700)
 
 - **FC Bayern: Nicolas Jackson fliegt in Leverkusen mit Rot vom Platz!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-nicolas-jackson-fliegt-in-leverkusen-mit-rot-vom-platz-69b57ac9dc9502e1196afc28)
