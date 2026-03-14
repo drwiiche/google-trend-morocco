@@ -1,3 +1,17 @@
+### ليفركوزن ضد البايرن (N/A, Sat, 14 Mar 2026 07:40:00 -0700)
+
+- **بطولة ألمانيا: ليفركوزن في امتحان صعب أمام بايرن**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260313-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D9%81%D9%8A-%D8%A7%D9%85%D8%AA%D8%AD%D8%A7%D9%86-%D8%B5%D8%B9%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86)
+- **أولرايش يعود لحراسة البافاري**: [Link](https://tembah.net/news?nid=85328)
+- **فينسنت كومباني ينتظر الضوء الأخضر من هاري كين لإعادة المهاجم المصاب إلى التشكيلة الأساسية لبايرن ميونيخ**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D9%86%D8%B3%D9%86%D8%AA-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%B6%D9%88%D8%A1-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D8%B6%D8%B1-%D9%85%D9%86-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%84%D8%A7%D9%95%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D8%A8-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE/bltb976d231ef2bc931)
+
+
+### atlético madrid – getafe (N/A, Sat, 14 Mar 2026 07:30:00 -0700)
+
+- **Atlético de Madrid vs Getafe: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/atletico-de-madrid-vs-getafe-previa-predicciones-y-alineaciones-14-03-26)
+- **Sorloth y Llorente, con el grupo; Barrios y Mendoza, bajas**: [Link](https://es-us.noticias.yahoo.com/deportes/sorloth-llorente-grupo-barrios-mendoza-143910826.html)
+- **De Birmingham al Metropolitano**: [Link](https://as.com/futbol/primera/de-birmingham-al-metropolitano-f202603-n/)
+
+
 ### leverkusen – bayern (N/A, Sat, 14 Mar 2026 06:50:00 -0700)
 
 - **Bundesliga: Bayer Leverkusen – FC Bayern hier im Live-Ticker**: [Link](https://sportbild.bild.de/fussball/1-bundesliga/bundesliga-bayer-leverkusen-fc-bayern-hier-im-live-ticker-69b415ba4fddcc89518b172b)
