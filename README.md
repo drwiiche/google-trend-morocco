@@ -1,3 +1,17 @@
+### الفتح ضد الهلال (N/A, Sat, 14 Mar 2026 12:50:00 -0700)
+
+- **فيديو: 28 دقيقة تكفي.. لعنة الإصابة تضرب تمبكتي مجددًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-28-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%83%D9%81%D9%8A--%D9%84%D8%B9%D9%86%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%AA%D9%85%D8%A8%D9%83%D8%AA%D9%8A-%D9%85%D8%AC%D8%AF%D8%AF%D9%8B%D8%A7/blt21662ae715bc1107)
+- **مباشر.. مباراة الهلال ضد الفتح في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D9%81%D8%AA%D8%AD)
+- **باتنا جاهز لموقعة الهلال والفتح المرتقبة**: [Link](https://www.hesport.com/%D9%85%D8%B1%D8%A7%D8%AF-%D8%A8%D8%A7%D8%AA%D9%86%D8%A7-%D8%AC%D8%A7%D9%87%D8%B2-%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%82%D8%A8-430697.html)
+
+
+### angers – nice (N/A, Sat, 14 Mar 2026 12:40:00 -0700)
+
+- **Le onze du Gym face au SCO**: [Link](https://www.ogcnice.com/fr/article/130087/le-onze-du-gym-face-au-sco.html)
+- **DIRECT. Suivez toute la Ligue 1 en live sur Flashscore**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-monaco-brest-debute-suivez-la-ligue-1-en-live-sur-flashscore/lbSMKDqd/)
+- **La minute Rouge et Noir : l'espoir Wahi**: [Link](https://www.radiofrance.fr/francebleu/podcasts/la-minute-rouge-et-noir/la-minute-rouge-et-noir-l-espoir-wahi-1458713)
+
+
 ### arouca – benfica (N/A, Sat, 14 Mar 2026 12:50:00 -0700)
 
 - **Renato Nhaga estreia-se a marcar pelo Galatasaray e festeja a dançar. Ora veja**: [Link](https://sapo.pt/artigo/renato-nhaga-estreia-se-a-marcar-pelo-galatasaray-e-festeja-a-dancar-ora-veja-69b5b50be4b4028ed26ea399)
