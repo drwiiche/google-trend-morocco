@@ -1,3 +1,10 @@
+### naples – lecce (N/A, Sat, 14 Mar 2026 10:50:00 -0700)
+
+- **Serie A, Napoli v Lecce LIVE**: [Link](https://www.goal.com/en-us/lists/serie-a-napoli-v-lecce-live/blta01ce734d5130672)
+- **Conte on the Verge of a Historic Record with Napoli Against His Hometown Club**: [Link](https://www.ysscores.com/en/news/13926878/Conte-on-the-Verge-of-a-Historic-Record-with-Napoli-Against-His-Hometown-Club)
+- **Napoli - Lecce: the home team's winning streak will last**: [Link](https://www.liontips.com/tips/2026/03/14/napoli-lecce-betting-tip-cf-2-67-and-bets-on-the-serie-a-match-march-14-2026)
+
+
 ### آرسنال ضد إيفرتون (N/A, Sat, 14 Mar 2026 10:30:00 -0700)
 
 - **رغم الانتقادات الحادة.. أرتيتا يتصالح مع عدو آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A7%D8%AF%D8%A9--%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%AA%D8%B5%D8%A7%D9%84%D8%AD-%D9%85%D8%B9-%D8%B9%D8%AF%D9%88-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt0a222a2a3a577515)
