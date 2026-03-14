@@ -1,3 +1,17 @@
+### آرسنال ضد إيفرتون (N/A, Sat, 14 Mar 2026 10:30:00 -0700)
+
+- **رغم الانتقادات الحادة.. أرتيتا يتصالح مع عدو آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A7%D8%AF%D8%A9--%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%AA%D8%B5%D8%A7%D9%84%D8%AD-%D9%85%D8%B9-%D8%B9%D8%AF%D9%88-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt0a222a2a3a577515)
+- **مواعيد مباريات الجولة 30 من الدوري الإنجليزي 2026 والقنوات الناقلة**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-30/)
+- **كيفية مشاهدة مباراة آرسنال وإيفرتون في الدوري الإنجليزي الممتاز**: [Link](https://www.alkhaleej.ae/2026-03-14/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2-6358986/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+
+
+### ayoub bouaddi (N/A, Sat, 14 Mar 2026 10:10:00 -0700)
+
+- **Le Maroc va convoquer Ayyoub Bouaddi en mars !**: [Link](https://www.footmercato.net/a5301310314411430234-le-maroc-va-convoquer-ayyoub-bouaddi-en-mars)
+- **Lions de l’Atlas: Ouahbi et Lekjaa à Lille pour Bouaddi**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-ouahbi-et-lekjaa-a-lille-pour-bouaddi_2GSNDNJMJRD6DA36S4QD2VMOPQ/)
+- **Deux Bleuets font le choix du Maroc**: [Link](https://www.football.fr/afrique/deux-bleuets-font-le-choix-du-maroc-804787.html)
+
+
 ### galatasaray – istanbul bb (N/A, Sat, 14 Mar 2026 10:10:00 -0700)
 
 - **How to watch today's Galatasaray vs Istanbul Basaksehir Super Lig game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-om/news/how-to-watch-galatasaray-istanbul-basaksehir-14032026/blta6a9714740865aee)
