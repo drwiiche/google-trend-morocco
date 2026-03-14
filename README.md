@@ -1,3 +1,10 @@
+### arouca – benfica (N/A, Sat, 14 Mar 2026 12:50:00 -0700)
+
+- **Renato Nhaga estreia-se a marcar pelo Galatasaray e festeja a dançar. Ora veja**: [Link](https://sapo.pt/artigo/renato-nhaga-estreia-se-a-marcar-pelo-galatasaray-e-festeja-a-dancar-ora-veja-69b5b50be4b4028ed26ea399)
+- **Mourinho muda quatro: o onze do Benfica para Arouca**: [Link](https://www.abola.pt/noticias/mourinho-muda-quatro-o-onze-do-benfica-para-arouca-2026031416594019064)
+- **Arouca x Benfica (14-03-2026)**: [Link](https://placar.com.br/tudo-sobre/arouca-benfica-143807-14-03-2026/)
+
+
 ### monaco – brest (N/A, Sat, 14 Mar 2026 12:30:00 -0700)
 
 - **PRONOS PARIS RMC Les paris sur Monaco - Brest du 14 mars - Ligue 1**: [Link](https://rmcsport.bfmtv.com/replay-emissions/les-paris-rmc/pronos-paris-rmc-les-paris-sur-monaco-brest-du-14-mars-ligue-1_AN-202603130719.html)
