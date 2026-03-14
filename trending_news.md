@@ -1,3 +1,17 @@
+### indian wells (N/A, Sat, 14 Mar 2026 14:40:00 -0700)
+
+- **Svitolina loses to Rybakina in Indian Wells WTA 1000 semifinal**: [Link](https://glavnoe.in.ua/en/news-en/svitolina-loses-to-rybakina-in-indian-wells-wta-1000-semifinal)
+- **Tennis: BNP Paribas Open-Day 13**: [Link](https://www.reutersconnect.com/item/tennis-bnp-paribas-open-day-13/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVVTQVRPREFZMjg0OTAyNjM%3D/?utm_medium=rcom-article-media&utm_campaign=rcom-rcp-lead)
+- **Indian Wells 2026 semifinals and final in men and women's singles: times and what to expect**: [Link](https://www.gamereactor.eu/indian-wells-2026-semifinals-and-final-in-men-and-womens-singles-times-and-what-to-expect-1690553/)
+
+
+### city (N/A, Sat, 14 Mar 2026 14:30:00 -0700)
+
+- **Iran War Live Updates: Iran Defies Trump’s Threats Over Strait of Hormuz Blockade**: [Link](https://www.nytimes.com/live/2026/03/14/world/iran-war-trump-oil-israel)
+- **Sen. Lindsey Graham Says Bombing of Kharg Island Will ‘Shorten the War’**: [Link](https://www.wsj.com/livecoverage/us-israel-iran-war-news-2026/card/sen-lindsey-graham-says-bombing-of-kharg-island-will-shorten-the-war--2PK89pwat0UGgCHE2YcU?gaa_at=eafs&gaa_n=AWEtsqcbhLFCNRIaIYmhfdA3zG6UreHb1WNvkvd4uKbN0uYJjKAHvMoIAXvV&gaa_ts=69b5dc43&gaa_sig=a3vOwzRcAYw6U_71AzRjxIZN16DAVSRypMvpnVG6LpvC70KZ6kwW6cO0aqv86vThKoI6sm-gu-TyroVHYDy1GQ%3D%3D)
+- **Trump says U.S. struck Kharg Island, core of Iran’s oil economy**: [Link](https://www.washingtonpost.com/politics/2026/03/13/trump-us-iran-war-kharg-island-oil/)
+
+
 ### jannik sinner (N/A, Sat, 14 Mar 2026 14:10:00 -0700)
 
 - **Sinner travolgente a Indian Wells, battuto Tien in 2 set: “Prestazione importante, la semifinale con Zverev sarà dura”**: [Link](https://sport.quotidiano.net/tennis/sinner-batte-tien-vola-semifinale-indian-wells-msqowukm)
