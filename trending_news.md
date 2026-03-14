@@ -1,3 +1,24 @@
+### leverkusen – bayern (N/A, Sat, 14 Mar 2026 06:50:00 -0700)
+
+- **Bundesliga: Bayer Leverkusen – FC Bayern hier im Live-Ticker**: [Link](https://sportbild.bild.de/fussball/1-bundesliga/bundesliga-bayer-leverkusen-fc-bayern-hier-im-live-ticker-69b415ba4fddcc89518b172b)
+- **Kurzpässe vor #B04FCB: Tafel-Sammlung und Olympia-Talk beim Duell mit dem Tabellenführer**: [Link](https://www.bayer04.de/de-de/news/bundesliga/kurzpaesse-vor-b04fcb-tafel-sammlung-und-olympia-talk-beim-duell-mit-dem-tabellenfuehrer)
+- **"Für uns ist es das Beste, gegen die Besten zu spielen"**: [Link](https://www.sport1.de/tv-video/video/-fuer-uns-ist-es-das-beste-gegen-die-besten-zu-spielen-__3C90E2C2-8636-4903-8AC6-010C54F7D08E)
+
+
+### inter – atalanta (N/A, Sat, 14 Mar 2026 06:20:00 -0700)
+
+- **Team news for Inter vs. Atalanta**: [Link](https://www.inter.it/en/news/team-news-inter-vs-atalanta-serie-a-25-26)
+- **Le formazioni di Inter-Atalanta | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-inter-atalanta-serie-a-enilive-2025-26)
+- **Paganin: “Inter-Atalanta, ecco chi potrebbe avere più difficoltà. A Chivu si può…”**: [Link](https://www.fcinter1908.it/news/interviste/paganin-inter-atalanta-difficolta-chivu/)
+
+
+### girona vs athletic club (N/A, Sat, 14 Mar 2026 06:20:00 -0700)
+
+- **Preview: Girona vs Athletic Bilbao - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/girona-vs-athletic-bilbao-prediction-team-news-lineups_593717.html)
+- **Girona Vs Athletic Club At Montilivi Leaves Girona Seeking To Turn Fans’ Support Into Victory**: [Link](https://www.filmogaz.com/192502)
+- **Míchel asks for depth and aggressiveness before facing Athletic.**: [Link](https://sports.yahoo.com/articles/m-chel-asks-depth-aggressiveness-120500666.html)
+
+
 ### vahid halilhodžić (N/A, Fri, 13 Mar 2026 17:30:00 -0700)
 
 - **Vahid Halilhodzic en veut terriblement au Maroc**: [Link](https://www.footmercato.net/a8194077670442719601-vahid-halilhodzic-en-veut-terriblement-au-maroc)
