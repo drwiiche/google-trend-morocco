@@ -1,3 +1,17 @@
+### bundesliga (N/A, Sat, 14 Mar 2026 08:30:00 -0700)
+
+- **Eintracht Braunschweig: Statistik, News, Ergebnisse und nächste Gegner in der 2. Bundesliga**: [Link](https://www.news.de/sport/857120711/eintracht-braunschweig-ergebnisse-statistik-und-fussball-news-vom-14-03-2026-tabelle-und-spielplan-fuer-naechste-spiele-in-der-2-bundesliga-2025-2026/1/)
+- **„Gehen verdient als Verlierer vom Platz"**: [Link](https://www.f95.de/aktuell/news/profis/detail/34708-gehen-verdient-als-verlierer-vom-platz/)
+- **2. Bundesliga: Paderborn patzt, Spektakel in Kiel**: [Link](https://neunzigplus.de/2-bundesliga/2-bundesliga-paderborn-patzt-spektakel-in-kiel/)
+
+
+### burnley – bournemouth (N/A, Sat, 14 Mar 2026 08:20:00 -0700)
+
+- **Burnley Hosts Bournemouth in Premier League Match Amidst Contrasting Fortunes**: [Link](https://m.elbotola.com/en/article/2026-03-13-08-45-487.html)
+- **Scotland handed fresh World Cup boost with emerging star back in training with club side for first time since November**: [Link](https://www.thescottishsun.co.uk/sport/16035150/scotland-world-cup-boost-star-training-club/)
+- **Injury news: Iraola provides injury latest ahead of trip to Burnley**: [Link](https://www.afcb.co.uk/news/2026/march/13/injury-news--iraola-provides-gannon-doak-update-ahead-of-trip-to-burnley/)
+
+
 ### الإنتر ضد أتالانتا (N/A, Sat, 14 Mar 2026 08:00:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر وأتالانتا في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%94%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1dd7b9be0f188773)
