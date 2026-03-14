@@ -1,3 +1,17 @@
+### bayern munich (N/A, Sat, 14 Mar 2026 08:50:00 -0700)
+
+- **Bundesliga Leaders Bayern Munich Aim to Extend 11-Point Lead Against Bayer Leverkusen**: [Link](http://m.elbotola.com/en/article/2026-03-13-20-30-432.html)
+- **SEO title: Leverkusen vs Bayern: Pregame lineups and stats**: [Link](https://www.sofascore.com/news/leverkusen-vs-bayern-pregame-lineups-stats-and-what-to-watch/)
+- **Hjulmand keeps cards close to chest on possible rotation ahead of Bayern clash**: [Link](https://sports.yahoo.com/articles/hjulmand-keeps-cards-close-chest-144500904.html)
+
+
+### girona - athletic (N/A, Sat, 14 Mar 2026 08:10:00 -0700)
+
+- **Girona 3 - 0 Athletic: resumen, resultado y goles**: [Link](https://as.com/futbol/primera/girona-athletic-en-directo-laliga-ea-sports-hoy-en-vivo-f202603-d/)
+- **Ernesto Valverde: «Hoy tenemos que pensar qué hemos hecho mal»**: [Link](https://radiopopular.com/2026/03/ernesto-valverde-hoy-tenemos-que-pensar-que-hemos-hecho-mal)
+- **14:00 | 14 MAR 2026 | TIEMPO DE JUEGO**: [Link](https://www.cope.es/programas/tiempo-de-juego/horas-completas/14-00-14-mar-2026-juego-20260314_3326645.html)
+
+
 ### bundesliga (N/A, Sat, 14 Mar 2026 08:30:00 -0700)
 
 - **Eintracht Braunschweig: Statistik, News, Ergebnisse und nächste Gegner in der 2. Bundesliga**: [Link](https://www.news.de/sport/857120711/eintracht-braunschweig-ergebnisse-statistik-und-fussball-news-vom-14-03-2026-tabelle-und-spielplan-fuer-naechste-spiele-in-der-2-bundesliga-2025-2026/1/)
