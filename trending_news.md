@@ -1,3 +1,22 @@
+### netanyahu (N/A, Sat, 14 Mar 2026 16:20:00 -0700)
+
+- **As hopes of regime change in Iran fade, Netanyahu faces political test**: [Link](https://www.bbc.com/news/articles/cvg5yp7v0ppo)
+- **Watch Israeli PM Says Creating Conditions for Iran Uprising**: [Link](https://www.bloomberg.com/news/videos/2026-03-13/israeli-pm-says-creating-conditions-for-iran-uprising-video)
+- **A Dream for Netanyahu, a Risky Bet for Trump**: [Link](https://derspiegel.substack.com/p/a-dream-for-netanyahu-a-risky-bet)
+
+
+### charlotte fc – inter miami (N/A, Sat, 14 Mar 2026 16:10:00 -0700)
+
+- **🔴 MLS LIVE: Miami take on Charlotte; NYCFC look to hold first**: [Link](https://onefootball.com/fr/news/mls-live-miami-take-on-charlotte-nycfc-look-to-hold-first-42559055)
+- **Lionel Messi rested for Inter Miami's game at Charlotte FC - source**: [Link](https://www.espn.com/soccer/story/_/id/48208121/lionel-messi-rested-inter-miami-charlotte-fc-mls)
+- **Starting XI | Charlotte FC vs Inter Miami CF**: [Link](https://www.charlottefootballclub.com/news/starting-xi-charlotte-fc-vs-inter-miami-cf-2026)
+
+
+### champions league afrique (N/A, Sat, 14 Mar 2026 15:30:00 -0700)
+
+
+
+
 ### carlos alcaraz (N/A, Sat, 14 Mar 2026 15:50:00 -0700)
 
 - **El tenis español se queda sin su primera opción de final en Indian Wells**: [Link](https://www.mundodeportivo.com/tenis/20260313/1004151980/tenis-espanol-queda-primera-opcion-final-indian-wells.html)
