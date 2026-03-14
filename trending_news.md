@@ -1,3 +1,10 @@
+### bayern (N/A, Sat, 14 Mar 2026 08:50:00 -0700)
+
+- **FC Bayern: Nicolas Jackson fliegt in Leverkusen mit Rot vom Platz!**: [Link](https://www.bild.de/sport/fussball/fc-bayern-nicolas-jackson-fliegt-in-leverkusen-mit-rot-vom-platz-69b57ac9dc9502e1196afc28)
+- **Jackson-Platzverweis und Hand-Tor: Doppelter VAR-Ärger für Bayern**: [Link](https://www.90min.de/jackson-platzverweis-und-hand-tor-doppelter-var-arger-fur-bayern)
+- **Terrier bleibt angeschlagen in der Kabine**: [Link](https://www.ligainsider.de/martin-terrier_21876/terrier-bleibt-angeschlagen-in-der-kabine-410389/)
+
+
 ### bayern munich (N/A, Sat, 14 Mar 2026 08:50:00 -0700)
 
 - **Bundesliga Leaders Bayern Munich Aim to Extend 11-Point Lead Against Bayer Leverkusen**: [Link](http://m.elbotola.com/en/article/2026-03-13-20-30-432.html)
