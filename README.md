@@ -1,3 +1,10 @@
+### عيسى ديوب (N/A, Fri, 13 Mar 2026 18:50:00 -0700)
+
+- **خلف الكواليس.. المغرب يقترب من حسم معركة الموهبة الأكثر إثارة بأوروبا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D9%84%D9%81-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%83%D8%AB%D8%B1-%D8%A7%D9%95%D8%AB%D8%A7%D8%B1%D8%A9-%D8%A8%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blta2502a653fb60ebf)
+- **خاص/ مدافع فولهام الإنجليزي عيسى ديوب يختار تمثيل المنتخب المغربي**: [Link](https://m.elbotola.com/article/2026-03-14-00-41-317.html)
+- **محمد وهبي يستهدف “جوهرة ليل”**: [Link](https://www.radiomars.ma/%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%AC%D9%88%D9%87%D8%B1%D8%A9-%D9%84%D9%8A%D9%84/)
+
+
 ### match far (N/A, Fri, 13 Mar 2026 16:00:00 -0700)
 
 - **AS FAR-Pyramids FC: à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/ligue-des-champions-caf/as-far-pyramids-fc-a-quelle-heure-et-sur-quelles-chaines_MHX742VMVBHNLMZTLBWVUBRSMI/)
