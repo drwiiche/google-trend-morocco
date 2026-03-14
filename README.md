@@ -1,3 +1,10 @@
+### cgem (N/A, Sat, 14 Mar 2026 16:40:00 -0700)
+
+- **Aïd Al Fitr : la CGEM invite les entreprises privées à accorder le lundi 23 mars aux salariés**: [Link](https://medias24.com/2026/03/14/aid-al-fitr-la-cgem-invite-les-entreprises-privees-a-accorder-le-lundi-23-mars-aux-salaries-1643395/)
+- **Aid Al Fitr : la CMR versera les pensions, de manière exceptionnelle, à partir du 18 mars**: [Link](https://mobile.telquel.ma/instant-t/2026/03/13/aid-al-fitr-la-cmr-versera-les-pensions-de-maniere-exceptionnelle-a-partir-du-18-mars_1978830/)
+- **Aïd Al-Fitr : Lundi 23 mars, jour de congé exceptionnel dans le public**: [Link](https://lematin.ma/nation/aid-al-fitr-lundi-23-mars-jour-de-conge-exceptionnel-dans-le-public/334808)
+
+
 ### netanyahu (N/A, Sat, 14 Mar 2026 16:20:00 -0700)
 
 - **As hopes of regime change in Iran fade, Netanyahu faces political test**: [Link](https://www.bbc.com/news/articles/cvg5yp7v0ppo)
