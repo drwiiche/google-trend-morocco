@@ -1,3 +1,45 @@
+### carlos alcaraz (N/A, Sat, 14 Mar 2026 15:50:00 -0700)
+
+- **El tenis español se queda sin su primera opción de final en Indian Wells**: [Link](https://www.mundodeportivo.com/tenis/20260313/1004151980/tenis-espanol-queda-primera-opcion-final-indian-wells.html)
+- **Cuándo y dónde ver las semifinales de Indian Wells: Alcaraz - Medvedev y Sinner - Zverev**: [Link](https://elpais.com/deportes/tenis/2026-03-13/cuando-y-donde-ver-a-carlos-alcaraz-jugar-la-semifinal-de-indian-wells.html)
+- **Indian Wells 2026: programación del 14 de marzo**: [Link](https://matchtenis.com/indian-wells-2026-programacion-del-14-de-marzo/)
+
+
+### berkane match (N/A, Sat, 14 Mar 2026 15:40:00 -0700)
+
+- **Oussama Haddadi : « Continuer à écrire l’histoire de la RS Berkane »**: [Link](https://www.cafonline.com/fr/ligue-des-champions/news/oussama-haddadi-continuer-a-ecrire-l-histoire-de-la-rs-berkane/)
+- **La composition du RS Berkane face à Al-Hilal : El Zeniti dans les buts, El Kaabi mène l'attaque avec Riahi et Mihri**: [Link](https://m.elbotola.com/fr/article/2026-03-14-21-19-731.html)
+- **Ligue des champions: la RS Berkane boucle sa préparation avant d’affronter Al Hilal**: [Link](https://sport.le360.ma/internal-gallery/ligue-des-champions-la-rs-berkane-boucle-sa-preparation-avant-daffronter-al-hilal_5ZWIIKX4EZDLVBPUG22JUPGRYQ/)
+
+
+### نهضة بركان (N/A, Sat, 14 Mar 2026 15:20:00 -0700)
+
+- **قرار طبي حاسم يبعد نجم نهضة بركان في مواجهة الهلال**: [Link](https://www.radiomars.ma/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B7%D8%A8%D9%8A-%D8%AD%D8%A7%D8%B3%D9%85-%D9%8A%D8%A8%D8%B9%D8%AF-%D9%86%D8%AC%D9%85-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%81%D9%8A-%D9%85%D9%88%D8%A7/)
+- **الهلال السوداني يعسكر في البيضاء**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D8%B3%D9%83%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1712756.html)
+- **تشكيلة نهضة بركان أمام الهلال.. الزنيتي في حراسة المرمى والكعبي يقود الهجوم رفقة الرياحي وميهري**: [Link](https://m.elbotola.com/article/2026-03-14-21-19-857.html)
+
+
+### france angleterre rugby (N/A, Sat, 14 Mar 2026 14:50:00 -0700)
+
+- **Revivez le sacre de la France après sa victoire arrachée contre l'Angleterre au Tournoi des Six Nations 2026**: [Link](https://www.eurosport.fr/rugby/6-nations/2026/france-angleterre_mtc1657682/live-commentary.shtml)
+- **France-Angleterre : revivez le sacre des Bleus au terme d’un fin époustouflant**: [Link](https://www.lefigaro.fr/sports/rugby/live-1/six-nations/2026/947118/france-angleterre)
+- **Anthony Jelonch forfait pour France-Angleterre, Temo Matiu va connaître sa première sélection**: [Link](https://www.lequipe.fr/Rugby/Actualites/Anthony-jelonch-forfait-pour-france-angleterre-temo-matiu-va-connaitre-sa-premiere-selection/1658787)
+
+
+### ajax – sparta rotterdam (N/A, Sat, 14 Mar 2026 14:40:00 -0700)
+
+- **Ajax wint met nieuwe coach García ruim van Sparta Rotterdam**: [Link](https://www.noordhollandsdagblad.nl/sport/ajax/ajax-wint-met-nieuwe-coach-garcia-ruim-van-sparta-rotterdam/141983167.html)
+- **🔴 Ajax heeft geen kind aan Sparta • Beroerde avond voor Telstar in Heerenveen**: [Link](https://www.nhnieuws.nl/nieuws/357989/ajax-heeft-geen-kind-aan-sparta-beroerde-avond-voor-telstar-in-heerenveen)
+- **LIVE Eredivisie: Steven Berghuis is op stoom en verdubbelt de voorsprong voor Ajax**: [Link](https://www.telegraaf.nl/sport/voetbal/live-eredivisie-steven-berghuis-is-op-stoom-en-verdubbelt-de-voorsprong-voor-ajax/141917998.html)
+
+
+### real vs (N/A, Sat, 14 Mar 2026 14:20:00 -0700)
+
+- **Real Madrid v City: Travelling squad for Champions League first leg**: [Link](https://www.mancity.com/news/mens/real-madrid-city-travelling-squad-round-of-16-first-leg-63908737)
+- **Revival or fleeting lift, Brahim Diaz back in Real Madrid’s plans**: [Link](https://onefootball.com/en/news/revival-or-fleeting-lift-brahim-diaz-back-in-real-madrids-plans-42554921)
+- **Grand welcome for the team before facing City**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/espectacular-recibimiento-al-real-madrid-a-su-llegada-al-bernabeu-11-03-2026)
+
+
 ### manuel ángel (N/A, Sat, 14 Mar 2026 15:20:00 -0700)
 
 - **Descubriendo a Manuel Ángel: “Decíamos que sería el que llegaría más lejos, por delante de Nico Paz”**: [Link](https://as.com/futbol/primera/descubriendo-a-manuel-angel-deciamos-que-seria-el-que-llegaria-mas-lejos-por-delante-de-nico-paz-f202603-n/)
