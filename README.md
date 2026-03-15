@@ -1,3 +1,10 @@
+### côme – roma (N/A, Sun, 15 Mar 2026 09:40:00 -0700)
+
+- **Serie A: Como-Roma in campo 0-1 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/03/15/serie-a-como-roma-in-campo-0-1-diretta_a9756de0-7e55-4ec8-828a-eaf415bc9cbc.html)
+- **El Shaarawy: “Fisicamente sto bene. Dobbiamo stare attenti in fase difensiva”**: [Link](https://www.forzaroma.info/news-as-roma/el-shaarawy-fisicamente-sto-bene-dobbiamo-stare-attenti-in-fase-difensiva/)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-alle-18-la-sfida-champions-como-roma-gasp-punta-su-el-shaarawy/zLTeIKzp/)
+
+
 ### لا ليغا (N/A, Sun, 15 Mar 2026 09:10:00 -0700)
 
 - **«لا ليغا»: مايوركا يبتعد عن الخطر بثنائية في إسبانيول**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5251572-%D9%84%D8%A7-%D9%84%D9%8A%D8%BA%D8%A7-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%8A%D8%A8%D8%AA%D8%B9%D8%AF-%D8%B9%D9%86-%D8%A7%D9%84%D8%AE%D8%B7%D8%B1-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84)
