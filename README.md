@@ -1,3 +1,10 @@
+### f1 (N/A, Sun, 15 Mar 2026 00:10:00 -0700)
+
+- **Antonelli becomes F1's youngest ever GP polesitter in China**: [Link](https://www.formula1.com/en/latest/article/antonelli-beats-russell-to-become-f1s-youngest-ever-grand-prix-polesitter-in.54Dx0kX9QiRCnSgIsxR71t)
+- **F1 LIVE: Chinese Grand Prix 2026 UK time, qualifying start time, grid, radio & updates**: [Link](https://www.bbc.com/sport/formula1/live/c3wzd60qy1nt)
+- **Crazy comparison for historic F1 pole: Chinese GP qualifying 2025 vs 2026**: [Link](https://racingnews365.com/crazy-comparison-for-historic-f1-pole-chinese-gp-qualifying-2025-vs-2026)
+
+
 ### jürgen habermas (N/A, Sat, 14 Mar 2026 21:50:00 -0700)
 
 - **Jürgen Habermas Dies at 96; One of Postwar Germany’s Most Influential Thinkers**: [Link](https://www.nytimes.com/2026/03/14/books/jurgen-habermas-dead.html)
