@@ -1,3 +1,10 @@
+### benjamin netanyahu (N/A, Sat, 14 Mar 2026 16:40:00 -0700)
+
+- **Iran vows to kill Israel's Netanyahu as impact of war on Gulf region widens**: [Link](https://www.cnbc.com/2026/03/15/iran-war.html)
+- **Netanyahu Dead Or Alive? Rumours After Israeli PM Missed Security Meeting Amid Iranian Attacks**: [Link](https://timesofindia.indiatimes.com/videos/international/netanyahu-dead-or-alive-rumours-after-israeli-pm-missed-security-meeting-amid-iranian-attacks/videoshow/129588451.cms)
+- **'The PM is...': Netanyahu's office breaks silence over reports claiming his assassination**: [Link](https://www.wionews.com/photos/fact-check-israel-pm-benjamin-netanyahu-office-debunks-fake-news-over-his-whereabouts-death-claims-1773524769573)
+
+
 ### أيوب بوعدي (N/A, Sun, 15 Mar 2026 03:00:00 -0700)
 
 - **بفضل وهبي ولقجع.. جوهرة فرنسية توافق على تمثيل المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%81%D8%B6%D9%84-%D9%88%D9%87%D8%A8%D9%8A-%D9%88%D9%84%D9%82%D8%AC%D8%B9--%D8%AC%D9%88%D9%87%D8%B1%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D8%AA%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt87d9a0084e5d30b5)
