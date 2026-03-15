@@ -1,3 +1,31 @@
+### le havre – lyon (N/A, Sun, 15 Mar 2026 09:10:00 -0700)
+
+- **OL : le groupe toujours décimé contre Le Havre**: [Link](https://www.footmercato.net/a6078039303767355228-ol-le-groupe-toujours-decime-contre-metz)
+- **Football – HAC : avec Koffi et Samatta d’entrée pour défier l’Olympique Lyonnais**: [Link](https://www.paris-normandie.fr/id703552/article/2026-03-15/football-hac-avec-koffi-et-samatta-dentree-pour-defier-lolympique-lyonnais)
+- **Didier Digard désigne le meilleur coach de Ligue 1 avant Le Havre-OL, ce n'est pas Luis Enrique (PSG)**: [Link](https://www.butfootballclub.fr/1654310-didier-digard-designe-le-meilleur-coach-de-ligue-1-avant-le-havre-ol-ce-nest-pas-luis-enrique-psg/)
+
+
+### ليفربول ضد توتنهام (N/A, Sun, 15 Mar 2026 09:10:00 -0700)
+
+- **سلوت: لا وقت للندم.. والمركز السادس لا يليق بليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D9%84%D8%A7-%D9%88%D9%82%D8%AA-%D9%84%D9%84%D9%86%D8%AF%D9%85--%D9%88%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%84%D8%A7-%D9%8A%D9%84%D9%8A%D9%82-%D8%A8%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt598bff58fe00e1ba)
+- **تشكيلة ليفربول لمواجهة توتنهام في الدوري الإنكليزي**: [Link](https://elsport.com/news/show/815644/%7B%7Burl%7D%7D)
+- **محمد صلاح ينتظر رقمًا قياسيا جديدا في مواجهة ليفربول وتوتنهام بالبريميرليغ - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/841287832728660-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D8%A8%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA/)
+
+
+### la liga (N/A, Sun, 15 Mar 2026 09:10:00 -0700)
+
+- **Sevilla Coach Before Barcelona Clash: 'Today There Are Wars and We Talk About Playing a Match... It Has Become Inhuman'**: [Link](https://m.elbotola.com/en/article/2026-03-14-16-11-213.html)
+- **Hansi Flick hints at resting Lamine Yamal against Sevilla and rates Xavi Espart’s chances of starting for Barcelona**: [Link](https://www.barcablaugranes.com/barcelona-team-news/115199/hansi-flick-hints-at-resting-lamine-yamal-against-sevilla-and-rates-xavi-esparts-chances-of-starting-for-barcelona)
+- **Ferran Torres Faces a Special Challenge Against Sevilla**: [Link](https://www.ysscores.com/en/news/13928076/Ferran-Torres-Faces-a-Special-Challenge-Against-Sevilla)
+
+
+### liverpool – tottenham (N/A, Sun, 15 Mar 2026 08:50:00 -0700)
+
+- **Liverpool Starting XI vs Spurs: Confirmed Team News and Predicted Lineup**: [Link](https://onefootball.com/id/berita/liverpool-starting-xi-vs-spurs-confirmed-team-news-and-predicted-lineup-42561304)
+- **Kalshi Promo Code GOALMAX: Get $10 in Bonuses for Liverpool vs Tottenham & EPL Prediction Markets**: [Link](https://www.goal.com/en-us/betting/kalshi-promo-code-goalmax-get-usd10-in-bonuses-for-liverpool-vs-tottenham-and-epl-prediction-markets/bltcac94207e7cff850)
+- **Liverpool leave Mohamed Salah and Hugo Ekitike on bench against Spurs as Rio Ngumoha starts**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/liverpool-leave-mohamed-salah-hugo-33595787)
+
+
 ### xavi espart (N/A, Sun, 15 Mar 2026 08:20:00 -0700)
 
 - **Barcelona dressing room amazed by the ‘New Philipp Lahm’**: [Link](https://barcauniversal.com/barcelona-dressing-room-amazed-by-the-new-philip-lahm/)
