@@ -1,3 +1,10 @@
+### caf confederation cup (N/A, Sun, 15 Mar 2026 15:50:00 -0700)
+
+- **Lubumbashi Stadium Turns into "Water Puddles," Sparks Controversy in Maniema Union vs. USM Alger Confederation Cup Match!**: [Link](https://m.elbotola.com/en/article/2026-03-15-16-16-103.html)
+- **CAF Cup: USM Alger falls in Lubumbashi**: [Link](https://foot-africa.com/en/news/caf-cup-usm-alger-falls-in-lubumbashi-1126346/)
+- **CAF Confederation Cup: AS Maniema Union overcome rain, USMA in quarterfinal 1st leg**: [Link](https://www.panafricafootball.com/post/caf-confederation-cup-as-v-usma/)
+
+
 ### ahly (N/A, Sun, 15 Mar 2026 15:40:00 -0700)
 
 - **Esperance Defeats Al Ahly with a Clean Goal in the First Leg of the Champions League Quarterfinals**: [Link](https://www.ysscores.com/en/news/13928696/Esperance-Defeats-Al-Ahly-with-a-Clean-Goal-in-the-First-Leg-of-the-Champions-League-Quarterfinals)
