@@ -1,3 +1,38 @@
+### جمال ريان (N/A, Sun, 15 Mar 2026 06:20:00 -0700)
+
+- **وفاة الإعلامي الفلسطيني جمال ريان أحد أبرز مذيعي قناة الجزيرة**: [Link](https://palinfo.com/news/2026/03/15/1103327/)
+- **وفاة الإعلامي الأردني في قناة الجزيرة جمال ريان عن عمر ناهز 72 عاما**: [Link](https://www.khaberni.com/news/790646-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D8%A7%D9%84%D8%A7%D8%B1%D8%AF%D9%86%D9%8A-%D9%81%D9%8A-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%AC%D9%85%D8%A7%D9%84-%D8%B1%D9%8A%D8%A7%D9%86-%D8%B9%D9%86-%D8%B9%D9%85%D8%B1-%D9%86%D8%A7%D9%87%D8%B2-72-%D8%B9%D8%A7%D9%85%D8%A7)
+- **وفاة الإعلامي الأردني الفلسطيني جمال ريان عن عمر ناهز 72 عاما**: [Link](https://royanews.tv/news/376629)
+
+
+### manchester united – aston villa (N/A, Sun, 15 Mar 2026 06:10:00 -0700)
+
+- **Unai Emery admitted that Michael Carrick decision led to Man Utd beating him in 2021**: [Link](https://www.unitedinfocus.com/news/unai-emery-admitted-that-michael-carrick-decision-led-to-man-utd-beating-him-in-2021/)
+- **LIVE: Manchester United vs Aston Villa – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/3/15/live-manchester-united-vs-aston-villa-premier-league)
+- **Injury Crisis Rocks Old Trafford Before Crucial Villa Clash**: [Link](https://streamlinefeed.co.ke/news/injury-crisis-rocks-old-trafford-before-crucial-villa-clash)
+
+
+### bruno salomone (N/A, Sun, 15 Mar 2026 05:30:00 -0700)
+
+- **Bruno Salomone, acteur de la série «Fais pas ci, fais pas ça», est décédé à 55 ans**: [Link](https://www.lefigaro.fr/cinema/bruno-salomone-acteur-de-la-serie-fais-pas-ci-fais-pas-ca-est-decede-a-55-ans-20260315)
+- **Le comédien Bruno Salomone est mort à l'âge de 55 ans**: [Link](https://www.bfmtv.com/people/le-comedien-bruno-salomone-est-mort-a-l-age-de-55-ans_AN-202603150209.html)
+- **L'acteur Bruno Salomone est mort**: [Link](https://www.parismatch.com/Culture/lacteur-bruno-salomone-est-mort-265931)
+
+
+### ليلة القدر 2026 (N/A, Sun, 15 Mar 2026 05:30:00 -0700)
+
+- **هل كانت 23 رمضان؟.. علماء يوضحون حقيقة ليلة القدر الأرجح بالعشر الأواخر**: [Link](https://www.youm7.com/story/2026/3/13/%D9%87%D9%84-%D9%83%D8%A7%D9%86%D8%AA-23-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B9%D9%84%D9%85%D8%A7%D8%A1-%D9%8A%D9%88%D8%B6%D8%AD%D9%88%D9%86-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D8%AD/7339068)
+- **حقيقة تحديد ليلة القدر مسبقا.. تحذير رسمي من دار الإفتاء المصرية**: [Link](https://al-ain.com/article/egypt-dar-aliftaa-laylat-alqadr-warning-dua)
+- **دار الإفتاء المصرية تحذر من رسائل تحديد ليلة القدر: اجتهد في جميع الليالي**: [Link](https://www.elbalad.news/6902948)
+
+
+### finalissima (N/A, Sun, 15 Mar 2026 04:30:00 -0700)
+
+- **Spain vs Argentina 'Finalissima' cancelled due to Middle East conflict**: [Link](https://www.espn.com/soccer/story/_/id/48213565/spain-vs-argentina-finalissima-cancelled-due-middle-east-conflict-lionel-messi-lamine-yamal)
+- **Finalissima between Lionel Messi’s Argentina and Spain cancelled**: [Link](https://sports.yahoo.com/articles/finalissima-between-lionel-messi-argentina-131057982.html)
+- **CONMEBOL reportedly sends final counteroffer to UEFA amid 2026 Finalissima uncertainty**: [Link](https://bolavip.com/en/soccer/conmebol-reportedly-sends-final-counteroffer-to-uefa-amid-2026-finalissima-uncertainty)
+
+
 ### aurélien tchouaméni (N/A, Sat, 14 Mar 2026 17:00:00 -0700)
 
 - **Tchouameni responde a los rumores de que su novia le ha sido infiel.**: [Link](https://www.vietnam.vn/es/tchouameni-phan-hoi-thong-tin-bi-ban-gai-cam-sung)
