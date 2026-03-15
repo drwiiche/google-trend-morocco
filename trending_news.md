@@ -1,3 +1,31 @@
+### strasbourg – paris fc (N/A, Sun, 15 Mar 2026 06:40:00 -0700)
+
+- **Strasbourg, là où tout a commencé pour le coach Antoine Kombouaré : « C'est un club à part avec Nantes et le PSG »**: [Link](https://www.lequipe.fr/Football/Article/Strasbourg-la-ou-tout-a-commence-pour-le-coach-antoine-kombouare-c-est-un-club-a-part-avec-nantes-et-le-psg/1659578)
+- **Joaquin Panichelli sera titulaire face au Paris FC !**: [Link](https://www.alsasports.fr/football/rc-strasbourg/joaquin-panichelli-sera-titulaire-face-au-paris-fc/79987/)
+- **France : Le point sur Kebbal et Chergui**: [Link](https://www.dzfoot.com/verts-deurope/france-le-point-sur-kebbal-et-chergui-290669.html)
+
+
+### مان يونايتد ضد أستون فيلا (N/A, Sun, 15 Mar 2026 06:30:00 -0700)
+
+- **تشكيلة المتوقع لـ أستون فيلا ومانشستر يونايتد في موقعة الحسم**: [Link](https://www.arrajol.com/content/399715/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%80-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85)
+- **صراع مشتعل على مقاعد دوري الأبطال في إنجلترا**: [Link](https://www.ysscores.com/ar/news/13927346/%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B4%D8%AA%D8%B9%D9%84-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%81%D9%8A-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7)
+- **كاريك يعلن تشكيل مانشستر يونايتد أمام أستون فيلا في البريميرليج**: [Link](https://akhbarelyom.com/news/newdetails/4789983/1/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%B3)
+
+
+### crystal palace – leeds united (N/A, Sun, 15 Mar 2026 06:30:00 -0700)
+
+- **'Will smash us' - Crystal Palace star sends brutal Leeds United warning to teammates**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/leeds-united-crystal-palace-adam-wharton-premier-league-5852910)
+- **Use Tote promo code to net £40 in free bets ahead of Crystal Palace vs Leeds**: [Link](https://talksport.com/betting/4039962/crystal-palace-vs-leeds-tote-free-bets/)
+- **Leeds United vs Crystal Palace Live Free EPL 15 March 2026**: [Link](https://www.hackster.io/epllivescore/leeds-united-vs-crystal-palace-live-free-epl-15-march-2026-e6b6c4)
+
+
+### saint cloud (N/A, Sun, 15 Mar 2026 06:30:00 -0700)
+
+- **Quinté du dimanche 15 mars 2026 à Saint-Cloud : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-15-mars-2026-a-saint-cloud-les-pronostics-7900612417)
+- **Chelsea du Ninian, l'outsider séduisant du Quinté+ de ce dimanche 15 mars**: [Link](https://www.equidia.fr/articles/actualite/chelsea-du-ninian-loutsider-seduisant-du-quinte-de-ce-dimanche-15-mars)
+- **Quinté Plus PMU : Dixmude monte en puissance**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-dixmude-monte-en-puissance-129303.html)
+
+
 ### جمال ريان (N/A, Sun, 15 Mar 2026 06:20:00 -0700)
 
 - **وفاة الإعلامي الفلسطيني جمال ريان أحد أبرز مذيعي قناة الجزيرة**: [Link](https://palinfo.com/news/2026/03/15/1103327/)
