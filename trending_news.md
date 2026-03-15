@@ -1,3 +1,10 @@
+### aurélien tchouaméni (N/A, Sat, 14 Mar 2026 17:00:00 -0700)
+
+- **Tchouameni responde a los rumores de que su novia le ha sido infiel.**: [Link](https://www.vietnam.vn/es/tchouameni-phan-hoi-thong-tin-bi-ban-gai-cam-sung)
+- **Rotura de Mendy: baja en el Etihad y seria duda para el derbi**: [Link](https://as.com/futbol/champions/mendy-subre-una-lesion-en-el-biceps-femoral-sera-baja-en-el-etihad-f202603-n/)
+- **Lesión abruma a Real Madrid para Champions y a Francia para el amistoso ante Colombia: lamento total**: [Link](https://www.msn.com/es-co/deportes/other/lesi%C3%B3n-abruma-a-real-madrid-para-champions-y-a-francia-para-el-amistoso-ante-colombia-lamento-total/ar-AA1YzNMP)
+
+
 ### benjamin netanyahu (N/A, Sat, 14 Mar 2026 16:40:00 -0700)
 
 - **Iran vows to kill Israel's Netanyahu as impact of war on Gulf region widens**: [Link](https://www.cnbc.com/2026/03/15/iran-war.html)
