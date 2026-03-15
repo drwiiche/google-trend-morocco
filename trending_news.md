@@ -1,3 +1,17 @@
+### aryna sabalenka (N/A, Sun, 15 Mar 2026 13:40:00 -0700)
+
+- **How to live stream Aryna Sabalenka vs Elena Rybakina: lndian Wells tennis final, TV channel**: [Link](https://www.thebiglead.com/how-to-live-stream-aryna-sabalenka-vs-elena-rybakina-lndian-wells-tennis-final-tv-channel/)
+- **Indian Wells Daily Preview: Championship Sunday in the California Desert**: [Link](https://www.ubitennis.net/2026/03/indian-wells-daily-preview-championship-sunday-in-the-california-desert/)
+- **BNP Paribas Open Finals Preview: Sabalenka vs Rybakina and Sinner vs. Medvedev**: [Link](https://tennisconnected.com/bnp-paribas-open-finals-preview-sabalenka-vs-rybakina-and-sinner-vs-medvedev/)
+
+
+### oscars 2026 (N/A, Sun, 15 Mar 2026 12:20:00 -0700)
+
+- **Oscars 2026: What to expect and who will win**: [Link](https://www.bbc.com/news/articles/clyv4e2ldpjo)
+- **‘Sinners’ vs. ‘One Battle After Another’: Which film has better betting odds to win the Oscar?**: [Link](https://ktla.com/entertainment/sinners-vs-one-battle-after-another-which-film-has-better-betting-odds-to-win-the-oscar/)
+- **Oscars 2026: the red carpet, the ceremony, the winners – follow the action live!**: [Link](https://m.imdb.com/it/news/ni65751687/?ref_=nwc_art_perm)
+
+
 ### election municipale france (N/A, Sun, 15 Mar 2026 12:50:00 -0700)
 
 - **Résultats du 1er tour des municipales 2026 : découvrez les scores des candidats commune par commune en France**: [Link](https://www.franceinfo.fr/elections/carte-resultats-du-1er-tour-des-municipales-2026-decouvrez-les-scores-des-candidats-commune-par-commune-en-france_7858088.html)
