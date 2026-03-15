@@ -1,3 +1,17 @@
+### ahly (N/A, Sun, 15 Mar 2026 15:40:00 -0700)
+
+- **Esperance Defeats Al Ahly with a Clean Goal in the First Leg of the Champions League Quarterfinals**: [Link](https://www.ysscores.com/en/news/13928696/Esperance-Defeats-Al-Ahly-with-a-Clean-Goal-in-the-First-Leg-of-the-Champions-League-Quarterfinals)
+- **Espérance Sportive de Tunis set probable lineup for CAF Champions League clash with Al Ahly SC**: [Link](https://africasoccer.com/esperance-probable-lineup-vs-al-ahly-caf-champions-league-quarterfinal/)
+- **Esperance coach Beaumelle promises full commitment against Al Ahly in TotalEnergies CAF Champions League quarter-final**: [Link](https://www.cafonline.com/caf-champions-league/news/esperance-coach-beaumelle-promises-full-commitment-against-al-ahly-in-totalenergies-caf-champions-league-quarter-final/)
+
+
+### coree (N/A, Sun, 15 Mar 2026 15:30:00 -0700)
+
+- **Corée du Nord : Kim Jong-un supervise un essai de lance-roquettes, une « arme très meurtrière, mais attrayante »**: [Link](https://www.lemonde.fr/international/article/2026/03/15/coree-du-nord-kim-jong-un-supervise-un-essai-de-lance-roquettes-une-arme-tres-meurtriere-mais-attrayante_6671250_3210.html)
+- **La Corée du Nord a lancé une dizaine de missiles balistiques vers la mer du Japon**: [Link](https://www.20minutes.fr/monde/4206152-20260314-coree-nord-lance-dizaine-missiles-balistiques-vers-mer-japon)
+- **Corée du Nord: Pyongyang teste ses nouveaux lance-roquettes multiples de 600 mm**: [Link](https://www.bfmtv.com/international/asie/coree-nord/video-coree-du-nord-pyongyang-teste-ses-nouveaux-lance-roquettes-multiples-de-600-mm_VN-202603150243.html)
+
+
 ### yalla kora (N/A, Sun, 15 Mar 2026 15:20:00 -0700)
 
 - **فيديو: الزمالك يعود بتعادل ثمين من الكونغو بالكونفيدرالية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%AB%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A8%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9/blteb58d047ea1f417e)
