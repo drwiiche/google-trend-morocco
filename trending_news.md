@@ -1,3 +1,29 @@
+### real sociedad – osasuna (N/A, Sun, 15 Mar 2026 12:20:00 -0700)
+
+- **Elogios de Matarazzo para Budimir**: [Link](https://www.noticiasdenavarra.com/osasuna/2026/03/14/elogios-matarazzo-budimir-10821199.html)
+- **El clásico de la A-15 más europeo**: [Link](https://www.diariovasco.com/real-sociedad/clasico-a15-europeo-20260315205606-nt.html)
+- **Real y Osasuna vuelven a citarse en Anoeta con aspiraciones europeas**: [Link](https://www.naiz.eus/eu/info/noticia/20260314/real-y-osasuna-vuelven-a-citarse-en-anoeta-con-aspiraciones-europeas)
+
+
+### اذان المغرب اليوم (N/A, Sun, 15 Mar 2026 12:20:00 -0700)
+
+
+
+
+### jamal rayyan (N/A, Sun, 15 Mar 2026 11:20:00 -0700)
+
+- **Jamal Rayyan, the first face of Al Jazeera, dies at 73**: [Link](https://www.aljazeera.com/news/2026/3/15/jamal-rayyan-who-opened-al-jazeeras-first-broadcast-dies-at-73)
+- **Al Jazeera Veteran Jamal Rayyan Dies at 72**: [Link](https://www.moroccoworldnews.com/2026/03/282727/al-jazeera-veteran-jamal-rayyan-dies-at-72/)
+- **Jamal Rayyan, The First Face Of Al Jazeera, Dies At 73**: [Link](https://menafn.com/1110863728/Jamal-Rayyan-The-First-Face-Of-Al-Jazeera-Dies-At-73)
+
+
+### barca match (N/A, Sun, 15 Mar 2026 10:10:00 -0700)
+
+- **Hansi Flick explains decision to rest Lamine Yamal for Barcelona against Sevilla**: [Link](https://www.barcablaugranes.com/barcelona-team-news/115255/hansi-flick-explains-decision-to-rest-lamine-yamal-for-barcelona-against-sevilla)
+- **Barcelone – Séville: A tactical reset and a club under pressure**: [Link](https://www.el-balad.com/16881741)
+- **Good News for Barcelona**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/good-news-for-barcelona-2026-03-14)
+
+
 ### rennes – lille (N/A, Sun, 15 Mar 2026 12:10:00 -0700)
 
 - **Rennes-Lille : un blessé lors d’une rixe entre supporters à la veille du match de Ligue 1**: [Link](https://www.leparisien.fr/sports/football/ligue-1/rennes-lille-un-blesse-lors-dune-rixe-entre-supporters-a-la-veille-du-match-de-ligue-1-15-03-2026-NOZ5HHILZVFZBOBHJ25USSCRIE.php)
