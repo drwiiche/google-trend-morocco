@@ -1,3 +1,17 @@
+### xavi espart (N/A, Sun, 15 Mar 2026 08:20:00 -0700)
+
+- **Barcelona dressing room amazed by the ‘New Philipp Lahm’**: [Link](https://barcauniversal.com/barcelona-dressing-room-amazed-by-the-new-philip-lahm/)
+- **(VIDEO) Barcelona's Xavi Espart Makes Dream Champions League Debut, Eyes First Start Amid Injury Crisis**: [Link](https://www.ibtimes.com.au/video-barcelonas-xavi-espart-makes-dream-champions-league-debut-eyes-first-start-amid-injury-1863386)
+- **18-year-old La Masia starlet in line for first Barcelona start against Sevilla – Report**: [Link](https://semprebarca.com/18-year-old-la-masia-starlet-in-line-for-first-barcelona-start-against-sevilla-report/)
+
+
+### man united (N/A, Sun, 15 Mar 2026 08:00:00 -0700)
+
+- **Man United vs Aston Villa: Gary Neville can't help but laugh at set-piece routine that goes 'horribly wrong'**: [Link](https://www.astonvillanews.co.uk/2026/03/15/man-united-vs-aston-villa-gary-neville-cant-help-but-laugh-at-set-piece-routine-that-goes-horribly-wrong/)
+- **Man Utd v Aston Villa: How Jadon Sancho's dream United move became a nightmare**: [Link](https://www.bbc.com/sport/football/articles/c6204jpy7v6o)
+- **Carrick impact, £5m penalty and Ten Hag row - Where it went wrong for Jadon Sancho at Man United**: [Link](https://www.manchestereveningnews.co.uk/sport/football/carrick-impact-5m-penalty-ten-33587193)
+
+
 ### barcelone – séville (N/A, Sun, 15 Mar 2026 07:30:00 -0700)
 
 - **DIRECT. FC Barcelone-Séville FC (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-seville-fc-live/676984)
