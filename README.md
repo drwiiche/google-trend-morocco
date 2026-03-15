@@ -1,3 +1,24 @@
+### fcb (N/A, Sun, 15 Mar 2026 09:30:00 -0700)
+
+- **LIVE TEXT | FC Barcelona Presidential Elections 2026**: [Link](https://www.fcbarcelona.com/en/club/news/4465897/live-text-fc-barcelona-presidential-elections-2026)
+- **Victor Font accuses Laporta of creating confusion over Busquets photo: 'This is Barcelona, not FC Laporta'**: [Link](https://barcauniversal.com/victor-font-accuses-laporta-of-creating-confusion-over-busquets-photo-this-is-barcelona-not-fc-laporta/)
+- **Barcelona's Marc-André ter Stegen denied election vote after admin error - source**: [Link](https://www.espn.com/soccer/story/_/id/48214126/barcelona-marc-andre-ter-stegen-elections-joan-laporta-victor-font)
+
+
+### classement premier league (N/A, Sun, 15 Mar 2026 09:30:00 -0700)
+
+- **PSG : ça devient critique pour Chelsea et Liam Rosenior**: [Link](https://www.footmercato.net/a1062409976021488718-psg-ca-devient-critique-pour-chelsea-et-liam-rosenior)
+- **Scène surréaliste à Stamford Brige : les joueurs de Chelsea encerclent l'arbitre avant le match face à Newcastle**: [Link](https://www.lequipe.fr/Football/Actualites/Scene-surrealiste-a-stamford-bridge-les-joueurs-de-chelsea-encerclent-l-arbitre-avant-le-match-face-a-newcastle/1659554)
+- **Révélation : l'homme à l'origine du rassemblement au centre du terrain de Chelsea après que l'arbitre de Premier League Paul Tierney a été impliqué dans une « idée originale » d'une légende du rugby à XIII**: [Link](https://www.goal.com/fr/listes/revelation-l-homme-a-l-origine-du-rassemblement-au-centre-du-terrain-de-chelsea-apres-que-l-arbitre-de-premier-league-paul-tierney-a-ete-implique-dans-une-idee-originale-d-une-legende-du-rugby-a-xiii/bltc6dfee64f3715d8f)
+
+
+### barca (N/A, Sun, 15 Mar 2026 09:20:00 -0700)
+
+- **Barcelona vs Sevilla: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c204j74k426t)
+- **Dani Olmo scores goal for Barcelona**: [Link](https://www.espn.com/video/clip?id=48214696)
+- **Barcelona vs. Sevilla: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/barcelona-vs-sevilla-preview-predictions-lineups-3-15-26)
+
+
 ### le havre – lyon (N/A, Sun, 15 Mar 2026 09:10:00 -0700)
 
 - **OL : le groupe toujours décimé contre Le Havre**: [Link](https://www.footmercato.net/a6078039303767355228-ol-le-groupe-toujours-decime-contre-metz)
