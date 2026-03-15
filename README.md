@@ -1,3 +1,10 @@
+### prix gasoil maroc (N/A, Sun, 15 Mar 2026 11:10:00 -0700)
+
+- **Hydrocarbures. Pourquoi le Maroc n’atteint pas le stock stratégique minimal**: [Link](https://medias24.com/2026/03/14/hydrocarbures-pourquoi-le-maroc-natteint-pas-le-stock-strategique-minimal-1643353/)
+- **Forte hausse des prix des carburants au Maroc à partir du 16 mars**: [Link](https://lematin.ma/economie/forte-hausse-des-prix-des-carburants-au-maroc-a-partir-du-16-mars/335069)
+- **Conflit au Moyen-Orient : « Le Maroc a une carte historique à jouer »**: [Link](https://maroc-diplomatique.net/conflit-au-moyen-orient-le-maroc-a-une-carte-historique-a-jouer/)
+
+
 ### ريال بتيس ضد سلتا فيغو (N/A, Sun, 15 Mar 2026 10:40:00 -0700)
 
 - **بيليغريني يؤكد غياب دييغو يورينتي عن مواجهة سيلتا فيغو للإصابة**: [Link](https://m.elbotola.com/article/2026-03-14-13-00-658.html)
