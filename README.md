@@ -1,3 +1,10 @@
+### jürgen habermas (N/A, Sat, 14 Mar 2026 21:50:00 -0700)
+
+- **Jürgen Habermas Dies at 96; One of Postwar Germany’s Most Influential Thinkers**: [Link](https://www.nytimes.com/2026/03/14/books/jurgen-habermas-dead.html)
+- **German philosopher and social critic Jürgen Habermas dies at 96**: [Link](https://www.bbc.com/news/articles/crk8yxd2g0no)
+- **Acclaimed 20th century philosopher Jürgen Habermas dies at 96**: [Link](https://www.npr.org/2026/03/14/nx-s1-5748043/jurgen-habermas-obituary-dead-96-german-philosopher)
+
+
 ### دعاء ليلة القدر (N/A, Sat, 14 Mar 2026 21:20:00 -0700)
 
 - **دعاء يوم 25 رمضان 2026: اللهم أصلح قلوبنا وبارك لنا في أعمارنا وأعمالنا**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/15/2957596/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%8A%D9%88%D9%85-25-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D8%A7%D9%84%D9%84%D9%87%D9%85-%D8%A3%D8%B5%D9%84%D8%AD-%D9%82%D9%84%D9%88%D8%A8%D9%86%D8%A7-%D9%88%D8%A8%D8%A7%D8%B1%D9%83-%D9%84%D9%86%D8%A7-%D9%81%D9%8A-%D8%A3%D8%B9%D9%85%D8%A7%D8%B1%D9%86%D8%A7-%D9%88%D8%A3%D8%B9%D9%85%D8%A7%D9%84%D9%86%D8%A7)
