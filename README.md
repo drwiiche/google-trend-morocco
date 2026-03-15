@@ -1,3 +1,10 @@
+### لا ليغا (N/A, Sun, 15 Mar 2026 09:10:00 -0700)
+
+- **«لا ليغا»: مايوركا يبتعد عن الخطر بثنائية في إسبانيول**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5251572-%D9%84%D8%A7-%D9%84%D9%8A%D8%BA%D8%A7-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%8A%D8%A8%D8%AA%D8%B9%D8%AF-%D8%B9%D9%86-%D8%A7%D9%84%D8%AE%D8%B7%D8%B1-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84)
+- **الهلالي يفقد نقطة في الوقت القاتل**: [Link](https://www.almountakhab.com/node/13223568)
+- **الدوري الإسباني: شارل بيكل، بطل وشرير في مباراة واحدة**: [Link](https://foot-africa.com/ar/news/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B4%D8%A7%D8%B1%D9%84-%D8%A8%D9%8A%D9%83%D9%84-%D8%A8%D8%B7%D9%84-%D9%88%D8%B4%D8%B1%D9%8A%D8%B1-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-1125938/)
+
+
 ### fcb (N/A, Sun, 15 Mar 2026 09:30:00 -0700)
 
 - **LIVE TEXT | FC Barcelona Presidential Elections 2026**: [Link](https://www.fcbarcelona.com/en/club/news/4465897/live-text-fc-barcelona-presidential-elections-2026)
