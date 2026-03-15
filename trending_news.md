@@ -1,3 +1,10 @@
+### alcaraz (N/A, Sat, 14 Mar 2026 15:50:00 -0700)
+
+- **Alcaraz pierde su imbatibilidad ante Medvedev en las semifinales de Indian Wells**: [Link](https://www.marca.com/tenis/indian-wells/2026/03/15/alcaraz-pierde-imbatibilidad-medvedev-semifinales-indian-wells.html)
+- **¿A qué hora es la final de Indian Wells entre Sinner y Medvedev?**: [Link](https://www.atptour.com/es/news/indian-wells-2026-final-schedule)
+- **Alcaraz-Medvedev: Daniil dinamita la racha 3-6 y 6-7(3)**: [Link](https://www.eurosport.es/tenis/carlos-alcaraz-daniil-medvedev-semifinales-resumen-resultado-mejores-puntos-highlights-hoy_vid60063367/video.shtml)
+
+
 ### f1 (N/A, Sun, 15 Mar 2026 00:10:00 -0700)
 
 - **Antonelli becomes F1's youngest ever GP polesitter in China**: [Link](https://www.formula1.com/en/latest/article/antonelli-beats-russell-to-become-f1s-youngest-ever-grand-prix-polesitter-in.54Dx0kX9QiRCnSgIsxR71t)
