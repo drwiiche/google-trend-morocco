@@ -1,3 +1,24 @@
+### bein sport (N/A, Sun, 15 Mar 2026 15:10:00 -0700)
+
+- **Al Ahly SC vs. Esperance de Tunisia: Where to Watch, TV Channels, Head to Head!**: [Link](https://foot-africa.com/en/news/al-ahly-sc-vs-esperance-de-tunisia-where-to-watch-tv-channels-head-to-head-1126460/)
+- **Espérance Sportive de Tunis set probable lineup for CAF Champions League clash with Al Ahly SC**: [Link](https://africasoccer.com/esperance-probable-lineup-vs-al-ahly-caf-champions-league-quarterfinal/)
+- **Can Esperance break the Al Ahly curse? Where to Watch Esperance Tunis vs Al Ahly**: [Link](https://www.sportsdunia.com/football-news/esperance-tunis-vs-al-ahly-live-stream-info-caf-champions-league-15th-march-2026)
+
+
+### sinner (N/A, Sun, 15 Mar 2026 15:00:00 -0700)
+
+- **Indian Wells: Jannik Sinner to face Daniil Medvedev in maiden California final**: [Link](https://www.bbc.com/sport/tennis/articles/cqlgn0vz4y1o)
+- **ATP Indian Wells: Both Finalists Undefeated in Sets, a Rare Feat**: [Link](https://en.tennistemple.com/actu/atp-indian-wells-both-finalists-undefeat/P82t)
+- **Carlos Alcaraz has a major opportunity on the horizon despite exiting Indian Wells**: [Link](https://tennishead.net/carlos-alcaraz-has-a-major-opportunity-on-the-horizon-despite-exiting-indian-wells/)
+
+
+### ronaldinho (N/A, Sun, 15 Mar 2026 14:00:00 -0700)
+
+- **Netflix Scores A Hat-Trick Of Brazil Soccer Docs Ahead Of The World Cup With Ronaldinho Headlining**: [Link](https://deadline.com/2026/03/ronaldinho-brazil-soccer-football-docs-netflix-world-cup-1236751106/)
+- **LIST: All the soccer documentaries/films to watch before 2026 World Cup**: [Link](https://www.wfaa.com/article/sports/soccer/world-cup/world-cup-documentary-netflix-fox-roku/287-b1f32fba-7a86-4b17-b63e-4f5c46c95de0)
+- **Ronaldinho, it’s official**: [Link](https://frenchfootballweekly.com/2026/03/15/ronaldinho-its-official/)
+
+
 ### jannik sinner (N/A, Sun, 15 Mar 2026 14:40:00 -0700)
 
 - **Assist di Alcaraz, e Sinner accorcia nel ranking: ecco quando può tornare numero 1**: [Link](https://www.gazzetta.it/Tennis/ATP/15-03-2026/sinner-alcaraz-ranking-atp.shtml)
