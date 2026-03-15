@@ -1,3 +1,10 @@
+### as (N/A, Sun, 15 Mar 2026 01:40:00 -0700)
+
+- **What to Know About Kharg Island, Iran’s Key Oil Hub**: [Link](https://www.nytimes.com/2026/03/14/world/middleeast/kharg-island-iran-oil-us-trump.html)
+- **Trump Warns of More Strikes on Iran's Kharg Island, Pressures Allies to Secure Oil Chokepoint**: [Link](https://www.usnews.com/news/world/articles/2026-03-15/trump-warns-of-more-strikes-on-irans-kharg-island-pressures-allies-to-secure-oil-chokepoint)
+- **Live updates: Over 100 children in Lebanon killed by Israeli strikes as Iran war intensifies**: [Link](https://apnews.com/live/iran-war-israel-trump-03-14-2026)
+
+
 ### alcaraz (N/A, Sat, 14 Mar 2026 15:50:00 -0700)
 
 - **Alcaraz pierde su imbatibilidad ante Medvedev en las semifinales de Indian Wells**: [Link](https://www.marca.com/tenis/indian-wells/2026/03/15/alcaraz-pierde-imbatibilidad-medvedev-semifinales-indian-wells.html)
