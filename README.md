@@ -1,3 +1,10 @@
+### marwan rahiki (N/A, Sat, 14 Mar 2026 18:20:00 -0700)
+
+- **Harry Hardwick | Onwards And Upwards**: [Link](https://www.ufc.com/news/harry-hardwick-onwards-upwards-ufc-vegas-114)
+- **UFC Vegas 114: Marwan Rahiki post fight interview**: [Link](https://sports.yahoo.com/videos/ufc-vegas-114-marwan-rahiki-024601351.html)
+- **UFC Fight Night 269 video: Broken jaw halts Rahiki vs. Hardwick**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/03/14/ufc-vegas-114-video-broken-jaw-halts-marwan-rahiki-vs-harry-hardwick/89162686007/)
+
+
 ### berkane vs al hilal (N/A, Sat, 14 Mar 2026 17:40:00 -0700)
 
 - **Berkane star Haddadi: “We will face Al Hilal with confidence and ambition”**: [Link](https://www.cafonline.com/caf-champions-league/news/berkane-star-haddadi-we-will-face-al-hilal-with-confidence-and-ambition/)
