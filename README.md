@@ -1,3 +1,10 @@
+### wac vs ocs (N/A, Sun, 15 Mar 2026 11:40:00 -0700)
+
+- **Wydad defender Abou El Fath vows strong response for high-stakes Moroccan derby in TotalEnergies CAF Confederation Cup**: [Link](https://www.cafonline.com/caf-confederation-cup/news/wydad-defender-abou-el-fath-vows-strong-response-for-high-stakes-moroccan-derby-in-totalenergies-caf-confederation-cup/)
+- **Benhachem: "Ziyech and Amrabat's Absence Had a Significant Impact, We Tried to Find Other Solutions Awaiting Their Return"**: [Link](https://m.elbotola.com/en/article/2026-03-14-22-12-216.html)
+- **Confederation Cup: date, time, channels, history and probable lineups for Safi vs Wydad**: [Link](https://foot-africa.com/en/news/confederation-cup-date-time-channels-history-and-probable-lineups-for-safi-vs-wydad-1124342/)
+
+
 ### real sociedad – osasuna (N/A, Sun, 15 Mar 2026 12:20:00 -0700)
 
 - **Elogios de Matarazzo para Budimir**: [Link](https://www.noticiasdenavarra.com/osasuna/2026/03/14/elogios-matarazzo-budimir-10821199.html)
