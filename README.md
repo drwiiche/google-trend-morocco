@@ -1,3 +1,31 @@
+### barcelone – séville (N/A, Sun, 15 Mar 2026 07:30:00 -0700)
+
+- **DIRECT. FC Barcelone-Séville FC (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-seville-fc-live/676984)
+- **Séville : Se venger pour mieux régner**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4468398/fc-barcelone--seville-se-venger-pour-mieux-regner)
+- **Almeida convoque 25 joueurs pour affronter Barcelone, quatre retours majeurs à Séville**: [Link](https://m.elbotola.com/fr/article/2026-03-14-15-00-914.html)
+
+
+### برشلونة ضد إشبيلية (N/A, Sun, 15 Mar 2026 07:30:00 -0700)
+
+- **التشكيل المتوقع لبرشلونة.. رافينيا بديلًا أمام إشبيلية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9--%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D8%AF%D9%8A%D9%84%D9%8B%D8%A7-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9/blt59584a53657b2f4a)
+- **برشلونة يواجه إشبيلية وعينه على انتخابات الرئاسة**: [Link](https://www.aljazeera.net/sport/2026/3/14/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA)
+- **برشلونة يعلن عودة جافي للمشاركة في المباريات بعد غياب دام ستة أشهر ونصف**: [Link](https://m.elbotola.com/article/2026-03-14-12-00-721.html)
+
+
+### barcelona vs sevilla (N/A, Sun, 15 Mar 2026 07:30:00 -0700)
+
+- **Barcelona - Sevilla hoy, en directo: LaLiga EA Sports, última hora en el Spotify Camp Nou, en vivo**: [Link](https://as.com/futbol/primera/barcelona-sevilla-hoy-en-directo-laliga-ea-sports-ultima-hora-en-el-spotify-camp-nou-en-vivo-f202603-d/)
+- **FC Barcelona vs Sevilla: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/fc-barcelona-vs-sevilla-previa-predicciones-y-alineaciones-15-03-26)
+- **El Barcelona por otro golpe de autoridad en LaLiga**: [Link](https://www.latribuna.hn/2026/03/15/el-barcelona-por-otro-golpe-de-autoridad-en-laliga/)
+
+
+### nottm forest – fulham (N/A, Sun, 15 Mar 2026 07:00:00 -0700)
+
+- **Nottingham Forest boss Vitor Pereira delivers fresh Dan Ndoye update ahead of Fulham clash**: [Link](https://www.nottinghamforest.news/2026/03/15/nottingham-forest-boss-vitor-pereira-delivers-fresh-dan-ndoye-update-ahead-of-fulham-clash/)
+- **Nottm Forest Vs Fulham: Six-match Slump and a Crucial Gameweek 30 Test**: [Link](https://www.el-balad.com/16881653)
+- **Nottingham Forest vs Fulham predictions, team news, betting tips, odds and Bet Builder**: [Link](https://www.racingpost.com/sport/football-tips/premier-league/nottingham-forest-vs-fulham-betting-tips-team-news-predictions-bet-builder-aaDmJ2H5NCpM/)
+
+
 ### strasbourg – paris fc (N/A, Sun, 15 Mar 2026 06:40:00 -0700)
 
 - **Strasbourg, là où tout a commencé pour le coach Antoine Kombouaré : « C'est un club à part avec Nantes et le PSG »**: [Link](https://www.lequipe.fr/Football/Article/Strasbourg-la-ou-tout-a-commence-pour-le-coach-antoine-kombouare-c-est-un-club-a-part-avec-nantes-et-le-psg/1659578)
