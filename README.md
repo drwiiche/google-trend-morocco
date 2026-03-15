@@ -1,3 +1,17 @@
+### election municipale france (N/A, Sun, 15 Mar 2026 12:50:00 -0700)
+
+- **Résultats du 1er tour des municipales 2026 : découvrez les scores des candidats commune par commune en France**: [Link](https://www.franceinfo.fr/elections/carte-resultats-du-1er-tour-des-municipales-2026-decouvrez-les-scores-des-candidats-commune-par-commune-en-france_7858088.html)
+- **EN DIRECT, résultats des municipales 2026 : la plupart des bureaux de vote ont fermé à 18 heures ; la participation s’annonce historiquement faible**: [Link](https://www.lemonde.fr/politique/live/2026/03/15/en-direct-elections-municipales-2026-la-participation-a-17-heures-s-eleve-a-48-9-un-chiffre-plus-haut-qu-en-2020-mais-en-baisse-par-rapport-a-2014_6671274_823448.html)
+- **Municipales 2026 : taux de participation à 17h**: [Link](https://www.interieur.gouv.fr/municipales2026-premier-tour)
+
+
+### رمضان 2026 (N/A, Sun, 15 Mar 2026 12:10:00 -0700)
+
+- **أحمد العوضي يحتفل مع فريق ''علي كلاي بانتهاء التصوير (فيديو) | مجلة لها**: [Link](https://www.lahamag.com/article/235421-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D9%85%D8%B9-%D9%81%D8%B1%D9%8A%D9%82-%D8%B9%D9%84%D9%8A-%D9%83%D9%84%D8%A7%D9%8A-%D8%A8%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%B1-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **مسلسل على كلاى الحلقة 26.. مواعيد العرض والإعادة والقنوات الناقلة**: [Link](https://www.youm7.com/story/2026/3/15/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%B9%D9%84%D9%89-%D9%83%D9%84%D8%A7%D9%89-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-26-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%B6-%D9%88%D8%A7%D9%84%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/7340693)
+- **درة في خطر بعد انكشاف حقيقة نسب ابنها في "علي كلاي"**: [Link](https://akhbarelyom.com/news/newdetails/4790145/1/%D8%AF%D8%B1%D8%A9-%D9%81%D9%8A-%D8%AE%D8%B7%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D9%83%D8%B4%D8%A7%D9%81-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%86%D8%B3%D8%A8-%D8%A7%D8%A8%D9%86%D9%87%D8%A7-%D9%81%D9%8A)
+
+
 ### wac vs ocs (N/A, Sun, 15 Mar 2026 11:40:00 -0700)
 
 - **Wydad defender Abou El Fath vows strong response for high-stakes Moroccan derby in TotalEnergies CAF Confederation Cup**: [Link](https://www.cafonline.com/caf-confederation-cup/news/wydad-defender-abou-el-fath-vows-strong-response-for-high-stakes-moroccan-derby-in-totalenergies-caf-confederation-cup/)
