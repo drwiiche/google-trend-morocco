@@ -1,3 +1,17 @@
+### berkane vs al hilal (N/A, Sat, 14 Mar 2026 17:40:00 -0700)
+
+- **Berkane star Haddadi: “We will face Al Hilal with confidence and ambition”**: [Link](https://www.cafonline.com/caf-champions-league/news/berkane-star-haddadi-we-will-face-al-hilal-with-confidence-and-ambition/)
+- **Boukhreiss: "Our Ambition Doesn't Stop at Quarter-Finals, We Aim for Champions League Semifinals"**: [Link](https://m.elbotola.com/en/article/2026-03-13-22-15-257.html)
+- **RS Berkane vs Al Hilal Preview & Prediction | 2025-26 CAF Champions League | Quarter-Final**: [Link](https://www.thestatszone.com/rs-berkane-vs-al-hilal-preview-prediction-2025-26-caf-champions-league-quarter-final-176386)
+
+
+### دوري ابطال افريقيا (N/A, Sat, 14 Mar 2026 16:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الترجي والأهلي في دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf09b06624cad1431)
+- **بلعمري يضمن رسميته في مواجهة الترجي**: [Link](https://www.hesport.com/%D8%A8%D9%84%D8%B9%D9%85%D8%B1%D9%8A-%D9%8A%D8%B6%D9%85%D9%86-%D8%B1%D8%B3%D9%85%D9%8A%D8%AA%D9%87-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-430730.html)
+- **موعد مباراة الأهلي ضد الترجي في ربع نهائي دوري أبطال أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/3/13/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D8%AA%D9%88%D9%86%D8%B3-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%85%D8%B5%D8%B1)
+
+
 ### cgem (N/A, Sat, 14 Mar 2026 16:40:00 -0700)
 
 - **Aïd Al Fitr : la CGEM invite les entreprises privées à accorder le lundi 23 mars aux salariés**: [Link](https://medias24.com/2026/03/14/aid-al-fitr-la-cgem-invite-les-entreprises-privees-a-accorder-le-lundi-23-mars-aux-salaries-1643395/)
