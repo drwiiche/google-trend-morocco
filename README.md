@@ -1,3 +1,24 @@
+### ريال بتيس ضد سلتا فيغو (N/A, Sun, 15 Mar 2026 10:40:00 -0700)
+
+- **بيليغريني يؤكد غياب دييغو يورينتي عن مواجهة سيلتا فيغو للإصابة**: [Link](https://m.elbotola.com/article/2026-03-14-13-00-658.html)
+- **بالفيديو.. قذيفة إندريك تنقذ ليون في اليوروبا ليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%82%D8%B0%D9%8A%D9%81%D8%A9-%D8%A7%D9%95%D9%86%D8%AF%D8%B1%D9%8A%D9%83-%D8%AA%D9%86%D9%82%D8%B0-%D9%84%D9%8A%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%8A%D8%AC/blt1515c79eb363d115)
+- **موهبة أولمبيك ليون ستيف كانجو يخطف الأنظار في ظهوره الأول بالدوري الأوروبي**: [Link](https://m.elbotola.com/article/2026-03-14-11-45-35.html)
+
+
+### liverpool (N/A, Sun, 15 Mar 2026 10:10:00 -0700)
+
+- **Fans convinced Tottenham manager Igor Tudor approached wrong bald man while thinking it was Arne Slot**: [Link](https://www.thesun.co.uk/sport/38522717/fans-tottenham-liverpool-igor-tudor-bald-arne-slot/)
+- **Igor Tudor makes embarrassing error before Liverpool match as Arne Slot mix-up captured**: [Link](https://www.mirror.co.uk/sport/football/news/arne-slot-igor-tudor-liverpool-36871157)
+- **Caught on camera: Igor Tudor confuses random man with Arne Slot before kick-off**: [Link](https://tribuna.com/en/blogs/caught-on-camera-igor-tudor-confuses-random-man-with-arne-sl/)
+
+
+### betis – celta vigo (N/A, Sun, 15 Mar 2026 09:50:00 -0700)
+
+- **Alineaciones confirmadas del Betis - Celta de Vigo de la jornada 28 de LALIGA EA Sports**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260315/alineaciones-confirmadas-betis-celta-laliga-cartuja_18_018622967.html)
+- **Marcarle al Betis se le resiste a Borja Iglesias**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/marcar-betis-tarea-pendiente-borja-iglesias-20260315101002-nts.html)
+- **El Celta regresa a La Cartuja un cuarto de siglo después**: [Link](https://onefootball.com/id/berita/el-celta-regresa-a-la-cartuja-un-cuarto-de-siglo-despues-42557835)
+
+
 ### côme – roma (N/A, Sun, 15 Mar 2026 09:40:00 -0700)
 
 - **Serie A: Como-Roma in campo 0-1 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/03/15/serie-a-como-roma-in-campo-0-1-diretta_a9756de0-7e55-4ec8-828a-eaf415bc9cbc.html)
