@@ -1,3 +1,10 @@
+### eric ciotti (N/A, Mon, 16 Mar 2026 09:40:00 -0700)
+
+- **Nathalie Saint-Cricq, qui a surnommé Eric Ciotti « Benito », suspendue de Franceinfo pour une semaine**: [Link](https://www.lemonde.fr/actualite-medias/article/2026/03/16/eric-ciotti-alias-benito-la-journaliste-nathalie-saint-cricq-suspendue-de-l-antenne-de-franceinfo-une-semaine_6671381_3237.html)
+- **Nathalie Saint-Cricq suspendue après des propos « déplacés » envers Ciotti**: [Link](https://www.20minutes.fr/politique/4212056-20260316-municipales-2026-nathalie-saint-cricq-sanctionnee-propos-inappropries-deplaces-envers-eric-ciotti)
+- **Éric Ciotti comparé à Benito Mussolini : Pascal Praud prend la défense de Nathalie Saint-Cricq**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/eric-ciotti-compare-a-benito-mussolini-pascal-praud-prend-la-defense-de-nathalie-saint-cricq-20260316)
+
+
 ### argentine (N/A, Mon, 16 Mar 2026 08:50:00 -0700)
 
 - **L’Argentine déclare la guerre après le communiqué humiliant de la FIFA**: [Link](https://www.footmercato.net/a7291452755197940078-largentine-declare-la-guerre-apres-le-communique-humiliant-de-la-fifa)
