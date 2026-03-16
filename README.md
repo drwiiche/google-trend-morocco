@@ -1,3 +1,29 @@
+### دعاء ليلة القدر (N/A, Sun, 15 Mar 2026 21:10:00 -0700)
+
+
+
+
+### grok (N/A, Sun, 15 Mar 2026 20:00:00 -0700)
+
+- **Netanyahu posts video in response to Iran rumours that he is dead**: [Link](https://www.reuters.com/world/middle-east/netanyahu-posts-video-response-iran-rumours-that-he-is-dead-2026-03-15/)
+- **Iran war updates: Countries report new attacks; Iran vows to kill Netanyahu**: [Link](https://www.yahoo.com/news/articles/iran-war-updates-countries-report-125502445.html)
+- **Netanyahu's Office Debunks Reports Of His Death, Says He's "Fine": Report**: [Link](https://www.ndtv.com/world-news/netanyahu-fine-claims-of-his-death-are-fake-news-says-his-office-report-11217016)
+
+
+### sinners (N/A, Sun, 15 Mar 2026 19:50:00 -0700)
+
+- **2026 Oscar nominations full list: 'Sinners' smashes record with 16 nods as 'Wicked: For Good' is snubbed entirely**: [Link](https://www.yahoo.com/entertainment/movies/article/2026-oscar-nominations-full-list-tonight-ceremony-sinners-record-16-nominations-100000664.html)
+- **How many Oscars did 'Sinners' win?**: [Link](https://mashable.com/article/how-many-oscars-has-sinners-won)
+- **Ryan Coogler Wins Best Original Screenplay Oscar for ‘Sinners’**: [Link](https://www.indiewire.com/awards/results/2026-academy-awards-ryan-coogler-best-original-screenplay-1235183459/)
+
+
+### oscars (N/A, Sun, 15 Mar 2026 17:10:00 -0700)
+
+- **Oscars 2026 live updates: See all the winners and best moments**: [Link](https://abc7.com/live-updates/oscars-2026-live-updates-see-winners-best-moments-98th-academy-awards-hollywood/18673293/)
+- **'One Battle After Another' wins Oscar for best picture**: [Link](https://www.france24.com/en/live-news/20260316-%F0%9F%94%B4-one-battle-after-another-wins-oscar-for-best-picture)
+- **Is Everybody Happy? ‘One Battle After Another,’ ‘Sinners’ Trade Awards at Satisfying Oscars**: [Link](https://www.imdb.com/news/ni65752366/?ref_=nwc_art_perm)
+
+
 ### botola 2 (N/A, Sun, 15 Mar 2026 17:00:00 -0700)
 
 - **Botola : de la mise à jour à la mise en veille**: [Link](https://mobile.telquel.ma/2026/03/13/botola-de-la-mise-a-jour-a-la-mise-en-veille_1978682)
