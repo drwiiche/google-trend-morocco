@@ -1,3 +1,17 @@
+### argentine (N/A, Mon, 16 Mar 2026 08:50:00 -0700)
+
+- **L’Argentine déclare la guerre après le communiqué humiliant de la FIFA**: [Link](https://www.footmercato.net/a7291452755197940078-largentine-declare-la-guerre-apres-le-communique-humiliant-de-la-fifa)
+- **UEFA: annulation de la Finalissima entre l’Espagne et l’Argentine**: [Link](https://h24info.ma/sport/football/uefa-annulation-de-la-finalissima-entre-lespagne-et-largentine/)
+- **La Finalissima entre l'Espagne et l'Argentine, initialement prévue au Qatar ce mois-ci, est annulée**: [Link](https://www.lequipe.fr/Football/Actualites/La-finalissima-entre-l-espagne-et-l-argentine-initialement-prevue-au-qatar-annulee-en-raison-de-la-guerre-au-moyen-orient/1659783)
+
+
+### one battle after another (N/A, Sun, 15 Mar 2026 20:50:00 -0700)
+
+- **Oscar winners 2026: the full list**: [Link](https://www.theguardian.com/film/2026/mar/15/oscars-2026-academy-awards-winners-full-list-live)
+- **Academy Award winners list: See the Oscar nominees who took home a win**: [Link](https://www.cnn.com/2026/03/15/entertainment/award-winners-oscars-live-list)
+- **From flat jokes, to politics, to red-carpet dazzle: 5 experts unpack the 2026 Oscars**: [Link](https://theconversation.com/from-flat-jokes-to-politics-to-red-carpet-dazzle-5-experts-unpack-the-2026-oscars-278400)
+
+
 ### transfermarkt (N/A, Mon, 16 Mar 2026 06:40:00 -0700)
 
 - **Norway market values: Høgh & Hauge among Bødo/Glimt stars who shoot up in value**: [Link](https://www.transfermarkt.com/norway-market-values-hogh-amp-hauge-among-bodo-glimt-stars-who-shoot-up-in-value/view/news/476590)
