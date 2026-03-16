@@ -1,3 +1,24 @@
+### الطقس غدًا (N/A, Mon, 16 Mar 2026 14:00:00 -0700)
+
+- **هدوء ما قبل العاصفة.. بيان مهم بشأن حالة الطقس: «توخوا الحذر»**: [Link](https://www.almasryalyoum.com/news/details/4222841)
+- **طقس بارد في الصباح ودافئ خلال النهار على أغلب أنحاء مصر**: [Link](https://tourismdailynews.com/2026/03/16/%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%A8%D8%A7%D8%AD-%D9%88%D8%AF%D8%A7%D9%81%D8%A6-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%B1-%D8%B9%D9%84/)
+- **حالة الطقس غدا الأرصاد تحذر من رياح مغبرة مع احتمالية سقوط أمطار**: [Link](https://tawusal.com/26010/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%BA%D8%A8/)
+
+
+### رايو فاليكانو ضد ليفانتي (N/A, Mon, 16 Mar 2026 14:00:00 -0700)
+
+- **رايو فايكانو يواجه ليفانتي.. متابعة حية للبث المباشر في الدوري الإسباني**: [Link](https://www.dostor.org/5461603)
+- **رايو فاليكانو وليفانتي في معركة الابتعاد عن الهبوط (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/03/rayovallecano-levante-j28-laliga-pronostic.html)
+- **موعد مباراة رايو فاييكانو وليفانتي بتاريخ 2026/03/16 في الدوري الإسباني والقنوات الناقلة - الجريدة نت، الموقع الإخباري الأول في المغرب**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%88%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A-%D8%A8%D8%AA)
+
+
+### weather tomorrow (N/A, Mon, 16 Mar 2026 13:50:00 -0700)
+
+- **ALERT DAY: Snow showers and cold wind chills**: [Link](https://www.wave3.com/2026/03/16/alert-day-snow-showers-cold-wind-chills/)
+- **Wind, rain & snow: Big weather changes on the way Monday**: [Link](https://www.wpxi.com/weather/wind-rain-snow-big-weather-changes-way-monday/TZ66BU2G5VFNBOJSHFDIXKRCG4/)
+- **Winter making a comeback: Freezing temps and flurries on Monday**: [Link](https://www.wlky.com/article/winter-freezing-temps-flurries-monday-louisville/70751520)
+
+
 ### albacete – las palmas (N/A, Mon, 16 Mar 2026 13:10:00 -0700)
 
 - **¿Qué canal pasa Albacete vs Las Palmas hoy: dónde ver y EN VIVO la LaLiga 2?**: [Link](https://www.365scores.com/es/news/albacete-vs-las-palmas-donde-ver-liga/)
