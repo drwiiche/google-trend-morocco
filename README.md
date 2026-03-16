@@ -1,3 +1,10 @@
+### américain accidentel (N/A, Mon, 16 Mar 2026 15:30:00 -0700)
+
+- **Les États-Unis viennent de diviser par 5 les frais pour renoncer à leur nationalité: une victoire pour des milliers de Français piégés par l'administration fiscale américaine**: [Link](https://www.bfmtv.com/economie/international/les-etats-unis-viennent-de-diviser-par-5-les-frais-pour-renoncer-a-leur-nationalite-une-victoire-pour-des-milliers-de-francais-pieges-par-l-administration-fiscale-americaine_AV-202603150129.html)
+- **Fiscalité : renoncer à la nationalité américaine coûtera bientôt 5 fois moins cher**: [Link](https://www.challenges.fr/economie/fiscalite-renoncer-a-la-nationalite-americaine-coutera-bientot-5-fois-moins-cher_641807)
+- **Une « victoire » pour les « Américains accidentels » : les frais pour renoncer à la citoyenneté vont grandement diminuer**: [Link](https://www.leparisien.fr/international/etats-unis/une-victoire-pour-les-americains-accidentels-les-frais-pour-renoncer-a-la-citoyennete-americaine-vont-grandement-diminuer-16-03-2026-PXSXAEMLBJGO5PFWWHQYI5E6RA.php)
+
+
 ### وننسى اللي كان (N/A, Mon, 16 Mar 2026 15:50:00 -0700)
 
 - **عمرو محمود ياسين يكشف تفاصيل غير متوقعة عن مسلسله الجديد**: [Link](https://www.eremnews.com/entertainment/suulexo)
