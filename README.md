@@ -1,3 +1,22 @@
+### botola 2 (N/A, Sun, 15 Mar 2026 17:00:00 -0700)
+
+- **Botola : de la mise à jour à la mise en veille**: [Link](https://mobile.telquel.ma/2026/03/13/botola-de-la-mise-a-jour-a-la-mise-en-veille_1978682)
+- **Le Raja saisit la LNFP et refuse de jouer la phase retour de la Botola**: [Link](https://lematin.ma/sports/le-raja-saisit-la-lnfp-et-refuse-de-jouer-la-phase-retour-de-la-botola/334202)
+- **Botola D1 : Reprise du championnat le 4 avril après les MAJ des matchs en retard**: [Link](https://lopinion.ma/fr/sport/newsroom/botola-d1--reprise-du-championnat-le-4-avril-apres-les-maj-des-matchs-en-retard_a66823?articleId=d083b9de-9c86-4605-a4c3-cf668b86469d)
+
+
+### emmanuel grégoire (N/A, Sun, 15 Mar 2026 15:40:00 -0700)
+
+
+
+
+### lamia boumehdi (N/A, Sun, 15 Mar 2026 15:00:00 -0700)
+
+- **Foot : La Marocaine Lamia Boumehdi prend la tête de la sélection jordanienne**: [Link](https://www.leconomiste.com/flash-infos/foot-la-marocaine-lamia-boumehdi-prend-la-tete-de-la-selection-jordanienne/)
+- **Abdellatif Jrindou prend les commandes de la sélection jordanienne U23**: [Link](https://lematin.ma/sports/abdellatif-jrindou-prend-les-commandes-de-la-selection-jordanienne-u23/335056)
+- **La Fédération Jordanienne de Football nomme la Marocaine Lamia Boumehdi sélectionneuse de l'équipe nationale féminine et superviseure des sélections féminines**: [Link](https://m.elbotola.com/fr/article/2026-03-14-20-56-758.html)
+
+
 ### caf confederation cup (N/A, Sun, 15 Mar 2026 15:50:00 -0700)
 
 - **Lubumbashi Stadium Turns into "Water Puddles," Sparks Controversy in Maniema Union vs. USM Alger Confederation Cup Match!**: [Link](https://m.elbotola.com/en/article/2026-03-15-16-16-103.html)
