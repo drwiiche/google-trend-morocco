@@ -1,3 +1,17 @@
+### oscars 2026 meilleur acteur (N/A, Mon, 16 Mar 2026 07:00:00 -0700)
+
+- **Les 14 stars les mieux habillées du tapis rouge des Oscars 2026**: [Link](https://fr.euronews.com/culture/2026/03/16/de-michael-b-jordan-a-renate-reinsve-les-14-mieux-habilles-des-oscars-2026)
+- **Meilleur film, Sean Penn… « Une bataille après l’autre » triomphe aux Oscars**: [Link](https://www.20minutes.fr/arts-stars/cinema/oscars/4211882-20260316-oscars-2026-triomphe-bataille-apres-autre-sacre-meilleur-film)
+- **Oscars 2026 : "Une bataille après l'autre" grand gagnant devant "Sinners", le phénomène "KPop Demon Hunters", un trophée pour la France... Ce qu'il faut retenir du palmarès de la 98e cérémonie**: [Link](https://www.franceinfo.fr/culture/cinema/oscars/oscars-2026-d-une-bataille-apres-l-autre-grand-gagnant-devant-sinners-le-phenomene-kpop-demon-hunters-un-trophee-pour-la-france-ce-qu-il-faut-retenir-du-palmares-de-la-98e-ceremonie_7871873.html)
+
+
+### prix gasoil essence maroc (N/A, Mon, 16 Mar 2026 01:00:00 -0700)
+
+- **Hausse des prix du carburant au Maroc dès ce lundi 16 mars**: [Link](https://medias24.com/2026/03/15/hausse-des-prix-du-carburant-au-maroc-des-ce-lundi-16-mars-1643767/)
+- **Carburants: forte affluence dans les stations-service à Casablanca quelques heures avant la hausse des prix**: [Link](https://fr.le360.ma/economie/carburants-forte-affluence-dans-les-stations-service-a-casablanca-quelques-heures-avant-la-hausse_PEFPTETQJRBMJHJMK422DIPERM/)
+- **Détroit d’Ormuz : Pourquoi le Maroc ne manquera pas de pétrole**: [Link](https://maroc-diplomatique.net/detroit-dormuz-pourquoi-le-maroc-ne-manquera-pas-de-petrole/)
+
+
 ### eric ciotti (N/A, Mon, 16 Mar 2026 09:40:00 -0700)
 
 - **Nathalie Saint-Cricq, qui a surnommé Eric Ciotti « Benito », suspendue de Franceinfo pour une semaine**: [Link](https://www.lemonde.fr/actualite-medias/article/2026/03/16/eric-ciotti-alias-benito-la-journaliste-nathalie-saint-cricq-suspendue-de-l-antenne-de-franceinfo-une-semaine_6671381_3237.html)
