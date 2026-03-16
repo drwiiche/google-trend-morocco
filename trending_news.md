@@ -1,3 +1,17 @@
+### صلاة ليلة القدر (N/A, Mon, 16 Mar 2026 14:30:00 -0700)
+
+- **صلاة ليلة القدر كم ركعة وكيف تصلى بالتفصيل في العشر الأواخر من رمضان**: [Link](https://www.raya.ps/news/1213867.html)
+- **استعدادات شاملة في الحرم المكي لاحتفال ليلة القدر 2026**: [Link](https://tawusal.com/25402/%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA-%D8%B4%D8%A7%D9%85%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D9%85-%D8%A7%D9%84%D9%85%D9%83%D9%8A-%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7/)
+- **دعاء مؤثر يرفع في صلاة التهجد بالمسجد الحرام ليلة السابع والعشرين من رمضان**: [Link](https://pls48.net/15969/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%85%D8%A4%D8%AB%D8%B1-%D9%8A%D8%B1%D9%81%D8%B9-%D9%81%D9%8A-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D9%87%D8%AC%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%B3%D8%AC%D8%AF-%D8%A7/)
+
+
+### kpop demon hunters (N/A, Mon, 16 Mar 2026 14:10:00 -0700)
+
+- **‘Golden’ Songwriters Would Like to Thank, Well, Not the Cutoff Music**: [Link](https://www.nytimes.com/2026/03/16/movies/kpop-demon-hunters-oscars-speech.html)
+- **Inside the Real-Life Inspiration Behind 'KPop Demon Hunters’ Oscar-Winning Song ‘Golden’**: [Link](https://people.com/kpop-demon-hunters-song-golden-real-life-inspiration-11927165)
+- **HUNTR/X seals the Honmoon in real life with 'Golden' Oscar performance**: [Link](https://mashable.com/video/golden-oscars-performance-kpop-demon-hunters)
+
+
 ### laylat al qadr 2026 maroc (N/A, Mon, 16 Mar 2026 11:30:00 -0700)
 
 - **Le roi présidera ce lundi une veillée religieuse pour Laylat al Qadr**: [Link](https://mobile.telquel.ma/instant-t/2026/03/16/le-roi-presidera-ce-lundi-une-veillee-religieuse-pour-laylat-al-qadr_1979037/)
