@@ -1,3 +1,17 @@
+### brentford – wolves (N/A, Mon, 16 Mar 2026 12:30:00 -0700)
+
+- **Brentford’s Igor Thiago called up for Brazil – where does he fit in their side?**: [Link](https://hounslowherald.com/brentfords-igor-thiago-called-up-for-brazil-where-does-he-fit-in-their-s-p31249-381.htm)
+- **Brentford v Wolves confirmed team news: Keith Andrews makes two changes for Premier League fixture**: [Link](https://www.brentfordfc.com/en/news/article/first-team-brentford-v-wolves-premier-league-16-03-2026-confirmed-team-news)
+- **talkSPORT tips – Best football bets and expert advice on Monday 16 March**: [Link](https://talksport.com/football/4101206/talksport-tips-best-football-bets-monday-16-march/)
+
+
+### زكاة الفطر (N/A, Mon, 16 Mar 2026 12:30:00 -0700)
+
+- **غلاء الأسعار والواقع الاجتماعي يرفعان القيمة النقدية لزكاة الفطر بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D9%8A%D8%B1%D9%81-1715195.html)
+- **جدل المواسم.. صدقة الفطر أنموذجا!**: [Link](https://arabi21.com/story/1744808/%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B3%D9%85-%D8%B5%D8%AF%D9%82%D8%A9-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A3%D9%86%D9%85%D9%88%D8%B0%D8%AC%D8%A7)
+- **"مجلس الإمارات للإفتاء" يؤكد جواز إخراج زكاة الفطر نقداً**: [Link](https://24.ae/article/950996/-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%A5%D9%81%D8%AA%D8%A7%D8%A1-%D9%8A%D8%A4%D9%83%D8%AF-%D8%AC%D9%88%D8%A7%D8%B2-%D8%A5%D8%AE%D8%B1%D8%A7%D8%AC-%D8%B2%D9%83%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%86%D9%82%D8%AF%D8%A7%D9%8B)
+
+
 ### rayo – levante (N/A, Mon, 16 Mar 2026 12:20:00 -0700)
 
 - **Las urgencias del Levante examinan la racha vallecana**: [Link](https://as.com/futbol/primera/las-urgencias-del-levante-examinan-la-racha-vallecana-f202603-n/)
