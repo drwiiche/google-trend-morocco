@@ -1,3 +1,17 @@
+### transfermarkt (N/A, Mon, 16 Mar 2026 06:40:00 -0700)
+
+- **Norway market values: Høgh & Hauge among Bødo/Glimt stars who shoot up in value**: [Link](https://www.transfermarkt.com/norway-market-values-hogh-amp-hauge-among-bodo-glimt-stars-who-shoot-up-in-value/view/news/476590)
+- **LaLiga market values: Pedri now 2nd - Bellingham & Alexander-Arnold downgraded**: [Link](https://www.transfermarkt.com/laliga-market-values-pedri-now-2nd-bellingham-amp-alexander-arnold-downgraded/view/news/476538)
+- **LaLiga: Top 10 highest market value players**: [Link](https://dailypost.ng/2026/03/16/laliga-top-10-highest-market-value-players/)
+
+
+### sarah knafo (N/A, Mon, 16 Mar 2026 00:20:00 -0700)
+
+- **Municipales à Paris : «Je vous parle d’un accord de femme à femme», Sarah Knafo demande à Rachida Dati d'accepter sa «main tendue»**: [Link](https://www.lefigaro.fr/elections/municipales/municipales-a-paris-sarah-knafo-demande-a-rachida-dati-d-accepter-sa-main-tendue-20260316)
+- **"10 %, c’est pas mal pour des nazis, non ?" : la très longue nuit de Sarah Knafo**: [Link](https://www.marianne.net/politique/10-cest-pas-mal-pour-des-nazis-non-la-tres-longue-nuit-de-sarah-knafo)
+- **À Paris, la performance de Knafo met surtout une grosse épine dans le pied de Dati**: [Link](https://www.huffingtonpost.fr/politique/article/a-paris-la-performance-de-knafo-met-surtout-une-grosse-epine-dans-le-pied-de-dati_261515.html)
+
+
 ### jessie buckley (N/A, Mon, 16 Mar 2026 01:30:00 -0700)
 
 - **Cherry on the top: Jessie Buckley pulled off a stunning double Oscar win for herself … and Chanel**: [Link](https://www.theguardian.com/film/2026/mar/16/jessie-buckley-best-actress-oscar-hamnet-chanel-gown)
