@@ -1,3 +1,17 @@
+### abdellatif jrindou (N/A, Mon, 16 Mar 2026 03:20:00 -0700)
+
+- **Football : la Marocaine Lamia Boumehdi nommée sélectionneuse de l'équipe féminine jordanienne**: [Link](https://maroc-diplomatique.net/football-la-marocaine-lamia-boumehdi-nommee-selectionneuse-de-lequipe-feminine-jordanienne/)
+- **Abdellatif Jrindou prend les commandes de la sélection jordanienne U23**: [Link](https://lematin.ma/sports/abdellatif-jrindou-prend-les-commandes-de-la-selection-jordanienne-u23/335056)
+- **Foot : La Marocaine Lamia Boumehdi prend la tête de la sélection jordanienne**: [Link](https://www.leconomiste.com/flash-infos/foot-la-marocaine-lamia-boumehdi-prend-la-tete-de-la-selection-jordanienne/)
+
+
+### كأس الاتحاد الأفريقي (N/A, Sun, 15 Mar 2026 16:40:00 -0700)
+
+- **فيديو: الزمالك يعود بتعادل ثمين من الكونغو بالكونفيدرالية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%AB%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A8%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9/blteb58d047ea1f417e)
+- **الزمالك يقترب من التأهل لنصف نهائي كأس الكونفدرالية الأفريقية**: [Link](https://www.aljazeera.net/sport/2026/3/14/%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3)
+- **تحديد أعداد الحضور الجماهيري في مباراة الإياب بين الزمالك وأوتوهو بالكونفدرالية**: [Link](https://akhbarelyom.com/news/newdetails/4789982/1/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D8%A3%D8%B9%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%AD%D8%B6%D9%88%D8%B1-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7)
+
+
 ### michael b jordan (N/A, Mon, 16 Mar 2026 01:00:00 -0700)
 
 - **Michael B. Jordan wins best actor, Jessie Buckley wins best actress at Oscars**: [Link](https://www.trtworld.com/article/edfcb438ca47)
