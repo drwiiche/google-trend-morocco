@@ -1,3 +1,10 @@
+### laylat al qadr 2026 maroc (N/A, Mon, 16 Mar 2026 11:30:00 -0700)
+
+- **Le roi présidera ce lundi une veillée religieuse pour Laylat al Qadr**: [Link](https://mobile.telquel.ma/instant-t/2026/03/16/le-roi-presidera-ce-lundi-une-veillee-religieuse-pour-laylat-al-qadr_1979037/)
+- **Abidjan. Nuit du Destin: des milliers de fidèles en prière à la mosquée Mohammed VI**: [Link](https://afrique.le360.ma/culture/abidjan-nuit-du-destin-des-milliers-de-fideles-en-priere-a-la-mosquee-mohammed-vi_AFUD7YOEEFDIVE6XLQBOAYZIKY/)
+- **Ramadan 2026 : le Roi préside la veillée de Laylat Al-Qadr au palais de Rabat**: [Link](https://medias24.com/2026/03/16/ramadan-2026-le-roi-preside-la-veillee-de-laylat-al-qadr-au-palais-de-rabat-1644124/)
+
+
 ### الطقس غدًا (N/A, Mon, 16 Mar 2026 14:00:00 -0700)
 
 - **هدوء ما قبل العاصفة.. بيان مهم بشأن حالة الطقس: «توخوا الحذر»**: [Link](https://www.almasryalyoum.com/news/details/4222841)
