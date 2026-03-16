@@ -1,3 +1,17 @@
+### jessie buckley (N/A, Mon, 16 Mar 2026 01:30:00 -0700)
+
+- **Cherry on the top: Jessie Buckley pulled off a stunning double Oscar win for herself … and Chanel**: [Link](https://www.theguardian.com/film/2026/mar/16/jessie-buckley-best-actress-oscar-hamnet-chanel-gown)
+- **IMI marks first Oscars win for Hamnet, produced within RedBird IMI portfolio**: [Link](https://campaignme.com/imi-marks-first-oscars-win-for-hamnet-produced-within-redbird-imi-portfolio/)
+- **This year marks the 32nd anniversary of the coveted Vanity Fair bash Read more below.**: [Link](https://www.facebook.com/deadline/photos/this-year-marks-the-32nd-anniversary-of-the-coveted-vanity-fair-bash-read-more-b/1288071296526541/)
+
+
+### ادعية ليلة القدر (N/A, Sun, 15 Mar 2026 21:50:00 -0700)
+
+- **أدعية ليلة القدر 2026 مكتوبة.. أفضل الأدعية في ليلة 27 رمضان 1447هـ**: [Link](https://www.almasryalyoum.com/news/details/4222839)
+- **دعاء اليوم السادس والعشرين من شهر رمضان 2026**: [Link](https://www.sayidaty.net/%D8%A8%D9%84%D8%B3/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/1808872-%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%88%D8%A7%D9%84%D8%B9%D8%B4%D8%B1%D9%8A%D9%86-%D9%85%D9%86-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **أدعية رمضانية (24ـ 30).. «اللَّهُمَّ ارزقني العود في شهر رمضان» بصوت نور الشريف**: [Link](https://darelhilal.com/News/3196828.aspx)
+
+
 ### abdellatif jrindou (N/A, Mon, 16 Mar 2026 03:20:00 -0700)
 
 - **Football : la Marocaine Lamia Boumehdi nommée sélectionneuse de l'équipe féminine jordanienne**: [Link](https://maroc-diplomatique.net/football-la-marocaine-lamia-boumehdi-nommee-selectionneuse-de-lequipe-feminine-jordanienne/)
