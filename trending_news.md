@@ -1,3 +1,17 @@
+### michael b jordan (N/A, Mon, 16 Mar 2026 01:00:00 -0700)
+
+- **Michael B. Jordan wins best actor, Jessie Buckley wins best actress at Oscars**: [Link](https://www.trtworld.com/article/edfcb438ca47)
+- **Euphoria for ‘Sinners’ and flowing tequila: the night at the bars of the Dolby theatre**: [Link](https://english.elpais.com/culture/2026-03-16/euphoria-for-sinners-and-flowing-tequila-the-night-at-the-bars-of-the-dolby-theatre.html)
+- **Michael B Jordon Wore A Secret David Yurman Brooch To Oscars 2026, Here's How Much It Allegedly Cost**: [Link](https://www.bollywoodshaadis.com/articles/michael-b-jordon-wore-secret-david-yurman-brooch-76294)
+
+
+### أسعار المحروقات بالمغرب (N/A, Sun, 15 Mar 2026 20:30:00 -0700)
+
+- **بزيادة درهمين في الغازوال .. إشعار جديد يرفع أسعار الوقود بالمغرب**: [Link](https://www.hespress.com/%D8%A8%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AF%D8%B1%D9%87%D9%85%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%BA%D8%A7%D8%B2%D9%88%D8%A7%D9%84-%D8%A5%D8%B4%D8%B9%D8%A7%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-1716194.html)
+- **أسعار المحروقات.. "تسجيلات صوتية مهنية" تخبر أرباب النقل بـ"زيادات صاروخية"**: [Link](https://ar.telquel.ma/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84%D8%A7%D8%AA-%D8%B5%D9%88%D8%AA%D9%8A%D8%A9-%D9%85%D9%87%D9%86%D9%8A%D8%A9/)
+- **حماية المستهلك:" فوضى التزود بالوقود افتعلها بعض أرباب محطات التوزيع"**: [Link](https://2m.ma/ar/news/%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%87%D9%84%D9%83-%D9%81%D9%88%D8%B6%D9%89-%D8%A7%D9%84%D8%AA%D8%B2%D9%88%D8%AF-%D8%A8%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-%D8%A7%D9%81%D8%AA%D8%B9%D9%84%D9%87%D8%A7-%D8%A8%D8%B9%D8%B6-%D8%A3%D8%B1%D8%A8%D8%A7%D8%A8-%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%88%D8%B2%D9%8A%D8%B9-20260316)
+
+
 ### resultat municipale 2026 (N/A, Sun, 15 Mar 2026 16:50:00 -0700)
 
 
