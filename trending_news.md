@@ -1,3 +1,17 @@
+### متى عيد الفطر 2026 (N/A, Tue, 17 Mar 2026 04:40:00 -0700)
+
+- **فلكيا.. الجمعة أول أيام عيد الفطر في معظم الدول العربية**: [Link](https://www.aljazeera.net/science/2026/3/17/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A)
+- **السعودية.. المحكمة العليا تحدد موعد تحري رؤية هلال شوال**: [Link](https://arabic.cnn.com/middle-east/article/2026/03/16/ksa-supreme-court-sets-date-for-sighting-of-shawwal-crescent)
+- **معهد البحوث الفلكية: الجمعة أول أيام عيد الفطر في مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/03/16/%D9%85%D8%B9%D9%87%D8%AF-%D8%A7%D9%84%D8%A8%D8%AD%D9%88%D8%AB-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%88%D9%84-%D8%A7%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+
+
+### aid el fitr (N/A, Tue, 17 Mar 2026 00:20:00 -0700)
+
+- **L’ONCF déploie un dispositif spécial Aid Al Fitr et fin des vacances scolaires**: [Link](https://lematin.ma/societe/loncf-deploie-un-dispositif-special-aid-al-fitr-et-fin-des-vacances/335243)
+- **Aïd Al-Fitr : l’ONCF déploie un plan spécial de transport du 17 au 29 mars**: [Link](https://medias24.com/2026/03/17/aid-al-fitr-loncf-deploie-un-plan-special-de-transport-du-17-au-29-mars-1644407/)
+- **Aïd El Fitr : City to City d’inDrive mise sur le covoiturage interurbain**: [Link](https://www.leconomiste.com/flash-infos/aid-el-fitr-city-to-city-dindrive-mise-sur-le-covoiturage-interurbain/)
+
+
 ### ali larijani (N/A, Tue, 17 Mar 2026 03:20:00 -0700)
 
 - **Iran war live: Israel says Iran’s security chief Ali Larijani killed**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/17/iran-war-live-trump-scolds-allies-for-not-joining-strait-of-hormuz-mission)
