@@ -1,3 +1,24 @@
+### ادعية ليلة القدر العشر الأواخر (N/A, Mon, 16 Mar 2026 19:00:00 -0700)
+
+- **أدعية ليلة القدر 2026 مكتوبة.. أفضل الأدعية في ليلة 27 رمضان 1447هـ**: [Link](https://www.almasryalyoum.com/news/details/4222839)
+- **دعاء يوم 25 رمضان 2026: اللهم أصلح قلوبنا وبارك لنا في أعمارنا وأعمالنا**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/15/2957596/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%8A%D9%88%D9%85-25-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D8%A7%D9%84%D9%84%D9%87%D9%85-%D8%A3%D8%B5%D9%84%D8%AD-%D9%82%D9%84%D9%88%D8%A8%D9%86%D8%A7-%D9%88%D8%A8%D8%A7%D8%B1%D9%83-%D9%84%D9%86%D8%A7-%D9%81%D9%8A-%D8%A3%D8%B9%D9%85%D8%A7%D8%B1%D9%86%D8%A7-%D9%88%D8%A3%D8%B9%D9%85%D8%A7%D9%84%D9%86%D8%A7)
+- **أدعية رمضانية (24ـ 30).. «اللَّهُمَّ ارزقني العود في شهر رمضان» بصوت نور الشريف**: [Link](https://darelhilal.com/News/3196828.aspx)
+
+
+### azzedine ounahi (N/A, Mon, 16 Mar 2026 16:50:00 -0700)
+
+- **Azzedine Ounahi impressionne toute l’Espagne avec Girona !**: [Link](https://www.footmercato.net/a8127688944443761897-azzedine-ounahi-impressionne-toute-lespagne-avec-girona)
+- **Les Belges à l'étranger - Witsel et Gérone battent Bilbao et font un grand pas vers le maintien**: [Link](https://starsporttv.be/fr/content/les-belges-a-letranger-witsel-et-gerone-battent-bilbao-et-font-un-grand-pas-vers-le-maintien)
+- **DIRECT. Gérone-Athletic Bilbao (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/gerone-athletic-bilbao-live/676987)
+
+
+### مسلسل وننسى اللي كان (N/A, Mon, 16 Mar 2026 15:30:00 -0700)
+
+- **مسلسل «وننسى اللي كان» الحلقة 27.. موعد العرض والقنوات الناقلة**: [Link](https://al-ain.com/article/wansna-lli-kan-episode-27)
+- **وننسى اللي كان الحلقة 27.. عمرو محمود ياسين يشعل حماس الجمهور لنهاية جليلة وبدر**: [Link](https://www.alkhaleej.ae/2026-03-16/%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-27-%D8%B9%D9%85%D8%B1%D9%88-%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D9%8A%D8%B4%D8%B9%D9%84-%D8%AD%D9%85%D8%A7%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%84%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%AC%D9%84%D9%8A%D9%84%D8%A9-%D9%88%D8%A8%D8%AF%D8%B1-6361701)
+- **ياسمين عبد العزيز: دوري في وننسى اللي كان سهل وقريب من شخصيتي**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1831067-%D8%AF%D9%88%D8%B1-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86)
+
+
 ### américain accidentel (N/A, Mon, 16 Mar 2026 15:30:00 -0700)
 
 - **Les États-Unis viennent de diviser par 5 les frais pour renoncer à leur nationalité: une victoire pour des milliers de Français piégés par l'administration fiscale américaine**: [Link](https://www.bfmtv.com/economie/international/les-etats-unis-viennent-de-diviser-par-5-les-frais-pour-renoncer-a-leur-nationalite-une-victoire-pour-des-milliers-de-francais-pieges-par-l-administration-fiscale-americaine_AV-202603150129.html)
