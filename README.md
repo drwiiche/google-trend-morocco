@@ -1,3 +1,36 @@
+### real vs city (N/A, Tue, 17 Mar 2026 12:00:00 -0700)
+
+- **Pep: Let's try to seize this incredible opportunity**: [Link](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-real-madrid-ucl-round-of-16-second-leg-preview-63909261)
+- **The stat raising concern for Guardiola ahead of the Real Madrid clash**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/the-stat-raising-concern-for-guardiola-ahead-of-the-real-madrid-clash-2026-03-17)
+- **The president, with the team in Manchester**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/el-presidente-con-el-equipo-en-manchester-17-03-2026)
+
+
+### اذان المغرب اليوم (N/A, Tue, 17 Mar 2026 11:40:00 -0700)
+
+- **إمساكية رمضان 2026 في مصر: نصائح الأزهر للصيام ومواقيت الصلاة**: [Link](https://mwlana.com/education/%D8%A5%D9%85%D8%B3%D8%A7%D9%83%D9%8A%D8%A9-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2026-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%86%D8%B5%D8%A7%D8%A6%D8%AD-%D8%A7%D9%84%D8%A3%D8%B2%D9%87%D8%B1-%D9%84%D9%84%D8%B5/)
+
+
+### sporting (N/A, Tue, 17 Mar 2026 11:30:00 -0700)
+
+- **O Sporting foi pago e a música foi tocada. Perseguindo a Remontada com o Norwegian Stunt Club**: [Link](https://www.segundabase.com.br/enciclopedia/o-sporting-foi-pago-e-a-musica-foi-tocada-perseguindo-a-remontada-com-o-norwegian-stunt-club/178193/)
+- **São 2500 os adeptos do Bodo em Alvalade**: [Link](https://www.abola.pt/video/sao-2500-os-adeptos-do-bodo-em-alvalade-2026031716221192019)
+- **Rui Borges explica aposta em Quaresma e antecipa chave para o jogo: «Temos de ter equilíbrio emocional»**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/sporting/detalhe/rui-borges-explica-aposta-em-quaresma-e-antecipa-chave-para-o-jogo-temos-de-ter-equilibrio-emocional)
+
+
+### سبورتينغ ضد بودو/ غليمت (N/A, Tue, 17 Mar 2026 11:30:00 -0700)
+
+- **سحق مورينيو ودمر جوارديولا وسيميوني.. هل يقتنص المدرب المعجزة لقب دوري الأبطال؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B3%D8%AD%D9%82-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%88%D8%AF%D9%85%D8%B1-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%88%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A--%D9%87%D9%84-%D9%8A%D9%82%D8%AA%D9%86%D8%B5-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%B9%D8%AC%D8%B2%D8%A9-%D9%84%D9%82%D8%A8-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/bltf75a779c5d4ccea7)
+- **بودو/غليمت: كيتيل كنوتسن قبل مواجهة سبورتينغ لشبونة «نحن لا نخاف من أحد»**: [Link](https://foot-africa.com/ar/news/%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA-%D9%83%D9%8A%D8%AA%D9%8A%D9%84-%D9%83%D9%86%D9%88%D8%AA%D8%B3%D9%86-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9-%D9%86%D8%AD%D9%86-%D9%84%D8%A7-%D9%86%D8%AE%D8%A7%D9%81-%D9%85%D9%86-%D8%A3%D8%AD%D8%AF-1128710/)
+- **مدرب سبورتنغ: قلب النتيجة أمام بودو غليمت ممكن**: [Link](https://www.elsport.com/news/show/815880/%D9%85%D8%AF%D8%B1%D8%A8-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%86%D8%BA-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA-%D9%85%D9%85%D9%83%D9%86)
+
+
+### l aid el fitr (N/A, Tue, 17 Mar 2026 11:10:00 -0700)
+
+- **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
+- **Aïd al-Fitr 2026 : quelle date pour la fin du Ramadan en France ?**: [Link](https://www.charentelibre.fr/societe/aid-al-fitr-2026-quelle-date-pour-la-fin-du-ramadan-en-france-28283041.php)
+- **Les autorités saoudiennes appellent à l’observation de la nouvelle lune le 18 mars pour définir l’Aïd al-Fitr**: [Link](https://www.mixvale.com.br/2026/03/16/les-autorites-saoudiennes-appellent-a-lobservation-de-la-nouvelle-lune-le-18-mars-pour-definir-laid-al-fitr-fr/)
+
+
 ### fenerbahçe – gaziantep (N/A, Tue, 17 Mar 2026 10:50:00 -0700)
 
 - **Fenerbahçe'de Tedesco'dan Gaziantep FK maçı öncesi 4 değişiklik sürprizi**: [Link](https://www.egealternatif.com/haber/fenerbahce-de-tedesco-dan-gaziantep-fk-maci-oncesi-4-degisiklik-surprizi_65664/)
