@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Tue, 17 Mar 2026 15:50:00 -0700)
+
+- **Enrique: No esperábamos esta diferencia, y sabemos bien a dónde queremos llegar**: [Link](https://www.ysscores.com/es/news/13929667/Enrique:-No-esper%C3%A1bamos-esta-diferencia,-y-sabemos-bien-a-d%C3%B3nde-queremos-llegar)
+- **¡8-2 EN EL GLOBAL! El PSG de Pacho eliminó al Chelsea de Moisés Caicedo en Champions**: [Link](https://kchcomunicacion.com/2026/03/17/8-2-en-el-global-el-psg-de-pacho-elimino-al-chelsea-de-moises-caicedo-en-champions/)
+- **VIDEO: Todos los goles de Chelsea vs PSG en Octavos de Champions League**: [Link](https://www.beinsports.com/es-us/football/uefa-champions-league/articles/live-blog-chelsea-vs-psg-en-vivo-goles-y-resultado-al-momento-de-la-champions-2026-03-17-video_todos_los_goles_de_chelsea_vs_psg_en_octavo)
+
+
 ### brahim diaz (N/A, Tue, 17 Mar 2026 15:40:00 -0700)
 
 - **Morocco hoping to repeat Brahim Diaz trick with Real Madrid breakout star**: [Link](https://www.football-espana.net/2026/03/16/morocco-brahim-diaz-trick-real-madrid-star)
