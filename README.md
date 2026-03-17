@@ -1,3 +1,17 @@
+### coupe du monde de football 2030 (N/A, Tue, 17 Mar 2026 07:40:00 -0700)
+
+- **L’Espagne tremble de peur pour la Coupe du Monde 2030**: [Link](https://www.footmercato.net/a839548379082800673-lespagne-tremble-de-peur-pour-la-coupe-du-monde-2030)
+- **Espagne : La Corogne retire sa candidature à l’accueil de matchs du Mondial 2030**: [Link](https://mobile.telquel.ma/instant-t/2026/03/16/espagne-la-corogne-retire-sa-candidature-a-laccueil-de-matchs-du-mondial-2030_1979026/)
+- **Mondial 2030 : La Corogne se retire et perd l’accueil de plusieurs matchs**: [Link](https://fr.hespress.com/466018-mondial-2030-la-corogne-se-retire-et-perd-laccueil-de-plusieurs-matchs.html)
+
+
+### ice (N/A, Tue, 17 Mar 2026 07:30:00 -0700)
+
+- **Afghan man who served alongside US forces dies after less than a day in ICE custody, family and advocates say**: [Link](https://www.cnn.com/2026/03/16/politics/afghan-man-ice-custody-dies)
+- **Outrage as Afghan asylum seeker who fought alongside US dies in ICE custody**: [Link](https://www.aljazeera.com/news/2026/3/16/outrage-as-afghan-asylum-seeker-who-fought-alongside-us-dies-in-ice-custody)
+- **Afghan man with pending asylum case dies in ICE custody in Dallas**: [Link](https://www.texastribune.org/2026/03/15/afghan-man-dies-ice-custody-dallas/)
+
+
 ### dgi maroc (N/A, Tue, 17 Mar 2026 04:20:00 -0700)
 
 - **Délais de paiement : déclaration obligatoire avant le 1er avril 2026**: [Link](https://medias24.com/2026/03/14/delais-de-paiement-declaration-obligatoire-avant-le-1er-avril-2026-1643453/)
