@@ -1,3 +1,17 @@
+### ali larijani (N/A, Tue, 17 Mar 2026 03:20:00 -0700)
+
+- **Iran war live: Israel says Iran’s security chief Ali Larijani killed**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/17/iran-war-live-trump-scolds-allies-for-not-joining-strait-of-hormuz-mission)
+- **Live updates: Iran war; US embassy in Baghdad targeted again as Iran keeps up oil field strikes**: [Link](https://www.cnn.com/world/live-news/iran-war-us-israel-trump-03-17-26)
+- **IDF Announces Elimination of Basij Unit Commander Gholamreza Soleimani**: [Link](https://www.kurdistan24.net/en/story/901226/idf-announces-elimination-of-basij-unit-commander-gholamreza-soleimani)
+
+
+### علي لاريجاني (N/A, Tue, 17 Mar 2026 01:30:00 -0700)
+
+- **الحرب على إيران مباشر.. إسرائيل تعلن اغتيال قائد الباسيج وأنباء عن مقتل لاريجاني**: [Link](https://www.aljazeera.net/news/liveblog/2026/3/16/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D9%83%D8%AB%D9%81)
+- **استهداف علي لاريجاني.. إسرائيل تتحقق من مصيره**: [Link](https://www.skynewsarabia.com/world/1859084-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D8%B9%D9%84%D9%8A-%D9%84%D8%A7%D8%B1%D9%8A%D8%AC%D8%A7%D9%86%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%AA%D8%AD%D9%82%D9%82-%D9%85%D8%B5%D9%8A%D8%B1%D9%87)
+- **الاحتلال يعلن اغتيال مسؤولين في المخابرات الإيرانية خلال غارة بطهران**: [Link](https://arabi21.com/story/1745124/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%A8%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%A8%D8%B7%D9%87%D8%B1%D8%A7%D9%86)
+
+
 ### aid el fitr 2026 maroc (N/A, Tue, 17 Mar 2026 01:40:00 -0700)
 
 - **Ramadan 2026 : quelle date est prévue pour la fin du Ramadan et l’Aïd el-Fitr en France ?**: [Link](https://www.larepubliquedespyrenees.fr/societe/religion/ramadan-2026-quelle-date-est-prevue-pour-la-fin-du-ramadan-et-l-aid-el-fitr-en-france-28308516.php)
