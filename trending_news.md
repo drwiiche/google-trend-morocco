@@ -1,3 +1,10 @@
+### dgi maroc (N/A, Tue, 17 Mar 2026 04:20:00 -0700)
+
+- **Délais de paiement : déclaration obligatoire avant le 1er avril 2026**: [Link](https://medias24.com/2026/03/14/delais-de-paiement-declaration-obligatoire-avant-le-1er-avril-2026-1643453/)
+- **Impôts : le compte à rebours est lancé, vous avez jusqu’au 1er avril pour déclarer !**: [Link](https://mobile.telquel.ma/instant-t/2026/03/16/impots-le-compte-a-rebours-est-lance-vous-avez-jusquau-1er-avril-pour-declarer_1979016/)
+- **1er avril 2026 : Fin du délai de déclaration pour certaines catégories de contribuables**: [Link](https://fr.hibapress.com/news-240328.html)
+
+
 ### متى عيد الفطر 2026 (N/A, Tue, 17 Mar 2026 04:40:00 -0700)
 
 - **فلكيا.. الجمعة أول أيام عيد الفطر في معظم الدول العربية**: [Link](https://www.aljazeera.net/science/2026/3/17/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A)
