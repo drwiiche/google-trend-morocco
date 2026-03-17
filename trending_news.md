@@ -1,3 +1,10 @@
+### aid el fitr 2026 maroc (N/A, Tue, 17 Mar 2026 01:40:00 -0700)
+
+- **Ramadan 2026 : quelle date est prévue pour la fin du Ramadan et l’Aïd el-Fitr en France ?**: [Link](https://www.larepubliquedespyrenees.fr/societe/religion/ramadan-2026-quelle-date-est-prevue-pour-la-fin-du-ramadan-et-l-aid-el-fitr-en-france-28308516.php)
+- **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
+- **Korité 2026 : Les prévisions de l’expert Serigne Mor Asta Touré sur la date**: [Link](https://sanslimitesn.com/korite-2026-les-previsions-de-lexpert-serigne-mor-asta-toure-sur-la-date/)
+
+
 ### الفجر (N/A, Mon, 16 Mar 2026 22:10:00 -0700)
 
 - **موعد أذان المغرب في أسوان اليوم الثلاثاء 17-3-2026**: [Link](https://www.elwatannews.com/news/details/8247639)
