@@ -1,3 +1,59 @@
+### real madrid (N/A, Tue, 17 Mar 2026 12:30:00 -0700)
+
+- **La pareja de Fede Valverde revela lo que hizo con él la noche antes del partido contra el City: "Vamos a..."**: [Link](https://www.sport.es/es/noticias/real-madrid/pareja-fede-valverde-revela-hizo-128059185)
+- **Manchester City vs. Real Madrid, en vivo**: [Link](https://es-us.noticias.yahoo.com/deportes/manchester-city-vs-real-madrid-191644460.html)
+- **¿Qué alineación eligió Guardiola para el partido de vuelta contra el Arbeloa?**: [Link](https://zamin.uz/es/deportes/194632-que-alineacion-eligio-guardiola-para-el-partido-de-vuelta-contra-el-arbeloa.html)
+
+
+### آرسنال ضد ليفركوزن (N/A, Tue, 17 Mar 2026 12:30:00 -0700)
+
+- **أرتيتا يعلن غياب ثنائي آرسنال أمام ليفركوزن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86/bltb4df74fc22b9fcc1)
+- **أرسنال يستضيف باير ليفركوزن في إياب ثمن نهائي دوري أبطال أوروبا بعد التعادل ذهابا بهدف لمثله**: [Link](https://m.elbotola.com/article/2026-03-16-18-45-373.html)
+- **مدرب ليفركوزن: واثقون من الفوز على أرسنال**: [Link](https://hihi2.com/2026/03/16/p3691409.html)
+
+
+### تشيلسي ضد بي اس جي (N/A, Tue, 17 Mar 2026 12:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة تشيلسي وباريس سان جيرمان في إياب دور الـ16 من دوري أبطال أوروبا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%95%D9%8A%D8%A7%D8%A8-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8016-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt6e10fcae99f1a4dc)
+- **دوري أبطال أوروبا: إنريكي يرى أن "مباراة الإياب دائما مختلفة" قبل لقاء تشلسي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260316-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B1%D9%89-%D8%A3%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A5%D9%8A%D8%A7%D8%A8-%D8%AF%D8%A7%D8%A6%D9%85%D8%A7-%D9%85%D8%AE%D8%AA%D9%84%D9%81%D8%A9-%D9%82%D8%A8%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A)
+- **ريس جيمس يواجه إصابة عاشرة في العضلة الخلفية بعد أيام من تجديد عقده مع تشيلسي**: [Link](https://m.elbotola.com/article/2026-03-16-15-30-254.html)
+
+
+### chelsea vs psg (N/A, Tue, 17 Mar 2026 12:20:00 -0700)
+
+- **Liam Rosenior told Chelsea fans what they really didn't need to hear ahead of PSG**: [Link](https://theprideoflondon.com/liam-rosenior-told-chelsea-fans-what-really-didn-t-need-hear-ahead-psg)
+- **UCL Preview: PSG look to build on Parc win**: [Link](https://ligue1.com/en/articles/l1_article_4595-ucl-preview-psg-look-to-build-on-parc-win)
+- **@$[Here's Way To Watch]" Chelsea vs PSG 𝐋𝐈𝐕𝐄 Ｓｔｒｅａｍｓ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ 18 March 2026 Free Free HDQ0679569**: [Link](https://www.ica.gov.co/replicadores/uefa/video-chelsea-vs-psg-tv217106583.html)
+
+
+### مان سيتي ضد الريال (N/A, Tue, 17 Mar 2026 12:10:00 -0700)
+
+- **أربيلوا يعلن تشكيل ريال مدريد ضد سيتي.. ما موقف مبابي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B3%D9%8A%D8%AA%D9%8A--%D9%85%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A/blta384224b85e8bd30)
+- **مباشر مباراة مانشستر سيتي ضد ريال مدريد بدوري أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/17/manchester-city-vs-real-madrid-live-2026)
+- **توب سبور - مواجهات أوروبية ساخنة في إياب الدور ثمن النهائي لدوري الأبطال**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D8%AA%D9%88%D8%A8-%D8%B3%D8%A8%D9%88%D8%B1/20260316-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%B3%D8%A7%D8%AE%D9%86%D8%A9-%D9%81%D9%8A-%D8%A5%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%AB%D9%85%D9%86-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+
+
+### chelsea – paris-sg (N/A, Tue, 17 Mar 2026 12:10:00 -0700)
+
+- **«Stamford Bridge peut s'enflammer lors des grandes soirées européennes» : deux légendes de Chelsea croient à la qualification face au PSG**: [Link](https://www.lequipe.fr/Football/Article/-stamford-bridge-peut-s-enflammer-lors-des-grandes-soirees-europeennes-deux-legendes-de-chelsea-croient-a-la-qualification-face-au-psg/1660193)
+- **Chelsea : un troisième joueur forfait face au PSG**: [Link](https://www.footmercato.net/a8414832017806061129-chelsea-un-troisieme-joueur-forfait-face-au-psg)
+- **Chelsea-PSG : attention, le match ne sera pas diffusé sur la chaîne habituelle de Canal+ ce mardi**: [Link](https://www.lesnumeriques.com/evenement-sportif/chelsea-psg-attention-le-match-ne-sera-pas-diffuse-sur-la-chaine-habituelle-de-canal-ce-mardi-n253070.html)
+
+
+### arsenal – leverkusen (N/A, Tue, 17 Mar 2026 12:10:00 -0700)
+
+- **Arteta's updates on Odegaard, Trossard and Timber | Press conference | News**: [Link](https://www.arsenal.com/news/artetas-updates-odegaard-trossard-and-timber)
+- **Arsenal's answer to Martin Odegaard's injury is not Max Dowman**: [Link](https://paininthearsenal.com/arsenal-answer-martin-odegaard-injury-not-max-dowman)
+- **Arsenal vs Bayer Leverkusen: Date, Time And Everything You Need To Know About The Champions League Clash**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/arsenal-vs-bayer-leverkusen-date-time-and-everything-you-need-to-know-about-the-champions-league-clash-2026-03-17)
+
+
+### manchester city – real madrid (N/A, Tue, 17 Mar 2026 11:50:00 -0700)
+
+- **LIVE: Manchester City vs Real Madrid – Champions League last 16**: [Link](https://www.aljazeera.com/sports/liveblog/2026/3/17/live-manchester-city-vs-real-madrid-champions-league-last-16)
+- **Pep: Let's try to seize this incredible opportunity**: [Link](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-real-madrid-ucl-round-of-16-second-leg-preview-63909261)
+- **3 Man City players who can help produce historic comeback vs Real Madrid**: [Link](https://mancitysquare.com/3-man-city-players-help-produce-historic-comeback-vs-real-madrid)
+
+
 ### real vs city (N/A, Tue, 17 Mar 2026 12:00:00 -0700)
 
 - **Pep: Let's try to seize this incredible opportunity**: [Link](https://www.mancity.com/news/mens/pep-guardiola-manchester-city-v-real-madrid-ucl-round-of-16-second-leg-preview-63909261)
