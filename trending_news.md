@@ -1,3 +1,17 @@
+### fenerbahçe – gaziantep (N/A, Tue, 17 Mar 2026 10:50:00 -0700)
+
+- **Fenerbahçe'de Tedesco'dan Gaziantep FK maçı öncesi 4 değişiklik sürprizi**: [Link](https://www.egealternatif.com/haber/fenerbahce-de-tedesco-dan-gaziantep-fk-maci-oncesi-4-degisiklik-surprizi_65664/)
+- **İlk 45 Fener Nene ile: 1-0**: [Link](https://aktuelbursa.com/ilk-45-fener-nene-ile-1-0/35246/)
+- **Marco Asensio gole böyle yaklaştı!**: [Link](https://beinsports.com.tr/haber/marco-asensio-gole-boyle-yaklasti)
+
+
+### sporting – bodø/glimt (N/A, Tue, 17 Mar 2026 10:20:00 -0700)
+
+- **Where would Bødo/Glimt rank? Least valuable squads to ever make Champions League QFs**: [Link](https://www.transfermarkt.com/where-would-bodo-glimt-rank-least-valuable-squads-to-ever-make-champions-league-qfs/view/news/476715)
+- **Possible lineups for Sporting Lisbon vs Bodo Glimt**: [Link](https://www.besoccer.com/new/possible-lineups-for-sporting-lisbon-vs-bodo-glimt-1399790)
+- **Champions League: Sporting’s coach seeks “almost perfect” game (with video)**: [Link](https://www.plataformamedia.com/en/2026/03/17/rui-borges-sporting-bodo-glimt-almost-perfect-champions-league-second-leg/)
+
+
 ### windy (N/A, Mon, 16 Mar 2026 23:00:00 -0700)
 
 - **NYC Weather: Heavy windswept downpours could cause flooding, travel issues**: [Link](https://abc7ny.com/post/nyc-weather-heavy-windswept-downpours-could-cause-flooding-travel-issues/18718695/)
