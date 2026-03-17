@@ -1,3 +1,31 @@
+### مباريات اليوم مباشر (N/A, Tue, 17 Mar 2026 13:30:00 -0700)
+
+- **جدول مباريات اليوم الإثنين 16 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-16-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltb2373432982e9d9a)
+- **أبرز المباريات العربية والعالمية اليوم الإثنين**: [Link](https://24.ae/article/950939/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86)
+- **مباريات اليوم الأحد.. مواجهات مثيرة في أوروبا وإفريقيا**: [Link](https://www.arrajol.com/content/399711/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+
+
+### yalla kora (N/A, Tue, 17 Mar 2026 13:20:00 -0700)
+
+- **فانتازي يلا كورة.. هالاند بين 8 لاعبين تغيرت أسعارهم قبل الجولة 31**: [Link](https://www.yallakora.com/epl/2968/news/544542/%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D9%8A%D9%84%D8%A7-%D9%83%D9%88%D8%B1%D8%A9-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%A8%D9%8A%D9%86-8-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%AA%D8%BA%D9%8A%D8%B1%D8%AA-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1%D9%87%D9%85-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-31)
+- **فانتازي يلا كورة.. 4 تغييرات في أسعار اللاعبين قبل الجولة 30**: [Link](https://www.yallakora.com/epl/2968/news/543892/%D9%81%D8%A7%D9%86%D8%AA%D8%A7%D8%B2%D9%8A-%D9%8A%D9%84%D8%A7-%D9%83%D9%88%D8%B1%D8%A9-4-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-30)
+- **الزمالك يقترب من التأهل لنصف نهائي كأس الكونفدرالية الأفريقية**: [Link](https://www.aljazeera.net/sport/2026/3/14/%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3)
+
+
+### rayan cherki (N/A, Tue, 17 Mar 2026 13:20:00 -0700)
+
+- **Manchester City need to make room in the starting lineup for a player they are screaming out for**: [Link](https://sports.yahoo.com/articles/manchester-city-room-starting-lineup-204000184.html)
+- **Premier League Rayan Cherki sparks debate over his role at Manchester City**: [Link](https://en.africatopsports.com/2026/03/16/rayan-cherki-sparks-debate-over-his-role-at-manchester-city/)
+- **Pep Guardiola explains why Rayan Cherki was benched for Semenyo, O’Reilly**: [Link](https://www.ghanaweb.com/GhanaHomePage/SportsArchive/Pep-Guardiola-explains-why-Rayan-Cherki-was-benched-for-Semenyo-O-Reilly-2025921)
+
+
+### match real (N/A, Tue, 17 Mar 2026 13:10:00 -0700)
+
+- **Man City : Bernardo Silva croit en une qualification face au Real Madrid**: [Link](https://www.footmercato.net/a4829908476293452368-man-city-bernardo-silva-croit-en-une-qualification-face-au-real-madrid)
+- **Ligue des champions - Guardiola veut croire à l'exploit contre le Real : "Beaucoup de choses peuvent se passer..."**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-guardiola-veut-croire-a-lexploit-contre-le-real-beaucoup-de-choses-peuvent-se-passer_sto23281550/story.shtml)
+- **Alvaro Arbeloa fait le point sur l'état de forme de Jude Bellingham et Kylian Mbappé, alors que les deux joueurs réintègrent l'effectif du Real Madrid pour le déplacement à Manchester City**: [Link](https://www.goal.com/fr/listes/alvaro-arbeloa-fait-le-point-sur-l-etat-de-forme-de-jude-bellingham-et-kylian-mbappe-alors-que-les-deux-joueurs-reintegrent-l-effectif-du-real-madrid-pour-le-deplacement-a-manchester-city/blt4427fe0ab58f52fc)
+
+
 ### real madrid (N/A, Tue, 17 Mar 2026 12:30:00 -0700)
 
 - **La pareja de Fede Valverde revela lo que hizo con él la noche antes del partido contra el City: "Vamos a..."**: [Link](https://www.sport.es/es/noticias/real-madrid/pareja-fede-valverde-revela-hizo-128059185)
