@@ -1,3 +1,31 @@
+### earthquake (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
+
+- **Magnitude 6 earthquake strikes Cuba, EMSC says**: [Link](https://www.reuters.com/business/environment/magnitude-6-earthquake-strikes-cuba-emsc-says-2026-03-17/)
+- **Magnitude 5.8 earthquake strikes near Cuba; no tsunami threat reported**: [Link](https://www.local10.com/news/world/2026/03/17/magnitude-58-earthquake-strikes-near-cuba-no-tsunami-threat-reported/)
+- **Earthquake hits Cuba as nationwide blackout deepens crisis**: [Link](https://www.upi.com/Top_News/World-News/2026/03/17/latam-cuba-earthquake-electical-outage/6721773759878/)
+
+
+### tremblement de terre (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
+
+- **Séisme léger enregistré entre M'diq et Fnideq sans dégâts signalés**: [Link](https://www.telegraphe.ma/fr/seisme-leger-enregistre-entre-mdiq-et-fnideq-sans-degats-signales)
+- **Séisme d’Al Haouz : Akhannouch préside une réunion de la Commission interministérielle pour la reconstruction**: [Link](https://fr.hespress.com/466226-seisme-dal-haouz-akhannouch-preside-une-reunion-de-la-commission-interministerielle-pour-la-reconstruction.html)
+- **MAROC : Denis BROGNIART : « J'ai été profondément remué » au cœur de la reconstruction dans l’Atlas**: [Link](https://presseagence.fr/maroc-denis-brogniart-jai-ete-profondement-remue-au-coeur-de-la-reconstruction-dans-latlas/)
+
+
+### زلزال (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
+
+- **المغرب.. 54 ألف أسرة استكملت بناء وتأهيل منازلها منذ زلزال 2023**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-54-%D8%A3%D9%84%D9%81-%D8%A3%D8%B3%D8%B1%D8%A9-%D8%A7%D8%B3%D8%AA%D9%83%D9%85%D9%84%D8%AA-%D8%A8%D9%86%D8%A7%D8%A1-%D9%88%D8%AA%D8%A3%D9%87%D9%8A%D9%84-%D9%85%D9%86%D8%A7%D8%B2%D9%84%D9%87%D8%A7-%D9%85%D9%86%D8%B0-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-2023/3868944)
+- **أخنوش يرأس اجتماع إعمار الحوز**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D9%86%D9%88%D8%B4-%D9%8A%D8%B1%D8%A3%D8%B3-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D8%A5%D8%B9%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D9%88%D8%B2-1717178.html)
+- **ناشط مغربي لـ«القدس العربي»: اختلالات في تعويض ضحايا زلزال «الحوز»... و«ترانسبرانسي» تكشف عن تعثر إعادة الإعمار**: [Link](https://www.alquds.co.uk/%D9%86%D8%A7%D8%B4%D8%B7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%80%D8%A7%D9%84%D9%82%D8%AF%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D9%84%D8%A7%D8%AA/)
+
+
+### maroc vs senegal (N/A, Tue, 17 Mar 2026 15:00:00 -0700)
+
+- **CAN 2025 : le jury d'appel de la CAF déclare le Maroc vainqueur de la finale**: [Link](https://www.france24.com/fr/sports/20260317-can-2025-le-jury-d-appel-de-la-caf-d%C3%A9clare-le-maroc-vainqueur-de-la-finale)
+- **CAN 2025 : le jury d’appel de la Confédération africaine de football retire son titre au Sénégal pour l’attribuer au Maroc**: [Link](https://www.lemonde.fr/afrique/article/2026/03/17/coupe-d-afrique-des-nations-2025-le-jury-d-appel-de-la-caf-retire-le-titre-au-senegal-pour-l-attribuer-au-maroc_6671797_3212.html)
+- **Coupe d’Afrique des Nations : coup de tonnerre, le Sénégal destitué et le Maroc déclaré vainqueur sur tapis vert**: [Link](https://www.lefigaro.fr/sports/football/coupe-d-afrique-des-nations-coup-de-tonnerre-le-senegal-destitue-le-maroc-declare-vainqueur-sur-tapis-vert-20260317)
+
+
 ### achraf hakimi (N/A, Tue, 17 Mar 2026 15:50:00 -0700)
 
 - **Enrique: No esperábamos esta diferencia, y sabemos bien a dónde queremos llegar**: [Link](https://www.ysscores.com/es/news/13929667/Enrique:-No-esper%C3%A1bamos-esta-diferencia,-y-sabemos-bien-a-d%C3%B3nde-queremos-llegar)
