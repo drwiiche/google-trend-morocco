@@ -1,3 +1,52 @@
+### paris (N/A, Tue, 17 Mar 2026 13:50:00 -0700)
+
+- **EN DIRECT, municipales 2026 : les dépôts de listes pour le second tour sont désormais clôturés ; un débat prévu mercredi soir entre Rachida Dati et Emmanuel Grégoire**: [Link](https://www.lemonde.fr/politique/live/2026/03/17/en-direct-municipales-2026-les-depots-de-listes-pour-le-second-tour-sont-desormais-clotures-un-debat-prevu-mercredi-soir-entre-rachida-dati-et-emmanuel-gregoire_6671274_823448.html)
+- **Rachida Dati annonce au Figaro son accord avec Pierre-Yves Bournazel : « J’appelle tous ceux qui ne veulent plus de cette gauche sectaire à se rassembler »**: [Link](https://www.lefigaro.fr/politique/rachida-dati-annonce-au-figaro-son-accord-avec-pierre-yves-bournazel-j-appelle-tous-ceux-qui-ne-veulent-plus-de-cette-gauche-sectaire-a-se-rassembler-20260316)
+- **"Pour moi, le chemin s'arrête": à peine conclue, l'alliance Dati-Bournazel bat déjà de l'aile à Paris**: [Link](https://www.bfmtv.com/politique/elections/municipales/pour-moi-le-chemin-s-arrete-a-peine-conclue-l-alliance-dati-bournazel-bat-deja-de-l-aile-a-paris_AN-202603170331.html)
+
+
+### bayern (N/A, Tue, 17 Mar 2026 13:50:00 -0700)
+
+- **Kompany verrät: Urbig soll gegen Bergamo im Tor stehen**: [Link](https://www.sportschau.de/regional/br/br-urbig-gegen-atalanta-im-bayerntor-wenn-alles-passt-102.html)
+- **Prescott beeindruckt im Bayern-Training**: [Link](https://www.sport1.de/tv-video/video/prescott-beeindruckt-im-bayern-training__3B7594FA-9B39-4D01-8A96-F67984CC786B)
+- **Ex-HSV-Keeper Sven Ulreich in der Bundesliga Spieler des Tages!**: [Link](https://hsv24.mopo.de/2026/03/17/nach-langer-pause-ex-hsv-profi-in-der-bundesliga-spieler-des-tages.html)
+
+
+### arsenal (N/A, Tue, 17 Mar 2026 13:40:00 -0700)
+
+- **WSL highlights: London City Lionesses 0-2 Arsenal**: [Link](https://www.bbc.com/sport/football/videos/czx4le5yyq0o)
+- **Arsenal's path to Champions League final suddenly becomes clearer**: [Link](https://www.mirror.co.uk/sport/football/news/arsenal-champions-league-final-route-36883658)
+- **Arsenal can't mess up their best ever chance to win the Champions League**: [Link](https://sports.yahoo.com/articles/arsenal-cant-mess-best-ever-161950352.html)
+
+
+### bet 365 (N/A, Tue, 17 Mar 2026 13:40:00 -0700)
+
+- **Bet365 bonus code CBSBET365: Get $365 bonus bets for Thunder-Magic, Nuggets-76ers basketball on Tues, March 17**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-get-365-bonus-bets-thunder-magic-nuggets-76ers-basketball-tuesday-march-17/)
+- **bet365 bonus code SPORTSLINE: Get $365 bonus bets for college basketball tournament, WBC, NBA on Tuesday**: [Link](https://www.sportsline.com/sportsbooks/bet365-bonus-code-sportsline-get-365-bonus-bets-college-basketball-tournament-wbc-nba-tuesday/)
+- **bet365 bonus code: Bet $10, get $365 in bonus bets for Knicks vs. Pacers**: [Link](https://nypost.com/2026/03/17/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-knicks-vs-pacers/)
+
+
+### ligue des champions (N/A, Tue, 17 Mar 2026 13:30:00 -0700)
+
+- **Sporting Portugal 5-0 Bodö/Glimt, Ligue des champions : les Leões arrachent la qualification**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/sporting-portugal-bodo-glimt-live/688892)
+- **Sporting-Bodo/Glimt: les Portugais s'offrent une manita et arrachent une qualification historique au bout de la prolongation**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-sporting-bodo-glimt-suivez-le-8e-de-finale-retour-de-la-ligue-des-champions-en-live_LS-202603170719.html)
+- **Bodø/Glimt est la meilleure équipe en Europe actuellement selon Carlo Ancelotti**: [Link](https://www.footmercato.net/a6746883652731684886-bodo-glimt-est-la-meilleure-equipe-en-europe-actuellement-selon-carlo-ancelotti)
+
+
+### k (N/A, Tue, 17 Mar 2026 13:30:00 -0700)
+
+- **Janice K. Burger, 79, Jasper**: [Link](https://duboiscountyfreepress.com/janice-k-burger-79-jasper/)
+- **Janice K. Burger Obituary - Visitation & Funeral Information**: [Link](https://www.becherkluesner.com/obituaries/janice-burger)
+- **Obituary for Daniel K. McMahon**: [Link](https://www.malonefh.com/obituary/DanielK-McMahon)
+
+
+### match (N/A, Tue, 17 Mar 2026 13:30:00 -0700)
+
+- **Booker T Appreciation Night in Houston**: [Link](https://www.wwe.com/shows/wwenxt/2026-03-17/booker-t-appreciation)
+- **WWE NXT roster facing travel delays ahead of this week’s TV**: [Link](https://www.f4wonline.com/news/nxt/wwe-nxt-roster-travel-delays-ahead-of-this-weeks-tv/)
+- **WWE NXT Preview for Mar. 10: Booker T Appreciation Night**: [Link](https://www.cagesideseats.com/wwe/425912/wwe-nxt-preview-mar-17-2026-booker-t-appreciation-night)
+
+
 ### مباريات اليوم مباشر (N/A, Tue, 17 Mar 2026 13:30:00 -0700)
 
 - **جدول مباريات اليوم الإثنين 16 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-16-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltb2373432982e9d9a)
