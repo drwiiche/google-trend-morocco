@@ -1,3 +1,29 @@
+### brahim diaz (N/A, Tue, 17 Mar 2026 15:40:00 -0700)
+
+- **Morocco hoping to repeat Brahim Diaz trick with Real Madrid breakout star**: [Link](https://www.football-espana.net/2026/03/16/morocco-brahim-diaz-trick-real-madrid-star)
+- **Real Madrid’s Thiago Pitarch sparks fresh Spain and Morocco tussle over his international future**: [Link](https://onefootball.com/fr/news/real-madrids-thiago-pitarch-sparks-fresh-spain-and-morocco-tussle-over-his-international-future-42568326)
+- **Thiago Pitarch catches the eye of Morocco national Team**: [Link](https://en.africatopsports.com/tag/thiago-pitarch-catches-the-eye-of-morocco-national-team/)
+
+
+### l'équipe (N/A, Tue, 17 Mar 2026 15:30:00 -0700)
+
+- **Ligue des Champions : incroyable qualification du Sporting CP, renversant contre Bodø/Glimt**: [Link](https://www.footmercato.net/a3867812158847417805-ligue-des-champions-au-terme-dune-prestation-renversante-le-sporting-cp-arrache-sa-qualification-contre-bodo-glimt)
+- **Le Sporting signe une folle remontée face à Bodö/Glimt et se qualifie pour les quarts de finale de la Ligue des champions**: [Link](https://www.lequipe.fr/Football/Actualites/Le-sporting-signe-une-folle-remontee-face-a-bodo-glimt-et-se-qualifie-pour-les-quarts-de-finale-de-ligue-des-champions/1660353)
+- **Sporting-Bodo/Glimt: les Portugais s'offrent une manita et arrachent une qualification historique au bout de la prolongation**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-sporting-bodo-glimt-suivez-le-8e-de-finale-retour-de-la-ligue-des-champions-en-live_LS-202603170719.html)
+
+
+### اخبارنا (N/A, Tue, 17 Mar 2026 15:30:00 -0700)
+
+- **ترامب صُدم من رد إيران.. "لم يتوقع أحد ذلك"**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/03/17/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%B5-%D8%AF%D9%85-%D9%85%D9%86-%D8%B1%D8%AF-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D9%84%D9%85-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D8%AD%D8%AF-%D8%B0%D9%84%D9%83)
+- **ترمب يشكو رفض الناتو المشاركة في الحرب**: [Link](https://www.aljazeera.net/news/2026/3/17/%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%B4%D9%83%D9%88-%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D9%86%D8%A7%D8%AA%D9%88-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8)
+- **الرئيس الأمريكي: إيران نمر من ورق**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%86%D9%85%D8%B1-%D9%85%D9%86-%D9%88%D8%B1%D9%82-1716606.html)
+
+
+### kech24 (N/A, Tue, 17 Mar 2026 15:20:00 -0700)
+
+- **Israel claims killing of Ali Larijani in strike in Tehran**: [Link](https://www.lbcgroup.tv/news/middleeastnews/915360/israel-claims-killing-of-ali-larijani-in-strike-in-tehran/en)
+
+
 ### hibapress (N/A, Tue, 17 Mar 2026 15:10:00 -0700)
 
 - **أمريكا تبحث عن الأسمدة المغربية**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%AA%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1717235.html)
