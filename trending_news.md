@@ -1,3 +1,10 @@
+### windy (N/A, Mon, 16 Mar 2026 23:00:00 -0700)
+
+- **NYC Weather: Heavy windswept downpours could cause flooding, travel issues**: [Link](https://abc7ny.com/post/nyc-weather-heavy-windswept-downpours-could-cause-flooding-travel-issues/18718695/)
+- **Weather blog: Powerful storms bring possible flooding, damaging winds**: [Link](https://www.nbcnewyork.com/weather/weather-stories/live-coverage-tornado-threat-nj-storms-flooding-damaging-winds/6477007/)
+- **Rain, snow, winds that will blow: temps to swing in final days before spring**: [Link](https://www.timesunion.com/weather/article/erratic-weather-ahead-first-day-of-spring-22077928.php)
+
+
 ### coupe du monde de football 2030 (N/A, Tue, 17 Mar 2026 07:40:00 -0700)
 
 - **L’Espagne tremble de peur pour la Coupe du Monde 2030**: [Link](https://www.footmercato.net/a839548379082800673-lespagne-tremble-de-peur-pour-la-coupe-du-monde-2030)
