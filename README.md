@@ -1,3 +1,69 @@
+### hibapress (N/A, Tue, 17 Mar 2026 15:10:00 -0700)
+
+- **أمريكا تبحث عن الأسمدة المغربية**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%AA%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1717235.html)
+- **مسؤول أمريكي: تراخيص لفنزويلا لإنتاج المزيد من الأسمدة ونجري مناقشات مع المغرب**: [Link](https://ar.hibapress.com/details-710994.html)
+- **أمريكا تبحث مع المغرب سبل توفير الأسمدة لمواجهة تداعيات الحرب في الشرق الأوسط**: [Link](https://inews.ma/news/8197379)
+
+
+### akhbarona (N/A, Tue, 17 Mar 2026 15:10:00 -0700)
+
+
+
+
+### elbotola (N/A, Tue, 17 Mar 2026 15:10:00 -0700)
+
+
+
+
+### caf champions league (N/A, Tue, 17 Mar 2026 15:00:00 -0700)
+
+- **Esperance v Ahly thriller a beautiful scene-setter for TotalEnergies CAF Champions League second legs**: [Link](https://www.cafonline.com/caf-champions-league/news/esperance-v-ahly-thriller-a-beautiful-scene-setter-for-totalenergies-caf-champions-league-second-legs/)
+- **Espérance Triumphs Over Al Ahly Amidst Tension and VAR Drama**: [Link](https://www.ilmessaggero.it/en/esperance_triumphs_over_al_ahly_amidst_tension_and_var_drama-9418944.html)
+- **Today's matches and broadcast channels: Al Ahly faces Esperance, and Liverpool clashes with Tottenham**: [Link](https://www.voiceofemirates.com/en/sport/2026/03/15/todays-matches-and-broadcast-channels-al-ahly-faces-esperance-and-liverpool-clashes-with-tottenham/)
+
+
+### almountakhab (N/A, Tue, 17 Mar 2026 15:00:00 -0700)
+
+- **ندوة صحافية للسيد محمد وهبي**: [Link](https://frmf.ma/ar/%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-2/)
+- **بعد إنجاز مونديال الشباب.. وهبي يجدد الشراكة مع حجي في المنتخب الأول**: [Link](https://www.aljazeera.net/sport/2026/3/17/%D9%8A%D9%88%D8%B3%D9%81-%D8%AD%D8%AC%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%87%D8%A8%D9%8A)
+- **وهبي يكشف لائحة المنتخب الخميس**: [Link](https://www.hespress.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-1716949.html)
+
+
+### العربية (N/A, Tue, 17 Mar 2026 15:00:00 -0700)
+
+- **بعد تصرف نجم المغرب المشين.. أبرز المشاغبات العربية في الملاعب الأوروبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%81-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%B4%D9%8A%D9%86--%D8%A7%D9%94%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%BA%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/blt2750a8e095aff1d3)
+- **عقوبة مغلظة تترصد عبد الكبير عبقار**: [Link](https://www.hesport.com/%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D9%85%D8%BA%D9%84%D8%B8%D8%A9-%D8%AA%D8%AA%D8%B1%D8%B5%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1-%D8%B9%D8%A8%D9%82%D8%A7%D8%B1-431246.html)
+- **بوردالاس يدافع عن عبقار بعد الطرد: لم يقصد الإيذاء والاحتكاك طبيعي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D8%B1%D8%AF%D8%A7%D9%84%D8%A7%D8%B3-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D8%B9%D8%A8%D9%82%D8%A7%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B7%D8%B1%D8%AF-%D9%84%D9%85-%D9%8A%D9%82%D8%B5%D8%AF-%D8%A7%D9%84%D8%A5%D9%8A%D8%B0%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%83%D8%A7%D9%83-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A/17102)
+
+
+### coupe d'afrique (N/A, Tue, 17 Mar 2026 14:50:00 -0700)
+
+- **CAN 2025 : ouverture et report du procès en appel de 18 supporters sénégalais**: [Link](https://mobile.telquel.ma/instant-t/2026/03/17/can-2025-ouverture-et-report-du-proces-en-appel-de-18-supporters-senegalais_1979149/)
+- **Finale CAN : revirement total, la CAF accorde le titre au Maroc**: [Link](https://medias24.com/2026/03/17/finale-can-revirement-total-la-caf-accorde-le-titre-au-maroc-1645101/)
+- **CAN 2025 : le Jury d’Appel déclare le Sénégal forfait, le Maroc annoncé vainqueur**: [Link](http://ledesk.ma/encontinu/can-2025-le-jury-dappel-declare-le-senegal-forfait-le-maroc-annonce-vainqueur/)
+
+
+### hespress (N/A, Tue, 17 Mar 2026 14:50:00 -0700)
+
+- **شهادات صادمة تطوق "هاروش".. تحريض على الحمل وعلاقات جنسية وتعنيف**: [Link](https://www.hespress.com/%D8%B4%D9%87%D8%A7%D8%AF%D8%A7%D8%AA-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D8%AA%D8%B7%D9%88%D9%82-%D9%87%D8%A7%D8%B1%D9%88%D8%B4-%D8%AA%D8%AD%D8%B1%D9%8A%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD-1717151.html)
+- **شهادات صادمة في محاكمة مستثمر يهودي مغربي.. استغلال لـ”نفوذ وعلاقات مع شخصيات نافذة” واتهامات بالابتزاز الجنسي للمستخدمات بإقامة علاقات جنسية مع المدربين أو السائقين بهدف الحمل لاستغلاله لاحقاً في أنشطة بيدوفيليا في اسرائيل**: [Link](https://www.raialyoum.com/%D9%82%D8%B6%D9%8A%D8%A9-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%83%D9%84%D9%88%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/)
+- **مالك “سيتي كلوب” ينفي الاتجار بالبشر.. والقاضي: “من منحك صلاحية ضرب المستخدمين”؟**: [Link](https://al3omk.com/1145795.html)
+
+
+### كاس افريقيا (N/A, Tue, 17 Mar 2026 14:50:00 -0700)
+
+- **عاجل: مفاجأة مدوية.. كاف يعلن المغرب بطلًا لأفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%85%D8%AF%D9%88%D9%8A%D8%A9--%D9%83%D8%A7%D9%81-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D8%B7%D9%84%D9%8B%D8%A7-%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltf21492d220367e54)
+- **اضطرابات بدكار بعد أحكام الرباط في شغب نهائي "كان".. وتعزيزات أمنية حول سفارة المغرب بالسنغال**: [Link](https://ar.telquel.ma/%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%8018-%D9%85%D8%B4%D8%AC%D8%B9%D8%A7-%D8%B3/)
+- **الاتحاد الأفريقي لكرة القدم يعلن خسارة السنغال لنهائي كأس الأمم الأفريقية وفوز المغرب اعتباريا 3- صفر**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%8A%D8%B9%D9%84%D9%86-%D8%AE%D8%B3%D8%A7%D8%B1/)
+
+
+### fifa (N/A, Tue, 17 Mar 2026 14:50:00 -0700)
+
+- **FIFA Officially Validates Ayoub Ouarghi’s Move to Moroccan National Team**: [Link](https://www.moroccoworldnews.com/2026/03/283041/fifa-officially-validates-ayoub-ouarghis-move-to-moroccan-national-team/)
+- **FIFA Approves Ayoub Ouarghi's Switch from Dutch to Moroccan Nationality**: [Link](https://m.elbotola.com/en/article/2026-03-16-17-20-326.html)
+- **Officially: Ayoub Warghi Changes His Sports Nationality to Represent Morocco**: [Link](https://www.ysscores.com/en/news/13929395/Officially:-Ayoub-Warghi-Changes-His-Sports-Nationality-to-Represent-Morocco)
+
+
 ### caf (N/A, Tue, 17 Mar 2026 14:40:00 -0700)
 
 - **Zimbabwe to host 2026 edition of CAF African Schools Football Championship Continental Finals in April**: [Link](https://www.cafonline.com/caf-african-school-football-championship/news/zimbabwe-to-host-2026-edition-of-caf-african-schools-football-championship-continental-finals-in-april/)
