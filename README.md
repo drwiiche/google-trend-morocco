@@ -1,3 +1,24 @@
+### caf (N/A, Tue, 17 Mar 2026 14:40:00 -0700)
+
+- **Zimbabwe to host 2026 edition of CAF African Schools Football Championship Continental Finals in April**: [Link](https://www.cafonline.com/caf-african-school-football-championship/news/zimbabwe-to-host-2026-edition-of-caf-african-schools-football-championship-continental-finals-in-april/)
+- **Zimbabwe to host 2026 CAF African Schools Championship finals in April**: [Link](https://www.gbcghanaonline.com/sports/zimbabwe-caf/2026/)
+- **BREAKING: Harare to host 2026 CAF African Schools Football Championship**: [Link](https://www.newsday.co.zw/sport/article/200052766/breaking-harare-to-host-2026-caf-african-schools-football-championship)
+
+
+### caf online (N/A, Tue, 17 Mar 2026 14:40:00 -0700)
+
+- **Safi hold Wydad in dramatic Moroccan derby as TotalEnergies CAF Confederation Cup quarter-final remains wide open**: [Link](https://www.cafonline.com/caf-confederation-cup/news/safi-hold-wydad-in-dramatic-moroccan-derby-as-totalenergies-caf-confederation-cup-quarter-final-remains-wide-open/)
+- **Benhashem Leads Wydad Training Amid Uncertainty Over His Future**: [Link](https://m.elbotola.com/en/article/2026-03-17-20-08-138.html)
+- **Wydad Holds Training Camp Before Facing Safi in the Confederation**: [Link](https://www.ysscores.com/en/news/13926782/Wydad-Holds-Training-Camp-Before-Facing-Safi-in-the-Confederation)
+
+
+### radio mars (N/A, Tue, 17 Mar 2026 14:40:00 -0700)
+
+- **ليلة الرعب.. لصوص يحتجزون العيناوي وعائلته في روما قبل سرقة مسلحة بمنزله**: [Link](https://ar.le360.ma/sports/LPFE5XA74JFBFDSD6KM22NOM2M/)
+- **ستة مسلحين يقتحمون منزل العيناوي.. 10 آلاف يورو ومجوهرات مسروقة!**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%B3%D8%AA%D8%A9-%D9%85%D8%B3%D9%84%D8%AD%D9%8A%D9%86-%D9%8A%D9%82%D8%AA%D8%AD%D9%85%D9%88%D9%86-%D9%85%D9%86%D8%B2%D9%84-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-10-%D8%A2%D9%84%D8%A7-245743.html)
+- **العيناوي يغيب عن الحصة التدريبية لروما**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D8%B7%D9%88-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D8%AD-%D9%8A%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D8%B9%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%B1%D9%88%D9%85%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%88%D9%84%D9%88%D9%86%D9%8A%D8%A7/17209)
+
+
 ### paris (N/A, Tue, 17 Mar 2026 13:50:00 -0700)
 
 - **EN DIRECT, municipales 2026 : les dépôts de listes pour le second tour sont désormais clôturés ; un débat prévu mercredi soir entre Rachida Dati et Emmanuel Grégoire**: [Link](https://www.lemonde.fr/politique/live/2026/03/17/en-direct-municipales-2026-les-depots-de-listes-pour-le-second-tour-sont-desormais-clotures-un-debat-prevu-mercredi-soir-entre-rachida-dati-et-emmanuel-gregoire_6671274_823448.html)
