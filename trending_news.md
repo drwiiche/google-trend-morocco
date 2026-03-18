@@ -1,3 +1,10 @@
+### transfermarkt (N/A, Tue, 17 Mar 2026 15:50:00 -0700)
+
+- **Inter Milan ready to reduce Alessandro Bastoni’s price tag amid Liverpool links**: [Link](https://www.rousingthekop.com/2026/03/17/inter-milan-ready-to-reduce-alessandro-bastonis-price-tag-amid-liverpool-links/)
+- **The three Barcelona stars who are trying to convince Bastoni to join them**: [Link](https://telegrafi.com/en/The-three-Barcelona-stars-who-are-trying-to-convince-Bastoni-to-join-them/)
+- **Laporta, listen to us!**: [Link](https://tribuna.com/en/blogs/laporta-listen-to-us/)
+
+
 ### مدريد (N/A, Tue, 17 Mar 2026 15:20:00 -0700)
 
 - **تقرير: حكيمي أولوية في ريال مدريد**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A3%D9%88%D9%84%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-1717094.html)
