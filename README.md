@@ -1,3 +1,10 @@
+### seisme rabat (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
+
+- **Séisme d’Al Haouz : Akhannouch préside une réunion de la Commission interministérielle pour la reconstruction**: [Link](https://fr.hespress.com/466226-seisme-dal-haouz-akhannouch-preside-une-reunion-de-la-commission-interministerielle-pour-la-reconstruction.html)
+- **Séisme d’Al Haouz: voici où en est le programme de reconstruction et d’aménagement des zones sinistrées**: [Link](https://fr.le360.ma/societe/seisme-dal-haouz-voici-ou-en-est-le-programme-de-reconstruction-et-damenagement-des-zones-sinistrees_4HOCUPEQCJCL7AIIK5G5IVYHTM/)
+- **Reconstruction post-séisme : 7,2 MMDH décaissés, les chantiers se poursuivent**: [Link](https://ledesk.ma/encontinu/reconstruction-post-seisme-72-mmdh-decaisses-les-chantiers-se-poursuivent/)
+
+
 ### eid al fitr 2026 (N/A, Wed, 18 Mar 2026 00:40:00 -0700)
 
 - **When is Eid al-Fitr in 2026? When does Ramadan end? What to know.**: [Link](https://www.providencejournal.com/story/lifestyle/faith/2026/03/16/eid-al-fitr-islam-ramadan-eid-al-adha-providence-ri/89177962007/)
