@@ -1,3 +1,10 @@
+### eid al fitr 2026 (N/A, Wed, 18 Mar 2026 00:40:00 -0700)
+
+- **When is Eid al-Fitr in 2026? When does Ramadan end? What to know.**: [Link](https://www.providencejournal.com/story/lifestyle/faith/2026/03/16/eid-al-fitr-islam-ramadan-eid-al-adha-providence-ri/89177962007/)
+- **What is Eid al-Fitr? Muslim holiday, end of Ramadan explained**: [Link](https://www.usatoday.com/story/news/nation/2026/03/17/eid-muslim-holiday-islam-ramadan-meaning/89193637007/)
+- **Eid Al Fitr 2026 in UAE: Shawwal crescent moon sighting across the world**: [Link](https://gulfnews.com/uae/eid-al-fitr-2026-in-uae-shawwal-crescent-moon-sighting-across-the-world-1.500478348)
+
+
 ### transfermarkt (N/A, Tue, 17 Mar 2026 15:50:00 -0700)
 
 - **Inter Milan ready to reduce Alessandro Bastoni’s price tag amid Liverpool links**: [Link](https://www.rousingthekop.com/2026/03/17/inter-milan-ready-to-reduce-alessandro-bastonis-price-tag-amid-liverpool-links/)
