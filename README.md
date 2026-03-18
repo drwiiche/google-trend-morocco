@@ -1,3 +1,24 @@
+### aid el fitr 2026 (N/A, Wed, 18 Mar 2026 08:50:00 -0700)
+
+- **Aïd al-Fitr : jour férié exceptionnel le lundi 23 mars dans les administrations**: [Link](https://medias24.com/2026/03/13/aid-al-fitr-jour-ferie-exceptionnel-le-lundi-23-mars-dans-les-administrations-1642967/)
+- **Jour férié dans les banques le 23 mars à l’occasion de l’Aïd el-Fitr**: [Link](https://mobile.telquel.ma/instant-t/2026/03/17/jour-ferie-dans-les-banques-le-23-mars-a-loccasion-de-laid-el-fitr_1979246/)
+- **La polémique sur les vacances de l'Aïd s'enflamme... La loi favorise-t-elle les employés du secteur privé**: [Link](https://fr.hibapress.com/news-240534.html)
+
+
+### aid el fitr 2026 maroc (N/A, Wed, 18 Mar 2026 08:40:00 -0700)
+
+- **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
+- **Dates du ramadan 2026 : ce qu’il faut savoir sur la Nuit du doute, qui détermine la date de fin du jeûne et l’Aïd-el-Fitr**: [Link](https://www.leparisien.fr/societe/religions/aid-el-fitr-2026-ce-quil-faut-savoir-sur-la-nuit-du-doute-qui-determine-la-date-de-fin-du-ramadan-17-03-2026-XTV7UWOUTZG6VGACAOBTBHS6H4.php)
+- **La Grande Mosquée de Paris dévoile ce 18 mars la date de l’Aïd el-Fitr 2026 !**: [Link](https://www.beurfm.net/la-grande-mosquee-de-paris-devoile-ce-18-mars-la-date-de-l-aid-el-fitr-2026)
+
+
+### rabat (N/A, Tue, 17 Mar 2026 16:50:00 -0700)
+
+- **Trois nouveaux parkings souterrains ouvrent leurs portes à Rabat**: [Link](https://lematin.ma/regions/trois-nouveaux-parkings-souterrains-ouvrent-leurs-portes-a-rabat/335092)
+- **Rabat : trois nouveaux parkings souterrains ouvrent dans les quartiers Océan et Agdal**: [Link](https://ledesk.ma/encontinu/rabat-trois-nouveaux-parkings-souterrains-ouvrent-dans-les-quartiers-ocean-et-agdal/)
+- **Rabat : trois nouveaux parkings souterrains inaugurés dans les quartiers Océan et Agdal**: [Link](https://medias24.com/2026/03/16/rabat-trois-nouveaux-parkings-souterrains-ouvrent-dans-les-quartiers-ocean-et-agdal-1643919/)
+
+
 ### عيد الفطر في السعودية 2026 (N/A, Wed, 18 Mar 2026 06:00:00 -0700)
 
 - **فلكيا.. الجمعة أول أيام عيد الفطر في معظم الدول العربية**: [Link](https://www.aljazeera.net/science/2026/3/17/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A)
