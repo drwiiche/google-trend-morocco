@@ -1,3 +1,31 @@
+### barcelona (N/A, Wed, 18 Mar 2026 10:30:00 -0700)
+
+- **Rashford se frota las manos: Newcastle en la diana**: [Link](https://www.sport.es/es/noticias/barca/rashford-frota-manos-newcastle-diana-128119814)
+- **Flick repite convocatoria para medirse al Newcastle**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260318/1004154845/flick-repite-convocatoria-medirse-newcastle.html)
+- **Lamine Yamal, en alerta por las tarjetas amarillas**: [Link](https://onefootball.com/en/news/lamine-yamal-en-alerta-por-las-tarjetas-amarillas-42576988)
+
+
+### barcelone – newcastle (N/A, Wed, 18 Mar 2026 10:00:00 -0700)
+
+- **Barça : Lamine Yamal en mode Neymar avant d’affronter Newcastle**: [Link](https://www.footmercato.net/a3652748579617966305-barca-lamine-yamal-en-mode-neymar-avant-daffronter-newcastle)
+- **Sur quelle chaîne et à quelle heure voir FC Barcelone - Newcastle United ?**: [Link](https://www.fcbarcelona.fr/fr/actualites/4470304/sur-quelle-chaine-et-a-quelle-heure-voir-fc-barcelone-newcastle-united-x)
+- **Cubarci : Nous nous concentrons uniquement sur nous-mêmes et visons la qualification**: [Link](https://www.ysscores.com/fr/news/13929194/Cubarci-:-Nous-nous-concentrons-uniquement-sur-nous-m%C3%AAmes-et-visons-la-qualification)
+
+
+### برشلونة ضد نيوكاسل يونايتد (N/A, Wed, 18 Mar 2026 10:00:00 -0700)
+
+- **أقوى تشكيلة.. فليك يستقر على توليفة برشلونة أمام نيوكاسل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%82%D9%88%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D8%B9%D9%84%D9%89-%D8%AA%D9%88%D9%84%D9%8A%D9%81%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/blt1ad00a46546de3ec)
+- **هاو يتحدى برشلونة ويرفض "رومانسية" دوري الأبطال**: [Link](https://24.ae/article/951166/%D9%87%D8%A7%D9%88-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D8%B1%D9%88%D9%85%D8%A7%D9%86%D8%B3%D9%8A%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **صورة – بدأ لامين يامال في إطلاق التحدي**: [Link](https://hihi2.com/2026/03/18/p3693388.html)
+
+
+### barcelona vs newcastle (N/A, Wed, 18 Mar 2026 09:50:00 -0700)
+
+- **Hansi Flick talks Laporta, Yamal, Ferran, Lewandowski, Woltemade ahead of Barcelona vs Newcastle United**: [Link](https://semprebarca.com/hansi-flick-talks-laporta-yamal-ferran-lewandowski-woltemade-ahead-of-barcelona-vs-newcastle-united/)
+- **This is Barcelona’s lineup to try to beat Newcastle in the Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/this-is-barcelona-s-lineup-to-try-to-beat-newcastle-in-the-champions-league-2026-03-18)
+- **Confirmed line-up: Five changes at the Camp Nou**: [Link](https://onefootball.com/en/news/confirmed-line-up-five-changes-at-the-camp-nou-42577767)
+
+
 ### aid el fitr 2026 (N/A, Wed, 18 Mar 2026 08:50:00 -0700)
 
 - **Aïd al-Fitr : jour férié exceptionnel le lundi 23 mars dans les administrations**: [Link](https://medias24.com/2026/03/13/aid-al-fitr-jour-ferie-exceptionnel-le-lundi-23-mars-dans-les-administrations-1642967/)
