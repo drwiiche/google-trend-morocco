@@ -1,3 +1,17 @@
+### عيد الفطر في السعودية 2026 (N/A, Wed, 18 Mar 2026 06:00:00 -0700)
+
+- **فلكيا.. الجمعة أول أيام عيد الفطر في معظم الدول العربية**: [Link](https://www.aljazeera.net/science/2026/3/17/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%8A)
+- **المغرب يحدد موعد تحري هلال شوال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AA%D8%AD%D8%B1%D9%8A-%D9%87%D9%84%D8%A7%D9%84-%D8%B4%D9%88%D8%A7%D9%84-1717459.html)
+- **مصر.. معهد البحوث الفلكية يعلن موعد عيد الفطر**: [Link](https://arabic.cnn.com/miscellaneous/article/2026/03/17/egypt-institute-astronomical-research-date-of-eid-al-fitr)
+
+
+### oncf (N/A, Wed, 18 Mar 2026 05:50:00 -0700)
+
+- **Aïd al-Fitr : l’ONCF déploie un plan spécial de transport du 17 au 29 mars**: [Link](https://medias24.com/2026/03/17/aid-al-fitr-loncf-deploie-un-plan-special-de-transport-du-17-au-29-mars-1644407/)
+- **L’ONCF met en place un dispositif spécial Aid Al Fitr et fin des vacances scolaires**: [Link](https://mobile.telquel.ma/instant-t/2026/03/16/loncf-met-en-place-un-dispositif-special-aid-al-fitr-et-fin-des-vacances-scolaires_1979048/)
+- **Aïd El Fitr : City to City d’inDrive mise sur le covoiturage interurbain**: [Link](https://www.leconomiste.com/flash-infos/aid-el-fitr-city-to-city-dindrive-mise-sur-le-covoiturage-interurbain/)
+
+
 ### seisme (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
 
 - **Séisme d'Al-Haouz : plus de 54.000 habitations reconstruites et 7,2 milliards de dirhams distribués aux sinistrés**: [Link](https://telquel.ma/instant-t/2026/03/18/seisme-dal-haouz-plus-de-54-000-habitations-reconstruites-et-72-milliards-de-dirhams-distribues-aux-sinistres_1979405/)
