@@ -1,3 +1,10 @@
+### mehdi tazi (N/A, Wed, 18 Mar 2026 12:30:00 -0700)
+
+- **Mehdi Tazi et Mohamed Bachiri candidats aux élections de la CGEM**: [Link](https://medias24.com/2026/03/17/mehdi-tazi-et-mohamed-bachiri-candidats-elections-cgem-1644557/)
+- **Maroc : sur qui Mehdi Tazi peut-il compter dans sa course pour prendre les rênes du patronat ?**: [Link](https://www.jeuneafrique.com/1775021/economie-entreprises/maroc-sur-qui-mehdi-tazi-peut-il-compter-dans-sa-course-pour-prendre-les-renes-du-patronat/)
+- **CGEM : Mehdi Tazi annonce sa candidature à la présidence**: [Link](https://fr.hespress.com/466215-cgem-mehdi-tazi-annonce-sa-candidature-a-la-presidence.html)
+
+
 ### x (N/A, Wed, 18 Mar 2026 13:50:00 -0700)
 
 - **Is X down? Over 26k reports of outages on Wednesday**: [Link](https://www.yahoo.com/news/articles/x-down-over-26k-reports-155142581.html)
