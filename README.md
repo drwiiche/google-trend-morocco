@@ -1,3 +1,24 @@
+### x (N/A, Wed, 18 Mar 2026 13:50:00 -0700)
+
+- **Is X down? Over 26k reports of outages on Wednesday**: [Link](https://www.yahoo.com/news/articles/x-down-over-26k-reports-155142581.html)
+- **X back up after brief outage, Downdetector shows**: [Link](https://www.reuters.com/business/x-down-thousands-users-us-downdetector-shows-2026-03-18/)
+- **X — formerly known as Twitter — is experiencing outages, users reporting social media site is down**: [Link](https://nypost.com/2026/03/18/business/x-formerly-known-as-twitter-is-experiencing-outages-users-reporting-social-media-site-is-down/)
+
+
+### coupe du roi des champions (N/A, Wed, 18 Mar 2026 13:50:00 -0700)
+
+- **Comment regarder Al-Kholood - Al Ittihad ? Date, heure, streaming et comment regarder la Coupe du Roi des champions sur DAZN**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-al-kholood-al-ittihad-date-heure-streaming-et-comment-regarder-la-coupe-du-roi-des-champions-sur-dazn/fmhe8rmsgqkf1uxxfc2wvpoc9)
+- **Blessure précoce de Doumbia suscite l'inquiétude au sein de l'Union**: [Link](https://www.ysscores.com/fr/news/13930171/Blessure-pr%C3%A9coce-de-Doumbia-suscite-l'inqui%C3%A9tude-au-sein-de-l'Union)
+- **Liste de l'Union pour affronter Al-Khulood en Coupe**: [Link](https://www.ysscores.com/fr/news/13929510/Liste-de-l'Union-pour-affronter-Al-Khulood-en-Coupe)
+
+
+### liverpool (N/A, Wed, 18 Mar 2026 13:10:00 -0700)
+
+- **Champions League: Liverpool take control against Galatasaray, Spurs keep hopes alive**: [Link](https://www.bbc.com/sport/football/live/c8755e4n41pt)
+- **Liverpool host Galatasaray; Bayern face Atalanta; Spurs take on Atleti**: [Link](https://onefootball.com/en/news/liverpool-host-galatasaray-bayern-face-atalanta-spurs-take-on-atleti-42578121)
+- **I must have done things wrong if fans not happy - Slot**: [Link](https://www.bbc.com/sport/football/articles/cze0e507l8ro)
+
+
 ### ليفربول (N/A, Wed, 18 Mar 2026 13:00:00 -0700)
 
 - **مباشر.. مباراة ليفربول ضد غلطة سراي في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A)
