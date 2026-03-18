@@ -1,3 +1,24 @@
+### earthquake today (N/A, Tue, 17 Mar 2026 16:50:00 -0700)
+
+- **4.1 magnitude earthquake strikes northwest Greece**: [Link](https://www.ekathimerini.com/news/1298264/4-1-magnitude-earthquake-strikes-northwest-greece/)
+- **Moderate 4.1 Quake Hits Near Ioannina, Epirus, Greece**: [Link](https://www.volcanodiscovery.com/earthquake/news/297834/Moderate-41-quake-hits-near-Ioannina-Epirus-Greece.html)
+- **4.1 Richter Earthquake in Epirus Today: Epicenter Near Ioannina, Felt in Thesprotia**: [Link](https://greekcitytimes.com/2026/03/17/4-1-magnitude-earthquake-epirus-ioannina-march-17-2026/)
+
+
+### زلزال اليوم المغرب (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
+
+- **تفاصيل "زلزال متوسط" في المغرب**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%85%D8%AA%D9%88%D8%B3%D8%B7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1717378.html)
+- **هزة أرضية بلغت 4.5 درجات على مقياس ريشتر ضربت السواحل الشمالية وبلغ صداها مدن الرباط وسلا والضواحي – اليوم 24**: [Link](https://alyaoum24.com/2015459.html)
+- **هزة أرضية خفيفة بقوة 3.1 درجات تسجل قرب المضيق من دون أضرار**: [Link](https://tanja24.com/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D8%A8%D9%82%D9%88%D8%A9-3-1-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%AA%D8%B3%D8%AC%D9%84-%D9%82%D8%B1%D8%A8-%D8%A7%D9%84/)
+
+
+### hakimi (N/A, Tue, 17 Mar 2026 16:00:00 -0700)
+
+- **Noche marroquí en Champions: Hakimi y Brahim al mando**: [Link](https://es.rue20.com/2026/03/17/noche-marroqui-en-champions-hakimi-y-brahim-al-mando/)
+- **Escándalo mundial: le quitan la Copa de África a Senegal y se la dan a Marruecos**: [Link](https://as.com/futbol/internacional/escandalo-mundial-le-quitan-la-copa-de-africa-a-senegal-y-se-la-dan-a-marruecos-f202603-n/)
+- **La CAF da por perdida la final a Senegal y proclama a Marruecos campeón de la Copa África**: [Link](https://www.elmundo.es/deportes/2026/03/17/69b9d13d21efa083778b4573.html)
+
+
 ### earthquake (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
 
 - **Magnitude 6 earthquake strikes Cuba, EMSC says**: [Link](https://www.reuters.com/business/environment/magnitude-6-earthquake-strikes-cuba-emsc-says-2026-03-17/)
