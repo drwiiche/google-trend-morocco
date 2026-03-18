@@ -1,3 +1,10 @@
+### seisme (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
+
+- **Séisme d'Al-Haouz : plus de 54.000 habitations reconstruites et 7,2 milliards de dirhams distribués aux sinistrés**: [Link](https://telquel.ma/instant-t/2026/03/18/seisme-dal-haouz-plus-de-54-000-habitations-reconstruites-et-72-milliards-de-dirhams-distribues-aux-sinistres_1979405/)
+- **Séisme d’Al Haouz : 54.425 logements achevés et 7,2 milliards de dirhams d’aides versés**: [Link](https://medias24.com/2026/03/18/seisme-dal-haouz-54-425-logements-acheves-et-72-milliards-de-dirhams-daides-verses-1645309/)
+- **Reconstruction post-séisme : 7,2 MMDH décaissés, les chantiers se poursuivent**: [Link](https://ledesk.ma/encontinu/reconstruction-post-seisme-72-mmdh-decaisses-les-chantiers-se-poursuivent/)
+
+
 ### seisme rabat (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
 
 - **Séisme d’Al Haouz : Akhannouch préside une réunion de la Commission interministérielle pour la reconstruction**: [Link](https://fr.hespress.com/466226-seisme-dal-haouz-akhannouch-preside-une-reunion-de-la-commission-interministerielle-pour-la-reconstruction.html)
