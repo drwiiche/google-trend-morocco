@@ -1,3 +1,31 @@
+### inter miami (N/A, Wed, 18 Mar 2026 16:20:00 -0700)
+
+- **Wednesday's clash with Nashville is the most important since Messi landed in Miami**: [Link](https://onefootball.com/de/news/wednesdays-clash-with-nashville-is-the-most-important-since-messi-landed-in-miami-42576235)
+- **Inside Inter Miami: Can Messi score 900? Will Miami advance in Champions Cup?**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article315098670.html)
+- **Lionel Messi scores 900th career goal, joins Cristiano Ronaldo**: [Link](https://www.espn.com/soccer/story/_/id/48081661/lionel-messi-scores-900-goals-cristiano-ronaldo)
+
+
+### مسلسل وننسى اللي كان (N/A, Wed, 18 Mar 2026 16:20:00 -0700)
+
+- **بتساؤلات محيرة.. مؤلف "وننسى اللي كان" يشوق جمهوره حول النهاية**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/18/%D9%85%D8%A4%D9%84%D9%81-%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D9%88%D9%82-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D8%A9%D9%8A%D8%A7%D8%AA%D8%B1%D9%89-%D8%AD%D8%AF-%D9%87%D9%8A%D9%85%D9%88%D8%AA-)
+- **مواجهات واعترافات.. تفاصيل مسلسل وننسى اللي كان الحلقة 26**: [Link](https://www.almasryalyoum.com/news/details/4223212)
+- **رفض صادم وخطط خفية.. الحلقة 28 من وننسى اللي كان تشعل الصراعات**: [Link](https://number1.news/2026/03/18/%D8%B1%D9%81%D8%B6-%D8%B5%D8%A7%D8%AF%D9%85-%D9%88%D8%AE%D8%B7%D8%B7-%D8%AE%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-28-%D9%85%D9%86-%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84/)
+
+
+### al hilal (N/A, Wed, 18 Mar 2026 14:00:00 -0700)
+
+- **Milinković-Savić header keeps Al-Hilal in the title race**: [Link](https://www.news.com.au/sport/milinkovisavi-header-keeps-alhilal-in-the-title-race/video/ab8172166efa25ecc66b082261a76863)
+- **Al-Hilal takes the lead in the Copa del Rey semi-final with a goal from Theo Hernández after an assist from Benzema in the 39th minute**: [Link](https://www.mixvale.com.br/2026/03/18/al-hilal-takes-the-lead-in-the-copa-del-rey-semi-final-with-a-goal-from-theo-hernandez-after-an-assist-from-benzema-in-the-39th-minute-en/)
+- **Al-Hilal Eliminates Al-Ahly and Sets a Date with Immortality in the Final**: [Link](https://www.ysscores.com/en/news/13930252/Al-Hilal-Eliminates-Al-Ahly-and-Sets-a-Date-with-Immortality-in-the-Final)
+
+
+### l aid el fitr arabie saoudite (N/A, Wed, 18 Mar 2026 13:50:00 -0700)
+
+- **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
+- **Fin du ramadan : l'Arabie saoudite a fixé la date de l'Aïd el-Fitr**: [Link](https://www.laprovence.com/article/france-monde/2181641239110214/fin-du-ramadan-larabie-saoudite-a-fixe-la-date-de-laid-el-fitr)
+- **Fin du ramadan : la Grande Mosquée de Paris confirme que l’Aïd-el-Fitr aura lieu vendredi 20 mars pour les musulmans de France**: [Link](https://www.lemonde.fr/religions/article/2026/03/18/fin-du-ramadan-la-grande-mosquee-de-paris-confirme-que-l-aid-el-fitr-aura-lieu-vendredi-20-mars-pour-les-musulmans-de-france_6672074_1653131.html)
+
+
 ### champions league (N/A, Wed, 18 Mar 2026 12:40:00 -0700)
 
 - **When Are the UEFA Champions League Quarterfinals Played?**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/when-are-the-uefa-champions-league-quarterfinals-played-2026-03-18)
