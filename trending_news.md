@@ -1,3 +1,17 @@
+### عيد الفطر بالمغرب 2026 (N/A, Wed, 18 Mar 2026 13:10:00 -0700)
+
+- **عطلة استثنائية لإدارات الدولة بالمغرب**: [Link](https://www.hespress.com/%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1715201.html)
+- **بمناسبة عيد الفطر.. الأبناك تغلق أبوابها يوم الاثنين المقبل**: [Link](https://ar.telquel.ma/%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A7%D9%84%D8%A3%D8%A8%D9%86%D8%A7%D9%83-%D8%AA%D8%BA%D9%84%D9%82-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8%D9%87/)
+- **عطلة استثنائية بالبنوك المغربية يوم 23 مارس**: [Link](https://chouftv.ma/press/778424.html)
+
+
+### matchs de ligue des champions (N/A, Wed, 18 Mar 2026 13:00:00 -0700)
+
+- **Tottenham 3-2 Atlético de Madrid, Ligue des champions : résumé du match (18/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/tottenham-atletico-de-madrid-live/688890)
+- **Tottenham - Atlético Madrid EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/tottenham-atletico-de-madrid_mtc1601216/live-commentary.shtml)
+- **Conor Gallagher souffre de « problèmes d'asthme » ; Igor Tudor fait le point sur la condition physique des stars de Tottenham avant le match contre l'Atlético**: [Link](https://www.goal.com/fr/listes/conor-gallagher-souffre-de-problemes-d-asthme-igor-tudor-fait-le-point-sur-la-condition-physique-des-stars-de-tottenham-avant-le-match-contre-l-atletico/blt80403c284bb528fc)
+
+
 ### aïd el fitr 2026 france (N/A, Wed, 18 Mar 2026 15:00:00 -0700)
 
 - **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
