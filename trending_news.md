@@ -1,3 +1,17 @@
+### truth social (N/A, Tue, 17 Mar 2026 19:40:00 -0700)
+
+- **Trump is losing one battle after another. Cue the posts.**: [Link](https://www.politico.com/news/2026/03/16/donald-trump-supreme-court-attacks-00829708)
+- **Will Trump’s latest gambit to impose his tariffs be upheld by the courts?**: [Link](https://www.piie.com/blogs/realtime-economics/2026/will-trumps-latest-gambit-impose-his-tariffs-be-upheld-courts)
+- **Trump Suggests That the Supreme Court Justices He Appointed Owe Him More Loyalty in Scathing Post About Their 'Disrespect'**: [Link](https://ca.news.yahoo.com/trump-suggests-supreme-court-justices-181227690.html)
+
+
+### walid regragui (N/A, Tue, 17 Mar 2026 18:00:00 -0700)
+
+- **Conférence de presse de l’entraîneur Mohamed Ouahbi**: [Link](https://frmf.ma/fr/%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-2/)
+- **Football : Youssef Hajji désigné deuxième entraîneur adjoint de Mohamed Ouahbi**: [Link](https://mobile.telquel.ma/instant-t/2026/03/17/football-youssef-hajji-designe-deuxieme-entraineur-adjoint-de-mohamed-ouahbi_1979139/)
+- **Mohamed Ouahbi dévoile sa première liste ce jeudi pour les amicaux face à l’Équateur et au Paraguay**: [Link](https://lematin.ma/sports/ouahbi-devoile-sa-premiere-liste-des-lions-datlas-ce-jeudi/335347)
+
+
 ### donald trump (N/A, Tue, 17 Mar 2026 19:40:00 -0700)
 
 - **In His Resignation Letter, Joe Kent Spoke About the Death of His Wife**: [Link](https://www.nytimes.com/2026/03/17/us/politics/joe-kent-shannon-kent-iran-syria.html)
