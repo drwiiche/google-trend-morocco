@@ -1,3 +1,17 @@
+### donald trump (N/A, Tue, 17 Mar 2026 19:40:00 -0700)
+
+- **In His Resignation Letter, Joe Kent Spoke About the Death of His Wife**: [Link](https://www.nytimes.com/2026/03/17/us/politics/joe-kent-shannon-kent-iran-syria.html)
+- **Did Iran pose an 'imminent threat?' Panel debates resignation of top Trump official**: [Link](https://www.cnn.com/politics/video/did-iran-pose-an-imminent-threat-panel-debates-resignation-of-top-trump-official)
+- **Who is Joe Kent, and why did he resign as Trump’s counterterrorism chief?**: [Link](https://www.aljazeera.com/news/2026/3/18/who-is-joe-kent-and-why-did-he-resign-as-trumps-counterterrorism-chief)
+
+
+### seisme maroc (N/A, Tue, 17 Mar 2026 16:30:00 -0700)
+
+- **Légère secousse au détroit de Gibraltar, ressentie dans certaines villes du Royaume**: [Link](https://ledesk.ma/encontinu/legere-secousse-au-detroit-de-gibraltar-ressentie-dans-certaines-villes-du-royaume/)
+- **Un séisme de magnitude 4,9 ressenti dans plusieurs villes au Maroc (PHOTO)**: [Link](https://www.lesiteinfo.com/maroc/668921-un-seisme-de-magnitude-49-ressenti-dans-plusieurs-villes-au-maroc-photo.html)
+- **Signalement mensonger d’un tremblement de terre à Tétouan.**: [Link](https://tanja7.com/fr/8757)
+
+
 ### earthquake today (N/A, Tue, 17 Mar 2026 16:50:00 -0700)
 
 - **4.1 magnitude earthquake strikes northwest Greece**: [Link](https://www.ekathimerini.com/news/1298264/4-1-magnitude-earthquake-strikes-northwest-greece/)
