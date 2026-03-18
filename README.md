@@ -1,3 +1,10 @@
+### champions league (N/A, Wed, 18 Mar 2026 12:40:00 -0700)
+
+- **When Are the UEFA Champions League Quarterfinals Played?**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/when-are-the-uefa-champions-league-quarterfinals-played-2026-03-18)
+- **PSG will not relish Liverpool reunion, says Slot**: [Link](https://www.france24.com/en/live-news/20260318-psg-will-not-relish-liverpool-reunion-says-slot)
+- **Champions League quarter-final ties and dates confirmed**: [Link](https://www.uefa.com/uefachampionsleague/news/02a3-202d9ac10d17-a37e1f50256a-1000--champions-league-quarter-final-ties-and-dates-confirmed/)
+
+
 ### عيد الفطر بالمغرب 2026 (N/A, Wed, 18 Mar 2026 13:10:00 -0700)
 
 - **عطلة استثنائية لإدارات الدولة بالمغرب**: [Link](https://www.hespress.com/%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1715201.html)
