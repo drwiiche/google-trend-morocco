@@ -1,3 +1,10 @@
+### مدريد (N/A, Tue, 17 Mar 2026 15:20:00 -0700)
+
+- **تقرير: حكيمي أولوية في ريال مدريد**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A3%D9%88%D9%84%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-1717094.html)
+- **حكيمي يقترب من ريال مدريد.. ومبابي مفتاح الصفقة**: [Link](https://www.alaraby.co.uk/sport/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D9%81%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9)
+- **الريال يخطط لإعادة حكيمي... "رغبة قوية" تقرّب "أسد الأطلس" من البرنابيو**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B1%D8%BA%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D9%82%D8%B1%D8%A8-%D8%A3%D8%B3%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88/17229)
+
+
 ### truth social (N/A, Tue, 17 Mar 2026 19:40:00 -0700)
 
 - **Trump is losing one battle after another. Cue the posts.**: [Link](https://www.politico.com/news/2026/03/16/donald-trump-supreme-court-attacks-00829708)
