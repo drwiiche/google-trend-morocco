@@ -1,3 +1,17 @@
+### aïd el fitr 2026 france (N/A, Wed, 18 Mar 2026 15:00:00 -0700)
+
+- **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
+- **Fin du ramadan : l'Arabie saoudite a fixé la date de l'Aïd el-Fitr**: [Link](https://www.laprovence.com/article/france-monde/2181641239110214/fin-du-ramadan-larabie-saoudite-a-fixe-la-date-de-laid-el-fitr)
+- **Fin du ramadan : quelle date pour l’Aïd el-Fitr ? Les musulmans de France attendent le verdict de la Grande Mosquée de Paris**: [Link](https://www.sudouest.fr/societe/religion/fin-du-ramadan-quelle-date-pour-l-aid-el-fitr-les-musulmans-de-france-attendent-le-verdict-de-la-grande-mosquee-de-paris-28336123.php)
+
+
+### ldc (N/A, Wed, 18 Mar 2026 13:10:00 -0700)
+
+- **Ligue des champions – 8e de finale retour : Liverpool – Galatasaray en direct (1-0), les deux équipes à égalité sur l'ensemble des deux matchs**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/liverpool-galatasaray-a.s_mtc1601211/live-commentary.shtml)
+- **LDC : duel Osimhen vs Mo Salah, Wissa pour faire tomber le Barça**: [Link](https://sportnewsafrica.com/articles/ldc-duel-osimhen-vs-mo-salah-wissa-pour-faire-tomber-le-barca)
+- **Ligue des champions : Barcelone régale, le Bayern, l’Atlético et Liverpool au rendez-vous des quarts**: [Link](https://www.cnews.fr/sport/2026-03-18/ligue-des-champions-barcelone-regale-le-bayern-latletico-et-liverpool-au-rendez)
+
+
 ### mehdi tazi (N/A, Wed, 18 Mar 2026 12:30:00 -0700)
 
 - **Mehdi Tazi et Mohamed Bachiri candidats aux élections de la CGEM**: [Link](https://medias24.com/2026/03/17/mehdi-tazi-et-mohamed-bachiri-candidats-elections-cgem-1644557/)
