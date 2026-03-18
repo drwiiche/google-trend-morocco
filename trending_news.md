@@ -1,3 +1,31 @@
+### ليفربول (N/A, Wed, 18 Mar 2026 13:00:00 -0700)
+
+- **مباشر.. مباراة ليفربول ضد غلطة سراي في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%B6%D8%AF-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A)
+- **فان دايك قبل مواجهة جالطة سراي: لا أرغب في الحديث عن خيبة الأمل الكبيرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AC%D8%A7%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%84%D8%A7-%D8%A7%D9%94%D8%B1%D8%BA%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AB-%D8%B9%D9%86-%D8%AE%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%84-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1%D8%A9/blt97edaf1b9994ebb2)
+- **أوسيمين يقود تشكيل جالاتا سراي ضد ليفربول في دوري أبطال أوروبا**: [Link](https://www.almasryalyoum.com/news/details/4225204)
+
+
+### الخلود ضد الاتحاد (N/A, Wed, 18 Mar 2026 13:00:00 -0700)
+
+- **بقيادة بطل أفريقيا الجديد.. اتحاد جدة يواجه الخلود بـ9 أجانب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A8%D8%B7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF--%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AC%D8%AF%D8%A9-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%AE%D9%84%D9%88%D8%AF-%D8%A8%D9%809-%D8%A7%D9%94%D8%AC%D8%A7%D9%86%D8%A8/blt5988565cc38045b9)
+- **مباشر مباراة الأهلي ضد الهلال والاتحاد ضد الخلود في كأس خادم الحرمين الشريفين.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%AE%D9%84%D9%88%D8%AF)
+- **الخلود على بُعد خطوة من صناعة التاريخ**: [Link](https://www.al-jazirah.com/2026/20260318/sp2.htm)
+
+
+### tottenham vs atlético madrid (N/A, Wed, 18 Mar 2026 12:30:00 -0700)
+
+- **Champions League: Liverpool level tie with Galatasaray, Spurs score to keep hope**: [Link](https://www.bbc.com/sport/football/live/c8755e4n41pt)
+- **'Nights like this are what Anfield is all about' - Virgil van Dijk**: [Link](https://www.liverpoolfc.com/news/nights-are-what-anfield-all-about-virgil-van-dijk)
+- **(Video) Watch Galatasaray fans in Liverpool City Centre despite UEFA ban**: [Link](https://www.empireofthekop.com/2026/03/17/video-watch-galatasaray-fans-in-liverpool-city-centre-despite-uefa-ban/)
+
+
+### bayern munich (N/A, Wed, 18 Mar 2026 12:20:00 -0700)
+
+- **Bayern activate buy-back clause to bring back 20-year-old starlet from Hannover 96**: [Link](https://sports.yahoo.com/articles/bayern-activate-buy-back-clause-185800248.html)
+- **Bayern Munich exercise buy-back option for Noël Aséko Nkili**: [Link](https://www.getfootballnewsgermany.com/2026/bayern-munich-exercise-buy-back-option-noel-aseko-bundesliga/)
+- **Bayern Munich trigger buy-back option in bargain deal with big summer sale on the cards**: [Link](https://www.goal.com/en/lists/bayern-munich-buy-back-option-noel-aseko-hannover/bltba6c462f7d1b2c55)
+
+
 ### البايرن ضد أتالانتا (N/A, Wed, 18 Mar 2026 12:50:00 -0700)
 
 - **انتكاسة موسيالا تقلق بايرن ميونخ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D8%AA%D9%83%D8%A7%D8%B3%D8%A9-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7-%D8%AA%D9%82%D9%84%D9%82-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE/blt31aced90bc472d58)
