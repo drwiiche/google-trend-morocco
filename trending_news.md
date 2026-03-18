@@ -1,3 +1,38 @@
+### budapest (N/A, Wed, 18 Mar 2026 11:10:00 -0700)
+
+- **UEFA unveils ticket prices for slate of finals days**: [Link](https://www.insideworldfootball.com/2026/03/17/uefa-unveils-ticket-prices-slate-finals-days/)
+- **When is the Champions League final? 2026 date, kick-off time, city and stadium**: [Link](https://news.paddypower.com/football/champions-league/2026/03/18/champions-league-final-2026-date-kick-off-time-city-stadium/)
+- **Champions League final tickets frozen at last year's prices**: [Link](https://www.espn.com/soccer/story/_/id/48223786/champions-league-final-tickets-frozen-last-year-prices)
+
+
+### barca (N/A, Wed, 18 Mar 2026 10:50:00 -0700)
+
+- **Solbian: i pannelli solari che fanno la differenza in barca**: [Link](https://www.giornaledellavela.com/2026/03/16/solbian-migliorare-la-barca/)
+- **Come tutti sulla stessa barca… “La neve in fondo al mare”**: [Link](https://www.settenews.it/come-tutti-sulla-stessa-barca-la-neve-in-fondo-al-mare/)
+- **Lungo il Po sulle orme di Soldati. Con la barca ai confini del Delta**: [Link](https://www.ilrestodelcarlino.it/ferrara/cronaca/lungo-il-po-sulle-orme-ce7e1c69)
+
+
+### كورة مباشر (N/A, Wed, 18 Mar 2026 10:50:00 -0700)
+
+- **تشكيل الكلاسيكو.. تمبكتي على دكة الهلال.. وهوساوي يعود للأهلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88--%D8%AA%D9%85%D8%A8%D9%83%D8%AA%D9%8A-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84--%D9%88%D9%87%D9%88%D8%B3%D8%A7%D9%88%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A/blt0ac0ff2d7dee8c05)
+- **كأس السعودية: كلاسيكو الهلال والأهلي في قمة نصف النهائي**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **مباراة حاسمة لياسين بونو اليوم في كأس الملك**: [Link](https://www.almountakhab.com/node/13223663)
+
+
+### yacine (N/A, Wed, 18 Mar 2026 10:40:00 -0700)
+
+- **On a vu « Specimen » de Yacine Sif El Islam à Bordeaux : une beauté foudroyante**: [Link](https://www.sudouest.fr/gironde/bordeaux/on-a-vu-specimen-de-yacine-sif-el-islam-a-bordeaux-une-beaute-foudroyante-28335479.php)
+- **« On danse quand marcher ne suffit plus » : Yacine Sif El Islam joue « Specimen » au TNBA à Bordeaux**: [Link](https://www.sudouest.fr/gironde/bordeaux/on-danse-quand-marcher-ne-suffit-plus-yacine-sif-el-islam-joue-specimen-au-tnba-a-bordeaux-28260390.php)
+- **Ligue Butagaz Energie : Yacine Messaoudi sera l'entraîneur de Strasbourg la saison prochaine**: [Link](https://www.lequipe.fr/Handball/Actualites/Ligue-butagaz-energie-yacine-messaoudi-sera-l-entraineur-de-strasbourg-la-saison-prochaine/1659530)
+
+
+### fcb (N/A, Wed, 18 Mar 2026 10:30:00 -0700)
+
+- **Swiss Stocks Remain in Green; Swiss Re Shares Rise**: [Link](https://www.marketscreener.com/news/swiss-stocks-remain-in-green-swiss-re-shares-rise-ce7e5ed8d981ff20)
+- **Video ticker: Furious start at the Camp Nou: double-packer Elanga equalizes again for Newcastle | blue News**: [Link](https://www.bluewin.ch/en/sport/football/furious-start-at-the-camp-nou-double-packer-elanga-equalizes-again-for-newcastle-3150658.html)
+- **SMI Index March 10: Oil Spike Cools as Swiss Stocks Trim Losses**: [Link](https://meyka.com/blog/smi-index-march-10-oil-spike-cools-as-swiss-stocks-trim-losses-1003/)
+
+
 ### barcelona (N/A, Wed, 18 Mar 2026 10:30:00 -0700)
 
 - **Rashford se frota las manos: Newcastle en la diana**: [Link](https://www.sport.es/es/noticias/barca/rashford-frota-manos-newcastle-diana-128119814)
