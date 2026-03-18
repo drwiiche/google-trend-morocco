@@ -1,3 +1,73 @@
+### tottenham – atlético madrid (N/A, Wed, 18 Mar 2026 12:20:00 -0700)
+
+- **Tottenham Injury Latest: Gallagher And Solanke Atletico Update As Ten Players Ruled Out**: [Link](https://www.givemesport.com/tottenham-injury-latest-gallagher-solanke-ruled-out-atletico/)
+- **Spurs vs Atlético pregame and odds**: [Link](https://www.sofascore.com/news/mission-almost-impossible-spurs-seek-miracle-comeback-vs-atletico/)
+- **Tottenham v Atlético Madrid LIVE: the starting line-ups**: [Link](https://www.goal.com/en-sa/lists/tottenham-v-atletico-madrid-live-the-starting-line-ups/blt18eec6e42448d7dc)
+
+
+### liverpool – galatasaray (N/A, Wed, 18 Mar 2026 12:20:00 -0700)
+
+- **Mario Lemina: "Şampiyonlar Ligi'nin en aç takımı biziz"**: [Link](https://www.yenicaggazetesi.com/mario-lemina-sampiyonlar-liginin-en-ac-takimi-biziz-1010333h.htm)
+- **Necmettin Nursaçan'dan Liverpool karşısında Galatasaray'a dua**: [Link](https://www.ulketv.com/necmettin-nursacandan-liverpool-karsisinda-galatasaraya-dua)
+- **Avrupa'nın İki Devi İçin Şampiyonlar Ligi Sahnesi Hazır**: [Link](https://beyazbelgehaber.com/avrupa-nin-iki-devi-icin-sampiyonlar-ligi-sahnesi-hazir,h511123)
+
+
+### توتنهام ضد أتلتيكو مدريد (N/A, Wed, 18 Mar 2026 12:20:00 -0700)
+
+- **تودور: أتلتيكو مدريد ليس أفضل منا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%AF%D9%88%D8%B1-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%8A%D8%B3-%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%85%D9%86%D8%A7/bltc629809c449b195b)
+- **سيميوني: مواجهة أتلتيكو مدريد وتوتنهام مباراة من 180 دقيقة**: [Link](https://www.hesport.com/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7-431274.html)
+- **أتليتكو مدريد يفتقد أوبلاك أمام توتنام**: [Link](https://www.akhbarak.net/news/details/48779021/3/%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%81%D8%AA%D9%82%D8%AF-%D8%A3%D9%88%D8%A8%D9%84%D8%A7%D9%83-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D9%88%D8%AA%D9%86%D8%A7%D9%85)
+
+
+### lewandowski (N/A, Wed, 18 Mar 2026 12:20:00 -0700)
+
+- **Newcastle jedną z ulubionych ofiar Marcusa Rashforda; kibice chcą Lewandowskiego w ataku**: [Link](https://www.fcbarca.com/134072-newcastle-jedna-z-ulubionych-ofiar-marcusa-rashforda-kibice-chca-lewandowskiego-w-ataku.html)
+- **Liga Mistrzów NA ŻYWO: Gol za golem na Camp Nou, Elanga ma już dublet na koncie!**: [Link](https://www.flashscore.pl/wiadomosci/pi-ka-nozna-liga-mistrzow-liga-mistrzow-na-zywo-gol-za-golem-na-camp-nou-elanga-ma-juz-dublet-na-koncie/8bmsZkFt/)
+- **Barcelona - Newcastle. Zobacz wideo goli z meczu 1/8 finału Ligi Mistrzów**: [Link](https://polskieradio24.pl/artykul/3662136,barcelona-newcastle-zobacz-wideo-goli-z-meczu-18-finalu-ligi-mistrzow)
+
+
+### bayern (N/A, Wed, 18 Mar 2026 12:20:00 -0700)
+
+- **Prognose für das Spiel Bayern München gegen Atalanta, 19. März, 03:00 Uhr: Eine Aufholjagd ist unmöglich.**: [Link](https://www.vietnam.vn/de/nhan-dinh-bayern-munich-vs-atalanta-03h00-ngay-19-3-khong-the-nguoc-dong)
+- **BR24Sport: FC Bayern bereitet sich auf Bergamo vor - hier anschauen**: [Link](https://www.ardmediathek.de/video/br24sport/fc-bayern-bereitet-sich-auf-bergamo-vor/br/Y3JpZDovL2JyLmRlL2Jyb2FkY2FzdC9jY2Y1M2E2OS1hM2YxLTRkMGEtYWM3MC0yMjMxNjg1NTQ5NjNfb25saW5lYnJvYWRjYXN0L3NlY3Rpb24vY2NmNTNhNjktYTNmMS00ZDBhLWFjNzAtMjIzMTY4NTU0OTYz)
+- **Countdown im Stream: Schafft Atalanta das Wunder oder veredeln die Bayern den Hinspielsieg? | blue News**: [Link](https://www.bluewin.ch/de/sport/champions-league/schafft-atalanta-das-wunder-oder-veredeln-die-bayern-den-hinspielsieg-3150628.html)
+
+
+### bayern – atalanta (N/A, Wed, 18 Mar 2026 12:10:00 -0700)
+
+- **Bayern Munich set to dress three youngsters vs. Atalanta**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/178952/bayern-munich-set-to-dress-three-youngster-vs-atalanta)
+- **CL premiere at Bayern! Kompany backs next campus jewel**: [Link](https://fcbinside.com/2026/03/18/cl-premiere-at-bayern-kompany-backs-next-campus-jewel/)
+- **No 16-year-old in goal! - Confirmed UCL lineups: FC Bayern Munich vs. Atalanta Bergamo**: [Link](https://onefootball.com/fr/news/no-16-year-old-in-goal-confirmed-ucl-lineups-fc-bayern-munich-vs-atalanta-bergamo-42578452)
+
+
+### liverpool vs galatasaray (N/A, Wed, 18 Mar 2026 12:10:00 -0700)
+
+- **I must have done things wrong if fans not happy - Slot**: [Link](https://www.bbc.com/sport/football/articles/cze0e507l8ro)
+- **Okan Buruk hits out at Anfield ban before Liverpool vs Galatasaray**: [Link](https://onefootball.com/de/news/okan-buruk-hits-out-at-anfield-ban-before-liverpool-vs-galatasaray-42577536)
+- **Read Arne Slot's programme notes for Liverpool v Galatasaray**: [Link](https://www.liverpoolfc.com/news/read-arne-slots-programme-notes-liverpool-v-galatasaray)
+
+
+### 2m (N/A, Wed, 18 Mar 2026 12:10:00 -0700)
+
+- **OLPRO Pod 2m X 2m Utility Tent | 5000mm Waterproof Kitchen/Storage Tent | With Sewn-in Groundsheet**: [Link](https://ruhrkanal.news/5000mm-Waterproof-Kitchen-Storage-Tent-With-Sewn-in-Groundsheet-351548)
+- **Prospex Energy raises £2m to fund further Europe growth**: [Link](https://www.sharecast.com/news/aim-bulletin/prospex-energy-raises-pound2m-to-fund-further-europe-growth--22087290.html)
+- **Prospex Energy PLC (AIM: PXEN) Total CLN Funding Reaches £2m, 25% Above Target**: [Link](https://www.share-talk.com/prospex-energy-plc-aim-pxen-total-cln-funding-reaches-2m-25-above-target/)
+
+
+### كورة (N/A, Wed, 18 Mar 2026 12:10:00 -0700)
+
+- **فيديو: احتفال يامال يجدد الجدل.. هل يقلد هذه الشخصية الشهيرة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D8%AC%D8%AF%D9%84--%D9%87%D9%84-%D9%8A%D9%82%D9%84%D8%AF-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D9%87%D9%8A%D8%B1%D8%A9/blt9bf6a9f0b5113cda)
+- **صورة – لامين يعيد تقليد احتفال كريستيانو**: [Link](https://hihi2.com/2026/03/18/p3693606.html)
+- **سجل في شباكه ثم صالحه.. ماذا دار بين لامين يامال وحارس نيوكاسل؟**: [Link](https://www.365scores.com/ar/news/magazine/%D8%B3%D8%AC%D9%84-%D9%81%D9%8A-%D8%B4%D8%A8%D8%A7%D9%83%D9%87-%D8%AB%D9%85-%D8%B5%D8%A7%D9%84%D8%AD%D9%87-%D9%85%D8%A7%D8%B0%D8%A7-%D8%AF%D8%A7%D8%B1-%D8%A8%D9%8A%D9%86-%D9%84%D8%A7%D9%85%D9%8A/)
+
+
+### champions league games (N/A, Wed, 18 Mar 2026 12:10:00 -0700)
+
+- **Champions League starting and predicted line-ups and team news: Round of 16 second legs**: [Link](https://www.uefa.com/uefachampionsleague/news/02a3-2028c3816de7-9fce4b872741-1000--champions-league-starting-and-predicted-line-ups-and-tea/)
+- **talkSPORT tips – Best football bets and expert advice on Wednesday 18 March**: [Link](https://talksport.com/football/4112855/talksport-tips-best-football-bets-wednesday-18-march/)
+- **Liverpool v Galatasaray, Spurs v Atlético Madrid and more: Champions League last-16 second legs – live**: [Link](https://www.theguardian.com/football/live/2026/mar/18/champions-league-last-16-liverpool-galatasaray-tottenham-atletico-madrid-live)
+
+
 ### budapest (N/A, Wed, 18 Mar 2026 11:10:00 -0700)
 
 - **UEFA unveils ticket prices for slate of finals days**: [Link](https://www.insideworldfootball.com/2026/03/17/uefa-unveils-ticket-prices-slate-finals-days/)
