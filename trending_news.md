@@ -1,3 +1,24 @@
+### البايرن ضد أتالانتا (N/A, Wed, 18 Mar 2026 12:50:00 -0700)
+
+- **انتكاسة موسيالا تقلق بايرن ميونخ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D8%AA%D9%83%D8%A7%D8%B3%D8%A9-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7-%D8%AA%D9%82%D9%84%D9%82-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE/blt31aced90bc472d58)
+- **كومباني يعلن اقتراب عودة يوربيغ لحراسة عرين بايرن ميونيخ أمام أتالانتا**: [Link](https://m.elbotola.com/article/2026-03-17-16-45-764.html)
+- **الحلم سبورت : هاري كين يقترب من إنجاز تاريخي في دوري أبطال أوروبا**: [Link](https://al7lmnews.com/news/%D9%83%D8%B1%D8%A9-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D8%AA%D8%A7/)
+
+
+### jonas urbig (N/A, Wed, 18 Mar 2026 12:40:00 -0700)
+
+- **Der FC Bayern München lässt sich von der Torwartkrise nicht beirren.**: [Link](https://www.vietnam.vn/de/bayern-munich-khong-run-truoc-khung-hoang-thu-mon)
+- **Wer steht im Bayern-Tor? Die letzten Infos aus München**: [Link](https://www.skysportaustria.at/mediathek/wer-steht-im-bayern-tor-die-letzten-infos-aus-muenchen/)
+- **FC Bayern: Wer ist heute der Ersatztorwart gegen Bergamo?**: [Link](https://www.dazn.com/de-DE/news/fussball/fc-bayern-wer-heute-ersatztorwart-bergamo-champions-league/7fdfq6bkttoj1k7uosc4i2kkp)
+
+
+### الأهلي ضد الهلال (N/A, Wed, 18 Mar 2026 12:40:00 -0700)
+
+- **بالفيديو.. جماهير الأهلي تستفز بنزيما بلقبه المفضل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AA%D8%B3%D8%AA%D9%81%D8%B2-%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D8%A8%D9%84%D9%82%D8%A8%D9%87-%D8%A7%D9%84%D9%85%D9%81%D8%B6%D9%84/blt465a601c4ab488f5)
+- **تشكيل الكلاسيكو.. تمبكتي على دكة الهلال.. وهوساوي يعود للأهلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88--%D8%AA%D9%85%D8%A8%D9%83%D8%AA%D9%8A-%D8%B9%D9%84%D9%89-%D8%AF%D9%83%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84--%D9%88%D9%87%D9%88%D8%B3%D8%A7%D9%88%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A/blt0ac0ff2d7dee8c05)
+- **كأس السعودية: كلاسيكو الهلال والأهلي في قمة نصف النهائي**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+
+
 ### tottenham – atlético madrid (N/A, Wed, 18 Mar 2026 12:20:00 -0700)
 
 - **Tottenham Injury Latest: Gallagher And Solanke Atletico Update As Ten Players Ruled Out**: [Link](https://www.givemesport.com/tottenham-injury-latest-gallagher-solanke-ruled-out-atletico/)
