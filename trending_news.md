@@ -1,3 +1,29 @@
+### real betis vs panathinaikos (N/A, Thu, 19 Mar 2026 13:30:00 -0700)
+
+- **Work to do for Betis, Celta Vigo in Europa League**: [Link](http://www.china.org.cn/2026-03/19/content_118390417.shtml)
+- **🚨Pellegrini goes all out chasing the comeback**: [Link](https://onefootball.com/en/news/pellegrini-goes-all-out-chasing-the-comeback-42584121)
+- **Real Betis vs Panathinaikos LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/03/19/1254636-real-betis-vs-panathinaikos-live-score-europa-league.html)
+
+
+### دعاء نهاية رمضان (N/A, Thu, 19 Mar 2026 13:20:00 -0700)
+
+- **دعاء وداع رمضان: أجمل الأدعية المستحبة في ختام الشهر الكريم**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/19/2959893/%D8%AF%D8%B9%D8%A7%D8%A1-%D9%88%D8%AF%D8%A7%D8%B9-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%A3%D8%AC%D9%85%D9%84-%D8%A7%D9%84%D8%A3%D8%AF%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AD%D8%A8%D8%A9-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D8%B4%D9%87%D8%B1-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85)
+- **دعاء اليوم التاسع والعشرين من شهر رمضان 2026**: [Link](https://www.sayidaty.net/%D8%A8%D9%84%D8%B3/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/1809065-%D8%AF%D8%B9%D8%A7%D8%A1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AA%D8%A7%D8%B3%D8%B9-%D9%88%D8%A7%D9%84%D8%B9%D8%B4%D8%B1%D9%8A%D9%86-%D9%85%D9%86-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **اللحظات الأخيرة من صيام رمضان 2026.. استثمار الساعات الثمينة في الدعاء والذكر والاستغفار**: [Link](https://www.matnnews.com/274694)
+
+
+### دعاء العيد (N/A, Thu, 19 Mar 2026 13:00:00 -0700)
+
+
+
+
+### train (N/A, Thu, 19 Mar 2026 12:50:00 -0700)
+
+- **Fort Bend County traffic: Authorities say 'it could take days' to clear train derailment scene along Highway 90**: [Link](https://abc13.com/post/fort-bend-county-traffic-train-derailment-highway-90-causing-backups-richmond-rosberg-officials-say/18729329/)
+- **Traffic: 23-car train derailed in Richmond, all crossings except 1 reopened**: [Link](https://www.fox26houston.com/news/traffic-train-derailed-rosenberg-all-crossings-blocked-richmond)
+- **Train derailment near Richmond, Rosenberg leaks ethanol, cleanup could take days, officials say**: [Link](https://www.click2houston.com/news/local/2026/03/18/train-derailment-in-rosenberg-causing-major-traffic-delays-all-richmond-crossings-blocked/)
+
+
 ### عيد سعيد (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
 
 - **الملك يؤدي صلاة عيد الفطر بالرباط**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%A4%D8%AF%D9%8A-%D8%B5%D9%84%D8%A7%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-2-1718282.html)
