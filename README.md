@@ -1,3 +1,10 @@
+### وننسى اللي كان (N/A, Wed, 18 Mar 2026 16:30:00 -0700)
+
+- **بتساؤلات محيرة.. مؤلف "وننسى اللي كان" يشوق جمهوره حول النهاية**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/18/%D9%85%D8%A4%D9%84%D9%81-%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D9%88%D9%82-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D8%A9%D9%8A%D8%A7%D8%AA%D8%B1%D9%89-%D8%AD%D8%AF-%D9%87%D9%8A%D9%85%D9%88%D8%AA-)
+- **مواجهات واعترافات.. تفاصيل مسلسل وننسى اللي كان الحلقة 26**: [Link](https://www.almasryalyoum.com/news/details/4223212)
+- **ما السرّ وراء تأخر عرض الحلقات الأخيرة من مسلسل "وننسى اللي كان"؟**: [Link](https://www.albawaba.com/ar/%D8%AA%D8%B1%D9%81%D9%8A%D9%87/%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D8%B1%D9%91-%D9%88%D8%B1%D8%A7%D8%A1-%D8%AA%D8%A3%D8%AE%D8%B1-%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-1624042)
+
+
 ### inter miami (N/A, Wed, 18 Mar 2026 16:20:00 -0700)
 
 - **Wednesday's clash with Nashville is the most important since Messi landed in Miami**: [Link](https://onefootball.com/de/news/wednesdays-clash-with-nashville-is-the-most-important-since-messi-landed-in-miami-42576235)
