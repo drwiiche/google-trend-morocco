@@ -1,3 +1,10 @@
+### sophia chikirou (N/A, Thu, 19 Mar 2026 02:40:00 -0700)
+
+- **EN DIRECT, municipales 2026 : revivez le débat entre Emmanuel Grégoire, Rachida Dati et Sophia Chikirou, les candidats au second tour à Paris**: [Link](https://www.lemonde.fr/politique/live/2026/03/18/en-direct-municipales-2026-revivez-le-debat-entre-emmanuel-gregoire-rachida-dati-et-sophia-chikirou-les-candidats-au-second-tour-a-paris_6671274_823448.html)
+- **Scandale du périscolaire, logement, moments de tension... Ce qu'il faut retenir du débat des municipales entre Rachida Dati, Emmanuel Grégoire et Sophia Chikirou**: [Link](https://www.bfmtv.com/politique/elections/municipales/scandale-du-periscolaire-logement-moments-de-tension-ce-qu-il-faut-retenir-du-debat-des-municipales-entre-rachida-dati-emmanuel-gregoire-et-sophia-chikirou_AV-202603180975.html)
+- **Dati et Chikirou, «deux Arabes qui se connaissent» ? : Grégoire vivement critiqué par ses concurrentes lors du débat des municipales à Paris**: [Link](https://www.lefigaro.fr/elections/municipales/dati-et-chikirou-deux-arabes-qui-se-connaissent-gregoire-vivement-critique-par-ses-concurrentes-lors-du-debat-des-municipales-a-paris-20260318)
+
+
 ### الهلال (N/A, Wed, 18 Mar 2026 15:00:00 -0700)
 
 - **فيديو: رقم خرافي.. رئيس الهلال يكشف حجم تبرعات الوليد بن طلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B1%D9%82%D9%85-%D8%AE%D8%B1%D8%A7%D9%81%D9%8A--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D8%AC%D9%85-%D8%AA%D8%A8%D8%B1%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%84%D9%8A%D8%AF-%D8%A8%D9%86-%D8%B7%D9%84%D8%A7%D9%84/blt18b88d240e7e0d6a)
