@@ -1,3 +1,73 @@
+### rayo – samsunspor (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
+
+- **Yüreğimiz Madrid'de atacak: Temsilcimiz Samsunspor Avrupa mesaisinde: Muhtemel 11'ler**: [Link](https://www.yenicaggazetesi.com/yuregimiz-madridde-atacak-temsilcimiz-samsunspor-avrupa-mesaisinde-muhtemel-11ler-1010556h.htm)
+- **İSPANYA’DA ZORLU RANDEVU**: [Link](https://www.turkuvazradyolar.com/asporradyo/haberler/2026/03/19/ispanyada-zorlu-randevu)
+- **Thorsten Fink: Turu geçmekle alakalı, pozitif olduğumu söyleyebilirim**: [Link](https://www.samsunhaberajansi.com/haber-thorsten-fink-turu-gecmekle-alakali-pozitif-oldugumu-soyleyebilirim-29156.html)
+
+
+### دعاء عيد الفطر (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
+
+- **احفظوا هذا الدعاء وكرروه عند رؤية الهلال.. فيديو**: [Link](https://www.youm7.com/story/2026/3/19/%D8%A7%D8%AD%D9%81%D8%B8%D9%88%D8%A7-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%AF%D8%B9%D8%A7%D8%A1-%D9%88%D9%83%D8%B1%D8%B1%D9%88%D9%87-%D8%B9%D9%86%D8%AF-%D8%B1%D8%A4%D9%8A%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A%D8%AF%D9%8A%D9%88/7347664)
+- **أفضل الأدعية المستحبة في أول أيام عيد الفطر 2026**: [Link](https://www.alweeam.com.sa/1260667/2026/%D8%A3%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%A3%D8%AF%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AD%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7/)
+- **دعاء أخر ساعة فى رمضان**: [Link](https://www.elbalad.news/keyword/1248138)
+
+
+### طقس (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
+
+- **عيد الفطر على وقع اضطرابات جوية: أمطار ورياح وانخفاض في الحرارة**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D9%88%D9%82%D8%B9-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88-1717995.html)
+- **طقس بارد وأجواء غائمة اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE/)
+- **نشرة إنذارية: زخات رعدية وهبات رياح قوية الأربعاء والخميس بعدد من مناطق المملكة – ChoufTV :: TV شوف**: [Link](https://chouftv.ma/press/778497.html)
+
+
+### roma – bologne (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
+
+- **Gasperini Previews “Do or Die” Fixture Against Bologna in EL Decider**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/40166/gasperini-previews-do-or-die-fixture-against-bologna-in-el-decider)
+- **Preview: Roma vs Bologna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/roma/europa-league/preview/roma-vs-bologna-prediction-team-news-lineups_593986.html)
+- **Roma v Bologna: info for Giallorossi fans**: [Link](https://www.asroma.com/en/news/75070/roma-v-bologna-info-for-giallorossi-fans)
+
+
+### حالة الطقس (N/A, Thu, 19 Mar 2026 12:30:00 -0700)
+
+- **«المراويح» تربك حسابات العيد.. الزعاق يحذر من غسل الأحواش والسيارات**: [Link](https://www.jehat.net/?act=artc&id=134487)
+- **عواصف وأمطار رعدية.. السبت ذروة التقلبات الجوية.. فيديو**: [Link](https://www.youm7.com/story/2026/3/19/%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%B0%D8%B1%D9%88%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88/7347385)
+- **عاجل| رمال وأتربة وأمطار.. اعرف طقس أيام العيد وموعد استقراره**: [Link](https://www.elwatannews.com/news/details/8249562)
+
+
+### اخبار اليوم (N/A, Thu, 19 Mar 2026 12:30:00 -0700)
+
+- **يحيا الهلال مع الصليب| مايسة وبشرى.. شراكة لتجهيز العرائس اليتيمات**: [Link](https://akhbarelyom.com/news/newdetails/4792139/1/%D9%8A%D8%AD%D9%8A%D8%A7-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%85%D8%B9-%D8%A7%D9%84%D8%B5%D9%84%D9%8A%D8%A8-%D9%85%D8%A7%D9%8A%D8%B3%D8%A9-%D9%88%D8%A8%D8%B4%D8%B1%D9%89-%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-)
+- **غارات إسرائيلية جنوب لبنان وحزب الله يقصف كريات شمونة**: [Link](https://www.aljazeera.net/news/2026/3/19/%D9%84%D8%A8%D9%86%D8%A7%D9%86-115)
+- **غارتان إسرائيليتان تستهدفان عناصر من الجيش اللبناني وتوقعان قتلى وجرحى**: [Link](https://arabic.euronews.com/2026/03/17/two-israeli-airstrikes-target-lebanese-army-personnel-causing-deaths-and-injuries)
+
+
+### aston villa – lille (N/A, Thu, 19 Mar 2026 12:20:00 -0700)
+
+- **Señor Florero Grande’s Chance to Lead Aston Villa to Europa League Success**: [Link](https://news.ssbcrack.com/senor-florero-grandes-chance-to-lead-aston-villa-to-europa-league-success/)
+- **McGinn: Villa players must inspire fans' atmosphere**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-mcginn-villa-players-must-inspire-fans-atmosphere-9be74e5e-0e1c-45ff-bb0f-32db5f5f586f)
+- **Aston Villa vs Lille LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/03/19/1254587-aston-villa-vs-lille-live-score-europa-league.html)
+
+
+### عيد فطر سعيد (N/A, Thu, 19 Mar 2026 12:20:00 -0700)
+
+- **جلالة الملك يصدر عفوه السامي على 1201 شخصا بمناسبة عيد الفطر السعيد**: [Link](https://www.mapexpress.ma/ar/actualite/%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%B9%D9%81%D9%88%D9%87-%D8%A7%D9%84%D8%B3%D8%A7%D9%85%D9%8A-%D8%B9%D9%84%D9%89-1201-%D8%B4%D8%AE%D8%B5%D8%A7/%D8%A7%D9%84%D8%A3%D9%86%D8%B4%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9/)
+- **الملك محمد السادس يصدر عفوه الملكي لفائدة 1201 شخصًا بمناسبة عيد الفطر**: [Link](https://albalad.ma/85518.html)
+- **جلالة الملك يصدر عفوه السامي على 1201 شخصا بمناسبة عيد الفطر السعيد**: [Link](https://inews.ma/news/8203529)
+
+
+### وزارة الاوقاف والشؤون الاسلامية (N/A, Thu, 19 Mar 2026 12:20:00 -0700)
+
+- **اتفاقية تعزز مجال "الأملاك الوقفية"**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%85%D8%AC%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%85%D9%84%D8%A7%D9%83-%D8%A7%D9%84%D9%88%D9%82%D9%81%D9%8A%D8%A9-1718004.html)
+- **شراكة استراتيجية لتحديث الأوقاف.. رقمنة التدبير وتسريع تحفيظ الأملاك الوقفية**: [Link](https://chouftv.ma/press/778561.html)
+- **اتفاقية جديدة لتجويد وتحديث أساليب تدبير الأوقاف العامة والحفاظ عليها**: [Link](https://ar.le360.ma/societe/P7M5G63SHJD3DCDRQVWKZJVB4Q/)
+
+
+### صلاة العيد (N/A, Thu, 19 Mar 2026 12:20:00 -0700)
+
+- **المساجد الجامعة تأوي المصلين بالعيد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%AC%D8%AF-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%A3%D9%88%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D9%84%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-1718170.html)
+- **الاضطرابات الجوية تدفع سلطات سبتة إلى إلغاء صلاة العيد بالمصلى ونقلها للمساجد**: [Link](https://al3omk.com/1146217.html)
+- **عيد الفطر بمراكش.. المندوبية الإقليمية تعتمد 12 مصلى رسمياً وتحدد السابعة صباحاً موعداً للصلاة**: [Link](https://www.marrakechalaan.com/article-670895)
+
+
 ### midtjylland – nottm forest (N/A, Thu, 19 Mar 2026 11:40:00 -0700)
 
 - **Terrific trio could be FC Midtjylland's key to fulfilling Europa League title dream**: [Link](https://www.flashscore.com/news/soccer-europa-league-terrific-trio-could-be-fc-midtjylland-s-key-to-fulfilling-europa-league-title-dream/lb2bsQcm/)
