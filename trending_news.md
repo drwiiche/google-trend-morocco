@@ -1,3 +1,10 @@
+### الهلال (N/A, Wed, 18 Mar 2026 15:00:00 -0700)
+
+- **فيديو: رقم خرافي.. رئيس الهلال يكشف حجم تبرعات الوليد بن طلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B1%D9%82%D9%85-%D8%AE%D8%B1%D8%A7%D9%81%D9%8A--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D8%AC%D9%85-%D8%AA%D8%A8%D8%B1%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%84%D9%8A%D8%AF-%D8%A8%D9%86-%D8%B7%D9%84%D8%A7%D9%84/blt18b88d240e7e0d6a)
+- **خرب المباراة.. نواف بن سعد يهاجم حكم كلاسيكو الأهلي والهلال (فيديو)**: [Link](https://www.eremnews.com/sports/9zl8wst)
+- **الهريفي يعلق على صورة تجمع الوليد بن طلال مع المدرب إنزاغي ورئيس الهلال نواف بن سعد**: [Link](https://sport.al-marsd.com/article/258812//%D8%A7%D9%84%D9%87%D8%B1%D9%8A%D9%81%D9%8A-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%B5%D9%88%D8%B1%D8%A9-%D8%AA%D8%AC%D9%85%D8%B9-%D8%A7%D9%84%D9%88%D9%84%D9%8A%D8%AF-%D8%A8%D9%86-%D8%B7%D9%84%D8%A7%D9%84-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A5%D9%86%D8%B2%D8%A7%D8%BA%D9%8A-%D9%88%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%86%D9%88%D8%A7%D9%81-%D8%A8%D9%86-%D8%B3%D8%B9%D8%AF-/)
+
+
 ### inter miami – nashville (N/A, Thu, 19 Mar 2026 01:30:00 -0700)
 
 - **'One of a kind' Messi hits 900 career goals - numbers behind milestone**: [Link](https://www.bbc.com/sport/football/articles/c0rj25g225ro)
