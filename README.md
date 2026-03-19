@@ -1,3 +1,10 @@
+### inter miami – nashville (N/A, Thu, 19 Mar 2026 01:30:00 -0700)
+
+- **'One of a kind' Messi hits 900 career goals - numbers behind milestone**: [Link](https://www.bbc.com/sport/football/articles/c0rj25g225ro)
+- **Nashville HC calls Messi ‘the best’ as Inter Miami star reaches 900 career goals despite elimination**: [Link](https://bolavip.com/en/soccer/nashville-hc-calls-messi-the-best-as-inter-miami-star-reaches-900-career-goals-despite-elimination)
+- **Magic Johnson Praises Messi and Ronaldo After Lionel Reaches 900th Goal**: [Link](https://nationaltoday.com/us/ca/los-angeles/news/2026/03/19/magic-johnson-praises-messi-and-ronaldo-after-lionel-reaches-900th-goal/)
+
+
 ### épidémie méningite (N/A, Wed, 18 Mar 2026 22:30:00 -0700)
 
 - **"C'est arrivé si vite": en Angleterre, la panique d'étudiants face à une épidémie de méningite**: [Link](https://medias24.com/agence-presse/cest-arrive-si-vite-en-angleterre-la-panique-detudiants-face-a-une-epidemie-de-meningite/)
