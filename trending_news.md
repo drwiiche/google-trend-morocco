@@ -1,3 +1,10 @@
+### claude le roy (N/A, Wed, 18 Mar 2026 23:10:00 -0700)
+
+- **VIDÉO : Déclaration du Président de la CAF, Dr Patrice Motsepe**: [Link](https://www.cafonline.com/fr/infos/video-declaration-du-president-de-la-caf-dr-patrice-motsepe/)
+- **Sénégal-Maroc: La finale finalement à rejouer ?**: [Link](https://www.sports.fr/football/can/senegal-maroc-la-finale-finalement-a-rejouer-999561.html)
+- **Finale de la CAN 2025 : pourquoi les arguments de la FRMF tiennent juridiquement**: [Link](https://ledesk.ma/2026/03/19/finale-de-la-can-2025-pourquoi-les-arguments-de-la-frmf-tiennent-juridiquement/)
+
+
 ### secousse sismique maroc (N/A, Wed, 18 Mar 2026 21:30:00 -0700)
 
 - **Légère secousse au détroit de Gibraltar, ressentie dans certaines villes du Royaume**: [Link](https://ledesk.ma/encontinu/legere-secousse-au-detroit-de-gibraltar-ressentie-dans-certaines-villes-du-royaume/)
