@@ -1,3 +1,10 @@
+### secousse sismique maroc (N/A, Wed, 18 Mar 2026 21:30:00 -0700)
+
+- **Légère secousse au détroit de Gibraltar, ressentie dans certaines villes du Royaume**: [Link](https://ledesk.ma/encontinu/legere-secousse-au-detroit-de-gibraltar-ressentie-dans-certaines-villes-du-royaume/)
+- **Un séisme de magnitude 4,4 ressenti dans plusieurs villes au Maroc**: [Link](https://lematin.ma/regions/un-seisme-de-magnitude-44-ressenti-dans-plusieurs-villes-au-maroc/335515)
+- **Légère secousse sismique de magnitude 2,9 près de Midelt ressentie dans plusieurs villes**: [Link](https://mobile.telquel.ma/instant-t/2026/03/18/legere-secousse-sismique-de-magnitude-29-pres-de-midelt-ressentie-dans-plusieurs-villes_1979482/)
+
+
 ### ramadan aid el fitr 2026 (N/A, Wed, 18 Mar 2026 17:40:00 -0700)
 
 - **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
