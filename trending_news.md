@@ -1,3 +1,17 @@
+### ramadan aid el fitr 2026 (N/A, Wed, 18 Mar 2026 17:40:00 -0700)
+
+- **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
+- **Fin du Ramadan 2026 : la date de l'Aïd el-Fitr, la grande fête musulmane, désormais connue**: [Link](https://www.rtl.fr/actu/debats-societe/fin-du-ramadan-2026-la-date-de-l-aid-el-fitr-la-grande-fete-musulmane-desormais-connue-7900613803)
+- **Fin du ramadan : quelle date pour l’Aïd el-Fitr ? Les musulmans de France attendent le verdict de la Grande Mosquée de Paris**: [Link](https://www.sudouest.fr/societe/religion/fin-du-ramadan-quelle-date-pour-l-aid-el-fitr-les-musulmans-de-france-attendent-le-verdict-de-la-grande-mosquee-de-paris-28336123.php)
+
+
+### أتلتيكو مدريد (N/A, Wed, 18 Mar 2026 14:10:00 -0700)
+
+- **3 مواجهات في 10 أيام.. حرب تكسير عظام بين برشلونة وأتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/3-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%81%D9%8A-10-%D8%A7%D9%94%D9%8A%D8%A7%D9%85--%D8%AD%D8%B1%D8%A8-%D8%AA%D9%83%D8%B3%D9%8A%D8%B1-%D8%B9%D8%B8%D8%A7%D9%85-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blte03c72082293e051)
+- **أتلتيكو وبرشلونة مُهددان بخسارة عدة نجوم في ربع نهائي الأبطال**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%8F%D9%87%D8%AF%D8%AF%D8%A7%D9%86-%D8%A8%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%B9%D8%AF%D8%A9-%D9%86%D8%AC%D9%88%D9%85-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **فيرمين: لا يوجد أي دافع للانتقام من أتلتيكو**: [Link](https://hihi2.com/2026/03/18/p3693730.html)
+
+
 ### san isidro (N/A, Wed, 18 Mar 2026 17:10:00 -0700)
 
 - **Ataque sicario en San Isidro: ajuste de cuentas, muerte, detención, fuga y secuestro de dispositivos**: [Link](https://www.canalnet.tv/programas/que-te-pasa/ataque-sicario-en-san-isidro-ajuste-de-cuentas-muerte-detencion-fuga-y-secuestro-de-dispositivos_20260318/)
