@@ -1,3 +1,10 @@
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Thu, 19 Mar 2026 05:00:00 -0700)
+
+- **اتفاقية تعزز مجال "الأملاك الوقفية"**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%85%D8%AC%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%85%D9%84%D8%A7%D9%83-%D8%A7%D9%84%D9%88%D9%82%D9%81%D9%8A%D8%A9-1718004.html)
+- **شراكة استراتيجية لتحديث الأوقاف.. رقمنة التدبير وتسريع تحفيظ الأملاك الوقفية**: [Link](https://chouftv.ma/press/778561.html)
+- **اتفاقية جديدة لتجويد وتحديث أساليب تدبير الأوقاف العامة والحفاظ عليها**: [Link](https://ar.le360.ma/societe/P7M5G63SHJD3DCDRQVWKZJVB4Q/)
+
+
 ### gold price (N/A, Thu, 19 Mar 2026 06:30:00 -0700)
 
 - **Gold and silver sell-off accelerates as inflation fears grip global markets**: [Link](https://www.cnbc.com/2026/03/19/gold-and-silver-sell-off-as-inflation-fears-grip-global-markets.html)
