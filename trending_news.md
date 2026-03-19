@@ -1,3 +1,17 @@
+### صلاة عيد الفطر (N/A, Thu, 19 Mar 2026 15:00:00 -0700)
+
+- **الملك يؤدي صلاة عيد الفطر بالرباط**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%A4%D8%AF%D9%8A-%D8%B5%D9%84%D8%A7%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-2-1718282.html)
+- **أمير المؤمنين يهنئ ملوك ورؤساء وأمراء الدول الإسلامية بمناسبة حلول عيد الفطر المبارك**: [Link](https://chouftv.ma/press/778627.html)
+- **برقية تهنئة إلى جلالة الملك من خادم الحرمين الشريفين بمناسبة عيد الفطر المبارك - تليكسبريس**: [Link](https://telexpresse.com/462324.html)
+
+
+### betis (N/A, Thu, 19 Mar 2026 14:50:00 -0700)
+
+- **Pellegrini: "Más que el cambio de sistema, lo que marcó diferencias fue el rendimiento de los jugadores"**: [Link](https://mundobetis.com/2026/03/20/pellegrini-mas-que-el-cambio-de-sistema-lo-que-marco-diferencias-fue-el-rendimiento-de-los-jugadores/)
+- **Betis, Aston Villa y Oporto enseñan músculo; el Bolonia acaba con el Roma**: [Link](https://www.infobae.com/espana/agencias/2026/03/19/betis-aston-villa-y-oporto-ensenan-musculo-el-bolonia-acaba-con-el-roma/)
+- **La primavera bética empieza con una fiesta en la Cartuja**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/primavera-betica-empieza-fiesta-cartuja-20260319231251-nts.html)
+
+
 ### joe kent (N/A, Thu, 19 Mar 2026 16:00:00 -0700)
 
 - **Has Candace Crossed a Catholic Line?**: [Link](https://crisismagazine.com/opinion/has-candace-crossed-a-catholic-line)
