@@ -1,3 +1,45 @@
+### midtjylland – nottm forest (N/A, Thu, 19 Mar 2026 11:40:00 -0700)
+
+- **Terrific trio could be FC Midtjylland's key to fulfilling Europa League title dream**: [Link](https://www.flashscore.com/news/soccer-europa-league-terrific-trio-could-be-fc-midtjylland-s-key-to-fulfilling-europa-league-title-dream/lb2bsQcm/)
+- **~[Here's Ways To Watch] Midtjylland v Nottm Forest ＬＩＶＥ Ｓｔｒｅａｍ Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ 20 March 2026 Free HQ0135-4584**: [Link](https://www.ica.gov.co/replicadores/noticias/video-midtjylland-v-nottm-forest-tv583307939.html)
+- **Midtjylland vs Nottingham LIVE Score Updates: The visitors win (0-2)**: [Link](https://www.vavel.com/en-us/soccer/2026/03/19/1254601-midtjylland-vs-nottingham-live-score-europa-league.html)
+
+
+### crimson desert (N/A, Thu, 19 Mar 2026 11:40:00 -0700)
+
+- **‘Crimson Desert’ Review (PC): I’ve Never Seen Anything Like This**: [Link](https://www.forbes.com/sites/paultassi/2026/03/18/crimson-desert-review-pc-ive-never-seen-anything-like-this/)
+- **Pearl Abyss Shares Plunge 29% as 'Crimson Desert' Reviews Disappoint**: [Link](https://en.sedaily.com/finance/2026/03/19/pearl-abyss-shares-plunge-29-percent-as-crimson-desert)
+- **Crimson Desert on PS5 Pro: This Is How Good It Looks And How Well It Runs**: [Link](https://www.digitalfoundry.net/features/crimson-desert-on-ps5-pro-this-is-how-good-it-looks-and-how-well-it-runs)
+
+
+### habous (N/A, Thu, 19 Mar 2026 11:30:00 -0700)
+
+- **L’ANCFCC scelle un partenariat stratégique pour la modernisation de la gestion des biens habous**: [Link](https://www.lebrief.ma/lancfcc-scelle-un-partenariat-strategique-pour-la-modernisation-de-la-gestion-des-biens-habous-100145312/)
+- **Gouvernance des biens habous : une convention pour moderniser la gestion foncière**: [Link](https://lnt.ma/gouvernance-des-biens-habous-une-convention-pour-moderniser-la-gestion-fonciere/)
+- **L'ANCFCC et le Ministère des Habous signent une convention pour accélérer l'immatriculation des biens waqf**: [Link](https://www.maroc-hebdo.com/article/ministere-des-habous-une-convention-pour-accelerer-limmatriculation-des-biens-waqf)
+
+
+### وزارة الاوقاف (N/A, Thu, 19 Mar 2026 11:10:00 -0700)
+
+- **اتفاقية تعزز مجال "الأملاك الوقفية"**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%85%D8%AC%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%85%D9%84%D8%A7%D9%83-%D8%A7%D9%84%D9%88%D9%82%D9%81%D9%8A%D8%A9-1718004.html)
+- **شراكة استراتيجية لتحديث الأوقاف.. رقمنة التدبير وتسريع تحفيظ الأملاك الوقفية**: [Link](https://chouftv.ma/press/778561.html)
+- **اتفاقية جديدة لتجويد وتحديث أساليب تدبير الأوقاف العامة والحفاظ عليها**: [Link](https://ar.le360.ma/societe/P7M5G63SHJD3DCDRQVWKZJVB4Q/)
+
+
+### تهنئة عيد الفطر (N/A, Thu, 19 Mar 2026 09:50:00 -0700)
+
+- **تهاني عيد الفطر 1447 باقة من اجمل رسائل تهنئة عيد الفطر المبارك**: [Link](https://www.rgtrustschool.net/arblog/5047/)
+- **رسائل تهنئة بمناسبة حلول العيد.. تبادلها مع أصحابك وأحبائك**: [Link](https://www.elwatannews.com/news/details/8249401)
+- **تهنئة الزوج في العيد**: [Link](https://www.egypttelegraph.com/tagnews/418010/%D8%AA%D9%87%D9%86%D8%A6%D8%A9-%D8%A7%D9%84%D8%B2%D9%88%D8%AC-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D9%8A%D8%AF/1)
+
+
+### brahim díaz (N/A, Thu, 19 Mar 2026 08:30:00 -0700)
+
+- **VIDEO RELEASE: CAF President Dr Patrice Motsepe Statement**: [Link](https://www.cafonline.com/news/video-release-caf-president-dr-patrice-motsepe-statement/)
+- **The decision to strip Senegal of AFCON title shows just how out of touch those running soccer have become**: [Link](https://www.cnn.com/2026/03/18/sport/senegal-afcon-title-morocco-final)
+- **Afcon 2025: Senegal's title being handed to Morocco 'has to be denounced', says Caf executive**: [Link](https://www.bbc.com/sport/football/articles/ckg1gg5pgl7o)
+
+
 ### lyon – celta vigo (N/A, Thu, 19 Mar 2026 10:10:00 -0700)
 
 - **Preview: Lyon vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lyon/europa-league/preview/lyon-vs-celta-vigo-prediction-team-news-lineups_594037.html)
