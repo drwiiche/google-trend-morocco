@@ -1,3 +1,31 @@
+### gold price (N/A, Thu, 19 Mar 2026 06:30:00 -0700)
+
+- **Gold and silver sell-off accelerates as inflation fears grip global markets**: [Link](https://www.cnbc.com/2026/03/19/gold-and-silver-sell-off-as-inflation-fears-grip-global-markets.html)
+- **Gold And Silver Prices Hit One-Month Lows—Here’s Why Iran War Isn’t Raising Metals Prices**: [Link](https://www.forbes.com/sites/conormurray/2026/03/18/gold-and-silver-prices-hit-one-month-lows-heres-why-iran-war-isnt-raising-metals-prices/)
+- **Gold price today, Thursday, March 19: Gold moves lower following Fed decision**: [Link](https://finance.yahoo.com/personal-finance/investing/article/gold-price-today-thursday-march-19-gold-moves-lower-following-fed-decision-110052314.html)
+
+
+### yassine gessime (N/A, Thu, 19 Mar 2026 06:20:00 -0700)
+
+- **Football. Gessime Yassine, une résilience à toute épreuve**: [Link](https://medias24.com/2026/03/18/football-gessime-yassine-une-resilience-a-toute-epreuve-1645001/)
+- **Le Barça sur les traces de la pépite marocaine du RC Strasbourg**: [Link](https://www.sport.fr/football/le-barca-sur-les-traces-de-la-pepite-marocaine-du-rc-strasbourg-1433888.shtm)
+- **Gessime Yassine attire l’attention d’un géant européen**: [Link](https://lionsdelatlas.ma/gessime-yassine-attire-lattention-dun-geant-europeen/)
+
+
+### لائحة المنتخب المغربي (N/A, Thu, 19 Mar 2026 06:20:00 -0700)
+
+- **أول لائحة لوهبي مع المنتخب.. وجوه جديدة في وديتي الإكوادور والباراغواي**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%84-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D9%84%D9%88%D9%87%D8%A8%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%88%D8%AC%D9%88%D9%87-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-1717925.html)
+- **دياز وعيسى ديوب ومفاجآت.. وهبي يعلن قائمة المغرب لمعسكر مارس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%A7%D8%B2-%D9%88%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D9%88%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%93%D8%AA--%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%85%D8%A7%D8%B1%D8%B3/blt165bae7f8ee567a2)
+- **وهبي يتحفظ عن تبرير غياب زياش ويوضح بخصوص ملف بوعدي**: [Link](https://www.hesport.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AA%D8%AD%D9%81%D8%B8-%D8%B9%D9%86-%D8%AA%D8%A8%D8%B1%D9%8A%D8%B1-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%88%D9%8A%D9%88%D8%B6%D8%AD-%D8%A8%D8%AE%D8%B5-431501.html)
+
+
+### مقدار زكاة الفطر (N/A, Thu, 19 Mar 2026 05:10:00 -0700)
+
+- **عبقرية صاع زكاة الفطر**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D8%A3%D9%8A/%D8%B9%D8%A8%D9%82%D8%B1%D9%8A%D8%A9-%D8%B5%D8%A7%D8%B9-%D8%B2%D9%83%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-7851)
+- **متى تخرج زكاة الفطر؟ وحكم تقديمها قبل العيد**: [Link](https://al-ain.com/article/zakat-alfitr-rulings-timing)
+- **زكاة الفطر.. طعام أم نقد؟ جدل بين السنة والمنفعة لدى المغاربة**: [Link](https://al3omk.com/1145818.html)
+
+
 ### عيسى ديوب (N/A, Thu, 19 Mar 2026 05:40:00 -0700)
 
 - **عيسى ديوب يختار المنتخب المغربي**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1715726.html)
