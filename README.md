@@ -1,3 +1,24 @@
+### san isidro (N/A, Wed, 18 Mar 2026 17:10:00 -0700)
+
+- **Ataque sicario en San Isidro: ajuste de cuentas, muerte, detención, fuga y secuestro de dispositivos**: [Link](https://www.canalnet.tv/programas/que-te-pasa/ataque-sicario-en-san-isidro-ajuste-de-cuentas-muerte-detencion-fuga-y-secuestro-de-dispositivos_20260318/)
+- **Conmoción en Beccar: un barrio en alerta mientras sigue la búsqueda del sicario del BMW**: [Link](https://zonales.com/conmocion-beccar-san-isidro-sicario-bmw/)
+- **Negocios en el exterior y una deuda de 60 mil dólares: la versión del detenido por el crimen en San Isidro**: [Link](https://www.clarin.com/policiales/negocios-exterior-deuda-60-mil-dolares-version-detenido-crimen-san-isidro_0_PSSKuPuMcw.html)
+
+
+### crimson desert (N/A, Wed, 18 Mar 2026 16:00:00 -0700)
+
+- **Crimson Desert on PS5 Pro: This Is How Good It Looks And How Well It Runs**: [Link](https://www.digitalfoundry.net/features/crimson-desert-on-ps5-pro-this-is-how-good-it-looks-and-how-well-it-runs)
+- **Crimson Desert is on track for a killer launch**: [Link](https://alineaanalytics.substack.com/p/crimson-desert-is-on-track-for-a)
+- **Does Crimson Desert Have Denuvo? Crimson Desert DRM Status, Explained**: [Link](https://insider-gaming.com/crimson-desert-denuvo-drm/)
+
+
+### المنتخب السنغالي (N/A, Wed, 18 Mar 2026 13:10:00 -0700)
+
+- **موتسيبي يشجع اللجوء إلى "الطاس"**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%8A%D8%B4%D8%AC%D8%B9-%D8%A7%D9%84%D9%84%D8%AC%D9%88%D8%A1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-1717819.html)
+- **"من أجل النزاهة والعدالة".. أول تعليق رسمي للاتحاد المغربي بعد التتويج الإفريقي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%A7%D9%94%D8%AC%D9%84-%D8%A7%D9%84%D9%86%D8%B2%D8%A7%D9%87%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%AF%D8%A7%D9%84%D8%A9--%D8%A7%D9%94%D9%88%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%84%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A/blt8299973a03ebe484)
+- **منح المغرب لقب أمم أفريقيا بعد سحبه من السنغال يثير انقساما بالمنصات**: [Link](https://www.aljazeera.net/sport/2026/3/18/%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%82%D8%A8-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%B3%D8%AD%D8%A8%D9%87-%D9%85%D9%86)
+
+
 ### وننسى اللي كان (N/A, Wed, 18 Mar 2026 16:30:00 -0700)
 
 - **بتساؤلات محيرة.. مؤلف "وننسى اللي كان" يشوق جمهوره حول النهاية**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/18/%D9%85%D8%A4%D9%84%D9%81-%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D9%88%D9%82-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D8%A9%D9%8A%D8%A7%D8%AA%D8%B1%D9%89-%D8%AD%D8%AF-%D9%87%D9%8A%D9%85%D9%88%D8%AA-)
