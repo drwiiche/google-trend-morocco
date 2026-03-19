@@ -1,3 +1,52 @@
+### الطقس غدا (N/A, Thu, 19 Mar 2026 15:30:00 -0700)
+
+- **عيد الفطر على وقع اضطرابات جوية: أمطار ورياح وانخفاض في الحرارة**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D9%88%D9%82%D8%B9-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88-1717995.html)
+- **طقس بارد وأجواء غائمة اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE/)
+- **نشرة إنذارية: زخات رعدية وهبات رياح قوية يومي الأربعاء والخميس**: [Link](https://ar.hibapress.com/details-711335.html)
+
+
+### صلاة العيد في المغرب (N/A, Thu, 19 Mar 2026 15:20:00 -0700)
+
+- **المساجد الجامعة تأوي المصلين بالعيد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%AC%D8%AF-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%A3%D9%88%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D9%84%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-1718170.html)
+- **الدار البيضاء.. تحديد موعد ومكان صلاة عيد الفطر بعين السبع الحي المحمدي**: [Link](https://ar.hibapress.com/details-711749.html)
+- **طنجة تلغي اعتماد مصليات عيد الفطر وتوجه المصلين للمساجد الجامعة بسبب الأحوال الجوية**: [Link](https://tanja24.com/%D8%B7%D9%86%D8%AC%D8%A9-%D8%AA%D9%84%D8%BA%D9%8A-%D8%A7%D8%B9%D8%AA%D9%85%D8%A7%D8%AF-%D9%85%D8%B5%D9%84%D9%8A%D8%A7%D8%AA-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%88%D8%AA%D9%88%D8%AC/)
+
+
+### conference league (N/A, Thu, 19 Mar 2026 15:20:00 -0700)
+
+- **AEK Larnaca 1-2 Crystal Palace (1-2 on agg): Ismaila Sarr scores twice to book last-eight spot**: [Link](https://www.bbc.com/sport/football/live/c5yqnegjv2xt)
+- **Crystal Palace in Europa League quarters a 'huge achievement' - Oliver Glasner**: [Link](https://www.espn.com/soccer/story/_/id/48252658/crystal-palace-europa-league-quarters-huge-achievement-oliver-glasner)
+- **'Different to the Premier League' - Wharton on beating 'low block'**: [Link](https://www.tntsports.co.uk/football/uefa-conference-league/2025-2026/different-to-the-premier-league-adam-wharton-on-how-crystal-palace-can-break-down-low-block-in-uefa-conference-league_vid60064186/video.shtml)
+
+
+### roma (N/A, Thu, 19 Mar 2026 15:00:00 -0700)
+
+- **Europa Leagu: in campo Roma-Bologna 3-4, si giocano i supplementari DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/03/19/europa-leagu-in-campo-roma-bologna-3-4-si-giocano-i-supplementari-diretta-e-foto_be67c29d-a72a-4d9e-8ea7-495cb57154b4.html)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-in-campo-roma-bologna-1-2/M99lDRy2/)
+- **Bar Carlino è una festa: la notte delle stelle, tra musica e pallone. “È bello essere qui”**: [Link](https://www.ilrestodelcarlino.it/bologna/sport/barcarlino/bar-carlino-roma-bologna-t94m3q6i)
+
+
+### pearl harbor (N/A, Thu, 19 Mar 2026 14:50:00 -0700)
+
+- **Trump Jokes About Pearl Harbor in Meeting With Japan’s Leader**: [Link](https://www.nytimes.com/2026/03/19/us/politics/trump-japan-pearl-harbor-oval-office-takaichi.html)
+- **Watch: Trump compares attack on Iran to Pearl Harbor in meeting with Japanese PM**: [Link](https://www.bbc.com/news/videos/cx248jvgwj8o)
+- **Japanese leader faces a 'very difficult' meeting with Trump as he presses for help with Iran**: [Link](https://www.nbcnews.com/world/asia/iran-war-trump-japan-prime-minister-takaichi-white-house-rcna264247)
+
+
+### أستون فيلا ضد ليل (N/A, Thu, 19 Mar 2026 14:10:00 -0700)
+
+- **الفرق المؤكدة والتشكيلات الكاملة في الدوري الأوروبي والقناة التلفزيونية والبث المباشر**: [Link](https://albalad.news/sport/%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D9%85%D8%A4%D9%83%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7/395897/)
+- **توقعات مباراة أستون فيلا ضد ليل، الساعة 3:00 صباحاً، 20 مارس: فيلا بارك - فوز صعب خارج الديار.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-aston-villa-vs-lille-3h00-ngay-20-3-villa-park-di-de-kho-ve)
+- **ايمري يشدد على أهمية الاستمرارية قبل مواجهة ليل في الدوري الأوروبي**: [Link](https://mangish.net/%D8%A7%D9%8A%D9%85%D8%B1%D9%8A-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%A3%D9%87%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%85/)
+
+
+### météo pour demain (N/A, Thu, 19 Mar 2026 13:50:00 -0700)
+
+- **"Des propos inacceptables": Bruno Retailleau demande au maire LR d'Arcachon de présenter des excuses après des menaces contre son rival écologiste**: [Link](https://www.bfmtv.com/politique/elections/municipales/des-propos-inacceptables-bruno-retailleau-demande-au-maire-lr-d-arcachon-de-presenter-des-excuses-apres-des-menaces-contre-son-rival-ecologiste_AV-202603180368.html)
+- **« Je vais tout faire pour vous baiser » : après les injures et les menaces, le maire d’Arcachon visé par une enquête**: [Link](https://rue89bordeaux.com/2026/03/je-vais-tout-faire-pour-vous-baiser-apres-les-injures-et-les-menaces-le-maire-darcachon-vise-par-une-enquete/)
+- **Le Récap Gironde : les 5 infos à retenir ce mercredi 18 mars**: [Link](https://www.sudouest.fr/gironde/le-recap-gironde-les-5-infos-a-retenir-ce-mercredi-18-mars-28341260.php)
+
+
 ### europa league (N/A, Thu, 19 Mar 2026 14:20:00 -0700)
 
 - **Midtjylland 1-2 Nottingham Forest (0-3 on pens): Reds reach Europa League quarter-finals**: [Link](https://www.bbc.com/sport/football/live/c8r1zve354lt)
