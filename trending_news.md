@@ -1,3 +1,10 @@
+### galatasaray (N/A, Wed, 18 Mar 2026 13:40:00 -0700)
+
+- **Hasan Şaş'tan Osimhen'in sakatlığı sonrası Galatasaray için bomba Süper Lig iddiası**: [Link](https://www.ntvspor.net/foto-galeri/hasan-sastan-osimhenin-sakatligi-sonrasi-galatasaray-icin-bomba-super-lig-iddiasi-419565)
+- **19 Mart Perşembe DHA Spor Gündemi**: [Link](https://www.dha.com.tr/yerel-haberler/istanbul/19-mart-persembe-dha-spor-gundemi-2839252)
+- **Okan Buruk: "Bizim için maçın en büyük kırılma anıydı"**: [Link](https://beinsports.com.tr/haber/okan-buruk-bizim-icin-macin-en-buyuk-kirilma-aniydi)
+
+
 ### claude le roy (N/A, Wed, 18 Mar 2026 23:10:00 -0700)
 
 - **VIDÉO : Déclaration du Président de la CAF, Dr Patrice Motsepe**: [Link](https://www.cafonline.com/fr/infos/video-declaration-du-president-de-la-caf-dr-patrice-motsepe/)
