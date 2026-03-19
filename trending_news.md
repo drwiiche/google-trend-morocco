@@ -1,3 +1,38 @@
+### عيسى ديوب (N/A, Thu, 19 Mar 2026 05:40:00 -0700)
+
+- **عيسى ديوب يختار المنتخب المغربي**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1715726.html)
+- **بوعدي يترك الباب مفتوحا: هل يختار منتخب المغرب أم فرنسا؟**: [Link](https://www.aljazeera.net/sport/2026/3/16/%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%8A%D8%AA%D8%B1%D9%83-%D8%A7%D9%84%D8%A8%D8%A7%D8%A8-%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A7-%D9%87%D9%84-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8)
+- **فيديو: مباشر/ عودة الكاس إلى المغرب تخرج الفيران من الغيران / موتسيبي يتعهد بالعهد الجديد**: [Link](https://www.almountakhab.com/node/16223677)
+
+
+### equipe maroc (N/A, Thu, 19 Mar 2026 05:30:00 -0700)
+
+- **Conférence de presse de l’entraîneur Mohamed Ouahbi**: [Link](https://frmf.ma/fr/%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-2/)
+- **Et maintenant, on fait quoi? On rappelle Regragui?**: [Link](https://fr.le360.ma/sports/et-maintenant-on-fait-quoi-on-rappelle-regragui_GMS4CCGUWRCKNDL25TLB5K5GCY/)
+- **Mohammed Ouahbi dévoile sa liste pour les matchs amicaux contre l'Équateur et le Paraguay**: [Link](http://ledesk.ma/encontinu/mohammed-ouahbi-devoile-sa-liste-pour-les-matchs-amicaux-contre-lequateur-et-le-paraguay/)
+
+
+### match maroc (N/A, Thu, 19 Mar 2026 05:20:00 -0700)
+
+- **CAN 2025 : une victoire à la Pyrrhus pour Fouzi Lekjaa, patron du football marocain**: [Link](https://www.lemonde.fr/afrique/article/2026/03/19/can-2025-une-victoire-a-la-pyrrhus-pour-fouzi-lekjaa-patron-du-football-marocain_6672385_3212.html)
+- **CAN 2025 : Yassine Bounou réagit au sacre du Maroc**: [Link](https://www.footmercato.net/a8522889228247596131-can-2025-yassine-bounou-reagit-au-sacre-du-maroc)
+- **Finale de la CAN 2025 : pourquoi les arguments de la FRMF tiennent juridiquement**: [Link](https://ledesk.ma/2026/03/19/finale-de-la-can-2025-pourquoi-les-arguments-de-la-frmf-tiennent-juridiquement/)
+
+
+### issa diop (N/A, Thu, 19 Mar 2026 05:10:00 -0700)
+
+- **Issa Diop | Does His Future Lie Elsewhere? | West Ham Player Profiles [870328]**: [Link](https://fathomjournal.org/8cdb63efsmm/f3dc3c92-bZCdBOiQnp8.html)
+- **FIFA WC 2026: Why Morocco doesn’t need Issa Diop**: [Link](https://sportnewsafrica.com/articles/fifa-wc-2026-why-morocco-doesnt-need-issa-diop)
+- **Issa Diop heading to Morocco, FRMF close to finalizing a new deal**: [Link](https://mountakhab.net/en/issa-diop-heading-to-morocco-frmf-close-to-finalizing-a-new-deal/)
+
+
+### openai (N/A, Thu, 19 Mar 2026 01:40:00 -0700)
+
+- **Microsoft weighs legal action over $50bn Amazon-OpenAI cloud deal**: [Link](https://www.ft.com/content/e814f4c3-4fb5-4e2e-90a6-470044436b39?syn-25a6b1a6=1)
+- **Microsoft Grows Concerned That OpenAI-AWS Product May Violate Azure Contract**: [Link](https://www.theinformation.com/briefings/microsoft-grows-concerned-openai-aws-product-may-violate-azure-contract)
+- **Big Tech companies are now racing to see who can build the best AI coworker**: [Link](https://sherwood.news/tech/big-tech-companies-are-now-racing-to-see-who-can-build-the-best-ai-coworker/)
+
+
 ### can 2025 maroc sénégal caf (N/A, Thu, 19 Mar 2026 04:30:00 -0700)
 
 - **CAN 2025 : une victoire à la Pyrrhus pour Fouzi Lekjaa, patron du football marocain**: [Link](https://www.lemonde.fr/afrique/article/2026/03/19/can-2025-une-victoire-a-la-pyrrhus-pour-fouzi-lekjaa-patron-du-football-marocain_6672385_3212.html)
