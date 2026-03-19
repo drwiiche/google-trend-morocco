@@ -1,3 +1,10 @@
+### europa league (N/A, Thu, 19 Mar 2026 14:20:00 -0700)
+
+- **Midtjylland 1-2 Nottingham Forest (0-3 on pens): Reds reach Europa League quarter-finals**: [Link](https://www.bbc.com/sport/football/live/c8r1zve354lt)
+- **Terrific trio could be FC Midtjylland's key to fulfilling Europa League title dream**: [Link](https://www.tribalfootball.com/article/soccer-europa-league-terrific-trio-could-be-fc-midtjylland-s-key-to-fulfilling-europa-league-title-dream-e780ed82-f1e0-4ad2-bf6a-93ee25bdcfa3)
+- **Forest analysis - Changes made but European journey goes on**: [Link](https://www.aol.com/articles/forest-analysis-changes-made-european-212352224.html)
+
+
 ### real betis (N/A, Thu, 19 Mar 2026 14:30:00 -0700)
 
 - **Betis - Panathinaikos hoy, en directo: octavos de final de la Europa League, en vivo**: [Link](https://as.com/futbol/uefa/betis-panathinaikos-en-directo-octavos-europa-league-hoy-en-vivo-f202603-d/)
