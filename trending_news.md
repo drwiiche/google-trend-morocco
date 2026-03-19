@@ -1,3 +1,10 @@
+### épidémie méningite (N/A, Wed, 18 Mar 2026 22:30:00 -0700)
+
+- **"C'est arrivé si vite": en Angleterre, la panique d'étudiants face à une épidémie de méningite**: [Link](https://medias24.com/agence-presse/cest-arrive-si-vite-en-angleterre-la-panique-detudiants-face-a-une-epidemie-de-meningite/)
+- **Ce qu’il faut savoir sur l’épidémie de méningite B au Royaume-Uni**: [Link](https://fr.euronews.com/sante/2026/03/18/ce-quil-faut-savoir-sur-lepidemie-de-meningite-b-au-royaume-uni)
+- **RMC Santé - Méningite : Reconnaître les signes qui doivent alerter**: [Link](https://rmc.bfmtv.com/actualites/societe/video-rmc-sante-meningite-reconnaitre-les-signes-qui-doivent-alerter_VN-202603190205.html)
+
+
 ### galatasaray (N/A, Wed, 18 Mar 2026 13:40:00 -0700)
 
 - **Hasan Şaş'tan Osimhen'in sakatlığı sonrası Galatasaray için bomba Süper Lig iddiası**: [Link](https://www.ntvspor.net/foto-galeri/hasan-sastan-osimhenin-sakatligi-sonrasi-galatasaray-icin-bomba-super-lig-iddiasi-419565)
