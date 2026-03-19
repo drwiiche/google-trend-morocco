@@ -1,3 +1,17 @@
+### عيد سعيد (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
+
+- **الملك يؤدي صلاة عيد الفطر بالرباط**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%A4%D8%AF%D9%8A-%D8%B5%D9%84%D8%A7%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-2-1718282.html)
+- **مُصليات العيد بالمغرب.. فضاءات للتراحم**: [Link](https://kech24.com/%D9%85%D9%8F%D8%B5%D9%84%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D8%B6%D8%A7%D8%A1%D8%A7%D8%AA-%D9%84%D9%84%D8%AA%D8%B1%D8%A7%D8%AD%D9%85.html)
+- **أمير المؤمنين الملك محمد السادس يؤدي صلاة عيد الفطر غدا الجمعة بمسجد أهل فاس بالرباط**: [Link](https://inews.ma/news/8203580)
+
+
+### الاوقاف والشؤون الاسلامية (N/A, Thu, 19 Mar 2026 12:30:00 -0700)
+
+- **اتفاقية تعزز مجال "الأملاك الوقفية"**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%85%D8%AC%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%85%D9%84%D8%A7%D9%83-%D8%A7%D9%84%D9%88%D9%82%D9%81%D9%8A%D8%A9-1718004.html)
+- **شراكة استراتيجية لتحديث الأوقاف.. رقمنة التدبير وتسريع تحفيظ الأملاك الوقفية**: [Link](https://chouftv.ma/press/778561.html)
+- **اتفاقية جديدة لتجويد وتحديث أساليب تدبير الأوقاف العامة والحفاظ عليها**: [Link](https://ar.le360.ma/societe/P7M5G63SHJD3DCDRQVWKZJVB4Q/)
+
+
 ### rayo – samsunspor (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
 
 - **Yüreğimiz Madrid'de atacak: Temsilcimiz Samsunspor Avrupa mesaisinde: Muhtemel 11'ler**: [Link](https://www.yenicaggazetesi.com/yuregimiz-madridde-atacak-temsilcimiz-samsunspor-avrupa-mesaisinde-muhtemel-11ler-1010556h.htm)
