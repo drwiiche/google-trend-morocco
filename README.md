@@ -1,3 +1,38 @@
+### sadio mané (N/A, Thu, 19 Mar 2026 09:50:00 -0700)
+
+- **VIDEO RELEASE: CAF President Dr Patrice Motsepe Statement**: [Link](https://www.cafonline.com/news/video-release-caf-president-dr-patrice-motsepe-statement/)
+- **The decision to strip Senegal of AFCON title shows just how out of touch those running soccer have become**: [Link](https://www.cnn.com/2026/03/18/sport/senegal-afcon-title-morocco-final)
+- **Afcon 2025: Senegal's title being handed to Morocco 'has to be denounced', says Caf executive**: [Link](https://www.bbc.com/sport/football/articles/ckg1gg5pgl7o)
+
+
+### when is eid (N/A, Thu, 19 Mar 2026 09:40:00 -0700)
+
+- **Several Arab countries announce Friday as first day of Eid al-Fitr**: [Link](https://en.hespress.com/134001-several-arab-countries-announce-friday-as-first-day-of-eid-al-fitr.html)
+- **When is Eid al-Fitr 2026? Saudi Arabia confirms end of Ramadan**: [Link](https://www.dispatch.com/story/lifestyle/faith/2026/03/18/ramadan-over-saudi-arabia-confirms-eid-al-fitr-2026/89208174007/)
+- **Grand Mosque of Paris Confirms Friday as Eid Al Fitr 2026 in France**: [Link](https://www.moroccoworldnews.com/2026/03/283228/grand-mosque-of-paris-confirms-friday-as-eid-al-fitr-2026-in-france/)
+
+
+### alerte météo maroc (N/A, Thu, 19 Mar 2026 08:20:00 -0700)
+
+- **Averses orageuses et fortes rafales de vent, mercredi et jeudi, dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/averses-orageuses-et-fortes-rafales-de-vent-mercredi-et-jeudi-dans-plusieurs-provinces/)
+- **Temps instable, pluies et baisse des températures attendus cette semaine**: [Link](https://medias24.com/2026/03/18/temps-instable-pluies-et-baisse-des-temperatures-attendus-cette-semaine-1645419/)
+- **Temps instable, pluies et chutes de neige prévus jusqu’au week-end dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/pluies-et-chutes-de-neige-prevues-jusquau-week-end/335763)
+
+
+### المؤسس اورهان (N/A, Thu, 19 Mar 2026 07:40:00 -0700)
+
+- **مواعيد وقنوات عرض مسلسل أورهان الحلقة 18 (المؤسس عثمان سابقًا)**: [Link](https://www.almasryalyoum.com/news/details/4224657)
+- **كيفية مشاهدة مسلسل المؤسس أورهان الحلقة 18 مجانًا.. هل عاد فلافيوس من الموت؟**: [Link](https://aboutmsr.com/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3-%D8%A3%D9%88%D8%B1%D9%87%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D9%84/)
+- **أحداث غير متوقعة.. مشاهدة مسلسل المؤسس أورهان الحلقة 18 مترجمة وكاملة بجودة عالية**: [Link](https://zahraa.mr/6237419/%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3-%D8%A3/)
+
+
+### redouane halhal (N/A, Thu, 19 Mar 2026 05:10:00 -0700)
+
+- **KV Mechelen defender earns first Morocco call up while in form Genk defender misses out**: [Link](https://sports.yahoo.com/articles/kv-mechelen-defender-earns-first-153500631.html)
+- **Conférence de presse de l’entraîneur Mohamed Ouahbi**: [Link](https://frmf.ma/fr/%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-2/)
+- **Et maintenant, on fait quoi? On rappelle Regragui?**: [Link](https://fr.le360.ma/sports/et-maintenant-on-fait-quoi-on-rappelle-regragui_GMS4CCGUWRCKNDL25TLB5K5GCY/)
+
+
 ### رضوان حلحال (N/A, Thu, 19 Mar 2026 05:20:00 -0700)
 
 - **وهبي: اختيار الواحدي وحلحال منطقي ويستحقانه**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA/%D9%88%D9%87%D8%A8%D9%8A-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D9%88%D8%A7%D8%AD%D8%AF%D9%8A-%D9%88%D8%AD%D9%84%D8%AD%D8%A7%D9%84-%D9%85%D9%86%D8%B7%D9%82%D9%8A-%D9%88%D9%8A%D8%B3%D8%AA%D8%AD%D9%82%D8%A7%D9%86%D9%87/17341)
