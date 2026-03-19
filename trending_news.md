@@ -1,3 +1,36 @@
+### lyon – celta vigo (N/A, Thu, 19 Mar 2026 10:10:00 -0700)
+
+- **Preview: Lyon vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lyon/europa-league/preview/lyon-vs-celta-vigo-prediction-team-news-lineups_594037.html)
+- **Pavel Sulc, Malick Fofana and Afonso Moreira return to lift OL before Celta Vigo**: [Link](https://onefootball.com/en/news/pavel-sulc-malick-fofana-and-afonso-moreira-return-to-lift-ol-before-celta-vigo-42580895)
+- **ESP: Real Celta v Olympique Lyonnais, EuropaLeague, 12 March 2026**: [Link](https://www.reutersconnect.com/item/esp-real-celta-v-olympique-lyonnais-europaleague-12-march-2026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBFSDZOTlQ)
+
+
+### real madrid vs bayern (N/A, Thu, 19 Mar 2026 09:50:00 -0700)
+
+- **Vincent Kompany refused to pick his favorites to win the Champions League after Bayern Munich ease past Atalanta**: [Link](https://www.bavarianfootballworks.com/champions-league/179247/vincent-kompany-refused-to-pick-his-favorites-to-win-the-champions-league-after-bayern-munich-ease-past-atalanta)
+- **Fearful opponent Real Madrid? Eberl emphasizes: „It’s time for that to change“**: [Link](https://fcbinside.com/2026/03/19/fearful-opponent-real-madrid-eberl-emphasizes-its-time-for-that-to-change/)
+- **Kane says Bayern 'don't fear anyone' ahead of Real clash**: [Link](https://www.rfi.fr/en/sports/20260318-kane-says-bayern-don-t-fear-anyone-ahead-of-real-clash)
+
+
+### eid al-fitr 2026 morocco (N/A, Thu, 19 Mar 2026 09:40:00 -0700)
+
+- **Morocco to sight Shawwal crescent on Thursday**: [Link](https://en.hespress.com/133963-morocco-to-sight-shawwal-crescent-on-thursday.html)
+- **When is Eid al-Fitr 2026? Saudi Arabia confirms end of Ramadan**: [Link](https://www.dispatch.com/story/lifestyle/faith/2026/03/18/ramadan-over-saudi-arabia-confirms-eid-al-fitr-2026/89208174007/)
+- **Egypt Officially Announces Eid Al Fitr for Friday**: [Link](https://www.moroccoworldnews.com/2026/03/283384/egypt-officially-announces-eid-al-fitr-for-friday/)
+
+
+### aid fitr 2026 maroc (N/A, Thu, 19 Mar 2026 08:40:00 -0700)
+
+- **Fin du Ramadan 2026 : la date de l'Aïd el-Fitr, la grande fête musulmane, désormais connue**: [Link](https://www.rtl.fr/actu/debats-societe/fin-du-ramadan-2026-la-date-de-l-aid-el-fitr-la-grande-fete-musulmane-desormais-connue-7900613803)
+- **Eid al-Fitr : date, signification et célébrations dans le monde musulman**: [Link](https://www.bbc.com/afrique/articles/ce82k8x62g8o)
+- **Aïd Al-Fitr 2026 : le ministère des Habous annonce l’observation du croissant de Choual jeudi 19 mars**: [Link](https://lematin.ma/societe/observation-du-croissant-de-choual-au-maroc-ce-jeudi/335529)
+
+
+### halhal redouane (N/A, Thu, 19 Mar 2026 06:20:00 -0700)
+
+- **KV Mechelen defender earns first Morocco call up while in form Genk defender misses out**: [Link](https://sports.yahoo.com/articles/kv-mechelen-defender-earns-first-153500631.html)
+
+
 ### sadio mané (N/A, Thu, 19 Mar 2026 09:50:00 -0700)
 
 - **VIDEO RELEASE: CAF President Dr Patrice Motsepe Statement**: [Link](https://www.cafonline.com/news/video-release-caf-president-dr-patrice-motsepe-statement/)
