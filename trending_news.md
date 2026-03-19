@@ -1,3 +1,10 @@
+### can 2025 maroc sénégal caf (N/A, Thu, 19 Mar 2026 04:30:00 -0700)
+
+- **CAN 2025 : une victoire à la Pyrrhus pour Fouzi Lekjaa, patron du football marocain**: [Link](https://www.lemonde.fr/afrique/article/2026/03/19/can-2025-une-victoire-a-la-pyrrhus-pour-fouzi-lekjaa-patron-du-football-marocain_6672385_3212.html)
+- **CAN 2025 : Yassine Bounou réagit au sacre du Maroc**: [Link](https://www.footmercato.net/a8522889228247596131-can-2025-yassine-bounou-reagit-au-sacre-du-maroc)
+- **Finale de la CAN 2025 : pourquoi les arguments de la FRMF tiennent juridiquement**: [Link](https://ledesk.ma/2026/03/19/finale-de-la-can-2025-pourquoi-les-arguments-de-la-frmf-tiennent-juridiquement/)
+
+
 ### sophia chikirou (N/A, Thu, 19 Mar 2026 02:40:00 -0700)
 
 - **EN DIRECT, municipales 2026 : revivez le débat entre Emmanuel Grégoire, Rachida Dati et Sophia Chikirou, les candidats au second tour à Paris**: [Link](https://www.lemonde.fr/politique/live/2026/03/18/en-direct-municipales-2026-revivez-le-debat-entre-emmanuel-gregoire-rachida-dati-et-sophia-chikirou-les-candidats-au-second-tour-a-paris_6671274_823448.html)
