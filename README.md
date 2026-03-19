@@ -1,3 +1,38 @@
+### real betis (N/A, Thu, 19 Mar 2026 14:30:00 -0700)
+
+- **Betis - Panathinaikos hoy, en directo: octavos de final de la Europa League, en vivo**: [Link](https://as.com/futbol/uefa/betis-panathinaikos-en-directo-octavos-europa-league-hoy-en-vivo-f202603-d/)
+- **🚨Pellegrini, con todo en busca de la remontada**: [Link](https://onefootball.com/es/noticias/pellegrini-con-todo-en-busca-de-la-remontada-42584115)
+- **Roma - Bolonia en directo**: [Link](https://www.elmundo.es/deportes/futbol/europa-league/roma-bolonia/2026/03/19/01_0104_20260319_121_123-directo.html)
+
+
+### ligue europa (N/A, Thu, 19 Mar 2026 14:20:00 -0700)
+
+- **OL 0-2 Celta Vigo, Ligue Europa : la fin du rêve européen pour l'OL**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2025-2026/lyon-celta-vigo-live/688905)
+- **OL : Paulo Fonseca s’enflamme pour le retour de son trio de choc**: [Link](https://www.footmercato.net/a1047763455478210427-ol-paulo-fonseca-senflamme-pour-le-retour-de-son-trio-de-choc)
+- **D'une série de victoires emballante à deux éliminations coup sur coup : la saison dont rêvait l'OL vire au cauchemar**: [Link](https://www.eurosport.fr/football/ligue-europa/2025-2026/dune-serie-de-victoires-emballante-a-deux-eliminations-coup-sur-coup-la-saison-dont-revait-lol-vire-au-cauchemar_sto23282688/story.shtml)
+
+
+### الطقس غدًا (N/A, Thu, 19 Mar 2026 14:00:00 -0700)
+
+- **أمطار رعدية تصل للسيول ورياح غداً.. تحذيرات من حالة الطقس الجمعة أول أيام عيد الفطر**: [Link](https://www.almasryalyoum.com/news/details/4225759)
+- **هل تستمر موجة التقلبات؟ الأرصاد الجوية المصرية تكشف عن طقس عيد الفطر | صحيفة الخليج**: [Link](https://www.alkhaleej.ae/2026-03-19/%D9%87%D9%84-%D8%AA%D8%B3%D8%AA%D9%85%D8%B1-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%B7%D9%82%D8%B3-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-6366581/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+- **«المراويح» تربك حسابات العيد.. الزعاق يحذر من غسل الأحواش والسيارات**: [Link](https://www.jehat.net/?act=artc&id=134487)
+
+
+### مقدار زكاة الفطر 2026 (N/A, Thu, 19 Mar 2026 13:20:00 -0700)
+
+- **«لو محوش ذهب أو فضة لازم تدفع عليهم فلوس».. اعرف نصاب الذهب والفضة وقيمة الزكاة 2026**: [Link](https://www.tahiamasr.com/1036985)
+- **الزكاة تجب في كل مال له قيمة ومنفعة إذا بلغ النصاب**: [Link](https://al-sharq.com/article/19/03/2026/%D8%A7%D9%84%D8%B2%D9%83%D8%A7%D8%A9-%D8%AA%D8%AC%D8%A8-%D9%81%D9%8A-%D9%83%D9%84-%D9%85%D8%A7%D9%84-%D9%84%D9%87-%D9%82%D9%8A%D9%85%D8%A9-%D9%88%D9%85%D9%86%D9%81%D8%B9%D8%A9-%D8%A5%D8%B0%D8%A7-%D8%A8%D9%84%D8%BA-%D8%A7%D9%84%D9%86%D8%B5%D8%A7%D8%A8)
+- **الإعلامي أشرف محمود: الزكاة ركن ركين.. وليست مجرد تبرع**: [Link](https://www.altreeq.com/531839)
+
+
+### صور عيد الفطر (N/A, Thu, 19 Mar 2026 12:40:00 -0700)
+
+- **العيد فرحة.. المراكب النيلية قبلة المواطنين في وقفة عيد الفطر (بث مباشر)**: [Link](https://www.dostor.org/5466531)
+- **المواطنون يوثقون لحظات العيد.. صور تذكارية في ممشى أهل مصر**: [Link](https://www.dostor.org/5466610)
+- **بلد الأمن والأمان.. سائحون يحتفلون بوقفة عيد الفطر داخل ممشى أهل مصر**: [Link](https://www.dostor.org/5466624)
+
+
 ### real betis vs panathinaikos (N/A, Thu, 19 Mar 2026 13:30:00 -0700)
 
 - **Work to do for Betis, Celta Vigo in Europa League**: [Link](http://www.china.org.cn/2026-03/19/content_118390417.shtml)
