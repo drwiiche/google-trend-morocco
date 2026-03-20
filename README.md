@@ -1,3 +1,24 @@
+### chuck norris (N/A, Fri, 20 Mar 2026 07:10:00 -0700)
+
+- **Chuck Norris Hospitalized After Medical Emergency In Hawaii**: [Link](https://www.tmz.com/2026/03/19/chuck-norris-hospitalized/)
+- **American actor Chuck Norris dies at 86, family confirms**: [Link](https://www.jpost.com/international/article-890670)
+- **Chuck Norris, action hero and ‘Walker, Texas Ranger’ star, has died**: [Link](https://www.cnn.com/2026/03/20/entertainment/chuck-norris-death)
+
+
+### mouwakaba transport gov ma 2026 (N/A, Fri, 20 Mar 2026 07:10:00 -0700)
+
+- **ارتفاع أسعار المحروقات.. فتح باب إيداع طلبات الاستفادة من الدعم الاستثنائي لمهنيي النقل الطرقي**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A5%D9%8A%D8%AF%D8%A7%D8%B9-%D8%B7%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%81%D8%A7%D8%AF%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%84%D9%85%D9%87%D9%86%D9%8A%D9%8A-%D8%A7%D9%84%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%B7%D8%B1%D9%82%D9%8A)
+- **ارتفاع سعر النفط يهدد بعودة الضغوط التضخمية على الاقتصاد المغربي**: [Link](https://www.hespress.com/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%8A%D9%87%D8%AF%D8%AF-%D8%A8%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%B6%D8%BA%D9%88%D8%B7-%D8%A7%D9%84%D8%AA-1717090.html)
+- **"جامعة حماية المستهلك" ترفض أي زيادة في أسعار السلع والخدمات**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%87%D9%84%D9%83-%D8%AA%D8%B1%D9%81%D8%B6-%D8%A3%D9%8A-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-991466.html)
+
+
+### abdoulaye fall (N/A, Fri, 20 Mar 2026 06:30:00 -0700)
+
+- **Analyse juridique. CAN: le TAS peut-il remettre en cause le sacre du Maroc?**: [Link](https://private-admin.medias24.com/2026/03/18/le-maroc-sacre-sur-tapis-vert-analyse-juridique-de-la-decision-de-la-caf-1645586/)
+- **VIDÉO : Déclaration du Président de la CAF, Dr Patrice Motsepe**: [Link](https://www.cafonline.com/fr/infos/video-declaration-du-president-de-la-caf-dr-patrice-motsepe/)
+- **Finale de la CAN 2025 : pourquoi les arguments de la FRMF tiennent juridiquement**: [Link](https://ledesk.ma/2026/03/19/finale-de-la-can-2025-pourquoi-les-arguments-de-la-frmf-tiennent-juridiquement/)
+
+
 ### meningite angleterre (N/A, Fri, 20 Mar 2026 05:30:00 -0700)
 
 
