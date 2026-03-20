@@ -1,3 +1,10 @@
+### بنات لالة منانة (N/A, Fri, 20 Mar 2026 15:00:00 -0700)
+
+- **الدراما المغربية تتصدر نسب المشاهدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D9%86%D8%B3%D8%A8-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-1717587.html)
+- **مع حلول العيد.. قناة الأولى تبث آخر فصول "عش الطمع"**: [Link](https://ralia.lesiteinfo.com/celebrites/%D9%85%D8%B9-%D8%AD%D9%84%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%AA%D8%A8%D8%AB-%D8%A2%D8%AE%D8%B1-%D9%81%D8%B5%D9%88%D9%84-245895.html)
+- **مسلسل «بنات لالة منانة 3» الأكثر مشاهدة في المغرب للأسبوع الثالث على التوالي**: [Link](https://ar.le360.ma/medias/3VGVEIKR2NHS7DUITMRV76Y73Q/)
+
+
 ### sénégal maroc football (N/A, Fri, 20 Mar 2026 15:00:00 -0700)
 
 - **CAN 2025 : après le verdict final de la CAF, guerre des récits sur les réseaux sociaux**: [Link](https://medias24.com/2026/03/19/can-2025-apres-le-verdict-final-de-la-caf-guerre-des-recits-sur-les-reseaux-sociaux-1645983/)
