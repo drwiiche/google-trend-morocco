@@ -1,3 +1,31 @@
+### zone turf (N/A, Fri, 20 Mar 2026 03:10:00 -0700)
+
+- **7 Mystery Queen - Trot**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-mystery-queen-129339.html)
+- **Chantilly Prix des Quatre Glacières**: [Link](https://www.paris-turf.com/course/chantilly-prix-des-quatre-glacieres-idc-345efaeefe11b70ee1d691c398995ff3)
+- **7 Ame d'Or - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-ame-d-or-129334.html)
+
+
+### gta 6 (N/A, Fri, 20 Mar 2026 02:50:00 -0700)
+
+- **GTA 6 Trailer 3 Expected in May, Fans Anticipate Major Graphics Leap**: [Link](https://www.pcquest.com/gaming/gta-6-trailer-3-expected-in-may-fans-anticipate-major-graphics-leap-11226966)
+- **GTA 6 Will Crush Everything in Its Path, and GTA 5 Just Gave Us the Proof**: [Link](https://gameblog.fr/en/news/72647-gta-6-fivem/)
+- **Preparing Your Wallet for GTA 6: Costs, Upgrades, and Subscriptions**: [Link](https://battleofguardians.com/gta-6-cost-guide-upgrades-subscriptions-2026/)
+
+
+### banksy (N/A, Fri, 20 Mar 2026 02:30:00 -0700)
+
+- **What to Know About Banksy and the Effort to Unmask Him**: [Link](https://www.nytimes.com/2026/03/17/arts/design/banksy-identity-robin-gunningham-david-jones.html)
+- **In search of Banksy, Reuters found the artist took on a new identity**: [Link](https://www.reuters.com/investigates/special-report/global-art-banksy/)
+- **Banksy’s Identity Has Been Revealed. Expect His Art to Sell for a Lot More.**: [Link](https://www.wsj.com/arts-culture/fine-art/banksy-reveal-art-cost-buyers-b54c109d?gaa_at=eafs&gaa_n=AWEtsqcipUOAgo_v9rtCPap3wNguS8QMOgMvJ27YhoFFRB3GKjooJMnDU2SU&gaa_ts=69bd24a7&gaa_sig=xd-payiaFqVoz8dFnF6NzOi76CEdSl41Juzmxsdc6eH2IN1pfswuBitLonVw1M5M-9hdEYL-rwrvbb9lJt7W0w%3D%3D)
+
+
+### طريقة صلاة العيد (N/A, Fri, 20 Mar 2026 00:10:00 -0700)
+
+- **رددها الآن.. صيغ تكبيرات عيد الفطر 2026 كاملة مكتوبة**: [Link](https://al-ain.com/article/eid-takbeer-2026-prayer)
+- **فتاوى وأحكام عيد الفطر.. متى تبدأ التكبيرات والسنن المأثورة وهل تُجزئ صلاة العيد عن الجمعة؟**: [Link](https://darelhilal.com/News/3199119.aspx)
+- **متي يبدأ التكبير في عيد الفطر**: [Link](https://www.elaosboa.com/tag/%D9%85%D8%AA%D9%8A-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%A7%D9%84%D8%AA%D9%83%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1/)
+
+
 ### علي محمد نائيني (N/A, Fri, 20 Mar 2026 01:40:00 -0700)
 
 - **عاجل | التلفزيون الإيراني: مقتل علي محمد نائيني المتحدث باسم الحرس الثوري**: [Link](https://www.aljazeera.net/news/2026/3/20/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%85%D9%82%D8%AA%D9%84-%D8%B9%D9%84%D9%8A-%D9%85%D8%AD%D9%85%D8%AF)
