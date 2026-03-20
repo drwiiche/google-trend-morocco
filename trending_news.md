@@ -1,3 +1,10 @@
+### cagliari – naples (N/A, Fri, 20 Mar 2026 10:10:00 -0700)
+
+- **Preview: Cagliari vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cagliari/preview/cagliari-vs-napoli-prediction-team-news-lineups_594079.html)
+- **Cagliari v Napoli: all eyes on Adopo – where might he go in the summer?**: [Link](https://www.goal.com/en-us/lists/cagliari-v-napoli-all-eyes-on-adopo-where-might-he-go-in-the-summer/blt30b3b604acb09402)
+- **Sam Beukema vs. Cagliari – Player props & odds to score a goal on March 20**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/20/sam-beukema-soccer-player-props-3-20-2026/89240450007/)
+
+
 ### sarah knafo (N/A, Fri, 20 Mar 2026 08:30:00 -0700)
 
 - **Le rôle d’Emmanuel Macron dans la campagne municipale parisienne en question**: [Link](https://www.lemonde.fr/politique/article/2026/03/20/le-role-d-emmanuel-macron-dans-la-campagne-municipale-parisienne-en-question_6672691_823448.html)
