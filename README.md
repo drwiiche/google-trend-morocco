@@ -1,3 +1,73 @@
+### climate change (N/A, Thu, 19 Mar 2026 20:00:00 -0700)
+
+- **24 States Sue E.P.A. Over Climate Change Decision**: [Link](https://www.nytimes.com/2026/03/19/climate/epa-endangerment-states-lawsuit.html)
+- **US states sue Trump over his move to scrap greenhouse gases ruling**: [Link](https://www.bbc.com/news/articles/cr51n6j9qvzo)
+- **US states file lawsuit challenging Trump’s revocation of climate finding**: [Link](https://www.aljazeera.com/news/2026/3/19/us-states-file-lawsuit-challenging-trumps-revocation-of-climate-finding)
+
+
+### deep learning (N/A, Thu, 19 Mar 2026 20:00:00 -0700)
+
+- **How AI deep learning is helping UCLA scientists protect California’s coastal ecosystems**: [Link](https://newsroom.ucla.edu/releases/ai-deep-learning-maps-california-kelp-coastal-ecosystems)
+- **How AI deep learning is helping scientists protect California's coastal ecosystems**: [Link](https://phys.org/news/2026-03-ai-deep-scientists-california-coastal.html)
+- **ArtEEGAttention: A Deep Learning Paradigm for Art Brain Decoding | Newswise**: [Link](https://www.newswise.com/articles/arteegattention-a-deep-learning-paradigm-for-art-brain-decoding)
+
+
+### artificial intelligence (N/A, Thu, 19 Mar 2026 20:00:00 -0700)
+
+- **Applying AI Risk Frameworks in Higher Education: What IT Leaders Need to Know**: [Link](https://edtechmagazine.com/higher/article/2026/03/applying-ai-risk-frameworks-higher-education-what-it-leaders-need-know)
+- **BC3, SRU task forces evaluate use of artificial intelligence in academics**: [Link](https://www.butlereagle.com/20260319/bc3-sru-crews-evaluate-use-of-artificial-intelligence-in-academics/)
+- **Mind the Gap: The AI Divide in Community Colleges**: [Link](https://www.theeduledger.com/ai/article/15754685/mind-the-gap-the-ai-divide-in-community-colleges)
+
+
+### electric vehicles (N/A, Thu, 19 Mar 2026 20:00:00 -0700)
+
+- **BYD Showrooms Are Bustling Across Asia After Iran Oil Shock**: [Link](https://www.bloomberg.com/news/articles/2026-03-19/byd-showrooms-are-bustling-across-asia-after-iran-oil-shock)
+- **Gasoline price hike from Iran war could push consumers toward EVs, hybrids**: [Link](https://www.reuters.com/business/energy/gasoline-price-hike-iran-war-could-push-consumers-toward-evs-hybrids-2026-03-18/)
+- **Electric vehicles: what to know if you’re considering an EV**: [Link](https://theconversation.com/electric-vehicles-what-to-know-if-youre-considering-an-ev-278419)
+
+
+### bitcoin price (N/A, Thu, 19 Mar 2026 20:00:00 -0700)
+
+- **Whales move over 44,000 Bitcoin to exchanges ahead of Fed meeting**: [Link](https://cryptobriefing.com/whale-bitcoin-transfers-fed-meeting/)
+- **Bitcoin's Key Stakeholder Numbers Continue to Grow Despite Rocky Price Road**: [Link](https://app.santiment.net/insights/read/bitcoin-s-key-stakeholder-numbers-continue-to-grow-despite-rocky-price-road-10674)
+- **Bitcoin Price Prediction: A 2013 Whale Just Dumped $442 Million in Bitcoin — Is BTC About to Collapse?**: [Link](https://cryptonews.com/news/bitcoin-whale-sell-off-price-volatility-hyper-presale/)
+
+
+### space exploration (N/A, Thu, 19 Mar 2026 20:00:00 -0700)
+
+- **HKUST-led Hong Kong Space Robotics and Energy Centre Partners with Southeast University to Advance Deep Space Exploration Supporting the National Goal of Becoming an Aerospace Powerhouse**: [Link](https://hkust.edu.hk/news/hkust-led-hong-kong-space-robotics-and-energy-centre-partners-southeast-university-advance)
+- **8 Top Space Stocks to Watch in 2026**: [Link](https://www.ebc.com/forex/8-top-space-stocks-to-watch-in-2026)
+- **Voyager Technologies (VOYG) Opens a New Facility in Long Beach**: [Link](https://www.insidermonkey.com/blog/voyager-technologies-voyg-opens-a-new-facility-in-long-beach-1719799/)
+
+
+### world cup 2026 (N/A, Thu, 19 Mar 2026 19:50:00 -0700)
+
+- **Quiz: Can You Identify All 16 of the 2026 World Cup Stadiums?**: [Link](https://www.si.com/soccer/quiz-identify-all-2026-world-cup-stadiums)
+- **Which FIFA World Cup Cities Are Hosting Knockout Matches in 2026?**: [Link](https://www.sofascore.com/news/which-fifa-world-cup-cities-are-hosting-knockout-matches-in-2026/)
+- **Quiz: Can you identify all 16 of the 2026 World Cup stadiums?**: [Link](https://www.msn.com/en-us/sports/soccer/quiz-can-you-identify-all-16-of-the-2026-world-cup-stadiums/ar-AA1YKKg1)
+
+
+### openai (N/A, Thu, 19 Mar 2026 19:40:00 -0700)
+
+- **OpenAI to create desktop super app, combining ChatGPT app, browser and Codex app**: [Link](https://www.cnbc.com/2026/03/19/openai-desktop-super-app-chatgpt-browser-codex.html)
+- **Exclusive | OpenAI Plans Launch of Desktop ‘Superapp’ to Refocus, Simplify User Experience**: [Link](https://www.wsj.com/tech/openai-plans-launch-of-desktop-superapp-to-refocus-simplify-user-experience-9e19931d?gaa_at=eafs&gaa_n=AWEtsqfmcqCkK5iFiFGa-R67hSas6U4hsSNiQr1_7n9Su9Yjo7JA7J2Xj9w7&gaa_ts=69bcc525&gaa_sig=gdsygvAIuMD8FfFSoOv3UukqSA-A43oCNBMv6LLYFjoTJQtAOHDblS0EDCaH5SsYcqHPr1TxeLSYE9BG0Z90UA%3D%3D)
+- **OpenAI, Musk and Focus**: [Link](https://www.theinformation.com/newsletters/the-briefing/openai-musk-focus)
+
+
+### football maroc (N/A, Thu, 19 Mar 2026 19:30:00 -0700)
+
+- **Conférence de presse de l’entraîneur Mohamed Ouahbi**: [Link](https://frmf.ma/fr/%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-2/)
+- **Conseil de gouvernement : Point de presse hebdomadaire de Mustapha Baitas**: [Link](https://lematin.ma/videos/conseil-de-gouvernement-point-de-presse-hebdomadaire-de-mustapha-baitas/335861)
+- **Avec sa première sélection, Ouahbi lance l’ère du renouveau des Lions de l’Atlas**: [Link](https://ledesk.ma/2026/03/19/avec-sa-premiere-selection-ouahbi-lance-lere-du-renouveau-des-lions-de-latlas/)
+
+
+### borno (N/A, Thu, 19 Mar 2026 19:10:00 -0700)
+
+- **Nigeria's army chief visits Maiduguri following deadly suicide bombings**: [Link](https://www.africanews.com/2026/03/19/nigerias-army-chief-visits-maiduguri-following-deadly-suicide-bombings/)
+- **CSO re-echoes defence chief’s call for civilian-military collaboration in anti-terror war**: [Link](https://authorityngr.com/2026/03/19/cso-re-echoes-defence-chiefs-call-for-civilian-military-collaboration-in-anti-terror-war/)
+- **Intensify Offensive, Strengthen Intelligence Architecture, CDS Orders Commanders**: [Link](https://www.thisdaylive.com/2026/03/19/intensify-offensive-strengthen-intelligence-architecture-cds-orders-commanders/)
+
+
 ### spider man new day (N/A, Thu, 19 Mar 2026 17:50:00 -0700)
 
 - **Marvel Beats Marvel in Quest for Most Watched Trailer**: [Link](https://gizmodo.com/marvel-beats-marvel-in-quest-for-most-watched-trailer-2000735748)
