@@ -1,3 +1,38 @@
+### الطقس (N/A, Fri, 20 Mar 2026 00:00:00 -0700)
+
+- **عيد الفطر على وقع اضطرابات جوية: أمطار ورياح وانخفاض في الحرارة**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D9%88%D9%82%D8%B9-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88-1717995.html)
+- **طقس بارد وأجواء غائمة اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE/)
+- **أمطار وزخات رعدية مرتقبة السبت المقبل بالمغرب**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84-991416.html)
+
+
+### météo (N/A, Thu, 19 Mar 2026 23:50:00 -0700)
+
+- **Ciel matinal esthétique**: [Link](https://www.infoclimat.fr/photolive-photos-meteo-338241-ciel-matinal-esthetique.html)
+- **Quel temps pour ce premier jour du printemps à Toulouse ?**: [Link](https://www.ladepeche.fr/2026/03/20/quel-temps-pour-ce-premier-jour-du-printemps-a-toulouse-13282599.php)
+- **Météo : la douceur s’installe, plus de 20°C ce mardi dans le Languedoc !**: [Link](https://infoccitanie.fr/meteo-la-douceur-sinstalle-plus-de-20c-ce-mardi-dans-le-languedoc/)
+
+
+### weather (N/A, Thu, 19 Mar 2026 23:50:00 -0700)
+
+- **Spring to bring unpredictable weather to ND**: [Link](https://www.minotdailynews.com/news/local-news/2026/03/spring-to-bring-unpredictable-weather-to-nd/)
+- **A very warm day for western North Dakota**: [Link](https://www.thedickinsonpress.com/video/iqd42nV9)
+- **Another big warm up this weekend**: [Link](https://www.ourquadcities.com/news/local-news/another-big-warm-up-this-weekend/)
+
+
+### خطبة عيد الفطر (N/A, Thu, 19 Mar 2026 23:10:00 -0700)
+
+- **"تسديد التبليغ".. وزارة الأوقاف تنشر خطبة عيد الفطر**: [Link](https://ar.telquel.ma/%D8%AA%D8%B3%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D8%A8%D9%84%D9%8A%D8%BA-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%AA%D9%86%D8%B4%D8%B1-%D8%AE%D8%B7%D8%A8/)
+- **إعلان هام لوزارة الأوقاف بشأن خطبة الجمعة بالمغرب**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%87%D8%A7%D9%85-%D9%84%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84-25-991411.html)
+- **"بر الوالدين زينة الأعياد".. موضوع خطبة الجمعة اليوم 20 مارس 2026**: [Link](https://www.dostor.org/5466752)
+
+
+### صلاة العيد الفطر 2026 (N/A, Thu, 19 Mar 2026 22:00:00 -0700)
+
+- **الرئيس المصري يدعو بالتقدم للمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A8%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%85-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1718420.html)
+- **أمير المؤمنين يؤدي غدا الجمعة صلاة عيد الفطر المبارك بمسجد أهل فاس بالمشور السعيد بمدينة الرباط**: [Link](https://chouftv.ma/press/778621.html)
+- **أمير المؤمنين الملك محمد السادس يتبادل التهاني مع قادة الدول الإسلامية بمناسبة عيد الفطر**: [Link](https://ar.le360.ma/politique/AYDKEP467FAYZCGMIC7HEE6ZWI/)
+
+
 ### صلاة العيد الفطر (N/A, Thu, 19 Mar 2026 19:00:00 -0700)
 
 - **الرئيس المصري يدعو بالتقدم للمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A8%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%85-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1718420.html)
