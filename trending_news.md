@@ -1,3 +1,10 @@
+### صلاة العيد الفطر (N/A, Thu, 19 Mar 2026 19:00:00 -0700)
+
+- **الرئيس المصري يدعو بالتقدم للمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A8%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%85-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1718420.html)
+- **أمير المؤمنين يؤدي غدا الجمعة صلاة عيد الفطر المبارك بمسجد أهل فاس بالمشور السعيد بمدينة الرباط**: [Link](https://chouftv.ma/press/778621.html)
+- **أمير المؤمنين الملك محمد السادس يتبادل التهاني مع قادة الدول الإسلامية بمناسبة عيد الفطر**: [Link](https://ar.le360.ma/politique/AYDKEP467FAYZCGMIC7HEE6ZWI/)
+
+
 ### climate change (N/A, Thu, 19 Mar 2026 20:00:00 -0700)
 
 - **24 States Sue E.P.A. Over Climate Change Decision**: [Link](https://www.nytimes.com/2026/03/19/climate/epa-endangerment-states-lawsuit.html)
