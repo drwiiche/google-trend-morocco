@@ -1,3 +1,10 @@
+### man united (N/A, Fri, 20 Mar 2026 13:30:00 -0700)
+
+- **Hislop: Carrick deserves credit for his impact at Man United**: [Link](https://www.espn.com/video/clip?id=48217016)
+- **From Zirkzee to Ugarte: The four biggest strugglers of Michael Carrick's nine-match Man Utd 'revolution'**: [Link](https://www.unitedinfocus.com/opinion/from-zirkzee-to-ugarte-the-four-biggest-strugglers-of-michael-carricks-nine-match-man-utd-revolution/)
+- **Manchester United welcome stability as success appears to have finally arrived**: [Link](https://www.msn.com/en-ca/sports/soccer/manchester-united-welcome-stability-as-success-appears-to-have-finally-arrived/ar-AA1YZZdM)
+
+
 ### loukkos (N/A, Fri, 20 Mar 2026 13:50:00 -0700)
 
 - **Forte recharge des barrages du Loukkos sur fond de vigilance accrue face aux crues**: [Link](https://lematin.ma/nation/forte-recharge-des-barrages-du-loukkos-sur-fond-de-vigilance-face-aux-crues/335904)
