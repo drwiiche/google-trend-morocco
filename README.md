@@ -1,3 +1,10 @@
+### loukkos (N/A, Fri, 20 Mar 2026 13:50:00 -0700)
+
+- **Forte recharge des barrages du Loukkos sur fond de vigilance accrue face aux crues**: [Link](https://lematin.ma/nation/forte-recharge-des-barrages-du-loukkos-sur-fond-de-vigilance-face-aux-crues/335904)
+- **Eau : avec le rebond spectaculaire dans le bassin du Loukkos, Baraka met en garde contre les crues**: [Link](https://medias24.com/2026/03/19/eau-avec-le-rebond-spectaculaire-dans-le-bassin-du-loukkos-baraka-met-en-garde-contre-les-crues-1645938/)
+- **Envasement des barrages : convention de partenariat entre le ministère de l’Équipement et de l’Eau et l’ANEF**: [Link](https://ledesk.ma/encontinu/envasement-des-barrages-convention-de-partenariat-entre-le-ministere-de-lequipement-et-de-leau-et-lanef/)
+
+
 ### villarreal vs real sociedad (N/A, Fri, 20 Mar 2026 13:30:00 -0700)
 
 - **Villarreal vs Real Sociedad: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c62dp31kxl3t)
