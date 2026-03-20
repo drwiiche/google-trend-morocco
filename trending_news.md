@@ -1,3 +1,32 @@
+### بورنموث ضد مان يونايتد (N/A, Fri, 20 Mar 2026 12:30:00 -0700)
+
+- **الشكوك تحوم حول مشاركة مزراوي مع مانشستر يونايتد أمام بورنموث بسبب المرض**: [Link](https://m.elbotola.com/article/2026-03-20-15-36-33.html)
+- **بطولة إنكلترا: كاريك يتوقع امتحانا صعبا ليونايتد أمام بورنموث**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260319-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%85%D8%AA%D8%AD%D8%A7%D9%86%D8%A7-%D8%B5%D8%B9%D8%A8%D8%A7-%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB)
+- **مباريات الجولة 31 من الدوري الإنجليزي الممتاز: مانشستر يونايتد يستغل سلسلة انتصاراته.**: [Link](https://www.vietnam.vn/ar/lich-thi-dau-vong-31-ngoai-hang-anh-quy-do-thua-thang-xong-len)
+
+
+### villarreal – real sociedad (N/A, Fri, 20 Mar 2026 12:20:00 -0700)
+
+- **Villarreal – Real Sociedad: Duelo europeo para abrir la jornada**: [Link](https://onefootball.com/es/noticias/villarreal-real-sociedad-duelo-europeo-para-abrir-la-jornada-42586463)
+- **Porcelana china**: [Link](https://www.realsociedad.eus/es/noticias/detalle/porcelana-china)
+- **Todas las noticias más actuales del mundo del fútbol en directo**: [Link](https://www.flashscore.es/noticias/futbol-en-directo-laliga-ea-sports-ultima-hora-jornada-29/6H7IaZrg/)
+
+
+### bournemouth – manchester united (N/A, Fri, 20 Mar 2026 12:10:00 -0700)
+
+- **Bournemouth vs Man United preview: stats, odds and expected XIs**: [Link](https://www.sofascore.com/news/bournemouth-vs-man-united-preview-stats-odds-and-expected-xis/)
+- **PREVIEW: Manchester United aim to cement their position in the top four as they travel to in-form Bournemouth**: [Link](https://onefootball.com/en/news/preview-manchester-united-aim-to-cement-their-position-in-the-top-four-as-they-travel-to-in-form-bournemouth-42587768)
+- **Andoni Iraola praises
+the ‘defensive solidity’ of Man United**: [Link](https://www.vavel.com/en/football/2026/03/20/bournemouth/1254772-andoni-iraola-praisesthe-defensive-solidity-of-man-united.html)
+
+
+### طقس تطوان (N/A, Fri, 20 Mar 2026 10:30:00 -0700)
+
+- **عيد الفطر على وقع اضطرابات جوية: أمطار ورياح وانخفاض في الحرارة**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D9%88%D9%82%D8%B9-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88-1717995.html)
+- **زخات رعدية محليا قوية وهبات رياح عاصفية محليا قوية اليوم الجمعة بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%82%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-20260320)
+- **طقس الجمعة: بارد في مرتفعات الأطلس والريف مصحوب بنزول أمطار وزخات رعدية – اليوم 24**: [Link](https://alyaoum24.com/2015872.html)
+
+
 ### six (N/A, Fri, 20 Mar 2026 06:30:00 -0700)
 
 - **Six Flags Over Texas introduces new spring break chaperone policy**: [Link](https://www.fox4news.com/news/six-flags-introduces-new-spring-break-chaperone-policy)
