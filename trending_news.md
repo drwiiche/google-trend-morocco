@@ -1,3 +1,10 @@
+### equidia (N/A, Fri, 20 Mar 2026 04:50:00 -0700)
+
+- **Les Notes des partants du Quinté+ de ce vendredi 20 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-vendredi-20-mars)
+- **Les pronos hippiques du vendredi 20 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-20-mars-2026_AN-202603190648.html)
+- **Quinté Plus PMU : Mayola Védaquaise découvre un très bel engagement**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-mayola-vedaquaise-decouvre-un-tres-bel-engagement-129340.html)
+
+
 ### play store (N/A, Fri, 20 Mar 2026 04:30:00 -0700)
 
 - **Fortnite returns to Google Play worldwide - GSMArena.com news**: [Link](https://www.gsmarena.com/fortnite_returns_to_google_play_worldwide_-news-72022.php)
