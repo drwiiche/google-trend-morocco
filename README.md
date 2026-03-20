@@ -1,3 +1,31 @@
+### isabelle mergault (N/A, Fri, 20 Mar 2026 05:10:00 -0700)
+
+- **Isabelle Mergault, comédienne et sociétaire des « Grosses têtes », est morte**: [Link](https://www.parismatch.com/Culture/isabelle-mergault-est-morte-a-67-ans-265803)
+- **Mort de l'actrice et réalisatrice Isabelle Mergault à l'âge de 67 ans**: [Link](https://www.msn.com/fr-fr/divertissement/celebrites/mort-de-l-actrice-et-r%C3%A9alisatrice-isabelle-mergault-%C3%A0-l-%C3%A2ge-de-67-ans/ar-AA1Z2W2X)
+- **Isabelle Mergault, l’irrévérencieuse du rire français s’est éteinte à 67 ans**: [Link](https://www.melody.tv/actualite/isabelle-mergault-lirreverencieuse-du-rire-francais-sest-eteinte-a-67-ans/)
+
+
+### صلاة الجمعة يوم العيد (N/A, Fri, 20 Mar 2026 04:50:00 -0700)
+
+- **داعية يحسم.. هل تسقط الجمعة عمّن حضر صلاة العيد؟**: [Link](https://www.masrawy.com/ramadan/islamic/details/2026/3/20/2960009/%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D9%8A%D8%AD%D8%B3%D9%85-%D9%87%D9%84-%D8%AA%D8%B3%D9%82%D8%B7-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%B9%D9%85-%D9%86-%D8%AD%D8%B6%D8%B1-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-)
+- **هل تُصلى الجمعة في يوم عيد الفطر؟ آراء دور الإفتاء في الدول العربية**: [Link](https://arabi21.com/story/1746010/%D9%87%D9%84-%D8%AA%D8%B5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%81%D9%8A-%D9%8A%D9%88%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A2%D8%B1%D8%A7%D8%A1-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%A5%D9%81%D8%AA%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9)
+- **الدكتور الشايشي لدزاير توب: صلاة الجمعة لا تسقط بصلاة العيد في مذهبنا المالكي لأن الفرض لا يسقط بفعل السنة**: [Link](https://www.dzair-tube.dz/%D8%A7%D9%84%D8%AF%D9%83%D8%AA%D9%88%D8%B1-%D8%A7%D9%84%D8%B4%D8%A7%D9%8A%D8%B4%D9%8A-%D9%84%D8%AF%D8%B2%D8%A7%D9%8A%D8%B1-%D8%AA%D9%88%D8%A8-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9/)
+
+
+### zeturf (N/A, Fri, 20 Mar 2026 04:30:00 -0700)
+
+- **Quinté+: PRIX DUNETTE - SAINT-CLOUD - 19/03/2026 : partants, pronostics et résultats en vidéos - Course 1**: [Link](https://www.equidia.fr/courses/2026-03-19/R1/C1)
+- **Les pronos hippiques du jeudi 19 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-19-mars-2026_AN-202603180584.html)
+- **Quinté du Quinté du jeudi 19 mars 2026 à Saint-Cloud : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-quinte-du-jeudi-19-mars-2026-a-saint-cloud-les-pronostics-7900613667)
+
+
+### byd (N/A, Fri, 20 Mar 2026 04:20:00 -0700)
+
+- **BYD taxi ride gave me a taste of why U.S. automakers feel threatened**: [Link](https://www.freep.com/story/money/cars/2026/03/20/byd-taxi-ride-gave-me-a-taste-of-why-u-s-automakers-feel-threatened/89087771007/)
+- **I took a ride in a BYD electric vehicle and this is what I observed**: [Link](https://www.msn.com/en-ca/video/peopleandplaces/i-took-a-ride-in-a-byd-electric-vehicle-and-this-is-what-i-observed/vi-AA1Z2LCH?cvid=69bd3e9bbf2045928c825ad0ed491672&ocid=hpmsn)
+- **BYD Shares Surge the Most in 13 Months on Overseas Sales Orders**: [Link](https://www.bloomberg.com/news/articles/2026-03-16/byd-shares-surge-the-most-in-13-months-on-overseas-sales-orders)
+
+
 ### equidia (N/A, Fri, 20 Mar 2026 04:50:00 -0700)
 
 - **Les Notes des partants du Quinté+ de ce vendredi 20 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-vendredi-20-mars)
