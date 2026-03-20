@@ -1,3 +1,15 @@
+### villarreal vs real sociedad (N/A, Fri, 20 Mar 2026 13:30:00 -0700)
+
+- **Villarreal vs Real Sociedad: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c62dp31kxl3t)
+- **Real Sociedad vs. Alavés - Odds - April 11, 2026**: [Link](https://www.foxsports.com/soccer/la-liga-real-sociedad-vs-alaves-apr-11-2026-game-boxscore-632381?tab=odds)
+- **Villarreal vs Real Sociedad Prediction, 3/20/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/villarreal-vs-real-sociedad-prediction-3-20-2026-soccer-pick-tips-and-odds.html)
+
+
+### تشاك نوريس (N/A, Fri, 20 Mar 2026 13:10:00 -0700)
+
+
+
+
 ### lens – angers (N/A, Fri, 20 Mar 2026 12:40:00 -0700)
 
 - **À quelle heure et sur quelle chaîne suivre Lens-Angers ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-suivre-lens-angers/1660512)
