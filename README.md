@@ -1,3 +1,10 @@
+### sarah knafo (N/A, Fri, 20 Mar 2026 08:30:00 -0700)
+
+- **Le rôle d’Emmanuel Macron dans la campagne municipale parisienne en question**: [Link](https://www.lemonde.fr/politique/article/2026/03/20/le-role-d-emmanuel-macron-dans-la-campagne-municipale-parisienne-en-question_6672691_823448.html)
+- **J’appelle mes électeurs à chasser la gauche de la mairie de Paris » : Sarah Knafo retire sa candidature au second tour**: [Link](https://www.leparisien.fr/elections/municipales/je-ne-me-desiste-pas-pour-rachida-dati-mais-pour-paris-sarah-knafo-ne-sera-pas-au-second-tour-des-municipales-17-03-2026-2HTYWDHL5JBNXF4DFY2YSHJ37I.php)
+- **EN DIRECT - Municipales à Paris : l’Élysée dément qu’Emmanuel Macron ait incité Sarah Knafo à se retirer au profit de Rachida Dati**: [Link](https://www.lefigaro.fr/elections/municipales/en-direct-municipales-2026-dernier-jour-de-campagne-avant-le-second-tour-20260320)
+
+
 ### محمد باقر قاليباف (N/A, Fri, 20 Mar 2026 08:00:00 -0700)
 
 - **صعود رجل المرحلة.. قالیباف يزداد نفوذا في إيران**: [Link](https://www.aljazeera.net/news/2026/3/20/%D8%B5%D8%B9%D9%88%D8%AF-%D8%B1%D8%AC%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D9%82%D8%A7%D9%84%DB%8C%D8%A8%D8%A7%D9%81-%D9%8A%D8%B2%D8%AF%D8%A7%D8%AF-%D9%86%D9%81%D9%88%D8%B0%D8%A7)
