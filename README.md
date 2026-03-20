@@ -1,3 +1,15 @@
+### yves foulon (N/A, Fri, 20 Mar 2026 15:30:00 -0700)
+
+
+
+
+### météo pour demain (N/A, Fri, 20 Mar 2026 14:10:00 -0700)
+
+- **Pourquoi le printemps commence-t-il le 20 mars alors qu’on nous a toujours dit le 21 ?**: [Link](https://www.futura-sciences.com/sciences/actualites/equinoxe-printemps-printemps-commence-t-il-20-mars-alors-quon-nous-toujours-dit-21-133024/)
+- **Une journée encore ensoleillée sur toute la France ce vendredi**: [Link](https://www.bfmtv.com/meteo/video-une-journee-encore-ensoleillee-sur-toute-la-france-ce-vendredi_VN-202603200090.html)
+- **Astronomie : ce vendredi c'était l’équinoxe, le jour et la nuit avaient une durée égale**: [Link](https://www.linfo.re/la-reunion/faits-divers/astronomie-ce-vendredi-c-etait-l-equinoxe-le-jour-et-la-nuit-avaient-une-duree-egale)
+
+
 ### لائحة المنتخب المغربي محمد وهبي (N/A, Fri, 20 Mar 2026 15:10:00 -0700)
 
 - **وهبي: تتويج المغرب مستحق.. والإصابة ليست سبب استبعاد النصيري وأخوماش**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%87%D8%A8%D9%8A-%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B3%D8%AA%D8%AD%D9%82--%D9%88%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%84%D9%8A%D8%B3%D8%AA-%D8%B3%D8%A8%D8%A8-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%88%D8%A7%D9%94%D8%AE%D9%88%D9%85%D8%A7%D8%B4/bltd4cea2ae02a204a8)
