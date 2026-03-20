@@ -1,3 +1,10 @@
+### sénégal maroc football (N/A, Fri, 20 Mar 2026 15:00:00 -0700)
+
+- **CAN 2025 : après le verdict final de la CAF, guerre des récits sur les réseaux sociaux**: [Link](https://medias24.com/2026/03/19/can-2025-apres-le-verdict-final-de-la-caf-guerre-des-recits-sur-les-reseaux-sociaux-1645983/)
+- **Sénégal-Maroc : la réaction forte d’El-Hadji Diouf suite à la décision de la CAF**: [Link](https://www.footmercato.net/a399454302286485289-senegal-maroc-la-reaction-forte-del-hadji-diouf-suite-a-la-decision-de-la-caf)
+- **CAN 2025: "Les Marocains ont respecté le football", le débat enflammé entre le président du Wydad Casablanca et Rothen sur la finale polémique**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-les-marocains-ont-respecte-le-football-le-president-du-wydad-casablanca-et-rothen-en-desaccord-sur-la-finale-polemique-face-au-senegal_AV-202603200888.html)
+
+
 ### man united (N/A, Fri, 20 Mar 2026 13:30:00 -0700)
 
 - **Hislop: Carrick deserves credit for his impact at Man United**: [Link](https://www.espn.com/video/clip?id=48217016)
