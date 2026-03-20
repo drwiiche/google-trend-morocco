@@ -1,3 +1,17 @@
+### six (N/A, Fri, 20 Mar 2026 06:30:00 -0700)
+
+- **Six Flags Over Texas introduces new spring break chaperone policy**: [Link](https://www.fox4news.com/news/six-flags-introduces-new-spring-break-chaperone-policy)
+- **Teenagers Must Be Escorted by Chaperones at Six Flags Over Texas During Spring Break**: [Link](https://people.com/teenagers-must-be-escorted-by-chaperones-six-flags-over-texas-spring-break-11929653)
+- **Six Flags rolls strict chaperone policy for guests under 17 over spring break — dividing parkgoers: ‘Way to ruin the fun’**: [Link](https://nypost.com/2026/03/20/business/six-flags-rolls-out-strict-chaperone-policy-for-guests-under-17-over-spring-break-to-battle-disruptive-behavior/)
+
+
+### unibet (N/A, Fri, 20 Mar 2026 05:30:00 -0700)
+
+- **Bredene Koksijde Classic: Dylan Groenewegen speeds to victory as break caught in finale of hectic race**: [Link](https://www.cyclingnews.com/pro-cycling/racing/bredene-koksijde-classic-dylan-groenewegen-speeds-to-victory-as-break-caught-in-finale-of-hectic-race/)
+- **“The ultimate goal is a Grand Tour stage” – Dylan Groenewegen builds towards Unibet ROSE Rockets’ Giro d’Italia debut with Koksijde win**: [Link](https://cyclinguptodate.com/cycling/the-ultimate-goal-is-a-grand-tour-stage-dylan-groenewegen-builds-towards-unibet-rose-rockets-giro-ditalia-debut-with-koksijde-win)
+- **2026 Bredene Koksijde Classic Preview**: [Link](https://cyclingmole.com/2026/03/19/2026-bredene-koksijde-classic-preview/)
+
+
 ### cagliari – naples (N/A, Fri, 20 Mar 2026 10:10:00 -0700)
 
 - **Preview: Cagliari vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/cagliari/preview/cagliari-vs-napoli-prediction-team-news-lineups_594079.html)
