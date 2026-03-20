@@ -1,3 +1,24 @@
+### spider man new day (N/A, Thu, 19 Mar 2026 17:50:00 -0700)
+
+- **Marvel Beats Marvel in Quest for Most Watched Trailer**: [Link](https://gizmodo.com/marvel-beats-marvel-in-quest-for-most-watched-trailer-2000735748)
+- **Spider-Man dumps Sony Xperia for Galaxy Z Flip**: [Link](https://www.androidpolice.com/spider-man-dumps-sony-xperia-for-galaxy-z-flip/)
+- **Tramell Tillman’s Role In ‘Spider-Man: Brand New Day’ Seemingly Confirmed To Be Tied To The X-Men**: [Link](https://heroichollywood.com/tramell-tillman-spider-man-brand-new-day-role-x-men-connection/)
+
+
+### طقس طنجة (N/A, Thu, 19 Mar 2026 17:50:00 -0700)
+
+- **رياح وأمطار متفرّقة.. طقس أوّل أيّام عيد الفطر في المغرب**: [Link](https://inews.ma/news/8203982)
+- **أمطار رعدية تصل للسيول ورياح غداً.. تحذيرات من حالة الطقس الجمعة أول أيام عيد الفطر**: [Link](https://www.msn.com/ar-eg/news/featured/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D9%84%D9%84%D8%B3%D9%8A%D9%88%D9%84-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D8%BA%D8%AF%D8%A7%D9%8B-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1/ar-AA1YZXZz)
+- **في أول أيام العيد بجنوب سيناء.. استمرار سوء الأحوال الجوية وانخفاض درجات الحرارة ليلًا**: [Link](https://www.cairo24.com/2391073)
+
+
+### مسلسل وننسى اللي كان (N/A, Thu, 19 Mar 2026 17:10:00 -0700)
+
+- **"وننسى اللي كان".. خلطة ترندات سريعة تنقذها لمسات الوجوه الجديدة**: [Link](https://www.aljazeera.net/arts/2026/3/19/%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86-%D8%AE%D9%84%D8%B7%D8%A9-%D8%AA%D8%B1%D9%86%D8%AF%D8%A7%D8%AA-%D8%B3%D8%B1%D9%8A%D8%B9%D8%A9)
+- **بتساؤلات محيرة.. مؤلف "وننسى اللي كان" يشوق جمهوره حول النهاية**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/18/%D9%85%D8%A4%D9%84%D9%81-%D9%88%D9%86%D9%86%D8%B3%D9%89-%D8%A7%D9%84%D9%84%D9%8A-%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D9%88%D9%82-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%87-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D8%A9%D9%8A%D8%A7%D8%AA%D8%B1%D9%89-%D8%AD%D8%AF-%D9%87%D9%8A%D9%85%D9%88%D8%AA-)
+- **ما السرّ وراء تأخر عرض الحلقات الأخيرة من مسلسل "وننسى اللي كان"؟**: [Link](https://www.albawaba.com/ar/%D8%AA%D8%B1%D9%81%D9%8A%D9%87/%D9%85%D8%A7-%D8%A7%D9%84%D8%B3%D8%B1%D9%91-%D9%88%D8%B1%D8%A7%D8%A1-%D8%AA%D8%A3%D8%AE%D8%B1-%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-1624042)
+
+
 ### صلاة عيد الفطر (N/A, Thu, 19 Mar 2026 15:00:00 -0700)
 
 - **الملك يؤدي صلاة عيد الفطر بالرباط**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%A4%D8%AF%D9%8A-%D8%B5%D9%84%D8%A7%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-2-1718282.html)
