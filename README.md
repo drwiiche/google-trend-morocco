@@ -1,3 +1,17 @@
+### aid adha 2026 (N/A, Fri, 20 Mar 2026 03:40:00 -0700)
+
+- **Cheptel, pâturages et aides directes : l’Exécutif rassurant à l’approche de Aïd Al Adha**: [Link](https://ledesk.ma/encontinu/cheptel-paturages-et-aides-directes-lexecutif-a-lapproche-de-aid-al-adha/)
+- **Aïd El-Adha 2026: le gouvernement met fin aux doutes sur le sacrifice du mouton**: [Link](https://fr.le360.ma/societe/aid-el-adha-2026-le-gouvernement-met-fin-aux-doutes-sur-le-sacrifice-du-mouton_3NSATTCJ5VEETNEWSZG444GOOY/)
+- **Baitas rassure sur la tenue du rituel d'Aïd Al Adha**: [Link](https://fr.hespress.com/466466-baitas-rassure-sur-la-tenue-du-rituel-daid-al-adha.html)
+
+
+### aïd al fitr au maroc (N/A, Fri, 20 Mar 2026 03:20:00 -0700)
+
+- **Officiel. Aïd Al-Fitr sera fêté ce vendredi 20 mars 2026 au Maroc**: [Link](https://medias24.com/2026/03/19/officiel-aid-al-fitr-sera-fete-ce-vendredi-20-mars-2026-au-maroc-1646059/)
+- **Aïd Al Fitr : Grâce Royale au profit de 1201 personnes**: [Link](https://lematin.ma/activites-royales/aid-al-fitr-grace-royale-au-profit-de-1201-personnes/335933)
+- **Prière de Aïd Al-Fitr: atmosphère de recueillement dans les mosquées de Casablanca**: [Link](https://fr.le360.ma/societe/priere-de-aid-al-fitr-atmosphere-de-recueillement-dans-les-mosquees-de-casablanca_HOX2Z6RAEJDTBMKSQ2V42AHKRM/)
+
+
 ### zone turf (N/A, Fri, 20 Mar 2026 03:10:00 -0700)
 
 - **7 Mystery Queen - Trot**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-mystery-queen-129339.html)
