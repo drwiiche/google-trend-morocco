@@ -1,3 +1,10 @@
+### play store (N/A, Fri, 20 Mar 2026 04:30:00 -0700)
+
+- **Fortnite returns to Google Play worldwide - GSMArena.com news**: [Link](https://www.gsmarena.com/fortnite_returns_to_google_play_worldwide_-news-72022.php)
+- **Fortnite Back on Google Play, Claim a Free Skin to Celebrate**: [Link](https://www.droid-life.com/2026/03/19/fortnite-google-play-free-skin/)
+- **Tech Wrap Mar 19: Fortnite returns, OnePlus Nord Buds 4 Pro, Realme P4 Lite**: [Link](https://www.business-standard.com/technology/tech-news/tech-wrap-march-19-fortnite-returns-play-store-oneplus-nord-buds-4-pro-realme-p4-lite-launched-126031900872_1.html)
+
+
 ### aid adha 2026 (N/A, Fri, 20 Mar 2026 03:40:00 -0700)
 
 - **Cheptel, pâturages et aides directes : l’Exécutif rassurant à l’approche de Aïd Al Adha**: [Link](https://ledesk.ma/encontinu/cheptel-paturages-et-aides-directes-lexecutif-a-lapproche-de-aid-al-adha/)
