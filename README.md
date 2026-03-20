@@ -1,3 +1,17 @@
+### lens – angers (N/A, Fri, 20 Mar 2026 12:40:00 -0700)
+
+- **À quelle heure et sur quelle chaîne suivre Lens-Angers ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-suivre-lens-angers/1660512)
+- **La surprise Florian Sotoca, titulaire pour la première fois de la saison en championnat**: [Link](https://onefootball.com/fr/news/la-surprise-florian-sotoca-titulaire-pour-la-premiere-fois-de-la-saison-en-championnat-42590013)
+- **Ligue 1. Endurance mentale, manque d’efficacité : pourquoi Angers Sco n’est pas en réussite**: [Link](https://rennes.maville.com/sport/detail_-ligue-1.-endurance-mentale-manque-d-efficacite-pourquoi-angers-sco-n-est-pas-en-reussite-face-aux-gros-du-championnat-_-7242091_actu.Htm)
+
+
+### فياريال ضد ريال سوسيداد (N/A, Fri, 20 Mar 2026 12:40:00 -0700)
+
+- **القنوات الناقلة لمباراة فياريال ضد ريال سوسيداد اليوم في الدوري الإسباني مع الموعد والتشكيلة - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/952900428308512-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **فياريال يستضيف ريال سوسيداد في صراع مراكز القمة بالليغا (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/03/villareal-realsociedad-j29-laliga-pronostic.html)
+- **مباراة فياريال و ريال سوسيداد**: [Link](https://www.hibasport.com/kora/match/10019775/%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-vs-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF/)
+
+
 ### بورنموث ضد مان يونايتد (N/A, Fri, 20 Mar 2026 12:30:00 -0700)
 
 - **الشكوك تحوم حول مشاركة مزراوي مع مانشستر يونايتد أمام بورنموث بسبب المرض**: [Link](https://m.elbotola.com/article/2026-03-20-15-36-33.html)
