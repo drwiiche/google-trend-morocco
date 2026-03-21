@@ -1,3 +1,10 @@
+### vincennes (N/A, Sat, 21 Mar 2026 10:40:00 -0700)
+
+- **Les pronos hippiques du samedi 21 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-21-mars-2026_AN-202603190964.html)
+- **Les Notes des partants du Quinté+ de ce samedi 21 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-21-mars)
+- **Quinté Plus PMU : Karambar possède une première chance**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-karambar-possede-une-premiere-chance-129346.html)
+
+
 ### benfica – guimarães (N/A, Sat, 21 Mar 2026 10:20:00 -0700)
 
 - **11 inicial do Benfica para o jogo com o Vitória**: [Link](https://onefootball.com/pt-br/noticias/11-inicial-do-benfica-para-o-jogo-com-o-vitoria-42594046)
