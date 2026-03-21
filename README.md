@@ -1,3 +1,10 @@
+### hibapress (N/A, Fri, 20 Mar 2026 23:40:00 -0700)
+
+- **ناصري يهنئ الشعب الجزائري بمناسبة عيد الفطر – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%86%D8%A7%D8%B5%D8%B1%D9%8A-%D9%8A%D9%87%D9%86%D8%A6-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B9%D9%8A)
+- **الرئيس تبون يتبادل التهاني مع نظيره التونسي**: [Link](https://www.ennaharonline.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%AA%D8%A8%D9%88%D9%86-%D9%8A%D8%AA%D8%A8%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%AA%D9%87%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84/)
+- **محمد ولد الشيخ الغزواني يهنئ الموريتانيين بعيد الفطر ويدعو لمزيد من الاستقرار والرخاء**: [Link](https://www.thawabit.net/%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%A7%D9%84%D8%BA%D8%B2%D9%88%D8%A7%D9%86%D9%8A-%D9%8A%D9%87%D9%86%D8%A6-%D8%A7%D9%84%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7/)
+
+
 ### heure maroc (N/A, Fri, 20 Mar 2026 21:20:00 -0700)
 
 - **La pétition pour le retour à l'heure légale GMT frôle les 50.000 signatures et vise une saisine officielle**: [Link](https://mobile.telquel.ma/instant-t/2026/03/19/la-petition-pour-le-retour-a-l-heure-legale-gmt-frole-les-50-000-signatures-et-vise-une-saisine-officielle_1979721/)
