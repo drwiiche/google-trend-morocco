@@ -1,3 +1,10 @@
+### fulham – burnley (N/A, Sat, 21 Mar 2026 07:40:00 -0700)
+
+- **Pre-Burnley Press Conference**: [Link](https://www.fulhamfc.com/news/2026/march/20/pre-burnley-press-conference/)
+- **Referee at centre of FA Cup storm to officiate Burnley's clash at Fulham**: [Link](https://www.burnleyexpress.net/sport/football/referee-at-centre-of-fa-cup-storm-to-officiate-burnleys-clash-at-fulham-5964613)
+- **Ryan Sessegnon vs. Burnley FC – Player props & odds to score a goal on March 21**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/20/ryan-sessegnon-soccer-player-props-3-21-2026/89254458007/)
+
+
 ### espanyol – getafe (N/A, Sat, 21 Mar 2026 07:30:00 -0700)
 
 - **Manolo González: “La Liga o la Federación ha tocado el calendario y perjudican al Espanyol con tres partidos seguidos fuera”**: [Link](https://www.lavanguardia.com/deportes/20260320/11495101/espanyol-hay-volver-ganar-casa-sentirte-ganador-reclama-manolo-gonzalez.html)
