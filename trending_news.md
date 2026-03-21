@@ -1,3 +1,24 @@
+### osasuna – girona (N/A, Sat, 21 Mar 2026 09:50:00 -0700)
+
+- **Osasuna-Girona: Duelo en la zona media**: [Link](https://onefootball.com/en/news/osasuna-girona-duelo-en-la-zona-media-42591826)
+- **19:50H | LA LINTERNA EN COPE EN NAVARRA | 20 MARZO 2026**: [Link](https://www.cope.es/emisoras/navarra/podcast/episodios/19-50h-linterna-cope-navarra-20-marzo-2026-20260320_3331110.html)
+- **Girona y el recuerdo europeo de El Sadar**: [Link](https://as.com/futbol/primera/girona-y-el-recuerdo-europeo-de-el-sadar-f202603-n/)
+
+
+### everton – chelsea (N/A, Sat, 21 Mar 2026 09:50:00 -0700)
+
+- **Preview: Everton host Chelsea in evening kick off**: [Link](https://www.fotmob.com/el/topnews/26812-preview-everton-host-chelsea-evening-kick-off?utm_source=fotmob)
+- **Rosenior responds to questions about Everton’s set pieces and David Moyes**: [Link](https://onefootball.com/de/news/rosenior-responds-to-questions-about-evertons-set-pieces-and-david-moyes-42592760)
+- **Possible lineups for Chelsea's Premier League match against Everton**: [Link](https://www.besoccer.com/new/possible-lineups-for-chelseas-premier-league-match-against-everton-1400478)
+
+
+### bein sport live (N/A, Sat, 21 Mar 2026 09:50:00 -0700)
+
+- **Zenden makes PSG warning after Liverpool reach quarter-finals**: [Link](https://www.empireofthekop.com/2026/03/19/zenden-makes-psg-warning-after-liverpool-reach-quarter-finals/)
+- **Virgil van Dijk: Galatasaray was a good night, now let's be ready for Brighton**: [Link](https://www.liverpoolfc.com/news/virgil-van-dijk-galatasaray-was-good-night-now-lets-be-ready-brighton)
+- **Van Dijk Demands Focus After Liverpool’s European Masterclass**: [Link](https://streamlinefeed.co.ke/news/van-dijk-demands-focus-after-liverpool-european-masterclass)
+
+
 ### caf champions league (N/A, Sat, 21 Mar 2026 09:40:00 -0700)
 
 - **Esperance v Ahly thriller a beautiful scene-setter for TotalEnergies CAF Champions League second legs**: [Link](https://www.cafonline.com/caf-champions-league/news/esperance-v-ahly-thriller-a-beautiful-scene-setter-for-totalenergies-caf-champions-league-second-legs/)
