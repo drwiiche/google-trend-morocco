@@ -1,3 +1,17 @@
+### نيس ضد بي اس جي (N/A, Sat, 21 Mar 2026 12:30:00 -0700)
+
+- **حكيمي خارج قائمة إنريكي لمواجهة نيس**: [Link](https://www.hesport.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D9%8A%D8%B3-431767.html)
+- **باريس سان جيرمان يطارد صدارة الدوري الفرنسي في مواجهة صعبة أمام نيس**: [Link](https://m.elbotola.com/article/2026-03-21-11-15-857.html)
+- **سان جرمان للتمسك بالصدارة قبل النافذة الدولية**: [Link](https://akhbar-alkhaleej.com/news/article/1432454)
+
+
+### nice – paris-sg (N/A, Sat, 21 Mar 2026 12:20:00 -0700)
+
+- **Ligue 1 : le PSG privé de Hakimi face à Nice**: [Link](https://lematin.ma/sports/ligue-1-le-psg-prive-de-hakimi-face-a-nice/336000)
+- **OGC Nice - PSG : les compositions probables**: [Link](https://www.footmercato.net/a8899173215913243560-ogc-nice-psg-les-compositions-probables)
+- **Le onze du Gym face au PSG**: [Link](https://www.ogcnice.com/fr/article/130131/le-onze-du-gym-face-au-psg.html)
+
+
 ### juventus – sassuolo (N/A, Sat, 21 Mar 2026 12:10:00 -0700)
 
 - **Juventus-Sassuolo, le formazioni: Spalletti punta su Perin, torna il falso nueve**: [Link](https://video.gazzetta.it/calcio/juventus-sassuolo-le-probabili-formazioni-spalletti-punta-su-perin-e-il-falso-nueve/67f8c7b2-6f47-4bec-a4d2-b356ad9cbxlk)
