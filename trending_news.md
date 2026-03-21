@@ -1,3 +1,10 @@
+### grâce royale (N/A, Sat, 21 Mar 2026 07:20:00 -0700)
+
+- **Grâce royale au profit de 1201 personnes à l'occasion de Aïd Al Fitr**: [Link](https://medias24.com/2026/03/20/grace-royale-au-profit-de-1201-personnes-a-loccasion-de-aid-al-fitr-1646541/)
+- **Pourquoi l’Aïd Al-Fitr a été célébré ce vendredi au Maroc ? (Tribune)**: [Link](https://lematin.ma/chroniques/pourquoi-laid-a-ete-celebre-ce-vendredi-au-maroc/335960)
+- **SM le Roi, Amir Al-Mouminine, accomplit la prière de l'Aïd Al-Fitr à la mosquée "Ahl Fès" à Rabat et reçoit les voeux en cette heureuse occasion**: [Link](https://www.maroc.ma/fr/actualites/sm-le-roi-amir-al-mouminine-accomplit-la-priere-de-laid-al-fitr-la-mosquee-ahl-fes-rabat-et-recoit-les)
+
+
 ### fulham – burnley (N/A, Sat, 21 Mar 2026 07:40:00 -0700)
 
 - **Pre-Burnley Press Conference**: [Link](https://www.fulhamfc.com/news/2026/march/20/pre-burnley-press-conference/)
