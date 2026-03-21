@@ -1,3 +1,17 @@
+### sonia mabrouk cnews (N/A, Sat, 21 Mar 2026 01:10:00 -0700)
+
+- **«Mes origines et mes convictions ne collaient plus avec le groupe» : Sonia Mabrouk justifie son départ de CNews et Europe 1**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/mes-origines-et-mes-convictions-ne-collaient-plus-avec-le-groupe-sonia-mabrouk-justifie-son-depart-de-cnews-et-europe-1-20260320)
+- **Pascal Praud “regrette” le départ de Sonia Mabrouk de CNews : le journaliste parle enfin**: [Link](https://www.gala.fr/l_actu/news_de_stars/pascal-praud-regrette-le-depart-de-sonia-mabrouk-de-cnews-le-journaliste-parle-enfin-20260320)
+- **"L'affaire Morandini et mes relations" : Sonia Mabrouk sort du silence et évoque pour la première fois son départ de CNews**: [Link](https://www.public.fr/laffaire-morandini-et-mes-relations-sonia-mabrouk-sort-du-silence-et-evoque-pour-la-premiere-fois-son-depart-de-cnews)
+
+
+### peaky blinders film (N/A, Sat, 21 Mar 2026 01:00:00 -0700)
+
+- **‘Peaky Blinders: The Immortal Man’ Review: Cillian Murphy and Barry Keoghan Battle as Wayward Father and Son in Netflix’s Frothy Sequel Film**: [Link](https://www.hollywoodreporter.com/movies/movie-reviews/peaky-blinders-the-immortal-man-review-netflix-sequel-film-1236542078/)
+- **Bleak midwinter? That 'Peaky Blinders: Immortal Man' ending explained**: [Link](https://www.usatoday.com/story/entertainment/movies/2026/03/20/does-tommy-die-peaky-blinders-immortal-man-ending-explained/88955040007/)
+- **Raise a Glass to Tommy Shelby for the Launch of Peaky Blinders: The Immortal Man**: [Link](https://www.netflix.com/tudum/articles/peaky-blinders-the-immortal-man-pub-partnership)
+
+
 ### world cup 2026 (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
 
 - **"Want World Cup to go ahead as scheduled:" FIFA President Gianni Infantino amid Iran's participation concern**: [Link](http://www.malaysiasun.com/news/278935150/want-world-cup-to-go-ahead-as-scheduled-fifa-president-gianni-infantino-amid-iran-participation-concern)
