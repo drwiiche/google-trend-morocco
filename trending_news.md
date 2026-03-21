@@ -1,3 +1,10 @@
+### heure maroc (N/A, Fri, 20 Mar 2026 21:20:00 -0700)
+
+- **La pétition pour le retour à l'heure légale GMT frôle les 50.000 signatures et vise une saisine officielle**: [Link](https://mobile.telquel.ma/instant-t/2026/03/19/la-petition-pour-le-retour-a-l-heure-legale-gmt-frole-les-50-000-signatures-et-vise-une-saisine-officielle_1979721/)
+- **Rappel. Le Maroc repasse à l’heure GMT+1 dès dimanche 22 mars, à 02h00**: [Link](https://fr.le360.ma/societe/rappel-le-maroc-rapasse-a-lheure-gmt1-des-dimanche-22-mars-a-02h00_QZWCDAEBXBCMTGZSRXIRC2QXP4/)
+- **Pétition : près de 28 000 signatures contre le retour de l'heure d'été**: [Link](https://lopinion.ma/fr/actu-maroc/heure-supplementaire--pres-de-28-000-signatures-contre-le-gmt1_a57335?articleId=435e4a68-56cf-4346-aba5-ca15251a80f8)
+
+
 ### vinaigre blanc (N/A, Fri, 20 Mar 2026 18:30:00 -0700)
 
 - **Il mélange de l’eau de javel et du vinaigre blanc pour nettoyer sa salle de bains : 13 pompiers mobilisés pour lui porter secours**: [Link](https://www.ladepeche.fr/2026/03/19/il-melange-de-leau-de-javel-et-du-vinaigre-blanc-pour-nettoyer-sa-salle-de-bains-13-pompiers-mobilises-pour-lui-porter-secours-13281875.php)
