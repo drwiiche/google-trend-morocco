@@ -1,3 +1,24 @@
+### osasuna vs girona (N/A, Sat, 21 Mar 2026 11:40:00 -0700)
+
+- **Preview: Osasuna vs Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/osasuna/preview/osasuna-vs-girona-prediction-team-news-lineups_594187.html)
+- **Ante Budimir vs. Girona FC – Player props & odds to score a goal on March 21**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/21/ante-budimir-soccer-player-props-3-21-2026/89259689007/)
+- **Osasuna vs Girona Prediction, 3/21/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/osasuna-vs-girona-prediction-3-21-2026-soccer-pick-tips-and-odds.html)
+
+
+### ahly (N/A, Sat, 21 Mar 2026 11:30:00 -0700)
+
+- **Esperance v Ahly thriller a beautiful scene-setter for TotalEnergies CAF Champions League second legs**: [Link](https://www.cafonline.com/caf-champions-league/news/esperance-v-ahly-thriller-a-beautiful-scene-setter-for-totalenergies-caf-champions-league-second-legs/)
+- **Espérance: Experienced defender doubtful for CAFCL quarterfinal second leg**: [Link](https://www.panafricafootball.com/post/esperance-defender-doubtful/)
+- **Kaisila Boualia, Star of Esperance, Talks About Facing Al Ahly in the Champions League**: [Link](https://www.ysscores.com/en/news/13931078/Kaisila-Boualia,-Star-of-Esperance,-Talks-About-Facing-Al-Ahly-in-the-Champions-League)
+
+
+### دوري ابطال افريقيا (N/A, Sat, 21 Mar 2026 10:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي والترجي في إياب ربع نهائي دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%81%D9%8A-%D8%A7%D9%95%D9%8A%D8%A7%D8%A8-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt39ca0059599a4bc1)
+- **مباشر مباراة الأهلي المصري ضد الترجي التونسي في ربع نهائي دوري أبطال أفريقيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A)
+- **الأهلى يعرض غرفة ملابس اللاعبين قبل مواجهة الترجى التونسى فى 15 لقطة**: [Link](https://www.youm7.com/story/2026/3/21/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%89-%D9%8A%D8%B9%D8%B1%D8%B6-%D8%BA%D8%B1%D9%81%D8%A9-%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%89-%D9%81%D9%89/7349546)
+
+
 ### vincennes (N/A, Sat, 21 Mar 2026 10:40:00 -0700)
 
 - **Les pronos hippiques du samedi 21 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-21-mars-2026_AN-202603190964.html)
