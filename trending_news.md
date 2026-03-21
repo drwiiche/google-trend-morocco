@@ -1,3 +1,17 @@
+### byd (N/A, Sat, 21 Mar 2026 06:20:00 -0700)
+
+- **What to Know About Electric Cars When Gas Prices Are Surging**: [Link](https://www.nytimes.com/2026/03/21/business/energy-environment/gas-prices-electric-vehicles-iran.html)
+- **US interest in electric vehicles surges as gas prices jump amid Iran war**: [Link](https://www.theguardian.com/business/2026/mar/21/us-gas-price-surge-iran-electric-cars)
+- **Why $4 gasoline is the tipping point for EVs**: [Link](https://grist.org/energy/why-4-gasoline-is-the-tipping-point-for-evs/)
+
+
+### عيد الأم (N/A, Sat, 21 Mar 2026 05:40:00 -0700)
+
+- **هدايا "تجرح" في يوم الأم.. وعادات صغيرة تجعل كل يوم عيدا لها**: [Link](https://www.aljazeera.net/family/2026/3/21/%D9%87%D8%AF%D8%A7%D9%8A%D8%A7-%D8%AA%D8%AC%D8%B1%D8%AD-%D9%81%D9%8A-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%85-%D9%88%D8%B9%D8%A7%D8%AF%D8%A7%D8%AA-%D8%B5%D8%BA%D9%8A%D8%B1%D8%A9)
+- **صور ورسائل التهنئة بمناسبة عيد الأم 21 مارس 2026.. كلمات مؤثرة (أرسلها الآن)**: [Link](https://www.almasryalyoum.com/news/details/4226642)
+- **أفكار أكسسوارات سهلة واقتصادية لتزيين المنزل في يوم الأم 2026**: [Link](https://www.sayidaty.net/%D9%84%D8%A7%D9%8A%D9%81-%D8%B3%D8%AA%D8%A7%D9%8A%D9%84/%D9%85%D9%86%D8%B2%D9%84-%D9%88%D8%AF%D9%8A%D9%83%D9%88%D8%B1/1831305-%D8%A3%D9%81%D9%83%D8%A7%D8%B1-%D8%A7%D9%83%D8%B3%D8%B3%D9%88%D8%A7%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D9%85%D9%86%D8%B2%D9%84-%D9%81%D9%8A-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D9%85)
+
+
 ### برايتون ضد ليفربول (N/A, Sat, 21 Mar 2026 05:20:00 -0700)
 
 - **صدمة أليسون تُقرب محترف النصر من حماية أنشيلوتي مع البرازيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D8%A7%D9%94%D9%84%D9%8A%D8%B3%D9%88%D9%86-%D8%AA%D9%8F%D9%82%D8%B1%D8%A8-%D9%85%D8%AD%D8%AA%D8%B1%D9%81-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%85%D9%86-%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84/blt0bbb97ca8bb57e0f)
