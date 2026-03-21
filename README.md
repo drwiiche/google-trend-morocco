@@ -1,3 +1,10 @@
+### sevilla vs valencia (N/A, Sat, 21 Mar 2026 14:20:00 -0700)
+
+- **Preview: Sevilla vs Valencia - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/sevilla-vs-valencia-prediction-team-news-lineups_594149.html)
+- **Largie Ramazani vs. Sevilla FC – Player props & odds to score a goal on March 21**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/21/largie-ramazani-soccer-player-props-3-21-2026/89259261007/)
+- **Sevilla vs Valencia Prediction, 3/21/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/sevilla-vs-valencia-prediction-3-21-2026-soccer-pick-tips-and-odds.html)
+
+
 ### الترجي (N/A, Sat, 21 Mar 2026 14:20:00 -0700)
 
 - **فيديو: الترجي يقتل كبرياء الأهلي في القاهرة ويبلغ نصف نهائي دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%8A%D9%82%D8%AA%D9%84-%D9%83%D8%A8%D8%B1%D9%8A%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt0cda41b372b42479)
