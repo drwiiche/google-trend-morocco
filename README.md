@@ -1,3 +1,38 @@
+### heidenheim – leverkusen (N/A, Sat, 21 Mar 2026 07:00:00 -0700)
+
+- **+[Übertragung]FREE!] Bayer Leverkusen gegen FC Heidenheim 1846 heute Übertragung heute live im TV & Stream, Übertragung im TV, Startzeit, Sperrungen HD6595695**: [Link](https://www.ica.gov.co/CSS/noticias/video-bayer-leverkusen-gegen-fc-heidenheim-1846-tv868041330.html)
+- **DAZN oder Sky - wo läuft die Konferenz heute live?**: [Link](https://www.dazn.com/de-AT/news/fussball/dazn-oder-sky-wo-laeuft-die-konferenz-heute-live-bundesliga/1b0mnggv0i1dv1ape6k7pk2pnl)
+- **Packendes Rheinderby & Keller-Krimi: Die Aufstellungen zur Bundesliga**: [Link](https://neunzigplus.de/bundesliga/packendes-rheinderby-keller-krimi-die-aufstellungen-zur-bundesliga/)
+
+
+### date printemps 2026 (N/A, Sat, 21 Mar 2026 07:00:00 -0700)
+
+- **Équinoxe de Printemps : tour du monde des traditions pour célébrer le renouveau**: [Link](https://lesfrancais.press/equinoxe-printemps-tour-monde-traditions-pour-celebrer-renouveau/)
+- **Une journée encore ensoleillée sur toute la France ce vendredi**: [Link](https://www.bfmtv.com/meteo/video-une-journee-encore-ensoleillee-sur-toute-la-france-ce-vendredi_VN-202603200090.html)
+- **Astronomie : ce vendredi c'était l’équinoxe, le jour et la nuit avaient une durée égale**: [Link](https://www.linfo.re/la-reunion/faits-divers/astronomie-ce-vendredi-c-etait-l-equinoxe-le-jour-et-la-nuit-avaient-une-duree-egale)
+
+
+### bayern – union berlin (N/A, Sat, 21 Mar 2026 06:50:00 -0700)
+
+- **+#[Übertragung]CBS!] Union Berlin gegen Bayern live im TV & Stream, Übertragung im TV, Startzeit, Sperrungen und 21 March 2126HD6595695**: [Link](https://www.ica.gov.co/CSS/noticias/video-union-berlin-gegen-bayern-tv316851310.html)
+- **Auswärts in München: Macht Unions Jeong den Hattrick voll?**: [Link](https://www.fussballdaten.de/news/auswaerts-in-muenchen-macht-unions-jeong-den-hattrick-voll-e5986fb9/)
+- **Bundesliga live: FC Bayern haushoher Favorit, Derby im Rheinland**: [Link](https://www.welt.de/sport/fussball/bundesliga/article69be82e37208c62980941363/bundesliga-live-fc-bayern-haushoher-favorit-derby-im-rheinland.html)
+
+
+### arabie saoudite (N/A, Sat, 21 Mar 2026 06:50:00 -0700)
+
+- **Vidéo. Arabie saoudite : deux missiles balistiques abattus par des Patriot grecs**: [Link](https://fr.euronews.com/video/2026/03/19/arabie-saoudite-des-chasseurs-patriot-grecs-ont-abattu-deux-missiles-balistiques-iraniens)
+- **Porte-parole du ministère de la Défense : Interception et destruction d’un drone dans la région de l’Est**: [Link](https://www.spa.gov.sa/fr/N2543122)
+- **L'Arabie saoudite abat plusieurs drones alors que les attaques iraniennes se poursuivent**: [Link](https://www.arabnews.fr/node/505501/monde-arabe)
+
+
+### 21 mars (N/A, Sat, 21 Mar 2026 06:00:00 -0700)
+
+- **[Podcasts] L'intégrale de Bonjour c'est Fred du samedi 21 mars 2026**: [Link](https://rmc.bfmtv.com/replay-emissions/bonjour-c-est-fred/l-integrale-de-bonjour-c-est-fred-du-samedi-21-mars-2026_EN-202603210081.html)
+- **[Podcasts] Bonjour la France - 21/03**: [Link](https://rmc.bfmtv.com/replay-emissions/bonjour-c-est-fred/bonjour-la-france-21-03_EN-202603210067.html)
+- **Les Notes des partants du Quinté+ de ce samedi 21 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-21-mars)
+
+
 ### byd (N/A, Sat, 21 Mar 2026 06:20:00 -0700)
 
 - **What to Know About Electric Cars When Gas Prices Are Surging**: [Link](https://www.nytimes.com/2026/03/21/business/energy-environment/gas-prices-electric-vehicles-iran.html)
