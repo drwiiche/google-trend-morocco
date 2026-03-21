@@ -1,3 +1,17 @@
+### brighton – liverpool (N/A, Sat, 21 Mar 2026 04:40:00 -0700)
+
+- **Paul Merson agrees with Alan Shearer on Brighton vs Liverpool prediction**: [Link](https://www.liverpool.com/liverpool-fc-news/features/merson-shearer-brighton-liverpool-prediction-33635215)
+- **Brighton vs. Liverpool Lineups, Injuries, Predictions, Head-to-Head Stats, Live Streaming & Results**: [Link](https://www.aol.com/articles/brighton-vs-liverpool-lineups-injuries-073000621.html)
+- **🚨No Salah or Alisson, Liverpool take a gamble at Brighton**: [Link](https://onefootball.com/fr/news/no-salah-or-alisson-liverpool-take-a-gamble-at-brighton-42592575)
+
+
+### ryanair (N/A, Sat, 21 Mar 2026 04:30:00 -0700)
+
+- **Ryanair CEO expects Boeing 737 MAX 10 certification in third quarter**: [Link](https://www.reuters.com/business/aerospace-defense/ryanair-ceo-expects-boeing-max-10-deliveries-run-time-2026-03-19/)
+- **Ryanair CEO Signals Q3 Certification for New Boeing 737 MAX 10, Deliveries in 2027**: [Link](https://aviationa2z.com/index.php/2026/03/20/ryanair-signals-q3-certification-for-737-max-10/)
+- **Ryanair Eyes 2027 Debut for Boeing 737 MAX 10 Fleet Expansion**: [Link](https://www.thetraveler.org/ryanair-eyes-2027-debut-for-boeing-737-max-10-fleet-expansion/)
+
+
 ### zone-turf (N/A, Sat, 21 Mar 2026 03:20:00 -0700)
 
 - **7 Jazzman - Trot**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-jazzman-129347.html)
