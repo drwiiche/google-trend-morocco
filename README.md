@@ -1,3 +1,10 @@
+### الترجي (N/A, Sat, 21 Mar 2026 14:20:00 -0700)
+
+- **فيديو: الترجي يقتل كبرياء الأهلي في القاهرة ويبلغ نصف نهائي دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%8A%D9%82%D8%AA%D9%84-%D9%83%D8%A8%D8%B1%D9%8A%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt0cda41b372b42479)
+- **يوم أسود على الكرة المصرية.. الأهلي يلحق ببيراميدز بعد إقصائه من ربع نهائي العصبة على يد الترجي التونسي**: [Link](https://m.elbotola.com/article/2026-03-21-20-56-647.html)
+- **الترجي يهزم الأهلي ويتأهل لنصف النهائي**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6-431842.html)
+
+
 ### robert mueller (N/A, Sat, 21 Mar 2026 13:00:00 -0700)
 
 - **Former FBI director and special counsel Robert Mueller has died**: [Link](https://www.ms.now/news/former-special-counsel-robert-mueller-has-died)
