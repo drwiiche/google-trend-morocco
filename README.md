@@ -1,3 +1,10 @@
+### eau de javel (N/A, Sat, 21 Mar 2026 03:00:00 -0700)
+
+- **Il mélange de l’eau de javel et du vinaigre blanc pour nettoyer sa salle de bains : 13 pompiers mobilisés pour lui porter secours**: [Link](https://www.ladepeche.fr/2026/03/19/il-melange-de-leau-de-javel-et-du-vinaigre-blanc-pour-nettoyer-sa-salle-de-bains-13-pompiers-mobilises-pour-lui-porter-secours-13281875.php)
+- **« Cela a produit une réaction chimique » : un homme transféré à l’hôpital après avoir mélangé de l’eau de Javel et du vinaigre blanc**: [Link](https://www.msn.com/fr-fr/actualite/technologie-et-sciences/cela-a-produit-une-r%C3%A9action-chimique-un-homme-transf%C3%A9r%C3%A9-%C3%A0-l-h%C3%B4pital-apr%C3%A8s-avoir-m%C3%A9lang%C3%A9-de-l-eau-de-javel-et-du-vinaigre-blanc/ar-AA1Z3JsS?cvid=69be4200d5ff40a7b124cf4a154e09e1&ocid=hpmsn)
+- **Javel, vinaigre… ces mélanges "maison" qui peuvent vous envoyer à l’hôpital**: [Link](https://www.ladepeche.fr/2026/03/20/javel-vinaigre-ces-melanges-maison-qui-peuvent-vous-envoyer-a-lhopital-13282992.php)
+
+
 ### space exploration (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
 
 - **Tesla’s $2.9 billion bet: Why Elon Musk is turning to China to build America’s solar future**: [Link](https://www.teslarati.com/tesla-us-solar-manufacturing-china-equipment/)
