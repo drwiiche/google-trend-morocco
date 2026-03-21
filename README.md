@@ -1,3 +1,24 @@
+### world cup 2026 (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **"Want World Cup to go ahead as scheduled:" FIFA President Gianni Infantino amid Iran's participation concern**: [Link](http://www.malaysiasun.com/news/278935150/want-world-cup-to-go-ahead-as-scheduled-fifa-president-gianni-infantino-amid-iran-participation-concern)
+- **Iranian football federation President to ‘boycott US, not World Cup’**: [Link](https://www.channelafrica.co.za/channelafrica/news/iranian-football-federation-president-to-boycott-us-not-world-cup/)
+- **Iran 'boycotting' U.S. but not World Cup: soccer federation chief**: [Link](https://www.japantimes.co.jp/sports/2026/03/20/soccer/iran-us-world-cup/)
+
+
+### openai (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **OpenAI to create desktop super app, combining ChatGPT app, browser and Codex app**: [Link](https://www.cnbc.com/2026/03/19/openai-desktop-super-app-chatgpt-browser-codex.html)
+- **OpenAI plans desktop 'superapp' to streamline user experience**: [Link](https://www.reuters.com/technology/openai-plans-desktop-superapp-simplify-user-experience-wsj-reports-2026-03-19/)
+- **OpenAI Plans Desktop ‘Superapp’ to Combine ChatGPT, Codex, Atlas Browser**: [Link](https://www.pcmag.com/news/openai-plans-desktop-superapp-to-combine-chatgpt-codex-atlas-browser)
+
+
+### electric vehicles (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **Why $4 gasoline is the tipping point for EVs**: [Link](https://grist.org/energy/why-4-gasoline-is-the-tipping-point-for-evs/)
+- **BYD’s bet on EVs is paying off as drivers ditch gas amid rising oil prices**: [Link](https://electrek.co/2026/03/20/byd-ev-demand-surges-drivers-ditch-gas-amid-rising-oil-prices/)
+- **The Iran war and high gas prices are getting Americans excited about EVs again**: [Link](https://fortune.com/2026/03/18/global-ev-fleet-makes-up-70-percent-of-iran-oil-exports-renewed-us-interest/)
+
+
 ### hibapress (N/A, Fri, 20 Mar 2026 23:40:00 -0700)
 
 - **ناصري يهنئ الشعب الجزائري بمناسبة عيد الفطر – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%86%D8%A7%D8%B5%D8%B1%D9%8A-%D9%8A%D9%87%D9%86%D8%A6-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B9%D9%8A)
