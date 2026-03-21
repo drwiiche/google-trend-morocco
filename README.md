@@ -1,3 +1,17 @@
+### al ahly (N/A, Sat, 21 Mar 2026 12:30:00 -0700)
+
+- **Al Ahly coach speaks out: 'I know the pressure..…**: [Link](https://www.kickoff.com/world-news/african-football/coach-jess-thorup-comments-on-al-ahly-future)
+- **CAF Champions League: I know there is pressure to win – Al Ahly coach Jess Thorup**: [Link](https://africasoccer.com/caf-champions-league-i-know-there-is-pressure-to-win-al-ahly-coach-jess-thorup/)
+- **Esperance v Ahly thriller a beautiful scene-setter for TotalEnergies CAF Champions League second legs**: [Link](https://www.cafonline.com/caf-champions-league/news/esperance-v-ahly-thriller-a-beautiful-scene-setter-for-totalenergies-caf-champions-league-second-legs/)
+
+
+### دوري أبطال أفريقيا (N/A, Sat, 21 Mar 2026 11:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي والترجي في إياب ربع نهائي دوري أبطال إفريقيا 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%81%D9%8A-%D8%A7%D9%95%D9%8A%D8%A7%D8%A8-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt39ca0059599a4bc1)
+- **مباشر مباراة الأهلي المصري ضد الترجي التونسي في ربع نهائي دوري أبطال أفريقيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A)
+- **تريزيجيه يتقدم للأهلى فى شباك الترجى التونسى بالدقيقة 10**: [Link](https://www.youm7.com/story/2026/3/21/%D8%AA%D8%B1%D9%8A%D8%B2%D9%8A%D8%AC%D9%8A%D9%87-%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D9%84%D9%84%D8%A3%D9%87%D9%84%D9%89-%D9%81%D9%89-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%89-%D8%A8%D8%A7%D9%84%D8%AF%D9%82%D9%8A%D9%82%D8%A9-10/7349707)
+
+
 ### نيس ضد بي اس جي (N/A, Sat, 21 Mar 2026 12:30:00 -0700)
 
 - **حكيمي خارج قائمة إنريكي لمواجهة نيس**: [Link](https://www.hesport.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D9%8A%D8%B3-431767.html)
