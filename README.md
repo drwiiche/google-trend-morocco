@@ -1,3 +1,38 @@
+### space exploration (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **Tesla’s $2.9 billion bet: Why Elon Musk is turning to China to build America’s solar future**: [Link](https://www.teslarati.com/tesla-us-solar-manufacturing-china-equipment/)
+- **Musk's Move Sparks Market Surge: What Exactly is Behind the $20 Billion China Solar Order?**: [Link](https://news.futunn.com/en/post/70407261/musk-s-move-sparks-market-surge-what-exactly-is-behind)
+- **Musk Plots $2.9 Billion Solar Shopping Spree To Turbocharge Austin Factory**: [Link](https://hoodline.com/2026/03/musk-plots-2-9-billion-solar-shopping-spree-to-turbocharge-austin-factory/)
+
+
+### bitcoin price (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **Bitcoin Holding at $70,000 as Iran War Stokes Inflation Concerns**: [Link](https://www.bloomberg.com/news/articles/2026-03-20/bitcoin-holding-at-70-000-as-iran-war-stokes-inflation-concerns)
+- **Bitcoin’s Resilience: Crypto Holds Above $70,000 as Investors Weigh Digital Gold vs. Traditional Assets in Wartime**: [Link](http://markets.chroniclejournal.com/chroniclejournal/article/marketminute-2026-3-20-bitcoins-resilience-crypto-holds-above-70000-as-investors-weigh-digital-gold-vs-traditional-assets-in-wartime)
+- **Bitcoin Price News: BTC Holds $70,000 as ETF Nears Breakeven and Pepeto Offers 100x Math**: [Link](https://blockchainreporter.net/bitcoin-price-news-btc-holds-70000-as-etf-nears-breakeven-and-pepeto-offers-100x-math/)
+
+
+### climate change (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **Fearing Chaos of Climate Change, Some Seek Answers in Virtual Classroom**: [Link](https://www.nytimes.com/2026/03/21/nyregion/fearing-chaos-of-climate-change-some-seek-answers-in-virtual-classroom.html)
+- **Graphics show the scale of extreme heat hitting the US**: [Link](https://apnews.com/article/heat-records-climate-change-graphics-bfea2c9562495152d081f55cc70f0cbe)
+- **Bay Area to finally cool off, after California's hottest winter day ever**: [Link](https://www.sfgate.com/weather/article/california-heat-wave-records-22086450.php)
+
+
+### artificial intelligence (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **2 Millionaire-Maker Artificial Intelligence (AI) Stocks**: [Link](https://www.fool.com/investing/2026/03/20/2-millionaire-maker-artificial-intelligence-ai-sto/)
+- **NVIDIA and Palantir Cool Off in 2026: Concerning?**: [Link](https://www.tradingview.com/news/zacks:cb492d2ca094b:0-nvidia-and-palantir-cool-off-in-2026-concerning/)
+- **Long-Only Funds Shift to Non-US Stocks, TSMC (TSM) Stays at the Top**: [Link](https://www.insidermonkey.com/blog/long-only-funds-shift-to-non-us-stocks-tsmc-tsm-stays-at-the-top-1721622/)
+
+
+### deep learning (N/A, Sat, 21 Mar 2026 01:20:00 -0700)
+
+- **Deep Learning Predicts Adult Obesity via Fitness Data**: [Link](https://bioengineer.org/deep-learning-predicts-adult-obesity-via-fitness-data/)
+- **Deep Learning - Google Trends**: [Link](https://www.latestly.com/google-trends/20032026/deep-learning/)
+- **Can Deep Learning Enhance Non-Contrast CT Detection of Intracranial Hemorrhages?**: [Link](https://www.diagnosticimaging.com/view/deep-learning-non-contrast-ct-detection-intracranial-hemorrhages-)
+
+
 ### sonia mabrouk cnews (N/A, Sat, 21 Mar 2026 01:10:00 -0700)
 
 - **«Mes origines et mes convictions ne collaient plus avec le groupe» : Sonia Mabrouk justifie son départ de CNews et Europe 1**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/mes-origines-et-mes-convictions-ne-collaient-plus-avec-le-groupe-sonia-mabrouk-justifie-son-depart-de-cnews-et-europe-1-20260320)
