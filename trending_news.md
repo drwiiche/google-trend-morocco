@@ -1,3 +1,10 @@
+### far vs pyramids (N/A, Sat, 21 Mar 2026 09:00:00 -0700)
+
+- **Pyramids Coach Calls Up 23 Players for AS FAR Second Leg; El Karti Remains Absent**: [Link](https://m.elbotola.com/en/article/2026-03-21-11-24-331.html)
+- **CAF Champions League: date, time, channels, and head-to-head history for Pyramids vs AS FAR**: [Link](https://foot-africa.com/en/news/caf-champions-league-date-time-channels-and-head-to-head-history-for-pyramids-vs-as-far-1132322/)
+- **Karti Absent from Pyramids Against Royal Army**: [Link](https://www.ysscores.com/en/news/13931411/Karti-Absent-from-Pyramids-Against-Royal-Army)
+
+
 ### watford – leicester (N/A, Sat, 21 Mar 2026 08:30:00 -0700)
 
 - **Does Bove start? Predicting Ed Still's Watford XI for Leicester City**: [Link](https://www.watfordobserver.co.uk/sport/25953903.bove-start-predicting-ed-stills-xi-leicester/)
