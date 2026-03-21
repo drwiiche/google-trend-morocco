@@ -1,3 +1,10 @@
+### robert mueller (N/A, Sat, 21 Mar 2026 13:00:00 -0700)
+
+- **Former FBI director and special counsel Robert Mueller has died**: [Link](https://www.ms.now/news/former-special-counsel-robert-mueller-has-died)
+- **‘Vile’ Trump condemned for gloating over Robert Mueller death**: [Link](https://www.theguardian.com/us-news/2026/mar/21/trump-robert-mueller-death)
+- **Robert S. Mueller III, 81, Dies; Rebuilt F.B.I. and Led Trump Inquiry**: [Link](https://www.nytimes.com/2026/03/21/us/politics/robert-s-mueller-dead.html)
+
+
 ### leeds united – brentford (N/A, Sat, 21 Mar 2026 13:00:00 -0700)
 
 - **Premier League LIVE: Everton beat Chelsea before Leeds v Brentford**: [Link](https://www.bbc.com/sport/live/c62dzklqxwqt)
