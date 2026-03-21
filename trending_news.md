@@ -1,3 +1,24 @@
+### benfica – guimarães (N/A, Sat, 21 Mar 2026 10:20:00 -0700)
+
+- **11 inicial do Benfica para o jogo com o Vitória**: [Link](https://onefootball.com/pt-br/noticias/11-inicial-do-benfica-para-o-jogo-com-o-vitoria-42594046)
+- **Gil Lameiras e a deslocação à Luz: “A questão emocional vai melhorar se a questão defensiva melhorar”**: [Link](https://rr.pt/bola-branca/noticia/futebol-nacional/2026/03/20/gil-lameiras-e-a-deslocacao-a-luz-a-questao-emocional-vai-melhorar-se-a-questao-defensiva-melhorar/463840/)
+- **Liga: os onzes prováveis do Benfica-V. Guimarães**: [Link](https://maisfutebol.iol.pt/fotogaleria/69bd86ddd34e28842c81ff9a/liga-os-onzes-provaveis-do-benfica-v-guimaraes)
+
+
+### إيفرتون ضد تشيلسي (N/A, Sat, 21 Mar 2026 10:20:00 -0700)
+
+- **القنوات الناقلة لمباراة تشيلسي ضد إيفرتون اليوم في الدوري الإنجليزي مع الموعد والتشكيلة - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/358831822857764-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **جواو بيدرو يقود هجوم تشيلسى ضد إيفرتون فى الدورى الإنجليزى**: [Link](https://www.youm7.com/story/2026/3/21/%D8%AC%D9%88%D8%A7%D9%88-%D8%A8%D9%8A%D8%AF%D8%B1%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%89-%D8%B6%D8%AF-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%89/7349639)
+- **بالمر يقود تشكيل تشيلسي ضد إيفرتون في الدوري الإنجليزي الممتاز**: [Link](https://www.almasryalyoum.com/news/details/4226930)
+
+
+### levante – real oviedo (N/A, Sat, 21 Mar 2026 10:10:00 -0700)
+
+- **Levante-Real Oviedo: Lucha por la permanencia**: [Link](https://onefootball.com/de/news/levante-real-oviedo-lucha-por-la-permanencia-42591836)
+- **Lo de Orriols sí que es una 'Finalissima'**: [Link](https://www.levante-emv.com/levante-ud/2026/03/20/orriols-finalissima-128238408.html)
+- **Levante UD-Real Oviedo y Osasuna-Girona FC, en directo: los partidos de la jornada 29 de LaLiga, en vivo**: [Link](https://cadenaser.com/nacional/2026/03/21/levante-ud-real-oviedo-y-osasuna-girona-fc-en-directo-los-partidos-de-la-jornada-29-de-laliga-en-vivo-cadena-ser/)
+
+
 ### osasuna – girona (N/A, Sat, 21 Mar 2026 09:50:00 -0700)
 
 - **Osasuna-Girona: Duelo en la zona media**: [Link](https://onefootball.com/en/news/osasuna-girona-duelo-en-la-zona-media-42591826)
