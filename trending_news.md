@@ -1,3 +1,10 @@
+### watford – leicester (N/A, Sat, 21 Mar 2026 08:30:00 -0700)
+
+- **Does Bove start? Predicting Ed Still's Watford XI for Leicester City**: [Link](https://www.watfordobserver.co.uk/sport/25953903.bove-start-predicting-ed-stills-xi-leicester/)
+- **Watford vs Leicester LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2026/03/21/1254858-watford-vs-leicester-live-score-efl-championship.html)
+- **Ed Still: Watford manager wants opponents to fear Hornets on counter attack**: [Link](https://www.bbc.co.uk/sport/football/articles/cn439nx871qo)
+
+
 ### grâce royale (N/A, Sat, 21 Mar 2026 07:20:00 -0700)
 
 - **Grâce royale au profit de 1201 personnes à l'occasion de Aïd Al Fitr**: [Link](https://medias24.com/2026/03/20/grace-royale-au-profit-de-1201-personnes-a-loccasion-de-aid-al-fitr-1646541/)
