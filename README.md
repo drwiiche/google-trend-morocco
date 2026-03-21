@@ -1,3 +1,17 @@
+### الاهلي (N/A, Sat, 21 Mar 2026 13:40:00 -0700)
+
+- **بالفيديو.. الأهلي المصري يودع دوري أبطال أفريقيا بخسارة تاريخية أمام الترجي التونسي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A)
+- **وائل جمعة يجلد نجوم الأهلي: خروج يليق بهم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%A7%D9%8A%D9%94%D9%84-%D8%AC%D9%85%D8%B9%D8%A9-%D9%8A%D8%AC%D9%84%D8%AF-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AE%D8%B1%D9%88%D8%AC-%D9%8A%D9%84%D9%8A%D9%82-%D8%A8%D9%87%D9%85/bltb391e44b456b5970)
+- **قدم.. الترجي يتخطى الأهلي وبتأهل لنصف نهائي أبطال إفريقيا**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A8%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/3874338)
+
+
+### إشبيلية ضد فالنسيا (N/A, Sat, 21 Mar 2026 13:20:00 -0700)
+
+- **الدوري الإسباني: فالنسيا يقهر إشبيلية بثنائية**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5253847-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%8A%D9%82%D9%87%D8%B1-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9)
+- **تعرّف على تفاصيل مباراة إشبيلية ضد فالنسيا في الدوري الإسباني بتاريخ 2026/03/21 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%88%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A8%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-2026-03-2)
+- **تفاصيل المباراة | برشلونة VS إشبيلية - الدوري الإسباني - الأحد 15-03-2026**: [Link](https://www.ysscores.com/ar/match/4837382/FC-Barcelona-vs-Sevilla-FC-statics)
+
+
 ### rayane bounida (N/A, Sat, 21 Mar 2026 14:00:00 -0700)
 
 - **'Meer Bounida-nieuws: Ajax-parel hakt knoop door en maakt interlandkeuze'**: [Link](https://www.voetbalprimeur.nl/nieuws/2069222/bounida-hakt-knoop-door-en-kiest-voor-marokko.html)
