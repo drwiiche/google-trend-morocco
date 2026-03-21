@@ -1,3 +1,24 @@
+### espanyol – getafe (N/A, Sat, 21 Mar 2026 07:30:00 -0700)
+
+- **Manolo González: “La Liga o la Federación ha tocado el calendario y perjudican al Espanyol con tres partidos seguidos fuera”**: [Link](https://www.lavanguardia.com/deportes/20260320/11495101/espanyol-hay-volver-ganar-casa-sentirte-ganador-reclama-manolo-gonzalez.html)
+- **El Espanyol quiere volver a sonreír**: [Link](https://onefootball.com/pt-br/noticias/el-espanyol-quiere-volver-a-sonreir-42591672)
+- **Europa espera al más valiente**: [Link](https://www.pressreader.com/spain/marca-canariasef1k/20260321/281831470257959)
+
+
+### البايرن ضد يونيون برلين (N/A, Sat, 21 Mar 2026 07:20:00 -0700)
+
+- **بايرن يواصل مشواره نحو موسم استثنائي معولا على ما حققه من "تطور" مع كومباني**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260320-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D9%86%D8%AD%D9%88-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%85%D8%B9%D9%88%D9%84%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D8%A7-%D8%AD%D9%82%D9%82%D9%87-%D9%85%D9%86-%D8%AA%D8%B7%D9%88%D8%B1-%D9%85%D8%B9-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A)
+- **حفل الراقصين الجدد القادم؟ وجهان جديدان مرة أخرى على مقاعد البدلاء في نادي بايرن ميونيخ**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%B1%D8%A7%D9%82%D8%B5%D9%8A%D9%86-%D8%A7%D9%84%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D9%85-%D9%88%D8%AC%D9%87%D8%A7%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7%D9%86-%D9%85%D8%B1%D8%A9-%D8%A7%D9%94%D8%AE%D8%B1%D9%89-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%81%D9%8A-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE/blte5ed963dd2afeda1)
+- **مواعيد مباريات الجولة 27 من الدوري الألماني 2026 والقنوات الناقلة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-27-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/)
+
+
+### قاعدة دييغو غارسيا (N/A, Sat, 21 Mar 2026 06:50:00 -0700)
+
+- **"مدى غير مسبوق".. صواريخ إيران تستهدف قاعدة بريطانية أمريكية بالمحيط الهندي**: [Link](https://www.aljazeera.net/news/2026/3/21/%D9%85%D8%AF%D9%89-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B7%D8%A7%D9%84-%D9%82%D8%A7%D8%B9%D8%AF%D8%A9)
+- **إيران تطلق صواريخ على قاعدة دييغو غارسيا العسكرية البريطانية - الأمريكية المشتركة، وكاتس: "ستزداد حدة الهجمات التي يشنها الجيش الإسرائيلي والأمريكي ضد النظام الإيراني"**: [Link](https://www.bbc.com/arabic/live/c87w00wn3e7t)
+- **إيران فشلت في استهداف قاعدة دييغو غارسيا بصاروخين باليستيين**: [Link](https://www.alarabiya.net/arab-and-world/2026/03/21/%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D8%B4%D9%84%D8%AA-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%82%D8%A7%D8%B9%D8%AF%D8%A9-%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A%D9%86)
+
+
 ### heidenheim – leverkusen (N/A, Sat, 21 Mar 2026 07:00:00 -0700)
 
 - **+[Übertragung]FREE!] Bayer Leverkusen gegen FC Heidenheim 1846 heute Übertragung heute live im TV & Stream, Übertragung im TV, Startzeit, Sperrungen HD6595695**: [Link](https://www.ica.gov.co/CSS/noticias/video-bayer-leverkusen-gegen-fc-heidenheim-1846-tv868041330.html)
