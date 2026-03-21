@@ -1,3 +1,31 @@
+### caf champions league (N/A, Sat, 21 Mar 2026 09:40:00 -0700)
+
+- **Esperance v Ahly thriller a beautiful scene-setter for TotalEnergies CAF Champions League second legs**: [Link](https://www.cafonline.com/caf-champions-league/news/esperance-v-ahly-thriller-a-beautiful-scene-setter-for-totalenergies-caf-champions-league-second-legs/)
+- **Espérance: Experienced defender doubtful for CAFCL quarterfinal second leg**: [Link](https://www.panafricafootball.com/post/esperance-defender-doubtful/)
+- **Kaisela Bouali, the Star of Esperance, Talks About Facing Al-Ahly in the Champions League**: [Link](https://www.ysscores.com/en/news/13931078/Kaisela-Bouali,-the-Star-of-Esperance,-Talks-About-Facing-Al-Ahly-in-the-Champions-League)
+
+
+### ligue des champions de la caf (N/A, Sat, 21 Mar 2026 09:40:00 -0700)
+
+- **L'entraîneur de Pyramids convoque 23 joueurs pour le match retour contre l'AS FAR, El Karti toujours absent**: [Link](https://m.elbotola.com/fr/article/2026-03-21-11-24-122.html)
+- **¼ F. Ligue des champions : choc décisif entre Pyramids FC et l’AS FAR cet après-midi**: [Link](https://lopinion.ma/fr/sport/newsroom/-f-ligue-des-champions--choc-decisif-entre-pyramids-fc-et-las-far-cet-apres-midi_a31255?articleId=b1cbd06c-9786-4049-be74-57f584c0b969)
+- **Ligue des Champions CAF : Enjeux et programme des quarts de finale retour**: [Link](https://africafootunited.com/ligue-des-champions-caf-enjeux-et-programme-des-quarts-de-finale-retour/)
+
+
+### ac milan – torino (N/A, Sat, 21 Mar 2026 09:30:00 -0700)
+
+- **Serie A Week 30 official line-ups: Milan vs. Torino**: [Link](https://football-italia.net/serie-a-week-30-official-line-ups-milan-torino/)
+- **Cesare Casadei vs. AC Milan – Player props & odds to score a goal on March 21**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/03/21/cesare-casadei-soccer-player-props-3-21-2026/89259710007/)
+- **Allegri insists Milan must 'wake up' amid Leao-Pulisic argument**: [Link](https://www.fotmob.com/sw/news/1n6pkutv69jdw19i0h1vgzmvpz-allegri-insists-milan-must-wake-up-amid-leao-pulisic-argument)
+
+
+### الجيش الملكي (N/A, Sat, 21 Mar 2026 09:20:00 -0700)
+
+- **بالفيديو: في قلب القاهرة.. رضا سليم يصعق بيراميدز بهدف رائع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9--%D8%B1%D8%B6%D8%A7-%D8%B3%D9%84%D9%8A%D9%85-%D9%8A%D8%B5%D8%B9%D9%82-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D8%A8%D9%87%D8%AF%D9%81-%D8%B1%D8%A7%D9%8A%D9%94%D8%B9/blt14547faf66fd821a)
+- **سانتوس: جاهزون لمواجهة بيراميدز**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86%D8%AA%D9%88%D8%B3-%D8%AC%D8%A7%D9%87%D8%B2%D9%88%D9%86-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-1718757.html)
+- **الشيبي يقود التشكيلة الأساسية لبيراميدز أمام الجيش الملكي في دوري أبطال أفريقيا**: [Link](https://m.elbotola.com/article/2026-03-21-15-30-143.html)
+
+
 ### far vs pyramids (N/A, Sat, 21 Mar 2026 09:00:00 -0700)
 
 - **Pyramids Coach Calls Up 23 Players for AS FAR Second Leg; El Karti Remains Absent**: [Link](https://m.elbotola.com/en/article/2026-03-21-11-24-331.html)
