@@ -1,3 +1,24 @@
+### quinte du jour (N/A, Sat, 21 Mar 2026 03:30:00 -0700)
+
+- **7 Jazzman - Trot**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-jazzman-129347.html)
+- **Chantilly Prix des Quatre Glacières**: [Link](https://www.paris-turf.com/course/chantilly-prix-des-quatre-glacieres-idc-345efaeefe11b70ee1d691c398995ff3)
+- **7 Mystery Queen - Trot**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-7-mystery-queen-129339.html)
+
+
+### pmu (N/A, Sat, 21 Mar 2026 03:20:00 -0700)
+
+- **Les Notes des partants du Quinté+ de ce samedi 21 mars**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-21-mars)
+- **Les pronos hippiques du samedi 21 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-21-mars-2026_AN-202603190964.html)
+- **Quinté Plus PMU : Karambar possède une première chance**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-karambar-possede-une-premiere-chance-129346.html)
+
+
+### guerre iran (N/A, Sat, 21 Mar 2026 02:40:00 -0700)
+
+- **Guerre au Moyen-Orient : Washington lève une partie des sanctions sur le pétrole iranien pour tenter de contrer la flambée des prix. Retrouvez les informations du 14 au 20 mars.**: [Link](https://www.lemonde.fr/international/live/2026/03/21/en-direct-guerre-au-moyen-orient-washington-autorise-la-vente-et-la-livraison-du-petrole-iranien-stocke-sur-des-navires-pour-tenter-de-contrer-la-flambee-des-prix_6671147_3210.html)
+- **Washington songe à lever ses propres sanctions sur le pétrole iranien, en pleine guerre avec Téhéran**: [Link](https://medias24.com/agence-presse/washington-songe-a-lever-ses-propres-sanctions-sur-le-petrole-iranien-en-pleine-guerre-avec-teheran/)
+- **La Maison Blanche rame pour faire baisser le pétrole**: [Link](https://www.zonebourse.com/actualite-bourse/la-maison-blanche-rame-pour-faire-baisser-le-petrole-ce7e5edfd88fff21)
+
+
 ### eau de javel (N/A, Sat, 21 Mar 2026 03:00:00 -0700)
 
 - **Il mélange de l’eau de javel et du vinaigre blanc pour nettoyer sa salle de bains : 13 pompiers mobilisés pour lui porter secours**: [Link](https://www.ladepeche.fr/2026/03/19/il-melange-de-leau-de-javel-et-du-vinaigre-blanc-pour-nettoyer-sa-salle-de-bains-13-pompiers-mobilises-pour-lui-porter-secours-13281875.php)
