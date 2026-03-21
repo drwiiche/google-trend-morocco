@@ -1,3 +1,17 @@
+### vinaigre blanc (N/A, Fri, 20 Mar 2026 18:30:00 -0700)
+
+- **Il mélange de l’eau de javel et du vinaigre blanc pour nettoyer sa salle de bains : 13 pompiers mobilisés pour lui porter secours**: [Link](https://www.ladepeche.fr/2026/03/19/il-melange-de-leau-de-javel-et-du-vinaigre-blanc-pour-nettoyer-sa-salle-de-bains-13-pompiers-mobilises-pour-lui-porter-secours-13281875.php)
+- **Le ménage de la salle de bains tourne mal : il ignorait que mélanger ces deux produits nettoyants était très dangereux**: [Link](https://www.midilibre.fr/2026/03/20/le-menage-de-la-salle-de-bains-tourne-mal-il-ignorait-que-melanger-ces-deux-produits-nettoyants-etait-tres-dangereux-13282702.php)
+- **«Cela a produit une réaction chimique» : un homme transféré à l’hôpital après avoir mélangé de l’eau de Javel et du vinaigre blanc**: [Link](https://www.lefigaro.fr/maison/cela-a-produit-une-reaction-chimique-un-homme-transfere-a-l-hopital-apres-avoir-melange-de-l-eau-de-javel-et-du-vinaigre-blanc-20260320)
+
+
+### منتخب السنغال (N/A, Fri, 20 Mar 2026 18:10:00 -0700)
+
+- **مستخدمًا الميدالية.. نجم السنغال يسخر من زميله المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D9%8B%D8%A7-%D8%A7%D9%84%D9%85%D9%8A%D8%AF%D8%A7%D9%84%D9%8A%D8%A9--%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D8%B2%D9%85%D9%8A%D9%84%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt471baeecec992a10)
+- **تقرير يرصد سيناريوهات “الطاس” بعد قرار منح لقب نهائي "الكان" للمغرب**: [Link](https://madar21.com/414468.html)
+- **الاتحاد السنغالي للكرة: استلمنا الكأس والميداليات.. والتتويج "قضية مغلقة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D8%B3%D8%AA%D9%84%D9%85%D9%86%D8%A7-%D8%A7-1718243.html)
+
+
 ### carlos alcaraz (N/A, Fri, 20 Mar 2026 18:00:00 -0700)
 
 - **Alcaraz y Miami, un antes y un después: de la explosión de 2022 a la derrota que lo multiplicó**: [Link](https://elpais.com/deportes/tenis/2026-03-20/alcaraz-y-miami-un-antes-y-un-despues-de-la-explosion-de-2022-a-la-derrota-que-lo-multiplico.html)
