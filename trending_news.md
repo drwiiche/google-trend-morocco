@@ -1,3 +1,31 @@
+### juventus – sassuolo (N/A, Sat, 21 Mar 2026 12:10:00 -0700)
+
+- **Juventus-Sassuolo, le formazioni: Spalletti punta su Perin, torna il falso nueve**: [Link](https://video.gazzetta.it/calcio/juventus-sassuolo-le-probabili-formazioni-spalletti-punta-su-perin-e-il-falso-nueve/67f8c7b2-6f47-4bec-a4d2-b356ad9cbxlk)
+- **Calcio, Spalletti: "Totale disponibilità al rinnovo"**: [Link](https://www.radiostudio90italia.it/calcio-spalletti-totale-disponibilita-al-rinnovo/)
+- **Le formazioni ufficiali di Parma-Cremonese: si gioca per la salvezza**: [Link](https://www.diretta.it/news/calcio-serie-a-le-formazioni-ufficiali-di-parma-cremonese-si-gioca-per-la-salvezza/QeozWgrg/)
+
+
+### dortmund (N/A, Sat, 21 Mar 2026 12:00:00 -0700)
+
+- **Niko Kovac: „Der HSV wird sich seine Chance suchen“**: [Link](https://www.hsv.de/news/niko-kovac-der-hsv-wird-sich-seine-chance-suchen)
+- **Bundesliga » Borussia Dortmund gegen Hamburger SV » Liveticker**: [Link](https://www.weltfussball.at/spielbericht/co12/deutschland-bundesliga/ma11200358/borussia-dortmund_hamburger-sv/liveticker/)
+- **Halbzeitfazit: Kein Guirassy – So schockt der HSV gerade den BVB!**: [Link](https://www.fussballdaten.de/news/halbzeitfazit-kein-guirassy-so-schockt-der-hsv-gerade-den-bvb-0c1644d5/)
+
+
+### auxerre – brest (N/A, Sat, 21 Mar 2026 12:00:00 -0700)
+
+- **Pire attaque de Ligue 1, Auxerre doit améliorer son adresse pour aller chercher le maintien**: [Link](https://www.lequipe.fr/Football/Actualites/Pire-attaque-de-ligue-1-auxerre-doit-ameliorer-son-adresse-pour-aller-chercher-le-maintien/1661399)
+- **Stade Brestois. « J’ai beaucoup d’attente » : Diaz et Coulibaly associés de nouveau face à la pire attaque de Ligue 1**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/stade-brestois-jai-beaucoup-dattente-diaz-et-coulibaly-associes-de-nouveau-face-a-la-pire-attaque-de-ligue-1-9574756e-250e-11f1-aab7-85ef88fbd7c1)
+- **L'AJA toujours sans ses blessés longue durée mais avec Sinayoko et Mensah, pour recevoir Brest**: [Link](https://www.lyonne.fr/auxerre-89000/sports/l-aja-toujours-sans-ses-blesses-longue-duree-mais-avec-sinayoko-et-mensah-pour-recevoir-brest_14938058/)
+
+
+### kooora (N/A, Sat, 21 Mar 2026 11:10:00 -0700)
+
+- **الأمن المصري بتدخل بقوة.. اشتباكات بين جماهير الجيش الملكي والترجي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A8%D8%AA%D8%AF%D8%AE%D9%84-%D8%A8%D9%82%D9%88%D8%A9--%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A/bltca60731d85a92295)
+- **بعد اعتقال بعض الجماهير.. سفارة المغرب بمصر وإدارة الجيش تتدخلان لحل الأزمة قبل المباراة**: [Link](https://www.hesport.com/%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%B3%D9%81%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8-431764.html)
+- **مصر: مناوشات وإيقافات في صفوف جماهير الترجي والجيش الملكي المغربي**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/1509753/%D9%85%D8%B5%D8%B1-%D9%85%D9%86%D8%A7%D9%88%D8%B4%D8%A7%D8%AA-%D9%88%D8%A5%D9%8A%D9%82%D8%A7%D9%81%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B5%D9%81%D9%88%D9%81-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%88%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A)
+
+
 ### osasuna vs girona (N/A, Sat, 21 Mar 2026 11:40:00 -0700)
 
 - **Preview: Osasuna vs Girona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/osasuna/preview/osasuna-vs-girona-prediction-team-news-lineups_594187.html)
