@@ -1,3 +1,10 @@
+### league cup (N/A, Sun, 22 Mar 2026 07:20:00 -0700)
+
+- **Carabao Cup: Who needs final victory more? Mikel Arteta or Pep Guardiola?**: [Link](https://www.bbc.com/sport/football/articles/cvg03xv5qq0o)
+- **Semenyo & Rice included in fan-voted Man City & Arsenal combined XI ahead of Wembley clash**: [Link](https://www.transfermarkt.com/semenyo-amp-rice-included-in-fan-voted-man-city-amp-arsenal-combined-xi-ahead-of-wembley-clash/view/news/476969)
+- **Man City face defensive shake-up as key player joins Marc Guehi in missing Carabao Cup final against Arsenal**: [Link](https://www.goal.com/en/lists/man-city-defensive-shake-up-marc-guehi-missing-carabao-cup-final-arsenal/blt8a5cc4a7fecb6297)
+
+
 ### مباريات اليوم (N/A, Sun, 22 Mar 2026 08:10:00 -0700)
 
 - **جدول مباريات اليوم الأحد 22 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-22-%D9%85%D8%A7%D8%B1%D8%B3-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/blt6cf3c4e3f36f48d9)
