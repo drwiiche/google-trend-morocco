@@ -1,3 +1,10 @@
+### celta vigo – deportivo alavés (N/A, Sun, 22 Mar 2026 07:40:00 -0700)
+
+- **Giráldez da descanso a Marcos Alonso y Starfelt**: [Link](https://www.marca.com/futbol/celta/2026/03/21/giraldez-da-descanso-marcos-alonso-starfelt.html)
+- **Previa | El Celta aparca Europa para seguir pensando en Europa**: [Link](https://onefootball.com/pt-br/noticias/previa-el-celta-aparca-europa-para-seguir-pensando-en-europa-42597668)
+- **Giráldez: “Queda mucha tela por cortar; paso a paso”**: [Link](https://www.atlantico.net/celtismo/giraldez-queda-tela-cortar-paso_1_20260322-4208509.html)
+
+
 ### aston villa – west ham (N/A, Sun, 22 Mar 2026 06:50:00 -0700)
 
 - **The Officials For Aston Villa Against West Ham**: [Link](https://www.thewesthamway.com/2026/03/21/the-officials-for-aston-villa-against-west-ham/)
