@@ -1,3 +1,24 @@
+### la liga (N/A, Sun, 22 Mar 2026 06:10:00 -0700)
+
+- **Real Madrid**: [Link](https://www.flashscore.com/match/football/atl-madrid-jaarqpLQ/real-madrid-W8mj7MDD/standings/?mid=tQIsOmIc)
+- **🗞️Today's headlines: Derby Sunday and the race for top spot**: [Link](https://onefootball.com/en/news/todays-headlines-derby-sunday-and-the-race-for-top-spot-42597293)
+- **Mbappe fit to face Atletico in Madrid derby**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles-video/mbappe-fit-to-face-atletico-in-madrid-derby-2026-03-21)
+
+
+### iran diego garcia (N/A, Sun, 22 Mar 2026 06:00:00 -0700)
+
+- **Iran launched missiles at US-UK military base in the Indian Ocean. Here’s what that says about its capabilities**: [Link](https://www.cnn.com/2026/03/21/politics/iran-missiles-diego-garcia)
+- **Did Iran launch missiles at US-UK base on Diego Garcia? Here’s what to know**: [Link](https://www.aljazeera.com/news/2026/3/22/did-iran-launch-missiles-at-us-uk-base-on-diego-garcia-heres-what-to-know)
+- **Iran Brings Europe Into Range With Missiles Fired at Diego Garcia**: [Link](https://www.wsj.com/world/middle-east/iran-brings-europe-into-range-with-missiles-fired-at-diego-garcia-bdc71ab2?gaa_at=eafs&gaa_n=AWEtsqfWjOXuaH2-9_EjC7A53B1CbXveE9cmHEZHBj3_uTFOZ_zPdjIjHOUl&gaa_ts=69bff3f4&gaa_sig=22Wt2r4VppWABI8HyFSBGKU-9C_HPtAiIyNYmmqsIjcO4Er2iUb2b4DDSyV7sc52VE1FAi_jnFgW-kmqCxjQBA%3D%3D)
+
+
+### tas senegal maroc (N/A, Sun, 22 Mar 2026 06:00:00 -0700)
+
+- **Sénégal - Maroc : Bixente Lizarazu enrage contre la CAF**: [Link](https://www.footmercato.net/a1600905477897822514-senegal-maroc-bixente-lizarazu-enrage-contre-la-caf)
+- **Finale CAN 2025. Pourquoi la reprise du jeu ne peut effacer la faute (analyse juridique)**: [Link](https://medias24.com/chronique/finale-can-2025-abandon-de-terrain-pourquoi-la-reprise-du-jeu-ne-peut-effacer-la-faute-analyse-juridique/)
+- **« C'est un type hors norme, il donne tout pour la réussite de l'équipe » : Fouzi Lekjaa, le patron du foot marocain qui influence l'Afrique et le monde**: [Link](https://www.lequipe.fr/Football/Article/-c-est-un-type-hors-norme-il-donne-tout-pour-la-reussite-de-l-equipe-fouzi-lekjaa-le-patron-du-foot-marocain-qui-influence-l-afrique-et-le-monde/1661242)
+
+
 ### barcelone – rayo (N/A, Sun, 22 Mar 2026 05:10:00 -0700)
 
 - **DIRECT. FC Barcelone-Rayo Vallecano (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-rayo-vallecano-live/676993)
