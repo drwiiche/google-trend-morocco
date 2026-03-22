@@ -1,3 +1,24 @@
+### brahim díaz (N/A, Sun, 22 Mar 2026 14:40:00 -0700)
+
+- **Breaking news! Real Madrid make a decision on Brahim Díaz: Borussia Dortmund enter the race**: [Link](https://madrid-barcelona.com/en/real-madrid/breaking-news-real-madrid-makes-decision-on-brahim-diaz-borussia-dortmund-enters-the-scene)
+- **Borussia Dortmund lodge enquiry for 26-year-old versatile Real Madrid star – report**: [Link](https://sports.yahoo.com/articles/borussia-dortmund-lodge-enquiry-26-154000174.html)
+- **Real Madrid make final decision on Brahim Diaz amid Borussia Dortmund’s interest**: [Link](https://madriduniversal.com/real-madrid-make-final-decision-on-brahim-diaz-amid-borussia-dortmunds-interest/)
+
+
+### rma (N/A, Sun, 22 Mar 2026 14:30:00 -0700)
+
+- **Big second half lifts RMA soccer past Parrott**: [Link](https://www.rockymounttelegram.com/sports/high_schools/big-second-half-lifts-rma-soccer-past-parrott/article_6ebe3505-f328-4997-9471-2fb4b998e41e.html)
+- **RMA players earn all-state, all-conference awards**: [Link](https://www.rockymounttelegram.com/sports/high_schools/rma-players-earn-all-state-all-conference-awards/article_9fbf7e36-ca5c-4c13-8f9b-4e6cb65d4b22.html)
+- **Costco Announces Discounted Fertility Treatment Program for Members**: [Link](https://people.com/costco-announces-discounted-ivf-treatments-for-members-11926207)
+
+
+### emmanuel grégoire (N/A, Sun, 22 Mar 2026 14:10:00 -0700)
+
+- **«Paris a décidé de rester fidèle à son histoire», déclare Emmanuel Grégoire**: [Link](https://www.liberation.fr/politique/elections/en-direct-resultats-des-municipales-2026-a-paris-suivez-le-deuxieme-tour-dans-la-capitale-entre-gregoire-dati-et-chikirou-20260322_3YFVGW27ZRBWPAQVPH7JEZYE4A/)
+- **EN DIRECT, municipales 2026 : Emmanuel Macron dément être intervenu en faveur du retrait de Sarah Knafo à Paris et juge qu’Emmanuel Grégoire se « déshonore » en l’accusant**: [Link](https://www.lemonde.fr/politique/live/2026/03/18/en-direct-municipales-2026-la-candidate-lfi-a-paris-sophia-chikirou-participera-au-debat-mercredi-soir-avec-rachida-dati-et-emmanuel-gregoire_6671274_823448.html)
+- **Résultats municipales 2026 à Paris : Grégoire (PS-Écologistes) donné largement en tête face à Rachida Dati (droite-centre)**: [Link](https://www.leparisien.fr/elections/municipales/resultats-municipales-2026-a-paris-gregoire-dati-chikirou-decouvrez-les-resultats-du-second-tour-22-03-2026-4YJBUX3ECFBV5HALZHEOODM2IE.php)
+
+
 ### livescore (N/A, Sun, 22 Mar 2026 14:20:00 -0700)
 
 - **LiveScore Bet Sign-Up Offer | Bet £10 & Get £30 in Free Bets**: [Link](https://www.live-darts.com/betting-offers/livescore-free-bets-offer-march-2026/)
