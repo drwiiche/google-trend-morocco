@@ -1,3 +1,17 @@
+### الجزيرة نت (N/A, Sat, 21 Mar 2026 23:50:00 -0700)
+
+- **نجاح استثنائي.. كيف حققت لعبة "ريزيدنت إيفل ريكويم" مبيعات غير مسبوقة؟**: [Link](https://www.aljazeera.net/tech/2026/3/22/%D9%86%D8%AC%D8%A7%D8%AD-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D9%83%D9%8A%D9%81-%D8%AD%D9%82%D9%82%D8%AA-%D9%84%D8%B9%D8%A8%D8%A9-%D8%B1%D9%8A%D8%B2%D9%8A%D8%AF%D9%86%D8%AA)
+- **كابكوم تكشف عن لعبة Resident Evil جديدة مع ليون وجيل تركزان على الرعب النفسي في جزيرة نائية**: [Link](https://www.mixvale.com.br/2026/03/21/%D9%83%D8%A7%D8%A8%D9%83%D9%88%D9%85-%D8%AA%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%84%D8%B9%D8%A8%D8%A9-resident-evil-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D8%B9-%D9%84%D9%8A%D9%88%D9%86-%D9%88%D8%AC-ar/)
+- **رقم قياسي جديد لمبيعات Resident Evil Requiem – الجزء الثاني**: [Link](https://www.saudigamer.com/resident-evil-requiem-sets-major-franchise-sales-record-part2/)
+
+
+### real madrid – atlético madrid (N/A, Sat, 21 Mar 2026 14:50:00 -0700)
+
+- **Real Madrid**: [Link](https://www.flashscore.com/match/football/atl-madrid-jaarqpLQ/real-madrid-W8mj7MDD/standings/?mid=tQIsOmIc)
+- **🗞️Today's headlines: Derby Sunday and the race for top spot**: [Link](https://onefootball.com/en/news/todays-headlines-derby-sunday-and-the-race-for-top-spot-42597293)
+- **Alvaro Arbeloa speaks out on Kylian Mbappe and Jude Bellingham's international call-ups despite Real Madrid duo's fitness concerns**: [Link](https://www.goal.com/en-ca/lists/alvaro-arbeloa-kylian-mbappe-jude-bellingham-international-call-ups-real-madrid-fitness-concerns/bltb4fa17605d897f3c)
+
+
 ### quinte (N/A, Sun, 22 Mar 2026 02:30:00 -0700)
 
 
