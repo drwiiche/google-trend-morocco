@@ -1,3 +1,38 @@
+### aston villa – west ham (N/A, Sun, 22 Mar 2026 06:50:00 -0700)
+
+- **The Officials For Aston Villa Against West Ham**: [Link](https://www.thewesthamway.com/2026/03/21/the-officials-for-aston-villa-against-west-ham/)
+- **How to watch today's Aston Villa vs West Ham Premier League game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-sa/news/how-to-watch-aston-villa-west-ham-22032026/blt26808e75c10258f2)
+- **Bowen 'deserves' England international call up as Hammers prepare to face Villa**: [Link](https://www.london-now.co.uk/sport/25954798.bowen-deserves-international-call-hammers-face-villa/)
+
+
+### feyenoord – ajax (N/A, Sun, 22 Mar 2026 06:50:00 -0700)
+
+- **LIVE eredivisie | Mokio kopt bal van de lijn, Feyenoord-fans schreeuwen om penalty**: [Link](https://www.ad.nl/voetbal/live-eredivisie-mokio-kopt-bal-van-de-lijn-feyenoord-fans-schreeuwen-om-penalty~a591070f/)
+- **Van Persie hamert op belang Klassieker in matig seizoen: 'Kunt veel goedmaken'**: [Link](https://www.vi.nl/nieuws/van-persie-hamert-op-belang-klassieker-in-matig-seizoen-kunt-veel-goedmaken)
+- **Watanabe en Sauer keren terug van blessureleed**: [Link](https://1908.nl/artikelen/watanabe-en-sauer-keren-terug-van-blessureleed)
+
+
+### تغيير الساعة الإضافية بالمغرب (N/A, Sun, 22 Mar 2026 06:50:00 -0700)
+
+- **رصيف الصحافة: توقيت "الساعة الإضافية" يربك الإيقاع اليومي للمغاربة**: [Link](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A9-%D9%8A-1718988.html)
+- **العد العكسي لـ GMT+1.. عريضة إلغاء الساعة الإضافية تتجاوز 100 ألف توقيع**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D9%83%D8%B3%D9%8A-%D9%84%D9%80-gmt1-%D8%B9%D8%B1%D9%8A%D8%B6%D8%A9-%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A5/)
+- **فيديو: العودة إلى الساعة (غرينيتش +1) بعد انقضاء شهر رمضان**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%BA%D8%B1%D9%8A%D9%86%D9%8A%D8%AA%D8%B4-1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D9%82%D8%B6%D8%A7%D8%A1-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-20260321)
+
+
+### tottenham – nottm forest (N/A, Sun, 22 Mar 2026 06:40:00 -0700)
+
+- **Premier League: Tottenham and Nottingham Forest ready to battle in top-flight relegation fight**: [Link](https://www.bbc.com/sport/football/articles/cvg127pdz5zo)
+- **The Daly Brief | Spurs vs Forest, Premier League**: [Link](https://onefootball.com/de/news/the-daly-brief-spurs-vs-forest-premier-league-42592822)
+- **Tottenham vs. Nottingham Forest prediction, lineups, odds and bet builder for Premier League clash**: [Link](https://www.sportingnews.com/uk/football/news/tottenham-vs-nottingham-forest-prediction-lineups-odds-bet-builder-premier-league/9d264e03567ac77ac3a1bbf3)
+
+
+### lyon – monaco (N/A, Sun, 22 Mar 2026 06:30:00 -0700)
+
+- **OL : Monaco c’est pas Vigo, ça fait un carton**: [Link](https://www.foot01.com/ol/ol-monaco-cest-pas-vigo-ca-fait-un-carton)
+- **"Nous pourrions être en danger si nous étions dans les dernières places, comme beaucoup le prédisaient pour nous" … La sortie forte de Fonseca avant OL - Monaco**: [Link](https://www.onzemondial.com/ligue-1/nous-pourrions-etre-en-danger-si-nous-etions-dans-les-dernieres-places-comme-beaucoup-le-predisaient-pour-nous-la-sortie-forte-de-fonseca-avant-ol-monaco-983706)
+- **Balogoal, pressing, recrues… Les stats à connaître avant Lyon**: [Link](https://www.asmonaco.com/balogoal-pressing-recrues-les-statistiques-a-connaitre-avant-le-choc-de-ligue-1-lyon-monaco/)
+
+
 ### la liga (N/A, Sun, 22 Mar 2026 06:10:00 -0700)
 
 - **Real Madrid**: [Link](https://www.flashscore.com/match/football/atl-madrid-jaarqpLQ/real-madrid-W8mj7MDD/standings/?mid=tQIsOmIc)
