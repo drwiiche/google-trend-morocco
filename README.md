@@ -1,3 +1,10 @@
+### نيوكاسل يونايتد ضد سندرلاند (N/A, Sun, 22 Mar 2026 04:50:00 -0700)
+
+- **نيوكاسل وسندرلاند في صراع النقاط لتقليص الفارق بجدول ترتيب الدوري الأنجليزي الممتاز**: [Link](https://m.elbotola.com/article/2026-03-21-11-31-942.html)
+- **سندرلاند يتفوق تاريخيا على نيوكاسل في الدوري الإنجليزي**: [Link](https://hihi2.com/2026/03/21/p3697203.html)
+- **الحلم سبورت : تشكيلة نيوكاسل يونايتد المتوقعة ضد سندرلاند في الدوري الإنجليزي**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84-7/)
+
+
 ### newcastle – sunderland (N/A, Sun, 22 Mar 2026 04:20:00 -0700)
 
 - **Confirmed line-up: Two changes for Tyne-Wear derby**: [Link](https://onefootball.com/fr/news/confirmed-line-up-two-changes-for-tyne-wear-derby-42597743)
