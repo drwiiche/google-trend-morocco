@@ -1,3 +1,31 @@
+### time (N/A, Sat, 21 Mar 2026 19:20:00 -0700)
+
+- **Covid gave us hybrid work. The Iran War might give us a four-day week—and this time, experts say it could stick**: [Link](https://fortune.com/2026/03/21/covid-gave-us-hybrid-work-the-iran-war-might-give-us-a-four-day-week-and-this-time-experts-say-it-could-stick/)
+- **When a crisis decides your WFH policy**: [Link](https://hrmasia.com/when-a-crisis-decides-your-wfh-policy/)
+- **Fuel crisis, work reset: The rise of flexible work as a necessity**: [Link](https://sea.peoplemattersglobal.com/article/economy-policy/fuel-crisis-work-reset-the-rise-of-flexible-work-as-a-necessity-48867)
+
+
+### heure france (N/A, Sat, 21 Mar 2026 19:00:00 -0700)
+
+- **Changement d’heure : passe-t-on à l’heure d’été ce week-end ? Voici la date à retenir**: [Link](https://www.midilibre.fr/2026/03/21/changement-dheure-passe-t-on-a-lheure-dete-ce-week-end-voici-la-date-a-retenir-13283120.php)
+- **Changement d'heure d'hiver : c'est ce week-end là qu'il faut y penser**: [Link](https://www.journaldunet.com/magazine/1548859-bp1-changement-heure/)
+- **Quand changer tes horloges en 2026 : dates et heures exactes pour chaque pays européen dimanche.**: [Link](https://www.gamereactor.fr/quand-changer-tes-horloges-en-2026-dates-et-heures-exactes-pour-chaque-pays-europeen-dimanche-2070963/)
+
+
+### heure gmt (N/A, Sat, 21 Mar 2026 17:40:00 -0700)
+
+- **Rappel: Le Maroc repasse à l’heure GMT+1 ce dimanche 22 mars**: [Link](https://maroc-diplomatique.net/rappel-le-maroc-repasse-a-lheure-gmt1-ce-dimanche-22-mars/)
+- **La pétition pour le retour à l'heure légale GMT frôle les 50.000 signatures et vise une saisine officielle**: [Link](https://mobile.telquel.ma/instant-t/2026/03/19/la-petition-pour-le-retour-a-l-heure-legale-gmt-frole-les-50-000-signatures-et-vise-une-saisine-officielle_1979721/)
+- **Pétition : près de 28 000 signatures contre le retour de l'heure d'été**: [Link](https://lopinion.ma/fr/actu-maroc/heure-supplementaire--pres-de-28-000-signatures-contre-le-gmt1_a57335?articleId=435e4a68-56cf-4346-aba5-ca15251a80f8)
+
+
+### الساعة الاضافية بالمغرب (N/A, Sat, 21 Mar 2026 17:00:00 -0700)
+
+- **رصيف الصحافة: توقيت "الساعة الإضافية" يربك الإيقاع اليومي للمغاربة**: [Link](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A9-%D9%8A-1718988.html)
+- **مع اقتراب عودة "الساعة المشؤومة".. عريضة التوقيت الطبيعي تتجاوز 83 ألف توقيع**: [Link](https://ar.telquel.ma/%D9%85%D8%B9-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A9-%D8%B9%D8%B1%D9%8A%D8%B6%D8%A9/)
+- **فيديو: العودة إلى الساعة (غرينيتش +1) بعد انقضاء شهر رمضان**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%BA%D8%B1%D9%8A%D9%86%D9%8A%D8%AA%D8%B4-1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D9%82%D8%B6%D8%A7%D8%A1-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-20260321)
+
+
 ### missile iranien (N/A, Sat, 21 Mar 2026 17:20:00 -0700)
 
 - **EN DIRECT, guerre au Moyen-Orient : plus d’une centaine de blessés après des frappes iraniennes sur les villes de Dimona, qui abrite un centre de recherche nucléaire, et Arad, dans le sud d’Israël**: [Link](https://www.lemonde.fr/international/live/2026/03/21/en-direct-guerre-au-moyen-orient-des-dizaines-de-blesses-apres-une-frappe-iranienne-sur-arad-dans-le-sud-d-israel-la-ville-de-dimona-qui-abrite-un-centre-de-recherche-nucleaire-egalement-touchee_6673056_3210.html)
