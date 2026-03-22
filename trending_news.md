@@ -1,3 +1,10 @@
+### مباريات اليوم مباشر (N/A, Sun, 22 Mar 2026 10:50:00 -0700)
+
+- **جدول مباريات اليوم الأحد 22 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-22-%D9%85%D8%A7%D8%B1%D8%B3-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/blt6cf3c4e3f36f48d9)
+- **أبرز المباريات العربية والعالمية اليوم الأحد**: [Link](https://24.ae/article/951663/)
+- **ابرز الاحداث الرياضية ليوم السبت في 21-03-2026**: [Link](https://elsport.com/news/show/816418/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-21-03-2026)
+
+
 ### wydad ac – oc safi (N/A, Sun, 22 Mar 2026 10:10:00 -0700)
 
 - **Benhachem : « Ziyech et Amrabat sont de retour et prêts pour l'Olympique Safi »**: [Link](https://m.elbotola.com/fr/article/2026-03-22-12-01-278.html)
