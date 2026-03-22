@@ -1,3 +1,10 @@
+### fiorentina vs inter (N/A, Sun, 22 Mar 2026 14:50:00 -0700)
+
+- **Inter drop points at Fiorentina after late Ndour leveller**: [Link](https://www.flashscore.com/news/fiorentina-inter-serie-a-report-2026-03-21/rHy0XbK6/)
+- **Fiorentina, Paratici: "Marotta? Any comparison between him and me is misleading"**: [Link](https://www.goal.com/en/news/fiorentina-paratici-marotta-any-comparison-between-him-and-me-is-misleading/blt4babe4317d8b358d)
+- **✅ Fiorentina v Inter: Mandragora, Calhanoglu, Kean in line-ups**: [Link](https://onefootball.com/fr/news/fiorentina-v-inter-mandragora-calhanoglu-kean-in-line-ups-42600006)
+
+
 ### inter milan (N/A, Sun, 22 Mar 2026 15:00:00 -0700)
 
 - **Serie A official Week 30 line-ups: Fiorentina vs. Inter**: [Link](https://football-italia.net/serie-a-official-w30-line-ups-fiorentina-inter/)
