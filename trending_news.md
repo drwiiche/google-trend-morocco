@@ -1,3 +1,29 @@
+### wac (N/A, Sun, 22 Mar 2026 12:40:00 -0700)
+
+- **Mavericks Claim Weekend Series Despite 7-2 Loss to ACU in Finale**: [Link](https://utamavs.com/news/2026/3/21/softball-mavericks-claim-weekend-series-despite-7-2-loss-to-acu-in-finale.aspx)
+- **Wildcats Rip Season-High 15 Hits in WAC Opener**: [Link](https://acusports.com/news/2026/3/20/softball-wildcats-rip-season-high-15-hits-in-wac-opener)
+- **Wildcats beat UT Arlington 7-2 to salvage series opener of WAC play**: [Link](https://ktxs.com/sports/sports-newsletter/wildcats-beat-ut-arlington-7-2-to-salvage-series-opener-of-wac-play)
+
+
+### arryadia (N/A, Sun, 22 Mar 2026 12:40:00 -0700)
+
+
+
+
+### wydad vs safi (N/A, Sun, 22 Mar 2026 12:10:00 -0700)
+
+- **Henouri: "We Know Olympique Safi's Strength, Our Goal is Qualification"**: [Link](https://m.elbotola.com/en/article/2026-03-22-10-51-656.html)
+- **Safi hold Wydad in dramatic Moroccan derby as TotalEnergies CAF Confederation Cup quarter-final remains wide open**: [Link](https://www.cafonline.com/caf-confederation-cup/news/safi-hold-wydad-in-dramatic-moroccan-derby-as-totalenergies-caf-confederation-cup-quarter-final-remains-wide-open/)
+- **Wydad AC stands firmly behind coach Amine Benhachem ahead of crucial CAF Confederation Cup clash**: [Link](https://africasoccer.com/wydad-ac-stands-firmly-behind-coach-amine-benhachem-ahead-of-crucial-caf-confederation-cup-clash/)
+
+
+### كأس الاتحاد الأفريقي (N/A, Sun, 22 Mar 2026 11:40:00 -0700)
+
+- **فيديو: الجزيري حارسًا.. الزمالك يعبر لنصف نهائي الكونفدرالية بسيناريو مجنون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D9%8A-%D8%AD%D8%A7%D8%B1%D8%B3%D9%8B%D8%A7--%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%B9%D8%A8%D8%B1-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D9%85%D8%AC%D9%86%D9%88%D9%86/blt61de8402cee6300c)
+- **الزمالك يلاقي شباب بلوزداد في نصف نهائي الكونفدرالية**: [Link](https://24.ae/article/951748/%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%84%D8%A7%D9%82%D9%8A-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9)
+- **معتمد جمال: حذرت اللاعبين من التراخى وطرد صبحى سوء تصرف من الحارس**: [Link](https://www.youm7.com/story/2026/3/22/%D9%85%D8%B9%D8%AA%D9%85%D8%AF-%D8%AC%D9%85%D8%A7%D9%84-%D8%AD%D8%B0%D8%B1%D8%AA-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%AE%D9%89-%D9%88%D8%B7%D8%B1%D8%AF-%D8%B5%D8%A8%D8%AD%D9%89-%D8%B3%D9%88%D8%A1-%D8%AA%D8%B5%D8%B1%D9%81/7350413)
+
+
 ### elections municipales (N/A, Sun, 22 Mar 2026 12:20:00 -0700)
 
 - **Municipales 2026 : à Sète, la gauche espère rougir un littoral méditerranéen bien brun**: [Link](https://www.humanite.fr/politique/municipales-2026/municipales-2026-a-sete-la-gauche-espere-rougir-un-littoral-mediterraneen-bien-brun)
