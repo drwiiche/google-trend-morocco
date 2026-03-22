@@ -1,3 +1,17 @@
+### wydad ac – oc safi (N/A, Sun, 22 Mar 2026 10:10:00 -0700)
+
+- **Benhachem : « Ziyech et Amrabat sont de retour et prêts pour l'Olympique Safi »**: [Link](https://m.elbotola.com/fr/article/2026-03-22-12-01-278.html)
+- **Coupe CAF : Pas de fumigène au stade pour Wydad AC – OC Safi**: [Link](https://www.africatopsports.com/2026/03/22/coupe-caf-pas-de-fumigene-au-stade-pour-wydad-ac-oc-safi/)
+- **¼ F CCAF ‘’WAC- OCS’’ : coup d’envoi fixé à 19h00 ou à 20h00 ?**: [Link](https://lopinion.ma/fr/sport/newsroom/-f-ccaf-wac--ocs--coup-denvoi-fixe-a-19h00-ou-a-20h00-_a30607?articleId=f24333df-55db-40ff-8e51-ed769240db34)
+
+
+### rsb vs hilal (N/A, Sun, 22 Mar 2026 09:30:00 -0700)
+
+- **Regecamp (Al-Hilal Coach): "We Will Play with Confidence Against a Strong Team, Fortunate Not to Lose First Leg"**: [Link](https://m.elbotola.com/en/article/2026-03-21-21-53-643.html)
+- **CAF Champions League: Date, time, channels, and history of the Al Hilal vs RS Berkane clash**: [Link](https://foot-africa.com/en/news/caf-champions-league-date-time-channels-and-history-of-the-al-hilal-vs-rs-berkane-clash-1132346/)
+- **CAF CL team news: Al-Hilal host RS Berkane in decisive quarterfinal| The New Times**: [Link](https://www.newtimes.co.rw/article/34269/sports/football/caf-cl-team-news-al-hilal-host-rs-berkane-in-decisive-quarterfinal)
+
+
 ### ath. bilbao – betis (N/A, Sun, 22 Mar 2026 09:50:00 -0700)
 
 - **Athletic - Betis: Reválida cuando se acerca un nuevo parón en el calendario**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/athletic-betis-revalida-acerca-nuevo-paron-calendario-20260322202709-nts.html)
