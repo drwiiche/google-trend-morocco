@@ -1,3 +1,17 @@
+### بث مباشر (N/A, Sun, 22 Mar 2026 13:10:00 -0700)
+
+- **فيديو: الجزيري حارسًا.. الزمالك يعبر لنصف نهائي الكونفدرالية بسيناريو مجنون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D9%8A-%D8%AD%D8%A7%D8%B1%D8%B3%D9%8B%D8%A7--%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%B9%D8%A8%D8%B1-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D9%85%D8%AC%D9%86%D9%88%D9%86/blt61de8402cee6300c)
+- **الزمالك يلاقي شباب بلوزداد في نصف نهائي الكونفدرالية**: [Link](https://24.ae/article/951748/%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%84%D8%A7%D9%82%D9%8A-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9)
+- **معتمد جمال: حذرت اللاعبين من التراخى وطرد صبحى سوء تصرف من الحارس**: [Link](https://www.youm7.com/story/2026/3/22/%D9%85%D8%B9%D8%AA%D9%85%D8%AF-%D8%AC%D9%85%D8%A7%D9%84-%D8%AD%D8%B0%D8%B1%D8%AA-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%AE%D9%89-%D9%88%D8%B7%D8%B1%D8%AF-%D8%B5%D8%A8%D8%AD%D9%89-%D8%B3%D9%88%D8%A1-%D8%AA%D8%B5%D8%B1%D9%81/7350413)
+
+
+### silvino louro (N/A, Sun, 22 Mar 2026 13:00:00 -0700)
+
+- **Mourinho recorda Silvino: "Não podendo estar no funeral e vê-lo ali no ecrã... foi pesado"**: [Link](https://www.jn.pt/desporto/artigo/mourinho-recorda-silvino-nao-podendo-estar-no-funeral-e-ve-lo-ali-no-ecra-foi-pesado/18064765)
+- **As notas dos jogadores do V. Guimarães frente ao Benfica: houve algum rasgo no meio da tragédia**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/v--guimaraes/detalhe/as-notas-dos-jogadores-do-v-guimaraes-frente-ao-benfica-houve-algum-rasgo-no-meio-da-tragedia)
+- **Óbito Silvino: FPF vai "eternizar" antigo guardião na Cidade do Futebol**: [Link](https://www.flashscore.pt/noticias/obito-silvino-fpf-vai-eternizar-antigo-guardiao-na-cidade-do-futebol/jcgwn113/)
+
+
 ### nantes – strasbourg (N/A, Sun, 22 Mar 2026 12:50:00 -0700)
 
 - **"Chef de guerre", "ego surdimensionné" : Vahid, l'envers d'un management unique**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/vahid-halilhodzic-nouvel-entraineur-de-nantes-dans-les-coulisses-dun-coaching-chef-de-guerre-ego-surdimensionne-homme-au-grand-coeur_sto23282133/story.shtml)
