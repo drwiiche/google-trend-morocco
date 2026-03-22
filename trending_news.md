@@ -1,3 +1,66 @@
+### elections municipales (N/A, Sun, 22 Mar 2026 12:20:00 -0700)
+
+- **Municipales 2026 : à Sète, la gauche espère rougir un littoral méditerranéen bien brun**: [Link](https://www.humanite.fr/politique/municipales-2026/municipales-2026-a-sete-la-gauche-espere-rougir-un-littoral-mediterraneen-bien-brun)
+- **SÈTE - Le PS34 apporte son soutien plein et entier à Laura Seguin**: [Link](https://www.occitanie-tribune.com/articles/55743/sete-le-ps-apporte-son-soutien-plein-et-entier-a-laura-seguin)
+- **Élections municipales : résultats à Sète**: [Link](https://www.lamontagne.fr/sete-34200/actualites/elections-municipales-resultats-a-sete_14934370/)
+
+
+### rachida dati (N/A, Sun, 22 Mar 2026 12:20:00 -0700)
+
+- **France Is Voting for Thousands of New Mayors. Here’s Why It Matters.**: [Link](https://www.nytimes.com/2026/03/22/world/europe/france-mayors-elections-far-right.html)
+- **French local elections: Race to lead key cities on knife’s edge — live updates**: [Link](https://www.politico.eu/article/french-municipal-elections-2026-results-live-updates/)
+- **After 25 years of socialist rule, where does Paris go now?**: [Link](https://www.cnn.com/2026/03/22/europe/paris-mayoral-elections-intl)
+
+
+### الريال ضد أتلتيكو مدريد (N/A, Sun, 22 Mar 2026 12:10:00 -0700)
+
+- **مباشر مباراة ريال مدريد ضد أتلتيكو في قمة الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-10)
+- **تغييران في التشكيل الرسمي لريال مدريد أمام أتلتيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/blt0f940320321f48f4)
+- **كرة القدم.. أربيلوا يؤكد تعافي مبابي وجاهزية بيلينغهام لمواجهة أتلتيكو مدريد**: [Link](https://2m.ma/ar/news/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%AA%D8%B9%D8%A7%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D8%A8%D9%8A%D9%84%D9%8A%D9%86%D8%BA%D9%87%D8%A7%D9%85-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-20260321)
+
+
+### fiorentina – inter (N/A, Sun, 22 Mar 2026 12:10:00 -0700)
+
+- **Official line-ups for Fiorentina vs. Inter**: [Link](https://www.inter.it/en/news/official-lineups-fiorentina-inter-serie-a-25-26)
+- **De Gea: “Sono le partite che preferisco. Stagione non bella, ma stiamo insieme”**: [Link](https://www.violanews.com/news-viola/radio-e-tv/de-gea-sono-le-partite-che-preferisco-stagione-non-bella-ma-stiamo-insieme/)
+- **Vernazza (GdS): “Inter, sconfitta aprirebbe una voragine. In momenti delicati…”**: [Link](https://www.fcinter1908.it/ultimora/vernazza-gds-inter-sconfitta-aprirebbe-una-voragine-in-momenti-delicati/)
+
+
+### طقس مراكش (N/A, Sun, 22 Mar 2026 12:10:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-53-1719044.html)
+- **استمرار الطقس البارد مع رياح قوية اليوم الاثنين**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%B9%D8%A7%D8%B5/)
+- **أجواء غير مستقرة مع أمطار وزخات رعدية متوقعة اليوم الأحد**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%AA%D9%82%D8%B1%D8%A9-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85-991847.html)
+
+
+### wac vs safi (N/A, Sun, 22 Mar 2026 12:00:00 -0700)
+
+- **Henouri: "We Know Olympique Safi's Strength, Our Goal is Qualification"**: [Link](https://m.elbotola.com/en/article/2026-03-22-10-51-656.html)
+- **Safi hold Wydad in dramatic Moroccan derby as TotalEnergies CAF Confederation Cup quarter-final remains wide open**: [Link](https://www.cafonline.com/caf-confederation-cup/news/safi-hold-wydad-in-dramatic-moroccan-derby-as-totalenergies-caf-confederation-cup-quarter-final-remains-wide-open/)
+- **Wydad AC stands firmly behind coach Amine Benhachem ahead of crucial CAF Confederation Cup clash**: [Link](https://africasoccer.com/wydad-ac-stands-firmly-behind-coach-amine-benhachem-ahead-of-crucial-caf-confederation-cup-clash/)
+
+
+### sundowns (N/A, Sun, 22 Mar 2026 12:00:00 -0700)
+
+- **Sundowns survive Bamako scare to seal TotalEnergies CAF Champions League semi-final spot**: [Link](https://www.cafonline.com/caf-champions-league/news/sundowns-survive-bamako-scare-to-seal-totalenergies-caf-champions-league-semi-final-spot/)
+- **Miguel Cardoso dispels complacency ahead of Stade Malien tie**: [Link](https://foot-africa.com/en/news/miguel-cardoso-dispels-complacency-ahead-of-stade-malien-tie-1135046/)
+- **Teboho Mokoena, Khuliso Mudau lead the charge as Mamelodi Sundowns eye CAF semis**: [Link](https://businessreport.co.za/sport/soccer/africa/2026-03-22-teboho-mokoena-khuliso-mudau-lead-the-charge-as-mamelodi-sundowns-eye-caf-semis/)
+
+
+### caf confederation cup (N/A, Sun, 22 Mar 2026 11:30:00 -0700)
+
+- **Jaziri's Comment on Zamalek's Victory over Otoho**: [Link](https://www.ysscores.com/en/news/13932198/Jaziri's-Comment-on-Zamalek's-Victory-over-Otoho)
+- **Zamalek dominate AS Otohô to qualify for CAF Confederation Cup semifinals**: [Link](https://www.panafricafootball.com/post/zamalek-dominate-as-otoho/)
+- **CAF Confederation Cup: Zamalek triumphs over AS Otoho to reach semifinals**: [Link](https://africasoccer.com/caf-confederation-cup-zamalek-triumphs-over-as-otoho-to-reach-semifinals/)
+
+
+### مباراة الوداد اليوم (N/A, Sun, 22 Mar 2026 11:20:00 -0700)
+
+- **قطار ينقل جمهور آسفي إلى البيضاء**: [Link](https://www.hespress.com/%D9%82%D8%B7%D8%A7%D8%B1-%D9%8A%D9%86%D9%82%D9%84-%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A2%D8%B3%D9%81%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1718963.html)
+- **قرعة كأس الكونفدرالية.. الوداد وآسفي في مواجهة مثيرة**: [Link](https://ar.telquel.ma/%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%88%D8%A2%D8%B3/)
+- **وداديون يحذرون من فخ عقوبة "الكاف"**: [Link](https://www.hesport.com/%D9%88%D8%AF%D8%A7%D8%AF%D9%8A%D9%88%D9%86-%D9%8A%D8%AD%D8%B0%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D9%81%D8%AE-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%81-431886.html)
+
+
 ### كورة (N/A, Sun, 22 Mar 2026 11:30:00 -0700)
 
 - **قرار أربيلوا يضرب إنجاز فينيسيوس في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blta2a3c67b5e15eafb)
