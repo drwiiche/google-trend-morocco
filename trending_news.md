@@ -1,3 +1,17 @@
+### newcastle – sunderland (N/A, Sun, 22 Mar 2026 04:20:00 -0700)
+
+- **Confirmed line-up: Two changes for Tyne-Wear derby**: [Link](https://onefootball.com/fr/news/confirmed-line-up-two-changes-for-tyne-wear-derby-42597743)
+- **Le Bris tells Sunderland players: Going to Newcastle about emotional control**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-le-bris-tells-sunderland-players-going-to-newcastle-about-emotional-control-26b3a59c-4b91-4e7c-9165-c16ead8740fe)
+- **Use bet365 bonus code TSPORT to get £30 in free bets ahead of Newcastle vs Sunderland**: [Link](https://talksport.com/betting/4128397/newcastle-vs-sunderland-bet365-free-bets/)
+
+
+### bmci (N/A, Sun, 22 Mar 2026 03:10:00 -0700)
+
+- **BNP Paribas reclasse les actifs de BMCI pour préparer sa sortie du Maroc**: [Link](https://lematin.ma/economie/bnp-paribas-reclasse-les-actifs-de-bmci-pour-preparer-sa-sortie-du-maroc/335993)
+- **BNP Paribas reclasse les comptes BMCI, un signal fort**: [Link](https://h24info.ma/economie/bnp-paribas6bmci-reclassee-dans-les-comptes/)
+- **BNP Paribas reclasse les actifs de BMCI pour préparer sa sortie du Maroc**: [Link](https://www.msn.com/fr-xl/afrique-du-nord/maroc-actualite/bnp-paribas-reclasse-les-actifs-de-bmci-pour-pr%C3%A9parer-sa-sortie-du-maroc/ar-AA1Z7wjv?ocid=finance-verthp-feeds)
+
+
 ### الجزيرة نت (N/A, Sat, 21 Mar 2026 23:50:00 -0700)
 
 - **نجاح استثنائي.. كيف حققت لعبة "ريزيدنت إيفل ريكويم" مبيعات غير مسبوقة؟**: [Link](https://www.aljazeera.net/tech/2026/3/22/%D9%86%D8%AC%D8%A7%D8%AD-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D9%83%D9%8A%D9%81-%D8%AD%D9%82%D9%82%D8%AA-%D9%84%D8%B9%D8%A8%D8%A9-%D8%B1%D9%8A%D8%B2%D9%8A%D8%AF%D9%86%D8%AA)
