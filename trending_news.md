@@ -1,3 +1,10 @@
+### classement real madrid – atlético madrid (N/A, Sun, 22 Mar 2026 15:20:00 -0700)
+
+- **Real Madrid-Atlético de Madrid: les Merengue et Mbappé s'adjugent un derby fou et s'accrochent au Barça**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-real-madrid-atletico-de-madrid-suivez-en-live-le-choc-de-liga-a-bernabeu_LS-202603220400.html)
+- **La Liga : Lookman et l'Atlético climatisent le Bernabeu !**: [Link](https://www.beinsports.com/fr-fr/football/la-liga/articles-video/la-liga-lookman-et-l-atl%C3%A9tico-climatisent-le-bernabeu-2026-03-22)
+- **Arbeloa : « Le derby est très important et nous l’abordons avec un maximum d’enthousiasme »**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/conference-de-presse/rp-arbeloa-pre-atletico-21-03-2026)
+
+
 ### fiorentina vs inter (N/A, Sun, 22 Mar 2026 14:50:00 -0700)
 
 - **Inter drop points at Fiorentina after late Ndour leveller**: [Link](https://www.flashscore.com/news/fiorentina-inter-serie-a-report-2026-03-21/rHy0XbK6/)
