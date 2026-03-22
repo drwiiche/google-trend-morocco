@@ -1,3 +1,31 @@
+### marseille – lille (N/A, Sun, 22 Mar 2026 08:50:00 -0700)
+
+- **Mason Greenwood et l’OM frappent un grand coup !**: [Link](https://www.footmercato.net/a7515066140777671144-mason-greenwood-et-lom-frappent-un-grand-coup)
+- **INFO RMC SPORT. Réunion avec Beye, Benatia, Juster… et les groupes de supporters pour décréter l’union sacrée avant OM-Lille**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-marseille/info-rmc-sport-reunion-avec-beye-benatia-juster-et-les-groupes-de-supporters-pour-decreter-l-union-sacree-avant-om-lille_AV-202603210301.html)
+- **Amine Gouiri et Pierre-Emerick Aubameyang, l'« arme supplémentaire » et complémentaire de l'OM**: [Link](https://www.lequipe.fr/Football/Article/Amine-gouiri-et-pierre-emerick-aubameyang-l-arme-supplementaire-et-complementaire-de-l-om/1661458)
+
+
+### arsenal – manchester city (N/A, Sun, 22 Mar 2026 08:40:00 -0700)
+
+- **Carabao Cup: Who needs final victory more? Mikel Arteta or Pep Guardiola?**: [Link](https://www.bbc.com/sport/football/articles/cvg03xv5qq0o)
+- **Semenyo & Rice included in fan-voted Man City & Arsenal combined XI ahead of Wembley clash**: [Link](https://www.transfermarkt.com/semenyo-amp-rice-included-in-fan-voted-man-city-amp-arsenal-combined-xi-ahead-of-wembley-clash/view/news/476969)
+- **Team news: Havertz and Kepa to start at Wembley**: [Link](https://www.arsenal.com/news/team-news-havertz-and-kepa-start-wembley)
+
+
+### آرسنال ضد مان سيتي (N/A, Sun, 22 Mar 2026 08:40:00 -0700)
+
+- **أرتيتا يتحدى جوارديولا: يجب إنهاء السنوات العجاف في آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%AC%D8%A8-%D8%A7%D9%95%D9%86%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%AC%D8%A7%D9%81-%D9%81%D9%8A-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt481c73f8250b31af)
+- **مباشر مباراة أرسنال ضد مانشستر سيتي في نهائي كأس الرابطة الإنجليزية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **أرسنال يجب أن "يهاجم اللقب" في نهائي كأس الرابطة حسب أرتيتا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260320-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%AC%D8%A8-%D8%A3%D9%86-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%AD%D8%B3%D8%A8-%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7)
+
+
+### rennes – metz (N/A, Sun, 22 Mar 2026 08:40:00 -0700)
+
+- **PRONOS PARIS RMC Le pari sûr du 22 mars – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-22-mars-ligue-1_AN-202603210234.html)
+- **Rennes - Metz, Paris FC - Le Havre : les compositions officielles !**: [Link](https://www.onzemondial.com/ligue-1/rennes-metz-paris-fc-le-havre-les-compositions-officielles-983734)
+- **Stade Rennais : Le rêve secret de la Ligue des Champions**: [Link](https://www.foot01.com/rennes/stade-rennais-le-reve-secret-de-la-ligue-des-champions)
+
+
 ### league cup (N/A, Sun, 22 Mar 2026 07:20:00 -0700)
 
 - **Carabao Cup: Who needs final victory more? Mikel Arteta or Pep Guardiola?**: [Link](https://www.bbc.com/sport/football/articles/cvg03xv5qq0o)
