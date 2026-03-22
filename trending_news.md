@@ -1,3 +1,17 @@
+### missile iranien (N/A, Sat, 21 Mar 2026 17:20:00 -0700)
+
+- **EN DIRECT, guerre au Moyen-Orient : plus d’une centaine de blessés après des frappes iraniennes sur les villes de Dimona, qui abrite un centre de recherche nucléaire, et Arad, dans le sud d’Israël**: [Link](https://www.lemonde.fr/international/live/2026/03/21/en-direct-guerre-au-moyen-orient-des-dizaines-de-blesses-apres-une-frappe-iranienne-sur-arad-dans-le-sud-d-israel-la-ville-de-dimona-qui-abrite-un-centre-de-recherche-nucleaire-egalement-touchee_6673056_3210.html)
+- **EN DIRECT - Guerre au Moyen-Orient : Benyamin Netanyahou promet de «continuer à frapper» l’Iran après une «soirée très difficile» pour Israël**: [Link](https://www.lefigaro.fr/international/en-direct-guerre-moyen-orient-iran-irak-israel-etats-unis-liban-emirats-arabes-unis-qatar-arabie-saoudite-detroit-ormuz-20260321)
+- **Netanyahu jure de "continuer à frapper" l'Iran après des tirs de missiles sur deux villes du sud d'Israël**: [Link](https://www.france24.com/fr/moyen-orient/20260321-en-direct-trump-dit-vouloir-r%C3%A9duire-graduellement-les-op%C3%A9rations-en-iran-mais-exclut-tout-cessez-le-feu)
+
+
+### طارق السكتيوي (N/A, Sat, 21 Mar 2026 16:50:00 -0700)
+
+- **استقالة طارق السكتيوي.. نهاية مرحلة حافلة بالعطاء في المنتخبات المغربية**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%B7%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%AD%D8%A7%D9%81-1719105.html)
+- **طارق السكتيوي قدم استقالته للجامعة**: [Link](https://www.almountakhab.com/node/13223759)
+- **السكتيوي يعتذر للزمالك والأهلي**: [Link](https://assabah.ma/909714.html)
+
+
 ### عمرو الليثي (N/A, Sat, 21 Mar 2026 14:40:00 -0700)
 
 - **خطوبة ملك أحمد زاهر من نجل الإعلامي عمرو الليثي**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/21/%D8%AE%D8%B7%D9%88%D8%A8%D8%A9-%D9%85%D9%84%D9%83-%D8%A7%D8%AD%D9%85%D8%AF-%D8%B2%D8%A7%D9%87%D8%B1-%D9%85%D9%86-%D9%86%D8%AC%D9%84-%D8%A7%D9%84%D8%A7%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D8%B9%D9%85%D8%B1%D9%88-%D8%A7%D9%84%D9%84%D9%8A%D8%AB%D9%8A)
