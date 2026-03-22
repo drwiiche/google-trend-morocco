@@ -1,3 +1,31 @@
+### barcelone – rayo (N/A, Sun, 22 Mar 2026 05:10:00 -0700)
+
+- **DIRECT. FC Barcelone-Rayo Vallecano (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/fc-barcelone-rayo-vallecano-live/676993)
+- **Totale Europe : le Barça veut larguer le Real, gros derby de Newcastle**: [Link](https://onefootball.com/de/news/totale-europe-le-barca-veut-larguer-le-real-gros-derby-de-newcastle-42597385)
+- **Barcelone sur le point d'atteindre un record historique en championnat à domicile**: [Link](https://www.ysscores.com/fr/news/13931793/Barcelone-sur-le-point-d'atteindre-un-record-historique-en-championnat-%C3%A0-domicile)
+
+
+### برشلونة ضد رايو فاليكانو (N/A, Sun, 22 Mar 2026 05:10:00 -0700)
+
+- **مباشر برشلونة ضد رايو فايكانو في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **فليك يجري تغييرًا وحيدًا على تشكيل سباعية الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D9%8B%D8%A7-%D9%88%D8%AD%D9%8A%D8%AF%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt95190874c22253f5)
+- **بث مباشر الآن.. كيفية مشاهدة مباراة برشلونة ورايو فاليكانو في الدوري الإسباني؟**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88/)
+
+
+### barcelona vs rayo vallecano (N/A, Sun, 22 Mar 2026 05:10:00 -0700)
+
+- **El once del Barça ante el Rayo: Araujo vuelve al lateral**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260322/1004157454/once-barca-rayo.html)
+- **Mucho ambiente en los accesos al Spotify Camp Nou en una jornada primaveral**: [Link](https://www.sport.es/es/videos/barca/20260322/ambiente-accesos-spotify-camp-nou/128273016.shtml)
+- **Barcelona vs Rayo Vallecano: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/barcelona-vs-rayo-vallecano-previa-predicciones-y-alineaciones-22-03-26)
+
+
+### côme – pise (N/A, Sun, 22 Mar 2026 05:00:00 -0700)
+
+- **Pronostic Côme - AC Pise, Serie A**: [Link](https://www.sportytrader.com/pronostics/come-ac-pise-336084/)
+- **Como-Pisa EN DIRECT**: [Link](https://fr.news.yahoo.com/sport/como-pisa-direct-080852706.html)
+- **Côme - Pise en direct - Serie A : Football Scores & Résultats - 22/03/2026**: [Link](https://www.eurosport.fr/football/serie-a/2025-2026/come-pise_mtc21356907/live.shtml)
+
+
 ### نيوكاسل يونايتد ضد سندرلاند (N/A, Sun, 22 Mar 2026 04:50:00 -0700)
 
 - **نيوكاسل وسندرلاند في صراع النقاط لتقليص الفارق بجدول ترتيب الدوري الأنجليزي الممتاز**: [Link](https://m.elbotola.com/article/2026-03-21-11-31-942.html)
