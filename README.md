@@ -1,3 +1,17 @@
+### inter milan (N/A, Sun, 22 Mar 2026 15:00:00 -0700)
+
+- **Serie A official Week 30 line-ups: Fiorentina vs. Inter**: [Link](https://football-italia.net/serie-a-official-w30-line-ups-fiorentina-inter/)
+- **Paratici: ‘Fiorentina in the battle to the end, Kean ready for Italy’**: [Link](https://onefootball.com/de/news/paratici-fiorentina-in-the-battle-to-the-end-kean-ready-for-italy-42600410)
+- **Fiorentina v Inter: CM’s player ratings: Barella and Sommer – what mistakes! The Brescia lads gave it their all**: [Link](https://www.goal.com/en/lists/fiorentina-v-inter-cm-s-player-ratings-barella-and-sommer-what-mistakes-brescianini-a-tireless-performer/bltef8cc1446dd58758)
+
+
+### arbeloa (N/A, Sun, 22 Mar 2026 14:50:00 -0700)
+
+- **Arbeloa bën me dije se çka do të bëjë pas rikthimit të Bellinghamit**: [Link](https://reporteri.net/es/Deporte/arbeloa-ben-me-dije-se-cka-do-te-beje-pas-rikthimit-te-bellinghamit/)
+- **Mbappé arranca como suplente el derbi entre Real Madrid y Atlético**: [Link](https://es-us.noticias.yahoo.com/mbapp%C3%A9-arranca-suplente-derbi-real-141053636.html)
+- **Bellingham entra en una convocatoria sin Asencio**: [Link](https://www.infobae.com/espana/agencias/2026/03/22/bellingham-entra-en-una-convocatoria-sin-asencio/)
+
+
 ### brahim díaz (N/A, Sun, 22 Mar 2026 14:40:00 -0700)
 
 - **Breaking news! Real Madrid make a decision on Brahim Díaz: Borussia Dortmund enter the race**: [Link](https://madrid-barcelona.com/en/real-madrid/breaking-news-real-madrid-makes-decision-on-brahim-diaz-borussia-dortmund-enters-the-scene)
