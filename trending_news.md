@@ -1,3 +1,10 @@
+### عراد (N/A, Sat, 21 Mar 2026 15:10:00 -0700)
+
+- **الحرب على إيران مباشر.. صاروخ إيراني يدمر حيا كاملا بإسرائيل وترمب يمهل طهران 48 ساعة لفتح مضيق هرمز**: [Link](https://www.aljazeera.net/news/liveblog/2026/3/20/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF)
+- **نتنياهو يتوعد بمواصلة ضرب أعداء إسرائيل على جميع الجبهات**: [Link](https://www.skynewsarabia.com/middle-east/1859902-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%AA%D9%88%D8%B9%D8%AF-%D8%A8%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%B6%D8%B1%D8%A8-%D8%A3%D8%B9%D8%AF%D8%A7%D8%A1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D8%A8%D9%87%D8%A7%D8%AA)
+- **عشرات الجرحى وأضرار بالغة بضربات صاروخية إيرانية في عراد وديمونا- (صور)**: [Link](https://www.alquds.co.uk/%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%B9%D8%A8%D8%B1%D9%89-6-%D9%82%D8%AA%D9%84%D9%89-%D9%88100-%D9%85%D8%B5%D8%A7%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D9%82%D9%84-%D8%AC%D8%B1%D8%A7%D8%A1/)
+
+
 ### time (N/A, Sat, 21 Mar 2026 19:20:00 -0700)
 
 - **Covid gave us hybrid work. The Iran War might give us a four-day week—and this time, experts say it could stick**: [Link](https://fortune.com/2026/03/21/covid-gave-us-hybrid-work-the-iran-war-might-give-us-a-four-day-week-and-this-time-experts-say-it-could-stick/)
