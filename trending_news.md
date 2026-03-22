@@ -1,3 +1,17 @@
+### nantes – strasbourg (N/A, Sun, 22 Mar 2026 12:50:00 -0700)
+
+- **"Chef de guerre", "ego surdimensionné" : Vahid, l'envers d'un management unique**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/vahid-halilhodzic-nouvel-entraineur-de-nantes-dans-les-coulisses-dun-coaching-chef-de-guerre-ego-surdimensionne-homme-au-grand-coeur_sto23282133/story.shtml)
+- **Ligue 1. Le Clash du dimanche soir : Abdoul Ouattara x Johann Lepenant**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-le-clash-du-dimanche-soir-abdoul-ouattara-x-johann-lepenant/rVpDaVwP/)
+- **« Pour moi, il reste 11 matchs, pas 9 » : Anthony Lopes veut arracher les barrages**: [Link](https://tribunenantaise.fr/actus-fcnantes/pour-moi-il-reste-11-matchs-pas-9-anthony-lopes-veut-arracher-les-barrages/)
+
+
+### carlos alcaraz (N/A, Sun, 22 Mar 2026 12:50:00 -0700)
+
+- **Alcaraz y Sabalenka superan el trámite, pero los hispanos no corrieron la misma suerte**: [Link](https://es-us.noticias.yahoo.com/alcaraz-sabalenka-superan-tr%C3%A1mite-hispanos-000413380.html)
+- **Miami Open 2026: programación del 21 de marzo**: [Link](https://matchtenis.com/miami-open-2026-programacion-del-21-de-marzo/)
+- **Sinner responde a Fonseca: “Tiene razón, es una explicación perfecta”**: [Link](https://as.com/tenis/masters_1000/sinner-responde-a-fonseca-tiene-razon-es-una-explicacion-perfecta-f202603-n/)
+
+
 ### wac (N/A, Sun, 22 Mar 2026 12:40:00 -0700)
 
 - **Mavericks Claim Weekend Series Despite 7-2 Loss to ACU in Finale**: [Link](https://utamavs.com/news/2026/3/21/softball-mavericks-claim-weekend-series-despite-7-2-loss-to-acu-in-finale.aspx)
