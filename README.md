@@ -1,3 +1,38 @@
+### ath. bilbao – betis (N/A, Sun, 22 Mar 2026 09:50:00 -0700)
+
+- **Athletic - Betis: Reválida cuando se acerca un nuevo parón en el calendario**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/athletic-betis-revalida-acerca-nuevo-paron-calendario-20260322202709-nts.html)
+- **El Betis llega a Bilbao con las pilas cargadas en Europa**: [Link](https://www.canalsur.es/noticias/andalucia/sevilla/el-betis-llega-a-bilbao-con-las-pilas-cargadas-en-europa/2256971.html)
+- **Lekue, Rego y Guruzeta entran en Athletic; el Betis con Ángel, Llorente y Valentín**: [Link](https://www.infobae.com/espana/agencias/2026/03/22/lekue-rego-y-guruzeta-entran-en-athletic-el-betis-con-angel-llorente-y-valentin/)
+
+
+### roma – lecce (N/A, Sun, 22 Mar 2026 09:50:00 -0700)
+
+- **🔴 Roma-Lecce | UFFICIALI: la scelta su Pellegrini e Vaz. Parla Massara**: [Link](https://onefootball.com/fr/news/roma-lecce-ufficiali-la-scelta-su-pellegrini-e-vaz-parla-massara-42599046)
+- **Hermoso: “Situazione complessa ma vogliamo uscirne. I dettagli ci stanno penalizzando”**: [Link](https://www.forzaroma.info/news-as-roma/hermoso-vogliamo-un-posto-in-europa-leliminazione-il-calcio-e-cosi/)
+- **CALCIO Campionato Serie A 30ª giornata – ROMA vs LECCE – Le Formazioni Ufficiali**: [Link](https://www.lecceoggi.com/calcio-campionato-serie-a-30a-giornata-roma-vs-lecce-le-formazioni-ufficiali/)
+
+
+### new york city fc – inter miami (N/A, Sun, 22 Mar 2026 09:40:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Set to Visit NYCFC on Sunday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-visit-nycfc-on-sunday)
+- **NYCFC welcomes Messi, Miami to Bronx on Sunday**: [Link](https://www.amny.com/sports/nycfc-inter-miami-pre-3-22-26/)
+- **Press Conference - Thiago Martins | New York City FC vs. Inter Miami CF**: [Link](https://www.newyorkcityfc.com/video/press-conference-thiago-martins-new-york-city-fc-vs-inter-miami-cf)
+
+
+### berkane vs al hilal (N/A, Sun, 22 Mar 2026 09:40:00 -0700)
+
+- **Regecamp (Al-Hilal Coach): "We Will Play with Confidence Against a Strong Team, Fortunate Not to Lose First Leg"**: [Link](https://m.elbotola.com/en/article/2026-03-21-21-53-643.html)
+- **CAF Champions League: Date, time, channels, and history of the Al Hilal vs RS Berkane clash**: [Link](https://foot-africa.com/en/news/caf-champions-league-date-time-channels-and-history-of-the-al-hilal-vs-rs-berkane-clash-1132346/)
+- **CAF CL team news: Al-Hilal host RS Berkane in decisive quarterfinal| The New Times**: [Link](https://www.newtimes.co.rw/article/34269/sports/football/caf-cl-team-news-al-hilal-host-rs-berkane-in-decisive-quarterfinal)
+
+
+### نهضة بركان (N/A, Sun, 22 Mar 2026 09:30:00 -0700)
+
+- **مباشر.. مباراة الهلال السوداني ضد نهضة بركان في دوري أبطال أفريقيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D8%B6%D8%AF-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86)
+- **"ديربي" عربي في أبطال أفريقيا ومواجهات حاسمة في الكونفيدرالية**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%B9%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9)
+- **ريجيكامب (مدرب الهلال السوداني): "سنلعب بثقة أمام فريق قوي ونحن محظوظون لأننا لم نخسر في الذهاب"**: [Link](https://m.elbotola.com/article/2026-03-21-21-53-689.html)
+
+
 ### telstar – psv eindhoven (N/A, Sun, 22 Mar 2026 09:10:00 -0700)
 
 - **Live Eredivisie | PSV begonnen aan officieuze kampioenswedstrijd bij Telstar**: [Link](https://www.nu.nl/voetbal/6390058/live-eredivisie-psv-begonnen-aan-officieuze-kampioenswedstrijd-bij-telstar.html)
