@@ -1,3 +1,71 @@
+### الوداد (N/A, Sun, 22 Mar 2026 11:30:00 -0700)
+
+- **قطار ينقل جمهور آسفي إلى البيضاء**: [Link](https://www.hespress.com/%D9%82%D8%B7%D8%A7%D8%B1-%D9%8A%D9%86%D9%82%D9%84-%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A2%D8%B3%D9%81%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1718963.html)
+- **قرعة كأس الكونفدرالية.. الوداد وآسفي في مواجهة مثيرة**: [Link](https://ar.telquel.ma/%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%88%D8%A2%D8%B3/)
+- **وداديون يحذرون من فخ عقوبة "الكاف"**: [Link](https://www.hesport.com/%D9%88%D8%AF%D8%A7%D8%AF%D9%8A%D9%88%D9%86-%D9%8A%D8%AD%D8%B0%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D9%81%D8%AE-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%81-431886.html)
+
+
+### city vs (N/A, Sun, 22 Mar 2026 11:30:00 -0700)
+
+- **Arsenal escape 'clear red card' as Kepa Arrizabalaga fouls Jeremy Doku to stop Man City goal**: [Link](https://www.dailystar.co.uk/sport/football/breaking-arsenal-escape-clear-red-36906624)
+- **Video: Kepa’s mistake results in Man City’s opening goal vs Arsenal at 2026 EFL Cup at Wembley**: [Link](https://bolavip.com/en/soccer/video-kepas-mistake-results-in-man-citys-opening-goal-vs-arsenal-at-2026-efl-cup-at-wembley)
+- **Kepa Arrizabalaga blasted as shocking error leads to Man City goal just moments after miraculously escaping red card**: [Link](https://www.thesun.co.uk/sport/38596997/kepa-arrizabalaga-man-city-jeremy-doku/)
+
+
+### classement premier league (N/A, Sun, 22 Mar 2026 11:20:00 -0700)
+
+- **Everton 3-0 Chelsea, Premier League : Les Blues coulent face aux Toffees**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/everton-chelsea-live/673806)
+- **Revivez Everton - Chelsea - Premier League - 31e journée - Les Toffees plongent les Blues dans la crise**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/everton-chelsea_mtc1602438/live-commentary.shtml)
+- **31e journée de Premier League : Liverpool et Chelsea trébuchent dans la course à la qualification pour la Ligue des champions.**: [Link](https://www.vietnam.vn/fr/vong-31-ngoai-hang-anh-liverpool-chelsea-cung-say-chan-trong-cuoc-dua-du-champions-league)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 22 Mar 2026 11:10:00 -0700)
+
+- **نبأ سار من مدرب ليفربول بشأن إصابة هوغو إيكيتيكي**: [Link](https://arabic.cnn.com/sport/article/2026/03/21/hugo-ekitike-arne-slot-liverpool)
+- **ما القنوات الناقلة لمباراة برايتون وليفربول في الدوري الإنجليزي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt7390b1ad94ad9a73)
+- **شاهد.. ليفربول يتعرض لهزيمة جديدة في البريميرليغ تضرب آماله في التأهل لأبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/3/21/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
+### bet365 (N/A, Sun, 22 Mar 2026 11:10:00 -0700)
+
+- **Bet365 bonus code CBSBET365: Get $365 bonus bets for Celtics-Timberwolves, Suns-Raptors basketball on Sunday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-get-365-bonus-bets-celtics-timberwolves-suns-raptors-basketball-sunday/)
+- **bet365 Bonus Code SBKWIRE | Collect $365 in Bonus Bets for NCAA Tournament Today**: [Link](https://ftw.usatoday.com/story/sports/2026/03/22/bet365-bonus-code-sbkwire-collect-365-bonus-bets-ncaa-tournament-today/89226928007/)
+- **Bet365 Promo Code BROAD365: Get $365 Bonus for Texas-Gonzaga, NCAA Tournament Games**: [Link](https://www.crossingbroad.com/news/sports-gambling/bet365-promo-code-broad365-get-365-bonus-for-texas-gonzaga-ncaa-tournament-games/)
+
+
+### zamalek (N/A, Sun, 22 Mar 2026 11:10:00 -0700)
+
+- **Confederation Cup: What starting eleven will Zamalek field against Otôho d'Oyo?**: [Link](https://foot-africa.com/en/news/confederation-cup-what-starting-eleven-will-zamalek-field-against-otoho-doyo-1133717/)
+- **Zamalek Advances to Semi-Finals and Saves Egyptian Presence in Africa**: [Link](https://www.ysscores.com/en/news/13932179/Zamalek-Advances-to-Semi-Finals-and-Saves-Egyptian-Presence-in-Africa)
+- **Unpredictable clash: Zamalek and Otohô face decisive Confederation Cup test**: [Link](https://africasoccer.com/caf-confederation-cup-zamalek-otoho-quarterfinal-preview/)
+
+
+### koora (N/A, Sun, 22 Mar 2026 11:00:00 -0700)
+
+- **متفوقا على ميسي ورونالدو.. مودريتش يحقق إنجازا مميزا مع ميلان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AA%D9%81%D9%88%D9%82%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88--%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D8%AA%D8%B4-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2%D8%A7-%D9%85%D9%85%D9%8A%D8%B2%D8%A7-%D9%85%D8%B9-%D9%85%D9%8A%D9%84%D8%A7%D9%86/blt61694d0bf0367046)
+- **أليغري: "فضلنا أن يرتاح اليوم حتى يحصل على 20 يومًا للتعافي"**: [Link](https://milanreports.com/ar/2026/03/21/%D8%A3%D9%84%D9%8A%D8%BA%D8%B1%D9%8A-%D9%81%D8%B6%D9%84%D9%86%D8%A7-%D8%A3%D9%86-%D9%8A%D8%B1%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AD%D8%AA%D9%89-%D9%8A%D8%AD%D8%B5%D9%84-%D8%B9/)
+- **الحلم سبورت : تطورات مستقبل مودريتش مع الميلان**: [Link](https://al7lmnews.com/news/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D8%AA%D8%B4-%D9%85%D8%B9-%D8%A7/)
+
+
+### champions league afrique (N/A, Sun, 22 Mar 2026 11:00:00 -0700)
+
+
+
+
+### athletic club vs real betis (N/A, Sun, 22 Mar 2026 11:00:00 -0700)
+
+- **Preview: Athletic Bilbao vs Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/athletic-bilbao/preview/athletic-bilbao-vs-betis-prediction-team-news-lineups_594276.html)
+- **🚨 Valverde and Pellegrini shuffle their line-ups for Athletic v Betis**: [Link](https://sports.yahoo.com/articles/valverde-pellegrini-shuffle-line-ups-161700503.html)
+- **Athletic Club vs Betis Prediction, 3/22/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/athletic-club-vs-betis-prediction-3-22-2026-soccer-pick-tips-and-odds.html)
+
+
+### نيويورك سيتي ضد إنتر ميامي (N/A, Sun, 22 Mar 2026 11:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة نيويورك سيتي وإنتر ميامي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt3c9ac880e597f154)
+- **بث مباشر ميسي الآن.. رابط مشاهدة مباراة إنتر ميامي ونيويورك سيتي في الدوري الأمريكي**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83/)
+- **كيفية مشاهدة مباراة إنتر ميامي ضد نيو يورك سيتي في قمة الجولة بالدوري الأمريكي**: [Link](https://www.sabaharabi.com/704030)
+
+
 ### مباريات اليوم مباشر (N/A, Sun, 22 Mar 2026 10:50:00 -0700)
 
 - **جدول مباريات اليوم الأحد 22 مارس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-22-%D9%85%D8%A7%D8%B1%D8%B3-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9/blt6cf3c4e3f36f48d9)
