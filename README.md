@@ -1,3 +1,10 @@
+### la liga classement (N/A, Sun, 22 Mar 2026 14:50:00 -0700)
+
+- **Le classement de La Liga 2025/26 s'intensifie : le Real Madrid met la pression sur le Barça.**: [Link](https://www.vietnam.vn/fr/nong-bxh-la-liga-2025-26-moi-nhat-real-madrid-pha-hoi-nong-vao-gay-barca)
+- **FC Barcelone, Real Madrid, Atlético : Le classement de Liga sans la VAR après la 28ème journée**: [Link](https://www.90min.com/fr/fc-barcelone-real-madrid-atletico-le-classement-de-liga-sans-la-var-apres-la-28eme-journee-17-03-2026)
+- **Liga : Barcelone et Real Madrid confirment leur domination après la 28e journée**: [Link](https://www.webmanagercenter.com/2026/03/16/563237/liga-barcelone-et-real-madrid-confirment-leur-domination-apres-la-28e-journee/)
+
+
 ### نتائج مباريات اليوم (N/A, Sun, 22 Mar 2026 15:00:00 -0700)
 
 
