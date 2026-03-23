@@ -1,3 +1,22 @@
+### rachida dati paris (N/A, Mon, 23 Mar 2026 10:20:00 -0700)
+
+
+
+
+### carteron (N/A, Mon, 23 Mar 2026 07:50:00 -0700)
+
+- **Benhashim on Calls for His Departure: "I Deal with It Normally, I Have the Support of Fans, President, and Players"**: [Link](https://m.elbotola.com/en/article/2026-03-22-10-24-549.html)
+- **Wydad Agrees with Patrice Carteron to Lead the Team Replacing Amin Benhachem**: [Link](https://www.ysscores.com/en/news/13932550/Wydad-Agrees-with-Patrice-Carteron-to-Lead-the-Team-Replacing-Amin-Benhachem)
+- **Morocco: Wydad AC coach Amine Benhachem addresses sacking rumours after Confederation Cup Exit**: [Link](https://africasoccer.com/morocco-wydad-ac-coach-amine-benhachem-addresses-sacking-rumours-after-confederation-cup-exit/)
+
+
+### barrages du maroc (N/A, Mon, 23 Mar 2026 04:30:00 -0700)
+
+- **Les réserves d’eau au Maroc doublent en un an, le taux de remplissage atteint 72,1%**: [Link](https://lematin.ma/nation/les-reserves-deau-au-maroc-doublent-le-taux-de-remplissage-atteint-721/336114)
+- **En chiffres, voici comment les retenues des barrages ont évolué entre le 13 et le 21 mars**: [Link](https://fr.le360.ma/societe/en-chiffres-voici-comment-les-retenues-des-barrages-ont-evolue-entre-le-13-et-le-21-mars_7O3SBYVO55BT3ATGEFPQMXJNTU/)
+- **Barrages au Maroc : Le taux de remplissage dépasse les 72 %**: [Link](https://maroc-diplomatique.net/barrages-au-maroc-le-taux-de-remplissage-depasse-les-72/)
+
+
 ### chantilly (N/A, Mon, 23 Mar 2026 09:10:00 -0700)
 
 - **Quinté+ PMU : Central Park West a tout pour plaire**: [Link](https://www.zone-turf.fr/quinte/quinte-pmu-central-park-west-a-tout-pour-plaire-129357.html)
