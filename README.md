@@ -1,3 +1,22 @@
+### zone turf (N/A, Mon, 23 Mar 2026 04:30:00 -0700)
+
+- **8 Aloysius - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-8-aloysius-129358.html)
+- **Chantilly Prix des Quatre Glacières**: [Link](https://www.paris-turf.com/course/chantilly-prix-des-quatre-glacieres-idc-345efaeefe11b70ee1d691c398995ff3)
+- **8 Navarrenx - Obstacle**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-8-navarrenx-129353.html)
+
+
+### trump (N/A, Mon, 23 Mar 2026 04:30:00 -0700)
+
+- **Iran war live: Trump delays US attacks on Iran’s energy sites for five days**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/23/iran-war-live-tehran-vows-to-completely-close-hormuz-if-power-plants-hit)
+- **Trump pauses Iran energy strikes for 5 days while talks progress**: [Link](https://www.axios.com/2026/03/23/trump-suspends-iran-strikes-hormuz-negotiations)
+- **NATO Allies ‘Coming Together’ to Secure Strait of Hormuz, Mark Rutte Says**: [Link](https://www.wsj.com/livecoverage/iran-us-israel-war-updates-2026/card/nato-allies-coming-together-to-secure-strait-of-hormuz-mark-rutte-says-RXTAMl4FKNwGwXDEV28R?gaa_at=eafs&gaa_n=AWEtsqe70buzEzHitN1hTSf7CWCPGXlKVDRZUCRpCaMvsj6kd6dl0pRtDQ2H&gaa_ts=69c12d9f&gaa_sig=Rz8buNBbse47OAoJGM_iyFemAudkr_X1qmYcxapH0Y_UyxpnsbIbX56PoPnyRx7w-5LKCy7tG_vBn1in_Xkfig%3D%3D)
+
+
+### kech24 (N/A, Sun, 22 Mar 2026 19:40:00 -0700)
+
+
+
+
 ### نادي الوداد الرياضي (N/A, Mon, 23 Mar 2026 04:00:00 -0700)
 
 - **الوداد يستقر على خليفة بنهاشم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D8%B9%D9%84%D9%89-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85/bltc7473ea5c63a9bab)
