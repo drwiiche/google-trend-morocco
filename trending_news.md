@@ -1,3 +1,24 @@
+### lionel jospin (N/A, Mon, 23 Mar 2026 02:20:00 -0700)
+
+- **Lionel Jospin, socialiste au destin foudroyé, est mort**: [Link](https://www.lemonde.fr/disparitions/article/2026/03/23/lionel-jospin-socialiste-au-destin-foudroye-est-mort_6673872_3382.html)
+- **Lionel Jospin, l’ancien premier ministre socialiste, est mort à l’âge de 88 ans**: [Link](https://www.lefigaro.fr/politique/lionel-jospin-l-ancien-premier-ministre-socialiste-est-mort-a-l-age-de-88-ans-20260323)
+- **Lionel Jospin n’est plus**: [Link](https://www.leconomiste.com/flash-infos/lionel-jospin-nest-plus/)
+
+
+### gold price (N/A, Mon, 23 Mar 2026 01:00:00 -0700)
+
+- **Gold and silver in freefall as investors flee safe haven metals trade**: [Link](https://www.cnbc.com/2026/03/23/gold-and-silver-in-freefall-as-investors-flee-safe-haven-metals-trade.html)
+- **Gold flirts with bear-market territory as Iran war takes its toll**: [Link](https://www.marketwatch.com/story/gold-flirts-with-bear-market-territory-as-iran-war-takes-its-toll-d3312aad?gaa_at=eafs&gaa_n=AWEtsqcQ2zFBsPapDOG_xmRXr5WhSJ1kR_JY_w37NPMhl7wTHuvIK2pUiTnA&gaa_ts=69c10f41&gaa_sig=234w7dm_lRAZ5D2KunalyYe4YUpMYLzchjLz1OPunE31OQcpuHTQYtyJ2FmIFHFTk9mz9Q8DfVSii7CHX9hJUw%3D%3D)
+- **War and Inflation Are Supposed to Be Gold’s Friends. Not This Time.**: [Link](https://www.wsj.com/finance/commodities-futures/war-and-inflation-are-supposed-to-be-golds-friends-not-this-time-3d21ebcd?gaa_at=eafs&gaa_n=AWEtsqf7XrXi-j6re1bmFAsgbfWOzM1BRBHlZq4i-K6x69heoQt1QdeWi3D2&gaa_ts=69c10f41&gaa_sig=D4FDX3B5mbTi6fpB1_C-42yDWBGGe7nkHTUU6qWUoYIlVtgcY49J8mvAs6aO0kRzPkVSbhpGatwU9lKYASgCdw%3D%3D)
+
+
+### الجزيرة نت (N/A, Sun, 22 Mar 2026 23:00:00 -0700)
+
+- **خطط عسكرية إسرائيلية أمريكية جديدة ضد إيران وإقرار بصعوبة إس**: [Link](https://www.alquds.com/en/posts/231743)
+- **"المدني" و"النووي".. مساحة التصعيد الجديدة في الحرب على إيران**: [Link](https://www.aljazeera.net/news/2026/3/23/%D8%A7%D9%84%D9%85%D8%AF%D9%86%D9%8A-%D9%88%D8%A7%D9%84%D9%86%D9%88%D9%88%D9%8A-%D9%85%D8%B3%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF)
+- **الجيش الإسرائيلي يعلن شن "موجة واسعة من الهجمات" على طهران، والحرس الثوري يهدد بقصف شبكات الكهرباء التابعة لإسرائيل**: [Link](https://www.bbc.com/arabic/live/cje40vxnzp4t)
+
+
 ### real madrid cf (N/A, Sun, 22 Mar 2026 15:00:00 -0700)
 
 - **‘See it later’ – Real Madrid fume over Fede Valverde’s red card vs Atlético**: [Link](https://getfootballnewsspain.com/see-it-later-real-madrid-fume-over-fede-valverdes-red-card-vs-atletico/)
