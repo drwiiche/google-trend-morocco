@@ -1,3 +1,10 @@
+### real madrid atletico madrid (N/A, Sun, 22 Mar 2026 15:10:00 -0700)
+
+- **Arbeloa talks Valverde, Vinicius, Carvajal, Mbappe, Bellingham, Militao after Real Madrid 3-2 Atletico Madrid**: [Link](https://madriduniversal.com/arbeloa-talks-valverde-vinicius-carvajal-mbappe-bellingham-militao-after-real-madrid-3-2-atletico-madrid/)
+- **Fede Valverde’s potential suspension is now clear based on the referee’s report**: [Link](https://www.mundodeportivo.com/en/20260323/1004158174/fede-valverde-s-potential-suspension-is-now-clear-based-on-the-referee-s-report.html)
+- **Real Madrid appeal Valverde’s dismissal after the Atletico derby**: [Link](https://www.voiceofemirates.com/en/sport/2026/03/23/real-madrid-appeal-valverdes-dismissal-after-the-atletico-derby/)
+
+
 ### zone turf (N/A, Mon, 23 Mar 2026 04:30:00 -0700)
 
 - **8 Aloysius - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-8-aloysius-129358.html)
