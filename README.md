@@ -1,3 +1,10 @@
+### الجراد الصحراوي (N/A, Mon, 23 Mar 2026 13:40:00 -0700)
+
+- **زحف أسراب الجراد الصحراوي .. خطر عابر للحدود يتربص بالأمن الغذائي**: [Link](https://www.hespress.com/%D8%B2%D8%AD%D9%81-%D8%A3%D8%B3%D8%B1%D8%A7%D8%A8-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D8%AF-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D9%88%D9%8A-%D8%AE%D8%B7%D8%B1-%D8%B9%D8%A7%D8%A8%D8%B1-%D9%84%D9%84-1719025.html)
+- **دراسة جديدة لـ"الفاو" تكشف عن تدهور خطير في الأراضي الزراعية بالمنطقة العربية**: [Link](https://ar.telquel.ma/%D8%AE%D8%B7%D8%B1-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D8%AF-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D9%88%D9%8A-%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%B3%D8%A7%D8%A8%D9%82-%D8%A8%D9%80%D8%A7%D9%84%D9%81/)
+- **اجتماعات تنسيقية لتقييم الاجراءات الاستباقية لمواجهة الجراد الصحراوي وحماية المحاصيل الزراعية**: [Link](http://news.radioalgerie.dz/ar/node/81690)
+
+
 ### senegal champion d afrique (N/A, Mon, 23 Mar 2026 12:00:00 -0700)
 
 - **CAN 2025 : « Le Maroc a gagné en droit, mais pas encore dans les esprits »**: [Link](https://www.lepoint.fr/afrique/can-2025-le-maroc-a-gagne-en-droit-mais-pas-encore-dans-les-esprits-ADVMGSOTRBDVLPUHXBRYWQTEIE/)
