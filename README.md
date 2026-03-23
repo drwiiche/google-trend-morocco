@@ -1,3 +1,10 @@
+### أتلتيكو مدريد (N/A, Sun, 22 Mar 2026 15:00:00 -0700)
+
+- **اتفاق شفهي يقرب جريزمان من تحدي ميسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B4%D9%81%D9%87%D9%8A-%D9%8A%D9%82%D8%B1%D8%A8-%D8%AC%D8%B1%D9%8A%D8%B2%D9%85%D8%A7%D9%86-%D9%85%D9%86-%D8%AA%D8%AD%D8%AF%D9%8A-%D9%85%D9%8A%D8%B3%D9%8A/bltbd0c05737988e573)
+- **مفاجأة.. غريزمان يقرر الرحيل عن أتلتيكو والانتقال إلى هذا النادي**: [Link](https://sports.asharq.com/football/103358/%D8%BA%D8%B1%D9%8A%D8%B2%D9%85%D8%A7%D9%86-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%88%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5%D9%84%D9%89-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A/)
+- **جريزمان: أجلت رحيلي عن أتلتيكو للصيف.. ولا أفكر في الديربي**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=22032026&id=c85f287d-23b2-41ab-bee9-cff471ad0d19)
+
+
 ### lionel jospin (N/A, Mon, 23 Mar 2026 02:20:00 -0700)
 
 - **Lionel Jospin, socialiste au destin foudroyé, est mort**: [Link](https://www.lemonde.fr/disparitions/article/2026/03/23/lionel-jospin-socialiste-au-destin-foudroye-est-mort_6673872_3382.html)
