@@ -1,3 +1,22 @@
+### نادي الوداد الرياضي (N/A, Mon, 23 Mar 2026 04:00:00 -0700)
+
+- **الوداد يستقر على خليفة بنهاشم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D8%B9%D9%84%D9%89-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85/bltc7473ea5c63a9bab)
+- **منخرطو الوداد يحمّلون أيت منا مسؤولية الإخفاق ويدقون ناقوس الخطر بعد كشف اختلالات كبيرة في التسيير**: [Link](https://m.elbotola.com/article/2026-03-23-10-11-337.html)
+- **خاص.. الفرنسي باتريس كارتيرون يخلف بنهاشم في تدريب الوداد الرياضي**: [Link](https://al3omk.com/1146897.html)
+
+
+### quinte (N/A, Mon, 23 Mar 2026 03:00:00 -0700)
+
+
+
+
+### idrissa gueye (N/A, Mon, 23 Mar 2026 01:40:00 -0700)
+
+- **Rumors swirl over Hakimi’s reaction to Morocco’s AFCON title | Daily Sabah**: [Link](https://www.dailysabah.com/sports/football/rumors-swirl-over-hakimis-reaction-to-moroccos-afcon-title)
+- **CAF Appeal Board Media Statement**: [Link](https://www.cafonline.com/news/caf-appeal-board-media-statement/)
+- **AFCON final ruling could become major test for sports arbitration, study says**: [Link](https://en.hespress.com/134236-afcon-final-ruling-could-become-major-test-for-sports-arbitration-study-says.html)
+
+
 ### أتلتيكو مدريد (N/A, Sun, 22 Mar 2026 15:00:00 -0700)
 
 - **اتفاق شفهي يقرب جريزمان من تحدي ميسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B4%D9%81%D9%87%D9%8A-%D9%8A%D9%82%D8%B1%D8%A8-%D8%AC%D8%B1%D9%8A%D8%B2%D9%85%D8%A7%D9%86-%D9%85%D9%86-%D8%AA%D8%AD%D8%AF%D9%8A-%D9%85%D9%8A%D8%B3%D9%8A/bltbd0c05737988e573)
