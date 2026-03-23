@@ -1,3 +1,24 @@
+### maire de paris (N/A, Mon, 23 Mar 2026 00:40:00 -0700)
+
+- **Municipales à Paris : Emmanuel Grégoire et la gauche unie remportent une victoire éclatante**: [Link](https://www.lemonde.fr/politique/article/2026/03/23/municipales-a-paris-emmanuel-gregoire-et-la-gauche-unie-remportent-une-victoire-eclatante_6673833_823448.html)
+- **Municipales : qui est Emmanuel Grégoire ? On vous présente le nouveau maire de Paris**: [Link](https://www.huffingtonpost.fr/politique/article/municipales-qui-est-emmanuel-gregoire-on-vous-presente-le-nouveau-maire-de-paris-clx1_261776.html)
+- **Municipales 2026 à Paris : Rachida Dati voit son rêve de conquête lui échapper**: [Link](https://www.lefigaro.fr/politique/municipales-2026-a-paris-rachida-dati-voit-son-reve-de-conquete-lui-echapper-20260322)
+
+
+### aljazeera (N/A, Sun, 22 Mar 2026 23:20:00 -0700)
+
+- **Iranian Missiles Sow Panic, Destruction In Israeli Towns**: [Link](https://www.barrons.com/news/iranian-missiles-sow-panic-destruction-in-israeli-towns-25d241b9?gaa_at=eafs&gaa_n=AWEtsqcWW3hH5d6WNpyJy8CO6jfpzMTrtTt8YjPwCAc6nDOkCEFaOP0YzSYy&gaa_ts=69c0f56a&gaa_sig=dw4kRbIsFoE38Dytl6b800TagYSnfM0_e4zc6oOkuspu6vJDonjnYdZrQ7PJ4L_OW5NR6PP5Wp1--viz2TgF_A%3D%3D)
+- **Iranian missile strikes injure 115 in Israel, officials say, puncturing air defenses and shocking the public**: [Link](https://www.nbcnews.com/world/israel/iranian-missile-strikes-injure-israel-arad-dimona-rcna264610)
+- **Did Israel miscalculate Iranian military capabilities?**: [Link](https://www.aljazeera.com/news/2026/3/22/did-israel-miscalculate-iranian-military-capabilities)
+
+
+### federico valverde (N/A, Sun, 22 Mar 2026 14:50:00 -0700)
+
+- **Arbeloa: “La roja a Valverde es difícil de entender”**: [Link](https://as.com/futbol/primera/arbeloa-nadie-entiende-la-roja-a-valverde-f202603-n/)
+- **El acta de Munuera Montero apunta a dos partidos de sanción a Valverde... que el Real Madrid recurrirá**: [Link](https://www.marca.com/futbol/real-madrid/2026/03/23/acta-munuera-montero-apunta-dos-partidos-sancion-valverde-real-madrid-recurrira.html)
+- **¡Roja a Valverde! Último episodio de su rivalidad con Baena**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260322/1004157863/roja-valverde-ultimo-episodio-rivalidad-baena.html)
+
+
 ### meningite angleterre (N/A, Sun, 22 Mar 2026 19:00:00 -0700)
 
 
