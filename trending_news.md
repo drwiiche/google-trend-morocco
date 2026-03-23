@@ -1,3 +1,10 @@
+### real madrid cf (N/A, Sun, 22 Mar 2026 15:00:00 -0700)
+
+- **‘See it later’ – Real Madrid fume over Fede Valverde’s red card vs Atlético**: [Link](https://getfootballnewsspain.com/see-it-later-real-madrid-fume-over-fede-valverdes-red-card-vs-atletico/)
+- **Arbeloa talks Valverde, Vinicius, Carvajal, Mbappe, Bellingham, Militao after Real Madrid 3-2 Atletico Madrid**: [Link](https://madriduniversal.com/arbeloa-talks-valverde-vinicius-carvajal-mbappe-bellingham-militao-after-real-madrid-3-2-atletico-madrid/)
+- **Was Real Madrid treated unfairly in the derby against Atletico? Former famous referee says Fede Valverde did not deserve the red card**: [Link](https://telegrafi.com/en/Was-Real-Madrid-treated-unfairly-in-the-derby-against-Atletico-Former-famous-referee-says-Fede-Valverde-did-not-deserve-the-red-card./)
+
+
 ### maire de paris (N/A, Mon, 23 Mar 2026 00:40:00 -0700)
 
 - **Municipales à Paris : Emmanuel Grégoire et la gauche unie remportent une victoire éclatante**: [Link](https://www.lemonde.fr/politique/article/2026/03/23/municipales-a-paris-emmanuel-gregoire-et-la-gauche-unie-remportent-une-victoire-eclatante_6673833_823448.html)
