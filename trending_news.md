@@ -1,3 +1,17 @@
+### gta 6 (N/A, Sun, 22 Mar 2026 19:50:00 -0700)
+
+- **No physical copies on day 1: GTA 6 might ditch physical copies over leak fears, says insider**: [Link](https://timesofindia.indiatimes.com/etimes/trending/no-physical-copies-on-day-1-gta-6-might-ditch-physical-copies-over-leak-fears-says-insider/articleshow/129732985.cms)
+- **GTA 6 release date, price in India, map, characters, storyline and all you need to know**: [Link](https://www.livemint.com/technology/tech-news/gta-6-release-date-price-in-india-map-characters-storyline-and-all-you-need-to-know-11774150463019.html)
+- **Millions of Grand Theft Auto 5 Gamers Won't Get to Play GTA 6 at Launch**: [Link](https://www.military.com/off-duty/games/millions-of-grand-theft-auto-5-gamers-wont-get-play-gta-6-launch.html)
+
+
+### club atlético de madrid (N/A, Sun, 22 Mar 2026 14:20:00 -0700)
+
+- **Griezmann viaja a EE UU para apalabrar su fichaje por Orlando**: [Link](https://as.com/futbol/primera/griezmann-viaja-a-estados-unidos-para-apalabrar-su-fichaje-por-orlando-city-f202603-n/)
+- **Antoine Griezmann firma dos años con Orlando: fuentes**: [Link](https://espndeportes.espn.com/futbol/mls/nota/_/id/16477147/antoine-griezmann-firma-con-orlando-city-mls-q)
+- **Según se informa, el Orlando City estaría a punto de cerrar el fichaje de la estrella del Atlético de Madrid, Antoine Griezmann**: [Link](https://www.goal.com/es-ar/listados/segun-se-informa-el-orlando-city-estaria-a-punto-de-cerrar-el-fichaje-de-la-estrella-del-atletico-de-madrid-antoine-griezmann/blt8f62fa5244940939)
+
+
 ### la liga classement (N/A, Sun, 22 Mar 2026 14:50:00 -0700)
 
 - **Le classement de La Liga 2025/26 s'intensifie : le Real Madrid met la pression sur le Barça.**: [Link](https://www.vietnam.vn/fr/nong-bxh-la-liga-2025-26-moi-nhat-real-madrid-pha-hoi-nong-vao-gay-barca)
