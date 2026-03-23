@@ -1,3 +1,17 @@
+### senegal champion d afrique (N/A, Mon, 23 Mar 2026 12:00:00 -0700)
+
+- **CAN 2025 : « Le Maroc a gagné en droit, mais pas encore dans les esprits »**: [Link](https://www.lepoint.fr/afrique/can-2025-le-maroc-a-gagne-en-droit-mais-pas-encore-dans-les-esprits-ADVMGSOTRBDVLPUHXBRYWQTEIE/)
+- **L’abandon n’est pas une protestation: le TAS devrait confirmer le verdict de la CAF**: [Link](https://private-admin.medias24.com/chronique/labandon-nest-pas-une-protestation-le-tas-devrait-confirmer-le-verdict-de-la-caf/)
+- **Le Sénégal hésiterait à saisir le TAS : un dossier marocain jugé solide**: [Link](https://lionsdelatlas.ma/le-senegal-hesiterait-a-saisir-le-tas-un-dossier-marocain-juge-solide/)
+
+
+### match maroc (N/A, Mon, 23 Mar 2026 11:50:00 -0700)
+
+- **Message de félicitations**: [Link](https://frmf.ma/fr/%D8%AA%D9%87%D9%86%D8%A6%D8%A9-33/)
+- **AS FAR fait tomber Pyramids et file en demi-finales**: [Link](https://www.cafonline.com/fr/ligue-des-champions/news/as-far-fait-tomber-pyramids-et-file-en-demi-finales/)
+- **Ligue des Champions CAF : L'AS FAR Rabat élimine le Pyramids FC !**: [Link](https://www.beinsports.com/fr-fr/football/ligue-des-champions-de-la-caf/articles-video/ligue-des-champions-caf-l-as-far-rabat-%C3%A9limine-le-pyramids-fc-2026-03-21)
+
+
 ### rachida dati paris (N/A, Mon, 23 Mar 2026 10:20:00 -0700)
 
 
