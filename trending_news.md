@@ -1,3 +1,17 @@
+### محاكم (N/A, Tue, 24 Mar 2026 01:20:00 -0700)
+
+- **إلى أي مدى يمكن للديمقراطية أن تتحمَّل الصراع، سيدة بير؟**: [Link](https://www.deutschland.de/ar/topic/syast/almhkmt-aldstwryt-alathadyt-almham-aldymqratyt)
+- **برلمانيون يتورطون في المضاربة بأراضي المناطق الصناعية**: [Link](https://www.telegraphe.ma/%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86%D9%8A%D9%88%D9%86-%D9%8A%D8%AA%D9%88%D8%B1%D8%B7%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B6%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A8%D8%A3%D8%B1%D8%A7%D8%B6%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D9%8A%D8%A9)
+- **فضيحة العقار الصناعي.. برلمانيون يحولون مناطق الاستثمار إلى “ريع مقنن”**: [Link](https://maghrebtimes.ma/2026/03/23/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%A7%D9%84%D8%B9%D9%82%D8%A7%D8%B1-%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D8%B9%D9%8A-%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86%D9%8A%D9%88%D9%86-%D9%8A%D8%AD%D9%88%D9%84%D9%88/)
+
+
+### goud (N/A, Tue, 24 Mar 2026 00:00:00 -0700)
+
+- **Goudprijzen vandaag, 24 maart: weer in stijging.**: [Link](https://www.vietnam.vn/nl/gia-vang-hom-nay-24-3-bat-tang-tro-lai)
+- **Schiff denkt na over een goudprijs van 11.400 dollar nu de koersen dalen en de vooruitzichten op een stijging van 178% in twijfel worden getrokken**: [Link](https://news.bitcoin.com/nl/schiff-denkt-na-over-een-goudprijs-van-11400-dollar-nu-de-koersen-dalen-en-de-vooruitzichten-op-een-stijging-van-178-in-twijfel-worden-getrokken/)
+- **Ochtendbrief: uitverkoop van goud, Japanse inflatie koelt af, India verliest tempo**: [Link](https://invezz.com/nl/nieuws/2026/03/24/ochtendbrief-uitverkoop-van-goud-japanse-inflatie-koelt-af-india-verliest-tempo/)
+
+
 ### radio mars (N/A, Tue, 24 Mar 2026 00:10:00 -0700)
 
 - **بعد الخروج القاري… الوداد يطوي صفحة بنهاشم ويتجه إلى كارتيرون**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B1%D9%88%D8%AC-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B7%D9%88%D9%8A-%D8%B5%D9%81%D8%AD%D8%A9-%D8%A8-1719918.html)
