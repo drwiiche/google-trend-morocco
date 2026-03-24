@@ -1,3 +1,10 @@
+### accident avion new york (N/A, Tue, 24 Mar 2026 10:50:00 -0700)
+
+- **L’aéroport LaGuardia, à New York, fermé à la suite d’une collision mortelle entre un avion et un véhicule de secours sur une piste d’atterrissage**: [Link](https://www.lemonde.fr/international/article/2026/03/23/l-aeroport-de-laguardia-a-new-york-ferme-en-raison-d-une-collision-entre-un-avion-et-un-vehicule-de-secours-sur-une-piste-d-atterrissage_6673857_3211.html)
+- **«Il vivait son rêve»: les proches du pilote décédé dimanche dans une violente collision sont complètement dévastés**: [Link](https://www.journaldemontreal.com/2026/03/23/il-vivait-son-reve--les-proches-du-pilote-decede-dimanche-dans-une-violente-collision-sont-completement-devastes)
+- **USA: l'aéroport de New York LaGuardia fermé après une collision sur une piste**: [Link](https://medias24.com/agence-presse/usa-laeroport-de-new-york-laguardia-ferme-apres-une-collision-sur-une-piste/)
+
+
 ### طقس مراكش (N/A, Tue, 24 Mar 2026 12:50:00 -0700)
 
 - **أمطار وبرَد ورياح .. الأرصاد الجوية توضح أسباب تقلبات في المملكة**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A8%D8%B1%D9%8E%D8%AF-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D9%88%D8%B6%D8%AD-1720250.html)
