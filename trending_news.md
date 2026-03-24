@@ -1,3 +1,31 @@
+### radio mars (N/A, Tue, 24 Mar 2026 00:10:00 -0700)
+
+- **بعد الخروج القاري… الوداد يطوي صفحة بنهاشم ويتجه إلى كارتيرون**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B1%D9%88%D8%AC-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B7%D9%88%D9%8A-%D8%B5%D9%81%D8%AD%D8%A9-%D8%A8-1719918.html)
+- **بطل الإقالات.. مدرب أوروبي مرشح لقيادة الوداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B7%D9%84-%D8%A7%D9%84%D8%A7%D9%95%D9%82%D8%A7%D9%84%D8%A7%D8%AA--%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF/blt19c0fb73e676ae4b)
+- **الوداد الرياضي ينهي ارتباطه بالمدرب بن هاشم**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7%D9%87-%D8%A8%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D9%85/)
+
+
+### weather (N/A, Tue, 24 Mar 2026 00:10:00 -0700)
+
+- **Kauai Weather Forecast for March 24, 2026**: [Link](https://kauainownews.com/2026/03/23/kauai-weather-forecast-for-march-24-2026/)
+- **NOAA's National Weather Service eyes the cloud for next-gen applications**: [Link](https://www.noaa.gov/news-release/noaas-national-weather-service-eyes-cloud-for-next-gen-applications)
+- **RAW: FILE: NOAA LOOKING TO THE CLOUD FOR FORECAST DATA**: [Link](https://www.koamnewsnow.com/news/national-news/raw-file-noaa-looking-to-the-cloud-for-forecast-data/video_6d913f9e-8f3b-547a-adb5-332f6bd4012f.html)
+
+
+### حالة الطقس (N/A, Tue, 24 Mar 2026 00:00:00 -0700)
+
+- **الأرصاد تحذر من آثار المخفض الجوي القادم**: [Link](https://shehabnews.com/post/152959/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A2%D8%AB%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D8%AC%D9%88%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D9%85)
+- **توقعات الأرصاد: منخفض جوي مصحوب بأمطار غزيرة ورياح قوية على البلاد حتى الجمعة**: [Link](https://msdrnews.com/114606/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%85%D8%B5%D8%AD%D9%88%D8%A8-%D8%A8%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9)
+- **حالة الطقس: منخفض جوي وأمطار غزيرة منتصف الأسبوع**: [Link](https://www.arab48.com/%D9%85%D8%AD%D9%84%D9%8A%D8%A7%D8%AA/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3/2026/03/24/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D9%86%D8%AA%D8%B5%D9%81-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9)
+
+
+### طقس (N/A, Mon, 23 Mar 2026 23:50:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-77-1720075.html)
+- **اتفاق على انتشار مؤقت للأطر الصحية بأكادير بسبب مشروع إعادة بناء مستشفى الحسن الثاني**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B5%D8%AD%D9%88%D8%A8%D8%A9-%D8%A8%D8%AA-5/)
+- **نشرة إنذارية: زخات رعدية قوية مصحوبة بتساقط البرد بعدد من مناطق المملكة**: [Link](https://ar.le360.ma/societe/IAGM4ZFPZ5DMTJI2LDKQ4TPLZE/)
+
+
 ### bitcoin price (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
 
 - **Trump 48 Hours Deadline Countdown Puts Markets on Edge as Bitcoin Faces Sell-Off**: [Link](https://es.tradingview.com/news/coinpedia%3Ae54f42b23094b%3A0-trump-48-hours-deadline-countdown-puts-markets-on-edge-as-bitcoin-faces-sell-off/)
