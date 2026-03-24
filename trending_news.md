@@ -1,3 +1,10 @@
+### فؤاد الهاشم (N/A, Tue, 24 Mar 2026 06:40:00 -0700)
+
+- **كلب إلا ربع لكل مواطن".. مقال فؤاد الهاشم يثير غضبا في مصر"**: [Link](https://www.bbc.com/arabic/articles/c4gxpwy11qzo)
+- **معتز صلاح الدين يكتب: مصر أكبر من أي إساءة عابرة**: [Link](https://akhbarelyom.com/news/newdetails/4793805/1/%D9%85%D8%B9%D8%AA%D8%B2-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D9%8A%D9%83%D8%AA%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A3%D9%83%D8%A8%D8%B1-%D9%85%D9%86-%D8%A3%D9%8A-%D8%A5%D8%B3%D8%A7%D8%A1)
+- **زار محفل ماسوني ورحّلته السعودية. من هو فؤاد الهاشم الذي أساء لمصر؟**: [Link](https://www.elbalad.news/6910904)
+
+
 ### saint cloud (N/A, Tue, 24 Mar 2026 07:20:00 -0700)
 
 - **Tiercé. Les pronostics de L'Alsace pour mardi 24 mars - Prix de la Maison des Jardies**: [Link](https://www.lalsace.fr/actualite/2026/03/23/les-pronostics-de-l-alsace-pour-mardi-24-mars-prix-de-la-maison-des-jardies)
