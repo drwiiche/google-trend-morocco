@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Tue, 24 Mar 2026 15:00:00 -0700)
+
+- **Tutte le notizie e gli aggiornamenti del tennis mondiale**: [Link](https://www.diretta.it/news/tennis-miami-atp-singolare-tennis-tracker-in-campo-sinner-contro-michelsen-2-3/rVf5e5PG/)
+- **A Miami Sinner batte il record di Djokovic: “Felice ma non gioco per questo”**: [Link](https://www.spazio50.org/a-miami-sinner-batte-il-record-di-djokovic-felice-ma-non-gioco-per-questo/)
+- **La rinuncia al college e il carattere: chi è Alex Michelsen, il prossimo avversario di Sinner**: [Link](https://www.ubitennis.com/blog/2026/03/24/la-rinuncia-al-college-e-il-carattere-chi-e-alex-michelsen-il-prossimo-avversario-di-sinner/)
+
+
 ### باتريس كارتيرون (N/A, Tue, 24 Mar 2026 14:30:00 -0700)
 
 - **كرر ما فعله في مصر.. كارتيرون مدربًا للوداد المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%B1%D8%B1-%D9%85%D8%A7-%D9%81%D8%B9%D9%84%D9%87-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1--%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%85%D8%AF%D8%B1%D8%A8%D9%8B%D8%A7-%D9%84%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt6b6639f6488b3ef2)
