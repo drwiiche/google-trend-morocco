@@ -1,3 +1,10 @@
+### samsung galaxy a57 5g (N/A, Tue, 24 Mar 2026 02:50:00 -0700)
+
+- **Samsung Galaxy A37 and Galaxy A57 are already listed in South Africa - GSMArena.com news**: [Link](https://www.gsmarena.com/samsung_galaxy_a37_and_galaxy_a57_are_already_listed_in_south_africa-news-72073.php)
+- **Early Galaxy A57 5G Unboxing Confirms What You’ll (Not) Get in the Box**: [Link](https://www.androidheadlines.com/2026/03/early-galaxy-a57-5g-unboxing-confirms-what-youll-not-get-in-the-box.html)
+- **Galaxy A57 Leak Reveals Bigger Cooling And Slimmer Body**: [Link](https://www.findarticles.com/galaxy-a57-leak-reveals-bigger-cooling-and-slimmer-body/)
+
+
 ### quantum computing (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
 
 - **Sydney quantum computing firm nets $14m in gov’t funding**: [Link](https://www.techinasia.com/news/sydney-quantum-computing-firm-nets-14m-govt-funding)
