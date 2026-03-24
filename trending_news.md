@@ -1,3 +1,10 @@
+### giorgia meloni (N/A, Tue, 24 Mar 2026 01:30:00 -0700)
+
+- **Referendum defeat leaves Italy's Meloni looking more vulnerable**: [Link](https://www.bbc.com/news/articles/crl1ne8dj1eo)
+- **Giorgia Meloni’s big electoral setback in Italy**: [Link](https://www.economist.com/europe/2026/03/23/giorgia-melonis-big-electoral-setback-in-italy)
+- **Italians Reject Judicial Overhaul, Undermining Meloni**: [Link](https://www.nytimes.com/2026/03/23/world/europe/italy-referendum-judiciary-meloni.html)
+
+
 ### محاكم (N/A, Tue, 24 Mar 2026 01:20:00 -0700)
 
 - **إلى أي مدى يمكن للديمقراطية أن تتحمَّل الصراع، سيدة بير؟**: [Link](https://www.deutschland.de/ar/topic/syast/almhkmt-aldstwryt-alathadyt-almham-aldymqratyt)
