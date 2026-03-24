@@ -1,3 +1,10 @@
+### محمد باقر ذو القدر (N/A, Tue, 24 Mar 2026 09:20:00 -0700)
+
+- **الحرب على إيران مباشر.. طهران تختار خليفة للاريجاني وهجوم إيراني جديد على ديمونة**: [Link](https://www.aljazeera.net/news/liveblog/2026/3/23/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%A8%D8%AD%D8%AB)
+- **تعرف على محمد باقر ذو القدر سليل المؤسسة الأمنية بإيران**: [Link](https://www.aljazeera.net/encyclopedia/2026/3/24/%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D8%A7%D9%82%D8%B1-%D8%B0%D9%88-%D8%A7%D9%84%D9%82%D8%AF%D8%B1-%D8%B3%D9%84%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%A4%D8%B3%D8%B3%D8%A9)
+- **إيران تعين أحد غلاة المحافظين أمينا لمجلس الأمن القومي**: [Link](https://www.reuters.com/ar/world/EKQJAMLAZVLSXE442ZAA72HINQ-2026-03-24/)
+
+
 ### classement fifa maroc (N/A, Tue, 24 Mar 2026 09:00:00 -0700)
 
 - **L’abandon n’est pas une protestation: le TAS devrait confirmer le verdict de la CAF**: [Link](https://private-admin.medias24.com/chronique/labandon-nest-pas-une-protestation-le-tas-devrait-confirmer-le-verdict-de-la-caf/)
