@@ -1,3 +1,10 @@
+### quantum computing (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Sydney quantum computing firm nets $14m in gov’t funding**: [Link](https://www.techinasia.com/news/sydney-quantum-computing-firm-nets-14m-govt-funding)
+- **Silicon Quantum Computing Secures $14 Million Government Funding to Advance Quantum Technology**: [Link](https://www.cxodigitalpulse.com/silicon-quantum-computing-secures-14-million-government-funding-to-advance-quantum-technology/)
+- **Homemade chips: $20m boost for Aussie quantum leader**: [Link](https://www.canberratimes.com.au/story/9205556/homemade-chips-20m-boost-for-aussie-quantum-leader/)
+
+
 ### giorgia meloni (N/A, Tue, 24 Mar 2026 01:30:00 -0700)
 
 - **Referendum defeat leaves Italy's Meloni looking more vulnerable**: [Link](https://www.bbc.com/news/articles/crl1ne8dj1eo)
