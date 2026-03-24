@@ -1,3 +1,10 @@
+### patrice carteron (N/A, Tue, 24 Mar 2026 14:20:00 -0700)
+
+- **Le Wydad se sépare d’Amine Benhachem**: [Link](https://www.leconomiste.com/flash-infos/le-wydad-se-separe-damine-benhachem/)
+- **Foot : à l’amiable, Benhachem quitte la direction technique du Wydad de Casablanca**: [Link](https://mobile.telquel.ma/instant-t/2026/03/24/foot-a-lamiable-benhachem-quitte-la-direction-technique-du-wydad-de-casablanca_1980074/)
+- **Wydad de Casablanca : Patrice Carteron en passe de succéder à Benhachem**: [Link](https://fr.hespress.com/466817-wydad-de-casablanca-patrice-carteron-en-passe-de-succeder-a-benhachem.html)
+
+
 ### accident avion new york (N/A, Tue, 24 Mar 2026 10:50:00 -0700)
 
 - **L’aéroport LaGuardia, à New York, fermé à la suite d’une collision mortelle entre un avion et un véhicule de secours sur une piste d’atterrissage**: [Link](https://www.lemonde.fr/international/article/2026/03/23/l-aeroport-de-laguardia-a-new-york-ferme-en-raison-d-une-collision-entre-un-avion-et-un-vehicule-de-secours-sur-une-piste-d-atterrissage_6673857_3211.html)
