@@ -1,3 +1,10 @@
+### maroc u17 (N/A, Tue, 24 Mar 2026 07:00:00 -0700)
+
+- **Le Marocain Ibrahim Rabbaj élu homme du match face à la Tunisie (U17)**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%AC-%D8%A3%D8%AD%D8%B3%D9%86-%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A-%D9%84%D9%82/)
+- **Tournoi UNAF : tenants du titre de la CAN, les Lionceaux U17 entrent en scène ce mardi**: [Link](https://lionsdelatlas.ma/maroc-u17-tenants-du-titre-les-lionceaux-entrent-en-scene-ce-mardi-live/)
+- **L'équipe du Maroc U17 bat la Tunisie (2-0) en ouverture du tournoi de l'UNAF**: [Link](https://m.elbotola.com/fr/article/2026-03-24-14-28-582.html)
+
+
 ### محمد باقر ذو القدر (N/A, Tue, 24 Mar 2026 09:20:00 -0700)
 
 - **الحرب على إيران مباشر.. طهران تختار خليفة للاريجاني وهجوم إيراني جديد على ديمونة**: [Link](https://www.aljazeera.net/news/liveblog/2026/3/23/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%A8%D8%AD%D8%AB)
