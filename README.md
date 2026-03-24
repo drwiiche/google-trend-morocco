@@ -1,3 +1,10 @@
+### باتريس كارتيرون (N/A, Tue, 24 Mar 2026 14:30:00 -0700)
+
+- **كرر ما فعله في مصر.. كارتيرون مدربًا للوداد المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%B1%D8%B1-%D9%85%D8%A7-%D9%81%D8%B9%D9%84%D9%87-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1--%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%85%D8%AF%D8%B1%D8%A8%D9%8B%D8%A7-%D9%84%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt6b6639f6488b3ef2)
+- **"وينرز" ينتقد التسيير في نادي الوداد**: [Link](https://www.hespress.com/%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%A7%D9%84%D8%AA%D8%B3%D9%8A%D9%8A%D8%B1-%D9%81%D9%8A-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1720279.html)
+- **رسالة رياضية: بنهاشم**: [Link](https://assabah.ma/910393.html)
+
+
 ### patrice carteron (N/A, Tue, 24 Mar 2026 14:20:00 -0700)
 
 - **Le Wydad se sépare d’Amine Benhachem**: [Link](https://www.leconomiste.com/flash-infos/le-wydad-se-separe-damine-benhachem/)
