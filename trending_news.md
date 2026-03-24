@@ -1,3 +1,52 @@
+### bitcoin price (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Trump 48 Hours Deadline Countdown Puts Markets on Edge as Bitcoin Faces Sell-Off**: [Link](https://es.tradingview.com/news/coinpedia%3Ae54f42b23094b%3A0-trump-48-hours-deadline-countdown-puts-markets-on-edge-as-bitcoin-faces-sell-off/)
+- **Bitcoin, Silver Price Outlook: Downside Risks Paused on Positive Trump Comments**: [Link](https://www.forex.com/en-sg/news-and-analysis/bitcoin-silver-price-outlook-downside-risks-paused-on-positive-trump-comments-2026-03-23-18-18/)
+- **Bitcoin Hits Two-Week Low as War Tensions Fan Uncertainty**: [Link](https://www.bloomberg.com/news/articles/2026-03-23/bitcoin-hits-two-week-low-as-war-tensions-fan-uncertainty)
+
+
+### deep learning (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Integration of alternative fragmentation techniques into standard LC-MS workflows using a single deep learning model enhances proteome coverage**: [Link](https://www.nature.com/articles/s41592-026-03042-9)
+- **Neuro-Symbolic Fraud Detection: Catching Concept Drift Before F1 Drops (Label-Free)**: [Link](https://towardsdatascience.com/neuro-symbolic-fraud-detection-catching-concept-drift-before-f1-drops-label-free/)
+- **Neuro-Symbolic Model Spots Fraud Drift Before F1 Scores Fall**: [Link](https://the420.in/fidi-z-score-label-free-concept-drift-fraud-detection-ai/)
+
+
+### world cup 2026 (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Geopolitics may test the World Cup — a new book draws lessons from the past**: [Link](https://www.npr.org/2026/03/17/nx-s1-5750358/we-are-the-world-cup-book-review)
+- **World Cup 2026 Host Cities: USA, Mexico and Canada**: [Link](https://www.sofascore.com/news/world-cup-host-cities-full-guide-where-the-matches-will-be-played/)
+- **geopolitical tensions travel**: [Link](https://www.travelandtourworld.com/news/article/tag/geopolitical-tensions-travel/)
+
+
+### space exploration (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Study highlights value of physician-astronauts and their role in space exploration**: [Link](https://www.dawn.com/news/1984043)
+- **NASA Drives New Space Exploration Missions Focused on Science and Future Discoveries**: [Link](https://www.mixvale.com.br/2026/03/24/nasa-drives-new-space-exploration-missions-focused-on-science-and-future-discoveries-en/amp/)
+- **South Korea and NASA Expand Joint Research for L4 Deep Space Mission**: [Link](https://www.dongascience.com/en/news/76995)
+
+
+### climate change (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Groundbreaking study finds a natural way to fight climate change**: [Link](https://www.usatoday.com/story/news/weather/2026/03/22/climate-change-study-beavers-have-big-impact/89228448007/)
+- **Beavers are turning rivers into powerful carbon sinks**: [Link](https://www.sciencedaily.com/releases/2026/03/260322020245.htm)
+- **Beavers can turn streams into carbon stores – we measured how much**: [Link](https://theconversation.com/beavers-can-turn-streams-into-carbon-stores-we-measured-how-much-278489)
+
+
+### electric vehicles (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Opinion | Now Is the Perfect Time to Buy an Electric Vehicle**: [Link](https://www.nytimes.com/2026/03/23/opinion/electric-vehicles-solar-gas-prices.html)
+- **How gas prices might drive more people to switch to an EV**: [Link](https://www.vox.com/climate/483496/how-gas-prices-might-drive-more-people-to-switch-to-an-ev)
+- **US interest in electric vehicles surges as gas prices jump amid Iran war**: [Link](https://www.theguardian.com/business/2026/mar/21/us-gas-price-surge-iran-electric-cars)
+
+
+### artificial intelligence (N/A, Mon, 23 Mar 2026 23:10:00 -0700)
+
+- **Phonak AI-Powered Hearing Aids Recognized with 2026 Artificial Intelligence Excellence Awards**: [Link](https://uk.finance.yahoo.com/news/phonak-ai-powered-hearing-aids-050500342.html)
+- **Phonak AI-Powered Hearing Aids Recognized with 2026 Artificial Intelligence Excellence Awards**: [Link](https://www.wfxg.com/online_features/press_releases/phonak-ai-powered-hearing-aids-recognized-with-2026-artificial-intelligence-excellence-awards/article_0a558ce6-eaa9-5475-b9cf-cbfe97a8c0dc.html)
+- **Could Artificial Intelligence Finally Make Central Planning Work? – OpEd**: [Link](https://www.eurasiareview.com/24032026-could-artificial-intelligence-finally-make-central-planning-work-oped/)
+
+
 ### terafab tesla (N/A, Mon, 23 Mar 2026 21:20:00 -0700)
 
 - **Elon Musk says Tesla, xAI, SpaceX ‘Terafab’ to start in Austin**: [Link](https://www.bloomberg.com/news/articles/2026-03-22/elon-musk-says-tesla-xai-spacex-terafab-to-start-in-austin)
