@@ -1,3 +1,24 @@
+### terafab tesla (N/A, Mon, 23 Mar 2026 21:20:00 -0700)
+
+- **Elon Musk says Tesla, xAI, SpaceX ‘Terafab’ to start in Austin**: [Link](https://www.bloomberg.com/news/articles/2026-03-22/elon-musk-says-tesla-xai-spacex-terafab-to-start-in-austin)
+- **Musk announced the launch of the TERAFAB project**: [Link](https://logos-pres.md/en/news/musk-announced-the-launch-of-the-terafab-project/)
+- **How Tesla, SpaceX, and xAI Are Building a Galactic Civilization - Video**: [Link](https://www.cnet.com/videos/how-tesla-spacex-and-xai-are-building-a-galactic-civilization/)
+
+
+### kylian mbappé (N/A, Mon, 23 Mar 2026 17:50:00 -0700)
+
+- **Mbappe under suspicion after derby: his level of intensity is questioned**: [Link](https://www.marca.com/en/football/spanish-football/2026/03/23/69c143bde2704e89078b45ea.html)
+- **When a Real Madrid fan journalist goes after Kylian Mbappé**: [Link](https://foot-africa.com/en/news/when-a-real-madrid-fan-journalist-goes-after-kylian-mbappe-1136789/)
+- **Mbappé faces criticism after derby performance in Madrid**: [Link](https://en.africatopsports.com/tag/mbappe-faces-criticism-after-derby-performance-in-madrid/)
+
+
+### rayane bounida (N/A, Mon, 23 Mar 2026 16:20:00 -0700)
+
+- **Ajax-ster Rayane Bounida kiest Marokko boven België**: [Link](https://newsmonkey.be/ajax-ster-rayane-bounida-kiest-marokko-boven-belgie/)
+- **Kwal. EK U21 2027 - Romeo Vermant en Mike Penders keren terug bij de beloften, Rayane Bounida ontbreekt**: [Link](https://starsporttv.be/content/kwal-ek-u21-2027-romeo-vermant-en-mike-penders-keren-terug-bij-de-beloften-rayane-bounida-ontbreekt)
+- **Het begint stilaan een tendens te worden: ook deze spelers met dubbele nationaliteit kozen net als Rayane Bounida niet voor de Rode Duivels**: [Link](https://www.nieuwsblad.be/sport/voetbal/het-begint-stilaan-een-tendens-te-worden-ook-deze-spelers-met-dubbele-nationaliteit-kozen-net-als-rayane-bounida-niet-voor-de-rode-duivels/143823522.html)
+
+
 ### morocco vs (N/A, Mon, 23 Mar 2026 18:20:00 -0700)
 
 - **Rumors swirl over Hakimi’s reaction to Morocco’s AFCON title | Daily Sabah**: [Link](https://www.dailysabah.com/sports/football/rumors-swirl-over-hakimis-reaction-to-moroccos-afcon-title)
