@@ -1,3 +1,10 @@
+### مباراة المغرب اليوم (N/A, Tue, 24 Mar 2026 06:00:00 -0700)
+
+- **المغرب يغامر بالمستقبل.. وهبي يقود ثورة ما قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%BA%D8%A7%D9%85%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84--%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%AB%D9%88%D8%B1%D8%A9-%D9%85%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt5e8a3b1fa343af34)
+- **المنتخب الوطني لأقل من 23 سنة يواجه كوت ديفوار في مباراتين وديتين**: [Link](https://ar.telquel.ma/%D9%81%D9%8A%D9%81%D8%A7-%D9%88%D9%87%D8%A8%D9%8A-%D8%AE%D9%8A%D8%A7%D8%B1-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A-%D9%84%D8%AA%D9%81%D8%A7%D8%AF%D9%8A-%D8%A5%D8%B9%D8%A7%D8%AF/)
+- **عهد جديد**: [Link](https://assabah.ma/910389.html)
+
+
 ### samsung galaxy a57 5g (N/A, Tue, 24 Mar 2026 02:50:00 -0700)
 
 - **Samsung Galaxy A37 and Galaxy A57 are already listed in South Africa - GSMArena.com news**: [Link](https://www.gsmarena.com/samsung_galaxy_a37_and_galaxy_a57_are_already_listed_in_south_africa-news-72073.php)
