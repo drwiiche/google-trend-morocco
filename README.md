@@ -1,3 +1,24 @@
+### classement fifa maroc (N/A, Tue, 24 Mar 2026 09:00:00 -0700)
+
+- **L’abandon n’est pas une protestation: le TAS devrait confirmer le verdict de la CAF**: [Link](https://private-admin.medias24.com/chronique/labandon-nest-pas-une-protestation-le-tas-devrait-confirmer-le-verdict-de-la-caf/)
+- **Déclaration aux médias du Jury d’Appel de la CAF**: [Link](https://www.cafonline.com/fr/infos/declaration-aux-medias-du-jury-d-appel-de-la-caf/)
+- **CAN 2025: "Le peuple marocain est un peuple ami", l’ancien joueur sénégalais Khalilou Fadiga souhaite apaiser les tensions**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-peuple-marocain-est-un-peuple-ami-l-ancien-joueur-senegalais-khalilou-fadiga-souhaite-apaiser-les-tensions_AV-202603230411.html)
+
+
+### grégory doucet (N/A, Tue, 24 Mar 2026 08:10:00 -0700)
+
+- **Résultats municipales: Grégory Doucet élu maire de Lyon, Jean-Michel Aulas annonce un recours**: [Link](https://www.bfmtv.com/politique/elections/municipales/direct-resultats-municipales-2026-estimations-resultats-reactions-le-second-tour-des-elections-en-live_LN-202603220278.html)
+- **L'ancien président de l'OL Jean-Michel Aulas échoue à conquérir la mairie de Lyon et annonce déposer un recours**: [Link](https://www.msn.com/fr-fr/sport/football/l-ancien-pr%C3%A9sident-de-l-ol-jean-michel-aulas-%C3%A9choue-%C3%A0-conqu%C3%A9rir-la-mairie-de-lyon-et-annonce-d%C3%A9poser-un-recours/vi-AA1ZcsIg?cvid=69c1f1193a674e1b8bdf21b9a132ef44&ocid=hpmsn)
+- **Municipales 2026. Dans le Rhône : Doucet réélu, Aulas dépose un recours, LFI remporte trois villes, le RN en gagne une, les écologistes gagnent 6 arrondissements**: [Link](https://www.leprogres.fr/elections/2026/03/22/suivez-la-soiree-electorale-dans-le-rhone-qui-va-remporter-la-bataille-de-lyon-lfi-et-le-rn-vont-ils-decrocher-une-mairie-doucet-aulas-ecologistes)
+
+
+### توماس مولر (N/A, Tue, 24 Mar 2026 08:10:00 -0700)
+
+- **مستبعدًا إنجلترا.. مولر يرشح 5 منتخبات للظفر بكأس العالم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF%D9%8B%D8%A7-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7--%D9%85%D9%88%D9%84%D8%B1-%D9%8A%D8%B1%D8%B4%D8%AD-5-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D9%84%D9%84%D8%B8%D9%81%D8%B1-%D8%A8%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/blt8db57ed4d57e44d8)
+- **توماس مولر قلق قبل دخول تجربة التحليل التلفزيوني في كأس العالم**: [Link](https://www.hesport.com/432147-432147.html)
+- **اعتراف مفاجئ من مولر يسبق ظهوره الأول كمحلل رياضي**: [Link](https://24.ae/article/951866/%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%85%D9%86-%D9%85%D9%88%D9%84%D8%B1-%D9%8A%D8%B3%D8%A8%D9%82-%D8%B8%D9%87%D9%88%D8%B1%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%83%D9%85%D8%AD%D9%84%D9%84-%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A)
+
+
 ### فؤاد الهاشم (N/A, Tue, 24 Mar 2026 06:40:00 -0700)
 
 - **كلب إلا ربع لكل مواطن".. مقال فؤاد الهاشم يثير غضبا في مصر"**: [Link](https://www.bbc.com/arabic/articles/c4gxpwy11qzo)
