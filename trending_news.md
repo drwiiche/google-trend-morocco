@@ -1,3 +1,10 @@
+### ريان بونيدا (N/A, Wed, 25 Mar 2026 13:50:00 -0700)
+
+- **المغرب يخطف نجمين من بلجيكا قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B7%D9%81-%D9%86%D8%AC%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt673e9a6ef7f5ff73)
+- **بعد اختياره تمثيل المغرب.. مدرب بلجيكا يعلق على قرار بونيدا**: [Link](https://www.hesport.com/%D8%A8%D8%B9%D8%AF-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D9%87-%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%8A-432325.html)
+- **رسميا/ "الفيفا" يعلن تغيير الجنسية الرياضية لريان بونيدا من البلجيكية إلى المغربية**: [Link](https://m.elbotola.com/article/2026-03-25-18-49-673.html)
+
+
 ### rayane bounida (N/A, Wed, 25 Mar 2026 14:40:00 -0700)
 
 - **Groen licht van de FIFA: Ajax-parel hakt knoop door en maakt interlandswitch**: [Link](https://www.voetbalprimeur.nl/nieuws/2070874/rayane-bounida-maakt-interlandswitch-en-kiest-definitief-voor-marokko.html)
