@@ -1,3 +1,17 @@
+### طقس مراكش (N/A, Wed, 25 Mar 2026 12:50:00 -0700)
+
+- **زخات رعدية قوية في أقاليم بالمغرب**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2-1720674.html)
+- **طقس بارد مع زخات رعدية متوقعة اليوم الخميس**: [Link](https://ar.telquel.ma/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D8%A8%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3/)
+- **نشرة برتقالية تضع طنجة تحت تأثير رياح تصل إلى 80 كلم في الساعة**: [Link](https://tanja24.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A8%D8%B1%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%B7%D9%86%D8%AC%D8%A9-%D8%AA%D8%AD%D8%AA-%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%AA/)
+
+
+### sénégal maroc football (N/A, Wed, 25 Mar 2026 09:30:00 -0700)
+
+- **Exclusif. Finale CAN 2025 : Ce que révèlent les quatre rapports officiels du match**: [Link](https://medias24.com/2026/03/24/finale-can-2025-ce-que-revelent-les-quatre-rapports-du-match-1647171/)
+- **Classement FIFA : le forfait sénégalais entériné, le Maroc ancré en 8e position**: [Link](https://mobile.telquel.ma/instant-t/2026/03/24/classement-fifa-le-forfait-senegalais-enterine-le-maroc-ancre-en-8e-position_1980105/)
+- **Déclaration aux médias du Jury d’Appel de la CAF**: [Link](https://www.cafonline.com/fr/infos/declaration-aux-medias-du-jury-d-appel-de-la-caf/)
+
+
 ### loana (N/A, Wed, 25 Mar 2026 11:50:00 -0700)
 
 - **Révélée par « Loft Story », Loana est morte à 48 ans**: [Link](https://www.parismatch.com/People/revelee-par-loftstory-loana-est-morte-a-48-ans-266552)
