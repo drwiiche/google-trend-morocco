@@ -1,3 +1,10 @@
+### ريال مدريد للسيدات ضد نادي برشلونة للسيدات (N/A, Wed, 25 Mar 2026 10:40:00 -0700)
+
+- **ريال مدريد يواجه برشلونة في دوري أبطال أوروبا للسيدات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-2026-03-25)
+- **بث مباشر - مباراة ريال مدريد ضد برشلونة في دوري أبطال أوروبا للسيدات لحظة بلحظة - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/974554181861469-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A8%D9%84%D8%AD%D8%B8%D8%A9/)
+- **بث مباشر كلاسيكو السيدات.. كيفية مشاهدة مباراة ريال مدريد وبرشلونة في دوري الأبطال؟**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/)
+
+
 ### real madrid vs barcelona (N/A, Wed, 25 Mar 2026 10:20:00 -0700)
 
 - **Real Madrid - FC Barcelona: horario y dónde ver los cuartos de la Women’s Champions League**: [Link](https://elpais.com/deportes/futbol/2026-03-25/real-madrid-fc-barcelona-horario-y-donde-ver-los-cuartos-de-la-womens-champions-league.html)
