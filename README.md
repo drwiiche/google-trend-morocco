@@ -1,3 +1,10 @@
+### مباراة الدرك الملكي 2026 (N/A, Wed, 25 Mar 2026 03:50:00 -0700)
+
+- **القيادة العليا للدرك الملكي تفتح باب التسجيل لتوظيف 1500 تلميذ دركي برسم 2026**: [Link](https://agadirtv.ma/121336.html)
+- **رسمياً: فتح باب الترشيح لمباراة الدرك الملكي.. وهذه هي الشروط**: [Link](https://ecopress.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%B1%D8%B4%D9%8A%D8%AD-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AF%D8%B1%D9%83-%D8%A7/)
+- **رسمياً .. التسجيل في مباراة الدرك الملكي 2026 recrutement.gr.ma المغرب (1500 منصب)**: [Link](https://www.mojaznews.com/inscription-concours-gendarmerie-royale-maroc-2026-recrutement-gr-ma/)
+
+
 ### marca (N/A, Wed, 25 Mar 2026 04:30:00 -0700)
 
 - **Pogoda w Toruniu. Prognoza na czwartek 26 marca. Chłodny poranek i brak opadów**: [Link](https://pogoda.o2.pl/pogoda/pogoda-w-toruniu-prognoza-na-czwartek-26-marca-chlodny-poranek-i-brak-opadow-7268003502553184a)
