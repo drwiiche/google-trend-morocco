@@ -1,3 +1,10 @@
+### matches amicaux (N/A, Wed, 25 Mar 2026 12:00:00 -0700)
+
+- **Un mi-temps seulement pour Kylian Mbappé face au Brésil ?**: [Link](https://www.lequipe.fr/Football/Actualites/Un-mi-temps-seulement-pour-kylian-mbappe-face-au-bresil/1662366)
+- **Pourquoi l’équipe de France effraie la presse brésilienne**: [Link](https://www.footmercato.net/a5552888634844466632-pourquoi-lequipe-de-france-effraie-la-presse-bresilienne)
+- **Foot: France-Brésil, une affiche de prestige comme un avant-goût de Coupe du monde**: [Link](https://sport.le360.ma/coupe-du-monde/foot-france-bresil-une-affiche-de-prestige-comme-un-avant-gout-de-coupe-du-monde_ZBXHFCRHNFAVFO26OQ7DVVY4VM/)
+
+
 ### طقس مراكش (N/A, Wed, 25 Mar 2026 12:50:00 -0700)
 
 - **زخات رعدية قوية في أقاليم بالمغرب**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2-1720674.html)
