@@ -1,3 +1,10 @@
+### cpu (N/A, Wed, 25 Mar 2026 03:10:00 -0700)
+
+- **Announcing Arm AGI CPU: The silicon foundation for the agentic AI cloud era**: [Link](https://newsroom.arm.com/blog/introducing-arm-agi-cpu)
+- **The safest intermediary in the chip industry has embarked on the most dangerous path.**: [Link](https://www.binance.com/en/square/post/305219931973489)
+- **Lilbits: Arm's first silicon, Chuwi's not-quite-apology, and Pebble's Time 2 smartwatch ships soon**: [Link](https://liliputing.com/lilbits-arms-first-silicon-chuwis-not-quite-apology-and-pebbles-time-2-smartwatch-ships-soon/)
+
+
 ### ios 26.4 (N/A, Tue, 24 Mar 2026 20:00:00 -0700)
 
 - **macOS Tahoe 26.4 Now Available With Safari Compact Tab Bar, Battery Charge Limits and More**: [Link](https://www.macrumors.com/2026/03/24/macos-tahoe-26-4-now-available/)
