@@ -1,3 +1,17 @@
+### ios 26.4 (N/A, Tue, 24 Mar 2026 20:00:00 -0700)
+
+- **macOS Tahoe 26.4 Now Available With Safari Compact Tab Bar, Battery Charge Limits and More**: [Link](https://www.macrumors.com/2026/03/24/macos-tahoe-26-4-now-available/)
+- **iOS Bug May Have Made You a Worse Typist**: [Link](https://www.newser.com/story/385991/ios-bug-may-have-made-you-a-worse-typist.html)
+- **New Apple Emojis For 2026 - Apple iOS 26.4 Emoji Changelog**: [Link](https://blog.emojipedia.org/apple-ios-26-4-emoji-changelog/)
+
+
+### poupette kenza (N/A, Tue, 24 Mar 2026 17:50:00 -0700)
+
+- **Poupette Kenza renvoyée devant un tribunal correctionnel pour pratiques commerciales trompeuses et travail dissimulé**: [Link](https://www.leparisien.fr/faits-divers/poupette-kenza-renvoyee-devant-un-tribunal-correctionnel-pour-pratiques-commerciales-trompeuses-et-travail-dissimule-23-03-2026-PBINNYHUU5A5JJQBTBNYFKSFGU.php)
+- **Pourquoi l’influenceuse Poupette Kenza et son ex Allan étaient convoqués au tribunal judiciaire de Rouen**: [Link](https://www.paris-normandie.fr/id705732/article/2026-03-23/pourquoi-linfluenceuse-poupette-kenza-et-son-ex-allan-etaient-convoques-au)
+- **Poupette Kenza jugée cet été pour fraude et travail au noir**: [Link](https://stephanelarue.com/poupette-kenza-jugee-ete-fraude-travail-noir/)
+
+
 ### abdellatif jouahri (N/A, Tue, 24 Mar 2026 17:50:00 -0700)
 
 - **Créances en souffrance : Jouahri déterminé à débloquer les 100 MMDH piégés dans les bilans bancaires**: [Link](https://ledesk.ma/2026/03/24/creances-en-souffrance-jouahri-determine-a-debloquer-les-100-mmdh-pieges-dans-les-bilans-bancaires/)
