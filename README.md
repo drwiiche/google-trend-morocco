@@ -1,3 +1,17 @@
+### e senegal (N/A, Tue, 24 Mar 2026 16:40:00 -0700)
+
+- **CAF Appeal Board Media Statement**: [Link](https://www.cafonline.com/news/caf-appeal-board-media-statement/)
+- **AFCON final ruling could become major test for sports arbitration, study says**: [Link](https://en.hespress.com/134236-afcon-final-ruling-could-become-major-test-for-sports-arbitration-study-says.html)
+- **Institutional Authority Under Fire: CAF, FIFA, and the Challenges of Governing African Football**: [Link](https://www.moroccoworldnews.com/2026/03/283946/institutional-authority-under-fire-caf-fifa-and-the-challenges-of-governing-african-football/)
+
+
+### pétition gmt maroc (N/A, Tue, 24 Mar 2026 15:50:00 -0700)
+
+- **Après le passage à GMT+1, la pétition contre l’heure supplémentaire dépasse les 200.000 signatures**: [Link](https://mobile.telquel.ma/instant-t/2026/03/23/apres-le-passage-a-gmt1-la-petition-contre-lheure-supplementaire-frole-les-200-000-signatures_1979949/)
+- **Maroc: une pétition pour le retour de l'heure en temps universel recueille plus de 100 000 signatures**: [Link](https://www.rfi.fr/fr/afrique/20260322-maroc-une-p%C3%A9tition-pour-le-retour-de-l-heure-en-temps-universel-recueille-plus-de-100-000-signatures)
+- **GMT+1 : Plus de 300.000 signatures pour réclamer la fin**: [Link](https://www.leconomiste.com/flash-infos/gmt1-plus-de-300-000-signatures-pour-reclamer-la-fin/)
+
+
 ### jannik sinner (N/A, Tue, 24 Mar 2026 15:00:00 -0700)
 
 - **Tutte le notizie e gli aggiornamenti del tennis mondiale**: [Link](https://www.diretta.it/news/tennis-miami-atp-singolare-tennis-tracker-in-campo-sinner-contro-michelsen-2-3/rVf5e5PG/)
