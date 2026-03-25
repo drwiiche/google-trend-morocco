@@ -1,3 +1,10 @@
+### abdellatif jouahri (N/A, Tue, 24 Mar 2026 17:50:00 -0700)
+
+- **Créances en souffrance : Jouahri déterminé à débloquer les 100 MMDH piégés dans les bilans bancaires**: [Link](https://ledesk.ma/2026/03/24/creances-en-souffrance-jouahri-determine-a-debloquer-les-100-mmdh-pieges-dans-les-bilans-bancaires/)
+- **Crédits bloqués : Abdellatif Jouahri veut libérer les banques**: [Link](https://www.leconomiste.com/flash-infos/credits-bloques-abdellatif-jouahri-veut-liberer-les-banques/)
+- **Créances en souffrance : Ouahbi appelle à un dialogue structuré entre banques et justice**: [Link](https://mobile.telquel.ma/instant-t/2026/03/24/creances-en-souffrance-ouahbi-appelle-a-un-dialogue-structure-entre-banques-et-justice_1980186/)
+
+
 ### e senegal (N/A, Tue, 24 Mar 2026 16:40:00 -0700)
 
 - **CAF Appeal Board Media Statement**: [Link](https://www.cafonline.com/news/caf-appeal-board-media-statement/)
