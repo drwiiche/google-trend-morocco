@@ -1,3 +1,24 @@
+### loana (N/A, Wed, 25 Mar 2026 11:50:00 -0700)
+
+- **Révélée par « Loft Story », Loana est morte à 48 ans**: [Link](https://www.parismatch.com/People/revelee-par-loftstory-loana-est-morte-a-48-ans-266552)
+- **L’icône de la téléréalité Loana retrouvée morte à son domicile à Nice, une enquête ouverte**: [Link](https://www.nicematin.com/culture/people/icone-de-la-telerealite-en-france-loana-retrouvee-morte-a-son-domicile-a-nice-10674318)
+- **"On l'a laissée tomber" : l'hommage bouleversant de Benjamin Castaldi à l'annonce de la mort de Loana**: [Link](https://www.femmeactuelle.fr/actu/news-actu/on-l-a-laissee-tomber-l-hommage-bouleversant-de-benjamin-castaldi-a-l-annonce-de-la-mort-de-loana-2205820)
+
+
+### gims (N/A, Wed, 25 Mar 2026 11:50:00 -0700)
+
+- **Alerte RDC Le chanteur Gims arrêté à son arrivée à Paris**: [Link](https://www.africaintelligence.fr/afrique-centrale/2026/03/25/le-chanteur-gims-arrete-a-son-arrivee-a-paris,110688865-art)
+- **Blanchiment d’argent : le chanteur Gims arrêté à son arrivée en France**: [Link](https://ledesk.ma/encontinu/blanchiment-dargent-le-chanteur-gims-arrete-a-son-arrivee-en-france/)
+- **Le rappeur Gims en garde à vue dans une affaire de blanchiment en bande organisée**: [Link](https://www.lefigaro.fr/faits-divers/le-rappeur-gims-en-garde-a-vue-dans-une-affaire-de-blanchiment-en-bande-organisee-20260325)
+
+
+### david lisnard (N/A, Wed, 25 Mar 2026 11:40:00 -0700)
+
+- **Municipales 2026 : « Je pense que je n’ai plus rien à faire chez LR », annonce David Lisnard, en désaccord avec la stratégie du parti pour la présidentielle. Retrouvez notre direct**: [Link](https://www.lemonde.fr/politique/live/2026/03/25/en-direct-municipales-2026-je-pense-que-je-n-ai-plus-rien-a-faire-chez-lr-annonce-david-lisnard-maire-de-cannes-en-desaccord-sur-la-strategie-du-parti-pour-la-presidentielle_6673595_823448.html)
+- **"Aucune lisibilité, aucune cohérence": David Lisnard "pense" n'avoir plus rien à faire chez les Républicains**: [Link](https://www.bfmtv.com/politique/les-republicains/aucune-lisibilite-aucune-coherence-david-lisnard-pense-n-avoir-plus-rien-a-faire-chez-les-republicains_AN-202603250278.html)
+- **EN DIRECT - «Le bureau des Républicains d’hier était un non-sens, avec un vote truqué», lance David Lisnard, qui va «demander à voir Bruno Retailleau»**: [Link](https://www.lefigaro.fr/politique/en-direct-municipales-presidentielle-lr-ps-rn-lfi-20260325)
+
+
 ### ريال مدريد للسيدات ضد نادي برشلونة للسيدات (N/A, Wed, 25 Mar 2026 10:40:00 -0700)
 
 - **ريال مدريد يواجه برشلونة في دوري أبطال أوروبا للسيدات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-2026-03-25)
