@@ -1,3 +1,15 @@
+### élections municipales paris rachida dati (N/A, Wed, 25 Mar 2026 13:40:00 -0700)
+
+
+
+
+### السنغال (N/A, Wed, 25 Mar 2026 13:20:00 -0700)
+
+- **لبت طلب السنغال.. أول بيان للمحكمة الرياضية بشأن أزمة نهائي الكان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A8%D8%AA-%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84--%D8%A7%D9%94%D9%88%D9%84-%D8%A8%D9%8A%D8%A7%D9%86-%D9%84%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86/blt45b340e4603518fd)
+- **السنغال تتقدم باستئناف لدى "الطاس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%AA%D9%82%D8%AF%D9%85-%D8%A8%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D9%84%D8%AF%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-1720855.html)
+- **بيان إعلامي للجنة الاستئناف للاتحاد الإفريقي لكرة القدم "الكاف"**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%A7%D9%86-%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D9%84%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%83%D8%A7%D9%81/)
+
+
 ### matches amicaux (N/A, Wed, 25 Mar 2026 12:00:00 -0700)
 
 - **Un mi-temps seulement pour Kylian Mbappé face au Brésil ?**: [Link](https://www.lequipe.fr/Football/Actualites/Un-mi-temps-seulement-pour-kylian-mbappe-face-au-bresil/1662366)
