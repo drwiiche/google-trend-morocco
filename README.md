@@ -1,3 +1,10 @@
+### عثمان معما (N/A, Wed, 25 Mar 2026 00:50:00 -0700)
+
+- **خبر سار للناخب الوطني الجديد**: [Link](https://ar.lesiteinfo.com/sport/%D8%AE%D8%A8%D8%B1-%D8%B3%D8%A7%D8%B1-%D9%84%D9%84%D9%86%D8%A7%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-992279.html)
+- **نانط يتحدى واتفورد من أجل الموهبة عثمان معمّا**: [Link](https://www.almountakhab.com/node/16223732)
+- **خبر سار في معسكر الأسود… عودة مفاجئة لنجم مغربي تُنعش آمال محمد وهبي**: [Link](https://www.elhadat24.com/sport/275455/)
+
+
 ### marrakech comedy festival (N/A, Wed, 25 Mar 2026 06:40:00 -0700)
 
 - **Le Marrakech du rire fait son retour, mais sans Jamel Debbouze**: [Link](https://www.huffingtonpost.fr/culture/article/le-marrakech-du-rire-fait-son-retour-mais-sans-jamel-debbouze_261865.html)
