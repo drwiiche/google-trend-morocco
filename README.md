@@ -1,3 +1,10 @@
+### marca (N/A, Wed, 25 Mar 2026 04:30:00 -0700)
+
+- **Pogoda w Toruniu. Prognoza na czwartek 26 marca. Chłodny poranek i brak opadów**: [Link](https://pogoda.o2.pl/pogoda/pogoda-w-toruniu-prognoza-na-czwartek-26-marca-chlodny-poranek-i-brak-opadow-7268003502553184a)
+- **29 marca odbędzie się Piano Day. Posłuchaj muzyki na żywo w… tramwaju**: [Link](https://www.mpk.poznan.pl/29-marca-odbedzie-sie-piano-day-posluchaj-muzyki-na-zywo-w-tramwaju/)
+- **Szczecin zaprezentuje się podczas Piano Day**: [Link](https://24kurier.pl/aktualnosci/kultura/szczecin-zaprezentuje-sie-podczas-piano-day/)
+
+
 ### cpu (N/A, Wed, 25 Mar 2026 03:10:00 -0700)
 
 - **Announcing Arm AGI CPU: The silicon foundation for the agentic AI cloud era**: [Link](https://newsroom.arm.com/blog/introducing-arm-agi-cpu)
