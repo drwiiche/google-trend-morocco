@@ -1,3 +1,10 @@
+### tariq ramadan (N/A, Wed, 25 Mar 2026 14:30:00 -0700)
+
+- **Tariq Ramadan, absent de son procès, a été condamné à dix-huit ans de prison pour viols**: [Link](https://www.lemonde.fr/societe/article/2026/03/25/tariq-ramadan-condamne-par-defaut-a-dix-huit-ans-de-reclusion-criminelle_6674275_3224.html)
+- **Tariq Ramadan condamné par défaut à 18 ans de prison pour viols**: [Link](https://www.20minutes.fr/justice/4215066-20260325-islamologue-tariq-ramadan-condamne-18-ans-reclusion-criminelle-viols)
+- **L'islamologue Tariq Ramadan condamné à 18 ans de prison pour des viols sur trois femmes**: [Link](https://www.france24.com/fr/france/20260325-l-islamologue-tariq-ramadan-condamn%C3%A9-par-d%C3%A9faut-%C3%A0-18-ans-de-r%C3%A9clusion-criminelle-pour-viols)
+
+
 ### ريان بونيدا (N/A, Wed, 25 Mar 2026 13:50:00 -0700)
 
 - **المغرب يخطف نجمين من بلجيكا قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B7%D9%81-%D9%86%D8%AC%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt673e9a6ef7f5ff73)
