@@ -1,3 +1,24 @@
+### marrakech comedy festival (N/A, Wed, 25 Mar 2026 06:40:00 -0700)
+
+- **Le Marrakech du rire fait son retour, mais sans Jamel Debbouze**: [Link](https://www.huffingtonpost.fr/culture/article/le-marrakech-du-rire-fait-son-retour-mais-sans-jamel-debbouze_261865.html)
+- **Avec Malik Bentalha en maître de cérémonie, Marrakech s’offre un Comedy Festival dès 2026**: [Link](https://medias24.com/2026/03/25/avec-malik-bentalha-en-maitre-de-ceremonie-marrakech-soffre-un-comedy-festival-des-2026-1647892/)
+- **Humour : Malik Bentalha et Karim Debbouze lancent le Marrakech Comedy Festival**: [Link](https://mobile.telquel.ma/instant-t/2026/03/25/humour-malik-bentalha-et-karim-debbouze-lancent-le-marrakech-comedy-festival_1980368/)
+
+
+### leonid radvinsky deces (N/A, Wed, 25 Mar 2026 05:50:00 -0700)
+
+- **Leonid Radvinsky, propriétaire d'OnlyFans, décède à 43 ans**: [Link](https://www.bbc.com/afrique/articles/cdj73vp7zljo)
+- **Le milliardaire à la tête du plus grand empire pornographique du monde est décédé.**: [Link](https://www.vietnam.vn/fr/ty-phu-dung-sau-de-che-khieu-dam-lon-nhat-the-gioi-qua-doi)
+- **Le propriétaire de la plate-forme pour adultes Only Fans est décédé à 43 ans**: [Link](https://www.capital.fr/entreprises-marches/le-proprietaire-de-la-plate-forme-pour-adultes-only-fans-est-decede-a-43-ans-1524947)
+
+
+### brazil vs france (N/A, Tue, 24 Mar 2026 21:20:00 -0700)
+
+- **Brazil lineup vs. France: Predicted XI for international friendly as Joao Pedro, Matheus Cunha start**: [Link](https://www.sportsmole.co.uk/football/brazil/predicted-lineups/pedro-and-cunha-lead-the-line-predicted-brazil-xi-vs-france_594409.html)
+- **Mass. preparing for World Cup games ahead of Thursday's exhibition match**: [Link](https://www.wcvb.com/article/massachusetts-preparing-world-cup-matches/70836400)
+- **Ever wonder why some soccer games are called 'friendlies?' Here's why.**: [Link](https://www.patriotledger.com/story/sports/pro/2026/03/25/explaining-the-meaning-of-friendlies-cap-and-internationals-in-soccer/89249633007/)
+
+
 ### resultat quinte (N/A, Wed, 25 Mar 2026 06:10:00 -0700)
 
 - **6 Olympic Message - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-6-olympic-message-129361.html)
