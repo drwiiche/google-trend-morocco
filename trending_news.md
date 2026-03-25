@@ -1,3 +1,10 @@
+### rayane bounida (N/A, Wed, 25 Mar 2026 14:40:00 -0700)
+
+- **Groen licht van de FIFA: Ajax-parel hakt knoop door en maakt interlandswitch**: [Link](https://www.voetbalprimeur.nl/nieuws/2070874/rayane-bounida-maakt-interlandswitch-en-kiest-definitief-voor-marokko.html)
+- **Beloftecoach Gill Swerts selecteert Romeo Vermant en Mike Penders voor cruciaal EK-kwalificatieduel, Rayane Bounida ontbreekt in selectie**: [Link](https://www.nieuwsblad.be/sport/beloftecoach-gill-swerts-selecteert-romeo-vermant-en-mike-penders-voor-cruciaal-ek-kwalificatieduel-rayane-bounida-ontbreekt-in-selectie/143797558.html)
+- **Geen Bounida bij Belgische beloften, wel Smets, Vermeeren en Vermant**: [Link](https://www.voetbalprimeur.be/nieuws/2069203/geen-bounida-bij-belgische-beloften-wel-vermeeren-en-vermant.html)
+
+
 ### élections municipales paris rachida dati (N/A, Wed, 25 Mar 2026 13:40:00 -0700)
 
 
