@@ -1,3 +1,17 @@
+### virements bancaires (N/A, Thu, 26 Mar 2026 10:10:00 -0700)
+
+- **Tous les virements, même les salaires, vont être bloqués pendant 4 jours dans toutes les banques : c'est ce week-end qu'il faut agir**: [Link](https://www.journaldunet.com/patrimoine/finances-personnelles/1548669-hf1-banques-fermeture-4-jours/)
+- **Pourquoi les virements bancaires seront bloqués pendant plusieurs jours début avril ?**: [Link](https://www.larepubliquedespyrenees.fr/economie/economie/pourquoi-les-virements-bancaires-seront-bloques-pendant-plusieurs-jours-debut-avril-28227259.php)
+- **Pâques 2026 : pourquoi vos virements risquent de ne pas arriver à temps début avril**: [Link](https://www.lamontagne.fr/paris-75000/economie/paques-2026-pourquoi-vos-virements-risquent-de-ne-pas-arriver-a-temps-debut-avril_14943399/)
+
+
+### france (N/A, Thu, 26 Mar 2026 09:10:00 -0700)
+
+- **L'Afrique du Sud écartée du G7 en France sous pression américaine, selon Pretoria**: [Link](https://medias24.com/agence-presse/lafrique-du-sud-ecartee-du-g7-en-france-sous-pression-americaine-selon-pretoria/)
+- **Froid dans les relations Pretoria-Washington, pas de péril sur les finances des 2 Etats**: [Link](https://afriquinfos.com/froid-dans-les-relations-pretoria-washington-pas-de-peril-sur-les-finances-des-2-etats/)
+- **Inde, Corée du Sud, Brésil et Kenya invités au sommet du G7 en juin-Elysée**: [Link](https://www.boursier.com/actualites/reuters/inde-coree-du-sud-bresil-et-kenya-invites-au-sommet-du-g7-en-juin-elysee-414839.html)
+
+
 ### harry potter hbo (N/A, Thu, 26 Mar 2026 08:40:00 -0700)
 
 - **Harry Potter TV reboot will be ‘biggest thing’ HBO has ever done**: [Link](https://www.ft.com/content/9bf00689-f7c9-4572-aac5-906851c2b650?syn-25a6b1a6=1)
