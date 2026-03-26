@@ -1,3 +1,17 @@
+### هبة بريس (N/A, Thu, 26 Mar 2026 00:00:00 -0700)
+
+- **لبت طلب السنغال.. أول بيان للمحكمة الرياضية بشأن أزمة نهائي الكان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A8%D8%AA-%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84--%D8%A7%D9%94%D9%88%D9%84-%D8%A8%D9%8A%D8%A7%D9%86-%D9%84%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86/blt45b340e4603518fd)
+- **السنغال تتقدم باستئناف لدى "الطاس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%AA%D9%82%D8%AF%D9%85-%D8%A8%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D9%84%D8%AF%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-1720855.html)
+- **كل الطرق تؤدي إلى مركب الأمير مولاي عبد الله… نهائي "الحلم"**: [Link](https://ar.telquel.ma/%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%8A%D8%B7%D8%B1%D9%82-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3/)
+
+
+### حالة الطقس اليوم (N/A, Wed, 25 Mar 2026 23:20:00 -0700)
+
+- **أمطار رعدية مع ضربات برق.. الأرصاد تكشف حالة الطقس وأمكان سقوطها اليوم**: [Link](https://www.almasryalyoum.com/news/details/4230011)
+- **مصر: منخفض قطبي يضرب البلاد بعواصف وأمطار رعدية غزيرة**: [Link](https://arabic.cnn.com/miscellaneous/article/2026/03/25/egypt-polar-depression-hits-the-country-with-storms-heavy-thunderstorms)
+- **عاصفة ترابية وأمطار رعدية تضرب البلاد.. رياح تصل لـ50 كم في الساعة وتحذير من انخفاض الرؤية - صوت الأمة**: [Link](https://www.akhbarak.net/news/details/48812585/1/%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%AA%D8%B5%D9%84-%D9%84%D9%8050-%D9%83%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%A7%D9%84%D8%B1%D8%A4%D9%8A%D8%A9-%D8%B5%D9%88%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%A9)
+
+
 ### météo (N/A, Wed, 25 Mar 2026 23:20:00 -0700)
 
 - **Météo : neige, grésil, orages et rafales de vent au menu de ce jeudi**: [Link](https://www.lesoir.be/736991/article/2026-03-26/meteo-neige-gresil-orages-et-rafales-de-vent-au-menu-de-ce-jeudi)
