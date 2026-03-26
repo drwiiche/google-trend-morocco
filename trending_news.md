@@ -1,3 +1,17 @@
+### classroom (N/A, Thu, 26 Mar 2026 00:50:00 -0700)
+
+- **First lady Melania Trump enters White House summit with walking, talking humanoid robot**: [Link](https://abcnews.com/Politics/lady-melania-trump-enters-white-house-summit-walking/story?id=131403886)
+- **Meet Figure AI: The company behind the humanoid robot hosted by Melania Trump**: [Link](https://www.cnbc.com/2026/03/26/figure-ai-the-robotics-company-hosted-by-melania-trump.html)
+- **Melania Trump brings an AI-powered robot to the White House — and says there could be more of them soon**: [Link](https://www.cnn.com/2026/03/25/politics/melania-trump-ai-robot)
+
+
+### france foot (N/A, Wed, 25 Mar 2026 16:20:00 -0700)
+
+- **"Nous sommes très heureux de transporter l’équipe de France": les confidences du patron de la nouvelle compagnie aérienne des Bleus**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/nous-sommes-tres-heureux-d-accompagner-l-equipe-de-france-les-confidences-du-patron-de-la-nouvelle-compagnie-aerienne-des-bleus_AN-202603260029.html)
+- **Les images de la visite de Léon Marchand aux Bleus avant leur match face au Brésil**: [Link](https://www.lequipe.fr/Football/Actualites/Leon-marchand-a-rendu-visite-a-l-equipe-de-france-avant-son-match-amical-face-au-bresil/1662632)
+- **Un parfum de Mondial**: [Link](https://www.fff.fr/article/16493-un-parfum-de-mondial.html)
+
+
 ### هبة بريس (N/A, Thu, 26 Mar 2026 00:00:00 -0700)
 
 - **لبت طلب السنغال.. أول بيان للمحكمة الرياضية بشأن أزمة نهائي الكان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A8%D8%AA-%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84--%D8%A7%D9%94%D9%88%D9%84-%D8%A8%D9%8A%D8%A7%D9%86-%D9%84%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86/blt45b340e4603518fd)
