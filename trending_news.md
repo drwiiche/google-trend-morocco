@@ -1,3 +1,10 @@
+### harry potter hbo (N/A, Thu, 26 Mar 2026 08:40:00 -0700)
+
+- **Harry Potter TV reboot will be ‘biggest thing’ HBO has ever done**: [Link](https://www.ft.com/content/9bf00689-f7c9-4572-aac5-906851c2b650?syn-25a6b1a6=1)
+- **A New Generation Heads to Hogwarts in HBO’s First "Harry Potter" Trailer**: [Link](https://www.motionpictures.org/2026/03/a-new-generation-heads-to-hogwarts-in-hbos-first-harry-potter-trailer/)
+- **Lox Pratt reveals complex Draco Malfoy in HBO’s official Harry Potter debut**: [Link](https://artthreat.net/13003-95132-lox-pratt-reveals-complex-draco-malfoy-in-hbo-s-official-harry-potter-debut/)
+
+
 ### lalla hasnaa (N/A, Thu, 26 Mar 2026 06:20:00 -0700)
 
 - **S.A.R. la Princesse Lalla Hasnaa représente le Maroc au sommet "Fostering the Future Together" à Washington**: [Link](https://maroc-diplomatique.net/s-a-r-la-princesse-lalla-hasnaa-represente-le-maroc-au-sommet-fostering-the-future-together-a-washington/)
