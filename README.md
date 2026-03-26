@@ -1,3 +1,10 @@
+### bounida (N/A, Wed, 25 Mar 2026 15:30:00 -0700)
+
+- **Groen licht van de FIFA: Ajax-parel hakt knoop door en maakt interlandswitch**: [Link](https://www.voetbalprimeur.nl/nieuws/2070874/rayane-bounida-maakt-interlandswitch-en-kiest-definitief-voor-marokko.html)
+- **Ajax-talent Bounida verkiest Marokko boven België: 'Er kwam een brief binnen'**: [Link](https://www.nu.nl/voetbal/6390356/ajax-talent-bounida-verkiest-marokko-boven-belgie-er-kwam-een-brief-binnen.html)
+- **Rayane Bounida ziet WK plots stuk dichterbij komen**: [Link](https://www.voetbalzone.nl/nieuws/rayane-bounida-ontvangt-heel-goed-nieuws-uit-marokko/blt1e76d8099e364986)
+
+
 ### tariq ramadan (N/A, Wed, 25 Mar 2026 14:30:00 -0700)
 
 - **Tariq Ramadan, absent de son procès, a été condamné à dix-huit ans de prison pour viols**: [Link](https://www.lemonde.fr/societe/article/2026/03/25/tariq-ramadan-condamne-par-defaut-a-dix-huit-ans-de-reclusion-criminelle_6674275_3224.html)
