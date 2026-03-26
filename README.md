@@ -1,3 +1,10 @@
+### rodri (N/A, Thu, 26 Mar 2026 03:30:00 -0700)
+
+- **Rodri: “El Madrid no es una puerta cerrada para mí”**: [Link](https://as.com/futbol/internacional/rodri-el-madrid-no-es-una-puerta-cerrada-para-mi-f202603-n/)
+- **"No puedes renunciar a jugar en el Real Madrid"**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20260326/1004159650/puedes-renunciar-jugar-real-madrid.html)
+- **Rodri asegura que no hay riña alguna con Vinicius Júnior tras aquella pelea por el Balón de Oro**: [Link](https://www.beinsports.com/es-us/football/premier-league/articles/rodri-asegura-que-no-hay-ri%C3%B1a-alguna-con-vinicius-j%C3%BAnior-tras-aquella-pelea-por-el-bal%C3%B3n-de-oro-2026-03-26)
+
+
 ### nba (N/A, Wed, 25 Mar 2026 19:30:00 -0700)
 
 - **NBA Board of Governors approves exploration of expansion to Seattle, Las Vegas**: [Link](https://www.nba.com/news/nba-board-of-governors-exploration-seattle-las-vegas-expansion)
