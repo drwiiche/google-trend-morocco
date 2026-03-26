@@ -1,3 +1,38 @@
+### مباريات اليوم (N/A, Thu, 26 Mar 2026 12:10:00 -0700)
+
+- **مباريات اليـوم**: [Link](https://www.emaratalyoum.com/sports/local/2026-03-26-1.2028652)
+- **نتائج مباريات الأربعاء 25 مارس 2026**: [Link](https://www.rosaelyoussef.com/1382326)
+- **نتائج مباريات كرة القدم اليوم، 20 مارس**: [Link](https://www.vietnam.vn/ar/ket-qua-bong-da-hom-nay-20-3)
+
+
+### italie – irlande du nord (N/A, Thu, 26 Mar 2026 12:10:00 -0700)
+
+- **L’Italie redoute un énième fiasco, la presse salive avant le choc France-Brésil**: [Link](https://www.footmercato.net/a3327053256368481873-litalie-redoute-un-enieme-fiasco-la-presse-salive-avant-le-choc-france-bresil)
+- **Mondial 2026: l’Italie et Gattuso doivent chasser les fantômes de 2018 et 2022**: [Link](https://sport.le360.ma/coupe-du-monde/mondial-2026-litalie-et-gattuso-doivent-chasser-les-fantomes-de-2018-et-2022_GUYRESVVKZDKHA57ZT4LBTCNXQ/)
+- **« Manquer une troisième qualification consécutive pour la Coupe du monde aurait un impact stratégique et symbolique profond pour le pays » : l’Italie joue très très gros contre l’Irlande du Nord**: [Link](https://onefootball.com/en/news/manquer-une-troisieme-qualification-consecutive-pour-la-coupe-du-monde-aurait-un-impact-strategique-et-symbolique-profond-pour-le-pays-litalie-joue-tres-tres-gros-contre-lirlande-du-nord-42618623)
+
+
+### maroc u23 (N/A, Thu, 26 Mar 2026 10:50:00 -0700)
+
+- **Match amical U23: composition du Maroc face à la Côte d’Ivoire**: [Link](https://frmf.ma/fr/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-23-%D8%B3%D9%86%D8%A9-%D8%A7%D9%85%D8%A7-7/)
+- **Lions U23 : Jamal Aït Ben Idir sur le banc contre la Côte d’Ivoire**: [Link](https://lionsdelatlas.ma/lions-u23-jamal-ait-ben-idir-sur-le-banc-contre-la-cote-divoire/)
+- **Foot/U23: Double confrontation amicale du Maroc face à la Côte d’Ivoire les 26 et 30 mars**: [Link](https://maroc-diplomatique.net/foot-u23-double-confrontation-amicale-du-maroc-face-a-la-cote-divoire-les-26-et-30-mars/)
+
+
+### فرنسا ضد البرازيل (N/A, Thu, 26 Mar 2026 10:40:00 -0700)
+
+- **مباشر مباراة فرنسا والبرازيل الودية.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/26/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%88%D8%AF%D9%8A%D8%A9-%D9%83%D8%B1%D8%A9)
+- **التشكيل الرسمي.. مبابي وديمبلي ضد فينيسيوس ورافينيا في موقعة فرنسا والبرازيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D8%AF%D9%8A%D9%85%D8%A8%D9%84%D9%8A-%D8%B6%D8%AF-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84/blt62bdfe0ecf235051)
+- **قناة مفتوحة تنقل مباراة البرازيل ضد فرنسا استعدادا للمونديال**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/1510127/%D9%82%D9%86%D8%A7%D8%A9-%D9%85%D9%81%D8%AA%D9%88%D8%AD%D8%A9-%D8%AA%D9%86%D9%82%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%B6%D8%AF-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### مباراة المغرب اليوم (N/A, Thu, 26 Mar 2026 10:30:00 -0700)
+
+- **"ليست عادية".. كيف علقت الصحافة الإكوادورية على مواجهة المغرب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3%D8%AA-%D8%B9%D8%A7%D8%AF%D9%8A%D8%A9--%D9%83%D9%8A%D9%81-%D8%B9%D9%84%D9%82%D8%AA-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt69e0ec4929bdf7a5)
+- **نخبة الإكوادور تمتحن "أسود الأطلس"**: [Link](https://www.hespress.com/%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1-%D8%AA%D9%85%D8%AA%D8%AD%D9%86-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1721230.html)
+- **المنتخب الوطني يحل بإسبانيا**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AD%D9%84-%D8%A8%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/)
+
+
 ### virements bancaires (N/A, Thu, 26 Mar 2026 10:10:00 -0700)
 
 - **Tous les virements, même les salaires, vont être bloqués pendant 4 jours dans toutes les banques : c'est ce week-end qu'il faut agir**: [Link](https://www.journaldunet.com/patrimoine/finances-personnelles/1548669-hf1-banques-fermeture-4-jours/)
