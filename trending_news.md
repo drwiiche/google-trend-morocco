@@ -1,3 +1,10 @@
+### nba (N/A, Wed, 25 Mar 2026 19:30:00 -0700)
+
+- **NBA Board of Governors approves exploration of expansion to Seattle, Las Vegas**: [Link](https://www.nba.com/news/nba-board-of-governors-exploration-seattle-las-vegas-expansion)
+- **Lakers Legend Magic Johnson Is Major Contender To Buy Ownership Stake In Las Vegas Team**: [Link](https://fadeawayworld.net/nba/los-angeles-lakers/lakers-legend-magic-johnson-is-major-contender-to-buy-stake-in-las-vegas-team)
+- **‘We are interested’: Bill Foley discusses NBA’s announcement to expand in Las Vegas**: [Link](https://www.8newsnow.com/news/we-are-interested-bill-foley-discusses-nbas-announcement-to-expand-in-las-vegas/)
+
+
 ### classroom (N/A, Thu, 26 Mar 2026 00:50:00 -0700)
 
 - **First lady Melania Trump enters White House summit with walking, talking humanoid robot**: [Link](https://abcnews.com/Politics/lady-melania-trump-enters-white-house-summit-walking/story?id=131403886)
