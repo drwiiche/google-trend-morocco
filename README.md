@@ -1,3 +1,45 @@
+### diaz (N/A, Thu, 26 Mar 2026 14:30:00 -0700)
+
+- **LAFC sign homegrown defender Christian Díaz**: [Link](https://www.mlssoccer.com/news/lafc-sign-homegrown-defender-christian-diaz)
+- **Cuban president says Raúl Castro involved in US talks that are in early stages**: [Link](https://apnews.com/article/cuba-president-diaz-canel-iglesias-interview-raul-castro-76a73d9205b3bea9df4aa962869edf55)
+- **Cuban president says Raul Castro involved in US talks amid oil blockade**: [Link](https://www.aljazeera.com/news/2026/3/26/cuban-president-says-raul-castro-involved-in-us-talks-amid-oil-blockade)
+
+
+### serie harry potter (N/A, Thu, 26 Mar 2026 14:20:00 -0700)
+
+- **‘Harry Potter And The Philosopher’s Stone’: See First-Look Photos From Upcoming HBO Series**: [Link](https://deadline.com/gallery/harry-potter-series-photos/)
+- **‘Harry Potter and the Philosopher’s Stone’ trailer is raising eyebrows among Potterheads: ‘Where’s the whimsical color?’**: [Link](https://www.yahoo.com/entertainment/tv/article/harry-potter-and-the-philosophers-stone-trailer-is-raising-eyebrows-among-potterheads-wheres-the-whimsical-color-201537028.html)
+- **HBO Original Harry Potter Series Releases First Official Teaser And Announces Christmas 2026 Debut**: [Link](https://press.wbd.com/us/media-release/hbo-0/harry-potter/hbo-original-harry-potter-series-releases-first-official-teaser-and-announces)
+
+
+### morocco vs ecuador (N/A, Thu, 26 Mar 2026 14:10:00 -0700)
+
+- **Atlas lions hold first training session under new coach Mohamed Ouahbi**: [Link](https://en.hespress.com/134317-atlas-lions-hold-first-training-session-under-new-coach-mohamed-ouahbi.html)
+- **Ecuador Coach: Coaching Change Makes Morocco Harder to Read**: [Link](https://www.moroccoworldnews.com/2026/03/284387/ecuador-coach-coaching-change-makes-morocco-harder-to-read/)
+- **Moroccan National Team Delegation Heads to Madrid for Ecuador Friendly**: [Link](https://m.elbotola.com/en/article/2026-03-25-17-46-489.html)
+
+
+### brasil (N/A, Thu, 26 Mar 2026 14:10:00 -0700)
+
+- **Saiba por que o uniforme azul do Brasil tem o Michael Jordan estampado**: [Link](https://www.metropoles.com/colunas/ilca-maria-estevao/saiba-por-que-o-uniforme-azul-do-brasil-tem-o-michael-jordan-estampado)
+- **UOL News Esporte | Programa completo | 26 de março de 2026**: [Link](https://www.uol.com.br/esporte/videos/2026/03/26/uol-news-esporte--programa-completo--26-de-marco-de-2026.htm)
+- **Vini Jr será o camisa 10 da seleção brasileira contra a França; veja numeração**: [Link](https://ge.globo.com/video/vini-jr-sera-o-camisa-10-da-selecao-brasileira-contra-a-franca-veja-numeracao-14468689.ghtml)
+
+
+### القنوات الناقلة لمباراة المغرب (N/A, Thu, 26 Mar 2026 14:10:00 -0700)
+
+- **نخبة الإكوادور تمتحن "أسود الأطلس"**: [Link](https://www.hespress.com/%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1-%D8%AA%D9%85%D8%AA%D8%AD%D9%86-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1721230.html)
+- **ثنائي البريميرليج يتصدر تشكيل الإكوادور المتوقع لمواجهة المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%A7%D9%95%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt5f02b152aa3ca096)
+- **المنتخب الوطني يحل بإسبانيا**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AD%D9%84-%D8%A8%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/)
+
+
+### يلا كورة (N/A, Thu, 26 Mar 2026 14:10:00 -0700)
+
+- **فيديو: صدمة غير متوقعة.. الجماهير المصرية تصعق السعودية قبل القمة العربية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B5%D8%AF%D9%85%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9--%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B5%D8%B9%D9%82-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/bltbd1bb0fb87720a80)
+- **مباراة السعودية ومصر الودية.. الموعد والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/3/26/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
+- **مدرب مصر: غياب صلاح والدوسري في ودية السعودية "خسارة فنية"**: [Link](https://24.ae/article/952302/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B5%D9%84%D8%A7%D8%AD-%D9%88%D8%A7%D9%84%D8%AF%D9%88%D8%B3%D8%B1%D9%8A-%D9%81%D9%8A-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%81%D9%86%D9%8A%D8%A9-)
+
+
 ### yalla kora (N/A, Thu, 26 Mar 2026 13:40:00 -0700)
 
 - **مباريات قوية في ختام الدور النهائي لدوري سوبر الطائرة**: [Link](https://m.akhbarelyom.com/news/newdetails/4794299/1/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%84)
