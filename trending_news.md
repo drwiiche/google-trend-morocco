@@ -1,3 +1,31 @@
+### yalla kora (N/A, Thu, 26 Mar 2026 13:40:00 -0700)
+
+- **مباريات قوية في ختام الدور النهائي لدوري سوبر الطائرة**: [Link](https://m.akhbarelyom.com/news/newdetails/4794299/1/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%84)
+- **قنــاة تنقل مباراه الاهلي والزمالك في الكره الطائره في دوري السوبر في هذا الموعد.. ماتش al ahly vs zamalek**: [Link](https://zahraa.mr/6244470/%D9%82%D9%86%D9%80%D9%80%D8%A7%D8%A9-%D8%AA%D9%86%D9%82%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D9%87-%D8%A7%D9%84%D8%A7%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%81%D9%8A/)
+- **الأهلي بطلًا لدوري سوبر الكرة الطائرة**: [Link](https://gate.ahram.org.eg/Massai/News/5584738.aspx)
+
+
+### dazn (N/A, Thu, 26 Mar 2026 13:40:00 -0700)
+
+- **Golden Boy Promotions, DAZN reach multi-year extension**: [Link](https://www.ringmagazine.com/news/golden-boy-promotions-dazn-reach-multi-year-extension-bAyTZE1a8IxmE7CAEkwtU)
+- **Oscar De La Hoya hails ‘truly remarkable’ DAZN deal**: [Link](https://www.boxingscene.com/articles/oscar-de-la-hoya-hails-dazn-deal-as-truly-remarkable)
+- **‘We’re firing on all cylinders right now’: Oscar De La Hoya fires defiant message**: [Link](https://bigfightweekend.com/news/oscar-de-la-hoya-reacts-dazn-deal/)
+
+
+### live (N/A, Thu, 26 Mar 2026 13:40:00 -0700)
+
+- **Turkey vs Romania: FIFA World Cup Qualifying - European stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c70dzr5v2e0t)
+- **1-0: Arda Güler provided the assist for Turkey's winning goal against Romania**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/arda-guler-26-03-2026)
+- **"Ready for Every Scenario": Montella Leads Charged Türkiye Squad into World Cup Play-off Against Romania**: [Link](https://turkish-football.com/ready-for-every-scenario-montella-leads-charged-turkiye-squad-into-world-cup-play-off-against-romania/)
+
+
+### match en direct (N/A, Thu, 26 Mar 2026 13:40:00 -0700)
+
+- **Silvinjo para sfidës historike: Sa më pak gabime në Poloni, kam dy muaj që nuk fle**: [Link](https://reporteri.net/fr/l%27alimentation-du-sportif/Silvinjo--avant-le-d%C3%A9fi-historique-avec-le-moins-d%27erreurs-possible-en-Pologne--je-n%27ai-pas-dormi-depuis-deux-mois./)
+- **Coupe du Monde - Qualification UEFA - Barrages : Pologne - Albanie à 20h45, la dernière danse de Lewandowski**: [Link](https://www.sport.fr/football/coupe-du-monde-qualification-uefa-barrages-pologne-albanie-a-20h45-la-derniere-danse-de-lewandowski-1436902.shtm)
+- **Trois joueurs albanais se retrouvent dans les tribunes lors du match contre la Pologne.**: [Link](https://www.koha.net/fr/futboll/tre-lojtare-te-shqiperise-pergundojne-ne-tribuna-ndaj-polonise)
+
+
 ### vod + (N/A, Thu, 26 Mar 2026 13:30:00 -0700)
 
 - **Cyfrowy dom bez limitów. Jak łącze światłowodowe zmienia konsumpcję treści VOD w 4K?**: [Link](https://rozrywka.spidersweb.pl/cyfrowy-dom-swiatlowod-vod-4k-plus)
