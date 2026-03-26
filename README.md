@@ -1,3 +1,10 @@
+### bolivia vs suriname (N/A, Thu, 26 Mar 2026 16:50:00 -0700)
+
+- **Mexico Bolivia WCup Playoffs Soccer**: [Link](https://www.couriernews.com/sports/mexico-bolivia-wcup-playoffs-soccer/image_82cdabbf-e972-5d33-a4af-d81c03eb54c2.html)
+- **Bolivia's Moises Paniagua finds the net for the equalizer against Suriname**: [Link](https://www.foxnews.com/video/6391791024112)
+- **How to buy Bolivia vs. Suriname tickets for 2026 World Cup Qualifiers**: [Link](https://www.usatoday.com/story/shopping/sports/tickets/2026/03/23/buy-bolivia-vs-suriname-tickets-world-cup-qualifiers-mexico/89287152007/)
+
+
 ### نشرة إنذارية (N/A, Thu, 26 Mar 2026 16:20:00 -0700)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-72-1721053.html)
