@@ -1,3 +1,10 @@
+### france vs brazil (N/A, Wed, 25 Mar 2026 13:50:00 -0700)
+
+- **France and Croatia up next! Share your predictions for Brazil 🔮**: [Link](https://onefootball.com/en/news/france-and-croatia-up-next-share-your-predictions-for-brazil-42616681)
+- **2 top teams compete at Gillette Stadium friendly before World Cup**: [Link](https://www.nbcboston.com/news/sports/2-top-teams-compete-at-gillette-stadium-friendly-before-world-cup/3922497/)
+- **Foxborough gears up for World Cup with exhibition match**: [Link](https://www.msn.com/en-us/news/us/foxborough-gears-up-for-world-cup-with-exhibition-match/ar-AA1ZpyX9?ocid=Peregrine)
+
+
 ### bounida (N/A, Wed, 25 Mar 2026 15:30:00 -0700)
 
 - **Groen licht van de FIFA: Ajax-parel hakt knoop door en maakt interlandswitch**: [Link](https://www.voetbalprimeur.nl/nieuws/2070874/rayane-bounida-maakt-interlandswitch-en-kiest-definitief-voor-marokko.html)
