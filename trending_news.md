@@ -1,3 +1,71 @@
+### vod + (N/A, Thu, 26 Mar 2026 13:30:00 -0700)
+
+- **Cyfrowy dom bez limitów. Jak łącze światłowodowe zmienia konsumpcję treści VOD w 4K?**: [Link](https://rozrywka.spidersweb.pl/cyfrowy-dom-swiatlowod-vod-4k-plus)
+- **Co oglądać w weekend - Netflix, HBO MAX, Disney+, Amazon Prime, Apple TV+, SkyShowtime, kina**: [Link](https://www.ppe.pl/publicystyka/404873/co-ogladac-w-weekend-netflix-hbo-max-disney-amazon-prime-apple-tv-skyshowtime-kina-9.html)
+- **Co oglądać na Netflixie w kwietniu? Oto 8 najfajniejszych tytułów, przy których nie będziesz się nudzić**: [Link](https://zwierciadlo.pl/kultura/557212,1,nowosci-netflixa-na-kwiecien-najciekawsze-tytuly-seriale-filmy-dokumenty.read)
+
+
+### tf1 direct (N/A, Thu, 26 Mar 2026 13:30:00 -0700)
+
+- **Face à la crainte de pénurie de gazole, le gouvernement autorise temporairement la vente de carburant "non conforme" aux normes habituelles**: [Link](https://www.bfmtv.com/economie/face-a-la-crainte-de-penurie-de-gazole-le-gouvernement-autorise-temporairement-la-vente-de-carburant-non-conforme-aux-normes-habituelles_AN-202603260259.html)
+- **EN DIRECT | Moscou fournit du renseignement à Téhéran pour "tuer des Américains", selon la cheffe de la diplomatie de l'UE**: [Link](https://www.lechorepublicain.fr/paris-75000/actualites/en-direct-moyen-orient-israel-iran-etats-unis-frappes-escalade-militaire-et-crise-energetique_14943316/)
+- **Les stations-service autorisées à vendre un gazole moins résistant au froid, deux morts à Abou Dhabi**: [Link](https://www.estrepublicain.fr/defense-guerre-conflit/2026/03/26/les-stations-service-autorisees-a-vendre-un-gazole-moins-resistant-au-froid-deux-morts-a-abou-dhabi)
+
+
+### abu dhabi (N/A, Thu, 26 Mar 2026 13:30:00 -0700)
+
+- **Two teenagers killed in Shiraz, two dead in Abu Dhabi as Iran war expands**: [Link](https://www.aljazeera.com/news/2026/3/26/us-israel-launch-extensive-strikes-on-central-iran-two-teenagers-killed)
+- **US, Israel hit Isfahan University of Iran: Students news agency**: [Link](https://www.aa.com.tr/en/middle-east/us-israel-hit-isfahan-university-of-iran-students-news-agency/3880013)
+- **US-Israeli aggression targets Isfahan University of Technology, causes damage**: [Link](https://www.presstv.ir/Detail/2026/03/26/765877/US-Israeli-aggression-Isfahan-University-Technology-attack)
+
+
+### yallakora (N/A, Thu, 26 Mar 2026 13:20:00 -0700)
+
+- **وسط الحرب.. منتخب إيران يستعد لمباراتين في دولة جارة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8--%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D9%86-%D9%81%D9%8A-%D8%AF%D9%88%D9%84%D8%A9-%D8%AC%D8%A7%D8%B1%D8%A9/bltd643e96a534c09b9)
+- **قدم.. منتخب إيران يقيم معسكرا تدريبيا في أنطاليا التركية**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D9%82%D9%8A%D9%85-%D9%85%D8%B9%D8%B3%D9%83%D8%B1%D8%A7-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A3%D9%86%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9/3880820)
+- **استبعاد هداف المنتخب الإيراني من استعدادات كأس العالم وأنباءٌ عن "تصرفات غير مسؤولة"**: [Link](https://www.aljazeera.net/sport/2026/3/21/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B3%D8%B1%D8%AF%D8%A7%D8%B1-%D8%A2%D8%B2%D9%85%D9%88%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+
+
+### italy vs northern ireland (N/A, Thu, 26 Mar 2026 13:20:00 -0700)
+
+- **Italy vs Northern Ireland LIVE: World Cup qualifying play-offs score, TV stream & updates**: [Link](https://www.bbc.com/sport/football/live/c895l8g2wj5t)
+- **Tactical Discipline vs. Home Advantage: The New Blueprint for 2026 Qualification**: [Link](https://football-italia.net/tactical-home-advantage-italy-blueprint-2026/)
+- **Gattuso: ‘Italy must think positive and not talk about fear’ of World Cup**: [Link](https://onefootball.com/de/news/gattuso-italy-must-think-positive-and-not-talk-about-fear-of-world-cup-42620305)
+
+
+### phillies – rangers (N/A, Thu, 26 Mar 2026 13:10:00 -0700)
+
+- **Matt Snyder shares his best MLB bet for the Rangers vs. Phillies matchup**: [Link](https://247sports.com/high-school/washington/video/matt-snyder-shares-his-best-mlb-bet-for-the-rangers-vs-phillies-matchup-13677690)
+- **Sánchez duels Rangers' Nathan Eovaldi: Pitches to watch, by the numbers**: [Link](https://www.nbcsportsphiladelphia.com/mlb/philadelphia-phillies/opening-day-cristopher-sanchez-nathan-eovaldi-key-pitches/722821/?amp=1)
+- **Nathan Eovaldi to pitch Texas Rangers opener in Philly**: [Link](https://www.axios.com/local/dallas/2026/03/26/texas-rangers-opening-day)
+
+
+### tf1 (N/A, Thu, 26 Mar 2026 13:10:00 -0700)
+
+- **TF1 : ce qui change dès ce jeudi 26 mars 2026 en prime time**: [Link](https://toutelatele.ouest-france.fr/tf1-ce-qui-change-des-ce-jeudi-26-mars-2026-en-prime-time-184741)
+- **Ici tout commence en avance : le 27 mars, Loup et Bianca se rapprochent et Jasmine prend une décision dangereuse**: [Link](https://www.telestar.fr/serie_tv/ici-tout-commence-en-avance-le-27-mars-loup-et-bianca-se-rapprochent-et-jasmine-prend-une-decision-dangereuse-1758732)
+- **Ici tout commence : Zoï Séverin (Jasmine) va-t-elle de nouveau s’absenter de la série ?**: [Link](https://www.diverto.tv/actualites/series/ici-tout-commence-zoi-severin-jasmine-va-t-elle-de-nouveau-s-absenter-de-la-serie)
+
+
+### kooora (N/A, Thu, 26 Mar 2026 13:00:00 -0700)
+
+- **الأحزان تتوالى على جماهير المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%B2%D8%A7%D9%86-%D8%AA%D8%AA%D9%88%D8%A7%D9%84%D9%89-%D8%B9%D9%84%D9%89-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blta7723affbc76cd2d)
+- **تشكيلة المنتخب الوطني لاقل من 16 سنة امام النرويج**: [Link](https://frmf.ma/ar/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-16-%D8%B3%D9%86%D8%A9-%D8%A7%D9%85%D8%A7-3/)
+- **منتخب "U16" ينهزم أمام النرويج**: [Link](https://www.hesport.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u16-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-432371.html)
+
+
+### مباراة اليوم (N/A, Thu, 26 Mar 2026 13:00:00 -0700)
+
+
+
+
+### turquie foot (N/A, Thu, 26 Mar 2026 13:00:00 -0700)
+
+- **Turquie 1-0 Roumanie, Qualif. CM Europe : résumé du match (26/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/qualif-cm-europe/2026/turquie-roumanie-live/688996)
+- **CdM 2026 : la Turquie bat la Roumanie et se qualifie pour la finale des barrages**: [Link](https://www.footmercato.net/a2841762296908926575-cdm-2026-la-turquie-bat-la-roumanie-et-se-qualifie-pour-la-finale-des-barrages)
+- **« Je ne m’attendais pas à une telle question » : la réponse cash de Montella quand un journaliste roumain lui demande s’il démissionnera en cas d’élimination de la Turquie aux barrages pour le Mondial**: [Link](https://www.calciomio.fr/je-ne-mattendais-pas-a-une-telle-question-la-reponse-cash-de-montella-quand-un-journaliste-roumain-lui-demande-sil-demissionnera-en-cas-delimination-de-la-turquie-aux-barrages-po-id-174635)
+
+
 ### koora (N/A, Thu, 26 Mar 2026 12:40:00 -0700)
 
 - **ميلان وسان جيرمان يحاولان خطف نجم برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D9%86-%D8%AE%D8%B7%D9%81-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt53e17de36c006528)
