@@ -1,3 +1,10 @@
+### lalla hasnaa (N/A, Thu, 26 Mar 2026 06:20:00 -0700)
+
+- **S.A.R. la Princesse Lalla Hasnaa représente le Maroc au sommet "Fostering the Future Together" à Washington**: [Link](https://maroc-diplomatique.net/s-a-r-la-princesse-lalla-hasnaa-represente-le-maroc-au-sommet-fostering-the-future-together-a-washington/)
+- **À Washington, la Princesse Lalla Hasnaa porte la voix du Maroc sur l’avenir numérique des enfants**: [Link](https://medias24.com/2026/03/26/a-washington-la-princesse-lalla-hasnaa-porte-la-voix-du-maroc-sur-lavenir-numerique-des-enfants-1648564/)
+- **Brigitte Macron donne une leçon de style à Melania Trump avec sa tenue à plus de 3 500 euros**: [Link](https://www.marieclaire.fr/brigitte-macron-look-louis-vuitton-melania-trump,1511605.asp)
+
+
 ### rodri (N/A, Thu, 26 Mar 2026 03:30:00 -0700)
 
 - **Rodri: “El Madrid no es una puerta cerrada para mí”**: [Link](https://as.com/futbol/internacional/rodri-el-madrid-no-es-una-puerta-cerrada-para-mi-f202603-n/)
