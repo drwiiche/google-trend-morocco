@@ -1,3 +1,17 @@
+### harry potter hbo max (N/A, Thu, 26 Mar 2026 15:30:00 -0700)
+
+- **HBO Original Harry Potter Series Releases First Official Teaser And Announces Christmas 2026 Debut**: [Link](https://press.wbd.com/us/media-release/hbo-0/harry-potter/hbo-original-harry-potter-series-releases-first-official-teaser-and-announces)
+- **Harry Potter Trailer: Magic That Still Lives in Memory**: [Link](https://vocal.media/geeks/harry-potter-trailer-magic-that-still-lives-in-memory)
+- **Promo images released for new Harry Potter series filmed in Cornwall**: [Link](https://uk.news.yahoo.com/promo-images-released-harry-potter-193100939.html)
+
+
+### italy vs (N/A, Thu, 26 Mar 2026 13:50:00 -0700)
+
+- **Italy 2-0 Northern Ireland: Sandro Tonali and Moises Kean score goals as Italy progress to World Cup play-off**: [Link](https://www.bbc.com/sport/football/live/c895l8g2wj5t)
+- **Italy 2-0 Northern Ireland: World Cup playoff – as it happened**: [Link](https://www.theguardian.com/football/live/2026/mar/26/italy-v-northern-ireland-world-cup-playoff-live)
+- **✅Official Italy-Northern Ireland line-ups: Bastoni, Politano and Esposito**: [Link](https://onefootball.com/pt-br/noticias/official-italy-northern-ireland-line-ups-bastoni-politano-and-esposito-42620132)
+
+
 ### diaz (N/A, Thu, 26 Mar 2026 14:30:00 -0700)
 
 - **LAFC sign homegrown defender Christian Díaz**: [Link](https://www.mlssoccer.com/news/lafc-sign-homegrown-defender-christian-diaz)
