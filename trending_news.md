@@ -1,3 +1,31 @@
+### koora (N/A, Thu, 26 Mar 2026 12:40:00 -0700)
+
+- **ميلان وسان جيرمان يحاولان خطف نجم برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D9%86-%D8%AE%D8%B7%D9%81-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt53e17de36c006528)
+- **مانشستر يونايتد مستعد لبيع ماركوس راشفورد إلى أحد منافسيه في الدوري الإنجليزي الممتاز - في حال لم يدفع برشلونة قيمة الشرط الجزائي المتفق عليها والبالغة 30 مليون يورو**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%85%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A8%D9%8A%D8%B9-%D9%85%D8%A7%D8%B1%D9%83%D9%88%D8%B3-%D8%B1%D8%A7%D8%B4%D9%81%D9%88%D8%B1%D8%AF-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%94%D8%AD%D8%AF-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84-%D9%84%D9%85-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%82%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%85%D8%AA%D9%81%D9%82-%D8%B9%D9%84%D9%8A%D9%87%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%A7%D9%84%D8%BA%D8%A9-30-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88/blt376b492d9016f6b2)
+- **لاعب بنفيكا يكشف حقيقة مفاوضات برشلونة لضمه في الصيف**: [Link](https://www.365scores.com/ar/news/magazine/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86/)
+
+
+### كورة (N/A, Thu, 26 Mar 2026 12:30:00 -0700)
+
+- **اتحاد جدة يستهدف نجم مانشستر يونايتد.. وفابينيو كلمة السر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AC%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%86%D8%AC%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF--%D9%88%D9%81%D8%A7%D8%A8%D9%8A%D9%86%D9%8A%D9%88-%D9%83%D9%84%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D8%B1/blt8afadbd714acd391)
+- **أخبار الانتقالات - عرضان من الدوري الأميركي.. كاسيميرو قد يزامل ميسي في إنتر ميامي - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/727587067043434-%D8%B9%D8%B1%D8%B6%D8%A7%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%83%D8%A7%D8%B3%D9%8A%D9%85%D9%8A%D8%B1%D9%88-%D9%82%D8%AF-%D9%8A%D8%B2%D8%A7%D9%85%D9%84-%D9%85%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A/)
+- **تشير التقارير إلى أن إنتر ميامي ولوس أنجلوس غالاكسي مهتمان بالتعاقد مع لاعب خط وسط مانشستر يونايتد كاسيميرو هذا الصيف**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D8%B4%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%94%D9%86-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%84%D9%88%D8%B3-%D8%A7%D9%94%D9%86%D8%AC%D9%84%D9%88%D8%B3-%D8%BA%D8%A7%D9%84%D8%A7%D9%83%D8%B3%D9%8A-%D9%85%D9%87%D8%AA%D9%85%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%AE%D8%B7-%D9%88%D8%B3%D8%B7-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%83%D8%A7%D8%B3%D9%8A%D9%85%D9%8A%D8%B1%D9%88-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B5%D9%8A%D9%81/bltb2ac984c23f6c592)
+
+
+### maroc vs (N/A, Thu, 26 Mar 2026 12:20:00 -0700)
+
+- **CAN 2025 : accusations sans preuves et escalade verbale, la Fédération sénégalaise passe à l’attaque**: [Link](https://medias24.com/2026/03/26/can-2025-accusations-sans-preuves-et-escalade-verbale-la-federation-senegalaise-passe-a-lattaque-1648777/)
+- **CAN 2025 : deux demandes du Maroc rejetées en appel !**: [Link](https://www.footmercato.net/a8662106930023264429-can-2025-deux-demandes-du-maroc-rejetees-en-appel)
+- **Déclaration aux médias du Jury d’Appel de la CAF**: [Link](https://www.cafonline.com/fr/infos/declaration-aux-medias-du-jury-d-appel-de-la-caf/)
+
+
+### world cup qualifiers (N/A, Thu, 26 Mar 2026 12:20:00 -0700)
+
+- **UEFA World Cup Play-offs: how they work and all the fixtures scheduled for the semi-finals**: [Link](https://www.goal.com/en-ca/lists/uefa-world-cup-play-offs-how-they-work-and-all-the-fixtures-scheduled-for-the-semi-finals/blt5a9f975a6c648b23)
+- **World Cup 2026 International Playoff tournament: 6 nations to face off for two World Cup berths**: [Link](https://www.livenowfox.com/sports/6-nations-face-off-2-remaining-world-cup-berths)
+- **Robert Lewandowski, Gianluigi Donnarumma and 11 of the biggest stars at risk of missing the 2026 World Cup**: [Link](https://www.goal.com/en-us/lists/robert-lewandowski-gianluigi-donnarumma-biggest-stars-risk-missing-2026-world-cup/blt71b74e24d7dac656)
+
+
 ### مباريات اليوم (N/A, Thu, 26 Mar 2026 12:10:00 -0700)
 
 - **مباريات اليـوم**: [Link](https://www.emaratalyoum.com/sports/local/2026-03-26-1.2028652)
