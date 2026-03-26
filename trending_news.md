@@ -1,3 +1,29 @@
+### météo (N/A, Wed, 25 Mar 2026 23:20:00 -0700)
+
+- **Météo : neige, grésil, orages et rafales de vent au menu de ce jeudi**: [Link](https://www.lesoir.be/736991/article/2026-03-26/meteo-neige-gresil-orages-et-rafales-de-vent-au-menu-de-ce-jeudi)
+- **Avertissement de mauvais temps : le 1722 est activé**: [Link](https://www.rtbf.be/article/avertissement-de-mauvais-temps-le-1722-est-active-11700047)
+- **La Belgique replonge dans l'hiver dès ce mercredi : "Ce soir et surtout cette nuit, on a un risque de chutes de neige, y compris en plaine"**: [Link](https://www.lalibre.be/belgique/societe/2026/03/25/la-belgique-replonge-dans-lhiver-des-ce-mercredi-ce-soir-et-surtout-cette-nuit-on-a-un-risque-de-chutes-de-neige-y-compris-en-plaine-74VIAL3DMZDIFNLEUPQD6MF24E/)
+
+
+### weather (N/A, Wed, 25 Mar 2026 23:10:00 -0700)
+
+- **Chicago weather: Drastic drop in temperatures Thursday, could impact Cubs home opener; strong storms to bring hail, damaging winds**: [Link](https://abc7chicago.com/post/chicago-weather-drastic-drop-temperatures-thursday-could-impact-cubs-home-opener-strong-storms-bring-hail-damaging-winds/18770452/)
+- **Cubs Home Opener Could See Hail Nearly The Size Of A Baseball**: [Link](https://blockclubchicago.org/2026/03/25/cubs-home-opener-could-see-hail-nearly-the-size-of-a-baseball/)
+- **Strong or severe thunderstorms threaten Thursday afternoon**: [Link](https://wgntv.com/weather/chicago-area-could-see-severe-weather-thursday/)
+
+
+### achkayen (N/A, Wed, 25 Mar 2026 22:40:00 -0700)
+
+- **زيارة مرتقبة لميلوني إلى الجزائر لتعزيز الشراكة الطاقوية في ظل توترات دولية**: [Link](https://ultraalgeria.ultrasawt.com/%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D9%84%D9%85%D9%8A%D9%84%D9%88%D9%86%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B8%D9%84-%D8%AA%D9%88%D8%AA%D8%B1%D8%A7%D8%AA-%D8%AF%D9%88%D9%84%D9%8A%D8%A9/%D8%A8%D9%84%D9%82%D8%A7%D8%B3%D9%85-%D8%A8%D9%88%D8%A8%D9%83%D8%B1/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1)
+
+
+### maitre gims (N/A, Wed, 25 Mar 2026 13:00:00 -0700)
+
+- **RDC • Le chanteur Gims arrêté à son arrivée à Paris**: [Link](https://www.africaintelligence.fr/afrique-centrale/2026/03/25/le-chanteur-gims-arrete-a-son-arrivee-a-paris,110688865-art)
+- **Gims interpellé dans une affaire de blanchiment en bande organisée**: [Link](https://www.franceinfo.fr/faits-divers/gims-interpelle-dans-une-affaire-de-blanchiment-en-bande-organisee_7894169.html)
+- **Le rappeur Gims en garde à vue pour être entendu dans une affaire de blanchiment en bande organisée**: [Link](https://www.lemonde.fr/societe/article/2026/03/25/le-rappeur-gims-en-garde-a-vue-dans-une-affaire-de-blanchiment-en-bande-organisee_6674253_3224.html)
+
+
 ### france vs brazil (N/A, Wed, 25 Mar 2026 13:50:00 -0700)
 
 - **France and Croatia up next! Share your predictions for Brazil 🔮**: [Link](https://onefootball.com/en/news/france-and-croatia-up-next-share-your-predictions-for-brazil-42616681)
