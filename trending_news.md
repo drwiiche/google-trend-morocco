@@ -1,3 +1,24 @@
+### instagram hacked (N/A, Fri, 27 Mar 2026 04:40:00 -0700)
+
+- **White House posts cryptic videos, deletes one, fueling speculation online**: [Link](https://www.cnbc.com/2026/03/26/trump-white-house-mysterious-videos-x-instagram.html)
+- **White House posting heavily pixelated images on social media**: [Link](https://www.9news.com.au/world/white-house-pixelated-images-what-does-it-mean-mystery-x-instagram-posts/9b7565cc-503b-46e9-8e37-c2bb04acdee9)
+- **White House leaves social media users befuddled by cryptic video**: [Link](https://www.aol.com/news/white-house-leaves-social-media-065600660.html)
+
+
+### maroc vs algerie u17 (N/A, Fri, 27 Mar 2026 04:10:00 -0700)
+
+- **L’équipe nationale U17 s’impose face à la Tunisie – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AA%D9%88/)
+- **UNAF U17 : Maroc – Algérie, un match clé pour confirmer le bon départ**: [Link](https://lionsdelatlas.ma/unaf-u17-maroc-algerie-un-match-cle-pour-confirmer-le-bon-depart/)
+- **Maroc-Algérie U17: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/can/maroc-algerie-u17-a-quelle-heure-et-sur-quelle-chaine_XGG7XHHXKBHCZK6T7IOXYHI72E/)
+
+
+### vincennes (N/A, Fri, 27 Mar 2026 04:00:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour vendredi 27 mars - Prix Amalthéa**: [Link](https://www.lalsace.fr/actualite/2026/03/26/nos-pronostics-pour-vendredi-27-mars-prix-amalthea)
+- **Hall Black Mess, l'outsider séduisant du Quinté+ de ce vendredi 27 mas**: [Link](https://www.equidia.fr/articles/actualite/hall-black-mess-loutsider-seduisant-du-quinte-de-ce-vendredi-27-mas)
+- **Les pronos hippiques du vendredi 27 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-27-mars-2026_AN-202603250598.html)
+
+
 ### openai (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
 
 - **OpenAI puts erotic chatbot plans on hold ‘indefinitely’**: [Link](https://www.ft.com/content/de9bf0af-b241-424f-8229-5870b1c0d93d?syn-25a6b1a6=1)
