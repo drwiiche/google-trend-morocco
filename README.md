@@ -1,3 +1,38 @@
+### england vs uruguay (N/A, Fri, 27 Mar 2026 14:50:00 -0700)
+
+- **England v Uruguay buildup, Klopp hails Salah’s Liverpool impact: football news – as it happened**: [Link](https://www.theguardian.com/football/live/2026/mar/27/world-cup-playoffs-heartbreak-and-joy-england-v-uruguay-football-live)
+- **🔴 Switzerland in the lead; England, the Netherlands and Spain in action**: [Link](https://onefootball.com/en/news/switzerland-in-the-lead-england-the-netherlands-and-spain-in-action-42625182)
+- **How to watch England vs Uruguay - TV channel, live stream and kick-off time**: [Link](https://www.mirror.co.uk/sport/football/news/england-uruguay-tv-channel-stream-36908228)
+
+
+### argentine foot (N/A, Fri, 27 Mar 2026 14:30:00 -0700)
+
+- **Un match amical face à l’Argentine ? C’est 50 % plus cher si Messi est de la partie**: [Link](https://www.lesoir.be/737185/article/2026-03-26/un-match-amical-face-largentine-cest-50-plus-cher-si-messi-est-de-la-partie)
+- **[News-Sélections] Mauritanie : Djeidi Gassama et Lamine Ba vont affronter l'Argentine de Messi à la Bombonera**: [Link](https://www.lestitisdupsg.fr/a-la-une/%F0%9F%87%B2%F0%9F%87%B7-news-selections-mauritanie-djeidi-gassama-et-lamine-ba-vont-affronter-largentine-de-messi-a-la-bombonera/)
+- **L’Argentine affrontera le Guatemala le 31 mars en remplacement de la Finalissima contre l'Espagne**: [Link](https://www.msn.com/fr-fr/sport/football/l-argentine-affrontera-le-guatemala-le-31-mars-en-remplacement-de-la-finalissima-contre-l-espagne/vi-AA1YQhDH?cvid=69c62e65fa1f4bbab13d8ef2532905da)
+
+
+### spain (N/A, Fri, 27 Mar 2026 14:00:00 -0700)
+
+- **Algeria–Spain rapprochement: Tebboune backs down on Sahara demands**: [Link](https://en.yabiladi.com/articles/details/191088/algeria-spain-rapprochement-tebboune-backs.html)
+- **Spain’s Foreign Minister Explores Oran’s Iconic Fortress**: [Link](https://www.horizons.dz/language/en/2026/03/spains-foreign-minister-explores-orans-iconic-fortress/)
+- **Albares: Dialogue and Cultural Exchange Will Strengthen Algerian-Spanish Friendship**: [Link](https://news.radioalgerie.dz/en/node/82384)
+
+
+### كأس العالم 2026 (N/A, Fri, 27 Mar 2026 14:00:00 -0700)
+
+- **قدم.. بانيتشيلي يغيب عن الأرجنتين في مونديال 2026**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D8%A7%D9%86%D9%8A%D8%AA%D8%B4%D9%8A%D9%84%D9%8A-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/3882392)
+- **«‌الرباط الصليبي» يضرب مهاجم المنتخب الأرجنتيني مجدداً**: [Link](https://www.albayan.ae/sports/world-cup-2026/1158986)
+- **الإصابة تحرم منتخب الأرجنتين من هداف الدوري الفرنسي في المونديال**: [Link](https://www.yallakora.com/world-cup/2866/news/545519/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B1%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%85%D9%86-%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### حريمات (N/A, Fri, 27 Mar 2026 13:50:00 -0700)
+
+- **أحدث وجوه منتخب المغرب: كنت أنتظر هذه اللحظة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AD%D8%AF%D8%AB-%D9%88%D8%AC%D9%88%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D9%86%D8%AA-%D8%A7%D9%94%D9%86%D8%AA%D8%B8%D8%B1-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A9/blt2fb80a217069765e)
+- **حريمات: فخور بحمل قميص المنتخب**: [Link](https://www.hespress.com/%D8%AD%D8%B1%D9%8A%D9%85%D8%A7%D8%AA-%D9%81%D8%AE%D9%88%D8%B1-%D8%A8%D8%AD%D9%85%D9%84-%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1720325.html)
+- **ديوب: فخور بتمثيل المغرب وأجواؤنا عائلية**: [Link](https://www.hesport.com/%D8%AF%D9%8A%D9%88%D8%A8-%D9%81%D8%AE%D9%88%D8%B1-%D8%A8%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A3%D8%AC%D9%88%D8%A7%D8%A4%D9%86%D8%A7-%D8%B9%D8%A7%D8%A6%D9%84-432543.html)
+
+
 ### byd (N/A, Fri, 27 Mar 2026 14:20:00 -0700)
 
 - **BYD Delivers Steeper-Than-Expected Profit Drop Amid EV Price War**: [Link](https://www.bloomberg.com/news/articles/2026-03-27/byd-delivers-steeper-than-expected-profit-drop-amid-ev-price-war)
