@@ -1,3 +1,17 @@
+### المغرب ضد الجزائر (N/A, Fri, 27 Mar 2026 06:20:00 -0700)
+
+- **المنتخب الوطني لاقل من 17 سنة يستأنف تداريبه استعدادا للقاء الجزائر**: [Link](https://frmf.ma/ar/tournoi-unaf-u17-benghazi-2026-reprise-des-entrainements-pour-le-maroc/)
+- **صدام إفريقي مرتقب بين المغرب والجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D8%A7%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/blt8912c9bf23e43669)
+- **منتخب أقل من 17 سنة يهزم الجزائر بثلاثية ويقترب من التأهل لـ"الكان"**: [Link](https://sport.rue20.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9.html)
+
+
+### maroc equateur (N/A, Fri, 27 Mar 2026 06:00:00 -0700)
+
+- **Matchs amicaux des Lions de l’Atlas: Arrivée de la délégation Marocaine à Madrid – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AD%D9%84-%D8%A8%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/)
+- **Football. L’Équateur défie le Maroc avec une défense d’airain, mais une attaque atone**: [Link](https://medias24.com/2026/03/26/football-lequateur-defie-le-maroc-avec-une-defense-dairain-mais-une-attaque-atone-1649067/)
+- **Match Maroc-Équateur : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-equateur-a-quelle-heure-et-sur-quelles-chaines/336872)
+
+
 ### مي عز الدين (N/A, Fri, 27 Mar 2026 08:10:00 -0700)
 
 - **مي عز الدين تظهر لأول مرة بعد أزمتها الصحية.. وزوجها يعلق**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/27/%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%AA%D8%B8%D9%87%D8%B1-%D9%84%D8%A7%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B2%D9%85%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%88%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%85%D9%86-%D8%B2%D9%88%D8%AC%D9%87%D8%A7)
