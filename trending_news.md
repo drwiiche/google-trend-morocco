@@ -1,3 +1,10 @@
+### openai (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **OpenAI puts erotic chatbot plans on hold ‘indefinitely’**: [Link](https://www.ft.com/content/de9bf0af-b241-424f-8229-5870b1c0d93d?syn-25a6b1a6=1)
+- **AI is embracing erotica, but it’s not all fun and games**: [Link](https://www.telegraph.co.uk/news/2026/03/26/erotic-ai-is-coming-but-with-what-consequences/)
+- **OpenAI Is Shelving Its Planned ChatGPT 'Adult Mode' Days After Dropping Sora**: [Link](https://www.cnet.com/tech/services-and-software/openai-shelves-adult-mode/)
+
+
 ### حالة الطقس اليوم (N/A, Thu, 26 Mar 2026 23:30:00 -0700)
 
 - **الأرصاد تكشف مفاجأة فى حالة الطقس: درجة الحرارة تتخطى 30 مئوية**: [Link](https://www.almasryalyoum.com/news/details/4230463)
