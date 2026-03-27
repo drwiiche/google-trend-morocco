@@ -1,3 +1,73 @@
+### عيسى ديوب (N/A, Fri, 27 Mar 2026 13:50:00 -0700)
+
+- **أحدث وجوه منتخب المغرب: كنت أنتظر هذه اللحظة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AD%D8%AF%D8%AB-%D9%88%D8%AC%D9%88%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D9%86%D8%AA-%D8%A7%D9%94%D9%86%D8%AA%D8%B8%D8%B1-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A9/blt2fb80a217069765e)
+- **حريمات: فخور بحمل قميص المنتخب**: [Link](https://www.hespress.com/%D8%AD%D8%B1%D9%8A%D9%85%D8%A7%D8%AA-%D9%81%D8%AE%D9%88%D8%B1-%D8%A8%D8%AD%D9%85%D9%84-%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1720325.html)
+- **ديوب: فخور بتمثيل المغرب وأجواؤنا عائلية**: [Link](https://www.hesport.com/%D8%AF%D9%8A%D9%88%D8%A8-%D9%81%D8%AE%D9%88%D8%B1-%D8%A8%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A3%D8%AC%D9%88%D8%A7%D8%A4%D9%86%D8%A7-%D8%B9%D8%A7%D8%A6%D9%84-432543.html)
+
+
+### يلا كورة (N/A, Fri, 27 Mar 2026 13:50:00 -0700)
+
+- **"لم أر المنتخب السعودي بهذا الضعف من قبل".. تعليق مثير من معلق مصري يثير الجدل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85-%D8%A7%D9%94%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A8%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B6%D8%B9%D9%81-%D9%85%D9%86-%D9%82%D8%A8%D9%84--%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%85%D8%AB%D9%8A%D8%B1-%D9%85%D9%86-%D9%85%D8%B9%D9%84%D9%82-%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84/blt3efbf4602b5dbc3e)
+- **الحلم سبورت : أداء مثير لسلمان الفرج في الشوط الأول ضد مصر**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A3%D8%AF%D8%A7%D8%A1-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D8%B3%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D8%AC-%D9%81%D9%8A/)
+- **عين على الحكم | لا مكان لركلات الجزاء .. قبلة حياة مرفوضة للأخضر و"لحظة تهور" أمام نجم مصر!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%85%D8%B5%D8%B1-%D8%B2%D9%8A%D8%B2%D9%88-%D8%AE%D8%A7%D9%84%D8%AF-%D8%A7%D9%84%D8%BA%D9%86%D8%A7%D9%85-%D8%AD%D9%85%D8%AF%D9%8A-%D9%81%D8%AA%D8%AD%D9%8A-%D9%81%D8%B1%D8%A7%D8%B3-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%83%D8%A7%D9%86/blt0d24b583d2d53082)
+
+
+### issa diop (N/A, Fri, 27 Mar 2026 13:40:00 -0700)
+
+- **Morocco's Head Coach includes Rayane Bounida in squad for Ecuador, Paraguay friendlies**: [Link](https://en.hespress.com/134460-moroccos-head-coach-includes-rayane-bounida-in-squad-for-ecuador-paraguay-friendlies.html)
+- **Marca: Morocco’s Demand High as FIFA's Nationality Change Platform Reports Six Transfers in 13 Days**: [Link](https://www.moroccoworldnews.com/2026/03/284477/marca-moroccos-demand-high-as-fifas-nationality-change-platform-reports-six-transfers-in-13-days/)
+- **Bonida: "I Received a Call from the Federation on the Last Day of Ramadan, I Answer My Country's Call Immediately"**: [Link](http://m.elbotola.com/en/article/2026-03-27-09-36-245.html)
+
+
+### diop issa (N/A, Fri, 27 Mar 2026 13:40:00 -0700)
+
+- **Le Maroc face à l’épineux cas Issa Diop**: [Link](https://www.footmercato.net/a639946085367420977-le-maroc-face-a-lepineux-cas-issa-diop)
+- **Sept joueurs binationaux "recrutés" en 13 jours: le Maroc fait chauffer la plateforme Fifa de changement de nationalité sportive**: [Link](https://rmcsport.bfmtv.com/football/equipe-maroc/sept-joueurs-binationaux-recrutes-en-13-jours-le-maroc-fait-chauffer-la-plateforme-fifa-de-changement-de-nationalite-sportive_AV-202603270421.html)
+- **Issa Diop: "L’ambiance est excellente au sein de la sélection"**: [Link](https://snrtnews.com/fr/article/issa-diop-lambiance-est-excellente-au-sein-de-la-selection-148879)
+
+
+### الجزائر ضد غواتيمالا (N/A, Fri, 27 Mar 2026 13:40:00 -0700)
+
+- **مباشر.. مباراة الجزائر ضد غواتيمالا الودية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%BA%D9%88%D8%A7%D8%AA%D9%8A%D9%85%D8%A7%D9%84%D8%A7)
+- **"حسرة ومنافسة صعبة".. رسالة نارية من حسام عوار قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B3%D8%B1%D8%A9-%D9%88%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9--%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D9%86-%D8%AD%D8%B3%D8%A7%D9%85-%D8%B9%D9%88%D8%A7%D8%B1-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt7f28de3c85d60d23)
+- **هدف الجزائر الثالث الصاروخي في مرمي جواتيمالا**: [Link](https://www.btolat.com/video/92031)
+
+
+### algeria vs guatemala (N/A, Fri, 27 Mar 2026 13:40:00 -0700)
+
+- **Preview: Algeria vs Guatemala - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/preview/algeria-vs-guatemala-prediction-team-news-lineups_594508.html)
+- **Friendlies: Algeria's three challenges during the March international break**: [Link](https://foot-africa.com/en/news/friendlies-algerias-three-challenges-during-the-march-international-break-1141724/)
+- **Football FIFA 2026: The Fennecs pull ahead on the scoreboard**: [Link](https://en.africatopsports.com/2026/03/27/fifa-2026-the-fennecs-pull-ahead-on-the-scoreboard/)
+
+
+### مباريات اليوم مباشر (N/A, Fri, 27 Mar 2026 13:40:00 -0700)
+
+- **جدول مباريات اليوم الجمعة 27 مارس 2026 .. والقنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-27-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltf34284396f2de2a4)
+- **مواعيد مباريات اليوم الجمعة والقنوات الناقلة.. منتخب مصر يواجه السعودية وديا**: [Link](https://www.almasryalyoum.com/news/details/4230758)
+- **مواعيد مباريات اليوم الجمعة 27-3-2026 في ملاعب العالم**: [Link](https://www.youm7.com/story/2026/3/27/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-27-3-2026-%D9%81%D9%8A-%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/7353994)
+
+
+### caicedo (N/A, Fri, 27 Mar 2026 13:40:00 -0700)
+
+- **"Para nosotros ya no es sólo clasificar". Moisés Caicedo clarísimo sobre sus responsabilidades con La Tri**: [Link](https://onefootball.com/pt-br/noticias/para-nosotros-ya-no-es-solo-clasificar-moises-caicedo-clarisimo-sobre-sus-responsabilidades-con-la-tri-42624866)
+- **Una selección sin miedo, pero con cuentas pendientes**: [Link](https://www.ecuavisa.com/opinion-estadio/una-seleccion-sin-miedo-pero-con-cuentas-pendientes-20260325-0059.html)
+- **Pide Beccacece revisar sanción a Caicedo rumbo al Mundial -**: [Link](https://elcomentario.ucol.mx/?p=309102)
+
+
+### live match (N/A, Fri, 27 Mar 2026 13:40:00 -0700)
+
+- **Greece vs Paraguay: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cp8dxxp5rz6t)
+- **Preview: Greece vs Paraguay - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/greece/preview/greece-vs-paraguay-prediction-team-news-lineups_594478.html)
+- **Greece vs Paraguay - live score, predicted lineups and H2H stats**: [Link](https://www.fotmob.com/en-GB/matches/greece-vs-paraguay/1f5cky)
+
+
+### hakimi (N/A, Fri, 27 Mar 2026 13:30:00 -0700)
+
+- **Hakimi no piensa irse del PSG: Su agente enfría rumores de traspaso**: [Link](https://es.rue20.com/2026/03/25/hakimi-no-piensa-irse-del-psg-su-agente-enfria-rumores-de-traspaso/)
+- **Achraf no piensa en fichar por el Real Madrid**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20260325/1004159143/achraf-piensa-fichar-real-madrid.html)
+- **El Madrid pone la mira el fichaje de uno de los grandes socios de Mbappé**: [Link](https://www.si.com/es-us/futbol/el-madrid-pone-la-mira-el-fichaje-de-uno-de-los-grandes-socios-de-mbappe)
+
+
 ### كورة لايف (N/A, Fri, 27 Mar 2026 13:10:00 -0700)
 
 - **مباشر.. مباراة الجزائر ضد غواتيمالا الودية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%BA%D9%88%D8%A7%D8%AA%D9%8A%D9%85%D8%A7%D9%84%D8%A7)
