@@ -1,3 +1,24 @@
+### snrt (N/A, Fri, 27 Mar 2026 07:10:00 -0700)
+
+- **Autonomie au Sahara : pourquoi le droit international donne raison au Maroc, selon Pr Abouddahab**: [Link](https://medias24.com/2026/03/25/autonomie-au-sahara-pourquoi-le-droit-international-donne-raison-au-maroc-selon-pr-abouddahab-1648066/)
+- **Entretien. La Pologne réitère son soutien à l’autonomie sous souveraineté marocaine**: [Link](https://fr.le360.ma/politique/entretien-la-pologne-reitere-son-soutien-a-lautonomie-sous-souverainete-marocaine_A7R6FKZWDNAGJNJGBYAXTEZWBY/)
+- **Sahara marocain : le Costa Rica considère l’autonomie sous souveraineté marocaine comme la solution la plus réalisable**: [Link](https://lematin.ma/nation/sahara-le-costa-rica-soutient-lautonomie-sous-souverainete-marocaine/336977)
+
+
+### arryadia (N/A, Fri, 27 Mar 2026 07:00:00 -0700)
+
+- **المنتخب الوطني يجري آخر حصة تدريبية قبل مواجهة الإكوادور**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1)
+- **ما القنوات الناقلة لمباراة المغرب والإكوادور الودية استعدادًا لكأس العالم 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%8B%D8%A7-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5e4e101fa0f1c8c3)
+- **نخبة الإكوادور تمتحن "أسود الأطلس"**: [Link](https://www.hespress.com/%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1-%D8%AA%D9%85%D8%AA%D8%AD%D9%86-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1721230.html)
+
+
+### match maroc (N/A, Fri, 27 Mar 2026 05:10:00 -0700)
+
+- **Matchs amicaux des Lions de l’Atlas: Arrivée de la délégation Marocaine à Madrid – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AD%D9%84-%D8%A8%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/)
+- **Maroc-Équateur : quelle heure, quelles chaînes - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/03/27/maroc-equateur-quelle-heure-quelles-chaines-1649037/)
+- **Match Maroc-Équateur : à quelle heure et sur quelles chaînes ?**: [Link](https://lematin.ma/sports/match-maroc-equateur-a-quelle-heure-et-sur-quelles-chaines/336872)
+
+
 ### maroc foot (N/A, Fri, 27 Mar 2026 06:40:00 -0700)
 
 - **CAN 2025: le Maroc veut mettre le trophée "sous séquestre" et menace le Sénégal de poursuites en cas de présentation du trophée au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-maroc-veut-mettre-le-trophee-sous-sequestre-et-menace-le-senegal-de-poursuites-en-cas-de-presentation-du-trophee-au-stade-de-france_AV-202603270260.html)
