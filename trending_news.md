@@ -1,3 +1,52 @@
+### كورة لايف (N/A, Fri, 27 Mar 2026 13:10:00 -0700)
+
+- **مباشر.. مباراة الجزائر ضد غواتيمالا الودية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%BA%D9%88%D8%A7%D8%AA%D9%8A%D9%85%D8%A7%D9%84%D8%A7)
+- **"حسرة ومنافسة صعبة".. رسالة نارية من حسام عوار قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B3%D8%B1%D8%A9-%D9%88%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9--%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D9%86-%D8%AD%D8%B3%D8%A7%D9%85-%D8%B9%D9%88%D8%A7%D8%B1-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt7f28de3c85d60d23)
+- **بيتكوفيتش: معيار الاختيار هو الجاهزية والمستوى الفني**: [Link](https://www.el-massa.com/dz/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%81%D9%8A%D8%AA%D8%B4-%D9%85%D8%B9%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D9%87%D9%88-%D8%A7%D9%84%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D8%A7%D9%84%D9%81%D9%86%D9%8A)
+
+
+### bein sport (N/A, Fri, 27 Mar 2026 13:10:00 -0700)
+
+- **BeIN Sports returns to commercial venues in Australia through Foxtel deal**: [Link](https://www.sportcal.com/news/bein-sports-returns-to-commercial-venues-in-australia-through-foxtel-deal/)
+- **European Football returns to Aussie Pubs in new broadcast deal**: [Link](https://tvblackbox.com.au/?p=192736)
+- **Maximising every moment of live sport**: [Link](https://clubmanagement.com.au/?post_type=sponsored_content&p=54864)
+
+
+### bein sport live (N/A, Fri, 27 Mar 2026 13:10:00 -0700)
+
+- **Bolivia pull off comeback against Suriname to meet Iraq for spot in World Cup**: [Link](https://www.flashscore.com/news/bolivia-suriname-world-cup-intercontinental-play-off-report-2026-03-26/bNpVS0Gs/)
+- **Even if he's a candidate for the K League 2, he's a "front-line striker" at Korea National University... Bolivia, led by Enzo in Cheongju, North Chungcheong Province, wins 2-1 Theater Reversal Over Suriname**: [Link](https://www.starnewskorea.com/en/sports/2026/03/27/2026032716100787014)
+- **Fans celebrate Bolivia's victory over Suriname and dream of qualifying for a second World Cup**: [Link](https://ca.news.yahoo.com/fans-celebrate-bolivias-victory-over-061825267.html)
+
+
+### sports (N/A, Fri, 27 Mar 2026 13:10:00 -0700)
+
+- **Fox News Poll: Fans say paywalled sports are out of bounds**: [Link](https://www.foxnews.com/sports/fox-news-poll-fans-say-paywalled-sports-out-bounds)
+- **Watching Live Sports Shouldn't Be This Hard, Confusing, and Expensive**: [Link](https://www.outkick.com/analysis/watching-live-sports-shouldnt-hard-confusing-expensive)
+- **Contact the FCC about keeping sports on local broadcast TV**: [Link](https://who13.com/on-air/seen-on-tv/contact-the-fcc-about-keeping-sports-on-local-broadcast-tv/)
+
+
+### dazn (N/A, Fri, 27 Mar 2026 13:10:00 -0700)
+
+- **Oscar De La Hoya hails ‘truly remarkable’ DAZN deal**: [Link](https://www.boxingscene.com/articles/oscar-de-la-hoya-hails-dazn-deal-as-truly-remarkable)
+- **Golden Boy Promotions, DAZN reach multi-year extension**: [Link](https://www.ringmagazine.com/news/golden-boy-promotions-dazn-reach-multi-year-extension-bAyTZE1a8IxmE7CAEkwtU)
+- **‘We’re firing on all cylinders right now’: Oscar De La Hoya fires defiant message**: [Link](https://bigfightweekend.com/news/oscar-de-la-hoya-reacts-dazn-deal/)
+
+
+### koora (N/A, Fri, 27 Mar 2026 13:00:00 -0700)
+
+- **دي لا فوينتي يفاجئ خوان جارسيا بقرار صادم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A-%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%AE%D9%88%D8%A7%D9%86-%D8%AC%D8%A7%D8%B1%D8%B3%D9%8A%D8%A7-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%B5%D8%A7%D8%AF%D9%85/blt10d71331409d3956)
+- **مؤتمر لويس دي لا فوينتي قبل مواجهة إسبانيا ضد صربيا الودية**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D9%84%D9%88%D9%8A%D8%B3-%D8%AF%D9%8A-%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7/)
+- **القناة الناقلة لمباراة إسبانيا وصربيا الودية اليوم**: [Link](https://www.btolat.com/news/396514)
+
+
+### algérie – guatemala (N/A, Fri, 27 Mar 2026 12:50:00 -0700)
+
+- **Algérie: Luca Zidane écarté, c’est officiel**: [Link](https://www.sports.fr/football/international/algerie-luca-zidane-ecarte-cest-officiel-1001762.html)
+- **Algérie – Guatemala en direct**: [Link](https://www.football365.fr/algerie-guatemala-en-direct-10286622.html)
+- **À quelle heure et sur quelle chaîne voir le match amical entre Algérie et Guatemala ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-algerie-guatemala/1662410)
+
+
 ### الأردن ضد كوستاريكا (N/A, Fri, 27 Mar 2026 12:30:00 -0700)
 
 - **موعد مباراة الأردن ضد كوستاريكا الودية والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/3/26/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%B6%D8%AF-%D9%83%D9%88%D8%B3%D8%AA%D8%A7%D8%B1%D9%8A%D9%83%D8%A7)
