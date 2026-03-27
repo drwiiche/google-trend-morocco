@@ -1,3 +1,50 @@
+### afrique du sud – panama (N/A, Fri, 27 Mar 2026 12:00:00 -0700)
+
+- **Oswin Appollis marque alors que les Bafana se contentent d'un nul contre le Panama**: [Link](https://foot-africa.com/actualites/oswin-appollis-marque-alors-que-les-bafana-se-contentent-dun-nul-contre-le-panama-1142297/)
+- **Amical : l’Afrique du Sud menée à la mi-temps par le Panama (0-1)**: [Link](https://www.africatopsports.com/2026/03/27/lafrique-du-sud-menee-a-la-mi-temps-panama-0-1/)
+- **Pronostic Afrique du Sud Panama GRATUIT - Matchs Amicaux internationaux 27/03/2026**: [Link](https://www.ruedesjoueurs.com/pronostic/afrique-du-sud-panama-5267352.html)
+
+
+### السعودية ضد مصر (N/A, Fri, 27 Mar 2026 11:50:00 -0700)
+
+- **فيديو: إسلام عيسى يكافئ حسام حسن بلدغة استثنائية أمام السعودية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%95%D8%B3%D9%84%D8%A7%D9%85-%D8%B9%D9%8A%D8%B3%D9%89-%D9%8A%D9%83%D8%A7%D9%81%D9%8A%D9%94-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D8%A8%D9%84%D8%AF%D8%BA%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/blt37ed85cbb7197d85)
+- **مباشر مباراة السعودية ومصر الودية.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%AF%D9%8A%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9)
+- **«فضلت الاعتذار فى البداية».. حسام حسن يكشف سبب تخوفه من مواجهة إسبانيا**: [Link](https://www.almasryalyoum.com/news/details/4230441)
+
+
+### saudi arabia vs egypt (N/A, Fri, 27 Mar 2026 11:50:00 -0700)
+
+- **Pistons 129-108 Pelicans (27 Mar, 2026) Game Recap**: [Link](https://www.espn.in/nba/recap/_/gameId/401810919)
+- **Brian Windhorst & The Hoop Collective - Celtics Most Consequential Win Of Year? + Adam Silver Takes a Major Stand**: [Link](https://www.espn.com/espnradio/play?id=48319615)
+- **Futbol Americas - Futbol Americas: USMNT camp exclusives with Gio Reyna, Brenden Aaronson, and Ricardo Pepi**: [Link](https://www.espn.com/espnradio/play?id=48319311)
+
+
+### bolivia (N/A, Fri, 27 Mar 2026 11:50:00 -0700)
+
+- **Bolivia vs Suriname: FIFA World Cup Qualifying - Intercontinental stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx230dv6nz4t)
+- **Bolivia’s youthful reinvention takes them to brink of World Cup, but Iraq have cause to believe - The Athletic**: [Link](https://www.nytimes.com/athletic/7151052/2026/03/27/bolivia-world-cup-qualification-suriname/)
+- **Bolivia 2-1 Suriname (Mar 26, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/761387)
+
+
+### maroc (N/A, Fri, 27 Mar 2026 11:40:00 -0700)
+
+- **CAN 2025 : un ancien counsel du TAS rejoint la défense du Maroc face au Sénégal**: [Link](https://medias24.com/2026/03/27/can-2025-un-ancien-counsel-du-tas-rejoint-la-defense-du-maroc-face-au-senegal-1649365/)
+- **CAN 2025 : comment la CAF a déclaré le Sénégal perdant sans pour autant attribuer son titre au Maroc**: [Link](https://www.jeuneafrique.com/1783711/politique/can-2025-comment-la-caf-a-declare-le-senegal-perdant-sans-pour-autant-attribuer-son-titre-au-maroc/)
+- **CAN 2025 : une finale qui se rejoue devant les juges**: [Link](https://www.lebrief.ma/can-2025-une-finale-qui-se-rejoue-devant-les-juges-100146046/)
+
+
+### egypt vs saudi arabia (N/A, Fri, 27 Mar 2026 11:40:00 -0700)
+
+- **Saudi Arabia vs Egypt: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c4g6zzv76pjt)
+- **Hossam Hassan Reveals Behind the Scenes of Egypt National Team Preparations**: [Link](https://www.ysscores.com/en/news/13934321/Hossam-Hassan-Reveals-Behind-the-Scenes-of-Egypt-National-Team-Preparations)
+- **This weekend: the Pharaohs and Saudi Arabia go head-to-head + the race for the World Cup kicks off**: [Link](https://enterpriseam.com/egypt/2026/03/26/this-weekend-the-pharaohs-and-saudi-arabia-go-head-to-head-the-race-for-the-world-cup-kicks-off/)
+
+
+### jordanie – costa rica (N/A, Fri, 27 Mar 2026 11:20:00 -0700)
+
+
+
+
 ### u17 (N/A, Fri, 27 Mar 2026 06:50:00 -0700)
 
 - **Starke Kämpfe von Aaron Wucherer bei der DM U17**: [Link](https://www.schwaebische.de/regional/tuttlingen/heimat/starke-kaempfe-von-aaron-wucherer-bei-der-dm-u17-4447103)
