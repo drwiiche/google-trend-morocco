@@ -1,3 +1,31 @@
+### مي عز الدين (N/A, Fri, 27 Mar 2026 08:10:00 -0700)
+
+- **مي عز الدين تظهر لأول مرة بعد أزمتها الصحية.. وزوجها يعلق**: [Link](https://www.alarabiya.net/culture-and-art/2026/03/27/%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%AA%D8%B8%D9%87%D8%B1-%D9%84%D8%A7%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B2%D9%85%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%88%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%85%D9%86-%D8%B2%D9%88%D8%AC%D9%87%D8%A7)
+- **أحمد تيمور يوجه رسالة حب ودعم لمي عز الدين بعد تعافيها**: [Link](https://darelhilal.com/News/3203607.aspx)
+- **محطات هامة فى مسيرة مي عز الدين.. بعد تصدرها التريند عقب شفائها**: [Link](https://www.youm7.com/story/2026/3/27/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D9%87%D8%A7%D9%85%D8%A9-%D9%81%D9%89-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%AF%D8%B1%D9%87%D8%A7-%D8%A7%D9%84%D8%AA%D8%B1%D9%8A%D9%86%D8%AF/7355234)
+
+
+### morocco vs algeria (N/A, Fri, 27 Mar 2026 07:50:00 -0700)
+
+- **Morocco U17 vs Algeria U17: How and When to Watch UNAF Match**: [Link](https://www.moroccoworldnews.com/2026/03/284491/morocco-u17-vs-algeria-u17-how-and-when-to-watch-unaf-match/)
+- **North Africa Championship for Juniors Under 17 in Benghazi Friday: Tunisia/Egypt - Algeria Morocco**: [Link](https://libyaupdate.com/north-africa-championship-for-juniors-under-17-in-benghazi-friday-tunisia-egypt-algeria-morocco/)
+- **Young Pharaohs eye Africa U-17 Cup spot**: [Link](https://egyptian-gazette.com/sports/young-pharaohs-eye-africa-u-17-cup-spot/)
+
+
+### منتخب المغرب لكرة القدم (N/A, Fri, 27 Mar 2026 07:50:00 -0700)
+
+- **الأحزان تتوالى على جماهير المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%B2%D8%A7%D9%86-%D8%AA%D8%AA%D9%88%D8%A7%D9%84%D9%89-%D8%B9%D9%84%D9%89-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blta7723affbc76cd2d)
+- **المنتخب الوطني لاقل من 16 سنة ينهزم امام النرويج**: [Link](https://frmf.ma/ar/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-16-%D8%B3%D9%86%D8%A9-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A7%D9%85%D8%A7%D9%85-2/)
+- **منتخب "U16" ينهزم أمام النرويج**: [Link](https://www.hesport.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u16-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-432371.html)
+
+
+### مباراة المغرب اليوم مباشر (N/A, Fri, 27 Mar 2026 07:20:00 -0700)
+
+- **جدول مباريات اليوم الجمعة 27 مارس 2026 .. والقنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-27-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltf34284396f2de2a4)
+- **مواعيد مباريات اليوم الجمعة والقنوات الناقلة.. منتخب مصر يواجه السعودية وديا**: [Link](https://www.almasryalyoum.com/news/details/4230758)
+- **ابرز الاحداث الرياضية ليوم الجمعة في 27-03-2026**: [Link](https://www.elsport.com/news/show/817221/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-27-03-2026)
+
+
 ### snrt (N/A, Fri, 27 Mar 2026 07:10:00 -0700)
 
 - **Autonomie au Sahara : pourquoi le droit international donne raison au Maroc, selon Pr Abouddahab**: [Link](https://medias24.com/2026/03/25/autonomie-au-sahara-pourquoi-le-droit-international-donne-raison-au-maroc-selon-pr-abouddahab-1648066/)
