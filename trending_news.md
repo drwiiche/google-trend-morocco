@@ -1,3 +1,24 @@
+### kick (N/A, Thu, 26 Mar 2026 20:20:00 -0700)
+
+- **Working Smart as Opposed to Hard: The Kick Partners Program**: [Link](https://egamersworld.com/blog/working-smart-as-opposed-to-hard-the-kick-partners-91gtqOZQMC)
+- **Girl Scout cookie sales kick off Friday**: [Link](https://www.krem.com/article/news/local/girl-scout-cookie-sales-kick-off-friday/293-cc3b17f3-7c48-42b1-9e03-7e29af33835e)
+- **Girl Scouts charm their customers with cookies**: [Link](https://www.lvpnews.com/20260326/girl-scouts-charm-theircustomerswith-cookies/)
+
+
+### donald trump (N/A, Thu, 26 Mar 2026 18:40:00 -0700)
+
+- **Iran war live: Trump delays attacks on Iranian energy sector by 10 days**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/27/iran-war-live-trump-delays-attacks-on-iranian-energy-sector-by-10-days)
+- **Live updates: Trump says US won’t strike Iranian energy sites for 10 days**: [Link](https://www.cnn.com/2026/03/27/world/live-news/iran-war-us-israel-trump)
+- **Iran Live Updates: Trump Extends Deadline for Iran to Open Strait of Hormuz or Face Power Grid Strikes**: [Link](https://www.nytimes.com/live/2026/03/26/world/iran-war-israel-trump-oil)
+
+
+### italie vs (N/A, Thu, 26 Mar 2026 14:30:00 -0700)
+
+- **Pays de Galles 1-1 Bosnie-Herzégovine, Qualif. CM Europe : résumé du match (26/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/qualif-cm-europe/2026/pays-de-galles-bosnie-herzegovine-live/688998)
+- **Barrages Mondial 2026 : la Bosnie affrontera l’Italie après sa victoire face au Pays de Galles**: [Link](https://www.footmercato.net/a3267457777848153288-barrages-mondial-2026-la-bosnie-affrontera-litalie-apres-sa-victoire-face-au-pays-de-galles)
+- **Coupe du monde 2026 (Barrages) : La folle accusation du sélectionneur bosnien : Sports - Orange**: [Link](https://sports.orange.fr/football/coupe-du-monde/article/coupe-du-monde-2026-barrages-la-folle-accusation-du-selectionneur-bosnien-exclu-CNT000002o0EZt.html)
+
+
 ### bolivia vs suriname (N/A, Thu, 26 Mar 2026 16:50:00 -0700)
 
 - **Mexico Bolivia WCup Playoffs Soccer**: [Link](https://www.couriernews.com/sports/mexico-bolivia-wcup-playoffs-soccer/image_82cdabbf-e972-5d33-a4af-d81c03eb54c2.html)
