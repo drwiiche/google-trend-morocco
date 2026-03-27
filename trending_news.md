@@ -1,3 +1,24 @@
+### angleterre – uruguay (N/A, Fri, 27 Mar 2026 15:10:00 -0700)
+
+- **DIRECT. Angleterre-Uruguay (Matches amicaux A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/angleterre-uruguay-live/688949)
+- **L’Uruguay de Bielsa au bord de la mutinerie avant son match contre l’Algérie**: [Link](https://www.football365.fr/uruguay-bielsa-crise-10286586.html)
+- **Matches amicaux : suivez Angleterre-Uruguay EN DIRECT !**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/angleterre-uruguay_mtc1661549/live-commentary.shtml)
+
+
+### pacho (N/A, Fri, 27 Mar 2026 14:50:00 -0700)
+
+- **El ecuatoriano Pacho sobre el enfrentamiento con su compañero Hakimi: "Hablamos sobre quién ganaría y el partido contra Marruecos nos ayudará a prepararnos bien para el Mundial"**: [Link](https://m.elbotola.com/es/article/2026-03-24-22-56-804.html)
+- **Willian Pacho previo al amistoso ante Marruecos: “Va a ser un rival de alto nivel y un lindo reto para nosotros”**: [Link](https://www.eluniverso.com/deportes/futbol/willian-pacho-previo-al-amistoso-ante-marruecos-va-a-ser-un-rival-de-alto-nivel-y-un-lindo-reto-para-nosotros-nota/)
+- **Willian Pacho, de Ecuador, habló del Mundial: 'queremos llegar lo más lejos posible'**: [Link](https://www.teleamazonas.com/mundial/willian-pacho-ecuador-hablo-mundial-queremos-llegar-lejos-posible-112887/)
+
+
+### live (N/A, Fri, 27 Mar 2026 14:00:00 -0700)
+
+- **Olympic champs Fournier Beaudry and Cizeron lead ice dance at the figure skating worlds**: [Link](https://www.cbc.ca/lite/story/9.7144678)
+- **ISU World Figure Skating Championships 2026: Piper Gilles/Paul Poirier swap van Gogh for Brontë to create new magic in Prague**: [Link](https://www.olympics.com/en/news/isu-world-figure-skating-championships-2026-piper-gilles-paul-poirier-van-gogh-bronte-wuthering-heights-prague-interview)
+- **APTOPIX Czech Republic World Championships Figure Skating**: [Link](https://www.couriernews.com/sports/aptopix-czech-republic-world-championships-figure-skating/image_9c7b1ed6-25d5-54b3-8637-62992eac8852.html)
+
+
 ### england vs uruguay (N/A, Fri, 27 Mar 2026 14:50:00 -0700)
 
 - **England v Uruguay buildup, Klopp hails Salah’s Liverpool impact: football news – as it happened**: [Link](https://www.theguardian.com/football/live/2026/mar/27/world-cup-playoffs-heartbreak-and-joy-england-v-uruguay-football-live)
