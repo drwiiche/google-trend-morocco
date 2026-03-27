@@ -1,3 +1,38 @@
+### paraguay (N/A, Fri, 27 Mar 2026 15:20:00 -0700)
+
+- **Paraguay’s Economy Grew 6.6% in 2025, Fastest Pace in 12 Years**: [Link](https://www.bloomberg.com/news/articles/2026-03-27/paraguay-s-economy-grew-6-6-in-2025-fastest-pace-in-12-years)
+- **Paraguay GDP Annual Growth Eases in Q4**: [Link](https://www.tradingview.com/news/te_news:537163:0-paraguay-gdp-annual-growth-eases-in-q4/)
+- **Paraguay-Brazil Itaipu Treaty Talks Intensify: What Is At Stake?**: [Link](https://asunciontimes.com/paraguay-news/international-news/paraguay-brazil-itaipu-treaty-talks-intensify-what-is-at-stake/)
+
+
+### نتائج مباريات اليوم (N/A, Fri, 27 Mar 2026 15:20:00 -0700)
+
+- **أخبار | مباشر بطولة شمال إفريقيا للناشئين - مصر (1)-(0) تونس.. تبديلان**: [Link](https://www.filgoal.com/articles/526013/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D9%85%D8%B5%D8%B1-1-0-%D8%AA%D9%88%D9%86%D8%B3-%D8%AA%D8%A8%D8%AF%D9%8A%D9%84%D8%A7%D9%86)
+- **تحكيم مغربي حاضر في بنغازي الليبية**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%AD%D8%A7%D8%B6%D8%B1-%D9%81%D9%8A-%D8%A8%D9%86%D8%BA%D8%A7%D8%B2%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%A8%D9%8A%D8%A9-1720132.html)
+- **جدول الترتيب ونتائج مباريات اليوم الجمعة في بطولة شمال إفريقيا للمنتخبات تحت 17 سنة 2026 - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/329491674264543-%D8%AC%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%88%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%AA%D8%AD%D8%AA-17-%D8%B3%D9%86%D8%A9-2026/)
+
+
+### classement fifa 2026 (N/A, Fri, 27 Mar 2026 15:20:00 -0700)
+
+- **CAN 2025 : un ancien counsel du TAS rejoint la défense du Maroc face au Sénégal**: [Link](https://medias24.com/2026/03/27/can-2025-un-ancien-counsel-du-tas-rejoint-la-defense-du-maroc-face-au-senegal-1649365/)
+- **CAN 2025: un avocat marocain veut mettre le trophée "sous séquestre" et menace le Sénégal de poursuites en cas de présentation du trophée au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-maroc-veut-mettre-le-trophee-sous-sequestre-et-menace-le-senegal-de-poursuites-en-cas-de-presentation-du-trophee-au-stade-de-france_AV-202603270260.html)
+- **CAN 2025 : comment la CAF a déclaré le Sénégal perdant sans pour autant attribuer son titre au Maroc**: [Link](https://www.jeuneafrique.com/1783711/politique/can-2025-comment-la-caf-a-declare-le-senegal-perdant-sans-pour-autant-attribuer-son-titre-au-maroc/)
+
+
+### algeria (N/A, Fri, 27 Mar 2026 15:20:00 -0700)
+
+- **Algeria's U-20s hold first training session in Cairo**: [Link](https://www.aps.dz/en/sports/team-sports/mn7iv03c-algeria-s-u-20s-hold-first-training-session-in-cairo)
+- **Egypt U-20: Double-header scheduled against Algeria**: [Link](https://foot-africa.com/en/news/egypt-u-20-double-header-scheduled-against-algeria-1137647/)
+- **24 players named for two friendlies against Egypt in Cairo**: [Link](https://www.aps.dz/en/sports/team-sports/mn1p6eyl-24-players-named-for-two-friendlies-against-egypt-in-cairo)
+
+
+### ecuador vs argentina (N/A, Fri, 27 Mar 2026 15:10:00 -0700)
+
+- **Mauritania, una de las últimas pruebas de Argentina antes del Mundial**: [Link](https://onefootball.com/en/news/mauritania-una-de-las-ultimas-pruebas-de-argentina-antes-del-mundial-42625519)
+- **Scaloni dijo que la suspensión de la Finalissima "no es culpa de nadie"**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20260327-scaloni-dijo-que-la-suspensi%C3%B3n-de-la-finalissima-no-es-culpa-de-nadie)
+- **El seleccionador argentino, Lionel Scaloni, declaró: "Haré todo lo posible para que Messi esté en el Mundial"**: [Link](https://tribuna.com/es/news/2026-03-27-el-seleccionador-argentino-lionel-scaloni-declaro-hare-todo-lo-posible-para-que-messi-est/)
+
+
 ### angleterre – uruguay (N/A, Fri, 27 Mar 2026 15:10:00 -0700)
 
 - **DIRECT. Angleterre-Uruguay (Matches amicaux A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/angleterre-uruguay-live/688949)
