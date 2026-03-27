@@ -1,3 +1,45 @@
+### الأردن ضد كوستاريكا (N/A, Fri, 27 Mar 2026 12:30:00 -0700)
+
+- **موعد مباراة الأردن ضد كوستاريكا الودية والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/3/26/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%B6%D8%AF-%D9%83%D9%88%D8%B3%D8%AA%D8%A7%D8%B1%D9%8A%D9%83%D8%A7)
+- **السلامي: الأردن سيفاجئ الكثيرين في كأس العالم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86-%D8%B3%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%84%D9%83%D8%AB%D9%8A%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/blt59d82aac9c6174b7)
+- **بث مباشر لحظة بلحظة: مباراة السعودية ومصر الودية 2026**: [Link](https://al-ain.com/article/saudi-arabia-egypt-friendly-match-live-2026)
+
+
+### jordan vs costa rica (N/A, Fri, 27 Mar 2026 12:30:00 -0700)
+
+- **Blasts heard in southern Beirut – as it happened**: [Link](https://www.theguardian.com/world/live/2026/mar/26/iran-war-live-updates-trump-deal-us-military-strikes-israel-lebanon-hezbollah)
+- **Israel's military to occupy swathe of southern Lebanon, defence minister says**: [Link](https://www.reuters.com/world/middle-east/israels-military-occupy-swathe-southern-lebanon-defence-chief-says-2026-03-24/)
+- **Monaco prepares for visit by Pope Leo**: [Link](https://www.reutersconnect.com/item/monaco-prepares-for-visit-by-pope-leo/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMjNES0E5S0g2Nw)
+
+
+### sénégal – maroc (N/A, Fri, 27 Mar 2026 12:30:00 -0700)
+
+- **CAN 2025 : un ancien counsel du TAS rejoint la défense du Maroc face au Sénégal**: [Link](https://medias24.com/2026/03/27/can-2025-un-ancien-counsel-du-tas-rejoint-la-defense-du-maroc-face-au-senegal-1649365/)
+- **«Chez nous, les trophées se gagnent sur le terrain» : Pape Thiaw et le Sénégal envoient un nouveau message au Maroc**: [Link](https://www.footmercato.net/a5072992595865734357-chez-nous-les-trophees-se-gagnent-sur-le-terrain-pape-thiaw-et-le-senegal-envoient-un-nouveau-message-au-maroc)
+- **CAN 2025 : comment la CAF a déclaré le Sénégal perdant sans pour autant attribuer son titre au Maroc**: [Link](https://www.jeuneafrique.com/1783711/politique/can-2025-comment-la-caf-a-declare-le-senegal-perdant-sans-pour-autant-attribuer-son-titre-au-maroc/)
+
+
+### espagne foot (N/A, Fri, 27 Mar 2026 12:20:00 -0700)
+
+- **Espagne - Serbie en direct - Matches amicaux : Football Scores & Résultats - 27/03/2026**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/espagne-serbie_mtc20047509/live.shtml)
+- **Garcia (Gardien du Barça) : « Mon rêve est de gagner la Ligue des champions et la Coupe du monde**: [Link](https://m.elbotola.com/fr/article/2026-03-27-13-34-792.html)
+- **Interview. J.Salvador : "Joan Garciá, une intelligence spectaculaire"**: [Link](https://www.flashscore.fr/actualites/jesus-salvador-ce-que-nous-voyons-de-la-part-de-joan-garcia-est-la-pointe-d-un-enorme-iceberg/vXf53zve/)
+
+
+### ecuador (N/A, Fri, 27 Mar 2026 12:10:00 -0700)
+
+- **La selección marroquí finaliza sus preparativos para enfrentar a Ecuador mañana viernes**: [Link](https://m.elbotola.com/es/article/2026-03-26-22-28-650.html)
+- **Madrid desplegará cerca de 1.000 efectivos para garantizar la seguridad del Marruecos-Ecuador**: [Link](https://es.rue20.com/2026/03/26/madrid-desplegara-cerca-de-1-000-efectivos-para-garantizar-la-seguridad-del-marruecos-ecuador/)
+- **Senegal, el amargo recuerdo de Ecuador en su último enfrentamiento ante una selección africana**: [Link](https://www.eluniverso.com/deportes/futbol/senegal-el-amargo-recuerdo-de-ecuador-en-su-ultimo-enfrentamiento-ante-una-seleccion-africana-nota/)
+
+
+### morocco (N/A, Fri, 27 Mar 2026 12:10:00 -0700)
+
+- **Morocco to invest $4 billion in hotels ahead of 2030 World Cup**: [Link](https://en.hespress.com/134561-morocco-to-invest-4-billion-in-hotels-ahead-of-2030-world-cup.html)
+- **Tourism: Over 1.3 million arrivals in January 2026**: [Link](https://en.yabiladi.com/articles/details/190998/tourism-over-million-arrivals-january.html)
+- **ONMT Hosts US Tourism Leaders, Boosting Confidence in Morocco as a Key Destination**: [Link](https://www.moroccoworldnews.com/2026/03/284427/onmt-hosts-us-tourism-leaders-boosting-confidence-in-morocco-as-a-key-destination/)
+
+
 ### afrique du sud – panama (N/A, Fri, 27 Mar 2026 12:00:00 -0700)
 
 - **Oswin Appollis marque alors que les Bafana se contentent d'un nul contre le Panama**: [Link](https://foot-africa.com/actualites/oswin-appollis-marque-alors-que-les-bafana-se-contentent-dun-nul-contre-le-panama-1142297/)
