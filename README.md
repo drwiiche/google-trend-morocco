@@ -1,3 +1,37 @@
+### byd (N/A, Fri, 27 Mar 2026 14:20:00 -0700)
+
+- **BYD Delivers Steeper-Than-Expected Profit Drop Amid EV Price War**: [Link](https://www.bloomberg.com/news/articles/2026-03-27/byd-delivers-steeper-than-expected-profit-drop-amid-ev-price-war)
+- **Tesla Rival Skids As Profit Dives. Will It Recover In A Flash?**: [Link](https://www.investors.com/news/byd-stock-earnings-tesla-ev-rival/)
+- **BYD's annual profit drops for first time in four years as price war hurts margins**: [Link](https://www.reuters.com/world/asia-pacific/chinese-ev-maker-byd-posts-first-annual-profit-decline-four-years-2026-03-27/)
+
+
+### شادي رياض (N/A, Fri, 27 Mar 2026 14:10:00 -0700)
+
+- **شوط مقبول جدا لعيسى وشادي رياض**: [Link](https://www.almountakhab.com/node/13223960)
+- **شادي رياض الذي عاد من بعيد كيف سيتم توظيف؟**: [Link](https://inews.ma/news/8223570)
+
+
+### groupe coupe du monde 2026 (N/A, Fri, 27 Mar 2026 14:10:00 -0700)
+
+- **Italie 2-0 Irlande du Nord, Qualif. CM Europe : résumé du match (26/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/qualif-cm-europe/2026/italie-irlande-du-nord-live/688997)
+- **On connaît toutes les finales de barrages de la Coupe du Monde 2026**: [Link](https://www.footmercato.net/a9047227050580292961-on-connait-toutes-les-finales-de-barrages-de-la-coupe-du-monde-2026)
+- **Barrages Mondial 2026 : l’Italie assure l’essentiel face à l’Irlande du Nord, la Turquie s’impose contre la Roumanie**: [Link](https://www.lesoir.be/737140/article/2026-03-26/barrages-mondial-2026-litalie-assure-lessentiel-face-lirlande-du-nord-la-turquie)
+
+
+### senegal vs (N/A, Fri, 27 Mar 2026 14:10:00 -0700)
+
+- **Senegal-Peru Friendly Still Without Broadcaster Days Before Kickoff**: [Link](https://www.moroccoworldnews.com/2026/03/284374/senegal-peru-friendly-still-without-broadcaster-days-before-kickoff/)
+- **Everton may have Jack Grealish deja vu as Iliman Ndiaye injury confirmed**: [Link](https://www.goodisonnews.com/2026/03/27/everton-may-have-jack-grealish-deja-vu-as-iliman-ndiaye-injury-confirmed/)
+- **Senegal train ahead of Peru friendly in Paris**: [Link](https://www.themercury.com.au/sport/senegal-train-ahead-of-peru-friendly-in-paris/video/82b94410e114063d926396472cc54139)
+
+
+### wanda metropolitano (N/A, Fri, 27 Mar 2026 14:00:00 -0700)
+
+- **Más de 5.000 socios del Barça desbordan la demanda: locura total por las entradas de la vuelta de los cuartos de Champions League**: [Link](https://www.sport.es/es/noticias/barca/barcelonismo-desborda-demanda-locura-total-128486529)
+- **Avalancha de solicitudes para acompañar al Barça al Metropolitano en la Champions**: [Link](https://www.fcbarcelona.es/es/noticias/4477356/avalancha-de-solicitudes-para-acompanar-al-barca-al-metropolitano-en-la-champions)
+- **Vueling se suma a las opciones de viaje para ir al Atlético-Barça de la Champions**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260326/1004159975/vueling-suma-opciones-viaje-atletico-barca-champions.html)
+
+
 ### عيسى ديوب (N/A, Fri, 27 Mar 2026 13:50:00 -0700)
 
 - **أحدث وجوه منتخب المغرب: كنت أنتظر هذه اللحظة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AD%D8%AF%D8%AB-%D9%88%D8%AC%D9%88%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D9%86%D8%AA-%D8%A7%D9%94%D9%86%D8%AA%D8%B8%D8%B1-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A9/blt2fb80a217069765e)
