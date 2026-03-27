@@ -1,3 +1,17 @@
+### uruguay foot (N/A, Fri, 27 Mar 2026 16:10:00 -0700)
+
+- **Angleterre 1-1 Uruguay, Matches amicaux A : L'Angleterre bute sur l'Uruguay**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/angleterre-uruguay-live/688949)
+- **L'Angleterre marque puis flanche**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/match-amical-langleterre-et-luruguay-ont-fini-par-se-reveiller-1-1_sto23285222/story.shtml)
+- **L’Uruguay de Bielsa au bord de la mutinerie avant son match contre l’Algérie**: [Link](https://www.football365.fr/uruguay-bielsa-crise-10286586.html)
+
+
+### neil el aynaoui (N/A, Fri, 27 Mar 2026 14:50:00 -0700)
+
+- **Affaire Neil El Aynaoui: tous ces joueurs marocains qui ont subi des agressions**: [Link](https://fr.le360.ma/societe/affaire-neil-el-aynaoui-tous-ces-joueurs-marocains-qui-ont-subi-des-agressions_IY4CVE5OT5GUDBRVJMIO46RWXI/)
+- **Maroc-Équateur : quelle heure, quelles chaînes - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/03/27/maroc-equateur-quelle-heure-quelles-chaines-1649037/)
+- **Matchs amicaux des Lions de l’Atlas: Arrivée de la délégation Marocaine à Madrid – FRMF**: [Link](https://frmf.ma/fr/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AD%D9%84-%D8%A8%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/)
+
+
 ### paraguay (N/A, Fri, 27 Mar 2026 15:20:00 -0700)
 
 - **Paraguay’s Economy Grew 6.6% in 2025, Fastest Pace in 12 Years**: [Link](https://www.bloomberg.com/news/articles/2026-03-27/paraguay-s-economy-grew-6-6-in-2025-fastest-pace-in-12-years)
