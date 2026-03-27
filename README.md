@@ -1,3 +1,10 @@
+### elche – aston villa (N/A, Fri, 27 Mar 2026 05:10:00 -0700)
+
+- **Union de Santa Fe 2 v River Plate 2 (26/03/2026)**: [Link](https://www.flashscore.com/match/football/river-plate-f1POYPfj/union-de-santa-fe-IwiYo4sG/h2h/overall/?mid=x6T1g60m)
+- **Marseille - Lille 1:2**: [Link](https://www.flashscore.com/match/football/lille-pfDZL71o/marseille-SblU3Hee/standings/live-standings/?mid=EZdmhTIO)
+- **Stade Malien - Mamelodi Sundowns 2:0**: [Link](https://www.flashscore.co.za/match/soccer/mamelodi-sundowns-lxZ6Bzh6/stade-malien-dCu6JsVb/)
+
+
 ### instagram hacked (N/A, Fri, 27 Mar 2026 04:40:00 -0700)
 
 - **White House posts cryptic videos, deletes one, fueling speculation online**: [Link](https://www.cnbc.com/2026/03/26/trump-white-house-mysterious-videos-x-instagram.html)
