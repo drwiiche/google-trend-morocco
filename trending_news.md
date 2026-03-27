@@ -1,3 +1,17 @@
+### حالة الطقس اليوم (N/A, Thu, 26 Mar 2026 23:30:00 -0700)
+
+- **الأرصاد تكشف مفاجأة فى حالة الطقس: درجة الحرارة تتخطى 30 مئوية**: [Link](https://www.almasryalyoum.com/news/details/4230463)
+- **طقس اليوم بجنوب سيناء.. ارتفاع طفيف في درجات الحرارة**: [Link](https://www.cairo24.com/2394652)
+- **الأرصاد الجوية تعلن انتهاء التقلبات الجوية وغياب العواصف الترابية**: [Link](https://www.a5bar24h.com/10199/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7/)
+
+
+### aljazeera (N/A, Thu, 26 Mar 2026 23:30:00 -0700)
+
+- **Iran war updates: US, Israel attack ignites worst trade rupture in 80 years**: [Link](https://www.aljazeera.com/news/liveblog/2026/3/26/iran-war-live-us-demands-tehran-accept-defeat-israel-pounds-lebanon)
+- **Middle East war live: Oil steadies as Israel renews attacks on Tehran**: [Link](https://www.ft.com/content/ef7cb7f7-829c-499d-a075-52ac485e3de9?syn-25a6b1a6=1)
+- **Middle East war live: Iran launches strikes on Israel and Gulf sites**: [Link](https://www.france24.com/en/middle-east/20260327-middle-east-live-iran-launches-strikes-on-israel-and-gulf-sites)
+
+
 ### طقس اليوم (N/A, Thu, 26 Mar 2026 23:50:00 -0700)
 
 - **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-66-1721557.html)
