@@ -1,3 +1,59 @@
+### طقس اليوم (N/A, Thu, 26 Mar 2026 23:50:00 -0700)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-66-1721557.html)
+- **محكمة الاستئناف الإدارية تزكي قرار جامعة وجدة بشأن فرض رسوم الدكتوراه**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7/)
+- **زخات رعدية محليا قوية مع تساقط البرد يومي الخميس والجمعة بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%8A%D9%88%D9%85%D9%8A-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D9%88%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-20260326)
+
+
+### space exploration (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **NASA Unveils Initiatives to Achieve America’s National Space Policy**: [Link](https://www.nasa.gov/news-release/nasa-unveils-initiatives-to-achieve-americas-national-space-policy/)
+- **With Artemis Changes, Europe is Left Holding the Bag**: [Link](https://payloadspace.com/with-artemis-changes-europe-is-left-holding-the-bag/)
+- **Sky News Australia. . Sky News host Danica De Giorgio details US President Donald Trump’s plan to build a $20 billion moon base.**: [Link](https://www.facebook.com/SkyNewsAustralia/videos/space-race-trumps-plan-to-build-a-20-billion-moon-base/2528886587547890/)
+
+
+### artificial intelligence (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **Judge blocks Pentagon’s effort to ‘punish’ Anthropic by labeling it a supply chain risk**: [Link](https://www.cnn.com/2026/03/26/business/anthropic-pentagon-injunction-supply-chain-risk)
+- **Anthropic wins preliminary injunction in DOD fight as judge cites 'First Amendment retaliation'**: [Link](https://www.cnbc.com/2026/03/26/anthropic-pentagon-dod-claude-court-ruling.html)
+- **Federal judge sides with Anthropic in first round of standoff with Pentagon**: [Link](https://www.theguardian.com/us-news/2026/mar/26/anthropic-ai-pentagon)
+
+
+### climate change (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **How climate change has powered the heat wave blanketing much of the U.S.**: [Link](https://www.pbs.org/newshour/show/how-climate-change-has-powered-the-heat-wave-blanketing-much-of-the-u-s)
+- **A Hot Start to Spring in the Southwest**: [Link](https://science.nasa.gov/earth/earth-observatory/a-hot-start-to-spring-in-the-southwest/)
+- **More than 100 daily high temperature records are expected through Sunday, forecasts show**: [Link](https://www.cbsnews.com/news/high-temperature-records-expected-heat-wave-forecast/)
+
+
+### bitcoin price (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **Bitcoin Price Prediction: Here Is What You Need To Know About BTC Price Targets While Pepeto Listing Approaches**: [Link](https://financefeeds.com/bitcoin-price-prediction-here-is-what-you-need-to-know-about-btc-price-targets-while-pepeto-listing-approaches/)
+- **Best Crypto to Buy Now After Strategy Files $42 Billion as**: [Link](https://www.openpr.com/news/4442631/best-crypto-to-buy-now-after-strategy-files-42-billion-as)
+- **Bitcoin Hyper Price Prediction Faces 500x Pepeto as SEC Director Resigns While HYPER and Hexydog Trail**: [Link](https://captainaltcoin.com/bitcoin-hyper-price-prediction-faces-500x-pepeto-as-sec-director-resigns-while-hyper-and-hexydog-trail/)
+
+
+### deep learning (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **A generalizable deep learning system for cardiac MRI**: [Link](https://www.nature.com/articles/s41551-026-01637-3)
+- **Representative images of participants with difficulty with breath holding and arrhythmia**: [Link](https://www.eurekalert.org/multimedia/1121525)
+- **Study: AI Model Can Read Cardiac MRI Scans with Near Expert Accuracy**: [Link](https://www.itnonline.com/content/study-ai-model-can-read-cardiac-mri-scans-near-expert-accuracy)
+
+
+### world cup 2026 (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **Gattuso warning for Italy: ‘Bosnia have very experienced players’**: [Link](https://football-italia.net/gattuso-warning-for-italy-bosnia-experienced/)
+- **📸 Bosnia win on pens: Dimarco, Pio, Vicario celebrate! 😡**: [Link](https://sports.yahoo.com/articles/bosnia-win-penalties-dimarco-co-225900236.html)
+- **Italy to play Bosnia in 2026 World Cup playoff final, Kosovo face Turkiye**: [Link](https://www.aljazeera.com/sports/2026/3/27/italy-to-play-bosnia-in-2026-world-cup-playoff-final-kosovo-face-turkiye)
+
+
+### electric vehicles (N/A, Thu, 26 Mar 2026 23:40:00 -0700)
+
+- **Why $4 gas won’t spark an EV buying spree**: [Link](https://edition.cnn.com/2026/03/26/business/4-dollar-gas-impact-on-ev-sales)
+- **What to Know About Electric Cars When Gas Prices Are Surging**: [Link](https://www.nytimes.com/2026/03/21/business/energy-environment/gas-prices-electric-vehicles-iran.html)
+- **Iran War Is Pushing Consumers to Break Up With Fossil Fuels**: [Link](https://www.bloomberg.com/news/features/2026-03-26/war-oil-price-shock-sparks-new-interest-in-green-tech-around-the-world)
+
+
 ### kick (N/A, Thu, 26 Mar 2026 20:20:00 -0700)
 
 - **Working Smart as Opposed to Hard: The Kick Partners Program**: [Link](https://egamersworld.com/blog/working-smart-as-opposed-to-hard-the-kick-partners-91gtqOZQMC)
