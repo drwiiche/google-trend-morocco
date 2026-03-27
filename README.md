@@ -1,3 +1,24 @@
+### maroc foot (N/A, Fri, 27 Mar 2026 06:40:00 -0700)
+
+- **CAN 2025: le Maroc veut mettre le trophée "sous séquestre" et menace le Sénégal de poursuites en cas de présentation du trophée au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-maroc-veut-mettre-le-trophee-sous-sequestre-et-menace-le-senegal-de-poursuites-en-cas-de-presentation-du-trophee-au-stade-de-france_AV-202603270260.html)
+- **Avocats, spin doctors et questions sans réponse : les dessous de la contre-attaque sénégalaise**: [Link](https://mobile.telquel.ma/2026/03/26/avocats-spin-doctors-et-questions-sans-reponse-les-dessous-de-la-contre-attaque-senegalaise_1980888)
+- **CAM : Fin de la "voyoucratie sportive" sur les pelouses africaines : une avancée jurisprudentielle que la FSF tente d'obscurcir**: [Link](https://fr.hespress.com/467288-cam-fin-de-la-voyoucratie-sportive-sur-les-pelouses-africaines-une-avancee-jurisprudentielle-que-la-fsf-tente-dobscurcir.html)
+
+
+### مباريات اليوم المغرب (N/A, Fri, 27 Mar 2026 05:40:00 -0700)
+
+- **الأحزان تتوالى على جماهير المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%B2%D8%A7%D9%86-%D8%AA%D8%AA%D9%88%D8%A7%D9%84%D9%89-%D8%B9%D9%84%D9%89-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blta7723affbc76cd2d)
+- **المنتخب الوطني لاقل من 16 سنة ينهزم امام النرويج**: [Link](https://frmf.ma/ar/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D8%A7%D9%82%D9%84-%D9%85%D9%86-16-%D8%B3%D9%86%D8%A9-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A7%D9%85%D8%A7%D9%85-2/)
+- **منتخب "U16" ينهزم أمام النرويج**: [Link](https://www.hesport.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u16-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-432371.html)
+
+
+### morocco match (N/A, Fri, 27 Mar 2026 04:50:00 -0700)
+
+- **Morocco U-17 opens campaign with win over Tunisia**: [Link](https://en.hespress.com/134344-morocco-u-17-opens-campaign-with-win-over-tunisia.html)
+- **Morocco U17 vs Algeria U17: How and When to Watch UNAF Match**: [Link](https://www.moroccoworldnews.com/2026/03/284491/morocco-u17-vs-algeria-u17-how-and-when-to-watch-unaf-match/)
+- **Morocco U17 Concludes Preparations for Algeria Clash in UNAF Tournament**: [Link](https://m.elbotola.com/en/article/2026-03-26-13-32-30.html)
+
+
 ### elche – aston villa (N/A, Fri, 27 Mar 2026 05:10:00 -0700)
 
 - **Union de Santa Fe 2 v River Plate 2 (26/03/2026)**: [Link](https://www.flashscore.com/match/football/river-plate-f1POYPfj/union-de-santa-fe-IwiYo4sG/h2h/overall/?mid=x6T1g60m)
