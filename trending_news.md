@@ -1,3 +1,31 @@
+### argentina vs mauritania (N/A, Fri, 27 Mar 2026 16:40:00 -0700)
+
+- **LIVE! Argentina vs. Mauritania on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/friendlies/articles/live-argentina-vs-mauritania-on-bein-sports-2026-03-27)
+- **Argentina vs Mauritania score, live updates: Time, TV, is Messi playing?**: [Link](https://www.usatoday.com/story/sports/soccer/2026/03/27/argentina-vs-mauritania-how-to-watch-today-tv-stream-time/89343406007/)
+- **Argentina - Mauritania**: [Link](https://www.flashscore.com/match/football/argentina-f9OppQjp/mauritania-Q5QPxhPn/)
+
+
+### jannik sinner (N/A, Fri, 27 Mar 2026 16:40:00 -0700)
+
+- **Tiafoe traumatizzato da Sinner: "Mai vista una cosa del genere". Courier svela un retroscena su Jannik**: [Link](https://sport.virgilio.it/tiafoe-traumatizzato-da-sinner-mai-vista-una-cosa-del-genere-courier-svela-un-retroscena-su-jannik-949306)
+- **Tennis: notizie, dirette TV, live streaming, aggiornamenti, risultati (news Miami Open 2026)**: [Link](https://www.musicletter.it/home/2026/03/27/notizie-tennis-oggi-news/)
+- **La Pennicanza 2025/26 - Jannik Sinner e la vittoria su Frances Tiafoe - 27/03/2026 - Video**: [Link](https://www.raiplay.it/video/2026/03/Jannik-Sinner-e-la-vittoria-su-Frances-Tiafoe----La-Pennicanza---27032026-4c593b1a-f477-493f-845c-9870953f1c08.html)
+
+
+### argentina (N/A, Fri, 27 Mar 2026 16:20:00 -0700)
+
+- **Argentina - Mauritania en directo: Amistosos Internacionales hoy, en vivo**: [Link](https://as.com/futbol/internacional/argentina-mauritania-en-directo-amistosos-internacionales-hoy-en-vivo-f202603-d/)
+- **Scaloni dijo que la suspensión de la Finalissima "no es culpa de nadie"**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20260327-scaloni-dijo-que-la-suspensi%C3%B3n-de-la-finalissima-no-es-culpa-de-nadie)
+- **EN VIVO: Con Messi en el banco y caras nuevas, la Scaloneta se muestra en casa**: [Link](https://onefootball.com/es/noticias/en-vivo-con-messi-en-el-banco-y-caras-nuevas-la-scaloneta-se-muestra-en-casa-42626044)
+
+
+### england vs (N/A, Fri, 27 Mar 2026 15:00:00 -0700)
+
+- **England player ratings: Which players impressed in Uruguay friendly?**: [Link](https://www.bbc.com/sport/football/articles/cp84kxzjne2o)
+- **Ben White booed in return -- but he did more than flat England teammates in Uruguay draw**: [Link](https://www.espn.com/soccer/story/_/id/48324168/ben-white-booed-return-flat-england-uruguay-draw-world-cup)
+- **England vs Uruguay LIVE - White scores on Three Lions return but Uruguay level late on**: [Link](https://www.espn.co.uk/football/story/_/id/48322889/england-vs-uruguay-live-updates-score-team-news-international-friendly)
+
+
 ### uruguay foot (N/A, Fri, 27 Mar 2026 16:10:00 -0700)
 
 - **Angleterre 1-1 Uruguay, Matches amicaux A : L'Angleterre bute sur l'Uruguay**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/angleterre-uruguay-live/688949)
