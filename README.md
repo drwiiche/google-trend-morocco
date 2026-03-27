@@ -1,3 +1,17 @@
+### u17 (N/A, Fri, 27 Mar 2026 06:50:00 -0700)
+
+- **Starke Kämpfe von Aaron Wucherer bei der DM U17**: [Link](https://www.schwaebische.de/regional/tuttlingen/heimat/starke-kaempfe-von-aaron-wucherer-bei-der-dm-u17-4447103)
+- **Doppelter Heimspieltag am NLZ und Auswärtsaufgabe in Diefflen**: [Link](https://fck.de/blog/doppelter-heimspieltag-am-nlz-und-auswaertsaufgabe-in-diefflen/)
+- **FCK-U17 jagt den ers­ten Derby-​Dreier**: [Link](https://www.rheinpfalz.de/lokal/kaiserslautern_artikel,-fck-u17-jagt-den-ersten-derby-dreier-_arid,5875193.html)
+
+
+### المغرب اليوم (N/A, Fri, 27 Mar 2026 05:50:00 -0700)
+
+- **المنتخب الوطني يجري آخر حصة تدريبية قبل مواجهة الإكوادور**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1)
+- **ما القنوات الناقلة لمباراة المغرب والإكوادور الودية استعدادًا لكأس العالم 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A7%D9%95%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%8B%D8%A7-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5e4e101fa0f1c8c3)
+- **السايح لـ"تيلكيل عربي": أي إخفاق في "كان الفوتصال" كان سيمحي معالم مشروع منتخب السيدات**: [Link](https://ar.telquel.ma/%D9%82%D8%A8%D9%84-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1-%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A8%D9%85%D8%AF/)
+
+
 ### المغرب ضد الجزائر (N/A, Fri, 27 Mar 2026 06:20:00 -0700)
 
 - **المنتخب الوطني لاقل من 17 سنة يستأنف تداريبه استعدادا للقاء الجزائر**: [Link](https://frmf.ma/ar/tournoi-unaf-u17-benghazi-2026-reprise-des-entrainements-pour-le-maroc/)
