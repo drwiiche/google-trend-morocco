@@ -1,3 +1,17 @@
+### argentina fc (N/A, Fri, 27 Mar 2026 16:50:00 -0700)
+
+- **Lionel Scaloni: World Cup decision 'entirely up to Messi'**: [Link](https://www.espn.com/soccer/story/_/id/48319761/lionel-messi-undecided-will-play-2026-world-cup-lionel-scaloni)
+- **Lionel Messi: Argentina legend undecided on whether he will play at the 2026 World Cup, says Lionel Scaloni**: [Link](https://www.skysports.com/football/news/11095/13525085/lionel-messi-argentina-legend-undecided-on-whether-he-will-play-at-the-2026-world-cup-says-lionel-scaloni)
+- **Argentina Manager Breaks Silence on Lionel Messi’s 2026 World Cup Status**: [Link](https://www.si.com/soccer/argentina-manager-breaks-silence-lionel-messi-2026-world-cup)
+
+
+### marruecos - ecuador (N/A, Fri, 27 Mar 2026 15:10:00 -0700)
+
+- **Marruecos 1- Ecuador 1: resumen, resultado y goles del partido**: [Link](https://as.com/futbol/internacional/marruecos-ecuador-en-directo-amistoso-internacional-hoy-en-vivo-f202603-d/)
+- **Nos sacaron el caramelo de la boca: La Tri no pudo ganarle a Marruecos pese a que hizo un partidazo (VIDEO)**: [Link](https://onefootball.com/en/news/nos-sacaron-el-caramelo-de-la-boca-la-tri-no-pudo-ganarle-a-marruecos-pese-a-que-hizo-un-partidazo-video-42625902)
+- **1-1. Al Aynaoui le niega la victoria a una buena selección ecuatoriana**: [Link](https://es-us.noticias.yahoo.com/deportes/1-1-aynaoui-niega-victoria-223046739.html)
+
+
 ### macky sall onu (N/A, Fri, 27 Mar 2026 16:10:00 -0700)
 
 - **L’Union africaine ne soutient pas la candidature de Macky Sall à l’ONU**: [Link](https://www.jeuneafrique.com/1784018/politique/lunion-africaine-ne-soutient-pas-la-candidature-de-macky-sall-a-lonu/)
