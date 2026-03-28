@@ -1,3 +1,10 @@
+### moroco (N/A, Fri, 27 Mar 2026 15:00:00 -0700)
+
+- **Wafcon 2026: Minister insists Morocco was ready to host tournament**: [Link](https://www.bbc.com/sport/football/articles/cp9m3enx4llo)
+- **Morocco Reaffirmed Readiness to Host Women’s Africa Cup of Nations 2026**: [Link](https://www.moroccoworldnews.com/2026/03/284574/morocco-reaffirmed-readiness-to-host-womens-africa-cup-of-nations-2026/)
+- **Morocco is ready to host any tournament – Minister of Industry and Trade Ryad Mezzour**: [Link](https://africasoccer.com/morocco-is-ready-to-host-any-tournament-minister-of-industry-and-trade-ryad-mezzour/)
+
+
 ### candidature macky sall onu (N/A, Sat, 28 Mar 2026 02:30:00 -0700)
 
 - **Sénégal: l'UA refuse de soutenir la candidature de l'ex-président Macky Sall au poste de secrétaire général de l'ONU**: [Link](https://www.rfi.fr/fr/afrique/20260327-s%C3%A9n%C3%A9gal-l-ua-refuse-de-soutenir-la-candidature-de-l-ex-pr%C3%A9sident-macky-sall-au-poste-de-secr%C3%A9taire-g%C3%A9n%C3%A9ral-de-l-onu)
