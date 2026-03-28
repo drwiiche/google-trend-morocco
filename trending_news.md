@@ -1,3 +1,17 @@
+### match senegal perou (N/A, Sat, 28 Mar 2026 08:10:00 -0700)
+
+- **DIRECT. Sénégal-Pérou: le trophée de la CAN 2025 a été présenté au public, suivez en live le match amical au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/direct-senegal-perou-suivez-en-live-le-match-amical-au-stade-de-france-et-la-presentation-du-trophee-de-la-can-2025_LS-202603280171.html)
+- **Sénégal : Booba finalement forfait contre le Pérou**: [Link](https://www.footmercato.net/a2976444826081423384-senegal-booba-finalement-forfait-contre-le-perou)
+- **Le match du Sénégal face au Pérou ne sera pas diffusé en France, les célébrations maintenues**: [Link](https://fr.hespress.com/467495-le-match-du-senegal-face-au-perou-ne-sera-pas-diffuse-en-france-les-celebrations-maintenues.html)
+
+
+### senegal vs (N/A, Sat, 28 Mar 2026 07:50:00 -0700)
+
+- **Senegal-Peru Friendly Still Without Broadcaster Days Before Kickoff**: [Link](https://www.moroccoworldnews.com/2026/03/284374/senegal-peru-friendly-still-without-broadcaster-days-before-kickoff/)
+- **Preview: Senegal vs Peru - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/senegal/preview/senegal-vs-peru-prediction-team-news-lineups_594579.html)
+- **Senegal's record against South American teams**: [Link](https://foot-africa.com/en/news/senegals-record-against-south-american-teams-1142048/)
+
+
 ### volotea (N/A, Sat, 28 Mar 2026 05:40:00 -0700)
 
 - **Volotea Sees Capacity, Network Growth After Capital Raise**: [Link](https://aviationweek.com/air-transport/airlines-lessors/volotea-sees-capacity-network-growth-after-capital-raise)
