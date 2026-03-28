@@ -1,3 +1,10 @@
+### belgique foot (N/A, Sat, 28 Mar 2026 14:30:00 -0700)
+
+- **Pochettino (sélectionneur des États-Unis) : « Nous tenterons de reproduire les exploits de la Corée du Sud et du Maroc en 2002 et 2022**: [Link](https://m.elbotola.com/fr/article/2026-03-27-10-52-153.html)
+- **Digne de Courtois ? Le réflexe magique de Senne Lammens avec les Diables Rouges contre les États-Unis**: [Link](https://www.rtl.be/sport/football/diables-rouges/digne-de-courtois-le-reflexe-magique-de-senne-lammens-avec-les-diables-rouges/2026-03-28/article/784080)
+- **États-Unis – Belgique : doublé pour Dodi Lukebakio, Patrick Agyemang réduit l’écart (2-5, direct)**: [Link](https://www.lesoir.be/737566/article/2026-03-28/etats-unis-belgique-double-pour-dodi-lukebakio-patrick-agyemang-reduit-lecart-2)
+
+
 ### senegal vs peru (N/A, Sat, 28 Mar 2026 09:00:00 -0700)
 
 - **Senegal vs Peru: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/clyrjp736n5t)
