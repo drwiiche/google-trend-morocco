@@ -1,3 +1,10 @@
+### senegal (N/A, Sat, 28 Mar 2026 09:10:00 -0700)
+
+- **Senegal coach says team still sees itself as AFCON champion despite CAF ruling**: [Link](https://en.hespress.com/134589-senegal-coach-says-team-still-sees-itself-as-afcon-champion-despite-caf-ruling.html)
+- **Senegal to parade Afcon trophy as Football Federation vows 'crusade' against decision to hand Morocco title**: [Link](https://www.bbc.com/sport/football/articles/c070kg5rn0ko)
+- **Morocco loses appeal to reclaim AFCON prize money and medals - CHOSUNBIZ**: [Link](https://biz.chosun.com/en/en-sports/2026/03/27/3L4FQPWHPZFE5LIH25B33XAOXI/)
+
+
 ### senegal foot (N/A, Sat, 28 Mar 2026 08:30:00 -0700)
 
 - **Senegal distances itself from AU support for Macky Sall at the UN**: [Link](https://www.africanews.com/2026/03/28/senegal-distances-itself-from-au-support-for-macky-sall-at-the-un/)
