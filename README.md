@@ -1,3 +1,10 @@
+### senegal vs peru (N/A, Sat, 28 Mar 2026 09:00:00 -0700)
+
+- **Senegal vs Peru: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/clyrjp736n5t)
+- **Senegal vs Peru LIVE Score Updates: Sarr scores the second! (2-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/03/28/1255613-senegal-vs-peru-live-score-updates-in-friendly-match.html)
+- **Preview: Senegal vs Peru - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/senegal/preview/senegal-vs-peru-prediction-team-news-lineups_594579.html)
+
+
 ### usa vs belgium (N/A, Sat, 28 Mar 2026 13:10:00 -0700)
 
 - **United States vs Belgium: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/czre723n45zt)
