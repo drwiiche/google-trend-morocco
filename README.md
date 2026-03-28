@@ -1,3 +1,10 @@
+### senegal vs perou (N/A, Sat, 28 Mar 2026 05:30:00 -0700)
+
+- **DIRECT. Sénégal-Pérou: le trophée de la CAN 2025 a été présenté au public, suivez en live le match amical au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/direct-senegal-perou-suivez-en-live-le-match-amical-au-stade-de-france-et-la-presentation-du-trophee-de-la-can-2025_LS-202603280171.html)
+- **Sénégal-Pérou : à quelle heure et sur quelle chaîne voir le match amical et les célébrations de la CAN 2025**: [Link](https://www.leparisien.fr/sports/football/senegal-perou-a-quelle-heure-et-sur-quelle-chaine-voir-le-match-amical-et-les-celebrations-de-la-can-2025-28-03-2026-4ZOBMAEN3VHX5K4Q2BMOWPTQYQ.php)
+- **Sénégal : Booba finalement forfait contre le Pérou**: [Link](https://www.footmercato.net/a2976444826081423384-senegal-booba-finalement-forfait-contre-le-perou)
+
+
 ### match senegal perou (N/A, Sat, 28 Mar 2026 08:10:00 -0700)
 
 - **DIRECT. Sénégal-Pérou: le trophée de la CAN 2025 a été présenté au public, suivez en live le match amical au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/direct-senegal-perou-suivez-en-live-le-match-amical-au-stade-de-france-et-la-presentation-du-trophee-de-la-can-2025_LS-202603280171.html)
