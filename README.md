@@ -1,3 +1,10 @@
+### algérie (N/A, Fri, 27 Mar 2026 14:30:00 -0700)
+
+- **Un potentiel milliard de mètres cubes de gaz en plus par an... Face au choc énergétique, Alger et Madrid relancent leur partenariat stratégique**: [Link](https://www.bfmtv.com/economie/entreprises/energie/un-potentiel-milliard-de-metres-cubes-de-gaz-en-plus-par-an-face-au-choc-energetique-alger-et-madrid-relancent-leur-partenariat-strategique_AD-202603260879.html)
+- **A Alger, Giorgia Meloni évite de trancher sur le Sahara**: [Link](https://fr.hespress.com/467165-a-alger-giorgia-meloni-evite-de-trancher-sur-le-sahara.html)
+- **Gaz : Meloni annonce une coopération accrue de l’Italie avec Alger**: [Link](https://mobile.telquel.ma/instant-t/2026/03/26/gaz-meloni-annonce-une-cooperation-accrue-de-litalie-avec-alger_1980608/)
+
+
 ### منتخب اسبانيا (N/A, Fri, 27 Mar 2026 14:20:00 -0700)
 
 - **لماذا سيفاجئ كوبارسي الجميع مع منتخب إسبانيا ؟**: [Link](https://hihi2.com/2026/03/28/p3705465.html)
