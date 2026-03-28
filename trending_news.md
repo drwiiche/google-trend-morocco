@@ -1,3 +1,17 @@
+### السنغال ضد بيرو (N/A, Sat, 28 Mar 2026 10:00:00 -0700)
+
+- **قرار فرنسي عاجل بشأن مباراة السنغال وبيرو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D8%A8%D9%8A%D8%B1%D9%88/blt12b7df80433f6c12)
+- **موعد مباراة السنغال ضد بيرو استعدادا لكأس العالم.. هل تنقل تلفزيونيا؟**: [Link](https://www.almasryalyoum.com/news/details/4231542)
+- **مغني الراب الشهير "بوبا" ينسحب من المشاركة في الاحتفالات غير الشرعية للسنغال بكأس إفريقيا**: [Link](https://www.akhbarona.com/culture/423448.html)
+
+
+### sénégal – pérou (N/A, Sat, 28 Mar 2026 09:10:00 -0700)
+
+- **DIRECT. Sénégal-Pérou: Jackson lance les Lions de la Teranga au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/direct-senegal-perou-suivez-en-live-le-match-amical-au-stade-de-france-et-la-presentation-du-trophee-de-la-can-2025_LS-202603280171.html)
+- **CAN 2025 : la drôle de vidéo diffusée par le Sénégal**: [Link](https://www.footmercato.net/a4575381145191174158-can-2025-la-drole-de-video-diffusee-par-le-senegal)
+- **Sénégal-Pérou, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/international/senegal-perou-quelle-chaine-diffuse-le-match-1001954.html)
+
+
 ### senegal (N/A, Sat, 28 Mar 2026 09:10:00 -0700)
 
 - **Senegal coach says team still sees itself as AFCON champion despite CAF ruling**: [Link](https://en.hespress.com/134589-senegal-coach-says-team-still-sees-itself-as-afcon-champion-despite-caf-ruling.html)
