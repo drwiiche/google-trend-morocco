@@ -1,3 +1,10 @@
+### macky sall onu (N/A, Fri, 27 Mar 2026 16:10:00 -0700)
+
+- **L’Union africaine ne soutient pas la candidature de Macky Sall à l’ONU**: [Link](https://www.jeuneafrique.com/1784018/politique/lunion-africaine-ne-soutient-pas-la-candidature-de-macky-sall-a-lonu/)
+- **Revue de la presse SenePlus du vendredi 27 mars 2026**: [Link](https://www.seneplus.com/article/revue-de-la-presse-seneplus-du-vendredi-27-mars-2026)
+- **ONU : La loi Ousmane Sonko, un frein potentiel à la candidature de Macky Sall ?**: [Link](https://www.senenews.com/premium/onu-la-loi-ousmane-sonko-un-frein-potentiel-a-la-candidature-de-macky-sall_580703.html)
+
+
 ### argentina vs mauritania (N/A, Fri, 27 Mar 2026 16:40:00 -0700)
 
 - **LIVE! Argentina vs. Mauritania on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/friendlies/articles/live-argentina-vs-mauritania-on-bein-sports-2026-03-27)
