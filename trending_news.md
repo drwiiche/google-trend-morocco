@@ -1,3 +1,17 @@
+### candidature macky sall onu (N/A, Sat, 28 Mar 2026 02:30:00 -0700)
+
+- **Sénégal: l'UA refuse de soutenir la candidature de l'ex-président Macky Sall au poste de secrétaire général de l'ONU**: [Link](https://www.rfi.fr/fr/afrique/20260327-s%C3%A9n%C3%A9gal-l-ua-refuse-de-soutenir-la-candidature-de-l-ex-pr%C3%A9sident-macky-sall-au-poste-de-secr%C3%A9taire-g%C3%A9n%C3%A9ral-de-l-onu)
+- **Macky Sall à l’assaut de l’ONU : avec ou sans l’Afrique ?**: [Link](https://www.jeuneafrique.com/1776150/politique/macky-sall-a-lassaut-de-lonu-avec-ou-sans-lafrique/)
+- **L’Union africaine ne soutient pas la candidature de l’ex-président sénégalais Sall comme secrétaire général de l’ONU**: [Link](https://afrique.le360.ma/politique/lunion-africaine-ne-soutient-pas-la-candidature-de-lex-president-senegalais-sall-comme-secretaire_5OIP5TYSWRCUTPTM54B5KHFR4E/)
+
+
+### gessime yassine (N/A, Fri, 27 Mar 2026 15:10:00 -0700)
+
+- **« Ma mère pleurait » : Gessime Yassine lui rend hommage après sa première sélection**: [Link](https://fr.hespress.com/467297-ma-mere-pleurait-gessime-yassine-lui-rend-hommage-apres-sa-premiere-selection.html)
+- **Ouahbi avait annoncé la couleur pour Zabiri et Aït Boudlal**: [Link](https://mountakhab.net/ouahbi-avait-annonce-la-couleur-pour-zabiri-et-ait-boudlal/)
+- **Lions de l’Atlas: les réactions de Zabiri et Halhal après leur première sélection**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-les-reactions-de-zabiri-et-halhal-apres-leur-premiere-selection_36BOJ7MKXZHTHINOU7UWDALPAA/)
+
+
 ### algérie (N/A, Fri, 27 Mar 2026 14:30:00 -0700)
 
 - **Un potentiel milliard de mètres cubes de gaz en plus par an... Face au choc énergétique, Alger et Madrid relancent leur partenariat stratégique**: [Link](https://www.bfmtv.com/economie/entreprises/energie/un-potentiel-milliard-de-metres-cubes-de-gaz-en-plus-par-an-face-au-choc-energetique-alger-et-madrid-relancent-leur-partenariat-strategique_AD-202603260879.html)
