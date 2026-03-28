@@ -1,3 +1,10 @@
+### air france orly (N/A, Sat, 28 Mar 2026 16:10:00 -0700)
+
+- **Air France quitte Orly pour se recentrer sur Paris-Charles de Gaulle**: [Link](https://fr.hespress.com/467489-air-france-quitte-orly-pour-se-recentrer-sur-paris-charles-de-gaulle.html)
+- **Air France : à partir de ce samedi, plus aucun avion de la compagnie aérienne ne volera depuis l'aéroport d'Orly**: [Link](https://www.cnews.fr/france/2026-03-28/air-france-partir-de-ce-samedi-plus-aucun-avion-de-la-compagnie-aerienne-ne)
+- **Air France tourne une page de son histoire en quittant Orly**: [Link](https://medias24.com/agence-presse/air-france-tourne-une-page-de-son-histoire-en-quittant-orly/)
+
+
 ### un très mauvais pressentiment netflix (N/A, Sat, 28 Mar 2026 15:40:00 -0700)
 
 - **Cette série Netflix produite par les créateurs de « Stranger Things » divise, à part sur un point**: [Link](https://www.huffingtonpost.fr/culture/article/la-serie-netflix-un-tres-mauvais-pressentiment-divise-les-critiques-a-part-sur-un-point_261972.html)
