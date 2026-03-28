@@ -1,3 +1,10 @@
+### senegal foot (N/A, Sat, 28 Mar 2026 08:30:00 -0700)
+
+- **Senegal distances itself from AU support for Macky Sall at the UN**: [Link](https://www.africanews.com/2026/03/28/senegal-distances-itself-from-au-support-for-macky-sall-at-the-un/)
+- **Rwanda, Burundi Clash as AU Bid for Macky Sall as U.N. Chief Stalls**: [Link](https://chimpreports.com/rwanda-burundi-clash-as-au-bid-for-macky-sall-as-u-n-chief-stalls/)
+- **Confusion Over Macky Sall’s UN Bid Exposes Gaps in African Union Endorsement Process**: [Link](https://panafricanvisions.com/2026/03/confusion-over-macky-salls-un-bid-exposes-gaps-in-african-union-endorsement-process/)
+
+
 ### senegal vs perou (N/A, Sat, 28 Mar 2026 05:30:00 -0700)
 
 - **DIRECT. Sénégal-Pérou: le trophée de la CAN 2025 a été présenté au public, suivez en live le match amical au Stade de France**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/direct-senegal-perou-suivez-en-live-le-match-amical-au-stade-de-france-et-la-presentation-du-trophee-de-la-can-2025_LS-202603280171.html)
