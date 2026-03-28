@@ -1,3 +1,17 @@
+### usa vs belgium (N/A, Sat, 28 Mar 2026 13:10:00 -0700)
+
+- **United States vs Belgium: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/czre723n45zt)
+- **Live – USMNT v Belgium – lineups, analysis and updates for international friendly**: [Link](https://www.theguardian.com/football/live/2026/mar/28/usmnt-belgium-live-lineups-analysis-friendly)
+- **Kevin De Bruyne expects 'aggressive' USMNT under Mauricio Pochettino to be stiff test for Belgium in friendly**: [Link](https://www.cbssports.com/soccer/news/kevin-de-bruyne-usmnt-mauricio-pochettino-belgium/)
+
+
+### phillies – rangers (N/A, Sat, 28 Mar 2026 13:10:00 -0700)
+
+- **Texas Rangers lineup for March 28, 2026**: [Link](https://www.lonestarball.com/rangers-game-day-lineups/89341/texas-rangers-lineup-for-march-28-2026)
+- **After Sánchez sets the tone, Nola and Phillies look to keep it rolling against the Rangers**: [Link](https://www.philadelphiabaseballreview.com/2026/03/phillies-rangers-lineups-odds-nola-degrom-latz-bohm.html)
+- **Sánchez strikes out 10 in 6 shutout innings, Bohm, Schwarber go deep in Phillies' 5-3 win over Texas**: [Link](https://abcnews.com/Sports/wireStory/snchez-strikes-10-6-shutout-innings-bohm-schwarber-131452537)
+
+
 ### الشارقة الرياضية (N/A, Sat, 28 Mar 2026 12:30:00 -0700)
 
 - **تردد قناة الشارقة الرياضية على القمر نايل سات وعرب سات**: [Link](https://www.eremnews.com/sports/wdhwz83)
