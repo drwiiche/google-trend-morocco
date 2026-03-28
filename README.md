@@ -1,3 +1,10 @@
+### منتخب اسبانيا (N/A, Fri, 27 Mar 2026 14:20:00 -0700)
+
+- **لماذا سيفاجئ كوبارسي الجميع مع منتخب إسبانيا ؟**: [Link](https://hihi2.com/2026/03/28/p3705465.html)
+- **قبل مواجهة مصر.. نجم منتخب إسبانيا يتحدث عن حلم كأس العالم**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D8%B1-%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%AD%D9%84%D9%85-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **لاعب إسبانيا يتحدث عن مواجهة مصر: "ليست محبطة"**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2026/3/26/2962286/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D8%B1-%D9%84%D9%8A%D8%B3%D8%AA-%D9%85%D8%AD%D8%A8%D8%B7%D8%A9-)
+
+
 ### argentina fc (N/A, Fri, 27 Mar 2026 16:50:00 -0700)
 
 - **Lionel Scaloni: World Cup decision 'entirely up to Messi'**: [Link](https://www.espn.com/soccer/story/_/id/48319761/lionel-messi-undecided-will-play-2026-world-cup-lionel-scaloni)
