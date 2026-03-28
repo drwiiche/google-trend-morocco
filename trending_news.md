@@ -1,3 +1,10 @@
+### match maroc maroc équateur (N/A, Fri, 27 Mar 2026 18:10:00 -0700)
+
+- **Maroc-Équateur (1-1) : Ouahbi, le faux neuf et la vraie foi**: [Link](https://ledesk.ma/2026/03/28/maroc-equateur-1-1-ouahbi-le-faux-neuf-et-la-vraie-foi/)
+- **Maroc : le nouveau sélectionneur Mohamed Ouahbi envoie ses premiers messages après le nul contre l’Equateur**: [Link](https://www.footmercato.net/a3022256511449458593-maroc-le-nouveau-selectionneur-mohamed-ouahbi-envoie-ses-premiers-messages-apres-le-nul-contre-lequateur)
+- **Match amical: composition du Maroc face à l'Equateur**: [Link](https://frmf.ma/fr/articles/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1)
+
+
 ### moroco (N/A, Fri, 27 Mar 2026 15:00:00 -0700)
 
 - **Wafcon 2026: Minister insists Morocco was ready to host tournament**: [Link](https://www.bbc.com/sport/football/articles/cp9m3enx4llo)
