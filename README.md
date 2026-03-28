@@ -1,3 +1,17 @@
+### volotea (N/A, Sat, 28 Mar 2026 05:40:00 -0700)
+
+- **Volotea Sees Capacity, Network Growth After Capital Raise**: [Link](https://aviationweek.com/air-transport/airlines-lessors/volotea-sees-capacity-network-growth-after-capital-raise)
+- **Volotea Secures Groundbreaking Seventy-One Million Euro Funding Boost, Set to Revolutionise European Travel and Expand to Unprecedented Heights**: [Link](https://www.travelandtourworld.com/news/article/volotea-secures-groundbreaking-seventy-one-million-euro-funding-boost-set-to-revolutionise-european-travel-and-expand-to-unprecedented-heights/)
+- **A breath of fresh air for Volotea**: [Link](https://www.laquotidienne.fr/a-breath-of-fresh-air-for-volotea/)
+
+
+### joaquín panichelli (N/A, Sat, 28 Mar 2026 04:50:00 -0700)
+
+- **La Selección Argentina salió al campo de juego con mensajes de apoyo a Foyth y Panichelli**: [Link](https://espndeportes.espn.com/futbol/mundial/nota/_/id/16497341/seleccion-argentina-salio-campo-de-juego-mensajes-apoyo-juan-foyth-joaquin-panichelli)
+- **Lionel Scaloni le envía un mensaje a Panichelli tras confirmarse su grave lesiónó: "Fue muy triste, te lo puedo asegurar"**: [Link](https://tribuna.com/es/news/2026-03-28-lionel-scaloni-le-envia-un-mensaje-a-panichelli-tras-confirmarse-su-grave-lesiono-fue-muy/)
+- **"La vida me debe sueños por cumplir": el sentido mensaje de estrella argentina tras confirmarse que se perderá el Mundial**: [Link](https://www.ntn24.com/noticias-deportes/la-vida-me-debe-suenos-por-cumplir-el-sentido-mensaje-de-estrella-argentina-tras-confirmarse-que-se-perdera-el-mundial-614437)
+
+
 ### match maroc maroc équateur (N/A, Fri, 27 Mar 2026 18:10:00 -0700)
 
 - **Maroc-Équateur (1-1) : Ouahbi, le faux neuf et la vraie foi**: [Link](https://ledesk.ma/2026/03/28/maroc-equateur-1-1-ouahbi-le-faux-neuf-et-la-vraie-foi/)
