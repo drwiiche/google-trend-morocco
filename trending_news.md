@@ -1,3 +1,10 @@
+### un très mauvais pressentiment netflix (N/A, Sat, 28 Mar 2026 15:40:00 -0700)
+
+- **Cette série Netflix produite par les créateurs de « Stranger Things » divise, à part sur un point**: [Link](https://www.huffingtonpost.fr/culture/article/la-serie-netflix-un-tres-mauvais-pressentiment-divise-les-critiques-a-part-sur-un-point_261972.html)
+- **Critique série : Haley Z. Boston découd le mariage hétéro dans "Un très mauvais pressentiment"**: [Link](https://www.radiofrance.fr/franceculture/podcasts/les-midis-de-culture/critique-serie-un-tres-mauvais-pressentiment-de-haley-z-boston-9478757)
+- **La nouvelle série horrifique des créateurs de Stranger Things est désormais sur Netflix !**: [Link](https://lesnews.ca/culture/series/netflix/la-nouvelle-serie-horrifique-des-createurs-de-stranger-things-est-desormais-sur-netflix/)
+
+
 ### belgique foot (N/A, Sat, 28 Mar 2026 14:30:00 -0700)
 
 - **Pochettino (sélectionneur des États-Unis) : « Nous tenterons de reproduire les exploits de la Corée du Sud et du Maroc en 2002 et 2022**: [Link](https://m.elbotola.com/fr/article/2026-03-27-10-52-153.html)
