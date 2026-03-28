@@ -1,3 +1,10 @@
+### senegal champion d afrique (N/A, Sat, 28 Mar 2026 09:20:00 -0700)
+
+- **Romain Bizzini, avocat : “La finale de la CAN 2025 ne sera pas rejouée”**: [Link](https://mobile.telquel.ma/2026/03/27/romain-bizzini-avocat-la-finale-de-la-can-2025-ne-sera-pas-rejouee_1980941)
+- **CAN 2025 : malgré la décision de la CAF, le Sénégal exhibe le trophée à Saint-Denis**: [Link](https://medias24.com/2026/03/28/can-2025-malgre-la-decision-de-la-caf-le-senegal-exhibe-le-trophee-a-saint-denis-1650187/)
+- **Comment le Maroc menace le Sénégal devant le TAS et la FIFA dans la bataille juridique autour de la finale polémique de la CAN**: [Link](https://www.lequipe.fr/Football/Actualites/Le-coup-de-pression-juridique-du-maroc-a-l-encontre-du-senegal-qui-revendique-toujours-la-victoire-a-la-can-et-a-prevu-des-celebrations-au-stade-de-france/1663206)
+
+
 ### السنغال ضد بيرو (N/A, Sat, 28 Mar 2026 10:00:00 -0700)
 
 - **قرار فرنسي عاجل بشأن مباراة السنغال وبيرو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D8%A8%D9%8A%D8%B1%D9%88/blt12b7df80433f6c12)
