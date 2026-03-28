@@ -1,3 +1,24 @@
+### الشارقة الرياضية (N/A, Sat, 28 Mar 2026 12:30:00 -0700)
+
+- **تردد قناة الشارقة الرياضية على القمر نايل سات وعرب سات**: [Link](https://www.eremnews.com/sports/wdhwz83)
+- **تردد قناة دبي الرياضية 2026 لمتابعة البطولات المحلية والعالمية**: [Link](https://www.a5bar24h.com/10867/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%AF%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-2026-%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%A8%D8%B7%D9%88/)
+- **تردد قناة الشارقة الرياضية 2026 على نايل سات بجودة HD**: [Link](https://mrj3y.com/157701/%D8%AA%D8%B1%D8%AF%D8%AF-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D9%82%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-2026-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D9%8A%D9%84-%D8%B3/)
+
+
+### bastoni (N/A, Sat, 28 Mar 2026 09:50:00 -0700)
+
+- **Dalla Spagna sicuri: Bastoni ha detto sì al Barcellona**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/28-03-2026/bastoni-barcellona-inter-mercato.shtml)
+- **SportMediaset: Il mercato dell'Inter: se parte Bastoni, già pronto il sostituto Video**: [Link](https://mediasetinfinity.mediaset.it/video/sportmediaset/il-mercato-dellinter-se-parte-bastoni-gia-pronto-il-sostituto_F314218901075C08)
+- **Biasin: “Bastoni al Barcellona? Servono due condizioni. E la cifra che gira non basta…”**: [Link](https://www.fcinter1908.it/ultimora/biasin-bastoni-barcellona-cifra-on-basta/)
+
+
+### algérie football (N/A, Sat, 28 Mar 2026 06:40:00 -0700)
+
+- **L'Algérie humilie le Guatemala, Gouiri en vue**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/football-match-amical-double-de-gouiri-et-lalgerie-humilie-le-guatemala_sto23285236/story.shtml)
+- **Algérie: Luca Zidane écarté, c’est officiel**: [Link](https://www.sports.fr/football/international/algerie-luca-zidane-ecarte-cest-officiel-1001762.html)
+- **Amicaux : l’Algérie se balade face au Guatemala**: [Link](https://www.footmercato.net/a354807600843285454-amicaux-lalgerie-se-balade-face-au-guatemala)
+
+
 ### prix rose or no 2026 (N/A, Sat, 28 Mar 2026 10:30:00 -0700)
 
 - **Tiercé. Les pronostics de « L'Alsace » pour samedi 28 mars - Prix Rose or No**: [Link](https://www.lalsace.fr/actualite/2026/03/27/les-pronostics-de-l-alsace-pour-samedi-28-mars-prix-rose-or-no)
