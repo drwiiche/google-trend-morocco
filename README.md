@@ -1,3 +1,10 @@
+### aeroport orly (N/A, Sun, 29 Mar 2026 01:40:00 -0700)
+
+- **Air France quitte Orly : ce qui va changer pour les passagers dès ce dimanche**: [Link](https://www.lefigaro.fr/societes/air-france-quitte-orly-ce-qui-va-changer-pour-les-passagers-des-dimanche-20260328)
+- **Air France : à partir de ce samedi, plus aucun avion de la compagnie aérienne ne volera depuis l'aéroport d'Orly**: [Link](https://www.cnews.fr/france/2026-03-28/air-france-partir-de-ce-samedi-plus-aucun-avion-de-la-compagnie-aerienne-ne)
+- **Air France quitte Orly pour se recentrer sur Paris-Charles de Gaulle**: [Link](https://fr.hespress.com/467489-air-france-quitte-orly-pour-se-recentrer-sur-paris-charles-de-gaulle.html)
+
+
 ### portugal foot (N/A, Sat, 28 Mar 2026 18:10:00 -0700)
 
 - **Mexico faces Portugal in historic Estadio Banorte reopening tonight**: [Link](https://artthreat.net/14028-30359-mexico-faces-portugal-in-historic-estadio-banorte-reopening-tonight/)
