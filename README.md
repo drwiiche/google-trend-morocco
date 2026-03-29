@@ -1,3 +1,10 @@
+### unaf u17 maroc (N/A, Sun, 29 Mar 2026 09:00:00 -0700)
+
+- **Tournoi UNAF U17 (Maroc-Egypte): entraînement de veille de match pour les Lionceaux de l'Atlas**: [Link](https://frmf.ma/fr/articles/tournoi-unaf-u17-maroc-egypte-entrainement-de-veille-de-match-pour-les-lionceaux-de-latlas)
+- **Les joueurs du Maroc U17 après leur victoire face à l'Algérie : « Nous sommes venus avec une mentalité de vainqueurs**: [Link](https://m.elbotola.com/fr/article/2026-03-27-18-24-166.html)
+- **Algérie – Maroc U17 : un joueur marocain embrasse l’arbitre après avoir marqué**: [Link](https://www.football365.fr/algerie-maroc-u17-un-joueur-marocain-embrasse-larbitre-apres-avoir-marque-10286682.html)
+
+
 ### donald trump arabie saoudite (N/A, Sun, 29 Mar 2026 07:00:00 -0700)
 
 - **«Il ne pensait pas qu’il devrait me lécher les bottes» : Donald Trump s’en prend publiquement au prince héritier d’Arabie saoudite**: [Link](https://www.lefigaro.fr/international/il-ne-pensait-pas-qu-il-devrait-me-lecher-les-bottes-donald-trump-s-en-prend-publiquement-au-prince-heritier-d-arabie-saoudite-20260328)
