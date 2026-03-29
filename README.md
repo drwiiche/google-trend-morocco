@@ -1,3 +1,10 @@
+### france vs (N/A, Sun, 29 Mar 2026 12:10:00 -0700)
+
+- **Colombia vs France LIVE updates, watch live, score, analysis, highlights**: [Link](https://www.nbcsports.com/colombia-vs-france-live-updates-score-highlights-stats-watch)
+- **Colombia vs France: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cg40z1n4dlpt)
+- **DC region prepares to host World Cup preview match as France takes on Colombia**: [Link](https://wtop.com/local/2026/03/ovn-dc-region-prepares-to-host-world-cup-preview-match-as-france-takes-on-colombia/)
+
+
 ### colombia vs france (N/A, Sun, 29 Mar 2026 12:50:00 -0700)
 
 - **Colombia - Francia, en directo: Amistoso internacional, hoy en vivo**: [Link](https://as.com/futbol/internacional/colombia-francia-en-directo-amistoso-internacional-hoy-en-vivo-f202603-d/)
