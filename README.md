@@ -1,3 +1,10 @@
+### reda hajhouj (N/A, Sun, 29 Mar 2026 04:40:00 -0700)
+
+- **Arrestation de Reda El Hajhouj à Casablanca pour implication présumée dans des activités criminelles**: [Link](https://www.yabiladi.com/articles/details/191206/arrestation-reda-hajhouj-casablanca-pour.html)
+- **اعتقال لاعب الوداد السابق رضى الهجهوج بتهمة تكوين عصابة إجرامية**: [Link](https://rue20.com/989449.html)
+- **توقيف اللاعب السابق رضا الهجهوج بتهمة السرقة وتكوين عصابة**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/473505.html)
+
+
 ### eclipse solaire (N/A, Sun, 29 Mar 2026 09:50:00 -0700)
 
 - **L'éclipse du siècle arrive et va plonger la France dans l'obscurité : "On ne reverra pas ça de notre vivant"**: [Link](https://www.journaldunet.com/magazine/1549031-bp1-on-ne-reverra-pas-ca-de-notre-vivant-l-eclipse-du-siecle-arrive-et-va-plonger-l-europe-dans-le-noir/)
