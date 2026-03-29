@@ -1,3 +1,17 @@
+### sinner (N/A, Sun, 29 Mar 2026 14:00:00 -0700)
+
+- **++[LIVESTREAMS]TV!! Jannik Sinner vs Jiri Lehecka 2026 Live 𝖲𝗍𝗋𝖾𝖺𝗆**: [Link](https://salfordreddevils.com/grt/video/video-jannik-sinner-v-jiri-lehecka-2026-show-free5.html)
+- **Miami final delayed due to rain**: [Link](https://www.atptour.com/en/news/miami-2026-final-rain-delay)
+- **How to Watch the 2026 Miami Open Finals Before the Tournament Wraps**: [Link](https://sg.news.yahoo.com/watch-2026-miami-open-finals-133956776.html)
+
+
+### jannik sinner (N/A, Sun, 29 Mar 2026 13:50:00 -0700)
+
+- **Zverev sconsolato, Sinner: "Hai giocato bene". La risposta del tedesco dice tutto**: [Link](https://video.gazzetta.it/tennis/atp/highlights/video-sinner-a-zverev-hai-giocato-bene-il-tedesco-risponde-cosi/3cfd5540-ae68-4f3c-99c9-7043c2aedxlk)
+- **Sinner-Lehecka, finale a Miami in diretta: 6-4 | Jannik vince il primo set**: [Link](https://www.corriere.it/sport/tennis/diretta-live/26_marzo_29/sinner-lehecka-finale-miami-diretta-risultato.shtml)
+- **Sinner, il tennista che ha necessitato del minor numero di partite per raggiungere le 75 vittorie nei Masters 1000**: [Link](https://www.puntodebreak.com/it/2026/03/29/sinner-il-tennista-che-necessitato-minor-numero-di-partite-per-raggiungere-le-75-vittorie-nei)
+
+
 ### miami open (N/A, Sun, 29 Mar 2026 13:40:00 -0700)
 
 - **Coco Gauff’s hilarious press conference moment steals the show after Miami Open win**: [Link](https://sports.yahoo.com/articles/coco-gauff-hilarious-press-conference-183346026.html)
