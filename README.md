@@ -1,3 +1,24 @@
+### ufc fight night (N/A, Sat, 28 Mar 2026 19:30:00 -0700)
+
+- **Main Card Results | UFC Seattle**: [Link](https://www.ufc.com/news/ufc-seattle-results-adesanya-vs-pyfer-main-card-highlights-winners-interviews)
+- **A Comeback Falling A Little Short For Izzy**: [Link](https://bellyupsports.com/2026/03/a-comeback-falling-a-little-short-for-izzy/)
+- **Israel Adesanya shuts down retirement talk: 'I’m not f---ing leaving'**: [Link](https://www.sherdog.com/news/news/Israel-Adesanya-shuts-down-retirement-talk-Im-not-fing-leaving-200642)
+
+
+### portugal vs (N/A, Sat, 28 Mar 2026 18:10:00 -0700)
+
+- **Portugal player ratings vs. Mexico: No Ronaldo, no fun as Selecao settle for frustrating draw with star man injured**: [Link](https://www.goal.com/en/lists/portugal-player-ratings-vs-mexico-no-ronaldo-no-fun-as-selecao-settle-for-frustrating-draw-with-star-man-injured/blt153b7b57d63a86f8)
+- **How to Watch Mexico vs Portugal: Live Stream Men's International Soccer Friendlies, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-mexico-vs-portugal-live-stream-super-league-tv-channel-11736374)
+- **Mexico, Portugal draw 0-0 as Azteca Stadium reopens after World Cup renovations**: [Link](https://www.washingtonpost.com/sports/soccer/2026/03/28/world-cup-2026-mexico-portugal/4b88e66c-2b1f-11f1-a0f2-3ba4c9fe08ac_story.html)
+
+
+### portugal (N/A, Sat, 28 Mar 2026 18:10:00 -0700)
+
+- **Onde assistir o jogo de Portugal hoje? Saiba onde vai passar (sábado, 28/03/2026)**: [Link](https://tvhnews.com.br/onde-assistir-o-jogo-de-portugal-hoje-saiba-onde-vai-passar-sabado-28-03-2026/)
+- **Nulo deixou Martínez «satisfeito»: «Vamos tirar muitas conclusões»**: [Link](https://www.abola.pt/noticias/nulo-deixou-martinez-satisfeito-vamos-tirar-muitas-conclusoes-2026032904222874258)
+- **Pedro Proença fala sobre o Mundial 2026: «Somos candidatos»**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/pedro-proenca-fala-sobre-o-mundial-2026-somos-candidatos/)
+
+
 ### air france orly (N/A, Sat, 28 Mar 2026 16:10:00 -0700)
 
 - **Air France quitte Orly pour se recentrer sur Paris-Charles de Gaulle**: [Link](https://fr.hespress.com/467489-air-france-quitte-orly-pour-se-recentrer-sur-paris-charles-de-gaulle.html)
