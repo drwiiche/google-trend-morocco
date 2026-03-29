@@ -1,3 +1,17 @@
+### eclipse solaire (N/A, Sun, 29 Mar 2026 09:50:00 -0700)
+
+- **L'éclipse du siècle arrive et va plonger la France dans l'obscurité : "On ne reverra pas ça de notre vivant"**: [Link](https://www.journaldunet.com/magazine/1549031-bp1-on-ne-reverra-pas-ca-de-notre-vivant-l-eclipse-du-siecle-arrive-et-va-plonger-l-europe-dans-le-noir/)
+- **Les meilleurs endroits en Espagne pour voir l'éclipse totale de soleil**: [Link](https://fr.euronews.com/next/2026/03/25/les-meilleurs-endroits-en-espagne-pour-voir-la-grande-eclipse-solaire-totale-daout-2026)
+- **Cette région va vivre une "nuit noire" en plein jour, ça se passe cette année**: [Link](https://www.linternaute.com/sortir/magazine/10116173-article/)
+
+
+### ufc fight night adesanya vs pyfer (N/A, Sun, 29 Mar 2026 09:30:00 -0700)
+
+- **Main Card Results | UFC Seattle**: [Link](https://www.ufc.com/news/ufc-seattle-results-adesanya-vs-pyfer-main-card-highlights-winners-interviews)
+- **"I was going to kill myself..." Touched human victory → 'The strongest in the middle class' Adesanya TKO's 'Great twist'**: [Link](https://www.starnewskorea.com/en/sports/2026/03/29/2026032917492529766)
+- **A Comeback Falling A Little Short For Izzy**: [Link](https://bellyupsports.com/2026/03/a-comeback-falling-a-little-short-for-izzy/)
+
+
 ### unaf u17 maroc (N/A, Sun, 29 Mar 2026 09:00:00 -0700)
 
 - **Tournoi UNAF U17 (Maroc-Egypte): entraînement de veille de match pour les Lionceaux de l'Atlas**: [Link](https://frmf.ma/fr/articles/tournoi-unaf-u17-maroc-egypte-entrainement-de-veille-de-match-pour-les-lionceaux-de-latlas)
