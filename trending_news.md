@@ -1,3 +1,10 @@
+### portugal foot (N/A, Sat, 28 Mar 2026 18:10:00 -0700)
+
+- **Mexico faces Portugal in historic Estadio Banorte reopening tonight**: [Link](https://artthreat.net/14028-30359-mexico-faces-portugal-in-historic-estadio-banorte-reopening-tonight/)
+- **Álvaro Fidalgo in the Starting Lineup and Memo Ochoa on the Bench: Confirmed Lineups for Mexico vs Portugal**: [Link](https://www.soyfutbol.com/en/news/alvaro-fidalgo-in-the-starting-lineup-and-memo-ochoa-on-the-bench-confirmed-lineups-for-mexico-vs-portugal-20260328-0052.html)
+- **Mexico Portugal Soccer**: [Link](https://lufkindailynews.com/anpa/sports/mexico-portugal-soccer/image_c842e911-8a31-50f0-922e-c6dcfbb3dfe7.html)
+
+
 ### ufc fight night (N/A, Sat, 28 Mar 2026 19:30:00 -0700)
 
 - **Main Card Results | UFC Seattle**: [Link](https://www.ufc.com/news/ufc-seattle-results-adesanya-vs-pyfer-main-card-highlights-winners-interviews)
