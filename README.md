@@ -1,3 +1,17 @@
+### tf1 danse avec les stars (N/A, Sun, 29 Mar 2026 05:00:00 -0700)
+
+- **Danse avec les stars - Emission 8 (Partie 1) du 27 mars 2026**: [Link](https://www.tf1.fr/fr-ma/tf1/danse-avec-les-stars/videos/danse-avec-les-stars-emission-8-partie-1-du-27-mars-2026-97783202.html)
+- **« J’ai rencontré une personne extraordinaire » : les premiers mots de Julien Lieb après son élimination de « Danse avec les stars »**: [Link](https://soirmag.lesoir.be/737512/article/2026-03-28/jai-rencontre-une-personne-extraordinaire-les-premiers-mots-de-julien-lieb-apres)
+- **"Je suis en larmes" : la prestation hors du temps de Loïc Nottet sur le parquet de Danse avec les stars (VIDÉO)**: [Link](https://www.dhnet.be/medias/television/2026/03/28/je-suis-en-larmes-la-prestation-hors-du-temps-de-loic-nottet-sur-le-parquet-de-danse-avec-les-stars-video-6YSDQN26BZELXLKB2JFBLN2GOQ/)
+
+
+### رضى الهجهوج (N/A, Sun, 29 Mar 2026 04:10:00 -0700)
+
+- **توقيف لاعب الوداد السابق بشبهة تكوين عصابة إجرامية**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A8%D8%B4%D8%A8%D9%87%D8%A9-%D8%AA%D9%83%D9%88%D9%8A%D9%86-%D8%B9/)
+- **توقيف لاعب شهير بالدار البيضاء لتورطه في أفعال إجرامية**: [Link](https://www.hibasport.com/details-396744.html)
+- **توقيف اللاعب السابق رضى الهجهوج بعين السبع للاشتباه في قضايا إجرامية**: [Link](https://inews.ma/news/8228061)
+
+
 ### aeroport orly (N/A, Sun, 29 Mar 2026 01:40:00 -0700)
 
 - **Air France quitte Orly : ce qui va changer pour les passagers dès ce dimanche**: [Link](https://www.lefigaro.fr/societes/air-france-quitte-orly-ce-qui-va-changer-pour-les-passagers-des-dimanche-20260328)
