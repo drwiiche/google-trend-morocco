@@ -1,3 +1,24 @@
+### programme tv (N/A, Sun, 29 Mar 2026 12:20:00 -0700)
+
+- **Un dimanche à la campagne : Qui sont les invités de Frédéric Lopez ce dimanche 29 mars ?**: [Link](https://www.cesoirtv.com/news/actu/4979-un-dimanche-a-la-campagne-qui-sont-les-invites-de-frederic-lopez-ce-dimanche-29-mars/)
+- **«Je propose son prénom pour mes rôles» : Bruno Solo évoque son frère disparu dans «Un dimanche à la campagne»**: [Link](https://tvmag.lefigaro.fr/programme-tv/people/je-propose-son-prenom-pour-mes-roles-bruno-solo-evoque-son-frere-disparu-dans-un-dimanche-a-la-campagne-20260329)
+- **Émission du dimanche 29 mars 2026 en replay - Un dimanche à la campagne**: [Link](https://www.france.tv/la1ere/guyane/un-dimanche-a-la-campagne/8287113-emission-du-dimanche-29-mars-2026.html)
+
+
+### northwest stadium (N/A, Sun, 29 Mar 2026 12:10:00 -0700)
+
+- **Deschamps Plans Extensive Changes for France Squad Against Colombia Ahead of World Cup Announcement**: [Link](http://m.elbotola.com/en/article/2026-03-29-09-30-212.html)
+- **Football Bet Of The Day: Ian Wilkerson has a 5-2 selection from Sunday's international friendlies**: [Link](https://www.racingpost.com/sport/football-tips/football-bet-of-the-day-ian-wilkerson-has-a-5-2-selection-from-sundays-international-friendlies-aBbI72M2iwQM/)
+- **DC region prepares to host World Cup preview match as France takes on Colombia**: [Link](https://wtop.com/local/2026/03/ovn-dc-region-prepares-to-host-world-cup-preview-match-as-france-takes-on-colombia/)
+
+
+### أبو عبيدة (N/A, Sun, 29 Mar 2026 11:00:00 -0700)
+
+- **يحمل سلاحه.. القسام تنشر لقطات جديدة للناطق الراحل أبو عبيدة**: [Link](https://www.aljazeera.net/news/2026/3/29/%D9%8A%D8%AD%D9%85%D9%84-%D8%B3%D9%84%D8%A7%D8%AD%D9%87-%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D9%86%D8%B4%D8%B1-%D9%84%D9%82%D8%B7%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+- **صورة تهنئة الشهيد أبو عبيدة لعائلته في آخر عيدٍ قبل ارتقائه.. هذا ما خطَّه في رسالته الورقية**: [Link](https://felesteen.news/post/177934/%D8%AA%D9%87%D9%86%D8%A6%D8%A9-%D8%A7%D9%84%D8%B4%D9%87%D9%8A%D8%AF-%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8%D9%8A%D8%AF%D8%A9-%D9%84%D8%B9%D8%A7%D8%A6%D9%84%D8%AA%D9%87-%D9%81%D9%8A-%D8%A2%D8%AE%D8%B1-%D8%B9%D9%8A%D8%AF-%D9%82%D8%A8%D9%84-%D8%A7%D8%B1%D8%AA%D9%82%D8%A7%D8%A6%D9%87-%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D8%AE%D8%B7%D9%87-)
+- **بلا لثام.. القسام تنشر لأول مرة فيديو لفادي إسليم نائب الملثم "أبو عبيدة"**: [Link](https://a5r5br.net/international/international-news/7467959-%D8%A8%D9%84%D8%A7-%D9%84%D8%AB%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D9%86%D8%B4%D8%B1-%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%81%D8%A7%D8%AF%D9%8A-%D8%A5%D8%B3%D9%84%D9%8A%D9%85-%D9%86%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D8%AB%D9%85-%D8%A3%D8%A8%D9%88-%D8%B9%D8%A8%D9%8A%D8%AF%D8%A9)
+
+
 ### real madrid vs barcelona (N/A, Sun, 29 Mar 2026 11:50:00 -0700)
 
 - **Horario y canal del Real Madrid - Barcelona femenino: dónde ver hoy por TV el Clásico de la Liga F**: [Link](https://www.mundodeportivo.com/horarios/futbol/20260328/1004161106/horario-canal-ver-tv-real-madrid-barca-femenino-liga-f.html)
