@@ -1,3 +1,17 @@
+### real madrid vs barcelona (N/A, Sun, 29 Mar 2026 11:50:00 -0700)
+
+- **Horario y canal del Real Madrid - Barcelona femenino: dónde ver hoy por TV el Clásico de la Liga F**: [Link](https://www.mundodeportivo.com/horarios/futbol/20260328/1004161106/horario-canal-ver-tv-real-madrid-barca-femenino-liga-f.html)
+- **Previa de los partidos de vuelta de los cuartos de final de la Women's Champions League**: [Link](https://es.uefa.com/womenschampionsleague/news/02a3-2042a84cd717-d31bf3d2da2c-1000--previa-de-los-partidos-de-vuelta-de-los-cuartos-de-final-/)
+- **Pau Quesada: "La imagen que dimos ante el Barça está muy lejos de la que queremos dar"**: [Link](https://www.infobae.com/espana/agencias/2026/03/27/pau-quesada-la-imagen-que-dimos-ante-el-barca-esta-muy-lejos-de-la-que-queremos-dar/)
+
+
+### france vs colombie (N/A, Sun, 29 Mar 2026 11:40:00 -0700)
+
+- **DIRECT. Colombie-France (Matches amicaux A 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/colombie-france-live/688962)
+- **Football - Matches amicaux : Suivez Colombie-France EN DIRECT !**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/colombie-france_mtc1661550/live-commentary.shtml)
+- **EdF : Deschamps a un souhait pour Mbappé**: [Link](https://www.footmercato.net/a5573022389020708987-edf-deschamps-a-un-souhait-pour-mbappe)
+
+
 ### thiago pitarch maroc (N/A, Sun, 29 Mar 2026 09:40:00 -0700)
 
 
