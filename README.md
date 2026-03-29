@@ -1,3 +1,10 @@
+### donald trump arabie saoudite (N/A, Sun, 29 Mar 2026 07:00:00 -0700)
+
+- **«Il ne pensait pas qu’il devrait me lécher les bottes» : Donald Trump s’en prend publiquement au prince héritier d’Arabie saoudite**: [Link](https://www.lefigaro.fr/international/il-ne-pensait-pas-qu-il-devrait-me-lecher-les-bottes-donald-trump-s-en-prend-publiquement-au-prince-heritier-d-arabie-saoudite-20260328)
+- **« Il a intérêt à être gentil avec moi » : Donald Trump assure que le prince Saoudien Mohammed ben Salmane lui a « léché les bottes »**: [Link](https://www.leparisien.fr/international/etats-unis/il-a-interet-a-etre-gentil-avec-moi-donald-trump-assure-que-le-prince-saoudien-mohammed-ben-salmane-lui-a-leche-les-bottes-28-03-2026-THDOKLDHJBAH7C27TPTP6MOCFU.php)
+- **Donald Trump Presse L'Arabie Saoudite De Rejoindre Les Accords D’Abraham**: [Link](https://www.i24news.tv/fr/actu/international/ameriques/artc-donald-trump-presse-l-arabie-saoudite-de-rejoindre-les-accords-d-abraham)
+
+
 ### saint cloud (N/A, Sun, 29 Mar 2026 07:30:00 -0700)
 
 - **Dimanche à Saint-Cloud - Favori / Outsider : Qui jouer dans le Prix Edmond Blanc ?**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/dimanche-a-saint-cloud-favori-outsider-qui-jouer-dans-le-prix-edmond-blanc)
