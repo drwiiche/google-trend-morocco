@@ -1,3 +1,31 @@
+### miami open (N/A, Sun, 29 Mar 2026 13:40:00 -0700)
+
+- **Coco Gauff’s hilarious press conference moment steals the show after Miami Open win**: [Link](https://sports.yahoo.com/articles/coco-gauff-hilarious-press-conference-183346026.html)
+- **Coco Gauff 'grateful' for South Florida support as she prepares to take on Aryna Sabalenka in Miami Open final**: [Link](https://www.wflx.com/2026/03/27/coco-gauff-grateful-south-florida-support-she-prepares-take-aryna-sabalenka-miami-open-final/)
+- **Iga Swiatek handed more bad news after Coco Gauff’s latest win in Miami**: [Link](https://tennishead.net/iga-swiatek-handed-more-bad-news-after-coco-gauffs-latest-win-in-miami/)
+
+
+### كولومبيا ضد فرنسا (N/A, Sun, 29 Mar 2026 13:30:00 -0700)
+
+- **صورة.. وصلة ضحك بين مبابي وثنائي فرنسا على الدكة أمام كولومبيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%88%D8%B1%D8%A9--%D9%88%D8%B5%D9%84%D8%A9-%D8%B6%D8%AD%D9%83-%D8%A8%D9%8A%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%83%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7/bltfc61c1d03973aa1f)
+- **ديشامب يخطط لتغييرات واسعة في تشكيلة فرنسا أمام كولومبيا قبل إعلان قائمة المونديال**: [Link](https://m.elbotola.com/article/2026-03-29-09-30-548.html)
+- **مباشر مباراة فرنسا ضد كولومبيا الودية.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/29/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B6%D8%AF-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
+
+
+### gasoil au maroc (N/A, Sun, 29 Mar 2026 13:30:00 -0700)
+
+- **Carburants : augmentations des prix à partir du 30 mars 2026 à minuit**: [Link](https://www.lebrief.ma/carburants-augmentations-des-prix-a-partir-du-30-mars-2026-a-minuit-100146224/)
+- **Souveraineté électrique: Le Maroc sous tension géopolitique**: [Link](https://www.leconomiste.com/souverainete-electrique-le-maroc-sous-tension-geopolitique/)
+- **Carburants : face aux tensions mondiales, le Conseil de la concurrence durcit le monitoring**: [Link](https://medias24.com/2026/03/27/carburants-face-aux-tensions-mondiales-le-conseil-de-la-concurrence-durcit-le-monitoring-1649891/)
+
+
+### colombie – france (N/A, Sun, 29 Mar 2026 12:40:00 -0700)
+
+- **Colombie - France : à quelle heure et sur quelle chaîne TV regarder le match amical entre les Bleus et la Tricolor?**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/france-colombie-a-quelle-heure-et-sur-quelle-chaine-tv-regarder-le-match-amical-entre-les-bleus-et-la-tricolor_AV-202603290119.html)
+- **EN DIRECT - Colombie-France : efficacité totale pour les Bleus, Doué s’offre le doublé**: [Link](https://www.lefigaro.fr/sports/football/live/amicaux/2025/2611026/colombie-france)
+- **C’est fait pour Désiré Doué**: [Link](https://www.sports.fr/football/equipe-de-france/cest-fait-pour-desire-doue-1002300.html)
+
+
 ### france vs (N/A, Sun, 29 Mar 2026 12:10:00 -0700)
 
 - **Colombia vs France LIVE updates, watch live, score, analysis, highlights**: [Link](https://www.nbcsports.com/colombia-vs-france-live-updates-score-highlights-stats-watch)
