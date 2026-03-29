@@ -1,3 +1,17 @@
+### colombia vs france (N/A, Sun, 29 Mar 2026 12:50:00 -0700)
+
+- **Colombia - Francia, en directo: Amistoso internacional, hoy en vivo**: [Link](https://as.com/futbol/internacional/colombia-francia-en-directo-amistoso-internacional-hoy-en-vivo-f202603-d/)
+- **James Rodríguez vs Mbappé: Dónde ver Colombia vs. Francia GRATIS en Centroamérica y posibles alineaciones**: [Link](https://futbolcentroamerica.com/mundial/james-rodriguez-vs-mbappe-donde-ver-colombia-vs-francia-gratis-en-centroamerica-y-posibles-alineaciones)
+- **Telemundo presenta el amistoso internacional Francia vs Colombia**: [Link](https://www.telemundo47.com/deportes/telemundo-programacion-marzo-mlb-futbol-baloncesto/2619401/)
+
+
+### james rodriguez (N/A, Sun, 29 Mar 2026 12:30:00 -0700)
+
+- **"No soy alcahueta, pero en Selección Colombia no hay 20 James Rodríguez; hay que ponerlo"**: [Link](https://www.noticiascaracol.com/golcaracol/seleccion-colombia/no-soy-alcahueta-pero-en-seleccion-colombia-no-hay-20-james-rodriguez-hay-que-ponerlo-ex40)
+- **“Sé que le faltan minutos, pero está listo para jugar y lo hizo bien”: Lorenzo respaldó titularidad de James ante Croacia**: [Link](https://es-us.noticias.yahoo.com/s%C3%A9-faltan-minutos-listo-jugar-184005434.html)
+- **En Colombia James Rodríguez recibe críticas a horas del duelo ante Francia por su físico**: [Link](https://www.lahinchada.com.pe/en-colombia-james-rodriguez-recibe-criticas-a-horas-del-duelo-ante-francia-por-su-fisico/)
+
+
 ### programme tv (N/A, Sun, 29 Mar 2026 12:20:00 -0700)
 
 - **Un dimanche à la campagne : Qui sont les invités de Frédéric Lopez ce dimanche 29 mars ?**: [Link](https://www.cesoirtv.com/news/actu/4979-un-dimanche-a-la-campagne-qui-sont-les-invites-de-frederic-lopez-ce-dimanche-29-mars/)
