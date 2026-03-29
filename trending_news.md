@@ -1,3 +1,10 @@
+### r1c3 (N/A, Sun, 29 Mar 2026 06:30:00 -0700)
+
+- **Tiercé. Les pronostics de « L'Alsace » pour dimanche 29 mars - Prix du Languedoc**: [Link](https://www.lalsace.fr/actualite/2026/03/28/les-pronostics-de-l-alsace-pour-dimanche-29-mars-prix-du-languedoc)
+- **Les pronos hippiques du dimanche 29 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-29-mars-2026_AN-202603280234.html)
+- **Quinté Plus PMU : Drumard peut viser un bon classement**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-drumard-peut-viser-un-bon-classement-129394.html)
+
+
 ### tf1 danse avec les stars (N/A, Sun, 29 Mar 2026 05:00:00 -0700)
 
 - **Danse avec les stars - Emission 8 (Partie 1) du 27 mars 2026**: [Link](https://www.tf1.fr/fr-ma/tf1/danse-avec-les-stars/videos/danse-avec-les-stars-emission-8-partie-1-du-27-mars-2026-97783202.html)
