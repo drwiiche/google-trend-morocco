@@ -1,3 +1,10 @@
+### morocco vs paraguay (N/A, Mon, 30 Mar 2026 11:40:00 -0700)
+
+- **Morocco resume training after Ecuador draw ahead of Paraguay friendly**: [Link](https://en.hespress.com/134654-morocco-resume-training-after-ecuador-draw-ahead-of-paraguay-friendly.html)
+- **«Morocco is a serious contender», Paraguay coach Gustavo Alfaro warns ahead of clash**: [Link](https://en.yabiladi.com/articles/details/191239/morocco-serious-contender-paraguay-coach.html)
+- **Moroccan National Team Arrives in France Ahead of Friendly Against Paraguay**: [Link](https://barlamantoday.com/2026/03/29/moroccan-national-team-arrives-in-france-ahead-of-friendly-against-paraguay/)
+
+
 ### maroc paraguay (N/A, Mon, 30 Mar 2026 11:10:00 -0700)
 
 - **Les propos incroyables du sélectionneur du Paraguay sur le Maroc**: [Link](https://www.footmercato.net/a1234141122243935172-les-propos-incroyables-du-selectionneur-du-paraguay-sur-le-maroc)
