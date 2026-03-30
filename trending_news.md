@@ -1,3 +1,31 @@
+### germany vs ghana (N/A, Mon, 30 Mar 2026 13:00:00 -0700)
+
+- **Confirmed lineups: Germany vs. Ghana**: [Link](https://bulinews.com/confirmed-lineups-germany-ghana)
+- **How to live stream Germany vs Ghana: International friendly, TV channel**: [Link](https://www.thebiglead.com/how-to-live-stream-germany-vs-ghana-international-friendly-tv-channel/)
+- **Alemania - Ghana live**: [Link](https://www.marca.com/en/soccer/national-team-friendlies/alemania-ghana/2026/03/30/01_0112_20260330_357_1219-live.html)
+
+
+### مجموعات كأس العالم 2026 (N/A, Mon, 30 Mar 2026 12:50:00 -0700)
+
+- **لاعبو إيران يحيّون ذكرى ضحايا غارة جوية على مدرسة**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260328-%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D8%AD%D9%8A%D9%91%D9%88%D9%86-%D8%B0%D9%83%D8%B1%D9%89-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%BA%D8%A7%D8%B1%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9)
+- **احتجاج لافت من لاعبي منتخب إيران تخليدا لضحايا مدرسة "ميناب" (شاهد)**: [Link](https://arabi21.com/story/1747784/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC-%D9%84%D8%A7%D9%81%D8%AA-%D9%85%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AE%D9%84%D9%8A%D8%AF%D8%A7-%D9%84%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D9%85%D9%8A%D9%86%D8%A7%D8%A8-%D8%B4%D8%A7%D9%87%D8%AF)
+- **موعد مباراة إيران ضد كوستاريكا استعداداً لكأس العالم 2026 والقنوات الناقلة**: [Link](https://www.annahar.com/sports/293846/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D9%83%D9%88%D8%B3%D8%AA%D8%A7%D8%B1%D9%8A%D9%83%D8%A7-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+
+
+### celine dion (N/A, Mon, 30 Mar 2026 12:40:00 -0700)
+
+- **Celine Dion is returning to the stage like she always believed she could**: [Link](https://www.cnn.com/2026/03/30/entertainment/celine-dion-return-stage-paris)
+- **Céline Dion to perform first concert series since 2020 in Paris**: [Link](https://www.usatoday.com/story/entertainment/music/2026/03/30/celine-dion-paris-2026-performances/89384369007/)
+- **Celine Dion announces comeback following health struggle**: [Link](https://www.yahoo.com/entertainment/music/articles/celine-dion-announces-comeback-following-192000055.html)
+
+
+### المغرب ضد باراغواي (N/A, Mon, 30 Mar 2026 11:30:00 -0700)
+
+- **بعثة المنتخب الوطني تحل بفرنسا استعدادا للقاء البارغواي**: [Link](https://frmf.ma/articles/%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%AA%D8%AD%D9%84-%D8%A8%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%BA%D9%88%D8%A7%D9%8A)
+- **ما القنوات الناقلة لمباراة المغرب وباراجواي الودية استعدادًا لكأس العالم 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A8%D8%A7%D8%B1%D8%A7%D8%AC%D9%88%D8%A7%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%8B%D8%A7-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc838120eb61bc98c)
+- **أول اختبار لوهبي بين الانتقاد والتفاؤل**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%84-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%84%D9%88%D9%87%D8%A8%D9%8A-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%A4-1722431.html)
+
+
 ### morocco vs paraguay (N/A, Mon, 30 Mar 2026 11:40:00 -0700)
 
 - **Morocco resume training after Ecuador draw ahead of Paraguay friendly**: [Link](https://en.hespress.com/134654-morocco-resume-training-after-ecuador-draw-ahead-of-paraguay-friendly.html)
