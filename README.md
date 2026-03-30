@@ -1,3 +1,17 @@
+### liamine zéroual (N/A, Mon, 30 Mar 2026 00:10:00 -0700)
+
+- **Saudi king, crown prince offer condolences on death of Algeria’s former president Zeroual**: [Link](https://www.arabnews.com/node/2638106/saudi-arabia)
+- **The Man Who Gave Back The Key: Farewell to Liamine Zeroual — A Statesman at the Height of His People**: [Link](https://countercurrents.org/2026/03/the-man-who-gave-back-the-key-farewell-to-liamine-zeroual-algerias-last-selfless-statesman/)
+- **Statement of the Chairperson of the AU Commission on the Passing of Former President of the People’s Democratic Republic of Algeria, H.E. Liamine Zeroual**: [Link](https://au.int/en/pressreleases/20260329/auc-chairperson-statement-passing-former-president-algeria)
+
+
+### france vs colombia (N/A, Sun, 29 Mar 2026 12:50:00 -0700)
+
+- **Colombia 1-3 France (Mar 29, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/762453)
+- **DC region prepares to host World Cup preview match as France takes on Colombia**: [Link](https://wtop.com/local/2026/03/ovn-dc-region-prepares-to-host-world-cup-preview-match-as-france-takes-on-colombia/)
+- **Colombia vs France: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cg40z1n4dlpt)
+
+
 ### radio mars (N/A, Mon, 30 Mar 2026 00:10:00 -0700)
 
 - **بعدما صدم المغرب.. بيتارش يكتب أول فصول قصته مع إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF%D9%85%D8%A7-%D8%B5%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D8%A8%D9%8A%D8%AA%D8%A7%D8%B1%D8%B4-%D9%8A%D9%83%D8%AA%D8%A8-%D8%A7%D9%94%D9%88%D9%84-%D9%81%D8%B5%D9%88%D9%84-%D9%82%D8%B5%D8%AA%D9%87-%D9%85%D8%B9-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blteca197c5189d1d72)
