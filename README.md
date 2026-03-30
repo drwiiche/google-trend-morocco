@@ -1,3 +1,17 @@
+### maroc vs égypte u17 resultat (N/A, Mon, 30 Mar 2026 09:10:00 -0700)
+
+- **Live: Morocco vs Egypt match in the North Africa U17 qualifiers**: [Link](https://chamaly.ma/2026/03/30/live-morocco-vs-egypt-match-in-the-north-africa-u17-qualifiers/)
+- **En direct : match Maroc vs Égypte dans les éliminatoires de l’Afrique du Nord U17**: [Link](https://chamaly.ma/2026/03/30/en-direct-match-maroc-vs-egypte-dans-les-eliminatoires-de-lafrique-du-nord-u17/)
+- **Live: Morocco vs Egypt match in the North Africa U17 qualifiers**: [Link](https://chamaly.ma/2026/03/30/live-morocco-vs-egypt-match-in-the-north-africa-u17-qualifiers/)
+
+
+### morocco vs egypt u17 (N/A, Mon, 30 Mar 2026 08:10:00 -0700)
+
+- **Morocco U17 Defeat Egypt 2–1 to Extend Winning Streak in UNAF Championship**: [Link](https://www.moroccoworldnews.com/2026/03/285073/morocco-u17-defeat-egypt-2-1-to-extend-winning-streak-in-unaf-championship/)
+- **Morocco U-17 beats Algeria 3-0 for second straight win in UNAF qualifiers**: [Link](https://en.hespress.com/134592-morocco-u-17-beats-algeria-3-0-for-second-straight-win-in-unaf-qualifiers.html)
+- **Donald Trump’s bizarre helicopter outburst exposed as the Middle East hangs in the balance.**: [Link](https://tanja7.com/en/8961)
+
+
 ### المغرب ضد مصر (N/A, Mon, 30 Mar 2026 07:10:00 -0700)
 
 - **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء مصر**: [Link](https://frmf.ma/articles/tournoi-unaf-u17-maroc-egypte-entrainement-de-veille-de-match-pour-les-lionceaux-de-latlas)
