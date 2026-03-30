@@ -1,3 +1,10 @@
+### phillies – nationals (N/A, Mon, 30 Mar 2026 15:40:00 -0700)
+
+- **MLB betting tips for Monday: Can the Nationals keep the Phillies in NL East cellar?**: [Link](https://www.espn.com/espn/betting/story/_/id/48346072/mlb-betting-tips-odds-lines-2026-monday-march-30)
+- **The Nats Look To Keep Good Times Rolling Into 3 Game Set In Philly**: [Link](https://sports.yahoo.com/articles/nats-look-keep-good-times-174500484.html)
+- **Are the Phillies playing today? What channel are the Phillies on?**: [Link](https://www.app.com/story/sports/mlb/phillies/2026/03/30/phillies-vs-nationals-lineups-how-to-watch-phillies-vs-nationals/89392319007/)
+
+
 ### guyana vs belize (N/A, Mon, 30 Mar 2026 12:50:00 -0700)
 
 - **Guyana vs Belize: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ce35203pqvjt)
