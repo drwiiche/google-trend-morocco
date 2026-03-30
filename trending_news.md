@@ -1,3 +1,10 @@
+### prix gasoil maroc (N/A, Sun, 29 Mar 2026 23:00:00 -0700)
+
+- **Carburants : augmentations des prix à partir du 30 mars 2026 à minuit**: [Link](https://www.lebrief.ma/carburants-augmentations-des-prix-a-partir-du-30-mars-2026-a-minuit-100146224/)
+- **ONEE : le "grand choc" à une dizaine de milliards de la guerre au Moyen-Orient**: [Link](https://medias24.com/2026/03/27/onee-le-grand-choc-a-une-dizaine-de-milliards-de-la-guerre-au-moyen-orient-1649605/)
+- **Blocage du détroit d’Ormuz : le Maroc sous pression entre choc énergétique et gains fragilisés à l’export**: [Link](https://fr.hespress.com/467507-blocage-du-detroit-dormuz-le-maroc-sous-pression-entre-choc-energetique-et-gains-fragilises-a-lexport.html)
+
+
 ### france (N/A, Sun, 29 Mar 2026 13:40:00 -0700)
 
 - **33 ème Séminaire international olympique : l’ANOF lance son appel à candidatures pour représenter la France**: [Link](https://patrickbayeux.com/actualites/33-eme-seminaire-international-olympique-lanof-lance-son-appel-a-candidatures-pour-representer-la-france/)
