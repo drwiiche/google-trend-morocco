@@ -1,3 +1,17 @@
+### المغرب ضد مصر (N/A, Mon, 30 Mar 2026 07:10:00 -0700)
+
+- **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء مصر**: [Link](https://frmf.ma/articles/tournoi-unaf-u17-maroc-egypte-entrainement-de-veille-de-match-pour-les-lionceaux-de-latlas)
+- **فيديو.. فوز مغربي قاتل على أشبال الفراعنة في بطولة شمال أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%81%D9%88%D8%B2-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%82%D8%A7%D8%AA%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltaabaf584bc76619b)
+- **منتخب أقل من 17 سنة يهزم مصر**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D9%85%D8%B5%D8%B1-1723376.html)
+
+
+### المديرية العامة للأرصاد الجوية (N/A, Mon, 30 Mar 2026 06:50:00 -0700)
+
+- **تقلبات الطقس بالمغرب .. انخفاض في الحرارة وزخات مطرية ورياح قوية**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1-1723192.html)
+- **زخات رعدية قوية وثلوج بالأطلس..توقعات أحوال الطقس اليوم الأربعاء**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D8%B9-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7/)
+- **نشرة إنذارية: طقس بارد وهبات رياح قوية بعدد من المناطق**: [Link](https://ar.hibapress.com/details-713969.html)
+
+
 ### snrt (N/A, Mon, 30 Mar 2026 07:40:00 -0700)
 
 - **Débats politiques: entre encadrement télévisuel et dynamique des réseaux sociaux**: [Link](https://snrtnews.com/fr/article/debats-politiques-entre-encadrement-televisuel-et-dynamique-des-reseaux-sociaux-148962)
