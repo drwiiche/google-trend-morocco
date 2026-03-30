@@ -1,3 +1,17 @@
+### allemagne – ghana (N/A, Mon, 30 Mar 2026 13:00:00 -0700)
+
+- **Allemagne 2-1 Ghana, Matches amicaux A : résumé du match (30/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/allemagne-ghana-live/688967)
+- **Amical / Ghana : Daniel-Kofi Kyereh booste le moral du groupe avec sa visite**: [Link](https://www.africatopsports.com/2026/03/30/amical-ghana-daniel-kofi-kyereh-booste-le-moral-du-groupe-avec-sa-visite/)
+- **Ghana : Otto Addo - "On est d'accord sur les nombreux points à améliorer"**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ghana-otto-addo-on-est-d-accord-sur-les-nombreux-points-a-ameliorer-517958.html)
+
+
+### ayyoub bouaddi (N/A, Mon, 30 Mar 2026 12:20:00 -0700)
+
+- **Bouaddi: I Have Not Yet Decided on My International Future**: [Link](https://www.moroccoworldnews.com/2026/03/284806/bouaddi-i-have-not-yet-decided-on-my-international-future/)
+- **Ayyoub Bouaddi yet to decide between France and Morocco for his international career**: [Link](https://sports.yahoo.com/articles/ayyoub-bouaddi-yet-decide-between-173500263.html)
+- **Bouaddi: "I Haven't Decided Which National Team I'll Play For Yet, And I Don't Want to Rush"**: [Link](https://m.elbotola.com/en/article/2026-03-29-17-55-81.html)
+
+
 ### germany vs ghana (N/A, Mon, 30 Mar 2026 13:00:00 -0700)
 
 - **Confirmed lineups: Germany vs. Ghana**: [Link](https://bulinews.com/confirmed-lineups-germany-ghana)
