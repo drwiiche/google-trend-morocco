@@ -1,3 +1,23 @@
+### snrt (N/A, Mon, 30 Mar 2026 07:40:00 -0700)
+
+- **Débats politiques: entre encadrement télévisuel et dynamique des réseaux sociaux**: [Link](https://snrtnews.com/fr/article/debats-politiques-entre-encadrement-televisuel-et-dynamique-des-reseaux-sociaux-148962)
+- **Match amical Maroc-Équateur : la presse espagnole salue une prestation de haut niveau**: [Link](https://maroc-diplomatique.net/match-amical-maroc-equateur-la-presse-espagnole-salue-une-prestation-de-haut-niveau/)
+- **Reprise des entraînements pour la Sélection Nationale "A"**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1)
+
+
+### morocco u17 (N/A, Mon, 30 Mar 2026 07:20:00 -0700)
+
+- **المغرب ومصر لأقل من 17 سنة.. الموعد والقناة الناقلة**: [Link](https://ihata.ma/sport/egypt-morocco-u17-channel-time/)
+- **المنتخب المغربي لأقل من 17 سنة ينهي تحضيراته قبل مواجهة مصر**: [Link](https://ihata.ma/sport/almontakhab-almaghribi-aqal-min-17-sana-masr/)
+
+
+### jerome powell (N/A, Mon, 30 Mar 2026 07:10:00 -0700)
+
+- **On the horns of an inflation-growth dilemma, Fed Chair Powell to speak at Harvard**: [Link](https://www.reuters.com/business/horns-an-inflation-growth-dilemma-fed-chair-powell-speak-harvard-2026-03-30/)
+- **🚨 MARKET ALERT: FED EMERGENCY ANNOUNCEMENT TOMORROW!**: [Link](https://www.binance.com/hu/square/post/306815371935298)
+- **Powell says Fed positioned to 'wait and see' how war affects economy**: [Link](https://www.detroitnews.com/story/business/2026/03/30/federal-reserve-economy-iran-war/89386121007/)
+
+
 ### arryadia (N/A, Mon, 30 Mar 2026 07:00:00 -0700)
 
 
