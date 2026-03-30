@@ -1,3 +1,10 @@
+### gitex (N/A, Mon, 30 Mar 2026 03:50:00 -0700)
+
+- **Multi‑track GITEX AI ASIA Combines AI, Data Centres, Cybersecurity And Quantum**: [Link](https://futureiot.tech/multi-track-gitex-ai-asia-combines-ai-data-centres-cybersecurity-and-quantum/)
+- **Global Technology Leaders to Convene at ATxEnterprise 2026 to Address the Future of Digital Infrastructure**: [Link](https://en.antaranews.com/news/410122/global-technology-leaders-to-convene-at-atxenterprise-2026-to-address-the-future-of-digital-infrastructure)
+- **7 Filipino AI-powered tech startups at GITEX AI Asia 2026**: [Link](https://businessmirror.com.ph/2026/03/29/7-filipino-ai-powered-tech-startups-at-gitex-ai-asia-2026/)
+
+
 ### liamine zéroual (N/A, Mon, 30 Mar 2026 00:10:00 -0700)
 
 - **Saudi king, crown prince offer condolences on death of Algeria’s former president Zeroual**: [Link](https://www.arabnews.com/node/2638106/saudi-arabia)
