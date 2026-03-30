@@ -1,3 +1,29 @@
+### arryadia (N/A, Mon, 30 Mar 2026 07:00:00 -0700)
+
+
+
+
+### مباراة المغرب اليوم مباشر أقل من 17 سنة (N/A, Mon, 30 Mar 2026 06:50:00 -0700)
+
+- **المغرب ومصر لأقل من 17 سنة.. الموعد والقناة الناقلة**: [Link](https://ihata.ma/sport/egypt-morocco-u17-channel-time/)
+- **المنتخب المغربي لأقل من 17 سنة ينهي تحضيراته قبل مواجهة مصر**: [Link](https://ihata.ma/sport/almontakhab-almaghribi-aqal-min-17-sana-masr/)
+- **"أشبال الأطلس" يكتسحون في ليبيا المنتخب الجزائري بثلاثية نظيفة**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD%D9%88%D9%86-%D9%81%D9%8A-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE-1721907.html)
+
+
+### saibari maroc (N/A, Mon, 30 Mar 2026 06:50:00 -0700)
+
+- **« C’est une trahison, une honte nationale » : le Maroc s’embrase après des « likes » de joueurs sur les célébrations du Sénégal**: [Link](https://www.lavoixdunord.fr/1689574/article/2026-03-29/c-est-une-trahison-une-honte-nationale-le-maroc-s-embrase-apres-des-likes-de)
+- **Ce qui peut unir peut aussi diviser**: [Link](https://fr.le360.ma/societe/ce-qui-peut-unir-peut-aussi-diviser_YODCNROTFRE2ZONQQHTKPEFVBE/)
+- **Polémique des likes : Six joueurs du Maroc risquent la mise à l’écart**: [Link](https://www.football365.fr/maroc-joueurs-likes-polemique-10287017.html)
+
+
+### maroc vs egypte u17 2026 (N/A, Mon, 30 Mar 2026 05:40:00 -0700)
+
+- **UNAF U17 (3ème journée) : les Lionceaux de l'Atlas préparent le match face à l'Égypte**: [Link](https://frmf.ma/fr/articles/unaf-u17-3eme-journee-les-lionceaux-de-latlas-preparent-le-match-face-a-legypte)
+- **Maroc-Égypte (UNAF U17) : quelle heure, quelle chaîne**: [Link](https://private-admin.medias24.com/2026/03/29/maroc-egypte-unaf-u17-quelle-heure-quelle-chaine-1650253/)
+- **Maroc-Egypte: les Lionceaux de l’Atlas affûtent leurs armes**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-egypte-les-lionceaux-de-latlas-affutent-leurs-armes_AIMWT74A7ZHERDSY4VLY6XBLPM/)
+
+
 ### اعتقال رضى الهجهوج (N/A, Sun, 29 Mar 2026 14:20:00 -0700)
 
 - **توقيف لاعب الوداد السابق رضا الهجهوج بالدار البيضاء**: [Link](https://ar.yabiladi.com/articles/details/191204/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%B1%D8%B6%D8%A7.html)
