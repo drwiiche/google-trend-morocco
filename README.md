@@ -1,3 +1,10 @@
+### france (N/A, Sun, 29 Mar 2026 13:40:00 -0700)
+
+- **33 ème Séminaire international olympique : l’ANOF lance son appel à candidatures pour représenter la France**: [Link](https://patrickbayeux.com/actualites/33-eme-seminaire-international-olympique-lanof-lance-son-appel-a-candidatures-pour-representer-la-france/)
+- **La météo du lundi 30 mars 2026**: [Link](https://www.mosaiquefm.net/fr/national-tunisie/1510760/la-meteo-du-lundi-30-mars-2026)
+- **Quelles sont les prévisions météo de ce 30 mars 2026 en France ?**: [Link](https://www.franceinfo.fr/environnement/meteo/bulletins-meteo/previsions-quotidiennes/quelles-sont-les-previsions-meteo-de-ce-30-mars-2026-en-france_7903631.html)
+
+
 ### donald trump (N/A, Sun, 29 Mar 2026 18:10:00 -0700)
 
 - **Ignore the bombast – the Iran war is only likely to end one way**: [Link](https://www.cnn.com/2026/03/27/middleeast/iran-us-demands-war-ending-diplomacy-intl)
