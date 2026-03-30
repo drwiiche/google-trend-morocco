@@ -1,3 +1,10 @@
+### donald trump (N/A, Sun, 29 Mar 2026 18:10:00 -0700)
+
+- **Ignore the bombast – the Iran war is only likely to end one way**: [Link](https://www.cnn.com/2026/03/27/middleeast/iran-us-demands-war-ending-diplomacy-intl)
+- **Is Iran a Political Problem for Trump? Tell Me How Long the War Lasts.**: [Link](https://www.nytimes.com/2026/03/28/upshot/iran-war-trump-popularity.html)
+- **As Trump feels pressure to end war, allies fear what Iran may do next**: [Link](https://www.washingtonpost.com/politics/2026/03/27/trump-iran-negotiations-dilemma/)
+
+
 ### sinner (N/A, Sun, 29 Mar 2026 14:00:00 -0700)
 
 - **++[LIVESTREAMS]TV!! Jannik Sinner vs Jiri Lehecka 2026 Live 𝖲𝗍𝗋𝖾𝖺𝗆**: [Link](https://salfordreddevils.com/grt/video/video-jannik-sinner-v-jiri-lehecka-2026-show-free5.html)
