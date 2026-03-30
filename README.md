@@ -1,3 +1,10 @@
+### tour mohammed vi (N/A, Mon, 30 Mar 2026 14:30:00 -0700)
+
+- **Rabat : la Tour Mohammed VI officiellement livrée**: [Link](https://mobile.telquel.ma/instant-t/2026/03/30/rabat-la-tour-mohammed-vi-officiellement-livree-a-rabat_1981382/)
+- **Officiel. Achèvement des travaux de la Tour Mohammed VI, nouvelle icône du paysage urbain marocain**: [Link](https://fr.le360.ma/economie/officiel-achevement-des-travaux-de-la-tour-mohammed-vi-nouvelle-icone-du-paysage-urbain-marocain_K5RFUWDOXRG3DAUBTCBX2FSA6U/)
+- **Tour Mohammed VI : le plus haut gratte-ciel du Royaume officiellement livré**: [Link](https://medias24.com/2026/03/30/tour-mohammed-vi-le-plus-haut-gratte-ciel-du-royaume-officiellement-livre-1650657/)
+
+
 ### allemagne – ghana (N/A, Mon, 30 Mar 2026 13:00:00 -0700)
 
 - **Allemagne 2-1 Ghana, Matches amicaux A : résumé du match (30/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/allemagne-ghana-live/688967)
