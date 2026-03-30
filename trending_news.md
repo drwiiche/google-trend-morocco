@@ -1,3 +1,10 @@
+### اعتقال رضى الهجهوج (N/A, Sun, 29 Mar 2026 14:20:00 -0700)
+
+- **توقيف لاعب الوداد السابق رضا الهجهوج بالدار البيضاء**: [Link](https://ar.yabiladi.com/articles/details/191204/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%B1%D8%B6%D8%A7.html)
+- **منخرط ودادي يدعو إلى التريث في إصدار الأحكام بعد توقيف لاعب النادي رضا الهجهوج**: [Link](https://anfaspress.com/news/voir/168575-2026-03-30-12-01-24)
+- **رضى الهجهوج.. اعتقال نجم المغرب السابق بتهمة تكوين عصابة**: [Link](https://al-ain.com/article/reda-hajhouj-morocco)
+
+
 ### gitex (N/A, Mon, 30 Mar 2026 03:50:00 -0700)
 
 - **Multi‑track GITEX AI ASIA Combines AI, Data Centres, Cybersecurity And Quantum**: [Link](https://futureiot.tech/multi-track-gitex-ai-asia-combines-ai-data-centres-cybersecurity-and-quantum/)
