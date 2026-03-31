@@ -1,3 +1,10 @@
+### gitex africa 2026 (N/A, Tue, 31 Mar 2026 04:00:00 -0700)
+
+- **Morocco World News Relaunches ‘DigiTalk’ at GITEX Africa 2026**: [Link](https://www.moroccoworldnews.com/2026/03/285104/morocco-world-news-relaunches-digitalk-at-gitex-africa-2026/)
+- **Inrico to Debut at GITEX Africa 2026 with Integrated Communication Solutions**: [Link](https://www.criticalcommunicationsreview.com/ccr/news/118375/inrico-to-debut-at-gitex-africa-2026-with-integrated-communication-solutions)
+- **Vertiv to Showcase AI-Ready Infrastructure Solutions at GITEX Africa Morocco 2026**: [Link](https://trendsnafrica.com/vertiv-to-showcase-ai-ready-infrastructure-solutions-at-gitex-africa-morocco-2026/)
+
+
 ### gitex (N/A, Tue, 31 Mar 2026 03:20:00 -0700)
 
 - **Morocco World News Relaunches ‘DigiTalk’ at GITEX Africa 2026**: [Link](https://www.moroccoworldnews.com/2026/03/285104/morocco-world-news-relaunches-digitalk-at-gitex-africa-2026/)
