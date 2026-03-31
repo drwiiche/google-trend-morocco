@@ -1,3 +1,10 @@
+### توقيت مباراة المغرب (N/A, Tue, 31 Mar 2026 07:20:00 -0700)
+
+- **ميطا 3 | ودية المغرب والباراغواي**: [Link](https://www.hespress.com/%D9%85%D9%8A%D8%B7%D8%A7-3-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%A7%D8%BA%D9%88%D8%A7%D9%8A-1723513.html)
+- **مباراة المغرب وباراغواي الودية.. الموعد والتشكيلتان والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/3/30/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A8%D8%A7%D8%B1%D8%A7%D8%BA%D9%88%D8%A7%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
+- **وهبي يضع آخر اللمسات قبل اختبار الباراغواي**: [Link](https://www.radiomars.ma/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B6%D8%B9-%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D9%84%D9%85%D8%B3%D8%A7%D8%AA-%D9%82%D8%A8%D9%84-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%A7/)
+
+
 ### reda bennani (N/A, Tue, 31 Mar 2026 05:10:00 -0700)
 
 - **2026 Grand Prix Hassan II: Bellucci [77th] vs. Bennani Prediction, Odds and Match Preview**: [Link](https://sportsbookwire.usatoday.com/story/sports/sports-betting/2026/03/28/mattia-bellucci-vs-reda-bennani-grand-prix-hassan-ii-tennis-odds-lines-betting-3-31-2026/89374189007/)
