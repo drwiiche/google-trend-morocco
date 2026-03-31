@@ -1,3 +1,38 @@
+### zapopan (N/A, Tue, 31 Mar 2026 14:50:00 -0700)
+
+- **Canal de baja presión y humedad del Pacífico, la causa de las granizadas en la ZMG: UEPCBJ**: [Link](https://www.informador.mx/jalisco/canal-de-baja-presion-y-humedad-del-pacifico-la-causa-de-las-granizadas-en-la-zmg-uepcbj-20260331-0119.html)
+- **Intensa granizada sorprende al poniente de Zapopan**: [Link](https://saganoticias.com/actual/intensa-granizada-sorprende-al-poniente-de-zapopan)
+- **Árbol cae sobre dos vehículos en Oblatos; ¿hay heridos?**: [Link](https://www.aztecajalisco.com/local/arbol-cae-dos-vehiculos-en-oblatos-guadalajara-este-es-el-saldo/)
+
+
+### italia (N/A, Tue, 31 Mar 2026 14:40:00 -0700)
+
+- **Italia, altra disfatta storica: la Bosnia ci elimina ai rigori, terzo Mondiale di fila senza Azzurri**: [Link](https://www.gazzetta.it/Calcio/Nazionale/31-03-2026/bosnia-italia-live-risultato-gol-diretta-qualificazioni-mondiali.shtml)
+- **Gattuso: “Chiedo scusa, è una mazzata enorme. Il mio futuro? Non è importante adesso”**: [Link](https://www.repubblica.it/sport/calcio/nazionale/2026/03/31/news/gattuso_bosnia_mondiale_chiedo_scusa_futuro-425256646/)
+- **A Zenica fumogeni, cori e qualche fischio: così l'Italia arriva allo stadio"**: [Link](https://mediasetinfinity.mediaset.it/video/sportmediaset/a-zenica-fumogeni-cori-e-qualche-fischio-cosi-litalia-arriva-allo-stadio_FD00000000523978)
+
+
+### iraq vs bolivia (N/A, Tue, 31 Mar 2026 14:40:00 -0700)
+
+- **Iraq Faces Bolivia in Playoff Seeking Second World Cup Appearance**: [Link](https://m.elbotola.com/en/article/2026-03-30-22-11-464.html)
+- **Sudani Allocates Special Reward for Iraqi Players if They Reach the World Cup**: [Link](https://www.ysscores.com/en/news/13937291/Sudani-Allocates-Special-Reward-for-Iraqi-Players-if-They-Reach-the-World-Cup)
+- **‘Iran will be at World Cup’ and play in USA, FIFA’s Infantino says**: [Link](https://www.socceramerica.com/iran-will-be-at-world-cup-and-play-in-usa-fifas-infantino-says/)
+
+
+### tchéquie – danemark (N/A, Tue, 31 Mar 2026 14:30:00 -0700)
+
+- **Rép. tchèque 2-2 Danemark, Qualif. CM Europe : résumé du match (31/03/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/qualif-cm-europe/2026/rep-tcheque-danemark-live/689006)
+- **Barrages CDM 2026 - Nidal Celik sur le banc,**: [Link](https://madeinlensois.ouest-france.fr/infos/article-barrages-cdm-2026-nidal-celik-sur-le-banc-518170.html)
+- **Barrage de la Coupe du monde : des joueurs de l’OL vont s’affronter pour une place au Mondial**: [Link](https://www.lyonfoot.com/article/12670/barrage-de-la-coupe-du-monde-des-joueurs-de-l-ol-vont-s-affronter-pour-une-place-au-mondial)
+
+
+### england vs japan (N/A, Tue, 31 Mar 2026 13:50:00 -0700)
+
+- **England beaten by Japan in final match before World Cup squad named - report and reaction**: [Link](https://www.bbc.com/sport/football/live/c3dl5rpnk5mt)
+- **Ghee: We Feel Disappointed, and This Will Be Important**: [Link](https://www.ysscores.com/en/news/13937485/Ghee:-We-Feel-Disappointed,-and-This-Will-Be-Important)
+- **'I don't want to engage in this discussion' - Blunt Thomas Tuchel shuts down ITV reporter after England's loss to Japan**: [Link](https://www.thesun.co.uk/sport/38691856/thomas-tuchel-shuts-down-reporter-england-japan/)
+
+
 ### éliminatoires de la coupe du monde (N/A, Tue, 31 Mar 2026 14:00:00 -0700)
 
 - **LIVE - Italie-Irlande du Nord en direct**: [Link](https://www.football.fr/coupe-du-monde-2026/live-italie-irlande-du-nord-en-direct-806821.html)
