@@ -1,3 +1,17 @@
+### paraguay (N/A, Tue, 31 Mar 2026 09:20:00 -0700)
+
+- **El seleccionador de Paraguay alucina con Marruecos: "Son candidatos serios al Mundial; el próximo ni te digo"**: [Link](https://www.sport.es/es/noticias/futbol-internacional/seleccionador-paraguay-alucina-marruecos-son-128575014)
+- **Gerardo Martino: "Marruecos es campeón de África y tiene jugadores de alto nivel... Será una prueba real para Paraguay"**: [Link](https://m.elbotola.com/es/article/2026-03-31-05-11-761.html)
+- **Exigente desafío para la Albirroja**: [Link](https://www.apf.org.py/noticias/exigente-desafio-para-la-albirroja)
+
+
+### حيفا (N/A, Tue, 31 Mar 2026 07:20:00 -0700)
+
+- **ضربة ثانية.. تفاصيل جديدة حول القصف الصاروخي لمصفاة حيفا**: [Link](https://www.aljazeera.net/news/2026/3/30/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+- **أضرار وحريق بمصافي نفط إسرائيلية بعد هجوم من إيران ولبنان**: [Link](https://www.aa.com.tr/ar/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/%D8%A3%D8%B6%D8%B1%D8%A7%D8%B1-%D9%88%D8%AD%D8%B1%D9%8A%D9%82-%D8%A8%D9%85%D8%B5%D8%A7%D9%81%D9%8A-%D9%86%D9%81%D8%B7-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D9%86-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D9%84%D8%A8%D9%86%D8%A7%D9%86/3884936)
+- **قصف مصفاة حيفا.. صواريخ حزب الله ساهمت في تشتيت الدفاعات الإسرائيلية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260330-%D9%82%D8%B5%D9%81-%D9%85%D8%B5%D9%81%D8%A7%D8%A9-%D8%AD%D9%8A%D9%81%D8%A7-%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%B3%D8%A7%D9%87%D9%85%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D8%AA%D9%8A%D8%AA-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9)
+
+
 ### fontainebleau (N/A, Tue, 31 Mar 2026 08:40:00 -0700)
 
 - **Les pronos hippiques du mardi 31 mars 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-31-mars-2026_AN-202603300655.html)
