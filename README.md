@@ -1,3 +1,73 @@
+### algeria vs uruguay (N/A, Tue, 31 Mar 2026 11:50:00 -0700)
+
+- **Preview: Algeria vs Uruguay - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/preview/algeria-vs-uruguay-prediction-team-news-lineups_594718.html)
+- **Friendly: Marcelo Bielsa heaps praise on the Fennecs ahead of Algeria vs Uruguay**: [Link](https://foot-africa.com/en/news/friendly-marcelo-bielsa-heaps-praise-on-the-fennecs-ahead-of-algeria-vs-uruguay-1146737/)
+- **Football FIFA matchdays : Algeria faces tough Uruguay test in Italy**: [Link](https://en.africatopsports.com/2026/03/31/fifa-matchdays-algeria-faces-tough-uruguay-test-in-italy/)
+
+
+### مجموعات كأس العالم 2026 (N/A, Tue, 31 Mar 2026 11:50:00 -0700)
+
+- **موعد مباريات نهائي المسارات الـ4 للملحق الأوروبي المؤهل لكأس العالم 2026**: [Link](https://www.aljazeera.net/sport/2026/3/30/%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D9%87%D9%84-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+- **مواجهات حاسمة في الملحق العالمي والأوروبي لتحديد آخر بطاقات التأهل لمونديال 2026 – اليوم 24**: [Link](https://alyaoum24.com/2017599.html)
+- **مباراة فريقي السويد و بولندا في بطولة ملحق أوروبا لكأس العالم 2026 - النهائي**: [Link](https://www.filgoal.com/matches/372732/overview/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D9%8A%D8%AF-%D8%A8%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%81%D9%8A-%D9%85%D9%84%D8%AD%D9%82-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+
+
+### friendlies (N/A, Tue, 31 Mar 2026 11:40:00 -0700)
+
+- **UEFA Appoints Bulgarian Georgi Kabakov to Officiate Spain vs. Egypt Match**: [Link](https://m.elbotola.com/en/article/2026-03-29-10-15-565.html)
+- **No rest for Lamine Yamal - Barcelona star starts again as Luis de la Fuente makes 10 changes to Spain team**: [Link](https://www.barcablaugranes.com/barcelona-internationals/116568/no-rest-for-lamine-yamal-barcelona-star-starts-again-as-luis-de-la-fuente-makes-10-changes-to-spain-team)
+- **👀 Cucurella's warning: it's the last test before the World Cup squad**: [Link](https://onefootball.com/fr/news/cucurellas-warning-its-the-last-test-before-the-world-cup-squad-42637258)
+
+
+### egypte vs espagne (N/A, Tue, 31 Mar 2026 11:40:00 -0700)
+
+- **Un joueur de "classe mondiale" : "Golyarzabal" fait l'unanimité en Espagne**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/espagneegypte-en-espagne-oyarzabal-fait-lunanimite-aupres-de-son-selectionneur-et-de-la-presse_sto23285629/story.shtml)
+- **De la Fuente confirme le coup d'envoi du Mondial et demande aux clubs de respecter la sélection espagnole**: [Link](https://m.elbotola.com/fr/article/2026-03-30-18-46-955.html)
+- **Espagne – Égypte : Streaming, chaine TV et compos**: [Link](https://www.football365.fr/espagne-egypte-streaming-chaine-tv-et-compos-10287420.html)
+
+
+### hakimi (N/A, Tue, 31 Mar 2026 11:40:00 -0700)
+
+- **Ecuador ilusiona antes del Mundial**: [Link](https://as.com/futbol/internacional/ecuador-ilusiona-antes-del-mundial-f202603-n/)
+- **Achraf Hakimi se saca el sombrero ante Willian Pacho y La Tri (VIDEO)**: [Link](https://onefootball.com/en/news/achraf-hakimi-se-saca-el-sombrero-ante-willian-pacho-y-la-tri-video-42626441)
+- **La selección marroquí se dirige a Madrid para prepararse al amistoso ante Ecuador**: [Link](https://es.rue20.com/2026/03/25/la-seleccion-marroqui-se-dirige-a-madrid-para-prepararse-al-amistoso-ante-ecuador/)
+
+
+### bein sport live (N/A, Tue, 31 Mar 2026 11:30:00 -0700)
+
+- **England v Japan: Who are the Samurai Blue players to watch out for?**: [Link](https://www.bbc.com/sport/football/articles/cgldy0p024ro)
+- **Five England players who face last chance to impress Thomas Tuchel tonight**: [Link](https://www.fourfourtwo.com/team/five-england-players-who-face-last-chance-to-impress-thomas-tuchel-tonight)
+- **How to Watch England vs Japan: Live Stream Men's International Soccer Friendlies, TV Channel**: [Link](https://www.newsweek.com/how-to-watch-england-vs-japan-live-stream-mens-international-soccer-friendlies-tv-channel-11764499)
+
+
+### algérie – uruguay (N/A, Tue, 31 Mar 2026 11:20:00 -0700)
+
+- **Algérie - Uruguay en direct - Matches amicaux : Football Scores & Résultats - 31/03/2026**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/algerie-uruguay_mtc20047523/live.shtml)
+- **Luca Zidane, le choix fort de Vladimir Petkovic**: [Link](https://www.sports.fr/football/international/luca-zidane-le-choix-fort-de-vladimir-petkovic-1002756.html)
+- **L’Algérie, le Maroc et la Tunisie testent leurs forces avant le Mondial 2026 !**: [Link](https://www.beurfm.net/l-algerie-le-maroc-et-la-tunisie-testent-leurs-forces-avant-le-mondial-2026)
+
+
+### bosnie-herzégovine – italie (N/A, Tue, 31 Mar 2026 11:20:00 -0700)
+
+- **Bosnie - Italie en direct : suivez le barrage qualificatif pour la Coupe du monde 2026**: [Link](https://www.eurosport.fr/football/qualif-coupe-du-monde/2026/live-bosnie-herzegovine-italie_mtc1574836/live-commentary.shtml)
+- **Soupçonné d'espionnage, un militaire italien a été arrêté pour avoir filmé l'entraînement de la Bosnie**: [Link](https://www.lequipe.fr/Football/Actualites/Soupconne-d-espionnage-un-militaire-italien-a-ete-arrete-pour-avoir-filme-l-entrainement-de-la-bosnie/1663925)
+- **«La pression est importante» : Gennaro Gattuso et Gianluigi Donnarumma lancent un cri d’alerte à l’Italie**: [Link](https://www.footmercato.net/a3092354796786974039-la-pression-est-importante-gennaro-gattuso-et-gianluigi-donnarumma-lancent-un-cri-dalerte-a-litalie)
+
+
+### كورة لايف (N/A, Tue, 31 Mar 2026 11:10:00 -0700)
+
+- **رغم ثنائية صربيا.. العويس أسدٌ جائع أحرج رينارد والعقيدي قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B1%D8%BA%D9%85-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7--%D8%A7%D9%84%D8%B9%D9%88%D9%8A%D8%B3-%D8%A7%D9%94%D8%B3%D8%AF%D9%8C-%D8%AC%D8%A7%D9%8A%D9%94%D8%B9-%D8%A7%D9%94%D8%AD%D8%B1%D8%AC-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF-%D9%88%D8%A7%D9%84%D8%B9%D9%82%D9%8A%D8%AF%D9%8A-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt6694a02b987f1d43)
+- **الأخضر يلاقي منتخب صربيا لمسح الصورة الهزيلة**: [Link](https://www.al-jazirah.com/2026/20260331/sp1.htm)
+- **6 تغييرات في قائمة المنتخب السعودي استعدادا لودية صربيا**: [Link](https://www.aljazeera.net/sport/2026/3/28/6-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+
+
+### jordanie – nigeria (N/A, Tue, 31 Mar 2026 11:10:00 -0700)
+
+- **++[LIVESTREAMS]TV!! Jordan vs Nigeria Live 𝖲𝗍𝗋𝖾𝖺𝗆**: [Link](https://salfordreddevils.com/fud/video/video-jordan-v-nigeria-show-live-free-on-tv.html)
+- **Super Eagles eye victory against Jordan’s Al-Nashama**: [Link](https://guardian.ng/sport/super-eagles-eye-victory-against-jordans-al-nashama/)
+- **Football FIFA Matchdays: Nigeria’s Maduka Okoye ruled out of Jordan clash**: [Link](https://en.africatopsports.com/2026/03/31/fifa-matchdays-nigerias-maduka-okoye-ruled-out-of-jordan-clash/)
+
+
 ### serbie – arabie saoudite (N/A, Tue, 31 Mar 2026 10:50:00 -0700)
 
 - **L’équipe nationale saoudienne de football achève ses préparatifs pour affronter la sélection serbe en amical**: [Link](https://spa.gov.sa/fr/N2549441)
