@@ -1,3 +1,73 @@
+### sénégal – gambia (N/A, Tue, 31 Mar 2026 13:20:00 -0700)
+
+- **Sénégal-Gambie, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/international/senegal-gambie-quelle-chaine-diffuse-le-match-1002735.html)
+- **"Nous pouvons faire tomber des montagnes": comment le Sénégal veut encore montrer les muscles lors de son match face à la Gambie**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/nous-pouvons-faire-tomber-des-montagnes-comment-le-senegal-veut-encore-montrer-les-muscles-lors-de-son-match-face-a-la-gambie_AV-202603310467.html)
+- **Les Lions face au défi des Scorpions**: [Link](https://www.seneplus.com/article/les-lions-face-au-defi-des-scorpions)
+
+
+### الجزائر منتخب (N/A, Tue, 31 Mar 2026 13:20:00 -0700)
+
+- **لوكا زيدان يرد بقوة على منتقدي تمثيله للجزائر قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D8%B1%D8%AF-%D8%A8%D9%82%D9%88%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%AA%D9%82%D8%AF%D9%8A-%D8%AA%D9%85%D8%AB%D9%8A%D9%84%D9%87-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/bltc4a661449affd7c3)
+- **لوكا زيدان: نشأت على الثقافة الجزائرية**: [Link](https://www.awras.com/%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%86%D8%B4%D8%A3%D8%AA-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9/)
+- **حب وشرف.. لوكا زيدان يكشف عن روابط كثيرة مع منتخب الجزائر**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%A8-%D9%88%D8%B4%D8%B1%D9%81-%D9%84%D9%88%D9%83%D8%A7-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%B1%D9%88%D8%A7%D8%A8%D8%B7-%D9%83%D8%AB%D9%8A%D8%B1%D8%A9-%D9%85%D8%B9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+
+
+### egypte (N/A, Tue, 31 Mar 2026 13:20:00 -0700)
+
+- **Praat mee op VP: Spanje - Egypte**: [Link](https://www.voetbalprimeur.nl/nieuws/2072421/praat-mee-op-vp-spanje-egypte.html)
+- **Frankrijk zal vanavond de wedstrijd Spanje tegen Egypte bekijken: ze zouden opnieuw bovenaan de FIFA-ranglijst kunnen staan**: [Link](https://www.gamereactor.nl/frankrijk-volgt-vanavond-de-wedstrijd-spanje-tegen-egypte-ze-zouden-opnieuw-bovenaan-de-fifa-ranglijst-kunnen-staan-1827163/)
+- **Spanje - Egypte: Voorspellingen, Wedtips, Opstellingen, Vorm, Waar je kan kijken en Odds**: [Link](https://news.bet365.nl/nl-nl/article/spanje-egypte-voorspellingen-wedtips-opstellingen-vorm-waar-je-kan-kijken-en-odds/2026033004544214239)
+
+
+### netherlands vs ecuador (N/A, Tue, 31 Mar 2026 13:20:00 -0700)
+
+- **Netherlands vs Ecuador LIVE 2026-04-01**: [Link](https://salfordreddevils.com/gfr/video/video-netherlands-v-ecuador-show-free7.html)
+- **Netherlands Ecuador Soccer**: [Link](https://www.couriernews.com/sports/netherlands-ecuador-soccer/image_f12a199c-2e93-5477-a98b-0c7499051a9a.html)
+- **Netherlands vs Ecuador – Match preview and team news**: [Link](https://thefootballfaithful.com/netherlands-vs-ecuador-match-preview-and-team-news/)
+
+
+### الجزائر ضد (N/A, Tue, 31 Mar 2026 13:10:00 -0700)
+
+- **توبة متمسك باللعب لمنتخب الجزائر**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/5257076-%D8%AA%D9%88%D8%A8%D8%A9-%D9%85%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **توبة يجدد تمسُّكه بقميص "الخضر"**: [Link](https://www.el-massa.com/dz/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%AA%D9%88%D8%A8%D8%A9-%D9%8A%D8%AC%D8%AF%D8%AF-%D8%AA%D9%85%D8%B3%D9%91%D9%8F%D9%83%D9%87-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1)
+- **توبة: “اختيار القلب لا يندم عنه، مازالت ملتزمًا بخدمتي لوطني أرجوكم لا تنشروا معلومات مغلوطة”**: [Link](https://africanews.dz/%D8%AA%D9%88%D8%A8%D8%A9-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D9%82%D9%84%D8%A8-%D9%84%D8%A7-%D9%8A%D9%86%D8%AF%D9%85-%D8%B9%D9%86%D9%87%D8%8C-%D9%85%D8%A7%D8%B2%D8%A7%D9%84%D8%AA/)
+
+
+### algeria (N/A, Tue, 31 Mar 2026 13:10:00 -0700)
+
+- **The nightmare scenario for global trade**: [Link](https://www.economist.com/interactive/briefing/2026/03/27/the-nightmare-scenario-for-global-trade)
+- **Why the Strait of Hormuz has been a global commerce chokepoint for centuries**: [Link](https://www.theglobeandmail.com/world/article-strait-of-hormuz-iran-history-explainer/)
+- **Strait of Hormuz shutdown: What implications for Europe, for how long and how high can prices go?**: [Link](https://www.euronews.com/my-europe/2026/03/31/strait-of-hormuz-shutdown-what-implications-for-europe-for-how-long-and-how-high-can-price)
+
+
+### rcde stadium (N/A, Tue, 31 Mar 2026 13:10:00 -0700)
+
+- **Vergonzoso cántico en Cornellà: "Musulmán el que no bote es"**: [Link](https://www.marca.com/futbol/seleccion/2026/03/31/vergonzoso-cantico-cornella-musulman-bot-video.html)
+- **Los cánticos racistas empañan el amistoso de España frente a Egipto: "Musulmán el que no bote"**: [Link](https://www.diariodemallorca.es/deportes/2026/03/31/canticos-racistas-empanan-amistoso-espana-128644492.html)
+- **Cornellá se mancha de racismo: «Musulmán el que no bote»**: [Link](https://www.abc.es/deportes/futbol/cornella-mancha-racismo-musulman-bote-20260331221049-nt.html)
+
+
+### نتائج مباريات اليوم (N/A, Tue, 31 Mar 2026 13:10:00 -0700)
+
+- **المغربي عدنان البوجوفي**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D8%AF%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%A8%D9%88%D8%AC%D9%88%D9%81%D9%8A)
+- **منتخب أقل من 17 سنة يهزم مصر**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D9%85%D8%B5%D8%B1-1723376.html)
+- **فيديو.. فوز مغربي قاتل على أشبال الفراعنة في بطولة شمال أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%81%D9%88%D8%B2-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%82%D8%A7%D8%AA%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltaabaf584bc76619b)
+
+
+### marruecos - paraguay (N/A, Tue, 31 Mar 2026 13:00:00 -0700)
+
+- **Cara a cara: La disciplina marroquí contra la aguerrida garra guaraní**: [Link](https://es.rue20.com/2026/03/31/cara-a-cara-la-disciplina-marroqui-contra-la-aguerrida-garra-guarani/)
+- **La selección marroquí finaliza sus preparativos para el partido contra Paraguay de mañana martes**: [Link](https://m.elbotola.com/es/article/2026-03-30-18-20-438.html)
+- **El seleccionador de Paraguay alucina con Marruecos: "Son candidatos serios al Mundial; el próximo ni te digo"**: [Link](https://www.sport.es/es/noticias/futbol-internacional/seleccionador-paraguay-alucina-marruecos-son-128575014)
+
+
+### bono (N/A, Tue, 31 Mar 2026 13:00:00 -0700)
+
+- **El Gobierno oficializó bono de $70.000 para jubilados y pensionados.**: [Link](https://www.cndigital.com.ar/noticias/72021_el-gobierno-oficializo-bono-de-s70-000-para-jubilados-y-pensionados-.html)
+- **Cuándo cobro Anses: el calendario completo de abril 2026**: [Link](https://www.lanacion.com.ar/economia/cuando-cobro-anses-el-calendario-completo-de-abril-2026-nid31032026/)
+- **Jubilaciones y asignaciones ABRIL 2026: hay aumentos en todos los beneficios**: [Link](https://www.eldiarionuevodia.com.ar/locales/jubilaciones-y-asignaciones-abril-2026-hay-aumentos-en-todos-los-beneficios-5230/)
+
+
 ### bosnia and herzegovina vs italy (N/A, Tue, 31 Mar 2026 12:50:00 -0700)
 
 - **Gattuso Announces Italy Squad for World Cup Qualifier Against Bosnia and Herzegovina**: [Link](http://m.elbotola.com/en/article/2026-03-30-23-15-754.html)
