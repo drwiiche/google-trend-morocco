@@ -1,3 +1,10 @@
+### estadio akron (N/A, Tue, 31 Mar 2026 15:00:00 -0700)
+
+- **Jamaica se declara listo para buscar mañana, bajo el sol, su pase al Mundial**: [Link](https://prensamercosur.org/2026/03/31/jamaica-se-declara-listo-para-buscar-manana-bajo-el-sol-su-pase-al-mundial/)
+- **"Es algo que hemos esperado por 52 años, nunca habíamos estado tan cerca"**: [Link](https://es-us.noticias.yahoo.com/esperado-52-a%C3%B1os-hab%C3%ADamos-estado-211334890.html)
+- **Aficionado del Congo viaja 20 horas para ver a su equipo ir por un lugar en el Mundial**: [Link](https://mexico.as.com/videos/aficionado-del-congo-viaja-20-horas-para-ver-a-su-equipo-ir-por-un-lugar-en-el-mundial-f202603-v/)
+
+
 ### zapopan (N/A, Tue, 31 Mar 2026 14:50:00 -0700)
 
 - **Canal de baja presión y humedad del Pacífico, la causa de las granizadas en la ZMG: UEPCBJ**: [Link](https://www.informador.mx/jalisco/canal-de-baja-presion-y-humedad-del-pacifico-la-causa-de-las-granizadas-en-la-zmg-uepcbj-20260331-0119.html)
