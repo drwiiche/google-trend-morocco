@@ -1,3 +1,10 @@
+### prix carburants maroc (N/A, Tue, 31 Mar 2026 04:30:00 -0700)
+
+- **Le gouvernement maintient la subvention du gaz butane et de l'électricité face à la flambée mondiale des prix de l'énergie**: [Link](https://lematin.ma/nation/le-gouvernement-maintient-la-subvention-du-gaz-butane-et-de-lelectricite/337504)
+- **Carburants : face aux tensions mondiales, le Conseil de la concurrence durcit le monitoring**: [Link](https://medias24.com/2026/03/27/carburants-face-aux-tensions-mondiales-le-conseil-de-la-concurrence-durcit-le-monitoring-1649891/)
+- **Crise au Moyen-Orient : le gouvernement maintient les subventions au gaz butane et à l'électricité et versera les aides au transport**: [Link](https://ledesk.ma/encontinu/crise-au-moyen-orient-le-gouvernement-maintient-les-subventions-au-gaz-butane-et-a-lelectricite-et-versera-les-aides-au-transport/)
+
+
 ### gitex africa 2026 (N/A, Tue, 31 Mar 2026 04:00:00 -0700)
 
 - **Morocco World News Relaunches ‘DigiTalk’ at GITEX Africa 2026**: [Link](https://www.moroccoworldnews.com/2026/03/285104/morocco-world-news-relaunches-digitalk-at-gitex-africa-2026/)
