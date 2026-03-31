@@ -1,3 +1,10 @@
+### rima hassan canada (N/A, Mon, 30 Mar 2026 17:10:00 -0700)
+
+- **Rima Hassan interdite d’entrer au Canada : “Il s’agit bel et bien d’un geste de censure”**: [Link](https://www.courrierinternational.com/article/politique-rima-hassan-interdite-d-entrer-au-canada-il-s-agit-bel-et-bien-d-un-geste-de-censure_242386)
+- **Le gouvernement Carney accusé de censurer l’eurodéputée Rima Hassan**: [Link](https://ici.radio-canada.ca/nouvelle/2242697/rima-hassan-cija-gouvernement-carney-censure)
+- **RIMA HASSAN, LE CANADA ET...LA PROPOSITION DE LOI "YADAN".**: [Link](https://blogs.mediapart.fr/irene-doiron/blog/300326/rima-hassan-le-canada-etla-proposition-de-loi-yadan)
+
+
 ### موجة برد (N/A, Mon, 30 Mar 2026 16:10:00 -0700)
 
 - **تقلبات الطقس بالمغرب .. انخفاض في الحرارة وزخات مطرية ورياح قوية**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1-1723192.html)
