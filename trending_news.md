@@ -1,3 +1,57 @@
+### éliminatoires de la coupe du monde (N/A, Tue, 31 Mar 2026 14:00:00 -0700)
+
+- **LIVE - Italie-Irlande du Nord en direct**: [Link](https://www.football.fr/coupe-du-monde-2026/live-italie-irlande-du-nord-en-direct-806821.html)
+
+
+### rd congo – jamaïque (N/A, Tue, 31 Mar 2026 13:50:00 -0700)
+
+- **Les Léopards à un pas du Mondial**: [Link](https://www.cafonline.com/fr/coupe-du-monde-de-la-fifa/news/les-leopards-a-un-pas-du-mondial/)
+- **RD Congo - Jamaique en direct - Barrages Coupe du monde : Football Scores & Résultats - 31/03/2026**: [Link](https://www.eurosport.fr/football/barrages-coupe-du-monde/2026/live-rd-congo-jamaique_mtc1651681/live.shtml)
+- **Moussa Niakhaté, le message fort**: [Link](https://www.sports.fr/football/coupe-du-monde-2026/moussa-niakhate-le-message-fort-1002745.html)
+
+
+### منتخب ايطاليا (N/A, Tue, 31 Mar 2026 13:50:00 -0700)
+
+- **مباشر مباراة إيطاليا ضد البوسنة والهرسك المؤهلة لكأس العالم.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/31/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D9%88%D8%B3%D9%86%D8%A9)
+- **45 دقيقة نارية.. باستوني يورط إيطاليا في معركة التأهل للمونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/45-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9--%D8%A8%D8%A7%D8%B3%D8%AA%D9%88%D9%86%D9%8A-%D9%8A%D9%88%D8%B1%D8%B7-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt089a2f07696c32c1)
+- **إدين دزيكو يستهين بالمنتخب الإيطالي**: [Link](https://www.hesport.com/%D8%A5%D8%AF%D9%8A%D9%86-%D8%AF%D8%AC%D9%8A%D9%83%D9%88-%D9%8A%D8%B3%D8%AA%D9%87%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-433063.html)
+
+
+### egypt match (N/A, Tue, 31 Mar 2026 13:50:00 -0700)
+
+- **Fans warned for anti-Muslim chants during Spain-Egypt match**: [Link](https://www.espn.com/soccer/story/_/id/48359649/fans-warned-anti-muslim-chants-spain-egypt-match)
+- **Spain fans drown out Egypt’s national anthem with whistles in Cornellá**: [Link](https://en.as.com/videos/spain-fans-drown-out-egypts-national-anthem-with-whistles-in-cornella-f202603-v/)
+- **Spain fans chanting ''Whoever doesn't jump is a Muslim' during Egypt friendly**: [Link](https://tribuna.com/en/blogs/spain-fans-chanting-whoever-doesnt-jump-is-a-muslim-during-e/)
+
+
+### angleterre – japon (N/A, Tue, 31 Mar 2026 13:50:00 -0700)
+
+- **DIRECT. Angleterre-Japon (Matches amicaux A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/angleterre-japon-live/688976)
+- **Suivez Angleterre - Japon EN DIRECT, Match amical de football**: [Link](https://www.eurosport.fr/football/matches-amicaux/2026/live-angleterre-japon_mtc1661557/live-commentary.shtml)
+- **Foot: l’Angleterre diminuée et battue par le Japon à Wembley**: [Link](https://sport.le360.ma/coupe-du-monde/foot-langleterre-diminuee-et-battue-par-le-japon-a-wembley_NYP6XS7GQ5C6XF6YBJPFL2NYPM/)
+
+
+### turquie foot (N/A, Tue, 31 Mar 2026 13:40:00 -0700)
+
+- **Kosovo - Turquie, sur quelle chaîne voir le barrage ?**: [Link](https://www.football.fr/coupe-du-monde-2026/kosovo-turquie-sur-quelle-chaine-voir-le-barrage-807527.html)
+- **Les médias turcs se plaignent des feux d'artifice tirés devant un hôtel en Turquie**: [Link](https://www.koha.net/fr/futboll/mediat-turke-ankohen-per-fishekzjarret-para-hotelit-te-turqise)
+- **PRONOS PARIS RMC Le pari à l'extérieur du 31 mars - Qualifs CDM 26**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-l-exterieur-du-31-mars-qualifs-cdm-26_AN-202603300583.html)
+
+
+### egypt (N/A, Tue, 31 Mar 2026 13:40:00 -0700)
+
+- **Egypt and Cyprus sign framework agreement for cooperation on gas**: [Link](https://www.reuters.com/business/energy/egypt-cyprus-sign-framework-agreement-cooperation-gas-2026-03-30/)
+- **PM: EGYPES 2026 key to address regional crisis impact on energy sector**: [Link](https://www.egyptindependent.com/pm-egypes-2026-key-to-address-regional-crisis-impact-on-energy-sector/)
+- **Al-Sisi inaugurates EGYPES 2026 as petroleum minister outlines push to boost production**: [Link](https://www.dailynewsegypt.com/2026/03/30/al-sisi-inaugurates-egypes-2026-as-petroleum-minister-outlines-push-to-boost-production/)
+
+
+### senegal vs gambie (N/A, Tue, 31 Mar 2026 13:40:00 -0700)
+
+- **Senegal vs Gambia Friendly: Lions Continue World Cup Preparations**: [Link](https://africasoccer.com/senegal-gambia-friendly-2026-preparation/)
+- **Edouard Mendy: Senegal will give everything to beat Gambia ‘for fans’**: [Link](https://www.panafricafootball.com/post/edouard-mendy-senegal-gambia/)
+- **Senegal vs Gambia: Kick-off time, TV broadcast and head-to-head record (March 31, 2026)**: [Link](https://foot-africa.com/en/news/senegal-vs-gambia-kick-off-time-tv-broadcast-and-head-to-head-record-march-31-2026-1146749/)
+
+
 ### sénégal – gambia (N/A, Tue, 31 Mar 2026 13:20:00 -0700)
 
 - **Sénégal-Gambie, quelle chaîne diffuse le match ?**: [Link](https://www.sports.fr/football/international/senegal-gambie-quelle-chaine-diffuse-le-match-1002735.html)
