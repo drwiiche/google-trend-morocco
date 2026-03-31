@@ -1,3 +1,66 @@
+### serbie – arabie saoudite (N/A, Tue, 31 Mar 2026 10:50:00 -0700)
+
+- **L’équipe nationale saoudienne de football achève ses préparatifs pour affronter la sélection serbe en amical**: [Link](https://spa.gov.sa/fr/N2549441)
+- **DIRECT. Serbie-Arabie Saoudite (Matches amicaux A 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2025-2026/serbie-arabie-saoudite-live/688964)
+- **Une réalisation historique pour Renard avant le match décisif contre la Serbie**: [Link](https://www.ysscores.com/fr/news/13937070/Une-r%C3%A9alisation-historique-pour-Renard-avant-le-match-d%C3%A9cisif-contre-la-Serbie)
+
+
+### morocco fc (N/A, Tue, 31 Mar 2026 10:50:00 -0700)
+
+- **Dynamo players Dovhyi and Martyniuk help Ukraine U16 defeat Morocco**: [Link](https://fcdynamo.com/en/news/dinamivci-dovgii-ta-martinyuk-dolucilisya-do-peremogi-ukrayini-u16-nad-marokko)
+- **Ukraine U16 beat Morocco in Turkey, own goal secures 1-0 win**: [Link](https://mezha.net/eng/bukvy/ukraine_u16_beat/)
+- **Ukraine U16 lose 3:4 to Norway, Martyniuk scores in friendly**: [Link](https://fcdynamo.com/en/news/artur-martinyuk-zabiv-gol-za-zbirnu-ukrayini-u16-u-sparingu-proti-norvegiyi)
+
+
+### maroc (N/A, Tue, 31 Mar 2026 10:40:00 -0700)
+
+- **Hammouchi reçoit l’ambassadeur du Sultanat d’Oman au Maroc**: [Link](https://telquel.ma/instant-t/2026/03/31/hammouchi-recoit-lambassadeur-du-sultanat-doman-au-maroc_1981676/)
+- **Coopération sécuritaire : Hammouchi s’entretient avec l’ambassadeur d’Oman à Rabat**: [Link](https://medias24.com/2026/03/31/cooperation-securitaire-hammouchi-sentretient-avec-lambassadeur-doman-a-rabat-1651830/)
+- **Rabat. Hammouchi reçoit l’ambassadeur du Sultanat d’Oman accrédité auprès du Royaume du Maroc | L'observateur**: [Link](https://lobservateur.info/article/117747/actualites/rabat-hammouchi-recoit-lambassadeur-du-sultanat-doman-accredite-aupres-du-royaume-du-maroc)
+
+
+### مباراة اليوم (N/A, Tue, 31 Mar 2026 10:40:00 -0700)
+
+- **جدول مباريات اليوم الثلاثاء 31 مارس 2026 .. والقنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-31-%D9%85%D8%A7%D8%B1%D8%B3-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blte08c9c3c8dddee5f)
+- **اللمسات الأخيرة للمونديال: صدامات عالمية تنتظر سفراء الكرة العربية**: [Link](https://www.aljazeera.net/sport/2026/3/30/%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86)
+- **بروفة أخيرة لمنتخبات العرب قبل المونديال.. 7 مواجهات الليلة**: [Link](https://www.skynewsarabia.com/sport/1861630-%D8%A8%D8%B1%D9%88%D9%81%D8%A9-%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-7-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D8%A9)
+
+
+### russie – mali (N/A, Tue, 31 Mar 2026 10:30:00 -0700)
+
+- **Mali : blessures diplomatiques, l’opportunité Argentine manquée… Les Aigles volent toujours à vue**: [Link](https://www.afrik-foot.com/mali-blessures-diplomatiques-lopportunite-argentine-manquee-les-aigles-volent-toujours-a-vue)
+- **🔴 DIRECT. Russie - Mali (0-0) : Suivez le match de Matchs Amicaux Internationaux en Live**: [Link](https://www.livefoot.fr/direct/matchs-amicaux-internationaux-international/match-russie-vs-mali-474ead3c)
+- **RC Lens : Le sélectionneur du Mali explique pourquoi Mamadou Sangaré ne sera finalement pas convoqué**: [Link](https://madeinfoot.ouest-france.fr/infos/article-rc-lens-le-selectionneur-du-mali-explique-pourquoi-mamadou-sangare-ne-sera-finalement-pas-convoque-517246.html)
+
+
+### morocco match (N/A, Tue, 31 Mar 2026 10:30:00 -0700)
+
+- **CAF chief says AFCON final dispute now in CAS hands**: [Link](https://en.hespress.com/134667-caf-chief-says-afcon-final-dispute-now-in-cas-hands.html)
+- **Mendy Slams CAF as Senegal Tries to Undo Its Own AFCON Walk-Off**: [Link](https://www.moroccoworldnews.com/2026/03/285187/mendy-slams-caf-as-senegal-tries-to-undo-its-own-afcon-walk-off/)
+- **Edouard Mendy Slams CAF Over AFCON Final Crisis**: [Link](https://m.elbotola.com/en/article/2026-03-30-20-30-265.html)
+
+
+### match maroc (N/A, Tue, 31 Mar 2026 10:20:00 -0700)
+
+- **Morocco resume training after Ecuador draw ahead of Paraguay friendly**: [Link](https://en.hespress.com/134654-morocco-resume-training-after-ecuador-draw-ahead-of-paraguay-friendly.html)
+- **Morocco vs Paraguay: How & When to Watch International Friendly**: [Link](https://www.moroccoworldnews.com/2026/03/285161/morocco-vs-paraguay-how-when-to-watch-international-friendly/)
+- **Gerardo Martino: "Morocco is African Champion with High-Level Players... A Real Test for Paraguay"**: [Link](https://m.elbotola.com/en/article/2026-03-31-05-11-710.html)
+
+
+### iphone 18 pro dynamic island (N/A, Tue, 31 Mar 2026 10:10:00 -0700)
+
+- **iPhone 18 Pro smaller Dynamic Island claims are from unknown sources**: [Link](https://9to5mac.com/2026/03/31/iphone-18-pro-smaller-dynamic-island-claims-are-from-unknown-sources/)
+- **More leaked images show the biggest iPhone 18 design change in greater details**: [Link](https://www.phonearena.com/news/more-leaked-images-show-the-biggest-iphone-18-design-change-in-greater-details_id179291)
+- **Apple iPhone 18 Pro may come with this display change**: [Link](https://timesofindia.indiatimes.com/technology/mobiles-tabs/apple-iphone-18-pro-may-come-with-this-display-change/articleshow/129918026.cms)
+
+
+### حفيظ دراجي (N/A, Tue, 31 Mar 2026 09:20:00 -0700)
+
+- **فيديو- عودة صاخبة بعد غياب.. حفيظ دراجي يستفز الجماهير المغربية مجددًا!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D8%AF%D9%88%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8--%D8%AD%D9%81%D9%8A%D8%B8-%D8%AF%D8%B1%D8%A7%D8%AC%D9%8A-%D9%85%D8%B5%D8%B1-%D8%B3%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%81%D8%A7%D8%B2%D9%88%D8%A7-%D8%A8%D9%84%D9%82%D8%A8%D9%8A%D9%86/blta43f6966c9071dde)
+- **هل قصد الدراجي؟.. مذيع بي إن المغربي: لا يمكن احترام من لا يحترم قرارات المؤسسات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%82%D8%B5%D8%AF-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%AC%D9%8A--%D9%85%D8%B0%D9%8A%D8%B9-%D8%A8%D9%8A-%D8%A7%D9%95%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D8%A7-%D9%8A%D9%85%D9%83%D9%86-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85-%D9%85%D9%86-%D9%84%D8%A7-%D9%8A%D8%AD%D8%AA%D8%B1%D9%85-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%94%D8%B3%D8%B3%D8%A7%D8%AA/blt3a1a4b07e6694173)
+- **حفيظ دراجي يعود إلى الميكروفون بعد غياب 3 أسابيع بمواجهات دولية قوية**: [Link](https://mrj3y.com/157480/%D8%AD%D9%81%D9%8A%D8%B8-%D8%AF%D8%B1%D8%A7%D8%AC%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%8A%D9%83%D8%B1%D9%88%D9%81%D9%88%D9%86-%D8%A8%D8%B9%D8%AF-%D8%BA%D9%8A%D8%A7/)
+
+
 ### paraguay (N/A, Tue, 31 Mar 2026 09:20:00 -0700)
 
 - **El seleccionador de Paraguay alucina con Marruecos: "Son candidatos serios al Mundial; el próximo ni te digo"**: [Link](https://www.sport.es/es/noticias/futbol-internacional/seleccionador-paraguay-alucina-marruecos-son-128575014)
