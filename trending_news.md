@@ -1,3 +1,10 @@
+### hajhouj (N/A, Tue, 31 Mar 2026 01:10:00 -0700)
+
+- **Arrestation de Reda El Hajhouj à Casablanca pour implication présumée dans des activités criminelles**: [Link](https://www.yabiladi.com/articles/details/191206/arrestation-reda-hajhouj-casablanca-pour)
+- **Affaire Reda Hajhouj : le dossier toujours en enquête, présentation imminente devant le parquet**: [Link](https://h24info.ma/maroc/societe/reda-hajhouj-enquete-presentation-parquet/)
+- **Revue du web. Arrestation de l’ancien joueur du Wydad, Reda Hajhouj, pour activités criminelles en bande organisée**: [Link](https://fr.le360.ma/societe/revue-du-web-arrestation-de-lancien-joueur-du-wydad-reda-hajhouj-pour-activites-criminelles-en-bande_NAV34JZM7ZB5DDLP7WTRTM7JKE/)
+
+
 ### un si grand soleil (N/A, Mon, 30 Mar 2026 23:50:00 -0700)
 
 
