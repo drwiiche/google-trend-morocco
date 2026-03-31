@@ -1,3 +1,72 @@
+### bosnia and herzegovina vs italy (N/A, Tue, 31 Mar 2026 12:50:00 -0700)
+
+- **Gattuso Announces Italy Squad for World Cup Qualifier Against Bosnia and Herzegovina**: [Link](http://m.elbotola.com/en/article/2026-03-30-23-15-754.html)
+- **🔴 Bosnia-Italy 0-1 | Kean scores: 6th goal in a row! Bastoni off 🟥**: [Link](https://onefootball.com/en/news/bosnia-italy-0-1-kean-scores-6th-goal-in-a-row-bastoni-off-42641364)
+- **Bosnia vs Italy LIVE: lineups and UEFA playoff final for World Cup 2026**: [Link](https://www.beinsports.com/en-us/soccer/fifa-world-cup-2026/articles/live-blog-bosnia-vs-italy-live-uefa-playoff-final-for-2026-world-cup-2026-03-31)
+
+
+### diop issa (N/A, Tue, 31 Mar 2026 12:40:00 -0700)
+
+- **Le Maroc face à l’épineux cas Issa Diop**: [Link](https://www.footmercato.net/a639946085367420977-le-maroc-face-a-lepineux-cas-issa-diop)
+- **Maroc : Issa Diop fait un choix fort en rejoignant les Lions de l’Atlas**: [Link](https://www.sport.fr/football/maroc-issa-diop-fait-un-choix-fort-en-rejoignant-les-lions-de-latlas-1438744.shtm)
+- **Sept joueurs binationaux "recrutés" en 13 jours: le Maroc fait chauffer la plateforme Fifa de changement de nationalité sportive**: [Link](https://rmcsport.bfmtv.com/football/equipe-maroc/sept-joueurs-binationaux-recrutes-en-13-jours-le-maroc-fait-chauffer-la-plateforme-fifa-de-changement-de-nationalite-sportive_AV-202603270421.html)
+
+
+### diop (N/A, Tue, 31 Mar 2026 12:40:00 -0700)
+
+- **Alyune-Blondin Diop (LoftyInc Capital): « 30 % de notre nouveau fonds ira vers l’Afrique francophone »**: [Link](https://www.jeuneafrique.com/1775160/economie-entreprises/alyune-blondin-diop-loftyinc-capital-30-de-notre-nouveau-fonds-ira-vers-lafrique-francophone/)
+- **Baptême de son premier enfant : Sidy Diop donne à son fils le nom du prophète Mouhamed (PSL)**: [Link](https://www.senenews.com/senenews-people/bapteme-de-son-premier-enfant-sidy-diop-donne-a-son-fils-le-nom-du-prophete-mouhamed-psl_581163.html)
+- **Ndeya, l’épouse de Sidy Diop radieuse avec le ventre arrondi (vidéo)**: [Link](https://www.senenews.com/senenews-people/ndeya-lepouse-de-sidy-diop-radieuse-avec-le-ventre-arrondi-video_580464.html)
+
+
+### عيسى ديوب (N/A, Tue, 31 Mar 2026 12:40:00 -0700)
+
+- **فضل المغرب على السنغال.. "الوحش" الذي سيحل مشكلة "الأسود"**: [Link](https://www.skynewsarabia.com/sport/1861505-%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D9%88%D8%AD%D8%B4-%D8%B3%D9%8A%D8%AD%D9%84-%D9%85%D8%B4%D9%83%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF)
+- **رضوان الحيمر يشيد بالثنائي الجديد**: [Link](https://www.radiomars.ma/%D8%B1%D8%B6%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D9%8A%D9%85%D8%B1-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/)
+- **مشاركة ديوب بقميص المغرب تشعل صراعاً جديداً مع السنغال**: [Link](https://www.alarabiya.net/sport/2026/03/28/%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%AF%D9%8A%D9%88%D8%A8-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B4%D8%B9%D9%84-%D8%B5%D8%B1%D8%A7%D8%B9%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84)
+
+
+### الأردن ضد نيجيريا (N/A, Tue, 31 Mar 2026 12:40:00 -0700)
+
+- **مباشر مباراة الأردن ضد نيجيريا استعدادا لكأس العالم 2026.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/3/31/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%B6%D8%AF-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7)
+- **استعدادا لكأس العالم 2026 .. المنتخب الأردني لكرة القدم يواجه غدا نظيره النيجيري في تركيا**: [Link](https://2m.ma/ar/news/%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%BA%D8%AF%D8%A7-20260330)
+- **رابط بث مباشر.. مشاهدة مباراة منتخب الأردن ونيجيريا الودية الآن مجانًا**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%88%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7/)
+
+
+### spain (N/A, Tue, 31 Mar 2026 12:40:00 -0700)
+
+- **Spain closes airspace to US aircraft involved in Iran war**: [Link](https://www.bbc.com/news/articles/cwy368j1e3lo)
+- **Spain shuts its skies to US warplanes bound for Iran**: [Link](https://en.hespress.com/134736-spain-shuts-its-skies-to-us-warplanes-bound-for-iran.html)
+- **Tusk and Irish PM call Hungarian foreign minister’s alleged links to Russia ‘repulsive’ and ‘sinister’ – Europe live**: [Link](https://www.theguardian.com/world/live/2026/mar/31/europe-ukraine-bucha-eu-russia-hungary-iran-denmark-latest-news-updates?filterKeyEvents=false&page=with%3Ablock-69cbd50a8f089f57f78d607e)
+
+
+### كأس العالم 2026 (N/A, Tue, 31 Mar 2026 12:30:00 -0700)
+
+- **رئيس الفيفا يحسم جدل لعب إيران على الأراضي الأمريكية في كأس العالم 2026**: [Link](https://www.aljazeera.net/sport/2026/3/31/%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+- **إنفانتينو: إيران تحضر مونديال أمريكا**: [Link](https://www.hespress.com/%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AD%D8%B6%D8%B1-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-1723838.html)
+- **إيران تقصف مواقع صناعية في الخليج**: [Link](https://ar.telquel.ma/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%B3%D8%AA%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84/)
+
+
+### الجزائر ضد أوروغواي (N/A, Tue, 31 Mar 2026 12:20:00 -0700)
+
+- **مباراة الجزائر ضد أوروغواي الودية.. الموعد والقنوات الناقلة والتشكيلتان المتوقعتان**: [Link](https://www.aljazeera.net/sport/2026/3/30/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B1%D9%88%D8%BA%D9%88%D8%A7%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
+- **سر الظهور المفاجئ.. لماذا اقتحم مدرب يوفنتوس تدريبات "الخضر" في تورينو؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%B1-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D9%82%D8%AA%D8%AD%D9%85-%D9%85%D8%AF%D8%B1%D8%A8-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1-%D9%81%D9%8A-%D8%AA%D9%88%D8%B1%D9%8A%D9%86%D9%88/bltf2c8a65430ea45a2)
+- **بث مباشر: الجزائر ضد أوروغواي استعداداً لكأس العالم 2026**: [Link](https://www.annahar.com/sports/294719/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B1%D9%88%D8%BA%D9%88%D8%A7%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+
+
+### maroc live (N/A, Tue, 31 Mar 2026 12:20:00 -0700)
+
+- **Live: Morocco vs Egypt match in the North Africa U17 qualifiers**: [Link](https://chamaly.ma/2026/03/30/live-morocco-vs-egypt-match-in-the-north-africa-u17-qualifiers/)
+- **En direct : match Maroc vs Égypte dans les éliminatoires de l’Afrique du Nord U17**: [Link](https://chamaly.ma/2026/03/30/en-direct-match-maroc-vs-egypte-dans-les-eliminatoires-de-lafrique-du-nord-u17/)
+
+
+### pays-bas – équateur (N/A, Tue, 31 Mar 2026 12:10:00 -0700)
+
+- **Willian Pacho titulaire pour Pays-Bas - Equateur**: [Link](https://tribuna.com/fr/news/2026-03-31-willian-pacho-titulaire-pour-paysbas-equateur/)
+- **🔴 DIRECT. Pays-Bas - Équateur (1-0) : Suivez le match de Matchs Amicaux Internationaux en Live**: [Link](https://www.livefoot.fr/direct/matchs-amicaux-internationaux-international/match-pays-bas-vs-equateur-6d737f84)
+- **Où voir Pays Bas vs Equateur, sur quelle chaîne en streaming ?**: [Link](https://www.footix.fr/ou-voir-pays-bas-vs-equateur-sur-quelle-chaine-en-streaming/)
+
+
 ### algeria vs uruguay (N/A, Tue, 31 Mar 2026 11:50:00 -0700)
 
 - **Preview: Algeria vs Uruguay - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/algeria/preview/algeria-vs-uruguay-prediction-team-news-lineups_594718.html)
