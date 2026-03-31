@@ -1,3 +1,10 @@
+### gitex (N/A, Tue, 31 Mar 2026 03:20:00 -0700)
+
+- **Morocco World News Relaunches ‘DigiTalk’ at GITEX Africa 2026**: [Link](https://www.moroccoworldnews.com/2026/03/285104/morocco-world-news-relaunches-digitalk-at-gitex-africa-2026/)
+- **Vertiv to Showcase AI-Ready Infrastructure at GITEX Africa Morocco 2026 in Marrakech**: [Link](https://iafrica.com/vertiv-to-showcase-ai-ready-infrastructure-at-gitex-africa-morocco-2026-in-marrakech/)
+- **Russian tech firms to showcase digital solutions at GITEX Africa 2026**: [Link](https://en.hespress.com/134387-russian-tech-firms-to-showcase-digital-solutions-at-gitex-africa-2026.html)
+
+
 ### hajhouj (N/A, Tue, 31 Mar 2026 01:10:00 -0700)
 
 - **Arrestation de Reda El Hajhouj à Casablanca pour implication présumée dans des activités criminelles**: [Link](https://www.yabiladi.com/articles/details/191206/arrestation-reda-hajhouj-casablanca-pour)
