@@ -1,3 +1,17 @@
+### guadalajara (N/A, Tue, 31 Mar 2026 15:30:00 -0700)
+
+- **¿Qué Actividades Gratuitas Puedo Realizar en Guadalajara Durante Semana Santa y Pascua?**: [Link](https://www.nmas.com.mx/guadalajara/hay-actividades-gratuitas-en-guadalajara-durante-vacaciones-de-semana-santa-y-pascua/)
+- **Centro de Guadalajara, punto de encuentro para turistas en Semana Santa**: [Link](https://oem.com.mx/eloccidental/local/centro-de-guadalajara-punto-de-encuentro-para-turistas-en-semana-santa-29271270)
+- **Opciones para disfrutar el Centro de Guadalajara durante vacaciones**: [Link](https://jalisco.quadratin.com.mx/sucesos/opciones-para-disfrutar-el-centro-de-guadalajara-durante-vacaciones/)
+
+
+### groupe coupe du monde 2026 (N/A, Tue, 31 Mar 2026 15:20:00 -0700)
+
+- **Coupe du Monde 2026 : Qui va remporter le Mondial selon les bookmakers, avec des surprises**: [Link](https://www.90min.com/fr/coupe-du-monde-2026-qui-va-remporter-le-mondial-selon-les-bookmakers-avec-des-surprises-30-03-2026)
+- **Pays qualifiés, calendrier… Tout savoir de la Coupe du monde 2026**: [Link](https://www.canalplus.com/articles/sports/pays-qualifies-calendrier-tout-savoir-de-la-coupe-du-monde-2026)
+- **Coupe du monde 2026 : Les paris sportifs explosent en ligne**: [Link](https://www.footlegende.fr/coupe-du-monde-2026-les-paris-sportifs-explosent-en-ligne-58160)
+
+
 ### estadio akron (N/A, Tue, 31 Mar 2026 15:00:00 -0700)
 
 - **Jamaica se declara listo para buscar mañana, bajo el sol, su pase al Mundial**: [Link](https://prensamercosur.org/2026/03/31/jamaica-se-declara-listo-para-buscar-manana-bajo-el-sol-su-pase-al-mundial/)
