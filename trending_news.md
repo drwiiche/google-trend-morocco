@@ -1,3 +1,17 @@
+### botola (N/A, Wed, 1 Apr 2026 14:10:00 -0700)
+
+- **Al-Ittihad continues its preparations in Morocco and faces Wydad in a friendly**: [Link](https://libyaupdate.com/al-ittihad-continues-its-preparations-in-morocco-and-faces-wydad-in-a-friendly/)
+- **Rhulani Mokwena asks for patience but promises to make an impact at Al-Ittihad insisting 'we cannot change everything in short period'**: [Link](https://www.goal.com/en-za/lists/rhulani-mokwena-asks-for-patience-but-promises-to-make-an-impact-at-al-ittihad-insisting-we-cannot-change-everything-in-short-period/blt87697b9078056d50)
+- **Mokwena ‘Dominant’ In Wydad Return**: [Link](https://www.soccerladuma.co.za/international/african-football/rulani-mokwena-haunts-former-side-as-al-ittihad-secure-dominant-3-0-win-over-wydad-ac)
+
+
+### botola pro (N/A, Wed, 1 Apr 2026 14:10:00 -0700)
+
+- **CAF Confirms Dates for Olympique Safi vs. USM Alger Confederation Cup Semifinal**: [Link](https://www.moroccoworldnews.com/2026/03/285261/caf-confirms-dates-for-olympique-safi-vs-usm-alger-confederation-cup-semifinal/)
+- **Algerian-Moroccan clash… Egyptian referee to officiate the match between Union de la Capitale and Safi**: [Link](https://www.goal.com/en/news/algerian-moroccan-clash-egyptian-referee-to-officiate-the-match-between-union-de-la-capitale-and-safi/bltd24b73a453f29e85)
+- **CAF Sets Dates for Olympique Safi vs. USM Alger Confederation Cup Semifinals**: [Link](https://m.elbotola.com/en/article/2026-03-31-11-09-443.html)
+
+
 ### أولمبيك أسفي ضد نهضة بركان (N/A, Wed, 1 Apr 2026 13:40:00 -0700)
 
 - **الكوكب يطرح تذاكر مباراته أمام الجيش**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-433257.html)
