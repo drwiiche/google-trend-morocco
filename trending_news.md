@@ -1,3 +1,17 @@
+### gitex africa 2026 (N/A, Wed, 1 Apr 2026 04:30:00 -0700)
+
+- **Artificial Intelligence (AI) Websites in minutes: Incomedia presents no-code digital growth tools at GITEX Africa 2026**: [Link](https://www.zawya.com/en/press-release/africa-press-releases/artificial-intelligence-ai-websites-in-minutes-incomedia-presents-no-code-digital-growth-tools-at-gitex-africa-eyimufok)
+- **Inrico to Debut at GITEX Africa 2026 with Integrated Communication Solutions**: [Link](https://www.criticalcommunicationsreview.com/ccr/news/118375/inrico-to-debut-at-gitex-africa-2026-with-integrated-communication-solutions)
+- **Vertiv highlights advanced AI infrastructure solutions**: [Link](https://it-online.co.za/2026/03/27/vertiv-highlights-advanced-ai-infrastructure-solutions/)
+
+
+### poisson d'avril (N/A, Wed, 1 Apr 2026 02:20:00 -0700)
+
+- **Expliquer un poisson d’avril à un extraterrestre**: [Link](https://www.journaldequebec.com/2026/03/31/expliquer-un-poisson-davril-a-un-alien)
+- **3 façons d’accrocher tes poissons d’avril !**: [Link](https://journaldemickey.com/les-actus/blague/3-facons-daccrocher-tes-poissons-davril/)
+- **5 conseils pour vous aider à éviter d'être victime d'escroqueries en ligne le 1er avril.**: [Link](https://www.vietnam.vn/fr/5-loi-khuyen-giup-ban-tranh-tro-thanh-nan-nhan-cua-tro-lua-dao-truc-tuyen-ngay-ca-thang-tu)
+
+
 ### portugal vs (N/A, Tue, 31 Mar 2026 17:30:00 -0700)
 
 - **Does the U.S. have a chance in the World Cup? 2 important games will provide clues**: [Link](https://www.npr.org/2026/03/28/nx-s1-5764272/world-cup-usmnt-us-soccer-belgium-portugal)
