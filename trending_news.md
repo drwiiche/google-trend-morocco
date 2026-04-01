@@ -1,3 +1,23 @@
+### argentine foot (N/A, Tue, 31 Mar 2026 17:00:00 -0700)
+
+- **Argentine – Zambie : Streaming, chaine TV et compos**: [Link](https://www.football365.fr/argentine-zambie-streaming-chaine-tv-et-compos-10287429.html)
+- **Le geste de Messi, qui a couvert son visage, a attiré l'attention.**: [Link](https://www.vietnam.vn/fr/cai-om-mat-cua-messi-gay-chu-y)
+- **Lionel Scaloni annonce que Lionel Messi sera titulaire avec l'Argentine face à la Zambie en amical**: [Link](https://www.lequipe.fr/Football/Actualites/Lionel-scaloni-annonce-que-lionel-messi-sera-titulaire-avec-l-argentine-face-a-la-zambie-en-amical/1663807)
+
+
+### congo (N/A, Tue, 31 Mar 2026 17:00:00 -0700)
+
+- **DR Congo one win away from historic World Cup return**: [Link](https://www.cafonline.com/fifa-world-cup/news/dr-congo-one-win-away-from-historic-world-cup-return/)
+- **‘Statue’ fan misses World Cup playoff because of visa problems**: [Link](https://www.london-now.co.uk/news/national/25984081.statue-fan-misses-world-cup-playoff-visa-problems/)
+- **How to live stream Jamaica vs Congo: FIFA World Cup 2026 Qualifying, start time, TV channel**: [Link](https://www.thebiglead.com/how-to-live-stream-jamaica-vs-congo-fifa-world-cup-2026-qualifying-start-time-tv-channel/)
+
+
+### k1 (N/A, Tue, 31 Mar 2026 14:30:00 -0700)
+
+- **Immigration Department raises K1.6bn in 2025 – Zambia**: [Link](https://diggers.news/local/2026/03/31/immigration-department-raises-k1-6bn-in-2025/)
+- **Mwandi youths win K1.8m tender to build hospital shelter – Zambia**: [Link](https://diggers.news/local/2026/03/30/mwandi-youths-win-k1-8m-tender-to-build-hospital-shelter/)
+
+
 ### تصفيات كأس العالم (N/A, Tue, 31 Mar 2026 14:20:00 -0700)
 
 - **جمهورية الكونغو الديمقراطية على بُعد خطوة واحدة من كأس العالم**: [Link](https://www.cafonline.com/ar/fifa-world-cup/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A8-%D8%B9%D8%AF-%D8%AE%D8%B7%D9%88%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/)
