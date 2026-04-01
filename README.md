@@ -1,3 +1,10 @@
+### portugal vs (N/A, Tue, 31 Mar 2026 17:30:00 -0700)
+
+- **Does the U.S. have a chance in the World Cup? 2 important games will provide clues**: [Link](https://www.npr.org/2026/03/28/nx-s1-5764272/world-cup-usmnt-us-soccer-belgium-portugal)
+- **Portugal beats US 2-0 in World Cup warmup, Americans' 8th straight loss to European opponents**: [Link](https://sports.yahoo.com/articles/portugal-beats-us-2-0-011210803.html)
+- **'A massive lesson for us' - USMNT get details wrong while Christian Pulisic admits frustration: Winners and losers from the loss to Portugal**: [Link](https://www.goal.com/en-us/lists/a-massive-lesson-for-us-usmnt-get-details-wrong-while-christian-pulisic-admits-frustration-winners-and-losers-from-the-loss-to-portugal/blt7c9a31fb8db6305e)
+
+
 ### prix gasoil maroc aujourd'hui (N/A, Wed, 1 Apr 2026 01:10:00 -0700)
 
 - **Nouvelle hausse des prix du carburant dès ce mercredi 1er avril 2026**: [Link](https://medias24.com/2026/03/31/nouvelle-hausse-des-prix-du-carburant-des-ce-mercredi-1er-avril-2026-1651631/)
