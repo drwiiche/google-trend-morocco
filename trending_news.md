@@ -1,3 +1,24 @@
+### tottenham (N/A, Wed, 1 Apr 2026 05:00:00 -0700)
+
+- **Roberto de Zerbi: Spurs fans' anger grows over Italian's appointment**: [Link](https://www.bbc.com/sport/football/articles/c0mjrnr4ld3o)
+- **Roberto De Zerbi joins as Men’s Head Coach**: [Link](https://www.tottenhamhotspur.com/news/2026/march/roberto-de-zerbi-joins-as-men-s-head-coach/)
+- **De Zerbi Nears Tottenham Hotspur Coaching Role Amid Relegation Fears**: [Link](https://m.elbotola.com/en/article/2026-03-31-13-15-48.html)
+
+
+### وليد الركراكي (N/A, Wed, 1 Apr 2026 04:20:00 -0700)
+
+- **هل يخوض المونديال؟ الركراكي مرشح لقيادة منتخب جديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D8%AE%D9%88%D8%B6-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AC%D8%AF%D9%8A%D8%AF/blt700fc181da77229a)
+- **خسارة ألمانيا تعجّل برحيل مدرب غانا**: [Link](https://www.hespress.com/%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B9%D8%AC%D9%91%D9%84-%D8%A8%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D8%AF%D8%B1%D8%A8-%D8%BA%D8%A7%D9%86%D8%A7-1723634.html)
+- **إقالة «مفاجئة» قبل 73 يوماً من انطلاق كأس العالم**: [Link](https://www.radiomars.ma/%D8%A5%D9%82%D8%A7%D9%84%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%82%D8%A8%D9%84-73-%D9%8A%D9%88%D9%85%D8%A7%D9%8B-%D9%85%D9%86-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%83%D8%A3/)
+
+
+### عبد الرحيم المنياري (N/A, Wed, 1 Apr 2026 04:00:00 -0700)
+
+- **هذه حقيقة اعتزال الممثل المنياري**: [Link](https://www.hespress.com/%D9%87%D8%B0%D9%87-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D9%85%D9%86%D9%8A%D8%A7%D8%B1%D9%8A-1723818.html)
+- **المنياري ينفي لـ”العمق” اعتزاله التمثيل: لا أقوم بأعمال محرمة لأعلن “التوبة”**: [Link](https://al3omk.com/1148921.html)
+- **هل اعتزل عبد الرحيم المنياري فعلاً؟ الحقيقة الكاملة وراء الصورة المثيرة للجدل**: [Link](https://ar.hibapress.com/details-714101.html)
+
+
 ### gitex africa 2026 (N/A, Wed, 1 Apr 2026 04:30:00 -0700)
 
 - **Artificial Intelligence (AI) Websites in minutes: Incomedia presents no-code digital growth tools at GITEX Africa 2026**: [Link](https://www.zawya.com/en/press-release/africa-press-releases/artificial-intelligence-ai-websites-in-minutes-incomedia-presents-no-code-digital-growth-tools-at-gitex-africa-eyimufok)
