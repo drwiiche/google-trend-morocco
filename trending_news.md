@@ -1,3 +1,24 @@
+### claude (N/A, Wed, 1 Apr 2026 10:10:00 -0700)
+
+- **«Maître Claude», «rêve nocturne», Tamagotchi : le code source de l’IA d’Anthropic a fuité, révélant les projets secrets du géant américain**: [Link](https://www.lefigaro.fr/secteur/high-tech/maitre-claude-reve-nocturne-tamagotchi-le-code-source-de-l-ia-d-anthropic-aurait-fuite-revelant-les-projets-secrets-du-geant-americain-20260331)
+- **Avec Mythos, Anthropic risque de bouleverser le marché de la cybersécurité**: [Link](https://www.lemondeinformatique.fr/actualites/lire-avec-mythos-anthropic-risque-de-bouleverser-le-marche-de-la-cybersecurite%C2%A0-99787.html)
+- **Fuite Claude Code - 6 trucs à piquer pour vos hooks**: [Link](https://korben.info/claude-code-6-patterns-bonnes-pratiques-hooks.html)
+
+
+### artemis ii (N/A, Wed, 1 Apr 2026 09:20:00 -0700)
+
+- **NASA’s Artemis II Launch Mission Countdown Begins**: [Link](https://www.nasa.gov/blogs/missions/2026/03/30/nasas-artemis-ii-launch-mission-countdown-begins/)
+- **What it's like to be on Florida's Space Coast ahead of Artemis launch**: [Link](https://www.bbc.com/news/articles/cz0e1myvl2ko)
+- **Apollo vs. Artemis: What to know about NASA’s return to the moon**: [Link](https://apnews.com/article/nasa-moon-apollo-artemis-astronauts-c3bb9888b75e67574a1b66e643b87621)
+
+
+### أنجلينا جولي (N/A, Wed, 1 Apr 2026 09:10:00 -0700)
+
+- **إطلالات أيقونية لأنجلينا جولي تخطف الأنظار في السنوات الأخيرة**: [Link](https://www.lahamag.com/article/235890-%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A7%D8%AA-%D8%A3%D9%8A%D9%82%D9%88%D9%86%D9%8A%D8%A9-%D9%84-angelina-jolie-%D8%AA%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9)
+- **شائعات استبدال أنجلينا جولى تثير الجدل بعد ظهورها فى شنجهاى**: [Link](https://www.youm7.com/story/2026/3/31/%D8%B4%D8%A7%D8%A6%D8%B9%D8%A7%D8%AA-%D8%A7%D8%B3%D8%AA%D8%A8%D8%AF%D8%A7%D9%84-%D8%A3%D9%86%D8%AC%D9%84%D9%8A%D9%86%D8%A7-%D8%AC%D9%88%D9%84%D9%89-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D8%B9%D8%AF-%D8%B8%D9%87%D9%88%D8%B1%D9%87%D8%A7-%D9%81%D9%89-%D8%B4%D9%86%D8%AC%D9%87%D8%A7%D9%89/7359861)
+- **مجوهرات أنجلينا جولي الفاخرة.. دليلكِ لإطلالة استثنائية بلمسات هوليوودية**: [Link](https://www.hiamag.com/%D9%85%D9%88%D8%B6%D8%A9/%D9%85%D8%AC%D9%88%D9%87%D8%B1%D8%A7%D8%AA-%D9%88%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA/1796014-%D9%85%D8%AC%D9%88%D9%87%D8%B1%D8%A7%D8%AA-%D8%A3%D9%86%D8%AC%D9%84%D9%8A%D9%86%D8%A7-%D8%AC%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D9%81%D8%A7%D8%AE%D8%B1%D8%A9-%D8%AF%D9%84%D9%8A%D9%84%D9%83%D9%90-%D9%84%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A8%D9%84%D9%85%D8%B3%D8%A7%D8%AA-%D9%87%D9%88%D9%84%D9%8A%D9%88%D9%88%D8%AF%D9%8A%D8%A9)
+
+
 ### gitex africa (N/A, Wed, 1 Apr 2026 08:50:00 -0700)
 
 - **Marrakech hosts GITEX Africa as 400 investors and 1,450 exhibitors converge**: [Link](https://en.hespress.com/134827-marrakech-hosts-gitex-africa-as-400-investors-and-1450-exhibitors-converge.html)
