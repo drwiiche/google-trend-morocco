@@ -1,3 +1,10 @@
+### gitex africa (N/A, Wed, 1 Apr 2026 08:50:00 -0700)
+
+- **Marrakech hosts GITEX Africa as 400 investors and 1,450 exhibitors converge**: [Link](https://en.hespress.com/134827-marrakech-hosts-gitex-africa-as-400-investors-and-1450-exhibitors-converge.html)
+- **GITEX Africa 2026 is Major Opportunity to Develop Digitization, AI in Morocco, Minister Says**: [Link](https://www.moroccoworldnews.com/2026/03/285246/gitex-africa-2026-is-major-opportunity-to-develop-digitization-ai-in-morocco-minister-el-fallah-seghrouchni-says/)
+- **Vertiv highlights advanced AI infrastructure solutions**: [Link](https://it-online.co.za/2026/03/27/vertiv-highlights-advanced-ai-infrastructure-solutions/)
+
+
 ### artemis 2 (N/A, Wed, 1 Apr 2026 07:40:00 -0700)
 
 - **LIVE: Artemis II Launch Day Updates**: [Link](https://www.nasa.gov/blogs/missions/2026/04/01/live-artemis-ii-launch-day-updates/)
