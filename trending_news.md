@@ -1,3 +1,24 @@
+### brazil vs croatia (N/A, Tue, 31 Mar 2026 18:20:00 -0700)
+
+- **How to watch Brazil vs Croatia for FREE: TV and live stream details for international friendly in Florida**: [Link](https://www.fourfourtwo.com/competition/how-to-watch-brazil-vs-croatia-friendly)
+- **📲 The sixth is coming! Endrick, Danilo and Luiz Henrique hype socials**: [Link](https://sports.yahoo.com/articles/hexa-endrick-danilo-luiz-henrique-022800188.html)
+- **Brazil vs Croatia: Confirmed lineups for 2026 international friendly**: [Link](https://worldsoccertalk.com/news/brazil-vs-croatia-projected-lineups-for-2026-international-friendly/)
+
+
+### أسعار المحروقات بالمغرب (N/A, Tue, 31 Mar 2026 18:00:00 -0700)
+
+- **زيادة ثانية في أسعار المحروقات بالمغرب.. 1.70 درهم للغازوال و1.57 للبنزين**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-1723875.html)
+- **أسعار المشتقات الطاقية تحلق بعد استهداف منشآت نفطية في الخليج**: [Link](https://ar.telquel.ma/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D9%84%D8%A7%D8%AA-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85/)
+- **توقعات بتجاوز أسعار النفط 150 دولار… وخبير يوضح: أسعار المحروقات في المغرب يجب أن تفهم في سياقها العالمي**: [Link](https://ar.hibapress.com/details-713964.html)
+
+
+### dr congo vs jamaica (N/A, Tue, 31 Mar 2026 16:00:00 -0700)
+
+- **DR Congo one win away from historic World Cup return**: [Link](https://www.cafonline.com/fifa-world-cup/news/dr-congo-one-win-away-from-historic-world-cup-return/)
+- **Now only ONE spot remains! Side ends 52-year wait, heads to World Cup**: [Link](https://onefootball.com/de/news/now-only-one-spot-remains-side-ends-52-year-wait-heads-to-world-cup-42642795)
+- **DR Congo Becomes Africa’s 10th Rep at the 2026 World Cup After Defeating Jamaica**: [Link](https://www.okayafrica.com/dr-congo-becomes-africas-10th-rep-at-the-2026-world-cup-after-defeating-jamaica/1414408)
+
+
 ### argentine foot (N/A, Tue, 31 Mar 2026 17:00:00 -0700)
 
 - **Argentine – Zambie : Streaming, chaine TV et compos**: [Link](https://www.football365.fr/argentine-zambie-streaming-chaine-tv-et-compos-10287429.html)
