@@ -1,3 +1,8 @@
+### twitch (N/A, Wed, 1 Apr 2026 12:10:00 -0700)
+
+- **Faculty voice: Bridging video games, music and academia on Twitch**: [Link](https://msutoday.msu.edu/news/2026/03/faculty-voice-ryan-thompson-esports-twitch)
+
+
 ### claude (N/A, Wed, 1 Apr 2026 10:10:00 -0700)
 
 - **«Maître Claude», «rêve nocturne», Tamagotchi : le code source de l’IA d’Anthropic a fuité, révélant les projets secrets du géant américain**: [Link](https://www.lefigaro.fr/secteur/high-tech/maitre-claude-reve-nocturne-tamagotchi-le-code-source-de-l-ia-d-anthropic-aurait-fuite-revelant-les-projets-secrets-du-geant-americain-20260331)
