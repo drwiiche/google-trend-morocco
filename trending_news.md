@@ -1,3 +1,10 @@
+### ترتيب الدوري المغربي (N/A, Wed, 1 Apr 2026 12:50:00 -0700)
+
+- **نادي نهضة بركان يتعادل في آسفي**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%81%D9%8A-%D8%A2%D8%B3%D9%81%D9%8A-1724636.html)
+- **الكوكب يطرح تذاكر مباراته أمام الجيش**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-433257.html)
+- **الضغوط تحاصر العصبة**: [Link](https://assabah.ma/912287.html)
+
+
 ### botola (N/A, Wed, 1 Apr 2026 14:10:00 -0700)
 
 - **Al-Ittihad continues its preparations in Morocco and faces Wydad in a friendly**: [Link](https://libyaupdate.com/al-ittihad-continues-its-preparations-in-morocco-and-faces-wydad-in-a-friendly/)
