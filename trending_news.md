@@ -1,3 +1,10 @@
+### أولمبيك أسفي ضد نهضة بركان (N/A, Wed, 1 Apr 2026 13:40:00 -0700)
+
+- **الكوكب يطرح تذاكر مباراته أمام الجيش**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-433257.html)
+- **غيابات بآسفي قبل مواجهة بركان**: [Link](https://assabah.ma/912243.html)
+- **العصبة الإحترافية تطلق السلسلة الأولى من المؤجلات**: [Link](https://www.almountakhab.com/node/16224088)
+
+
 ### twitch (N/A, Wed, 1 Apr 2026 12:10:00 -0700)
 
 - **Faculty voice: Bridging video games, music and academia on Twitch**: [Link](https://msutoday.msu.edu/news/2026/03/faculty-voice-ryan-thompson-esports-twitch)
