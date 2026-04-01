@@ -1,3 +1,17 @@
+### منتخب العراق (N/A, Tue, 31 Mar 2026 21:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة العراق وبوليفيا في نهائي الملحق العالمي المؤهل لكأس العالم 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%88%D8%A8%D9%88%D9%84%D9%8A%D9%81%D9%8A%D8%A7-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%87%D9%84-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf99a1279f7b866aa)
+- **شاهد.. العراق يهزم بوليفيا ويتأهل لكأس العالم 2026**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%A8%D9%88%D9%84%D9%8A%D9%81%D9%8A%D8%A7-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+- **دوسكي: جاهزون لمواجهة بوليفيا وإسعاد الشعب العراقي**: [Link](https://www.fifa.com/ar/tournaments/mens/worldcup/canadamexicousa2026/qualifiers/play-off-tournament/articles/merchas-doski-iraq-interview-ar)
+
+
+### irak foot (N/A, Tue, 31 Mar 2026 20:40:00 -0700)
+
+- **Irak-Bolivie : streaming, chaîne TV et compos**: [Link](https://www.football365.fr/irak-bolivie-streaming-chaine-tv-et-compos-10287136.html)
+- **Mondial 2026 : découvrez le troisième adversaire de l'équipe de France**: [Link](https://www.tf1info.fr/sport/mondial-2026-decouvrez-le-troisieme-adversaire-de-l-equipe-de-france-irak-2433480.html)
+- **Trois Dernières Recommandations d'Arnold Avant le Match Contre la Bolivie**: [Link](https://www.ysscores.com/fr/news/13937378/Trois-Derni%C3%A8res-Recommandations-d'Arnold-Avant-le-Match-Contre-la-Bolivie)
+
+
 ### brazil vs croatia (N/A, Tue, 31 Mar 2026 18:20:00 -0700)
 
 - **How to watch Brazil vs Croatia for FREE: TV and live stream details for international friendly in Florida**: [Link](https://www.fourfourtwo.com/competition/how-to-watch-brazil-vs-croatia-friendly)
