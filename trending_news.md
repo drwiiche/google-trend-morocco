@@ -1,3 +1,24 @@
+### prix gasoil maroc aujourd'hui (N/A, Wed, 1 Apr 2026 01:10:00 -0700)
+
+- **Nouvelle hausse des prix du carburant dès ce mercredi 1er avril 2026**: [Link](https://medias24.com/2026/03/31/nouvelle-hausse-des-prix-du-carburant-des-ce-mercredi-1er-avril-2026-1651631/)
+- **Carburants : le Maroc dispose de plus de 47 jours de gasoil et 52 jours d’essence**: [Link](https://fr.hespress.com/467868-carburants-le-maroc-dispose-de-plus-de-47-jours-de-gasoil-et-52-jours-dessence.html)
+- **Le gouvernement maintient la subvention du gaz butane et de l'électricité face à la flambée mondiale des prix de l'énergie**: [Link](https://lematin.ma/nation/le-gouvernement-maintient-la-subvention-du-gaz-butane-et-de-lelectricite/337504)
+
+
+### attijariwafa bank (N/A, Wed, 1 Apr 2026 00:40:00 -0700)
+
+- **Attijariwafa bank alerte sur la recrudescence des usurpations de son identité et appels frauduleux à l’investissement**: [Link](https://fr.le360.ma/economie/attijariwafa-bank-alerte-sur-la-recrudescence-des-usurpations-de-son-identite-et-appels-frauduleux-a_LV7L2TP4JNDCPOREEMDMIVES64/)
+- **Attijariwafa, BCP, Bank of Africa : au Maroc, le trio de tête bancaire absorbé par la Coupe du monde 2030**: [Link](https://www.jeuneafrique.com/1784571/economie-entreprises/attijariwafa-bcp-bank-of-africa-au-maroc-le-trio-de-tete-bancaire-absorbe-par-la-coupe-du-monde-2030/)
+- **Bank of Africa : Bénéfices de 3,8 milliards de dirhams en 2025**: [Link](https://lematin.ma/economie/bank-of-africa-benefices-de-38-milliards-de-dirhams-en-2025/337297)
+
+
+### regragui (N/A, Wed, 1 Apr 2026 00:10:00 -0700)
+
+- **Hervé Renard devrait demander à quitter son poste de sélectionneur de l'Arabie saoudite**: [Link](https://www.lequipe.fr/Football/Actualites/Herve-renard-devrait-demander-a-quitter-son-poste-de-selectionneur-de-l-arabie-saoudite/1664139)
+- **Renard pourrait claquer la porte de l'Arabie saoudite, Regragui pour le remplacer ?**: [Link](https://www.eurosport.fr/football/coupe-du-monde/2026/coupe-du-monde-2026-herve-renard-pourrait-claquer-la-porte-de-larabie-saoudite-walid-regragui-pressenti-pour-le-remplacer-medias_sto23286421/story.shtml)
+- **Arabie saoudite : Hervé Renard démis de ses fonctions ?**: [Link](https://www.footmercato.net/a5985479486679946910-arabie-saoudite-herve-renard-demis-de-ses-fonctions)
+
+
 ### walid regragui (N/A, Wed, 1 Apr 2026 00:00:00 -0700)
 
 - **Hervé Renard devrait demander à quitter son poste de sélectionneur de l'Arabie saoudite**: [Link](https://www.lequipe.fr/Football/Actualites/Herve-renard-devrait-demander-a-quitter-son-poste-de-selectionneur-de-l-arabie-saoudite/1664139)
