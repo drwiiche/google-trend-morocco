@@ -1,3 +1,17 @@
+### artemis 2 (N/A, Wed, 1 Apr 2026 07:40:00 -0700)
+
+- **LIVE: Artemis II Launch Day Updates**: [Link](https://www.nasa.gov/blogs/missions/2026/04/01/live-artemis-ii-launch-day-updates/)
+- **What it's like to be on Florida's Space Coast ahead of Artemis launch**: [Link](https://www.bbc.com/news/articles/cz0e1myvl2ko)
+- **Apollo’s impatient old-timers are rooting for NASA’s return to the moon with Artemis II launch**: [Link](https://apnews.com/article/apollo-artemis-nasa-moon-6fd9cb210d40c59a729d5103c0994351)
+
+
+### lune rose (N/A, Wed, 1 Apr 2026 06:20:00 -0700)
+
+- **9 rituels wellness à faire avant la fin de la semaine pour profiter des énergies de la Pleine Lune Rose**: [Link](https://www.vogue.fr/beaute/article/rituels-a-faire-les-jours-de-pleine-lune)
+- **Calendrier lunaire du 2 avril 2026 : Consultez les heures propices et les directions pour vos déplacements.**: [Link](https://baonghean.vn/fr/lich-am-duong-ngay-02042026-xem-gio-hoang-dao-va-huong-xuat-hanh-tot-10331003.html)
+- **Ce phénomène astral d'avril va mettre vos relations à l'épreuve selon votre signe du zodiaque**: [Link](https://www.grazia.fr/lifestyle/astro/ce-phenomene-astral-davril-va-mettre-vos-relations-a-lepreuve-selon-votre-signe-du-zodiaque-1234870.html)
+
+
 ### prix gasoil essence maroc (N/A, Wed, 1 Apr 2026 06:50:00 -0700)
 
 - **Nouvelle hausse des prix du carburant dès ce mercredi 1er avril 2026**: [Link](https://medias24.com/2026/03/31/nouvelle-hausse-des-prix-du-carburant-des-ce-mercredi-1er-avril-2026-1651631/)
