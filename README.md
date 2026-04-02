@@ -1,3 +1,17 @@
+### barcelona vs real madrid (N/A, Thu, 2 Apr 2026 10:00:00 -0700)
+
+- **Barcelona golea nuevamente al Real Madrid y se aleja 13 puntos en la Liga**: [Link](https://news.ssbcrack.com/barcelona-golea-nuevamente-al-real-madrid-y-se-aleja-13-puntos-en-la-liga/)
+- **🚨 Todo listo en el Camp Nou: hay ONCES para el Barça-Real Madrid**: [Link](https://onefootball.com/en/news/todo-listo-en-el-camp-nou-hay-onces-para-el-barca-real-madrid-42650553)
+- **Pau Quesada: "No puedo vender a las jugadoras que vamos a meter cinco"**: [Link](https://es-us.noticias.yahoo.com/deportes/pau-quesada-puedo-vender-jugadoras-164539841.html)
+
+
+### نادي برشلونة للسيدات ضد ريال مدريد للسيدات (N/A, Thu, 2 Apr 2026 09:40:00 -0700)
+
+- **برشلونة يسعى لتأكيد تفوّقه وريال مدريد ينشد قلب الموازين**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%AA%D9%81%D9%88-%D9%82%D9%87-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D8%B4%D8%AF-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B2%D9%8A%D9%86-2026-04-02)
+- **القنوات الناقلة لمباراة برشلونة ضد ريال مدريد اليوم في دوري أبطال أوروبا للسيدات مع الموعد - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/705667795435233-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF/)
+- **مباراة الإياب في ربع نهائي دوري أبطال أوروبا للسيدات تتجه نحو الإثارة والتشويق**: [Link](https://tawusal.com/65131/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A5%D9%8A%D8%A7%D8%A8-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3/)
+
+
 ### rima hassan (N/A, Thu, 2 Apr 2026 08:40:00 -0700)
 
 - **Rima Hassan en garde à vue pour apologie du terrorisme, de la drogue de synthèse retrouvée dans son sac**: [Link](https://www.leparisien.fr/faits-divers/leurodeputee-rima-hassan-en-garde-a-vue-pour-apologie-du-terrorisme-02-04-2026-VJ54ABD5LNAQDPBFQQYYTZWCQM.php)
