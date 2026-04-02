@@ -1,3 +1,17 @@
+### as far – olympique dcheira (N/A, Thu, 2 Apr 2026 12:00:00 -0700)
+
+- **FAR Rabat Hosts Olympique Dcheira Tonight (20:00 GMT+1) in Postponed Round 10 Fixture**: [Link](https://m.elbotola.com/en/article/2026-04-01-23-02-793.html)
+- **FAR Holds Second Training Session Today Amidst International Absences Ahead of Olympique Dcheira Clash**: [Link](https://m.elbotola.com/en/article/2026-03-31-13-50-975.html)
+- **Mbemba Returns, Razkou Trains Individually as FAR Rabat Begins Preparations for Olympique Dcheira Match**: [Link](https://m.elbotola.com/en/article/2026-03-30-15-08-675.html)
+
+
+### essence prix (N/A, Thu, 2 Apr 2026 11:00:00 -0700)
+
+- **Carburants : le Conseil de la concurrence pointe une répercussion inégale des hausses des prix internationaux au Maroc**: [Link](https://lematin.ma/economie/carburants-une-hausse-internationale-mal-repercutee-selon-les-produits/337870)
+- **Gaz, électricité, transport... Lekjaa détaille les aides de l’État pour contenir la hausse des prix**: [Link](https://medias24.com/2026/04/02/gaz-electricite-transport-lekjaa-detaille-les-aides-de-letat-pour-contenir-la-hausse-des-prix-1652879/)
+- **Leila Benali : Le Maroc dispose de 51 jours de stocks de gasoil**: [Link](https://www.leconomiste.com/flash-infos/leila-benali-le-maroc-dispose-de-51-jours-de-stocks-de-gasoil/)
+
+
 ### fc barcelone – real madrid club de fútbol (N/A, Thu, 2 Apr 2026 09:10:00 -0700)
 
 - **¿Cómo ver el partido del Barcelona vs Real Madrid femenino en TV y streaming?**: [Link](https://www.si.com/es-us/futbol/como-ver-el-partido-del-barcelona-vs-real-madrid-femenino-en-tv-y-streaming-2-4-2026)
