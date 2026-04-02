@@ -1,3 +1,17 @@
+### fc barcelone – real madrid club de fútbol (N/A, Thu, 2 Apr 2026 09:10:00 -0700)
+
+- **¿Cómo ver el partido del Barcelona vs Real Madrid femenino en TV y streaming?**: [Link](https://www.si.com/es-us/futbol/como-ver-el-partido-del-barcelona-vs-real-madrid-femenino-en-tv-y-streaming-2-4-2026)
+- **🚨 Todo listo en el Camp Nou: hay ONCES para el Barça-Real Madrid**: [Link](https://onefootball.com/en/news/todo-listo-en-el-camp-nou-hay-onces-para-el-barca-real-madrid-42650553)
+- **Pau Quesada: "No puedo vender a las jugadoras que vamos a meter cinco"**: [Link](https://es-us.noticias.yahoo.com/deportes/pau-quesada-puedo-vender-jugadoras-164539841.html)
+
+
+### lamine yamal (N/A, Thu, 2 Apr 2026 01:20:00 -0700)
+
+- **Spain star Yamal slams 'intolerable' anti-Muslim 'mockery' at Egypt friendly**: [Link](https://en.hespress.com/134857-spain-star-yamal-slams-intolerable-anti-muslim-mockery-at-egypt-friendly.html)
+- **Lamine Yamal condemns racist abuse heard during Spain v Egypt friendly**: [Link](https://www.bbc.com/sport/football/articles/cz6737pdnwpo)
+- **Spanish Fans’ Anti-Muslim Chants Expose Centuries of Racism and Cultural Arrogance**: [Link](https://www.moroccoworldnews.com/2026/04/285372/spanish-fans-anti-muslim-chants-expose-centuries-of-racism-and-cultural-arrogance/)
+
+
 ### barcelona vs real madrid (N/A, Thu, 2 Apr 2026 10:00:00 -0700)
 
 - **Barcelona golea nuevamente al Real Madrid y se aleja 13 puntos en la Liga**: [Link](https://news.ssbcrack.com/barcelona-golea-nuevamente-al-real-madrid-y-se-aleja-13-puntos-en-la-liga/)
