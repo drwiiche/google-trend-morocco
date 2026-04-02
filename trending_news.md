@@ -1,3 +1,15 @@
+### botola pro (N/A, Thu, 2 Apr 2026 12:40:00 -0700)
+
+- **RS Berkane Recovers Three Players, Including El Mellali, From Injury**: [Link](https://m.elbotola.com/en/article/2026-03-31-13-25-618.html)
+
+
+### pam bondi (N/A, Thu, 2 Apr 2026 12:20:00 -0700)
+
+- **Trump fires Pam Bondi as attorney general**: [Link](https://www.cnn.com/2026/04/02/politics/pam-bondi-role-trump)
+- **Bondi Is Vulnerable as Republican Frustrations Over DOJ’s Epstein Files Missteps Grow**: [Link](https://www.nytimes.com/2026/04/01/us/politics/bondi-epstein-files-doj-trump.html)
+- **US President Donald Trump fires US attorney general Pam Bondi**: [Link](https://www.bbc.com/news/live/cd9gjwdw9ygt)
+
+
 ### as far – olympique dcheira (N/A, Thu, 2 Apr 2026 12:00:00 -0700)
 
 - **FAR Rabat Hosts Olympique Dcheira Tonight (20:00 GMT+1) in Postponed Round 10 Fixture**: [Link](https://m.elbotola.com/en/article/2026-04-01-23-02-793.html)
