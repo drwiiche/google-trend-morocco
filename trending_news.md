@@ -1,3 +1,24 @@
+### trump (N/A, Wed, 1 Apr 2026 18:00:00 -0700)
+
+- **Iran war live: Trump claims goals nearing completion, vows to ‘finish job’**: [Link](https://www.aljazeera.com/news/liveblog/2026/4/2/iran-war-live-trump-to-address-nation-tehran-denies-seeking-ceasefire)
+- **Daily World Briefing, April 2**: [Link](https://english.news.cn/20260402/77a02d61002845c889efc5024d9b6f5c/c.html)
+- **Trump says US will leave Iran 'whether we have a deal or not'**: [Link](https://www.bbc.com/news/live/c8jke9v9xv9t)
+
+
+### أسعار المحروقات بالمغرب (N/A, Wed, 1 Apr 2026 17:50:00 -0700)
+
+- **أسعار المشتقات الطاقية تحلق بعد استهداف منشآت نفطية في الخليج**: [Link](https://ar.telquel.ma/%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D9%84%D8%A7%D8%AA-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85/)
+- **نقابات نقل البضائع تستنكر الزيادة الجديدة في المحروقات وتطالب بتسقيف الأسعار**: [Link](https://www.pjd.ma/227390-%D9%86%D9%82%D8%A7%D8%A8%D8%A7%D8%AA-%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%A8%D8%B6%D8%A7%D8%A6%D8%B9-%D8%AA%D8%B3%D8%AA%D9%86%D9%83%D8%B1-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC.html)
+- **المغاربة يُسحقون تحت الغلاء فمن يتحمل المسؤولية**: [Link](https://alittihad.info/auteurs/%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D9%8F%D8%B3%D8%AD%D9%82%D9%88%D9%86-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%BA%D9%84%D8%A7%D8%A1-%D9%81%D9%85%D9%86-%D9%8A%D8%AA%D8%AD%D9%85%D9%84/)
+
+
+### maroc senegal can 2025 (N/A, Wed, 1 Apr 2026 16:50:00 -0700)
+
+- **Sénégal-Maroc : une tendance forte se dégage pour le TAS**: [Link](https://www.footmercato.net/a9180245327300894180-senegal-maroc-une-tendance-forte-se-degage-pour-le-tas)
+- **Affaire de la CAN : Anne Méaux sur deux tableaux entre Dakar et Rabat**: [Link](https://ledesk.ma/2026/04/01/affaire-de-la-can-anne-meaux-sur-deux-tableaux-entre-dakar-et-rabat/)
+- **CAF : des réformes pour renforcer la confiance dans l’arbitrage, la VAR et les instances juridictionnelles**: [Link](https://mobile.telquel.ma/instant-t/2026/03/30/caf-des-reformes-pour-renforcer-la-confiance-dans-larbitrage-la-var-et-les-instances-juridictionnelles_1981243/)
+
+
 ### ترتيب الدوري المغربي (N/A, Wed, 1 Apr 2026 12:50:00 -0700)
 
 - **نادي نهضة بركان يتعادل في آسفي**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%81%D9%8A-%D8%A2%D8%B3%D9%81%D9%8A-1724636.html)
