@@ -1,3 +1,31 @@
+### محاكم (N/A, Thu, 2 Apr 2026 01:50:00 -0700)
+
+- **في سابقة تاريخية.. ترمب يحضر جلسة المحكمة العليا حول الجنسية بالولادة**: [Link](https://www.aljazeera.net/news/2026/4/2/%D9%81%D9%8A-%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%AD%D8%B6%D8%B1-%D8%AC%D9%84%D8%B3%D8%A9)
+- **سابقة.. ترامب يجلس بالمحكمة العليا**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%AC%D9%84%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D9%8A%D8%A7-1724496.html)
+- **ترامب ضد باربارا.. الرئيس في المحكمة العليا لإلغاء الجنسية بالولادة**: [Link](https://www.eremnews.com/news/world/gu09inx)
+
+
+### gitex africa 2026 (N/A, Thu, 2 Apr 2026 01:40:00 -0700)
+
+- **Marrakech hosts GITEX Africa as 400 investors and 1,450 exhibitors converge**: [Link](https://en.hespress.com/134827-marrakech-hosts-gitex-africa-as-400-investors-and-1450-exhibitors-converge.html)
+- **Morocco World News Relaunches ‘DigiTalk’ at GITEX Africa 2026**: [Link](https://www.moroccoworldnews.com/2026/03/285104/morocco-world-news-relaunches-digitalk-at-gitex-africa-2026/)
+- **Artificial Intelligence (AI) Websites in minutes: Incomedia presents no-code digital growth tools at GITEX Africa 2026**: [Link](https://africa24tv.com/artificial-intelligence-ai-websites-in-minutes-incomedia-presents-no-code-digital-growth-tools-at-gitex-africa-2026/)
+
+
+### prix du baril (N/A, Wed, 1 Apr 2026 23:40:00 -0700)
+
+- **Moyen-Orient: les marchés financiers déçus par l'allocution de Donald Trump**: [Link](https://medias24.com/agence-presse/moyen-orient-les-marches-financiers-decus-par-lallocution-de-donald-trump/)
+- **Il n'a toujours aucun plan pour rouvrir le détroit d'Ormuz: le pétrole bondit de 7% après le discours de Donald Trump, qui demande encore aux autres pays "de s'en occuper"**: [Link](https://www.bfmtv.com/economie/international/il-n-a-toujours-aucun-plan-pour-rouvrir-le-detroit-d-ormuz-le-petrole-bondit-de-7-apres-le-discours-de-donald-trump-qui-demande-encore-aux-autres-pays-de-s-en-occuper_AN-202604020131.html)
+- **« On va les frapper fort » : marchés déçus, le pétrole remonte après le discours de Trump**: [Link](https://fr.euronews.com/business/2026/04/02/on-va-les-frapper-fort-marches-decus-le-petrole-remonte-apres-le-discours-de-trump)
+
+
+### iphone 18 pro max (N/A, Wed, 1 Apr 2026 17:50:00 -0700)
+
+- **Apple iPhone 18 Pro: Latest Leak Signals Major Design Update**: [Link](https://www.forbes.com/sites/davidphelan/2026/03/31/apple-iphone-18-pro-latest-leak-signals-major-design-update/)
+- **The iPhone 18 Pro Max Just Fixed Apple’s Biggest Design Mistake**: [Link](https://www.geeky-gadgets.com/iphone-18-pro-max-design-4/)
+- **iPhone 18 Pro battery just got leaked — Apple’s biggest endurance jump yet? Fans are losing it**: [Link](https://gulfnews.com/technology/iphone-18-pro-battery-just-got-leaked-apples-biggest-endurance-jump-yet-fans-are-losing-it-1.500492714)
+
+
 ### رضا الهجهوج (N/A, Thu, 2 Apr 2026 01:20:00 -0700)
 
 - **اللاعب السابق الهجهوج يدخل السجن**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%84%D9%87%D8%AC%D9%87%D9%88%D8%AC-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-1724670.html)
