@@ -1,3 +1,10 @@
+### botola (N/A, Thu, 2 Apr 2026 12:50:00 -0700)
+
+- **Botola Pro: RS Berkane Climbs to Fourth After 1-1 Draw with Bottom-Placed Olympique Safi**: [Link](https://m.elbotola.com/en/article/2026-04-01-20-54-69.html)
+- **Olympic Safi and Renaissance Berkane Draw 1-1 in Postponed League Match**: [Link](https://www.ysscores.com/en/news/13938011/Olympic-Safi-and-Renaissance-Berkane-Draw-1-1-in-Postponed-League-Match)
+- **Botola Pro: OC Safi slows down RS Berkane in draw at home**: [Link](https://www.panafricafootball.com/post/botola-pro-oc-safi-v-rs-berkane/)
+
+
 ### botola pro (N/A, Thu, 2 Apr 2026 12:40:00 -0700)
 
 - **RS Berkane Recovers Three Players, Including El Mellali, From Injury**: [Link](https://m.elbotola.com/en/article/2026-03-31-13-25-618.html)
