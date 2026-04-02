@@ -1,3 +1,24 @@
+### رضا الهجهوج (N/A, Thu, 2 Apr 2026 01:20:00 -0700)
+
+- **اللاعب السابق الهجهوج يدخل السجن**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%84%D9%87%D8%AC%D9%87%D9%88%D8%AC-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-1724670.html)
+- **قاضي التحقيق يأمر بإيداع لاعب الوداد السابق رضى الهجهوج سجن عكاشة بالبيضاء**: [Link](https://al3omk.com/1149406.html)
+- **توضيحات حول قضية رضا الهجهوج**: [Link](https://www.radiomars.ma/%D8%AA%D9%88%D8%B6%D9%8A%D8%AD%D8%A7%D8%AA-%D8%AD%D9%88%D9%84-%D9%82%D8%B6%D9%8A%D8%A9-%D8%B1%D8%B6%D8%A7-%D8%A7%D9%84%D9%87%D8%AC%D9%87%D9%88%D8%AC-2/)
+
+
+### hibapress (N/A, Thu, 2 Apr 2026 01:00:00 -0700)
+
+- **انقسام حاد داخل حزب الوحدة والديمقراطية بعد قرار الاندماج مع "البيجيدي"**: [Link](https://ar.hibapress.com/details-714570.html)
+- **تآكل غير مسبوق يضرب الساحل الشمالي والوسطي لأكادير**: [Link](https://ar.hibapress.com/details-714577.html)
+- **شاطئ أكادير يشهد انجرافا رمليا غير مسبوق منذ 45 عاما**: [Link](https://lakome2.com/eco/413232/)
+
+
+### chatgpt (N/A, Wed, 1 Apr 2026 13:00:00 -0700)
+
+- **Shutterstock launches app on ChatGPT to deliver commercial-ready assets**: [Link](https://www.newsbytesapp.com/news/science/shutterstock-launches-app-on-chatgpt-to-deliver-commercial-ready-assets/tldr)
+- **ChatGPT users can now access Shutterstock images, videos and sound files directly**: [Link](https://m.economictimes.com/tech/technology/chatgpt-users-can-now-access-shutterstock-images-videos-and-sound-files-directly/articleshow/129967404.cms)
+- **ChatGPT users can now access Shutterstock images, video and music**: [Link](https://www.stocktitan.net/news/SSTK/shutterstock-launches-licensed-content-app-in-chat-gpt-bringing-yloagzhrjkpe.html)
+
+
 ### akhbarona (N/A, Wed, 1 Apr 2026 22:40:00 -0700)
 
 
