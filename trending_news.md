@@ -1,3 +1,17 @@
+### kristi noem (N/A, Thu, 2 Apr 2026 04:20:00 -0700)
+
+- **South Dakotans React to Daily Mail Article on Bryon Noem, Kristi Noem’s Husband**: [Link](https://www.nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html)
+- **Exclusive | Kristi Noem weighs in on report husband lives cross-dressing double life: ‘The family was blindsided by this’**: [Link](https://nypost.com/2026/03/31/us-news/kristi-noem-weighs-in-on-report-husband-bryon-lives-cross-dressing-double-life/)
+- **“Bimbofication:” Google explodes, and memes unleash**: [Link](https://cybernews.com/news/bimbofication-google-trends-noem-memes/)
+
+
+### تحت الارض (N/A, Wed, 1 Apr 2026 17:00:00 -0700)
+
+- **موعد عرض مسلسل تحت الأرض الحلقة 10 والقنوات الناقلة وطريقة مشاهدتها مجانًا**: [Link](https://www.almasryalyoum.com/news/details/4234029)
+- **مشاهدة مسلسل تحت الأرض التركي الحلقة 10 بجودة عالية**: [Link](https://tawusal.com/66210/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-10/)
+- **مسلسل تحت الأرض الحلقة 10 .. قرارات حاسمة**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-10-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9)
+
+
 ### محاكم (N/A, Thu, 2 Apr 2026 01:50:00 -0700)
 
 - **في سابقة تاريخية.. ترمب يحضر جلسة المحكمة العليا حول الجنسية بالولادة**: [Link](https://www.aljazeera.net/news/2026/4/2/%D9%81%D9%8A-%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%AD%D8%B6%D8%B1-%D8%AC%D9%84%D8%B3%D8%A9)
