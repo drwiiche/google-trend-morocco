@@ -1,3 +1,10 @@
+### gitex (N/A, Thu, 2 Apr 2026 04:30:00 -0700)
+
+- **Marrakech hosts GITEX Africa as 400 investors and 1,450 exhibitors converge**: [Link](https://en.hespress.com/134827-marrakech-hosts-gitex-africa-as-400-investors-and-1450-exhibitors-converge.html)
+- **GITEX Africa 2026: Bridging the Divide Between Banks and Tech to Build Trust**: [Link](https://www.moroccoworldnews.com/2026/04/285457/gitex-africa-2026-bridging-the-divide-between-banks-and-tech-to-build-trust/)
+- **Vertiv highlights advanced AI infrastructure solutions**: [Link](https://it-online.co.za/2026/03/27/vertiv-highlights-advanced-ai-infrastructure-solutions/)
+
+
 ### kristi noem (N/A, Thu, 2 Apr 2026 04:20:00 -0700)
 
 - **South Dakotans React to Daily Mail Article on Bryon Noem, Kristi Noem’s Husband**: [Link](https://www.nytimes.com/2026/03/31/us/politics/kristi-noem-husband-photos-daily-mail.html)
