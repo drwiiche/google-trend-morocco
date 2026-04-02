@@ -1,3 +1,10 @@
+### halima ben ali (N/A, Wed, 1 Apr 2026 19:20:00 -0700)
+
+- **La justice française refuse de remettre Halima Ben Ali, fille cadette de l’ancien président, à la Tunisie**: [Link](https://www.jeuneafrique.com/1784885/politique/la-justice-francaise-refuse-de-remettre-halima-ben-ali-fille-cadette-de-lancien-president-a-la-tunisie/)
+- **La France refuse d’extrader la fille de l’ex-dictateur tunisien Ben Ali**: [Link](https://www.20minutes.fr/justice/4216215-20260401-tunisie-france-refuse-extrader-fille-ex-dictateur-ben-ali-eviter-condamnation-mort)
+- **Extradition de Halima Ben Ali : la Cour d’appel de Paris a tranché**: [Link](https://www.tunisienumerique.com/extradition-de-halima-ben-ali-la-cour-dappel-de-paris-a-tranche/)
+
+
 ### trump (N/A, Wed, 1 Apr 2026 18:00:00 -0700)
 
 - **Iran war live: Trump claims goals nearing completion, vows to ‘finish job’**: [Link](https://www.aljazeera.com/news/liveblog/2026/4/2/iran-war-live-trump-to-address-nation-tehran-denies-seeking-ceasefire)
