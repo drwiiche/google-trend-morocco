@@ -1,3 +1,10 @@
+### test (N/A, Thu, 2 Apr 2026 14:00:00 -0700)
+
+- **Bodycam shows Tiger Woods surprised over DUI arrest**: [Link](https://www.espn.com/golf/story/_/id/48378214/bodycam-shows-tiger-woods-surprised-dui-arrest)
+- **Video: See police body camera footage from Tiger Woods’ arrest**: [Link](https://www.cnn.com/2026/04/02/us/video/tiger-woods-body-camera-footage-crash-digvid)
+- **Tiger Woods tells deputy he was 'talking to the president' after Florida crash, body camera video shows**: [Link](https://www.nbcnews.com/news/us-news/tiger-woods-body-camera-video-released-rollover-crash-florida-rcna266376)
+
+
 ### nasser bourita (N/A, Thu, 2 Apr 2026 13:50:00 -0700)
 
 - **Bourita s’entretient avec le Président de la Commission de l'UA**: [Link](https://fr.hespress.com/468008-bourita-sentretient-avec-le-president-de-la-commission-de-lua.html)
