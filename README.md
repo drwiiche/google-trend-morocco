@@ -1,3 +1,17 @@
+### mission artemis (N/A, Thu, 2 Apr 2026 15:10:00 -0700)
+
+- **Artemis II Flight Update: Perigee Raise Burn Complete**: [Link](https://www.nasa.gov/blogs/missions/2026/04/02/artemis-ii-flight-update-perigee-raise-burn-complete/)
+- **Live updates: Artemis II prepares for final major engine firing to put it on course for the moon**: [Link](https://www.cnn.com/2026/04/01/science/live-news/artemis-2-nasa-launch)
+- **Apollo’s impatient old-timers are rooting for NASA’s return to the moon with Artemis II launch**: [Link](https://apnews.com/article/apollo-artemis-nasa-moon-6fd9cb210d40c59a729d5103c0994351)
+
+
+### مي عز الدين (N/A, Thu, 2 Apr 2026 15:00:00 -0700)
+
+- **بإطلالة شتوية أنيقة.. مي عزالدين تخطف الأنظار في أحدث ظهور لها (صور)**: [Link](https://www.almasryalyoum.com/news/details/4235329)
+- **أهل الفن في 24 ساعة.. وفاة والد حاتم صلاح وأحدث ظهور لـ مي عز الدين بعد أزمتها الصحية**: [Link](https://www.elwatannews.com/news/details/8257087)
+- **إطلالة شتوية.. مي عز الدين تخطف الأنظار بـ "لوك" جديد وزوجها يغازلها**: [Link](https://www.masrawy.com/arts/zoom/details/2026/4/1/2965918/%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A9-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%AA%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D9%86%D8%B8%D8%A7%D8%B1-%D8%A8%D9%80-%D9%84%D9%88%D9%83-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%88%D8%B2%D9%88%D8%AC%D9%87%D8%A7-%D9%8A%D8%BA%D8%A7%D8%B2%D9%84%D9%87%D8%A7)
+
+
 ### test (N/A, Thu, 2 Apr 2026 14:00:00 -0700)
 
 - **Bodycam shows Tiger Woods surprised over DUI arrest**: [Link](https://www.espn.com/golf/story/_/id/48378214/bodycam-shows-tiger-woods-surprised-dui-arrest)
