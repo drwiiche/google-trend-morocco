@@ -1,3 +1,17 @@
+### nasa artemis (N/A, Thu, 2 Apr 2026 07:10:00 -0700)
+
+- **Artemis II Launch Day Updates**: [Link](https://www.nasa.gov/blogs/missions/2026/04/01/live-artemis-ii-launch-day-updates/)
+- **How long will Artemis II take to reach the moon, and what happens next?**: [Link](https://www.aljazeera.com/news/2026/4/2/how-long-will-artemis-ii-take-to-reach-the-moon-and-what-happens-next)
+- **4 astronauts launch on historic moon mission**: [Link](https://www.cnn.com/2026/04/01/science/live-news/artemis-2-nasa-launch)
+
+
+### aljazeera (N/A, Wed, 1 Apr 2026 22:20:00 -0700)
+
+- **UK says Iran holding world economy 'hostage' with Hormuz attacks**: [Link](https://www.bbc.com/news/articles/cx2d0md89v2o)
+- **Can Starmer’s 40-nation coalition open the Strait of Hormuz?**: [Link](https://www.aljazeera.com/news/2026/4/2/can-starmers-40-nation-coalition-open-the-strait-of-hormuz)
+- **Iran war latest: Iran recklessness damaging world’s economy, says Yvette Cooper**: [Link](https://www.thetimes.com/world/middle-east/israel-iran/article/iran-war-latest-news-us-trump-israel-uk-5htf598nc)
+
+
 ### gitex (N/A, Thu, 2 Apr 2026 04:30:00 -0700)
 
 - **Marrakech hosts GITEX Africa as 400 investors and 1,450 exhibitors converge**: [Link](https://en.hespress.com/134827-marrakech-hosts-gitex-africa-as-400-investors-and-1450-exhibitors-converge.html)
