@@ -1,3 +1,24 @@
+### دونالد ترامب (N/A, Thu, 2 Apr 2026 06:50:00 -0700)
+
+- **تهديدات بلا مخرج واضح.. قراءة في خطاب ترمب عن حرب إيران**: [Link](https://www.aljazeera.net/news/2026/4/2/%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A8%D9%84%D8%A7-%D9%85%D8%AE%D8%B1%D8%AC-%D9%88%D8%A7%D8%B6%D8%AD-%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%81%D9%8A-%D8%AE%D8%B7%D8%A7%D8%A8)
+- **ترامب عن إيران: سنضربهم بقوة شديدة خلال أسبوعين إلى ثلاثة أسابيع قادمة**: [Link](https://www.bbc.com/arabic/live/c0kr3pgxd3et)
+- **أبرز ما قاله ترامب حول إيران في خطابه للأمة**: [Link](https://www.skynewsarabia.com/world/1861997-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%82%D8%A7%D9%84%D9%87-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AE%D8%B7%D8%A7%D8%A8%D9%87-%D9%84%D9%84%D8%A3%D9%85%D8%A9)
+
+
+### orange (N/A, Thu, 2 Apr 2026 01:40:00 -0700)
+
+- **Why the Artemis II Astronauts Will Be Wearing Orange**: [Link](https://www.nytimes.com/2026/03/31/style/artemis-ii-spacesuits-orange-astronauts.html)
+- **Artemis II spacesuits made in Massachusetts**: [Link](https://www.yahoo.com/news/articles/artemis-ii-spacesuits-made-massachusetts-140656871.html)
+- **Tailored for orbit**: [Link](https://www.ft.com/content/90e89b37-95fc-4964-b3c8-b2c0744fbe04)
+
+
+### هبة بريس (N/A, Wed, 1 Apr 2026 22:40:00 -0700)
+
+- **صديقة الجزائر في قلب فضيحة بفرنسا.. إيقاف "المدمنة" ريما حسن بتهمة الإشادة بالإرهاب**: [Link](https://ar.hibapress.com/details-714669.html)
+- **"عقوبة سياسية".. كندا تمنع عضو بالبرلمان الأوروبي من دخول أراضيها**: [Link](https://arabic.euronews.com/2026/03/30/rima-hassan-canada-entry-ban-european-parliament-censorship-political-punishment-pal)
+- **فرنسا: وضع عضوة البرلمان الأوروبي ريما حسن رهن الحجز لدى الشرطة بتهمة "تمجيد الإرهاب"**: [Link](https://www.alquds.co.uk/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%B6%D8%B9-%D8%B9%D8%B6%D9%88%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%B1%D9%8A%D9%85%D8%A7/)
+
+
 ### nasa artemis (N/A, Thu, 2 Apr 2026 07:10:00 -0700)
 
 - **Artemis II Launch Day Updates**: [Link](https://www.nasa.gov/blogs/missions/2026/04/01/live-artemis-ii-launch-day-updates/)
