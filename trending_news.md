@@ -1,3 +1,17 @@
+### rima hassan (N/A, Thu, 2 Apr 2026 08:40:00 -0700)
+
+- **Rima Hassan en garde à vue pour apologie du terrorisme, de la drogue de synthèse retrouvée dans son sac**: [Link](https://www.leparisien.fr/faits-divers/leurodeputee-rima-hassan-en-garde-a-vue-pour-apologie-du-terrorisme-02-04-2026-VJ54ABD5LNAQDPBFQQYYTZWCQM.php)
+- **L’eurodéputée Rima Hassan en garde à vue pour apologie du terrorisme**: [Link](https://www.20minutes.fr/societe/4216409-20260402-eurodeputee-franco-palestinienne-rima-hassan-garde-vue)
+- **L'eurodéputée LFI Rima Hassan placée en garde à vue pour "apologie du terrorisme", de la drogue de synthèse retrouvée en sa possession**: [Link](https://www.bfmtv.com/police-justice/l-eurodeputee-lfi-rima-hassan-placee-en-garde-a-vue_AN-202604020554.html)
+
+
+### outlook (N/A, Thu, 2 Apr 2026 00:50:00 -0700)
+
+- **Artemis II Astronauts Have ‘Two Microsoft Outlooks’ and Neither Work**: [Link](https://www.404media.co/artemis-2-astronauts-microsoft-outlook-livestream/)
+- **Even Artemis II Astronauts Have Microsoft Outlook Problems**: [Link](https://www.wired.com/story/artemis-ii-microsoft-outlook-problems/)
+- **NASA Artemis II moon mission: Astronauts face ‘Microsoft Outlook’ problem in space**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/nasa-artemis-ii-moon-mission-astronauts-face-microsoft-outlook-problem-in-space/articleshow/129983940.cms)
+
+
 ### دونالد ترامب (N/A, Thu, 2 Apr 2026 06:50:00 -0700)
 
 - **تهديدات بلا مخرج واضح.. قراءة في خطاب ترمب عن حرب إيران**: [Link](https://www.aljazeera.net/news/2026/4/2/%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A8%D9%84%D8%A7-%D9%85%D8%AE%D8%B1%D8%AC-%D9%88%D8%A7%D8%B6%D8%AD-%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%81%D9%8A-%D8%AE%D8%B7%D8%A7%D8%A8)
