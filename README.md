@@ -1,3 +1,17 @@
+### nasser bourita (N/A, Thu, 2 Apr 2026 13:50:00 -0700)
+
+- **Bourita s’entretient avec le Président de la Commission de l'UA**: [Link](https://fr.hespress.com/468008-bourita-sentretient-avec-le-president-de-la-commission-de-lua.html)
+- **UA : le Maroc entame un nouveau mandat au Conseil de paix et de sécurité**: [Link](https://medias24.com/2026/04/01/ua-le-maroc-entame-un-nouveau-mandat-au-conseil-de-paix-et-de-securite-1652074/)
+- **Maroc–Union africaine : un partenariat stratégique en consolidation**: [Link](https://quid.ma/national/maroc-union-africaine-un-partenariat-strategique-en-consolidation)
+
+
+### الجيش الملكي ضد الدشيرة (N/A, Thu, 2 Apr 2026 13:30:00 -0700)
+
+- **غيابات الجيش الملكي أمام أولمبيك الدشيرة**: [Link](https://www.radiomars.ma/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D9%84%D8%AF%D8%B4/)
+- **هدف الفحلي يوسف الملغي في مرمى الدشيرة من زاوية خاصة ⚽️❌**: [Link](https://m.elbotola.com/video/details/69cecf8ad52eee002b472da3/)
+- **الدوري الاحترافي الاول...موعد مباراة الجيش الملكي امام الدشيرة والقناة الناقلة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%88%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A7%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D8%B4%D9%8A%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/17979)
+
+
 ### botola (N/A, Thu, 2 Apr 2026 12:50:00 -0700)
 
 - **Botola Pro: RS Berkane Climbs to Fourth After 1-1 Draw with Bottom-Placed Olympique Safi**: [Link](https://m.elbotola.com/en/article/2026-04-01-20-54-69.html)
