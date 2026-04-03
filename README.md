@@ -1,3 +1,38 @@
+### بي اس جي ضد تولوز (N/A, Fri, 3 Apr 2026 11:10:00 -0700)
+
+- **بطولة فرنسا: باريس سان جرمان لتأمين صدارته قبل قمته مع ليفربول**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260402-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%84%D8%AA%D8%A3%D9%85%D9%8A%D9%86-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D9%82%D8%A8%D9%84-%D9%82%D9%85%D8%AA%D9%87-%D9%85%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+- **لمواجهة تولوز...حكيمي حاضر في قائمة سان جيرمان**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B6%D9%85%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D9%88%D9%84%D9%88%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/18047)
+- **الدوري الفرنسي يختبر بث صوت الحكام لأول مرة في مباراة باريس سان جيرمان وتولوز**: [Link](https://m.elbotola.com/article/2026-04-01-20-00-365.html)
+
+
+### psg vs toulouse (N/A, Fri, 3 Apr 2026 11:10:00 -0700)
+
+- **Friday’s football tips: PSG star Kvaratskhelia 29/20 to grab a goal against Toulouse**: [Link](https://mrfixitstips.co.uk/fridays-football-tips-psg-star-kvaratskhelia-29-20-to-grab-a-goal-against-toulouse/)
+- **🚨 Luis Enrique wants no scares against Toulouse: here's his XI**: [Link](https://sports.yahoo.com/articles/luis-enrique-wants-no-scares-180100173.html)
+- **Santiago Hidalgo suspended, Dayann Methalie back for Toulouse at PSG**: [Link](https://onefootball.com/en/news/santiago-hidalgo-suspended-dayann-methalie-back-for-toulouse-at-psg-42654420)
+
+
+### paris-sg – toulouse (N/A, Fri, 3 Apr 2026 11:00:00 -0700)
+
+- **PSG-Toulouse, sur quelle chaîne voir le match ?**: [Link](https://www.football.fr/ligue-1/psg-toulouse-sur-quelle-chaine-voir-le-match-808228.html)
+- **Code promo Betclic BCG* sur PSG - Toulouse : votre pari remboursé en CASH (100 € max)**: [Link](https://www.goal.com/fr/parier-en-ligne/code-promo-betclic-psg-toulouse/bltc12726d797d5c9e8)
+- **Hakimi et Neves de retour avec le PSG pour la réception du Toulouse FC**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-hakimi-et-neves-de-retour-avec-le-psg-pour-la-reception-du-toulouse-fc/x8Ee2A8c/)
+
+
+### النصر ضد النجمة (N/A, Fri, 3 Apr 2026 10:50:00 -0700)
+
+- **مباشر.. مباراة النصر ضد النجمة في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/3/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **قرار حاسم من جيسوس بشأن رونالدو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%AD%D8%A7%D8%B3%D9%85-%D9%85%D9%86-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88/bltec0b1506553102fe)
+- **تشكيلة النصر اليوم ضد النجمة مع الغيابات.. كريستيانو رونالدو يعزز تشكيلة جيسوس - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/268596338170906-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D8%A7%D9%84%D9%86%D8%AC%D9%85%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%B9%D9%86%D9%88%D8%A7%D9%86-%D8%AC%D8%A7%D9%86%D8%A8%D9%8A-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88/)
+
+
+### ثمن السجائر بالمغرب (N/A, Fri, 3 Apr 2026 08:10:00 -0700)
+
+- **زيادة جديدة في أسعار السجائر بالمغرب**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D8%AC%D8%A7%D8%A6%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1724759.html)
+- **تصل إلى درهمين.. زيادات جديدة في أسعار السجائر الأكثر استهلاكا بالمغرب**: [Link](https://al3omk.com/1149486.html)
+- **الگارو شعل فالثمن… واش الكيافة غا يتكيفو مع الأسعار الجديدة..؟**: [Link](https://www.goud.ma/%D8%A7%D9%84%DA%AF%D8%A7%D8%B1%D9%88-%D8%B4%D8%B9%D9%84-%D9%81%D8%A7%D9%84%D8%AB%D9%85%D9%86-%D9%88%D8%A7%D8%B4-%D8%A7%D9%84%D9%83%D9%8A%D8%A7%D9%81%D8%A9-%D8%BA%D8%A7-%D9%8A%D8%AA%D9%83%D9%8A-1012587/)
+
+
 ### al ittihad – al hazm (N/A, Fri, 3 Apr 2026 08:40:00 -0700)
 
 - **Amidst the crowd’s chants… a refereeing expert settles the debate over the validity of Diaby’s sending-off**: [Link](https://www.goal.com/en-ca/news/amidst-the-crowd-s-chants-a-refereeing-expert-settles-the-debate-over-the-validity-of-diaby-s-sending-off/blt12073a72f5a5c820)
