@@ -1,3 +1,10 @@
+### al ittihad – al hazm (N/A, Fri, 3 Apr 2026 08:40:00 -0700)
+
+- **Amidst the crowd’s chants… a refereeing expert settles the debate over the validity of Diaby’s sending-off**: [Link](https://www.goal.com/en-ca/news/amidst-the-crowd-s-chants-a-refereeing-expert-settles-the-debate-over-the-validity-of-diaby-s-sending-off/blt12073a72f5a5c820)
+- **Conceição's Decision Determines Mitei and Fabinho's Participation Against Al-Hazm**: [Link](https://www.ysscores.com/en/news/13938744/Concei%C3%A7%C3%A3o's-Decision-Determines-Mitei-and-Fabinho's-Participation-Against-Al-Hazm)
+- **Preview: Al Ittihad vs Al Hazem - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-ittihad/preview/al-ittihad-vs-al-hazem-prediction-team-news-lineups_594846.html)
+
+
 ### الاتحاد ضد الحزم (N/A, Fri, 3 Apr 2026 09:50:00 -0700)
 
 - **النصيري يواصل الغياب عن الاتحاد!**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/)
