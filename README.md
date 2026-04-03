@@ -1,3 +1,10 @@
+### gitex africa (N/A, Fri, 3 Apr 2026 02:30:00 -0700)
+
+- **Morocco Aims to Make AI a $10 Billion Pillar by 2030**: [Link](https://www.moroccoworldnews.com/2026/04/285568/morocco-aims-to-make-ai-a-10-billion-pillar-by-2030/)
+- **Marrakech hosts GITEX Africa as 400 investors and 1,450 exhibitors converge**: [Link](https://en.hespress.com/134827-marrakech-hosts-gitex-africa-as-400-investors-and-1450-exhibitors-converge.html)
+- **Vertiv highlights advanced AI infrastructure solutions**: [Link](https://it-online.co.za/2026/03/27/vertiv-highlights-advanced-ai-infrastructure-solutions/)
+
+
 ### can 2025 maroc sénégal caf (N/A, Thu, 2 Apr 2026 19:30:00 -0700)
 
 - **CAN 2025 : l’agence Image 7 rompt son contrat avec la Fédération sénégalaise de football**: [Link](https://ledesk.ma/enoff/can-2025-lagence-image-7-rompt-son-contrat-avec-la-federation-senegalaise-de-football/)
