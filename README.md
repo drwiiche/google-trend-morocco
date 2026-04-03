@@ -1,3 +1,22 @@
+### akhbarona (N/A, Thu, 2 Apr 2026 23:00:00 -0700)
+
+
+
+
+### nba (N/A, Thu, 2 Apr 2026 21:30:00 -0700)
+
+- **‘The Sonics Never Died’: The Long Afterlife of Seattle NBA Merch**: [Link](https://frontofficesports.com/sonics-nba-merch-expansion/)
+- **NBA Expansion Approved for Seattle and Las Vegas**: [Link](https://nationaltoday.com/us/wa/seattle/news/2026/04/03/nba-expansion-approved-for-seattle-and-las-vegas/)
+- **Seattle council panel backs resolution for NBA return bid at Climate Pledge Arena**: [Link](https://komonews.com/news/local/seattle-city-council-panel-backs-resolution-for-nba-return-seattle-sonics-basketball-team-bid-at-climate-pledge-arena)
+
+
+### visa schengen (N/A, Thu, 2 Apr 2026 19:40:00 -0700)
+
+- **Visa Schengen unifié et digitalisé: ce qu’en dit Nasser Bourita**: [Link](https://fr.le360.ma/politique/visa-schengen-unifie-et-digitalise-ce-quen-dit-nasser-bourita_26N4TGWOCREUDL2MSHLSPI4LL4/)
+- **Le Maroc exhorte les missions étrangères à faire barrage aux « courtiers » dans l'octroi des visas**: [Link](https://fr.hespress.com/468039-le-maroc-exhorte-les-missions-etrangeres-a-faire-barrage-aux-courtiers-dans-loctroi-des-visas.html)
+- **Visa Schengen digitalisé: les annonces de Nasser Bourita**: [Link](https://www.lebrief.ma/visa-schengen-digitalise-ce-qua-annonce-nasser-bourita-100146749/)
+
+
 ### malik bentalha (N/A, Thu, 2 Apr 2026 16:10:00 -0700)
 
 - **Malik Bentalha, humoriste : “Je suis pleinement marocain, pleinement algérien. Je veux créer des ponts”**: [Link](https://mobile.telquel.ma/2026/03/31/malik-bentalha-je-suis-pleinement-marocain-pleinement-algerien-je-veux-creer-des-ponts_1981697)
