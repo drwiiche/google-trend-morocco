@@ -1,3 +1,17 @@
+### fus rabat vs wydad ac (N/A, Fri, 3 Apr 2026 12:10:00 -0700)
+
+- **Carteron: Late Return of Internationals Complicates Fath Preparation, Pressure at Wydad is Natural Part of the Job**: [Link](https://m.elbotola.com/en/article/2026-04-02-18-56-140.html)
+- **Winners Boycott FUS Match, Slam Ticket Prices and Crowd Limits**: [Link](https://www.moroccoworldnews.com/2026/04/285677/winners-boycott-fus-match-slam-ticket-prices-and-crowd-limits/)
+- **Botola: Date, time, channels and head-to-head history of the FUS Rabat – Wydad clash**: [Link](https://foot-africa.com/en/news/botola-date-time-channels-and-head-to-head-history-of-the-fus-rabat-wydad-clash-1150034/)
+
+
+### al nassr (N/A, Fri, 3 Apr 2026 12:10:00 -0700)
+
+- **Just like Real Madrid and Manchester United... Ronaldo makes history with Al-Nassr**: [Link](https://www.goal.com/en-om/news/just-like-real-madrid-and-manchester-united-ronaldo-makes-history-with-al-nassr/bltb23f979170ab6bba)
+- **Cristiano Ronaldo returns for Al Nassr after injury absence**: [Link](https://www.espn.com/soccer/story/_/id/48387012/cristiano-ronaldo-return-al-nassr-injury-t-al-najma)
+- **Jesus makes decision on Ronaldo for Al-Najma clash**: [Link](https://onefootball.com/en/news/jesus-makes-decision-on-ronaldo-for-al-najma-clash-42653994)
+
+
 ### الفتح الرباطي ضد الوداد الرياضي (N/A, Fri, 3 Apr 2026 12:00:00 -0700)
 
 - **كارتيرون: اشتغلنا ذهنيًا بعد الإقصاء**: [Link](https://www.radiomars.ma/%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D8%A7%D8%B4%D8%AA%D8%BA%D9%84%D9%86%D8%A7-%D8%B0%D9%87%D9%86%D9%8A%D9%8B%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D9%88/)
