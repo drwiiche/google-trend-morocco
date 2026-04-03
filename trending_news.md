@@ -1,3 +1,45 @@
+### الفتح الرباطي ضد الوداد الرياضي (N/A, Fri, 3 Apr 2026 12:00:00 -0700)
+
+- **كارتيرون: اشتغلنا ذهنيًا بعد الإقصاء**: [Link](https://www.radiomars.ma/%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D8%A7%D8%B4%D8%AA%D8%BA%D9%84%D9%86%D8%A7-%D8%B0%D9%87%D9%86%D9%8A%D9%8B%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D9%88/)
+- **الوداد يواصل دفع ثمن إخفاقات الطاقم السابق في الإعداد البدني**: [Link](https://m.elbotola.com/article/2026-04-03-14-15-226.html)
+- **الوينرز تقاطع مباراة الفتح وتشتكي من القيود المفروضة على الجماهير**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D8%AA%D9%82%D8%A7%D8%B7%D8%B9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%88%D8%AA%D8%B4%D8%AA%D9%83%D9%8A-%D9%85%D9%86-%D8%A7-433414.html)
+
+
+### resultat quinte (N/A, Fri, 3 Apr 2026 11:50:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour jeudi 2 avril - Prix Alain Grimaux**: [Link](https://www.lalsace.fr/actualite/2026/04/01/nos-pronostics-pour-jeudi-2-avril-prix-alain-grimaux)
+- **Les Notes des partants du Quinté+ de ce jeudi 2 avril**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-jeudi-2-avril)
+- **Résultats PMU : Arrivée du Tiercé du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-tierce-du-jour-129434.html)
+
+
+### vincennes (N/A, Fri, 3 Apr 2026 11:30:00 -0700)
+
+- **Les pronostics des experts pour la réunion 1 à PARIS-VINCENNES ce vendredi 3 avril**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-paris-vincennes-ce-vendredi-3-avril)
+- **Pronostics hippiques de Tony Gonzalez du samedi 28 mars**: [Link](https://stampa-paese.com/actus/article/pronostics-hippiques-de-tony-gonzalez-du-samedi-28-mars)
+- **Les pronostics du Quinté d'Auteuil du 28 mars 2026 par Jack Vautrin**: [Link](https://la1ere.franceinfo.fr/les-pronostics-du-quinte-d-auteuil-du-28-mars-2026-par-jack-vautrin-1685753.html)
+
+
+### um6p (N/A, Fri, 3 Apr 2026 11:30:00 -0700)
+
+- **L’UM6P et BCG étendent leur partenariat autour de la formation et de l’innovation en Afrique**: [Link](https://ledesk.ma/encontinu/lum6p-et-bcg-etendent-leur-partenariat-autour-de-la-formation-et-de-linnovation-en-afrique/)
+- **UM6P et BCG soutiennent l’innovation et les transformations économiques en Afrique**: [Link](https://lematin.ma/enseignement/um6pbcg-un-partenariat-renforce-pour-lafrique/337998)
+- **UM6P et BCG renforcent leur partenariat**: [Link](https://www.challenge.ma/um6p-et-bcg-renforcent-leur-partenariat-318431/)
+
+
+### rayo – elche (N/A, Fri, 3 Apr 2026 11:20:00 -0700)
+
+- **Alemao, titular en el ataque del Rayo, y Rafa Mir y Álvaro Rodríguez en el Elche**: [Link](https://www.infobae.com/espana/agencias/2026/04/03/alemao-titular-en-el-ataque-del-rayo-y-rafa-mir-y-alvaro-rodriguez-en-el-elche/)
+- **Todas las noticias más actuales del mundo del fútbol en directo**: [Link](https://www.flashscore.es/noticias/futbol-en-directo-laliga-ea-sports-ultima-hora-jornada-30/63KRYbj5/)
+- **El Elche juega en Vallecas otro duelo directo por la permanencia**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/elche/noticias/elche-juega-vallecas-otro-duelo-directo-permanencia_2026040369cf5cd16b2f8835925faa56.html)
+
+
+### al-nassr vs al-najma (N/A, Fri, 3 Apr 2026 11:20:00 -0700)
+
+- **Is Cristiano Ronaldo playing? Projected lineups Al-Nassr vs Al-Najma in the Saudi Pro League**: [Link](https://worldsoccertalk.com/news/is-cristiano-ronaldo-playing-projected-lineups-al-nassr-vs-al-najma-in-the-saudi-pro-league/)
+- **Video: The referee who angered Ronaldo twice takes charge of the Al-Nassr vs Al-Najma match**: [Link](https://www.goal.com/en-sa/news/video-the-referee-who-angered-ronaldo-twice-takes-charge-of-the-al-nassr-vs-al-najma-match/blt8f6dd40737f6a03c)
+- **Al Nassr vs Al Najma: Saudi League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg0pe0jx38t)
+
+
 ### بي اس جي ضد تولوز (N/A, Fri, 3 Apr 2026 11:10:00 -0700)
 
 - **بطولة فرنسا: باريس سان جرمان لتأمين صدارته قبل قمته مع ليفربول**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260402-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%84%D8%AA%D8%A3%D9%85%D9%8A%D9%86-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D9%82%D8%A8%D9%84-%D9%82%D9%85%D8%AA%D9%87-%D9%85%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
