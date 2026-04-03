@@ -1,3 +1,10 @@
+### can 2025 maroc sénégal caf (N/A, Thu, 2 Apr 2026 19:30:00 -0700)
+
+- **CAN 2025 : l’agence Image 7 rompt son contrat avec la Fédération sénégalaise de football**: [Link](https://ledesk.ma/enoff/can-2025-lagence-image-7-rompt-son-contrat-avec-la-federation-senegalaise-de-football/)
+- **Sénégal-Maroc : le président de la FRMF Faouzi Lekjaa sort enfin du silence !**: [Link](https://www.footmercato.net/a5414436339834530736-senegal-maroc-le-president-de-la-frmf-faouzi-lekjaa-sort-enfin-du-silence)
+- **Le Boualem, la manipulation sénégalaise, et les Marocains privés de coupe**: [Link](https://mobile.telquel.ma/2026/04/02/le-boualem-la-manipulation-senegalaise-et-les-marocains-prives-de-coupe_1982094)
+
+
 ### akhbarona (N/A, Thu, 2 Apr 2026 23:00:00 -0700)
 
 
