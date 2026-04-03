@@ -1,3 +1,10 @@
+### مسلسل انت من احببت الحلقة 8 (N/A, Thu, 2 Apr 2026 16:20:00 -0700)
+
+- **مسلسل انت من احببت الحلقة 8.. مواعيد العرض والقنوات الناقلة**: [Link](https://www.ngmisr.com/home/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%86%D8%AA-%D9%85%D9%86-%D8%A7%D8%AD%D8%A8%D8%A8%D8%AA-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-8-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1)
+- **أنت من أحببت الحلقة 7 إركان يرفض الطلاق**: [Link](https://coulissemag.com/%D8%A3%D9%86%D8%AA-%D9%85%D9%86-%D8%A3%D8%AD%D8%A8%D8%A8%D8%AA-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-7-%D8%A5%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%B7%D9%84%D8%A7%D9%82/)
+- **مسلسل أنت من أحببت الحلقة 7 .. مفاجآت جديدة**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A3%D9%86%D8%AA-%D9%85%D9%86-%D8%A3%D8%AD%D8%A8%D8%A8%D8%AA-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9%C2%A07-%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+
+
 ### mission artemis (N/A, Thu, 2 Apr 2026 15:10:00 -0700)
 
 - **Artemis II Flight Update: Perigee Raise Burn Complete**: [Link](https://www.nasa.gov/blogs/missions/2026/04/02/artemis-ii-flight-update-perigee-raise-burn-complete/)
