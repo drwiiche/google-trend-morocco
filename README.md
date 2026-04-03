@@ -1,3 +1,17 @@
+### wac vs fus (N/A, Fri, 3 Apr 2026 11:50:00 -0700)
+
+- **Wydad Targets Top Spot Against FUS in Carteron's First Test**: [Link](https://m.elbotola.com/en/article/2026-04-03-10-26-118.html)
+- **Winners Boycott FUS Match, Slam Ticket Prices and Crowd Limits**: [Link](https://www.moroccoworldnews.com/2026/04/285677/winners-boycott-fus-match-slam-ticket-prices-and-crowd-limits/)
+- **Carteron: Delay of International Players Disrupts Wydad's Preparations Before Facing Fath**: [Link](https://www.ysscores.com/en/news/13938431/Carteron:-Delay-of-International-Players-Disrupts-Wydad's-Preparations-Before-Facing-Fath)
+
+
+### fus rabat – wydad ac (N/A, Fri, 3 Apr 2026 11:40:00 -0700)
+
+- **Wydad Targets Top Spot Against FUS in Carteron's First Test**: [Link](https://m.elbotola.com/en/article/2026-04-03-10-26-118.html)
+- **Winners Boycott FUS Match, Slam Ticket Prices and Crowd Limits**: [Link](https://www.moroccoworldnews.com/2026/04/285677/winners-boycott-fus-match-slam-ticket-prices-and-crowd-limits/)
+- **Carteron: Delay of International Players Disrupts Wydad's Preparations Before Facing Fath**: [Link](https://www.ysscores.com/en/news/13938431/Carteron:-Delay-of-International-Players-Disrupts-Wydad's-Preparations-Before-Facing-Fath)
+
+
 ### championnat d'arabie saoudite (N/A, Fri, 3 Apr 2026 13:30:00 -0700)
 
 - **Sous la houlette de Ronaldo, Al-Nassr risque de perdre quatre de ses atouts face à Al-Najma**: [Link](https://www.goal.com/fr/listes/sous-la-houlette-de-ronaldo-al-nassr-risque-de-perdre-quatre-de-ses-atouts-face-a-al-najma/bltcea92bdc8b15e800)
