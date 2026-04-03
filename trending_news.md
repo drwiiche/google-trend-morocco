@@ -1,3 +1,10 @@
+### malik bentalha (N/A, Thu, 2 Apr 2026 16:10:00 -0700)
+
+- **Malik Bentalha, humoriste : “Je suis pleinement marocain, pleinement algérien. Je veux créer des ponts”**: [Link](https://mobile.telquel.ma/2026/03/31/malik-bentalha-je-suis-pleinement-marocain-pleinement-algerien-je-veux-creer-des-ponts_1981697)
+- **« Le Marrakech du rire » : après M6, le programme d’humour change de nom et débarque sur Disney+ avec Malik Bentalha**: [Link](https://www.msn.com/fr-fr/divertissement/actualite/le-marrakech-du-rire-apr%C3%A8s-m6-le-programme-d-humour-change-de-nom-et-d%C3%A9barque-sur-disney-avec-malik-bentalha/ar-AA1ZsH3O)
+- **Marrakech Comedy Festival : nouveau rendez-vous du rire attendu en juin 2026**: [Link](https://lematin.ma/culture/marrakech-comedy-festival-en-juin-2026/336431)
+
+
 ### أبو عبيدة (N/A, Thu, 2 Apr 2026 17:20:00 -0700)
 
 - **غضب إسرائيلي من احتجاجات سورية على قانون إعدام الأسرى**: [Link](https://www.aljazeera.net/news/2026/4/2/%D8%BA%D8%B6%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%85%D9%86-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%B3%D9%88%D8%B1%D9%8A%D8%A9-%D8%B9%D9%84%D9%89)
