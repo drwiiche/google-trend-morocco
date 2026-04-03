@@ -1,3 +1,10 @@
+### gennaro gattuso (N/A, Fri, 3 Apr 2026 04:20:00 -0700)
+
+- **Italia, Gattuso lascia la Nazionale. Risoluzione consensuale con la Figc, i dettagli**: [Link](https://www.gazzetta.it/Calcio/Nazionale/03-04-2026/italia-gattuso-via-comunicato-figc-dettagli.shtml)
+- **Il sistema calcio in Italia all'anno zero, il 22 le nuove elezioni per il presidente federale, il nuovo Ct potrebbe essere Allegri, Conte o un nome a sorpresa. Ipotesi Baldini allenatore della U21 Tutti gli aggiornamenti su RaiNews.it**: [Link](https://www.facebook.com/RaiNews/videos/il-sistema-calcio-in-italia-allanno-zero-il-22-le-nuove-elezioni-per-il-presiden/1959464154957188/)
+- **Conte tra il Napoli e la Nazionale: le ultime news**: [Link](https://sport.sky.it/calcio/nazionale/video/2026/04/03/conte-italia-news-ct-nazionale-1087434)
+
+
 ### qpr – watford (N/A, Fri, 3 Apr 2026 07:00:00 -0700)
 
 - **Opposition View: QPR**: [Link](https://www.watfordfc.com/news/2026/april/01/opposition-view-qpr/)
