@@ -1,3 +1,10 @@
+### one piece manga (N/A, Fri, 3 Apr 2026 08:10:00 -0700)
+
+- **One Piece Chapter 1179 Spoilers and Preview: Imu’s True Form, Zoro’s Plan and More**: [Link](https://fandomwire.com/one-piece-chapter-1179-spoilers-and-preview/)
+- **One Piece Reveals Imu’s Face for the First Time and Fans Are Losing It**: [Link](https://beebom.com/one-piece-imu-face-reveal/)
+- **One Piece is adding a new Devil Fruit user to the Elbaph arc**: [Link](https://www.msn.com/en-us/news/technology/one-piece-is-adding-a-new-devil-fruit-user-to-the-elbaph-arc/ar-AA200uq3)
+
+
 ### xxl (N/A, Fri, 3 Apr 2026 08:20:00 -0700)
 
 - **Nine Men - Including Well Known Musical Artists - Federally Charged for Kidnapping at Music Studio in Dallas**: [Link](https://www.justice.gov/usao-ndtx/pr/nine-men-including-well-known-musical-artists-federally-charged-kidnapping-music)
