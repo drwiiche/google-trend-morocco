@@ -1,3 +1,17 @@
+### xxl (N/A, Fri, 3 Apr 2026 08:20:00 -0700)
+
+- **Nine Men - Including Well Known Musical Artists - Federally Charged for Kidnapping at Music Studio in Dallas**: [Link](https://www.justice.gov/usao-ndtx/pr/nine-men-including-well-known-musical-artists-federally-charged-kidnapping-music)
+- **Gucci Mane allegedly robbed, kidnapped at studio**: [Link](https://www.usatoday.com/videos/entertainment/music/2026/04/03/gucci-mane-robbed-kidnapped/89447318007/)
+- **Gucci Mane Held at Gunpoint, Prompting 2 Rappers’ Arrests**: [Link](https://www.nytimes.com/2026/04/02/us/gucci-mane-kidnapping-pooh-shiesty-big30.html)
+
+
+### donald trump (N/A, Fri, 3 Apr 2026 05:40:00 -0700)
+
+- **Iran live updates: US jet appears to have been shot down by Iran, US official says**: [Link](https://abcnews.com/International/live-updates/iran-live-updates-trump-touts-big-day-iran/?id=131532311)
+- **Defeat has never sounded as victorious as in Trump’s address**: [Link](https://www.seattletimes.com/opinion/defeat-has-never-sounded-as-victorious-as-in-trumps-address/)
+- **‘Back to the Stone Ages’**: [Link](https://www.washingtonpost.com/opinions/2026/04/02/trump-iran-case-for-war/)
+
+
 ### gennaro gattuso (N/A, Fri, 3 Apr 2026 04:20:00 -0700)
 
 - **Italia, Gattuso lascia la Nazionale. Risoluzione consensuale con la Figc, i dettagli**: [Link](https://www.gazzetta.it/Calcio/Nazionale/03-04-2026/italia-gattuso-via-comunicato-figc-dettagli.shtml)
