@@ -1,3 +1,17 @@
+### championnat d'arabie saoudite (N/A, Fri, 3 Apr 2026 13:30:00 -0700)
+
+- **Sous la houlette de Ronaldo, Al-Nassr risque de perdre quatre de ses atouts face à Al-Najma**: [Link](https://www.goal.com/fr/listes/sous-la-houlette-de-ronaldo-al-nassr-risque-de-perdre-quatre-de-ses-atouts-face-a-al-najma/bltcea92bdc8b15e800)
+- **Retour de Martinez et Coman contre Al-Akhdoud**: [Link](https://www.ysscores.com/fr/news/13938712/Retour-de-Martinez-et-Coman-contre-Al-Akhdoud)
+- **Pronostic Al Nasr FC vs Al Najma 03 Avril 2026**: [Link](https://dailysports.net/fr/predictions/an-nasr-vs-al-najma-pronostic-h2h-et-compositions-probables-3-avril-2026/)
+
+
+### sporting – santa clara (N/A, Fri, 3 Apr 2026 13:20:00 -0700)
+
+- **Assistir a Ao Vivo | Sporting x Santa Clara (Xsports) | Disney+**: [Link](https://www.disneyplus.com/pt-br/browse/entity-833c1e45-2b93-4701-bab6-9a6cdc71115d)
+- **VÍDEO: não há Luis Suárez, mas Pedro Gonçalves marca de penálti**: [Link](https://www.abola.pt/noticias/video-nao-ha-luis-suarez-mas-pedro-goncalves-marca-de-penalti-2026040319584056248)
+- **Klismahn gela Alvalade na estreia a marcar na I Liga**: [Link](https://www.ojogo.pt/futebol/artigo/klismahn-gela-alvalade-na-estreia-a-marcar-na-i-liga/18069395)
+
+
 ### fus rabat vs wydad ac (N/A, Fri, 3 Apr 2026 12:10:00 -0700)
 
 - **Carteron: Late Return of Internationals Complicates Fath Preparation, Pressure at Wydad is Natural Part of the Job**: [Link](https://m.elbotola.com/en/article/2026-04-02-18-56-140.html)
