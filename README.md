@@ -1,3 +1,10 @@
+### الاتحاد ضد الحزم (N/A, Fri, 3 Apr 2026 09:50:00 -0700)
+
+- **النصيري يواصل الغياب عن الاتحاد!**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/)
+- **من المطار إلى الملعب.. اتحاد جدة يستعيد نجميه أمام الحزم في الوقت الضائع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8--%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AC%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%AC%D9%85%D9%8A%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AD%D8%B2%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D8%B6%D8%A7%D9%8A%D9%94%D8%B9/blt034a4f4353162eaf)
+- **النصيري يتدرب منفردا مع الاتحاد...لهذا السبب**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%8A%D8%AA%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D9%81%D8%B1%D8%AF%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF%D9%84%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8/17985)
+
+
 ### one piece manga (N/A, Fri, 3 Apr 2026 08:10:00 -0700)
 
 - **One Piece Chapter 1179 Spoilers and Preview: Imu’s True Form, Zoro’s Plan and More**: [Link](https://fandomwire.com/one-piece-chapter-1179-spoilers-and-preview/)
