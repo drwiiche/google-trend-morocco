@@ -1,3 +1,29 @@
+### qpr – watford (N/A, Fri, 3 Apr 2026 07:00:00 -0700)
+
+- **Opposition View: QPR**: [Link](https://www.watfordfc.com/news/2026/april/01/opposition-view-qpr/)
+- **The highs – and low lows – of supporting QPR**: [Link](https://www.spectator.com.au/2026/04/the-highs-and-low-lows-of-supporting-qpr/)
+- **Team news: Watford down to 'bare bones' with Bola among doubts for QPR**: [Link](https://www.watfordobserver.co.uk/sport/25989505.watford-bare-bones-bola-among-doubts-qpr/)
+
+
+### tiger woods (N/A, Fri, 3 Apr 2026 07:00:00 -0700)
+
+- **Tiger Woods Called President Donald Trump From Scene After Flipping Car**: [Link](https://www.tmz.com/2026/04/02/tiger-woods-called-president-donald-trump-after-flipping-car-before-dui/)
+- **Bodycam footage shows Tiger Woods’s shock after crash: ‘I’m being arrested?’**: [Link](https://www.theguardian.com/sport/2026/apr/02/tiger-woods-bodycam-footage-dui-arrest-golf)
+- **Police report from Tiger Woods’ car crash shows why he was arrested on suspicion of DUI**: [Link](https://apnews.com/article/tiger-woods-crash-dui-arrest-masters-9c5ec2a699599289d263d553e309928e)
+
+
+### pete hegseth (N/A, Fri, 3 Apr 2026 06:50:00 -0700)
+
+- **Hegseth removes Army's top general during Iran war**: [Link](https://www.axios.com/2026/04/02/iran-war-hegseth-remove-gen-george-army-chief-staff)
+- **Hegseth forces out Army’s top general, two other senior officers**: [Link](https://www.washingtonpost.com/national-security/2026/04/02/hegseth-ousts-army-general-randy-george/)
+- **Hegseth asks US Army Chief of Staff Gen Randy George to step down**: [Link](https://www.bbc.com/news/articles/cn8d63v058zo)
+
+
+### amendes justice (N/A, Fri, 3 Apr 2026 03:40:00 -0700)
+
+
+
+
 ### free internet maroc (N/A, Thu, 2 Apr 2026 19:20:00 -0700)
 
 - **Face au forfait internet illimité de Free, “les opérateurs marocains qui n'adaptent pas leurs offres seront disruptés”**: [Link](https://mobile.telquel.ma/2026/04/02/free-et-son-internet-illimite-les-operateurs-marocains-qui-nadaptent-pas-leurs-offres-seront-disruptes_1981951)
