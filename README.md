@@ -1,3 +1,10 @@
+### free internet maroc (N/A, Thu, 2 Apr 2026 19:20:00 -0700)
+
+- **Face au forfait internet illimité de Free, “les opérateurs marocains qui n'adaptent pas leurs offres seront disruptés”**: [Link](https://mobile.telquel.ma/2026/04/02/free-et-son-internet-illimite-les-operateurs-marocains-qui-nadaptent-pas-leurs-offres-seront-disruptes_1981951)
+- **Free Max et data illimitée : ce que l’offensive de Xavier Niel change pour le Maroc**: [Link](https://ledesk.ma/grandangle/free-max-et-data-illimitee-ce-que-loffensive-de-xavier-niel-change-pour-le-maroc/)
+- **Free Max - Le forfait mobile de la démesure - Actualité**: [Link](https://www.quechoisir.org/actualite-free-max-le-forfait-mobile-de-la-demesure-n175350/)
+
+
 ### gitex africa (N/A, Fri, 3 Apr 2026 02:30:00 -0700)
 
 - **Morocco Aims to Make AI a $10 Billion Pillar by 2030**: [Link](https://www.moroccoworldnews.com/2026/04/285568/morocco-aims-to-make-ai-a-10-billion-pillar-by-2030/)
