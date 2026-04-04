@@ -1,3 +1,10 @@
+### trabzonspor – galatasaray (N/A, Sat, 4 Apr 2026 10:10:00 -0700)
+
+- **Trabzonspor 882 günlük hasreti bitirmek istiyor**: [Link](https://www.yenicaggazetesi.com/trabzonspor-882-gunluk-hasreti-bitirmek-istiyor-1015782h.htm)
+- **Okan Buruk: "Bizim için kritik bir maç"**: [Link](https://www.sabah.com.tr/spor/futbol/2026/04/04/okan-buruk-bizim-icin-kritik-bir-mac)
+- **Fatih Tekke: Uzun yılların en önemli maçlarından biri!**: [Link](https://www.aspor.com.tr/trabzonspor/2026/04/04/fatih-tekke-uzun-yillarin-en-onemli-maclarindan-biri)
+
+
 ### barca (N/A, Sat, 4 Apr 2026 10:00:00 -0700)
 
 - **Posti barca sempre più cari: così la nautica rischia di fermarsi**: [Link](https://www.solovela.net/notizie/3/posti-barca-sempre-piu-cari-nautica-puo-crescere-cosi/1354625/)
