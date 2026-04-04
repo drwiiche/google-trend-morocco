@@ -1,3 +1,24 @@
+### مايوركا ضد الريال (N/A, Sat, 4 Apr 2026 06:30:00 -0700)
+
+- **للمرة الأولى عقب الإصابة.. مبابي يقود هجوم الريال أمام مايوركا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89-%D8%B9%D9%82%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7/blted7e494191fbcc27)
+- **مباشر مباراة ريال مدريد ضد مايوركا في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%81%D9%8A)
+- **تصريحات قوية بعد هتافات معادية للإسلام في مباراة إسبانيا ومصر**: [Link](https://arabi21.com/story/1749361/%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA-%D9%85%D8%B9%D8%A7%D8%AF%D9%8A%D8%A9-%D9%84%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D9%85%D8%B5%D8%B1)
+
+
+### mallorca vs real madrid (N/A, Sat, 4 Apr 2026 06:30:00 -0700)
+
+- **Alineación posible del Real Madrid contra el Mallorca en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-el-mallorca-en-laliga-ea-sports-f202604-n/)
+- **El puzle de Arbeloa en la medular vs. Mallorca**: [Link](https://onefootball.com/de/news/el-puzle-de-arbeloa-en-la-medular-vs-mallorca-42658687)
+- **Partido trampa en Son Moix antes del Bayern**: [Link](https://www.sport.es/es/noticias/real-madrid/partido-trampa-son-moix-bayern-128703647)
+
+
+### فرايبورغ ضد البايرن (N/A, Sat, 4 Apr 2026 06:30:00 -0700)
+
+- **كومباني يقترب من رقمَين تاريخيَين مع بايرن في البوندسليغا**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%82%D9%85%D9%8E%D9%8A%D9%86-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D9%8E%D9%8A%D9%86-%D9%85%D8%B9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%BA%D8%A7)
+- **مواجهات حاسمة لبايرن ميونيخ في أبريل**: [Link](https://akhbarelyom.com/news/newdetails/4799170/1/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D9%81%D9%8A-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84)
+- **تشكيل مباراة فرايبورج ضد بايرن ميونخ فى الدوري الألماني**: [Link](https://www.youm7.com/story/2026/4/4/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D8%A7%D9%8A%D8%A8%D9%88%D8%B1%D8%AC-%D8%B6%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/7365684)
+
+
 ### majorque – real madrid (N/A, Sat, 4 Apr 2026 06:30:00 -0700)
 
 - **Le groupe du Real Madrid pour défier Majorque avec un grand retour**: [Link](https://www.footmercato.net/a6303304585232680478-le-groupe-du-real-madrid-pour-defier-majorque)
