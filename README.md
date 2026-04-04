@@ -1,3 +1,38 @@
+### ساوثهامبتون ضد آرسنال (N/A, Sat, 4 Apr 2026 11:50:00 -0700)
+
+- **أرتيتا يرفض ذبح نجم آرسنال: الخطأ جزء من كرة القدم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B1%D9%81%D8%B6-%D8%B0%D8%A8%D8%AD-%D9%86%D8%AC%D9%85-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D9%94-%D8%AC%D8%B2%D8%A1-%D9%85%D9%86-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/blt25a8a022b8e35ca1)
+- **آرسنال يواجه ساوثهامبتون في ربع نهائي كأس الاتحاد الإنجليزي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B3%D8%A7%D9%88%D8%AB%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-04-04)
+- **كيفية مشاهدة مباراة أرسنال وساوثهامبتون في كأس الاتحاد الإنجليزي**: [Link](https://www.alkhaleej.ae/2026-04-04/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%B3%D8%A7%D9%88%D8%AB%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-6388926/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A)
+
+
+### lille – lens (N/A, Sat, 4 Apr 2026 11:40:00 -0700)
+
+- **Six mois, 0 match, chaos total : Thauvin et Lille, histoire du transfert fantôme**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/lille-lens-six-mois-0-match-chaos-total-florian-thauvin-et-lille-histoire-du-transfert-fantome_sto23287188/story.shtml)
+- **La compo de Lille contre Lens : La surprise Giroud**: [Link](https://www.football365.fr/la-compo-de-lille-contre-lens-la-surprise-giroud-10288079.html)
+- **Football. Ligue 1 : entre revanche et course au podium ou au titre, le derby du Nord s'annonce électrique**: [Link](https://www.bienpublic.com/sport/2026/04/04/ligue-1-entre-revanche-et-course-au-podium-ou-au-titre-le-derby-du-nord-s-annonce-electrique)
+
+
+### fcb (N/A, Sat, 4 Apr 2026 11:40:00 -0700)
+
+- **Preview: Atletico Madrid vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/race-for-the-la-liga-title/preview/atletico-vs-barcelona-prediction-team-news-lineups_594919.html)
+- **Mateo Busquets Ferrer Appointed to Officiate Atlético Madrid vs. Barcelona La Liga Clash**: [Link](https://m.elbotola.com/en/article/2026-04-03-10-45-975.html)
+- **‘Because they are extraordinary‘ — Diego Simeone responds when asked about Barcelona’s biggest threat ahead of Atletico clash**: [Link](https://semprebarca.com/because-they-are-extraordinary-diego-simeone-responds-when-asked-about-barcelonas-biggest-threat-ahead-of-atletico-clash/)
+
+
+### southampton – arsenal (N/A, Sat, 4 Apr 2026 11:20:00 -0700)
+
+- **Every word from Arteta's pre-Southampton presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-southampton-presser-0)
+- **Arsenal: Mikel Arteta defends 11 players withdrawing from international duty**: [Link](https://www.bbc.com/sport/football/articles/czjwkz3nwvxo)
+- **Injuries Complicate Arsenal’s Final Stretch**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles-video/injuries-complicate-arsenal-s-final-stretch-2026-04-03?videopage=true)
+
+
+### atlético madrid – barcelone (N/A, Sat, 4 Apr 2026 11:10:00 -0700)
+
+- **Atlético - Barcelona en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/atletico-barcelona/2026/04/04/01_0101_20260404_175_178-directo.html)
+- **El once del Barça ante el Atlético: sin nueve puro y sorpresa en el pivote**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260404/1004164826/once-barca-atletico-nueve-puro-sorpresa-pivote.html)
+- **Posible once del Atlético ante el Barcelona en Liga**: [Link](https://as.com/futbol/primera/posible-once-del-atletico-ante-el-barcelona-en-liga-f202604-n/)
+
+
 ### atlético madrid vs barcelona (N/A, Sat, 4 Apr 2026 11:10:00 -0700)
 
 - **Posible once del Atlético ante el Barcelona en Liga**: [Link](https://as.com/futbol/primera/posible-once-del-atletico-ante-el-barcelona-en-liga-f202604-n/)
