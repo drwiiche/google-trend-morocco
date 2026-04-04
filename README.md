@@ -1,3 +1,16 @@
+### université internationale de rabat (N/A, Sat, 4 Apr 2026 13:50:00 -0700)
+
+- **La CDG et l'UIR signent cinq conventions de partenariat autour de quatre chaires de recherche**: [Link](https://ledesk.ma/encontinu/la-cdg-et-luir-signent-cinq-conventions-de-partenariat-autour-de-quatre-chaires-de-recherche/)
+- **CDG-UIR : Lancement d’un dispositif inédit d’appui à la recherche et à l’innovation**: [Link](https://www.leconomiste.com/flash-infos/cdg-uir-lancement-dun-dispositif-inedit-dappui-a-la-recherche-et-a-linnovation/)
+- **CDG/UIR : mise en place d'un dispositif inédit au Maroc dédié à l'appui à la recherche et à l'innovation**: [Link](https://ecoactu.ma/cdg-uir-mise-en-place-dun-dispositif-inedit-au-maroc-dedie-a-lappui-a-la-recherche-et-a-linnovation/)
+
+
+### saham bank (N/A, Sat, 4 Apr 2026 12:10:00 -0700)
+
+- **Saham Bank: a sharp increase in profit in 2025 driven by subsidiaries**: [Link](https://www.financialafrik.com/en/2026/04/03/saham-bank-a-sharp-increase-in-profit-in-2025-driven-by-subsidiaries/)
+- **Saham Bank Posts Record Profits in First Full Year Without Société Générale**: [Link](https://www.moroccoworldnews.com/2026/04/285804/saham-bank-posts-record-profits-in-first-full-year-without-societe-generale/)
+
+
 ### arsenal (N/A, Sat, 4 Apr 2026 13:00:00 -0700)
 
 - **Highlights: Arsenal Women 3-1 Chelsea | Video | News**: [Link](https://www.arsenal.com/news/highlights-arsenal-women-3-1-chelsea)
