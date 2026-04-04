@@ -1,3 +1,10 @@
+### fa cup (N/A, Sat, 4 Apr 2026 00:40:00 -0700)
+
+- **Manchester City vs Liverpool predictions: International stars return**: [Link](https://www.goal.com/en-ca/betting/tips/manchester-city-vs-liverpool-predictions-04-04-2026/A%3Abltf25e0cd6e93aff1f)
+- **Follow Europe's biggest and best leagues all weekend LIVE!**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-live-updates-2026-04-0405/jVKQMAn4/)
+- **Curtis Jones could match Luis Suarez record in Liverpool’s clash with Man City**: [Link](https://onefootball.com/pt-br/noticias/curtis-jones-could-match-luis-suarez-record-in-liverpools-clash-with-man-city-42658174)
+
+
 ### pape gueye (N/A, Sat, 4 Apr 2026 01:00:00 -0700)
 
 - **Idrissa Gueye Opens Up on AFCON Final and Senegal-Morocco Bond**: [Link](https://www.moroccoworldnews.com/2026/04/285731/idrissa-gueye-opens-up-on-afcon-final-and-senegal-morocco-bond/)
