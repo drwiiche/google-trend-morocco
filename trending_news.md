@@ -1,3 +1,10 @@
+### betis – espanyol (N/A, Sat, 4 Apr 2026 08:50:00 -0700)
+
+- **El Real Betis inicia el sprint final hacia la Champions**: [Link](https://mundobetis.com/2026/04/04/el-real-betis-inicia-el-sprint-final-hacia-la-champions/)
+- **El Espanyol quiere acabar con su estación de penitencia en Sevilla**: [Link](https://onefootball.com/en/news/el-espanyol-quiere-acabar-con-su-estacion-de-penitencia-en-sevilla-42657897)
+- **Manolo tira de realismo y no de ‘abracadabra’ para tratar de frenar la crisis del Espanyol**: [Link](https://www.lavanguardia.com/deportes/futbol/20260404/11505526/manolo-tira-realismo-abracadabra-tratar-frenar-crisis-espanyol.html)
+
+
 ### mallorca (N/A, Sat, 4 Apr 2026 08:40:00 -0700)
 
 - **Wunderbares Frühlingswetter auf Mallorca - und mit jedem Tag wird es wärmer**: [Link](https://www.mallorcazeitung.es/panorama/2026/04/04/wunderbares-fruhlingswetter-auf-mallorca-und-128743701.html)
