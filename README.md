@@ -1,3 +1,10 @@
+### inter miami – austin (N/A, Sat, 4 Apr 2026 16:10:00 -0700)
+
+- **Inter Miami CF Unveils Leo Messi Stand at Nu Stadium**: [Link](https://www.intermiamicf.com/news/inter-miami-cf-unveils-leo-messi-stand-at-nu-stadium)
+- **Cruz Beckham cheers on dad David ahead of Inter Miami’s historic stadium debut**: [Link](https://jang.com.pk/en/63023-cruz-beckham-cheers-on-dad-david-ahead-of-inter-miamis-historic-stadium-debut-news)
+- **Marc Anthony will sing the National Anthem for Inter Miami CF's first game at Nu Stadium**: [Link](https://www.hola.com/us/celebrities/20260404893640/marc-anthony-will-sing-the-national-anthem-for-inter-miami/)
+
+
 ### fcb vs atm (N/A, Sat, 4 Apr 2026 13:30:00 -0700)
 
 - **Giuliano Simeone, trabajo y números para enterrar las sospechas**: [Link](https://elpais.com/deportes/futbol/2026-04-04/giuliano-simeone-trabajo-y-numeros-para-enterrar-las-sospechas.html)
