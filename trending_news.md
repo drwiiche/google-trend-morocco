@@ -1,3 +1,31 @@
+### real sociedad – levante (N/A, Sat, 4 Apr 2026 04:20:00 -0700)
+
+- **Información útil para mañana**: [Link](http://www.realsociedad.eus/es/noticias/detalle/informacion-util-para-manana-52)
+- **🚨 Susic, Espí...hay ONCES confirmados en el Real Sociedad-Levante**: [Link](https://onefootball.com/de/news/susic-espihay-onces-confirmados-en-el-real-sociedad-levante-42658839)
+- **Europa y el descenso pasan por Anoeta**: [Link](https://es-us.noticias.yahoo.com/deportes/europa-descenso-pasan-anoeta-124732440.html)
+
+
+### مان سيتي ضد ليفربول (N/A, Sat, 4 Apr 2026 04:10:00 -0700)
+
+- **مباشر.. مباراة مانشستر سيتي ضد ليفربول في كأس الاتحاد الإنجليزي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B6%D8%AF-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+- **جوارديولا: صلاح من العظماء.. ويستحق وداعًا كبيرًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D8%A7%D8%A1--%D9%88%D9%8A%D8%B3%D8%AA%D8%AD%D9%82-%D9%88%D8%AF%D8%A7%D8%B9%D9%8B%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1%D9%8B%D8%A7/bltd1578835c133ae53)
+- **قمة مانشستر سيتي وليفربول في الواجهة وأرسنال يطارد الثلاثية**: [Link](https://www.alquds.co.uk/%D9%82%D9%85%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%88/)
+
+
+### manchester city – liverpool (N/A, Sat, 4 Apr 2026 04:00:00 -0700)
+
+- **FA Cup quarter-final LIVE: Manchester City vs Liverpool - score, radio commentary, text updates & match stats**: [Link](https://www.bbc.com/sport/football/live/clydqev9y9et)
+- **Follow Europe's biggest and best leagues all weekend LIVE!**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-live-updates-2026-04-0405/jVKQMAn4/)
+- **Curtis Jones could match Luis Suarez record in Liverpool’s clash with Man City**: [Link](https://onefootball.com/pt-br/noticias/curtis-jones-could-match-luis-suarez-record-in-liverpools-clash-with-man-city-42658174)
+
+
+### خاميس رودريغيز (N/A, Sat, 4 Apr 2026 03:10:00 -0700)
+
+- **ليست إصابة ملاعب.. استنفار كولومبي بعد نقل خاميس رودريغيز إلى المستشفى**: [Link](https://www.aljazeera.net/sport/2026/4/3/%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%AE%D8%A7%D9%85%D9%8A%D8%B3-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89)
+- **نقل نجم ريال مدريد السابق إلى المستشفى**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%86%D9%82%D9%84-%D9%86%D8%AC%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89/blt6444c9d10f3696e9)
+- **إدخال قائد كولومبيا خاميس رودريغيس إلى المستشفى بسبب "جفاف حاد"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260403-%D8%A5%D8%AF%D8%AE%D8%A7%D9%84-%D9%82%D8%A7%D8%A6%D8%AF-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%AE%D8%A7%D9%85%D9%8A%D8%B3-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%BA%D9%8A%D8%B3-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AC%D9%81%D8%A7%D9%81-%D8%AD%D8%A7%D8%AF)
+
+
 ### fa cup (N/A, Sat, 4 Apr 2026 00:40:00 -0700)
 
 - **Manchester City vs Liverpool predictions: International stars return**: [Link](https://www.goal.com/en-ca/betting/tips/manchester-city-vs-liverpool-predictions-04-04-2026/A%3Abltf25e0cd6e93aff1f)
