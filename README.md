@@ -1,3 +1,17 @@
+### barca match (N/A, Sat, 4 Apr 2026 11:50:00 -0700)
+
+- **Preview: Atletico Madrid vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/race-for-the-la-liga-title/preview/atletico-vs-barcelona-prediction-team-news-lineups_594919.html)
+- **Mateo Busquets Ferrer Appointed to Officiate Atlético Madrid vs. Barcelona La Liga Clash**: [Link](https://m.elbotola.com/en/article/2026-04-03-10-45-975.html)
+- **👦 Simeone hosts Barcelona with seven academy lads in the squad**: [Link](https://onefootball.com/fr/news/simeone-hosts-barcelona-with-seven-academy-lads-in-the-squad-42659017)
+
+
+### شوقي السادوسي (N/A, Sat, 4 Apr 2026 11:10:00 -0700)
+
+- **رحيل الكوميدي والسيناريست شوقي السادوسي**: [Link](https://snrtnews.com/article/149385)
+- **وفاة صانع المحتوى شوقي السدوسي تُخلّف صدمة وحزناً واسعاً في المغرب**: [Link](https://chamaly.ma/2026/04/04/%D9%88%D9%81%D8%A7%D8%A9-%D8%B5%D8%A7%D9%86%D8%B9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%88%D9%89-%D8%B4%D9%88%D9%82%D9%8A-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%B3%D9%8A-%D8%AA%D9%8F%D8%AE%D9%84%D9%91%D9%81/)
+- **وفاة الكوميدي شوقي السادوسي**: [Link](https://ihata.ma/%D9%81%D9%86%D9%8A%D8%A9/%D9%88%D9%81%D8%A7%D8%A9-%D8%B4%D9%88%D9%82%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D9%88%D8%B3%D9%8A/)
+
+
 ### ساوثهامبتون ضد آرسنال (N/A, Sat, 4 Apr 2026 11:50:00 -0700)
 
 - **أرتيتا يرفض ذبح نجم آرسنال: الخطأ جزء من كرة القدم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B1%D9%81%D8%B6-%D8%B0%D8%A8%D8%AD-%D9%86%D8%AC%D9%85-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D9%94-%D8%AC%D8%B2%D8%A1-%D9%85%D9%86-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/blt25a8a022b8e35ca1)
