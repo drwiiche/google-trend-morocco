@@ -1,3 +1,17 @@
+### arsenal (N/A, Sat, 4 Apr 2026 13:00:00 -0700)
+
+- **Highlights: Arsenal Women 3-1 Chelsea | Video | News**: [Link](https://www.arsenal.com/news/highlights-arsenal-women-3-1-chelsea)
+- **Arsenal and Wolfsburg win first-leg matches in Women's Champions League quarterfinals**: [Link](https://www.washingtonpost.com/sports/2026/03/24/arsenal-wolfsburg-win-first-leg-matches-women-champions-league-quarterfinals/)
+- **Slegers and Kelly on ‘special’ win over Chelsea**: [Link](https://onefootball.com/es/noticias/slegers-and-kelly-on-special-win-over-chelsea-42613258)
+
+
+### al-hilal vs al-taawoun (N/A, Sat, 4 Apr 2026 13:00:00 -0700)
+
+- **Video: Second in 40 days… Al-Taawoun hand Al-Nassr a draw and bring down Al-Hilal with another draw**: [Link](https://www.goal.com/en-sa/lists/video-second-in-40-days-al-taawoun-hand-al-nassr-a-draw-and-bring-down-al-hilal-with-another-draw/blt39e223746844903e)
+- **Following the Dosari shock, Al-Hilal boosted by defensive duo’s return**: [Link](https://onefootball.com/fr/news/following-the-dosari-shock-al-hilal-boosted-by-defensive-duos-return-42654346)
+- **Al-Hilal Face Injury Setback as Koulibaly and Kanno Miss Training**: [Link](https://koorabreak.com/en/274985/)
+
+
 ### barca match (N/A, Sat, 4 Apr 2026 11:50:00 -0700)
 
 - **Preview: Atletico Madrid vs Barcelona - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/barcelona/race-for-the-la-liga-title/preview/atletico-vs-barcelona-prediction-team-news-lineups_594919.html)
