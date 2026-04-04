@@ -1,3 +1,10 @@
+### hervé renard (N/A, Fri, 3 Apr 2026 15:50:00 -0700)
+
+- **Hervé Renard stays on as Saudi Arabia coach for second World Cup**: [Link](https://onefootball.com/en/news/herve-renard-stays-on-as-saudi-arabia-coach-for-second-world-cup-42658991)
+- **Brendan Rodgers the man to answer dramatic World Cup SOS**: [Link](https://sports.yahoo.com/articles/brendan-rodgers-man-answer-dramatic-111000844.html)
+- **Jesus: The Saudi national team approached me… and this is my stance on coaching them at the World Cup**: [Link](https://www.goal.com/en-in/lists/jesus-the-saudi-national-team-approached-me-and-this-is-my-stance-on-coaching-them-at-the-world-cup/blt21206cfed760943f)
+
+
 ### enzo fernández (N/A, Sat, 4 Apr 2026 00:20:00 -0700)
 
 - **El Chelsea sanciona a Enzo por ‘venderse’ al Madrid**: [Link](https://as.com/futbol/internacional/el-chelsea-sanciona-a-enzo-por-venderse-al-madrid-f202604-n/)
