@@ -1,3 +1,31 @@
+### majorque – real madrid (N/A, Sat, 4 Apr 2026 06:30:00 -0700)
+
+- **Le groupe du Real Madrid pour défier Majorque avec un grand retour**: [Link](https://www.footmercato.net/a6303304585232680478-le-groupe-du-real-madrid-pour-defier-majorque)
+- **Convocation du Real Madrid contre Mallorca**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/convocations/convocatoria-del-real-madrid-ante-el-mallorca-03-04-2026)
+- **Alvaro Arbeloa lance une pique à son « ami » Carlo Ancelotti après le retour de Vinicius Junior au Real Madrid, « fatigué » après ses obligations avec le Brésil**: [Link](https://www.goal.com/fr/listes/alvaro-arbeloa-lance-une-pique-a-son-ami-carlo-ancelotti-apres-le-retour-de-vinicius-junior-au-real-madrid-fatigue-apres-ses-obligations-avec-le-bresil/bltc5703cb65a8596cd)
+
+
+### leverkusen – wolfsbourg (N/A, Sat, 4 Apr 2026 06:20:00 -0700)
+
+- **Wolfsburg in Leverkusen: Hoffnungsträger Wind erneut in der Startelf – VfL Wolfsburg**: [Link](https://www.wolfs-blog.de/wolfsburg-in-leverkusen-hoffnungstraeger-wind-erneut-in-der-startelf/)
+- **Kurzpässe vor #B04WOB: Charlotte Voll im Werkself-Radio – Stadt-Spieltag Monheim**: [Link](https://www.bayer04.de/de-de/news/bundesliga/kurzpaesse-vor-b04wob-charlotte-voll-im-werkself-radio-stadt-spieltag-monheim)
+- **Die Wölfe-PK vor Leverkusen**: [Link](https://www.bundesliga.com/de/bundesliga/videos/watch/die-wolfe-pk-vor-leverkusen-FRQTlxwi)
+
+
+### manchester united (N/A, Sat, 4 Apr 2026 06:20:00 -0700)
+
+- **Manchester United could receive a quadruple injury boost during Dublin training camp**: [Link](https://www.manchestereveningnews.co.uk/sport/football/manchester-united-could-receive-quadruple-33715415)
+- **As well as Martinez: Man Utd star who’s been a ‘breath of fresh air’ this season now ‘back in full training’**: [Link](https://strettynews.com/2026/04/02/lisandro-martinez-shea-lacey-back-in-manchester-united-training/)
+- **Dorgu takes new step in road to recovery**: [Link](https://www.manutd.com/en/news/detail/patrick-chinazaekpere-dorgu-update-4-april-2026)
+
+
+### je t aime moi non plus france maroc (N/A, Sat, 4 Apr 2026 03:00:00 -0700)
+
+- **Nicolas Sarkozy et "ses amis marocains" : un documentaire ausculte les relations tumultueuses entre la France et le royaume**: [Link](https://www.marianne.net/culture/television/nicolas-sarkozy-et-ses-amis-marocains-un-documentaire-ausculte-les-relations-tumultueuses-entre-la-france-et-le-royaume)
+- **Entre la France et le Maroc, un projet de traité bilatéral dans la perspective de la visite d’Etat du roi Mohammed VI**: [Link](https://www.lemonde.fr/afrique/article/2026/04/02/entre-la-france-et-le-maroc-un-projet-de-traite-bilateral-dans-la-perspective-de-la-visite-d-etat-du-roi-mohammed-vi_6676088_3212.html)
+- **Télévision. « Je t’aime, moi non plus », un documentaire sur l’histoire passionnelle entre la France et le Maroc**: [Link](https://www.sudouest.fr/culture/programmes-tv/television-je-t-aime-moi-non-plus-un-documentaire-sur-l-histoire-passionnelle-entre-la-france-et-le-maroc-28517081.php)
+
+
 ### hervé renard (N/A, Fri, 3 Apr 2026 15:50:00 -0700)
 
 - **Hervé Renard stays on as Saudi Arabia coach for second World Cup**: [Link](https://onefootball.com/en/news/herve-renard-stays-on-as-saudi-arabia-coach-for-second-world-cup-42658991)
