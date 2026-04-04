@@ -1,3 +1,10 @@
+### fcb vs atm (N/A, Sat, 4 Apr 2026 13:30:00 -0700)
+
+- **Giuliano Simeone, trabajo y números para enterrar las sospechas**: [Link](https://elpais.com/deportes/futbol/2026-04-04/giuliano-simeone-trabajo-y-numeros-para-enterrar-las-sospechas.html)
+- **Los suplentes 'colchoneros' no sumaron contra el Barça**: [Link](https://www.vavel.com/es/futbol/2026/04/04/atletico-de-madrid/1256448-los-suplentescolchoneros-no-sumaron-contra-el-barca.html)
+- **Al Atlético le preocupa la estrategia del Barcelona**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260404/1004164501/atletico-le-preocupa-estrategia-barcelona.html)
+
+
 ### université internationale de rabat (N/A, Sat, 4 Apr 2026 13:50:00 -0700)
 
 - **La CDG et l'UIR signent cinq conventions de partenariat autour de quatre chaires de recherche**: [Link](https://ledesk.ma/encontinu/la-cdg-et-luir-signent-cinq-conventions-de-partenariat-autour-de-quatre-chaires-de-recherche/)
