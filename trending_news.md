@@ -1,3 +1,10 @@
+### pape gueye (N/A, Sat, 4 Apr 2026 01:00:00 -0700)
+
+- **Idrissa Gueye Opens Up on AFCON Final and Senegal-Morocco Bond**: [Link](https://www.moroccoworldnews.com/2026/04/285731/idrissa-gueye-opens-up-on-afcon-final-and-senegal-morocco-bond/)
+- **Babaï Djaï: Algerians showered me with thank-you messages after my goal in Morocco**: [Link](https://www.goal.com/en/news/babai-djayi-algerians-flooded-me-with-messages-of-thanks-after-my-goal-in-morocco/blt1d6b936ba9c50053)
+- **Gueye Jokes About Algerian Support After AFCON glory.**: [Link](https://en.africatopsports.com/2026/04/03/gueye-jokes-about-algerian-support-after-afcon-glory/)
+
+
 ### psg vs (N/A, Fri, 3 Apr 2026 13:40:00 -0700)
 
 - **Hakimi celebrates a historic achievement on a night when Dembélé shone**: [Link](https://www.goal.com/en/news/hakimi-celebrates-a-historic-achievement-on-a-night-when-dembele-shone/bltbc70c9bd90bd9222)
