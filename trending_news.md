@@ -1,3 +1,45 @@
+### barca (N/A, Sat, 4 Apr 2026 10:00:00 -0700)
+
+- **Posti barca sempre più cari: così la nautica rischia di fermarsi**: [Link](https://www.solovela.net/notizie/3/posti-barca-sempre-piu-cari-nautica-puo-crescere-cosi/1354625/)
+- **Varese: Il progetto “The Same Boat” sbarca alla Schiranna**: [Link](https://www.rete55.it/notizie/sociale/varese-il-progetto-the-same-boat-sbarca-alla-schiranna/)
+- **In barca dopo il tumore: sul Lago di Varese le donne ritrovano salute e fiducia**: [Link](https://www.malpensa24.it/barca-lago-varese-donne/)
+
+
+### brest – rennes (N/A, Sat, 4 Apr 2026 10:00:00 -0700)
+
+- **DIRECT. Brest-Rennes: le derby breton part très très fort, suivez le match de la 28e journée de Ligue 1**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-brest-rennes-suivez-le-derby-breton-de-la-28e-journee-de-ligue-1-en-live_LS-202604040210.html)
+- **DIRECT. Suivez le week-end de football européen en live sur Flashscore**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-brest-ouvre-deja-le-score-face-a-rennes-strasbourg-ecrase-nice/ngG96Zpn/)
+- **«Je ne pensais pas qu’il y aurait autant de monde»: à la boutique du Stade Brestois, la star Drago Vabec attire la foule**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/a-la-boutique-du-stade-brestois-drago-vabec-attire-la-foule-dd3cc5a4-3026-11f1-b6ef-35cf984fdd2d)
+
+
+### ريال بتيس ضد إسبانيول (N/A, Sat, 4 Apr 2026 09:50:00 -0700)
+
+- **أزمة غير مسبوقة: الكونغو الديمقراطية تحتجز لاعبيها بعد التأهل التاريخي للمونديال!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AA%D8%AC%D8%B2-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt91a30579800cfbd3)
+- **احتفالات المونديال.. "ليل" يشتكي الاتحاد الكونغولي لـ"فيفا"**: [Link](https://ar.telquel.ma/%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%84%D9%8A%D9%84-%D9%8A%D8%B4%D8%AA%D9%83%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7/)
+- **فهود الكونغو والمونديال.. من إرث موبوتو إلى حلم الحرية والمجد**: [Link](https://www.aljazeera.net/sport/2026/4/3/%D9%81%D9%87%D9%88%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88-%D9%88%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%85%D9%86-%D8%A5%D8%B1%D8%AB-%D9%85%D9%88%D8%A8%D9%88%D8%AA%D9%88)
+
+
+### fc barcelone (N/A, Sat, 4 Apr 2026 09:50:00 -0700)
+
+- **"Pas non plus catastrophique" : Griezmann et le Barça, un fiasco, vraiment ?**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/la-liga-atletico-barca-laventure-dantoine-griezmann-au-fc-barcelone-a-t-elle-vraiment-ete-un-fiasco_sto23286872/story.shtml)
+- **Le groupe du Barça pour le choc face à l’Atlético de Madrid**: [Link](https://www.footmercato.net/a4321400486036051305-le-groupe-du-barca-pour-le-choc-face-a-latletico-de-madrid)
+- **Chants islamophobes, Hansi Flick révolté**: [Link](https://www.football365.fr/chants-islamophobes-hansi-flick-revolte-10287954.html)
+
+
+### classement liga (N/A, Sat, 4 Apr 2026 09:50:00 -0700)
+
+- **Six mois, 0 match, chaos total : Thauvin et Lille, histoire du transfert fantôme**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/lille-lens-six-mois-0-match-chaos-total-florian-thauvin-et-lille-histoire-du-transfert-fantome_sto23287188/story.shtml)
+- **La compo de Lille contre Lens : La surprise Giroud**: [Link](https://www.football365.fr/la-compo-de-lille-contre-lens-la-surprise-giroud-10288079.html)
+- **Noah Edjouma et Marius Broholm, à l’écart pour LOSC – RC Lens, « formés » à la dur**: [Link](https://lepetitlillois.com/2026/04/04/noah-edjouma-et-marius-broholm-a-lecart-pour-losc-rc-lens-formes-a-la-dur/)
+
+
+### barcelona (N/A, Sat, 4 Apr 2026 09:30:00 -0700)
+
+- **Posible once del Atlético ante el Barcelona en Liga**: [Link](https://as.com/futbol/primera/posible-once-del-atletico-ante-el-barcelona-en-liga-f202604-n/)
+- **Atlético - Barça: tres novedades en el once para el primer 'round' de una durísima batalla**: [Link](https://www.sport.es/es/noticias/barca/atletico-barca-primer-round-durisima-batalla-liga-metropolitano-128728763)
+- **A qué hora y dónde ver el partido entre Atlético de Madrid y FC Barcelona**: [Link](https://www.infobae.com/espana/deportes/2026/04/04/a-que-hora-y-donde-ver-el-partido-entre-atletico-de-madrid-y-fc-barcelona/)
+
+
 ### برشلونة (N/A, Sat, 4 Apr 2026 09:40:00 -0700)
 
 - **عودة مميزة تنقذ فليك في موقعة أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%85%D9%8A%D8%B2%D8%A9-%D8%AA%D9%86%D9%82%D8%B0-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt04d4397be96f176f)
