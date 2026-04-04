@@ -1,3 +1,10 @@
+### psg vs (N/A, Fri, 3 Apr 2026 13:40:00 -0700)
+
+- **Hakimi celebrates a historic achievement on a night when Dembélé shone**: [Link](https://www.goal.com/en/news/hakimi-celebrates-a-historic-achievement-on-a-night-when-dembele-shone/bltbc70c9bd90bd9222)
+- **Real Madrid can't help but feel sad about Achraf Hakimi's latest declaration**: [Link](https://therealchamps.com/real-madrid-can-t-help-but-feel-sad-about-achraf-hakimi-s-latest-declaration-01knatrbve74)
+- **Achraf Hakimi reaches 200 appearances for PSG**: [Link](https://africasoccer.com/achraf-hakimi-reaches-200-appearances-for-psg/)
+
+
 ### aljazeera net (N/A, Fri, 3 Apr 2026 23:10:00 -0700)
 
 - **أوكاسيو كورتيز تتعهد بوقف تمويل إسرائيل عسكرياً**: [Link](https://www.alquds.com/en/posts/233950)
