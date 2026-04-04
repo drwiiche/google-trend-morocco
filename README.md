@@ -1,3 +1,31 @@
+### strasbourg – nice (N/A, Sat, 4 Apr 2026 07:30:00 -0700)
+
+- **DIRECT : La Compo du Racing face à Nice (Ligue 1)**: [Link](https://www.alsasports.fr/football/rc-strasbourg/direct-la-compo-du-racing-face-a-nice-ligue-1/80331/)
+- **L’OGC Nice redisposé en 4-2-3-1 pour son défi à Strasbourg ce samedi**: [Link](https://www.nicematin.com/sports/football/l-ogc-nice-redispose-en-4-2-3-1-pour-son-defi-a-strasbourg-ce-samedi-10675735)
+- **Strasbourg - Nice : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en direct ?**: [Link](https://www.ouest-france.fr/sport/football/rc-strasbourg/strasbourg-nice-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-fe3e631a-2f46-11f1-b6ef-35cf984fdd2d)
+
+
+### real vs (N/A, Sat, 4 Apr 2026 07:30:00 -0700)
+
+- **Real Madrid announce squad for LaLiga match against Mallorca**: [Link](https://www.managingmadrid.com/106036/real-madrid-announce-squad-for-laliga-match-against-mallorca)
+- **Alvaro Arbeloa aims sly dig at 'friend' Carlo Ancelotti after Vinicius Junior returned to Real Madrid from Brazil duty 'tired'**: [Link](https://www.goal.com/en/lists/alvaro-arbeloa-carlo-ancelotti-vinicius-junior-real-madrid-brazil/bltc5703cb65a8596cd)
+- **RCD Mallorca vs Real Madrid Lineups, Live Streams, Cable, How & Where to Watch**: [Link](https://sports.yahoo.com/articles/rcd-mallorca-vs-real-madrid-110000224.html)
+
+
+### manuel ángel (N/A, Sat, 4 Apr 2026 07:00:00 -0700)
+
+- **¿Quién es Manuel Ángel, el ojito derecho de Arbeloa en el Real Madrid?**: [Link](https://www.larazon.es/deportes/futbol/quien-manuel-angel-ojito-derecho-arbeloa-real-madrid_2026040469d11db283aca52e0e42d9a0.html)
+- **¿Quién es Manuel Ángel?**: [Link](https://tribuna.com/es/blogs/quien-es-manuel-angel/)
+- **Arbeloa apuesta por Manuel Ángel, su otro "ojito derecho" de la Fábrica**: [Link](https://www.marca.com/futbol/real-madrid/2026/04/04/arbeloa-apuesta-manuel-angel-ojito-derecho-fabrica.html)
+
+
+### sc freiburg vs bayern (N/A, Sat, 4 Apr 2026 07:00:00 -0700)
+
+- **Spielvorschau: Freiburg gegen Bayern München, 20:30 Uhr, 4. April: Der Geist des Bernabéu!**: [Link](https://www.vietnam.vn/de/nhan-dinh-tran-dau-freiburg-vs-bayern-munich-20h30-ngay-4-4-tam-hon-o-bernabeu)
+- **Liveticker | SC Freiburg - Bayern München : | 28. Spieltag | Bundesliga 2025/26**: [Link](https://www.kicker.de/freiburg-gegen-bayern-2026-bundesliga-5050996/ticker)
+- **Freiburgs Günter vor dem Bayern-Duell: "Olise kriegst du nur im Verbund in den Griff"**: [Link](https://www.abendzeitung-muenchen.de/sport/fcbayern/freiburgs-guenter-vor-dem-bayern-duell-olise-kriegst-du-nur-im-verbund-in-den-griff-art-1123068)
+
+
 ### مايوركا ضد الريال (N/A, Sat, 4 Apr 2026 06:30:00 -0700)
 
 - **للمرة الأولى عقب الإصابة.. مبابي يقود هجوم الريال أمام مايوركا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89-%D8%B9%D9%82%D8%A8-%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7/blted7e494191fbcc27)
