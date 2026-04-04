@@ -1,3 +1,52 @@
+### برشلونة (N/A, Sat, 4 Apr 2026 09:40:00 -0700)
+
+- **عودة مميزة تنقذ فليك في موقعة أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%85%D9%8A%D8%B2%D8%A9-%D8%AA%D9%86%D9%82%D8%B0-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt04d4397be96f176f)
+- **موعد مباراة برشلونة ضد أتلتيكو مدريد في الدوري الإسباني وقنوات البث الناقلة**: [Link](https://www.aljazeera.net/sport/2026/4/3/%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7)
+- **بطولة إسبانيا: برشلونة يعول على جمال لتخطي أتلتيكو مدريد بغياب رافينيا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260403-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AC%D9%85%D8%A7%D9%84-%D9%84%D8%AA%D8%AE%D8%B7%D9%8A-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7)
+
+
+### تشيلسي ضد بورت فايل (N/A, Sat, 4 Apr 2026 09:20:00 -0700)
+
+- **تشكيلة تشيلسي الرسمية ضد بورت فايل في كأس الاتحاد الإنجليزي**: [Link](https://hihi2.com/2026/04/04/p3713364.html)
+- **تشلسي يسعى لمواصلة مسيرته في كأس الاتحاد الإنجليزي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D9%85%D8%B3%D9%8A%D8%B1%D8%AA%D9%87-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-04-04)
+- **القنوات الناقلة لمباراة تشيلسي ضد بورت فايل اليوم في كأس الاتحاد الإنجليزي مع الموعد والتشكيلة - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/246308207064808-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D8%A8%D9%88%D8%B1%D8%AA-%D9%81%D8%A7%D9%8A%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### la liga (N/A, Sat, 4 Apr 2026 09:10:00 -0700)
+
+- **Mallorca vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cj0vz3jeqd3t)
+- **Arbeloa to Start Young Manuel Ángel in Real Madrid's Clash with Mallorca**: [Link](http://m.elbotola.com/en/article/2026-04-04-13-30-450.html)
+- **Alvaro Arbeloa aims sly dig at 'friend' Carlo Ancelotti after Vinicius Junior returned to Real Madrid from Brazil duty 'tired'**: [Link](https://www.goal.com/en/lists/alvaro-arbeloa-carlo-ancelotti-vinicius-junior-real-madrid-brazil/bltc5703cb65a8596cd)
+
+
+### stuttgart – dortmund (N/A, Sat, 4 Apr 2026 09:10:00 -0700)
+
+- **Wer zeigt / überträgt VfB Stuttgart vs. Borussia Dortmund (BVB) im TV und LIVE-STREAM?**: [Link](https://www.dazn.com/de-AT/news/fussball/wer-zeigt-uebertraegt-vfb-stuttgart-vs-borussia-dortmund-bvb-tv-live-stream-bundesliga/1rfbagt0drohw1xutbm3h464h3)
+- **Bundesliga im Live-Ticker: Stuttgart gegen Dortmund**: [Link](https://web.de/magazine/sport/fussball/bundesliga/bundesliga-live-ticker-stuttgart-dortmund-41292002)
+- **BVB: Startelf-Comeback von Guirassy**: [Link](https://www.fussballtransfers.com/a372242836315490685-bvb-startelf-comeback-von-guirassy)
+
+
+### bet365 (N/A, Sat, 4 Apr 2026 09:10:00 -0700)
+
+- **Bet365 bonus code CBSBET365: Get $365 in bonus bets for Pistons-76ers, Cubs-Guardians, MLB, NBA on Saturday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-get-365-bonus-bets-pistons-76ers-cubs-guardians-mlb-nba-saturday/)
+- **Bet365 Bonus Code: Claim $365 Bonus for Michigan-Arizona, Final Four Games**: [Link](https://wtop.com/sports/2026/04/bet365-bonus-code-claim-365-bonus-for-michigan-arizona-final-four-games/)
+- **Use bet365 bonus code SPORTSLINE for $365 in bonus bets for Connecticut vs. Illinois, MLB, NBA and more on Saturday**: [Link](https://www.sportsline.com/sportsbooks/use-bet365-bonus-code-sportsline-365-bonus-bets-illinois-connecticut-mlb-nba-more-saturday/)
+
+
+### leverkusen vs wolfsburg (N/A, Sat, 4 Apr 2026 09:00:00 -0700)
+
+- **Bundesliga: Tapsoba and Maza lead the charge in Leverkusen's spectacular comeback against Wolfsburg**: [Link](https://foot-africa.com/en/news/bundesliga-tapsoba-and-maza-lead-the-charge-in-leverkusens-spectacular-comeback-against-wolfsburg-1152578/)
+- **Bayer Leverkusen smash six past Wolfsburg in nine-goal thrill ride**: [Link](https://www.flashscore.com/news/bayer-leverkusen-wolfsburg-bundesliga-report-2026-04-04/OtrrqvAc/)
+- **Patrik Schick vs. VfL Wolfsburg – Player props & odds to score a goal on April 4**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/04/03/patrik-schick-soccer-player-props-4-4-2026/89459869007/)
+
+
+### madrid vs (N/A, Sat, 4 Apr 2026 08:30:00 -0700)
+
+- **Atlético - Barcelona, en directo: previa y última hora de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/atletico-barcelona-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202604-d/)
+- **Seis bajas para recibir al Barcelona en el primer duelo de la nueva ‘trilogía’**: [Link](https://www.marca.com/futbol/atletico/2026/04/04/seis-bajas-recibir-barcelona-primer-duelo-nueva-trilogia.html)
+- **Atlético - Barça: tres novedades en el once para el primer 'round' de una durísima batalla**: [Link](https://www.sport.es/es/noticias/barca/atletico-barca-primer-round-durisima-batalla-liga-metropolitano-128728763)
+
+
 ### betis – espanyol (N/A, Sat, 4 Apr 2026 08:50:00 -0700)
 
 - **El Real Betis inicia el sprint final hacia la Champions**: [Link](https://mundobetis.com/2026/04/04/el-real-betis-inicia-el-sprint-final-hacia-la-champions/)
