@@ -1,3 +1,10 @@
+### enzo fernández (N/A, Sat, 4 Apr 2026 00:20:00 -0700)
+
+- **El Chelsea sanciona a Enzo por ‘venderse’ al Madrid**: [Link](https://as.com/futbol/internacional/el-chelsea-sanciona-a-enzo-por-venderse-al-madrid-f202604-n/)
+- **Pastore, agente de Enzo Fernández, carga contra el Chelsea y deja el futuro del jugador en el aire**: [Link](https://www.marca.com/futbol/premier-league/2026/04/03/pastore-agente-enzo-fernandez-carga-chelsea-deja-futuro-jugador-aire.html)
+- **Informes: Disturbios en el Chelsea por el deseo de Enzo Fernández de ir al Real Madrid**: [Link](https://m.elbotola.com/es/article/2026-04-02-17-45-648.html)
+
+
 ### real sociedad – levante (N/A, Sat, 4 Apr 2026 04:20:00 -0700)
 
 - **Información útil para mañana**: [Link](http://www.realsociedad.eus/es/noticias/detalle/informacion-util-para-manana-52)
