@@ -1,3 +1,17 @@
+### bayern munich (N/A, Sat, 4 Apr 2026 07:50:00 -0700)
+
+- **All 9 Bundesliga predictions – Week 28**: [Link](https://www.livescore.com/en/news/predictions/all-9-bundesliga-predictions-week-28/)
+- **Without Kane and Real in front of the chest: How Bayern start at SC Freiburg**: [Link](https://fcbinside.com/2026/04/04/without-kane-and-real-in-front-of-the-chest-how-bayern-start-at-sc-freiburg/)
+- **🚨 Kompany has one eye on the Champions League with his XI in Freiburg**: [Link](https://sports.yahoo.com/articles/kompany-one-eye-champions-league-123300892.html)
+
+
+### المغرب منتخب (N/A, Sat, 4 Apr 2026 07:50:00 -0700)
+
+- **بهدف وأسيست المغربي بن طيب يتصدر لائحة هدافي بطولة الليغ2**: [Link](https://www.almountakhab.com/node/16224203)
+- **بهدف وأسيست المغربي بن طيب يتصدر لائحة هدافي بطولة الليغ2**: [Link](https://inews.ma/news/8244800)
+- **بدر الدين الإدريسي… حارس الذاكرة الرياضية وصوت المهنة**: [Link](https://www.almountakhab.com/node/16224201)
+
+
 ### strasbourg – nice (N/A, Sat, 4 Apr 2026 07:30:00 -0700)
 
 - **DIRECT : La Compo du Racing face à Nice (Ligue 1)**: [Link](https://www.alsasports.fr/football/rc-strasbourg/direct-la-compo-du-racing-face-a-nice-ligue-1/80331/)
