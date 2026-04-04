@@ -1,3 +1,24 @@
+### atlético madrid vs barcelona (N/A, Sat, 4 Apr 2026 11:10:00 -0700)
+
+- **Posible once del Atlético ante el Barcelona en Liga**: [Link](https://as.com/futbol/primera/posible-once-del-atletico-ante-el-barcelona-en-liga-f202604-n/)
+- **El posible once del Barça para asaltar el Metropolitano**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260404/1004164335/posible-once-barca-asaltar-metropolitano.html)
+- **Atlético - Barça: tres novedades en el once para el primer 'round' de una durísima batalla**: [Link](https://www.sport.es/es/noticias/barca/atletico-barca-primer-round-durisima-batalla-liga-metropolitano-128728763)
+
+
+### أتلتيكو مدريد ضد برشلونة (N/A, Sat, 4 Apr 2026 11:10:00 -0700)
+
+- **عودة مميزة تنقذ فليك في موقعة أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%85%D9%8A%D8%B2%D8%A9-%D8%AA%D9%86%D9%82%D8%B0-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt04d4397be96f176f)
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-4)
+- **بطولة إسبانيا: برشلونة يعول على جمال لتخطي أتلتيكو مدريد بغياب رافينيا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260403-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AC%D9%85%D8%A7%D9%84-%D9%84%D8%AA%D8%AE%D8%B7%D9%8A-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7)
+
+
+### الهلال ضد التعاون (N/A, Sat, 4 Apr 2026 11:10:00 -0700)
+
+- **وسط حفلة الإصابات.. كيف اختار إنزاجي تشكيلة الهلال ضد التعاون؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%B3%D8%B7-%D8%AD%D9%81%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA--%D9%83%D9%8A%D9%81-%D8%A7%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86/blt8d499430cc7d1502)
+- **مباشر مباراة الهلال ضد التعاون في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%81%D9%8A-2)
+- **أصعب مباراة للهلال في الدوري !**: [Link](https://hihi2.com/2026/04/04/p3713084.html)
+
+
 ### trabzonspor – galatasaray (N/A, Sat, 4 Apr 2026 10:10:00 -0700)
 
 - **Trabzonspor 882 günlük hasreti bitirmek istiyor**: [Link](https://www.yenicaggazetesi.com/trabzonspor-882-gunluk-hasreti-bitirmek-istiyor-1015782h.htm)
