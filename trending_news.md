@@ -1,3 +1,17 @@
+### mallorca (N/A, Sat, 4 Apr 2026 08:40:00 -0700)
+
+- **Wunderbares Frühlingswetter auf Mallorca - und mit jedem Tag wird es wärmer**: [Link](https://www.mallorcazeitung.es/panorama/2026/04/04/wunderbares-fruhlingswetter-auf-mallorca-und-128743701.html)
+- **Schneefall lässt Wasserpegel der Stauseen steigen**: [Link](https://www.inselradio.com/aktuell/news/lokales/2026/04/schneefall-laesst-wasserpegel-der-stauseen-steigen)
+- **Bleibt es so stürmisch auf Mallorca?**: [Link](https://www.mallorca-services.es/bleibt-es-so-stuermisch-auf-mallorca/)
+
+
+### chelsea – port vale (N/A, Sat, 4 Apr 2026 08:30:00 -0700)
+
+- **Chelsea fans’ preferred lineup against Port Vale: The class B daydream team**: [Link](https://weaintgotnohistory.sbnation.com/domestic-cups/167561/chelsea-fans-preferred-lineup-against-port-vale-the-class-b-daydream-team)
+- **🚨Rosenior rings the changes in the FA Cup**: [Link](https://onefootball.com/en/news/rosenior-rings-the-changes-in-the-fa-cup-42659932)
+- **All Whites forward Ben Waine ready for fairytale FA Cup tie against Chelsea**: [Link](https://www.friendsoffootballnz.com/2026/04/04/all-whites-forward-ben-waine-ready-for-fairytale-fa-cup-tie-against-chelsea/)
+
+
 ### bayern munich (N/A, Sat, 4 Apr 2026 07:50:00 -0700)
 
 - **All 9 Bundesliga predictions – Week 28**: [Link](https://www.livescore.com/en/news/predictions/all-9-bundesliga-predictions-week-28/)
