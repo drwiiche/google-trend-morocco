@@ -1,3 +1,43 @@
+### deportivo alavés – osasuna (N/A, Sun, 5 Apr 2026 11:30:00 -0700)
+
+- **Alineaciones confirmadas de Alavés y Osasuna en la jornada 30 de LALIGA EA SPORTS**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260405/alineaciones-confirmadas-alaves-osasuna-laliga-ea-sports_18_018799101.html)
+- **Derbi en Mendi entre dos vecinos que buscan dar continuidad a sus buenas sensaciones**: [Link](https://www.naiz.eus/eu/info/noticia/20260404/derbi-en-mendi-entre-dos-vecinos-que-buscan-dar-continuidad-a-sus-buenas-sensaciones)
+- **Sigue en directo el Alavés-Osasuna en Carrusel Deportivo Navarra**: [Link](https://cadenaser.com/navarra/2026/04/05/sigue-en-directo-el-alaves-osasuna-en-carrusel-deportivo-navarra-radio-pamplona/)
+
+
+### monaco – marseille (N/A, Sun, 5 Apr 2026 11:20:00 -0700)
+
+- **Monaco fait un mauvais coup à l’OM**: [Link](https://www.footmercato.net/a9114163813014812042-monaco-fait-un-mauvais-coup-a-lom)
+- **Monaco-OM, compos : 3 énormes surprises dans le 11 marseillais**: [Link](https://www.football365.fr/monaco-om-compos-3-enormes-surprises-dans-le-11-marseillais-10287732.html)
+- **Absent des terrains depuis le 5 décembre, Paul Pogba est de retour dans le groupe de l'AS Monaco pour le choc face à l'OM**: [Link](https://www.lequipe.fr/Football/Actualites/Absent-des-terrains-depuis-le-5-decembre-paul-pogba-est-de-retour-dans-le-groupe-de-l-as-monaco-pour-le-choc-face-a-l-om/1665283)
+
+
+### inter – roma (N/A, Sun, 5 Apr 2026 11:00:00 -0700)
+
+- **LIVE Alle 20,45 Inter-Roma: torna la ThuLa, Gasperini punta su Vaz e Malen**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/05-04-2026/inter-roma-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **De Grandis: “Inter in loop psicologico dopo il derby: ma con il ritorno di Lautaro…”**: [Link](https://www.fcinter1908.it/ultimora/de-grandis-inter-in-loop-psicologico-dopo-il-derby-ma-con-il-ritorno-di-lautaro/)
+- **Inter-Roma: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/75158/inter-roma-le-formazioni-ufficiali)
+
+
+### انقطاع الكهرباء (N/A, Sun, 5 Apr 2026 10:20:00 -0700)
+
+- **مسؤول: انقطاع التيار الكهربائي عن مناطق تسيطر عليها روسيا في زابوريجيا**: [Link](https://www.reuters.com/ar/world/FJGYZMXSD5JYXBH3WUITULVY4I-2026-04-03/)
+- **قتلى بأوكرانيا وانقطاع الكهرباء عن مناطق تسيطر عليها روسيا في زابوريجيا**: [Link](https://www.independentarabia.com/node/645873/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%88%D9%84%D9%8A%D8%A7%D8%AA/%D9%82%D8%AA%D9%84%D9%89-%D8%A8%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%A7%D9%86%D9%82%D8%B7%D8%A7%D8%B9-%D8%A7%D9%84%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A1-%D8%B9%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%AA%D8%B3%D9%8A%D8%B7%D8%B1-%D8%B9%D9%84%D9%8A%D9%87%D8%A7-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B2%D8%A7%D8%A8%D9%88%D8%B1%D9%8A%D8%AC%D9%8A%D8%A7)
+- **لفتح الطريق نحو زابوريجيا.. روسيا تطوّق أوريخيف (تحليل عسكري)**: [Link](https://www.eremnews.com/videos/pb5m6ex)
+
+
+### ريال أوفييدو ضد إشبيلية (N/A, Sun, 5 Apr 2026 10:10:00 -0700)
+
+
+
+
+### برج فلكي (N/A, Sun, 5 Apr 2026 09:40:00 -0700)
+
+- **حظوظهم المالية قوية.. 4 أبراج تجذب النجاح والفرص طوال الأسبوع**: [Link](https://www.masrawy.com/howa_w_hya/relationship/details/2026/4/5/2967698/%D8%AD%D8%B8%D9%88%D8%B8%D9%87%D9%85-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-4-%D8%A3%D8%A8%D8%B1%D8%A7%D8%AC-%D8%AA%D8%AC%D8%B0%D8%A8-%D8%A7%D9%84%D9%86%D8%AC%D8%A7%D8%AD-%D9%88%D8%A7%D9%84%D9%81%D8%B1%D8%B5-%D8%B7%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9)
+- **توقعات الأبراج للأسبوع الثاني من نيسان/أبريل 2026**: [Link](https://www.raialyoum.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D8%B1%D8%A7%D8%AC-%D9%84%D9%84%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D9%86%D9%8A%D8%B3%D8%A7/)
+- **حظك اليوم: 3 أبراج ستشهد تحسنًا كبيرًا في أوضاعها المالية خلال أسبوعين وفرص غير متوقعة لبرج الثور**: [Link](https://tawusal.com/74048/%D8%AD%D8%B8%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85-3-%D8%A3%D8%A8%D8%B1%D8%A7%D8%AC-%D8%B3%D8%AA%D8%B4%D9%87%D8%AF-%D8%AA%D8%AD%D8%B3%D9%86%D9%8B%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1%D9%8B%D8%A7-%D9%81/)
+
+
 ### botola pro (N/A, Sun, 5 Apr 2026 10:40:00 -0700)
 
 - **Ziyech Injury Against FUS Threatens Participation vs. DHJ**: [Link](https://m.elbotola.com/en/article/2026-04-04-19-16-635.html)
