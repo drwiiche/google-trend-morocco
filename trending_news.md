@@ -1,3 +1,52 @@
+### حكيم زياش (N/A, Sun, 5 Apr 2026 07:40:00 -0700)
+
+- **اعتراف مرير يهز الوداد.. كارتيرون يقرّ بالعجز بعد السقوط الأول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81-%D9%85%D8%B1%D9%8A%D8%B1-%D9%8A%D9%87%D8%B2-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF--%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%8A%D9%82%D8%B1%D9%91-%D8%A8%D8%A7%D9%84%D8%B9%D8%AC%D8%B2-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84/blte5d40f3822906c75)
+- **باتريس كارتيرون: خسارة الوداد أمام الفتح «مستحقة»**: [Link](https://www.radiomars.ma/%D8%A8%D8%A7%D8%AA%D8%B1%D9%8A%D8%B3-%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%81/)
+- **شيبا بعد الفوز على الوداد: دخلنا بنية الفوز.. والفعالية الهجومية تحتاج إلى تطوير**: [Link](https://www.hesport.com/%D8%B4%D9%8A%D8%A8%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%AF%D8%AE%D9%84%D9%86%D8%A7-%D8%A8%D9%86%D9%8A%D8%A9-%D8%A7%D9%84-433551.html)
+
+
+### القسام (N/A, Sun, 5 Apr 2026 07:20:00 -0700)
+
+- **"حرب نجوم".. القسام تبث تسجيلا لتفاعل "الملثم" مع صواريخ إيران**: [Link](https://www.aljazeera.net/news/2026/4/5/%D8%AD%D8%B1%D8%A8-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D8%A8%D8%AB-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84%D8%A7-%D9%84%D8%AA%D9%81%D8%A7%D8%B9%D9%84)
+- **القسام تنشر صورة لأحمد ياسين وخامنئي بعد رشقة صاروخية إيرانية على دولة الاحتلال**: [Link](https://arabi21.com/story/1749508/%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%A9-%D9%84%D8%A3%D8%AD%D9%85%D8%AF-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D9%88%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%B1%D8%B4%D9%82%D8%A9-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%AF%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84)
+- **كتائب القسَّام تنشرُ صورةً للشهيد أحمد ياسين برفقة الشهيد علي خامنئي.. هذه قصتها**: [Link](https://felesteen.news/post/178590/%D9%83%D8%AA%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%A9-%D9%84%D9%84%D8%B4%D9%87%D9%8A%D8%AF-%D8%A3%D8%AD%D9%85%D8%AF-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D8%B1%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%B4%D9%87%D9%8A%D8%AF-%D8%B9%D9%84%D9%8A-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-)
+
+
+### زين الدين زيدان (N/A, Sun, 5 Apr 2026 07:10:00 -0700)
+
+- **الاتفاق تم.. زيدان يحقق حلمه بعد سنوات الانتظار**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%AA%D9%85--%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D8%AD%D9%82%D9%82-%D8%AD%D9%84%D9%85%D9%87-%D8%A8%D8%B9%D8%AF-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1/blt5c5fd9536409f081)
+- **زيدان يحسم قراره ويعطي موافقته لتدريب منتخب فرنسا**: [Link](https://m.elbotola.com/article/2026-04-05-12-00-823.html)
+- **تمسك بموقفه.. عروض مغرية من الهلال السعودي وإنجلترا للتعاقد مع زيدان**: [Link](https://www.eremnews.com/sports/hulgch3)
+
+
+### fraude fiscale (N/A, Sun, 5 Apr 2026 07:10:00 -0700)
+
+- **Fraude fiscale : la DGI cible les SARL et engage la responsabilité des gérants**: [Link](https://fr.hespress.com/468327-fraude-fiscale-la-dgi-cible-les-sarl-et-engage-la-responsabilite-des-gerants.html)
+- **Fraude fiscale : les gérants de SARL dans le viseur de la DGI**: [Link](https://h24info.ma/economie/fraude-fiscale-les-gerants-sarl-dans-le-viseur/)
+- **Maroc : coup de filet fiscal contre les gérants de SARL**: [Link](https://www.bladi.net/maroc-coup-filet-fiscal-gerants-sarl,120488.html)
+
+
+### confédération africaine de football (N/A, Sun, 5 Apr 2026 07:00:00 -0700)
+
+- **Qui a gagné la CAN 2025 ? « Le Monde » dévoile les coulisses de l’interminable finale Maroc-Sénégal**: [Link](https://www.lemonde.fr/afrique/article/2026/04/05/qui-a-gagne-la-can-2025-le-monde-devoile-les-coulisses-de-l-interminable-finale-maroc-senegal_6676880_3212.html)
+- **CAN 2025: des consignes pour ne pas sanctionner les Sénégalais en finale? Des déclarations explosives du président du comité des arbitres de la CAF selon le Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-des-consignes-pour-ne-pas-sanctionner-les-senegalais-en-finale-des-declarations-explosives-du-president-du-comite-des-arbitres-de-la-caf-selon-le-maroc_AV-202604050179.html)
+- **CAN 2025 : l’agence Image 7 rompt son contrat avec la Fédération sénégalaise de football**: [Link](https://ledesk.ma/enoff/can-2025-lagence-image-7-rompt-son-contrat-avec-la-federation-senegalaise-de-football/)
+
+
+### صاروخ (N/A, Sun, 5 Apr 2026 07:00:00 -0700)
+
+- **الحرب على إيران.. صواريخ طهران تضرب شمال إسرائيل وأوامر إسرائيلية بإخلاء 7 مناطق ببيروت**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/5/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **صواريخ إيرانية تسقط شمالي وجنوبي إسرائيل إثر موجتين من الهجمات**: [Link](https://www.aa.com.tr/ar/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B3%D9%82%D8%B7-%D8%B4%D9%85%D8%A7%D9%84%D9%8A-%D9%88%D8%AC%D9%86%D9%88%D8%A8%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A5%D8%AB%D8%B1-%D9%85%D9%88%D8%AC%D8%AA%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-/3892320)
+- **هجوم صاروخي متزامن من إيران ولبنان يخلّف أضرارا في حيفا ونهاريا شمالي إسرائيل**: [Link](https://arabic.euronews.com/2026/04/03/a-simultaneous-missile-attack-from-iran-and-lebanon-causes-damage-in-haifa-and-nahariya-in)
+
+
+### سعر (N/A, Sun, 5 Apr 2026 07:00:00 -0700)
+
+- **استقرار أسعار الذهب اليوم وعيار 21 عند مستواه في السوق**: [Link](https://mrj3y.com/414083/%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88%D8%B9%D9%8A%D8%A7%D8%B1-21-%D8%B9%D9%86%D8%AF-%D9%85/)
+- **أسعار الذهب والدولار وحالة الطقس اليوم الأحد.. فيديو**: [Link](https://www.elbalad.news/6925414)
+- **تراجع أسعار الذهب اليوم الأحد 5 أبريل.. عيار 21 يفقد 10 جنيهات**: [Link](https://www.cairo24.com/2400195)
+
+
 ### المغرب ضد ليبيا (N/A, Sun, 5 Apr 2026 06:50:00 -0700)
 
 - **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء ليبيا**: [Link](https://frmf.ma/articles/tournoi-unaf-u17-derniere-journee-dernier-entrainement-du-maroc-avant-le-match-face-a-la-libye)
