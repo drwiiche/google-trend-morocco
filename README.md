@@ -1,3 +1,31 @@
+### الإنتر ضد روما (N/A, Sun, 5 Apr 2026 12:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر وروما في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%88%D8%B1%D9%88%D9%85%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte5eccff02eff6b7f)
+- **لاوتارو مارتينيز يعود لتشكيلة الإنتر أمام روما بعد تعافيه من الإصابة**: [Link](https://m.elbotola.com/article/2026-04-04-15-00-250.html)
+- **بطولة إيطاليا: ميلان في ضيافة نابولي وإنتر يستقبل روما بعد خيبة التأهل المونديالي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260403-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%88%D8%A5%D9%86%D8%AA%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B1%D9%88%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%AE%D9%8A%D8%A8%D8%A9-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A)
+
+
+### programme tv (N/A, Sun, 5 Apr 2026 12:00:00 -0700)
+
+- **« C’était l’un de mes fantasmes » : Amel Bent nous raconte les coulisses de sa collaboration avec M. Pokora dans la prochaine session d’auditions à l’aveugle de « The Voice »**: [Link](https://www.sudinfo.be/id1133149/article/2026-04-04/cetait-lun-de-mes-fantasmes-amel-bent-nous-raconte-les-coulisses-de-sa)
+- **« Un parti pris radical »… Pourquoi la saison 15 de « The Voice » n’a pas la même image que les précédentes**: [Link](https://www.20minutes.fr/arts-stars/television/the-voice/4216185-20260404-parti-pris-radical-pourquoi-saison-15-the-voice-image-precedentes)
+- **Audiences TV Prime (samedi 4 avril 2026) : The Voice plus fort que Cyril Féraud et 100% logique, Les Traitres gardent leurs fans**: [Link](https://toutelatele.ouest-france.fr/audiences-tv-prime-samedi-4-avril-2026-185152)
+
+
+### équipe du sénégal de football (N/A, Sun, 5 Apr 2026 12:00:00 -0700)
+
+- **CAN 2025: des consignes pour ne pas sanctionner les Sénégalais en finale? Des déclarations explosives du président du comité des arbitres de la CAF selon le Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-des-consignes-pour-ne-pas-sanctionner-les-senegalais-en-finale-des-declarations-explosives-du-president-du-comite-des-arbitres-de-la-caf-selon-le-maroc_AV-202604050179.html)
+- **Qui a gagné la CAN 2025 ? « Le Monde » dévoile les coulisses de l’interminable finale Maroc-Sénégal**: [Link](https://www.lemonde.fr/afrique/article/2026/04/05/qui-a-gagne-la-can-2025-le-monde-devoile-les-coulisses-de-l-interminable-finale-maroc-senegal_6676880_3212.html)
+- **CAN 2025 : l’agence Image 7 rompt son contrat avec la Fédération sénégalaise de football**: [Link](https://ledesk.ma/enoff/can-2025-lagence-image-7-rompt-son-contrat-avec-la-federation-senegalaise-de-football/)
+
+
+### inter vs roma (N/A, Sun, 5 Apr 2026 11:50:00 -0700)
+
+- **Inter Hit by Defensive Crisis Ahead of Roma Clash After Bisseck Injury**: [Link](https://m.elbotola.com/en/article/2026-04-03-17-15-931.html)
+- **Inter’s Calhanoglu: “Tonight is very, very important.”**: [Link](https://romapress.net/inters-calhanoglu-tonight-is-very-very-important/)
+- **Marotta: ‘Bastoni lynching in the media is shameful’**: [Link](https://football-italia.net/marotta-bastoni-lynching-in-media-is-shameful/)
+
+
 ### deportivo alavés – osasuna (N/A, Sun, 5 Apr 2026 11:30:00 -0700)
 
 - **Alineaciones confirmadas de Alavés y Osasuna en la jornada 30 de LALIGA EA SPORTS**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260405/alineaciones-confirmadas-alaves-osasuna-laliga-ea-sports_18_018799101.html)
