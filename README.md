@@ -1,3 +1,31 @@
+### madrid club de fútbol femenino – real madrid club de fútbol (N/A, Sun, 5 Apr 2026 08:40:00 -0700)
+
+- **Pau Quesada: “Somos capaces de competir contra todos, a excepción del Barça”**: [Link](https://www.mundodeportivo.com/futbol/femenino/20260402/1004164015/pau-quesada-capaces-competir-todos-excepcion-barca.html)
+- **¡Pavorosa eliminación! Linda Caicedo, lo más destacado en la caída del Real Madrid**: [Link](https://www.deportesrcn.com/futbol/pavorosa-eliminacion-linda-caicedo-lo-mas-destacado-en-la-caida-del-real-madrid-148558)
+- **Un Spotify Camp Nou de récord se rinde ante las reinas del fútbol (6 – 0)**: [Link](https://onefootball.com/en/news/un-spotify-camp-nou-de-record-se-rinde-ante-las-reinas-del-futbol-6-0-42653956)
+
+
+### منتخب مصر لكرة القدم (N/A, Sun, 5 Apr 2026 08:30:00 -0700)
+
+- **منتخب مصر للناشئين يتأهل إلى كأس الأمم الإفريقية 2027**: [Link](https://www.btolat.com/news/396999)
+- **CAN U17/UNAF.. موعد والقنوات الناقلة لمباراتي المغرب-ليبيا والجزائر-مصر**: [Link](https://ihata.ma/sport/can-u17-unaf-algerie-egypte-maroc-libye-tv/)
+- **تشكيل مصر للناشئين أمام الجزائر في ختام تصفيات شمال أفريقيا**: [Link](https://mrj3y.com/413896/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%B5%D8%B1-%D9%84%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7/)
+
+
+### دونالد ترمب (N/A, Sun, 5 Apr 2026 08:20:00 -0700)
+
+- **ترامب: إيران تتفاوض الآن.. والاتفاق ممكن بحلول الغد**: [Link](https://www.alarabiya.net/iran/2026/04/05/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A7%D8%B9%D8%AA%D9%82%D8%AF-%D8%A7%D9%86%D9%86%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B7%D9%8A%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%B5%D9%84-%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%85%D8%B9-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D8%A8%D8%AD%D9%84%D9%88%D9%84-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86)
+- **محللون: جحيم ترمب قد يمتد لأبعد من إيران**: [Link](https://www.aljazeera.net/news/2026/4/5/%D9%85%D8%AD%D9%84%D9%84%D9%88%D9%86-%D8%AA%D8%B1%D9%85%D8%A8-%D9%88%D8%B6%D8%B9-%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%B9%D9%84%D9%89-%D8%AD%D8%A7%D9%81%D8%A9)
+- **مباشر: ترامب يتحدث عن "فرصة جيدة" للتوصل إلى اتفاق مع إيران الإثنين**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260405-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%A7%D9%84%D8%B7%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%81%D9%82%D9%88%D8%AF-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A7%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AD%D8%B1%D8%A8-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+
+
+### تمارة (N/A, Sun, 5 Apr 2026 08:20:00 -0700)
+
+- **حلم السكن أصبح حقيقة.. مئات الأسر بـ"تمارة" تتسلم مفاتيح شققها بعد طول انتظار**: [Link](https://www.akhbarona.com/national/423836.html)
+- **تصاعد الجدل بجماعة تمارة حول صفقات عمومية ومطالب بفتح تحقيق**: [Link](https://www.belpresse.com/regions/623736.html)
+- **فساد التدبير المفوض للنظافة في تمارة: غياب الشفافية يهدد البيئة وجودة الحياة**: [Link](https://inews.ma/news/8246715)
+
+
 ### west ham – leeds united (N/A, Sun, 5 Apr 2026 08:00:00 -0700)
 
 - **Bowen | It’s a big opportunity, a big moment, and one I’m really looking forward to**: [Link](https://www.whufc.com/en/news/bowen-or-its-a-big-opportunity-a-big-moment-and-one-im-really-looking)
