@@ -1,3 +1,24 @@
+### casablanca (N/A, Sun, 5 Apr 2026 09:40:00 -0700)
+
+- **Le Consulat Général des États-Unis à Casablanca déménage à Casa Finance City**: [Link](https://lematin.ma/regions/le-consulat-des-etats-unis-a-casablanca-demenage-a-casa-finance-city/338448)
+- **Le consulat américain de Casablanca migre à CFC, l’ancien bâtiment bientôt rattaché à Attijariwafa bank**: [Link](https://ledesk.ma/2026/04/05/le-consulat-americain-de-casablanca-migre-a-cfc-lancien-batiment-bientot-rattache-a-attijariwafa-bank/)
+- **Partenariat stratégique Maroc–États-Unis : Une coopération industrielle tournée vers les minerais d’avenir**: [Link](https://fr.le7tv.ma/2026/04/04/partenariat-strategique-maroc-etats-unis-une-cooperation-industrielle-tournee-vers-les-minerais-davenir/)
+
+
+### زواج (N/A, Sun, 5 Apr 2026 09:20:00 -0700)
+
+- **حقيقة الزيادة في تكاليف عقد الزواج**: [Link](https://www.hespress.com/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-%D8%AA%D9%83%D8%A7%D9%84%D9%8A%D9%81-%D8%B9%D9%82%D8%AF-%D8%A7%D9%84%D8%B2%D9%88%D8%A7%D8%AC-1726292.html)
+- **العدول يحذرون من الطابع الزجري لمشروع القانون 22.16 ويدعون إلى سحبه**: [Link](https://ar.telquel.ma/%D9%84%D8%A7-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%81%D9%8A-%D8%A3%D8%AB%D9%85%D9%86%D8%A9-%D8%B1%D8%B3%D9%88%D9%85-%D8%A7%D9%84%D8%B2%D9%88%D8%A7%D8%AC-%D8%A7%D9%84%D8%B9%D8%AF%D9%88%D9%84-%D9%8A/)
+- **عدول المغرب يعلنون التوقف الشامل عن العمل ابتداءً من 13 أبريل**: [Link](https://lakome2.com/societe/413639/)
+
+
+### chaouki sadoussi deces (N/A, Sun, 5 Apr 2026 09:20:00 -0700)
+
+- **Mort de Chaouki Sadoussi : un créateur engagé et profondément humain s’en va**: [Link](https://lematin.ma/culture/deces-de-chaouki-saddoussi-figure-majeure-du-numerique-marocain/338499)
+- **Décès du comédien et scénariste Chaouki Sadoussi**: [Link](https://snrtnews.com/fr/article/deces-du-comedien-et-scenariste-chaouki-sadoussi-149387)
+- **Décès de l’artiste comique Chawki Sadoussi**: [Link](https://fr.hibapress.com/news-243514.html)
+
+
 ### bitcoin (N/A, Sun, 5 Apr 2026 08:50:00 -0700)
 
 - **What could a US ground invasion of Iran mean for Bitcoin and cryptocurrencies?**: [Link](https://www.fxstreet.com/news/what-could-a-us-ground-invasion-of-iran-mean-for-bitcoin-and-cryptocurrencies-202604031201)
