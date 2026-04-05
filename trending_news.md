@@ -1,3 +1,10 @@
+### برشلونة اليوم (N/A, Sat, 4 Apr 2026 12:40:00 -0700)
+
+- **أولمو: مارتن لا يستحق الطرد.. ولاعب أتلتيكو الدليل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D9%84%D9%85%D9%88-%D9%85%D8%A7%D8%B1%D8%AA%D9%86-%D9%84%D8%A7-%D9%8A%D8%B3%D8%AA%D8%AD%D9%82-%D8%A7%D9%84%D8%B7%D8%B1%D8%AF--%D9%88%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%87%D9%88-%D8%A7%D9%84%D8%AF%D9%84%D9%8A%D9%84/bltff4a6c0366bd82c0)
+- **ليس راشفورد … أهم لاعب في هدف برشلونه الأول أمام أتلتيكو**: [Link](https://hihi2.com/2026/04/05/p3714003.html)
+- **أولمو: سعداء بتحقيق الفوز، ومستعدون لمواجهة دوري الأبطال**: [Link](https://www.ysscores.com/ar/news/13939564/%D8%A3%D9%88%D9%84%D9%85%D9%88-%D8%B3%D8%B9%D8%AF%D8%A7%D8%A1-%D8%A8%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2%D8%8C-%D9%88%D9%85%D8%B3%D8%AA%D8%B9%D8%AF%D9%88%D9%86-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+
+
 ### barca atletico (N/A, Sat, 4 Apr 2026 13:40:00 -0700)
 
 - **‘He was a bit upset’ - Hansi Flick talks Lamine Yamal, Gerard Martin red card and injuries after Barcelona beat Atletico**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/116882/__trashed)
