@@ -1,3 +1,17 @@
+### barca atletico (N/A, Sat, 4 Apr 2026 13:40:00 -0700)
+
+- **‘He was a bit upset’ - Hansi Flick talks Lamine Yamal, Gerard Martin red card and injuries after Barcelona beat Atletico**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/116882/__trashed)
+- **Yamal's Anger Mars Barcelona's Joy**: [Link](https://www.ysscores.com/en/news/13939505/Yamal's-Anger-Mars-Barcelona's-Joy)
+- **Flick: Real’s slump doesn’t concern me… and the referee got Martin’s penalty wrong**: [Link](https://www.goal.com/en-sa/news/flick-real-s-slump-doesn-t-concern-me-and-the-referee-got-martin-s-penalty-wrong/bltf28ba528d8c159d5)
+
+
+### atletico (N/A, Sat, 4 Apr 2026 13:30:00 -0700)
+
+- **What lessons must Barcelona learn from their last encounters with Atletico Madrid?**: [Link](https://sports.yahoo.com/articles/lessons-must-barcelona-learn-last-195500617.html)
+- **Olmo: Martin didn’t deserve to be sent off… and the Atlético player is proof of that**: [Link](https://www.goal.com/en/news/olmo-martin-didn-t-deserve-to-be-sent-off-and-the-atletico-player-is-proof-of-that/bltff4a6c0366bd82c0)
+- **Olmo: Happy with the Victory, Ready for the Champions League Clash**: [Link](https://www.ysscores.com/en/news/13939564/Olmo:-Happy-with-the-Victory,-Ready-for-the-Champions-League-Clash)
+
+
 ### luka dončić (N/A, Sat, 4 Apr 2026 23:10:00 -0700)
 
 - **Luka Doncic: Los Angeles Lakers star to miss rest of regular NBA season with injury**: [Link](https://www.bbc.com/sport/basketball/articles/ckgwjnwd9p7o)
