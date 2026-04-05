@@ -1,3 +1,10 @@
+### المغرب ضد ليبيا (N/A, Sun, 5 Apr 2026 06:50:00 -0700)
+
+- **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء ليبيا**: [Link](https://frmf.ma/articles/tournoi-unaf-u17-derniere-journee-dernier-entrainement-du-maroc-avant-le-match-face-a-la-libye)
+- **صافرة مصرية لمواجهة المغرب وليبيا**: [Link](https://www.hespress.com/%D8%B5%D8%A7%D9%81%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-1726345.html)
+- **القنوات الناقلة لمباراة المغرب ضد ليبيا اليوم في بطولة شمال إفريقيا للناشئين تحت 17 سنة 2026 مع الموعد - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/979202753411739-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D8%AA%D8%AD%D8%AA-17-%D8%B3%D9%86%D8%A9-2026-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF/)
+
+
 ### valence – celta vigo (N/A, Sun, 5 Apr 2026 06:30:00 -0700)
 
 - **DIRECT. Valence CF-Celta Vigo (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/valence-cf-celta-vigo-live/677009)
