@@ -1,3 +1,10 @@
+### فالنسيا ضد سلتا فيغو (N/A, Sun, 5 Apr 2026 08:10:00 -0700)
+
+- **الدوري الإسباني.. سلتا فيغو يستعيد نغمة الانتصارات على حساب فالنسيا**: [Link](https://www.alkhaleej.ae/2026-04-05/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B3%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%BA%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-6390416/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A)
+- **الموعد والقنوات الناقلة لمباراة فالنسيا ضد سيلتا فيجو في الدوري الإسباني**: [Link](https://alamriyadi.com/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%A7%D9%84%D9%86-33/)
+- **الدوري الإسباني: إيلایكس موريبا يسجل ويصنع ويقود سيلتا فيغو لانتصار كبير على فالنسيا**: [Link](https://foot-africa.com/ar/news/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A5%D9%8A%D9%84%D8%A7%DB%8C%D9%83%D8%B3-%D9%85%D9%88%D8%B1%D9%8A%D8%A8%D8%A7-%D9%8A%D8%B3%D8%AC%D9%84-%D9%88%D9%8A%D8%B5%D9%86%D8%B9-%D9%88%D9%8A%D9%82%D9%88%D8%AF-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%83%D8%A8%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-1153841/)
+
+
 ### casablanca (N/A, Sun, 5 Apr 2026 09:40:00 -0700)
 
 - **Le Consulat Général des États-Unis à Casablanca déménage à Casa Finance City**: [Link](https://lematin.ma/regions/le-consulat-des-etats-unis-a-casablanca-demenage-a-casa-finance-city/338448)
