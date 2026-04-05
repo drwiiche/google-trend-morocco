@@ -1,3 +1,52 @@
+### عطلة مدرسية (N/A, Sun, 5 Apr 2026 05:10:00 -0700)
+
+- **عطلة مدرسية جديدة في انتظار التلاميذ**: [Link](https://ar.lesiteinfo.com/maroc/%D8%B9%D8%B7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-4-994052.html)
+- **إقرار أطول عطلة في تاريخ الجزائر.. يفجر عاصفة من الجدل**: [Link](https://www.raialyoum.com/%D8%A5%D9%82%D8%B1%D8%A7%D8%B1-%D8%A3%D8%B7%D9%88%D9%84-%D8%B9%D8%B7%D9%84%D8%A9-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D9%81%D8%AC%D8%B1/)
+- **الجزائر تغلق المدارس لأربعة أشهر**: [Link](https://www.belpresse.com/featured/622942.html)
+
+
+### ماسنجر (N/A, Sun, 5 Apr 2026 05:10:00 -0700)
+
+- **نهاية "Messenger.com" تقترب**: [Link](https://www.alarabiya.net/technology/social-platforms/2026/04/04/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-messengercom-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8)
+- **إغلاق موقع ماسنجر في 16 أبريل.. تفاصيل القرار وأهم 5 بدائل متاحة**: [Link](https://www.elbalad.news/6924934)
+- **الأقباط متحدون |شركة ميتا تعلن إيقاف ماسنجر رسميا في 16 أبريل لتقليل التكاليف التشغيلية**: [Link](https://www.copts-united.com/Article.php?I=6235&A=859947)
+
+
+### منتخب المغرب لكرة القدم (N/A, Sun, 5 Apr 2026 05:10:00 -0700)
+
+- **المنتخب الوطني لاقل من 17 سنة يجري آخر حصة تدريبية قبل لقاء ليبيا**: [Link](https://frmf.ma/articles/tournoi-unaf-u17-derniere-journee-dernier-entrainement-du-maroc-avant-le-match-face-a-la-libye)
+- **"منتخب U17" ينهي التحضيرات لليبيا**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u17-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-1726006.html)
+- **تحكيم مصري لمباراة المغرب وليبيا**: [Link](https://www.hesport.com/%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D9%85%D8%B5%D8%B1%D9%8A-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-433694.html)
+
+
+### باب غايي (N/A, Sun, 5 Apr 2026 04:50:00 -0700)
+
+- **بابي جايي: الجزائريون انهالوا عليّ برسائل الشكر بعد هدفي في المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D8%A8%D9%8A-%D8%AC%D8%A7%D9%8A%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1%D9%8A%D9%88%D9%86-%D8%A7%D9%86%D9%87%D8%A7%D9%84%D9%88%D8%A7-%D8%B9%D9%84%D9%8A%D9%91-%D8%A8%D8%B1%D8%B3%D8%A7%D9%8A%D9%94%D9%84-%D8%A7%D9%84%D8%B4%D9%83%D8%B1-%D8%A8%D8%B9%D8%AF-%D9%87%D8%AF%D9%81%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt1d6b936ba9c50053)
+- **السنغالي باب غايي: "كنا نشرب كل مساء شايًا ممتازًا يقدمونه لنا في أكواب رائعة لكن عندما علموا أننا في النهائي ضد المغرب لم يعد هناك شاي ولا أكواب ولا أي شيء"**: [Link](https://m.elbotola.com/article/2026-04-04-12-18-132.html)
+- **نجم السنغال غاي يخرج عن صمته بخصوص نهائي الكان**: [Link](https://ar.lesiteinfo.com/sport/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%BA%D8%A7%D9%8A-%D9%8A%D8%AE%D8%B1%D8%AC-%D8%B9%D9%86-%D8%B5%D9%85%D8%AA%D9%87-%D8%A8%D8%AE%D8%B5%D9%88%D8%B5-%D9%86%D9%87%D8%A7%D8%A6-994119.html)
+
+
+### السنغال (N/A, Sun, 5 Apr 2026 04:50:00 -0700)
+
+- **التحكيم الرياضي في لوزان .. بوبحي يبسُط قراءة في دفوع "نهائي الكان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%81%D9%8A-%D9%84%D9%88%D8%B2%D8%A7%D9%86-%D8%A8%D9%88%D8%A8%D8%AD%D9%8A-%D9%8A%D8%A8%D8%B3%D9%8F%D8%B7-1725128.html)
+- **بعد أزمة المغرب والسنغال.. أفريقيا تتغير إلى الأبد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84--%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D8%AA%D8%BA%D9%8A%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%AF/blt3d9118a71664443e)
+- **صداقة السنغال والمغرب على محكّ أمم إفريقيا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260403-%D8%B5%D8%AF%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D8%AD%D9%83%D9%91-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+
+
+### christina marie plante (N/A, Sun, 5 Apr 2026 04:50:00 -0700)
+
+- **Girl who disappeared in 1994 left on purpose: Investigator**: [Link](https://www.newsnationnow.com/missing/girl-missing-1994-left-on-purpose/)
+- **Girl who went missing at 13 years old in 1994 is found alive**: [Link](https://www.nbcnews.com/news/us-news/girl-went-missing-13-years-old-1994-found-alive-rcna266333)
+- **Found Arizona woman declines to cooperate about disappearance**: [Link](https://www.yahoo.com/news/articles/found-arizona-woman-declines-cooperate-221116405.html)
+
+
+### iran (N/A, Sun, 5 Apr 2026 04:50:00 -0700)
+
+- **Live updates: Iran war news; US forces rescue missing F-15 crew member, Trump says**: [Link](https://www.cnn.com/2026/04/05/world/live-news/iran-war-us-trump-oil)
+- **US military jets hit in Iran war are the first shot down by enemy fire in over 20 years**: [Link](https://apnews.com/article/iran-war-fighter-jet-shot-down-trump-3a8b2d5b2cdaceb13bbb62c3f6526e71)
+- **Iran War Live Updates: U.S. Fighter Jet, a Missing Airman and Trump’s 48-Hour Deadline**: [Link](https://www.nytimes.com/live/2026/04/04/world/iran-war-trump-news)
+
+
 ### مدرب (N/A, Sun, 5 Apr 2026 04:40:00 -0700)
 
 - **فليك: تعثر ريال مدريد لا يهمني.. والحكم أخطأ في قرار جيرارد مارتن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D8%A7-%D9%8A%D9%87%D9%85%D9%86%D9%8A--%D9%88%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%94%D8%AE%D8%B7%D8%A7%D9%94-%D9%81%D9%8A-%D9%82%D8%B1%D8%A7%D8%B1-%D8%AC%D9%8A%D8%B1%D8%A7%D8%B1%D8%AF-%D9%85%D8%A7%D8%B1%D8%AA%D9%86/bltf28ba528d8c159d5)
