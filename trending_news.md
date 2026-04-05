@@ -1,3 +1,52 @@
+### valence – celta vigo (N/A, Sun, 5 Apr 2026 06:30:00 -0700)
+
+- **DIRECT. Valence CF-Celta Vigo (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/valence-cf-celta-vigo-live/677009)
+- **Valence vs Celta Vigo – Pronos, Analyse et Cotes le 05/04/2026**: [Link](https://paris-sportifs.lefigaro.fr/pronostics/valence-celta-vigo-05-04-2026/)
+- **Liga : Valence - Celta Vigo : Sur quelle chaîne de télé et à quelle heure voir le match en direct ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-liga-valence-celta-vigo-sur-quelle-chaine-de-tele-et-a-quelle-heure-voir-le-match-en-direct-ij-517995.html)
+
+
+### كأس العالم (N/A, Sun, 5 Apr 2026 06:00:00 -0700)
+
+- **توقعات الذكاء الاصطناعي لبطل كأس العالم 2026 ومنتخبات ربع النهائي**: [Link](https://www.aljazeera.net/sport/2026/4/2/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+- **رحلة العناء العربي بالمونديال: وضع مثالي لمصر.. وشاق للمغرب والسعودية.. وكارثي للجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D9%88%D8%B6%D8%B9-%D9%85%D8%AB%D8%A7%D9%84%D9%8A--%D9%88%D8%B4%D8%A7%D9%82%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9--%D9%88%D9%83%D8%A7%D8%B1%D8%AB%D9%8A%D8%A9-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/blt01c21f0b3998659c)
+- **مسافات التنقل لعرب المونديال.. مصر الأوفر حظا وظُلم للجزائر**: [Link](https://www.skynewsarabia.com/sport/1862411-%D9%85%D8%B3%D8%A7%D9%81%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%86%D9%82%D9%84-%D9%84%D8%B9%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D9%81%D8%B1-%D8%AD%D8%B8%D8%A7-%D9%88%D8%B8%D9%84%D9%85-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+
+
+### قنصلية الولايات المتحدة الأمريكية (N/A, Sun, 5 Apr 2026 05:50:00 -0700)
+
+- **نقل قنصلية أمريكا إلى القطب المالي**: [Link](https://www.hespress.com/%D9%86%D9%82%D9%84-%D9%82%D9%86%D8%B5%D9%84%D9%8A%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%B7%D8%A8-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A-1726247.html)
+- **القنصلية الأمريكية بالدار البيضاء تنتقل إلى مقرها الجديد بالقطب المالي**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%82%D9%86%D8%B5%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%AA%D9%86/)
+- **سفير أمريكا: الشراكة الإستراتيجية مع المغرب تعرف اليوم دينامية متميزة**: [Link](https://chouftv.ma/press/779614.html)
+
+
+### angers – lyon (N/A, Sun, 5 Apr 2026 05:50:00 -0700)
+
+- **SCO Angers - OL : les compositions officielles**: [Link](https://www.footmercato.net/a1688247405443130244-sco-angers-ol-les-compositions-officielles)
+- **Pari du jour : sur quoi parier ce dimanche 5 avril**: [Link](https://africafoot.com/pari-du-jour-sur-quoi-parier-ce-dimanche-5-avril/)
+- **« Ce n’est pas la kermesse : il faut encore des points » : quasiment maintenu, Angers Sco veut finaliser l’objectif**: [Link](https://angers.maville.com/sport/detail_--ce-n-est-pas-la-kermesse-il-faut-encore-des-points-quasiment-maintenu-angers-sco-veut-finaliser-l-objectif-_-7266649_actu.Htm)
+
+
+### كأس العالم fifa 2026™ (N/A, Sun, 5 Apr 2026 05:50:00 -0700)
+
+- **منتخب فرنسا يدخل المونديال بهجوم قيمته مليار يورو**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A8%D9%87%D8%AC%D9%88%D9%85-%D9%82%D9%8A%D9%85%D8%AA%D9%87-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D9%8A%D9%88%D8%B1%D9%88)
+- **المدرسة الفرنسية تفرض حضورها.. 6 مدربين يقودون منتخبات في كأس العالم 2026**: [Link](https://www.cairo24.com/2399038)
+- **حضور قوي للمدربين الأرجنتينيين والفرنسيين في مونديال 2026**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-fifa-2026/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AD%D8%B6%D9%88%D8%B1-%D9%82%D9%88%D9%8A-%D9%84%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D9%8A%D9%86-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-2026-04-02?videopage=true)
+
+
+### donald trump (N/A, Sun, 5 Apr 2026 05:50:00 -0700)
+
+- **"Open the Fu***In' Strait": Trump threatens to start bombing civilian infrastructure Tuesday**: [Link](https://www.axios.com/2026/04/05/trump-iran-strait-hormuz-bombing-threat)
+- **Trump drops Easter Sunday f-bomb in new threat to Iran**: [Link](https://thehill.com/homenews/administration/5816887-trump-threatens-iran-infrastructure-strait-of-hormuz/)
+- **US aviator rescued as Trump vows strikes on Iran’s infrastructure if Strait of Hormuz isn't reopened**: [Link](https://apnews.com/article/iran-us-israel-trump-lebanon-april-5-2026-pilot-cf4a792196259d6e9c066d0be1c57962)
+
+
+### maroc libye u17 (N/A, Sun, 5 Apr 2026 05:40:00 -0700)
+
+- **Tournoi UNAF U17 (dernière journée): dernier entraînement du Maroc avant le match face à la Libye**: [Link](https://frmf.ma/fr/articles/tournoi-unaf-u17-derniere-journee-dernier-entrainement-du-maroc-avant-le-match-face-a-la-libye)
+- **Maroc-Libye (U17): à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-libye-u17-a-quelle-heure-et-sur-quelle-chaine_AFQ5LB762BCUTG5VHM5OBVNT2Y/)
+- **UNAF U17 : Les Lionceaux prêts à conclure en beauté face à la Libye**: [Link](https://lionsdelatlas.ma/unaf-u17-les-lionceaux-prets-a-conclure-en-beaute-face-a-la-libye/)
+
+
 ### عطلة مدرسية (N/A, Sun, 5 Apr 2026 05:10:00 -0700)
 
 - **عطلة مدرسية جديدة في انتظار التلاميذ**: [Link](https://ar.lesiteinfo.com/maroc/%D8%B9%D8%B7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-4-994052.html)
