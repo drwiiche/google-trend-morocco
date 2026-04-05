@@ -1,3 +1,30 @@
+### عقد الزواج بالمغرب (N/A, Sun, 5 Apr 2026 00:00:00 -0700)
+
+- **العدول خارج الخدمة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D8%AF%D9%88%D9%84-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A9-1725579.html)
+- **عدول المغرب يعلنون التوقف الشامل عن العمل ابتداءً من 13 أبريل**: [Link](https://lakome2.com/societe/413639/)
+- **الكشف عن حقيقة رفع تكاليف عقود الزواج إلى 3500 درهم**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%B1%D9%81%D8%B9-%D8%AA%D9%83%D8%A7%D9%84%D9%8A%D9%81-%D8%B9%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%B2%D9%88%D8%A7%D8%AC-%D8%A5-994143.html)
+
+
+### barsa (N/A, Sat, 4 Apr 2026 13:50:00 -0700)
+
+- **Gol de Giuliano y roja a Nico González en Aleti-Barsa**: [Link](https://www.vermouth-deportivo.com.ar/gol-de-giuliano-y-roja-a-nico-gonzalez-en-aleti-barsa/)
+- **Sin Raphinha, en el Barcelona reaparece Rashford**: [Link](https://elpais.com/deportes/futbol/2026-04-04/sin-raphinha-en-el-barcelona-reaparece-rashford.html)
+- **"Tiene una gran oportunidad. Ha recuperado su mejor nivel en los entrenamientos": Flick sobre Rashford**: [Link](https://tribuna.com/es/news/2026-04-03-tiene-una-gran-oportunidad-ha-recuperado-su-mejor-nivel-en-los-entrenamientos-flick-sobre/)
+
+
+### taufik seidu (N/A, Sat, 4 Apr 2026 13:40:00 -0700)
+
+- **Ghanaian teenager Taufik Seidu makes Atletico Madrid debut in narrow defeat to Barcelona**: [Link](https://ghanasoccernet.com/ghanaian-teenager-taufik-seidu-makes-atletico-madrid-debut-in-narrow-defeat-to-barcelona)
+- **Ghanaian wonderkid Taufik Seidu makes Atletico Madrid debut against Barcelona in La Liga clash**: [Link](https://yen.com.gh/sports/football/302336-ghanaian-wonderkid-taufik-seidu-atletico-madrid-debut-barcelona-la-liga-clash/)
+
+
+### barcelona vs (N/A, Sat, 4 Apr 2026 12:20:00 -0700)
+
+- **Barcelona S.C. vs. Cruzeiro: venta de entradas habilitada**: [Link](https://www.barcelonasc.com.ec/2026/03/31/barcelona-s-c-vs-cruzeiro-venta-de-entradas-habilitada/)
+- **Árbitro confirmado para el debut de Barcelona SC en Copa Libertadores ante Cruzeiro**: [Link](https://www.eluniverso.com/deportes/futbol/arbitro-confirmado-para-el-debut-de-barcelona-sc-en-copa-libertadores-ante-cruzeiro-nota/)
+- **Barcelona SC anuncia precios para duelo ante Cruzeiro**: [Link](https://www.ecuagol.com/noticias/copa-libertadores/barcelona-sc-anuncia-precios-para-duelo-ante-cruzeiro/222430/)
+
+
 ### إنتر ميامي ضد أوستن (N/A, Sat, 4 Apr 2026 17:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر ميامي وأوستن في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%A7%D9%94%D9%88%D8%B3%D8%AA%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5b171100071ee579)
