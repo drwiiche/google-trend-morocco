@@ -1,3 +1,45 @@
+### guerre en iran (N/A, Sun, 5 Apr 2026 14:10:00 -0700)
+
+- **Ce que l’on sait de l’opération de sauvetage spectaculaire d’un aviateur américain en Iran**: [Link](https://www.lemonde.fr/international/article/2026/04/05/ce-que-l-on-sait-de-l-operation-de-sauvetage-spectaculaire-d-un-aviateur-americain-en-iran_6676894_3211.html)
+- **Pilote américain secouru en Iran: les Navy Seals ont été mobilisés pour cette mission**: [Link](https://www.bfmtv.com/international/moyen-orient/iran/video-pilote-americain-secouru-en-iran-les-navy-seals-ont-ete-mobilises-pour-cette-mission_VN-202604050323.html)
+- **Guerre au Moyen-Orient en direct : Trump profère des injures et fixe un nouvel ultimatum à l'Iran**: [Link](https://www.france24.com/fr/moyen-orient/20260405-en-direct-le-pilote-am%C3%A9ricain-recherch%C3%A9-en-iran-est-sain-et-sauf-annonce-trump)
+
+
+### monaco vs marseille (N/A, Sun, 5 Apr 2026 13:50:00 -0700)
+
+- **🎥 Balogun's BANGER against Marseille 😵**: [Link](https://sports.yahoo.com/articles/balogun-banger-against-marseille-202700674.html)
+- **Marseille predicted XI v Monaco: Ethan Nwaneri set for first start under Habib Beye**: [Link](https://www.getfootballnewsfrance.com/2026/marseille-predicted-xi-v-monaco-ethan-nwaneri-set-for-first-start-under-habib-beye/)
+- **Sunday's Ligue 1 predictions and previews including Monaco vs. Marseille**: [Link](https://www.sportsmole.co.uk/football/as-monaco/ligue-1-predictions/feature/monaco-to-claim-vital-win-over-marseille-sundays-ligue-1-predictions-and-previews_595072.html)
+
+
+### byd (N/A, Sun, 5 Apr 2026 13:50:00 -0700)
+
+- **Tesla Reclaims Global EV Sales Crown From BYD**: [Link](https://www.autoblog.com/news/tesla-reclaims-global-ev-sales-crown-from-byd)
+- **Tesla is sitting on thousands of unsold EVs, despite interest uptick**: [Link](https://www.usatoday.com/story/cars/shopping/2026/04/04/tesla-unsold-evs-high-gas-prices/89456924007/)
+- **Eyes on AI! Wedbush Keeps $600 Tesla Stock Price Target despite Q1 Miss**: [Link](https://finance.yahoo.com/markets/stocks/articles/eyes-ai-wedbush-keeps-600-191200232.html)
+
+
+### marc bernal (N/A, Sun, 5 Apr 2026 13:30:00 -0700)
+
+- **Araujo y Bernal, cara y cruz**: [Link](https://www.marca.com/futbol/barcelona/2026/04/05/buenas-noticias-araujo.html)
+- **Las lesiones en el Barça: pierde diez días a Bernal y respira con Araujo**: [Link](https://www.sport.es/es/noticias/barca/barca-respira-lesion-araujo-estara-128760949)
+- **Bernal quiere estar listo para la vuelta de la Champions**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260405/1004165336/bernal-quiere-listo-vuelta-champions.html)
+
+
+### وزارة الفلاحة والصيد البحري والتنمية القروية والمياه والغابات (N/A, Sun, 5 Apr 2026 13:20:00 -0700)
+
+- **"دكاترة الفلاحة" يلجؤون إلى الوسيط**: [Link](https://www.hespress.com/%D8%AF%D9%83%D8%A7%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D8%A9-%D9%8A%D9%84%D8%AC%D8%A4%D9%88%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%B3%D9%8A%D8%B7-1726282.html)
+- **دكاترة وزارة الفلاحة يراسلون وسيط المملكة ويطالبون بـ«التسوية الشاملة».**: [Link](https://ar.le360.ma/politique/MF7Y5TMOXFECRODUVHZIZCDOEY/)
+- **دكاترة “الفلاحة” يجرون الوزارة إلى “وسيط المملكة” ويحذرون من استمرار تهميش الكفاءات العليا**: [Link](https://al3omk.com/1150251.html)
+
+
+### تقاعد (N/A, Sun, 5 Apr 2026 13:00:00 -0700)
+
+- **الحوار الاجتماعي يعلّق اجتماعات اللجنة التقنية لإصلاح التقاعد بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D9%8A%D8%B9%D9%84%D9%91%D9%82-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%84%D8%AC-1726351.html)
+- **المشاركة السياسية.. أكثر من 90 في المائة من المغاربة خارج أي انخراط حزبي**: [Link](https://ar.telquel.ma/%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D9%81%D9%8A-%D9%85%D9%88%D8%B9%D8%AF%D9%87%D8%A7-%D9%88%D8%A8%D8%A7%D9%8A%D8%AA/)
+- **قبل فاتح ماي.. انفراج مرتقب في الحوار الاجتماعي**: [Link](https://ar.hibapress.com/details-715127.html)
+
+
 ### أيوب بوعدي (N/A, Sun, 5 Apr 2026 13:20:00 -0700)
 
 - **بين المغرب وفرنسا.. قرار بوعدي بـ"يد زيدان"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7--%D9%82%D8%B1%D8%A7%D8%B1-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%A8%D9%80-%D9%8A%D8%AF-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86/blt42c0eb5df6880911)
