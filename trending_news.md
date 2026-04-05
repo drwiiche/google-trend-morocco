@@ -1,3 +1,22 @@
+### أيوب بوعدي (N/A, Sun, 5 Apr 2026 13:20:00 -0700)
+
+- **بين المغرب وفرنسا.. قرار بوعدي بـ"يد زيدان"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7--%D9%82%D8%B1%D8%A7%D8%B1-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%A8%D9%80-%D9%8A%D8%AF-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86/blt42c0eb5df6880911)
+- **حيرة الواعد بوعدي بين فرنسا والمغرب قبل كأس العالم**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%AD%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%88%D8%A7%D8%B9%D8%AF-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%A8%D9%8A%D9%86-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%82%D8%A8%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-112118)
+- **بوعدي: اختيار المنتخب قرار القلب والعائلة**: [Link](https://snrtnews.com/article/149002)
+
+
+### armée allemande (N/A, Sun, 5 Apr 2026 13:10:00 -0700)
+
+- **En Allemagne, désormais les hommes de 17 à 45 ans doivent avoir l’autorisation de l’armée pour un long séjour à l’étranger**: [Link](https://www.sudouest.fr/societe/defense/en-allemagne-desormais-les-hommes-de-17-a-45-ans-doivent-avoir-l-autorisation-de-l-armee-pour-un-long-sejour-a-l-etranger-28575272.php)
+- **Allemagne : une autorisation de l'armée pour un long séjour à l'étranger ?**: [Link](https://fr.euronews.com/2026/04/04/service-militaire-autorisation-obligatoire-des-hommes-pour-sejour-a-letranger)
+- **Allemagne : les hommes de 17 à 45 ans doivent désormais obtenir une autorisation de l’armée pour un long séjour à l’étranger**: [Link](https://www.leparisien.fr/international/allemagne/allemagne-les-hommes-de-17-a-45-ans-doivent-desormais-obtenir-une-autorisation-de-larmee-pour-un-long-sejour-a-letranger-04-04-2026-PNS3N4LEWZG6HNTARZZYLQ4JAY.php)
+
+
+### الدوري المغربي (N/A, Sun, 5 Apr 2026 12:20:00 -0700)
+
+
+
+
 ### عاصفة (N/A, Sun, 5 Apr 2026 12:10:00 -0700)
 
 - **الأرصاد تكشف موعد عودة الأمطار.. وخريطة طقس الـ7 أيام المقبلة**: [Link](https://www.almasryalyoum.com/news/details/4237520)
