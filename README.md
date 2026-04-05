@@ -1,3 +1,31 @@
+### west ham – leeds united (N/A, Sun, 5 Apr 2026 08:00:00 -0700)
+
+- **Bowen | It’s a big opportunity, a big moment, and one I’m really looking forward to**: [Link](https://www.whufc.com/en/news/bowen-or-its-a-big-opportunity-a-big-moment-and-one-im-really-looking)
+- **Nuno hoping Summerville fit for West Ham today**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-nuno-hoping-summerville-fit-for-west-ham-today-25e88c3a-1456-43f8-8da0-844b60bc3aed)
+- **Daniel Farke On Why He Will Field A Full Strength Team Against West Ham: Is He Gambling With Leeds United Survival?**: [Link](https://onefootball.com/de/news/daniel-farke-on-why-he-will-field-a-full-strength-team-against-west-ham-is-he-gambling-with-leeds-united-survival-42661629)
+
+
+### إسبانيا (N/A, Sun, 5 Apr 2026 08:00:00 -0700)
+
+- **مصر: اتصالات مكثفة لبحث التصعيد العسكري الإقليمي وجهود خفضه**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%85%D8%B5%D8%B1-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D9%85%D9%83%D8%AB%D9%81%D8%A9-%D9%84%D8%A8%D8%AD%D8%AB-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A-%D9%88%D8%AC%D9%87%D9%88%D8%AF-%D8%AE%D9%81%D8%B6%D9%87/3892643)
+- **قبل ساعات من انتهاء مهلة ترامب.. اتصالات مكثفة لوزير الخارجية المصري لبحث خفض التصعيد في المنطقة**: [Link](https://www.alquds.co.uk/%D9%82%D8%A8%D9%84-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D9%85%D9%87%D9%84%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA/)
+- **مصر تجري اتصالات مع ويتكوف ودول إقليمية لبحث التهدئة وسط مؤشرات تصعيد محتمل**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260405-%D9%85%D8%B5%D8%B1-%D8%AA%D8%AC%D8%B1%D9%8A-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D9%85%D8%B9-%D9%88%D9%8A%D8%AA%D9%83%D9%88%D9%81-%D9%88%D8%AF%D9%88%D9%84-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9-%D9%84%D8%A8%D8%AD%D8%AB-%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D8%A6%D8%A9-%D9%88%D8%B3%D8%B7-%D9%85%D8%A4%D8%B4%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D9%85%D8%AD%D8%AA%D9%85%D9%84)
+
+
+### هانزي فليك (N/A, Sun, 5 Apr 2026 07:20:00 -0700)
+
+- **فيديو.. مشجع أتلتيكو ليامال: أنت قبيح جدا.. عد إلى المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%85%D8%B4%D8%AC%D8%B9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%84%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%A7%D9%94%D9%86%D8%AA-%D9%82%D8%A8%D9%8A%D8%AD-%D8%AC%D8%AF%D8%A7--%D8%B9%D8%AF-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltb086e5a26d62eb7b)
+- **بالفيديو.. فليك يكشف سر غضب لامين جمال بعد الفوز على أتلتيكو مدريد**: [Link](https://www.aljazeera.net/sport/2026/4/5/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%BA%D8%B6%D8%A8-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88)
+- **فليك عن ردة فعل لامين يامال: "تحدثنا في غرفة الملابس وكل شيء على ما يرام"**: [Link](https://m.elbotola.com/article/2026-04-04-22-43-297.html)
+
+
+### عيد الأضحى (N/A, Sun, 5 Apr 2026 06:50:00 -0700)
+
+- **شركات تجمع "جلود الأبقار" يوميا بالمجان .. أرباح غامضة وخسائر معلنة**: [Link](https://www.hespress.com/%D8%B4%D8%B1%D9%83%D8%A7%D8%AA-%D8%AA%D8%AC%D9%85%D8%B9-%D8%AC%D9%84%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%A8%D9%82%D8%A7%D8%B1-%D9%8A%D9%88%D9%85%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D8%AC%D8%A7-1725882.html)
+- **تجاوزا 130 درهما للكيلوغرام.. سوق لحوم الإبل يعرف ارتفاعا وسط مخاوف المستهلكين**: [Link](https://2m.ma/ar/news/%D8%AA%D8%AC%D8%A7%D9%88%D8%B2%D8%A7-130-%D8%AF%D8%B1%D9%87%D9%85%D8%A7-%D9%84%D9%84%D9%83%D9%8A%D9%84%D9%88%D8%BA%D8%B1%D8%A7%D9%85-%D8%B3%D9%88%D9%82-%D9%84%D8%AD%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%A8%D9%84-%D9%8A%D8%B9%D8%B1%D9%81-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9%D8%A7-%D9%88%D8%B3%D8%B7-%D9%85%D8%AE%D8%A7%D9%88%D9%81-20260331)
+- **العيون: عزوف ملحوظ عن شراء اللحوم والخضر بسبب ارتفاع الأسعار**: [Link](https://ar.le360.ma/economie/SC6UZ7OAL5AFFONE5FSKBCWRXI/)
+
+
 ### حكيم زياش (N/A, Sun, 5 Apr 2026 07:40:00 -0700)
 
 - **اعتراف مرير يهز الوداد.. كارتيرون يقرّ بالعجز بعد السقوط الأول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81-%D9%85%D8%B1%D9%8A%D8%B1-%D9%8A%D9%87%D8%B2-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF--%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%8A%D9%82%D8%B1%D9%91-%D8%A8%D8%A7%D9%84%D8%B9%D8%AC%D8%B2-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84/blte5d40f3822906c75)
