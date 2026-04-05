@@ -1,3 +1,17 @@
+### luka dončić (N/A, Sat, 4 Apr 2026 23:10:00 -0700)
+
+- **Luka Doncic: Los Angeles Lakers star to miss rest of regular NBA season with injury**: [Link](https://www.bbc.com/sport/basketball/articles/ckgwjnwd9p7o)
+- **Luka Doncic's injury could mean he's out of the NBA award race. How does that process work?**: [Link](https://apnews.com/article/nba-awards-5d2f99c80f3b94799316dab942f752aa)
+- **Injury Notes: Doncic, Embiid, Sabonis, Smart**: [Link](https://www.hoopsrumors.com/2026/04/injury-notes-doncic-embiid-sabonis-smart.html)
+
+
+### atletico madrid (N/A, Sat, 4 Apr 2026 12:40:00 -0700)
+
+- **LaLiga - Atletico Madrid v FC Barcelona**: [Link](https://www.reutersconnect.com/item/laliga-atletico-madrid-v-fc-barcelona/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNNDQxSjhYS1g)
+- **LaLiga - Atletico Madrid v FC Barcelona**: [Link](https://www.reutersconnect.com/item/laliga-atletico-madrid-v-fc-barcelona/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNNDQxSzhWTFc)
+- **REFILE: Buildings damaged in Petah Tikva after missiles launched from Iran**: [Link](https://www.reutersconnect.com/item/refile-buildings-damaged-in-petah-tikva-after-missiles-launched-from-iran/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1ZBOTYyNTAyMDQyMDI2UlAx)
+
+
 ### عقد الزواج بالمغرب (N/A, Sun, 5 Apr 2026 00:00:00 -0700)
 
 - **العدول خارج الخدمة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D8%AF%D9%88%D9%84-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A9-1725579.html)
