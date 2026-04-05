@@ -1,3 +1,24 @@
+### getafe – ath. bilbao (N/A, Sun, 5 Apr 2026 04:20:00 -0700)
+
+- **Getafe - Athletic | Bordalás y la amenaza Williams: previa, análisis, pronóstico y predicción**: [Link](https://www.marca.com/futbol/primera-division/2026/04/04/getafe-athletic-bordalas-amenaza-williams-previa-analisis-pronostico-prediccion.html)
+- **Otra cara en las salidas**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20260405/1004164861/cara-salidas.html)
+- **El Athletic encadena seis partidos sin perder en el Coliseum**: [Link](https://cadenaser.com/euskadi/2026/04/03/el-athletic-encadena-seis-partidos-sin-perder-en-el-coliseum-radio-bilbao/)
+
+
+### ricardo ortiz torero (N/A, Sun, 5 Apr 2026 02:30:00 -0700)
+
+- **El trágico destino de Ricardo Ortiz: ¿Cómo pudo un toro sorprender y matar a un maestro de la lidia?**: [Link](https://www.hola.com/actualidad/20260404893602/muere-ricardo-ortiz-por-un-toro/)
+- **Muerte instantánea: un trágico accidente conmueve a España... ¿Qué ha pasado?**: [Link](https://www.goal.com/es-cl/noticias/muerte-instantanea-un-tragico-accidente-conmueve-a-espana-que-ha-pasado/bltca3b133349bd6fcc)
+- **Muere un torero retirado tras ser corneado por un toro antes de una corrida en el sur de España**: [Link](https://cnnespanol.cnn.com/2026/04/04/espana/muere-torero-retirado-corneado-toro-trax)
+
+
+### لالة العروسة (N/A, Sun, 5 Apr 2026 01:40:00 -0700)
+
+- **السعدية لاديب تشعل الحماس قبل انطلاق البرايم الأول من "لالة لعروسة"**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%A7%D9%84%D8%B3%D8%B9%D8%AF%D9%8A%D8%A9-%D9%84%D8%A7%D8%AF%D9%8A%D8%A8-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AD%D9%85%D8%A7%D8%B3-%D9%82%D8%A8%D9%84-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7-246851.html)
+- **في الموسم الـ20.. صويلح يعوض أزكون في “لالة العروسة”**: [Link](https://machahid24.com/panorama/496212.html)
+- **لديب سعيدة بتجربة “لالة العروسة”**: [Link](https://assabah.ma/912881.html)
+
+
 ### برشلونة اليوم (N/A, Sat, 4 Apr 2026 12:40:00 -0700)
 
 - **أولمو: مارتن لا يستحق الطرد.. ولاعب أتلتيكو الدليل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D9%84%D9%85%D9%88-%D9%85%D8%A7%D8%B1%D8%AA%D9%86-%D9%84%D8%A7-%D9%8A%D8%B3%D8%AA%D8%AD%D9%82-%D8%A7%D9%84%D8%B7%D8%B1%D8%AF--%D9%88%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%87%D9%88-%D8%A7%D9%84%D8%AF%D9%84%D9%8A%D9%84/bltff4a6c0366bd82c0)
