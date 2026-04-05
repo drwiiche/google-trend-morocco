@@ -1,3 +1,24 @@
+### botola pro (N/A, Sun, 5 Apr 2026 10:40:00 -0700)
+
+- **Ziyech Injury Against FUS Threatens Participation vs. DHJ**: [Link](https://m.elbotola.com/en/article/2026-04-04-19-16-635.html)
+- **A bitter admission rocks Wydad… Carteron admits defeat following their first loss**: [Link](https://www.goal.com/en/news/a-bitter-admission-rocks-wydad-carteron-admits-defeat-following-their-first-loss/blte5d40f3822906c75)
+- **Botola: Date, time, channels and head-to-head history of the FUS Rabat – Wydad clash**: [Link](https://foot-africa.com/en/news/botola-date-time-channels-and-head-to-head-history-of-the-fus-rabat-wydad-clash-1150034/)
+
+
+### نهضة بركان ضد المغرب الفاسي (N/A, Sun, 5 Apr 2026 10:30:00 -0700)
+
+- **نقاط بيع تذاكر جمهور المغرب الفاسي**: [Link](https://www.hesport.com/%D9%86%D9%82%D8%A7%D8%B7-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-433535.html)
+- **نهضة بركان تخصص 1500 تذكرة لجماهير المغرب الفاسي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%AA%D8%AE%D8%B5%D8%B5-1500-%D8%AA%D8%B0%D9%83%D8%B1%D8%A9-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A/18103)
+- **المغرب الفاسي يطرح تذاكر مواجهة نهضة بركان ويوفر نقاط بيع بفاس**: [Link](https://ar.hibapress.com/details-715083.html)
+
+
+### ألفارو أربيلوا (N/A, Sun, 5 Apr 2026 10:30:00 -0700)
+
+- **صحيفة مدريدية: هذا هو الخاسر الأكبر أمام مايوركا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AD%D9%8A%D9%81%D8%A9-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF%D9%8A%D8%A9-%D9%87%D8%B0%D8%A7-%D9%87%D9%88-%D8%A7%D9%84%D8%AE%D8%A7%D8%B3%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%83%D8%A8%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7/bltd0e7f53933fb46c0)
+- **أربيلوا يدافع عن بيلينغهام بعد خسارة ريال مدريد قبل مواجهة بايرن ميونخ**: [Link](https://m.elbotola.com/article/2026-04-05-11-00-915.html)
+- **أدوار مفقودة في تشكيلة الريال وأرقام لا تؤهل للفوز بالألقاب !**: [Link](https://hihi2.com/2026/04/05/p3714448.html)
+
+
 ### فالنسيا ضد سلتا فيغو (N/A, Sun, 5 Apr 2026 08:10:00 -0700)
 
 - **الدوري الإسباني.. سلتا فيغو يستعيد نغمة الانتصارات على حساب فالنسيا**: [Link](https://www.alkhaleej.ae/2026-04-05/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B3%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%BA%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-6390416/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%AF%D9%88%D9%84%D9%8A)
