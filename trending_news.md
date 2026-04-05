@@ -1,3 +1,24 @@
+### bitcoin (N/A, Sun, 5 Apr 2026 08:50:00 -0700)
+
+- **What could a US ground invasion of Iran mean for Bitcoin and cryptocurrencies?**: [Link](https://www.fxstreet.com/news/what-could-a-us-ground-invasion-of-iran-mean-for-bitcoin-and-cryptocurrencies-202604031201)
+- **BTC after Trump's night speech fulfilled the condition for opening a short according to our current strategy**: [Link](https://www.binance.com/en/square/post/308143999825826)
+- **Crypto Weekly Recap: Trump Spooked Bitcoin, Google Scared Everyone Else — Here’s What Happened**: [Link](https://www.mexc.com/news/1005443)
+
+
+### le havre – auxerre (N/A, Sun, 5 Apr 2026 08:50:00 -0700)
+
+- **« Un match où on a tout à gagner » : face à Auxerre, une chance de repousser le barragiste à 8 points pour Didier Digard et les Havrais**: [Link](https://www.lequipe.fr/Football/Actualites/-un-match-ou-on-a-tout-a-gagner-face-a-auxerre-une-chance-de-repousser-le-barragiste-a-8-points-pour-didier-digard-et-les-havrais/1665148)
+- **Le groupe pour le déplacement au Havre**: [Link](https://www.aja.fr/le-groupe-pour-le-deplacement-au-havre-3/)
+- **Football – HAC : un mois et quatre duels pour repousser tous les dangers**: [Link](https://www.paris-normandie.fr/id708808/article/2026-04-05/football-hac-un-mois-et-quatre-duels-pour-repousser-tous-les-dangers)
+
+
+### tindouf (N/A, Sun, 5 Apr 2026 08:20:00 -0700)
+
+- **Sahara : Tindouf, la ville derrière le symbole du Polisario**: [Link](https://www.jeuneafrique.com/1784903/politique/sahara-tindouf-la-ville-derriere-le-symbole-du-polisario/)
+- **Le nouveau président du conseil national supervise une réunion technique en préparation du 50eme anniversaire de la RASD**: [Link](https://www.spsrasd.info/fr/2026/04/02/14905.html)
+- **Tindouf : Les minorités tribales protestent, la majorité proche de l’Algérie observe le silence**: [Link](https://www.yabiladi.com/articles/details/191701/tindouf-minorites-tribales-protestent-majorite.html)
+
+
 ### madrid club de fútbol femenino – real madrid club de fútbol (N/A, Sun, 5 Apr 2026 08:40:00 -0700)
 
 - **Pau Quesada: “Somos capaces de competir contra todos, a excepción del Barça”**: [Link](https://www.mundodeportivo.com/futbol/femenino/20260402/1004164015/pau-quesada-capaces-competir-todos-excepcion-barca.html)
