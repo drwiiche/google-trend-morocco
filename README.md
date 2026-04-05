@@ -1,3 +1,10 @@
+### armée allemande autorisation (N/A, Sun, 5 Apr 2026 16:30:00 -0700)
+
+- **En Allemagne, désormais les hommes de 17 à 45 ans doivent avoir l’autorisation de l’armée pour un long séjour à l’étranger**: [Link](https://www.sudouest.fr/societe/defense/en-allemagne-desormais-les-hommes-de-17-a-45-ans-doivent-avoir-l-autorisation-de-l-armee-pour-un-long-sejour-a-l-etranger-28575272.php)
+- **Allemagne : une autorisation de l'armée pour un long séjour à l'étranger ?**: [Link](https://fr.euronews.com/2026/04/04/service-militaire-autorisation-obligatoire-des-hommes-pour-sejour-a-letranger)
+- **Allemagne : les hommes de 17 à 45 ans doivent désormais obtenir une autorisation de l’armée pour un long séjour à l’étranger**: [Link](https://www.leparisien.fr/international/allemagne/allemagne-les-hommes-de-17-a-45-ans-doivent-desormais-obtenir-une-autorisation-de-larmee-pour-un-long-sejour-a-letranger-04-04-2026-PNS3N4LEWZG6HNTARZZYLQ4JAY.php)
+
+
 ### نادي النهضة البركانية (N/A, Sun, 5 Apr 2026 15:20:00 -0700)
 
 - **"الماص" ينتزع التعادل بمدينة بركان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D9%86%D8%AA%D8%B2%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A8%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-1726572.html)
