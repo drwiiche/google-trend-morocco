@@ -1,3 +1,52 @@
+### juventus vs genoa (N/A, Mon, 6 Apr 2026 09:50:00 -0700)
+
+- **Juventus probable lineup vs Genoa: Boga the favourite over Vlahovic**: [Link](https://www.juvefc.com/juventus-probable-lineup-vs-genoa-boga-the-favourite-over-vlahovic/)
+- **De Rossi praise for ‘modern coach’ Spalletti**: [Link](https://onefootball.com/de/news/de-rossi-praise-for-modern-coach-spalletti-42670169)
+- **Juventus vs Genoa Prediction, 4/6/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/juventus-vs-genoa-prediction-4-6-2026-soccer-pick-tips-and-odds.html)
+
+
+### يوسف حجي (N/A, Mon, 6 Apr 2026 09:10:00 -0700)
+
+- **مساعد وهبي يفاجئ ثنائي المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B3%D8%A7%D8%B9%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt746eafcd3a7cc416)
+- **الكوكب والجيش يفترقان بتعادل سلبي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%8A%D9%81%D8%AA%D8%B1%D9%82%D8%A7%D9%86-%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B3%D9%84%D8%A8%D9%8A-1726636.html)
+- **سانتوس: لا وجود لمباريات سهلة في البطولة الاحترافية**: [Link](https://www.radiomars.ma/%D8%B3%D8%A7%D9%86%D8%AA%D9%88%D8%B3-%D9%84%D8%A7-%D9%88%D8%AC%D9%88%D8%AF-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B3%D9%87%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84/)
+
+
+### إسرائيل (N/A, Mon, 6 Apr 2026 09:10:00 -0700)
+
+- **حرب إيران مباشر.. قصف إيراني مكثف لإسرائيل ومقترح باكستاني لوقف القتال**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/5/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **الحرب على إيران: ما الذي تريده واشنطن؟ | عصام نعمان**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A7-%D8%A7%D9%84%D8%B0%D9%8A-%D8%AA%D8%B1%D9%8A%D8%AF%D9%87-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86%D8%9F/)
+- **مهلة ترامب لإيران وتواصل الضربات..الحرب تدخل أسبوعها السادس**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/06/trump-threatens-iran-with-a-new-deadline-what-we-know-about-the-war-now-in-its-6th-week)
+
+
+### achraf hakimi (N/A, Mon, 6 Apr 2026 09:00:00 -0700)
+
+- **Hakimi llega a los 200 partidos con el PSG y brilla en el 3-1 al Toulouse**: [Link](https://redamazonica.org/hakimi-llega-a-los-200-partidos-con-el-psg-y-brilla-en-el-3-1-al-toulouse/)
+- **Achraf Hakimi pide un nuevo contrato en el PSG tras coquetear con el Real Madrid**: [Link](https://www.eldesmarque.com/futbol/mercado-de-fichajes/20260406/achraf-hakimi-contrato-psg-sonar-real-madrid_18_018800640.html)
+- **PSG rinde homenaje a Hakimi tras alcanzar los 200 partidos con el club**: [Link](https://es.rue20.com/2026/04/05/psg-rinde-homenaje-a-hakimi-tras-alcanzar-los-200-partidos-con-el-club/)
+
+
+### منتخب إرتريا لكرة القدم (N/A, Mon, 6 Apr 2026 08:20:00 -0700)
+
+- **بعثة منتخب إريتريا تفقد سبعة من لاعبيها**: [Link](https://www.hesport.com/%D8%A8%D8%B9%D8%AB%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B1%D9%8A%D8%AA%D8%B1%D9%8A%D8%A7-%D8%AA%D9%81%D9%82%D8%AF-%D8%B3%D8%A8%D8%B9%D8%A9-%D9%85%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-433806.html)
+- **«سمسار وعدهم».. هشام يكن يكشف تفاصيل هروب 7 لاعبين من منتخب إريتريا (خاص)**: [Link](https://www.almasryalyoum.com/news/details/4238348)
+- **محمد رمضان سعد: تحديات المنتخب الإرتري بعد العودة إلى المنافسات القارية**: [Link](https://www.raialyoum.com/%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B3%D8%B9%D8%AF-%D8%AA%D8%AD%D8%AF%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A5%D8%B1%D8%AA%D8%B1%D9%8A/)
+
+
+### مطر (N/A, Mon, 6 Apr 2026 08:00:00 -0700)
+
+- **هدوء ما قبل العاصفة.. بيان مهم بشأن تقلبات الطقس: عودة الأمطار بقوة**: [Link](https://www.almasryalyoum.com/news/details/4237580)
+- **الأرصاد تحذر من شبورة كثيفة ورياح مثيرة للأتربة غدًا في عدة مناطق**: [Link](https://mrj3y.com/414887/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1/)
+- **تحذير من ظاهرة طقسية متوقعة غداً الأحد**: [Link](https://pls48.net/56398/__trashed-785/)
+
+
+### arbitre ordres can sénégal maroc (N/A, Mon, 6 Apr 2026 07:40:00 -0700)
+
+- **EXCLUSIF. Finale CAN 2025. Pourquoi la CAF a sanctionné le Sénégal**: [Link](https://medias24.com/2026/04/06/finale-can-2025-pourquoi-la-caf-a-sanctionne-le-senegal-1654333/)
+- **CAN 2025 : Abdoulaye Fall et Fouzi Lekjâa rejouent la finale**: [Link](https://www.jeuneafrique.com/1785537/politique/can-2025-abdoulaye-fall-et-fouzi-lekjaa-rejouent-la-finale/)
+- **Sénégal-Maroc : la confidence de Koulibaly sur Yassine Bounou**: [Link](https://www.footmercato.net/a7894892402893583615-senegal-maroc-la-confidence-de-koulibaly-sur-yassine-bounou)
+
+
 ### طقس طنجة (N/A, Mon, 6 Apr 2026 08:50:00 -0700)
 
 - **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-55-1726163.html)
