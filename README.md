@@ -1,3 +1,24 @@
+### groupe ocp (N/A, Mon, 6 Apr 2026 01:30:00 -0700)
+
+- **SÉRIE EP. 39 n°1195. Guerre des engrais : OCP freine sa production, le calcul stratégique d’un géant en quête de prix**: [Link](https://ledesk.ma/enclair/guerre-des-engrais-ocp-freine-sa-production-le-calcul-strategique-dun-geant-en-quete-de-prix/)
+- **Le géant marocain des engrais OCP ne tremble pas malgré un contexte des plus incertains**: [Link](https://www.jeuneafrique.com/1784965/economie-entreprises/le-geant-marocain-des-engrais-ocp-ne-tremble-pas-malgre-un-contexte-des-plus-incertains/)
+- **OCP : Bénéfices de 17,6 milliards de dirhams en 2025**: [Link](https://lematin.ma/economie/ocp-benefices-de-176-milliards-de-dirhams-en-2025/337739)
+
+
+### حالة الطقس (N/A, Sun, 5 Apr 2026 23:20:00 -0700)
+
+- **هدوء ما قبل العاصفة.. بيان مهم بشأن تقلبات الطقس: عودة الأمطار بقوة**: [Link](https://www.almasryalyoum.com/news/details/4237580)
+- **درجات الحرارة اليوم الأحد تصل إلى 27 بالقاهرة وتتجاوز 30 بالصعيد**: [Link](https://pls48.net/55986/__trashed-621/)
+- **الأرصاد تحذر من شبورة كثيفة ورياح مثيرة للأتربة غدًا في عدة مناطق**: [Link](https://mrj3y.com/414887/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1/)
+
+
+### windy (N/A, Sun, 5 Apr 2026 23:10:00 -0700)
+
+- **An active weather week ahead**: [Link](https://www.wmtv15news.com/2026/04/05/an-active-weather-week-ahead/)
+- **Temperatures warm up Easter Sunday, but the chance for spring showers remains**: [Link](https://kstp.com/kstp-news/weather-forecast/easter-sunday-looks-decent-though-not-perfect-chris/)
+- **Easter Sunday Weather Forecast | Mostly sunny skies as winds gradually decrease, heavy rain next week**: [Link](https://www.kitv.com/weather/easter-sunday-weather-forecast-mostly-sunny-skies-as-winds-gradually-decrease-heavy-rain-next-week/video_2b69c211-4134-5b21-9761-b804ea131154.html)
+
+
 ### مجتبى خامنئي (N/A, Mon, 6 Apr 2026 02:00:00 -0700)
 
 - **فيديو الظهور الأول للمرشد الجديد بإيران يشعل المنصات.. ما قصته؟**: [Link](https://www.aljazeera.net/news/2026/4/6/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%84%D9%85%D8%B1%D8%B4%D8%AF-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF)
