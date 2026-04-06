@@ -1,3 +1,17 @@
+### trump santé (N/A, Mon, 6 Apr 2026 09:20:00 -0700)
+
+- **Donald Trump transporté à l’hôpital ? Son porte-parole réagit après de vives inquiétudes sur sa santé**: [Link](https://www.gala.fr/l_actu/news_de_stars/donald-trump-transporte-a-l-hopital-son-porte-parole-reagit-apres-de-vives-inquietudes-sur-sa-sante-20260405)
+- **Donald Trump annule toutes ses apparitions : cette décision qui a déclenché la rumeur d’une hospitalisation**: [Link](https://sobusygirls.fr/2026/04/06/donald-trump-annule-toutes-ses-apparitions-cette-decision-qui-a-declenche-la-rumeur-dune-hospitalisation/)
+- **Donald Trump hospitalisé ? La Maison-Blanche dément les rumeurs**: [Link](https://www.mediaterranee.com/0572026-donald-trump-hospitalise-la-maison-blanche-dement-les-rumeurs.html)
+
+
+### fonds monétaire international (N/A, Mon, 6 Apr 2026 09:10:00 -0700)
+
+- **Qui est Zeine Ould Zeidane, l’économiste mauritanien qui prend les rênes du département Afrique du FMI ?**: [Link](https://www.jeuneafrique.com/1785764/economie-entreprises/qui-est-zeine-ould-zeidane-leconomiste-mauritanien-qui-prend-les-renes-du-departement-afrique-du-fmi/)
+- **Afrique subsaharienne : Les enjeux de la nomination de Zeine Zeidane au FMI**: [Link](https://www.ndarinfo.com/Afrique-subsaharienne-Les-enjeux-de-la-nomination-de-Zeine-Zeidane-au-FMI_a43887.html)
+- **FMI : Kristalina Georgieva nomme Zeine Zeidane à la tête du département Afrique**: [Link](https://www.lactuacho.com/fmi-kristalina-georgieva-nomme-zeine-zeidane-a-la-tete-du-departement-afrique/)
+
+
 ### juventus vs genoa (N/A, Mon, 6 Apr 2026 09:50:00 -0700)
 
 - **Juventus probable lineup vs Genoa: Boga the favourite over Vlahovic**: [Link](https://www.juvefc.com/juventus-probable-lineup-vs-genoa-boga-the-favourite-over-vlahovic/)
