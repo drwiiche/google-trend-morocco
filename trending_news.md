@@ -1,3 +1,31 @@
+### naples – ac milan (N/A, Mon, 6 Apr 2026 11:30:00 -0700)
+
+- **Napoli vs AC Milan: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwy3j00ywyyt)
+- **Serie A official line-ups: Napoli vs. Milan**: [Link](https://sports.yahoo.com/articles/serie-official-line-ups-napoli-174000060.html)
+- **A sudden illness rules out the Napoli star from the Milan clash**: [Link](https://www.goal.com/en-us/news/a-sudden-illness-rules-out-the-napoli-star-from-the-milan-clash/bltc4286eff38f59445)
+
+
+### girona – villarreal (N/A, Mon, 6 Apr 2026 11:10:00 -0700)
+
+- **Míchel y rumores Ajax: su respuesta sobre el Girona en LaLiga**: [Link](https://redamazonica.org/michel-responde-a-rumores-sobre-el-ajax-estoy-muy-enamorado-del-girona/)
+- **Marcelino García alimenta la incertidumbre**: [Link](https://www.fichajes.com/a2751048620119605803-marcelino-garcia-alimenta-la-incertidumbre)
+- **Partidos de fútbol de hoy: horario, canal y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20260406/1004165499/partidos-futbol-hoy-horario-canal-ver-tv.html)
+
+
+### barcelona vs levante badalona (N/A, Mon, 6 Apr 2026 10:50:00 -0700)
+
+- **Barcelona - Badalona, en directo: sigue el derbi de la Liga F en vivo**: [Link](https://www.sport.es/es/noticias/barca/futbol-femenino/barcelona-badalona-directo-sigue-derbi-128800006)
+- **Resaca emocional en el Johan**: [Link](https://socblaugrana.com/previa/resaca-emocional-en-el-johan/)
+- **Un derbi catalán para ponerle el broche a la vigésima quinta jornada**: [Link](https://ligaf.es/noticia/un-derbi-catalan-para-ponerle-el-broche-a-la-vigesima-quinta-jornada)
+
+
+### one (N/A, Mon, 6 Apr 2026 09:40:00 -0700)
+
+- **Trump Says He’s Calling Iran’s Bluff in Eight-Minute Interview With WSJ**: [Link](https://www.wsj.com/politics/trump-says-hes-calling-irans-bluff-in-eight-minute-interview-with-wsj-9d7b2a35?gaa_at=eafs&gaa_n=AWEtsqc6FYjUUgr4PNdAeyI2yEEUiGu5UKlEyJvSC_tNf_ebWRF4ONKu5Qi2&gaa_ts=69d40348&gaa_sig=bYAW0Ducfg7AryMtoc647zMRh0TspVf7UHfxztNMgbSPdNoi7OrbL5aXi6K5DTxGDy1lyPNEkDuLGGuIDXDjGw%3D%3D)
+- **Iran live updates: Trump says Iran 'can be taken out in one night'**: [Link](https://6abc.com/live-updates/iran-war-strait-hormuz-ceasefire-trump-stock-market/18847792/)
+- **Here’s a Timeline of Trump’s Ultimatums Over the Strait of Hormuz**: [Link](https://www.nytimes.com/2026/04/05/world/middleeast/trump-strait-of-hormuz-deadline-iran-war.html)
+
+
 ### trump santé (N/A, Mon, 6 Apr 2026 09:20:00 -0700)
 
 - **Donald Trump transporté à l’hôpital ? Son porte-parole réagit après de vives inquiétudes sur sa santé**: [Link](https://www.gala.fr/l_actu/news_de_stars/donald-trump-transporte-a-l-hopital-son-porte-parole-reagit-apres-de-vives-inquietudes-sur-sa-sante-20260405)
