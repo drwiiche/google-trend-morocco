@@ -1,3 +1,22 @@
+### wac (N/A, Mon, 6 Apr 2026 14:20:00 -0700)
+
+- **Dominant weekend lands Schultz WAC Pitcher of the Week honors**: [Link](https://tarletonsports.com/news/2026/4/6/softball-dominant-weekend-lands-schultz-wac-pitcher-of-the-week-honors.aspx)
+- **This Week in WAC Softball - March 31**: [Link](https://wacsports.com/news/2026/3/31/this-week-in-wac-softball-march-31.aspx)
+- **Jersey Mike’s A Sub Above WAC Softball Players of the Week Announced**: [Link](https://wacsports.com/news/2026/3/30/jersey-mikes-a-sub-above-wac-softball-players-of-the-week-announced.aspx)
+
+
+### wydad ac (N/A, Mon, 6 Apr 2026 14:20:00 -0700)
+
+- **Botola Pro: Berkane et Fès se quittent sur un nul**: [Link](https://sport.le360.ma/football/botola/botola-pro-berkane-et-fes-se-quittent-sur-un-nul_MNKR4F577RBTZA2IGLUWHHEU4I/)
+- **Vidéo : le faux pas de l'Armée royale et de Renaissance Berkane profite au Wydad**: [Link](https://www.goal.com/fr/news/video-le-faux-pas-de-l-armee-royale-et-de-renaissance-berkane-profite-au-wydad/blteeb7a9019e17ae75)
+- **Chaâbani : « Le point du nul face au Maghreb de Fès ne nous satisfait pas sur le plan comptable**: [Link](https://m.elbotola.com/fr/article/2026-04-05-21-48-212.html)
+
+
+### botola (N/A, Mon, 6 Apr 2026 14:00:00 -0700)
+
+
+
+
 ### botola pro (N/A, Mon, 6 Apr 2026 13:50:00 -0700)
 
 
