@@ -1,3 +1,10 @@
+### egypte (N/A, Mon, 6 Apr 2026 15:20:00 -0700)
+
+- **Israël hervat gasproductie Leviathan-gasveld na stillegging door oorlog**: [Link](https://www.nu.nl/economie/6391489/israel-hervat-gasproductie-leviathan-gasveld-na-stillegging-door-oorlog.html)
+- **Israëlische aardgasstromen naar Egypte terug op vooroorlogse niveaus**: [Link](https://nl.investing.com/news/economy-news/israelische-aardgasstromen-naar-egypte-terug-op-vooroorlogse-niveaus-93CH-763817)
+- **Israël hervat productie Leviathan-gasveld na oorlog**: [Link](https://nieuws.nl/economie/israel-hervat-productie-groot-gasveld-na-stillegging-om-oorlog)
+
+
 ### wac (N/A, Mon, 6 Apr 2026 14:20:00 -0700)
 
 - **Dominant weekend lands Schultz WAC Pitcher of the Week honors**: [Link](https://tarletonsports.com/news/2026/4/6/softball-dominant-weekend-lands-schultz-wac-pitcher-of-the-week-honors.aspx)
