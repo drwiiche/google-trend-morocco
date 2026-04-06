@@ -1,3 +1,17 @@
+### كأس العرش (N/A, Mon, 6 Apr 2026 04:20:00 -0700)
+
+- **نتائج قرعة الدور التمهيدي الثالث من مسابقة كأس العرش**: [Link](https://snrtnews.com/article/149253)
+- **مباريات قوية في دور سدس عشر نهائي كأس العرش**: [Link](https://www.sport7.ma/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1-%D8%B3%D8%AF%D8%B3-%D8%B9%D8%B4%D8%B1-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7-2/)
+- **قرعة كأس العرش تضع الرجاء في مواجهة قوية**: [Link](https://www.marocmedias.com/159444/%D9%82%D8%B1%D8%B9%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%AA%D8%B6%D8%B9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D9%88%D9%8A/)
+
+
+### وزارة الفلاحة (N/A, Mon, 6 Apr 2026 03:50:00 -0700)
+
+- **"دكاترة الفلاحة" يلجؤون إلى الوسيط**: [Link](https://www.hespress.com/%D8%AF%D9%83%D8%A7%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D8%A9-%D9%8A%D9%84%D8%AC%D8%A4%D9%88%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%B3%D9%8A%D8%B7-1726282.html)
+- **دكاترة “الفلاحة” يجرون الوزارة إلى “وسيط المملكة” ويحذرون من استمرار تهميش الكفاءات العليا**: [Link](https://al3omk.com/1150251.html)
+- **دكاترة الفلاحة يحذون من تفاقم الاحتقان ولجؤوا لوسيط المملكة**: [Link](https://aljarida24.ma/p/actualites/342693/)
+
+
 ### groupe ocp (N/A, Mon, 6 Apr 2026 01:30:00 -0700)
 
 - **SÉRIE EP. 39 n°1195. Guerre des engrais : OCP freine sa production, le calcul stratégique d’un géant en quête de prix**: [Link](https://ledesk.ma/enclair/guerre-des-engrais-ocp-freine-sa-production-le-calcul-strategique-dun-geant-en-quete-de-prix/)
