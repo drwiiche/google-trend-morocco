@@ -1,3 +1,17 @@
+### احوال الطقس (N/A, Sun, 5 Apr 2026 20:40:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-55-1726163.html)
+- **غدا الأحد.. استمرار الأجواء الحارة بمناطق واسعة من المملكة**: [Link](https://kifache.com/%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%A9-%D8%A8%D9%85%D9%86%D8%A7/)
+- **المغرب تحت تأثير "الكتل المدارية": موجة حر مفاجئة تجتاح البلاد والأرصاد توضح الأسباب**: [Link](https://agadir24.info/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AD%D8%AA-%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D9%83%D8%AA%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D9%88%D8%AC%D8%A9.html)
+
+
+### المغرب (N/A, Sun, 5 Apr 2026 16:30:00 -0700)
+
+- **تفاصيل جديدة.. حكم نهائي أفريقيا تلقى "تعليمات عليا" أثناء انسحاب السنغال**: [Link](https://www.alarabiya.net/sport/2026/04/05/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%88%D8%A7%D9%85%D8%B1-%D8%B9%D9%84%D9%8A%D8%A7-%D8%AA%D9%84%D9%82%D8%A7%D9%87%D8%A7-%D8%AD%D9%83%D9%85-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D8%AB%D9%86%D8%A7%D8%A1-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84)
+- **اتهام خطير للسنغال بالهروب من فحص المنشطات أمام المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D8%AE%D8%B7%D9%8A%D8%B1-%D9%84%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D9%87%D8%B1%D9%88%D8%A8-%D9%85%D9%86-%D9%81%D8%AD%D8%B5-%D8%A7%D9%84%D9%85%D9%86%D8%B4%D8%B7%D8%A7%D8%AA-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt2690e20de7072728)
+- **التحكيم الرياضي في لوزان .. بوبحي يبسُط قراءة في دفوع "نهائي الكان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%81%D9%8A-%D9%84%D9%88%D8%B2%D8%A7%D9%86-%D8%A8%D9%88%D8%A8%D8%AD%D9%8A-%D9%8A%D8%A8%D8%B3%D9%8F%D8%B7-1725128.html)
+
+
 ### armée allemande autorisation (N/A, Sun, 5 Apr 2026 16:30:00 -0700)
 
 - **En Allemagne, désormais les hommes de 17 à 45 ans doivent avoir l’autorisation de l’armée pour un long séjour à l’étranger**: [Link](https://www.sudouest.fr/societe/defense/en-allemagne-desormais-les-hommes-de-17-a-45-ans-doivent-avoir-l-autorisation-de-l-armee-pour-un-long-sejour-a-l-etranger-28575272.php)
