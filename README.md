@@ -1,3 +1,17 @@
+### مجتبى خامنئي (N/A, Mon, 6 Apr 2026 02:00:00 -0700)
+
+- **فيديو الظهور الأول للمرشد الجديد بإيران يشعل المنصات.. ما قصته؟**: [Link](https://www.aljazeera.net/news/2026/4/6/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%84%D9%85%D8%B1%D8%B4%D8%AF-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF)
+- **مصاب ومشلول؟ تقرير إسرائيلي يكشف حالة مجتبى خامنئي.. وفيديو "غرفة العمليات" يربك المشهد**: [Link](https://arabic.euronews.com/2026/04/06/injured-and-paralyzed-an-israeli-report-reveals-the-condition-of-mojtaba-khamenei-and)
+- **قراءة في الصحف الإسرائيلية - صحيفة "معاريف": إسرائيل تقدر أن مجتبى خامنئي حي.. ولا توجد نية لاستهدافه حاليا**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D9%81-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9/20260404-%D8%B5%D8%AD%D9%8A%D9%81%D8%A9-%D9%85%D8%B9%D8%A7%D8%B1%D9%8A%D9%81-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D9%82%D8%AF%D8%B1-%D8%A3%D9%86-%D9%85%D8%AC%D8%AA%D8%A8%D9%89-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%AD%D9%8A-%D9%88%D9%84%D8%A7-%D8%AA%D9%88%D8%AC%D8%AF-%D9%86%D9%8A%D8%A9-%D9%84%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81%D9%87-%D8%AD%D8%A7%D9%84%D9%8A%D8%A7)
+
+
+### gitex (N/A, Mon, 6 Apr 2026 01:00:00 -0700)
+
+- **Six Palestinian Startups Join GITEX Africa in Marrakech**: [Link](https://barlamantoday.com/2026/04/05/six-palestinian-startups-join-gitex-africa-in-marrakech/)
+- **Morocco Aims to Make AI a $10 Billion Pillar by 2030**: [Link](https://www.moroccoworldnews.com/2026/04/285568/morocco-aims-to-make-ai-a-10-billion-pillar-by-2030/)
+- **Artificial Intelligence (AI) Websites in minutes: Incomedia presents no-code digital growth tools at GITEX Africa 2026**: [Link](https://africa24tv.com/artificial-intelligence-ai-websites-in-minutes-incomedia-presents-no-code-digital-growth-tools-at-gitex-africa-2026/)
+
+
 ### radio mars (N/A, Mon, 6 Apr 2026 00:30:00 -0700)
 
 - **مالقة وفيردر بريمن يرغبان في ضم نجم اتحاد تواركة**: [Link](https://www.radiomars.ma/%D9%85%D8%A7%D9%84%D9%82%D8%A9-%D9%88%D9%81%D9%8A%D8%B1%D8%AF%D8%B1-%D8%A8%D8%B1%D9%8A%D9%85%D9%86-%D9%8A%D8%B1%D8%BA%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D8%B6%D9%85-%D9%86%D8%AC%D9%85-%D8%A7%D8%AA%D8%AD/)
