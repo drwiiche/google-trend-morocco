@@ -1,3 +1,45 @@
+### radio mars (N/A, Mon, 6 Apr 2026 00:30:00 -0700)
+
+- **مالقة وفيردر بريمن يرغبان في ضم نجم اتحاد تواركة**: [Link](https://www.radiomars.ma/%D9%85%D8%A7%D9%84%D9%82%D8%A9-%D9%88%D9%81%D9%8A%D8%B1%D8%AF%D8%B1-%D8%A8%D8%B1%D9%8A%D9%85%D9%86-%D9%8A%D8%B1%D8%BA%D8%A8%D8%A7%D9%86-%D9%81%D9%8A-%D8%B6%D9%85-%D9%86%D8%AC%D9%85-%D8%A7%D8%AA%D8%AD/)
+- **بن طيب يواصل الإبهار.. هدف وتمرير حاسمة تضع تروا على أعتاب "الليغ 1"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%81%D9%8A%D9%82-%D8%A8%D9%86-%D8%B7%D9%8A%D8%A8-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA-2-%D9%88%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D8%B1%D9%88%D8%A7-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D8%B5%D8%B9%D9%88%D8%AF/18104)
+- **المغربي بن طيب يتصدر لائحة هدافي بطولة الليغ 2 الفرنسي**: [Link](https://www.hibasport.com/details-397866.html)
+
+
+### weather (N/A, Sun, 5 Apr 2026 23:30:00 -0700)
+
+- **Dry conditions, cooler temperatures expected this week across the Carolinas after rainy Easter**: [Link](https://www.yahoo.com/news/articles/dry-conditions-cooler-temperatures-expected-020839250.html)
+- **A dry week stays on the cooler side for a few more days**: [Link](https://www.westkentuckystar.com/News/Local-Regional/A-dry-week-stays-on-the-cooler-side-for-a-few-more)
+- **Windy, Warm And Dry Weather Brings A Fire Weather Watch For North Carolina, Nov. 15 Update [751d98]**: [Link](https://fathomjournal.org/a25514f5smm/3f812738-FIoZOqOBZ9I.html)
+
+
+### météo (N/A, Sun, 5 Apr 2026 23:10:00 -0700)
+
+- **Météo demain : après la fraîcheur du matin, c'est l'été sur les 3/4 du pays mardi après-midi**: [Link](https://www.meteoconsult.fr/actualites-meteo/2026-04-06/87361-meteo-demain-apres-la-fraicheur-du-matin-c-est-l-ete-sur-les-3-4-du-pays-mardi-apres-midi)
+- **Météo. Quel temps fera-t-il aux Sables-d'Olonne et ses environs le lundi 6 avril 2026 ?**: [Link](https://www.ouest-france.fr/meteo/pays-de-la-loire/les-sables-dolonne-85100/la-meteo-du-jour-aux-sables-d-olonne-dd1dd3be-aa60-4fd2-b308-75e889c7f0d1)
+- **Retour d'un temps printanier : peut-on enfin ranger les vêtements d'hiver ?**: [Link](https://www.tameteo.com/actualites/previsions/retour-d-un-temps-printanier-peut-on-ranger-les-vetements-d-hiver-previsions-meteo.html)
+
+
+### علم الأرصاد الجوية (N/A, Sun, 5 Apr 2026 22:20:00 -0700)
+
+- **الطقس: أجواء مستقرة ومائلة للبرودة**: [Link](https://www.wattan.net/ar/news/483864.html)
+- **الأرصاد تحسم الجدل: منخفض جوي وأمطار متفرقة دون موجات استثنائية**: [Link](https://mrj3y.com/159299/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA/)
+- **الأرصاد توجه نصائح للمواطنين مع عودة الدراسة.. وتحسم الجدل حول التقلبات الجوية**: [Link](https://www.youm7.com/story/2026/4/6/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%88%D8%AC%D9%87-%D9%86%D8%B5%D8%A7%D8%A6%D8%AD-%D9%84%D9%84%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A%D9%86-%D9%85%D8%B9-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D9%88%D8%AA%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84/7367382)
+
+
+### محمد وهبي (N/A, Sun, 5 Apr 2026 21:30:00 -0700)
+
+- **وهبي يحسم هوية رباعي ارتكاز أسود الأطلس في مونديال 2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D9%87%D9%88%D9%8A%D8%A9-%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D9%83%D8%A7%D8%B2-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/bltf2efacd1b64e5c67)
+- **أربعة لاعبين ضمنوا تواجدهم بنسبة كبيرة في المونديال**: [Link](https://www.almountakhab.com/node/16224178)
+- **تجديد المنتخب المغربي**: [Link](https://www.hespress.com/%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1723106.html)
+
+
+### طقس اليوم (N/A, Sun, 5 Apr 2026 21:00:00 -0700)
+
+- **حالة الطقس من 6 إلى 15 أبريل تتضمن أيامًا مشمسة وعواصف رعدية قوية في أواخر بعد الظهر والمساء**: [Link](https://tawusal.com/74829/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%85%D9%86-6-%D8%A5%D9%84%D9%89-15-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-%D8%AA%D8%AA%D8%B6%D9%85%D9%86-%D8%A3%D9%8A%D8%A7%D9%85%D9%8B%D8%A7-%D9%85/)
+- **ارتفاع درجات الحرارة اليوم لتتجاوز 39 درجة مئوية في مناطق واسعة**: [Link](https://pls48.net/55719/__trashed-500/)
+- **تشتد موجة الحر في جميع أنحاء البلاد.**: [Link](https://www.vietnam.vn/ar/nang-nong-gia-tang-trong-ca-nuoc)
+
+
 ### الطقس اليوم (N/A, Sun, 5 Apr 2026 23:00:00 -0700)
 
 - **هدوء ما قبل العاصفة.. بيان مهم بشأن تقلبات الطقس: عودة الأمطار بقوة**: [Link](https://www.almasryalyoum.com/news/details/4237580)
