@@ -1,3 +1,10 @@
+### موريتانيا (N/A, Mon, 6 Apr 2026 15:30:00 -0700)
+
+- **عرقاب يجري محادثات ثنائية مع نظيره الموريتاني**: [Link](https://elayem.news/%D8%B9%D8%B1%D9%82%D8%A7%D8%A8-%D9%8A%D8%AC%D8%B1%D9%8A-%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%85%D8%B9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D9%85/)
+- **رزيق يبحث مع نظيرته الموريتانية تسهيل إجراءات التجارة والجمركة بين البلدين**: [Link](https://www.internews.dz/%D8%B1%D8%B2%D9%8A%D9%82-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%85%D8%B9-%D9%86%D8%B8%D9%8A%D8%B1%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B3%D9%87%D9%8A%D9%84/)
+- **🎥 #فيديو: كلمة وزير الدولة، وزير الشؤون الخارجية والجالية الوطنية بالخارج والشؤون الإفريقية، السيّد أحمد عطاف، خلال ترؤسه مناصفة مع نظيره الموريتاني، السيد محمد سالم ولد مرزوك، أشغال لجنة المتابعة الجزائرية الموريتانية. 🇩🇿🇲🇷**: [Link](https://www.facebook.com/MFAAlgeria/posts/-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%83%D9%84%D9%85%D8%A9-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B4%D8%A4%D9%88%D9%86-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AC%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC-%D9%88%D8%A7%D9%84%D8%B4%D8%A4%D9%88%D9%86-%D8%A7%D9%84/1255473646733666/)
+
+
 ### egypte (N/A, Mon, 6 Apr 2026 15:20:00 -0700)
 
 - **Israël hervat gasproductie Leviathan-gasveld na stillegging door oorlog**: [Link](https://www.nu.nl/economie/6391489/israel-hervat-gasproductie-leviathan-gasveld-na-stillegging-door-oorlog.html)
