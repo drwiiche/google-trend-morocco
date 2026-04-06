@@ -1,3 +1,31 @@
+### الطقس اليوم (N/A, Sun, 5 Apr 2026 23:00:00 -0700)
+
+- **هدوء ما قبل العاصفة.. بيان مهم بشأن تقلبات الطقس: عودة الأمطار بقوة**: [Link](https://www.almasryalyoum.com/news/details/4237580)
+- **حالة طقس اليوم الإثنين 6-4-2026 في مصر**: [Link](https://almashhadalaraby.com/news/559019)
+- **حالة الطقس اليوم تعرف على تحذير الأرصاد من الشبورة الكثيفة والأمطار للمسافرين على الطرق السريعة**: [Link](https://tawusal.com/74997/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7/)
+
+
+### الطقس (N/A, Sun, 5 Apr 2026 22:50:00 -0700)
+
+- **حالة الطقس من 6 إلى 15 أبريل تتضمن أيامًا مشمسة وعواصف رعدية قوية في أواخر بعد الظهر والمساء**: [Link](https://tawusal.com/74829/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%85%D9%86-6-%D8%A5%D9%84%D9%89-15-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-%D8%AA%D8%AA%D8%B6%D9%85%D9%86-%D8%A3%D9%8A%D8%A7%D9%85%D9%8B%D8%A7-%D9%85/)
+- **ارتفاع درجات الحرارة اليوم لتتجاوز 39 درجة مئوية في مناطق واسعة**: [Link](https://pls48.net/55719/__trashed-500/)
+- **تشتد موجة الحر في جميع أنحاء البلاد.**: [Link](https://www.vietnam.vn/ar/nang-nong-gia-tang-trong-ca-nuoc)
+
+
+### greve easyjet (N/A, Sun, 5 Apr 2026 20:00:00 -0700)
+
+- **EasyJet: appel à la grève en France le 6 avril, lundi de Pâques**: [Link](https://medias24.com/agence-presse/easyjet-appel-a-la-greve-en-france-le-6-avril-lundi-de-paques/)
+- **« Une volonté punitive » : un appel à la grève ce lundi de Pâques au sein d’une compagnie aérienne en France**: [Link](https://www.lavoixdunord.fr/1691215/article/2026-04-03/une-volonte-punitive-un-appel-la-greve-ce-lundi-de-paques-au-sein-d-une)
+- **EasyJet prévoit peu d'annulations malgré la grève du personnel de cabine prévue ce lundi de Pâques**: [Link](https://www.air-journal.fr/2026-04-06-easyjet-prevoit-peu-dannulations-malgre-la-greve-du-personnel-de-cabine-prevue-ce-lundi-de-paques-5274371.html)
+
+
+### can 2025 polémique caf (N/A, Sun, 5 Apr 2026 14:10:00 -0700)
+
+- **CAF : le TAS va s’occuper d’un deuxième gros dossier**: [Link](https://www.footmercato.net/a3089395212128999692-caf-le-tas-va-soccuper-dun-deuxieme-gros-dossier)
+- **Maroc, une deuxième affaire bientôt devant le TAS ?**: [Link](https://www.football.fr/afrique/maroc-une-deuxieme-affaire-bientot-devant-le-tas-808406.html)
+- **La CAF tiendra une audience le 9 avril pour examiner la plainte d'Al-Hilal contre la RS Berkane (affaire El Moussaoui)**: [Link](https://m.elbotola.com/fr/article/2026-04-05-17-48-852.html)
+
+
 ### احوال الطقس (N/A, Sun, 5 Apr 2026 20:40:00 -0700)
 
 - **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-55-1726163.html)
