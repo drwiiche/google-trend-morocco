@@ -1,3 +1,17 @@
+### طارق السكتيوي (N/A, Mon, 6 Apr 2026 07:10:00 -0700)
+
+- **السكتيوي يفاجئ الجماهير العمانية بعد تعيينه -صورة**: [Link](https://infosports.ma/215347/)
+- **خطوة جديدة من السكيتيوي مع منتخب عمان**: [Link](https://ar.sport.le360.ma/football/PAI25V3WWBDEBM4OGZRD7AGODA/)
+- **مفاجآت السكتيوي تبدأ مبكرا مع المنتخب العماني**: [Link](https://m.alayam24.com/articles-619015.html)
+
+
+### watford – charlton (N/A, Mon, 6 Apr 2026 06:50:00 -0700)
+
+- **Still on Charlton: All we can do after bad results is bounce back**: [Link](https://www.watfordobserver.co.uk/sport/25995742.still-charlton-can-bad-days-bounce-back/)
+- **TEAM NEWS | Two changes for Watford clash**: [Link](https://www.charltonafc.com/news/team-news-two-changes-watford-clash)
+- **Watford vs Charlton LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2026/04/06/1256571-watford-vs-charlton-live-score-efl-championship.html)
+
+
 ### نادي برشلونة (N/A, Mon, 6 Apr 2026 06:30:00 -0700)
 
 - **أخبار سارة لبرشلونة بعد الفوز على أتلتيكو مدريد**: [Link](https://www.aljazeera.net/sport/2026/4/5/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
