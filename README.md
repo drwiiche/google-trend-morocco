@@ -1,3 +1,36 @@
+### casa pia – benfica (N/A, Mon, 6 Apr 2026 12:10:00 -0700)
+
+- **CASA PIA X BENFICA - Chegada Do Autocarro Do Casa Pia**: [Link](https://www.abola.pt/video/casa-pia-x-benfica-chegada-do-autocarro-do-casa-pia-2026040618203392898)
+- **18h30 Edição de José Pedro Pinto**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/18h30-edicao-de-jose-pedro-pinto_a1_1731785)
+- **Tomás Araújo é carta fora do baralho**: [Link](https://golo.fm/destaque/tomas-araujo-e-carta-fora-do-baralho/)
+
+
+### mohamed ouahbi (N/A, Mon, 6 Apr 2026 12:10:00 -0700)
+
+- **Mohamed Ouahbi: les premières certitudes**: [Link](https://sport.le360.ma/football/lions-atlas/mohamed-ouahbi-les-premieres-certitudes_Q6O77STKMVGCLJQGGM5UNJQC7M/)
+- **les enseignements forts de la revue d’effectif de Ouahbi**: [Link](https://lionsdelatlas.ma/lions-de-latlas-les-enseignements-forts-de-la-revue-deffectif-de-ouahbi/)
+- **Mondial 2026 : le Maroc classé le top 10 par The Guardian sous l’ère Mohamed Ouahbi**: [Link](https://www.bladi.net/mondial-maroc-classe-top-the-guardian-ere-mohamed-ouahbi,120443.html)
+
+
+### الوداد الرياضي ضد الدفاع الجديدي (N/A, Mon, 6 Apr 2026 11:50:00 -0700)
+
+- **الإصابة تغيب زياش عن صفوف الوداد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%BA%D9%8A%D8%A8-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B9%D9%86-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1726490.html)
+- **إقبال ضعيف على تذاكر مواجهة الوداد والدفاع**: [Link](https://www.hesport.com/%D8%A5%D9%82%D8%A8%D8%A7%D9%84-%D8%B6%D8%B9%D9%8A%D9%81-%D8%B9%D9%84%D9%89-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%84-433880.html)
+- **الوداد يستعيد 3 لاعبين ضد الدفاع الجديدي**: [Link](https://www.ahdath.info/article/250976/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-3-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A)
+
+
+### un si grand soleil (N/A, Mon, 6 Apr 2026 11:50:00 -0700)
+
+
+
+
+### تل ابيب (N/A, Mon, 6 Apr 2026 11:30:00 -0700)
+
+- **عبر الخريطة التفاعلية.. المناطق المستهدَفة بصواريخ إيرانية وسط إسرائيل**: [Link](https://www.aljazeera.net/video/2026/4/6/%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B9%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82)
+- **انتشال 4 قتلى إسرائيليين من أنقاض مبنى بحيفا دمره صاروخ إيراني**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D9%84-4-%D9%82%D8%AA%D9%84%D9%89-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D9%8A%D9%86-%D9%85%D9%86-%D8%A3%D9%86%D9%82%D8%A7%D8%B6-%D9%85%D8%A8%D9%86%D9%89-%D8%A8%D8%AD%D9%8A%D9%81%D8%A7-%D8%AF%D9%85%D8%B1%D9%87-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%85%D8%AD%D8%AF%D8%AB/3894701)
+- **قتيلان ومفقودان تحت الأنقاض في حيفا بعد هجوم إيراني**: [Link](https://www.skynewsarabia.com/middle-east/1862635-%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%85%D9%81%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D9%86%D9%82%D8%A7%D8%B6-%D8%AD%D9%8A%D9%81%D8%A7-%D9%87%D8%AC%D9%88%D9%85-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A)
+
+
 ### naples – ac milan (N/A, Mon, 6 Apr 2026 11:30:00 -0700)
 
 - **Napoli vs AC Milan: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwy3j00ywyyt)
