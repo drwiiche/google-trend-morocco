@@ -1,3 +1,31 @@
+### wydad (N/A, Mon, 6 Apr 2026 12:50:00 -0700)
+
+- **Wydad-DHJ: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/botola/wydad-dhj-a-quelle-heure-et-sur-quelle-chaine_UTOGW5L3SZE55FXTCNN2VXBXIQ/)
+- **Wydad-Difaâ El Jadida : Le Wydad vise la tête, le DHJ la relance**: [Link](https://m.elbotola.com/fr/article/2026-04-05-22-53-310.html)
+- **Maroc-Wydad : le nouveau coup dur pour Hakim Ziyech…**: [Link](https://www.afrik-foot.com/maroc-wydad-le-nouveau-coup-dur-pour-hakim-ziyech)
+
+
+### harry kane (N/A, Mon, 6 Apr 2026 12:50:00 -0700)
+
+- **Bayern unveil squad for first Champions League quarter-final game vs. Real Madrid**: [Link](https://bulinews.com/bayern-unveil-squad-ahead-champions-league-quarter-final-real-madrid)
+- **Kimmich: Kane will play against Real Madrid, even if it’s in a wheelchair**: [Link](https://www.goal.com/en-ca/lists/kimmich-kane-will-play-against-real-madrid-even-if-it-s-in-a-wheelchair/bltdd238aebb280131f)
+- **Rival watch: Bayern Munich dealt major blow before Real Madrid clash**: [Link](https://madriduniversal.com/rival-watch-bayern-munich-dealt-major-blow-before-real-madrid-clash/)
+
+
+### نابولي ضد ميلان (N/A, Mon, 6 Apr 2026 12:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة نابولي وميلان في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt2b830c5802fe39dd)
+- **ميلان ونابولي في لقاء البحث عن وصافة الدوري الإيطالي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D8%B6%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-31-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A/18184)
+- **أزمة بين لوكاكو وإدارة نابولي ودي لورينتيس يوجه انتقادات علنية**: [Link](https://m.elbotola.com/article/2026-04-04-09-45-830.html)
+
+
+### girona vs villarreal (N/A, Mon, 6 Apr 2026 12:40:00 -0700)
+
+- **Preview: Girona vs Villarreal - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/girona-vs-villarreal-prediction-team-news-lineups_595079.html)
+- **Claudio Echeverri vs. Villarreal CF – Player props & odds to score a goal on April 6**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/04/06/claudio-echeverri-soccer-player-props-4-6-2026/89480325007/)
+- **Girona vs. Villareal prediction, odds, La Liga picks [4/6/2026]**: [Link](https://www.dimers.com/news/girona-vs-villareal-prediction-la-liga-monday-04-06-2026-ac)
+
+
 ### casa pia – benfica (N/A, Mon, 6 Apr 2026 12:10:00 -0700)
 
 - **CASA PIA X BENFICA - Chegada Do Autocarro Do Casa Pia**: [Link](https://www.abola.pt/video/casa-pia-x-benfica-chegada-do-autocarro-do-casa-pia-2026040618203392898)
