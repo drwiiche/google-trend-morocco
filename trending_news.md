@@ -1,3 +1,24 @@
+### طقس طنجة (N/A, Mon, 6 Apr 2026 08:50:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-55-1726163.html)
+- **غدا الأحد.. استمرار الأجواء الحارة بمناطق واسعة من المملكة**: [Link](https://kifache.com/%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%A9-%D8%A8%D9%85%D9%86%D8%A7/)
+- **المغرب تحت تأثير "الكتل المدارية": موجة حر مفاجئة تجتاح البلاد والأرصاد توضح الأسباب**: [Link](https://agadir24.info/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AD%D8%AA-%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D9%83%D8%AA%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D8%B1%D9%8A%D8%A9-%D9%85%D9%88%D8%AC%D8%A9.html)
+
+
+### juventus – genoa (N/A, Mon, 6 Apr 2026 08:20:00 -0700)
+
+- **🔴 Juve-Genoa | UFFICIALI: la scelta su Boga, Vlahovic, Messias e David**: [Link](https://onefootball.com/id/berita/juve-genoa-ufficiali-la-scelta-su-boga-vlahovic-messias-e-david-42669972)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-in-campo-juventus-genoa-0-0/KrYbPiIF/)
+- **Serie A | Le formazioni ufficiali di Juventus-Genoa**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-genoa-formazioni-ufficiali)
+
+
+### armée allemande (N/A, Mon, 6 Apr 2026 07:30:00 -0700)
+
+- **En Allemagne, désormais les hommes de 17 à 45 ans doivent avoir l’autorisation de l’armée pour un long séjour à l’étranger**: [Link](https://www.sudouest.fr/societe/defense/en-allemagne-desormais-les-hommes-de-17-a-45-ans-doivent-avoir-l-autorisation-de-l-armee-pour-un-long-sejour-a-l-etranger-28575272.php)
+- **Allemagne : une autorisation de l'armée pour un long séjour à l'étranger ?**: [Link](https://fr.euronews.com/2026/04/04/service-militaire-autorisation-obligatoire-des-hommes-pour-sejour-a-letranger)
+- **Allemagne : les hommes de 17 à 45 ans doivent désormais obtenir une autorisation de l’armée pour un long séjour à l’étranger**: [Link](https://www.leparisien.fr/international/allemagne/allemagne-les-hommes-de-17-a-45-ans-doivent-desormais-obtenir-une-autorisation-de-larmee-pour-un-long-sejour-a-letranger-04-04-2026-PNS3N4LEWZG6HNTARZZYLQ4JAY.php)
+
+
 ### طارق السكتيوي (N/A, Mon, 6 Apr 2026 07:10:00 -0700)
 
 - **السكتيوي يفاجئ الجماهير العمانية بعد تعيينه -صورة**: [Link](https://infosports.ma/215347/)
