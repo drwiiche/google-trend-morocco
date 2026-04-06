@@ -1,3 +1,38 @@
+### نادي برشلونة (N/A, Mon, 6 Apr 2026 06:30:00 -0700)
+
+- **أخبار سارة لبرشلونة بعد الفوز على أتلتيكو مدريد**: [Link](https://www.aljazeera.net/sport/2026/4/5/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **ليس يامال.. لاعب واحد حاضر مع برشلونة فليك في مواجهات أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D9%8A%D8%A7%D9%85%D8%A7%D9%84--%D9%84%D8%A7%D8%B9%D8%A8-%D9%88%D8%A7%D8%AD%D8%AF-%D8%AD%D8%A7%D8%B6%D8%B1-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt6ccbc99964686d85)
+- **برشلونة يعلن غياب بيرنال عن الملاعب بسبب الإصابة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A3%D9%86%D8%A8%D8%A7%D8%A1-%D8%B9%D9%86-%D8%AA%D8%B9%D8%B1%D8%B6-%D8%A8%D9%8A%D8%B1%D9%86%D8%A7%D9%84-%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D8%A7%D9%84%D9%83%D8%A7%D8%AD%D9%84-2026-04-05)
+
+
+### منتخب البرتغال لكرة القدم (N/A, Mon, 6 Apr 2026 06:20:00 -0700)
+
+- **البرتغال تختار منتخبا أفريقيا محطة ختامية استعدادا للمونديال**: [Link](https://www.aljazeera.net/sport/2026/4/4/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9)
+- **رونالدو يواجه أوسيمين.**: [Link](https://www.vietnam.vn/ar/ronaldo-cham-tran-osimhen)
+- **نيجيريا تختبر جاهزيتها بوديتين أمام البرتغال وبولندا**: [Link](https://www.elsport.com/news/show/818147/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D8%AE%D8%AA%D8%A8%D8%B1-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%AA%D9%87%D8%A7-%D8%A8%D9%88%D8%AF%D9%8A%D8%AA%D9%8A%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A8%D9%88%D9%84%D9%86)
+
+
+### lecce – atalanta (N/A, Mon, 6 Apr 2026 06:10:00 -0700)
+
+- **LIVE Lecce-Atalanta 0-1: gran gol di Scalvini sullo scarico di De Ketelaere**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Lecce/06-04-2026/lecce-atalanta-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Le formazioni di Lecce-Atalanta | Serie A Enilive 2025/26**: [Link](https://www.atalanta.it/news/le-formazioni-di-lecce-atalanta-serie-a-enilive-2025-26)
+- **Lecce, quanti dubbi per Di Francesco. Stulic, Banda, Gandelman: la probabile formazione**: [Link](https://www.sosfanta.com/squadra/lecce/lecce-quanti-dubbi-per-di-francesco-stulic-banda-gandelman-la-probabile-formazione/)
+
+
+### هدنة (N/A, Mon, 6 Apr 2026 05:10:00 -0700)
+
+- **حرب إيران مباشر.. قصف إيراني مكثّف لإسرائيل ومقترح باكستاني لوقف القتال**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/5/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **تفاصيل المقترح الباكستاني لوقف إطلاق النار بين إيران وأميركا**: [Link](https://www.skynewsarabia.com/middle-east/1862753-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D9%82%D8%AA%D8%B1%D8%AD-%D8%A7%D9%84%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86%D9%8A-%D9%84%D9%88%D9%82%D9%81-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7)
+- **باكستان تنتظر جواباً على مقترح وقف النار.. وإيران "ردنا جاهز"**: [Link](https://www.alarabiya.net/iran/2026/04/06/%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%AC%D9%88%D8%A7%D8%A8%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D8%AA%D8%B1%D8%AD-%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%88%D8%A7%D9%88%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86%D9%8A)
+
+
+### gitex africa (N/A, Mon, 6 Apr 2026 01:20:00 -0700)
+
+- **French Minister in charge of AI to take part in GITEX Africa**: [Link](https://en.hespress.com/135170-french-minister-in-charge-of-ai-to-take-part-in-gitex-africa.html)
+- **Morocco Aims to Make AI a $10 Billion Pillar by 2030**: [Link](https://www.moroccoworldnews.com/2026/04/285568/morocco-aims-to-make-ai-a-10-billion-pillar-by-2030/)
+- **Six Palestinian Startups Join GITEX Africa in Marrakech**: [Link](https://barlamantoday.com/2026/04/05/six-palestinian-startups-join-gitex-africa-in-marrakech/)
+
+
 ### كأس العرش (N/A, Mon, 6 Apr 2026 04:20:00 -0700)
 
 - **نتائج قرعة الدور التمهيدي الثالث من مسابقة كأس العرش**: [Link](https://snrtnews.com/article/149253)
