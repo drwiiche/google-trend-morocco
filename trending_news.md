@@ -1,3 +1,66 @@
+### bet365 (N/A, Tue, 7 Apr 2026 12:30:00 -0700)
+
+- **bet365 bonus code: Bet $10, get $365 in bonus bets for the Masters**: [Link](https://nypost.com/2026/04/07/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-the-masters/)
+- **Bet365 bonus code CBSBET365: Get $365 in bonus bets for Celtics-Hornets, Suns-Rockets, MLB, golf on Tuesday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-get-365-bonus-bets-celtics-hornets-suns-rockets-mlb-golf-tuesday/)
+- **Oilers vs Flames Preview + Bet365 Bet $10 Get $365 Bonus**: [Link](https://www.rockytopinsider.com/2026/04/07/edmonton-oilers-vs-calgary-flames-battle-of-alberta-showdown-bet365-365-bonus-offer/)
+
+
+### wrexham – southampton (N/A, Tue, 7 Apr 2026 12:30:00 -0700)
+
+- **Where to watch Wrexham vs Southampton after crunch Championship clash was moved**: [Link](https://www.walesonline.co.uk/sport/football/football-news/wrexham-southampton-championship-channel-stream-33728222)
+- **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2026/april/07/preview---wrexham-afc-vs-southampton/)
+- **Bookmakers slash Wrexham promotion odds and punters rally behind Reds**: [Link](https://www.leaderlive.co.uk/sport/25999553.bookies-slash-odds-sensational-wrexham-promotion/)
+
+
+### manuel neuer (N/A, Tue, 7 Apr 2026 12:20:00 -0700)
+
+- **Kritische Berichte über Neuer in Spanien**: [Link](https://www.sport1.de/news/fussball/champions-league/2026/04/fc-bayern-spanische-presse-saeht-zweifel-an-manuel-neuer)
+- **Patzer kostete FC Bayern das Champions-League-Finale: Kapitän Neuer will sein Real-Trauma bewältigen**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/bewaeltigen-bayern-kapitaen-neuer-will-sein-real-trauma-zr-94250273.html)
+- **Große Siege, schmerzhafte Pleiten: Neuers bittersüße Erinnerungen ans Bernabéu**: [Link](https://www.abendzeitung-muenchen.de/sport/fcbayern/grosse-siege-schmerzhafte-pleiten-neuers-bittersuesse-erinnerungen-ans-bernabeu-art-1123620)
+
+
+### olise (N/A, Tue, 7 Apr 2026 12:20:00 -0700)
+
+- **Harry Kane, England’s Ballon d’Or hopeful, is finally getting the love he deserves | Barney Ronay**: [Link](https://www.theguardian.com/football/2026/apr/03/harry-kane-england-ballon-dor-bayern-munich)
+- **"Machine and gentleman": Díaz raves about Kane and Olise**: [Link](https://fcbinside.com/2026/04/07/machine-and-gentleman-diaz-raves-about-kane-and-olise/)
+- **Bayern Munich’s Luis Diaz is in awe of Harry Kane, the world’s most complete footballer**: [Link](https://sports.yahoo.com/articles/bayern-munich-luis-diaz-awe-220000134.html)
+
+
+### médias 24 (N/A, Tue, 7 Apr 2026 12:20:00 -0700)
+
+- **Habitat insalubre : incidents en marge d’une opération menée à Hay Mohammadi**: [Link](https://medias24.com/2026/04/07/habitat-insalubre-incidents-en-marge-dune-operation-menee-a-hay-mohammadi-1655499/)
+- **Casablanca : tensions lors de l’évacuation du douar Al Askari, des habitants réclament des garanties de relogement**: [Link](https://mobile.telquel.ma/instant-t/2026/04/07/casablanca-tensions-lors-de-levacuation-du-douar-al-askari-des-habitants-reclament-des-garanties-de-relogement_1983000/)
+- **Casablanca : heurts lors de l’opération de démolition d’un douar à Aïn Borja**: [Link](https://www.lebrief.ma/casablanca-heurts-lors-de-loperation-de-demolition-dun-douar-a-ain-borja-100147372/)
+
+
+### yalla kora (N/A, Tue, 7 Apr 2026 12:00:00 -0700)
+
+- **جدول مباريات اليوم الثلاثاء 7 أبريل 2026 .. والقنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-7-%D8%A7%D9%94%D8%A8%D8%B1%D9%8A%D9%84-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt54dc502d0a2804f2)
+- **ابرز الاحداث الرياضية ليوم الثلاثاء في 07-04-2026**: [Link](https://www.elsport.com/news/show/818515/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-07-04-2026)
+- **قمة في إيطاليا وختام سعودي.. مواعيد مباريات اليوم الأحد 5 أبريل 2026**: [Link](https://www.arrajol.com/content/400859/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D9%85%D8%A9-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D8%AE%D8%AA%D8%A7%D9%85-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-5-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-2026)
+
+
+### tas décision can 2025 sénégal maroc (N/A, Tue, 7 Apr 2026 12:00:00 -0700)
+
+- **Qui a gagné la CAN 2025 ? « Le Monde » dévoile les coulisses de l’interminable finale Maroc-Sénégal**: [Link](https://www.lemonde.fr/afrique/article/2026/04/05/qui-a-gagne-la-can-2025-le-monde-devoile-les-coulisses-de-l-interminable-finale-maroc-senegal_6676880_3212.html)
+- **Dr Patrice Motsepe, le Président de la CAF, en visite au Sénégal mercredi pour rencontrer S.E.M le Président Bassirou Diomaye Faye et le Président de la Fédération Sénégalaise de Football, Abdoulaye Fall**: [Link](https://www.cafonline.com/fr/a-propos-de-la-caf/news/dr-patrice-motsepe-le-president-de-la-caf-en-visite-au-senegal-mercredi-pour-rencontrer-sem-le-president-bassirou-diomaye-faye-et-le-president-de-la-federation-senegalaise-de-football-abdoulaye-fall/)
+- **CAN 2025: une voix contre quatre, le nouveau narratif sénégalais**: [Link](https://sport.le360.ma/football/can/can-2025-une-voix-contre-quatre-le-nouveau-narratif-senegalais_EMJMOYP26REFXFZC6OEKG3YXMI/)
+
+
+### tod (N/A, Tue, 7 Apr 2026 11:50:00 -0700)
+
+- **Sturm-Drama in Berlin: Mann von Blumenkübel erschlagen**: [Link](https://www.bz-berlin.de/polizei/mann-von-blumenkuebel-erschlagen)
+- **Gesundbrunnen - Sicherheitsrisiko Blumenkübel**: [Link](https://www.rbb-online.de/abendschau/videos/20260407_1930/1.html)
+- **Tragischer Tod: Blumenkübel erschlägt Mann – Fall geht an Staatsanwaltschaft**: [Link](https://www.zeit.de/news/2026-04/07/blumenkuebel-erschlaegt-mann-fall-geht-an-staatsanwaltschaft)
+
+
+### harry kane (N/A, Tue, 7 Apr 2026 11:40:00 -0700)
+
+- **Why Real Madrid tie could make or break Kane's Ballon d'Or hopes**: [Link](https://www.bbc.com/sport/football/articles/cp86v8zq4jeo)
+- **'Has done everything' - Real Madrid won't get injury boost they were looking for vs. Bayern Munich**: [Link](https://therealchamps.com/has-done-everything-real-madrid-won-t-get-injury-boost-they-were-looking-for-vs-bayern-munich-01knjvybawws)
+- **🎥 Is he playing tonight? Bayern post a video with Harry Kane**: [Link](https://onefootball.com/en/news/is-he-playing-tonight-bayern-post-a-video-with-harry-kane-42674269)
+
+
 ### سبورتينغ ضد آرسنال (N/A, Tue, 7 Apr 2026 11:20:00 -0700)
 
 - **غياب ساكا وعودة رايس.. أرتيتا يعلن تشكيل آرسنال أمام سبورتنج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B3%D8%A7%D9%83%D8%A7-%D9%88%D8%B9%D9%88%D8%AF%D8%A9-%D8%B1%D8%A7%D9%8A%D8%B3--%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%86%D8%AC/blt34548e788dfd4b39)
