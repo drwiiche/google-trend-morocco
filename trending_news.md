@@ -1,3 +1,29 @@
+### jannik sinner (N/A, Tue, 7 Apr 2026 04:00:00 -0700)
+
+- **Tennis: Sinner-Humbert, l'esordio di Jannik a Montecarlo - LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/2026/04/07/tennis-montecarlo-sinner-debutta-contro-il-francese-humbert_0ebce356-e2aa-42f9-849f-da1665d12601.html)
+- **Atp Montecarlo, Sinner vede il primo posto nel ranking**: [Link](https://www.gioconews.it/atp-montecarlo-sinner-vede-il-primo-posto-nel-ranking/)
+- **A Monte Carlo è testa a testa tra Sinner e Alcaraz per il titolo**: [Link](https://italiangamingexpo.com/2026/04/07/a-monte-carlo-e-testa-a-testa-tra-sinner-e-alcaraz-per-il-titolo/)
+
+
+### bls (N/A, Tue, 7 Apr 2026 04:00:00 -0700)
+
+- **Top Economist David Rosenberg Blasts Conflicting BLS-ISM March Jobs Data: 'Best Month' Or 'Worst Month'?**: [Link](https://www.benzinga.com/markets/economic-data/26/04/51673846/top-economist-david-rosenberg-blasts-conflicting-bls-ism-march-jobs-data-best-month-or-worst-month)
+- **Dow Jones Futures: Leading Stocks Stand Tall As Market Bounces; Look For This Bullish Signal**: [Link](https://www.investors.com/market-trend/stock-market-today/dow-jones-futures-oil-prices-tesla-jobs-report/)
+- **Wall Street closed for Good Friday, but US futures inch lower following strong March jobs report**: [Link](https://apnews.com/article/financial-markets-oil-prices-iran-trump-cbf38b67032e2fae95073f4fbcc0ca24)
+
+
+### وزارة العدل (N/A, Tue, 7 Apr 2026 03:40:00 -0700)
+
+- **/ بـــلاغ\ بشأن دخول سجل الوكالات الرسمية المتعلقة بالحقوق العينية حيز التطبيق**: [Link](https://justice.gov.ma/2026/04/06/%D8%A8%D9%80%D9%80%D9%80%D9%84%D8%A7%D8%BA-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AF%D8%AE%D9%88%D9%84-%D8%B3%D8%AC%D9%84-%D8%A7%D9%84%D9%88%D9%83%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A/)
+- **المغرب يدخل مرحلة جديدة في تأمين المعاملات العقارية | اكسبريس TV**: [Link](https://www.expresstv.ma/en-vedette/123388/)
+- **المعاملات العقارية: إجراءات صارمة جديدة لتأمين التوكيلات بدءاً من يونيو 2026**: [Link](https://aljareeda.net/66118-%D8%AA%D8%A3%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%AA%D9%88%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%82%D8%A7%D8%B1%D9%8A%D8%A9.html)
+
+
+### الكونفدرالية الديمقراطية للشغل (N/A, Mon, 6 Apr 2026 23:40:00 -0700)
+
+
+
+
 ### cosumar (N/A, Tue, 7 Apr 2026 01:20:00 -0700)
 
 - **Cosumar convertit ses rejets en ressource avec un projet de CO₂**: [Link](https://medias24.com/2026/04/06/co%E2%82%82-alimentaire-avec-son-nouveau-projet-industriel-a-500-mdh-cosumar-veut-mettre-fin-a-la-dependance-aux-importations-1654583/)
