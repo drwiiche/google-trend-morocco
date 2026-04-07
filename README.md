@@ -1,3 +1,50 @@
+### أجر (N/A, Tue, 7 Apr 2026 08:30:00 -0700)
+
+- **الإدارية العليا تقضي بأحقية الموظفين في صرف أجر ساعات العمل الإضافية**: [Link](https://www.rosaelyoussef.com/1386244)
+- **حيثيات الإدارية العليا بأحقية الموظفين في صرف أجر ساعات العمل الإضافية**: [Link](https://www.vetogate.com/5630792)
+- **دفاعا عن 94% من قوة العمل.. تحرك برلماني لرفع أجور العاملين بالقطاع الخاص**: [Link](https://www.egypttelegraph.com/article/233400/%D8%AF%D9%81%D8%A7%D8%B9%D8%A7-%D8%B9%D9%86-94-%D9%85%D9%86-%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B9%D9%85%D9%84-%D8%AA%D8%AD%D8%B1%D9%83)
+
+
+### transfert (N/A, Tue, 7 Apr 2026 08:30:00 -0700)
+
+- **Pep Guardiola ouvre la porte au départ de l’un de ses piliers - Angleterre - Manchester City**: [Link](https://www.sofoot.com/breves/manchester-city-pep-guardiola-sexprime-sur-la-rumeur-de-rodri-au-real-madrid)
+- **Le Real Madrid écarte l'hypothèse d'une signature de Rodri cet été**: [Link](https://tribuna.com/fr/news/2026-04-07-le-real-madrid-ecarte-lhypothese-dune-signature-de-rodri-cet-ete/)
+- **Les clubs de Premier League mis en alerte rouge par les projets de transfert estivaux du Real Madrid**: [Link](https://www.finistere-foot.fr/les-clubs-de-premier-league-mis-en-alerte-rouge-par-les-projets-de-transfert-estivaux-du-real-madrid/)
+
+
+### gaz (N/A, Tue, 7 Apr 2026 07:50:00 -0700)
+
+- **Egypte: Eni annonce la découverte d'un important gisement de gaz offshore**: [Link](https://medias24.com/agence-presse/egypte-eni-annonce-la-decouverte-dun-important-gisement-de-gaz-offshore/)
+- **Découverte de gaz au large de l'Égypte en pleine guerre avec l'Iran**: [Link](https://fr.euronews.com/business/2026/04/07/decouverte-de-gaz-au-large-de-legypte-a-un-moment-critique-de-la-guerre-en-iran)
+- **Eni annonce une découverte de 2 Tcf de gaz au large de l'Egypte**: [Link](https://ch.zonebourse.com/actualite-bourse/eni-annonce-une-decouverte-de-2-tcf-de-gaz-au-large-de-l-egypte-ce7e51d3dc8ff222)
+
+
+### real madrid – bayern munich (N/A, Tue, 7 Apr 2026 07:40:00 -0700)
+
+- **Arbeloa’s Possible Lineup For Real Madrid vs Bayern Munich**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/arbeloa-s-possible-lineup-for-real-madrid-vs-bayern-munich-2026-04-07)
+- **Hell of Santiago Bernabeu Awaits Bayern Munich**: [Link](https://www.ysscores.com/en/news/13940949/Hell-of-Santiago-Bernabeu-Awaits-Bayern-Munich)
+- **Joshua Kimmich plays down Vinicius Junior feud as Bayern Munich prepare for Real Madrid Champions League showdown**: [Link](https://www.goal.com/en/lists/joshua-kimmich-plays-down-vinicius-junior-feud-bayern-munich-prepare-real-madrid-champions-league-showdown/blt6593a8f3411fa655)
+
+
+### كأس الأمم الإفريقية 2027 (N/A, Tue, 7 Apr 2026 07:20:00 -0700)
+
+- **تقرير من الكاف يكشف عن تأخر "كارثي" في الاستعداد "لكان 2027"**: [Link](https://madar21.com/417739.html)
+- **أوغندا تعلن تجهيز ملعبين وتؤكد استضافة كأس أمم أفريقيا رفقة كينيا وتنزانيا بين 19 يونيو و18 يوليوز 2027**: [Link](https://m.elbotola.com/article/2026-04-07-10-16-941.html)
+- **رسميًا.. تحديد موعد كأس أمم أفريقيا 2027 في كينيا وأوغندا وتنزانيا**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=07042026&id=0799f01a-1ae1-4669-8fac-f07f1d123f81)
+
+
+### وقود (N/A, Tue, 7 Apr 2026 07:00:00 -0700)
+
+
+
+
+### عاصفة رعدية (N/A, Tue, 7 Apr 2026 06:30:00 -0700)
+
+- **شهدت العديد من المناطق في الفترة من 7 إلى 8 أبريل موجة حر شديدة بشكل استثنائي حيث تجاوزت درجات الحرارة 40 درجة مئوية.**: [Link](https://www.vietnam.vn/ar/tu-ngay-7-8-4-nhieu-khu-vuc-co-noi-nang-nong-dac-biet-gay-gat-tren-40-do-c)
+- **حالة الطقس اليوم تسجل حرارة شديدة تتجاوز 40 درجة في بعض المناطق**: [Link](https://tawusal.com/77149/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%B3%D8%AC%D9%84-%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%AA%D8%AC%D8%A7/)
+- **ارتفاع الحرارة في البلاد وعواصف رعدية مساءً**: [Link](https://pls48.net/57375/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D9%88%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9/)
+
+
 ### procuration (N/A, Tue, 7 Apr 2026 06:50:00 -0700)
 
 - **De nouvelles lois contre la spoliation immobilière. Qu’est-ce qui change?**: [Link](https://telquel.ma/2026/04/07/de-nouvelles-lois-contre-la-spoliation-immobiliere-quest-ce-qui-change_1651201)
