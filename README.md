@@ -1,3 +1,17 @@
+### achraf hakimi (N/A, Tue, 7 Apr 2026 09:20:00 -0700)
+
+- **Luis Enrique rebaja la euforia antes del PSG-Liverpool: "No somos favoritos"**: [Link](https://www.sport.es/es/noticias/futbol-internacional/psg/luis-enrique-rebaja-euforia-psg-128821750)
+- **En directo a partir de las 12:15 p.m. BST: vea el entrenamiento del Liverpool previo al Paris Saint-Germain**: [Link](https://www.liverpoolfc.com/es/news/watch-again-liverpool-pre-paris-saint-germain-training)
+- **PSG vs. Liverpool: la historia se da vuelta y ahora Liverpool quiere devolverle la sorpresa a PSG**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16540849/psg-liverpool-uefa-champions-league-quiere-devolver-sorpresa)
+
+
+### صاروخ (N/A, Tue, 7 Apr 2026 09:10:00 -0700)
+
+- **انفجارات تضرب تل أبيب والقدس وإيلات عبر هجمات من إيران وحزب الله واليمن**: [Link](https://www.aljazeera.net/news/2026/4/6/%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%AA%D8%B2%D8%A7%D9%85%D9%86-%D9%85%D9%86-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%8A%D9%85%D9%86)
+- **إعلام عبري يدعي استهداف إيران لمجمع كيميائي جنوبي إسرائيل 3 مرات**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%B9%D8%A8%D8%B1%D9%8A-%D9%8A%D8%AF%D8%B9%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%84%D9%85%D8%AC%D9%85%D8%B9-%D9%83%D9%8A%D9%85%D9%8A%D8%A7%D8%A6%D9%8A-%D8%AC%D9%86%D9%88%D8%A8%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-3-%D9%85%D8%B1%D8%A7%D8%AA/3895414)
+- **إيران تطلق أكثر من 13 صاروخا باليستيا على إسرائيل وتحذيرات من تصعيد مرتقب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260406-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B7%D9%84%D9%82-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-13-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D8%A7-%D8%A8%D8%A7%D9%84%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D9%85%D8%B1%D8%AA%D9%82%D8%A8)
+
+
 ### أجر (N/A, Tue, 7 Apr 2026 08:30:00 -0700)
 
 - **الإدارية العليا تقضي بأحقية الموظفين في صرف أجر ساعات العمل الإضافية**: [Link](https://www.rosaelyoussef.com/1386244)
