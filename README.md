@@ -1,3 +1,38 @@
+### ko (N/A, Tue, 7 Apr 2026 13:00:00 -0700)
+
+- **Why Calm CEO David Ko is stepping down after scaling the meditation app**: [Link](https://www.fastcompany.com/91522961/why-calm-ceo-david-ko-is-stepping-down-after-scaling-the-meditation-app)
+- **Coca-Cola (KO) executive Sanket Ray reports shares, options and RSUs in Form 3**: [Link](https://www.stocktitan.net/sec-filings/KO/form-3-coca-cola-co-initial-statement-of-beneficial-ownership-8e80ae83ad0c.html)
+- **Coca-Cola (NYSE: KO) CDO discloses stock, RSU and option awards**: [Link](https://www.stocktitan.net/sec-filings/KO/form-3-coca-cola-co-initial-statement-of-beneficial-ownership-8808195798b8.html)
+
+
+### flashscore (N/A, Tue, 7 Apr 2026 12:50:00 -0700)
+
+- **Cristian Romero accused of giving Roberto De Zerbi an early Tottenham headache**: [Link](https://www.spurs-web.com/spurs-news/cristian-romero-accused-of-giving-roberto-de-zerbi-an-early-tottenham-headache/)
+- **Here's why Romero could be a wise purchase for Atletico Madrid**: [Link](https://www.flashscore.com/news/what-would-cristian-romero-bring-to-atletico-madrid/AuNwNqUQ/)
+- **Fee set: Man United quoted £43.5m to sign important Tottenham player**: [Link](https://www.caughtoffside.com/2026/04/07/cristian-romero-transfer-price/)
+
+
+### koora (N/A, Tue, 7 Apr 2026 12:40:00 -0700)
+
+- **توقف غامض للدوري المغربي.. وشبح موسم غير مكتمل يلوح في الأفق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%82%D9%81-%D8%BA%D8%A7%D9%85%D8%B6-%D9%84%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A--%D9%88%D8%B4%D8%A8%D8%AD-%D9%85%D9%88%D8%B3%D9%85-%D8%BA%D9%8A%D8%B1-%D9%85%D9%83%D8%AA%D9%85%D9%84-%D9%8A%D9%84%D9%88%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D9%82/blt2a17268c54bae8be)
+- **البطولة الاحترافية تتوقف من جديد!**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D9%81-%D9%85%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF/)
+- **العصبة توقف منافسات القسم الثاني**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%AA%D9%88%D9%82%D9%81-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7-433975.html)
+
+
+### yalla (N/A, Tue, 7 Apr 2026 12:40:00 -0700)
+
+- **Accelerating Self-Reliance in Defence Material Development**: [Link](https://www.devdiscourse.com/article/technology/3864861-accelerating-self-reliance-in-defence-material-development)
+- **Air Marshal Yalla stresses advanced materials in aerospace**: [Link](https://www.awazthevoice.in/india-news/air-marshal-yalla-stresses-advanced-materials-in-aerospace-56283.html)
+- **Translating Lab Materials To Industry A Key Challenge: DRDO Chief**: [Link](https://odishatv.in/videosodisha/society/translating-lab-materials-to-industry-a-key-challenge-drdo-chief-11462391)
+
+
+### live (N/A, Tue, 7 Apr 2026 12:20:00 -0700)
+
+- **AEW Dynasty 2026 Match Card Predictions: MJF vs Kenny Omega & Full Preview**: [Link](https://www.chaseyoursport.com/pro-wrestling/aew-dynasty-2026-match-card-predictions/11975)
+- **Betting Odds For AEW Dynasty**: [Link](https://411mania.com/wrestling/betting-odds-for-aew-dynasty/)
+- **Former AEW Women's World Champion Challenges Thekla To Dynasty Match**: [Link](https://sports.yahoo.com/articles/former-aew-womens-world-champion-150006602.html)
+
+
 ### bet365 (N/A, Tue, 7 Apr 2026 12:30:00 -0700)
 
 - **bet365 bonus code: Bet $10, get $365 in bonus bets for the Masters**: [Link](https://nypost.com/2026/04/07/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-the-masters/)
