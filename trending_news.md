@@ -1,3 +1,36 @@
+### حالة الطقس (N/A, Mon, 6 Apr 2026 23:20:00 -0700)
+
+- **درجات الحرارة تصل إلى 28 درجة يوم الثلاثاء**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1512004/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-28-%D8%AF%D8%B1%D8%AC%D8%A9-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1)
+- **طقس اليوم: سحب قليلة والحرارة تصل إلى 28 درجة**: [Link](https://diwanfm.net/news/%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A7%D8%AA/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85%3A-%D8%B3%D8%AD%D8%A8-%D9%82%D9%84%D9%8A%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-28-%D8%AF%D8%B1%D8%AC%D8%A9)
+- **حالة الطقس اليوم درجات الحرارة تصل إلى 28 درجة وتوقعات للأجواء المعتدلة**: [Link](https://tawusal.com/77701/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-2/)
+
+
+### weather (N/A, Mon, 6 Apr 2026 23:00:00 -0700)
+
+- **Strongest El Niño in a century? What this rare phenomenon could bring.**: [Link](https://www.washingtonpost.com/weather/2026/04/06/super-el-nino-chances-increasing-risks/)
+- **What is a super El Niño? Here's what the weather pattern means for hurricanes and US weather.**: [Link](https://www.9news.com/article/weather/what-is-a-super-el-nino/507-4213800f-f091-451b-af14-448e341d2b03)
+- **Chances grow for ‘Super’ El Niño by summer**: [Link](https://www.clickorlando.com/weather/2026/04/06/chances-grow-for-super-el-nino-by-summer/)
+
+
+### الجزيرة (N/A, Mon, 6 Apr 2026 22:50:00 -0700)
+
+- **تحرك في الكونغرس لعزل وزير الحرب ومطالبة بتفعيل "التعديل 25" ضد ترمب**: [Link](https://www.aljazeera.net/news/2026/4/7/%D8%AA%D8%AD%D8%B1%D9%83-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D8%B1%D8%B3-%D9%84%D8%B9%D8%B2%D9%84-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8)
+- **هل يمكن تفعيل التعديل الخامس والعشرين ضد ترامب؟ وإليك كيف يعمل**: [Link](https://albalad.news/news/%D9%87%D9%84-%D9%8A%D9%85%D9%83%D9%86-%D8%AA%D9%81%D8%B9%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%84-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%88%D8%A7%D9%84%D8%B9%D8%B4%D8%B1%D9%8A%D9%86/419126/)
+- **مطالب أمريكية بتفعيل التعديل الخامس والعشرين من الدستور لعزل ترامب**: [Link](https://elayem.news/%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A8%D8%AA%D9%81%D8%B9%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%84-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%88/)
+
+
+### دونالد ترمب (N/A, Mon, 6 Apr 2026 22:30:00 -0700)
+
+- **نادي النخبة الأمريكي للغولف يرفض عضوية ترمب**: [Link](https://www.aljazeera.net/sport/2026/4/7/%D8%A3%D9%88%D8%BA%D8%B3%D8%AA%D8%A7-%D8%BA%D9%88%D9%84%D9%81-%D8%B1%D9%81%D8%B6-%D8%B9%D8%B6%D9%88%D9%8A%D8%A9-%D8%AA%D8%B1%D9%85%D8%A8)
+- **ترامب غير مرحب به في نادي «أوغستا».. والسبب شخصيته**: [Link](https://www.albayan.ae/sports/golf/1179232)
+- **ترامب والغولف.. لماذا ترفض بعض الأندية التعامل مع الرئيس الأمريكي؟**: [Link](https://al-ain.com/article/golf-legend-reject-donald-trump)
+
+
+### aïd (N/A, Mon, 6 Apr 2026 19:20:00 -0700)
+
+
+
+
 ### météo (N/A, Mon, 6 Apr 2026 22:40:00 -0700)
 
 - **Météo - Le soleil pointe à nouveau le bout de son nez**: [Link](https://www.lalibre.be/dernieres-depeches/2026/04/07/meteo-le-soleil-pointe-a-nouveau-le-bout-de-son-nez-LXVQ3OX2ABENFMIIVF2SKO2YZ4/)
