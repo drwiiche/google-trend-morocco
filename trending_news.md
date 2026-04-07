@@ -1,3 +1,66 @@
+### السنغال (N/A, Tue, 7 Apr 2026 13:50:00 -0700)
+
+- **تفاصيل لا تُصدق.. وثائق تكشف ما دار خلف الكواليس في نهائي المغرب والسنغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%84%D8%A7-%D8%AA%D9%8F%D8%B5%D8%AF%D9%82--%D9%88%D8%AB%D8%A7%D9%8A%D9%94%D9%82-%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D8%A7-%D8%AF%D8%A7%D8%B1-%D8%AE%D9%84%D9%81-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/blt716cf673a29e1177)
+- **موتسيبي في السنغال بسبب أزمة “الكان”**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%86-1727316.html)
+- **ماذا حدث في نهائي المغرب والسنغال.. تفاصيل جديدة تعيد رسم المشهد**: [Link](https://ar.yabiladi.com/articles/details/191836/%D9%85%D8%A7%D8%B0%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8.html)
+
+
+### لويس إنريكي (N/A, Tue, 7 Apr 2026 13:50:00 -0700)
+
+- **إنريكي: حطمنا توقعات ليفربول الإيجابية.. وحكيمي أنهى الفترة الصعبة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%AD%D8%B7%D9%85%D9%86%D8%A7-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A%D8%A9--%D9%88%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A7%D9%94%D9%86%D9%87%D9%89-%D8%A7%D9%84%D9%81%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%B9%D8%A8%D8%A9/blteb32328b033912de)
+- **الإسباني سانشيز حكما لقمة باريس سان جيرمان وليفربول بدروي أبطال أوروبا**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D8%AD%D9%83%D9%85%D8%A7-%D9%84%D9%82%D9%85%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A-433962.html)
+- **سان جيرمان ضد ليفربول في ربع نهائي دوري الأبطال: الموعد والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/4/6/%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
+### atlético madrid (N/A, Tue, 7 Apr 2026 13:50:00 -0700)
+
+- **Antoine Griezmann Announces Atlético Madrid Departure, Set for MLS Move**: [Link](https://m.elbotola.com/en/article/2026-04-07-19-30-841.html)
+- **Departing Griezmann Back at Barca in Search of Atletico Grand Finale**: [Link](https://english.aawsat.com/sports/5259582-departing-griezmann-back-barca-search-atletico-grand-finale)
+- **A childhood passion drives Griezmann ahead of the clash with Barcelona**: [Link](https://www.goal.com/en-gb/news/a-childhood-passion-drives-griezmann-ahead-of-the-clash-with-barcelona/blt0d2316d282835aed)
+
+
+### jamal musiala (N/A, Tue, 7 Apr 2026 13:40:00 -0700)
+
+- **"The soul and psyche are also involved" – Bayern boss on Musiala's battle to get back to his best**: [Link](https://ca.sports.yahoo.com/news/soul-psyche-involved-bayern-boss-122300938.html)
+- **Canadian star Davies sets up Bayern’s game-winner in return to lineup**: [Link](https://www.sportsnet.ca/soccer/video/canadian-star-davies-sets-up-bayerns-game-winner-in-return-to-lineup/)
+- **„Not everything flawless“: Eberl’s statements on Musiala’s injury raise eyebrows**: [Link](https://fcbinside.com/2026/04/07/not-everything-flawless-eberls-statements-on-musialas-injury-raise-eyebrows/)
+
+
+### 365 (N/A, Tue, 7 Apr 2026 13:20:00 -0700)
+
+- **Barndoor AI Expands Enterprise AI Capabilities With Microsoft 365 and Governance Upgrades**: [Link](https://www.tipranks.com/news/private-companies/barndoor-ai-expands-enterprise-ai-capabilities-with-microsoft-365-and-governance-upgrades)
+- **Barndoor expands AI governance platform with Microsoft 365 MCP integrations and enhanced policy management**: [Link](https://www.chartmill.com/news/MSFT/prnews-2026-4-7-barndoor-expands-ai-governance-platform-with-microsoft-365-mcp-integrations-and-enhanced-policy-management)
+- **Barndoor AI Extends Governance Platform to Microsoft 365 and Tightens Control of AI Agents**: [Link](https://www.tipranks.com/news/private-companies/barndoor-ai-extends-governance-platform-to-microsoft-365-and-tightens-control-of-ai-agents)
+
+
+### خبر (N/A, Tue, 7 Apr 2026 13:20:00 -0700)
+
+- **حرب إيران.. 3 ساعات على نهاية مهلة ترمب ومفاجأة باكستانية**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/7/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%AC%D8%AF%D8%AF-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%82%D8%B5%D9%81)
+- **كيف سيكون شكل التصعيد في حرب إيران حال فشلت المساعي الدبلوماسية؟**: [Link](https://www.bbc.com/arabic/articles/cvg0w817rl9o)
+- **ساعات على انتهاء مهلة ترامب.. إليكم آخر تطورات الحرب في إيران**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/07/these-are-the-latest-developments-around-war-in-iran-ahead-of-trumps-deadline)
+
+
+### الطقس غدًا (N/A, Tue, 7 Apr 2026 13:10:00 -0700)
+
+- **عودة الأمطار بقوة.. بيان عاجل بشأن حالة الطقس: «الجو هيقلب»**: [Link](https://www.almasryalyoum.com/news/details/4237394)
+- **أمطار رعدية وطقس دافئ.. الأرصاد المصرية تكشف خريطة التقلبات الجوية**: [Link](https://www.alkhaleej.ae/2026-04-07/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B7%D9%82%D8%B3-%D8%AF%D8%A7%D9%81%D8%A6-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-6392561/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA)
+- **الأرصاد تكشف تفاصيل طقس غداً في مصر**: [Link](https://arqam.news/553212/)
+
+
+### rma vs bayern munich (N/A, Tue, 7 Apr 2026 13:10:00 -0700)
+
+- **Real Madrid - Bayern Munich, un classique qui ne vieillit jamais**: [Link](https://onefootball.com/en/news/real-madrid-bayern-munich-un-classique-qui-ne-vieillit-jamais-42582169)
+- **DIRECT. Real Madrid-Bayern Munich (Ligue des champions 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2025-2026/real-madrid-bayern-munich-live/689023)
+- **EN DIRECT – Real Madrid-Bayern Munich : les Bavarois sonnent logiquement Mbappé et les Merengue avant la pause... intense bataille au Bernabéu**: [Link](https://www.lefigaro.fr/sports/football/live/ligue-des-champions/2025/2629021/real-madrid-bayern-munich)
+
+
+### sporting (N/A, Tue, 7 Apr 2026 13:10:00 -0700)
+
+- **Sporting x Arsenal: Gyökeres vai reencontrar ex-clube em duelo decisivo da Champions; veja onde assistir e escalações**: [Link](https://francesnews.com.br/post/2026/04/26/20289-sporting-x-arsenal-gyokeres-vai-reencontrar-ex-clube-em-duelo-decisivo-da-champions-veja-onde-assistir-e-escalacoes)
+- **A estrela do esporte com tatuagem do Arsenal não jogará nas quartas de final**: [Link](https://www.segundabase.com.br/estatisticas/a-estrela-do-esporte-com-tatuagem-do-arsenal-nao-jogara-nas-quartas-de-final/216416/)
+- **Ausência de Saka e retorno de Rice... Arteta anuncia a escalação do Arsenal para o jogo contra o Sporting**: [Link](https://www.goal.com/br/not%C3%ADcias/ausencia-de-saka-e-retorno-de-rice-arteta-anuncia-a-escalacao-do-arsenal-para-o-jogo-contra-o-sporting/blt34548e788dfd4b39)
+
+
 ### ko (N/A, Tue, 7 Apr 2026 13:00:00 -0700)
 
 - **Why Calm CEO David Ko is stepping down after scaling the meditation app**: [Link](https://www.fastcompany.com/91522961/why-calm-ceo-david-ko-is-stepping-down-after-scaling-the-meditation-app)
