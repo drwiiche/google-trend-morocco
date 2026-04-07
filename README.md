@@ -1,3 +1,73 @@
+### سبورتينغ ضد آرسنال (N/A, Tue, 7 Apr 2026 11:20:00 -0700)
+
+- **غياب ساكا وعودة رايس.. أرتيتا يعلن تشكيل آرسنال أمام سبورتنج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B3%D8%A7%D9%83%D8%A7-%D9%88%D8%B9%D9%88%D8%AF%D8%A9-%D8%B1%D8%A7%D9%8A%D8%B3--%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%86%D8%AC/blt34548e788dfd4b39)
+- **بعد هزيمتين متتاليتين في مسابقتي الكأس.. أرتيتا يطالب أرسنال برد قوي في دوري الأبطال**: [Link](https://www.aljazeera.net/sport/2026/4/6/%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **دوري أبطال أوروبا: أرسنال المتعثر يواجه اختبارا حقيقيا للشخصية أمام سبورتينغ**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260406-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D8%B9%D8%AB%D8%B1-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7-%D8%AD%D9%82%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA)
+
+
+### real madrid – bayern (N/A, Tue, 7 Apr 2026 11:10:00 -0700)
+
+- **Real Madrid vs Bayern Munich - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-madrid/champions-league/result/real-madrid-vs-bayern-prediction-team-news-lineups_595132.html)
+- **Trent Alexander-Arnold MUST lock down electric Luis Diaz in Real Madrid's blockbuster Bayern Munich tie - or he can kiss his England World Cup hopes goodbye**: [Link](https://www.goal.com/en-sa/lists/trent-alexander-arnold-lock-down-luis-diaz-real-madrid-bayern-munich-champions-league-england-world-cup-squad/bltaa6f6fc9661f0b9b)
+- **Bayern Munich boss Vincent Kompany wants to achieve ‘dream’ win**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/186078/bayern-munich-boss-vincent-kompany-wants-to-achieve-dream-win)
+
+
+### الريال ضد البايرن (N/A, Tue, 7 Apr 2026 11:10:00 -0700)
+
+- **قرار جريء من أربيلوا.. تسريب خطة ريال مدريد ضد البايرن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%AC%D8%B1%D9%8A%D8%A1-%D9%85%D9%86-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7--%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8-%D8%AE%D8%B7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86/blt53f93ad6ec9fd83d)
+- **مباشر ريال مدريد ضد بايرن ميونيخ في ذهاب ربع نهائي أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/7/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **دوري أبطال أوروبا.. مواجهات حارقة في ذهاب ربع النهائي**: [Link](https://2m.ma/ar/news/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B1%D9%82%D8%A9-%D9%81%D9%8A-%D8%B0%D9%87%D8%A7%D8%A8-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-20260406)
+
+
+### sporting – arsenal (N/A, Tue, 7 Apr 2026 11:10:00 -0700)
+
+- **Every word from Arteta's pre-Sporting presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-sporting-presser-0)
+- **Arsenal boss Mikel Arteta calls for perspective before crucial Sporting Champions League tie**: [Link](https://www.bbc.com/sport/football/articles/c77md5mp475o)
+- **Champions League: Rui Borges aims to make history against Arsenal (with video)**: [Link](https://www.plataformamedia.com/en/2026/04/07/rui-borges-sporting-arsenal-champions-league-quarterfinal-preview/)
+
+
+### match today (N/A, Tue, 7 Apr 2026 11:10:00 -0700)
+
+- **ASML shares fall after proposed U.S. export curbs target an already fragile China market**: [Link](https://www.cnbc.com/2026/04/07/asml-shares-today-us-chip-export-curbs-china.html)
+- **The U.S. plans to legislate mandatory restrictions on lithography equipment exports to China for its allies, pressuring ASML Holding's stock price to decline.**: [Link](https://news.futunn.com/en/post/71171451/the-us-plans-to-legislate-mandatory-restrictions-on-lithography-equipment)
+- **Ricketts, Kim to introduce MATCH Act**: [Link](https://www.norfolkneradio.com/news/ricketts-kim-to-introduce-match-act/article_55699d1d-b009-4c9a-8fcd-8effcb5ab13f.html)
+
+
+### coupe d'afrique des nations de football (N/A, Tue, 7 Apr 2026 11:00:00 -0700)
+
+- **CAN 2027: le tournoi est prévu du 19 juin au 18 juillet**: [Link](https://sport.le360.ma/football/can/can-2027-le-tournoi-est-prevu-du-19-juin-au-18-juillet_3LI2BY23RNCAJFUPSSJXZ3EPGQ/)
+- **CAN 2027 : le Kenya, l’Ouganda et la Tanzanie accueilleront la compétition du 19 juin au 18 juillet**: [Link](https://fr.hespress.com/468610-can-2027-le-kenya-louganda-et-la-tanzanie-accueilleront-la-competition-du-19-juin-au-18-juillet.html)
+- **On connaît les dates définitives de la CAN 2027**: [Link](https://www.sofoot.com/breves/la-can-2027-connait-ses-dates-definitives)
+
+
+### match real (N/A, Tue, 7 Apr 2026 11:00:00 -0700)
+
+- **Real Madrid - Bayern Munich : les compositions officielles**: [Link](https://www.footmercato.net/a3644988633407346586-real-madrid-bayern-munich-les-compositions-officielles)
+- **Ligue des Champions : deux affiches de prestige pour lancer les quarts de finale**: [Link](https://fr.hespress.com/468586-ligue-des-champions-deux-affiches-de-prestige-pour-lancer-les-quarts-de-finale.html)
+- **Real Madrid-Bayern Munich : un choc capital pour les Merengue, après leur désillusion en Liga**: [Link](https://www.lemonde.fr/sport/article/2026/04/07/real-madrid-bayern-munich-un-choc-capital-pour-les-merengue-apres-leur-desillusion-en-liga_6677901_3242.html)
+
+
+### تحكيم (N/A, Tue, 7 Apr 2026 10:50:00 -0700)
+
+- **ميطا 3 | لقجع يبعث الأمل قبل "الطاس"**: [Link](https://www.hespress.com/%D9%85%D9%8A%D8%B7%D8%A7-3-%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%A8%D8%B9%D8%AB-%D8%A7%D9%84%D8%A3%D9%85%D9%84-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-1725730.html)
+- **المدير العام لـ"الطاس": "سنجري مسطرة التحكيم الخاصة بنهائي الكان في أفضل الآجال وندرك رغبة الجماهير في معرفة القرار النهائي"**: [Link](https://m.elbotola.com/article/2026-04-07-15-36-51.html)
+- **ماتيو ريب (الطاس): سنحسم ملف نهائي كأس إفريقيا في أقرب الآجال - موقع كوول - gool**: [Link](https://achtari24.com/gool/2026/04/07/%D9%85%D8%A7%D8%AA%D9%8A%D9%88-%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-%D8%B3%D9%86%D8%AD%D8%B3%D9%85-%D9%85%D9%84%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81/)
+
+
+### amal el fallah seghrouchni (N/A, Tue, 7 Apr 2026 10:50:00 -0700)
+
+- **Souveraineté de l’IA au Maroc : six niveaux pour une indépendance numérique graduelle**: [Link](https://medias24.com/2026/04/05/souverainete-de-lia-au-maroc-six-niveaux-pour-une-independance-numerique-graduelle-1654242/)
+- **GITEX Africa 2026 : l’IA et l’innovation s’invitent à Marrakech**: [Link](https://lematin.ma/economie/gitex-africa-2026-lia-et-linnovation-sinvitent-a-marrakech/338820)
+- **Le développement de l’économie numérique marocaine expliqué par Amal El Fellah Seghrouchni**: [Link](https://fr.le360.ma/politique/le-developpement-de-leconomie-numerique-marocaine-explique-par-amal-el-fellah-seghrouchni_CLJKWIGAKNCDTJJFC3ZRPKHN2E/)
+
+
+### منتخب إسبانيا لكرة القدم (N/A, Tue, 7 Apr 2026 10:30:00 -0700)
+
+- **عاجل.. قرار رسمي من الفيفا ضد إسبانيا بعد أحداث مباراة مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%AC%D9%84--%D9%82%D8%B1%D8%A7%D8%B1-%D8%B1%D8%B3%D9%85%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D8%AD%D8%AF%D8%A7%D8%AB-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1/blt413bf2f26b9c366e)
+- **"صوت المسلمين".. فرديناند يشيد بشجاعة لامين جمال في مواجهة العنصرية**: [Link](https://www.aljazeera.net/sport/2026/4/7/%D9%81%D8%B1%D8%AF%D9%8A%D9%86%D8%A7%D9%86%D8%AF-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%B9%D9%86%D8%B5%D8%B1%D9%8A%D8%A9)
+- **بسبب ما وقع له في «ميتروبوليتانو».. فيني يوجه رسالة خاصة إلى يامال**: [Link](https://www.radiomars.ma/%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D8%A7-%D9%88%D9%82%D8%B9-%D9%84%D9%87-%D9%81%D9%8A-%D9%85%D9%8A%D8%AA%D8%B1%D9%88%D8%A8%D9%88%D9%84%D9%8A%D8%AA%D8%A7%D9%86%D9%88-%D9%81%D9%8A%D9%86%D9%8A/)
+
+
 ### real (N/A, Tue, 7 Apr 2026 10:20:00 -0700)
 
 - **Champions League: Kimmich spricht vor Bayern – Real über Wiedersehen mit Vini Jr.!**: [Link](https://www.bild.de/sport/fussball/champions-league-pk-vor-real-bayern-im-live-ticker-kimmich-ueber-offene-vinicius-rechnung-69d3cd9c0880e80b79c61104)
