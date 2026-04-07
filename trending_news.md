@@ -1,3 +1,10 @@
+### michael olise (N/A, Tue, 7 Apr 2026 13:20:00 -0700)
+
+- **Kane, Olise and Diaz: Bayern’s formidable front three chasing Barcelona and Real Madrid greats**: [Link](https://www.nytimes.com/athletic/7166461/2026/04/07/kane-olise-diaz-bayern-front-three-goals-europe/)
+- **Bayern legend taunts Real Madrid: ‘Only Barcelona can match us’**: [Link](https://www.goal.com/en/lists/bayern-legend-taunts-real-madrid-only-barcelona-can-match-us/bltd28923ebabd22683)
+- **Harry Kane, Michael Olise & Luis Diaz 'mesh together like a Swiss watch' but Bayern legend issues 'mentality' warning ahead of Real Madrid match**: [Link](https://www.goal.com/en-ca/lists/harry-kane-michael-olise-luis-diaz-swiss-watch-bayern-legend-mentality-warning-real-madrid-match/blt7982571cf4ee76ab)
+
+
 ### trump (N/A, Tue, 7 Apr 2026 14:30:00 -0700)
 
 - **Live updates: Trump threatens ‘a whole civilization will die tonight’ ahead of his Iran deadline**: [Link](https://edition.cnn.com/2026/04/07/world/live-news/iran-war-trump-us-israel)
