@@ -1,3 +1,17 @@
+### remise de gaz (N/A, Tue, 7 Apr 2026 00:50:00 -0700)
+
+- **L'avion allait atterrir mais le pilote a décidé de remettre les gaz à cause "de la présence supposée de feux d'artifice à proximité de la piste" à l'aéroport d'Orly**: [Link](https://www.bfmtv.com/economie/entreprises/transports/l-avion-allait-atterrir-mais-le-pilote-a-decide-de-remettre-les-gaz-a-cause-de-la-presence-supposee-de-feux-d-artifice-a-proximite-de-la-piste-a-l-aeroport-d-orly_AD-202604060415.html)
+- **Aéroport de Paris-Orly : un avion d’easyJet contraint de retarder son atterrissage après des tirs de mortier**: [Link](https://fr.hespress.com/468528-aeroport-de-paris-orly-un-avion-deasyjet-contraint-de-retarder-son-atterrissage-apres-des-tirs-de-mortier.html)
+- **Aéroport d’Orly : un cortège de mariage dégénère avec des tirs de mortiers, un avion obligé de remettre les gaz**: [Link](https://www.leparisien.fr/val-de-marne-94/aeroport-dorly-un-cortege-de-mariage-degenere-avec-des-tirs-de-mortiers-un-avion-oblige-de-remettre-les-gaz-06-04-2026-3H5LUQ7FEFGXRBCZMDKUCBVWZQ.php)
+
+
+### séquestration (N/A, Tue, 7 Apr 2026 00:50:00 -0700)
+
+- **Disparition de Clément Besneville à Rabat : une nouvelle enquête ouverte pour enlèvement et séquestration en France**: [Link](https://mobile.telquel.ma/2026/04/06/disparition-de-clement-besneville-a-rabat-une-nouvelle-enquete-ouverte-pour-enlevement-et-sequestration-en-france_1982652)
+- **Disparition de Clément Besneville au Maroc : la justice française ouvre une nouvelle enquête pour enlèvement et séquestration**: [Link](https://www.lemonde.fr/afrique/article/2026/04/04/disparition-de-clement-besneville-au-maroc-la-justice-francaise-ouvre-une-nouvelle-enquete-pour-enlevement-et-sequestration_6676684_3212.html)
+- **Seine-et-Marne : "Un œil nouveau"… une autre enquête ouverte, 2 ans après la disparition de Clément au Maroc**: [Link](https://actu.fr/ile-de-france/saint-sauveur-sur-ecole_77435/seine-et-marne-un-oeil-nouveau-une-autre-enquete-ouverte-2-ans-apres-la-disparition-de-clement-au-maroc_64100917.html)
+
+
 ### gitex (N/A, Tue, 7 Apr 2026 00:40:00 -0700)
 
 - **French Minister in charge of AI to take part in GITEX Africa**: [Link](https://en.hespress.com/135170-french-minister-in-charge-of-ai-to-take-part-in-gitex-africa.html)
