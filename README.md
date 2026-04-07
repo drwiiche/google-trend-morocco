@@ -1,3 +1,17 @@
+### real (N/A, Tue, 7 Apr 2026 10:20:00 -0700)
+
+- **Champions League: Kimmich spricht vor Bayern – Real über Wiedersehen mit Vini Jr.!**: [Link](https://www.bild.de/sport/fussball/champions-league-pk-vor-real-bayern-im-live-ticker-kimmich-ueber-offene-vinicius-rechnung-69d3cd9c0880e80b79c61104)
+- **Babbel greift Real Madrid an: „Der meistgehasste Verein Europas“**: [Link](https://www.vietnam.vn/de/babbel-cong-kich-real-madrid-clb-dang-ghet-nhat-chau-au)
+- **Real trifft auf Bayern + Silberberger neu beim WAC**: [Link](https://www.krone.at/4100422)
+
+
+### real madrid (N/A, Tue, 7 Apr 2026 10:10:00 -0700)
+
+- **Alineación posible del Real Madrid contra el Bayern Múnich en la ida de Champions**: [Link](https://as.com/futbol/alineacion-posible-del-real-madrid-contra-el-bayern-munich-en-la-ida-de-champions-f202604-n/)
+- **El Bayern que viene al Bernabéu: la máquina goleadora más letal de Europa**: [Link](https://www.marca.com/futbol/champions-league/2026/04/06/bayern-viene-bernabeu-maquina-goleadora-letal-europa.html)
+- **El Madrid cerrará la cubierta del Bernabéu pese a las quejas del Bayern a la UEFA**: [Link](https://www.sport.es/es/noticias/champions/madrid-cerrara-cubierta-bernabeu-pese-128817415)
+
+
 ### achraf hakimi (N/A, Tue, 7 Apr 2026 09:20:00 -0700)
 
 - **Luis Enrique rebaja la euforia antes del PSG-Liverpool: "No somos favoritos"**: [Link](https://www.sport.es/es/noticias/futbol-internacional/psg/luis-enrique-rebaja-euforia-psg-128821750)
