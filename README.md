@@ -1,3 +1,36 @@
+### نادي الوداد الرياضي (N/A, Tue, 7 Apr 2026 05:20:00 -0700)
+
+- **جماهير الوداد تستشيط غضبًا.. وكارتيرون: هذا أمر يصعب تقبله**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%AA%D8%B3%D8%AA%D8%B4%D9%8A%D8%B7-%D8%BA%D8%B6%D8%A8%D9%8B%D8%A7--%D9%88%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%87%D8%B0%D8%A7-%D8%A7%D9%94%D9%85%D8%B1-%D9%8A%D8%B5%D8%B9%D8%A8-%D8%AA%D9%82%D8%A8%D9%84%D9%87/blt38848c23f502a325)
+- **الدفاع الحسني الجديدي يعود بتعادل ثمين من "دونور" أمام الوداد الرياضي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%AB%D9%85%D9%8A-1727064.html)
+- **كواليس الفرق**: [Link](https://assabah.ma/913685.html)
+
+
+### carlos alcaraz (N/A, Tue, 7 Apr 2026 05:10:00 -0700)
+
+- **Sebastián Báez vs. Carlos Alcaraz, en vivo**: [Link](https://es-us.noticias.yahoo.com/deportes/sebasti%C3%A1n-b%C3%A1ez-vs-carlos-alcaraz-113124608.html)
+- **Báez le ganó a Wawrinka y avanzó a la segunda ronda del Masters 1000 de Montecarlo**: [Link](https://onefootball.com/fr/news/baez-le-gano-a-wawrinka-y-avanzo-a-la-segunda-ronda-del-masters-1000-de-montecarlo-42669925)
+- **Wawrinka se despide de Montecarlo y reflexiona sobre la "increíble" final con Federer**: [Link](https://www.atptour.com/es/news/wawrinka-reaction-monte-carlo-2026-monday)
+
+
+### سعر (N/A, Tue, 7 Apr 2026 05:10:00 -0700)
+
+- **استقرار الدولار واليورو وارتفاع ملحوظ للجنيه الإسترليني في تعاملات اليوم**: [Link](https://tawusal.com/77875/%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D9%88-%D9%88%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D9%84%D8%AD%D9%88/)
+- **أسعار العملات في مصر اليوم الثلاثاء 7/4/2026.. تحديث الفرنك واليوان واليورو مقابل الجنيه - المشهد**: [Link](https://www.almashhad.com/article/174515324408726-economy/248283033387443-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%AA-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-742026-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D9%83-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D9%88-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%86%D9%8A%D9%87/)
+- **7 أبريل 2026.. أسعار الدولار في البنوك المحلية اليوم**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=07042026&id=9e3b3d8f-e37c-4cc9-bd21-202e1f7dc718)
+
+
+### grand national du trot (N/A, Tue, 7 Apr 2026 04:50:00 -0700)
+
+
+
+
+### التعديل الخامس والعشرون لدستور الولايات المتحدة (N/A, Tue, 7 Apr 2026 04:30:00 -0700)
+
+- **تحرك في الكونغرس لعزل وزير الحرب ومطالبة بتفعيل "التعديل 25" ضد ترمب**: [Link](https://www.aljazeera.net/news/2026/4/7/%D8%AA%D8%AD%D8%B1%D9%83-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D8%B1%D8%B3-%D9%84%D8%B9%D8%B2%D9%84-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8)
+- **نائبة أميركية تدعو لعزل هيغسيث بتهمة ارتكاب جرائم حرب**: [Link](https://www.alaraby.co.uk/politics/%D9%86%D8%A7%D8%A6%D8%A8%D8%A9-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D9%84%D8%B9%D8%B2%D9%84-%D9%87%D9%8A%D8%BA%D8%B3%D9%8A%D8%AB-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D8%B1%D8%AA%D9%83%D8%A7%D8%A8-%D8%AC%D8%B1%D8%A7%D8%A6%D9%85-%D8%AD%D8%B1%D8%A8)
+- **عزل الرئيس الإمريكي من منصبة بموجب تعديل المادة 25 من الدستور**: [Link](https://www.elzmannews.com/529731)
+
+
 ### jannik sinner (N/A, Tue, 7 Apr 2026 04:00:00 -0700)
 
 - **Tennis: Sinner-Humbert, l'esordio di Jannik a Montecarlo - LIVE**: [Link](https://www.ansa.it/sito/notizie/sport/2026/04/07/tennis-montecarlo-sinner-debutta-contro-il-francese-humbert_0ebce356-e2aa-42f9-849f-da1665d12601.html)
