@@ -1,3 +1,31 @@
+### gitex (N/A, Tue, 7 Apr 2026 00:40:00 -0700)
+
+- **French Minister in charge of AI to take part in GITEX Africa**: [Link](https://en.hespress.com/135170-french-minister-in-charge-of-ai-to-take-part-in-gitex-africa.html)
+- **GITEX Africa 2026: What to Know Before You Go**: [Link](https://www.moroccoworldnews.com/2026/04/286026/gitex-africa-2026-what-to-know-before-you-go/)
+- **Morocco: Palestinian startups showcase their innovations at GITEX Africa with support from Bayt Mal Al-Quds**: [Link](https://yaffaps.com/en/page-93222.html)
+
+
+### steve bannon (N/A, Mon, 6 Apr 2026 23:30:00 -0700)
+
+- **US Supreme Court paves way for dismissal of Steve Bannon conviction**: [Link](https://www.bbc.com/news/articles/cgqk4kyj4yvo)
+- **Steve Bannon appears likely to have criminal conviction dismissed**: [Link](https://www.theguardian.com/us-news/2026/apr/06/steven-bannon-criminal-court-conviction)
+- **Supreme Court clears path for Trump’s DOJ to dismiss criminal case against Steve Bannon**: [Link](https://www.cnn.com/2026/04/06/politics/supreme-court-bannon-case)
+
+
+### الطقس اليوم (N/A, Mon, 6 Apr 2026 23:20:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-79-1727093.html)
+- **أحوال الطقس اليوم الجمعة.. طقس بارد وأمطار متفرقة**: [Link](https://ar.telquel.ma/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D9%84%D9%80%D8%AA%D9%8A%D9%84%D9%83%D9%8A%D9%84-%D8%B9%D8%B1%D8%A8%D9%8A-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%85%D8%AA%D9%82%D9%84%D8%A8%D8%A9-%D9%88%D8%A3/)
+- **رياح عاتية وزخات رعدية.. الأرصاد تدعو المغاربة إلى الحذر**: [Link](https://badil.info/193518)
+
+
+### حالة الطقس اليوم (N/A, Mon, 6 Apr 2026 22:30:00 -0700)
+
+- **حالة الطقس.. استمرار هطول أمطار رعدية متباينة الغزارة على 7 مناطق**: [Link](https://www.alyaum.com/articles/6654473/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D9%87%D8%B7%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D8%A8%D8%A7%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%BA%D8%B2%D8%A7%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-7-%D9%85%D9%86%D8%A7%D8%B7%D9%82)
+- **أمطار غزيرة وتقلبات جوية بالمرتفعات الجنوبية الغربية وتمتد للشرقية والرياض**: [Link](https://25h.app/2026/04/07/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A7%D8%AA-%D8%A7/)
+- **الدفاع المدني السعودي يحذر من استمرار الأمطار الرعدية حتى الجمعة مع توجيه تحذيرات للمناطق الأكثر تأثراً**: [Link](https://tawusal.com/77829/%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D9%86%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1/)
+
+
 ### حالة الطقس (N/A, Mon, 6 Apr 2026 23:20:00 -0700)
 
 - **درجات الحرارة تصل إلى 28 درجة يوم الثلاثاء**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1512004/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-28-%D8%AF%D8%B1%D8%AC%D8%A9-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1)
