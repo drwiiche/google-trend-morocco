@@ -1,3 +1,24 @@
+### météo (N/A, Mon, 6 Apr 2026 22:40:00 -0700)
+
+- **Météo - Le soleil pointe à nouveau le bout de son nez**: [Link](https://www.lalibre.be/dernieres-depeches/2026/04/07/meteo-le-soleil-pointe-a-nouveau-le-bout-de-son-nez-LXVQ3OX2ABENFMIIVF2SKO2YZ4/)
+- **Météo : une semaine ensoleillée avec des pics de température attendus**: [Link](https://www.lesoir.be/739124/article/2026-04-06/meteo-une-semaine-ensoleillee-avec-des-pics-de-temperature-attendus)
+- **Après un week-end capricieux, la météo se réchauffe**: [Link](https://www.bruxellestoday.be/meteo/week-end-meteo-soleil-rechauffe.html)
+
+
+### الطقس (N/A, Mon, 6 Apr 2026 22:40:00 -0700)
+
+- **حالة الطقس اليوم تتوقع طقس حار ومشمس في معظم المناطق**: [Link](https://tawusal.com/77469/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%88%D9%85%D8%B4%D9%85%D8%B3-%D9%81%D9%8A/)
+- **فترات مشمسة تنتظر العديد من المناطق من 6 إلى 15 أبريل مع عواصف رعدية مسائية**: [Link](https://pls48.net/57512/%D9%81%D8%AA%D8%B1%D8%A7%D8%AA-%D9%85%D8%B4%D9%85%D8%B3%D8%A9-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%85%D9%86-6/)
+- **تغيرات في الغطاء السحابي، يوم مشمس**: [Link](https://www.vietnam.vn/ar/may-thay-doi-ngay-troi-nang)
+
+
+### كأس العالم (N/A, Mon, 6 Apr 2026 21:40:00 -0700)
+
+- **"سرق" دوناروما.. فتى 14 عاماً يتسبب في حرمان إيطاليا من كأس العالم**: [Link](https://www.alarabiya.net/sport/2026/04/06/%D9%81%D8%AA%D9%89-%D8%B9%D9%85%D8%B1%D9%87-14-%D8%B9%D8%A7%D9%85%D8%A7-%D8%AA%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A-%D8%AD%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%85%D9%86-%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **"لو كان لامين جمال بإيطاليا للعب بالدرجة الثانية".. كلينسمان ينتقد "الكالتشيو" بعد نكسة...**: [Link](https://www.aljazeera.net/sport/2026/4/5/%D9%83%D9%84%D9%8A%D9%86%D8%B3%D9%85%D8%A7%D9%86-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84)
+- **بالوتيلي يخرج عن صمته: اهدموا كل شيء وابدأوا من الصفر!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%88%D8%AA%D9%8A%D9%84%D9%8A-%D9%8A%D8%AE%D8%B1%D8%AC-%D8%B9%D9%86-%D8%B5%D9%85%D8%AA%D9%87-%D8%A7%D9%87%D8%AF%D9%85%D9%88%D8%A7-%D9%83%D9%84-%D8%B4%D9%8A%D8%A1-%D9%88%D8%A7%D8%A8%D8%AF%D8%A7%D9%94%D9%88%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%B5%D9%81%D8%B1/bltb0851697579ad6d2)
+
+
 ### غاز (N/A, Mon, 6 Apr 2026 15:20:00 -0700)
 
 - **مرصد هرمز | العبور عند أعلى مستوى منذ بدء الحرب.. وسفن العراق تتردد في دخول المضيق**: [Link](https://asharqbusiness.com/economics/127115/%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%AD%D8%A9-%D9%81%D9%8A-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2-%D8%A7%D9%84%D9%8A%D9%88%D9%85-6-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-2026/)
