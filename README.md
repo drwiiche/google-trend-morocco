@@ -1,3 +1,10 @@
+### cosumar (N/A, Tue, 7 Apr 2026 01:20:00 -0700)
+
+- **Cosumar convertit ses rejets en ressource avec un projet de CO₂**: [Link](https://medias24.com/2026/04/06/co%E2%82%82-alimentaire-avec-son-nouveau-projet-industriel-a-500-mdh-cosumar-veut-mettre-fin-a-la-dependance-aux-importations-1654583/)
+- **Cosumar investit 500 MDH dans la production de CO2 alimentaire liquide**: [Link](https://ledesk.ma/2026/04/06/cosumar-investit-500-mdh-dans-la-production-de-co%E2%82%82-alimentaire-liquide/)
+- **Cosumar implante à Casablanca une unité de production de gaz carbonique liquide LCO₂**: [Link](https://fr.le360.ma/economie/cosumar-implante-a-casablanca-une-unite-de-production-de-gaz-carbonique-liquide-lco_7PB4PFYC4VDAHLVYXIARS2XV24/)
+
+
 ### remise de gaz (N/A, Tue, 7 Apr 2026 00:50:00 -0700)
 
 - **L'avion allait atterrir mais le pilote a décidé de remettre les gaz à cause "de la présence supposée de feux d'artifice à proximité de la piste" à l'aéroport d'Orly**: [Link](https://www.bfmtv.com/economie/entreprises/transports/l-avion-allait-atterrir-mais-le-pilote-a-decide-de-remettre-les-gaz-a-cause-de-la-presence-supposee-de-feux-d-artifice-a-proximite-de-la-piste-a-l-aeroport-d-orly_AD-202604060415.html)
