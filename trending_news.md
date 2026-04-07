@@ -1,3 +1,17 @@
+### trump (N/A, Tue, 7 Apr 2026 14:30:00 -0700)
+
+- **Live updates: Trump threatens ‘a whole civilization will die tonight’ ahead of his Iran deadline**: [Link](https://edition.cnn.com/2026/04/07/world/live-news/iran-war-trump-us-israel)
+- **4 ways Trump has suggested the Strait of Hormuz could be reopened — and why they're a tough lift**: [Link](https://www.politico.com/news/2026/04/07/four-ways-trump-has-suggested-the-strait-of-hormuz-could-be-reopened-00862588)
+- **Trump widens threat to all of Iran's power plants and bridges as his deadline for a deal approaches**: [Link](https://apnews.com/article/iran-us-israel-trump-lebanon-april-6-2026-87b62d531d3290fde5255077179bd3b5)
+
+
+### مانويل نوير (N/A, Tue, 7 Apr 2026 14:00:00 -0700)
+
+- **الأرقام لا تكذب.. نوير يعاني قبل موقعة ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D9%82%D8%A7%D9%85-%D9%84%D8%A7-%D8%AA%D9%83%D8%B0%D8%A8--%D9%86%D9%88%D9%8A%D8%B1-%D9%8A%D8%B9%D8%A7%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltc01785cce8a5bc64)
+- **ميزة رائعة في مانويل نوير**: [Link](https://hihi2.com/2026/04/07/p3716816.html)
+- **تصدي نوير الرائع يحرم مبابي من تسجيل هدف امام بايرن مينوخ بدوري ابطال اوروبا**: [Link](https://www.btolat.com/video/92234)
+
+
 ### السنغال (N/A, Tue, 7 Apr 2026 13:50:00 -0700)
 
 - **تفاصيل لا تُصدق.. وثائق تكشف ما دار خلف الكواليس في نهائي المغرب والسنغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%84%D8%A7-%D8%AA%D9%8F%D8%B5%D8%AF%D9%82--%D9%88%D8%AB%D8%A7%D9%8A%D9%94%D9%82-%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D8%A7-%D8%AF%D8%A7%D8%B1-%D8%AE%D9%84%D9%81-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/blt716cf673a29e1177)
