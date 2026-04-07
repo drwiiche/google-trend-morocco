@@ -1,3 +1,29 @@
+### procuration (N/A, Tue, 7 Apr 2026 06:50:00 -0700)
+
+- **De nouvelles lois contre la spoliation immobilière. Qu’est-ce qui change?**: [Link](https://telquel.ma/2026/04/07/de-nouvelles-lois-contre-la-spoliation-immobiliere-quest-ce-qui-change_1651201)
+- **Transactions immobilières : l’enregistrement préalable des procurations devient obligatoire à partir du 1er juin 2026**: [Link](https://ledesk.ma/encontinu/transactions-immobilieres-lenregistrement-prealable-des-procurations-devient-obligatoire-a-partir-du-1er-juin-2026/)
+- **Sociétés civiles immobilières: de nouvelles règles à partir de septembre**: [Link](https://fr.le360.ma/economie/societes-civiles-immobilieres-de-nouvelles-regles-a-partir-de-septembre_UZ44BB5O3JE6ZDXJI3T34Q7YHA/)
+
+
+### iran (N/A, Tue, 7 Apr 2026 06:50:00 -0700)
+
+- **Iran war latest: 'A whole civilisation will die tonight' - Trump warns Tehran as his Strait of Hormuz deadline looms**: [Link](https://news.sky.com/story/iran-war-latest-trump-tehran-us-israel-kharg-island-netanyahu-lebanon-strikes-drone-live-sky-news-13509565)
+- **'This war may not end when Trump wants'**: [Link](https://www.msn.com/en-gb/video/news/iran-war-day-32-videos-on-the-ground/vi-AA1ZQuG3)
+- **Iran war day 30: Videos on the ground**: [Link](https://www.msn.com/en-gb/video/news/iran-war-day-30-videos-on-the-ground/vi-AA1ZFtTZ)
+
+
+### boualem sansal (N/A, Tue, 7 Apr 2026 05:40:00 -0700)
+
+- **Autour de Boualem Sansal, un « malaise » grandissant**: [Link](https://www.lemonde.fr/politique/article/2026/04/07/autour-de-boualem-sansal-un-malaise-grandissant_6677795_823448.html)
+- **“Ils lui ont retourné le cerveau” : comment Boualem Sansal est tombé dans l’escarcelle de Bolloré**: [Link](https://www.nouvelobs.com/bibliobs/20260406.OBS113945/ils-lui-ont-retourne-le-cerveau-comment-boualem-sansal-est-tombe-dans-l-escarcelle-de-bollore.html)
+- **Nouveau hors-série de Valeurs actuelles : « Quand l’Algérie était française »**: [Link](https://www.valeursactuelles.com/histoire/nouveau-hors-serie-de-valeurs-actuelles-quand-lalgerie-etait-francaise)
+
+
+### amendes justice (N/A, Tue, 7 Apr 2026 05:40:00 -0700)
+
+
+
+
 ### نادي الوداد الرياضي (N/A, Tue, 7 Apr 2026 05:20:00 -0700)
 
 - **جماهير الوداد تستشيط غضبًا.. وكارتيرون: هذا أمر يصعب تقبله**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%AA%D8%B3%D8%AA%D8%B4%D9%8A%D8%B7-%D8%BA%D8%B6%D8%A8%D9%8B%D8%A7--%D9%88%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%87%D8%B0%D8%A7-%D8%A7%D9%94%D9%85%D8%B1-%D9%8A%D8%B5%D8%B9%D8%A8-%D8%AA%D9%82%D8%A8%D9%84%D9%87/blt38848c23f502a325)
