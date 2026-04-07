@@ -1,3 +1,17 @@
+### الجزيرة (N/A, Tue, 7 Apr 2026 16:10:00 -0700)
+
+- **6 أسئلة تلخص ما يجري.. مبادرة باكستانية وحراك بالربع ساعة الأخيرة لمهلة ترمب**: [Link](https://www.aljazeera.net/news/2026/4/7/%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%AC%D9%87%D9%88%D8%AF-%D9%85%D9%83%D8%AB%D9%81%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D9%85%D9%87%D9%84%D8%A9)
+- **ترامب يعلن "تعليق قصف إيران لأسبوعين".. ويوضح السبب**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/08/trump-agrees-to-two-week-ceasefire-with-iran-subject-to-strait-of-hormuz-opening)
+- **فانس: الأهداف العسكرية لحرب إيران اكتملت**: [Link](https://www.skynewsarabia.com/middle-east/1862977-%D9%81%D8%A7%D9%86%D8%B3-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D9%84%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%83%D8%AA%D9%85%D9%84%D8%AA)
+
+
+### real madrid match aujourd'hui (N/A, Tue, 7 Apr 2026 13:50:00 -0700)
+
+- **Real Madrid - Bayern Munich : 1-2, revivez la victoire des Bavarois, qui prennent une option**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/live-real-madrid-bayern-munich_mtc1601219/live-commentary.shtml)
+- **Real Madrid : les propos dithyrambiques de Vinicius sur sa relation avec Mbappé**: [Link](https://www.footmercato.net/a4904033935334673504-real-madrid-les-propos-dithyrambiques-de-vinicius-sur-sa-relation-avec-mbappe)
+- **Mbappé et Vinícius alignés ensemble pour la première fois depuis plus d’un mois - C1 - Quarts - Real Madrid-Bayern**: [Link](https://www.sofoot.com/breves/ligue-des-champions-les-compositions-officielles-de-real-madrid-bayern-munich)
+
+
 ### michael olise (N/A, Tue, 7 Apr 2026 13:20:00 -0700)
 
 - **Kane, Olise and Diaz: Bayern’s formidable front three chasing Barcelona and Real Madrid greats**: [Link](https://www.nytimes.com/athletic/7166461/2026/04/07/kane-olise-diaz-bayern-front-three-goals-europe/)
