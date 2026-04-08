@@ -1,3 +1,73 @@
+### lamine yamal (N/A, Wed, 8 Apr 2026 12:40:00 -0700)
+
+- **‘Go Back to Morocco’: Yamal Faces Racist Abuse Again in Spain**: [Link](https://www.moroccoworldnews.com/2026/04/285885/go-back-to-morocco-yamal-faces-racist-abuse-again-in-spain/)
+- **FC Barcelona: João Cancelo also comes to Lamine Yamal's defense**: [Link](https://foot-africa.com/en/news/fc-barcelona-joao-cancelo-also-comes-to-lamine-yamals-defense-1156367/)
+- **Barcelona’s Flick to defend ’emotional’ teen Lamine Yamal against criticism**: [Link](https://www.aljazeera.com/sports/2026/4/7/barcelonas-flick-to-defend-emotional-teen-lamine-yamal-against-criticism)
+
+
+### marine le pen (N/A, Wed, 8 Apr 2026 12:40:00 -0700)
+
+- **INFO BFMTV. Présidentielle 2027: Marine Le Pen devra être éligible au jour de l’élection pour se présenter**: [Link](https://www.bfmtv.com/politique/front-national/info-bfmtv-presidentielle-2027-marine-le-pen-devra-etre-eligible-au-jour-de-l-election-pour-se-presenter_AN-202604080482.html)
+- **Présidentielle 2027 : pour se présenter, Marine Le Pen devra être éligible le jour de l’élection**: [Link](https://www.valeursactuelles.com/politique/presidentielle-2027-pour-se-presenter-marine-le-pen-devra-etre-eligible-le-jour-de-lelection)
+- **Présidentielle 2027 : pour se présenter, Marine Le Pen devra être éligible au jour de l’élection**: [Link](https://www.lamontagne.fr/france-monde/actualites/presidentielle-2027-pour-se-presenter-marine-le-pen-devra-etre-eligible-au-jour-de-lelection_14956904/)
+
+
+### bet365 (N/A, Wed, 8 Apr 2026 12:30:00 -0700)
+
+- **bet365 bonus code: Bet $10, get $365 in bonus bets for Hawks vs. Cavaliers**: [Link](https://nypost.com/2026/04/08/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-hawks-vs-cavaliers/)
+- **Bet365 bonus code: Get $365 in bonus bets for Cavaliers-Hawks, Clippers-Thunder, MLB, golf on Wednesday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-get-365-bonus-bets-cavaliers-hawks-clippers-thunder-mlb-golf-wednesday/)
+- **bet365 bonus code: Get $365 in bonus bets for Champions League, Yankees-Athletics, golf on Wednesday**: [Link](https://www.sportsline.com/sportsbooks/bet365-bonus-code-get-365-bonus-bets-champions-league-yankees-athletics-golf-wednesday/)
+
+
+### 365 (N/A, Wed, 8 Apr 2026 12:30:00 -0700)
+
+- **Users have problems with Microsoft 365, Microsoft copliot**: [Link](https://www.app.com/story/news/2026/04/06/microsoft-dynamics-365-business-central-microsoft-365-personal-login/89487925007/)
+- **Microsoft 365 Network-Level Disruption Affecting Exchange Online, Teams, and Core Suite Services**: [Link](https://cybersecuritynews.com/microsoft-365-network-level-disruption/)
+- **Is Microsoft down? Users report issues with Outlook, Teams and more**: [Link](https://pix11.com/news/local-news/is-microsoft-down-users-report-issues-with-outlook-teams-and-more/)
+
+
+### match live (N/A, Wed, 8 Apr 2026 12:30:00 -0700)
+
+- **Scotland lose to Oman as rain hits again in Namibia**: [Link](https://www.bbc.com/sport/cricket/articles/cje4kgkj2lqo)
+- **Match Predictions: ICC CWC League 2 2026 - Match 94 - Scotland vs Oman - April 8th**: [Link](https://www.cricketworld.com/match-predictions-icc-cwc-league-2-2026-match-94-scotland-vs-oman-april-8th/109780.htm)
+- **Scotland vs Oman, 95th Match, ICC Cricket World Cup League Two 2023-27 - Player Highlights**: [Link](https://www.cricbuzz.com/player-match-highlights/151503/1/1433289/batting)
+
+
+### fc barcelone (N/A, Wed, 8 Apr 2026 12:20:00 -0700)
+
+- **DIRECT. FC Barcelone-Atlético de Madrid: suivez le match des quarts de finale aller de Ligue des champions en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-fc-barcelone-atletico-de-madrid-suivez-le-match-des-quarts-de-finale-aller-de-ligue-des-champions-en-live_LS-202604080339.html)
+- **LdC : le bus de l’Atlético de Madrid attaqué avant le match contre le FC Barcelone**: [Link](https://www.footmercato.net/a703593713048398978-ldc-le-bus-de-latletico-de-madrid-attaque-avant-le-match-contre-le-fc-barcelone)
+- **L'Atlético Madrid prépare un plan pour faire suspendre Yamal au retour, y compris par la provocation**: [Link](https://m.elbotola.com/fr/article/2026-04-08-11-43-730.html)
+
+
+### يلا كورة (N/A, Wed, 8 Apr 2026 12:20:00 -0700)
+
+- **فيديو: جماهير أتلتيكو مدريد تطلق هتافات مسيئة للإسلام قبل موقعة برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B7%D9%84%D9%82-%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA-%D9%85%D8%B3%D9%8A%D9%8A%D9%94%D8%A9-%D9%84%D9%84%D8%A7%D9%95%D8%B3%D9%84%D8%A7%D9%85-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt75f7ab3b5f16884e)
+- **تحطم زجاج حافلة أتلتيكو مدريد بعد استهدافها بمقذوفات قرب ملعب كامب نو**: [Link](https://m.elbotola.com/article/2026-04-08-18-15-991.html)
+- **مشاهد عنف في كامب نو.. تحطيم حافلة أتلتيكو وفوضى جماهيرية قبل قمة الأبطال**: [Link](https://www.cairo24.com/2402722)
+
+
+### yalla kora (N/A, Wed, 8 Apr 2026 12:10:00 -0700)
+
+- **تحليل: بايرن يهدر انتصارًا عريضًا في البرنابيو.. 60 دقيقة تكشف عجز الريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D9%87%D8%AF%D8%B1-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D9%8B%D8%A7-%D8%B9%D8%B1%D9%8A%D8%B6%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88--60-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%B9%D8%AC%D8%B2-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt373f1d61433d2ca2)
+- **مباشر ريال مدريد ضد بايرن ميونيخ في ذهاب ربع نهائي أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/7/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7?update=9073756&utm_source=google&utm_medium=live-blog-schema)
+- **لونين: "ما زلنا على قيد الحياة وسنبذل أقصى جهدنا في ميونخ"**: [Link](https://m.elbotola.com/article/2026-04-07-22-19-389.html)
+
+
+### paris (N/A, Wed, 8 Apr 2026 12:10:00 -0700)
+
+- **Les mutations de Paris dans la première moitié du XXe siècle**: [Link](https://enseignants.lumni.fr/parcours/1622/les-mutations-de-paris-dans-la-premiere-moitie-du-xxesiecle.html)
+- **« Gabriel doit faire des coups » : Attal tiendra un grand meeting le 30 mai**: [Link](https://www.leparisien.fr/politique/gabriel-doit-faire-des-coups-attal-tiendra-un-grand-meeting-le-30-mai-08-04-2026-R6OPW4BIZZAW7M2QE7M5NCVX3E.php)
+- **Attal tiendra meeting le 30 mai à Paris, sur la route de la présidentielle**: [Link](https://www.boursorama.com/actualite-economique/actualites/attal-tiendra-meeting-le-30-mai-a-paris-sur-la-route-de-la-presidentielle-78c0b1a1a38883c58dddb7e0a4d302a7)
+
+
+### mircea lucescu (N/A, Wed, 8 Apr 2026 12:00:00 -0700)
+
+- **Mircea Rednic, discurs printre lacrimi la priveghiul lui Mircea Lucescu: „A venit și mi-a zis: «Crețulică»...”**: [Link](https://www.gsp.ro/fotbal/liga-1/mircea-rednic-discurs-mircea-lucescu-priveghi-925970.html)
+- **Radu Naum a spus ce boală devastatoare l-a ucis, de fapt, pe Mircea Lucescu: ”A fost o operațiune de acoperire colosală”**: [Link](https://iamsport.ro/fotbal/radu-naum-a-spus-ce-boala-devastatoare-l-a-ucis-de-fapt-pe-mircea-lucescu-a-fost-o-operatiune-de-acoperire-colosala-id48221.html)
+- **Liga Campionilor la fotbal, sferturile de finală. UEFA l-a onorat pe Mircea Lucescu**: [Link](https://adevarul.ro/sport/liga-campionilor-la-fotbal-sferturile-de-finala-2521511.html)
+
+
 ### barca match (N/A, Wed, 8 Apr 2026 11:40:00 -0700)
 
 - **LIVE: Barcelona vs Atletico Madrid – Champions League quarterfinal**: [Link](https://www.aljazeera.com/sports/liveblog/2026/4/8/live-barcelona-vs-atletico-madrid-champions-league-quarterfinal)
