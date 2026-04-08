@@ -1,3 +1,10 @@
+### prix du baril (N/A, Tue, 7 Apr 2026 16:30:00 -0700)
+
+- **Wall Street ouvre en baisse, l'ultimatum de Trump à l'Iran en ligne de mire**: [Link](https://medias24.com/agence-presse/wall-street-ouvre-en-baisse-lultimatum-de-trump-a-liran-en-ligne-de-mire/)
+- **Le prix du pétrole chute après l’annonce de Trump**: [Link](https://www.noovo.info/nouvelles/economie/article/le-prix-du-petrole-chute-apres-lannonce-de-trump/)
+- **Marchés européens : rebond sous pression géopolitique**: [Link](https://www.xtb.com/fr/analyses-marches/a-la-mi-seance-rebond-fragile-sous-tension)
+
+
 ### الجزيرة (N/A, Tue, 7 Apr 2026 16:10:00 -0700)
 
 - **6 أسئلة تلخص ما يجري.. مبادرة باكستانية وحراك بالربع ساعة الأخيرة لمهلة ترمب**: [Link](https://www.aljazeera.net/news/2026/4/7/%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%AC%D9%87%D9%88%D8%AF-%D9%85%D9%83%D8%AB%D9%81%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D9%85%D9%87%D9%84%D8%A9)
