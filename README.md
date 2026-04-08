@@ -1,3 +1,24 @@
+### آيت منا (N/A, Wed, 8 Apr 2026 00:20:00 -0700)
+
+- **جماهير الوداد تستشيط غضبًا.. وكارتيرون: هذا أمر يصعب تقبله**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%AA%D8%B3%D8%AA%D8%B4%D9%8A%D8%B7-%D8%BA%D8%B6%D8%A8%D9%8B%D8%A7--%D9%88%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%87%D8%B0%D8%A7-%D8%A7%D9%94%D9%85%D8%B1-%D9%8A%D8%B5%D8%B9%D8%A8-%D8%AA%D9%82%D8%A8%D9%84%D9%87/blt38848c23f502a325)
+- **كارتيرون «غاضب جدا»**: [Link](https://www.radiomars.ma/%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D8%BA%D8%A7%D8%B6%D8%A8-%D8%AC%D8%AF%D8%A7/)
+- **ماذا حدث بين آيت منا وبنعبيد قبل مباراة الدفاع الجديدي؟**: [Link](https://m.elbotola.com/article/2026-04-07-18-09-37.html)
+
+
+### la météo (N/A, Tue, 7 Apr 2026 23:10:00 -0700)
+
+- **Dégradation en fin de semaine : vers les premiers orages de la saison en France ?**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-04-07/degradation-en-fin-de-semaine-vers-les-premiers-orages-de-la-saison-en-france-87400)
+- **Météo : vers un retour de la pluie en France accompagné d’une chute des températures ? Découvrez à partir de quand**: [Link](https://www.tameteo.com/actualites/previsions/meteo-vers-un-retour-de-la-pluie-en-france-accompagne-d-une-chute-des-temperatures-decouvrez-a-partir-de-quand.html)
+- **Un temps pourri annoncé : la météo doit basculer à cette date... avec un retour de la pluie**: [Link](https://www.linternaute.com/actualite/societe/10214498-article/)
+
+
+### brahim díaz (N/A, Tue, 7 Apr 2026 14:00:00 -0700)
+
+- **Diaz follows in Hakimi’s footsteps in the Champions League**: [Link](https://www.goal.com/en-om/news/diaz-follows-in-hakimi-s-footsteps-in-the-champions-league/bltbbe447956d1c2dc2)
+- **UEFA Champions League: Brahim Diaz follows in Achraf Hakimi’s footsteps**: [Link](https://foot-africa.com/en/news/uefa-champions-league-brahim-diaz-follows-in-achraf-hakimis-footsteps-1157576/)
+- **Real Madrid 1-2 Bayern Munich: Harry Kane and Luis Diaz give Bayern deserved edge**: [Link](https://www.bbc.com/sport/football/live/c9d4g9g3vzyt)
+
+
 ### وزارة (N/A, Tue, 7 Apr 2026 23:40:00 -0700)
 
 - **وزارة التربية تقترح استحضار البعد عن المدينة لتحديد "أساتذة المناطق النائية"**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D8%B1%D8%AD-%D8%A7%D8%B3%D8%AA%D8%AD%D8%B6%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%B9%D8%AF-%D8%B9%D9%86-%D8%A7-1727605.html)
