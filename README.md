@@ -1,3 +1,24 @@
+### ياسر زبيري (N/A, Wed, 8 Apr 2026 09:30:00 -0700)
+
+- **بـ26 دقيقة لعب منذ انتقاله إلى رين.. ضعف التنافسية يهدد حلم الزابيري في "المونديال"**: [Link](https://www.hesport.com/%D8%A8%D9%8026-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D9%84%D8%B9%D8%A8-%D9%85%D9%86%D8%B0-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%87-%D8%A5%D9%84%D9%89-%D8%B1%D9%8A%D9%86-%D8%B6%D8%B9%D9%81-%D8%A7%D9%84-434121.html)
+- **ظهور خافت للزبيري يضعف حظوظه مع الأسود - فبراير.كوم | موقع مغربي إخباري شامل يتجدد على مدار الساعة**: [Link](https://febrayer.com/1141878.html)
+- **ما الذي يحدث لهداف الأشبال؟.. موقع فرنسي يصف انتقال زبيري إلى رين بـ "الصفقة الفاشلة" التي كلفت 10 ملايين يورو**: [Link](https://www.akhbarona.com/sport/proplayers/424001.html)
+
+
+### براغا ضد ريال بتيس (N/A, Wed, 8 Apr 2026 09:30:00 -0700)
+
+- **تعديل موعد مباراة سبورتينغ براغا وريال بيتيس في الدوري الأوروبي لدواع أمنية**: [Link](https://m.elbotola.com/article/2026-04-07-12-45-172.html)
+- **توقعات مباراة ربع نهائي الدوري الأوروبي: براغا ضد ريال بيتيس، الساعة 23:45 يوم 8 أبريل: يواجه الفريق الضيف تحديًا صعبًا.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-tu-ket-europa-league-braga-vs-real-betis-23h45-ngay-8-4-doi-khach-gap-kho)
+- **القنوات الناقلة لمباراة سبورتينغ براغا ضد ريال بيتيس اليوم في الدوري الأوروبي مع الموعد والتشكيلة - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/289907314395417-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D8%A8%D8%B1%D8%A7%D8%BA%D8%A7-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### braga – betis (N/A, Wed, 8 Apr 2026 09:00:00 -0700)
+
+- **Sporting Braga vs. Real Betis Europa League Match Rescheduled for Security Reasons**: [Link](https://m.elbotola.com/en/article/2026-04-07-12-45-661.html)
+- **Football Bet of the Day: Dan Childs has a 4-5 draw-no-bet selection in the Europa League**: [Link](https://www.racingpost.com/sport/football-tips/europa-league/football-bet-of-the-day-dan-childs-has-a-4-5-draw-no-bet-selection-in-the-europa-league-apkmR7M7TsNT/)
+- **🚨Fidalgo starts for the trip to Braga**: [Link](https://onefootball.com/en/news/fidalgo-starts-for-the-trip-to-braga-42679951)
+
+
 ### حكيم زياش (N/A, Wed, 8 Apr 2026 07:20:00 -0700)
 
 - **بعد حكيم زياش.. ممثل تركي يهز إسرائيل ومنشوره يشعل غضب بن غفير**: [Link](https://www.aljazeera.net/arts/2026/4/8/%D9%82%D8%AF%D9%8A%D8%B1-%D8%A8%D8%A7%D8%A8%D8%A7-%D9%8A%D8%B4%D8%BA%D9%84-%D9%8A%D8%BA%D8%B6%D8%A8-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1)
