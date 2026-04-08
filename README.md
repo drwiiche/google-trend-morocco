@@ -1,3 +1,17 @@
+### حالة الطقس اليوم (N/A, Tue, 7 Apr 2026 23:50:00 -0700)
+
+- **حالة الطقس: حالة من عدم الاستقرار الجوي اليوم وغدا وزخات متفرقة من الامطار**: [Link](https://www.wattan.net/ar/news/484379.html)
+- **ربيع نيسان متقلب... أمطار وبرق ورعد بانتظارنا!**: [Link](https://www.akhbaralyawm.com/news/533100/%D8%B1%D8%A8%D9%8A%D8%B9-%D9%86%D9%8A%D8%B3%D8%A7%D9%86-%D9%85%D8%AA%D9%82%D9%84%D8%A8...-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A8%D8%B1%D9%82-%D9%88%D8%B1%D8%B9%D8%AF-%D8%A8%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1%D9%86%D8%A7!)
+- **طقس فلسطين: أمطار وعواصف الرعدية في البلاد حتى الأربعاء مع تحذيرات من السيول**: [Link](https://msdrnews.com/tag/%D8%B8%D9%82%D8%B3-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86)
+
+
+### arsenal fc (N/A, Tue, 7 Apr 2026 14:00:00 -0700)
+
+- **Real Madrid vs Bayern München**: [Link](https://www.uefa.com/uefachampionsleague/match/2048064--real-madrid-vs-bayern-munchen/)
+- **Sporting CP - Arsenal Live - Champions League: Football Scores & Highlights - 07/04/2026**: [Link](https://www.tntsports.co.uk/football/champions-league/2025-2026/sporting-cp-arsenal_mtc1601221/live.shtml)
+- **Arsenal: Sporting CP star faces Champions League ban for quarter-final showdown**: [Link](https://www.aol.co.uk/articles/arsenal-sporting-cp-star-faces-104800506.html)
+
+
 ### weather (N/A, Tue, 7 Apr 2026 23:20:00 -0700)
 
 - **A Super El Niño is coming. Here’s how a hotter ocean could change the weather near you**: [Link](https://www.cnn.com/2026/04/07/weather/super-el-nino-extreme-weather-climate-disaster)
