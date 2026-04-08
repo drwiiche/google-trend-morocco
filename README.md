@@ -1,3 +1,17 @@
+### achraf hakimi (N/A, Wed, 8 Apr 2026 14:00:00 -0700)
+
+- **Enrique respalda a Hakimi antes del PSG-Liverpool: “Está recuperando su mejor nivel”**: [Link](https://es.rue20.com/2026/04/08/enrique-respalda-a-hakimi-antes-del-psg-liverpool-esta-recuperando-su-mejor-nivel/)
+- **Vitinha ensalza a Hakimi: “Jugador completo e imprescindible para nosotros”**: [Link](https://es.rue20.com/2026/04/08/vitinha-ensalza-a-hakimi-jugador-completo-e-imprescindible-para-nosotros/)
+- **El PSG no hace sangre y deja vivo al Liverpool para Anfield**: [Link](https://www.marca.com/futbol/champions-league/cronica/2026/04/08/psg-sangre-deja-vivo-liverpool-anfield.html)
+
+
+### البارصا (N/A, Wed, 8 Apr 2026 13:50:00 -0700)
+
+- **فيديو: جماهير أتلتيكو مدريد تطلق هتافات مسيئة للإسلام قبل موقعة برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B7%D9%84%D9%82-%D9%87%D8%AA%D8%A7%D9%81%D8%A7%D8%AA-%D9%85%D8%B3%D9%8A%D9%8A%D9%94%D8%A9-%D9%84%D9%84%D8%A7%D9%95%D8%B3%D9%84%D8%A7%D9%85-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt75f7ab3b5f16884e)
+- **تحطم زجاج حافلة أتلتيكو مدريد بعد استهدافها بمقذوفات قرب ملعب كامب نو**: [Link](https://m.elbotola.com/article/2026-04-08-18-15-991.html)
+- **هتافات مسيئة للإسلام تسبق مواجهة برشلونة وأتلتيكو مدريد بدوري الأبطال**: [Link](https://www.aljazeera.net/sport/2026/4/8/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D8%B9%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+
+
 ### championnat d'arabie saoudite (N/A, Wed, 8 Apr 2026 13:10:00 -0700)
 
 - **La sélection saoudienne interdit à Walid Al-Faraj de se montrer**: [Link](https://fr.news.yahoo.com/sport/s%C3%A9lection-saoudienne-interdit-%C3%A0-walid-070914882.html)
