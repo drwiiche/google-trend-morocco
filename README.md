@@ -1,3 +1,31 @@
+### بنيامين نتنياهو (N/A, Wed, 8 Apr 2026 15:40:00 -0700)
+
+- **نتنياهو: حققنا إنجازات هائلة ضد إيران والمعركة لم تنتهِ**: [Link](https://www.aljazeera.net/news/2026/4/8/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%AD%D9%82%D9%82%D9%86%D8%A7-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2%D8%A7%D8%AA-%D9%87%D8%A7%D8%A6%D9%84%D8%A9-%D8%B6%D8%AF-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **نتنياهو يتوعد إيران: سنعود للحرب فورا إذا لم يتحقق هذا الشرط**: [Link](https://www.skynewsarabia.com/video/1863174-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%AA%D9%88%D8%B9%D8%AF-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%B3%D9%86%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%AD%D8%B1%D8%A8-%D9%81%D9%88%D8%B1%D8%A7-%D9%84%D9%85-%D9%8A%D8%AA%D8%AD%D9%82%D9%82-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7)
+- **نتنياهو: إسرائيل ضربت سكك حديد وجسورا في إيران- (فيديو)**: [Link](https://www.alquds.co.uk/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%B6%D8%B1%D8%A8%D8%AA-%D8%B3%D9%83%D9%83-%D8%AD%D8%AF%D9%8A%D8%AF-%D9%88%D8%AC%D8%B3%D9%88%D8%B1%D8%A7-%D9%81/)
+
+
+### أليو سيسيه (N/A, Wed, 8 Apr 2026 15:10:00 -0700)
+
+- **برسالة مؤثرة.. أليو سيسيه يعلن رحيله عن المنتخب الليبي**: [Link](https://www.aljazeera.net/sport/2026/4/8/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85)
+- **قدم..السنغالي أليو سيسيه يعلن رحيله عن تدريب المنتخب الليبي**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A-%D8%A3%D9%84%D9%8A%D9%88-%D8%B3%D9%8A%D8%B3%D9%8A%D9%87-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D8%B9%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%84%D9%8A%D8%A8%D9%8A/3898483)
+- **استقالة مدرب منتخب ليبيا – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7)
+
+
+### famille (N/A, Wed, 8 Apr 2026 14:30:00 -0700)
+
+- **Allocution de Monsieur le Haut-Commissaire au Plan à l’occasion de la Conférence–Débat pour la présentation des principaux résultats de l’ENF2025**: [Link](https://www.hcp.ma/Allocution-de-Monsieur-le-Haut-Commissaire-au-Plan-a-l-occasion-de-la-Conference-Debat-pour-la-presentation-des_a4290.html)
+- **La famille au Maroc. Mariages plus tardifs, modèle nucléaire dominant… ce que révèle l’enquête 2025 du HCP**: [Link](https://medias24.com/2026/04/08/hcp-ce-que-revele-lenquete-sur-la-famille-2025-1656239/)
+- **ENF 2025 : le modèle familial marocain en mutation**: [Link](https://www.leconomiste.com/flash-infos/enf-2025-le-modele-familial-marocain-en-mutation/)
+
+
+### barca live (N/A, Wed, 8 Apr 2026 13:30:00 -0700)
+
+- **Barcelona close in on LaLiga, Man City thrash Liverpool, more**: [Link](https://www.espn.com/soccer/story/_/id/48410510/barcelona-atletico-madrid-laliga-liverpool-manchester-city-fa-cup-analysis-reaction-gab-marcotti)
+- **Barcelona vs. Atletico Madrid: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/barcelona-vs-atletico-madrid-preview-predictions-lineups-4-8-26)
+- **Barcelona vs Atletico Madrid: Champions League – team news, start, lineups**: [Link](https://www.aljazeera.com/sports/2026/4/7/barcelona-vs-atletico-madrid-champions-league-team-news-start)
+
+
 ### pluie (N/A, Wed, 8 Apr 2026 14:20:00 -0700)
 
 - **Orages, grêle et vents violents, alerte orange dans plus de 20 provinces au Maroc**: [Link](https://medias24.com/2026/04/07/orages-grele-et-vents-violents-alerte-orange-dans-plus-de-20-provinces-au-maroc-1655207/)
