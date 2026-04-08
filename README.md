@@ -1,3 +1,73 @@
+### barca match (N/A, Wed, 8 Apr 2026 11:40:00 -0700)
+
+- **LIVE: Barcelona vs Atletico Madrid – Champions League quarterfinal**: [Link](https://www.aljazeera.com/sports/liveblog/2026/4/8/live-barcelona-vs-atletico-madrid-champions-league-quarterfinal)
+- **🔎 No Frenkie or Bernal, but all available: Barça squad for Atleti**: [Link](https://onefootball.com/fr/news/no-frenkie-or-bernal-but-all-available-barca-squad-for-atleti-42678834)
+- **CONFIRMED LINEUPS FOR THE CLASH!!**: [Link](https://www.besoccer.com/new/live-barcelona-v-atletico-1403389)
+
+
+### fcb (N/A, Wed, 8 Apr 2026 11:40:00 -0700)
+
+- **Follow the Champions League quarter-finals LIVE!**: [Link](https://www.flashscore.com/news/champions-league-live-scores-and-updates/0EwEbZBL/)
+- **Arsenal and Bayern Eye UCL Semis After Narrow Away-Leg Victories**: [Link](https://revsportz.in/arsenal-and-bayern-eye-ucl-semis-after-narrow-away-leg-victories/)
+- **UEFA Champions League: A memorable evening for Africans**: [Link](https://sportnewsafrica.com/articles/uefa-champions-league-a-memorable-evening-for-africans)
+
+
+### braga (N/A, Wed, 8 Apr 2026 11:40:00 -0700)
+
+- **O Real Betis recupera parcialmente após o belíssimo gol de Grillitsch na Liga Europa; Antony é vaiado**: [Link](https://www.goal.com/br/not%C3%ADcias/o-real-betis-recupera-parcialmente-apos-o-belissimo-gol-de-grillitsch-na-liga-europa-antony-e-vaiado/blt6bf3d98603e86e78)
+- **SC Braga deixa eliminatória em aberto após empate caseiro frente ao Bétis**: [Link](https://sicnoticias.pt/especiais/liga-europa/2026-04-08-sc-braga-deixa-eliminatoria-em-aberto-apos-empate-caseiro-frente-ao-betis-889719fe)
+- **Ciclo de cinema “Abril Documental” para ver em Grândola**: [Link](https://sapo.pt/artigo/ciclo-de-cinema-abril-documental-para-ver-em-grandola-69d65c2009dc06701b424fe5)
+
+
+### real betis (N/A, Wed, 8 Apr 2026 11:40:00 -0700)
+
+- **Braga - Betis en directo: ida de los cuartos de Europa League hoy, en vivo**: [Link](https://as.com/futbol/uefa/braga-betis-en-directo-ida-de-los-cuartos-de-europa-league-hoy-en-vivo-f202604-d/)
+- **Sporting de Braga - Betis, en directo | Cuartos de final de la Europa League, en vivo**: [Link](https://www.marca.com/futbol/europa-league/braga-betis/2026/04/08/01_0104_20260408_372_185-directo.html)
+- **Manuel Pellegrini habló sobre las posibilidades de Álvaro Fidalgo de ser titular contra el Braga**: [Link](https://fdpradio.com/manuel-pellegrini-hablo-sobre-las-posibilidades-de-alvaro-fidalgo-de-ser-titular-contra-el-braga/)
+
+
+### الهلال ضد الخلود (N/A, Wed, 8 Apr 2026 11:30:00 -0700)
+
+- **بقيادة بنزيما.. إنزاجي يستعيد 3 نجوم أمام الخلود.. ويفاجئ ميتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7--%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-3-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AE%D9%84%D9%88%D8%AF--%D9%88%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%85%D9%8A%D8%AA%D9%8A/blt38f899bf7b560463)
+- **مباشر.. مباراة الهلال ضد الخلود في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/8/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AE%D9%84%D9%88%D8%AF-2)
+- **الوليد بن طلال يقدم دعم مالي ضخم للهلال ويسرع في إنقاذه خلال ساعات**: [Link](https://harammissr.com/15498/%D8%A7%D9%84%D9%88%D9%84%D9%8A%D8%AF-%D8%A8%D9%86-%D8%B7%D9%84%D8%A7%D9%84-%D9%8A%D9%82%D8%AF%D9%85-%D8%AF%D8%B9%D9%85-%D9%85%D8%A7%D9%84%D9%8A-%D8%B6%D8%AE%D9%85-%D9%84%D9%84%D9%87%D9%84%D8%A7%D9%84/)
+
+
+### ألفارو أربيلوا (N/A, Wed, 8 Apr 2026 11:30:00 -0700)
+
+- **تحليل: بايرن يهدر انتصارًا عريضًا في البرنابيو.. 60 دقيقة تكشف عجز الريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D9%87%D8%AF%D8%B1-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D9%8B%D8%A7-%D8%B9%D8%B1%D9%8A%D8%B6%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88--60-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%B9%D8%AC%D8%B2-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt373f1d61433d2ca2)
+- **ريال مدريد ينهزم أمام بايرن ميونيخ**: [Link](https://www.hespress.com/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-1727577.html)
+- **لونين: "ما زلنا على قيد الحياة وسنبذل أقصى جهدنا في ميونخ"**: [Link](https://m.elbotola.com/article/2026-04-07-22-19-389.html)
+
+
+### بي اس جي ضد ليفربول (N/A, Wed, 8 Apr 2026 11:20:00 -0700)
+
+- **سلوت يعلن تشكيل ليفربول لمواجهة سان جيرمان.. ما موقف صلاح؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86--%D9%85%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D8%B5%D9%84%D8%A7%D8%AD/blt38ff40db008178d0)
+- **أبطال أوروبا: قمة إسبانية واختبار صعب لليفربول أمام "الباريسي"**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%82%D9%85%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%88%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3%D9%8A)
+- **إنريكي مدرب سان جيرمان لا يلتفت لخسارة ليفربول الثقيلة أمام مانشستر سيتي**: [Link](https://www.hesport.com/%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%84%D8%A7-%D9%8A%D9%84%D8%AA%D9%81%D8%AA-%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-434094.html)
+
+
+### barcelone – atlético madrid (N/A, Wed, 8 Apr 2026 11:10:00 -0700)
+
+- **Flick, con Lewandowski**: [Link](https://as.com/futbol/champions/flick-con-lewandowski-f202604-n/)
+- **Barcelona - Atlético, en directo: última hora de la Champions League y toda la previa, en vivo**: [Link](https://www.sport.es/es/noticias/barca/barcelona-atletico-champions-directo-128859683)
+- **Ya hay once del Barça para enfrentarse al Atlético y Flick no repite**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260408/1004167082/hay-once-barca-enfrentarse-atletico-flick-repite.html)
+
+
+### برشلونة ضد أتلتيكو مدريد (N/A, Wed, 8 Apr 2026 11:10:00 -0700)
+
+- **التشكيل الرسمي: ألفاريز يتحدى يامال في موقعة برشلونة وأتلتيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/bltee371a9d29cfba2c)
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في ذهاب ربع نهائي دوري أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/8/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84?update=9078760)
+- **قمة إسبانية بين برشلونة وأتليتيكو مدريد في ربع النهائي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-2026-04-08)
+
+
+### paris-sg – liverpool (N/A, Wed, 8 Apr 2026 11:10:00 -0700)
+
+- **PSG-Liverpool, les compos probables avec des surprises ?**: [Link](https://www.football.fr/psg/psg-liverpool-les-compos-probables-avec-des-surprises-808890.html)
+- **Les compositions de PSG - Liverpool : Mohamed Salah remplaçant, pas de surprise côté parisien**: [Link](https://www.lequipe.fr/Football/Actualites/Les-compositions-de-psg-liverpool-mohamed-salah-remplacant-pas-de-surprise-cote-parisien/1666222)
+- **Nuno Mendes, le coup de théâtre**: [Link](https://www.sports.fr/football/ligue-des-champions-football/nuno-mendes-le-coup-de-theatre-1004823.html)
+
+
 ### محمد وشاح (N/A, Wed, 8 Apr 2026 10:30:00 -0700)
 
 - **عاجل | استشهاد مراسل الجزيرة مباشر في قطاع غزة محمد وشاح بعد استهداف مسيرة إسرائيلية سيارته**: [Link](https://www.aljazeera.net/news/2026/4/8/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D8%B3%D8%AA%D8%B4%D9%87%D8%A7%D8%AF-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%81%D9%8A)
