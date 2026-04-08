@@ -1,3 +1,52 @@
+### كأس الأمم الإفريقية (N/A, Wed, 8 Apr 2026 07:00:00 -0700)
+
+- **المغرب في مجموعة نارية بـ"كان U17"**: [Link](https://www.hespress.com/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-u17-1727946.html)
+- **نجوم في قرعة "كان" أقل من 17**: [Link](https://www.hesport.com/%D9%86%D8%AC%D9%88%D9%85-%D9%81%D9%8A-%D9%82%D8%B1%D8%B9%D8%A9-%D9%83%D8%A7%D9%86-%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-434070.html)
+- **اليوم ستجرى قرعة كأس الأمم الأفريقية تحت 17 سنة**: [Link](https://www.almountakhab.com/node/13224305)
+
+
+### لبنان (N/A, Wed, 8 Apr 2026 06:00:00 -0700)
+
+- **مئات القتلى والجرحى.. إسرائيل تشن هجوما غير مسبوق على لبنان**: [Link](https://www.aljazeera.net/news/2026/4/8/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D9%86%D8%B0%D8%B1-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A8%D8%A7%D9%84%D8%A5%D8%AE%D9%84%D8%A7%D8%A1-%D9%88%D8%AA%D9%83%D8%AB%D9%81)
+- **الجيش الإسرائيلي يعلن ضرب 100 هدف خلال 10 دقائق في لبنان، والصليب الأحمر يقول إن الوضع صعب جداً**: [Link](https://www.bbc.com/arabic/live/cde5gxnpz90t)
+- **إسرائيل تشن هجومًا على الطريق الساحلي في صيدا وتتسبب بأضرار**: [Link](https://aa.com.tr/ar/pg/%D9%85%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%B5%D9%88%D8%B1/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%B4%D9%86-%D9%87%D8%AC%D9%88%D9%85%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84%D9%8A-%D9%81%D9%8A-%D8%B5%D9%8A%D8%AF%D8%A7-%D9%88%D8%AA%D8%AA%D8%B3%D8%A8%D8%A8-%D8%A8%D8%A3%D8%B6%D8%B1%D8%A7%D8%B1/159594)
+
+
+### تامر حسني (N/A, Wed, 8 Apr 2026 06:00:00 -0700)
+
+- **تامر حسني عن زواجه للمرة الثانية: "بدور على عروسة"**: [Link](https://www.alarabiya.net/culture-and-art/2026/04/08/%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%85%D9%83%D8%A7%D9%86%D9%8A%D8%A9-%D8%B2%D9%88%D8%A7%D8%AC%D9%87-%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D8%AF%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D8%B9%D8%B1%D9%88%D8%B3%D8%A9)
+- **تامر حسنى يتفاعل مع عريس أثناء تجربة الرقص في فرحه: «سبقتك فى عمر وسلمى»**: [Link](https://darelhilal.com/Kawakeb/News/3210640.aspx)
+- **زواج تامر حسني من جديد؟ تفاصيل مفاجئة كشفها**: [Link](https://www.aljadeed.tv/entertainment/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%81%D9%86%D9%8A%D8%A9/568080/%D8%B2%D9%88%D8%A7%D8%AC-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%85%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF%D8%9F-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%83%D8%B4%D9%81%D9%87%D8%A7)
+
+
+### سيارة أجرة (N/A, Wed, 8 Apr 2026 06:00:00 -0700)
+
+- **وفاة غامضة داخل سيارة أجرة تهز الدشيرة الجهادية وتستنفر السلطات**: [Link](https://www.akhbarona.com/society/423875.html)
+- **عاجل…وفاة زبون داخل طاكسي بالدشيرة الجهادية**: [Link](https://inews.ma/news/8249406)
+- **فاجعة في الدشيرة الجهادية.. وفاة مفاجئة داخل سيارة أجرة تستنفر الأمن وتفتح تحقيقاً**: [Link](https://agadir24.info/%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D8%B4%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D9%87%D8%A7%D8%AF%D9%8A%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9.html)
+
+
+### coupe d'afrique des nations de football 2025 (N/A, Wed, 8 Apr 2026 06:00:00 -0700)
+
+- **EXCLUSIF. Finale CAN 2025. Pourquoi la CAF a sanctionné le Sénégal**: [Link](https://medias24.com/2026/04/06/finale-can-2025-pourquoi-la-caf-a-sanctionne-le-senegal-1654333/)
+- **Sénégal-Maroc, nouveau coup de théâtre à la CAF !**: [Link](https://www.sports.fr/football/can/senegal-maroc-nouveau-coup-de-theatre-a-la-caf-1004680.html)
+- **CAN 2025 : Dakar adoucit le ton et se dit prêt à accueillir le président de la CAF “à bras ouverts”**: [Link](https://mobile.telquel.ma/instant-t/2026/04/07/can-2025-dakar-adoucit-le-ton-et-se-dit-pret-a-accueillir-le-president-de-la-caf-a-bras-ouverts_1982840/)
+
+
+### مازوت (N/A, Wed, 8 Apr 2026 04:50:00 -0700)
+
+- **استهداف دراجة نارية في قانا وسيارة اسعاف تابعة للهيئة الصحية عند مفرق القليلة**: [Link](https://www.nna-leb.gov.lb/ar/news/448429/%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D8%AF%D8%B1%D8%A7%D8%AC%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D9%82%D8%A7%D9%86%D8%A7-%D9%88%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D8%A7%D8%B3%D8%B9%D8%A7%D9%81-%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D9%84%D9%84%D9%87%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D8%B9%D9%86%D8%AF-%D9%85%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D9%82%D9%84%D9%8A%D9%84%D8%A9-2)
+- **بالصورة - شهيد باستهداف مسيّرة على بريقع جنوبًا!**: [Link](https://www.lebanonon.com/news/388792)
+- **استشهاد لبناني وإصابة 3 آخرين بغارتين صهيونيتين جنوبي لبنان**: [Link](https://althawrah.ye/archives/1158521)
+
+
+### al jazeera (N/A, Tue, 7 Apr 2026 23:30:00 -0700)
+
+- **Israel hits Lebanon with massive wave of airstrikes amid ceasefire uncertainty**: [Link](https://www.theguardian.com/world/2026/apr/08/israel-operations-in-lebanon-to-continue-despite-trump-ceasefire-iran-pakistan-hezbollah)
+- **Scenes of chaos, destruction as Israel bombards Lebanon**: [Link](https://www.aljazeera.com/video/newsfeed/2026/4/8/scenes-of-chaos-destruction-as-israel-bombards-lebanon)
+- **Israel strikes southern Lebanon after US-Iran ceasefire**: [Link](https://www.bbc.com/news/articles/c0j6d538l6qo)
+
+
 ### محمد زيان (N/A, Wed, 8 Apr 2026 05:30:00 -0700)
 
 - **محكمة الاستئناف ترفع العقوبة ضد محمد زيان إلى خمس سنوات سجنا نافذاً – اليوم 24**: [Link](https://alyaoum24.com/2018758.html)
