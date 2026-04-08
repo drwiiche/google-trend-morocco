@@ -1,3 +1,24 @@
+### طقس مراكش (N/A, Tue, 7 Apr 2026 22:40:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-79-1727093.html)
+- **زخات رعدية وهبات رياح قوية مرتقبة يومي الثلاثاء والأربعاء بعدد من مناطق المملكة (نشرة إنذارية) – اليوم 24**: [Link](https://alyaoum24.com/2018623.html)
+- **منخفض جوي يضرب المغرب وأمطار رعدية ورياح قوية تعمّ مناطق واسعة**: [Link](https://ar.lesiteinfo.com/maroc/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A-994547.html)
+
+
+### grêle (N/A, Tue, 7 Apr 2026 19:40:00 -0700)
+
+- **Averses orageuses et fortes rafales de vent, mardi et mercredi, dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/averses-orageuses-et-fortes-rafales-de-vent-mardi-et-mercredi-dans-plusieurs-provinces/)
+- **Après une chaleur exceptionnelle, retour des pluies dès ce mardi au Maroc**: [Link](https://medias24.com/2026/04/06/apres-une-chaleur-exceptionnelle-retour-des-pluies-des-ce-mardi-au-maroc-1654409/)
+- **Le temps qu'il fera ce mardi 7 avril 2026**: [Link](https://fr.hespress.com/468571-le-temps-quil-fera-ce-mardi-7-avril-2026.html)
+
+
+### kylian mbappé (N/A, Tue, 7 Apr 2026 14:00:00 -0700)
+
+- **Kane and Mbappé with new records, aim to reach the legends**: [Link](https://www.gazetaexpress.com/en/They-are-done-with-new-records--they-aim-to-reach-the-legends./)
+- **Mbappe joins Messi, Ronaldo in elite Champions League scorers group after Bayern Munich goal**: [Link](https://worldsoccertalk.com/news/mbappe-joins-messi-ronaldo-in-elite-champions-league-scorers-group-after-bayern-munich-goal/)
+- **Mbappé closes in on Ronaldo's achievement... and saves Real Madrid's streak | Goal.com English Saudi Arabia**: [Link](https://www.goal.com/en-sa/news/mbappe-edges-toward-ronaldo-s-milestone-and-rescues-real-madrid-s-streak/blt1a82cbaad056f17b)
+
+
 ### prix du baril (N/A, Tue, 7 Apr 2026 16:30:00 -0700)
 
 - **Wall Street ouvre en baisse, l'ultimatum de Trump à l'Iran en ligne de mire**: [Link](https://medias24.com/agence-presse/wall-street-ouvre-en-baisse-lultimatum-de-trump-a-liran-en-ligne-de-mire/)
