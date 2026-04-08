@@ -1,3 +1,45 @@
+### weather (N/A, Tue, 7 Apr 2026 23:20:00 -0700)
+
+- **A Super El Niño is coming. Here’s how a hotter ocean could change the weather near you**: [Link](https://www.cnn.com/2026/04/07/weather/super-el-nino-extreme-weather-climate-disaster)
+- **Strongest El Niño in a century? What this rare phenomenon could bring.**: [Link](https://www.washingtonpost.com/weather/2026/04/06/super-el-nino-chances-increasing-risks/)
+- **Rare 'super El Niño' possible in fall 2026. What does it mean for Texas?**: [Link](https://www.expressnews.com/san-antonio-weather/article/super-el-nino-texas-weather-winter-cold-rain-22193708.php)
+
+
+### الطقس اليوم (N/A, Tue, 7 Apr 2026 23:10:00 -0700)
+
+- **حالة الطقس اليوم تحذير من شبورة كثيفة على الطرقات الرئيسية**: [Link](https://tawusal.com/79765/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%B9/)
+- **تحذير من شبورة كثيفة اليوم على الطرق**: [Link](https://www.a5bar24h.com/21154/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%B1%D9%82/)
+- **تحذير من شبورة كثيفة تؤثر على عدد من الطرق**: [Link](https://pls48.net/60600/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%AA%D8%A4%D8%AB%D8%B1-%D8%B9%D9%84%D9%89-%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%B7/)
+
+
+### météo (N/A, Tue, 7 Apr 2026 23:00:00 -0700)
+
+- **Quelques conseils pour combattre les allergies au printemps**: [Link](https://www.noovo.info/nouvelles/sante/article/quelques-conseils-pour-combattre-les-allergies-au-printemps/)
+- **Météo en avril : des températures remarquablement douces pour le mois le plus chargé en pollen de l’année**: [Link](https://france3-regions.franceinfo.fr/nouvelle-aquitaine/vienne/poitiers/meteo-en-avril-des-temperatures-remarquablement-douces-pour-le-mois-le-plus-charge-en-pollen-de-l-annee-3330035.html)
+- **"C'est pénible, ça a gâché ma journée" : avec les beaux jours, ces Bretons subissent les allergies au pollen**: [Link](https://www.francebleu.fr/emissions/l-info-d-ici-ici-armorique/c-est-penible-ca-a-gache-ma-journee-avec-les-beaux-jours-ces-bretons-subissent-les-allergies-au-pollen-3155028)
+
+
+### الطقس (N/A, Tue, 7 Apr 2026 23:00:00 -0700)
+
+- **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-75-1727663.html)
+- **زخات رعدية وهبات رياح قوية مرتقبة يومي الثلاثاء والأربعاء بعدد من مناطق المملكة (نشرة إنذارية) – اليوم 24**: [Link](https://alyaoum24.com/2018623.html)
+- **منخفض جوي يضرب المغرب وأمطار رعدية ورياح قوية تعمّ مناطق واسعة**: [Link](https://ar.lesiteinfo.com/maroc/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A-994547.html)
+
+
+### mojtaba khamenei (N/A, Tue, 7 Apr 2026 19:00:00 -0700)
+
+- **Mojtaba Khamenei reportedly in ‘severe’ condition, unable to govern Iran**: [Link](https://www.timesofisrael.com/mojtaba-khamenei-reportedly-in-severe-condition-unable-to-govern-iran/)
+- **Iran’s supreme leader ‘unconscious and receiving treatment in Qom’**: [Link](https://www.thetimes.com/world/middle-east/israel-iran/article/iran-supreme-leader-mojtaba-khamenei-qom-war-latest-c2th5xgqb)
+- **Iran Supreme Leader "Unconscious", Not Involved In Decision-Making: Report**: [Link](https://www.ndtv.com/world-news/us-iran-war-news-mojtaba-khamenei-unconscious-being-treated-in-holy-city-of-qom-report-11321005)
+
+
+### ثلج (N/A, Tue, 7 Apr 2026 14:40:00 -0700)
+
+- **20 ولاية معنية.. الأرصاد الجوية تُحذر من تقلبات جوية**: [Link](https://www.awras.com/20-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-%D9%85%D8%B9%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D9%8F%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA/)
+- **ثلوج كثيفة تتسبب في غلق عدة طرقات عبر ولايات الوطن**: [Link](https://akhbarelwatane.dz/%D8%AB%D9%84%D9%88%D8%AC-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%AA%D8%AA%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A-%D8%BA%D9%84%D9%82-%D8%B9%D8%AF%D8%A9-%D8%B7%D8%B1%D9%82%D8%A7%D8%AA-%D8%B9%D8%A8%D8%B1-%D9%88%D9%84/)
+- **الأمطار الرعدية الغزيرة تقلب موازين الطقس في هذه الولايات وتثير قلق السكان**: [Link](https://tawusal.com/69953/%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D8%AA%D9%82%D9%84%D8%A8-%D9%85%D9%88%D8%A7%D8%B2%D9%8A%D9%86-%D8%A7/)
+
+
 ### طقس مراكش (N/A, Tue, 7 Apr 2026 22:40:00 -0700)
 
 - **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-79-1727093.html)
