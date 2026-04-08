@@ -1,3 +1,24 @@
+### pluie (N/A, Wed, 8 Apr 2026 14:20:00 -0700)
+
+- **Orages, grêle et vents violents, alerte orange dans plus de 20 provinces au Maroc**: [Link](https://medias24.com/2026/04/07/orages-grele-et-vents-violents-alerte-orange-dans-plus-de-20-provinces-au-maroc-1655207/)
+- **Averses orageuses et fortes rafales de vent, mardi et mercredi, dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/averses-orageuses-et-fortes-rafales-de-vent-mardi-et-mercredi-dans-plusieurs-provinces/)
+- **Météo : pourquoi le Maroc est touché par un épisode d’orages en ce début de printemps**: [Link](https://lematin.ma/regions/meteo-pourquoi-le-maroc-est-touche-par-un-episode-dorages-ce-printemps/339090)
+
+
+### barça vs (N/A, Wed, 8 Apr 2026 13:30:00 -0700)
+
+- **Las polémicas de la Champions: penaltis, expulsiones y jugadas controvertidas de los partidos de ida de cuarto**: [Link](https://as.com/futbol/champions/las-polemicas-de-la-champions-penaltis-expulsiones-y-jugadas-controvertidas-de-los-partidos-de-ida-de-cuartos-de-final-f202604-n/)
+- **Flick: "Era penalti y roja; no entiendo para qué tenemos el VAR"**: [Link](https://www.marca.com/futbol/barcelona/2026/04/08/flick-penalti-roja-entiendo-var.html)
+- **El precedente donde la acción de Pubill sí se señaló como penalti**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260408/1004167200/precedente-accion-pubill-senalo-penalti.html)
+
+
+### pedri (N/A, Wed, 8 Apr 2026 13:30:00 -0700)
+
+- **Radical doble cambio de Flick en el descanso para buscar la reacción del equipo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260408/1004167186/gavi-fermin-entraron-pedri-lewandowski-busca-reaccion.html)
+- **Que pasó con Pedri y por qué fue reemplazado en el Barcelona vs Atlético**: [Link](https://www.365scores.com/es/news/que-paso-con-pedri-y-por-que-fue-reemplazado-en-el-barcelona-vs-atletico/)
+- **Minguella cuestiona algunas decisiones de Flick en la derrota en Champions frente al Atlético de Madrid y analiza su origen: "Hace cosas sorprendentes"**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/minguella-cuestiona-decisiones-flick-derrota-champions-frente-atletico-madrid-analiza-origen-cosas-sorprendentes-20260408_3341647.html)
+
+
 ### achraf hakimi (N/A, Wed, 8 Apr 2026 14:00:00 -0700)
 
 - **Enrique respalda a Hakimi antes del PSG-Liverpool: “Está recuperando su mejor nivel”**: [Link](https://es.rue20.com/2026/04/08/enrique-respalda-a-hakimi-antes-del-psg-liverpool-esta-recuperando-su-mejor-nivel/)
