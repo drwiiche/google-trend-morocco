@@ -1,3 +1,66 @@
+### championnat d'arabie saoudite (N/A, Wed, 8 Apr 2026 13:10:00 -0700)
+
+- **La sélection saoudienne interdit à Walid Al-Faraj de se montrer**: [Link](https://fr.news.yahoo.com/sport/s%C3%A9lection-saoudienne-interdit-%C3%A0-walid-070914882.html)
+- **Exclusif : Le prochain chapitre du football saoudien n’est pas une affaire de grands noms. Un journaliste anglais révèle pour Foot Africa**: [Link](https://foot-africa.com/actualites/exclusif-le-prochain-chapitre-du-football-saoudien-nest-pas-une-affaire-de-grands-noms-un-journaliste-anglais-revele-pour-foot-africa-1156970/)
+- **Al-Faraj met le feu aux poudres… Le Fonds d'investissement saoudien va-t-il cesser de soutenir les clubs de haut niveau ?**: [Link](https://www.goal.com/fr/news/al-faraj-met-le-feu-aux-poudres-le-fonds-d-investissement-saoudien-va-t-il-cesser-de-soutenir-les-clubs-de-haut-niveau/blt3cdd7589e3b291ea)
+
+
+### حزب الله (N/A, Wed, 8 Apr 2026 13:10:00 -0700)
+
+- **نتنياهو: حققنا إنجازات هائلة ضد إيران والمعركة لم تنتهِ**: [Link](https://www.aljazeera.net/news/2026/4/8/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%AD%D9%82%D9%82%D9%86%D8%A7-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2%D8%A7%D8%AA-%D9%87%D8%A7%D8%A6%D9%84%D8%A9-%D8%B6%D8%AF-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **عاجل. نتنياهو: الضربة اليوم ضد حزب الله هي الأقوى منذ عملية البيجر**: [Link](https://arabic.euronews.com/2026/04/08/netanyahu-todays-strike-against-hezbollah-is-the-strongest-since-the-pager-operation)
+- **نتنياهو: إسرائيل ضربت سكك حديد وجسورا في إيران- (فيديو)**: [Link](https://www.alquds.co.uk/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%B6%D8%B1%D8%A8%D8%AA-%D8%B3%D9%83%D9%83-%D8%AD%D8%AF%D9%8A%D8%AF-%D9%88%D8%AC%D8%B3%D9%88%D8%B1%D8%A7-%D9%81/)
+
+
+### kérosène (N/A, Wed, 8 Apr 2026 13:10:00 -0700)
+
+- **La réouverture du détroit d'Ormuz n'y changera rien à court terme: les compagnies aériennes préviennent que l'approvisionnement en kérosène mettra "des mois" avant de revenir à la normale**: [Link](https://www.bfmtv.com/economie/entreprises/transports/la-reouverture-du-detroit-d-ormuz-n-y-changera-rien-a-court-terme-les-compagnies-aeriennes-previennent-que-l-approvisionnement-en-kerosene-mettra-des-mois-avant-de-revenir-a-la-normale_AD-202604080299.html)
+- **« Si la situation perdure, il risque d'y avoir des difficultés d'approvisionnement de kérosène », alerte le patron de la Fnam**: [Link](https://www.latribune.fr/article/transports/2741116926514414/si-la-situation-perdure-il-risque-dy-avoir-des-difficultes-dapprovisionnement-de-kerosene-alerte-le-patron-de-la-fnam)
+- **Transport aérien : des « hausses de prix » et des annulations de vols sont « inévitables », prévient la fédération nationale**: [Link](https://www.sudouest.fr/economie/aeronautique/transport-aerien-des-hausses-de-prix-et-des-annulations-de-vols-sont-inevitables-previent-la-federation-nationale-28593614.php)
+
+
+### نفط (N/A, Wed, 8 Apr 2026 13:00:00 -0700)
+
+- **الهدنة لا تنهي الأزمة.. هرمز والإمدادات يحددان اتجاه سوق النفط**: [Link](https://www.aljazeera.net/ebusiness/2026/4/8/truce-oil-prices-energy-hormuz)
+- **العقود الآجلة لخام برنت تبلغ عند التسوية 109.27 دولار للبرميل**: [Link](https://www.alarabiya.net/aswaq/oil-and-gas/2026/04/07/%D8%A7%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D8%B9-%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%84%D8%AE%D8%B7%D8%A7%D8%A8%D9%87-%D8%B6%D8%AF-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86)
+- **أسعار النفط تقفز 3 بالمئة وتتجاوز 115 دولارا للبرميل**: [Link](https://aa.com.tr/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D8%AA%D9%82%D9%81%D8%B2-3-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D9%88%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-115-%D8%AF%D9%88%D9%84%D8%A7%D8%B1%D8%A7-%D9%84%D9%84%D8%A8%D8%B1%D9%85%D9%8A%D9%84-%D9%85%D8%AD%D8%AF%D8%AB/3896535)
+
+
+### اسبانيا (N/A, Wed, 8 Apr 2026 13:00:00 -0700)
+
+- **مدريد تتمسك بمساندة السيادة المغربية**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D9%85%D8%B3%D8%A7%D9%86%D8%AF%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1726707.html)
+- **نهاية المينورسو تلوح في الأفق.. انقلاب أوروبي وضغط أمريكي يعيدان رسم قواعد النزاع في خضم التحضير لمشاورات أممية مغلقة**: [Link](https://www.assahifa.com/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%8A%D9%86%D9%88%D8%B1%D8%B3%D9%88-%D8%AA%D9%84%D9%88%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%81%D9%82-%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%A3/)
+- **عبد الفتاح: مجلس الأمن ينتقل من تدبير نزاع الصحراء إلى تسويته النهائية**: [Link](https://febrayer.com/1141853.html)
+
+
+### koora (N/A, Wed, 8 Apr 2026 12:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الاتحاد ونيوم في دوري روشن السعودي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D9%86%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt409d72c889da0fe7)
+- **النصيري يقود التشكيل المتوقع لاتحاد جدة أمام نيوم بالدورى السعودي**: [Link](https://www.almasryalyoum.com/news/detailsamp/4240508)
+- **بمشاركة حجازي.. نيوم يخطف فوزًا قاتلًا أمام الاتحاد في الدوري السعودي**: [Link](https://www.btolat.com/news/397531)
+
+
+### هبة سبور (N/A, Wed, 8 Apr 2026 12:50:00 -0700)
+
+- **أتلتيكو مدريد يرد رسميا على اعتراف اللجنة الفنية بخطأ الحكم في موقعة برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B1%D8%AF-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D9%8A%D8%A9-%D8%A8%D8%AE%D8%B7%D8%A7%D9%94-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltcecacbb1f9c00ae0)
+- **لجنة الحكام الإسبانية: "مارتين لاعب برشلونة كان يستحق الطرد وقرار الـ'VAR' كان خاطئا"**: [Link](https://m.elbotola.com/article/2026-04-08-17-45-710.html)
+- **أتلتيكو مدريد يشكو حكم مباراته ضد برشلونة ويرفض "التحيز الواضح"**: [Link](https://www.aljazeera.net/sport/2026/4/5/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85)
+
+
+### match (N/A, Wed, 8 Apr 2026 12:50:00 -0700)
+
+- **WrestleMania 42 Saturday and Sunday match cards announced**: [Link](https://www.wwe.com/article/wrestlemania-42-saturday-and-sunday-match-cards-announced)
+- **2026 WWE WrestleMania 42 matches, date, card, rumors and location for epic two-night event**: [Link](https://www.cbssports.com/wwe/news/wwe-wrestlemania-42-date-matches-card-rumors-location/)
+- **WWE WrestleMania 42 Lineup Reveal For Night 1 And Night 2**: [Link](https://www.forbes.com/sites/alfredkonuwa/2026/04/07/wwe-wrestlemania-42-lineup-reveal-for-night-1-and-night-2/)
+
+
+### match en direct (N/A, Wed, 8 Apr 2026 12:50:00 -0700)
+
+- **Audace, espaces, rythme, erreurs, bataille tactique... Pourquoi ce Real Madrid - Bayern Munich a été formidable**: [Link](https://www.lequipe.fr/Football/Article/Audace-espaces-rythme-erreurs-bataille-tactique-pourquoi-ce-real-bayern-a-ete-formidable/1666032)
+- **LdC : le Real Madrid défait à domicile par le Bayern Munich, Arsenal assure**: [Link](https://fr.hespress.com/468720-ldc-le-real-madrid-defait-a-domicile-par-le-bayern-munich-arsenal-assure.html)
+- **Real Madrid : Alvaro Arbeloa est furieux contre l’arbitrage**: [Link](https://www.footmercato.net/a6620812579923220873-real-madrid-alvaro-arbeloa-est-furieux-contre-larbitrage)
+
+
 ### lamine yamal (N/A, Wed, 8 Apr 2026 12:40:00 -0700)
 
 - **‘Go Back to Morocco’: Yamal Faces Racist Abuse Again in Spain**: [Link](https://www.moroccoworldnews.com/2026/04/285885/go-back-to-morocco-yamal-faces-racist-abuse-again-in-spain/)
