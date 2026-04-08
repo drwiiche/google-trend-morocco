@@ -1,3 +1,31 @@
+### محمد وشاح (N/A, Wed, 8 Apr 2026 10:30:00 -0700)
+
+- **عاجل | استشهاد مراسل الجزيرة مباشر في قطاع غزة محمد وشاح بعد استهداف مسيرة إسرائيلية سيارته**: [Link](https://www.aljazeera.net/news/2026/4/8/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D8%B3%D8%AA%D8%B4%D9%87%D8%A7%D8%AF-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%81%D9%8A)
+- **استشهاد الصحفي محمد وشاح بقصف الاحتلال لمركبته في غزة**: [Link](https://www.wattan.net/ar/news/484514.html)
+- **شهداء في غزة بينهم مراسل "الجزيرة مباشر" وعدد من الجرحى إثرا غارات للاحتلال**: [Link](https://arabi21.com/story/1750486/%D8%B4%D9%87%D8%AF%D8%A7%D8%A1-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D8%A8%D9%8A%D9%86%D9%87%D9%85-%D9%85%D8%B1%D8%A7%D8%B3%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%88%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%B1%D8%AD%D9%89-%D8%A5%D8%AB%D8%B1%D8%A7-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84)
+
+
+### أتلتيكو مدريد (N/A, Wed, 8 Apr 2026 10:10:00 -0700)
+
+- **فليك يجري تغييرين على قائمة برشلونة أمام أتلتيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/blt292b8b9b7d1b7ed6)
+- **مباشر مباراة برشلونة ضد أتلتيكو مدريد في ذهاب ربع نهائي دوري أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/8/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **قمة إسبانية بين برشلونة وأتليتيكو مدريد في ربع النهائي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-2026-04-08)
+
+
+### radio mars (N/A, Wed, 8 Apr 2026 09:40:00 -0700)
+
+- **رسميا.. المغرب الفاسي يؤمن مستقبل نجمه بنجديدة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%A4%D9%85%D9%86-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%86%D8%AC%D9%85%D9%87-%D8%A8%D9%86%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/18300)
+- **سفيان بنجديدة يعزز صدارته لترتيب هدافي الدوري المغربي للمحترفين**: [Link](https://www.nichanealane.ma/114983/)
+- **سفيان بنجديدة هداف البطولة… يطارد رقما تاريخيا ويحلم بقيادة هجوم المغرب بمونديال 2026**: [Link](https://ecopress.ma/%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%86%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%B1%D9%82%D9%85%D8%A7/)
+
+
+### maroc telecom (N/A, Wed, 8 Apr 2026 07:20:00 -0700)
+
+- **GITEX Africa : Leila Benali officialise le lancement du cadastre minier numérique du Maroc**: [Link](https://ledesk.ma/2026/04/07/gitex-africa-leila-benali-officialise-le-lancement-du-cadastre-minier-numerique-du-maroc/)
+- **Au GITEX Africa, Maroc Telecom et la Commission européenne s'allient pour une souveraineté numérique commune**: [Link](https://medias24.com/2026/04/08/au-gitex-africa-maroc-telecom-et-la-commission-europeenne-sallient-pour-une-souverainete-numerique-commune-1656373/)
+- **Morocco 300 : le Maroc prépare ses champions de la tech**: [Link](https://lematin.ma/economie/morocco-300-le-maroc-prepare-ses-champions-de-la-tech/339019)
+
+
 ### ياسر زبيري (N/A, Wed, 8 Apr 2026 09:30:00 -0700)
 
 - **بـ26 دقيقة لعب منذ انتقاله إلى رين.. ضعف التنافسية يهدد حلم الزابيري في "المونديال"**: [Link](https://www.hesport.com/%D8%A8%D9%8026-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D9%84%D8%B9%D8%A8-%D9%85%D9%86%D8%B0-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%87-%D8%A5%D9%84%D9%89-%D8%B1%D9%8A%D9%86-%D8%B6%D8%B9%D9%81-%D8%A7%D9%84-434121.html)
