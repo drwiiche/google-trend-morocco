@@ -1,3 +1,24 @@
+### حكيم زياش (N/A, Wed, 8 Apr 2026 07:20:00 -0700)
+
+- **بعد حكيم زياش.. ممثل تركي يهز إسرائيل ومنشوره يشعل غضب بن غفير**: [Link](https://www.aljazeera.net/arts/2026/4/8/%D9%82%D8%AF%D9%8A%D8%B1-%D8%A8%D8%A7%D8%A8%D8%A7-%D9%8A%D8%B4%D8%BA%D9%84-%D9%8A%D8%BA%D8%B6%D8%A8-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1)
+- **حكيم زياش يحرج الكيان الصهيوني.. وبن غفير يرد بتهديد علني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%AD%D8%B1%D8%AC-%D8%A7%D9%84%D9%83%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D8%B5%D9%87%D9%8A%D9%88%D9%86%D9%8A--%D9%88%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1-%D9%8A%D8%B1%D8%AF-%D8%A8%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D8%B9%D9%84%D9%86%D9%8A/blt58a5a68048d551ea)
+- **"البيجيدي" يتضامن مع زياش في وجه التهديد الإرهابي الصهيوني ويشيد بمواقفه الإنسانية والجريئة تجاه الشعب الفلسطيني**: [Link](https://www.pjd.ma/227583-%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D9%8A%D8%AF%D9%8A-%D9%8A%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D9%85%D8%B9-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D9%8A.html)
+
+
+### paul seixas (N/A, Wed, 8 Apr 2026 07:10:00 -0700)
+
+- **Opinião | Será Paul Seixas a retirar Tadej Pogacar?**: [Link](https://www.topcycling.pt/opiniao-sera-paul-seixas-a-retirar-tadej-pogacar/)
+- **Isaac del Toro abandona o País Basco de Itzulia após acidente no início da Fase 3**: [Link](https://www.segundabase.com.br/enciclopedia/isaac-del-toro-abandona-o-pais-basco-de-itzulia-apos-acidente-no-inicio-da-fase-3/218165/)
+- **Ciclismo: Paul Seixas, de 19 anos, conquista primeira vitória no World Tour – Desporto**: [Link](https://www.obusilis.com.br/mundo/ciclismo-paul-seixas-de-19-anos-conquista-primeira-vitoria-no-world-tour-desporto/41246/)
+
+
+### فينيسيوس جونيور (N/A, Wed, 8 Apr 2026 06:50:00 -0700)
+
+- **نجم الريال السابق: فينيسيوس فظيع.. مشاهدته تثير غضبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%81%D8%B8%D9%8A%D8%B9--%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%AA%D9%87-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%BA%D8%B6%D8%A8%D9%8A/blta14a78f0b2f4f740)
+- **ماتيوس: "فينيسيوس لاعب كبير لكنه يستفز خصومه دائمًا وعندما يتدخلون ضده فقط يتذمر ويبكي"**: [Link](https://m.elbotola.com/article/2026-04-07-14-15-696.html)
+- **الريال مستاء من صافرات استهجان "سخيفة" ضد فينيسيوس ومبابي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%B3%D8%AA%D8%A7%D8%A1-%D9%85%D9%86-%D8%B5%D8%A7%D9%81%D8%B1%D8%A7%D8%AA-%D8%A7%D8%B3%D8%AA%D9%87%D8%AC%D8%A7%D9%86-%D8%B3%D8%AE%D9%8A%D9%81%D8%A9-%D8%B6%D8%AF-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D9%85%D8%A8%D8%A7%D8%A8%D9%8A/18324)
+
+
 ### كأس الأمم الإفريقية (N/A, Wed, 8 Apr 2026 07:00:00 -0700)
 
 - **المغرب في مجموعة نارية بـ"كان U17"**: [Link](https://www.hespress.com/%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-u17-1727946.html)
