@@ -1,3 +1,24 @@
+### gérald darmanin (N/A, Thu, 9 Apr 2026 01:40:00 -0700)
+
+- **Garde à vue de Rima Hassan : Un problème de fuites de la PJ jusqu’à la Chancellerie**: [Link](https://www.lecanardenchaine.fr/police-justice/53588-un-probleme-de-fuites-de-la-pj-jusqu-a-la-chancellerie)
+- **Le porte-parole du ministère de la Justice pointé du doigt après la garde à vue de Rima Hassan**: [Link](https://www.huffingtonpost.fr/politique/article/le-porte-parole-de-gerald-darmanin-pointe-du-doigt-apres-la-garde-a-vue-de-rima-hassan_262384.html)
+- **Garde à vue de Rima Hassan : l’eurodéputée LFI porte plainte après les fuites dans la presse, Gérald Darmanin saisit l’inspection générale de la justice**: [Link](https://www.lemonde.fr/politique/article/2026/04/08/garde-a-vue-de-rima-hassan-l-eurodeputee-lfi-porte-plainte-apres-les-fuites-dans-la-presse-gerald-darmanin-saisit-l-inspection-generale-de-la-justice_6678274_823448.html)
+
+
+### حالة الطقس اليوم (N/A, Wed, 8 Apr 2026 23:10:00 -0700)
+
+- **أجواء متقلبة بين البرودة ليلًا والحرارة نهارًا .. حالة الطقس اليوم الخميس 9 أبريل 2026**: [Link](https://www.youm7.com/story/2026/4/9/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%85%D8%AA%D9%82%D9%84%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D8%AF%D8%A9-%D9%84%D9%8A%D9%84%D9%8B%D8%A7-%D9%88%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%86%D9%87%D8%A7%D8%B1%D9%8B%D8%A7-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85/7370573)
+- **«بدء ارتفاع الحرارة».. الأرصاد تكشف خريطة الظواهر الجوية وحالة الطقس حتى منتصف الأسبوع المقبل**: [Link](https://darelhilal.com/News/3211279.aspx)
+- **اليوم .. طقس حار في النهار وبارد ليلاً على مصر**: [Link](https://tourismdailynews.com/2026/04/09/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%B1-%D9%88%D8%A8%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%84%D8%A7%D9%8B-%D8%B9%D9%84/)
+
+
+### مدار21 (N/A, Wed, 8 Apr 2026 15:00:00 -0700)
+
+- **هدنة إيران تصعد بالذهب وهبوط حاد للنفط والغاز**: [Link](https://www.aljazeera.net/ebusiness/2026/4/8/%D9%87%D8%AF%D9%86%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%84%D9%84%D8%B5%D8%B9%D9%88%D8%AF-%D9%88%D9%87%D8%A8%D9%88%D8%B7-%D8%AD%D8%A7%D8%AF)
+- **الذهب يترقب مفاوضات واشنطن وطهران وأسعاره عند 4730 دولارا للأونصة**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D9%88%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%88%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1%D9%87-%D8%B9%D9%86%D8%AF-4730-%D8%AF%D9%88%D9%84%D8%A7%D8%B1%D8%A7-%D9%84%D9%84%D8%A3%D9%88%D9%86%D8%B5%D8%A9-/3899266)
+- **الذهب يتراجع مع ترقب الأسواق لبيانات التضخم الأمريكية**: [Link](https://detafour.com/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%85%D8%B9-%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D9%84%D8%A8%D9%8A%D8%A7%D9%86%D8%A7%D8%AA-%D8%A7/)
+
+
 ### طقس اليوم (N/A, Wed, 8 Apr 2026 23:20:00 -0700)
 
 - **حالة الطقس اليوم موجة حر شديدة تصل إلى 40 درجة في جميع أنحاء البلاد**: [Link](https://tawusal.com/82343/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-40/)
