@@ -1,3 +1,38 @@
+### artemis ii (N/A, Thu, 9 Apr 2026 09:20:00 -0700)
+
+- **Artemis II Lunar Flyby**: [Link](https://www.nasa.gov/gallery/lunar-flyby/)
+- **Artemis II crew reflects on historic mission before splashdown on Friday**: [Link](https://www.bbc.com/news/articles/c70dr45dj1lo)
+- **NASA releases stunning new ‘Earthset’ image taken during historic lunar flyby**: [Link](https://www.cnn.com/2026/04/07/science/artemis-2-lunar-flyby-images-earthset)
+
+
+### rayo – aek athènes (N/A, Thu, 9 Apr 2026 09:00:00 -0700)
+
+- **Le grand retour de Luka Jovic fait trembler Madrid**: [Link](https://www.footmercato.net/a8278964645803064707-le-grand-retour-de-luka-jovic-fait-trembler-madrid)
+- **L'entraîneur du Rayo Vallecano vise le titre de la Ligue Europa Conférence**: [Link](https://m.elbotola.com/fr/article/2026-04-08-15-45-885.html)
+- **Ligue Conférence : Benoît Bastien au sifflet d'un quart de finale électrique**: [Link](https://www.foot-national.com/ligue-europa-conference/ligue-conference-le-francais-benoit-bastien-au-sifflet-pour-le-match-de-quart-de-finale-942857)
+
+
+### football (N/A, Thu, 9 Apr 2026 09:00:00 -0700)
+
+- **England U23 head coach Lydia Bedford's 'full circle' moment**: [Link](https://www.bbc.co.uk/sport/football/articles/c8x7dgvwww1o)
+- **Islamophobic chants near Bernabeu add to scrutiny of Spanish football**: [Link](https://en.hespress.com/135423-islamophobic-chants-near-bernabeu-add-to-scrutiny-of-spanish-football.html)
+- **Atletico Madrid fans direct Anti-Muslim chant at Barcelona before Champions League clash - spotted**: [Link](https://tribuna.com/en/blogs/atletico-madrid-fans-direct-antimuslim-chant-at-barcelona-be/)
+
+
+### منتخب النرويج لكرة القدم (N/A, Thu, 9 Apr 2026 08:10:00 -0700)
+
+- **المنتخب المغربي يواجه النرويج في 7 يونيو المقبل وديا استعدادا لمونديال 2026 – اليوم 24**: [Link](https://alyaoum24.com/2018937.html)
+- **استقر على منتخب النرويج.. وهبي يبرمج آخر وديات الأسود قبل الإقلاع صوب المونديال**: [Link](https://al3omk.com/1151267.html)
+- **مواجهة مرتقبة بين أسود الأطلس وهندوراس استعدادا لمونديال 2026**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%88%D9%87%D9%86%D8%AF%D9%88%D8%B1%D8%A7%D8%B3-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/18371)
+
+
+### نهائي كأس الأمم الإفريقية 2025 (N/A, Thu, 9 Apr 2026 08:10:00 -0700)
+
+- **"أجمل هدية".. موتسيبي يرد على مطالب الحكومة السنغالية بالتحقيق في فساد كاف**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AC%D9%85%D9%84-%D9%87%D8%AF%D9%8A%D8%A9--%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%8A-%D9%81%D8%B3%D8%A7%D8%AF-%D9%83%D8%A7%D9%81/blt45d6ed394b78f54c)
+- **اختبار المصداقية يضع "الكاف" بين الدبلوماسية الرياضية والعدالة القانونية**: [Link](https://www.hespress.com/%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%AF%D8%A7%D9%82%D9%8A%D8%A9-%D9%8A%D8%B6%D8%B9-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D8%A8%D9%84-1728386.html)
+- **رئيس كاف في السنغال.. ماذا يحمل موتسيبي في حقيبته؟**: [Link](https://www.aljazeera.net/sport/2026/4/7/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%81)
+
+
 ### émirats arabes unis (N/A, Thu, 9 Apr 2026 07:40:00 -0700)
 
 - **Ormuz: l'UE rejette l'idée d'un "péage", appelle au respect de la liberté de navigation**: [Link](https://fr.finance.yahoo.com/actualites/ormuz-lue-rejette-lid%C3%A9e-dun-111750955.html)
