@@ -1,3 +1,31 @@
+### porto – nottm forest (N/A, Thu, 9 Apr 2026 12:20:00 -0700)
+
+- **Europa League: Porto counting on Seko Fofana to reclaim the crown**: [Link](https://foot-africa.com/en/news/europa-league-porto-counting-on-seko-fofana-to-reclaim-the-crown-1159181/)
+- **Pereira still trying to juggle Forest's Premier League and European commitments**: [Link](https://www.beinsports.com/en-us/soccer/uefa-europa-league/articles/pereira-still-trying-to-juggle-forests-premier-league-and-european-commitments-2026-04-08)
+- **FC Porto vs Nottingham Forest kick-off time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-today-s-fc-porto-vs-nottingham-forest-europa-league-game-live-stream-tv-channel-and-start-time/blt3282be2dde16e9b5)
+
+
+### مطر (N/A, Thu, 9 Apr 2026 11:50:00 -0700)
+
+- **المركز الوطني للأرصاد | أمطار غزيرة مصحوبة بالبَرَد وجريان السيول في 7 مناطق**: [Link](https://www.arabiaweather.com/ar/content/%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%B5%D8%AD%D9%88%D8%A8%D8%A9-%D8%A8%D8%A7%D9%84%D8%A8%D9%8E%D8%B1%D9%8E%D8%AF-%D9%88%D8%AC%D8%B1%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84-%D9%81%D9%8A-7-%D9%85%D9%86%D8%A7%D8%B7%D9%82)
+- **عاجل: من الجمعة حتى الثلاثاء.. أمطار متباينة على معظم المناطق**: [Link](https://25h.app/2026/04/09/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D8%A8/)
+- **توقعات الطقس في السعودية الأيام المقبلة تقلبات وتحذيرات رسمية من المركز الوطني للأرصاد**: [Link](https://mrj3y.com/418737/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%8A%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D9%82%D8%A8/)
+
+
+### لامين يامال (N/A, Thu, 9 Apr 2026 11:40:00 -0700)
+
+- **يامال يقطع وعدا لجماهير برشلونة بعد الخسارة أمام أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%82%D8%B7%D8%B9-%D9%88%D8%B9%D8%AF%D8%A7-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt21205db96a958552)
+- **فليك مدافعا عن لامين جمال: من حقه أن يغضب وسأحميه دائما**: [Link](https://www.aljazeera.net/sport/2026/4/7/%D9%81%D9%84%D9%8A%D9%83-%D8%B1%D8%AF%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D8%AD%D9%82)
+- **فليك يدافع عن لامين يامال: سأحميه دائما**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%B3%D8%A3%D8%AD%D9%85%D9%8A%D9%87-%D8%AF%D8%A7%D8%A6%D9%85%D8%A7/18284)
+
+
+### الدوزي (N/A, Thu, 9 Apr 2026 10:50:00 -0700)
+
+- **الدوزي يعيد إحياء "نوستالجيا الراي"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%88%D8%B2%D9%8A-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A5%D8%AD%D9%8A%D8%A7%D8%A1-%D9%86%D9%88%D8%B3%D8%AA%D8%A7%D9%84%D8%AC%D9%8A%D8%A7-%D8%A7%D9%84%D8%B1%D8%A7%D9%8A-1728180.html)
+- **الدوزي يستعد لطرح ألبوم “راي” ويصرح: إنه سفر في خبايا الروح**: [Link](https://machahid24.com/panorama/497033.html)
+- **عبد الحفيظ الدوزي يعود إلى جذوره.. "الراي" في حلة عصرية -فيديو**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%AD%D9%81%D9%8A%D8%B8-%D8%A7%D9%84%D8%AF%D9%88%D8%B2%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%AC%D8%B0%D9%88%D8%B1%D9%87-%D8%A7%D9%84%D8%B1%D8%A7-247182.html)
+
+
 ### bologne – aston villa (N/A, Thu, 9 Apr 2026 11:30:00 -0700)
 
 - **Bologna v Aston Villa: Europa League quarter-final, first leg – live**: [Link](https://www.theguardian.com/football/live/2026/apr/09/bologna-v-aston-villa-europa-league-quarter-final-first-leg-live?page=with:block-69d7f0ae8f08ff62487f6578)
