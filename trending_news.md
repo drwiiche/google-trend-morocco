@@ -1,3 +1,17 @@
+### حالة الطقس (N/A, Wed, 8 Apr 2026 23:20:00 -0700)
+
+- **حالة الطقس اليوم موجة حر شديدة تصل إلى 40 درجة في جميع أنحاء البلاد**: [Link](https://tawusal.com/82343/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-40/)
+- **درجات الحرارة تشهد ارتفاعاً تدريجياً اعتباراً من يوم غد**: [Link](https://pls48.net/61932/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B4%D9%87%D8%AF-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9%D8%A7%D9%8B-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A%D8%A7%D9%8B/)
+- **تحذيرات من شبورة كثيفة وارتفاع الحرارة غدا**: [Link](https://mrj3y.com/417864/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D9%88%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1/)
+
+
+### الطقس اليوم (N/A, Wed, 8 Apr 2026 23:20:00 -0700)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-74-1728260.html)
+- **هبات رياح قوية مرتقبة غدا الخميس بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-20260408)
+- **طقس الأربعاء: أجواء باردة نسبيا مع زخات مطرية بعدد من الجهات – اليوم 24**: [Link](https://alyaoum24.com/2018717.html)
+
+
 ### météo (N/A, Wed, 8 Apr 2026 23:00:00 -0700)
 
 - **"Le mercure joue au yoyo" : pic jusqu’à 22°C cette semaine, le beau temps va-t-il durer ?**: [Link](https://france3-regions.franceinfo.fr/hauts-de-france/le-mercure-joue-au-yoyo-pic-jusqu-a-22-c-cette-semaine-le-beau-temps-va-t-il-durer-3330656.html)
