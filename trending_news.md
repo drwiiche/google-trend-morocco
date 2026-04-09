@@ -1,3 +1,31 @@
+### météo (N/A, Wed, 8 Apr 2026 23:00:00 -0700)
+
+- **"Le mercure joue au yoyo" : pic jusqu’à 22°C cette semaine, le beau temps va-t-il durer ?**: [Link](https://france3-regions.franceinfo.fr/hauts-de-france/le-mercure-joue-au-yoyo-pic-jusqu-a-22-c-cette-semaine-le-beau-temps-va-t-il-durer-3330656.html)
+- **Météo Hauts-de-France : à quoi s’attendre pour le week-end du 11 avril ?**: [Link](https://actus.meteocity.com/previsions-meteo/meteo-hauts-de-france-a-quoi-sattendre-pour-le-week-end-du-11-avril-6064)
+- **Quelle météo pour ce week-end prolongé de Pâques dans le Nord et le Pas-de-Calais ?**: [Link](https://www.lavoixdunord.fr/1691149/article/2026-04-03/quelle-meteo-pour-ce-week-end-prolonge-de-paques-dans-le-nord-et-le-pas-de)
+
+
+### الطقس (N/A, Wed, 8 Apr 2026 23:00:00 -0700)
+
+- **منخفض جوي وكتل باردة تفسر الاضطرابات بمجموعة من المناطق المغربية**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%88%D9%83%D8%AA%D9%84-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D8%AA%D9%81%D8%B3%D8%B1-%D8%A7%D9%84%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8-1727867.html)
+- **هبات رياح قوية مرتقبة غدا الخميس بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-20260408)
+- **طقس الأربعاء: أجواء باردة نسبيا مع زخات مطرية بعدد من الجهات – اليوم 24**: [Link](https://alyaoum24.com/2018717.html)
+
+
+### weather (N/A, Wed, 8 Apr 2026 23:00:00 -0700)
+
+- **A Super El Niño is coming. Here’s how a hotter ocean could change the weather near you**: [Link](https://www.cnn.com/2026/04/07/weather/super-el-nino-extreme-weather-climate-disaster)
+- **From war to weather: A 'super El Niño' event poses fresh risks to global food costs**: [Link](https://www.cnbc.com/2026/04/09/el-nino-food-risks-iran-war-fertilizer-weather.html)
+- **Scientist Says ‘Strongest El Niño in 140 Years’ Is Coming**: [Link](https://www.theinertia.com/environment/sctrongest-el-nino-in-140-years/)
+
+
+### mohamed ziane (N/A, Wed, 8 Apr 2026 21:10:00 -0700)
+
+- **Justice : Mohamed Ziane condamné en appel à 5 ans de prison ferme**: [Link](https://mobile.telquel.ma/instant-t/2026/04/08/justice-mohamed-ziane-condamne-en-appel-a-5-ans-de-prison-ferme_1983236/)
+- **Maroc: peine alourdie à cinq ans de prison pour l'opposant et ex-ministre Mohamed Ziane**: [Link](https://information.tv5monde.com/afrique/maroc-peine-alourdie-cinq-ans-de-prison-pour-lopposant-et-ex-ministre-mohamed-ziane-2816853)
+- **Maroc : report du procès de Mohamed Ziane, illustration d’un acharnement judiciaire**: [Link](https://al24news.dz/fr/maroc-report-du-proces-de-mohamed-ziane-illustration-dun-acharnement-judiciaire/)
+
+
 ### claude code (N/A, Wed, 8 Apr 2026 14:40:00 -0700)
 
 - **Project Glasswing: Securing critical software for the AI era**: [Link](https://www.anthropic.com/glasswing)
