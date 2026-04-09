@@ -1,3 +1,10 @@
+### live score (N/A, Wed, 8 Apr 2026 13:50:00 -0700)
+
+- **Game #11: Athletics at Yankees Game Thread**: [Link](https://sports.yahoo.com/articles/game-11-athletics-yankees-game-215913004.html)
+- **Strong-starting Yanks proving cynics wrong, go for win No. 9 vs. A’s**: [Link](https://fieldlevelmedia.com/mlb/strong-starting-yanks-proving-cynics-wrong-go-for-win-no-9-vs-as/)
+- **A’s vs. Yankees Prediction, Odds, Probable Pitchers, Prop Bets for Wednesday, April 8**: [Link](https://www.si.com/betting/a-s-vs-yankees-prediction-odds-probable-pitchers-prop-bets-for-wednesday-april-8-01knq1ps3ps0)
+
+
 ### بنيامين نتنياهو (N/A, Wed, 8 Apr 2026 15:40:00 -0700)
 
 - **نتنياهو: حققنا إنجازات هائلة ضد إيران والمعركة لم تنتهِ**: [Link](https://www.aljazeera.net/news/2026/4/8/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%AD%D9%82%D9%82%D9%86%D8%A7-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2%D8%A7%D8%AA-%D9%87%D8%A7%D8%A6%D9%84%D8%A9-%D8%B6%D8%AF-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
