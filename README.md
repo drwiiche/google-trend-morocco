@@ -1,3 +1,59 @@
+### émirats arabes unis (N/A, Thu, 9 Apr 2026 07:40:00 -0700)
+
+- **Ormuz: l'UE rejette l'idée d'un "péage", appelle au respect de la liberté de navigation**: [Link](https://fr.finance.yahoo.com/actualites/ormuz-lue-rejette-lid%C3%A9e-dun-111750955.html)
+- **Détroit d'Ormuz : l'Iran va mettre en place un système de péage, uniquement payable via cryptomonnaies**: [Link](https://www.capital.fr/economie-politique/detroit-d-ormuz-l-iran-va-mettre-en-place-un-systeme-de-place-de-peage-uniquement-payable-via-cryptomonnaies-1525403)
+- **A l’ONU, Moscou et Pékin mettent leur veto au déblocage du détroit d’Ormuz**: [Link](https://www.nouvelobs.com/monde/20260407.OBS113988/a-l-onu-moscou-et-pekin-mettent-leur-veto-au-deblocage-du-detroit-d-ormuz.html)
+
+
+### نقابة (N/A, Thu, 9 Apr 2026 07:20:00 -0700)
+
+- **توقيع اتفاقية شراكة استراتيجية بين نقابة هيئة المحامين بالرباط والمركز الدولي للدبلوماسية**: [Link](https://alaan.ma/?p=83369)
+- **وزارة التربية تدعو النقابات إلى الحوار**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%88%D8%A7-1728184.html)
+- **"وزارة التعليم" تنهي دراسة منحة المناطق النائية وتلتزم بتوسيع التعويض التكميلي**: [Link](https://madar21.com/418774.html)
+
+
+### أشرف حكيمي (N/A, Thu, 9 Apr 2026 07:20:00 -0700)
+
+- **موتسيبي يشيد بعلاقات المغرب و"الكاف" .. ويعترف بخيبة "نهائي الكان"**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%88-1728361.html)
+- **"غير واقعية".. كيف تنظر الصحف السنغالية لتصريحات موتسيبي عن بطل أفريقيا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D9%8A%D8%B1-%D9%88%D8%A7%D9%82%D8%B9%D9%8A%D8%A9--%D9%83%D9%8A%D9%81-%D8%AA%D9%86%D8%B8%D8%B1-%D8%A7%D9%84%D8%B5%D8%AD%D9%81-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D8%B9%D9%86-%D8%A8%D8%B7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt5a98cd99c8727265)
+- **رئيس كاف في السنغال.. ماذا يحمل موتسيبي في حقيبته؟**: [Link](https://www.aljazeera.net/sport/2026/4/7/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%81)
+
+
+### efootball 2026 (N/A, Thu, 9 Apr 2026 07:00:00 -0700)
+
+- **eFootball 2026: A guide to perform Feints and Sombrero**: [Link](https://gamingonphone.com/guides/efootball-2026-a-guide-to-perform-feints-and-sombrero/)
+- **eFootball™ Crosses 1 Billion Downloads Worldwide and Brings a Special In-Game Campaign with Free Legendary Players, Including Ronaldinho Gaucho**: [Link](https://www.konami.com/games/eu/en/topics/19086/)
+- **eFootball surpasses 1 billion downloads**: [Link](https://www.gamereactor.eu/efootball-surpasses-1-billion-downloads-1703373/)
+
+
+### carlos alcaraz (N/A, Thu, 9 Apr 2026 07:00:00 -0700)
+
+- **Alcaraz - Etcheverry, en directo | Última hora de los octavos de final de Montecarlo, en vivo**: [Link](https://www.marca.com/tenis/masters-1000-montecarlo/carlos-alcaraz-tomas-martin-etcheverry/2026/04/09/04_0407_20260409_49-directo.html)
+- **Masters 1000 de Montecarlo, en directo | Alcaraz se impone en el primer set con rotundidad**: [Link](https://elpais.com/deportes/tenis/2026-04-09/alcaraz-etcheverry-en-directo-octavos-del-masters-1000-de-montecarlo-en-vivo.html)
+- **Trampa para Alcaraz: juega ante el tenista con más victorias en arcilla**: [Link](https://as.com/tenis/masters_1000/trampa-para-alcaraz-juega-ante-el-tenista-con-mas-victorios-en-arcilla-f202604-n/)
+
+
+### نادي أولمبيك آسفي (N/A, Thu, 9 Apr 2026 07:00:00 -0700)
+
+- **"طاس" تحسم نزاع مصطفى وآسفي**: [Link](https://www.hespress.com/%D8%B7%D8%A7%D8%B3-%D8%AA%D8%AD%D8%B3%D9%85-%D9%86%D8%B2%D8%A7%D8%B9-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D9%88%D8%A2%D8%B3%D9%81%D9%8A-1728285.html)
+- **المحكمة الرياضية تنصف طارق مصطفى أمام ناديه المغربي السابق**: [Link](https://www.filgoal.com/articles/526855/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%AA%D9%86%D8%B5%D9%81-%D8%B7%D8%A7%D8%B1%D9%82-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D8%A7%D8%AF%D9%8A%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82)
+- **خبار خايبة جات لأولمبيك اسفي جاية من الطاس قبل الدومي فينال ضد اتحاد العاصمة**: [Link](https://www.goud.ma/%D8%AE%D8%A8%D8%A7%D8%B1-%D8%AE%D8%A7%D9%8A%D8%A8%D8%A9-%D8%AC%D8%A7%D8%AA-%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D8%B3%D9%81%D9%8A-%D8%AC%D8%A7%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84-1013678/)
+
+
+### كندا (N/A, Thu, 9 Apr 2026 06:20:00 -0700)
+
+- **تحذيرات أوروبية من "جنون" التصعيد مع اقتراب انتهاء مهلة ترمب**: [Link](https://www.aljazeera.net/news/2026/4/7/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%85%D9%86-%D8%AC%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D9%85%D8%B9)
+- **فرنسا: نعارض أي هجمات على البنية التحتية المدنية في إيران**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%86%D8%B9%D8%A7%D8%B1%D8%B6-%D8%A3%D9%8A-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%AA%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86/3895864)
+- **باريس تعارض جذرياً استهداف البنى التحتية المدنية في إيران**: [Link](https://aawsat.com/%D8%B4%D8%A4%D9%88%D9%86-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9/5259845-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%AA%D8%B9%D8%A7%D8%B1%D8%B6-%D8%AC%D8%B0%D8%B1%D9%8A%D8%A7%D9%8B-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D8%A8%D9%86%D9%89-%D8%A7%D9%84%D8%AA%D8%AD%D8%AA%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+
+
+### cih bank (N/A, Thu, 9 Apr 2026 06:10:00 -0700)
+
+- **Visa et CIH Bank s’allient pour propulser l'écosystème fintech et lancent le « CIH Visa fintech Challenge**: [Link](https://ledesk.ma/encontinu/visa-et-cih-bank-sallient-pour-propulser-lecosysteme-fintech-et-lancent-le-cih-visa-fintech-challenge/)
+- **Tamwilcom accélère la fabrique des startups marocaines**: [Link](https://medias24.com/2026/04/09/tamwilcom-accelere-la-fabrique-des-startups-marocaines-1657145/)
+- **GITEX Africa 2026 : accord avec Tamwilcom pour booster la Fintech marocaine**: [Link](https://fr.hespress.com/468899-gitex-africa-2026-accord-avec-tamwilcom-pour-booster-la-fintech-marocaine.html)
+
+
 ### محمد باقر قاليباف (N/A, Thu, 9 Apr 2026 06:50:00 -0700)
 
 - **باقر قاليباف.. مهندس المفاوضات الأمريكية الذي قاتل صدام ويطمح لرئاسة إيران**: [Link](https://www.aljazeera.net/politics/2026/4/9/%D8%A8%D8%A7%D9%82%D8%B1-%D9%82%D8%A7%D9%84%D9%8A%D8%A8%D8%A7%D9%81-%D9%85%D9%87%D9%86%D8%AF%D8%B3-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA)
