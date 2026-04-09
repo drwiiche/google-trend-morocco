@@ -1,3 +1,24 @@
+### jordan bardella couple (N/A, Thu, 9 Apr 2026 04:00:00 -0700)
+
+- **PHOTOS EXCLUSIVES - Jordan Bardella et Maria Carolina de Bourbon des Deux-Siciles, l'idylle que personne n'attendait**: [Link](https://www.parismatch.com/People/photos-exclusives-jordan-bardella-et-maria-carolina-de-bourbon-des-deux-siciles-lidylle-que-personne-nattendait-267226)
+- **Cette une de Paris Match officialise la relation de Bardella avec cette princesse richissime**: [Link](https://www.huffingtonpost.fr/politique/article/cette-une-de-paris-match-officialise-la-relation-de-jordan-bardella-avec-la-princesse-maria-carolina-de-bourbon-des-deux-siciles_262416.html)
+- **« C’est un atout, à mort ! » : Jordan Bardella en couple avec une princesse italienne, trop « bling-bling » pour le RN**: [Link](https://www.leparisien.fr/politique/cest-un-atout-a-mort-jordan-bardella-en-couple-avec-une-princesse-italienne-trop-bling-bling-pour-le-rn-08-04-2026-ZXFUZGYHTNAGJLER2HRHQL5GZY.php)
+
+
+### hippisme (N/A, Thu, 9 Apr 2026 03:30:00 -0700)
+
+- **GNT : la tournée continue !**: [Link](https://www.pmu.fr/point-de-vente/cote-courses/gnt-la-tournee-continue-promo/)
+- **Les pronostics des experts pour la réunion 1 à LYON-PARILLY ce mercredi 8 avril**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-lyon-parilly-ce-mercredi-8-avril)
+- **Les top chances du mercredi 8 avril 2026**: [Link](https://www.zone-turf.fr/top-chances/les-top-chances-du-mercredi-8-avril-2026-129468.html)
+
+
+### وقف إطلاق نار (N/A, Thu, 9 Apr 2026 02:20:00 -0700)
+
+- **ماذا حدث منذ بدء الهدنة "الهشة" بين واشنطن وطهران؟**: [Link](https://www.skynewsarabia.com/middle-east/1863289-%D8%AD%D8%AF%D8%AB-%D8%A8%D8%AF%D8%A1-%D8%A7%D9%84%D9%87%D8%AF%D9%86%D8%A9-%D8%A7%D9%84%D9%87%D8%B4%D8%A9-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D9%88%D8%B7%D9%87%D8%B1%D8%A7%D9%86)
+- **منها لبنان واليورانيوم.. 4 أسئلة تواجهها الهدنة الهشة**: [Link](https://www.aljazeera.net/politics/2026/4/9/%D9%85%D9%86%D9%87%D8%A7-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D8%A7%D9%86%D9%8A%D9%88%D9%85-4-%D8%A3%D8%B3%D8%A6%D9%84%D8%A9-%D8%AA%D9%88%D8%A7%D8%AC%D9%87%D9%87%D8%A7)
+- **ماذا نعرف عن وقف إطلاق النار لمدة أسبوعين بين الولايات المتحدة وإيران؟**: [Link](https://www.bbc.com/arabic/articles/cz901ven87go)
+
+
 ### gérald darmanin (N/A, Thu, 9 Apr 2026 01:40:00 -0700)
 
 - **Garde à vue de Rima Hassan : Un problème de fuites de la PJ jusqu’à la Chancellerie**: [Link](https://www.lecanardenchaine.fr/police-justice/53588-un-probleme-de-fuites-de-la-pj-jusqu-a-la-chancellerie)
