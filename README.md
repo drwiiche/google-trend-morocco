@@ -1,3 +1,45 @@
+### bologne – aston villa (N/A, Thu, 9 Apr 2026 11:30:00 -0700)
+
+- **Bologna v Aston Villa: Europa League quarter-final, first leg – live**: [Link](https://www.theguardian.com/football/live/2026/apr/09/bologna-v-aston-villa-europa-league-quarter-final-first-leg-live?page=with:block-69d7f0ae8f08ff62487f6578)
+- **Europa League QF line-ups: Bologna vs. Aston Villa**: [Link](https://sports.yahoo.com/articles/europa-league-qf-line-ups-175000435.html)
+- **Bologna vs. Aston Villa: Europa League TV channel, time, and how to watch today**: [Link](https://www.usatoday.com/story/sports/soccer/epl/2026/04/09/bologna-vs-aston-villa-europa-league-prediction-odds-how-to-watch-today/89528624007/)
+
+
+### crystal palace – fiorentina (N/A, Thu, 9 Apr 2026 11:30:00 -0700)
+
+- **Former Gunner suffers new injury setback – could miss Arsenal clash**: [Link](https://dailycannon.com/2026/04/nketiah-arsenal-injury-hamstring-palace/)
+- **How to watch Crystal Palace vs Fiorentina - TV channel, live stream and kick-off time**: [Link](https://www.mirror.co.uk/sport/football/news/crystal-palace-fiorentina-tv-channel-36978592)
+- **Crystal Palace issue Wharton and Nketiah injury update ahead of Newcastle clash**: [Link](https://www.nufcblog.co.uk/2026/04/09/eddie-nketiah-injury-update-ahead-of-crystal-palace-clash-with-newcastle/)
+
+
+### mainz 05 – strasbourg (N/A, Thu, 9 Apr 2026 11:20:00 -0700)
+
+- **Racing Straßburg: Proteste bei Mainz-05-Gegner in Conference League**: [Link](https://www.faz.net/aktuell/sport/rhein-main-sport/mainz-05/racing-strassburg-proteste-bei-mainz-05-gegner-in-conference-league-accg-200710234.html)
+- **"Es ist für Mainz 05 etwas Besonderes, europäisch zu spielen"**: [Link](https://www.sportschau.de/regional/swr/swr-es-ist-fuer-mainz-05-etwas-besonderes-europaeisch-zu-spielen-100.html)
+- **Aufregung vor der Conference League - Landesschau Rheinland-Pfalz - TV**: [Link](https://www.swr.de/video/sendungen-a-z/landesschau-rlp/aufregung-vor-der-conference-league-100.html)
+
+
+### الاتحاد الدولي لكرة القدم (N/A, Thu, 9 Apr 2026 11:20:00 -0700)
+
+- **استبعاد حكم نهائي المغرب والسنغال من المشاركة في كأس العالم**: [Link](https://www.alarabiya.net/sport/2026/04/09/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%AD%D9%83%D9%85-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **حكام مغاربة ضمن قائمة كأس العالم**: [Link](https://www.hespress.com/%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D8%B6%D9%85%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-1728589.html)
+- **من جحيم الأهلي لجنة المونديال.. 48 ساعة مثيرة لحكمي فيديو في مصر والسعودية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%AC%D8%AD%D9%8A%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84--48-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%AF%D8%B1%D8%A7%D9%85%D9%8A%D8%A9-%D9%84%D8%AD%D9%83%D9%85%D9%8A-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/bltd8a7f4ba0aacd663)
+
+
+### ثلج (N/A, Thu, 9 Apr 2026 11:20:00 -0700)
+
+- **منخفض بارد يسيطر على الأجواء المغربية .. أمطار ورياح وانخفاض للحرارة**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%8A%D8%B3%D9%8A%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1728356.html)
+- **دعوات لشمول لبنان بالهدنة وسط مخاوف بشأن ثبات وقف النار الأميركي الإيراني**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%AA%D8%B3/)
+- **يوعابد لـ2M.ma: المملكة ستعرف أجواء غير مستقرة مع أمطار وعواصف رعدية خلال بقية الأسبوع**: [Link](https://2m.ma/ar/news/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D9%84%D9%802M-ma-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%B3%D8%AA%D8%B9%D8%B1%D9%81-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%AA%D9%82%D8%B1%D8%A9-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B9%D9%88%D8%A7%D8%B5%D9%81-20260409)
+
+
+### rayo vallecano vs aek athens (N/A, Thu, 9 Apr 2026 10:50:00 -0700)
+
+- **UEFA Conference League quarter-finals: Schedule for Thursday, April 9 - 16**: [Link](https://www.gamereactor.eu/uefa-conference-league-quarter-finals-schedule-for-thursday-april-9-16-1703013/)
+- **UEFA Conference League: Quarterfinals Preview**: [Link](https://thedeck.news/uefa-conference-league-quarterfinals-preview-2/)
+- **Ivan balliu: Latest News, Schedules, and Results**: [Link](https://www.cricketnmore.com/sports-topics/ivan-balliu)
+
+
 ### hamza el moussaoui (N/A, Thu, 9 Apr 2026 10:30:00 -0700)
 
 - **RS Berkane: Hamza El Moussaoui suspendu deux ans par la CAF, le club fait appel**: [Link](https://sport.le360.ma/football/rs-berkane-hamza-el-moussaoui-suspendu-deux-ans-par-la-caf-le-club-fait-appel_B27IZPGLVFBEXGPY2ARYGMYEPM/)
