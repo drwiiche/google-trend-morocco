@@ -1,3 +1,38 @@
+### hamza el moussaoui (N/A, Thu, 9 Apr 2026 10:30:00 -0700)
+
+- **RS Berkane: Hamza El Moussaoui suspendu deux ans par la CAF, le club fait appel**: [Link](https://sport.le360.ma/football/rs-berkane-hamza-el-moussaoui-suspendu-deux-ans-par-la-caf-le-club-fait-appel_B27IZPGLVFBEXGPY2ARYGMYEPM/)
+- **CAF : le TAS va s’occuper d’un deuxième gros dossier**: [Link](https://www.footmercato.net/a3089395212128999692-caf-le-tas-va-soccuper-dun-deuxieme-gros-dossier)
+- **L'affaire d'Al Hilal soudanais se dirige vers une résolution au sein de la CAF après une session juridique**: [Link](https://www.ysscores.com/fr/news/13942360/L'affaire-d'Al-Hilal-soudanais-se-dirige-vers-une-r%C3%A9solution-au-sein-de-la-CAF-apr%C3%A8s-une-session-juridique)
+
+
+### sénégal (N/A, Thu, 9 Apr 2026 10:20:00 -0700)
+
+- **Championnat Scolaire : Le Ghana en tête d’affiche des demi-finales chez les filles, nouveau champion assuré chez les garçons**: [Link](https://www.cafonline.com/fr/championnat-dafrique-scolaire-de-football/news/championnat-scolaire-le-ghana-en-tete-d-affiche-des-demi-finales-chez-les-filles-nouveau-champion-assure-chez-les-garcons/)
+- **U15 : Le Sénégal humilie le Maroc et file encore en finale**: [Link](https://www.senenews.com/actualites/u15-le-senegal-humilie-le-maroc-et-file-encore-en-finale_582263.html)
+- **Football scolaire CAF : première journée lancée**: [Link](https://fr.apanews.net/zimbabwe/football-scolaire-caf-premiere-journee-lancee/)
+
+
+### koh lanta (N/A, Thu, 9 Apr 2026 10:20:00 -0700)
+
+- **Johan (Koh-Lanta) a "frôlé la mort" en 2019 après un grave accident : "J'ai failli tout perdre : santé, amour, boulot"**: [Link](https://www.programme-tv.net/news/tv/400527-johan-koh-lanta-a-frole-la-mort-en-2019-apres-un-grave-accident-j-ai-failli-tout-perdre-sante-amour-boulot/)
+- **Koh-Lanta 2026 : Les reliques du destin - Emission 06 (Partie 2) du 7 avril 2026**: [Link](https://www.tf1.fr/fr-ma/tf1/koh-lanta/videos/koh-lanta-2026-les-reliques-du-destin-emission-06-partie-2-du-7-avril-2026-56501282.html)
+- **«Une chance sur trois de m’en sortir» : l’incroyable coup de poker de Jonathan dans «Koh-Lanta»**: [Link](https://tvmag.lefigaro.fr/programme-tv/tele-realite/une-chance-sur-trois-de-m-en-sortir-l-incroyable-coup-de-poker-de-jonathan-dans-koh-lanta-20260408)
+
+
+### عثمان معما (N/A, Thu, 9 Apr 2026 10:20:00 -0700)
+
+- **معما في المحك مع واتفورد قبل كأس العالم**: [Link](https://www.almountakhab.com/node/16224338)
+- **وهبي يتلقى خبرا سارا قبل إعلان لائحة المونديال**: [Link](https://zaiocity.net/2026/04/04/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%AE%D8%A8%D8%B1%D8%A7-%D8%B3%D8%A7%D8%B1%D8%A7-%D9%82%D8%A8%D9%84-%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84/)
+- **معما ورقة وهبي السرية لمونديال 2026**: [Link](https://sabahagadir.ma/451373.html)
+
+
+### médias 24 (N/A, Thu, 9 Apr 2026 10:10:00 -0700)
+
+- **Le Président Motsepe en visite au Maroc ce jeudi pour des rencontres avec le Président de la Fédération Royale Marocaine de Football, Fouzi Lekjaa et des représentants du football marocain**: [Link](https://www.cafonline.com/fr/a-propos-de-la-caf/news/le-president-motsepe-en-visite-au-maroc-ce-jeudi-pour-des-rencontres-avec-le-president-de-la-federation-royale-marocaine-de-football-fouzi-lekjaa-et-des-representants-du-football-marocain/)
+- **Maroc-Sénégal, le verdict de la CAF**: [Link](https://www.sports.fr/football/can/maroc-senegal-le-verdict-de-la-caf-1005114.html)
+- **CAN 2025 : le média espagnol "AS" révèle que le Sénégal a ignoré des recommandations de la CAF avant la finale face au Maroc**: [Link](https://medias24.com/2026/04/08/can-2025-le-media-espagnol-as-revele-que-le-senegal-a-ignore-des-recommandations-de-la-caf-avant-la-finale-face-au-maroc-1656041/)
+
+
 ### artemis ii (N/A, Thu, 9 Apr 2026 09:20:00 -0700)
 
 - **Artemis II Lunar Flyby**: [Link](https://www.nasa.gov/gallery/lunar-flyby/)
