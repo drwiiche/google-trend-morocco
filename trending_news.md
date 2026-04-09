@@ -1,3 +1,59 @@
+### jordan bardella (N/A, Thu, 9 Apr 2026 13:30:00 -0700)
+
+- **PHOTOS EXCLUSIVES - Jordan Bardella et Maria Carolina de Bourbon des Deux-Siciles, l'idylle que personne n'attendait**: [Link](https://www.parismatch.com/People/photos-exclusives-jordan-bardella-et-maria-carolina-de-bourbon-des-deux-siciles-lidylle-que-personne-nattendait-267226)
+- **Pourquoi Bardella officialise sa relation avec la princesse de Bourbon ?**: [Link](https://www.20minutes.fr/politique/4217500-20260409-presidentielle-2027-pourquoi-jordan-bardella-officialise-relation-princesse-bourbon-deux-siciles)
+- **Jordan Bardella en couple avec Maria Carolina de Bourbon des Deux-Siciles ? Marion Maréchal a une réaction étonnante : “Mon mari est également…”**: [Link](https://www.gala.fr/l_actu/news_de_stars/jordan-bardella-en-couple-avec-maria-carolina-de-bourbon-des-deux-siciles-marion-marechal-a-une-reaction-etonnante-mon-mari-est-egalement-20260409)
+
+
+### ياسين بونو (N/A, Thu, 9 Apr 2026 13:10:00 -0700)
+
+- **"الهلال لا يغفر الذنوب".. هجوم إعلامي يضرب ياسين بونو قبل مراحل الحسم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%84%D8%A7-%D9%8A%D8%BA%D9%81%D8%B1-%D8%A7%D9%84%D8%B0%D9%86%D9%88%D8%A8--%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%82%D8%A8%D9%84-%D9%85%D8%B1%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%AD%D8%B3%D9%85/bltad68b1067d24c396)
+- **ياسين بونو في موقف حرج: حارس التعاون يسلط الضوء على أخطاء الهلال**: [Link](https://almodrj.com/archives/34022)
+- **” نائم في المرمى ” .. اتهام صادم لـ ياسين بونو !**: [Link](https://hihi2.com/2026/04/05/p3714731.html)
+
+
+### الطقس غدًا (N/A, Thu, 9 Apr 2026 13:00:00 -0700)
+
+- **حالة الطقس اليوم هل انتهى الشتاء والأرصاد تكشف عن موعد ارتفاع درجات الحرارة**: [Link](https://tawusal.com/82970/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%87%D9%84-%D8%A7%D9%86%D8%AA%D9%87%D9%89-%D8%A7%D9%84%D8%B4%D8%AA%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%A3%D8%B1/)
+- **ارتفاع الحرارة ورياح نشطة على أغلب الأنحاء**: [Link](https://mrj3y.com/418014/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%86%D8%B4%D8%B7%D8%A9-%D8%B9%D9%84%D9%89-%D8%A3%D8%BA%D9%84%D8%A8-%D8%A7%D9%84%D8%A3/)
+- **اليوم .. طقس حار في النهار وبارد ليلاً على مصر**: [Link](https://tourismdailynews.com/2026/04/09/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%B1-%D9%88%D8%A8%D8%A7%D8%B1%D8%AF-%D9%84%D9%8A%D9%84%D8%A7%D9%8B-%D8%B9%D9%84/)
+
+
+### فرايبورغ ضد سلتا فيغو (N/A, Thu, 9 Apr 2026 13:00:00 -0700)
+
+- **مباراة منتظرة بين فرايبورغ وسيلتا فيغو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D9%81%D8%B1%D8%A7%D9%8A%D8%A8%D9%88%D8%B1%D8%BA-%D9%88%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-2026-04-09?videopage=true)
+- **معاينة المباراة: فرايبورغ ضد سيلتا فيغو، الساعة 2:00 صباحاً، 10 أبريل: سيكون الضيوف خصماً صعباً.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-tran-dau-freiburg-vs-celta-vigo-2h00-ngay-10-4-vi-khach-kho-choi)
+- **موعد مباراة سيلتا فيجو وفرايبورج في الدوري الأوروبي والقنوات الناقلة**: [Link](https://www.dostor.org/5498815)
+
+
+### bet365 (N/A, Thu, 9 Apr 2026 12:50:00 -0700)
+
+- **Bet365 bonus code: Get $200 bonus bets for Knicks-Celtics, Warriors-Lakers, golf, Mets-Diamondbacks Thursday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-get-200-bonus-bets-knicks-celtics-warriors-lakers-golf-mets-diamondbacks-thursday/)
+- **Bet365 Bonus Code: Get New $150 Bonus for the Masters, MLB, NBA Games Today**: [Link](https://wtop.com/sports/2026/04/bet365-bonus-code-get-new-150-bonus-for-the-masters-mlb-nba-games-today/)
+- **bet365 bonus code ALBET365: $365 in bonuses, win or lose, for Michigan vs. UConn national championship**: [Link](https://www.al.com/betting/2026/04/bet365-bonus-code-albet365-365-in-bonuses-win-or-lose-for-michigan-vs-uconn-national-championship.html)
+
+
+### نادي برشلونة (N/A, Thu, 9 Apr 2026 12:50:00 -0700)
+
+- **فيديو: لقطة مدافع أتلتيكو تكررت سابقًا في دوري الأبطال.. شاهد ماذا فعل الحكم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%82%D8%B7%D8%A9-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%AA%D9%83%D8%B1%D8%B1%D8%AA-%D8%B3%D8%A7%D8%A8%D9%82%D9%8B%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84--%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A7%D8%B0%D8%A7-%D9%81%D8%B9%D9%84-%D8%A7%D9%84%D8%AD%D9%83%D9%85/blt4cd8565bf80a5eed)
+- **طرد وهدف ملغى وضربة جزاء.. هل ظلم الحكام برشلونة لصالح أتلتيكو مدريد؟**: [Link](https://www.aljazeera.net/sport/2026/4/9/%D8%A3%D8%AE%D8%B7%D8%A7%D8%A1-%D8%AA%D8%AD%D9%83%D9%8A%D9%85%D9%8A%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **رسميا/ برشلونة يقدّم شكوى رسمية لـ"يويفا" احتجاجا على تحكيم مباراة أتلتيكو مدريد!**: [Link](https://m.elbotola.com/article/2026-04-09-18-16-410.html)
+
+
+### محمد زيان المحامي (N/A, Thu, 9 Apr 2026 12:20:00 -0700)
+
+- **المغرب: حكم ثان بسجن الوزير السابق محمد زيان خمس سنوات بتهمة "اختلاس وتبديد أموال عمومية"**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20260408-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AD%D9%83%D9%85-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%B3%D8%AC%D9%86-%D9%88%D8%B2%D9%8A%D8%B1-%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D8%A5%D9%86%D8%B3%D8%A7%D9%86-%D8%AD%D8%A8%D8%B3-%D9%85%D8%AD%D9%85%D8%AF-%D8%B2%D9%8A%D8%A7%D9%86-%D8%AD%D9%82%D9%88%D9%82-%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D8%B3-%D8%AA%D8%A8%D8%AF%D9%8A%D8%AF-%D8%A3%D9%85%D9%88%D8%A7%D9%84-%D8%B9%D9%85%D9%88%D9%85%D9%8A%D8%A9)
+- **المغرب: تثبيت حكم السجن بحق محمد زيان يعيد الجدل حول قضاياه بين الجنائي والسياسي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/20260409-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AB%D8%A8%D9%8A%D8%AA-%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D8%A8%D8%AD%D9%82-%D9%85%D8%AD%D9%85%D8%AF-%D8%B2%D9%8A%D8%A7%D9%86-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%AD%D9%88%D9%84-%D9%82%D8%B6%D8%A7%D9%8A%D8%A7%D9%87-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AC%D9%86%D8%A7%D8%A6%D9%8A-%D9%88%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A)
+- **دفاع زيان: ملف النقيب “خال” من أدلة الاختلاس وتقارير مجلس الحسابات غائبة**: [Link](https://lakome2.com/droit-humain/414141/)
+
+
+### rayo vallecano (N/A, Thu, 9 Apr 2026 11:50:00 -0700)
+
+- **Spain Conference League Soccer**: [Link](https://www.wvnews.com/sports/pro/spain-conference-league-soccer/image_96de3c98-5cd7-55d7-959f-be58f29a74e9.html)
+- **UEFA Conference League Quarter-Finals Set To Begin**: [Link](https://menafn.com/1110961429/UEFA-Conference-League-Quarter-Finals-Set-To-Begin)
+- **Rayo Vallecano v AEK Athens Goal Scorer Odds**: [Link](https://sportsbook.fanduel.com/soccer/uefa-europa-conference-league/rayo-vallecano-v-aek-athens-35393295?tab=goal-scorer)
+
+
 ### porto – nottm forest (N/A, Thu, 9 Apr 2026 12:20:00 -0700)
 
 - **Europa League: Porto counting on Seko Fofana to reclaim the crown**: [Link](https://foot-africa.com/en/news/europa-league-porto-counting-on-seko-fofana-to-reclaim-the-crown-1159181/)
