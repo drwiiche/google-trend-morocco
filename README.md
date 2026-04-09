@@ -1,3 +1,59 @@
+### محمد باقر قاليباف (N/A, Thu, 9 Apr 2026 06:50:00 -0700)
+
+- **باقر قاليباف.. مهندس المفاوضات الأمريكية الذي قاتل صدام ويطمح لرئاسة إيران**: [Link](https://www.aljazeera.net/politics/2026/4/9/%D8%A8%D8%A7%D9%82%D8%B1-%D9%82%D8%A7%D9%84%D9%8A%D8%A8%D8%A7%D9%81-%D9%85%D9%87%D9%86%D8%AF%D8%B3-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA)
+- **إيران: انتهاكات الهدنة ستؤدي إلى ردود قوية**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D9%87%D8%AF%D9%86%D8%A9-%D8%B3%D8%AA%D8%A4%D8%AF%D9%8A-%D8%A5%D9%84%D9%89-%D8%B1%D8%AF%D9%88%D8%AF-%D9%82%D9%88%D9%8A%D8%A9/3899678)
+- **ترامب يلوّح بتصعيد عسكري إذا لم تلتزم إيران بالاتفاق، وطهران توجه اتهامات للولايات المتحدة وإسرائيل بخرق بنود رئيسية قبل بدء المفاوضات**: [Link](https://www.bbc.com/arabic/live/cj60ngddn66t?page=2)
+
+
+### prix (N/A, Thu, 9 Apr 2026 06:00:00 -0700)
+
+- **Prix des carburants : l’Etat s’enrichit-il vraiment grâce aux taxes payées par les automobilistes ?**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/04/09/prix-des-carburants-l-etat-s-enrichit-il-vraiment-grace-aux-taxes-payees-par-les-automobilistes_6678557_4355770.html)
+- **Prix des carburants: de prochaines aides ciblées pour certaines professions, confirme Bregeon**: [Link](https://medias24.com/agence-presse/prix-des-carburants-de-prochaines-aides-ciblees-pour-certaines-professions-confirme-bregeon/)
+- **Carburant : le soulagement du gouvernement après le cessez-le-feu entre Washington et Téhéran**: [Link](https://www.europe1.fr/politique/carburant-le-soulagement-du-gouvernement-apres-le-cessez-le-feu-entre-washington-et-teheran-922312)
+
+
+### mission artemis ii (N/A, Thu, 9 Apr 2026 05:50:00 -0700)
+
+- **Artemis II Lunar Flyby**: [Link](https://www.nasa.gov/gallery/lunar-flyby/)
+- **Artemis II crew reflects on historic mission before splashdown on Friday**: [Link](https://www.bbc.com/news/articles/c70dr45dj1lo)
+- **We Went to Mars' Doorstep But Still Can't Land on the Moon — The Artemis II Story Nobody Is Fully Telling**: [Link](https://vocal.media/futurism/we-went-to-mars-doorstep-but-still-can-t-land-on-the-moon-the-artemis-ii-story-nobody-is-fully-telling)
+
+
+### cours petrole (N/A, Thu, 9 Apr 2026 05:40:00 -0700)
+
+- **Guerre au Moyen-Orient: les conséquences économiques mondiales**: [Link](https://medias24.com/agence-presse/guerre-au-moyen-orient-les-consequences-economiques-mondiales-15/)
+- **Cessez-le-feu au Moyen-Orient : l'Union française des industries pétrolières estime la baisse à la pompe de "5 à 10 centimes dans les prochains jours"**: [Link](https://www.franceinfo.fr/economie/automobile/essence/cessez-le-feu-au-moyen-orient-l-union-francaise-des-industries-petrolieres-estime-la-baisse-a-la-pompe-de-5-a-10-centimes-dans-les-prochains-jours_7923563.html)
+- **Wall Street dans le rouge, plombée par le spectre d’une escalade au Moyen-Orient**: [Link](https://mobile.telquel.ma/instant-t/2026/04/07/wall-street-dans-le-rouge-plombee-par-le-spectre-dune-escalade-au-moyen-orient_1982987/)
+
+
+### محمد وهبي (N/A, Thu, 9 Apr 2026 05:30:00 -0700)
+
+- **استقر على منتخب النرويج.. وهبي يبرمج آخر وديات الأسود قبل الإقلاع صوب المونديال**: [Link](https://al3omk.com/1151267.html)
+- **الأسود والنرويج في يونيو**: [Link](https://assabah.ma/914047.html)
+- **مواجهة مرتقبة بين أسود الأطلس وهندوراس استعدادا لمونديال 2026**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%88%D9%87%D9%86%D8%AF%D9%88%D8%B1%D8%A7%D8%B3-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/18371)
+
+
+### ضريبة (N/A, Thu, 9 Apr 2026 05:30:00 -0700)
+
+- **لا تستخدم الحسابات الشخصية في المعاملات التجارية.**: [Link](https://www.vietnam.vn/ar/khong-dung-tai-khoan-ca-nhan-trong-hoat-dong-kinh-doanh)
+- **مؤتمر السياسة الضريبية يستقطب مشاركة واسعة من الأسر العاملة.**: [Link](https://pls48.net/51392/%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D8%B6%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D8%B7%D8%A8-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9/)
+- **توقف عن استخدام الفواتير للشركات المنزلية التي يقل دخلها السنوي عن 500 مليون دونغ فيتنامي.**: [Link](https://www.vietnam.vn/ar/ngung-su-dung-hoa-don-voi-ho-kinh-doanh-doanh-thu-duoi-500-trieu-dong-nam)
+
+
+### jannik sinner (N/A, Thu, 9 Apr 2026 05:10:00 -0700)
+
+- **Jannik Sinner - Felix Auger-Aliassime al Montecarlo Masters 2026: quando gioca, orario e dove vedere la partita in diretta · Tennis ATP**: [Link](https://www.olympics.com/it/notizie/tennis-sinner-auger-aliassime-montecarlo-masters-2026-quando-gioca-programma-orario-dove-vedere)
+- **Tennis Tracker: segui tutti gli aggiornamenti del tennis mondiale**: [Link](https://www.diretta.it/news/tennis-monte-carlo-atp-singolare-tennis-tracker-monte-carlo-sinner-avanti-di-un-set-contro-machac-6-1-2-4-berrettini-battuto-da-fonseca/25xOIRwA/)
+- **Sinner soffre ma batte Machac al terzo set: vittoria tra tensione e dolore**: [Link](https://www.ladige.it/sport/2026/04/09/sinner-supera-machac-al-terzo-set-vittoria-tra-tensione-e-dolore-1.4337585)
+
+
+### séisme (N/A, Thu, 9 Apr 2026 05:00:00 -0700)
+
+- **La terre tremble : au moins 20 blessés et deux villages touchés dans un séisme de magnitude 4,9**: [Link](https://www.midilibre.fr/2026/04/09/la-terre-tremble-au-moins-20-blesses-et-deux-villages-touches-dans-un-seisme-de-magnitude-49-13316985.php)
+- **Un séisme de magnitude 6 détecté au large de la côte nord de l'Indonésie**: [Link](https://www.bfmtv.com/international/asie/un-seisme-de-magnitude-6-detecte-au-large-de-la-cote-nord-de-l-indonesie_AD-202604040206.html)
+- **Séisme modéré mag. 4.0 - Southern Molucca Sea, mercredi, 8 avril 2026, à 04:28 (GMT +8) - il y a 3 heures 32 minutes**: [Link](https://www.volcanodiscovery.com/fr/seismes/info-seisme/22886950/mag3quake-Apr-7-2026-Sulawesi-Indonesia.html)
+
+
 ### jordan bardella couple (N/A, Thu, 9 Apr 2026 04:00:00 -0700)
 
 - **PHOTOS EXCLUSIVES - Jordan Bardella et Maria Carolina de Bourbon des Deux-Siciles, l'idylle que personne n'attendait**: [Link](https://www.parismatch.com/People/photos-exclusives-jordan-bardella-et-maria-carolina-de-bourbon-des-deux-siciles-lidylle-que-personne-nattendait-267226)
