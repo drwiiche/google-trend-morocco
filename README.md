@@ -1,3 +1,22 @@
+### türkiye (N/A, Thu, 9 Apr 2026 14:10:00 -0700)
+
+- **Wildberries, Türkiye’de Kemer ve Side'de iki yeni otel açıyor**: [Link](https://www.turizmprojedergisi.com/haber-detay/wildberries-turkiye-de-kemer-ve-side-de-iki-yeni-otel-aciyor/6621)
+- **E-ticaret devi Türkiye'de 2 yeni otel daha açıyor**: [Link](https://www.turizmnews.com/e-ticaret-devi-turkiye-de-2-yeni-otel-daha-aciyor/39121/)
+- **Türkiye’den Avrupa’ya enerji depolama gücü: Maxxen ile yeni dönem**: [Link](https://tekreferans.com/turkiye-den-avrupa-ya-enerji-depolama-gucu-maxxen-ile-yeni-donem)
+
+
+### المجلس الوزاري (N/A, Thu, 9 Apr 2026 13:50:00 -0700)
+
+- **الملك يترأس مجلسا وزاريا ويصادق على برامج تنموية بـ210 مليارات درهم و15 اتفاقية دولية – اليوم 24**: [Link](https://alyaoum24.com/2018991.html)
+- **المجلس الوزاري يعتمد تعديلات جديدة لتعزيز حكامة التعيين في المناصب العليا**: [Link](https://ar.hibapress.com/details-716485.html)
+- **المجلس الوزاري: الداخلية تشرف على 210 مليارات درهم من برامج التنمية الترابية المندمجة خلال 8 سنوات**: [Link](https://lakome2.com/politique/414215/)
+
+
+### ligue europa conférence (N/A, Thu, 9 Apr 2026 13:00:00 -0700)
+
+
+
+
 ### jordan bardella (N/A, Thu, 9 Apr 2026 13:30:00 -0700)
 
 - **PHOTOS EXCLUSIVES - Jordan Bardella et Maria Carolina de Bourbon des Deux-Siciles, l'idylle que personne n'attendait**: [Link](https://www.parismatch.com/People/photos-exclusives-jordan-bardella-et-maria-carolina-de-bourbon-des-deux-siciles-lidylle-que-personne-nattendait-267226)
