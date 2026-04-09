@@ -1,3 +1,10 @@
+### claude code (N/A, Wed, 8 Apr 2026 14:40:00 -0700)
+
+- **Project Glasswing: Securing critical software for the AI era**: [Link](https://www.anthropic.com/glasswing)
+- **Opinion | Anthropic’s Restraint Is a Terrifying Warning Sign**: [Link](https://www.nytimes.com/2026/04/07/opinion/anthropic-ai-claude-mythos.html)
+- **How dangerous is Mythos, Anthropic’s new AI model?**: [Link](https://www.economist.com/business/2026/04/08/how-dangerous-is-mythos-anthropics-new-ai-model)
+
+
 ### live score (N/A, Wed, 8 Apr 2026 13:50:00 -0700)
 
 - **Game #11: Athletics at Yankees Game Thread**: [Link](https://sports.yahoo.com/articles/game-11-athletics-yankees-game-215913004.html)
