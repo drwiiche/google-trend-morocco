@@ -1,3 +1,24 @@
+### weather (N/A, Thu, 9 Apr 2026 23:10:00 -0700)
+
+- **The first predictions for hurricane season are in and El Niño’s fingerprints are all over it**: [Link](https://www.cnn.com/2026/04/09/weather/hurricane-season-forecast-climate)
+- **2026 Hurricane season: Colorado State University forecasts El Niño to dominate and suppress Atlantic activity**: [Link](https://www.foxweather.com/weather-news/2026-hurricane-season-colorado-state-university-forecast-el-nino)
+- **First Major Atlantic Hurricane Season Outlook Issued**: [Link](https://weather.com/storms/hurricane/video/atlantic-hurricane-season-outlook-april-csu)
+
+
+### météo (N/A, Thu, 9 Apr 2026 23:00:00 -0700)
+
+- **Météo : jusqu’à 33°C attendus dans plusieurs régions**: [Link](https://www.lapresse.tn/2026/04/10/meteo-jusqua-33c-attendus-dans-plusieurs-regions/)
+- **Prévisions météo pour jeudi soir**: [Link](https://www.tunisienumerique.com/previsions-meteo-pour-jeudi-soir-2/)
+- **Météo : Temps printanier et ensoleillé**: [Link](https://www.mosaiquefm.net/fr/national-tunisie/1512430/meteo-temps-printanier-et-ensoleille)
+
+
+### الطقس (N/A, Thu, 9 Apr 2026 22:50:00 -0700)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-68-1728773.html)
+- **يوعابد لـ2M.ma: المملكة ستعرف أجواء غير مستقرة مع أمطار وعواصف رعدية خلال بقية الأسبوع**: [Link](https://2m.ma/ar/news/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D9%84%D9%802M-ma-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%B3%D8%AA%D8%B9%D8%B1%D9%81-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%AA%D9%82%D8%B1%D8%A9-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B9%D9%88%D8%A7%D8%B5%D9%81-20260409)
+- **طقس الخميس...جو بارد مع نزول أمطار ضعيفة**: [Link](https://www.ahdath.info/article/251042/%D9%85%D8%AC%D8%AA%D9%85%D8%B9/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3%D8%AC%D9%88-%D8%A8%D8%A7%D8%B1%D8%AF-%D9%85%D8%B9-%D9%86%D8%B2%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B6%D8%B9%D9%8A%D9%81%D8%A9)
+
+
 ### انت من احببت الحلقة 9 (N/A, Thu, 9 Apr 2026 16:00:00 -0700)
 
 - **مسلسل أنت من أحببت الحلقة 9 .. وصول فرمان يشعل القصر**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A3%D9%86%D8%AA-%D9%85%D9%86-%D8%A3%D8%AD%D8%A8%D8%A8%D8%AA-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-9-%D9%88%D8%B5%D9%88%D9%84-%D9%81%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%82%D8%B5%D8%B1)
