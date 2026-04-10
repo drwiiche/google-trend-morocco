@@ -1,3 +1,17 @@
+### انت من احببت الحلقة 9 (N/A, Thu, 9 Apr 2026 16:00:00 -0700)
+
+- **مسلسل أنت من أحببت الحلقة 9 .. وصول فرمان يشعل القصر**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A3%D9%86%D8%AA-%D9%85%D9%86-%D8%A3%D8%AD%D8%A8%D8%A8%D8%AA-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-9-%D9%88%D8%B5%D9%88%D9%84-%D9%81%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%82%D8%B5%D8%B1)
+- **أنت من أحببت الحلقة 8 تشهد صراعًا بين إركان وعائلة ألدور**: [Link](https://coulissemag.com/%D8%A3%D9%86%D8%AA-%D9%85%D9%86-%D8%A3%D8%AD%D8%A8%D8%A8%D8%AA-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-8-%D8%AA%D8%B4%D9%87%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9%D9%8B%D8%A7-%D8%A8%D9%8A%D9%86-%D8%A5%D8%B1/)
+- **عاجل: مسلسل “أنت من أحببت” يسحق المنافسة ويتصدر تريند الوطن العربي… لماذا أصبح إدمانًا جماعيًا؟**: [Link](https://yemen-press.net/news178005.html)
+
+
+### divorce (N/A, Thu, 9 Apr 2026 15:30:00 -0700)
+
+- **Jennie Garth on 90210 Drama, Depression After Divorce, and Finally Learning to Love Herself**: [Link](https://people.com/jennie-garth-90210-drama-depression-divorce-learning-love-herself-exclusive-11944240)
+- **Jennie Garth Details Self-Medicating, Having Stomach Pumped After Peter Facinelli Breakup**: [Link](https://www.eonline.com/news/1430674/jennie-garth-stomach-pumped-amid-peter-facinelli-divorce)
+- **Jennie Garth had her stomach pumped after drinking and taking pills amid her divorce: 'I noticed my light really dimming'**: [Link](https://ew.com/jennie-garth-had-her-stomach-pumped-after-drinking-and-taking-pills-amid-her-divorce-11945354)
+
+
 ### nasa artemis ii (N/A, Thu, 9 Apr 2026 15:50:00 -0700)
 
 - **Artemis II Lunar Flyby**: [Link](https://www.nasa.gov/gallery/lunar-flyby/)
