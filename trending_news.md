@@ -1,3 +1,8 @@
+### brahim díaz (N/A, Fri, 10 Apr 2026 13:40:00 -0700)
+
+- **Brahim: 100 league matches with Real Madrid**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/brahim-100-partidos-de-liga-con-el-real-madrid-10-04-2026)
+
+
 ### neige marrakech (N/A, Fri, 10 Apr 2026 15:00:00 -0700)
 
 - **Alerte météo : orages violents, grêle et chutes de neige attendus dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/orages-grele-et-chutes-de-neige-attendus-dans-plusieurs-regions-du-maroc/339700)
