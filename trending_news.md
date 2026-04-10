@@ -1,3 +1,10 @@
+### إنزكان (N/A, Fri, 10 Apr 2026 14:40:00 -0700)
+
+- **مقاييس الأمطار بالمغرب في 24 ساعة**: [Link](https://www.hespress.com/%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-24-%D8%B3%D8%A7%D8%B9%D8%A9-29-1728887.html)
+- **مقاييس الأمطار المسجلة بالمملكة خلال الـ 24 ساعة الماضية – ChoufTV :: TV شوف**: [Link](https://chouftv.ma/press/780107.html)
+- **أمطار الخير تنعش سوس والجنوب.. "إنزكان" تتصدر مقاييس التساقطات خلال 24 ساعة الأخيرة**: [Link](https://www.akhbarona.com/national/424143.html)
+
+
 ### kylian mbappé (N/A, Fri, 10 Apr 2026 14:20:00 -0700)
 
 - **Kylian Mbappé, problème annoncé**: [Link](https://www.football.fr/real-madrid/kylian-mbappe-probleme-annonce-808842.html)
