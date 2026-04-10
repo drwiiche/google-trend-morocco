@@ -1,3 +1,17 @@
+### jordan bardella maria carolina (N/A, Fri, 10 Apr 2026 08:50:00 -0700)
+
+- **PHOTOS EXCLUSIVES - Jordan Bardella et Maria Carolina de Bourbon des Deux-Siciles, l'idylle que personne n'attendait**: [Link](https://www.parismatch.com/People/photos-exclusives-jordan-bardella-et-maria-carolina-de-bourbon-des-deux-siciles-lidylle-que-personne-nattendait-267226)
+- **« C’est un atout » : Jordan Bardella en couple avec Maria Carolina de Bourbon des Deux-Siciles, trop « bling-bling » pour le RN**: [Link](https://www.leparisien.fr/politique/cest-un-atout-a-mort-jordan-bardella-en-couple-avec-une-princesse-italienne-trop-bling-bling-pour-le-rn-08-04-2026-ZXFUZGYHTNAGJLER2HRHQL5GZY.php)
+- **Pourquoi Bardella officialise sa relation avec la princesse de Bourbon ?**: [Link](https://www.20minutes.fr/politique/4217500-20260409-presidentielle-2027-pourquoi-jordan-bardella-officialise-relation-princesse-bourbon-deux-siciles)
+
+
+### كوريا الشمالية (N/A, Fri, 10 Apr 2026 08:30:00 -0700)
+
+- **الصين تشيد بـ"نجاحات" كوريا الشمالية رغم جهود أمريكا "لخنقها"**: [Link](https://www.aljazeera.net/news/2026/4/10/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D9%86%D9%8A-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D9%80%D9%86%D8%AC%D8%A7%D8%AD%D8%A7%D8%AA)
+- **وزير الخارجية الصيني يدعو إلى تعزيز العلاقات مع كوريا الشمالية خلال لقائه كيم**: [Link](https://www.raialyoum.com/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D9%86%D9%8A-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84/)
+- **وزير الخارجية الصيني يزور مقبرة شهداء متطوعي الشعب الصيني في كوريا الديمقراطية**: [Link](https://www.shfanews.net/post/274913)
+
+
 ### aïd al-adha (N/A, Fri, 10 Apr 2026 08:00:00 -0700)
 
 - **Voici la date de Aïd al-Adha 1447-2026 selon le calcul astronomique**: [Link](https://private-admin.medias24.com/2026/04/10/voici-la-date-de-aid-al-adha-1447-2026-selon-le-calcul-astronomique-1656981/)
