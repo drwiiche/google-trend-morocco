@@ -1,3 +1,10 @@
+### العملة (N/A, Fri, 10 Apr 2026 11:50:00 -0700)
+
+- **العملات الرقمية ترتفع مع تفاؤل بوقف إطلاق النار**: [Link](https://www.aljazeera.net/ebusiness/2026/4/8/cryptocurrencies-rise-optimism-ceasefire)
+- **هبوط جماعي في بتكوين والأصول الخطرة مع اقتراب ساعة الصفر لمهلة ترمب**: [Link](https://asharqbusiness.com/financial-markets/127242/%D8%B3%D8%B9%D8%B1-%D8%A8%D8%AA%D9%83%D9%88%D9%8A%D9%86-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-7-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-2026/)
+- **هل يلوح انهيار في سعر البيتكوين؟ الأسواق ترجّح احتمالًا بنسبة 67% للهبوط**: [Link](https://www.fxnewstoday.ae/crypto/news/%D9%87%D9%84-%D9%8A%D9%84%D9%88%D8%AD-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%81%D9%8A-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%8A%D9%86%D8%9F-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%AA%D8%B1%D8%AC%D9%91%D8%AD-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84%D9%8B%D8%A7-%D8%A8%D9%86%D8%B3%D8%A8%D8%A9-67-%D9%84%D9%84%D9%87%D8%A8%D9%88%D8%B7-278533)
+
+
 ### equidia (N/A, Fri, 10 Apr 2026 11:40:00 -0700)
 
 - **PRIX CASPER VELDINK PAYS BAS - WOLVEGA - 10/04/2026 : partants, pronostics et résultats en vidéos - Course 2**: [Link](https://www.equidia.fr/courses/2026-04-10/R5/C2)
