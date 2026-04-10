@@ -1,3 +1,17 @@
+### roma vs pisa (N/A, Fri, 10 Apr 2026 12:50:00 -0700)
+
+- **Preview: Roma vs Pisa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/roma/preview/roma-vs-pisa-prediction-team-news-lineups_595253.html)
+- **AS Roma vs Pisa Prediction, 4/10/2026 Soccer Pick, Tips and Odds**: [Link](https://www.docsports.com/free-picks/soccer/2026/as-roma-vs-pisa-prediction-4-10-2026-soccer-pick-tips-and-odds.html)
+- **Ghilardi before Pisa: "Winning would raise our morale."**: [Link](https://romapress.net/ghilardi-before-pisa-winning-would-raise-our-morale/)
+
+
+### نادي الجيش الملكي (N/A, Fri, 10 Apr 2026 12:50:00 -0700)
+
+- **رسميا.. إيقاف نجم الجيش الملكي 3 أشهر بسبب المنشطات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-3-%D8%A7%D9%94%D8%B4%D9%87%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%B4%D8%B7%D8%A7%D8%AA/bltbff94ad2ad5b6989)
+- **لجنة الانضباط بالكاف تُوقف الدراك**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%B4%D8%B7%D8%A7%D8%AA-%D8%AA%D9%8F%D8%B7%D9%8A%D8%AD-%D8%A8%D8%B3%D9%8A%D9%81-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%83/)
+- **توقيف الدراك يبعثر أوراق مدرب الجيش**: [Link](https://www.hesport.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%83-%D9%8A%D8%A8%D8%B9%D8%AB%D8%B1-%D8%A3%D9%88%D8%B1%D8%A7%D9%82-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-434405.html)
+
+
 ### العملة (N/A, Fri, 10 Apr 2026 11:50:00 -0700)
 
 - **العملات الرقمية ترتفع مع تفاؤل بوقف إطلاق النار**: [Link](https://www.aljazeera.net/ebusiness/2026/4/8/cryptocurrencies-rise-optimism-ceasefire)
