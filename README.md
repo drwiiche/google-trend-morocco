@@ -1,3 +1,73 @@
+### equidia (N/A, Fri, 10 Apr 2026 11:40:00 -0700)
+
+- **PRIX CASPER VELDINK PAYS BAS - WOLVEGA - 10/04/2026 : partants, pronostics et résultats en vidéos - Course 2**: [Link](https://www.equidia.fr/courses/2026-04-10/R5/C2)
+- **PRIX PENTHESILEE - TROPHEE STUDIO HARCOURT - SAINT-CLOUD - 10/04/2026 : partants, pronostics et résultats en vidéos - Course 8**: [Link](https://www.equidia.fr/courses/2026-04-10/R4/C8)
+- **Le live du Quinté+, Réunion de Paris-Vincennes (trot) sur Equidia : résumé et diffusions**: [Link](https://programmetv.ouest-france.fr/sport/hippisme/le-live-du-quinteplus-m150576161/reunion-de-paris-vincennes-trot-c419915018/)
+
+
+### west ham – wolves (N/A, Fri, 10 Apr 2026 11:30:00 -0700)
+
+- **West Ham vs. Wolves confirmed lineups: Huge Summerville, Mavropanos news, Angel Gomes decision made for relegation battle**: [Link](https://www.sportsmole.co.uk/football/west-ham-united/relegation-battle/news/west-ham-vs-wolves-confirmed-xis-huge-summerville-mavropanos-news-gomes-decision-made-for-relegation-battle_595482.html)
+- **'Quietly confident' but does defeat send Hammers down?**: [Link](https://www.aol.com/articles/quietly-confident-does-defeat-send-102657679.html)
+- **West Ham United vs. Wolverhampton Wanderers FREE Live Stream (4/10/26) | Time, TV, channel for Premier League**: [Link](https://www.nj.com/tv/2026/04/west-ham-united-vs-wolverhampton-wanderers-free-live-stream-41026-time-tv-channel-for-premier-league-match.html)
+
+
+### zone turf (N/A, Fri, 10 Apr 2026 11:30:00 -0700)
+
+- **Quinté du vendredi 10 avril 2026 en nocturne à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-vendredi-10-avril-2026-en-nocturne-a-vincennes-les-pronostics-7900621725)
+- **Les pronos hippiques du vendredi 10 avril 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-10-avril-2026_AN-202604090631.html)
+- **Equidia met le feu au Quinté+ du vendredi 10 avril à Vincennes**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-vendredi-10-avril-a-vincennes)
+
+
+### turf fr (N/A, Fri, 10 Apr 2026 11:30:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 11 King Lane**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-11-king-lane-129473.html)
+- **Tiercé Quarté Quinté d'hier > arrivée, résultats et rapports**: [Link](https://www.paris-turf.com/course/compiegne-prix-de-la-rochelle-idc-id-b7c5acbe6d5069301e0b4a46b8c114fd)
+- **Résultats PMU : Arrivée du Quinté du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-quinte-du-jour-129493.html)
+
+
+### r1c8 (N/A, Fri, 10 Apr 2026 11:30:00 -0700)
+
+- **Les 4 infos incontournables de la R1 du mercredi 8 avril à Lyon-Parilly**: [Link](https://www.equidia.fr/articles/actualite/les-4-infos-incontournables-de-la-r1-du-mercredi-8-avril-a-lyon-parilly)
+- **Pronostic Quinté+ du Vendredi 10 Avril 2025 - Prix Ariel (Paris-Vincennes R1C8) : le turf décrypté comme un pronostic foot**: [Link](https://www.ruedesjoueurs.com/turf/pronostic-turf/pronostics-quinte/73112-pronostic-quinte-du-vendredi-10-avril-2025-prix-ariel-paris-vincennes-r1c8-le-turf-decrypte-comme-un-pronostic-foot.html)
+- **Résultats PMU : Arrivée du Quinté du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-quinte-du-jour-129475.html)
+
+
+### marseille – metz (N/A, Fri, 10 Apr 2026 11:20:00 -0700)
+
+- **Nouveau président, intervention de Frank McCourt, match capital contre Metz : vers une nouvelle journée de folie comme seul l'OM a la recette**: [Link](https://www.lequipe.fr/Football/Article/Nouveau-president-intervention-de-frank-mccourt-match-capital-contre-metz-vers-une-nouvelle-journee-de-folie-comme-seul-l-om-a-la-recette/1666597)
+- **OM : le message fort de Beye aux supporters**: [Link](https://www.footmercato.net/a6907060364737495117-om-le-message-fort-de-beye-aux-supporters)
+- **OM-Metz, compos : 2 énormes surprises dans le 11 marseillais !**: [Link](https://www.football365.fr/om-metz-compos-2-enormes-surprises-dans-le-11-marseillais-10289004.html)
+
+
+### منحة دراسية (N/A, Fri, 10 Apr 2026 11:20:00 -0700)
+
+- **وزارة التعليم الإسبانية: فتح باب التقديم لطلب المنح الدراسية لموسم 2026-2027**: [Link](https://espanaenarabe.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D9%82%D8%AF/)
+- **سحب مالي الاعتراف بالجمهورية الوهمية يعيد ترتيب الأوليات في القارة الإفريقية**: [Link](https://www.hespress.com/%D8%B3%D8%AD%D8%A8-%D9%85%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81-%D8%A8%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D9%87%D9%85%D9%8A%D8%A9-1729107.html)
+- **الصحراء المغربية.. جمهورية مالي تعلن سحب اعترافها بـ “الجمهورية الصحراوية” المزعومة**: [Link](https://www.mapexpress.ma/ar/actualite/%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D9%85%D8%A7%D9%84%D9%8A-%D8%AA%D8%B9%D9%84%D9%86-%D8%B3%D8%AD/%D8%A7%D9%84%D8%A2%D8%B1%D8%A7%D8%A1-%D9%88-%D8%AD%D9%88%D8%A7%D8%B1%D8%A7%D8%AA/)
+
+
+### famille (N/A, Fri, 10 Apr 2026 11:20:00 -0700)
+
+- **Proposition de loi portant création d’une carte famille ouverte dès le deuxième enfant**: [Link](https://www.unaf.fr/proposition-loi-portant-creation-dune-carte-famille-ouverte-deuxieme-enfant/)
+- **Du nouveau pour la carte «familles nombreuses» : qui est concerné ?**: [Link](https://fr.finance.yahoo.com/actualites/nouveau-carte-familles-nombreuses-concern%C3%A9-105900853.html)
+- **Transports : une carte famille nombreuse dès le deuxième enfant en préparation**: [Link](https://www.laprovence.com/article/societe/7242339322528914/une-carte-famille-nombreuse-des-le-deuxieme-enfant)
+
+
+### real madrid – girona (N/A, Fri, 10 Apr 2026 11:10:00 -0700)
+
+- **Alineación posible del Real Madrid contra el Girona en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/alineacion-posible-del-real-madrid-contra-el-girona-en-laliga-ea-sports-f202604-n/)
+- **Arbeloa convoca a Fortea y Yáñez y recupera a Mendy para el duelo ante el Girona**: [Link](https://www.marca.com/futbol/real-madrid/2026/04/10/arbeloa-convoca-fortea-yanez-recupera-mendy-duelo-girona.html)
+- **Revolución en el once del Real Madrid; Lemar y Echeverri, titulares en el Girona**: [Link](https://www.infobae.com/espana/agencias/2026/04/10/revolucion-en-el-once-del-real-madrid-lemar-y-echeverri-titulares-en-el-girona/)
+
+
+### الريال ضد غيرونا (N/A, Fri, 10 Apr 2026 11:10:00 -0700)
+
+- **أربيلوا يدفع بالقوة الضاربة أمام جيرونا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A8%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B6%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7/blt1ee221fe96d6a1e7)
+- **الليغا الإسبانية...موعد مباراة الريال وجيرونا والقناة الناقلة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/18449)
+- **ميتشيل يعلن غيابات جيرونا المؤثرة قبل مواجهة ريال مدريد في سانتياغو برنابيو**: [Link](https://m.elbotola.com/article/2026-04-09-13-00-196.html)
+
+
 ### منتخب السنغال لكرة القدم (N/A, Fri, 10 Apr 2026 10:20:00 -0700)
 
 - **لأول مرة.. الفيفا يلمح لموقفه من أزمة نهائي أمم إفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9--%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%84%D9%85%D8%AD-%D9%84%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt11fd37de6906492b)
