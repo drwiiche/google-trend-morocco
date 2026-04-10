@@ -1,3 +1,17 @@
+### satoshi nakamoto (N/A, Fri, 10 Apr 2026 06:20:00 -0700)
+
+- **Who Is Satoshi Nakamoto? My Quest to Unmask Bitcoin’s Creator**: [Link](https://www.nytimes.com/2026/04/08/business/bitcoin-satoshi-nakamoto-identity-adam-back.html)
+- **NYT Spent 18 Months on Satoshi. Crypto Twitter Spent 10 Seconds Dismissing It**: [Link](https://www.mexc.com/news/1015300)
+- **Michael Saylor questions The New York Times' investigation into Satoshi Nakamoto's identity**: [Link](https://www.bitget.com/news/detail/12560605350467)
+
+
+### jannik sinner (N/A, Fri, 10 Apr 2026 06:10:00 -0700)
+
+- **Sinner-Auger Aliassime al Masters 1000 di Montecarlo in diretta: 6-3; 1-2, Félix tiene ai 30**: [Link](https://www.corriere.it/sport/tennis/diretta-live/26_aprile_10/sinner-auger-aliassime-masters-1000-montecarlo-diretta.shtml)
+- **Tennis LIVE: iniziano i quarti di finale a Monte Carlo, Sinner affronta Auger-Aliassime (6-3 2-3)**: [Link](https://www.diretta.it/news/tennis-monte-carlo-atp-singolare-tennis-live-iniziano-i-quarti-di-finale-a-monte-carlo-sinner-affronta-auger-aliassime-6-3-2-3/jm0ZK4fo/)
+- **Sinner ha un tifoso speciale a Monte-Carlo: il pilota della Mercedes, George Russell**: [Link](https://sport.sky.it/tennis/video/2026/04/10/sinner-russell-atp-monte-carlo-video-1089129)
+
+
 ### الطقس اليوم (N/A, Thu, 9 Apr 2026 23:30:00 -0700)
 
 - **الطقس الحار: كيف نأكل الثوم لنحافظ على صحتنا دون القلق بشأن الحرارة الداخلية؟**: [Link](https://www.vietnam.vn/ar/nang-nong-an-toi-sao-cho-khoe-ma-khong-lo-nong-trong)
