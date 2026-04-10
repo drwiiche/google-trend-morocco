@@ -1,3 +1,17 @@
+### مراكش (N/A, Fri, 10 Apr 2026 14:20:00 -0700)
+
+- **تساقط الثلوج بمدينة مراكش إثر موجة برد مفاجئة**: [Link](https://www.marrakechalaan.com/article-673988)
+- **هسبريس / تساقط كثيف للبَرَد يكسو مراكش بالبياض (المغرب) (مراكش) (viral) (WH)**: [Link](https://nabdapp.com/t/170884098)
+- **تساقطات البرد في مراكش تكشف اختلالات البنية التحتية وتحول ساحة جامع الفنا إلى برك مائية في عهد مجلس المنصوري**: [Link](https://aabbir.com/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%81%D9%8A-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7/)
+
+
+### météo pour demain (N/A, Fri, 10 Apr 2026 13:20:00 -0700)
+
+- **Rhône. 29 °C à Lyon jeudi : une semaine quasi estivale**: [Link](https://www.leprogres.fr/environnement/2026/04/06/29-c-a-lyon-jeudi-une-semaine-quasi-estivale)
+- **Un dimanche pascal aux allures estivales, jusqu’à 25 degrés attendus à Lyon**: [Link](https://www.lyoncapitale.fr/actualite/un-dimanche-pascal-aux-allures-estivales-jusqua-25-degres-attendus-a-lyon)
+- **Météo Lyon : prévisions fiables, climat et conseils pour bien s’organiser**: [Link](https://lyonvieuxpapiers.com/meteo-lyon-previsions-climat-et-conseils-pour-bien-anticiper-la-journee/)
+
+
 ### brahim díaz (N/A, Fri, 10 Apr 2026 13:40:00 -0700)
 
 - **Brahim: 100 league matches with Real Madrid**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/brahim-100-partidos-de-liga-con-el-real-madrid-10-04-2026)
