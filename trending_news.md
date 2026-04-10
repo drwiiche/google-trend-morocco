@@ -1,3 +1,10 @@
+### nasa artemis ii (N/A, Thu, 9 Apr 2026 15:50:00 -0700)
+
+- **Artemis II Lunar Flyby**: [Link](https://www.nasa.gov/gallery/lunar-flyby/)
+- **Artemis II crew reflects on historic mission before splashdown on Friday**: [Link](https://www.bbc.com/news/articles/c70dr45dj1lo)
+- **NASA releases stunning new ‘Earthset’ image taken during historic lunar flyby**: [Link](https://www.cnn.com/2026/04/07/science/artemis-2-lunar-flyby-images-earthset)
+
+
 ### jacques paris cécile kohler (N/A, Thu, 9 Apr 2026 14:50:00 -0700)
 
 
