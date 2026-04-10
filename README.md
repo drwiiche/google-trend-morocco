@@ -1,3 +1,10 @@
+### neige marrakech (N/A, Fri, 10 Apr 2026 15:00:00 -0700)
+
+- **Alerte météo : orages violents, grêle et chutes de neige attendus dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/orages-grele-et-chutes-de-neige-attendus-dans-plusieurs-regions-du-maroc/339700)
+- **Alerte météo. Pluies, neige et fortes rafales de vent dans plusieurs provinces**: [Link](https://medias24.com/2026/04/09/alerte-meteo-pluies-neige-et-fortes-rafales-de-vent-dans-plusieurs-provinces-1656845/)
+- **Les températures attendues ce vendredi 10 avril 2026**: [Link](https://fr.hespress.com/468838-les-temperatures-attendues-ce-vendredi-10-avril-2026.html)
+
+
 ### إنزكان (N/A, Fri, 10 Apr 2026 14:40:00 -0700)
 
 - **مقاييس الأمطار بالمغرب في 24 ساعة**: [Link](https://www.hespress.com/%D9%85%D9%82%D8%A7%D9%8A%D9%8A%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-24-%D8%B3%D8%A7%D8%B9%D8%A9-29-1728887.html)
