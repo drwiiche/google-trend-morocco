@@ -1,3 +1,31 @@
+### عطلة (N/A, Fri, 10 Apr 2026 09:10:00 -0700)
+
+- **وزارة الداخلية: لا يوجد اقتراح لتبديل العطلات لإنشاء فترة عطلة مدتها 9 أيام ليوم ذكرى الملوك الهانغ و30 أبريل/1 مايو.**: [Link](https://www.vietnam.vn/ar/bo-noi-vu-khong-de-xuat-hoan-doi-de-nghi-le-9-ngay-dip-gio-to-hung-vuong-va-30-4-1-5)
+- **الاتحاد العام للعمال في فيتنام يجري استطلاعا لآراء العمال حول تعديل جداول العطلات**: [Link](https://harammissr.com/14685/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D9%84%D9%84%D8%B9%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D9%81%D9%8A%D8%AA%D9%86%D8%A7%D9%85-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A7%D8%B3/)
+- **نقترح استبدال أيام إجازتنا بأربعة أيام إجازة بمناسبة يوم الثقافة الفيتنامية في 24 نوفمبر 2026.**: [Link](https://www.vietnam.vn/ar/de-nghi-hoan-doi-de-nghi-4-ngay-dip-ngay-van-hoa-viet-nam-24-11-2026)
+
+
+### mali (N/A, Fri, 10 Apr 2026 09:10:00 -0700)
+
+- **Mali backs Morocco's autonomy plan for Western Sahara**: [Link](https://www.reuters.com/world/africa/mali-backs-moroccos-autonomy-plan-western-sahara-mali-foreign-minister-says-2026-04-10/)
+- **Historic: Mali withdraws recognition of SADR and backs Morocco autonomy plan**: [Link](https://en.hespress.com/135500-historic-mali-withdraws-recognition-of-sadr-and-backs-morocco-autonomy-plan.html)
+- **Morocco and Kenya Sign 11 Strategic Agreements to Boost Bilateral Cooperation**: [Link](https://www.moroccoworldnews.com/2026/04/286424/morocco-and-kenya-sign-11-strategic-agreements-to-boost-bilateral-cooperation/)
+
+
+### جياني إنفانتينو (N/A, Fri, 10 Apr 2026 07:00:00 -0700)
+
+- **مسؤول جزائري: لهذا السبب زار إنفانتينو تبون.. ونبهته للمؤامرات داخل الكاف**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B3%D9%88%D9%94%D9%88%D9%84-%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1%D9%8A-%D9%84%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D8%B2%D8%A7%D8%B1-%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%AA%D8%A8%D9%88%D9%86--%D9%88%D9%86%D8%A8%D9%87%D8%AA%D9%87-%D9%84%D9%84%D9%85%D9%88%D9%94%D8%A7%D9%85%D8%B1%D8%A7%D8%AA-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D9%81/blt17201340bdb70ad3)
+- **بحضور فينغر… ماذا دار في اجتماع إنفانتينو بالرئيس الجزائري تبون؟**: [Link](https://www.aljazeera.net/sport/2026/4/9/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%A8%D9%88%D9%86-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A%D9%86%D8%BA%D8%B1)
+- **رئيس الجمهورية يستقبل رئيس الفيفا في قصر المرادية**: [Link](https://elayem.news/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%81%D9%8A-%D9%82/)
+
+
+### caf décision finale can maroc sénégal (N/A, Fri, 10 Apr 2026 06:50:00 -0700)
+
+- **Motsepe adopte une posture qui fait l'affaire du Sénégal**: [Link](https://private-admin.medias24.com/2026/04/10/w-motsepe-adopte-une-posture-qui-fait-laffaire-du-senegal-1657580/)
+- **Maroc : Patrice Motsepe esquive une question sur l’ingérance de la CAF**: [Link](https://www.footmercato.net/a5147643633746573072-maroc-patrice-motsepe-esquive-une-question-sur-lingerance-de-la-caf)
+- **CAN 2025 : Achraf Hakimi défend la légitimité du sacre des Lions de l’Atlas**: [Link](https://maroc-diplomatique.net/can-2025-achraf-hakimi-defend-la-legitimite-du-sacre-des-lions-de-latlas/)
+
+
 ### jordan bardella maria carolina (N/A, Fri, 10 Apr 2026 08:50:00 -0700)
 
 - **PHOTOS EXCLUSIVES - Jordan Bardella et Maria Carolina de Bourbon des Deux-Siciles, l'idylle que personne n'attendait**: [Link](https://www.parismatch.com/People/photos-exclusives-jordan-bardella-et-maria-carolina-de-bourbon-des-deux-siciles-lidylle-que-personne-nattendait-267226)
