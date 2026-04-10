@@ -1,3 +1,29 @@
+### kylian mbappé (N/A, Fri, 10 Apr 2026 14:20:00 -0700)
+
+- **Kylian Mbappé, problème annoncé**: [Link](https://www.football.fr/real-madrid/kylian-mbappe-probleme-annonce-808842.html)
+- **Real Madrid: Alvaro Arbeloa sets the record straight on Kylian Mbappé**: [Link](https://foot-africa.com/en/news/real-madrid-alvaro-arbeloa-sets-the-record-straight-on-kylian-mbappe-1159628/)
+- **Mbappe could miss the rest of the season with serious knee ligament injury**: [Link](https://112.ua/en/travma-mbappe-serjoznisa-zirka-reala-moze-propustiti-restu-sezonu-153070)
+
+
+### madrid match (N/A, Fri, 10 Apr 2026 14:00:00 -0700)
+
+- **Simeone Achieves First Camp Nou Win as Coach After 15 Years; Atletico Madrid Ends 21-Year Drought**: [Link](https://m.elbotola.com/en/article/2026-04-08-22-29-960.html)
+
+
+### مسعود بزشكيان (N/A, Fri, 10 Apr 2026 13:50:00 -0700)
+
+- **نجل الرئيس الإيراني يكتب عن ليلة الخوف من القنبلة النووية والهدنة**: [Link](https://www.aljazeera.net/news/2026/4/10/%D9%85%D9%86%D8%B4%D9%88%D8%B1-%D9%86%D8%AC%D9%84-%D8%A8%D8%B2%D8%B4%D9%83%D9%8A%D8%A7%D9%86-%D8%B9%D9%86-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AE%D9%88%D9%81-%D9%85%D9%86)
+- **ما هي البنود العشرة التي قدمتها إيران، وهل ستوافق عليها الولايات المتحدة؟**: [Link](https://www.bbc.com/arabic/articles/ce9m13mr3nyo)
+- **24 ساعة على اتفاق الهدنة.. إليكم أهم ما حدث بأول أيام وقف حرب إيران**: [Link](https://www.aljazeera.net/news/2026/4/9/%D9%8A%D9%88%D9%85-%D9%85%D9%86-%D9%88%D9%82%D9%81-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%85%D8%A7-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA)
+
+
+### real (N/A, Fri, 10 Apr 2026 13:00:00 -0700)
+
+- **Real Madrid: Antonio Rüdiger gegen Girona nicht im Kader – das steckt dahinter**: [Link](https://sportbild.bild.de/fussball/internationaler-fussball/real-madrid-antonio-ruediger-gegen-girona-nicht-im-kader-das-steckt-dahinter-69d9472b246b3860d5022849)
+- **Gazzaniga ist chancenlos: Fede Valverde erzielt einen atemberaubenden Treffer und bringt Real Madrid gegen Girona in Führung**: [Link](https://tribuna.com/de/blogs/gazzaniga-ist-chancenlos-fede-valverde-erzielt-einen-atember/)
+- **Internationaler Fussball - Real patzt im Meisterrennen – Itten trifft im Kellerduell**: [Link](https://www.srf.ch/sport/fussball/internationale-ligen/internationaler-fussball-real-patzt-im-meisterrennen-itten-trifft-im-kellerduell)
+
+
 ### برد (N/A, Fri, 10 Apr 2026 13:40:00 -0700)
 
 - **تقلبات جوية الجمعة والسبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%88%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1728863.html)
