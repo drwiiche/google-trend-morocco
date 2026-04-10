@@ -1,3 +1,38 @@
+### برد (N/A, Fri, 10 Apr 2026 13:40:00 -0700)
+
+- **تقلبات جوية الجمعة والسبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%88%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1728863.html)
+- **طقس الاثنين.. تساقطات مطرية مع رياح قوية متوقعة**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9/)
+- **زخات رعدية مع تساقط البرد وتساقطات ثلجية من الجمعة إلى الأحد بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-20260410)
+
+
+### match real madrid (N/A, Fri, 10 Apr 2026 13:30:00 -0700)
+
+- **Real Madrid - Girona : sur quelle chaîne et à quelle heure regarder le match de Liga en direct ?**: [Link](https://rmcsport.bfmtv.com/football/liga/real-madrid-girona-sur-quelle-chaine-et-a-quelle-heure-regarder-le-match-de-liga-en-direct_AN-202604100004.html)
+- **Real Madrid - Girona : les compositions officielles**: [Link](https://www.footmercato.net/a3400329520079122901-real-madrid-girona-les-compositions-officielles)
+- **Arbeloa confirme l'utilisation du match contre Gérone pour préparer le Real Madrid au choc face au Bayern Munich**: [Link](https://m.elbotola.com/fr/article/2026-04-10-09-30-37.html)
+
+
+### الطقس غدًا (N/A, Fri, 10 Apr 2026 13:00:00 -0700)
+
+- **حالة الطقس اليوم: أمطار في عدة مناطق مع ارتفاع درجات الحرارة**: [Link](https://www.a5bar24h.com/23661/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%81%D9%8A-%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%85%D8%B9/)
+- **استمرار الارتفاع التدريجي في درجات الحرارة على أغلب أنحاء مصر**: [Link](https://tourismdailynews.com/2026/04/10/%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84/)
+- **استمرار ارتفاع درجات الحرارة على أغلب الأنحاء وتحذير من طقس الليل**: [Link](https://www.elzmannews.com/530021)
+
+
+### لا ليغا (N/A, Fri, 10 Apr 2026 13:00:00 -0700)
+
+- **هل تصبح الملاعب المغربية محطة جديدة في أجندة الليغا الإسبانية؟**: [Link](https://www.aljazeera.net/sport/2026/4/9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85)
+- **تيباس: المغرب مرشح لاحتضان بعض مباريات الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%8A%D8%A8%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D8%A7%D8%AD%D8%AA%D8%B6%D8%A7%D9%86-%D8%A8%D8%B9%D8%B6-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/blt9a5cf94753931bde)
+- **الدار البيضاء مرشحة لاحتضان مباريات ريال مدريد و«البارصا»**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D9%85%D8%B1%D8%B4%D8%AD%D8%A9-%D9%84%D8%A7%D8%AD%D8%AA%D8%B6%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B1/)
+
+
+### وزير (N/A, Fri, 10 Apr 2026 13:00:00 -0700)
+
+- **باكستان تؤكد مشاركة قيادتي الولايات المتحدة وإيران في مفاوضات إسلام آباد السبت، وانطلاق قطار التفاوض المباشر بين لبنان وإسرائيل**: [Link](https://www.bbc.com/arabic/live/clye1xzylk7t)
+- **وزير الدفاع الباكستاني: إسرائيل شر ولعنة على البشرية**: [Link](https://www.aljazeera.net/news/2026/4/9/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%B4%D8%B1-2)
+- **باكستان وفرنسا تبحثان تطورات وقف إطلاق النار بين طهران وواشنطن**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%AA%D8%A8%D8%AD%D8%AB%D8%A7%D9%86-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D9%88%D9%82%D9%81-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%A8%D9%8A%D9%86-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%88%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86/3900765)
+
+
 ### roma vs pisa (N/A, Fri, 10 Apr 2026 12:50:00 -0700)
 
 - **Preview: Roma vs Pisa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/roma/preview/roma-vs-pisa-prediction-team-news-lineups_595253.html)
