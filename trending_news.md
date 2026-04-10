@@ -1,3 +1,17 @@
+### حمزة الموساوي (N/A, Thu, 9 Apr 2026 20:10:00 -0700)
+
+- **الهلال السوداني عن قضية نهضة بركان: مصداقية الكاف انهارت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D8%B9%D9%86-%D9%82%D8%B6%D9%8A%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%85%D8%B5%D8%AF%D8%A7%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A7%D9%86%D9%87%D8%A7%D8%B1%D8%AA/blte853246fa496caf6)
+- **الهلال السوداني يطلب تأجيل ديربي المغرب ويشعل أزمة "المنشطات" في أبطال إفريقيا**: [Link](https://www.aljazeera.net/sport/2026/4/9/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **فحص المنشطات يوقف حمزة الموساوي**: [Link](https://www.hespress.com/%D9%81%D8%AD%D8%B5-%D8%A7%D9%84%D9%85%D9%86%D8%B4%D8%B7%D8%A7%D8%AA-%D9%8A%D9%88%D9%82%D9%81-%D8%AD%D9%85%D8%B2%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D8%A7%D9%88%D9%8A-1728634.html)
+
+
+### maroc senegal u15 (N/A, Thu, 9 Apr 2026 13:50:00 -0700)
+
+- **Championnat Scolaire : Le Ghana en tête d’affiche des demi-finales chez les filles, nouveau champion assuré chez les garçons**: [Link](https://www.cafonline.com/fr/championnat-dafrique-scolaire-de-football/news/championnat-scolaire-le-ghana-en-tete-d-affiche-des-demi-finales-chez-les-filles-nouveau-champion-assure-chez-les-garcons/)
+- **U15 : Le Sénégal humilie le Maroc et file encore en finale**: [Link](https://www.senenews.com/actualites/u15-le-senegal-humilie-le-maroc-et-file-encore-en-finale_582263.html)
+- **Championnat Africain de Football Scolaire : la Tanzanie décroche la 5e place**: [Link](https://foot-africa.com/actualites/championnat-africain-de-football-scolaire-la-tanzanie-decroche-la-5e-place-1159100/)
+
+
 ### weather (N/A, Thu, 9 Apr 2026 23:10:00 -0700)
 
 - **The first predictions for hurricane season are in and El Niño’s fingerprints are all over it**: [Link](https://www.cnn.com/2026/04/09/weather/hurricane-season-forecast-climate)
