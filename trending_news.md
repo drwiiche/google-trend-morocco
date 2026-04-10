@@ -1,3 +1,17 @@
+### aïd al-adha (N/A, Fri, 10 Apr 2026 08:00:00 -0700)
+
+- **Voici la date de Aïd al-Adha 1447-2026 selon le calcul astronomique**: [Link](https://private-admin.medias24.com/2026/04/10/voici-la-date-de-aid-al-adha-1447-2026-selon-le-calcul-astronomique-1656981/)
+- **Date du Aïd al-Adha 2026 : les prévisions pointent vers le 27 mai**: [Link](https://www.infomaroc.net/date-du-aid-al-adha-2026-les-previsions-pointent-vers-le-27-mai/)
+- **Maroc : La hausse des prix de la viande inquiète à l’approche de l’Aïd al-Adha**: [Link](https://maroc-diplomatique.net/maroc-la-hausse-des-prix-de-la-viande-inquiete-a-lapproche-de-laid-al-adha/)
+
+
+### carlos alcaraz (N/A, Fri, 10 Apr 2026 07:50:00 -0700)
+
+- **Alcaraz - Bublik en directo | El murciano despacha a Búblik por la vía rápida (6-3 6-0) y ya está en las semis de Montecarlo**: [Link](https://elpais.com/deportes/tenis/2026-04-10/alcaraz-bublik-en-directo-los-cuartos-de-final-del-masters-1000-de-montecarlo-en-vivo.html)
+- **Horario y dónde ver en directo a Carlos Alcaraz en semifinales de Montecarlo 2026**: [Link](https://www.puntodebreak.com/2026/04/10/horario-ver-directo-carlos-alcaraz-semifinales-montecarlo-2026)
+- **Estadísticas del Alcaraz - Bublik de cuartos de final del Masters 1.000 de Montecarlo**: [Link](https://www.abc.es/deportes/tenis/estadisticas-alcaraz-bublik-cuartos-final-masters-1000-20260410092736-di.html)
+
+
 ### تجنيس (N/A, Fri, 10 Apr 2026 06:50:00 -0700)
 
 - **هل يرغب الاتحاد الفيتنامي لكرة القدم (VFF) في زيادة عدد اللاعبين الأجانب في الدوري الفيتنامي (V.League)؟**: [Link](https://www.vietnam.vn/ar/vff-muon-tang-ngoai-binh-o-v-league)
