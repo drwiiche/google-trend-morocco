@@ -1,3 +1,17 @@
+### آرسنال ضد بورنموث (N/A, Sat, 11 Apr 2026 04:00:00 -0700)
+
+- **بينها لقب أرسنال الضائع.. 7 أسئلة ترسم ملامح نهاية البريميرليغ**: [Link](https://www.aljazeera.net/sport/2026/4/11/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+- **عودة مفاجئة لنجم آرسنال تثلج صدر أرتيتا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94%D8%A9-%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%AA%D8%AB%D9%84%D8%AC-%D8%B5%D8%AF%D8%B1-%D8%A7%D9%94%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7/bltd50c3db66113c791)
+- **آرسنال من أجل تعزيز صدارته عند مواجهة بورنموث**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D8%B9%D9%86%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-2026-04-11)
+
+
+### arsenal – bournemouth (N/A, Sat, 11 Apr 2026 03:50:00 -0700)
+
+- **Team news: Havertz starts against Bournemouth**: [Link](https://www.arsenal.com/news/team-news-havertz-starts-against-bournemouth)
+- **Follow the action from the top five leagues all weekend here!**: [Link](https://www.flashscore.com/news/footbal-tracker-live-scores-live-updates-live-updates-2026-04-11-12/fHEVbqlA/)
+- **The story in the stats as Arsenal target a bigger lead**: [Link](https://www.besoccer.com/new/the-story-in-the-stats-as-arsenal-target-a-bigger-lead-1403804)
+
+
 ### دولار (N/A, Sat, 11 Apr 2026 03:20:00 -0700)
 
 - **أخبار البيتكوين بوتان تبيع 640 مليون دولار من البيتكوين مما يثير المخاوف**: [Link](https://www.thecoinrepublic.com/ar/2026/04/10/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%8A%D9%86-%D8%A8%D9%88%D8%AA%D8%A7%D9%86-%D8%AA%D8%A8%D9%8A%D8%B9-640-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%AF%D9%88%D9%84/)
