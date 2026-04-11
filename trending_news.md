@@ -1,3 +1,31 @@
+### دولار (N/A, Sat, 11 Apr 2026 03:20:00 -0700)
+
+- **أخبار البيتكوين بوتان تبيع 640 مليون دولار من البيتكوين مما يثير المخاوف**: [Link](https://www.thecoinrepublic.com/ar/2026/04/10/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%8A%D9%86-%D8%A8%D9%88%D8%AA%D8%A7%D9%86-%D8%AA%D8%A8%D9%8A%D8%B9-640-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%AF%D9%88%D9%84/)
+- **بيتكوين تقترب من 80 ألف دولار رغم مبيعات بوتان المكثفة**: [Link](https://cryptonews.com/ar/news/bitcoin-price-prediction-bhutan-selling-80k-target-hyper-presale/)
+- **انخفض رصيد محفظة بيتكوين الحكومية في بوتان إلى 3,954 بيتكوين بعد عملية البيع الأخيرة**: [Link](https://news.bitcoin.com/ar/ankhafada-raseed-mihfazat-bitcoin-al-hukumiya-fi-butan-ila-3954-bitcoin-baad-amaliyat-al-bay-al-akhira/)
+
+
+### équipe du sénégal de football (N/A, Sat, 11 Apr 2026 02:50:00 -0700)
+
+- **Harare au rythme de la relève africaine avec le Festival Grassroots de la CAF**: [Link](https://www.cafonline.com/fr/championnat-dafrique-scolaire-de-football/news/harare-au-rythme-de-la-releve-africaine-avec-le-festival-grassroots-de-la-caf/)
+- **Le Maroc a subi une défaite retentissante face au Sénégal en Coupe d’Afrique des nations juniors**: [Link](https://www.goal.com/fr/news/le-maroc-a-subi-une-defaite-retentissante-face-au-senegal-en-coupe-d-afrique-des-nations-juniors/blt671588d47ff552d9)
+- **Football : le Sénégal bat (encore) le Maroc sur le terrain**: [Link](https://www.afrik.com/football-le-senegal-bat-encore-le-maroc-sur-le-terrain)
+
+
+### الولايات المتحدة (N/A, Sat, 11 Apr 2026 02:20:00 -0700)
+
+- **دور محوري للجيش.. هكذا جمعت إسلام آباد بين واشنطن وطهران لمفاوضات صعبة**: [Link](https://www.aljazeera.net/news/2026/4/11/%D8%B9%D9%84%D9%89-%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%A5%D8%B3%D9%84%D8%A7%D9%85-%D8%A3%D8%A8%D8%A7%D8%AF-%D8%AA%D8%B3%D8%AA%D8%B6%D9%8A%D9%81)
+- **وصول المفاوضين الأمريكيين والإيرانيين إلى إسلام آباد، ومفاوضات مرتقبة بين لبنان وإسرائيل الأسبوع المقبل**: [Link](https://www.bbc.com/arabic/live/c0q94n7d48yt)
+- **أفخم فنادق إسلام آباد يخطف الأنظار.. "سيرينا" يغلق المنطقة الحمراء**: [Link](https://www.alarabiya.net/arab-and-world/2026/04/11/%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%81%D9%86%D8%AF%D9%82-%D8%B3%D9%8A%D8%B1%D9%8A%D9%86%D8%A7-%D9%81%D9%8A-%D8%A7%D8%B3%D9%84%D8%A7%D9%85-%D8%A7%D8%A8%D8%A7%D8%AF)
+
+
+### طقس اليوم (N/A, Sat, 11 Apr 2026 00:10:00 -0700)
+
+- **ارتفاع درجات الحرارة.. الأرصاد تكشف حالة الطقس خلال الأيام المقبلة**: [Link](https://www.almasryalyoum.com/news/details/4242280)
+- **ارتفاع تدريجي للحرارة وتحذير من تخفيف الملابس**: [Link](https://mrj3y.com/419588/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A-%D9%84%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%AA%D8%AE%D9%81%D9%8A%D9%81/)
+- **الأرصاد: ارتفاع تدريجي في درجات الحرارة حتى «شم النسيم»**: [Link](https://m.akhbarelyom.com/news/newdetails/4802585/1/%D8%B4%D9%85-%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D9%85)
+
+
 ### maison blanche (N/A, Sat, 11 Apr 2026 01:30:00 -0700)
 
 
