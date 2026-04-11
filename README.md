@@ -1,3 +1,43 @@
+### barcelone – espanyol (N/A, Sat, 11 Apr 2026 08:40:00 -0700)
+
+
+
+
+### برشلونة ضد إسبانيول (N/A, Sat, 11 Apr 2026 08:40:00 -0700)
+
+- **مباشر مباراة برشلونة ضد إسبانيول في الدوري الإسباني لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/11/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B5%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84)
+- **يامال ينتصر على فليك في ديربي كتالونيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A7/blt25e730409378d83b)
+- **ديربي مرتقب بين برشلونة وإسبانيول**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-2026-04-11)
+
+
+### barcelona vs espanyol (N/A, Sat, 11 Apr 2026 08:40:00 -0700)
+
+- **Barcelona - Espanyol, en directo: alineaciones y última hora del partido de LaLiga**: [Link](https://www.sport.es/es/noticias/barca/barca-espanyol-directo-alineaciones-horario-128986438)
+- **El posible once del Barça en el derbi con retoques**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260411/1004168399/posible-once-barca-derbi-retoques.html)
+- **El Yamal vence a Flick en el derbi catalán**: [Link](https://www.goal.com/es-mx/noticias/el-yamal-vence-a-flick-en-el-derbi-catalan/blt25e730409378d83b)
+
+
+### ac milan – udinese (N/A, Sat, 11 Apr 2026 08:30:00 -0700)
+
+- **AC Milan v Udinese, Serie A Enilive 2025/2026: the photogallery**: [Link](https://www.acmilan.com/en/news/photogallery/serie-a/2026-04-11/ac-milan-v-udinese-serie-a-2025-26)
+- **GdS: ‘Out for goals’ – Allegri puts Leao at centre of new-look attack with Milan future at stake**: [Link](https://sempremilan.com/allegri-leao-centre-new-attack-milan-future)
+- **Milan seek redemption at sold-out San Siro against Udinese**: [Link](https://milanreports.com/2026/04/11/milan-sold-out-san-siro-udinese/)
+
+
+### المرشد الأعلى في إيران (N/A, Sat, 11 Apr 2026 08:20:00 -0700)
+
+- **معلومات جديدة عن حال خامنئي.. "وجهه تشوه وبترت ساقه"**: [Link](https://www.alarabiya.net/iran/2026/04/11/%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B9%D9%86-%D8%AD%D8%A7%D9%84-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D9%8A%D8%B9%D8%A7%D9%86%D9%8A-%D8%AC%D8%B1%D9%88%D8%AD%D8%A7-%D8%AD%D8%A7%D8%AF%D8%A9-%D9%88%D9%88%D8%AC%D9%87%D9%87-%D8%AA%D8%B4%D9%88%D9%87)
+- **رويترز: المرشد الإيراني الجديد يعاني جروحا وتشوهات حادة**: [Link](https://www.aljazeera.net/news/2026/4/11/%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AF-%D8%A7%D9%84%D8%A3%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF)
+- **دخل في غيبوبة.. تقرير يكشف تفاصيل حالة مجتبي خامنئي الصحية**: [Link](https://www.skynewsarabia.com/world/1862861-%D8%AF%D8%AE%D9%84-%D8%BA%D9%8A%D8%A8%D9%88%D8%A8%D8%A9-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D9%85%D8%AC%D8%AA%D8%A8%D9%8A-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9)
+
+
+### kérosène (N/A, Sat, 11 Apr 2026 07:20:00 -0700)
+
+- **Détroit d’Ormuz : les aéroports européens redoutent des pénuries de kérosène d’ici trois semaines**: [Link](https://www.lefigaro.fr/societes/detroit-d-ormuz-les-aeroports-europeens-redoutent-des-penuries-de-kerosene-d-ici-trois-semaines-20260410)
+- **Malgré la crise mondiale et la flambée du kérosène, la RAM tire son épingle du jeu**: [Link](https://medias24.com/2026/04/10/malgre-la-crise-mondiale-et-la-flambee-du-kerosene-la-ram-tire-son-epingle-du-jeu-1657770/)
+- **Air France et d'autres compagnies aériennes répercutent la hausse du kérosène sur le prix des billets**: [Link](https://www.franceinfo.fr/replay-radio/le-decryptage-eco/air-france-et-d-autres-compagnies-aeriennes-repercutent-la-hausse-du-kerosene-sur-le-prix-des-billets_7897358.html)
+
+
 ### oxford united – watford (N/A, Sat, 11 Apr 2026 07:30:00 -0700)
 
 - **Keir Starmer under pressure as RAF spy plane circled Lebanon during Israel attacks**: [Link](https://www.thenational.scot/news/26011624.raf-spy-plane-circled-lebanon-deadly-israel-attacks/)
