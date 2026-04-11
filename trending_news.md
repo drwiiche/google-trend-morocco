@@ -1,3 +1,24 @@
+### ميلانيا ترمب (N/A, Sat, 11 Apr 2026 13:30:00 -0700)
+
+- **"قنبلة نووية سياسية".. لماذا اختارت ميلانيا "إشعال" ملف إبستين الآن؟**: [Link](https://www.aljazeera.net/politics/2026/4/11/%D9%82%D9%86%D8%A8%D9%84%D8%A9-%D9%86%D9%88%D9%88%D9%8A%D8%A9-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D8%AE%D8%AA%D8%A7%D8%B1%D8%AA)
+- **جيفري إبستين: خطاب ميلانيا ترامب يعيد أزمة الملياردير ذي العلاقات النافذة المدان باعتداءات جنسية إلى الواجهة**: [Link](https://www.bbc.com/arabic/articles/ckgxl1e2ng6o)
+- **زلزال في البيت الأبيض.. ميلانيا تعيد "فضيحة إبستين" للواجهة**: [Link](https://www.dw.com/ar/%D8%AA%D9%85%D8%B1%D8%AF-%D8%A3%D9%85-%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%AA%D9%87%D8%AF%D8%AF-%D9%85%D8%B1%D9%88%D8%AC%D9%8A-%D8%A3%D9%83%D8%A7%D8%B0%D9%8A%D8%A8-%D8%A5%D8%A8%D8%B3%D8%AA%D9%8A%D9%86/a-76736660)
+
+
+### ديكو (N/A, Sat, 11 Apr 2026 12:50:00 -0700)
+
+- **ديكو يحسم جدل الرقصة الأخيرة لميسي بقميص برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D9%83%D9%88-%D9%8A%D8%AD%D8%B3%D9%85-%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D8%B1%D9%82%D8%B5%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9-%D9%84%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt16bf4c3a456e6bcb)
+- **ديكو يصف عودة ليونيل ميسي إلى نادي برشلونة بغير الواقعية وينفي وجود اتصالات**: [Link](https://m.elbotola.com/article/2026-04-10-20-30-215.html)
+- **ديكو يعلق على مشاكل برشلونة الدفاعية**: [Link](https://hihi2.com/2026/04/10/p3721543.html)
+
+
+### olympique club de safi (N/A, Sat, 11 Apr 2026 12:40:00 -0700)
+
+- **Coupe de la CAF : l’Olympic Safi affronte l’USM Alger en demi-finale**: [Link](https://mobile.telquel.ma/instant-t/2026/04/10/coupe-de-la-caf-lolympic-safi-affronte-lusm-alger-en-demi-finale_1983759/)
+- **USM Alger-OC Safi: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/coupe-caf/usm-alger-oc-safi-a-quelle-heure-et-sur-quelle-chaine_XHPQRBN6NVDRPNYR3FRFCDJLSM/)
+- **CDC : L’USMA en route pour une deuxième étoile devant Safi**: [Link](https://www.footafrique.com/cdc-lusma-en-route-pour-une-deuxieme-etoile-devant-safi/)
+
+
 ### رايو فايكانو (N/A, Sat, 11 Apr 2026 12:40:00 -0700)
 
 - **أخوماش يهرب من "فخ" بطل الكان.. ويشعل أزمة نهائي مونديال 2030**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AE%D9%88%D9%85%D8%A7%D8%B4-%D9%8A%D9%87%D8%B1%D8%A8-%D9%85%D9%86-%D9%81%D8%AE-%D8%A8%D8%B7%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D9%86--%D9%88%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030/bltb168e37beaf97523)
