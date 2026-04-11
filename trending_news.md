@@ -1,3 +1,17 @@
+### رايو فايكانو (N/A, Sat, 11 Apr 2026 12:40:00 -0700)
+
+- **أخوماش يهرب من "فخ" بطل الكان.. ويشعل أزمة نهائي مونديال 2030**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AE%D9%88%D9%85%D8%A7%D8%B4-%D9%8A%D9%87%D8%B1%D8%A8-%D9%85%D9%86-%D9%81%D8%AE-%D8%A8%D8%B7%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D9%86--%D9%88%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030/bltb168e37beaf97523)
+- **أخوماش يتألق في "المؤتمر الأوروبي"**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D9%88%D9%85%D8%A7%D8%B4-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-1728764.html)
+- **بعد تألقه أوروبيا.. أخوماش يتحفظ على "صراع الكان" ويقلل من "عنصرية المدرجات" ويدعم المغرب لنهائي 2030**: [Link](https://www.hesport.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%84%D9%82%D9%87-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A7-%D8%A3%D8%AE%D9%88%D9%85%D8%A7%D8%B4-%D9%8A%D8%AA%D8%AD%D9%81%D8%B8-%D8%B9%D9%84%D9%89-%D8%B5%D8%B1-434366.html)
+
+
+### les 12 coups de midi (N/A, Sat, 11 Apr 2026 12:30:00 -0700)
+
+- **"Une surcharge mentale" : Cyprien révèle les vraies raisons de son abandon dans les 12 coups de midi**: [Link](https://www.closermag.fr/tv_tele_realite/une-surcharge-mentale-cyprien-revele-les-vraies-raisons-de-son-abandon-dans-les-12-coups-de-midi-3629693)
+- **"Là j'ai peur" : Jean-Luc Reichmann surpris par l’un des défis que Cyprien s’est lancés avant de quitter Les 12 coups de midi**: [Link](https://www.femmeactuelle.fr/actu/news-actu/la-j-ai-peur-jean-luc-reichmann-surpris-par-lun-des-defis-que-cyprien-sest-lances-avant-de-quitter-les-12-coups-de-midi-2206393)
+- **Les 12 coups de midi : le changement de règle du « coup fatal » aurait-il en réalité précipité le départ de Cyprien ?**: [Link](https://www.msn.com/fr-be/actualite/other/les-12-coups-de-midi-le-changement-de-r%C3%A8gle-du-coup-fatal-aurait-il-en-r%C3%A9alit%C3%A9-pr%C3%A9cipit%C3%A9-le-d%C3%A9part-de-cyprien/ar-AA20yL2R?cvid=69d9e2d166ca4769ae67360cc1ca05e8&ocid=hpmsn)
+
+
 ### sevilla - atlético madrid (N/A, Sat, 11 Apr 2026 12:20:00 -0700)
 
 - **Sevilla - Atlético de Madrid, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/sevilla-atletico-de-madrid-en-directo-laliga-ea-sports-hoy-en-vivo-f202604-d/)
