@@ -1,3 +1,31 @@
+### oxford united – watford (N/A, Sat, 11 Apr 2026 07:30:00 -0700)
+
+- **Keir Starmer under pressure as RAF spy plane circled Lebanon during Israel attacks**: [Link](https://www.thenational.scot/news/26011624.raf-spy-plane-circled-lebanon-deadly-israel-attacks/)
+- **LIVE: Oxford United 1-0 Watford - Peart-Harris slots U's in front**: [Link](https://www.bicesteradvertiser.net/sport/26012943.live-oxford-united-1-0-watford---championship-live/)
+- **Space NK queues stretch outside the Harlequin as shoppers hail 'dream come true'**: [Link](https://www.watfordobserver.co.uk/leisure/26010684.space-nks-watford-opening-delights-harlequin-shoppers/)
+
+
+### alcaraz (N/A, Sat, 11 Apr 2026 07:20:00 -0700)
+
+- **Emparejamientos de semifinales para el Masters de Montecarlo 2026**: [Link](https://www.vietnam.vn/es/cac-cap-dau-ban-ket-monte-carlo-masters-2026)
+- **Hot Shot: Vacherot muestra su habilidad en la volea ante Alcaraz**: [Link](https://www.atptour.com/es/video/hot-shot-vacherot-shows-alcaraz-how-its-done-with-spectacular-volley-montecarlo-2026)
+- **Tenis en directo: Alcaraz juega las semis de Montecarlo; España, a las finales de la BJK Cup**: [Link](https://www.flashscore.es/noticias/tenis-montecarlo-atp-individuales-tenis-en-directo-alcaraz-juega-las-semis-de-montecarlo-espana-a-las-finales-de-la-bjk-cup/rFvxz5PO/)
+
+
+### burnley – brighton (N/A, Sat, 11 Apr 2026 07:10:00 -0700)
+
+- **Burnley vs Brighton LIVE! Premier League commentary, match updates, score and team news**: [Link](https://www.skysports.com/football/live-blog/11095/13530002/burnley-vs-brighton-live-premier-league-commentary-match-updates-score-and-team-news)
+- **Hürzeler says he’s happy at Brighton and Hove Albion**: [Link](https://www.brightonandhovenews.org/2026/04/11/hurzeler-says-hes-happy-at-brighton-and-hove-albion/)
+- **Referee who risked wrath of Leeds United boss to officiate Burnley v Brighton**: [Link](https://www.burnleyexpress.net/sport/football/referee-who-risked-wrath-of-leeds-united-boss-to-officiate-burnley-v-brighton-6565998)
+
+
+### valentin vacherot (N/A, Sat, 11 Apr 2026 06:40:00 -0700)
+
+- **Alex de Minaur downed by local hero at Monte Carlo Masters**: [Link](https://www.abc.net.au/news/2026-04-11/alex-de-minaur-knocked-out-of-monte-carlo-masters-quarterfinal/106554042)
+- **Vacherot gatecrashes Monte Carlo semis; Alcaraz, Sinner cruise**: [Link](https://www.supersport.com/tennis/news/be2a9c74-deed-4d99-9188-4831d47e1faf/vacherot-gatecrashes-monte-carlo-semis-alcaraz-sinner-cruise)
+- **Demon goes bust in Monte Carlo at hands of local hero**: [Link](https://au.news.yahoo.com/demon-goes-bust-monte-carlo-183922513.html)
+
+
 ### carlos alcaraz (N/A, Sat, 11 Apr 2026 06:50:00 -0700)
 
 - **Dani Mérida empieza con buen la fase previa del Conde de Godó**: [Link](https://www.puntodebreak.com/2026/04/11/dani-merida-empieza-buen-fase-previa-conde-godo)
