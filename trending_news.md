@@ -1,3 +1,17 @@
+### real sociedad – deportivo alavés (N/A, Sat, 11 Apr 2026 04:30:00 -0700)
+
+- **Oyarzabal y Guedes, suplentes ante un Alavés con un solo cambio**: [Link](https://www.infobae.com/espana/agencias/2026/04/11/oyarzabal-y-guedes-suplentes-ante-un-alaves-con-un-solo-cambio/)
+- **Real Sociedad-Deportivo Alavés, en directo: el partido de la jornada 31 de LaLiga, en vivo**: [Link](https://cadenaser.com/nacional/2026/04/11/real-sociedad-deportivo-alaves-en-directo-el-partido-de-la-jornada-31-de-laliga-en-vivo-cadena-ser/)
+- **La Real busca Europa antes de la final copera y Elche y Valencia viven un derbi importante**: [Link](https://www.notimerica.com/deportes/noticia-real-busca-europa-antes-final-copera-elche-valencia-viven-derbi-importante-20260410201416.html)
+
+
+### marrakech (N/A, Sat, 11 Apr 2026 00:40:00 -0700)
+
+- **Marrakech méconnaissable : pourquoi la Ville rouge est-elle devenue toute blanche vendredi**: [Link](https://www.leparisien.fr/meteo/marrakech-meconnaissable-pourquoi-la-ville-rouge-est-elle-devenue-tout-blanche-ce-vendredi-10-04-2026-KETSJWPX6RCRXCJPVVIVYKUZQI.php)
+- **Maroc : les images de Marrakech sous la grêle en plein mois d'avril**: [Link](https://www.cnews.fr/monde/2026-04-11/maroc-les-images-de-marrakech-sous-la-grele-en-plein-mois-davril-1845211)
+- **Marrakech: ce que les internautes ont pris pour de la neige n’était que de la grêle, tranche la DGM**: [Link](https://fr.le360.ma/societe/marrakech-ce-que-les-internautes-ont-pris-pour-de-la-neige-netait-que-de-la-grele-tranche-la-dgm_I5W3IIOOVZEF3MTWF7UQUHIO2A/)
+
+
 ### آرسنال ضد بورنموث (N/A, Sat, 11 Apr 2026 04:00:00 -0700)
 
 - **بينها لقب أرسنال الضائع.. 7 أسئلة ترسم ملامح نهاية البريميرليغ**: [Link](https://www.aljazeera.net/sport/2026/4/11/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
