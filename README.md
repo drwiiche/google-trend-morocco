@@ -1,3 +1,31 @@
+### inter miami – new york rb (N/A, Sat, 11 Apr 2026 16:00:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Hosts Red Bull New York This Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-red-bull-new-york-this-saturday)
+- **Messi, Inter Miami aim for first win at Nu Stadium vs. revamped Red Bull New York**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article315363404.html)
+- **Inter Miami vs. New York Red Bulls: Can Lionel Messi and Herons get back on track?**: [Link](https://www.cbssports.com/soccer/news/inter-miami-vs-new-york-red-bulls-live-stream-preview-lionel-messi/)
+
+
+### إدوارد ميندي (N/A, Sat, 11 Apr 2026 16:00:00 -0700)
+
+- **ميندي: تتويج المغرب جاء من العدم.. وكنا نعتقد القرار "كذبة أبريل"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AC%D8%A7%D8%A1-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%AF%D9%85--%D9%88%D9%83%D9%86%D8%A7-%D9%86%D8%B9%D8%AA%D9%82%D8%AF-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D9%83%D8%B0%D8%A8%D8%A9-%D8%A7%D9%94%D8%A8%D8%B1%D9%8A%D9%84/blt4220c5986e389e01)
+- **بونو ابلغ كوليبالي بفقدان لقب كأس افريقيا**: [Link](https://www.almountakhab.com/node/16224166)
+- **صدمة داخل معسكر السنغال.. ميندي يكشف كواليس قرار اللقب**: [Link](https://koorabreak.com/ar/278519/)
+
+
+### hippodrome parislongchamp (N/A, Sat, 11 Apr 2026 14:50:00 -0700)
+
+- **Les pronostics des experts pour la réunion 1 à ParisLongchamp ce dimanche 12 avril**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-parislongchamp-ce-dimanche-12-avril)
+- **Résultats PMU : Arrivée du Tiercé du jour**: [Link](https://www.zone-turf.fr/quinte/resultats-pmu-arrivee-du-tierce-du-jour-129481.html)
+- **Jeudi 9 avril 2026 à Auteuil – Prix Jasmin II (Cl. 2) : Simple formalité pour Sain d'Esprit**: [Link](https://www.paris-turf.com/actualites/france/jeudi-9-avril-2026-a-auteuil-prix-jasmin-ii-cl-2-simple-formalite-pour-sain-d-esprit-302200767299)
+
+
+### ملعب (N/A, Sat, 11 Apr 2026 14:00:00 -0700)
+
+- **تنشيط هاوي لأجمل ملعب في العالم يطرح تساؤلات حول تدبير ملاعب المملكة من الجيل الجديد**: [Link](https://rue20.com/992836.html)
+- **ليفربول يستعيد التوازن وينتصر على ضيفه فولهام**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B2%D9%86-%D9%88%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%B6%D9%8A%D9%81%D9%87-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-2026-04-11)
+- **خامس العظماء.. فيديو: صلاح يوقع على رقم أسطوري جديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A7%D9%85%D8%B3-%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D8%A7%D8%A1--%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%88%D9%82%D8%B9-%D8%B9%D9%84%D9%89-%D8%B1%D9%82%D9%85-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF/blt8ab59799d098b6e7)
+
+
 ### طماطم (N/A, Sat, 11 Apr 2026 15:20:00 -0700)
 
 - **سعر الطماطم والبصل والخضروات في الأسواق اليوم السبت 11 أبريل 2026**: [Link](https://www.almasryalyoum.com/news/details/4242626)
