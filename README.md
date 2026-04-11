@@ -1,3 +1,38 @@
+### paul pogba (N/A, Sat, 11 Apr 2026 06:00:00 -0700)
+
+- **Folarin Balogun equals Neymar goal streak; Paul Pogba returns**: [Link](https://www.espn.com/soccer/story/_/id/48450416/folarin-balogun-neymar-goal-monaco-paul-pogba-return-paris-fc)
+- **Injury-plagued Paul Pogba finally in line to make return for Monaco after four-month absence**: [Link](https://www.foxsports.com/articles/soccer/injury-plagued-paul-pogba-finally-in-line-to-make-return-for-monaco-after-four-month-absence)
+- **🎥 Four months on, Paul Pogba is playing football again!**: [Link](https://sports.yahoo.com/articles/four-months-paul-pogba-playing-184200005.html)
+
+
+### dortmund – leverkusen (N/A, Sat, 11 Apr 2026 05:50:00 -0700)
+
+- **Klarheit bei Couto - Youngster ersetzt Adeyemi: BVB-Kader gegen Leverkusen**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-kader-gegen-leverkusen-klarheit-bei-couto-youngster-neu-dabei-w1178069-2002029063/)
+- **Hjulmand: Brauchen „Schärfe“ gegen einen „super Gegner“**: [Link](https://www.bayer04.de/de-de/news/bundesliga/hjulmand-brauchen-schaerfe-gegen-einen-super-gegner)
+- **Übergangsjahr mit Tücken: Droht Bayer der nächste Umbruch?**: [Link](https://www.pz-news.de/home_artikel,-Uebergangsjahr-mit-Tuecken-Droht-Bayer-der-naechste-Umbruch-_arid,2345763.html)
+
+
+### نادي الزمالك (N/A, Sat, 11 Apr 2026 05:40:00 -0700)
+
+- **شاهد.. نتيجة وملخص وأهداف شباب بلوزداد ضد الزمالك في نصف نهائي كأس الكونفدرالية الأفريقية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/10/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%81%D9%8A-%D9%86%D8%B5%D9%81)
+- **قدم.. الزمالك المصري يقترب من نهائي كأس الكونفدرالية الإفريقية**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/3901611)
+- **بالفيديو: الزمالك يقتنص فوزا ثمينا من بلوزداد.. ويضع قدما في نهائي الكونفدرالية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D9%82%D8%AA%D9%86%D8%B5-%D9%81%D9%88%D8%B2%D8%A7-%D8%AB%D9%85%D9%8A%D9%86%D8%A7-%D9%85%D9%86-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF--%D9%88%D9%8A%D8%B6%D8%B9-%D9%82%D8%AF%D9%85%D8%A7-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9/blt801d8babd9369f5f)
+
+
+### cyberattaque cnops maroc (N/A, Sat, 11 Apr 2026 05:30:00 -0700)
+
+- **Mohamed Saad (AUSIM) : “Une entreprise bien gouvernée ne subit pas le numérique, elle l’organise”**: [Link](https://medias24.com/2026/04/11/mohamed-saad-ausim-une-entreprise-bien-gouvernee-ne-subit-pas-le-numerique-elle-lorganise-1658195/)
+- **Jabaroot revendique une nouvelle cyberattaque visant la CNOPS**: [Link](https://mobile.telquel.ma/2026/04/10/jabaroot-revendique-une-nouvelle-cyberattaque-visant-la-cnops_1983630)
+- **Souveraineté numérique : le Maroc face à la montée des menaces**: [Link](https://lematin.ma/economie/souverainete-numerique-le-maroc-face-a-la-montee-des-menaces/339311)
+
+
+### jannik sinner (N/A, Sat, 11 Apr 2026 05:20:00 -0700)
+
+- **Sentenza Sinner: Auger-Aliassime ko, ora Zverev in semifinale. Alcaraz supera Bublik in due set**: [Link](https://www.gazzetta.it/Tennis/ATP/10-04-2026/sinner-auger-aliassime-live-quarti-a-montecarlo-diretta.shtml)
+- **Sinner, difesa e rovescio fulminante: Zverev resta immobile all'Atp Monte-Carlo 2026. VIDEO**: [Link](https://sport.sky.it/tennis/video/2026/04/11/sinner-zverev-atp-montecarlo-punto-video-1089338)
+- **Jannik Sinner in finale al Montecarlo Masters 2026: possibile avversario e programma della partita · Risultati Tennis oggi**: [Link](https://www.olympics.com/it/notizie/tennis-sinner-finale-montecarlo-2026-vittoria-zverev-risultato-programma-dove-vedere)
+
+
 ### real sociedad – deportivo alavés (N/A, Sat, 11 Apr 2026 04:30:00 -0700)
 
 - **Oyarzabal y Guedes, suplentes ante un Alavés con un solo cambio**: [Link](https://www.infobae.com/espana/agencias/2026/04/11/oyarzabal-y-guedes-suplentes-ante-un-alaves-con-un-solo-cambio/)
