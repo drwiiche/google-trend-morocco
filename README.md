@@ -1,3 +1,52 @@
+### lamine yamal (N/A, Sat, 11 Apr 2026 10:30:00 -0700)
+
+- **Lamine Yamal's cheeky nutmeg on Espanyol defender before assisting Ferran Torres goal - spotted**: [Link](https://tribuna.com/en/blogs/lamine-yamals-cheeky-nutmeg-on-espanyol-defender-before-assi/)
+- **Barcelona vs Espanyol: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/04/286591/barcelona-vs-espanyol-how-when-to-watch/)
+- **A sudden injury… Will Yamal miss the derby?**: [Link](https://www.goal.com/en/news/a-sudden-injury-will-yamal-miss-the-derby/blt9b58abd83b2a540d)
+
+
+### liverpool (N/A, Sat, 11 Apr 2026 10:20:00 -0700)
+
+- **Arne Slot: I feel complete support from Liverpool owners**: [Link](https://www.telegraph.co.uk/football/2026/04/08/arne-slot-defends-liverpool-tactics-we-are-in-survival-mode/)
+- **Liverpool: I feel complete support from owners and fans, says Arne Slot**: [Link](https://www.bbc.com/sport/football/articles/ckgx9633e81o)
+- **Are Arne Slot’s Days at Anfield Numbered?**: [Link](https://onefootball.com/de/news/are-arne-slots-days-at-anfield-numbered-42689474)
+
+
+### ذهب (N/A, Sat, 11 Apr 2026 10:20:00 -0700)
+
+- **أسعار الذهب في الدول العربية اليوم السبت 11 أبريل 2026**: [Link](https://www.economy-today.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84-32/)
+- **اعرف الجرام بكام.. سعر الذهب اليوم السبت 11 أبريل في الأسواق**: [Link](https://www.tahiamasr.com/1045897)
+- **سعر الجنيه الذهب في مصر صباح اليوم السبت 11 أبريل 2026**: [Link](https://www.altreeq.com/534160)
+
+
+### fcb vs (N/A, Sat, 11 Apr 2026 10:20:00 -0700)
+
+- **Champions League Quarterfinals: Who Is On Track Towards Victory?**: [Link](https://www.stadiumrant.com/champions-league-quarterfinals-who-is-on-track/)
+- **WATCHALONG: Barcelona vs Atletico Madrid / PSG vs Liverpool (Madridista Perspective)**: [Link](https://www.managingmadrid.com/videos/106238/watchalong-barcelona-vs-atletico-madrid-psg-vs-liverpool-madridista-perspective)
+- **Champions League quarter-final, first legs: Every goal**: [Link](https://www.uefa.com/uefachampionsleague/video/02a4-2058c88d3aa0-30aa582ebd91-1000--champions-league-quarter-final-first-legs-every-goal/)
+
+
+### barca (N/A, Sat, 11 Apr 2026 10:00:00 -0700)
+
+- **Barcelona vs Espanyol: How & When to Watch**: [Link](https://www.moroccoworldnews.com/2026/04/286591/barcelona-vs-espanyol-how-when-to-watch/)
+- **A sudden injury… Will Yamal miss the derby?**: [Link](https://www.goal.com/en/news/a-sudden-injury-will-yamal-miss-the-derby/blt9b58abd83b2a540d)
+- **Hansi Flick explains decision to start Lamine Yamal and Pedri for Barcelona against Espanyol**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/117402/hansi-flick-explains-decision-to-start-lamine-yamal-and-pedri-for-barcelona-against-espanyol)
+
+
+### sparta rotterdam – psv eindhoven (N/A, Sat, 11 Apr 2026 10:00:00 -0700)
+
+- **Sparta Rotterdam vs PSV: Eredivisie stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvgl0xwz7gyt)
+- **Preview: Sparta Rotterdam vs PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sparta-rotterdam/preview/sparta-vs-psv-prediction-team-news-lineups_595398.html)
+- **Sparta vs PSV: another victory for the champion?**: [Link](https://www.liontips.com/tips/2026/04/10/sparta-psv-betting-tip-cf-2-07-and-bets-on-the-dutch-championship-match-april-11-2026)
+
+
+### bein sport live (N/A, Sat, 11 Apr 2026 10:00:00 -0700)
+
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-nz/football/articles-video/watch-live-this-week-on-bein-sports-2026-04-10)
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/football/articles/watch-live-this-week-on-bein-sports-2026-04-02)
+- **Mason Greenwood determined to win Ligue 1 top goalscorer award as Marseille star bags two assists in win over Metz**: [Link](https://www.goal.com/en-ca/lists/mason-greenwood-ligue-1-top-scorer-two-assists-marseille-vs-metz/bltd31e91fba7d1537d)
+
+
 ### yallakora (N/A, Sat, 11 Apr 2026 09:40:00 -0700)
 
 - **ليس الركراكي.. مدرب مغربي مُرشح لخلافة رينارد في السعودية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A--%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%85%D9%8F%D8%B1%D8%B4%D8%AD-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/blt1c4776764f38e974)
