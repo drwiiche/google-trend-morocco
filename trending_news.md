@@ -1,3 +1,73 @@
+### rennes – angers (N/A, Sat, 11 Apr 2026 11:40:00 -0700)
+
+- **Stade Rennais - Angers. « Il ne doit pas se fixer de limites… » : Estéban Lepaul, les dessous d’une folle ascension**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-angers-il-ne-doit-pas-se-fixer-de-limites-esteban-lepaul-les-dessous-dune-folle-ascension-f127211c-3266-11f1-9a1c-03e0a2077847)
+- **L1 : Rennes-Angers, les compos**: [Link](https://news.maxifoot.fr/ligue-1/rennes-angers-les-compos-foot-453804.htm)
+- **Stade Rennais FC : le XI d’Franck Haise pour relancer la machine contre Angers SCO**: [Link](https://www.butfootballclub.fr/1661064-stade-rennais-le-onze-dhaise-face-au-sco-pour-se-relancer-au-roazhon/)
+
+
+### mojtaba khamenei (N/A, Sat, 11 Apr 2026 11:40:00 -0700)
+
+- **Iran’s supreme leader ‘unconscious and receiving treatment in Qom’**: [Link](https://www.thetimes.com/world/middle-east/israel-iran/article/iran-supreme-leader-mojtaba-khamenei-qom-war-latest-c2th5xgqb)
+- **Mojtaba Khamenei Secretly Recovering From Severe Airstrike Injuries**: [Link](https://uz.kursiv.media/en/2026-04-11/mojtaba-khamenei-secretly-recovering-from-severe-airstrike-injuries/)
+- **Mojtaba Khamenei’s injuries spark Iran leadership change speculation**: [Link](https://cryptobriefing.com/mojtaba-khameneis-injuries-spark-iran-leadership-change-speculation/)
+
+
+### الجيش الملكي (N/A, Sat, 11 Apr 2026 11:40:00 -0700)
+
+- **مباشر الجيش الملكي ضد نهضة بركان في نصف نهائي أبطال أفريقيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/11/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%B6%D8%AF-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%81%D9%8A-%D9%86%D8%B5%D9%81)
+- **سانتوس: «تفاصيل صغيرة» تحسم التأهل إلى نهائي دور الأبطال**: [Link](https://www.radiomars.ma/%D8%B3%D8%A7%D9%86%D8%AA%D9%88%D8%B3-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9/)
+- **قمة مغربية نارية في أبطال إفريقيا**: [Link](https://www.hesport.com/%D9%82%D9%85%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-434437.html)
+
+
+### ترتيب الدوري الاسباني (N/A, Sat, 11 Apr 2026 11:30:00 -0700)
+
+- **توريس يرد على الانتقادات**: [Link](https://hihi2.com/2026/04/11/p3722876.html)
+- **على أنقاض ريال مدريد وأتلتيكو.. الليجا تضمد جرح موريكي وليفاندوفسكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%86%D9%82%D8%A7%D8%B6-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88--%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-%D8%AA%D8%B6%D9%85%D8%AF-%D8%AC%D8%B1%D8%AD-%D9%85%D9%88%D8%B1%D9%8A%D9%83%D9%8A-%D9%88%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A/bltd27a9ed57d8ae2cc)
+- **ترتيب هدافي الدوري الإسباني 2025/2026 بعد الجولة 31**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2025-2026-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC-11/)
+
+
+### لا ليغا (N/A, Sat, 11 Apr 2026 11:30:00 -0700)
+
+- **فرق الدوري الإسباني ترتدي قمصانا كلاسيكية في جولة تاريخية**: [Link](https://arabic.euronews.com/culture/2026/04/11/kicking-back-spains-la-liga-goes-retro-for-nostalgic-football-matchday)
+- **إسبانيا تطلق أول جولة كلاسيكية بمشاركة 39 ناديا في الدوري خلال ابريل 2026**: [Link](https://m.elbotola.com/article/2026-04-10-11-45-413.html)
+- **ذاكرة الماضي.. ماذا تعرف عن جولة "الريترو" في الدوري الإسباني؟ (صور وفيديو)**: [Link](https://www.eremnews.com/sports/vy7m4ht)
+
+
+### الجزائر (N/A, Sat, 11 Apr 2026 11:20:00 -0700)
+
+- **فريق أولمبيك آسفي ينتزع تعادلا ثمينا أمام نادي اتحاد العاصمة الجزائري**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A2%D8%B3%D9%81%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%AB%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7-1729654.html)
+- **بـ10 لاعبين.. أولمبيك آسفي يعود بالتعادل من الجزائر أمام اتحاد العاصمة (0-0) ضمن نصف نهائي كأس الكونفدرالية**: [Link](https://m.elbotola.com/article/2026-04-11-18-03-208.html)
+- **القنصل المغربي بالجزائر يستقبل بعثة أولمبيك آسفي قبل مواجهة اتحاد العاصمة**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%82%D9%86%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A3/)
+
+
+### sevilla vs atlético madrid (N/A, Sat, 11 Apr 2026 11:20:00 -0700)
+
+- **Atlético Madrid ‘astounded’ by Barcelona’s refereeing complaints**: [Link](https://barcauniversal.com/atletico-madrid-astounded-by-barcelonas-refereeing-complaints/)
+- **Simeone not expecting demotivated Atletico against Sevilla**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/simeone-not-expecting-demotivated-atletico-against-sevilla-2026-04-10)
+- **Simeone, after Barcelona’s complaint: ‘We’re used to that in Madrid’**: [Link](https://www.goal.com/en-sa/lists/simeone-after-barcelona-s-complaint-we-re-used-to-that-in-madrid/blt7b129f7ce97cc659)
+
+
+### al akhdoud vs al-nassr (N/A, Sat, 11 Apr 2026 11:20:00 -0700)
+
+- **A Surprising Decision by Jesus Before the Al-Okhdood Clash**: [Link](https://www.ysscores.com/en/news/13942878/A-Surprising-Decision-by-Jesus-Before-the-Al-Okhdood-Clash)
+- **Al-Nassr Aims to Extend Lead at Top of Saudi Pro League Against Al-Akhdoud**: [Link](https://news.ssbcrack.com/al-nassr-aims-to-extend-lead-at-top-of-saudi-pro-league-against-al-akhdoud/)
+- **Is Cristiano Ronaldo Playing Tonight for Al-Nassr vs Al-Akhdoud?**: [Link](https://www.aol.com/articles/cristiano-ronaldo-playing-tonight-al-135800752.html)
+
+
+### fcb (N/A, Sat, 11 Apr 2026 11:20:00 -0700)
+
+- **FC Barcelona vs. Bayern Munich - Live Score - May 03, 2026**: [Link](https://www.foxsports.com/soccer/uefa-womens-champions-league-fc-barcelona-vs-bayern-munich-may-03-2026-game-boxscore-669764)
+- **SC Freiburg vs Bayern Munich - Bundesliga Round 28, 2025**: [Link](https://www.foxsports.com.au/football/bundesliga/match-centre/BUND2025-262803)
+- **Barcelona vs. Manta FC - Boxscore - Live Score - May 03, 2026**: [Link](https://www.foxsports.com/soccer/ecuadorian-liga-pro-barcelona-vs-manta-fc-may-03-2026-game-boxscore-677823?tab=boxscore)
+
+
+### séville – atlético madrid (N/A, Sat, 11 Apr 2026 11:10:00 -0700)
+
+- **Simeone ménage ses stars de l'Atlético Madrid contre Séville en raison du calendrier chargé**: [Link](https://m.elbotola.com/fr/article/2026-04-09-11-45-97.html)
+- **Liga : Séville est au bord du gouffre avant d’affronter l’Atlético**: [Link](https://www.footmercato.net/a1562581604819306187-liga-seville-est-au-bord-du-gouffre-avant-daffronter-latletico)
+- **Le Séville FC en position de relégable après la victoire d'Elche contre Valence**: [Link](https://www.lequipe.fr/Football/Actualites/Le-seville-fc-relegable-apres-la-victoire-d-elche-contre-valence/1667096)
+
+
 ### ocs safi (N/A, Sat, 11 Apr 2026 10:50:00 -0700)
 
 - **Coupe de la CAF : l’Olympic Safi affronte l’USM Alger en demi-finale**: [Link](https://mobile.telquel.ma/instant-t/2026/04/10/coupe-de-la-caf-lolympic-safi-affronte-lusm-alger-en-demi-finale_1983759/)
