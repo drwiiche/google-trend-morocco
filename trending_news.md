@@ -1,3 +1,24 @@
+### météo (N/A, Fri, 10 Apr 2026 23:30:00 -0700)
+
+- **Alerte météo. Pluies, neige et fortes rafales de vent dans plusieurs provinces**: [Link](https://medias24.com/2026/04/09/alerte-meteo-pluies-neige-et-fortes-rafales-de-vent-dans-plusieurs-provinces-1656845/)
+- **Les températures attendues ce vendredi 10 avril 2026**: [Link](https://fr.hespress.com/468838-les-temperatures-attendues-ce-vendredi-10-avril-2026.html)
+- **Averses orageuses, grêle et des chutes de neige, de vendredi à dimanche, dans plusieurs provinces du Royaume**: [Link](https://mobile.telquel.ma/instant-t/2026/04/10/averses-orageuses-grele-et-des-chutes-de-neige-de-vendredi-a-dimanche-dans-plusieurs-provinces-du-royaume_1983755/)
+
+
+### الطقس (N/A, Fri, 10 Apr 2026 23:20:00 -0700)
+
+- **تقلبات جوية الجمعة والسبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%88%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1728863.html)
+- **طقس الاثنين.. تساقطات مطرية مع رياح قوية متوقعة**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9/)
+- **زخات رعدية مع تساقط البرد وتساقطات ثلجية من الجمعة إلى الأحد بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-20260410)
+
+
+### stade (N/A, Fri, 10 Apr 2026 20:40:00 -0700)
+
+- **« Tous les curseurs élevés à un très haut niveau » : Elissalde, Yachvili et Garbajosa présentent le choc UBB - Stade Toulousain en Champions Cup**: [Link](https://www.sudouest.fr/sport/rugby/bordeaux-begles/tous-les-curseurs-eleves-a-un-tres-haut-niveau-elissalde-yachvili-et-garbajosa-presentent-le-choc-ubb-stade-toulousain-en-champions-cup-28606415.php)
+- **Champions Cup : des quarts de finale relevés, mais une compétition qui peine à retrouver son souffle**: [Link](https://www.breizh-info.com/2026/04/10/258779/champions-cup-des-quarts-de-finale-releves-mais-une-competition-qui-peine-a-retrouver-son-souffle/)
+- **UBB – Stade Toulousain : "Il a été ma plus grande source d’inspiration !" Yannick Bru révèle son modèle de talonneur et on ne s’y attendait pas**: [Link](https://www.ladepeche.fr/2026/04/11/ubb-stade-toulousain-il-a-ete-ma-plus-grande-source-dinspiration-yannick-bru-revele-son-modele-de-talonneur-et-on-ne-sy-attendait-pas-13320164.php)
+
+
 ### الدوري الاسباني (N/A, Fri, 10 Apr 2026 14:20:00 -0700)
 
 - **فليك يصعق أربيلوا: لن أهدر طاقتي للرد عليه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B5%D8%B9%D9%82-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%84%D9%86-%D8%A7%D9%94%D9%87%D8%AF%D8%B1-%D8%B7%D8%A7%D9%82%D8%AA%D9%8A-%D9%84%D9%84%D8%B1%D8%AF-%D8%B9%D9%84%D9%8A%D9%87/bltd4ac99351e3e4bcf)
