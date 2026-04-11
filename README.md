@@ -1,3 +1,45 @@
+### sevilla - atlético madrid (N/A, Sat, 11 Apr 2026 12:20:00 -0700)
+
+- **Sevilla - Atlético de Madrid, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/sevilla-atletico-de-madrid-en-directo-laliga-ea-sports-hoy-en-vivo-f202604-d/)
+- **El Cholo presenta un once repleto de rotaciones pensando en la Champions**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260411/1004168864/cholo-presenta-once-repleto-rotaciones-pensando-champions.html)
+- **El Atleti, en la encrucijada entre LaLiga y la Champions**: [Link](https://www.flashscore.es/noticias/futbol-laliga-ea-sports-el-atleti-partido-a-partido-o-champions-100/jgFNLSfo/)
+
+
+### caf champions league (N/A, Sat, 11 Apr 2026 12:20:00 -0700)
+
+- **Ultras, lasers and flares await Champions League-chasing Sundowns in Tunisia**: [Link](https://www.news24.com/sport/soccer/psl/ultras-lasers-and-flares-await-champions-league-chasing-sundowns-in-tunisia-20260410-1244)
+- **ES Tunis v Mamelodi Sundowns: CAF Champions League heavyweights collide in Tunis showdown**: [Link](https://africasoccer.com/es-tunis-v-mamelodi-sundowns-caf-champions-league-heavyweights-collide-in-tunis-showdown/)
+- **Arthur Sales urges focus as Sundowns brace for hostile Esperance test**: [Link](https://www.channelafrica.co.za/channelafrica/news/arthur-sales-urges-focus-as-sundowns-brace-for-hostile-esperance-test/)
+
+
+### énergie (N/A, Sat, 11 Apr 2026 12:20:00 -0700)
+
+- **Maud Bregeon, ministre déléguée à l’Énergie : « Je propose l’équivalent d’un leasing sur les pompes à chaleur**: [Link](https://www.leparisien.fr/politique/maud-bregeon-ministre-deleguee-a-lenergie-je-propose-lequivalent-dun-leasing-sur-les-pompes-a-chaleur-10-04-2026-L7554GYVTFHVHOLNESHOB3H4DU.php)
+- **Le gouvernement annonce l’interdiction des chaudières à gaz dans les constructions neuves à partir de 2027**: [Link](https://www.lemonde.fr/planete/article/2026/04/10/le-gouvernement-annonce-l-interdiction-des-chaudieres-a-gaz-dans-les-constructions-neuves-a-partir-de-2027_6679078_3244.html)
+- **Ce que l’interdiction globale du chauffage à gaz dans l’immobilier neuf va changer**: [Link](https://immobilier.lefigaro.fr/article/ce-que-l-interdiction-globale-du-chauffage-a-gaz-dans-l-immobilier-neuf-va-changer-20260410)
+
+
+### estrela amadora – sporting (N/A, Sat, 11 Apr 2026 12:10:00 -0700)
+
+- **AO VIVO: Maxi Araújo atira sem perigo para Renan (7')**: [Link](https://www.flashscore.pt/noticias/futebol-liga-portugal-betclic-ao-vivo-maxi-araujo-atira-sem-perigo-para-renan-7/QJq1FVge/)
+- **I Liga. Estrela - Sporting CP**: [Link](https://www.rtp.pt/noticias/desporto/i-liga-estrela-sporting-cp_e1733157)
+- **Por cá: Tomás Araújo ganha estatuto e Borges só pensa no tricampeonato**: [Link](https://www.noticiasaominuto.com/desporto/2970820/por-ca-tomas-araujo-ganha-estatuto-e-borges-so-pensa-no-tricampeonato)
+
+
+### far vs rsb (N/A, Sat, 11 Apr 2026 12:10:00 -0700)
+
+- **CAF Rejects Al-Hilal’s El Moussaoui Complaint as Sudanese Club Vows Appeal**: [Link](https://www.moroccoworldnews.com/2026/04/286553/caf-rejects-al-hilals-el-moussaoui-complaint-as-sudanese-club-vows-appeal/)
+- **Sports Circles Await Final Decision on Al Hilal Complaint on Friday**: [Link](https://sudanhorizon.com/sports-circles-await-final-decision-on-al-hilal-complaint-on-friday/)
+- **RS Berkane in shock—Hamza El Moussaoui suspended for two years by CAF**: [Link](https://www.panafricafootball.com/post/rs-berkane-shock-el-moussaoui-ban/)
+
+
+### classement la liga (N/A, Sat, 11 Apr 2026 11:30:00 -0700)
+
+- **Kylian Mbappé en sang mais penalty non sifflé en faveur du Real Madrid lors du match nul face à Gérone, une faute visible «depuis la Lune»**: [Link](https://www.lequipe.fr/Football/Actualites/Kylian-mbappe-en-sang-mais-penalty-non-siffle-en-faveur-du-real-madrid-lors-du-match-nul-face-a-gerone-une-faute-visible-depuis-la-lune/1666962)
+- **Un Bleu retrouve du plaisir en Catalogne : « La vérité, c’est que… »**: [Link](https://www.football365.fr/un-bleu-retrouve-du-plaisir-en-catalogne-la-verite-cest-que-10289424.html)
+- **Une Liga "truquée", la "Negreira Liga" : le Real repart en guerre contre l'arbitrage**: [Link](https://www.eurosport.fr/football/la-liga/2025-2026/une-liga-truquee-la-negreira-liga-le-real-madrid-repart-en-guerre-contre-larbitrage_sto23289346/story.shtml)
+
+
 ### rennes – angers (N/A, Sat, 11 Apr 2026 11:40:00 -0700)
 
 - **Stade Rennais - Angers. « Il ne doit pas se fixer de limites… » : Estéban Lepaul, les dessous d’une folle ascension**: [Link](https://www.ouest-france.fr/sport/football/stade-rennais/stade-rennais-angers-il-ne-doit-pas-se-fixer-de-limites-esteban-lepaul-les-dessous-dune-folle-ascension-f127211c-3266-11f1-9a1c-03e0a2077847)
