@@ -1,3 +1,24 @@
+### ocs safi (N/A, Sat, 11 Apr 2026 10:50:00 -0700)
+
+- **Coupe de la CAF : l’Olympic Safi affronte l’USM Alger en demi-finale**: [Link](https://mobile.telquel.ma/instant-t/2026/04/10/coupe-de-la-caf-lolympic-safi-affronte-lusm-alger-en-demi-finale_1983759/)
+- **USM Alger-OC Safi: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/coupe-caf/usm-alger-oc-safi-a-quelle-heure-et-sur-quelle-chaine_XHPQRBN6NVDRPNYR3FRFCDJLSM/)
+- **L'Olympique Safi arrive en Algérie par vol spécial pour affronter l'USM Alger**: [Link](https://m.elbotola.com/fr/article/2026-04-08-23-29-116.html)
+
+
+### اولمبيك اسفي (N/A, Sat, 11 Apr 2026 10:20:00 -0700)
+
+- **"قنصلية الجزائر" تؤازر نادي آسفي**: [Link](https://www.hespress.com/%D9%82%D9%86%D8%B5%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%A4%D8%A7%D8%B2%D8%B1-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A2%D8%B3%D9%81%D9%8A-1729348.html)
+- **القنصل المغربي بالجزائر يستقبل بعثة أولمبيك آسفي قبل مواجهة اتحاد العاصمة**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%82%D9%86%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A8%D8%B9%D8%AB%D8%A9-%D8%A3/)
+- **أولمبيك آسفي… حين يتحول الحلم إلى مشروع إنجاز قاري في قلب الجزائر**: [Link](https://www.almountakhab.com/node/16224387)
+
+
+### بث مباشر (N/A, Sat, 11 Apr 2026 10:10:00 -0700)
+
+- **أول من استقبل رونالدو.. الكشف عن حكم مباراة النصر والأخدود**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D9%84-%D9%85%D9%86-%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AF%D9%8A%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D8%AF%D9%88%D8%AF/bltcd722e1104714c03)
+- **مباشر.. مباراة النصر ضد الأخدود في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/11/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D8%AE%D8%AF%D9%88%D8%AF)
+- **رونالدو يتطلع لزيادة غلته.. والنصر يبحث عن انتصار قياسي جديد**: [Link](https://24.ae/article/954074/)
+
+
 ### lamine yamal (N/A, Sat, 11 Apr 2026 10:30:00 -0700)
 
 - **Lamine Yamal's cheeky nutmeg on Espanyol defender before assisting Ferran Torres goal - spotted**: [Link](https://tribuna.com/en/blogs/lamine-yamals-cheeky-nutmeg-on-espanyol-defender-before-assi/)
