@@ -1,3 +1,24 @@
+### yallakora (N/A, Sat, 11 Apr 2026 09:40:00 -0700)
+
+- **ليس الركراكي.. مدرب مغربي مُرشح لخلافة رينارد في السعودية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A--%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%85%D9%8F%D8%B1%D8%B4%D8%AD-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/blt1c4776764f38e974)
+- **إنزاغي المنتظر**: [Link](https://www.alarabiya.net/sport/views/2026/04/11/%D8%A7%D9%86%D8%B2%D8%A7%D8%BA%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1)
+- **توقعات مثيرة حول مستقبل دونيس في منتخب السعودية لكرة القدم**: [Link](https://tartousnow.com/416266/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%AD%D9%88%D9%84-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%AF%D9%88%D9%86%D9%8A%D8%B3-%D9%81%D9%8A-%D9%85%D9%86%D8%AA%D8%AE%D8%A8/)
+
+
+### yalla kora (N/A, Sat, 11 Apr 2026 09:30:00 -0700)
+
+- **من هو أسطورة برشلونة المرشح لتولي منصب المدير الرياضي بالأهلي المصري؟**: [Link](https://www.eremnews.com/sports/87keral)
+- **أسطورة برشلونة يقترب من منصب المدير الرياضي في الأهلي**: [Link](https://www.egypttelegraph.com/article/234483/%D8%A3%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%85%D9%86%D8%B5%D8%A8-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A)
+- **الإسباني زوبيزاريتا يكشف لـ"كورة بلس" حقيقة توليه منصب المدير الرياضي بالأهلي**: [Link](https://koraplus.com/article/118797/%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B2%D9%88%D8%A8%D9%8A%D8%B2%D8%A7%D8%B1%D9%8A%D8%AA%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D9%80-%D9%83%D9%88%D8%B1%D8%A9-%D8%A8%D9%84%D8%B3-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%88%D9%84%D9%8A%D9%87-%D9%85%D9%86%D8%B5%D8%A8-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1)
+
+
+### didier deschamps (N/A, Sat, 11 Apr 2026 08:50:00 -0700)
+
+- **Didier Deschamps et le Real Madrid, c’est confirmé**: [Link](https://www.sports.fr/football/espagne/didier-deschamps-et-le-real-madrid-cest-confirme-1005611.html)
+- **INFO RMC SPORT. Didier Deschamps dans la short list du Real Madrid pour la saison prochaine**: [Link](https://rmcsport.bfmtv.com/football/transferts/info-rmc-sport-didier-deschamps-dans-la-short-list-du-real-madrid-pour-la-saison-prochaine_AV-202604100550.html)
+- **Didier Deschamps est-il vraiment un choix pertinent pour le Real Madrid ?**: [Link](https://www.footmercato.net/a9190358930696253211-didier-deschamps-est-il-vraiment-un-choix-pertinent-pour-le-real-madrid)
+
+
 ### ليفربول ضد فولهام (N/A, Sat, 11 Apr 2026 09:10:00 -0700)
 
 - **موقف صلاح؟ تشكيل مباراة ليفربول وفولهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%82%D9%81-%D8%B5%D9%84%D8%A7%D8%AD-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85/bltbbd86a3cbaddfb1f)
