@@ -1,3 +1,38 @@
+### carlos alcaraz (N/A, Sat, 11 Apr 2026 06:50:00 -0700)
+
+- **Dani Mérida empieza con buen la fase previa del Conde de Godó**: [Link](https://www.puntodebreak.com/2026/04/11/dani-merida-empieza-buen-fase-previa-conde-godo)
+- **Alcaraz y Musetti podrían verse las caras en la final de Barcelona**: [Link](https://www.atptour.com/es/news/barcelona-2026-sabado-sorteo-cuadro-jodar)
+- **Hora y dónde ver en TV el Trofeo Conde de Godó 2026 de tenis**: [Link](https://www.rtve.es/television/20260411/trofeo-godo-2026-tenis-donde-ver-tv-gratis/17018082.shtml)
+
+
+### brentford – everton (N/A, Sat, 11 Apr 2026 06:40:00 -0700)
+
+- **Everton Team News For Brentford Clash**: [Link](https://www.evertonfc.com/news/2026/april/10/everton-team-news-for-brentford-clash/)
+- **Predictor picks: Find out who our expert is backing this weekend... and play the game with £1,000 up for grabs**: [Link](https://www.dailymail.co.uk/sport/football/article-15710125/Predictor-picks-matchweek-32.html)
+- **David Moyes press conference: Brentford vs Everton**: [Link](https://www.bbc.co.uk/sport/football/articles/cx2e53qw798o)
+
+
+### pl (N/A, Sat, 11 Apr 2026 06:40:00 -0700)
+
+- **Ruch amerykańskiej marynarki na strategicznym szlaku. Co na to rynki?**: [Link](https://businessinsider.com.pl/wiadomosci/okrety-usa-w-ciesninie-ormuz-donald-trump-komentuje-dzialania-marynarki/y4v2hyx)
+- **Trump podał nowe informacje ws. cieśniny Ormuz. „Rozpoczynamy"**: [Link](https://wiadomosci.radiozet.pl/swiat/trump-podal-nowe-informacje-ws-ciesniny-ormuz-rozpoczynamy)
+- **Katastrofa "większa niż Wietnam" i błąd Europy**: [Link](https://tvn24.pl/swiat/katastrofa-wieksza-niz-wietnam-i-blad-europy-st8982404)
+
+
+### classement premier league (N/A, Sat, 11 Apr 2026 06:10:00 -0700)
+
+- **Tottenham est en train de devenir le pire flop de l’histoire de la Premier League**: [Link](https://www.footmercato.net/a1325569694792503853-tottenham-est-en-train-de-devenir-le-pire-flop-de-lhistoire-de-la-premier-league)
+- **West Ham 4-0 Wolverhampton, Premier League : résumé du match (10/04/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/west-ham-wolverhampton-live/673822)
+- **Tottenham et De Zerbi sont relégables**: [Link](https://www.sports.fr/football/angleterre/tottenham-et-de-zerbi-sont-relegables-1005526.html)
+
+
+### far vs berkane (N/A, Sat, 11 Apr 2026 05:30:00 -0700)
+
+- **Royal Army Concludes Preparations for RS Berkane Clash in Champions League Semifinal**: [Link](https://m.elbotola.com/en/article/2026-04-10-19-21-624.html)
+- **AS FAR vs RS Berkane CAF Semi-Final Tickets Sell Out Over 40,000**: [Link](https://www.moroccoworldnews.com/2026/04/286212/as-far-vs-rs-berkane-caf-semi-final-tickets-sell-out-over-40000/)
+- **FAR Rabat v Renaissance Berkane: Title-chasing rivals meet in high-stakes Botola clash**: [Link](https://africasoccer.com/far-rabat-v-renaissance-berkane-title-chasing-rivals-meet-in-high-stakes-botola-clash/)
+
+
 ### paul pogba (N/A, Sat, 11 Apr 2026 06:00:00 -0700)
 
 - **Folarin Balogun equals Neymar goal streak; Paul Pogba returns**: [Link](https://www.espn.com/soccer/story/_/id/48450416/folarin-balogun-neymar-goal-monaco-paul-pogba-return-paris-fc)
