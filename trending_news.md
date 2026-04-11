@@ -1,3 +1,10 @@
+### liga (N/A, Fri, 10 Apr 2026 14:00:00 -0700)
+
+- **Spain Launches First Classic Round with 39 League Clubs in April 2026**: [Link](http://m.elbotola.com/en/article/2026-04-10-11-45-95.html)
+- **La Liga Retro TV Scoreboard Revealed**: [Link](https://www.footyheadlines.com/2026/04/la-liga-retro-tv-scoreboard-revealed.html)
+- **Why La Liga teams will play in retro shirts this weekend**: [Link](https://www.aol.com/articles/why-la-liga-teams-playing-094758193.html)
+
+
 ### مراكش (N/A, Fri, 10 Apr 2026 14:20:00 -0700)
 
 - **تساقط الثلوج بمدينة مراكش إثر موجة برد مفاجئة**: [Link](https://www.marrakechalaan.com/article-673988)
