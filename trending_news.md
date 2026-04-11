@@ -1,3 +1,24 @@
+### الطقس اليوم (N/A, Fri, 10 Apr 2026 23:50:00 -0700)
+
+- **حالة الطقس اليوم في مصر أجواء حارة تسود معظم الأنحاء**: [Link](https://tawusal.com/86945/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AD%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B3%D9%88%D8%AF/)
+- **استمرار ارتفاع درجات الحرارة على أغلب أنحاء مصر والأرصاد تحذر من الشبورة**: [Link](https://tourismdailynews.com/2026/04/11/%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%A3%D8%BA%D9%84%D8%A8-2/)
+- **ارتفاع ملحوظ في الحرارة اليوم مع شبورة صباحية وأتربة**: [Link](https://www.altreeq.com/534138)
+
+
+### احوال الطقس (N/A, Fri, 10 Apr 2026 23:20:00 -0700)
+
+- **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-57-1729265.html)
+- **أمطار رعدية ورياح قوية.. يوعابد يحذر من مخاطر التنقل في المناطق الجبلية**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A8%D8%B1%D8%AF-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7/)
+- **زخات رعدية مع تساقط البرد وتساقطات ثلجية من الجمعة إلى الأحد بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D8%AB%D9%84%D8%AC%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-20260410)
+
+
+### النادي القنيطري (N/A, Fri, 10 Apr 2026 22:20:00 -0700)
+
+- **الرجاء يحقق الفوز بفضل لمسة حاسمة من إݣيز**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A8%D9%81%D8%B6%D9%84-%D9%84%D9%85%D8%B3%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%85%D9%86-%D8%A5%DD%A3/)
+- **فوز ودي للرجاء أمام النادي القنيطري**: [Link](https://www.hesport.com/%D9%81%D9%88%D8%B2-%D9%88%D8%AF%D9%8A-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%82%D9%86%D9%8A%D8%B7%D8%B1%D9%8A-434323.html)
+- **الطاقم التقني للرجاء يستعين بتقنيات حديثة للرفع من الجاهزية**: [Link](https://barlamanesport.com/%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D9%85-%D8%A7%D9%84%D8%AA%D9%82%D9%86%D9%8A-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D9%86-%D8%A8%D8%AA%D9%82%D9%86%D9%8A%D8%A7%D8%AA-%D8%AD/)
+
+
 ### météo (N/A, Fri, 10 Apr 2026 23:30:00 -0700)
 
 - **Alerte météo. Pluies, neige et fortes rafales de vent dans plusieurs provinces**: [Link](https://medias24.com/2026/04/09/alerte-meteo-pluies-neige-et-fortes-rafales-de-vent-dans-plusieurs-provinces-1656845/)
