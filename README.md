@@ -1,3 +1,51 @@
+### ليفربول ضد فولهام (N/A, Sat, 11 Apr 2026 09:10:00 -0700)
+
+- **موقف صلاح؟ تشكيل مباراة ليفربول وفولهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%82%D9%81-%D8%B5%D9%84%D8%A7%D8%AD-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85/bltbbd86a3cbaddfb1f)
+- **فان دايك: نحتاج أداءً استثنائيًا قبل مواجهة فولهام**: [Link](https://kolelkoora.com/%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%86%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A3%D8%AF%D8%A7%D8%A1%D9%8B-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D9%8B%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88/)
+- **الرئيس التنفيذي لنادي ليفربول يحث المشجعين على النظر إلى «الحقائق» قبل الاحتجاجات المقررة ضد ارتفاع أسعار التذاكر**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0%D9%8A-%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%AD%D8%AB-%D8%A7%D9%84%D9%85%D8%B4%D8%AC%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%B8%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%82%D8%A7%D9%8A%D9%94%D9%82-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%82%D8%B1%D8%B1%D8%A9-%D8%B6%D8%AF-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%94%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA%D8%B0%D8%A7%D9%83%D8%B1/blt71dfe42a9fcd467c)
+
+
+### ocs vs usma (N/A, Sat, 11 Apr 2026 09:10:00 -0700)
+
+- **El Moden (Olympique Safi Player): "A Strong Match Awaits USM Alger, Players Aware of Responsibility"**: [Link](https://m.elbotola.com/en/article/2026-04-10-16-41-908.html)
+- **CAF Confederation Cup: Date, time, channels and head-to-head history for USM Alger vs O Safi**: [Link](https://foot-africa.com/en/news/caf-confederation-cup-date-time-channels-and-head-to-head-history-for-usm-alger-vs-o-safi-1160681/)
+- **CAF Confederation Cup: USM Alger vs Olympic Safi preview**: [Link](https://africasoccer.com/caf-confederation-cup-usm-alger-vs-olympic-safi-preview/)
+
+
+### sankt pauli – bayern (N/A, Sat, 11 Apr 2026 08:50:00 -0700)
+
+- **FC St. Pauli will gegen Bayern präsent sein und Chancen nutzen**: [Link](https://www.zdfheute.de/sport/bundesliga-pauli-bayern-100.html)
+- **In der Bundesliga ist das heute fast verhaltensauffällig**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/04/ihnen-waere-ein-sieg-gegen-den-fc-bayern-zu-goennen)
+- **Volle Rotation von Kompany? Die Aufstellungen zum Bayern-Spiel am Millerntor**: [Link](https://neunzigplus.de/bundesliga/volle-rotation-von-kompany-die-aufstellungen-zum-bayern-spiel-am-millerntor/)
+
+
+### liverpool – fulham (N/A, Sat, 11 Apr 2026 08:50:00 -0700)
+
+- **Pre-Liverpool Press Conference**: [Link](https://www.fulhamfc.com/news/2026/april/09/pre-liverpool-press-conference/)
+- **REDS VS COTTAGERS: CONFIRMED XIs OUTTTT!**: [Link](https://www.besoccer.com/new/live-liverpool-vs-fulham-1403868)
+- **Chris Sutton, Liverpool’s Fulham warning and a 35% draw trend: 3 betting angles that stand out**: [Link](https://www.el-balad.com/16909252)
+
+
+### سانت باولي ضد البايرن (N/A, Sat, 11 Apr 2026 08:50:00 -0700)
+
+- **بطولة ألمانيا: بايرن يُطارد رقما قياسيا في سانت باولي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260410-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D9%8F%D8%B7%D8%A7%D8%B1%D8%AF-%D8%B1%D9%82%D9%85%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B3%D8%A7%D9%86%D8%AA-%D8%A8%D8%A7%D9%88%D9%84%D9%8A)
+- **بايرن يلاحق رقماً قياسياً في البوندسليغا... العين على سانت باولي**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D9%84%D8%A7%D8%AD%D9%82-%D8%B1%D9%82%D9%85%D8%A7%D9%8B-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A7%D9%8B-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%BA%D8%A7-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%B3%D8%A7%D9%86%D8%AA-%D8%A8%D8%A7%D9%88%D9%84%D9%8A)
+- **سانت باولي ضد البايرن.. جاكسون يقود هجوم البافاري فى الدوري الألماني**: [Link](https://www.youm7.com/story/2026/4/11/%D8%B3%D8%A7%D9%86%D8%AA-%D8%A8%D8%A7%D9%88%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%AC%D8%A7%D9%83%D8%B3%D9%88%D9%86-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A8%D8%A7%D9%81%D8%A7%D8%B1%D9%8A-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A/7374129)
+
+
+### pyramids – al-masry (N/A, Sat, 11 Apr 2026 08:50:00 -0700)
+
+- **Refereeing Team for Pyramids vs Al-Masry Match in the League**: [Link](https://www.ysscores.com/en/news/13942967/Refereeing-Team-for-Pyramids-vs-Al-Masry-Match-in-the-League)
+- **Krunoslav Jurčić Names Pyramids FC squad for crucial Al Masry league clash**: [Link](https://africasoccer.com/krunoslav-jurcic-names-pyramids-fc-squad-for-crucial-al-masry-league-clash/)
+
+
+### منتخب السنغال لكرة القدم (N/A, Sat, 11 Apr 2026 08:50:00 -0700)
+
+- **السعودية.. هكذا احتفى رونالدو ورفاقه بذكرى ميلاد ساديو ماني**: [Link](https://arabic.cnn.com/sport/article/2026/04/11/al-nassr-players-sadio-mane)
+- **كعكة “كأس أفريقيا” تزين احتفال النصر بعيد ميلاد ماني.. هل يستفز المغرب؟ (شاهد)**: [Link](https://arabi21.com/story/1751210/%D9%83%D8%B9%D9%83%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D8%B2%D9%8A%D9%86-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A8%D8%B9%D9%8A%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF-%D9%85%D8%A7%D9%86%D9%8A-%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D9%81%D8%B2-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B4%D8%A7%D9%87%D8%AF)
+- **ماني يوجه رسالة تحفيز لزملائه أثناء احتفالية عيد ميلاده**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%AA%D8%AD%D9%81%D9%8A%D8%B2-%D9%84%D8%B2%D9%85%D9%84%D8%A7%D8%A6%D9%87-%D8%A3%D8%AB%D9%86%D8%A7%D8%A1-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84%D9%8A%D8%A9-%D8%B9%D9%8A%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF%D9%87-113169)
+
+
 ### barcelone – espanyol (N/A, Sat, 11 Apr 2026 08:40:00 -0700)
 
 
