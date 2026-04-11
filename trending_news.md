@@ -1,3 +1,17 @@
+### طماطم (N/A, Sat, 11 Apr 2026 15:20:00 -0700)
+
+- **سعر الطماطم والبصل والخضروات في الأسواق اليوم السبت 11 أبريل 2026**: [Link](https://www.almasryalyoum.com/news/details/4242626)
+- **سعر الخضار والفاكهة اليوم السبت في الأسواق**: [Link](https://arqam.news/554085/)
+- **أسعار الخضروات في سوق العبور اليوم السبت 11 أبريل تعرف ارتفاعاً بالتزامن مع توفر البامية بـ100 جنيه**: [Link](https://tawusal.com/87414/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D9%88%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%B9%D8%A8%D9%88%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3/)
+
+
+### tyson fury (N/A, Sat, 11 Apr 2026 15:10:00 -0700)
+
+- **Fury vs Makhmudov LIVE: Boxing fight time, undercard results, ringwalk, Anthony Joshua, commentary & updates**: [Link](https://www.bbc.com/sport/boxing/live/clye5rgn890t)
+- **Tyson Fury Purse! ’Gypsy King’ Takes Massive Pay Cut For Netflix Debut**: [Link](https://sports.yahoo.com/articles/tyson-fury-purse-gypsy-king-181526566.html)
+- **Fight! Tyson Fury vs Arslanbek Makhmudov Live Full Fight results updates of the main event**: [Link](https://www.issuewire.com/fight-tyson-fury-vs-arslanbek-makhmudov-live-full-fight-results-updates-of-the-main-event-1862208599601497)
+
+
 ### 2m (N/A, Sat, 11 Apr 2026 14:10:00 -0700)
 
 - **Olive Cactus Chenille For Fly Tying – 6mm Diameter, 2m Length, Pearlescent Fritz Material For Fishing Flies**: [Link](https://ruhrkanal.news/Tying-6mm-Diameter-2m-Length-Pearlescent-Fritz-Material-659680)
