@@ -1,3 +1,17 @@
+### heracles – ajax (N/A, Sat, 11 Apr 2026 13:40:00 -0700)
+
+- **Op zoek naar herstel in Almelo: 'Ben heel helder geweest richting de spelers'**: [Link](https://www.ajax.nl/artikelen/op-zoek-naar-herstel-in-almelo/)
+- **Sterk Ajax wint ’trainingspartijtje’ bij Heracles Almelo in Eredivisie**: [Link](https://www.telegraaf.nl/sport/voetbal/sterk-ajax-wint-trainingspartijtje-bij-heracles-almelo-in-eredivisie/145583968.html)
+- **LIVE - Sneller kan bijna niet: Mika Godts lepelt assist van Mokio binnen, minuut later is het weer prijs voor Ajax**: [Link](https://sporza.be/nl/matches/voetbal/buitenland/ned/vriendenloterij-eredivisie/2025-2026/regulier/30/heracles-almelo-ajax-live-sneller-kan-bijna-niet-mika-godts-lepelt-assist-van-mokio-binnen-minuut-later-is-het-weer-prijs-voor-ajax~1752056107313/)
+
+
+### asfar (N/A, Sat, 11 Apr 2026 12:00:00 -0700)
+
+- **CAF Disciplinary Committee Suspends Darak for Three Months Starting April 9 Over Doping**: [Link](https://m.elbotola.com/en/article/2026-04-10-15-26-387.html)
+- **It’s official: Royal Army star banned for three months for doping**: [Link](https://www.goal.com/en/news/it-s-official-royal-army-star-banned-for-three-months-for-doping/bltbff94ad2ad5b6989)
+- **AS FAR star Zineddine Derrag banned for three months after CAF doping violation**: [Link](https://africasoccer.com/as-far-star-zineddine-derrag-banned-for-three-months-after-caf-doping-violation/)
+
+
 ### ميلانيا ترمب (N/A, Sat, 11 Apr 2026 13:30:00 -0700)
 
 - **"قنبلة نووية سياسية".. لماذا اختارت ميلانيا "إشعال" ملف إبستين الآن؟**: [Link](https://www.aljazeera.net/politics/2026/4/11/%D9%82%D9%86%D8%A8%D9%84%D8%A9-%D9%86%D9%88%D9%88%D9%8A%D8%A9-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D8%AE%D8%AA%D8%A7%D8%B1%D8%AA)
