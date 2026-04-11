@@ -1,3 +1,17 @@
+### الدوري الاسباني (N/A, Fri, 10 Apr 2026 14:20:00 -0700)
+
+- **فليك يصعق أربيلوا: لن أهدر طاقتي للرد عليه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B5%D8%B9%D9%82-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%84%D9%86-%D8%A7%D9%94%D9%87%D8%AF%D8%B1-%D8%B7%D8%A7%D9%82%D8%AA%D9%8A-%D9%84%D9%84%D8%B1%D8%AF-%D8%B9%D9%84%D9%8A%D9%87/bltd4ac99351e3e4bcf)
+- **موعد مباراة برشلونة ضد إسبانيول في الدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/4/10/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2)
+- **فليك: "يجب أن نؤدّي واجبنا في الليغا لكن الأهم هو الفوز بدوري الأبطال"**: [Link](https://m.elbotola.com/article/2026-04-10-13-38-830.html)
+
+
+### real madrid cf (N/A, Fri, 10 Apr 2026 14:00:00 -0700)
+
+- **Dani Carvajal is finally realizing a truth he should have already known**: [Link](https://therealchamps.com/dani-carvajal-is-finally-realizing-a-truth-he-should-have-already-known-01knt70qcxst)
+- **Angry Dani Carvajal Left Teammate Injured With ‘Very Nasty Tackle’**: [Link](https://www.si.com/soccer/angry-dani-carvajal-left-teammate-injured-with-very-nasty-tackle)
+- **Real Madrid: Details of Dani Carvajal falling out with Alvaro Arbeloa revealed**: [Link](https://sports.yahoo.com/articles/real-madrid-details-dani-carvajal-122500918.html)
+
+
 ### liga (N/A, Fri, 10 Apr 2026 14:00:00 -0700)
 
 - **Spain Launches First Classic Round with 39 League Clubs in April 2026**: [Link](http://m.elbotola.com/en/article/2026-04-10-11-45-95.html)
