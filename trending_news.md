@@ -1,3 +1,24 @@
+### galatasaray – kocaelispor (N/A, Sun, 12 Apr 2026 10:20:00 -0700)
+
+- **Maça dakikalar kala Galatasaray'ın kadrosundan çıkartıldı!**: [Link](https://beinsports.com.tr/haber/maca-dakikalar-kala-galatasarayin-kadrosundan-cikartildi)
+- **((4K^tv))GS Kocaelispor CANLI yayın justin tv 12 Nisan 2026**: [Link](https://m.staradvertiser.com/rop/video/gs-kocaelispor-canli-izle-maci-0024.html)
+- **Felipe Melo Galatasaray-Kocaelispor maçı için Rams Park'a geldi**: [Link](https://www.yenicaggazetesi.com/felipe-melo-galatasaray-kocaelispor-maci-icin-rams-parka-geldi-1018514h.htm)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 12 Apr 2026 10:00:00 -0700)
+
+- **عاد من الموت.. آرسنال يمنح السيتي قبلة البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D8%A7%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D8%AA--%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%82%D8%A8%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/bltabbefeacd89fb444)
+- **مقارنة بين مسيرة أرسنال ومانشستر سيتي نحو لقب البريميرليغ**: [Link](https://www.aljazeera.net/sport/2026/4/12/%D9%85%D9%82%D8%A7%D8%B1%D9%86%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **قدم.. بورنموث يباغت أرسنال ويعقد مهمته في الفوز بلقب البريميرليغ**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%8A%D8%A8%D8%A7%D8%BA%D8%AA-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%8A%D8%B9%D9%82%D8%AF-%D9%85%D9%87%D9%85%D8%AA%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A8%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA/3902193)
+
+
+### benfica – cd nacional (N/A, Sun, 12 Apr 2026 09:30:00 -0700)
+
+- **Benfica x Nacional (12 de abr, 2026) Ao vivo**: [Link](https://www.espn.com.br/futebol/partida/_/jogoId/750500)
+- **Diogo Narciso chega isolado para vencer a Clássica de Viana do Castelo**: [Link](https://sapo.pt/artigo/diogo-narciso-chega-isolado-para-vencer-a-classica-de-viana-do-castelo-69dbd51ff9b8534ae3cd25f8)
+- **Ainda havia adeptos a sentarem-se nas cadeiras: Schjelderup inaugurou o marcador na Luz logo aos 3 minutos**: [Link](https://www.record.pt/multimedia/videos/amp/ainda-havia-adeptos-a-sentarem-se-nas-cadeiras-schjelderup-inaugurou-o-marcador-na-luz-logo-aos-3-minutos)
+
+
 ### جياني إنفانتينو (N/A, Sun, 12 Apr 2026 09:40:00 -0700)
 
 - **إنفانتينو يتحدث من قلب الجزائر عن "مباراة العار": الجميع يعلم ما حدث**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D9%85%D9%86-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%B9%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D8%B1--%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D9%8A%D8%B9%D9%84%D9%85-%D9%85%D8%A7-%D8%AD%D8%AF%D8%AB/bltfdfdd065aea59b3b)
