@@ -1,3 +1,10 @@
+### air france (N/A, Sat, 11 Apr 2026 23:10:00 -0700)
+
+- **Air France Jet aborts takeoff at LAX after another aircraft enters runway**: [Link](https://www.nbclosangeles.com/news/local/air-france-jet-aborts-takeoff-at-lax-after-another-aircraft-enters-runway/3874619/)
+- **Air France Plane Aborts Takeoff After Aircraft Enters Runway**: [Link](https://www.today.com/video/air-france-plane-aborts-takeoff-at-lax-after-jet-enters-runway-261170245598)
+- **Air France Aborts Takeoff LAX, EU Airports Running Out of Gas, 1st Lady 70M Dollar Jet, TSA Helps ICE Arrests, Dubai's Tourism is Dead and More Travel News**: [Link](https://eyeoftheflyer.com/2026/04/11/air-france-aborts-takeoff-lax-eu-airports-running-out-of-gas-1st-lady-70m-dollar-jet-tsa-helps-ice-arrests-dubais-tourism-is-dead-and-more-travel-news/)
+
+
 ### g (N/A, Sat, 11 Apr 2026 20:00:00 -0700)
 
 - **Coachella headliner advised not to speak out against ICE: ‘It’s better you don’t’**: [Link](https://www.kron4.com/entertainment-news/coachella-headliner-advised-not-to-speak-out-against-ice-its-better-you-dont/)
