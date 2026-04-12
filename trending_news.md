@@ -1,3 +1,24 @@
+### crystal palace – newcastle (N/A, Sun, 12 Apr 2026 05:20:00 -0700)
+
+- **Newcastle United line-ups as Nick Pope recalled and Lewis Miley decision made for Palace trip**: [Link](https://www.chroniclelive.co.uk/sport/football/football-news/newcastle-united-line-ups-nick-33745057)
+- **View from the Opposition: "Crystal Palace is always a tough game"**: [Link](https://www.cpfc.co.uk/news/match-previews/view-from-the-opposition-crystal-palace-is-always-a-tough-game/)
+- **Latest. How to watch Crystal Palace vs Newcastle United: TV channel, kick-off time and team news**: [Link](https://www.newcastleunited.com/en/news/how-to-watch-crystal-palace-vs-newcastle-united-tv-channel-kick-off-time-and)
+
+
+### sunderland – tottenham (N/A, Sun, 12 Apr 2026 05:20:00 -0700)
+
+- **Tottenham team confirmed vs Sunderland as Roberto De Zerbi names first starting XI**: [Link](https://www.football.london/tottenham-hotspur-fc/news/tottenham-team-confirmed-vs-sunderland-33756545)
+- **BOYLE Sports Sign-Up Offer | Bet £10 & Get £40 in Free Bets**: [Link](https://www.live-darts.com/betting-offers/boyle-sports-new-customer-offer-april/)
+- **Sunderland XI vs Spurs – Predicted lineup and team news**: [Link](https://thefootballfaithful.com/sunderland-xi-vs-spurs-predicted-lineup-and-team-news/)
+
+
+### osasuna vs real betis (N/A, Sun, 12 Apr 2026 05:20:00 -0700)
+
+- **Osasuna y Betis se preparan para un duelo intenso con cambios en sus alineaciones**: [Link](https://news.ssbcrack.com/osasuna-y-betis-se-preparan-para-un-duelo-intenso-con-cambios-en-sus-alineaciones/)
+- **Victor Munoz vs. Real Betis – Player props & odds to score a goal on April 12**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/04/11/victor-munoz-soccer-player-props-4-12-2026/89576387007/)
+- **Ezequiel Avila Faces +230 Anytime Goal Odds, Real Betis Need A Finisher Against Osasuna**: [Link](https://www.qoo10.co.id/en/international/83861/ezequiel-avila-faces-230-anytime-goal-odds-real-betis-need-a-finisher-against-osasuna/)
+
+
 ### xavi (N/A, Sun, 12 Apr 2026 04:20:00 -0700)
 
 - **Así es el refugio catalán de Xavi Hernández: tradición y arquitectura vanguardista**: [Link](https://www.noticiasdelvino.com/escapadas/2026/04/12/asi-es-el-refugio-catalan-de-xavi-hernandez-tradicion-y-arquitectura-vanguardista-73192/)
