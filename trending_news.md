@@ -1,3 +1,31 @@
+### météo marrakech (N/A, Sun, 12 Apr 2026 02:20:00 -0700)
+
+- **Alerte météo : orages violents, grêle et chutes de neige attendus dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/orages-grele-et-chutes-de-neige-attendus-dans-plusieurs-regions-du-maroc/339700)
+- **Les températures attendues ce dimanche 12 avril 2026**: [Link](https://fr.hespress.com/469257-les-temperatures-attendues-ce-dimanche-12-avril-2026.html)
+- **Alerte météo : orages, neige et vents violents attendus ce week-end dans plusieurs provinces**: [Link](https://ledesk.ma/encontinu/alerte-meteo-orages-neige-et-vents-violents-attendus-ce-week-end-dans-plusieurs-provinces/)
+
+
+### احوال الطقس (N/A, Sun, 12 Apr 2026 01:40:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-56-1729703.html)
+- **زخات رعدية مع تساقطات ثلجية ورياح عاصفية يومي السبت والأحد بعدد من المناطق (نشرة إنذارية) – اليوم 24**: [Link](https://alyaoum24.com/2019229.html)
+- **تقلبات شتوية وثلوج تكتسح المرتفعات.. هذه خارطة الطقس وتحذيرات "الأرصاد"**: [Link](https://agadir24.info/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D8%AA%D9%83%D8%AA%D8%B3%D8%AD-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A7%D8%AA-%D9%87%D8%B0.html)
+
+
+### équipe du maroc de football (N/A, Sun, 12 Apr 2026 01:10:00 -0700)
+
+- **Finale CAN 2015: Motsepe adopte une posture qui fait l'affaire du Sénégal**: [Link](https://medias24.com/2026/04/10/w-motsepe-adopte-une-posture-qui-fait-laffaire-du-senegal-1657580/)
+- **SUIVRE EN DIRECT : Conférence de presse du Président de la CAF, Dr Patrice Motsepe, au Maroc ce jeudi**: [Link](https://www.cafonline.com/fr/a-propos-de-la-caf/news/suivre-en-direct-conference-de-presse-du-president-de-la-caf-dr-patrice-motsepe-au-maroc-ce-jeudi/)
+- **Dossier de la CAN 2025 : ce qu'il faut retenir de la visite de Patrice Motsepp au Maroc**: [Link](https://lematin.ma/videos/can-2025-ce-quil-faut-retenir-de-la-visite-de-patrice-motsepp-au-maroc/339708)
+
+
+### espace schengen (N/A, Sun, 12 Apr 2026 00:50:00 -0700)
+
+- **Frontières Schengen : les changements à prévoir pour les Marocains**: [Link](https://www.lebrief.ma/frontieres-schengen-ce-qui-va-changer-pour-les-marocains-100147966/)
+- **La France reporte les contrôles biométriques aux passages de la Manche quelques jours avant le lancement du Système d’Entrée/Sortie (EES)**: [Link](https://www.visahq.com/fr/news/2026-04-09/fr/france-postpones-biometric-checks-at-channel-crossings-days-before-ees-go-live/)
+- **L’EES déployé en Europe, ce qui change dès ce 10 avril 2026 aux frontières de l’espace Schengen**: [Link](https://visasnews.com/lees-deploye-en-europe-ce-qui-change-des-ce-10-avril-2026-aux-frontieres-de-lespace-schengen/)
+
+
 ### walid regragui (N/A, Sun, 12 Apr 2026 01:30:00 -0700)
 
 - **Maroc : Un nouvel affront pour Regragui**: [Link](https://www.football365.fr/maroc-un-nouvel-affront-pour-regragui-10289406.html)
