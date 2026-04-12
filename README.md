@@ -1,3 +1,45 @@
+### jannik sinner (N/A, Sun, 12 Apr 2026 06:30:00 -0700)
+
+- **LIVE Alle 15 Sinner-Alcaraz, la finale di Montecarlo: Jannik punta a tornare il n.1 Atp**: [Link](https://www.gazzetta.it/Tennis/ATP/12-04-2026/sinner-alcaraz-live-finale-montecarlo-in-diretta.shtml)
+- **Atp Montecarlo, Sinner-Alcaraz vale il titolo**: [Link](https://www.ilgiornale.it/news/tennis/atp-montecarlo-sinner-alcaraz-vale-titolo-2650379.html)
+- **Sinner si scalda con Elias Ymer in vista della finale di Montecarlo**: [Link](https://www.tennisitaliano.it/sinner-si-scalda-con-elias-ymer-in-vista-della-finale-di-montecarlo/)
+
+
+### carlos alcaraz (N/A, Sun, 12 Apr 2026 06:30:00 -0700)
+
+- **Alcaraz defenderá ante Sinner la corona de Montecarlo y el cetro ATP**: [Link](https://www.marca.com/tenis/masters-1000-montecarlo/2026/04/11/alcaraz-defendera-sinner-corona-montecarlo-cetro-atp.html)
+- **Dónde y cómo ver en vivo y gratis Carlos Alcaraz vs. Jannik Sinner hoy: TV y streaming online de la final de Montecarlo 2026**: [Link](https://www.sportingnews.com/es/tenis/news/donde-como-ver-gratis-alcaraz-sinner-hoy-tv-online-montecarlo/300ef730daa421a80514c8af)
+- **Sinner y la calma antes de la tormenta: "No tengo nada que perder ante Alcaraz"**: [Link](https://www.tennisworldes.com/tenis/news/Jannik_Sinner/89577/sinner-y-la-calma-antes-de-la-tormenta-no-tengo-nada-que-perder-ante-alcaraz-/)
+
+
+### parme – naples (N/A, Sun, 12 Apr 2026 06:20:00 -0700)
+
+- **Parme - Naples**: [Link](https://www.flashscore.fr/match/football/napoli-69Dxbc61/parma-6DxlaxHN/resume/compositions/?mid=Uke4nUnL)
+- **COMBINÉ FOOT : + de 200€ à gagner sans pression ce dimanche avec Naples &... !**: [Link](https://www.ruedesjoueurs.com/paris-sportifs/sport-news/news-betclic/73107-combine-foot-12-04-2026.html)
+- **Composition Parme - Naples, Serie A, 32ème journée, match du dimanche 12 avril 2026**: [Link](https://rmcsport.bfmtv.com/football/serie-a/live/2025/match-parme-naples-journee-32_FM-250606735697.html)
+
+
+### كريستال بالاس ضد نيوكاسل يونايتد (N/A, Sun, 12 Apr 2026 06:10:00 -0700)
+
+- **تاريخ مواجهات نيوكاسل يونايتد وكريستال بالاس في الدوري الإنجليزي**: [Link](https://hihi2.com/2026/04/12/p3723186.html)
+- **شاهد الآن مجانًا: القنوات الناقلة لمباراة كريستال بالاس ضد نيوكاسل في الدوري الإنجليزي الممتاز**: [Link](https://akher.news/18855/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A7%D9%84%D8%A2%D9%86-%D9%85%D8%AC%D8%A7%D9%86%D9%8B%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7-2/)
+- **موعد مباراة كريستال بالاس ونيوكاسل في البريميرليج اليوم في الدوري الانجليزي**: [Link](https://www.so3ody.com/news/213159/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9)
+
+
+### لاله العروسه (N/A, Sun, 12 Apr 2026 06:00:00 -0700)
+
+- **“لالة العروسة” على “الأولى”**: [Link](https://assabah.ma/915230.html)
+- **جدل واسع حول “لالة العروسة” وتضامن مع أصغر زوجين في الموسم**: [Link](https://www.elhadat24.com/society2/277146/)
+- **”يوميات لالة العروسة” تثير الجدل في مواقع التواصل الاجتماعي**: [Link](https://www.telegraphe.ma/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3%D8%A9-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A)
+
+
+### nottm forest – aston villa (N/A, Sun, 12 Apr 2026 05:50:00 -0700)
+
+- **Nottingham Forest vs. Aston Villa team news: Unai Emery makes surprise defensive change for City Ground showdown**: [Link](https://www.sportsmole.co.uk/football/aston-villa/top-four-race/news/nottingham-forest-aston-villa-starting-lineups-confirmed-emery-makes-two-changes-for-city-ground-trip_595576.html)
+- **Villans return to Premier League action**: [Link](https://www.avfc.co.uk/news/2026/april/12/prematch-villans-return-to-premier-league-action/)
+- **Emi Martinez pulled from Aston Villa starting XI less than 20 minutes before kick-off against Nottingham Forest**: [Link](https://www.thesun.co.uk/sport/38795918/emi-martinez-pulled-aston-villa-starting-xi-nottingham-forest/)
+
+
 ### crystal palace – newcastle (N/A, Sun, 12 Apr 2026 05:20:00 -0700)
 
 - **Newcastle United line-ups as Nick Pope recalled and Lewis Miley decision made for Palace trip**: [Link](https://www.chroniclelive.co.uk/sport/football/football-news/newcastle-united-line-ups-nick-33745057)
