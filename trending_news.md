@@ -1,3 +1,24 @@
+### como vs inter (N/A, Sun, 12 Apr 2026 12:30:00 -0700)
+
+- **Como vs Inter de Milán: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/como-vs-inter-de-milan-previa-predicciones-y-alineaciones)
+- **Como - Inter: horario y dónde ver hoy en TV el partido de la Serie A**: [Link](https://www.marca.com/futbol/2026/04/12/inter-horario-ver-hoy-tv-partido-serie.html)
+- **EN VIVO: Como 1907 e Inter, sin goles en el duelo de la fecha 32 de la Serie A**: [Link](https://www.directvsports.com/futbol/en-vivo-como-1907-e-inter-sin-goles-en-el-duelo-de-la-fecha-32-de-la-serie-a-20260409-0039.html)
+
+
+### كومو ضد الإنتر (N/A, Sun, 12 Apr 2026 12:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة كومو وإنتر في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D9%88%D9%85%D9%88-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1239eecebcc7f784)
+- **الحلم سبورت : إحصائيات نصف ساعة من مباراة إنتر ميلان وكومو في الدوري الإيطالي**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%A5%D8%AD%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%86%D8%B5%D9%81-%D8%B3%D8%A7%D8%B9%D8%A9-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B1-10/)
+- **قدم.. أودينيزي يوقف انتصارات كومو في الدوري الإيطالي**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A3%D9%88%D8%AF%D9%8A%D9%86%D9%8A%D8%B2%D9%8A-%D9%8A%D9%88%D9%82%D9%81-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D9%83%D9%88%D9%85%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A/3895077)
+
+
+### wac (N/A, Sun, 12 Apr 2026 12:00:00 -0700)
+
+- **WAC Podcast - Victoria Cameron, Tarleton State**: [Link](https://wacsports.com/news/2026/4/10/track-and-field-wac-podcast-victoria-cameron-tarleton-state.aspx)
+- **Cameron takes gold in 100 meters, runs second-fastest time in the world, leads Texans at Texas Relays**: [Link](https://tarletonsports.com/news/2026/4/4/track-field-cameron-takes-gold-100-meters-runs-second-fastest-time-in-the-world-leads-texans-at-texas-relays.aspx)
+- **Watch: Victoria Cameron was on at the Texas Relays she clocked an 11.01 (+1.2) 100m**: [Link](https://www.yardbarker.com/track_and_field/articles/watch_victoria_cameron_was_on_at_the_texas_relays_she_clocked_an_1101_12_100m/s1_15797_43695734)
+
+
 ### wydad (N/A, Sun, 12 Apr 2026 11:50:00 -0700)
 
 - **Botola Pro: changement d’horaire pour MAS–WAC**: [Link](https://sport.le360.ma/football/botola/botola-pro-changement-dhoraire-pour-maswac_ZLWVUFMF6NHDBCXCIANG6MBOKI/)
