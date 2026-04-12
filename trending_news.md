@@ -1,3 +1,24 @@
+### جياني إنفانتينو (N/A, Sun, 12 Apr 2026 09:40:00 -0700)
+
+- **إنفانتينو يتحدث من قلب الجزائر عن "مباراة العار": الجميع يعلم ما حدث**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D9%85%D9%86-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%B9%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D8%B1--%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D9%8A%D8%B9%D9%84%D9%85-%D9%85%D8%A7-%D8%AD%D8%AF%D8%AB/bltfdfdd065aea59b3b)
+- **بحضور فينغر… ماذا دار في اجتماع إنفانتينو بالرئيس الجزائري تبون؟**: [Link](https://www.aljazeera.net/sport/2026/4/9/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%A8%D9%88%D9%86-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A%D9%86%D8%BA%D8%B1)
+- **هذا ما قاله وليد صادي بعد تدشين المركز التقني الجهوي بتلمسان**: [Link](https://www.echoroukonline.com/%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D9%82%D8%A7%D9%84%D9%87-%D9%88%D9%84%D9%8A%D8%AF-%D8%B5%D8%A7%D8%AF%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%AF%D8%B4%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7)
+
+
+### إسبانيول (N/A, Sun, 12 Apr 2026 09:40:00 -0700)
+
+- **بسيناريو الديربي وعجز الريال.. برشلونة ينسج خيوطه بهدوء حول لقب الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%86%D8%B3%D8%AC-%D8%AE%D9%8A%D9%88%D8%B7%D9%87-%D8%A8%D9%87%D8%AF%D9%88%D8%A1-%D8%AD%D9%88%D9%84-%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/blt87bee67d3415dc53)
+- **شاهد.. نتيجة وملخص وأهداف مباراة برشلونة ضد إسبانيول في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/11/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B5%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84)
+- **برشلونة يحسم الديربي أمام إسبانيول ويعزز موقعه في الصدارة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%88%D9%8A%D8%B9%D8%B2%D8%B2-%D9%85%D9%88%D9%82%D8%B9%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-2026-04-11)
+
+
+### nice – le havre (N/A, Sun, 12 Apr 2026 09:30:00 -0700)
+
+- **DIRECT. Nice-Le Havre (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/nice-le-havre-live/676049)
+- **Nice-Le Havre en direct**: [Link](https://www.sports.fr/football/ligue-1/nice-le-havre-en-direct-3-1006008.html)
+- **Insultes, boycott… C’est la guerre dans le vestiaire de l’OGC Nice !**: [Link](https://www.footmercato.net/a110806666097909016-insultes-boycott-cest-la-guerre-dans-le-vestiaire-de-logc-nice)
+
+
 ### wac vs mas (N/A, Sun, 12 Apr 2026 09:00:00 -0700)
 
 - **Wydad Arrives in Fes, Finalizing Preparations Ahead of MAS Clash**: [Link](https://m.elbotola.com/en/article/2026-04-11-14-36-853.html)
