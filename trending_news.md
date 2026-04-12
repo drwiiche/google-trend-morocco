@@ -1,3 +1,17 @@
+### لالة العروسة (N/A, Sun, 12 Apr 2026 03:30:00 -0700)
+
+- **“لالة العروسة” على “الأولى”**: [Link](https://assabah.ma/915230.html)
+- **جدل واسع حول “لالة العروسة” وتضامن مع أصغر زوجين في الموسم**: [Link](https://www.elhadat24.com/society2/277146/)
+- **”يوميات لالة العروسة” تثير الجدل في مواقع التواصل الاجتماعي**: [Link](https://www.telegraphe.ma/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3%D8%A9-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A)
+
+
+### x (N/A, Sat, 11 Apr 2026 21:30:00 -0700)
+
+- **A Beloved X-Men Character Reportedly Won’t Be In The MCU’s Reboot (But I Totally Get It)**: [Link](https://www.yahoo.com/entertainment/movies/articles/beloved-x-men-character-reportedly-155945706.html)
+- **'X-Men' Reboot Director Hires 'Beef' Creator, 'The Bear' Writer**: [Link](https://variety.com/2026/film/news/x-men-reboot-director-beef-creator-the-bear-writer-new-script-1236710596/)
+- **New ‘X-Men’ Movie Officially Hires Creators of 2 of TV’s Greatest Series To Rewrite Script [Exclusive]**: [Link](https://collider.com/x-men-reboot-script-update-jake-schreier-new-writers-beef-lee-sung-jin-the-bear-joanna-calo/)
+
+
 ### météo marrakech (N/A, Sun, 12 Apr 2026 02:20:00 -0700)
 
 - **Alerte météo : orages violents, grêle et chutes de neige attendus dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/orages-grele-et-chutes-de-neige-attendus-dans-plusieurs-regions-du-maroc/339700)
