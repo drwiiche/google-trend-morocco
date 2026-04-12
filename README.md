@@ -1,3 +1,10 @@
+### ayyoub bouaddi maroc (N/A, Sun, 12 Apr 2026 14:20:00 -0700)
+
+- **Ayyoub Bouaddi hésite encore entre la France et le Maroc**: [Link](https://www.footmercato.net/a2916887604467260045-ayyoub-bouaddi-hesite-encore-entre-la-france-et-le-maroc)
+- **La France ou le Maroc? Pourquoi le Lillois Ayyoub Bouaddi n'a toujours pas fait son choix de sélection**: [Link](https://rmcsport.bfmtv.com/football/equipe-de-france/la-france-ou-le-maroc-pourquoi-le-lillois-ayyoub-bouaddi-n-a-toujours-pas-fait-son-choix-de-selection_AV-202604120173.html)
+- **Ayyoub Bouaddi s'est exprimé sur son avenir international - France - Lille OSC**: [Link](https://www.sofoot.com/breves/ligue-1-le-franco-marocain-ayyoub-bouaddi-na-pas-encore-tranche-pour-son-avenir-international)
+
+
 ### édouard mendy (N/A, Sun, 12 Apr 2026 14:40:00 -0700)
 
 - **Mendy: Morocco’s title felt completely unexpected, like an ‘April Fool’s prank’**: [Link](https://www.goal.com/en/lists/mendy-morocco-s-title-felt-completely-unexpected-like-an-april-fool-s-prank/blt4220c5986e389e01)
