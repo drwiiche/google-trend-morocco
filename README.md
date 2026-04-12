@@ -1,3 +1,8 @@
+### xavi (N/A, Sun, 12 Apr 2026 04:20:00 -0700)
+
+- **Así es el refugio catalán de Xavi Hernández: tradición y arquitectura vanguardista**: [Link](https://www.noticiasdelvino.com/escapadas/2026/04/12/asi-es-el-refugio-catalan-de-xavi-hernandez-tradicion-y-arquitectura-vanguardista-73192/)
+
+
 ### osasuna – betis (N/A, Sun, 12 Apr 2026 04:10:00 -0700)
 
 - **Onces de gala en Osasuna y el Betis**: [Link](https://www.infobae.com/espana/agencias/2026/04/12/onces-de-gala-en-osasuna-y-el-betis/)
