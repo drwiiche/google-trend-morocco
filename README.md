@@ -1,3 +1,31 @@
+### الترجي (N/A, Sun, 12 Apr 2026 14:10:00 -0700)
+
+- **مباشر الترجي ضد صن داونز في ذهاب نصف نهائي دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D8%B6%D8%AF-%D8%B5%D9%86-%D8%AF%D8%A7%D9%88%D9%86%D8%B2)
+- **مواجهات حاسمة في ذهاب نصف نهائي رابطة أبطال إفريقيا توتال إنيرجيز وكأس الكونفيدرالية الإفريقية توتال إنيرجيز**: [Link](https://www.cafonline.com/ar/%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%81%D9%8A-%D8%B0%D9%87%D8%A7%D8%A8-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-%D9%88%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/)
+- **صنداونز يحقق فوزا ثمينا على مستضيفه الترجي في ذهاب نصف نهائي الأبطال**: [Link](https://www.hesport.com/%D8%B5%D9%86%D8%AF%D8%A7%D9%88%D9%86%D8%B2-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D8%AB%D9%85%D9%8A%D9%86%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%AA%D8%B6%D9%8A%D9%81%D9%87-%D8%A7%D9%84-434709.html)
+
+
+### tomate (N/A, Sun, 12 Apr 2026 14:00:00 -0700)
+
+- **Flambée des prix de la tomate sur les marchés marocains : des appels au plafonnement des exportations**: [Link](https://fr.hespress.com/469266-flambee-des-prix-de-la-tomate-sur-les-marches-marocains-des-appels-au-plafonnement-des-exportations.html)
+- **Tomate : des prix record sous l’effet d’une offre en recul**: [Link](https://lematin.ma/economie/tomate-des-prix-record-sous-leffet-dune-offre-en-recul/339863)
+- **Casablanca: flambée des légumes, tension persistante sur la viande rouge**: [Link](https://h24info.ma/economie/casablanca-flambee-des-legumes-tension-persistante-sur-la-viande-rouge/)
+
+
+### aéroport de paris-charles de gaulle (N/A, Sun, 12 Apr 2026 13:50:00 -0700)
+
+- **Un vol Paris-Rabat d’Air France fait demi-tour après une alerte en cabine**: [Link](https://fr.le360.ma/societe/un-vol-paris-rabat-dair-france-fait-demi-tour-apres-une-alerte-en-cabine_7PQA4MHTARFDDDMN7ZP4BN2URY/)
+- **Un vol d'Air France entre Paris et le Maroc fait demi-tour en urgence et se pose à l'aéroport de Roissy**: [Link](https://actu.fr/ile-de-france/tremblay-en-france_93073/un-vol-d-air-france-entre-paris-et-le-maroc-fait-demi-tour-en-urgence-et-se-pose-a-l-aeroport-de-roissy_64129557.html)
+- **Odeur suspecte: un vol Paris-Rabat fait demi-tour en urgence**: [Link](https://h24info.ma/maroc/odeur-suspecte-un-vol-paris-rabat-fait-demi-tour-en-urgence/)
+
+
+### اتحاد العاصمة (N/A, Sun, 12 Apr 2026 13:50:00 -0700)
+
+- **الحيداوي يحسم جدل الجزائري فرحاني**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%8A%D8%AF%D8%A7%D9%88%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%81%D8%B1%D8%AD%D8%A7%D9%86%D9%8A-1729907.html)
+- **شاهد.. طرد وإلغاء هدفين في مباراة مثيرة بين اتحاد العاصمة وأولمبيك آسفي بكأس الكونفدرالية**: [Link](https://www.aljazeera.net/sport/2026/4/12/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%E2%81%A0%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A3%D8%B3%D9%81%D9%8A)
+- **بسبب علم المغرب.. لاعب جزائري وسط عاصفة من الانتقادات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%B9%D9%84%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D9%84%D8%A7%D8%B9%D8%A8-%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1%D9%8A-%D9%88%D8%B3%D8%B7-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA/bltd80aa45ff63112ab)
+
+
 ### inter milan (N/A, Sun, 12 Apr 2026 13:40:00 -0700)
 
 - **Serie A official line-ups: Como vs. Inter**: [Link](https://football-italia.net/serie-a-official-line-ups-como-vs-inter-2/)
