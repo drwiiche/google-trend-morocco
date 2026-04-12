@@ -1,3 +1,63 @@
+### wydad (N/A, Sun, 12 Apr 2026 11:50:00 -0700)
+
+- **Botola Pro: changement d’horaire pour MAS–WAC**: [Link](https://sport.le360.ma/football/botola/botola-pro-changement-dhoraire-pour-maswac_ZLWVUFMF6NHDBCXCIANG6MBOKI/)
+- **Coup dur pour Hakim Ziyech**: [Link](https://www.bladi.net/coup-hakim-ziyech,120549.html)
+- **Le Wydad affronte le Maghreb de Fès avec des absences importantes**: [Link](https://www.ysscores.com/fr/news/13943432/Le-Wydad-affronte-le-Maghreb-de-F%C3%A8s-avec-des-absences-importantes)
+
+
+### lyon – lorient (N/A, Sun, 12 Apr 2026 11:50:00 -0700)
+
+- **DIRECT. OL-Lorient (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/lyon-lorient-live/676047)
+- **PRONOS PARIS RMC Le pari sûr du 12 avril - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-12-avril-ligue-1_AN-202604110361.html)
+- **Le clash du dimanche soir : Dominik Greif x Yvon Mvogo**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-le-clash-du-dimanche-soir-dominik-greif-x-yvon-mvogo/MoBiPi5T/)
+
+
+### البطولة (N/A, Sun, 12 Apr 2026 11:50:00 -0700)
+
+- **سابقة في تاريخ الكرة المغربية.. البطولة تتوقف أربعة أشهر في موسم واحد**: [Link](https://m.elbotola.com/article/2026-04-12-16-36-332.html)
+- **توقف غامض للدوري المغربي.. وشبح موسم غير مكتمل يلوح في الأفق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%82%D9%81-%D8%BA%D8%A7%D9%85%D8%B6-%D9%84%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A--%D9%88%D8%B4%D8%A8%D8%AD-%D9%85%D9%88%D8%B3%D9%85-%D8%BA%D9%8A%D8%B1-%D9%85%D9%83%D8%AA%D9%85%D9%84-%D9%8A%D9%84%D9%88%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D9%82/blt2a17268c54bae8be)
+- **ورطة البطولة وتعيين سفراء الأدغال الإفريقبة**: [Link](https://www.almountakhab.com/node/13224300)
+
+
+### wydad vs mas (N/A, Sun, 12 Apr 2026 11:50:00 -0700)
+
+- **Fatal Tigers Refuse to Reveal Tifo Content Ahead of Wydad Clash, Warn of Stand Boycott**: [Link](https://m.elbotola.com/en/article/2026-04-11-13-45-788.html)
+
+
+### wydad ac (N/A, Sun, 12 Apr 2026 11:50:00 -0700)
+
+- **لاعبو الوداد يتضامنون مع رضى الهجهوج**: [Link](https://barlamanesport.com/%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AA%D8%B6%D8%A7%D9%85%D9%86%D9%88%D9%86-%D9%85%D8%B9-%D8%B1%D8%B6%D9%89-%D8%A7%D9%84%D9%87%D8%AC%D9%87%D9%88%D8%AC/)
+- **نجوم الوداد يفاجؤن الهجهوج -صورة**: [Link](https://sport.lesiteinfo.com/elbotola/492479.html)
+- **الوداد يفتقد خدمات 5 لاعبين في قمة المغرب الفاسي**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%81%D8%AA%D9%82%D8%AF-%D8%AE%D8%AF%D9%85%D8%A7%D8%AA-4-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1/)
+
+
+### ath. bilbao – villarreal (N/A, Sun, 12 Apr 2026 11:20:00 -0700)
+
+- **Athletic Club vs Villarreal: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c0rxp0p05w7t)
+- **Nicolas Pepe vs. Athletic Bilbao – Player props & odds to score a goal on April 12**: [Link](https://prosoccerwire.usatoday.com/story/sports/2026/04/12/nicolas-pepe-soccer-player-props-4-12-2026/89576505007/)
+- **Marcelino wants intensity in push for Europe**: [Link](https://www.beinsports.com/en-nz/football/laliga/articles/marcelino-wants-intensity-in-push-for-europe-2026-04-11)
+
+
+### côme – inter (N/A, Sun, 12 Apr 2026 11:10:00 -0700)
+
+- **Como-Inter, Sky o Dazn? Dove vederla in streaming e in tv**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/12-04-2026/como-inter-dove-vederla-in-streaming-e-in-tv.shtml)
+- **Fabregas: “Serve una personalità devastante contro l’Inter, domina il 95% delle partite”**: [Link](https://www.fcinter1908.it/news/interviste/fabregas-serve-una-personalita-devastante-contro-linter-domina-il-95-delle-partite/)
+- **Serie A, in campo Como-Inter DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/12/serie-a-in-campo-como-inter-diretta_7bf8e0d2-c3b5-4070-b5e6-443b8ce21abc.html)
+
+
+### alexandre grimaldi (N/A, Sun, 12 Apr 2026 11:10:00 -0700)
+
+- **Prince Albert and Son Alexandre Attend Monte Carlo Tennis Tournament Separately**: [Link](https://nationaltoday.com/us/fl/miami/news/2026/04/12/prince-albert-and-son-alexandre-attend-monte-carlo-tennis-tournament-separately/)
+- **Prince Albert and rarely-seen son Alexandre Grimaldi, 22, attend tennis tournament separately**: [Link](https://www.hellomagazine.com/royalty/895070/prince-albert-son-alexandre-grimaldi-tennis-tournament-separately/)
+
+
+### cyberattaque (N/A, Sun, 12 Apr 2026 11:00:00 -0700)
+
+- **Jabaroot revendique une nouvelle cyberattaque visant la CNOPS**: [Link](https://mobile.telquel.ma/2026/04/10/jabaroot-revendique-une-nouvelle-cyberattaque-visant-la-cnops_1983630)
+- **Cyberattaque CNOPS : trois millions d’adhérents potentiellement exposés**: [Link](https://www.lebrief.ma/cyberattaque-cnops-trois-millions-dadherents-potentiellement-exposes-100147956/)
+- **Cyberattaque au Maroc : la CNOPS visée, Jabaroot revendique une fuite présumée massive**: [Link](https://www.afrik.com/cyberattaque-au-maroc-la-cnops-visee-jabaroot-revendique-une-fuite-presumee-massive)
+
+
 ### botola (N/A, Sun, 12 Apr 2026 10:40:00 -0700)
 
 - **زياش في مرمى الانتقادات.. تراجع فني وأحداث خارجية تشعل المشهد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%81%D9%8A-%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA--%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%81%D9%86%D9%8A-%D9%88%D8%A7%D9%94%D8%AD%D8%AF%D8%A7%D8%AB-%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF/bltfa939642abbcb6f7)
