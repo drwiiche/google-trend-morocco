@@ -1,3 +1,24 @@
+### inter milan (N/A, Sun, 12 Apr 2026 13:40:00 -0700)
+
+- **Serie A official line-ups: Como vs. Inter**: [Link](https://football-italia.net/serie-a-official-line-ups-como-vs-inter-2/)
+- **'We are still at the beginning of our journey' – Fabregas tempers expectations ahead of Inter clash**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/we-are-still-at-the-beginning-of-our-journey--fabregas-tempers-expectations-ahead-of-inter-clash-2026-04-11)
+- **Como-Inter: Match Preview**: [Link](https://comofootball.com/en/comointer-matchpreview/)
+
+
+### taraji (N/A, Sun, 12 Apr 2026 13:00:00 -0700)
+
+- **Where to watch Esperance Tunis vs Mamelodi Sundowns LIVE: time and TV channel**: [Link](https://www.beinsports.com/en-us/soccer/caf-champions-league/articles/how-to-watch-esperance-tunis-vs-mamelodi-sundowns-live-2026-04-11)
+- **Marques Cautions Sundowns On Mentality Of North African Teams In CAF CL**: [Link](https://www.soccerladuma.co.za/psl/mamelodi-sundowns/hugo-marques-cautions-sundowns-on-mentality-of-north-african-teams-in-caf-cl)
+- **Ultras, lasers and flares await Champions League-chasing Sundowns in Tunisia**: [Link](https://www.news24.com/sport/soccer/psl/ultras-lasers-and-flares-await-champions-league-chasing-sundowns-in-tunisia-20260410-1244)
+
+
+### أتلتيك بيلباو ضد فياريال (N/A, Sun, 12 Apr 2026 12:50:00 -0700)
+
+- **فياريال يتقدم بهدفين أمام اتلتيك بيلباو في الشوط الأول**: [Link](https://www.elbalad.news/6933947)
+- **تعرّف على تفاصيل مباراة أتلتيك بلباو ضد فياريال في الدوري الإسباني بتاريخ 2026/04/12 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D8%AA%D8%A7)
+- **أوناحي أفضل لاعب مع جيرونا للمرة الثانية على التوالي**: [Link](https://snrtnews.com/article/149550)
+
+
 ### sahara occidental (N/A, Sun, 12 Apr 2026 12:50:00 -0700)
 
 - **Sahara occidental : dans un revirement inattendu, le Mali annonce soutenir la position du Maroc**: [Link](https://www.lemonde.fr/afrique/article/2026/04/12/sahara-occidental-dans-un-revirement-inattendu-le-mali-annonce-soutenir-la-position-du-maroc_6679585_3212.html)
