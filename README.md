@@ -1,3 +1,24 @@
+### osasuna – betis (N/A, Sun, 12 Apr 2026 04:10:00 -0700)
+
+- **Onces de gala en Osasuna y el Betis**: [Link](https://www.infobae.com/espana/agencias/2026/04/12/onces-de-gala-en-osasuna-y-el-betis/)
+- **Pellegrini define su guardia para el asalto a El Sadar**: [Link](https://www.vavel.com/es/futbol/2026/04/11/betis/1257169-pellegrini-define-su-guardia-para-el-asalto-a-el-sadar.html)
+- **Europa pasa por que Osasuna mantenga su fortaleza en El Sadar ante un rival directo**: [Link](https://www.naiz.eus/fr/info/noticia/20260411/europa-pasa-por-que-osasuna-mantenga-su-fortaleza-en-el-sadar-ante-un-rival-directo)
+
+
+### مفاوضات (N/A, Sun, 12 Apr 2026 03:30:00 -0700)
+
+- **بعد تعثر المفاوضات.. 3 سيناريوهات تحدد مستقبل صراع واشنطن وطهران**: [Link](https://www.aljazeera.net/politics/2026/4/12/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-3-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D8%AA%D8%AD%D8%AF%D8%AF)
+- **ملخص سريع لما حدث بمحادثات إيران وأمريكا وعدم التوصل لاتفاق**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/12/us-iran-peace-talks-end-with-no-agreement-after-21-hours-of-discussions-catch-up)
+- **مباشر - قاليباف: واشنطن لم تكسب ثقة الوفد الإيراني خلال المحادثات في باكستان**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260412-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%A8%D9%8A%D9%86-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A7%D9%86%D8%AA%D9%87%D8%AA-%D8%AF%D9%88%D9%86-%D8%A3%D9%86-%D9%8A%D8%AA%D9%88%D8%B5%D9%84-%D8%A7%D9%84%D8%AC%D8%A7%D9%86%D8%A8%D8%A7%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D8%AA%D9%81%D8%A7%D9%82)
+
+
+### neil el aynaoui (N/A, Sun, 12 Apr 2026 01:50:00 -0700)
+
+- **Mercato : en manque de temps de jeu, Neil El Aynaoui envisage un départ de l’AS Roma**: [Link](https://fr.hespress.com/469165-mercato-en-manque-de-temps-de-jeu-neil-el-aynaoui-envisage-un-depart-de-las-roma.html)
+- **Neil El Aynaoui suivi en Bundesliga, un départ de la Roma envisagé**: [Link](https://lionsdelatlas.ma/neil-el-aynaoui-suivi-en-bundesliga-un-depart-de-la-roma-envisage/)
+- **AS Roma : Gasperini appelle El Aynaoui à retrouver son meilleur niveau**: [Link](https://mountakhab.net/as-roma-gasperini-appelle-el-aynaoui-a-retrouver-son-meilleur-niveau/)
+
+
 ### لالة العروسة (N/A, Sun, 12 Apr 2026 03:30:00 -0700)
 
 - **“لالة العروسة” على “الأولى”**: [Link](https://assabah.ma/915230.html)
