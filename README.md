@@ -1,3 +1,24 @@
+### botola (N/A, Sun, 12 Apr 2026 10:40:00 -0700)
+
+- **زياش في مرمى الانتقادات.. تراجع فني وأحداث خارجية تشعل المشهد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%81%D9%8A-%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA--%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%81%D9%86%D9%8A-%D9%88%D8%A7%D9%94%D8%AD%D8%AF%D8%A7%D8%AB-%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF/bltfa939642abbcb6f7)
+- **الوداد يفتقد خدمات 5 لاعبين في قمة المغرب الفاسي**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%81%D8%AA%D9%82%D8%AF-%D8%AE%D8%AF%D9%85%D8%A7%D8%AA-4-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1/)
+- **"فاتال تايغرز" يرفض كشف "التيفو"**: [Link](https://www.hespress.com/%D9%81%D8%A7%D8%AA%D8%A7%D9%84-%D8%AA%D8%A7%D9%8A%D8%BA%D8%B1%D8%B2-%D9%8A%D8%B1%D9%81%D8%B6-%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D9%8A%D9%81%D9%88-1729501.html)
+
+
+### ترتيب الدوري المغربي (N/A, Sun, 12 Apr 2026 10:40:00 -0700)
+
+- **بث مباشر مباراة الفيصلي والجزيرة الآن في الدوري الأردني 2026 | يوتيوب اتحاد القدم**: [Link](https://www.raya.ps/news/1215331.html)
+- **ترتيب هدافي الدوري الأردني 2025/2026 بعد الجولة 23**: [Link](https://tawusal.com/89417/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-2025-2026-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC%D9%88/)
+- **نتائج مباريات الدوري الأردني 2025/2026 بعد الجولة 23**: [Link](https://www.365scores.com/ar/news/magazine/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-2025-2026-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84-5/)
+
+
+### botola pro (N/A, Sun, 12 Apr 2026 10:40:00 -0700)
+
+- **Wydad Arrives in Fes, Finalizing Preparations Ahead of MAS Clash**: [Link](https://m.elbotola.com/en/article/2026-04-11-14-36-853.html)
+- **Wydad Faces Maghreb Fes Amid Significant Absences**: [Link](https://www.ysscores.com/en/news/13943432/Wydad-Faces-Maghreb-Fes-Amid-Significant-Absences)
+- **Wydad Receives Key Squad Boost for Maghreb Fez Match**: [Link](https://africasoccer.com/wydad-handed-major-squad-boost-ahead-of-crucial-maghreb-fez-clash/)
+
+
 ### galatasaray – kocaelispor (N/A, Sun, 12 Apr 2026 10:20:00 -0700)
 
 - **Maça dakikalar kala Galatasaray'ın kadrosundan çıkartıldı!**: [Link](https://beinsports.com.tr/haber/maca-dakikalar-kala-galatasarayin-kadrosundan-cikartildi)
