@@ -1,3 +1,17 @@
+### walid regragui (N/A, Sun, 12 Apr 2026 01:30:00 -0700)
+
+- **Maroc : Un nouvel affront pour Regragui**: [Link](https://www.football365.fr/maroc-un-nouvel-affront-pour-regragui-10289406.html)
+- **Nasser Larguet, le Marocain, proche de la sortie à la Fédération saoudienne de football**: [Link](https://m.elbotola.com/fr/article/2026-04-11-16-41-778.html)
+- **Le sélectionneur Hervé Renard reste en poste et disputera sa deuxième Coupe du monde avec l'Arabie saoudite**: [Link](https://www.lequipe.fr/Football/Actualites/Le-selectionneur-herve-renard-reste-en-poste-et-disputera-sa-deuxieme-coupe-du-monde-avec-l-arabie-saoudite/1664814)
+
+
+### طقس مراكش (N/A, Sat, 11 Apr 2026 23:50:00 -0700)
+
+- **"التبروري" يكسو مدينة مراكش**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A7%D9%84%D8%AA%D8%A8%D8%B1%D9%88%D8%B1%D9%8A-%D9%8A%D9%83%D8%B3%D9%88-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-995322.html)
+- **تساقط الثلوج بمدينة مراكش إثر موجة برد مفاجئة**: [Link](https://www.marrakechalaan.com/article-673988)
+- **سوء الأحوال الجوية يدفع مساجد بمراكش إلى الجمع بين صلاتي ا?...**: [Link](https://kech24.com/%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%8A%D8%AF%D9%81%D8%B9-%D9%85%D8%B3%D8%A7%D8%AC%D8%AF-%D8%A8%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%85%D8%B9-%D8%A8%D9%8A%D9%86-%D8%B5%D9%84%D8%A7%D8%AA%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B9%D8%B4%D8%A7%D8%A1.html)
+
+
 ### air france (N/A, Sat, 11 Apr 2026 23:10:00 -0700)
 
 - **Air France Jet aborts takeoff at LAX after another aircraft enters runway**: [Link](https://www.nbclosangeles.com/news/local/air-france-jet-aborts-takeoff-at-lax-after-another-aircraft-enters-runway/3874619/)
