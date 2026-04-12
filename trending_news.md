@@ -1,3 +1,31 @@
+### sinner (N/A, Sun, 12 Apr 2026 07:10:00 -0700)
+
+- **How to watch Alcaraz vs Sinner for FREE: TV Channels for Monte-Carlo Masters Final**: [Link](https://www.techradar.com/how-to-watch/tennis/carlos-alcaraz-vs-jannik-sinner-monte-carlo-masters-final-free)
+- **These are the 7 Grand Tournaments that have not yet seen a final between Sinner and Alcaraz**: [Link](https://www.puntodebreak.com/en/2026/04/11/these-are-the-7-grand-tournaments-that-have-not-yet-seen-final-between-sinner-and-alcaraz)
+- **Alcaraz ends Vacherot fairytale to set up Monte Carlo tennis final with Sinner**: [Link](https://www.chinadailyasia.com/article/631832)
+
+
+### باريس سان جيرمان (N/A, Sun, 12 Apr 2026 07:00:00 -0700)
+
+- **كارثة حكيمي وواقعة نجم ليبيا.. حكم مونديالي "درجة ثانية" لمباراة ليفربول وسان جيرمان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%86%D8%AC%D9%85-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7--%D8%AD%D9%83%D9%85-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86/blt9fa28bd5fb92c5b3)
+- **ديزيري دوي… «الفتى الذهبي» لسان جيرمان نجم المواعيد الكبرى!**: [Link](https://www.alquds.co.uk/%D8%AF%D9%8A%D8%B2%D9%8A%D8%B1%D9%8A-%D8%AF%D9%88%D9%8A-%D8%A7%D9%84%D9%81%D8%AA%D9%89-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A-%D9%84%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86/)
+- **سان جرمان يضع قدما بنصف النهائي**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B6%D8%B9-%D9%82%D8%AF%D9%85%D8%A7-%D8%A8%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-1728240.html)
+
+
+### espagne (N/A, Sun, 12 Apr 2026 07:00:00 -0700)
+
+- **« Une immense joie » : enlevée par sa mère dans la Somme il y a un an, la petite Calyopé retrouvée en Espagne**: [Link](https://www.leparisien.fr/faits-divers/enlevee-par-sa-mere-dans-la-somme-il-y-a-un-an-calyope-une-petite-fille-de-6-ans-retrouvee-a-lloret-de-mar-en-espagne-10-04-2026-EPOWASAQ2FFXPMYEGHAUHP2CU4.php)
+- **Calyopé retrouvée : elle était sans eau, ni électricité… la petite fille vivait dans un squat aux "conditions précaires", avec sa mère et sa grand-mère**: [Link](https://www.lindependant.fr/2026/04/10/calyope-retrouvee-elle-etait-sans-eau-ni-electricite-la-petite-fille-vivait-dans-un-squat-aux-conditions-precaires-avec-sa-mere-et-sa-grand-mere-13318960.php)
+- **Enlevée il y a un an dans la Somme, la petite Calyopée, 6 ans, retrouvée en Espagne**: [Link](https://www.cnews.fr/faits-divers/2026-04-11/enlevee-il-y-un-dans-la-somme-la-petite-calyopee-6-ans-retrouvee-en-espagne)
+
+
+### سندرلاند ضد توتنهام (N/A, Sun, 12 Apr 2026 07:00:00 -0700)
+
+- **دي زيربي مدرب توتنهام الجديد يردّ على إشاعات "مدرب الأموال"**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%8A-%D8%B2%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%B1%D8%AF%D9%91-%D8%B9%D9%84%D9%89-%D8%A5%D8%B4%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%88%D8%A7%D9%84)
+- **دي دزيربي يسعى لتحفيز لاعبيه على بذل المزيد من الجهد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AF%D9%8A-%D8%AF%D8%B2%D9%8A%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AA%D8%AD%D9%81%D9%8A%D8%B2-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-%D8%B9%D9%84%D9%89-%D8%A8%D8%B0%D9%84-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%87%D8%AF-2026-04-10)
+- **روبرتو دي زيربي، أهلاً بك في «مهمتك المستحيلة»! كيف يمكن لتوتنهام الهروب من الهبوط رغم موسم من الجحيم**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B1%D9%88%D8%A8%D8%B1%D8%AA%D9%88-%D8%AF%D9%8A-%D8%B2%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%94%D9%87%D9%84%D8%A7%D9%8B-%D8%A8%D9%83-%D9%81%D9%8A-%D9%85%D9%87%D9%85%D8%AA%D9%83-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AD%D9%8A%D9%84%D8%A9-%D9%83%D9%8A%D9%81-%D9%8A%D9%85%D9%83%D9%86-%D9%84%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D9%87%D8%B1%D9%88%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%A8%D9%88%D8%B7-%D8%B1%D8%BA%D9%85-%D9%85%D9%88%D8%B3%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%AD%D9%8A%D9%85/blt5e87990470fa62d8)
+
+
 ### jannik sinner (N/A, Sun, 12 Apr 2026 06:30:00 -0700)
 
 - **LIVE Alle 15 Sinner-Alcaraz, la finale di Montecarlo: Jannik punta a tornare il n.1 Atp**: [Link](https://www.gazzetta.it/Tennis/ATP/12-04-2026/sinner-alcaraz-live-finale-montecarlo-in-diretta.shtml)
