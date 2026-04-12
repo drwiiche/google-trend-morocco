@@ -1,3 +1,10 @@
+### g (N/A, Sat, 11 Apr 2026 20:00:00 -0700)
+
+- **Coachella headliner advised not to speak out against ICE: ‘It’s better you don’t’**: [Link](https://www.kron4.com/entertainment-news/coachella-headliner-advised-not-to-speak-out-against-ice-its-better-you-dont/)
+- **Karol G Didn’t Wait For Coachella To Make History — Her Google Campaign Just Did**: [Link](https://www.forbes.com/sites/oliviashalhoup/2026/04/10/karol-g-didnt-wait-for-coachella-to-make-history---her-google-campaign-just-did/)
+- **Karol G Makes History as First Latina Coachella Headliner**: [Link](https://nationaltoday.com/us/ca/coachella/news/2026/04/10/karol-g-makes-history-as-first-latina-coachella-headliner/)
+
+
 ### hibapress (N/A, Sat, 11 Apr 2026 23:00:00 -0700)
 
 - **أضخم كائن بالماء.. رصد حوت أزرق قبالة سواحل الأرجنتين**: [Link](https://www.alarabiya.net/science/2026/04/11/%D8%A7%D8%B6%D8%AE%D9%85-%D9%83%D8%A7%D8%A6%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%A7%D8%A1-%D8%B1%D8%B5%D8%AF-%D8%AD%D9%88%D8%AA-%D8%A7%D8%B2%D8%B1%D9%82-%D9%82%D8%A8%D8%A7%D9%84%D8%A9-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%A7%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
