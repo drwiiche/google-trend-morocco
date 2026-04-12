@@ -1,3 +1,31 @@
+### بنيامين نتنياهو (N/A, Sun, 12 Apr 2026 08:40:00 -0700)
+
+- **هجوم إسرائيلي على أردوغان وتركيا تصف نتنياهو بأنه "هتلر العصر"**: [Link](https://www.aljazeera.net/news/2026/4/12/%D9%87%D8%AC%D9%88%D9%85-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D9%88%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D8%B5%D9%81)
+- **دوران: نتنياهو استهدف الرئيس أردوغان في حالة من اليأس**: [Link](https://aa.com.tr/ar/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7/%D8%AF%D9%88%D8%B1%D8%A7%D9%86-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A3%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%8A%D8%A3%D8%B3-/3902409)
+- **"نمر من ورق" و"مجرم يائس": تراشق كلامي بين قادة إسرائيل وتركيا بسبب الحرب في الشرق الأوسط**: [Link](https://arabic.euronews.com/2026/04/12/israel-turkey-verbal-clash-netanyahu-erdogan-war)
+
+
+### أمين عزري (N/A, Sun, 12 Apr 2026 08:30:00 -0700)
+
+- **تصرفات خادشة للحياء تثير الجدل في مباراة الجيش الملكي ونهضة بركان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B5%D8%B1%D9%81%D8%A7%D8%AA-%D8%AE%D8%A7%D8%AF%D8%B4%D8%A9-%D9%84%D9%84%D8%AD%D9%8A%D8%A7%D8%A1-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86/blt90f7d29e05e393d6)
+- **شاهد.. نتيجة وملخص وأهداف مباراة الجيش الملكي ضد نهضة بركان في نصف نهائي أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/11/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%B6%D8%AF-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%81%D9%8A-%D9%86%D8%B5%D9%81)
+- **سانتوس: الجيش الملكي لم يحسم التأهل**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86%D8%AA%D9%88%D8%B3-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%84%D9%85-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-1729787.html)
+
+
+### toulouse – lille (N/A, Sun, 12 Apr 2026 08:10:00 -0700)
+
+- **"On n'est pas dans la forme de notre vie" : Zoom sur le Toulouse FC, prochain adversaire du LOSC**: [Link](https://lepetitlillois.com/2026/04/12/on-nest-pas-dans-la-forme-de-notre-vie-zoom-sur-le-toulouse-fc-prochain-adversaire-du-losc/)
+- **TFC - LOSC : le groupe lillois**: [Link](https://www.lesviolets.com/actu/tfc-losc-le-groupe-lillois,82168.html)
+- **"On ne peut pas ne pas y penser" : avant sa double confrontation face à Lens, le TFC a un test grandeur nature face à Lille**: [Link](https://www.ladepeche.fr/2026/04/11/on-ne-peut-pas-ne-pas-y-penser-avant-sa-double-confrontation-face-a-lens-le-tfc-a-un-test-grandeur-nature-face-a-lille-13320987.php)
+
+
+### pl (N/A, Sun, 12 Apr 2026 07:50:00 -0700)
+
+- **Tusk poleciał do Korei. Tak zachowywał się na lotnisku w Seulu**: [Link](https://www.plotek.pl/plotek/7,111483,32722719,donald-tusk-odwiedzil-koree-ekspertka-jasno-o-jego-zachowaniu.html)
+- **Historyczna wizyta premiera w Azji. Polska wzmacnia relacje z Koreą i Japonią**: [Link](https://defence24.pl/polityka-obronna/historyczna-wizyta-premiera-w-azji-polska-wzmacnia-relacje-z-korea-i-japonia)
+- **Premier rozpoczął wizytę w Korei Płd., w poniedziałek uda się do Japonii**: [Link](https://www.wnp.pl/rynki/premier-rozpoczal-wizyte-w-korei-pld-w-poniedzialek-uda-sie-do-japonii,1051496.html)
+
+
 ### تشيلسي ضد مان سيتي (N/A, Sun, 12 Apr 2026 07:50:00 -0700)
 
 - **هالاند وبالمر على رأس التشكيل الرسمي لقمة سيتي وتشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%82%D9%85%D8%A9-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/blt288afc824779f14a)
