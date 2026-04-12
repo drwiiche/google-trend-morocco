@@ -1,3 +1,24 @@
+### تشيلسي ضد مان سيتي (N/A, Sun, 12 Apr 2026 07:50:00 -0700)
+
+- **هالاند وبالمر على رأس التشكيل الرسمي لقمة سيتي وتشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%82%D9%85%D8%A9-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/blt288afc824779f14a)
+- **تشيلسي ضد مانشستر سيتي.. الموعد والتشكيلتان المتوقعتان والقنوات الناقلة للبث المباشر**: [Link](https://www.aljazeera.net/sport/2026/4/11/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **مواجهة قوية ومرتقبة تجمع تشلسي بضيفه مانشستر سيتي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%AA%D8%AC%D9%85%D8%B9-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%A8%D8%B6%D9%8A%D9%81%D9%87-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-2026-04-12)
+
+
+### الدار البيضاء (N/A, Sun, 12 Apr 2026 07:50:00 -0700)
+
+- **اعتداء خطير بعين السبع يخلف بتر يد شاب وفتح تحقيق لتحديد المتورطين**: [Link](https://ar.hibapress.com/details-717164.html)
+- **الدار البيضاء..مجهولون يعتدون على شاب ويتسببون في بتر شبه كلي ليده**: [Link](https://aabbir.com/%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D9%85%D8%AC%D9%87%D9%88%D9%84%D9%88%D9%86-%D9%8A%D8%B9%D8%AA%D8%AF%D9%88%D9%86-%D8%B9%D9%84%D9%89-%D8%B4%D8%A7%D8%A8-%D9%88/)
+- **اعتداء خطير بعين السبع يخلف بتر يد شاب وفتح تحقيق لتحديد المتورطين**: [Link](https://inews.ma/article/8265816-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1%20%D8%AE%D8%B7%D9%8A%D8%B1%20%D8%A8%D8%B9%D9%8A%D9%86%20%D8%A7%D9%84%D8%B3%D8%A8%D8%B9%20%D9%8A%D8%AE%D9%84%D9%81%20%D8%A8%D8%AA%D8%B1%20%D9%8A%D8%AF%20%D8%B4%D8%A7%D8%A8%20%D9%88%D9%81%D8%AA%D8%AD%20%D8%AA%D8%AD%D9%82%D9%8A%D9%82%20%D9%84%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF%20%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%B1%D8%B7%D9%8A%D9%86-%D9%87%D8%A8%D8%A9%20%D8%A8%D8%B1%D9%8A%D8%B3)
+
+
+### chelsea – manchester city (N/A, Sun, 12 Apr 2026 07:40:00 -0700)
+
+- **Pep gives update on Dias, Stones and Gvardiol**: [Link](https://www.mancity.com/news/mens/pep-guardiola-chelsea-away-injury-update-63911416)
+- **Alan Shearer’s Premier League predictions including Chelsea vs Man City**: [Link](https://metro.co.uk/2026/04/10/alan-shearers-premier-league-predictions-including-chelsea-vs-man-city-27921395/)
+- **Chelsea vs. Man City confirmed lineups: Caicedo, Cucurella, Donnarumma decisions made for Premier League showdown**: [Link](https://www.sportsmole.co.uk/football/chelsea/title-race/news/chelsea-vs-man-city-confirmed-xis-rosenior-guardiola-recall-big-guns-for-premier-league-showdown_595584.html)
+
+
 ### sinner (N/A, Sun, 12 Apr 2026 07:10:00 -0700)
 
 - **How to watch Alcaraz vs Sinner for FREE: TV Channels for Monte-Carlo Masters Final**: [Link](https://www.techradar.com/how-to-watch/tennis/carlos-alcaraz-vs-jannik-sinner-monte-carlo-masters-final-free)
