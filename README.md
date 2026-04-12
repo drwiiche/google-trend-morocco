@@ -1,3 +1,17 @@
+### ufc (N/A, Sat, 11 Apr 2026 17:50:00 -0700)
+
+- **UFC 327 ‘Prochazka vs. Ulberg’ play-by-play, results & round scoring**: [Link](https://bitacora.com.uy/ufc-327-prochazka-vs-ulberg-play-by-play-results-round-scoring/)
+- **UFC 327 Streams!MMA: UFC 327 LIVE Streams ON TV CHANNEL**: [Link](https://www.goldderby.com/topic/ufc-327-streamsmma-ufc-327-live-streams-on-tv-channel/)
+- **Carlos Ulberg on goals for first title fight vs. Jiri Prochazka at UFC 327: ‘Keep my head intact and walk out of there alive’**: [Link](https://www.mmafighting.com/ufc/481065/carlos-ulberg-on-goals-for-first-title-fight-vs-jiri-prochazka-at-ufc-327-keep-my-head-intact-and-walk-out-of-there-alive)
+
+
+### إنتر ميامي ضد ريد بولز (N/A, Sat, 11 Apr 2026 17:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي وريد بولز في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%B1%D9%8A%D8%AF-%D8%A8%D9%88%D9%84%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltfb66bb3aa21a20a1)
+- **التشكيلات والإحصائيات والمعاينة والقناة التلفزيونية وتفاصيل البث المباشر عبر الإنترنت بينما يتحدث مدرب MLS عن تكتيكات ميسي**: [Link](https://albalad.news/sport/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D8%A5%D8%AD%D8%B5%D8%A7%D8%A6%D9%8A%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D9%8A%D9%86%D8%A9-%D9%88%D8%A7%D9%84-2/425303/)
+- **فيديو| "شبح جوردي ألبا كان حاضرًا".. ليونيل ميسي يتصدر مواقع التواصل الاجتماعي بسبب تمريرة غريبة!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B4%D8%A8%D8%AD-%D8%AC%D9%88%D8%B1%D8%AF%D9%8A-%D8%A7%D9%94%D9%84%D8%A8%D8%A7-%D9%83%D8%A7%D9%86-%D8%AD%D8%A7%D8%B6%D8%B1%D8%A7%D9%8B-%D9%84%D9%8A%D9%88%D9%86%D9%8A%D9%84-%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AA%D9%85%D8%B1%D9%8A%D8%B1%D8%A9-%D8%AE%D8%A7%D8%B7%D9%8A%D9%94%D8%A9-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%93%D8%AE%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A/blta8f668f3ce0dadf1)
+
+
 ### inter miami – new york rb (N/A, Sat, 11 Apr 2026 16:00:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Hosts Red Bull New York This Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-red-bull-new-york-this-saturday)
