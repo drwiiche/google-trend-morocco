@@ -1,3 +1,10 @@
+### sahara occidental (N/A, Sun, 12 Apr 2026 12:50:00 -0700)
+
+- **Sahara occidental : dans un revirement inattendu, le Mali annonce soutenir la position du Maroc**: [Link](https://www.lemonde.fr/afrique/article/2026/04/12/sahara-occidental-dans-un-revirement-inattendu-le-mali-annonce-soutenir-la-position-du-maroc_6679585_3212.html)
+- **Sahara marocain/Mali : Fin des ambivalences, les pendules remises à l’heure**: [Link](https://medias24.com/chronique/sahara-marocain-mali-fin-des-ambivalences-les-pendules-remises-a-lheure/)
+- **Journal de l'Afrique - Sahara occidental: Bamako soutien le plan d’autonomie marocain**: [Link](https://www.france24.com/fr/%C3%A9missions/journal-de-l-afrique/20260411-sahara-occidental-bamako-soutien-le-plan-d-autonomie-marocain)
+
+
 ### como vs inter (N/A, Sun, 12 Apr 2026 12:30:00 -0700)
 
 - **Como vs Inter de Milán: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/como-vs-inter-de-milan-previa-predicciones-y-alineaciones)
