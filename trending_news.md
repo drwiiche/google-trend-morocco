@@ -1,3 +1,10 @@
+### hibapress (N/A, Sat, 11 Apr 2026 23:00:00 -0700)
+
+- **أضخم كائن بالماء.. رصد حوت أزرق قبالة سواحل الأرجنتين**: [Link](https://www.alarabiya.net/science/2026/04/11/%D8%A7%D8%B6%D8%AE%D9%85-%D9%83%D8%A7%D8%A6%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%A7%D8%A1-%D8%B1%D8%B5%D8%AF-%D8%AD%D9%88%D8%AA-%D8%A7%D8%B2%D8%B1%D9%82-%D9%82%D8%A8%D8%A7%D9%84%D8%A9-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%A7%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
+- **عملاق البحار يظهر من جديد.. رصد نادر للحوت الأزرق قبالة سواحل الأرجنتين**: [Link](https://akhbarelyom.com/news/newdetails/4803594/1/%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%A8%D8%AD%D8%A7%D8%B1-%D9%8A%D8%B8%D9%87%D8%B1-%D9%85%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B1%D8%B5%D8%AF-%D9%86%D8%A7%D8%AF%D8%B1-%D9%84%D9%84%D8%AD%D9%88%D8%AA)
+- **سليم كرافاطا يفاجئ الجمهور بفيديو زفافه بعد أكثر من عام – اليوم 24**: [Link](https://alyaoum24.com/2019150.html)
+
+
 ### ufc (N/A, Sat, 11 Apr 2026 17:50:00 -0700)
 
 - **UFC 327 ‘Prochazka vs. Ulberg’ play-by-play, results & round scoring**: [Link](https://bitacora.com.uy/ufc-327-prochazka-vs-ulberg-play-by-play-results-round-scoring/)
