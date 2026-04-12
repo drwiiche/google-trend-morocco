@@ -1,3 +1,10 @@
+### édouard mendy (N/A, Sun, 12 Apr 2026 14:40:00 -0700)
+
+- **Mendy: Morocco’s title felt completely unexpected, like an ‘April Fool’s prank’**: [Link](https://www.goal.com/en/lists/mendy-morocco-s-title-felt-completely-unexpected-like-an-april-fool-s-prank/blt4220c5986e389e01)
+- **Hakimi: ‘Morocco Deserved AFCON Title’ After Senegal’s Walk‑Off**: [Link](https://www.moroccoworldnews.com/2026/04/286396/hakimi-morocco-deserved-afcon-title-after-senegals-walk-off/)
+- **Moroccan Star, Hakimi Regrets Towel Blow-out with Nwabali**: [Link](https://www.thisdaylive.com/2026/04/11/moroccan-star-hakimi-regrets-towel-blow-out-with-nwabali/)
+
+
 ### الترجي (N/A, Sun, 12 Apr 2026 14:10:00 -0700)
 
 - **مباشر الترجي ضد صن داونز في ذهاب نصف نهائي دوري أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D8%B6%D8%AF-%D8%B5%D9%86-%D8%AF%D8%A7%D9%88%D9%86%D8%B2)
