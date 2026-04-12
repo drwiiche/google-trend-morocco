@@ -1,3 +1,24 @@
+### wac vs mas (N/A, Sun, 12 Apr 2026 09:00:00 -0700)
+
+- **Wydad Arrives in Fes, Finalizing Preparations Ahead of MAS Clash**: [Link](https://m.elbotola.com/en/article/2026-04-11-14-36-853.html)
+- **Wydad Faces Maghreb Fes Amid Significant Absences**: [Link](https://www.ysscores.com/en/news/13943432/Wydad-Faces-Maghreb-Fes-Amid-Significant-Absences)
+- **Professional League Advances MAS vs. Wydad Match Time After Club Agreement**: [Link](https://m.elbotola.com/en/article/2026-04-10-13-45-997.html)
+
+
+### brahim diaz (N/A, Sun, 12 Apr 2026 08:50:00 -0700)
+
+- **Brahim Diaz Reaches 100 La Liga Matches with Real Madrid**: [Link](https://www.moroccoworldnews.com/2026/04/286623/brahim-diaz-reaches-100-la-liga-matches-with-real-madrid/)
+- **The Diaz Revolution: How did the Moroccan star rebel against life on Real Madrid’s bench?**: [Link](https://www.goal.com/en/lists/the-diaz-revolution-how-did-the-moroccan-star-rebel-against-life-on-real-madrid-s-bench/blt9c6392960806c186)
+- **Brahim Diaz Reaches 100 La Liga Appearances for Real Madrid**: [Link](https://m.elbotola.com/en/article/2026-04-10-22-46-735.html)
+
+
+### boeing 787 (N/A, Sun, 12 Apr 2026 07:20:00 -0700)
+
+- **How Much Does A Boeing 787 Dreamliner Engine Cost?**: [Link](https://simpleflying.com/how-much-boeing-787-dreamliner-engine-cost/)
+- **Virgin Atlantic's Airbus A350 Upgrade To San Francisco Vs. Boeing 787 Downgrade To Los Angeles: The Cabin Differences That Matter**: [Link](https://simpleflying.com/virgin-atlantic-airbus-a350-upgrade-san-francisco-boeing-787-downgrade-los-angeles-cabin-differences/)
+- **Families call on UK regulator to ‘find the truth’ of Air India crash amid 'serious concerns 'about probe**: [Link](https://www.standard.co.uk/news/world/families-uk-regulator-air-india-crash-b1278285.html)
+
+
 ### بنيامين نتنياهو (N/A, Sun, 12 Apr 2026 08:40:00 -0700)
 
 - **هجوم إسرائيلي على أردوغان وتركيا تصف نتنياهو بأنه "هتلر العصر"**: [Link](https://www.aljazeera.net/news/2026/4/12/%D9%87%D8%AC%D9%88%D9%85-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%A3%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D9%88%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D8%B5%D9%81)
