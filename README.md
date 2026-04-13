@@ -1,3 +1,10 @@
+### google (N/A, Mon, 13 Apr 2026 01:30:00 -0700)
+
+- **$250 Off Pixel 10 Pro Deal Returns**: [Link](https://www.droid-life.com/2026/04/12/250-off-pixel-10-pro-deal-returns/)
+- **The "perfect Android alternative to iPhone" is now down to just $299**: [Link](https://www.androidpolice.com/the-pixel-10-thats-perfect-for-most-people-is-now-299/)
+- **Unlocked Google Pixel 10 models up to $300 off at Amazon, 10a hits all-time low from $449**: [Link](https://9to5toys.com/2026/04/12/unlocked-google-pixel-10-10a-best-price/)
+
+
 ### كأس العالم لكرة القدم 2030 (N/A, Mon, 13 Apr 2026 03:50:00 -0700)
 
 - **إسبانيا أحق من المغرب بتنظيم نهائي مونديال 2030؟.. وقائع تثبت العكس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%94%D8%AD%D9%82-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030--%D8%A7%D9%84%D9%88%D9%82%D8%A7%D9%8A%D9%94%D8%B9-%D8%AA%D8%AB%D8%A8%D8%AA-%D8%A7%D9%84%D8%B9%D9%83%D8%B3/blt8e5d70775a806f62)
