@@ -1,3 +1,58 @@
+### manchester united – leeds united (N/A, Mon, 13 Apr 2026 11:20:00 -0700)
+
+- **Premier League: Build-up as Champions League-chasing Man Utd host struggling Leeds**: [Link](https://www.bbc.com/sport/football/live/c2lwv150jwwt)
+- **RED DEVILS VS PEACOCKS: CONFIRMED XIs OUTTTT!**: [Link](https://www.besoccer.com/new/live-manchester-united-vs-leeds-united-1404230)
+- **Roses Rivalry Reborn: Manchester United Faces Leeds in Pivotal Clash**: [Link](https://streamlinefeed.co.ke/news/roses-rivalry-reborn-manchester-united-faces-leeds-in-pivotal-clash)
+
+
+### levante – getafe (N/A, Mon, 13 Apr 2026 11:20:00 -0700)
+
+- **Equipo y afición, solos contra el peligro**: [Link](https://www.superdeporte.es/levante-ud/2026/04/12/equipo-aficion-solos-peligro-129016017.html)
+- **El once del Levante UD para batir al Getafe CF en El Ciutat**: [Link](https://plazadeportiva.valenciaplaza.com/plazadeportiva/valenciacf/el-once-del-levante-ud-para-batir-al-getafe-cf-en-el-ciutat)
+- **Permanencia y Europa se ven las caras en un Ciutat de València que podría dictar sentencia**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/valencia/permanencia-europa-ven-caras-ciutat-valencia-que-podria-dictar-sentencia_2026041369dc9dc7097ebe16ad76b158.html)
+
+
+### مان يونايتد ضد ليدز (N/A, Mon, 13 Apr 2026 11:20:00 -0700)
+
+- **مانشستر يونايتد ينشد تخطّي عقبة ليدز يونايتد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-2026-04-13?videopage=true)
+- **كاريك يعلن تشكيل مانشستر يونايتد أمام ليدز في البريميرليج**: [Link](https://akhbarelyom.com/news/newdetails/4804563/1/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A)
+- **مانشستر يونايتد ضد ليدز.. برونو فيرنانديز يقود هجوم الشياطين في البريميرليج**: [Link](https://www.youm7.com/story/2026/4/13/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF-%D9%84%D9%8A%D8%AF%D8%B2-%D8%A8%D8%B1%D9%88%D9%86%D9%88-%D9%81%D9%8A%D8%B1%D9%86%D8%A7%D9%86%D8%AF%D9%8A%D8%B2-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%B4%D9%8A%D8%A7%D8%B7%D9%8A%D9%86-%D9%81%D9%8A/7376477)
+
+
+### إقالة (N/A, Mon, 13 Apr 2026 11:00:00 -0700)
+
+- **مفاجأة.. الوداد يدرس إقالة كارتيرون بعد 3 مباريات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9--%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%A7%D9%95%D9%82%D8%A7%D9%84%D8%A9-%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D8%A8%D8%B9%D8%AF-3-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA/blt5321635d425eb9a5)
+- **المهم يبقى هو رئيس.. آيت منة عطى آخر فرصة لكارتيرون فالوداد ولا يجري عليه**: [Link](https://www.goud.ma/%D8%A7%D9%84%D9%85%D9%87%D9%85-%D9%8A%D8%A8%D9%82%D9%89-%D9%87%D9%88-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A2%D9%8A%D8%AA-%D9%85%D9%86%D8%A9-%D8%B9%D8%B7%D9%89-%D8%A2%D8%AE%D8%B1-%D9%81%D8%B1%D8%B5%D8%A9-1014517/)
+- **كارتيرون: خسارتنا أمام المغرب الفاسي غير عادلة والهدف كان "غريباً"**: [Link](https://www.elsport.com/news/show/819236/%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D8%AE%D8%B3%D8%A7%D8%B1%D8%AA%D9%86%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D8%BA%D9%8A%D8%B1-%D8%B9%D8%A7%D8%AF%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%87)
+
+
+### الهلال ضد السد (N/A, Mon, 13 Apr 2026 10:50:00 -0700)
+
+- **تشكيل الهلال أمام السد: إنزاجي يحسم مصير كوليبالي.. وبنزيما ظهور أول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D8%AF-%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D8%B5%D9%8A%D8%B1-%D9%83%D9%88%D9%84%D9%8A%D8%A8%D8%A7%D9%84%D9%8A--%D9%88%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%94%D9%88%D9%84/bltac8118dedde2afd7)
+- **غانم سايس يعود إلى الواجهة من جديد!**: [Link](https://www.radiomars.ma/%D8%BA%D8%A7%D9%86%D9%85-%D8%B3%D8%A7%D9%8A%D8%B3-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF/)
+- **سايس وبونو يتقابلان في دوري أبطال أسيا للنخبة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A7%D9%8A%D8%B3-%D9%88%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D8%AA%D9%82%D8%A7%D8%A8%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9/18573)
+
+
+### pastèque (N/A, Mon, 13 Apr 2026 10:50:00 -0700)
+
+- **Le Maroc relance sa saison de pastèque avec des volumes en forte hausse**: [Link](https://lematin.ma/economie/le-maroc-relance-sa-saison-de-pasteque-avec-des-volumes-en-forte-hausse/339976)
+- **Pastèque marocaine : une saison prometteuse portée par des volumes en hausse**: [Link](https://www.lesinfos.ma/article/149641838-Past%C3%A8que%20marocaine%20:%20une%20saison%20prometteuse%20port%C3%A9e%20par%20des%20volumes%20en%20hausse)
+
+
+### إسبانيا (N/A, Mon, 13 Apr 2026 10:40:00 -0700)
+
+- **دعم لاعبات إسبانيا لفلسطين يثير جدلا و"يؤلم" إسرائيل في بطولة أوروبا**: [Link](https://www.aljazeera.net/sport/2026/4/13/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%BA%D8%B2%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D8%AF)
+- **غضب وانتقادات في إسرائيل بسبب لاعبات منتخب إسبانيا لكرة اليد.. ما القصة؟**: [Link](https://arabic.euronews.com/2026/04/13/anger-and-criticism-in-israel-over-the-spanish-womens-handball-team-players)
+- **من النهر إلى البحر».. لاعبات إسبانيا يثرن غضب إسرائيل خلال المباراة**: [Link](https://www.elwatannews.com/news/details/8264735)
+
+
+### al-hilal – al sadd (N/A, Mon, 13 Apr 2026 10:30:00 -0700)
+
+- **Football Al Hilal: Koulibaly’s availability in doubt for quarterfinals**: [Link](https://en.africatopsports.com/2026/04/13/al-hilal-koulibalys-availability-in-doubt-for-quarterfinals/)
+- **Urgent: Inzaghi's Decision Regarding Kalidou Koulibaly After His Recent Injury**: [Link](https://www.ysscores.com/en/news/13944646/Urgent:-Inzaghi's-Decision-Regarding-Kalidou-Koulibaly-After-His-Recent-Injury)
+- **Inzaghi and Savic’ talk ahead of the match against Al-Sadd in AFC Champions League**: [Link](https://alhilal.com/en/news/inzaghi-and-savic-talk-ahead-of-the-match-against-al-sadd-in-afc-champions)
+
+
 ### المشجع (N/A, Mon, 13 Apr 2026 10:10:00 -0700)
 
 - **مشجع أوغندي يقاضي آرسنال بسبب تراجع النتائج**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B4%D8%AC%D8%B9-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D9%8A-%D9%8A%D9%82%D8%A7%D8%B6%D9%8A-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC/18565)
