@@ -1,3 +1,31 @@
+### ثلج (N/A, Sun, 12 Apr 2026 22:40:00 -0700)
+
+- **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-56-1729703.html)
+- **نشرة خاصة: زغات رعدية مع تساقط البرد والثلوج ورياح عاصفية السبت والأحد بعدد من مناطق المغرب**: [Link](https://lakome2.com/meteo/414390/)
+- **أمطار متفرقة وثلوج وأجواء باردة ورياح قوية متوقعة يومي الاثنين والثلاثاء**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9-%D9%88%D8%AB%D9%84%D9%88%D8%AC-%D9%88%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A8%D8%A7%D8%B1%D8%AF%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-995476.html)
+
+
+### السنغال (N/A, Sun, 12 Apr 2026 22:40:00 -0700)
+
+- **تقرير: أدلة جديدة تدعم “أسود الأطلس”**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A3%D8%AF%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%AF%D8%B9%D9%85-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1729904.html)
+- **موتسيبي من قلب المغرب: القانون سينهي جدل نهائي كان 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%85%D9%86-%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%B3%D9%8A%D9%86%D9%87%D9%8A-%D8%AC%D8%AF%D9%84-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%86-2025/blt89bed1e847234e27)
+- **خبراء "الطاس" لـ RMC: لا أساس قانوني لإعادة لقب الكان إلى السنغال**: [Link](https://www.ahdath.info/article/251115/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-%D9%84-rmc-%D9%84%D8%A7-%D8%A3%D8%B3%D8%A7%D8%B3-%D9%82%D8%A7%D9%86%D9%88%D9%86%D9%8A-%D9%84%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84)
+
+
+### hervé renard (N/A, Sun, 12 Apr 2026 20:50:00 -0700)
+
+- **Moroccan Nasser Larguet Nears Departure from Saudi Football Federation Role**: [Link](https://m.elbotola.com/en/article/2026-04-11-16-41-710.html)
+- **Brendan Rodgers Responds to Latest Rumours**: [Link](https://celtsarehere.com/celtic-fc-brendan-rodgers-world-cup/)
+- **Saudi federation seeks replacement for Hervé Renard two months before World Cup 2026**: [Link](https://dailysports.net/news/saudi-federation-seeks-replacement-for-herve-renard-two-months-before-world-cup-2026/)
+
+
+### ligue 1 (N/A, Sun, 12 Apr 2026 17:30:00 -0700)
+
+- **Lyon retrouve la victoire et le top 5, porté par Dominik Greif et l'entrée d'Endrick contre Lorient**: [Link](https://www.lequipe.fr/Football/Actualites/Lyon-retrouve-la-victoire-et-le-top-5-porte-par-greif-et-l-entree-d-endrick-contre-lorient/1667427)
+- **OL - Lorient : les notes du match**: [Link](https://www.footmercato.net/a2990926189526145912-ol-lorient-les-notes-du-match)
+- **Endrick a tout changé**: [Link](https://www.sports.fr/football/ligue-1/endrick-a-tout-change-1006146.html)
+
+
 ### g (N/A, Sun, 12 Apr 2026 18:50:00 -0700)
 
 - **Karol G to hit the Coachella stage. How to watch her performance.**: [Link](https://www.usatoday.com/story/entertainment/music/2026/04/12/karol-g-coachella-2026-performance-how-to-watch/89556268007/)
