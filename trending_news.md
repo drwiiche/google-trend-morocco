@@ -1,3 +1,24 @@
+### bruno lafont (N/A, Mon, 13 Apr 2026 09:40:00 -0700)
+
+- **L’entreprise Lafarge reconnue coupable de financement de groupes terroristes en Syrie ; son ex-PDG Bruno Lafont condamné à six ans de prison**: [Link](https://www.lemonde.fr/societe/article/2026/04/13/le-cimentier-lafarge-reconnu-coupable-de-financement-de-groupes-terroristes-en-syrie-son-ex-pdg-bruno-lafont-condamne-a-six-ans-de-prison-avec-incarceration-immediate_6679710_3225.html)
+- **L'ex-PDG de Lafarge condamné à 6 ans de prison avec incarcération immédiate: le cimentier est reconnu coupable de financement du terrorisme pour avoir payé des pots-de-vin à l'Etat islamique**: [Link](https://www.bfmtv.com/economie/une-usine-en-pleine-action-au-milieu-d-un-territoire-tenu-par-l-etat-islamique-le-cimentier-lafarge-est-reconnu-coupable-de-financement-du-terrorisme_AD-202604130456.html)
+- **Le cimentier Lafarge condamné pour financement de terrorisme en Syrie, son ex-PDG incarcéré**: [Link](https://www.france24.com/fr/france/20260413-le-cimentier-fran%C3%A7ais-lafarge-reconnu-coupable-de-financement-de-terrorisme-en-syrie)
+
+
+### مفاوضات (N/A, Mon, 13 Apr 2026 09:00:00 -0700)
+
+- **هذا ما سبّب تفجير المفاوضات في باكستان**: [Link](https://www.aljazeera.net/opinions/2026/4/13/%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D8%B3%D8%A8%D8%A8-%D8%AA%D9%81%D8%AC%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86)
+- **عراقجي: إيران كانت على "بعد خطوات قليلة" من التوصل إلى اتفاق**: [Link](https://www.alarabiya.net/iran/2026/04/13/%D9%82%D8%A7%D9%84%D9%8A%D8%A8%D8%A7%D9%81)
+- **وزير خارجية إيران يعلق على انهيار المحادثات مع أمريكا**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/13/irans-foreign-minister-comments-on-the-collapse-of-talks-with-us)
+
+
+### ayyoub bouaddi (N/A, Mon, 13 Apr 2026 08:40:00 -0700)
+
+- **Bouaddi on Representing Morocco or France: 'We Won't Rush the Decision'**: [Link](https://m.elbotola.com/en/article/2026-04-12-11-02-413.html)
+- **Stuck between Morocco and France, why has Ayoub Bouadi yet to decide?**: [Link](https://www.goal.com/en/lists/still-on-the-fence-why-is-ayoub-bouadi-taking-his-time-to-choose-between-morocco-and-france/bltea7746f946980a91)
+- **From Reservoir to Faucet: The Process of Making Water Drinkable in Morocco – Telquel.ma**: [Link](https://tanja7.com/en/9993)
+
+
 ### الهدم (N/A, Mon, 13 Apr 2026 08:20:00 -0700)
 
 - **استنفار أمني يواكب هدم "درب الرماد"**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D9%83%D8%A8-%D9%87%D8%AF%D9%85-%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D8%AF-1730313.html)
