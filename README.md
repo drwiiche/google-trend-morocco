@@ -1,3 +1,31 @@
+### الهدم (N/A, Mon, 13 Apr 2026 08:20:00 -0700)
+
+- **استنفار أمني يواكب هدم "درب الرماد"**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D9%83%D8%A8-%D9%87%D8%AF%D9%85-%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B1%D9%85%D8%A7%D8%AF-1730313.html)
+- **منيب تسائل لفتيت حول ترحيل ساكنة دوار العسكر بالدار البيضاء**: [Link](https://febrayer.com/1142538.html)
+- **هدم “درب الرماد” بالمدينة القديمة بكازا وسط استنفار أمني**: [Link](https://ar.hibapress.com/details-717410.html)
+
+
+### algerie (N/A, Mon, 13 Apr 2026 08:10:00 -0700)
+
+- **Le pape Léon XIV en visite en Algérie, sur les traces de l’histoire chrétienne du pays**: [Link](https://www.lemonde.fr/afrique/article/2026/04/13/en-algerie-le-pape-va-sur-les-traces-de-l-histoire-chretienne-du-pays-et-tend-la-main-aux-musulmans_6679661_3212.html)
+- **"Il s'agira de s'adresser au monde islamique" : Léon XIV en visite en Algérie lundi, une première historique pour un pape**: [Link](https://www.franceinfo.fr/monde/vatican/pape-leon-xiv/il-s-adresser-au-monde-islamique-leon-xiv-en-algerie-une-premiere-historique-pour-un-pape_7932656.html)
+- **Au Cameroun, la visite du pape divise la communauté catholique**: [Link](https://afrique.le360.ma/societe/au-cameroun-la-visite-du-pape-divise-la-communaute-catholique_BCMZQZAPLZDYLNDZAP5ZP4I4FI/)
+
+
+### groupe ocp (N/A, Mon, 13 Apr 2026 08:00:00 -0700)
+
+- **OCP : un mégaprojet de stockage et de valorisation de phosphogypse à Jorf Lasfar, avec l'appui de l'IFC**: [Link](https://lematin.ma/economie/ocp-un-megaprojet-de-phosphogypse-a-jorf-lasfar-avec-lappui-de-lifc/339920)
+- **Phosphogypse : OCP lance un projet de 190 millions d’euros à Jorf Lasfar, financé en partie par la SFI**: [Link](https://medias24.com/2026/04/13/phosphogypse-ocp-lance-un-projet-de-190-millions-deuros-a-jorf-lasfar-finance-en-partie-par-la-sfi-1658860/)
+- **OCP et l’IFC préparent un financement de 95 millions d’euros pour le stockage du phosphogypse à Jorf Lasfar**: [Link](https://www.telegraphe.ma/fr/ocp-et-lifc-preparent-un-financement-de-95-millions-deuros-pour-le-stockage-du-phosphogypse-a-jorf-lasfar)
+
+
+### al-ahli saudi – al-duhail (N/A, Mon, 13 Apr 2026 07:20:00 -0700)
+
+- **R16 - Preview: Al Ahli Saudi FC (KSA) v Al Duhail SC (QAT)**: [Link](https://www.the-afc.com/en/club/afc_champions_league_elite.html/news/r16-preview-al-ahli-saudi-fc-ksa-v-al-duhail-sc-qat)
+- **Al-Ahli Jeddah secure a crucial treble boost ahead of their Asian showdown with Al-Duhail**: [Link](https://www.goal.com/en-us/news/al-ahli-jeddah-secure-a-crucial-treble-boost-ahead-of-their-asian-showdown-with-al-duhail/bltbf6acd3cc7d83de0)
+- **Yaisle Praises Al-Ahly Fans Ahead of Al-Duhail Clash**: [Link](https://www.ysscores.com/en/news/13943945/Yaisle-Praises-Al-Ahly-Fans-Ahead-of-Al-Duhail-Clash)
+
+
 ### منتخب الجزائر لكرة القدم (N/A, Mon, 13 Apr 2026 06:30:00 -0700)
 
 - **المنتخب الجزائري لكرة القدم داخل القاعة ينهزم أمام نظيره المصري**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7-7)
