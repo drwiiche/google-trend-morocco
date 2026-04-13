@@ -1,3 +1,52 @@
+### منتخب الجزائر لكرة القدم (N/A, Mon, 13 Apr 2026 06:30:00 -0700)
+
+- **المنتخب الجزائري لكرة القدم داخل القاعة ينهزم أمام نظيره المصري**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7-7)
+- **منتخب الصالات يفوز على الجزائر 4-0 ودياً استعداداً لأمم أفريقيا**: [Link](https://mangish.net/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-4-0-%D9%88%D8%AF%D9%8A%D8%A7%D9%8B/)
+- **المنتخب الوطني لـ"الفوتصال" ينهزم وديا أمام مصر**: [Link](https://www.ennaharonline.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%80%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B5%D8%A7%D9%84-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D9%88%D8%AF%D9%8A%D8%A7/)
+
+
+### booking (N/A, Mon, 13 Apr 2026 06:30:00 -0700)
+
+- **Booking.com warns customers of hack that exposed their data**: [Link](https://www.theguardian.com/technology/2026/apr/13/booking-com-customers-hack-exposed-data)
+- **Booking.com customers involved in possible data and security breach**: [Link](https://www.abc.net.au/news/2026-04-13/booking-com-data-security-breach-personal-details/106557630)
+- **Hack at Booking.com; Customers' booking data accessed**: [Link](https://nltimes.nl/2026/04/13/hack-bookingcom-customers-booking-data-accessed)
+
+
+### تركيا (N/A, Mon, 13 Apr 2026 06:10:00 -0700)
+
+- **فيدان: نتنياهو يسعى لإعلان تركيا عدوا جديدا**: [Link](https://www.aljazeera.net/news/2026/4/13/%D9%81%D9%8A%D8%AF%D8%A7%D9%86-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%B9%D8%AF%D9%88%D8%A7)
+- **تركيا تفند مزاعم التهديد بـ"احتلال إسرائيل"**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D9%81%D9%86%D8%AF-%D9%85%D8%B2%D8%A7%D8%B9%D9%85-%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D8%A8%D9%80%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/3903427)
+- **"نمر من ورق" و"مجرم يائس": تراشق كلامي بين قادة إسرائيل وتركيا بسبب الحرب في الشرق الأوسط**: [Link](https://arabic.euronews.com/2026/04/12/israel-turkey-verbal-clash-netanyahu-erdogan-war)
+
+
+### النفط في إيران (N/A, Mon, 13 Apr 2026 06:10:00 -0700)
+
+- **في 5 أسباب.. لماذا يبدو حصار هرمز مخاطرة أمريكية كبرى؟**: [Link](https://www.aljazeera.net/politics/2026/4/13/%D8%AD%D8%B5%D8%A7%D8%B1-%D9%87%D8%B1%D9%85%D8%B2-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%A8%D8%AF%D9%88-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D8%AA%D8%B1%D9%85%D8%A8-%D9%85%D8%AD%D9%81%D9%88%D9%81%D8%A7)
+- **أول رد من الحرس الثوري على إعلان ترامب فرض حصار على مضيق هرمز**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/13/iran-threatens-ports-in-persian-gulf-and-gulf-of-oman-ahead-of-us-blockade)
+- **إيران: موانئ الخليج لن تكون في مأمن**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D9%88%D8%A7%D9%86%D8%A6-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D9%84%D9%86-%D8%AA%D9%83%D9%88%D9%86-%D9%81%D9%8A-%D9%85%D8%A3%D9%85%D9%86-1730211.html)
+
+
+### djenna laroui (N/A, Mon, 13 Apr 2026 05:30:00 -0700)
+
+- **Gymnastique. La Lyonnaise Djenna Laroui change de nationalité sportive au profit de l’Algérie**: [Link](https://www.leprogres.fr/sport/2026/04/12/la-lyonnaise-djenna-laroui-change-de-nationalite-sportive-au-profit-de-l-algerie)
+- **Après près de 10 ans en équipe de France, Djenna Laroui concourra pour l'Algérie désormais**: [Link](https://www.lequipe.fr/Gymnastique/Actualites/Djenna-laroui-concourra-pour-l-algerie-desormais/1667229)
+- **Djenna Laroui sur les traces de Kaylia Nemour**: [Link](https://www.horizons.dz/2026/04/djenna-laroui-sur-les-traces-de-kaylia-nemour/)
+
+
+### سياسة (N/A, Mon, 13 Apr 2026 05:30:00 -0700)
+
+- **انتخابات المجر.. صدى هزيمة أوربان وفوز ماجار في الصحف الغربية**: [Link](https://www.aljazeera.net/politics/2026/4/13/%D8%B5%D8%AF%D9%89-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%88%D8%B1%D8%A8%D8%A7%D9%86-%D9%88%D9%81%D9%88%D8%B2-%D9%85%D8%A7%D8%AC%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D9%81)
+- **رئيس الوزراء المجري يخسر الاقتراع**: [Link](https://www.hespress.com/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%AC%D8%B1%D9%8A-%D9%8A%D8%AE%D8%B3%D8%B1-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%B9-1730164.html)
+- **إسرائيل تفقد "شريان حياة" بعد خسارة أوربان بانتخابات المجر (تقرير إخباري)**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D9%81%D9%82%D8%AF-%D8%B4%D8%B1%D9%8A%D8%A7%D9%86-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A3%D9%88%D8%B1%D8%A8%D8%A7%D9%86-%D8%A8%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AC%D8%B1-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A5%D8%AE%D8%A8%D8%A7%D8%B1%D9%8A/3903851)
+
+
+### élections législatives en hongrie (N/A, Mon, 13 Apr 2026 03:50:00 -0700)
+
+- **EN DIRECT, guerre en Ukraine : le futur premier ministre hongrois, Péter Magyar, exclut d’admettre l’Ukraine en guerre dans l’Union européenne**: [Link](https://www.lemonde.fr/international/live/2026/04/13/en-direct-guerre-en-ukraine-le-futur-premier-ministre-hongrois-peter-magyar-exclut-d-admettre-l-ukraine-en-guerre-dans-l-union-europeenne_6679492_3210.html)
+- **EN DIRECT, élections en Hongrie : Péter Magyar, après sa victoire électorale face à Viktor Orban, déclare que la place de la Hongrie « était, est et sera en Europe »**: [Link](https://www.lemonde.fr/international/live/2026/04/13/en-direct-elections-en-hongrie-peter-magyar-apres-sa-victoire-electorale-face-a-viktor-orban-promet-de-gouverner-pour-tous-les-hongrois_6679608_3210.html)
+- **Après le départ d'Orban, le dégel avec l'UE ? - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/agence-presse/apres-le-depart-dorban-le-degel-avec-lue/)
+
+
 ### google (N/A, Mon, 13 Apr 2026 01:30:00 -0700)
 
 - **$250 Off Pixel 10 Pro Deal Returns**: [Link](https://www.droid-life.com/2026/04/12/250-off-pixel-10-pro-deal-returns/)
