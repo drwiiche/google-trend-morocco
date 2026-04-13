@@ -1,3 +1,24 @@
+### المشجع (N/A, Mon, 13 Apr 2026 10:10:00 -0700)
+
+- **مشجع أوغندي يقاضي آرسنال بسبب تراجع النتائج**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B4%D8%AC%D8%B9-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D9%8A-%D9%8A%D9%82%D8%A7%D8%B6%D9%8A-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC/18565)
+- **الهزيمة تتحول إلى قضية.. دعوى قضائية ضد أرسنال تشعل الجدل**: [Link](https://aboutmsr.com/%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D9%82%D8%B6%D9%8A%D8%A9-%D8%AF%D8%B9%D9%88%D9%89-%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%B6%D8%AF/)
+- **أحد مشجعي أرسنال يرفع قضية ضد النادي لسبب غريب**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%AD%D8%AF-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%82%D8%A7%D8%B6%D9%8A-%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D9%84%D8%B3%D8%A8%D8%A8-%D8%BA%D8%B1%D9%8A%D8%A8)
+
+
+### إدوارد ميندي (N/A, Mon, 13 Apr 2026 10:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي والدحيل في دوري أبطال آسيا للنخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D8%AD%D9%8A%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta073d8faf0611505)
+- **دوري أبطال آسيا للنخبة.. جدول الدورين ثمن وربع النهائي**: [Link](https://www.aljazeera.net/sport/2026/4/13/%D8%AB%D9%85%D9%86-%D9%88%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7)
+- **دوري أبطال آسيا: قمم خليجية بين الهلال والسد والأهلي والدحيل**: [Link](https://www.alaraby.co.uk/sport/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%82%D9%85%D9%85-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B3%D8%AF-%D9%88%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D8%AD%D9%8A%D9%84)
+
+
+### البليدة (N/A, Mon, 13 Apr 2026 10:10:00 -0700)
+
+- **تزامنا مع زيارة بابا الفاتيكان .. تفجيرات انتحارية تهز مدينة البليدة الجزائرية**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%AC%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%86%D8%AA%D8%AD%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%84%D8%A8%D9%84%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-1730407.html)
+- **عمليتان انتحاريتان في مدينة البليدة الجزائرية دون تسجيل ضحايا في صفوف المواطنين وأعوان الشرطة**: [Link](https://www.alquds.co.uk/%D8%A3%D9%86%D8%A8%D8%A7%D8%A1-%D8%B9%D9%86-%D8%AA%D9%81%D8%AC%D9%8A%D8%B1%D9%8A%D9%86-%D8%A7%D9%86%D8%AA%D8%AD%D8%A7%D8%B1%D9%8A%D9%8A%D9%86-%D9%81%D9%8A-%D9%88%D9%84%D8%A7%D9%8A%D8%A9/)
+- **تبون يدعو لإنصاف الفلسطينيين وبابا الفاتيكان ينتقد "الاستعمار الجديد"**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%AA%D8%A8%D9%88%D9%86-%D9%8A%D8%AF%D8%B9%D9%88-%D9%84%D8%A5%D9%86%D8%B5%D8%A7%D9%81-%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D9%8A%D9%86-%D9%88%D8%A8%D8%A7%D8%A8%D8%A7-%D8%A7%D9%84%D9%81%D8%A7%D8%AA%D9%8A%D9%83%D8%A7%D9%86-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-/3904160)
+
+
 ### bruno lafont (N/A, Mon, 13 Apr 2026 09:40:00 -0700)
 
 - **L’entreprise Lafarge reconnue coupable de financement de groupes terroristes en Syrie ; son ex-PDG Bruno Lafont condamné à six ans de prison**: [Link](https://www.lemonde.fr/societe/article/2026/04/13/le-cimentier-lafarge-reconnu-coupable-de-financement-de-groupes-terroristes-en-syrie-son-ex-pdg-bruno-lafont-condamne-a-six-ans-de-prison-avec-incarceration-immediate_6679710_3225.html)
