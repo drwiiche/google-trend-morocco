@@ -1,3 +1,17 @@
+### وزير خارجية إيران (N/A, Mon, 13 Apr 2026 11:40:00 -0700)
+
+- **قطر تدعو لفتح الممرات البحرية وتحذر من استخدامها ورقة ضغط**: [Link](https://www.aljazeera.net/news/2026/4/13/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A%D8%A9-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-6)
+- **قطر تُبلغ إيران بضرورة التجاوب مع وساطة باكستان وفتح "هرمز"**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/-%D9%82%D8%B7%D8%B1-%D8%AA%D9%8F%D8%A8%D9%84%D8%BA-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A8%D8%B6%D8%B1%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%A8-%D9%85%D8%B9-%D9%88%D8%B3%D8%A7%D8%B7%D8%A9-%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D9%88%D9%81%D8%AA%D8%AD-%D9%87%D8%B1%D9%85%D8%B2/3904146)
+- **مسؤول قطري يحذر من أن الحرب مع إيران قد "تخرج عن السيطرة"**: [Link](https://arabic.cnn.com/middle-east/video/2026/04/07/v192008-iran-war-could-spiral-out-of-control-qatari-official-warns-digivid-intldsk)
+
+
+### برج محمد السادس (N/A, Mon, 13 Apr 2026 11:30:00 -0700)
+
+- **بأمر من الملك .. ولي العهد الأمير مولاي الحسن يدشن "برج محمد السادس"**: [Link](https://www.hespress.com/%D8%A8%D8%A3%D9%85%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D9%87%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%A7-1730400.html)
+- **الصيد البحري.. تراجع قيمة المنتجات المسوقة بـ3 في المائة مقارنة بـ2025**: [Link](https://ar.telquel.ma/%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D9%87%D8%AF-%D9%8A%D8%AF%D8%B4%D9%86-%D8%A8%D8%B1%D8%AC-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%83%D8%A3%D8%B9%D9%84%D9%89-%D9%85/)
+- **الرباط على موعد مع افتتاح أعلى برج في المغرب**: [Link](https://ar.hibapress.com/details-717413.html)
+
+
 ### manchester united – leeds united (N/A, Mon, 13 Apr 2026 11:20:00 -0700)
 
 - **Premier League: Build-up as Champions League-chasing Man Utd host struggling Leeds**: [Link](https://www.bbc.com/sport/football/live/c2lwv150jwwt)
