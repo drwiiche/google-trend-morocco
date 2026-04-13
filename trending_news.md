@@ -1,3 +1,43 @@
+### radio mars (N/A, Mon, 13 Apr 2026 00:30:00 -0700)
+
+- **الإصابة تغيب زياش عن صفوف الوداد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%BA%D9%8A%D8%A8-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B9%D9%86-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1726490.html)
+- **كارتيرون في « مأزق » جديد قبل مواجهة الدفاع الجديدي**: [Link](https://ar.sport.le360.ma/football/botola/7XZVNZMTFBBPNFTQSP6LS5VPVQ/)
+- **كواليس الفرق**: [Link](https://assabah.ma/913685.html)
+
+
+### طقس اليوم (N/A, Sun, 12 Apr 2026 23:50:00 -0700)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-58-1729897.html)
+- **أمطار ورعد بمناطق الريف..توقعات الطقس لليوم الأربعاء**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%88%D8%AB%D9%84/)
+- **نشرة خاصة: زغات رعدية مع تساقط البرد والثلوج ورياح عاصفية السبت والأحد بعدد من مناطق المغرب**: [Link](https://lakome2.com/meteo/414390/)
+
+
+### weather (N/A, Sun, 12 Apr 2026 23:30:00 -0700)
+
+- **Get ready for a taste of summer to kick off the work week across New England**: [Link](https://www.bostonglobe.com/2026/04/12/metro/dave-epstein-boston-forecast-new-england/)
+- **A taste of summer arrives this week with heat and humidity**: [Link](https://www.wtnh.com/weather/sunday-sun-to-some-afternoon-clouds-with-a-major-warmup-on-the-way/)
+- **Big Warm-Up Expected This Week**: [Link](https://www.nbcconnecticut.com/weather-news/seasonal-sunday-before-a-workweek-warm-up/3724634/)
+
+
+### akhbarona (N/A, Sun, 12 Apr 2026 23:00:00 -0700)
+
+- **مفاوضات إيران وأمريكا 2026: هل تنجح وساطة باكستان؟**: [Link](https://www.alquds.com/en/posts/235159)
+
+
+### الاتحاد الدولي لكرة القدم (N/A, Sun, 12 Apr 2026 22:00:00 -0700)
+
+- **عودة الأمل لإيطاليا.. فيفا يستعد لانسحاب إيران من المونديال بفكرة استثنائية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%84-%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7--%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A8%D9%81%D9%83%D8%B1%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9/blt1b2e2091d0fe6ddb)
+- **الفيفا «يصدم» إيران بقرار حاسم حول مباريات المونديال**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%B5%D8%AF%D9%85-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%AD%D8%A7%D8%B3%D9%85-%D8%AD%D9%88%D9%84-%D9%85%D8%A8%D8%A7/)
+- **شخص وحيد على وجه الأرض يؤمن بقدرته على التوفيق بين إيران وأمريكا**: [Link](https://al-ain.com/article/infantino-fifa-world-cup-shuttle-diplomacy-iran)
+
+
+### nba (N/A, Sun, 12 Apr 2026 20:00:00 -0700)
+
+- **Wolves prepare for playoff series with Nuggets after beating Pelicans in finale**: [Link](https://www.startribune.com/timberwolves-prepare-for-playoff-series-with-nuggets-after-winning-meaningless-finale-to-pelicans/601637337)
+- **John Gonzalez joins Chris Williamson to preview the 1st round matchup between the Nuggets and Timberwolves**: [Link](https://247sports.com/high-school/washington/video/john-gonzalez-joins-chris-williamson-to-preview-the-1st-round-matchup-between-the-nuggets-and-timberwolves-13728218)
+- **David Adelman on another Nuggets-Timberwolves NBA playoff series: ‘We’re not ducking anybody’**: [Link](https://www.denverpost.com/2026/04/13/nba-playoffs-nuggets-timberwolves-reaction-nikola-jokic-awards/)
+
+
 ### ثلج (N/A, Sun, 12 Apr 2026 22:40:00 -0700)
 
 - **توقعات طقس اليوم الأحد بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-56-1729703.html)
