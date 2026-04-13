@@ -1,3 +1,10 @@
+### الاتحاد السعودي لكرة القدم (N/A, Sun, 12 Apr 2026 16:40:00 -0700)
+
+- **4 أسباب بارزة.. لماذا تراجع المنتخب السعودي عن التعاقد مع وليد الركراكي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/4-%D8%A7%D9%94%D8%B3%D8%A8%D8%A7%D8%A8-%D8%A8%D8%A7%D8%B1%D8%B2%D8%A9--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B9%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A/blt618a73187b0eedef)
+- **تغيير مفاجئ قد يعصف بمنصب رينارد.. 5 مرشحين لتدريب منتخب السعودية**: [Link](https://www.almasryalyoum.com/news/details/4244084)
+- **مدرب مغربي يدخل قائمة المرشحين لخلافة رونار**: [Link](https://www.radiomars.ma/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9/)
+
+
 ### ayyoub bouaddi maroc (N/A, Sun, 12 Apr 2026 14:20:00 -0700)
 
 - **Ayyoub Bouaddi hésite encore entre la France et le Maroc**: [Link](https://www.footmercato.net/a2916887604467260045-ayyoub-bouaddi-hesite-encore-entre-la-france-et-le-maroc)
