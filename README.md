@@ -1,3 +1,38 @@
+### كارلوس كيروش (N/A, Mon, 13 Apr 2026 14:20:00 -0700)
+
+- **كما أكد كووورة: رسميًا.. كيروش يظهر في مونديال 2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%85%D8%A7-%D8%A7%D9%94%D9%83%D8%AF-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D9%83%D9%8A%D8%B1%D9%88%D8%B4-%D9%8A%D8%B8%D9%87%D8%B1-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/blt6dd0425cee3c6e1e)
+- **كارلوس كيروش يقود "النجوم السوداء" في كأس العالم**: [Link](https://www.skynewsarabia.com/sport/1864024-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D9%83%D9%8A%D8%B1%D9%88%D8%B4-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D8%A1-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **قدم.. البرتغالي كارلوس كيروش يقود منتخب غانا في مونديال 2026**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D9%83%D9%8A%D8%B1%D9%88%D8%B4-%D9%8A%D9%82%D9%88%D8%AF-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%BA%D8%A7%D9%86%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/3904496)
+
+
+### شتاء (N/A, Mon, 13 Apr 2026 14:10:00 -0700)
+
+- **بنعلي تبرز محدودية الأثر الطاقي للساعة الإضافية خلال فصل الشتاء بالمغرب**: [Link](https://www.hespress.com/%D8%A8%D9%86%D8%B9%D9%84%D9%8A-%D8%AA%D8%A8%D8%B1%D8%B2-%D9%85%D8%AD%D8%AF%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%AB%D8%B1-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D9%8A-%D9%84%D9%84%D8%B3%D8%A7%D8%B9-1730589.html)
+- **زعيم سياسي مغربي يدعو إلى مقاربة “هادئة” في نقاش الساعة الإضافية ويتحدث عن تقاطعات مع الأغلبية في قضايا اجتماعية**: [Link](https://www.raialyoum.com/%D8%B2%D8%B9%D9%8A%D9%85-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D9%85%D9%82%D8%A7%D8%B1%D8%A8%D8%A9-%D9%87%D8%A7%D8%AF/)
+- **الاشتراكي الموحد يسائل الداخلية؛ هل تتحول منصة اللوائح الانتخابية إلى أداة للتحكم؟**: [Link](https://trendnews.ma/31580)
+
+
+### afc champions league (N/A, Mon, 13 Apr 2026 14:10:00 -0700)
+
+- **AFC Champions League: Mahrez’s free kick brilliance sends Al Ahli to quarterfinals**: [Link](https://www.panafricafootball.com/post/afc-champions-league-mahrez-fk/)
+- **Yaisle Praises Al-Ahly Fans Ahead of Al-Duhail Clash**: [Link](https://www.ysscores.com/en/news/13943945/Yaisle-Praises-Al-Ahly-Fans-Ahead-of-Al-Duhail-Clash)
+- **Mahrez extra-time stunner sends Al Ahli into ACL quarter-finals**: [Link](https://saudigazette.com.sa/article/660522/sports/riyad-mahrez-free-kick-sends-al-ahli-into-acl-quarter-finals)
+
+
+### guerre iran (N/A, Mon, 13 Apr 2026 14:10:00 -0700)
+
+- **EN DIRECT, guerre au Moyen-Orient : Téhéran refuse toute « ingérence » américaine dans le détroit d’Ormuz ; le Hezbollah demande l’annulation des négociations israélo-libanaises prévues pour mardi**: [Link](https://www.lemonde.fr/international/live/2026/04/13/en-direct-guerre-au-moyen-orient-le-blocus-maritime-de-l-iran-impose-par-les-etats-unis-a-commence-a-16-heures-teheran-previent-qu-aucune-ingerence-americaine-dans-le-detroit-d-ormuz-ne-sera-toleree_6676633_3210.html)
+- **DIRECT. Guerre au Moyen-Orient: Donald Trump déclare que l'Iran veut "à tout prix" conclure un accord avec les États-Unis**: [Link](https://www.bfmtv.com/international/moyen-orient/direct-guerre-en-iran-et-au-moyen-orient-les-etats-unis-vont-imposer-un-blocus-des-ports-iraniens-la-marine-iranienne-juge-ridicules-les-menaces-americaines_LN-202604130039.html)
+- **En direct : Washington bloque les ports iraniens, Téhéran dénonce un acte de "piraterie"**: [Link](https://www.france24.com/fr/moyen-orient/20260413-moyen-orient-en-direct-debut-blocus-ports-iraniens-annonce-lundi-apres-midi-armee-etats-unis-israel-liban-guerre)
+
+
+### ليفانتي ضد خيتافي (N/A, Mon, 13 Apr 2026 13:20:00 -0700)
+
+- **ليفانتي يفوز على خيتافي بهدف في الدوري الإسباني**: [Link](https://www.elbalad.news/6934962)
+- **الدوري الإسباني، تعادل سلبي بين ليفانتي ضد خيتافي في الشوط الأول**: [Link](https://www.vetogate.com/5635041)
+- **ليفانتي يفوز على خيتافي 0 1 في الدوري الإسباني**: [Link](https://www.vetogate.com/5635053)
+
+
 ### الحرس الثوري الإيراني (N/A, Mon, 13 Apr 2026 13:20:00 -0700)
 
 - **الحرس الثوري الإيراني يلوّح بأساليب قتالية جديدة إذا استؤنفت الحرب**: [Link](https://www.aljazeera.net/news/2026/4/13/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%AB-%D8%A8%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D8%AD%D8%B1%D8%B3-%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D9%8A)
