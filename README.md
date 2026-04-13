@@ -1,3 +1,10 @@
+### كأس العالم لكرة القدم 2030 (N/A, Mon, 13 Apr 2026 03:50:00 -0700)
+
+- **إسبانيا أحق من المغرب بتنظيم نهائي مونديال 2030؟.. وقائع تثبت العكس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%94%D8%AD%D9%82-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030--%D8%A7%D9%84%D9%88%D9%82%D8%A7%D9%8A%D9%94%D8%B9-%D8%AA%D8%AB%D8%A8%D8%AA-%D8%A7%D9%84%D8%B9%D9%83%D8%B3/blt8e5d70775a806f62)
+- **/ توقيع مذكرة تفاهم وخطة عمل ثلاثية لتعزيز التعاون العدلي في أفق كأس العالم 2030**: [Link](https://justice.gov.ma/2026/04/10/%D8%AA%D9%88%D9%82%D9%8A%D8%B9-%D9%85%D8%B0%D9%83%D8%B1%D8%A9-%D8%AA%D9%81%D8%A7%D9%87%D9%85-%D9%88%D8%AE%D8%B7%D8%A9-%D8%B9%D9%85%D9%84-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%84%D8%AA%D8%B9%D8%B2/?fbclid=IwY2xjawRFxilleHRuA2FlbQIxMABicmlkETFqUUUzRWpteHp6WUNyalpTc3J0YwZhcHBfaWQQMjIyMDM5MTc4ODIwMDg5MgABHkuhpxSW9rvd0HYTPVlE8NcZkAdaWpx6LJODnVlIOm8IuSfziJku-V8I9-17_aem_ygUWgWV_dBDNM1Ff6EnXpw)
+- **بعد تألقه أوروبيا.. أخوماش يتحفظ على "صراع الكان" ويقلل من "عنصرية المدرجات" ويدعم المغرب لنهائي 2030**: [Link](https://www.hesport.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%84%D9%82%D9%87-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A7-%D8%A3%D8%AE%D9%88%D9%85%D8%A7%D8%B4-%D9%8A%D8%AA%D8%AD%D9%81%D8%B8-%D8%B9%D9%84%D9%89-%D8%B5%D8%B1-434366.html)
+
+
 ### الصندوق الوطني لمنظمات الاحتياط الاجتماعي (N/A, Mon, 13 Apr 2026 03:00:00 -0700)
 
 - **الـ”CNOPS” يحذر مؤمنيه من محاولات احتيال تستهدفهم عبر البريد الإلكتروني**: [Link](https://al3omk.com/1152098.html)
