@@ -1,3 +1,24 @@
+### الصندوق الوطني لمنظمات الاحتياط الاجتماعي (N/A, Mon, 13 Apr 2026 03:00:00 -0700)
+
+- **الـ”CNOPS” يحذر مؤمنيه من محاولات احتيال تستهدفهم عبر البريد الإلكتروني**: [Link](https://al3omk.com/1152098.html)
+- **إدماج تلقائي للطلبة ومراجعة تعريفة العلاج.. كواليس دمج صناديق التغطية الصحية بالمغرب**: [Link](https://al3omk.com/1151802.html)
+- **المجلس الاقتصادي ينبه لمخاطر دمج “الكنوبس” مع “الضمان الاجتماعي” ويوصي باعتماد تغطية صحية للطلبة وتقنين النفقات الطبية**: [Link](https://lakome2.com/societe/414184/)
+
+
+### email (N/A, Mon, 13 Apr 2026 01:40:00 -0700)
+
+- **Melania Trump’s Epstein statement stunned White House aides but was in keeping with a first lady who does her own thing**: [Link](https://edition.cnn.com/2026/04/10/politics/melania-trump-epstein-white-house)
+- **Trump Says First Lady ‘Had a Right’ to Talk About Epstein**: [Link](https://www.nytimes.com/2026/04/10/us/politics/trump-melania-epstein.html)
+- **‘Asinine’: Epstein survivor rebuffs Melania’s call for testimony, ‘We need investigations’**: [Link](https://www.ms.now/the-weekend/watch/asinine-epstein-survivor-rebuffs-melania-s-call-for-testimony-we-need-investigations-2496090691593)
+
+
+### cloud (N/A, Sun, 12 Apr 2026 20:40:00 -0700)
+
+- **OpenText strengthens EU cloud presence via AWS partnership**: [Link](https://news.az/news/opentext-strengthens-eu-cloud-presence-via-aws-partnership)
+- **Cloud and Sovereign AI: OpenText’s 2-Pronged Europe Push Signals a New Market Test**: [Link](https://www.el-balad.com/16911558)
+- **OpenText and S3NS Partner to Deliver European Sovereign Cloud Solutions With Google Cloud**: [Link](https://news.futunn.com/en/post/71394853/opentext-and-s3ns-partner-to-deliver-european-sovereign-cloud-solutions)
+
+
 ### radio mars (N/A, Mon, 13 Apr 2026 00:30:00 -0700)
 
 - **الإصابة تغيب زياش عن صفوف الوداد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%BA%D9%8A%D8%A8-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B9%D9%86-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1726490.html)
