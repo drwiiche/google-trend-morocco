@@ -1,3 +1,10 @@
+### fédération royale marocaine de football (N/A, Mon, 13 Apr 2026 15:10:00 -0700)
+
+- **Sélection féminine A: le match Maroc-Tanzanie se jouera à 21h00**: [Link](https://frmf.ma/fr/articles/selection-feminine-a-le-match-maroc-tanzanie-se-jouera-a-21h00)
+- **Football féminin : Changement d'horaire pour l'amical Maroc-Tanzanie**: [Link](https://fr.hespress.com/469380-football-feminin-changement-dheure-pour-lamical-maroc-tanzanie.html)
+- **Classement FIFA: un bond de trois places pour les Lionnes de l’Atlas**: [Link](https://sport.le360.ma/football/classement-fifa-un-bond-de-trois-places-pour-les-lionnes-de-latlas_GAYZY5S4UNAZHCYWR63S76KEKY/)
+
+
 ### كارلوس كيروش (N/A, Mon, 13 Apr 2026 14:20:00 -0700)
 
 - **كما أكد كووورة: رسميًا.. كيروش يظهر في مونديال 2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%85%D8%A7-%D8%A7%D9%94%D9%83%D8%AF-%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D9%83%D9%8A%D8%B1%D9%88%D8%B4-%D9%8A%D8%B8%D9%87%D8%B1-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/blt6dd0425cee3c6e1e)
