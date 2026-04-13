@@ -1,3 +1,17 @@
+### euphoria (N/A, Mon, 13 Apr 2026 15:20:00 -0700)
+
+- **Sydney Sweeney Gets Doggone Dirty in 'Euphoria' Season 3 Premiere**: [Link](https://www.tmz.com/2026/04/13/sydney-sweeney-sexiest-outfits-during-euphoria-season-3-premiere/)
+- **“Needs To Be Locked Up”: Euphoria Creator Slammed After “Nasty” Season 3 Premiere**: [Link](https://www.aol.com/articles/needs-locked-euphoria-creator-slammed-144257654.html)
+- **Did We Really Need Pup Play on Euphoria?**: [Link](https://www.thecut.com/article/euphoria-season-3-episode-1-recap-pup-play-galore.html)
+
+
+### gazoduc (N/A, Mon, 13 Apr 2026 14:30:00 -0700)
+
+- **Gazoduc Nigeria-Maroc : l’accord intergouvernemental signé cette année**: [Link](https://ledesk.ma/encontinu/gazoduc-nigeria-maroc-laccord-intergouvernemental-signe-cette-annee/)
+- **Gazoduc Maroc-Nigeria : l’ONHYM reconfirme la signature entre les treize pays attendue cette année**: [Link](https://mobile.telquel.ma/instant-t/2026/04/13/gazoduc-maroc-nigeria-lonhym-reconfirme-la-signature-entre-les-treize-pays-attendue-cette-annee_1984107/)
+- **Gazoduc Maroc-Nigeria: l’accord final sur les rails pour 2026**: [Link](https://h24info.ma/economie/gazoduc-nigeria-maroc-accord-2026/)
+
+
 ### fédération royale marocaine de football (N/A, Mon, 13 Apr 2026 15:10:00 -0700)
 
 - **Sélection féminine A: le match Maroc-Tanzanie se jouera à 21h00**: [Link](https://frmf.ma/fr/articles/selection-feminine-a-le-match-maroc-tanzanie-se-jouera-a-21h00)
