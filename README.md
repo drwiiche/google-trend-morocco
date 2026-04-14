@@ -1,3 +1,29 @@
+### akhbarona (N/A, Mon, 13 Apr 2026 22:40:00 -0700)
+
+
+
+
+### hespress (N/A, Mon, 13 Apr 2026 22:30:00 -0700)
+
+- **استئنافية الرباط تطوي ملف شغب "نهائي الكان" بتأييد الأحكام الابتدائية**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D8%B7%D9%88%D9%8A-%D9%85%D9%84%D9%81-%D8%B4%D8%BA%D8%A8-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84-1730772.html)
+- **الاستنجاد بالكاف.. دفاع مشجعي السنغال يقدم طلبا عاجلا للمحكمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%86%D8%AC%D8%A7%D8%AF-%D8%A8%D8%A7%D9%84%D9%83%D8%A7%D9%81--%D8%AF%D9%81%D8%A7%D8%B9-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%8A%D9%82%D8%AF%D9%85-%D8%B7%D9%84%D8%A8%D8%A7-%D8%B9%D8%A7%D8%AC%D9%84%D8%A7-%D9%84%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9/blt8a9aa45838ac5977)
+- **محكمة الاستئناف بالرباط تؤجل البت في ملف المشجعين السنغاليين**: [Link](https://ar.hibapress.com/details-717532.html)
+
+
+### إسرائيل (N/A, Mon, 13 Apr 2026 22:00:00 -0700)
+
+- **محادثات واشنطن.. لبنان يأمل وقف إطلاق النار وإسرائيل تصر على ترتيبات أمنية**: [Link](https://www.aljazeera.net/news/2026/4/14/%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA-%D8%AA%D8%A3%D9%85%D9%84-%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%86%D8%A7%D8%B1)
+- **قناة عبرية: خطة إسرائيلية تقترح وجودا عسكريا في لبنان بموافقة بيروت**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%82%D9%86%D8%A7%D8%A9-%D8%B9%D8%A8%D8%B1%D9%8A%D8%A9-%D8%AE%D8%B7%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D8%B1%D8%AD-%D9%88%D8%AC%D9%88%D8%AF%D8%A7-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%A8%D9%85%D9%88%D8%A7%D9%81%D9%82%D8%A9-%D8%A8%D9%8A%D8%B1%D9%88%D8%AA/3904513)
+- **لبنانيون أنهكتهم حروب إسرائيل يريدون منح المفاوضات فرصة**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260413-%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A%D9%88%D9%86-%D8%A3%D9%86%D9%87%D9%83%D8%AA%D9%87%D9%85-%D8%AD%D8%B1%D9%88%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%8A%D8%B1%D9%8A%D8%AF%D9%88%D9%86-%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%81%D8%B1%D8%B5%D8%A9)
+
+
+### carburant (N/A, Mon, 13 Apr 2026 17:50:00 -0700)
+
+- **Carburant : attention au retour de l'arnaque au pistolet dans les stations-service**: [Link](https://www.capital.fr/auto/carburant-attention-au-retour-de-l-arnaque-au-pistolet-dans-les-stations-service-1525553)
+- **Arnaque au « pistolet mal raccroché » : cette station-service de Vendée appelle à la vigilance**: [Link](https://www.ouest-france.fr/economie/transports/carburants-essence-diesel/arnaque-au-pistolet-mal-raccroche-cette-station-service-de-vendee-appelle-a-la-vigilance-f6da81be-370f-11f1-aa8d-862764c4f0ec)
+- **Carburant : attention au retour de l'arnaque au pistolet dans les stations-service**: [Link](https://www.msn.com/fr-fr/finance/autres/carburant-attention-au-retour-de-l-arnaque-au-pistolet-dans-les-stations-service/ar-AA20MA9h?cvid=69ddb0179fff4d80ada103f42f767944&ocid=mailsignout)
+
+
 ### ياسين بونو (N/A, Mon, 13 Apr 2026 17:00:00 -0700)
 
 - **"متواضع ويجب طرده".. جماهير الهلال السعودي تنهش عظام ياسين بونو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%AA%D9%88%D8%A7%D8%B6%D8%B9-%D9%88%D9%8A%D8%AC%D8%A8-%D8%B7%D8%B1%D8%AF%D9%87--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%AA%D9%86%D9%87%D8%B4-%D8%B9%D8%B8%D8%A7%D9%85-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88/blt9d812f8c10e9b6c3)
