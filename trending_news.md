@@ -1,3 +1,29 @@
+### pape léon xiv (N/A, Tue, 14 Apr 2026 00:50:00 -0700)
+
+- **Le premier jour de la visite du pape en Algérie marqué par un attentat-suicide raté dans les environs d’Alger**: [Link](https://www.lemonde.fr/afrique/article/2026/04/14/le-premier-jour-de-la-visite-du-pape-en-algerie-marque-par-une-tentative-d-attentat-dans-les-environs-d-alger_6679763_3212.html)
+- **Exclusif : attentat kamikaze à Blida en parallèle de la visite du pape à Alger**: [Link](https://www.marianne.net/monde/afrique/exclusif-attentat-kamikaze-a-blida-algerie-les-terroristes-seraient-decedes)
+- **Au premier jour de sa visite en Algérie, Léon XIV dénonce "les tendances néocoloniales"**: [Link](https://www.france24.com/fr/afrique/20260413-au-premier-jour-de-sa-visite-en-alg%C3%A9rie-l%C3%A9on-xiv-d%C3%A9nonce-les-tendances-n%C3%A9ocoloniales)
+
+
+### salah abdeslam (N/A, Tue, 14 Apr 2026 00:00:00 -0700)
+
+- **La mère et la sœur de Salah Abdeslam placées en garde à vue pour remise illicite d’objet à un détenu condamné pour terrorisme**: [Link](https://www.lemonde.fr/societe/article/2026/04/13/la-mere-et-la-s-ur-de-salah-abdeslam-placees-en-garde-a-vue-pour-remise-illicite-d-objet-a-un-detenu-condamne-pour-terrorisme_6679711_3224.html)
+- **INFO EUROPE 1 – Des proches de Salah Abdeslam placés en garde à vue juste avant un parloir avec le terroriste**: [Link](https://www.europe1.fr/police-justice/info-europe-1-des-proches-de-salah-abdeslam-places-en-garde-a-vue-juste-avant-un-parloir-avec-le-terroriste-923710)
+- **Plusieurs proches de Salah Abdeslam interpellés devant la prison de Vendin-le-Vieil dans le Pas-de-Calais**: [Link](https://www.francebleu.fr/hauts-de-france/pas-de-calais-62/vendin-le-vieil/plusieurs-proches-de-salah-abdeslam-interpelles-devant-la-prison-de-vendin-le-vieil-dans-le-pas-de-calais-2948252)
+
+
+### hibapress (N/A, Mon, 13 Apr 2026 22:20:00 -0700)
+
+
+
+
+### كأس الأمم الإفريقية (N/A, Mon, 13 Apr 2026 22:10:00 -0700)
+
+- **الكشف عن سر اختفاء 7 لاعبين منتخب إريتريا في إسواتيني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%B3%D8%B1-%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-7-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%95%D8%B1%D9%8A%D8%AA%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A7%D9%95%D8%B3%D9%88%D8%A7%D8%AA%D9%8A%D9%86%D9%8A/blta453ae480296d9e8)
+- **ظاهرة فرار اللاعبين تهدد مشاركات إريتريا الكروية الدولية**: [Link](https://www.aljazeera.net/sport/2026/4/9/%D9%81%D8%B1%D8%A7%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B1%D9%8A%D8%AA%D9%8A%D8%B1%D9%8A%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **أين اختفى لاعبو منتخب إريتريا بعد فوزهم في تصفيات كأس أمم أفريقيا؟**: [Link](https://www.annahar.com/sports/296816/%D8%A3%D9%8A%D9%86-%D8%A7%D8%AE%D8%AA%D9%81%D9%89-%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B1%D9%8A%D8%AA%D8%B1%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D9%81%D9%88%D8%B2%D9%87%D9%85-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+
+
 ### akhbarona (N/A, Mon, 13 Apr 2026 22:40:00 -0700)
 
 
