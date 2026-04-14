@@ -1,3 +1,59 @@
+### الولايات المتحدة (N/A, Tue, 14 Apr 2026 05:00:00 -0700)
+
+- **حرب إيران.. ترقب لجولة محادثات جديدة بين واشنطن وطهران وتحذير روسي لإسرائيل**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/14/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-15-%D8%B3%D9%81%D9%8A%D9%86%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1)
+- **مصادر: عودة الحوار الإيراني الأمريكي**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-1730793.html)
+- **عراقجي: إيران كانت على "بعد خطوات قليلة" من التوصل إلى اتفاق**: [Link](https://www.alarabiya.net/iran/2026/04/13/%D9%82%D8%A7%D9%84%D9%8A%D8%A8%D8%A7%D9%81)
+
+
+### nba scores (N/A, Tue, 14 Apr 2026 04:40:00 -0700)
+
+- **NBA: Atlanta Hawks secure play-off spot, LeBron James passes 12,000 assists**: [Link](https://www.bbc.com/sport/basketball/articles/czd7qvpz89eo)
+- **Celtics vs pelicans highlights: Latest News, Schedules, and Results**: [Link](https://www.cricketnmore.com/sports-topics/celtics-vs-pelicans-highlights)
+- **Aussies set to get NBA playoff party started**: [Link](https://www.canberratimes.com.au/story/9221697/aussies-set-to-get-nba-playoff-party-started/)
+
+
+### world cup (N/A, Tue, 14 Apr 2026 04:40:00 -0700)
+
+- **FIFA Faces Backlash After Introducing New World Cup Ticket Category**: [Link](https://www.moroccoworldnews.com/2026/04/286926/fifa-faces-backlash-after-introducing-new-world-cup-ticket-category/)
+- **‘Hard to not feel scammed’: World Cup fans say FIFA misled them with ticket allocations, seat maps - The Athletic**: [Link](https://www.nytimes.com/athletic/7175652/2026/04/08/world-cup-tickets-fans-stadium-seating-map/)
+- **The great soccer World Cup swindle**: [Link](https://spectator.com/article/the-great-soccer-world-cup-swindle/)
+
+
+### olympics 2024 (N/A, Tue, 14 Apr 2026 04:40:00 -0700)
+
+- **CNOSF vice-president under fire over Paris 2024 resales**: [Link](https://www.insidethegames.biz/articles/cnosf-vice-president-under-fire-over-paris-2024-resales)
+- **China probes ‘malicious’ cyberbullying of teen diving champion Quan**: [Link](https://www.aljazeera.com/sports/2026/4/8/china-probes-malicious-cyberbullying-of-teen-diving-champion-quan)
+- **31-year-old man fined, detained for 10 days for making insulting remarks about Olympic diving champion Quan Hongchan: Guangdong police**: [Link](https://www.globaltimes.cn/page/202604/1358652.shtml)
+
+
+### formula 1 (N/A, Tue, 14 Apr 2026 04:40:00 -0700)
+
+- **Max Verstappen expected to quit F1 following shock Red Bull departure**: [Link](https://racingnews365.com/gianpiero-lambiase-exit-tipped-as-final-nail-in-max-verstappen-red-bull-coffin)
+- **Why Lambiase might not see out his Red Bull contract until 2027**: [Link](https://www.gpblog.com/en/news/coulthard-casts-fresh-doubt-on-lambiase-remaining-at-red-bull-for-2027)
+- **Reaction: Gianpiero Lambiase to leave Red Bull for McLaren in 2028**: [Link](https://www.formula1.com/en/video/reaction-gianpiero-lambiase-to-leave-red-bull-for-mclaren-in-2028.1862346969239087087)
+
+
+### news today (N/A, Tue, 14 Apr 2026 04:40:00 -0700)
+
+- **U.S. Oil Blockade Is Set to Boost American Exports—and Prices at the Pump**: [Link](https://www.wsj.com/business/energy-oil/u-s-oil-blockade-is-set-to-boost-american-exportsand-prices-at-the-pump-005e1a70)
+- **The economic game of chicken between Iran and the US is about to enter a dangerous new phase | CNN Business**: [Link](https://www.cnn.com/2026/04/14/business/economic-impact-us-iran-blockade)
+- **Live Updates: In Iran war, push to resume U.S.-Iran talks intensifies as U.S. blockade of Iran's ports enters Day 2**: [Link](https://www.cbsnews.com/live-updates/iran-war-peace-talks-us-blockade-irans-ports-day-2/)
+
+
+### netflix (N/A, Tue, 14 Apr 2026 04:40:00 -0700)
+
+- **Megan Fox’s Raunchy NSFW Movie Gets Netflix Streaming Date**: [Link](https://www.yahoo.com/entertainment/movies/articles/megan-fox-raunchy-nsfw-movie-121347003.html)
+- **Netflix's Upcoming YA Show Is The Perfect Follow-Up To 17-Year-Old Cult Classic Movie**: [Link](https://screenrant.com/the-body-jennifers-body-homoerotic-teen-thriller-similarities/)
+- **Once Panned by Critics, This Provocative Megan Fox Horror Is Now a Cult Classic —And It Just Landed on Netflix**: [Link](https://www.mensjournal.com/news/once-panned-by-critics-this-provocative-megan-fox-horror-is-now-a-cult-classic-and-it-just-landed-on-netflix)
+
+
+### artificial intelligence (N/A, Tue, 14 Apr 2026 04:30:00 -0700)
+
+- **Prediction: This Artificial Intelligence (AI) Stock Is Going to Double Before 2026 Is Over**: [Link](https://www.fool.com/investing/2026/04/14/prediction-ai-stock-going-double-before-2026-over/)
+- **BTIG Reiterates Buy Rating on UPST, Maintains $43 Price Target |**: [Link](https://www.gurufocus.com/news/8785413/btig-reiterates-buy-rating-on-upst-maintains-43-price-target-upst-stock-news?mobile=true)
+- **Balanced Risk-Reward Keeps Upstart Rated Hold Amid Slowing Origination Growth and Unclear New Verticals Contribution**: [Link](https://www.tipranks.com/news/ratings/balanced-risk-reward-keeps-upstart-rated-hold-amid-slowing-origination-growth-and-unclear-new-verticals-contribution-ratings-news)
+
+
 ### pixel 9 (N/A, Tue, 14 Apr 2026 04:30:00 -0700)
 
 - **Pixel users report battery drain issues after March update, and this could be the reason**: [Link](https://www.androidauthority.com/pixel-battery-drain-bug-3657219/)
