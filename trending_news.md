@@ -1,3 +1,10 @@
+### casablanca (N/A, Mon, 13 Apr 2026 22:40:00 -0700)
+
+- **Corniche de Casablanca: début de l’opération coup de poing contre des établissements emblématiques construits illégalement**: [Link](https://fr.le360.ma/societe/corniche-de-casablanca-debut-de-loperation-coup-de-poing-contre-des-etablissements-emblematiques_CBBBCKKM2RFI5APU54GANSIDBM/)
+- **[Diaporama] Médina de Casablanca : opération de démolition à Derb Rmad**: [Link](https://mobile.telquel.ma/diaporamas/diaporama-medina-de-casablanca-demolitions-sous-tension-a-derb-rmad)
+- **Casablanca: vive contestation autour du projet de réaménagement du quartier Hay Mohammadi**: [Link](https://fr.le360.ma/societe/casablanca-vive-contestation-autour-du-projet-de-reamenagement-du-quartier-hay-mohammadi_PG3FNBASLNCDBI6CZ2NFBD6JJI/)
+
+
 ### pape léon xiv (N/A, Tue, 14 Apr 2026 00:50:00 -0700)
 
 - **Le premier jour de la visite du pape en Algérie marqué par un attentat-suicide raté dans les environs d’Alger**: [Link](https://www.lemonde.fr/afrique/article/2026/04/14/le-premier-jour-de-la-visite-du-pape-en-algerie-marque-par-une-tentative-d-attentat-dans-les-environs-d-alger_6679763_3212.html)
