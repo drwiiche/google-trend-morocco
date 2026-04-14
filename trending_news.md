@@ -1,3 +1,10 @@
+### simeone (N/A, Tue, 14 Apr 2026 14:00:00 -0700)
+
+- **Kylian Mbappé and Diego Simeone united by one goal**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/kylian-mbapp%C3%A9-and-diego-simeone-united-by-one-goal-2026-04-14)
+- **Explained: why Diego Simeone is called 'El Cholo'**: [Link](https://tribuna.com/en/blogs/explained-why-diego-simeone-is-called-el-cholo/)
+- **Atletico vs Barcelona 1-2 (3-2 agg): Champions League – as it happened**: [Link](https://www.aljazeera.com/sports/liveblog/2026/4/14/live-atletico-madrid-vs-barcelona-champions-league-quarterfinal)
+
+
 ### pétrole (N/A, Tue, 14 Apr 2026 14:40:00 -0700)
 
 - **Wall Street termine en hausse, les investisseurs renouent avec le risque**: [Link](https://medias24.com/agence-presse/wall-street-termine-en-hausse-les-investisseurs-renouent-avec-le-risque/)
