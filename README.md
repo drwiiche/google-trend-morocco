@@ -1,3 +1,24 @@
+### آيت منا (N/A, Tue, 14 Apr 2026 07:00:00 -0700)
+
+- **رئاسة الوداد.. ما بين بدلة "البهلوان" وقبعة "الساحر!"**: [Link](https://ar.telquel.ma/%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%85%D8%A7-%D8%A8%D9%8A%D9%86-%D8%A8%D8%AF%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D9%87%D9%84%D9%88%D8%A7%D9%86-%D9%88%D9%82%D8%A8/)
+- **«غضب» حدراف بسبب أسرار الوداد**: [Link](https://www.radiomars.ma/%D8%BA%D8%B6%D8%A8-%D8%AD%D8%AF%D8%B1%D8%A7%D9%81-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A3%D8%B3%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF/)
+- **عدالة السماء تُنصف مدافع الـ"ماص"… هدف "الجبالي" الأنطولوجي في مرمى الوداد يُفجّر ملفًا قديمًا مع "آيت منا"**: [Link](https://www.akhbarona.com/sport/footmarocain/424261.html)
+
+
+### لافيراي السالمية (N/A, Tue, 14 Apr 2026 06:50:00 -0700)
+
+- **غيريبوه هو وقاعة الأفراح وملعب تيسيما.. باي باي لافيراي السالمية!!**: [Link](https://kifache.com/%D8%BA%D9%8A%D8%B1%D9%8A%D8%A8%D9%88%D9%87-%D9%87%D9%88-%D9%88%D9%82%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D8%A7%D8%AD-%D9%88%D9%85%D9%84%D8%B9%D8%A8-%D8%AA%D9%8A%D8%B3%D9%8A%D9%85%D8%A7/)
+- **هدم محلات بسيدي مسعود.. المتضررون يطالبون بتعويض عادل (فيديو)**: [Link](https://ihata.ma/societe/hedm-mahallat-sidi-masoud-taw3id-mutadaririn/)
+- **لافيراي السالمية في خبر كان .. سلطات البيضاء تشرع في هدم أشهر سوق لقطع الغيار**: [Link](https://ar.hibapress.com/details-717570.html)
+
+
+### attijariwafa bank (N/A, Tue, 14 Apr 2026 06:50:00 -0700)
+
+- **Attijariwafa bank : M.S.IN recommande le titre et vise 12% de hausse**: [Link](https://medias24.com/2026/04/13/attijariwafa-bank-m-s-in-recommande-le-titre-et-vise-12-de-hausse-1658655/)
+- **Bourse : Attijariwafa bank, un titre à renforcer dans les portefeuilles (M.S.IN)**: [Link](https://lematin.ma/economie/bourse-attijariwafa-bank-un-titre-a-renforcer-dans-les-portefeuilles/339972)
+- **Attijariwafa bank : une croissance portée par la diversification et l’expansion**: [Link](https://mobile.telquel.ma/2026/04/07/attijariwafa-bank-une-croissance-portee-par-la-diversification-et-lexpansion_1982821)
+
+
 ### الولايات المتحدة (N/A, Tue, 14 Apr 2026 05:00:00 -0700)
 
 - **حرب إيران.. ترقب لجولة محادثات جديدة بين واشنطن وطهران وتحذير روسي لإسرائيل**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/14/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-15-%D8%B3%D9%81%D9%8A%D9%86%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1)
