@@ -1,3 +1,72 @@
+### 365scores (N/A, Tue, 14 Apr 2026 12:50:00 -0700)
+
+- **The Briefing: Will playing at Etihad help Arsenal? Are Tottenham done? Is Ngumoha the real thing? - The Athletic**: [Link](https://www.nytimes.com/athletic/7191017/2026/04/13/premier-league-title-race-arsenal-man-city-tottenham-relegation-ngumoha-liverpool/)
+- **Premier League: 10 talking points from the weekend’s action**: [Link](https://www.theguardian.com/football/2026/apr/13/premier-league-10-talking-points-from-the-weekends-action)
+- **Manchester City Surge as Arsenal Flounders in Premier League Title Twist**: [Link](https://streamlinefeed.co.ke/news/man-city-surge-as-arsenal-flounders-in-premier-league-title-twist)
+
+
+### البارصا (N/A, Tue, 14 Apr 2026 12:40:00 -0700)
+
+- **برشلونة يصارع ريال مدريد على صفقة مغربية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B5%D8%A7%D8%B1%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B9%D9%84%D9%89-%D8%B5%D9%81%D9%82%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9/blta8133a16e602c5d9)
+- **تقرير: العيناوي يجذب البارصا والريال**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%8A%D8%AC%D8%B0%D8%A8-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%B5%D8%A7-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-1730506.html)
+- **صراع بين الريال والبارصا لضم نجم «الأسود»**: [Link](https://www.radiomars.ma/%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A8%D9%8A%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%B6%D9%85-%D9%86%D8%AC%D9%85-%D8%A7%D9%84/)
+
+
+### bet 365 (N/A, Tue, 14 Apr 2026 12:40:00 -0700)
+
+- **Bet365 bonus code: Get $200 bonus bets for Heat-Hornets, Suns-Blazers, Dodgers-Mets, NBA, MLB on Tuesday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-get-200-bonus-bets-heat-hornets-suns-blazers-dodgers-mets-nba-mlb-tuesday/)
+- **bet365 bonus code: Bet $10, get $200 in bonus bets for Yankees vs. Angels**: [Link](https://nypost.com/2026/04/14/betting/bet365-bonus-code-bet-10-get-200-in-bonus-bets-for-yankees-vs-angels/)
+- **Michigan BetMGM Bonus Code CUSE150 secures $150 bonus and $5K+ NBA Play-In promo**: [Link](https://www.syracuse.com/betting/2026/04/michigan-betmgm-bonus-code-cuse150-secures-150-bonus-and-5k-nba-play-in-promo.html)
+
+
+### southampton – blackburn (N/A, Tue, 14 Apr 2026 12:40:00 -0700)
+
+- **Predicted team as Saints expected to make five changes for the visit of Blackburn**: [Link](https://saintsmarching.com/predicted-team-as-saints-expected-to-make-five-changes-for-the-visit-of-blackburn)
+- **Blackburn Rovers injury crisis set to continue against Southampton**: [Link](https://hayters.com/blackburn-rovers-injury-crisis-set-to-continue-against-southampton/)
+- **Preview: Southampton v Rovers**: [Link](https://www.rovers.co.uk/news/2026/april/14/preview--southampton-v-rovers/)
+
+
+### sofascore (N/A, Tue, 14 Apr 2026 12:30:00 -0700)
+
+- **We Put Goats on a Basketball Court. Here’s What Happened.**: [Link](https://www.sofascore.com/news/we-put-goats-on-a-basketball-court-heres-what-happened/)
+- **The Greatest Basketball Debate in History Just Got a Cheese. Sofascore Explains Why**: [Link](https://techbullion.com/the-greatest-basketball-debate-in-history-just-got-a-cheese-sofascore-explains-why/)
+
+
+### 365 (N/A, Tue, 14 Apr 2026 12:30:00 -0700)
+
+- **Score a massive $700 off this 4K-ready Lenovo gaming PC with an RTX 5070 Ti, now just $1,899 — epic Legion Tower 5i pre-built ships with a 20-core Intel CPU, 32GB DDR5 and a 2TB SSD**: [Link](https://www.tomshardware.com/desktops/gaming-pcs/score-a-massive-usd700-off-this-4k-ready-lenovo-gaming-pc-with-an-rtx-5070-ti-now-just-usd1-899-epic-legion-tower-5i-pre-built-ships-with-a-20-core-intel-cpu-32gb-ddr5-and-a-2tb-ssd)
+- **msi’s RTX 5070 Ti GPU with triple fan cooling is now at its lowest price**: [Link](https://www.wepc.com/news/msis-rtx-5070-ti-gpu-with-triple-fan-cooling-is-now-at-its-lowest-price/)
+- **Amazon’s choice, overclocked MSI RTX 5080, sees price fall in latest Amazon deal**: [Link](https://www.pcguide.com/deals/amazons-choice-overclocked-msi-rtx-5080-sees-price-fall-in-latest-amazon-deal/)
+
+
+### كرة (N/A, Tue, 14 Apr 2026 12:30:00 -0700)
+
+- **فليك يفاجئ أتلتيكو بتوليفة استثنائية.. ويامال يدخل التاريخ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%A8%D8%AA%D9%88%D9%84%D9%8A%D9%81%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9--%D9%88%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE/blt09474e3e27b495b3)
+- **خبر سار لأتلتيكو مدريد قبل مواجهة برشلونة الحاسمة بدوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/4/13/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D9%88%D8%A8%D9%84%D8%A7%D9%83-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **أتلتيكو مدريد X برشلونة.. أوبلاك احتياطي وفليك يعتمد على فيران توريس في الهجوم**: [Link](https://m.elbotola.com/article/2026-04-14-17-59-118.html)
+
+
+### flash score (N/A, Tue, 14 Apr 2026 12:30:00 -0700)
+
+- **Rogle are one win from the SHL finals after a 4-1 win over Vaxjo in game four**: [Link](https://www.flashscore.co.za/news/hockey-shl-shl-playoffs-rogle-one-win-from-finals-after-quick-start-downs-vaxjo/hALo7DN9/)
+- **Albin Sundsvik scored three as Rogle won 6-0 away at Vaxjo in game two of SHL playoff semi-final**: [Link](https://www.flashscore.co.za/news/hockey-shl-shl-playoffs-rogle-hammer-vaxjo-on-the-road-to-take-control-of-semi-final/OnLfp9xA/)
+- **Mobile live scores – Flashscore.mobi football results.**: [Link](https://tanja7.com/en/10064)
+
+
+### كورة (N/A, Tue, 14 Apr 2026 12:20:00 -0700)
+
+- **صورة .. تصدي موسو لهدف محقق لبرشلونة**: [Link](https://hihi2.com/2026/04/14/p3726563.html)
+- **الحلم سبورت : صورة .. تصدي موسو لهدف محقق لبرشلونة**: [Link](https://al7lmnews.com/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-%D8%B5%D9%88%D8%B1%D8%A9-%D8%AA%D8%B5%D8%AF%D9%8A-%D9%85%D9%88%D8%B3%D9%88-%D9%84%D9%87%D8%AF%D9%81-%D9%85%D8%AD%D9%82%D9%82-%D9%84/)
+- **ليفربول يبحث عن التعويض وسان جيرمان يسعى لحسم التأهل**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-2026-04-13)
+
+
+### livescore (N/A, Tue, 14 Apr 2026 12:20:00 -0700)
+
+- **Is Livescore reaping the rewards of its Netherlands exit?**: [Link](https://igamingexpert.com/regions/europe/livescore-netherlands-bigger-hurdles/)
+- **LiveScore FY25: Revenue +15%, UK Tax to 40% Clouds Outlook — April 14**: [Link](https://meyka.com/blog/livescore-fy25-revenue-15-uk-tax-to-40-clouds-outlook-april-14-1404/)
+- **LiveScore is growing up financially — But it’s not out of the woods yet**: [Link](https://www.igamingtoday.com/livescore-is-growing-up-financially-but-its-not-out-of-the-woods-yet/)
+
+
 ### barca (N/A, Tue, 14 Apr 2026 11:50:00 -0700)
 
 - **Alla Milano Design Week 2026 una barca a vela diventa espressione di design all’interno di Design Palazzo Austria**: [Link](https://pressmare.it/it/comunicazione/comunicati/2026-04-14/milano-design-week-2026-barca-a-vela-design-palazzo-austria-89284)
