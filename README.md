@@ -1,3 +1,73 @@
+### barca (N/A, Tue, 14 Apr 2026 11:50:00 -0700)
+
+- **Alla Milano Design Week 2026 una barca a vela diventa espressione di design all’interno di Design Palazzo Austria**: [Link](https://pressmare.it/it/comunicazione/comunicati/2026-04-14/milano-design-week-2026-barca-a-vela-design-palazzo-austria-89284)
+- **Design austriaco in un intero palazzo per una settimana**: [Link](https://www.thewaymagazine.it/design-of-desire/design-austriaco-in-un-intero-palazzo-per-una-settimana/)
+- **Julius Meinl parteciperà alla Milano Design Week 2026 con il rito del caffè viennese dal 20 al 26 aprile**: [Link](https://www.comunicaffe.it/julius-meinl-milano-design-week-2026-palazzo-austria/)
+
+
+### yalla kora (N/A, Tue, 14 Apr 2026 11:50:00 -0700)
+
+- **فيديو: ركلات الحظ تحسم قمة آسيا وتقود السد لربع نهائي النخبة أمام الهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B8-%D8%AA%D8%AD%D8%B3%D9%85-%D9%82%D9%85%D8%A9-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%88%D8%AA%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%B3%D8%AF-%D9%84%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/bltf71826547b2ec422)
+- **شاهد.. ملخص وأهداف فوز السد القطري على الهلال السعودي في دوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/13/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D8%AF-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A)
+- **قدم.. السد القطري يتأهل لربع نهائي دوري أبطال آسيا للنخبة**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%B3%D8%AF-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9/3904606)
+
+
+### بوشهر (N/A, Tue, 14 Apr 2026 11:50:00 -0700)
+
+- **روسيا توجه رسالة شديدة اللهجة لإسرائيل بسبب الهجوم على مفاعل بوشهر**: [Link](https://www.aljazeera.net/news/2026/4/14/%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%87%D8%AC%D9%85%D8%A7%D8%AA%D9%87%D8%A7-%D8%B9%D9%84%D9%89)
+- **"روس آتوم": 20 شخصا لا يزالون في محطة بوشهر النووية الإيرانية**: [Link](https://arabi21.com/story/1751973/%D8%B1%D9%88%D8%B3-%D8%A2%D8%AA%D9%88%D9%85-20-%D8%B4%D8%AE%D8%B5%D8%A7-%D9%84%D8%A7-%D9%8A%D8%B2%D8%A7%D9%84%D9%88%D9%86-%D9%81%D9%8A-%D9%85%D8%AD%D8%B7%D8%A9-%D8%A8%D9%88%D8%B4%D9%87%D8%B1-%D8%A7%D9%84%D9%86%D9%88%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9)
+- **موسكو تعلن إجلاء غالبية الروس العاملين في محطة بوشهر النووية في إيران**: [Link](https://www.raialyoum.com/%D9%85%D9%88%D8%B3%D9%83%D9%88-%D8%AA%D8%B9%D9%84%D9%86-%D8%A5%D8%AC%D9%84%D8%A7%D8%A1-%D8%BA%D8%A7%D9%84%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%B1%D9%88%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D9%84%D9%8A/)
+
+
+### النرويج (N/A, Tue, 14 Apr 2026 11:50:00 -0700)
+
+- **"الأسود" يواجهون النرويج وديا بأمريكا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87%D9%88%D9%86-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-%D9%88%D8%AF%D9%8A%D8%A7-%D8%A8%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-1731046.html)
+- **حكيمي ضد هالاند.. المغرب يستعد للمونديال بودية أمام النرويج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B6%D8%AF-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A8%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC/blt9a7021a5c626241d)
+- **مدرب المنتخب النرويجي: "المنتخب المغربي يشبه خصمنا السنغالي ونحن سعداء بمواجهتهم"**: [Link](https://m.elbotola.com/article/2026-04-14-15-30-582.html)
+
+
+### tod (N/A, Tue, 14 Apr 2026 11:50:00 -0700)
+
+- **Heike* (61): „Der Tod des Vaters meines Jüngsten hat mich endgültig umgehauen“**: [Link](https://www.nordkurier.de/regional/uckermark/heike-61-der-tod-des-vaters-meines-juengsten-hat-mich-endgueltig-umgehauen-4503871)
+- **Nicole Kidman: Hollywood-Star möchte sich zur Sterbebegleiterin ausbilden lassen**: [Link](https://www.spiegel.de/kultur/kino/nicole-kidman-moechte-sich-zur-sterbebegleiterin-ausbilden-lassen-a-6aa598c8-5a8f-4da5-ae82-7747ded03f8a)
+- **Politthriller-Serie mit Luc Schiltz und Désirée Nosbusch auf RTL ZWEE**: [Link](https://www.wort.lu/panorama/starsandroyals/politthriller-serie-mit-luc-schiltz-und-desiree-nosbusch-auf-rtl-zwee/106393835.html)
+
+
+### barca vs atletico madrid (N/A, Tue, 14 Apr 2026 11:40:00 -0700)
+
+- **Alineación posible del Atlético hoy frente al Barcelona en cuartos de Champions**: [Link](https://as.com/futbol/champions/alineacion-posible-del-atletico-hoy-frente-al-barcelona-en-cuartos-de-champions-f202604-n/)
+- **Musso, titular**: [Link](https://www.marca.com/futbol/atletico/2026/04/14/musso-titular.html)
+- **El dilema de Simeone, entre las manos de Oblak o el buen pie de Musso**: [Link](https://elpais.com/deportes/futbol/2026-04-14/el-dilema-de-simeone-entre-las-manos-de-oblak-o-el-buen-pie-de-musso.html)
+
+
+### الاتحاد ضد الوحدة (N/A, Tue, 14 Apr 2026 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الاتحاد والوحدة في دور الـ 16 من دوري أبطال آسيا النخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt940e3353b7216567)
+- **مواجهة مرتقبة بين الاتحاد والوحدة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/afc-champions-league/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9-2026-04-14)
+- **مباشر.. مباراة الاتحاد ضد الوحدة في دوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B6%D8%AF-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9)
+
+
+### أتلتيكو مدريد ضد برشلونة (N/A, Tue, 14 Apr 2026 11:20:00 -0700)
+
+- **هل ينجح "ترياق يامال" مجددا؟.. تشكيل موقعة الإياب بين برشلونة وأتلتيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D9%86%D8%AC%D8%AD-%D8%AA%D8%B1%D9%8A%D8%A7%D9%82-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7--%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%A7%D8%A8-%D8%A8%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/blt280f31d78229c5e2)
+- **مباشر مباراة أتلتيكو مدريد ضد برشلونة في إياب ربع نهائي أبطال أوروبا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **لامين يامال يتحدى سيميوني قبل مواجهة برشلونة وأتلتيكو مدريد**: [Link](https://www.skynewsarabia.com/sport/1864042-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+
+
+### atlético madrid vs barcelona (N/A, Tue, 14 Apr 2026 11:20:00 -0700)
+
+- **Atlético vs Barcelona: estadísticas previas y datos en directo | Champions League 2025/2026**: [Link](https://chile.as.com/resultados/futbol/champions/2025_2026/directo/cuartos_a_2_69a523bd97c1836/)
+- **El once del Barça contra el Atlético: Gavi, titular y nueve puro**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260414/1004170559/once-barca-atletico-gavi-titular-nueve-puro.html)
+- **Atlético - Barcelona, en directo: alineaciones de la Champions League, hoy en vivo**: [Link](https://www.sport.es/es/noticias/barca/atletico-barcelona-champions-directo-cuartos-vivo-129072329)
+
+
+### ليفربول ضد بي اس جي (N/A, Tue, 14 Apr 2026 11:20:00 -0700)
+
+- **سلوت متحديا إنريكي: سأجعلها ليلة لن يستمتع بها أبطال أوروبا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%84%D9%88%D8%AA-%D9%85%D8%AA%D8%AD%D8%AF%D9%8A%D8%A7-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%B3%D8%A7%D9%94%D8%AC%D8%B9%D9%84%D9%87%D8%A7-%D9%84%D9%8A%D9%84%D8%A9-%D9%84%D9%86-%D9%8A%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D8%A8%D9%87%D8%A7-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt9aad06f54fb074ea)
+- **مباشر مباراة ليفربول وسان جيرمان في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+- **إنريكي مدرب سان جيرمان: مواجهة ليفربول خادعة وعلينا الحذر منهم**: [Link](https://www.hesport.com/%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-434865.html)
+
+
 ### al ittihad – al-wahda (N/A, Tue, 14 Apr 2026 10:20:00 -0700)
 
 - **📲 Tuesday, Champions League, lots of Sula and Libertadores; see fixtures**: [Link](https://onefootball.com/fr/news/tuesday-champions-league-lots-of-sula-and-libertadores-see-fixtures-42707925)
