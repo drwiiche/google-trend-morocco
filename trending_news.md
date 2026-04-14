@@ -1,3 +1,52 @@
+### pétrole (N/A, Tue, 14 Apr 2026 14:40:00 -0700)
+
+- **Wall Street termine en hausse, les investisseurs renouent avec le risque**: [Link](https://medias24.com/agence-presse/wall-street-termine-en-hausse-les-investisseurs-renouent-avec-le-risque/)
+- **Le pétrole baisse avec l’espoir de nouveaux pourparlers entre l’Iran et les Etats-Unis**: [Link](https://mobile.telquel.ma/instant-t/2026/04/14/le-petrole-baisse-avec-lespoir-de-nouveaux-pourparlers-entre-liran-et-les-etats-unis_1984186/)
+- **Bourses en hausse, pétrole en baisse sur espoirs de dialogue USA-Iran**: [Link](https://fr.euronews.com/business/2026/04/14/les-bourses-montent-le-petrole-recule-sur-fond-despoir-de-nouvelles-discussions-usa-iran)
+
+
+### laâyoune (N/A, Tue, 14 Apr 2026 14:30:00 -0700)
+
+- **L'ambassadeur de France inaugurera le 15 avril à Laâyoune le nouveau lycée français Paul Pascon**: [Link](https://mobile.telquel.ma/instant-t/2026/04/14/lambassadeur-de-france-inaugurera-le-15-avril-a-laayoune-le-nouveau-lycee-francais-paul-pascon_1984355/)
+- **À Laâyoune, une visite française entre diplomatie onusienne et stratégie d’influence**: [Link](https://www.jeuneafrique.com/1787991/politique/a-laayoune-une-visite-francaise-entre-diplomatie-onusienne-et-strategie-dinfluence/)
+- **L'ambassadeur de France à Laâyoune pour l’inauguration du lycée Paul Pascon**: [Link](https://medias24.com/2026/04/14/lambassadeur-de-france-a-laayoune-pour-linauguration-du-lycee-paul-pascon-1659636/)
+
+
+### achraf hakimi (N/A, Tue, 14 Apr 2026 14:00:00 -0700)
+
+- **“Las acusaciones sobre mí son falsas...”**: [Link](https://as.com/futbol/champions/achraf-las-acusaciones-sobre-mi-son-falsas-f202604-n/)
+- **Achraf Hakimi: decisión judicial y Champions League vs Liverpool**: [Link](https://redamazonica.org/achraf-hakimi-rompe-el-silencio-tras-la-decision-judicial-en-francia/)
+- **Hakimi: "Las acusaciones son falsas"**: [Link](https://www.sport.es/es/videos/futbol-internacional/psg/20260413/hakimi-acusaciones-son-falsas/129063334.shtml)
+
+
+### البرنامج النووي الإيراني (N/A, Tue, 14 Apr 2026 14:00:00 -0700)
+
+- **ضُربت المنشآت وبقي اليورانيوم.. هل انتهى البرنامج النووي الإيراني؟**: [Link](https://www.aljazeera.net/news/2026/4/14/%D8%B6%D8%B1%D8%A8%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%B4%D8%A2%D8%AA-%D9%88%D8%A8%D9%82%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D8%A7%D9%86%D9%8A%D9%88%D9%85-%D9%87%D9%84)
+- **تقرير: اتفاق سلام بين طهران وواشنطن رهين بالملف النووي**: [Link](https://www.skynewsarabia.com/world/1864174-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B3%D9%84%D8%A7%D9%85-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%88%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%B1%D9%87%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D9%84%D9%81-%D8%A7%D9%84%D9%86%D9%88%D9%88%D9%8A)
+- **صحيفة أمريكية: ترامب رفض عرض إيران وقف أنشطة اليورانيوم 5 سنوات**: [Link](https://www.alquds.co.uk/%D8%B5%D8%AD%D9%8A%D9%81%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%B1%D9%81%D8%B6-%D8%B9%D8%B1%D8%B6-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D9%82%D9%81-%D8%A3/)
+
+
+### champions league games (N/A, Tue, 14 Apr 2026 14:00:00 -0700)
+
+- **Five of the best all-Spanish Champions League games**: [Link](https://thefootballfaithful.com/five-of-the-best-all-spanish-champions-league-games/)
+- **Last Champions League game? Where Salah ranks among the greats after 98 matches**: [Link](https://www.transfermarkt.co.uk/last-champions-league-game-where-salah-ranks-among-the-greats-after-98-matches/view/news/478073)
+- **Can you name Liverpool’s top 20 Champions League appearance makers?**: [Link](https://onefootball.com/fr/news/can-you-name-liverpools-top-20-champions-league-appearance-makers-42708439)
+
+
+### pedri (N/A, Tue, 14 Apr 2026 14:00:00 -0700)
+
+- **El pueblo a media hora de Santa Cruz donde nació Pedri y se celebra una de las romerías más populares de Canarias**: [Link](https://www.ubirataonline.com.br/el-pueblo-a-media-hora-de-santa-cruz-donde-nacio-pedri-y-se-celebra-una-de-las-romerias-mas-populares-de-canarias/)
+- **El aviso desde Países Bajos sobre el 'nuevo Pedri' de Koeman: "Puede marcharse por unos cientos de miles"**: [Link](https://www.marca.com/futbol/2026/04/13/aviso-paises-bajos-sobre-nuevo-pedri-koeman-marcharse-cientos-miles.html)
+- **Kees Smit, la joya neerlandesa que seduce al Barça y agita el mercado europeo**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260414/1004170250/kees-smit-joya-neerlandesa-seduce-barca-agita-mercado-europeo.html)
+
+
+### eric garcía (N/A, Tue, 14 Apr 2026 13:50:00 -0700)
+
+- **El Barça se pone rojo en la Champions**: [Link](https://www.marca.com/futbol/barcelona/2026/04/14/barca-pone-rojo-champions.html)
+- **Mateu Lahoz, contundente con la expulsión a Eric Garcia: "Por fin se hace un uso racional del VAR"**: [Link](https://www.sport.es/es/noticias/champions/mateu-lahoz-contundente-expulsion-eric-129107880)
+- **El VAR vuelve a salvar al colegiado ante su error en contra del Atletico de Madrid**: [Link](https://www.estoesatleti.es/articulo/noticias/var-roja-eric-garcia-atletico-madrid-barcelona-champions/20260414225738037402.html)
+
+
 ### اتصالات المغرب (N/A, Tue, 14 Apr 2026 13:50:00 -0700)
 
 - **اتصالات المغرب تحذر من عروض احتيالية عبر الإنترنت وتدعو إلى اليقظة**: [Link](https://al3omk.com/1152451.html)
