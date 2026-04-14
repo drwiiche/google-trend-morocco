@@ -1,3 +1,17 @@
+### نبيل العوضي (N/A, Tue, 14 Apr 2026 15:30:00 -0700)
+
+- **بينهم نبيل العوضي.. الكويت تسحب الجنسية من 2182 شخصا**: [Link](https://www.aljazeera.net/news/2026/4/14/%D8%A8%D9%8A%D9%86%D9%87%D9%85-%D9%86%D8%A8%D9%8A%D9%84-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%AA%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9)
+- **تفاصيل سحب الجنسية الكويتية من فنانين جدد**: [Link](https://www.lahamag.com/article/236306-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A%D8%A9-%D9%85%D9%86-%D9%81%D9%86%D8%A7%D9%86%D9%8A%D9%86-%D8%AC%D8%AF%D8%AF)
+- **حقيقة سحب الجنسية عن وزير الداخلية الكويتي فهد اليوسف الصباح.. ما القصة؟**: [Link](https://adennews.net/174451)
+
+
+### barcelona match today (N/A, Tue, 14 Apr 2026 14:00:00 -0700)
+
+- **Borges vs. Etcheverry Odds Today: ATP Barcelona Match Winner & Spread**: [Link](https://sports.betmgm.com/en/blog/atp/nuno-borges-vs-tomas-martin-etcheverry-odds-today-barcelona-bm25/)
+- **Borges - Etcheverri: has the Portuguese come out of the gaming crisis?**: [Link](https://www.liontips.com/tips/2026/04/14/borges-etcheverry-betting-tip-cf-1-81-and-bets-on-the-match-atp-barcelona-april-15-2026)
+- **Nuno Borges vs. Tomas Martin Etcheverry prediction, odds, picks for ATP Barcelona Open 2026**: [Link](https://www.dimers.com/news/nuno-borges-vs-tomas-etcheverry-tennis-prediction-atp-barcelona-open-2026-ac)
+
+
 ### simeone (N/A, Tue, 14 Apr 2026 14:00:00 -0700)
 
 - **Kylian Mbappé and Diego Simeone united by one goal**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/kylian-mbapp%C3%A9-and-diego-simeone-united-by-one-goal-2026-04-14)
