@@ -1,3 +1,31 @@
+### دونالد ترمب (N/A, Tue, 14 Apr 2026 03:40:00 -0700)
+
+- **مراسلة في البيت الأبيض: ترمب يبدو مذعورا خلف الكواليس**: [Link](https://www.aljazeera.net/politics/2026/4/14/%D8%A3%D9%86%D8%A7-%D9%85%D8%B1%D8%A7%D8%B3%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%A8%D8%AF%D9%88)
+- **مخطط لإسقاط ترامب.. كاتبة بريطانية ـ أمريكية تكشف المستور!**: [Link](https://www.echoroukonline.com/%D9%85%D8%AE%D8%B7%D8%B7-%D9%84%D8%A5%D8%B3%D9%82%D8%A7%D8%B7-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%83%D8%A7%D8%AA%D8%A8%D8%A9-%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A%D8%A9-%D9%80-%D8%A3%D9%85%D8%B1)
+- **أصداء تهديدات ترمب – تقرير واشنطن الحلقة الكاملة مع رنا أبتر**: [Link](https://mangish.net/%D8%A3%D8%B5%D8%AF%D8%A7%D8%A1-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D8%B1%D9%85%D8%A8-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%A7%D9%84%D8%AD%D9%84%D9%82/)
+
+
+### نقابة (N/A, Tue, 14 Apr 2026 03:10:00 -0700)
+
+- **إعلان قرار إنشاء نقابة عمالية في حي كوي نون تاي.**: [Link](https://www.vietnam.vn/ar/cong-bo-quyet-dinh-thanh-lap-cong-doan-phuong-quy-nhon-tay)
+- **تأسيس نقابة عمال حي آن دوونغ**: [Link](https://www.vietnam.vn/ar/thanh-lap-cong-doan-phuong-an-duong)
+- **نقابة تراهن على الزيادة في الأجور**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-1730416.html)
+
+
+### apple (N/A, Tue, 14 Apr 2026 03:10:00 -0700)
+
+- **New iPhone Fold leak reveals size versus iPhone 18 Pro**: [Link](https://mashable.com/article/apple-iphone-fold-dummy-leak-size-comparison)
+- **Apple’s Foldable iPhone Remains on Track for September Debut (AAPL)**: [Link](https://www.bloomberg.com/news/articles/2026-04-07/apple-s-foldable-iphone-remains-on-track-for-september-debut)
+- **iPhone Fold report reveals this is how Apple is killing the crease**: [Link](https://www.tomsguide.com/phones/iphones/iphone-fold-report-reveals-this-is-how-apple-is-killing-the-crease)
+
+
+### iphone 16 (N/A, Tue, 14 Apr 2026 03:10:00 -0700)
+
+- **iPhone 15 Pro MaxとiPhone 16 Pro Maxは、どの月に最も大幅な値下げが見込まれるでしょうか？**: [Link](https://www.vietnam.vn/ja/thang-may-iphone-15-pro-max-va-iphone-16-pro-max-giam-gia-manh-nhat)
+- **【スマホ速報】ドコモがiPhone 16の在庫処分を開始！実質1円＋還元に潜む罠とは？**: [Link](https://news.livedoor.com/article/detail/30987172/)
+- **ドコモ、Galaxy S26の実施負担額を値下げ！iPhone 16も同様！**: [Link](https://www.gapsis.jp/2026/04/docomo-galaxy-s26-and-iphone16-nesage.html)
+
+
 ### casablanca (N/A, Mon, 13 Apr 2026 22:40:00 -0700)
 
 - **Corniche de Casablanca: début de l’opération coup de poing contre des établissements emblématiques construits illégalement**: [Link](https://fr.le360.ma/societe/corniche-de-casablanca-debut-de-loperation-coup-de-poing-contre-des-etablissements-emblematiques_CBBBCKKM2RFI5APU54GANSIDBM/)
