@@ -1,3 +1,31 @@
+### viktor orbán (N/A, Tue, 14 Apr 2026 09:00:00 -0700)
+
+- **Opinion | Here’s How to Defeat Trumpism**: [Link](https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html)
+- **Trump and Putin just lost their ‘poster boy’ in Europe. What now for Hungary?**: [Link](https://www.cnn.com/2026/04/14/europe/orban-hungary-trump-putin-magyar-intl)
+- **Opinion | The lessons of Viktor Orban’s defeat**: [Link](https://www.washingtonpost.com/opinions/2026/04/13/hungary-election-results-viktor-orban-peter-magyar/)
+
+
+### منتخب مصر لكرة القدم (N/A, Tue, 14 Apr 2026 08:40:00 -0700)
+
+- **مصدر عراقي يكشف حقيقة مواجهة مصر قبل المونديال**: [Link](https://www.alarabiya.net/sport/2026/04/12/%D9%85%D8%B5%D8%AF%D8%B1-%D8%B9%D8%B1%D8%A7%D9%82%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D8%B1-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+- **اتحاد الكرة يقترب من حسم ودية منتخب مصر 29 مايو.. مفاضلة بين العراق والأردن**: [Link](https://www.alshbaka.net/sport/427548.html)
+- **"المعلومة" تكشف خيارات تحضير العراق لكأس العالم**: [Link](https://almaalomah.me/news/129007/sports/%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%AE%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+
+
+### فتحي جمال (N/A, Tue, 14 Apr 2026 08:20:00 -0700)
+
+- **جمال: المغرب يصدر كفاءات تدريبية إلى الخارج.. وكشافة ينقبون عن المواهب**: [Link](https://www.hespress.com/%D8%AC%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B5%D8%AF%D8%B1-%D9%83%D9%81%D8%A7%D8%A1%D8%A7%D8%AA-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84-1730981.html)
+- **بلاغ**: [Link](https://frmf.ma/articles/communique-de-la-dtn-1)
+- **فتحي جمال يعلن عن إحداث خلية خاصة لتتبع لاعبي المنتخبات الوطنية**: [Link](https://www.radiomars.ma/%D9%81%D8%AA%D8%AD%D9%8A-%D8%AC%D9%85%D8%A7%D9%84-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A5%D8%AD%D8%AF%D8%A7%D8%AB-%D8%AE%D9%84%D9%8A%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%84%D8%AA%D8%AA%D8%A8%D8%B9/)
+
+
+### administration fiscale (N/A, Tue, 14 Apr 2026 07:20:00 -0700)
+
+- **Décryptage. Impôts 2026 : paris sportifs, Loto... Devez-vous déclarer vos gains à l'administration fiscale ?**: [Link](https://www.ledauphine.com/economie/2026/04/14/impots-2026-paris-sportifs-loto-devez-vous-declarer-vos-gains-a-l-administration-fiscale)
+- **Impôts 2026 : loto, paris sportifs, Euromillions… faut-il déclarer ses gains de jeux dans votre déclaration de revenus et à la CAF**: [Link](https://www.larepubliquedespyrenees.fr/economie/impots/impots-2026-loto-paris-sportifs-euromillions-faut-il-declarer-ses-gains-de-jeux-dans-votre-declaration-de-revenus-et-a-la-caf-28674110.php)
+- **Impôts 2026 : EuroMillions, Loto, casino… faut-il déclarer ses gains aux jeux ?**: [Link](https://www.capital.fr/votre-argent/impots-2026-euromillions-loto-casino-faut-il-declarer-ses-gains-aux-jeux-1525598)
+
+
 ### كأس العرش (N/A, Tue, 14 Apr 2026 08:10:00 -0700)
 
 - **الجامعة تكشف عن نتائج قرعة الدور الرابع لكأس العرش دون تحديد موعد إجرائه**: [Link](https://m.elbotola.com/article/2026-04-14-12-26-248.html)
