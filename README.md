@@ -1,3 +1,59 @@
+### اتصالات المغرب (N/A, Tue, 14 Apr 2026 13:50:00 -0700)
+
+- **اتصالات المغرب تحذر من عروض احتيالية عبر الإنترنت وتدعو إلى اليقظة**: [Link](https://al3omk.com/1152451.html)
+- **اتصالات المغرب تحذر من عروض وهمية لـ "فورفيات" مجانية على الإنترنت**: [Link](https://ar.yabiladi.com/articles/details/192369/%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B9%D8%B1%D9%88%D8%B6.html)
+- **احذروا "خديعة 0661".. اتصالات المغرب تطلق تحذيراً عاجلاً لزبنائها من النصب الرقمي**: [Link](https://agadir24.info/%D8%A7%D8%AD%D8%B0%D8%B1%D9%88%D8%A7-%D8%AE%D8%AF%D9%8A%D8%B9%D8%A9-0661-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B7%D9%84%D9%82-%D8%AA%D8%AD.html)
+
+
+### sorloth (N/A, Tue, 14 Apr 2026 13:40:00 -0700)
+
+- **Club Atlético de Madrid - Sørloth reaches 100 games played in the Rojiblanco jersey**: [Link](https://en.atleticodemadrid.com/noticias/s-rloth-reaches-100-games-played-in-the-rojiblanco-jersey)
+- **LIVE: Atletico Madrid vs Barcelona – Champions League quarterfinal**: [Link](https://www.aljazeera.com/sports/liveblog/2026/4/14/live-atletico-madrid-vs-barcelona-champions-league-quarterfinal)
+- **Live Blog! Atlético de Madrid vs Barcelona in UEFA Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/live-blog-atl%C3%A9tico-de-madrid-vs-barcelona-in-uefa-champions-league-2026-04-14)
+
+
+### griezmann (N/A, Tue, 14 Apr 2026 13:40:00 -0700)
+
+- **Griez lightning! Antoine Griezmann keeps it light as he shows off his dance moves during Atletico Madrid training**: [Link](https://www.news.com.au/sport/griez-lightning-antoine-griezmann-keeps-it-light-as-he-shows-off-his-dance-moves-during-atletico-madrid-training/video/74bebd64de2c467cc2a966a3ac534c43)
+- **Moment: Griezmann keeps it light with dance moves in Atletico training**: [Link](https://www.news.com.au/sport/moment-griezmann-keeps-it-light-with-dance-moves-in-atletico-training/video/912ab596f85013db96f3d450263be0d5)
+- **Griez lightning! Antoine Griezmann keeps it light as he shows off his dance moves during Atletico Madrid training**: [Link](http://www.msn.com/en-in/entertainment/news/griez-lightning-antoine-griezmann-keeps-it-light-as-he-shows-off-his-dance-moves-during-atletico-madrid-training/vi-AA20Nhib)
+
+
+### نتيجة مباراة برشلونة اليوم (N/A, Tue, 14 Apr 2026 13:40:00 -0700)
+
+- **الذكاء الاصطناعي يتوقع: هذا الرباعي سيبلغ نصف نهائي دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A-%D8%B3%D9%8A%D8%A8%D9%84%D8%BA-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt45d3b25d6c7fe004)
+- **توب سبور - الأمتار الأخيرة في دوري أبطال أوروبا ودوري أبطال أفريقيا في كرة القدم**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D8%AA%D9%88%D8%A8-%D8%B3%D8%A8%D9%88%D8%B1/20260413-%D8%A7%D9%84%D8%A3%D9%85%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85)
+- **من يتأهل إلى المربع الذهبي لدوري أبطال أوروبا؟**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%85%D9%86-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/18570)
+
+
+### lookman (N/A, Tue, 14 Apr 2026 13:20:00 -0700)
+
+- **🔴Liverpool-PSG 0-1 | I Reds DOMINANO, ma la sblocca Dembélé: semi vicina**: [Link](https://onefootball.com/de/news/liverpool-psg-0-1-i-reds-dominano-ma-la-sblocca-dembele-semi-vicina-42710779)
+- **Calcio Live News: tutte le notizie di giornata in tempo reale**: [Link](https://www.diretta.it/news/calcio-live-news-in-campo-atletico-barcellona-1-2-e-liverpool-psg-0-0-gol-annullato-a-ferran/2iXIX9am/)
+- **In campo Liverpool - PSG 0-1 e Atletico Madrid - Barcellona 1-2 DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/14/in-campo-liverpool-psg-0-1-e-atletico-madrid-barcellona-1-2-diretta-e-foto_5f716005-1567-4b4e-96e5-c72d52a071ae.html)
+
+
+### paris vs (N/A, Tue, 14 Apr 2026 13:10:00 -0700)
+
+- **Liverpool vs PSG live updates: Champions League score latest as Dembele goals send PSG to semi-final**: [Link](https://www.nytimes.com/athletic/live-blogs/liverpool-vs-psg-live-updates-champions-league-score-result/hPYlZvePe0V1/)
+- **😩 Salah replaces him! Reds star stretchered off**: [Link](https://sports.yahoo.com/articles/salah-replaces-him-reds-star-194100938.html)
+- **Liverpool vs PSG LIVE - goals, score, Hugo Ekitike injury, commentary stream**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/liverpool-psg-live-stream-score-33771018)
+
+
+### ko (N/A, Tue, 14 Apr 2026 13:10:00 -0700)
+
+- **'Nobody supported Dhurandhar, big directors said Monday ko baith jayegi film,' reveals Kunal Kohli, share**: [Link](https://timesofindia.indiatimes.com/entertainment/hindi/bollywood/news/nobody-supported-dhurandhar-big-directors-said-monday-ko-baith-jayegi-film-reveals-kunal-kohli-shares-what-happened-during-hum-tum/articleshow/130258607.cms)
+- **'Dhurandhar Monday Ko Baith Jaayegi': Kunal Kohli Reveals 'Biggest Directors' Hoped Ranveer Singh Film Would Flop**: [Link](https://www.ndtv.com/entertainment/dhurandhar-monday-ko-baith-jayegi-kunal-kohli-reveals-how-biggest-directors-hoped-ranveer-singh-film-to-flop-11354637)
+- **Did big Bollywood directors want Dhurandhar to flop? Here’s what we know.**: [Link](https://www.timesnownews.com/videos/entertainment/bollywood-news/did-big-bollywood-directors-want-dhurandhar-to-flop-heres-what-we-know-video-154076068)
+
+
+### barça vs (N/A, Tue, 14 Apr 2026 12:40:00 -0700)
+
+- **Fallo garrafal de Lenglet en el primer gol del Barcelona**: [Link](https://as.com/futbol/champions/fallo-garrafal-de-lenglet-en-el-primer-gol-del-barcelona-f202604-n/)
+- **Lamine Yamal: "Espero que el Cholo me haga un favor y me ponga un uno contra uno"**: [Link](https://www.marca.com/futbol/barcelona/2026/04/13/lamine-yamal-espero-cholo-me-haga-favor-me-ponga.html)
+- **Los padres de Pedri publican memes inspirados en LeBron James antes del partido contra el Atlético de Madrid: hacen referencia a una remontada legendaria**: [Link](https://tribuna.com/es/blogs/los-padres-de-pedri-publican-memes-inspirados-en-lebron-jame/)
+
+
 ### 365scores (N/A, Tue, 14 Apr 2026 12:50:00 -0700)
 
 - **The Briefing: Will playing at Etihad help Arsenal? Are Tottenham done? Is Ngumoha the real thing? - The Athletic**: [Link](https://www.nytimes.com/athletic/7191017/2026/04/13/premier-league-title-race-arsenal-man-city-tottenham-relegation-ngumoha-liverpool/)
