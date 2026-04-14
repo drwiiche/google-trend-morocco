@@ -1,3 +1,24 @@
+### al ittihad – al-wahda (N/A, Tue, 14 Apr 2026 10:20:00 -0700)
+
+- **📲 Tuesday, Champions League, lots of Sula and Libertadores; see fixtures**: [Link](https://onefootball.com/fr/news/tuesday-champions-league-lots-of-sula-and-libertadores-see-fixtures-42707925)
+- **Today's match schedule and broadcast channels.. Al Wahda vs Al Ittihad and the Liverpool vs Barcelona clash**: [Link](https://www.voiceofemirates.com/en/sport/2026/04/14/todays-match-schedule-and-broadcast-channels-al-wahda-vs-al-ittihad-and-the-liverpool-vs-barcelona-clash/)
+- **R16 - Preview: Al Ittihad Club (KSA) v Al Wahda FC (UAE)**: [Link](https://www.the-afc.com/en/club/afc_champions_league_elite.html/news/r16-preview-al-ittihad-club-ksa-v-al-wahda-fc-uae)
+
+
+### تقاعد (N/A, Tue, 14 Apr 2026 09:50:00 -0700)
+
+- **نقابة تراهن على الزيادة في الأجور**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-1730416.html)
+- **قيادي نقابي مغربي لـ «القدس العربي»: العلاقة بين النقابات والحكومة ظلّت دائماً صدامية**: [Link](https://www.alquds.co.uk/%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D9%86%D9%82%D8%A7%D8%A8%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%80-%D8%A7%D9%84%D9%82%D8%AF%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84/)
+- **أزمة التقاعد بالمغرب.. إصلاح مؤجل و"قنبلة موقوتة" تتقاذفها الحكومات**: [Link](https://www.thevoice.ma/%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A5%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D8%A4%D8%AC%D9%84-%D9%88%D9%82%D9%86%D8%A8/)
+
+
+### nadia fares (N/A, Tue, 14 Apr 2026 09:00:00 -0700)
+
+- **L’actrice Nadia Farès dans un état grave après un accident dans une piscine**: [Link](https://www.leparisien.fr/faits-divers/lactrice-nadia-fares-dans-un-etat-de-sante-grave-apres-un-accident-dans-une-piscine-14-04-2026-MRAKWGGFVJEABFJSMGJ236W7FE.php)
+- **L’actrice Nadia Farès, héroïne des Rivières pourpres, dans un état grave après un accident dans une piscine**: [Link](https://www.lefigaro.fr/cinema/l-actrice-nadia-fares-heroine-des-rivieres-pourpres-dans-un-etat-grave-apres-un-accident-dans-une-piscine-20260414)
+- **L’actrice Nadia Farès retrouvée inanimée au fond d’une piscine, révèle Le Parisien**: [Link](https://www.lavoixdunord.fr/1694464/article/2026-04-14/l-actrice-nadia-fares-retrouvee-inanimee-au-fond-d-une-piscine-revele-le)
+
+
 ### viktor orbán (N/A, Tue, 14 Apr 2026 09:00:00 -0700)
 
 - **Opinion | Here’s How to Defeat Trumpism**: [Link](https://www.nytimes.com/2026/04/14/opinion/magyar-orban-hungary-trump-defeat.html)
