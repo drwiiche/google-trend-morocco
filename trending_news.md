@@ -1,3 +1,31 @@
+### pixel 9 (N/A, Tue, 14 Apr 2026 04:30:00 -0700)
+
+- **Pixel users report battery drain issues after March update, and this could be the reason**: [Link](https://www.androidauthority.com/pixel-battery-drain-bug-3657219/)
+- **Some Google Pixel phones hit with bootloop issues following recent updates, fix in the works**: [Link](https://9to5google.com/2026/04/10/google-pixel-bootloop-issue-march-update/)
+- **Google releases April 2026 Pixel update to fix app crashes**: [Link](https://www.newsbytesapp.com/news/science/google-releases-april-2026-pixel-update-to-fix-app-crashes/tldr)
+
+
+### stock market (N/A, Tue, 14 Apr 2026 04:30:00 -0700)
+
+- **Stock futures are little changed after S&P 500 erases Iran war losses: Live updates**: [Link](https://www.cnbc.com/2026/04/13/stock-markets-today-live-updates.html)
+- **Dow Jones futures gain as oil eases inflation, US-Iran talks eyed**: [Link](https://www.fxstreet.com/news/dow-jones-futures-gain-as-oil-eases-inflation-us-iran-talks-eyed-202604140757)
+- **Dow Set to Open Up as Iran Peace Hopes Build**: [Link](https://www.barrons.com/livecoverage/stock-market-news-today-041426)
+
+
+### bitcoin price (N/A, Tue, 14 Apr 2026 04:30:00 -0700)
+
+- **Bitcoin Jumps 3-4% on Iran Diplomacy and Short Squeeze**: [Link](https://coinmarketcap.com/top-stories/69dd55f55793df3a62319917/)
+- **The total cryptocurrency market capitalization reaches $2.63 trillion, with a 24-hour increase of 4.62%.**: [Link](https://www.bitget.com/news/detail/12560605363867)
+- **Why Are Bitcoin, Ethereum, and Crypto Prices Up Today (April 14)?**: [Link](https://www.mexc.com/news/1025105)
+
+
+### neil el aynaoui (N/A, Mon, 13 Apr 2026 22:50:00 -0700)
+
+- **AS Roma : Neil El Aynaoui attise les convoitises des géants européens**: [Link](https://fr.hespress.com/469393-as-roma-neil-el-aynaoui-attise-les-convoitises-des-geants-europeens.html)
+- **Mercato : Neil El Aynaoui songe à quitter l’AS Rome**: [Link](https://lematin.ma/sports/mercato-neil-el-aynaoui-songe-a-quitter-las-rome/340093)
+- **Malgré son faible temps de jeu à la Roma, El Ainaoui attire l'œil de grands clubs européens**: [Link](https://m.elbotola.com/fr/article/2026-04-13-20-33-108.html)
+
+
 ### دونالد ترمب (N/A, Tue, 14 Apr 2026 03:40:00 -0700)
 
 - **مراسلة في البيت الأبيض: ترمب يبدو مذعورا خلف الكواليس**: [Link](https://www.aljazeera.net/politics/2026/4/14/%D8%A3%D9%86%D8%A7-%D9%85%D8%B1%D8%A7%D8%B3%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%A8%D8%AF%D9%88)
