@@ -1,3 +1,73 @@
+### sofascore (N/A, Wed, 15 Apr 2026 12:30:00 -0700)
+
+- **Sofascore Marks Basketball's Greatest Debate With a Limited-Edition Goat Cheese**: [Link](https://markets.businessinsider.com/news/stocks/sofascore-marks-basketball-s-greatest-debate-with-a-limited-edition-goat-cheese-1036025530)
+- **The Greatest Basketball Debate in History Just Got a Cheese. Sofascore Explains Why**: [Link](https://techbullion.com/the-greatest-basketball-debate-in-history-just-got-a-cheese-sofascore-explains-why/)
+- **Atletico resist Barca comeback, Dembele sends PSG past Liverpool into UCL semis**: [Link](https://news.cgtn.com/news/2026-04-15/Atletico-resist-Barca-comeback-Dembele-sends-PSG-past-Liverpool-1Mme3O8ScqQ/p.html)
+
+
+### 365 (N/A, Wed, 15 Apr 2026 12:30:00 -0700)
+
+- **TxDOT delaying demolition of FM 365 bridge over Interstate 10**: [Link](https://kfdm.com/news/local/txdot-delaying-demolition-of-fm-365-bridge-over-interstate-10)
+- **Fannett residents, emergency crews brace for delays as FM 365 overpass demolition begins**: [Link](https://www.yahoo.com/news/articles/fannett-residents-emergency-crews-brace-224535491.html)
+- **FM 365 bridge demolition and new construction will impact I-10 through end of year**: [Link](https://fox4beaumont.com/news/fm-365-bridge-demolition-and-new-construction-will-impact-i-10-through-end-of-year)
+
+
+### 365scores (N/A, Wed, 15 Apr 2026 12:30:00 -0700)
+
+- **Premier League overreactions: Arsenal, Spurs collapsing**: [Link](https://www.espn.com/soccer/story/_/id/48485775/premier-league-overreactions-arsenal-spurs-collapsing-liverpool-ngumoha-chelsea-andrews)
+- **The Briefing: Will playing at Etihad help Arsenal? Are Tottenham done? Is Ngumoha the real thing? - The Athletic**: [Link](https://www.nytimes.com/athletic/7191017/2026/04/13/premier-league-title-race-arsenal-man-city-tottenham-relegation-ngumoha-liverpool/)
+- **Premier League: 10 talking points from the weekend’s action**: [Link](https://www.theguardian.com/football/2026/apr/13/premier-league-10-talking-points-from-the-weekends-action)
+
+
+### ko (N/A, Wed, 15 Apr 2026 12:30:00 -0700)
+
+- **Barclays Sees Global Win for Coca-Cola Stock (KO) Driven by ‘Flexibility Across the Company’s Global Footprint’**: [Link](https://www.tipranks.com/news/barclays-sees-global-win-for-coca-cola-stock-ko-driven-by-flexibility-across-the-companys-global-footprint)
+- **Coca-Cola: The Retirement Dream (NYSE:KO)**: [Link](https://seekingalpha.com/article/4890277-coca-cola-the-retirement-dream)
+- **CocaCola (NYSE:KO) Trading Down 1.4% - Here's Why**: [Link](https://www.marketbeat.com/instant-alerts/cocacola-nyseko-trading-down-14-heres-why-2026-04-13/)
+
+
+### koora (N/A, Wed, 15 Apr 2026 12:20:00 -0700)
+
+- **أول قرار من برشلونة بعد الإقصاء الأوروبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D9%84-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D9%95%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A/blt5d0ddbd12d39b409)
+- **برشلونة يحدد بديل باستوني لتعزيز خط دفاعه في الصيف المقبل**: [Link](https://www.btolat.com/news/397949)
+- **بعد الخروج الأوروبي.. برشلونة يسعى لإنهاء أولى صفقاته الصيفية لإرضاء فليك - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/153153841894129-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B1%D9%88%D8%AC-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D8%A3%D9%88%D9%84%D9%89-%D8%B5%D9%81%D9%82%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%B5%D9%8A%D9%81%D9%8A%D8%A9-%D9%84%D8%A5%D8%B1%D8%B6%D8%A7%D8%A1-%D9%81%D9%84%D9%8A%D9%83/)
+
+
+### arsenal (N/A, Wed, 15 Apr 2026 12:20:00 -0700)
+
+- **Patrick Vieira backs ‘really important’ Declan Rice to drive Arsenal to silverware**: [Link](https://sports.yahoo.com/articles/patrick-vieira-backs-really-important-185338080.html)
+- **Arteta provides update on Rice, Saka and Timber**: [Link](https://www.arsenal.com/news/arteta-provides-update-rice-saka-and-timber)
+- **'No fear, pure fire' - Arteta defiant on pivotal week**: [Link](https://www.bbc.com/sport/football/articles/cly77je2dg8o)
+
+
+### bet365 (N/A, Wed, 15 Apr 2026 12:20:00 -0700)
+
+- **bet365 bonus code: Bet $10, get $200 in bonus bets for NBA Play-In Tournament**: [Link](https://nypost.com/2026/04/15/betting/bet365-bonus-code-bet-10-get-200-in-bonus-bets-for-nba-play-in-tournament/)
+- **bet365 bonus code: Bet $10, get $200 in bonus bets for Yankees vs. Angels**: [Link](https://www.aol.com/news/bet365-bonus-code-bet-10-140000701.html)
+- **Bet365 Promo Code: Get $200 Bonus for Blazers vs. Suns, NBA, MLB Games**: [Link](https://www.crossingbroad.com/news/sports-gambling/bet365-promo-code-get-a-200-nba-bonus/)
+
+
+### flashscore (N/A, Wed, 15 Apr 2026 12:20:00 -0700)
+
+- **Al Batin - Al Arabi**: [Link](https://www.flashscore.com/match/football/al-arabi-saudi-arabia-8f20POYF/al-batin-hnItl5OL/standings/?mid=bX1cjDCF)
+- **Dembele at the double as PSG knock Liverpool out again**: [Link](https://www.bbc.com/sport/football/live/c4g89qene45t)
+- **Liverpool 0-2 PSG: Champions League quarter-final, second leg – as it happened**: [Link](https://www.theguardian.com/football/live/2026/apr/14/liverpool-v-paris-saint-germain-champions-league-quarter-final-second-leg-live)
+
+
+### sports (N/A, Wed, 15 Apr 2026 12:20:00 -0700)
+
+- **Champions League: Guler double levels Real Madrid tie, Arsenal lead Sporting on aggregate**: [Link](https://www.bbc.com/sport/football/live/cvg80gj3m77t)
+- **Liverpool-PSG and Barcelona- Atlético set to kick off**: [Link](https://onefootball.com/en/news/liverpool-psg-and-barcelona-atletico-set-to-kick-off-42710538)
+- **Three of European soccer’s greats are on the brink of Champions League elimination**: [Link](https://macaudailytimes.com.mo/three-of-european-soccers-greats-are-on-the-brink-of-champions-league-elimination.html)
+
+
+### bein sport live (N/A, Wed, 15 Apr 2026 12:20:00 -0700)
+
+- **Boca Juniors and Estudiantes win in Copa Libertadores against Barcelona SC and Cusco**: [Link](https://mundoalbiceleste.com/2026/04/14/boca-juniors-and-estudiantes-win-in-copa-libertadores-against-barcelona-sc-and-cusco/)
+- **How substitutions and yellow cards turned the match around**: [Link](https://russpain.com/en/news-3/lautaro-di-lollo-goal-secures-boca-juniors-victory-in-tense-match-434646/)
+- **APTOPIX Argentina Ecuador Copa Libertadores Soccer**: [Link](https://www.couriernews.com/sports/aptopix-argentina-ecuador-copa-libertadores-soccer/image_dd26004c-bebc-53cd-ae27-897975fee1e4.html)
+
+
 ### match real aujourd'hui (N/A, Wed, 15 Apr 2026 11:00:00 -0700)
 
 - **89 buts et la BBC dans le viseur : le Bayern, c’est KDO**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-i-bayern-munich-real-madrid-i-le-trio-kane-diaz-olise-89-buts-et-la-bbc-dans-le-viseur_sto23289130/story.shtml)
