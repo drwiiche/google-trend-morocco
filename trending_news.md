@@ -1,3 +1,17 @@
+### hugo ekitiké (N/A, Wed, 15 Apr 2026 03:30:00 -0700)
+
+- **Hugo Ekitike: Liverpool striker's injury 'looks really bad', says Arne Slot**: [Link](https://www.bbc.com/sport/football/articles/cx2dd3z9lddo)
+- **Hugo Ekitike Injury in Liverpool vs. PSG Clash Raises World Cup Concerns**: [Link](https://m.elbotola.com/en/article/2026-04-14-20-00-86.html)
+- **Injured Liverpool star unlikely to return before 2027**: [Link](https://dailycannon.com/2026/04/hugo-ekitike-injury/)
+
+
+### المغرب في كأس العالم (N/A, Tue, 14 Apr 2026 22:20:00 -0700)
+
+- **المغرب يعزز أمن المونديال في أمريكا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-1731287.html)
+- **اختير المغرب للمشاركة فيه.. ما دور فريق العمل التابع للبيت الأبيض الخاص بكأس العالم؟**: [Link](https://ar.hibapress.com/details-717740.html)
+- **على غرار مونديال قطر و أولمبياد باريس .. واشنطن تعتمد على الخبرة المغربية لتأمين كأس العالم 2026**: [Link](https://www.akhbarona.com/sport/worldfoot/424351.html)
+
+
 ### إيتمار بن غفير (N/A, Wed, 15 Apr 2026 02:00:00 -0700)
 
 - **تصعيد ضد بن غفير.. المحكمة الإسرائيلية تنظر اليوم في مطالب بعزله**: [Link](https://www.aljazeera.net/news/2026/4/15/%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9)
