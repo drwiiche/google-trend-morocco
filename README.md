@@ -1,3 +1,24 @@
+### brahim díaz (N/A, Wed, 15 Apr 2026 14:10:00 -0700)
+
+- **‘The perception is Carney is a wartime leader’: why Canada’s PM could secure a majority**: [Link](https://www.theguardian.com/world/2026/apr/13/mark-carney-canada-pm-liberals-majority)
+- **Bayern Munich Vs Real Madrid - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/bayern-munich-vs-real-madrid-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDAyRjJMQVA)
+- **Liberals will keep working across party lines even if byelections deliver majority: MacKinnon**: [Link](https://www.cbc.ca/news/politics/liberals-majority-government-floorcrossers-9.7160889)
+
+
+### نتائج مباريات اليوم (N/A, Wed, 15 Apr 2026 13:50:00 -0700)
+
+- **بين أسطورية الذهاب وخطر الإياب.. هل يصمد نوير أمام ملك الريمونتادا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%8A%D9%86-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A7%D8%A8-%D9%88%D8%AE%D8%B7%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%A7%D8%A8--%D9%87%D9%84-%D9%8A%D8%B5%D9%85%D8%AF-%D9%86%D9%88%D9%8A%D8%B1-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7/blt25dc00b7a28e88a2)
+- **ماتيوس: بايرن ميونخ المرشح الأبرز للفوز بدوري أبطال أوروبا**: [Link](https://www.hesport.com/%D9%85%D8%A7%D8%AA%D9%8A%D9%88%D8%B3-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD-%D8%A7%D9%84%D8%A3%D8%A8%D8%B1%D8%B2-%D9%84%D9%84%D9%81%D9%88-435035.html)
+- **كومباني: "قصص الريمونتادا لا أراها حقيقية"**: [Link](https://m.elbotola.com/article/2026-04-14-16-09-897.html)
+
+
+### uefa champions league (N/A, Wed, 15 Apr 2026 13:10:00 -0700)
+
+- **‘The perception is Carney is a wartime leader’: why Canada’s PM could secure a majority**: [Link](https://www.theguardian.com/world/2026/apr/13/mark-carney-canada-pm-liberals-majority)
+- **Bayern Munich Vs Real Madrid - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/bayern-munich-vs-real-madrid-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDAyRjJMQVA)
+- **Liberals will keep working across party lines even if byelections deliver majority: MacKinnon**: [Link](https://www.cbc.ca/news/politics/liberals-majority-government-floorcrossers-9.7160889)
+
+
 ### camavinga (N/A, Wed, 15 Apr 2026 13:50:00 -0700)
 
 - **1x1 del Real Madrid contra el Bayern: harakiri de Camavinga**: [Link](https://as.com/futbol/1x1-del-real-madrid-contra-el-bayern-harakiri-de-camavinga-f202604-n/)
