@@ -1,3 +1,17 @@
+### نادي برشلونة (N/A, Wed, 15 Apr 2026 09:40:00 -0700)
+
+- **لابورتا ينفجر ضد "الوقحين": ما يفعله الحكام مع برشلونة لا يطاق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D9%86%D9%81%D8%AC%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D9%88%D9%82%D8%AD%D9%8A%D9%86--%D9%85%D8%A7-%D9%8A%D9%81%D8%B9%D9%84%D9%87-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7-%D9%8A%D8%B7%D8%A7%D9%82/blt541ba5521ab3704b)
+- **ضربة جزاء غير محتسبة وهدف ملغى.. هل ظلم الحكم برشلونة أمام أتلتيكو مدريد؟**: [Link](https://www.aljazeera.net/sport/2026/4/14/%D9%87%D9%84-%D8%AA%D8%BA%D8%A7%D8%B6%D9%89-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%B9%D9%86-%D8%A7%D8%AD%D8%AA%D8%B3%D8%A7%D8%A8-%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1)
+- **رافينيا: "تعرضنا للسرقة.. التحكيم كان سيئًا للغاية"**: [Link](https://m.elbotola.com/article/2026-04-14-22-43-3.html)
+
+
+### clément turpin (N/A, Wed, 15 Apr 2026 09:10:00 -0700)
+
+- **Le président du FC Barcelone Joan Laporta détruit Clément Turpin**: [Link](https://www.footmercato.net/a8797360766371707883-le-president-du-fc-barcelone-joan-laporta-detruit-clement-turpin)
+- **Raphinha se paye Turpin : "Le match a été volé"**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-atletico-de-madrid-fc-barcelone-raphinha-se-paye-larbitrage-de-clement-turpin-le-match-a-ete-vole_sto23290530/story.shtml)
+- **"Comme Aytekin avec le PSG", la presse madrilène sans pitié avec le Barça après son élimination**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/comme-aytekin-avec-le-psg-la-presse-madrilene-sans-pitie-avec-le-barca-apres-son-elimination_AV-202604150200.html)
+
+
 ### 2025 (N/A, Wed, 15 Apr 2026 08:40:00 -0700)
 
 - **Many firsts, new faces as rugby, racing finally share stage on Hong Kong 7s week**: [Link](https://www.scmp.com/sport/rugby/hk-sevens/article/3349801/many-firsts-and-new-faces-rugby-racing-finally-share-stage-hong-kong-7s-week)
