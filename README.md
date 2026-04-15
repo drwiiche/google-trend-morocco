@@ -1,3 +1,31 @@
+### kick (N/A, Tue, 14 Apr 2026 20:20:00 -0700)
+
+- **Vitaly Admits He Falsely Portrayed Man as Child Predator: ‘A Mistake That I Deeply Regret’**: [Link](https://www.complex.com/pop-culture/a/cmplxtara-mahadevan/vitaly-mistakenly-portrayed-man-predator)
+- **‘My world was turned upside down’: Indian man speaks out after YouTuber wrongly accused him of being a pedophile**: [Link](https://timesofindia.indiatimes.com/world/us/my-world-was-turned-upside-down-indian-man-speaks-out-after-youtuber-wrongly-accused-him-of-being-a-pedophile/articleshow/130260514.cms)
+- **Indian man speaks out after Russian YouTuber falsely accused him of being child predator: 'My world turned upside down' | Hindustan Times**: [Link](https://www.hindustantimes.com/trending/us/indian-man-speaks-out-after-russian-youtuber-falsely-accused-him-of-being-child-predator-my-world-turned-upside-down-101776185832503.html)
+
+
+### درهم مغربي (N/A, Tue, 14 Apr 2026 16:20:00 -0700)
+
+- **"بنك المغرب" يكشف تقلبات الدرهم**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%83-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-2-1730453.html)
+- **الدرهم يرتفع مقابل الدولار ويتراجع أمام اليورو**: [Link](https://febrayer.com/1142718.html)
+- **أسعار صرف أهم العملات الأجنبية مقابل الدرهم المغربي (14 أبريل 2026)**: [Link](https://agadir24.info/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%B5%D8%B1%D9%81-%D8%A3%D9%87%D9%85-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AC%D9%86%D8%A8%D9%8A%D8%A9-%D9%85%D9%82%D8%A7%D8%A8%D9%84-89.html)
+
+
+### yassine bounou (N/A, Tue, 14 Apr 2026 16:00:00 -0700)
+
+- **Benzema misses penalty as Al Hilal crash out of AFC Champions League: How does it affect Ronaldo’s Al Nassr?**: [Link](https://worldsoccertalk.com/news/benzema-misses-penalty-as-al-hilal-crash-out-of-afc-champions-league-how-does-it-affect-ronaldos-al-nassr/)
+- **Al-Hilal loses to Al-Sadd on penalties**: [Link](https://alhilal.com/en/news/al-hilal-loses-to-al-sadd-on-penalties)
+- **Mancini eliminates Inzaghi in the Asian Champions League (and simultaneously wins the league)**: [Link](https://lamilano.it/en/by-the-media/Mancini-eliminates-Inzaghi-in-the-Asian-Champions-League-and-simultaneously-wins-the-championship/)
+
+
+### مستشفى (N/A, Tue, 14 Apr 2026 14:50:00 -0700)
+
+- **Israeli strike kills paramedic, says Lebanese Red Cross – as it happened**: [Link](https://www.theguardian.com/world/live/2026/apr/12/middle-east-crisis-live-us-iran-pakistan-peace-talks-jd-vance-delegation-leaves-without-a-deal)
+- **‘I Can’t Endure This’: Inside a Bombarded City in Southern Lebanon**: [Link](https://www.nytimes.com/2026/04/12/world/middleeast/lebanon-hezbollah-israel-iran-war-tyre.html)
+- **Israel's War Against Lebanon, Explained**: [Link](https://time.com/article/2026/04/10/israels-hezbollah-lebanon-war-explained/)
+
+
 ### نبيل العوضي (N/A, Tue, 14 Apr 2026 15:30:00 -0700)
 
 - **بينهم نبيل العوضي.. الكويت تسحب الجنسية من 2182 شخصا**: [Link](https://www.aljazeera.net/news/2026/4/14/%D8%A8%D9%8A%D9%86%D9%87%D9%85-%D9%86%D8%A8%D9%8A%D9%84-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%AA%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9)
