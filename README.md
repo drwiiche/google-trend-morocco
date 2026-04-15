@@ -1,3 +1,31 @@
+### 2025 (N/A, Wed, 15 Apr 2026 08:40:00 -0700)
+
+- **Many firsts, new faces as rugby, racing finally share stage on Hong Kong 7s week**: [Link](https://www.scmp.com/sport/rugby/hk-sevens/article/3349801/many-firsts-and-new-faces-rugby-racing-finally-share-stage-hong-kong-7s-week)
+- **Hong Kong celebrates 50 years of sevens magic with high-stakes HSBC SVNS World Championship opener**: [Link](https://www.svns.com/en/news/1043291/hong-kong-celebrates-50-years-of-sevens-magic-with-high-stakes-hsbc-svns-world-championship-opener)
+- **Rugby and Racing Unite in Hong Kong's Celebration Dinner Kickoff**: [Link](https://www.bastillepost.com/global/article/5777507-rugby-and-racing-unite-in-hong-kongs-celebration-dinner-kickoff)
+
+
+### claude ai (N/A, Wed, 15 Apr 2026 08:40:00 -0700)
+
+- **Opinion | With Mythos, AI Pays for Itself**: [Link](https://www.wsj.com/opinion/with-mythos-ai-pays-for-itself-b4d29d5a)
+- **ECB to warn bankers about new Anthropic model risks, source says**: [Link](https://finance.yahoo.com/sectors/technology/articles/ecb-warn-bankers-anthropic-model-152145811.html)
+- **Project Glasswing: Securing critical software for the AI era**: [Link](https://www.anthropic.com/glasswing)
+
+
+### claude (N/A, Wed, 15 Apr 2026 08:40:00 -0700)
+
+- **L’administration britannique s’inquiète: Mythos, l’une des IA les plus puissantes d’Anthropic, réussit 73% d’un test inédit de cybersécurité, qu’aucun modèle ne parvenait à boucler en 2025**: [Link](https://www.bfmtv.com/tech/intelligence-artificielle/l-administration-britannique-s-inquiete-mythos-l-une-des-ia-les-plus-puissantes-d-anthropic-reussit-73-d-un-test-inedit-de-cybersecurite-qu-aucun-modele-ne-parvenait-a-boucler-en-2025_AN-202604140671.html)
+- **OpenAI annonce une sortie limitée pour son nouveau modèle d'IA dédié à la cybersécurité**: [Link](https://lematin.ma/hi-tech/cybersecurite-openai-annonce-une-sortie-limitee-pour-modele-dia/340428)
+- **Pourquoi le nouveau modèle d’IA Mythos d’Anthropic inquiète Washington et Wall Street**: [Link](https://fr.euronews.com/business/2026/04/14/pourquoi-le-nouveau-modele-dia-mythos-danthropic-inquiete-washington-et-wall-street)
+
+
+### incendie byd (N/A, Wed, 15 Apr 2026 07:10:00 -0700)
+
+- **Incendie géant chez BYD : pourquoi les rumeurs sur le constructeur sont totalement fausses**: [Link](https://www.numerama.com/vroom/2232327-limpressionnant-incendie-au-siege-de-byd-nest-pas-ce-que-lon-croit.html)
+- **Le siège de BYD en feu : 160 pompiers, des rumeurs folles, et un démenti cinglant**: [Link](https://www.lesnumeriques.com/voiture-electrique/le-siege-de-byd-en-feu-160-pompiers-des-rumeurs-folles-et-un-dementi-cinglant-n254382.html)
+- **Un site de voiture électrique a pris feu !**: [Link](https://actu.orange.fr/videos/high-tech/un-site-de-voiture-electrique-a-pris-feu-CNT000002oG563.html)
+
+
 ### نادي المغرب الفاسي (N/A, Wed, 15 Apr 2026 06:20:00 -0700)
 
 - **المغرب الفاسي 2026.. حينما تترجم "الحكامة الإدارية" إلى ريادة كروية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-2026-%D8%AD%D9%8A%D9%86%D9%85%D8%A7-%D8%AA%D8%AA%D8%B1%D8%AC%D9%85-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D8%AF%D8%A9-%D9%83%D8%B1%D9%88%D9%8A%D8%A9/18636)
