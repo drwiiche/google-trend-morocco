@@ -1,3 +1,24 @@
+### gianni infantino (N/A, Wed, 15 Apr 2026 01:20:00 -0700)
+
+- **Infantino and FIFA discuss asking President Trump for moratorium on World Cup ICE raids**: [Link](https://www.nytimes.com/athletic/7193405/2026/04/14/inantino-trump-ice-raids-moratorium/)
+- **FIFA faces pressure to call on Trump to stop ICE raids at 2026 World Cup**: [Link](https://www.aljazeera.com/news/2026/4/14/fifa-faces-pressure-to-call-on-trump-to-stop-ice-raids-at-2026-world-cup)
+- **Workers at LA stadium threaten World Cup strike amid anger over ICE**: [Link](https://www.theguardian.com/us-news/2026/apr/11/sofi-stadium-los-angeles-world-cup)
+
+
+### nicolas sarkozy (N/A, Wed, 15 Apr 2026 01:10:00 -0700)
+
+- **Au procès en appel de l’affaire Sarkozy-Kadhafi, la riposte de Claude Guéant après les attaques de l’ancien président**: [Link](https://www.lemonde.fr/societe/article/2026/04/14/au-proces-en-appel-de-l-affaire-sarkozy-kadhafi-la-riposte-de-claude-gueant-apres-les-attaques-de-l-ancien-president_6679989_3224.html)
+- **Cette contre-attaque de Guéant a tout pour enfoncer Sarkozy**: [Link](https://www.huffingtonpost.fr/france/article/au-proces-libyen-gueant-contre-attaque-et-fragilise-la-defense-de-sarkozy_262645.html)
+- **"J’ai été très déçu… Ce qu’il a fait n’est pas bien" : Guéant réagit aux attaques de Sarkozy lors du procès libyen**: [Link](https://www.marianne.net/societe/police-et-justice/jai-ete-tres-decu-ce-quil-a-fait-nest-pas-bien-gueant-reagit-aux-attaques-de-sarkozy-lors-du-proces-libyen)
+
+
+### أشرف حكيمي (N/A, Wed, 15 Apr 2026 00:40:00 -0700)
+
+- **حكيمي يكسر صمته أخيرًا بشأن اتهامه بالاغتصاب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%83%D8%B3%D8%B1-%D8%B5%D9%85%D8%AA%D9%87-%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D9%8B%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D9%87-%D8%A8%D8%A7%D9%84%D8%A7%D8%BA%D8%AA%D8%B5%D8%A7%D8%A8/blt980809527c1f5423)
+- **أشرف حكيمي يكسر صمته بشأن قضيته القانونية قبل مواجهة ليفربول**: [Link](https://www.alquds.co.uk/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%83%D8%B3%D8%B1-%D8%B5%D9%85%D8%AA%D9%87-%D8%A8%D8%B4%D8%A3%D9%86-%D9%82%D8%B6%D9%8A%D8%AA%D9%87-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88/)
+- **حكيمي يرافق إنريكي في ندوة ليفربول**: [Link](https://www.hesport.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%B1%D8%A7%D9%81%D9%82-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%81%D9%8A-%D9%86%D8%AF%D9%88%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-434769.html)
+
+
 ### akhbarona (N/A, Tue, 14 Apr 2026 22:50:00 -0700)
 
 
