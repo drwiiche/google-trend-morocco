@@ -1,3 +1,66 @@
+### gnabry (N/A, Wed, 15 Apr 2026 13:20:00 -0700)
+
+- **Training Report: Bayern Munich gets Serge Gnabry back, but will he start?**: [Link](https://www.bavarianfootballworks.com/champions-league/189163/training-report-bayern-munich-gets-serge-gnabry-back-but-will-he-start)
+- **Harry Kane played 'beyond the pain threshold' against Real Madrid - Vincent Kompany**: [Link](https://www.espn.com/soccer/story/_/id/48445962/harry-kane-played-pain-threshold-real-madrid-vincent-kompany)
+- **Training Report: Bayern Munich ready for Real Madrid**: [Link](https://sports.yahoo.com/articles/training-report-bayern-munich-ready-010000459.html)
+
+
+### jamal musiala (N/A, Wed, 15 Apr 2026 13:20:00 -0700)
+
+- **2026 World Cup: Jamal Musiala ambitions are clear after “incomprehensible statement” from German icon rejected**: [Link](https://www.sportsmole.co.uk/football/germany/world-cup-2026/news/incomprehensible-statement-rejected-as-musialas-germany-world-cup-ambitions-are-made-clear_595591.html)
+- **“It pays to listen closely every once in a while”: Oliver Kahn insists he has been misinterpreted over his remarks about Bayern Munich star Jamal Musiala’s World Cup participation**: [Link](https://www.goal.com/en-ca/lists/it-pays-to-listen-closely-every-once-in-a-while-oliver-kahn-insists-he-has-been-misinterpreted-over-his-remarks-about-bayern-munich-star-jamal-musiala-s-world-cup-participation/blt5b64e82c1e55e009)
+- **Vincent Kompany doesn’t think Bayern Munich legend Oliver Kahn would heed his own advice**: [Link](https://sports.yahoo.com/articles/vincent-kompany-doesn-t-think-202243274.html)
+
+
+### sporting (N/A, Wed, 15 Apr 2026 13:20:00 -0700)
+
+- **Liga dos Campeões: Elenco do Arsenal para o jogo contra o Sporting Lisboa**: [Link](https://www.vietnam.vn/pt/champions-league-nhan-su-arsenal-trong-tran-gap-sporting-lisbon)
+- **Mikel Arteta: “Destemido, puro fogo, fiz muito para estar nesta posição…”**: [Link](https://www.segundabase.com.br/estatisticas/mikel-arteta-destemido-puro-fogo-fiz-muito-para-estar-nesta-posicao/231079/)
+- **Liga decreta um minuto de silêncio em memória de Vicente Lucas**: [Link](https://sapo.pt/artigo/liga-decreta-um-minuto-de-silencio-em-memoria-de-vicente-lucas-69dfcdf2aa015b611dc8a177)
+
+
+### kooora (N/A, Wed, 15 Apr 2026 12:50:00 -0700)
+
+- **بإعلان رسمي.. رابطة الليجا تلطف جراح يامال وفليك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A--%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7-%D8%AA%D9%84%D8%B7%D9%81-%D8%AC%D8%B1%D8%A7%D8%AD-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D9%81%D9%84%D9%8A%D9%83/blt48f1f07518b712f8)
+- **فليك مرشح لجائزة مدرب الشهر في الليغا**: [Link](https://hihi2.com/2026/04/15/p3727719.html)
+- **حققه مورينيو.. برشلونة يقترب من رقم قياسي جديد في الدوري الإسباني**: [Link](https://www.btolat.com/news/397733)
+
+
+### مباريات اليوم (N/A, Wed, 15 Apr 2026 12:40:00 -0700)
+
+- **جدول مباريات اليوم الأربعاء 15 أبريل 2026 .. والقنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-15-%D8%A7%D9%94%D8%A8%D8%B1%D9%8A%D9%84-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltcb19b9b0f63744ef)
+- **أبرز المباريات العربية والعالمية اليوم الأربعاء**: [Link](https://24.ae/article/954833/%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1)
+- **مباريات اليوم الثلاثاء.. هل يصنع ليفربول وبرشلونة "الريمونتادا"؟**: [Link](https://www.arrajol.com/content/401466/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D9%87%D9%84-%D9%8A%D8%B5%D9%86%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7%D8%9F)
+
+
+### harry kane (N/A, Wed, 15 Apr 2026 12:40:00 -0700)
+
+- **"Those moments are simply missing": Former international believes Bayern Munich's Harry Kane has a major disadvantage in the race for the Ballon d'Or**: [Link](https://www.goal.com/en/lists/those-moments-are-simply-missing-former-international-believes-bayern-munich-s-harry-kane-has-a-major-disadvantage-in-the-race-for-the-ballon-d-or/blt78fd4e791946114b)
+- **Jude Bellingham assesses Harry Kane's Ballon d'Or chances ahead of Champions League showdown between Real Madrid & Bayern Munich**: [Link](https://www.foxsports.com/articles/soccer/jude-bellingham-assesses-harry-kanes-ballon-dor-chances-ahead-of-champions-league-showdown-between-real-madrid-bayern-munich)
+- **‘He’s a fantastic player’ - Jude Bellingham hails Harry Kane**: [Link](https://tribuna.com/en/news/2026-04-14-i-hope-he-doesnt-show-up-tomorrow-jude-bellingham-on-harry-kane/)
+
+
+### yallakora (N/A, Wed, 15 Apr 2026 12:40:00 -0700)
+
+- **اتهامات بالسرقة وإشارات مستفزة.. رافينيا مهدد بعقوبتين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%B3%D8%B1%D9%82%D8%A9-%D9%88%D8%A7%D9%95%D8%B4%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D8%B3%D8%AA%D9%81%D8%B2%D8%A9--%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%85%D9%87%D8%AF%D8%AF-%D8%A8%D8%B9%D9%82%D9%88%D8%A8%D8%AA%D9%8A%D9%86/blt3269ec7a249d90a7)
+- **حصيلة برشلونة المالية بعد توديعه دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/4/15/%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%AA%D9%88%D8%AF%D9%8A%D8%B9%D9%87-%D8%AF%D9%88%D8%B1%D9%8A)
+- **أول تعليق من برشلونة بعد نهاية مشواره في دوري أبطال أوروبا**: [Link](https://arabic.cnn.com/sport/article/2026/04/15/barcelona-champions-league)
+
+
+### aleksandar pavlović (N/A, Wed, 15 Apr 2026 12:40:00 -0700)
+
+- **Real Madrid heiß auf Youngster des FC Bayern?**: [Link](https://www.sport.de/news/ne16678022/real-madrid-heiss-auf-youngster-des-fc-bayern/)
+- **Aleksandar Pavlovic ganz privat: Vom Balljungen zum Nationalspieler - so lebt der Bayern-Star**: [Link](https://www.news.de/sport/857644381/aleksandar-pavlovic-privat-familie-vater-aus-serbien-mit-freundin-dfb-elf-balljunge-bundesligaspieler-bayern-muenchen-steckbrief/1/)
+- **Pavlović und Bayern sind sich in der Transferfrage einig**: [Link](https://www.fussballdaten.de/news/pavlovic-und-bayern-sind-sich-in-der-transferfrage-einig-21c80b28/)
+
+
+### match day (N/A, Wed, 15 Apr 2026 12:40:00 -0700)
+
+- **Mayhem defines match day 5 of Baller League**: [Link](https://www.voice-online.co.uk/sport/football/2026/04/15/mayhem-defines-match-day-5-of-baller-league/)
+- **Baller League provides explosive action and relentless goals**: [Link](https://www.voice-online.co.uk/sport/football/2026/04/07/baller-league-provides-explosive-action-and-relentless-goals/)
+- **Hull FC team admissions including spine change and Logan Moy praise**: [Link](https://www.hulldailymail.co.uk/sport/rugby-league/hull-fc-team-admissions-made-10915401)
+
+
 ### sofascore (N/A, Wed, 15 Apr 2026 12:30:00 -0700)
 
 - **Sofascore Marks Basketball's Greatest Debate With a Limited-Edition Goat Cheese**: [Link](https://markets.businessinsider.com/news/stocks/sofascore-marks-basketball-s-greatest-debate-with-a-limited-edition-goat-cheese-1036025530)
