@@ -1,3 +1,10 @@
+### كورة (N/A, Wed, 15 Apr 2026 12:50:00 -0700)
+
+- **بايرن ميونخ يسخر من ريال مدريد بسلاحه القديم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B3%D9%84%D8%A7%D8%AD%D9%87-%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D9%85/blt83fd113a0756c85c)
+- **كومباني يغيب عن بايرن ميونخ في ذهاب نصف نهائي دوري الأبطال ضد باريس سان جيرمان**: [Link](https://m.elbotola.com/article/2026-04-15-21-59-891.html)
+- **ماتيوس: بايرن ميونخ المرشح الأبرز للفوز بدوري أبطال أوروبا**: [Link](https://www.hesport.com/%D9%85%D8%A7%D8%AA%D9%8A%D9%88%D8%B3-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD-%D8%A7%D9%84%D8%A3%D8%A8%D8%B1%D8%B2-%D9%84%D9%84%D9%81%D9%88-435035.html)
+
+
 ### brahim díaz (N/A, Wed, 15 Apr 2026 14:10:00 -0700)
 
 - **‘The perception is Carney is a wartime leader’: why Canada’s PM could secure a majority**: [Link](https://www.theguardian.com/world/2026/apr/13/mark-carney-canada-pm-liberals-majority)
