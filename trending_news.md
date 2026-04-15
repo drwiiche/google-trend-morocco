@@ -1,3 +1,50 @@
+### camavinga (N/A, Wed, 15 Apr 2026 13:50:00 -0700)
+
+- **1x1 del Real Madrid contra el Bayern: harakiri de Camavinga**: [Link](https://as.com/futbol/1x1-del-real-madrid-contra-el-bayern-harakiri-de-camavinga-f202604-n/)
+- **Burrull y la segunda amarilla a Camavinga: "Retiene el balón tres segundos, no se le puede expulsar por esto"**: [Link](https://www.marca.com/radio/2026/04/15/burrull-segunda-amarilla-camavinga-expulsar-jugador-esto.html)
+- **Qué pasó con Arda Guler: expulsado al final del Bayern vs Real Madrid**: [Link](https://www.365scores.com/es/news/expulsion-arda-guler-bayern-madrid-hoy/)
+
+
+### وقود (N/A, Wed, 15 Apr 2026 13:50:00 -0700)
+
+
+
+
+### musiala (N/A, Wed, 15 Apr 2026 13:40:00 -0700)
+
+- **2026 World Cup: Jamal Musiala ambitions are clear after “incomprehensible statement” from German icon rejected**: [Link](https://www.sportsmole.co.uk/football/germany/world-cup-2026/news/incomprehensible-statement-rejected-as-musialas-germany-world-cup-ambitions-are-made-clear_595591.html)
+- **“It pays to listen closely every once in a while”: Oliver Kahn insists he has been misinterpreted over his remarks about Bayern Munich star Jamal Musiala’s World Cup participation**: [Link](https://www.goal.com/en-ca/lists/it-pays-to-listen-closely-every-once-in-a-while-oliver-kahn-insists-he-has-been-misinterpreted-over-his-remarks-about-bayern-munich-star-jamal-musiala-s-world-cup-participation/blt5b64e82c1e55e009)
+- **Vincent Kompany doesn’t think Bayern Munich legend Oliver Kahn would heed his own advice**: [Link](https://sports.yahoo.com/articles/vincent-kompany-doesn-t-think-202243274.html)
+
+
+### upamecano (N/A, Wed, 15 Apr 2026 13:40:00 -0700)
+
+- **Kim Min-jae Likely to Start from Bench Again Against Real Madrid**: [Link](https://www.chosun.com/english/sports-en/2026/04/15/RNFL22FEPJFG3BRJYG4QBN7EI4/)
+- **Kim Min-jae likely to start on bench again for Bayern vs Real Madrid - CHOSUNBIZ**: [Link](https://biz.chosun.com/en/en-sports/2026/04/15/XG73AAAQQVHFHEFSWX5CFWVLC4/)
+- **Real Madrid, Barcelona, and Atletico Madrid Stars Face Suspension Threat for Champions League Semi-Final First Leg**: [Link](https://m.elbotola.com/en/article/2026-04-14-01-45-446.html)
+
+
+### olise (N/A, Wed, 15 Apr 2026 13:30:00 -0700)
+
+- **'You could see immediately he was in a different stratosphere': The coaches who know Michael Olise best reveal what makes Bayern superstar so special, the roots of his friendship with Bukayo Saka - and why Reading's owner still 'thanks him every night'**: [Link](https://www.dailymail.co.uk/sport/football/article-15731977/michael-olise-bayern-munich-france-reading.html)
+- **Lionel Messi 3rd - Michael Olise on track to beat assist record in single season**: [Link](https://www.transfermarkt.co.uk/lionel-messi-3rd-michael-olise-on-track-to-beat-assist-record-in-single-season/view/news/477777)
+- **Football Daily | Madrid and Bayern burn rubber in fast and furious show at Bernabéu**: [Link](https://www.theguardian.com/football/2026/apr/08/real-madrid-bayern-munich-football-daily-newsletter)
+
+
+### rudiger (N/A, Wed, 15 Apr 2026 13:30:00 -0700)
+
+- **Caught on camera: Antonio Rudiger's pumped up reaction to goal-saving block against Bayern Munich**: [Link](https://tribuna.com/en/blogs/caught-on-camera-antonio-rudigers-pumped-up-reaction-to-goal/)
+- **‘The perception is Carney is a wartime leader’: why Canada’s PM could secure a majority**: [Link](https://www.theguardian.com/world/2026/apr/13/mark-carney-canada-pm-liberals-majority)
+- **Bayern Munich Vs Real Madrid - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/bayern-munich-vs-real-madrid-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDAyRjJLTUU)
+
+
+### kylian mbappé (N/A, Wed, 15 Apr 2026 12:50:00 -0700)
+
+- **10 goals in four games - Kylian Mbappé breaks Champions League away goals record**: [Link](https://www.transfermarkt.com/10-goals-in-four-games-kylian-mbappe-breaks-champions-league-away-goals-record/view/news/478126)
+- **Mbappe strikes in Munich thriller as Vinicius turns provider**: [Link](https://www.besoccer.com/new/mbappe-strikes-in-munich-thriller-as-vinicius-turns-provider-1404683)
+- **Institutional video of the badge awarding ceremony 2026**: [Link](https://www.realmadrid.com/en-US/news/club/latest-news/video-institucional-del-acto-de-entrega-de-insignias-2026-10-04-2026)
+
+
 ### gnabry (N/A, Wed, 15 Apr 2026 13:20:00 -0700)
 
 - **Training Report: Bayern Munich gets Serge Gnabry back, but will he start?**: [Link](https://www.bavarianfootballworks.com/champions-league/189163/training-report-bayern-munich-gets-serge-gnabry-back-but-will-he-start)
