@@ -1,3 +1,38 @@
+### نادي المغرب الفاسي (N/A, Wed, 15 Apr 2026 06:20:00 -0700)
+
+- **المغرب الفاسي 2026.. حينما تترجم "الحكامة الإدارية" إلى ريادة كروية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-2026-%D8%AD%D9%8A%D9%86%D9%85%D8%A7-%D8%AA%D8%AA%D8%B1%D8%AC%D9%85-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D8%AF%D8%A9-%D9%83%D8%B1%D9%88%D9%8A%D8%A9/18636)
+- **المغرب الفاسي يكشف جديد عيادته**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%8A%D8%A7%D8%AF%D8%AA%D9%87-2-434893.html)
+- **الماص يفقد خدمات الرحايلي لثلاثة أسابيع بعد إصابته أمام الوداد**: [Link](https://m.elbotola.com/article/2026-04-14-11-38-816.html)
+
+
+### محمد وهبي (N/A, Wed, 15 Apr 2026 05:00:00 -0700)
+
+- **"أكبر مشتل مواهب في العالم".. كيف سيتحكم المغرب في مستقبل نجومه؟**: [Link](https://www.aljazeera.net/sport/2026/4/14/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B7%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%AE%D8%B7%D8%A9)
+- **جمال: نثق في قيادة وهبي لـ"الأسود"**: [Link](https://www.hespress.com/%D8%AC%D9%85%D8%A7%D9%84-%D9%86%D8%AB%D9%82-%D9%81%D9%8A-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%88%D9%87%D8%A8%D9%8A-%D9%84%D9%80%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-1731004.html)
+- **شراكة مغربية إسبانية لتطوير التكوين**: [Link](https://www.radiomars.ma/%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D8%AA%D8%B7%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D9%83%D9%88%D9%8A%D9%86/)
+
+
+### مجلس المنافسة (N/A, Wed, 15 Apr 2026 05:00:00 -0700)
+
+- **عريضة مغربية تدعو إلى كبح أسعار المحروقات بالتسقيف وضريبة متحركة**: [Link](https://www.hespress.com/%D8%B9%D8%B1%D9%8A%D8%B6%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D9%83%D8%A8%D8%AD-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88-1731149.html)
+- **إمدادات طاقية تكفي لـ 90 يوما**: [Link](https://assabah.ma/916227.html)
+- **بنعلي: أزمة هرمز أسوأ من صدمات السبعينيات**: [Link](https://febrayer.com/1142894.html)
+
+
+### هوغو إيكيتيكي (N/A, Wed, 15 Apr 2026 05:00:00 -0700)
+
+- **إصابة خطيرة.. نجم فرنسا مهدد بالغياب عن المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9--%D9%86%D8%AC%D9%85-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%85%D9%87%D8%AF%D8%AF-%D8%A8%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt7fec98b212765d9f)
+- **إيكيتيكي لاعب ليفربول يغيب 9 أشهر بسبب إصابة خطيرة**: [Link](https://www.alarabiya.net/sport/2026/04/15/%D8%A7%D9%8A%D9%83%D9%8A%D8%AA%D9%8A%D9%83%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-9-%D8%A7%D8%B4%D9%87%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9)
+- **حكيمي يساند إيكيتيكي بعد الإصابة**: [Link](https://www.hesport.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%B3%D8%A7%D9%86%D8%AF-%D8%A5%D9%8A%D9%83%D9%8A%D8%AA%D9%8A%D9%83%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-435032.html)
+
+
+### turf fr (N/A, Wed, 15 Apr 2026 05:00:00 -0700)
+
+- **Tiercé Quarté Quinté d'hier > arrivée, résultats et rapports**: [Link](https://www.paris-turf.com/course/chantilly-prix-de-roissy-idc-0d6c2f792d55aa2ed21aadfef5f7dfd1)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 8 Jag Royal**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-8-jag-royal-129510.html)
+- **Le Pro du jour - Marcel Rolland : "Tavaco devrait lutter pour la victoire"**: [Link](https://www.equidia.fr/articles/actualite/le-pro-du-jour-marcel-rolland-tavaco-devrait-lutter-pour-la-victoire)
+
+
 ### hugo ekitiké (N/A, Wed, 15 Apr 2026 03:30:00 -0700)
 
 - **Hugo Ekitike: Liverpool striker's injury 'looks really bad', says Arne Slot**: [Link](https://www.bbc.com/sport/football/articles/cx2dd3z9lddo)
