@@ -1,3 +1,17 @@
+### إيتمار بن غفير (N/A, Wed, 15 Apr 2026 02:00:00 -0700)
+
+- **تصعيد ضد بن غفير.. المحكمة الإسرائيلية تنظر اليوم في مطالب بعزله**: [Link](https://www.aljazeera.net/news/2026/4/15/%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9)
+- **"العليا الإسرائيلية" تنظر في عزل بن غفير من منصبه وزيرا للأمن القومي**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%84%D8%B9%D9%84%D9%8A%D8%A7-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%86%D8%B8%D8%B1-%D9%81%D9%8A-%D8%B9%D8%B2%D9%84-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1-%D9%85%D9%86-%D9%85%D9%86%D8%B5%D8%A8%D9%87-%D9%88%D8%B2%D9%8A%D8%B1%D8%A7-%D9%84%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%82%D9%88%D9%85%D9%8A/3905978)
+- **صدام بين حكومة الاحتلال والمحكمة العليا على خلفية جلسة إقالة بن غفير**: [Link](https://www.alaraby.co.uk/politics/%D8%B5%D8%AF%D8%A7%D9%85-%D8%A8%D9%8A%D9%86-%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%AE%D9%84%D9%81%D9%8A%D8%A9-%D8%AC%D9%84%D8%B3%D8%A9-%D8%A5%D9%82%D8%A7%D9%84%D8%A9-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1)
+
+
+### اخبارنا (N/A, Tue, 14 Apr 2026 22:10:00 -0700)
+
+- **النفط يتراجع بقوة والذهب يصعد مع عودة المفاوضات الأمريكية الإيرانية**: [Link](https://www.aljazeera.net/ebusiness/2026/4/14/%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%88%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%B5%D8%B9%D8%AF-%D9%85%D8%B9-%D8%B9%D9%88%D8%AF%D8%A9)
+- **ارتفاع الأسهم وتراجع النفط مع آمال استئناف محادثات أمريكية إيرانية**: [Link](https://arabic.euronews.com/business/2026/04/14/stock-markets-rise-and-oil-prices-fall-on-hopes-of-renewed-us-iran-talks)
+- **هرمز يشعل الأسواق.. واشنطن تغلق الشريان والعالم يترقب الحصار والأسعار تتحدى سقف 2008**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/20260413-%D9%87%D8%B1%D9%85%D8%B2-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D8%BA%D9%84%D9%82-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%84%D8%AD%D8%B5%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%AA%D8%AA%D8%AD%D8%AF%D9%89-%D8%B3%D9%82%D9%81-2008)
+
+
 ### gianni infantino (N/A, Wed, 15 Apr 2026 01:20:00 -0700)
 
 - **Infantino and FIFA discuss asking President Trump for moratorium on World Cup ICE raids**: [Link](https://www.nytimes.com/athletic/7193405/2026/04/14/inantino-trump-ice-raids-moratorium/)
