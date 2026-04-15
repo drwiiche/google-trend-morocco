@@ -1,3 +1,38 @@
+### match real aujourd'hui (N/A, Wed, 15 Apr 2026 11:00:00 -0700)
+
+- **89 buts et la BBC dans le viseur : le Bayern, c’est KDO**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/ligue-des-champions-i-bayern-munich-real-madrid-i-le-trio-kane-diaz-olise-89-buts-et-la-bbc-dans-le-viseur_sto23289130/story.shtml)
+- **À la veille du match retour contre le Bayern Munich, les joueurs du Real Madrid ont été dérangés par des feux d'artifice tirés devant leur hôtel**: [Link](https://www.lequipe.fr/Football/Actualites/A-la-veille-du-match-retour-contre-le-bayern-munich-les-joueurs-du-real-madrid-ont-vecu-une-nuit-agitee/1668076)
+- **Real Madrid : la réponse folle de Perez sur une remontada face au Bayern**: [Link](https://www.footmercato.net/a1824136938678216063-real-madrid-la-reponse-folle-de-perez-sur-une-remontada-face-au-bayern)
+
+
+### النصر ضد الاتفاق (N/A, Wed, 15 Apr 2026 10:40:00 -0700)
+
+- **جيسوس يعيد إينيجو مارتينيز إلى مركزه الجديد.. ويختار بديل أنجيلو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%95%D9%8A%D9%86%D9%8A%D8%AC%D9%88-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D8%B2-%D8%A7%D9%95%D9%84%D9%89-%D9%85%D8%B1%D9%83%D8%B2%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF--%D9%88%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A8%D8%AF%D9%8A%D9%84-%D8%A7%D9%94%D9%86%D8%AC%D9%8A%D9%84%D9%88/bltb6fe6ad44bc23da9)
+- **ماذا يحدث في ترتيب النصر حال الفوز اليوم ؟**: [Link](https://hihi2.com/2026/04/15/p3726741.html)
+- **الهدف رقم 1000 ينتظر كريستيانو رونالدو أمام الاتفاق في الدوري السعودي**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%87%D8%AF%D9%81-%D8%B1%D9%82%D9%85-1000-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82)
+
+
+### prix (N/A, Wed, 15 Apr 2026 10:30:00 -0700)
+
+- **Michel-Edouard Leclerc propose de "suspendre" les certificats d'économies d'énergie, une taxe qui pourrait faire baisser "de 15 centimes" le prix des carburants**: [Link](https://www.franceinfo.fr/economie/automobile/essence/on-pourrait-la-suspendre-ca-ne-couterait-rien-a-l-etat-michel-edouard-leclerc-propose-une-formule-pour-baisser-sensiblement-le-prix-des-carburants-a-la-pompe_7937645.html)
+- **Contrôle du prix des carburants: les distributeurs demandent le "retrait" du projet du gouvernement**: [Link](https://medias24.com/agence-presse/controle-du-prix-des-carburants-les-distributeurs-demandent-le-retrait-du-projet-du-gouvernement/)
+- **Prix des carburants : le gouvernement envisage un plafonnement des marges des distributeurs**: [Link](https://www.leparisien.fr/economie/prix-des-carburants-le-gouvernement-prepare-leventualite-dun-plafonnement-des-tarifs-a-la-pompe-14-04-2026-CD4KSMM57NGJJEER3K5EUAMD34.php)
+
+
+### équipe d'algérie de football (N/A, Wed, 15 Apr 2026 10:20:00 -0700)
+
+- **ALG : Feyenoord sur les traces… d’un autre Algérien !**: [Link](https://www.footafrique.com/alg-feyenoord-sur-les-traces-dun-autre-algerien/)
+- **"Match de la honte…" : le président de la FIFA, Gianni Infantino, revient sur l’injustice subie par l’Algérie à la Coupe du monde 1982**: [Link](https://www.ladepeche.fr/2026/04/14/match-de-la-honte-le-president-de-la-fifa-gianni-infantino-revient-sur-linjustice-subie-par-lalgerie-a-la-coupe-du-monde-1982-13325226.php)
+- **Ligue 1 Mobilis : Un match au sommet fait l’objet de paris suspects ! (Spécial LGDF)**: [Link](https://lagazettedufennec.com/ligue-1-mobilis-un-match-au-sommet-fait-lobjet-de-paris-suspects-special-lgdf/)
+
+
+### al-nassr fc – al-ettifaq (N/A, Wed, 15 Apr 2026 10:10:00 -0700)
+
+- **Is Ronaldo in? Al-Nassr announce their line-up for the Saudi Pro League clash**: [Link](https://dailysports.net/news/is-ronaldo-in-al-nassr-announce-their-line-up-for-the-saudi-pro-league-clash/)
+- **How & Where to Watch Al-Nassr vs Al-Ettifaq? Live Streaming & TV Channels**: [Link](https://athlonsports.com/soccer/how-where-to-watch-al-nassr-vs-al-ettifaq-live-streaming-tv-channels)
+- **Al-Nassr Receives a Strong Boost with the Return of Its Injured Player Before the Al-Ettifaq Match**: [Link](https://www.ysscores.com/en/news/13945245/Al-Nassr-Receives-a-Strong-Boost-with-the-Return-of-Its-Injured-Player-Before-the-Al-Ettifaq-Match)
+
+
 ### نادي برشلونة (N/A, Wed, 15 Apr 2026 09:40:00 -0700)
 
 - **لابورتا ينفجر ضد "الوقحين": ما يفعله الحكام مع برشلونة لا يطاق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%A8%D9%88%D8%B1%D8%AA%D8%A7-%D9%8A%D9%86%D9%81%D8%AC%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D9%88%D9%82%D8%AD%D9%8A%D9%86--%D9%85%D8%A7-%D9%8A%D9%81%D8%B9%D9%84%D9%87-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7-%D9%8A%D8%B7%D8%A7%D9%82/blt541ba5521ab3704b)
