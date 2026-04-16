@@ -1,3 +1,24 @@
+### ضريبة (N/A, Thu, 16 Apr 2026 04:20:00 -0700)
+
+- **طرح السياسات الضريبية في السوق.**: [Link](https://www.vietnam.vn/ar/mang-chinh-sach-thue-ra-cho)
+- **مع اقتراب الموعد النهائي لتقديم الإقرارات الضريبية، تواجه الشركات التي تتأخر في تقديم إقراراتها غرامات تصل إلى 12.5 مليون دونغ فيتنامي.**: [Link](https://www.vietnam.vn/ar/sap-het-han-khai-thue-ho-kinh-doanh-nop-cham-bi-phat-den-12-5-trieu)
+- **كيف تقوم المؤسسات الفردية التي تبيع منتجاتها عبر قنوات متعددة بإعلان الضرائب؟**: [Link](https://www.vietnam.vn/ar/ban-hang-da-kenh-ho-kinh-doanh-ke-khai-thue-the-nao)
+
+
+### azzedine ounahi (N/A, Thu, 16 Apr 2026 03:40:00 -0700)
+
+- **OM : Medhi Benatia s’est complètement planté sur ce joueur vendu**: [Link](https://mediafoot.net/om-medhi-benatia-sest-completement-plante-sur-ce-joueur-vendu/)
+- **Un (très) grand club pour Azzedine Ounahi**: [Link](https://www.bladi.net/grand-club-azzedine-ounahi,120699.html)
+- **Mercato : l’Atlético Madrid prêt à foncer sur une star du Maroc ?**: [Link](https://www.afrik-foot.com/mercato-latletico-madrid-pret-a-foncer-sur-une-star-du-maroc)
+
+
+### hausse prix gasoil maroc (N/A, Wed, 15 Apr 2026 23:10:00 -0700)
+
+- **Gasoil. Vers une hausse moyenne d’un dirham dès ce jeudi 16 avril 2026**: [Link](https://medias24.com/2026/04/15/gasoil-vers-une-hausse-moyenne-dun-dirham-des-ce-jeudi-16-avril-2026-1660483/)
+- **Carburants: le Conseil de la concurrence veut tourner la page des prix fixés tous les 15 jours**: [Link](https://fr.le360.ma/economie/carburants-le-conseil-de-la-concurrence-veut-tourner-la-page-des-prix-fixes-tous-les-15-jours_B7PRMEKJQVBDZCV736BALIGQ6M/)
+- **Mezzour rassure sur l’approvisionnement en produits de base malgré les tensions internationales**: [Link](https://mobile.telquel.ma/instant-t/2026/04/15/mezzour-rassure-sur-lapprovisionnement-en-produits-de-base-malgre-les-tensions-internationales_1984433/)
+
+
 ### نادي الجيش الملكي (N/A, Thu, 16 Apr 2026 02:40:00 -0700)
 
 - **"الكاف" تدقق في قوة الجيش الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D8%AF%D9%82%D9%82-%D9%81%D9%8A-%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1731817.html)
