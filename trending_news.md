@@ -1,3 +1,31 @@
+### hibapress (N/A, Wed, 15 Apr 2026 22:30:00 -0700)
+
+- **البابا ليو يصل الكاميرون بعد زيارة "تاريخية" للجزائر**: [Link](https://www.aljazeera.net/news/2026/4/15/%D8%A7%D9%84%D8%A8%D8%A7%D8%A8%D8%A7-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D9%82%D8%A7%D8%AF%D9%85%D8%A7-%D9%85%D9%86)
+- **بابا الفاتيكان يشعل مواقع التواصل الاجتماعي في الجزائر… أما «يدان» فتلهب فرنسا!**: [Link](https://www.alquds.co.uk/%D8%A8%D8%A7%D8%A8%D8%A7-%D8%A7%D9%84%D9%81%D8%A7%D8%AA%D9%8A%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D8%B9%D9%84-%D9%85%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%A7/)
+- **الجزائر: تفجير انتحاري مزدوج في مدينة البليدة خلال زيارة البابا**: [Link](https://www.france24.com/ar/%D9%81%D9%8A%D8%AF%D9%8A%D9%88/20260414-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%81%D8%AC%D9%8A%D8%B1-%D8%A7%D9%86%D8%AA%D8%AD%D8%A7%D8%B1%D9%8A-%D9%85%D8%B2%D8%AF%D9%88%D8%AC-%D9%81%D9%8A-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%A8%D9%84%D9%8A%D8%AF%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A8%D8%A7%D8%A8%D8%A7)
+
+
+### olivier nora (N/A, Wed, 15 Apr 2026 18:00:00 -0700)
+
+- **Grasset : après le limogeage d’Olivier Nora, la prestigieuse maison d’édition confrontée à l’hémorragie de ses auteurs**: [Link](https://www.lemonde.fr/economie/article/2026/04/16/grasset-apres-le-limogeage-d-olivier-nora-la-prestigieuse-maison-d-edition-confrontee-a-l-hemorragie-de-ses-auteurs_6680457_3234.html)
+- **Edition : Vincent Bolloré coupe la tête du patron de Grasset**: [Link](https://www.lecanardenchaine.fr/culture-idees/53642-vincent-bollore-obtient-la-tete-du-patron-de-grasset)
+- **INFO L'EXPRESS. Le PDG des éditions Grasset Olivier Nora licencié par Vincent Bolloré**: [Link](https://www.lexpress.fr/france/info-lexpress-le-pdg-des-editions-grasset-olivier-nora-licencie-par-vincent-bollore-ZKB6XIH22RFGRESEMJJDYN6OKM/)
+
+
+### champions (N/A, Wed, 15 Apr 2026 14:20:00 -0700)
+
+- **Champions League Semi-Final Dates Confirmed: PSG to Face Bayern Munich**: [Link](https://m.elbotola.com/en/article/2026-04-15-21-45-162.html)
+- **Footy Fix: UEFA Champions League rolls on as Real Madrid battle Bayern Munich, Arsenal host Sporting**: [Link](https://www.cbssports.com/soccer/news/footy-fix-uefa-champions-league-rolls-on-as-real-madrid-battle-bayern-munich-arsenal-host-sporting/)
+- **Champions League semi-final ties and dates confirmed**: [Link](https://www.uefa.com/uefachampionsleague/news/02a4-2063e22b19d9-14f7369cb6fd-1000--champions-league-semi-final-ties-and-dates-confirmed/)
+
+
+### arda guler (N/A, Wed, 15 Apr 2026 13:40:00 -0700)
+
+- **Arda Güler, sobre su infancia en Turquía: "Mi obsesión con 12 años era la Play. Me regaló una falsa mi padre, pero yo era feliz"**: [Link](https://www.elespanol.com/deportes/futbol/20260416/arda-guler-infancia-turquia-obsesion-anos-play-regalo-falsa-padre-feliz-dt/1003744208833_0.html)
+- **Arda Güler (21 años), futbolista del Real Madrid: "No crecí en una familia rica. Crecí con una madre ama de casa y un padre que tenía una tienda de barrio. Un día me dijo que teníamos que cerrarla porque estábamos arruinados"**: [Link](https://www.semana.es/corazon/arda-guler-21-anos-futbolista-real-madrid-no-creci-familia-rica-creci-madre-ama-casa-padre-que-tenia-tienda-barrio_2812980)
+- **Arda Güler recuerda su infancia en Turquía: "A los 12 años, mi mayor pasión era la Play. Mi padre me regaló una réplica falsa, pero eso me hacía feliz"**: [Link](https://www.nuevaradio.org/2026/04/16/arda-guler-recuerda-su-infancia-en-turquia-a-los-12-anos-mi-mayor-pasion-era-la-play-mi-padre-me-regalo-una-replica-falsa-pero-eso-me-hacia-feliz/)
+
+
 ### champions league (N/A, Wed, 15 Apr 2026 14:00:00 -0700)
 
 - **Atletico Madrid survive Barcelona scare to reach Champions League semis**: [Link](https://www.bbc.com/sport/football/live/cly6xz3ex6lt)
