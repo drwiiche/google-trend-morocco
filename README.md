@@ -1,3 +1,31 @@
+### aston villa vs bologna (N/A, Thu, 16 Apr 2026 13:20:00 -0700)
+
+- **Aston Villa vs Bologna: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwydgm13v8dt)
+- **Ollie Watkins joins PL legends with milestone Aston Villa goal 🏅**: [Link](https://onefootball.com/en/news/ollie-watkins-joins-pl-legends-with-milestone-aston-villa-goal-42722443)
+- **Aston Villa vs Bologna predictions: Rossoblu comeback falls short**: [Link](https://www.goal.com/en-ca/betting/tips/aston-villa-vs-bologna-predictions-04-16/A%3Abltc9e7d07ddb1a912c)
+
+
+### ليونيل ميسي (N/A, Thu, 16 Apr 2026 13:10:00 -0700)
+
+- **بسبب برشلونة.. ميسي يستحوذ على ناد كتالوني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9--%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AD%D9%88%D8%B0-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D8%AF-%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A/bltc842a39bcbeae23f)
+- **ميسي يستحوذ رسميا على ملكية ناد عريق في كتالونيا**: [Link](https://www.aljazeera.net/sport/2026/4/16/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AD%D9%88%D8%B0-%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+- **في أولى خطوات العودة لبرشلونة.. ميسي يستحوذ على نادي كورنيلا الكاتالوني**: [Link](https://24.ae/article/955079/%D9%81%D9%8A-%D8%A3%D9%88%D9%84%D9%89-%D8%AE%D8%B7%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AD%D9%88%D8%B0-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D8%AF%D9%8A-%D9%83%D9%88%D8%B1%D9%86%D9%8A%D9%84%D8%A7-%D8%A7%D9%84%D9%83%D8%A7%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A)
+
+
+### gazoduc (N/A, Thu, 16 Apr 2026 13:10:00 -0700)
+
+- **Gazoduc Nigeria-Maroc. Le projet qui veut redessiner la carte énergétique de l’Afrique (Amina Benkhadra)**: [Link](https://medias24.com/2026/04/16/gazoduc-nigeria-maroc-le-projet-qui-veut-redessiner-la-carte-energetique-de-lafrique-amina-benkhadra-1660724/)
+- **Pratt & Whitney, gazoduc Nigeria-Maroc, EasyJet : les 3 infos business à retenir**: [Link](https://mobile.telquel.ma/2026/04/16/pratt-whitney-gazoduc-maroc-nigeria-easyjet-les-3-infos-business-a-retenir_1984718)
+- **Gazoduc Nigeria-Maroc : l’accord intergouvernemental signé cette année**: [Link](https://ledesk.ma/encontinu/gazoduc-nigeria-maroc-laccord-intergouvernemental-signe-cette-annee/)
+
+
+### betis (N/A, Thu, 16 Apr 2026 12:40:00 -0700)
+
+- **Betis - Sporting Braga, hoy en directo: última hora de los cuartos de la Europa League en vivo**: [Link](https://as.com/futbol/uefa/betis-sporting-braga-hoy-en-directo-ultima-hora-de-los-cuartos-de-la-europa-league-en-vivo-f202604-d/)
+- **Betis - Braga, en directo | Europa League hoy en vivo | Europa League hoy en vivo**: [Link](https://www.marca.com/futbol/europa-league/betis-braga/2026/04/16/01_0104_20260416_185_372-directo.html)
+- **¡GOL! anota para Real Betis. Abde Ezzalzouli**: [Link](https://www.tudn.com/futbol/uefa-europa-league/gol-anota-para-real-betis-abde-ezzalzouli-video-4)
+
+
 ### real betis (N/A, Thu, 16 Apr 2026 12:30:00 -0700)
 
 - **Betis - Sporting Braga, hoy en directo: última hora de los cuartos de la Europa League en vivo**: [Link](https://as.com/futbol/uefa/betis-sporting-braga-hoy-en-directo-ultima-hora-de-los-cuartos-de-la-europa-league-en-vivo-f202604-d/)
