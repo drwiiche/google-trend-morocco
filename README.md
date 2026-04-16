@@ -1,3 +1,31 @@
+### hassan du maroc (N/A, Thu, 16 Apr 2026 00:00:00 -0700)
+
+- **Le Prince héritier Moulay El Hassan inaugure la tour Mohammed VI à Rabat**: [Link](https://medias24.com/2026/04/13/le-prince-heritier-moulay-el-hassan-inaugure-la-tour-mohammed-vi-a-rabat-1658947/)
+- **Prince Moulay El Hassan du Maroc : à Rabat, le fils de Mohammed VI attire tous les regards**: [Link](https://www.gala.fr/royautes/moulay-el-hassan-a-rabat-le-fils-de-mohammed-vi-attire-tous-les-regards-20260414)
+- **La Tour Mohammed VI enfin inaugurée après une décennie de tribulations**: [Link](https://ledesk.ma/2026/04/14/la-tour-mohammed-vi-enfin-inauguree-apres-une-decennie-de-tribulations/)
+
+
+### إبراهيم دياز (N/A, Wed, 15 Apr 2026 15:40:00 -0700)
+
+- **ماركا: خروج ابراهيم دياز "انتحار تكتيكي" وانهيار لمنظومة مدريد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%83%D8%A7-%D8%AE%D8%B1%D9%88%D8%AC-%D8%A7%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A7%D9%86%D8%AA%D8%AD%D8%A7%D8%B1-%D8%AA%D9%83%D8%AA%D9%8A%D9%83%D9%8A-%D9%88%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%84%D9%85%D9%86%D8%B8%D9%88%D9%85%D8%A9-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/18694)
+- **تغيير إبراهيم دياز يثير الجدل.. هل أخطأ أربيلوا التقدير أمام بايرن ميونخ؟**: [Link](https://www.akhbarona.com/sport/proplayers/424427.html)
+- **إبراهيم دياز يدخل «نادي المائة» في الليغا**: [Link](https://www.radiomars.ma/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%AF%D8%AE%D9%84-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%A7%D8%A6%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%84/)
+
+
+### arbeloa (N/A, Wed, 15 Apr 2026 14:00:00 -0700)
+
+- **Arbeloa, primera decisión**: [Link](https://as.com/futbol/champions/arbeloa-primera-decision-f202604-n/)
+- **Valdano visualiza el futuro del Madrid tras caer: "Necesita fichajes y Arbeloa puede pagar las consecuencias"**: [Link](https://www.marca.com/futbol/real-madrid/2026/04/16/valdano-visualiza-futuro-madrid-caer-necesita-fichajes-arbeloa-pagar-consecuencias.html)
+- **Arbeloa, el error más grave de Florentino**: [Link](https://www.elmundo.es/deportes/futbol/champions-league/2026/04/15/69dff2c8e9cf4a55788b4599.html)
+
+
+### arsenal fc (N/A, Wed, 15 Apr 2026 14:00:00 -0700)
+
+- **Arsenal star sends transfer message to Real Madrid after Sporting clash**: [Link](https://metro.co.uk/2026/04/16/arsenal-star-sends-transfer-message-real-madrid-sporting-clash-27995544/)
+- **“Not bad” – Arsenal star flattered by Real Madrid interest – Suggests only Gunners on mind**: [Link](https://sportwitness.co.uk/not-bad-arsenal-star-flattered-by-real-madrid-interest-suggests-only-gunners-on-mind/)
+- **Bayern München vs Real Madrid**: [Link](https://www.uefa.com/uefachampionsleague/match/2048070--bayern-munchen-vs-real-madrid/)
+
+
 ### الحرس الثوري الإيراني (N/A, Thu, 16 Apr 2026 00:20:00 -0700)
 
 - **الاستخبارات الإيرانية تضبط قائد جماعة انفصالية في الأهواز**: [Link](https://www.alarabiya.net/iran/2026/04/15/%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B6%D8%A8%D8%B7-%D8%B2%D8%B9%D9%8A%D9%85-%D8%AC%D9%85%D8%A7%D8%B9%D8%A9-%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%87%D9%88%D8%A7%D8%B2)
