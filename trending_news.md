@@ -1,3 +1,17 @@
+### نادي الجيش الملكي (N/A, Thu, 16 Apr 2026 02:40:00 -0700)
+
+- **"الكاف" تدقق في قوة الجيش الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D8%AF%D9%82%D9%82-%D9%81%D9%8A-%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1731817.html)
+- **بالفيديو.. طفلة تصنع لحظة إنسانية بقميص نجم مغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%B7%D9%81%D9%84%D8%A9-%D8%AA%D8%B5%D9%86%D8%B9-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%95%D9%86%D8%B3%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D9%82%D9%85%D9%8A%D8%B5-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/bltb011c59790f93e82)
+- **غيابات الجيش الملكي أمام نهضة بركان**: [Link](https://www.radiomars.ma/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86/)
+
+
+### caroline yadan (N/A, Wed, 15 Apr 2026 16:10:00 -0700)
+
+- **Why is France’s bill against ‘new forms of anti-Semitism’ sparking controversy?**: [Link](https://www.france24.com/en/france/20260416-why-is-france-s-bill-against-new-forms-of-anti-semitism-sparking-controversy)
+- **French lawmakers set to push bill criminalising speech on Israel**: [Link](https://www.middleeasteye.net/news/french-lawmakers-set-push-bill-criminalising-speech-israel)
+- **Criminalizing “From the River to the Sea”**: [Link](https://jacobin.com/2026/04/yadan-law-france-antisemitism-israel)
+
+
 ### hassan du maroc (N/A, Thu, 16 Apr 2026 00:00:00 -0700)
 
 - **Le Prince héritier Moulay El Hassan inaugure la tour Mohammed VI à Rabat**: [Link](https://medias24.com/2026/04/13/le-prince-heritier-moulay-el-hassan-inaugure-la-tour-mohammed-vi-a-rabat-1658947/)
