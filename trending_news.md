@@ -1,3 +1,45 @@
+### kaja kallas (N/A, Thu, 16 Apr 2026 14:10:00 -0700)
+
+- **Sudan Enters Fourth Year of War Amid World’s Most Severe Humanitarian Crisis**: [Link](https://www.nytimes.com/2026/04/15/world/africa/sudan-war-hunger-crisis.html)
+- **‘Sudan is an atrocities laboratory’, UN aid chief tells Berlin conference**: [Link](https://news.un.org/en/story/2026/04/1167309)
+- **After three years of war, Sudan army and RSF locked in military impasse**: [Link](https://www.aljazeera.com/news/2026/4/16/after-three-years-of-war-sudan-army-and-rsf-locked-in-military-impasse)
+
+
+### rayo vallecano (N/A, Thu, 16 Apr 2026 14:00:00 -0700)
+
+- **Preview: AEK Athens vs Rayo Vallecano - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/aek-athens/europa-conference-league/preview/aek-athens-vs-rayo-vallecano-prediction-team-news-lineups_595695.html)
+- **Greece Conference League Soccer**: [Link](https://www.midfloridanewspapers.com/ap/greece-conference-league-soccer/image_a62065be-4f3d-5e85-ae80-5cc718e0da0d.html)
+- **AEK and Rayo Vallecano Set for Europa Conference League Clash at OPAP Arena**: [Link](https://news.ssbcrack.com/aek-and-rayo-vallecano-set-for-europa-conference-league-clash-at-opap-arena/)
+
+
+### porto fc (N/A, Thu, 16 Apr 2026 14:00:00 -0700)
+
+- **16 April 1944: FC Porto beat Sporting 2-0 at Lima in the Taça**: [Link](https://onefootball.com/fr/news/16-april-1944-fc-porto-beat-sporting-2-0-at-lima-in-the-taca-42722295)
+- **Nottingham Forest 1-0 Porto (2-1 on aggregate): Forest reach first European semi-final in 42 years**: [Link](https://www.bbc.com/sport/football/live/cr71jke4xkxt)
+- **Super Eagles Trio Face Defining Europa League Survival Showdown**: [Link](https://streamlinefeed.co.ke/news/super-eagles-trio-face-defining-europa-league-survival-showdown)
+
+
+### ligue europa conférence (N/A, Thu, 16 Apr 2026 13:30:00 -0700)
+
+- **Fanoni Demands Courage from Fiorentina Players to Overturn Crystal Palace Deficit**: [Link](http://m.elbotola.com/en/article/2026-04-15-13-30-564.html)
+- **Europa Conference League: Ismaïla Sarr opens the scoring for Crystal Palace against Fiorentina**: [Link](https://foot-africa.com/en/news/europa-conference-league-ismaila-sarr-opens-the-scoring-for-crystal-palace-against-fiorentina-1169168/)
+- **Licensable picture: ACF Fiorentina v Crystal Palace FC - UEFA Conference League 2025/26 Quarter-Final Second Leg**: [Link](https://www.reutersconnect.com/item/acf-fiorentina-v-crystal-palace-fc-uefa-conference-league-202526-quarter-final-second-leg/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDQ3REk1Ng)
+
+
+### aston villa (N/A, Thu, 16 Apr 2026 13:30:00 -0700)
+
+- **Aston Villa vs Bologna: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwydgm13v8dt)
+- **Ollie Watkins reaches 100 goals for Aston Villa in historic milestone**: [Link](https://tribuna.com/en/news/2026-04-16-ollie-watkins-reaches-100-goals-for-aston-villa-in-historic-milestone/)
+- **🔴 Villa-Bologna 3-0 and Fiorentina-Palace 1-1 | Bologna embarrassed 😱 Gud 🧨**: [Link](https://onefootball.com/pt-br/noticias/villa-bologna-3-0-and-fiorentina-palace-1-1-bologna-embarrassed-gud-42722231)
+
+
+### conference league (N/A, Thu, 16 Apr 2026 13:30:00 -0700)
+
+- **Fanoni Demands Courage from Fiorentina Players to Overturn Crystal Palace Deficit**: [Link](http://m.elbotola.com/en/article/2026-04-15-13-30-564.html)
+- **Europa Conference League: Ismaïla Sarr opens the scoring for Crystal Palace against Fiorentina**: [Link](https://foot-africa.com/en/news/europa-conference-league-ismaila-sarr-opens-the-scoring-for-crystal-palace-against-fiorentina-1169168/)
+- **Licensable picture: ACF Fiorentina v Crystal Palace FC - UEFA Conference League 2025/26 Quarter-Final Second Leg**: [Link](https://www.reutersconnect.com/item/acf-fiorentina-v-crystal-palace-fc-uefa-conference-league-202526-quarter-final-second-leg/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDQ3REk1Ng)
+
+
 ### aston villa vs bologna (N/A, Thu, 16 Apr 2026 13:20:00 -0700)
 
 - **Aston Villa vs Bologna: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwydgm13v8dt)
