@@ -1,3 +1,29 @@
+### aek athènes – rayo (N/A, Thu, 16 Apr 2026 11:20:00 -0700)
+
+- **AEK Athènes vs Rayo Vallecano Pronostic : Aperçu et Analyse du Match | Europa Conference League 16-04-2026**: [Link](https://betmines.com/fr/analyse-match/aek-athenes-vs-rayo-vallecano-pronostic-apercu-et-analyse-du-match-europa-conference-league-16-04-2026)
+- **AEK : Le cri de guerre de Nikolic avant l’impossible face à Rayo Vallecano**: [Link](https://www.teamfootball.fr/actu/aek-le-cri-de-guerre-de-nikolic-avant-limpossible-face-a-rayo-vallecano/)
+- **Pronostic AEK Athenes vs Rayo Vallecano 16 Avril 2026**: [Link](https://dailysports.net/fr/predictions/aek-athenes-vs-rayo-vallecano-pronostic-h2h-et-compositions-probables-16042026/)
+
+
+### الجامعة الملكية المغربية لكرة القدم (N/A, Thu, 16 Apr 2026 11:20:00 -0700)
+
+- **"أكبر مشتل مواهب في العالم".. كيف سيتحكم المغرب في مستقبل نجومه؟**: [Link](https://www.aljazeera.net/sport/2026/4/14/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B7%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%AE%D8%B7%D8%A9)
+- **فتحي جمال يكشف عن مهام محمد وهبي**: [Link](https://www.radiomars.ma/%D9%81%D8%AA%D8%AD%D9%8A-%D8%AC%D9%85%D8%A7%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%87%D8%A7%D9%85-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A/)
+- **جمال: المغرب يصدر كفاءات تدريبية إلى الخارج.. وكشافة ينقبون عن المواهب**: [Link](https://www.hespress.com/%D8%AC%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B5%D8%AF%D8%B1-%D9%83%D9%81%D8%A7%D8%A1%D8%A7%D8%AA-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84-1730981.html)
+
+
+### bls international (N/A, Thu, 16 Apr 2026 11:20:00 -0700)
+
+
+
+
+### clément turpin (N/A, Thu, 16 Apr 2026 10:20:00 -0700)
+
+- **Ligue des Champions : le FC Barcelone annonce déposer une nouvelle plainte contre l’arbitrage !**: [Link](https://www.footmercato.net/a860490430556730244-ligue-des-champions-le-fc-barcelone-annonce-deposer-une-nouvelle-plainte-contre-larbitrage)
+- **Pourquoi le FC Barcelone, qui n'a plus atteint la finale de la Ligue des champions depuis 2015, n'y arrive plus en C1**: [Link](https://www.lequipe.fr/Football/Article/Pourquoi-le-fc-barcelone-qui-n-a-plus-atteint-la-finale-de-la-ligue-des-champions-depuis-2015-n-y-arrive-plus-en-c1/1668131)
+- **Raphinha menacé de suspension après ses déclarations post-Atlético de Madrid**: [Link](https://m.elbotola.com/fr/article/2026-04-15-10-36-68.html)
+
+
 ### لامين يامال (N/A, Thu, 16 Apr 2026 10:10:00 -0700)
 
 - **أسطورة فرنسا يفتح النار على يامال: مغرور.. ولا يفعل شيئًا داخل الملعب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%85%D8%BA%D8%B1%D9%88%D8%B1--%D9%88%D9%84%D8%A7-%D9%8A%D9%81%D8%B9%D9%84-%D8%B4%D9%8A%D9%8A%D9%8B%D9%94%D8%A7-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8/blt61f579b939a42e74)
