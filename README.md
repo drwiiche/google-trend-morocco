@@ -1,3 +1,52 @@
+### real betis (N/A, Thu, 16 Apr 2026 12:30:00 -0700)
+
+- **Betis - Sporting Braga, hoy en directo: última hora de los cuartos de la Europa League en vivo**: [Link](https://as.com/futbol/uefa/betis-sporting-braga-hoy-en-directo-ultima-hora-de-los-cuartos-de-la-europa-league-en-vivo-f202604-d/)
+- **Betis - Braga, en directo | Europa League hoy en vivo | Europa League hoy en vivo**: [Link](https://www.marca.com/futbol/europa-league/betis-braga/2026/04/16/01_0104_20260416_185_372-directo.html)
+- **«Vuestra gloria será eterna», el tifo del Betis para el partido ante el Braga**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/tifo-betisbraga-20260416193338-nts.html)
+
+
+### real betis vs braga (N/A, Thu, 16 Apr 2026 12:20:00 -0700)
+
+- **Isco Returns to Real Betis Squad for Europa League Clash Against Sporting Braga**: [Link](https://m.elbotola.com/en/article/2026-04-15-11-15-283.html)
+- **Europa League: Pellegrini refuses to talk about favorites (with video)**: [Link](https://www.plataformamedia.com/en/2026/04/16/ellegrini-betis-braga-europa-league-preview/)
+- **Preview: Real Betis vs Braga - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/europa-league/preview/betis-vs-braga-prediction-team-news-lineups_595712.html)
+
+
+### قضاء (N/A, Thu, 16 Apr 2026 12:20:00 -0700)
+
+- **القضاء يدين زوجا نشر صورا عارية لزوجته بالحبس والغرامة**: [Link](https://ar.hibapress.com/details-718070.html)
+- **اسبانيا تسحب معاش مهاجرة مغربية بعد ارتفاع دخلها وغيابها عن مقر إقامتها - تليكسبريس**: [Link](https://telexpresse.com/467762.html)
+- **بسبب "إقامة مطولة" بالمغرب.. القضاء الإسباني يلزم مسنة مغربية بإعادة 32 ألف يورو من معاشها**: [Link](https://www.akhbarona.com/society/424450.html)
+
+
+### nottm forest – porto (N/A, Thu, 16 Apr 2026 12:20:00 -0700)
+
+- **Super Eagles Trio Face Defining Europa League Survival Showdown**: [Link](https://streamlinefeed.co.ke/news/super-eagles-trio-face-defining-europa-league-survival-showdown)
+- **Nottingham Forest x Porto LIVE Score Updates in UEFA Europa League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/04/16/1257613-nottingham-x-porto-live-score-europa-league.html)
+- **Pereira coy on Anderson making Forest clash with Porto**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-pereira-coy-on-anderson-making-forest-clash-with-porto-70e4f9c2-b27f-4cae-be89-5663b1cae82f)
+
+
+### ligue europa (N/A, Thu, 16 Apr 2026 12:00:00 -0700)
+
+- **Celta Vigo 1-3 Fribourg, Ligue Europa : résumé du match (16/04/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2025-2026/celta-vigo-fribourg-live/689044)
+- **Voici les deux premières équipes qualifiées pour les demi-finales d'Europa et Conférence League**: [Link](https://www.lavenir.net/sports/football/2026/04/16/voici-les-deux-premieres-equipes-qualifiees-pour-les-demi-finales-deuropa-et-conference-league-WBUYD77VVBGDZMG7RRG4GKDPQU/)
+- **Ligue Europa : Le nom du premier qualifié en demi-finale est connu**: [Link](https://madeinfoot.ouest-france.fr/infos/article-ligue-europa-le-nom-du-premier-qualifie-en-demi-finale-est-connu-520051.html)
+
+
+### ريال بتيس ضد براغا (N/A, Thu, 16 Apr 2026 11:50:00 -0700)
+
+- **إيسكو يعود إلى قائمة ريال بيتيس لمواجهة سبورتينغ براغا في الدوري الأوروبي**: [Link](https://m.elbotola.com/article/2026-04-15-11-15-580.html)
+- **الزلزولي يواصل التألق ويسجل في مباراة ريال بيتيس وبراغا بالدوري الأوروبي (فيديو)**: [Link](https://www.hibasport.com/details-400454.html)
+- **بيلجريني يتمسك بفرص ريال بيتيس في العبور الأوروبي**: [Link](https://www.omandaily.om/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9/na/%D8%A8%D9%8A%D9%84%D8%AC%D8%B1%D9%8A%D9%86%D9%8A-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D9%81%D8%B1%D8%B5-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A8%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A)
+
+
+### essence (N/A, Thu, 16 Apr 2026 11:40:00 -0700)
+
+- **Prix des carburants : une transmission des cours mondiaux partielle pour le gasoil et supérieure pour l’essence (Conseil de la concurrence)**: [Link](https://medias24.com/2026/04/14/prix-des-carburants-une-transmission-des-cours-mondiaux-partielle-pour-le-gasoil-et-superieure-pour-lessence-conseil-de-la-concurrence-1659865/)
+- **Le diesel au même prix que l’essence: voici les prix affichés ce jeudi à Casablanca**: [Link](https://fr.le360.ma/societe/le-diesel-au-meme-prix-que-lessence-voici-les-prix-affiches-ce-jeudi-a-casablanca_YBJFZZ6WRZBKPHP7VHAZ465DY4/)
+- **Maroc : les importations d'hydrocarbures bondissent à 361.000 barils par jour en mars**: [Link](https://fr.hespress.com/469871-maroc-les-importations-dhydrocarbures-bondissent-a-361-000-barils-par-jour-en-mars.html)
+
+
 ### aek athènes – rayo (N/A, Thu, 16 Apr 2026 11:20:00 -0700)
 
 - **AEK Athènes vs Rayo Vallecano Pronostic : Aperçu et Analyse du Match | Europa Conference League 16-04-2026**: [Link](https://betmines.com/fr/analyse-match/aek-athenes-vs-rayo-vallecano-pronostic-apercu-et-analyse-du-match-europa-conference-league-16-04-2026)
