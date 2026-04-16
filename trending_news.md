@@ -1,3 +1,10 @@
+### marca (N/A, Wed, 15 Apr 2026 14:40:00 -0700)
+
+- **Barcelona’s Biggest Issue Under Hansi Flick Laid Bare After Champions League Exit**: [Link](https://www.si.com/soccer/barcelona-biggest-issue-under-hansi-flick-laid-bare-after-champions-league-exit)
+- **‘They’re always late’ - Samuel Umtiti ‘disappointed’ by Barcelona defence after Champions League exit**: [Link](https://www.barcablaugranes.com/barcelona-uefa-champions-league/117833/theys-always-late-samuel-umtiti-disappointed-by-barcelona-defence-after-champions-league-exit)
+- **Henry tells Barcelona what they must do to win the Champions League: "If not, we will be the same for 10 years"**: [Link](https://www.marca.com/en/football/barcelona/2026/04/15/69df5d1dca47413f3a8b45a6.html)
+
+
 ### كورة (N/A, Wed, 15 Apr 2026 12:50:00 -0700)
 
 - **بايرن ميونخ يسخر من ريال مدريد بسلاحه القديم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B3%D9%84%D8%A7%D8%AD%D9%87-%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D9%85/blt83fd113a0756c85c)
