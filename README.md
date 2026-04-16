@@ -1,3 +1,10 @@
+### grasset olivier nora (N/A, Thu, 16 Apr 2026 14:30:00 -0700)
+
+- **Grasset : après le limogeage d’Olivier Nora, la prestigieuse maison d’édition confrontée à l’hémorragie de ses auteurs**: [Link](https://www.lemonde.fr/economie/article/2026/04/16/grasset-apres-le-limogeage-d-olivier-nora-la-prestigieuse-maison-d-edition-confrontee-a-l-hemorragie-de-ses-auteurs_6680457_3234.html)
+- **Après le licenciement du PDG de Grasset, 115 auteurs vont quitter la maison d'édition**: [Link](https://www.france24.com/fr/culture/20260415-licenciement-inacceptable-pdg-grasset-olivier-nora-115-auteurs-vont-quitter-maison-edition-bollore-despentes-chalandon-levy-beigbeider-springora-lettre)
+- **Beigbeder, Despentes… Après l’éviction d’Olivier Nora, plus d’une centaine d’auteurs annoncent quitter Grasset**: [Link](https://www.huffingtonpost.fr/culture/article/beigbeder-despentes-bhl-une-centaine-d-auteurs-annoncent-quitter-grasset-apres-l-eviction-d-olivier-nora_262695.html)
+
+
 ### kaja kallas (N/A, Thu, 16 Apr 2026 14:10:00 -0700)
 
 - **Sudan Enters Fourth Year of War Amid World’s Most Severe Humanitarian Crisis**: [Link](https://www.nytimes.com/2026/04/15/world/africa/sudan-war-hunger-crisis.html)
