@@ -1,3 +1,73 @@
+### لامين يامال (N/A, Thu, 16 Apr 2026 10:10:00 -0700)
+
+- **أسطورة فرنسا يفتح النار على يامال: مغرور.. ولا يفعل شيئًا داخل الملعب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%85%D8%BA%D8%B1%D9%88%D8%B1--%D9%88%D9%84%D8%A7-%D9%8A%D9%81%D8%B9%D9%84-%D8%B4%D9%8A%D9%8A%D9%8B%D9%94%D8%A7-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8/blt61f579b939a42e74)
+- **نجم برشلونة السابق يسكت منتقدي لامين جمال**: [Link](https://www.aljazeera.net/sport/2026/4/14/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D8%B1%D8%A7%D9%83%D9%8A%D8%AA%D9%8A%D8%AA%D8%B4-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88)
+- **راكيتيتش لجماهير برشلونة: اتركوا يامال يستمتع و"يرقص"**: [Link](https://www.alarabiya.net/sport/2026/04/14/%D8%B1%D8%A7%D9%83%D9%8A%D8%AA%D9%8A%D8%AA%D8%B4-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D8%AA%D8%B1%D9%83%D9%88%D8%A7-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D9%85%D8%AA%D8%B9-%D9%88%D9%8A%D8%B1%D9%82%D8%B5)
+
+
+### لجنة (N/A, Thu, 16 Apr 2026 10:00:00 -0700)
+
+- **مباحثات مصرية أمريكية تتناول مفاوضات إيران وتطورات غزة ولبنان**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%85%D8%A8%D8%A7%D8%AD%D8%AB%D8%A7%D8%AA-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%AA%D9%86%D8%A7%D9%88%D9%84-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%BA%D8%B2%D8%A9-%D9%88%D9%84%D8%A8%D9%86%D8%A7%D9%86/3905858)
+- **مصر: ما الملفات التي طرحها عبد العاطي في أمريكا؟**: [Link](https://www.alquds.co.uk/%D9%85%D8%B5%D8%B1-%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%84%D9%81%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%8A-%D8%B7%D8%B1%D8%AD%D9%87%D8%A7-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B7%D9%8A-%D9%81%D9%8A/)
+- **وزير الخارجية المصري في واشنطن لمناقشة قضايا إقليمية**: [Link](https://arabi21.com/story/1751910/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%81%D9%8A-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D9%84%D9%85%D9%86%D8%A7%D9%82%D8%B4%D8%A9-%D9%82%D8%B6%D8%A7%D9%8A%D8%A7-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9)
+
+
+### taxi (N/A, Thu, 16 Apr 2026 09:50:00 -0700)
+
+- **WATCH: "Quantum explosion victims were mourners" - Local Government and Public Works Minister Garwe**: [Link](https://www.heraldonline.co.zw/watch-quantum-explosion-victims-were-mourners-local-government-and-public-works-minister-garwe/)
+- **At least 18 dead after commuter omnibus catches fire, explodes along Bulawayo–Beitbridge highway**: [Link](https://www.newzimbabwe.com/at-least-18-dead-after-commuter-omnibus-catches-fire-explodes-along-bulawayo-beitbridge-highway/)
+- **Police in Zimbabwe say about 18 people were killed when a minibus taxi caught fire**: [Link](https://www.wkyc.com/article/syndication/associatedpress/police-in-zimbabwe-say-about-18-people-were-killed-when-a-minibus-taxi-caught-fire/616-84e7e38d-de56-41a8-b29d-813f36fc9dd9)
+
+
+### al sadd – vissel kobe (N/A, Thu, 16 Apr 2026 09:50:00 -0700)
+
+- **Al Sadd training ahead of Vissel Kobe in ACL Elite quarter-final**: [Link](https://www.themercury.com.au/sport/al-sadd-training-ahead-of-vissel-kobe-in-acl-elite-quarterfinal/video/e2e182e04b1a06c9834eebdaf4741214)
+- **Kobe manager Skibbe anticipating tough test in AFC Champions League quarter-finals**: [Link](https://www.flashscore.com/news/soccer-afc-champions-league-kobe-manager-skibbe-anticipating-tough-test-in-afc-champions-league-quarter-finals/YDAjz9Ph/)
+- **Al-Sadd Vs Vissel Kobe LIVE Streaming, AFC Champions League Elite Quarter-Final: When, Where To Watch Tonight’s Match?**: [Link](https://www.outlookindia.com/sports/football/al-sadd-vs-vissel-kobe-live-streaming-afc-champions-league-elite-2025-26-quarter-final-jeddah)
+
+
+### هانزي فليك (N/A, Thu, 16 Apr 2026 09:40:00 -0700)
+
+- **بعد الإقصاء من الأبطال.. برشلونة يتخذ قرارًا حاسمًا بشأن مصير فليك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D9%95%D9%82%D8%B5%D8%A7%D8%A1-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%AE%D8%B0-%D9%82%D8%B1%D8%A7%D8%B1%D9%8B%D8%A7-%D8%AD%D8%A7%D8%B3%D9%85%D9%8B%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D9%85%D8%B5%D9%8A%D8%B1-%D9%81%D9%84%D9%8A%D9%83/blta0d370500b488720)
+- **برشلونة يقترب من تمديد عقد هانز فليك حتى 2028 بعد موسمه الاستثنائي**: [Link](https://www.korabia.net/news/38347/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D9%85%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF-%D9%87%D8%A7%D9%86%D8%B2-%D9%81%D9%84%D9%8A%D9%83-%D8%AD%D8%AA%D9%89-2028-%D8%A8%D8%B9%D8%AF-%D9%85%D9%88%D8%B3%D9%85%D9%87-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9)
+- **برشلونة يتوصل لاتفاق شفهي مع فليك بشأن تجديد عقده لعام إضافي**: [Link](https://www.hesport.com/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D9%88%D8%B5%D9%84-%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B4%D9%81%D9%87%D9%8A-%D9%85%D8%B9-%D9%81%D9%84%D9%8A%D9%83-%D8%A8%D8%B4%D8%A3%D9%86-435193.html)
+
+
+### canicule (N/A, Thu, 16 Apr 2026 09:20:00 -0700)
+
+- **Après la canicule de 2025, les premiers acomptes des calamités agricoles versés aux conchyliculteurs de l’étang de Thau**: [Link](https://lemarin.ouest-france.fr/peche/apres-la-canicule-de-2025-les-premiers-acomptes-des-calamites-agricoles-verses-aux-conchyliculteurs-de-letang-de-thau-63998f90-3993-11f1-8542-71e3dd27f2c6)
+- **Malaïgue de juillet 2025 dans l’étang de Thau : 2,94 millions d’euros d’indemnités pour les conchyliculteurs**: [Link](https://www.midilibre.fr/2026/04/14/malaigue-de-juillet-2025-dans-letang-de-thau-294-millions-deuros-dindemnites-pour-les-conchyliculteurs-13325300.php)
+- **Cyclisme : après l’annulation pour canicule, le Tour en Perche Émeraude revient à sa date historique**: [Link](https://actu.fr/pays-de-la-loire/saint-martin-des-monts_72302/cyclisme-apres-lannulation-pour-canicule-le-tour-en-perche-emeraude-revient-a-sa-date-historique_64150640.html)
+
+
+### celta vigo – fribourg (N/A, Thu, 16 Apr 2026 09:00:00 -0700)
+
+- **Preview: Celta Vigo vs Freiburg - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/celta-vigo/europa-league/preview/celta-vigo-vs-freiburg-prediction-team-news-lineups_595692.html)
+- **Celta Vigo vs. Freiburg Europa League prediction, start time, how to watch**: [Link](https://www.usatoday.com/story/sports/soccer/2026/04/16/celta-vigo-freiburg-prediction-odds-where-to-watch-europa-league/89634055007/)
+- **Germany Europa League Soccer**: [Link](https://www.chronicle-tribune.com/sports/wire/germany-europa-league-soccer/image_1523275d-e8be-5440-ad7d-fcd69122b50b.html)
+
+
+### منتخب المغرب لكرة القدم (N/A, Thu, 16 Apr 2026 09:00:00 -0700)
+
+- **المنتخب الوطني يواجه منتخب النرويج وديا**: [Link](https://frmf.ma/articles/lequipe-nationale-a-affrontera-la-norvege-en-match-amical)
+- **حكيمي ضد هالاند.. المغرب يستعد للمونديال بودية أمام النرويج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B6%D8%AF-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A8%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC/blt9a7021a5c626241d)
+- **المغرب والنرويج.. مواجهة تاريخية واحدة في مونديال 1998 انتهت بالتعادل (2-2)**: [Link](https://m.elbotola.com/article/2026-04-16-10-54-738.html)
+
+
+### نايف أكرد (N/A, Thu, 16 Apr 2026 09:00:00 -0700)
+
+- **شكوك تلف مشاركة أكرد في المونديال**: [Link](https://www.hespress.com/%D8%B4%D9%83%D9%88%D9%83-%D8%AA%D9%84%D9%81-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A3%D9%83%D8%B1%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-1732033.html)
+- **بعد ظهورهم في شريط فيديو يتبادلون العنف.. أمن البيضاء يحيل سبعة أشخاص على النيابة العامة**: [Link](https://ar.telquel.ma/%D8%AE%D8%A7%D8%B5-%D8%AA%D9%8A%D9%84%D9%83%D9%8A%D9%84-%D8%B9%D8%B1%D8%A8%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D8%B9%D8%B1%D8%B6-%D8%A3%D9%83%D8%B1%D8%AF-%D9%84/)
+- **تقارير فرنسية/ نهاية موسم نايف أكرد رفقة مارسيليا بسبب كسر على مستوى عظم العانة**: [Link](https://m.elbotola.com/article/2026-04-16-11-06-522.html)
+
+
+### nayef aguerd (N/A, Thu, 16 Apr 2026 08:30:00 -0700)
+
+- **Football : Fin de saison pour Nayef Aguerd à l’OM**: [Link](https://mobile.telquel.ma/instant-t/2026/04/16/football-fin-de-saison-pour-nayef-aguerd-a-lom_1984741/)
+- **Mondial 2026: Nayef Aguerd suspendu à une condition pour intégrer la liste des Lions de l’Atlas**: [Link](https://sport.le360.ma/football/lions-atlas/mondial-2026-nayef-aguerd-suspendu-a-une-condition-pour-integrer-la-liste-des-lions-de-latlas_Q4WGG53EXNDH7KG5X5MX42H53M/)
+- **Mondial 2026 : Le Maroc devra-t-il faire sans Aguerd aux États-Unis ?**: [Link](https://lematin.ma/sports/mondial-2026-le-maroc-devra-t-il-faire-sans-aguerd-aux-etats-unis/340751)
+
+
 ### starlink (N/A, Thu, 16 Apr 2026 08:10:00 -0700)
 
 - **Exclusive: Starlink outage hit drone tests, exposing Pentagon’s growing reliance on SpaceX**: [Link](https://www.reuters.com/business/media-telecom/starlink-outage-hit-drone-tests-exposing-pentagons-growing-reliance-spacex-2026-04-16/)
