@@ -1,3 +1,10 @@
+### starlink (N/A, Thu, 16 Apr 2026 08:10:00 -0700)
+
+- **Exclusive: Starlink outage hit drone tests, exposing Pentagon’s growing reliance on SpaceX**: [Link](https://www.reuters.com/business/media-telecom/starlink-outage-hit-drone-tests-exposing-pentagons-growing-reliance-spacex-2026-04-16/)
+- **Starlink's Struggle: U.S. Navy's Reliance on Elon Musk's Satellite Network**: [Link](https://www.devdiscourse.com/article/technology/3876127-starlinks-struggle-us-navys-reliance-on-elon-musks-satellite-network)
+- **Starlink Outages Disrupt Navy's Drone Tests, Exposing Pentagon's Reliance on SpaceX**: [Link](https://nationaltoday.com/us/tx/austin/news/2026/04/16/starlink-outages-disrupt-navys-drone-tests-exposing-pentagons-reliance-on-spacex/)
+
+
 ### كأس الأمم الإفريقية (N/A, Thu, 16 Apr 2026 06:20:00 -0700)
 
 - **المنتخب الوطني لاقل من 17 سنة في المجموعة الاولى في نهائيات كاس افريقيا للامم**: [Link](https://frmf.ma/articles/can-u17-maroc-2026-tirage-au-sort-le-maroc-avec-la-tunisie-legypte-et-lethiopie)
