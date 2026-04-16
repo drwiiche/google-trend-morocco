@@ -1,3 +1,10 @@
+### champions league (N/A, Wed, 15 Apr 2026 14:00:00 -0700)
+
+- **Atletico Madrid survive Barcelona scare to reach Champions League semis**: [Link](https://www.bbc.com/sport/football/live/cly6xz3ex6lt)
+- **Simeone: "It's Not Easy to Eliminate Barça 3 Times from Champions League Quarter-finals... Messi's Barcelona and Yamal's Barcelona"**: [Link](http://m.elbotola.com/en/article/2026-04-15-14-37-861.html)
+- **Atlético hold off Barcelona comeback after Lookman strike and García red**: [Link](https://www.theguardian.com/football/2026/apr/14/atletico-madrid-barcelona-champions-league-match-report)
+
+
 ### marca (N/A, Wed, 15 Apr 2026 14:40:00 -0700)
 
 - **Barcelona’s Biggest Issue Under Hansi Flick Laid Bare After Champions League Exit**: [Link](https://www.si.com/soccer/barcelona-biggest-issue-under-hansi-flick-laid-bare-after-champions-league-exit)
