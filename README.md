@@ -1,3 +1,10 @@
+### strasbourg fc (N/A, Thu, 16 Apr 2026 14:10:00 -0700)
+
+- **Strasbourg vs Mainz 05: UEFA Conference League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cy71m4gypemt)
+- **APTOPIX France Conference League Soccer**: [Link](https://www.hjnews.com/sports/nation/aptopix-france-conference-league-soccer/image_db137a0a-fd96-507d-a309-03cdd3a9d77f.html)
+- **Strasbourg, Crystal Palace and Rayo Vallecano make historic qualification for the Conference League semi-finals**: [Link](https://www.voiceofemirates.com/en/sport/2026/04/17/strasbourg-crystal-palace-and-rayo-vallecano-make-historic-qualification-for-the-conference-league-semi-finals/)
+
+
 ### hibapress (N/A, Thu, 16 Apr 2026 22:40:00 -0700)
 
 - **الأمير هشام العلوي يصاب بكسر في أحد أضلعه بعد سقوطه خلال مسابقة للفروسية (فيديو)**: [Link](https://ar.hibapress.com/details-718267.html)
