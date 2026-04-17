@@ -1,3 +1,17 @@
+### فاتح ذو القعدة 2026 (N/A, Fri, 17 Apr 2026 13:20:00 -0700)
+
+- **نتيجة استطلاع هلال ذو القعدة 1447: تفاصيل الرؤية في السعودية والدول العربية**: [Link](https://www.mojaznews.com/dhu-al-qidah-1447-crescent-sighting-ksa-arab-countries/)
+- **فاتح شهر ذي القعدة 1447 هـ بعد غد الأحد (وزارة الأوقاف والشؤون الإسلامية)**: [Link](https://www.mapexpress.ma/ar/actualite/%D9%81%D8%A7%D8%AA%D8%AD-%D8%B4%D9%87%D8%B1-%D8%B0%D9%8A-%D8%A7%D9%84%D9%82%D8%B9%D8%AF%D8%A9-1447-%D9%87%D9%80-%D8%A8%D8%B9%D8%AF-%D8%BA%D8%AF-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D9%88%D8%B2%D8%A7%D8%B1/%D9%85%D8%AC%D8%AA%D9%85%D8%B9-%D9%88%D8%AC%D9%87%D8%A7%D8%AA/)
+- **فاتح ذو القعدة 2026 في المغرب اليوم الجمعة 17-4-2026 وموعد استطلاع الهلال**: [Link](https://www.kapsola.com.sa/news/2026/04/17/61998/%D9%81%D8%A7%D8%AA%D8%AD-%D8%B0%D9%88-%D8%A7%D9%84%D9%82%D8%B9%D8%AF%D8%A9-2026-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-17/)
+
+
+### habous (N/A, Fri, 17 Apr 2026 13:20:00 -0700)
+
+- **Le ministère des Habous et des Affaires islamiques lance l'application "Le Moushaf Mohammadi numérique"**: [Link](https://snrtnews.com/fr/article/le-ministere-des-habous-et-des-affaires-islamiques-lance-lapplication-le-moushaf-mohammadi)
+- **Le ministère des Habous lance une application coranique complète**: [Link](https://www.lesinfos.ma/article/149641853-Skoda%20r%C3%A9invente%20la%20sonnette%20de%20v%C3%A9lo%20pour%20contrer%20les%20casques%20antibruit)
+- **Lancement d'une application comme favoriser l'accés à l'Islam**: [Link](https://www.lebrief.ma/le-ministere-des-habous-lance-lapplication-moushaf-mohammadi-100148292/)
+
+
 ### فوزي لقجع (N/A, Fri, 17 Apr 2026 13:00:00 -0700)
 
 - **بنسعيد: لقجع رجل دولة ناجح وجميع المغاربة يدعمون بقائه على رأس تدبير الكرة المغربية**: [Link](https://rue20.com/994181.html)
