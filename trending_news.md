@@ -1,3 +1,52 @@
+### inter vs cagliari (N/A, Fri, 17 Apr 2026 12:20:00 -0700)
+
+- **Inter Milan vs Cagliari: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cp8dr6rn717t)
+- **🔴 Inter-Cagliari 0-0 | Cagliari dangerous on the break, Dimarco chance**: [Link](https://onefootball.com/en/news/inter-cagliari-0-0-cagliari-dangerous-on-the-break-dimarco-chance-42726912)
+- **Cagliari vs Internazionale Picks and Predictions for April 17, 2026**: [Link](https://www.scoresandstats.com/previews/soccer/cagliari-vs-internazionale/)
+
+
+### resultat quinte (N/A, Fri, 17 Apr 2026 11:50:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour jeudi 16 avril - Prix de la Fontaine Carpeaux**: [Link](https://www.lalsace.fr/actualite/2026/04/15/les-pronostics-de-l-alsace-pour-jeudi-16-avril-prix-de-la-fontaine-carpeaux)
+- **Equidia met le feu au Quinté+ du jeudi 16 avril à ParisLongchamp**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-jeudi-16-avril-a-parislongchamp)
+- **Quinté du jeudi 16 avril 2026 à Longchamp : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-jeudi-16-avril-2026-a-longchamp-les-pronostics-7900624001)
+
+
+### ماتشيدا زيلفيا ضد الاتحاد (N/A, Fri, 17 Apr 2026 11:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الاتحاد وماتشيدا زيلفيا في ربع نهائي دوري أبطال آسيا النخبة 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D9%85%D8%A7%D8%AA%D8%B4%D9%8A%D8%AF%D8%A7-%D8%B2%D9%8A%D9%84%D9%81%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5a6d3b0a9aa736cb)
+- **يوسف النصيري يقود تشكيل الاتحاد لمواجهة ماتشيدا زيلفيا الياباني في ربع نهائي دوري أبطال آسيا للنخبة**: [Link](https://www.cairo24.com/2407971)
+- **تشكيلة الاتحاد اليوم أمام ماتشيدا زيليفا.. العميد في اختبار صعب - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/697384023235458-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D8%AA%D8%B4%D9%8A%D8%AF%D8%A7-%D8%B2%D9%8A%D9%84%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D8%B9%D9%85%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8/)
+
+
+### كيليان مبابي (N/A, Fri, 17 Apr 2026 11:40:00 -0700)
+
+- **مبابي بعد السقوط الأوروبي: الفشل ليس خيارا.. وهذا وعدي لجماهير الريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A7%D9%84%D9%81%D8%B4%D9%84-%D9%84%D9%8A%D8%B3-%D8%AE%D9%8A%D8%A7%D8%B1%D8%A7--%D9%88%D9%87%D8%B0%D8%A7-%D9%88%D8%B9%D8%AF%D9%8A-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/bltf1c212d875bf196e)
+- **كيليان مبابي «كاعي»**: [Link](https://www.radiomars.ma/%D9%83%D9%8A%D9%84%D9%8A%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%83%D8%A7%D8%B9%D9%8A/)
+- **مبابي يعلّق على إقصاء ريال مدريد… وكامافينغا يعتذر للجماهير**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%83%D8%A7%D9%85%D8%A7%D9%81%D9%8A%D9%86%D8%BA%D8%A7-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1/18763)
+
+
+### محمد وهبي (N/A, Fri, 17 Apr 2026 11:30:00 -0700)
+
+- **المنتخب الوطني يواجه منتخب النرويج وديا**: [Link](https://frmf.ma/articles/lequipe-nationale-a-affrontera-la-norvege-en-match-amical)
+- **حكيمي ضد هالاند.. المغرب يستعد للمونديال بودية أمام النرويج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%B6%D8%AF-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A8%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC/blt9a7021a5c626241d)
+- **مواجهة ثانية تطرق باب «أسود الأطلس» قبل كأس العالم**: [Link](https://www.radiomars.ma/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B7%D8%B1%D9%82-%D8%A8%D8%A7%D8%A8-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%82%D8%A8/)
+
+
+### lens – toulouse (N/A, Fri, 17 Apr 2026 11:10:00 -0700)
+
+- **RC Lens – Toulouse FC : les compositions probables, chaîne TV et heure**: [Link](https://www.befoot.net/lens-toulouse-compos-probables-chaine-tv-heure/)
+- **Lens vs Toulouse Live Stream: How to Watch French Ligue 1**: [Link](https://www.fubo.tv/news/french-ligue-1/lens-vs-toulouse-live-stream-how-to-watch-french-ligue-1/)
+- **Lens predicted XI v Toulouse: Samson Baidoo and Ruben Aguilar return**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-toulouse-074500272.html)
+
+
+### zamalek (N/A, Fri, 17 Apr 2026 11:10:00 -0700)
+
+- **Zamalek reach third TotalEnergies CAF Confederation Cup final**: [Link](https://www.cafonline.com/caf-confederation-cup/news/zamalek-reach-third-totalenergies-caf-confederation-cup-final/)
+- **Post-Match Stats: Zamalek extend historic clean-sheet run as Belouizdad falter**: [Link](https://www.cafonline.com/caf-confederation-cup/news/post-match-stats-zamalek-extend-historic-clean-sheet-run-as-belouizdad-falter/)
+- **Motamed Gamal: The Players Gave Their Best Effort, and the Return Match Will Be Difficult**: [Link](https://www.ysscores.com/en/news/13943090/Motamed-Gamal:-The-Players-Gave-Their-Best-Effort,-and-the-Return-Match-Will-Be-Difficult)
+
+
 ### inter – cagliari (N/A, Fri, 17 Apr 2026 11:00:00 -0700)
 
 - **Inter-Cagliari: la telecronaca in diretta anche su Radiolina**: [Link](https://www.unionesarda.it/multimedia/inter-cagliari-la-telecronaca-in-diretta-anche-su-radiolina-gxu43b5p)
