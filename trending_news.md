@@ -1,3 +1,17 @@
+### inter – cagliari (N/A, Fri, 17 Apr 2026 11:00:00 -0700)
+
+- **Inter-Cagliari: la telecronaca in diretta anche su Radiolina**: [Link](https://www.unionesarda.it/multimedia/inter-cagliari-la-telecronaca-in-diretta-anche-su-radiolina-gxu43b5p)
+- **Serie A: Inter-Cagliari DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/17/inter-cagliari-diretta-e-foto_ca400685-4018-4296-8703-4bf85e1bdb12.html)
+- **Dove vedere Inter-Cagliari, il tennis e tutto lo sport in tv del 17 aprile 2026**: [Link](https://www.gazzetta.it/tv/storie/17-04-2026/dove-vedere-inter-cagliari-cobolli-e-sonego-sport-in-tv-17-aprile/calcio.shtml)
+
+
+### sassuolo – côme (N/A, Fri, 17 Apr 2026 09:40:00 -0700)
+
+- **Preview: Sassuolo vs Como - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/sassuolo/preview/sassuolo-vs-como-prediction-team-news-lineups_595738.html)
+- **🔴 Sassuolo 2-0 Como | Volpato chips in, Nzola: collapse in 2'**: [Link](https://onefootball.com/fr/news/sassuolo-2-0-como-volpato-chips-in-nzola-collapse-in-2-42726397)
+- **Where to Watch Sassuolo vs. Como 1907: TV Channel, Start Time and Live Stream**: [Link](https://www.bleachernation.com/how-to-watch/2026/04/16/where-to-watch-sassuolo-vs-como-1907-tv-channel-start-time-and-live-stream/)
+
+
 ### équipe du maroc de football (N/A, Fri, 17 Apr 2026 09:30:00 -0700)
 
 - **CAN 2025: "Le monde entier sait très bien que la coupe a été gagnée par le Sénégal", Pape Gueye ne veut pas rendre sa médaille au Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-monde-entier-sait-tres-bien-que-la-coupe-a-ete-gagnee-par-le-senegal-pape-gueye-ne-veut-pas-rendre-sa-medaille-au-maroc_AV-202604160891.html)
