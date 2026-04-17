@@ -1,3 +1,10 @@
+### équipe du mali de football (N/A, Fri, 17 Apr 2026 09:10:00 -0700)
+
+- **Match amical: composition des Lionnes de l'Atlas face au Mali**: [Link](https://frmf.ma/fr/articles/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%84%D9%8A)
+- **Maroc féminin – Mali : chaîne et heure du match**: [Link](https://www.afrik-foot.com/maroc-feminin-mali-chaine-et-heure-du-match)
+- **CAN féminine : les Lionnes de l’Atlas affichent sérénité et ambition avant d’affronter le Mali**: [Link](https://fr.hespress.com/470045-can-feminine-les-lionnes-de-latlas-affichent-serenite-et-ambition-avant-daffronter-le-mali.html)
+
+
 ### prix du baril (N/A, Fri, 17 Apr 2026 07:00:00 -0700)
 
 - **30 millions de dollars par heure : la guerre en Iran rapporte gros aux grandes compagnies pétrolières**: [Link](https://www.lexpress.fr/economie/30-millions-de-dollars-par-heure-la-guerre-en-iran-rapporte-gros-aux-grandes-compagnies-petrolieres-ID5FSGSMURDJTOHEI7CTPX2LG4/)
