@@ -1,3 +1,24 @@
+### équipe du maroc de football (N/A, Fri, 17 Apr 2026 09:30:00 -0700)
+
+- **CAN 2025: "Le monde entier sait très bien que la coupe a été gagnée par le Sénégal", Pape Gueye ne veut pas rendre sa médaille au Maroc**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-le-monde-entier-sait-tres-bien-que-la-coupe-a-ete-gagnee-par-le-senegal-pape-gueye-ne-veut-pas-rendre-sa-medaille-au-maroc_AV-202604160891.html)
+- **Sénégal : la nouvelle sortie de Pape Gueye sur le Maroc**: [Link](https://www.footmercato.net/a1405718009531352458-senegal-la-nouvelle-provocation-de-pape-gueye-envers-le-maroc)
+- **CAN 2025 : le buteur de la finale relance la polémique et revendique le titre pour le Sénégal**: [Link](https://fr.hespress.com/470032-can-2025-le-buteur-de-la-finale-relance-la-polemique-et-revendique-le-titre-pour-le-senegal.html)
+
+
+### vague de chaleur maroc (N/A, Fri, 17 Apr 2026 08:30:00 -0700)
+
+- **Vague de chaleur jusqu’à 40°C attendus dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/vague-de-chaleur-jusqua-40c-attendus-dans-plusieurs-regions-du-maroc/340664)
+- **Le temps qu'il fera ce vendredi 17 avril 2026**: [Link](https://fr.hespress.com/469996-le-temps-quil-fera-ce-vendredi-17-avril-2026.html)
+- **Météo. Températures en hausse ce vendredi 17 avril, avec une pluie légère attendue sur les montagnes**: [Link](https://fr.le360.ma/societe/meteo-temperatures-en-hausse-ce-vendredi-17-avril-avec-une-pluie-legere-attendue-sur-les-montagnes_UTKIGL66OVDCLCPDU3ES7FMOVU/)
+
+
+### صفاء حبيركو (N/A, Fri, 17 Apr 2026 08:30:00 -0700)
+
+- **التمثيل التلفزيوني يعيد صفاء حبيركو**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%B5%D9%81%D8%A7%D8%A1-%D8%AD%D8%A8%D9%8A%D8%B1%D9%83%D9%88-1732036.html)
+- **"أكتاروس" يعود بعمل درامي جديد ينافس في الساحة الفنية المغربية**: [Link](https://lallafatema.ma/%D8%A3%D9%83%D8%AA%D8%A7%D8%B1%D9%88%D8%B3-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%B9%D9%85%D9%84-%D8%AF%D8%B1%D8%A7%D9%85%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D9%86%D8%A7%D9%81%D8%B3-%D9%81%D9%8A/)
+- **بعد غياب..صفاء حبيركو تعود بعمل جديد**: [Link](https://www.belpresse.com/lastnews/625973.html)
+
+
 ### équipe du mali de football (N/A, Fri, 17 Apr 2026 09:10:00 -0700)
 
 - **Match amical: composition des Lionnes de l'Atlas face au Mali**: [Link](https://frmf.ma/fr/articles/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%84%D9%8A)
