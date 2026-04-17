@@ -1,3 +1,10 @@
+### nba (N/A, Thu, 16 Apr 2026 18:20:00 -0700)
+
+- **"Anthony and I appreciate the PA appealing his case. …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/04/16/anthony-and-i-appreciate-the-pa-appealing-his-case/89648206007/)
+- **Lakers star Luka Dončić finds out fate for NBA awards**: [Link](https://sports.yahoo.com/articles/lakers-star-luka-don-finds-154423198.html)
+- **Anthony Edwards News: 65-Game Rule Controversy, Playoff Rivalry vs Nuggets**: [Link](https://www.sportpreferred.com/nba/anthony-edwards-news-65-game-rule-controversy-playoff-rivalry-vs-nugget/14509)
+
+
 ### grasset olivier nora (N/A, Thu, 16 Apr 2026 14:30:00 -0700)
 
 - **Grasset : après le limogeage d’Olivier Nora, la prestigieuse maison d’édition confrontée à l’hémorragie de ses auteurs**: [Link](https://www.lemonde.fr/economie/article/2026/04/16/grasset-apres-le-limogeage-d-olivier-nora-la-prestigieuse-maison-d-edition-confrontee-a-l-hemorragie-de-ses-auteurs_6680457_3234.html)
