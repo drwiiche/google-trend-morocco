@@ -1,3 +1,24 @@
+### nadia fares (N/A, Fri, 17 Apr 2026 15:20:00 -0700)
+
+- **Noyade de Nadia Farès : l’enquête s’oriente vers la piste médicale**: [Link](https://www.leparisien.fr/faits-divers/noyade-de-nadia-fares-lenquete-soriente-vers-la-piste-medicale-16-04-2026-PKZXKJOR7FFZBEQK2SRLRC5H3U.php)
+- **L’actrice Nadia Farès, héroïne des Rivières pourpres, dans un état grave après un accident dans une piscine**: [Link](https://www.lefigaro.fr/cinema/l-actrice-nadia-fares-heroine-des-rivieres-pourpres-dans-un-etat-grave-apres-un-accident-dans-une-piscine-20260414)
+- **"Un comportement étrange" : que dévoilent les premiers éléments de l’enquête après la noyade de Nadia Farès**: [Link](https://www.femmeactuelle.fr/actu/news-actu/un-comportement-etrange-que-devoilent-les-premiers-elements-de-lenquete-apres-la-noyade-de-nadia-fares-2206584)
+
+
+### الحوار الاجتماعي 2026 (N/A, Fri, 17 Apr 2026 15:20:00 -0700)
+
+- **الحكومة تستعرض حصيلة الحوار الاجتماعي بزيادات أجرية وإصلاحات ضريبية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D8%B3%D8%AA%D8%B9%D8%B1%D8%B6-%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%BA%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7-1732747.html)
+- **زيادات في الأجور وتعديلات ضريبية.. الحكومة تكشف نتائج الحوار الاجتماعي**: [Link](https://ar.hibapress.com/details-718405.html)
+- **عيد الشغل… نقابة »CDT » تحذر من تفاقم الهشاشة واتساع الفوارق الاجتماعية وارتفاع الأسعار – اليوم 24**: [Link](https://alyaoum24.com/2020145.html)
+
+
+### باكستان (N/A, Fri, 17 Apr 2026 14:00:00 -0700)
+
+- **في باكستان 21 ساعة كادت تهزم صراع 47 عاما**: [Link](https://www.aljazeera.net/opinions/2026/4/17/%D8%A7%D9%84%D8%B7%D8%A8%D8%AE%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D8%B1-%D9%87%D8%A7%D8%AF%D8%A6%D8%A9)
+- **معاريف: ستغدو الدولة الأقوى.. هل تمنح مفاوضات إسلام آباد "ختم التسويغ" لإيران؟**: [Link](https://www.alquds.co.uk/%D9%85%D8%B9%D8%A7%D8%B1%D9%8A%D9%81-%D8%B3%D8%AA%D8%BA%D8%AF%D9%88-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%82%D9%88%D9%89-%D9%87%D9%84-%D8%AA%D9%85%D9%86%D8%AD-%D9%85%D9%81/)
+- **وزير الداخلية الإيراني يبحث مع نظيره الباكستاني العلاقات الثنائية**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%85%D8%B9-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9/3908203)
+
+
 ### ألفارو أربيلوا (N/A, Fri, 17 Apr 2026 14:10:00 -0700)
 
 - **شرط غريب.. ريال مدريد ينتظر إشارة كلوب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%B1%D8%B7-%D8%BA%D8%B1%D9%8A%D8%A8--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%95%D8%B4%D8%A7%D8%B1%D8%A9-%D9%83%D9%84%D9%88%D8%A8/blt20fcd908b8bcf294)
