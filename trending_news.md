@@ -1,3 +1,10 @@
+### bls (N/A, Fri, 17 Apr 2026 04:30:00 -0700)
+
+- **The 'Job Seeker Recession' Is Here As Hiring Hits Recession-Era Lows**: [Link](https://www.businessinsider.com/job-seeker-recession-hiring-labor-market-unemployed-americans-federal-government-2026-4)
+- **The Economy Is Growing, Jobs Aren’t. Why That Might Be OK.**: [Link](https://www.wsj.com/economy/jobs/the-economy-is-growing-jobs-arent-why-that-might-be-ok-5c50a535)
+- **What Goes Up, Must Come Down: How the Labor Market Is Emerging From the Long Shadow of the Pandemic**: [Link](https://www.hiringlab.org/2026/04/13/how-the-labor-market-is-emerging-from-the-long-shadow-of-the-pandemic/)
+
+
 ### نقل (N/A, Fri, 17 Apr 2026 03:00:00 -0700)
 
 - **قيوح يناقش ربط نواكشوط بالداخلة**: [Link](https://www.hespress.com/%D9%82%D9%8A%D9%88%D8%AD-%D9%8A%D9%86%D8%A7%D9%82%D8%B4-%D8%B1%D8%A8%D8%B7-%D9%86%D9%88%D8%A7%D9%83%D8%B4%D9%88%D8%B7-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D8%A9-1732247.html)
