@@ -1,3 +1,24 @@
+### فوزي لقجع (N/A, Fri, 17 Apr 2026 13:00:00 -0700)
+
+- **بنسعيد: لقجع رجل دولة ناجح وجميع المغاربة يدعمون بقائه على رأس تدبير الكرة المغربية**: [Link](https://rue20.com/994181.html)
+- **مهدي بنسعيد ينهي الجدل ويكشف موقفه من خلافة لقجع في رئاسة الجامعة**: [Link](https://www.hibasport.com/details-400540.html)
+- **بنسعيد ينتقل من طموح رئاسة جامعة الكرة إلى الإشادة بلقجع بعد التوبيخ**: [Link](https://aabbir.com/%D8%A8%D9%86%D8%B3%D8%B9%D9%8A%D8%AF-%D9%8A%D9%86%D8%AA%D9%82%D9%84-%D9%85%D9%86-%D8%B7%D9%85%D9%88%D8%AD-%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%83%D8%B1%D8%A9/)
+
+
+### consulat (N/A, Fri, 17 Apr 2026 13:00:00 -0700)
+
+- **Régularisation des migrants en Espagne : calendrier, conditions et documents requis**: [Link](https://medias24.com/2026/04/15/regularisation-des-migrants-en-espagne-calendrier-conditions-et-documents-requis-1660262/)
+- **«Une catastrophe pour toute l’Europe», «une trahison» : la droite s’emporte contre le plan espagnol de régularisation des sans-papiers**: [Link](https://www.lefigaro.fr/international/une-catastrophe-pour-toute-l-europe-une-trahison-la-droite-s-emporte-contre-le-plan-espagnol-de-regularisation-des-sans-papiers-20260416)
+- **L'Espagne lance son vaste plan de régularisation des sans-papiers**: [Link](https://fr.euronews.com/my-europe/2026/04/17/espagne-au-premier-jour-du-vaste-plan-de-regularisation-des-sans-papiers-de-longues-files-)
+
+
+### الإنتر ضد كالياري (N/A, Fri, 17 Apr 2026 12:30:00 -0700)
+
+- **إنتر يقترب من لقب الكالتشيو والصراع يحتدم على المشاركة بدوري الأبطال**: [Link](https://www.aljazeera.net/sport/2026/4/17/%D8%A5%D9%86%D8%AA%D8%B1-%D9%84%D9%82%D8%A8-%D9%83%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%88-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A)
+- **ما القنوات الناقلة لمباراة إنتر وكالياري في الدوري الإيطالي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%83%D8%A7%D9%84%D9%8A%D8%A7%D8%B1%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt82978af5010d6108)
+- **تشكيلة الانتر الرسمية امام كالياري في الدوري الايطالي**: [Link](https://hihi2.com/2026/04/17/p3730126.html)
+
+
 ### inter vs cagliari (N/A, Fri, 17 Apr 2026 12:20:00 -0700)
 
 - **Inter Milan vs Cagliari: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cp8dr6rn717t)
