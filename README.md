@@ -1,3 +1,31 @@
+### ذهب (N/A, Fri, 17 Apr 2026 06:40:00 -0700)
+
+- **عاجل: سعر الذهب يهوي إلى 7075 جنيه في مصر - انهيار مفاجئ يشعل حالة طوارئ اقتصادية!**: [Link](https://yemen-press.net/news179638.html)
+- **تراجع الذهب في مصر يعاكس الاتجاه العالمي**: [Link](https://www.alaraby.co.uk/economy/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%8A%D8%B9%D8%A7%D9%83%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AC%D8%A7%D9%87-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A)
+- **تراجع سعر الذهب إلى 6021 جنيه يشكل مفاجأة للمشترين الشباب هل من احتمالية لانخفاض أسعاره أكثر**: [Link](https://tawusal.com/101288/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%A5%D9%84%D9%89-6021-%D8%AC%D9%86%D9%8A%D9%87-%D9%8A%D8%B4%D9%83%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D9%84/)
+
+
+### bourse de casablanca (N/A, Fri, 17 Apr 2026 06:40:00 -0700)
+
+- **Bourse de Casablanca : clôture en territoire négatif**: [Link](https://fr.hespress.com/469952-bourse-de-casablanca-cloture-en-territoire-negatif-37.html)
+- **MASI: Après son net rebond, l’indice retrouve une zone charnière**: [Link](https://boursenews.ma/article/marches/masi-apres-son-net-rebond-lindice-retrouve-une-zone-charniere)
+- **Marché à terme: Le signal stratégique que personne n’a vu**: [Link](https://www.leconomiste.com/marche-a-terme-le-signal-strategique-que-personne-na-vu/)
+
+
+### فويتشيك شتشيسني (N/A, Fri, 17 Apr 2026 06:20:00 -0700)
+
+- **نجم برشلونة يلمح إلى رحيله**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%84%D9%85%D8%AD-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%AD%D9%8A%D9%84%D9%87/bltf8bf268ba756067f)
+- **لاعب برشلونة: تعرضنا لـ خيبة أمل في دوري أبطال أوروبا.. ولن أبقى هنا لفترة طويلة**: [Link](https://www.btolat.com/news/398289)
+- **رسالة تشيزني بعد سقوط برشلونة الأوروبي !**: [Link](https://hihi2.com/2026/04/17/p3729535.html)
+
+
+### retraite (N/A, Fri, 17 Apr 2026 06:00:00 -0700)
+
+- **Déclaré mort par erreur, un retraité du Nord plongé dans un “meurtre administratif”, sans droits ni revenus**: [Link](https://france3-regions.franceinfo.fr/hauts-de-france/nord-0/valenciennes/declare-mort-par-erreur-un-retraite-du-nord-plonge-dans-un-meurtre-administratif-sans-droits-ni-revenus-3332387.html)
+- **"Je n’existe plus" : ce retraité de 72 ans a perdu sa pension suite au décès... d'un homonyme**: [Link](https://www.pleinevie.fr/retraite-travail/retraite/je-nexiste-plus-ce-retraite-de-72-ans-a-perdu-sa-pension-suite-au-deces-dun-homonyme-201618.html)
+- **"Ça peut vraiment arriver à n'importe qui" : un retraité du Nord raconte son chemin de croix après la mort d'un homonyme**: [Link](https://www.tf1info.fr/regions/vdieo-temoignage-ca-peut-arriver-a-n-importe-qui-un-retraite-raconte-son-chemin-de-croix-apres-la-mort-d-un-homonyme-2435716.html)
+
+
 ### bls (N/A, Fri, 17 Apr 2026 04:30:00 -0700)
 
 - **The 'Job Seeker Recession' Is Here As Hiring Hits Recession-Era Lows**: [Link](https://www.businessinsider.com/job-seeker-recession-hiring-labor-market-unemployed-americans-federal-government-2026-4)
