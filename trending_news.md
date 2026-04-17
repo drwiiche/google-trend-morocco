@@ -1,3 +1,10 @@
+### hibapress (N/A, Thu, 16 Apr 2026 22:40:00 -0700)
+
+- **الأمير هشام العلوي يصاب بكسر في أحد أضلعه بعد سقوطه خلال مسابقة للفروسية (فيديو)**: [Link](https://ar.hibapress.com/details-718267.html)
+- **🔥الثقة تسقط الأمير هشام العلوي على المباشر وتكسر ضلعه (فيديو)**: [Link](https://tanja7.com/185299/)
+- **أب لـ 3 أطفال.. ثلاثيني يقتل زوجته بـ"هراوة" وينهي حياته نواحي شيشاوة**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D8%A8-%D9%84%D9%80-3-%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D9%86%D9%8A-%D9%8A%D9%82%D8%AA%D9%84-%D8%B2%D9%88%D8%AC%D8%AA%D9%87-%D8%A8%D9%80%D9%87%D8%B1%D8%A7%D9%88-996199.html)
+
+
 ### nba (N/A, Thu, 16 Apr 2026 18:20:00 -0700)
 
 - **"Anthony and I appreciate the PA appealing his case. …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/04/16/anthony-and-i-appreciate-the-pa-appealing-his-case/89648206007/)
