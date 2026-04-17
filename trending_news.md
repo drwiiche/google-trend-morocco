@@ -1,3 +1,10 @@
+### claude design (N/A, Fri, 17 Apr 2026 13:30:00 -0700)
+
+- **Claude Opus 4.7 : Anthropic déploie son modèle le plus puissant et creuse l'écart en codage agentique**: [Link](https://www.lesnumeriques.com/intelligence-artificielle/claude-opus-4-7-anthropic-deploie-son-modele-le-plus-puissant-et-creuse-l-ecart-en-codage-agentique-n254470.html)
+- **Claude dévoile sa nouvelle mise à jour : un tournant pour l’IA et la crypto**: [Link](https://www.crypto-insiders.fr/actualites/claude-devoile-sa-nouvelle-mise-a-jour-un-tournant-pour-lia-et-la-crypto/)
+- **Après Opus 4.7, Claude lance "Claude Design", sorte de Powerpoint à la sauce Anthropic**: [Link](https://www.clubic.com/actualite-609562-apres-opus-3-7-claude-lance-claude-design-sorte-de-powerpoint-a-la-sauce-anthropic.html)
+
+
 ### nadia fares (N/A, Fri, 17 Apr 2026 15:20:00 -0700)
 
 - **Noyade de Nadia Farès : l’enquête s’oriente vers la piste médicale**: [Link](https://www.leparisien.fr/faits-divers/noyade-de-nadia-fares-lenquete-soriente-vers-la-piste-medicale-16-04-2026-PKZXKJOR7FFZBEQK2SRLRC5H3U.php)
