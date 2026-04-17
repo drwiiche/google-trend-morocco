@@ -1,3 +1,15 @@
+### prix du baril (N/A, Fri, 17 Apr 2026 07:00:00 -0700)
+
+- **30 millions de dollars par heure : la guerre en Iran rapporte gros aux grandes compagnies pétrolières**: [Link](https://www.lexpress.fr/economie/30-millions-de-dollars-par-heure-la-guerre-en-iran-rapporte-gros-aux-grandes-compagnies-petrolieres-ID5FSGSMURDJTOHEI7CTPX2LG4/)
+- **Cours du pétrole : Brent sous 90$, -11% sur la séance**: [Link](https://www.xtb.com/fr/analyses-marches/cours-du-petrole-le-brent-plonge-sous-90-le-baril)
+- **Les prix du pétrole progressent, dans l'attente d'annonces concrètes sur les pourparlers**: [Link](https://www.connaissancedesenergies.org/afp/les-prix-du-petrole-progressent-dans-lattente-dannonces-concretes-sur-les-pourparlers-260416)
+
+
+### 老虎 (N/A, Thu, 16 Apr 2026 18:20:00 -0700)
+
+
+
+
 ### ذهب (N/A, Fri, 17 Apr 2026 06:40:00 -0700)
 
 - **عاجل: سعر الذهب يهوي إلى 7075 جنيه في مصر - انهيار مفاجئ يشعل حالة طوارئ اقتصادية!**: [Link](https://yemen-press.net/news179638.html)
