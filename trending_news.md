@@ -1,3 +1,29 @@
+### elbotola (N/A, Sat, 18 Apr 2026 02:00:00 -0700)
+
+
+
+
+### إضراب (N/A, Sat, 18 Apr 2026 01:30:00 -0700)
+
+- **احتجاج مساعدين تربويين**: [Link](https://www.hespress.com/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC-%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D9%8A%D9%86-%D8%AA%D8%B1%D8%A8%D9%88%D9%8A%D9%8A%D9%86-2-1732685.html)
+- **شغيلة التعليم تنتفض قبيل فاتح ماي**: [Link](https://aljarida24.ma/p/actualites/343699/)
+- **جامعة موظفي التعليم: 5000 درهم غير منصفة للتعويض عن العمل بالمناطق النائية – مجتمع**: [Link](https://anbaetv.ma/1176150)
+
+
+### كأس العالم (N/A, Fri, 17 Apr 2026 22:10:00 -0700)
+
+- **المواجهة اشتعلت.. بيان شديد اللهجة من الفيفا بشأن الخطوة الأمريكية "غير المسبوقة"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D8%B4%D8%AA%D8%B9%D9%84%D8%AA--%D8%A8%D9%8A%D8%A7%D9%86-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%87%D8%AC%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%BA%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9/blt211c01464d7a75e8)
+- **25 ألف دولار لمقعد النهائي.. كيف دافع رئيس الفيفا عن أسعار تذاكر كأس العالم؟**: [Link](https://www.aljazeera.net/sport/2026/4/18/%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-2026)
+- **إنفانتينو يبرر ارتفاع تذاكر المونديال**: [Link](https://www.skynewsarabia.com/sport/1864805-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D8%A8%D8%B1%D8%B1-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### zanzibar (N/A, Fri, 17 Apr 2026 18:30:00 -0700)
+
+- **Influencer’s safari getaway turns deadly days after proposal as police question fiancé, family demands answers**: [Link](https://www.foxnews.com/us/influencers-safari-getaway-turns-deadly-days-proposal-police-question-fiance-family-demands-answers)
+- **Family seeks answers after New Jersey woman found dead while on vacation in Zanzibar**: [Link](https://abc7.com/post/family-seeks-answers-new-jersey-woman-found-dead-vacation-zanzibar/18884465/)
+- **Ashlee Jenae: Partner of US influencer who died in Zanzibar speaking to police as witness**: [Link](https://www.bbc.com/news/articles/cx299rxk0ngo)
+
+
 ### البطولة الاحترافية المغربية (N/A, Sat, 18 Apr 2026 01:10:00 -0700)
 
 - **لجنة الانضباط بالكاف تُوقف الدراك**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%B4%D8%B7%D8%A7%D8%AA-%D8%AA%D9%8F%D8%B7%D9%8A%D8%AD-%D8%A8%D8%B3%D9%8A%D9%81-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%83/)
