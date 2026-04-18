@@ -1,3 +1,59 @@
+### far vs berkane (N/A, Sat, 18 Apr 2026 12:00:00 -0700)
+
+- **FAR Rabat remain cautious despite first-leg advantage ahead of Berkane showdown**: [Link](https://www.cafonline.com/caf-champions-league/news/far-rabat-remain-cautious-despite-first-leg-advantage-ahead-of-berkane-showdown/)
+- **AS FAR vs. RS Berkane: Santos, Chaabani Declare Readiness for Historic Continental Clash**: [Link](https://www.moroccoworldnews.com/2026/04/287557/as-far-vs-rs-berkane-santos-chaabani-declare-readiness-for-historic-continental-clash/)
+- **CAF Champions League: TV schedule for the second leg of the semi-finals**: [Link](https://foot-africa.com/en/news/caf-champions-league-tv-schedule-for-the-second-leg-of-the-semi-finals-1169867/)
+
+
+### lille – nice (N/A, Sat, 18 Apr 2026 11:50:00 -0700)
+
+- **Déplumé par les suspensions et les forfaits, Nice doit repenser tout son entrejeu pour son déplacement à Lille**: [Link](https://www.lequipe.fr/Football/Article/Deplume-par-les-suspensions-et-forfaits-nice-doit-repenser-tout-son-entrejeu-pour-son-deplacement-a-lille/1668756)
+- **LOSC : Les progrès de Berke Özer salués par Bruno Genesio et Aïssa Mandi**: [Link](https://lepetitlillois.com/2026/04/18/losc-ozer-progres-genesio-mandi/)
+- **Football. Une « légère intervention chirurgicale » pour le Lillois Nabil Bentaleb qui sera absent contre Nice**: [Link](https://www.ouest-france.fr/sport/football/lille-osc/football-une-legere-intervention-chirurgicale-pour-le-lillois-nabil-bentaleb-qui-sera-absent-contre-nice-e0e3daa4-3a6b-11f1-9f4b-ab6e07a6e59a)
+
+
+### pl (N/A, Sat, 18 Apr 2026 11:40:00 -0700)
+
+- **Pajor aż złapała się za głowę. To była 88. minuta meczu Polek Reprezentacja Polski**: [Link](https://www.sport.pl/pilka/7,65037,32736880,pajor-az-zlapala-sie-za-glowe-to-byla-88-minuta-meczu-polek.html)
+- **Irlandia - Polska. Relacja live i wynik na żywo**: [Link](https://www.polsatsport.pl/wiadomosc/2026-04-18/irlandia-polska-relacja-live-i-wynik-na-zywo/)
+- **Patalon po porażce w Dublinie: miałyśmy problem z przebiciem się przez linię obrony**: [Link](https://www.flashscore.pl/wiadomosci/pi-ka-nozna-uefa-liga-narodow-kobiety-patalon-po-porazce-w-dublinie-mia-ysmy-problem-z-przebiciem-sie-przez-linie-obrony/nofxWBjl/)
+
+
+### classement premier league (N/A, Sat, 18 Apr 2026 11:30:00 -0700)
+
+- **Dîner au restaurant avec les joueurs et positivité permanente : pour sauver Tottenham, Roberto De Zerbi s'est transformé en « happiness manager »**: [Link](https://www.lequipe.fr/Football/Actualites/Diner-au-restaurant-avec-les-joueurs-et-positivite-permanente-pour-sauver-tottenham-roberto-de-zerbi-s-est-transforme-en-happiness-manager/1668693)
+- **Tottenham : De Zerbi fixe déjà ses conditions pour son avenir**: [Link](https://www.footmercato.net/a3309324742581486929-tottenham-de-zerbi-fixe-deja-ses-conditions-pour-son-avenir)
+- **« On a des problèmes à n'en plus finir ! » - Roberto De Zerbi réagit après que West Ham, concurrent de Tottenham dans la lutte contre la relégation, a profité de la soirée de fête de Crystal Palace à Florence**: [Link](https://www.goal.com/fr/listes/on-a-des-problemes-a-n-en-plus-finir-roberto-de-zerbi-reagit-apres-que-west-ham-concurrent-de-tottenham-dans-la-lutte-contre-la-relegation-a-profite-de-la-soiree-de-fete-de-crystal-palace-a-florence/bltb21fc333f33535c3)
+
+
+### أتلتيكو مدريد ضد ريال سوسيداد (N/A, Sat, 18 Apr 2026 11:20:00 -0700)
+
+- **تقنية جديدة لأول مرة.. واقعة مبابي تُلقي بظلالها على نهائي كأس الملك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%AC%D8%AF%D9%84-%D8%AA%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%AA%D9%82%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%AF/blt32c2e8694245ba81)
+- **مباشر أتلتيكو مدريد وريال سوسيداد في نهائي كأس ملك إسبانيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF)
+- **سيميوني مدرب أتلتيكو مدريد متحمس لخوض نهائي كأس ملك إسبانيا**: [Link](https://www.hesport.com/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D8%AA%D8%AD%D9%85%D8%B3-%D9%84%D8%AE%D9%88%D8%B6-435373.html)
+
+
+### تشيلسي ضد مان يونايتد (N/A, Sat, 18 Apr 2026 11:20:00 -0700)
+
+- **موعد مباراة تشيلسي ومانشستر يونايتد في الدوري الإنجليزي 2025-2026 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/bltf20ea50693873a78)
+- **قمة بين تشلسي ومانشستر يونايتد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%82%D9%85%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-2026-04-18?videopage=true)
+- **كاريك قبل مباراة تشيلسي: محبطون من التحكيم ومستعدون لمواجهة صعبة**: [Link](https://www.elsport.com/news/show/819929/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%85%D8%AD%D8%A8%D8%B7%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D9%88%D9%85%D8%B3%D8%AA%D8%B9%D8%AF%D9%88%D9%86-%D9%84%D9%85)
+
+
+### de ligt (N/A, Sat, 18 Apr 2026 11:20:00 -0700)
+
+- **WK-drama dreigt voor ervaren Nederlandse verdediger: 'Nog niet klaar voor het veld'**: [Link](https://sportnieuws.nl/voetbal/nieuws/wk-drama-dreigt-voor-ervaren-nederlandse-verdediger-nog-niet-klaar-voor-het-veld-2026041218170635887/)
+- **De Ligt nog steeds ver weg van terugkeer: 'Die fase heeft hij nog niet bereikt'**: [Link](https://www.voetbalprimeur.nl/nieuws/2076870/de-ligt-is-nog-steeds-ver-weg-van-terugkeer-bij-manchester-united.html)
+- **‘Grote zorgen om Matthijs de Ligt’**: [Link](https://www.soccernews.nl/news/grote-zorgen-om-matthijs-de-ligt-2/)
+
+
+### coupe du roi (N/A, Sat, 18 Apr 2026 11:20:00 -0700)
+
+- **Griezmann et l'Atlético, rien ne pouvait être plus beau**: [Link](https://www.eurosport.fr/football/copa-del-rey/2025-2026/copa-del-rey-avant-la-finale-atletico-de-madrid-real-sociedad-antoine-griezmann-et-latletico-rien-ne-pouvait-etre-plus-beau_sto23291369/story.shtml)
+- **Atlético Madrid-Real Sociedad, quelle chaîne diffuse la finale de la Coupe du Roi ?**: [Link](https://www.sports.fr/football/espagne/coupe-d-espagne/atletico-madrid-real-sociedad-quelle-chaine-diffuse-la-finale-de-la-coupe-du-roi-1007205.html)
+- **Coupe du Roi - Griezmann : "Si je suis là, c'est grâce à la Real Sociedad"**: [Link](https://www.beinsports.com/fr-fr/football/coupe-du-roi/articles-video/coupe-du-roi-griezmann-si-je-suis-l%C3%A0-c-est-gr%C3%A2ce-%C3%A0-la-real-sociedad-2026-04-17)
+
+
 ### atlético madrid – real sociedad (N/A, Sat, 18 Apr 2026 11:10:00 -0700)
 
 - **Atlético de Madrid - Real Sociedad en directo | Final de la Copa del Rey hoy en vivo**: [Link](https://www.marca.com/futbol/copa-del-rey/atletico-r-sociedad/2026/04/18/01_0105_20260418_175_188-directo.html)
