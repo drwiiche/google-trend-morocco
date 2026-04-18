@@ -1,3 +1,10 @@
+### البيت الأبيض (N/A, Fri, 17 Apr 2026 15:20:00 -0700)
+
+- **رئيس "أنثروبيك" يزور البيت الأبيض بعد رفض واشنطن استخدام نماذجه لأغراض عسكرية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260418-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A3%D9%86%D8%AB%D8%B1%D9%88%D8%A8%D9%8A%D9%83-%D9%8A%D8%B2%D9%88%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D8%A8%D8%B9%D8%AF-%D8%B1%D9%81%D8%B6-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85-%D9%86%D9%85%D8%A7%D8%B0%D8%AC%D9%87-%D9%84%D8%A3%D8%BA%D8%B1%D8%A7%D8%B6-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9)
+- **أوبن إيه آي تكشف نموذجا للأمن السيبراني بطرح محدود بعد أيام من نموذج أنثروبيك**: [Link](https://arabic.euronews.com/next/2026/04/16/openai-unveils-cybersecurity-model-with-limited-rollout-days-after-anthropics-model)
+- **أنثروبيك تقترب من دخول السوق الأوروبية بشروط صارمة!**: [Link](https://www.arabictrader.com/ar/news/stock-market/214526/%D8%A3%D9%86%D8%AB%D8%B1%D9%88%D8%A8%D9%8A%D9%83-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%A8%D8%B4%D8%B1%D9%88%D8%B7-%D8%B5%D8%A7%D8%B1%D9%85%D8%A9)
+
+
 ### claude design (N/A, Fri, 17 Apr 2026 13:30:00 -0700)
 
 - **Claude Opus 4.7 : Anthropic déploie son modèle le plus puissant et creuse l'écart en codage agentique**: [Link](https://www.lesnumeriques.com/intelligence-artificielle/claude-opus-4-7-anthropic-deploie-son-modele-le-plus-puissant-et-creuse-l-ecart-en-codage-agentique-n254470.html)
