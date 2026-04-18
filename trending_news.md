@@ -1,3 +1,17 @@
+### نادي النهضة البركانية (N/A, Sat, 18 Apr 2026 15:30:00 -0700)
+
+- **مدرب سان داونز يرد على أحد الصحفيين: "هل شاهدت الجيش الملكي ونهضة بركان؟ إذا نعم فأنت بحاجة لمشاهدتهما مجددا لأنك تستخف بهما"**: [Link](https://m.elbotola.com/article/2026-04-18-18-38-202.html)
+- **مدرب صن داونز يهاجم صحفيًا بسبب استهانته بالجيش وبركان**: [Link](https://infosports.ma/216417/)
+- **مدرب صن داونز يهاجم صحافيا دفاعا عن الجيش الملكي ونهضة بركان**: [Link](https://sport.lesiteinfo.com/elbotola/492937.html)
+
+
+### هاني شاكر (N/A, Sat, 18 Apr 2026 14:10:00 -0700)
+
+- **تضارب بشأن تفاصيل حالته.. قلب هاني شاكر يثير الجدل في مصر**: [Link](https://www.aljazeera.net/arts/2026/4/18/%D8%AA%D8%B6%D8%A7%D8%B1%D8%A8-%D8%A8%D8%B4%D8%A3%D9%86-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AD%D8%A7%D9%84%D8%AA%D9%87-%D9%82%D9%84%D8%A8-%D9%87%D8%A7%D9%86%D9%8A-%D8%B4%D8%A7%D9%83%D8%B1)
+- **هاني شاكر... مات وعاد إلى الحياة**: [Link](https://www.lahamag.com/article/236445-%D9%87%D8%A7%D9%86%D9%8A-%D8%B4%D8%A7%D9%83%D8%B1-%D9%85%D8%A7%D8%AA-%D9%88%D8%B9%D8%A7%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9)
+- **جهازه الهضمي توقف بالكامل.. تفاصيل الحالة الصحية الحرجة لهاني شاكر في باريس**: [Link](https://www.khabrabyad.com/46584)
+
+
 ### atletico madrid vs (N/A, Sat, 18 Apr 2026 14:10:00 -0700)
 
 - **WATCH: Atletico Madrid equalise in Copa del Rey final before Mikel Oyarzabal restores Real Sociedad lead**: [Link](https://sports.yahoo.com/articles/watch-atletico-madrid-equalise-copa-201000034.html)
