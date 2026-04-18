@@ -1,3 +1,17 @@
+### brentford – fulham (N/A, Sat, 18 Apr 2026 03:50:00 -0700)
+
+- **(2) Brentford v Fulham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/apr/18/brentford-v-fulham-premier-league-live)
+- **Premier League LIVE: Build-up, team news, score and live text updates**: [Link](https://www.bbc.co.uk/sport/football/live/cz7gz3xqy38t)
+- **Get a 100% bonus up to £50 with 247Bet ahead of Brentford vs Fulham**: [Link](https://talksport.com/betting/4191398/brentford-vs-fulham-247bet-free-bets/)
+
+
+### البطولة (N/A, Sat, 18 Apr 2026 03:00:00 -0700)
+
+- **صراع القمة وقاع الترتيب يشعل الجولة 18 من البطولة الوطنية النسوية .**: [Link](https://tanwer.ma/2026/04/15/%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D9%88%D9%82%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-18-%D9%85/)
+- **الجيش الملكي يدافع عن صدارته في الجولة 18 من البطولة الوطنية**: [Link](https://www.sport7.ma/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-4/)
+- **مباريات قوية في الجولة 18 من البطولة الوطنية**: [Link](https://www.sport7.ma/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-18-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88/)
+
+
 ### الاتحاد المغربي للشغل (N/A, Sat, 18 Apr 2026 02:20:00 -0700)
 
 - **الحكومة تستعرض حصيلة الحوار الاجتماعي بزيادات أجرية وإصلاحات ضريبية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D8%B3%D8%AA%D8%B9%D8%B1%D8%B6-%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%BA%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7-1732747.html)
