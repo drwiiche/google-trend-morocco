@@ -1,3 +1,31 @@
+### أضحية (N/A, Sat, 18 Apr 2026 14:30:00 -0700)
+
+- **إطلاق منصة رقمية لتنظيم اقتناء أضاحي العيد إلكترونيًا**: [Link](https://www.awras.com/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%86%D8%B5%D8%A9-%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%82%D8%AA%D9%86%D8%A7%D8%A1-%D8%A3%D8%B6%D8%A7%D8%AD%D9%8A-%D8%A7/)
+- **رسميا.. إطلاق منصة إلكترونية لشراء أضاحي العيد المستوردة**: [Link](https://www.echoroukonline.com/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%86%D8%B5%D8%A9-%D8%A5%D9%84%D9%83%D8%AA%D8%B1%D9%88%D9%86%D9%8A%D8%A9-%D9%84%D8%B4%D8%B1%D8%A7%D8%A1-%D8%A3%D8%B6%D8%A7%D8%AD)
+- **منصة رقمية لحجز وبيع أضاحي عيد الأضحى 2026 في الجزائر**: [Link](https://rasselmal.com/%D9%85%D9%86%D8%B5%D8%A9-%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D9%84%D8%AD%D8%AC%D8%B2-%D9%88%D8%A8%D9%8A%D8%B9-%D8%A3%D8%B6%D8%A7%D8%AD%D9%8A-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%89-2026/)
+
+
+### berkan (N/A, Sat, 18 Apr 2026 14:10:00 -0700)
+
+- **Konyaspor’da Melih İbrahimoğlu 56.maçta siftah yaptı**: [Link](https://bbnhaber.com.tr/konya-spor/konyasporda-melih-ibrahimoglu-56macta-siftah-yapti/411956)
+- **Haber turu**: [Link](https://www.sabah.com.tr/spor/tum-sporlar/2026/04/18/haber-turu)
+- **Sami Uğurlu: "Biz ligde kalacağımıza inanıyoruz"**: [Link](https://antalyabugun.com.tr/news/sami-ugurlu-biz-ligde-kalacagimiza-inaniyoruz-92033)
+
+
+### الاتحاد الفلسطيني لكرة القدم (N/A, Sat, 18 Apr 2026 13:30:00 -0700)
+
+- **حرمان الوفد الفلسطيني يشعل أزمة داخل الفيفا قبل مونديال 2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D9%81%D8%AF-%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/blt1a8bb594b91ffd62)
+- **منع مسؤولي اتحاد الكرة الفلسطيني من دخول كندا**: [Link](https://www.skynewsarabia.com/sport/1864633-%D9%85%D9%86%D8%B9-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A-%D8%AF%D8%AE%D9%88%D9%84-%D9%83%D9%86%D8%AF%D8%A7)
+- **الرجوب لـ"القدس العربي": تأخير "غير مألوف وغير قانوني" في إصدار كندا تأشيرات لأعضاء الوفد الفلسطيني المشارك في كونغرس "فيفا"**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B1%D8%AC%D9%88%D8%A8-%D9%84%D9%80%D8%A7%D9%84%D9%82%D8%AF%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D8%AA%D8%A3%D8%AE%D9%8A%D8%B1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%A3%D9%84%D9%88/)
+
+
+### مروحية (N/A, Sat, 18 Apr 2026 13:10:00 -0700)
+
+- **تهديدات أمريكية بالاستيلاء على سفن مرتبطة بإيران**: [Link](https://www.aljazeera.net/news/2026/4/18/%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%84%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D8%B3%D9%81%D9%86)
+- **الحصار الأميركي.. مروحيات أباتشي فوق هرمز وإرجاع 23 سفينة**: [Link](https://www.skynewsarabia.com/world/1864905-%D8%A7%D9%84%D8%AD%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%85%D8%B1%D9%88%D8%AD%D9%8A%D8%A7%D8%AA-%D8%A3%D8%A8%D8%A7%D8%AA%D8%B4%D9%8A-%D9%87%D8%B1%D9%85%D8%B2-%D9%88%D8%A5%D8%B1%D8%AC%D8%A7%D8%B9-23-%D8%B3%D9%81%D9%8A%D9%86%D8%A9)
+- **إيران تحذر السفن من مغادرة مواقعها في الخليج العربي وبحر عمان**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A7%D9%84%D8%B3%D9%81%D9%86-%D9%85%D9%86-%D9%85%D8%BA%D8%A7%D8%AF%D8%B1%D8%A9-%D9%85%D9%88%D8%A7%D9%82%D8%B9%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D9%88%D8%A8%D8%AD%D8%B1-%D8%B9%D9%85%D8%A7%D9%86/3911030)
+
+
 ### colorado rapids – inter miami (N/A, Sat, 18 Apr 2026 13:00:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Set to Visit Colorado Rapids this Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-visit-colorado-rapids-this-saturday)
