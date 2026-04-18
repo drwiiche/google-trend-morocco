@@ -1,3 +1,24 @@
+### البطولة الاحترافية المغربية (N/A, Sat, 18 Apr 2026 01:10:00 -0700)
+
+- **لجنة الانضباط بالكاف تُوقف الدراك**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%B4%D8%B7%D8%A7%D8%AA-%D8%AA%D9%8F%D8%B7%D9%8A%D8%AD-%D8%A8%D8%B3%D9%8A%D9%81-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%83/)
+- **رياضة | شبح "المنشطات" يطارد البطولة الاحترافية**: [Link](https://www.alousboue.ma/132980/)
+- **سانتوس يؤكد إيقاف الدراك قبل مواجهة نهضة بركان ويصرح: "القرار كان مفاجئا لنا وسيغيب عن المباراة"**: [Link](https://m.elbotola.com/article/2026-04-10-13-38-496.html)
+
+
+### بصل (N/A, Fri, 17 Apr 2026 23:20:00 -0700)
+
+- **إغراق الأسواق بـ”المنتوج المستورد” يكبد الفلاحين خسائر ويهوي بأسعار البصل (فيديو)**: [Link](https://al3omk.com/1153422.html)
+- **سعر الطماطم والخيار والخضار في الأسواق اليوم الجمعة 17 أبريل 2026**: [Link](https://www.almasryalyoum.com/news/details/4247608)
+- **أسعار الخضروات واللحوم والدواجن في الأسواق اليوم السبت 18 أبريل 2026**: [Link](https://akhbarelyom.com/news/newdetails/4806836/1/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D9%88%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%84%D8%AD%D9%88%D9%85-%D9%88%D8%A7%D9%84%D8%AF%D9%88%D8%A7%D8%AC%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B3%D9%88)
+
+
+### السفارة البريطانية في المغرب (N/A, Fri, 17 Apr 2026 22:30:00 -0700)
+
+- **المملكة المتحدة تطبق إجراءات جديدة لتسهيل حصول المغاربة على التأشيرة**: [Link](https://www.assahifa.com/%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%B7%D8%A8%D9%82-%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%AA/)
+- **بريطانيا تعتمد مراكز VFS Global لتقديم بيانات التأشيرة للمغاربة وتوضح مسار المعالجة**: [Link](https://detafour.com/%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B9%D8%AA%D9%85%D8%AF-%D9%85%D8%B1%D8%A7%D9%83%D8%B2-vfs-global-%D9%84%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D8%A8%D9%8A%D8%A7%D9%86%D8%A7%D8%AA/)
+- **السفارة البريطانية بالرباط تعلن إجراءات جديدة لفائدة الراغبين في الحصول على تأشيرة المملكة المتحدة**: [Link](https://24saa.com/%D8%A7%D9%84%D8%B3%D9%81%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D8%B9%D9%84%D9%86-%D8%A5%D8%AC%D8%B1%D8%A7/)
+
+
 ### nathalie baye (N/A, Sat, 18 Apr 2026 01:00:00 -0700)
 
 - **Mort de Nathalie Baye, immense actrice française et mère de Laura Smet, à 77 ans**: [Link](https://www.programme-tv.net/news/people/376293-mort-de-nathalie-baye-immense-actrice-francaise-et-mere-de-laura-smet/)
