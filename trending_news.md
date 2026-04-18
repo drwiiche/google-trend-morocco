@@ -1,3 +1,10 @@
+### atletico madrid vs (N/A, Sat, 18 Apr 2026 14:10:00 -0700)
+
+- **WATCH: Atletico Madrid equalise in Copa del Rey final before Mikel Oyarzabal restores Real Sociedad lead**: [Link](https://sports.yahoo.com/articles/watch-atletico-madrid-equalise-copa-201000034.html)
+- **WATCH: Atletico Madrid equalise in Copa del Rey final before Mikel Oyarzabal restores Real Sociedad lead**: [Link](https://www.football-espana.net/2026/04/18/atletico-madrid-real-sociedad-copa-goal-2)
+- **Atletico Madrid vs Real Sociedad: Copa del Rey stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cy0130ned7yt)
+
+
 ### أضحية (N/A, Sat, 18 Apr 2026 14:30:00 -0700)
 
 - **إطلاق منصة رقمية لتنظيم اقتناء أضاحي العيد إلكترونيًا**: [Link](https://www.awras.com/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%86%D8%B5%D8%A9-%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%82%D8%AA%D9%86%D8%A7%D8%A1-%D8%A3%D8%B6%D8%A7%D8%AD%D9%8A-%D8%A7/)
