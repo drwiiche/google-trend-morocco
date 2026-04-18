@@ -1,3 +1,10 @@
+### nathalie baye (N/A, Sat, 18 Apr 2026 01:00:00 -0700)
+
+- **Mort de Nathalie Baye, immense actrice française et mère de Laura Smet, à 77 ans**: [Link](https://www.programme-tv.net/news/people/376293-mort-de-nathalie-baye-immense-actrice-francaise-et-mere-de-laura-smet/)
+- **« Je suis beaucoup moins forte que j'en ai l'air mais j'ai envie de me montrer solide » : la leçon de vie de Nathalie Baye**: [Link](https://www.parismatch.com/culture/cinema/je-suis-beaucoup-moins-forte-que-jen-ai-lair-mais-jai-envie-de-me-montrer-solide-la-lecon-de-vie-de-nathalie-baye-267717)
+- **Nathalie Baye, étoile discrète du cinéma français, est morte à l'âge de 77 ans**: [Link](https://www.franceinfo.fr/culture/cinema/nathalie-baye-etoile-discrete-du-cinema-francais-est-morte-a-l-age-de-77-ans_7326363.html)
+
+
 ### iran detroit ormuz (N/A, Fri, 17 Apr 2026 22:40:00 -0700)
 
 - **Ce que l’on sait sur la réouverture du détroit d’Ormuz par l’Iran**: [Link](https://www.20minutes.fr/monde/etats-unis/4218991-20260417-guerre-moyen-orient-trump-jubile-petrole-plonge-sait-deblocage-detroit-ormuz)
