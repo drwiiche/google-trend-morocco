@@ -1,3 +1,17 @@
+### from season 4 (N/A, Sat, 18 Apr 2026 16:00:00 -0700)
+
+- **‘From’ Renewed For Fifth and Final Season (Exclusive)**: [Link](https://www.hollywoodreporter.com/tv/tv-news/from-renewed-season-5-final-interview-1236565157/)
+- **TV's Best Horror Show Climbs Streaming Charts Ahead of Its Return (& Has a Rare Rotten Tomatoes Score)**: [Link](https://comicbook.com/tv-shows/news/tvs-best-horror-show-climbs-streaming-charts-ahead-of-its-return-has-a-rare-rotten-tomatoes-score/)
+- **From Season 4 Finally Ending Series-Long Complaint Addressed By Harold Perrineau**: [Link](https://screenrant.com/from-season-4-communication-complaint-end-harold-perrineau/)
+
+
+### نهضة بركان ضد الجيش الملكي (N/A, Sat, 18 Apr 2026 15:10:00 -0700)
+
+- **الاتحاد المغربي يصدر بيانًا بعد تأهل الجيش الملكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D9%8B%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A/blt97f4fae559a9c3d2)
+- **شاهد.. نتيجة وملخص وأهداف مباراة نهضة بركان ضد الجيش الملكي في نصف نهائي أبطال أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/18/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%81%D9%8A-%D9%86%D8%B5%D9%81)
+- **قبل قرعة مجموعات أبطال إفريقيا.. الرجاء والجيش الملكي يتعرفان على التصنيف**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%A5%D9%84%D9%89-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84/)
+
+
 ### from (N/A, Sat, 18 Apr 2026 16:00:00 -0700)
 
 - **Didawick Propels No. 9 Virginia to Series Victory Over Clemson**: [Link](https://virginiasports.com/news/2026/04/18/didawick-propels-no-9-virginia-to-series-victory-over-clemson-1)
