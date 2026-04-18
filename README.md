@@ -1,3 +1,10 @@
+### رئيس البرازيل (N/A, Sat, 18 Apr 2026 08:50:00 -0700)
+
+- **رئيس البرازيل: لا يحق لترامب أن يستيقظ صباحا ويهدد دولة ما**: [Link](https://www.alquds.co.uk/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%84%D8%A7-%D9%8A%D8%AD%D9%82-%D9%84%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A3%D9%86-%D9%8A%D8%B3%D8%AA%D9%8A%D9%82%D8%B8-%D8%B5/)
+- **الرئيس البرازيلي: لا يحقّ لترامب تهديد بلدان أخرى**: [Link](https://www.raialyoum.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%84%D8%A7-%D9%8A%D8%AD%D9%82%D9%91-%D9%84%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF/)
+- **(وسائط متعددة) رئيس البرازيل يدعو إلى السلام ويقول إن ترامب "يهدد" العالم**: [Link](https://arabic.news.cn/20260411/0cbde756d5234bbcb406016b9873c685/c.html)
+
+
 ### naples – lazio (N/A, Sat, 18 Apr 2026 09:10:00 -0700)
 
 - **Napoli vs Lazio: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx2wj2n71q4t)
