@@ -1,3 +1,17 @@
+### iran detroit ormuz (N/A, Fri, 17 Apr 2026 22:40:00 -0700)
+
+- **Ce que l’on sait sur la réouverture du détroit d’Ormuz par l’Iran**: [Link](https://www.20minutes.fr/monde/etats-unis/4218991-20260417-guerre-moyen-orient-trump-jubile-petrole-plonge-sait-deblocage-detroit-ormuz)
+- **Donald Trump remercie l’Iran pour la libération du détroit d’Ormuz, mais...**: [Link](https://www.huffingtonpost.fr/international/article/le-detroit-d-ormuz-libere-par-l-iran-jusqu-a-la-fin-du-cessez-le-feu_262781.html)
+- **Les Bourses européennes terminent en nette hausse après la réouverture du détroit d'Ormuz**: [Link](https://medias24.com/agence-presse/les-bourses-europeennes-terminent-en-nette-hausse-apres-la-reouverture-du-detroit-dormuz/)
+
+
+### prince moulay hicham (N/A, Fri, 17 Apr 2026 22:10:00 -0700)
+
+- **Le prince Moulay Hicham blessé après une violente chute de cheval**: [Link](https://h24info.ma/maroc/le-prince-moulay-hicham-blesse-apres-une-violente-chute-de-cheval/)
+- **Moulay Hicham victime d’une fracture de la côte après une chute de cheval en France**: [Link](https://www.maroc-hebdo.com/article/moulay-hicham-victime-dune-fracture-de-la-cote-apres-une-chute-de-cheval-en-france)
+- **Le Prince Moulay Hicham victime d’une lourde chute**: [Link](https://www.bladi.net/prince-moulay-hicham-victime-lourde-chute,120745.html)
+
+
 ### البيت الأبيض (N/A, Fri, 17 Apr 2026 15:20:00 -0700)
 
 - **رئيس "أنثروبيك" يزور البيت الأبيض بعد رفض واشنطن استخدام نماذجه لأغراض عسكرية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260418-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A3%D9%86%D8%AB%D8%B1%D9%88%D8%A8%D9%8A%D9%83-%D9%8A%D8%B2%D9%88%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D8%A8%D8%B9%D8%AF-%D8%B1%D9%81%D8%B6-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%A7%D8%B3%D8%AA%D8%AE%D8%AF%D8%A7%D9%85-%D9%86%D9%85%D8%A7%D8%B0%D8%AC%D9%87-%D9%84%D8%A3%D8%BA%D8%B1%D8%A7%D8%B6-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9)
