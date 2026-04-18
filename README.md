@@ -1,3 +1,38 @@
+### نيوكاسل يونايتد ضد بورنموث (N/A, Sat, 18 Apr 2026 07:00:00 -0700)
+
+- **نيوكاسل يفتقد لثلاثة نجوم أمام بورنموث**: [Link](https://hihi2.com/2026/04/17/p3730094.html)
+- **شيرر: مواجهة آرسنال ومانشستر سيتي ستحسم اللقب**: [Link](https://elsport.com/news/show/819838/%7B%7Burl%7D%7D)
+- **مدرب نيوكاسل يكشف موعد عودة غيماريش للمباريات**: [Link](https://www.alyaum.com/articles/6656642/%D8%A7%D9%84%D9%85%D9%8A%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D9%85%D8%AF%D8%B1%D8%A8-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D8%B9%D8%AF-%D8%B9%D9%88%D8%AF%D8%A9-%D8%BA%D9%8A%D9%85%D8%A7%D8%B1%D9%8A%D8%B4-%D9%84%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA)
+
+
+### espagne (N/A, Sat, 18 Apr 2026 06:50:00 -0700)
+
+- **«Une catastrophe pour toute l’Europe», «une trahison» : la droite s’emporte contre le plan espagnol de régularisation des sans-papiers**: [Link](https://www.lefigaro.fr/international/une-catastrophe-pour-toute-l-europe-une-trahison-la-droite-s-emporte-contre-le-plan-espagnol-de-regularisation-des-sans-papiers-20260416)
+- **L'Espagne lance son vaste plan de régularisation des sans-papiers**: [Link](https://fr.euronews.com/my-europe/2026/04/17/espagne-au-premier-jour-du-vaste-plan-de-regularisation-des-sans-papiers-de-longues-files-)
+- **Régularisation des migrants en Espagne : calendrier, conditions et documents requis**: [Link](https://medias24.com/2026/04/15/regularisation-des-migrants-en-espagne-calendrier-conditions-et-documents-requis-1660262/)
+
+
+### leeds united – wolves (N/A, Sat, 18 Apr 2026 06:40:00 -0700)
+
+- **Leeds v Wolves, Newcastle v Bournemouth: Premier League and more – live**: [Link](https://www.theguardian.com/football/live/2026/apr/18/leeds-wolves-newcastle-bournemouth-premier-league-and-more-live)
+- **Team news: Daniel Farke names XI to face Wolverhampton Wanderers**: [Link](https://www.leedsunited.com/en/news/team-news-daniel-farke-names-xi-to-face-wolverhampton-wanderers)
+- **Rob Edwards urging pride in his Wolves players ahead of likely relegation**: [Link](https://www.expressandstar.com/sport/football/wolverhampton-wanderers/rob-edwards-urging-pride-in-his-wolves-players-ahead-of-likely-relegation-6580254)
+
+
+### الحسين عموتة (N/A, Sat, 18 Apr 2026 06:20:00 -0700)
+
+- **هل تواصل معه المنتخب السعودي؟.. العروض تحاصر المغربي عموتة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D9%85%D8%B9%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A--%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B6-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D9%85%D9%88%D8%AA%D8%A9/blt2c123a5fbbe7d6ed)
+- **خاص| السويحلي متمسك بخيار مدرب مغربي رغم “البلوكاج” مع عموتة**: [Link](https://www.radiomars.ma/%D8%AE%D8%A7%D8%B5-%D8%A7%D9%84%D8%B3%D9%88%D9%8A%D8%AD%D9%84%D9%8A-%D9%85%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%AE%D9%8A%D8%A7%D8%B1-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B1%D8%BA/)
+- **عموتة يتصدر الترشيحات لقيادة فرسان المتوسط**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%AE%D9%84%D9%81%D8%A7-%D9%84%D8%B3%D9%8A%D8%B3%D9%8A%D9%87/18809)
+
+
+### tas senegal maroc (N/A, Sat, 18 Apr 2026 06:10:00 -0700)
+
+- **Libération de trois supporters du Sénégal emprisonnés au Maroc depuis la finale de la CAN**: [Link](https://www.lequipe.fr/Football/Actualites/Liberation-de-trois-supporters-du-senegal-emprisonnes-au-maroc-depuis-la-finale-de-la-can/1668915)
+- **CAN 2025: Trois supporters sénégalais et un Français ont été libérés par le Maroc après avoir purgé leurs peines**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-trois-supporters-senegalais-et-un-francais-ont-ete-liberes-par-le-maroc-apres-avoir-purge-leurs-peines_AV-202604180210.html)
+- **CAN 2025: la Cour d’appel confirme les peines des 18 supporters sénégalais pour hooliganisme**: [Link](https://sport.le360.ma/football/can/can-2025-la-cour-dappel-confirme-les-peines-des-18-supporters-senegalais-pour-hooliganisme_SXBYZIPWG5EXNKGY3LC5JONJIA/)
+
+
 ### newcastle – bournemouth (N/A, Sat, 18 Apr 2026 06:20:00 -0700)
 
 - **Eddie Howe emotional rallying call to Newcastle United fans released ahead of match**: [Link](https://www.themag.co.uk/2026/04/eddie-howe-emotional-rallying-call-to-newcastle-united-fans-released-ahead-of-match/)
