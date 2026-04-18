@@ -1,3 +1,24 @@
+### watford – sheffield utd (N/A, Sat, 18 Apr 2026 07:40:00 -0700)
+
+- **Predicting Ed Still's Watford XI to take on Sheffield United on Saturday**: [Link](https://www.watfordobserver.co.uk/sport/26030142.predicting-ed-stills-watford-xi-take-sheffield-united/)
+- **Watch the Blades on SUTV Live**: [Link](https://www.sufc.co.uk/news/2026/april/17/sutv-live-watford-away/)
+- **Watford vs Sheffield United LIVE Score Updates: Sheffield best (0-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/04/18/1257863-watford-vs-sheffield-united-live-score-efl-champioship.html)
+
+
+### lorient – marseille (N/A, Sat, 18 Apr 2026 07:30:00 -0700)
+
+- **OM : la pique d’Habib Beye sur le choc Bayern-Real**: [Link](https://www.footmercato.net/a4626050472106134504-om-la-pique-dhabib-beye-sur-le-choc-bayern-real)
+- **Trois jeunes joueurs font leur première apparition dans le groupe de l'OM pour affronter Lorient**: [Link](https://www.lequipe.fr/Football/Actualites/Trois-jeunes-joueurs-font-leur-premiere-apparition-dans-le-groupe-de-l-om-pour-affronter-lorient/1668869)
+- **Football : les supporters font le pied de grue devant l’hôtel de l’OM à Lorient**: [Link](https://freedom.fr/football-les-supporters-font-le-pied-de-grue-devant-lhotel-de-lom-a-lorient/)
+
+
+### copa del rey (N/A, Sat, 18 Apr 2026 06:40:00 -0700)
+
+- **Final de la Copa del Rey, en directo | La previa del Atlético-Real Sociedad hoy en vivo**: [Link](https://www.marca.com/futbol/copa-rey/final/2026/04/18/69e32dde29935a63fa7b9de9-directo.html)
+- **Simeone subraya el aspecto mental antes de la esperada final del Atlético de Madrid**: [Link](https://m.elbotola.com/es/article/2026-04-17-16-00-640.html)
+- **Atletico-Real: Una final de Copa de diferencias**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260418/1004171841/atletico-real-final-copa-diferencias.html)
+
+
 ### نيوكاسل يونايتد ضد بورنموث (N/A, Sat, 18 Apr 2026 07:00:00 -0700)
 
 - **نيوكاسل يفتقد لثلاثة نجوم أمام بورنموث**: [Link](https://hihi2.com/2026/04/17/p3730094.html)
