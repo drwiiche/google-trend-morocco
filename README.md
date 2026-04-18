@@ -1,3 +1,10 @@
+### sundowns (N/A, Sat, 18 Apr 2026 07:50:00 -0700)
+
+- **Sundowns reach TotalEnergies CAF Champions League final with composed win over Esperance**: [Link](https://www.cafonline.com/caf-champions-league/news/sundowns-reach-totalenergies-caf-champions-league-final-with-composed-win-over-esperance/)
+- **Post Match Stats: Key numbers behind Sundowns’ march to final after win over Esperance**: [Link](https://www.cafonline.com/caf-champions-league/news/post-match-stats-key-numbers-behind-sundowns-march-to-final-after-win-over-esperance/)
+- **Ex-Orlando Pirates forward dismisses Buccaneers advantage notion in PSL title race over CAF Champions League-chasing Mamelodi Sundowns, insists Masandawana 'can manage to win both'**: [Link](https://www.goal.com/en-za/lists/ex-orlando-pirates-forward-dismisses-buccaneers-advantage-notion-in-psl-title-race-over-caf-champions-league-chasing-mamelodi-sundowns-insists-masandawana-can-manage-to-win-both/blt8157d5ecc10585c9)
+
+
 ### watford – sheffield utd (N/A, Sat, 18 Apr 2026 07:40:00 -0700)
 
 - **Predicting Ed Still's Watford XI to take on Sheffield United on Saturday**: [Link](https://www.watfordobserver.co.uk/sport/26030142.predicting-ed-stills-watford-xi-take-sheffield-united/)
