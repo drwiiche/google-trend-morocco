@@ -1,3 +1,17 @@
+### newcastle – bournemouth (N/A, Sat, 18 Apr 2026 06:20:00 -0700)
+
+- **Eddie Howe emotional rallying call to Newcastle United fans released ahead of match**: [Link](https://www.themag.co.uk/2026/04/eddie-howe-emotional-rallying-call-to-newcastle-united-fans-released-ahead-of-match/)
+- **Latest. Confirmed line-up: Changes for Cherries**: [Link](https://www.newcastleunited.com/en/news/confirmed-line-up-changes-for-cherries-team)
+- **THE SPECIAL - Bournemouth at home**: [Link](https://tf1892.substack.com/p/the-special-bournemouth-at-home-d93)
+
+
+### hoffenheim – dortmund (N/A, Sat, 18 Apr 2026 06:00:00 -0700)
+
+- **Siegprämie zur Extramotivation? BVB-Trainer Kovač enthüllt besondere Strategie im Saisonendspurt**: [Link](https://www.absolutfussball.com/deutschland/borussia-dortmund/bvb-trainer-kovac-enthuellt-besondere-strategie-im-saisonendspurt-94267050.html)
+- **Ilzer will mit Hoffenheim "das Maximum"**: [Link](https://www.weltfussball.com/news/ne16689452/ilzer-will-mit-hoffenheim-das-maximum/)
+- **Die TSG-Startelf gegen Dortmund**: [Link](https://www.tsg-hoffenheim.de/aktuelles/news/2026/04/die-tsg-startelf-gegen-dortmund)
+
+
 ### أيوب بوعدي (N/A, Sat, 18 Apr 2026 03:40:00 -0700)
 
 
