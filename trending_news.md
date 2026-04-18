@@ -1,3 +1,45 @@
+### asfar (N/A, Sat, 18 Apr 2026 12:30:00 -0700)
+
+- **Mamelodi Sundowns progress to African Champions League final**: [Link](https://www.reuters.com/sports/soccer/mamelodi-sundowns-progress-african-champions-league-final-2026-04-18/)
+- **Goals and Highlights: Mamelodi Sundowns 1-0 ES Tunis in 2025-26 CAF Champions League**: [Link](https://www.vavel.com/en-us/soccer/2026/04/18/1257899-mamelodi-sundowns-vs-es-tunis-live-score-caf-champions-league.html)
+- **Cardoso to approach second leg tie as a standalone challenge despite away leg win**: [Link](https://www.cafonline.com/caf-champions-league/news/cardoso-to-approach-second-leg-tie-as-a-standalone-challenge-despite-away-leg-win/)
+
+
+### arryadia tnt (N/A, Sat, 18 Apr 2026 12:20:00 -0700)
+
+- **اشتباكات "نارية" بين جماهير الجيش الملكي ونهضة بركان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86/blt97001f3a3517f408)
+- **الشعباني: لن نستسلم للجيش الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D8%A7%D9%86%D9%8A-%D9%84%D9%86-%D9%86%D8%B3%D8%AA%D8%B3%D9%84%D9%85-%D9%84%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1732803.html)
+- **صدام “العودة والتأكيد” ببركان.. هل يلحق أولمبيك آسفي بقطار المتأهلين للنهائي الإفريقي؟**: [Link](https://al3omk.com/1153676.html)
+
+
+### koora tv (N/A, Sat, 18 Apr 2026 12:20:00 -0700)
+
+- **بسبب يامال.. لاعب برشلونة يفكر في الرحيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D8%A8%D8%A8-%D9%8A%D8%A7%D9%85%D8%A7%D9%84--%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D9%83%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84/blt58a9e378a32240aa)
+- **باردغجي مطلوب في عملاق إيطالي**: [Link](https://elclasicoo.com/%D8%A8%D8%A7%D8%B1%D8%AF%D8%BA%D8%AC%D9%8A-%D9%85%D8%B7%D9%84%D9%88%D8%A8-%D9%81%D9%8A-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A/)
+- **اهتمام من عملاقين أوربيين ومعضلة وحيدة.. برشلونة يحسم مستقبل بردغجي قبل كأس العالم**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%87%D8%AA%D9%85%D8%A7%D9%85-%D9%85%D9%86-%D8%B9%D9%85%D9%84%D8%A7%D9%82%D9%8A%D9%86-%D8%A3%D9%88%D8%B1%D8%A8%D9%8A%D9%8A%D9%86-%D9%88%D9%85%D8%B9%D8%B6%D9%84%D8%A9-%D9%88%D8%AD%D9%8A%D8%AF/)
+
+
+### atletico madrid (N/A, Sat, 18 Apr 2026 12:10:00 -0700)
+
+- **Simeone Confirms Pablo Barrios' Return for Copa del Rey Final**: [Link](https://m.elbotola.com/en/article/2026-04-17-17-15-185.html)
+- **On the road again: Father and son journey to Sevilla for the Copa final**: [Link](https://www.intothecalderon.com/atletico-madrid-columns/23852/on-the-road-again-atletico-madrid-real-sociedad-copa-del-rey-final)
+- **Atletico Madrid vs Real Sociedad– Predicted lineup/team news**: [Link](https://thefootballfaithful.com/atletico-madrid-vs-real-sociedad-predicted-lineup-and-team-news-2/)
+
+
+### ligue des champions de la caf (N/A, Sat, 18 Apr 2026 12:10:00 -0700)
+
+- **RS Berkane–AS FAR: à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/rs-berkaneas-far-a-quelle-heure-et-sur-quelles-chaines_BPHH57ZVGNGP3OAMHFPLHZ6DRA/)
+- **Coupe et LdC de la CAF : programme des demi-finales retour**: [Link](https://fr.hespress.com/470068-coupe-et-ldc-de-la-caf-programme-des-demi-finales-retour.html)
+- **Ligue des champions : l’AS FAR en mission de confirmation à Berkane**: [Link](https://lematin.ma/sports/ligue-des-champions-las-far-en-mission-de-confirmation-a-berkane/340953)
+
+
+### chelsea (N/A, Sat, 18 Apr 2026 11:40:00 -0700)
+
+- **Chelsea vs Manchester United live updates: Premier League score latest as Cunha goal gives visitors lead**: [Link](https://www.nytimes.com/athletic/live-blogs/chelsea-vs-manchester-united-live-updates-premier-league-score-result/CAd7TsHKX378/)
+- **Ancelotti on alert: Estêvão off after 12 minutes at Chelsea ⚠️**: [Link](https://sports.yahoo.com/articles/ancelotti-alert-est-v-o-192600613.html)
+- **Estevao Willian injury news: Chelsea, Brazil starlet limps off match versus Manchester United**: [Link](https://www.nbcsports.com/soccer/news/estevao-willian-injury-news-chelsea-brazil-starlet-limps-off-match-versus-manchester-united)
+
+
 ### far vs berkane (N/A, Sat, 18 Apr 2026 12:00:00 -0700)
 
 - **FAR Rabat remain cautious despite first-leg advantage ahead of Berkane showdown**: [Link](https://www.cafonline.com/caf-champions-league/news/far-rabat-remain-cautious-despite-first-leg-advantage-ahead-of-berkane-showdown/)
