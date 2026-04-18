@@ -1,3 +1,31 @@
+### atlético madrid – real sociedad (N/A, Sat, 18 Apr 2026 11:10:00 -0700)
+
+- **Atlético de Madrid - Real Sociedad en directo | Final de la Copa del Rey hoy en vivo**: [Link](https://www.marca.com/futbol/copa-del-rey/atletico-r-sociedad/2026/04/18/01_0105_20260418_175_188-directo.html)
+- **Louzán anuncia en 'El Larguero' el cambio de fecha para la próxima Supercopa: "Estamos trabajando para desplazarla a febrero"**: [Link](https://cadenaser.com/audio/1776504074_270_cut/)
+- **Sevilla se viste de rayas en la previa de la final de la Copa del Rey**: [Link](https://www.abc.es/deportes/futbol/sevilla-viste-rayas-previa-final-copa-rey-20260418151219-nt.html)
+
+
+### chelsea – manchester united (N/A, Sat, 18 Apr 2026 11:10:00 -0700)
+
+- **Chelsea - Manchester Utd**: [Link](https://www.flashscore.com/match/football/chelsea-4fGZN2oK/manchester-united-ppjDR086/summary/lineups/?mid=42nywR4D)
+- **🚨 XIs confirmed: crisis clash at Stamford Bridge**: [Link](https://onefootball.com/fr/news/xis-confirmed-crisis-clash-at-stamford-bridge-42731511)
+- **LIVE: Chelsea vs Manchester United – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/4/18/live-chelsea-vs-manchester-united-english-premier-league)
+
+
+### roma – atalanta (N/A, Sat, 18 Apr 2026 11:10:00 -0700)
+
+- **✅ Roma-Atalanta | UFFICIALI: la scelta su Soulé, Scamacca, Raspadori e Pisilli**: [Link](https://onefootball.com/it/notizie/roma-atalanta-ufficiali-la-scelta-su-soule-scamacca-raspadori-e-pisilli-42731467)
+- **Roma-Atalanta: le formazioni ufficiali**: [Link](https://www.asroma.com/it/notizie/75216/roma-atalanta-le-formazioni-ufficiali)
+- **Roma-Atalanta,il pullman giallorosso arriva nell'indifferenza generale**: [Link](https://www.corrieredellosport.it/video/calcio/serie-a/roma/2026/04/18-148056948/roma-atalanta_il_pullman_giallorosso_arriva_nell_indifferenza_generale)
+
+
+### tottenham (N/A, Sat, 18 Apr 2026 09:50:00 -0700)
+
+- **Premier League LIVE: Tottenham vs Brighton before**: [Link](https://www.bbc.com/sport/football/live/cz7gz3xqy38t)
+- **De Zerbi's Spurs face Brighton with relegation now a real and present danger**: [Link](https://www.sportsadda.asia/football/features-football/de-zerbis-spurs-face-brighton-with-relegation-now-a-real-and-present-danger/)
+- **Licensable picture: Premier League - Tottenham Hotspur v Brighton & Hove Albion**: [Link](https://www.reutersconnect.com/item/premier-league-tottenham-hotspur-v-brighton-hove-albion/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNNEkxQkg3UVA)
+
+
 ### يورغن كلوب (N/A, Sat, 18 Apr 2026 10:20:00 -0700)
 
 - **يورجن كلوب يحدد وجهته المقبلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B4%D8%A7%D9%8A%D9%94%D8%B9%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%88%D8%A7%D9%82%D8%B9--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%A8%D8%AA%D8%B9%D8%AF-%D9%83%D9%84%D9%88%D8%A8-%D8%B9%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt0a2456d0dd38dcae)
