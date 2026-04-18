@@ -1,3 +1,38 @@
+### يورغن كلوب (N/A, Sat, 18 Apr 2026 10:20:00 -0700)
+
+- **يورجن كلوب يحدد وجهته المقبلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B4%D8%A7%D9%8A%D9%94%D8%B9%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%88%D8%A7%D9%82%D8%B9--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%A8%D8%AA%D8%B9%D8%AF-%D9%83%D9%84%D9%88%D8%A8-%D8%B9%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt0a2456d0dd38dcae)
+- **الهدف ليس ريال مدريد.. كلوب يسير على طريق زيدان!**: [Link](https://hihi2.com/2026/04/18/p3731041.html)
+- **يورغن كلوب "يتجاهل" ريال مدريد.. ويحلم بتحدٍ ألماني**: [Link](https://sports.asharq.com/football/105621/%D9%8A%D9%88%D8%B1%D8%BA%D9%86-%D9%83%D9%84%D9%88%D8%A8-%D9%8A%D8%AA%D8%AC%D8%A7%D9%87%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%8A%D8%AD%D9%84%D9%85-%D8%A8%D8%AA%D8%AD%D8%AF-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/)
+
+
+### توتنهام ضد برايتون (N/A, Sat, 18 Apr 2026 10:20:00 -0700)
+
+- **تشكيلة توتنهام الرسمية ضد برايتون في الدوري الإنجليزي**: [Link](https://hihi2.com/2026/04/18/p3731045.html)
+- **بنتانكور يعود لتعزيز آمال توتنهام في صراعه للبقاء بالدوري**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5263649-%D8%A8%D9%86%D8%AA%D8%A7%D9%86%D9%83%D9%88%D8%B1-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A2%D9%85%D8%A7%D9%84-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%B5%D8%B1%D8%A7%D8%B9%D9%87-%D9%84%D9%84%D8%A8%D9%82%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **الدوري الإنجليزي.. توتنهام يبحث عن الهروب من شبح الهبوط ضد برايتون**: [Link](https://darelhilal.com/News/3216722.aspx)
+
+
+### gençlerbirliği – galatasaray (N/A, Sat, 18 Apr 2026 10:10:00 -0700)
+
+- **Volkan Demirel: "Osimhen olsun ya da olmasın..."**: [Link](https://beinsports.com.tr/haber/volkan-demirel-osimhen-olsun-ya-da-olmasin)
+- **Mauro İcardi, Süper Lig'de bir ilki yaşadı**: [Link](https://www.nefes.com.tr/mauro-icardi-super-ligde-bir-ilki-yasadi-119053)
+- **Galatasaray, Gençlerbirliği Maçı İçin Kadro Açıkladı! GBvGS**: [Link](https://beyazbelgehaber.com/galatasaray-genclerbirligi-maci-icin-kadro-acikladi_-gbvgs,h513953)
+
+
+### dinosaures (N/A, Sat, 18 Apr 2026 09:00:00 -0700)
+
+- **Les Dinosaures Les Plus Dangereux Qui Ont Jadis Régné Sur Le Monde**: [Link](https://www.starsinsider.com/fr/lifestyle/822620/les-dinosaures-les-plus-dangereux-qui-ont-jadis-regne-sur-le-monde)
+- **Carcassonne. Dinosaures, opéra, cinéma… : sélection de sorties ce week-end**: [Link](https://www.ladepeche.fr/2026/04/18/dinosaures-opera-cinema-selection-de-sorties-ce-week-end-13332009.php)
+- **Dinosaures, opéra, cinéma… : que faire ce week-end à Carcassonne ?**: [Link](https://www.lindependant.fr/2026/04/17/dinosaures-opera-cinema-que-faire-ce-week-end-a-carcassonne-13331015.php)
+
+
+### expropriation (N/A, Sat, 18 Apr 2026 08:50:00 -0700)
+
+- **Expropriation : le ministère de l'Équipement et la CDG digitalisent les procédures d'indemnisation**: [Link](https://ledesk.ma/encontinu/expropriation-le-ministere-de-lequipement-et-la-cdg-digitalisent-les-procedures-dindemnisation/)
+- **Indemnités d’expropriation : une nouvelle plateforme digitale pour simplifier les procédures**: [Link](https://mobile.telquel.ma/instant-t/2026/04/17/indemnites-dexpropriation-une-nouvelle-plateforme-digitale-pour-simplifier-les-procedures_1985006/)
+- **Indemnités d’expropriation : le ministère de l’Équipement et la CDG misent sur le tout-numérique**: [Link](https://medias24.com/2026/04/17/indemnites-dexpropriation-le-ministere-de-lequipement-et-la-cdg-misent-sur-le-tout-numerique-1661525/)
+
+
 ### رئيس البرازيل (N/A, Sat, 18 Apr 2026 08:50:00 -0700)
 
 - **رئيس البرازيل: لا يحق لترامب أن يستيقظ صباحا ويهدد دولة ما**: [Link](https://www.alquds.co.uk/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%84%D8%A7-%D9%8A%D8%AD%D9%82-%D9%84%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A3%D9%86-%D9%8A%D8%B3%D8%AA%D9%8A%D9%82%D8%B8-%D8%B5/)
