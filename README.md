@@ -1,3 +1,17 @@
+### naples – lazio (N/A, Sat, 18 Apr 2026 09:10:00 -0700)
+
+- **Napoli vs Lazio: Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx2wj2n71q4t)
+- **Lazio faces Napoli with coaches in spotlight**: [Link](https://www.beinsports.com/en-nz/football/serie-a/articles/lazio-faces-napoli-with-coaches-in-spotlight-2026-04-17)
+- **✅ Napoli-Lazio line-ups: decision on A. Santos, Noslin, Anguissa**: [Link](https://onefootball.com/en/news/napoli-lazio-line-ups-decision-on-a-santos-noslin-anguissa-42730708)
+
+
+### tottenham – brighton (N/A, Sat, 18 Apr 2026 08:50:00 -0700)
+
+- **Premier League LIVE: Build-up, team news, score and live text updates**: [Link](https://www.bbc.com/sport/football/live/cz7gz3xqy38t)
+- **Tottenham Hotspur v Brighton: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/apr/18/tottenham-hotspur-v-brighton-premier-league-live)
+- **Watch Spurs vs Brighton: TV channel, live stream, NOW TV and score prediction**: [Link](https://www.skysports.com/football/news/11675/13532455/watch-spurs-vs-brighton-tv-channel-live-stream-now-tv-and-score-prediction)
+
+
 ### sundowns (N/A, Sat, 18 Apr 2026 07:50:00 -0700)
 
 - **Sundowns reach TotalEnergies CAF Champions League final with composed win over Esperance**: [Link](https://www.cafonline.com/caf-champions-league/news/sundowns-reach-totalenergies-caf-champions-league-final-with-composed-win-over-esperance/)
