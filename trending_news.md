@@ -1,3 +1,31 @@
+### colorado rapids – inter miami (N/A, Sat, 18 Apr 2026 13:00:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Set to Visit Colorado Rapids this Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-visit-colorado-rapids-this-saturday)
+- **Marcelo Balboa explains why he expects Lionel Messi will "show up" for Rapids-Inter Miami CF game**: [Link](https://www.cbsnews.com/colorado/video/marcelo-balboa-explains-why-he-expects-lionel-messi-will-show-up-for-rapids-inter-miami-cf-game/)
+- **Messi mania comes to Denver as Rapids host defending MLS Cup champion Inter Miami CF**: [Link](https://www.denvergazette.com/2026/04/17/messi-mania-comes-to-denver-as-rapids-host-defending-mls-cup-champion-inter-miami-cf/)
+
+
+### مباريات اليوم مباشر (N/A, Sat, 18 Apr 2026 12:50:00 -0700)
+
+- **جدول مباريات اليوم الجمعة 17 أبريل 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-17-%D8%A7%D9%94%D8%A8%D8%B1%D9%8A%D9%84-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blta598da5dfed6c6a8)
+- **مواعيد مباريات اليوم.. إنتر ضد كالياري والزمالك مع شباب بلوزداد**: [Link](https://www.youm7.com/story/2026/4/17/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A5%D9%86%D8%AA%D8%B1-%D8%B6%D8%AF-%D9%83%D8%A7%D9%84%D9%8A%D8%A7%D8%B1%D9%8A-%D9%88%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%85%D8%B9-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF/7379746)
+- **المشهد سبورتس: تأهل الزمالك لنهائي الكونفدرالية.. واقتراب نهاية مسيرة تال مع برشلونة - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/797727317843511-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%AA%D8%A7%D9%84-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/)
+
+
+### man united (N/A, Sat, 18 Apr 2026 12:40:00 -0700)
+
+- **Liam Rosenior explains Joao Pedro absence against Man United | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/liam-rosenior-explains-joao-pedro-absence-against-man-united)
+- **Chelsea hopeful of swift Joao Pedro comeback amid new injury blow**: [Link](https://www.msn.com/en-gb/sport/football/chelsea-hopeful-of-swift-joao-pedro-comeback-amid-new-injury-blow/ar-AA21cBZP)
+- **Why Joao Pedro Isn’t Playing for Chelsea vs. Man Utd**: [Link](https://www.si.com/soccer/why-joao-pedro-isnt-playing-chelsea-vs-man-utd-4-18-26)
+
+
+### الجيش الملكي (N/A, Sat, 18 Apr 2026 12:30:00 -0700)
+
+- **اشتباكات "نارية" بين جماهير الجيش الملكي ونهضة بركان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86/blt97001f3a3517f408)
+- **الشعباني: لن نستسلم للجيش الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D8%A7%D9%86%D9%8A-%D9%84%D9%86-%D9%86%D8%B3%D8%AA%D8%B3%D9%84%D9%85-%D9%84%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1732803.html)
+- **تشكيلة الجيش الملكي أمام نهضة بركان.. سانتوس يعتمد على نفس الأسماء بحضور سليم ومبيمبا منذ البداية**: [Link](https://m.elbotola.com/article/2026-04-18-16-28-547.html)
+
+
 ### asfar (N/A, Sat, 18 Apr 2026 12:30:00 -0700)
 
 - **Mamelodi Sundowns progress to African Champions League final**: [Link](https://www.reuters.com/sports/soccer/mamelodi-sundowns-progress-african-champions-league-final-2026-04-18/)
