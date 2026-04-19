@@ -1,3 +1,17 @@
+### hervé renard (N/A, Sun, 19 Apr 2026 00:30:00 -0700)
+
+- **Herve Renard tells AFP sacked as Saudi Arabia coach**: [Link](https://en.hespress.com/135986-herve-renard-tells-afp-sacked-as-saudi-arabia-coach.html)
+- **Greek Donis Tipped to Lead Saudi National Team for 2026 World Cup, Succeeding Renard**: [Link](https://m.elbotola.com/en/article/2026-04-17-20-05-628.html)
+- **Ex-Premier League midfielder to land World Cup job after boss is sacked weeks before tournament**: [Link](https://talksport.com/football/world-cup/4192619/georgios-donis-saudi-arabia-world-cup-herve-renard/)
+
+
+### ryanair (N/A, Sat, 18 Apr 2026 22:40:00 -0700)
+
+- **Ryanair Passengers in Italy and France Are Using This Genius Hack to Get Free Window Seats — Will It Work for You?**: [Link](https://www.travelandtourworld.com/news/article/ryanair-passengers-in-italy-and-france-are-using-this-genius-hack-to-get-free-window-seats-will-it-work-for-you/)
+- **Travel expert reveals hack for getting the best seats on Ryanair planes for free**: [Link](https://www.cumnockchronicle.com/news/26029307.ryanair-travel-hack-get-best-seats-free/)
+- **Travel expert reveals hack for getting the best seats on Ryanair planes for free**: [Link](https://www.oxfordmail.co.uk/news/national/uk-today/26027764.ryanair-travel-hack-get-best-seats-free/)
+
+
 ### مخرجات الحوار الاجتماعي (N/A, Sat, 18 Apr 2026 23:40:00 -0700)
 
 - **أخنوش: الحوار الاجتماعي خيار سياسي.. والحكومة أوفت بالتعهدات والالتزامات**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D9%86%D9%88%D8%B4-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D8%AE%D9%8A%D8%A7%D8%B1-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D9%88%D8%A7%D9%84-1732849.html)
