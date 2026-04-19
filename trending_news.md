@@ -1,3 +1,24 @@
+### السنغال (N/A, Sun, 19 Apr 2026 09:40:00 -0700)
+
+- **الإفراج عن ثلاثة مشجعين سنغاليين في المغرب**: [Link](https://www.aljazeera.net/sport/2026/4/18/%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D8%A7%D8%AC-%D8%B9%D9%86-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A%D9%86-%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D9%8A%D9%86-%D9%81%D9%8A)
+- **السنغال تواصل التعويل على الدبلوماسية لإخراج مدانين بالشغب خلال "الكان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A-1733397.html)
+- **محامي المشجعين السنغاليين: مغادرة 3 أشخاص السجن اليوم وطلب عفو ملكي للباقين**: [Link](https://ar.hibapress.com/details-718615.html)
+
+
+### sporting – benfica (N/A, Sun, 19 Apr 2026 09:20:00 -0700)
+
+- **Onde assistir o jogo do Sporting hoje? Saiba onde vai passar (domingo, 19/04/2026)**: [Link](https://tvhnews.com.br/onde-assistir-o-jogo-do-sporting-hoje-saiba-onde-vai-passar-domingo-19-04-2026/)
+- **Já há onze do Benfica para o dérbi — e que grandes surpresas!**: [Link](https://www.abola.pt/noticias/ja-ha-onze-do-benfica-para-o-derbi-e-que-grandes-surpresas-2026041915562970249)
+- **Por cá: "Hora da verdade" num "dérbi de milhões" em Alvalade**: [Link](https://www.noticiasaominuto.com/desporto/2975442/por-ca-hora-da-verdade-num-derbi-de-milhoes-em-alvalade)
+
+
+### city (N/A, Sun, 19 Apr 2026 08:10:00 -0700)
+
+- **Mayor and City Council Present the 2026 State of the City Address**: [Link](https://www.independent.com/2026/04/17/mayor-and-city-council-present-the-2026-state-of-the-city-address/)
+- **Transportation, Housing at Forefront as Goleta Outlines State of the City**: [Link](https://www.noozhawk.com/housing-transportation-at-forefront-as-goleta-outlines-state-of-the-city/)
+- **State of the City Chamber event highlights economic priorities, regional coordination across South Coast**: [Link](https://www.newspress.com/2026/04/10/state-of-the-city-chamber-event-highlights-economic-priorities-regional-coordination-across-south-coast/)
+
+
 ### arsenal (N/A, Sun, 19 Apr 2026 09:00:00 -0700)
 
 - **Every word of Mikel Arteta’s pre-City interview with Sky Sports**: [Link](https://arseblog.news/2026/04/every-word-of-mikel-artetas-pre-city-interview-with-sky-sports/)
