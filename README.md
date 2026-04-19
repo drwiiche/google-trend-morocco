@@ -1,3 +1,66 @@
+### مان سيتي ضد آرسنال (N/A, Sun, 19 Apr 2026 07:50:00 -0700)
+
+- **بين القمة والانهيار.. 90 دقيقة تهدد بتدمير آرسنال محليا وأوروبيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1--90-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A8%D8%AA%D8%AF%D9%85%D9%8A%D8%B1-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%88%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A7/bltee8794f4bae830be)
+- **مباشر مانشستر سيتي ضد أرسنال في الدوري الإنجليزي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/19/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B6%D8%AF-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **بطولة انكلترا: غوارديولا "الخسارة أمام أرسنال تعني نهاية كل شيء"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260417-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%AA%D8%B9%D9%86%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%83%D9%84-%D8%B4%D9%8A%D8%A1)
+
+
+### medhi benatia (N/A, Sun, 19 Apr 2026 07:50:00 -0700)
+
+- **Lorient vs Marseille: Ligue 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwyx9yw8161t)
+- **Marseille's Champions League hopes hurt despite team bonding trip to Marbella**: [Link](https://www.espn.com/soccer/story/_/id/48522799/marseille-champions-league-hopes-hurt-team-bonding-trip-marbella)
+- **Bamba Dieng hits nheights in Ligue 1**: [Link](https://africasoccer.com/bamba-dieng-lorient-best-ligue1-season/)
+
+
+### manchester city – arsenal (N/A, Sun, 19 Apr 2026 07:40:00 -0700)
+
+- **Manchester City vs Arsenal: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ckg99k2949pt)
+- **How Pep Guardiola is managing title race pressure in Manchester City dressing room**: [Link](https://onefootball.com/en/news/how-pep-guardiola-is-managing-title-race-pressure-in-manchester-city-dressing-room-42735505)
+- **LIVE: Manchester City vs Arsenal – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/4/19/live-manchester-city-vs-arsenal-premier-league-2)
+
+
+### vincent bolloré (N/A, Sun, 19 Apr 2026 07:40:00 -0700)
+
+- **OPINION. « Il est temps de poser une limite : la clause de conscience », par Emmanuel Carrère, Virginie Despentes et Leïla Slimani**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/opinions/37656690960909/opinion-il-est-temps-de-poser-une-limite-la-clause-de-conscience-par-emmanuel-carrere-virginie-despentes-et-leila-slimani)
+- **Grasset : Vincent Bolloré contre-attaque dans le « JDD » après le limogeage d’Olivier Nora et assure que « ceux qui partent vont permettre à de nouveaux auteurs d’être publiés »**: [Link](https://www.lemonde.fr/actualite-medias/article/2026/04/19/grasset-vincent-bollore-contre-attaque-dans-le-jdd-et-assure-que-ceux-qui-partent-vont-permettre-a-de-nouveaux-auteurs-d-etre-publies_6681434_3236.html)
+- **«Une petite caste qui se croit au-dessus de tout et de tous» : Bolloré répond au «séisme» chez Grasset**: [Link](https://www.lefigaro.fr/livres/une-petite-caste-qui-se-croit-au-dessus-de-tout-et-de-tous-bollore-repond-au-seisme-chez-grasset-20260419)
+
+
+### toulouse (N/A, Sun, 19 Apr 2026 07:40:00 -0700)
+
+- **Tiercé. Les pronostics de « L'Alsace » pour dimanche 19 avril - Prix de Monfort**: [Link](https://www.lalsace.fr/actualite/2026/04/18/les-pronostics-de-l-alsace-pour-dimanche-19-avril-prix-de-monfort)
+- **Les Notes des partants du Quinté+ de ce dimanche 19 avril**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-dimanche-19-avril)
+- **Quinté Plus PMU : Le Conquérant est ambitieux**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-le-conquerant-est-ambitieux-129536.html)
+
+
+### تشابي ألونسو (N/A, Sun, 19 Apr 2026 07:40:00 -0700)
+
+- **فيجو: ريال مدريد ظلم ألونسو.. وهذه المنتخبات المرشحة للقب المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AC%D9%88-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B8%D9%84%D9%85-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88--%D9%88%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D8%A9-%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt23e33fac5b640db4)
+- **حادثة فينيسيوس في الكلاسيكو تفتح جدل واضح داخل ريال مدريد!**: [Link](https://hihi2.com/2026/04/18/p3731239.html)
+- **عاجل: ألونسو يطلق صاروخاً على ريال مدريد - فريق 'من المستحيل تدريبه' والنخبة داخل النادي تسبب الصدام!**: [Link](https://yemen-press.net/news179639.html)
+
+
+### strasbourg – rennes (N/A, Sun, 19 Apr 2026 07:30:00 -0700)
+
+- **Privé de Valentin Rongier, suspendu, le Stade Rennais doit s'adapter à l'absence de son meilleur élément**: [Link](https://www.lequipe.fr/Football/Article/Prive-de-valentin-rongier-suspendu-le-stade-rennais-doit-s-adapter-a-l-absence-de-son-meilleur-element/1668954)
+- **Ligue 1 : les compositions officielles du multiplex**: [Link](https://www.onzemondial.com/ligue-1/ligue-1-les-compositions-officielles-du-multiplex-986115)
+- **Strasbourg - Rennes : à quelle heure et sur quelle chaîne regarder ce match de Ligue 1 ?**: [Link](https://www.leparisien.fr/guide-shopping/tv-streaming/strasbourg-rennes-a-quelle-heure-et-sur-quelle-chaine-regarder-ce-match-de-ligue-1-19-04-2026-DJUVRLPP5NF63NM76ZTJDCJNZM.php)
+
+
+### وزارة الفلاحة (N/A, Sun, 19 Apr 2026 07:30:00 -0700)
+
+- **وزارة الفلاحة تطلق منصة "أضاحي" لحجز وبيع الأغنام المستوردة**: [Link](https://elayem.news/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D8%A9-%D8%AA%D8%B7%D9%84%D9%82-%D9%85%D9%86%D8%B5%D8%A9-%D8%A3%D8%B6%D8%A7%D8%AD%D9%8A-%D9%84%D8%AD%D8%AC%D8%B2-%D9%88%D8%A8/)
+- **إطلاق منصة رقمية لتنظيم اقتناء أضاحي العيد إلكترونيًا**: [Link](https://www.awras.com/%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%86%D8%B5%D8%A9-%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A7%D9%82%D8%AA%D9%86%D8%A7%D8%A1-%D8%A3%D8%B6%D8%A7%D8%AD%D9%8A-%D8%A7/)
+- **"عملية التسجيل عبر المنصة لاقتناء الأضحية هي أهم مرحلة" - الوطن : الخبر**: [Link](https://www.elkhabar.com/nation/%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D8%A9-%D9%84%D8%A7%D9%82%D8%AA%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%8A%D8%A9-%D9%87%D9%8A-%D8%A3%D9%87%D9%85-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-270659)
+
+
+### rachat sfr (N/A, Sun, 19 Apr 2026 07:20:00 -0700)
+
+- **Rachat de SFR : Orange, Bouygues Telecom et Free décrochent l’accord de Patrick Drahi**: [Link](https://www.lefigaro.fr/secteur/high-tech/rachat-de-sfr-orange-bouygues-telecom-et-free-decrochent-l-accord-de-patrick-drahi-20260417)
+- **Vente de SFR : ce qui va changer pour votre abonnement si vous êtes client de l’opérateur**: [Link](https://www.capital.fr/conso/vente-de-sfr-ce-qui-va-changer-pour-votre-abonnement-si-vous-etes-client-de-loperateur-1525743)
+- **Rachat de SFR : faut-il craindre une hausse des prix des abonnements ?**: [Link](https://www.01net.com/actualites/rachat-de-sfr-faut-il-craindre-une-hausse-des-prix-des-abonnements.html)
+
+
 ### al wasl vs al-nassr (N/A, Sun, 19 Apr 2026 07:10:00 -0700)
 
 - **Today's match schedule and broadcast channels.. Al Wasl faces a tough test against Al Nasr, and fiery clashes in the Premier League**: [Link](https://www.voiceofemirates.com/en/sport/2026/04/19/todays-match-schedule-and-broadcast-channels-al-wasl-faces-a-tough-test-against-al-nasr-and-fiery-clashes-in-the-premier-league/)
