@@ -1,3 +1,31 @@
+### al wasl vs al-nassr (N/A, Sun, 19 Apr 2026 07:10:00 -0700)
+
+- **Today's match schedule and broadcast channels.. Al Wasl faces a tough test against Al Nasr, and fiery clashes in the Premier League**: [Link](https://www.voiceofemirates.com/en/sport/2026/04/19/todays-match-schedule-and-broadcast-channels-al-wasl-faces-a-tough-test-against-al-nasr-and-fiery-clashes-in-the-premier-league/)
+- **It has been revealed whether Ronaldo will play in the AFC Champions League match following his recent illness**: [Link](https://dailysports.net/news/it-has-been-revealed-whether-ronaldo-will-play-in-the-afc-champions-league-match-following-his-recent-illness/)
+- **Is Cristiano Ronaldo Playing Tonight for Al Nassr vs Al Wasl?**: [Link](https://www.aol.com/articles/cristiano-ronaldo-playing-tonight-al-100600996.html)
+
+
+### manchester city (N/A, Sun, 19 Apr 2026 07:10:00 -0700)
+
+- **Manchester City vs Arsenal: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ckg99k2949pt)
+- **Haaland: Every game is a final from now on**: [Link](https://www.mancity.com/news/mens/erling-haaland-pre-arsenal-focus-63912027)
+- **'The pressure doesn’t exist': How Guardiola managing the title race in the Man City dressing room**: [Link](https://tribuna.com/en/blogs/the-pressure-doesnt-exist-how-guardiola-managing-the-title-r/)
+
+
+### nottm forest – burnley (N/A, Sun, 19 Apr 2026 07:10:00 -0700)
+
+- **Nottingham Forest vs Burnley: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cpqxx45x0jxt)
+- **'Scars': Scott Parker looks back on Burnley's failure to capitalise on solid start**: [Link](https://www.burnleyexpress.net/sport/football/scars-scott-parker-looks-back-on-burnleys-failure-to-capitalise-on-solid-start-6591955)
+- **FOREST PREVIEW | REDS HOST CLARETS AT THE CITY GROUND**: [Link](https://www.nottinghamforest.co.uk/news/2026/april/18/forest-preview---reds-host-clarets-at-the-city-ground/)
+
+
+### الوصل ضد النصر (N/A, Sun, 19 Apr 2026 06:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الوصل والنصر في ربع نهائي دوري أبطال آسيا "2" 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%88%D8%B5%D9%84-%D9%88%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-2-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd2c7cb03b00c4c00)
+- **مباشر.. مباراة النصر ضد الوصل في ربع نهائي دوري أبطال آسيا 2.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/19/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D9%88%D8%B5%D9%84-%D9%81%D9%8A-%D8%B1%D8%A8%D8%B9)
+- **قبل النصر.. فيتوريا يكتسح أنديته السابقة في المواجهة الأولى**: [Link](https://www.alarabiya.net/sport/2026/04/18/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A%D8%AA%D9%88%D8%B1%D9%8A%D8%A7-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D8%A7%D9%86%D8%AF%D9%8A%D8%AA%D9%87-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A7%D9%88%D9%84%D9%89)
+
+
 ### aston villa – sunderland (N/A, Sun, 19 Apr 2026 05:30:00 -0700)
 
 - **Starting XI: Unchanged Team For Sunderland At Villa Park?**: [Link](https://rokerreport.sbnation.com/match-previews/134925/starting-xi-unchanged-team-for-sunderland-at-villa-park)
