@@ -1,3 +1,38 @@
+### aston villa – sunderland (N/A, Sun, 19 Apr 2026 05:30:00 -0700)
+
+- **Starting XI: Unchanged Team For Sunderland At Villa Park?**: [Link](https://rokerreport.sbnation.com/match-previews/134925/starting-xi-unchanged-team-for-sunderland-at-villa-park)
+- **Villa to Shut Out Sunderland at 13/8 as Forest 4/5 Result & 2+ Goals Adds Extra Value**: [Link](https://news.williamhill.com/football/premier-league-predictions-and-betting-odds-for-sunday-19th-april-2026/)
+- **Aston Villa vs Sunderland betting offer: Bet £10 get £50 in free bets on Betfred**: [Link](https://talksport.com/betting/4188965/aston-villa-vs-sunderland-betting-offer-50-free-bets/)
+
+
+### monaco – auxerre (N/A, Sun, 19 Apr 2026 05:30:00 -0700)
+
+- **DIRECT. Monaco-Auxerre (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/monaco-auxerre-live/676060)
+- **DIRECT. Monaco déjà mené par l'AJA ! PSG-Lyon à 20h45**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-monaco-deja-mene-par-l-aja-psg-lyon-a-20h45/pfRqySmK/)
+- **PRONOS PARIS RMC Le pari sûr du 19 avril – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-19-avril-ligue-1_AN-202604180241.html)
+
+
+### hellas vérone – ac milan (N/A, Sun, 19 Apr 2026 05:30:00 -0700)
+
+- **Serie A: Verona vs. Milan – Probable line-ups and where to watch on TV**: [Link](https://football-italia.net/serie-a-verona-vs-milan-probable-line-ups/)
+- **Sunday's Serie A predictions and previews including Juventus vs. Bologna, Hellas Verona vs. AC Milan**: [Link](https://www.sportsmole.co.uk/football/juventus/serie-a-predictions/feature/juve-to-boost-cl-prospects-sundays-serie-a-predictions-and-previews_595950.html)
+- **Verona v AC Milan Goal Scorer Odds**: [Link](https://sportsbook.fanduel.com/soccer/italian-serie-a/verona-v-ac-milan-35458345?tab=goal-scorer)
+
+
+### vente sfr (N/A, Sun, 19 Apr 2026 04:00:00 -0700)
+
+- **Rachat de SFR : Orange, Bouygues Telecom et Free décrochent l’accord de Patrick Drahi**: [Link](https://www.lefigaro.fr/secteur/high-tech/rachat-de-sfr-orange-bouygues-telecom-et-free-decrochent-l-accord-de-patrick-drahi-20260417)
+- **Vente de SFR : ce qui va changer pour votre abonnement si vous êtes client de l’opérateur**: [Link](https://www.capital.fr/conso/vente-de-sfr-ce-qui-va-changer-pour-votre-abonnement-si-vous-etes-client-de-loperateur-1525743)
+- **Rachat de SFR : faut-il craindre une hausse des prix des abonnements ?**: [Link](https://www.01net.com/actualites/rachat-de-sfr-faut-il-craindre-une-hausse-des-prix-des-abonnements.html)
+
+
+### dialogue social (N/A, Sun, 19 Apr 2026 01:00:00 -0700)
+
+- **Dialogue social : temps de travail, retraites, statuts… le point sur la session d’avril**: [Link](https://lematin.ma/nation/temps-de-travail-retraites-statuts-le-point-sur-le-dialogue-social/340997)
+- **Salaires, retraites, IR… le gouvernement défend son bilan social à 5 mois des élections**: [Link](https://private-admin.medias24.com/2026/04/17/dialogue-social-bilan-et-cap-maintenu-1661835/)
+- **Dialogue social : nouveaux acquis sociaux actés**: [Link](https://www.leconomiste.com/flash-infos/dialogue-social-nouveaux-acquis-sociaux-actes/)
+
+
 ### إيفرتون ضد ليفربول (N/A, Sun, 19 Apr 2026 05:20:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إيفرتون وليفربول في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltaf776d6b7e5c8431)
