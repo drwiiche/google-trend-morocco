@@ -1,3 +1,52 @@
+### radio mars (N/A, Sun, 19 Apr 2026 12:00:00 -0700)
+
+- **مساعد مدرب فرنسا: "لن يشارك في كأس العالم أي لاعب لم يُستدع سابقا للمنتخب الفرنسي الأول"**: [Link](https://m.elbotola.com/article/2026-04-17-21-50-540.html)
+- **بين المغرب وفرنسا.. لماذا لم يحسم أيوب بوعدي قراره حتى الآن؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%84%D9%85-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%94%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%82%D8%B1%D8%A7%D8%B1%D9%87-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%A7%D9%93%D9%86/bltea7746f946980a91)
+- **مستجد.. أيوب بوعدي لن يلعب كأس العالم مع هذا المنتخب**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/492861.html)
+
+
+### classement ligue 1 (N/A, Sun, 19 Apr 2026 12:00:00 -0700)
+
+- **Monaco : la terrible boulette de Hradecky contre Auxerre**: [Link](https://www.footmercato.net/a7249064860853801485-monaco-la-terrible-boulette-de-hradecky-contre-auxerre)
+- **ASM-AJA : les tops, les flops**: [Link](https://asm-supporters.fr/actualites/65770-asm-aja-les-tops-les-flops-2)
+- **DIRECT. Suivez le week-end de football européen sur Flashscore**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-monaco-deja-mene-par-l-aja-psg-lyon-a-20h45/pfRqySmK/)
+
+
+### ترتيب الدوري الفرنسي (N/A, Sun, 19 Apr 2026 12:00:00 -0700)
+
+- **اسطورة فرنسا يهاجم بشدة مهدي بنعطية: الأمر يشبه الليمونة!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%A8%D8%B4%D8%AF%D8%A9-%D9%85%D9%87%D8%AF%D9%8A-%D8%A8%D9%86%D8%B9%D8%B7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1-%D9%8A%D8%B4%D8%A8%D9%87-%D8%A7%D9%84%D9%84%D9%8A%D9%85%D9%88%D9%86%D8%A9/blt09013029fd570061)
+- **بنـعطية معلنا حالة الطوارئ: ما قدمه مارسيليا أمام لوريان “فضيحة كروية”**: [Link](https://www.hesport.com/%D8%A8%D9%86%D9%80%D8%B9%D8%B7%D9%8A%D8%A9-%D9%85%D8%B9%D9%84%D9%86%D8%A7-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%88%D8%A7%D8%B1%D8%A6-%D9%81%D9%8A-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A-435499.html)
+- **قدم.. أولمبيك مارسيليا يتكبد خسارة جديدة في الدوري الفرنسي**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%AA%D9%83%D8%A8%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/3910935)
+
+
+### safi foot (N/A, Sun, 19 Apr 2026 11:50:00 -0700)
+
+- **Coupe de la CAF : l’Olympic de Safi à un pas de la finale**: [Link](https://fr.hespress.com/470073-coupe-de-la-caf-lolympic-de-safi-a-un-pas-de-la-finale.html)
+- **OC Safi-USM Alger : heure et diffusion du choc maghrébin**: [Link](https://www.lebrief.ma/oc-safi-usm-alger-heure-et-diffusion-du-choc-maghrebin-100149019/)
+- **Rahouli : « L'élimination du Wydad nous donne confiance, nous sommes prêts à assurer la qualification face à l'USM Alger**: [Link](https://m.elbotola.com/fr/article/2026-04-18-14-12-16.html)
+
+
+### juventus (N/A, Sun, 19 Apr 2026 11:50:00 -0700)
+
+- **Spalletti: "Juve da scudetto l'anno prossimo? Stiamo calmini, una bella camomilla prima di dormire..."**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/19-04-2026/juve-bologna-spalletti-camomilla.shtml)
+- **Serie A | Le formazioni ufficiali di Juventus-Bologna**: [Link](https://www.juventus.com/it/news/articoli/serie-a-2025-2026-juventus-bologna-formazioni-ufficiali)
+- **Juventus - Bologna live: Calcio - Serie A**: [Link](https://www.eurosport.it/calcio/serie-a/2025-2026/live-juventus-bologna_mtc1598818/live-commentary.shtml)
+
+
+### سبورتينغ ضد بنفيكا (N/A, Sun, 19 Apr 2026 11:30:00 -0700)
+
+- **تفاصيل المباراة | أرسنال VS سبورتينغ لشبونة - دوري أبطال أوروبا - الأربعاء 15-04-2026**: [Link](https://www.ysscores.com/ar/match/5205796/Arsenal-FC-vs-Sporting-CP-statics)
+- **القنوات الناقلة لمباراة سبورتينغ لشبونة ضد بنفيكا اليوم في الدوري البرتغالي مع الموعد والتشكيلة - المشهد**: [Link](https://www.almashhad.com/article/218257510540304-sports/429924083383683-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **موعد مباراة سبورتينغ لشبونة وبنفيكا والقنوات الناقلة في قمة الدوري البرتغالي اليوم**: [Link](https://radar2.net/1057127/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9-%D9%88%D8%A8%D9%86%D9%81%D9%8A%D9%83%D8%A7-%D9%88/)
+
+
+### بي اس جي ضد أولمبيك ليون (N/A, Sun, 19 Apr 2026 11:10:00 -0700)
+
+- **قبل قمة سان جيرمان وليون.. الداخلية الفرنسية تصدر قرارا صادما للمشجعين**: [Link](https://www.aljazeera.net/sport/2026/4/17/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%AD%D8%B8%D8%B1-%D8%AA%D9%86%D9%82%D9%84-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A-%D9%84%D9%8A%D9%88%D9%86)
+- **فابيان رويز يعود لقائمة باريس سان جيرمان أمام ليون بعد غياب ثلاثة أشهر**: [Link](https://m.elbotola.com/article/2026-04-19-11-15-451.html)
+- **سان جيرمان وإنريكي تحت وطأة الجدول المزدحم.. 9 مباريات في 27 يوماً**: [Link](https://www.alaraby.co.uk/sport/%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%AA%D8%AD%D8%AA-%D9%88%D8%B7%D8%A3%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%B2%D8%AF%D8%AD%D9%85-9-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%81%D9%8A-27-%D9%8A%D9%88%D9%85%D8%A7%D9%8B)
+
+
 ### juventus – bologne (N/A, Sun, 19 Apr 2026 11:10:00 -0700)
 
 - **Juventus probable lineup vs Bologna: McKennie’s return changes the system**: [Link](https://www.juvefc.com/juventus-probable-lineup-bologna-mckennie/)
