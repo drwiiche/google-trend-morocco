@@ -1,3 +1,17 @@
+### gta 6 (N/A, Sat, 18 Apr 2026 18:50:00 -0700)
+
+- **Roblox has surpassed Grand Theft Auto VI in popularity on the PlayStation Store.**: [Link](https://en.gamegpu.com/news/igry/roblox-oboshla-grand-theft-auto-vi-po-populyarnosti-v-playstation-store)
+- **GTA 6 Official Release Date Update Leaves Gamers Marking Their Calendars**: [Link](https://screenrant.com/gta-6-official-release-date-update-may-2026/)
+- **GTA 6 Price In India, Release Date, Characters, Gameplay, And More**: [Link](https://www.timesnownews.com/technology-science/gaming/gta-6-price-in-india-release-date-characters-gameplay-and-more-article-154094813)
+
+
+### mls (N/A, Sat, 18 Apr 2026 16:00:00 -0700)
+
+- **FC Cincinnati - Chicago Fire FC 1 - 1 | GOL - Tom Barlow**: [Link](https://onefootball.com/en/video/fc-cincinnati-chicago-fire-fc-1-1-gol-tom-barlow-42733429)
+- **Evander to the rescue: FC Cincinnati's star man delivers in draw**: [Link](https://www.mlssoccer.com/news/evander-to-the-rescue-fc-cincinnati-s-star-man-delivers-in-draw)
+- **TUNE IN | FC Cincinnati vs Chicago Fire FC**: [Link](https://www.fccincinnati.com/news/tune-in-fc-cincinnati-vs-chicago-fire-fc)
+
+
 ### guerre iran (N/A, Sat, 18 Apr 2026 18:10:00 -0700)
 
 - **EN DIRECT, guerre au Moyen-Orient : les gardiens de la révolution en Iran affirment que tout navire qui s’approchera du détroit d’Ormuz sera « pris pour cible »**: [Link](https://www.lemonde.fr/international/live/2026/04/18/en-direct-guerre-au-moyen-orient-emmanuel-macron-accuse-le-hezbollah-d-etre-responsable-de-l-attaque-contre-des-casques-bleus-au-liban-l-iran-dit-avoir-recu-de-nouvelles-propositions-des-etats-unis-et-les-examine_6679867_3210.html)
