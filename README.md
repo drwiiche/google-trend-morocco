@@ -1,3 +1,45 @@
+### مناخ (N/A, Sun, 19 Apr 2026 10:40:00 -0700)
+
+- **بين أمطار غزيرة وحر مبكر.. مناخ المغرب يدخل مرحلة التقلب السريع**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%AD%D8%B1-%D9%85%D8%A8%D9%83%D8%B1-%D9%85%D9%86%D8%A7%D8%AE-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A-1733570.html)
+- **طقس بارد مع رياح قوية متوقع اليوم الثلاثاء**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AD%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D9%82%D8%B7%D8%B1%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%81%D9%88%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A7/)
+- **بيضاويون يقصدون الشواطئ هروبا من موجة البحر**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A8%D9%8A%D8%B6%D8%A7%D9%88%D9%8A%D9%88%D9%86-%D9%8A%D9%82%D8%B5%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B7%D8%A6-%D9%87%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D9%86-%D9%85%D9%88%D8%AC%D8%A9-2-996578.html)
+
+
+### سفيان بوفال (N/A, Sun, 19 Apr 2026 10:30:00 -0700)
+
+- **بوفال يفتتح سجله التهديفي مع لوهافر**: [Link](https://www.ahdath.info/article/251299/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A8%D9%88%D9%81%D8%A7%D9%84-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%B3%D8%AC%D9%84%D9%87-%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A-%D9%85%D8%B9-%D9%84%D9%88%D9%87%D8%A7%D9%81%D8%B1)
+- **سفيان بوفال يفتتح رصيده التهديفي مع لوهافر في الدوري الفرنسي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%88%D9%81%D8%A7%D9%84-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A3%D9%88%D9%84-%D8%A3%D9%87%D8%AF%D8%A7%D9%81%D9%87-%D9%85%D8%B9-%D9%84%D9%88%D9%87%D8%A7%D9%81%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/18905)
+- **نجم “ملحمة قطر” يطارد حلم تمثيل المغرب في مونديال 2026**: [Link](https://m.alayam24.com/articles-620776.html)
+
+
+### pl (N/A, Sun, 19 Apr 2026 10:20:00 -0700)
+
+- **Pierwszy budynek biurowy w Polsce odporny na skutki klęsk żywiołowych i odłamki amunicji**: [Link](https://www.wnp.pl/budownictwo/pierwszy-budynek-biurowy-w-polsce-odporny-na-skutki-klesk-zywiolowych-i-odlamki-amunicji,1053949.html)
+- **Wielka przemiana Poznania. Oto 10 inwestycji, które odmieniły miasto**: [Link](https://poznan.naszemiasto.pl/wielka-przemiana-poznania-te-inwestycje-odmienily-krajobraz-miasta-w-ostatnich-latach-zobaczcie-zdjecia/ar/c3p2-28826217)
+- **Biurowiec, jakiego w Polsce jeszcze nie było. "Gotowy na najgorsze"**: [Link](https://spidersweb.pl/2026/04/biurowiec-poznan-bezpieczenstwo-certyfikat.html)
+
+
+### safi vs usma (N/A, Sun, 19 Apr 2026 10:20:00 -0700)
+
+- **USM Alger's Dehiri: Safi Match Will Be Tougher, We'll Fight for Qualification**: [Link](https://m.elbotola.com/en/article/2026-04-18-16-28-152.html)
+- **CAF Confederation Cup: date, time and head-to-head history of the OC Safi – USM Alger clash**: [Link](https://foot-africa.com/en/news/caf-confederation-cup-date-time-and-head-to-head-history-of-the-oc-safi-usm-alger-clash-1170893/)
+- **USM Alger Lands in Morocco Ahead of Decisive Semi-Final Second Leg**: [Link](https://www.moroccoworldnews.com/2026/04/287323/usm-alger-lands-in-morocco-ahead-of-decisive-semi-final-second-leg/)
+
+
+### premier league table (N/A, Sun, 19 Apr 2026 08:50:00 -0700)
+
+- **Updated Premier League standings, schedule: What’s next for Arsenal, Man City?**: [Link](https://bolavip.com/en/premier-league/updated-premier-league-standings-schedule-whats-next-for-arsenal-man-city)
+- **Updated Premier League standings as title race, Champions League and relegation fight heats up**: [Link](https://tribuna.com/en/news/2026-04-13-updated-premier-league-standings-as-title-race-champions-league-and-relegation-fight-heat/)
+- **Aston Villa 4-3 Sunderland: Tammy Abraham scores late winner**: [Link](https://www.bbc.com/sport/football/live/c3exx07xk7et)
+
+
+### premier league classement (N/A, Sun, 19 Apr 2026 08:50:00 -0700)
+
+- **Everton 1-2 Liverpool, Premier League : Beto répond à Salah**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/everton-liverpool-live/673827)
+- **Liverpool : le geste insolite de Mohamed Salah après la victoire contre Everton**: [Link](https://www.footmercato.net/a5192581684794196367-liverpool-le-geste-insolite-de-mohamed-salah-apres-la-victoire-contre-everton)
+- **Angleterre: Liverpool arrache sur le fil le derby contre Everton et se relance**: [Link](https://sport.le360.ma/football/premier-league/angleterre-liverpool-arrache-sur-le-fil-le-derby-contre-everton-et-se-relance_IGHITASSHBH5DLUM4OID3DLVEQ/)
+
+
 ### السنغال (N/A, Sun, 19 Apr 2026 09:40:00 -0700)
 
 - **الإفراج عن ثلاثة مشجعين سنغاليين في المغرب**: [Link](https://www.aljazeera.net/sport/2026/4/18/%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D8%A7%D8%AC-%D8%B9%D9%86-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A%D9%86-%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D9%8A%D9%86-%D9%81%D9%8A)
