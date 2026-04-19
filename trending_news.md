@@ -1,3 +1,10 @@
+### guerre iran (N/A, Sat, 18 Apr 2026 18:10:00 -0700)
+
+- **EN DIRECT, guerre au Moyen-Orient : les gardiens de la révolution en Iran affirment que tout navire qui s’approchera du détroit d’Ormuz sera « pris pour cible »**: [Link](https://www.lemonde.fr/international/live/2026/04/18/en-direct-guerre-au-moyen-orient-emmanuel-macron-accuse-le-hezbollah-d-etre-responsable-de-l-attaque-contre-des-casques-bleus-au-liban-l-iran-dit-avoir-recu-de-nouvelles-propositions-des-etats-unis-et-les-examine_6679867_3210.html)
+- **Ils ont "ouvert le feu" sans avertissement: un pétrolier essuie des tirs de bateaux iraniens dans le détroit d'Ormuz**: [Link](https://www.bfmtv.com/international/moyen-orient/iran/ils-ont-ouvert-le-feu-sans-avertissement-un-petrolier-essuie-des-tirs-de-bateaux-iraniens-dans-le-detroit-d-ormuz_AD-202604180232.html)
+- **Téhéran rouvre le détroit d'Ormuz, Trump maintient le blocus des ports iraniens**: [Link](https://www.france24.com/fr/moyen-orient/20260417-en-direct-liban-rapporte-actes-agression-isra%C3%ABl-violation-cessez-le-feu-iran-moyen-orient-etats-unis-hezbollah-netanyahu-trump)
+
+
 ### from season 4 (N/A, Sat, 18 Apr 2026 16:00:00 -0700)
 
 - **‘From’ Renewed For Fifth and Final Season (Exclusive)**: [Link](https://www.hollywoodreporter.com/tv/tv-news/from-renewed-season-5-final-interview-1236565157/)
