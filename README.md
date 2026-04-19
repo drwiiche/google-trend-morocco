@@ -1,3 +1,17 @@
+### kick off delayed (N/A, Sun, 19 Apr 2026 12:40:00 -0700)
+
+- **Arsenal Uefa Warning Late Kickoff: 3 things it signals for Arteta**: [Link](https://www.el-balad.com/16917942)
+- **Arsenal and Mikel Arteta cautioned as UEFA hit Real Madrid with fine over Bayern Munich clash**: [Link](https://www.goal.com/en-us/lists/uefa-disciplinary-real-madrid-bayern-munich-fine-arsenal-mikel-arteta-warning/blt03326649caf5894c)
+- **UEFA fines Real Madrid for delayed kickoff, Arsenal handed official warning**: [Link](https://www.msn.com/en-us/sports/soccer/uefa-fines-real-madrid-for-delayed-kickoff-arsenal-handed-official-warning/ar-AA218PZU)
+
+
+### نايف أكرد (N/A, Sun, 19 Apr 2026 12:40:00 -0700)
+
+- **مارسيليا يوضح جديد إصابة أكرد**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D9%88%D8%B6%D8%AD-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A3%D9%83%D8%B1%D8%AF-1732604.html)
+- **صدمة قبل المونديال.. نهاية موسم نجم المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84--%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%85%D9%88%D8%B3%D9%85-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt1ecdd84f424a099a)
+- **حبيب باي يكشف جديد إصابة نايف أكرد**: [Link](https://www.ahdath.info/article/251283/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%AD%D8%A8%D9%8A%D8%A8-%D8%A8%D8%A7%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%86%D8%A7%D9%8A%D9%81-%D8%A3%D9%83%D8%B1%D8%AF)
+
+
 ### radio mars (N/A, Sun, 19 Apr 2026 12:00:00 -0700)
 
 - **مساعد مدرب فرنسا: "لن يشارك في كأس العالم أي لاعب لم يُستدع سابقا للمنتخب الفرنسي الأول"**: [Link](https://m.elbotola.com/article/2026-04-17-21-50-540.html)
