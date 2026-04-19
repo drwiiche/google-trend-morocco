@@ -1,3 +1,38 @@
+### juventus – bologne (N/A, Sun, 19 Apr 2026 11:10:00 -0700)
+
+- **Juventus probable lineup vs Bologna: McKennie’s return changes the system**: [Link](https://www.juvefc.com/juventus-probable-lineup-bologna-mckennie/)
+- **Sunday best bets: Serie A and Ligue 1 tips for 19 April 2026**: [Link](https://www.sportinglife.com/football/news/sunday-best-bets-serie-a-and-ligue-1-tips-for-19-april-2026/231552)
+- **Sunday's Serie A predictions and previews including Juventus vs. Bologna, Hellas Verona vs. AC Milan**: [Link](https://www.sportsmole.co.uk/football/juventus/serie-a-predictions/feature/juve-to-boost-cl-prospects-sundays-serie-a-predictions-and-previews_595950.html)
+
+
+### psg vs lyon (N/A, Sun, 19 Apr 2026 11:10:00 -0700)
+
+- **Paris Saint-Germain vs Olympique Lyonnais: Ligue 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c3v661z6y91t)
+- **‘We’ve already beaten other favorites’, Lyon’s Endrick warns PSG**: [Link](https://www.thenews.pk/print/1410873-we-ve-already-beaten-other-favorites-lyon-s-endrick-warns-psg)
+- **How to watch today's Paris Saint-Germain vs Lyon Ligue 1 game: Live stream, TV channel, and start time**: [Link](https://www.goal.com/en-ca/news/how-to-watch-today-s-paris-saint-germain-vs-lyon-ligue-1-game-live-stream-tv-channel-and-start-time/blt8f29d98b2a342995)
+
+
+### paris-sg – lyon (N/A, Sun, 19 Apr 2026 11:00:00 -0700)
+
+- **Le PSG se paye l’OL**: [Link](https://www.footmercato.net/a7659862435761896035-le-psg-se-paye-lol)
+- **PSG : Fabián Ruiz de retour dans le groupe après 3 mois d'absence**: [Link](https://fr.hespress.com/470348-psg-fabian-ruiz-de-retour-dans-le-groupe-apres-3-mois-dabsence.html)
+- **PSG-Lyon : 2 énormes surprises dans le 11 de l’OL**: [Link](https://www.football365.fr/psg-lyon-2-enormes-surprises-dans-le-11-de-lol-10290418.html)
+
+
+### mourinho (N/A, Sun, 19 Apr 2026 09:50:00 -0700)
+
+- **Football gossip: Rogers, Jones, Livramento, Mourinho, Camavinga, Onyeka, Conte**: [Link](https://www.bbc.com/sport/football/articles/c9372vjp895o)
+- **Morgan Rogers: Bayern Munich Hold 'Concrete' Interest in Aston Villa Star**: [Link](https://www.footballinsider247.com/morgan-rogers-bayern-munich-hold-concrete-interest-in-aston-villa-star/)
+- **Aston Villa now favourites to sign the next Morgan Rogers in £40m deal**: [Link](https://www.footballfancast.com/aston-villa-favourites-to-sign-the-next-morgan-rogers-in-james-trafford/)
+
+
+### jürgen klopp (N/A, Sun, 19 Apr 2026 09:50:00 -0700)
+
+- **Eintracht Frankfurt: Keiner hat mehr Bock auf Eintracht!**: [Link](https://www.bild.de/sport/fussball/eintracht-frankfurt-keiner-hat-mehr-bock-auf-eintracht-69e498aac8c973c925cb202c)
+- **Mit mannschaftlicher Geschlossenheit zurück auf die große Bühne**: [Link](https://rbleipzig.com/de/news/nachdreher-eintracht-frankfurt-vs-rb-leipzig-bundesliga-am-18-april-2026)
+- **Europapokal-Qualifikation fix: Spielt RB Leipzig wieder Champions League?**: [Link](https://www.bundesliga.com/de/bundesliga/news/rb-leipzig-europapokal-champions-league-ole-werner-36969)
+
+
 ### مناخ (N/A, Sun, 19 Apr 2026 10:40:00 -0700)
 
 - **بين أمطار غزيرة وحر مبكر.. مناخ المغرب يدخل مرحلة التقلب السريع**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%AD%D8%B1-%D9%85%D8%A8%D9%83%D8%B1-%D9%85%D9%86%D8%A7%D8%AE-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A-1733570.html)
