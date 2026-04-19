@@ -1,3 +1,31 @@
+### arsenal (N/A, Sun, 19 Apr 2026 09:00:00 -0700)
+
+- **Every word of Mikel Arteta’s pre-City interview with Sky Sports**: [Link](https://arseblog.news/2026/04/every-word-of-mikel-artetas-pre-city-interview-with-sky-sports/)
+- **Lauren: All the pressure is on Man City**: [Link](https://africanfootball.com/news/837797/Lauren-All-the-pressure-is-on-Man-City)
+- **Every word of Arteta's pre-Manchester City presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-artetas-pre-manchester-city-presser)
+
+
+### rayan cherki (N/A, Sun, 19 Apr 2026 08:50:00 -0700)
+
+- **Long live Rayan Cherki! 23 moments of genius from the Premier League’s great entertainer - The Athletic**: [Link](https://www.nytimes.com/athletic/7203040/2026/04/18/rayan-cherki-manchester-city-genius-analysed/)
+- **How this cheeky soccer maverick has shaken up the Premier League title race**: [Link](https://www.dailygazette.com/leader_herald/ap/sports/how-this-cheeky-soccer-maverick-has-shaken-up-the-premier-league-title-race/article_0216783e-60cb-5c5f-9e09-218ede3426dd.html)
+- **Cherki gibt Einblicke in die Zusammenarbeit mit Pep Guardiola**: [Link](https://onefootball.com/fr/video/cherki-gibt-einblicke-in-die-zusammenarbeit-mit-pep-guardiola-42724017)
+
+
+### bundesliga (N/A, Sun, 19 Apr 2026 08:50:00 -0700)
+
+- **Deutschland: Manzambi mit dem fünften Saisontor | blue News**: [Link](https://www.bluewin.ch/de/sport/fussball/manzambi-mit-dem-fuenften-saisontor-3196104.html)
+- **SC Freiburg vs. 1. FC Heidenheim: Ein Tor Unterschied reicht Freiburg zum Sieg gegen FCH**: [Link](https://www.news.de/sport/859528183/sc-freiburg-vs-1-fc-heidenheim-am-19-04-2026-in-der-bundesliga-25-26-tv-spielbericht-tore-aufstellung-und-tabelle-in-der-zusammenfassung/1/)
+- **Einzelkritik: Welche Noten geben Sie den FCH-Spielern für die Leistung gegen den SC Freiburg?**: [Link](https://www.hz.de/sport/1-fc-heidenheim/einzelkritik-welche-noten-geben-sie-den-fch-spielern-fuer-die-leistung-gegen-den-sc-freiburg)
+
+
+### maryam touzani (N/A, Sun, 19 Apr 2026 08:10:00 -0700)
+
+- **Maryam Touzani sur «Calle Málaga»: «J’avais envie de montrer la beauté de ces corps vieillissants»**: [Link](https://fr.le360.ma/culture/maryam-touzani-sur-calle-malaga-javais-envie-de-montrer-la-beaute-de-ces-corps-vieillissants_57ZC7SPFMZB4NLPLUVEUQXEPWM/)
+- **Cinéma. Dans "Calle Málaga", Maryam Touzani célèbre la vie et lève le tabou de la vieillesse**: [Link](https://medias24.com/2026/04/18/cinema-dans-calle-malaga-maryam-touzani-celebre-la-vie-et-leve-le-tabou-de-la-vieillesse-1661369/)
+- **«Calle Málaga» : Maryam Touzani filme la mémoire et le désir à Tanger**: [Link](https://lematin.ma/culture/calle-malaga-maryam-touzani-filme-la-memoire-et-le-desir-a-tanger/341068)
+
+
 ### اتحاد العاصمة (N/A, Sun, 19 Apr 2026 08:40:00 -0700)
 
 - **ضربة موجعة لأولمبيك آسفي قبل موقعة اتحاد العاصمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AC%D8%B9%D8%A9-%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D9%93%D8%B3%D9%81%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9/bltc582b20c26326bc2)
