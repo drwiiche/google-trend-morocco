@@ -1,3 +1,17 @@
+### نصير مزراوي (N/A, Sun, 19 Apr 2026 02:20:00 -0700)
+
+- **مانشستر يونايتد يسقط تشيلسي وبرايتون يعقد مهمة توتنهام**: [Link](https://www.aljazeera.net/sport/2026/4/19/%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D9%82%D8%B7-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%8A%D8%B9%D9%82%D8%AF)
+- **قدم.. مانشستر يونايتد يستعيد توازنه على حساب تشيلسي**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D9%87-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/3911047)
+- **تشلسي حُرم من ركلة جزاء أمام يونايتد.. الشريف يؤكد بالدليل**: [Link](https://www.alaraby.co.uk/sport/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%AD%D9%8F%D8%B1%D9%85-%D9%85%D9%86-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%A3%D9%85%D8%A7%D9%85-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D9%81-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A8%D8%A7%D9%84%D8%AF%D9%84%D9%8A%D9%84)
+
+
+### gaz (N/A, Sun, 19 Apr 2026 02:10:00 -0700)
+
+- **Énergie : le Maroc face à la ruée européenne sur le gaz**: [Link](https://fr.hespress.com/469377-energie-le-maroc-face-a-la-ruee-europeenne-sur-le-gaz.html)
+- **Carburants: pourquoi les prix ne suivent pas le même rythme?**: [Link](https://fr.le360.ma/economie/carburants-pourquoi-les-prix-ne-suivent-pas-le-meme-rythme_HUPJZ735U5CT7B5F2QLXCGT5OY/)
+- **Comment la guerre au Moyen-Orient impacte l’économie marocaine (CEEPP)**: [Link](https://lematin.ma/nation/guerre-du-golfe-2026-choc-energetique-mondial/340964)
+
+
 ### hervé renard (N/A, Sun, 19 Apr 2026 00:30:00 -0700)
 
 - **Herve Renard tells AFP sacked as Saudi Arabia coach**: [Link](https://en.hespress.com/135986-herve-renard-tells-afp-sacked-as-saudi-arabia-coach.html)
