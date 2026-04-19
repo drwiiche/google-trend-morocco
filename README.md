@@ -1,3 +1,24 @@
+### مخرجات الحوار الاجتماعي (N/A, Sat, 18 Apr 2026 23:40:00 -0700)
+
+- **أخنوش: الحوار الاجتماعي خيار سياسي.. والحكومة أوفت بالتعهدات والالتزامات**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D9%86%D9%88%D8%B4-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D8%AE%D9%8A%D8%A7%D8%B1-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D9%88%D8%A7%D9%84-1732849.html)
+- **زيادات في الأجور وتعديلات ضريبية.. الحكومة تكشف نتائج الحوار الاجتماعي**: [Link](https://ar.hibapress.com/details-718405.html)
+- **"CDT" تصر على الزيادة في الأجور وتعتبر جواب الحكومة "مخيبا للآمال"**: [Link](https://ar.lesiteinfo.com/politique/cdt-%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-%D9%88%D8%AA%D8%B9%D8%AA%D8%A8%D8%B1-%D8%AC%D9%88%D8%A7%D8%A8-996639.html)
+
+
+### مطر (N/A, Sat, 18 Apr 2026 22:40:00 -0700)
+
+- **الطقس اليوم.. نشاط رياح مثيرة للأتربة وأمطار ببعض المناطق قد تصل للسيول**: [Link](https://www.youm7.com/story/2026/4/17/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%86%D8%B4%D8%A7%D8%B7-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%A3%D8%AA%D8%B1%D8%A8%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D9%82%D8%AF/7380063)
+- **الأرصاد: سحب ممطرة ورياح مثيرة للأتربة في مناطق متعددة**: [Link](https://afkarjadida.com/265676/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B3%D8%AD%D8%A8-%D9%85%D9%85%D8%B7%D8%B1%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%A3%D8%AA%D8%B1%D8%A8%D8%A9/)
+- **الأحوال الجوية غدًا الأحد في القاهرة والمحافظات تتسم بأمطار وسحب كثيفة**: [Link](https://pls48.net/15908/%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%BA%D8%AF%D9%8B%D8%A7-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%88/)
+
+
+### barbara lefebvre (N/A, Sat, 18 Apr 2026 15:00:00 -0700)
+
+- **La « Grande Gueule » Barbara Lefebvre écartée jusqu’à nouvel ordre de l’antenne de RMC après sa condamnation pour injure publique**: [Link](https://www.leparisien.fr/culture-loisirs/tv/condamnee-pour-injure-publique-la-grande-gueule-barbara-lefebvre-ecartee-jusqua-nouvel-ordre-de-lantenne-de-rmc-17-04-2026-BZ57JUA6MNGH7LESUZ25X2CAZI.php)
+- **RMC écarte la « Grande Gueule » Barbara Lefebvre après sa condamnation pour ses propos sur les gens du voyage**: [Link](https://www.huffingtonpost.fr/medias/article/rmc-ecarte-la-grande-gueule-barbara-lefebvre-apres-sa-condamnation-revele-le-parisien_262783.html)
+- **Comme le demandaient le SNJ et la CGT RMC-BFM, Barbara Lefebvre écartée de l'antenne, suite à sa condamnation.**: [Link](https://www.leblogtvnews.com/2026/04/le-snj-et-la-cgt-rmc-bfm-demandent-que-barbara-lefevre-soit-ecartee-de-l-antenne-suite-a-sa-condamnation.html)
+
+
 ### gta 6 (N/A, Sat, 18 Apr 2026 18:50:00 -0700)
 
 - **Roblox has surpassed Grand Theft Auto VI in popularity on the PlayStation Store.**: [Link](https://en.gamegpu.com/news/igry/roblox-oboshla-grand-theft-auto-vi-po-populyarnosti-v-playstation-store)
