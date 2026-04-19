@@ -1,3 +1,45 @@
+### رضا الهجهوج (N/A, Sun, 19 Apr 2026 14:40:00 -0700)
+
+- **وفاء عابر للحدود.. جماهير اتحاد العاصمة الجزائري تساند رضا الهجهوج في قلب المغرب**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%81%D8%A7%D8%A1-%D8%B9%D8%A7%D8%A8%D8%B1-%D9%84%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D8%AA%D8%B3%D8%A7%D9%86%D8%AF-%D8%B1%D8%B6%D8%A7-%D8%A7%D9%84%D9%87%D8%AC%D9%87%D9%88%D8%AC)
+- **بالصور.. جماهير اتحاد الجزائر أشعلت فتيل الأحداث المؤسفة**: [Link](https://inews.ma/news/8285441)
+- **قبل "صدام" الكاف.. جماهير اتحاد العاصمة الجزائري ترفع "لافتة تضامن" مع رضا الهجهوج المعتقل**: [Link](https://www.akhbarona.com/sport/worldfoot/424608.html)
+
+
+### عاصفة (N/A, Sun, 19 Apr 2026 14:30:00 -0700)
+
+- **تحذير من العاصفة الترابية شيماء القادمة من ليبيا**: [Link](https://ekhbary24.com/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D8%B4%D9%8A%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D9%82%D8%A7%D8%AF/)
+- **بريئون تمامًا من هذه المسميات.. الأرصاد تنفي علاقتها بتسمية العاصفة شيماء**: [Link](https://www.masrawy.com/news/news_egypt/details/2026/4/18/2974428/%D8%A8%D8%B1%D9%8A%D8%A6%D9%88%D9%86-%D8%AA%D9%85%D8%A7%D9%85-%D8%A7-%D9%85%D9%86-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%B3%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%86%D9%81%D9%8A-%D8%B9%D9%84%D8%A7%D9%82%D8%AA%D9%87%D8%A7-%D8%A8%D8%AA%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%B4%D9%8A%D9%85%D8%A7%D8%A1)
+- **الأرصاد تحسم الجدل حول تسمية العواصف في مصر وتوضح تطورات الحالة الجوية**: [Link](https://aleqaria.com.eg/post/details/329142/%D8%A7%D9%84%D8%B9%D9%88%D8%A7%D8%B5%D9%81-57110)
+
+
+### ملك البحرين (N/A, Sun, 19 Apr 2026 14:30:00 -0700)
+
+- **ملك البحرين: إجراءات ضد من خانوا الوطن خلال الهجمات الإيرانية**: [Link](https://www.aljazeera.net/news/2026/4/19/%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%B6%D8%AF-%D9%85%D9%86-%D8%AE%D8%A7%D9%86%D9%88%D8%A7-%D8%A7%D9%84%D9%88%D8%B7%D9%86-%D8%AE%D9%84%D8%A7%D9%84)
+- **على غرار الكويت.. البحرين تبدأ إجراءات سحب الجنسية من بعض مواطنيها**: [Link](https://www.masrawy.com/news/news_publicaffairs/details/2026/4/19/2974821/%D8%B9%D9%84%D9%89-%D8%BA%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D8%AA%D8%A8%D8%AF%D8%A3-%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D8%A8%D8%B9%D8%B6-%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A%D9%87%D8%A7)
+- **فيديو.. جلالة الملك المعظم خلال استقبال كبار المسؤولين: الدولة ماضية بكل حزم في معالجة تداعيات الحرب**: [Link](https://www.alayam.com/online/local/1130278/News.html)
+
+
+### achraf hakimi (N/A, Sun, 19 Apr 2026 13:50:00 -0700)
+
+- **France League One Soccer**: [Link](https://www.idahopress.com/sports/national/france-league-one-soccer/image_3a8c0411-98e8-5b72-9416-93d966f2872f.html)
+- **France League One Soccer**: [Link](https://www.couriernews.com/sports/france-league-one-soccer/image_b7cb0469-55a3-5667-a00b-b7c284edd68a.html)
+- **France League One Soccer**: [Link](https://lufkindailynews.com/anpa/sports/france-league-one-soccer/image_3fafccc9-c407-5808-b209-92f95cc3415e.html)
+
+
+### طاقة المغرب (N/A, Sun, 19 Apr 2026 13:40:00 -0700)
+
+- **"طاقة المغرب" تستهدف مضاعفة إنتاج الكهرباء 300% بعيداً عن الفحم**: [Link](https://asharqbusiness.com/companies/129131/%D8%B7%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B1%D9%8A%D8%AF-%D9%85%D8%B6%D8%A7%D8%B9%D9%81%D8%A9-%D8%A5%D9%86%D8%AA%D8%A7%D8%AC-%D8%A7%D9%84%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A1-3-%D9%85%D8%B1%D8%A7%D8%AA-%D8%A8%D8%B9%D9%8A%D8%AF%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D9%81%D8%AD%D9%85/)
+- **الكهرباء من شمس الصحراء.. رؤية مغربية طموحة تصطدم بعوائق**: [Link](https://www.dw.com/ar/%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B1%D8%A4%D9%8A%D8%A9-%D8%B7%D9%85%D9%88%D8%AD%D8%A9-%D8%AA%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D8%B5%D8%B9%D9%88%D8%A8%D8%A7%D8%AA/a-76798638)
+- **نقص الكفاءات يضعف تسارع التحول الرقمي والأخضر بالمغرب**: [Link](https://www.expresstv.ma/en-vedette/125311/)
+
+
+### coupe de la caf (N/A, Sun, 19 Apr 2026 12:30:00 -0700)
+
+- **OCS-USMA: Après les débordements de ses supporters, l’attitude du club algérien laisse planer un sérieux doute**: [Link](https://sport.le360.ma/football/coupe-caf/ocs-usma-apres-les-debordements-de-ses-supporters-lattitude-du-club-algerien-laisse-planer-un_P67L6MWZZ5ELXBXWEZEZPG5PXE/)
+- **Coupe de la CAF : l’Olympic de Safi à un pas de la finale**: [Link](https://fr.hespress.com/470073-coupe-de-la-caf-lolympic-de-safi-a-un-pas-de-la-finale.html)
+- **OC Safi-USM Alger : heure et diffusion du choc maghrébin**: [Link](https://www.lebrief.ma/oc-safi-usm-alger-heure-et-diffusion-du-choc-maghrebin-100149019/)
+
+
 ### مباريات اليوم مباشر (N/A, Sun, 19 Apr 2026 12:50:00 -0700)
 
 - **جدول مباريات اليوم الجمعة 17 أبريل 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-17-%D8%A7%D9%94%D8%A8%D8%B1%D9%8A%D9%84-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blta598da5dfed6c6a8)
