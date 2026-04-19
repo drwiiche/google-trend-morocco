@@ -1,3 +1,38 @@
+### اتحاد العاصمة (N/A, Sun, 19 Apr 2026 08:40:00 -0700)
+
+- **ضربة موجعة لأولمبيك آسفي قبل موقعة اتحاد العاصمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AC%D8%B9%D8%A9-%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D9%93%D8%B3%D9%81%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9/bltc582b20c26326bc2)
+- **عملية جراحية تبعد المودن عن آسفي**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%AC%D8%B1%D8%A7%D8%AD%D9%8A%D8%A9-%D8%AA%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D8%AF%D9%86-%D8%B9%D9%86-%D8%A2%D8%B3%D9%81%D9%8A-1733518.html)
+- **لاعب اتحاد العاصمة: مواجهة أولمبيك آسفي صعبة**: [Link](https://www.radiomars.ma/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A2%D8%B3%D9%81/)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 19 Apr 2026 08:30:00 -0700)
+
+- **أين بصمة روسينيور؟ موسم كارثي يلخص معاناة تشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D9%8A%D9%86-%D8%A8%D8%B5%D9%85%D8%A9-%D8%B1%D9%88%D8%B3%D9%8A%D9%86%D9%8A%D9%88%D8%B1-%D9%85%D9%88%D8%B3%D9%85-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A-%D9%8A%D9%84%D8%AE%D8%B5-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/bltad1eec0502c391d6)
+- **مانشستر يونايتد يسقط تشيلسي وبرايتون يعقد مهمة توتنهام**: [Link](https://www.aljazeera.net/sport/2026/4/19/%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D9%82%D8%B7-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%8A%D8%B9%D9%82%D8%AF)
+- **قدم.. مانشستر يونايتد يستعيد توازنه على حساب تشيلسي**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D9%87-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/3911047)
+
+
+### bayern – stuttgart (N/A, Sun, 19 Apr 2026 08:00:00 -0700)
+
+- **FC Bayern heute live in der Bundesliga: Die Übertragung des Spiels gegen den VfB Stuttgart**: [Link](https://www.dazn.com/de-AT/news/fussball/fc-bayern-heute-live-bundesliga-uebertragung-spiel-vfb-stuttgart/1qzj8al2agqid1uwjurj63i5wa)
+- **FC Bayern verzichtet am Sonntag nach VfB-Spiel auf mögliche Meisterfeier**: [Link](https://sport.sky.de/fussball/artikel/fc-bayern-verzichtet-am-sonntag-nach-vfb-spiel-auf-moegliche-meisterfeier/13533726/34130)
+- **Bayern heute meister? bierduschen bleiben aus!**: [Link](https://tsv-pelkum.de/sport/bayern-heute-meister-bierduschen-bleiben-aus)
+
+
+### البايرن ضد شتوتغارت (N/A, Sun, 19 Apr 2026 08:00:00 -0700)
+
+- **لماذا يرفض بايرن الاحتفال بالدوري الألماني حال حسمه ضد شتوتجارت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B1%D9%81%D8%B6-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A-%D8%AD%D8%A7%D9%84-%D8%AD%D8%B3%D9%85%D9%87-%D8%B6%D8%AF-%D8%B4%D8%AA%D9%88%D8%AA%D8%AC%D8%A7%D8%B1%D8%AA/blt3bea6070f6e181df)
+- **بطولة ألمانيا: هوفنهايم يهزم دورتموند ويضع بايرن على بُعد نقطة من الاحتفاظ باللقب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260418-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%87%D9%88%D9%81%D9%86%D9%87%D8%A7%D9%8A%D9%85-%D9%8A%D9%87%D8%B2%D9%85-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%88%D9%8A%D8%B6%D8%B9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%B9%D9%84%D9%89-%D8%A8%D9%8F%D8%B9%D8%AF-%D9%86%D9%82%D8%B7%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D8%B8-%D8%A8%D8%A7%D9%84%D9%84%D9%82%D8%A8)
+- **«فينسنت كومباني يطرق أبواب التاريخ».. المدرب البلجيكي على بُعد خطوة واحدة من تحقيق انتصاره الخمسين في الدوري الألماني**: [Link](https://tribuna.com/ar/news/2026-04-19-fynsnt-kwmbny-ytrq-bwb-ltrykh-lmdrb-lbljyky-l-bd-khtw-whd-mn-thqyq-ntsrh-lkhmsyn-fy-ldwry/)
+
+
+### fortune maroc (N/A, Sun, 19 Apr 2026 07:50:00 -0700)
+
+- **Fortune Maroc inaugure l’extension de son unité industrielle à Bouskoura pour 220 MDH**: [Link](https://ledesk.ma/encontinu/fortune-maroc-inaugure-lextension-de-son-unite-industrielle-a-bouskoura-pour-220-mdh/)
+- **Fortune Maroc inaugure l’extension de son usine**: [Link](https://www.leconomiste.com/flash-infos/fortune-maroc-inaugure-lextension-de-son-usine/)
+- **Industrie : extension d’une unité de Fortune Maroc à Bouskoura, 220 MDH d’investissement**: [Link](https://medias24.com/2026/04/18/industrie-extension-dune-unite-de-fortune-maroc-a-bouskoura-220-mdh-dinvestissement-1661941/)
+
+
 ### مان سيتي ضد آرسنال (N/A, Sun, 19 Apr 2026 07:50:00 -0700)
 
 - **بين القمة والانهيار.. 90 دقيقة تهدد بتدمير آرسنال محليا وأوروبيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1--90-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A8%D8%AA%D8%AF%D9%85%D9%8A%D8%B1-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%88%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A7/bltee8794f4bae830be)
