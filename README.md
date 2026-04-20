@@ -1,3 +1,29 @@
+### avion ryanair maroc (N/A, Mon, 20 Apr 2026 06:10:00 -0700)
+
+- **Marne : un avion Ryanair décolle en direction du Maroc sans ses 192 passagers**: [Link](https://www.lefigaro.fr/actualite-france/marne-un-avion-ryanair-decolle-en-direction-du-maroc-sans-ses-192-passagers-20260419)
+- **Un vol Ryanair décolle à vide laissant 190 passagers dans un aéroport français**: [Link](https://www.lesoir.be/741721/article/2026-04-19/un-vol-ryanair-decolle-vide-laissant-190-passagers-dans-un-aeroport-francais)
+- **Aéroport de Vatry : 190 passagers cloués au sol**: [Link](https://www.lunion.fr/id800508/article/2026-04-15/aeroport-de-vatry-une-greve-du-personnel-cloue-190-passagers-au-sol)
+
+
+### olivier nora (N/A, Mon, 20 Apr 2026 05:50:00 -0700)
+
+- **OPINION. « Il est temps de poser une limite : la clause de conscience », par Emmanuel Carrère, Virginie Despentes et Leïla Slimani**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/opinions/37656690960909/opinion-il-est-temps-de-poser-une-limite-la-clause-de-conscience-par-emmanuel-carrere-virginie-despentes-et-leila-slimani)
+- **EXCLUSIF – «Affaire» Grasset : la réponse de Vincent Bolloré**: [Link](https://www.lejdd.fr/culture/exclusif-affaire-grasset-la-reponse-de-vincent-bollore-171828)
+- **Olivier Nora viré de Grasset : la vraie raison de son départ**: [Link](https://www.nouvelobs.com/bibliobs/20260415.OBS114199/olivier-nora-vire-de-grasset-la-vraie-raison-de-son-depart.html)
+
+
+### droit de douane (N/A, Mon, 20 Apr 2026 04:20:00 -0700)
+
+
+
+
+### yahoo (N/A, Mon, 20 Apr 2026 02:30:00 -0700)
+
+- **Authorities identify 8 young children shot and killed by a Louisiana father**: [Link](https://www.cnn.com/2026/04/20/us/shreveport-louisiana-shooting-what-we-know-hnk)
+- **8 children killed in tragic mass shooting linked to domestic dispute**: [Link](https://www.yahoo.com/news/videos/8-children-killed-tragic-mass-131200279.html)
+- **8 children killed in Shreveport mass shooting identified by coroner’s office**: [Link](https://www.ksla.com/2026/04/19/eight-shreveport-children-dead-after-what-began-domestic-dispute-police-say/)
+
+
 ### maroc annonce (N/A, Mon, 20 Apr 2026 05:40:00 -0700)
 
 - **Préparatifs pour le Mondial 2026: un 2e match amical pour les Lions de l’Atlas**: [Link](https://www.lesiteinfo.com/sport/671221-preparatifs-pour-le-mondial-2026-un-2e-match-amical-pour-les-lions-de-latlas.html)
