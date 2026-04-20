@@ -1,3 +1,45 @@
+### برج محمد السادس (N/A, Mon, 20 Apr 2026 13:40:00 -0700)
+
+- **فندق وشقق فاخرة و38 مصعدا.. برج محمد السادس مرصد بانورامي يفتح أبوابه بـ250 درهما (فيديو)**: [Link](https://al3omk.com/1154230.html)
+- **برج محمد السادس..تفاصيل ما يوجد في كل طابق**: [Link](https://zaiocity.net/2026/04/20/%D8%A8%D8%B1%D8%AC-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D8%A7-%D9%8A%D9%88%D8%AC%D8%AF-%D9%81%D9%8A-%D9%83%D9%84-%D8%B7%D8%A7/)
+- **برج محمد السادس يفتح أبوابه للعموم وهذا هو ثمن التذكرة**: [Link](https://nichan.ma/345209/)
+
+
+### حصاد (N/A, Mon, 20 Apr 2026 13:30:00 -0700)
+
+- **زراعة الوادي الجديد: توريد 37 ألف طن قمح لصوامع الخارجة وشرق العوينات**: [Link](https://www.youm7.com/story/2026/4/20/%D8%B2%D8%B1%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D9%88%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AA%D9%88%D8%B1%D9%8A%D8%AF-37-%D8%A3%D9%84%D9%81-%D8%B7%D9%86-%D9%82%D9%85%D8%AD-%D9%84%D8%B5%D9%88%D8%A7%D9%85%D8%B9-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%D8%A9/7384215)
+- **”ملحمة القمح في البحيرة”.. انضباط في التوريد وسرعة في المحاسبة**: [Link](https://www.eldyar.net/632597)
+- **استلام أكثر من 9 ألف طن قمح في مستهل موسم حصاد 2026 بالمنيا**: [Link](https://www.almasryalyoum.com/news/details/4249388)
+
+
+### crystal palace (N/A, Mon, 20 Apr 2026 13:10:00 -0700)
+
+- **Licensable picture: Premier League - Crystal Palace v West Ham United**: [Link](https://www.reutersconnect.com/item/premier-league-crystal-palace-v-west-ham-united/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNNEsxS1FCVDE)
+- **Licensable picture: Premier League - Everton v Liverpool**: [Link](https://www.reutersconnect.com/item/premier-league-everton-v-liverpool/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNNEoxMEpKRlI%3D?utm_medium=rcom-article-media&utm_campaign=rcom-rcp-lead)
+- **Licensable picture: Premier League - Manchester City v Arsenal**: [Link](https://www.reutersconnect.com/item/premier-league-manchester-city-v-arsenal/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNNEoxRjZHM0Y)
+
+
+### مكناس (N/A, Mon, 20 Apr 2026 12:50:00 -0700)
+
+- **الأمير مولاي رشيد يفتتح الدورة الـ18 للملتقى الدولي للفلاحة بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%B1%D8%B4%D9%8A%D8%AF-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%8018-%D9%84%D9%84%D9%85-1734198.html)
+- **قطاع الإنتاج الحيواني بالمغرب.. رهان الاستدامة والسيادة الغذائية في صلب أجندة "سيام 2026"**: [Link](https://2m.ma/ar/news/%D9%82%D8%B7%D8%A7%D8%B9-%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D8%A7%D8%AC-%D8%A7%D9%84%D8%AD%D9%8A%D9%88%D8%A7%D9%86%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B1%D9%87%D8%A7%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AF%D8%A7%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%BA%D8%B0%D8%A7%D8%A6%D9%8A%D8%A9-20260418)
+- **بالمعرض الدولي للفلاحة بمكناس.. المعهد الوطني للبحث الزراعي يعلن عن شراكاته الاستراتيجية من الجديدة**: [Link](https://www.ahdath.info/article/251312/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D9%88%D8%B7%D9%86%D9%8A/%D8%A8%D8%A7%D9%84%D9%85%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%84%D9%81%D9%84%D8%A7%D8%AD%D8%A9-%D8%A8%D9%85%D9%83%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%B9%D9%87%D8%AF-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D8%A8%D8%AD%D8%AB-%D8%A7%D9%84%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%B4%D8%B1%D8%A7%D9%83%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+
+
+### الكلاسيكو (N/A, Mon, 20 Apr 2026 12:50:00 -0700)
+
+- **ليلة الحسم أم ممر شرفي؟.. رسميا: تحديد موعد كلاسيكو الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%94%D9%85-%D9%85%D9%85%D8%B1-%D8%B4%D8%B1%D9%81%D9%8A--%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/blt795f2fd6796469a5)
+- **موعد "الكلاسيكو" بين برشلونة وريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/4/20/%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **رسميا : موعد مباراتي ريال مدريد وبرشلونة في الجولة 36 من الليغا**: [Link](https://hihi2.com/2026/04/20/p3733461.html)
+
+
+### زلزال (N/A, Mon, 20 Apr 2026 12:30:00 -0700)
+
+- **فيديو.. هكذا اهتزت الأرض بالمباني خلال زلزال اليابان**: [Link](https://www.skynewsarabia.com/world/1865238-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%87%D8%AA%D8%B2%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%A8%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86)
+- **زلزال اليابان: تخفيض مستوى التحذير من وقوع تسونامي بعد زلزال بقوة 7.7 درجات قبالة الساحل الشمالي الشرقي**: [Link](https://www.bbc.com/arabic/articles/c62jvj3ye81o)
+- **زلزال عنيف يضرب اليابان.. محررة CNN تصف ما حدث بالطابق الـ18**: [Link](https://arabic.cnn.com/world/video/2026/04/20/v192794-japan-tsunami-threat-earthquake-strikes)
+
+
 ### تسوية (N/A, Mon, 20 Apr 2026 13:20:00 -0700)
 
 - **قانون الشيكات الجديد يسرّع تسوية 16 ألف ملف بقيمة 630 مليون درهم**: [Link](https://www.hespress.com/%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%B4%D9%8A%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%B3%D8%B1%D9%91%D8%B9-%D8%AA%D8%B3%D9%88%D9%8A%D8%A9-16-%D8%A3%D9%84%D9%81-1734150.html)
