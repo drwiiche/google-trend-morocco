@@ -1,3 +1,10 @@
+### somaliland (N/A, Mon, 20 Apr 2026 14:20:00 -0700)
+
+- **Somaliland: Isolated by Muslims, Engaging Israel**: [Link](https://blogs.timesofisrael.com/somaliland-isolated-by-muslims-engaging-israel/)
+- **Iran Condemns Israeli Regime’s Violation of Somalia’s National Sovereignty**: [Link](https://wanaen.com/iran-condemns-israeli-regimes-violation-of-somalias-national-sovereignty/)
+- **16 Arab and Muslim nations react strongly after Israel appoints ambassador to Somaliland**: [Link](https://allisraelnews.com/16-arab-and-muslim-nations-react-strongly-after-israel-appoints-ambassador-to-somaliland)
+
+
 ### john ternus (N/A, Mon, 20 Apr 2026 14:50:00 -0700)
 
 - **Tim Cook to become Apple Executive Chairman John Ternus to become Apple CEO**: [Link](https://www.apple.com/newsroom/2026/04/tim-cook-to-become-apple-executive-chairman-john-ternus-to-become-apple-ceo/)
