@@ -1,3 +1,17 @@
+### منتخب السنغال لكرة القدم (N/A, Mon, 20 Apr 2026 03:30:00 -0700)
+
+- **المغرب يقدم هدية للسنغال قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%AF%D9%85-%D9%87%D8%AF%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt3f5dcbaceb76a48c)
+- **يخوض المنتخب الوطني المغربي لكرة القدم مباراة ودية**: [Link](https://niya.maroc.ma/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%86%D8%B8%D9%8A%D8%B1%D9%87/)
+- **اختبار لاتيني للأسود بأمريكا**: [Link](https://assabah.ma/917760.html)
+
+
+### goud (N/A, Mon, 20 Apr 2026 01:10:00 -0700)
+
+- **Goudprijzen vandaag (20 april): De verkoopprijs van goudstaven is met 400.000 VND per ounce gedaald ten opzichte van een week geleden.**: [Link](https://www.vietnam.vn/nl/gia-vang-hom-nay-20-4-vang-mieng-giam-400-nghin-dong-luong-ban-ra-so-voi-mot-tuan-truoc)
+- **Vietnamese dong en goudkoersen - 15 april**: [Link](https://nl.marketscreener.com/beursnieuws/vietnamese-dong-en-goudkoersen-15-april-ce7e50dcd98bf02c)
+- **De prijs van SJC-goud is gedaald tot 171,3 miljoen VND per tael.**: [Link](https://www.vietnam.vn/nl/gia-vang-sjc-giam-xuong-con-171-3-trieu-dong-mot-luong)
+
+
 ### arbitre de football (N/A, Mon, 20 Apr 2026 02:30:00 -0700)
 
 - **Maroc-Sénégal: l’arbitre très lourdement sanctionné par la FIFA !**: [Link](https://www.sports.fr/football/can/maroc-senegal-larbitre-tres-lourdement-sanctionne-par-la-fifa-1007659.html)
