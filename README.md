@@ -1,3 +1,17 @@
+### royal air maroc (N/A, Sun, 19 Apr 2026 20:00:00 -0700)
+
+- **Royal Air Maroc renforce sa flotte avec un nouveau Boeing 737-8 Max**: [Link](https://fr.le360.ma/economie/royal-air-maroc-renforce-sa-flotte-avec-un-nouveau-boeing-737-8-max_YBRDR2CWOZH6PFW6WGZEQGM76Y/)
+- **La RAM reçoit son 12ᵉ Boeing 787-8 Dreamliner - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/04/11/la-ram-recoit-son-12%E1%B5%89-boeing-787-8-dreamliner-1658397/)
+- **Royal Air Maroc réceptionne un nouvel appareil long-courrier de type Boeing 787-8 Dreamliner**: [Link](https://www.financialafrik.com/2026/04/13/royal-air-maroc-receptionne-un-nouvel-appareil-long-courrier-de-type-boeing-787-8-dreamliner/)
+
+
+### iphone 18 (N/A, Sun, 19 Apr 2026 17:40:00 -0700)
+
+- **iPhone18 Pro用カメラ保護カバーから4色の本体カラーが判明か - iPhone Mania**: [Link](https://iphone-mania.jp/iphone18-601380/)
+- **噂：iPhone 18 Proの可変絞りレンズ、製造開始！ - すまほん!!**: [Link](https://smhn.info/202604-iphone-18-pro-variable-aperture-camera-supply-chain-report)
+- **AppleはiPhone 18 Proの価格を据え置き、Androidの競合他社との競争を激化させている。**: [Link](https://www.vietnam.vn/ja/apple-giu-gia-iphone-18-pro-doi-thu-android-them-phan-canh-tranh)
+
+
 ### ضياء العوضي (N/A, Sun, 19 Apr 2026 15:10:00 -0700)
 
 - **وفاة غامضة للطبيب ضياء العوضي في دبي**: [Link](https://ekhbary24.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D9%84%D9%84%D8%B7%D8%A8%D9%8A%D8%A8-%D8%B6%D9%8A%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%81%D9%8A-%D8%AF%D8%A8%D9%8A/)
