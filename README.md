@@ -1,3 +1,31 @@
+### maroc annonce (N/A, Mon, 20 Apr 2026 05:40:00 -0700)
+
+- **Préparatifs pour le Mondial 2026: un 2e match amical pour les Lions de l’Atlas**: [Link](https://www.lesiteinfo.com/sport/671221-preparatifs-pour-le-mondial-2026-un-2e-match-amical-pour-les-lions-de-latlas.html)
+- **Mondial 2026 : le Maroc défiera le Salvador avant son test face à la Norvège**: [Link](https://fr.hespress.com/470216-mondial-2026-le-maroc-defiera-le-salvador-avant-son-test-face-a-la-norvege.html)
+- **L’Equipe Nationale « A » affrontera la Norvège en match amical**: [Link](https://frmf.ma/fr/articles/lequipe-nationale-a-affrontera-la-norvege-en-match-amical)
+
+
+### دبابة (N/A, Mon, 20 Apr 2026 05:10:00 -0700)
+
+- **حزب الله يعلن تدمير 4 دبابات ميركافا وإسرائيل تنذر سكان 80 قرية جنوب لبنان**: [Link](https://www.aljazeera.net/news/2026/4/20/%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D9%87%D8%AF%D9%86%D8%A9-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%AF%D9%85%D9%8A%D8%B1-4-%D8%AF%D8%A8%D8%A7%D8%A8%D8%A7%D8%AA)
+- **"حزب الله" يرد على خروقات إسرائيل بتدمير 4 دبابات**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%AE%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A8%D8%AA%D8%AF%D9%85%D9%8A%D8%B1-4-%D8%AF%D8%A8%D8%A7%D8%A8%D8%A7%D8%AA/3911778)
+- **حزب الله يكشف عن انفجار عبوات ناسفة برتل آليات للاحتلال جنوب لبنان**: [Link](https://arabi21.com/story/1753402/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%B9%D8%A8%D9%88%D8%A7%D8%AA-%D9%86%D8%A7%D8%B3%D9%81%D8%A9-%D8%A8%D8%B1%D8%AA%D9%84-%D8%A2%D9%84%D9%8A%D8%A7%D8%AA-%D9%84%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D8%AC%D9%86%D9%88%D8%A8-%D9%84%D8%A8%D9%86%D8%A7%D9%86)
+
+
+### سفيان أمرابط (N/A, Mon, 20 Apr 2026 04:40:00 -0700)
+
+- **صدمة في الطريق لأسد مغربي بالليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B5%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D9%84%D8%A7%D9%94%D8%B3%D8%AF-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/blt3528be40670b216d)
+- **تطور جديد يقرب رحيل سفيان أمرابط عن ريال بيتيس**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B7%D9%88%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D9%82%D8%B1%D8%A8-%D8%B1%D8%AD%D9%8A%D9%84-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D8%B9%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/18898)
+- **الغموض يلف مستقبل نجم "الأسود" قبل المونديال**: [Link](https://aljarida24.ma/p/actualites/344035/)
+
+
+### bruno retailleau (N/A, Mon, 20 Apr 2026 04:30:00 -0700)
+
+- **Présidentielle : largement élu par les adhérents, Bruno Retailleau est le candidat officiel des Républicains**: [Link](https://www.lefigaro.fr/politique/presidentielle-largement-elu-par-les-adherents-bruno-retailleau-est-le-candidat-officiel-des-republicains-20260419)
+- **Bruno Retailleau désigné candidat de LR pour l’élection présidentielle 2027 par les adhérents du parti au cours d’une consultation**: [Link](https://www.lemonde.fr/politique/article/2026/04/19/presidentielle-2027-bruno-retailleau-designe-candidat-des-republicains-par-les-adherents-du-parti-au-cours-d-une-consultation_6681477_823448.html)
+- **A droite, la primaire ouverte n’est pas nécessairement l’option perdante**: [Link](https://atlantico.fr/article/decryptage/a-droite-la-primaire-ouverte-nest-pas-necessairement-loption-perdante-matthieu-hocque-lilian-guignard)
+
+
 ### منتخب السنغال لكرة القدم (N/A, Mon, 20 Apr 2026 03:30:00 -0700)
 
 - **المغرب يقدم هدية للسنغال قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%AF%D9%85-%D9%87%D8%AF%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt3f5dcbaceb76a48c)
