@@ -1,3 +1,17 @@
+### nba (N/A, Sun, 19 Apr 2026 21:00:00 -0700)
+
+- **Thunder, Celtics open NBA playoffs with big wins, Magic shock Pistons**: [Link](https://www.france24.com/en/live-news/20260420-thunder-celtics-open-nba-playoffs-with-big-wins-magic-shock-pistons)
+- **NBA highlights: Magic 112, Pistons 101**: [Link](https://www.nbcmiami.com/video/nba/nba-highlights-pistons-magic-april-19/3798017/)
+- **Franz Wagner lifts Magic in Detroit, Thunder dominate playoff opener**: [Link](https://www.eurohoops.net/en/nba-news/1958127/franz-wagner-isaiah-hartenstein-neemias-queta-nba-european-recap/)
+
+
+### gagnants loto 18 avril 2026 (N/A, Sun, 19 Apr 2026 20:00:00 -0700)
+
+- **Loto : Une combinaison "improbable" fait 3 gagnants et fait exploser le record de 2026 à 16 millions d'euros**: [Link](https://tirage-gagnant.com/112576/loto-de-paques-combinaison-improbable-3-gagnants-record/)
+- **Tirage Loto du lundi 20 avril : un jackpot de 2 millions d'euros à gagner**: [Link](https://fr.news.yahoo.com/sport/tirage-loto-lundi-20-avril-050240881.html)
+- **Loto FDJ : les résultats du tirage du samedi 18 avril**: [Link](https://www.diverto.tv/actualites/tele/loto-fdj-les-resultats-du-tirage-du-samedi-18-avril)
+
+
 ### royal air maroc (N/A, Sun, 19 Apr 2026 20:00:00 -0700)
 
 - **Royal Air Maroc renforce sa flotte avec un nouveau Boeing 737-8 Max**: [Link](https://fr.le360.ma/economie/royal-air-maroc-renforce-sa-flotte-avec-un-nouveau-boeing-737-8-max_YBRDR2CWOZH6PFW6WGZEQGM76Y/)
