@@ -1,3 +1,24 @@
+### john ternus (N/A, Mon, 20 Apr 2026 14:50:00 -0700)
+
+- **Tim Cook to become Apple Executive Chairman John Ternus to become Apple CEO**: [Link](https://www.apple.com/newsroom/2026/04/tim-cook-to-become-apple-executive-chairman-john-ternus-to-become-apple-ceo/)
+- **Who is John Ternus? Everything to know about Apple’s new CEO replacing Tim Cook**: [Link](https://www.wionews.com/photos/who-is-john-ternus-everything-to-know-about-apple-s-new-ceo-replacing-tim-cook-1776719723745)
+- **As Tim Cook steps down from Apple, data shows how much it beat the stock market by under his leadership**: [Link](https://www.businessinsider.com/apple-stock-under-tim-cook-ceo-john-ternus-hardware-iphone-2026-4)
+
+
+### tour mohammed vi (N/A, Mon, 20 Apr 2026 14:50:00 -0700)
+
+- **Coût final, spécificités, défis: la Tour Mohammed VI comme si vous y étiez**: [Link](https://fr.le360.ma/societe/cout-final-specificites-defis-la-tour-mohammed-vi-comme-si-vous-y-etiez_XMXDYU3ZO5GS7JANU6HM7YPN2I/)
+- **La Tour Mohammed VI enfin inaugurée après une décennie de tribulations**: [Link](https://ledesk.ma/2026/04/14/la-tour-mohammed-vi-enfin-inauguree-apres-une-decennie-de-tribulations/)
+- **PHOTOS. Visite guidée de l’intérieur de la Tour Mohammed VI**: [Link](https://h24info.ma/economie/photos-visite-guidee-de-linterieur-de-la-tour-mohammed-vi/)
+
+
+### west ham (N/A, Mon, 20 Apr 2026 13:50:00 -0700)
+
+- **Wolves: Relegated from the Premier League - so what now for Rob Edwards' side?**: [Link](https://www.bbc.com/sport/football/articles/ckg3l2k81x5o)
+- **🚨 Five games to go, first Premier League relegation confirmed**: [Link](https://sports.yahoo.com/articles/five-games-first-premier-league-211800102.html)
+- **C Palace 0-0 West Ham (21 Apr, 2026) Game Analysis**: [Link](https://www.espn.in/football/report/_/gameId/740923)
+
+
 ### برج محمد السادس (N/A, Mon, 20 Apr 2026 13:40:00 -0700)
 
 - **فندق وشقق فاخرة و38 مصعدا.. برج محمد السادس مرصد بانورامي يفتح أبوابه بـ250 درهما (فيديو)**: [Link](https://al3omk.com/1154230.html)
