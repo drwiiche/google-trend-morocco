@@ -1,3 +1,17 @@
+### تسوية (N/A, Mon, 20 Apr 2026 13:20:00 -0700)
+
+- **قانون الشيكات الجديد يسرّع تسوية 16 ألف ملف بقيمة 630 مليون درهم**: [Link](https://www.hespress.com/%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%B4%D9%8A%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%B3%D8%B1%D9%91%D8%B9-%D8%AA%D8%B3%D9%88%D9%8A%D8%A9-16-%D8%A3%D9%84%D9%81-1734150.html)
+- **“الجرائم الانتخابية” تفتح باب التراشق بين وزير العدل والاستقلال.. ووهبي يتوعد بنشر “الغسيل”**: [Link](https://al3omk.com/1154156.html)
+- **وهبي: التخفيض التلقائي للعقوبة يحسن سلوك السجناء ويقلل من النزاعات داخل السجون**: [Link](https://lakome2.com/societe/415390/)
+
+
+### روسيا (N/A, Mon, 20 Apr 2026 13:00:00 -0700)
+
+- **تكتل جنرال مقرّب من روسيا يتصدر الانتخابات البرلمانية في بلغاريا**: [Link](https://www.aljazeera.net/news/2026/4/20/%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AA%D9%83%D8%AA%D9%84-%D9%85%D9%82%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA)
+- **ائتلاف "بلغاريا التقدمية" يتصدر الانتخابات العامة**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D8%A6%D8%AA%D9%84%D8%A7%D9%81-%D8%A8%D9%84%D8%BA%D8%A7%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%85%D9%8A%D8%A9-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9/3911741)
+- **تصدّر ائتلاف رئيس بلغاريا السابق رومين راديف نتائج الانتخابات التشريعية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260420-%D8%AA%D8%B5%D8%AF%D9%91%D8%B1-%D8%A7%D8%A6%D8%AA%D9%84%D8%A7%D9%81-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A8%D9%84%D8%BA%D8%A7%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%B1%D9%88%D9%85%D9%8A%D9%86-%D8%B1%D8%A7%D8%AF%D9%8A%D9%81-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B4%D8%B1%D9%8A%D8%B9%D9%8A%D8%A9)
+
+
 ### gemini (N/A, Mon, 20 Apr 2026 08:20:00 -0700)
 
 - **Gemini Live redesign replaces fullscreen interface on Android**: [Link](https://9to5google.com/2026/04/19/gemini-live-app-redesign/)
