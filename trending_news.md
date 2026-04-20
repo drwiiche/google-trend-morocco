@@ -1,3 +1,34 @@
+### arbitre de football (N/A, Mon, 20 Apr 2026 02:30:00 -0700)
+
+- **Maroc-Sénégal: l’arbitre très lourdement sanctionné par la FIFA !**: [Link](https://www.sports.fr/football/can/maroc-senegal-larbitre-tres-lourdement-sanctionne-par-la-fifa-1007659.html)
+- **L’arbitrage a été expliqué aux jeunes footballeurs**: [Link](https://jhm.fr/larbitrage-a-ete-explique-aux-jeunes-footballeurs/)
+- **"Je peux prendre une suspension de 10 ans, je m'en fous" : Halilhodzic au bout du rouleau**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/nantes-brest-je-peux-prendre-une-suspension-de-10-ans-je-men-fous-halilhodzic-entre-rage-et-desespoir_sto23291961/story.shtml)
+
+
+### سفينة (N/A, Mon, 20 Apr 2026 02:10:00 -0700)
+
+- **حرب إيران مباشر.. ترقب لجولة ثانية من المفاوضات وقوات أمريكية تهاجم سفينة إيرانية**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/19/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A8%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81)
+- **ترامب يعلن أن البحرية الأمريكية أطلقت النار على سفينة شحن إيرانية واحتجزتها**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260419-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2-%D8%A7%D9%84%D9%86%D9%88%D9%88%D9%8A-%D8%AC%D9%86%D9%88%D8%A8-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **إعلام إيراني: استهداف سفن حربية أمريكية بمسيرات ردا على اعتراض سفينة**: [Link](https://www.alquds.co.uk/%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D8%B3%D9%81%D9%86-%D8%AD%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A/)
+
+
+### bourse de casablanca (N/A, Mon, 20 Apr 2026 01:40:00 -0700)
+
+- **«Le marché à terme place la Bourse de Casablanca dans une nouvelle dimension financière»**: [Link](https://www.leconomiste.com/le-marche-a-terme-place-la-bourse-de-casablanca-dans-une-nouvelle-dimension-financiere/)
+- **Bourse de Casablanca. Le MASI rebondit de 2,66%, porté par l’apaisement autour du détroit d’Ormuz**: [Link](https://medias24.com/2026/04/17/bourse-de-casablanca-le-masi-rebondit-de-266-porte-par-lapaisement-autour-du-detroit-dormuz-1661587/)
+- **Bourse de Casablanca: une semaine dans le vert**: [Link](https://fr.hespress.com/470202-bourse-de-casablanca-une-semaine-dans-le-vert-37.html)
+
+
+### التاريخ الهجري اليوم (N/A, Mon, 20 Apr 2026 00:40:00 -0700)
+
+
+
+
+### kech24 (N/A, Sun, 19 Apr 2026 22:40:00 -0700)
+
+
+
+
 ### الصندوق المغربي للتقاعد (N/A, Mon, 20 Apr 2026 00:00:00 -0700)
 
 - **الرئيسية**: [Link](https://www.africa4press.com/art-%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D9%83%D9%85%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AC%D8%A7%D8%B0%D8%A8%D9%8A%D8%AA%D9%87-%D8%A8%D8%B9%D8%A7%D8%A6%D8%AF-%D9%8A%D9%81%D9%88%D9%82-6--%D9%88%D9%85%D8%B2%D8%A7%D9%8A%D8%A7-%D9%85%D8%B1%D9%86%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AE%D8%B1%D8%B7%D9%8A%D9%86-africa4press-44104.html)
