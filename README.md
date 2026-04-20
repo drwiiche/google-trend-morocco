@@ -1,3 +1,38 @@
+### اذان العصر (N/A, Mon, 20 Apr 2026 09:10:00 -0700)
+
+- **موعد أذان العصر اليوم الإثنين 20 إبريل 2026 في مدن الغربية**: [Link](https://www.dostor.org/5515308)
+- **مواقيت صلاة الظهر بمحافظة الغربية اليوم الأحد 19 إبريل 2026**: [Link](https://www.alshbaka.net/egypt/432969.html)
+- **موعد أذان العشاء اليوم الإثنين 20 أبريل 2026 في مراكز الغربية**: [Link](https://www.dostor.org/5515383)
+
+
+### vissel kobe – al-ahli saudi (N/A, Mon, 20 Apr 2026 09:00:00 -0700)
+
+- **Watch Vissel Kobe (JPN) vs. Al Ahli Saudi (KSA) (Quarterfinal)**: [Link](https://www.disneyplus.com/en-bo/browse/entity-dc79a5b4-b10a-48cb-8f53-1c645de31e02)
+- **Ivan Toney backing himself to fire Al Ahli into AFC Champions League Elite final**: [Link](https://www.espn.com/soccer/story/_/id/48534124/ivan-toney-backing-fire-al-ahli-afc-champions-league-elite-final)
+- **S-final - Preview: Vissel Kobe (JPN) v Al Ahli Saudi FC (KSA)**: [Link](https://www.the-afc.com/en/club/afc_champions_league_elite.html/news/s-final-preview-vissel-kobe-jpn-v-al-ahli-saudi-fc-ksa)
+
+
+### al barid bank (N/A, Mon, 20 Apr 2026 08:00:00 -0700)
+
+- **Face à des allégations de fuite de données, Al Barid Bank écarte toute atteinte aux comptes clients**: [Link](https://lematin.ma/economie/fuite-de-donnees-al-barid-bank-rassure-sur-lintegrite-des-comptes/341273)
+- **Al Barid Bank nie toute fuite critique après des allégations de piratage sur le dark web**: [Link](https://ledesk.ma/enoff/al-barid-bank-nie-toute-fuite-critique-apres-des-allegations-de-piratage-sur-le-dark-web/)
+- **Fuite de données: Al Barid Bank dément tout accès aux comptes clients**: [Link](https://h24info.ma/economie/fuite-de-donnees-al-barid-bank-dement-tout-acces-aux-comptes-clients/)
+
+
+### test (N/A, Mon, 20 Apr 2026 07:50:00 -0700)
+
+- **North Korea again tests cluster munitions in a launch observed by Kim and his daughter**: [Link](https://www.nbcnews.com/world/asia/north-korea-tests-cluster-munitions-launch-observed-kim-daughter-rcna340936)
+- **North Korea test-launches 'multiple' ballistic missiles, South Korea says**: [Link](https://abcnews.com/International/north-korea-test-launches-multiple-ballistic-missiles-south/story?id=132180013)
+- **North Korean leader Kim oversaw test of missiles with cluster warheads**: [Link](https://www.reuters.com/world/asia-pacific/north-korean-leader-kim-jong-un-oversaw-ballistic-missile-tests-state-media-says-2026-04-19/)
+
+
+### temps (N/A, Mon, 20 Apr 2026 06:40:00 -0700)
+
+- **Météo week-end : un beau samedi suivi d'une possible dégradation**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-01-12/meteo-week-end-un-beau-samedi-suivi-d-une-possible-degradation-82413)
+- **Météo week-end : le beau temps pourrait se maintenir**: [Link](https://www.meteoconsult.fr/actualites-meteo/2025-10-22/82413-meteo-week-end-le-beau-temps-pourrait-se-maintenir)
+- **Un temps agréable avec des températures assez élevées ce samedi**: [Link](https://www.bfmtv.com/meteo/video-un-temps-agreable-avec-des-temperatures-assez-elevees-ce-samedi_VN-202604180047.html)
+
+
 ### grok (N/A, Mon, 20 Apr 2026 08:00:00 -0700)
 
 - **Elon Musk summoned by French prosecutors amid ongoing X probe**: [Link](https://www.bbc.com/news/articles/crk151nn7j3o)
