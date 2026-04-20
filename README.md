@@ -1,3 +1,24 @@
+### الصندوق المغربي للتقاعد (N/A, Mon, 20 Apr 2026 00:00:00 -0700)
+
+- **الرئيسية**: [Link](https://www.africa4press.com/art-%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D9%83%D9%85%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AC%D8%A7%D8%B0%D8%A8%D9%8A%D8%AA%D9%87-%D8%A8%D8%B9%D8%A7%D8%A6%D8%AF-%D9%8A%D9%81%D9%88%D9%82-6--%D9%88%D9%85%D8%B2%D8%A7%D9%8A%D8%A7-%D9%85%D8%B1%D9%86%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AE%D8%B1%D8%B7%D9%8A%D9%86-africa4press-44104.html)
+- **قفزة في مردودية “التكميلي”.. الصندوق المغربي للتقاعد يعلن 6,09% سنة 2025**: [Link](https://le12.ma/%D9%82%D9%81%D8%B2%D8%A9-%D9%81%D9%8A-%D9%85%D8%B1%D8%AF%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D9%83%D9%85%D9%8A%D9%84%D9%8A-%D8%A7%D9%84%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A7/)
+- **نظام التقاعد التكميلي يحقق قفزة في المردودية بنسبة تتجاوز 6 في المائة خلال 2025**: [Link](https://detafour.com/%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D9%83%D9%85%D9%8A%D9%84%D9%8A-%D9%8A%D8%AD%D9%82%D9%82-%D9%82%D9%81%D8%B2%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85/)
+
+
+### عبد الرزاق حمد الله (N/A, Sun, 19 Apr 2026 22:50:00 -0700)
+
+- **"ضحى بنفسه".. عبدالرزاق حمد الله بطل ليلة الشباب التاريخية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%AD%D9%89-%D8%A8%D9%86%D9%81%D8%B3%D9%87--%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D8%B1%D8%B2%D8%A7%D9%82-%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%A8%D8%B7%D9%84-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9/blte784c4886c6b3460)
+- **بالفيديو.. الريان القطري يصطدم بالشباب السعودي في نهائي أبطال الخليج**: [Link](https://www.aljazeera.net/sport/2026/4/19/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+- **مدرب الشباب لـ«الشرق الأوسط»: الخاسر هو من يثير المشاكل**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/5264333-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D9%84%D9%80%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D8%AE%D8%A7%D8%B3%D8%B1-%D9%87%D9%88-%D9%85%D9%86-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%83%D9%84)
+
+
+### as far (N/A, Sun, 19 Apr 2026 22:10:00 -0700)
+
+- **Post Match Stats: Key numbers behind FAR Rabat’s historic final qualification**: [Link](https://www.cafonline.com/caf-champions-league/news/post-match-stats-key-numbers-behind-far-rabat-s-historic-final-qualification/)
+- **AS FAR reach CAF Champions League final after beating RS Berkane on aggregate**: [Link](https://en.hespress.com/136093-as-far-reach-caf-champions-league-final-after-beating-rs-berkane-on-aggregate.html)
+- **Sundowns Coach Responds to Journalist: "Have You Watched AS FAR and RS Berkane? If So, You Need to Watch Them Again Because You're Underestimating Them."**: [Link](https://m.elbotola.com/en/article/2026-04-18-18-38-509.html)
+
+
 ### nba (N/A, Sun, 19 Apr 2026 21:00:00 -0700)
 
 - **Thunder, Celtics open NBA playoffs with big wins, Magic shock Pistons**: [Link](https://www.france24.com/en/live-news/20260420-thunder-celtics-open-nba-playoffs-with-big-wins-magic-shock-pistons)
