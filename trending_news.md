@@ -1,3 +1,45 @@
+### grok (N/A, Mon, 20 Apr 2026 08:00:00 -0700)
+
+- **Elon Musk summoned by French prosecutors amid ongoing X probe**: [Link](https://www.bbc.com/news/articles/crk151nn7j3o)
+- **French prosecutors await Musk in X probe, unclear if he will comply**: [Link](https://www.cnbc.com/2026/04/20/french-prosecutors-await-musk-in-x-probe-unclear-if-he-will-comply.html)
+- **French prosecutors summon Elon Musk over allegations of child abuse images and deepfakes on X**: [Link](https://abcnews.com/International/wireStory/french-prosecutors-summon-elon-musk-allegations-child-abuse-132195636)
+
+
+### claude ai (N/A, Mon, 20 Apr 2026 07:40:00 -0700)
+
+- **Introducing Claude Design by Anthropic Labs**: [Link](https://www.anthropic.com/news/claude-design-anthropic-labs)
+- **Claude Opus 4.7 is generally available**: [Link](https://github.blog/changelog/2026-04-16-claude-opus-4-7-is-generally-available/)
+- **Anthropic Debuts Claude Design for Building Marketing Assets, Decks, and UIs**: [Link](https://www.adweek.com/media/anthropic-debuts-claude-design-for-building-marketing-assets-decks-and-uis/)
+
+
+### claude (N/A, Mon, 20 Apr 2026 07:40:00 -0700)
+
+- **Claude Design : Anthropic lance un outil de création visuelle piloté par l’IA**: [Link](https://lematin.ma/hi-tech/claude-design-anthropic-lance-un-outil-de-creation-visuelle-pilote-par-ia/341065)
+- **Une fois que vous tapez directement! L'IA peut-elle remplacer les designers?**: [Link](https://voi.id/fr/teknologi/571074)
+- **Après le code, Claude génère des interfaces**: [Link](https://next.ink/brief_article/apres-le-code-claude-genere-des-interfaces/)
+
+
+### barid bank (N/A, Mon, 20 Apr 2026 07:00:00 -0700)
+
+- **Face à des allégations de fuite de données, Al Barid Bank écarte toute atteinte aux comptes clients**: [Link](https://lematin.ma/economie/fuite-de-donnees-al-barid-bank-rassure-sur-lintegrite-des-comptes/341273)
+- **Al Barid Bank nie toute fuite critique après des allégations de piratage sur le dark web**: [Link](https://ledesk.ma/enoff/al-barid-bank-nie-toute-fuite-critique-apres-des-allegations-de-piratage-sur-le-dark-web/)
+- **Fuite de données: Al Barid Bank dément tout accès aux comptes clients**: [Link](https://h24info.ma/economie/fuite-de-donnees-al-barid-bank-dement-tout-acces-aux-comptes-clients/)
+
+
+### محمد أمين بنهاشم (N/A, Mon, 20 Apr 2026 06:40:00 -0700)
+
+- **مدرب الوداد السابق يقترب من العودة للدوري المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt8178d284061875e8)
+- **خاص| الدميعي يلوح بالرحيل**: [Link](https://www.radiomars.ma/%D8%AE%D8%A7%D8%B5-%D8%A7%D9%84%D8%AF%D9%85%D9%8A%D8%B9%D9%8A-%D9%8A%D9%84%D9%88%D8%AD-%D8%A8%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84/)
+- **الدميعي مهدد بالإنفصال عن الكوكب!**: [Link](https://www.almountakhab.com/node/16224673)
+
+
+### المعرض الدولي للفلاحة بالمغرب (N/A, Mon, 20 Apr 2026 06:40:00 -0700)
+
+- **البرتغال ضيف شرف الملتقى الدولي للفلاحة بالمغرب 2026.. شريك فلاحي أوروبي ذو إمكانات كبيرة**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%B6%D9%8A%D9%81-%D8%B4%D8%B1%D9%81-%D8%A7%D9%84%D9%85%D9%84%D8%AA%D9%82%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%84%D9%81%D9%84%D8%A7%D8%AD%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2026-%D8%B4%D8%B1%D9%8A%D9%83-%D9%81%D9%84%D8%A7%D8%AD%D9%8A-20260418)
+- **بالمعرض الدولي للفلاحة بمكناس.. المعهد الوطني للبحث الزراعي يعلن عن شراكاته الاستراتيجية من الجديدة**: [Link](https://www.ahdath.info/article/251312/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D9%88%D8%B7%D9%86%D9%8A/%D8%A8%D8%A7%D9%84%D9%85%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%84%D9%81%D9%84%D8%A7%D8%AD%D8%A9-%D8%A8%D9%85%D9%83%D9%86%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%B9%D9%87%D8%AF-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D8%A8%D8%AD%D8%AB-%D8%A7%D9%84%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%B4%D8%B1%D8%A7%D9%83%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+- **مشاركة 31 مقاولة إسبانية في المعرض**: [Link](https://assabah.ma/917701.html)
+
+
 ### avion ryanair maroc (N/A, Mon, 20 Apr 2026 06:10:00 -0700)
 
 - **Marne : un avion Ryanair décolle en direction du Maroc sans ses 192 passagers**: [Link](https://www.lefigaro.fr/actualite-france/marne-un-avion-ryanair-decolle-en-direction-du-maroc-sans-ses-192-passagers-20260419)
