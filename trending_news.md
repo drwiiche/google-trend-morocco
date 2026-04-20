@@ -1,3 +1,10 @@
+### gemini (N/A, Mon, 20 Apr 2026 08:20:00 -0700)
+
+- **Gemini Live redesign replaces fullscreen interface on Android**: [Link](https://9to5google.com/2026/04/19/gemini-live-app-redesign/)
+- **Google's Gemini Android app loses NotebookLM uploads and other features**: [Link](https://www.newsbytesapp.com/news/science/googles-gemini-android-app-loses-notebooklm-uploads-and-other-features/tldr)
+- **Are you seeing Gemini's UI changes? Google's update is starting to roll out**: [Link](https://www.androidauthority.com/gemini-overlay-and-live-changes-rollout-3658709/)
+
+
 ### crystal palace – west ham (N/A, Mon, 20 Apr 2026 11:20:00 -0700)
 
 - **Crystal Palace star hoping to ‘cool’ West Ham United’s ‘hot streak’ to spoil survival bid**: [Link](https://www.hammers.news/news/crystal-palace-star-hoping-to-cool-west-ham-uniteds-hot-streak-to-spoil-survival-bid/)
