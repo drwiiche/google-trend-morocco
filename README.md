@@ -1,3 +1,17 @@
+### سوريا (N/A, Mon, 20 Apr 2026 08:50:00 -0700)
+
+- **بعد 13 عاما من الإغلاق.. العراق يُعيد فتح معبر ربيعة مع سوريا**: [Link](https://www.aljazeera.net/news/2026/4/20/%D8%A8%D8%B9%D8%AF-13-%D8%B9%D8%A7%D9%85%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%8A%D8%B9%D9%8A%D8%AF-%D9%81%D8%AA%D8%AD)
+- **سوريا.. افتتاح منفذ اليعربية مع العراق بعد إغلاق 13 عاما**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%85%D9%86%D9%81%D8%B0-%D8%A7%D9%84%D9%8A%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%A8%D8%B9%D8%AF-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-13-%D8%B9%D8%A7%D9%85%D8%A7/3912241)
+- **مازن علوش لعنب بلدي: “اليعربية” يعمل فورًا بكل أنماط الحركة الحدودية**: [Link](https://hathalyoum.net/articles/4138056)
+
+
+### ai (N/A, Mon, 20 Apr 2026 07:50:00 -0700)
+
+- **Exclusive | Adobe Unveils Agents for Businesses Amid Threat of AI Disruption**: [Link](https://www.wsj.com/cio-journal/adobe-unveils-agents-for-businesses-amid-threat-of-ai-disruption-d3cf479c)
+- **How Adobe is setting a good example for the software sector**: [Link](https://finance.yahoo.com/video/how-adobe-is-setting-a-good-example-for-the-software-sector-155034367.html)
+- **Adobe Summit: Adobe Redefines Customer Experience Orchestration Vision in the Agentic AI Era with Introduction of CX Enterprise**: [Link](https://news.adobe.com/news/2026/04/adobe-redefines-custome-experience)
+
+
 ### اذان العصر (N/A, Mon, 20 Apr 2026 09:10:00 -0700)
 
 - **موعد أذان العصر اليوم الإثنين 20 إبريل 2026 في مدن الغربية**: [Link](https://www.dostor.org/5515308)
