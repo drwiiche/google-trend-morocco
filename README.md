@@ -1,3 +1,31 @@
+### crystal palace – west ham (N/A, Mon, 20 Apr 2026 11:20:00 -0700)
+
+- **Crystal Palace star hoping to ‘cool’ West Ham United’s ‘hot streak’ to spoil survival bid**: [Link](https://www.hammers.news/news/crystal-palace-star-hoping-to-cool-west-ham-uniteds-hot-streak-to-spoil-survival-bid/)
+- **Nuno wants singular focus as West Ham look to punish Spurs slip-up**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/nuno-wants-singular-focus-as-west-ham-look-to-punish-spurs-slip-up-2026-04-19)
+- **Glasner highlights 'motivation and aggression' of West Ham**: [Link](https://www.vavel.com/en/football/2026/04/20/crystal-palace/1258150-glasner-highlights-motivationand-aggression-of-west-ham.html)
+
+
+### tsunami japon (N/A, Mon, 20 Apr 2026 11:20:00 -0700)
+
+- **Séisme au Japon : crainte d’un tremblement de terre « majeur » après une secousse de 7,7 ; l’alerte au tsunami levée**: [Link](https://www.lemonde.fr/international/article/2026/04/20/seisme-au-japon-crainte-d-un-tremblement-de-terre-majeur-apres-une-secousse-de-7-7-l-alerte-au-tsunami-levee_6681693_3211.html)
+- **Séisme et tsunami au Japon : le gouvernement alerte sur un risque de répliques pendant une semaine**: [Link](https://www.liberation.fr/international/asie-pacifique/japon-seisme-de-magnitude-75-dans-le-nord-alerte-au-tsunami-20260420_ADS2OVRLVRCJ5CPKXP526ILGVY/)
+- **Un séisme de magnitude 7,4 touche le nord du Japon, une alerte au tsunami émise**: [Link](https://www.franceinfo.fr/monde/japon/un-seisme-de-magnitude-7-4-touche-le-nord-du-japon-une-alerte-au-tsunami-emise_7951316.html)
+
+
+### فيسيل كوبي ضد الأهلي (N/A, Mon, 20 Apr 2026 10:50:00 -0700)
+
+- **فيديو: بريمونتادا جديدة.. الأهلي يكرر سيناريو الهلال والاتحاد ويتأهل لنهائي نخبة آسيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D9%83%D8%B1%D8%B1-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D9%8A%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D9%84%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7/blt609beeb1dc1ff4a6)
+- **مباشر.. مباراة الأهلي ضد فيسيل كوبي في نصف نهائي دوري أبطال آسيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/20/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D9%81%D9%8A%D8%B3%D9%8A%D9%84-%D9%83%D9%88%D8%A8%D9%8A?update=9138025)
+- **توقيت ومكان مباريات نصف نهائي دوري أبطال آسيا للنخبة**: [Link](https://arabic.cnn.com/sport/article/2026/04/18/afc-champions-league-matches)
+
+
+### procuration (N/A, Mon, 20 Apr 2026 10:10:00 -0700)
+
+- **Procurations immobilières: une réforme pour sécuriser les transactions**: [Link](https://fr.le360.ma/economie/procurations-immobilieres-une-reforme-pour-securiser-les-transactions_VRTXQWMPO5BF5K7V4MA7SQQQKY/)
+- **Immobilier au Maroc : le grand tour de vis sur les procurations**: [Link](https://www.bladi.net/immobilier-maroc-grand-tour-vis-procurations,120786.html)
+- **Législation: stop aux spoliations immobilières !**: [Link](https://www.challenge.ma/legislation-stop-aux-spoliations-immobilieres-319108/)
+
+
 ### سوريا (N/A, Mon, 20 Apr 2026 08:50:00 -0700)
 
 - **بعد 13 عاما من الإغلاق.. العراق يُعيد فتح معبر ربيعة مع سوريا**: [Link](https://www.aljazeera.net/news/2026/4/20/%D8%A8%D8%B9%D8%AF-13-%D8%B9%D8%A7%D9%85%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%8A%D8%B9%D9%8A%D8%AF-%D9%81%D8%AA%D8%AD)
