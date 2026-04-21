@@ -1,3 +1,36 @@
+### un si grand soleil (N/A, Tue, 21 Apr 2026 08:40:00 -0700)
+
+
+
+
+### mostafa terrab (N/A, Tue, 21 Apr 2026 08:20:00 -0700)
+
+- **Pour accélérer sa transformation, OCP restructure son organisation interne et remanie son état-major**: [Link](https://medias24.com/2026/04/20/pour-accelerer-sa-transformation-ocp-restructure-son-organisation-interne-et-remanie-son-etat-major-1662581/)
+- **Pourquoi Mostafa Terrab réorganise le géant marocain des engrais OCP**: [Link](https://www.jeuneafrique.com/1789958/economie-entreprises/pourquoi-mostafa-terrab-reorganise-le-geant-marocain-des-engrais-ocp/)
+- **OCP se réorganise autour de deux pôles intégrés et redéploie son état-major**: [Link](https://ledesk.ma/2026/04/19/ocp-se-reorganise-autour-de-deux-poles-integres-et-redeploie-son-etat-major/)
+
+
+### هانزي فليك (N/A, Tue, 21 Apr 2026 08:20:00 -0700)
+
+- **رغم الإقصاء الأوروبي.. فليك يفاجئ برشلونة برغبة صريحة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%B1%D8%BA%D8%A8%D8%A9-%D8%B5%D8%B1%D9%8A%D8%AD%D8%A9/blt48fca3980c237425)
+- **هانسي فليك يبدي رغبته في تجديد عقده مع برشلونة ليكون المحطة الأخيرة في مسيرته**: [Link](https://m.elbotola.com/article/2026-04-21-14-30-406.html)
+- **برشلونة يسعد لسيلتا فيغو وفليك يتحدث عما يحتاجه الفريق للفوز بالأبطال**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%B9%D8%AF-%D9%84%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%88%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%85%D8%A7-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D9%84%D9%84%D9%81%D9%88%D8%B2-%D8%A8%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-2026-04-21)
+
+
+### سطو (N/A, Tue, 21 Apr 2026 08:00:00 -0700)
+
+- **باستعمال “الكريموجين”.. استنفار لفك لغز سطو على “ب?...**: [Link](https://kech24.com/%D8%A8%D8%A7%D8%B3%D8%AA%D8%B9%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85%D9%88%D8%AC%D9%8A%D9%86-%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D9%84%D9%81%D9%83-%D9%84%D8%BA%D8%B2-%D8%B3%D8%B7%D9%88-%D8%B9%D9%84%D9%89-%D8%A8%D9%8A%D9%83%D9%88%D8%A8-%D8%A8%D9%86%D9%88%D8%A7%D8%AD%D9%8A-%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%B5%D9%81%D8%B1%D9%88.html)
+- **الإطاحة بشبكة لصوص منازل واسترجاع ملياري سنتيم بوهران**: [Link](https://www.echaab.dz/2026/04/20/%D8%A7%D9%84%D8%A5%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%B4%D8%A8%D9%83%D8%A9-%D9%84%D8%B5%D9%88%D8%B5-%D9%85%D9%86%D8%A7%D8%B2%D9%84-%D9%88%D8%A7%D8%B3%D8%AA%D8%B1%D8%AC%D8%A7%D8%B9-%D9%85%D9%84%D9%8A/)
+- **شرطة وهران تطيح في ظرف وجيز بشبكة إجرامية وتسترجع قرابة 2 مليار سنتيم**: [Link](https://elmawkie.dz/%D8%B4%D8%B1%D8%B7%D8%A9-%D9%88%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%B7%D9%8A%D8%AD-%D9%81%D9%8A-%D8%B8%D8%B1%D9%81-%D9%88%D8%AC%D9%8A%D8%B2-%D8%A8%D8%B4%D8%A8%D9%83%D8%A9-%D8%A5%D8%AC%D8%B1%D8%A7%D9%85/)
+
+
+### وزارة التربية والتعليم (N/A, Tue, 21 Apr 2026 06:30:00 -0700)
+
+- **وزارة التربية تطلق الحركة الانتقالية لمدراء المدارس وتضبط لائحة المناصب الشاغرة**: [Link](https://madar21.com/420883.html)
+- **تنقيلات 2026: وزارة التربية الوطنية تطلق عملية رقمية لإعادة توزيع مديري المؤسسات**: [Link](https://aabbir.com/%D8%AA%D9%86%D9%82%D9%8A%D9%84%D8%A7%D8%AA-2026-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B7%D9%84%D9%82-%D8%B9/)
+- **حركة تنقيلات المديرين 2026.. وزارة التعليم تكشف تفاصيل تدبير المناصب الشاغرة ومعايير التنقيط الجديدة**: [Link](https://al3omk.com/1153433.html)
+
+
 ### kash patel (N/A, Tue, 21 Apr 2026 06:50:00 -0700)
 
 - **The FBI Director Is MIA**: [Link](https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/)
