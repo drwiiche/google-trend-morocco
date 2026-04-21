@@ -1,3 +1,31 @@
+### inter (N/A, Tue, 21 Apr 2026 13:20:00 -0700)
+
+- **Akanji admits he could have joined Milan over Inter and sets eyes on cup double**: [Link](https://football-italia.net/akanji-could-have-joined-milan-over-inter/)
+- **Coppa Italia SEMIFINAL PREVIEWS - Morning Footy Stream of Soccer**: [Link](https://www.cbssports.com/watch/soccer/video/coppa-italia-semifinal-previews-morning-footy)
+- **🔴 Inter-Como 0-1 | Acerbi risks a red ⚠ Baturina opens scoring 💣**: [Link](https://onefootball.com/en/news/inter-como-0-1-acerbi-risks-a-red-baturina-opens-scoring-42746503)
+
+
+### liga (N/A, Tue, 21 Apr 2026 13:00:00 -0700)
+
+- **Barcelona veteran boasts an impressive goalscoring record vs Celta Vigo**: [Link](https://barcauniversal.com/barcelona-veteran-boasts-an-impressive-goalscoring-record-vs-celta-vigo/)
+- **Football: Home Comfort For Barcelona And Big Changes For Atletico In La Liga**: [Link](https://menafn.com/1111012158/Football-Home-Comfort-For-Barcelona-And-Big-Changes-For-Atletico-In-La-Liga)
+- **Barcelona vs. Celta Vigo prediction, odds, La Liga picks [4/22/2026]**: [Link](https://www.dimers.com/news/barcelona-vs-celta-vigo-prediction-la-liga-wednesday-04-22-2026-ac)
+
+
+### inter vs como (N/A, Tue, 21 Apr 2026 12:50:00 -0700)
+
+- **Una 'primera Coppa' para el Como**: [Link](https://www.marca.com/futbol/liga-italiana/2026/04/21/primera-coppa.html)
+- **Inter de Milán vs Como 1907: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/inter-de-milan-vs-como-1907-previa-predicciones-y-alineaciones-21-4-2026)
+- **Como marca el ritmo antes de su primera final de Coppa Italia 🤩**: [Link](https://onefootball.com/id/berita/como-marca-el-ritmo-antes-de-su-primera-final-de-coppa-italia-42747015)
+
+
+### الإنتر ضد كومو (N/A, Tue, 21 Apr 2026 12:50:00 -0700)
+
+- **إنتر ميلان من أجل الثنائية المحلية وكومو من أجل مفاجأة الموسم**: [Link](https://www.alaraby.co.uk/sport/%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%A7%D9%84%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D9%84%D9%8A%D8%A9-%D9%88%D9%83%D9%88%D9%85%D9%88-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85)
+- **تشكيلة إنتر ميلان الرسمية ضد كومو في كأس إيطاليا**: [Link](https://hihi2.com/2026/04/21/p3735083.html)
+- **برنامج مباراتي إياب نصف نهائي كأس إيطاليا**: [Link](https://www.annahar.com/sports/302098/%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%A5%D9%8A%D8%A7%D8%A8-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7)
+
+
 ### girona vs real betis (N/A, Tue, 21 Apr 2026 12:40:00 -0700)
 
 - **Girona**: [Link](https://www.flashscore.com/match/football/betis-vJbTeCGP/girona-nNNpcUSL/standings/?mid=zq4THRDE)
