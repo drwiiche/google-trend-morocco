@@ -1,3 +1,10 @@
+### can 2025 (N/A, Mon, 20 Apr 2026 18:10:00 -0700)
+
+- **Senegal says talks with Morocco advance over jailed fans after Africa Cup final unrest**: [Link](https://en.hespress.com/136102-senegal-says-talks-with-morocco-advance-over-jailed-fans-after-africa-cup-final-unrest.html)
+- **AFCON Final: Senegal Seeks to ‘Turn Page’ on Case of Detainees Convicted for Hooliganism**: [Link](https://www.moroccoworldnews.com/2026/04/287721/afcon-final-senegal-seeks-to-turn-page-on-case-of-detainees-convicted-for-hooliganism/)
+- **Four Senegalese and One French Fan Released from Moroccan Prisons After AFCON Final Incidents**: [Link](https://m.elbotola.com/en/article/2026-04-18-12-15-946.html)
+
+
 ### alerte tsunami japon (N/A, Mon, 20 Apr 2026 20:10:00 -0700)
 
 - **Séisme au Japon : six blessés, pas de dégâts importants**: [Link](https://www.lemonde.fr/international/article/2026/04/20/seisme-au-japon-crainte-d-un-tremblement-de-terre-majeur-apres-une-secousse-de-7-7-l-alerte-au-tsunami-levee_6681693_3211.html)
