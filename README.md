@@ -1,3 +1,17 @@
+### alerte tsunami japon (N/A, Mon, 20 Apr 2026 20:10:00 -0700)
+
+- **Séisme au Japon : six blessés, pas de dégâts importants**: [Link](https://www.lemonde.fr/international/article/2026/04/20/seisme-au-japon-crainte-d-un-tremblement-de-terre-majeur-apres-une-secousse-de-7-7-l-alerte-au-tsunami-levee_6681693_3211.html)
+- **Japon : crainte d’un séisme «majeur» après une secousse de 7,7, alerte au tsunami levée**: [Link](https://www.lefigaro.fr/international/japon-apres-un-seisme-de-magnitude-7-4-dans-le-nord-une-alerte-au-tsunami-emise-20260420)
+- **Après un séisme et une vague de tsunami, le Japon redoute de puissantes répliques**: [Link](https://www.huffingtonpost.fr/international/video/apres-un-seisme-et-une-vague-de-tsunami-le-japon-en-alerte-face-a-de-puissantes-repliques_262871.html)
+
+
+### dématérialisation de factures (N/A, Mon, 20 Apr 2026 13:40:00 -0700)
+
+- **La facturation électronique expliquée par Younès Idrissi Kaitouni, directeur des impôts**: [Link](https://medias24.com/2026/04/18/la-facturation-electronique-expliquee-par-younes-idrissi-kaitouni-directeur-des-impots-1661379/)
+- **Fiscalité : Le Maroc prépare le déploiement de la facturation électronique en 2026**: [Link](https://maroc-diplomatique.net/fiscalite-le-maroc-prepare-le-deploiement-de-la-facturation-electronique-en-2026/)
+- **Gestion. Micro-entrepreneurs, artisans, commerçants : la facture électronique, une obligation dès 2026**: [Link](https://www.ledauphine.com/paroles-de-partenaires/2026/04/21/micro-entrepreneurs-artisans-commercants-la-facture-electronique-une-obligation-des-2026)
+
+
 ### somaliland (N/A, Mon, 20 Apr 2026 14:20:00 -0700)
 
 - **Somaliland: Isolated by Muslims, Engaging Israel**: [Link](https://blogs.timesofisrael.com/somaliland-isolated-by-muslims-engaging-israel/)
