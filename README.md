@@ -1,3 +1,24 @@
+### cloud ai (N/A, Tue, 21 Apr 2026 01:40:00 -0700)
+
+- **Anthropic, Amazon Tighten Bond in $5 Billion Investment and Computing Deal**: [Link](https://www.wsj.com/tech/ai/anthropic-amazon-tighten-bond-in-5-billion-investment-and-computing-deal-b9d8e513)
+- **Amazon and Anthropic expand strategic collaboration**: [Link](https://www.aboutamazon.com/news/company-news/amazon-invests-additional-5-billion-anthropic-ai)
+- **Amazon to invest up to another $25 billion in Anthropic as part of AI infrastructure deal**: [Link](https://www.cnbc.com/2026/04/20/amazon-invest-up-to-25-billion-in-anthropic-part-of-ai-infrastructure.html)
+
+
+### طقس طنجة (N/A, Tue, 21 Apr 2026 00:10:00 -0700)
+
+- **ارتفاع درجات الحرارة في شهر أبريل ينذر بحلول فصل صيف حارق بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D8%B4%D9%87%D8%B1-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-%D9%8A%D9%86%D8%B0%D8%B1-1734258.html)
+- **34 ألف مغربي يؤدون الحج هذا الموسم مع خفض كلفة الرحلة بـ3 آلاف درهم**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85/)
+- **أستاذ في علم المناخ يفسر أسباب الموجة الحرارية الحالية وتأثيرها على الموارد المائية بالمغرب**: [Link](https://2m.ma/ar/news/%D8%A3%D8%B3%D8%AA%D8%A7%D8%B0-%D9%81%D9%8A-%D8%B9%D9%84%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%AE-%D9%8A%D9%81%D8%B3%D8%B1-%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1%D9%87%D8%A7-20260420)
+
+
+### طقس اليوم (N/A, Mon, 20 Apr 2026 23:50:00 -0700)
+
+- **«الأرصاد» تكشف حالة الطقس: هجمة صيفية وتحذير من ظاهرة جوية**: [Link](https://www.almasryalyoum.com/news/details/4250506)
+- **احذر 12 درجة فرق بين الليل والنهار، درجات الحرارة اليوم الثلاثاء في محافظات مصر**: [Link](https://www.vetogate.com/5639695)
+- **شبورة صباحية ورياح نشطة.. تحذيرات من طقس متقلب اليوم الثلاثاء بمصر**: [Link](https://al-ain.com/article/morning-fog-brisk-winds)
+
+
 ### can 2025 (N/A, Mon, 20 Apr 2026 18:10:00 -0700)
 
 - **Senegal says talks with Morocco advance over jailed fans after Africa Cup final unrest**: [Link](https://en.hespress.com/136102-senegal-says-talks-with-morocco-advance-over-jailed-fans-after-africa-cup-final-unrest.html)
