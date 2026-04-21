@@ -1,3 +1,24 @@
+### kash patel (N/A, Tue, 21 Apr 2026 06:50:00 -0700)
+
+- **The FBI Director Is MIA**: [Link](https://www.theatlantic.com/politics/2026/04/kash-patel-fbi-director-drinking-absences/686839/)
+- **FBI director Kash Patel files $250M defamation lawsuit against The Atlantic**: [Link](https://www.cnn.com/2026/04/20/media/kash-patel-fbi-atlantic-lawsuit-sarah-fitzpatrick)
+- **FBI Director Kash Patel vows to sue The Atlantic over alcohol abuse claims**: [Link](https://www.cnbc.com/2026/04/19/kash-patel-atlantic-lawsuit-alcohol.html)
+
+
+### coupe du monde de football (N/A, Tue, 21 Apr 2026 05:50:00 -0700)
+
+- **La presse espagnole nargue déjà le Maroc pour la finale de la Coupe du Monde 2030**: [Link](https://www.footmercato.net/a6625238178078202999-coupe-du-monde-la-presse-espagnole-nargue-deja-le-maroc-pour-la-finale)
+- **Mondial 2030. Où en sont les chantiers des stades de Casablanca**: [Link](https://medias24.com/2026/04/18/mondial-2030-ou-en-sont-les-chantiers-des-stades-de-casablanca-1661649/)
+- **Coupe du Monde 2030 : Le Maroc, une terre hostile par excellence**: [Link](https://africafootunited.com/coupe-du-monde-2030-le-maroc-une-terre-hostile-par-excellence/)
+
+
+### artificial intelligence (N/A, Tue, 21 Apr 2026 02:50:00 -0700)
+
+- **Proposed bill would require AI literacy in Louisiana schools**: [Link](https://www.kbtx.com/video/2026/04/21/proposed-bill-would-require-ai-literacy-louisiana-schools/)
+- **Louisiana bill would require AI literacy education starting in 6th grade**: [Link](https://www.knoe.com/2026/04/21/louisiana-bill-would-require-ai-literacy-education-starting-6th-grade/)
+- **Proposed bill would require AI literacy in Louisiana schools**: [Link](https://www.wdbj7.com/video/2026/04/21/proposed-bill-would-require-ai-literacy-louisiana-schools/)
+
+
 ### النيابة العامة (N/A, Tue, 21 Apr 2026 04:40:00 -0700)
 
 - **جدل «حظر النشر» لا ينقطع في مصر**: [Link](https://aawsat.com/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/%D8%A5%D8%B9%D9%84%D8%A7%D9%85/5263869-%D8%AC%D8%AF%D9%84-%D8%AD%D8%B8%D8%B1-%D8%A7%D9%84%D9%86%D8%B4%D8%B1-%D9%84%D8%A7-%D9%8A%D9%86%D9%82%D8%B7%D8%B9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
