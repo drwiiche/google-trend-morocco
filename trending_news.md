@@ -1,3 +1,24 @@
+### النيابة العامة (N/A, Tue, 21 Apr 2026 04:40:00 -0700)
+
+- **جدل «حظر النشر» لا ينقطع في مصر**: [Link](https://aawsat.com/%D8%AB%D9%82%D8%A7%D9%81%D8%A9-%D9%88%D9%81%D9%86%D9%88%D9%86/%D8%A5%D8%B9%D9%84%D8%A7%D9%85/5263869-%D8%AC%D8%AF%D9%84-%D8%AD%D8%B8%D8%B1-%D8%A7%D9%84%D9%86%D8%B4%D8%B1-%D9%84%D8%A7-%D9%8A%D9%86%D9%82%D8%B7%D8%B9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+- **في واقعة سيدي جابر وشبين الكوم.. النيابة العامة تأمر بحبس عدد من مرتكبي مخالفات قرار حظر النشر في عدد من القضايا**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=21042026&id=edd019ac-55bf-430c-bd18-fc969ced871a)
+- **النيابة العامة تأمر بحبس عدد من مرتكبي مخالفات قرار حظر النشر في عدد من القضايا**: [Link](https://www.almawq3.com/%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%AA%D8%A3%D9%85%D8%B1-%D8%A8%D8%AD%D8%A8%D8%B3-%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D9%85%D8%B1%D8%AA%D9%83%D8%A8%D9%8A/)
+
+
+### داني سيبايوس (N/A, Tue, 21 Apr 2026 03:40:00 -0700)
+
+- **ابن أسطورة برشلونة يمد يده لمنبوذ ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%A8%D9%86-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%85%D8%AF-%D9%8A%D8%AF%D9%87-%D9%84%D9%85%D9%86%D8%A8%D9%88%D8%B0-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt9c7eb741f5118ce1)
+- **سيبايوس يغادر ريال مدريد إلى عملاق أوروبي**: [Link](https://www.alaraby.co.uk/sport/%D8%B3%D9%8A%D8%A8%D8%A7%D9%8A%D9%88%D8%B3-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A5%D9%84%D9%89-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A)
+- **أنشيلوتي وألونسو كانا على حق…!!**: [Link](https://hihi2.com/2026/04/20/p3733514.html)
+
+
+### electric vehicles (N/A, Tue, 21 Apr 2026 02:50:00 -0700)
+
+- **11 Electric Cars Worth a Look With Gas Prices High**: [Link](https://www.nytimes.com/2026/04/15/business/electric-cars-evs-used-gas-prices.html)
+- **EV sales soar in main European markets as drivers shun expensive petrol**: [Link](https://www.reuters.com/sustainability/climate-energy/ev-sales-soar-main-european-markets-drivers-shun-expensive-petrol-2026-04-19/)
+- **Electric car sales soar 51% in mainland Europe as Iran war drives up fuel prices**: [Link](https://www.theguardian.com/environment/2026/apr/20/electric-car-ev-sales-mainland-europe-petrol-prices-iran-war)
+
+
 ### hakim ziyech (N/A, Tue, 21 Apr 2026 03:30:00 -0700)
 
 - **Hakim Ziyech Returns to Wydad AC Training Ahead of Kawkab Marrakech Clash**: [Link](https://www.moroccoworldnews.com/2026/04/287926/hakim-ziyech-returns-to-wydad-ac-training-ahead-of-kawkab-marrakech-clash/)
