@@ -1,3 +1,57 @@
+### girona vs real betis (N/A, Tue, 21 Apr 2026 12:40:00 -0700)
+
+- **Girona**: [Link](https://www.flashscore.com/match/football/betis-vJbTeCGP/girona-nNNpcUSL/standings/?mid=zq4THRDE)
+- **Preview: Girona vs Real Betis - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/girona/preview/girona-vs-betis-prediction-team-news-lineups_596027.html)
+- **🚨 XIs ready: Montilivi tests Betis' resilience**: [Link](https://onefootball.com/en/news/xis-ready-montilivi-tests-betis-resilience-42746595)
+
+
+### وحيد خليلهودزيتش (N/A, Tue, 21 Apr 2026 12:10:00 -0700)
+
+- **توقع إيقافه 10 سنوات!.. عقوبة قاسية بحق خليلوزيتش**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81%D9%87-10-%D8%B3%D9%86%D9%88%D8%A7%D8%AA--%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D9%82%D8%A7%D8%B3%D9%8A%D8%A9-%D8%A8%D8%AD%D9%82-%D8%AE%D9%84%D9%8A%D9%84%D9%88%D8%B2%D9%8A%D8%AA%D8%B4/blt388117374f670e9a)
+- **حاليلوزيتش: كرة القدم انتهت ويمكنهم إيقافي 10 سنوات**: [Link](https://www.alaraby.co.uk/sport/%D8%AD%D8%A7%D9%84%D9%8A%D9%84%D9%88%D8%B2%D9%8A%D8%AA%D8%B4-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%86%D8%AA%D9%87%D8%AA-%D9%88%D9%8A%D9%85%D9%83%D9%86%D9%87%D9%85-%D8%A5%D9%8A%D9%82%D8%A7%D9%81%D9%8A-10-%D8%B3%D9%86%D9%88%D8%A7%D8%AA)
+- **خليلوزيتش مهدد بالإيقاف حتى نهاية الموسم في الدوري الفرنسي**: [Link](https://m.elbotola.com/article/2026-04-20-18-48-952.html)
+
+
+### équipe du maroc féminine de football (N/A, Tue, 21 Apr 2026 12:10:00 -0700)
+
+- **Les Lionnes de l'Atlas remontent dans le classement FIFA**: [Link](https://fr.hespress.com/470571-les-lionnes-de-latlas-remontent-dans-le-classement-fifa.html)
+- **L'équipe nationale féminine des États-Unis conserve sa 2e place au dernier classement mondial féminin de la FIFA**: [Link](https://www.goal.com/fr/listes/l-equipe-nationale-feminine-des-etats-unis-conserve-sa-2e-place-au-dernier-classement-mondial-feminin-de-la-fifa/bltc3a31bea861e9456)
+- **Classement féminin FIFA : la sélection nationale progresse de 4 places**: [Link](https://medias24.com/2026/04/21/classement-feminin-fifa-la-selection-nationale-progresse-de-4-places-1663459/)
+
+
+### الفنانة حياة الفهد (N/A, Tue, 21 Apr 2026 12:00:00 -0700)
+
+- **رحيل حياة الفهد.. بيوت العرب تودع "سيدة الشاشة الخليجية" وحزن يعم الوسط الفني**: [Link](https://www.aljazeera.net/arts/2026/4/21/%D8%B1%D8%AD%D9%8A%D9%84-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%87%D8%AF-%D8%B3%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%B4%D8%A7%D8%B4%D8%A9)
+- **وزارة الإعلام بدولة الكويت تنعى الممثلة حياة الفهد**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A8%D8%AF%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%AA%D9%86%D8%B9%D9%89-%D8%A7%D9%84%D9%85%D9%85%D8%AB-1734440.html)
+- **حياة الفهد... الدراما الخليجية تفقد سيّدتها**: [Link](https://www.bbc.com/arabic/articles/cy81zxg32rvo)
+
+
+### girona – betis (N/A, Tue, 21 Apr 2026 11:50:00 -0700)
+
+- **Girona - Betis, hoy en directo: última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/girona-betis-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202604-d/)
+- **🚨 XIs listos: Montilivi pone a prueba la resistencia del Betis**: [Link](https://onefootball.com/en/news/xis-listos-montilivi-pone-a-prueba-la-resistencia-del-betis-42746594)
+- **La quinta plaza, una urgencia para el Betis**: [Link](https://www.diariodesevilla.es/realbetis/quinta-plaza-urgencia-betis_0_2006552164.html)
+
+
+### real madrid – deportivo alavés (N/A, Tue, 21 Apr 2026 11:40:00 -0700)
+
+- **Real Madrid - Alavés en directo: última hora de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-alaves-en-directo-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202604-d/)
+- **Último entrenamiento antes de recibir al Alavés**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/entrenamientos/el-equipo-se-esta-entrenando-20-04-2026)
+- **✅ De Lausana al Bernabéu. Javi Navarro, la gran novedad de Arbeloa ante el Alavés**: [Link](https://onefootball.com/pt-br/noticias/de-lausana-al-bernabeu-javi-navarro-la-gran-novedad-de-arbeloa-ante-el-alaves-42744528)
+
+
+### الريال ضد ألافيس (N/A, Tue, 21 Apr 2026 11:40:00 -0700)
+
+- **دياز أحد الضحايا.. 3 تغييرات في تشكيل ريال مدريد الرسمي لمواجهة ألافيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A7%D9%94%D8%AD%D8%AF-%D8%A7%D9%84%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7--3-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%94%D9%84%D8%A7%D9%81%D9%8A%D8%B3/blte81a94a6c9ee5540)
+- **مباشر ريال مدريد ضد ديبورتيفو ألافيس في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3)
+- **أربيلوا: "ربما من الأسهل على ريال مدريد الفوز بدوري الأبطال مقارنة بالدوري بسبب بعض الظروف مثل مباراة جيرونا"**: [Link](https://m.elbotola.com/article/2026-04-20-12-10-461.html)
+
+
+### lens – toulouse (N/A, Tue, 21 Apr 2026 11:40:00 -0700)
+
+- **Elisez le meilleur lensois de RC Lens – Toulouse !**: [Link](https://onefootball.com/en/news/elisez-le-meilleur-lensois-de-rc-lens-toulouse-42727716)
+
+
 ### برايتون ضد تشيلسي (N/A, Tue, 21 Apr 2026 11:30:00 -0700)
 
 - **بلا بالمر وجواو بيدرو.. تشكيل غريب لتشيلسي أمام برايتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%84%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D9%88%D8%AC%D9%88%D8%A7%D9%88-%D8%A8%D9%8A%D8%AF%D8%B1%D9%88--%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%84%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86/bltee2d64cb9c464022)
