@@ -1,3 +1,24 @@
+### kylian mbappé (N/A, Tue, 21 Apr 2026 14:50:00 -0700)
+
+- **Real Madrid are preparing for Kroos return**: [Link](https://en.as.com/soccer/real-madrid-are-preparing-for-kroos-return-f202604-n/)
+- **Toni Kroos’s Thinly Veiled Swipe at Real Madrid Chimes With Drastic Alvaro Arbeloa Action**: [Link](https://www.si.com/soccer/toni-kroos-thinly-veiled-swipe-real-madrid-drastic-alvaro-arbeloa)
+- **Kroos praises Djokovic at the Laureus Awards 2026**: [Link](https://www.puntodebreak.com/en/2026/04/20/kroos-praises-djokovic-at-the-laureus-awards-2026)
+
+
+### سعر (N/A, Tue, 21 Apr 2026 14:40:00 -0700)
+
+- **سعر الذهب اليوم عيار 21 الآن مباشر آخر تحديث يحقق أعلى معدل نقرات**: [Link](https://tawusal.com/111785/%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B9%D9%8A%D8%A7%D8%B1-21-%D8%A7%D9%84%D8%A2%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A2%D8%AE%D8%B1-%D8%AA%D8%AD-3/)
+- **«مرصد الذهب»: تراجع 0.9% في الذهب بضغط الدولار والغموض السياسي**: [Link](https://www.cnewsarab.com/%D9%85%D8%B1%D8%B5%D8%AF-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-0-9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%A8%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D8%AF%D9%88/)
+- **تراجع أسعار الذهب فى مصر اليوم الثلاثاء 21 أبريل 2026.. هبوط ملحوظ بجميع الأعيرة**: [Link](https://www.youm7.com/story/2026/4/21/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%89-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-21-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-2026/7386019)
+
+
+### la liga (N/A, Tue, 21 Apr 2026 14:30:00 -0700)
+
+- **Real Madrid 2-1 Alaves: Kylian Mbappe and Vinicius Junior score to cut Barcelona's La Liga lead**: [Link](https://www.bbc.com/sport/football/live/c87wqqj85wet)
+- **✅ Lausanne to the Bernabéu, Javi Navarro surprise for Arbeloa v Alavés**: [Link](https://onefootball.com/en/news/lausanne-to-the-bernabeu-javi-navarro-surprise-for-arbeloa-v-alaves-42744530)
+- **Live Blog: Real Madrid vs Alavés in LaLiga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/live-blog-real-madrid-vs-alav%C3%A9s-in-laliga-2026-04-21)
+
+
 ### صراع (N/A, Tue, 21 Apr 2026 14:20:00 -0700)
 
 - **"أزمة بقاء سياسي".. لماذا يعرقل الحرس الثوري المفاوضات؟**: [Link](https://www.skynewsarabia.com/middle-east/1865473-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A8%D9%82%D8%A7%D8%A1-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B9%D8%B1%D9%82%D9%84-%D8%A7%D9%84%D8%AD%D8%B1%D8%B3-%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA)
