@@ -1,3 +1,31 @@
+### برايتون ضد تشيلسي (N/A, Tue, 21 Apr 2026 11:30:00 -0700)
+
+- **بلا بالمر وجواو بيدرو.. تشكيل غريب لتشيلسي أمام برايتون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%84%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D9%88%D8%AC%D9%88%D8%A7%D9%88-%D8%A8%D9%8A%D8%AF%D8%B1%D9%88--%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%84%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86/bltee2d64cb9c464022)
+- **تشيلسي يسعى لاستعادة انتصاراته بالدوري بعد 4 هزائم متتالية**: [Link](https://roayahnews.com/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%A8%D8%A7%D9%84%D8%AF%D9%88/)
+- **برايتون ضد تشيلسي.. ديلاب يقود هجوم البلوز في الدوري الإنجليزي**: [Link](https://www.youm7.com/story/2026/4/21/%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D8%B6%D8%AF-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%AF%D9%8A%D9%84%D8%A7%D8%A8-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A8%D9%84%D9%88%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/7386036)
+
+
+### inter – côme (N/A, Tue, 21 Apr 2026 11:30:00 -0700)
+
+- **LIVE Alle 21 Inter-Como, le ultime: Chivu con Bonny e Thuram. Douvikas e Paz dal 1' per Fabregas**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/21-04-2026/inter-como-live-risultato-e-gol-in-diretta-coppa-italia.shtml)
+- **Stasera e domani calcio top in chiaro: Canale 5 e Italia 1 per le semifinali di Coppa Italia**: [Link](https://www.fattitaliani.it/2026/04/stasera-e-domani-calcio-top-in-chiaro.html)
+- **Corsera – Diavolo di un Fabregas, con l’Inter non sarà mai banale. Solo la Visa Platinum…**: [Link](https://www.fcinter1908.it/news/rassegna-stampa/diavolo-fabregas-inter-visa/)
+
+
+### brighton – chelsea (N/A, Tue, 21 Apr 2026 11:10:00 -0700)
+
+- **Confirmed Chelsea line up vs Brighton | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-brighton-2104)
+- **Predicted XI: Rosenior forced to change setup after winger’s dreadful showing against Man U**: [Link](https://sports.yahoo.com/articles/predicted-xi-rosenior-forced-change-155000212.html)
+- **LIVE – Brighton v Chelsea: Commentary, updates, goals and stats**: [Link](https://www.101greatgoals.com/live/brighton-v-chelsea-commentary-live-updates-goals-stream-stats/)
+
+
+### كسوف الشمس (N/A, Tue, 21 Apr 2026 11:10:00 -0700)
+
+- **موعد كسوف الشمس 2026.. الدول التى ستشهد الظلام الكامل؟**: [Link](https://www.youm7.com/story/2026/4/21/%D9%85%D9%88%D8%B9%D8%AF-%D9%83%D8%B3%D9%88%D9%81-%D8%A7%D9%84%D8%B4%D9%85%D8%B3-2026-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D9%89-%D8%B3%D8%AA%D8%B4%D9%87%D8%AF-%D8%A7%D9%84%D8%B8%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84/7385050)
+- **تونس تستعد لكسوف القرن.. من المتوقع حدوث حدث فلكي استثنائي**: [Link](https://www.agenzianova.com/ar/news/%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%84%D9%83%D8%B3%D9%88%D9%81-%D8%A7%D9%84%D9%82%D8%B1%D9%86%D8%8C-%D9%88%D9%87%D9%88-%D8%AD%D8%AF%D8%AB-%D9%81%D9%84%D9%83%D9%8A-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%85%D8%AA%D9%88%D9%82%D8%B9/)
+- **كسوف الشمس 2026.. العملاق الكوني في قبضة القمر**: [Link](https://al-ain.com/article/solar-eclipse-2026-cosmic-giant-moon-grip)
+
+
 ### vladimir poutine (N/A, Tue, 21 Apr 2026 10:30:00 -0700)
 
 - **En Russie, la « colère » contre Vladimir Poutine monte dans une partie de la population**: [Link](https://www.lemonde.fr/international/article/2026/04/21/en-russie-le-mecontentement-contre-vladimir-poutine-affleure-parmi-la-population_6681877_3210.html)
