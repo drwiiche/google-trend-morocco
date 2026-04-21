@@ -1,3 +1,45 @@
+### didier deschamps (N/A, Tue, 21 Apr 2026 09:30:00 -0700)
+
+- **Le vestiaire du Real Madrid boude un Galactique**: [Link](https://www.footmercato.net/a193871780718884712-le-vestiaire-du-real-madrid-boude-un-galactique)
+- **Real : Figo valide la piste Deschamps**: [Link](https://m.maxifoot.fr/real/figo-valide-la-piste-deschamps-foot-454418.htm)
+- **Le Real Madrid annonce une mauvaise nouvelle à Arbeloa, Klopp domine la situation délicate.**: [Link](https://www.vietnam.vn/fr/real-madrid-thong-bao-phu-cho-arbeloa-klopp-ap-dao-ghe-nong)
+
+
+### ath. bilbao – osasuna (N/A, Tue, 21 Apr 2026 09:20:00 -0700)
+
+- **Ver Athletic Bilbao vs. CA Osasuna**: [Link](https://www.disneyplus.com/es-bo/browse/entity-bc7c6f64-85e1-4900-9aef-130d5931994b)
+- **15:25H | 21 ABRIL 2026 | DEPORTES COPE EN NAVARRA**: [Link](https://www.cope.es/emisoras/navarra/podcast/episodios/15-25h-21-abril-2026-deportes-cope-navarra-20260421_3349820.html)
+- **El horario frena otra vez una jornada caliente**: [Link](https://www.diariodenavarra.es/noticias/deportes/futbol/osasuna/2026/04/21/horario-frena-vez-jornada-caliente-817789-32.html)
+
+
+### majorque – valence (N/A, Tue, 21 Apr 2026 09:20:00 -0700)
+
+- **DIRECT. Majorque-Valence CF (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/majorque-valence-cf-live/677035)
+- **Top 5 paris sportifs du 21/04/2026 : l’analyse Winflix**: [Link](https://winflix.net/top-5-paris-sportifs-du-21-04-2026-analyse-winflix/)
+- **Liga : Real Majorque - Valence - Sur quelle chaîne de TV et à quelle heure ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-liga-real-majorque-valence-sur-quelle-chaine-de-tv-et-a-quelle-heure-ij-520454.html)
+
+
+### espace schengen (N/A, Tue, 21 Apr 2026 09:20:00 -0700)
+
+- **Grèce : contrôles EES assouplis aux frontières pour les voyageurs britanniques**: [Link](https://fr.euronews.com/travel/2026/04/20/grece-controles-ees-assouplis-aux-frontieres-pour-les-voyageurs-britanniques)
+- **« Si l’entrée vous est refusée… » : l’avertissement de Ryanair à tous les passagers titulaires de ce type de passeport**: [Link](https://www.sudinfo.be/id1140921/article/2026-04-20/si-lentree-vous-est-refusee-lavertissement-de-ryanair-tous-les-passagers)
+- **Contrôle aux frontières : le nouveau système européen EES crée déjà files d’attente et vols manqués**: [Link](https://www.lefigaro.fr/voyages/conseils/controle-aux-frontieres-le-nouveau-systeme-europeen-ees-cree-deja-files-d-attente-et-vols-manques-20260416)
+
+
+### diesel (N/A, Tue, 21 Apr 2026 09:10:00 -0700)
+
+- **Goldman Sachs warns US consumers could have a challenging few months**: [Link](https://finance.yahoo.com/news/goldman-sachs-warns-us-consumers-could-have-a-challenging-few-months-113704421.html)
+- **‘A dollar or two increase is devastating’: US readers on toll of rising gas prices**: [Link](https://www.theguardian.com/us-news/2026/apr/16/us-readers-rising-gas-prices-iran-trump)
+- **'I can feel the difference' - Americans react to soaring gas prices**: [Link](https://www.bbc.com/news/videos/c15ddld3gggo)
+
+
+### séisme japon (N/A, Tue, 21 Apr 2026 09:00:00 -0700)
+
+- **Séisme au Japon : le pays émet une nouvelle alerte sismique majeure**: [Link](https://www.lemonde.fr/international/article/2026/04/20/seisme-au-japon-apres-un-violent-seisme-le-pays-emet-une-nouvelle-alerte-sismique-majeure_6681693_3211.html)
+- **Après un séisme et une vague de tsunami, le Japon redoute de puissantes répliques**: [Link](https://www.huffingtonpost.fr/international/video/apres-un-seisme-et-une-vague-de-tsunami-le-japon-en-alerte-face-a-de-puissantes-repliques_262871.html)
+- **États-Unis / Iran Détroit d’Ormuz, cessez-le-feu et négociation incertaine**: [Link](https://www.aa.com.tr/fr/info/infographie/51561)
+
+
 ### un si grand soleil (N/A, Tue, 21 Apr 2026 08:40:00 -0700)
 
 
