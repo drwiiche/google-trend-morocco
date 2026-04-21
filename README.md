@@ -1,3 +1,66 @@
+### hakim ziyech (N/A, Tue, 21 Apr 2026 03:30:00 -0700)
+
+- **Hakim Ziyech Returns to Wydad AC Training Ahead of Kawkab Marrakech Clash**: [Link](https://www.moroccoworldnews.com/2026/04/287926/hakim-ziyech-returns-to-wydad-ac-training-ahead-of-kawkab-marrakech-clash/)
+- **Injured Hakim Ziyech nears Wydad return**: [Link](https://africasoccer.com/patrice-carteron-handed-major-boost-as-ziyech-nears-wydad-return/)
+- **Hakim Ziyech heads to Netherlands for recovery**: [Link](https://en.africatopsports.com/tag/hakim-ziyech-heads-to-netherlands-for-recovery/)
+
+
+### world cup 2026 (N/A, Tue, 21 Apr 2026 02:50:00 -0700)
+
+- **Iran team is 'coming for sure' to 2026 World Cup in U.S., says FIFA President Infantino**: [Link](https://www.cnbc.com/2026/04/15/fifa-president-iran-team-coming-for-sure-to-2026-world-cup-in-us.html)
+- **Iran’s National Team World Cup Fate Hinges on Supreme National Security Council Decision**: [Link](https://wanaen.com/irans-national-team-world-cup-fate-hinges-on-supreme-national-security-council-decision/)
+- **Iran vs New Zealand Tickets: Iran Confirmed for FIFA World Cup 2026 on Global Stage**: [Link](https://blog.eticketing.co/iran-vs-new-zealand-tickets-iran-confirmed-for-fifa-world-cup-2026-on-global-stage/)
+
+
+### openai (N/A, Tue, 21 Apr 2026 02:50:00 -0700)
+
+- **A Wish List for the Man Replacing Tim Cook as Apple’s C.E.O.**: [Link](https://www.nytimes.com/2026/04/21/technology/apple-cook-ternus-wish-list.html)
+- **Apple enters post-Cook era chasing its next hit**: [Link](https://www.axios.com/2026/04/21/apple-tim-cook-iphone-ai)
+- **Tim Cook to become Apple Executive Chairman John Ternus to become Apple CEO**: [Link](https://www.apple.com/newsroom/2026/04/tim-cook-to-become-apple-executive-chairman-john-ternus-to-become-apple-ceo/)
+
+
+### climate change (N/A, Tue, 21 Apr 2026 02:50:00 -0700)
+
+- **Kenyan women defy fishing taboos as climate change threatens Lake Victoria**: [Link](https://www.aljazeera.com/features/2026/4/20/kenyan-women-defy-fishing-taboos-as-climate-change-threatens-lake-victoria)
+- **Breaking News, World News and Video from Al Jazeera**: [Link](https://www.aljazeera.com/sitemap.xml%3Fyyyy=2025/page/27367?utm_source=openai%3Fgb%3Dtrue&mm=03&dd=09%3Fgb%3Dtrue%3Fgb%3Dtrue)
+- **Interstate Bridge project releases final version of federal environmental impact report**: [Link](https://www.kgw.com/article/news/local/interstate-bridge-project-releases-fina-federal-environmental-impact-statement/283-d9cb8a34-ed65-4427-9dc1-09af4baf4879)
+
+
+### bitcoin price (N/A, Tue, 21 Apr 2026 02:50:00 -0700)
+
+- **US house vote on Trump Iran war power hits bitcoin in 2026**: [Link](https://www.kucoin.com/blog/iran-war-power-hits-bitcoin-in-2026)
+- **What to Expect in BTC, ETH, XRP Price This Week Ahead of 2 Key Economic Events**: [Link](https://www.bitget.com/news/detail/12560605376203)
+- **NewbieToNode(@Rashujain)'s insights**: [Link](https://www.binance.com/en-TR/square/post/314490725172065)
+
+
+### space exploration (N/A, Tue, 21 Apr 2026 02:50:00 -0700)
+
+- **Latvia To Join Artemis Accords Today**: [Link](https://payloadspace.com/latvia-to-join-artemis-accords-today/)
+- **Malaysia to the moon**: [Link](https://www.freemalaysiatoday.com/category/opinion/2026/04/16/malaysia-to-the-moon)
+- **Latvia Signs Artemis Accords**: [Link](https://aviationweek.com/space/space-exploration/latvia-signs-artemis-accords)
+
+
+### coupe d'afrique des nations de football 2025 (N/A, Tue, 21 Apr 2026 02:40:00 -0700)
+
+- **Finale CAN 2025 : trois premiers supporters sénégalais et le Franco-Algérien poursuivi dans le dossier libérés**: [Link](https://medias24.com/2026/04/18/finale-can-2025-trois-premiers-supporters-senegalais-et-le-franco-algerien-poursuivi-dans-le-dossier-liberes-1662001/)
+- **Au Maroc, une libération de supporters sénégalais entre aigreur, apaisement et espérance**: [Link](https://www.jeuneafrique.com/1789723/politique/au-maroc-une-liberation-de-supporters-senegalais-entre-aigreur-apaisement-et-esperance/)
+- **Libérés de prison à Rabat, des supporters racontent (enfin) la vérité sur l’origine de la tension Maroc / Sénégal à la CAN**: [Link](https://www.afrik.com/liberes-de-prison-a-rabat-des-supporters-racontent-enfin-la-verite-sur-l-origine-de-la-tension-maroc-senegal-a-la-can)
+
+
+### حياة الفهد (N/A, Tue, 21 Apr 2026 02:30:00 -0700)
+
+- **رحيل حياة الفهد.. بيوت العرب تودع "سيدة الشاشة الخليجية" وحزن يعم الوسط الفني**: [Link](https://www.aljazeera.net/arts/2026/4/21/%D8%B1%D8%AD%D9%8A%D9%84-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%87%D8%AF-%D8%B3%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%B4%D8%A7%D8%B4%D8%A9)
+- **الكويت تودّع الفنانة حياة الفهد.. تفاصيل الجنازة والعزاء**: [Link](https://www.raialyoum.com/%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%AA%D9%88%D8%AF%D9%91%D8%B9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%87%D8%AF-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A/)
+- **بين ذكرى ميلادها ورحيلها 3 أيام فقط.. تفاصيل اللحظات الأخيرة في حياة حياة الفهد**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1832703-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%88%D9%81%D8%A7%D8%A9-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%87%D8%AF)
+
+
+### passeport (N/A, Tue, 21 Apr 2026 02:20:00 -0700)
+
+- **Permis, CNI, passeports : vol de données après la cyberattaque de l'ANTS**: [Link](https://www.lemondeinformatique.fr/actualites/lire-permis-cni-passeports-vol-de-donnees-apres-la-cyberattaque-de-l-ants-99969.html)
+- **L'Agence nationale des titres sécurisés a été visée par une attaque informatique, des données potentiellement "divulguées", annonce le ministère de l'Intérieur**: [Link](https://www.franceinfo.fr/internet/securite-sur-internet/cyberattaques/l-agence-nationale-des-titres-securises-a-ete-visee-par-une-attaque-informatique-des-donnees-potentiellement-divulguees-annonce-le-ministere-de-l-interieur_7951535.html)
+- **L’ANTS, qui gère les cartes d’identité et passeports, visée par une attaque informatique, des données potentiellement divulguées**: [Link](https://www.lemonde.fr/pixels/article/2026/04/20/l-ants-qui-gere-les-cartes-d-identites-et-passeports-visee-par-une-attaque-informatique-des-donnees-potentiellement-divulguees_6681710_4408996.html)
+
+
 ### cloud ai (N/A, Tue, 21 Apr 2026 01:40:00 -0700)
 
 - **Anthropic, Amazon Tighten Bond in $5 Billion Investment and Computing Deal**: [Link](https://www.wsj.com/tech/ai/anthropic-amazon-tighten-bond-in-5-billion-investment-and-computing-deal-b9d8e513)
