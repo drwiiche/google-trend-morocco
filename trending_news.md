@@ -1,3 +1,30 @@
+### vladimir poutine (N/A, Tue, 21 Apr 2026 10:30:00 -0700)
+
+- **En Russie, la « colère » contre Vladimir Poutine monte dans une partie de la population**: [Link](https://www.lemonde.fr/international/article/2026/04/21/en-russie-le-mecontentement-contre-vladimir-poutine-affleure-parmi-la-population_6681877_3210.html)
+- **«On vous ment, on a peur de vous» : Viktoria Bonya, l’influenceuse russe qui enflamme la toile en interpellant Vladimir Poutine**: [Link](https://www.lefigaro.fr/international/on-vous-ment-on-a-peur-de-vous-viktoria-bonya-l-influenceuse-russe-qui-enflamme-la-toile-en-interpellant-vladimir-poutine-20260421)
+- **La "révolte des femmes" mûrit-elle en Russie ? Les influenceuses interpellent Poutine**: [Link](https://fr.euronews.com/2026/04/20/la-revolte-des-femmes-murit-elle-vraiment-en-russie-les-influenceuses-sadressent-a-poutine)
+
+
+### أتلتيك بيلباو ضد أوساسونا (N/A, Tue, 21 Apr 2026 10:20:00 -0700)
+
+- **تعرّف على تفاصيل مباراة أتلتيك بلباو ضد أوساسونا في الدوري الإسباني بتاريخ 2026/04/21 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%A8%D8%AA)
+- **مواجهة قوية في الليجا.. موعد مباراة أتلتيك بيلباو ضد أوساسونا اليوم والقنوات الناقلة وترتيب الفريقين قبل صدام الجولة 2026**: [Link](https://jarida.onl/3120/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7/)
+- **مواجهة قوية في الليجا.. موعد مباراة أتلتيك بيلباو ضد أوساسونا اليوم والقنوات الناقلة والتفاصيل الكاملة قبل انطلاق اللقاء**: [Link](https://almasdar24.news/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7/)
+
+
+### مايوركا ضد فالنسيا (N/A, Tue, 21 Apr 2026 10:20:00 -0700)
+
+- **تعرّف على تفاصيل مباراة ريال مايوركا ضد فالنسيا في الدوري الإسباني بتاريخ 2026/04/21 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%88%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A8%D8%AA%D8%A7)
+- **مباراة مايوركا ضد فالنسيا اليوم في الدوري الإسباني 2026.. الموعد والقنوات الناقلة والتشكيل المتوقع وتحليل شامل قبل انطلاق اللقاء**: [Link](https://jarida.onl/3117/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D8%B6%D8%AF-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85/)
+
+
+### لامين يامال (N/A, Tue, 21 Apr 2026 10:00:00 -0700)
+
+- **يامال وسان جيرمان على رأس جوائز لوريوس 2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D9%94%D8%B3-%D8%AC%D9%88%D8%A7%D9%8A%D9%94%D8%B2-%D9%84%D9%88%D8%B1%D9%8A%D9%88%D8%B3-2026/blt4bf2248c4846c5bd)
+- **ألكاراز وسابالينكا يتوجان بجوائز لوريوس العالمية للرياضة بمدريد 2025**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A3%D9%84%D9%83%D8%A7%D8%B1%D8%A7%D8%B2-%D9%88%D8%B3%D8%A7%D8%A8%D8%A7%D9%84%D9%8A%D9%86%D9%83%D8%A7-%D9%8A%D8%AA%D9%88%D8%AC%D8%A7%D9%86-%D8%A8%D8%AC%D9%88%D8%A7%D8%A6%D8%B2-%D9%84%D9%88%D8%B1%D9%8A%D9%88%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%84%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%A8%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2025/3912903)
+- **يامال: أتمنى السير على خطى ميسي**: [Link](https://www.alaraby.co.uk/sport/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%A3%D8%AA%D9%85%D9%86%D9%89-%D8%A7%D9%84%D8%B3%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D9%89-%D9%85%D9%8A%D8%B3%D9%8A)
+
+
 ### didier deschamps (N/A, Tue, 21 Apr 2026 09:30:00 -0700)
 
 - **Le vestiaire du Real Madrid boude un Galactique**: [Link](https://www.footmercato.net/a193871780718884712-le-vestiaire-du-real-madrid-boude-un-galactique)
