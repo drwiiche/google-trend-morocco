@@ -1,3 +1,17 @@
+### صراع (N/A, Tue, 21 Apr 2026 14:20:00 -0700)
+
+- **"أزمة بقاء سياسي".. لماذا يعرقل الحرس الثوري المفاوضات؟**: [Link](https://www.skynewsarabia.com/middle-east/1865473-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A8%D9%82%D8%A7%D8%A1-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B9%D8%B1%D9%82%D9%84-%D8%A7%D9%84%D8%AD%D8%B1%D8%B3-%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA)
+- **بين التصعيد والتهدئة.. هدنة على الحافة بين طهران وواشنطن**: [Link](https://www.aljazeera.net/news/2026/4/21/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D8%A6%D8%A9-%D9%87%D8%AF%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D8%A7%D9%81%D8%A9)
+- **"الحرب كادت أن تنتهي".. مصادر تكشف لـCNN كواليس الخلاف بين أمريكا وإيران خلال المفاوضات**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/21/a-deal-to-end-the-iran-war-seemed-close-then-trump-started-posting-on-social-media)
+
+
+### inter milan (N/A, Tue, 21 Apr 2026 13:10:00 -0700)
+
+- **Chivu: ‘It’s all or nothing’ for Inter and Como in Coppa Italia semi final**: [Link](https://football-italia.net/chivu-its-all-or-nothing-for-inter-and-como/)
+- **Inter Milano vs. AC Milan - Live Score - May 02, 2026**: [Link](https://www.foxsports.com/soccer/serie-a-femminile-inter-milano-vs-ac-milan-may-02-2026-game-boxscore-636984)
+- **Como lead the way as first Coppa Italia final nears 🤩**: [Link](https://onefootball.com/fr/news/como-lead-the-way-as-first-coppa-italia-final-nears-42747013)
+
+
 ### inter (N/A, Tue, 21 Apr 2026 13:20:00 -0700)
 
 - **Akanji admits he could have joined Milan over Inter and sets eyes on cup double**: [Link](https://football-italia.net/akanji-could-have-joined-milan-over-inter/)
