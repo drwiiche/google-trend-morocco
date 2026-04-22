@@ -1,3 +1,31 @@
+### bitcoin price (N/A, Tue, 21 Apr 2026 23:10:00 -0700)
+
+- **Bitcoin Resistance at $78K and $83K Could Cap Rally: Schwab**: [Link](https://decrypt.co/365001/bitcoin-resistance-at-78k-and-83k-could-cap-rally-schwab)
+- **BTC/USD Forex Signal 21/04**: [Link](https://www.dailyforex.com/forex-technical-analysis/2026/04/btcusd-signal-21-april-2026/244206)
+- **Crypto Market Overview: Bitcoin tops $77,000 while Monero and Dash lead gains**: [Link](https://www.fxstreet.com/cryptocurrencies/news/crypto-market-overview-bitcoin-tops-77-000-while-monero-and-dash-lead-gains-202604220254)
+
+
+### world cup 2026 (N/A, Tue, 21 Apr 2026 20:40:00 -0700)
+
+- **FIFA struggling to sell tickets for USMNT’s World Cup opener vs. Paraguay - The Athletic**: [Link](https://www.nytimes.com/athletic/7213118/2026/04/21/usa-paraguay-world-cup-tickets-fifa-sofi-stadium/)
+- **FIFA Announces New Batch of 2026 World Cup Tickets Available Tomorrow**: [Link](https://www.moroccoworldnews.com/2026/04/288071/fifa-announces-new-batch-of-2026-world-cup-tickets-available-tomorrow/)
+- **World Cup tickets will drop on Wednesday for all matches**: [Link](https://www.dailynews.com/2026/04/21/world-cup-tickets-will-drop-on-wednesday-for-all-matches/)
+
+
+### climate change (N/A, Tue, 21 Apr 2026 20:30:00 -0700)
+
+- **U.S. military officials take steps to address climate crisis, even as they avoid the term**: [Link](https://www.ms.now/rachel-maddow-show/maddowblog/u-s-military-officials-take-steps-to-address-climate-crisis-even-as-they-avoid-the-term)
+- **Hegseth dismisses climate change as military braces anyway**: [Link](https://www.staradvertiser.com/2026/04/21/breaking-news/hegseth-dismisses-climate-change-as-military-braces-anyway/)
+- **Department of War prepares for climate dangers**: [Link](https://www.msn.com/en-us/news/opinion/department-of-war-prepares-for-climate-dangers/vi-AA21cIN8)
+
+
+### openai (N/A, Tue, 21 Apr 2026 20:20:00 -0700)
+
+- **OpenAI Beefs Up ChatGPT’s Image Generation Model**: [Link](https://www.wired.com/story/openai-beefs-up-chatgpts-image-generation-model/)
+- **Images in ChatGPT are getting a major update**: [Link](https://www.axios.com/2026/04/21/chatgpt-images-major-update)
+- **OpenAI Unveils New Image Model That’s Better at Charts and Diagrams**: [Link](https://www.bloomberg.com/news/articles/2026-04-21/openai-unveils-image-model-that-s-better-at-charts-and-diagrams)
+
+
 ### قناة الجزيرة (N/A, Tue, 21 Apr 2026 22:00:00 -0700)
 
 - **حرب إيران مباشر.. طهران تشترط للتفاوض وترمب يمدد وقف إطلاق النار**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/21/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D9%81%D8%AE%D8%B1-%D8%A8%D8%A7%D9%84%D9%86%D8%B5%D8%B1)
