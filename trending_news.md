@@ -1,3 +1,24 @@
+### al-nassr fc – al ahli (N/A, Wed, 22 Apr 2026 08:30:00 -0700)
+
+- **Al-Nassr vs Al-Ahli Qat LIVE Score Updates in AFC Champions League Two Match**: [Link](https://www.vavel.com/en-us/soccer/2026/04/22/1258393-al-nassr-vs-al-ahli-live-score-afc-champions-league-two.html)
+- **Cristiano Ronaldo faces nervous wait as key teammates Kingsley Coman and Joao near fitness verdict for AFC ...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-faces-nervous-wait-as-key-teammates-kingsley-coman-and-joao-near-fitness-verdict-for-afc-champions-league-two-semi-final/)
+- **Al-Nassr FC vs. Al-Hilal - Boxscore - Live Score - May 12, 2026**: [Link](https://www.foxsports.com/soccer/saudi-pro-league-al-nassr-fc-vs-al-hilal-may-12-2026-game-boxscore-645204?tab=boxscore)
+
+
+### قاضي التحقيق (N/A, Wed, 22 Apr 2026 08:20:00 -0700)
+
+- **قاضي التحقيق يقرر متابعة رضا الهجهوج في حالة اعتقال ويحدد تاريخ محاكمته**: [Link](https://ar.hibapress.com/details-719582.html)
+- **جمهور اتحاد العاصمة يثير الفوضى بملعب المسيرة الخضراء رغم التأهل**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D9%84%D8%AA%D9%8A%D9%85%D9%8A%D8%AF%D9%8A%D8%A7/%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D9%81%D9%88%D8%B6%D9%89-%D8%A8%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1-%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84/18923)
+- **تحديد أول جلسة لمحاكمة لاعب الوداد السابق بتهم ثقيلة**: [Link](https://www.achkayen.com/679928/.html)
+
+
+### صاروخ (N/A, Wed, 22 Apr 2026 08:10:00 -0700)
+
+- **بسبب الحرب الإيرانية.. استنزاف المخزونات الصاروخية يهدد جاهزية الجيش الأمريكي**: [Link](https://www.aljazeera.net/news/2026/4/21/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D9%86%D8%B2%D8%A7%D9%81)
+- **"سي إن إن": الجيش الأمريكي يستنزف مخزون صواريخه في الحرب على إيران**: [Link](https://www.alquds.co.uk/%D8%B3%D9%8A-%D8%A5%D9%86-%D8%A5%D9%86-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B3%D8%AA%D9%86%D8%B2%D9%81-%D9%85%D8%AE%D8%B2%D9%88%D9%86-%D8%B5/)
+- **تقرير: حرب إيران استنزفت الصواريخ الأميركية.. هل تدخل واشنطن مرحلة "الخطر الاستراتيجي"؟**: [Link](https://arabic.euronews.com/2026/04/22/report-iran-war-has-depleted-us-missiles)
+
+
 ### نادي أولمبيك آسفي (N/A, Wed, 22 Apr 2026 05:20:00 -0700)
 
 - **حقيقة تورط مدير في "شغب آسفي"**: [Link](https://www.hespress.com/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%88%D8%B1%D8%B7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%B4%D8%BA%D8%A8-%D8%A2%D8%B3%D9%81%D9%8A-1734295.html)
