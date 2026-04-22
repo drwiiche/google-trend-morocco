@@ -1,3 +1,38 @@
+### أولمبيك أسفي ضد نهضة خميس الزمامرة (N/A, Wed, 22 Apr 2026 10:30:00 -0700)
+
+- **تحديد حكام المباراتين المؤجلتين ضمن الجولة 12 من البطولة الاحترافية INWI1**: [Link](https://frmf.ma/articles/inwi1-12)
+- **العصبة تحدد ملعب احتضان مباراة تواركة وأ.آسفي**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D8%AD%D8%AA%D8%B6%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%A7%D8%B1%D9%83%D8%A9/)
+- **20 درهما لمتابعة آسفي والزمامرة**: [Link](https://www.hesport.com/20-%D8%AF%D8%B1%D9%87%D9%85%D8%A7-%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A2%D8%B3%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-435779.html)
+
+
+### real sociedad – getafe (N/A, Wed, 22 Apr 2026 10:30:00 -0700)
+
+- **Información útil para el partido**: [Link](http://www.realsociedad.eus/es/noticias/detalle/informacion-util-para-el-partido-38)
+- **🚨Fiesta en Anoeta con el Getafe de invitado**: [Link](https://onefootball.com/de/news/fiesta-en-anoeta-con-el-getafe-de-invitado-42751169)
+- **La resaca copera deja en la Real un once con solo tres futbolistas que jugaron de inicio la final**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20260422/1004173998/resaca-copera-deja-real-once-tres-futbolistas-jugaron-inicio-final.html)
+
+
+### cheptel (N/A, Wed, 22 Apr 2026 10:10:00 -0700)
+
+- **Cheptel à 40 millions de têtes et 13 MMDH mobilisés : le gouvernement presse les éleveurs de faire baisser les prix**: [Link](https://fr.hespress.com/470653-cheptel-a-40-millions-de-tetes-et-13-mmdh-mobilises-le-gouvernement-presse-les-eleveurs-de-faire-baisser-les-prix.html)
+- **Les éleveurs appelés à mettre leurs moutons sur le marché pour faire baisser les prix**: [Link](https://www.lavieeco.com/affaires/agriculture/les-eleveurs-appeles-a-mettre-leurs-moutons-sur-le-marche-pour-faire-baisser-les-prix/)
+- **Importation de bétail : 61 milliards de dirhams alloués à 370 bénéficiaires, dont dix parlementaires, soulèvent une onde de choc à l’hémicycle**: [Link](https://barlamane.com/fr/importation-de-betail-61-milliards-de-dirhams-alloues-a-370-beneficiaires-dont-dix-parlementaires-soulevent-une-onde-de-choc-a-lhemicycle/)
+
+
+### إلتشيه ضد أتلتيكو مدريد (N/A, Wed, 22 Apr 2026 09:40:00 -0700)
+
+- **القنوات الناقلة لمباراة أتلتيكو مدريد ضد إلتشي اليوم في الدوري الإسباني مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/687283623272278-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **مواجهة مثيرة بين أتلتيكو مدريد وإلتشي تتصدر الأحداث بمفاجآت سيميوني الشيقة**: [Link](https://tawusal.com/113693/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A5%D9%84%D8%AA%D8%B4%D9%8A/)
+- **أوبلاك يعود إلى أتلتيكو مدريد من أجل منافسة خوان جارسيا**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A3%D9%88%D8%A8%D9%84%D8%A7%D9%83-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D9%85%D9%86/)
+
+
+### بي اس جي ضد نانت (N/A, Wed, 22 Apr 2026 09:40:00 -0700)
+
+- **لويس إنريكي يرفض فكرة "كثرة الصفقات" ويتمسك بسياسة تدوير اللاعبين في باريس**: [Link](https://m.elbotola.com/article/2026-04-21-12-15-688.html)
+- **شكوى بلا مبرر من انريكي .. باريس صنع أزمته بنفسه !**: [Link](https://hihi2.com/2026/04/22/p3736050.html)
+- **باريس سان جيرمان يواجه نانت في مباراة مؤجلة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%86%D8%A7%D9%86%D8%AA-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A4%D8%AC%D9%84%D8%A9-2026-04-22)
+
+
 ### psg vs nantes (N/A, Wed, 22 Apr 2026 09:30:00 -0700)
 
 - **Paris Saint-Germain vs Nantes: Ligue 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/czd7e326z52t)
