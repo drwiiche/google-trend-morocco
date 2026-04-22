@@ -1,3 +1,50 @@
+### psg vs nantes (N/A, Wed, 22 Apr 2026 09:30:00 -0700)
+
+- **Paris Saint-Germain vs Nantes: Ligue 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/czd7e326z52t)
+- **Nantes depleted for PSG trip but Dehmaine Tabibou cleared to play**: [Link](https://onefootball.com/fr/news/nantes-depleted-for-psg-trip-but-dehmaine-tabibou-cleared-to-play-42749985)
+- **PSG vs Nantes predictions: Parisians edge past Canaries**: [Link](https://www.goal.com/en-ca/betting/tips/psg-vs-nantes-predictions-04-22/A%3Abltfc4a774742a6e5e9)
+
+
+### elche – atlético madrid (N/A, Wed, 22 Apr 2026 09:10:00 -0700)
+
+- **Elche - Atlético en directo | LALIGA EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/elche-atletico/2026/04/22/01_0101_20260422_954_175-directo.html)
+- **Simeone: "La vida es aceptar y aprender de las situaciones"**: [Link](https://www.vavel.com/es/futbol/2026/04/22/atletico-de-madrid/1258390-simeone-la-vida-es-aceptar-las-situaciones-que-se-van-dando-y-aprender.html)
+- **Elche vs Atlético de Madrid: previa, predicciones y alineaciones**: [Link](https://www.si.com/es-us/futbol/elche-vs-atletico-de-madrid-previa-predicciones-y-alineaciones-22-4-2026)
+
+
+### paris-sg – nantes (N/A, Wed, 22 Apr 2026 09:10:00 -0700)
+
+- **Luis Enrique défend sa politique de recrutement avant PSG-Nantes : «Ça aurait été ridicule de signer beaucoup de joueurs»**: [Link](https://www.lequipe.fr/Football/Actualites/Luis-enrique-defend-sa-politique-de-recrutement-avant-psg-nantes-ca-aurait-ete-ridicule-de-signer-beaucoup-de-joueurs/1669667)
+- **"Cela va provoquer une réaction de leur part" : Vahid Halilhodzic pense que le PSG peut réagir après sa défaite face à Lyon**: [Link](https://tribuna.com/fr/news/2026-04-22-cela-va-provoquer-une-reaction-de-leur-part-vahid-halilhodzic-pense-que-le-psg-peut-reagi/)
+- **Ligue 1 : Vitinha forfait pour la réception du FC Nantes**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-vitinha-forfait-pour-la-reception-du-fc-nantes-mbaye-de-retour-dans-le-groupe/WdY3MSGa/)
+
+
+### النصر ضد الأهلي (N/A, Wed, 22 Apr 2026 09:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة النصر والأهلي في نصف نهائي دوري أبطال آسيا "2" 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-2-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt38ed8df990cd3def)
+- **دوري أبطال آسيا 2: النصر ورونالدو لتخطي الأهلي القطري وبلوغ النهائي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260421-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-2-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%84%D8%AA%D8%AE%D8%B7%D9%8A-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A-%D9%88%D8%A8%D9%84%D9%88%D8%BA-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **يبدأ كريستيانو رونالدو مع تأكيد الفرق والتشكيلات في نصف نهائي دوري أبطال آسيا، والقناة التلفزيونية الكاملة وتفاصيل البث المباشر عبر الإنترنت**: [Link](https://albalad.news/sport/%D9%8A%D8%A8%D8%AF%D8%A3-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%85%D8%B9-%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B1%D9%82/443395/)
+
+
+### resultat euromillions (N/A, Wed, 22 Apr 2026 09:10:00 -0700)
+
+
+
+
+### أستون فيلا (N/A, Wed, 22 Apr 2026 08:20:00 -0700)
+
+- **بعرض لا يمكن رفضه.. نجم برشلونة مطلوب في أستون فيلا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%B1%D8%B6-%D9%84%D8%A7-%D9%8A%D9%85%D9%83%D9%86-%D8%B1%D9%81%D8%B6%D9%87--%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D8%B7%D9%84%D9%88%D8%A8-%D9%81%D9%8A-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7/blt8a16774485ea0732)
+- **برشلونة يضحي ببالدي ويستقر على البديل !**: [Link](https://hihi2.com/2026/04/22/p3735860.html)
+- **عرض خيالي يضع بالدي على أعتاب الدوري الإنجليزي الممتاز**: [Link](https://sports.asharq.com/football/105849/%D8%B9%D8%B1%D8%B6-%D8%AE%D9%8A%D8%A7%D9%84%D9%8A-%D9%8A%D8%B6%D8%B9-%D8%A8%D8%A7%D9%84%D8%AF%D9%8A-%D8%B9%D9%84%D9%89-%D8%A3%D8%B9%D8%AA%D8%A7%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/)
+
+
+### أفريقيا (N/A, Wed, 22 Apr 2026 06:50:00 -0700)
+
+- **خاص لكووورة.. كاف يرد على تقارير نقل أمم أفريقيا 2027**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A7%D8%B5-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9--%D9%83%D8%A7%D9%81-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D9%86%D9%82%D9%84-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027/blt11b197f8a1321010)
+- **تحت إشراف "الكاف".. سباق التحضيرات لـ"كان 2027" ينطلق**: [Link](https://ar.telquel.ma/%D8%AA%D8%AD%D8%AA-%D8%A5%D8%B4%D8%B1%D8%A7%D9%81-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA-%D9%84%D9%80%D9%83%D8%A7%D9%86/)
+- **تأخر الأشغال يهدد "كان 2027".. هل يُسحب التنظيم من أوغندا وكينيا وتانزانيا**: [Link](https://www.hesport.com/%D8%AA%D8%A3%D8%AE%D8%B1-%D8%A7%D9%84%D8%A3%D8%B4%D8%BA%D8%A7%D9%84-%D9%8A%D9%87%D8%AF%D8%AF-%D9%83%D8%A7%D9%86-2027-%D9%87%D9%84-%D9%8A%D9%8F%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AA%D9%86%D8%B8-435966.html)
+
+
 ### al-nassr fc – al ahli (N/A, Wed, 22 Apr 2026 08:30:00 -0700)
 
 - **Al-Nassr vs Al-Ahli Qat LIVE Score Updates in AFC Champions League Two Match**: [Link](https://www.vavel.com/en-us/soccer/2026/04/22/1258393-al-nassr-vs-al-ahli-live-score-afc-champions-league-two.html)
