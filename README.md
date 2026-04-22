@@ -1,3 +1,17 @@
+### vol ryanair maroc (N/A, Tue, 21 Apr 2026 18:10:00 -0700)
+
+- **Marne : un avion Ryanair décolle en direction du Maroc sans ses 192 passagers**: [Link](https://www.lefigaro.fr/actualite-france/marne-un-avion-ryanair-decolle-en-direction-du-maroc-sans-ses-192-passagers-20260419)
+- **"Ils sont partis sans nous" : un vol Ryanair décolle en laissant 83 passagers au sol à l'aéroport Marseille-Provence**: [Link](https://www.laprovence.com/article/faits-divers-justice/1812139118103814/ils-sont-partis-sans-nous-un-vol-ryanair-decolle-en-laissant-83-passagers-au-sol-a-l-aeroport-marseille-provence)
+- **Marne : un avion Ryanair pour le Maroc décolle sans ses 192 passagers**: [Link](https://www.franceinfo.fr/economie/transports/marne-un-avion-ryanair-pour-le-maroc-decolle-sans-ses-192-passagers_7949714.html)
+
+
+### ترتيب الدوري الاسباني (N/A, Tue, 21 Apr 2026 14:30:00 -0700)
+
+- **موعد "الكلاسيكو" بين برشلونة وريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/4/20/%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **"جِلد الدب".. ريال مدريد يشعل الحرب النفسية ليحول إنجاز برشلونة إلى كابوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%90%D9%84%D8%AF-%D8%A7%D9%84%D8%AF%D8%A8--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%A7%D9%84%D9%86%D9%81%D8%B3%D9%8A%D8%A9-%D9%84%D9%8A%D8%AD%D9%88%D9%84-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D9%83%D8%A7%D8%A8%D9%88%D8%B3/bltcbe11d3511edff2a)
+- **الليغا تعلن موعد «كلاسيكو الأرض»**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6/)
+
+
 ### kylian mbappé (N/A, Tue, 21 Apr 2026 14:50:00 -0700)
 
 - **Real Madrid are preparing for Kroos return**: [Link](https://en.as.com/soccer/real-madrid-are-preparing-for-kroos-return-f202604-n/)
