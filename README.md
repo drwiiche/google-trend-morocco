@@ -1,3 +1,52 @@
+### leverkusen – bayern (N/A, Wed, 22 Apr 2026 11:20:00 -0700)
+
+- **Job auf Bewährung? Bayer-Coach Hjulmand reagiert**: [Link](https://www.nordschleswiger.dk/sport/job-auf-bewaehrung-bayer-coach-hjulmand-reagiert/3421800)
+- **Mit Xabi Alonsos Kniff ins Finale? Woran selbst Bayers letzte Lösung hakt**: [Link](https://www.kicker.at/mit-xabi-alonsos-kniff-ins-finale-woran-selbst-bayers-letzte-loesung-hakt-1212288/artikel)
+- **Kurzpässe vor #B04FCB: Busempfang beim Pokal-Highlight**: [Link](https://www.bayer04.de/pt-br/news/dfb-copa-da-alemanha/notas-rapidas-antes-de-b04fcb-recepcao-do-onibus-na-semifinal-da-copa)
+
+
+### burnley – manchester city (N/A, Wed, 22 Apr 2026 11:20:00 -0700)
+
+- **Premier League: Reaction as Liam Rosenior sacked, plus Burnley vs Man City and Bournemouth vs Leeds**: [Link](https://www.bbc.com/sport/football/live/cn9qw01ex8nt)
+- **A player who will play a pivotal role for Manchester City tonight knows the challenge ahead**: [Link](https://esteemedkompany.com/2026/04/22/a-player-who-will-play-a-pivotal-role-for-manchester-city-tonight-knows-the-challenge-ahead/)
+- **LINEUPS HAVE LANDED!**: [Link](https://www.besoccer.com/new/live-burnley-v-man-city-1405776)
+
+
+### بيرنلي ضد مان سيتي (N/A, Wed, 22 Apr 2026 11:20:00 -0700)
+
+- **جوارديولا يطلق تحذيرًا ناريًا في سباق اللقب.. ويعلن غياب ثنائي مانشستر سيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%B7%D9%84%D9%82-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D9%8B%D8%A7-%D9%86%D8%A7%D8%B1%D9%8A%D9%8B%D8%A7-%D9%81%D9%8A-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%84%D9%82%D8%A8--%D9%88%D9%8A%D8%B9%D9%84%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/bltf6acef57f28bce6f)
+- **غوارديولا يؤكد غياب رودري ضد بيرنلي في الدوري الإنجليزي بسبب الإصابة**: [Link](https://m.elbotola.com/article/2026-04-21-12-00-710.html)
+- **استعدادات مانشستر سيتي وبيرنلي في الدوري الإنجليزي 2026**: [Link](https://newturkpost.com/news/113810-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D9%8A%D8%B1%D9%86%D9%84%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026)
+
+
+### منتخب الجزائر لكرة القدم (N/A, Wed, 22 Apr 2026 11:20:00 -0700)
+
+- **هل سيقول محرز كلمته الأخيرة؟.. تغيير مفاجئ بشأن شارة قيادة الجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%B3%D9%8A%D9%82%D9%88%D9%84-%D9%85%D8%AD%D8%B1%D8%B2-%D9%83%D9%84%D9%85%D8%AA%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9--%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%B4%D8%A7%D8%B1%D8%A9-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/bltcce4151c4f961b32)
+- **ترقية ماندي على حساب محرز.. مدرب الجزائر يقترب من حسم قائمة كأس العالم**: [Link](https://www.aljazeera.net/sport/2026/4/22/%D9%85%D8%AD%D8%B1%D8%B2-%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **خبر محبط لمنتخب الجزائر والعرب في كأس العالم 2026**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A8%D8%B1-%D9%85%D8%AD%D8%A8%D8%B7-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026)
+
+
+### ليفركوزن ضد البايرن (N/A, Wed, 22 Apr 2026 11:00:00 -0700)
+
+- **كأس ألمانيا...هل يشارك بن الصغير أمام بايرن ميونيخ؟**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7%D9%87%D9%84-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D8%A8%D9%86-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE/19087)
+- **شتوتغارت وفريبورغ في صراع ناري على بطاقة نهائي كأس ألمانيا (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/04/stuttgart-freiburg-semifinal-dfbpokal-pronostic.html)
+- **«هذا ما أسعى لتحسينه».. مازا يكشف تفاصيل حديثه مع جمال موسيالا**: [Link](https://al-ain.com/article/maza-musiala-byern-leverkusen-talent)
+
+
+### iphone 18 (N/A, Wed, 22 Apr 2026 11:00:00 -0700)
+
+- **アップル、iPhone 18 Proの新色は「ダークチェリー」とのうわさ**: [Link](https://japan.cnet.com/article/35246639/)
+- **iPhone18とiPhone18eはデザイン確定か〜次の開発段階へ移行との報告**: [Link](https://iphone-mania.jp/iphone18-601423/)
+- **彼はあなたを興奮させた。 iPhone 17? Z iPhone それどころか、あなたはきっと失望し、怒りを覚えるでしょう！**: [Link](https://www.letemsvetemapplem.eu/ja/2026/04/21/nadchnul-vas-iphone-17-z-iphone-18-budete-naopak-dost-mozna-zklamana-a-nastvani/)
+
+
+### espanyol vs barcelona (N/A, Wed, 22 Apr 2026 10:50:00 -0700)
+
+- **Espanyol - Barça femenino, en directo hoy: derbi de la Liga F Moeve, en vivo**: [Link](https://www.sport.es/es/noticias/barca/futbol-femenino/espanyol-barca-femenino-directo-hoy-129405322)
+- **La columna vertebral del Barça está a un paso de igualar el ‘récord’ de ligas de Sonia Bermúdez**: [Link](https://cadenaser.com/nacional/2026/04/21/la-columna-vertebral-del-barca-esta-a-un-paso-de-igualar-el-record-de-ligas-de-sonia-bermudez-cadena-ser/)
+- **Pere Romeu ante el posible aliron: "Somos un equipo elegante"**: [Link](https://www.articulo14.es/deportes/pere-romeu-confirma-paredes-y-paralluelo-han-vuelto-con-molestias-fisicas-duda-derbi-20260421.html)
+
+
 ### أولمبيك أسفي ضد نهضة خميس الزمامرة (N/A, Wed, 22 Apr 2026 10:30:00 -0700)
 
 - **تحديد حكام المباراتين المؤجلتين ضمن الجولة 12 من البطولة الاحترافية INWI1**: [Link](https://frmf.ma/articles/inwi1-12)
