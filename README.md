@@ -1,3 +1,45 @@
+### الأميرة للا خديجة (N/A, Wed, 22 Apr 2026 16:00:00 -0700)
+
+- **الأميرات للا خديجة وللا مريم وللا حسناء يحضرن العرض الافتتاحي للمسرح الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%A7-%D8%AE%D8%AF%D9%8A%D8%AC%D8%A9-%D9%88%D9%84%D9%84%D8%A7-%D9%85%D8%B1%D9%8A%D9%85-%D9%88%D9%84%D9%84%D8%A7-%D8%AD%D8%B3%D9%86%D8%A7-1735470.html)
+- **بريجيت ماكرون تحل بالرباط**: [Link](https://barlamane.com/%D8%A8%D8%B1%D9%8A%D8%AC%D9%8A%D8%AA-%D9%85%D8%A7%D9%83%D8%B1%D9%88%D9%86-%D8%AA%D8%AD%D9%84-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7/)
+- **افتتاح مسرح الرباط في هذا التاريخ وكبار الضيوف ينزلون بفندق برج محمد السادس**: [Link](https://rue20.com/994767.html)
+
+
+### عثمان معما (N/A, Wed, 22 Apr 2026 15:20:00 -0700)
+
+- **واتفورد يقطع الطريق على أندية فرنسا ويتحرك لتحصين عثمان معما**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%A7%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D9%8A%D9%82%D8%B7%D8%B9-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%B9%D9%84%D9%89-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%AA%D8%AD%D8%B5%D9%8A%D9%86-%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D9%85%D8%B9%D9%85%D8%A7/19098)
+- **عثمان معما في خطر.. هل يضيع حلم مونديال 2026؟**: [Link](https://www.hibasport.com/details-402098.html)
+- **لوزا ومعما يتنافسان على جائزة أفضل هدف وأفضل لاعب**: [Link](https://inews.ma/news/8287170)
+
+
+### karim bouamrane (N/A, Wed, 22 Apr 2026 15:20:00 -0700)
+
+- **Le duel entre Bally Bagayoko et Karim Bouamrane en Seine-Saint-Denis, révélateur de la guerre des gauches**: [Link](https://www.lemonde.fr/politique/article/2026/04/22/en-seine-saint-denis-la-guerre-des-gauches-s-est-jouee-dans-le-duel-entre-bally-bagayoko-et-karim-bouamrane-pour-la-presidence-de-l-intercommunalite_6682350_823448.html)
+- **Le maire de Saint-Denis Bally Bagayoko élu à la tête de la puissante intercommunalité « Plaine Commune »**: [Link](https://www.sudouest.fr/elections/municipales/le-maire-de-saint-denis-bally-bagayoko-elu-a-la-tete-de-la-puissante-intercommunalite-plaine-commune-28778298.php)
+- **Karim Bouamrane défie Bally Bagayoko pour la présidence de Plaine Commune**: [Link](https://www.20minutes.fr/politique/4219370-20260420-seine-saint-denis-bouamrane-ps-defie-bagayoko-lfi-presidence-intercommunalite-plaine-commune)
+
+
+### رايان إير (N/A, Wed, 22 Apr 2026 15:20:00 -0700)
+
+- **"برات آند ويتني" كندا تفتتح مصنعا لتصنيع قطع محركات الطائرات في النواصر**: [Link](https://ar.yabiladi.com/articles/details/192892/%D8%A8%D8%B1%D8%A7%D8%AA-%D8%A2%D9%86%D8%AF-%D9%88%D9%8A%D8%AA%D9%86%D9%8A-%D9%83%D9%86%D8%AF%D8%A7-%D8%AA%D9%81%D8%AA%D8%AA%D8%AD.html)
+- **المغرب يعزز موقعه كقطب عالمي لصناعة الطيران - تليكسبريس**: [Link](https://telexpresse.com/469003.html)
+- **الدار البيضاء تحتضن استثماراً أمريكياً بـ715 مليون درهم.. مصنع 'Pratt & Whitney' يرسخ ريادة المغرب**: [Link](https://barlamane.com/%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%AA%D8%AD%D8%AA%D8%B6%D9%86-%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1%D8%A7%D9%8B-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A/)
+
+
+### agriculture (N/A, Wed, 22 Apr 2026 15:20:00 -0700)
+
+- **Georgia Congressman David Scott has died**: [Link](https://www.wabe.org/breaking-georgia-congressman-david-scott-has-died-at-80/)
+- **Leaders, community remember ‘devoted’ Congressman David Scott**: [Link](https://www.wsbtv.com/news/local/henry-county/leaders-community-remember-devoted-congressman-david-scott/SMH63HRQAFHMBDAVB2L4YZIRGU/)
+- **Longtime Georgia Democrat US Rep. David Scott dies at 80**: [Link](https://www.cnn.com/2026/04/22/politics/david-scott-death-georgia-house)
+
+
+### botola (N/A, Wed, 22 Apr 2026 14:30:00 -0700)
+
+- **3,000 Tickets Allocated to Wydad Supporters for Marrakech Match**: [Link](https://www.moroccoworldnews.com/2026/04/288215/3000-tickets-allocated-to-wydad-supporters-for-marrakech-match/)
+- **Kawkab Marrakech Allocates 3,000 Tickets for Wydad AC Fans, Priced at 60 Dirhams**: [Link](https://m.elbotola.com/en/article/2026-04-22-14-16-947.html)
+- **Injured Hakim Ziyech nears Wydad return**: [Link](https://africasoccer.com/patrice-carteron-handed-major-boost-as-ziyech-nears-wydad-return/)
+
+
 ### لا ليغا (N/A, Wed, 22 Apr 2026 14:50:00 -0700)
 
 - **لاعب برشلونة عن "رفض الريال" للممر الشرفي: أظهروا بعض الاحترام!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%86-%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%84%D9%84%D9%85%D9%85%D8%B1-%D8%A7%D9%84%D8%B4%D8%B1%D9%81%D9%8A-%D8%A7%D9%94%D8%B8%D9%87%D8%B1%D9%88%D8%A7-%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85/blte4a0ce994455e8e1)
