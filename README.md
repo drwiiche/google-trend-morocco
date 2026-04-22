@@ -1,3 +1,24 @@
+### قناة الجزيرة (N/A, Tue, 21 Apr 2026 22:00:00 -0700)
+
+- **حرب إيران مباشر.. طهران تشترط للتفاوض وترمب يمدد وقف إطلاق النار**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/21/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D9%81%D8%AE%D8%B1-%D8%A8%D8%A7%D9%84%D9%86%D8%B5%D8%B1)
+- **ترامب يعلن تمديد وقف إطلاق النار مع إيران**: [Link](https://www.skynewsarabia.com/world/1865476-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%85%D8%AF%D9%8A%D8%AF-%D9%88%D9%82%D9%81-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **ترامب يتهم إيران بخرق الاتفاق وطهران تلوّح بـ"جحيم جديد".. فهل تنهار الهدنة؟**: [Link](https://arabic.euronews.com/2026/04/21/trump-iran-ceasefire-negotiations-military-escalation-us)
+
+
+### space exploration (N/A, Tue, 21 Apr 2026 20:30:00 -0700)
+
+- **NASA, OPM Announce New NASA Force Website, Open Job Applications**: [Link](https://www.nasa.gov/news-release/nasa-opm-announce-new-nasa-force-website-open-job-applications/)
+- **You've heard of the Space Force. Now there's a 'NASA Force' — but it's not about making space war**: [Link](https://www.space.com/space-exploration/youve-heard-of-the-space-force-now-theres-a-nasa-force-but-its-not-about-making-space-war)
+- **STARCOM hiring surge aims to fill more than 400 civilian positions**: [Link](https://www.spaceforce.mil/News/Article-Display/Article/4457856/starcom-hiring-surge-aims-to-fill-more-than-400-civilian-positions/)
+
+
+### electric vehicles (N/A, Tue, 21 Apr 2026 20:30:00 -0700)
+
+- **CATL claims 6-minute charge and 1,500km range for new electric vehicle batteries**: [Link](https://www.ft.com/content/1773de37-2595-4d9f-9536-dbe03ff1f8d3?syn-25a6b1a6=1)
+- **CATL Unveils Fast-Charging Battery Innovation**: [Link](https://www.wsj.com/business/autos/catl-unveils-fast-charging-battery-innovation-fd617f05)
+- **CATL one-ups BYD with its new LFP EV battery capable of a full recharge in just 6 minutes**: [Link](https://electrek.co/2026/04/21/catl-one-ups-byd-new-lfp-ev-battery-charges-in-6-mins/)
+
+
 ### vol ryanair maroc (N/A, Tue, 21 Apr 2026 18:10:00 -0700)
 
 - **Marne : un avion Ryanair décolle en direction du Maroc sans ses 192 passagers**: [Link](https://www.lefigaro.fr/actualite-france/marne-un-avion-ryanair-decolle-en-direction-du-maroc-sans-ses-192-passagers-20260419)
