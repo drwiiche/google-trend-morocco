@@ -1,3 +1,10 @@
+### pratt & whitney (N/A, Wed, 22 Apr 2026 02:00:00 -0700)
+
+- **News | RTX's Pratt & Whitney Canada opens new manufacturing facility in Casablanca, Morocco**: [Link](https://www.rtx.com/news/news-center/2026/04/21/rtxs-pratt-whitney-canada-opens-new-manufacturing-facility-in-casablanca-moro)
+- **Morocco Expands Aerospace Industry With Pratt & Whitney Casablanca Plant**: [Link](https://www.moroccoworldnews.com/2026/04/288097/morocco-expands-aerospace-industry-with-pratt-whitney-casablanca-plant/)
+- **Pratt & Whitney Canada opens aircraft engine parts manufacturing plant in Nouaceur**: [Link](https://en.yabiladi.com/articles/details/192890/pratt-and-whitney-canada-opens-aircraft.html)
+
+
 ### impôt (N/A, Tue, 21 Apr 2026 22:30:00 -0700)
 
 - **Impôts : une amende est prévue pour ceux qui s’obstinent à déclarer leurs revenus en version papier**: [Link](https://leparticulier.lefigaro.fr/jcms/c_113075/impots/impots-gare-a-l-amende-pour-ceux-s-obstinent-a-declarer-leurs-revenus-en-version-papier-20260417)
