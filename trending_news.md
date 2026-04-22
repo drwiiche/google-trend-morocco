@@ -1,3 +1,15 @@
+### لا ليغا (N/A, Wed, 22 Apr 2026 14:50:00 -0700)
+
+- **لاعب برشلونة عن "رفض الريال" للممر الشرفي: أظهروا بعض الاحترام!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%86-%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%84%D9%84%D9%85%D9%85%D8%B1-%D8%A7%D9%84%D8%B4%D8%B1%D9%81%D9%8A-%D8%A7%D9%94%D8%B8%D9%87%D8%B1%D9%88%D8%A7-%D8%A8%D8%B9%D8%B6-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85/blte4a0ce994455e8e1)
+- **موعد "الكلاسيكو" بين برشلونة وريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/4/20/%D9%85%D9%88%D8%B9%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **الليغا تعلن موعد «كلاسيكو الأرض»**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6/)
+
+
+### un si grand soleil (N/A, Wed, 22 Apr 2026 14:40:00 -0700)
+
+
+
+
 ### botola pro (N/A, Wed, 22 Apr 2026 14:30:00 -0700)
 
 - **3,000 Tickets Allocated to Wydad Supporters for Marrakech Match**: [Link](https://www.moroccoworldnews.com/2026/04/288215/3000-tickets-allocated-to-wydad-supporters-for-marrakech-match/)
