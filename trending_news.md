@@ -1,3 +1,52 @@
+### botola pro (N/A, Wed, 22 Apr 2026 14:30:00 -0700)
+
+- **3,000 Tickets Allocated to Wydad Supporters for Marrakech Match**: [Link](https://www.moroccoworldnews.com/2026/04/288215/3000-tickets-allocated-to-wydad-supporters-for-marrakech-match/)
+- **Kawkab Marrakech Allocates 3,000 Tickets for Wydad AC Fans, Priced at 60 Dirhams**: [Link](https://m.elbotola.com/en/article/2026-04-22-14-16-947.html)
+- **Injured Hakim Ziyech nears Wydad return**: [Link](https://africasoccer.com/patrice-carteron-handed-major-boost-as-ziyech-nears-wydad-return/)
+
+
+### la liga (N/A, Wed, 22 Apr 2026 14:10:00 -0700)
+
+- **Gavi, Ferran start in a 4-2-3-1 – How Barcelona can line up against Celta Vigo**: [Link](https://barcauniversal.com/gavi-ferran-start-in-a-4-2-3-1-how-barcelona-can-line-up-against-celta-vigo/)
+- **Lewandowski boasts a formidable record against Figo**: [Link](https://tembah.net/news?nid=87602)
+- **Flick Goes All-In: BarçA’s Lineup To Seal LaLiga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/flick-goes-all-in-bar%C3%A7a-s-lineup-to-seal-laliga-2026-04-22)
+
+
+### coupe d'allemagne (N/A, Wed, 22 Apr 2026 14:00:00 -0700)
+
+- **DIRECT. Bayer Leverkusen-Bayern Munich (Coupe d'Allemagne 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/coupe-d-allemagne/2025-2026/bayer-leverkusen-bayern-munich-live/688927)
+- **DFP Pokal : L'inévitable Harry Kane ouvre le score dans cette demi-finale !**: [Link](https://www.beinsports.com/fr-fr/football/coupe-dallemagne/articles-video/dfp-pokal-l-in%C3%A9vitable-harry-kane-ouvre-le-score-dans-cette-demi-finale-2026-04-22)
+- **Cpe d'All : Le Bayern Munich qualifié pour la finale**: [Link](https://www.foot01.com/allemagne/cpe-dall-le-bayern-munich-qualifie-pour-la-finale)
+
+
+### lamine yamal (N/A, Wed, 22 Apr 2026 13:40:00 -0700)
+
+- **Lamine Yamal forced off with injury after scoring penalty**: [Link](https://www.espn.com/soccer/story/_/id/48563164/lamine-yamal-injury-penalty-barcelona-celta-vigo)
+- **Reason for the Suspension of the Barcelona vs. Celta Vigo Match**: [Link](https://www.ysscores.com/en/news/13950655/Reason-for-the-Suspension-of-the-Barcelona-vs.-Celta-Vigo-Match)
+- **Spain La Liga Soccer**: [Link](https://www.wvnews.com/sports/pro/spain-la-liga-soccer/image_e2529d36-e5e7-5f8f-a26f-3d107d053bbe.html)
+
+
+### barcelona (N/A, Wed, 22 Apr 2026 13:30:00 -0700)
+
+- **¡Alarma total!: Lamine, KO en los isquios**: [Link](https://as.com/futbol/primera/alarma-total-lamine-ko-en-los-isquios-f202604-n/)
+- **Barcelona - Celta en directo: ¡gol de Lamine Yamal y se lesiona! | LALIGA EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-celta/2026/04/22/01_0101_20260422_178_176-directo.html)
+- **¡Alarma Lamine! Marca de penalti y pide el cambio por lesión**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260422/1004174080/alarma-lamine-marca-penalti-pide-cambio-lesion.html)
+
+
+### atalanta – lazio (N/A, Wed, 22 Apr 2026 13:10:00 -0700)
+
+- **🔴 Atalanta-Lazio | ✅ UFFICIALI: la scelta su Maldini, Zalewski e Scamacca**: [Link](https://onefootball.com/fr/news/atalanta-lazio-ufficiali-la-scelta-su-maldini-zalewski-e-scamacca-42751416)
+- **Percassi: “Gasp? In certe storie ci si emoziona”**: [Link](https://www.allroma.it/percassi-gasp-in-certe-storie-ci-si-emoziona/)
+- **Tutti gli aggiornamenti e le notizie di calcio oggi**: [Link](https://www.diretta.it/news/calcio-live-news-il-caso-escort-rosenior-out-in-campo-atalanta-lazio-0-0-annullato-l-1-0/hABk18WF/)
+
+
+### apple iphone 18 (N/A, Wed, 22 Apr 2026 12:50:00 -0700)
+
+- **Exclusive look at Dark Cherry and the rest of the iPhone 18 Pro colors**: [Link](https://www.macworld.com/article/3116701/iphone-18-pro-colors-revealed-exclusive-look-at-apples-2026-models.html)
+- **iPhone 18s: Apple May Downgrade New Model to Cut Costs**: [Link](https://www.brandsynario.com/iphone-18-cost-cutting-downgrade/)
+- **iPhone 18 Pro Overview - Compact Design, New Color, Upgrades**: [Link](https://www.rswebsols.com/news/iphone-18-pro-overview-compact-dynamic-island-deep-cherry-color-upgraded-processor-and-additional-features/)
+
+
 ### laliga (N/A, Wed, 22 Apr 2026 13:20:00 -0700)
 
 - **Barcelona vs Celta LIVE: goals, score and lineups in Lamine Yamal’s key LaLiga clash**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/live-blog-barcelona-vs-celta-vigo-live-goals-and-score-in-lamine-yamal-s-match-2026-04-22)
