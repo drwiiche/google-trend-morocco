@@ -1,3 +1,73 @@
+### as far vs rs berkane (N/A, Wed, 22 Apr 2026 12:30:00 -0700)
+
+- **Jalal Jayed to Officiate AS FAR vs. RS Berkane Clash, Baroudi on VAR**: [Link](https://m.elbotola.com/en/article/2026-04-21-10-05-278.html)
+- **AS FAR vs RS Berkane: Ticket Sales Open as Title Race Intensifies**: [Link](https://www.moroccoworldnews.com/2026/04/287820/as-far-vs-rs-berkane-ticket-sales-open-as-title-race-intensifies/)
+- **CAF Champions League: date, time and history of the RS Berkane vs AS FAR match**: [Link](https://foot-africa.com/en/news/caf-champions-league-date-time-and-history-of-the-rs-berkane-vs-as-far-match-1169858/)
+
+
+### galatasaray – gençlerbirliği (N/A, Wed, 22 Apr 2026 12:30:00 -0700)
+
+- **Galatasaray, Gençlerbirliği Maçı için Geri Sayıma Başladı! ⏳**: [Link](https://kahtahaberpostasi.com/galatasaray-genclerbirligi-maci-icin-geri-sayima-basladi_,h4928)
+- **Okan Buruk'tan 9 değişiklik: Osimhen 35 gün sonra kulübede**: [Link](https://www.nefes.com.tr/okan-buruktan-9-degisiklik-osimhen-35-gun-sonra-kulubede-120016)
+- **Trabzon’da heriflik yapmıştı! Takımına rezaleti yaşattı**: [Link](https://www.61saat.com/trabzonda-heriflik-yapmisti-takimina-rezaleti-yasatti)
+
+
+### achraf hakimi (N/A, Wed, 22 Apr 2026 12:10:00 -0700)
+
+- **Hakimi, en el Once Más Valioso del fútbol mundial**: [Link](https://es.rue20.com/2026/04/22/hakimi-en-el-once-mas-valioso-del-futbol-mundial/)
+- **Prensa brasileña ensalza a Hakimi como arma clave de Marruecos en el Mundial**: [Link](https://es.rue20.com/2026/04/22/prensa-brasilena-ensalza-a-hakimi-como-arma-clave-de-marruecos-en-el-mundial/)
+- **Cafu dice: “Este jugador africano es el mejor lateral derecho del mundo”**: [Link](https://www.afriquesports.net/es/europe/cafu-tranche-ce-joueur-africain-est-le-meilleur-lateral-droit-du-monde)
+
+
+### الجيش الملكي ضد نهضة بركان (N/A, Wed, 22 Apr 2026 12:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الجيش الملكي ونهضة بركان في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt728f806a5d1a12c2)
+- **جيد تحت مجهر لجنة التحكيم بـ"الفيفا"**: [Link](https://www.hespress.com/%D8%AC%D9%8A%D8%AF-%D8%AA%D8%AD%D8%AA-%D9%85%D8%AC%D9%87%D8%B1-%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D8%A8%D9%80%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-1734716.html)
+- **ألترا عسكري: مررنا بفترات صعبة.. والجيش مطالب بالمنافسة على جميع الألقاب**: [Link](https://www.hesport.com/%D8%A3%D9%84%D8%AA%D8%B1%D8%A7-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D9%85%D8%B1%D8%B1%D9%86%D8%A7-%D8%A8%D9%81%D8%AA%D8%B1%D8%A7%D8%AA-%D8%B5%D8%B9%D8%A8%D8%A9-%D9%88%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-435917.html)
+
+
+### barcelone – celta vigo (N/A, Wed, 22 Apr 2026 11:50:00 -0700)
+
+- **FC Barcelone – Celta Vigo : les compositions probables, chaîne TV et heure**: [Link](https://www.befoot.net/barcelone-celta-vigo-compos-probables/)
+- **FC Barcelona News: 22 April 2026**: [Link](https://www.barcablaugranes.com/barcelona-news/118268/fc-barcelona-news-22-april-2026-all-set-la-liga-celta-vigo-aston-villa-big-offer-alejandro-balde)
+- **Lewandowski boasts a formidable record against Figo**: [Link](https://tembah.net/news?nid=87602)
+
+
+### جمال السلامي (N/A, Wed, 22 Apr 2026 11:50:00 -0700)
+
+- **سلامي: "الأسود" لن يبلغوا نصف النهائي**: [Link](https://www.hesport.com/%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%84%D9%86-%D9%8A%D8%A8%D9%84%D8%BA%D9%88%D8%A7-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-435973.html)
+- **جمال السلامي يتوقع عدم بلوغ الأسود لنصف نهائي مونديال 2026**: [Link](https://www.almountakhab.com/node/13224746)
+- **صداع في رأس جمال سلامي بسبب قائمة الأردن في كأس العالم 2026**: [Link](https://www.365scores.com/ar/news/magazine/%D8%B5%D8%AF%D8%A7%D8%B9-%D9%81%D9%8A-%D8%B1%D8%A3%D8%B3-%D8%AC%D9%85%D8%A7%D9%84-%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF/)
+
+
+### برشلونة ضد سلتا فيغو (N/A, Wed, 22 Apr 2026 11:40:00 -0700)
+
+- **أخبار إيجابية.. عودة قوية تدعم برشلونة قبل مواجهة سيلتا فيجو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%95%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A%D8%A9--%D8%B9%D9%88%D8%AF%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B9%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%AC%D9%88/blt565939e856882128)
+- **مباشر مباراة برشلونة ضد سيلتا فيغو في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/22/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%81%D9%8A)
+- **ماذا قال فليك عن التغييرات في تشكيلة سيلتا فيغو ؟**: [Link](https://hihi2.com/2026/04/22/p3736473.html)
+
+
+### barcelona vs celta vigo (N/A, Wed, 22 Apr 2026 11:40:00 -0700)
+
+- **El posible once del Barça ante el Celta**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260422/1004173562/posible-once-barca-celta.html)
+- **El vestuario del FC Barcelona listo para el encuentro contra el Celta**: [Link](https://www.sport.es/es/videos/barca/20260422/vestuario-fc-barcelona-listo-encuentro/129412740.shtml)
+- **Barça-Celta: Ferran y Gavi TITULARES en el Camp Nou**: [Link](https://onefootball.com/es/noticias/barca-celta-ferran-y-gavi-titulares-en-el-camp-nou-42751296)
+
+
+### strasbourg – nice (N/A, Wed, 22 Apr 2026 11:40:00 -0700)
+
+- **Demi-finale de Coupe de France : Suivez RC Strasbourg - OGC Nice EN DIRECT**: [Link](https://www.eurosport.fr/football/coupe-de-france/2025-2026/live-strasbourg-ogc-nice_mtc1649618/live-commentary.shtml)
+- **PRONOS PARIS RMC Le pari football de Pascal Dupraz du 22 avril - Coupe de France**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-pascal-dupraz-du-22-avril-coupe-de-france_AN-202604220477.html)
+- **Racing-OGC Nice (1/2 CDF) à guichets fermés !**: [Link](https://onefootball.com/de/news/racing-ogc-nice-12-cdf-a-guichets-fermes-42746905)
+
+
+### bournemouth – leeds united (N/A, Wed, 22 Apr 2026 11:40:00 -0700)
+
+- **Premier League LIVE: Bournemouth vs Leeds United - build-up, team news, scores & live text commentary**: [Link](https://www.bbc.com/sport/football/live/cq591wpn6zgt)
+- **Bournemouth v Leeds, Middlesbrough v Sheffield Wednesday and more: football – live**: [Link](https://www.theguardian.com/sport/live/2026/apr/22/bournemouth-v-leeds-middlesbrough-v-sheffield-wednesday-and-more-football-live)
+- **Daniel Farke gives Leeds boost, Dan James back in training, Anton Stach to miss Bournemouth**: [Link](https://onefootball.com/de/news/daniel-farke-gives-leeds-boost-dan-james-back-in-training-anton-stach-to-miss-bournemouth-42751851)
+
+
 ### leverkusen – bayern (N/A, Wed, 22 Apr 2026 11:20:00 -0700)
 
 - **Job auf Bewährung? Bayer-Coach Hjulmand reagiert**: [Link](https://www.nordschleswiger.dk/sport/job-auf-bewaehrung-bayer-coach-hjulmand-reagiert/3421800)
