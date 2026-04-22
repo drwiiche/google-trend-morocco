@@ -1,3 +1,31 @@
+### laliga (N/A, Wed, 22 Apr 2026 13:20:00 -0700)
+
+- **Barcelona vs Celta LIVE: goals, score and lineups in Lamine Yamal’s key LaLiga clash**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/live-blog-barcelona-vs-celta-vigo-live-goals-and-score-in-lamine-yamal-s-match-2026-04-22)
+- **Lewandowski boasts a formidable record against Figo**: [Link](https://tembah.net/news?nid=87602)
+- **Home comforts for Barca and big changes for Atletico in La Liga**: [Link](http://www.china.org.cn/2026-04/22/content_118451189.shtml)
+
+
+### ترتيب الدوري الاسباني (N/A, Wed, 22 Apr 2026 13:10:00 -0700)
+
+- **شاهد.. نتيجة وملخص وأهداف مباراة ريال مدريد ضد ديبورتيفو ألافيس في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3)
+- **صفعة من المستقبل.. ضجيج البرنابيو يضع بيريز في قفص الاتهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B5%D9%81%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84--%D8%B6%D8%AC%D9%8A%D8%AC-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D9%8A%D8%B6%D8%B9-%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D9%81%D9%8A-%D9%82%D9%81%D8%B5-%D8%A7%D9%84%D8%A7%D8%AA%D9%87%D8%A7%D9%85/bltc0ccc528243c1e10)
+- **قدم.. ريال مدريد يستعيد نغمة انتصاراته على حساب ألافيس**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D8%BA%D9%85%D8%A9-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3/3914139)
+
+
+### porto – sporting (N/A, Wed, 22 Apr 2026 12:50:00 -0700)
+
+- **Farioli tenta no Dragão o que só André Villas-Boas conseguiu no FC Porto**: [Link](https://onefootball.com/en/news/farioli-tenta-no-dragao-o-que-so-andre-villas-boas-conseguiu-no-fc-porto-42748862)
+- **Autocarro do FC Porto já está a caminho do Dragão**: [Link](https://cnnportugal.iol.pt/videos/autocarro-do-fc-porto-ja-esta-a-caminho-do-dragao/69e909940cf27cac6fcf2590)
+- **"Rumo ao Jamor". Se vai hoje ao Dragão, PSP tem recomendações: "Civismo"**: [Link](https://www.noticiasaominuto.com/pais/2977544/rumo-ao-jamor-se-vai-hoje-ao-dragao-psp-tem-recomendacoes-civismo)
+
+
+### city (N/A, Wed, 22 Apr 2026 12:50:00 -0700)
+
+- **Beloit City Council announces new president, vice president**: [Link](https://www.wrex.com/news/election/beloit-city-council-announces-new-president-vice-president/article_002c208d-dea3-4a16-91b2-9af653c90bca.html)
+- **Beloit City Council considers city manager candidate**: [Link](https://www.channel3000.com/news/beloit-city-council-considers-city-manager-candidate/article_d582ee6e-7080-48ba-848b-7fd0c36a750f.html)
+- **Day named Beloit City Council president, Adama to serve as vice president**: [Link](https://www.beloitdailynews.com/news/local-news/day-named-beloit-city-council-president-adama-to-serve-as-vice-president/article_88c2dbc0-e239-4b4f-ad2b-4c7dbedda722.html)
+
+
 ### as far vs rs berkane (N/A, Wed, 22 Apr 2026 12:30:00 -0700)
 
 - **Jalal Jayed to Officiate AS FAR vs. RS Berkane Clash, Baroudi on VAR**: [Link](https://m.elbotola.com/en/article/2026-04-21-10-05-278.html)
