@@ -1,3 +1,17 @@
+### impôt (N/A, Tue, 21 Apr 2026 22:30:00 -0700)
+
+- **Impôts : une amende est prévue pour ceux qui s’obstinent à déclarer leurs revenus en version papier**: [Link](https://leparticulier.lefigaro.fr/jcms/c_113075/impots/impots-gare-a-l-amende-pour-ceux-s-obstinent-a-declarer-leurs-revenus-en-version-papier-20260417)
+- **Impôts 2026 : quelle est cette case «1PB» qu'il ne faut pas oublier de cocher ?**: [Link](https://www.cnews.fr/france/2026-04-22/impots-2026-quelle-est-cette-case-1pb-quil-ne-faut-pas-oublier-de-cocher-1850116)
+- **Impôts, aides et assurances : les 3 infos essentielles à ne pas manquer ce mardi 21 avril**: [Link](https://www.moneyvox.fr/votre-argent/actualites/108514/impots-aides-et-assurances-les-3-infos-essentielles-a-ne-pas-manquer-ce-mardi-21-avril)
+
+
+### artificial intelligence (N/A, Tue, 21 Apr 2026 21:00:00 -0700)
+
+- **Exclusive: Meta to start capturing employee mouse movements, keystrokes for AI training data**: [Link](https://www.reuters.com/sustainability/boards-policy-regulation/meta-start-capturing-employee-mouse-movements-keystrokes-ai-training-data-2026-04-21/)
+- **Meta to track workers' clicks and keystrokes to train AI**: [Link](https://www.bbc.com/news/articles/cvglyklz49jo)
+- **Mark Zuckerberg's Meta to all employees in America: We are installing tracking software in your machines**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/mark-zuckerbergs-meta-to-all-employees-in-america-we-are-installing-tracking-software-in-your-machines-as-we-need-your-help-to-/articleshow/130424722.cms)
+
+
 ### bitcoin price (N/A, Tue, 21 Apr 2026 23:10:00 -0700)
 
 - **Bitcoin Resistance at $78K and $83K Could Cap Rally: Schwab**: [Link](https://decrypt.co/365001/bitcoin-resistance-at-78k-and-83k-could-cap-rally-schwab)
