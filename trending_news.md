@@ -1,3 +1,24 @@
+### نادي أولمبيك آسفي (N/A, Wed, 22 Apr 2026 05:20:00 -0700)
+
+- **حقيقة تورط مدير في "شغب آسفي"**: [Link](https://www.hespress.com/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%88%D8%B1%D8%B7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%B4%D8%BA%D8%A8-%D8%A2%D8%B3%D9%81%D9%8A-1734295.html)
+- **فيديو| أولمبيك آسفي: جماهير اتحاد العاصمة هاجمت المنظمين بالكراسي!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D9%93%D8%B3%D9%81%D9%8A-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D9%87%D8%A7%D8%AC%D9%85%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A7%D8%B3%D9%8A/blt8f2215af75395d2c)
+- **«الكاف» يفتح تحقيقاً عاجلاً في همجية أنصار اتحاد العاصمة**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D9%81%D8%AA%D8%AD-%D8%AA%D8%AD%D9%82%D9%8A%D9%82%D8%A7%D9%8B-%D8%B9%D8%A7%D8%AC%D9%84%D8%A7%D9%8B-%D9%81%D9%8A-%D9%87%D9%85%D8%AC%D9%8A%D8%A9-%D8%A3/)
+
+
+### البريد بنك (N/A, Wed, 22 Apr 2026 05:00:00 -0700)
+
+- **البريد بنك يؤكد أمان حسابات الزبناء بعد حديث عن هجوم إلكتروني**: [Link](https://ar.yabiladi.com/articles/details/192737/%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D8%AF-%D8%A8%D9%86%D9%83-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%85%D8%A7%D9%86-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA.html)
+- **🔥تسريب مزعوم لـ "سجلات مالية" تعود لبريد بنك!!**: [Link](https://tanja7.com/185460/)
+- **بريد بنك يوضح حقيقة تسريب البيانات: ما الذي يحدث فعلاً؟ وهل حسابات الزبناء في خطر؟**: [Link](https://inews.ma/news/8286185)
+
+
+### hipp (N/A, Wed, 22 Apr 2026 04:10:00 -0700)
+
+- **Rat poison found in HiPP baby food jar in Austria, police say**: [Link](https://www.bbc.com/news/articles/cvg07lq5ql4o)
+- **Poisoned baby food was part of attempted extortion, German producer says**: [Link](https://www.reuters.com/world/poisoned-baby-food-was-part-attempted-extortion-german-producer-says-2026-04-20/)
+- **Initial Statement - HiPP CEO: “We’re Being Portrayed as the Culprits”**: [Link](https://www.krone.at/4114633)
+
+
 ### كأس العالم (N/A, Wed, 22 Apr 2026 04:40:00 -0700)
 
 - **الفيفا يطرح الدفعة الأخيرة من تذاكر كأس العالم**: [Link](https://www.aljazeera.net/sport/2026/4/22/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7)
