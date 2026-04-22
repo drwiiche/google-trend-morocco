@@ -1,3 +1,10 @@
+### كأس العالم (N/A, Wed, 22 Apr 2026 04:40:00 -0700)
+
+- **الفيفا يطرح الدفعة الأخيرة من تذاكر كأس العالم**: [Link](https://www.aljazeera.net/sport/2026/4/22/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7)
+- **عزوف متزايد عن الخدمة العسكرية بسبتة ومليلية المحتلتين بسبب ضغط المعيشة وظروف العمل**: [Link](https://ar.telquel.ma/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D8%B7%D8%B1%D8%AD-%D8%AF%D9%81%D8%B9%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7/)
+- **إنفانتينو يبرر غلاء تذاكر مونديال 2026**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D8%AA%D8%AE%D8%AF-%D8%AE%D8%B7%D9%88%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D8%AE%D8%B5%D9%88%D8%B5-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026/)
+
+
 ### pratt & whitney (N/A, Wed, 22 Apr 2026 02:00:00 -0700)
 
 - **News | RTX's Pratt & Whitney Canada opens new manufacturing facility in Casablanca, Morocco**: [Link](https://www.rtx.com/news/news-center/2026/04/21/rtxs-pratt-whitney-canada-opens-new-manufacturing-facility-in-casablanca-moro)
