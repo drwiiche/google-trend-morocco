@@ -1,3 +1,38 @@
+### zamalek – pyramids (N/A, Thu, 23 Apr 2026 11:20:00 -0700)
+
+- **Zamalek vs. Pyramids in the Nile League + plenty of European action**: [Link](https://enterpriseam.com/egypt/2026/04/23/zamalek-vs-pyramids-in-the-nile-league-plenty-of-european-action/)
+- **Zamalek coach Moataz Gamal retains keeper Suleiman for Pyramids clash**: [Link](https://africasoccer.com/zamalek-coach-moataz-gamal-retains-keeper-suleiman-for-pyramids-clash/)
+- **Zamalek vs Pyramids: date and time for Egyptian League top clash**: [Link](https://www.panafricafootball.com/post/zamalek-pyramids-egyptian-league-2/)
+
+
+### عبد الرزاق حمد الله (N/A, Thu, 23 Apr 2026 11:20:00 -0700)
+
+- **فيديو: الريان يُعذب الشباب ويحقق كأس الخليج لأول مرة في تاريخه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%86-%D9%8A%D9%8F%D8%B9%D8%B0%D8%A8-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D9%88%D9%8A%D8%AD%D9%82%D9%82-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%87/blt87b9d61548b93069)
+- **حمدالله يرفع التحدي قبل نهائي الخليج: اللقب هدفي مع الشباب**: [Link](https://www.hesport.com/%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A-%D9%82%D8%A8%D9%84-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%A7-436023.html)
+- **الريان القطري يواجه الشباب السعودي اليوم في نهائي أبطال الخليج**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC)
+
+
+### 2025 (N/A, Thu, 23 Apr 2026 11:20:00 -0700)
+
+- **Winter 2025/26 – Producers’ Perspectives from the Lake States Region**: [Link](https://forestresources.org/2026/04/23/winter-2025-2026-producers-perspectives-from-the-lake-states-region/)
+- **Soccer's 2025-26 Watchability rankings, from Bayern Munich to Wolves**: [Link](https://www.espn.com/soccer/story/_/id/48564694/soccer-watchability-ranking-index-premier-league-laliga-bundesliga-serie-ligue-1-bill-connelly)
+- **Soccer’s Watchability Rankings, 2025-26: How much fun is your team this season?**: [Link](https://www.espnlacrosse.com/2026/04/23/soccers-watchability-rankings-2025-26-how-much-fun-is-your-team-this-season/)
+
+
+### رايو فاليكانو ضد إسبانيول (N/A, Thu, 23 Apr 2026 11:10:00 -0700)
+
+- **توقيت مباراة رايو فاييكانو ضد إسبانيول في الدوري الإسباني والقنوات الناقلة لها**: [Link](https://pls48.net/23236/%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%B6%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88/)
+- **موعد مباراة رايو فاليكانو وإسبانيول اليوم الخميس 23 أبريل 2026 في الدوري الإسباني والقنوات الناقلة والتشكيل المتوقع وترتيب الفريقين**: [Link](https://jarida.onl/3335/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84/)
+- **موعد مباراة رايو فاييكانو ضد إسبانيول في الدوري الإسباني والقنوات الناقلة للمواجهة**: [Link](https://radar2.net/1062786/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%B6%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-7/)
+
+
+### الهلال ضد الخلود (N/A, Thu, 23 Apr 2026 10:50:00 -0700)
+
+- **5 أيام نارية.. الكشف عن موعد مباراة الهلال والخلود في نهائي كأس الملك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A8%D9%8A%D8%B1-%D8%AA%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D9%84%D8%B8%D9%84%D9%85-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%86/bltf68dcbadbebfc89e)
+- **حصري: القنوات المجانية لنقل نهائي الكأس الملتهب… هل يشعل فارس عوض الملعب بكلماته؟**: [Link](https://yemen-press.net/news180985.html)
+- **رسميًا.. تأجيل مباراة الهلال ضد الخلود نهائي كاس الملك 2026 لهذا الموعد**: [Link](https://zahraa.mr/6271695/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AE%D9%84%D9%88%D8%AF-%D9%86/)
+
+
 ### ليفانتي ضد إشبيلية (N/A, Thu, 23 Apr 2026 10:30:00 -0700)
 
 - **روجر بروجي يعود لتدريبات ليفانتي ويقترب من دعم صفوفه أمام إشبيلية**: [Link](https://m.elbotola.com/article/2026-04-17-13-45-349.html)
