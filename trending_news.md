@@ -1,3 +1,15 @@
+### akhbarona (N/A, Wed, 22 Apr 2026 22:40:00 -0700)
+
+
+
+
+### المغرب (N/A, Wed, 22 Apr 2026 22:00:00 -0700)
+
+- **إلغاء اللقاء بين المغرب والسالفادور**: [Link](https://www.hespress.com/%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D8%A7%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D8%A7%D9%84%D9%81%D8%A7%D8%AF%D9%88%D8%B1-1735490.html)
+- **المغرب يقدم هدية للسنغال قبل المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%AF%D9%85-%D9%87%D8%AF%D9%8A%D8%A9-%D9%84%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt3f5dcbaceb76a48c)
+- **الجامعة تطلب تغيير موعد مواجهة السالفادور والأخير يعتذر بسبب قوانين "فيفا"**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%B7%D9%84%D8%A8-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D9%84%D9%81-436009.html)
+
+
 ### real salt lake – inter miami (N/A, Wed, 22 Apr 2026 18:40:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF in Midweek Action On the Road Against Real Salt Lake**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-in-midweek-action-on-the-road-against-real-salt-lake)
