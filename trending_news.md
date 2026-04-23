@@ -1,3 +1,31 @@
+### guide de la révolution de l'iran (N/A, Thu, 23 Apr 2026 15:10:00 -0700)
+
+- **«Gravement blessé», le nouveau guide suprême iranien serait notamment soigné par le président iranien en personne, selon le New York Times**: [Link](https://www.lefigaro.fr/international/gravement-blesse-le-nouveau-guide-supreme-iranien-serait-notamment-soigne-par-le-president-iranien-en-personne-selon-le-new-york-times-20260423)
+- **« Visage brûlé, parole difficile » : révélations sur les blessures du nouveau guide suprême iranien, contraint de vivre caché**: [Link](https://www.leparisien.fr/international/iran/visage-brule-parole-difficile-revelations-sur-les-blessures-du-nouveau-guide-supreme-iranien-contraint-de-vivre-cache-23-04-2026-HZALS3GFERC2RC4KNOLB5LBII4.php)
+- **Iran: les dernières informations concernant l'état de santé de Mojtaba Khamenei**: [Link](https://www.bfmtv.com/international/moyen-orient/iran/video-iran-les-dernieres-informations-concernant-l-etat-de-sante-de-mojtaba-khamenei_VN-202604220845.html)
+
+
+### وليد الركراكي (N/A, Thu, 23 Apr 2026 14:50:00 -0700)
+
+- **طرح اسم الركراكي مجددًا لتدريب عملاق فرنسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B7%D8%B1%D8%AD-%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%85%D8%AC%D8%AF%D8%AF%D9%8B%D8%A7-%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D9%81%D8%B1%D9%86%D8%B3%D9%8A/blt2d78210124e2f1c4)
+- **وليد الركراكي في الدوري الفرنسي؟ اسمه مطروح على طاولة مارسيليا**: [Link](https://www.hesport.com/%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%9F-%D8%A7%D8%B3%D9%85%D9%87-436101.html)
+- **قراءة في مواقف المغاربة من مدرب المنتخب خلال المونديال**: [Link](https://www.hibasport.com/details-400309.html)
+
+
+### orage (N/A, Thu, 23 Apr 2026 14:30:00 -0700)
+
+- **Orages : voici les 3 départements placés en vigilance jaune ce vendredi**: [Link](https://www.cnews.fr/france/2026-04-23/orages-voici-les-3-departements-places-en-vigilance-jaune-ce-vendredi-1851217)
+- **Le risque d'avalanches élevé sur les Pyrénées jusqu'à demain**: [Link](https://mesinfos.fr/nouvelle-aquitaine/le-risque-d-avalanches-eleve-sur-les-pyrenees-jusqu-a-demain-245097.html)
+- **En France, ce 22 avril 2026 : des nuages, du soleil et des averses de pluie**: [Link](https://www.franceinfo.fr/environnement/meteo/bulletins-meteo/previsions-quotidiennes/en-france-ce-22-avril-2026-des-nuages-du-soleil-et-des-averses-de-pluie_7956146.html)
+
+
+### ريال أوفييدو ضد فياريال (N/A, Thu, 23 Apr 2026 14:10:00 -0700)
+
+- **إلياس شعيرة يسجل هدفا رائعا ويقود ريال أوفيدو لتعادل مثير أمام فياريال في الدوري الإسباني**: [Link](https://www.infosports.news/news/354131/%D8%A5%D9%84%D9%8A%D8%A7%D8%B3-%D8%B4%D8%B9%D9%8A%D8%B1%D8%A9-%D9%8A%D8%B3%D8%AC%D9%84-%D9%87%D8%AF%D9%81%D8%A7-%D8%B1%D8%A7%D8%A6%D8%B9%D8%A7-%D9%88%D9%8A%D9%82%D9%88%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84.html)
+- **القنوات الناقلة لمباراة فياريال ضد ريال أوفييدو اليوم في الدوري الإسباني مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/839046630873215-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A3%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **الليغا: التعادل الايجابي سيد الموقف في المواجهة بين ريال اوفييدو وفياريال**: [Link](https://elsport.com/news/show/820696/%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%A7%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A-%D8%B3%D9%8A%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B1%D9%8A)
+
+
 ### عيد الأضحى (N/A, Thu, 23 Apr 2026 13:20:00 -0700)
 
 - **مصادر مهنية: استئناف المغرب استيراد الأبقار واللحوم من أوروبا "بعيد المنال"**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D9%85%D9%87%D9%86%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%B3%D8%AA%D9%8A%D8%B1%D8%A7%D8%AF-%D8%A7%D9%84-1735078.html)
