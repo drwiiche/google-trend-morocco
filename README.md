@@ -1,3 +1,45 @@
+### ليفانتي ضد إشبيلية (N/A, Thu, 23 Apr 2026 10:30:00 -0700)
+
+- **روجر بروجي يعود لتدريبات ليفانتي ويقترب من دعم صفوفه أمام إشبيلية**: [Link](https://m.elbotola.com/article/2026-04-17-13-45-349.html)
+- **موعد مباراة ليفانتي وإشبيلية اليوم والقنوات الناقلة في الدوري الإسباني 2026**: [Link](https://www.so3ody.com/news/213999/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A-%D9%88%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9)
+- **ليفانتي يستقبل إشبيلية في موقعة الهروب من الهبوط (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/04/levante-sevilla-j33-laliga-pronostic.html)
+
+
+### rayo – espanyol (N/A, Thu, 23 Apr 2026 10:20:00 -0700)
+
+- **Once del Rayo Vallecano ante el Espanyol**: [Link](https://unionrayo.es/once-rayo-vallecano-espanyol-jornada-33-laliga/)
+- **La solución de Iñigo**: [Link](https://as.com/futbol/primera/la-solucion-de-inigo-f202604-n/)
+- **Posibles alineaciones del Rayo - Espanyol: Manolo medita el relevo de Urko e Iñigo recompone una defensa en cuadro**: [Link](https://lagrada.org/posibles-alineaciones-rayo-espanyol-vallecas-jornada-33-liga-25-26/)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Thu, 23 Apr 2026 10:00:00 -0700)
+
+- **"كان 2027" مهدد.. الكاف تدرس البدائل**: [Link](https://www.hespress.com/%D9%83%D8%A7%D9%86-2027-%D9%85%D9%87%D8%AF%D8%AF-%D9%88%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D8%AF%D8%B1%D8%B3-%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D8%A6%D9%84-1735240.html)
+- **لوموند: تحذيرات من سحب “كان 2027”**: [Link](https://www.radiomars.ma/%D9%84%D9%88%D9%85%D9%88%D9%86%D8%AF-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%B3%D8%AD%D8%A8-%D9%83%D8%A7%D9%86-2027/)
+- **خاص لكووورة.. كاف يرد على تقارير نقل أمم أفريقيا 2027**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%A7%D8%B5-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9--%D9%83%D8%A7%D9%81-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D9%86%D9%82%D9%84-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027/blt11b197f8a1321010)
+
+
+### الاتحاد السنغالي لكرة القدم (N/A, Thu, 23 Apr 2026 10:00:00 -0700)
+
+- **كتلة الـ16.. تمرد وشبهات فساد مالي في الاتحاد السنغالي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%AA%D9%84%D8%A9-%D8%A7%D9%84%D9%8016--%D8%AA%D9%85%D8%B1%D8%AF-%D9%88%D8%B4%D8%A8%D9%87%D8%A7%D8%AA-%D9%81%D8%B3%D8%A7%D8%AF-%D9%85%D8%A7%D9%84%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A/bltebc99d47af0715b9)
+- **عاصفة داخل الجامعة السنغالية.. اتهامات بالتدبير المالي لمنحة كأس إفريقيا**: [Link](https://www.almountakhab.com/node/16224773)
+- **مكافئات الكان تفجر الإتحاد السينغالي لكرة القدم**: [Link](https://rue20.com/995707.html)
+
+
+### levante – séville (N/A, Thu, 23 Apr 2026 09:20:00 -0700)
+
+- **Levante et le Séville FC s affrontent lors de la 33e journée**: [Link](https://www.fakta.co/fr/levante-seville-laliga-resultat-compositions)
+- **Match ce soir : Levante - FC Seville : A quelle heure et sur quelle chaîne TV voir le match de Liga en streaming ?**: [Link](https://madeinfoot.ouest-france.fr/infos/article-match-ce-soir-levante-fc-seville-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-de-liga-en-streaming-ij-520463.html)
+- **Levante vs Séville – Pronostic Foot gratuit et prédictions – Liga – 23/04/2026**: [Link](https://pensebet.com/levante-vs-seville-pronostic-foot-gratuit-et-predictions-liga-23-04-2026/)
+
+
+### michael jackson film (N/A, Thu, 23 Apr 2026 08:50:00 -0700)
+
+- **‘Michael’ Review: A Jackson Biopic Leaves Too Much Unsaid**: [Link](https://www.nytimes.com/2026/04/21/movies/michael-review.html)
+- **'Michael' star addresses criticism over film ignoring allegations**: [Link](https://www.usatoday.com/story/entertainment/movies/2026/04/23/michael-movie-child-abuse-allegations-colman-domingo/89751331007/)
+- **How do you talk about a movie like “Michael?”**: [Link](https://www.cnn.com/2026/04/22/entertainment/michael-jackson-biopic)
+
+
 ### lalla khadija brigitte macron (N/A, Thu, 23 Apr 2026 07:10:00 -0700)
 
 - **LL.AA.RR les Princesses Lalla Khadija, Lalla Meryem et Lalla Hasnaa, accompagnées de Mme Brigitte Macron, assistent au spectacle d’ouverture du Théâtre Royal de Rabat**: [Link](https://lematin.ma/nation/llaarr-les-princesses-au-spectacle-douverture-du-theatre-royal-de-rabat/341874)
