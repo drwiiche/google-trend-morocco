@@ -1,3 +1,31 @@
+### مانشستر سيتي (N/A, Thu, 23 Apr 2026 06:20:00 -0700)
+
+- **بسلاح الشرط الجزائي.. أوناحي يقترب من البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D9%8A--%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt43a90ec4c4e8040b)
+- **مانشستر سيتي يرغب في ضم نجم المنتخب المغربي**: [Link](https://ar.lesiteinfo.com/sport/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%B1%D8%BA%D8%A8-%D9%81%D9%8A-%D8%B6%D9%85-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85-997384.html)
+- **أوناحي على أعتاب الانتقال صيفا… ومارسيليا يترقب الأرباح**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D8%B9%D9%84%D9%89-%D8%A3%D8%B9%D8%AA%D8%A7%D8%A8-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%B5%D9%8A%D9%81%D8%A7-%D9%88%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%A7%D8%AD/19055)
+
+
+### paul seixas (N/A, Thu, 23 Apr 2026 05:50:00 -0700)
+
+- **O adolescente francês Seixas torna-se o mais jovem vencedor do Fleche Wallonne**: [Link](https://www.obusilis.com.br/mundo/o-adolescente-frances-seixas-torna-se-o-mais-jovem-vencedor-do-fleche-wallonne/52776/)
+- **Remco Evenepoel ‘salta’ La Flèche Wallonne**: [Link](https://www.goride.pt/remco-evenepoel-salta-la-fleche-wallonne/)
+- **Paul Seixas é o mais jovem ciclista a conquistar a Flèche Wallone: "Algo gigante"**: [Link](https://sapo.pt/artigo/paul-seixas-e-o-mais-jovem-ciclista-a-conquistar-a-fleche-wallone-algo-gigante-69e8e7a8c36fb264712b9b28)
+
+
+### carte bancaire (N/A, Thu, 23 Apr 2026 05:40:00 -0700)
+
+- **Fin du code à 4 chiffres pour les cartes bancaires : ce qu’il faut savoir sur le nouveau système biométrique**: [Link](https://www.cnews.fr/monde/2026-04-22/fin-du-code-4-chiffres-pour-les-cartes-bancaires-ce-quil-faut-savoir-sur-le)
+- **Carte bancaire biométrique : la France enterre le code à quatre chiffres en silence**: [Link](https://www.lesnumeriques.com/societe-numerique/carte-bancaire-biometrique-la-france-enterre-le-code-a-quatre-chiffres-en-silence-n254434.html)
+- **Paiement biométrique... L'IA passe à la caisse**: [Link](https://www.bfmtv.com/economie/replay-emissions/good-morning-business/video-paiement-biometrique-l-ia-passe-a-la-caisse_VN-202604230257.html)
+
+
+### إصابة (N/A, Thu, 23 Apr 2026 03:50:00 -0700)
+
+- **معجزة مدريدية؟.. إصابة يامال تمنح "الثائر ضد فليك" قبلة الحياة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%B9%D8%AC%D8%B2%D8%A9-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF%D9%8A%D8%A9--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%AA%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D8%AB%D8%A7%D9%8A%D9%94%D8%B1-%D8%B6%D8%AF-%D9%81%D9%84%D9%8A%D9%83-%D9%82%D8%A8%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9/blt6b5abbe2ba34d555)
+- **شاهد.. إصابة مباغتة تفسد فرحة لامين جمال بهدفه ضد سيلتا فيغو**: [Link](https://www.aljazeera.net/sport/2026/4/23/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%BA%D8%AA%D8%A9-%D8%AA%D9%81%D8%B3%D8%AF-%D9%81%D8%B1%D8%AD%D8%A9-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84)
+- **قدم.. برشلونة يعلن غياب لامين يامال حتى نهاية الموسم**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D9%84%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%AD%D8%AA%D9%89-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85/3915833)
+
+
 ### حكومة (N/A, Thu, 23 Apr 2026 04:10:00 -0700)
 
 - **المغرب: سجال محتدم بين الأغلبية والمعارضة حول حصيلة عمل الحكومة**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B3%D8%AC%D8%A7%D9%84-%D9%85%D8%AD%D8%AA%D8%AF%D9%85-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7/)
