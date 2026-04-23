@@ -1,3 +1,24 @@
+### lalla khadija brigitte macron (N/A, Thu, 23 Apr 2026 07:10:00 -0700)
+
+- **LL.AA.RR les Princesses Lalla Khadija, Lalla Meryem et Lalla Hasnaa, accompagnées de Mme Brigitte Macron, assistent au spectacle d’ouverture du Théâtre Royal de Rabat**: [Link](https://lematin.ma/nation/llaarr-les-princesses-au-spectacle-douverture-du-theatre-royal-de-rabat/341874)
+- **Brigitte Macron en robe à sequins et la princesse Lalla Khadjika en caftan de soie bleue, elles brillent de mille feux pour l’inauguration du Théâtre royal à Rabat**: [Link](https://www.gala.fr/mode/les_stars_et_la_mode/brigitte-macron-en-robe-a-sequins-et-la-princesse-lalla-khadjika-en-caftan-de-soie-bleue-elles-brillent-de-mille-feux-pour-l-inauguration-du-theatre-royal-a-rabat-20260423)
+- **À Rabat, le Théâtre Royal ouvre enfin ses portes, 16 ans après son esquisse**: [Link](https://ledesk.ma/culture/a-rabat-le-theatre-royal-ouvre-enfin-ses-portes-16-ans-apres-son-esquisse/)
+
+
+### بنتاغون (N/A, Thu, 23 Apr 2026 07:10:00 -0700)
+
+- **ترامب: السفينة التي جرى اعتراضها كانت تحمل "هدية من الصين"**: [Link](https://www.skynewsarabia.com/middle-east/1865445-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A7%D9%84%D8%B3%D9%81%D9%8A%D9%86%D8%A9-%D8%AC%D8%B1%D9%89-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D8%B6%D9%87%D8%A7-%D9%83%D8%A7%D9%86%D8%AA-%D8%AA%D8%AD%D9%85%D9%84-%D9%87%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D9%86)
+- **الجيش الأمريكي يهاجم ناقلة نفط في المحيط الهندي ويستولي عليها**: [Link](https://www.aljazeera.net/news/2026/4/21/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%87%D8%A7%D8%AC%D9%85-%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%86%D9%81%D8%B7-%D9%81%D9%8A)
+- **واشنطن تعلن احتجاز ناقلة نفط مرتبطة بإيران في المحيط الهندي**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%B2-%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%86%D9%81%D8%B7-%D9%85%D8%B1%D8%AA%D8%A8%D8%B7%D8%A9-%D8%A8%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AD%D9%8A%D8%B7-%D8%A7%D9%84%D9%87%D9%86%D8%AF%D9%8A/3915871)
+
+
+### fuite données ants (N/A, Thu, 23 Apr 2026 01:30:00 -0700)
+
+- **La fuite de données à l’ANTS, nouvelle illustration des failles de sécurité des services informatiques de l’Etat**: [Link](https://www.lemonde.fr/societe/article/2026/04/22/la-fuite-de-donnees-a-l-agence-nationale-des-titres-securises-nouvelle-illustration-des-failles-de-securite-des-services-informatiques-de-l-etat_6682449_3224.html)
+- **Cyberattaque de l'ANTS : que faire si je suis victime d'une usurpation d'identité ?**: [Link](https://www.franceinfo.fr/internet/securite-sur-internet/cyberattaques/cyberattaque-de-l-ants-que-faire-si-je-suis-victime-d-une-usurpation-d-identite_7953248.html)
+- **Incident de sécurité relatif au portail ants.gouv.fr : point d’étape du 21 avril 2026**: [Link](https://www.interieur.gouv.fr/actualites/communiques-de-presse/incident-de-securite-relatif-au-portail-antsgouvfr-point-detape-du-21-avril-2026)
+
+
 ### مانشستر سيتي (N/A, Thu, 23 Apr 2026 06:20:00 -0700)
 
 - **بسلاح الشرط الجزائي.. أوناحي يقترب من البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D9%8A--%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt43a90ec4c4e8040b)
