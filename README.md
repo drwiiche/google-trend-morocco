@@ -1,3 +1,24 @@
+### vent (N/A, Thu, 23 Apr 2026 12:20:00 -0700)
+
+- **Grady County fugitive arrested after being found inside a floor vent**: [Link](https://www.walb.com/2026/04/21/grady-county-fugitive-arrested-after-being-found-inside-floor-vent/)
+- **Fugitive of Nearly 2 Years Found Hiding in Vent of Air Conditioner**: [Link](https://people.com/fugitive-of-nearly-2-years-found-hiding-in-vent-of-air-conditioner-11957125)
+- **Georgia fugitive’s hiding spot? A floor vent**: [Link](https://www.wsbtv.com/news/georgia/georgia-fugitives-hiding-spot-floor-vent/INJQMVWZZVF2LNKBWISS6ZDHRQ/)
+
+
+### real oviedo – villarreal (N/A, Thu, 23 Apr 2026 11:50:00 -0700)
+
+- **Marcelino mantiene la ‘unidad B’ del Villarreal y no hay sorpresas en el Oviedo**: [Link](https://es-us.noticias.yahoo.com/deportes/marcelino-mantiene-unidad-b-villarreal-184643388.html)
+- **Espectacular recibimiento de la afición del Real Oviedo a su equipo al grito de «¡sí se puede!»**: [Link](https://www.elcomercio.es/real-oviedo/espectacular-recibimiento-aficion-real-oviedo-equipo-grito-20260423203512-vi.html)
+- **'Mediterráneo' en Asturias, el análisis previo del Oviedo-Villarreal por Ismael Mateu**: [Link](https://www.elperiodicomediterraneo.com/villarreal-cf/2026/04/23/mediterraneo-asturias-analisis-previo-oviedo-villarreal-ismael-mateu-129451547.html)
+
+
+### antónio guterres (N/A, Thu, 23 Apr 2026 11:50:00 -0700)
+
+- **The Race for the Next U.N. Chief Kicks Off**: [Link](https://foreignpolicy.com/2026/04/22/un-secretary-general-race-guterres-candidate-questions-dialogues/)
+- **UN leadership candidates vow to pursue reform and core principles**: [Link](https://www.reuters.com/world/americas/un-leadership-candidate-grynspan-vows-peacemaking-reform-2026-04-22/)
+- **Secretary-General hopefuls make their case in televised ‘interactive dialogues’**: [Link](https://news.un.org/en/story/2026/04/1167342)
+
+
 ### zamalek – pyramids (N/A, Thu, 23 Apr 2026 11:20:00 -0700)
 
 - **Zamalek vs. Pyramids in the Nile League + plenty of European action**: [Link](https://enterpriseam.com/egypt/2026/04/23/zamalek-vs-pyramids-in-the-nile-league-plenty-of-european-action/)
