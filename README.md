@@ -1,3 +1,10 @@
+### ماميلودي صن داونز (N/A, Thu, 23 Apr 2026 03:00:00 -0700)
+
+- **“كاف” تبدد مخاوف الجيش**: [Link](https://assabah.ma/918670.html)
+- **صانداونز يرفض مواجهة الجيش الملكي في نهائي دوري الأبطال**: [Link](https://m.alayam24.com/articles-621308.html)
+- **مدرب سان داونز يرد على أحد الصحفيين: "هل شاهدت الجيش الملكي ونهضة بركان؟ إذا نعم فأنت بحاجة لمشاهدتهما مجددا لأنك تستخف بهما"**: [Link](https://m.elbotola.com/article/2026-04-18-18-38-202.html)
+
+
 ### princesse lalla khadija (N/A, Thu, 23 Apr 2026 01:30:00 -0700)
 
 - **LL.AA.RR les Princesses Lalla Khadija, Lalla Meryem et Lalla Hasnaa, accompagnées de Mme Brigitte Macron, assistent au spectacle d’ouverture du Théâtre Royal de Rabat**: [Link](https://lematin.ma/nation/llaarr-les-princesses-au-spectacle-douverture-du-theatre-royal-de-rabat/341874)
