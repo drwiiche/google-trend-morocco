@@ -1,3 +1,52 @@
+### world cup 2026 (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+- **Singapore Airlines Brings FIFA World Cup 2026 Live to the Skies: Watch Matches with Premium In-Flight Entertainment**: [Link](https://www.travelandtourworld.com/news/article/singapore-airlines-brings-fifa-world-cup-2026-live-to-the-skies-watch-matches-with-premium-in-flight-entertainment/)
+- **Iran says ‘fully prepared’ for football team’s World Cup participation**: [Link](https://www.aljazeera.com/news/2026/4/22/iran-says-fully-prepared-for-football-teams-world-cup-participation)
+- **Iran's Goalkeeper: We Want to Make History in the World Cup**: [Link](https://www.ysscores.com/en/news/13950730/Iran's-Goalkeeper:-We-Want-to-Make-History-in-the-World-Cup)
+
+
+### openai (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+- **SoftBank Seeks $10 Billion Margin Loan Backed by OpenAI Shares**: [Link](https://www.bloomberg.com/news/articles/2026-04-23/softbank-seeks-10-billion-margin-loan-backed-by-openai-shares)
+- **SoftBank eyes $10B margin loan backed with OpenAI stake- report (SFTBY:OTCMKTS)**: [Link](https://seekingalpha.com/news/4578401-softbank-eyes-10b-margin-loan-backed-with-openai-stake--report)
+- **SoftBank Group (9984.JP) Reportedly Seeks USD10B Loan Secured by OpenAI Stake**: [Link](http://www.aastocks.com/en/usq/news/comment.aspx?source=AAFN&id=NOW.1519701&catg=1)
+
+
+### electric vehicles (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+- **Tesla misses on revenue but beats on profit as auto margins jump**: [Link](https://www.cnbc.com/2026/04/22/tesla-tsla-q1-2026-earnings-report.html)
+- **Earnings live updates: Tesla stock jumps on earnings beat, Vertiv stock falls**: [Link](https://finance.yahoo.com/markets/live/earnings-live-updates-tesla-stock-jumps-on-earnings-beat-vertiv-stock-falls-104416916.html)
+- **Tesla’s making money. But it's planning to spend an awful lot more**: [Link](https://www.npr.org/2026/04/22/nx-s1-5791653/tesla-earnings-first-quarter-2026)
+
+
+### bitcoin price (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+- **Bitcoin Price Rally Masks a $35,000 On-Chain Gap Bulls Are Ignoring**: [Link](https://beincrypto.com/bitcoin-price-on-chain-gap-warning-analysis/)
+- **April 22 Price Forecast for Major Cryptos: BTC, ETH, XRP and More**: [Link](https://www.mexc.com/news/1047128)
+- **‘First phase of bull cycle?’- Here’s why Grayscale is now bullish on Bitcoin**: [Link](https://ambcrypto.com/?p=591582)
+
+
+### climate change (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+- **Climate doom and gloom? Try laughing instead. Activists embrace joy in the fight to save Earth**: [Link](https://apnews.com/article/earth-day-climate-change-joy-doom-4f38aea3b10bcf961c189bc1669dd93a)
+- **In climate change fight, doomerism is out. Laughter is in**: [Link](https://www.swiowanewssource.com/video_b1bf3350-0d42-5bc9-85cb-6cc12d8ec257.html)
+- **Climate Doom and Gloom? Try Laughing Instead. Activists Embrace Joy in the Fight to Save Earth**: [Link](https://www.usnews.com/news/best-states/new-york/articles/2026-04-22/climate-doom-and-gloom-try-laughing-instead-activists-embrace-joy-in-the-fight-to-save-earth)
+
+
+### space exploration (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+- **Artemis spacesuit development risks further delays**: [Link](https://spacenews.com/artemis-spacesuit-development-risks-further-delays/)
+- **Artemis moon landing could face long delay while NASA waits for next-generation spacesuits**: [Link](https://www.livescience.com/space/space-exploration/artemis-moon-landing-could-face-long-delay-while-nasa-waits-for-next-generation-spacesuits)
+- **NASA’s 2028 moon landing may be delayed because of lack of space suits, watchdog report warns**: [Link](https://www.scientificamerican.com/article/nasas-2028-moon-landing-may-be-delayed-due-to-lack-of-spacesuits-watchdog-report-warns/)
+
+
+### حالة الطقس (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+- **«الأرصاد» تكشف حالة الطقس: هجمة صيفية وتحذير من ظاهرة جوية**: [Link](https://www.almasryalyoum.com/news/details/4250506)
+- **ارتفاع طفيف في درجات الحرارة واضطراب في حركة الملاحة البحرية غدا الخميس**: [Link](https://radar2.net/1062349/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B7%D9%81%D9%8A%D9%81-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D9%81/)
+- **أجواء متقلبة تضرب مصر اليوم.. ارتفاع الحرارة وشبورة كثيفة تربك الطرق**: [Link](https://www.altreeq.com/535453)
+
+
 ### akhbarona (N/A, Wed, 22 Apr 2026 22:40:00 -0700)
 
 
