@@ -1,3 +1,31 @@
+### عيد الأضحى (N/A, Thu, 23 Apr 2026 13:20:00 -0700)
+
+- **مصادر مهنية: استئناف المغرب استيراد الأبقار واللحوم من أوروبا "بعيد المنال"**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D9%85%D9%87%D9%86%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D8%B3%D8%AA%D9%8A%D8%B1%D8%A7%D8%AF-%D8%A7%D9%84-1735078.html)
+- **أخنوش يخاطب الكسابة: قدمنا لكم 13 مليار درهم وسعر الغنم ما يزال مرتفعا.. فتحمّلوا مسؤوليتكم – اليوم 24**: [Link](https://alyaoum24.com/2021127.html)
+- **بين 3500 و4000 درهم.. مهني يكشف الوضع بسوق الماشية قبيل عيد الأضحى**: [Link](https://assabah.ma/918995.html)
+
+
+### كأس العالم لكرة القدم 2030 (N/A, Thu, 23 Apr 2026 13:00:00 -0700)
+
+- **يخشى هيمنة المغرب.. رئيس الاتحاد إلإسباني يطالب بتحرك حكومي عاجل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%AE%D8%B4%D9%89-%D9%87%D9%8A%D9%85%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%95%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%AA%D8%AD%D8%B1%D9%83-%D8%AD%D9%83%D9%88%D9%85%D9%8A-%D8%B9%D8%A7%D8%AC%D9%84/blt030e7e316f2be833)
+- **لوزان يعترف بقوة المغرب التنظيمية ويطالب إسبانيا بالتحرك العاجل في مونديال 2030**: [Link](https://www.hesport.com/%D9%84%D9%88%D8%B2%D8%A7%D9%86-%D9%8A%D8%B9%D8%AA%D8%B1%D9%81-%D8%A8%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%85%D9%8A%D8%A9-%D9%88%D9%8A%D8%B7-436111.html)
+- **كأس العالم 2030.. الفيفا «يصدم» ملعب إشبيلية بسبب العزلة!**: [Link](https://www.radiomars.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2030-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%B5%D8%AF%D9%85-%D9%85%D9%84%D8%B9%D8%A8-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A/)
+
+
+### روبيان (N/A, Thu, 23 Apr 2026 12:30:00 -0700)
+
+- **نفوق جماعي للروبيان جنوب عُمان.. مشاهد صادمة والسلطات توضح**: [Link](https://www.aljazeera.net/misc/2026/4/23/%D9%86%D9%81%D9%88%D9%82-%D8%AC%D9%85%D8%A7%D8%B9%D9%8A-%D9%84%D9%84%D8%B1%D9%88%D8%A8%D9%8A%D8%A7%D9%86-%D8%AC%D9%86%D9%88%D8%A8-%D8%B9%D9%85%D8%A7%D9%86-%D9%85%D8%B4%D8%A7%D9%87%D8%AF)
+- **د. حسين المسقطي لـ«الوصال»: تغيرات الحرارة ونقص الأكسجين وراء نفوق الروبيان الأحمر في مرباط**: [Link](https://wisal.fm/news/mhleat/d-hsen-almsqtde-l-alwssal-tgherat-alhrartt-wnqss-a-19162-a)
+- **“الثروة الزراعية والسمكية” ترد على ما تم تداوله: هل يعود نفوق “الروبيان” في السواحل إلى تلوث بيئي؟**: [Link](https://alsahwa.om/?p=263893)
+
+
+### psv eindhoven – zwolle (N/A, Thu, 23 Apr 2026 12:10:00 -0700)
+
+- **PSV vs PEC Zwolle: Eredivisie stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c30ryen92pmt)
+- **Preview: PSV Eindhoven vs. PEC Zwolle - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-pec-zwolle-prediction-team-news-lineups_596130.html)
+- **Featured | From 2003 to now: PSV - PEC Zwolle**: [Link](https://www.psv.nl/en/media/artikel/uitgelicht-van-2003-naar-nu-psv-pec-zwolle)
+
+
 ### vent (N/A, Thu, 23 Apr 2026 12:20:00 -0700)
 
 - **Grady County fugitive arrested after being found inside a floor vent**: [Link](https://www.walb.com/2026/04/21/grady-county-fugitive-arrested-after-being-found-inside-floor-vent/)
