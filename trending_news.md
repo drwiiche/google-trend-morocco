@@ -1,3 +1,29 @@
+### princesse lalla khadija (N/A, Thu, 23 Apr 2026 01:30:00 -0700)
+
+- **LL.AA.RR les Princesses Lalla Khadija, Lalla Meryem et Lalla Hasnaa, accompagnées de Mme Brigitte Macron, assistent au spectacle d’ouverture du Théâtre Royal de Rabat**: [Link](https://lematin.ma/nation/llaarr-les-princesses-au-spectacle-douverture-du-theatre-royal-de-rabat/341874)
+- **Brigitte Macron à Rabat pour l’ouverture du Théâtre Royal au grand public**: [Link](https://maroc-diplomatique.net/brigitte-macron-a-rabat-pour-louverture-du-theatre-royal-au-grand-public/)
+- **Architecture, ingénierie acoustique, espaces... Tout savoir sur le Théâtre royal de Rabat**: [Link](https://fr.le360.ma/culture/architecture-ingenierie-acoustique-espaces-tout-savoir-sur-le-theatre-royal-de-rabat_4JRWK6MKIBECTLPFMQUYQA72AU/)
+
+
+### bab doukkala (N/A, Thu, 23 Apr 2026 01:00:00 -0700)
+
+- **Marrakech: polémique autour d’une prière juive près de Bab Doukkala (vidéo)**: [Link](https://h24info.ma/maroc/marrakech-polemique-priere-juive-bab-doukkala/)
+- **Une colère populaire au Maroc après une vidéo choquante montrant des rituels juifs publics devant les remparts de Bab Doukkala à Marrakech**: [Link](https://al24news.dz/fr/une-colere-populaire-au-maroc-apres-une-video-choquante-montrant-des-rituels-juifs-publics-devant-les-remparts-de-bab-doukkala-a-marrakech/)
+- **Prière des Juifs devant la porte Dokkala à Marrakech : débat entre les partisans du coexistence et les opposants à la normalisation**: [Link](https://tanja7.com/fr/11139)
+
+
+### rinat akhmetov (N/A, Thu, 23 Apr 2026 01:00:00 -0700)
+
+- **Three Bedrooms for €60 Million Shows Monaco’s Dirty Money Headache**: [Link](https://www.bloomberg.com/news/articles/2026-04-22/monaco-s-mareterra-and-the-grey-list-designation-for-the-principality)
+- **Monaco, Where $1 Million Barely Covers a Walk-in Closet, Is Now Home to the World’s Most Expensive Sale Ever**: [Link](https://www.mansionglobal.com/articles/monaco-where-1-million-barely-covers-a-walk-in-closet-is-now-home-to-the-worlds-most-expensive-sale-ever-12c03243)
+- **Global Home Sale Record Quietly Broken in Monaco**: [Link](https://therealdeal.com/new-york/2026/04/21/global-home-sale-record-quietly-broken-in-monaco/)
+
+
+### meteo (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
+
+
+
+
 ### world cup 2026 (N/A, Wed, 22 Apr 2026 23:40:00 -0700)
 
 - **Singapore Airlines Brings FIFA World Cup 2026 Live to the Skies: Watch Matches with Premium In-Flight Entertainment**: [Link](https://www.travelandtourworld.com/news/article/singapore-airlines-brings-fifa-world-cup-2026-live-to-the-skies-watch-matches-with-premium-in-flight-entertainment/)
