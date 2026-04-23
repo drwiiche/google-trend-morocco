@@ -1,3 +1,8 @@
+### باب مراكش (N/A, Thu, 23 Apr 2026 12:50:00 -0700)
+
+
+
+
 ### guide de la révolution de l'iran (N/A, Thu, 23 Apr 2026 15:10:00 -0700)
 
 - **«Gravement blessé», le nouveau guide suprême iranien serait notamment soigné par le président iranien en personne, selon le New York Times**: [Link](https://www.lefigaro.fr/international/gravement-blesse-le-nouveau-guide-supreme-iranien-serait-notamment-soigne-par-le-president-iranien-en-personne-selon-le-new-york-times-20260423)
