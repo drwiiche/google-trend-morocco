@@ -1,3 +1,17 @@
+### حكومة (N/A, Thu, 23 Apr 2026 04:10:00 -0700)
+
+- **المغرب: سجال محتدم بين الأغلبية والمعارضة حول حصيلة عمل الحكومة**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B3%D8%AC%D8%A7%D9%84-%D9%85%D8%AD%D8%AA%D8%AF%D9%85-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7/)
+- **أخنوش: حققنا 50 إنجازاً .. والكسابة مطالبون بعدم ترك المجال لـ"الشناقة"**: [Link](https://www.hespress.com/%D8%A3%D8%AE%D9%86%D9%88%D8%B4-%D8%AD%D9%82%D9%82%D9%86%D8%A7-50-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2%D8%A7%D9%8B-%D9%88%D8%A7%D9%84%D9%83%D8%B3%D8%A7%D8%A8%D8%A9-%D9%85%D8%B7%D8%A7%D9%84%D8%A8%D9%88-1735165.html)
+- **السيد أخنوش: الحصيلة الحكومية تتجاوز "10 التزامات" وتعكس إنجازات مدعومة بالأرقام والواقع الملموس**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D8%A3%D8%AE%D9%86%D9%88%D8%B4-%D8%A7%D9%84%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-10-%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85%D8%A7%D8%AA-%D9%88%D8%AA%D8%B9%D9%83%D8%B3-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2%D8%A7%D8%AA-20260421)
+
+
+### gianluigi buffon (N/A, Thu, 23 Apr 2026 01:40:00 -0700)
+
+- **Buffon e l’ingiustizia col suo vero nome**: [Link](https://www.tuttosport.com/news/calcio/serie-a/juventus/2026/04/23-148155124/buffon_e_lingiustizia_col_suo_vero_nome)
+- **Buffon lancia l’allarme: “Italia senza più geni. Dove sono finiti i Baggio e i Totti?”**: [Link](https://www.mondoprimavera.com/notizie/buffon-crisi-calcio-italiano-talento-parole/)
+- **Buffon torna su Calciopoli e difende la Juventus: “Prezzo inspiegabile, pagammo senza colpe”**: [Link](https://tribuna.com/it/news/2026-04-22-buffon-torna-su-calciopoli-e-difende-la-juventus-prezzo-inspiegabile-pagammo-senza-colpe/)
+
+
 ### ماميلودي صن داونز (N/A, Thu, 23 Apr 2026 03:00:00 -0700)
 
 - **“كاف” تبدد مخاوف الجيش**: [Link](https://assabah.ma/918670.html)
