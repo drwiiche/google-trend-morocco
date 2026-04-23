@@ -1,3 +1,10 @@
+### barca celta vigo (N/A, Wed, 22 Apr 2026 15:20:00 -0700)
+
+- **Barcelona 1-0 Celta Vigo: Lamine Yamal injures himself scoring penalty**: [Link](https://www.bbc.com/sport/football/live/c9qd2w3z92lt)
+- **Juan García: Winning at Home is Always Necessary, and We Need to Improve Match Starts**: [Link](https://www.ysscores.com/en/news/13950781/Juan-Garc%C3%ADa:-Winning-at-Home-is-Always-Necessary,-and-We-Need-to-Improve-Match-Starts)
+- **Grade 1 or Grade 2? Everything we know about Yamal's hamstring injury and what happens next**: [Link](https://everythingbarca.com/lamine-yamal-hamstring-injury-clasico-world-cup-doubt-2026)
+
+
 ### الأميرة للا خديجة (N/A, Wed, 22 Apr 2026 16:00:00 -0700)
 
 - **الأميرات للا خديجة وللا مريم وللا حسناء يحضرن العرض الافتتاحي للمسرح الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%A7-%D8%AE%D8%AF%D9%8A%D8%AC%D8%A9-%D9%88%D9%84%D9%84%D8%A7-%D9%85%D8%B1%D9%8A%D9%85-%D9%88%D9%84%D9%84%D8%A7-%D8%AD%D8%B3%D9%86%D8%A7-1735470.html)
