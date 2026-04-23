@@ -1,3 +1,17 @@
+### real salt lake – inter miami (N/A, Wed, 22 Apr 2026 18:40:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF in Midweek Action On the Road Against Real Salt Lake**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-in-midweek-action-on-the-road-against-real-salt-lake)
+- **Lionel Messi in pre-game warm-ups**: [Link](https://kutv.com/sports/real-salt-lake/lionel-messi-in-pre-game-warm-ups)
+- **Thousands of fans line up outside of RSL game, ready to watch soccer legend Lionel Messi**: [Link](https://www.abc4.com/sports/lionel-messi-game-day-rsl-f-35-flyover/)
+
+
+### منجم (N/A, Wed, 22 Apr 2026 13:40:00 -0700)
+
+- **منافسة أمريكية - صينية للفوز به.. ما هو «التانتالوم» كنز الكونغو؟**: [Link](https://www.almasryalyoum.com/news/details/4250335)
+- **خطة لإحياء منجم شيماف.. استئناف الإنتاج الكامل في 2027 بدعم أميركي**: [Link](https://cnnbusinessarabic.com/economic-stories/1139446/%D8%AE%D8%B7%D8%A9-%D9%84%D8%A5%D8%AD%D9%8A%D8%A7%D8%A1-%D9%85%D9%86%D8%AC%D9%85-%D8%B4%D9%8A%D9%85%D8%A7%D9%81-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D8%A7%D8%AC-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84-%D9%81%D9%8A-2027-%D8%A8%D8%AF%D8%B9%D9%85-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A)
+- **خديعة الكوبالت.. كيف أحرجت شركة "ناشئة" وزارة الخارجية الأمريكية في الكونغو؟**: [Link](https://www.geeska.com/ar/khdyt-alkwbalt-kyf-ahrjt-shrkt-nashyt-wzart-alkharjyt-alamrykyt-fy-alkwnghw)
+
+
 ### barca celta vigo (N/A, Wed, 22 Apr 2026 15:20:00 -0700)
 
 - **Barcelona 1-0 Celta Vigo: Lamine Yamal injures himself scoring penalty**: [Link](https://www.bbc.com/sport/football/live/c9qd2w3z92lt)
