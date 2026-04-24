@@ -1,3 +1,17 @@
+### real vs betis (N/A, Fri, 24 Apr 2026 14:30:00 -0700)
+
+- **Mbappé da el susto en La Cartuja**: [Link](https://as.com/futbol/mbappe-da-el-susto-en-la-cartuja-f202604-n/)
+- **Mbappé, sobrecarga en el isquio de la pierna izquierda**: [Link](https://www.marca.com/futbol/real-madrid/2026/04/24/mbappe-sobrecarga-isquio-pierna-izquierda.html)
+- **Ya se conoce la lesión de Mbappé**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20260424/1004174935/conoce-lesion-mbappe.html)
+
+
+### ترتيب الدوري الاسباني (N/A, Fri, 24 Apr 2026 14:00:00 -0700)
+
+- **صراع "النفس الأخير" في الليجا.. برشلونة يبتعد بالصدارة وريال مدريد يتمسك بالأمل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%86%D9%81%D8%B3-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%A8%D8%AA%D8%B9%D8%AF-%D8%A8%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%84/blt77cd24ed93a64e47)
+- **ماذا يحتاج برشلونة للفوز بالليجا؟**: [Link](https://www.ysscores.com/ar/news/13951886/%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%84%D9%81%D9%88%D8%B2-%D8%A8%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7%D8%9F-2)
+- **ترتيب الدوري الإسباني بعد تعادل ريال مدريد مع ريال بيتيس**: [Link](https://www.elbalad.news/6947828)
+
+
 ### classement la liga (N/A, Fri, 24 Apr 2026 14:00:00 -0700)
 
 - **Le Real perd deux points à Séville et s'éloigne du titre en Liga**: [Link](https://www.lequipe.fr/Football/Actualites/Le-real-perd-deux-points-a-seville-et-s-eloigne-du-titre-en-liga/1670690)
