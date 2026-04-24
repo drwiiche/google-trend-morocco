@@ -1,3 +1,38 @@
+### reza pahlavi (N/A, Fri, 24 Apr 2026 07:10:00 -0700)
+
+- **Protester hurls red fluid at Reza Pahlavi during Germany visit**: [Link](https://www.aljazeera.com/video/newsfeed/2026/4/23/protester-hurls-red-fluid-at-reza-pahlavi-during-germany-visit)
+- **Son of shah says talks with Iran 'appeasement,' new leaders 'different faces of the same machine'**: [Link](https://www.timesofisrael.com/liveblog_entry/son-of-shah-says-talks-with-iran-appeasement-new-leaders-different-faces-of-the-same-machine/)
+- **Video. Iran's exiled crown prince splattered with red liquid in Berlin**: [Link](https://www.euronews.com/video/2026/04/23/irans-exiled-crown-prince-reza-pahlavi-splattered-with-red-liquid-in-berlin)
+
+
+### وزارة التربية الوطنية والتعليم الأولي والرياضة (N/A, Fri, 24 Apr 2026 07:00:00 -0700)
+
+- **رؤساء أقسام بوزارة التربية يصعدون**: [Link](https://www.hespress.com/%D8%B1%D8%A4%D8%B3%D8%A7%D8%A1-%D8%A3%D9%82%D8%B3%D8%A7%D9%85-%D8%A8%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%8A%D8%B5%D8%B9%D8%AF%D9%88%D9%86-1735898.html)
+- **التعليم الأولي.. نقابة تحذر من الهشاشة التي يعيشها ألف مشرف تربوي وإطار إداري**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%8A-%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%B4%D8%A7%D8%B4%D8%A9-%D8%A7/)
+- **رؤساء المصالح والأقسام بوزارة التعليم يشهرون ورقة الإضراب رفضا لـ”سياسة التجاهل”**: [Link](https://lakome2.com/societe/415857/)
+
+
+### مجزرة التضامن (N/A, Fri, 24 Apr 2026 06:40:00 -0700)
+
+- **من هو أمجد يوسف مرتكب مجزرة التضامن؟**: [Link](https://www.aljazeera.net/encyclopedia/2026/4/24/%D9%85%D9%86-%D9%87%D9%88-%D8%A3%D9%85%D8%AC%D8%AF-%D9%8A%D9%88%D8%B3%D9%81-%D9%85%D8%B1%D8%AA%D9%83%D8%A8-%D9%85%D8%AC%D8%B2%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86)
+- **قتل وحرق وتوثيق بالصور... توقيف أمجد يوسف المتهم الرئيسي بمجرزة التضامن في دمشق عام 2013**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260424-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%82%D8%AA%D9%84-%D8%AD%D8%B1%D9%82-%D8%AA%D9%88%D8%AB%D9%8A%D9%82-%D8%B5%D9%88%D8%B1-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%A3%D9%85%D8%AC%D8%AF-%D9%8A%D9%88%D8%B3%D9%81-%D8%A7%D9%84%D9%85%D8%AA%D9%87%D9%85-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A-%D9%85%D8%AC%D8%B1%D8%B2%D8%A9-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D8%AF%D9%85%D8%B4%D9%82-2013)
+- **وزير الداخلية السوري يعلن القبض على المتهم الأول بارتكاب مجزرة التضامن**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D9%82%D8%A8%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AA%D9%87%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D8%A8%D8%A7%D8%B1%D8%AA%D9%83%D8%A7%D8%A8-%D9%85%D8%AC%D8%B2%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86/3916369)
+
+
+### منتخب البرازيل لكرة القدم (N/A, Fri, 24 Apr 2026 06:00:00 -0700)
+
+- **المصائب تتوالى على البرازيل قبل كأس العالم 2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D9%8A%D9%94%D8%A8-%D8%AA%D8%AA%D9%88%D8%A7%D9%84%D9%89-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%82%D8%A8%D9%84-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026/blt95539969ed94756a)
+- **نجم تشيلسي المصاب ينعش حظوظ نيمار في لعب مونديال 2026**: [Link](https://www.aljazeera.net/sport/2026/4/22/%D8%A5%D8%B3%D8%AA%D9%8A%D9%81%D8%A7%D9%88-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%86%D9%8A%D9%85%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9)
+- **أنشيلوتي يراكم الصدمات بعد إصابة إستيفاو الخطيرة**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%8A%D8%B1%D8%A7%D9%83%D9%85-%D8%A7%D9%84%D8%B5%D8%AF%D9%85%D8%A7%D8%AA-%D8%A8%D8%B9%D8%AF-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A5%D8%B3%D8%AA%D9%8A%D9%81%D8%A7%D9%88-%D8%A7%D9%84%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9)
+
+
+### habous (N/A, Fri, 24 Apr 2026 05:40:00 -0700)
+
+- **Prévenir la déshydratation dans la Terre Sainte, les pèlerins du Hadj sont équipés d'un forfait de santé spécial depuis l'embarcation de Padang**: [Link](https://voi.id/fr/info-sehat/571946)
+- **Hajj 1447: baisse des tarifs et nouvel encadrement pour les pèlerins marocains**: [Link](https://lareleve.ma/188602/)
+- **Actualité**: [Link](https://www.sante.gov.ma/Pages/actualites.aspx?idactu=756)
+
+
 ### artificial intelligence (N/A, Fri, 24 Apr 2026 04:10:00 -0700)
 
 - **Introducing GPT-5.5**: [Link](https://openai.com/index/introducing-gpt-5-5/)
