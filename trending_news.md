@@ -1,3 +1,31 @@
+### lion (N/A, Fri, 24 Apr 2026 00:30:00 -0700)
+
+- **Detroitlions.com 2026 mock draft**: [Link](https://www.detroitlions.com/news/detroitlions-com-2026-nfl-mock-draft-freeling-mccoy-fano)
+- **'Scary' scenario led Lions GM Brad Holmes to consider Round 1 swap**: [Link](https://sports.yahoo.com/articles/scary-scenario-led-lions-gm-090917017.html)
+- **2026 Grit Index: Which OTs best fit the Detroit Lions’ culture**: [Link](https://www.prideofdetroit.com/detroit-lions-draft/162146/2026-grit-index-nfl-draft-detroit-lions-offensive-tackle-profiles)
+
+
+### مدرب (N/A, Fri, 24 Apr 2026 00:00:00 -0700)
+
+- **من المغرب إلى السعودية.. رينارد يرافق مورينيو في نفق العظماء المُظلم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9--%D8%B1%D9%8A%D9%86%D8%A7%D8%B1%D8%AF-%D9%8A%D8%B1%D8%A7%D9%81%D9%82-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%81%D9%8A-%D9%86%D9%81%D9%82-%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%8F%D8%B8%D9%84%D9%85/bltb006ae1f3718f312)
+- **دونيس مدربا للمنتخب السعودي في كأس العالم خلفا لرينار**: [Link](https://www.aljazeera.net/sport/2026/4/23/%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AF%D9%88%D9%86%D9%8A%D8%B3)
+- **اليوناني دونيس مدربا جديدا للسعودية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86%D9%8A-%D8%AF%D9%88%D9%86%D9%8A%D8%B3-%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D9%84%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-1735926.html)
+
+
+### طقس اليوم (N/A, Thu, 23 Apr 2026 23:40:00 -0700)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-70-1736063.html)
+- **نشرة إنذارية: رياح قوية وزخات رعدية مع تساقط البرد يومي الخميس والجمعة**: [Link](https://chouftv.ma/press/780930.html)
+- **طقس الخميس: سحب غير مستقرة مصحوبة بزخات رعدية واحتمال برد فوق الأطلسين – اليوم 24**: [Link](https://alyaoum24.com/2021066.html)
+
+
+### carte grise (N/A, Thu, 23 Apr 2026 14:50:00 -0700)
+
+- **Permis de conduire/ Cartes grises : Lancement officiel de la modernisation du processus de tri**: [Link](https://www.leconomiste.com/flash-infos/permis-de-conduire-cartes-grises-lancement-officiel-de-la-modernisation-du-processus-de-tri/)
+- **Permis de conduire et cartes grises: livraison en 72 heures**: [Link](https://fr.le360.ma/societe/permis-de-conduire-et-cartes-grises-livraison-en-72-heures_YNKLTHCUWRCX5OXAHBEL4EACZY/)
+- **Les délais de remise des permis et cartes grises passeront de deux mois à moins d’une semaine (ministre)**: [Link](https://medias24.com/2026/04/23/les-delais-de-remise-des-permis-et-cartes-grises-passeront-de-deux-mois-a-moins-dune-semaine-ministre-1664909/)
+
+
 ### météo (N/A, Fri, 24 Apr 2026 00:00:00 -0700)
 
 - **La météo en Belgique : du soleil dès la dissipation de la grisaille**: [Link](https://www.rtbf.be/article/la-meteo-en-belgique-du-soleil-des-la-dissipation-de-la-grisaille-11714569)
