@@ -1,3 +1,17 @@
+### ميزانية (N/A, Fri, 24 Apr 2026 10:10:00 -0700)
+
+- **أضافت الجمعية الوطنية أكثر من 13700 مليار دونغ فيتنامي إلى إيرادات ميزانية الدولة المتوقعة لعام 2024.**: [Link](https://www.vietnam.vn/ar/quoc-hoi-bo-sung-hon-13-700-ty-dong-du-toan-thu-ngan-sach-nha-nuoc-nam-2024)
+- **إصلاح الرواتب: تحويل 580,618 مليار دونغ فيتنامي من ميزانية الدولة للتنفيذ.**: [Link](https://www.vietnam.vn/ar/cai-cach-tien-luong-chuyen-nguon-ngan-sach-nha-nuoc-580-618-ti-dong-de-thuc-hien)
+- **من خلال القرار الذي يكمل تقديرات إيرادات ميزانية الولاية لعام 2024 ويوافق على الحسابات النهائية لميزانية الولاية لعام 2024.**: [Link](https://www.vietnam.vn/ar/thong-qua-nghi-quyet-bo-sung-du-toan-thu-ngan-sach-nha-nuoc-2024-va-phe-chuan-quyet-toan-ngan-sach-nha-nuoc-2024)
+
+
+### وزارة التربية والتعليم (N/A, Fri, 24 Apr 2026 08:50:00 -0700)
+
+- **رؤساء أقسام بوزارة التربية يصعدون**: [Link](https://www.hespress.com/%D8%B1%D8%A4%D8%B3%D8%A7%D8%A1-%D8%A3%D9%82%D8%B3%D8%A7%D9%85-%D8%A8%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%8A%D8%B5%D8%B9%D8%AF%D9%88%D9%86-1735898.html)
+- **التعليم الأولي.. نقابة تحذر من الهشاشة التي يعيشها ألف مشرف تربوي وإطار إداري**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%8A-%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%B4%D8%A7%D8%B4%D8%A9-%D8%A7/)
+- **حملوا الوزارة مسؤولية “تعثر” ملفهم.. “دكاترة التربية الوطنية” يعلنون عن وقفة احتجاجية**: [Link](https://kifache.com/%D8%AD%D9%85%D9%84%D9%88%D8%A7-%D8%A7%D9%84%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D8%AA%D8%B9%D8%AB%D8%B1-%D9%85%D9%84%D9%81%D9%87%D9%85-%D8%AF%D9%83%D8%A7/)
+
+
 ### مديونة (N/A, Fri, 24 Apr 2026 09:10:00 -0700)
 
 - **مداهمة مستودعات بلاستيك بمديونة**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%A7%D9%87%D9%85%D8%A9-%D9%85%D8%B3%D8%AA%D9%88%D8%AF%D8%B9%D8%A7%D8%AA-%D8%A8%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%83-%D8%A8%D9%85%D8%AF%D9%8A%D9%88%D9%86%D8%A9-1736005.html)
