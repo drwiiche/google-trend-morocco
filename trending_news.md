@@ -1,3 +1,59 @@
+### naples – cremonese (N/A, Fri, 24 Apr 2026 12:00:00 -0700)
+
+- **Licensable picture: Napoli Vs Cremonese - Serie A Enilive 2025/2026**: [Link](https://www.reutersconnect.com/item/napoli-vs-cremonese-serie-a-enilive-20252026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBUWlNDTEU)
+- **US Cremonese vs. Lazio - Live Score - May 04, 2026**: [Link](https://www.foxsports.com/soccer/serie-a-us-cremonese-vs-lazio-may-04-2026-game-boxscore-625542)
+- **Serie A Live Blog – Napoli vs Cremonese**: [Link](https://football-italia.net/serie-a-live-blog-napoli-vs-cremonese/)
+
+
+### زلزال (N/A, Fri, 24 Apr 2026 11:50:00 -0700)
+
+- **زلزال قوي يضرب جزيرة كريت.. وهذا حجم الخسائر**: [Link](https://www.almashhad.com/article/459217420284850-entertainment/632346579259232-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-57-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%83%D8%B1%D9%8A%D8%AA-%D8%AF%D9%88%D9%86-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%AE%D8%B3%D8%A7%D8%A6%D8%B1/)
+- **زلزال بقوة 5.8 ريختر يضرب جزيرة كريت اليونانية**: [Link](https://www.elbalad.news/6947008)
+- **زلزال بقوة 5.7 يضرب جزيرة كريت اليونانية دون خسائر بشرية أو مادية**: [Link](https://sharjah24.ae/ar/Articles/2026/04/24/Ma43)
+
+
+### حلف شمال الأطلسي (N/A, Fri, 24 Apr 2026 11:40:00 -0700)
+
+- **إسبانيا ترد على مقترح أمريكي لتعليق عضويتها في الناتو**: [Link](https://www.aljazeera.net/news/2026/4/24/%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%A7%D9%84%D8%A8%D9%86%D8%AA%D8%A7%D8%BA%D9%88%D9%86-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%B9%D8%B6%D9%88%D9%8A%D8%A9)
+- **سانشيز يعلق على تقارير تعليق عضوية إسبانيا بالناتو**: [Link](https://www.skynewsarabia.com/world/1866016-%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D9%8A%D8%B9%D9%84%D9%82-%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%B9%D8%B6%D9%88%D9%8A%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D9%86%D8%A7%D8%AA%D9%88)
+- **حصري مصدر: البنتاجون يطرح تعليق عضوية إسبانيا بحلف الأطلسي بسبب حرب إيران**: [Link](https://www.reuters.com/ar/world/TZLO3TU4ANLO5ILP2M3HCDG724-2026-04-24/)
+
+
+### sunderland – nottm forest (N/A, Fri, 24 Apr 2026 11:30:00 -0700)
+
+- **Premier League LIVE: Sunderland vs Nottingham Forest - build-up, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/crl175ezdrlt)
+- **Team News: Alderete Update and Returnee Boost**: [Link](https://www.safc.com/news/2026/april/23/team-news--alderete-update-and-returnee-boost/)
+- **Starting XI: Will Regis Make Changes As We Attempt To Fell Forest?**: [Link](https://rokerreport.sbnation.com/match-previews/135633/starting-xi-will-regis-make-changes-as-we-attempt-to-fell-forest)
+
+
+### brest – lens (N/A, Fri, 24 Apr 2026 11:20:00 -0700)
+
+- **DIRECT. Brest-Lens: suivez en live le match d'ouverture de la 31e journée de Ligue 1**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-brest-lens-suivez-en-live-le-match-d-ouverture-de-la-31e-journee-de-ligue-1_LS-202604240667.html)
+- **Stade Brestois - RC Lens. Fièvre du vendredi soir, Le Blé forteresse en danger… Les chiffres de**: [Link](https://lemans.maville.com/sport/detail_-stade-brestois-rc-lens.-fievre-du-vendredi-soir-le-ble-forteresse-en-danger...-les-chiffres-de-ce-match-de-gala-_-7293202_actu.Htm)
+- **L1 : Brest-Lens, les compos probables**: [Link](https://www.maxifoot.fr/ligue-1/brest-lens-les-compos-probables-foot-454610.htm)
+
+
+### betis – real madrid (N/A, Fri, 24 Apr 2026 11:10:00 -0700)
+
+- **Betis - Real Madrid en directo: última hora de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/betis-real-madrid-en-directo-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202604-d/)
+- **El enigmático mensaje de Ceballos antes de su sorpresiva ausencia en la convocatoria ante el Betis**: [Link](https://www.marca.com/futbol/real-madrid/2026/04/24/enigmatico-mensaje-ceballos-sorpresiva-ausencia-convocatoria-betis.html)
+- **Convocatoria del Real Madrid ante el Betis**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-ante-el-betis-24-04-2026)
+
+
+### ريال بتيس ضد الريال (N/A, Fri, 24 Apr 2026 11:10:00 -0700)
+
+- **مباشر ريال مدريد ضد ريال بيتيس في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/24/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%8A)
+- **محلل الشيرنجيتو يشيد بعودة دياز.. ويحذر من نذير شؤم لريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AD%D9%84%D9%84-%D8%A7%D9%84%D8%B4%D9%8A%D8%B1%D9%86%D8%AC%D9%8A%D8%AA%D9%88-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%B9%D9%88%D8%AF%D8%A9-%D8%AF%D9%8A%D8%A7%D8%B2--%D9%88%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%86%D8%B0%D9%8A%D8%B1-%D8%B4%D9%88%D9%94%D9%85-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt1f444591cd023d24)
+- **صدارة برشلونة تحت مجهر خيتافي.. والريال يطارد الأمل الأخير أمام بيتيس**: [Link](https://24.ae/article/955917/%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AA%D8%AD%D8%AA-%D9%85%D8%AC%D9%87%D8%B1-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D9%84-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3)
+
+
+### real betis vs real madrid (N/A, Fri, 24 Apr 2026 11:10:00 -0700)
+
+- **LIVE: Real Betis vs Real Madrid – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2026/4/24/live-real-betis-vs-real-madrid-la-liga-football-title-race-barcelona)
+- **Pellegrini: “Real Madrid Can Decide Matches in Two Touches”**: [Link](https://www.managingmadrid.com/latest-news/106811/pellegrini-real-madrid-can-decide-matches-in-two-touches)
+- **Real Madrid vs. Real Betis: The Latest Chance for Mbappe, Vinicius Jr to Silence Their Critics**: [Link](https://www.si.com/soccer/real-madrid-xi-vs-real-betis-injury-news-predicted-lineup-4-24-26)
+
+
 ### خبر (N/A, Fri, 24 Apr 2026 11:00:00 -0700)
 
 - **عقوبات أميركية تستهدف برامج الدرون والصواريخ الإيرانية**: [Link](https://www.skynewsarabia.com/world/1865468-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A8%D8%B1%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D8%AF%D8%B1%D9%88%D9%86-%D9%88%D8%A7%D9%84%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9)
