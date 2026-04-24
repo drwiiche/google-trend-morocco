@@ -1,3 +1,30 @@
+### مديونة (N/A, Fri, 24 Apr 2026 09:10:00 -0700)
+
+- **مداهمة مستودعات بلاستيك بمديونة**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%A7%D9%87%D9%85%D8%A9-%D9%85%D8%B3%D8%AA%D9%88%D8%AF%D8%B9%D8%A7%D8%AA-%D8%A8%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%83-%D8%A8%D9%85%D8%AF%D9%8A%D9%88%D9%86%D8%A9-1736005.html)
+- **حملة جمركية بإقليم مديونة تسفر عن حجز 11 طناً من الأكياس البلاستيكية المحظورة**: [Link](https://inews.ma/news/8296194)
+- **11 طنا من “القاتل الصامت”.. الجمارك تفضح أخطر شبكة أكياس بلاستيكية**: [Link](https://maghrebtimes.ma/2026/04/24/11-%D8%B7%D9%86%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%82%D8%A7%D8%AA%D9%84-%D8%A7%D9%84%D8%B5%D8%A7%D9%85%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B1%D9%83-%D8%AA%D9%81%D8%B6%D8%AD/)
+
+
+### figuig (N/A, Fri, 24 Apr 2026 08:50:00 -0700)
+
+- **À Figuig, le survol de deux hélicoptères alimente la nervosité à la frontière entre le Maroc et l’Algérie**: [Link](https://www.jeuneafrique.com/1791089/politique/a-figuig-le-survol-de-deux-helicopteres-alimente-la-nervosite-a-la-frontiere-entre-le-maroc-et-lalgerie/)
+- **À Figuig, le passage d’hélicoptères algériens ravive la tension**: [Link](https://www.bladi.net/figuig-passage-helicopteres-algeriens-ravive-tension,120868.html)
+
+
+### les flammes 2026 (N/A, Fri, 24 Apr 2026 08:00:00 -0700)
+
+- **Les Flammes 2026 : Theodora triomphe, Gims et Werenoi récompensés**: [Link](https://www.lemonde.fr/culture/article/2026/04/24/theodora-triomphe-lors-des-flammes-2026_6682987_3246.html)
+- **Angèle ose la transparence en robe de mariée audacieuse sur le tapis rouge des Flammes**: [Link](https://www.gala.fr/mode/les_stars_et_la_mode/angele-ose-la-transparence-en-robe-de-mariee-audacieuse-sur-le-tapis-rouge-des-flammes-20260424)
+- **LIM, Guizmo, Kerchak, Oli : retour sur les moments forts de la cérémonie des Flammes 2026**: [Link](https://generations.fr/news/coulisse/81457/lim-guizmo-kerchak-oli-retour-sur-les-moments-forts-de-la-ceremonie-des-flammes-2026)
+
+
+### pénurie kérosène vols annulés (N/A, Fri, 24 Apr 2026 07:30:00 -0700)
+
+- **Crise du kérosène : pourquoi vous allez payer (très) cher pour voyager ?**: [Link](https://www.lebrief.ma/avion-kerosene-chaos-pourquoi-voyager-en-2026-donne-le-tournis-100149706/)
+- **Flambée du kérosène : Royal Air Maroc résiste, mais jusqu’à quand ?**: [Link](https://mobile.telquel.ma/2026/04/22/flambee-du-kerosene-royal-air-maroc-resiste-mais-jusqua-quand_1985590)
+- **Guerre en Iran : la crise du kérosène s’aggrave**: [Link](https://www.dw.com/fr/crise-kerosene-iran-europe/a-76917534)
+
+
 ### jannik sinner (N/A, Fri, 24 Apr 2026 07:40:00 -0700)
 
 - **Sinner sa già chi sarebbe il suo prossimo avversario nel Madrid Open**: [Link](https://www.puntodebreak.com/it/2026/04/24/sinner-sa-gia-chi-sarebbe-il-suo-prossimo-avversario-nel-madrid-open)
