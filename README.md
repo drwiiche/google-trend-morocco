@@ -1,3 +1,45 @@
+### لا ليغا (N/A, Fri, 24 Apr 2026 14:20:00 -0700)
+
+- **الدوري الإسباني، جميع المعلومات حول البث في لمحة: من يعرض / ينقل المباريات مباشرة على التلفزيون وفي البث المباشر؟**: [Link](https://www.goal.com/ar-eg/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D8%A8%D8%AB-%D9%81%D9%8A-%D9%84%D9%85%D8%AD%D8%A9-%D9%85%D9%86-%D9%8A%D8%B9%D8%B1%D8%B6-%D9%8A%D9%86%D9%82%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86-%D9%88%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1/blt148536ff3a0c9ec7)
+- **بعد أن طرد من برشلونة بسبب السهرات والإصابات…! فاتي يواجه مستقبل مجهول**: [Link](https://hihi2.com/2026/04/19/p3731910.html)
+- **موناكو يخطط لحسم التعاقد مع لاعب برشلونة - مساحات**: [Link](https://mes7at.com/47692/)
+
+
+### liga (N/A, Fri, 24 Apr 2026 14:10:00 -0700)
+
+- **Spain La Liga Soccer**: [Link](https://www.idahopress.com/sports/national/spain-la-liga-soccer/image_affc1e9f-0157-51b2-97ac-18ad3eaee84e.html)
+- **Spain La Liga Soccer**: [Link](https://www.hjnews.com/sports/nation/spain-la-liga-soccer/image_6dc911da-bfde-5d89-9553-8c02a013d03b.html)
+- **Spain La Liga Soccer**: [Link](https://www.idahopress.com/sports/national/spain-la-liga-soccer/image_52cb809c-15c9-55a2-bd74-cd3eb8aaea59.html)
+
+
+### laliga (N/A, Fri, 24 Apr 2026 14:00:00 -0700)
+
+- **📸 Did Real Madrid just shatter one of LaLiga's biggest myths? 🤨**: [Link](https://onefootball.com/en/news/did-real-madrid-just-shatter-one-of-laligas-biggest-myths-42763153)
+- **Spain La Liga Soccer**: [Link](https://www.idahopress.com/sports/national/spain-la-liga-soccer/image_affc1e9f-0157-51b2-97ac-18ad3eaee84e.html)
+- **Spain La Liga Soccer**: [Link](https://www.hjnews.com/sports/nation/spain-la-liga-soccer/image_6dc911da-bfde-5d89-9553-8c02a013d03b.html)
+
+
+### ثعبان (N/A, Fri, 24 Apr 2026 14:00:00 -0700)
+
+- **شابة صينية تتفرغ لتربية 60 ألف ثعبان سام**: [Link](https://www.emaratalyoum.com/life/four-sides/2026-04-24-1.2039240)
+- **شابة تدير مزرعة تضم 60 ألف أفعى**: [Link](https://inews.ma/news/8294622)
+- **شابة تدير مزرعة تضم 60 ألف أفعى**: [Link](https://machahid24.com/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/498437.html)
+
+
+### billie eilish (N/A, Fri, 24 Apr 2026 13:50:00 -0700)
+
+- **‘Billie Eilish: Hit Me Hard And Soft’ To Premiere At Westwood Village Theatre Before Venue’s Fall Renovations**: [Link](https://deadline.com/2026/04/billie-eilish-hit-me-hard-and-soft-westwood-village-theatre-1236870872/)
+- **‘Billie Eilish – Hit Me Hard and Soft: The Tour’ Concert Film to Premiere at Westwood’s Historic Village Theatre Ahead of Renovations**: [Link](https://variety.com/2026/film/news/billie-eilish-hit-me-hard-and-soft-film-village-theatre-1236729854/)
+- **Billie Eilish Drops Hit Me Hard & Soft Tour Intro Instrumental Track So Fans Can Relive the Hype of Concert’s First 2 Minutes**: [Link](https://www.yahoo.com/entertainment/music/articles/billie-eilish-drops-hit-hard-152038134.html)
+
+
+### isco (N/A, Fri, 24 Apr 2026 13:40:00 -0700)
+
+- **Isco vuelve a jugar en La Cartuja cinco meses después**: [Link](https://es-us.noticias.yahoo.com/deportes/isco-vuelve-jugar-cartuja-meses-204556796.html)
+- **El gol del Vinicius con un detalle del que nadie se dio cuenta en directo**: [Link](https://as.com/futbol/videos/el-gol-del-vinicius-con-un-detalle-del-que-nadie-se-dio-cuenta-en-directo-f202604-v/)
+- **Isco, a quien comparan con James, supera lesiones y sueña Real Betis**: [Link](https://www.futbolred.com/liga-de-espana/regreso-de-isco-ilusiona-a-betis-para-enfrentar-a-real-madrid-comparan-su-historia-con-james-266497)
+
+
 ### منتخب مصر لكرة القدم (N/A, Fri, 24 Apr 2026 13:20:00 -0700)
 
 - **يمتلك 3 جنسيات.. من هو أمير أبو العز لاعب مونزا المنضم لمنتخب مصر للناشئين؟**: [Link](https://koraplus.com/article/119758/%D9%8A%D9%85%D8%AA%D9%84%D9%83-3-%D8%AC%D9%86%D8%B3%D9%8A%D8%A7%D8%AA-%D9%85%D9%86-%D9%87%D9%88-%D8%A3%D9%85%D9%8A%D8%B1-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D8%B9%D8%B2-%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D9%88%D9%86%D8%B2%D8%A7)
