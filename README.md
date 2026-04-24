@@ -1,3 +1,10 @@
+### artificial intelligence (N/A, Fri, 24 Apr 2026 04:10:00 -0700)
+
+- **Introducing GPT-5.5**: [Link](https://openai.com/index/introducing-gpt-5-5/)
+- **OpenAI announces GPT-5.5, its latest artificial intelligence model**: [Link](https://www.cnbc.com/2026/04/23/openai-announces-latest-artificial-intelligence-model.html)
+- **ChatGPT 5.5 Is All About Math, Science and AI Research**: [Link](https://www.cnet.com/tech/services-and-software/openai-chatgpt-5-5-release-math-science-research-news/)
+
+
 ### electric vehicles (N/A, Fri, 24 Apr 2026 04:10:00 -0700)
 
 - **Petrol vs electric: which is the cheaper car to run in 2026?**: [Link](https://www.topgear.com/car-news/electric/petrol-vs-electric-which-cheaper-car-run-2026)
