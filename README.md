@@ -1,3 +1,38 @@
+### météo (N/A, Fri, 24 Apr 2026 00:00:00 -0700)
+
+- **La météo en Belgique : du soleil dès la dissipation de la grisaille**: [Link](https://www.rtbf.be/article/la-meteo-en-belgique-du-soleil-des-la-dissipation-de-la-grisaille-11714569)
+- **Météo : une nouvelle journée ensoleillée avec jusqu’à 20 degrés**: [Link](https://bx1.be/categories/news/meteo-une-nouvelle-journee-ensoleillee-avec-jusqua-20-degres/)
+- **Météo ce lundi: des nuages mais un temps généralement sec, entre 9 et 14°C (vidéo)**: [Link](https://www.lavenir.net/actu/societe/meteo/2026/04/20/meteo-ce-lundi-des-nuages-mais-un-temps-generalement-sec-entre-9-et-14c-video-W4C4TO2PPBFK5DXQNUCK7TW7HY/)
+
+
+### حالة الطقس (N/A, Thu, 23 Apr 2026 23:40:00 -0700)
+
+- **حاله الطقس اليوم الجمعة 24 أبريل 2026 فى جنوب سيناء**: [Link](https://www.youm7.com/story/2026/4/24/%D8%AD%D8%A7%D9%84%D9%87-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-24-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-2026-%D9%81%D9%89-%D8%AC%D9%86%D9%88%D8%A8-%D8%B3%D9%8A%D9%86%D8%A7%D8%A1/7388790)
+- **طقس معتدل في العريش اليوم وأجواء ربيعية مستقرة**: [Link](https://www.dostor.org/5521211)
+- **رياح وغبار.. أحوال جوية غير مستقرة في شمال سيناء**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=17042026&id=0a9330c0-ef4e-44df-a3e4-3627d15ac4a8)
+
+
+### حالة الطقس اليوم (N/A, Thu, 23 Apr 2026 23:40:00 -0700)
+
+- **72 ساعة عِجاف.. تحذير من حالة الطقس وقفزات متتالية في درجات الحرارة**: [Link](https://www.almasryalyoum.com/news/details/4252380)
+- **الارصاد: حرارة مرتفعة وشبورة مستمرة**: [Link](https://mrj3y.com/430735/%D8%A7%D9%84%D8%A7%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A9-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/)
+- **مع أول أيام تطبيق التوقيت الصيفي رسمياً.. «الأرصاد» تكشف مفاجآت عن حالة الطقس خلال الساعات المقبلة**: [Link](https://zahraa.mr/6271934/%D9%85%D8%B9-%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D8%A7%D9%84%D8%B5%D9%8A%D9%81%D9%8A-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5/)
+
+
+### meteo (N/A, Thu, 23 Apr 2026 23:30:00 -0700)
+
+- **French police probe suspected weather device tampering after odd Polymarket bet**: [Link](https://www.npr.org/2026/04/23/nx-s1-5797876/polymarket-paris-weather-bet)
+- **France investigates suspected tampering with weather sensors after Polymarket bets**: [Link](https://www.cnn.com/2026/04/23/europe/france-weather-sensor-polymarket-bet-intl-latam)
+- **‘Hairdryer or lighter?’: French police look at claim of sensor tampering to win weather bets**: [Link](https://www.theguardian.com/world/2026/apr/23/hairdryer-or-lighter-french-police-look-at-claim-of-sensor-tampering-to-win-weather-bets)
+
+
+### la météo (N/A, Thu, 23 Apr 2026 23:30:00 -0700)
+
+- **Météo. Les prévisions météorologiques du vendredi 24 avril 2026 à Bayonne et ses environs**: [Link](https://www.ouest-france.fr/meteo/nouvelle-aquitaine/bayonne-64100/la-meteo-du-jour-a-bayonne-5f3176b1-34a9-4783-ac0f-e332b3e52fec)
+- **La météo à Bayonne du vendredi 24 avril 2026**: [Link](https://www.sudouest.fr/pyrenees-atlantiques/bayonne/bayonne-meteo-du-vendredi-24-avril-2026-28805491.php)
+- **Météo. Les prévisions météorologiques du jeudi 23 avril 2026 à Bayonne et ses environs**: [Link](https://www.ouest-france.fr/meteo/nouvelle-aquitaine/bayonne-64100/la-meteo-du-jour-a-bayonne-2c51b6be-571f-4885-913c-5749bd191249)
+
+
 ### tiempo mañana (N/A, Thu, 23 Apr 2026 13:00:00 -0700)
 
 
