@@ -1,3 +1,50 @@
+### electric vehicles (N/A, Fri, 24 Apr 2026 04:10:00 -0700)
+
+- **Petrol vs electric: which is the cheaper car to run in 2026?**: [Link](https://www.topgear.com/car-news/electric/petrol-vs-electric-which-cheaper-car-run-2026)
+- **Public electric car charging now cheaper than petrol**: [Link](https://www.thetimes.com/money/family-finances/article/electric-car-charging-cheaper-petrol-hgcqp8nfz)
+- **Charging an EV cheaper than filling up petrol car as fuel prices soar**: [Link](https://www.telegraph.co.uk/business/2026/04/24/charging-ev-cheaper-than-filling-up-petrol-car/)
+
+
+### world cup 2026 (N/A, Fri, 24 Apr 2026 04:10:00 -0700)
+
+- **World Cup 2026: No Fifa plan to swap Iran and Italy after Trump envoy asks for switch**: [Link](https://www.bbc.com/sport/football/articles/cy813gy08v2o)
+- **Giorgia Meloni's government rules out Italy replacing Iran at World Cup**: [Link](https://news.sky.com/story/giorgia-melonis-government-rules-out-italy-replacing-iran-at-world-cup-13535400)
+- **Rubio Says Iran’s Soccer Team Can Attend World Cup**: [Link](https://www.nytimes.com/2026/04/24/us/politics/trump-rubio-iran-world-cup.html)
+
+
+### bitcoin price (N/A, Fri, 24 Apr 2026 04:10:00 -0700)
+
+- **Mean Reclaimed, Rally on Trial**: [Link](https://insights.glassnode.com/the-week-onchain-week-16-2026/)
+- **BTC Crowd Flips From Extreme Pessimism to Ultra FOMO as Price Nears $80K**: [Link](https://cryptopotato.com/btc-crowd-flips-from-extreme-pessimism-to-ultra-fomo-as-price-nears-80k/)
+- **Bitcoin faces $80,000 resistance as whales stay inactive**: [Link](https://www.bitget.com/news/detail/12560605382473)
+
+
+### openai (N/A, Fri, 24 Apr 2026 04:10:00 -0700)
+
+- **Introducing GPT-5.5**: [Link](https://openai.com/index/introducing-gpt-5-5/)
+- **OpenAI announces GPT-5.5, its latest artificial intelligence model**: [Link](https://www.cnbc.com/2026/04/23/openai-announces-latest-artificial-intelligence-model.html)
+- **OpenAI’s New GPT-5.5 Powers Codex on NVIDIA Infrastructure — and NVIDIA Is Already Putting It to Work**: [Link](https://blogs.nvidia.com/blog/openai-codex-gpt-5-5-ai-agents/)
+
+
+### space exploration (N/A, Fri, 24 Apr 2026 04:00:00 -0700)
+
+- **China ramps up satellite production capacity amid constellation ambitions**: [Link](https://spacenews.com/china-ramps-up-satellite-production-capacity-amid-constellation-ambitions/)
+- **Beijing set to launch Satellite Town as China's aerospace industry grows**: [Link](https://www.reuters.com/business/media-telecom/beijing-set-launch-satellite-town-chinas-aerospace-industry-grows-2026-04-18/)
+- **Foreign Ministry Spokesperson Guo Jiakun’s Regular Press Conference on April 24, 2026**: [Link](https://www.fmprc.gov.cn/mfa_eng/xw/fyrbt/202604/t20260424_11899448.html)
+
+
+### climate change (N/A, Fri, 24 Apr 2026 04:00:00 -0700)
+
+- **Hundreds of wildfires burn across Florida and Georgia**: [Link](https://www.bbc.com/news/videos/cwyw9wezygzo)
+- **Georgia wildfires: Gov. Brian Kemp touring damage in south Georgia; more burn bans in place**: [Link](https://www.wsbtv.com/news/local/georgia-wildfires-gov-brian-kemp-touring-damage-south-georgia-today/T7TU74AM2VGGXIM5BD2TBEXBNM/)
+- **Outpouring of support flooding in for Brantley Fire evacuees as fire still rages**: [Link](https://thebrunswicknews.com/news/local_news/outpouring-of-support-flooding-in-for-brantley-fire-evacuees-as-fire-still-rages/article_c276f49d-9686-43da-bd20-11b8ca972a81.html)
+
+
+### fédération sénégalaise de football (N/A, Fri, 24 Apr 2026 03:10:00 -0700)
+
+
+
+
 ### ناصر الخليفي (N/A, Fri, 24 Apr 2026 03:20:00 -0700)
 
 - **بعد تصريحات "السلام مع برشلونة".. بيريز يجتمع بعدوه القديم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9--%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D9%8A%D8%AC%D8%AA%D9%85%D8%B9-%D8%A8%D8%B9%D8%AF%D9%88%D9%87-%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D9%85/blta02c3c0ef0b7e636)
