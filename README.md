@@ -1,3 +1,31 @@
+### jannik sinner (N/A, Fri, 24 Apr 2026 07:40:00 -0700)
+
+- **Sinner sa già chi sarebbe il suo prossimo avversario nel Madrid Open**: [Link](https://www.puntodebreak.com/it/2026/04/24/sinner-sa-gia-chi-sarebbe-il-suo-prossimo-avversario-nel-madrid-open)
+- **Tennis in tv: Sinner-Bonzi**: [Link](https://www.lastampa.it/sport/2026/04/24/news/tennis_in_tv_sinner-bonzi-15597441/)
+- **Jannik Sinner può allungare nella ATP Race: il vantaggio su Alcaraz e la proiezione turno per turno a Madrid**: [Link](https://www.oasport.it/2026/04/jannik-sinner-puo-allungare-nella-atp-race-il-vantaggio-su-alcaraz-e-la-proiezione-turno-per-turno-a-madrid/)
+
+
+### gaz (N/A, Fri, 24 Apr 2026 07:30:00 -0700)
+
+- **🔴 Nouveau modèle de DeepSeek, prolongation de la trêve au Liban, marché du gaz liquéfié « tendu » pour 2027... L'essentiel de l'actualité ce vendredi 24 avril**: [Link](https://www.latribune.fr/article/economie/40549158597688/nouveau-modele-de-deepseek-prolongation-de-la-treve-au-liban-marche-du-gaz-liquefie-tendu-pour-2027-lessentiel-de-lactualite-ce-vendredi-24-avril)
+- **Les prix du gaz naturel européen augmentent alors que les tensions au Moyen-Orient pèsent sur l’approvisionnement**: [Link](https://fr.investing.com/news/commodities-news/les-prix-du-gaz-naturel-europeen-augmentent-alors-que-les-tensions-au-moyenorient-pesent-sur-lapprovisionnement-3375240)
+- **La guerre au Moyen-Orient devrait prolonger de deux ans au moins les tensions sur le marché du gaz**: [Link](https://www.lesechos.fr/finance-marches/marches-financiers/la-guerre-au-moyen-orient-devrait-prolonger-de-deux-ans-au-moins-les-tensions-sur-le-marche-du-gaz-2228475)
+
+
+### سيولة (N/A, Fri, 24 Apr 2026 07:30:00 -0700)
+
+- **تراجع عجز السيولة البنكية في المغرب**: [Link](https://www.hespress.com/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D8%AC%D8%B2-%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D9%86%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2-1736144.html)
+- **تراجع عجز السيولة البنكية في المغرب إلى 168,1 مليار درهم خلال أبريل الجاري**: [Link](https://www.telegraphe.ma/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D8%AC%D8%B2-%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D9%86%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A5%D9%84%D9%89-1681-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87%D9%85-%D8%AE%D9%84%D8%A7%D9%84-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D8%A7%D8%B1%D9%8A)
+- **انخفاض عجز السيولة البنكية بنسبة 3,6% بالمغرب**: [Link](https://barlamane.com/%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%B9%D8%AC%D8%B2-%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A8%D9%86%D9%83%D9%8A%D8%A9-%D8%A8%D9%86%D8%B3%D8%A8%D8%A9-36-%D8%A8%D8%A7%D9%84/)
+
+
+### حاملة طائرات (N/A, Fri, 24 Apr 2026 06:40:00 -0700)
+
+- **"ثلاثية الفولاذ" بمواجهة إيران.. رسالة واشنطن العسكرية المشفرة لطهران**: [Link](https://www.aljazeera.net/news/2026/4/24/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D9%88%D9%84%D8%A7%D8%B0-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9)
+- **الجيش الأمريكي يعلن وصول حاملة الطائرات "جورج بوش" إلى الشرق الأوسط**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260423-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF-%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D9%81%D8%AA%D8%AD-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2-%D8%A7%D9%84%D8%AD%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **مهمة غامضة.. وصول ثالث حاملة طائرات أمريكية إلى الشرق الأوسط**: [Link](https://www.dw.com/ar/%D9%88%D8%B5%D9%88%D9%84-%D8%AB%D8%A7%D9%84%D8%AB-%D8%AD%D8%A7%D9%85%D9%84%D8%A9-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7-%D9%81%D9%8A-%D9%85%D9%87%D9%85%D8%A9-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9/live-76904213)
+
+
 ### reza pahlavi (N/A, Fri, 24 Apr 2026 07:10:00 -0700)
 
 - **Protester hurls red fluid at Reza Pahlavi during Germany visit**: [Link](https://www.aljazeera.com/video/newsfeed/2026/4/23/protester-hurls-red-fluid-at-reza-pahlavi-during-germany-visit)
