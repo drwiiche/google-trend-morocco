@@ -1,3 +1,31 @@
+### bim (N/A, Fri, 24 Apr 2026 12:50:00 -0700)
+
+- **Alışverişte Yeni Dönem: BİM’de Kamp ve Teknoloji Fırsatları Başladı!**: [Link](https://www.bolgegazetesivan.com/alisveriste-yeni-donem-bimde-kamp-ve-teknoloji-firsatlari-basladi)
+- **Şanlıurfa’da zincir marketten dev kampanya!**: [Link](https://www.gazeteipekyol.com/haber/15732617/sanliurfada-zincir-marketten-dev-kampanya)
+- **BİM'e bu Cuma neler gelecek? 24 Nisan BİM aktüel indirimli ürünler katalogu yayımlandı!**: [Link](https://www.yenisafak.com/foto-galeri/ozgun/bime-bu-cuma-neler-gelecek-24-nisan-bim-aktuel-indirimli-urunler-katalogu-yayimlandi-4818078)
+
+
+### la liga (N/A, Fri, 24 Apr 2026 12:50:00 -0700)
+
+- **Getafe coach's dart at Flick ahead of Barcelona clash - 'Should think of talking more about his own team and not the opposition'**: [Link](https://barcauniversal.com/getafe-coachs-dart-at-flick-ahead-of-barcelona-clash-should-think-of-talking-more-about-his-own-team-and-not-the-opposition/)
+- **Hansi Flick: 'We can't make any mistakes'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4492765/hansi-flick-we-cant-make-any-mistakes/featured)
+- **Barca squad list confirmed for crucial La Liga trip to Getafe with Yamal ruled out**: [Link](https://www.besoccer.com/new/barca-squad-list-confirmed-for-crucial-la-liga-trip-to-getafe-with-yamal-ruled-out-1406118)
+
+
+### عباس عراقجي (N/A, Fri, 24 Apr 2026 12:00:00 -0700)
+
+- **عراقجي يبدأ جولة خارجية تشمل باكستان.. ما دلالات التوقيت؟**: [Link](https://www.aljazeera.net/news/2026/4/24/%D8%AA%D8%AD%D8%B1%D9%83-%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86)
+- **إعلام أمريكي: ترامب يرسل ويتكوف وكوشنر إلى باكستان للتباحث مع إيران**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B1%D8%B3%D9%84-%D9%88%D9%8A%D8%AA%D9%83%D9%88%D9%81-%D9%88%D9%83%D9%88%D8%B4%D9%86%D8%B1-%D8%A5%D9%84%D9%89-%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D9%84%D9%84%D8%AA%D8%A8%D8%A7%D8%AD%D8%AB-%D9%85%D8%B9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86/3917308)
+- **مصادر: وفد أميركي يصل إسلام آباد خلال 36 ساعة تمهيداً لجولة محادثات**: [Link](https://asharq.com/iran/180558/%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D9%84-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D9%88%D9%81%D8%AF-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%8A%D8%B5%D9%84-%D8%A5%D8%B3%D9%84%D8%A7%D9%85-%D8%A2%D8%A8%D8%A7%D8%AF-%D8%AE%D9%84%D8%A7%D9%84-36-%D8%B3%D8%A7%D8%B9%D8%A9/)
+
+
+### نادي الكوكب المراكشي (N/A, Fri, 24 Apr 2026 11:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الكوكب المراكشي والوداد في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt9f5f50bbad9a3a1f)
+- **غيابات الوداد أمام الكوكب المراكشي**: [Link](https://www.radiomars.ma/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A/)
+- **بعد المدرب والمدير الرياضي... رئيس اتحاد تواركة يقدم استقالته احتجاجا على التحكيم**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D8%AA%D8%AE%D8%B5%D9%8A%D8%B5-3-%D8%A2%D9%84%D8%A7%D9%81-%D8%AA%D8%B0%D9%83%D8%B1%D8%A9-%D9%84%D9%84%D8%AC%D9%85/)
+
+
 ### naples – cremonese (N/A, Fri, 24 Apr 2026 12:00:00 -0700)
 
 - **Licensable picture: Napoli Vs Cremonese - Serie A Enilive 2025/2026**: [Link](https://www.reutersconnect.com/item/napoli-vs-cremonese-serie-a-enilive-20252026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBUWlNDTEU)
