@@ -1,3 +1,17 @@
+### خبر (N/A, Fri, 24 Apr 2026 11:00:00 -0700)
+
+- **عقوبات أميركية تستهدف برامج الدرون والصواريخ الإيرانية**: [Link](https://www.skynewsarabia.com/world/1865468-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A8%D8%B1%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D8%AF%D8%B1%D9%88%D9%86-%D9%88%D8%A7%D9%84%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9)
+- **أميركا: تمديد إعفاء نفط إيران "البحري" من العقوبات 30 يومًا..وأرباح الـ 14 مليارًا "خرافة"**: [Link](https://www.iranintl.com/ar/202604237307)
+- **بيسنت يتوقع امتلاء مرافق تخزين النفط في جزيرة خرج: الآبار ستغلق**: [Link](https://asharq.com/sub-live/iran/55283/%D8%A8%D9%8A%D8%B3%D9%86%D8%AA-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%85%D8%AA%D9%84%D8%A7%D8%A1-%D9%85%D8%B1%D8%A7%D9%81%D9%82-%D8%AA%D8%AE%D8%B2%D9%8A%D9%86-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%81%D9%8A-%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%AE%D8%B1%D8%AC-%D8%A7%D9%84%D8%A2%D8%A8%D8%A7%D8%B1-%D8%B3%D8%AA%D8%BA%D9%84%D9%82/)
+
+
+### tiphaine auzière (N/A, Fri, 24 Apr 2026 09:50:00 -0700)
+
+- **LL.AA.RR les Princesses Lalla Khadija, Lalla Meryem et Lalla Hasnaa, accompagnées de Mme Brigitte Macron, assistent au spectacle d’ouverture du Théâtre Royal de Rabat**: [Link](https://lematin.ma/nation/llaarr-les-princesses-au-spectacle-douverture-du-theatre-royal-de-rabat/341874)
+- **Théâtre royal de Rabat. Un projet emblématique porté par la vision du Roi Mohammed VI pour la "Ville lumière"**: [Link](https://medias24.com/2026/04/23/theatre-royal-de-rabat-la-vision-du-roi-mohammed-vi-pour-la-ville-lumiere-1664661/)
+- **Sourire aux lèvres, la princesse Khadija du Maroc retrouve Brigitte Macron à Rabat**: [Link](https://www.parismatch.com/Royal-Blog/sourire-aux-levres-la-princesse-khadija-du-maroc-retrouve-brigitte-macron-a-rabat-268031)
+
+
 ### ميزانية (N/A, Fri, 24 Apr 2026 10:10:00 -0700)
 
 - **أضافت الجمعية الوطنية أكثر من 13700 مليار دونغ فيتنامي إلى إيرادات ميزانية الدولة المتوقعة لعام 2024.**: [Link](https://www.vietnam.vn/ar/quoc-hoi-bo-sung-hon-13-700-ty-dong-du-toan-thu-ngan-sach-nha-nuoc-nam-2024)
