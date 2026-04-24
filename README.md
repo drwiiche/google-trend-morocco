@@ -1,3 +1,31 @@
+### الاتحاد الدولي لكرة القدم (N/A, Fri, 24 Apr 2026 15:00:00 -0700)
+
+- **"مخزٍ ومهين".. غضب إيطالي من مقترح ترمب المتعلق بمونديال 2026**: [Link](https://www.aljazeera.net/sport/2026/4/23/%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B1%D9%85%D8%A8)
+- **بعد اقتراح مبعوث ترامب.. ما هي المنتخبات التي استبعدها الفيفا من المونديال ولماذا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%AD-%D9%85%D8%A8%D8%B9%D9%88%D8%AB-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8--%D9%85%D8%A7-%D9%87%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%8A-%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF%D9%87%D8%A7-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%88%D9%84%D9%85%D8%A7%D8%B0%D8%A7/blt43693d1ee53da8a0)
+- **روبيو: لا اعتراض على مشاركة إيران في كأس العالم.. بشرط**: [Link](https://www.alarabiya.net/iran/2026/04/24/%D8%B1%D9%88%D8%A8%D9%8A%D9%88-%D9%84%D8%A7-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D8%B6-%D8%B9%D9%84%D9%89-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A8%D8%B4%D8%B1%D8%B7)
+
+
+### météorologie (N/A, Fri, 24 Apr 2026 14:50:00 -0700)
+
+- **Averses orageuses localement fortes vendredi et samedi dans certaines provinces du Royaume**: [Link](https://mobile.telquel.ma/instant-t/2026/04/24/averses-orageuses-localement-fortes-vendredi-et-samedi-dans-certaines-provinces-du-royaume_1986201/)
+- **Les prévisions météo pour le samedi 25 avril - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/04/24/les-previsions-meteo-pour-ce-samedi-25-avril-1666001/)
+- **Météo : fortes pluies et risque de grêle attendus ce week-end**: [Link](https://www.leconomiste.com/flash-infos/meteo-fortes-pluies-et-risque-de-grele-attendus-ce-week-end/)
+
+
+### برق (N/A, Fri, 24 Apr 2026 14:20:00 -0700)
+
+- **أرض البرق الأبدي.. 28 صاعقة في الدقيقة وسماء تشتعل 160 يوماً متواصلاً**: [Link](https://www.albayan.ae/culture-art/miscellaneous/1217378)
+- **البرق الأحمر يضيء سماء السعودية و الفلكية بجدة تكشف الأسباب ومدى استمرار الظاهرة وأماكن مشاهدتها بوضوح**: [Link](https://tawusal.com/118595/%D8%A7%D9%84%D8%A8%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D8%AD%D9%85%D8%B1-%D9%8A%D8%B6%D9%8A%D8%A1-%D8%B3%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88-%D8%A7%D9%84%D9%81%D9%84/)
+- **موسم البرق الأحمر يقترب مع تزايد العواصف الرعدية**: [Link](https://menafn.com/arabic/1111024150/%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D9%85%D8%B1-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D8%B9-%D8%AA%D8%B2%D8%A7%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%A7%D9%84%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9)
+
+
+### kylian mbappé (N/A, Fri, 24 Apr 2026 14:10:00 -0700)
+
+- **Kylian Mbappé gives injury scare to Real Madrid, France**: [Link](https://www.espn.com/soccer/story/_/id/48583230/kylian-mbappe-injury-real-madrid-france-real-betis-world-cup)
+- **⚠️Alarm bells in Madrid: Mbappé asked to come off against Betis**: [Link](https://sports.yahoo.com/articles/alarm-bells-madrid-mbapp-asked-205500462.html)
+- **Real Madrid: Kylian Mbappé asked to be replaced against Real Betis**: [Link](https://frenchfootballweekly.com/2026/04/24/real-madrid-kylian-mbappe-asked-to-be-replaced-against-real-betis/)
+
+
 ### لا ليغا (N/A, Fri, 24 Apr 2026 14:20:00 -0700)
 
 - **الدوري الإسباني، جميع المعلومات حول البث في لمحة: من يعرض / ينقل المباريات مباشرة على التلفزيون وفي البث المباشر؟**: [Link](https://www.goal.com/ar-eg/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D8%A8%D8%AB-%D9%81%D9%8A-%D9%84%D9%85%D8%AD%D8%A9-%D9%85%D9%86-%D9%8A%D8%B9%D8%B1%D8%B6-%D9%8A%D9%86%D9%82%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86-%D9%88%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1/blt148536ff3a0c9ec7)
