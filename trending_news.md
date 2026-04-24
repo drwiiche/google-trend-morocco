@@ -1,3 +1,10 @@
+### classement la liga (N/A, Fri, 24 Apr 2026 14:00:00 -0700)
+
+- **Le Real perd deux points à Séville et s'éloigne du titre en Liga**: [Link](https://www.lequipe.fr/Football/Actualites/Le-real-perd-deux-points-a-seville-et-s-eloigne-du-titre-en-liga/1670690)
+- **Betis-Real Madrid: les Madrilènes lâchent des points à la dernière seconde, boulevard vers le titre pour le Barça**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-betis-seville-real-madrid-suivez-le-match-d-ouverture-de-la-32e-journee-de-liga-en-live_LS-202604240680.html)
+- **Real Madrid : le groupe sans Aurélien Tchouameni face au Betis**: [Link](https://www.footmercato.net/a1833489094246968892-real-madrid-le-groupe-sans-aurelien-tchouameni-face-au-betis)
+
+
 ### الاتحاد الدولي لكرة القدم (N/A, Fri, 24 Apr 2026 15:00:00 -0700)
 
 - **"مخزٍ ومهين".. غضب إيطالي من مقترح ترمب المتعلق بمونديال 2026**: [Link](https://www.aljazeera.net/sport/2026/4/23/%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B1%D9%85%D8%A8)
