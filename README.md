@@ -1,3 +1,24 @@
+### ناصر الخليفي (N/A, Fri, 24 Apr 2026 03:20:00 -0700)
+
+- **بعد تصريحات "السلام مع برشلونة".. بيريز يجتمع بعدوه القديم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9--%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D9%8A%D8%AC%D8%AA%D9%85%D8%B9-%D8%A8%D8%B9%D8%AF%D9%88%D9%87-%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D9%85/blta02c3c0ef0b7e636)
+- **الخليفي يعلن إنهاء أزمة السوبر ليغ وعودة ريال مدريد وبرشلونة إلى كنف الاتحاد الأوروبي**: [Link](https://m.elbotola.com/article/2026-04-23-18-30-539.html)
+- **اجتماع بين بيريز والخليفي مع رئيس اليويفا في مدريد**: [Link](https://hihi2.com/2026/04/24/p3737758.html)
+
+
+### tomate (N/A, Fri, 24 Apr 2026 03:20:00 -0700)
+
+- **Des perspectives de campagne encourageantes pour la tomate française**: [Link](https://www.freshplaza.fr/article/9832117/des-perspectives-de-campagne-encourageantes-pour-la-tomate-francaise/)
+- **Ce légume roi de l’apéro pourrait damer le pion à son rival marocain à 0,99 € : pourquoi les français changent d’avis sur la tomate cerise**: [Link](https://www.pleinevie.fr/conso-argent/ce-legume-roi-de-lapero-pourrait-damer-le-pion-a-son-rival-marocain-a-099-e-pourquoi-les-francais-changent-davis-sur-la-tomate-cerise-202900.html)
+- **Une année en demi-teinte pour Solarenn**: [Link](https://www.paysan-breton.fr/2026/04/une-annee-en-demi-teinte-pour-solarenn/)
+
+
+### séisme (N/A, Fri, 24 Apr 2026 02:30:00 -0700)
+
+- **La terre a tremblé : un séisme de magnitude 5,8 frappe au large des côtes**: [Link](https://www.midilibre.fr/2026/04/24/la-terre-a-tremble-un-seisme-de-magnitude-58-frappe-au-large-des-cotes-13341387.php)
+- **un tremblement de terre de 5,8 magnitudes ressentie près d'ierapetra**: [Link](https://www.actudrancy.fr/monde/12309)
+- **Une secousse de magnitude 5,8 frappe la mer Égée au large de la Crète**: [Link](https://lesinguliersete.fr/une-secousse-de-magnitude-58-frappe-la-mer-egee-au-large-de-la-crete/)
+
+
 ### lion (N/A, Fri, 24 Apr 2026 00:30:00 -0700)
 
 - **Detroitlions.com 2026 mock draft**: [Link](https://www.detroitlions.com/news/detroitlions-com-2026-nfl-mock-draft-freeling-mccoy-fano)
