@@ -1,3 +1,64 @@
+### getafe - barcelona (N/A, Sat, 25 Apr 2026 06:50:00 -0700)
+
+- **El posible once del Barça contra el Getafe**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260425/1004174844/posible-once-barca-getafe.html)
+- **Frenkie de Jong puede volver al once del Barça ante el Getafe más de dos meses después**: [Link](https://www.sport.es/es/noticias/barca/frenkie-jong-volver-once-barca-129474367)
+- **«Seguramente estará listo para el Mundial»: el entrenador del Barcelona, Hansi Flick, da buenas noticias sobre la lesión de Lamine Yamal y prevé que el joven prodigio «vuelva más fuerte que nunca»**: [Link](https://www.goal.com/es-ar/listados/seguramente-estara-listo-para-el-mundial-el-entrenador-del-barcelona-hansi-flick-da-buenas-noticias-sobre-la-lesion-de-lamine-yamal-y-preve-que-el-joven-prodigio-vuelva-mas-fuerte-que-nunca/blt02895c22e515e84f)
+
+
+### west ham – everton (N/A, Sat, 25 Apr 2026 06:40:00 -0700)
+
+- **Everton at West Ham: Starting Lineups, TV and Live Streams, How to Watch Online**: [Link](https://royalbluemersey.sbnation.com/everton-gamethread-live-blog/79593/west-ham-everton-starting-lineups-tv-and-live-streams-how-to-watch-online)
+- **Konstantinos Mavropanos to lick his lips after David Moyes' pre-West Ham vs Everton admission**: [Link](https://www.westhamzone.com/west-ham/west-ham-match/konstantinos-mavropanos-to-lick-his-lips-after-david-moyes-pre-west-ham-vs-everton-admission/)
+- **Matchday Gallery | Toffees test for Irons**: [Link](https://www.whufc.com/en/news/matchday-gallery-or-toffees-test-for-irons)
+
+
+### getafe – barcelone (N/A, Sat, 25 Apr 2026 06:30:00 -0700)
+
+- **Getafe – FC Barcelone : les compositions probables, chaîne TV et heure**: [Link](https://www.befoot.net/getafe-barcelone-compos-probables-chaine-tv-heure/)
+
+
+### خيتافي ضد برشلونة (N/A, Sat, 25 Apr 2026 06:30:00 -0700)
+
+- **5 غيابات تضرب قائمة برشلونة أمام خيتافي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/5-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A/bltfa87527c8403d435)
+- **بوردالاس يطالب فليك بالتركيز على فريقه قبل لقاء خيتافي وبرشلونة**: [Link](https://m.elbotola.com/article/2026-04-24-11-45-891.html)
+- **برشلونة من دون يامال ومثلث الرعب الهجومي.. هل يسقط في فخ خيتافي؟**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D8%AF%D9%88%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D9%85%D8%AB%D9%84%D8%AB-%D8%A7%D9%84%D8%B1%D8%B9%D8%A8-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85%D9%8A-%D9%87%D9%84-%D9%8A%D8%B3%D9%82%D8%B7-%D9%81%D9%8A-%D9%81%D8%AE-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A)
+
+
+### getafe vs barcelona (N/A, Sat, 25 Apr 2026 06:30:00 -0700)
+
+- **Barcelona Faces Getafe with Ligue Title in Sight**: [Link](https://www.moroccoworldnews.com/2026/04/288666/barcelona-faces-getafe-with-ligue-title-in-sight/)
+- **Flick Announces Barcelona Squad for Getafe Clash with João Cancelo's Return**: [Link](https://m.elbotola.com/en/article/2026-04-24-17-00-313.html)
+- **Getafe vs Barcelona predictions: Getafe target European spot**: [Link](https://www.goal.com/en-ca/betting/tips/getafe-vs-barcelona-predictions-04-25/A%3Ablt5621514facff12b4)
+
+
+### wolves – tottenham (N/A, Sat, 25 Apr 2026 06:30:00 -0700)
+
+- **Premier League & FA Cup predictions and best bets: Tottenham's woes to grow at Wolves**: [Link](https://www.skysports.com/football/news/11661/13535651/premier-league-and-fa-cup-predictions-and-best-bets-tottenhams-woes-to-grow-at-wolves)
+- **Tottenham team confirmed vs Wolves - Randal Kolo Muani decision made and Djed Spence starts**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-team-confirmed-vs-wolves-33837164)
+- **De Zerbi: "Let's play with courage, with personality!"**: [Link](https://www.tottenhamhotspur.com/news/1061509/de-zerbi-lets-play-with-courage-with-personality)
+
+
+### ليفربول ضد كريستال بالاس (N/A, Sat, 25 Apr 2026 06:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ليفربول وكريستال بالاس في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltef86abe4d93fb508)
+- **ينتظر رقمًا قياسيًا.. ماذا يفعل محمد صلاح أمام كريستال بالاس في الدوري؟**: [Link](https://www.yallakora.com/epl/2968/news/548548/%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%B1%D9%82%D9%85-%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A7-%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%81%D8%B9%D9%84-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-)
+- **ميرسون يطلق تحذيرًا بشأن إيزاك في ليفربول**: [Link](https://hihi2.com/2026/04/25/p3739670.html)
+
+
+### كأس الجزائر (N/A, Sat, 25 Apr 2026 06:30:00 -0700)
+
+- **"عار رياضي".. نصف نهائي كأس الجزائر يتحول إلى فضيحة مدوية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%B1-%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A--%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D8%A7%D9%95%D9%84%D9%89-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%85%D8%AF%D9%88%D9%8A%D8%A9/bltc6042f10d78eb6e4)
+- **مباشر مباراة اتحاد العاصمة اليوم ضد شباب باتنة في نصف نهائي كأس الجزائر**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B6%D8%AF-%D8%B4%D8%A8/)
+- **إتحاد العاصمة يتأهل الى نهائي كأس الجمهورية**: [Link](https://www.dzair-tube.dz/%D8%A5%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D9%89-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AC%D9%85/)
+
+
+### mali (N/A, Sat, 25 Apr 2026 06:20:00 -0700)
+
+- **Explosions and gunfire as armed groups launch coordinated attacks across Mali**: [Link](https://www.bbc.com/news/articles/clyx7nnrkqdo)
+- **'Yan ta'adda sun kai hari birnin Bamako**: [Link](https://www.dw.com/ha/yan-taadda-sun-kai-hari-birnin-bamako/a-76934546)
+- **FLA claims attacks on Malian capital**: [Link](https://www.france24.com/en/fla-claims-attacks-on-malian-capital)
+
+
 ### liverpool – crystal palace (N/A, Sat, 25 Apr 2026 06:10:00 -0700)
 
 - **Liverpool - Crystal Palace**: [Link](https://www.flashscore.com/match/football/crystal-palace-AovF1Mia/liverpool-lId4TMwf/summary/lineups/?mid=YaXS5GvH)
