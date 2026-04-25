@@ -1,3 +1,15 @@
+### benfica – moreirense (N/A, Sat, 25 Apr 2026 10:10:00 -0700)
+
+- **Assistir a Benfica x Moreirense**: [Link](https://www.disneyplus.com/pt-br/browse/entity-4326344b-5df7-4d50-b8d1-feb632c03b03)
+- **VÍDEO: erro incrível de Dahl e emprestado pelo Sporting silencia a Luz**: [Link](https://www.abola.pt/noticias/video-erro-incrivel-de-dahl-e-emprestado-pelo-sporting-silencia-a-luz-2026042517394951459)
+- **João Carvalho é o novo presidente da Federação Portuguesa de Basquetebol**: [Link](https://sapo.pt/artigo/joao-carvalho-e-o-novo-presidente-da-federacao-portuguesa-de-basquetebol-69ece2596d6a0b60cf4ee27d)
+
+
+### kacm (N/A, Sat, 25 Apr 2026 10:10:00 -0700)
+
+- **Wydad Face Kawkab in Crucial Match as League Resumes with Four Fixtures Today; Relegation Battle Heats Up**: [Link](https://m.elbotola.com/en/article/2026-04-25-11-20-619.html)
+
+
 ### angers vs psg (N/A, Sat, 25 Apr 2026 09:40:00 -0700)
 
 - **Clash between PSG supporters and trip to Angers canceled**: [Link](https://frenchfootballweekly.com/2026/04/25/clash-between-psg-supporters-and-trip-to-angers-canceled/)
