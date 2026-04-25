@@ -1,3 +1,38 @@
+### arsenal – newcastle (N/A, Sat, 25 Apr 2026 08:40:00 -0700)
+
+- **Arsenal vs Newcastle United: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c04x6p97vwzt)
+- **Arteta delivers Saka, Calafiori and Timber update | Press conference | News**: [Link](https://www.arsenal.com/news/arteta-delivers-saka-calafiori-and-timber-update)
+- **'We expect him to produce' - Mikel Arteta urges Bukayo Saka to deliver for Arsenal in title run-in as he makes injury return**: [Link](https://www.goal.com/en/lists/mikel-arteta-bukayo-saka-arsenal-injury-return-premier-league-title-race/blt72b78d20eeb8be4b)
+
+
+### مان سيتي ضد ساوثهامبتون (N/A, Sat, 25 Apr 2026 08:40:00 -0700)
+
+- **مانشستر سيتي يخشى مفاجآت ساوثهامبتون في نصف نهائي كأس إنكلترا**: [Link](https://www.alquds.co.uk/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AE%D8%B4%D9%89-%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D8%B3%D8%A7%D9%88%D8%AB%D9%87%D8%A7%D9%85%D8%A8%D8%AA%D9%88%D9%86/)
+- **دوكو: أستطيع أن أصبح أفضل جناح في العالم.. ولكن بشرط**: [Link](https://hihi2.com/2026/04/23/p3737643.html)
+- **طلب غريب من مشجع ارسنال لبيب غوارديولا**: [Link](https://elsport.com/news/show/820916/%D8%B7%D9%84%D8%A8-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%85%D8%B4%D8%AC%D8%B9-%D8%A7%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D8%A8%D9%8A%D8%A8-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7)
+
+
+### manchester city – southampton (N/A, Sat, 25 Apr 2026 08:30:00 -0700)
+
+- **Manchester City vs Southampton LIVE: FA Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cz67zwxld84t)
+- **'So, so tired!' - Pep Guardiola explains how win over Arsenal has taken its toll on Man City's players as he reveals Wembley pitch concerns**: [Link](https://www.goal.com/en/lists/pep-guardiola-man-city-fatigue-arsenal-wembley-pitch/blt7f4548a18a28f51a)
+- **bet365 promo code: Claim £30 in free bets for Man City vs Southampton with SUN365**: [Link](https://www.thesun.co.uk/betting/38904832/bet365-bonus-code-man-city-vs-southampton/)
+
+
+### hassania agadir – ittihad tanger (N/A, Sat, 25 Apr 2026 08:00:00 -0700)
+
+- **Pronostic HUSA Agadir Ittihad Tanger GRATUIT - Botola Pro 25/04/2026**: [Link](https://www.ruedesjoueurs.com/pronostic/husa-agadir-ittihad-tanger-5358042.html)
+- **Où voir Hassania d Agadir vs Ittihad Tanger, sur quelle chaîne de streaming ?**: [Link](https://www.footix.fr/ou-voir-hassania-d-agadir-vs-ittihad-tanger-sur-quelle-chaine-de-streaming/)
+- **Compositions probables : Hassania d Agadir VS Ittihad Tanger | 25/04/2026**: [Link](https://www.footix.fr/compositions-probables-hassania-d-agadir-vs-ittihad-tanger-25-04-2026/)
+
+
+### ounahi azzedine (N/A, Sat, 25 Apr 2026 07:10:00 -0700)
+
+- **Girona pousse pour Ounahi à City**: [Link](https://www.footmercato.net/a6713326533230325341-girona-pousse-pour-ounahi-a-city)
+- **Manchester City : Une offre en préparation pour Azzedine Ounahi**: [Link](https://fr.hespress.com/470882-manchester-city-une-offre-en-preparation-pour-azzedine-ounahi.html)
+- **Lions de l'Atlas : Ounahi dans le viseur de Manchester City**: [Link](https://lematin.ma/sports/lions-de-latlas-ounahi-dans-le-viseur-de-manchester-city/342023)
+
+
 ### درهم مغربي (N/A, Sat, 25 Apr 2026 07:30:00 -0700)
 
 - **بنك المغرب يكشف تقلب سعر الدرهم**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%83-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%82%D9%84%D8%A8-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-2-1736578.html)
