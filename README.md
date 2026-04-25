@@ -1,3 +1,17 @@
+### nicolás maduro (N/A, Fri, 24 Apr 2026 23:20:00 -0700)
+
+- **US special forces soldier arrested after allegedly winning $400,000 on Maduro raid**: [Link](https://www.cnn.com/2026/04/23/politics/us-special-forces-soldier-arrested-maduro-raid-trade)
+- **Gambling Companies Celebrate Indictments as Pressure Grows**: [Link](https://www.nytimes.com/2026/04/24/nyregion/gambling-companies-indictments-regulation.html)
+- **Special Forces Sgt. in Polymarket Maduro raid bet case released; Kalshi says it blocked him**: [Link](https://www.cnbc.com/2026/04/24/special-forces-van-dyke-polymarket-bets-maduro-raid-kalshi.html)
+
+
+### rockets – lakers (N/A, Fri, 24 Apr 2026 22:20:00 -0700)
+
+- **41-Year-Old LeBron James Turns Back the Clock in Shocking Comeback**: [Link](https://www.aol.com/articles/41-old-lebron-james-turns-034552162.html)
+- **Lakers' OT win puts Rockets on brink of NBA playoff elimination**: [Link](https://sports.yahoo.com/articles/lakers-down-rockets-overtime-3-040345421.html)
+- **James and the Lakers look to clinch series against Houston**: [Link](https://abcnews.com/Sports/wireStory/james-lakers-clinch-series-houston-132371933)
+
+
 ### الدوري الاسباني (N/A, Fri, 24 Apr 2026 14:10:00 -0700)
 
 - **5 غيابات تضرب قائمة برشلونة أمام خيتافي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/5-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A/bltfa87527c8403d435)
