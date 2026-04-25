@@ -1,3 +1,23 @@
+### bilal el khannouss (N/A, Sat, 25 Apr 2026 14:20:00 -0700)
+
+- **"Quite funny": VfB star leaves his dinner on the pitch**: [Link](https://sports.yahoo.com/articles/quite-funny-vfb-star-leaves-072500177.html)
+- **Former Prem star drops to his knees before VOMITING as team-mate left disgusted**: [Link](https://www.thesun.co.uk/sport/38919761/bilal-el-khannouss-leicester-stuttgart-vomit-freiburg/)
+
+
+### mawazine 2026 (N/A, Sat, 25 Apr 2026 14:10:00 -0700)
+
+- **Mawazine 2026 : comment exister face à la ferveur du Mondial ?**: [Link](https://fr.hespress.com/471042-mawazine-2026-comment-exister-face-a-la-ferveur-du-mondial.html)
+- **Mawazine 2026: le rappeur Ninho ouvre le bal à l’OLM Souissi**: [Link](https://fr.le360.ma/culture/mawazine-2026-le-rappeur-ninho-ouvre-le-bal-a-lolm-souissi_QLQEUUNPHBDSZBTNNCPUDV46YM/)
+- **Maroc : Festival Mawazine 2026, du 19 au 27 juin**: [Link](https://fr.apanews.net/society/maroc-festival-mawazine-2026-du-19-au-27-juin/)
+
+
+### michael jackson (N/A, Sat, 25 Apr 2026 14:00:00 -0700)
+
+- **Box Office Stunner: ‘Michael’ Rocketing to Other-Worldly $95M-$100M U.S. Debut, $200M Globally**: [Link](https://www.hollywoodreporter.com/movies/movie-news/michael-jackson-biopic-box-office-1236573688/)
+- **Biopics Double Standard? Jaafar Jackson, 'Michael' and Oscar Prospects**: [Link](https://variety.com/2026/film/awards/michael-jaafar-jackson-oscars-biopic-double-standard-1236730193/)
+- **A Strange Movie About the Strangest Story in Music**: [Link](https://www.theatlantic.com/culture/2026/04/michael-movie-review/686913/)
+
+
 ### الدوري المغربي (N/A, Sat, 25 Apr 2026 12:40:00 -0700)
 
 - **ما القنوات الناقلة لمباراة الرجاء والفتح في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt920a217e4aae6605)
