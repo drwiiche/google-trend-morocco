@@ -1,3 +1,24 @@
+### fulham – aston villa (N/A, Sat, 25 Apr 2026 03:50:00 -0700)
+
+- **Fulham v Aston Villa: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/apr/25/fulham-v-aston-villa-premier-league-live)
+- **Follow the weekend's TOP matches in our LIVE football tracker!**: [Link](https://www.flashscore.com/news/premier-league-fa-cup-laliga-serie-a-bundesliga-live-scores-updates-april-25-26/QV7i2Xsf/)
+- **Wilson admits Villa clash vital for Fulham's Euro hopes**: [Link](https://www.tribalfootball.com/article/soccer-premier-league-wilson-admits-villa-clash-vital-for-fulham-s-euro-hopes-a74225e9-5710-44eb-8b61-a8ed3d09006a)
+
+
+### transport aérien (N/A, Sat, 25 Apr 2026 03:20:00 -0700)
+
+- **Hausse du carburant aérien : la RAM envisagerait de fermer certaines lignes**: [Link](https://fr.hespress.com/471017-hausse-du-carburant-aerien-la-ram-envisagerait-de-fermer-certaines-lignes.html)
+- **Crise du kérosène : pourquoi vous allez payer (très) cher pour voyager ?**: [Link](https://www.lebrief.ma/avion-kerosene-chaos-pourquoi-voyager-en-2026-donne-le-tournis-100149706/)
+- **L'Union européenne rassure sur ses stocks de kérosène**: [Link](https://www.medi1news.com/fr/article/392445.html)
+
+
+### طيران (N/A, Sat, 25 Apr 2026 02:30:00 -0700)
+
+- **المغرب يدرس إغلاق خطوط جوية بسبب الارتفاع الحاد في أسعار وقود الطائرات**: [Link](https://cnnbusinessarabic.com/sectors/1139599/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%AE%D8%B7%D9%88%D8%B7-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D9%88%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA)
+- **"لارام" تُبقي الرحلات إلى الشرق الأوسط مُعلَّقة لضعف الطلب عليها رغم الهدنة**: [Link](https://madar21.com/422154.html)
+- **ارتفاع أسعار الوقود يربك الطيران في المغرب.. توجه لإغلاق خطوط جوية وخسائر تهدد السياحة**: [Link](https://aboutmsr.com/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-%D9%8A%D8%B1%D8%A8%D9%83-%D8%A7%D9%84%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84/)
+
+
 ### فاطمة الزهراء المنصوري (N/A, Fri, 24 Apr 2026 23:10:00 -0700)
 
 
