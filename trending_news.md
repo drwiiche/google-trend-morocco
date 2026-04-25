@@ -1,3 +1,45 @@
+### angers – paris-sg (N/A, Sat, 25 Apr 2026 09:20:00 -0700)
+
+- **Des Ultras du PSG, en route pour Angers, font demi-tour à la suite d'une bagarre entre supporters**: [Link](https://www.lequipe.fr/Football/Actualites/Des-ultras-du-psg-en-route-pour-angers-font-demi-tour-a-la-suite-d-une-bagarre-entre-supporters/1670827)
+- **Angers-PSG: le déplacement des ultras parisiens à Angers annulé à cause d'un affrontement sur le trajet**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/angers-psg-le-deplacement-des-ultras-parisiens-a-angers-annule-a-cause-d-un-affrontement-sur-le-trajet_AN-202604250235.html)
+- **Streaming Angers/PSG : Où et comment voir le match?**: [Link](https://www.parisfans.fr/autour-du-psg/streaming-angers-psg-ou-et-comment-voir-le-match-2-864467.html)
+
+
+### bayern munich – fc barcelone (N/A, Sat, 25 Apr 2026 09:20:00 -0700)
+
+- **Malgré une lourde défaite en championnat, Linda Dahlmann (FC Bayern Munich) aborde avec confiance le duel face au Barça en Ligue des champions**: [Link](https://www.goal.com/fr/listes/malgre-une-lourde-defaite-en-championnat-linda-dahlmann-fc-bayern-munich-aborde-avec-confiance-le-duel-face-au-barca-en-ligue-des-champions/blt993c293bbb3ae0da)
+- **"Il faut y croire" : Bühl espère un effet d’apprentissage avant le choc face à Barcelone**: [Link](https://www.flashscore.fr/actualites/football-ligue-des-champions-femmes-il-faut-y-croire-buhl-espere-un-effet-d-apprentissage-avant-le-choc-face-a-barcelone/CtTzlEEM/)
+- **[Podcasts] Les Jeux Jeux du Sport : Les clubs qualifiés en demi-finale de la Ligue des champions féminine - 25/04**: [Link](https://rmcsport.bfmtv.com/replay-emissions/les-grandes-gueules-du-sport/les-jeux-jeux-du-sport-les-clubs-qualifies-en-demi-finale-de-la-ligue-des-champions-feminine-25-04_EN-202604250167.html)
+
+
+### mask singer (N/A, Sat, 25 Apr 2026 09:10:00 -0700)
+
+- **Exclu. Le Clown (Mask Singer), premier personnage non masqué : "Le maquillage prenait environ 4h" - Télé-Loisirs**: [Link](https://www.programme-tv.net/news/tv/401223-exclu-le-clown-mask-singer-premier-personnage-non-masque-le-maquillage-prenait-environ-4h/)
+- **Mask Singer : les costumes des candidats ont été dévoilés ! Qui participera à la saison 9 ?**: [Link](https://serieously.ouest-france.fr/mask-singer-les-costumes-des-candidats-ont-ete-devoiles-qui-participera-a-la-saison-9/)
+- **Audience TV du Vendredi 24 avril 2026**: [Link](https://tv-programme.com/audiences-tv/vendredi-24-avril-2026)
+
+
+### آرسنال ضد نيوكاسل يونايتد (N/A, Sat, 25 Apr 2026 09:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة آرسنال ونيوكاسل يونايتد في الدوري الإنجليزي 2025-2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd68b2fb4cd9778ad)
+- **بطولة إنكلترا: أرتيتا لا يزال يتمسك بأمل إحراز اللقب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260424-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%84%D8%A7-%D9%8A%D8%B2%D8%A7%D9%84-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A3%D9%85%D9%84-%D8%A5%D8%AD%D8%B1%D8%A7%D8%B2-%D8%A7%D9%84%D9%84%D9%82%D8%A8)
+- **أرتيتا يؤكد جاهزية ساكا للمشاركة مع أرسنال أمام نيوكاسل**: [Link](https://m.elbotola.com/article/2026-04-24-14-00-79.html)
+
+
+### valence – girona (N/A, Sat, 25 Apr 2026 08:50:00 -0700)
+
+- **DIRECT. Valence CF-Gérone (La Liga 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/valence-cf-girona-live/677031)
+- **Pronostic Valence vs Gérone - La Liga : Un défi à Mestalla**: [Link](https://baonghean.vn/fr/nhan-dinh-valencia-vs-girona-la-liga-thu-thach-tai-mestalla-10334316.html)
+- **Où voir Valencia vs Girona, sur quelle chaîne de streaming ?**: [Link](https://www.footix.fr/ou-voir-valencia-vs-girona-sur-quelle-chaine-de-streaming/)
+
+
+### al-ahli saudi – machida zelvia (N/A, Sat, 25 Apr 2026 08:50:00 -0700)
+
+- **Galeno goals, fab fans, Toney, magic Mahrez: How Al Ahli can keep ACL Elite crown**: [Link](https://onefootball.com/en/news/galeno-goals-fab-fans-toney-magic-mahrez-how-al-ahli-can-keep-acl-elite-crown-42764829)
+- **Al‑Ahli 0-0 Machida Zelvia LIVE Score, AFC Champions League: Defending Champs Kick Off Against Debutants**: [Link](https://www.outlookindia.com/sports/football/al-ahli-vs-machida-zelvia-live-score-afc-champions-league-elite-2025-26-final-updates-highlights)
+- **Merih Demiral aims for second consecutive Asian Champions League title**: [Link](https://www.fanatik.com.tr/en/merih-demiral-aims-for-second-consecutive-asian-champions-league-title-2621201)
+
+
 ### arsenal – newcastle (N/A, Sat, 25 Apr 2026 08:40:00 -0700)
 
 - **Arsenal vs Newcastle United: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c04x6p97vwzt)
