@@ -1,3 +1,24 @@
+### angers vs psg (N/A, Sat, 25 Apr 2026 09:40:00 -0700)
+
+- **Clash between PSG supporters and trip to Angers canceled**: [Link](https://frenchfootballweekly.com/2026/04/25/clash-between-psg-supporters-and-trip-to-angers-canceled/)
+- **Angers SCO: Hervé Koffi could miss clash against Paris Saint-Germain**: [Link](https://foot-africa.com/en/news/angers-sco-herve-koffi-could-miss-clash-against-paris-saint-germain-1179821/)
+- **PSG Predicted XI vs. Angers: Luis Enrique to Rotate Heavily on Saturday**: [Link](https://roundtable.io/sports/soccer/ligue-1/paris-st-germain/psg-predicted-xi-vs-angers-luis-enrique-to-rotate-heavily-on-saturday)
+
+
+### فرنسا (N/A, Sat, 25 Apr 2026 09:40:00 -0700)
+
+- **من ديغول إلى ماكرون.. لماذا ترفض فرنسا الخضوع لأمريكا؟**: [Link](https://www.aljazeera.net/politics/2026/4/24/%D8%A7%D9%84%D8%AF%D9%8A%D9%83-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC-%D8%B9%D9%86-%D8%A7%D9%84%D8%B3%D8%B1%D8%A8-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%87%D8%A7%D8%AC%D9%85)
+- **فرنسا تصدم الطلبة المغاربة بزيادات "صاروخية" في رسوم التسجيل الجامعي**: [Link](https://nichan.ma/345736/)
+- **فرنسا تتجه لفرض دفع رسوم كاملة على الطلبة الأجانب**: [Link](https://ar.hibapress.com/details-720164.html)
+
+
+### أنجيه ضد بي اس جي (N/A, Sat, 25 Apr 2026 09:30:00 -0700)
+
+- **إنريكي: كأس العالم لا يهمني.. وكرة القدم غريبة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D8%A7-%D9%8A%D9%87%D9%85%D9%86%D9%8A--%D9%88%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9/blt54c7943e97a43ed9)
+- **لويس إنريكي: لاعبو باريس سان جيرمان يستمتعون بضغط المباريات**: [Link](https://www.hesport.com/%D9%84%D9%88%D9%8A%D8%B3-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA-436278.html)
+- **نونو مينديز يعود لقائمة باريس سان جيرمان لمواجهة أنجيه وغياب فيتينيا**: [Link](https://m.elbotola.com/article/2026-04-25-10-30-981.html)
+
+
 ### angers – paris-sg (N/A, Sat, 25 Apr 2026 09:20:00 -0700)
 
 - **Des Ultras du PSG, en route pour Angers, font demi-tour à la suite d'une bagarre entre supporters**: [Link](https://www.lequipe.fr/Football/Actualites/Des-ultras-du-psg-en-route-pour-angers-font-demi-tour-a-la-suite-d-une-bagarre-entre-supporters/1670827)
