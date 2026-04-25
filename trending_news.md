@@ -1,3 +1,73 @@
+### achraf hakimi (N/A, Sat, 25 Apr 2026 12:20:00 -0700)
+
+- **Hakimi Reaches 39 Assists with PSG, Becomes Club's All-Time Top-Assisting Defender**: [Link](https://m.elbotola.com/en/article/2026-04-23-14-05-632.html)
+- **Red de prostitución VIP salpica a más de 60 jugadores del fútbol italiano**: [Link](https://www.ntn24.com/noticias-deportes/red-de-prostitucion-vip-salpica-a-mas-de-60-jugadores-del-futbol-italiano-618750)
+- **La mafia de la prostitución: así operaba la organización que explotaba a 100 mujeres en Italia**: [Link](https://www.infobae.com/video/infobae-en-vivo-al-regreso/la-mafia-de-la-prostitucion-asi-operaba-la-organizacion-que-explotaba-a-100-mujeres-en-italia/uH4EYVAF/)
+
+
+### أوساسونا (N/A, Sat, 25 Apr 2026 12:20:00 -0700)
+
+- **رسميًا.. نجم برشلونة يغيب أمام أوساسونا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7/bltbec8ac71b541da9d)
+- **نجم برشلونة يفلت من عقوبة قاسية قبل كلاسيكو ريال مدريد**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D9%84%D8%AA-%D9%85%D9%86-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D9%82%D8%A7%D8%B3%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **برشلونة يتلقى ضربة قبل مواجهة أوساسونا: بطاقة صفراء مكلفة أمام خيتافي تبعد المدافع**: [Link](https://foot-africa.com/ar/news/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%B5%D9%81%D8%B1%D8%A7%D8%A1-%D9%85%D9%83%D9%84%D9%81%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D8%AA%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%81%D8%B9-1180922/)
+
+
+### botola (N/A, Sat, 25 Apr 2026 12:10:00 -0700)
+
+- **Raja Casablanca Return to Action Against FUS**: [Link](https://www.moroccoworldnews.com/2026/04/288657/raja-casablanca-return-to-action-against-fus/)
+- **Temsamani to Referee Raja vs. Fath Match, Bassalam Oversees VAR**: [Link](https://m.elbotola.com/en/article/2026-04-23-11-02-576.html)
+- **Botola Pro Inwi: date, time, channels and history of the Raja – FUS Rabat clásico**: [Link](https://foot-africa.com/en/news/botola-pro-inwi-date-time-channels-and-history-of-the-raja-fus-rabat-clasico-1180358/)
+
+
+### othmane maamma (N/A, Sat, 25 Apr 2026 12:10:00 -0700)
+
+- **Watford : le Marocain Othmane Maamma va enflammer le mercato estival**: [Link](https://www.footmercato.net/a8398723222573200517-watford-le-marocain-othmane-maamma-va-enflammer-le-mercato-estival)
+- **Othmane Maamma en mission : convaincre Mohamed Ouahbi et affoler le mercato**: [Link](https://lionsdelatlas.ma/othmane-maamma-en-mission-convaincre-mohamed-ouahbi-et-affoler-le-mercato/)
+- **Mercato: Watford fixe le prix de Othmane Maamma**: [Link](https://sport.le360.ma/football/mercato/mercato-watford-fixe-le-prix-de-othmane-maamma_FBGI6SSADZALRIWUXN3BNOAOQU/)
+
+
+### wydad (N/A, Sat, 25 Apr 2026 12:00:00 -0700)
+
+- **Bonne nouvelle pour Hakim Ziyech**: [Link](https://www.footmercato.net/a2885923648691769408-bonne-nouvelle-pour-hakim-ziyech)
+- **Primes financières pour le choc Wydad-Kawkab Marrakech**: [Link](https://m.elbotola.com/fr/article/2026-04-24-10-54-241.html)
+- **Wydad : Ziyech reprend l’entraînement collectif après sa blessure**: [Link](https://foot-africa.com/actualites/wydad-ziyech-reprend-lentrainement-collectif-apres-sa-blessure-1174943/)
+
+
+### الكوكب ضد الوداد الرياضي (N/A, Sat, 25 Apr 2026 11:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الكوكب المراكشي والوداد في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt9f5f50bbad9a3a1f)
+- **قمة الوداد والكوكب تشعل مباريات السبت في البطولة الاحترافية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%AA%D8%B4%D8%B9%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9/19225)
+- **كارتيرون أمام ضغط تغيير قناعته**: [Link](https://ar.lesiteinfo.com/sport/%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%B6%D8%BA%D8%B7-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%82%D9%86%D8%A7%D8%B9%D8%AA%D9%87-997740.html)
+
+
+### أتلتيكو مدريد ضد أتلتيك بيلباو (N/A, Sat, 25 Apr 2026 11:40:00 -0700)
+
+- **"المـاتش ببـلاش" القنوات الناقلة لمباراة أتلتيكو مدريد ضد أتلتيك بيلباو Atletico Madrid vs Athletic Bilbao في الدوري الاسباني 2026**: [Link](https://zahraa.mr/6274718/%D8%A7%D9%84%D9%85%D9%80%D8%A7%D8%AA%D8%B4-%D8%A8%D8%A8%D9%80%D9%84%D8%A7%D8%B4-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1/)
+- **YallaShoot.. يلا شوت مشاهدة بث مباشر مباراة أتلتيكو مدريد ضد أتلتيك بيلباو الان Atletico Madrid vs Athletic Bilbao**: [Link](https://tawusal.com/121751/%D9%8A%D9%84%D8%A7-%D8%B4%D9%88%D8%AA-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/)
+- **القنوات الناقلة لمباراة أتلتيكو مدريد ضد أتلتيك بلباو اليوم في الدوري الإسباني مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/481799394534088-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### toulouse – monaco (N/A, Sat, 25 Apr 2026 11:40:00 -0700)
+
+- **DIRECT. Toulouse-Monaco (Ligue 1 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/toulouse-monaco-live/676070)
+- **Info Nice-Matin. Denis Zakaria va retrouver le milieu de terrain de l’AS Monaco, ce samedi soir à Toulouse**: [Link](https://www.nicematin.com/sports/football/info-nice-matin-denis-zakaria-va-retrouver-le-milieu-de-terrain-de-l-as-monaco-ce-samedi-soir-a-toulouse-10678187)
+- **"Pour le TFC, le ventre mou sans être effrayé par une relégation, c'est satisfaisant"**: [Link](https://www.lesviolets.com/actu/pour-le-tfc-le-ventre-mou-sans-etre-effraye-par-une-relegation-cest-satisfaisant,82386.html)
+
+
+### atlético madrid – ath. bilbao (N/A, Sat, 25 Apr 2026 11:30:00 -0700)
+
+- **Simeone: "Lookman todavía no está, menos mal que lo sacamos en la final"**: [Link](https://www.marca.com/futbol/atletico/2026/04/24/simeone-lookman-todavia-mal-sacamos-final.html)
+- **Alineaciones confirmadas de Atlético de Madrid y Athletic Club en la jornada 32 de Liga en el Metropolitano**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260425/onces-atletico-athletic-metropolitano-jornada-32-confirmados_18_018977298.html)
+- **Sorloth entra en la convocatoria; Hancko, Giménez, Lookman y Almada, bajas**: [Link](https://es-us.noticias.yahoo.com/deportes/sorloth-entra-convocatoria-hancko-gim%C3%A9nez-124542791.html)
+
+
+### الأهلي ضد ماتشيدا زيلفيا (N/A, Sat, 25 Apr 2026 11:20:00 -0700)
+
+- **فيديو: قاهر المستحيل.. الأهلي ينتزع ثاني ألقاب النخبة من أنياب ماتشيدا بـ10 لاعبين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%82%D8%A7%D9%87%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AD%D9%8A%D9%84--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D9%86%D8%AA%D8%B2%D8%B9-%D8%AB%D8%A7%D9%86%D9%8A-%D8%A7%D9%94%D9%84%D9%82%D8%A7%D8%A8-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-%D9%85%D9%86-%D8%A7%D9%94%D9%86%D9%8A%D8%A7%D8%A8-%D9%85%D8%A7%D8%AA%D8%B4%D9%8A%D8%AF%D8%A7-%D8%A8%D9%8010-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86/blt972dfec50161a4b8)
+- **نتيجة وملخص تتويج الأهلي بلقب دوري أبطال آسيا للنخبة على حساب ماتشيدا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/25/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D9%85%D8%A7%D8%AA%D8%B4%D9%8A%D8%AF%D8%A7)
+- **أهلي جدة يهزم ماتشيدا الياباني ويتوج بدوري أبطال آسيا للنخبة للمرة الثانية تواليا**: [Link](https://www.hesport.com/%D8%A3%D9%87%D9%84%D9%8A-%D8%AC%D8%AF%D8%A9-%D8%A8%D8%B9%D8%B4%D8%B1%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D9%85%D8%A7%D8%AA%D8%B4%D9%8A%D8%AF%D8%A7-%D8%A7%D9%84%D9%8A-436375.html)
+
+
 ### wac vs kacm (N/A, Sat, 25 Apr 2026 11:00:00 -0700)
 
 - **3,000 Tickets Allocated to Wydad Supporters for Marrakech Match**: [Link](https://www.moroccoworldnews.com/2026/04/288215/3000-tickets-allocated-to-wydad-supporters-for-marrakech-match/)
