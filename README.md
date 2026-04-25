@@ -1,3 +1,31 @@
+### wac vs kacm (N/A, Sat, 25 Apr 2026 11:00:00 -0700)
+
+- **3,000 Tickets Allocated to Wydad Supporters for Marrakech Match**: [Link](https://www.moroccoworldnews.com/2026/04/288215/3000-tickets-allocated-to-wydad-supporters-for-marrakech-match/)
+- **Wydad Squad for Kawkab Clash: Ziyech Returns, Coulibaly and Ferreira Called Up**: [Link](http://m.elbotola.com/en/article/2026-04-25-13-23-920.html)
+- **Wydad: Ziyech returns to team training after his injury**: [Link](https://foot-africa.com/en/news/wydad-ziyech-returns-to-team-training-after-his-injury-1174943/)
+
+
+### جود بيلينغهام (N/A, Sat, 25 Apr 2026 10:50:00 -0700)
+
+- **كاسياس يصب الزيت على النار برسالة لأربيلوا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D8%B3%D9%8A%D8%A7%D8%B3-%D9%8A%D8%B5%D8%A8-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7/blt51848a4c2792498a)
+- **إبراهيم دياز يضع مخرج المباراة تحت مقصلة الانتقادات!**: [Link](https://www.radiomars.ma/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%AA%D8%B6%D8%B9-%D9%85%D8%AE%D8%B1%D8%AC-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%AD%D8%AA-%D9%85%D9%82%D8%B5/)
+- **أربيلوا ينتقد التحكيم بعد التعادل أمام بيتيس: "من يتخذون القرارات لا يفهمون شيئا"**: [Link](https://m.elbotola.com/article/2026-04-25-09-36-194.html)
+
+
+### valencia vs girona (N/A, Sat, 25 Apr 2026 10:40:00 -0700)
+
+- **Valencia Vs Girona: 6-point La Liga battle with survival tension at Mestalla**: [Link](https://www.el-balad.com/16923652)
+- **"You have to fight every duel and every play."**: [Link](https://onefootball.com/fr/news/you-have-to-fight-every-duel-and-every-play-42760565)
+- **Girona head coach Michel: ‘Staying in La Liga is very difficult, even while fighting for it’**: [Link](https://tribuna.com/en/news/2026-04-24-girona-head-coach-michel-staying-in-la-liga-is-very-difficult-and-even-while-fighting-for/)
+
+
+### manchester city (N/A, Sat, 25 Apr 2026 10:00:00 -0700)
+
+- **Licensable picture: UEFA Women's Champions League - Semi Final - First Leg - Bayern Munich v FC Barcelona**: [Link](https://www.reutersconnect.com/item/uefa-womens-champions-league-semi-final-first-leg-bayern-munich-v-fc-barcelona/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNNFAxQVE1QjQ)
+- **Crystal Palace 0-0 West Ham: Oliver Glasner post-match reaction**: [Link](https://www.bbc.com/sport/football/videos/c1l9132d6r0o)
+- **Licensable picture: SHENZHEN - Daily / VIVO**: [Link](https://www.reutersconnect.com/item/shenzhen-daily-vivo/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBVMURSMzk)
+
+
 ### benfica – moreirense (N/A, Sat, 25 Apr 2026 10:10:00 -0700)
 
 - **Assistir a Benfica x Moreirense**: [Link](https://www.disneyplus.com/pt-br/browse/entity-4326344b-5df7-4d50-b8d1-feb632c03b03)
