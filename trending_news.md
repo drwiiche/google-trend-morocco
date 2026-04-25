@@ -1,3 +1,17 @@
+### أفريقيا (N/A, Sat, 25 Apr 2026 04:00:00 -0700)
+
+- **"فتح الكرة الطائرة" ينهزم في رواندا**: [Link](https://www.hespress.com/%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D9%81%D9%8A-%D8%B1%D9%88%D8%A7%D9%86%D8%AF%D8%A7-1736572.html)
+- **بطولة إفريقيا للأندية للكرة الطائرة.. الفتح يدشن مشاركته بالفوز على هيئة الموانئ الكيني**: [Link](https://www.radiomars.ma/%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7/)
+- **طائرة الفتح الرياضي تتألق في رواندا**: [Link](https://www.hesport.com/%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D8%AA%D8%AA%D8%A3%D9%84%D9%82-%D9%81%D9%8A-%D8%B1%D9%88%D8%A7%D9%86%D8%AF%D8%A7-436141.html)
+
+
+### coupe d'afrique des nations de football des moins de 17 ans (N/A, Sat, 25 Apr 2026 03:20:00 -0700)
+
+- **La CAF introduit un concept de type “festival” pour la TotalEnergies CAF Coupe d’Afrique des Nations U-17 Maroc 2026 et le calendrier est confirmé**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-u-17/news/la-caf-introduit-un-concept-de-type-festival-pour-la-totalenergies-caf-coupe-d-afrique-des-nations-u-17-maroc-2026-et-le-calendrier-est-confirme/)
+- **CAN U17 Maroc-2026: la CAF lance un format «festival» entre le Complexe Mohammed VI et le stade Moulay El Hassan**: [Link](https://sport.le360.ma/football/can-u17-maroc-2026-la-caf-lance-un-format-festival-entre-le-complexe-mohammed-vi-et-le-stade-moulay_UBTEG6GKUVGAHNKJKGJCPIDQSA/)
+- **CAN U17 : La CAF dévoile les stades, Maroc-Tunisie en match d'ouverture à Moulay El Hassan**: [Link](https://m.elbotola.com/fr/article/2026-04-24-22-36-748.html)
+
+
 ### fulham – aston villa (N/A, Sat, 25 Apr 2026 03:50:00 -0700)
 
 - **Fulham v Aston Villa: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/apr/25/fulham-v-aston-villa-premier-league-live)
