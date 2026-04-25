@@ -1,3 +1,10 @@
+### إبراهيم دياز (N/A, Fri, 24 Apr 2026 17:00:00 -0700)
+
+- **مخرج مباراة ريال مدريد وبيتيس في قفص الاتهام بسبب دياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AE%D8%B1%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%8A-%D9%82%D9%81%D8%B5-%D8%A7%D9%84%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AF%D9%8A%D8%A7%D8%B2/blt0e7115fb9e995b90)
+- **ريال مدريد ظلم مرتين في ليلة التعادل أمام بيتيس... الشريف يؤكد**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B8%D9%84%D9%85-%D9%85%D8%B1%D8%AA%D9%8A%D9%86-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D9%81-%D9%8A%D8%A4%D9%83%D8%AF)
+- **مجموعة من الأفراد يتخبطون بلا هدف …! روني يجلد ريال مدريد**: [Link](https://hihi2.com/2026/04/25/p3739388.html)
+
+
 ### real vs betis (N/A, Fri, 24 Apr 2026 14:30:00 -0700)
 
 - **Mbappé da el susto en La Cartuja**: [Link](https://as.com/futbol/mbappe-da-el-susto-en-la-cartuja-f202604-n/)
