@@ -1,3 +1,10 @@
+### درهم مغربي (N/A, Sat, 25 Apr 2026 07:30:00 -0700)
+
+- **بنك المغرب يكشف تقلب سعر الدرهم**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%83-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%82%D9%84%D8%A8-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-2-1736578.html)
+- **الدرهم يتراجع أمام الدولار في أول تسعيرة ليوم الجمعة**: [Link](https://www.telegraphe.ma/%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D8%AA%D8%B3%D8%B9%D9%8A%D8%B1%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9)
+- **استقرار نسبي في أسعار صرف العملات الأجنبية مقابل الدرهم المغربي**: [Link](https://media15.ma/2026/04/24/%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D9%86%D8%B3%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AC-4/)
+
+
 ### getafe - barcelona (N/A, Sat, 25 Apr 2026 06:50:00 -0700)
 
 - **El posible once del Barça contra el Getafe**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260425/1004174844/posible-once-barca-getafe.html)
