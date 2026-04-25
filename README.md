@@ -1,3 +1,31 @@
+### عيسى ديوب (N/A, Sat, 25 Apr 2026 16:00:00 -0700)
+
+- **عيسى ديوب: أستثمر في التغذية عوض الكماليات**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D8%A3%D8%B3%D8%AA%D8%AB%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%BA%D8%B0%D9%8A%D8%A9-%D8%B9%D9%88%D8%B6-%D8%A7%D9%84%D9%83%D9%85%D8%A7%D9%84-1736796.html)
+- **عيسى ديوب يكشف سر استمراريته في القمة مع فولهام**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1%D9%8A%D8%AA%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D9%85%D8%B9-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85/19227)
+- **عيسى ديوب: الطاهي الخاص استثمار في مسيرتي وليس رفاهية**: [Link](https://kifache.com/%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%87%D9%8A-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5-%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D8%B3%D9%8A%D8%B1/)
+
+
+### youssef zalal (N/A, Sat, 25 Apr 2026 16:00:00 -0700)
+
+- **‘Moroccan devil’ Zalal enters biggest UFC spotlight against former champion Sterling**: [Link](https://en.hespress.com/136445-moroccan-devil-zalal-enters-biggest-ufc-spotlight-against-former-champion-sterling.html)
+- **UFC LIVE Result Updates: Aljamain Sterling vs Youssef Zalal in UFC Fight Night**: [Link](https://www.vavel.com/en-us/more-sports/2026/04/26/1258653-ufc-live-result-sterling-vs-zalal-ufc-fight-night.html)
+- **UFC Vegas 116 predictions**: [Link](https://www.mmafighting.com/ufc/484611/ufc-vegas-116-predictions)
+
+
+### charles alloncle (N/A, Sat, 25 Apr 2026 15:50:00 -0700)
+
+- **Fusions de chaînes, stricte neutralité: Charles Alloncle propose une cure d'austérité pour l'audiovisuel public**: [Link](https://medias24.com/agence-presse/fusions-de-chaines-stricte-neutralite-charles-alloncle-propose-une-cure-dausterite-pour-laudiovisuel-public/)
+- **Commission sur l'audiovisuel public : son président Jérémie Patrier-Leitus s’en prend au rapporteur Charles Alloncle**: [Link](https://www.lefigaro.fr/flash-eco/commission-sur-l-audiovisuel-public-son-president-jeremie-patrier-leitus-appelle-a-la-plus-grande-retenue-avant-le-vote-lundi-20260425)
+- **Fusion de France 2 et France 5, nominations par l’Elysée, interdiction de la téléréalité… Les mesures de Charles Alloncle pour couper dans le budget de l’audiovisuel public**: [Link](https://www.liberation.fr/politique/fusion-de-france-5-et-france-2-nominations-par-lelysee-interdiction-de-la-tele-realite-les-mesures-de-charles-alloncle-pour-couper-dans-le-budget-de-laudiovisuel-public-20260424_MBYCI5HEV5HEJABBMHLRIRNR6I/)
+
+
+### apex film netflix (N/A, Sat, 25 Apr 2026 15:50:00 -0700)
+
+- **Timothée Chalamet's near-perfect 2025 hit is set to become a streaming smash this weekend**: [Link](https://www.polygon.com/new-movies-to-watch-marty-supreme-apex-no-other-choice-april-24-2026/)
+- **'Apex's brutal ending, explained**: [Link](https://mashable.com/article/apex-netflix-ending-explained)
+- **Apex Pushed Charlize Theron and Taron Egerton to Extremes — and They Loved It**: [Link](https://www.netflix.com/tudum/articles/apex-charlize-theron-taron-egerton-interview)
+
+
 ### طائرة مقاتلة (N/A, Sat, 25 Apr 2026 15:20:00 -0700)
 
 - **الجيش الأميركي يبحث نشر مسيرة Black Widow كمستشعر لأهداف F-35**: [Link](https://asharq.com/defense/180428/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%86%D8%B4%D8%B1-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-black-widow-%D9%83%D9%85%D8%B3%D8%AA%D8%B4%D8%B9%D8%B1-%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81f-35/)
