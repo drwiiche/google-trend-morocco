@@ -1,3 +1,59 @@
+### liverpool – crystal palace (N/A, Sat, 25 Apr 2026 06:10:00 -0700)
+
+- **Liverpool - Crystal Palace**: [Link](https://www.flashscore.com/match/football/crystal-palace-AovF1Mia/liverpool-lId4TMwf/summary/lineups/?mid=YaXS5GvH)
+- **‘Far from convincing…’ – Chris Sutton gives Liverpool v Palace prediction as Reds duo slammed**: [Link](https://www.empireofthekop.com/2026/04/25/far-from-convincing-chris-sutton-gives-liverpool-v-palace-prediction-as-reds-duo-slammed/)
+- **'We have to bring momentum': Slot on Palace potentially becoming first team to beat Liverpool four times in a season**: [Link](https://tribuna.com/en/news/2026-04-25-we-have-to-bring-momentum-slot-on-palace-potentially-becoming-first-team-to-beat-liverpoo/)
+
+
+### boualem sansal (N/A, Sat, 25 Apr 2026 06:00:00 -0700)
+
+- **« La France, c’est fini pour moi, je me tire » : l’écrivain Boualem Sansal annonce son départ de l’Hexagone**: [Link](https://www.leparisien.fr/culture-loisirs/la-france-cest-fini-pour-moi-je-me-tire-lecrivain-boualem-sansal-annonce-son-depart-de-lhexagone-25-04-2026-YPBGPTTBSZHLJJIIPBEJVOKBR4.php)
+- **«Les Français sont adorables, mais il faut que je m’évade» : blessé par les insultes et inquiet de sa liberté, Boualem Sansal songe à quitter la France**: [Link](https://www.lefigaro.fr/livres/les-francais-sont-adorables-mais-il-faut-que-je-m-evade-blesse-par-les-insultes-et-inquiet-de-sa-liberte-boualem-sansal-songe-a-quitter-la-france-20260425)
+- **"La France, c'est fini pour moi" : l'écrivain et académicien Boualem Sansal annonce son départ**: [Link](https://www.tf1info.fr/culture/la-france-c-est-fini-pour-moi-l-ecrivain-et-academicien-boualem-sansal-annonce-son-depart-2438085.html)
+
+
+### mainz 05 – bayern (N/A, Sat, 25 Apr 2026 05:50:00 -0700)
+
+- **Dicke Überraschungen im Kader und Aufstellung des FC Bayern München: Vincent Kompany verzichtet auf zwei Starspieler - und verhilft Liebling zu Startelf-Debüt**: [Link](https://www.spox.com/fussball/listen/dicke-ueberraschungen-im-kader-und-aufstellung-des-fc-bayern-muenchen-vincent-kompany-verzichtet-auf-zwei-starspieler-und-verhilft-liebling-zu-startelf-debuet/bltb0d4836a98ec2656)
+- **Bundesliga: Gelingt Mainz 05 im Spiel gegen FC Bayern die Überraschung?**: [Link](https://www.faz.net/aktuell/sport/rhein-main-sport/mainz-05/bundesliga-gelingt-mainz-05-im-spiel-gegen-fc-bayern-die-ueberraschung-accg-200765899.html)
+- **Kompany belohnt Torgarant Assomo**: [Link](https://www.fussballtransfers.com/a7679604110690924826-naechster-youngster-fuer-kompany)
+
+
+### ماينتس ضد البايرن (N/A, Sat, 25 Apr 2026 05:50:00 -0700)
+
+- **بعد حسم البوندسليجا.. "هدية استثنائية" تقرب بايرن ميونخ من إنجاز "حقبة فليك" الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B9%D8%AF-%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%AC%D8%A7--%D9%87%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%AA%D9%82%D8%B1%D8%A8-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%85%D9%86-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%AD%D9%82%D8%A8%D8%A9-%D9%81%D9%84%D9%8A%D9%83-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt1daa2b8714337730)
+- **على خطى فينغر.. كومباني من مرارة الهبوط إلى قمة المجد**: [Link](https://www.aljazeera.net/sport/2026/4/20/%D9%81%D9%8A%D9%86%D8%BA%D8%B1-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7)
+- **هل يغيب هاري كين عن مباراة ماينز؟**: [Link](https://hihi2.com/2026/04/24/p3738566.html)
+
+
+### lyon – auxerre (N/A, Sat, 25 Apr 2026 05:20:00 -0700)
+
+- **DIRECT. OL-Auxerre (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/lyon-auxerre-live/676069)
+- **OL : Paulo Fonseca annonce 3 grands retours**: [Link](https://www.footmercato.net/a7905197007061158093-ol-paulo-fonseca-annonce-2-grands-retours)
+- **Lyon-Auxerre : à quelle heure et sur quelle chaîne TV voir le match de la 31e journée de Ligue 1**: [Link](https://www.leparisien.fr/sports/football/ligue-1/lyon-auxerre-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-de-la-31e-journee-de-ligue-1-25-04-2026-UQWLOT3BQNDK5POQV576HJ2MPY.php)
+
+
+### middlesbrough – watford (N/A, Sat, 25 Apr 2026 05:10:00 -0700)
+
+- **Predicting Ed Still's Watford XI for Middlesbrough on Saturday**: [Link](https://www.watfordobserver.co.uk/sport/26052337.predicting-ed-stills-watford-xi-middlesbrough/)
+- **Middlesbrough vs Watford Championship preview, team news and prediction**: [Link](https://www.mirror.co.uk/betting/football/middlesbrough-watford-preview-prediction-tips-37067968)
+- **Middlesbrough vs Watford LIVE Score Updates: Conway scores the fifth goal (5-1)**: [Link](https://www.vavel.com/en-us/soccer/2026/04/25/1258638-middlesbrough-vs-watford-live-score-efl-championship.html)
+
+
+### ألافيس ضد مايوركا (N/A, Sat, 25 Apr 2026 05:00:00 -0700)
+
+- **تفاصيل المباراة | ريال مايوركا VS فالنسيا - الدوري الإسباني - الثلاثاء 21-04-2026**: [Link](https://www.ysscores.com/ar/match/4837433/RCD-Mallorca-vs-Valencia-CF-statics)
+- **موعد مواجهة ألافيس وريال مايوركا في الدوري الإسباني والقنوات الناقلة للمباراة**: [Link](https://radar2.net/1064772/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84/)
+- **تعرّف على تفاصيل مباراة ألافيس ضد ريال مايوركا في الدوري الإسباني بتاريخ 2026/04/25 وتعرف على موعد المباراة، والملعب، والقنوات الناقلة.**: [Link](https://aljareeda.net/match/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D8%A8%D8%AA%D8%A7%D8%B1)
+
+
+### دييغو مارادونا (N/A, Sat, 25 Apr 2026 04:00:00 -0700)
+
+- **انهيار ابنته يكشف فداحة المشهد.. محاكمة مارادونا تدخل منعطفًا خطيرًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D8%A7%D8%A8%D9%86%D8%AA%D9%87-%D9%8A%D9%83%D8%B4%D9%81-%D9%81%D8%AF%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF--%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D9%85%D8%A7%D8%B1%D8%A7%D8%AF%D9%88%D9%86%D8%A7-%D8%AA%D8%AF%D8%AE%D9%84-%D9%85%D9%86%D8%B9%D8%B7%D9%81%D9%8B%D8%A7-%D8%AE%D8%B7%D9%8A%D8%B1%D9%8B%D8%A7/blta6b4a6d0c95bbeae)
+- **صور مارادونا جثة هامدة تهز المحكمة**: [Link](https://arriyadiyah.com/889709/%D8%B5%D9%88%D8%B1-%D9%85%D8%A7%D8%B1%D8%A7%D8%AF%D9%88%D9%86%D8%A7-%D8%AC%D8%AB%D8%A9-%D9%87%D8%A7%D9%85%D8%AF%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9)
+- **نجل دييغو مارادونا: دفع ثمن أخطائه وحُرم من لقبين في المونديال**: [Link](https://sports.asharq.com/football/105802/%D9%86%D8%AC%D9%84-%D8%AF%D9%8A%D9%8A%D8%BA%D9%88-%D9%85%D8%A7%D8%B1%D8%A7%D8%AF%D9%88%D9%86%D8%A7-%D8%AF%D9%81%D8%B9-%D8%AB%D9%85%D9%86-%D8%A3%D8%AE%D8%B7%D8%A7%D8%A6%D9%87-%D9%88%D8%AD%D8%B1%D9%85-%D9%85%D9%86-%D9%84%D9%82%D8%A8%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/)
+
+
 ### أفريقيا (N/A, Sat, 25 Apr 2026 04:00:00 -0700)
 
 - **"فتح الكرة الطائرة" ينهزم في رواندا**: [Link](https://www.hespress.com/%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D9%81%D9%8A-%D8%B1%D9%88%D8%A7%D9%86%D8%AF%D8%A7-1736572.html)
