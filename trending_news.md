@@ -1,3 +1,10 @@
+### طائرة مقاتلة (N/A, Sat, 25 Apr 2026 15:20:00 -0700)
+
+- **الجيش الأميركي يبحث نشر مسيرة Black Widow كمستشعر لأهداف F-35**: [Link](https://asharq.com/defense/180428/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%86%D8%B4%D8%B1-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-black-widow-%D9%83%D9%85%D8%B3%D8%AA%D8%B4%D8%B9%D8%B1-%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81f-35/)
+- **الجيش الأميركي يعتمد طائرة Black Widow لدعم F-35**: [Link](https://d-dall.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%8A%D8%B9%D8%AA%D9%85%D8%AF-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-black-widow-%D9%84%D8%AF%D8%B9%D9%85-f-35/)
+- **الولايات المتحدة تزود الطائرة F35 بسلاح جديد ينقل المهام بثًا مباشرًا إلى مركز القيادة**: [Link](https://aboutmsr.com/%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%B2%D9%88%D8%AF-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-f35-%D8%A8%D8%B3%D9%84%D8%A7%D8%AD/)
+
+
 ### bilal el khannouss (N/A, Sat, 25 Apr 2026 14:20:00 -0700)
 
 - **"Quite funny": VfB star leaves his dinner on the pitch**: [Link](https://sports.yahoo.com/articles/quite-funny-vfb-star-leaves-072500177.html)
