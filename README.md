@@ -1,3 +1,17 @@
+### لالة لعروسة (N/A, Sat, 25 Apr 2026 16:30:00 -0700)
+
+- **“لالة العروسة” يصل إلى البرلمان بسبب جدل “كوبل طنجة”**: [Link](https://tanjanews.com/184593.html)
+- **بسبب مشاهد في برنامج “لالة العروسة”.. برلمانية تسائل بنسعيد حول ضبط المحتوى الإعلامي الذي يبث في التلفزيون**: [Link](https://kifache.com/%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D9%81%D9%8A-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3%D8%A9-%D8%A8%D8%B1%D9%84/)
+- **القناة "الأولى" تقع في المحظور بسعيها وراء المشاهدات السهلة.. برنامج "لالة العروسة" ينشر مشاهد لزوجة تعنف زوجها ووالدته**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/477411.html)
+
+
+### inter miami – new england (N/A, Sat, 25 Apr 2026 16:10:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Back Home, Set to Host New England Revolution**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-back-home-set-to-host-new-england-revolution)
+- **Suarez, Messi start for Inter Miami vs. Revolution, hungry for win at Nu Stadium**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article315524074.html)
+- **Preview | Revs carry four-game winning streak into Miami for meeting between two of East’s top three teams**: [Link](https://www.revolutionsoccer.net/news/preview-revs-carry-four-game-winning-streak-into-miami-for-meeting-between-two-of-east-s-top-three-teams)
+
+
 ### عيسى ديوب (N/A, Sat, 25 Apr 2026 16:00:00 -0700)
 
 - **عيسى ديوب: أستثمر في التغذية عوض الكماليات**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D8%A3%D8%B3%D8%AA%D8%AB%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%BA%D8%B0%D9%8A%D8%A9-%D8%B9%D9%88%D8%B6-%D8%A7%D9%84%D9%83%D9%85%D8%A7%D9%84-1736796.html)
