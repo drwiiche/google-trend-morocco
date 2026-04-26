@@ -1,3 +1,10 @@
+### rayo – real sociedad (N/A, Sun, 26 Apr 2026 04:20:00 -0700)
+
+- **A qué hora es el Rayo Vallecano - Real Sociedad: horario, dónde ver hoy en TV y canal del partido de LaLiga EA Sports**: [Link](https://www.marca.com/futbol/primera-division/2026/04/24/rayo-vallecano-real-sociedad-horario-donde-ver-hoy-en-tv-y-canal-del-partido-de-laliga-ea-sports.html)
+- **Preparando la visita a Vallecas**: [Link](http://www.realsociedad.eus/es/noticias/detalle/preparando-la-visita-a-vallecas)
+- **Íñigo Pérez: "El de la Real Sociedad es un partido trascendental"**: [Link](https://www.rayovallecano.es/noticias/inigo-perez-el-de-la-real-sociedad-es-un-partido-trascendental)
+
+
 ### إطلاق نار (N/A, Sun, 26 Apr 2026 03:40:00 -0700)
 
 - **هذا ما نعرفه عن هجوم عشاء مراسلي البيت الأبيض بواشنطن**: [Link](https://www.aljazeera.net/news/2026/4/26/%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A9-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D8%B3%D9%84%D8%AD-%D9%81%D9%8A)
