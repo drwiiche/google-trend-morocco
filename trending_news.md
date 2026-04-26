@@ -1,3 +1,17 @@
+### ac milan (N/A, Sun, 26 Apr 2026 12:50:00 -0700)
+
+- **Longoni urges Milan to push for Goretzka: “It would be a real coup”**: [Link](https://sempremilan.com/longoni-urges-milan-push-goretzka)
+- **Bayern Munich News: Arsenal leading on Anthony Gordon?**: [Link](https://www.bavarianfootballworks.com/transfer-rumors/193140/bayern-munich-arsenal-gordon-juventus-ac-milan-chelsea-real-madrid-fc-barcelona-bvb-manchester-united-psg)
+- **Sørloth on AC Milan’s radar: a target for a new attacking era?**: [Link](https://milanreports.com/2026/04/23/sorloth-on-ac-milan-radar/)
+
+
+### milan vs juventus (N/A, Sun, 26 Apr 2026 12:00:00 -0700)
+
+- **“Not acceptable” – Bremer unsatisfied with Juventus campaign, hails ‘top’ Liverpool star**: [Link](https://www.juvefc.com/bremer-juventus-campaign-liverpool-alisson/)
+- **AC Milan vs Juventus predictions: Bianconeri silence San Siro**: [Link](https://www.goal.com/en-ca/betting/tips/ac-milan-vs-juventus-predictions-04-26/A%3Ablt56c3adcc7a3bd1d2)
+- **Modric's Injury Against Juventus**: [Link](https://www.ysscores.com/en/news/13953123/Modric's-Injury-Against-Juventus)
+
+
 ### الطقس غدًا (N/A, Sun, 26 Apr 2026 13:00:00 -0700)
 
 - **حالة الطقس اليوم تحذر من انخفاض درجات الحرارة بشكل حاد في 26 أبريل 2026**: [Link](https://tawusal.com/123001/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-2/)
