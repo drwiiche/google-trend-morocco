@@ -1,3 +1,36 @@
+### chelsea (N/A, Sun, 26 Apr 2026 07:50:00 -0700)
+
+- **Chelsea target shock Saudi-based boss as one of FIVE next manager options amid Nagelsmann issues**: [Link](https://www.teamtalk.com/chelsea/next-manager-matthias-jaissle-targeted-major-julian-nagelsmann-issues-exclusive)
+- **McFarlane: We want to attack the game | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/mcfarlane-we-want-to-attack-the-game)
+- **Chelsea's next manager: Why it should be straight shootout between Andoni Iraola & Cesc Fabregas to replace Liam Rosenior**: [Link](https://www.goal.com/en-us/lists/chelsea-next-manager-andoni-iraola-cesc-fabregas-liam-rosenior/blt0028a9738212f7e4)
+
+
+### jannik sinner (N/A, Sun, 26 Apr 2026 07:40:00 -0700)
+
+- **Sinner, in campo per la rifinitura prima del match contro Moller. VIDEO**: [Link](https://sport.sky.it/tennis/video/2026/04/26/sinner-allenamento-oggi-atp-madrid-news-1093092)
+- **Tutte le notizie e gli aggiornamenti del tennis mondiale**: [Link](https://www.diretta.it/news/calcio-madrid-atp-singolare-tennis-tracker-in-campo-a-madrid-per-il-terzo-turno-sinner-sfida-moller-5-1/hSSndGSP/)
+- **🌐 Sinner e Musetti a Madrid, l’ orario: quando giocano oggi**: [Link](https://metrotoday.it/2026/04/26/sinner-e-musetti-a-madrid-l-orario-quando-giocano-oggi/)
+
+
+### gibraltar (N/A, Sun, 26 Apr 2026 07:40:00 -0700)
+
+- **Monkeys learn to self-medicate with soil to help them digest junk food**: [Link](https://www.cam.ac.uk/stories/monkeys-eat-soil-digest-junk-food)
+- **Macaques: Environment Dept & Tourism Ministry highlight wildlife management & visitor behaviour**: [Link](https://www.gbc.gi/news/macaques-environment-dept-tourism-ministry-highlight-wildlife-management-visitor-behaviour)
+- **Letters to the editor: Gibraltar macaques eat soil to offset junk food effects**: [Link](https://www.telegraphindia.com/opinion/letters-to-the-editor-gibraltar-macaques-eat-soil-to-offset-junk-food-effects-prnt/cid/2157692)
+
+
+### michael jackson film (N/A, Sun, 26 Apr 2026 07:20:00 -0700)
+
+- **Box Office Stunner: ‘Michael’ Rocketing to Other-Worldly $95M-$100M U.S. Debut, $200M Globally**: [Link](https://www.hollywoodreporter.com/movies/movie-news/michael-jackson-biopic-box-office-1236573688/)
+- **The Michael Jackson movie leaves out his accusers. Where are they now?**: [Link](https://www.usatoday.com/story/entertainment/movies/2026/04/26/michael-jackson-accusers-child-sexual-abuse-molestation-allegations-movie/89697459007/)
+- **Review: 'Michael' leans hard on nostalgia but sidesteps the full story**: [Link](https://www.ksl.com/article/51488813/review-michael-leans-hard-on-nostalgia-but-sidesteps-the-full-story)
+
+
+### resultat quinte (N/A, Sun, 26 Apr 2026 06:30:00 -0700)
+
+
+
+
 ### real oviedo – elche (N/A, Sun, 26 Apr 2026 06:40:00 -0700)
 
 - **Oviedo - Elche: horario y dónde ver hoy en TV y canal del partido de LaLiga EA Sports**: [Link](https://www.marca.com/futbol/primera-division/2026/04/26/oviedo-elche-horario-ver-hoy-tv-canal-partido-laliga-ea-sports.html)
