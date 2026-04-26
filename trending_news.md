@@ -1,3 +1,24 @@
+### real oviedo – elche (N/A, Sun, 26 Apr 2026 06:40:00 -0700)
+
+- **Oviedo - Elche: horario y dónde ver hoy en TV y canal del partido de LaLiga EA Sports**: [Link](https://www.marca.com/futbol/primera-division/2026/04/26/oviedo-elche-horario-ver-hoy-tv-canal-partido-laliga-ea-sports.html)
+- **Pétrot: "Estamos preparados para ganar nuestro primer partido fuera de casa"**: [Link](https://www.infobae.com/espana/agencias/2026/04/25/petrot-estamos-preparados-para-ganar-nuestro-primer-partido-fuera-de-casa/)
+- **La profecía de Dani Calvo, a prueba ante su exequipo**: [Link](https://as.com/futbol/primera/la-profecia-de-dani-calvo-a-prueba-ante-su-exequipo-f202604-n/)
+
+
+### تشيلسي ضد ليدز (N/A, Sun, 26 Apr 2026 06:40:00 -0700)
+
+- **شاهد الآن بدون تقطيع القنوات الناقلة لمباراة تشيلسي ضد ليدز يونايتد في نصف نهائي كأس الاتحاد الإنجليزي**: [Link](https://tawusal.com/122917/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A7%D9%84%D8%A2%D9%86-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84/)
+- **مشجعو ليدز يونايتد يحتفلون بعودة نصف نهائي كأس الاتحاد الإنجليزي**: [Link](https://ozarab.media/%D9%85%D8%B4%D8%AC%D8%B9%D9%88-%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%AD%D8%AA%D9%81%D9%84%D9%88%D9%86-%D8%A8%D8%B9%D9%88%D8%AF%D8%A9-%D9%86%D8%B5%D9%81-%D9%86/)
+- **جارناتشو وبيدرو يقودان هجوم تشيلسي ضد ليدز بنصف نهائي كأس الاتحاد**: [Link](https://www.youm7.com/story/2026/4/26/%D8%AC%D8%A7%D8%B1%D9%86%D8%A7%D8%AA%D8%B4%D9%88-%D9%88%D8%A8%D9%8A%D8%AF%D8%B1%D9%88-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D9%87%D8%AC%D9%88%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D9%84%D9%8A%D8%AF%D8%B2-%D8%A8%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3/7391469)
+
+
+### match raja (N/A, Sun, 26 Apr 2026 06:40:00 -0700)
+
+- **Fadlu convoque 20 joueurs du Raja pour affronter le FUS lors de la 16e journée de Botola Pro**: [Link](https://m.elbotola.com/fr/article/2026-04-25-22-15-160.html)
+- **Où voir Raja Club Athletic vs Fath Union Sport, sur quelle chaîne de streaming ?**: [Link](https://www.footix.fr/ou-voir-raja-club-athletic-vs-fath-union-sport-sur-quelle-chaine-de-streaming/)
+- **Live Yacoub - FAR Rabat la 16e journée de Botola Pro (Maroc) 2025/2026 26/04**: [Link](https://www.footmercato.net/live/4885704724773326386-yacoub-el-mansour-vs-far-rabat)
+
+
 ### genoa – côme (N/A, Sun, 26 Apr 2026 06:30:00 -0700)
 
 - **Genoa-Como, diretta Serie A: si sblocca il match. Poi tocca a Toro-Inter**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2026/04/26-148217257/genoa-como_e_torino-inter_diretta_serie_a_risultati_in_tempo_reale_le_ultime_sulle_formazioni)
