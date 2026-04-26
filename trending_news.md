@@ -1,3 +1,24 @@
+### إدوارد ميندي (N/A, Sun, 26 Apr 2026 14:40:00 -0700)
+
+- **وليد الفراج يشكر الأهلي المصري بعد تصحيح "زلة اللسان": كلكم ذوق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%AC-%D9%8A%D8%B4%D9%83%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD-%D8%B2%D9%84%D8%A9-%D8%A7%D9%84%D9%84%D8%B3%D8%A7%D9%86--%D9%83%D9%84%D9%83%D9%85-%D8%B0%D9%88%D9%82/bltf4c3073da0e0879c)
+- **الأهلي السعودي بطل دوري أبطال آسيا يحصد جائزة مالية ضخمة وهذه عوائد الاتحاد والهلال**: [Link](https://www.aljazeera.net/sport/2026/4/26/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A8%D8%B7%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7)
+- **الأهلي السعودي يحتفظ بلقب دوري أبطال آسيا للنخبة**: [Link](https://www.radiomars.ma/__trashed-102/)
+
+
+### villarreal vs celta vigo (N/A, Sun, 26 Apr 2026 14:30:00 -0700)
+
+- **Villarreal vs Celta Vigo: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c937ej9zz94t)
+- **One step away from the Champions League (2-1)!**: [Link](https://onefootball.com/de/news/one-step-away-from-the-champions-league-2-1-42773862)
+- **Villarreal 2-1 Celta Vigo: Moreno and Pepe deliver**: [Link](https://www.sofascore.com/news/villarreal-2-1-celta-vigo-moreno-and-pepe-deliver)
+
+
+### om (N/A, Sun, 26 Apr 2026 13:40:00 -0700)
+
+- **Luik-Bastenaken-Luik - Pieterse is "blij met voorjaar" en gaat nu mountainbiken**: [Link](https://starsporttv.be/content/luik-bastenaken-luik-pieterse-is-blij-met-voorjaar-en-gaat-nu-mountainbiken)
+- **Team Visma | Lease a Bike grijpt naast ereplaats in Luik-Bastenaken-Luik**: [Link](https://www.teamvismaleaseabike.nl/wedstrijdverslag/nieuws/team-visma-lease-a-bike-grijpt-naast-ereplaats-in-luik-bastenaken-luik/)
+- **Sportnieuws | Demi Vollering wint opnieuw wielerklassieker: 'Hou van deze wedstrijd'**: [Link](https://www.omroepwest.nl/sport/5087189/sportnieuws-demi-vollering-wint-opnieuw-wielerklassieker-hou-van-deze-wedstrijd)
+
+
 ### ac milan (N/A, Sun, 26 Apr 2026 12:50:00 -0700)
 
 - **Longoni urges Milan to push for Goretzka: “It would be a real coup”**: [Link](https://sempremilan.com/longoni-urges-milan-push-goretzka)
