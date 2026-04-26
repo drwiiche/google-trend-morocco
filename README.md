@@ -1,3 +1,55 @@
+### galatasaray – fenerbahçe (N/A, Sun, 26 Apr 2026 10:10:00 -0700)
+
+- **Musaba: "İstanbul'daki en iyi takımın kim olduğunu göstermek istiyoruz"**: [Link](https://www.ntvspor.net/foto-galeri/musaba-istanbuldaki-en-iyi-takimin-kim-oldugunu-gostermek-istiyoruz-421756)
+- **Okan Buruk'tan şampiyonluk sözleri: "Tek isteğimiz kazanmak"**: [Link](https://beinsports.com.tr/haber/okan-buruktan-sampiyonluk-sozleri-tek-istegimiz-kazanmak)
+- **Avantajlar ve dezavantajlar!**: [Link](https://www.yenisafak.com/yazarlar/mustafa-goksel/avantajlar-ve-dezavantajlar-4818566)
+
+
+### elbotola (N/A, Sun, 26 Apr 2026 10:10:00 -0700)
+
+
+
+
+### أوساسونا ضد إشبيلية (N/A, Sun, 26 Apr 2026 10:10:00 -0700)
+
+- **موعد مباراة أوساسونا ضد إشبيلية اليوم والقنوات الناقلة في الدوري الإسباني 2026**: [Link](https://www.so3ody.com/news/214220/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A/%D9%83%D8%B1%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9)
+- **القنوات الناقلة لمباراة إشبيلية اليوم.**: [Link](https://www.so3ody.com/tags/34022/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85)
+- **رسميًا.. نجم برشلونة يغيب أمام أوساسونا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7/bltbec8ac71b541da9d)
+
+
+### البطولة (N/A, Sun, 26 Apr 2026 10:10:00 -0700)
+
+- **التعادل يساوي الاتحاد التوركي وآسفي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%8A%D8%B3%D8%A7%D9%88%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%AA%D9%88%D8%B1%D9%83%D9%8A-%D9%88%D8%A2%D8%B3%D9%81%D9%8A-1736988.html)
+- **اتحاد تواركة دون فوز حتى الجولة 16!**: [Link](https://www.radiomars.ma/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AA%D9%88%D8%A7%D8%B1%D9%83%D8%A9-%D8%AF%D9%88%D9%86-%D9%81%D9%88%D8%B2-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-16/)
+- **الإصابة تنهي موسم الحواصلي مع اتحاد تواركة**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D9%86%D9%87%D9%8A-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B5%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AA%D9%88/)
+
+
+### botola (N/A, Sun, 26 Apr 2026 10:00:00 -0700)
+
+- **Wydad Face Kawkab in Crucial Match as League Resumes with Four Fixtures Today; Relegation Battle Heats Up**: [Link](https://m.elbotola.com/en/article/2026-04-25-11-20-619.html)
+- **Botola Pro enters decisive phase: Fierce title race and exciting second half kickoff**: [Link](https://fesnews.media/318098/2026/04/25/)
+- **Raja Casablanca Return to Action Against FUS**: [Link](https://www.moroccoworldnews.com/2026/04/288657/raja-casablanca-return-to-action-against-fus/)
+
+
+### يعقوب المنصور ضد الجيش الملكي (N/A, Sun, 26 Apr 2026 10:00:00 -0700)
+
+- **غيابات الجيش أمام يعقوب المنصور**: [Link](https://www.hespress.com/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A3%D9%85%D8%A7%D9%85-%D9%8A%D8%B9%D9%82%D9%88%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1-1737321.html)
+- **"المنصور" يواجه "العساكر بمركب مولاي عبد الله**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B9%D8%B3%D8%A7%D9%83%D8%B1-%D8%A8%D9%85%D8%B1%D9%83%D8%A8-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%B9%D8%A8-436006.html)
+- **ما القنوات الناقلة لمباراة يعقوب المنصور والجيش الملكي في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%8A%D8%B9%D9%82%D9%88%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1-%D9%88%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc454497deaa9cc7d)
+
+
+### snrt (N/A, Sun, 26 Apr 2026 10:00:00 -0700)
+
+- **La CAF introduit un concept de type “festival” pour la TotalEnergies CAF Coupe d’Afrique des Nations U-17 Maroc 2026 et le calendrier est confirmé**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-u-17/news/la-caf-introduit-un-concept-de-type-festival-pour-la-totalenergies-caf-coupe-d-afrique-des-nations-u-17-maroc-2026-et-le-calendrier-est-confirme/)
+- **La CAF innove avec un format “festival” pour la CAN U17 au Maroc**: [Link](https://fr.hespress.com/471037-la-caf-innove-avec-un-format-festival-pour-la-can-u17-au-maroc.html)
+- **CAN U17 Maroc-2026: la CAF lance un format «festival» entre le Complexe Mohammed VI et le stade Moulay El Hassan**: [Link](https://sport.le360.ma/football/can-u17-maroc-2026-la-caf-lance-un-format-festival-entre-le-complexe-mohammed-vi-et-le-stade-moulay_UBTEG6GKUVGAHNKJKGJCPIDQSA/)
+
+
+### mas vs (N/A, Sun, 26 Apr 2026 09:50:00 -0700)
+
+
+
+
 ### osasuna – séville (N/A, Sun, 26 Apr 2026 09:00:00 -0700)
 
 - **Osasuna - FC Séville**: [Link](https://www.flashscore.fr/match/football/osasuna-ETdxjU8a/sevilla-h8oAv4Ts/resume/compositions/?mid=YHhyib9b)
