@@ -1,3 +1,64 @@
+### genoa – côme (N/A, Sun, 26 Apr 2026 06:30:00 -0700)
+
+- **Genoa-Como, diretta Serie A: si sblocca il match. Poi tocca a Toro-Inter**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2026/04/26-148217257/genoa-como_e_torino-inter_diretta_serie_a_risultati_in_tempo_reale_le_ultime_sulle_formazioni)
+- **Genoa-Como, dove vedere la partita in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2026/04/26/genoa-como-dove-vedere-tv-streaming)
+- **Genoa-Como: De Rossi sceglie Otoa e Vitinha. Le formazioni ufficiali. Live dalle 15**: [Link](https://www.primocanale.it/sport/66312-genoa-como-diretta-live-cronaca-gol-partita-formazioni-tabellino-ferraris.html)
+
+
+### australie (N/A, Sun, 26 Apr 2026 06:30:00 -0700)
+
+
+
+
+### chelsea – leeds united (N/A, Sun, 26 Apr 2026 06:20:00 -0700)
+
+- **What Enzo Fernandez did brilliantly the last time Chelsea faced Leeds**: [Link](https://www.thechelseachronicle.com/throwbacks/what-enzo-fernandez-did-brilliantly-the-last-time-chelsea-faced-leeds/)
+- **27 glorious pictures of Leeds United fans at Wembley ahead of Chelsea FA Cup clash**: [Link](https://www.yorkshireeveningpost.co.uk/sport/football/leeds-united/27-glorious-pictures-of-leeds-united-fans-at-wembley-ahead-of-chelsea-fa-cup-clash-7683911)
+- **Leeds pub prepares for FA Cup semi-final with shrine-like atmosphere and all-day party**: [Link](https://onefootball.com/en/news/leeds-pub-prepares-for-fa-cup-semi-final-with-shrine-like-atmosphere-and-all-day-party-42770391)
+
+
+### stuttgart – werder (N/A, Sun, 26 Apr 2026 06:20:00 -0700)
+
+- **Preview: Stuttgart vs Werder Bremen - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/stuttgart/preview/stuttgart-vs-werder-bremen-prediction-team-news-lineups_596400.html)
+- **VfB Stuttgart vs SV Werder Bremen Odds - Sunday April 26 2026**: [Link](https://www.oddsshark.com/soccer/bundesliga/vfb-stuttgart-werder-bremen-odds-april-25-2026-2418779)
+- **Stuttgart’s Champions League Statement, Strong Lineup Set For Bremen Clash**: [Link](https://www.qoo10.co.id/en/international/90098/stuttgarts-champions-league-statement-strong-lineup-set-for-bremen-clash/)
+
+
+### لامين يامال (N/A, Sun, 26 Apr 2026 06:00:00 -0700)
+
+- **يامال جديد.. برشلونة على أعتاب ضم موهبة مغربية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B9%D8%AA%D8%A7%D8%A8-%D8%B6%D9%85-%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9/bltb2319c637a26dc82)
+- **برشلونة يراقب موهبة رايو ماخاداهوندا يوسف خنفري ضمن مشروع لا ماسيا**: [Link](https://tribuna.com/ar/news/2026-04-26-brshlwn-yrqb-mwhb-ryw-mkhdhwnd-ywsf-khnfry-dmn-mshrw-l-msy/)
+- **ماكينة أهداف وشبيه يامال.. برشلونة يضم موهبة مغربية**: [Link](https://sport.lesiteinfo.com/internationaux/493493.html)
+
+
+### lorient – strasbourg (N/A, Sun, 26 Apr 2026 05:30:00 -0700)
+
+- **Gary O’Neil : « On n’a pas le choix, on doit faire beaucoup de changements. »**: [Link](https://www.alsasports.fr/football/rc-strasbourg/gary-oneil-on-na-pas-le-choix-on-doit-faire-beaucoup-de-changements/81071/)
+- **Laurent Abergel enfin prêt à débuter avec Lorient face à Strasbourg**: [Link](https://www.lequipe.fr/Football/Actualites/Laurent-abergel-enfin-pret-a-debuter-avec-lorient-face-a-strasbourg/1670857)
+- **DIRECT. Cadiou donne l'avantage à Lorient contre Strasbourg**: [Link](https://www.flashscore.fr/actualites/football-ligue-1-direct-cadiou-donne-l-avantage-a-lorient-contre-strasbourg/YaJsojKO/)
+
+
+### تقاعد (N/A, Sun, 26 Apr 2026 05:20:00 -0700)
+
+- **التقاعد والمعاش الكريم**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B4-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-1736683.html)
+- **نصف الكأس الممتلئ**: [Link](https://www.hespress.com/%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D9%84%D8%A6-1733186.html)
+- **معطيات جديدة من وزارة برادة حول التقاعد**: [Link](https://aljarida24.ma/p/actualites/344604/)
+
+
+### نيكو باز (N/A, Sun, 26 Apr 2026 05:10:00 -0700)
+
+- **صفقة دون مفاوضات.. بند صامت يحسم عودة لاعب ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%81%D9%82%D8%A9-%D8%AF%D9%88%D9%86-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA--%D8%A8%D9%86%D8%AF-%D8%B5%D8%A7%D9%85%D8%AA-%D9%8A%D8%AD%D8%B3%D9%85-%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt42de73bad2d1c30d)
+- **أول توقيع لـ ريال مدريد هذا الصيف**: [Link](https://hihi2.com/2026/04/26/p3740520.html)
+- **ريال مدريد وكومو يعززان شراكتهما مع تبلور مسار تطوير مواهب "لا فابريكا"**: [Link](https://tribuna.com/ar/news/2026-04-26-ryl-mdryd-wkwmw-yzzn-shrkthm-m-tblwr-msr-ttwyr-mwhb-l-fbryk/)
+
+
+### عاطف نجيب (N/A, Sun, 26 Apr 2026 04:40:00 -0700)
+
+- **سوريا.. أهالي الضحايا يواجهون عاطف نجيب في أول محاكمة علنية**: [Link](https://www.aljazeera.net/news/2026/4/26/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%B9%D8%A7%D8%B7%D9%81-%D9%86%D8%AC%D9%8A%D8%A8-%D9%81%D9%8A-%D8%AF%D9%85%D8%B4%D9%82)
+- **سوريا تبدأ محاكمة بشار الأسد غيابيا**: [Link](https://www.hespress.com/%D8%A8%D8%AF%D8%A1-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%A8%D8%B4%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AF%D9%85%D8%B4%D9%82-1737189.html)
+- **افتتاح محكمة للعدالة الانتقالية تمهيدا لمحاكمات "وشيكة" لرموز الأسد**: [Link](https://www.alquds.co.uk/%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D9%84%D9%84%D8%B9%D8%AF%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D9%85%D9%87%D9%8A/)
+
+
 ### xavi simons (N/A, Sun, 26 Apr 2026 03:30:00 -0700)
 
 - **Simons, Solanke, Vicario - Spurs injury news latest and possible return dates after Wolves whitewash**: [Link](https://www.football.london/tottenham-hotspur-fc/news/spurs-injury-news-latest-wolves-33838691)
