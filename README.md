@@ -1,3 +1,59 @@
+### as far (N/A, Sun, 26 Apr 2026 12:00:00 -0700)
+
+- **Sundowns Ask CAF to Reschedule First Leg Against AS FAR**: [Link](https://www.moroccoworldnews.com/2026/04/288756/sundowns-ask-caf-to-reschedule-first-leg-against-as-far/)
+- **FAR Rabat reach historic TotalEnergies CAF Champions League final despite Berkane defeat**: [Link](https://www.cafonline.com/caf-champions-league/news/far-rabat-reach-historic-totalenergies-caf-champions-league-final-despite-berkane-defeat/)
+- **How Cardoso silenced Sundowns critics amid mixed results**: [Link](https://www.sabcnews.com/sabcnews/how-cardoso-silenced-sundowns-critics-amid-mixed-results/)
+
+
+### دونالد ترامب (N/A, Sun, 26 Apr 2026 11:40:00 -0700)
+
+- **طلقات نارية.. هل تنبأت متحدثة البيت الأبيض بمحاولة اغتيال ترمب؟**: [Link](https://www.aljazeera.net/news/2026/4/26/%D8%B7%D9%84%D9%82%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%87%D9%84-%D8%AA%D9%86%D8%A8%D8%A3%D8%AA-%D9%85%D8%AA%D8%AD%D8%AF%D8%AB%D8%A9-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA)
+- **دونالد ترامب: ما الذي حدث في عشاء مراسلي البيت الأبيض؟**: [Link](https://www.bbc.com/arabic/articles/cgqkq19425qo)
+- **تأثير "رجل العصير".. لماذا لم يقتل حراس ترامب مهاجم العشاء؟**: [Link](https://www.skynewsarabia.com/world/1866354-%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1-%D8%B1%D8%AC%D9%84-%D8%A7%D9%84%D8%B9%D8%B5%D9%8A%D8%B1-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%82%D8%AA%D9%84-%D8%AD%D8%B1%D8%A7%D8%B3-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D8%B9%D8%B4%D8%A7%D8%A1)
+
+
+### محمد وهبي (N/A, Sun, 26 Apr 2026 11:30:00 -0700)
+
+- **وهبي يطير إلى ألمانيا بسبب رباعي المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B7%D9%8A%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt310b047b1feb56a8)
+- **وهبي يتلقى أنباءً مطمئنة من إنجلترا قبل المونديال**: [Link](https://www.radiomars.ma/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%A3%D9%86%D8%A8%D8%A7%D8%A1%D9%8B-%D9%85%D8%B7%D9%85%D8%A6%D9%86%D8%A9-%D9%85%D9%86-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%82%D8%A8/)
+- **وهبي يُشعل المنافسة ، 60 لاعبا في سباق محموم لكسب مقعد في مونديال 2026**: [Link](https://www.almountakhab.com/node/13224868)
+
+
+### ac milan – juventus (N/A, Sun, 26 Apr 2026 11:20:00 -0700)
+
+- **Bremer: ‘Juventus must win and cannot keep coasting for 6 years’**: [Link](https://football-italia.net/bremer-juventus-must-win-cannot-keep-coasting/)
+- **🔴 Milan-Juve | ✅ Official: decisions on Yildiz, David and Bartesaghi 🤯**: [Link](https://onefootball.com/fr/news/milan-juve-official-decisions-on-yildiz-david-and-bartesaghi-42773038)
+- **AC Milan vs Juventus predictions: Bianconeri silence San Siro**: [Link](https://www.goal.com/en-ca/betting/tips/ac-milan-vs-juventus-predictions-04-26/A%3Ablt56c3adcc7a3bd1d2)
+
+
+### villarreal – celta vigo (N/A, Sun, 26 Apr 2026 11:20:00 -0700)
+
+- **Previa | Europa pasa por La Cerámica**: [Link](https://onefootball.com/es/noticias/previa-europa-pasa-por-la-ceramica-42771210)
+- **Vídeo: Música, juegos y mucha diversión en la previa del Villarreal-Celta de Vigo**: [Link](https://www.elperiodicomediterraneo.com/villarreal-cf/2026/04/26/video-musica-juegos-diversion-previa-129552721.html)
+- **El Celta necesita convertir sensaciones en puntos**: [Link](https://www.farodevigo.es/celta-de-vigo/2026/04/26/celta-necesita-convertir-sensaciones-puntos-129530243.html)
+
+
+### marseille – nice (N/A, Sun, 26 Apr 2026 11:20:00 -0700)
+
+- **OM : après Lorient, les joueurs seuls dans leur galère avant de recevoir Nice**: [Link](https://www.laprovence.com/article/om/7459127056894814/om-apres-lorient-les-joueurs-seuls-dans-leur-galere-avant-de-recevoir-nice)
+- **OM : le groupe contre Nice avec une cascade d’absents majeurs**: [Link](https://www.footmercato.net/a8733359061021088019-om-le-groupe-contre-nice-avec-une-cascade-dabsents-majeurs)
+- **DIRECT. Marseille-Nice: suivez en live le match de clôture de la 31e journée de Ligue 1**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-marseille-nice-suivez-en-live-le-match-de-cloture-de-la-31e-journee-de-ligue-1_LS-202604260026.html)
+
+
+### serie a (N/A, Sun, 26 Apr 2026 11:20:00 -0700)
+
+- **Prima Thuram e Bisseck, poi Simeone e Vlasic: cuore Toro, che rimonta all'Inter**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/26-04-2026/torino-inter-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **"Braccio di Carlos Augusto in posizione innaturale": l'arbitro Mariani assegna il rigore al Torino**: [Link](https://www.sportmediaset.mediaset.it/calcio/braccio-di-carlos-augusto-in-posizione-innaturale-l-arbitro-mariani-assegna-il-rigore-al-torino_111429286-202602k.shtml)
+- **Torino Inter: le pagelle dei granata. Che rimonta!**: [Link](https://onefootball.com/en/news/torino-inter-le-pagelle-dei-granata-che-rimonta-42773224)
+
+
+### أحمد البواري (N/A, Sun, 26 Apr 2026 11:20:00 -0700)
+
+- **البواري: اليد العاملة الفلاحية في تراجع.. ونراهن على 150 ألف خريج**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A8%D9%88%D8%A7%D8%B1%D9%8A-%D8%A7%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D9%84%D8%A9-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AA%D8%B1%D8%A7%D8%AC-1737213.html)
+- **المعهد الوطني للبحث الزراعي يناقش نظم تربية الماشية لتحقيق الأمن الغذائي بالمغرب**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D9%85%D8%B9%D9%87%D8%AF-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D8%A8%D8%AD%D8%AB-%D8%A7%D9%84%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A-%D9%8A%D9%86%D8%A7%D9%82%D8%B4-%D9%86%D8%B8%D9%85/)
+- **إقبال كبير على أروقة الملتقى الدولي للفلاحة في دورته ال18**: [Link](https://aljarida24.ma/p/actualites/344621/)
+
+
 ### ترتيب البطولة المغربية (N/A, Sun, 26 Apr 2026 10:40:00 -0700)
 
 - **المغرب الفاسي يمدد سلسلة النتائج الإيجابية .. ويضغط على الجيش الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D9%85%D8%AF%D8%AF-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A5%D9%8A-1737434.html)
