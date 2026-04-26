@@ -1,3 +1,31 @@
+### الطقس غدًا (N/A, Sun, 26 Apr 2026 13:00:00 -0700)
+
+- **حالة الطقس اليوم تحذر من انخفاض درجات الحرارة بشكل حاد في 26 أبريل 2026**: [Link](https://tawusal.com/123001/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-2/)
+- **رجعت الشتوية.. أمطار رعدية تضرب البلاد غدا وتقلبات جوية مفاجئة**: [Link](https://number1.news/2026/04/26/%D8%B1%D8%AC%D8%B9%D8%AA-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%BA/)
+- **منخفض جوي يضرب 18 مدينة ومحافظة بأمطار ربيعية غزيرة اليوم**: [Link](https://radar2.net/1068377/%D9%85%D9%86%D8%AE%D9%81%D8%B6-%D8%AC%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-18-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D9%88%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A9-%D8%A8%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1/)
+
+
+### مالي (N/A, Sun, 26 Apr 2026 13:00:00 -0700)
+
+- **أكبر هجوم منسق واغتيال وزير الدفاع.. ما الذي يحدث في مالي؟**: [Link](https://www.aljazeera.net/news/2026/4/26/%D9%85%D8%A7-%D8%A7%D9%84%D8%B0%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AB-%D9%81%D9%8A-%D9%85%D8%A7%D9%84%D9%8A)
+- **مقتل وزير دفاع مالي في قلب باماكو في هجوم بسيارة مفخخة**: [Link](https://www.skynewsarabia.com/world/1866346-%D9%85%D9%82%D8%AA%D9%84-%D9%88%D8%B2%D9%8A%D8%B1-%D8%AF%D9%81%D8%A7%D8%B9-%D9%85%D8%A7%D9%84%D9%8A-%D9%82%D9%84%D8%A8-%D8%A8%D8%A7%D9%85%D8%A7%D9%83%D9%88-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%85%D9%81%D8%AE%D8%AE%D8%A9)
+- **مالي: الطوارق يعلنون انسحاب الجنود الروس من كيدال ومصدر حكومي يؤكد مقتل وزير الدفاع قرب باماكو**: [Link](https://www.france24.com/ar/%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/20260426-%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D8%AC%D9%8A%D8%B4-%D9%85%D8%A7%D9%84%D9%8A-%D9%81%D8%A7%D8%BA%D9%86%D8%B1-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%85%D8%AA%D9%85%D8%B1%D8%AF%D9%88%D9%86-%D8%B7%D9%88%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%AF%D8%A9)
+
+
+### michael jackson (N/A, Sun, 26 Apr 2026 13:00:00 -0700)
+
+- **Fact-Checking ‘Michael’: What the Biopic Gets Right and Wrong About Michael Jackson**: [Link](https://www.nytimes.com/2026/04/25/movies/michael-jackson-biopic-fact-check.html)
+- **‘Michael’ Sets New Box-Office Record for Biopics**: [Link](https://www.wsj.com/business/media/michael-sets-new-box-office-record-for-biopics-027d62b0)
+- **Opinion | ‘Michael,' the new King of Pop biopic, feels a lot like AI could have made it**: [Link](https://www.ms.now/opinion/michael-jackson-estate-movie-jaafar)
+
+
+### weather tomorrow (N/A, Sun, 26 Apr 2026 12:50:00 -0700)
+
+- **Cooler weekend, storms return to the forecast on Monday**: [Link](https://www.wsaw.com/2026/04/25/cooler-weekend-storms-return-forecast-monday/)
+- **ALERT DAY conditions possible Thursday night into early Friday | Latest Weather Forecast**: [Link](https://www.channel3000.com/weather/forecast/alert-day-conditions-possible-thursday-night-into-early-friday/article_a1211afa-86c8-5443-b891-835dd6b621fd.html)
+- **Severe thunderstorm watch until 8 p.m. includes Twin Cities area**: [Link](https://www.mprnews.org/story/2026/04/23/severe-thunderstorm-watch-until-8-pm-includes-twin-cities-area)
+
+
 ### juventus (N/A, Sun, 26 Apr 2026 12:40:00 -0700)
 
 - **Milan Juventus, il risultato in diretta live della partita di Serie A**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-34/milan-juventus/risultato-gol)
