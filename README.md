@@ -1,3 +1,43 @@
+### ترتيب البطولة المغربية (N/A, Sun, 26 Apr 2026 10:40:00 -0700)
+
+- **المغرب الفاسي يمدد سلسلة النتائج الإيجابية .. ويضغط على الجيش الملكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D9%85%D8%AF%D8%AF-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A5%D9%8A-1737434.html)
+- **المغرب الفاسي ينهي مرحلة الذهاب بأداء مقنع ونتائج لافتة**: [Link](https://alittihad.info/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A7%D8%A8-%D8%A8%D8%A3%D8%AF%D8%A7%D8%A1/)
+- **حضور إداري في تدريبات المغرب الفاسي**: [Link](https://www.radiomars.ma/%D8%AD%D8%B6%D9%88%D8%B1-%D8%A5%D8%AF%D8%A7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A/)
+
+
+### real madrid club de fútbol – dux logroño (N/A, Sun, 26 Apr 2026 10:30:00 -0700)
+
+- **Previa Real Madrid Femenino – DUX Logroño: volver al Di Stéfano para encarrilar el objetivo**: [Link](https://onefootball.com/it/notizie/previa-real-madrid-femenino-dux-logrono-volver-al-di-stefano-para-encarrilar-el-objetivo-42770330)
+- **Real Madrid vs EDF Logroño: resultado EN VIVO de la Liga F**: [Link](https://www.365scores.com/es/news/real-madrid-vs-edf-logrono-vivo-liga-f/)
+- **Real Madrid - DUX Logroño: horario y dónde ver hoy en TV el partido de la Liga F Moeve**: [Link](https://www.marca.com/futbol/futbol-femenino/primera-division/2026/04/26/real-madrid-dux-logrono-horario-ver-hoy-tv-partido-liga-f-moeve.html)
+
+
+### ترتيب الدوري المغربي (N/A, Sun, 26 Apr 2026 10:20:00 -0700)
+
+- **الجولة 16 ترفع الستار.. مواجهات «حاسمة» تشعل الإياب**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-16-%D8%AA%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%B3%D8%AA%D8%A7%D8%B1-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%AA/)
+- **في ما يلي ترتيب البطولة الوطنية الاحترافية "إنوي" لكرة القدم في قسمها الأول، عقب إجراء**: [Link](https://niya.maroc.ma/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-11/)
+- **قمة قوية بين الوداد والكوكب وصراع مشتعل في أسفل الترتيب.. عجلة البطولة تعود للدوران اليوم بإجراء 4 مباريات**: [Link](https://m.elbotola.com/article/2026-04-25-11-20-881.html)
+
+
+### botola pro (N/A, Sun, 26 Apr 2026 10:20:00 -0700)
+
+
+
+
+### كووورة (N/A, Sun, 26 Apr 2026 10:20:00 -0700)
+
+- **الاسم الذي قد يهز المونديال: هل يفعلها وهبي ويضم صاحب الـ28 هدفًا؟!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D8%B0%D9%8A-%D9%82%D8%AF-%D9%8A%D9%87%D8%B2-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%87%D9%84-%D9%8A%D9%81%D8%B9%D9%84%D9%87%D8%A7-%D9%88%D9%87%D8%A8%D9%8A-%D9%88%D9%8A%D8%B6%D9%85-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D9%8028-%D9%87%D8%AF%D9%81%D9%8B%D8%A7/blt26ad10b6cd41ee3b)
+- **بن طيب يفرض نفسه نجماً ويقود تروا لتحقيق الصعود**: [Link](https://www.radiomars.ma/%D8%A8%D9%86-%D8%B7%D9%8A%D8%A8-%D9%8A%D9%81%D8%B1%D8%B6-%D9%86%D9%81%D8%B3%D9%87-%D9%86%D8%AC%D9%85%D8%A7%D9%8B-%D9%88%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D8%B1%D9%88%D8%A7-%D9%84%D8%AA%D8%AD%D9%82%D9%8A/)
+- **بنطيب يخطف الأضواء في فرنسا.. هداف “الليغ 2” وصانع صعود تروا**: [Link](https://www.hesport.com/%D8%A8%D9%86%D8%B7%D9%8A%D8%A8-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A3%D8%B6%D9%88%D8%A7%D8%A1-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D9%84-436451.html)
+
+
+### الدوري المغربي لكرة القدم القسم الثاني (N/A, Sun, 26 Apr 2026 10:20:00 -0700)
+
+- **الفتح الرباطي يرسل اتحاد طنجة إلى القسم الثاني**: [Link](https://www.sport7.ma/%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7%D9%8A-%D9%8A%D8%B1%D8%B3%D9%84-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%B3/)
+- **تعادل ونتائج متباينة في القسم الثاني**: [Link](https://www.hesport.com/%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%88%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%AA%D8%A8%D8%A7%D9%8A%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-436400.html)
+- **تتواصل نهاية الأسبوع الجاري منافسات البطولة الوطنية الاحترافية "إنوي" لكرة القدم في**: [Link](https://niya.maroc.ma/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-15/)
+
+
 ### galatasaray – fenerbahçe (N/A, Sun, 26 Apr 2026 10:10:00 -0700)
 
 - **Musaba: "İstanbul'daki en iyi takımın kim olduğunu göstermek istiyoruz"**: [Link](https://www.ntvspor.net/foto-galeri/musaba-istanbuldaki-en-iyi-takimin-kim-oldugunu-gostermek-istiyoruz-421756)
