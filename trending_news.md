@@ -1,3 +1,24 @@
+### إطلاق نار (N/A, Sun, 26 Apr 2026 03:40:00 -0700)
+
+- **هذا ما نعرفه عن هجوم عشاء مراسلي البيت الأبيض بواشنطن**: [Link](https://www.aljazeera.net/news/2026/4/26/%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A9-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D8%B3%D9%84%D8%AD-%D9%81%D9%8A)
+- **يستضيف منتخبًا عربيًا.. كم يبعد أقرب ملعب للمونديال عن محاولة اغتيال ترامب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D9%8B%D8%A7-%D8%B9%D8%B1%D8%A8%D9%8A%D9%8B%D8%A7--%D9%83%D9%85-%D9%8A%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D9%82%D8%B1%D8%A8-%D9%85%D9%84%D8%B9%D8%A8-%D9%84%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%B9%D9%86-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A9-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8/blt6ffd26651e6af6b3)
+- **بالصور.. لحظات هلع في قلب واشنطن**: [Link](https://www.hespress.com/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D9%87%D9%84%D8%B9-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-1737130.html)
+
+
+### éclipse solaire totale (N/A, Sun, 26 Apr 2026 03:40:00 -0700)
+
+- **Après 157 ans de patience, une éclipse rare va plonger la France dans le noir : notez la date**: [Link](https://sante.journaldesfemmes.fr/quotidien/3263201-eclipse-totale-aout-2026-france-heure/)
+- **La Normandie, spot idéal pour observer la future éclipse, mais avec des lunettes adaptées : nos conseils**: [Link](https://www.paris-normandie.fr/id713130/article/2026-04-23/la-normandie-spot-ideal-pour-observer-la-future-eclipse-mais-avec-des-lunettes)
+- **Eclipse solaire d'août : vers une pénurie de lunettes protectrices ?**: [Link](https://www.pleinevie.fr/vie-quotidienne/eclipse-solaire-daout-vers-une-penurie-de-lunettes-protectrices-203311.html)
+
+
+### النادي الأهلي السعودي لكرة القدم (N/A, Sun, 26 Apr 2026 03:00:00 -0700)
+
+- **نتيجة وملخص تتويج الأهلي بلقب دوري أبطال آسيا للنخبة على حساب ماتشيدا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/25/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D9%85%D8%A7%D8%AA%D8%B4%D9%8A%D8%AF%D8%A7)
+- **بالفيديو: الفراج يعلق على تهنئة الأهلي المصري: "نعديهالك يا كبير الحتة"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%AC-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%AA%D9%87%D9%86%D9%8A%D9%94%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A--%D9%86%D8%B9%D8%AF%D9%8A%D9%87%D8%A7%D9%84%D9%83-%D9%8A%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1-%D8%A7%D9%84%D8%AD%D8%AA%D8%A9/blt142530f32bd519c0)
+- **أبطال آسيا للنخبة: يايسله يصف التتويج بـ"المعاناة" ومدرب ماتشيدا يقرّ بـ "الضغط النفسي"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260426-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-%D9%8A%D8%A7%D9%8A%D8%B3%D9%84%D9%87-%D9%8A%D8%B5%D9%81-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D9%80-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D9%88%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%A7%D8%AA%D8%B4%D9%8A%D8%AF%D8%A7-%D9%8A%D9%82%D8%B1%D9%91-%D8%A8%D9%80-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%86%D9%81%D8%B3%D9%8A)
+
+
 ### مكناس (N/A, Sun, 26 Apr 2026 00:20:00 -0700)
 
 
