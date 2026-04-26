@@ -1,3 +1,17 @@
+### إنتر ميامي ضد نيو إنجلاند (N/A, Sat, 25 Apr 2026 18:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي ونيو إنجلاند في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D9%8A%D9%88-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%A7%D9%86%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb3d29fc5190ebc24)
+- **شاهد.. ميسي يصنع وسواريز يسجل هدفا رائعا في "أغلى مباراة" بالدوري الأمريكي**: [Link](https://www.aljazeera.net/sport/2026/4/23/%D9%85%D9%8A%D8%B3%D9%8A-%D8%B3%D9%88%D8%A7%D8%B1%D9%8A%D8%B2-%D8%A3%D8%BA%D9%84%D9%89-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7)
+- **حصرياً عبر الإنترنت: القنوات الناقلة لمباراة انتر ميامي ونيو انجلاند (خطوة بخطوة)**: [Link](https://www.mojaznews.com/channels-how-to-watch-inter-miami-vs-new-england/)
+
+
+### strikeout (N/A, Sat, 25 Apr 2026 18:30:00 -0700)
+
+- **Best NRFI Bets Today: MLB First Inning Predictions for Saturday, April 25**: [Link](https://sports.yahoo.com/articles/best-nrfi-bets-today-mlb-144600680.html)
+- **DraftKings MLB Pick6 Fantasy Baseball Picks: Top Plays for Saturday 4/25/26**: [Link](https://dknetwork.draftkings.com/2026/04/25/draftkings-mlb-pick6-fantasy-baseball-picks-top-plays-for-saturday-4-25-26/)
+- **Steve Makinen’s MLB Picks from Betting Splits and Systems for Saturday, April 25**: [Link](https://vsin.com/mlb/steve-makinens-mlb-picks-from-betting-splits-and-systems-for-saturday-april-25/)
+
+
 ### trump (N/A, Sat, 25 Apr 2026 18:20:00 -0700)
 
 - **Trump rushed off stage after possible shots fired at White House Correspondents’ Dinner**: [Link](https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner)
