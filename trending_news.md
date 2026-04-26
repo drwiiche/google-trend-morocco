@@ -1,3 +1,10 @@
+### xavi simons (N/A, Sun, 26 Apr 2026 03:30:00 -0700)
+
+- **Simons, Solanke, Vicario - Spurs injury news latest and possible return dates after Wolves whitewash**: [Link](https://www.football.london/tottenham-hotspur-fc/news/spurs-injury-news-latest-wolves-33838691)
+- **Roberto De Zerbi's latest on injuries to Xavi and Dominic Solanke at Wolves**: [Link](https://www.tottenhamhotspur.com/news/1061618/roberto-de-zerbis-latest-on-injuries-to-xavi-and-dominic-solanke-at-wolves)
+- **Solanke limps off with Wolves holding Spurs, Soucek heads West Ham into lead**: [Link](https://talksport.com/football/world-cup/3797714/football-news-live-england-arsenal-liverpool-man-united-man-city-tottenham-chelsea/page/187/)
+
+
 ### rayo – real sociedad (N/A, Sun, 26 Apr 2026 04:20:00 -0700)
 
 - **A qué hora es el Rayo Vallecano - Real Sociedad: horario, dónde ver hoy en TV y canal del partido de LaLiga EA Sports**: [Link](https://www.marca.com/futbol/primera-division/2026/04/24/rayo-vallecano-real-sociedad-horario-donde-ver-hoy-en-tv-y-canal-del-partido-de-laliga-ea-sports.html)
