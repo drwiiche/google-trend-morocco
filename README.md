@@ -1,3 +1,24 @@
+### torino – inter (N/A, Sun, 26 Apr 2026 08:30:00 -0700)
+
+- **Preview: Torino vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/torino/race-for-the-serie-a-title/preview/torino-vs-inter-milan-prediction-team-news-lineups_596361.html)
+- **🔴 Torino-Inter | ✅ Official: calls on Bastoni, Sommer and Casadei**: [Link](https://onefootball.com/de/news/torino-inter-official-calls-on-bastoni-sommer-and-casadei-42772290)
+- **Lautaro Nearing Return to Play with Inter**: [Link](https://www.ysscores.com/en/news/13952774/Lautaro-Nearing-Return-to-Play-with-Inter)
+
+
+### rennes – nantes (N/A, Sun, 26 Apr 2026 08:10:00 -0700)
+
+- **Le groupe pour le derby**: [Link](https://www.staderennais.com/actualites/ligue-1-mcdonalds/le-groupe-pour-le-derby-3)
+- **Code promo Winamax WNMX*** : votre pari Rennes - Nantes remboursé en CASH (100 €) + 10€ de freebets**: [Link](https://www.goal.com/fr/parier-en-ligne/news/code-promo-winamax-rennes-nantes/A%3Abltaba3e0ad14c9688c)
+- **Stade Rennais - FC Nantes. Frankowski et Nordin finalement absents au SRFC pour le derby . Sport**: [Link](https://rennes.maville.com/sport/detail_-stade-rennais-fc-nantes.-frankowski-et-nordin-finalement-absents-au-srfc-pour-le-derby-_-7295201_actu.Htm)
+
+
+### هشام العسري (N/A, Sun, 26 Apr 2026 07:10:00 -0700)
+
+- **العسري يعرض ملابسات سحب "المطرود من رحمة الله" من القاعات السينمائية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D8%B3%D8%B1%D9%8A-%D9%8A%D8%B9%D8%B1%D8%B6-%D9%85%D9%84%D8%A7%D8%A8%D8%B3%D8%A7%D8%AA-%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D9%88%D8%AF-%D9%85%D9%86-%D8%B1%D8%AD%D9%85-1737028.html)
+- **بيان حقوقي ينتقد محتوى فيلم والعسري يرد: “منذ متى و الجمعيات رائدة في الرقابة؟**: [Link](https://ar.hibapress.com/details-719603.html)
+- **جمعية اللقاءات المتوسطية للسينما وحقوق الإنسان ترفض الدعوات لمنع عرض فيلم هشام العسري**: [Link](https://alalam24.press.ma/253746/)
+
+
 ### chelsea (N/A, Sun, 26 Apr 2026 07:50:00 -0700)
 
 - **Chelsea target shock Saudi-based boss as one of FIVE next manager options amid Nagelsmann issues**: [Link](https://www.teamtalk.com/chelsea/next-manager-matthias-jaissle-targeted-major-julian-nagelsmann-issues-exclusive)
