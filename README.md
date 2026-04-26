@@ -1,3 +1,17 @@
+### trump (N/A, Sat, 25 Apr 2026 18:20:00 -0700)
+
+- **Trump rushed off stage after possible shots fired at White House Correspondents’ Dinner**: [Link](https://www.cnn.com/2026/04/25/politics/trump-rushed-white-house-correspondents-dinner)
+- **Removal of President Trump and Evacuation of Dinner**: [Link](https://www.c-span.org/clip/public-affairs-event/removal-of-president-trump-and-evacuation-of-dinner/5199548)
+- **Trump evacuated from WHCD after security incident**: [Link](https://www.axios.com/2026/04/26/trump-evacuated-whcd-secret-service)
+
+
+### ufc (N/A, Sat, 25 Apr 2026 17:00:00 -0700)
+
+- **Ryan Spann Faces a Short-Notice Test as Marcus Buchecha Seeks a First UFC Win**: [Link](https://www.el-balad.com/16924215)
+- **Ryan Spann Knocks Marcus Buchecha Out Stiff At UFC Vegas 116**: [Link](https://www.mmanews.com/article/ryan-spann-knocks-marcus-buchecha-ufc-vegas-116)
+- **UFC Vegas 116: Marcus Buchecha vs. Ryan Spann Predictions & Odds**: [Link](https://sports.betmgm.com/en/blog/ufc/vegas-116-marcus-buchecha-ryan-spann-predictions-odds-bm05/)
+
+
 ### لالة لعروسة (N/A, Sat, 25 Apr 2026 16:30:00 -0700)
 
 - **“لالة العروسة” يصل إلى البرلمان بسبب جدل “كوبل طنجة”**: [Link](https://tanjanews.com/184593.html)
