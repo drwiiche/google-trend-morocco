@@ -1,3 +1,38 @@
+### juventus (N/A, Sun, 26 Apr 2026 12:40:00 -0700)
+
+- **Milan Juventus, il risultato in diretta live della partita di Serie A**: [Link](https://sport.sky.it/calcio/serie-a/partite/2025/giornata-34/milan-juventus/risultato-gol)
+- **Milan-Juve, gol annullato a Thuram e proteste bianconere: cos'è successo**: [Link](https://www.adnkronos.com/sport/milan-juve-gol-annullato-thuram-fuorigioco-cosa-e-successo_Jphyxt3GiXzVAAXKc8l9i)
+- **Serie A: In campo Milan-Juventus DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/26/serie-a-in-campo-milan-juventus-diretta-_dc5157ac-3495-4bc5-bd69-c59c7f9c2fb1.html)
+
+
+### نهضة بركان ضد الدشيرة (N/A, Sun, 26 Apr 2026 12:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة نهضة بركان وأولمبيك الدشيرة في الدوري المغربي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%88%D8%A7%D9%94%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A7%D9%84%D8%AF%D8%B4%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb23c14ad8fe3a42d)
+- **الشكوك تحوم حول مشاركة عسال والمليوي يواصل الغياب عن المجموعة**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%B4%D9%83%D9%88%D9%83-%D8%AA%D8%AD%D9%88%D9%85-%D8%AD%D9%88%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%B9%D8%B3%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%85%D9%84%D9%8A%D9%88%D9%8A-%D9%8A/)
+- **بث مباشر.. فريق نهضة بركان ضد أولمبيك الدشيرة**: [Link](https://snrtnews.com/live/bth-mbashr-fryq-nhdt-brkan-dd-awlmbyk-aldshyrt-150664)
+
+
+### avs – sporting (N/A, Sun, 26 Apr 2026 12:20:00 -0700)
+
+- **Muitas baixas no Sporting: o onze provável frente ao Aves SAD**: [Link](https://www.ojogo.pt/futebol/artigo/muitas-baixas-no-sporting-o-onze-provavel-frente-ao-aves-sad/18077261)
+- **AVS SAD quer repetir exibição de Alvalade na Taça para surpreender o Sporting**: [Link](https://www.record.pt/futebol/futebol-nacional/liga-betclic/avs-sad/detalhe/avs-sad-quer-repetir-exibicao-de-alvalade-na-taca-para-surpreender-o-sporting)
+- **João Henriques e o jogo com o Sporting: «Que os dedos apontados sejam para indicar boas exibições»**: [Link](https://sapo.pt/artigo/joao-henriques-e-o-jogo-com-o-sporting-que-os-dedos-apontados-sejam-para-indicar-boas-exibicoes-69ecc46699947c0794ee973e)
+
+
+### ميلان ضد يوفنتوس (N/A, Sun, 26 Apr 2026 12:20:00 -0700)
+
+- **الذكاء الاصطناعي يجيب: ما النتيجة المتوقعة لمباراة ميلان ويوفنتوس؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AC%D9%8A%D8%A8-%D9%85%D8%A7-%D8%A7%D9%84%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3/blt495263442243cdc5)
+- **مباشر.. مباراة ميلان ويوفنتوس في الدوري الإيطالي**: [Link](https://www.eremnews.com/sports/7qln7qb)
+- **ميلان يواجه يوفنتوس في قمة الكالتشيو... العين على أبطال أوروبا**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%88-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
+### programme tv (N/A, Sun, 26 Apr 2026 12:10:00 -0700)
+
+- **À la TV ce soir : 3 films à regarder ce dimanche**: [Link](https://www.presse-citron.net/a-la-tv-ce-soir-3-films-a-regarder-ce-dimanche-118/)
+- **Ce soir à la télé : notre sélection du dimanche 26 avril**: [Link](https://www.telerama.fr/television/ce-soir-a-la-tele-notre-selection-du-dimanche-26-avril-7030797.php)
+- **À la TV ce soir : 3 films à regarder ce dimanche 26 avril 2026**: [Link](https://www.journaldugeek.com/2026/04/26/a-la-tv-ce-soir-3-films-a-regarder-ce-dimanche-26-avril-2026/)
+
+
 ### as far (N/A, Sun, 26 Apr 2026 12:00:00 -0700)
 
 - **Sundowns Ask CAF to Reschedule First Leg Against AS FAR**: [Link](https://www.moroccoworldnews.com/2026/04/288756/sundowns-ask-caf-to-reschedule-first-leg-against-as-far/)
