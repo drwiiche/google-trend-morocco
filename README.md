@@ -1,3 +1,24 @@
+### osasuna – séville (N/A, Sun, 26 Apr 2026 09:00:00 -0700)
+
+- **Osasuna - FC Séville**: [Link](https://www.flashscore.fr/match/football/osasuna-ETdxjU8a/sevilla-h8oAv4Ts/resume/compositions/?mid=YHhyib9b)
+- **Pronostic CA Osasuna - Séville, Liga**: [Link](https://www.sportytrader.com/pronostics/ca-osasuna-seville-344864/)
+- **Où voir Osasuna vs Sevilla, sur quelle chaîne de streaming ?**: [Link](https://www.footix.fr/ou-voir-osasuna-vs-sevilla-sur-quelle-chaine-de-streaming/)
+
+
+### le havre – metz (N/A, Sun, 26 Apr 2026 08:50:00 -0700)
+
+- **DIRECT. Le Havre-Metz (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/le-havre-metz-live/676066)
+- **Football – Ligue 1. Un absent marque au coup d’envoi : le « onze » du HAC dévoilé**: [Link](https://www.paris-normandie.fr/id713655/article/2026-04-26/football-ligue-1-un-absent-marque-au-coup-denvoi-le-onze-du-hac-devoile)
+- **PRONOS PARIS RMC Le pari à domicile du 26 avril - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-a-domicile-du-26-avril-ligue-1_AN-202604250221.html)
+
+
+### دولة مالي (N/A, Sun, 26 Apr 2026 08:00:00 -0700)
+
+- **تجدد القتال في مالي ومقتل وزير الدفاع كامارا**: [Link](https://www.aljazeera.net/news/2026/4/26/%D8%AA%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%82%D8%AA%D8%A7%D9%84-%D9%81%D9%8A-%D9%85%D8%A7%D9%84%D9%8A-%D9%88%D8%A3%D9%86%D8%A8%D8%A7%D8%A1-%D8%B9%D9%86-%D9%85%D9%82%D8%AA%D9%84-%D9%88%D8%B2%D9%8A%D8%B1)
+- **مقتل وزير دفاع مالي في قلب باماكو في هجوم بسيارة مفخخة**: [Link](https://www.skynewsarabia.com/world/1866346-%D9%85%D9%82%D8%AA%D9%84-%D9%88%D8%B2%D9%8A%D8%B1-%D8%AF%D9%81%D8%A7%D8%B9-%D9%85%D8%A7%D9%84%D9%8A-%D9%82%D9%84%D8%A8-%D8%A8%D8%A7%D9%85%D8%A7%D9%83%D9%88-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%85%D9%81%D8%AE%D8%AE%D8%A9)
+- **مالي: الطوارق يعلنون انسحاب الجنود الروس من كيدال ومصدر حكومي يؤكد مقتل وزير الدفاع قرب باماكو**: [Link](https://www.france24.com/ar/%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/20260426-%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D8%AC%D9%8A%D8%B4-%D9%85%D8%A7%D9%84%D9%8A-%D9%81%D8%A7%D8%BA%D9%86%D8%B1-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%85%D8%AA%D9%85%D8%B1%D8%AF%D9%88%D9%86-%D8%B7%D9%88%D8%A7%D8%B1%D9%82-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%AF%D8%A9)
+
+
 ### torino – inter (N/A, Sun, 26 Apr 2026 08:30:00 -0700)
 
 - **Preview: Torino vs Inter Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/torino/race-for-the-serie-a-title/preview/torino-vs-inter-milan-prediction-team-news-lineups_596361.html)
