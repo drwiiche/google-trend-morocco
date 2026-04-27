@@ -1,3 +1,31 @@
+### julián alvarez (N/A, Mon, 27 Apr 2026 14:50:00 -0700)
+
+- **Julián Álvarez, contundente al hablar sobre el Barça**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260427/1004176023/julian-alvarez-contundente-hablar-sobre-barca.html)
+- **El Barça acelera por Julián Álvarez**: [Link](https://www.sport.es/es/noticias/barca/barca-acelera-julian-alvarez-129580444)
+- **Julián Álvarez sobre los rumores de traspaso: “No puedo salir a aclarar todo lo que salga”**: [Link](https://cnnespanol.cnn.com/2026/04/27/deportes/video/julian-alvarez-posible-traspaso-deportes-tv)
+
+
+### météo pour demain (N/A, Mon, 27 Apr 2026 13:30:00 -0700)
+
+- **TOULON : Météo - Mardi sur la Provence-Alpes-Côte d'Azur, des nuages arrivent dès le matin**: [Link](https://presseagence.fr/toulon-meteo-mardi-sur-la-provence-alpes-cote-dazur-des-nuages-arrivent-des-le-matin/)
+- **Météo PACA mardi 28 avril : nos prévisions pour demain**: [Link](https://actus.meteocity.com/previsions-meteo/meteo-paca-mardi-28-avril-nos-previsions-pour-demain-6774)
+- **TOULON : Météo - Quelques nuages lundi sur la Provence-Alpes-Côte d'Azur**: [Link](https://presseagence.fr/toulon-meteo-quelques-nuages-lundi-sur-la-provence-alpes-cote-dazur/)
+
+
+### lazio – udinese (N/A, Mon, 27 Apr 2026 13:10:00 -0700)
+
+- **Ammonito Cancellieri diffidato: salterà la trasferta di Cremona**: [Link](https://onefootball.com/it/notizie/ammonito-cancellieri-diffidato-saltera-la-trasferta-di-cremona-42778774)
+- **Lazio-Udinese, le pagelle: perla Pedro, 6,5. Atta, sostanza e gol, 7**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Lazio/27-04-2026/lazio-udinese-le-pagelle-atta-7.shtml)
+- **Sportmediaset: finale folle all’Olimpico, Maldini riacciuffa i friulani al 95esimo**: [Link](https://www.udineseblog.it/udinese/rassegna-stampa/sportmediaset-finale-folle-allolimpico-maldini-riacciuffa-i-friulani-al-95esimo/)
+
+
+### أزمة التقاعد (N/A, Mon, 27 Apr 2026 11:50:00 -0700)
+
+- **فتاح العلوي تقصف برلمانية بيجيدية: "كون حكومتكم حلات أزمة التقاعد مكنتش نحتاج نقدم استقالتي"**: [Link](https://ar.hibapress.com/details-720721.html)
+- **مواجهة ساخنة بالبرلمان.. وزيرة المالية ترفض دعوات الاستقالة وتحمل حكومة البيجدي وزر أزمة التقاعد**: [Link](https://al3omk.com/1156079.html)
+- **تراشق ناري تحت قبة البرلمان.. وزيرة المالية لنائبة “البيجيدي”: سأستقيل إذا لم تورثونا أزمة التقاعد!**: [Link](https://www.akhbarona.com/videos/425016.html)
+
+
 ### lazio (N/A, Mon, 27 Apr 2026 13:50:00 -0700)
 
 - **Serie A, in campo Lazio-Udinese DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/27/serie-a-in-campo-lazio-udinese-diretta_77788005-6407-4457-9105-c2bedaa42fc2.html)
