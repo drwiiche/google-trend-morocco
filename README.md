@@ -1,3 +1,43 @@
+### الجامعة الملكية المغربية لكرة القدم (N/A, Sun, 26 Apr 2026 23:40:00 -0700)
+
+- **بلاغ الجامعة الملكية المغربية لكرة القدم**: [Link](https://frmf.ma/articles/communique-de-la-frmf-1)
+- **"كرة تنزانيا" تستعين بحكام مغاربة**: [Link](https://www.hespress.com/%D9%83%D8%B1%D8%A9-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D8%B9%D9%8A%D9%86-%D8%A8%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-1737546.html)
+- **تحكيم مغربي لإدارة قمة الدوري التانزاني**: [Link](https://www.ahdath.info/%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D8%A7%D9%86%D8%B2%D8%A7/)
+
+
+### حالة الطقس (N/A, Sun, 26 Apr 2026 23:20:00 -0700)
+
+- **أمطار خفيفة ومتوسطة تضرب الإسكندرية.. صور**: [Link](https://www.youm7.com/story/2026/4/27/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%88%D9%85%D8%AA%D9%88%D8%B3%D8%B7%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%A5%D8%B3%D9%83%D9%86%D8%AF%D8%B1%D9%8A%D8%A9-%D8%B5%D9%88%D8%B1/7391996)
+- **هطول أمطار خفيفة ومتوسطة على أحياء متفرقة في الإسكندرية- صور**: [Link](https://www.masrawy.com/news/news_regions/details/2026/4/27/2978651/%D9%87%D8%B7%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D9%88%D9%85%D8%AA%D9%88%D8%B3%D8%B7%D8%A9-%D8%B9%D9%84%D9%89-%D8%A3%D8%AD%D9%8A%D8%A7%D8%A1-%D9%85%D8%AA%D9%81%D8%B1%D9%82%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D9%83%D9%86%D8%AF%D8%B1%D9%8A%D8%A9-%D8%B5%D9%88%D8%B1)
+- **طقس متقلب يضرب الإسكندرية مصحوبا بأمطار خفيفة.. وتحذيرات من موجة رعدية حتى الخميس**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=26042026&id=470b71c0-d149-4583-825f-8213d9d5021a)
+
+
+### météo (N/A, Sun, 26 Apr 2026 23:00:00 -0700)
+
+- **Lille : prévisions météo du lundi 27 avril 2026**: [Link](https://actus.meteocity.com/previsions-meteo/lille-previsions-meteo-du-lundi-27-avril-2026-6763)
+- **Bonsoir Lille du jeudi 23 avril 2026**: [Link](https://www.bfmtv.com/grand-lille/replay-emissions/bonsoir-lille/video-bonsoir-lille-du-jeudi-23-avril-2026_VN-202604230776.html)
+- **Météo. Quel temps est-il prévu à Lille et ses environs le lundi 27 avril 2026 ?**: [Link](https://www.ouest-france.fr/meteo/hauts-de-france/lille-59000/la-meteo-du-jour-a-lille-62e72b08-0556-492b-a4e6-df2befab7657)
+
+
+### weather (N/A, Sun, 26 Apr 2026 23:00:00 -0700)
+
+- **First Alert for rain, scattered storms, and cooler in the days ahead**: [Link](https://www.wsaw.com/2026/04/26/first-alert-rain-scattered-storms-cooler-days-ahead/)
+- **Tracking severe weather for the start of the week**: [Link](https://www.wkow.com/weather/forecast/tracking-severe-weather-for-the-start-of-the-week/article_35fdcb03-6792-4bdb-9c99-efd265e1db8c.html)
+- **Weather: Tracking Monday Storm Threat**: [Link](https://www.wisn.com/article/se-wisconsin-forecast-weather-tracking-monday-storm-threat/71131830)
+
+
+### la météo (N/A, Sun, 26 Apr 2026 22:00:00 -0700)
+
+
+
+
+### transavia (N/A, Sun, 26 Apr 2026 14:10:00 -0700)
+
+- **Transavia cancels some May, June flights on kerosene price rise**: [Link](https://www.bssnews.net/international/381772)
+- **Rising fuel prices disrupt European travel plans; Transavia France reduces flights and reschedules operations**: [Link](https://www.voiceofemirates.com/en/business/2026/04/27/rising-fuel-prices-disrupt-european-travel-plans-transavia-france-reduces-flights-and-reschedules-operations/)
+- **French airline cancels flights over fuel shortage fears**: [Link](https://www.connexionfrance.com/news/french-airline-cancels-flights-over-fuel-shortage-fears/786415)
+
+
 ### المهاجرون (N/A, Sun, 26 Apr 2026 13:00:00 -0700)
 
 - **مساع أمريكية لتجريد مئات المواطنين المولودين في الخارج من الجنسية**: [Link](https://www.aljazeera.net/news/2026/4/25/%D9%85%D8%A6%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D9%8A%D9%86-%D9%85%D9%86-%D8%A3%D8%B5%D9%88%D9%84-%D8%A3%D8%AC%D9%86%D8%A8%D9%8A%D8%A9-%D9%85%D9%87%D8%AF%D8%AF%D9%88%D9%86)
