@@ -1,3 +1,31 @@
+### espanyol – levante (N/A, Mon, 27 Apr 2026 11:20:00 -0700)
+
+- **La tertulia mide el “cagazo” antes del Espanyol - Levante: ganar para no entrar en modo autodestrucción; quien debe saltar del once de hoy, el movimiento de Pace con los posibles inversores y el debate sobre la justicia o no de cerrar parte de la grada esta**: [Link](https://lagrada.org/espanyol-levante-miedo-pace-cierre-grada-once-centro-campo-tertulia-grada-radio/)
+- **Lista de convocados de Manolo González para jugar ante el Levante**: [Link](https://pericos.es/2026/04/27/lista-de-convocados-de-manolo-gonzalez-para-jugar-ante-el-levante/)
+- **Urko, Ngonge y Terrats, altas en el Espanyol; Víctor García y Paco Cortés, en el Levante**: [Link](https://www.infobae.com/espana/agencias/2026/04/27/urko-ngonge-y-terrats-altas-en-el-espanyol-victor-garcia-y-paco-cortes-en-el-levante/)
+
+
+### مان يونايتد ضد برينتفورد (N/A, Mon, 27 Apr 2026 11:20:00 -0700)
+
+- **موعد مباراة المان يونايتد ضد برينتفورد والقناة الناقلة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%A8%D8%B1%D9%8A%D9%86%D8%AA%D9%81%D9%88%D8%B1%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/19342)
+- **تشكيلة مانشستر يونايتد الرسمية ضد برينتفورد في الدوري الإنجليزي**: [Link](https://hihi2.com/2026/04/27/p3742254.html)
+- **شاهد بث مباشر لمباراة مانشستر يونايتد وبرينتفورد في الدوري الإنجليزي مباشر وبدون تقطيع**: [Link](https://tawusal.com/126555/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
+
+
+### manchester united – brentford (N/A, Mon, 27 Apr 2026 11:10:00 -0700)
+
+- **Manchester United vs Brentford LIVE: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c79jpd052gjt)
+- **Carrick reveals team news for Brentford clash**: [Link](https://www.manutd.com/en/news/detail/team-news-for-man-utd-v-brentford-on-27-april-2026)
+- **Injury Crisis: 11 Players Sidelined Ahead of Man United vs Brentford**: [Link](https://streamlinefeed.co.ke/news/injury-crisis-11-players-sidelined-ahead-of-man-united-vs-brentford)
+
+
+### غواصة (N/A, Mon, 27 Apr 2026 10:10:00 -0700)
+
+- **ثورة تحت البحر .. غواصة مذهلة بلا طاقم تصنع التاريخ**: [Link](https://www.albayan.ae/news/world/1228008)
+- **"الأسطول الآلي" يعيد رسم قواعد الاشتباك في البحار**: [Link](https://www.eremnews.com/economy/ueitc3g)
+- **«سفينة شبحية بلا طاقم».. التكنولوجيا تُعيد كتابة قواعد الحروب البحرية**: [Link](https://www.okaz.com.sa/variety/na/2245578)
+
+
 ### pyramids – al ahly (N/A, Mon, 27 Apr 2026 10:10:00 -0700)
 
 - **In the Nile League: Zamalek vs. Enppi + Al Ahly vs. Pyramids**: [Link](https://enterpriseam.com/egypt/2026/04/27/in-the-nile-league-zamalek-vs-enppi-al-ahly-vs-pyramids/)
