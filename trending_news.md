@@ -1,3 +1,17 @@
+### pyramids – al ahly (N/A, Mon, 27 Apr 2026 10:10:00 -0700)
+
+- **In the Nile League: Zamalek vs. Enppi + Al Ahly vs. Pyramids**: [Link](https://enterpriseam.com/egypt/2026/04/27/in-the-nile-league-zamalek-vs-enppi-al-ahly-vs-pyramids/)
+- **Jess Thorup announces Al Ahly squad for crucial Pyramids clash in Egyptian Premier League title race**: [Link](https://africasoccer.com/jess-thorup-announces-al-ahly-squad-for-crucial-pyramids-clash-in-egyptian-premier-league-title-race/)
+- **Today's match schedule and broadcast channels.. Al Ahly faces Pyramids and Zamalek clashes with Enppi**: [Link](https://www.voiceofemirates.com/en/sport/2026/04/27/todays-match-schedule-and-broadcast-channels-al-ahly-faces-pyramids-and-zamalek-clashes-with-enppi/)
+
+
+### al sadd – al shamal (N/A, Mon, 27 Apr 2026 10:10:00 -0700)
+
+- **Doha Bank Stars League: Al Sadd, Al Shamal Coaches Play for Title on Monday**: [Link](https://qna.org.qa/en/News-Area/News/2026-4/26/doha-bank-stars-league-al-sadd-al-shamal-coaches-play-for-title-on-monday)
+- **Al Sadd eye encore, Al Shamal look for maiden title in QSL showdown**: [Link](https://thepeninsulaqatar.com/article/27/04/2026/al-sadd-eye-encore-al-shamal-look-for-maiden-title-in-qsl-showdown)
+- **Shamal awarded win against Qatar SC as title race revived| Gulf Times**: [Link](https://www.gulf-times.com/article/724202/sport/football/shamal-awarded-win-against-qatar-sc-as-title-race-revived)
+
+
 ### cagliari – atalanta (N/A, Mon, 27 Apr 2026 09:30:00 -0700)
 
 - **Serie A, in campo Cagliari-Atalanta DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/27/serie-a-in-campo-cagliari-atalanta-diretta_bc3421a6-c631-4fd1-947a-e854d603fd66.html)
