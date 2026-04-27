@@ -1,3 +1,17 @@
+### cagliari – atalanta (N/A, Mon, 27 Apr 2026 09:30:00 -0700)
+
+- **Serie A, in campo Cagliari-Atalanta DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/27/serie-a-in-campo-cagliari-atalanta-diretta_bc3421a6-c631-4fd1-947a-e854d603fd66.html)
+- **Il traguardo è lì a un passo**: [Link](https://www.unionesarda.it/podcast/il-traguardo-e-li-a-un-passo-l88jzxe5)
+- **Pisacane con Borrelli dall'inizio**: [Link](https://www.rainews.it/tgr/sardegna/articoli/2026/04/pisacane-con-borrelli-dallinizio-a04cd49c-1eb2-4422-875a-57323f3373f4.html)
+
+
+### mohammed vi (N/A, Mon, 27 Apr 2026 08:10:00 -0700)
+
+- **Coût final, spécificités, défis: la Tour Mohammed VI comme si vous y étiez**: [Link](https://fr.le360.ma/societe/cout-final-specificites-defis-la-tour-mohammed-vi-comme-si-vous-y-etiez_XMXDYU3ZO5GS7JANU6HM7YPN2I/)
+- **La Tour Mohammed VI, nouveau symbole de la modernité marocaine**: [Link](https://fr.hespress.com/471270-la-tour-mohammed-vi-nouveau-symbole-de-la-modernite-marocaine.html)
+- **Tour Mohammed VI. Révélations exclusives de Othman Benjelloun sur un projet hors norme**: [Link](https://medias24.com/2026/04/27/tour-mohammed-vi-revelations-exclusives-de-othman-benjelloun-sur-un-projet-hors-norme-1666595/)
+
+
 ### إلياس شعيرة (N/A, Mon, 27 Apr 2026 07:50:00 -0700)
 
 - **المغربي شعيرة يحزر هدفه الثاني على التوالي مع افييدو**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B4%D8%B9%D9%8A%D8%B1%D8%A9-%D9%8A%D8%AD%D8%B2%D8%B1-%D9%87%D8%AF%D9%81%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%81%D9%8A%D9%8A%D8%AF%D9%88/19271)
