@@ -1,3 +1,10 @@
+### lazio (N/A, Mon, 27 Apr 2026 13:50:00 -0700)
+
+- **Serie A, in campo Lazio-Udinese DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/04/27/serie-a-in-campo-lazio-udinese-diretta_77788005-6407-4457-9105-c2bedaa42fc2.html)
+- **Ammonito Cancellieri diffidato: salterà la trasferta di Cremona**: [Link](https://onefootball.com/it/notizie/ammonito-cancellieri-diffidato-saltera-la-trasferta-di-cremona-42778774)
+- **Roma, possibile forfait di Zaccagni in vista del derby: cosa sappiamo**: [Link](https://www.romanews.eu/roma-possibile-forfait-di-zaccagni-in-vista-del-derby-cosa-sappiamo/)
+
+
 ### météo demain (N/A, Mon, 27 Apr 2026 12:50:00 -0700)
 
 - **Une goutte froide arrive sur la France et va provoquer des orages avec de fortes pluies et de la grêle dans ces régions**: [Link](https://www.tameteo.com/actualites/previsions/une-goutte-froide-arrive-sur-la-france-et-va-provoquer-des-orages-avec-de-fortes-pluies-et-de-la-grele-dans-ces-regions-meteo.html)
