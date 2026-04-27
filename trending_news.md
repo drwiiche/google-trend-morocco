@@ -1,3 +1,43 @@
+### ice (N/A, Mon, 27 Apr 2026 02:50:00 -0700)
+
+- **Trump endorses the idea of changing ICE to NICE**: [Link](https://www.foxnews.com/politics/trump-endorses-idea-changing-ice-nice)
+- **Trump, 79, Demands Cringe-Inducing Positive ICE Rebrand**: [Link](https://www.thedailybeast.com/trump-79-demands-cringe-inducing-positive-ice-rebrand/)
+- **Trump wants to change the name of ICE agents to change public image**: [Link](https://www.aol.com/articles/trump-wants-change-name-ice-075423841.html)
+
+
+### كيليان مبابي (N/A, Mon, 27 Apr 2026 02:30:00 -0700)
+
+- **مفاجأة: انتهاء موسم مبابي مع ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D9%85%D9%88%D8%B3%D9%85-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt18101db5a191da5a)
+- **خروج مقلق لمبابي.. وفرنسا "تضع يدها على قلبها" قبل المونديال**: [Link](https://www.skynewsarabia.com/sport/1866078-%D8%AE%D8%B1%D9%88%D8%AC-%D9%85%D9%82%D9%84%D9%82-%D9%84%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%AA%D8%B6%D8%B9-%D9%8A%D8%AF%D9%87%D8%A7-%D9%82%D9%84%D8%A8%D9%87%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+- **هل يشارك في الكلاسيكو؟.. تطورات حالة كيليان مبابي**: [Link](https://www.eremnews.com/sports/hdbms5p)
+
+
+### naftali bennett (N/A, Mon, 27 Apr 2026 01:50:00 -0700)
+
+- **Former Israeli Premiers Join in Bid to Oust Netanyahu in Elections**: [Link](https://www.nytimes.com/2026/04/26/world/middleeast/israel-netanyahu-lapid-bennett.html)
+- **‘Israel must change direction’: Netanyahu rivals join forces for next election**: [Link](https://www.theguardian.com/world/2026/apr/27/netanyahu-opposition-announce-new-party-naftali-bennett-yair-lapid)
+- **Benjamin Netanyahu’s biggest rivals merge Israeli political parties**: [Link](https://www.ft.com/content/3bdeac99-19b2-45df-b0bb-a79e187f1c16?syn-25a6b1a6=1)
+
+
+### sabastian sawe (N/A, Mon, 27 Apr 2026 01:30:00 -0700)
+
+- **Bread and honey for breakfast and 150 miles a week training: secrets of Sawe’s world record**: [Link](https://www.theguardian.com/sport/2026/apr/26/bread-and-honey-london-marathon-sabastian-sawe-world-record-2026)
+- **London Marathon 2026 results: Sabastian Sawe makes history with first competitive sub-two-hour marathon**: [Link](https://www.bbc.com/sport/athletics/articles/crm1m7e0zwzo)
+- **A look at some notable milestones achieved in world athletics over the years**: [Link](https://abcnews.com/Sports/wireStory/notable-milestones-achieved-world-athletics-years-132403097)
+
+
+### الطقس اليوم (N/A, Sun, 26 Apr 2026 23:30:00 -0700)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-60-1737243.html)
+- **مديرية الأرصاد تتوقع انخفاض درجات الحرارة وزخات رعدية بهذه المناطق المغربية**: [Link](https://ar.lesiteinfo.com/maroc/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD-997926.html)
+- **طقس اليوم السبت : زخات رعدية مرتقبة بالأطلس والريف وأجواء حارة بالجنوب**: [Link](https://chouftv.ma/press/781116.html)
+
+
+### meteo (N/A, Sun, 26 Apr 2026 23:20:00 -0700)
+
+- **Météo Paris : le retour de la pluie prévu pour le long week-end du 1er mai !**: [Link](https://www.lebonbon.fr/paris/news/meteo-paris-retour-pluie-prevu-long-week-end-1er-mai-2026/)
+
+
 ### transavia annulation vol (N/A, Mon, 27 Apr 2026 02:10:00 -0700)
 
 - **Transavia annule des vols en mai et juin en raison de la flambée du prix du kérosène**: [Link](https://rmc.bfmtv.com/actualites/societe/transports/moyen-orient-transavia-annule-des-vols-en-mai-et-juin-en-raison-de-la-flambee-du-prix-du-kerosene_AN-202604260248.html)
