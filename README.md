@@ -1,3 +1,38 @@
+### météo demain (N/A, Mon, 27 Apr 2026 12:50:00 -0700)
+
+- **Une goutte froide arrive sur la France et va provoquer des orages avec de fortes pluies et de la grêle dans ces régions**: [Link](https://www.tameteo.com/actualites/previsions/une-goutte-froide-arrive-sur-la-france-et-va-provoquer-des-orages-avec-de-fortes-pluies-et-de-la-grele-dans-ces-regions-meteo.html)
+- **Météo : Grêle, orage et averses… Une goutte froide prévue dans le Sud dès ce mardi**: [Link](https://www.20minutes.fr/planete/4220597-20260427-meteo-grele-orage-averses-goutte-froide-prevue-sud-mardi)
+- **Météo : une dégradation orageuse va toucher une partie du pays, voici les régions concernées**: [Link](https://fr.news.yahoo.com/m%C3%A9t%C3%A9o-d%C3%A9gradation-orageuse-va-toucher-070200113.html)
+
+
+### الطقس غدًا (N/A, Mon, 27 Apr 2026 12:50:00 -0700)
+
+- **حالة الطقس اليوم أجواء ربيعية متقلبة مع تفاصيل درجات الحرارة غدًا**: [Link](https://tawusal.com/126312/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B1%D8%A8%D9%8A%D8%B9%D9%8A%D8%A9-%D9%85%D8%AA%D9%82%D9%84%D8%A8%D8%A9-%D9%85/)
+- **ظاهرة خطيرة تظهر مع بزوغ الفجر تهدد سلامة السائقين على هذه الطرق**: [Link](https://radar2.net/1071280/%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9-%D8%AA%D8%B8%D9%87%D8%B1-%D9%85%D8%B9-%D8%A8%D8%B2%D9%88%D8%BA-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-%D8%AA%D9%87%D8%AF%D8%AF-%D8%B3%D9%84%D8%A7/)
+- **الأرصاد تتوقع ارتفاعا طفيفا في الحرارة غدا مع شبورة ورياح**: [Link](https://mrj3y.com/433352/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9%D8%A7-%D8%B7%D9%81%D9%8A%D9%81%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1/)
+
+
+### إسبانيول ضد ليفانتي (N/A, Mon, 27 Apr 2026 12:30:00 -0700)
+
+- **ليفانتي يستقبل إشبيلية في موقعة الهروب من الهبوط (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/04/levante-sevilla-j33-laliga-pronostic.html)
+- **ليفانتى يتخطى إشبيلية ورايو فاليكانو يهزم إسبانيول فى الدورى الإسبانى**: [Link](https://www.youm7.com/story/2026/4/23/%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%89-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%88%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%8A%D9%87%D8%B2%D9%85-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%89/7388692)
+- **ليفانتي يقهر اشبيلية ويشعل صراع البقاء في الليغا**: [Link](https://elsport.com/news/show/820683/%7B%7Burl%7D%7D)
+
+
+### الأهرام ضد الأهلي (N/A, Mon, 27 Apr 2026 12:30:00 -0700)
+
+- **انتصار ساحق.. بيراميدز يقتل حلم الأهلي في الدوري المصري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%B3%D8%A7%D8%AD%D9%82--%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%8A%D9%82%D8%AA%D9%84-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A/blt66433bb50d444bdd)
+- **حكم دولي يوضح لمصراوي صحة ركلة جزاء بيراميدز وهدف الأهلي الملغي**: [Link](https://www.masrawy.com/sports/sports_news/details/2026/4/27/2979153/%D8%AD%D9%83%D9%85-%D8%AF%D9%88%D9%84%D9%8A-%D9%8A%D9%88%D8%B6%D8%AD-%D9%84%D9%85%D8%B5%D8%B1%D8%A7%D9%88%D9%8A-%D8%B5%D8%AD%D8%A9-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%88%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D8%BA%D9%8A)
+- **تصدي احمد الشناوي الرائع يحرم الاهلي من هدف امام بيراميدز**: [Link](https://www.btolat.com/video/92580)
+
+
+### psg vs bayern (N/A, Mon, 27 Apr 2026 10:40:00 -0700)
+
+- **‘No Team Better Than PSG’: Enrique Confident Ahead of Bayern Clash**: [Link](https://www.moroccoworldnews.com/2026/04/288878/no-team-better-than-psg-enrique-confident-ahead-of-bayern-clash/)
+- **Manuel Neuer on how the game has changed**: [Link](https://www.uefa.com/uefachampionsleague/video/02a4-207d4c626bf8-ec544a4a961d-1000--manuel-neuer-on-how-the-game-has-changed/)
+- **2026 UEFA Champions League Semifinals Betting Preview**: [Link](https://www.complex.com/bets/a/matt-burke/2026-champions-league-semifinals-betting-preview)
+
+
 ### espanyol – levante (N/A, Mon, 27 Apr 2026 11:20:00 -0700)
 
 - **La tertulia mide el “cagazo” antes del Espanyol - Levante: ganar para no entrar en modo autodestrucción; quien debe saltar del once de hoy, el movimiento de Pace con los posibles inversores y el debate sobre la justicia o no de cerrar parte de la grada esta**: [Link](https://lagrada.org/espanyol-levante-miedo-pace-cierre-grada-once-centro-campo-tertulia-grada-radio/)
