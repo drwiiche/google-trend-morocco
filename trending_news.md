@@ -1,3 +1,36 @@
+### transavia annulation vol (N/A, Mon, 27 Apr 2026 02:10:00 -0700)
+
+- **Transavia annule des vols en mai et juin en raison de la flambée du prix du kérosène**: [Link](https://rmc.bfmtv.com/actualites/societe/transports/moyen-orient-transavia-annule-des-vols-en-mai-et-juin-en-raison-de-la-flambee-du-prix-du-kerosene_AN-202604260248.html)
+- **« Notre avion a été reprogrammé… 5 jours plus tard » : annulations et reports de vols en série à cause du manque de kérosène**: [Link](https://www.leparisien.fr/societe/notre-avion-a-ete-reprogramme-5-jours-plus-tard-annulations-et-reports-de-vols-en-serie-a-cause-du-manque-de-kerosene-26-04-2026-O2SSOMA675EYLDZQKW3ELATJ2Y.php)
+- **UE: Les réserves de kérosène sont "suffisants" pour la demande actuelle**: [Link](https://fr.hespress.com/471101-ue-les-reserves-de-kerosene-sont-suffisants-pour-la-demande-actuelle.html)
+
+
+### أمن (N/A, Mon, 27 Apr 2026 01:40:00 -0700)
+
+- **لماذا تحولت تغريدة أوباما عن استهداف ترمب إلى محاكمة رقمية؟**: [Link](https://www.aljazeera.net/news/2026/4/27/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D8%AD%D9%88%D9%84%D8%AA-%D8%AA%D8%BA%D8%B1%D9%8A%D8%AF%D8%A9-%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D8%A7-%D8%B9%D9%86-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81)
+- **كيف ولماذا؟.. مراسلة CNN تكشف معلومات عن المشتبه به في حادثة حفل عشاء مراسلي البيت الأبيض**: [Link](https://arabic.cnn.com/world/video/2026/04/27/v193158-what-we-know-white-house-correspondents-dinner-shooting-suspect-kyung-lah-digvid)
+- **قبل الهجوم.. رسالة من مطلق النار على حفل مراسلي البيت الأبيض: "لا أتوقع المغفرة"**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/04/27/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D9%86-%D9%85%D8%B7%D9%84%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D8%AD%D9%81%D9%84-%D9%85%D8%B1%D8%A7%D8%B3%D9%84%D9%8A-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A7%D8%A8%D9%8A%D8%B6-%D9%84%D8%A7-%D8%A7%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D9%81%D8%B1%D8%A9)
+
+
+### المديرية العامة للضرائب (N/A, Mon, 27 Apr 2026 01:00:00 -0700)
+
+- **تحديث روابط جبايتك لتعزيز الخدمات الرقمية**: [Link](https://rasselmal.com/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-%D8%B1%D9%88%D8%A7%D8%A8%D8%B7-%D8%AC%D8%A8%D8%A7%D9%8A%D8%AA%D9%83-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1/)
+- **بيان هام من المديرية العامة للضرائب**: [Link](https://elhayat.dz/%D8%A8%D9%8A%D8%A7%D9%86-%D9%87%D8%A7%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D9%84%D8%B6%D8%B1%D8%A7%D8%A6%D8%A8-6/)
+- **الضرائب تحدث روابط خدماتها الرقمية**: [Link](https://www.akhbardzair.dz/%D8%A7%D9%84%D8%B6%D8%B1%D8%A7%D8%A6%D8%A8-%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B1%D9%88%D8%A7%D8%A8%D8%B7-%D8%AE%D8%AF%D9%85%D8%A7%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%B1%D9%82%D9%85%D9%8A%D8%A9/)
+
+
+### akhbarona (N/A, Sun, 26 Apr 2026 22:40:00 -0700)
+
+
+
+
+### حالة الطقس اليوم (N/A, Sun, 26 Apr 2026 22:00:00 -0700)
+
+- **من موجات الحر إلى الفيضانات .. سيناريوهات مناخية "مقلقة" في المغرب**: [Link](https://www.hespress.com/%D9%85%D9%86-%D9%85%D9%88%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7-1736656.html)
+- **توقعات علمية: احتمال ظاهرة "إل نينيو فائقة" يرفع حرارة 2026 ويهدد أرقاما قياسية جديدة**: [Link](https://arabic.euronews.com/2026/04/25/powerful-el-nino-projected-to-be-2c-warmer-than-normal-puts-2026-on-track-for-the-second-w)
+- **عاجل.. درجات حرارة تفوق المستويات.. ظاهرة جوية تسيطر على هذه البلاد في 2026**: [Link](https://www.elwatannews.com/news/details/8271826)
+
+
 ### الجامعة الملكية المغربية لكرة القدم (N/A, Sun, 26 Apr 2026 23:40:00 -0700)
 
 - **بلاغ الجامعة الملكية المغربية لكرة القدم**: [Link](https://frmf.ma/articles/communique-de-la-frmf-1)
