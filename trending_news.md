@@ -1,3 +1,24 @@
+### forafric (N/A, Mon, 27 Apr 2026 05:20:00 -0700)
+
+- **CORRECTING and REPLACING Forafric Global PLC Seeks Strategic Expansion Into Defense, Food Security and Energy and Adjacent High-Growth Sectors**: [Link](https://www.stocktitan.net/news/AFRI/correcting-and-replacing-forafric-global-plc-seeks-strategic-qkzommqhwmvw.html)
+- **Forafric pivots to drones as auditors flag going concern**: [Link](https://www.billionaires.africa/2026/04/27/moroccan-tycoon-yariv-elbazs-forafric-is-selling-its-flour-business-to-billionaire-chakib-alj-while-announcing-it-wants-to-pivot-to-drones-and-ai/)
+- **Forafric looks beyond milling to drones, power and food trading**: [Link](https://www.stocktitan.net/news/AFRI/forafric-global-plc-announces-strategic-expansion-into-food-security-dfjel02diox4.html)
+
+
+### خصم (N/A, Mon, 27 Apr 2026 04:20:00 -0700)
+
+- **"ديب سيك" تعود إلى سباق الذكاء الاصطناعي بنموذج جديد بعد أول إنجاز**: [Link](https://asharqbusiness.com/technology/129930/%D8%AF%D9%8A%D8%A8-%D8%B3%D9%8A%D9%83-%D8%AA%D8%B7%D9%84%D9%82-%D9%86%D9%85%D9%88%D8%B0%D8%AC%D8%A7-%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D9%84%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A/)
+- **بعد مرور عام.. هل تعيد ديب سيك تعريف موازين القوى بنموذجها الجديد "في 4"**: [Link](https://www.aljazeera.net/tech/2026/4/25/%D8%A8%D8%B9%D8%AF-%D9%85%D8%B1%D9%88%D8%B1-%D8%B9%D8%A7%D9%85-%D9%87%D9%84-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AF%D9%8A%D8%A8-%D8%B3%D9%8A%D9%83-%D8%AA%D8%B9%D8%B1%D9%8A%D9%81)
+- **“ديب سيك” الصينية تقدم خصما 75% على نموذجها الجديد للذكاء الاصطناعي**: [Link](https://lakome2.com/flash-infos/416098/)
+
+
+### ounahi (N/A, Mon, 27 Apr 2026 02:20:00 -0700)
+
+- **Manchester City eyes Morocco's Ounahi - Spanish media**: [Link](https://en.hespress.com/136577-manchester-city-eyes-moroccos-ounahi-spanish-media.html)
+- **Girona Offers Ounahi to Manchester City**: [Link](https://www.moroccoworldnews.com/2026/04/288752/girona-offers-ounahi-to-manchester-city/)
+- **Girona Offers Ounahi to Manchester City, Club Shows Strong Interest**: [Link](https://m.elbotola.com/en/article/2026-04-25-15-18-980.html)
+
+
 ### ice (N/A, Mon, 27 Apr 2026 02:50:00 -0700)
 
 - **Trump endorses the idea of changing ICE to NICE**: [Link](https://www.foxnews.com/politics/trump-endorses-idea-changing-ice-nice)
