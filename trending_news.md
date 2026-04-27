@@ -1,3 +1,45 @@
+### إلياس شعيرة (N/A, Mon, 27 Apr 2026 07:50:00 -0700)
+
+- **المغربي شعيرة يحزر هدفه الثاني على التوالي مع افييدو**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B4%D8%B9%D9%8A%D8%B1%D8%A9-%D9%8A%D8%AD%D8%B2%D8%B1-%D9%87%D8%AF%D9%81%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A-%D9%85%D8%B9-%D8%A7%D9%81%D9%8A%D9%8A%D8%AF%D9%88/19271)
+- **الدوري الاسباني: التشي يتخطى ريال اوفييدو ويبتعد عن منطقة الهبوط**: [Link](https://www.elsport.com/news/show/821022/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%AA%D8%B4%D9%8A-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%88%D9%81%D9%8A%D9%8A%D8%AF%D9%88-%D9%88%D9%8A%D8%A8%D8%AA%D8%B9%D8%AF-%D9%85%D9%86)
+- **بمشاركة هيثم حسن.. أوفييدو يقترب من الهبوط بالخسارة ضد إلتشي**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=26042026&id=0b979380-5d64-4939-b2d6-8bc3cf11a5b9)
+
+
+### orage (N/A, Mon, 27 Apr 2026 07:40:00 -0700)
+
+- **Météo de la semaine prochaine : pluies et orages de retour sur une bonne partie de la France ?**: [Link](https://www.tameteo.com/actualites/previsions/meteo-de-la-semaine-prochaine-pluies-et-orages-de-retour-sur-une-bonne-partie-de-la-france-intemperies.html)
+- **Météo : une dégradation orageuse va toucher une partie du pays, voici les régions concernées**: [Link](https://fr.news.yahoo.com/m%C3%A9t%C3%A9o-d%C3%A9gradation-orageuse-va-toucher-070200113.html)
+- **Météo : Grêle, orage et averses… Une goutte froide prévue dans le Sud dès ce mardi**: [Link](https://www.20minutes.fr/planete/4220597-20260427-meteo-grele-orage-averses-goutte-froide-prevue-sud-mardi)
+
+
+### عاصفة رعدية (N/A, Mon, 27 Apr 2026 06:50:00 -0700)
+
+- **أمطار رعدية ورياح قوية بعدة مناطق**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-2-1737754.html)
+- **توقعات أحوال الطقس لليوم الثلاثاء**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AD%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D9%83%D8%AA%D9%84-%D8%B6%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7/)
+- **طقس الأحد: أجواء ضبابية وقطرات مطرية بعدد من المناطق – اليوم 24**: [Link](https://alyaoum24.com/2021554.html)
+
+
+### transavia vols annulés (N/A, Mon, 27 Apr 2026 06:50:00 -0700)
+
+- **Transavia annule des vols en mai et juin en raison de la flambée du prix du kérosène**: [Link](https://rmc.bfmtv.com/actualites/societe/transports/moyen-orient-transavia-annule-des-vols-en-mai-et-juin-en-raison-de-la-flambee-du-prix-du-kerosene_AN-202604260248.html)
+- **« Notre avion a été reprogrammé… 5 jours plus tard » : annulations et reports de vols en série à cause du manque de kérosène**: [Link](https://www.leparisien.fr/societe/notre-avion-a-ete-reprogramme-5-jours-plus-tard-annulations-et-reports-de-vols-en-serie-a-cause-du-manque-de-kerosene-26-04-2026-O2SSOMA675EYLDZQKW3ELATJ2Y.php)
+- **UE: Les réserves de kérosène sont "suffisants" pour la demande actuelle**: [Link](https://fr.hespress.com/471101-ue-les-reserves-de-kerosene-sont-suffisants-pour-la-demande-actuelle.html)
+
+
+### fédération royale marocaine de football (N/A, Mon, 27 Apr 2026 06:10:00 -0700)
+
+- **Communiqué de la FRMF**: [Link](https://frmf.ma/fr/articles/communique-de-la-frmf-1)
+- **En Tanzanie, le sifflet marocain à l'honneur pour le choc Simba SC-Young Africans**: [Link](https://medias24.com/2026/04/27/en-tanzanie-le-sifflet-marocain-a-lhonneur-pour-le-choc-simba-sc-young-africans-1666597/)
+- **Un quatuor marocain dirigera le derby de Dar Es Salaam**: [Link](https://sport.le360.ma/football/un-quatuor-marocain-dirigera-le-derby-de-dar-es-salaam_LZYRSNVIURGMNNES5STH7JEH5E/)
+
+
+### luca zidane (N/A, Mon, 27 Apr 2026 05:20:00 -0700)
+
+- **Football Granada: Luca Zidane taken to hospital after heavy collision**: [Link](https://en.africatopsports.com/2026/04/27/granada-luca-zidane-taken-to-hospital-after-heavy-collision/)
+- **Granada confirm Luca Zidane concussion after Almeria defeat**: [Link](https://africasoccer.com/luca-zidane-injury-update-granada-concussion-world-cup/)
+- **Algeria: major setback for Luca Zidane**: [Link](https://foot-africa.com/en/news/algeria-major-setback-for-luca-zidane-1182911/)
+
+
 ### forafric (N/A, Mon, 27 Apr 2026 05:20:00 -0700)
 
 - **CORRECTING and REPLACING Forafric Global PLC Seeks Strategic Expansion Into Defense, Food Security and Energy and Adjacent High-Growth Sectors**: [Link](https://www.stocktitan.net/news/AFRI/correcting-and-replacing-forafric-global-plc-seeks-strategic-qkzommqhwmvw.html)
