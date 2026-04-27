@@ -1,3 +1,10 @@
+### المهاجرون (N/A, Sun, 26 Apr 2026 13:00:00 -0700)
+
+- **مساع أمريكية لتجريد مئات المواطنين المولودين في الخارج من الجنسية**: [Link](https://www.aljazeera.net/news/2026/4/25/%D9%85%D8%A6%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D9%8A%D9%86-%D9%85%D9%86-%D8%A3%D8%B5%D9%88%D9%84-%D8%A3%D8%AC%D9%86%D8%A8%D9%8A%D8%A9-%D9%85%D9%87%D8%AF%D8%AF%D9%88%D9%86)
+- **الإدارة الأمريكية تبدأ حملة مكثفة لسحب الجنسية من مهاجرين متجنسين**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%A8%D8%AF%D8%A3-%D8%AD%D9%85%D9%84%D8%A9-%D9%85%D9%83%D8%AB%D9%81%D8%A9-%D9%84%D8%B3%D8%AD/)
+- **إدارة ترامب تسعى لسحب الجنسية من مئات الأمريكيين.. بهذه الذريعة**: [Link](https://arabi21.com/story/1754666/%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%AA%D8%B3%D8%B9%D9%89-%D9%84%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%86%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D9%85%D8%A6%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D9%8A%D9%86-%D8%A8%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%B0%D8%B1%D9%8A%D8%B9%D8%A9)
+
+
 ### accor arena (N/A, Sun, 26 Apr 2026 16:10:00 -0700)
 
 - **Basket-ball. Trophée Coupe de France : l’US Laval au sommet de son Olympe**: [Link](https://www.ouest-france.fr/sport/basket/laval-us/basket-ball-trophee-coupe-de-france-lus-laval-au-sommet-de-son-olympe-d31e5892-401d-11f1-969a-46adb62a237c)
