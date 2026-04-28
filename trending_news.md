@@ -1,3 +1,31 @@
+### fabian ruiz (N/A, Tue, 28 Apr 2026 14:10:00 -0700)
+
+- **Angers 0-3 PSG (Apr 25, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/746682)
+- **France_League_One_Soccer_47836**: [Link](https://www.wralsportsfan.com/soccer/image/22351772/)
+- **France League One Soccer**: [Link](https://www.wvnews.com/sports/pro/france-league-one-soccer/image_131a8152-dc5b-5b40-b4c3-4cc82835e8bc.html)
+
+
+### achraf hakimi (N/A, Tue, 28 Apr 2026 14:00:00 -0700)
+
+- **PSG - Bayern de Múnich, en directo: última hora de la ida de semifinales de Champions, hoy en vivo**: [Link](https://as.com/futbol/champions/psg-bayern-de-munich-en-directo-ultima-hora-de-la-ida-de-semifinales-de-champions-hoy-en-vivo-f202604-d/)
+- **PSG - Bayern Múnich: resumen, resultado y goles del partido de Champions League**: [Link](https://www.marca.com/futbol/champions-league/paris-saint-germain-bayern-munich/2026/04/28/01_0103_20260428_149_156-directo.html)
+- **Así fue la actuación de Willian Pacho en el partidazo de Champions ante Bayern Munich**: [Link](https://espndeportes.espn.com/futbol/champions-league/nota/_/id/16639828/actuacion-de-willian-pacho-en-el-partidazo-de-champions-ante-bayern-munich)
+
+
+### مجلس الفيفا (N/A, Tue, 28 Apr 2026 14:00:00 -0700)
+
+- **رسميا.. مجلس الفيفا يقر قانونين بعد انسحاب السنغال أمام المغرب وواقعة فينيسيوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%82%D8%B1-%D9%82%D8%A7%D9%86%D9%88%D9%86%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/blt4c58f48cb44a150d)
+- **ردا على بريستياني ولاعبي السنغال.. قوانين صارمة تهز مونديال 2026**: [Link](https://www.aljazeera.net/sport/2026/4/28/%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7)
+- **تعديلات جديدة من “IFAB” قبل مونديال 2026… الطرد وخسارة المباراة لمثيري الفوضى – اليوم 24**: [Link](https://alyaoum24.com/2022048.html)
+
+
+### bayer (N/A, Tue, 28 Apr 2026 14:00:00 -0700)
+
+- **Bayer mit Absturzgefahr: Das hat der Aktie jetzt gerade noch gefehlt!**: [Link](https://www.ariva.de/dax-index/news/bayer-mit-absturzgefahr-das-hat-der-aktie-jetzt-gerade-noch-rsf-11984201)
+- **Oberstes Gericht der USA prüft Glyphosat-Klage gegen Monsanto – News**: [Link](https://www.aerzteblatt.de/news/oberstes-gericht-der-usa-pruft-glyphosat-klage-gegen-monsanto-e0ce639a-206b-4934-8c8c-8e31fe610b20)
+- **UBS DailyTrader: Bayer - Unterstützung unterboten**: [Link](https://www.deraktionaer.de/videos/aktien/ubs-dailytrader-bayer-unterstuetzung-unterboten-20399827.html)
+
+
 ### luis diaz (N/A, Tue, 28 Apr 2026 13:30:00 -0700)
 
 - **Sports: Luis Diaz, the 'worker' who makes Bayern's champions**: [Link](https://www.newvision.co.ug/category/sports/luis-diaz-the-worker-who-makes-bayerns-champi-NV_232476_042026)
