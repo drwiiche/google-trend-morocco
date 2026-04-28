@@ -1,3 +1,29 @@
+### حد أدنى للأجور (N/A, Mon, 27 Apr 2026 23:40:00 -0700)
+
+- **مقترح جديد في قانون التأمينات لدعم الابنة المتزوجة ومعاش إضافي بمصر**: [Link](https://radar2.net/1071459/%D9%85%D9%82%D8%AA%D8%B1%D8%AD-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%85%D9%8A%D9%86%D8%A7%D8%AA-%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7/)
+- **دعم حكومي وخطط طويلة الأجل.. هل تنقذ التعديلات الجديدة منظومة التأمينات من أزماتها؟**: [Link](https://www.almawq3.com/%D8%AF%D8%B9%D9%85-%D8%AD%D9%83%D9%88%D9%85%D9%8A-%D9%88%D8%AE%D8%B7%D8%B7-%D8%B7%D9%88%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%AC%D9%84-%D9%87%D9%84-%D8%AA%D9%86%D9%82%D8%B0-%D8%A7%D9%84%D8%AA/)
+- **صيغة حساب المعاشات والمزايا عندما يُتوقع زيادة بنسبة 8% اعتبارًا من 1 يوليو.**: [Link](https://www.vietnam.vn/ar/cong-thuc-tinh-luong-huu-tro-cap-khi-du-kien-tang-8-tu-01-7-toi)
+
+
+### tiempo (N/A, Mon, 27 Apr 2026 23:20:00 -0700)
+
+
+
+
+### wetter (N/A, Mon, 27 Apr 2026 23:20:00 -0700)
+
+- **FIRST ALERT WEATHER DAYS for Tuesday and Wednesday morning for an isolated severe storm**: [Link](https://www.wvlt.tv/2026/04/27/first-alert-weather-days-tuesday-wednesday-morning-an-isolated-severe-storm/)
+- **Mild Triad weather pattern include severe storm risk**: [Link](https://www.wxii12.com/article/north-carolina-mild-triad-rain-chance-strong-storm/71135126)
+- **TRACKING: Rain and storms today, some strong to severe**: [Link](https://www.kwwl.com/weather/forecast/tracking-rain-and-storms-today-some-strong-to-severe/article_f7c30b65-e1be-4eb2-a9ec-48866fdb91cc.html)
+
+
+### nicolas sarkozy (N/A, Mon, 27 Apr 2026 22:30:00 -0700)
+
+- **« Nicolas Sarkozy se trompe » : un nouveau courrier de Claude Guéant fragilise la défense de l’ancien président au procès de l’affaire libyenne**: [Link](https://www.lemonde.fr/societe/article/2026/04/28/au-proces-de-l-affaire-libyenne-une-nouvelle-attestation-de-claude-gueant-fragilise-la-defense-de-l-ancien-president-nicolas-sarkozy-se-trompe_6683870_3224.html)
+- **Lâché par Sarkozy sur le procès libyen, Guéant adresse une seconde attestation**: [Link](https://www.20minutes.fr/justice/4220360-20260426-proces-libyen-appel-lache-sarkozy-gueant-adresse-seconde-attestation-cour)
+- **Procès des financements libyens : Guéant accuse, Djouhri élude**: [Link](https://www.mediapart.fr/journal/france/280426/proces-des-financements-libyens-gueant-accuse-djouhri-elude)
+
+
 ### weather (N/A, Mon, 27 Apr 2026 23:10:00 -0700)
 
 - **Northeast Ohio Weather: Much cooler after today; more rain tomorrow**: [Link](https://www.cleveland19.com/2026/04/28/northeast-ohio-weather-much-cooler-after-today-more-rain-tomorrow/)
