@@ -1,3 +1,17 @@
+### تامر حسني (N/A, Mon, 27 Apr 2026 16:10:00 -0700)
+
+- **بعد "فتنة العوضي".. تامر حسني يناشد الصحة: "أرجوكم ماتسيبوناش كدة"**: [Link](https://www.alarabiya.net/culture-and-art/2026/04/27/%D8%A8%D8%B9%D8%AF-%D9%81%D8%AA%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%8A%D9%88%D8%AC%D9%87-%D9%85%D9%86%D8%A7%D8%B4%D8%AF%D8%A9-%D9%84%D9%84%D8%B5%D8%AD%D8%A9%D8%A7%D8%B1%D8%AC%D9%88%D9%83%D9%85-%D9%85%D8%A7%D8%AA%D9%86%D8%B3%D9%8A%D8%A8%D9%88%D9%86%D8%A7%D8%B4-%D9%83%D8%AF%D8%A9)
+- **أحمد سالم فى كلمة أخيرة: فوائد الألبان واللحوم محسومة دينيا بآيات قرآنية صريحة**: [Link](https://www.youm7.com/story/2026/4/27/%D8%A3%D8%AD%D9%85%D8%AF-%D8%B3%D8%A7%D9%84%D9%85-%D9%81%D9%89-%D9%83%D9%84%D9%85%D8%A9-%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%81%D9%88%D8%A7%D8%A6%D8%AF-%D8%A7%D9%84%D8%A3%D9%84%D8%A8%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%84%D8%AD%D9%88%D9%85-%D9%85%D8%AD%D8%B3%D9%88%D9%85%D8%A9-%D8%AF%D9%8A%D9%86%D9%8A%D8%A7/7393232)
+- **أهل الفن في 24 ساعة.. ألبوم حماقي ومناشدة تامر حسني لـ«الصحة»**: [Link](https://www.elwatannews.com/news/details/8274103)
+
+
+### حالة الطقس (N/A, Mon, 27 Apr 2026 14:50:00 -0700)
+
+- **توقعات الطقس ليوم 28 أبريل: كتلة هوائية باردة تتحرك، وعواصف رعدية واسعة النطاق في شمال فيتنام.**: [Link](https://www.vietnam.vn/ar/thoi-tiet-ngay-28-4-khong-khi-lanh-tran-xuong-bac-bo-mua-dong-dien-rong)
+- **حالة الطقس اليوم: طقس مشمس مع عواصف رعدية مفاجئة في المساء**: [Link](https://akher.news/32727/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B7%D9%82%D8%B3-%D9%85%D8%B4%D9%85%D8%B3-%D9%85%D8%B9-%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A/)
+- **حالة الطقس اليوم مشمس في فوثو والعديد من المناطق الحارة في مدينة هو تشي منه**: [Link](https://tawusal.com/122317/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D8%B4%D9%85%D8%B3-%D9%81%D9%8A-%D9%81%D9%88%D8%AB%D9%88-%D9%88%D8%A7%D9%84%D8%B9%D8%AF%D9%8A%D8%AF-%D9%85/)
+
+
 ### huile d’olive vierge extra (N/A, Mon, 27 Apr 2026 15:20:00 -0700)
 
 - **Voici les 12 meilleures huiles d'olive vierges extra au Maroc en 2026**: [Link](https://lematin.ma/economie/voici-les-12-meilleures-huiles-dolive-vierges-extra-au-maroc-en-2026/342686)
