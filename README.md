@@ -1,3 +1,51 @@
+### فلورنتينو بيريز (N/A, Tue, 28 Apr 2026 09:00:00 -0700)
+
+- **"عداء قديم".. كيف رد كاسياس على أنباء عودة مورينيو لريال مدريد؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%AF%D8%A7%D8%A1-%D9%82%D8%AF%D9%8A%D9%85--%D9%83%D9%8A%D9%81-%D8%B1%D8%AF-%D9%83%D8%A7%D8%B3%D9%8A%D8%A7%D8%B3-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%86%D8%A8%D8%A7%D8%A1-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt940ea7b5d33624e9)
+- **بيريز يريد عودة مدرب "الصدامات الكبرى" لقيادة ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/4/28/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2)
+- **صحفي يشكك في منطق ريال مدريد بخصوص المدربين**: [Link](https://hihi2.com/2026/04/28/p3743395.html)
+
+
+### al shabab – al-fateh (N/A, Tue, 28 Apr 2026 08:50:00 -0700)
+
+- **Al Shabab vs Al Fateh Preview & Prediction**: [Link](https://www.thestatszone.com/al-shabab-vs-al-fateh-preview-prediction-184197)
+- **Preview: Al Shabab vs Al Fateh prediction, odds, where to watch, time | Saudi Pro League 2025-26**: [Link](https://khelnow.com/football/world-football-al-shabab-vs-al-fateh-preview-202604)
+
+
+### سفينة حربية (N/A, Tue, 28 Apr 2026 08:40:00 -0700)
+
+- **سلاح صادم.. سفينة حربية عملاقة تراها الرادارات قارب صيد**: [Link](https://www.albayan.ae/news/world/1229758)
+- **"الأسطول الآلي" يعيد رسم قواعد الاشتباك في البحار**: [Link](https://www.eremnews.com/economy/ueitc3g)
+- **«سفينة شبحية بلا طاقم».. التكنولوجيا تُعيد كتابة قواعد الحروب البحرية**: [Link](https://www.okaz.com.sa/variety/na/2245578)
+
+
+### قصف (N/A, Tue, 28 Apr 2026 07:30:00 -0700)
+
+- **استشهاد طفل بغزة والاحتلال يتعمد حرمان القطاع من المياه**: [Link](https://www.aljazeera.net/news/2026/4/28/%D8%BA%D8%B2%D8%A9-116)
+- **طفلة فلسطينية تصاب بشلل جزئي جراء رصاص إسرائيلي**: [Link](https://www.aa.com.tr/ar/vg/video-galeri/%D8%B7%D9%81%D9%84%D8%A9-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A9-%D8%AA%D8%B5%D8%A7%D8%A8-%D8%A8%D8%B4%D9%84%D9%84-%D8%AC%D8%B2%D8%A6%D9%8A-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%B1%D8%B5%D8%A7%D8%B5-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A)
+- **الوسطاء فشلوا بكبح جرائم الاحتلال في غزة**: [Link](https://arabi21.com/story/1755148/%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D8%A7%D8%A1-%D9%81%D8%B4%D9%84%D9%88%D8%A7-%D8%A8%D9%83%D8%A8%D8%AD-%D8%AC%D8%B1%D8%A7%D8%A6%D9%85-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9)
+
+
+### opec (N/A, Tue, 28 Apr 2026 06:30:00 -0700)
+
+- **United Arab Emirates Says It Will Leave OPEC in Blow to Oil Cartel**: [Link](https://www.nytimes.com/2026/04/28/world/middleeast/uae-opec.html)
+- **Faisal Islam: Why the UAE's exit from Opec is a big deal**: [Link](https://www.bbc.com/news/articles/cj4pxyklw1jo)
+- **UAE exits OPEC and OPEC+, seeking output flexibility as global energy markets tighten**: [Link](https://www.foxbusiness.com/markets/uae-says-leave-opec-effective-may-1)
+
+
+### مهرجان موازين (N/A, Tue, 28 Apr 2026 06:10:00 -0700)
+
+- **شاكوش يزيد الغاضبين من "موازين"**: [Link](https://www.hespress.com/%D8%B4%D8%A7%D9%83%D9%88%D8%B4-%D9%8A%D8%B2%D9%8A%D8%AF-%D8%A7%D9%84%D8%BA%D8%A7%D8%B6%D8%A8%D9%8A%D9%86-%D9%85%D9%86-%D9%85%D9%88%D8%A7%D8%B2%D9%8A%D9%86-1737909.html)
+- **مغني الراب الفرنسي “نينيو” يحيي حفل افتتاح مهرجان موازين**: [Link](https://lakome2.com/flash-infos/416175/)
+- **أومو سنغاري ثالث الأسماء المعلنة في الدورة الجديدة لمهرجان موازين**: [Link](https://ar.hibapress.com/details-720861.html)
+
+
+### منير الحدادي (N/A, Tue, 28 Apr 2026 05:10:00 -0700)
+
+- **منير الحدادي: المغرب يمكنه الوصول لنهائي كأس العالم والفوز باللقب**: [Link](https://www.aljazeera.net/sport/2026/4/28/%D9%85%D9%86%D9%8A%D8%B1-%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **الحدادي يراهن على «أسود الأطلس».. ويختار الحياد أمام إسبانيا**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D8%AF%D9%8A-%D9%8A%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%88%D9%8A%D8%AE%D8%AA%D8%A7/)
+- **العمراني يسلط الضوء على التقدم الكبير في علاقات المغرب مع ولاية جورجيا - تليكسبريس**: [Link](https://telexpresse.com/470160.html)
+
+
 ### sadio mané (N/A, Tue, 28 Apr 2026 04:20:00 -0700)
 
 - **Cristiano Ronaldo reportedly unaffected by Al Nassr flu outbreak that hit Mane and Coman ahead of Al Ahli c...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-reportedly-unaffected-by-al-nassr-flu-outbreak-that-hit-mane-and-coman-ahead-of-al-ahli-clash/)
