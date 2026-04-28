@@ -1,3 +1,31 @@
+### jannik sinner (N/A, Tue, 28 Apr 2026 02:50:00 -0700)
+
+- **Allarme Sinner a Madrid, malessere con Norrie? La frase di Cahill e come sta**: [Link](https://www.adnkronos.com/sport/sinner-madrid-malessere-allarme-cahill-come-sta_2sTd57gR4q01xq9q82CHDe)
+- **ATP Madrid 2026, Sinner attende Norrie e aspetta Jodar. Musetti e Cobolli a caccia dei quarti**: [Link](https://www.oasport.it/2026/04/atp-madrid-2026-sinner-attende-norrie-e-aspetta-jodar-musetti-e-cobolli-a-caccia-dei-quarti/)
+- **Sinner-Norrie al Masters 1000 di Madrid, la diretta: Jannik vince agevolmente il primo set. Nuovo break dell'azzurro nel secondo che va a servire per il match Live 6-2; 6-5**: [Link](https://www.corriere.it/sport/tennis/diretta-live/26_aprile_28/sinner-norrie-madrid-diretta-risultato.shtml)
+
+
+### confédération africaine de football (N/A, Tue, 28 Apr 2026 01:50:00 -0700)
+
+- **Finale de la CAN 2025: la FRMF a jusqu’au 7 mai pour déposer son mémoire en défense au TAS**: [Link](https://sport.le360.ma/football/can/finale-de-la-can-2025-la-frmf-a-jusquau-7-mai-pour-deposer-son-memoire-en-defense-au-tas_46K3DT3ICVDRPKBQLDKCL4ZQC4/)
+- **TAS : la deadline du Maroc pour soumettre sa défense face au Sénégal**: [Link](https://www.afrik-foot.com/tas-la-deadline-du-maroc-pour-soumettre-sa-defense-face-au-senegal)
+- **CAN attribuée au Maroc : le président de la CAF brise le silence sur la décision du TAS**: [Link](https://www.afriquesports.net/can-2025/can-attribuee-au-maroc-le-president-de-la-caf-brise-le-silence-sur-la-decision-du-tas)
+
+
+### انقطاع الكهرباء (N/A, Tue, 28 Apr 2026 01:40:00 -0700)
+
+- **انقطاع الكهرباء بمراكش**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A7%D9%86%D9%82%D8%B7%D8%A7%D8%B9-%D8%A7%D9%84%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A1-%D8%A8%D9%85%D8%B1%D8%A7%D9%83%D8%B4-998051.html)
+- **انقطاع الكهرباء بعدة دواوير بجماعة أولاد سلمان يوم 28 أبريل**: [Link](https://trendnews.ma/32039)
+- **من أجل أشغال صيانة شبكة الكهرباء إعلان عن انقطاع التيار الكهربائي**: [Link](https://www.nichanealane.ma/118395/)
+
+
+### robert lewandowski (N/A, Mon, 27 Apr 2026 23:00:00 -0700)
+
+- **"Lewy" łączony z gigantem. "Robert nakrywa go czapką"**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1247571/lewandowski-go-nakrywa-czapka-legenda-jasno-o-zainteresowaniu-polakiem)
+- **Sebastian Staszewski: Robert Lewandowski spogląda w kierunku Arabii**: [Link](https://weszlo.com/sebsatian-staszewski-robert-lewandowski-spoglada-w-kierunku-arabii/)
+- **Robert Lewandowski "świętą krową" w Polsce? Jacek Laskowski: zapracował na to**: [Link](https://plejada.pl/newsy/jacek-laskowski-wprost-o-przyszlosci-roberta-lewandowskiego-zaden-dyshonor/tr6er4g)
+
+
 ### حد أدنى للأجور (N/A, Mon, 27 Apr 2026 23:40:00 -0700)
 
 - **مقترح جديد في قانون التأمينات لدعم الابنة المتزوجة ومعاش إضافي بمصر**: [Link](https://radar2.net/1071459/%D9%85%D9%82%D8%AA%D8%B1%D8%AD-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%85%D9%8A%D9%86%D8%A7%D8%AA-%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7/)
