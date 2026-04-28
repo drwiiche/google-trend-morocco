@@ -1,3 +1,10 @@
+### sadio mané (N/A, Tue, 28 Apr 2026 04:20:00 -0700)
+
+- **Cristiano Ronaldo reportedly unaffected by Al Nassr flu outbreak that hit Mane and Coman ahead of Al Ahli c...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-reportedly-unaffected-by-al-nassr-flu-outbreak-that-hit-mane-and-coman-ahead-of-al-ahli-clash/)
+- **Senegal star Sadio Mane doubtful for crucial league match against Al Ahli**: [Link](https://africasoccer.com/senegal-star-sadio-mane-doubtful-for-crucial-league-match-against-al-ahli/)
+- **Cristiano Ronaldo and Sadio Mane’s status for crucial Al-Ahli clash in Saudi Pro League addressed after duo...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-and-sadio-manes-status-for-crucial-al-ahli-clash-in-saudi-pro-league-addressed-after-duo-misses-al-nassr-training/)
+
+
 ### jannik sinner (N/A, Tue, 28 Apr 2026 02:50:00 -0700)
 
 - **Allarme Sinner a Madrid, malessere con Norrie? La frase di Cahill e come sta**: [Link](https://www.adnkronos.com/sport/sinner-madrid-malessere-allarme-cahill-come-sta_2sTd57gR4q01xq9q82CHDe)
