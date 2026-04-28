@@ -1,3 +1,59 @@
+### luis diaz (N/A, Tue, 28 Apr 2026 13:30:00 -0700)
+
+- **Sports: Luis Diaz, the 'worker' who makes Bayern's champions**: [Link](https://www.newvision.co.ug/category/sports/luis-diaz-the-worker-who-makes-bayerns-champi-NV_232476_042026)
+- **Bayern Munich totally in love with Luis Díaz 'from nothing to living a dream'**: [Link](https://latination.com/bayern-munich-interest-luis-diaz-rise/)
+- **Luis Diaz Scores 25 Goals in 45 Bayern Games**: [Link](https://www.el-balad.com/16926476)
+
+
+### marquinhos (N/A, Tue, 28 Apr 2026 13:30:00 -0700)
+
+- **Marquinhos and Vitinha out of the eleven, the sanction falls**: [Link](https://frenchfootballweekly.com/2026/04/27/marquinhos-and-vitinha-out-of-the-eleven-the-sanction-falls/)
+- **“Not on Bayern’s level”: Two World Cup winners pinpoint PSG’s weak spot**: [Link](https://www.goal.com/en/lists/not-on-bayern-s-level-two-world-cup-winners-pinpoint-psg-s-weak-spot/bltbedb81dbf69e535e)
+- **Marquinhos Could Leave PSG at Peak of Career**: [Link](https://roundtable.io/sports/soccer/ligue-1/paris-st-germain/marquinhos-could-leave-psg-at-peak-of-career)
+
+
+### كأس العرش (N/A, Tue, 28 Apr 2026 13:00:00 -0700)
+
+- **قرعة ثمن نهائي كأس العرش.. الفائز من الوداد ورجاء بني ملال يواجه المنتصر من الجيش الملكي وسطاد المغربي**: [Link](https://m.elbotola.com/article/2026-04-28-18-08-273.html)
+- **قرعة كأس العرش.. الكوكب المراكشي يواجه شباب السوالم في اختبار قوي بسدس عشر النهائي**: [Link](https://www.marrakechalaan.com/article-676748)
+- **قرعة سدس عشر نهائي كأس العرش تفرز مواجهات نارية وأندية النخبة في اختبار حقيقي**: [Link](https://www.hesport.com/%D9%82%D8%B1%D8%B9%D8%A9-%D8%B3%D8%AF%D8%B3-%D8%B9%D8%B4%D8%B1-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%AA%D9%81%D8%B1%D8%B2-%D9%85%D9%88%D8%A7%D8%AC%D9%87-436709.html)
+
+
+### michael olise (N/A, Tue, 28 Apr 2026 13:00:00 -0700)
+
+- **'For a player like Michael Olise, no price tag would make us flinch' - Karl-Heinz Rummenigge uses Chelsea's 2009 record bid for Franck Ribéry to dismiss Michael Olise's transfer rumours**: [Link](https://www.getfootballnewsfrance.com/2026/for-a-player-like-michael-olise-no-price-tag-would-make-us-flinch-karl-heinz-rummenigge-uses-chelseas-2009-record-bid-for-franck-ribery-to-dismiss-michael-olises-transfer-rumours/)
+- **'Make us flinch' - Bayern Munich chief says if club would accept €200m for Michael Olise amid Liverpool links**: [Link](https://www.liverpoolworld.uk/sport/football/liverpool/make-us-flinch-bayern-munich-chief-says-if-club-would-accept-eu200m-for-michael-olise-amid-liverpool-links-7803484)
+- **Bayern chief cites 2009 precedent in public message on potential Liverpool offer for Olise**: [Link](https://www.yardbarker.com/soccer/articles/bayern_chief_cites_2009_precedent_in_public_message_on_potential_liverpool_offer_for_olise/s1_15959_43777942)
+
+
+### dembele (N/A, Tue, 28 Apr 2026 13:00:00 -0700)
+
+- **🥐☕️FC breakfast: Dembouz's touching gesture, PSG's rugby wows!**: [Link](https://sports.yahoo.com/articles/fc-breakfast-dembouzs-touching-gesture-070000491.html)
+- **Bayern Munich’s Dayot Upamecano ready for stiff test vs. PSG**: [Link](https://www.msn.com/en-us/sports/soccer/bayern-munich-s-dayot-upamecano-ready-for-stiff-test-vs-psg/ar-AA21QDpb)
+- **PSG-Bayern: superb gifts from Dembélé and Upamecano to the families of Evreux**: [Link](https://frenchfootballweekly.com/2026/04/28/psg-bayern-superb-gifts-from-dembele-and-upamecano-to-the-families-of-evreux/)
+
+
+### météorologie (N/A, Tue, 28 Apr 2026 12:50:00 -0700)
+
+- **Orages et grêle : vigilance orange sur une douzaine de provinces lundi et mardi**: [Link](https://ledesk.ma/encontinu/orages-et-grele-vigilance-orange-sur-une-douzaine-de-provinces-lundi-et-mardi/)
+- **Averses orageuses localement fortes ce mardi dans plusieurs provinces du Royaume**: [Link](https://mobile.telquel.ma/instant-t/2026/04/28/averses-orageuses-localement-fortes-ce-mardi-dans-plusieurs-provinces-du-royaume_1986601/)
+- **Le temps qu'il fera ce mardi 24 avril 2026**: [Link](https://fr.hespress.com/471380-le-temps-quil-fera-ce-mardi-24-avril-2026.html)
+
+
+### joao neves (N/A, Tue, 28 Apr 2026 12:40:00 -0700)
+
+- **How tall is PSG’s João Neves?**: [Link](https://en.as.com/soccer/how-tall-is-psgs-joao-neves-f202604-n/)
+- **Joao Neves Profile, Net Worth, Career Records, Lifestyle, Cars Collection, Lesser-Known Facts And Much More**: [Link](https://sportsdigest.in/joao-neves-profile-net-worth/189347/)
+- **Champions League semi-final: Dembele restores PSG lead in five-goal thriller**: [Link](https://www.bbc.com/sport/football/live/cj60j38yk0gt)
+
+
+### kvaratskhelia (N/A, Tue, 28 Apr 2026 12:30:00 -0700)
+
+- **Kvaratskhelia’s individual feat! (video)**: [Link](https://frenchfootballweekly.com/2026/04/28/kvaratskhelias-individual-feat-video/)
+- **Kvaratskhelia shines with 15 goal contributions in 14 Champions League games**: [Link](https://tribuna.com/en/news/2026-04-28-kvaratskhelia-shines-with-14-goal-contributions-in-14-champions-league-games/)
+- **'The two best teams' - Kvaratskhelia on PSG and Bayern ahead of UCL semi-final**: [Link](http://www.msn.com/en-us/sports/soccer/the-two-best-teams-kvaratskhelia-on-psg-and-bayern-ahead-of-ucl-semi-final/vi-AA21PNfj)
+
+
 ### émirats arabes unis (N/A, Tue, 28 Apr 2026 12:40:00 -0700)
 
 - **EN DIRECT, guerre au Moyen-Orient : les Emirats arabes unis annoncent leur retrait de l’OPEP à partir de mai**: [Link](https://www.lemonde.fr/international/live/2026/04/28/en-direct-guerre-au-moyen-orient-israel-bombarde-le-sud-du-liban-malgre-le-cessez-le-feu-le-prix-du-baril-de-petrole-depasse-les-110-dollars_6681958_3210.html)
