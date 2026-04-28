@@ -1,3 +1,31 @@
+### نفط (N/A, Tue, 28 Apr 2026 15:10:00 -0700)
+
+- **الإمارات تنسحب من "أوبك" و"أوبك بلس" والعراق يوضح موقفه**: [Link](https://www.aljazeera.net/ebusiness/2026/4/28/%D8%B9%D8%A7%D8%AC%D9%84-%D9%88%D8%A7%D9%85-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D8%B1%D9%88%D8%AC-%D9%85%D9%86-%D8%A3%D9%88%D8%A8%D9%83)
+- **ما هي منظمة أوبك التي أعلنت الإمارات انسحابها منها؟**: [Link](https://www.bbc.com/arabic/articles/cvgz4nxgr8vo)
+- **بعد 6 عقود.. الإمارات تنسحب من "أوبك"**: [Link](https://asharqbusiness.com/power/130498/%D8%A8%D8%B9%D8%AF-6-%D8%B9%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D9%85%D9%86-%D8%A3%D9%88%D8%A8%D9%83/)
+
+
+### pétrole (N/A, Tue, 28 Apr 2026 14:50:00 -0700)
+
+- **Conflit au Moyen-Orient : croulant sous le pétrole, l'Iran obligé de stocker sa production dans des réservoirs abandonnés**: [Link](https://www.lefigaro.fr/international/conflit-au-moyen-orient-croulant-sous-le-petrole-l-iran-oblige-de-stocker-sa-production-dans-des-reservoirs-abandonnes-20260428)
+- **Bourses calmes, pétrole au-dessus de 100 $ sur tensions USA-Iran**: [Link](https://fr.euronews.com/business/2026/04/27/bourses-stables-le-petrole-reste-au-dessus-de-100-dollars-apres-limpasse-des-pourparlers-u)
+- **Prix ​​de l'essence et du diesel aujourd'hui, 29 avril : dépassent les 110 $ alors que les perturbations du canal d'Ormuz éclipsent le retrait des Émirats arabes unis de l'OPEP.**: [Link](https://www.vietnam.vn/fr/gia-xang-dau-hom-nay-29-4-vuot-110-usd-khi-gian-doan-hormuz-lan-at-viec-uae-roi-opec)
+
+
+### kimmich (N/A, Tue, 28 Apr 2026 14:20:00 -0700)
+
+- **Bayern Munich director snides Paris Saint-Germain for celebrating after the fifth goal**: [Link](https://www.bavarianfootballworks.com/champions-league/194233/bayern-munich-director-eberl-paris-saint-germain-ousemane-dembele-kvaratskhelia-kane-kompany-olise)
+- **Kompany: Everything is Possible at Allianz Arena, and This Makes Us Believe in Our Chances**: [Link](https://www.ysscores.com/en/news/13954302/Kompany:-Everything-is-Possible-at-Allianz-Arena,-and-This-Makes-Us-Believe-in-Our-Chances)
+- **Tah critical of "difficult refereeing decisions" in first-leg defeat to PSG**: [Link](https://sports.yahoo.com/articles/tah-critical-difficult-refereeing-decisions-213000807.html)
+
+
+### neuer (N/A, Tue, 28 Apr 2026 13:40:00 -0700)
+
+- **Kvaratskhelia schwärmt: Neuer ist "die Legende"**: [Link](https://www.eurosport.de/fussball/champions-league/2025-2026/psg-leistungstraeger-khvicha-kvaratskhelia-schwaermt-vor-duell-mit-fc-bayern-muenchen-manuel-neuer-ist-die-legende_vid60070754/video.shtml)
+- **Ansage zur Kvaratskhelia-Zukunft**: [Link](https://www.fussballtransfers.com/a7756305686843348928-ansage-zur-kvaratskhelia-zukunft)
+- **Stanisic steht zu weit weg: Khvicha Kvaratskhelia bestraft Bayern sofort und gleicht für PSG aus**: [Link](https://tribuna.com/de/blogs/stanisic-steht-zu-weit-weg-khvicha-kvaratskhelia-bestraft-ba/)
+
+
 ### fabian ruiz (N/A, Tue, 28 Apr 2026 14:10:00 -0700)
 
 - **Angers 0-3 PSG (Apr 25, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/746682)
