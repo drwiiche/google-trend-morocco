@@ -1,3 +1,59 @@
+### عنف أسري (N/A, Tue, 28 Apr 2026 10:40:00 -0700)
+
+- **«عنف زوجي» أمام كاميرا برنامج لتلفزيون الواقع يغضب المغاربة**: [Link](https://www.alquds.co.uk/%D8%B9%D9%86%D9%81-%D8%B2%D9%88%D8%AC%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%84%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88/)
+- **البام يراسل الحكومة بسبب الترويج لرسائل العنف بين الأزواج في البرامج التلفزيونية ويطالب بالتحقيق**: [Link](https://chouftv.ma/press/781166.html)
+- **الإعلام وتسليع الزواج وتفريغ القيم.. "لالة العروسة" نموذجا**: [Link](https://www.pjd.ma/228520-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D9%88%D8%AA%D8%B3%D9%84%D9%8A%D8%B9-%D8%A7%D9%84%D8%B2%D9%88%D8%A7%D8%AC-%D9%88%D8%AA%D9%81%D8%B1%D9%8A%D8%BA-%D8%A7%D9%84%D9%82%D9%8A%D9%85-%D9%84.html)
+
+
+### الهلال ضد ضمك (N/A, Tue, 28 Apr 2026 10:40:00 -0700)
+
+- **مباشر الهلال ضد ضمك في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/28/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%B6%D9%85%D9%83-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+- **ما القنوات الناقلة لمباراة الهلال وضمك في دوري روشن السعودي 2025-2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%B6%D9%85%D9%83-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2025-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt84934395f6feeee3)
+- **هدافو مواجهات الهلال وضمك في دوري المحترفين**: [Link](https://hihi2.com/2026/04/27/p3742351.html)
+
+
+### كأس العالم لكرة القدم 2030 (N/A, Tue, 28 Apr 2026 10:40:00 -0700)
+
+- **حدث عالمي جديد على الأراضي المغربية قبل مونديال 2030**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%AF%D8%AB-%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A7%D8%B6%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030/bltb30c061b52c789fc)
+- **المغرب يحتضن كونغرس "فيفا" الانتخابي 2027 وإنفانتينو يترقب ولاية جديدة**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%83%D9%88%D9%86%D8%BA%D8%B1%D8%B3-%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D9%8A-2027-%D9%88-436701.html)
+- **المغرب يستضيف مجلس الفيفا "الانتخابي" لعام 2027 وإنفانتينو مرشح للفوز بولاية جديدة**: [Link](https://m.elbotola.com/article/2026-04-28-13-21-944.html)
+
+
+### emmanuel macron (N/A, Tue, 28 Apr 2026 10:30:00 -0700)
+
+- **Macron en Ariège puis en Andorre pour parler de réindustrialisation, santé et avortement**: [Link](https://medias24.com/agence-presse/macron-en-ariege-puis-en-andorre-pour-parler-de-reindustrialisation-sante-et-avortement/)
+- **Macron en Andorre : soutien à l'accord d'association avec l'UE et appel à dépénaliser l'IVG**: [Link](https://fr.euronews.com/my-europe/2026/04/28/emmanuel-macron-a-andorre-soutien-a-laccord-dassociation-avec-lue-et-appel-a-depenaliser-l)
+- **Emmanuel Macron appelle à faire progresser le débat sur l’avortement en Andorre**: [Link](https://www.sudouest.fr/politique/emmanuel-macron/emmanuel-macron-appelle-a-faire-progresser-le-debat-sur-l-avortement-en-andorre-28857775.php)
+
+
+### al-hilal – damac (N/A, Tue, 28 Apr 2026 10:20:00 -0700)
+
+- **Preview: Al-Hilal vs Damac - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/al-hilal/preview/al-hilal-vs-damac-prediction-team-news-lineups_596481.html)
+- **Inzaghi Comments on Al-Hilal's Asian Exit**: [Link](https://www.ysscores.com/en/news/13953652/Inzaghi-Comments-on-Al-Hilal's-Asian-Exit)
+- **Al Hilal Professional's Readiness Before the Match Against Damak**: [Link](https://www.ysscores.com/en/news/13952940/Al-Hilal-Professional's-Readiness-Before-the-Match-Against-Damak)
+
+
+### مضيق هرمز (N/A, Tue, 28 Apr 2026 10:20:00 -0700)
+
+- **النفط يرتفع 3% فوق 110 دولارات مع تعثر مفاوضات أمريكا وإيران**: [Link](https://www.aljazeera.net/ebusiness/2026/4/28/%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **أسعار النفط الأمريكي تتجاوز 100 دولار للبرميل وبرنت 111 دولارا**: [Link](https://aa.com.tr/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-100-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%84%D9%84%D8%A8%D8%B1%D9%85%D9%8A%D9%84-%D9%88%D8%A8%D8%B1%D9%86%D8%AA-111-%D8%AF%D9%88%D9%84%D8%A7%D8%B1%D8%A7-/3920784)
+- **استقرار البورصات مع بقاء النفط فوق 100 دولار وسط توتر أمريكي إيراني**: [Link](https://arabic.euronews.com/business/2026/04/27/european-markets-are-set-to-open-higher-despite-the-stalling-of-us-iran-negotiations)
+
+
+### patrick drahi (N/A, Tue, 28 Apr 2026 10:10:00 -0700)
+
+- **SFR : « La saga entrepreneuriale de Patrick Drahi n’était qu’une acrobatie financière »**: [Link](https://www.lemonde.fr/idees/article/2026/04/27/sfr-la-saga-entrepreneuriale-de-patrick-drahi-n-etait-qu-une-acrobatie-financiere_6683619_3232.html)
+- **Rachat de SFR : l’accord à 20 milliards qui a bien failli exploser**: [Link](https://siecledigital.fr/2026/04/28/rachat-de-sfr-laccord-a-20-milliards-qui-a-bien-failli-exploser/)
+- **“Les salariés grands oubliés de la vente à la découpe de SFR”, les 4 opérateurs mis en demeure par la CFE-CGC Télécoms - Univers Freebox | Dans les médias | Presse | CFE-CGC groupe Orange**: [Link](https://www.cfecgc-orange.org/2026042716260/revue-de-presse/les-salaries-grands-oublies-de-la-vente-a-la-decoupe-de-sfr-les-4-operateurs-mis-en-demeure-par-la-cfe-cgc-telecoms-univers-freebox.html)
+
+
+### فينيسيوس جونيور (N/A, Tue, 28 Apr 2026 09:40:00 -0700)
+
+- **بيريز يضع خطًا أحمر: ريال مدريد لن يكون بايرن ميونخ آخر مع فينيسيوس!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D9%8A%D8%B6%D8%B9-%D8%AE%D8%B7%D9%8B%D8%A7-%D8%A7%D9%94%D8%AD%D9%85%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%86-%D9%8A%D9%83%D9%88%D9%86-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A7%D9%93%D8%AE%D8%B1-%D9%85%D8%B9-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/bltfd1d1dd9788fb46b)
+- **“شتمه وتلفظ عليه”.. الكشف عن خلاف فينيسيوس مع مدرب ريال مدريد**: [Link](https://www.raialyoum.com/%D8%B4%D8%AA%D9%85%D9%87-%D9%88%D8%AA%D9%84%D9%81%D8%B8-%D8%B9%D9%84%D9%8A%D9%87-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AE%D9%84%D8%A7%D9%81-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88/)
+- **من يبقى ومن يرحل.. الجمهور يختار بين مبابي وفينيسيوس**: [Link](https://hihi2.com/2026/04/27/p3742325.html)
+
+
 ### فلورنتينو بيريز (N/A, Tue, 28 Apr 2026 09:00:00 -0700)
 
 - **"عداء قديم".. كيف رد كاسياس على أنباء عودة مورينيو لريال مدريد؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%AF%D8%A7%D8%A1-%D9%82%D8%AF%D9%8A%D9%85--%D9%83%D9%8A%D9%81-%D8%B1%D8%AF-%D9%83%D8%A7%D8%B3%D9%8A%D8%A7%D8%B3-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%86%D8%A8%D8%A7%D8%A1-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt940ea7b5d33624e9)
