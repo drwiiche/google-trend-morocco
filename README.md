@@ -1,3 +1,24 @@
+### weather (N/A, Mon, 27 Apr 2026 23:10:00 -0700)
+
+- **Northeast Ohio Weather: Much cooler after today; more rain tomorrow**: [Link](https://www.cleveland19.com/2026/04/28/northeast-ohio-weather-much-cooler-after-today-more-rain-tomorrow/)
+- **Cleveland area weather forecast: Cooling down after Tuesday**: [Link](https://www.wkyc.com/video/weather/forecast/cleveland-area-weather-forecast-cooling-down-after-tuesday/95-34941229-b0bf-438f-8545-31a5a37ae27c)
+- **Cool Sunday ahead for Cleveland before rain and storms return**: [Link](https://www.cleveland.com/weather/2026/04/cool-sunday-ahead-for-cleveland-before-rain-and-storms-return.html)
+
+
+### météo (N/A, Mon, 27 Apr 2026 23:00:00 -0700)
+
+- **Strasbourg : prévisions météo du mardi 28 avril 2026**: [Link](https://actus.meteocity.com/previsions-meteo/strasbourg-previsions-meteo-du-mardi-28-avril-2026-6806)
+- **Centre-Alsace. Météo : fraîcheur le matin, douceur l’après-midi ce vendredi**: [Link](https://www.dna.fr/environnement/2026/04/24/meteo-fraicheur-le-matin-douceur-l-apres-midi-ce-vendredi)
+- **Météo. Quel temps fera-t-il à Strasbourg et ses environs le mardi 28 avril 2026 ?**: [Link](https://www.ouest-france.fr/meteo/grand-est/strasbourg-67000/la-meteo-du-jour-a-strasbourg-1aa35ce3-5b11-4474-870b-adba10a6663a)
+
+
+### السنغال (N/A, Mon, 27 Apr 2026 21:50:00 -0700)
+
+- **موعد رسمي.. تطور جديد في قضية سحب لقب أمم إفريقيا**: [Link](https://www.eremnews.com/sports/oqaitv5)
+- **لقب الكان..الطاس تطلب دفوعات الجامعة**: [Link](https://www.ahdath.info/%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-%D8%AA%D8%B7%D9%84%D8%A8-%D8%AF%D9%81%D9%88%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9/)
+- **طلب عاجل من المحكمة الرياضية للاتحاد المغربي بشأن أزمة نهائي أمم إفريقيا**: [Link](https://www.elbalad.news/6951326)
+
+
 ### meteo (N/A, Mon, 27 Apr 2026 15:20:00 -0700)
 
 
