@@ -1,3 +1,73 @@
+### émirats arabes unis (N/A, Tue, 28 Apr 2026 12:40:00 -0700)
+
+- **EN DIRECT, guerre au Moyen-Orient : les Emirats arabes unis annoncent leur retrait de l’OPEP à partir de mai**: [Link](https://www.lemonde.fr/international/live/2026/04/28/en-direct-guerre-au-moyen-orient-israel-bombarde-le-sud-du-liban-malgre-le-cessez-le-feu-le-prix-du-baril-de-petrole-depasse-les-110-dollars_6681958_3210.html)
+- **Séisme sur le marché pétrolier : les Émirats arabes unis annoncent leur retrait de l’OPEP**: [Link](https://private-admin.medias24.com/2026/04/28/seisme-sur-le-marche-petrolier-les-emirats-arabes-unis-annoncent-leur-retrait-de-lopep-1667379/)
+- **Pétrole : les Émirats arabes unis annoncent se retirer de l’Opep à partir de mai**: [Link](https://www.lefigaro.fr/conjoncture/petrole-les-emirats-arabes-unis-annoncent-se-retirer-de-l-opep-a-partir-de-mai-20260428)
+
+
+### olise (N/A, Tue, 28 Apr 2026 12:30:00 -0700)
+
+- **Maradona would be proud! Khvicha Kvaratskhelia lights up 25/26 Champions League semis with stunning equalizer vs Bayern Munich**: [Link](https://tribuna.com/en/blogs/maradona-would-be-proud-khvicha-kvaratskhelia-lights-up-2526/)
+- **Khvicha Kvaratskhelia’s exceptional goal against Bayern**: [Link](https://frenchfootballweekly.com/2026/04/28/khvicha-kvaratskhelias-exceptional-goal-against-bayern/)
+- **Khvicha Kvaratskhelia Credits Luis Enrique for Growth at PSG**: [Link](https://roundtable.io/sports/soccer/ligue-1/paris-st-germain/khvicha-kvaratskhelia-credits-luis-enrique-for-growth-at-psg)
+
+
+### hakimi (N/A, Tue, 28 Apr 2026 12:30:00 -0700)
+
+- **Kane y Luis Díaz, la mejor dupla goleadora del curso por delante de tres parejas de LaLiga**: [Link](https://www.transfermarkt.es/kane-y-luis-diaz-la-mejor-dupla-goleadora-del-curso-por-delante-de-tres-parejas-de-laliga/view/news/478641)
+- **La delantera del Bayern, valorada en 275 millones de euros, arrolla al PSG.**: [Link](https://www.vietnam.vn/es/hang-cong-275-trieu-euro-cua-bayern-ap-dao-psg)
+- **Luis Díaz, a reencontrarse con el PSG en un estadio que lo vio brillar**: [Link](https://www.clarosports.com/futbol/champions-league/luis-diaz-a-reencontrarse-con-el-psg-en-un-estadio-que-lo-vio-brillar/)
+
+
+### paris (N/A, Tue, 28 Apr 2026 12:10:00 -0700)
+
+- **Paris truqués : un ex-proche de LeBron James plaide coupable**: [Link](https://www.rds.ca/basketball/nba/article/paris-truques-un-ex-proche-de-lebron-james-plaide-coupable/)
+- **L’ancien joueur et entraîneur NBA Damon Jones plaide coupable dans une affaire de paris sportifs**: [Link](https://www.flashscore.fr/actualites/basketball-nba-l-ancien-joueur-et-entraineur-nba-damon-jones-plaide-coupable-dans-une-affaire-de-paris-sportifs/Wne818fT/)
+- **NBA. Damon Jones, un ancien proche de Lebron James, a plaidé coupable dans l’affaire des paris**: [Link](https://lemans.maville.com/sport/detail_-nba.-damon-jones-un-ancien-proche-de-lebron-james-a-plaide-coupable-dans-l-affaire-des-paris-truques-_54135-7298486_actu.Htm)
+
+
+### budapest (N/A, Tue, 28 Apr 2026 12:00:00 -0700)
+
+- **Best Mother’s Day programmes in Budapest**: [Link](https://welovebudapest.com/en/toplist/best-things-to-do-on-mother-s-day-in-budapest-in-2026/)
+- **Experiences instead of flowers: 8 Mother’s Day programmes to enjoy together in and around Budapest**: [Link](https://welovebudapest.com/en/toplist/experiences-instead-of-flowers-8-mother-s-day-programmes-to-enjoy-together-in-and-around-budapest/)
+- **Freddie Mercury Exhibition Opens in Budapest, Revisiting Queen’s Landmark 1986 Concert**: [Link](https://hungarytoday.hu/freddie-mercury-exhibition-opens-in-budapest-revisiting-queens-landmark-1986-concert/)
+
+
+### southampton – ipswich town (N/A, Tue, 28 Apr 2026 12:00:00 -0700)
+
+- **Southampton v Ipswich Town pre-match stat pack**: [Link](https://www.efl.com/news/2026/april/28/southampton-v-ipswich-town-pre-match-stat-pack/)
+- **Southampton vs Ipswich LIVE Score Updates in EFL Championship Match**: [Link](https://www.vavel.com/en-us/soccer/2026/04/28/1258955-southampton-vs-ipswich-live-score-efl-championship.html)
+- **Tonda Eckert: Southampton boss on 'remarkable Ipswich**: [Link](https://www.bbc.co.uk/sport/football/articles/c9q3gn90yg5o)
+
+
+### bayern (N/A, Tue, 28 Apr 2026 11:30:00 -0700)
+
+- **Live-Übertragung von PSG gegen Bayern München**: [Link](https://www.vietnam.vn/de/truc-tiep-psg-vs-bayern-munich)
+- **"Hätte dagegen gewettet, dass er es so macht": Mats Hummels ist überrascht von Vincent Kompanys Bayern-Aufstellung gegen PSG**: [Link](https://www.spox.com/fussball/listen/haette-dagegen-gewettet-dass-er-es-so-macht-mats-hummels-ist-ueberrascht-von-vincent-kompanys-bayern-aufstellung-gegen-psg/blt434ecc4db72bd496)
+- **Díaz vs. Hakimi: Ein Wiedersehen mit brisanter Vorgeschichte**: [Link](https://www.sport1.de/tv-video/video/diaz-vs-hakimi-ein-wiedersehen-mit-brisanter-vorgeschichte__180CCB6F-BF34-49F5-B888-1441999611E1)
+
+
+### claude (N/A, Tue, 28 Apr 2026 11:20:00 -0700)
+
+- **Claude-powered AI coding agent deletes entire company database in 9 seconds — backups zapped, after Cursor tool powered by Anthropic's Claude goes rogue**: [Link](https://www.tomshardware.com/tech-industry/artificial-intelligence/claude-powered-ai-coding-agent-deletes-entire-company-database-in-9-seconds-backups-zapped-after-cursor-tool-powered-by-anthropics-claude-goes-rogue)
+- **This Claude-powered AI agent deleted a company's whole database — and then gloated about it**: [Link](https://tech.yahoo.com/ai/article/this-claude-powered-ai-agent-deleted-a-companys-whole-database--and-then-gloated-about-it-165838948.html)
+- **Cursor-Opus agent snuffs out startup’s production database**: [Link](https://www.theregister.com/2026/04/27/cursoropus_agent_snuffs_out_pocketos/)
+
+
+### paris-sg – bayern (N/A, Tue, 28 Apr 2026 11:10:00 -0700)
+
+- **DIRECT. PSG-Bayern: quelle bataille au Parc, les Parisiens renversent tout grâce à dix minutes folles**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-psg-bayern-suivez-en-live-la-demi-finale-aller-de-la-ligue-des-champions_LS-202604280284.html)
+- **Vitinha titulaire, le Bayern avec son quatuor magique et Davies : les compos**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2025-2026/football-ligue-des-champions-vitinha-titulaire-le-bayern-avec-son-quatuor-magique-et-alphonso-davies-les-compos-de-psg-bayern_sto23294705/story.shtml)
+- **Le PSG avec Doué et Zaïre-Emery contre le Bayern, Barcola et Ruiz sur le banc**: [Link](https://www.lequipe.fr/Football/Actualites/La-composition-du-psg-contre-le-bayern-munich-doue-et-zaire-emery-titulaires-barcola-et-ruiz-sur-le-banc/1671679)
+
+
+### بي اس جي ضد البايرن (N/A, Tue, 28 Apr 2026 11:10:00 -0700)
+
+- **مباشر.. مباراة باريس سان جيرمان ضد بايرن ميونخ في ذهاب نصف نهائي دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/28/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86)
+- **كين يبصم على رقم إنجليزي تاريخي.. ويكرر إنجاز ليفاندوفسكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%86-%D9%8A%D8%A8%D8%B5%D9%85-%D8%B9%D9%84%D9%89-%D8%B1%D9%82%D9%85-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt8e77e5bc146c8fd0)
+- **نهائي مبكر بين سان جيرمان وبايرن**: [Link](https://www.hespress.com/%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%85%D8%A8%D9%83%D8%B1-%D8%A8%D9%8A%D9%86-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-1737658.html)
+
+
 ### عنف أسري (N/A, Tue, 28 Apr 2026 10:40:00 -0700)
 
 - **«عنف زوجي» أمام كاميرا برنامج لتلفزيون الواقع يغضب المغاربة**: [Link](https://www.alquds.co.uk/%D8%B9%D9%86%D9%81-%D8%B2%D9%88%D8%AC%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%84%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88/)
