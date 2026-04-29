@@ -1,3 +1,45 @@
+### alvarez (N/A, Wed, 29 Apr 2026 13:30:00 -0700)
+
+- **Julian Alvarez: Diego Simeone says Arsenal interested in signing Atletico Madrid forward along with PSG and Barcelona**: [Link](https://www.skysports.com/football/news/11095/13537576/julian-alvarez-diego-simeone-says-arsenal-interested-in-signing-atletico-madrid-forward-along-with-psg-and-barcelona)
+- **Transfer rumors, news: Atlético ready to reject £130m for Álvarez**: [Link](https://www.espn.com/soccer/story/_/id/48625304/transfer-rumors-news-atletico-madrid-ready-reject-130m-julian-alvarez)
+- **Revealed: How much Barcelona will offer Atletico for Julian Alvarez**: [Link](https://www.barcablaugranes.com/fc-barcelona-transfer-rumors-news/118895/revealed-how-much-barcelona-will-offer-atletico-for-julian-alvarez)
+
+
+### griezmann (N/A, Wed, 29 Apr 2026 13:30:00 -0700)
+
+- **Arsenal beware...Atletico Madrid will be riding a wave of emotion at the end of an era**: [Link](https://www.mirror.co.uk/sport/football/news/arsenal-bewareatletico-madrid-riding-wave-37087486)
+- **Antoine Griezmann: Can he win Champions League with Atletico Madrid?**: [Link](https://www.bbc.com/sport/football/articles/c202l6yxvmxo)
+- **Antoine Griezmann Prepares for Final Bow at Atlético Madrid**: [Link](https://streamlinefeed.co.ke/news/griezmann-atletico-madrid-farewell-mls-transfer)
+
+
+### carburant (N/A, Wed, 29 Apr 2026 13:10:00 -0700)
+
+- **TotalEnergies : Sébastien Lecornu défend l’entreprise contre la gauche qui veut taxer les « superprofits »**: [Link](https://www.lemonde.fr/international/article/2026/04/29/totalenergies-sebastien-lecornu-defend-l-entreprise-contre-la-gauche-qui-veut-taxer-les-superprofits_6684307_3210.html)
+- **La Bourse de Paris sur ses gardes malgré les bons résultats de TotalEnergies**: [Link](https://medias24.com/agence-presse/la-bourse-de-paris-sur-ses-gardes-malgre-les-bons-resultats-de-totalenergies/)
+- **Totalenergies : Propulsé par le bond des cours du pétrole, Totalenergies voit son bénéfice trimestriel bondir de 51% à 5,8 milliards de dollars et augmente son dividende**: [Link](https://www.tradingsat.com/totalenergies-FR0000120271/actualites/totalenergies-propulse-par-le-bond-des-cours-du-petrole-totalenergies-voit-son-benefice-trimestriel-bondir-de-51-a-58-milliards-de-dollars-et-augmente-son-dividende-1161636.html)
+
+
+### معاريف (N/A, Wed, 29 Apr 2026 13:10:00 -0700)
+
+- **معاريف: إسرائيل على حافة خطر وجودي حقيقي**: [Link](https://www.aljazeera.net/politics/2026/4/29/%D9%85%D8%B9%D8%A7%D8%B1%D9%8A%D9%81-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%B9%D9%84%D9%89-%D8%AD%D8%A7%D9%81%D8%A9-%D8%AE%D8%B7%D8%B1-%D9%88%D8%AC%D9%88%D8%AF%D9%8A)
+- **قراءة إسرائيلية في العمليات الحالية ضد حزب الله.. "القتال العنيف"**: [Link](https://arabi21.com/story/1755646/%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%82%D8%AA%D8%A7%D9%84-%D8%A7%D9%84%D8%B9%D9%86%D9%8A%D9%81)
+- **إعلام: نتنياهو يحاول تحميل الجيش مسؤولية النتائج المحبطة بلبنان**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%AD%D8%A7%D9%88%D9%84-%D8%AA%D8%AD%D9%85%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%85%D8%AD%D8%A8%D8%B7%D8%A9-%D8%A8%D9%84%D8%A8%D9%86%D8%A7%D9%86/3919133)
+
+
+### tod (N/A, Wed, 29 Apr 2026 12:50:00 -0700)
+
+- **Tod’s pays tribute to artisanal excellence**: [Link](https://harpersbazaar.com.au/tods-art-of-craftmanship-campaign/)
+- **EXCLUSIVE: Hadjar on Red Bull, the daunting second seat next to Verstappen and faith in his ability**: [Link](https://www.formula1.com/en/latest/article/exclusive-hadjar-on-red-bull-the-daunting-second-seat-next-to-verstappen-and-faith-in-his-ability.2OUbk6wDXQOYZNW8vHbqah)
+- **‘My Road To Red Bull’ Docuseries Chronicles Formula 1 Rising Star Isack Hadjar’s Journey**: [Link](https://deadline.com/2026/04/formula-1-my-road-to-red-bull-docuseries-isack-hadjar-bein-1236873238/)
+
+
+### arsenal (N/A, Wed, 29 Apr 2026 12:30:00 -0700)
+
+- **Viral ham sandwich man steals show AGAIN during Arsenal's Champions League clash against Atletico Madrid**: [Link](https://www.thesun.co.uk/sport/38970610/arsenal-atletico-madrid-champions-league-fan-ham-sandwich/)
+- **Fuming Arsenal demand pitch inspection just minutes before Champions League semi-final clash vs Atletico**: [Link](https://www.thesun.co.uk/sport/38970035/arsenal-demand-pitch-inspection-champions-league-atletico-madrid/)
+- **‘Two goals and head home’ – Cerezo outlines Atletico’s Champions League blueprint**: [Link](https://www.besoccer.com/new/two-goals-and-head-home-cerezo-outlines-atleticos-champions-league-blueprint-1406936)
+
+
 ### المغرب الفاسي ضد حسنية أكادير (N/A, Wed, 29 Apr 2026 12:40:00 -0700)
 
 
