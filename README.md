@@ -1,3 +1,31 @@
+### aïd (N/A, Wed, 29 Apr 2026 15:20:00 -0700)
+
+- **Aïd el-Kébir en France : les calculs astronomiques ont tranché, découvrez la date exacte**: [Link](https://www.bladi.net/aid-el-kebir-france-calculs-astronomiques-tranche-decouvrez-date-exacte,120957.html)
+- **Fête de l'Aïd el-Kébir 2026 : les premières interdictions décidées par la préfecture de l'Isère**: [Link](https://actu.fr/auvergne-rhone-alpes/grenoble_38185/fete-de-l-aid-el-kebir-2026-les-premieres-interdictions-decidees-par-la-prefecture-de-l-isere_64182561.html)
+- **L’Aïd el-Kebir approche : quand est prévue la grande fête musulmane en France ?**: [Link](https://www.24matins.fr/laid-el-kebir-approche-quand-est-prevue-la-grande-fete-musulmane-en-france-1406697)
+
+
+### كيليان مبابي (N/A, Wed, 29 Apr 2026 14:40:00 -0700)
+
+- **بدعم من مبابي.. وليد الركراكي يُشعل غرفة ملابس ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AF%D8%B9%D9%85-%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D9%8F%D8%B4%D8%B9%D9%84-%D8%BA%D8%B1%D9%81%D8%A9-%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltbf43d78b708a673a)
+- **أزمة داخل غرفة الملابس بريال مدريد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A3%D8%B2%D9%85%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84-%D8%BA%D8%B1%D9%81%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D8%A8%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/19467)
+- **مبابي يتهم زملاءه بـ"تخريب" ريال مدريد.. واللاعبون يرفضون ترشيحه للركراكي**: [Link](https://www.alarabiya.net/sport/2026/04/29/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AA%D9%87%D9%85-%D8%B2%D9%85%D9%84%D8%A7%D8%A1%D9%87-%D8%A8%D9%80%D8%AA%D8%AE%D8%B1%D9%8A%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%88%D9%86-%D9%8A%D8%B1%D9%81%D8%B6%D9%88%D9%86-%D8%AA%D8%B1%D8%B4%D9%8A%D8%AD%D9%87-%D9%84%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A)
+
+
+### هشام آيت (N/A, Wed, 29 Apr 2026 14:20:00 -0700)
+
+- **"وينرز" يصعد ضد آيت منا: أنت هنا لخدمة النادي وليس لجعله يخدم مصالحك**: [Link](https://ar.telquel.ma/%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%8A%D8%B5%D8%B9%D8%AF-%D8%B6%D8%AF-%D8%A2%D9%8A%D8%AA-%D9%85%D9%86%D8%A7-%D8%A3%D9%86%D8%AA-%D9%87%D9%86%D8%A7-%D9%84%D8%AE%D8%AF%D9%85%D8%A9-%D8%A7%D9%84%D9%86/)
+- **أنصار الوداد ينتقدون توقيت مباريات الإياب ويطالبون بالتوضيح**: [Link](https://www.radiomars.ma/%D8%A3%D9%86%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%86%D8%AA%D9%82%D8%AF%D9%88%D9%86-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84/)
+- **جماهير الوداد تنفجر في وجه آيت منا بمركب محمد الخامس**: [Link](https://m.elbotola.com/article/2026-04-29-18-53-685.html)
+
+
+### ترتيب الدوري السعودي (N/A, Wed, 29 Apr 2026 13:00:00 -0700)
+
+- **فيديو: النصر يجرد الأهلي من أفراح النخبة ويقترب من حسم دوري روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%AC%D8%B1%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%85%D9%86-%D8%A7%D9%94%D9%81%D8%B1%D8%A7%D8%AD-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9-%D9%88%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A/bltbf3693bdc714de1e)
+- **قدم.. النصر يحسم لقاء قمة الدوري السعودي أمام الأهلي**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%AD%D8%B3%D9%85-%D9%84%D9%82%D8%A7%D8%A1-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A/3922261)
+- **1.3 مليار ريال بين النصر والأهلي .. هل تتحكم الأرقام في الكلاسيكو؟**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/13-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%87%D9%84-%D8%AA%D8%AA%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-9255)
+
+
 ### julián alvarez (N/A, Wed, 29 Apr 2026 13:40:00 -0700)
 
 - **La zona Julián**: [Link](https://as.com/futbol/champions/la-zona-julian-f202604-n/)
