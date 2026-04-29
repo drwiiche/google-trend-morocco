@@ -1,3 +1,59 @@
+### النصر ضد الأهلي (N/A, Wed, 29 Apr 2026 10:50:00 -0700)
+
+- **فيديو: من يلو إلى النخبة.. جماهير النصر والأهلي تشعل الكلاسيكو مبكرًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D9%86-%D9%8A%D9%84%D9%88-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%85%D8%A8%D9%83%D8%B1%D9%8B%D8%A7/bltda55cdaddc7023f4)
+- **فيديو: لقطة نادرة.. جماهير النصر تهنئ يايسله بلقب نخبة آسيا!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%82%D8%B7%D8%A9-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%AA%D9%87%D9%86%D9%8A%D9%94-%D9%8A%D8%A7%D9%8A%D8%B3%D9%84%D9%87-%D8%A8%D9%84%D9%82%D8%A8-%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7/bltd5a3a464b1fa8aa0)
+- **مباشر.. مباراة النصر ضد الأهلي في الدوري السعودي..لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/4/29/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-2)
+
+
+### al-nassr fc – al-ahli saudi (N/A, Wed, 29 Apr 2026 10:30:00 -0700)
+
+- **Cristiano Ronaldo and Al-Nassr hit with Inigo Martinez blow ahead of Al-Ahli clash in Saudi Pro League as r...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-and-al-nassr-hit-with-inigo-martinez-blow-ahead-of-al-ahli-clash-in-saudi-pro-league-as-reason-for-likely-absence-emerges/)
+- **Date with destiny: 3 games, 9 days to decide Al Nassr title dream?**: [Link](https://onefootball.com/en/news/date-with-destiny-3-games-9-days-to-decide-al-nassr-title-dream-42782154)
+- **Al Nassr 5-1 Al Ahli - Cristiano Ronaldo Masterclass | AFC Champions League Highlights 2025/26 (7jShY9s5Jy)**: [Link](https://fathomjournal.org/8a4dd33esmm/bfef317c-px1wJstkuJA.html)
+
+
+### jerome powell (N/A, Wed, 29 Apr 2026 10:30:00 -0700)
+
+- **FX Daily: Powell’s last act might carry a hawkish tint**: [Link](https://think.ing.com/articles/fx-daily-powells-last-act-might-carry-a-hawkish-tint/)
+- **Powell's Last FOMC, Warsh Watch Greet 29 Apr Markets**: [Link](https://www.heygotrade.com/en/news/powell-last-fomc-warsh-successor-watch-29-apr-2026/)
+- **Federal Reserve live: US central bank expected to keep interest rates on hold as energy crisis deepens**: [Link](https://www.ft.com/content/9dd7789d-55fa-4518-8fea-d78ce19e9e71)
+
+
+### snrt (N/A, Wed, 29 Apr 2026 10:20:00 -0700)
+
+- **Gérone : Real Betis prêt à passer à l’action pour Azzedine Ounahi**: [Link](https://fr.hespress.com/471267-gerone-real-betis-pret-a-passer-a-laction-pour-azzedine-ounahi.html)
+- **Football : Ounahi dans le viseur de Manchester City**: [Link](https://mobile.telquel.ma/instant-t/2026/04/27/football-ounahi-dans-le-viseur-de-manchester-city_1986407/)
+- **Après Manchester City, l'Atlético de Madrid lorgne Azzedine Ounahi**: [Link](https://www.yabiladi.com/articles/details/193205/apres-manchester-city-l-atletico-madrid)
+
+
+### médias 24 (N/A, Wed, 29 Apr 2026 10:20:00 -0700)
+
+- **Démolitions à l'Océan. Ce qu'il faut comprendre du plan d'aménagement de Rabat**: [Link](https://medias24.com/2026/04/29/demolitions-a-locean-ce-quil-faut-comprendre-du-plan-damenagement-de-rabat-1667005/)
+- **Rabat : démolitions en série dans le quartier de l’Océan**: [Link](https://www.lesinfos.ma/article/149641992-La%C3%A2youne%20:%20incendie%20au%20march%C3%A9%20du%20b%C3%A9tail,%20les%20%C3%A9leveurs%20touch%C3%A9s)
+- **Rabat : les démolitions au quartier de l’Océan divisent les élus municipaux**: [Link](https://medias24.com/2026/04/28/demolitions-au-quartier-de-locean-un-projet-de-modernisation-qui-divise-les-elus-municipaux-de-rabat-1667527/)
+
+
+### arsenal vs atletico madrid (N/A, Wed, 29 Apr 2026 10:20:00 -0700)
+
+- **Preview: Atletico de Madrid v Arsenal | Match preview | News**: [Link](https://www.arsenal.com/news/preview-atletico-de-madrid-v-arsenal)
+- **Koke : "Si nous pouvions offrir la Ligue des champions à Griezmann, ce serait incroyable”**: [Link](https://onefootball.com/en/video/koke-si-nous-pouvions-offrir-la-ligue-des-champions-a-griezmann-ce-serait-incroyable-42786818)
+- **Millions Pour Into Kalshi for Champions League Semifinal Between Arsenal and Atletico Madrid**: [Link](https://www.si.com/betting/prediction-market/news/millions-pour-into-kalshi-for-champions-league-semifinal-between-arsenal-and-atletico-madrid)
+
+
+### أولمبيك أسفي ضد اتحاد طنجة (N/A, Wed, 29 Apr 2026 10:10:00 -0700)
+
+- **لعنة الإصابات تطارد اتحاد طنجة قبل مواجهة أولمبيك آسفي**: [Link](https://www.radiomars.ma/%D9%84%D8%B9%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B7%D8%A7%D8%B1%D8%AF-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7/)
+- **أولمبيك آسفي يطرح تذاكر مباراة طنجة**: [Link](https://www.hesport.com/%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D9%83-%D8%A2%D8%B3%D9%81%D9%8A-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B7%D9%86%D8%AC%D8%A9-436641.html)
+- **آسفي يواصل تخفيض أثمنة التذاكر**: [Link](https://assabah.ma/920208.html)
+
+
+### الوداد الرياضي ضد يعقوب المنصور (N/A, Wed, 29 Apr 2026 10:00:00 -0700)
+
+- **الوداد وكارتيرون: كلفة قرار لم يُطرح فيه السؤال الصحيح**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D9%83%D8%A7%D8%B1%D8%AA%D9%8A%D8%B1%D9%88%D9%86-%D9%83%D9%84%D9%81%D8%A9-%D9%82%D8%B1%D8%A7%D8%B1-%D9%84%D9%85-%D9%8A%D9%8F%D8%B7%D8%B1%D8%AD-%D9%81%D9%8A%D9%87-%D8%A7%D9%84%D8%B3%D9%88%D9%94%D8%A7%D9%84-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%AD/blt87030d2508a4dd94)
+- **تشكيلة الوداد أمام يعقوب المنصور.. عودة زياش للرسمية وحضور بوشواري وبيار منذ البداية**: [Link](https://m.elbotola.com/article/2026-04-29-15-46-1000.html)
+- **هكذا احتفل اللاعب مصدق بعد تسجيله الهدف الأول للوداد في شباك يعقوب المنصور**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/478160.html)
+
+
 ### التعاون ضد الاتحاد (N/A, Wed, 29 Apr 2026 09:40:00 -0700)
 
 - **فيديو: "اعتدنا العبور فوقه".. التعاون يسخر من اتحاد جدة قبل موقعة روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D8%B9%D8%AA%D8%AF%D9%86%D8%A7-%D8%A7%D9%84%D8%B9%D8%A8%D9%88%D8%B1-%D9%81%D9%88%D9%82%D9%87--%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AC%D8%AF%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%B1%D9%88%D8%B4%D9%86/blt7866b5b4abe702cc)
