@@ -1,3 +1,10 @@
+### julián alvarez (N/A, Wed, 29 Apr 2026 13:40:00 -0700)
+
+- **La zona Julián**: [Link](https://as.com/futbol/champions/la-zona-julian-f202604-n/)
+- **Las dudas que maneja Simeone de cara al once ante el Arsenal**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260428/1004176306/dudas-maneja-simeone-cara-once-arsenal.html)
+- **Revancha de penal y preocupación por un golpe para Julián Álvarez**: [Link](https://onefootball.com/pt-br/noticias/revancha-de-penal-y-preocupacion-por-un-golpe-para-julian-alvarez-42789796)
+
+
 ### alvarez (N/A, Wed, 29 Apr 2026 13:30:00 -0700)
 
 - **Julian Alvarez: Diego Simeone says Arsenal interested in signing Atletico Madrid forward along with PSG and Barcelona**: [Link](https://www.skysports.com/football/news/11095/13537576/julian-alvarez-diego-simeone-says-arsenal-interested-in-signing-atletico-madrid-forward-along-with-psg-and-barcelona)
