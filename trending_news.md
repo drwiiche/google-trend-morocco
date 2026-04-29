@@ -1,3 +1,10 @@
+### kick (N/A, Tue, 28 Apr 2026 18:30:00 -0700)
+
+- **ChudtheBuilder’s 3-day ban escalates to indefinite Kick ban following harassment backlash**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/chudthebuilders-3-day-ban-escalates-to-indefinite-kick-ban-following-harassment-backlash/articleshow/130589848.cms)
+- **Kick takes strict action against streamer Chudthebuilder after public harassment video surfaces**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/kick-takes-strict-action-against-streamer-chudthebuilder-after-public-harassment-video-surfaces/articleshow/130539393.cms)
+- **Kick-off Of Feasibility Study For A New Generation Of European ALMA Receivers**: [Link](https://astrobiology.com/2026/04/kick-off-of-feasibility-study-for-a-new-generation-of-european-alma-receivers.html)
+
+
 ### هسبريس (N/A, Tue, 28 Apr 2026 16:40:00 -0700)
 
 - **تقلبات النفط وأزمة مضيق هرمز تنذر بارتفاع جديد لأسعار المحروقات بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%88%D8%A3%D8%B2%D9%85%D8%A9-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2-%D8%AA%D9%86%D8%B0%D8%B1-%D8%A8%D8%A7%D8%B1%D8%AA-1738370.html)
