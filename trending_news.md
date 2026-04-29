@@ -1,3 +1,69 @@
+### المغرب الفاسي ضد حسنية أكادير (N/A, Wed, 29 Apr 2026 12:40:00 -0700)
+
+
+
+
+### حصار بحري (N/A, Wed, 29 Apr 2026 12:40:00 -0700)
+
+- **إيران تهدد بعمل عسكري غير مسبوق وأمريكا تتجه لحصار بحري طويل**: [Link](https://www.aljazeera.net/news/2026/4/29/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D8%B1%D8%B3-%D8%AA%D9%8A-%D9%81%D9%8A-%D8%B9%D9%86-%D9%85%D8%B5%D8%AF%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A)
+- **إيران والمنطقة الغامضة وتفاصيل عملية "غسيل النفط" قبل بيعه**: [Link](https://arabic.cnn.com/middle-east/article/2026/04/29/the-lawless-floating-gas-station-where-iranian-oil-changes-hands)
+- **وكالة فارس: 52 سفينة إيرانية تكسر الحصار الأميركي خلال 72 ساعة**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D9%81%D8%A7%D8%B1%D8%B3-52-%D8%B3%D9%81%D9%8A%D9%86%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D9%83%D8%B3%D8%B1-%D8%A7%D9%84%D8%AD%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%AE%D9%84%D8%A7%D9%84-72-%D8%B3%D8%A7%D8%B9%D8%A9/3920828)
+
+
+### غاز (N/A, Wed, 29 Apr 2026 12:20:00 -0700)
+
+- **خط أنابيب غاز نيجيريا-المغرب يقترب من محطة التمويل الأولى**: [Link](https://asharqbusiness.com/companies/130656/%D8%AE%D8%B7-%D8%A3%D9%86%D8%A7%D8%A8%D9%8A%D8%A8-%D8%BA%D8%A7%D8%B2-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%85%D8%AD%D8%B7%D8%A9-%D8%A7%D9%84%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89/)
+- **واردات الغاز المغربية تنخفض بـ 15%**: [Link](https://kech24.com/%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%BA%D8%A7%D8%B2-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%86%D8%AE%D9%81%D8%B6-%D8%A8%D9%80-15.html)
+- **المغرب يعزز بنيته التحتية للغاز الطبيعي ضمن رؤية طاقية جديدة - تليكسبريس**: [Link](https://telexpresse.com/470211.html)
+
+
+### نادي تشيلسي (N/A, Wed, 29 Apr 2026 12:20:00 -0700)
+
+- **رسميا.. الاتحاد الإنجليزي يوقف نجم تشيلسي 4 سنوات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%8A%D9%88%D9%82%D9%81-%D9%86%D8%AC%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-4-%D8%B3%D9%86%D9%88%D8%A7%D8%AA/blteefe3faaa54aed2b)
+- **محكمة "كاس" تنظر في قضية مودريك ضد الاتحاد الإنجليزي**: [Link](https://www.alarabiya.net/sport/2026/04/29/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D9%83%D8%A7%D8%B3-%D8%AA%D9%86%D8%B8%D8%B1-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D9%83-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+- **"أعتقد أنه سيعود"**: [Link](https://albalad.news/sport/%D8%A3%D8%B9%D8%AA%D9%82%D8%AF-%D8%A3%D9%86%D9%87-%D8%B3%D9%8A%D8%B9%D9%88%D8%AF/452537/)
+
+
+### classement botola (N/A, Wed, 29 Apr 2026 12:00:00 -0700)
+
+- **Botola : leadership en jeu pour le MAS, le Wydad en quête de relance**: [Link](https://lematin.ma/sports/botola-leadership-en-jeu-pour-le-mas-le-wydad-en-quete-de-relance/342882)
+- **Hadra Fel Koora S2 EP 14. Reprise de la Botola entre confirmation du MAS, réveil du Raja et incertitudes du WAC**: [Link](https://sport.le360.ma/football/botola/hadra-fel-koora-s2-ep-14-reprise-de-la-botola-entre-confirmation-du-mas-reveil-du-raja-et_AOYM34W2CNFFVAJSIYDMRUQYVI/)
+- **Le MAS seul en tête, le Raja en chasse, l'AS FAR et le Wydad reculent**: [Link](https://m.elbotola.com/fr/article/2026-04-26-20-51-172.html)
+
+
+### botola pro (N/A, Wed, 29 Apr 2026 12:00:00 -0700)
+
+
+
+
+### wydad athletic club (N/A, Wed, 29 Apr 2026 12:00:00 -0700)
+
+- **Les Winners dans un message "incendiaire" à Ait Mena : "Tu sèmes la discorde parmi les joueurs et les supporters"**: [Link](https://m.elbotola.com/fr/article/2026-04-28-21-18-905.html)
+- **Wydad Casablanca, un été sous tension entre prolongations, départs et incertitudes**: [Link](https://africafoot.com/wydad-casablanca-un-ete-sous-tension-entre-prolongations-departs-et-incertitudes/)
+- **Plus de 50 membres du Wydad saisissent la justice pour un audit financier complet**: [Link](https://m.elbotola.com/fr/article/2026-04-28-17-05-599.html)
+
+
+### ترتيب الدوري المغربي (N/A, Wed, 29 Apr 2026 11:50:00 -0700)
+
+- **إعلان موعد ديربي الوداد والرجاء.. وفيفا يوافق على طلب رابطة الدوري المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1--%D9%88%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%B7%D9%84%D8%A8-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt6df641ad713c84c4)
+- **تحديد موعد ديربي الرجاء والوداد**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1738368.html)
+- **رسمياً..الكشف عن مواعيد الجولات 18 و19 و20 من البطولة الاحترافية**: [Link](https://www.radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A7/)
+
+
+### sporting – tondela (N/A, Wed, 29 Apr 2026 11:50:00 -0700)
+
+- **~!@[ESPN@!AO VIVO]+ Sporting CP x Tondela live | 29 de abril de 2026**: [Link](http://ftp.storycorps.org/cdx/video/video-sporting-cp-x-tondela-match-tv1554202.html)
+- **12h30m Edição João Gomes Dias**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/12h30m-edicao-joao-gomes-dias_a1_1737760)
+- **Há novos leões com queixas físicas... mas um deles vai mesmo ser titular frente ao Tondela**: [Link](https://www.record.pt/multimedia/videos/sporting/detalhe/ha-novos-leoes-com-queixas-fisicas-mas-um-deles-vai-mesmo-ser-titular-frente-ao-tondela)
+
+
+### wydad vs (N/A, Wed, 29 Apr 2026 11:50:00 -0700)
+
+- **Throne Cup Quarter-Final Draw Features Intense and Balanced Matches**: [Link](https://m.elbotola.com/en/article/2026-04-28-19-48-609.html)
+- **Throne Cup Round of 32 Draw: Wydad vs Beni Mellal, Raja to face Chabab Al Massira**: [Link](https://africasoccer.com/throne-cup-round-of-32-draw-wydad-vs-beni-mellal-raja-to-face-chabab-al-massira/)
+- **Throne Cup: Draw for Final Phases Set for April 28**: [Link](https://www.moroccoworldnews.com/2026/04/288397/throne-cup-draw-for-final-phases-set-for-april-28/)
+
+
 ### النصر ضد الأهلي (N/A, Wed, 29 Apr 2026 10:50:00 -0700)
 
 - **فيديو: من يلو إلى النخبة.. جماهير النصر والأهلي تشعل الكلاسيكو مبكرًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D9%86-%D9%8A%D9%84%D9%88-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%AE%D8%A8%D8%A9--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%85%D8%A8%D9%83%D8%B1%D9%8B%D8%A7/bltda55cdaddc7023f4)
