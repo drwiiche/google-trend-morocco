@@ -1,3 +1,45 @@
+### التعاون ضد الاتحاد (N/A, Wed, 29 Apr 2026 09:40:00 -0700)
+
+- **فيديو: "اعتدنا العبور فوقه".. التعاون يسخر من اتحاد جدة قبل موقعة روشن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D8%B9%D8%AA%D8%AF%D9%86%D8%A7-%D8%A7%D9%84%D8%B9%D8%A8%D9%88%D8%B1-%D9%81%D9%88%D9%82%D9%87--%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AC%D8%AF%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%B1%D9%88%D8%B4%D9%86/blt7866b5b4abe702cc)
+- **من يعوض غياب بيريرا أمام التعاون !**: [Link](https://hihi2.com/2026/04/28/p3743093.html)
+- **ترتيب دوري روشن السعودي 2026 محدّث بعد مباريات الثلاثاء من الجولة 30**: [Link](https://onefootball.com/id/berita/2026-30-42785362)
+
+
+### منتخب السنغال لكرة القدم (N/A, Wed, 29 Apr 2026 09:40:00 -0700)
+
+- **رسميا.. مجلس الفيفا يقر قانونين بعد انسحاب السنغال أمام المغرب وواقعة فينيسيوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%82%D8%B1-%D9%82%D8%A7%D9%86%D9%88%D9%86%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/blt4c58f48cb44a150d)
+- **لجنة الحكام الألمانية تحسم تطبيق "قانون فينيسيوس" بعد المونديال**: [Link](https://www.aljazeera.net/sport/2026/4/29/%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B3%D9%85-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82)
+- **كأس العالم 2026.. المجلس الدولي لكرة القدم يعتبر الفريق المتسبب في إلغاء أي مباراة خاسرا**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%8A%D8%B9%D8%AA%D8%A8%D8%B1-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%AA%D8%B3%D8%A8%D8%A8-20260429)
+
+
+### wac (N/A, Wed, 29 Apr 2026 09:30:00 -0700)
+
+- **Central Valley baseball team defends WAC championship**: [Link](https://www.cerescourier.com/sports/high-school-sports/central-valley-baseball-team-defends-wac-championship/)
+- **Central Valley edges out Ceres High in softball action**: [Link](https://www.cerescourier.com/sports/high-school-sports/central-valley-edges-out-ceres-high-in-softball-action/)
+- **Hoyeau in Top Five, ACU in Third Entering Final Round at WAC Championship**: [Link](https://acusports.com/news/2026/4/28/mens-golf-hoyeau-remains-in-top-five-acu-in-third-entering-final-round-at-wac-championship)
+
+
+### الفتح الرباطي ضد النادي المكناسي (N/A, Wed, 29 Apr 2026 09:30:00 -0700)
+
+- **الفتح يخصص نسبة 5% من التذاكر لجماهير النادي المكناسي**: [Link](https://m.elbotola.com/article/2026-04-28-16-30-864.html)
+- **الهلال ضد ضمك مواجهة مثيرة المنتظرة تكشف عن مفاجآت قوية في دوري المحترفين**: [Link](https://tawusal.com/130535/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%B6%D9%85%D9%83-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D8%AA%D9%83/)
+- **– ألف تذكرة لجمهور الكوديم أمام الفتح الرياضي – الرياضة**: [Link](https://inews.ma/news/8306677)
+
+
+### wydad (N/A, Wed, 29 Apr 2026 09:30:00 -0700)
+
+- **Raja–Wydad: la LNFP dévoile la date du derby**: [Link](https://sport.le360.ma/football/botola/rajawydad-la-lnfp-devoile-la-date-du-derby_RZ2I2SO27FEP7AD52UESJRNP2I/)
+- **Botola Pro: Voici le détail des18e, 19e et 20e journées**: [Link](https://h24info.ma/sport/botola-pro-detail-18e-19e-et-20e-journees/)
+- **La Ligue dévoile le programme de la 19e journée du Championnat professionnel**: [Link](https://m.elbotola.com/fr/article/2026-04-28-12-50-888.html)
+
+
+### مالي (N/A, Wed, 29 Apr 2026 09:20:00 -0700)
+
+- **ماذا يحدث في مالي؟**: [Link](https://www.aljazeera.net/politics/2026/4/29/%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AD%D8%AF%D8%AB-%D9%81%D9%8A-%D9%85%D8%A7%D9%84%D9%8A)
+- **رئيس دولة مالي يتهم "جهات خارجية" برعاية مخطط الهجمات في البلاد**: [Link](https://www.hespress.com/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%AF%D9%88%D9%84%D8%A9-%D9%85%D8%A7%D9%84%D9%8A-%D9%8A%D8%AA%D9%87%D9%85-%D8%AC%D9%87%D8%A7%D8%AA-%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9-%D8%A8%D8%B1%D8%B9%D8%A7%D9%8A-1738653.html)
+- **"عدو عدوي صديقي": هل يصمد التحالف بين الجهاديين والانفصاليين الطوارق في مالي؟**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260429-%D8%B9%D8%AF%D9%88-%D8%B9%D8%AF%D9%88%D9%8A-%D8%B5%D8%AF%D9%8A%D9%82%D9%8A-%D9%87%D9%84-%D9%8A%D8%B5%D9%85%D8%AF-%D8%A7%D9%84%D8%AA%D8%AD%D8%A7%D9%84%D9%81-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AC%D9%87%D8%A7%D8%AF%D9%8A%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D8%B7%D9%88%D8%A7%D8%B1%D9%82-%D9%81%D9%8A-%D9%85%D8%A7%D9%84%D9%8A)
+
+
 ### jannik sinner (N/A, Wed, 29 Apr 2026 07:30:00 -0700)
 
 - **Jodar fa già paura: prima volta ai quarti in un Masters 1000, ora si regala Sinner**: [Link](https://www.gazzetta.it/Tennis/ATP/28-04-2026/jodar-prossimo-avversario-di-sinner-nei-quarti-a-madrid.shtml)
