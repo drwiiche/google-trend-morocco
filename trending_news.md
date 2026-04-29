@@ -1,3 +1,36 @@
+### طقس اليوم (N/A, Wed, 29 Apr 2026 00:00:00 -0700)
+
+- **نشرة إنذارية: زخات رعدية ورياح قوية**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-2-1738206.html)
+- **طقس غير مستقر مع زخات رعدية متوقع اليوم الخميس**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B5%D9%88%D8%A8%D8%A9-%D8%A8%D8%A8%D8%B1%D8%AF-%D9%85%D8%AA%D9%88/)
+- **زخات رعدية محليا قوية مع هبات رياح وتساقط البرد اليوم الثلاثاء بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B9-%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-20260428)
+
+
+### حالة الطقس (N/A, Tue, 28 Apr 2026 23:50:00 -0700)
+
+- **الطقس: أجواء غائمة ومعتدلة في معظم المناطق**: [Link](https://yaffaps.com/ar/page-98541.html)
+- **الأرصاد: طقس متقلب بين الاعتدال والحرارة خلال الأيام المقبلة مع ارتفاع ملموس السبت**: [Link](https://msdrnews.com/117122/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B7%D9%82%D8%B3-%D9%85%D8%AA%D9%82%D9%84%D8%A8-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%8A%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9-%D9%85%D8%B9-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D9%84%D9%85%D9%88%D8%B3-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA)
+- **شتاء لبنان يعود بقوة.. منخفض جوي «عالي الفعالية» يطرق الأبواب**: [Link](https://al-ain.com/article/highly-effective-low-pressure-lebanon)
+
+
+### emirats arabes unis opep (N/A, Tue, 28 Apr 2026 23:50:00 -0700)
+
+- **EN DIRECT, guerre au Moyen-Orient : les Emirats arabes unis annoncent leur retrait de l’OPEP à partir de mai**: [Link](https://www.lemonde.fr/international/live/2026/04/28/en-direct-guerre-au-moyen-orient-israel-bombarde-le-sud-du-liban-malgre-le-cessez-le-feu-le-prix-du-baril-de-petrole-depasse-les-110-dollars_6681958_3210.html)
+- **Les Emirats arabes unis quittent l'Organisation des pays exportateurs de pétrole (Opep) au nom de leur "intérêt national"**: [Link](https://www.franceinfo.fr/monde/iran/guerre-entre-les-etats-unis-israel-et-l-iran/les-emirats-arabes-unis-quittent-l-organisation-des-pays-exportateurs-de-petrole-opep-au-nom-de-leur-interet-national_7970138.html)
+- **Séisme sur le marché pétrolier : les Émirats arabes unis annoncent leur retrait de l’OPEP**: [Link](https://private-admin.medias24.com/2026/04/28/seisme-sur-le-marche-petrolier-les-emirats-arabes-unis-annoncent-leur-retrait-de-lopep-1667379/)
+
+
+### روسيا (N/A, Tue, 28 Apr 2026 21:30:00 -0700)
+
+- **"موت بوتين".. هل صار رهان أوروبا الأخير للانتصار في أوكرانيا؟**: [Link](https://www.aljazeera.net/politics/2026/4/28/%D9%85%D9%88%D8%AA-%D8%A8%D9%88%D8%AA%D9%8A%D9%86-%D9%87%D9%84-%D8%B5%D8%A7%D8%B1-%D8%B1%D9%87%D8%A7%D9%86-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1)
+- **زيلينسكي: انضمامنا للاتحاد الأوروبي عنصر أساسي من أي اتفاق سلام**: [Link](https://www.alarabiya.net/arab-and-world/2026/04/28/%D8%B2%D9%8A%D9%84%D9%8A%D9%86%D8%B3%D9%83%D9%8A-%D8%A7%D9%86%D8%B6%D9%85%D8%A7%D9%85%D9%86%D8%A7-%D9%84%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%B9%D9%86%D8%B5%D8%B1-%D8%A7%D8%B3%D8%A7%D8%B3%D9%8A-%D9%85%D9%86-%D8%A7%D9%8A-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%B3%D9%84%D8%A7%D9%85)
+- **شروط ضريبية محتملة تقيد قرض الاتحاد الأوروبي لأوكرانيا**: [Link](https://www.alghad.tv/%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%BA%D8%AF/news/%D8%B4%D8%B1%D9%88%D8%B7-%D8%B6%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%85%D8%AD%D8%AA%D9%85%D9%84%D8%A9-%D8%AA%D9%82%D9%8A%D8%AF-%D9%82%D8%B1%D8%B6-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%84%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7)
+
+
+### نظام الطيبات (N/A, Tue, 28 Apr 2026 16:50:00 -0700)
+
+
+
+
 ### kick (N/A, Tue, 28 Apr 2026 18:30:00 -0700)
 
 - **ChudtheBuilder’s 3-day ban escalates to indefinite Kick ban following harassment backlash**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/chudthebuilders-3-day-ban-escalates-to-indefinite-kick-ban-following-harassment-backlash/articleshow/130589848.cms)
