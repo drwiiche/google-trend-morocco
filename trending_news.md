@@ -1,3 +1,17 @@
+### وزير الداخلية (N/A, Thu, 30 Apr 2026 14:00:00 -0700)
+
+- **لجنة الجهوية المتقدمة تجتمع بالرباط**: [Link](https://www.hespress.com/%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AC%D9%87%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%82%D8%AF%D9%85%D8%A9-%D8%AA%D8%AC%D8%AA%D9%85%D8%B9-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-1739059.html)
+- **برامج التنمية الترابية.. PPS: نجاعة التدبير لا تستقيم إلا في ظل تقوية الديمقراطية الترابية**: [Link](https://ar.telquel.ma/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D8%AA%D9%85%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-pps-%D9%86%D8%AC%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%AA%D8%AF%D8%A8%D9%8A/)
+- **الجيل الجديد من برامج التنمية الترابية**: [Link](https://al3omk.com/1157010.html)
+
+
+### richard berry (N/A, Thu, 30 Apr 2026 11:50:00 -0700)
+
+- **"Tout pourvu que ça s'arrête" : Coline Berry livre un témoignage glaçant sur l'inceste et décrit les "viols répétés" de son père, Richard Berry**: [Link](https://www.rtl.fr/actu/justice-faits-divers/tout-pourvu-que-ca-s-arrete-coline-berry-livre-un-temoignage-glacant-sur-l-inceste-et-decrit-les-viols-repetes-de-son-pere-richard-berry-7900629709)
+- **"J’avais tissé une toile autour de mon lit pour éviter qu’il s’approche la nuit" : le témoignage glaçant de Coline Berry, qui accuse son père d’inceste.**: [Link](https://actu.orange.fr/videos/societe/j-avais-tisse-une-toile-autour-de-mon-lit-pour-eviter-qu-il-s-approche-la-nuit-le-temoignage-glacant-de-coline-berry-qui-accuse-son-pere-d-inceste-CNT000002oY3SI.html)
+- **La fille de Richard Berry réitère ses accusations de viol à l’Assemblée**: [Link](https://www.20minutes.fr/arts-stars/people/4221317-20260430-fille-richard-berry-maintient-accusations-violences-sexuelles-contre-pere-devant-parlement)
+
+
 ### rayo vallecano (N/A, Thu, 30 Apr 2026 12:50:00 -0700)
 
 - **Rayo Vallecano, the eccentric European semi-finalists who only sell paper tickets - The Athletic**: [Link](https://www.nytimes.com/athletic/7240222/2026/04/30/rayo-vallecano-conference-league-la-liga-strasbourg/)
