@@ -1,3 +1,22 @@
+### عيسى ديوب (N/A, Wed, 29 Apr 2026 22:10:00 -0700)
+
+- **عيسى ديوب في وضعية صعبة**: [Link](https://www.almountakhab.com/node/13224976)
+- **عيسى ديوب: أستثمر في التغذية عوض الكماليات**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%B3%D9%89-%D8%AF%D9%8A%D9%88%D8%A8-%D8%A3%D8%B3%D8%AA%D8%AB%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%BA%D8%B0%D9%8A%D8%A9-%D8%B9%D9%88%D8%B6-%D8%A7%D9%84%D9%83%D9%85%D8%A7%D9%84-1736796.html)
+- **يأكل العدس بدل شراء سيارة فاخرة.. قرار جريء من نجم المغرب**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A3%D9%83%D9%84-%D8%A7%D9%84%D8%B9%D8%AF%D8%B3-%D8%A8%D8%AF%D9%84-%D8%B4%D8%B1%D8%A7%D8%A1-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%81%D8%A7%D8%AE%D8%B1%D8%A9-%D9%82%D8%B1%D8%A7%D8%B1-%D8%AC%D8%B1%D9%8A%D8%A1-%D9%85%D9%86-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+
+
+### البنك المغربي للتجارة و الصناعة (N/A, Wed, 29 Apr 2026 22:00:00 -0700)
+
+
+
+
+### arsenal fc (N/A, Wed, 29 Apr 2026 14:00:00 -0700)
+
+- **Arsenal and Atletico at ‘war’ before kick-off as Arteta ‘worry’ paints telling ‘picture’**: [Link](https://www.football365.com/news/arsenal-atletico-war-kick-off-arteta-worry-telling-picture)
+- **Bavarian Grass Works: Arsenal accuses Atlético Madrid of overgrown, unkempt, 70s-like pitch**: [Link](https://www.bavarianfootballworks.com/bavarian-grass-works/196296/bavarian-grass-works-arsenal-accuses-atletico-madrid-of-overgrown-unkempt-70s-like-pitch)
+- **Arsenal sent clear message over UEFA complaint as Martin Keown and pundit in agreement**: [Link](https://www.football.london/arsenal-fc/news/arsenal-atletico-madrid-champions-league-33862480)
+
+
 ### classement sporting portugal – tondela (N/A, Wed, 29 Apr 2026 14:50:00 -0700)
 
 - **Sporting Portugal 2-2 Tondela, Liga Portugal Betclic (ex Liga Nos) : résumé du match (29/04/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-du-portugal/2025-2026/sporting-portugal-tondela-live/677565)
