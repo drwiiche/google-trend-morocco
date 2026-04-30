@@ -1,3 +1,8 @@
+### emploi public (N/A, Thu, 30 Apr 2026 15:30:00 -0700)
+
+
+
+
 ### moulay el hassan (N/A, Thu, 30 Apr 2026 13:30:00 -0700)
 
 - **SIEL : le Prince héritier Moulay El Hassan préside à Rabat l’ouverture de la 31e édition**: [Link](https://medias24.com/2026/04/30/siel-le-prince-heritier-moulay-el-hassan-preside-a-rabat-louverture-de-la-31e-edition-1669397/)
