@@ -1,3 +1,24 @@
+### عيد الأضحى (N/A, Thu, 30 Apr 2026 06:20:00 -0700)
+
+- **موعد وقفة عرفات وعيد الأضحى 2026.. الحسابات الفلكية تكشف التفاصيل الكاملة**: [Link](https://www.youm7.com/story/2026/4/30/%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D9%82%D9%81%D8%A9-%D8%B9%D8%B1%D9%81%D8%A7%D8%AA-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%89-2026-%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84/7397161)
+- **فلكيا.. هذا موعد وقفة عرفة وعيد الأضحى لعام 2026**: [Link](https://www.awras.com/%D9%81%D9%84%D9%83%D9%8A%D8%A7-%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D9%82%D9%81%D8%A9-%D8%B9%D8%B1%D9%81%D8%A9-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%89-%D9%84/)
+- **حسابات فلكية تتوقع حلول عيد الأضحى يوم 27 ماي المقبل في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%89-%D8%A8%D8%AD%D9%84-1735033.html)
+
+
+### raja vs far (N/A, Thu, 30 Apr 2026 05:00:00 -0700)
+
+- **AS FAR vs Raja: when and where to watch the Botola clash**: [Link](https://en.hespress.com/136785-as-far-vs-raja-when-and-where-to-watch-the-botola-clash.html)
+- **Raja Arrives in Rabat for Clasico Against FAR Rabat After Final Morning Session**: [Link](https://m.elbotola.com/en/article/2026-04-29-15-49-80.html)
+- **Bouelfaïd to Officiate AS FAR vs. Raja CA Clasico, Cherhabil on VAR**: [Link](https://m.elbotola.com/en/article/2026-04-27-16-43-924.html)
+
+
+### achraf hakimi blessure (N/A, Thu, 30 Apr 2026 03:20:00 -0700)
+
+- **PSG - Bayern : Les notes d’Achraf Hakimi par la presse sportive**: [Link](https://www.bladi.net/psg-bayern-notes-achraf-hakimi-presse-sportive,120962.html)
+- **Achraf Hakimi, une blessure qui tombe mal... mais qui ne laisse pas le PSG sans solution**: [Link](https://www.lequipe.fr/Football/Article/Achraf-hakimi-une-blessure-qui-tombe-mal-mais-qui-ne-laisse-pas-le-psg-sans-solution/1671964)
+- **PSG: Hakimi forfait pour le match retour de Ligue des champions contre le Bayern Munich**: [Link](https://rmcsport.bfmtv.com/football/clubs/paris-saint-germain/psg-hakimi-forfait-pour-le-match-retour-de-ligue-des-champions-contre-le-bayern-munich_AV-202604290760.html)
+
+
 ### rca vs far (N/A, Thu, 30 Apr 2026 05:00:00 -0700)
 
 - **AS FAR vs Raja: when and where to watch the Botola clash**: [Link](https://en.hespress.com/136785-as-far-vs-raja-when-and-where-to-watch-the-botola-clash.html)
