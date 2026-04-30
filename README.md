@@ -1,3 +1,17 @@
+### classement sporting portugal – tondela (N/A, Wed, 29 Apr 2026 14:50:00 -0700)
+
+- **Sporting Portugal 2-2 Tondela, Liga Portugal Betclic (ex Liga Nos) : résumé du match (29/04/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-du-portugal/2025-2026/sporting-portugal-tondela-live/677565)
+- **Le Benfica de Mourinho et le FC Porto de Farioli exultent après une fin de match incroyable face au Sporting Lisbonne**: [Link](https://www.goal.com/fr/news/le-benfica-de-mourinho-et-le-fc-porto-de-farioli-exultent-apres-une-fin-de-match-incroyable-face-au-sporting-lisbonne/blt68984a5a318febb8)
+- **Où regarder, compositions et arbitrage : tout ce qu’il faut savoir !**: [Link](https://www.lesnews.ca/sports/football/ou-regarder-compositions-et-arbitrage-tout-ce-quil-faut-savoir-2/)
+
+
+### mas fès vs husa (N/A, Wed, 29 Apr 2026 13:40:00 -0700)
+
+- **Botola Pro Inwi: le MAS croque le HUSA, doublé pour Benjdida**: [Link](https://sport.le360.ma/football/botola/botola-pro-inwi-le-mas-croque-le-husa-double-pour-benjdida_QVCWBR3Z5NCDHGCETHMZWZPCOE/)
+- **Le MAS alloue 5000 billets aux supporters du HUSA, qui n'en demandent que 1000 et exigent une vente en ligne**: [Link](https://m.elbotola.com/fr/article/2026-04-28-13-47-400.html)
+- **Pronostic MAS Fes HUSA Agadir GRATUIT - Botola Pro 29/04/2026**: [Link](https://www.ruedesjoueurs.com/pronostic/mas-fes-husa-agadir-5358053.html)
+
+
 ### سلا (N/A, Wed, 29 Apr 2026 16:40:00 -0700)
 
 - **العثور على جثة أستاذ داخل شقته بسلا**: [Link](https://rue20.com/996994.html)
