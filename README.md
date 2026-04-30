@@ -1,3 +1,24 @@
+### holmarcom (N/A, Thu, 30 Apr 2026 01:40:00 -0700)
+
+- **Officiel: Holmarcom prendra le contrôle de la BMCI et la fusionnera avec Crédit du Maroc**: [Link](https://medias24.com/2026/04/29/officiel-holmarcom-prendra-le-controle-de-la-bmci-et-la-fusionnera-avec-credit-du-maroc-1668089/)
+- **BNP Paribas : Accord avec Holmarcom Finance Company (HFC) pour la cession de la BMCI au Maroc**: [Link](https://group.bnpparibas/communique-de-presse/bnp-paribas-accord-avec-holmarcom-finance-company-hfc-pour-la-cession-de-la-bmci-au-maroc)
+- **Après Société Générale, une nouvelle banque française quitte défintivement le Maroc**: [Link](https://www.bladi.net/societe-generale-nouvelle-banque-francaise-quitte-defintivement-maroc,120974.html)
+
+
+### عسكرية (N/A, Thu, 30 Apr 2026 00:30:00 -0700)
+
+- **حرب إيران مباشر.. مخطط أمريكي لهجمات خاطفة وأضرار بسقوط صاروخ في الجليل**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/29/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%A8%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9?update=9181322)
+- **ترامب يدرس توجيه ضربة سريعة لإيران**: [Link](https://www.hespress.com/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%AA%D9%88%D8%AC%D9%8A%D9%87-%D8%B6%D8%B1%D8%A8%D8%A9-%D8%B3%D8%B1%D9%8A%D8%B9%D8%A9-%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-1739223.html)
+- **مسؤول أميركي: تراجع احتمالات الغزو البري لإيران**: [Link](https://www.alarabiya.net/iran/2026/04/29/%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%BA%D8%B2%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A-%D9%84%D8%A7%D9%8A%D8%B1%D8%A7%D9%86)
+
+
+### lakers – rockets (N/A, Wed, 29 Apr 2026 23:50:00 -0700)
+
+- **Player Grades: Lakers vs. Rockets**: [Link](https://www.silverscreenandroll.com/lakers-analysis/115732/player-grades-lakers-rockets-stats-box-score-recap-lebron-james-austin-reaves-deandre-ayton-2026-nba-playoffs)
+- **Rockets are just the 16th team to force a Game 6 after …**: [Link](https://www.hoopshype.com/story/sports/nba/rumors/2026/04/30/rockets-are-just-the-16th-team-to-force-a-game-6-after/89868803007/)
+- **Alperen Sengun took on LeBron James: You're the only one who can't say that**: [Link](https://www.fanatik.com.tr/en/alperen-sengun-took-on-lebron-james-youre-the-only-one-who-cant-say-that-2621792)
+
+
 ### عيسى ديوب (N/A, Wed, 29 Apr 2026 22:10:00 -0700)
 
 - **عيسى ديوب في وضعية صعبة**: [Link](https://www.almountakhab.com/node/13224976)
