@@ -1,3 +1,10 @@
+### moulay el hassan (N/A, Thu, 30 Apr 2026 13:30:00 -0700)
+
+- **SIEL : le Prince héritier Moulay El Hassan préside à Rabat l’ouverture de la 31e édition**: [Link](https://medias24.com/2026/04/30/siel-le-prince-heritier-moulay-el-hassan-preside-a-rabat-louverture-de-la-31e-edition-1669397/)
+- **Espagne invitée au SIEL : une participation culturelle renforcée à Rabat**: [Link](https://fr.hespress.com/471478-espagne-invitee-au-siel-une-participation-culturelle-renforcee-a-rabat.html)
+- **Le prince héritier Moulay El Hassan préside à Rabat l’ouverture du 31e Salon International de l’Edition et du Livre**: [Link](https://telquel.ma/instant-t/2026/04/30/le-prince-heritier-moulay-el-hassan-preside-a-rabat-louverture-du-31e-salon-international-de-ledition-et-du-livre_1987263/)
+
+
 ### وزير الداخلية (N/A, Thu, 30 Apr 2026 14:00:00 -0700)
 
 - **لجنة الجهوية المتقدمة تجتمع بالرباط**: [Link](https://www.hespress.com/%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AC%D9%87%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%82%D8%AF%D9%85%D8%A9-%D8%AA%D8%AC%D8%AA%D9%85%D8%B9-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-1739059.html)
