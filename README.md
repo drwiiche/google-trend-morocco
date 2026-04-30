@@ -1,3 +1,38 @@
+### وقود (N/A, Thu, 30 Apr 2026 08:40:00 -0700)
+
+- **نقص وقود الطائرات يهدد موسم السفر هذا الصيف**: [Link](https://www.aljazeera.net/video/2026/4/29/%D9%86%D9%82%D8%B5-%D9%88%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D9%8A%D9%87%D8%AF%D8%AF-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D9%87%D8%B0%D8%A7)
+- **"لارام" تتجنب الخصاص في الوقود**: [Link](https://www.hespress.com/%D9%84%D8%A7%D8%B1%D8%A7%D9%85-%D8%AA%D8%AA%D8%AC%D9%86%D8%A8-%D8%A7%D9%84%D8%AE%D8%B5%D8%A7%D8%B5-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-1738901.html)
+- **مجلس الأمن الدولي يعتمد قرارا يطلب "الوقف الفوري" لهجمات إيران على دول الخليج**: [Link](https://ar.telquel.ma/%D8%B4%D8%B1%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D8%A7%D9%84%D8%AA%D9%83%D9%84%D9%81%D8%A9-%D8%AA%D9%84%D8%BA%D9%8A-%D8%B1%D8%AD/)
+
+
+### النادي المكناسي (N/A, Thu, 30 Apr 2026 08:30:00 -0700)
+
+- **مدرب الكوديم عن هدف الفتح: "'شِي حاجة مَاهِياشْ'.. كانت هناك كرتان فوق أرضية الملعب"**: [Link](https://m.elbotola.com/article/2026-04-29-20-40-192.html)
+- **الفتح الرياضي يفوز على النادي المكناسي**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3-436820.html)
+- **البطولة الاحترافية.. الفتح يهزم "الكوديم" بهدف أثار جدلا تحكيميا**: [Link](https://sport.rue20.com/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%83%D9%88%D8%AF%D9%8A.html)
+
+
+### dessalement (N/A, Thu, 30 Apr 2026 08:00:00 -0700)
+
+- **Dessalement : 8 stations programmées en plus de 3 extensions**: [Link](https://medias24.com/2026/04/29/dessalement-8-stations-programmees-en-plus-de-3-extensions-1668285/)
+- **Le dessalement d’eau de mer aura son écosystème industriel**: [Link](https://fr.le360.ma/economie/le-dessalement-deau-de-mer-aura-son-ecosysteme-industriel_K44VYCDKFZGKRCBAFOZQLFALVM/)
+- **Comment le Maroc bâtit sa souveraineté hydrique**: [Link](https://mobile.telquel.ma/2026/04/28/comment-le-maroc-batit-sa-souverainete-hydrique_1986546)
+
+
+### regragui (N/A, Thu, 30 Apr 2026 08:00:00 -0700)
+
+- **Walid Regragui dans le viseur du Real Madrid? Le vrai du faux**: [Link](https://sport.le360.ma/football/liga/walid-regragui-dans-le-viseur-du-real-madrid-le-vrai-du-faux_7GTMYF5QXZBEVKQRLMVCBX7HCA/)
+- **Real Madrid : L'étonnante rumeur Walid Regragui pour remplacer Alvaro Arbeloa**: [Link](https://www.90min.com/fr/real-madrid-l-etonnante-rumeur-walid-regragui-pour-remplacer-alvaro-arbeloa)
+- **Regragui entre dans le cercle des candidats pour entraîner le Real Madrid**: [Link](https://www.ysscores.com/fr/news/13955199/Regragui-entre-dans-le-cercle-des-candidats-pour-entra%C3%AEner-le-Real-Madrid)
+
+
+### mykhaïlo mudryk (N/A, Thu, 30 Apr 2026 07:40:00 -0700)
+
+- **Chelsea's Mudryk appeals against four-year FA ban**: [Link](https://www.bbc.com/sport/football/articles/cevpyjxz0eno)
+- **Mykhailo Mudryk slapped with four-year ban from football over failed doping test**: [Link](https://talksport.com/football/4222326/mykhailo-mudryk-chelsea-four-year-ban/)
+- **Referral of Mudryk's Case to the Court of Arbitration for Sport**: [Link](https://www.ysscores.com/en/news/13954776/Referral-of-Mudryk's-Case-to-the-Court-of-Arbitration-for-Sport)
+
+
 ### عيد الأضحى (N/A, Thu, 30 Apr 2026 06:20:00 -0700)
 
 - **موعد وقفة عرفات وعيد الأضحى 2026.. الحسابات الفلكية تكشف التفاصيل الكاملة**: [Link](https://www.youm7.com/story/2026/4/30/%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D9%82%D9%81%D8%A9-%D8%B9%D8%B1%D9%81%D8%A7%D8%AA-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%89-2026-%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84/7397161)
