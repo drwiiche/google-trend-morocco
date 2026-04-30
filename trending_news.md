@@ -1,3 +1,49 @@
+### ترتيب الدوري المغربي (N/A, Thu, 30 Apr 2026 11:40:00 -0700)
+
+- **إعلان موعد ديربي الوداد والرجاء.. وفيفا يوافق على طلب رابطة الدوري المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1--%D9%88%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%B7%D9%84%D8%A8-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt6df641ad713c84c4)
+- **تحديد موعد ديربي الرجاء والوداد**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1738368.html)
+- **رسمياً..الكشف عن مواعيد الجولات 18 و19 و20 من البطولة الاحترافية**: [Link](https://www.radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A7/)
+
+
+### nottm forest – aston villa (N/A, Thu, 30 Apr 2026 11:30:00 -0700)
+
+- **Villa fans in Dublin jaunt for England-based match**: [Link](https://www.bbc.com/news/articles/c1w2nz81pp1o)
+- **Ghana’s Albert Adomah backs Nottingham Forest in Premier League survival fight**: [Link](https://africasoccer.com/ghanas-albert-adomah-backs-nottingham-forest-in-premier-league-survival-fight/)
+- **European success 'makes people feel proud' - Pereira**: [Link](https://au.sports.yahoo.com/european-success-makes-people-feel-143703474.html)
+
+
+### chakhtior donetsk – crystal palace (N/A, Thu, 30 Apr 2026 11:30:00 -0700)
+
+- **Shakhtar Donetsk v Crystal Palace: Europa Conference League semi-final, first leg – live**: [Link](https://www.theguardian.com/football/live/2026/apr/30/shakhtar-donetsk-v-crystal-palace-europa-conference-league-semi-final-first-leg-live)
+- **Palace boss Glasner eager for another trophy in Europe**: [Link](https://www.daily-sun.com/sports/871987/palace-boss-glasner-eager-for-another-trophy-in-europe)
+- **Licensable picture: Shakhtar Donetsk Media Day - UEFA Conference League Semi-final.**: [Link](https://www.reutersconnect.com/item/shakhtar-donetsk-media-day-uefa-conference-league-semi-final/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMFhCQUxZOA)
+
+
+### botola pro (N/A, Thu, 30 Apr 2026 11:30:00 -0700)
+
+- **Ittihad Tanger Condemn Bus Attack in Safi, Demand Investigation After Staff Injuries**: [Link](https://www.moroccoworldnews.com/2026/04/289344/ittihad-tanger-condemn-bus-attack-in-safi-demand-investigation-after-staff-injuries/)
+- **Ittihad Tanger Condemns Attack on Team Bus in Safi, Demands Investigation After Technical Staff Injuries**: [Link](https://m.elbotola.com/en/article/2026-04-29-22-08-875.html)
+
+
+### quinte (N/A, Thu, 30 Apr 2026 11:30:00 -0700)
+
+
+
+
+### rayo – strasbourg (N/A, Thu, 30 Apr 2026 11:20:00 -0700)
+
+- **”Écrire l’histoire” et virée au Macdo : O’Neil, un sourire au Racing**: [Link](https://www.eurosport.fr/football/ligue-conference/2025-2026/ligue-europa-conference-ecrire-lhistoire-macdo-europe-gary-oneil-un-sourire-au-racing_sto23294690/story.shtml)
+- **DIRECT. Rayo Vallecano-Strasbourg (Ligue Conference 2025-2026) à suivre en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-conference/2025-2026/rayo-vallecano-strasbourg-live/689303)
+- **Le Café du Racing: les Strasbourgeois visent une finale de Coupe d'Europe**: [Link](https://www.bfmtv.com/alsace/replay-emissions/bonjour-l-alsace/video-le-cafe-du-racing-les-strasbourgeois-visent-une-finale-de-coupe-d-europe_VN-202604300321.html)
+
+
+### وليد الركراكي (N/A, Thu, 30 Apr 2026 11:10:00 -0700)
+
+- **بيريز يختار المدرب الجديد لريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%B7%D9%88%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%A8%D9%8A%D8%B1%D9%8A%D8%B2-%D9%8A%D8%AA%D8%AE%D8%B0-%D9%82%D8%B1%D8%A7%D8%B1%D9%8B%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt61280d2324ea8e3a)
+- **تقارير إسبانية/ اسم الركراكي طرح داخل أروقة ريال مدريد والمدرب المغربي يحظى بتقدير كبير من قبل إدارة النادي**: [Link](https://m.elbotola.com/article/2026-04-30-11-12-986.html)
+- **صحافي إسباني: إدارة الريال تبدي إعجابا بالركراكي لكنه ليس الخيار الأول**: [Link](https://www.hesport.com/%D8%B5%D8%AD%D8%A7%D9%81%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%AA%D8%A8%D8%AF%D9%8A-%D8%A5%D8%B9%D8%AC%D8%A7%D8%A8%D8%A7-436949.html)
+
+
 ### gta vi (N/A, Thu, 30 Apr 2026 10:10:00 -0700)
 
 - **Take-Two CEO Addresses Grand Theft Auto 6 Price, and the Possibility for More L.A. Noire**: [Link](https://www.ign.com/articles/take-two-ceo-addresses-grand-theft-auto-6-price-and-the-possibility-for-more-la-noire)
