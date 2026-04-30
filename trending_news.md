@@ -1,3 +1,17 @@
+### rca vs far (N/A, Thu, 30 Apr 2026 05:00:00 -0700)
+
+- **AS FAR vs Raja: when and where to watch the Botola clash**: [Link](https://en.hespress.com/136785-as-far-vs-raja-when-and-where-to-watch-the-botola-clash.html)
+- **Raja Arrives in Rabat for Clasico Against FAR Rabat After Final Morning Session**: [Link](https://m.elbotola.com/en/article/2026-04-29-15-49-80.html)
+- **Will Raja Ultras Boycott "El Clásico" Due to AS FAR Officials' Refusal to Facilitate Logistics?**: [Link](https://m.elbotola.com/en/article/2026-04-27-15-24-796.html)
+
+
+### grand theft auto (N/A, Thu, 30 Apr 2026 04:30:00 -0700)
+
+- **GTA 6 Release Date Reiterated, Called "Most Spectacular Entertainment In History"**: [Link](https://rockstarintel.com/gta-6-release-date-reiterated-called-most-spectacular-entertainment-in-history/)
+- **Take-Two Interactive’s Strauss Zelnick on ‘GTA 6’ Jitters, Zynga’s Turnaround and Investing in Original Properties**: [Link](https://variety.com/2026/gaming/news/gta-6-take-two-strauss-zelnick-zynga-iicon-conference-1236733784/)
+- **Rockstar aims to make GTA 6 the most spectacular entertainment product**: [Link](https://en.gamegpu.com/news/igry/tsel-rockstar-sdelat-gta-6-samym-zrelishchnym-razvlekatelnym-produktom)
+
+
 ### فيروز (N/A, Thu, 30 Apr 2026 01:40:00 -0700)
 
 - **فيروز في دائرة الشائعات.. اعتزال مفترض وأزمة نفسية بلا تأكيد**: [Link](https://www.aljazeera.net/arts/2026/4/27/%D9%81%D9%8A%D8%B1%D9%88%D8%B2-%D9%81%D9%8A-%D8%AF%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7%D9%84%D8%B4%D8%A7%D8%A6%D8%B9%D8%A7%D8%AA-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D9%85%D9%81%D8%AA%D8%B1%D8%B6)
