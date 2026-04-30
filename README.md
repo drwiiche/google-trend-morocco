@@ -1,3 +1,17 @@
+### فيروز (N/A, Thu, 30 Apr 2026 01:40:00 -0700)
+
+- **فيروز في دائرة الشائعات.. اعتزال مفترض وأزمة نفسية بلا تأكيد**: [Link](https://www.aljazeera.net/arts/2026/4/27/%D9%81%D9%8A%D8%B1%D9%88%D8%B2-%D9%81%D9%8A-%D8%AF%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7%D9%84%D8%B4%D8%A7%D8%A6%D8%B9%D8%A7%D8%AA-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D9%85%D9%81%D8%AA%D8%B1%D8%B6)
+- **هل رحلت فيروز؟ توضيح رسمي ينهي الجدل**: [Link](https://www.aljadeed.tv/entertainment/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%81%D9%86%D9%8A%D8%A9/571545/%D9%87%D9%84-%D8%B1%D8%AD%D9%84%D8%AA-%D9%81%D9%8A%D8%B1%D9%88%D8%B2%D8%9F-%D8%AA%D9%88%D8%B6%D9%8A%D8%AD-%D8%B1%D8%B3%D9%85%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%84)
+- **مجدداً.. ما حقيقة وفاة فيروز عن 91 عاماً؟**: [Link](https://www.eremnews.com/entertainment/qcyv22t)
+
+
+### مسلسل تحت الارض الحلقة 13 (N/A, Wed, 29 Apr 2026 15:40:00 -0700)
+
+- **مشاهدة الحلقة 12 من مسلسل تحت الأرض التركي مترجمة وبجودة عالية**: [Link](https://www.almasryalyoum.com/news/details/4252419)
+- **مسلسل تحت الأرض الحلقة 13 .. خطة جديدة تشعل الأحداث**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-13-%D8%AE%D8%B7%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB)
+- **مشاهدة الحلقة 13 من مسلسل تحت الأرض مترجمة وكاملة بجودة عالية**: [Link](https://www.almasryalyoum.com/news/details/4257942)
+
+
 ### holmarcom (N/A, Thu, 30 Apr 2026 01:40:00 -0700)
 
 - **Officiel: Holmarcom prendra le contrôle de la BMCI et la fusionnera avec Crédit du Maroc**: [Link](https://medias24.com/2026/04/29/officiel-holmarcom-prendra-le-controle-de-la-bmci-et-la-fusionnera-avec-credit-du-maroc-1668089/)
