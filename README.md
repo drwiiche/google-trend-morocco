@@ -1,3 +1,31 @@
+### droit de douane (N/A, Fri, 1 May 2026 12:10:00 -0700)
+
+- **Trump va relever les droits de douane à 25 % sur les véhicules européens, dès "la semaine prochaine"**: [Link](https://www.france24.com/fr/am%C3%A9riques/20260501-trump-va-relever-les-droits-de-douane-%C3%A0-25-sur-les-v%C3%A9hicules-europ%C3%A9ens-d%C3%A8s-la-semaine-prochaine)
+- **Donald Trump annonce augmenter à 25% les droits de douane sur les voitures et les camions européens entrant aux États-Unis**: [Link](https://www.lefigaro.fr/conjoncture/donald-trump-annonce-augmenter-de-25-les-droits-de-douane-sur-les-voitures-et-les-camions-europeens-entrant-aux-etats-unis-20260501)
+- **L'association automobile allemande VDA exhorte les deux parties à respecter l'accord commercial après le coup de massue de Trump sur les tarifs douaniers**: [Link](https://ch.zonebourse.com/actualite-bourse/l-association-automobile-allemande-vda-exhorte-les-deux-parties-a-respecter-l-accord-commercial-apre-ce7f58d9df80f521)
+
+
+### ترتيب الدوري المصري (N/A, Fri, 1 May 2026 11:40:00 -0700)
+
+- **بالفيديو: الأهلي يسحق الزمالك.. ويمسك بخيوط رفيعة في المنافسة على لقب الدوري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D9%86-%D8%B4%D8%B1%D9%82%D9%8A-%D9%8A%D8%B0%D8%A8%D8%AD-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83--%D9%88%D9%8A%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D8%B1%D8%B5%D8%A9-%D9%84%D8%A7%D9%95%D8%B4%D8%B9%D8%A7%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A/blt4ad7dfa4b0ab990f)
+- **شاهد.. نتيجة وملخص وأهداف مباراة الزمالك ضد الأهلي في الدوري المصري لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/5/1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+- **بهدفين و"أسيست".. بنشرقي يتألق ويقود الأهلي للفوز على الزمالك (3-0) في "قمة" الدوري المصري**: [Link](https://m.elbotola.com/article/2026-05-01-18-54-504.html)
+
+
+### football (N/A, Fri, 1 May 2026 11:20:00 -0700)
+
+- **Indiana football national champions are going to the White House**: [Link](https://www.indystar.com/story/sports/college/indiana/2026/05/01/indiana-football-national-champions-are-going-to-the-white-house/89895595007/)
+- **Takeaways: 5 final thoughts on program-changing official visit weekend for Indiana**: [Link](https://www.on3.com/teams/indiana-hoosiers/news/takeaways-5-final-thoughts-on-program-changing-official-visit-weekend-for-indiana/)
+- **IU football sets White House visit in celebration of national championship**: [Link](https://www.thedailyhoosier.com/iu-football-sets-white-house-visit-in-celebration-of-national-championship/)
+
+
+### يورو (N/A, Fri, 1 May 2026 10:50:00 -0700)
+
+- **زوج اليورو/الدولار الأمريكي (EUR/USD): تحليل وتوقُّعات موجة إليوت للفترة من 01.05.2026 إلى 08.05.2026**: [Link](https://www.litefinance.org/ar/blog/analysts-opinions/twqat-lsr-zwj-alywrw-mqabl-aldwlar-alamryky-eurusd/zwj-alywrwaldwlar-alamryky-eurusd-thlyl-wtwquat-mwjt-alywt-llftrt-mn-01052026-aly-08052026/)
+- **📈 ارتفاع EURUSD بنسبة 0.5%**: [Link](https://www.xtb.com/ar/market-analysis/rtf-aa-eurusd-bnsb-0-5-1)
+- **التحليل الفني: زوج EUR/USD يختبر كتلة أوامر البيع**: [Link](https://www.erembusiness.com/technical-analysis/mrjyjd4)
+
+
 ### leeds united – burnley (N/A, Fri, 1 May 2026 11:20:00 -0700)
 
 - **Daniel Farke provides fitness update ahead of Burnley clash**: [Link](https://www.leedsunited.com/en/news/daniel-farke-provides-fitness-update-ahead-of-burnley-clash)
