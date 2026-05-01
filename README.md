@@ -1,3 +1,38 @@
+### muguet (N/A, Fri, 1 May 2026 01:20:00 -0700)
+
+- **Attention, le muguet est dangereux pour les chiens, les chats et même votre lapin**: [Link](https://www.20minutes.fr/societe/4221013-20260501-1er-mai-attention-muguet-tres-dangereux-chiens-chats-lapin)
+- **VRAI OU FAUX. Fête du Travail, vente libre, plante toxique... Trois idées reçues sur le muguet du 1er mai**: [Link](https://www.radiofrance.fr/franceinfo/podcasts/le-vrai-ou-faux/le-vrai-ou-faux-du-vendredi-15-mai-2026-2890586)
+- **Floraison précoce, coûts en hausse : le défi des vendeurs de muguet**: [Link](https://www.rtbf.be/article/floraison-precoce-couts-en-hausse-le-defi-des-vendeurs-de-muguet-11717467)
+
+
+### equidia (N/A, Fri, 1 May 2026 01:10:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour vendredi 1er mai - Prix de Beaumesnil**: [Link](https://www.lalsace.fr/actualite/2026/04/30/les-pronostics-de-l-alsace-pour-vendredi-1er-mai-prix-de-beaumesnil)
+- **Ti Amo Bello, l'outsider séduisant du Quinté+ de ce vendredi 1er mai**: [Link](https://www.equidia.fr/articles/actualite/ti-amo-bello-loutsider-seduisant-du-quinte-de-ce-vendredi-1er-mai)
+- **Les pronos hippiques du vendredi 1er mai 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-1er-mai-2026_AN-202604300650.html)
+
+
+### donald trump (N/A, Thu, 30 Apr 2026 23:40:00 -0700)
+
+- **Oil rises as White House says Iran ceasefire halts 60-day war deadline**: [Link](https://www.cnbc.com/2026/05/01/oil-prices-today-brent-wti-us-iran-war-trump-war-powers-deadline.html)
+- **Republicans say they will defer to Trump on Iran war despite arrival of deadline**: [Link](https://www.npr.org/2026/05/01/g-s1-119670/republicans-defer-to-trump-on-iran-war-despite-deadline)
+- **Hegseth Says Iran Cease-Fire Stops Clock for Congressional Approval**: [Link](https://www.nytimes.com/2026/04/30/us/politics/hegseth-iran-cease-fire-congress.html)
+
+
+### mourinho (N/A, Thu, 30 Apr 2026 22:50:00 -0700)
+
+- **Jose Mourinho Real Madrid president Florentino Perez’s favoured head coach candidate - The Athletic**: [Link](https://www.nytimes.com/athletic/7236798/2026/04/28/jose-mourinho-real-madrid-manager-options/)
+- **Benfica Closes the Door on Real Madrid: Mourinho's Contract Renewal Imminent**: [Link](https://www.ysscores.com/en/news/13955148/Benfica-Closes-the-Door-on-Real-Madrid:-Mourinho's-Contract-Renewal-Imminent)
+- **Mourinho to Real Madrid? UCL Semifinal Drama & World Cup 2026 Injury Blow**: [Link](https://www.beinsports.com/en-us/soccer/5aside/articles-video/mourinho-to-real-madrid-ucl-semifinal-drama-world-cup-2026-injury-blow-2026-04-30)
+
+
+### الخدمة العسكرية (N/A, Thu, 30 Apr 2026 16:00:00 -0700)
+
+- **"آخر فرصة" للتسجيل بالخدمة العسكرية**: [Link](https://www.hespress.com/%D8%A2%D8%AE%D8%B1-%D9%81%D8%B1%D8%B5%D8%A9-%D9%84%D9%84%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%A8%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-1739222.html)
+- **إسدال الستار على إحصاء الخدمة العسكرية بالمغرب – ChoufTV :: TV شوف**: [Link](https://chouftv.ma/press/781498.html)
+- **وزارة الداخلية: اليوم الخميس آخر أجل لانتهاء عملية الإحصاء المتعلق بالخدمة العسكرية**: [Link](https://lakome2.com/flash-infos/416552/)
+
+
 ### kick (N/A, Thu, 30 Apr 2026 19:40:00 -0700)
 
 - **2026 FWC Lionfish Challenge**: [Link](https://www.coastalbreezenews.com/news/community/events/2026-fwc-lionfish-challenge/article_c998d65f-3c7b-4bff-8671-71fbbeac229f.html)
