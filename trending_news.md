@@ -1,3 +1,17 @@
+### prix gasoil essence maroc (N/A, Fri, 1 May 2026 01:30:00 -0700)
+
+- **Carburants : baisse des prix à partir du 1er mai, le gasoil et l'essence repassent sous les 15 DH/L**: [Link](https://lematin.ma/economie/carburants-gasoil-et-essence-repassent-sous-les-15-dirhams-le-litre/343376)
+- **Maroc : Après trois hausses, les prix des carburants reculent d'un dirham au mois de mai**: [Link](https://fr.hespress.com/471762-maroc-apres-trois-hausses-les-prix-des-carburants-reculent-dun-dirham-au-mois-de-mai.html)
+- **Prix des carburants : “Le gouvernement agit avec sens social et responsabilité financière”, selon Nadia Fettah**: [Link](https://mobile.telquel.ma/instant-t/2026/04/28/prix-des-carburants-le-gouvernement-agit-avec-sens-social-et-responsabilite-financiere-selon-nadia-fettah_1986578/)
+
+
+### 1 mai (N/A, Fri, 1 May 2026 00:40:00 -0700)
+
+- **Regeln für den Feiertag: 1. Mai im Südwesten: Was ist erlaubt und was verboten?**: [Link](https://www.zeit.de/news/2026-04/30/1-mai-im-suedwesten-was-ist-erlaubt-und-was-verboten)
+- **Gartenarbeit am 1. Mai: Nicht alles ist verboten - diese Regeln kennen viele nicht**: [Link](https://www.netzwelt.de/news/253477-gartenarbeit-1-mai-alles-verboten-regeln-kennen-viele.html)
+- **Regeln für den 1. Mai in Baden-Württemberg – diese Tätigkeiten können teuer enden**: [Link](https://www.heidelberg24.de/baden-wuerttemberg/mai-feiertag-regeln-gesetz-bussgeld-taetigkeiten-baden-wuerttemberg-zr-94282776.html)
+
+
 ### muguet (N/A, Fri, 1 May 2026 01:20:00 -0700)
 
 - **Attention, le muguet est dangereux pour les chiens, les chats et même votre lapin**: [Link](https://www.20minutes.fr/societe/4221013-20260501-1er-mai-attention-muguet-tres-dangereux-chiens-chats-lapin)
