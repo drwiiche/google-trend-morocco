@@ -1,3 +1,10 @@
+### marrakech (N/A, Fri, 1 May 2026 00:50:00 -0700)
+
+- **Aéroport de Marrakech : hausse du trafic passagers à fin mars dernier**: [Link](https://leseco.ma/maroc/aeroport-de-marrakech-hausse-du-trafic-passagers-a-fin-mars-dernier.html)
+- **Groupe Al Omrane organise à Marrakech la 58e Conférence du Réseau Habitat et Francophonie**: [Link](https://www.lavieeco.com/affaires/groupe-al-omrane-organise-a-marrakech-la-58e-conference-du-reseau-habitat-et-francophonie/)
+- **« Je préfère un étranger à 50 dirhams » : le diktat honteux des taxis à Marrakech**: [Link](https://www.bladi.net/prefere-etranger-dirhams-diktat-honteux-taxis-marrakech,120948.html)
+
+
 ### prix gasoil essence maroc (N/A, Fri, 1 May 2026 01:30:00 -0700)
 
 - **Carburants : baisse des prix à partir du 1er mai, le gasoil et l'essence repassent sous les 15 DH/L**: [Link](https://lematin.ma/economie/carburants-gasoil-et-essence-repassent-sous-les-15-dirhams-le-litre/343376)
