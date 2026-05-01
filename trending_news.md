@@ -1,3 +1,43 @@
+### leeds united – burnley (N/A, Fri, 1 May 2026 11:20:00 -0700)
+
+- **Daniel Farke provides fitness update ahead of Burnley clash**: [Link](https://www.leedsunited.com/en/news/daniel-farke-provides-fitness-update-ahead-of-burnley-clash)
+- **All your FPL stats and Premier League team news in one place**: [Link](https://www.bbc.com/sport/articles/cd6pqx0qd84o)
+- **talkSPORT betting tips – Best football bets and expert advice on Friday 1 May**: [Link](https://talksport.com/football/4222309/talksport-betting-tips-best-football-bets-friday-1-may/)
+
+
+### إسرائيل (N/A, Fri, 1 May 2026 11:10:00 -0700)
+
+- **الصحافة التركية: الهجوم على أسطول الصمود هجوم على الإنسانية**: [Link](https://www.aljazeera.net/politics/2026/5/1/%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%B9%D9%84%D9%89-%D8%A3%D8%B3%D8%B7%D9%88%D9%84)
+- **إسبانيا تدعو الاتحاد الأوروبي إلى تعليق اتفاق الشراكة مع إسرائيل فورا**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A5%D9%84%D9%89-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%A7%D9%84%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-%D9%85%D8%B9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%81%D9%88%D8%B1%D8%A7/3923682)
+- **من سمع استغاثة «أسطول الصمود» في أعالي البحار؟**: [Link](https://www.alquds.co.uk/%D9%85%D9%86-%D8%B3%D9%85%D8%B9-%D8%A7%D8%B3%D8%AA%D8%BA%D8%A7%D8%AB%D8%A9-%D8%A3%D8%B3%D8%B7%D9%88%D9%84-%D8%A7%D9%84%D8%B5%D9%85%D9%88%D8%AF-%D9%81%D9%8A-%D8%A3%D8%B9%D8%A7%D9%84%D9%8A/)
+
+
+### الزمالك ضد الأهلي (N/A, Fri, 1 May 2026 11:00:00 -0700)
+
+- **مباشر مباراة الزمالك ضد الأهلي في الدوري المصري لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/5/1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+- **طبيب يعشق الإنذارات.. من هو حكم قمة الأهلي والزمالك؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%BA%D9%85%D9%88%D8%B1-%D8%A8%D9%84%D8%A7-%D8%AE%D8%A8%D8%B1%D8%A7%D8%AA-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D9%88%D9%8A%D8%B9%D8%B4%D9%82-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%B0%D8%A7%D8%B1%D8%A7%D8%AA--%D9%85%D9%86-%D9%87%D9%88-%D8%AD%D9%83%D9%85-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83/bltbb575cf355dde88f)
+- **قمة الدوري المصري بطعم مغربي بين الأهلي والزمالك**: [Link](https://ar.sport.le360.ma/football/NS2PZB4DUZBOTPH4ZQJCEF5TII/)
+
+
+### كريستيانو رونالدو (N/A, Fri, 1 May 2026 11:00:00 -0700)
+
+- **رئيس النصر الأسبق يبرئ رونالدو من الإساءة إلى الهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D8%A8%D9%82-%D9%8A%D8%A8%D8%B1%D9%8A%D9%94-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A7%D8%A1%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt2f24affa98b2b5e0)
+- **كريستيانو رونالدو: الكرة ليست حربا**: [Link](https://www.hesport.com/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%84%D9%8A%D8%B3%D8%AA-%D8%AD%D8%B1%D8%A8%D8%A7-436888.html)
+- **صاروخ ماديرا يحقق رقمًا قياسيًا بـ125 هدفًا بالرا�س ويجعل ريال مدريد في المقدمة والنصر يقترب من يوفنتوس**: [Link](https://tawusal.com/135009/%D8%B5%D8%A7%D8%B1%D9%88%D8%AE-%D9%85%D8%A7%D8%AF%D9%8A%D8%B1%D8%A7-%D9%8A%D8%AD%D9%82%D9%82-%D8%B1%D9%82%D9%85%D9%8B%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D8%A8%D9%80125-%D9%87%D8%AF/)
+
+
+### أضحية (N/A, Fri, 1 May 2026 10:50:00 -0700)
+
+
+
+
+### banksy (N/A, Fri, 1 May 2026 09:10:00 -0700)
+
+- **Banksy confirms he's behind statue in central London**: [Link](https://www.bbc.com/news/articles/c5y9wlnwl85o)
+- **Banksy's latest: Dig at Trump or warning about far-right?**: [Link](https://www.aa.com.tr/en/europe/banksys-latest-dig-at-trump-or-warning-about-far-right/3924199)
+- **New Banksy sculpture appears to show politician blinded by his own flag**: [Link](https://www.aljazeera.com/video/newsfeed/2026/5/1/new-banksy-sculpture-appears-to-show-politician-blinded-by-his-own-flag)
+
+
 ### عبد الصمد الزلزولي (N/A, Fri, 1 May 2026 10:00:00 -0700)
 
 - **ريال بيتيس يحدد سعر بيع الزلزولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%AD%D8%AF%D8%AF-%D8%B3%D8%B9%D8%B1-%D8%A8%D9%8A%D8%B9-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A/blt6f88cb1a33b18b01)
