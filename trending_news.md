@@ -1,3 +1,17 @@
+### شغب (N/A, Fri, 1 May 2026 12:00:00 -0700)
+
+- **توقيف العشرات بعد أعمال شغب في مباراة الجيش الملكي والرجاء البيضاوي**: [Link](https://www.aljazeera.net/sport/2026/5/1/%D8%B4%D8%BA%D8%A8-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **"منخرطو الرجاء" يطالبون بفتح تحقيق**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D8%B1%D8%B7%D9%88-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8%D9%88%D9%86-%D8%A8%D9%81%D8%AA%D8%AD-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-1739907.html)
+- **الوداد الرياضي يمطر شباك الدشيرة ويستعيد صدارة البطولة الوطنية**: [Link](https://ar.telquel.ma/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%AF%D9%8A%D9%86-%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D8%B4%D8%BA%D8%A8-%D8%B4%D8%A7%D8%A8%D8%AA/)
+
+
+### girona vs mallorca (N/A, Fri, 1 May 2026 12:00:00 -0700)
+
+- **Girona vs Mallorca: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cq8w8ddg107t)
+- **Michel Sanchez previews Mallorca clash: ‘They have technically gifted players’**: [Link](https://tribuna.com/en/news/2026-04-30-michel-sanchez-previews-mallorca-clash-they-have-technically-gifted-players/)
+- **"The Girona pride must be on the field tomorrow"**: [Link](https://sports.yahoo.com/articles/girona-pride-must-field-tomorrow-121000298.html)
+
+
 ### droit de douane (N/A, Fri, 1 May 2026 12:10:00 -0700)
 
 - **Trump va relever les droits de douane à 25 % sur les véhicules européens, dès "la semaine prochaine"**: [Link](https://www.france24.com/fr/am%C3%A9riques/20260501-trump-va-relever-les-droits-de-douane-%C3%A0-25-sur-les-v%C3%A9hicules-europ%C3%A9ens-d%C3%A8s-la-semaine-prochaine)
