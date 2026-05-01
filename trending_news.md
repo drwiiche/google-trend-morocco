@@ -1,3 +1,38 @@
+### mohammed vi (N/A, Fri, 1 May 2026 08:10:00 -0700)
+
+- **Hassan III : "poli et froid", proche de sa mère... Un livre-enquête dresse le portrait de l’héritier de Mohammed VI**: [Link](https://www.lexpress.fr/secret-defense/hassan-iii-poli-et-froid-proche-de-sa-mere-un-livre-enquete-dresse-le-portrait-de-lheritier-de-T5IFXLLS4ZGJZLM5RNJFLW3M44/)
+- **Omar Brouksy analyse les tensions au sein du Palais royal marocain**: [Link](https://www.harianbasis.co/fr/maroc-pouvoir-royal-omar-brouksy)
+- **Hassan III : « poli et froid », proche de sa mère… Un livre-enquête dresse le portrait de l’héritier de Mohammed VI 2026**: [Link](https://iustitia.bg/fr/hassan-iii-poli-froid-proche-livre-enqu-dresse-portrait/)
+
+
+### elon musk (N/A, Fri, 1 May 2026 07:50:00 -0700)
+
+- **Live Updates: Elon Musk Faces Contentious Questions at OpenAI Trial**: [Link](https://www.nytimes.com/live/2026/04/30/technology/openai-trial-sam-altman-elon-musk)
+- **Elon Musk’s worst enemy in court is Elon Musk**: [Link](https://www.theverge.com/tech/921022/elon-musk-cross-openai-altman)
+- **The unflattering secrets revealed so far in Elon Musk’s latest legal feud**: [Link](https://www.washingtonpost.com/technology/2026/04/23/musk-altman-lawsuit-trial-openai/)
+
+
+### هبة سبور (N/A, Fri, 1 May 2026 07:40:00 -0700)
+
+- **البيين سبورت تستفز المغاربة قبل كأس العالم ومطالب بالتدخل لفرض القانون**: [Link](https://www.hibasport.com/details-403641.html)
+- **هل تحولت استوديوهات التحليل في beIN Sports إلى ساحات جدل؟**: [Link](https://www.analkhabar.com/%D9%87%D9%84-%D8%AA%D8%AD%D9%88%D9%84%D8%AA-%D8%A7%D8%B3%D8%AA%D9%88%D8%AF%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D9%81%D9%8A-bein-sports.html)
+- **المغرب يتصدر طواف بنين للدراجات**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%B7%D9%88%D8%A7%D9%81-%D8%A8%D9%86%D9%8A%D9%86-%D9%84%D9%84%D8%AF%D8%B1%D8%A7%D8%AC%D8%A7%D8%AA-436933.html)
+
+
+### إندريك (N/A, Fri, 1 May 2026 06:40:00 -0700)
+
+- **ريال مدريد يحسم موقفه ويبلغ إندريك بالقرار النهائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D8%A7%D9%95%D9%86%D8%AF%D8%B1%D9%8A%D9%83-%D8%A8%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A/blt3becb59618b175c0)
+- **إندريك: كنت أبكي في ريال مدريد.. وبيلنغهام صدمني**: [Link](https://www.alarabiya.net/sport/2026/05/01/%D8%A7%D9%86%D8%AF%D8%B1%D9%8A%D9%83-%D9%83%D9%86%D8%AA-%D8%A7%D8%A8%D9%83%D9%8A-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D9%8A%D9%84%D9%86%D8%BA%D9%87%D8%A7%D9%85-%D8%B5%D8%AF%D9%85%D9%86%D9%8A)
+- **ريال مدريد يصحح قراراته.. عودة إندريك ورحيل المتسبب في إعارته**: [Link](https://www.aljazeera.net/sport/2026/4/29/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B5%D8%AD%D8%AD-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%86%D8%AF%D8%B1%D9%8A%D9%83)
+
+
+### غاز (N/A, Fri, 1 May 2026 06:20:00 -0700)
+
+- **الغاز الأميركي يفيض والعالم يواجه شحاً بسبب الحرب**: [Link](https://asharqbusiness.com/sub-live/economics/4077/%D8%A7%D9%84%D8%BA%D8%A7%D8%B2-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%8A%D9%81%D9%8A%D8%B6-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B4%D8%AD%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8/)
+- **لا يوجد أي تراجع في أسعار الغاز مع بقاء مضيق هرمز مستقراً**: [Link](https://www.al-bayader.com/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7-%D9%8A%D9%88%D8%AC%D8%AF-%D8%A3%D9%8A-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%BA%D8%A7%D8%B2-%D9%85%D8%B9-%D8%A8%D9%82%D8%A7%D8%A1/107179/)
+- **عاجل| زيادة أقل من التوقعات في مخزونات الغاز الطبيعي الأمريكية**: [Link](https://www.arabictrader.com/ar/news/commodities/215875/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A3%D9%82%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D9%81%D9%8A-%D9%85%D8%AE%D8%B2%D9%88%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D8%BA%D8%A7%D8%B2-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9)
+
+
 ### jannik sinner (N/A, Fri, 1 May 2026 07:30:00 -0700)
 
 - **Sinner e Zverev: le semifinali di Madrid su Sky**: [Link](https://sport.sky.it/tennis/2026/05/01/madrid-open-2026-partite-oggi-1-maggio)
