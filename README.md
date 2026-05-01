@@ -1,3 +1,17 @@
+### ظاهرة جوية (N/A, Fri, 1 May 2026 08:40:00 -0700)
+
+- **ذروة الموجة الحارة غداً مع أمطار وانخفاض حاد بالحرارة**: [Link](https://ekhbary24.com/%D8%B0%D8%B1%D9%88%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%A9-%D8%BA%D8%AF%D8%A7%D9%8B-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A7%D9%86%D8%AE%D9%81/)
+- **الطقس غدًا: ارتفاع الحرارة ورياح ترابية وأمطار رعدية تصل للعاصمة بمعدل 34 درجة**: [Link](https://akher.news/41966/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D9%8B%D8%A7-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A/)
+- **الأرصاد تحذر من طقس حار ورياح مثيرة وأمطار رعدية حتى الأربعاء**: [Link](https://elwatanplus.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%88%D8%A3%D9%85/)
+
+
+### mohamed amine myel (N/A, Fri, 1 May 2026 08:40:00 -0700)
+
+- **Mohamed Amine Myel remplace Noufissa Kessar au poste de PDG de Teralys, filiale d’Al Mada**: [Link](https://mobile.telquel.ma/2026/04/30/mohamed-amine-myel-remplace-noufissa-kessar-au-poste-de-pdg-de-teralys-filiale-dal-mada_1987140)
+- **Mohamed Amine Myel nommé PDG de Teralys, filiale d’Al Mada**: [Link](https://fr.hespress.com/471779-mohamed-amine-myel-nomme-pdg-de-teralys-filiale-dal-mada.html)
+- **Mohamed Amine Myel nommé PDG de Teralys, filiale d’Al Mada**: [Link](https://www.maroc-hebdo.com/article/mohamed-amine-myel-nomme-pdg-de-teralys-filiale-dal-mada)
+
+
 ### mohammed vi (N/A, Fri, 1 May 2026 08:10:00 -0700)
 
 - **Hassan III : "poli et froid", proche de sa mère... Un livre-enquête dresse le portrait de l’héritier de Mohammed VI**: [Link](https://www.lexpress.fr/secret-defense/hassan-iii-poli-et-froid-proche-de-sa-mere-un-livre-enquete-dresse-le-portrait-de-lheritier-de-T5IFXLLS4ZGJZLM5RNJFLW3M44/)
