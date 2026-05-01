@@ -1,3 +1,17 @@
+### مسيرة (N/A, Fri, 1 May 2026 03:20:00 -0700)
+
+- **إطلاق 6583 مسيّرة في شهر واحد: أبريل يسجّل أعلى معدل لهجمات المسيّرات الروسية ضد أوكرانيا**: [Link](https://arabic.euronews.com/2026/05/01/russia-ukraine-drone-attacks-record-high-april-6583-drones)
+- **مقتل شابَين في هجوم مسيّرة أوكرانية على بيلغورود الروسية**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/5268405-%D9%85%D9%82%D8%AA%D9%84-%D8%B4%D8%A7%D8%A8%D9%8E%D9%8A%D9%86-%D9%81%D9%8A-%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%B3%D9%8A%D9%91%D8%B1%D8%A9-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A8%D9%8A%D9%84%D8%BA%D9%88%D8%B1%D9%88%D8%AF-%D8%A7%D9%84%D8%B1%D9%88%D8%B3%D9%8A%D8%A9)
+- **6583.. هجمات المسيّرات الروسية بلغت أعلى وتيرة في أبريل**: [Link](https://www.skynewsarabia.com/world/1867265-6583-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D8%A8%D9%84%D8%BA%D8%AA-%D8%A3%D8%B9%D9%84%D9%89-%D9%88%D8%AA%D9%8A%D8%B1%D8%A9-%D8%A3%D8%A8%D8%B1%D9%8A%D9%84)
+
+
+### lorna hajdini (N/A, Fri, 1 May 2026 01:30:00 -0700)
+
+- **Exclusive | Bombshell sex harassment suit against Lorna Hajdini, JPMorgan branded ‘complete fabrication’ as John Doe is unmasked**: [Link](https://nypost.com/2026/04/30/business/bombshell-jpmorgan-sex-harassment-suit-that-went-viral-branded-complete-fabrication-as-john-doe-accuser-unmasked/)
+- **JPMorgan executive Lorna Hajdini accused of drugging, threatening Indian employee. ‘I own you’**: [Link](https://theprint.in/feature/jpmorgan-executive-lorna-hajdini-accused-of-drugging-threatening-indian-employee-i-own-you/2919522/)
+- **AI Video Goes Viral On X Amid Lawsuit Over Allegations Against JPMorgan Exec**: [Link](https://www.ndtv.com/world-news/viral-ai-video-highlights-unproven-allegations-in-lawsuit-against-jpmorgan-executive-on-x-11434919)
+
+
 ### marrakech (N/A, Fri, 1 May 2026 00:50:00 -0700)
 
 - **Aéroport de Marrakech : hausse du trafic passagers à fin mars dernier**: [Link](https://leseco.ma/maroc/aeroport-de-marrakech-hausse-du-trafic-passagers-a-fin-mars-dernier.html)
