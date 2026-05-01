@@ -1,3 +1,10 @@
+### jannik sinner (N/A, Fri, 1 May 2026 07:30:00 -0700)
+
+- **Sinner e Zverev: le semifinali di Madrid su Sky**: [Link](https://sport.sky.it/tennis/2026/05/01/madrid-open-2026-partite-oggi-1-maggio)
+- **Tennis Tracker: Masters Madrid, Sinner in campo contro Fils per la finale (0-0)**: [Link](https://www.diretta.it/news/tennis-madrid-atp-singolare-tennis-tracker-masters-madrid-sinner-in-campo-contro-fils-per-la-finale-0-0/IRiSO9xp/)
+- **Sinner-Fils, diretta live: risultato, aggiornamenti in tempo reale e cronaca scritta semifinale Masters 1000 Madrid**: [Link](https://www.eurosport.it/tennis/atp-madrid/2026/live-jannik-sinner-arthur-fils_mtc21862865/live-commentary.shtml)
+
+
 ### resultat quinte (N/A, Fri, 1 May 2026 06:40:00 -0700)
 
 - **Quinté+: PRIX DE CHEVILLY - LONGCHAMP - 30/04/2026 : partants, pronostics et résultats en vidéos - Course 8**: [Link](https://www.equidia.fr/courses/2026-04-30/R1/C8)
