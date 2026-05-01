@@ -1,3 +1,24 @@
+### resultat quinte (N/A, Fri, 1 May 2026 06:40:00 -0700)
+
+- **Quinté+: PRIX DE CHEVILLY - LONGCHAMP - 30/04/2026 : partants, pronostics et résultats en vidéos - Course 8**: [Link](https://www.equidia.fr/courses/2026-04-30/R1/C8)
+- **Quinté Plus PMU : Kraskhov tourne autour du pot**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-kraskhov-tourne-autour-du-pot-129610.html)
+- **Les pronos hippiques du jeudi 30 avril 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-30-avril-2026_AN-202604290598.html)
+
+
+### liverpool football club (N/A, Fri, 1 May 2026 04:40:00 -0700)
+
+- **Mohamed Salah injury update**: [Link](https://www.liverpoolfc.com/news/mohamed-salah-injury-update-1)
+- **Slot: We Recognize the Importance of Facing Manchester United, and This is Mohamed Salah's Situation**: [Link](https://www.ysscores.com/en/news/13955953/Slot:-We-Recognize-the-Importance-of-Facing-Manchester-United,-and-This-is-Mohamed-Salah's-Situation)
+- **Injured Salah to miss Liverpool's trip to Man Utd, Slot confirms**: [Link](https://www.beinsports.com/en-us/soccer/premier-league/articles/injured-salah-to-miss-liverpools-trip-to-man-utd-slot-confirms-2026-05-01)
+
+
+### bus tombe dans la seine (N/A, Fri, 1 May 2026 04:20:00 -0700)
+
+- **Essonne : un bus tombe dans la Seine avec des passagers à bord, une conductrice en formation au volant**: [Link](https://www.leparisien.fr/essonne-91/essonne-un-bus-chute-dun-pont-et-tombe-dans-la-seine-a-juvisy-sur-orge-les-secours-deployes-30-04-2026-PK6SMM3DMNDIJDFTK6NER7DUBM.php)
+- **A Juvisy-sur-Orge, un bus et une voiture tombent dans la Seine sans faire de victime, la conductrice placée en garde à vue**: [Link](https://www.lemonde.fr/societe/article/2026/04/30/essonne-un-bus-et-une-voiture-tombent-dans-la-seine-a-juvisy-sur-orge-sans-faire-de-victime-la-conductrice-placee-en-garde-a-vue_6684572_3225.html)
+- **Les images impressionnantes du bus tombé dans la Seine en Essonne**: [Link](https://www.bfmtv.com/paris/essonne/les-images-impressionnantes-du-bus-tombe-dans-la-seine-en-essonne_AV-202604300539.html)
+
+
 ### مسيرة (N/A, Fri, 1 May 2026 03:20:00 -0700)
 
 - **إطلاق 6583 مسيّرة في شهر واحد: أبريل يسجّل أعلى معدل لهجمات المسيّرات الروسية ضد أوكرانيا**: [Link](https://arabic.euronews.com/2026/05/01/russia-ukraine-drone-attacks-record-high-april-6583-drones)
