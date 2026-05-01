@@ -1,3 +1,29 @@
+### kick (N/A, Thu, 30 Apr 2026 19:40:00 -0700)
+
+- **2026 FWC Lionfish Challenge**: [Link](https://www.coastalbreezenews.com/news/community/events/2026-fwc-lionfish-challenge/article_c998d65f-3c7b-4bff-8671-71fbbeac229f.html)
+- **In the midst of an energy crisis, countries make plans to ditch oil, gas and coal**: [Link](https://www.npr.org/2026/04/29/nx-s1-5786914/colombia-conference-fossil-fuels)
+- **The World Met to Talk Climate Change. The U.S. Wasn’t Invited.**: [Link](https://www.nytimes.com/2026/04/30/climate/santa-marta-climate-change.html)
+
+
+### prix gasoil maroc (N/A, Thu, 30 Apr 2026 18:50:00 -0700)
+
+- **Carburants : baisse des prix à partir du 1er mai, le gasoil et l'essence repassent sous les 15 DH/L**: [Link](https://lematin.ma/economie/carburants-gasoil-et-essence-repassent-sous-les-15-dirhams-le-litre/343376)
+- **Prix des carburants : “Le gouvernement agit avec sens social et responsabilité financière”, selon Nadia Fettah**: [Link](https://mobile.telquel.ma/instant-t/2026/04/28/prix-des-carburants-le-gouvernement-agit-avec-sens-social-et-responsabilite-financiere-selon-nadia-fettah_1986578/)
+- **Maroc : Après trois hausses, les prix des carburants reculent d'un dirham au mois de mai**: [Link](https://fr.hespress.com/471762-maroc-apres-trois-hausses-les-prix-des-carburants-reculent-dun-dirham-au-mois-de-mai.html)
+
+
+### un si grand soleil (N/A, Thu, 30 Apr 2026 18:50:00 -0700)
+
+
+
+
+### عيد الشغل (N/A, Thu, 30 Apr 2026 13:40:00 -0700)
+
+- **تطوان.. جمعية اتحاد مهنيي إصلاح السيارات تخلّد عيد الشغل بتثمين مضامين الرسالة الملكية**: [Link](https://presstetouan.com/431635-2/)
+- **في عيد الشغل 2026… النقابات تفشل في تحقيق مطالب الشغيلة!!!!**: [Link](https://jihapress.ma/2026/04/%D9%81%D9%8A-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B4%D8%BA%D9%84-2026-%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D9%81%D8%B4%D9%84-%D9%81%D9%8A-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%85/)
+- **الأجور والضرائب… عقدة في المنشار**: [Link](https://assabah.ma/920679.html)
+
+
 ### بانينكا (N/A, Thu, 30 Apr 2026 16:00:00 -0700)
 
 - **بالفيديو: بانينكا يصدم فينيسيوس.. ويعفو عن دياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%A7%D9%86%D9%8A%D9%86%D9%83%D8%A7-%D9%8A%D8%B5%D8%AF%D9%85-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3--%D9%88%D9%8A%D8%B9%D9%81%D9%88-%D8%B9%D9%86-%D8%AF%D9%8A%D8%A7%D8%B2/bltec33182172ff9d8b)
