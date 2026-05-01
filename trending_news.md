@@ -1,3 +1,10 @@
+### الولايات المتحدة (N/A, Fri, 1 May 2026 14:40:00 -0700)
+
+- **حرب إيران مباشر.. طهران تقدم مقترحا جديدا وترمب "ليس راضيا"**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/29/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%A8%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9)
+- **ترامب يعلن "شرطه الوحيد" لإنهاء الحرب على إيران**: [Link](https://www.skynewsarabia.com/middle-east/1867127-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B9%D9%84%D9%86-%D8%B4%D8%B1%D8%B7%D9%87-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF-%D9%84%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **تصعيد محسوب أم سوء تقدير؟ تباين في القراءات الأمريكية والغربية لأزمة إيران**: [Link](https://arabic.euronews.com/2026/05/01/iran-congress-strait-of-hormuz-war-in-the-middle-east-military-operations-ceasef)
+
+
 ### نادي برشلونة (N/A, Fri, 1 May 2026 14:10:00 -0700)
 
 - **الكرة في ملعب ديكو.. هل يحسم برشلونة الصفقة المنتظرة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8-%D8%AF%D9%8A%D9%83%D9%88--%D9%87%D9%84-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9/bltd120ba7f6a46ae20)
