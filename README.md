@@ -1,3 +1,45 @@
+### عبد الصمد الزلزولي (N/A, Fri, 1 May 2026 10:00:00 -0700)
+
+- **ريال بيتيس يحدد سعر بيع الزلزولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%AD%D8%AF%D8%AF-%D8%B3%D8%B9%D8%B1-%D8%A8%D9%8A%D8%B9-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A/blt6f88cb1a33b18b01)
+- **حكيمي يقود الزلزولي لقرار «حاسم»**: [Link](https://www.radiomars.ma/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%AD%D8%A7%D8%B3%D9%85/)
+- **إشادة إسبانية بتطور أداء الزلزولي وصحيفة: أرقامه أفضل من يامال وفينيسيوس**: [Link](https://www.hesport.com/%D8%A5%D8%B4%D8%A7%D8%AF%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8%D8%AA%D8%B7%D9%88%D8%B1-%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%88%D8%B5%D8%AD-436328.html)
+
+
+### zamalek – al ahly (N/A, Fri, 1 May 2026 09:50:00 -0700)
+
+- **Cairo Derby: German referee Robert Schröder to officiate blockbuster Zamalek v Al Ahly clash**: [Link](https://africasoccer.com/german-referee-robert-schroder-to-officiate-blockbuster-cairo-derby/)
+- **These five unforgettable derbies between Al Ahly and Zamalek**: [Link](https://foot-africa.com/en/news/these-5-unforgettable-derbies-between-al-ahly-and-zamalek-1188371/)
+- **Where and when to watch Al-Ahly vs. Zamalek’s showdown at the Cairo derby**: [Link](https://www.egyptindependent.com/where-and-when-to-watch-al-ahly-vs-zamaleks-showdown-at-the-cairo-derby/)
+
+
+### f1 (N/A, Fri, 1 May 2026 09:20:00 -0700)
+
+- **All the special liveries, helmets, and team kit for Miami**: [Link](https://www.formula1.com/en/latest/article/all-the-liveries-special-helmet-designs-and-eye-catching-looks-for-miami.7oF76lk9j3Og4NMq8G4duU)
+- **Cadillac’s stars and stripes Miami GP livery leaves F1 fans calling for more**: [Link](https://www.motorsport.com/f1/news/cadillacs-stars-and-stripes-miami-gp-livery-leaves-f1-fans-calling-for-more/10816468/)
+- **Cadillac Brings First Major Upgrade to Home F1 Race**: [Link](https://www.autoweek.com/racing/formula-1/a71178679/cadillac-major-upgrade-at-home-f1-race/)
+
+
+### عزيز أخنوش (N/A, Fri, 1 May 2026 09:10:00 -0700)
+
+- **الوزير السكوري يتباهى بالحصيلة "الاستثنائية" للحكومة في الحوار الاجتماعي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B3%D9%83%D9%88%D8%B1%D9%8A-%D9%8A%D8%AA%D8%A8%D8%A7%D9%87%D9%89-%D8%A8%D8%A7%D9%84%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA-1737942.html)
+- **السكوري: رفع المعاشات “مشروع” شريطة الإصلاح الشامل.. ونجحنا في تفادي إضراب نصف مليون أجير**: [Link](https://lakome2.com/politique/416587/)
+- **السعدي: حكومة أخنوش مستمرة في ممارسة جميع أدوارها إلى آخر يوم في عمرها**: [Link](https://ar.hibapress.com/details-721762.html)
+
+
+### ملعب الأمير مولاي عبد الله (N/A, Fri, 1 May 2026 08:50:00 -0700)
+
+- **"منخرطو الرجاء" يطالبون بفتح تحقيق**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AE%D8%B1%D8%B7%D9%88-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8%D9%88%D9%86-%D8%A8%D9%81%D8%AA%D8%AD-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-1739907.html)
+- **توقيف العشرات بعد أعمال شغب في مباراة الجيش الملكي والرجاء البيضاوي**: [Link](https://www.aljazeera.net/sport/2026/5/1/%D8%B4%D8%BA%D8%A8-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **بالفيديو: الجيش الملكي يفرمل قطار الرجاء البيضاوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D9%81%D8%B1%D9%85%D9%84-%D9%82%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D9%88%D9%8A/blt612d21ab5f2fa2f1)
+
+
+### أسعار المحروقات بالمغرب (N/A, Fri, 1 May 2026 08:30:00 -0700)
+
+- **بعد 3 زيادات.. أسعار الوقود بالمغرب تتراجع بدرهم واحد بداية شهر ماي**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-3-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AA%D8%B1%D8%A7-1739540.html)
+- **من 17 إلى 90 مليار درهم.. اليماني يرصد تضخم أرباح المحروقات منذ تحرير القطاع**: [Link](https://ar.telquel.ma/%D9%85%D9%86-17-%D8%A5%D9%84%D9%89-90-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D9%8A%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D8%B1%D8%B5%D8%AF-%D8%AA%D8%B6%D8%AE%D9%85-%D8%A3/)
+- **أسعار المحروقات إلى أين.. الحسين اليماني ضيف بودكاست زووم ماركت مع أحمد بلحميدي**: [Link](https://www.ahdath.info/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A3%D9%8A%D9%86-%D8%A7%D9%84%D8%AD%D8%B3%D9%8A%D9%86-%D8%A7%D9%84%D9%8A%D9%85%D8%A7%D9%86/)
+
+
 ### ظاهرة جوية (N/A, Fri, 1 May 2026 08:40:00 -0700)
 
 - **ذروة الموجة الحارة غداً مع أمطار وانخفاض حاد بالحرارة**: [Link](https://ekhbary24.com/%D8%B0%D8%B1%D9%88%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%A9-%D8%BA%D8%AF%D8%A7%D9%8B-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A7%D9%86%D8%AE%D9%81/)
