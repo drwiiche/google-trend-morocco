@@ -1,3 +1,10 @@
+### roi du maroc (N/A, Sat, 2 May 2026 16:20:00 -0700)
+
+- **Le roi du Maroc nomme son fils le prince héritier coordinateur à l'état-major général de l'armée**: [Link](https://www.lefigaro.fr/flash-actu/le-roi-du-maroc-nomme-son-fils-le-prince-heritier-coordinateur-a-l-etat-major-general-de-l-armee-20260502)
+- **Le roi Mohammed VI nomme le prince héritier Moulay El Hassan à l’État-Major des FAR**: [Link](https://www.lebrief.ma/le-roi-mohammed-vi-nomme-le-prince-heritier-moulay-el-hassan-a-letat-major-des-far-100150655/)
+- **Mohamed VI désigne son fils à l’état-major : Tentative visible d’éteindre la guerre de succession…**: [Link](https://lapatrienews.dz/mohamed-vi-designe-son-fils-a-letat-major-tentative-visible-deteindre-la-guerre-de-succession/)
+
+
 ### moulay hassan (N/A, Sat, 2 May 2026 15:50:00 -0700)
 
 - **Le roi du Maroc nomme son fils le prince héritier coordinateur à l'état-major général de l'armée**: [Link](https://www.lefigaro.fr/flash-actu/le-roi-du-maroc-nomme-son-fils-le-prince-heritier-coordinateur-a-l-etat-major-general-de-l-armee-20260502)
