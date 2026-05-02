@@ -1,3 +1,31 @@
+### كأس العرش (N/A, Sat, 2 May 2026 07:50:00 -0700)
+
+- **تزامن كأس العرش مع نهائي الأبطال**: [Link](https://www.hespress.com/%D8%AA%D8%B2%D8%A7%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D9%85%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-1740261.html)
+- **المغرب التطواني يستهل رحلة “الكأس” بمواجهة شباب الفتح البيضاوي**: [Link](https://presstetouan.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D8%A8%D9%85%D9%88/)
+- **السنوسي لـ راديو مارس: قرعة كأس العرش تُدار بنظام جديديتوفر على معايير**: [Link](https://www.radiomars.ma/%D8%A7%D9%84%D8%B3%D9%86%D9%88%D8%B3%D9%8A-%D9%84%D9%80-%D8%B1%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D8%B1%D8%B3-%D9%82%D8%B1%D8%B9%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%AA%D9%8F/)
+
+
+### منتخب المغرب لكرة القدم (N/A, Sat, 2 May 2026 07:40:00 -0700)
+
+- **مدرب الفتيان يوجه طلبا للجامعة بخصوص كأس إفريقيا**: [Link](https://www.ahdath.info/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%AA%D9%8A%D8%A7%D9%86-%D9%8A%D9%88%D8%AC%D9%87-%D8%B7%D9%84%D8%A8%D8%A7-%D9%84%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A8%D8%AE%D8%B5%D9%88%D8%B5-%D9%83/)
+- **البوجوفي، لوكماني والرباج في مقدمة لائحة الأشبال لكأس إفريقيا**: [Link](https://www.almountakhab.com/node/13224963)
+- **الجامعة تراسل العصبة الاحترافية بسبب برمجة مباريات فريقين مغربيين**: [Link](https://sport.lesiteinfo.com/elbotola/493861.html)
+
+
+### بي اس جي ضد لوريان (N/A, Sat, 2 May 2026 07:30:00 -0700)
+
+- **بطولة فرنسا: سان جرمان للاقتراب من حسم اللقب قبل تجدّد اشتباكه مع بايرن**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260501-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%84%D9%84%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D9%82%D8%A8%D9%84-%D8%AA%D8%AC%D8%AF%D9%91%D8%AF-%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D9%87-%D9%85%D8%B9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86)
+- **إنريكي يستبعد نجوم باريس سان جيرمان ويستدعي الوجوه الشابة لمواجهة لوريان**: [Link](https://m.elbotola.com/article/2026-05-02-08-30-315.html)
+- **المغربي بلال لوريندون مفاجأة باريس سان جيرمان أمام لوريان**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D9%84%D8%A7%D9%84-%D9%84%D9%88%D8%B1%D9%8A%D9%86%D8%AF%D9%88%D9%86-%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%88%D8%B1%D9%8A%D8%A7%D9%86/19628)
+
+
+### psg vs lorient (N/A, Sat, 2 May 2026 07:30:00 -0700)
+
+- **PSG's Luis Enrique on managing rest ahead of Bayern return: 'Like Tetris'**: [Link](https://www.espn.com/soccer/story/_/id/48646914/psg-luis-enrique-managing-rest-ahead-bayern-return-tetris)
+- **Live! Paris Saint-Germain vs. Lorient in Ligue 1 on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-paris-saint-germain-vs-lorient-in-ligue-1-on-bein-sports-2026-05-02)
+- **Sports - PSG return to Ligue 1 action four days after epic match against Bayern**: [Link](https://www.france24.com/en/tv-shows/sports/20260502-psg-return-ligue-1-action-four-days-after-epic-match-against-bayern)
+
+
 ### paris-sg – lorient (N/A, Sat, 2 May 2026 07:20:00 -0700)
 
 - **Safonov, Vitinha et Nuno Mendes au repos, première pour Marin : le PSG très remanié**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-matvei-safonov-laisse-au-repos-renato-marin-va-connaitre-sa-premiere-titularisation-dans-les-buts-le-groupe-du-psg_sto23295698/story.shtml)
