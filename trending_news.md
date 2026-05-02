@@ -1,3 +1,24 @@
+### barca vs (N/A, Sat, 2 May 2026 12:10:00 -0700)
+
+- **Osasuna - Barcelona hoy, en directo: última hora de la LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/osasuna-barcelona-hoy-en-directo-ultima-hora-de-la-laliga-ea-sports-en-vivo-f202605-d/)
+- **Comida de directivas con Laporta y con anécdota de 'mercato'**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260502/1004178030/comida-directivas-laporta-anecdota-mercato.html)
+- **Osasuna-Barça: Gavi o De Jong, la gran duda en el once titular de Hansi Flick para sentenciar LaLiga**: [Link](https://www.sport.es/es/noticias/barca/osasuna-barca-gavi-jong-duda-once-titular-flick-sentenciar-liga-129752802)
+
+
+### osasuna – barcelone (N/A, Sat, 2 May 2026 12:00:00 -0700)
+
+- **Barcelona squad named for Osasuna**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/119187/osasuna-barcelona-la-liga-team-news-squad-list)
+- **Why isn’t Lamine Yamal playing for Barcelona in crucial La Liga title clash against Osasuna?**: [Link](https://worldsoccertalk.com/news/why-isnt-lamine-yamal-playing-for-barcelona-in-crucial-la-liga-title-clash-against-osasuna/)
+- **LIVE - Osasuna v Barcelona: Commentary, updates, goals and stats as Catalans close in on La Liga title**: [Link](https://www.101greatgoals.com/live/osasuna-v-barcelona-commentary-live-updates-goals-stream-stats-la-liga-title/)
+
+
+### deportivo alavés – ath. bilbao (N/A, Sat, 2 May 2026 11:50:00 -0700)
+
+- **¡La madre que los parió!**: [Link](https://as.com/futbol/la-madre-que-los-pario-f202605-n/)
+- **Nico provoca la tormenta en Mendizorroza**: [Link](https://www.marca.com/futbol/primera-division/cronica/2026/05/02/nico-provoca-tormenta-mendizorroza.html)
+- **Alavés - Athletic Club | El análisis de José Manuel Monje**: [Link](https://www.ondavasca.com/alaves-athletic-club-el-analisis-de-jose-manuel-monje/)
+
+
 ### الدوري الانجليزي (N/A, Sat, 2 May 2026 11:30:00 -0700)
 
 - **فيديو: بعد عِقد كامل.. جيوكيريس يزيل الحرج عن مهاجمي آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B9%D8%AF-%D8%B9%D9%90%D9%82%D8%AF-%D9%83%D8%A7%D9%85%D9%84--%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D8%AD%D8%B1%D8%AC-%D8%B9%D9%86-%D9%85%D9%87%D8%A7%D8%AC%D9%85%D9%8A-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt7bee9bf4dfe798c5)
