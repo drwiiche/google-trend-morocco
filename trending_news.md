@@ -1,3 +1,17 @@
+### moulay hassan (N/A, Sat, 2 May 2026 15:50:00 -0700)
+
+- **Le roi du Maroc nomme son fils le prince héritier coordinateur à l'état-major général de l'armée**: [Link](https://www.lefigaro.fr/flash-actu/le-roi-du-maroc-nomme-son-fils-le-prince-heritier-coordinateur-a-l-etat-major-general-de-l-armee-20260502)
+- **Le roi Mohammed VI nomme le prince héritier Moulay El Hassan à l’État-Major des FAR**: [Link](https://www.lebrief.ma/le-roi-mohammed-vi-nomme-le-prince-heritier-moulay-el-hassan-a-letat-major-des-far-100150655/)
+- **Mohamed VI désigne son fils à l’état-major : Tentative visible d’éteindre la guerre de succession…**: [Link](https://lapatrienews.dz/mohamed-vi-designe-son-fils-a-letat-major-tentative-visible-deteindre-la-guerre-de-succession/)
+
+
+### أوبك (N/A, Sat, 2 May 2026 14:30:00 -0700)
+
+- **"أوبك بلس" تجتمع في فيينا وسط اضطرابات أسواق النفط**: [Link](https://www.aljazeera.net/video/2026/5/2/%D8%A3%D9%88%D8%A8%D9%83-%D8%A8%D9%84%D8%B3-%D8%AA%D8%AC%D8%AA%D9%85%D8%B9-%D9%81%D9%8A-%D9%81%D9%8A%D9%8A%D9%86%D8%A7-%D9%88%D8%B3%D8%B7-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8%D8%A7%D8%AA)
+- **معاريف: "أوبك جديدة".. كيف تنظر إسرائيل إلى انسحاب الإمارات من "أوبك+"؟**: [Link](https://www.alquds.co.uk/%D9%85%D8%B9%D8%A7%D8%B1%D9%8A%D9%81-%D8%A3%D9%88%D8%A8%D9%83-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%83%D9%8A%D9%81-%D8%AA%D9%86%D8%B8%D8%B1-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A5/)
+- **نيزافيسيمايا غازيتا: الدافع الحقيقي وراء انسحاب الإمارات من “أوبك” و”أوبك+”**: [Link](https://www.raialyoum.com/%D9%86%D9%8A%D8%B2%D8%A7%D9%81%D9%8A%D8%B3%D9%8A%D9%85%D8%A7%D9%8A%D8%A7-%D8%BA%D8%A7%D8%B2%D9%8A%D8%AA%D8%A7-%D8%A7%D9%84%D8%AF%D8%A7%D9%81%D8%B9-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D9%8A-%D9%88/)
+
+
 ### ياسين بونو (N/A, Sat, 2 May 2026 14:50:00 -0700)
 
 - **رغم ثلاثية الحزم.. ياسين بونو يفضح إنزاجي ونجوم الهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%B2%D9%85--%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D9%81%D8%B6%D8%AD-%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt97a0e6df92eda70d)
