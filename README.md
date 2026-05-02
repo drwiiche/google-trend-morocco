@@ -1,3 +1,45 @@
+### سوق السمك (N/A, Sat, 2 May 2026 14:20:00 -0700)
+
+- **انخفاض أسعار السردين بالمغرب بعد موجة الغلاء**: [Link](https://hnews.ma/104969/)
+- **انفراجة في ‘سوق السمك’.. السردين يتصالح مع جيوب المغاربة وينحدر إلى 10 دراهم**: [Link](https://daralkhabar.com/%D8%A7%D9%86%D9%81%D8%B1%D8%A7%D8%AC%D8%A9-%D9%81%D9%8A-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%B3%D9%85%D9%83-%D8%A7%D9%84%D8%B3%D8%B1%D8%AF%D9%8A%D9%86-%D9%8A%D8%AA%D8%B5%D8%A7%D9%84%D8%AD-%D9%85/)
+- **السردين يستعيد توازنه في الأسواق**: [Link](https://ar.hibapress.com/details-722070.html)
+
+
+### ولي عهد (N/A, Sat, 2 May 2026 14:10:00 -0700)
+
+- **المنصب الجديد لولي العهد .. تكريس استمرارية التأهيل والتدرج في الخبرة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%B5%D8%A8-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D9%87%D8%AF-%D8%AA%D9%83%D8%B1%D9%8A%D8%B3-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7-1740682.html)
+- **بلاغ من الديوان الملكي**: [Link](https://www.mapexpress.ma/ar/actualite/%D8%A8%D9%84%D8%A7%D8%BA-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%8A%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-52/%D8%A7%D9%84%D8%A3%D9%86%D8%B4%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9/)
+- **ملك المغرب يعين ولي عهده منسقا لمكاتب ومصالح القيادة العامة للجيش**: [Link](https://www.alquds.co.uk/%D9%85%D9%84%D9%83-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D9%8A%D9%86-%D9%88%D9%84%D9%8A-%D8%B9%D9%87%D8%AF%D9%87-%D9%85%D9%86%D8%B3%D9%82%D8%A7-%D9%84%D9%85%D9%83%D8%A7%D8%AA%D8%A8-%D9%88/)
+
+
+### برشلونة اليوم (N/A, Sat, 2 May 2026 14:00:00 -0700)
+
+- **تضارب حول ركلة جزاء محتملة ضد برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B6%D8%A7%D8%B1%D8%A8-%D8%AD%D9%88%D9%84-%D8%AA%D8%AC%D8%A7%D9%87%D9%84-%D8%A7%D8%AD%D8%AA%D8%B3%D8%A7%D8%A8-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt08f30c34b9934582)
+- **هل حُرم أوساسونا من ركلة جزاء صحيحة أمام برشلونة ؟**: [Link](https://hihi2.com/2026/05/02/p3748600.html)
+- **بالفيديو: برشلونة يكسر صمود أوساسونا ويلامس لقب الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%83%D8%B3%D8%B1-%D8%B5%D9%85%D9%88%D8%AF-%D8%A7%D9%94%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%88%D9%8A%D9%84%D8%A7%D9%85%D8%B3-%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/blt2b546478568b6525)
+
+
+### mas fès (N/A, Sat, 2 May 2026 14:00:00 -0700)
+
+- **Botola Pro: accroché à Meknès, le MAS préserve son invincibilité et la première place**: [Link](https://sport.le360.ma/football/botola/botola-pro-accroche-a-meknes-le-mas-preserve-son-invincibilite-et-la-premiere-place_VPWL3RGLQ5GTJKSFLOQM5FJETQ/)
+- **Botola Pro D1 «Inwi»: MAS-CODM en tête d’affiche de la 18e journée (programme)**: [Link](https://h24info.ma/sport/football/botola-pro-d1-inwi-mas-codm-en-tete-daffiche-de-la-18e-journee-programme/)
+- **COD Meknès-Maghreb de Fès: à quelle heure et sur quelle chaîne?**: [Link](https://sport.le360.ma/football/botola/cod-meknes-maghreb-de-fes-a-quelle-heure-et-sur-quelle-chaine_RZ2SNICN5NDJ5A2LHWKMZXLWPY/)
+
+
+### ترتيب الدوري الاسباني (N/A, Sat, 2 May 2026 13:40:00 -0700)
+
+- **ترتيب هدافي الدوري الإسباني قبل الجولة 34.. مبابي يفسح المجال لوصيفه**: [Link](https://www.yallakora.com/la-liga/2982/news/549336/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-34-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%81%D8%B3%D8%AD-%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D9%84-%D9%84%D9%88%D8%B5%D9%8A%D9%81%D9%87)
+- **«جائزة بيتشيشي».. مبابي في خطر!**: [Link](https://www.aletihad.ae/news/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/4661548/-%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A8%D9%8A%D8%AA%D8%B4%D9%8A%D8%B4%D9%8A----%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%81%D9%8A-%D8%AE%D8%B7%D8%B1)
+- **ترتيب الدوري الاسباني وترتيب الهدافين الجولة 17 الأحد 21-12-2025 (GFaeCj8BGP)**: [Link](https://fathomjournal.org/554bb782smm/3868630e-8xZqjd-H4Tw.html)
+
+
+### fc barcelona (N/A, Sat, 2 May 2026 12:50:00 -0700)
+
+- **A las puertas de la gloria**: [Link](https://as.com/futbol/a-las-puertas-de-la-gloria-f202605-n/)
+- **Osasuna - Barcelona, en directo | Última hora de LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/osasuna-barcelona/2026/05/02/01_0101_20260502_450_178-directo.html)
+- **Osasuna - Barcelona: resumen, resultado y goles del partido de LaLiga**: [Link](https://www.sport.es/es/noticias/barca/osasuna-barcelona-directo-laliga-129775481)
+
+
 ### fc barcelone (N/A, Sat, 2 May 2026 13:50:00 -0700)
 
 - **DIRECT. Osasuna-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/osasuna-fc-barcelone-live/677049)
