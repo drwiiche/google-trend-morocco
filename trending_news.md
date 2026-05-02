@@ -1,3 +1,31 @@
+### الدوري الانجليزي (N/A, Sat, 2 May 2026 11:30:00 -0700)
+
+- **فيديو: بعد عِقد كامل.. جيوكيريس يزيل الحرج عن مهاجمي آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B9%D8%AF-%D8%B9%D9%90%D9%82%D8%AF-%D9%83%D8%A7%D9%85%D9%84--%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D8%AD%D8%B1%D8%AC-%D8%B9%D9%86-%D9%85%D9%87%D8%A7%D8%AC%D9%85%D9%8A-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt7bee9bf4dfe798c5)
+- **بطولة انكلترا: أرسنال لزيادة الضغط على سيتي في سباق اللقب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260501-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%B9%D9%84%D9%89-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D9%84%D9%82%D8%A8)
+- **شهر مايو فأل خير لأرسنال في الدوري الانجليزي**: [Link](https://hihi2.com/2026/05/01/p3746693.html)
+
+
+### famalicão – benfica (N/A, Sat, 2 May 2026 11:10:00 -0700)
+
+- **Famalicão 0 - 1 Benfica | 'Águias' inauguram marcador com golo de penálti**: [Link](https://www.cmjornal.pt/desporto/futebol/detalhe/20260502-171352-veja-o-onze-do-benfica-para-o-jogo-com-o-famalicao)
+- **VÍDEO: Ivanovic destacou-se, VAR interveio e Schjelderup não perdoou**: [Link](https://sapo.pt/artigo/video-ivanovic-destacou-se-var-interveio-e-schjelderup-nao-perdoou-69f634399d2d36baaf80d949)
+- **Ivanovic titular: confira o onze do Benfica em Famalicão**: [Link](https://www.ojogo.pt/futebol/artigo/ivanovic-titular-confira-o-onze-do-benfica-em-famalicao/18079432)
+
+
+### حمزة إكمان (N/A, Sat, 2 May 2026 11:00:00 -0700)
+
+- **لا معجزات.. نجم المغرب خارج كأس العالم رغم عودته**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7-%D9%85%D8%B9%D8%AC%D8%B2%D8%A7%D8%AA--%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%B1%D8%BA%D9%85-%D8%B9%D9%88%D8%AF%D8%AA%D9%87/blt2b41109ddf5e48a0)
+- **تمهيدا للعودة إلى الملاعب.. إيغامان يعود إلى مركز تدريبات ليل لمواصلة مرحلة التأهيل**: [Link](https://m.elbotola.com/article/2026-04-30-21-49-18.html)
+- **حمزة إيغامان يعود إلى ليل لمواصلة التأهيل بعد إصابة قوية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%85%D8%B2%D8%A9-%D8%A5%D9%8A%D8%BA%D8%A7%D9%85%D8%A7%D9%86-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%84%D9%8A%D9%84-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%8A%D9%84-%D8%A8%D8%B9%D8%AF-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9/19578)
+
+
+### psg vs fc lorient standings (N/A, Sat, 2 May 2026 10:20:00 -0700)
+
+- **Auburn vs. Texas A&M (May 2, 2026) Live Score**: [Link](https://www.espn.com/college-baseball/game/_/gameId/401847191)
+- **Arkansas vs. Texas (May 2, 2026) Live Score**: [Link](https://www.espn.com/college-softball/game/_/gameId/401846894)
+- **Florida vs. Georgia (May 2, 2026) Box Score**: [Link](https://www.espn.com/college-softball/boxscore/_/gameId/401846889)
+
+
 ### coupe d'afrique des nations de football 2027 (N/A, Sat, 2 May 2026 10:40:00 -0700)
 
 - **EN ROUTE VERS L’AFRIQUE DE L’EST ! La CAF annonce les dates du match d’ouverture, de la finale et des éliminatoires de la TotalEnergies CAF Coupe d’Afrique des Nations PAMOJA 2027**: [Link](https://www.cafonline.com/fr/can2025/infos/en-route-vers-l-afrique-de-l-est-la-caf-annonce-les-dates-du-match-d-ouverture-de-la-finale-et-des-eliminatoires-de-la-totalenergies-caf-coupe-d-afrique-des-nations-pamoja-2027/)
