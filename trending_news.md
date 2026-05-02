@@ -1,3 +1,10 @@
+### bayern munich (N/A, Sat, 2 May 2026 08:30:00 -0700)
+
+- **Bayern Munich**: [Link](https://www.flashscore.com/match/football/bayern-munich-nVp0wiqd/heidenheim-KWixEVWi/summary/lineups/?mid=bJ2N9ROM)
+- **📸 Bayern Munich stunned as Bundesliga bottom side lead at Allianz Arena 😲**: [Link](https://sports.yahoo.com/articles/bayern-munich-stunned-bundesliga-bottom-141900978.html)
+- **Seven new players in the starting eleven! Kompany rotates against Heidenheim**: [Link](https://fcbinside.com/2026/05/02/seven-new-players-in-the-starting-eleven-kompany-rotates-against-heidenheim/)
+
+
 ### كأس العرش (N/A, Sat, 2 May 2026 07:50:00 -0700)
 
 - **تزامن كأس العرش مع نهائي الأبطال**: [Link](https://www.hespress.com/%D8%AA%D8%B2%D8%A7%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D9%85%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-1740261.html)
