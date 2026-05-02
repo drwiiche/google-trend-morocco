@@ -1,3 +1,36 @@
+### coupe d'afrique des nations de football 2027 (N/A, Sat, 2 May 2026 10:40:00 -0700)
+
+- **EN ROUTE VERS L’AFRIQUE DE L’EST ! La CAF annonce les dates du match d’ouverture, de la finale et des éliminatoires de la TotalEnergies CAF Coupe d’Afrique des Nations PAMOJA 2027**: [Link](https://www.cafonline.com/fr/can2025/infos/en-route-vers-l-afrique-de-l-est-la-caf-annonce-les-dates-du-match-d-ouverture-de-la-finale-et-des-eliminatoires-de-la-totalenergies-caf-coupe-d-afrique-des-nations-pamoja-2027/)
+- **CAN 2027 : Voici les dates officielles**: [Link](https://www.leconomiste.com/flash-infos/can-2027-voici-les-dates-officielles/)
+- **CAN 2027 : la CAF annonce les dates du match d’ouverture, de la finale et des éliminatoires**: [Link](https://lematin.ma/sports/can-2027-les-dates-du-match-douverture-de-la-finale-et-des-eliminatoires/343496)
+
+
+### arsenal – fulham (N/A, Sat, 2 May 2026 10:30:00 -0700)
+
+- **Arsenal vs Fulham: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c362np6j0ndt)
+- **Every word from Mikel Arteta's pre-Fulham presser | Press conference | News**: [Link](https://www.arsenal.com/news/every-word-mikel-artetas-pre-fulham-presser-2)
+- **LIVE: Arsenal vs Fulham – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/5/2/live-arsenal-vs-fulham-premier-league)
+
+
+### نادي برشلونة (N/A, Sat, 2 May 2026 10:30:00 -0700)
+
+- **إنذار برتقالي.. مباراة برشلونة وأوساسونا في خطر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B0%D8%A7%D8%B1-%D8%A8%D8%B1%D8%AA%D9%82%D8%A7%D9%84%D9%8A--%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%94%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%81%D9%8A-%D8%AE%D8%B7%D8%B1/blt159ae83a854f4f34)
+- **مباشر مباراة برشلونة ضد أوساسونا في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/5/2/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%81%D9%8A-3)
+- **بطولة إسبانيا: فليك يحتفي بعودة رافينيا مع اقتراب برشلونة من اللقب**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260501-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%B9%D9%88%D8%AF%D8%A9-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%85%D8%B9-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D9%82%D8%A8)
+
+
+### botola 2 (N/A, Sat, 2 May 2026 10:10:00 -0700)
+
+- **J23 Botola D2 : RBM - MAT, choc des extrêmes cet après-midi**: [Link](https://lopinion.ma/fr/sport/newsroom/j23-botola-d2--rbm---mat-choc-des-extremes-cet-apres-midi-_a91689?articleId=8f900e61-ed7c-4381-9ae2-3bf30fb992b1)
+
+
+### classement fc nantes – om (N/A, Sat, 2 May 2026 08:30:00 -0700)
+
+- **Nantes 3-0 OM, Ligue 1 : Nantes croit encore au maintien**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/nantes-om-live/676074)
+- **Nantes reprend vie, l'OM en pleine agonie**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-32e-journee-lom-sombre-totalement-a-la-beaujoire-battu-par-un-nantes-qui-reprend-vie-3-0_sto23295787/story.shtml)
+- **Nantes - OM : les notes du match**: [Link](https://www.footmercato.net/a3165161473798193970-nantes-om-les-notes-du-match)
+
+
 ### سهير زكي (N/A, Sat, 2 May 2026 09:20:00 -0700)
 
 - **وفاة الفنانة المصرية سهير زكي عن 81 عاماً بعد صراع مع المرض**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/05/02/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%87%D9%8A%D8%B1-%D8%B2%D9%83%D9%8A-%D8%B9%D9%86-81-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6)
