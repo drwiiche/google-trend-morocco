@@ -1,3 +1,17 @@
+### immobilier (N/A, Sat, 2 May 2026 02:00:00 -0700)
+
+- **Vingt-quatre logements verront le jour : un nouveau projet immobilier aux portes du Mans**: [Link](https://lemans.maville.com/actu/actudet_-vingt-quatre-logements-verront-le-jour-un-nouveau-projet-immobilier-aux-portes-du-mans-_dep-7302693_actu.Htm)
+- **Appartement avec vue sur le Nil, 30 centimes d’euro par mois : la fin annoncée des loyers bloqués en Egypte**: [Link](https://www.lemonde.fr/afrique/article/2026/04/27/appartement-avec-vue-sur-le-nil-30-centimes-d-euro-par-mois-en-egypte-la-fin-annoncee-des-loyers-bloques_6683528_3212.html)
+- **Égypte : des loyers à 30 centimes bientôt supprimés**: [Link](https://www.lerevenu.com/investir-immobilier/prix-et-tendances/en-egypte-certains-loyers-restent-a-30-centimes-d-euro-par-mois-mais-plus-pour-longtemps/)
+
+
+### حافظ العموري (N/A, Sat, 2 May 2026 00:40:00 -0700)
+
+- **مختص في قانون الشغل: زيادة الأجور بأثر رجعي.. وهذا موعد إعلانها**: [Link](https://www.mosaiquefm.net/ar/%D9%85%D9%8A%D8%AF%D9%8A-%D8%B4%D9%88-%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/1514995/%D9%85%D8%AE%D8%AA%D8%B5-%D9%81%D9%8A-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%B4%D8%BA%D9%84-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-%D8%A8%D8%A3%D8%AB%D8%B1-%D8%B1%D8%AC%D8%B9%D9%8A-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%A5%D8%B9%D9%84%D8%A7%D9%86%D9%87%D8%A7)
+- **بين العمال والسلطة.. هل بات الاتحاد العام التونسي للشغل في مفترق طرق؟**: [Link](https://www.france24.com/ar/%D9%81%D9%8A%D8%AF%D9%8A%D9%88/20260501-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A9-%D9%87%D9%84-%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D9%84%D9%84%D8%B4%D8%BA%D9%84-%D9%81%D9%8A-%D9%85%D9%81%D8%AA%D8%B1%D9%82-%D8%B7%D8%B1%D9%82)
+- **زيادات الأجور/ خبير يفجرها: نصوص “مبهمة” وصعوبات في الاستيعاب والتطبيق..**: [Link](https://ar.webmanagercenter.com/2026/05/01/421348/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-%D8%AE%D8%A8%D9%8A%D8%B1-%D9%8A%D9%81%D8%AC%D8%B1%D9%87%D8%A7-%D9%86%D8%B5%D9%88%D8%B5-%D9%85%D8%A8%D9%87%D9%85%D8%A9/)
+
+
 ### easyjet (N/A, Fri, 1 May 2026 23:50:00 -0700)
 
 - **‘Nightmare’ queues and missed flights: a turbulent start to EU entry-exit system | Airline industry**: [Link](https://www.theguardian.com/business/2026/apr/30/eu-entry-exit-system-ees-queues-missed-flights-readers)
