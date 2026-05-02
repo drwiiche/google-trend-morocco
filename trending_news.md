@@ -1,3 +1,10 @@
+### mouna hachim (N/A, Fri, 1 May 2026 17:10:00 -0700)
+
+- **Présentation officielle de «100 Marocains qui ont fait l’Histoire», une lecture incarnée du récit national**: [Link](https://fr.le360.ma/culture/presentation-officielle-de-100-marocains-qui-ont-fait-lhistoire-une-lecture-incarnee-du-recit_QW4BO624JBFHHFTISNCPD2GMEY/)
+- **100 Marocains qui ont fait l’Histoire : Mouna Hachim revisite la mémoire plurielle du Maroc**: [Link](https://www.lavieeco.com/influences/100-marocains-qui-ont-fait-lhistoire-mouna-hachim-revisite-la-memoire-plurielle-du-maroc/)
+- **Casablanca : rencontre-signature autour de l'ouvrage "100 Marocains qui ont fait l’Histoire" de Mouna Hachim**: [Link](https://www.mapexpress.ma/actualite/culture-et-medias/casablanca-rencontre-signature-autour-louvrage-100-marocains-fait-lhistoire-mouna-hachim/)
+
+
 ### الولايات المتحدة (N/A, Fri, 1 May 2026 14:40:00 -0700)
 
 - **حرب إيران مباشر.. طهران تقدم مقترحا جديدا وترمب "ليس راضيا"**: [Link](https://www.aljazeera.net/news/liveblog/2026/4/29/%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%A8%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9)
