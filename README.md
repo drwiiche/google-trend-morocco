@@ -1,3 +1,10 @@
+### fc barcelone (N/A, Sat, 2 May 2026 13:50:00 -0700)
+
+- **DIRECT. Osasuna-FC Barcelone (La Liga 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2025-2026/osasuna-fc-barcelone-live/677049)
+- **Osasuna - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a3199485789614504995-osasuna-fc-barcelone-les-compositions-officielles)
+- **FC Barcelone : Raphinha et Bernal de retour pour le match face à Osasuna**: [Link](https://maroc-diplomatique.net/fc-barcelone-raphinha-et-bernal-de-retour-pour-le-match-face-a-osasuna/)
+
+
 ### gta 6 (N/A, Sat, 2 May 2026 13:10:00 -0700)
 
 - **Take-Two CEO Addresses Grand Theft Auto 6 Price, and the Possibility for More L.A. Noire**: [Link](https://www.ign.com/articles/take-two-ceo-addresses-grand-theft-auto-6-price-and-the-possibility-for-more-la-noire)
