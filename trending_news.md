@@ -1,3 +1,24 @@
+### consulat (N/A, Fri, 1 May 2026 23:30:00 -0700)
+
+- **Casablanca : les États-Unis inaugurent leur nouveau consulat à CFC**: [Link](https://ledesk.ma/2026/05/01/casablanca-les-etats-unis-inaugurent-leur-nouveau-consulat-a-cfc/)
+- **Sahara : le Canada, la Suisse, le Honduras… avril 2026 confirme le basculement diplomatique**: [Link](https://medias24.com/2026/05/01/sahara-le-canada-la-suisse-le-honduras-avril-2026-confirme-le-basculement-diplomatique-1668093/)
+- **Maroc–Allemagne : Berlin soutient le développement économique des Provinces du Sud**: [Link](https://www.leconomiste.com/flash-infos/maroc-allemagne-berlin-soutient-le-developpement-economique-des-provinces-du-sud/)
+
+
+### rockets – lakers (N/A, Fri, 1 May 2026 23:00:00 -0700)
+
+- **Los Angeles Lakers vs Houston Rockets May 1, 2026 Box Scores**: [Link](https://www.nba.com/game/lal-vs-hou-0042500176/box-score)
+- **Skip Bayless, NBA world react as LeBron, Lakers win Game 6 to set OKC showdown**: [Link](https://basketnews.com/news-246506-nba-world-celebrates-as-lebron-lakers-win-game-6-to-set-okc-showdown.html)
+- **Pistons, Raptors survive as Lakers progress in NBA playoffs**: [Link](https://www.octodaydispatch.com/news/national/pistons-raptors-survive-as-lakers-progress-in-nba-playoffs/article_ea8eac3a-d127-5db9-b597-ee31768fe8c9.html)
+
+
+### ياسين عدلي (N/A, Fri, 1 May 2026 21:50:00 -0700)
+
+- **تحوّل مفاجئ في موقف ياسين عدلي من تمثيل الجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D9%88%D9%91%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D9%81-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%B9%D8%AF%D9%84%D9%8A-%D9%85%D9%86-%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/blt57b8e36591d4f910)
+- **تصريحات مثيرة لياسين عدلي.. هل ندم على عدم اختيار الجزائر؟**: [Link](https://ultraalgeria.ultrasawt.com/%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%B9%D8%AF%D9%84%D9%8A-%D9%87%D9%84-%D9%86%D8%AF%D9%85-%D8%B9%D9%84%D9%89-%D8%B9%D8%AF%D9%85-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D8%9F/%D8%AD%D8%B3%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D8%A8%D8%B7/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9)
+- **عدلي يعترف أخيراً بندمه على تصريح "المستوى العالي"**: [Link](https://www.awras.com/%D8%B9%D8%AF%D9%84%D9%8A-%D9%8A%D8%B9%D8%AA%D8%B1%D9%81-%D8%A3%D8%AE%D9%8A%D8%B1%D8%A7%D9%8B-%D8%A8%D9%86%D8%AF%D9%85%D9%87-%D8%B9%D9%84%D9%89-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%A7%D9%84%D9%85%D8%B3/)
+
+
 ### mouna hachim (N/A, Fri, 1 May 2026 17:10:00 -0700)
 
 - **Présentation officielle de «100 Marocains qui ont fait l’Histoire», une lecture incarnée du récit national**: [Link](https://fr.le360.ma/culture/presentation-officielle-de-100-marocains-qui-ont-fait-lhistoire-une-lecture-incarnee-du-recit_QW4BO624JBFHHFTISNCPD2GMEY/)
