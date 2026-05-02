@@ -1,3 +1,73 @@
+### valence – atlético madrid (N/A, Sat, 2 May 2026 06:30:00 -0700)
+
+- **Atlético Madrid affronte Valence avec une formation d'urgence**: [Link](https://www.ysscores.com/fr/news/13956340/Atl%C3%A9tico-Madrid-affronte-Valence-avec-une-formation-d'urgence)
+- **L'Atleti se déplace à Mestalla avec 8 absences et 9 joueurs de l'équipe réserve**: [Link](https://fr.besoccer.com/info/latleti-se-deplace-a-mestalla-avec-8-absences-et-9-joueurs-de-lequipe-reserve-1407313)
+- **Valencia vs Atletico Madrid – Pronostic Foot gratuit et prédictions – Liga – 02/05/2026**: [Link](https://pensebet.com/valencia-vs-atletico-madrid-pronostic-foot-gratuit-et-predictions-liga-02-05-2026/)
+
+
+### hoffenheim – stuttgart (N/A, Sat, 2 May 2026 06:30:00 -0700)
+
+- **Preview: Hoffenheim vs Stuttgart - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/hoffenheim/preview/hoffenheim-vs-stuttgart-prediction-team-news-lineups_596746.html)
+- **TSG Hoffenheim vs. VfB Stuttgart Prediction, Picks, Live Odds – May 2**: [Link](https://www.bleachernation.com/picks/2026/05/01/tsg-hoffenheim-vs-vfb-stuttgart-prediction-picks-live-odds-may-2/)
+- **PREVIEW | TSG Hoffenheim vs Stuttgart: team news, lineups, predictions (Bundesliga 02/05)**: [Link](https://sports.yahoo.com/articles/preview-tsg-hoffenheim-vs-stuttgart-142000783.html)
+
+
+### brentford – west ham (N/A, Sat, 2 May 2026 06:30:00 -0700)
+
+- **Saturday's Premier League predictions and previews including Arsenal vs. Fulham**: [Link](https://www.sportsmole.co.uk/football/arsenal/premier-league-predictions/feature/will-arsenal-go-six-points-clear-saturdays-premier-league-predictions-and-previews_596803.html)
+- **Confirmed team news: Brentford unchanged as Janelt returns to squad for West Ham fixture**: [Link](https://onefootball.com/en/news/confirmed-team-news-brentford-unchanged-as-janelt-returns-to-squad-for-west-ham-fixture-42801673)
+- **Premier League predictions, football betting tips and free bets for Saturday's 3pm kick-offs**: [Link](https://www.racingpost.com/sport/football-tips/premier-league/premier-league-match-predictions-odds-tips-for-the-3pm-action-a3hRi3R9At8W/)
+
+
+### resultat quinte (N/A, Sat, 2 May 2026 06:30:00 -0700)
+
+- **Les pronostics des experts pour la réunion 1 à PARIS-VINCENNES ce samedi 2 mai**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-paris-vincennes-ce-samedi-2-mai)
+- **Les pronos hippiques du vendredi 1er mai 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-1er-mai-2026_AN-202604300650.html)
+- **Tiercé. Les pronostics de L'Alsace pour vendredi 1er mai - Prix de Beaumesnil**: [Link](https://www.lalsace.fr/actualite/2026/04/30/les-pronostics-de-l-alsace-pour-vendredi-1er-mai-prix-de-beaumesnil)
+
+
+### newcastle – brighton (N/A, Sat, 2 May 2026 06:20:00 -0700)
+
+- **Latest. Eddie Howe's team news update: Gordon injury latest ahead of Brighton battle**: [Link](https://www.newcastleunited.com/en/news/eddie-howes-team-news-update-gordon-injury-latest-ahead-of-brighton-battle)
+- **Chris Sutton predicts nightmare Saturday for Newcastle United**: [Link](https://nufcblog.co.uk/chris-sutton-predicts-nightmare-saturday-for-newcastle-united-28013)
+- **Hurzeler: ‘We have a blue line in our daily work’**: [Link](https://www.vavel.com/en/football/2026/05/02/brighton-hove-albion/1259390-hurzeler-we-have-ablue-line-in-our-daily-workthe-brighton-boss-believes-his-men-must-remain-focusedfor-the-final-month-of-the-season.html)
+
+
+### spirit airlines (N/A, Sat, 2 May 2026 06:20:00 -0700)
+
+- **Spirit Airlines shutting down after rescue talks collapse**: [Link](https://www.bbc.com/news/articles/cqxlnrqjvzyo)
+- **Spirit Airlines canceled all flights and is going out of business**: [Link](https://www.cnn.com/2026/05/02/business/spirit-to-halt-all-flights)
+- **American Airlines takes action to support Spirit Airlines customers and team members**: [Link](https://news.aa.com/news/news-details/2026/American-Airlines-takes-action-to-support-Spirit-Airlines-customers-and-team-members-CORP-OTH-05/default.aspx)
+
+
+### البايرن ضد هايدينهايم (N/A, Sat, 2 May 2026 05:50:00 -0700)
+
+- **كومباني: لن نقدم هدايا.. وخماسية باريس "منطقية"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%84%D9%86-%D9%86%D9%82%D8%AF%D9%85-%D9%87%D8%AF%D8%A7%D9%8A%D8%A7--%D9%88%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%85%D9%86%D8%B7%D9%82%D9%8A%D8%A9/bltdb6e55ea325e4dfc)
+- **تاريخ مواجهات بايرن ميونخ وهايدينهايم في الدوري الألماني**: [Link](https://hihi2.com/2026/05/01/p3746929.html)
+- **القنوات الناقلة لمباراة بايرن ميونخ ضد هايدنهايم اليوم في الدوري الألماني مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/323568328106887-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%B6%D8%AF-%D9%87%D8%A7%D9%8A%D8%AF%D9%86%D9%87%D8%A7%D9%8A%D9%85-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### بنيامين نتنياهو (N/A, Sat, 2 May 2026 05:50:00 -0700)
+
+- **"انتهى وقت التردد".. واشنطن تجدد المطالبة بعقد لقاء بين عون ونتنياهو**: [Link](https://www.aljazeera.net/news/2026/5/1/%D9%85%D8%B9%D8%AA%D8%A8%D8%B1%D8%A9-%D8%A3%D9%86-%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%86%D8%AA%D9%87%D9%89-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86)
+- **لبنان.. رئيس الحكومة يبحث تثبيت وقف النار والمفاوضات مع سفير واشنطن**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%AA%D8%AB%D8%A8%D9%8A%D8%AA-%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%85%D8%B9-%D8%B3%D9%81%D9%8A%D8%B1-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86/3924181)
+- **زياد فرحان المجالي: لبنان بين فرصة التفاوض وخطر التنازل المجاني**: [Link](https://www.raialyoum.com/%D8%B2%D9%8A%D8%A7%D8%AF-%D9%81%D8%B1%D8%AD%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D9%84%D9%8A-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%A8%D9%8A%D9%86-%D9%81%D8%B1%D8%B5%D8%A9-%D8%A7%D9%84%D8%AA%D9%81/)
+
+
+### bayern – heidenheim (N/A, Sat, 2 May 2026 05:40:00 -0700)
+
+- **FC Bayern: Aufstellung da! Juwel (18) wieder in der Startelf**: [Link](https://www.bild.de/sport/fussball/fc-bayern-aufstellung-da-juwel-18-wieder-in-der-startelf-69f5e29b6fe2dee7bfb107e4)
+- **Bundesliga live: Entscheidung im Abstiegskampf: Schießen die Bayern Heidenheim runter?**: [Link](https://www.express.de/sport/fussball/bundesliga-live-alle-spiele-des-32-spieltags-im-liveticker-1091029)
+- **BR24 Sport: Heidenheim vor der Brust - PSG im Kopf: "Nicht einfach"**: [Link](https://www.sportschau.de/regional/br/br-heidenheim-vor-der-brust-psg-im-kopf-nicht-einfach-104.html)
+
+
+### nantes – marseille (N/A, Sat, 2 May 2026 05:20:00 -0700)
+
+- **FC Nantes - Olympique de Marseille en direct: Ligue 1 - Football**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/live-fc-nantes-olympique-de-marseille_mtc1609413/live-commentary.shtml)
+- **DIRECT. Nantes-OM (Ligue 1 2025-2026) en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2025-2026/nantes-om-live/676074)
+- **DIRECT. Nantes-OM: les Nantais bousculent les Marseillais, De Lange décisif**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-nantes-om-suivez-le-match-d-ouverture-de-la-32e-journee-de-ligue-1-en-live_LS-202605020051.html)
+
+
 ### ufc (N/A, Sat, 2 May 2026 04:50:00 -0700)
 
 - **Carlos Prates gives hilarious response to Ilia Topuria possibly jumping line to welterweight title fight**: [Link](https://www.mmafighting.com/ufc/485315/carlos-prates-gives-hilarious-response-to-ilia-topuria-possibly-jumping-line-to-welterweight-title-fight)
