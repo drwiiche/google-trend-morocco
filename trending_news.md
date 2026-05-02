@@ -1,3 +1,17 @@
+### سهير زكي (N/A, Sat, 2 May 2026 09:20:00 -0700)
+
+- **وفاة الفنانة المصرية سهير زكي عن 81 عاماً بعد صراع مع المرض**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/05/02/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%87%D9%8A%D8%B1-%D8%B2%D9%83%D9%8A-%D8%B9%D9%86-81-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6)
+- **سر تسمية أم كلثوم لسهير زكي بصاحبة غناء بالجسد**: [Link](https://pls48.net/41201/%D8%B3%D8%B1-%D8%AA%D8%B3%D9%85%D9%8A%D8%A9-%D8%A3%D9%85-%D9%83%D9%84%D8%AB%D9%88%D9%85-%D9%84%D8%B3%D9%87%D9%8A%D8%B1-%D8%B2%D9%83%D9%8A-%D8%A8%D8%B5%D8%A7%D8%AD%D8%A8%D8%A9-%D8%BA%D9%86%D8%A7%D8%A1/)
+- **وفاة الفنانة المصرية سهير زكي**: [Link](https://www.skynewsarabia.com/varieties/1867418-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%87%D9%8A%D8%B1-%D8%B2%D9%83%D9%8A)
+
+
+### gonzalo higuaín (N/A, Sat, 2 May 2026 08:20:00 -0700)
+
+- **La imagen viral de Higuaín que hasta genera sospechas: ¿está realmente así?**: [Link](https://www.marca.com/futbol/real-madrid/2026/05/02/imagen-viral-higuain-genera-sospechas-realmente-asi.html)
+- **Gonzalo Higuaín fue visto con un irreconocible look a 4 años de su retiro**: [Link](https://bolavip.com/ar/futbol-internacional/gonzalo-higuain-fue-visto-con-un-irreconocible-look-a-4-anos-de-su-retiro)
+- **A tres años de su retiro: el sorprendente cambio de look del Pipa Higuaín**: [Link](https://www.cadena3.com/noticia/futbol/a-tres-anos-de-su-retiro-el-sorprendente-cambio-de-look-del-pipa-higuain_546990)
+
+
 ### bayern munich (N/A, Sat, 2 May 2026 08:30:00 -0700)
 
 - **Bayern Munich**: [Link](https://www.flashscore.com/match/football/bayern-munich-nVp0wiqd/heidenheim-KWixEVWi/summary/lineups/?mid=bJ2N9ROM)
