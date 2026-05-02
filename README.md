@@ -1,3 +1,45 @@
+### paris-sg – lorient (N/A, Sat, 2 May 2026 07:20:00 -0700)
+
+- **Safonov, Vitinha et Nuno Mendes au repos, première pour Marin : le PSG très remanié**: [Link](https://www.eurosport.fr/football/ligue-1/2025-2026/ligue-1-matvei-safonov-laisse-au-repos-renato-marin-va-connaitre-sa-premiere-titularisation-dans-les-buts-le-groupe-du-psg_sto23295698/story.shtml)
+- **À la veille de recevoir Lorient, Luis Enrique est toujours admiratif de la performance du PSG contre le Bayern : « Un match de foot unique »**: [Link](https://www.lequipe.fr/Football/Actualites/A-la-veille-de-recevoir-lorient-luis-enrique-est-toujours-admiratif-de-la-performance-du-psg-contre-le-bayern-un-match-de-foot-unique/1672296)
+- **Le groupe du PSG contre Lorient avec de nombreux absents et des titis**: [Link](https://www.footmercato.net/a8084414610138353992-le-groupe-du-psg-contre-lorient-avec-de-nombreux-absents-et-des-titis)
+
+
+### wolves – sunderland (N/A, Sat, 2 May 2026 07:00:00 -0700)
+
+- **Starting XI: Is This The Sunderland Side To Take On Wolves?**: [Link](https://rokerreport.sbnation.com/match-previews/136333/starting-xi-is-this-the-sunderland-side-to-take-on-wolves)
+- **Gallery**: [Link](https://www.wolves.co.uk/news/mens-first-team/20260502-gallery-wolves-vs-sunderland/)
+- **Net a 100% bonus up to £50 with 247Bet ahead of Wolves vs Sunderland**: [Link](https://talksport.com/betting/4224437/wolves-vs-sunderland-247bet-free-bets/)
+
+
+### afrique (N/A, Sat, 2 May 2026 07:00:00 -0700)
+
+- **Le prince héritier Moulay El Hassan préside l’ouverture de la 31ème édition du Salon international de l’édition et du livre**: [Link](https://fr.le360.ma/culture/le-prince-heritier-moulay-el-hassan-preside-louverture-de-la-31e-edition-du-salon-international-de_ZEBR43M2RJCEFFPTZIC7WD5BG4/)
+- **Revue de presse de ce vendredi 1er mai 2026**: [Link](https://fr.hespress.com/471388-revue-de-presse-de-ce-vendredi-1er-mai-2026.html)
+- **Rabat : le SIEL ouvre ses portes au grand public en célébrant l’héritage d’Ibn Battouta**: [Link](https://mobile.telquel.ma/instant-t/2026/05/01/rabat-le-siel-ouvre-ses-portes-au-grand-public-en-celebrant-lheritage-dibn-battouta_1987475/)
+
+
+### محمد وهبي (N/A, Sat, 2 May 2026 06:50:00 -0700)
+
+- **لائحة وهبي لكأس العالم: مفاجآت غير متوقعة.. وأسماء ثقيلة خارج الحسابات**: [Link](https://www.medi1news.com/ar/article/393365.html)
+- **منير الحدادي: المغرب يمكنه الوصول لنهائي كأس العالم والفوز باللقب**: [Link](https://www.aljazeera.net/sport/2026/4/28/%D9%85%D9%86%D9%8A%D8%B1-%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **قبل المونديال.. وهبي يحضر مباراة واتفورد وكوفنتري في "التشامبيونشيب" لمتابعة الثنائي لوزا ومعما**: [Link](https://m.elbotola.com/article/2026-05-02-13-28-900.html)
+
+
+### valencia vs atlético madrid (N/A, Sat, 2 May 2026 06:50:00 -0700)
+
+- **Valencia - Atlético de Madrid, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/valencia-atletico-de-madrid-en-directo-laliga-ea-sports-hoy-en-vivo-f202605-d/)
+- **Valencia - Atlético en directo | Última hora de LALIGA EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valencia-atletico/2026/05/02/01_0101_20260502_191_175-directo.html)
+- **Mestalla acogerá su partido 1.500 en Primera antes del adiós en 2027**: [Link](https://onefootball.com/fr/news/mestalla-acogera-su-partido-1500-en-primera-antes-del-adios-en-2027-42800208)
+
+
+### فالنسيا ضد أتلتيكو مدريد (N/A, Sat, 2 May 2026 06:40:00 -0700)
+
+- **القنوات الناقلة لمباراة أتلتيكو مدريد ضد فالنسيا اليوم في الدوري الإسباني مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/339097236454569-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **شاهد الآن بدون تقطيع القنوات الناقلة لمباراة أتلتيكو مدريد ضد فالنسيا في ديربي ميستايا بالدوري الإسباني**: [Link](https://tawusal.com/138328/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A7%D9%84%D8%A2%D9%86-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D9%82%D8%B7%D9%8A%D8%B9-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84-2/)
+- **موعد مشاهدة بث مباشر مباراة أتلتيكو مدريد وفالنسيا اليوم في الدوري الإسباني عبر القنوات الناقلة**: [Link](https://www.cairo24.com/2417109)
+
+
 ### valence – atlético madrid (N/A, Sat, 2 May 2026 06:30:00 -0700)
 
 - **Atlético Madrid affronte Valence avec une formation d'urgence**: [Link](https://www.ysscores.com/fr/news/13956340/Atl%C3%A9tico-Madrid-affronte-Valence-avec-une-formation-d'urgence)
