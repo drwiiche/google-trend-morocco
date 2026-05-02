@@ -1,3 +1,24 @@
+### ufc (N/A, Sat, 2 May 2026 04:50:00 -0700)
+
+- **Carlos Prates gives hilarious response to Ilia Topuria possibly jumping line to welterweight title fight**: [Link](https://www.mmafighting.com/ufc/485315/carlos-prates-gives-hilarious-response-to-ilia-topuria-possibly-jumping-line-to-welterweight-title-fight)
+- **Jack Della Maddalena Faces Carlos Prates in High-Stakes Perth Return**: [Link](https://streamlinefeed.co.ke/news/jack-della-maddalena-faces-carlos-prates-in-high-stakes-perth-return)
+- **UFC Fight Night Perth Austrailia predictions: Picks, best bets for full card**: [Link](https://news.inbox.eu/15075ug-ufc-fight-night-perth-austrailia-predictions-picks-best-bets-for-full-card?language=en)
+
+
+### preston north end – southampton (N/A, Sat, 2 May 2026 04:30:00 -0700)
+
+- **Preston North End vs Southampton early team and injury news as 4 out and 8 doubts**: [Link](https://www.lep.co.uk/sport/football/preston-north-end/preston-vs-southampton-team-news-injury-north-end-pnefc-saints-8457331)
+- **Hecky 'looking forward' to Saints finale**: [Link](https://www.pnefc.net/news/2026/may/01/hecky--looking-forward--to-saints-finale/)
+- **Saints predicted team to face Preston on final day of Championship season**: [Link](https://www.dailyecho.co.uk/sport/26071473.southampton-fc-predicted-lineup-vs-preston-championship/)
+
+
+### villarreal – levante (N/A, Sat, 2 May 2026 04:20:00 -0700)
+
+- **Villarreal CF – Levante UD : batalla en la Comunitat**: [Link](https://onefootball.com/en/news/villarreal-cf-levante-ud-batalla-en-la-comunitat-42800925)
+- **Derbi de Champions o salvación**: [Link](https://as.com/futbol/primera/derbi-de-champions-o-salvacion-f202605-n/)
+- **La previa del Villarreal-Levante | El Submarino, a un punto de cantar por sexta vez: "Som de Champions League"**: [Link](https://www.elperiodicomediterraneo.com/villarreal-cf/2026/05/02/previa-villarreal-levante-submarino-punto-129752922.html)
+
+
 ### immobilier (N/A, Sat, 2 May 2026 02:00:00 -0700)
 
 - **Vingt-quatre logements verront le jour : un nouveau projet immobilier aux portes du Mans**: [Link](https://lemans.maville.com/actu/actudet_-vingt-quatre-logements-verront-le-jour-un-nouveau-projet-immobilier-aux-portes-du-mans-_dep-7302693_actu.Htm)
