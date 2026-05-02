@@ -1,3 +1,36 @@
+### ياسين بونو (N/A, Sat, 2 May 2026 14:50:00 -0700)
+
+- **رغم ثلاثية الحزم.. ياسين بونو يفضح إنزاجي ونجوم الهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%B2%D9%85--%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D9%81%D8%B6%D8%AD-%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt97a0e6df92eda70d)
+- **بونو يتألق ب"كلين شيت" رقم 12 ورجل المباراة**: [Link](https://www.almountakhab.com/node/13225084)
+- **" القحطاني" يعلق على تصرف لحارس الهلال بونو مع لاعب الحزم**: [Link](https://sport.al-marsd.com/article/261968/%D8%A2%D8%AE%D8%B1-%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D8%A7%D9%84%D9%82%D8%AD%D8%B7%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%AA%D8%B5%D8%B1%D9%81-%D9%84%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A8%D9%88%D9%86%D9%88-%D9%85%D8%B9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%AD%D8%B2%D9%85)
+
+
+### أوساسونا ضد برشلونة (N/A, Sat, 2 May 2026 14:20:00 -0700)
+
+- **ثغرات قاتلة للأحلام.. انتصارات برشلونة لا تحجب مخاطر المستقبل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D8%BA%D8%B1%D8%A7%D8%AA-%D9%82%D8%A7%D8%AA%D9%84%D8%A9-%D9%84%D9%84%D8%A7%D9%94%D8%AD%D9%84%D8%A7%D9%85--%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7-%D8%AA%D8%AD%D8%AC%D8%A8-%D9%85%D8%AE%D8%A7%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84/blt9320f8436532bab0)
+- **مباشر مباراة برشلونة ضد أوساسونا في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/5/2/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%88%D8%B3%D8%A7%D8%B3%D9%88%D9%86%D8%A7-%D9%81%D9%8A-3)
+- **برشلونة يحسم مواجهة أوساسونا (2-1) ويقترب خطوة كبيرة من التتويج بالليغا**: [Link](https://m.elbotola.com/article/2026-05-02-20-59-847.html)
+
+
+### osasuna - barcelona (N/A, Sat, 2 May 2026 14:20:00 -0700)
+
+- **Osasuna - Barcelona hoy, en directo: última hora de la LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/osasuna-barcelona-hoy-en-directo-ultima-hora-de-la-laliga-ea-sports-en-vivo-f202605-d/)
+- **El Barça quiere pasillo en el Clásico**: [Link](https://www.marca.com/futbol/primera-division/cronica/2026/05/02/barca-quiere-pasillo-clasico.html)
+- **Osasuna - Barcelona: resumen, resultado y goles del partido de LaLiga**: [Link](https://www.sport.es/es/noticias/barca/osasuna-barcelona-directo-laliga-129775481)
+
+
+### tourisme (N/A, Sat, 2 May 2026 14:20:00 -0700)
+
+- **Le Maroc engrange 31 milliards de dirhams de recettes au premier trimestre 2026**: [Link](https://ledesk.ma/encontinu/le-maroc-engrange-31-milliards-de-dirhams-de-recettes-au-premier-trimestre-2026/)
+- **Tourisme : 31 MMDH de recettes voyages au T1-2026**: [Link](https://fr.hespress.com/471802-tourisme-31-mmdh-de-recettes-voyages-au-t1-2026.html)
+- **Tourisme : «Go Siyaha» accélère, l’emploi et l’offre en nette progression**: [Link](https://lematin.ma/economie/tourisme-go-siyaha-accelere-lemploi-et-loffre-en-nette-progression/343462)
+
+
+### loto (N/A, Sat, 2 May 2026 14:10:00 -0700)
+
+
+
+
 ### سوق السمك (N/A, Sat, 2 May 2026 14:20:00 -0700)
 
 - **انخفاض أسعار السردين بالمغرب بعد موجة الغلاء**: [Link](https://hnews.ma/104969/)
