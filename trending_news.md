@@ -1,3 +1,24 @@
+### easyjet (N/A, Fri, 1 May 2026 23:50:00 -0700)
+
+- **‘Nightmare’ queues and missed flights: a turbulent start to EU entry-exit system | Airline industry**: [Link](https://www.theguardian.com/business/2026/apr/30/eu-entry-exit-system-ees-queues-missed-flights-readers)
+- **easyJet Alert: What You Need to Know Before Traveling to Spain, France, and Greece in 2026**: [Link](https://www.travelandtourworld.com/news/article/easyjet-alert-what-you-need-to-know-before-traveling-to-spain-france-and-greece-in-2026/)
+- **British travellers face EES frontier roulette this summer**: [Link](https://www.independent.co.uk/travel/news-and-advice/eu-entry-exit-system-british-travellers-frontier-roulette-b2968615.html)
+
+
+### dakhla atlantique (N/A, Fri, 1 May 2026 21:00:00 -0700)
+
+- **Voici où en sont les travaux de construction du port Dakhla Atlantique**: [Link](https://fr.le360.ma/economie/voici-ou-en-sont-les-travaux-de-construction-du-port-dakhla-atlantique_2AOKIL7XXZBBNLR72SDBV4B67A/)
+- **Les participants à la 3ème édition de l'AUSACO en visite au chantier du port Dakhla Atlantique**: [Link](https://www.mapexpress.ma/actualite/economie-et-finance/les-participants-3eme-edition-lausaco-en-visite-au-chantier-du-port-dakhla-atlantique/)
+- **Chantier du port Dakhla Atlantique: Journée de sensibilisation à la santé mentale et à la sécurité au travail**: [Link](https://www.mapexpress.ma/actualite/societe-et-regions/chantier-du-port-dakhla-atlantique-journee-sensibilisation-sante-mentale-securite-au-travail/)
+
+
+### walid regragui real madrid (N/A, Fri, 1 May 2026 12:30:00 -0700)
+
+- **Walid Regragui dans le viseur du Real Madrid? Le vrai du faux**: [Link](https://sport.le360.ma/football/liga/walid-regragui-dans-le-viseur-du-real-madrid-le-vrai-du-faux_7GTMYF5QXZBEVKQRLMVCBX7HCA/)
+- **Real Madrid : L'étonnante rumeur Walid Regragui pour remplacer Alvaro Arbeloa**: [Link](https://www.90min.com/fr/real-madrid-l-etonnante-rumeur-walid-regragui-pour-remplacer-alvaro-arbeloa)
+- **Walid Regragui dans le viseur du Real Madrid ? La Toile s’enflamme**: [Link](https://www.lesiteinfo.com/sport/672108-walid-regragui-dans-le-viseur-du-real-madrid-la-toile-senflamme.html)
+
+
 ### consulat (N/A, Fri, 1 May 2026 23:30:00 -0700)
 
 - **Casablanca : les États-Unis inaugurent leur nouveau consulat à CFC**: [Link](https://ledesk.ma/2026/05/01/casablanca-les-etats-unis-inaugurent-leur-nouveau-consulat-a-cfc/)
