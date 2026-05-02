@@ -1,3 +1,52 @@
+### gta 6 (N/A, Sat, 2 May 2026 13:10:00 -0700)
+
+- **Take-Two CEO Addresses Grand Theft Auto 6 Price, and the Possibility for More L.A. Noire**: [Link](https://www.ign.com/articles/take-two-ceo-addresses-grand-theft-auto-6-price-and-the-possibility-for-more-la-noire)
+- **No Product Placement Plans for GTA 6, Says Take-Two**: [Link](https://insider-gaming.com/no-product-placement-plans-for-gta-6-says-take-two/)
+- **Oh God, There's A Weird New GTA 6 Trailer 3 Theory That Points To May 15**: [Link](https://www.thegamer.com/gta-6-trailer-3-theory-license-plate-may-15/)
+
+
+### ألافيس ضد أتلتيك بيلباو (N/A, Sat, 2 May 2026 13:10:00 -0700)
+
+- **نيكو ويليامز يقود بلباو للفوز برباعية على ألافيس بالدوري الإسباني**: [Link](https://gate.ahram.org.eg/News/5607739.aspx)
+- **مواجهة متوازنة في ميندزوروتزا بين ألافيس بلباو**: [Link](https://www.maspero.eg/sport/2026/05/02/950492/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D8%A9-%D9%81%D9%8A-%D9%85%D9%8A%D9%86%D8%AF%D8%B2%D9%88%D8%B1%D9%88%D8%AA%D8%B2%D8%A7-%D8%A8%D9%8A%D9%86-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D8%A8%D9%84%D8%A8%D8%A7%D9%88)
+- **بلباو يحقق ريمونتادا مذهلة ويقلب الطاولة على ألافيس في الدوري الإسباني**: [Link](https://mangish.net/%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%8A%D8%AD%D9%82%D9%82-%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D9%85%D8%B0%D9%87%D9%84%D8%A9-%D9%88%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7/)
+
+
+### آرسنال ضد فولهام (N/A, Sat, 2 May 2026 12:50:00 -0700)
+
+- **فيديو: بعد عِقد كامل.. جيوكيريس يزيل الحرج عن مهاجمي آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B9%D8%AF-%D8%B9%D9%90%D9%82%D8%AF-%D9%83%D8%A7%D9%85%D9%84--%D8%AC%D9%8A%D9%88%D9%83%D9%8A%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D8%AD%D8%B1%D8%AC-%D8%B9%D9%86-%D9%85%D9%87%D8%A7%D8%AC%D9%85%D9%8A-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt7bee9bf4dfe798c5)
+- **بالفيديو.. غيوكيريس وساكا يقودان أرسنال لانتصار كبير في ديربي لندني**: [Link](https://www.aljazeera.net/sport/2026/5/2/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **آرسنال يحقق فوزاً كبيراً أمام فولهام**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D8%A7-%D9%83%D8%A8%D9%8A%D8%B1%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-2026-05-02)
+
+
+### maroc (N/A, Sat, 2 May 2026 12:50:00 -0700)
+
+- **La FRMF soutient la candidature de Gianni Infantino à la présidence de la FIFA**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D8%AF%D8%B9%D9%85-%D8%AA%D8%B1%D8%B4%D9%8A%D8%AD-%D8%A7%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%88-%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7)
+- **FIFA : le Maroc désigné hôte du Congrès électif de 2027**: [Link](https://www.leconomiste.com/flash-infos/fifa-le-maroc-designe-hote-du-congres-electif-de-2027/)
+- **La FRMF officialise la tenue au Maroc du 77e congrès de la FIFA**: [Link](https://medias24.com/2026/05/01/la-frmf-officialise-la-tenue-au-maroc-du-77e-congres-de-la-fifa-1669623/)
+
+
+### fcb (N/A, Sat, 2 May 2026 12:40:00 -0700)
+
+- **Barça 5-5 Peñíscola: Two points dropped**: [Link](https://www.fcbarcelona.com/en/futsal/first-team/news/4497145/barca-5-5-peniscola-two-points-dropped)
+- **Marcus Rashford: Newcastle hunt to sign Man United star dubbed ‘ambitious’**: [Link](https://www.footballinsider247.com/marcus-rashford-newcastle-hunt-to-sign-man-united-star-dubbed-ambitious/)
+- **FC Bayern Munich News and Rumours – "I love this player": FCB identified as a far more affordable option than Anthony Gordon**: [Link](https://www.goal.com/en/lists/fc-bayern-munich-news-and-rumours-i-love-this-player-fcb-identified-as-a-far-more-affordable-option-than-anthony-gordon/blt849c6419957dc0cf)
+
+
+### المغرب الفاسي (N/A, Sat, 2 May 2026 12:30:00 -0700)
+
+- **المغرب الفاسي يطرح تذاكر قمة الرجاء للبيع**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%84%D9%84-437170.html)
+- **“فاتال تايغرز” ينتقد منع الجماهير من التنقل إلى مكناس**: [Link](https://assabah.ma/921375.html)
+- **المغرب الفاسي يعلن منع تنقل جماهيره لمكناس ويؤكد استرجاع أو تعويض التذاكر**: [Link](https://m.elbotola.com/article/2026-05-01-22-04-953.html)
+
+
+### رافينيا (N/A, Sat, 2 May 2026 11:40:00 -0700)
+
+- **محاولات لا تتوقف.. أندية السعودية تغري رافينيا براتب ضخم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D9%84%D8%A7-%D8%AA%D8%AA%D9%88%D9%82%D9%81--%D8%A7%D9%94%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%BA%D8%B1%D9%8A-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D8%A8%D8%B1%D8%A7%D8%AA%D8%A8-%D8%B6%D8%AE%D9%85/blt7d51bc10872b8871)
+- **الصحف الرياضية... النهائي يُحسم في لندن**: [Link](https://addiyar.com/article/2347557-%D8%A7%D9%84%D8%B5%D8%AD%D9%81-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D9%81%D9%8A-%D9%84%D9%86%D8%AF%D9%86)
+- **"المجد قبل المال".. رافينيا يرفض 90 مليون يورو ويتمسك ببرشلونة**: [Link](https://24.ae/article/956863/-%D8%A7%D9%84%D9%85%D8%AC%D8%AF-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D8%A7%D9%84-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%8A%D8%B1%D9%81%D8%B6-90-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%88%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
 ### barca vs (N/A, Sat, 2 May 2026 12:10:00 -0700)
 
 - **Osasuna - Barcelona hoy, en directo: última hora de la LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/osasuna-barcelona-hoy-en-directo-ultima-hora-de-la-laliga-ea-sports-en-vivo-f202605-d/)
