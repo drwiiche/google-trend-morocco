@@ -1,3 +1,10 @@
+### laliga (N/A, Sat, 2 May 2026 14:00:00 -0700)
+
+- **Espanyol vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cy42y2dpk3yt)
+- **Real Madrid Complete Final Training Session Ahead of Espanyol Clash**: [Link](https://www.managingmadrid.com/real-madrid-cf-news/107245/real-madrid-complete-final-training-session-ahead-of-espanyol-clash)
+- **Espanyol vs Real Madrid: LaLiga preview and odds**: [Link](https://www.sofascore.com/news/espanyol-vs-real-madrid-laliga-preview-and-odds)
+
+
 ### cod meknès – mas fès (N/A, Sat, 2 May 2026 13:50:00 -0700)
 
 - **Botola : Choc sans but entre le COD Meknès et le Maghreb Fès**: [Link](https://fr.hespress.com/471935-botola-choc-sans-but-entre-le-cod-meknes-et-le-maghreb-fes.html)
