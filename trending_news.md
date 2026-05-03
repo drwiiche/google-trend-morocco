@@ -1,3 +1,17 @@
+### هاني شاكر (N/A, Sun, 3 May 2026 05:30:00 -0700)
+
+- **رحيل "أمير الغناء".. وفاة هاني شاكر بعد صراع مع المرض**: [Link](https://www.skynewsarabia.com/varieties/1867509-%D8%B1%D8%AD%D9%8A%D9%84-%D8%A3%D9%85%D9%8A%D8%B1-%D8%A7%D9%84%D8%BA%D9%86%D8%A7%D8%A1-%D9%88%D9%81%D8%A7%D8%A9-%D9%87%D8%A7%D9%86%D9%8A-%D8%B4%D8%A7%D9%83%D8%B1-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6)
+- **الحساب الرسمي للمطرب هاني شاكر على "فيسبوك" يطلب الدعاء له**: [Link](https://www.masrawy.com/arts/zoom/details/2026/5/1/2981085/%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D9%84%D9%85%D8%B7%D8%B1%D8%A8-%D9%87%D8%A7%D9%86%D9%8A-%D8%B4%D8%A7%D9%83%D8%B1-%D8%B9%D9%84%D9%89-%D9%81%D9%8A%D8%B3%D8%A8%D9%88%D9%83-%D9%8A%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%AF%D8%B9%D8%A7%D8%A1-%D9%84%D9%87-)
+- **وداعا أمير الغناء العربي.. موعد ومكان عزاء الفنان هاني شاكر**: [Link](https://al-ain.com/article/hani-shaker-funeral-details-egypt)
+
+
+### عبد المجيد تبون (N/A, Sun, 3 May 2026 04:50:00 -0700)
+
+- **بالفيديو.. اتحاد العاصمة يحسم "كلاسيكو النهائي" ويتوج بكأس الجزائر**: [Link](https://www.aljazeera.net/sport/2026/4/30/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **فضيحة نهائي كأس الجزائر.. هجوم حاد من المدرجات على تبون وحاشيته: تبون مزور جابوه العسكر**: [Link](https://ar.hibapress.com/details-722212.html)
+- **"أبوظبي الرياضي" يطلق دوري البادل 2026**: [Link](https://24.ae/article/956874/%D9%82%D8%A8%D9%84-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%85%D8%A9-%D8%A8%D8%B7%D9%84%D8%A7%D9%8B-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+
+
 ### coupe d'afrique des nations de football (N/A, Sun, 3 May 2026 02:40:00 -0700)
 
 - **EN ROUTE VERS L’AFRIQUE DE L’EST ! La CAF annonce les dates du match d’ouverture, de la finale et des éliminatoires de la TotalEnergies CAF Coupe d’Afrique des Nations PAMOJA 2027**: [Link](https://www.cafonline.com/fr/can2025/infos/en-route-vers-l-afrique-de-l-est-la-caf-annonce-les-dates-du-match-d-ouverture-de-la-finale-et-des-eliminatoires-de-la-totalenergies-caf-coupe-d-afrique-des-nations-pamoja-2027/)
