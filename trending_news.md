@@ -1,3 +1,38 @@
+### manchester united – liverpool (N/A, Sun, 3 May 2026 07:40:00 -0700)
+
+- **Manchester United vs Liverpool LIVE: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwy2421dj2vt)
+- **Manchester United and Liverpool Clash Highlights Massive Global Stakes**: [Link](https://streamlinefeed.co.ke/news/manchester-united-liverpool-clash-highlights-global-stakes)
+- **Man Utd vs Liverpool: Get £50 in football free bets with Betfred, plus 12/1 Bet Builder tips**: [Link](https://www.thesun.co.uk/sport/38962967/man-utd-liverpool-betfred-free-bets-tips/)
+
+
+### celta vigo – elche (N/A, Sun, 3 May 2026 07:20:00 -0700)
+
+- **Celta 3 - 1 Elche: resumen, resultado y goles**: [Link](https://as.com/futbol/primera/celta-elche-en-directo-laliga-ea-sports-hoy-en-vivo-f202605-d/)
+- **15:00 | 03 MAY 2026 | TIEMPO DE JUEGO**: [Link](https://www.cope.es/programas/tiempo-de-juego/horas-completas/15-00-03-may-2026-juego-20260503_3356693.html)
+- **Duelo de rachas y objetivos en Balaídos**: [Link](https://www.mundodeportivo.com/futbol/laliga/20260503/1004178094/duelo-rachas-objetivos-balaidos.html)
+
+
+### hani shaker (N/A, Sun, 3 May 2026 07:20:00 -0700)
+
+- **Hany Shaker Dies At 73 After Recent Health Crisis | NileFM | EGYPT'S#1 FOR HIT MUSIC**: [Link](https://nilefm.com/news/article/13634/hany-shaker-dies-at-73-after-recent-health-crisis)
+- **Egyptian singer Hani Shaker passes away in Paris after a battle with illness**: [Link](https://www.khaleejtimes.com/entertainment/egyptian-singer-hani-shaker-passes-away-illness)
+- **Hani Shaker, the Prince of Arab Singing, has passed away after a battle with illness.**: [Link](https://www.voiceofemirates.com/en/lifestyle/2026/05/03/hani-shaker-the-prince-of-arab-singing-has-passed-away-after-a-battle-with-illness/)
+
+
+### liverpool (N/A, Sun, 3 May 2026 07:10:00 -0700)
+
+- **Sir Alex Ferguson suffers health scare and taken into ambulance at Old Trafford**: [Link](https://www.thesun.co.uk/sport/39001917/alex-ferguson-hospital-man-utd-medical-emergency/)
+- **Sir Alex Ferguson taken to hospital ahead of Manchester United vs Liverpool**: [Link](https://www.manchestereveningnews.co.uk/sport/football/sir-alex-ferguson-taken-hospital-33881270)
+- **Sir Alex Ferguson: Man Utd legend taken to hospital after feeling unwell ahead of his former side's Premier League game with Liverpool**: [Link](https://www.skysports.com/football/news/11095/13539697/sir-alex-ferguson-man-utd-legend-taken-to-hospital-after-feeling-unwell-ahead-of-his-former-sides-premier-league-game-with-liverpool)
+
+
+### narges mohammadi (N/A, Sun, 3 May 2026 06:30:00 -0700)
+
+- **Concern for jailed Iranian Nobel laureate as family say health deteriorating**: [Link](https://www.bbc.com/news/articles/c362pd8epw9o)
+- **Video highlights of 61st Mason Invitational on Saturday, May 2, 2026**: [Link](https://www.aol.com/news/video-highlights-61st-mason-invitational-215657235.html?format=embed&region=US&lang=en-US&site=aolnews&player_autoplay=false)
+- **Narges Mohammadi’s Critical Condition Exposes Judicial Obstruction and Denial of Medical Care in Iran**: [Link](https://hanahr.org/en/news/narges-mohammadis-critical-condition-exposes-judicial-obstruction-and-denial-of-medical-care-in-iran/)
+
+
 ### bim (N/A, Sun, 3 May 2026 06:50:00 -0700)
 
 - **BİM 5-6-8 Mayıs 2026 kataloğu çıktı! İşte listede yer alan o sürpriz indirimler…**: [Link](https://www.muglayenigun.com/bim-5-6-8-mayis-2026-katalogu-cikti-iste-listede-yer-alan-o-surpriz-indirimler/)
