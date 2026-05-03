@@ -1,3 +1,45 @@
+### wac (N/A, Sun, 3 May 2026 09:30:00 -0700)
+
+- **Texans fall in walk-off regular season finale at California Baptist**: [Link](https://tarletonsports.com/news/2026/5/2/softball-texans-fall-in-walk-off-regular-season-finale-at-california-baptist.aspx)
+- **Tarleton State earns 2-seed in WAC Softball Tournament, starts postseason run Thursday**: [Link](https://tarletonsports.com/news/2026/5/2/tarleton-state-earns-2-seed-in-wac-softball-tournament-starts-postseason-run-thursday.aspx)
+- **Texans split doubleheader at CBU, clinch bye and set up WAC title showdown**: [Link](https://tarletonsports.com/news/2026/5/2/softball-texans-split-doubleheader-at-cbu-clinch-bye-and-set-up-wac-title-showdown.aspx)
+
+
+### ليفربول (N/A, Sun, 3 May 2026 09:20:00 -0700)
+
+- **بالفيديو: شياطين مانشستر تخمد انتفاضة ليفربول بفوز دراماتيكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B4%D9%8A%D8%A7%D8%B7%D9%8A%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%AA%D8%AE%D9%85%D8%AF-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A8%D9%81%D9%88%D8%B2-%D8%AF%D8%B1%D8%A7%D9%85%D8%A7%D8%AA%D9%8A%D9%83%D9%8A/blt828e15d3bb0738b9)
+- **قبل الكلاسيكو ضد مانشستر يوناتيد.. سلوت ينهي خلافه مع صلاح بتصريح مؤثر**: [Link](https://www.aljazeera.net/sport/2026/5/2/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D8%AA%D9%8A%D8%AF-%D8%B3%D9%84%D9%88%D8%AA)
+- **مدرب مانشستر يونايتد يطلق هذا الوصف على محمد صلاح**: [Link](https://arabic.cnn.com/sport/article/2026/05/03/michael-carrick-mohamed-salah-liverpool-manchester-united)
+
+
+### madrid open (N/A, Sun, 3 May 2026 09:20:00 -0700)
+
+- **¿A qué hora es la final del Madrid Open hoy? TV, horario, dónde y cómo ver el Sinner - Zverev**: [Link](https://as.com/tenis/a-que-hora-es-la-final-del-madrid-open-hoy-tv-horario-donde-y-como-ver-el-sinner-zverev-f202605-n/)
+- **Directo | Jannik Sinner - Alexander Zverev**: [Link](https://www.elnortedecastilla.es/deportes/tenis/masters/directo-jannik-sinner-alexander-zverev-20260503163732-dirc.html)
+- **¿Cuál es el premio que recibe el campeón en Madrid?**: [Link](https://www.atptour.com/es/news/madrid-2026-champion-prize-money)
+
+
+### نبيل درار (N/A, Sun, 3 May 2026 09:00:00 -0700)
+
+- **نبيل درار يمثل المنتخب البلجيكي لكرة القدم المصغرة في كأس أوروبا 2026**: [Link](https://m.elbotola.com/article/2026-05-03-12-52-354.html)
+- **درار يعلن تمثيل منتخب بلجيكا**: [Link](https://www.radiomars.ma/%D8%AF%D8%B1%D8%A7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%85%D8%AB%D9%8A%D9%84-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7/)
+- **نبيل درار ينضم لمنتخب بلجيكا في “يورو” الميني فوت 2026**: [Link](https://24saa.com/%D9%86%D8%A8%D9%8A%D9%84-%D8%AF%D8%B1%D8%A7%D8%B1-%D9%8A%D9%86%D8%B6%D9%85-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%81%D9%8A-%D9%8A%D9%88%D8%B1%D9%88/)
+
+
+### sassuolo – ac milan (N/A, Sun, 3 May 2026 09:00:00 -0700)
+
+- **Why Tomori was sent off after 24 minutes of Sassuolo vs. Milan**: [Link](https://football-italia.net/why-tomori-was-sent-off-sassuolo-vs-milan/)
+- **🚨Leao and Nkunku start against Sassuolo**: [Link](https://sports.yahoo.com/articles/leao-nkunku-start-against-sassuolo-115900209.html)
+- **✅ Sassuolo v Milan teams: Jashari for Modric, Pulisic out! Leao, Turati 👀**: [Link](https://onefootball.com/de/news/sassuolo-v-milan-teams-jashari-for-modric-pulisic-out-leao-turati-42806867)
+
+
+### manchester united (N/A, Sun, 3 May 2026 07:40:00 -0700)
+
+- **Ferguson taken to hospital as precaution before Man Utd v Liverpool**: [Link](https://www.bbc.com/sport/football/articles/c0r2nvpvylxo)
+- **Sky Sports interrupts Man Utd-Liverpool coverage to give Sir Alex Ferguson update**: [Link](https://www.liverpool.com/liverpool-fc-news/features/sky-sports-interrupts-man-utd-33881635)
+- **Sir Alex Ferguson taken to hospital from Old Trafford after feeling unwell before Man Utd vs Liverpool kick-off**: [Link](https://ca.sports.yahoo.com/news/sir-alex-ferguson-taken-hospital-131125578.html)
+
+
 ### كووورة (N/A, Sun, 3 May 2026 08:30:00 -0700)
 
 - **منتخب أفريقي يطلب ود الركراكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%8A%D8%B7%D9%84%D8%A8-%D9%88%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A/blte9065e41ddcdfcbe)
