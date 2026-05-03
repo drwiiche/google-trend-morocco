@@ -1,3 +1,31 @@
+### bim (N/A, Sun, 3 May 2026 06:50:00 -0700)
+
+- **BİM 5-6-8 Mayıs 2026 kataloğu çıktı! İşte listede yer alan o sürpriz indirimler…**: [Link](https://www.muglayenigun.com/bim-5-6-8-mayis-2026-katalogu-cikti-iste-listede-yer-alan-o-surpriz-indirimler/)
+- **1 Mayıs BİM aktüel kataloğu: BİM'de bu cuma neler var? Aktüel ürünler raflarda**: [Link](https://www.gzt.com/gundem/bim-1-mayis-2026-aktuel-urunler-katalogu-bimde-bu-hafta-cuma-neler-var-1-mayis-bim-aktuel-katalogundaki-indirimli-urunler-ve-fiyatlari-4218784)
+- **BİM'den Ortalığı Kasıp Kavuracak İndirimler! 8 Mayıs Kataloğunda Yok Yok!**: [Link](https://www.karabukderinhaber.com/8-mayis-bim-aktuel-urunleri-raflarda)
+
+
+### المغرب (N/A, Sun, 3 May 2026 06:40:00 -0700)
+
+- **مارسيلو: ميسي أصعب من واجهته.. وإنجاز المغرب ليس معجزة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%88-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A7%D9%94%D8%B5%D8%B9%D8%A8-%D9%85%D9%86-%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D9%87--%D9%88%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%8A%D8%B3-%D9%85%D8%B9%D8%AC%D8%B2%D8%A9/bltf3f228db90ba9d43)
+- **مارسيلو: "المغرب لم يصنع المعجزة في المونديال الماضي لأنه حقق نجاحات باهرة لسنوات عديدة"**: [Link](https://m.elbotola.com/article/2026-05-02-20-27-613.html)
+- **منير الحدادي: المغرب يمكنه الوصول لنهائي كأس العالم والفوز باللقب**: [Link](https://www.aljazeera.net/sport/2026/4/28/%D9%85%D9%86%D9%8A%D8%B1-%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+
+
+### hany shaker (N/A, Sun, 3 May 2026 06:30:00 -0700)
+
+- **Hany Shaker, ‘Prince of Arab Song’, dies aged 74 in Paris**: [Link](https://www.thenationalnews.com/arts-culture/2026/05/03/hany-shaker-prince-of-arab-song-dies-aged-74-in-paris/)
+- **Egyptian singer Hani Shaker passes away in Paris after a battle with illness**: [Link](https://www.khaleejtimes.com/entertainment/egyptian-singer-hani-shaker-passes-away-illness)
+- **Egyptian Singer Hany Shaker Dies**: [Link](https://www.moroccoworldnews.com/2026/05/289703/egyptian-singer-hany-shaker-dies/)
+
+
+### الفنانة سهير زكي (N/A, Sun, 3 May 2026 05:50:00 -0700)
+
+- **وفاة الفنانة المصرية سهير زكي**: [Link](https://www.skynewsarabia.com/varieties/1867418-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%87%D9%8A%D8%B1-%D8%B2%D9%83%D9%8A)
+- **وفاة الفنانة المصرية سهير زكي عن 81 عاماً بعد صراع مع المرض**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/05/02/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%B3%D9%87%D9%8A%D8%B1-%D8%B2%D9%83%D9%8A-%D8%B9%D9%86-81-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6)
+- **سهير زكي... أغضبت أم كلثوم ورقصت لزعماء العالم من البيت الأبيض إلى الاتحاد السوفياتي وشاه إيران**: [Link](https://www.lahamag.com/article/236910-%D8%B3%D9%87%D9%8A%D8%B1-%D8%B2%D9%83%D9%8A-%D8%A3%D8%BA%D8%B6%D8%A8%D8%AA-%D8%A3%D9%85-%D9%83%D9%84%D8%AB%D9%88%D9%85-%D9%88%D8%B1%D9%82%D8%B5%D8%AA-%D9%84%D8%B2%D8%B9%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%B2%D8%B9%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF)
+
+
 ### هاني شاكر (N/A, Sun, 3 May 2026 05:30:00 -0700)
 
 - **رحيل "أمير الغناء".. وفاة هاني شاكر بعد صراع مع المرض**: [Link](https://www.skynewsarabia.com/varieties/1867509-%D8%B1%D8%AD%D9%8A%D9%84-%D8%A3%D9%85%D9%8A%D8%B1-%D8%A7%D9%84%D8%BA%D9%86%D8%A7%D8%A1-%D9%88%D9%81%D8%A7%D8%A9-%D9%87%D8%A7%D9%86%D9%8A-%D8%B4%D8%A7%D9%83%D8%B1-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6)
