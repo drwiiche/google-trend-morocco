@@ -1,3 +1,17 @@
+### كووورة (N/A, Sun, 3 May 2026 08:30:00 -0700)
+
+- **منتخب أفريقي يطلب ود الركراكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%8A%D8%B7%D9%84%D8%A8-%D9%88%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A/blte9065e41ddcdfcbe)
+- **فريق سعودي كبير وضع عينه على مروض الأسود السابق**: [Link](https://www.almountakhab.com/node/13225100)
+- **أوليفر كان يشكك.. كلوب سيصطدم بنجوم ريال مدريد**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D9%88%D9%84%D9%8A%D9%81%D8%B1-%D9%83%D8%A7%D9%86-%D9%8A%D8%B4%D9%83%D9%83-%D9%83%D9%84%D9%88%D8%A8-%D8%B3%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D9%86%D8%AC%D9%88%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+
+
+### sinner (N/A, Sun, 3 May 2026 08:20:00 -0700)
+
+- **Sinner vs. Zverev: Relive rivalry through video**: [Link](https://www.atptour.com/en/news/sinner-zverev-madrid-2026-past-atp-meetings-video)
+- **Licensable picture: Mutua Madrid Open - Day Fourteen**: [Link](https://www.reutersconnect.com/item/mutua-madrid-open-day-fourteen/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBCU05aVTM)
+- **What Alexander Blockx learned from playing Alexander Zverev in the Madrid Open**: [Link](https://sports.yahoo.com/articles/alexander-blockx-learned-playing-alexander-172500387.html)
+
+
 ### manchester united – liverpool (N/A, Sun, 3 May 2026 07:40:00 -0700)
 
 - **Manchester United vs Liverpool LIVE: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwy2421dj2vt)
