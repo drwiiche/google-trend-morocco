@@ -1,3 +1,52 @@
+### botola 2 (N/A, Sun, 3 May 2026 10:00:00 -0700)
+
+- **J23 Botola D2: Samedi, l'avant dernier renverse le dauphin, le leader entre en lice cet après-midi**: [Link](https://lopinion.ma/fr/sport/newsroom/j23-botola-d2-samedi-lavant-dernier-renverse-le-dauphin-le-leader-entre-en-lice-cet-apres-midi_a43877?articleId=6100f1dd-2c7e-4841-b853-603e36fb94ba)
+- **Moghreb Tétouan privé d'un but "régulier" face au Raja Beni Mellal, le club se prépare à protester auprès de la Direction de l'Arbitrage**: [Link](https://m.elbotola.com/fr/article/2026-05-02-21-36-979.html)
+- **Botola Pro D2 « Inwi » (22e journée): Le programme**: [Link](https://mapsport.ma/football/botola-pro-d2-inwi-22e-journee-le-programme-3/)
+
+
+### ترتيبات مانشستر يونايتد – ليفربول (N/A, Sun, 3 May 2026 09:50:00 -0700)
+
+- **بالفيديو: شياطين مانشستر تخمد انتفاضة ليفربول بفوز دراماتيكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B4%D9%8A%D8%A7%D8%B7%D9%8A%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%AA%D8%AE%D9%85%D8%AF-%D8%A7%D9%86%D8%AA%D9%81%D8%A7%D8%B6%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A8%D9%81%D9%88%D8%B2-%D8%AF%D8%B1%D8%A7%D9%85%D8%A7%D8%AA%D9%8A%D9%83%D9%8A/blt828e15d3bb0738b9)
+- **قبل الكلاسيكو ضد مانشستر يوناتيد.. سلوت ينهي خلافه مع صلاح بتصريح مؤثر**: [Link](https://www.aljazeera.net/sport/2026/5/2/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D8%AA%D9%8A%D8%AF-%D8%B3%D9%84%D9%88%D8%AA)
+- **مدرب مانشستر يونايتد يطلق هذا الوصف على محمد صلاح**: [Link](https://arabic.cnn.com/sport/article/2026/05/03/michael-carrick-mohamed-salah-liverpool-manchester-united)
+
+
+### getafe – rayo (N/A, Sun, 3 May 2026 09:50:00 -0700)
+
+- **0-1. Camello adelanta al Rayo Vallecano antes del descanso**: [Link](https://www.infobae.com/espana/agencias/2026/05/03/0-1-camello-adelanta-al-rayo-vallecano-antes-del-descanso/)
+- **Iñigo Pérez: "Me emociona pensar de dónde venimos"**: [Link](https://www.marca.com/futbol/rayo/2026/05/03/inigo-perez-me-emociona-pensar-venimos.html)
+- **Resumen y goles del Sporting vs. Ceuta, jornada 38 de LaLiga Hypermotion**: [Link](https://as.com/futbol/videos/resumen-y-goles-del-sporting-vs-ceuta-jornada-38-de-laliga-hypermotion-f202605-v/)
+
+
+### wydad (N/A, Sun, 3 May 2026 09:50:00 -0700)
+
+- **Le Wydad achève sa préparation pour le match contre la Renaissance Zemamra**: [Link](https://m.elbotola.com/fr/article/2026-05-02-18-38-224.html)
+- **Nahdat Zemamra suspend la vente de billets, le sort des supporters du Wydad en suspens**: [Link](https://m.elbotola.com/fr/article/2026-05-02-13-43-926.html)
+- **Wydad : La liste pour Zemamra dévoilée, avec des retours et des absences notables**: [Link](https://m.elbotola.com/fr/article/2026-05-03-11-56-279.html)
+
+
+### mali (N/A, Sun, 3 May 2026 09:50:00 -0700)
+
+- **Mali attacks spotlight the growing reach of militants across West Africa**: [Link](https://www.reuters.com/graphics/MALI-SECURITY/SAHEL/zgvolldmopd/)
+- **Rebel checkpoints reported around Mali’s capital, northern town seized**: [Link](https://www.aljazeera.com/news/2026/5/1/rebel-checkpoints-reported-mali-capital-town-seized)
+- **Mali probes soldiers over role in Jihadi attacks**: [Link](https://www.dw.com/en/mali-probes-soldiers-over-role-in-jihadi-attacks/a-77018413)
+
+
+### الوداد (N/A, Sun, 3 May 2026 09:50:00 -0700)
+
+- **الزمامرة يعلن توقيف بيع تذاكر الوداد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1740699.html)
+- **أمام نهضة الزمامرة.. الحسم في مصير مشاركة زياش**: [Link](https://www.radiomars.ma/%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D9%87%D8%B6%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D9%81%D9%8A-%D9%85%D8%B5%D9%8A%D8%B1-%D9%85%D8%B4%D8%A7%D8%B1%D9%83/)
+- **"الوينرز" يدعم بنشريفة لإعادة التوهج**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D9%8A%D9%86%D8%B1%D8%B2-%D9%8A%D8%AF%D8%B9%D9%85-%D8%A8%D9%86%D8%B4%D8%B1%D9%8A%D9%81%D8%A9-%D9%84%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AA%D9%88%D9%87%D8%AC-437277.html)
+
+
+### classement manchester united – liverpool (N/A, Sun, 3 May 2026 09:40:00 -0700)
+
+- **Manchester United 3-2 Liverpool, Premier League : résumé du match (03/05/2026)**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2025-2026/manchester-united-liverpool-live/673850)
+- **Liverpool : terrible nouvelle pour Alexander Isak**: [Link](https://www.footmercato.net/a7571298852625698616-liverpool-terrible-nouvelle-pour-alexander-isak)
+- **Revivez Manchester United - Liverpool EN DIRECT - Premier League - 35e journée**: [Link](https://www.eurosport.fr/football/premier-league/2025-2026/live-manchester-united-liverpool_mtc1602496/live-commentary.shtml)
+
+
 ### wac (N/A, Sun, 3 May 2026 09:30:00 -0700)
 
 - **Texans fall in walk-off regular season finale at California Baptist**: [Link](https://tarletonsports.com/news/2026/5/2/softball-texans-fall-in-walk-off-regular-season-finale-at-california-baptist.aspx)
