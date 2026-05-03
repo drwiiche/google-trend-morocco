@@ -1,3 +1,17 @@
+### coupe d'afrique des nations de football (N/A, Sun, 3 May 2026 02:40:00 -0700)
+
+- **EN ROUTE VERS L’AFRIQUE DE L’EST ! La CAF annonce les dates du match d’ouverture, de la finale et des éliminatoires de la TotalEnergies CAF Coupe d’Afrique des Nations PAMOJA 2027**: [Link](https://www.cafonline.com/fr/can2025/infos/en-route-vers-l-afrique-de-l-est-la-caf-annonce-les-dates-du-match-d-ouverture-de-la-finale-et-des-eliminatoires-de-la-totalenergies-caf-coupe-d-afrique-des-nations-pamoja-2027/)
+- **CAN 2027 : Voici les dates officielles**: [Link](https://www.leconomiste.com/flash-infos/can-2027-voici-les-dates-officielles/)
+- **La CAN-2027 aura lieu du 19 juin au 17 juillet**: [Link](https://www.jeuneafrique.com/1793398/politique/la-can-2027-aura-lieu-du-19-juin-au-17-juillet/)
+
+
+### البطولة الاحترافية المغربية (N/A, Sun, 3 May 2026 01:30:00 -0700)
+
+- **عقوبة غير مسبوقة تضرب ديربي الدار البيضاء!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1/bltc98ec11a69059fb0)
+- **حماس في الدوري المغربي لكرة القدم**: [Link](https://www.hespress.com/%D8%AD%D9%85%D8%A7%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-1740385.html)
+- **ديربي الرجاء والوداد يُجرى في صمت المدرجات**: [Link](https://24.ae/article/956866/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%8F%D8%AC%D8%B1%D9%89-%D9%81%D9%8A-%D8%B5%D9%85%D8%AA-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA)
+
+
 ### مدرب (N/A, Sun, 3 May 2026 00:50:00 -0700)
 
 - **الزمالك يرفض معاقبة لاعبيه بعد فوزه الكبير في قمة الدوري**: [Link](https://tawusal.com/139826/%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%B1%D9%81%D8%B6-%D9%85%D8%B9%D8%A7%D9%82%D8%A8%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-%D8%A8%D8%B9%D8%AF-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84/)
