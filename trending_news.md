@@ -1,3 +1,10 @@
+### cod meknès – mas fès (N/A, Sat, 2 May 2026 13:50:00 -0700)
+
+- **Botola : Choc sans but entre le COD Meknès et le Maghreb Fès**: [Link](https://fr.hespress.com/471935-botola-choc-sans-but-entre-le-cod-meknes-et-le-maghreb-fes.html)
+- **Botola Pro D1 «Inwi»: MAS-CODM en tête d’affiche de la 18e journée (programme)**: [Link](https://h24info.ma/sport/football/botola-pro-d1-inwi-mas-codm-en-tete-daffiche-de-la-18e-journee-programme/)
+- **Botola Pro: accroché à Meknès, le MAS préserve son invincibilité et la première place**: [Link](https://sport.le360.ma/football/botola/botola-pro-accroche-a-meknes-le-mas-preserve-son-invincibilite-et-la-premiere-place_VPWL3RGLQ5GTJKSFLOQM5FJETQ/)
+
+
 ### inter miami – orlando city (N/A, Sat, 2 May 2026 19:00:00 -0700)
 
 - **Inter Miami vs Orlando City Prediction**: [Link](https://www.betshoot.com/football/19609534-Inter-Miami-vs-Orlando-City-prediction/)
