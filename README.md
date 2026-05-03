@@ -1,3 +1,10 @@
+### inter miami – orlando city (N/A, Sat, 2 May 2026 19:00:00 -0700)
+
+- **Inter Miami vs Orlando City Prediction**: [Link](https://www.betshoot.com/football/19609534-Inter-Miami-vs-Orlando-City-prediction/)
+- **MLS Orlando Inter Miami Soccer**: [Link](https://www.couriernews.com/sports/mls-orlando-inter-miami-soccer/image_26f12edf-698e-58d0-9d8f-cfe2676865a7.html)
+- **Miami 3-4 Orlando (May 2, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/761587)
+
+
 ### roi du maroc (N/A, Sat, 2 May 2026 16:20:00 -0700)
 
 - **Le roi du Maroc nomme son fils le prince héritier coordinateur à l'état-major général de l'armée**: [Link](https://www.lefigaro.fr/flash-actu/le-roi-du-maroc-nomme-son-fils-le-prince-heritier-coordinateur-a-l-etat-major-general-de-l-armee-20260502)
