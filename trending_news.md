@@ -1,3 +1,24 @@
+### مدرب (N/A, Sun, 3 May 2026 00:50:00 -0700)
+
+- **الزمالك يرفض معاقبة لاعبيه بعد فوزه الكبير في قمة الدوري**: [Link](https://tawusal.com/139826/%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%B1%D9%81%D8%B6-%D9%85%D8%B9%D8%A7%D9%82%D8%A8%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-%D8%A8%D8%B9%D8%AF-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84/)
+- **جلسات نفسية في سموحة لتجهيز اللاعبين لضغط الجماهير في موقعة الزمالك**: [Link](https://sport.elwatannews.com/ar/1/1/1305959/%D8%AC%D9%84%D8%B3%D8%A7%D8%AA-%D9%86%D9%81%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B3%D9%85%D9%88%D8%AD%D8%A9-%D9%84%D8%AA%D8%AC%D9%87%D9%8A%D8%B2-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%84%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83)
+- **درب لاعيبتك على ضربات الجزاء🔥.. محمد خليفة :ماتش سموحة مافيهوش هزار المنافس بيعاني من الكرات الثابتة**: [Link](https://www.zamalektoday.com/index.php?go=video&more=57746)
+
+
+### 2026 (N/A, Sun, 3 May 2026 00:20:00 -0700)
+
+- **Iran war live: Trump to review 14-point plan; Israel pounds Lebanon**: [Link](https://www.aljazeera.com/news/liveblog/2026/5/3/iran-war-live-trump-says-reviewing-14-point-plan-israel-pounds-lebanon)
+- **Iran Update Special Report, May 2, 2026**: [Link](https://understandingwar.org/research/middle-east/iran-update-special-report-may-2-2026/)
+- **Iran live updates: Israel, Hezbollah exchange attacks as Trump mulls Iran offer**: [Link](https://abcnews.com/International/live-updates/iran-live-updates-rubio-dismisses-iran-peace-proposal?id=132444768&entryId=132595667)
+
+
+### حماية المستهلك (N/A, Sat, 2 May 2026 22:30:00 -0700)
+
+- **الطماطم المغربية .. قيود التصدير ترغم الأسعار على الارتفاع في أوروبا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B7%D9%85%D8%A7%D8%B7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%82%D9%8A%D9%88%D8%AF-%D8%A7%D9%84%D8%AA%D8%B5%D8%AF%D9%8A%D8%B1-%D8%AA%D8%B1%D8%BA%D9%85-%D8%A7%D9%84-1737729.html)
+- **الحكومة تشتغل على مواجهة المضاربات في سوق الخضر والفواكه**: [Link](https://kech24.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D8%B4%D8%AA%D8%BA%D9%84-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%B6%D8%A7%D8%B1%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1-%D9%88%D8%A7%D9%84%D9%81%D9%88%D8%A7%D9%83%D9%87.html)
+- **مرصد حماية المستهلك يحذر من ارتفاع أسعار البصل قبيل العيد ويطالب بتدخل عاجل**: [Link](https://inews.ma/news/8316031)
+
+
 ### laliga (N/A, Sat, 2 May 2026 14:00:00 -0700)
 
 - **Espanyol vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cy42y2dpk3yt)
