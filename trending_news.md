@@ -1,3 +1,10 @@
+### incendies gironde (N/A, Fri, 24 Jul 2026 18:20:00 -0700)
+
+- **EN DIRECT, incendies : le feu se dirige vers Bordeaux ; 500 militaires supplémentaires et 1,5 million de masques FFP2 envoyés en Gironde**: [Link](https://www.lemonde.fr/planete/live/2026/07/25/en-direct-incendies-le-feu-se-dirige-vers-bordeaux-500-militaires-supplementaires-et-1-5-million-de-masques-ffp2-envoyes-en-gironde_6730417_3244.html)
+- **Incendie en Gironde : le feu prend la direction de Bordeaux, 19 000 hectares brûlés, 110 000 personnes évacuées, quatre communes de la métropole en alerte… Revivez le fil de la journée**: [Link](https://www.sudouest.fr/faits-divers/incendies/direct-incendies-en-gironde-le-feu-a-progresser-rapidement-evacuation-immediate-des-premiers-villages-la-presqu-ile-du-cap-ferret-suivez-l-evolution-ce-vendredi-24-juillet-30043755.php)
+- **« On n’a jamais connu ça » : plus de 15 000 hectares brûlés en deux jours, pourquoi les incendies en Nouvelle-Aquitaine progressent si vite**: [Link](https://www.leparisien.fr/environnement/climat/on-na-jamais-connu-ca-plus-de-15-000-hectares-brules-en-deux-jours-pourquoi-les-incendies-en-nouvelle-aquitaine-progressent-si-vite-24-07-2026-QVUKLO2G5FBDBPFVAAOWOQH2JM.php)
+
+
 ### خبر (N/A, Fri, 24 Jul 2026 16:20:00 -0700)
 
 - **وفاة الفنان الإيراني المخضرم "أكبر عبدي" عن عمر ناهز 66 عاماً**: [Link](https://www.tasnimnews.ir/ar/news/2026/07/25/3655341/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%A5%DB%8C%D8%B1%D8%A7%D9%86%DB%8C-%D8%A7%D9%84%D9%85%D8%AE%D8%B6%D8%B1%D9%85-%D8%A3%DA%A9%D8%A8%D8%B1-%D8%B9%D8%A8%D8%AF%DB%8C-%D8%B9%D9%86-%D8%B9%D9%85%D8%B1-%D9%86%D8%A7%D9%87%D8%B2-66-%D8%B9%D8%A7%D9%85%D8%A7%D9%8B)
