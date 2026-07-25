@@ -1,3 +1,23 @@
+### ayyoub bouaddi (N/A, Sat, 25 Jul 2026 12:00:00 -0700)
+
+- **Lille reportedly demands €100 million as Europe’s elite chase Moroccan midfielder Ayyoub Bouaddi**: [Link](https://en.hespress.com/142433-lille-reportedly-demands-e100-million-as-europes-elite-chase-moroccan-midfielder-ayyoub-bouaddi.html)
+- **Man City confident of reaching deal for World Cup sensation Ayyoub Bouaddi**: [Link](https://talksport.com/football/4449490/man-city-ayyoub-bouaddi-deal-transfer-news/)
+- **'Minor details remain' as Man City close in on record-breaking £85m transfer coup**: [Link](https://www.teamtalk.com/manchester-city/viana-closes-record-breaking-ayyoub-bouaddi-transfer-major-transfer-breakthrough)
+
+
+### twitch (N/A, Sat, 25 Jul 2026 12:00:00 -0700)
+
+- **Twitch is now letting parents keep their under-18s from becoming streamers. But there’s nothing stopping adults from posting footage of their kids online.**: [Link](https://www.tubefilter.com/2026/07/22/twitch-is-now-letting-parents-keep-their-under-18s-from-becoming-streamers-but-theres-nothing-stopping-adults-from-posting-footage-of-their-kids-online/)
+- **Twitch will let parents stop their teens going live**: [Link](https://www.theverge.com/tech/968480/twitch-parental-controls-block-streaming-live-dms)
+
+
+### test (N/A, Sat, 25 Jul 2026 11:50:00 -0700)
+
+- **On Second Test of Its Newest Starship Design, SpaceX Sticks the Landing**: [Link](https://www.nytimes.com/2026/07/24/science/spacex-starship-13th-test-flight.html)
+- **Watch: SpaceX's successful test flight and splashdown for Starship**: [Link](https://www.bbc.com/news/articles/czxqnwzqqw8o)
+- **Launch preview: SpaceX ready for 2nd attempt to launch Starship Flight 13 following post-abort engine work**: [Link](https://spaceflightnow.com/2026/07/23/live-coverage-spacex-ready-for-2nd-attempt-to-launch-starship-flight-13-following-post-abort-engine-work/)
+
+
 ### ath. bilbao – eibar (N/A, Sat, 25 Jul 2026 10:20:00 -0700)
 
 - **Aranbarri pierde a tres jugadores para su segundo test**: [Link](https://as.com/futbol/aranbarri-pierde-a-tres-jugadores-para-su-segundo-test-f202607-n/)
