@@ -1,3 +1,17 @@
+### montréal – inter miami (N/A, Sat, 25 Jul 2026 16:00:00 -0700)
+
+- **Inter Miami CF Signs Five-Time UEFA Champions League-Winning Midfielder Casemiro**: [Link](https://www.intermiamicf.com/news/inter-miami-cf-signs-five-time-uefa-champions-league-winning-midfielder-casemiro)
+- **Inter Miami signs Casemiro, but MLS investigating club for possible tampering - The Athletic**: [Link](https://www.nytimes.com/athletic/7463842/2026/07/22/inter-miami-casemiro-signing-mls-tampering-investigation-la-galaxy/)
+- **Inter Miami Soothes Lionel Messi’s World Cup Pain with Signing of In-Demand Brazilian Midfielder**: [Link](https://www.pulsesports.co.ke/story/inter-miami-soothes-lionel-messis-world-cup-pain-with-signing-of-in-demand-brazilian-midfielder-2026072306195005040)
+
+
+### شمس البارودي (N/A, Sat, 25 Jul 2026 15:20:00 -0700)
+
+- **"مش قادرة أتخيل".. شمس البارودي تنهار باكية بسبب ابنها الراحل**: [Link](https://www.alarabiya.net/culture-and-art/2026/07/25/%D9%85%D8%B4-%D9%82%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A7%D8%AA%D8%AE%D9%8A%D9%84-%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D9%88%D8%AF%D9%8A-%D8%AA%D9%86%D9%87%D8%A7%D8%B1-%D8%A8%D8%A7%D9%83%D9%8A%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D8%A8%D9%86%D9%87%D8%A7-%D8%A7%D9%84%D8%B1%D8%A7%D8%AD%D9%84)
+- **شمس البارودي: عمر هو الوحيد من أبنائي الذي أحب التمثيل**: [Link](https://www.youm7.com/story/2026/7/23/%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D9%88%D8%AF%D9%8A-%D8%B9%D9%85%D8%B1-%D9%87%D9%88-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF-%D9%85%D9%86-%D8%A3%D8%A8%D9%86%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%B0%D9%8A-%D8%A3%D8%AD%D8%A8-%D8%A7%D9%84%D8%AA%D9%85%D8%AB%D9%8A%D9%84/7491100)
+- **شمس البارودي تنهار باكية وتروي تفاصيل اللحظات الأخيرة مع حسن يوسف**: [Link](https://www.okaz.com.sa/culture/art/2258486)
+
+
 ### ليفربول ضد سندرلاند (N/A, Sat, 25 Jul 2026 14:40:00 -0700)
 
 - **سبب غياب صفقة ليفربول الجديدة عن ودية سندرلاند**: [Link](https://www.365scores.com/ar/news/magazine/%D8%B3%D8%A8%D8%A8-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B5%D9%81%D9%82%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B9%D9%86-%D9%88%D8%AF%D9%8A%D8%A9-%D8%B3/)
