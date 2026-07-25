@@ -1,3 +1,64 @@
+### نادي برشلونة (N/A, Sat, 25 Jul 2026 10:00:00 -0700)
+
+- **الأهلي المصري يعلن تفاصيل مواجهته أمام برشلونة على كأس "خوان غامبر"**: [Link](https://www.aljazeera.net/sport/2026/7/24/%D9%85%D9%86-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AD%D8%B6%D9%88%D8%B1%D9%87-2)
+- **رسميًا.. الأهلي يعلن مواجهة برشلونة على كأس خوان جامبر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D9%83%D8%A7%D9%94%D8%B3-%D8%AE%D9%88%D8%A7%D9%86-%D8%AC%D8%A7%D9%85%D8%A8%D8%B1/blt34649f7b433dee81)
+- **صحف إسبانيا عن الأهلي: برشلونة يواجه عملاق أفريقيا فى ليلة استثنائية**: [Link](https://www.youm7.com/story/2026/7/25/%D8%B5%D8%AD%D9%81-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%89-%D9%84%D9%8A%D9%84%D8%A9/7492062)
+
+
+### wolves – real sociedad (N/A, Sat, 25 Jul 2026 09:20:00 -0700)
+
+- **Wolves - Real Sociedad**: [Link](https://www.flashscore.com/match/football/real-sociedad-jNvak2f3/wolves-j3Azpf5d/)
+- **Watch Real Sociedad friendly on Wolves TV | Men's First-Team | News**: [Link](https://www.wolves.co.uk/news/mens-first-team/20250725-watch-real-sociedad-friendly-on-wolves-tv/)
+- **Wolverhampton vs Real Sociedad – Prediction, Where to Watch, Kick-off Time and Lineups 25-07**: [Link](https://oddsscanner.com/predictions/football/wolverhampton-x-real-sociedad-25-07-2026)
+
+
+### نادي الرجاء الرياضي (N/A, Sat, 25 Jul 2026 09:00:00 -0700)
+
+- **موهبة مغربية على ردار الرجاء الرياضي**: [Link](https://radiomars.ma/%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%B1%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A/)
+- **الرجاء يتأنى في "كشف التعاقدات"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AA%D8%A3%D9%86%D9%89-%D9%81%D9%8A-%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF%D8%A7%D8%AA-1781849.html)
+- **ماتياس يقترح على الرجاء معسكرا بالبرتغال**: [Link](https://assabah.ma/939672.html)
+
+
+### إسبانيا (N/A, Sat, 25 Jul 2026 09:00:00 -0700)
+
+- **السياح يهربون من أهم وجهة في فرنسا بعد أن تحولت إلى "مدينة أشباح"**: [Link](https://www.alarabiya.net/arab-and-world/2026/07/25/%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AD-%D9%8A%D9%87%D8%B1%D8%A8%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%87%D9%85-%D9%88%D8%AC%D9%87%D8%A9-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86-%D8%AA%D8%AD%D9%88%D9%84%D8%AA-%D8%A7%D9%84%D9%89-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D8%B4%D8%A8%D8%A7%D8%AD)
+- **لا صيف معتادا بعد الآن.. حرائق أوروبا تختبر قدرة الحكومات على التنبؤ والتأقلم**: [Link](https://www.aljazeera.net/politics/2026/7/25/%D9%84%D8%A7-%D8%B5%D9%8A%D9%81-%D9%85%D8%B9%D8%AA%D8%A7%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A2%D9%86-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **النيران تنقل آلاف النازحين إلى بوردو**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%86%D9%82%D9%84-%D8%A2%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D9%86%D8%A7%D8%B2%D8%AD%D9%8A%D9%86-%D8%A5%D9%84%D9%89-%D8%A8%D9%88%D8%B1%D8%AF%D9%88-1782627.html)
+
+
+### جريدة المنتخب (N/A, Sat, 25 Jul 2026 09:00:00 -0700)
+
+- **تنصيب اللجنة الانتقالية لمجلس الصحافة**: [Link](https://www.hespress.com/%D8%AA%D9%86%D8%B5%D9%8A%D8%A8-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81-1782221.html)
+- **مجلس المستشارين يمرر "إصلاحات" قوانين الصحافة وحقوق المؤلف**: [Link](https://ar.telquel.ma/%D8%AA%D9%86%D8%B5%D9%8A%D8%A8-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%A4%D9%82%D8%AA%D8%A9-%D9%84%D8%AA%D8%B3%D9%8A%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84/)
+- **الرباط.. تنصيب أعضاء اللجنة المؤقتة المكلفة بممارسة مهام المجلس الوطني للصحافة**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D9%86%D8%B5%D9%8A%D8%A8-%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%A4%D9%82%D8%AA%D8%A9-%D8%A7%D9%84%D9%85%D9%83%D9%84%D9%81%D8%A9-%D8%A8%D9%85%D9%85%D8%A7%D8%B1%D8%B3%D8%A9-%D9%85%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-20260724)
+
+
+### crédit (N/A, Sat, 25 Jul 2026 08:50:00 -0700)
+
+- **Maroc : il voulait un crédit, il découvre une société à son nom**: [Link](https://www.bladi.net/maroc-voulait-credit-decouvre-societe-nom,122716.html)
+- **Crédit immobilier : 4 solutions concrètes pour ne pas se faire bloquer par le taux d’usure**: [Link](https://www.boursorama.com/budget/actualites/credit-immobilier-4-solutions-concretes-pour-ne-pas-se-faire-bloquer-par-le-taux-d-usure-2afbb10893d5028392a232aac8584dea)
+- **Crédit immobilier : pourquoi la hausse du taux de l'usure peut faciliter certains emprunts**: [Link](https://tribuca.net/credit-immobilier-pourquoi-la-hausse-du-taux-de-lusure-peut-faciliter-certains-emprunts/)
+
+
+### psv eindhoven – villarreal (N/A, Sat, 25 Jul 2026 08:50:00 -0700)
+
+- **PSV vs Villarreal: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cy0j995ll4wt)
+
+
+### نادي النصر (N/A, Sat, 25 Jul 2026 08:30:00 -0700)
+
+- **بعد الأهلي.. رئيس النصر يعلن رحيله عن منصبه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D8%B9%D9%86-%D9%85%D9%86%D8%B5%D8%A8%D9%87/blt77739b04fe2f5a5f)
+- **الماجد يستقيل من رئاسة النصر.. ويسلّم أصواته للجماهير**: [Link](https://www.okaz.com.sa/sport/saudi/2258548)
+- **رئيس النصر يعلن رحيله عن منصبه بشكل مفاجئ**: [Link](https://www.365scores.com/ar/news/magazine/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D8%B9%D9%86-%D9%85%D9%86%D8%B5%D8%A8%D9%87-%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D9%81%D8%A7/)
+
+
+### أنصار الله الحوثيون (N/A, Sat, 25 Jul 2026 08:30:00 -0700)
+
+- **غارات على 3 محافظات يمنية والحوثيون يعلنون قصف منشآت لأرامكو بالسعودية**: [Link](https://www.aljazeera.net/news/2026/7/24/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%B9%D9%86-%D8%B4%D9%87%D9%88%D8%AF-%D8%B9%D8%AF%D8%A9-%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81)
+- **الحوثيون يستهدفون "منشآت نفط سعودية" بعد ضربات شنتها الرياض في اليمن**: [Link](https://www.bbc.com/arabic/articles/c2354p99yy8o)
+- **منظومة دفاع جوي تشغلها اليونان تعترض صاروخين فوق السعودية**: [Link](https://www.dw.com/ar/%D9%85%D9%86%D8%B8%D9%88%D9%85%D8%A9-%D8%AF%D9%81%D8%A7%D8%B9-%D8%AC%D9%88%D9%8A-%D8%AA%D8%B4%D8%BA%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-%D8%AA%D8%B9%D8%AA%D8%B1%D8%B6-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A%D9%86-%D9%81%D9%88%D9%82-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/live-78079305)
+
+
 ### بوشعيب المباركي (N/A, Sat, 25 Jul 2026 07:50:00 -0700)
 
 - **المباركي يقوي طاقم بنهاشم في مصر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83%D9%8A-%D9%8A%D9%82%D9%88%D9%8A-%D8%B7%D8%A7%D9%82%D9%85-%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-1782393.html)
