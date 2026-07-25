@@ -1,3 +1,38 @@
+### sv wehen – bayern (N/A, Sat, 25 Jul 2026 06:10:00 -0700)
+
+- **FC Bayern: Erster Test heute LIVE im TV, Stream und Ticker - Bayern-Startelf veröffentlicht**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/07/fc-bayern-erster-test-heute-live-im-tv-stream-und-ticker)
+- **„Olise war richtig sauer“**: [Link](https://www.ovb-heimatzeitungen.de/sport/2026/07/24/olise-war-richtig-sauer.ovb)
+- **Rund um den Stadionbesuch in der BRITA Arena - Organisatorische Hinweise zum Spiel gegen Bayern**: [Link](https://www.flw24.de/aktuelles/meldungen/details/datum/2026/07/24/rund-um-den-stadionbesuch-in-der-brita-arena-organisatorische-hinweise-zum-spiel-gegen-bayern/)
+
+
+### إبراهيم دياز (N/A, Sat, 25 Jul 2026 05:30:00 -0700)
+
+- **مورينيو يحسم مصير دياز.. ويوفنتوس يترقب**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D8%B5%D9%8A%D8%B1-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%88%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8/23418)
+- **غلطة سراي يطرق باب آيت بودلال**: [Link](https://www.almountakhab.com/node/13228593)
+- **أمين غويري يشعل الميركاتو.. غلطة سراي وفنربخشة يتنافسان على ضم نجم مارسيليا**: [Link](https://elayem.news/%D8%A3%D9%85%D9%8A%D9%86-%D8%BA%D9%88%D9%8A%D8%B1%D9%8A-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%88%D9%81/)
+
+
+### düsseldorf – dortmund (N/A, Sat, 25 Jul 2026 04:40:00 -0700)
+
+- **BVB heute live im Ticker und Stream: Hier gibt‘s den Dortmund-Test bei Fortuna Düsseldorf**: [Link](https://www.waz.de/sport/borussia-dortmund/article412672147/bvb-heute-live-im-ticker-und-stream-der-dortmund-test-bei-fortuna-duesseldorf.html)
+- **Standplan zum Familienfest**: [Link](https://www.f95.de/news/standplan-zum-familienfest)
+- **Liveticker | Fortuna Düsseldorf - Borussia Dortmund 0:1 | KW30 | Fußball-Vereine Freundschaftsspiele 2026/27**: [Link](https://www.kicker.de/duesseldorf-gegen-dortmund-2026-vereine-freundschaftsspiele-5231497/ticker)
+
+
+### tunisie (N/A, Sat, 25 Jul 2026 04:30:00 -0700)
+
+- **Tournoi féminin U17 de l'UNAF: Composition du Maroc face à la Tunisie**: [Link](https://frmf.ma/fr/articles/tournoi-feminin-u17-de-lunaf-composition-du-maroc-face-a-la-tunisie)
+- **Les Lioncelles de l’Atlas sur le toit de l’Afrique du Nord**: [Link](https://radiomars.ma/fr/?p=4848)
+- **Foot féminin: le Maroc champion du tournoi UNAF U17 en Tunisie**: [Link](https://h24info.ma/sport/football/foot-feminin-le-maroc-champion-du-tournoi-unaf-u17-en-tunisie/)
+
+
+### algerie maroc (N/A, Sat, 25 Jul 2026 04:20:00 -0700)
+
+- **passeports puissants d'Afrique**: [Link](https://afrique.le360.ma/societe/passeports-puissants-dafrique_FH6APBIUDRBXVMMEYRVQ2NMPHA/)
+- **Le passeport français est le quatrième plus « puissant » du monde**: [Link](https://www.20minutes.fr/monde/4235805-20260722-classement-passeports-plus-puissants-monde-france-classe-quatrieme)
+- **66 destinations avec un passeport tunisien : où pouvez-vous voyager sans visa en 2026 ?**: [Link](https://www.lapresse.tn/2026/07/25/66-destinations-avec-un-passeport-tunisien-ou-pouvez-vous-voyager-sans-visa-en-2026/)
+
+
 ### إيران (N/A, Sat, 25 Jul 2026 02:20:00 -0700)
 
 - **إيران.. طهران تعد بنك أهداف داخل إسرائيل وترمب يستبعد اتفاقا قريبا**: [Link](https://www.aljazeera.net/news/liveblog/2026/7/25/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%B1%D9%81%D8%B6-%D9%88%D9%82%D9%81%D8%A7-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D9%84%D9%84%D8%AD%D8%B1%D8%A8)
