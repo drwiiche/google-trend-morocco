@@ -1,3 +1,17 @@
+### ليفربول ضد سندرلاند (N/A, Sat, 25 Jul 2026 14:40:00 -0700)
+
+- **سبب غياب صفقة ليفربول الجديدة عن ودية سندرلاند**: [Link](https://www.365scores.com/ar/news/magazine/%D8%B3%D8%A8%D8%A8-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B5%D9%81%D9%82%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B9%D9%86-%D9%88%D8%AF%D9%8A%D8%A9-%D8%B3/)
+- **مواعيد مباريات اليوم الأحد 26 يوليو 2026**: [Link](https://al-ain.com/article/26-july-2026-matches)
+- **توقعات مباراة ليفربول وسندرلاند: التشكيلات المتوقعة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-liverpool-vs-sunderland-doi-hinh-du-kien)
+
+
+### liverpool – sunderland (N/A, Sat, 25 Jul 2026 14:20:00 -0700)
+
+- **Confirmed Liverpool line-up v Sunderland in Nashville**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-sunderland-nashville)
+- **Liverpool Vs Sunderland Preview, Prediction, H2H Record, Latest Odds & Betting Angles**: [Link](https://www.betvictor.com/news/liverpool-vs-sunderland-preview-prediction-h2h-record-latest-odds-betting-angles/)
+- **Liverpool XI vs Sunderland: Jacquet debut and confirmed team news**: [Link](https://www.standard.co.uk/sport/football/liverpool-fc-xi-vs-sunderland-jacquet-debut-predicted-lineup-confirmed-team-news-preseason-friendly-2026-today-b1291252.html)
+
+
 ### ماشية (N/A, Sat, 25 Jul 2026 09:20:00 -0700)
 
 - **البرازيل تصبح شريكاً رئيسياً للتحسين الوراثي للأبقار في إفريقيا**: [Link](https://alfilahia.net/%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%AA%D8%B5%D8%A8%D8%AD-%D8%B4%D8%B1%D9%8A%D9%83%D8%A7%D9%8B-%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A7%D9%8B-%D9%84%D9%84%D8%AA%D8%AD%D8%B3%D9%8A%D9%86/)
