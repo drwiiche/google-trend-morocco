@@ -1,3 +1,17 @@
+### porto – aston villa (N/A, Sat, 25 Jul 2026 12:40:00 -0700)
+
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/july/24/memberships-prematch-how-to-watch-porto-v-villa/)
+- **Fan information for the presentation match**: [Link](https://onefootball.com/en/news/fan-information-for-the-presentation-match-43182229)
+- **Why Aston Villa risk angering fanbase for sake of extra thousands as Porto announcement made**: [Link](https://sports.yahoo.com/articles/why-aston-villa-risk-angering-121000225.html)
+
+
+### mostafa terrab (N/A, Sat, 25 Jul 2026 11:20:00 -0700)
+
+- **n°1270. Cadmium, CO₂, dividendes : ce que disent réellement les chiffres d’OCP**: [Link](https://ledesk.ma/enclair/cadmium-co%E2%82%82-dividendes-ce-que-disent-reellement-les-chiffres-docp/)
+- **Maroc : comment Mostafa Terrab a transformé OCP en géant des engrais**: [Link](https://www.jeuneafrique.com/1825054/economie-entreprises/maroc-comment-mostafa-terrab-a-transforme-ocp-en-geant-des-engrais/)
+- **Industrie bas carbone : la BAD accorde une garantie de 450 millions d’euros à OCP**: [Link](https://leseco.ma/business/industrie-bas-carbone-la-bad-accorde-une-garantie-de-450-millions-deuros-a-ocp.html)
+
+
 ### ayyoub bouaddi (N/A, Sat, 25 Jul 2026 12:00:00 -0700)
 
 - **Lille reportedly demands €100 million as Europe’s elite chase Moroccan midfielder Ayyoub Bouaddi**: [Link](https://en.hespress.com/142433-lille-reportedly-demands-e100-million-as-europes-elite-chase-moroccan-midfielder-ayyoub-bouaddi.html)
