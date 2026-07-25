@@ -1,3 +1,10 @@
+### what to watch this weekend (N/A, Fri, 24 Jul 2026 22:10:00 -0700)
+
+- **3 haunting HBO Max documentaries to watch this weekend (July 24-26)**: [Link](https://www.howtogeek.com/hbo-max-documentaries-to-watch-this-weekend-july-24/)
+- **Here Are 2 Movies And 1 Show You Need To Watch This Weekend**: [Link](https://www.yahoo.com/entertainment/movies/articles/2-movies-1-show-watch-170102190.html)
+- **‘The Odyssey,’ ‘Heartstopper Forever,’ and ‘The Vampire Lestat’ finale top this week’s Must List**: [Link](https://ew.com/odyssey-heartstopper-forever-vampire-lestat-finale-must-list-july-17-12021591)
+
+
 ### incendies gironde (N/A, Fri, 24 Jul 2026 18:20:00 -0700)
 
 - **EN DIRECT, incendies : le feu se dirige vers Bordeaux ; 500 militaires supplémentaires et 1,5 million de masques FFP2 envoyés en Gironde**: [Link](https://www.lemonde.fr/planete/live/2026/07/25/en-direct-incendies-le-feu-se-dirige-vers-bordeaux-500-militaires-supplementaires-et-1-5-million-de-masques-ffp2-envoyes-en-gironde_6730417_3244.html)
