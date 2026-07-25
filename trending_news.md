@@ -1,3 +1,17 @@
+### الأيام 24 (N/A, Sat, 25 Jul 2026 06:50:00 -0700)
+
+- **الركراكي أبرز المرشحين لتدريب الإكوادور**: [Link](https://sport.rue20.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7.html)
+- **تقارير: وليد الركراكي يدخل دائرة اهتمامات منتخب الإكوادور**: [Link](https://www.hesport.com/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D8%AF%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7%D9%87%D8%AA%D9%85%D8%A7-448832.html)
+- **تقرير جديد يُقرب الركراكي من وجهة غير متوقعة**: [Link](https://ar.sport.le360.ma/football/7KIOA7TWGBEIROWMIR7HPX5R5I/)
+
+
+### wehen wiesbaden vs bayern (N/A, Sat, 25 Jul 2026 06:30:00 -0700)
+
+- **FC Bayern: Erster Test heute LIVE im TV, Stream und Ticker - Bayern-Startelf veröffentlicht**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/07/fc-bayern-erster-test-heute-live-im-tv-stream-und-ticker)
+- **„Olise war richtig sauer“**: [Link](https://www.ovb-heimatzeitungen.de/sport/2026/07/24/olise-war-richtig-sauer.ovb)
+- **Rund um den Stadionbesuch in der BRITA Arena - Organisatorische Hinweise zum Spiel gegen Bayern**: [Link](https://www.flw24.de/aktuelles/meldungen/details/datum/2026/07/24/rund-um-den-stadionbesuch-in-der-brita-arena-organisatorische-hinweise-zum-spiel-gegen-bayern/)
+
+
 ### sv wehen – bayern (N/A, Sat, 25 Jul 2026 06:10:00 -0700)
 
 - **FC Bayern: Erster Test heute LIVE im TV, Stream und Ticker - Bayern-Startelf veröffentlicht**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/07/fc-bayern-erster-test-heute-live-im-tv-stream-und-ticker)
