@@ -1,3 +1,31 @@
+### بوشعيب المباركي (N/A, Sat, 25 Jul 2026 07:50:00 -0700)
+
+- **المباركي يقوي طاقم بنهاشم في مصر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83%D9%8A-%D9%8A%D9%82%D9%88%D9%8A-%D8%B7%D8%A7%D9%82%D9%85-%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-1782393.html)
+- **طاقم مغربي يقود مودرن سبور المصري.. لمباركي يلتحق ببنهاشم**: [Link](https://www.almountakhab.com/node/13228604)
+- **مدرب مغربي يلتحق ببنهاشم في مودرن سبورت المصري**: [Link](https://barlamanesport.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%84%D8%AA%D8%AD%D9%82-%D8%A8%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%81%D9%8A-%D9%85%D9%88%D8%AF%D8%B1%D9%86-%D8%B3%D8%A8%D9%88%D8%B1/)
+
+
+### celtic vs milan (N/A, Sat, 25 Jul 2026 07:50:00 -0700)
+
+- **Celtic vs. Milan and Standard Liege vs. Juventus: Kick off-time, where to watch on TV**: [Link](https://football-italia.net/celtic-milan-standard-juventus-watch-tv-time/)
+- **Alistair Johnston is back in Lennoxtown training with the squad; so is Johnny Kenny #Celtic**: [Link](https://www.celticnewsnow.com/news/alistair-johnston-is-back-in-lennoxtown-training-with-the-squad-so-is-johnny-kenny-celtic/720767/)
+- **Celtic vs AC Milan predictions: Possible stalemate at Celtic Park**: [Link](https://www.goal.com/en-ca/betting/tips/celtic-vs-ac-milan-predictions-7-25-2026/A%3Abltf4b922c9654223dd)
+
+
+### فلاديمير بيتكوفيتش (N/A, Sat, 25 Jul 2026 07:20:00 -0700)
+
+- **ثلاثي إسباني عالمي يدخل مفكرة "الفاف" لتدريب "الخضر"**: [Link](https://www.echoroukonline.com/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D9%85%D9%81%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D8%A7%D9%81-%D9%84)
+- **المشاركة الجزائرية في كأس العالم لم تكن في مستوى تطلعات الجماهير**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-fifa-2026/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%85-%D8%AA%D9%83%D9%86-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D8%AA%D8%B7%D9%84%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-2026-07-21)
+- **تغيير المساعدين ومدة الإقامة.. بيتكوفيتش يحسم موقفه من الاستمرار مع الجزائر**: [Link](https://www.yallakora.com/world-cup/2866/news/559837/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D9%8A%D9%86-%D9%88%D9%85%D8%AF%D8%A9-%D8%A7%D9%84%D8%A5%D9%82%D8%A7%D9%85%D8%A9-%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%81%D9%8A%D8%AA%D8%B4-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+
+
+### playstation network (N/A, Sat, 25 Jul 2026 05:50:00 -0700)
+
+- **PlayStation Network outage resolved after thousands of gamers unable to play**: [Link](https://www.bbc.com/news/articles/cx2j0wy1gl5o)
+- **What we've been playing - "Gosh I had a really fun 30 minutes with Marvel Tokon before PSN went down"**: [Link](https://www.eurogamer.net/what-weve-been-playing-marvel-tokon-psn-down)
+- **Fortnite down on PS5: Everything you need to know and when it will resume**: [Link](https://mein-mmo.de/en/fortnite-on-ps5-down-all-information-about-server-status-and-login-issues,1579546/)
+
+
 ### الأيام 24 (N/A, Sat, 25 Jul 2026 06:50:00 -0700)
 
 - **الركراكي أبرز المرشحين لتدريب الإكوادور**: [Link](https://sport.rue20.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7.html)
