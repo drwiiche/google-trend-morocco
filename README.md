@@ -1,3 +1,24 @@
+### ath. bilbao – eibar (N/A, Sat, 25 Jul 2026 10:20:00 -0700)
+
+- **Aranbarri pierde a tres jugadores para su segundo test**: [Link](https://as.com/futbol/aranbarri-pierde-a-tres-jugadores-para-su-segundo-test-f202607-n/)
+- **Athletic - Eibar: horario y dónde ver hoy en TV el partido amistoso de pretemporada**: [Link](https://www.marca.com/futbol/athletic/2026/07/25/athletic-eibar-horario-ver-hoy-tv-partido-amistoso-pretemporada.html)
+- **Previa | El Eibar vuelve a probarse en pretemporada | SD Eibar | Web Oficial**: [Link](https://www.sdeibar.com/noticias/previa-or-el-eibar-vuelve-a-probarse-en-pretemporada)
+
+
+### أتلتيكو مدريد (N/A, Sat, 25 Jul 2026 10:20:00 -0700)
+
+- **بالفيديو.. أتلتيكو مدريد يقدم نجمه الجديد على طريقة "الفورمولا 1"**: [Link](https://www.aljazeera.net/sport/2026/7/25/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%82%D8%AF%D9%85-%D9%86%D8%AC%D9%85%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF)
+- **رسميًا.. أتلتيكو مدريد يعوض صفقة برناردو سليفا من باريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%88%D8%B6-%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D8%B1%D9%86%D8%A7%D8%B1%D8%AF%D9%88-%D8%B3%D9%84%D9%8A%D9%81%D8%A7-%D9%85%D9%86-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3/blt25774424a1a7c7fb)
+- **الكوري الجنوبي لي كانغ-إن ينتقل من سان جيرمان إلى أتلتيكو مدريد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%83%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A-%D9%84%D9%8A-%D9%83%D8%A7%D9%86%D8%BA-%D8%A5%D9%86-%D9%8A%D9%86%D8%AA%D9%82%D9%84-%D9%85%D9%86-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A5%D9%84%D9%89-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-2026-07-25)
+
+
+### الحسين عموتة (N/A, Sat, 25 Jul 2026 08:50:00 -0700)
+
+- **الأهلي المصري يعلن تفاصيل مواجهته أمام برشلونة على كأس "خوان غامبر"**: [Link](https://www.aljazeera.net/sport/2026/7/24/%D9%85%D9%86-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AD%D8%B6%D9%88%D8%B1%D9%87-2)
+- **رسميًا.. الأهلي يعلن مواجهة برشلونة على كأس خوان جامبر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D9%83%D8%A7%D9%94%D8%B3-%D8%AE%D9%88%D8%A7%D9%86-%D8%AC%D8%A7%D9%85%D8%A8%D8%B1/blt34649f7b433dee81)
+- **صحف إسبانيا عن الأهلي: برشلونة يواجه عملاق أفريقيا فى ليلة استثنائية**: [Link](https://www.youm7.com/story/2026/7/25/%D8%B5%D8%AD%D9%81-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%89-%D9%84%D9%8A%D9%84%D8%A9/7492062)
+
+
 ### نادي برشلونة (N/A, Sat, 25 Jul 2026 10:00:00 -0700)
 
 - **الأهلي المصري يعلن تفاصيل مواجهته أمام برشلونة على كأس "خوان غامبر"**: [Link](https://www.aljazeera.net/sport/2026/7/24/%D9%85%D9%86-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AD%D8%B6%D9%88%D8%B1%D9%87-2)
