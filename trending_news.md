@@ -1,3 +1,17 @@
+### إيران (N/A, Sat, 25 Jul 2026 02:20:00 -0700)
+
+- **إيران.. طهران تعد بنك أهداف داخل إسرائيل وترمب يستبعد اتفاقا قريبا**: [Link](https://www.aljazeera.net/news/liveblog/2026/7/25/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%B1%D9%81%D8%B6-%D9%88%D9%82%D9%81%D8%A7-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D9%84%D9%84%D8%AD%D8%B1%D8%A8)
+- **بنك أهداف إيراني جديد داخل "إسرائيل" .. وجبل الفأس قد يشعل المواجهة | سياسة | وكالة أنباء سرايا الإخبارية - حرية سقفها السماء**: [Link](https://www.sarayanews.com/article/1095977/%D8%A8%D9%86%D9%83-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%88%D8%AC%D8%A8%D9%84-%D8%A7%D9%84%D9%81%D8%A3%D8%B3)
+- **إيران: لدينا بنك أهداف جديد داخل إسرائيل سيؤدي لتسريع الهجرة العكسية من الكيان**: [Link](https://www.vetogate.com/5699859)
+
+
+### arabie saoudite (N/A, Sat, 25 Jul 2026 01:40:00 -0700)
+
+- **Yémen: frappes saoudiennes contre la ville côtière de Hodeïda, contrôlée par les Houthis**: [Link](https://medias24.com/agence-presse/yemen-frappes-saoudiennes-contre-la-ville-cotiere-de-hodeida-controlee-par-les-houthis/)
+- **Moyen-Orient: et maintenant, les Houthis du Yémen!**: [Link](https://fr.le360.ma/monde/moyen-orient-et-maintenant-les-houthis-du-yemen_NDXYGE53QBAOXJIZAOGBQJM24Y/)
+- **Trump assure que les dirigeants iraniens deviennent "de plus en plus sérieux" dans les discussions**: [Link](https://www.france24.com/fr/moyen-orient/20260724-en-direct-moyen-orient-iran-etats-unis-frappes-petrole-houthis-ormuz)
+
+
 ### what to watch this weekend (N/A, Fri, 24 Jul 2026 22:10:00 -0700)
 
 - **3 haunting HBO Max documentaries to watch this weekend (July 24-26)**: [Link](https://www.howtogeek.com/hbo-max-documentaries-to-watch-this-weekend-july-24/)
