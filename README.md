@@ -1,3 +1,22 @@
+### canicule (N/A, Sun, 26 Jul 2026 12:30:00 -0700)
+
+- **"Un risque de canicule élevé": une quatrième vague de chaleur va s'abattre sur la France en milieu de semaine**: [Link](https://www.bfmtv.com/meteo/un-risque-de-canicule-eleve-une-quatrieme-vague-de-chaleur-va-s-abattre-sur-la-france-en-milieu-de-semaine_AN-202607260221.html)
+- **Nouvelle canicule : de fortes à très fortes chaleurs et des orages ? Les infos**: [Link](https://www.tameteo.com/actualites/previsions/nouvelle-canicule-decouvrez-les-previsions-meteo-jour-par-jour-en-france.html)
+- **Vers une nouvelle vague de chaleur la semaine prochaine**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/vers-une-nouvelle-vague-de-chaleur-la-semaine-prochaine)
+
+
+### yan diomande (N/A, Sun, 26 Jul 2026 12:30:00 -0700)
+
+- **Yan Diomande transfer news: Real Madrid have £85m bid rejected for RB Leipzig winger**: [Link](https://www.skysports.com/football/news/11820/13566796/yan-diomande-transfer-news-real-madrid-have-lb85m-bid-rejected-for-rb-leipzig-winger)
+- **Real Madrid enter race to sign Yan Diomande from RB Leipzig - The Athletic**: [Link](https://www.nytimes.com/athletic/7404309/2026/07/24/yan-diomande-transfer-real-madrid-psg/)
+- **Yan Diomande makes immovable decision on next club as Liverpool, Arsenal, Man City all make fresh contact**: [Link](https://www.teamtalk.com/news/liverpool-arsenal-man-city-yan-diomande-hijack-decision-made-psg-transfer)
+
+
+### توقيت صيفي (N/A, Sun, 26 Jul 2026 08:30:00 -0700)
+
+
+
+
 ### feux incendies gironde (N/A, Sun, 26 Jul 2026 11:30:00 -0700)
 
 - **EN DIRECT, incendies : 220 000 personnes évacuées en Gironde, où le feu a parcouru 42 000 hectares ; Emmanuel Macron présidera lundi matin une cellule interministérielle de crise**: [Link](https://www.lemonde.fr/planete/live/2026/07/26/en-direct-incendies-220-000-personnes-evacuees-en-gironde-ou-le-feu-a-parcouru-42-000-hectares-emmanuel-macron-presidera-lundi-matin-une-cellule-interministerielle-de-crise_6730417_3244.html)
