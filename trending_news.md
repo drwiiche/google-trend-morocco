@@ -1,3 +1,31 @@
+### feux incendies gironde (N/A, Sun, 26 Jul 2026 11:30:00 -0700)
+
+- **EN DIRECT, incendies : 220 000 personnes évacuées en Gironde, où le feu a parcouru 42 000 hectares ; Emmanuel Macron présidera lundi matin une cellule interministérielle de crise**: [Link](https://www.lemonde.fr/planete/live/2026/07/26/en-direct-incendies-220-000-personnes-evacuees-en-gironde-ou-le-feu-a-parcouru-42-000-hectares-emmanuel-macron-presidera-lundi-matin-une-cellule-interministerielle-de-crise_6730417_3244.html)
+- **Incendies en France et en Espagne : plus de 325.000 personnes évacuées et un nouveau front près de Valence**: [Link](https://www.rtl.be/actu/monde/europe/incendie-geant-en-gironde-le-feu-aux-portes-de-bordeaux-220000-personnes/2026-07-26/article/795586)
+- **DIRECT. Incendie en Gironde : “Le feu poursuit sa progression” et aucun retour ne sera “possible tant qu’il n’est pas fixé”, dit la préfète... Suivez l’évolution**: [Link](https://www.sudouest.fr/faits-divers/incendies/incendies-en-gironde/direct-incendie-en-gironde-encore-une-nuit-compliquee-avec-une-reprise-du-feu-42-000-hectares-brules-et-220-000-evacuations-suivez-l-evolution-30067049.php)
+
+
+### رادار (N/A, Sun, 26 Jul 2026 11:00:00 -0700)
+
+- **70 عامًا على كارثة "أندريا دوريا".. كيف كشف الرادار الخطر ولم يمنع الاصطدام؟ | التلفزيون العربي**: [Link](https://www.alaraby.com/news/70-%D8%B9%D8%A7%D9%85%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%A3%D9%86%D8%AF%D8%B1%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D9%8A%D8%A7-%D9%83%D9%8A%D9%81-%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D8%B7%D8%B1-%D9%88%D9%84%D9%85-%D9%8A%D9%85%D9%86%D8%B9-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D8%AF%D8%A7%D9%85)
+- **سانشو يتلقى عرضًا مفاجئًا من نادٍ عربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A7%D9%86%D8%B4%D9%88-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%B9%D8%B1%D8%B6%D9%8B%D8%A7-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%8B%D9%94%D8%A7-%D9%85%D9%86-%D9%86%D8%A7%D8%AF%D9%8D-%D8%B9%D8%B1%D8%A8%D9%8A/blt762393960691a513)
+- **نجم البريمييرليغ على رادار نادي الريان القطري في الميركاتو**: [Link](https://www.alaraby.co.uk/sport/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88)
+
+
+### as cannes – roma (N/A, Sun, 26 Jul 2026 10:40:00 -0700)
+
+- **AS Roma vs. Como 1907 - Boxscore - Live Score - March 21, 2027**: [Link](https://www.foxsports.com/soccer/serie-a-femminile-as-roma-vs-como-1907-mar-21-2027-game-boxscore-942856?tab=boxscore)
+- **How to Watch AS Roma vs AS Cannes Live Today: Pre-Season Preview, Stats, Lineup**: [Link](https://heavy.com/sports/soccer/how-to-watch-as-roma-vs-as-cannes-live-today-pre-season-preview-stats-lineup/)
+- **Cannes 3-3 Roma: Dybala impressive, but Wesley red card ruins friendly lead**: [Link](https://onefootball.com/fr/news/cannes-3-3-roma-dybala-impressive-but-wesley-red-card-ruins-friendly-lead-43189520)
+
+
+### عبد الرزاق حمد الله (N/A, Sun, 26 Jul 2026 10:00:00 -0700)
+
+- **حمد لله يستعد للموسم الكروي الجديد**: [Link](https://www.hespress.com/%D8%AD%D9%85%D8%AF-%D9%84%D9%84%D9%87-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%83%D8%B1%D9%88%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-1782806.html)
+- **رسالة للكبار.. حمد الله: ولم لا نتوج بهذا اللقب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D9%84%D9%83%D8%A8%D8%A7%D8%B1--%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D9%84%D9%85-%D9%84%D8%A7-%D9%86%D8%AA%D9%88%D8%AC-%D8%A8%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%84%D9%82%D8%A8/blt66f5829025b0ca9a)
+- **حمد الله: التعاون قادر على التتويج باللقب القاري ومنافسة الكبار**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%82%D8%A7%D8%AF%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A7%D9%84%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D9%82%D8%A7%D8%B1%D9%8A-%D9%88%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%A7%D8%B1/23468)
+
+
 ### هسبريس (N/A, Sun, 26 Jul 2026 10:00:00 -0700)
 
 
