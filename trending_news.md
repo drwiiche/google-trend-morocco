@@ -1,3 +1,24 @@
+### liverpool football club (N/A, Sun, 26 Jul 2026 04:40:00 -0700)
+
+- **Arsenal exploring deal for Real Madrid winger Vinicius Junior - The Athletic**: [Link](https://www.nytimes.com/athletic/7469515/2026/07/25/vinicius-junior-arsenal-real-madrid-transfer-news/)
+- **Jose Mourinho would oppose Arsenal move for Vinicius Junior**: [Link](https://www.telegraph.co.uk/football/2026/07/25/jose-mourinho-will-oppose-arsenal-move-for-vinicius-jr/)
+- **Football gossip: Vinicius Jr, Alvarez, Romero, Diomande, Kone, Fernandes**: [Link](https://www.bbc.com/sport/football/articles/c5yw2wqxvjwo)
+
+
+### نيجيريا (N/A, Sun, 26 Jul 2026 03:10:00 -0700)
+
+- **بيان رسمي نيجيري حول القضية الصحراوية**: [Link](https://www.elkhabar.com/monde/%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A-%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D9%88%D9%8A%D8%A9-273324)
+- **حزب العمال الأسترالي الحاكم يؤكد دعمه للقضية الصحراوية ويطالب بالإفراج الفوري عن المعتقلين السياسيين الصحراويين**: [Link](https://spsrasd.info/ar/2026/07/25/16947.html)
+- **نيجيريا تجدد دعمها لحق الشعب الصحراوي في تقرير المصير والاستقلال**: [Link](https://www.barakanews.dz/posts/nygyrya-tgdd-daamha-lhk-alshaab-alshraoy-fy-tkryr-almsyr-oalastklal)
+
+
+### vozinha (N/A, Sun, 26 Jul 2026 00:40:00 -0700)
+
+- **Após destaque na Copa do Mundo, Vozinha desembarca no Colo-Colo**: [Link](https://onefootball.com/fr/news/apos-destaque-na-copa-do-mundo-vozinha-desembarca-no-colo-colo-43186466)
+- **A vida do goleiro cabo-verdiano dá uma guinada aos 40 anos.**: [Link](https://www.vietnam.vn/pt/thu-mon-cape-verde-doi-doi-o-tuoi-40)
+- **vozinha-colo-colo-goleiro-cabo-verde-copa-mundo-reproduçao-instagram-vozinha**: [Link](https://folhadoleste.com.br/vozinha-colo-colo-goleiro-cabo-verde-copa-mundo/vozinha-colo-colo-goleiro-cabo-verde-copa-mundo-reproducao-instagram-vozinha/)
+
+
 ### espionnage (N/A, Sun, 26 Jul 2026 00:20:00 -0700)
 
 - **Une stagiaire soupçonnée d’espionnage à l’Otan arrêtée en Belgique**: [Link](https://www.20minutes.fr/justice/4236246-20260725-belgique-stagiaire-soupconnee-espionnage-otan-arretee)
