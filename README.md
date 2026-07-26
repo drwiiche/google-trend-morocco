@@ -1,3 +1,15 @@
+### طقس (N/A, Sat, 25 Jul 2026 23:30:00 -0700)
+
+- **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-72-1782323.html)
+- **"مديرية الأرصاد" تتوقع انخفاض درجات الحرارة بالعديد من المناطق المغربية**: [Link](https://ar.lesiteinfo.com/maroc/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84-2-1012839.html)
+- **أجواء حارة في توقعات طقس الأحد 26 يوليوز**: [Link](https://inews.ma/news/8538109)
+
+
+### sporting – monaco (N/A, Sat, 25 Jul 2026 13:20:00 -0700)
+
+
+
+
 ### inde (N/A, Sat, 25 Jul 2026 17:50:00 -0700)
 
 - **Inde : le ministre de l’éducation démissionne sous la pression des étudiants et du Parti du peuple des cafards**: [Link](https://www.lemonde.fr/international/article/2026/07/25/en-inde-le-ministre-de-l-education-demissionne-sous-la-pression-des-etudiants-en-colere-contre-les-fraudes-aux-examens_6732169_3210.html)
