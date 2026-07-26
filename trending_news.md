@@ -1,3 +1,13 @@
+### هسبريس (N/A, Sun, 26 Jul 2026 10:00:00 -0700)
+
+
+
+
+### resultat quinte (N/A, Sun, 26 Jul 2026 07:10:00 -0700)
+
+
+
+
 ### videos (N/A, Sun, 26 Jul 2026 08:20:00 -0700)
 
 - **Katy Perry ‘appalled’ that White House used ‘Firework’ song in Iran war video**: [Link](https://www.washingtonpost.com/politics/2026/07/25/katy-perry-appalled-that-white-house-used-her-song-video-about-bombing-iran/)
