@@ -1,3 +1,38 @@
+### موجة حر (N/A, Sun, 26 Jul 2026 16:20:00 -0700)
+
+- **موجة حر مرتقبة تصل إلى 47 درجة**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-47-%D8%AF%D8%B1%D8%AC%D8%A9-1782847.html)
+- **طقس جد حار مع سحب منخفضة متوقع اليوم الثلاثاء**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D8%B9%D8%AA%D8%AF%D9%84%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD/)
+- **موجة حر وطقس حار من الأحد إلى الثلاثاء بعدد من مناطق المملكة**: [Link](https://www.ahdath.info/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D9%88%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8/)
+
+
+### رياض محرز (N/A, Sun, 26 Jul 2026 15:30:00 -0700)
+
+- **فيديو: سر لقاء رياض محرز ولامين يامال في فرنسا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B3%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D8%B1%D9%8A%D8%A7%D8%B6-%D9%85%D8%AD%D8%B1%D8%B2-%D9%88%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/blt3d4f8dbf6e54fd77)
+- **سيلفي محرز ويامال يخطف الأضواء في سان تروبيه الفرنسية (فيديو)**: [Link](https://www.eremnews.com/sports/sxiixhu)
+- **سيلفي واحتضان... تفاصيل لقاء يامال ومحرز بعيداً عن الملاعب**: [Link](https://www.annahar.com/sports/333463/%D8%B3%D9%8A%D9%84%D9%81%D9%8A-%D9%88%D8%A7%D8%AD%D8%AA%D8%B6%D8%A7%D9%86-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%84%D9%82%D8%A7-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D9%85%D8%AD%D8%B1%D8%B2-%D8%A8%D8%B9%D9%8A%D8%AF%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+
+
+### morocco (N/A, Sun, 26 Jul 2026 14:00:00 -0700)
+
+- **Newest Trump Landmark Is A Highway In Sahara Desert, Apparently**: [Link](https://www.forbes.com/sites/zacharyfolk/2026/07/26/trump-indicates-morocco-is-naming-a-highway-after-him/)
+- **Trump announces Tiznit–Dakhla highway will be named in his honor, thanks King Mohammed VI**: [Link](https://en.hespress.com/142637-trump-announces-tiznit-dakhla-highway-will-be-named-in-his-honor-thanks-king-mohammed-vi.html)
+- **Trump thanks Morocco for naming highway after him**: [Link](https://www.aa.com.tr/en/americas/trump-thanks-morocco-for-naming-highway-after-him/4009945)
+
+
+### caf women (N/A, Sun, 26 Jul 2026 13:40:00 -0700)
+
+- **Algeria make winning start with victory over Senegal at TotalEnergies CAF WAFCON Morocco 2026**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/algeria-make-winning-start-with-victory-over-senegal-at-totalenergies-caf-wafcon-morocco-2026/)
+- **Successful start for Algeria at the Women's Africa Cup of Nations with a win over Senegal**: [Link](https://www.goal.com/en/news/successful-start-for-algeria-at-the-women-s-africa-cup-of-nations-with-a-win-over-senegal/blta3277f48b5dfe428)
+- **Algeria v Senegal kickstart $2m WAFCON chase**: [Link](https://panafricafootball.com/article/algeria-v-senegal-wafcon)
+
+
+### paulo sergio coach (N/A, Sun, 26 Jul 2026 13:10:00 -0700)
+
+- **Wydad close to appointing Paulo Sérgio as new coach**: [Link](https://en.hespress.com/142623-wydad-close-to-appointing-paulo-sergio-as-new-coach.html)
+- **Hakim Ziyech’s Wydad Future Back in Doubt After Club Leadership Change**: [Link](https://www.moroccoworldnews.com/2026/07/331265/hakim-ziyechs-wydad-future-back-in-doubt-after-club-leadership-change/)
+- **Wydad’s new president tasked with settling Lorch from Downs deal**: [Link](https://www.kickoff.com/psl/sa-players-abroad/wydad-athletic-club-s-new-president-tasked-with-settling-thembinkosi-lorch-from-mamelodi-sundowns-is)
+
+
 ### عز الدين أوناحي (N/A, Sun, 26 Jul 2026 14:30:00 -0700)
 
 - **هل تنازل الاتحاد السعودي عن حلم أوناحي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AA%D9%86%D8%A7%D8%B2%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B9%D9%86-%D8%AD%D9%84%D9%85-%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A/bltd12e5dfcd6fbe50e)
