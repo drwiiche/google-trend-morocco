@@ -1,3 +1,17 @@
+### espionnage (N/A, Sun, 26 Jul 2026 00:20:00 -0700)
+
+- **Une stagiaire soupçonnée d’espionnage à l’Otan arrêtée en Belgique**: [Link](https://www.20minutes.fr/justice/4236246-20260725-belgique-stagiaire-soupconnee-espionnage-otan-arretee)
+- **Une stagiaire canadienne suspectée d’espionnage au SHAPE et arrêtée: Theo Francken réagit**: [Link](https://www.7sur7.be/belgique/une-stagiaire-canadienne-suspectee-despionnage-au-shape-et-arretee-theo-francken-reagit~aeccee5c/)
+- **Soupçonnée d’espionnage au Quartier général de l’OTAN à Mons, une stagiaire canadienne placée sous mandat d’arrêt**: [Link](https://www.rtl.be/actu/belgique/justice/soupconnee-despionnage-au-quartier-general-de-lotan-mons-une-stagiaire/2026-07-25/article/795520)
+
+
+### auckland football club – tottenham (N/A, Sat, 25 Jul 2026 23:30:00 -0700)
+
+- **Every word Roberto De Zerbi said on big transfer news, Maddison injury and Williams-Barnett**: [Link](https://www.football.london/tottenham-hotspur-fc/transfer-news/de-zerbi-transfer-williams-barnett-34353181)
+- **Tottenham sink Auckland FC in front of record crowd at Eden Park**: [Link](https://www.nzherald.co.nz/sport/football/auckland-fc/tottenham-hotspur-v-auckland-fc-football-friendly-at-eden-park/SMOKIGUOEVAJFOVRPQJ6JHCC7A/)
+- **Scarlett and Richarlison secure victory at Eden Park**: [Link](https://www.tottenhamhotspur.com/news/1080047/scarlett-and-richarlison-secure-victory-at-eden-park)
+
+
 ### salahdine parnasse ufc (N/A, Sun, 26 Jul 2026 01:00:00 -0700)
 
 - **UFC Paris: Parnasse faces Hooker in the main event**: [Link](https://karlobag.eu/en/sports/salahdine-parnasse-makes-ufc-debut-against-dan-hooker-in-the-main-event-of-the-p-75adg/)
