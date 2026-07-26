@@ -1,3 +1,31 @@
+### وليد الركراكي (N/A, Sun, 26 Jul 2026 05:20:00 -0700)
+
+- **الأسد المغربي لا يمانع.. منتخب لاتيني يتحرك نحو الركراكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D8%A7-%D9%8A%D9%85%D8%A7%D9%86%D8%B9--%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%84%D8%A7%D8%AA%D9%8A%D9%86%D9%8A-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A/bltaa4899aa997d5edb)
+- **تقرير جديد يُقرب الركراكي من وجهة غير متوقعة**: [Link](https://ar.sport.le360.ma/football/7KIOA7TWGBEIROWMIR7HPX5R5I/)
+- **خاص لـ365Scores.. الاتحاد الإكوادوري يرد على التفاوض مع الركراكي لخلافة بيكاسيسي**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AE%D8%A7%D8%B5-%D9%84%D9%80365scores-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%83%D9%88%D8%A7%D8%AF%D9%88%D8%B1%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84/)
+
+
+### عيد العرش 2026 (N/A, Sun, 26 Jul 2026 05:20:00 -0700)
+
+- **استقبال ملكي مرتقب للمنتخب المغربي بمدينة تطوان**: [Link](https://mobachir.ma/%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-%D9%85%D9%84%D9%83%D9%8A-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D9%85/)
+- **المغرب أفضل الفرق العربية بالمونديال والعراق يتذيّل الترتيب**: [Link](https://www.azzaman.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D9%81%D8%B1%D9%82-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/)
+- **استقبال المنتخب المغربي في عيد العرش بعد التألق في كأس العالم 2026**: [Link](https://ecopress.ma/%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%A8/)
+
+
+### ea sports fc 27 (N/A, Sun, 26 Jul 2026 05:20:00 -0700)
+
+- **Pre-order EA SPORTS FC™ 27**: [Link](https://www.ea.com/games/ea-sports-fc/fc-27/buy)
+- **EA FC gets a new age rating after loot box rule changes**: [Link](https://www.bbc.com/news/articles/c5y0m8lzq1qo)
+- **What is The Grounds in FC 27? Everything You Need To Know**: [Link](https://realsport101.com/article/fc-27-the-grounds-open-world-details-districts-features)
+
+
+### كازاخستان (N/A, Sun, 26 Jul 2026 03:10:00 -0700)
+
+- **كازاخستان تراهن على المغرب لتوسيع صادرات الحبوب نحو دول إفريقيا**: [Link](https://www.hespress.com/%D9%83%D8%A7%D8%B2%D8%A7%D8%AE%D8%B3%D8%AA%D8%A7%D9%86-%D8%AA%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%AA%D9%88%D8%B3%D9%8A%D8%B9-%D8%B5%D8%A7%D8%AF-1782424.html)
+- **مراكش.. افتتاح قنصلية شرفية لجمهورية كازاخستان**: [Link](https://2m.ma/ar/news/%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%82%D9%86%D8%B5%D9%84%D9%8A%D8%A9-%D8%B4%D8%B1%D9%81%D9%8A%D8%A9-%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D9%83%D8%A7%D8%B2%D8%A7%D8%AE%D8%B3%D8%AA%D8%A7%D9%86-20260723)
+- **الدار البيضاء تحتضن أول مجلس أعمال مغربي-كازاخستاني لتعزيز الاستثمار والتجارة**: [Link](https://ar.industries.ma/%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%AA%D8%AD%D8%AA%D8%B6%D9%86-%D8%A3%D9%88%D9%84-%D9%85%D8%AC%D9%84%D8%B3-%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D9%85%D8%BA%D8%B1/)
+
+
 ### liverpool football club (N/A, Sun, 26 Jul 2026 04:40:00 -0700)
 
 - **Arsenal exploring deal for Real Madrid winger Vinicius Junior - The Athletic**: [Link](https://www.nytimes.com/athletic/7469515/2026/07/25/vinicius-junior-arsenal-real-madrid-transfer-news/)
