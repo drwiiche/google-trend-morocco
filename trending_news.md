@@ -1,3 +1,52 @@
+### salahdine parnasse ufc (N/A, Sun, 26 Jul 2026 01:00:00 -0700)
+
+- **UFC Paris: Parnasse faces Hooker in the main event**: [Link](https://karlobag.eu/en/sports/salahdine-parnasse-makes-ufc-debut-against-dan-hooker-in-the-main-event-of-the-p-75adg/)
+- **Former double champion teases potential UFC signing and UFC Paris main event debut spot**: [Link](https://bloodyelbow.com/2026/07/24/former-double-champion-teases-potential-ufc-signing-and-ufc-paris-main-event-debut-spot/)
+- **French superstar Salahdine Parnasse joins UFC and gets instant main event in Paris**: [Link](https://talksport.com/mma/4460638/salahdine-parnasse-joins-ufc-main-event-paris-dan-hooker/)
+
+
+### weer (N/A, Sun, 26 Jul 2026 00:50:00 -0700)
+
+- **Temperatuursprong na frissere zondag: Nederland stevent weer af op tropische hitte**: [Link](https://www.telegraaf.nl/weer/temperatuursprong-na-frissere-zondag-nederland-stevent-weer-af-op-tropische-hitte/159196094.html)
+- **‘Zondag kans op een bui, komende week tropisch warm’**: [Link](https://www.oogtv.nl/2026/07/zondag-kans-op-een-bui-komende-week-tropisch-warm/)
+- **VAN BAKPLAAT NAAR PLONSREGEN!**: [Link](https://www.deventerrtv.nl/van-bakplaat-naar-plonsregen/)
+
+
+### algérie (N/A, Sun, 26 Jul 2026 00:20:00 -0700)
+
+- **CAN Féminine Maroc 2026: Les Lionnes de l’Atlas fin prêtes à relever le défi**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-fin-pretes-a-relever-le-defi)
+- **Ghizlane Chebbak : « Un groupe uni par la volonté de décrocher le titre et la qualification au Mondial**: [Link](https://radiomars.ma/fr/?p=4927)
+- **CAN féminine : Jorge Vilda promet des Lionnes "engagées jusqu'au bout" pour rendre les Marocains fiers**: [Link](https://fr.hespress.com/482815-can-feminine-jorge-vilda-promet-des-lionnes-engagees-jusquau-bout-pour-rendre-les-marocains-fiers.html)
+
+
+### karim khan (N/A, Sun, 26 Jul 2026 00:20:00 -0700)
+
+- **ICC top prosecutor removed over sexual misconduct allegations**: [Link](https://www.bbc.com/news/articles/cqjxddx12qqo)
+- **Exclusive: Lawyer goes public with sexual misconduct claims against ICC chief prosecutor. He denies the allegations**: [Link](https://edition.cnn.com/2026/07/16/europe/icc-prosecutor-allegations-interview-un-investigation-amanpour-intl)
+- **US and Israeli pressure over Karim Khan could rewrite the rules and weaken the International Criminal Court**: [Link](https://euobserver.com/229054/us-and-israeli-pressure-over-karim-khan-could-rewrite-the-rules-and-weaken-the-international-criminal-court/)
+
+
+### مطر (N/A, Sat, 25 Jul 2026 21:50:00 -0700)
+
+- **تساقط أمطار غزيرة على هذه الولايات مساء اليوم**: [Link](https://elikaaonline.com/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D9%85%D8%B3%D8%A7/)
+- **أمطار مرتقبة على 22 ولاية**: [Link](https://www.elkhabar.com/societe/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%B9%D9%84%D9%89-22-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-273343)
+- **تقلبات جوية تشمل عدة ولايات..أمطار غزيرة وموجة حر**: [Link](https://barakanews.dz/posts/tklbat-goy-tshml-aad-olayatamtar-ghzyr-omog-hr)
+
+
+### konami (N/A, Sat, 25 Jul 2026 21:50:00 -0700)
+
+- **Castlevania Belmont's Curse could just be a gaming classic whipped back into shape**: [Link](https://www.eurogamer.net/castlevania-belmonts-curse-preview)
+- **Castlevania: Belmont's Curse – How KONAMI and Evil Empire Reimagined Castlevania's Return**: [Link](https://news.xbox.com/en-us/2026/07/24/castlevania-belmonts-curse-xbox/)
+- **Castlevania: Belmont's Curse Will Run At 30fps On Switch**: [Link](https://www.nintendolife.com/news/2026/07/castlevania-belmonts-curse-will-run-at-30fps-on-switch)
+
+
+### باولو سيرجيو (N/A, Sat, 25 Jul 2026 17:40:00 -0700)
+
+- **انقلاب في الوداد.. مدرب النصر السعودي السابق يقود المشروع الجديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF--%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/bltb9e4116a8cc3c0d1)
+- **مدرب أورغواياني يقترب من تدريب الوداد**: [Link](https://www.ahdath.info/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D9%88%D8%B1%D8%BA%D9%88%D8%A7%D9%8A%D8%A7%D9%86%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF/)
+- **أمين الكرمة ينفي وجود مفاوضات مع الوداد ويوضح موقفه من مستقبله التدريبي**: [Link](https://radiomars.ma/%D8%A3%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D9%83%D8%B1%D9%85%D8%A9-%D9%8A%D9%86%D9%81%D9%8A-%D9%88%D8%AC%D9%88%D8%AF-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%85%D8%B9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7/)
+
+
 ### طقس (N/A, Sat, 25 Jul 2026 23:30:00 -0700)
 
 - **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-72-1782323.html)
