@@ -1,3 +1,24 @@
+### حريق (N/A, Sun, 26 Jul 2026 08:10:00 -0700)
+
+- **السياح يهربون من أهم وجهة في فرنسا بعد أن تحولت إلى "مدينة أشباح"**: [Link](https://www.alarabiya.net/arab-and-world/2026/07/25/%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AD-%D9%8A%D9%87%D8%B1%D8%A8%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%87%D9%85-%D9%88%D8%AC%D9%87%D8%A9-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86-%D8%AA%D8%AD%D9%88%D9%84%D8%AA-%D8%A7%D9%84%D9%89-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D8%B4%D8%A8%D8%A7%D8%AD)
+- **حرائق مستعرة وإعصار.. كوارث متزامنة تشرد مئات الآلاف في 4 قارات**: [Link](https://www.aljazeera.net/news/2026/7/26/%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D9%85%D8%B3%D8%AA%D8%B9%D8%B1%D8%A9-%D9%88%D8%A3%D8%B9%D8%A7%D8%B5%D9%8A%D8%B1-%D9%83%D9%88%D8%A7%D8%B1%D8%AB-%D9%85%D8%AA%D8%B2%D8%A7%D9%85%D9%86%D8%A9)
+- **النيران تُهجّر 300 ألف بفرنسا وإسبانيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%8F%D9%87%D8%AC%D9%91%D8%B1-300-%D8%A3%D9%84%D9%81-%D8%A8%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-1782831.html)
+
+
+### كاس افريقيا للسيدات (N/A, Sun, 26 Jul 2026 08:10:00 -0700)
+
+- **موتسيبي يحضر افتتاح "كان السيدات"**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%8A%D8%AD%D8%B6%D8%B1-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-1782972.html)
+- **كأس أمم إفريقيا للسيدات - المغرب 2026 (المجموعة الأولى).. لبؤات الأطلس يرفعن شعار اللقب**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2026-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-20260725)
+- **سكينة أوزراوي: هدفنا التأهل إلى مونديال 2027 ومواصلة كتابة تاريخ الكرة النسوية المغربية**: [Link](https://radiomars.ma/%D8%B3%D9%83%D9%8A%D9%86%D8%A9-%D8%A3%D9%88%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-%D9%87%D8%AF%D9%81%D9%86%D8%A7-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7/)
+
+
+### coupe d'afrique des nations féminine (N/A, Sun, 26 Jul 2026 07:50:00 -0700)
+
+- **CAN Féminine Maroc 2026: Les Lionnes de l’Atlas fin prêtes à relever le défi**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-fin-pretes-a-relever-le-defi)
+- **Football féminin : l'ascension irrésistible du Maroc**: [Link](https://fr.hespress.com/482918-football-feminin-lascension-irresistible-du-maroc-2.html)
+- **Ouverture de la CAN féminine : Patrice Motsepe présent à Rabat**: [Link](https://radiomars.ma/fr/?p=4944)
+
+
 ### ajax – burnley (N/A, Sun, 26 Jul 2026 06:20:00 -0700)
 
 - **Livestream | Ajax - Burnley FC**: [Link](https://english.ajax.nl/articles/livestream-ajax-burnley-fc/)
