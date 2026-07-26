@@ -1,3 +1,45 @@
+### morocco vs kenya (N/A, Sun, 26 Jul 2026 13:20:00 -0700)
+
+- **WAFCON: Between Moroccan ambition and Kenyan freshness**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/wafcon-between-moroccan-ambition-and-kenyan-freshness/)
+- **Morocco vs Kenya: How & When to Watch the WAFCON 2026 Group A Opener**: [Link](https://www.moroccoworldnews.com/2026/07/331376/morocco-vs-kenya-how-when-to-watch-the-wafcon-2026-group-a-opener/)
+- **It's now time for Harambee Starlets to show what they can do against Africa's best**: [Link](https://www.standardmedia.co.ke/sports/sports/article/2001553784/its-now-time-for-harambee-starlets-to-show-what-they-can-do-against-africas-best)
+
+
+### diomande (N/A, Sun, 26 Jul 2026 12:40:00 -0700)
+
+- **Yan Diomande transfer news: Real Madrid have £85m bid rejected for RB Leipzig winger**: [Link](https://www.skysports.com/football/news/11820/13566796/yan-diomande-transfer-news-real-madrid-have-lb85m-bid-rejected-for-rb-leipzig-winger)
+- **Real Madrid enter race to sign Yan Diomande from RB Leipzig - The Athletic**: [Link](https://www.nytimes.com/athletic/7404309/2026/07/24/yan-diomande-transfer-real-madrid-psg/)
+- **Yan Diomande makes immovable decision on next club as Liverpool, Arsenal, Man City all make fresh contact**: [Link](https://www.teamtalk.com/news/liverpool-arsenal-man-city-yan-diomande-hijack-decision-made-psg-transfer)
+
+
+### wafcon (N/A, Sun, 26 Jul 2026 12:20:00 -0700)
+
+- **TotalEnergies CAF Women’s Africa Cup of Nations, Morocco 2026: TotalEnergies Woman of the Match**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/totalenergies-caf-women-s-africa-cup-of-nations-morocco-2026-totalenergies-woman-of-the-match/)
+- **Women’s AFCON Morocco 2026 Opens With Ceremony in Rabat**: [Link](https://www.moroccoworldnews.com/2026/07/331438/womens-afcon-morocco-2026-opens-with-ceremony-in-rabat/)
+- **Missing a major football tournament? Fear not, Wafcon 2026 is about to start**: [Link](https://www.theguardian.com/football/2026/jul/25/wafcon-2026-womens-africa-cup-nations-guide)
+
+
+### حافلة (N/A, Sun, 26 Jul 2026 12:10:00 -0700)
+
+- **رصيف الصحافة: العرائش تترقب تحديث أسطول حافلات النقل الحضري**: [Link](https://www.hespress.com/%D8%B1%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D8%A6%D8%B4-%D8%AA%D8%AA%D8%B1%D9%82%D8%A8-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-%D8%A3%D8%B3%D8%B7%D9%88-1782496.html)
+- **تآكل مكاسب "طنجة الكبرى" يطرح خيار "الجراحة الحضرية" على غرار الرباط والدار البيضاء**: [Link](https://tanja24.com/%D8%AA%D8%A2%D9%83%D9%84-%D9%85%D9%83%D8%A7%D8%B3%D8%A8-%D8%B7%D9%86%D8%AC%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AE%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7/)
+- **طنجة.. اختناق مروري مزمن بمدارة رياض تطوان يطرح أسئلة حول نجاعة تدبير حركة السير**: [Link](https://www.nichanealane.ma/134416/)
+
+
+### shaqueel van persie (N/A, Sun, 26 Jul 2026 11:00:00 -0700)
+
+- **Shaqueel van Persie over turbulent debuutseizoen bij Feyenoord, vader Robin en Marokko: ‘Ik zou het echt niet weten’**: [Link](https://www.ad.nl/voetbal/shaqueel-van-persie-over-turbulent-debuutseizoen-bij-feyenoord-vader-robin-en-marokko-ik-zou-het-echt-niet-weten~ad97b466/)
+- **Analisten wijzen naar PSV'er: 'Ik zou het wel enorm knap vinden'**: [Link](https://www.psvinside.nl/nieuws/analisten-wijzen-naar-psver-ik-zou-het-wel-enorm-knap-vinden)
+- **Van Bronckhorst lyrisch over Feyenoorder: "Een groot talent"**: [Link](https://feyenoord.headliner.nl/item/van-bronckhorst-lyrisch-over-feyenoorder-een-groot-talent-feyenoordpings-71241)
+
+
+### avion militaire (N/A, Sun, 26 Jul 2026 10:20:00 -0700)
+
+- **Pourquoi l'utilisation d'un Airbus militaire par la France pourrait marquer un tournant dans la lutte contre les incendies**: [Link](https://www.lalibre.be/economie/entreprises-startup/2026/07/26/pourquoi-lutilisation-dun-airbus-militaire-par-la-france-pourrait-marquer-un-tournant-dans-la-lutte-contre-les-incendies-U42JZTGOPJAQJLZQEAMLLBYCLY/)
+- **20.000 litres largués en quelques secondes : comment l’avion militaire A400M, déployé en Gironde, a été transformé pour lutter contre les incendies**: [Link](https://www.lefigaro.fr/societes/20-000-litres-d-eau-largues-en-quelques-secondes-comment-l-avion-militaire-a400m-deploye-en-gironde-a-ete-transforme-pour-lutter-contre-les-incendies-20260725)
+- **France: les incendies monstres progressent vers Bordeaux, un avion militaire envoyé en Gironde**: [Link](https://medias24.com/agence-presse/france-les-incendies-monstres-progressent-vers-bordeaux-un-avion-militaire-envoye-en-gironde/)
+
+
 ### canicule (N/A, Sun, 26 Jul 2026 12:30:00 -0700)
 
 - **"Un risque de canicule élevé": une quatrième vague de chaleur va s'abattre sur la France en milieu de semaine**: [Link](https://www.bfmtv.com/meteo/un-risque-de-canicule-eleve-une-quatrieme-vague-de-chaleur-va-s-abattre-sur-la-france-en-milieu-de-semaine_AN-202607260221.html)
