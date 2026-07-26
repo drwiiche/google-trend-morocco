@@ -1,3 +1,31 @@
+### dirham marocain (N/A, Sun, 26 Jul 2026 13:40:00 -0700)
+
+- **Le dirham se déprécie de 0,4% face à l'euro cette semaine**: [Link](https://fr.hespress.com/482852-le-dirham-se-deprecie-de-04-face-a-leuro-cette-semaine.html)
+- **Maroc : l’euro donne quelques dirhams de plus aux MRE**: [Link](https://www.bladi.net/maroc-euro-donne-dirhams-mre,122731.html)
+- **BAM : le dirham recule face à l’euro et au dollar**: [Link](https://www.leconomiste.com/flash-infos/bam-le-dirham-recule-face-a-leuro-et-au-dollar/)
+
+
+### عبد السلام وادو (N/A, Sun, 26 Jul 2026 13:40:00 -0700)
+
+- **"الطاس" تنصف وادو ضد فيتا كلوب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-%D8%AA%D9%86%D8%B5%D9%81-%D9%88%D8%A7%D8%AF%D9%88-%D8%B6%D8%AF-%D9%81%D9%8A%D8%AA%D8%A7-%D9%83%D9%84%D9%88%D8%A8-1782903.html)
+- **لجنة النزاعات بالفيفا تنصف عبد السلام وادو ضد فيتا كلوب**: [Link](https://www.ahdath.info/%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D9%86%D8%B2%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D9%86%D8%B5%D9%81-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85/)
+- **الفيفا تنصف مدربا مغربيا وتمنحه 612 ألف دولار في نزاع دولي**: [Link](https://infosports.ma/223529/)
+
+
+### maroc foot (N/A, Sun, 26 Jul 2026 13:10:00 -0700)
+
+- **Tournoi féminin U17 de l'UNAF : le Maroc remporte le titre**: [Link](https://frmf.ma/fr/articles/tournoi-feminin-u17-de-lunaf-le-maroc-remporte-le-titre)
+- **Les Lioncelles de l’Atlas sur le toit de l’Afrique du Nord**: [Link](https://radiomars.ma/fr/?p=4848)
+- **Tournoi UNAF U17 (f) Tunisie 26 : Les Lioncelles sacrées championnes**: [Link](https://lopinion.ma/fr/sport/newsroom/tournoi-unaf-u17-f-tunisie-26--les-lioncelles-sacrees-championnes_a28072?articleId=d931cdee-ddfc-4f2c-95cc-87af3296f8c7)
+
+
+### women's africa cup of nations (N/A, Sun, 26 Jul 2026 12:30:00 -0700)
+
+- **TotalEnergies CAF Women’s Africa Cup of Nations, Morocco 2026: TotalEnergies Woman of the Match**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/totalenergies-caf-women-s-africa-cup-of-nations-morocco-2026-totalenergies-woman-of-the-match/)
+- **Women’s AFCON Morocco 2026 Opens With Ceremony in Rabat**: [Link](https://www.moroccoworldnews.com/2026/07/331438/womens-afcon-morocco-2026-opens-with-ceremony-in-rabat/)
+- **Missing a major football tournament? Fear not, Wafcon 2026 is about to start**: [Link](https://www.theguardian.com/football/2026/jul/25/wafcon-2026-womens-africa-cup-nations-guide)
+
+
 ### morocco vs kenya (N/A, Sun, 26 Jul 2026 13:20:00 -0700)
 
 - **WAFCON: Between Moroccan ambition and Kenyan freshness**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/wafcon-between-moroccan-ambition-and-kenyan-freshness/)
