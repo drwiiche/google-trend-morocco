@@ -1,3 +1,10 @@
+### عز الدين أوناحي (N/A, Sun, 26 Jul 2026 14:30:00 -0700)
+
+- **هل تنازل الاتحاد السعودي عن حلم أوناحي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AA%D9%86%D8%A7%D8%B2%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B9%D9%86-%D8%AD%D9%84%D9%85-%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A/bltd12e5dfcd6fbe50e)
+- **رئيس جيرونا يعلق على ارتباط أوناحي بالاتحاد**: [Link](https://radiomars.ma/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7-%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D8%A8%D8%A7%D9%84/)
+- **نادي الإتحاد يتحرك للتعاقد مع نجمي المنتخب المغربي**: [Link](https://www.sport7.ma/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D8%A5%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%86%D8%AC%D9%85%D9%8A-%D8%A7%D9%84%D9%85/)
+
+
 ### dirham marocain (N/A, Sun, 26 Jul 2026 13:40:00 -0700)
 
 - **Le dirham se déprécie de 0,4% face à l'euro cette semaine**: [Link](https://fr.hespress.com/482852-le-dirham-se-deprecie-de-04-face-a-leuro-cette-semaine.html)
