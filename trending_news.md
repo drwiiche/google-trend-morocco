@@ -1,3 +1,17 @@
+### videos (N/A, Sun, 26 Jul 2026 08:20:00 -0700)
+
+- **Katy Perry ‘appalled’ that White House used ‘Firework’ song in Iran war video**: [Link](https://www.washingtonpost.com/politics/2026/07/25/katy-perry-appalled-that-white-house-used-her-song-video-about-bombing-iran/)
+- **Pop star Katy Perry slams White House for using her ‘Firework’ song in Iran war video**: [Link](https://www.ms.now/news/katy-perry-trump-white-house-firework-song-iran-war-video)
+- **Katy Perry Decries White House Using ‘Firework’ in Iran War Post**: [Link](https://www.bloomberg.com/news/articles/2026-07-25/katy-perry-decries-white-house-using-firework-in-iran-war-post)
+
+
+### karlsruhe – inter (N/A, Sun, 26 Jul 2026 07:40:00 -0700)
+
+- **Two former greats and a historical friendly: unveiling Karlsruher SC**: [Link](https://www.inter.it/en/news/friendly-karlsruhe-inter-history-fun-facts-2026)
+- **How & Where to Watch Karlsruher vs. Inter Milan? Lineups, Live Streams, TV Channels for Pre-Season Friendly**: [Link](https://athlonsports.com/soccer/how-where-watch-karlsruher-vs-inter-milan-lineups-live)
+- **Mkhitaryan provides assist in Inter’s 16-0 victory**: [Link](https://sportaran.com/en/post/mhitaryan-assistiroval-v-pobede-intera-160/)
+
+
 ### حريق (N/A, Sun, 26 Jul 2026 08:10:00 -0700)
 
 - **السياح يهربون من أهم وجهة في فرنسا بعد أن تحولت إلى "مدينة أشباح"**: [Link](https://www.alarabiya.net/arab-and-world/2026/07/25/%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AD-%D9%8A%D9%87%D8%B1%D8%A8%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%87%D9%85-%D9%88%D8%AC%D9%87%D8%A9-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86-%D8%AA%D8%AD%D9%88%D9%84%D8%AA-%D8%A7%D9%84%D9%89-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D8%B4%D8%A8%D8%A7%D8%AD)
