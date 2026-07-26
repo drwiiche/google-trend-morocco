@@ -1,3 +1,24 @@
+### inde (N/A, Sat, 25 Jul 2026 17:50:00 -0700)
+
+- **Inde : le ministre de l’éducation démissionne sous la pression des étudiants et du Parti du peuple des cafards**: [Link](https://www.lemonde.fr/international/article/2026/07/25/en-inde-le-ministre-de-l-education-demissionne-sous-la-pression-des-etudiants-en-colere-contre-les-fraudes-aux-examens_6732169_3210.html)
+- **Inde: la fronde des étudiants se moque des coupures d'internet**: [Link](https://medias24.com/agence-presse/inde-la-fronde-des-etudiants-se-moque-des-coupures-dinternet/)
+- **En Inde, le mouvement des “cafards” triomphe de Modi, qui sacrifie son ministre de l’Education**: [Link](https://www.nouvelobs.com/monde/20260725.OBS116964/inde-le-mouvement-des-cafards-triomphe-de-modi-qui-sacrifie-son-ministre-de-l-education.html)
+
+
+### نيمار (N/A, Sat, 25 Jul 2026 16:50:00 -0700)
+
+- **سب لاعبا برازيليا سابقا.. انتقادات "البوكر" تشعل عصبية نيمار**: [Link](https://www.aljazeera.net/sport/2026/7/24/%D8%B3%D8%A8-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A%D8%A7-%D8%B3%D8%A7%D8%A8%D9%82%D8%A7-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA)
+- **يوم خاسر لنيمار**: [Link](https://www.aljadeed.tv/sports/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/583450/%D9%8A%D9%88%D9%85-%D8%AE%D8%A7%D8%B3%D8%B1-%D9%84%D9%86%D9%8A%D9%85%D8%A7%D8%B1)
+- **سانتوس: غياب نيمار عن رحلة فنزويلا قرار فني**: [Link](https://arriyadiyah.com/896509/%D8%B3%D8%A7%D9%86%D8%AA%D9%88%D8%B3-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%86%D9%8A%D9%85%D8%A7%D8%B1-%D8%B9%D9%86-%D8%B1%D8%AD%D9%84%D8%A9-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D9%82%D8%B1%D8%A7%D8%B1-%D9%81%D9%86%D9%8A)
+
+
+### neymar (N/A, Sat, 25 Jul 2026 16:30:00 -0700)
+
+- **Mensaje mundial de Neymar**: [Link](https://as.com/futbol/internacional/mensaje-mundial-de-neymar-f202607-n/)
+- **Santos empató 2-2 con Chapecoense, por el Brasileirao Serie A 2026**: [Link](https://www.lanacion.com.ar/deportes/canchallena/santos-empato-2-2-con-chapecoense-por-el-brasileirao-serie-a-2026-nid25072026/)
+- **Neymar vs las criticas por el torneo de poker**: [Link](https://www.ole.com.ar/fuera-de-juego/neymar-vs-criticas-torneo-poker_3_fc1hbYR2f7.html)
+
+
 ### montréal – inter miami (N/A, Sat, 25 Jul 2026 16:00:00 -0700)
 
 - **Inter Miami CF Signs Five-Time UEFA Champions League-Winning Midfielder Casemiro**: [Link](https://www.intermiamicf.com/news/inter-miami-cf-signs-five-time-uefa-champions-league-winning-midfielder-casemiro)
