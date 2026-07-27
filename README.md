@@ -1,3 +1,38 @@
+### match maroc kenya can feminine (N/A, Mon, 27 Jul 2026 10:50:00 -0700)
+
+- **CAN féminine Maroc-2026 (1ère journée): composition du Maroc face au Kenya**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-1ere-journee-composition-du-maroc-face-au-kenya)
+- **CAN Féminine 2026 : L’Algérie frappe d’entrée**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/can-feminine-2026-l-algerie-frappe-d-entree/)
+- **CAN Féminine : Les Lionnes de l’Atlas démarrent en trombe**: [Link](https://www.leconomiste.com/flash-infos/can-feminine-les-lionnes-de-latlas-demarrent-en-trombe/)
+
+
+### احتجاز (N/A, Mon, 27 Jul 2026 10:40:00 -0700)
+
+- **رحلة عادية تتحول إلى ساعات من الترقب داخل مطار الجزائر**: [Link](https://attasiaa.com/%D8%B1%D8%AD%D9%84%D8%A9-%D8%B9%D8%A7%D8%AF%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B1%D9%82%D8%A8-%D8%AF%D8%A7/)
+- **احتجاز موريتاني بمطار الجزائر بسبب مقارنته مع مطار الدار البيضاء**: [Link](https://inews.ma/news/8540046)
+- **إحتجاز مسافرين موريتانيين بمطار الجزائر إحتجوا على سوء المعاملة وأشادوا بمطارات المغرب**: [Link](https://rue20.com/1020417.html)
+
+
+### ثعبان (N/A, Mon, 27 Jul 2026 10:40:00 -0700)
+
+- **لدغه ثعبان فأحضره معه إلى المستشفى.. واقعة غريبة في صعيد مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/07/27/%D9%84%D8%AF%D8%BA%D9%87-%D8%A7%D9%84%D8%AB%D8%B9%D8%A8%D8%A7%D9%86-%D9%81%D8%AD%D9%85%D9%84%D9%87-%D9%88%D8%AA%D9%88%D8%AC%D9%87-%D8%A8%D9%87-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D8%AA%D8%B4%D8%BA%D9%84-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D9%8A%D9%86)
+- **بدل الهروب منه.. مصري يُحضر الثعبان الذي لدغه إلى الطوارئ (صورة)**: [Link](https://www.eremnews.com/entertainment/sgbqt0m)
+- **شاب يحمل ثعبانا لدغه لتلقي المصل بمستشفى نجع حمادى بقنا**: [Link](https://www.elbalad.news/7052384)
+
+
+### رئيس الجزائر (N/A, Mon, 27 Jul 2026 10:30:00 -0700)
+
+- **اللجوء إلى "طلب تأشيرات" من الرئيس الفرنسي يحرج النظام الجزائري**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D8%AC%D9%88%D8%A1-%D8%A5%D9%84%D9%89-%D8%B7%D9%84%D8%A8-%D8%AA%D8%A3%D8%B4%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D8%B1-1783368.html)
+- **"الجزائر لن تمد يدها".. تبون ينفي طلب تأشيرات أو تعويضات من فرنسا**: [Link](https://www.aljazeera.net/news/2026/7/27/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%84%D9%86-%D8%AA%D9%85%D8%AF-%D9%8A%D8%AF%D9%87%D8%A7-%D8%AA%D8%A8%D9%88%D9%86-%D9%8A%D9%86%D9%81%D9%8A-%D8%B7%D9%84%D8%A8)
+- **الرئيس الجزائري في تصريح لافت: من يأتي بالإرهاب ليهدد به تونس سنهدم خيمته**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%81%D9%8A-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%84%D8%A7%D9%81%D8%AA-%D9%85%D9%86-%D9%8A%D8%A3%D8%AA%D9%8A-%D8%A8/)
+
+
+### رئيس كولومبيا (N/A, Mon, 27 Jul 2026 07:20:00 -0700)
+
+- **الرئيس الكولومبي المنتخب يتوعد بقطع العلاقات مع كوبا ونيكاراغوا فور توليه السلطة**: [Link](https://www.france24.com/ar/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7/20260727-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AA%D9%88%D8%B9%D8%AF-%D9%82%D8%B7%D8%B9-%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D9%83%D9%88%D8%A8%D8%A7-%D9%86%D9%8A%D9%83%D8%A7%D8%B1%D8%A7%D8%BA%D9%88%D8%A7-%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A9)
+- **الرئيس الكولومبي يغلق سفارات بلاده بالجزائر وجنوب افريقيا والسنغال**: [Link](https://ar.hibapress.com/details-744096.html)
+- **كولومبيا "اليمينية" تدشن "درع الأمريكتين" في معقل إسكوبار**: [Link](https://www.aljazeera.net/news/2026/7/22/%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%A7%D9%84%D9%8A%D9%85%D9%8A%D9%86%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B4%D9%86-%D8%AF%D8%B1%D8%B9)
+
+
 ### كأس الأمم الإفريقية للسيدات (N/A, Mon, 27 Jul 2026 08:20:00 -0700)
 
 - **"لبؤات الأطلس" يفتتحن كأس إفريقيا للسيدات برباعية في مرمى الكينيات**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A-1783237.html)
