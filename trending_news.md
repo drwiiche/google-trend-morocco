@@ -1,3 +1,17 @@
+### abdelmadjid tebboune (N/A, Mon, 27 Jul 2026 12:00:00 -0700)
+
+- **Visas pour les Algériens: le président Tebboune affirme n'avoir "jamais demandé un quota" à la France**: [Link](https://www.bfmtv.com/international/afrique/algerie/visas-pour-les-algeriens-le-president-tebboune-affirme-n-avoir-jamais-demande-un-quota-a-la-france_AD-202607270316.html)
+- **Algérie: la France n'a aucun "objectif chiffré" et ne montre "aucun laxisme" sur les visas, affirme Macron**: [Link](https://www.lagazettefrance.fr/article/algerie-la-france-n-a-aucun-objectif-chiffre-et-ne-montre-aucun-laxisme-sur-les-visas-affirme-macron)
+- **Paris contredit son ambassadeur à Alger : les visas ne seront pas débloqués sans coopération en matière d'immigration**: [Link](https://www.atalayar.com/fr/articulo/politique/paris-contredit-son-ambassadeur-alger-visas-ne-seront-pas-debloques-sans-cooperation-matiere-dimmigration/20260723113646227931.html)
+
+
+### محمد وهبي (N/A, Mon, 27 Jul 2026 11:30:00 -0700)
+
+- **مساعد وهبي يشيد بالمنتخب المغربي**: [Link](https://www.hespress.com/%D9%85%D8%B3%D8%A7%D8%B9%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1783101.html)
+- **ساكرامنتو: لا أفكر في مغادرة المنتخب المغربي.. والمونديال حقق حلم طفولتي**: [Link](https://radiomars.ma/%D8%B3%D8%A7%D9%83%D8%B1%D8%A7%D9%85%D9%86%D8%AA%D9%88-%D9%84%D8%A7-%D8%A3%D9%81%D9%83%D8%B1-%D9%81%D9%8A-%D9%85%D8%BA%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84/)
+- **ساكرامينتو يكشف تفاصيل عقده مع المغرب ويحدد شرط مغادرته المنتخب**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/489557.html)
+
+
 ### match maroc kenya can feminine (N/A, Mon, 27 Jul 2026 10:50:00 -0700)
 
 - **CAN féminine Maroc-2026 (1ère journée): composition du Maroc face au Kenya**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-1ere-journee-composition-du-maroc-face-au-kenya)
