@@ -1,3 +1,17 @@
+### دجاج (N/A, Sun, 26 Jul 2026 15:10:00 -0700)
+
+- **وفرة الكتاكيت وتراجع التصدير يواصلان خفض أسعار الدجاج بالمغرب**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D9%83%D9%8A%D8%AA-%D9%88%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D8%AA%D8%B5%D8%AF%D9%8A%D8%B1-%D9%8A%D9%88%D8%A7%D8%B5%D9%84%D8%A7%D9%86-1783012.html)
+- **رهان صيفي خائب.. لماذا تبخرت آمال مهنيي الدواجن رغم موسم الأعراس والمطاعم؟**: [Link](https://larachenews.com/216406.html)
+- **الدجاج يفرض نفسه بديلا عن اللحوم الحمراء.. ومهنيون لـ«مغرب تايمز»: العرض وفير والأثمنة في أدنى مستوياتها**: [Link](https://maghrebtimes.ma/2026/07/24/%D8%A7%D9%84%D8%AF%D8%AC%D8%A7%D8%AC-%D9%8A%D9%81%D8%B1%D8%B6-%D9%86%D9%81%D8%B3%D9%87-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D9%84%D8%AD%D9%88%D9%85-%D8%A7%D9%84%D8%AD%D9%85%D8%B1/)
+
+
+### caf women 2026 (N/A, Sun, 26 Jul 2026 13:00:00 -0700)
+
+- **Algeria make winning start with victory over Senegal at TotalEnergies CAF WAFCON Morocco 2026**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/algeria-make-winning-start-with-victory-over-senegal-at-totalenergies-caf-wafcon-morocco-2026/)
+- **Successful start for Algeria at the Women's Africa Cup of Nations with a win over Senegal**: [Link](https://www.goal.com/en/news/successful-start-for-algeria-at-the-women-s-africa-cup-of-nations-with-a-win-over-senegal/blta3277f48b5dfe428)
+- **Algeria v Senegal kickstart $2m WAFCON chase**: [Link](https://panafricafootball.com/article/algeria-v-senegal-wafcon)
+
+
 ### daha 17 (N/A, Sun, 26 Jul 2026 16:50:00 -0700)
 
 - **Daha 17 9. Bölüm Fragmanı - 2 İzle**: [Link](https://www.kanald.com.tr/daha-17/fragmanlar/daha-17-9-bolum-fragmani-2)
