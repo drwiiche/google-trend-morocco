@@ -1,3 +1,17 @@
+### البطولة الاحترافية المغربية (N/A, Mon, 27 Jul 2026 15:10:00 -0700)
+
+- **الأطر الوطنية تطالب برفع عدد أندية البطولة الوطنية إلى 20 فريقاً**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%A3%D8%B7%D8%B1-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%B1%D9%81%D8%B9-%D8%B9%D8%AF%D8%AF-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8/)
+- **مدربو البطولة يطالبون برفع عدد الأندية إلى 20 فريقًا خلال اجتماع الجامعة**: [Link](https://ar.hibapress.com/details-744209.html)
+- **أندية البطولة الاحترافية تتأقلم مع إغلاق الملاعب الكبرى وتعديل أجندة الموسم**: [Link](https://attasiaa.com/%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%AA%D8%AA%D8%A3%D9%82%D9%84%D9%85-%D9%85%D8%B9-%D8%A5%D8%BA/)
+
+
+### مطار (N/A, Mon, 27 Jul 2026 13:10:00 -0700)
+
+- **رحلة عادية تتحول إلى ساعات من الترقب داخل مطار الجزائر**: [Link](https://attasiaa.com/%D8%B1%D8%AD%D9%84%D8%A9-%D8%B9%D8%A7%D8%AF%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B1%D9%82%D8%A8-%D8%AF%D8%A7/)
+- **احتجاز موريتاني بمطار الجزائر بسبب مقارنته مع مطار الدار البيضاء**: [Link](https://inews.ma/news/8540046)
+- **إحتجاز مسافرين موريتانيين بمطار الجزائر إحتجوا على سوء المعاملة وأشادوا بمطارات المغرب**: [Link](https://rue20.com/1020417.html)
+
+
 ### autocar (N/A, Mon, 27 Jul 2026 13:50:00 -0700)
 
 - **The Junkyard Gems of All American Classics, Vancouver, Washington**: [Link](https://autos.yahoo.com/classic-and-collector/articles/junkyard-gems-american-classics-vancouver-164409898.html)
