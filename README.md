@@ -1,3 +1,52 @@
+### bernard arnault (N/A, Mon, 27 Jul 2026 03:00:00 -0700)
+
+- **Bernard Arnault's succession, the elephant in the room at LVMH**: [Link](https://www.lemonde.fr/en/summer-reads/article/2026/07/24/bernard-arnault-s-succession-the-elephant-in-the-room-at-lvmh_6755803_183.html)
+- **Bernard Arnault denies any 'rift' in his family after an article in Le Monde**: [Link](https://ww.fashionnetwork.com/news/Bernard-arnault-denies-any-rift-in-his-family-after-an-article-in-le-monde,1855483.html)
+- **Bernard Arnault’s media assets have become a tool for influencing business and politics**: [Link](https://logos-pres.md/en/news/bernard-arnaults-media-assets-have-become-a-tool-for-influencing-business-and-politics/)
+
+
+### نادي جيرونا (N/A, Mon, 27 Jul 2026 02:40:00 -0700)
+
+- **هل تنازل الاتحاد السعودي عن حلم أوناحي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AA%D9%86%D8%A7%D8%B2%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B9%D9%86-%D8%AD%D9%84%D9%85-%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A/bltd12e5dfcd6fbe50e)
+- **رئيس جيرونا يعلق على ارتباط أوناحي بالاتحاد**: [Link](https://radiomars.ma/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%AC%D9%8A%D8%B1%D9%88%D9%86%D8%A7-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7-%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D8%A8%D8%A7%D9%84/)
+- **أوناحي يحسمها.. صفقة سعودية تهدد مكانته مع الأسود**: [Link](https://sabahagadir.ma/475696.html)
+
+
+### جوزيه مورينيو (N/A, Mon, 27 Jul 2026 02:30:00 -0700)
+
+- **مساعد وهبي يشيد بالمنتخب المغربي**: [Link](https://www.hespress.com/%D9%85%D8%B3%D8%A7%D8%B9%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1783101.html)
+- **ساكرامنتو يكشف سر تميز المنتخب المغربي**: [Link](https://radiomars.ma/%D8%B3%D8%A7%D9%83%D8%B1%D8%A7%D9%85%D9%86%D8%AA%D9%88-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%AA%D9%85%D9%8A%D8%B2-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+- **ساكرامنتو: لن أغادر المغرب إلا من أجل مشروع يستحق وأشكر الجامعة على تحقيق حلمي**: [Link](https://www.hesport.com/%D8%B3%D8%A7%D9%83%D8%B1%D8%A7%D9%85%D9%86%D8%AA%D9%88-%D9%84%D9%86-%D8%A3%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A5%D9%84%D8%A7-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D9%85%D8%B4-449158.html)
+
+
+### سوق (N/A, Mon, 27 Jul 2026 02:00:00 -0700)
+
+- **أسهم الذكاء الاصطناعي تستقطب رهانات المحللين قبل موسم النتائج**: [Link](https://www.aljazeera.net/ebusiness/2026/7/26/%D8%A3%D8%B3%D9%87%D9%85-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D8%AA%D8%B3%D8%AA%D9%82%D8%B7%D8%A8-%D8%B1%D9%87%D8%A7%D9%86%D8%A7%D8%AA)
+- **الأسهم الأمريكية تترقب قرار الاحتياطي الفيدرالي حول أسعار الفائدة**: [Link](https://24.ae/article/964026/%D8%A7%D9%84%D8%A3%D8%B3%D9%87%D9%85-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B1%D9%82%D8%A8-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%8A%D8%A7%D8%B7%D9%8A-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A-%D8%AD%D9%88%D9%84-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9)
+- **جدول أرباح الشركات الأمريكية هذا الأسبوع (27–31 يوليو 2026): مايكروسوفت وميتا وآبل وأمازون في الواجهة**: [Link](https://www.mitrade.com/ar/insights/stocks/invest-in-stocks/us-earnings-calendar-27-31)
+
+
+### غاز (N/A, Mon, 27 Jul 2026 02:00:00 -0700)
+
+- **تشغيل أول محطة غاز مسال في المكسيك على ساحل المحيط الهادئ**: [Link](https://www.alborsaanews.com/2026/07/27/1982376)
+- **تم اكتشاف حقول نفط وغاز جديدة قبالة سواحل فيتنام.**: [Link](https://www.vietnam.vn/ar/phat-hien-them-dau-khi-moi-ngoai-khoi-viet-nam)
+- **أوروبا تواجه منافسة من آسيا على الغاز الطبيعي رغم ارتفاع أسعاره**: [Link](https://www.aljazeera.net/ebusiness/2026/7/26/%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D9%85%D9%86-%D8%A2%D8%B3%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%BA%D8%A7%D8%B2)
+
+
+### دواجن (N/A, Mon, 27 Jul 2026 01:50:00 -0700)
+
+- **ارتفاع أسعار الفراخ والبيض فى مطروح اليوم الاثنين 27 يوليو 2026**: [Link](https://www.almasryalyoum.com/news/details/4324720)
+- **أسعار الدواجن في أسوان اليوم الاثنين 27-7-2026**: [Link](https://twaslnews1.twaslnews.com/3620484/)
+- **حركة جديدة في سوق البيض.. ارتفاع الأبيض والأحمر واستقرار البلدي اليوم الأحد**: [Link](https://alboslanews.com/%D8%B2%D8%B1%D8%A7%D8%B9%D8%A9/%D8%AD%D8%B1%D9%83%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D9%88%D8%A7%D9%84%D8%A3%D8%AD%D9%85%D8%B1-%D9%88%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%84%D8%AF%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-424065)
+
+
+### t2s bourse (N/A, Mon, 27 Jul 2026 01:30:00 -0700)
+
+- **IPO de T2S : l’opération sursouscrite 43,75 fois**: [Link](https://www.leconomiste.com/flash-infos/ipo-de-t2s-loperation-sursouscrite-4375-fois/)
+- **IPO de T2S : l'opération sursouscrite 43,75 fois par 111.149 investisseurs**: [Link](https://fr.hespress.com/483002-ipo-de-t2s-loperation-sursouscrite-4375-fois-par-111-149-investisseurs.html)
+- **IPO T2S : 17 actions attribuées par souscripteur, selon les premiers avis**: [Link](https://boursenews.ma/article/marches/ipo-t2s-17-actions-attribuees-par-souscripteur-selon-les-premiers-avis)
+
+
 ### تأشيرة (N/A, Mon, 27 Jul 2026 00:40:00 -0700)
 
 - **تراجع القوة العالمية لجواز السفر الأمريكي**: [Link](https://www.aljazeera.net/politics/2026/7/25/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%84%D8%AC%D9%88%D8%A7%D8%B2-%D8%A7%D9%84%D8%B3%D9%81%D8%B1)
