@@ -1,3 +1,23 @@
+### autocar (N/A, Mon, 27 Jul 2026 13:50:00 -0700)
+
+- **The Junkyard Gems of All American Classics, Vancouver, Washington**: [Link](https://autos.yahoo.com/classic-and-collector/articles/junkyard-gems-american-classics-vancouver-164409898.html)
+- **The junkyard gems of Roswell, New Mexico**: [Link](https://www.autocar.co.uk/car-news/slideshow/junkyard-gems-roswell-new-mexico-44)
+
+
+### autoroute donald trump maroc (N/A, Mon, 27 Jul 2026 13:20:00 -0700)
+
+- **L’autoroute Tiznit-Dakhla rebaptisée en l’honneur du président américain**: [Link](https://mobile.telquel.ma/instant-t/2026/07/27/lautoroute-tiznit-dakhla-rebaptisee-en-lhonneur-du-president-americain_2000728/)
+- **La voie express Tiznit-Dakhla baptisée «Donald Trump Highway», le président américain remercie le roi Mohammed VI**: [Link](https://fr.le360.ma/politique/la-voie-express-tiznit-dakhla-baptisee-donald-trump-highway-le-president-americain-remercie-le-roi_NPEZ4MNVYNC5HK75GPTNMAOKJE/)
+- **Donald Trump a « son » autoroute au Maroc**: [Link](https://www.jeuneafrique.com/1827206/politique/donald-trump-a-son-autoroute-au-maroc/)
+
+
+### visa (N/A, Mon, 27 Jul 2026 12:10:00 -0700)
+
+- **First Kenyan to play in NFL deported under Trump immigration crackdown**: [Link](https://www.theguardian.com/us-news/2026/jul/27/daniel-adongo-deported-kenya-nfl)
+- **ICE deports former Indianapolis Colts linebacker Daniel Ogama Adongo**: [Link](https://abcnews.com/US/ice-deports-former-indianapolis-colts-linebacker-daniel-ogama/story?id=135108384)
+- **ICE Chicago removes former NFL player, criminal illegal alien from Kenya**: [Link](https://www.ice.gov/news/releases/ice-chicago-removes-former-nfl-player-criminal-illegal-alien-kenya)
+
+
 ### médias 24 (N/A, Mon, 27 Jul 2026 13:30:00 -0700)
 
 - **Qui sont les 15,8 millions d'électeurs inscrits pour 2026 ?**: [Link](https://medias24.com/2026/07/27/qui-sont-les-158-millions-delecteurs-inscrits-pour-2026-1730781/)
