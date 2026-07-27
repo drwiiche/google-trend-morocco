@@ -1,3 +1,17 @@
+### javier milei (N/A, Mon, 27 Jul 2026 15:00:00 -0700)
+
+- **Brasil llama a consultas al embajador argentino tras los ataques de Milei contra Lula**: [Link](https://elpais.com/argentina/2026-07-27/brasil-llama-a-consultas-al-embajador-argentino-tras-ataques-de-milei-contra-lula.html)
+- **Bolsonaro Jr. lanza candidatura este sábado con el reto de unificar a la derecha brasileña**: [Link](https://www.revistaeyn.com/centroamericaymundo/bolsonaro-jr-lanza-candidatura-este-sabado-con-el-reto-de-unificar-a-la-derecha-brasilena-HH31509097)
+- **Natalia de la Sota rechazó los dichos de Milei sobre Lula y aseguró que su conducta “no representa al pueblo argentino”**: [Link](https://noticiasargentinas.com/politica/natalia-de-la-sota-rechazo-los-dichos-de-milei-sobre-lula-y-aseguro-que-su-conducta--no-representa-al-pueblo-argentino-_a6a678ca7c5b51cb7e4eab571)
+
+
+### tiempo mañana (N/A, Mon, 27 Jul 2026 14:10:00 -0700)
+
+- **Clima en República Dominicana: la previsión meteorológica para Santo Domingo este 28 de julio**: [Link](https://www.infobae.com/noticias/2026/07/27/clima-en-republica-dominicana-la-prevision-meteorologica-para-santo-domingo-este-28-de-julio/)
+- **Clima en Santo Domingo, República Dominicana: ¿Cómo estará el pronóstico del tiempo mañana, martes 28 de julio de 2026?**: [Link](https://acento.com.do/ecologia/clima-en-santo-domingo-republica-dominicana-como-estara-el-pronostico-del-tiempo-manana-martes-28-de-julio-de-2026-9726636.html)
+- **Clima hoy en Santo Domingo, República Dominicana: el pronóstico del tiempo para este lunes 27 julio de 2026**: [Link](https://www.clarin.com/informacion-general/clima-hoy-santo-domingo-republica-dominicana-pronostico-tiempo-lunes-27-julio-2026_0_S84PqmgQoh.html)
+
+
 ### البطولة الاحترافية المغربية (N/A, Mon, 27 Jul 2026 15:10:00 -0700)
 
 - **الأطر الوطنية تطالب برفع عدد أندية البطولة الوطنية إلى 20 فريقاً**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%A3%D8%B7%D8%B1-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%B1%D9%81%D8%B9-%D8%B9%D8%AF%D8%AF-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8/)
