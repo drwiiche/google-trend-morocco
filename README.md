@@ -1,3 +1,45 @@
+### أياكس أمستردام (N/A, Mon, 27 Jul 2026 05:50:00 -0700)
+
+- **هل يندم ريال مدريد؟.. أياكس يضع خطة حاسمة لنجم المغرب المتألق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D9%86%D8%AF%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D8%A7%D9%94%D9%8A%D8%A7%D9%83%D8%B3-%D9%8A%D8%B6%D8%B9-%D8%AE%D8%B7%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%84%D9%82/blt312a47b41610b30f)
+- **وزان يزور مرمى بيرنلي الإنجليزي**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D9%86-%D9%8A%D8%B2%D9%88%D8%B1-%D9%85%D8%B1%D9%85%D9%89-%D8%A8%D9%8A%D8%B1%D9%86%D9%84%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-1783090.html)
+- **عبد الله وزان: مركزي الحقيقي صانع ألعاب… والصبر مفتاح حلمي مع أياكس**: [Link](https://kifache.com/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%B2%D8%A7%D9%86-%D9%85%D8%B1%D9%83%D8%B2%D9%8A-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D9%8A-%D8%B5%D8%A7%D9%86%D8%B9-%D8%A3%D9%84%D8%B9%D8%A7%D8%A8/)
+
+
+### andrea pirlo (N/A, Mon, 27 Jul 2026 05:20:00 -0700)
+
+- **Italia, Pirlo è fuori per il caso Russia. Maldini pronto a lasciare e incontra Malagò. I retroscena**: [Link](https://www.gazzetta.it/Calcio/Nazionale/27-07-2026/italia-pirlo-quasi-fuori-incontro-malago-maldini.shtml)
+- **L'imbarazzo per la tempesta politica, il caso dei figli di Maldini e Pirlo: perché Malagò è sempre più inquieto sul nuovo ct**: [Link](https://www.corriere.it/sport/calcio/26_luglio_26/ct-nazionale-pirlo-malago-retroscena-e2e53117-c0f9-4717-a537-94cd9b218xlk.shtml)
+- **Italia, Rivera si candida: “Mi sono proposto, sarei in grado di fare il ct”**: [Link](https://www.prpchannel.com/italia-rivera-si-candida-mi-sono-proposto-sarei-in-grado-di-fare-il-ct/)
+
+
+### friperie (N/A, Mon, 27 Jul 2026 05:10:00 -0700)
+
+- **Maroc : la friperie qui cachait du neuf**: [Link](https://www.bladi.net/maroc-friperie-cachait-neuf,122745.html)
+- **Les douanes de Tanger saisissent une cargaison de vêtements et de tissus non déclarés**: [Link](https://fr.hibapress.com/news-262658.html)
+- **La boutique de l’économie solidaire à Rouen va accueillir une friperie pas comme les autres**: [Link](https://www.paris-normandie.fr/id735131/article/2026-07-27/la-boutique-de-leconomie-solidaire-rouen-va-accueillir-une-friperie-pas-comme)
+
+
+### donald trump highway (N/A, Mon, 27 Jul 2026 04:50:00 -0700)
+
+- **Trump Says 660-Mile Highway in Disputed Sahara to Bear His Name**: [Link](https://www.bloomberg.com/news/articles/2026-07-27/trump-says-660-mile-highway-in-disputed-sahara-to-bear-his-name)
+- **Africa's richest monarch names a $1 billion highway designed to connect Europe and West Africa after Trump**: [Link](https://africa.businessinsider.com/local/leaders/africas-richest-monarch-names-a-dollar1-billion-highway-designed-to-connect-europe/4smfw9v)
+- **Newest Trump Landmark Is A Highway In Sahara Desert, Apparently**: [Link](https://www.forbes.com/sites/zacharyfolk/2026/07/26/trump-indicates-morocco-is-naming-a-highway-after-him/)
+
+
+### air arabia (N/A, Mon, 27 Jul 2026 03:10:00 -0700)
+
+- **Airlines suspend Middle East flights to Dubai, Riyadh and Beirut amid renewed US-Iran conflict**: [Link](https://www.thenationalnews.com/travel/2026/07/26/uae-riyadh-flights-cancellations-update/)
+- **UAE flight status today: Emirates, Etihad, flydubai and Air Arabia cancellations and travel advisories**: [Link](https://gulfnews.com/business/aviation/uae-flight-status-today-emirates-etihad-flydubai-and-air-arabia-cancellations-and-travel-advisories-1.500620357)
+- **Dubai and Middle East flight disruption: passengers advised to check flight status as cancellations continue amid US-Iran attacks**: [Link](https://www.cntravellerme.com/story/dubai-and-middle-east-flight-disruption-passengers-advised-to-check-flight-status-as-cancellations-continue-amid-us-iran-attacks)
+
+
+### ibrahim mbaye (N/A, Mon, 27 Jul 2026 02:50:00 -0700)
+
+- **Le PSG a fixé le prix d’Ibrahim Mbaye**: [Link](https://www.footmercato.net/a9006342528847116548-le-psg-a-fixe-le-prix-dibrahim-mbaye)
+- **« C’est fascinant comme les gens peuvent calomnier sur moi » : ciblé par Romain Molina, Ibrahim Mbaye réagit sur les réseaux sociaux**: [Link](https://www.leparisien.fr/sports/football/psg/cest-fascinant-comme-les-gens-peuvent-calomnier-sur-moi-cible-par-romain-molina-ibrahim-mbaye-reagit-sur-les-reseaux-sociaux-27-07-2026-PLF3CK72KFAQNJRKKAV3PAMOGE.php)
+- **PSG : L'Europe est à ses pieds, la Roma attaque**: [Link](https://www.foot01.com/paris/psg-leurope-est-a-ses-pieds-la-roma-attaque)
+
+
 ### bernard arnault (N/A, Mon, 27 Jul 2026 03:00:00 -0700)
 
 - **Bernard Arnault's succession, the elephant in the room at LVMH**: [Link](https://www.lemonde.fr/en/summer-reads/article/2026/07/24/bernard-arnault-s-succession-the-elephant-in-the-room-at-lvmh_6755803_183.html)
