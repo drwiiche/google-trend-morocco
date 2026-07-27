@@ -1,3 +1,17 @@
+### médias 24 (N/A, Mon, 27 Jul 2026 13:30:00 -0700)
+
+- **Qui sont les 15,8 millions d'électeurs inscrits pour 2026 ?**: [Link](https://medias24.com/2026/07/27/qui-sont-les-158-millions-delecteurs-inscrits-pour-2026-1730781/)
+- **Wall Street profite de la chute du pétrole, mais les puces gâchent la fête**: [Link](https://medias24.com/agence-presse/wall-street-profite-de-la-chute-du-petrole-mais-les-puces-gachent-la-fete/)
+- **Le Dow progresse, le S&P 500 en légère hausse, les semi‑conducteurs sous pression**: [Link](https://invezz.com/fr/actualites/2026/07/27/le-dow-progresse-le-sandampp-500-en-legere-hausse-les-semiconducteurs-sous-pression/)
+
+
+### نادي الوداد الرياضي (N/A, Mon, 27 Jul 2026 13:10:00 -0700)
+
+- **ثنائية من العيار الثقيل.. الوداد يعيد أمجاد الجيل الذهبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84--%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%AC%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A/blt96bec5ec43a53a6c)
+- **رسمياً أيمن الحسوني يعود إلى بيته ويوقع للوداد الرياضي**: [Link](https://radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%A3%D9%8A%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D8%B3%D9%88%D9%86%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A8%D9%8A%D8%AA%D9%87-%D9%88%D9%8A%D9%88%D9%82/)
+- **صفقتان دفعة واحدة.. الوداد ينجح في التوصل لاتفاق مع لاعبين**: [Link](https://sport.lesiteinfo.com/elbotola/500258.html)
+
+
 ### abdelmadjid tebboune (N/A, Mon, 27 Jul 2026 12:00:00 -0700)
 
 - **Visas pour les Algériens: le président Tebboune affirme n'avoir "jamais demandé un quota" à la France**: [Link](https://www.bfmtv.com/international/afrique/algerie/visas-pour-les-algeriens-le-president-tebboune-affirme-n-avoir-jamais-demande-un-quota-a-la-france_AD-202607270316.html)
