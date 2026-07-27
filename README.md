@@ -1,3 +1,31 @@
+### تأشيرة (N/A, Mon, 27 Jul 2026 00:40:00 -0700)
+
+- **تراجع القوة العالمية لجواز السفر الأمريكي**: [Link](https://www.aljazeera.net/politics/2026/7/25/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%84%D8%AC%D9%88%D8%A7%D8%B2-%D8%A7%D9%84%D8%B3%D9%81%D8%B1)
+- **تراجع مفاجئ يطال "جواز السفر المصري".. والسبب يثير التساؤلات**: [Link](https://www.alarabiya.net/aswaq/special-stories/2026/07/25/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%8A%D8%B7%D8%A7%D9%84-%D8%AC%D9%88%D8%A7%D8%B2-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D8%A4%D9%84%D8%A7%D8%AA)
+- **دولة عربية بالمركز الثاني..الكشف عن أقوى جوازات السفر بالعالم**: [Link](https://arabic.cnn.com/travel/article/2026/07/23/most-powerful-passports-july-2026)
+
+
+### عيد العرش (N/A, Mon, 27 Jul 2026 00:40:00 -0700)
+
+- **إدارة وأطر ومستخدمي مطبعة الخليج العربي بتطوان يهنئون جلالة الملك بعيد العرش المجيد**: [Link](https://presstetouan.com/%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88%D8%A3%D8%B7%D8%B1-%D9%88%D9%85%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D9%8A-%D9%85%D8%B7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D8%B9%D8%B1-5/)
+- **🔥الملك محمد السادس يفاجئ المواطنين قرب القصر الملكي في تطوان**: [Link](https://tanja7.com/189546/)
+- **تهنئة السيد محمد الحميدي لجلالة الملك محمد السادس بمناسبة عيد العرش المجيد**: [Link](https://ecopress.ma/%D8%AA%D9%87%D9%86%D8%A6%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AD%D9%85%D9%8A%D8%AF%D9%8A-%D9%84%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83/)
+
+
+### banque (N/A, Sun, 26 Jul 2026 23:30:00 -0700)
+
+- **L'État devient le premier client du secteur bancaire - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/07/26/letat-devient-le-premier-client-du-secteur-bancaire-1730507/)
+- **n°1268. « Lazy banks » : la poignée d’entreprises publiques qui pèsent sur le crédit au privé**: [Link](https://ledesk.ma/enclair/lazy-banks-la-poignee-dentreprises-publiques-qui-pesent-sur-le-credit-au-prive/)
+- **La double fuite, radiographie d’une économie qui se vide par les deux bouts**: [Link](https://africanmanager.com/la-double-fuite-radiographie-dune-economie-qui-se-vide-par-les-deux-bouts/)
+
+
+### nayef aguerd (N/A, Sun, 26 Jul 2026 22:00:00 -0700)
+
+- **Coup dur pour Nayef Aguerd**: [Link](https://www.bladi.net/coup-dur-nayef-aguerd,122752.html)
+- **Mercato OM : Un club du Qatar prêt à miser sur ce gros salaire marseillais ?**: [Link](https://www.footballclubdemarseille.fr/mercato-om/mercato-om-un-club-du-qatar-pret-a-miser-sur-ce-gros-salaire-marseillais.html)
+- **L'IA se met à la place de Grégory Lorenzi pour le mercato de l'OM : Voilà les paris à tenter en Ligue 1 et en Ligue 2**: [Link](https://le10sport.com/football/mercato/lia-se-met-a-la-place-de-gregory-lorenzi-pour-le-mercato-de-lom-voila-les-paris-a-tenter-en-ligue-1-et-en-ligue-789456)
+
+
 ### دجاج (N/A, Sun, 26 Jul 2026 15:10:00 -0700)
 
 - **وفرة الكتاكيت وتراجع التصدير يواصلان خفض أسعار الدجاج بالمغرب**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D9%83%D9%8A%D8%AA-%D9%88%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D8%AA%D8%B5%D8%AF%D9%8A%D8%B1-%D9%8A%D9%88%D8%A7%D8%B5%D9%84%D8%A7%D9%86-1783012.html)
