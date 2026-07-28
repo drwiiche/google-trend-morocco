@@ -1,3 +1,31 @@
+### incendies espagne (N/A, Tue, 28 Jul 2026 12:00:00 -0700)
+
+- **En Espagne, le « pacte d’Etat » de Pedro Sanchez face à l’urgence climatique est rejeté par une droite climatosceptique**: [Link](https://www.lemonde.fr/planete/article/2026/07/28/en-espagne-le-pacte-d-etat-de-pedro-sanchez-face-a-l-urgence-climatique-est-rejete-par-la-droite_6735402_3244.html)
+- **En Espagne, les flammes réduisent un camping en cendres, semant le désespoir**: [Link](https://medias24.com/agence-presse/en-espagne-les-flammes-reduisent-un-camping-en-cendres-semant-le-desespoir/)
+- **L’œil de Gueddar. Incendies de forêt: des brasiers partout en Europe**: [Link](https://fr.le360.ma/medias/loeil-de-gueddar-incendies-de-foret-des-brasiers-partout-en-europe_76ZK5WTT4FEURD44MELCL7Z3KY/)
+
+
+### aston villa – real sociedad (N/A, Tue, 28 Jul 2026 11:40:00 -0700)
+
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/july/27/memberships-prematch-how-to-watch-villa-v-sociedad/)
+- **Aston Villa Team News vs Real Sociedad: Kamara, Garnacho, Abraham**: [Link](https://www.thesportsbank.net/football/aston-villa/kamara-garnacho-abraham/)
+- **Live: Villa 2 Real Sociedad 2: Madjo in on act to bring Villa level**: [Link](https://www.birminghamworld.uk/sport/football/aston-villa/live-villa-2-real-sociedad-2-madjo-in-on-act-to-bring-villa-level-8826518?itm_source=internal&itm_campaign=breaking-news-ticker&itm_channel=section_banner&itm_content=0)
+
+
+### bayern munich (N/A, Tue, 28 Jul 2026 11:40:00 -0700)
+
+- **Bayern Munich News: Details on the crazy Al-Hilal pursuit of Luis Díaz**: [Link](https://www.bavarianfootballworks.com/transfer-rumors/234401/bayern-munich-al-hilal-aston-villa-chelsea-arsenal-real-madrid-fc-barcelona-psg-bvb)
+- **The curse of money: will the Mbappé and Vinícius drama move from Real Madrid to Al-Hilal?**: [Link](https://www.goal.com/en/lists/the-curse-of-money-will-the-mbappe-and-vinicius-saga-move-from-real-madrid-to-al-hilal/bltc3b823eeb802ebad)
+- **Luis Diaz decides on Saudi Arabia move**: [Link](https://www.daveockop.com/transfer-news/luis-diaz-decides-on-saudi-arabia-move/)
+
+
+### اليابان (N/A, Tue, 28 Jul 2026 09:20:00 -0700)
+
+- **زلزال بقوة 7.1 يضرب اليابان.. إصابات وانهيارات وتحذيرات من تسونامي**: [Link](https://www.aljazeera.net/news/2026/7/28/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86)
+- **فيديو. إنذار تسونامي بعد زلزال قوي في جنوب غرب اليابان**: [Link](https://arabic.euronews.com/video/2026/07/28/tsunami-alert-follows-powerful-earthquake-in-southwest-japan)
+- **بالفیدیو ؛ انهيار جزء من قلعة كوماموتو الشهيرة جراء زلزال ضرب اليابان**: [Link](https://ar.shafaqna.com/AR/583898/)
+
+
 ### منتخب الجزائر لكرة القدم (N/A, Tue, 28 Jul 2026 11:00:00 -0700)
 
 - **الندوة الصحافية لمدرب المنتخب الوطني النسوي بعد الفوز على كينيا**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%83%D9%8A%D9%86%D9%8A%D8%A7)
