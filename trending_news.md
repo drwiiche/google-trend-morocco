@@ -1,3 +1,24 @@
+### real madrid vs leganes (N/A, Tue, 28 Jul 2026 09:30:00 -0700)
+
+- **Real Madrid - Leganés, en directo: amistoso de pretemporada, hoy, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-leganes-en-directo-amistoso-de-pretemporada-hoy-en-vivo-f202607-d/)
+- **En directo: el Real Madrid de Mourinho continúa la pretemporada en su segundo partido contra el Leganés**: [Link](https://www.marca.com/futbol/real-madrid/2026/07/28/directo-real-madrid-mourinho-continua-pretemporada-segundo-partido-leganes-video.html)
+- **Real Madrid - Leganés: alineaciones, horario, dónde ver, pronósticos y estadísticas**: [Link](https://www.betfair.es/blog/futbol/futbol-espanol/real-madrid---leganes-alineaciones-horario-donde-ver-pronosticos-y-estadisticas-260726-1377.html)
+
+
+### real madrid (N/A, Tue, 28 Jul 2026 08:40:00 -0700)
+
+- **El Madrid bate su récord de ingresos: 1.221 millones la pasada temporada**: [Link](https://as.com/futbol/primera/el-madrid-bate-su-record-de-ingresos-1221-millones-la-pasada-temporada-f202607-n/)
+- **El Madrid anuncia récord de ingresos en un club deportivo: más de 1.200 millones**: [Link](https://www.marca.com/futbol/real-madrid/2026/07/28/madrid-anuncia-record-ingresos-club-deportivo-1-200-millones.html)
+- **1.500 millones de dólares y un quinto fichaje en camino: el Real Madrid se prepara para un día histórico en el Bernabéu**: [Link](https://www.goal.com/es-mx/noticias/1-500-millones-de-dolares-y-un-quinto-fichaje-en-camino-el-real-madrid-se-prepara-para-un-dia-historico-en-el-bernabeu/blt7fc90c47144f7dfe)
+
+
+### ياسين جسيم (N/A, Tue, 28 Jul 2026 08:00:00 -0700)
+
+- **ياسين جسيم يخطف الأنظار خارج الملاعب بمبادرة اجتماعية مميزة**: [Link](https://www.9avril.ma/?p=122150)
+- **بعد مشاركته في المونديال جسيم ياسين يطلق مبادرة اجتماعية في مسقط رأسه**: [Link](https://inews.ma/news/8541283)
+- **جسيم ينظم مبادرة خيرية في مسقط رأسه بعد مشاركته المونديالية**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/500307.html)
+
+
 ### هاني أبو ريدة (N/A, Tue, 28 Jul 2026 07:30:00 -0700)
 
 - **أفعال وليست أقوال.. الزمالك يحصل على رخصة المشاركة في أبطال أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%81%D8%B9%D8%A7%D9%84-%D9%88%D9%84%D9%8A%D8%B3%D8%AA-%D8%A7%D9%94%D9%82%D9%88%D8%A7%D9%84--%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%AD%D8%B5%D9%84-%D8%B9%D9%84%D9%89-%D8%B1%D8%AE%D8%B5%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blte960714e44ae1898)
