@@ -1,3 +1,36 @@
+### t2s (N/A, Tue, 28 Jul 2026 01:50:00 -0700)
+
+- **T2S draws 48.12 billion dirhams in orders in first 2026 Casablanca IPO**: [Link](https://en.hespress.com/142680-t2s-draws-48-12-billion-dirhams-in-orders-in-first-2026-casablanca-ipo.html)
+- **Helios lists T2S Group on Casablanca Stock Exchange**: [Link](https://www.africaprivateequitynews.com/p/helios-lists-t2s-group-on-casablanca)
+- **Behind the scenes of Casablanca’s first 2026 IPO with MAD 1.1 billion landmark T2S deal**: [Link](https://www.africabusinessplus.com/en/837989/behind-the-scenes-of-casablancas-first-2026-ipo-with-mad-1-1-billion-landmark-t2s-deal/)
+
+
+### bourse de casablanca (N/A, Tue, 28 Jul 2026 01:40:00 -0700)
+
+- **Bourse de Casablanca : ouverture en hausse**: [Link](https://fr.hespress.com/482984-bourse-de-casablanca-ouverture-en-hausse-132.html)
+- **Flash Momentum : Scoring technique des valeurs du MASI20**: [Link](https://boursenews.ma/article/graphiques-et-analyse-technique/flash-momentum-27-juillet-2026)
+- **Bourse : quels secteurs résistent à la baisse du marché ?**: [Link](https://medias24.com/2026/07/22/bourse-quels-secteurs-resistent-a-la-baisse-du-marche-1727867/)
+
+
+### باتريس موتسيبي (N/A, Tue, 28 Jul 2026 00:20:00 -0700)
+
+- **الندوة الصحافية لمدرب المنتخب الوطني النسوي بعد الفوز على كينيا**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%83%D9%8A%D9%86%D9%8A%D8%A7)
+- **"لبؤات الأطلس" يفتتحن كأس إفريقيا للسيدات برباعية في مرمى الكينيات**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A-1783237.html)
+- **فيلدا: حققنا بداية جيدة في كأس إفريقيا وعلينا مواصل العمل**: [Link](https://www.ahdath.info/%D9%81%D9%8A%D9%84%D8%AF%D8%A7-%D8%AD%D9%82%D9%82%D9%86%D8%A7-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%AC%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88/)
+
+
+### espagne (N/A, Tue, 28 Jul 2026 00:00:00 -0700)
+
+- **En Espagne, les flammes réduisent un camping en cendres, semant le désespoir**: [Link](https://medias24.com/agence-presse/en-espagne-les-flammes-reduisent-un-camping-en-cendres-semant-le-desespoir/)
+- **Feux en Espagne : dans le pays, la solidarité et la concorde politique prévalent face à des « incendies monstres »**: [Link](https://www.lemonde.fr/planete/article/2026/07/27/en-espagne-la-solidarite-et-la-concorde-politique-prevalent-face-a-des-incendies-monstres_6733574_3244.html)
+- **Incendies en France et en Espagne : plus de 325.000 personnes évacuées et un nouveau front près de Valence**: [Link](https://www.rtl.be/actu/monde/europe/incendies-en-france-et-en-espagne-plus-de-325000-personnes-evacuees-et-un/2026-07-26/article/795586)
+
+
+### france travail (N/A, Mon, 27 Jul 2026 16:20:00 -0700)
+
+
+
+
 ### javier milei (N/A, Mon, 27 Jul 2026 15:00:00 -0700)
 
 - **Brasil llama a consultas al embajador argentino tras los ataques de Milei contra Lula**: [Link](https://elpais.com/argentina/2026-07-27/brasil-llama-a-consultas-al-embajador-argentino-tras-ataques-de-milei-contra-lula.html)
