@@ -1,3 +1,17 @@
+### أستون فيلا ضد ريال سوسيداد (N/A, Tue, 28 Jul 2026 12:50:00 -0700)
+
+- **أستون فيلا ضد ريال سوسيداد: اختبار لأوناي إيمري وسط نقص في عدد اللاعبين.**: [Link](https://www.vietnam.vn/ar/aston-villa-gap-real-sociedad-bai-kiem-tra-cho-unai-emery-giua-con-thieu-hut-nhan-su)
+- **تشكيلة مباراة أستون فيلا وريال سوسيداد | مباراة ودية - أندية · 28 يوليو 2026**: [Link](https://www.ysscores.com/ar/lineup/5874657/Aston-Villa-vs-Real-Sociedad)
+- **أستون فيلا ضد ريال سوسيداد: اختبار لتشكيلة أوناي إيمري المؤقتة في والسال.**: [Link](https://www.vietnam.vn/ar/aston-villa-gap-real-sociedad-bai-kiem-tra-doi-hinh-chap-va-cua-unai-emery-tai-walsall)
+
+
+### lea boumard (N/A, Tue, 28 Jul 2026 12:00:00 -0700)
+
+- **Miss Excellence Pays de la Loire : Léa Boumard, candidate à l'élection 2026, est morte à l'âge de 22 ans**: [Link](https://www.cnews.fr/france/2026-07-28/miss-excellence-pays-de-la-loire-lea-boumard-candidate-lelection-2026-est-morte)
+- **Une conductrice de 22 ans perd la vie en traversant un rond-point dans une commune de Maine-et-Loire**: [Link](https://www.ouest-france.fr/societe/faits-divers/une-conductrice-de-22-ans-perd-la-vie-en-traversant-un-rond-point-dans-une-commune-de-maine-et-loire-b474a316-8996-11f1-abec-0816624751ff)
+- **Près de Cholet, une conductrice de 22 ans meurt dans une sortie de route**: [Link](https://actu.fr/https:/actu.fr/pays-de-la-loire/la-seguiniere_49332/pres-de-cholet-une-conductrice-de-22-ans-meurt-dans-une-sortie-de-route_64592022.html)
+
+
 ### incendies espagne (N/A, Tue, 28 Jul 2026 12:00:00 -0700)
 
 - **En Espagne, le « pacte d’Etat » de Pedro Sanchez face à l’urgence climatique est rejeté par une droite climatosceptique**: [Link](https://www.lemonde.fr/planete/article/2026/07/28/en-espagne-le-pacte-d-etat-de-pedro-sanchez-face-a-l-urgence-climatique-est-rejete-par-la-droite_6735402_3244.html)
