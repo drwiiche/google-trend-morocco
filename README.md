@@ -1,3 +1,24 @@
+### temps (N/A, Tue, 28 Jul 2026 14:50:00 -0700)
+
+- **Alerte météo. Temps chaud au Maroc dès ce mardi 28 juillet**: [Link](https://medias24.com/2026/07/28/alerte-meteo-temps-chaud-au-maroc-des-ce-mardi-28-juillet-1731649/)
+- **Les températures attendues ce mardi 28 juillet 2026**: [Link](https://fr.hespress.com/483095-les-temperatures-attendues-ce-mardi-28-juillet-2026.html)
+- **Une vague de chaleur est attendue de mardi à samedi**: [Link](https://www.leconomiste.com/flash-infos/une-vague-de-chaleur-est-attendue-de-mardi-a-samedi/)
+
+
+### joueur de football (N/A, Tue, 28 Jul 2026 14:30:00 -0700)
+
+- **La sanction la plus "juste" en cas d'agression? Un joueur brésilien suspendu jusqu'au rétablissement du joueur qu'il a blessé**: [Link](https://rmcsport.bfmtv.com/football/la-sanction-la-plus-juste-en-cas-d-agression-un-joueur-bresilien-suspendu-jusqu-au-retablissement-du-joueur-qu-il-a-blesse_AN-202607280564.html)
+- **Suspension rarissime au Brésil pour un tacle assassin - Brésil - SC Internacional**: [Link](https://www.sofoot.com/breves/bresil-la-folle-suspension-de-victor-gabriel-sc-internacional-qui-ne-retrouvera-pas-les-terrains-tant-que-son-adversaire-sera-blesse)
+- **Sport / La sanction qui pourrait changer le monde du football : il ne rejouera pas tant que la victime ne sera pas rétablie**: [Link](https://www.afrikmag.com/sanction-pourrait-changer-monde-du-football-il-ne-rejouera-pas-tant-que-la-victime-ne-sera-pas-retablie/)
+
+
+### israel aerospace industries (N/A, Tue, 28 Jul 2026 13:10:00 -0700)
+
+- **Merlin to integrate Condor software into IAI conversion programs**: [Link](https://cargofacts.com/allposts/freighter-aircraft/merlin-to-integrate-condor-software-into-iai-conversion-programs/)
+- **Merlin, IAI Explore Autonomy for Cargo Aircraft**: [Link](https://avweb.com/aviation-news/merlin-iai-autonomy-for-cargo-aircraft/)
+- **Merlin and IAI Sign Agreement to Advance AI-Powered Autonomy for Commercial Cargo Aircraft; The agreement establishes a framework for joint development, integration and certification of advanced autonomous flight technology for Part 25 freight aircraft**: [Link](https://www.marketscreener.com/news/merlin-and-iai-sign-agreement-to-advance-ai-powered-autonomy-for-commercial-cargo-aircraft-the-agre-ce7f51dcde88fe2d)
+
+
 ### أستون فيلا ضد ريال سوسيداد (N/A, Tue, 28 Jul 2026 12:50:00 -0700)
 
 - **أستون فيلا ضد ريال سوسيداد: اختبار لأوناي إيمري وسط نقص في عدد اللاعبين.**: [Link](https://www.vietnam.vn/ar/aston-villa-gap-real-sociedad-bai-kiem-tra-cho-unai-emery-giua-con-thieu-hut-nhan-su)
