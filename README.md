@@ -1,3 +1,24 @@
+### هاني أبو ريدة (N/A, Tue, 28 Jul 2026 07:30:00 -0700)
+
+- **أفعال وليست أقوال.. الزمالك يحصل على رخصة المشاركة في أبطال أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%81%D8%B9%D8%A7%D9%84-%D9%88%D9%84%D9%8A%D8%B3%D8%AA-%D8%A7%D9%94%D9%82%D9%88%D8%A7%D9%84--%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%8A%D8%AD%D8%B5%D9%84-%D8%B9%D9%84%D9%89-%D8%B1%D8%AE%D8%B5%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blte960714e44ae1898)
+- **ما بين فرحة الرخصة الأفريقية وغموض فريق الكرة.. غليان بين الجماهير**: [Link](https://www.sadaelomma.com/2026/07/blog-post_4367.html)
+- **هاني أبو ريدة يجيب.. هل تدخل لمدة فترة الرخصة الإفريقية من أجل الزمالك؟**: [Link](https://www.btolat.com/news/406504)
+
+
+### abdelmadjid tebboune (N/A, Tue, 28 Jul 2026 06:40:00 -0700)
+
+- **« Celui qui touche la Tunisie nous touche » : l’avertissement inédit d’Abdelmadjid Tebboune**: [Link](https://www.jeuneafrique.com/1827728/politique/celui-qui-touche-la-tunisie-nous-touche-lavertissement-inedit-dabdelmadjid-tebboune/)
+- **Vidéos - Retrouvez l'intégralité de la rencontre du Président avec des responsables de médias nationaux**: [Link](https://www.lexpressiondz.com/videos/retrouvez-l-integralite-de-la-rencontre-du-president-avec-des-responsables-de-medias-nationaux-2555)
+- **Un ministre algérien issu de la diaspora ? Tebboune répond**: [Link](https://www.tsa-algerie.com/un-ministre-algerien-issu-de-la-diaspora-tebboune-repond/)
+
+
+### japon (N/A, Tue, 28 Jul 2026 05:50:00 -0700)
+
+- **Séisme au Japon : un tremblement de terre de magnitude 7,1 secoue le Sud, une alerte tsunami émise puis rapidement levée**: [Link](https://www.lemonde.fr/international/article/2026/07/28/japon-un-seisme-de-magnitude-7-1-frappe-kumamoto-et-declenche-une-alerte-au-tsunami_6734975_3210.html)
+- **Vidéo. Alerte au tsunami après un puissant séisme dans le sud-ouest du Japon**: [Link](https://fr.euronews.com/video/2026/07/28/alerte-au-tsunami-apres-un-puissant-seisme-dans-le-sud-ouest-du-japon)
+- **Séisme au Japon : un "nombre" considérable de morts dans un centre commercial endommagé**: [Link](https://www.france24.com/fr/vid%C3%A9o/20260728-s%C3%A9isme-au-japon-un-nombre-consid%C3%A9rable-de-morts-dans-un-centre-commercial-endommag%C3%A9)
+
+
 ### zidane (N/A, Tue, 28 Jul 2026 04:00:00 -0700)
 
 - **Zinedine Zidane: Former Real Madrid manager appointed as France head coach**: [Link](https://www.bbc.com/sport/football/articles/cpd741qn2y9o)
