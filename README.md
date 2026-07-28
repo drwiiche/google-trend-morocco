@@ -1,3 +1,17 @@
+### zidane (N/A, Tue, 28 Jul 2026 04:00:00 -0700)
+
+- **Zinedine Zidane: Former Real Madrid manager appointed as France head coach**: [Link](https://www.bbc.com/sport/football/articles/cpd741qn2y9o)
+- **France turn to Zidane as coach in long-awaited homecoming**: [Link](https://en.hespress.com/142725-france-turn-to-zidane-as-coach-in-long-awaited-homecoming.html)
+- **French football legend Zinedine Zidane set to become 'Les Bleus' new coach**: [Link](https://news.inbox.eu/150k38w-french-football-legend-zinedine-zidane-set-to-become-les-bleus-new-coach?language=en)
+
+
+### médicament (N/A, Tue, 28 Jul 2026 03:30:00 -0700)
+
+- **Réforme des prix des médicaments : comment Tehraoui a obtenu un consensus avec les acteurs du secteur (1/2)**: [Link](https://medias24.com/2026/07/27/reforme-des-prix-des-medicaments-tehraoui-consensus-pharmaceutique-1-2-1730135/)
+- **Prix des médicaments : Tehraoui décortique son décret**: [Link](https://telquel.ma/2026/07/28/prix-des-medicaments-tehraoui-decortique-son-decret_2001014)
+- **Sécurité sanitaire: le Maroc durcit le contrôle du marché du médicament**: [Link](https://fr.le360.ma/societe/securite-sanitaire-le-maroc-durcit-le-controle-du-marche-du-medicament_2ZPDCF6OLRB3PNKJONEWGTCUQ4/)
+
+
 ### t2s group bourse (N/A, Tue, 28 Jul 2026 04:20:00 -0700)
 
 - **IPO de T2S : l’opération sursouscrite 43,75 fois par 111.149 investisseurs**: [Link](https://mobile.telquel.ma/instant-t/2026/07/27/ipo-de-t2s-loperation-sursouscrite-4375-fois-par-111-149-investisseurs_2000751/)
