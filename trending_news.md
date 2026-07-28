@@ -1,3 +1,59 @@
+### t2s group bourse (N/A, Tue, 28 Jul 2026 04:20:00 -0700)
+
+- **IPO de T2S : l’opération sursouscrite 43,75 fois par 111.149 investisseurs**: [Link](https://mobile.telquel.ma/instant-t/2026/07/27/ipo-de-t2s-loperation-sursouscrite-4375-fois-par-111-149-investisseurs_2000751/)
+- **Introduction en Bourse de T2S: le bilan**: [Link](https://fr.le360.ma/economie/introduction-en-bourse-de-t2s-le-bilan_GD3ME4VMHZC5PN47XAZ6YXDF6U/)
+- **Le leader marocain de la MedTech T2S Group Holding fait ses débuts à la Bourse de Casablanca**: [Link](https://www.yabiladi.com/articles/details/199445/leader-marocain-medtech-group-holding.html)
+
+
+### zinédine zidane didier deschamps (N/A, Tue, 28 Jul 2026 03:20:00 -0700)
+
+- **Zinédine Zidane officiellement nommé à la tête de l’équipe de France, une évidence après des années d’attente**: [Link](https://www.lemonde.fr/sport/article/2026/07/28/zinedine-zidane-officiellement-nomme-a-la-tete-de-l-equipe-de-france-une-evidence-apres-des-annees-d-attente_6735008_3242.html)
+- **Le début d'une aventure énorme : présenté ce mardi à la presse, Zinédine Zidane va reprendre le fil de sa légende avec les Bleus**: [Link](https://www.lequipe.fr/Football/Article/Le-debut-d-une-aventure-enorme-presente-ce-mardi-a-la-presse-zinedine-zidane-va-reprendre-le-fil-de-sa-legende-avec-les-bleus/1707466)
+- **Football : Zinédine Zidane nommé sélectionneur de l’équipe de France**: [Link](https://telquel.ma/instant-t/2026/07/28/football-zinedine-zidane-nomme-selectionneur-de-lequipe-de-france_2000961/)
+
+
+### تشيلسي ضد وسترن سيدني (N/A, Tue, 28 Jul 2026 03:10:00 -0700)
+
+- **كولويل يقارن بين ألونسو والمدربين السابقين لتشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%84%D9%88%D9%8A%D9%84-%D9%8A%D9%82%D8%A7%D8%B1%D9%86-%D8%A8%D9%8A%D9%86-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%88%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82%D9%8A%D9%86-%D9%84%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/blt5a2d921b39fa1c9a)
+- **القنوات الناقلة لمباراة تشيلسي ضد غرب سيدني الودية استعدادًا لموسم 2026-27**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%BA%D8%B1%D8%A8-%D8%B3%D9%8A%D8%AF%D9%86%D9%8A/)
+- **رابط لمشاهدة مباراة ويسترن سيدني واندررز وتشيلسي مباشرة الساعة 4:45 مساءً اليوم**: [Link](https://www.vietnam.vn/ar/link-xem-truc-tiep-western-sydney-wanderers-vs-chelsea-16h45-hom-nay)
+
+
+### محمد تراوري (N/A, Tue, 28 Jul 2026 03:00:00 -0700)
+
+- **صدمة في الوداد.. وفاة لاعب الفريق السابق بعمر 38 عاما**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF--%D9%88%D9%81%D8%A7%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A8%D8%B9%D9%85%D8%B1-38-%D8%B9%D8%A7%D9%85%D8%A7/blt3368f6cbbd183e1b)
+- **وفاة اللاعب السابق للوداد الرياضي و حسنية اگادير كاليلو تراوري عن عمر يناهز 38 سنة**: [Link](https://radiomars.ma/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%84%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%88-%D8%AD%D8%B3/)
+- **الوداد يعزي في وفاة محمد تراوري**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D8%B2%D9%8A-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%AA%D8%B1%D8%A7%D9%88%D8%B1%D9%8A-449340.html)
+
+
+### chelsea – sydney wanderers (N/A, Tue, 28 Jul 2026 02:30:00 -0700)
+
+- **Confirmed Chelsea line up vs Western Sydney Wanderers | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-western-sydney-wanderers)
+- **Who is Dastan Satpayev? 17-year-old scores first goal of Chelsea's Alonso era**: [Link](https://football360.com.au/chelsea-wanderers-xabi-alonso-first-goal-dastan-satpayev-video-watch/)
+- **Chelsea vs Western Sydney Wanderers: Sydney Super Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c70gqpln17et)
+
+
+### هيفاء وهبي (N/A, Tue, 28 Jul 2026 02:30:00 -0700)
+
+- **هيفاء وهبي تصل القاهرة وتبدا تحضيراتها لحفلها بالساحل الشمالي**: [Link](https://www.lahamag.com/article/239551-%D9%87%D9%8A%D9%81%D8%A7%D8%A1-%D9%88%D9%87%D8%A8%D9%8A-%D8%AA%D8%B5%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%88%D8%AA%D8%A8%D8%AF%D8%A7-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87%D8%A7-%D9%84%D8%AD%D9%81%D9%84%D9%87%D8%A7-%D8%A8%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A)
+- **هكذا بدت أجواء حفل هيفاء وهبي والشامي في بيروت**: [Link](https://arabic.cnn.com/entertainment/article/2026/07/26/the-atmosphere-at-haifa-wehbes-concert-with-al-shami-in-beirut)
+- **نشاط فني لهيفاء وهبي.. حفل ضخم بالساحل الشمالي وجولة فنية في تونس**: [Link](https://www.elwatannews.com/news/details/8328008)
+
+
+### الولايات المتحدة (N/A, Tue, 28 Jul 2026 02:20:00 -0700)
+
+- **واشنطن تراجع وجودها العسكري في أوروبا وتضغط على الناتو**: [Link](https://www.aljazeera.net/news/2026/7/28/%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D8%A8%D8%AF%D8%A3-%D9%85%D8%B1%D8%A7%D8%AC%D8%B9%D8%A9-%D9%88%D8%AC%D9%88%D8%AF%D9%87%D8%A7-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D9%81%D9%8A)
+- **عسكر أمريكا يراجع التواجد في أوروبا**: [Link](https://www.hespress.com/%D8%B9%D8%B3%D9%83%D8%B1-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D9%8A%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%AC%D8%AF-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-1783649.html)
+- **البنتاغون يبدأ مراجعة الوجود العسكري الأميركي في أوروبا**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/07/28/%D8%A7%D9%84%D8%A8%D9%86%D8%AA%D8%A7%D8%BA%D9%88%D9%86-%D9%8A%D8%A8%D8%AF%D8%A7-%D9%85%D8%B1%D8%A7%D8%AC%D8%B9%D8%A9-%D8%A7%D9%84%D9%88%D8%AC%D9%88%D8%AF-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%81%D9%8A-%D8%A7%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+
+
+### fete du trone maroc (N/A, Tue, 28 Jul 2026 01:10:00 -0700)
+
+- **Fête du Trône : les FAR organisent des shows aériens et des sauts d'exhibition en parachutes**: [Link](https://lematin.ma/nation/fete-du-trone-les-far-organisent-des-shows-aeriens/358286)
+- **À quelques jours de la Fête du Trône, Mohammed VI et Moulay El Hassan créent la surprise à Tétouan**: [Link](https://www.pointdevue.fr/royal/maroc/a-quelques-jours-de-la-fete-du-trone-mohammed-vi-et-moulay-el-hassan-creent-la-surprise-a-tetouan)
+- **Fête du Trône : les FAR annoncent des shows aériens à Mdiq Martil et Salé**: [Link](https://www.yabiladi.com/articles/details/199475/fete-trone-annoncent-shows-aeriens.html)
+
+
 ### t2s (N/A, Tue, 28 Jul 2026 01:50:00 -0700)
 
 - **T2S draws 48.12 billion dirhams in orders in first 2026 Casablanca IPO**: [Link](https://en.hespress.com/142680-t2s-draws-48-12-billion-dirhams-in-orders-in-first-2026-casablanca-ipo.html)
