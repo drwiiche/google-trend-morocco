@@ -1,3 +1,10 @@
+### el niño (N/A, Tue, 28 Jul 2026 14:50:00 -0700)
+
+- **🇵🇪Keiko Fujimori ha jurado como presidenta de Perú para los próximos cinco años. Es la primera mujer en llegar al cargo y su llegada supone el noveno presidente en 10 años y el regreso del fujimorismo.**: [Link](https://www.instagram.com/reel/DbWbdaxiS5X/)
+- **Fujimori y Peña renuevan los "históricos vínculos bilaterales" entre Perú y Paraguay**: [Link](https://es-us.noticias.yahoo.com/fujimori-pe%C3%B1a-renuevan-hist%C3%B3ricos-v%C3%ADnculos-181734341.html)
+- **Mensaje a la Nación: Keiko Fujimori anuncia apoyo financiero para agricultores afectados por el Fenómeno El Niño**: [Link](https://rpp.pe/economia/economia/mensaje-a-la-nacion-keiko-fujimori-anuncia-apoyo-financiero-para-agricultores-afectados-por-el-fenomeno-el-nino-noticia-1699153)
+
+
 ### temps (N/A, Tue, 28 Jul 2026 14:50:00 -0700)
 
 - **Alerte météo. Temps chaud au Maroc dès ce mardi 28 juillet**: [Link](https://medias24.com/2026/07/28/alerte-meteo-temps-chaud-au-maroc-des-ce-mardi-28-juillet-1731649/)
