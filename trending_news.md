@@ -1,3 +1,31 @@
+### منتخب الجزائر لكرة القدم (N/A, Tue, 28 Jul 2026 11:00:00 -0700)
+
+- **الندوة الصحافية لمدرب المنتخب الوطني النسوي بعد الفوز على كينيا**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D9%83%D9%8A%D9%86%D9%8A%D8%A7)
+- **"لبؤات الأطلس" يفتتحن كأس إفريقيا للسيدات برباعية في مرمى الكينيات**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A-1783237.html)
+- **في خطوة غير مسبوقة.. "الكاف" يوسع رقعة التغطية الإعلامية لكأس أمم إفريقيا للسيدات المنظمة في المغرب**: [Link](https://radiomars.ma/%D9%81%D9%8A-%D8%AE%D8%B7%D9%88%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D9%88%D8%B3%D8%B9-%D8%B1%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%AA/)
+
+
+### real madrid tv (N/A, Tue, 28 Jul 2026 09:50:00 -0700)
+
+- **Real Madrid vs Leganés: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/clyqe04n7kwt)
+- **Today's friendly match schedule and broadcast channels: Real Madrid vs Deportivo Leganés and Al Ain vs Elche**: [Link](https://www.voiceofemirates.com/en/sport/2026/07/28/todays-friendly-match-schedule-and-broadcast-channels-real-madrid-vs-deportivo-leganes-and-al-ain-vs-elche/)
+- **Kylian Mbappe Will Not Play in Real Madrid's Preseason Friendly Against Leganes**: [Link](https://sports.yahoo.com/articles/kylian-mbappe-not-play-real-075612912.html)
+
+
+### لويس إنريكي (N/A, Tue, 28 Jul 2026 08:30:00 -0700)
+
+- **موهبة مصرية تخطف أنظار لويس إنريكي... من هو ريان أبو الناي؟**: [Link](https://www.annahar.com/sports/333721/%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AE%D8%B7%D9%81-%D8%A3%D9%86%D8%B8%D8%A7%D8%B1-%D9%84%D9%88%D9%8A%D8%B3-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%85%D9%86-%D9%87%D9%88-%D8%B1%D9%8A%D8%A7%D9%86-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D9%86%D8%A7%D9%8A)
+- **من هو المصري ريان أبو الناي الذي استدعاه إنريكي لتدريبات سان جيرمان؟**: [Link](https://www.eremnews.com/sports/mm9olvp)
+- **من هو ريان أبو الناي؟ موهبة مصرية تقترب من الظهور مع باريس سان جيرمان**: [Link](https://www.almashhad.com/article/218257510540304-sports/196355288536150-%D9%85%D9%86-%D9%87%D9%88-%D8%B1%D9%8A%D8%A7%D9%86-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D9%86%D8%A7%D9%8A-%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D9%85%D8%B9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86/)
+
+
+### عبد المجيد تبون (N/A, Tue, 28 Jul 2026 06:20:00 -0700)
+
+- **سياسيون تونسيون يطالبون تبّون بعدم التدخل في شؤون بلادهم.. ودعوات لاستدعاء سفير الجزائر- (تدوينات)**: [Link](https://www.alquds.co.uk/%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A%D9%88%D9%86-%D8%AA%D9%88%D9%86%D8%B3%D9%8A%D9%88%D9%86-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8%D9%88%D9%86-%D8%AA%D8%A8%D9%91%D9%88%D9%86-%D8%A8%D8%B9%D8%AF%D9%85-%D8%A7%D9%84/)
+- **"باريس تُستدعى.. والجزائر لا تُسأل": كيف أثارت تصريحات تبون جدلا حول خطاب السيادة في تونس؟**: [Link](https://arabic.euronews.com/2026/07/28/why-france-enyoy-summoned-algeria-silent-tebboune-tunisia-remarks-spark-sovereignty-row)
+- **بالتفاصيل.. أبرز ما جاء في اللقاء الإعلامي لرئيس الجمهورية**: [Link](https://www.echoroukonline.com/%D8%A8%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D8%A7-%D8%AC%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7)
+
+
 ### real madrid vs leganes (N/A, Tue, 28 Jul 2026 09:30:00 -0700)
 
 - **Real Madrid - Leganés, en directo: amistoso de pretemporada, hoy, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-leganes-en-directo-amistoso-de-pretemporada-hoy-en-vivo-f202607-d/)
