@@ -1,3 +1,58 @@
+### atlético madrid – getafe (N/A, Wed, 29 Jul 2026 11:40:00 -0700)
+
+- **Atlético - Getafe, en directo: amistoso de pretemporada, hoy, en vivo**: [Link](https://as.com/futbol/primera/atletico-getafe-en-directo-amistoso-de-pretemporada-hoy-en-vivo-f202607-d/)
+- **Debut de Hjulmand y estreno a medias del Atlético 2026-2027**: [Link](https://holanews.com/debut-de-hjulmand-y-estreno-a-medias-del-atletico-2026-2027/)
+- **El Cerro del Espino acoge el reestreno rojiblanco**: [Link](https://es-us.noticias.yahoo.com/deportes/cerro-espino-acoge-reestreno-rojiblanco-095500291.html)
+
+
+### artificial intelligence news (N/A, Wed, 29 Jul 2026 11:10:00 -0700)
+
+- **Exclusive | White House to Redirect Billions in Research Funds Toward AI, Away From Colleges**: [Link](https://www.wsj.com/politics/policy/white-house-to-redirect-billions-in-research-funds-toward-ai-away-from-colleges-942dacb8)
+- **Trump wants smarter computers, dumber people | Will Bunch Newsletter**: [Link](https://www.inquirer.com/columnists/attytood/trump-science-funding-cuts-ai-golden-age-genesis-mission-20260728.html)
+- **US science gets a new blueprint 81 years after 'Endless Frontier'**: [Link](https://news.cgtn.com/news/2026-07-28/US-science-gets-a-new-blueprint-81-years-after-Endless-Frontier--1P9BizUcSXu/p.html)
+
+
+### spiderman brand new day (N/A, Wed, 29 Jul 2026 11:10:00 -0700)
+
+- **‘Spider-Man: Brand New Day’ Is the Same Old MCU B.S.**: [Link](https://www.rollingstone.com/tv-movies/tv-movie-reviews/spider-man-brand-new-day-review-mcu-1235592690/)
+- **Spider-Man: Brand New Day**: [Link](https://www.pluggedin.com/movie-reviews/spider-man-brand-new-day-2026/)
+- **Spider-Man: Brand New Day First Reviews: The Most Grounded, Mature Spider-Man Story Yet**: [Link](https://editorial.rottentomatoes.com/article/spider-man-brand-new-day-first-reviews/)
+
+
+### betis – lyon (N/A, Wed, 29 Jul 2026 11:00:00 -0700)
+
+- **Real Betis vs. Lyon LIVE: Kickoff time and how to watch the international friendly**: [Link](https://www.beinsports.com/en-us/soccer/articles/how-and-where-to-watch-real-betis-vs-lyon-live-on-bein-sports-2026-07-29)
+- **Real Betis vs Lyon Prediction: The French will put up a strong fight against the Sevillians**: [Link](https://www.telecomasia.net/sports-betting/tips/football/real-betis-vs-lyon-match-prediction-29-july-2026/)
+
+
+### غش (N/A, Wed, 29 Jul 2026 11:00:00 -0700)
+
+- **وزارة التعليم العالي تواجه "غش مباراة كليات الطب" بالنقاش والتحقيق**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%8A-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%BA%D8%B4-%D8%A7%D9%84%D8%B7%D8%A8-%D8%A8%D8%A7-1784339.html)
+- **أساتذة كليات الطب غاضبون من الغش في امتحانات الولوج ويحملون الوزارة المسؤولية – اليوم 24**: [Link](https://alyaoum24.com/2035563.html)
+- **الفرقة الوطنية تواصل التحقيق في تسجيل مصور بشأن «مزاعم تسريب أجوبة مباراة ولوج كليات الطب والصيدلة**: [Link](https://www.telegraphe.ma/%D8%A7%D9%84%D9%81%D8%B1%D9%82%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%8A-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%85%D8%B5%D9%88%D8%B1-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D8%B2%D8%A7%D8%B9%D9%85-%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8-%D8%A3%D8%AC%D9%88%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D9%84%D9%88%D8%AC-%D9%83%D9%84%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D8%A8-%D9%88%D8%A7%D9%84%D8%B5%D9%8A%D8%AF%D9%84%D8%A9)
+
+
+### real racing club (N/A, Wed, 29 Jul 2026 11:00:00 -0700)
+
+- **Mercado de Fichajes: El Racing, cerca de incorporar al internacional marroquí Yassir Zabiri**: [Link](https://es.le360.ma/deportes/mercado-de-fichajes-el-racing-cerca-de-incorporar-al-internacional-marroqui-yassir-zabiri_B5O65PZR7ZCXXK4B5KZOQJFJNI/)
+- **El Racing cierra al delantero Yassir Zabiri, internacional con Marruecos**: [Link](https://as.com/futbol/primera/el-racing-cierra-al-delantero-yassir-zabiri-internacional-con-marruecos-f202607-n/)
+- **El Racing de Santander, cerca de cerrar un fichaje**: [Link](https://www.fichajes.com/a3206078820879530090-el-racing-de-santander-cerca-de-cerrar-un-fichaje)
+
+
+### juan carlos ier (N/A, Wed, 29 Jul 2026 11:00:00 -0700)
+
+- **Séparés depuis six ans, le roi Juan Carlos et la reine Sofia se sont retrouvés**: [Link](https://soirmag.lesoir.be/762017/article/2026-07-29/separes-depuis-six-ans-le-roi-juan-carlos-et-la-reine-sofia-se-sont-retrouves)
+- **Après 6 ans d’absence, Juan Carlos de retour auprès de Sofia et Felipe à Marivent**: [Link](https://www.parismatch.com/Royal-Blog/apres-6-ans-dabsence-juan-carlos-de-retour-aupres-de-sofia-et-felipe-a-marivent-273399)
+- **Juan Carlos de retour à Majorque après 8 ans d’absence : la raison de son voyage n’est pas celle qu’on croit !**: [Link](https://www.gala.fr/royautes/juan-carlos-de-retour-a-majorque-apres-8-ans-d-absence-la-raison-de-son-voyage-n-est-pas-celle-qu-on-croit-20260728)
+
+
+### feu (N/A, Wed, 29 Jul 2026 10:50:00 -0700)
+
+- **Les pompiers maîtrisent un feu dans un champ à Beauvoir-sur-Mer**: [Link](https://www.ouest-france.fr/pays-de-la-loire/beauvoir-sur-mer-85230/les-pompiers-maitrisent-un-feu-dans-un-champ-a-beauvoir-sur-mer-77304818-8b6f-11f1-8f47-ec3d1e1ec01b)
+- **Trente sapeurs-pompiers vendéens mobilisés pour maîtriser deux feux de chaume et de végétation**: [Link](https://my-angers.info/07/28/trente-sapeurs-pompiers-vendeens-mobilises-pour-maitriser-deux-feux-de-chaume-et-de-vegetation/191538)
+- **Des incendies dans deux champs de chaume en Vendée**: [Link](https://larochesuryon.maville.com/actu/actudet_-des-incendies-dans-deux-champs-de-chaume-en-vendee-_15-7421834_actu.Htm)
+
+
 ### girona – castellón (N/A, Wed, 29 Jul 2026 10:00:00 -0700)
 
 - **EN VIVO Girona vs Castellón: Castellón iguala 1-1**: [Link](https://www.vietnam.vn/es/truc-tieptruc-tiep-girona-vs-castellon-castellon-go-hoa-1-1)
