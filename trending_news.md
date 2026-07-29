@@ -1,3 +1,29 @@
+### عبد الله وزان (N/A, Wed, 29 Jul 2026 03:20:00 -0700)
+
+
+
+
+### tottenham – sydney fc (N/A, Wed, 29 Jul 2026 03:00:00 -0700)
+
+- **Archie Gray and Lucas Bergvall go on an adventure and the unusual thing Tottenham found in Sydney**: [Link](https://www.football.london/tottenham-hotspur-fc/news/archie-gray-lucas-bergvall-go-34362840)
+- **Tottenham Hotspur vs Sydney: Sydney Super Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c86np7j9x5jt)
+- **Watch: Spurs winger lured by Ange scores sparkling free kick in Australia against Sydney FC**: [Link](https://football360.com.au/mathys-tel-tottenham-sydney-fc-goal-sydney-super-cup/)
+
+
+### kavinsky (N/A, Wed, 29 Jul 2026 02:20:00 -0700)
+
+- **French DJ Kavinsky found dead in Paris home**: [Link](https://www.france24.com/en/france/20260729-french-dj-kavinsky-found-dead-in-paris-home)
+- **Kavinsky, French DJ behind iconic ‘Nightcall’, has died at 50**: [Link](https://weraveyou.com/2026/07/kavinsky-french-dj-nightcall-drive-dies-50-paris/)
+- **French electro producer Kavinsky dies at 50 in Paris**: [Link](https://uz.kursiv.media/en/2026-07-29/french-electro-pioneer-kavinsky-creator-of-nightcall-dies-at-50/)
+
+
+### الأردن (N/A, Wed, 29 Jul 2026 02:10:00 -0700)
+
+- **إيران مباشر.. ضربات سعودية أمريكية في العراق والأردن يعلن التصدى لصواريخ إيرانية**: [Link](https://www.aljazeera.net/news/liveblog/2026/7/29/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%A8%D8%A7%D8%AF%D9%84-%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2)
+- **الجيش الأميركي يعلن التصدي لهجمات صاروخية إيرانية**: [Link](https://www.skynewsarabia.com/middle-east/1883395-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%AA%D8%B5%D8%AF%D9%8A-%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9)
+- **الأردن يعترض صواريخ إيرانية، والحرس الثوري يوقف ثلاث ناقلات نفط في مضيق هرمز**: [Link](https://www.bbc.com/arabic/articles/c20j10zlmreo)
+
+
 ### aéroport (N/A, Wed, 29 Jul 2026 00:50:00 -0700)
 
 - **Aéroports du Maroc : Casablanca et Marrakech en tête sur les temps de passage aux contrôles frontaliers**: [Link](https://mobile.telquel.ma/instant-t/2026/07/28/aeroports-du-maroc-casablanca-et-marrakech-en-tete-sur-les-temps-de-passage-aux-controles-frontaliers_2001070/)
