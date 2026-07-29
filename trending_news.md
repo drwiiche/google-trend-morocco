@@ -1,3 +1,17 @@
+### avocat (N/A, Wed, 29 Jul 2026 09:20:00 -0700)
+
+- **Avocats recherchés! Les offres d'emploi les plus hot du 29 juillet**: [Link](https://droit-inc.com/conseils-carriere/top-des-emplois/avocats-recherches-les-offres-demploi-les-plus-hot-du-29-juillet)
+- **Avocats recherchés! Les offres d'emploi les plus hot du 22 juillet**: [Link](https://droit-inc.com/conseils-carriere/top-des-emplois/avocats-recherches-les-offres-demploi-les-plus-hot-du-22-juillet)
+- **Affaire Abderrahim Fakir: l’avocat de la famille réclame le dessaisissement de la police de Bologne**: [Link](https://fr.le360.ma/societe/affaire-abderrahim-fakir-lavocat-de-la-famille-reclame-le-dessaisissement-de-la-police-de-bologne_MGEWE65CVRDWPEHUT35MN2XTC4/)
+
+
+### عبد الصمد الزلزولي (N/A, Wed, 29 Jul 2026 08:10:00 -0700)
+
+- **لعاب برشلونة يسيل.. الزلزولي مطلوب في إيطاليا برقم ضخم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%B9%D8%A7%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D9%8A%D9%84--%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%85%D8%B7%D9%84%D9%88%D8%A8-%D9%81%D9%8A-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D8%B1%D9%82%D9%85-%D8%B6%D8%AE%D9%85/blta3963e75e5b89df6)
+- **بيتيس يراهن على عودة الزلزولي وأندية أوروبا تترقب**: [Link](https://www.aljazeera.net/sport/2026/7/28/%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%AA%D8%A3%D9%84%D9%82)
+- **روما يراقب المغربي الزلزولي وقيمة الصفقة قد تعرقلها**: [Link](https://www.alquds.co.uk/%D8%B1%D9%88%D9%85%D8%A7-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%88%D9%82%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%B5/)
+
+
 ### فساد (N/A, Wed, 29 Jul 2026 07:20:00 -0700)
 
 - **اتهم نساء المدينة بـ"الفساد".. غضب واسع بالجديدة بعد فيديو مسيء**: [Link](https://ar.hibapress.com/details-744524.html)
