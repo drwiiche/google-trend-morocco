@@ -1,3 +1,17 @@
+### neymar (N/A, Tue, 28 Jul 2026 20:10:00 -0700)
+
+- **Miguelito y Santos, por el boleto a los octavos de la Sudamericana**: [Link](https://diez.bo/futbol/miguelito-y-santos-por-el-boleto-a-los-octavos-de-la-sudamericana_1785240340)
+- **El Macará de Ecuador será el próximo rival de los brasileros**: [Link](https://fdpradio.com/el-macara-de-ecuador-sera-el-proximo-rival-de-los-brasileros/)
+- **UCV FC cerró su participación en la Sudamericana**: [Link](https://www.lavinotinto.com/ucv-fc-cerro-su-participacion-en-la-sudamericana/)
+
+
+### séisme japon (N/A, Tue, 28 Jul 2026 20:10:00 -0700)
+
+- **Au Japon, un séisme de magnitude 7,1 fait au moins 13 morts et une centaine de blessés**: [Link](https://www.lemonde.fr/international/article/2026/07/28/seisme-au-japon-tremblement-de-terre-de-magnitude-7-1-au-moins-un-mort-et-des-dizaines-de-blesses_6734975_3211.html)
+- **Séisme au Japon: cinq morts, des personnes toujours piégées dans un centre commercial effondré**: [Link](https://medias24.com/agence-presse/seisme-au-japon-cinq-morts-des-personnes-toujours-piegees-dans-un-centre-commercial-effondre/)
+- **Un séisme de magnitude 7,1 frappe le sud du Japon, alerte au tsunami**: [Link](https://fr.hespress.com/483125-un-seisme-de-magnitude-71-frappe-le-sud-du-japon-alerte-au-tsunami.html)
+
+
 ### مضيق هرمز (N/A, Tue, 28 Jul 2026 16:00:00 -0700)
 
 - **إيران مباشر.. تبادل رسائل بشأن مضيق هرمز والسعودية تتصدى لهجوم بمسيّرات**: [Link](https://www.aljazeera.net/news/liveblog/2026/7/29/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%A8%D8%A7%D8%AF%D9%84-%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2)
