@@ -1,3 +1,17 @@
+### girona – castellón (N/A, Wed, 29 Jul 2026 10:00:00 -0700)
+
+- **EN VIVO Girona vs Castellón: Castellón iguala 1-1**: [Link](https://www.vietnam.vn/es/truc-tieptruc-tiep-girona-vs-castellon-castellon-go-hoa-1-1)
+- **La previa | El Castellón, a por el Girona en su tercer amistoso... ¿con los debuts de Fran Castillo, Antonio Gala y David Nzanza?**: [Link](https://www.elperiodicomediterraneo.com/cd-castellon/2026/07/29/previa-castellon-girona-tercer-amistoso-132895791.html)
+- **Horario, canal y dónde ver por TV el Girona - Castellón de pretemporada de fútbol hoy**: [Link](https://www.mundodeportivo.com/horarios/futbol/20260728/1004210582/horario-canal-ver-tv-girona-castellon-pretemporada.html)
+
+
+### racing santander (N/A, Wed, 29 Jul 2026 02:30:00 -0700)
+
+- **Mercado de Fichajes: El Racing, cerca de incorporar al internacional marroquí Yassir Zabiri**: [Link](https://es.le360.ma/deportes/mercado-de-fichajes-el-racing-cerca-de-incorporar-al-internacional-marroqui-yassir-zabiri_B5O65PZR7ZCXXK4B5KZOQJFJNI/)
+- **El Racing cierra al delantero Yassir Zabiri, internacional con Marruecos**: [Link](https://as.com/futbol/primera/el-racing-cierra-al-delantero-yassir-zabiri-internacional-con-marruecos-f202607-n/)
+- **El Racing de Santander, cerca de cerrar un fichaje**: [Link](https://www.fichajes.com/a3206078820879530090-el-racing-de-santander-cerca-de-cerrar-un-fichaje)
+
+
 ### avocat (N/A, Wed, 29 Jul 2026 09:20:00 -0700)
 
 - **Avocats recherchés! Les offres d'emploi les plus hot du 29 juillet**: [Link](https://droit-inc.com/conseils-carriere/top-des-emplois/avocats-recherches-les-offres-demploi-les-plus-hot-du-29-juillet)
