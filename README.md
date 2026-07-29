@@ -1,3 +1,45 @@
+### real betis - lyon (N/A, Wed, 29 Jul 2026 12:50:00 -0700)
+
+- **Betis Séville-OL: les Gones sombrent complètement pour leur dernier match amical avant la Ligue des champions**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-lyon/direct-betis-seville-ol-suivez-en-live-le-match-amical-de-l-olympique-lyonnais_LS-202607290450.html)
+- **Betis Seville - OL : 45 minutes pour revenir dans ce match ! (0-2)**: [Link](https://www.ol.fr/fr/actualites/betis-seville-ol-compte-rendu)
+- **Suivez la rencontre entre l’OL et le Betis Séville en direct commenté**: [Link](https://www.footmercato.net/a7087978432852845115-suivez-la-rencontre-entre-lol-et-le-betis-seville-en-direct-commente)
+
+
+### pape thiaw (N/A, Wed, 29 Jul 2026 12:30:00 -0700)
+
+- **Le Sénégal devrait finalement conserver Pape Thiaw sur son banc !**: [Link](https://www.footmercato.net/a1128324073083222451-le-senegal-devrait-finalement-conserver-pape-thiaw-sur-son-banc)
+- **[Analyse] Équipe du Sénégal : Pourquoi Patrick Vieira n'est pas l'homme de la situation**: [Link](https://www.seneweb.com/fr/news/Sport/analyse-equipe-du-senegal-pourquoi-patrick-vieira-nest-pas-lhomme-de-la-situation_n_499753.html)
+- **L’équation du sélectionneur national, la Fédération au pied du mur**: [Link](https://www.seneplus.com/article/lequation-du-selectionneur-national-la-federation-au-pied-du-mur)
+
+
+### betis vs ol (N/A, Wed, 29 Jul 2026 12:20:00 -0700)
+
+- **Un amistoso de Champions para Pellegrini**: [Link](https://as.com/futbol/primera/un-amistoso-de-champions-para-pellegrini-f202607-n/)
+- **El Real Betis busca crecer ante el Lyon en La Línea**: [Link](https://onefootball.com/id/berita/el-real-betis-busca-crecer-ante-el-lyon-en-la-linea-43201112)
+- **El 34º Trofeo Ciudad de La Línea recupera su dimensión internacional con el enfrentamiento entre el Real Betis y el Olympique de Lyon**: [Link](https://lalinea.es/el-34o-trofeo-ciudad-de-la-linea-recupera-su-dimension-internacional-con-el-enfrentamiento-entre-el-real-betis-y-el-olympique-de-lyon/)
+
+
+### أتلتيكو مدريد ضد خيتافي (N/A, Wed, 29 Jul 2026 12:10:00 -0700)
+
+- **توقعات مباراة أتلتيكو مدريد وخيتافي: التشكيلات المتوقعة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-atletico-de-madrid-vs-getafe-doi-hinh-du-kien)
+- **مباشر: تينيريفي ضد خيتافي: في نهاية الشوط الأول، يتقدم تينيريفي بنتيجة 1-0**: [Link](https://www.vietnam.vn/ar/truc-tieptruc-tiep-tenerife-vs-getafe-het-hiep-1-tenerife-dan-1-0)
+- **مباراة تينيريفي ضد خيتافي مباشرة: المباراة جارية**: [Link](https://www.vietnam.vn/ar/truc-tieptruc-tiep-tenerife-vs-getafe-tran-dau-dang-dien-ra)
+
+
+### أسير (N/A, Wed, 29 Jul 2026 12:10:00 -0700)
+
+- **"تفاخر بالتنكيل".. مجندة إسرائيلية تنشر صورة مع أسير مقيد وتضطر لحذفها**: [Link](https://www.aljazeera.net/news/2026/7/29/%D8%AA%D9%81%D8%A7%D8%AE%D8%B1-%D8%A8%D8%A7%D9%84%D8%AA%D9%86%D9%83%D9%8A%D9%84-%D9%85%D8%AC%D9%86%D8%AF%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1)
+- **بالصور مجندة إسرائيلية تتباهى باعتقال فلسطيني مكبّل بشكل إجرامي**: [Link](https://shehabnews.com/post/161220/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D9%85%D8%AC%D9%86%D8%AF%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%AA%D8%A8%D8%A7%D9%87%D9%89-%D8%A8%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A-%D9%85%D9%83%D8%A8-%D9%84-%D8%A8%D8%B4%D9%83%D9%84-%D8%A5%D8%AC%D8%B1%D8%A7%D9%85%D9%8A)
+- **تفاخر بالتنكيل.. مجندة إسرائيلية تنشر صورة لأسير فلسطيني**: [Link](https://felesteen.news/post/184224/%D8%AA%D9%81%D8%A7%D8%AE%D8%B1-%D8%A8%D8%A7%D9%84%D8%AA%D9%86%D9%83%D9%8A%D9%84-%D9%85%D8%AC%D9%86%D8%AF%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%A9-%D9%84%D8%A3%D8%B3%D9%8A%D8%B1-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A)
+
+
+### الخطاب الملكي (N/A, Wed, 29 Jul 2026 11:50:00 -0700)
+
+- **جلالة الملك يوجه اليوم الأربعاء خطابا ساميا إلى شعبه الوفي بمناسبة عيد العرش المجيد**: [Link](https://www.pjd.ma/232407-%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%AE%D8%B7%D8%A7%D8%A8%D8%A7.html)
+- **الملك محمد السادس يوجه خطابًا إلى الشعب المغربي مساء اليوم بمناسبة عيد العرش**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D9%88%D8%AC%D9%87-%D8%AE%D8%B7%D8%A7%D8%A8%D9%8B%D8%A7-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B4%D8%B9/)
+- **عيد العرش يطل على الانتخابات.. الملك يكرس نزاهة وشفافية الاستحقاقات**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D9%8A%D8%B7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%83%D8%B1-1784041.html)
+
+
 ### atlético madrid – getafe (N/A, Wed, 29 Jul 2026 11:40:00 -0700)
 
 - **Atlético - Getafe, en directo: amistoso de pretemporada, hoy, en vivo**: [Link](https://as.com/futbol/primera/atletico-getafe-en-directo-amistoso-de-pretemporada-hoy-en-vivo-f202607-d/)
