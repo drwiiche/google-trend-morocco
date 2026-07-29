@@ -1,3 +1,38 @@
+### latest iphone rumors (N/A, Wed, 29 Jul 2026 14:40:00 -0700)
+
+- **iPhone 18 Pro vs iPhone Ultra: Here are the biggest differences**: [Link](https://9to5mac.com/2026/07/29/iphone-18-pro-vs-iphone-ultra-here-are-biggest-differences/)
+- **iPhone 18 Leaks Point to A20 Chip, 12GB RAM, Camera Upgrade and a Smaller Dynamic Island**: [Link](https://ascendants.in/spotlight/iphone-18-leaks-a20-chip-12gb-ram-camera-display-upgrades/)
+- **iPhone 18 Pro and Pro Max: Production at Foxconn started**: [Link](https://www.heise.de/en/news/iPhone-18-Pro-and-Pro-Max-Production-at-Foxconn-started-11380507.html)
+
+
+### عفو (N/A, Wed, 29 Jul 2026 14:30:00 -0700)
+
+- **الملك يصدر العفو على 1788 شخصا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%B9%D9%84%D9%89-1788-%D8%B4%D8%AE%D8%B5%D8%A7-1784472.html)
+- **بمناسبة عيد العرش.. جلالة الملك يصدر عفواً ملكياً لفائدة 1788 شخصاً**: [Link](https://2m.ma/ar/news/%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%B9%D9%81%D9%88%D8%A7-%D9%85%D9%84%D9%83%D9%8A%D8%A7-%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9-1788-%D8%B4%D8%AE%D8%B5%D8%A7-20260729)
+- **عفو ملكي يشمل 1788 شخصا بمناسبة ذكرى عيد العرش**: [Link](https://tanja24.com/%D8%B9%D9%81%D9%88-%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%B4%D9%85%D9%84-1788-%D8%B4%D8%AE%D8%B5%D8%A7-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B0%D9%83%D8%B1%D9%89-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84/)
+
+
+### stock market news today (N/A, Wed, 29 Jul 2026 14:30:00 -0700)
+
+- **Dow dives, S&P 500 trades lower in volatile market following Fed decision: Live updates**: [Link](https://www.cnbc.com/2026/07/28/stock-market-today-live-updates.html)
+- **U.S. Stocks Slide After Fed Pause, Escalation in Iran War**: [Link](https://www.wsj.com/finance/stocks/u-s-stocks-slide-after-fed-pause-escalation-in-iran-war-083d45b1)
+- **TRADING DAY All Warshed up**: [Link](https://www.reuters.com/commentary/reuters-open-interest/global-markets-trading-day-graphic-2026-07-29/)
+
+
+### 2m (N/A, Wed, 29 Jul 2026 13:30:00 -0700)
+
+- **€2M price reduction on 48m Admiral motor yacht Althea**: [Link](https://www.boatinternational.com/yacht-market-intelligence/brokerage-sales-news/48m-admiral-motor-yacht-althea-for-sale)
+- **Dawley housing scheme boosted by £2m WMCA grant**: [Link](https://www.placemidlands.co.uk/west-midlands-mayor-backs-telford-housing-scheme-with-2m-loan/)
+- **Mayor announces another multi-million-pound investment to provide affordable new homes in Telford**: [Link](https://www.wmca.org.uk/news/mayor-announces-another-multi-million-pound-investment-to-provide-affordable-new-homes-in-telford/)
+
+
+### snrt (N/A, Wed, 29 Jul 2026 13:00:00 -0700)
+
+- **Discours du Trône. Comment le Maroc est devenu un acteur international crédible, respecté et écouté**: [Link](https://fr.le360.ma/politique/discours-du-trone-comment-le-maroc-est-devenu-un-acteur-international-credible-respecte-et-ecoute_YA46WV6MGJHANMJ6AQV3HAVMGA/)
+- **Bank Al-Maghrib émet une pièce commémorative du 27ème Anniversaire de l'Intronisation de S.M. le Roi Mohammed VI**: [Link](https://lematin.ma/nation/bam-emet-une-piece-commemorative-a-loccasion-de-la-fete-du-trone/358508)
+- **Revue de presse de ce mercredi 29 juillet 2026**: [Link](https://fr.hespress.com/483276-revue-de-presse-de-ce-mercredi-29-juillet-2026.html)
+
+
 ### fouzi lekjaa pam (N/A, Wed, 29 Jul 2026 13:40:00 -0700)
 
 - **Dans les coulisses du ralliement chaotique de Lekjaa au PAM**: [Link](https://ledesk.ma/grandangle/dans-les-coulisses-du-ralliement-chaotique-de-lekjaa-au-pam/)
