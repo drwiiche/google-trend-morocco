@@ -1,3 +1,31 @@
+### liverpool vs wrexham (N/A, Wed, 29 Jul 2026 16:00:00 -0700)
+
+- **Confirmed Liverpool line-up v Wrexham in New York**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-wrexham-new-york)
+- **Wrexham Association Football Club**: [Link](https://www.wrexhamafc.co.uk/news/2026/july/29/preview--wrexham-afc-vs-liverpool/)
+- **Wrexham's Liverpool clash in New York is 'punch me moment' says Ryan Reynolds**: [Link](https://www.northwaleschronicle.co.uk/sport/26421243.rob-ryan-look-forward-wrexhams-game-liverpool/)
+
+
+### ليفربول ضد ريكسهام (N/A, Wed, 29 Jul 2026 16:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ليفربول وريكسهام الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%B1%D9%8A%D9%83%D8%B3%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt152f570180d61e24)
+- **لفت الأنظار باحتفال السجود.. من هو كيران موريسون موهبة ليفربول الصاعدة؟ (صورة)**: [Link](https://www.eremnews.com/sports/gxi86hq)
+- **إصابة جو غوميز تعكر أول فوز لليفربول في عهد أندوني إيراولا**: [Link](https://www.independentarabia.com/node/654269/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AC%D9%88-%D8%BA%D9%88%D9%85%D9%8A%D8%B2-%D8%AA%D8%B9%D9%83%D8%B1-%D8%A3%D9%88%D9%84-%D9%81%D9%88%D8%B2-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%B9%D9%87%D8%AF-%D8%A3%D9%86%D8%AF%D9%88%D9%86%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7)
+
+
+### discours roi maroc (N/A, Wed, 29 Jul 2026 16:00:00 -0700)
+
+- **Discours du Trône. Comment le Maroc est devenu un acteur international crédible, respecté et écouté**: [Link](https://fr.le360.ma/politique/discours-du-trone-comment-le-maroc-est-devenu-un-acteur-international-credible-respecte-et-ecoute_YA46WV6MGJHANMJ6AQV3HAVMGA/)
+- **Fête du Trône : Mohammed VI dresse le bilan de 27 ans de règne et appelle à consolider les acquis**: [Link](https://ledesk.ma/2026/07/29/fete-du-trone-mohammed-vi-dresse-le-bilan-de-27-ans-de-regne-et-appelle-a-consolider-les-acquis/)
+- **Bank Al-Maghrib émet une pièce commémorative du 27ème Anniversaire de l'Intronisation de S.M. le Roi Mohammed VI**: [Link](https://lematin.ma/nation/bam-emet-une-piece-commemorative-a-loccasion-de-la-fete-du-trone/358508)
+
+
+### وزير التعليم (N/A, Wed, 29 Jul 2026 15:10:00 -0700)
+
+- **تحرك برلماني بمصر لمواجهة «الغش الجماعي» في امتحانات الثانوية العامة**: [Link](https://www.alkhaleej.ae/2026-07-29/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%AA%D8%AD%D8%B1%D9%83-%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86%D9%8A-%D8%A8%D9%85%D8%B5%D8%B1-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%BA%D8%B4-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A-%D9%81%D9%8A-%D8%A7%D9%85%D8%AA%D8%AD%D8%A7%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9)
+- **أول الثانوية العامة علمي علوم: لم أهتم بالتشكيك في النتيجة.. وربنا نصر المدرسة**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=30072026&id=59d65ee2-325b-4981-adc5-87e9c0a0935c)
+- **إعادة امتحان الطالب الأول في الثانوية العامة بمصر.. لماذا أثارت نتائج لجنة فاقوس الشكوك؟**: [Link](https://al-ain.com/article/top-student-sparks-nationwide-debate)
+
+
 ### latest iphone rumors (N/A, Wed, 29 Jul 2026 14:40:00 -0700)
 
 - **iPhone 18 Pro vs iPhone Ultra: Here are the biggest differences**: [Link](https://9to5mac.com/2026/07/29/iphone-18-pro-vs-iphone-ultra-here-are-biggest-differences/)
