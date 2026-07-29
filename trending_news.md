@@ -1,3 +1,17 @@
+### مضيق هرمز (N/A, Tue, 28 Jul 2026 16:00:00 -0700)
+
+- **إيران مباشر.. تبادل رسائل بشأن مضيق هرمز والسعودية تتصدى لهجوم بمسيّرات**: [Link](https://www.aljazeera.net/news/liveblog/2026/7/29/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%A8%D8%A7%D8%AF%D9%84-%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D8%A8%D8%B4%D8%A3%D9%86-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2)
+- **عراقجي يبحث مع نظيريه العماني والسعودي قضايا إقليمية**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%B9%D8%B1%D8%A7%D9%82%D8%AC%D9%8A-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%85%D8%B9-%D9%86%D8%B8%D9%8A%D8%B1%D9%8A%D9%87-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%86%D9%8A-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%82%D8%B6%D8%A7%D9%8A%D8%A7-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9/4011107)
+- **ماذا نعرف عن نموذج إدارة مضيق ملقا المقترح تطبيقه في هرمز؟**: [Link](https://www.alaraby.co.uk/politics/%D9%85%D8%A7%D8%B0%D8%A7-%D9%86%D8%B9%D8%B1%D9%81-%D8%B9%D9%86-%D9%86%D9%85%D9%88%D8%B0%D8%AC-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%85%D8%B6%D9%8A%D9%82-%D9%85%D9%84%D9%82%D8%A7-%D8%A7%D9%84%D9%85%D9%82%D8%AA%D8%B1%D8%AD-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82%D9%87-%D9%81%D9%8A-%D9%87%D8%B1%D9%85%D8%B2)
+
+
+### طنجة (N/A, Tue, 28 Jul 2026 15:30:00 -0700)
+
+- **"طالبت بحقي فتعرضت للاعتداء".. عامل نسيج يكشف تفاصيل صادمة من قلب المنطقة الصناعية اكزناية**: [Link](https://tanjanews.com/188320.html)
+- **اتهامات بالاعتداء وتكبيل عامل بطنجة تثير غضبا واسعا ودعوات للتحقيق (فيديو)**: [Link](https://www.achkayen.com/694022/.html)
+- **​"تكبيل" وتعنيف شاب داخل معمل خياطة بـ "اكزناية" طنجة يجران غضبا عارما بين المغاربة**: [Link](https://www.akhbarona.com/society/429955.html)
+
+
 ### el niño (N/A, Tue, 28 Jul 2026 14:50:00 -0700)
 
 - **🇵🇪Keiko Fujimori ha jurado como presidenta de Perú para los próximos cinco años. Es la primera mujer en llegar al cargo y su llegada supone el noveno presidente en 10 años y el regreso del fujimorismo.**: [Link](https://www.instagram.com/reel/DbWbdaxiS5X/)
