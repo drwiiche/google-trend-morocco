@@ -1,3 +1,22 @@
+### aéroport (N/A, Wed, 29 Jul 2026 00:50:00 -0700)
+
+- **Aéroports du Maroc : Casablanca et Marrakech en tête sur les temps de passage aux contrôles frontaliers**: [Link](https://mobile.telquel.ma/instant-t/2026/07/28/aeroports-du-maroc-casablanca-et-marrakech-en-tete-sur-les-temps-de-passage-aux-controles-frontaliers_2001070/)
+- **Aéroports marocains : jusqu'à 70% de réduction des temps d'attente aux frontières**: [Link](https://lematin.ma/nation/aeroports-les-temps-dattente-aux-controles-aux-frontieres-en-baisse/358428)
+- **Airports of Morocco réduit les temps de passage jusqu’à 70%, Casablanca et Marrakech en tête**: [Link](https://fr.le360.ma/economie/airports-of-morocco-reduit-les-temps-de-passage-jusqua-70-casablanca-et-marrakech-en-tete_KEX5P2CXQRG6PLJ76MK2Y7ZKWI/)
+
+
+### jean messiha (N/A, Wed, 29 Jul 2026 00:50:00 -0700)
+
+- **La chanteuse Zazie annonce porter plainte après la diffusion sur internet de fausses informations faites en son nom**: [Link](https://www.franceinfo.fr/culture/musique/chanson-francaise/la-chanteuse-zazie-annonce-porter-plainte-apres-la-diffusion-sur-internet-de-fausses-informations-faites-en-son-nom_8123744.html)
+- **"L’islamisme n’existe pas : l’extrême droite vous manipule" : mais qui a usurpé l’identité de la chanteuse Zazie**: [Link](https://www.midilibre.fr/2026/07/27/lislamisme-nexiste-pas-lextreme-droite-vous-manipule-mais-qui-a-usurpe-lidentite-de-la-chanteuse-zazie-13486172.php)
+- **"Des propos que je n'ai jamais tenus" : Au cœur d'une fake news politique, Zazie dénonce une atteinte à son image et porte plainte**: [Link](https://www.ozap.com/actu/des-propos-que-je-nai-jamais-tenus-au-coeur-dune-fake-news-politique-zazie-denonce-une-atteinte-a-son-image-et-porte-plainte/656194)
+
+
+### dette (N/A, Tue, 28 Jul 2026 19:50:00 -0700)
+
+
+
+
 ### fête du trône (N/A, Tue, 28 Jul 2026 22:50:00 -0700)
 
 - **S.M. le Roi adresse mercredi un Discours à Son peuple fidèle à l'occasion de la Glorieuse Fête du Trône**: [Link](https://maroc-diplomatique.net/s-m-le-roi-adresse-mercredi-un-discours-a-son-peuple-fidele-a-loccasion-de-la-glorieuse-fete-du-trone/)
