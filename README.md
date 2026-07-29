@@ -1,3 +1,17 @@
+### fête du trône (N/A, Tue, 28 Jul 2026 22:50:00 -0700)
+
+- **S.M. le Roi adresse mercredi un Discours à Son peuple fidèle à l'occasion de la Glorieuse Fête du Trône**: [Link](https://maroc-diplomatique.net/s-m-le-roi-adresse-mercredi-un-discours-a-son-peuple-fidele-a-loccasion-de-la-glorieuse-fete-du-trone/)
+- **Fête du Trône : discours du Roi Mohammed VI ce mercredi à 21 h**: [Link](https://medias24.com/2026/07/28/fete-du-trone-discours-du-roi-mohammed-vi-ce-mercredi-a-21h-1732153/)
+- **Fête du Trône : les FAR organisent des shows aériens et des sauts d'exhibition en parachutes**: [Link](https://lematin.ma/nation/fete-du-trone-les-far-organisent-des-shows-aeriens/358286)
+
+
+### impot maroc (N/A, Tue, 28 Jul 2026 21:00:00 -0700)
+
+- **Impôt sur les sociétés : le Maroc devient presque champion du monde**: [Link](https://www.bladi.net/impot-societes-maroc-devient-presque-champion-monde,122777.html)
+- **Fiscalité : Le Maroc dans le top mondial des taux d’IS**: [Link](https://lopinion.ma/actu-maroc/fiscalite--le-maroc-dans-le-top-mondial-des-taux-dis-_a31841?articleId=ccbe83fd-aca7-4fda-b7bd-793bb2c368cb)
+- **Impôt sur les sociétés : le Maroc champion d’Afrique**: [Link](https://leseco.ma/maroc/impot-sur-les-societes-le-maroc-champion-dafrique.html)
+
+
 ### neymar (N/A, Tue, 28 Jul 2026 20:10:00 -0700)
 
 - **Miguelito y Santos, por el boleto a los octavos de la Sudamericana**: [Link](https://diez.bo/futbol/miguelito-y-santos-por-el-boleto-a-los-octavos-de-la-sudamericana_1785240340)
