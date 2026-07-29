@@ -1,3 +1,24 @@
+### fouzi lekjaa pam (N/A, Wed, 29 Jul 2026 13:40:00 -0700)
+
+- **Dans les coulisses du ralliement chaotique de Lekjaa au PAM**: [Link](https://ledesk.ma/grandangle/dans-les-coulisses-du-ralliement-chaotique-de-lekjaa-au-pam/)
+- **Au Maroc, le patron du football, Fouzi Lekjaa, enfile son costume de premier ministrable**: [Link](https://www.lemonde.fr/afrique/article/2026/07/28/au-maroc-le-patron-du-football-fouzi-lekjaa-enfile-son-costume-de-premier-ministrable_6735076_3212.html)
+- **[Tribune] La campagne avant la campagne : ce que révèle la compétition au sein de la majorité**: [Link](https://mobile.telquel.ma/2026/07/28/tribune-la-campagne-avant-la-campagne-ce-que-revele-la-competition-au-sein-de-la-majorite_2000881)
+
+
+### ipswich town – osasuna (N/A, Wed, 29 Jul 2026 13:00:00 -0700)
+
+- **Emersonn and Fatawu Start Against Osasuna**: [Link](https://www.twtd.co.uk/ipswich-town-news/52413/emersonn-and-fatawu-start-against-osasuna)
+- **Matchday Live: Ipswich Town v Osasuna**: [Link](https://www.ipswichstar.co.uk/sport/26421388.ipswich-town-v-osasuna---live-updates-pre-season-friendly/)
+- **Ipswich vs Osasuna match lineup | Club Friendlies · 29 Jul 2026**: [Link](https://www.ysscores.com/en/lineup/5793428/Ipswich-Town-vs-CA-Osasuna)
+
+
+### انتخابات (N/A, Wed, 29 Jul 2026 13:00:00 -0700)
+
+- **قراءة في انتخابات "الليكود" الداخلية.. يتجه نحو "حمّام دم سياسي"**: [Link](https://arabi21.com/story/1778120/%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%84%D9%8A%D9%83%D9%88%D8%AF-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D9%8A%D8%AA%D8%AC%D9%87-%D9%86%D8%AD%D9%88-%D8%AD%D9%85%D8%A7%D9%85-%D8%AF%D9%85-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A)
+- **عضو الكنيست دافيد بيتون: "سنصوت ضد مقترحات رئيس الوزراء، فهناك صفقة غير مناسبة بينه وبين حاييم كاتس"**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/middle-east/artc-f2df7821)
+- **محكمة الليكود ترفض اقتراح نتنياهو إلغاء الانتخابات التمهيدية للحزب**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D9%83%D9%88%D8%AF-%D8%AA%D8%B1%D9%81%D8%B6-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%AD-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%85%D9%87%D9%8A%D8%AF%D9%8A%D8%A9-%D9%84%D9%84%D8%AD%D8%B2%D8%A8/4009842)
+
+
 ### real betis - lyon (N/A, Wed, 29 Jul 2026 12:50:00 -0700)
 
 - **Betis Séville-OL: les Gones sombrent complètement pour leur dernier match amical avant la Ligue des champions**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-lyon/direct-betis-seville-ol-suivez-en-live-le-match-amical-de-l-olympique-lyonnais_LS-202607290450.html)
