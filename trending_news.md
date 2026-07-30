@@ -1,3 +1,24 @@
+### ceuta (N/A, Wed, 29 Jul 2026 19:20:00 -0700)
+
+- **Cientos de africanos llegados cada día a las costas ceutíes revientan las costuras de la ciudad**: [Link](https://elpais.com/espana/2026-07-29/la-crisis-migratoria-en-ceuta-se-agrava-con-la-llegada-a-nado-de-47-personas-personas-mas.html)
+- **Las llegadas a nado desbordan Ceuta de inmigrantes magrebíes y colapsan su centro de extranjeros: "Es inevitable pensar que hay un 'efecto' llamada"**: [Link](https://www.elmundo.es/cronica/2026/07/29/6a69e86021efa096598b459f.html)
+- **Marruecos asegura que coopera para evitar la entrada masiva de sus nacionales en Ceuta**: [Link](https://www.larazon.es/espana/marruecos-asegura-que-coopera-evitar-entrada-masiva-sus-nacionales-ceuta_202607296a6a2fa471b42a0b5dcd55cd.html)
+
+
+### apple iphone 18 (N/A, Wed, 29 Jul 2026 17:20:00 -0700)
+
+- **iPhone 18 Pro vs iPhone Ultra: Here are the biggest differences**: [Link](https://9to5mac.com/2026/07/29/iphone-18-pro-vs-iphone-ultra-here-are-biggest-differences/)
+- **Apple wants to save money on the iPhone 18 Pro Max's screen - GSMArena.com news**: [Link](https://www.gsmarena.com/apple_wants_to_save_money_on_the_iphone_18_pro_maxs_screen-news-73877.php)
+- **iPhone 18 Leaks Point to A20 Chip, 12GB RAM, Camera Upgrade and a Smaller Dynamic Island**: [Link](https://ascendants.in/spotlight/iphone-18-leaks-a20-chip-12gb-ram-camera-display-upgrades/)
+
+
+### match maroc algerie can feminine (N/A, Wed, 29 Jul 2026 17:10:00 -0700)
+
+- **CAN Féminine Maroc 2026: Les Lionnes de l’Atlas poursuivent leurs entraînements**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-poursuivent-leurs-entrainements)
+- **CAN féminine Maroc-2026 : Jorge Vilda vise une victoire du Maroc face à l'Algérie pour se qualifier**: [Link](https://maroc-diplomatique.net/can-feminine-maroc-2026-jorge-vilda-vise-une-victoire-du-maroc-face-a-lalgerie/)
+- **CAN féminine 2026 : le Cameroun et le Ghana lancent leur campagne, le programme du jour**: [Link](https://fr.hespress.com/483299-can-feminine-2026-le-cameroun-et-le-ghana-lancent-leur-campagne-le-programme-du-jour.html)
+
+
 ### what is a heat dome (N/A, Wed, 29 Jul 2026 16:10:00 -0700)
 
 - **As extreme heat grips the South and West, here's how to stay safe**: [Link](https://www.npr.org/2026/07/29/nx-s1-5910515/heat-dome-stroke-weather)
