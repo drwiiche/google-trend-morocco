@@ -1,3 +1,52 @@
+### بابي ثياو (N/A, Thu, 30 Jul 2026 05:00:00 -0700)
+
+- **قد تصل للمحكمة.. أزمة جديدة تضرب الكرة السنغالية بسبب بابي ثياو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%AF-%D8%AA%D8%B5%D9%84-%D9%84%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9--%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A8%D8%A7%D8%A8%D9%8A-%D8%AB%D9%8A%D8%A7%D9%88/blt1a7e6172c9cb5bde)
+- **أزمة مالية بين الاتحاد السنغالي والحكومة بسبب عقد المدرب ثياو**: [Link](https://www.aljazeera.net/sport/2026/7/29/%D9%86%D9%8A%D9%85%D8%A7%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84)
+- **رغم إعلان إقالته.. رفض حكومي يعرقل رحيل مدرب السنغال**: [Link](https://www.alarabiya.net/sport/2026/07/29/%D8%B1%D8%BA%D9%85-%D8%A7%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%82%D8%A7%D9%84%D8%AA%D9%87-%D8%B1%D9%81%D8%B6-%D8%AD%D9%83%D9%88%D9%85%D9%8A-%D9%8A%D9%87%D8%AF%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%B9%D9%86-%D9%85%D9%86%D8%B5%D8%A8%D9%87)
+
+
+### sebta (N/A, Thu, 30 Jul 2026 04:10:00 -0700)
+
+- **Migration vers Sebta : quatre corps repêchés en 24 heures, le bilan grimpe à 27 morts**: [Link](https://mobile.telquel.ma/instant-t/2026/07/28/migration-vers-sebta-quatre-corps-repeches-en-24-heures-le-bilan-grimpe-a-27-morts_2000971/)
+- **Plus de 800 migrants tentent de traverser à la nage vers l’Espagne depuis le Maroc en une seule journée**: [Link](https://tanja7.com/fr/15967)
+- **Attentats en Europe et pression migratoire à Ceuta : une coïncidence qui accule le Maroc**: [Link](https://www.moroccomail.fr/2026/07/30/maroc-espagne-ceuta-vague-migratoire-attentats-terroristes/)
+
+
+### industrie automobile en allemagne (N/A, Thu, 30 Jul 2026 04:10:00 -0700)
+
+- **BMW: le bénéfice net trimestriel chute plombé par le recul des ventes en Chine**: [Link](https://medias24.com/agence-presse/bmw-le-benefice-net-trimestriel-chute-plombe-par-le-recul-des-ventes-en-chine/)
+- **La saignée se poursuit dans l'industrie automobile allemande: après Volkswagen et Mercedes-Benz, le constructeur BMW prévoit à son tour 8.000 suppressions de postes d'ici fin 2027**: [Link](https://www.bfmtv.com/economie/entreprises/industries/la-saignee-se-poursuit-dans-l-industrie-automobile-allemande-apres-volkswagen-et-mercedes-benz-le-constructeur-bmw-prevoit-a-son-tour-8-000-suppressions-de-postes-d-ici-fin-2027_AD-202607290210.html)
+- **BMW supprime 8 000 emplois: indemnités de départ chiffrées en millions**: [Link](https://fr.euronews.com/business/2026/07/29/bmw-supprime-8-000-emplois-indemnites-de-depart-chiffrees-en-millions)
+
+
+### سبتة (N/A, Thu, 30 Jul 2026 04:00:00 -0700)
+
+- **الملك: حكومة ما بعد الانتخابات مطالبة بإطلاق دورة تنموية جديدة وتحصين المكتسبات**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%82%D8%B5%D8%A9-%D9%88%D8%B1%D8%A7%D8%A1-%D8%B5%D9%88%D8%B1%D8%A9-%D8%A7%D8%AC%D8%AA%D8%A7%D8%AD%D8%AA-%D9%85%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D9%85/)
+- **إعلام: 1500 مهاجر مغربي عبروا إلى سبتة سباحة خلال أيام**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A5%D8%B9%D9%84%D8%A7%D9%85-1500-%D9%85%D9%87%D8%A7%D8%AC%D8%B1-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D8%A8%D8%B1%D9%88%D8%A7-%D8%A5%D9%84%D9%89-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%B3%D8%A8%D8%A7%D8%AD%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%A3%D9%8A%D8%A7%D9%85/4013405)
+- **استنفار أمني على سواحل الفنيدق لوقف محاولات الهجرة سباحة نحو سبتة**: [Link](https://www.ahdath.info/%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D9%81%D9%86%D9%8A%D8%AF%D9%82-%D9%84%D9%88%D9%82%D9%81-%D9%85%D8%AD/)
+
+
+### turf fr (N/A, Thu, 30 Jul 2026 04:00:00 -0700)
+
+- **Quinté+ du jeudi 30 juillet à Dieppe : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-jeudi-30-juillet-a-dieppe-les-pronostics-7900658155)
+- **King Trezy, l’outsider séduisant du Quinté+ du jeudi 30 juillet à Dieppe**: [Link](https://www.equidia.fr/articles/actualite/king-trezy-loutsider-seduisant-du-quinte-du-jeudi-30-juillet-a-dieppe)
+- **Les pronos hippiques du jeudi 30 juillet 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-30-juillet-2026_AN-202607290381.html)
+
+
+### marokko (N/A, Thu, 30 Jul 2026 03:30:00 -0700)
+
+- **Ansturm auf Ceuta: Mehr als 1000 Migranten schwimmen nach Spanien**: [Link](https://www.faz.net/aktuell/politik/ausland/ansturm-auf-ceuta-mehr-als-1000-migranten-schwimmen-nach-spanien-201075599.html)
+- **Ceutas Regierungschef warnt vor Notlage: 1.500 Migranten erreichen die Stadt binnen einer Woche**: [Link](https://de.marketscreener.com/boerse-nachrichten/ceutas-regierungschef-warnt-vor-notlage-1-500-migranten-erreichen-die-stadt-binnen-einer-woche-ce7f50dadb8df126)
+- **„Aufnahmezentren zusammengebrochen“ – Spanische Exklave erlebt ungewöhnlichen Migranten-Ansturm**: [Link](https://www.welt.de/politik/ausland/article6a6aa08d95262dd16278529e/spanien-aufnahmezentren-zusammengebrochen-ceuta-erlebt-ungewoehnlichen-migranten-ansturm.html)
+
+
+### وزارة التربية والتعليم (N/A, Thu, 30 Jul 2026 02:00:00 -0700)
+
+- **اعرف ترتيبك في نتيجة الثانوية العامة 2026**: [Link](https://www.akhbarak.net/news/details/49209714/1/%D8%A7%D8%B9%D8%B1%D9%81-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8%D9%83-%D9%81%D9%8A-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-2026)
+- **تفاصيل نتيجة الثانوية العامة 2026 في النظامين الجديد والقديم| إنفوجراف**: [Link](https://darelhilal.com/News/3276713.aspx)
+- **لمن لم تصله حتى الآن، خطوات الحصول على نتيجة الثانوية العامة 2026 من الهاتف في أقل من دقيقة**: [Link](https://www.vetogate.com/5702686)
+
+
 ### ici tout commence (N/A, Thu, 30 Jul 2026 02:10:00 -0700)
 
 - **Ici tout commence en avance : Louis bouleverse Jasmine. Episode du 31 juillet 2026 (spoiler)**: [Link](https://tv-programme.com/news/ici-tout-commence-en-avance-louis-bouleverse-jasmine-episode-du-31-juillet-2026-spoiler-a06388)
