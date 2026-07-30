@@ -1,3 +1,17 @@
+### ici tout commence (N/A, Thu, 30 Jul 2026 02:10:00 -0700)
+
+- **Ici tout commence en avance : Louis bouleverse Jasmine. Episode du 31 juillet 2026 (spoiler)**: [Link](https://tv-programme.com/news/ici-tout-commence-en-avance-louis-bouleverse-jasmine-episode-du-31-juillet-2026-spoiler-a06388)
+- **Ici tout commence sur TF1 : les Armand réconciliés ? Rose découvre une autre facette de Louis**: [Link](https://www.allocine.fr/article/fichearticle_gen_carticle=1000215650.html)
+- **Ici tout commence du mercredi 29 juillet 2026 - Episode 1490**: [Link](https://www.tf1.fr/fr-ma/tf1/ici-tout-commence/videos/ici-tout-commence-du-mercredi-29-juillet-2026-episode-1490-72749782.html)
+
+
+### caf (N/A, Thu, 30 Jul 2026 01:10:00 -0700)
+
+- **Fifa ‘undermining the very foundations of football’, says AFC, as Uefa talks loom**: [Link](https://www.theguardian.com/football/2026/jul/30/fifa-uefa-world-cup-infantino)
+- **UEFA to hold emergency Thursday meeting over FIFA's World Cup plan - sources**: [Link](https://www.espn.com/soccer/story/_/id/49486493/uefa-emergency-meeting-thursday-fifa-private-investment-plan-world-cup-boycott-table)
+- **In a sport obsessed by money, is Gianni Infantino’s indecent proposal really such a surprise? - The Athletic**: [Link](https://www.nytimes.com/athletic/7477170/2026/07/30/gianni-infantino-sell-world-cup-stake-column/)
+
+
 ### discours royal fête du trône 2026 (N/A, Thu, 30 Jul 2026 01:10:00 -0700)
 
 - **Fête du Trône : Mohammed VI dresse le bilan de 27 ans de règne et appelle à consolider les acquis**: [Link](https://ledesk.ma/2026/07/29/fete-du-trone-mohammed-vi-dresse-le-bilan-de-27-ans-de-regne-et-appelle-a-consolider-les-acquis/)
