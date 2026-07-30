@@ -1,3 +1,66 @@
+### tiempo mañana (N/A, Thu, 30 Jul 2026 13:00:00 -0700)
+
+- **Amanecer lluvioso y tarde con viento: el pronóstico para Bahía**: [Link](https://www.canalsiete.com.ar/c7-noticias/c7-destacada/2026/07/30/amanecer-lluvioso-y-tarde-con-viento-el-pronostico-para-bahia/)
+- **La humedad sigue siendo el factor preponderante en el ambiente bahiense**: [Link](https://www.labrujula24.com/notas/2026/07/30/la-humedad-sigue-siendo-el-factor-preponderante-en-el-ambiente-bahiense-n512858/)
+- **Cómo va a estar el tiempo durante la semana**: [Link](https://wips.digital/2026/07/27/ahora/como-va-a-estar-el-tiempo-durante-la-semana/)
+
+
+### meteo di domani (N/A, Thu, 30 Jul 2026 13:00:00 -0700)
+
+- **Meteo 29 luglio: al via nuova ondata di calore! Afa e caldo in aumento**: [Link](https://www.meteo.it/notizie/meteo-oggi-al-via-ondata-di-calore-afa-e-caldo-in-aumento-d9f1aaf4)
+- **Previsioni del tempo 29 Luglio 2026**: [Link](https://www.rainews.it/tgr/sicilia/articoli/2026/07/previsioni-del-tempo-29-luglio-2026-2c10834d-d816-4e17-a650-667a8bd76cae.html)
+- **Meteo.it: Meteo del 29 luglio, 20:30 Video**: [Link](https://mediasetinfinity.mediaset.it/video/meteoit/meteo-del-29-luglio-2030_FD00000000539602)
+
+
+### weather tomorrow (N/A, Thu, 30 Jul 2026 12:50:00 -0700)
+
+- **Downpour to revival: How monsoon quietly restores city’s fragile ecosystem**: [Link](https://timesofindia.indiatimes.com/city/delhi/downpour-to-revival-how-monsoon-quietly-restores-citys-fragile-ecosystem/articleshow/132746323.cms)
+- **Delhi's Janakpuri metro station flooded as roads submerge: Gujarat's Tata factory shuts, Chhattisgarh battl...**: [Link](https://www.bhaskarenglish.in/national/news/madhya-pradesh-chhattisgarh-red-alert-char-dham-yatra-suspended-138570056.html)
+- **Delhi-NCR Weather Tomorrow (July 31): Will it rain in Delhi, Noida, Gurgaon, and Ghaziabad? Check the late**: [Link](https://m.economictimes.com/news/new-updates/delhi-ncr-weather-tomorrow-july-31-will-it-rain-in-delhi-noida-gurgaon-and-ghaziabad-check-the-latest-update/articleshow/132744464.cms)
+
+
+### carlos espi (N/A, Thu, 30 Jul 2026 12:40:00 -0700)
+
+- **Leeds United remain stubborn as Joel Piroe hint dropped after his latest comments**: [Link](https://www.leedsunited.news/opinion/leeds-united-remain-stubborn-as-joel-piroe-hint-dropped-after-his-latest-comments/)
+- **Graham Smyth: Leeds Considering Move for 6ft 4in Striker After Trafford**: [Link](https://www.givemesport.com/leeds-united-considering-carlo-espi-transfer-after-trafford/)
+- **Leeds United 'want' to sign £26m-rated lethal striker as Nottingham Forest could face brutal hijack**: [Link](https://www.3addedminutes.com/sport/football/leeds-united/leeds-united-lethal-striker-nottingham-forest-hijack-8819611)
+
+
+### جدول مباريات اليوم (N/A, Thu, 30 Jul 2026 12:30:00 -0700)
+
+- **مباريات اليوم الخميس 30 يوليو 2026 والقنوات الناقلة**: [Link](https://al-ain.com/article/today-matches-30-july-2026)
+- **ابرز الاحداث الرياضية ليوم الاربعاء في 29-07-2026**: [Link](https://www.elsport.com/news/show/833553/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-29-07-2026)
+- **مواعيد مباريات اليوم.. توتنهام مع سيدني ودورتموند مع أوساكا وديًا**: [Link](https://www.youm7.com/story/2026/7/29/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%85%D8%B9-%D8%B3%D9%8A%D8%AF%D9%86%D9%8A-%D9%88%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%85%D8%B9-%D8%A3%D9%88%D8%B3%D8%A7%D9%83%D8%A7-%D9%88%D8%AF%D9%8A%D9%8B%D8%A7/7495854)
+
+
+### retraite (N/A, Thu, 30 Jul 2026 12:20:00 -0700)
+
+- **Retraites : la CNSS n'a plus que dix ans de viabilité ! (Rapport)**: [Link](https://lematin.ma/economie/retraites-la-cnss-na-plus-que-dix-ans-de-viabilite/358308)
+- **Bank Al Maghrib alerte sur la persistance des fragilités des régimes de retraite**: [Link](https://mobile.telquel.ma/instant-t/2026/07/28/bank-al-maghrib-alerte-sur-la-persistance-des-fragilites-des-regimes-de-retraite_2000989/)
+- **Retraites au Maroc : le compte à rebours commence**: [Link](https://www.bladi.net/retraites-maroc-compte-rebours-commence,122820.html)
+
+
+### benfica – st. gallen (N/A, Thu, 30 Jul 2026 12:10:00 -0700)
+
+- **TICKET BALLOT | HEART OF MIDLOTHIAN (A)**: [Link](https://www.dundeeunitedfc.co.uk/news/9453/TICKET-BALLOT--HEART-OF-MIDLOTHIAN-A.html)
+- **When Hearts need to submit Europa League squad and the two UEFA draws on Monday**: [Link](https://www.heartsstandard.co.uk/news/26421576.hearts-need-submit-europa-league-squad-two-monday-draws/)
+- **Hearts, with Braga, await Benfica or St. Gallen after Champions League exit**: [Link](https://onefootball.com/fr/news/hearts-with-braga-await-benfica-or-st-gallen-after-champions-league-exit-43204435)
+
+
+### turf (N/A, Thu, 30 Jul 2026 12:10:00 -0700)
+
+- **Quinté+ du jeudi 30 juillet à Dieppe : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-jeudi-30-juillet-a-dieppe-les-pronostics-7900658155)
+- **Les pronos hippiques du jeudi 30 juillet 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-30-juillet-2026_AN-202607290381.html)
+- **Quinté Plus PMU : Love Is Gold a bien tenu sa partie dernièrement**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-love-is-gold-a-bien-tenu-sa-partie-dernierement-130216.html)
+
+
+### carburant (N/A, Thu, 30 Jul 2026 11:50:00 -0700)
+
+- **Aide carburant de 100 euros : bonne nouvelle, vous avez un délai supplémentaire pour la demander**: [Link](https://media.roole.fr/quotidien/au-volant/aide-carburant-de-100-euros-bonne-nouvelle-vous-avez-un-delai-supplementaire-pour-la-demander)
+- **La Direction Générale des Finances Publiques de Moselle appelle les automobilistes à utiliser l’aide existante sur le carburant**: [Link](https://www.radiomelodie.com/a/flash/18547-la-direction-generale-des-finances-publiques-de-moselle-appelle-les-automobilistes-a-utiliser-laide-existante-sur-le-carburant)
+- **L’essentiel des actualités administratives de la semaine : 24 juillet 2026**: [Link](https://demarchesadministratives.fr/actualites/essentiel-des-actualites-administratives-de-la-semaine-24-juillet-2026)
+
+
 ### ajax – vojvodina (N/A, Thu, 30 Jul 2026 10:50:00 -0700)
 
 - **Ajax vs Vojvodina Predictions, Picks & Odds – 30/07/2026**: [Link](https://www.toffeeweb.com/int/ajax-vs-vojvodina-predictions-picks-odds-30-07-2026/)
