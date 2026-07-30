@@ -1,3 +1,45 @@
+### نادي روتاش-إيجرن ضد البايرن (N/A, Thu, 30 Jul 2026 10:30:00 -0700)
+
+- **توقع مباراة Rottach-Egern vs بايرن ميونخ: التشكيل المتوقع**: [Link](https://www.vietnam.vn/ar/nhan-dinh-rottach-egern-vs-fc-bayern-munchen-doi-hinh-du-kien)
+- **فيهين فيسبادن ضد البايرن.. البافاري يسقط 2-1 وديا استعدادا للدوري الألماني**: [Link](https://www.youm7.com/story/2026/7/25/%D9%81%D9%8A%D9%87%D9%8A%D9%86-%D9%81%D9%8A%D8%B3%D8%A8%D8%A7%D8%AF%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A7%D9%84%D8%A8%D8%A7%D9%81%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B3%D9%82%D8%B7-2-1-%D9%88%D8%AF%D9%8A%D8%A7-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7/7492824)
+- **موهبة مغربية تخطف الأضواء أمام بايرن ميونيخ**: [Link](https://inews.ma/news/8537310)
+
+
+### dr anthony fauci (N/A, Thu, 30 Jul 2026 10:30:00 -0700)
+
+- **Anthony Fauci invokes Fifth Amendment right not to answer questions at GOP-led Covid hearing, calls Rand Paul ‘unhinged’**: [Link](https://www.nbcnews.com/politics/congress/anthony-fauci-5th-amendment-testify-covid-hearing-rand-paul-rcna589793)
+- **Anthony Fauci refuses to answer questions during tense US Senate hearing about Covid origins**: [Link](https://www.bbc.com/news/articles/cdx85vkk0gko)
+- **Anthony Fauci’s high-profile Senate hearing: what we learned**: [Link](https://www.theguardian.com/us-news/2026/jul/29/anthony-fauci-senate-covid-hearing-takeaways)
+
+
+### كأس أفريقيا للسيدات (N/A, Thu, 30 Jul 2026 10:30:00 -0700)
+
+- **هل ارتدى منتخب مصر للسيدات قميص منتخب الرجال؟ ما القصة؟**: [Link](https://www.bbc.com/arabic/articles/cvg0ndgwgx3o)
+- **الأختان تشاوينغا تقودان مالاوي إلى انتصار تاريخي ٍ على نيجيريا في كأس أمم إفريقيا للسيدات توتال إنيرجيز 2026**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A3%D8%AE%D8%AA%D8%A7%D9%86-%D8%AA%D8%B4%D8%A7%D9%88%D9%8A%D9%86%D8%BA%D8%A7-%D8%AA%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%B9%D9%84%D9%89-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2-2026/)
+- **منتخب سيدات مصر يستهل مشواره في أمم أفريقيا بهزيمة كارثية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%85%D8%B5%D8%B1-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D9%81%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A8%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A%D8%A9/blta00b481d68819078)
+
+
+### rottach-egern – bayern (N/A, Thu, 30 Jul 2026 10:20:00 -0700)
+
+- **Rottach-Egern vs. FC Bayern: Gamethread and Live Blog**: [Link](https://www.bavarianfootballworks.com/bayern-munich-gamethreads-discussion/236654/rottach-egern-vs-bayern-munich-match-discussion-game-time-thread-odds-prediction-how-to-watch)
+- **First World Cup participants start pre-season with performance diagnostics tests**: [Link](https://fcbayern.com/en/news/2026/07/first-world-cup-participants-start-pre-season-with-performance-diagnostics-tests)
+- **Sporting director Christoph Freund: 'The intensity has been very good'**: [Link](https://sports.yahoo.com/articles/sporting-director-christoph-freund-intensity-163000894.html)
+
+
+### bayern munich (N/A, Thu, 30 Jul 2026 10:10:00 -0700)
+
+- **Despite Nathaniel Brown addition – Bayern rule out Alphonso Davies transfer**: [Link](https://www.transfermarkt.com/despite-nathaniel-brown-addition-bayern-rule-out-alphonso-davies-transfer/view/news/483761)
+- **Bayern Munich sporting director suggests more signings are unlikely**: [Link](https://www.bavarianfootballworks.com/bayern-munich-transfer-rumors-news/235521/bayern-munich-sporting-director-suggests-more-signings-are-unlikely)
+- **Bayern Munich open to loaning out injury-prone defender Hiroki Ito (27)**: [Link](https://www.getfootballnewsgermany.com/2026/hiroki-ito-bayern-loan/)
+
+
+### play store (N/A, Thu, 30 Jul 2026 09:40:00 -0700)
+
+- **Google’s “privacy-preserving” age verification system is coming to the Play Store**: [Link](https://arstechnica.com/gadgets/2026/07/google-begins-global-rollout-of-age-verification-api-in-google-play/)
+- **Google Play is introducing a system that will show users in-app content appropriate to their age**: [Link](https://mezha.ua/en/news/google-play-adaptuye-vmist-dodatkiv-pid-vik-koristuvachiv-313702/)
+- **Child safety on smartphones: Google expands age-assurance API for Android developers globally**: [Link](https://www.deccanherald.com/technology/child-safety-on-smartphones-google-expands-age-assurance-api-for-android-developers-globally-4092909)
+
+
 ### spiderman (N/A, Thu, 30 Jul 2026 07:40:00 -0700)
 
 - **‘Spider-Man: Brand New Day’ Review: Can We Do Whatever a Spider Can?**: [Link](https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html)
