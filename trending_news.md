@@ -1,3 +1,31 @@
+### ajax – vojvodina (N/A, Thu, 30 Jul 2026 10:50:00 -0700)
+
+- **Ajax vs Vojvodina Predictions, Picks & Odds – 30/07/2026**: [Link](https://www.toffeeweb.com/int/ajax-vs-vojvodina-predictions-picks-odds-30-07-2026/)
+- **Probable Ajax line-up: Míchel changes his team in only one position**: [Link](https://www.goal.com/en/news/probable-ajax-line-up-michel-changes-his-team-in-only-one-position/blt16ccf0895dd82a63)
+- **Ajax vs Vojvodina Results Today: UEFA Conference League Live Score, Updates, Stats**: [Link](https://heavy.com/sports/soccer/ajax-vs-vojvodina-results-today-uefa-conference-league-live-score-updates-stats/)
+
+
+### bayern (N/A, Thu, 30 Jul 2026 10:40:00 -0700)
+
+- **Wunschspieler des FC Bayern trifft Entscheidung über Transfer**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/transfer-naechster-neuzugang-wunschspieler-des-fc-bayern-trifft-entscheidung-ueber-94418992.html)
+- **Enthüllt: Gvardiol für Manchester City eine von drei „zentralen Säulen“**: [Link](https://onefootball.com/fr/news/enthuellt-gvardiol-fuer-manchester-city-eine-von-drei-zentralen-saeulen-43202247)
+- **Gvardiol nach Vertragsverlängerung: "Das erwarte ich von Maresca"**: [Link](https://www.eurosport.de/fussball/premier-league/2026-2027/josko-gvardiol-verlaengert-bei-manchester-city-bis-2031-das-erwartet-der-verteidiger-vom-neuen-trainer-enzo-maresca_vid60090903/video.shtml)
+
+
+### morocco vs algeria (N/A, Thu, 30 Jul 2026 10:10:00 -0700)
+
+- **Morocco-Algeria: The Maghreb derby that will shape Group A**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/morocco-algeria-the-maghreb-derby-that-will-shape-group-a/)
+- **WAFCON: Morocco's Vilda says Atlas Lionesses ready for Algeria, eyes quarterfinal spot**: [Link](https://en.hespress.com/142818-wafcon-moroccos-vilda-says-atlas-lionesses-ready-for-algeria-eyes-quarterfinal-spot.html)
+- **Morocco Lineup vs Algeria Confirmed for WAFCON 2026 Game**: [Link](https://www.moroccoworldnews.com/2026/07/332103/morocco-lineup-vs-algeria-confirmed-for-wafcon-2026-game/)
+
+
+### lea boumard miss (N/A, Thu, 30 Jul 2026 10:00:00 -0700)
+
+- **Le monde des Miss Excellence en deuil : une candidate de 22 ans se tue dans une sortie de route en Maine-et-Loire**: [Link](https://www.ladepeche.fr/2026/07/29/le-monde-des-miss-excellence-en-deuil-une-candidate-de-22-ans-se-tue-dans-une-sortie-de-route-en-maine-et-loire-13488678.php)
+- **Elle n’avait que 22 ans : au Pays de la Loire, une Miss est décédée tragiquement**: [Link](https://www.gala.fr/l_actu/news_de_stars/elle-n-avait-que-22-ans-au-pays-de-la-loire-une-miss-est-decedee-tragiquement-20260728)
+- **Une jeune femme perd la vie après une sortie de route en Maine-et-Loire | Courrier de l'Ouest**: [Link](https://www.ouest-france.fr/faits-divers/accidents/une-jeune-femme-perd-la-vie-apres-une-sortie-de-route-en-maine-et-loire-d487694c-898f-11f1-b777-fc1f4f594fd2)
+
+
 ### نادي روتاش-إيجرن ضد البايرن (N/A, Thu, 30 Jul 2026 10:30:00 -0700)
 
 - **توقع مباراة Rottach-Egern vs بايرن ميونخ: التشكيل المتوقع**: [Link](https://www.vietnam.vn/ar/nhan-dinh-rottach-egern-vs-fc-bayern-munchen-doi-hinh-du-kien)
