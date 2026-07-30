@@ -1,3 +1,10 @@
+### what is a heat dome (N/A, Wed, 29 Jul 2026 16:10:00 -0700)
+
+- **As extreme heat grips the South and West, here's how to stay safe**: [Link](https://www.npr.org/2026/07/29/nx-s1-5910515/heat-dome-stroke-weather)
+- **Extreme Heat Warning: Louisiana's weather forecast brings heat indices up to 115 again today**: [Link](https://www.wdsu.com/article/excessive-heat-likely-monday-and-tuesday-impact-extreme/73271008)
+- **‘Extraordinarily hot’: US heatwave stretches on with millions still under warnings**: [Link](https://www.theguardian.com/us-news/2026/jul/26/us-heat-wave-dome-weather)
+
+
 ### liverpool vs wrexham (N/A, Wed, 29 Jul 2026 16:00:00 -0700)
 
 - **Confirmed Liverpool line-up v Wrexham in New York**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-wrexham-new-york)
