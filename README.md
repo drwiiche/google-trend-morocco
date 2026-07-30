@@ -1,3 +1,10 @@
+### what is a heat index (N/A, Wed, 29 Jul 2026 21:00:00 -0700)
+
+- **Sizzling Temps and Scattered Storms Ahead for South Florida**: [Link](https://southfloridareporter.com/sizzling-temps-and-scattered-storms-ahead-for-south-florida/)
+- **Heat advisories remain in place for Wednesday afternoon**: [Link](https://www.clickorlando.com/video/weather/2026/07/29/heat-advisories-remain-in-place-for-wednesday-afternoon/)
+- **First Alert Weather Forecast: The weather pattern looks to turn more active in the days ahead**: [Link](https://www.wcjb.com/2026/07/29/first-alert-weather-forecast-weather-pattern-looks-turn-more-active-days-ahead/)
+
+
 ### ceuta (N/A, Wed, 29 Jul 2026 19:20:00 -0700)
 
 - **Cientos de africanos llegados cada día a las costas ceutíes revientan las costuras de la ciudad**: [Link](https://elpais.com/espana/2026-07-29/la-crisis-migratoria-en-ceuta-se-agrava-con-la-llegada-a-nado-de-47-personas-personas-mas.html)
