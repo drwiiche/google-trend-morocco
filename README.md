@@ -1,3 +1,29 @@
+### البطولة (N/A, Thu, 30 Jul 2026 14:50:00 -0700)
+
+- **نادي المغرب الفاسي يبرم 3 صفقات**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%A8%D8%B1%D9%85-3-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-1784918.html)
+- **تقرير .. المغرب الفاسي يقترب من التعاقد مع بديل سفيان بنجديدة**: [Link](https://ar.sport.le360.ma/football/botola/56XKLKOHHRCQTK2E4FIP57VL2U/)
+- **المغرب الفاسي ينهي ارتباطه بمبارك**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7%D9%87-%D8%A8%D9%85%D8%A8%D8%A7%D8%B1%D9%83-448990.html)
+
+
+### melilla (N/A, Thu, 30 Jul 2026 14:10:00 -0700)
+
+- **El Ejército interviene en Ceuta tras nueve horas de avalancha de migrantes: ya han cruzado la frontera unas 20.000 personas**: [Link](https://www.elmundo.es/espana/2026/07/30/6a6b07c921efa0b1248b4578.html)
+- **El Gobierno cierra la frontera de Melilla con Marruecos y despliega al Ejército en Ceuta**: [Link](https://www.eldiario.es/politica/gobierno-despliega-ejercito-ceuta-entrada-miles-personas-marruecos_1_13419220.html)
+- **España cierra la frontera con Marruecos en Melilla tras la crisis migratoria en Ceuta**: [Link](https://www.20minutos.es/nacional/espana-cierra-frontera-con-marruecos-melilla_7021103_0.html)
+
+
+### maroc foot feminin (N/A, Thu, 30 Jul 2026 13:50:00 -0700)
+
+- **Le Ghana lance sa CAN en patron face au Cap-Vert**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/le-ghana-lance-sa-can-en-patron-face-au-cap-vert/)
+- **CAN féminine 2026 : le Cameroun domine le Mali et réussit son entrée**: [Link](https://fr.hespress.com/483389-can-feminine-2026-le-cameroun-domine-le-mali-et-reussit-son-entree.html)
+- **CAN féminine Maroc-2026 : Les faits marquants de la 1ère journée**: [Link](https://mapsport.ma/actualites/can-feminine-maroc-2026-les-faits-marquants-de-la-1ere-journee/)
+
+
+### elbotola (N/A, Thu, 30 Jul 2026 13:30:00 -0700)
+
+
+
+
 ### coupe arabe (N/A, Thu, 30 Jul 2026 14:30:00 -0700)
 
 - **UAFA : la Coupe arabe des clubs champions bientôt de retour**: [Link](https://lopinion.ma/fr/sport/newsroom/uafa--la-coupe-arabe-des-clubs-bientot-de-retour_a91217?articleId=3cea6674-2101-469d-8531-dcc74a7f107b)
