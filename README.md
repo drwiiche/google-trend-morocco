@@ -1,3 +1,45 @@
+### iphone (N/A, Thu, 30 Jul 2026 07:30:00 -0700)
+
+- **iPhone 18 Release Date: Spring Delay Boosts Autumn iPhone 18 Pro Sales**: [Link](https://www.forbes.com/sites/ewanspence/2026/07/28/iphone-18-release-date-spring-delay-iphone-18-pro-sales-siri-ai/)
+- **The iPhone 18 Pro Max could be the first iPhone fans don't buy on day one**: [Link](https://www.phonearena.com/news/iphone-18-pro-max-first-iphone-fans-dont-buy_id182216)
+- **Apple wants cheaper iPhone displays to offset spiraling memory costs**: [Link](https://appleinsider.com/articles/26/07/24/apple-wants-cheaper-iphone-displays-to-offset-spiraling-memory-costs)
+
+
+### أفريقيا (N/A, Thu, 30 Jul 2026 06:40:00 -0700)
+
+- **إقصاء "أشبال الكرة الطائرة" في مصر**: [Link](https://www.hespress.com/%D8%A5%D9%82%D8%B5%D8%A7%D8%A1-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-1783164.html)
+- **منتخب نيجيريا يفوز بلقب بطولة أفريقيا للكرة الطائرة تحت 18 عام في الإسكندرية**: [Link](https://www.almasryalyoum.com/news/details/4326706)
+- **المغرب يحسم المركز السادس على حساب ليبيا في بطولة أفريقيا للناشئين تحت 18 عامًا**: [Link](https://www.rosaelyoussef.com/1419973)
+
+
+### قمح (N/A, Thu, 30 Jul 2026 06:10:00 -0700)
+
+- **السورية للحبوب: استلام أكثر من مليونين ونصف المليون طن من ‌‏محصول القمح ‏**: [Link](https://sana.sy/economy/syrian-economy/2540335/)
+- **«السورية للحبوب» تعلن تسلم أكثر من مليونين ونصف المليون من القمح**: [Link](https://www.alanba.com.kw/1369801)
+- **تقرير يقيس "ربحية القمح" بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%8A%D9%82%D9%8A%D8%B3-%D8%B1%D8%A8%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D9%82%D9%85%D8%AD-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1784395.html)
+
+
+### yassir zabiri (N/A, Thu, 30 Jul 2026 05:40:00 -0700)
+
+- **Mercato: Yassir Zabiri close to a loan in Spain**: [Link](https://mountakhab.net/en/mercato-yassir-zabiri-close-to-a-loan-in-spain/)
+- **Racing Santander Sign Morocco’s Yassir Zabiri on Loan From Rennes**: [Link](https://www.moroccoworldnews.com/2026/07/331925/racing-santander-sign-moroccos-yassir-zabiri-on-loan-from-rennes/)
+- **Yassir Zabiri has been loaned to Real Racing Club de Santander**: [Link](https://www.staderennais.com/en/news/yassir-zabiri-prete-au-real-racing-club-de-santander)
+
+
+### discours roi mohammed vi (N/A, Thu, 30 Jul 2026 05:20:00 -0700)
+
+- **Le Roi préside à M’diq une réception à l’occasion de la Fête du Trône**: [Link](https://fr.le360.ma/politique/le-roi-preside-a-mdiq-une-reception-a-loccasion-de-la-fete-du-trone_HYJDFGCP7ZD5JLYD6Q5BGBTSLQ/)
+- **Discours du Trône 2026 : fierté des acquis, cohésion avec le peuple et confiance en l'avenir**: [Link](https://lematin.ma/nation/discours-du-trone-2026-fierte-des-acquis-et-confiance-en-lavenir/358646)
+- **Fête du Trône : Mohammed VI dresse le bilan de 27 ans de règne et appelle à consolider les acquis**: [Link](https://ledesk.ma/2026/07/29/fete-du-trone-mohammed-vi-dresse-le-bilan-de-27-ans-de-regne-et-appelle-a-consolider-les-acquis/)
+
+
+### tgv (N/A, Thu, 30 Jul 2026 05:20:00 -0700)
+
+- **La carte en temps réel des incendies actifs et des surfaces brûlées en France et en Europe**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/07/23/la-carte-en-temps-reel-des-incendies-actifs-et-des-surfaces-brulees-en-france-et-en-europe_6723063_4355771.html)
+- **Incendies XXL : les militaires soutiennent les soldats du feu**: [Link](https://www.defense.gouv.fr/actualites/incendies-xxl-militaires-soutiennent-soldats-du-feu)
+- **La vidéo de pompiers français face aux flammes fait le tour du monde : « Elle aurait dû rester dans notre groupe »**: [Link](https://www.rtl.be/actu/monde/france/la-video-de-pompiers-francais-face-aux-flammes-fait-le-tour-du-monde-elle-aurait/2026-07-29/article/795919)
+
+
 ### بابي ثياو (N/A, Thu, 30 Jul 2026 05:00:00 -0700)
 
 - **قد تصل للمحكمة.. أزمة جديدة تضرب الكرة السنغالية بسبب بابي ثياو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%AF-%D8%AA%D8%B5%D9%84-%D9%84%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9--%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A8%D8%A7%D8%A8%D9%8A-%D8%AB%D9%8A%D8%A7%D9%88/blt1a7e6172c9cb5bde)
