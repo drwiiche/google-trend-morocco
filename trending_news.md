@@ -1,3 +1,45 @@
+### coupe arabe (N/A, Thu, 30 Jul 2026 14:30:00 -0700)
+
+- **UAFA : la Coupe arabe des clubs champions bientôt de retour**: [Link](https://lopinion.ma/fr/sport/newsroom/uafa--la-coupe-arabe-des-clubs-bientot-de-retour_a91217?articleId=3cea6674-2101-469d-8531-dcc74a7f107b)
+- **Union arabe de football : La Coupe arabe des clubs fait son retour à partir de 2027 - Sports**: [Link](https://www.lesoirdalgerie.com/sports/la-coupe-arabe-des-clubs-fait-son-retour-a-partir-de-2027-155141)
+- **Reprise de la Coupe arabe des clubs en 2027**: [Link](https://www.horizons.dz/2026/07/reprise-de-la-coupe-arabe-des-clubs-en-2027/)
+
+
+### صاروخ (N/A, Thu, 30 Jul 2026 14:00:00 -0700)
+
+- **الصاروخ الذي أحدث حفرة عميقة داخل بولندا "من المرجح أن يكون روسياً"**: [Link](https://www.bbc.com/arabic/articles/cddjzp7y470o)
+- **الاتحاد الأوروبي يندد بالضربات الروسية "الكثيفة" على أوكرانيا**: [Link](https://www.france24.com/ar/%D9%81%D9%8A%D8%AF%D9%8A%D9%88/20260730-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%8A%D9%86%D8%AF%D8%AF-%D8%A8%D8%A7%D9%84%D8%B6%D8%B1%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%B9%D9%84%D9%89-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7)
+- **تعهد حلف شمال الأطلسي (الناتو) ببذل كل ما في وسعه لحماية أراضيه بعد الضربة الصاروخية التي استهدفت بولندا.**: [Link](https://www.vietnam.vn/ar/nato-hua-lam-moi-thu-bao-ve-lanh-tho-sau-vu-ten-lua-xam-pham-ba-lan)
+
+
+### مجلس الشيوخ الأمريكي (N/A, Thu, 30 Jul 2026 13:50:00 -0700)
+
+- **مجلس الشيوخ الأمريكي يسقط بفارق صوت محاولة جديدة لوقف الحرب على إيران**: [Link](https://www.aljazeera.net/news/2026/7/30/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B4%D9%8A%D9%88%D8%AE-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B5%D9%88%D8%AA-%D8%B6%D8%AF)
+- **جمهوريون بالشيوخ الأمريكي يعرقلون مشروع قانون لإنهاء الحرب مع إيران**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D9%88%D9%86-%D8%A8%D8%A7%D9%84%D8%B4%D9%8A%D9%88%D8%AE-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B9%D8%B1%D9%82%D9%84%D9%88%D9%86-%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D9%84%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D9%85%D8%B9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86/4014366)
+- **الديمقراطيون يتحركون لقطع التمويل عن حروب ترامب**: [Link](https://arabi21.com/story/1778455/%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D9%88%D9%86-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83%D9%88%D9%86-%D9%84%D9%82%D8%B7%D8%B9-%D8%A7%D9%84%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D8%B9%D9%86-%D8%AD%D8%B1%D9%88%D8%A8-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8)
+
+
+### مباريات اليوم مباشر (N/A, Thu, 30 Jul 2026 13:30:00 -0700)
+
+- **يمينًا ويسارًا.. ديوماندي جناحان في لاعب واحد وسلاح فتاك في تكتيك مورينيو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%8A%D9%85%D9%8A%D9%86%D9%8B%D8%A7-%D9%88%D9%8A%D8%B3%D8%A7%D8%B1%D9%8B%D8%A7--%D8%AF%D9%8A%D9%88%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D8%AC%D9%86%D8%A7%D8%AD%D8%A7%D9%86-%D9%81%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D9%88%D8%A7%D8%AD%D8%AF-%D9%88%D8%B3%D9%84%D8%A7%D8%AD-%D9%81%D8%AA%D8%A7%D9%83-%D9%81%D9%8A-%D8%AA%D9%83%D8%AA%D9%8A%D9%83-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88/blta6e3966e4f4913b0)
+- **حالة من اليأس والإحباط في ريال مدريد.. والسبب لامين يامال**: [Link](https://www.alarabiya.net/sport/2026/07/27/%D8%AD%D8%A7%D9%84%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%8A%D8%A7%D8%B3-%D9%88%D8%A7%D9%84%D8%A7%D8%AD%D8%A8%D8%A7%D8%B7-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84)
+- **ريال مدريد في مفاوضات لضم جناح لايبزيغ ديوماندي (مصدر)**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260728-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%84%D8%B6%D9%85-%D8%AC%D9%86%D8%A7%D8%AD-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%BA-%D8%AF%D9%8A%D9%88%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D9%85%D8%B5%D8%AF%D8%B1)
+
+
+### snrt (N/A, Thu, 30 Jul 2026 13:10:00 -0700)
+
+- **Tennis – Championnats d’Afrique U16 : trois médailles dont l’or pour la Tunisie**: [Link](https://www.lapresse.tn/2026/07/30/tennis-championnats-dafrique-u16-trois-medailles-dont-lor-pour-la-tunisie/)
+- **Tennis: Le Maroc domine le Championnat d'Afrique U16 avec trois titres**: [Link](https://snrtnews.com/fr/article/tennis-le-maroc-domine-le-championnat-dafrique-u16-avec-trois-titres-156204)
+- **Afrique du Sud-Championnats d’Afrique U16 de Tennis par équipes : le Maroc Champion d’Afrique et qualifié pour les Championnats du Monde**: [Link](https://fr.hibapress.com/news-263000.html)
+
+
+### caf women (N/A, Thu, 30 Jul 2026 12:40:00 -0700)
+
+- **Police Bullets draw Simba Queens in CAF Women's Champions League CECAFA qualifiers**: [Link](https://citizen.digital/article/police-bullets-draw-simba-queens-in-caf-womens-champions-league-cecafa-qualifiers-n387413)
+- **Rwanda to host draw for CAF Women’s Champions League CECAFA qualifiers**: [Link](https://en.africatopsports.com/rwanda-to-host-draw-for-caf-womens-champions-league-cecafa-qualifiers/)
+- **When Kenya Police Bullets will discover their Champions League path and group opponents**: [Link](https://www.mozzartsport.co.ke/football/news/when-kenya-police-bullets-will-discover-their-champions-league-path-and-group-opponents/67640)
+
+
 ### tiempo mañana (N/A, Thu, 30 Jul 2026 13:00:00 -0700)
 
 - **Amanecer lluvioso y tarde con viento: el pronóstico para Bahía**: [Link](https://www.canalsiete.com.ar/c7-noticias/c7-destacada/2026/07/30/amanecer-lluvioso-y-tarde-con-viento-el-pronostico-para-bahia/)
