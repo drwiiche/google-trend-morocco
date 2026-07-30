@@ -1,3 +1,17 @@
+### spiderman (N/A, Thu, 30 Jul 2026 07:40:00 -0700)
+
+- **‘Spider-Man: Brand New Day’ Review: Can We Do Whatever a Spider Can?**: [Link](https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html)
+- **Spider-Man’s Not-So-Great Responsibility**: [Link](https://www.theatlantic.com/culture/2026/07/spider-man-brand-new-day-movie-review/688114/)
+- **‘Spider-Man: Brand New Day’ Aims to Make Box Office History as It Targets High-Flying Opening**: [Link](https://www.hollywoodreporter.com/movies/movie-news/spider-man-brand-new-day-box-office-opening-tom-holland-1236659734/)
+
+
+### football (N/A, Thu, 30 Jul 2026 04:50:00 -0700)
+
+- **North Central East-8 2026 Football Preview**: [Link](https://www.boundwisconsin.com/p/north-central-east-8-2026-football-preview)
+- **Gianni Infantino’s plan to sell stakes in the World Cup**: [Link](https://www.thetimes.com/sport/football/article/world-cup-for-sale-gianni-infantino-fifa-wdvtsqfc6)
+- **Fifa World Cup: Uefa to boycott tournament if Gianni Infantino's investment plans go through**: [Link](https://www.bbc.com/sport/football/articles/c5y67zrrdddo)
+
+
 ### iphone (N/A, Thu, 30 Jul 2026 07:30:00 -0700)
 
 - **iPhone 18 Release Date: Spring Delay Boosts Autumn iPhone 18 Pro Sales**: [Link](https://www.forbes.com/sites/ewanspence/2026/07/28/iphone-18-release-date-spring-delay-iphone-18-pro-sales-siri-ai/)
