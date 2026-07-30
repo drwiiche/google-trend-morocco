@@ -1,3 +1,29 @@
+### discours royal fête du trône 2026 (N/A, Thu, 30 Jul 2026 01:10:00 -0700)
+
+- **Fête du Trône : Mohammed VI dresse le bilan de 27 ans de règne et appelle à consolider les acquis**: [Link](https://ledesk.ma/2026/07/29/fete-du-trone-mohammed-vi-dresse-le-bilan-de-27-ans-de-regne-et-appelle-a-consolider-les-acquis/)
+- **Revue de presse de ce jeudi 30 juillet 2026**: [Link](https://fr.hespress.com/482958-__trashed-33.html)
+- **Le Roi présidera, jeudi et vendredi, les cérémonies commémorant la fête du Trône**: [Link](https://fr.le360.ma/politique/le-roi-presidera-jeudi-et-vendredi-les-ceremonies-commemorant-la-fete-du-trone_EXB7WNJ4BJDTZAY4HS4VR4O3MI/)
+
+
+### tiempo (N/A, Thu, 30 Jul 2026 01:00:00 -0700)
+
+
+
+
+### joueur de football (N/A, Thu, 30 Jul 2026 00:20:00 -0700)
+
+- **Ligue 2 : le Clermont Foot met à l'essai un ancien cadre de Montpellier**: [Link](https://www.lamontagne.fr/clermont-ferrand-63000/sports/ligue-2-le-clermont-foot-met-a-l-essai-un-ancien-cadre-de-montpellier_15026156/)
+- **Le Clermont Foot met un joueur à l’essai avant son match de préparation contre le GF38**: [Link](https://www.grenoblefoot.info/le-clermont-foot-met-un-joueur-a-lessai-avant-son-match-de-preparation-contre-le-gf38/)
+- **Junior Sambia à l’essai du côté du Clermont Foot 63**: [Link](https://onefootball.com/en/news/junior-sambia-a-lessai-du-cote-du-clermont-foot-63-43202756)
+
+
+### royal air maroc (N/A, Thu, 30 Jul 2026 00:10:00 -0700)
+
+- **Royal Air Maroc donne une leçon à Air France**: [Link](https://www.bladi.net/retards-royal-air-maroc-donne-lecon-air-france,122802.html)
+- **Le nombre de passagers concernés a explosé de 70% en un an: pourquoi les annulations de vols ont été si nombreuses en France au premier semestre**: [Link](https://www.bfmtv.com/economie/entreprises/transports/le-nombre-de-passagers-concernes-a-explose-de-70-en-un-an-pourquoi-les-annulations-de-vols-ont-ete-si-nombreuses-en-france-au-premier-semestre_AV-202607280031.html)
+- **Départs en vacances : une plate-forme révèle quelles sont les compagnies aériennes les moins ponctuelles**: [Link](https://www.leparisien.fr/economie/departs-en-vacances-une-plate-forme-revele-quelles-sont-les-compagnies-aeriennes-les-moins-ponctuelles-29-07-2026-37S4UAG7YFAHVBSC6ASMOSZNXU.php)
+
+
 ### what is a heat index (N/A, Wed, 29 Jul 2026 21:00:00 -0700)
 
 - **Sizzling Temps and Scattered Storms Ahead for South Florida**: [Link](https://southfloridareporter.com/sizzling-temps-and-scattered-storms-ahead-for-south-florida/)
