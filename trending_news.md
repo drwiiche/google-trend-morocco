@@ -1,3 +1,17 @@
+### leeds united – sunderland (N/A, Thu, 30 Jul 2026 17:10:00 -0700)
+
+- **Team News: Leeds United vs Sunderland**: [Link](https://www.leedsunited.com/en/news/team-news-leeds-united-vs-sunderland)
+- **How to live stream Leeds United vs Sunderland: Men’s Soccer Friendlies, TV channel**: [Link](https://www.thebiglead.com/how-to-live-stream-leeds-united-vs-sunderland-mens-soccer-friendlies-tv-channel/)
+- **Le Bris: We're building momentum together Stateside**: [Link](https://www.safc.com/news/2026/july/29/le-bris--we-re-building-momentum-together-stateside/)
+
+
+### morocco (N/A, Thu, 30 Jul 2026 13:40:00 -0700)
+
+- **Hundreds of migrants swim from Morocco to Spanish enclave of Ceuta**: [Link](https://www.bbc.com/news/articles/cg4drwzkrkxo)
+- **Spain will send troops to Ceuta to help with border security**: [Link](https://www.dw.com/en/spain-will-send-troops-to-ceuta-to-help-with-border-security/a-78177638)
+- **Spain’s migrant crisis triggers Italian call for EU travel restrictions**: [Link](https://www.ft.com/content/5546b044-0582-4ed9-8e61-bd1732f3063e?syn-25a6b1a6=1)
+
+
 ### البطولة (N/A, Thu, 30 Jul 2026 14:50:00 -0700)
 
 - **نادي المغرب الفاسي يبرم 3 صفقات**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%A8%D8%B1%D9%85-3-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-1784918.html)
