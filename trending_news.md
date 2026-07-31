@@ -1,3 +1,17 @@
+### 2026 (N/A, Fri, 31 Jul 2026 10:20:00 -0700)
+
+- **Northern Virginia Republicans vie to take on US Sen. Mark Warner**: [Link](https://wtop.com/virginia-election/2026/07/northern-va-republicans-vie-to-take-on-u-s-sen-mark-warner/)
+- **Virginia 2026 Primary Voter Guide**: [Link](https://wamu.org/story/26/07/29/va-2026-primary-voter-guide/)
+- **Here’s a look at Virginia Primary Election results - Aug. 4, 2026**: [Link](https://www.wsls.com/decision-2026/2026/07/31/heres-a-look-at-virginia-primary-election-results-aug-4-2026/)
+
+
+### chine (N/A, Fri, 31 Jul 2026 09:20:00 -0700)
+
+- **En Chine, la mort cachée de « Mei », une fillette de 6 ans, après une thérapie génique soulève de nombreuses questions**: [Link](https://www.lemonde.fr/sciences/article/2026/07/30/en-chine-la-mort-cachee-d-une-enfant-dans-un-essai-clinique-souleve-de-nombreuses-questions_6736653_1650684.html)
+- **« Une affaire est inquiétante » : comment une fillette est morte après une expérience génétique dans un hôpital chinois**: [Link](https://fr.news.yahoo.com/affaire-inqui%C3%A9tante-fillette-morte-apr%C3%A8s-104332499.html)
+- **Une jeune fille décède après une expérience de modification génétique, une thérapie étudiée sur… des singes.**: [Link](https://www.vietnam.vn/fr/be-gai-chet-sau-thu-nghiem-chinh-sua-gene-mot-lieu-phap-dang-nghien-cuu-tren-khi)
+
+
 ### juventus – nice (N/A, Fri, 31 Jul 2026 09:00:00 -0700)
 
 - **Il calcio in TV oggi, venerdì 31 luglio: amichevoli per Juventus e Como. Dove vederle**: [Link](https://www.libero.it/magazine/news/calcio-in-tv-oggi-programmazione-diretta-venerdi-31-luglio-2026-cosa-vedere-217173)
