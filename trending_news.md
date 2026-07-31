@@ -1,3 +1,59 @@
+### fc barcelone (N/A, Fri, 31 Jul 2026 11:30:00 -0700)
+
+- **C’est fait pour Jesse Bisiwu au FC Barcelone**: [Link](https://www.footmercato.net/a9118195213361647125-cest-fait-pour-jesse-bisiwu-au-fc-barcelone)
+- **Après Bisiwu, un autre grand talent de Bruges file en Espagne**: [Link](https://www.walfoot.be/news/2026-07-30/jesse-bisiwu-nest-pas-seul-un-autre-grand-talent-du-fc-bruges-file-en-espagne-contre-plusieurs-millions)
+- **Une recrue du Barça passe sa visite médicale**: [Link](https://www.goal.com/fr/news/une-recrue-du-barca-passe-sa-visite-medicale/blt062bc6f05da406eb)
+
+
+### جائزة (N/A, Fri, 31 Jul 2026 11:10:00 -0700)
+
+- **حملة جماهيرية تطالب بتجريد ميسي من جائزة مرموقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%85%D9%84%D8%A9-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%AA%D8%AC%D8%B1%D9%8A%D8%AF-%D9%85%D9%8A%D8%B3%D9%8A-%D9%85%D9%86-%D8%AC%D8%A7%D9%8A%D9%94%D8%B2%D8%A9-%D9%85%D8%B1%D9%85%D9%88%D9%82%D8%A9/bltf53d5ef4b166d9e1)
+- **بعد تصرفه الكارثي أمام إسبانيا.. هل تُسحب جائزة الأميرة ليونور من ميسي؟**: [Link](https://www.eremnews.com/sports/wtstvo5)
+- **"كرويف ما كان ليقبل بهذا".. ميسي يتعرض لهجوم بسبب صمته عن تصرفات الأرجنتين**: [Link](https://www.alarabiya.net/sport/2026/07/25/%D9%83%D8%B1%D9%88%D9%8A%D9%81-%D9%85%D8%A7-%D9%83%D8%A7%D9%86-%D9%84%D9%8A%D9%82%D8%A8%D9%84-%D8%A8%D9%87%D8%B0%D8%A7-%D9%87%D8%AC%D9%88%D9%85-%D9%84%D8%A7%D8%B0%D8%B9-%D8%B9%D9%84%D9%89-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%B5%D9%85%D8%AA%D9%87-%D8%B9%D9%86-%D8%AA%D8%B5%D8%B1%D9%81%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
+
+
+### وزارة التربية والتعليم (N/A, Fri, 31 Jul 2026 11:10:00 -0700)
+
+- **وزارة التربية والتعليم تعلن مد فترة التقديم بالمدارس المصرية الألمانية حتى ٣١ أغسطس ٢٠٢٦**: [Link](https://sis.gov.eg/ar/%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%AA%D8%B9%D9%84%D9%86-%D9%85%D8%AF-%D9%81%D8%AA%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%AD%D8%AA%D9%89-31-%D8%A3%D8%BA%D8%B3%D8%B7%D8%B3-2026/)
+- **السويدي وسامكريت ومؤسسة ساويرس يتولون إنشاء 30 مدرسة ضمن مشروع المدارس التقنية الألمانية المصرية.. وتوقيع اتفاقيات تعاون في برلين**: [Link](https://powernews.cc/?p=284917)
+- **رابط التقديم بالمدارس المصرية الألمانية 2026.. اعرف الشروط |مفاجأة سارة للطلاب**: [Link](https://www.cairo24.com/2467839)
+
+
+### birmingham – barcelone (N/A, Fri, 31 Jul 2026 11:00:00 -0700)
+
+- **À quelle heure et sur quelle chaîne voir le match de pré-saison du FC Barcelone face à Birmingham ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-le-match-de-pre-saison-du-fc-barcelone-face-a-birmingham/1707810)
+- **Birmingham - FC Barcelone. À quelle heure et sur quelle chaîne TV voir le match de préparation ?**: [Link](https://www.ouest-france.fr/sport/football/espagne/fc-barcelone/birmingham-fc-barcelone-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-de-preparation-ca1301c2-8cde-11f1-bac6-43ee9437487c)
+- **Premier entraînement de Raphinha**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4549946/premier-entranement-de-raphinha)
+
+
+### برمنغهام سيتي ضد برشلونة (N/A, Fri, 31 Jul 2026 11:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة برمنجهام سيتي وبرشلونة الودية التحضيرية للموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D9%85%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt869d228c97740c71)
+- **بث مباشر: مباراة برشلونة وبرمنغهام سيتي الودية 2026**: [Link](https://al-ain.com/article/watch-live-birmingham-city-vs-barcelona-friendly)
+- **الموعد والقناة الناقلة لمباراة برشلونة وبرمنغهام سيتي الودية**: [Link](https://www.annahar.com/sports/334761/%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A8%D8%B1%D9%85%D9%86%D8%BA%D9%87%D8%A7%D9%85-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
+
+
+### birmingham vs barcelona (N/A, Fri, 31 Jul 2026 11:00:00 -0700)
+
+- **Birmingham City - Barcelona en directo: partido amistoso de pretemporada hoy, en vivo**: [Link](https://as.com/futbol/primera/birmingham-city-barcelona-en-directo-partido-amistoso-de-pretemporada-hoy-en-vivo-f202607-d/)
+- **Adeyemi, titular con el 14 ante el Birmingham City**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260731/1004212064/adeyemi-titular-14-birmingham-city.html)
+- **¿Por qué no juegan Lamine Yamal y Raphinha en Birmingham vs. Barcelona?**: [Link](https://bolavip.com/laliga/por-que-no-juegan-lamine-yamal-y-raphinha-en-birmingham-vs-barcelona)
+
+
+### birmingham city - barcelona (N/A, Fri, 31 Jul 2026 11:00:00 -0700)
+
+- **A Real Madrid superstar will be in attendance for Barcelona’s friendly vs Birmingham City**: [Link](https://barcauniversal.com/a-real-madrid-superstar-will-be-in-attendance-for-barcelonas-friendly-vs-birmingham-city/)
+- **How to Watch Birmingham vs. Barcelona on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-birmingham-vs-barcelona-tv-live-stream-7-31-26)
+- **talkSPORT tips – Best football bets and expert advice for Friday 31 July**: [Link](https://talksport.com/football/4481293/talksport-tips-best-football-bets-friday-31-july/)
+
+
+### zone turf (N/A, Fri, 31 Jul 2026 10:50:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 14 Iggypop d'herfraie**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-14-iggypop-d-herfraie-130220.html)
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 14 Il Vient du Lude**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-14-il-vient-du-lude-130208.html)
+- **Les pronostics des experts pour la réunion 1 à CABOURG ce vendredi 31 juillet**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-cabourg-ce-vendredi-31-juillet)
+
+
 ### 2026 (N/A, Fri, 31 Jul 2026 10:20:00 -0700)
 
 - **Northern Virginia Republicans vie to take on US Sen. Mark Warner**: [Link](https://wtop.com/virginia-election/2026/07/northern-va-republicans-vie-to-take-on-u-s-sen-mark-warner/)
