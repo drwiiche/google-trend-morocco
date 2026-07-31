@@ -1,3 +1,57 @@
+### سبتة الاسبانية (N/A, Fri, 31 Jul 2026 07:20:00 -0700)
+
+- **سانشيز: "مافيات الاتجار بالبشر" تحرض على اقتحام مدينة سبتة**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D9%85%D8%A7%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AA%D8%AC%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D8%A8%D8%B4%D8%B1-%D8%AA%D8%AD%D8%B1%D8%B6-%D8%B9%D9%84-1785307.html)
+- **شاب عاد من سبتة المحتلة: "الأمن الإسباني هاجمنا بالقنابل المسيلة للدموع.. وشفت بزاف سخفان"**: [Link](https://ar.hibapress.com/details-745285.html)
+- **🔥رئيس حكومة سبتة يعلن دخول أكثر من 60 ألف مهاجر إلى المدينة**: [Link](https://tanja7.com/190009/)
+
+
+### iphone 17 (N/A, Fri, 31 Jul 2026 06:40:00 -0700)
+
+- **The latest iPhone 18 news, leaks, and rumors: Release date, price increases, and color options**: [Link](https://mashable.com/tech/apple-iphone-18-latest-rumors-release-date-leaks-july-2026)
+- **iPhone 18 Release Date: Spring Delay Boosts Autumn iPhone 18 Pro Sales**: [Link](https://www.forbes.com/sites/ewanspence/2026/07/28/iphone-18-release-date-spring-delay-iphone-18-pro-sales-siri-ai/)
+- **iPhone 18 Pro Models Could Be Up to $300 More Expensive, Says Analyst**: [Link](https://www.macrumors.com/2026/07/31/iphone-18-pro-models-300-more-expensive/)
+
+
+### meteo (N/A, Fri, 31 Jul 2026 06:30:00 -0700)
+
+
+
+
+### مي عز الدين (N/A, Fri, 31 Jul 2026 06:10:00 -0700)
+
+- **مي عز الدين تلتقط صورا رومانسية مع زوجها في أحدث ظهور**: [Link](https://www.masrawy.com/arts/zoom/details/2026/7/31/3025800)
+- **مايوهات مي عز الدين: تفاصيل المجموعة المحتشمة مع Obsession**: [Link](https://www.lahamag.com/article/239594-%D9%85%D8%A7%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D9%85%D9%8A-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D8%B4%D9%85%D8%A9-%D9%85%D8%B9-obsession)
+- **إطلالة رومانسية لمي عز الدين رفقة زوجها**: [Link](https://www.elbalad.news/7057096)
+
+
+### pedro sanchez (N/A, Fri, 31 Jul 2026 06:00:00 -0700)
+
+- **Última hora de la entrada de inmigrantes a Ceuta, en directo | Interior cifra en 50.000 los inmigrantes que han entrado irregularmente a Ceuta y destaca que la mitad ha regresado ya a Marruecos**: [Link](https://elpais.com/espana/2026-07-31/ultima-hora-de-la-entrada-de-inmigrantes-a-ceuta-en-directo.html)
+- **Comunicado sobre la situación en la ciudad autónoma de Ceuta**: [Link](https://www.interior.gob.es/opencms/es/detalle/articulo/Comunicado-sobre-la-situacion-en-la-ciudad-autonoma-de-Ceuta/)
+- **Unas 25.000 personas regresan a Marruecos tras la mayor crisis migratoria en España desde 2021**: [Link](https://www.rtve.es/noticias/20260731/cientos-personas-regresan-marruecos-tras-entrada-50000-inmigrantes-ceuta-forma-irregular/17175549.shtml)
+
+
+### موعد اذان المغرب (N/A, Fri, 31 Jul 2026 05:50:00 -0700)
+
+- **مواقيت الصلاة، موعد أذان ظهر الجمعة في القاهرة والمحافظات**: [Link](https://alestad.com/egypt/142310.html)
+- **«العشاء 9:17».. جدول مواقيت الصلاة فى محافظات مصر اليوم الخميس 30 يوليو 2026**: [Link](https://www.almasryalyoum.com/news/details/4326596)
+- **​مواقيت الصلاة اليوم الجمعة 31 يوليو 2026 في القاهرة والمحافظات**: [Link](https://gate.ahram.org.eg/News/5838796.aspx)
+
+
+### جون أفريك (N/A, Fri, 31 Jul 2026 05:40:00 -0700)
+
+- **في خطاب عيد العرش.. الملك محمد السادس: استقرار المغرب "عملة نادرة"**: [Link](https://www.alarabiya.net/north-africa/morocco/2026/07/30/%D9%81%D9%8A-%D8%AE%D8%B7%D8%A7%D8%A8-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-)
+- **الخطاب الملكي يربط المكاسب الاقتصادية بتنزيل التنمية الترابية المندمجة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%B1%D8%A8%D8%B7-%D8%A7%D9%84%D9%85%D9%83%D8%A7%D8%B3%D8%A8-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A-1785032.html)
+- **افتتاح متحف النقود بالمدينة العتيقة لفاس، صرح جديد يبرز التاريخ النقدي للمملكة**: [Link](https://maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%85%D8%AA%D8%AD%D9%81-%D8%A7%D9%84%D9%86%D9%82%D9%88%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D8%AA%D9%8A%D9%82%D8%A9-%D9%84%D9%81%D8%A7%D8%B3%D8%8C-%D8%B5%D8%B1%D8%AD-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D9%86%D9%82%D8%AF%D9%8A-%D9%84%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9)
+
+
+### ceuta espagne migrants (N/A, Fri, 31 Jul 2026 05:20:00 -0700)
+
+- **Sebta : environ 25.000 migrants ont regagné le Maroc, selon Madrid**: [Link](https://medias24.com/2026/07/31/sebta-environ-25-000-migrants-ont-regagne-le-maroc-selon-madrid-1734431/)
+- **Sebta : la crise migratoire vue de l’internationale**: [Link](https://telquel.ma/instant-t/2026/07/31/sebta-la-crise-migratoire-vue-de-linternationale_2001552/)
+- **49 000 migrants sont entrés à Ceuta depuis le Maroc au cours des dernières 24 heures**: [Link](https://fr.euronews.com/my-europe/2026/07/31/49-000-migrants-sont-entres-a-ceuta-depuis-le-maroc-au-cours-des-dernieres-24-heures)
+
+
 ### nationalité (N/A, Fri, 31 Jul 2026 03:30:00 -0700)
 
 
