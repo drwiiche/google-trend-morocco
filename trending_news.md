@@ -1,3 +1,24 @@
+### كأس العالم لكرة القدم 2030 (N/A, Fri, 31 Jul 2026 15:30:00 -0700)
+
+- **"رجل ميت يمشي".. تسريبات تكشف عن مخطط للإطاحة بإنفانتينو**: [Link](https://www.aljazeera.net/sport/2026/7/31/%D8%A5%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%AF%D8%A7%D8%AE%D9%84%D9%8A-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A%D9%81%D8%A7-%D8%A5%D8%B7%D8%A7%D8%AD%D8%A9)
+- **خطة بيع كأس العالم إلى مستثمرين مقربين من ترامب تُشعل أزمة داخل "فيفا"**: [Link](https://www.hespress.com/%D8%AE%D8%B7%D8%A9-%D8%A8%D9%8A%D8%B9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A5%D9%84%D9%89-%D9%85%D8%B3%D8%AA%D8%AB%D9%85%D8%B1%D9%8A%D9%86-%D9%85%D9%82%D8%B1%D8%A8%D9%8A%D9%86-1785648.html)
+- **معركة تكسير عظام.. من سيخسر إذا أقيم المونديال دون منتخبات أوروبا؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%AA%D9%83%D8%B3%D9%8A%D8%B1-%D8%B9%D8%B8%D8%A7%D9%85--%D9%85%D9%86-%D8%B3%D9%8A%D8%AE%D8%B3%D8%B1-%D8%A7%D9%95%D8%B0%D8%A7-%D8%A7%D9%94%D9%82%D9%8A%D9%85-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%AF%D9%88%D9%86-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt5055bfd46fce294e)
+
+
+### giorgia meloni (N/A, Fri, 31 Jul 2026 15:20:00 -0700)
+
+- **Italy closes air and sea borders, suspends Schengen with Spain over Ceuta migrant crisis**: [Link](https://thehill.com/policy/international/6003064-ceuta-migration-spain-morocco-italy/)
+- **Spain's PM blames traffickers after 60,000 migrants reach Ceuta from Morocco**: [Link](https://www.bbc.com/news/articles/cx2kp639yx4o)
+- **Migrants Surge Into Spanish Territory, Prompting Political Backlash**: [Link](https://www.nytimes.com/2026/07/31/world/europe/migrants-surge-into-spanish-territory-triggering-political-backlash.html)
+
+
+### fête du trône (N/A, Fri, 31 Jul 2026 15:00:00 -0700)
+
+- **Le Roi préside à Tétouan la prestation de serment des officiers lauréats**: [Link](https://medias24.com/2026/07/31/le-roi-preside-a-tetouan-la-prestation-de-serment-des-officiers-laureats-1734473/)
+- **Fête du Trône : Mohammed VI préside une réception à M'diq en présence de Gianni Infantino**: [Link](https://ledesk.ma/encontinu/fete-du-trone-mohammed-vi-preside-une-reception-a-mdiq-en-presence-de-gianni-infantino/)
+- **Fête du Trône: le Roi, Amir Al-Mouminine, préside à Tétouan la cérémonie d’allégeance**: [Link](https://fr.le360.ma/politique/fete-du-trone-le-roi-amir-al-mouminine-preside-a-tetouan-la-ceremonie-dallegeance_2QI4DWAYDRFPDPFT7F6R57TKJE/)
+
+
 ### gianni infantino (N/A, Fri, 31 Jul 2026 13:20:00 -0700)
 
 - **Senior FIFA executive says staff were deceived over Infantino’s World Cup sell-off plan**: [Link](https://apnews.com/article/cordeiro-infantino-fifa-executive-world-cup-4cff20f6e2dda925e6d5395b56dcf9ab)
