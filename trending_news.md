@@ -1,3 +1,10 @@
+### météo fes (N/A, Fri, 31 Jul 2026 16:10:00 -0700)
+
+- **Météo du vendredi : Vague de chaleur à Fès et dans la région Fès-Meknès, avec risques d’orages et de vents forts 31 juillet 2026 | Fès**: [Link](https://fesnews.media/316360/2026/07/31/)
+- **أخبار المغرب العاجلة**: [Link](https://inews.ma/news/8549810)
+- **Météo de cette nuit | Un ciel dégagé et des températures élevées**: [Link](https://kapitalis.com/tunisie/2026/07/31/meteo-de-cette-nuit-un-ciel-degage-et-des-temperatures-elevees/)
+
+
 ### كأس العالم لكرة القدم 2030 (N/A, Fri, 31 Jul 2026 15:30:00 -0700)
 
 - **"رجل ميت يمشي".. تسريبات تكشف عن مخطط للإطاحة بإنفانتينو**: [Link](https://www.aljazeera.net/sport/2026/7/31/%D8%A5%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%AF%D8%A7%D8%AE%D9%84%D9%8A-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A%D9%81%D8%A7-%D8%A5%D8%B7%D8%A7%D8%AD%D8%A9)
