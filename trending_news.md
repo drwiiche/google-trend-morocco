@@ -1,3 +1,45 @@
+### juventus – nice (N/A, Fri, 31 Jul 2026 09:00:00 -0700)
+
+- **Il calcio in TV oggi, venerdì 31 luglio: amichevoli per Juventus e Como. Dove vederle**: [Link](https://www.libero.it/magazine/news/calcio-in-tv-oggi-programmazione-diretta-venerdi-31-luglio-2026-cosa-vedere-217173)
+- **Juve-Nizza 0-0 | Subito Celik titolare! A centrocampo chance Douglas Luiz**: [Link](https://onefootball.com/id/berita/juve-nizza-0-0-subito-celik-titolare-a-centrocampo-chance-douglas-luiz-43211597)
+- **Juventus-Nizza LIVE, terza amichevole per i bianconeri**: [Link](https://sport.sky.it/calcio/serie-a/2026/07/31/juventus-nizza-risultato-gol)
+
+
+### taïwan (N/A, Fri, 31 Jul 2026 08:30:00 -0700)
+
+- **Taïwan, l'île à trois vitesses**: [Link](https://www.lesechos.fr/idees-debats/editos-analyses/taiwan-lile-a-trois-vitesses-2245519)
+- **Taïwan : des navires de garde-côtes chinois repérés en patrouille à l’est de l’île, les autorités les surveillent de près**: [Link](https://www.sudouest.fr/international/asie/taiwan/taiwan-des-navires-de-garde-cotes-chinois-reperes-en-patrouille-a-l-est-de-l-ile-les-autorites-les-surveillent-de-pres-30125648.php)
+- **La Chine mène une patrouille maritime à l’est de Taïwan**: [Link](https://www.aa.com.tr/fr/monde/la-chine-m%C3%A8ne-une-patrouille-maritime-%C3%A0-l-est-de-ta%C3%AFwan/4014843)
+
+
+### الاتحاد المصري لكرة القدم (N/A, Fri, 31 Jul 2026 08:20:00 -0700)
+
+- **خمسة أضعاف راتبه.. حسام حسن يصدم اتحاد الكرة المصري**: [Link](https://www.eremnews.com/sports/z2v8kr6)
+- **أبو ريدة عن حسام حسن: لو كان الأمر بالحماس فقط لاستعنت بمطرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%A8%D9%88-%D8%B1%D9%8A%D8%AF%D8%A9-%D8%B9%D9%86-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%84%D9%88-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1-%D8%A8%D8%A7%D9%84%D8%AD%D9%85%D8%A7%D8%B3-%D9%81%D9%82%D8%B7-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D9%86%D8%AA-%D8%A8%D9%85%D8%B7%D8%B1%D8%A8/blt8e15b60d11bed7dc)
+- **اتحاد الكرة ينتظر عودة حسام حسن من العمرة للاتفاق على بنود التعاقد الجديد**: [Link](https://www.cairo24.com/2468361)
+
+
+### سعر (N/A, Fri, 31 Jul 2026 08:00:00 -0700)
+
+- **الذهب ينخفض مع ارتفاع عوائد السندات الأمريكية وتثبيت الفائدة**: [Link](https://www.aljazeera.net/ebusiness/2026/7/30/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D9%86%D8%AE%D9%81%D8%B6-%D9%85%D8%B9-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B9%D9%88%D8%A7%D8%A6%D8%AF-%D8%B3%D9%86%D8%AF%D8%A7%D8%AA)
+- **أسعار الذهب تتراجع في الإمارات**: [Link](https://24.ae/article/964313/)
+- **تراجع طفيف لأسعار الذهب في الأسواق العالمية**: [Link](https://www.fananews.com/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B7%D9%81%D9%8A%D9%81-%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D8%B9/)
+
+
+### عبد الصمد الزلزولي (N/A, Fri, 31 Jul 2026 07:50:00 -0700)
+
+- **نجم المغرب يحرم برشلونة من انتعاشة بالملايين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%B1%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D8%A7%D9%86%D8%AA%D8%B9%D8%A7%D8%B4%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86/blt343c1df704ab838c)
+- **الزلزولي مطلوب في روما.. بيتيس يتمسك باللاعب وبرشلونة يترقب**: [Link](https://www.aljazeera.net/sport/2026/7/30/%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%85%D8%B7%D9%84%D9%88%D8%A8-%D9%81%D9%8A-%D8%B1%D9%88%D9%85%D8%A7-%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%AA%D9%85%D8%B3%D9%83)
+- **نيوكاسل على استعداد لتقديم عرض رسمي لبيتيس من أجل ضم الزلزولي**: [Link](https://radiomars.ma/%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF-%D9%84%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D8%B9%D8%B1%D8%B6-%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D8%A8/)
+
+
+### جون فيترمان (N/A, Fri, 31 Jul 2026 07:10:00 -0700)
+
+- **بسروال قصير و"جلسة مستفزة".. لماذا أثار لقاء نتنياهو وفيترمان الجدل؟**: [Link](https://www.aljazeera.net/news/2026/7/31/%D8%A8%D8%B3%D8%B1%D9%88%D8%A7%D9%84-%D9%82%D8%B5%D9%8A%D8%B1-%D9%88%D8%AC%D9%84%D8%B3%D8%A9-%D9%85%D8%B3%D8%AA%D9%81%D8%B2%D8%A9-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A3%D8%AB%D8%A7%D8%B1)
+- **سيناتور أميركي يلتقي نتنياهو بـ"شورت".. والإطلالة تشغل مواقع التواصل**: [Link](https://www.alarabiya.net/social-media/2026/07/30/%D8%B4%D9%88%D8%B1%D8%AA-%D9%81%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D8%B3%D9%8A%D9%86%D8%A7%D8%AA%D9%88%D8%B1-%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%AA%D8%B4%D8%B9%D9%84-%D8%AC%D8%AF%D9%84%D8%A7-)
+- **بعد ظهوره بـ"الشورت" في البيت الأبيض.. من هو السيناتور جون فيترمان؟**: [Link](https://elbaladtv.net/%D8%A8%D8%B9%D8%AF-%D8%B8%D9%87%D9%88%D8%B1%D9%87-%D8%A8%D9%80%D8%A7%D9%84%D8%B4%D9%88%D8%B1%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6-%D9%85%D9%86)
+
+
 ### سبتة الاسبانية (N/A, Fri, 31 Jul 2026 07:20:00 -0700)
 
 - **سانشيز: "مافيات الاتجار بالبشر" تحرض على اقتحام مدينة سبتة**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D9%85%D8%A7%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AA%D8%AC%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D8%A8%D8%B4%D8%B1-%D8%AA%D8%AD%D8%B1%D8%B6-%D8%B9%D9%84-1785307.html)
