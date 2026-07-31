@@ -1,3 +1,73 @@
+### météo demain (N/A, Fri, 31 Jul 2026 13:00:00 -0700)
+
+- **Météo du week-end en France : soleil et chaleur ou bien risque d'orages ? Réponse**: [Link](https://www.tameteo.com/actualites/previsions/meteo-du-week-end-en-france-soleil-et-chaleur-ou-bien-risque-d-orages-reponse-intemperies.html)
+- **Météo : quelles sont les prévisions pour août 2026 ? La chronique de Nicolas Le Friant, expert météo**: [Link](https://www.pleinchamp.com/actualite/meteo-quelles-sont-les-previsions-pour-aout-2026-la-chronique-de-nicolas-le-friant-expert-meteo)
+- **Après une chute de 14 °C, la fournaise revient brutalement dès dimanche 30/07/2026**: [Link](https://www.meteo-paris.com/actualites/apres-une-chute-de-100c-en-24-heures-les-fortes-chaleurs-reviendront-dimanche)
+
+
+### الطقس غدًا (N/A, Fri, 31 Jul 2026 13:00:00 -0700)
+
+- **أمطار رعدية فى أغسطس.. بيان عاجل بشأن حالة الطقس غدًا**: [Link](https://www.almasryalyoum.com/news/details/4327619)
+- **الأرصاد تكشف تفاصيل موجة الحر الشديدة وتحذر من ارتفاع الرطوبة واضطراب الشواطئ**: [Link](https://www.youm7.com/story/2026/7/31/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1-%D8%A7%D9%84%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%B1%D8%B7%D9%88%D8%A8%D8%A9/7498498)
+- **«خد لك ساتر من الشمس».. تحذيرات من موجة شديدة الحرارة حتى 6 أغسطس**: [Link](https://akhbarelyom.com/news/newdetails/4858487/1/-%D8%AE%D8%AF-%D9%84%D9%83-%D8%B3%D8%A7%D8%AA%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%B4%D9%85%D8%B3--%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D9%85%D9%88%D8%AC%D8%A9-%D8%B4%D8%AF)
+
+
+### meteo di domani (N/A, Fri, 31 Jul 2026 13:00:00 -0700)
+
+- **Arpa, in Lombardia caldo elevato almeno fino al 6 agosto**: [Link](https://www.ansa.it/amp/lombardia/notizie/2026/07/30/arpa-in-lombardia-caldo-elevato-almeno-fino-al-6-agosto_da693b1d-c5fb-459b-9120-f5e92a847626.html)
+- **Il caldo cresce ancora, sul termometro valori molto oltre la media stagionale**: [Link](https://www.malpensa24.it/il-caldo-cresce-ancora-sul-termometro-valori-molto-oltre-la-media-stagionale/)
+- **Meteo LOMBARDIA Video: previsioni aggiornate**: [Link](https://www.3bmeteo.com/giornale-meteo/meteo-lombardia-video-previsioni-aggiornate-100841241)
+
+
+### weather tomorrow (N/A, Fri, 31 Jul 2026 12:50:00 -0700)
+
+- **Heavy rains prompt alerts in Gujarat, Himachal, Assam, and Uttarakhand amid flood concerns**: [Link](https://thenewsmill.com/2026/07/heavy-rains-prompt-alerts-in-gujarat-himachal-assam-and-uttarakhand-amid-flood-concerns/)
+- **Seven weather systems now steer India's monsoon: Heavy rain, floods ahead**: [Link](https://www.indiatoday.in/science/story/imd-monsoon-forecast-seven-weather-systems-raise-assam-bihar-and-gujarat-rain-risk-flood-deep-depression-2960254-2026-07-31)
+- **IMD issues orange alert for Punjab, Haryana, Chandigarh; heavy rain expected till Aug 3**: [Link](https://indianexpress.com/article/cities/chandigarh/imd-issues-orange-alert-for-punjab-haryana-chandigarh-heavy-rain-expected-till-aug-3-10810546/)
+
+
+### ماركا (N/A, Fri, 31 Jul 2026 12:50:00 -0700)
+
+- **فيدرالية رابطة حقوق النساء: موجة العبور إلى سبتة ترقى إلى "كارثة إنسانية"**: [Link](https://www.hespress.com/%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D9%86%D8%B3%D8%A7%D8%A1-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%B9%D8%A8%D9%88-1785637.html)
+- **ماركا: أزمة سبتة تثير مخاوف قبل مونديال 2030**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%83%D8%A7-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%AA%D8%AB%D9%8A%D8%B1-%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030/bltebbc2997b5468e08)
+- **ردا على اليمين المتطرف الإسباني.. حملة "#ماتكيدش" تفكك رواية التضليل في أحداث سبتة**: [Link](https://www.ahdath.info/%D8%B1%D8%AF%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%8A%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D8%B7%D8%B1%D9%81-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AD%D9%85%D9%84%D8%A9/)
+
+
+### ez abde (N/A, Fri, 31 Jul 2026 12:50:00 -0700)
+
+- **Abde cierra la puerta a la Roma**: [Link](https://as.com/futbol/abde-cierra-la-puerta-a-la-roma-f202607-n/)
+- **La estrella de Marruecos priva al Barcelona de una inyección millonaria**: [Link](https://www.goal.com/es/noticias/la-estrella-de-marruecos-priva-al-barcelona-de-una-inyeccion-millonaria/blt343c1df704ab838c)
+- **Abde le pediría a la Roma duplicar su sueldo para salir del Betis**: [Link](https://www.eldesmarque.com/futbol/mercado-de-fichajes/20260730/abde-pediria-roma-duplicar-betis_18_019844314.html)
+
+
+### sharjah sport (N/A, Fri, 31 Jul 2026 12:40:00 -0700)
+
+- **Sharjah Chess Club Concludes “A Holiday Reimagined 2026” Programme**: [Link](https://sharjah24.ae/en/Articles/2026/07/31/mm12)
+- **Dibba Al Hisn Club concludes “A Holiday Reimagined” programme**: [Link](https://sharjah24.ae/en/Articles/2026/07/31/mm06)
+- **Mleiha Sports and Cultural Club delegation visits Sharjah Coop**: [Link](https://sharjah24.ae/en/Articles/2026/07/31/mm09)
+
+
+### hamza abdelkarim (N/A, Fri, 31 Jul 2026 12:30:00 -0700)
+
+- **Hamza Abdel Karim marque son premier but avec le Barça**: [Link](https://www.ysscores.com/fr/news/14013300/hamza-abdel-karim-marque-son-premier-but-avec-le-bar%C3%A7a)
+- **Match d'entraînement contre Club Europa**: [Link](https://www.fcbarcelona.fr/fr/videos/4546387/match-dentrainement-contre-club-europa)
+- **Le Barça sous Hansi Flick découvre son nouveau talent : Alex Gonzalez brille**: [Link](https://zamin.uz/fr/sport/214457-le-barca-sous-hansi-flick-decouvre-son-nouveau-talent-alex-gonzalez-brille.html)
+
+
+### turf (N/A, Fri, 31 Jul 2026 12:30:00 -0700)
+
+- **Les promotions des opérateurs hippiques en août 2026***: [Link](https://www.paris-turf.com/actualites/operateurs-jeux/302607997112-les-promotions-des-operateurs-hippiques-en-aout-2026)
+- **Tiercé. Les pronostics de l'Alsace pour le vendredi 31 juillet - Prix des Lycopodes**: [Link](https://www.lalsace.fr/actualite/2026/07/30/nos-pronostics-pour-le-vendredi-31-juillet-prix-des-lycopodes)
+- **Les pronos hippiques du vendredi 31 juillet 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-31-juillet-2026_AN-202607300561.html)
+
+
+### club friendlies (N/A, Fri, 31 Jul 2026 12:20:00 -0700)
+
+- **Bayern Munich discover a Brazilian gem during pre-season**: [Link](https://www.goal.com/en-in/news/bayern-munich-discover-a-brazilian-gem-during-pre-season/blt3ed0cef40651645b)
+- **Maycon Cardozo labels life at Bayern as "a dream come true"**: [Link](https://onefootball.com/fr/news/maycon-cardozo-labels-life-at-bayern-as-a-dream-come-true-43181023)
+- **Bayern Munich discover a Brazilian gem during pre-season**: [Link](https://www.goal.com/en-za/news/bayern-munich-discover-a-brazilian-gem-during-pre-season/blt3ed0cef40651645b)
+
+
 ### fc barcelone (N/A, Fri, 31 Jul 2026 11:30:00 -0700)
 
 - **C’est fait pour Jesse Bisiwu au FC Barcelone**: [Link](https://www.footmercato.net/a9118195213361647125-cest-fait-pour-jesse-bisiwu-au-fc-barcelone)
