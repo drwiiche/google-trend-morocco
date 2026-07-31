@@ -1,3 +1,10 @@
+### spiderman brand new day (N/A, Thu, 30 Jul 2026 18:40:00 -0700)
+
+- **‘Spider-Man: Brand New Day’ Review: Can We Do Whatever a Spider Can?**: [Link](https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html)
+- **‘Spider-Man: Brand New Day’ Aims to Make Box Office History as It Targets High-Flying Opening**: [Link](https://www.hollywoodreporter.com/movies/movie-news/spider-man-brand-new-day-box-office-opening-tom-holland-1236659734/)
+- **Spider-Man Forgets Itself**: [Link](https://www.theatlantic.com/culture/2026/07/spider-man-brand-new-day-movie-review/688114/)
+
+
 ### leeds united – sunderland (N/A, Thu, 30 Jul 2026 17:10:00 -0700)
 
 - **Team News: Leeds United vs Sunderland**: [Link](https://www.leedsunited.com/en/news/team-news-leeds-united-vs-sunderland)
