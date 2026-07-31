@@ -1,3 +1,24 @@
+### franco baresi (N/A, Thu, 30 Jul 2026 23:20:00 -0700)
+
+- **FRANCO BARESI PER SEMPRE**: [Link](https://www.acmilan.com/it/news/articoli/club/2026-07-31/franco-baresi-per-sempre)
+- **Dal nodulo polmonare alle nuove armi oncologiche: cosa ci insegna il caso di Franco Baresi**: [Link](https://www.ok-salute.it/news/dal-nodulo-polmonare-alle-nuove-armi-oncologiche-cosa-ci-insegna-il-caso-di-franco-baresi/)
+- **Quel viaggio in treno con il mio idolo**: [Link](https://www.corriere.it/sport/calcio/serie-a/26_luglio_31/quel-viaggio-in-treno-con-il-mio-idolo-f1c4ed84-4eb3-4f59-baaa-c0834a76cxlk.shtml)
+
+
+### imdb (N/A, Thu, 30 Jul 2026 18:50:00 -0700)
+
+- **‘Cape Fear’ Ending Explained: Will There Be A Season 2?**: [Link](https://www.imdb.com/news/ni65952195/?ref_=ttnw_art_perm)
+- **‘Cape Fear’ Episode-9 Recap: ‘The Scar’**: [Link](https://www.vulture.com/article/cape-fear-recap-episode-9-apple-tv.html)
+- **Here's an exclusive look at the #CapeFear finale, airing tomorrow, July 31 on @AppleTV.**: [Link](https://www.yahoo.com/entertainment/videos/heres-exclusive-look-capefear-finale-190142192.html)
+
+
+### pastèque (N/A, Thu, 30 Jul 2026 16:50:00 -0700)
+
+- **Pastèque : le Maroc se fait dépasser**: [Link](https://www.bladi.net/pasteque-maroc-depasser-europe,122821.html)
+- **Rumeurs sur la pastèque marocaine : la psychose fait chuter les ventes au profit des intermédiaires**: [Link](https://lematin.ma/societe/pasteque-marocaine-les-rumeurs-font-chuter-les-ventes/358568)
+- **Maroc : TikTok fait tomber la pastèque à 1 dirham**: [Link](https://www.bladi.net/maroc-tiktok-tomber-pasteque-dirham,122816.html)
+
+
 ### spiderman brand new day (N/A, Thu, 30 Jul 2026 18:40:00 -0700)
 
 - **‘Spider-Man: Brand New Day’ Review: Can We Do Whatever a Spider Can?**: [Link](https://www.nytimes.com/2026/07/28/movies/spider-man-brand-new-day-review.html)
