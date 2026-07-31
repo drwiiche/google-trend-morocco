@@ -1,3 +1,24 @@
+### gianni infantino (N/A, Fri, 31 Jul 2026 13:20:00 -0700)
+
+- **Senior FIFA executive says staff were deceived over Infantino’s World Cup sell-off plan**: [Link](https://apnews.com/article/cordeiro-infantino-fifa-executive-world-cup-4cff20f6e2dda925e6d5395b56dcf9ab)
+- **Infantino's World Cup battle risks undermining years of progress in women's soccer**: [Link](https://www.espn.com/soccer/story/_/id/49496364/fifa-president-gianni-infantino-world-cup-plan-uefa-boycott-womens-soccer-threat)
+- **Opinion | Don’t Sell Out the World Cup to Private Equity**: [Link](https://www.nytimes.com/2026/07/31/opinion/fifa-uefa-boycott-deal-thrive.html)
+
+
+### shane kluivert (N/A, Fri, 31 Jul 2026 13:00:00 -0700)
+
+- **Bellingham ziet basisklant Shane Kluivert met Barça niet langs Birmingham komen**: [Link](https://www.vi.nl/nieuws/bellingham-ziet-basisklant-shane-kluivert-met-barca-niet-langs-birmingham-komen)
+- **Birmingham - Barcelona: Vorm, Opstellingen, Voorspellingen, Waar je kan kijken en Odds**: [Link](https://news.bet365.nl/nl-nl/article/birmingham-barcelona-vorm-opstellingen-voorspellingen-waar-je-kan-kijken-en-odds/2026072909482823055)
+- **Grote verrassing: Barcelona laat zich foppen in oefenduel tegen Birmingham**: [Link](https://www.voetbalprimeur.nl/nieuws/2118142/barcelona-speelt-gelijk-tegen-birmingham.html)
+
+
+### marsa maroc (N/A, Fri, 31 Jul 2026 12:30:00 -0700)
+
+- **Dix ans après son entrée en bourse, Marsa Maroc prépare un nouveau changement d’échelle**: [Link](https://ledesk.ma/datadesk/dix-ans-apres-son-entree-en-bourse-marsa-maroc-prepare-un-nouveau-changement-dechelle/)
+- **Bourse : Marsa Maroc devient la 4e capitalisation de la cote**: [Link](https://www.leconomiste.com/flash-infos/bourse-marsa-maroc-devient-la-4e-capitalisation-de-la-cote/)
+- **Marsa Maroc : l'histoire d'un opérateur qui célèbre ses 10 ans de cotation à la Bourse de Casablanca**: [Link](https://lematin.ma/economie/marsa-maroc-lhistoire-dun-operateur-qui-celebre-ses-10-ans-de-cotation/358790)
+
+
 ### météo demain (N/A, Fri, 31 Jul 2026 13:00:00 -0700)
 
 - **Météo du week-end en France : soleil et chaleur ou bien risque d'orages ? Réponse**: [Link](https://www.tameteo.com/actualites/previsions/meteo-du-week-end-en-france-soleil-et-chaleur-ou-bien-risque-d-orages-reponse-intemperies.html)
