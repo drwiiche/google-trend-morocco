@@ -1,3 +1,36 @@
+### migrants ceuta espagne (N/A, Sat, 1 Aug 2026 02:50:00 -0700)
+
+- **EN DIRECT, Ceuta : « Un retour à la normale est en cours », affirme le ministre de l’intérieur espagnol ; le premier ministre, Pedro Sanchez, critique l’attitude « égoïste » de certains pays de l’UE**: [Link](https://www.lemonde.fr/international/live/2026/08/01/en-direct-ceuta-67-migrants-sont-morts-en-tentant-de-rejoindre-l-enclave-a-la-nage-selon-un-nouveau-bilan-du-gouvernement-espagnol_6737133_3210.html)
+- **Ceuta : pourquoi l’Italie ne peut pas exclure l’Espagne de l’espace Schengen**: [Link](https://www.lexpress.fr/monde/europe/ceuta-pourquoi-litalie-ne-peut-pas-exclure-lespagne-de-lespace-schengen-TP3KR6TEWJANLEIUYFNT7PEGZE/)
+- **Souveraineté, sarcasme, accusations: comment l'Afrique du Nord réagit à la crise de Ceuta**: [Link](https://fr.euronews.com/2026/07/31/souverainete-sarcasme-accusations-comment-lafrique-du-nord-reagit-a-la-crise-de-ceuta)
+
+
+### économie (N/A, Sat, 1 Aug 2026 01:40:00 -0700)
+
+- **Fête du Trône: le Roi, Amir Al-Mouminine, préside à Tétouan la cérémonie d’allégeance**: [Link](https://fr.le360.ma/politique/fete-du-trone-le-roi-amir-al-mouminine-preside-a-tetouan-la-ceremonie-dallegeance_2QI4DWAYDRFPDPFT7F6R57TKJE/)
+- **Mohammed VI préside à Tétouan la cérémonie d'allégeance du 27e anniversaire de son intronisation**: [Link](https://ledesk.ma/encontinu/mohammed-vi-preside-a-tetouan-la-ceremonie-dallegeance-du-27e-anniversaire-de-son-intronisation/)
+- **Tétouan célèbre la Fête du Trône au rythme de la retraite aux flambeaux**: [Link](https://www.leconomiste.com/flash-infos/tetouan-celebre-la-fete-du-trone-au-rythme-de-la-retraite-aux-flambeaux/)
+
+
+### tiempo (N/A, Sat, 1 Aug 2026 00:30:00 -0700)
+
+
+
+
+### الطقس (N/A, Sat, 1 Aug 2026 00:00:00 -0700)
+
+- **توقعات طقس اليوم السبت بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-73-1785622.html)
+- **موجة حر وطقس حار وزخات رعدية مع احتمال تساقط البرد وهبات رياح قوية بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D9%88%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-20260731)
+- **حرارة تصل إلى 47 درجة.. الأرصاد تحذر من موجة حر وزخات رعدية بعدد من مناطق المملكة**: [Link](https://www.ahdath.info/%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-47-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%85%D9%88%D8%AC/)
+
+
+### زياد الرحباني (N/A, Fri, 31 Jul 2026 18:20:00 -0700)
+
+- **فيروز في إطلالة حزينة.. ريما الرحباني تنشر أحدث صورة لوالدتها**: [Link](https://www.alarabiya.net/culture-and-art/2026/07/30/%D9%81%D9%8A%D8%B1%D9%88%D8%B2-%D8%AA%D8%B7%D9%84-%D8%A8%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D9%88%D9%86%D8%B8%D8%A7%D8%B1%D8%A9-%D8%B3%D9%88%D8%AF%D8%A7%D8%A1-%D8%B5%D9%88%D8%B1%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1%D9%87%D8%A7-%D8%A7%D8%A8%D9%86%D8%AA%D9%87%D8%A7-)
+- **«إلى زياد»: من العالم الافتراضي إلى ذاكرة الورق**: [Link](https://www.al-akhbar.com/news/culture/900405/-%D8%A5%D9%84%D9%89-%D8%B2%D9%8A%D8%A7%D8%AF---%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%A7%D9%81%D8%AA%D8%B1%D8%A7%D8%B6%D9%8A-%D8%A5%D9%84%D9%89-%D8%B0%D8%A7%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%88%D8%B1%D9%82)
+- **كلمة أخرى عن زياد… محارب الاغتراب في غابة من الأقنعة**: [Link](https://legal-agenda.com/%D9%83%D9%84%D9%85%D8%A9-%D8%A3%D8%AE%D8%B1%D9%89-%D8%B9%D9%86-%D8%B2%D9%8A%D8%A7%D8%AF-%D9%85%D8%AD%D8%A7%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D8%BA%D8%AA%D8%B1%D8%A7%D8%A8-%D9%81%D9%8A-%D8%BA/)
+
+
 ### fraude fiscale (N/A, Sat, 1 Aug 2026 01:00:00 -0700)
 
 - **Une fraude fiscale et sociale de près de 200 millions de dirhams au sein d’un géant de la conserve**: [Link](https://fr.le360.ma/politique/une-fraude-fiscale-et-sociale-de-pres-de-200-millions-de-dirhams-au-sein-dun-geant-de-la-conserve_P7AIHD5ZWZEXTCG7XVI6Y342P4/)
