@@ -1,3 +1,17 @@
+### الجامعة الملكية المغربية لكرة القدم (N/A, Sat, 1 Aug 2026 12:30:00 -0700)
+
+- **4 مرشحين لخلافة إنفانتينو في "فيفا"**: [Link](https://www.hespress.com/4-%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A-%D9%81%D9%8A%D9%81%D8%A7-1786136.html)
+- **يويفا يهدد إنفانتينو: الاستقالة أو حجب الثقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D9%8A%D9%87%D8%AF%D8%AF-%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%A7%D9%94%D9%88-%D8%AD%D8%AC%D8%A8-%D8%A7%D9%84%D8%AB%D9%82%D8%A9/blte43b9dd3dbfdb35f)
+- **بلاغ الجامعة الملكية المغربية لكرة القدم**: [Link](https://frmf.ma/articles/communique-4)
+
+
+### arsenal (N/A, Sat, 1 Aug 2026 11:30:00 -0700)
+
+- **What we’re hearing about Arsenal’s interest in Vinicius Junior and his Real Madrid contract - The Athletic**: [Link](https://www.nytimes.com/athletic/7484629/2026/08/01/vinicius-junior-arsenal-transfer-latest-real-madrid-contract/)
+- **Real Madrid takes a stand with Vinicius**: [Link](https://www.marca.com/en/football/spanish-football/2026/07/31/real-madrid-takes-stand-with-vinicius.html)
+- **Vinicius Junior will be staying at Real Madrid beyond this summer, Sky Sports News has been told.**: [Link](https://www.skysports.com/football/news/11095/13567839/real-madrid-transfer-news-vinicius-junior-to-stay-at-the-santiago-bernabeu-beyond-this-summer-despite-arsenal-interest)
+
+
 ### prix carburant maroc (N/A, Sat, 1 Aug 2026 11:10:00 -0700)
 
 - **Ce samedi 1er août, maintien des prix des carburants - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/08/01/ce-samedi-1er-aout-maintien-des-prix-des-carburants-1735331/)
