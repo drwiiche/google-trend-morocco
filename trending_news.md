@@ -1,3 +1,10 @@
+### manchester united (N/A, Sat, 1 Aug 2026 06:50:00 -0700)
+
+- **Travelling squad for Stockholm**: [Link](https://www.manutd.com/en/news/travelling-man-utd-squad-for-stockholm)
+- **Man United vs Atlético Madrid LIVE: Latest updates as Mbeumo brace earns comeback victory**: [Link](https://www.espn.co.uk/football/story/_/id/49503886/man-united-atletico-madrid-live-preseason-latest-updates-commentary-score-result)
+- **How to Watch Manchester United Versus Athletico Madrid Madrid**: [Link](https://readmanutd.com/2026/08/01/how-to-watch-manchester-united-athletico-madrid/)
+
+
 ### الولايات المتحدة (N/A, Sat, 1 Aug 2026 07:00:00 -0700)
 
 - **لأول مرة منذ 2011.. واشنطن تتدخل لدعم الين بعد هبوطه الحاد**: [Link](https://www.aljazeera.net/ebusiness/2026/8/1/%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%85%D9%86%D8%B0-2011-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D8%AA%D8%AF%D8%AE%D9%84-%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%8A%D9%86)
