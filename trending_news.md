@@ -1,3 +1,17 @@
+### prix carburant maroc (N/A, Sat, 1 Aug 2026 11:10:00 -0700)
+
+- **Ce samedi 1er août, maintien des prix des carburants - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/08/01/ce-samedi-1er-aout-maintien-des-prix-des-carburants-1735331/)
+- **Carburants : vers une hausse de plus de 2 DH/L en août**: [Link](https://fr.hespress.com/483588-carburants-vers-une-hausse-de-plus-de-2-dh-l-en-aout.html)
+- **Carburants : Bientôt une nouvelle augmentation du Gasoil de 2 dirhams**: [Link](https://lopinion.ma/fr/actu-maroc/carburants--bientot-une-nouvelle-augmentation-du-gasoil-de-2-dirhams-_a14165?articleId=9dccd61e-fcfa-47e8-9331-695dfc5606aa)
+
+
+### real (N/A, Sat, 1 Aug 2026 09:50:00 -0700)
+
+- **Startaufstellungen von Real Madrid und Fiorentina**: [Link](https://www.realmadrid.com/de-DE/news/fussball/erste-mannshaft/latest-news/once-inicial-del-real-madrid-ante-la-fiorentina-01-08-2026)
+- **Test-Spektakel – Mourinho und Real-Stars verpassen Sieg in Klagenfurt**: [Link](https://www.heute.at/s/mourinho-und-real-stars-verpassen-sieg-in-klagenfurt-120232038)
+- **Real gibt 2-Tore-Führung im Test gegen Florenz aus der Hand**: [Link](https://sport.sky.de/fussball/artikel/real-gibt-2-tore-fuehrung-im-test-gegen-florenz-aus-der-hand/13569086/34926)
+
+
 ### إسماعيل صيباري (N/A, Sat, 1 Aug 2026 10:20:00 -0700)
 
 - **الإصابة تؤجل عودة الصيباري**: [Link](https://assabah.ma/941099.html)
