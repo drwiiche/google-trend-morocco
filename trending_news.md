@@ -1,3 +1,24 @@
+### ديكو (N/A, Sat, 1 Aug 2026 14:50:00 -0700)
+
+- **أمطر شباك برشلونة بثلاثية تاريخية.. ديكو ينصب شباكه حول مهاجم فتاك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%85%D8%B7%D8%B1-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9--%D8%AF%D9%8A%D9%83%D9%88-%D9%8A%D9%86%D8%B5%D8%A8-%D8%B4%D8%A8%D8%A7%D9%83%D9%87-%D8%AD%D9%88%D9%84-%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D9%81%D8%AA%D8%A7%D9%83/blt475def9b85f6f93c)
+- **برشلونة يراقب بافليديس كخيار بديل لتعزيز الهجوم| يلا شووت**: [Link](https://www.ysscores.com/ar/news/14013148/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8-%D8%A8%D8%A7%D9%81%D9%84%D9%8A%D8%AF%D9%8A%D8%B3-%D9%83%D8%AE%D9%8A%D8%A7%D8%B1-%D8%A8%D8%AF%D9%8A%D9%84-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85)
+- **مهاجم "مغمور" على أجندة برشلونة هذا الصيف!**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D9%85%D8%BA%D9%85%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D8%A3%D8%AC%D9%86%D8%AF%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B5%D9%8A%D9%81)
+
+
+### 2026 (N/A, Sat, 1 Aug 2026 14:40:00 -0700)
+
+- **The Best Movies and TV Shows Coming to Disney+, AMC+, Apple TV and More in August**: [Link](https://www.nytimes.com/2026/08/01/arts/television/movies-tv-shows-august-2026-streaming.html)
+- **Everything New on Streaming in August: Netflix, HBO Max and More**: [Link](https://www.thewrap.com/media-platforms/streaming/everything-new-on-streaming-august-2026/)
+- **Ted Lasso to Monsters of God: the seven best shows to stream this week**: [Link](https://www.theguardian.com/tv-and-radio/2026/jul/31/the-seven-best-shows-to-stream-this-week)
+
+
+### rtl (N/A, Sat, 1 Aug 2026 14:30:00 -0700)
+
+- **«GZSZ» rettet einen mäßigen RTL-Freitag**: [Link](https://www.quotenmeter.de/n/174149/gzsz-rettet-einen-maessigen-rtl-freitag)
+- **Das RTL+ Abo Entertainment von RTL Group - Streaming und Hörspiele in einem Paket**: [Link](https://www.ad-hoc-news.de/wirtschaft/produkte/das-rtl-abo-entertainment-von-rtl-group-streaming-und-hoerspiele-in/69907803)
+- **"Özcan Cosar live!" bei RTL: Wiederholung der Comedyshow online und im TV**: [Link](https://www.spielfilm.de/news/98735/oezcan-cosar-live-bei-rtl-wiederholung-der-comedyshow-online-und-im-tv)
+
+
 ### زلزال (N/A, Sat, 1 Aug 2026 12:30:00 -0700)
 
 - **زلزال بقوة 4.7 درجات يضرب مدينة نابولي الإيطالية**: [Link](https://barlamane.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-4-7-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D8%A7%D9%84/)
