@@ -1,3 +1,10 @@
+### أسعار المحروقات في المغرب (N/A, Fri, 31 Jul 2026 17:00:00 -0700)
+
+- **محطات المحروقات تتأهب لزيادة الأسعار بما يفوق درهمين في اللتر**: [Link](https://www.hespress.com/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%AA%D8%AA%D8%A3%D9%87%D8%A8-%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-1785273.html)
+- **تصل إلى 3 دراهم.. المغاربة على موعد مع زيادة جديدة في أسعار المحروقات**: [Link](https://ar.hibapress.com/details-745327.html)
+- **اليماني: ارتفاع النفط بأقل من 10 في المائة قاد الغازوال إلى زيادة تجاوزت 25 في المائة –**: [Link](https://inews.ma/news/8550188)
+
+
 ### météo fes (N/A, Fri, 31 Jul 2026 16:10:00 -0700)
 
 - **Météo du vendredi : Vague de chaleur à Fès et dans la région Fès-Meknès, avec risques d’orages et de vents forts 31 juillet 2026 | Fès**: [Link](https://fesnews.media/316360/2026/07/31/)
