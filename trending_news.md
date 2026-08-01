@@ -1,3 +1,31 @@
+### إسماعيل صيباري (N/A, Sat, 1 Aug 2026 10:20:00 -0700)
+
+- **الإصابة تؤجل عودة الصيباري**: [Link](https://assabah.ma/941099.html)
+- **إصابة عضلية تبعد إسماعيل الصيباري عن الجولة الآسيوية لبايرن ميونخ**: [Link](https://radiomars.ma/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B9%D8%B6%D9%84%D9%8A%D8%A9-%D8%AA%D8%A8%D8%B9%D8%AF-%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%B9%D9%86-%D8%A7/)
+- **الصايباري رجع يتريني وتدرب اول مرة مع البايرن**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%B5%D8%A7%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%B1%D8%AC%D8%B9-%D9%8A%D8%AA%D8%B1%D9%8A%D9%86%D9%8A-%D9%88%D8%AA%D8%AF%D8%B1%D8%A8-%D8%A7%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%85%D8%B9-%D8%A7-1034367/)
+
+
+### الريال ضد فيورنتينا (N/A, Sat, 1 Aug 2026 10:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ريال مدريد وفيورنتينا الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%81%D9%8A%D9%88%D8%B1%D9%86%D8%AA%D9%8A%D9%86%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt45c2264c0d9f90d4)
+- **ريال مدريد-فيورنتينا: أول مباراة ودية في فترة الإعداد للموسم**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/fixtures/fiorentina-real-madrid-arranca-el-real-madrid-2026-27-01-08-2026)
+- **جدول مواعيد مباريات ريال مدريد في شهر أغسطس 2026**: [Link](https://sports.asharq.com/football/114393/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%B4%D9%87%D8%B1-%D8%A3%D8%BA%D8%B3%D8%B7%D8%B3-2026/)
+
+
+### teddy riner (N/A, Sat, 1 Aug 2026 09:40:00 -0700)
+
+- **Les « 3 frères », le Maroc et Teddy Riner : plongée dans les relations d'affaires mystérieuses du quintuple champion olympique de judo**: [Link](https://www.lequipe.fr/Judo/Article/Grand-recit-les-3-freres-le-maroc-et-teddy-riner-plongee-dans-les-relations-d-affaires-sulfureuses-du-quintuple-champion-olympique-de-judo/1708195)
+- **Deux ans après les JO de Paris 2024, Teddy Riner va faire son retour à la compétition au Grand Prix de Lima en août**: [Link](https://www.lequipe.fr/Judo/Actualites/Deux-ans-apres-les-jo-de-paris-2024-teddy-riner-va-faire-son-retour-a-la-competition-au-grand-prix-de-lima-en-aout/1707847)
+- **Breve - Teddy Riner de retour au GP de Lima**: [Link](https://www.alljudo.net/actualite-judo-4116-teddy-riner-de-retour-au-gp-de-lima.html)
+
+
+### boeing 787 (N/A, Sat, 1 Aug 2026 09:30:00 -0700)
+
+- **Air India upgrades Canada operations with brand-new Boeing 787-9s; Announces a new Mumbai-Toronto Seasonal route**: [Link](https://livefromalounge.com/air-india-upgrades-canada-operations-with-brand-new-boeing-787-9s-announces-a-new-mumbai-toronto-seasonal-route/)
+- **Air India deploys brand-new B787-9 aircraft on Delhi-Toronto flights**: [Link](https://aviationworld.in/air-india-deploys-brand-new-b787-9-aircraft-on-delhi-toronto-flights/)
+- **Air India Expands Service To Canada For Winter Season With New Mumbai-Toronto Flights, Begins Operating B787-9 On Delhi-Toronto Flights**: [Link](https://www.tradingview.com/news/reuters.com,2026:newsml_FWN43Y02U:0-air-india-expands-service-to-canada-for-winter-season-with-new-mumbai-toronto-flights-begins-operating-b787-9-on-delhi-toronto-flights/)
+
+
 ### real madrid tv (N/A, Sat, 1 Aug 2026 09:10:00 -0700)
 
 - **Real Madrid-Madrid CFF: preseason kicks off, live on Realmadrid TV**: [Link](https://www.realmadrid.com/en-US/news/football/womens-team/fixtures/real-madrid-madrid-cff-arranca-la-pretemporada-01-08-2026)
