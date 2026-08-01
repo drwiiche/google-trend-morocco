@@ -1,3 +1,10 @@
+### telquel (N/A, Sat, 1 Aug 2026 02:50:00 -0700)
+
+- **Témoignage. “Moi Anas*, j’ai tenté Sebta et je remettrai ça”**: [Link](https://mobile.telquel.ma/2026/07/31/temoignage-moi-anas-jai-tente-sebta-et-je-remettrai-ca_2001670)
+- **Les autorités marocaines filtrent les voyageurs à destination du nord**: [Link](https://medias24.com/2026/07/30/les-autorites-marocaines-filtrent-les-voyageurs-a-destination-du-nord-1733765/)
+- **Guercif.. Mobilisation sécuritaire dans les gares en concomitance avec le renforcement des contrôles des déplacements vers le Nord**: [Link](https://fr.hibapress.com/news-263731.html)
+
+
 ### migrants ceuta espagne (N/A, Sat, 1 Aug 2026 02:50:00 -0700)
 
 - **EN DIRECT, Ceuta : « Un retour à la normale est en cours », affirme le ministre de l’intérieur espagnol ; le premier ministre, Pedro Sanchez, critique l’attitude « égoïste » de certains pays de l’UE**: [Link](https://www.lemonde.fr/international/live/2026/08/01/en-direct-ceuta-67-migrants-sont-morts-en-tentant-de-rejoindre-l-enclave-a-la-nage-selon-un-nouveau-bilan-du-gouvernement-espagnol_6737133_3210.html)
