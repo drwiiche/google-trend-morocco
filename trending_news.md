@@ -1,3 +1,17 @@
+### زلزال (N/A, Sat, 1 Aug 2026 12:30:00 -0700)
+
+- **زلزال بقوة 4.7 درجات يضرب مدينة نابولي الإيطالية**: [Link](https://barlamane.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-4-7-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D8%A7%D9%84/)
+- **26 جريحا وإجلاء العشرات جراء الزلزال في جنوب إيطاليا**: [Link](https://snrtnews.com/article/156327)
+- **كامبي فليجري، موسوميسي: "السرب الزلزالي لا يزال مستمرا."**: [Link](https://www.agenzianova.com/ar/news/campi-flegrei-musumeci-lo-sciame-sismico-e-ancora-in-corso/)
+
+
+### marsa maroc (N/A, Sat, 1 Aug 2026 12:30:00 -0700)
+
+- **Dix ans après son entrée en bourse, Marsa Maroc prépare un nouveau changement d’échelle**: [Link](https://ledesk.ma/datadesk/dix-ans-apres-son-entree-en-bourse-marsa-maroc-prepare-un-nouveau-changement-dechelle/)
+- **Bourse : Marsa Maroc devient la 4e capitalisation de la cote**: [Link](https://www.leconomiste.com/flash-infos/bourse-marsa-maroc-devient-la-4e-capitalisation-de-la-cote/)
+- **Marsa Maroc : l'histoire d'un opérateur qui célèbre ses 10 ans de cotation à la Bourse de Casablanca**: [Link](https://lematin.ma/economie/marsa-maroc-lhistoire-dun-operateur-qui-celebre-ses-10-ans-de-cotation/358790)
+
+
 ### meteo di domani (N/A, Sat, 1 Aug 2026 13:20:00 -0700)
 
 - **Caldo record da Nord a Sud: lunedì bollino rosso in tutta Italia a eccezione di Messina e Reggio Calabria**: [Link](https://www.ilfattoquotidiano.it/2026/08/01/ondata-calore-bollino-rosso-25-citta-notizie/8466783/)
