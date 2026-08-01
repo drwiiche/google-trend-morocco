@@ -1,3 +1,10 @@
+### inter miami – columbus crew (N/A, Sat, 1 Aug 2026 15:50:00 -0700)
+
+- **Is Lionel Messi playing today for Inter Miami vs Columbus Crew in 2026 MLS Matchday 19?**: [Link](https://bolavip.com/en/soccer/is-lionel-messi-playing-today-for-inter-miami-vs-columbus-crew-in-2026-mls-matchday-19)
+- **Messi officially called up for the MLS match, Inter Miami has a full squad of star players.**: [Link](https://www.vietnam.vn/en/messi-chinh-thuc-duoc-trieu-tap-cho-tran-dau-tai-mls-inter-miami-du-mat-anh-tai)
+- **Messi status uncertain for Inter Miami home game vs. Columbus Crew Saturday**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article316725615.html)
+
+
 ### ديكو (N/A, Sat, 1 Aug 2026 14:50:00 -0700)
 
 - **أمطر شباك برشلونة بثلاثية تاريخية.. ديكو ينصب شباكه حول مهاجم فتاك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%85%D8%B7%D8%B1-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9--%D8%AF%D9%8A%D9%83%D9%88-%D9%8A%D9%86%D8%B5%D8%A8-%D8%B4%D8%A8%D8%A7%D9%83%D9%87-%D8%AD%D9%88%D9%84-%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D9%81%D8%AA%D8%A7%D9%83/blt475def9b85f6f93c)
