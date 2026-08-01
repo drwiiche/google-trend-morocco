@@ -1,3 +1,31 @@
+### real madrid tv (N/A, Sat, 1 Aug 2026 09:10:00 -0700)
+
+- **Real Madrid-Madrid CFF: preseason kicks off, live on Realmadrid TV**: [Link](https://www.realmadrid.com/en-US/news/football/womens-team/fixtures/real-madrid-madrid-cff-arranca-la-pretemporada-01-08-2026)
+- **Trent Alexander-Arnold and Arda Guler are the biggest reasons why Jose Mourinho signed Carlos Espi**: [Link](https://therealchamps.com/trent-alexander-arnold-and-arda-guler-are-the-biggest-reasons-why-jose-mourinho-signed-carlos-espi-01kyxwjzgta5)
+- **Will Barcelona regret losing Carlos Espí to Real Madrid?**: [Link](https://www.barcablaugranes.com/cant-del-blog-barcelona-opinion/127848/will-barcelona-regret-losing-carlos-espi-to-real-madrid)
+
+
+### real madrid (N/A, Sat, 1 Aug 2026 08:40:00 -0700)
+
+- **Real Madrid-Fiorentina: primer amistoso de la pretemporada**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/previas/fiorentina-real-madrid-arranca-el-real-madrid-2026-27-01-08-2026)
+- **Ganas de ver la nueva era**: [Link](https://as.com/opinion/ganas-de-ver-la-nueva-era-f202607-n/)
+- **El primer once de Mou: Dumfries de extremo y tres canteranos**: [Link](https://www.marca.com/futbol/real-madrid/2026/08/01/primer-once-mou-dumfries-extremo-tres-canteranos.html)
+
+
+### real madrid – fiorentina (N/A, Sat, 1 Aug 2026 08:30:00 -0700)
+
+- **Real Madrid-Fiorentina: first preseason friendly**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/fixtures/fiorentina-real-madrid-arranca-el-real-madrid-2026-27-01-08-2026)
+- **José Mourinho Unveils His First Squad to Begin a New Era at Real Madrid**: [Link](https://www.beinsports.com/en-us/soccer/articles/jos%C3%A9-mourinho-unveils-his-first-squad-to-begin-a-new-era-at-real-madrid-2026-07-31)
+- **Franco Mastantuono absent from Real Madrid squad for Fiorentina friendly**: [Link](https://sports.yahoo.com/articles/franco-mastantuono-absent-real-madrid-150000941.html)
+
+
+### عز الدين أوناحي (N/A, Sat, 1 Aug 2026 08:20:00 -0700)
+
+- **حلم قديم.. برشلونة يعود لمطاردة أوناحي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%84%D9%85-%D9%82%D8%AF%D9%8A%D9%85--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%85%D8%B7%D8%A7%D8%B1%D8%AF%D8%A9-%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A/blt63ba259c3e996cfc)
+- **تقرير: أوناحي يقترب من نادي برشلونة**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-1786064.html)
+- **أوناحي يدخل حسابات برشلونة لتعويض غياب دي يونغ**: [Link](https://radiomars.ma/%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D8%BA%D9%8A%D8%A7/)
+
+
 ### manchester united (N/A, Sat, 1 Aug 2026 06:50:00 -0700)
 
 - **Travelling squad for Stockholm**: [Link](https://www.manutd.com/en/news/travelling-man-utd-squad-for-stockholm)
