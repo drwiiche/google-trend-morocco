@@ -1,3 +1,65 @@
+### meteo di domani (N/A, Sat, 1 Aug 2026 13:20:00 -0700)
+
+- **Caldo record da Nord a Sud: lunedì bollino rosso in tutta Italia a eccezione di Messina e Reggio Calabria**: [Link](https://www.ilfattoquotidiano.it/2026/08/01/ondata-calore-bollino-rosso-25-citta-notizie/8466783/)
+- **Caldo record nelle Marche: sfiorati i 40 gradi, ma c'è una città che è diventata il forno della regione**: [Link](https://www.corriereadriatico.it/schede/caldo_record_marche_citta_forno_oltre_40_gradi_meteo_previsioni-nemmeno_la_montagna_offre_refrigerio-5-9684968.html)
+- **Meteo, le previsioni per domenica 2 agosto**: [Link](https://www.ecodibergamo.it/videos/bergamo-tv/tg/meteo-le-previsioni-per-domenica-2-agosto-o_1329477_44/)
+
+
+### moyen-orient (N/A, Sat, 1 Aug 2026 13:10:00 -0700)
+
+- **EN DIRECT, guerre au Moyen-Orient : l’Iran demande aux alliés des Etats-Unis dans la région de « reconsidérer leur coopération »**: [Link](https://www.lemonde.fr/international/live/2026/08/01/en-direct-guerre-au-moyen-orient-l-iran-demande-aux-allies-des-etats-unis-dans-la-region-de-reconsiderer-leur-cooperation_6737099_3210.html)
+- **Amman, Jérusalem, Bagdad... Des ambassades américaines appellent leurs citoyens à "envisager de quitter" le Moyen-Orient "en cas d'escalade"**: [Link](https://www.franceinfo.fr/monde/iran/guerre-entre-les-etats-unis-israel-et-l-iran/des-ambassades-americaines-appellent-leurs-citoyens-a-envisager-de-quitter-le-moyen-orient-en-cas-d-escalade_8131340.html)
+- **EN DIRECT - Conflit Iran-États-Unis : des ambassades américaines appellent leurs citoyens à «envisager de quitter» le Moyen-Orient**: [Link](https://www.lefigaro.fr/international/en-direct-guerre-au-moyen-orient-trump-annonce-un-accord-sur-le-desarmement-du-hamas-a-gaza-20260731)
+
+
+### نادي الجيش الملكي (N/A, Sat, 1 Aug 2026 13:10:00 -0700)
+
+- **ثورة في “ميركاتو” الجيش**: [Link](https://assabah.ma/940850.html)
+- **عودة جويل بيا والتعاقدات الجديدة تضع التونسي الحباسي خارج حسابات الجيش الملكي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B9%D9%88%D8%AF%D8%A9-%D8%AC%D9%88%D9%8A%D9%84-%D8%A8%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A-%D8%A7%D9%84%D8%AD%D8%A8%D8%A7%D8%B3%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A/23643)
+- **مرموق يقترب من الجيش – الرياضة**: [Link](https://anbaetv.ma/1185986)
+
+
+### météo demain (N/A, Sat, 1 Aug 2026 13:00:00 -0700)
+
+- **Alerte Météo : Canicule sur un tiers est du pays**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/9458-canicule-sur-un-tiers-est-du-pays)
+- **La chaleur reste marquée ce samedi sur ces régions françaises : découvrez lesquelles**: [Link](https://www.tameteo.com/actualites/previsions/la-chaleur-reste-marquee-ce-samedi-sur-ces-regions-francaises-decouvrez-lesquelles.html)
+- **Vague de chaleur : des pointes à plus de 40 °C ce mercredi**: [Link](https://meteofrance.com/actualites-et-dossiers/actualites/nouvelle-vague-de-chaleur-pic-dintensite-mercredi)
+
+
+### weather tomorrow (N/A, Sat, 1 Aug 2026 12:50:00 -0700)
+
+- **Keralam: Pamba River overflows amid heavy rainfall, flash floods in Pathanamthitta**: [Link](https://www.bignewsnetwork.com/news/279218355/keralam-pamba-river-overflows-amid-heavy-rainfall-flash-floods-in-pathanamthitta)
+- **Heavy rain to continue in Kerala tomorrow; Orange Alert issued for 12 districts**: [Link](https://keralakaumudi.com/en/kerala/general/heavy-rain-to-continue-in-kerala-on-sunday-1786544)
+- **Kannur-Wayanad pass shut at night as red alert persists; 26 evacuated, decade's worst flood hits Cherupuzha**: [Link](https://www.onmanorama.com/news/kerala/2026/08/01/kannur-wayanad-pass-shut-at-night-as-red-alert-persists-26-evacuated-decade-s-worst-flood-hits-cherupuzha.html)
+
+
+### météo pour demain (N/A, Sat, 1 Aug 2026 12:50:00 -0700)
+
+- **Bonjour Lille du vendredi 31 juillet 2026**: [Link](https://www.bfmtv.com/grand-lille/videos/video-bonjour-lille-du-vendredi-31-juillet-2026_VN-202608010097.html)
+- **Météo. Quel temps est-il prévu à Lille et ses environs le vendredi 31 juillet 2026 ?**: [Link](https://www.ouest-france.fr/meteo/hauts-de-france/lille-59000/la-meteo-du-jour-a-lille-353c3c87-1163-4ca8-aab4-e2c9e2c9f21a)
+- **Prévisions météo du vendredi 31 juillet 2026 à Lille**: [Link](https://www.20minutes.fr/planete/previsions-meteo/4237124-20260731-meteo-lille-previsions-vendredi-31-juillet-2026)
+
+
+### gianni infantino (N/A, Sat, 1 Aug 2026 12:40:00 -0700)
+
+- **European soccer declares loss of confidence in FIFA chief over ’shabby’ private financing plan**: [Link](https://www.cnn.com/2026/08/01/sport/eufa-confidence-infantino-statement-intl)
+- **How Gianni Infantino engineered World Cup to sell his doomed plan**: [Link](https://www.thetimes.com/sport/football/article/gianni-infantino-greed-undoing-ffwdcjmh8)
+- **Infantino is teetering at FIFA. Is football finally poised for a great reset? - The Athletic**: [Link](https://www.nytimes.com/athletic/7474922/2026/08/01/gianni-infantino-fifa-president-election-challenge/)
+
+
+### alexis ciria (N/A, Sat, 1 Aug 2026 12:30:00 -0700)
+
+- **Alexis Ciria's debut with a goal: “Mourinho asked me to have confidence and enjoy myself”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/declaraciones-post-partido-real-madrid-fiorentina-amistoso-01-08-2026)
+- **Lacosta, Ciria, Lamini, and Mario Rivas make their first-team debut**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/debutantes-real-madrid-fiorentina-amistoso-01-08-2026)
+
+
+### يان ديوماندي (N/A, Sat, 1 Aug 2026 12:00:00 -0700)
+
+- **وسط مفاوضات ريال مدريد.. لايبزيج يصدر بيانًا رسميًا بشأن ديوماندي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%B3%D8%B7-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%AC-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D9%8B%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AF%D9%8A%D9%88%D9%85%D8%A7%D9%86%D8%AF%D9%8A/blt88021dbe2e60cd20)
+- **صفقة جديدة تهدد بقاء فينيسيوس في ريال مدريد**: [Link](https://radiomars.ma/%D8%B5%D9%81%D9%82%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A8%D9%82%D8%A7%D8%A1-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85/)
+- **تحسبا لرحيل إبراهيم دياز.. ريال مدريد يرغب في التعاقد مع نجم إفواري**: [Link](https://ar.lesiteinfo.com/sport/%D8%AA%D8%AD%D8%B3%D8%A8%D8%A7-%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B1-1012937.html)
+
+
 ### الجامعة الملكية المغربية لكرة القدم (N/A, Sat, 1 Aug 2026 12:30:00 -0700)
 
 - **4 مرشحين لخلافة إنفانتينو في "فيفا"**: [Link](https://www.hespress.com/4-%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A-%D9%81%D9%8A%D9%81%D8%A7-1786136.html)
