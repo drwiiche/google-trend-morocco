@@ -1,3 +1,17 @@
+### fraude fiscale (N/A, Sat, 1 Aug 2026 01:00:00 -0700)
+
+- **Une fraude fiscale et sociale de près de 200 millions de dirhams au sein d’un géant de la conserve**: [Link](https://fr.le360.ma/politique/une-fraude-fiscale-et-sociale-de-pres-de-200-millions-de-dirhams-au-sein-dun-geant-de-la-conserve_P7AIHD5ZWZEXTCG7XVI6Y342P4/)
+- **Shakira acquittée par le fisc espagnol après 8 ans de bataille**: [Link](https://www.rtbf.be/article/shakira-acquittee-par-le-fisc-espagnol-apres-8-ans-de-bataille-11765055)
+- **Shakira acquittée dans son affaire de fraude fiscale en Espagne**: [Link](https://lareleve.ma/199353/)
+
+
+### tiempo mañana (N/A, Fri, 31 Jul 2026 13:00:00 -0700)
+
+- **¿Lloverá Mañana en CDMX? Así Estará el Clima el 1 de Agosto 2026**: [Link](https://www.nmas.com.mx/ciudad-de-mexico/clima/pronostico-del-tiempo/llovera-en-cdmx-sabado-1-de-agosto-2026-como-estara-clima-pronostico-probabilidad-lluvia/)
+- **Temperaturas en Ciudad de México: prepárate antes de salir de casa**: [Link](https://www.infobae.com/mexico/2026/08/01/temperaturas-en-ciudad-de-mexico-preparate-antes-de-salir-de-casa/)
+- **Nuevo mes y la lluvia no para: Así estará el clima en México hoy sábado 1 de agosto**: [Link](https://www.tvazteca.com/aztecanoticias/clima-en-mexico-para-el-1-agosto-lluvias-intensas-en-todo-el-pais-este-sabado/)
+
+
 ### المغرب (N/A, Fri, 31 Jul 2026 22:00:00 -0700)
 
 - **"لبؤات الأطلس" يهزمن سيدات الجزائر في كأس إفريقيا "المغرب 2026"**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%87%D8%B2%D9%85%D9%86-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D9%83-1785176.html)
