@@ -1,3 +1,17 @@
+### تقاعد (N/A, Sat, 1 Aug 2026 05:20:00 -0700)
+
+- **ما عاش المتقاعد**: [Link](https://www.hespress.com/%D9%85%D8%A7-%D8%B9%D8%A7%D8%B4-%D8%A7%D9%84%D9%85%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-1785811.html)
+- **التقاعد.. ملف تتقاذفه الحكومات!**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D9%85%D9%84%D9%81-%D8%AA%D8%AA%D9%82%D8%A7%D8%B0%D9%81%D9%87-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A7%D8%AA-1785632.html)
+- **تدني معاشات صغار العسكريين يجر نادية فتاح للمساءلة**: [Link](https://www.achkayen.com/694515/.html)
+
+
+### plus belle la vie encore plus belle (N/A, Sat, 1 Aug 2026 01:00:00 -0700)
+
+- **Plus belle la vie : le retour d’Hugo relance le mystère**: [Link](https://www.ohmymag.com/news/series/plus-belle-la-vie-le-retour-dhugo-relance-le-mystere_art192959.html)
+- **Ici tout commence en avance : résumé de l'épisode du lundi 3 août**: [Link](https://www.melty.fr/series/ici-tout-commence-en-avance-resume-de-lepisode-du-lundi-3-aout-2336611.html)
+- **Plus belle la vie : TF1 rafle la mise après une violente agression**: [Link](https://toutelatele.ouest-france.fr/plus-belle-la-vie-tf1-rafle-la-mise-apres-une-violente-agression-188677)
+
+
 ### telquel (N/A, Sat, 1 Aug 2026 02:50:00 -0700)
 
 - **Témoignage. “Moi Anas*, j’ai tenté Sebta et je remettrai ça”**: [Link](https://mobile.telquel.ma/2026/07/31/temoignage-moi-anas-jai-tente-sebta-et-je-remettrai-ca_2001670)
