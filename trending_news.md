@@ -1,3 +1,31 @@
+### الولايات المتحدة (N/A, Sat, 1 Aug 2026 07:00:00 -0700)
+
+- **لأول مرة منذ 2011.. واشنطن تتدخل لدعم الين بعد هبوطه الحاد**: [Link](https://www.aljazeera.net/ebusiness/2026/8/1/%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%85%D9%86%D8%B0-2011-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D8%AA%D8%AF%D8%AE%D9%84-%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%8A%D9%86)
+- **اليابان تتجنب تأكيد تدخلها في دعم الين وتلمح إلى دعم أميركي**: [Link](https://asharqbusiness.com/financial-markets/142592/%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D8%AA%D8%AA%D8%AC%D9%86%D8%A8-%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%AA%D8%AF%D8%AE%D9%84%D9%87%D8%A7-%D9%81%D9%8A-%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%8A%D9%86-%D9%88%D8%AA%D9%84%D9%85%D8%AD-%D8%A5%D9%84%D9%89-%D8%AF%D8%B9%D9%85-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A/)
+- **الولايات المتحدة وإسرائيل تخططان لمهاجمة البنية التحتية للطاقة في إيران – CBS News**: [Link](https://ar.fxstreet.com/news/lwlyt-lmthd-wsryyl-tkhttn-lmhjm-lbny-lthty-lltq-fy-yrn-cbs-news-202607312203)
+
+
+### إسبانيا (N/A, Sat, 1 Aug 2026 06:50:00 -0700)
+
+- **إندبندنت: سبتة تحتاج استجابة جماعية لا هستيريا سياسية**: [Link](https://www.aljazeera.net/politics/2026/8/1/%D8%A5%D9%86%D8%AF%D8%A8%D9%86%D8%AF%D9%86%D8%AA-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%AA%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A5%D9%84%D9%89-%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D8%AA%D9%86%D8%A7-%D9%84%D8%A7)
+- **سانشيز يهاجم شركاء أوروبيين "أنانيين": سبتة ليست جزءً من فضاء "شنغن"**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%B4%D8%B1%D9%83%D8%A7%D8%A1-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D9%8A%D9%86-%D8%A3%D9%86%D8%A7%D9%86%D9%8A%D9%8A%D9%86-1786020.html)
+- **معضور يكتب: المغرب يسكننا.. قبل أن نسكنه!**: [Link](https://ar.telquel.ma/%D9%8A%D9%88%D8%B3%D9%81-%D9%85%D8%B9%D8%B6%D9%88%D8%B1-%D9%8A%D9%83%D8%AA%D8%A8-%D8%B3%D8%A8%D8%AA%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D8%AD%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D9%8F%D8%AE%D8%AA%D9%84/)
+
+
+### chelsea – tottenham (N/A, Sat, 1 Aug 2026 05:40:00 -0700)
+
+- **Sydney Super Cup LIVE: Chelsea vs Tottenham Hotspur - text commentary, score updates, match stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cvg09wr9yd7t)
+- **Richarlison strikes late to sink Xabi Alonso's Chelsea as ten-man Tottenham claim pre-season bragging rights in Sydney**: [Link](https://www.goal.com/en-sg/lists/chelsea-tottenham-pre-season-richarlison-xabi-alonso/bltd6252747f07888a8)
+- **Chelsea half-time player ratings vs Tottenham as Estevao dazzles and 8/10's resurgence continues**: [Link](https://www.football.london/chelsea-fc/news/chelsea-half-time-player-ratings-34388154)
+
+
+### broad peak (N/A, Sat, 1 Aug 2026 02:20:00 -0700)
+
+- **Nirmal Purja: Former British special forces soldier who appeared in Netflix documentary missing after avalanche**: [Link](https://news.sky.com/story/nirmal-purja-ex-british-special-forces-soldier-missing-after-avalanche-13568650)
+- **Pakistan avalanche: Race to rescue remaining climbers enters second day**: [Link](https://www.bbc.com/news/articles/cddjz1r01l8o)
+- **'She could do almost anything she wanted to do.' | San Antonio climber killed in Pakistan avalanche; family remembers her adventurous spirit**: [Link](https://www.kens5.com/article/news/local/san-antonio-climber-killed-pakistan-avalanche-family-remembers-her-texas-mallory-geis-broad-peak/273-9dcfeaa7-e091-4d29-ad63-7a9042980237)
+
+
 ### تقاعد (N/A, Sat, 1 Aug 2026 05:20:00 -0700)
 
 - **ما عاش المتقاعد**: [Link](https://www.hespress.com/%D9%85%D8%A7-%D8%B9%D8%A7%D8%B4-%D8%A7%D9%84%D9%85%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-1785811.html)
