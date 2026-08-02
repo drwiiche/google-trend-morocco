@@ -1,3 +1,24 @@
+### livret d'épargne (N/A, Sun, 2 Aug 2026 10:30:00 -0700)
+
+- **Bonne nouvelle pour les Marocains qui ont un livret d’épargne**: [Link](https://www.bladi.net/bonne-nouvelle-marocains-livret-epargne,122877.html)
+- **Ce qui change le 1ᵉʳ août pour votre budget : Livret A, tarifs d’électricité, allocation de rentrée scolaire, aide carburant**: [Link](https://www.lemonde.fr/argent/article/2026/08/01/ce-qui-change-le-1-aout-pour-votre-budget-livret-a-tarifs-d-electricite-allocation-de-rentree-scolaire-aide-carburant_6737189_1657007.html)
+- **Lettre épargne et placements août 2026**: [Link](https://www.francetransactions.com/newsletters/newsletter-aout-2026.html)
+
+
+### كوريا الجنوبية (N/A, Sun, 2 Aug 2026 10:30:00 -0700)
+
+- **الإعياء الناجم عن الارتفاع الشديد في درجات الحرارة**: [Link](https://www.elbalad.news/keyword/1346748)
+- **سجلت مدينة بوسان أعلى درجة حرارة لها منذ 122 عاماً.**: [Link](https://www.vietnam.vn/ar/busan-ghi-nhan-muc-nhiet-cao-nhat-trong-122-nam)
+- **ارتفاع عدد حالات الوفاة الناجمة عن موجة الحر فى كوريا الجنوبية إلى 13 حالة**: [Link](https://www.youm7.com/story/2026/7/31/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B9%D8%AF%D8%AF-%D8%AD%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D8%AC%D9%85%D8%A9-%D8%B9%D9%86-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1-%D9%81%D9%89-%D9%83%D9%88%D8%B1%D9%8A%D8%A7/7498742)
+
+
+### psv eindhoven – az (N/A, Sun, 2 Aug 2026 09:30:00 -0700)
+
+- **Echteld geeft duidelijkheid over Smit en transferwensen Parrott en De Wit**: [Link](https://www.vi.nl/nieuws/echteld-bespreekt-transfersituaties-rond-smit-parrott-en-de-wit)
+- **AZ loopt na rust uit tegen PSV • Veerman kreeg vroeg in de wedstrijd rood**: [Link](https://nos.nl/liveblog/2625283-az-loopt-na-rust-uit-tegen-psv-veerman-kreeg-vroeg-in-de-wedstrijd-rood)
+- **Prachtig eerbetoon voor Rob Dieperink verstoord voorafgaand aan Johan Cruijff Schaal**: [Link](https://sportnieuws.nl/nederlands-voetbal/nieuws/prachtig-eerbetoon-voor-rob-dieperink-verstoord-voorafgaand-aan-johan-cruijff-schaal-2026080216044876393/)
+
+
 ### عز الدين أوناحي (N/A, Sun, 2 Aug 2026 08:30:00 -0700)
 
 - **برشلونة يستهدف ضم نجم مغربي لتعويض إصابة دي يونغ**: [Link](https://www.aljazeera.net/sport/2026/8/1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%B6%D9%85-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6)
