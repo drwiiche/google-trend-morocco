@@ -1,3 +1,24 @@
+### سفيان بنجديدة (N/A, Sun, 2 Aug 2026 12:40:00 -0700)
+
+- **بديل سفيان بنجديدة يصل المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AF%D9%8A%D9%84-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%86%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltc744e4380441cedb)
+- **المهاجم الجنوب إفريقي ماباسا يحل بالمغرب لتوقيع العقود**: [Link](https://www.sport7.ma/%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%85%D8%A7%D8%A8%D8%A7%D8%B3%D8%A7-%D9%8A%D8%AD%D9%84-%D8%A8%D8%A7%D9%84%D9%85/)
+- **الماص يقترب من حسم أولى صفقاته الأجنبية**: [Link](https://infosports.ma/224103/)
+
+
+### liverpool – leeds united (N/A, Sun, 2 Aug 2026 12:30:00 -0700)
+
+- **Today’s friendly matches and broadcast channels: Liverpool vs Leeds**: [Link](https://www.voiceofemirates.com/en/sport/2026/08/02/todays-friendly-matches-and-broadcast-channels-liverpool-vs-leeds/)
+- **Liverpool players make visit to the home of the Chicago Bulls**: [Link](https://www.liverpoolfc.com/news/liverpool-players-make-visit-home-chicago-bulls)
+- **Liverpool training under Andoni Iraola: Intensity, smiles and Robert Lewandowski**: [Link](https://www.bbc.com/sport/football/articles/c6290e063yno)
+
+
+### إدواردو كامافينغا (N/A, Sun, 2 Aug 2026 12:20:00 -0700)
+
+- **الإعلام الإسباني يحكم بالإعدام على نجم الريال: فاشل.. والحلقة الأضعف في مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AD%D9%83%D9%85-%D8%A8%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D8%AF%D8%A7%D9%85-%D8%B9%D9%84%D9%89-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D8%A7%D8%B4%D9%84--%D9%88%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B6%D8%B9%D9%81-%D9%81%D9%8A-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt3ac83dd771f43ee0)
+- **ما تأثير مطامع ريال مدريد مورينيو على الميركاتو الصيفي؟**: [Link](https://www.alquds.co.uk/%D9%85%D8%A7-%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1-%D9%85%D8%B7%D8%A7%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B9%D9%84%D9%89-%D8%A7/)
+- **ليس بينهم فينيسيوس.. 4 لاعبين "لا يمكن المساس بهم" في ريال مدريد**: [Link](https://www.eremnews.com/sports/iaozkg0)
+
+
 ### livret d'épargne (N/A, Sun, 2 Aug 2026 10:30:00 -0700)
 
 - **Bonne nouvelle pour les Marocains qui ont un livret d’épargne**: [Link](https://www.bladi.net/bonne-nouvelle-marocains-livret-epargne,122877.html)
