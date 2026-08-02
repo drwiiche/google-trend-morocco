@@ -1,3 +1,17 @@
+### زفاف (N/A, Sun, 2 Aug 2026 14:50:00 -0700)
+
+- **تفاصيل مثيرة عن زفاف رونالدو وجورجينا.. فندق فاخر وارتداء الأسود "إلزامي"**: [Link](https://www.alarabiya.net/sport/2026/08/02/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%B9%D9%86-%D8%B2%D9%81%D8%A7%D9%81-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D9%81%D9%86%D8%AF%D9%82-%D9%81%D8%A7%D8%AE%D8%B1-%D9%88%D8%A7%D8%B1%D8%AA%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%B2%D8%A7%D9%85%D9%8A)
+- **شائعات تشعل مواقع التواصل حول زواج مزعوم ل"كريستيانو رونالدو" و"جورجينا رودريغيز"**: [Link](https://arabic.euronews.com/culture/2026/08/02/rumours-ignite-social-media-about-the-alleged-marriage-of-cristiano-ronaldo-and-giorgina-r)
+- **زفاف يليق بملياردير كرة القدم.. مفاجآت لا تُصدق في حياة رونالدو وجورجينا الفاخرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%81%D8%A7%D9%81-%D9%8A%D9%84%D9%8A%D9%82-%D8%A8%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D8%AF%D9%8A%D8%B1-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85--%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%93%D8%AA-%D9%84%D8%A7-%D8%AA%D9%8F%D8%B5%D8%AF%D9%82-%D9%81%D9%8A-%D8%AD%D9%8A%D8%A7%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%A7%D9%84%D9%81%D8%A7%D8%AE%D8%B1%D8%A9/blteb43cdc1437b4c3d)
+
+
+### gta 6 (N/A, Sun, 2 Aug 2026 14:40:00 -0700)
+
+- **New GTA 6 Info Coming Soon, It Seems**: [Link](https://www.gamespot.com/articles/new-gta-6-info-coming-soon-it-seems/)
+- **Insider Hints Rockstar Could Share a Grand Theft Auto VI Update This August**: [Link](https://twistedvoxel.com/gta-6-news-august-rumour/)
+- **Huge GTA 6 PS5 marketing budget teased, as imminent trailer may kick off ad blitz**: [Link](https://www.notebookcheck.net/Huge-GTA-6-PS5-marketing-budget-teased-as-imminent-trailer-may-kick-off-ad-blitz.1357915.0.html)
+
+
 ### العراق (N/A, Sun, 2 Aug 2026 14:20:00 -0700)
 
 - **بين واشنطن وطهران.. هل يستطيع العراق كبح الفصائل المسلحة؟**: [Link](https://www.aljazeera.net/politics/2026/7/31/%D8%A8%D9%8A%D9%86-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D9%88%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D8%B7%D9%8A%D8%B9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%83%D8%A8%D8%AD)
