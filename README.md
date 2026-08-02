@@ -1,3 +1,24 @@
+### ebola (N/A, Sun, 2 Aug 2026 02:50:00 -0700)
+
+- **Fear And Fatigue Grip Congo’s Health Workers As Ebola Response Crumbles**: [Link](https://healthpolicy-watch.news/fear-and-fatigue-grip-congos-health-workers-as-ebola-response-crumbles/)
+- **Misinformation Fueling Communal Resistance Amid Renewed Ebola Crisis in DRC**: [Link](https://humanglemedia.com/misinformation-fueling-communal-resistance-amid-renewed-ebola-crisis-in-drc)
+- **Today's top news: Democratic Republic of the Congo, Occupied Palestinian Territory, Lebanon**: [Link](https://www.unocha.org/news/todays-top-news-democratic-republic-congo-occupied-palestinian-territory-lebanon)
+
+
+### logement (N/A, Sun, 2 Aug 2026 02:30:00 -0700)
+
+- **Au Maroc, 12 000 dirhams à payer avant d’entrer dans un appartement**: [Link](https://www.bladi.net/maroc-dirhams-payer-entrer-appartement,122880.html)
+- **Villes étudiantes : où investir en 2026 ?**: [Link](https://www.empruntis.com/financement/actualites/2026/ou-investir-immobilier-etudiant-2026-21090/)
+- **Logement étudiant : les meilleurs sites pour vous aider dans vos recherches**: [Link](https://www.letudiant.fr/lifestyle/logement_2/logement-etudiant-quels-sites-pour-vous-aider-dans-vos-recherches.html)
+
+
+### تامر حسني (N/A, Sat, 1 Aug 2026 23:10:00 -0700)
+
+- **الموت يفجع الفنان تامر حسني في والده**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D9%81%D8%AC%D8%B9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-%D9%81%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D9%87-253389.html)
+- **مصر.. تامر حسني يعلن وفاة والده الفنان المعتزل حسني شريف**: [Link](https://arabic.cnn.com/entertainment/article/2026/07/31/egypt-tamer-hosny-announces-the-death-of-his-father-artist-hosny-sherif)
+- **بسمة بوسيل تسترجع ذكرياتها مع والد تامر حسني**: [Link](https://www.billboardarabia.com/%D9%85%D9%88%D8%B3%D9%8A%D9%82%D9%89/%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A/%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84-%D8%AA%D8%B3%D8%AA%D8%B1%D8%AC%D8%B9-%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA%D9%87%D8%A7-%D9%85%D8%B9-%D9%88%D8%A7%D9%84%D8%AF-%D8%AA%D8%A7%D9%85%D8%B1-%D8%AD%D8%B3%D9%86%D9%8A-8597)
+
+
 ### fédération royale marocaine de football (N/A, Sun, 2 Aug 2026 03:10:00 -0700)
 
 - **Communiqué**: [Link](https://frmf.ma/fr/articles/communique-4)
