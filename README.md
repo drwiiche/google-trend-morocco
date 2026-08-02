@@ -1,3 +1,17 @@
+### fédération royale marocaine de football (N/A, Sun, 2 Aug 2026 03:10:00 -0700)
+
+- **Communiqué**: [Link](https://frmf.ma/fr/articles/communique-4)
+- **FIFA : Gianni Infantino visait un salaire XXL**: [Link](https://www.footmercato.net/a7691828452495409606-fifa-gianni-infantino-visait-un-salaire-xxl)
+- **Football. Ils veulent aussi vendre la Coupe du monde - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/08/01/football-ils-veulent-aussi-vendre-la-coupe-du-monde-1734653/)
+
+
+### نادي الوداد الرياضي (N/A, Sun, 2 Aug 2026 02:30:00 -0700)
+
+- **رسميا: الوداد البيضاوي يبرم صفقة جديدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D9%88%D9%8A-%D9%8A%D8%A8%D8%B1%D9%85-%D8%B5%D9%81%D9%82%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/blt53580d7dbd892f08)
+- **الوداد الرياضي يعلن تعاقده مع الحارس رشيد غانيمي لثلاثة مواسم**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B9%D8%A7%D9%82%D8%AF%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B1%D8%B3-%D8%B1/)
+- **نادي الوداد الرياضي يستعيد جنان الله**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AC%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%84%D9%87-1786273.html)
+
+
 ### donald trump (N/A, Sun, 2 Aug 2026 01:30:00 -0700)
 
 - **Live updates: US-Iran war; Trump says he’s canceling planned attacks**: [Link](https://www.cnn.com/2026/08/02/world/live-news/iran-war-trump)
