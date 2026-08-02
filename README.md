@@ -1,3 +1,17 @@
+### إنتر ميامي ضد كولومبوس كرو (N/A, Sat, 1 Aug 2026 17:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي وكولومبوس كرو في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%88%D9%86%D8%AA%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt2d941187323e00da)
+- **توقعات مباراة إنتر ميامي ضد كولومبوس كرو: التشكيلات المتوقعة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-inter-miami-vs-columbus-crew-doi-hinh-du-kien)
+- **ما القنوات الناقلة لمباراة إنتر ميامي وكولومبوس كرو في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%88%D8%B3-%D9%83%D8%B1%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt9323e2690ac5f3a1)
+
+
+### nirmal purja (N/A, Sat, 1 Aug 2026 16:50:00 -0700)
+
+- **Pakistani rescuers recover 3 bodies of 10 climbers missing on Broad Peak after avalanche**: [Link](https://apnews.com/article/pakistan-mountaineers-missing-avalanche-broad-peak-8bfa2c9e346b3a617cfed91f091283e5)
+- **Mountaineer Nirmal Purja killed in Pakistan avalanche, his company says**: [Link](https://www.bbc.com/news/articles/clyljq79kdko)
+- **Top mountaineer Nirmal Purja confirmed dead after 11 hit by avalanche in Pakistan**: [Link](https://www.theguardian.com/world/2026/aug/01/top-mountaineer-nirmal-purja-confirmed-dead-after-11-hit-by-avalanche-in-pakistan)
+
+
 ### inter miami – columbus crew (N/A, Sat, 1 Aug 2026 15:50:00 -0700)
 
 - **Is Lionel Messi playing today for Inter Miami vs Columbus Crew in 2026 MLS Matchday 19?**: [Link](https://bolavip.com/en/soccer/is-lionel-messi-playing-today-for-inter-miami-vs-columbus-crew-in-2026-mls-matchday-19)
