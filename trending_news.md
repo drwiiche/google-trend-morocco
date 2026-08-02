@@ -1,3 +1,10 @@
+### donald trump (N/A, Sun, 2 Aug 2026 01:30:00 -0700)
+
+- **Live updates: US-Iran war; Trump says he’s canceling planned attacks**: [Link](https://www.cnn.com/2026/08/02/world/live-news/iran-war-trump)
+- **Donald Trump says he cancelled Iran strikes after Middle East allies’ request**: [Link](https://www.ft.com/content/9cb84920-075e-4fa4-b1cb-dfc55d5845f4?syn-25a6b1a6=1)
+- **Trump says he will hold off on fresh Iran attack in hope of quick deal**: [Link](https://www.reuters.com/world/asia-pacific/iran-threatens-strike-other-nations-energy-fields-if-us-launches-fresh-attacks-2026-08-01/)
+
+
 ### lionel messi (N/A, Sat, 1 Aug 2026 19:30:00 -0700)
 
 - **📹 Casemiro scores own goal in his 1st game for Inter Miami in Florida**: [Link](https://onefootball.com/en/news/casemiro-scores-own-goal-in-his-1st-game-for-inter-miami-in-florida-43217519)
