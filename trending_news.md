@@ -1,3 +1,24 @@
+### حرارة (N/A, Sun, 2 Aug 2026 07:30:00 -0700)
+
+- **ذروة الموجة شديدة الحرارة.. درجات الحرارة العظمى والمحسوسة وأكثر المناطق سخونة**: [Link](https://www.youm7.com/story/2026/8/2/%D8%B0%D8%B1%D9%88%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%AC%D8%A9-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D9%89-%D9%88%D8%A7%D9%84%D9%85%D8%AD%D8%B3%D9%88%D8%B3%D8%A9-%D9%88%D8%A3%D9%83%D8%AB%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82/7500137)
+- **"ذروة موجة الصهد اليوم" والقبة الحرارية تسيطر على الأجواء في مصر**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/02/%D9%85%D8%B5%D8%B1-%D8%B0%D8%B1%D9%88%D8%A9-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%B5%D9%87%D8%AF-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88%D8%A7%D9%84%D9%82%D8%A8%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B3%D9%8A%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%AC%D9%88%D8%A7%D8%A1-)
+- **الطقس غدا.. شديد الحرارة رطب نهارا ونشاط رياح**: [Link](https://www.rosaelyoussef.com/1421167)
+
+
+### azzedine ounahi (N/A, Sun, 2 Aug 2026 07:20:00 -0700)
+
+- **Le FC Barcelone veut s’offrir Azzedine Ounahi !**: [Link](https://www.footmercato.net/a1396298266488538305-le-fc-barcelone-veut-soffrir-azzedine-ounahi)
+- **Un rival espagnol menace le transfert d'Ounahi vers Barcelone**: [Link](https://www.goal.com/fr/news/un-rival-espagnol-menace-le-transfert-d-ounahi-vers-barcelone/blt2ea70645d6b9ceeb)
+- **Barcelone relance la piste Ounahi pour pallier l’absence de De Jong**: [Link](https://mountakhab.net/barcelone-relance-la-piste-ounahi-pour-pallier-labsence-de-de-jong/)
+
+
+### تونس (N/A, Sun, 2 Aug 2026 07:20:00 -0700)
+
+- **تونس تعيش أيامها الحرجة**: [Link](https://www.aljazeera.net/opinions/2026/8/2/%D8%AA%D9%88%D9%86%D8%B3-%D8%BA%D8%A7%D8%B6%D8%A8%D8%A9-%D9%88%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D9%8A%D8%BA%D9%84%D9%82-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9)
+- **تونس على مفترق الطرق: عودة الاحتجاجات والتجاذبات في ذكرى 25 يوليو**: [Link](https://www.alquds.co.uk/%D8%AA%D9%88%D9%86%D8%B3-%D8%B9%D9%84%D9%89-%D9%85%D9%81%D8%AA%D8%B1%D9%82-%D8%A7%D9%84%D8%B7%D8%B1%D9%82-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D9%88/)
+- **أفكار حول منطق "التنافي" وأثره في أزمة الحقل السياسي التونسي**: [Link](https://arabi21.com/story/1778742/%D8%A3%D9%81%D9%83%D8%A7%D8%B1-%D8%AD%D9%88%D9%84-%D9%85%D9%86%D8%B7%D9%82-%D8%A7%D9%84%D8%AA%D9%86%D8%A7%D9%81%D9%8A-%D9%88%D8%A3%D8%AB%D8%B1%D9%87-%D9%81%D9%8A-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%AD%D9%82%D9%84-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A)
+
+
 ### غرق (N/A, Sun, 2 Aug 2026 06:20:00 -0700)
 
 - **بعد 24 ساعة من البحث.. انتشال جثمان ثالث ضحايا الغرق في مياه بحر مطروح**: [Link](https://www.cairo24.com/2469117)
