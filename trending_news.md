@@ -1,3 +1,17 @@
+### lionel messi (N/A, Sat, 1 Aug 2026 19:30:00 -0700)
+
+- **📹 Casemiro scores own goal in his 1st game for Inter Miami in Florida**: [Link](https://onefootball.com/en/news/casemiro-scores-own-goal-in-his-1st-game-for-inter-miami-in-florida-43217519)
+- **MLS matches: Lionel Messi's return and other results**: [Link](https://zamin.uz/en/sport/215682-mls-matches-lionel-messi-s-return-and-other-results.html)
+- **Messi returns to action in Inter Miami’s draw with Crew**: [Link](https://www.sun-sentinel.com/2026/08/01/crew-play-miami-to-a-2-2-draw-as-lionel-messi-returns/)
+
+
+### marine tondelier (N/A, Sat, 1 Aug 2026 16:20:00 -0700)
+
+- **« Grosse salope » : le président de la FDSEA de l’Oise insulte Marine Tondelier**: [Link](https://www.courrier-picard.fr/id735825/article/2026-07-30/grosse-salope-le-president-de-la-fdsea-de-loise-insulte-la-patronne-des-verts)
+- **Marine Tondelier exige des « excuses publiques » après avoir été insultée sur Facebook par un responsable de la FNSEA**: [Link](https://www.lemonde.fr/politique/article/2026/07/31/marine-tondelier-exige-des-excuses-publiques-apres-avoir-ete-insultee-sur-facebook-par-un-responsable-de-la-fnsea_6737126_823448.html)
+- **« Force à toutes les ''grosses salopes'' et à toutes les ''sales connes''» : Marine Tondelier riposte après l’insulte sexiste d’un membre de la FNSEA**: [Link](https://www.humanite.fr/feminisme/fnsea/force-a-toutes-les-grosses-salopes-et-a-toutes-les-sales-connes-marine-tondelier-riposte-apres-linsulte-sexiste-dun-membre-de-la-fnsea)
+
+
 ### إنتر ميامي ضد كولومبوس كرو (N/A, Sat, 1 Aug 2026 17:40:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر ميامي وكولومبوس كرو في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%88%D9%86%D8%AA%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt2d941187323e00da)
