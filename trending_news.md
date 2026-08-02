@@ -1,3 +1,31 @@
+### العراق (N/A, Sun, 2 Aug 2026 14:20:00 -0700)
+
+- **بين واشنطن وطهران.. هل يستطيع العراق كبح الفصائل المسلحة؟**: [Link](https://www.aljazeera.net/politics/2026/7/31/%D8%A8%D9%8A%D9%86-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D9%88%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D8%B7%D9%8A%D8%B9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%83%D8%A8%D8%AD)
+- **العراق: حين تُفجِّر الصواريخ آخر فرصة للخروج من لعبة المحاور**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D8%AD%D9%8A%D9%86-%D8%AA%D9%8F%D9%81%D8%AC%D9%90%D9%91%D8%B1-%D8%A7%D9%84%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A2%D8%AE%D8%B1-%D9%81%D8%B1%D8%B5%D8%A9-%D9%84/)
+- **الرياض وبغداد بين النار والدبلوماسية**: [Link](https://annabaa.org/arabic/authorsarticles/46918)
+
+
+### sahara occidental (N/A, Sun, 2 Aug 2026 13:40:00 -0700)
+
+- **"Donald J. Trump Highway" : la lettre du Roi révèle les raisons de ce choix**: [Link](https://medias24.com/2026/08/02/donald-j-trump-highway-la-lettre-du-roi-revele-les-raisons-de-ce-choix-1735415/)
+- **Au Maroc, le roi Mohammed VI baptise une voie express de 1 055 kilomètres du Sahara occidental « Autoroute Donald J. Trump »**: [Link](https://www.sudouest.fr/international/etats-unis/donald-trump/au-maroc-le-roi-mohammed-vi-baptise-une-voie-express-de-1-055-kilometres-du-sahara-occidental-autoroute-donald-j-trump-30146123.php)
+- **Le Maroc baptise du nom de Trump une autoroute au Sahara occidental**: [Link](https://fr.timesofisrael.com/le-maroc-baptise-du-nom-de-trump-une-autoroute-au-sahara-occidental/)
+
+
+### éclipse solaire (N/A, Sun, 2 Aug 2026 13:30:00 -0700)
+
+- **CARTE. Éclipse solaire du 12 août : où et quand regarder le ciel pour en profiter**: [Link](https://france3-regions.franceinfo.fr/centre-val-de-loire/carte-eclipse-solaire-du-12-aout-ou-et-quand-regarder-le-ciel-pour-en-profiter-3395227.html)
+- **Maroc : jusqu’à 92 % du Soleil disparaîtront juste avant la nuit**: [Link](https://www.bladi.net/maroc-jusqu-soleil-disparaitront-juste-nuit,122889.html)
+- **L’éclipse du 12 août, un casse-tête logistique pour l’Espagne**: [Link](https://www.courrierinternational.com/article/astronomie-l-eclipse-du-12-aout-un-casse-tete-logistique-pour-l-espagne_248150)
+
+
+### donald trump maroc (N/A, Sun, 2 Aug 2026 10:30:00 -0700)
+
+- **Morocco Says Trump Highway Naming Is Mark of ‘Deep Appreciation’**: [Link](https://www.bloomberg.com/news/articles/2026-08-02/morocco-says-trump-highway-naming-is-mark-of-deep-appreciation)
+- **Trump reaffirms U.S. recognition of Morocco's sovereignty over Sahara in message to King Mohammed VI**: [Link](https://en.hespress.com/143023-trump-reaffirms-u-s-recognition-of-moroccos-sovereignty-over-sahara-in-message-to-king-mohammed-vi.html)
+- **Washington Confirms Support for Moroccan Sovereignty Over the Sahara and Autonomy as a Solution**: [Link](https://www.atalayar.com/en/articulo/politics/washington-confirms-support-for-moroccan-sovereignty-over-the-sahara-and-autonomy-solution/20260801143405228160.html)
+
+
 ### سفيان بنجديدة (N/A, Sun, 2 Aug 2026 12:40:00 -0700)
 
 - **بديل سفيان بنجديدة يصل المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AF%D9%8A%D9%84-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%86%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltc744e4380441cedb)
