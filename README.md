@@ -1,3 +1,10 @@
+### غرق (N/A, Sun, 2 Aug 2026 06:20:00 -0700)
+
+- **بعد 24 ساعة من البحث.. انتشال جثمان ثالث ضحايا الغرق في مياه بحر مطروح**: [Link](https://www.cairo24.com/2469117)
+- **مصرع 3 أشقاء وإصابة فتاة وشاب في حادث غرق بإحدى قرى الساحل الشمالى بمطروح**: [Link](https://gate.ahram.org.eg/News/5881605.aspx)
+- **مصرع 3 شباب من الفيوم غرقًا بشاطىء سيدي حنيش في مطروح**: [Link](https://www.almasryalyoum.com/news/details/4328312)
+
+
 ### ebola (N/A, Sun, 2 Aug 2026 02:50:00 -0700)
 
 - **Fear And Fatigue Grip Congo’s Health Workers As Ebola Response Crumbles**: [Link](https://healthpolicy-watch.news/fear-and-fatigue-grip-congos-health-workers-as-ebola-response-crumbles/)
