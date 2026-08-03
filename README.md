@@ -1,3 +1,59 @@
+### sports (N/A, Mon, 3 Aug 2026 15:00:00 -0700)
+
+- **Final celebration at Hydro as India prepares for centenary event**: [Link](https://www.insidethegames.biz/articles/final-celebration-at-hydro-as-india-prepares-for-centenary-event)
+- **"Grandest and most historic one...we will win our highest number of medals": Sports Minister responds to Arvind Kejriwal's concerns over dropped CWG sports**: [Link](https://www.indiagazette.com/news/279220856/grandest-and-most-historic-onewe-will-win-our-highest-number-of-medals-sports-minister-responds-to-arvind-kejriwal-concerns-over-dropped-cwg-sports)
+- **Q&A: CGF president Rukare on Glasgow 2026 and the road to Ahmedabad 2030**: [Link](https://www.sportcal.com/features/qa-cgf-president-rukare-on-glasgow-2026-and-the-road-to-ahmedabad-2030/)
+
+
+### morocco (N/A, Mon, 3 Aug 2026 15:00:00 -0700)
+
+- **Spain installs sea barrier on Ceuta's border with Morocco after frontier rush that killed 67**: [Link](https://www.pbs.org/newshour/world/spain-installs-sea-barrier-on-ceutas-border-with-morocco-after-frontier-rush-that-killed-67)
+- **EU calls for strengthening borders after thousands of migrants pour into Spain from Morocco**: [Link](https://www.bbc.com/news/articles/cyvl84zmgyro)
+- **The Far Right Is Distorting Ceuta**: [Link](https://www.theatlantic.com/ideas/2026/08/ceuta-spain-far-right/688154/)
+
+
+### عاصفة رعدية (N/A, Mon, 3 Aug 2026 14:50:00 -0700)
+
+- **من موجة الحر إلى الفيضانات.. تقلبات جوية تضرب الجزائر**: [Link](https://www.eanlibya.com/%D9%85%D9%86-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9/)
+- **أمطار رعدية في 26 ولاية**: [Link](https://www.echaab.dz/2026/08/03/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A-26-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-3/)
+- **الأرصاد الجوية تحذر من أمطار رعدية**: [Link](https://www.dz54.dz/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9/)
+
+
+### flashscore (N/A, Mon, 3 Aug 2026 14:20:00 -0700)
+
+- **Djurgarden demolish Vasteras to go third as Sirius take 14-point lead at top**: [Link](https://www.flashscore.co.za/news/soccer-allsvenskan-djurgarden-demolish-vasteras-to-go-third-as-sirius-take-14-point-lead-at-top/K81yejg2/)
+- **Djurgarden beat Vasteras to go third as Sirius take huge 14-point lead at top**: [Link](https://www.tribalfootball.com/article/djurgarden-demolish-vasteras-to-go-third-as-sirius-take-huge-14-point-lead-at-top-6d10ae01-97ca-41d2-8212-1f08366e8422)
+- **DC Open to resume Monday after rain halts Pegula-Eala final**: [Link](https://www.espn.com/tennis/story/_/id/49516968/dc-open-resume-monday-rain-halts-pegula-eala-final)
+
+
+### كاس افريقيا للسيدات 2026 (N/A, Mon, 3 Aug 2026 14:20:00 -0700)
+
+- **مالي تتفوق على الرأس الأخضر بثلاثية في مباراة مثيرة**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D9%84%D9%8A-%D8%AA%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B1%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D8%AE%D8%B6%D8%B1-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9/)
+- **الكاميرون تهزم غانا وتقترب من ربع نهائي كأس أمم إفريقيا للسيدات**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%AA%D9%87%D8%B2%D9%85-%D8%BA%D8%A7%D9%86%D8%A7-%D9%88%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6/)
+- **كأس أمم إفريقيا للسيدات – المغرب 2026 (المجموعة الرابعة/الجولة الثانية).. الكاميرون تفوز على غانا (1-0)**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2026-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-20260802)
+
+
+### earthquake (N/A, Mon, 3 Aug 2026 14:10:00 -0700)
+
+- **Magnitude 5.6 earthquake strikes near Egypt's Suez**: [Link](https://en.hespress.com/143099-magnitude-5-6-earthquake-strikes-near-egypts-suez.html)
+- **A Look Back at the Biggest Earthquakes That Shook the Middle East**: [Link](https://scoopempire.com/a-look-back-at-the-biggest-earthquakes-that-shook-the-middle-east/)
+- **"Build for your afterlife alongside your worldly life": Zizo issues a moving message after Egypt's earthquake**: [Link](https://www.goal.com/en/news/build-for-your-afterlife-alongside-your-worldly-life-zizo-issues-a-moving-message-after-egypt-s-earthquake/blt6a43ffef1c799042)
+
+
+### caf women (N/A, Mon, 3 Aug 2026 14:00:00 -0700)
+
+- **CAF Women’s Champions League | COSAFA Qualifier Draw in Gaborone on Tuesday**: [Link](https://www.cafonline.com/caf-womens-champions-league/news/caf-women-s-champions-league-cosafa-qualifier-draw-in-gaborone-on-tuesday/)
+- **ZESCO Ndola Girls Step Up CAF Preparations With Tanzania Camp Ahead of COSAFA Qualifiers**: [Link](https://zambianfootball.co.zm/zesco-ndola-girls-step-up-caf-preparations-with-tanzania-camp-ahead-of-cosafa-qualifiers/)
+- **ZESCO Ndola Girls to discover COSAFA Champions League path on Tuesday**: [Link](https://zambianfootball.co.zm/zesco-ndola-girls-to-discover-cosafa-champions-league-path-on-tuesday/)
+
+
+### شركة طيران (N/A, Mon, 3 Aug 2026 13:30:00 -0700)
+
+- **نقابيون: شركة طيران تشغل ربابنة بنظام "المقاول الذاتي" في المغرب**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D9%8A%D9%88%D9%86-%D8%B4%D8%B1%D9%83%D8%A9-%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B4%D8%BA%D9%84-%D8%B1%D8%A8%D8%A7%D8%A8%D9%86%D8%A9-%D8%A8%D9%86%D8%B8%D8%A7%D9%85-1786835.html)
+- **نقابة طياري فرنسا تتهم إيزي جيت بتشغيل ربابنة في المغرب بعقود المقاول الذاتي**: [Link](https://attasiaa.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AA%D9%87%D9%85-%D8%A5%D9%8A%D8%B2%D9%8A-%D8%AC%D9%8A%D8%AA-%D8%A8%D8%AA%D8%B4%D8%BA%D9%8A%D9%84-%D8%B7%D9%8A%D8%A7%D8%B1%D9%8A%D9%86/)
+- **نقابيون.. شركة طيران توظف ربابنة بالمغرب بنظام "المقاول الذاتي"**: [Link](https://alalam24.press.ma/262162/)
+
+
 ### elbotola (N/A, Mon, 3 Aug 2026 13:50:00 -0700)
 
 
