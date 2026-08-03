@@ -1,3 +1,43 @@
+### elbotola (N/A, Mon, 3 Aug 2026 13:50:00 -0700)
+
+
+
+
+### morocco vs senegal (N/A, Mon, 3 Aug 2026 13:30:00 -0700)
+
+- **MATCH STATS: Senegal face Morocco in TotalEnergies CAF WAFCON Morocco 2026 Group A**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-senegal-face-morocco-in-totalenergies-caf-wafcon-morocco-2026-group-a/)
+- **Morocco vs Senegal: Atlas Lionesses Look to Cap Perfect Group Stage Run**: [Link](https://www.moroccoworldnews.com/2026/08/332895/morocco-vs-senegal-atlas-lionesses-look-to-cap-perfect-group-stage-run/)
+- **Morocco unveils starting XI for crucial WAFCON clash against Senegal**: [Link](https://en.hespress.com/143164-morocco-unveils-starting-xi-for-crucial-wafcon-clash-against-senegal.html)
+
+
+### autoroute donald trump maroc (N/A, Mon, 3 Aug 2026 13:20:00 -0700)
+
+- **"Donald J. Trump Highway" : la lettre du Roi révèle les raisons de ce choix**: [Link](https://medias24.com/2026/08/02/donald-j-trump-highway-la-lettre-du-roi-revele-les-raisons-de-ce-choix-1735415/)
+- **Sahara occidental : une autoroute rebaptisée Trump par Mohammed VI**: [Link](https://www.france24.com/fr/afrique/20260803-sahara-occidental-autoroute-rebaptisee-trump-mohammed-vi-maroc-tiznit-dakhla)
+- **Communiqué du Cabinet Royal**: [Link](https://maroc.ma/fr/actualites/communique-du-cabinet-royal-7)
+
+
+### وقود السيارات (N/A, Mon, 3 Aug 2026 13:20:00 -0700)
+
+- **محطات الوقود تعلن زيادة بقيمة درهم واحد في أسعار الغازوال والبنزين**: [Link](https://www.hespress.com/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-%D8%AA%D8%B9%D9%84%D9%86-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A8%D9%82%D9%8A%D9%85%D8%A9-%D8%AF%D8%B1%D9%87%D9%85-%D9%88%D8%A7%D8%AD-1786888.html)
+- **زيادة جديدة بمحطات الوقود.."المازوط" يرتفع بدرهم والبنزين ب0.98 درهما**: [Link](https://www.ahdath.info/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%A7%D8%B2%D9%88%D8%B7-%D9%8A%D8%B1/)
+- **ارتفاع جديد في أسعار المحروقات بالمغرب ومهني يكشف التفاصيل**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1-17-1014256.html)
+
+
+### المغرب ضد السنغال (N/A, Mon, 3 Aug 2026 13:10:00 -0700)
+
+- **كأس أمم إفريقيا للسيدات - المغرب 2026 .. "لبؤات الأطلس" يواجهن السنغال بطموح انتزاع الفوز وتحقيق العلامة الكاملة**: [Link](https://maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2026-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%88%D8%A7%D8%AC%D9%87%D9%86-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A8%D8%B7%D9%85%D9%88%D8%AD-%D8%A7%D9%86%D8%AA%D8%B2%D8%A7%D8%B9-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D9%88%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%85%D8%A9)
+- **فيلدا: مواجهة السنغال صعبة.. والمغرب يبني قوة نسوية إفريقية بثبات**: [Link](https://www.hespress.com/%D9%81%D9%8A%D9%84%D8%AF%D8%A7-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%B5%D8%B9%D8%A8%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%A8%D9%86-1786544.html)
+- **الندوة الصحافية للمنتخب الوطني النسوي قبل مواجهة السنغال**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84)
+
+
+### bouaddi (N/A, Mon, 3 Aug 2026 11:40:00 -0700)
+
+- **Ayyoub Bouaddi: Olivier Létang calms the situation despite interest**: [Link](https://mountakhab.net/en/ayyoub-bouaddi-olivier-letang-calms-the-situation-despite-interest/)
+- **Manchester City agree Ayyoub Bouaddi deal but talks continue over possible discount clause**: [Link](https://talksport.com/football/4479632/manchester-city-ayyoub-bouaddi-talks-lille-transfer-news/)
+- **Ayyoub Bouaddi transfer to Manchester City denied by LOSC**: [Link](https://en.yabiladi.com/articles/details/199853/ayyoub-bouaddi-transfer-manchester-city.html)
+
+
 ### هانزي فليك (N/A, Mon, 3 Aug 2026 12:50:00 -0700)
 
 - **"الحلم ينهار؟".. فليك يوجه ضربة مؤلمة لأوناحي وحمزة بصمت مريب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D9%8A%D9%86%D9%87%D8%A7%D8%B1---%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%88%D8%AC%D9%87-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D9%94%D9%84%D9%85%D8%A9-%D9%84%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%88%D8%AD%D9%85%D8%B2%D8%A9-%D8%A8%D8%B5%D9%85%D8%AA-%D9%85%D8%B1%D9%8A%D8%A8/blt4e5a48cc6fa24cb7)
