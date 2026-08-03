@@ -1,3 +1,36 @@
+### spider man brand new day (N/A, Mon, 3 Aug 2026 10:10:00 -0700)
+
+- **‘Spider-Man’ Beats ‘Avengers: Endgame’ as ‘Brand New Day’ Climbs to $360 Million, the Biggest Opening Weekend in Box Office History**: [Link](https://variety.com/2026/film/box-office/spider-man-brand-new-day-box-office-opening-record-avengers-endgame-1236826336/)
+- **5 Reasons ‘Spider-Man: Brand New Day’ Crushed Superhero Fatigue**: [Link](https://www.hollywoodreporter.com/movies/movie-news/spider-man-brand-new-day-box-office-superhero-fatigue-1236663071/)
+- **‘Spider-Man’ and ‘The Odyssey’ power biggest box office weekend in history**: [Link](https://www.nbcnews.com/pop-culture/pop-culture-news/spider-man-odyssey-biggest-box-office-weekend-history-rcna590477)
+
+
+### الدرك الملكي (N/A, Mon, 3 Aug 2026 09:30:00 -0700)
+
+
+
+
+### séisme égypte (N/A, Mon, 3 Aug 2026 09:30:00 -0700)
+
+- **Egypte: un séisme ressenti au Caire**: [Link](https://afrique.le360.ma/societe/egypte-un-seisme-ressenti-au-caire_6FTJXWTEYVA4ZKTWJECBOUZLHY/)
+- **Rare séisme de magnitude 5,6 en Égypte, pas de victimes**: [Link](https://lematin.ma/monde/rare-seisme-de-magnitude-56-en-egypte-pas-de-victimes/359077)
+- **Égypte : un séisme de 5,5 secoue la région de Suez**: [Link](https://fr.africanews.com/2026/08/03/egypte-un-seisme-de-55-secoue-la-region-de-suez/)
+
+
+### économie (N/A, Mon, 3 Aug 2026 09:30:00 -0700)
+
+- **Maroc-Chine : quel est le véritable poids de Pékin dans l’économie marocaine ?**: [Link](https://www.jeuneafrique.com/1828564/economie-entreprises/maroc-chine-quel-est-le-veritable-poids-de-pekin-dans-leconomie-marocaine/)
+- **Chine-Maroc: Un partenariat construit sur les chantiers de demain**: [Link](https://www.leconomiste.com/chine-maroc-un-partenariat-construit-sur-les-chantiers-de-demain/)
+- **China Trade Week Morocco 2026 : MIE Group veut renforcer les passerelles économiques entre le Royaume et la Chine**: [Link](https://lematin.ma/economie/casablanca-accueille-le-china-trade-week-morocco-2026-en-novembre/358721)
+
+
+### مارك كاسادو (N/A, Mon, 3 Aug 2026 08:50:00 -0700)
+
+- **السعودية تغريه بالملايين!.. فليك يصارح نجم برشلونة: لا مكان لك هنا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%BA%D8%B1%D9%8A%D9%87-%D8%A8%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B5%D8%A7%D8%B1%D8%AD-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7-%D9%85%D9%83%D8%A7%D9%86-%D9%84%D9%83-%D9%87%D9%86%D8%A7/blt77477ac8a3657a8b)
+- **تقارير: تزايد فرص بقاء كاسادو في برشلونة**: [Link](https://www.yallakora.com/la-liga/3034/news/560711/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%AA%D8%B2%D8%A7%D9%8A%D8%AF-%D9%81%D8%B1%D8%B5-%D8%A8%D9%82%D8%A7%D8%A1-%D9%83%D8%A7%D8%B3%D8%A7%D8%AF%D9%88-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **وسط أنباء استبداله بكانسيلو مع الهلال .. برشلونة يقدر سعر كاسادو بمبلغ "صعب على أندية أوروبا"!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D8%A7%D8%B1%D9%83-%D9%83%D8%A7%D8%B3%D8%A7%D8%AF%D9%88-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%AC%D9%88%D8%A7%D9%88-%D9%83%D8%A7%D9%86%D8%B3%D9%8A%D9%84%D9%88-%D9%87%D8%A7%D9%86%D8%B2%D9%8A-%D9%81%D9%84%D9%8A%D9%83-%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA%D9%88%D9%86-%D9%86%D9%88%D8%B1%D8%AB-%D8%A5%D9%86%D8%AF/blt6bd69fb266c9bf19)
+
+
 ### mauritanie (N/A, Mon, 3 Aug 2026 08:50:00 -0700)
 
 - **Mauritanie-Maroc : à Dakar, le Sahara ravive une vieille sensibilité diplomatique**: [Link](https://www.jeuneafrique.com/1828492/politique/mauritanie-maroc-a-dakar-le-sahara-ravive-une-vieille-sensibilite-diplomatique/)
