@@ -1,3 +1,29 @@
+### ديبورتيفو لاكورونيا (N/A, Mon, 3 Aug 2026 02:40:00 -0700)
+
+- **ديبورتيفو لاكورونيا يفسخ عقد نجم مغربي.. والرجاء يضمه لقائمة المطلوبين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88-%D9%84%D8%A7%D9%83%D9%88%D8%B1%D9%88%D9%86%D9%8A%D8%A7-%D9%8A%D9%81%D8%B3%D8%AE-%D8%B9%D9%82%D8%AF-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A--%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B6%D8%B9%D9%87-%D8%B9%D9%84%D9%89-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B7%D9%84%D9%88%D8%A8%D9%8A%D9%86/blt7875aa05231bc2b8)
+- **ديبورتيفو لاكرونيا يفسخ عقد محمد بولديني بالتراضي**: [Link](https://radiomars.ma/%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88-%D9%84%D8%A7%D9%83%D8%B1%D9%88%D9%86%D9%8A%D8%A7-%D9%8A%D9%81%D8%B3%D8%AE-%D8%B9%D9%82%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D9%88%D9%84%D8%AF/)
+- **الرجاء يدرس خيار محمد بولديني بعد فسخ عقده مع لاكورونيا**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%AE%D9%8A%D8%A7%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D9%88%D9%84%D8%AF%D9%8A%D9%86%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%81%D8%B3%D8%AE-%D8%B9%D9%82%D8%AF%D9%87-%D9%85%D8%B9-%D9%84%D8%A7%D9%83%D9%88%D8%B1%D9%88%D9%86%D9%8A%D8%A7/23707)
+
+
+### إمام عاشور (N/A, Mon, 3 Aug 2026 02:30:00 -0700)
+
+
+
+
+### fouzi lekjaa (N/A, Mon, 3 Aug 2026 01:40:00 -0700)
+
+- **Communiqué**: [Link](https://frmf.ma/fr/articles/communique-4)
+- **Crise à la FIFA : coups de fils et échanges avec les instances... Comment Emmanuel Macron s'est invité dans le dossier**: [Link](https://www.lequipe.fr/Football/Article/Crise-a-la-fifa-coups-de-fils-et-echanges-avec-les-instances-comment-emmanuel-macron-s-est-invite-dans-le-dossier/1708641)
+- **Macron aurait joué un rôle dans le projet d'investissements privés à la FIFA**: [Link](https://www.eurosport.fr/football/emmanuel-macron-aurait-joue-un-role-pour-stopper-le-projet-dinvestissements-prives-a-la-fifa_sto23324871/story.shtml)
+
+
+### fc barcelone ounahi (N/A, Mon, 3 Aug 2026 01:40:00 -0700)
+
+- **Pourquoi le FC Barcelone fonce sur Azzedine Ounahi**: [Link](https://www.footmercato.net/a924106257475191856-pourquoi-le-fc-barcelone-fonce-sur-azzedine-ounahi)
+- **Un transfert estival imminent : pourquoi le Barça tient-il tant à s'attacher les services d'Ezzedine Ounahi ?**: [Link](https://www.goal.com/fr/news/un-transfert-estival-imminent-pourquoi-le-barca-tient-il-tant-a-s-attacher-les-services-d-ezzedine-ounahi/blt818f358591712fe3)
+- **Mercato: l'ancien milieu marseillais Ounahi serait dans le viseur du Barça**: [Link](https://rmcsport.bfmtv.com/football/transferts/mercato-l-ancien-milieu-marseillais-ounahi-serait-dans-le-viseur-du-barca_AV-202608020176.html)
+
+
 ### earthquake (N/A, Sun, 2 Aug 2026 18:00:00 -0700)
 
 - **Earthquake of magnitude 5.4 strikes Egypt, is felt in Israel**: [Link](https://www.timesofisrael.com/liveblog-august-2-2026/)
