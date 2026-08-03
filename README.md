@@ -1,3 +1,36 @@
+### وزارة العدل (N/A, Mon, 3 Aug 2026 06:50:00 -0700)
+
+- **ضغط من الجمهوريين يربك حسابات ترامب بشأن وزارة العدل**: [Link](https://www.skynewsarabia.com/world/1883773-%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D9%8A%D9%86-%D9%8A%D8%B1%D8%A8%D9%83-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A8%D8%B4%D8%A3%D9%86-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84)
+- **ترمب ينهي صندوق "مكافحة التسييس" المثير للجدل وسط خلاف مع الجمهوريين**: [Link](https://asharq.com/politics/191673/%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D9%86%D9%87%D9%8A-%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%AA%D8%B9%D9%88%D9%8A%D8%B6%D8%A7%D8%AA-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%AC%D8%AF%D9%84-%D9%88%D8%B3%D8%B7-%D8%AE%D9%84%D8%A7%D9%81-%D9%85%D8%B9-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D9%8A%D9%86/)
+- **تسوية في الكونغرس للمصادقة على وزير العدل**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9%E2%80%8B/5302925-%D8%AA%D8%B3%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D8%B1%D8%B3-%D9%84%D9%84%D9%85%D8%B5%D8%A7%D8%AF%D9%82%D8%A9-%D8%B9%D9%84%D9%89-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%84)
+
+
+### حمدي الميرغني (N/A, Mon, 3 Aug 2026 06:10:00 -0700)
+
+- **قصة حبهما بدأت في الكويت والرسائل الرومانسية ملأت حساباتهما على "السوشيال ميديا" … 20 صورة لـ حمدي الميرغني وإسراء عبد الفتاح قبل الانفصال**: [Link](https://www.filfan.com/galleries/31634)
+- **أسبوع ساخن في الوسط الفني.. انفصالات وأزمات تتصدر المشهد**: [Link](https://www.vetogate.com/5705499)
+- **أبرز أحداث الوسط الفني في 24 ساعة.. أول ظهور لشيرين عبدالوهاب وشائعة مرض مي عزالدين**: [Link](https://www.elwatannews.com/news/details/8332293)
+
+
+### ceuta espagne (N/A, Mon, 3 Aug 2026 05:00:00 -0700)
+
+- **Sebta et Melilla : l’Intérieur chiffre les mouvements à plus de 41.000 personnes**: [Link](https://medias24.com/2026/08/02/sebta-et-melilla-linterieur-chiffre-les-mouvements-a-plus-de-41-000-personnes-et-fait-etat-de-11-morts-1735581/)
+- **Albares salue l’aide de Rabat pour “minimiser” la crise de Sebta et assurer le retour de tous les migrants**: [Link](https://telquel.ma/instant-t/2026/08/03/albares-salue-laide-de-rabat-pour-minimiser-la-crise-de-sebta-et-assurer-le-retour-de-tous-les-migrants_2001880/)
+- **n°1275. L’arrêt espagnol qui a précédé la ruée sur Ceuta ne ferme pas la porte aux renvois**: [Link](https://ledesk.ma/enclair/larret-espagnol-qui-a-precede-la-ruee-sur-ceuta-ne-ferme-pas-la-porte-aux-renvois/)
+
+
+### التنبؤ بالزلازل (N/A, Mon, 3 Aug 2026 05:00:00 -0700)
+
+- **كيف أعلنت هواتف المصريين عن الزلزال قبل وقوعه؟**: [Link](https://www.aljazeera.net/science/2026/8/3/%D9%83%D9%8A%D9%81-%D8%A3%D8%B9%D9%84%D9%86%D8%AA-%D9%87%D9%88%D8%A7%D8%AA%D9%81-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D9%8A%D9%86-%D8%B9%D9%86-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D8%A7%D9%84)
+- **لماذا تلقى بعض مستخدمي الهواتف الذكية في مصر إشعارات بوقوع زلزال بينما لم يتلقها آخرون؟**: [Link](https://www.alarabiya.net/technology/tips/2026/08/03/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D9%84%D9%82%D9%89-%D8%A8%D8%B9%D8%B6-%D9%85%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D9%8A-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%AA%D9%81-%D8%A7%D9%84%D8%B0%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A7%D8%B4%D8%B9%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D9%88%D9%82%D9%88%D8%B9-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%8A%D9%86%D9%85%D8%A7-%D9%84%D9%85-%D9%8A%D8%AA%D9%84%D9%82%D9%87%D8%A7-%D8%A7%D8%AE%D8%B1%D9%88%D9%86-)
+- **كيف ترسل «غوغل» تنبيهات بالزلازل قبل وقوعها؟**: [Link](https://aawsat.com/%D9%8A%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%B1%D9%82/5302877-%D9%83%D9%8A%D9%81-%D8%AA%D8%B1%D8%B3%D9%84-%D8%BA%D9%88%D8%BA%D9%84-%D8%AA%D9%86%D8%A8%D9%8A%D9%87%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%B2%D9%84%D8%A7%D8%B2%D9%84-%D9%82%D8%A8%D9%84-%D9%88%D9%82%D9%88%D8%B9%D9%87%D8%A7%D8%9F)
+
+
+### séisme egypte (N/A, Mon, 3 Aug 2026 04:00:00 -0700)
+
+
+
+
 ### ديبورتيفو لاكورونيا (N/A, Mon, 3 Aug 2026 02:40:00 -0700)
 
 - **ديبورتيفو لاكورونيا يفسخ عقد نجم مغربي.. والرجاء يضمه لقائمة المطلوبين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88-%D9%84%D8%A7%D9%83%D9%88%D8%B1%D9%88%D9%86%D9%8A%D8%A7-%D9%8A%D9%81%D8%B3%D8%AE-%D8%B9%D9%82%D8%AF-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A--%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B6%D8%B9%D9%87-%D8%B9%D9%84%D9%89-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B7%D9%84%D9%88%D8%A8%D9%8A%D9%86/blt7875aa05231bc2b8)
