@@ -1,3 +1,24 @@
+### زلزال مصر (N/A, Sun, 2 Aug 2026 17:30:00 -0700)
+
+- **هزة أرضية قوية يشعر بها سكان مصر وعدة دول في المنطقة**: [Link](https://arabi21.com/story/1779161/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%8A%D8%B4%D8%B9%D8%B1-%D8%A8%D9%87%D8%A7-%D8%B3%D9%83%D8%A7%D9%86-%D9%85%D8%B5%D8%B1-%D9%88%D8%B9%D8%AF%D8%A9-%D8%AF%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9)
+- **بعد هزة القاهرة.. 10 إرشادات ضرورية لحماية نفسك وأسرتك عند وقوع زلزال**: [Link](https://daralmaref.com/News/2575118.aspx)
+- **الهلال الأحمر المصري يتابع تداعيات الزلزال ويؤكد: لا أضرار حتى الآن**: [Link](https://almahriah.net/arab/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%AD%D9%85%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AA%D8%A7%D8%A8%D8%B9-%D8%AA%D8%AF%D8%A7%D8%B9%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%88%D9%8A%D8%A4%D9%83%D8%AF-%D9%84%D8%A7)
+
+
+### mary de danemark (N/A, Sun, 2 Aug 2026 16:00:00 -0700)
+
+- **Frederik X et Mary de Danemark : leurs vacances en famille se poursuivent à bord du Dannebrog sur le Dannebrog**: [Link](https://fr.news.yahoo.com/frederik-x-mary-danemark-vacances-113700436.html)
+- **Mary et Frederik de Danemark interrompent leurs vacances : en plein cœur de l’été, ils apprennent une terrible nouvelle**: [Link](https://www.gala.fr/royautes/mary-et-frederik-de-danemark-interrompent-leurs-vacances-en-plein-coeur-de-l-ete-ils-apprennent-une-terrible-nouvelle-20260802)
+- **Frederik X et Mary de Danemark : leurs vacances en famille se poursuivent à bord du Dannebrog**: [Link](https://www.pointdevue.fr/royal/danemark/frederik-x-et-mary-de-danemark-leurs-vacances-en-famille-se-poursuivent-a-bord-du-dannebrog-sur-le-dannebrog)
+
+
+### يان ديوماندي (N/A, Sun, 2 Aug 2026 16:00:00 -0700)
+
+- **نزاع وخرق عقد.. الفيفا يهدد صفقة ديوماندي والريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%86%D8%B2%D8%A7%D8%B9-%D9%88%D8%AE%D8%B1%D9%82-%D8%B9%D9%82%D8%AF--%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%87%D8%AF%D8%AF-%D8%B5%D9%81%D9%82%D8%A9-%D8%AF%D9%8A%D9%88%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt11108f18473ab4f5)
+- **أخبار الانتقالات | سبب تعطل صفقة ديوماندي إلى ريال مدريد وحارس جديد في باريس سان جيرمان**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA--%D8%B3%D8%A8%D8%A8-%D8%AA%D8%B9%D8%B7%D9%84-%D8%B5%D9%81%D9%82%D8%A9-%D8%AF%D9%8A%D9%88%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AD%D8%A7%D8%B1%D8%B3-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B3%D9%88%D8%B2%D9%88%D9%83%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86/blt403bfd81429b826e)
+- **ديوماندي يرفض الذهاب مع بعثة لايبزيغ.. ومدربه: يشكو من المرض**: [Link](https://www.alarabiya.net/sport/2026/08/01/%D8%AF%D9%8A%D9%88%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%B0%D9%87%D8%A7%D8%A8-%D9%85%D8%B9-%D8%A8%D8%B9%D8%AB%D8%A9-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%BA-%D9%88%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D9%8A%D8%B4%D9%83%D9%88-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D8%B6)
+
+
 ### بادو الزاكي (N/A, Sun, 2 Aug 2026 15:30:00 -0700)
 
 - **الاتحاد الأردني يبرمج "تقديم الزاكي"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A-%D9%8A%D8%A8%D8%B1%D9%85%D8%AC-%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A-1786475.html)
