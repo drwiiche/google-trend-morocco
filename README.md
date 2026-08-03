@@ -1,3 +1,38 @@
+### هانزي فليك (N/A, Mon, 3 Aug 2026 12:50:00 -0700)
+
+- **"الحلم ينهار؟".. فليك يوجه ضربة مؤلمة لأوناحي وحمزة بصمت مريب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AD%D9%84%D9%85-%D9%8A%D9%86%D9%87%D8%A7%D8%B1---%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%88%D8%AC%D9%87-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D9%94%D9%84%D9%85%D8%A9-%D9%84%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%88%D8%AD%D9%85%D8%B2%D8%A9-%D8%A8%D8%B5%D9%85%D8%AA-%D9%85%D8%B1%D9%8A%D8%A8/blt4e5a48cc6fa24cb7)
+- **فليك يربط صفقة برشلونة الهجومية بمصير فيران توريس**: [Link](https://www.aljazeera.net/sport/2026/8/3/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B1%D8%A8%D8%B7-%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85%D9%8A%D8%A9-%D8%A8%D9%85%D8%B5%D9%8A%D8%B1)
+- **هل يلعب لامين يامال رأس حربة في برشلونة؟**: [Link](https://www.alkhaleej.ae/2026-08-03/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D9%87%D9%84-%D9%8A%D9%84%D8%B9%D8%A8-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%B1%D8%A3%D8%B3-%D8%AD%D8%B1%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
+### منتخب المغرب لكرة القدم للسيدات (N/A, Mon, 3 Aug 2026 12:20:00 -0700)
+
+- **"لبؤات الأطلس" أمام تحدي السنغال**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D8%AD%D8%AF%D9%8A-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-1786527.html)
+- **كأس أمم إفريقيا للسيدات – المغرب 2026 (المجموعة 1/الجولة 3).. هدفنا الفوز على السنغال وإنهاء دور المجموعات في الصدارة (خورخي فيلدا)**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2026-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-1-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-3-%D9%87%D8%AF%D9%81%D9%86%D8%A7-20260802)
+- **الندوة الصحافية للمنتخب الوطني النسوي قبل مواجهة السنغال**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84)
+
+
+### منتخب إسبانيا لكرة القدم (N/A, Mon, 3 Aug 2026 11:20:00 -0700)
+
+- **المغرب في قلب أزمة فيفا ويويفا.. هل يتأثر مونديال 2030؟**: [Link](https://www.aljazeera.net/sport/2026/8/1/%D9%85%D8%B5%D9%8A%D8%B1-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D9%8A%D8%AA%D9%88%D9%82%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B5%D8%AF%D8%A7%D9%85)
+- **تقارير: إسبانيا والبرتغال تلوحان بالانسحاب من تنظيم مونديال 2030**: [Link](https://arabi21.com/story/1778783/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AA%D9%84%D9%88%D8%AD%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D9%85%D9%86-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030)
+- **إسبانيا تنوي إبعاد المغرب عن استضافة نهائي كأس العالم 2030**: [Link](https://www.alarabiya.net/sport/2026/08/03/%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%86%D9%88%D9%8A-%D8%A7%D8%A8%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%86-%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2030-)
+
+
+### فينيسيوس جونيور (N/A, Mon, 3 Aug 2026 11:20:00 -0700)
+
+- **صفقة ديوماندي تفضح المستور.. تسريبات حاسمة لمفاوضات الريال وفينيسيوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%81%D9%82%D8%A9-%D8%AF%D9%8A%D9%88%D9%85%D8%A7%D9%86%D8%AF%D9%8A-%D8%AA%D9%81%D8%B6%D8%AD-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D8%B1--%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3/blteddeed1fbb2fbb32)
+- **"المشروع المنتظر".. أرتيتا يقود محاولات أرسنال خطف فينيسيوس**: [Link](https://www.aljazeera.net/sport/2026/8/3/%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1-%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D9%82%D9%88%D8%AF-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D8%AA)
+- **ريال مدريد يصدر بيانا بشأن فينيسيوس جونيور...**: [Link](https://alghad.com/Section-140/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D8%A7-%D8%A8%D8%B4%D8%A3%D9%86-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D8%AC%D9%88%D9%86%D9%8A%D9%88%D8%B1-2089834)
+
+
+### maroc vs senegal (N/A, Mon, 3 Aug 2026 11:10:00 -0700)
+
+- **CAN féminine Maroc-2026 (3ème journée): composition du Maroc face au Sénégal**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-3eme-journee-composition-du-maroc-face-au-senegal)
+- **CAN Féminine 2026 : Kenya-Algérie, l'heure des comptes**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/can-feminine-2026-kenya-algerie-lheure-des-comptes/)
+- **CAN féminine : “Notre objectif est de remporter le match contre le Sénégal pour terminer en tête du groupe”, affirme Jorge Vilda**: [Link](https://telquel.ma/instant-t/2026/08/03/can-feminine-notre-objectif-est-de-remporter-le-match-contre-le-senegal-pour-terminer-en-tete-du-groupe-affirme-jorge-vilda_2001796/)
+
+
 ### spider man brand new day (N/A, Mon, 3 Aug 2026 10:10:00 -0700)
 
 - **‘Spider-Man’ Beats ‘Avengers: Endgame’ as ‘Brand New Day’ Climbs to $360 Million, the Biggest Opening Weekend in Box Office History**: [Link](https://variety.com/2026/film/box-office/spider-man-brand-new-day-box-office-opening-record-avengers-endgame-1236826336/)
