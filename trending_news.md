@@ -1,3 +1,17 @@
+### mauritanie (N/A, Mon, 3 Aug 2026 08:50:00 -0700)
+
+- **Mauritanie-Maroc : à Dakar, le Sahara ravive une vieille sensibilité diplomatique**: [Link](https://www.jeuneafrique.com/1828492/politique/mauritanie-maroc-a-dakar-le-sahara-ravive-une-vieille-sensibilite-diplomatique/)
+- **Sahara marocain : La dynamique du développement**: [Link](https://www.medi1tv.com/fr/episode/102764/Sahara-marocain--La-dynamique-du-d%C3%A9veloppement)
+- **CAN : l’ambassadeur du Maroc écarte toute crise avec le Sénégal**: [Link](https://medias24.com/2026/07/31/can-lambassadeur-du-maroc-ecarte-toute-crise-avec-le-senegal-1733239/)
+
+
+### cuisinier (N/A, Mon, 3 Aug 2026 04:10:00 -0700)
+
+- **INFO BFMTV. Accusé de violences conjugales, le chef Jean Imbert placé en garde à vue à Paris**: [Link](https://www.bfmtv.com/police-justice/info-bfmtv-accuse-de-violences-conjugales-le-chef-jean-imbert-place-en-garde-a-vue-a-paris_AN-202608030340.html)
+- **Le chef Jean Imbert placé en garde à vue à Paris**: [Link](https://www.dhnet.be/actu/monde/2026/08/03/le-chef-jean-imbert-place-en-garde-a-vue-a-paris-HS7SORI7JZEONADW6RDEVHAR6M/)
+- **Du Plaza Athénée à la garde à vue : la chute du chef Jean Imbert, accusé de violences conjugales**: [Link](https://www.lesinrocks.com/societe/du-plaza-athenee-a-la-garde-a-vue-la-chute-du-chef-jean-imbert-accuse-de-violences-conjugales-700387-03-08-2026/)
+
+
 ### وزارة العدل (N/A, Mon, 3 Aug 2026 06:50:00 -0700)
 
 - **ضغط من الجمهوريين يربك حسابات ترامب بشأن وزارة العدل**: [Link](https://www.skynewsarabia.com/world/1883773-%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D9%8A%D9%86-%D9%8A%D8%B1%D8%A8%D9%83-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A8%D8%B4%D8%A3%D9%86-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84)
