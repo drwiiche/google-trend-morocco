@@ -1,3 +1,17 @@
+### earthquake (N/A, Sun, 2 Aug 2026 18:00:00 -0700)
+
+- **Earthquake of magnitude 5.4 strikes Egypt, is felt in Israel**: [Link](https://www.timesofisrael.com/liveblog-august-2-2026/)
+- **Tremors felt in southern Israel after magnitude 5.6 earthquake strikes Egypt, no damage reported**: [Link](https://www.jpost.com/middle-east/article-904384)
+- **Earthquake centered in Egypt felt across central and southern Israel**: [Link](https://www.israelnationalnews.com/news/431140)
+
+
+### gta6 (N/A, Sun, 2 Aug 2026 18:00:00 -0700)
+
+- **New GTA 6 Info Coming Soon, It Seems**: [Link](https://www.gamespot.com/articles/new-gta-6-info-coming-soon-it-seems/)
+- **Insider Hints Rockstar Could Share a Grand Theft Auto VI Update This August**: [Link](https://twistedvoxel.com/gta-6-news-august-rumour/)
+- **Huge GTA 6 PS5 marketing budget teased, as imminent trailer may kick off ad blitz**: [Link](https://www.notebookcheck.net/Huge-GTA-6-PS5-marketing-budget-teased-as-imminent-trailer-may-kick-off-ad-blitz.1357915.0.html)
+
+
 ### زلزال مصر (N/A, Sun, 2 Aug 2026 17:30:00 -0700)
 
 - **هزة أرضية قوية يشعر بها سكان مصر وعدة دول في المنطقة**: [Link](https://arabi21.com/story/1779161/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%8A%D8%B4%D8%B9%D8%B1-%D8%A8%D9%87%D8%A7-%D8%B3%D9%83%D8%A7%D9%86-%D9%85%D8%B5%D8%B1-%D9%88%D8%B9%D8%AF%D8%A9-%D8%AF%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9)
