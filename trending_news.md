@@ -1,3 +1,24 @@
+### classement coupe d'afrique des nations féminine (N/A, Tue, 4 Aug 2026 13:40:00 -0700)
+
+- **CAN Maroc-2026: Le Maroc en quart de finale**: [Link](https://frmf.ma/fr/articles/can-maroc-2026-le-maroc-en-quart-de-finale)
+- **L’Algérie domine le Kenya et rejoint les quarts de finale**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/l-algerie-domine-le-kenya-et-rejoint-les-quarts-de-finale/)
+- **Jorge Vilda : “Nous avons atteint notre premier objectif en nous qualifiant pour les quarts de finale”**: [Link](https://mobile.telquel.ma/instant-t/2026/08/04/jorge-vilda-nous-avons-atteint-notre-premier-objectif-en-nous-qualifiant-pour-les-quarts-de-finale_2001987/)
+
+
+### سوريا (N/A, Tue, 4 Aug 2026 12:30:00 -0700)
+
+- **الجيش السوري يعلن حالة استنفار عسكري دون إعلان الأسباب**: [Link](https://www.alarabiya.net/arab-and-world/2026/08/04/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%AF%D9%88%D9%86-%D8%A7%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D8%A8)
+- **الجيش السوري يعلن حالة الاستنفار على الحدود العراقية.. وبغداد تطمئن: الوضع آمن**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7/)
+- **استنفار عسكري في سوريا.. والعراق يعلّق: الوضع على الحدود طبيعي**: [Link](https://arabic.euronews.com/2026/08/04/military-mobilization-in-syria-and-iraq-comments-the-situation-on-the-border-is-normal)
+
+
+### سباحة (N/A, Tue, 4 Aug 2026 10:50:00 -0700)
+
+- **55 ساعة في الماء: سباح بولندي يعبر بحر البلطيق سباحة من السويد إلى وطنه**: [Link](https://arabic.euronews.com/2026/08/04/bartlomiej-kubkowski-swims-baltic-after-55-hours-in-the-water)
+- **55 ساعة في البحر.. سبّاح يعبر البلطيق منفرداً**: [Link](https://www.aletihad.ae/video/4682969/55-%D8%B3%D8%A7%D8%B9%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1---%D8%B3%D8%A8%D8%A7%D8%AD-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A8%D9%84%D8%B7%D9%8A%D9%82-%D9%85%D9%86%D9%81%D8%B1%D8%AF%D8%A7)
+- **بولندي يسبح 160 كيلومتر ببحر البلطيق في 56 ساعة بلا نوم لدعم أطفال السرطان**: [Link](https://www.youm7.com/story/2026/8/4/%D8%A8%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D9%8A%D8%B3%D8%A8%D8%AD-160-%D9%83%D9%8A%D9%84%D9%88%D9%85%D8%AA%D8%B1-%D8%A8%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D8%A8%D9%84%D8%B7%D9%8A%D9%82-%D9%81%D9%8A-56-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A8%D9%84%D8%A7/7503258)
+
+
 ### restaurant (N/A, Tue, 4 Aug 2026 13:00:00 -0700)
 
 - **What to know about the victims of the In-N-Out Burger shooting**: [Link](https://abcnews.com/US/victims-burger-shooting/story?id=135352228)
