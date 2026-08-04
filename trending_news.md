@@ -1,3 +1,45 @@
+### عثمان معما (N/A, Tue, 4 Aug 2026 10:00:00 -0700)
+
+- **موهبة المغرب يطلب الرحيل.. وعرض ألماني على الطاولة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84--%D9%88%D8%B9%D8%B1%D8%B6-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9/blt8d18b94a1e33a240)
+- **لايبزيغ الألماني يضع شمس الدين طالبي ضمن اهتماماته**: [Link](https://radiomars.ma/%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%BA-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%8A/)
+- **الطالبي مرشح لتعويض صفقة مدريدية**: [Link](https://ar.sport.le360.ma/football/YRKBUOUSRFFMNI42J72VQ7CJ24/)
+
+
+### brahim díaz (N/A, Tue, 4 Aug 2026 10:00:00 -0700)
+
+- **Diaz the first victim? Mourinho prepares for tough decisions in Madrid**: [Link](https://www.goal.com/en-in/news/diaz-the-first-victim-mourinho-prepares-for-tough-decisions-in-madrid/blt08287d3b788b4e3f)
+- **Brahim Díaz Faces Fierce Competition for Real Madrid Role Under Mourinho**: [Link](https://www.moroccoworldnews.com/2026/08/333018/brahim-diaz-faces-fierce-competition-for-real-madrid-role-under-mourinho/)
+- **Brahim Diaz faces fight for Real Madrid starting role as Mourinho weighs attacking options**: [Link](https://africasoccer.com/brahim-diaz-faces-fight-for-real-madrid-starting-role-as-mourinho-weighs-attacking-options/)
+
+
+### غاز (N/A, Tue, 4 Aug 2026 10:00:00 -0700)
+
+- **"دانة غاز" و"نفط الهلال" تبدآن توريد الغاز إلى كهرباء العراق**: [Link](https://sharjah24.ae/ar/Articles/2026/08/04/Ma5)
+- **في خطوة استراتيجية.. بدء توريد الغاز الطبيعي من حقل "كورمور" إلى محطة كهرباء كركوك**: [Link](https://www.basnews.com/ar/babat/917074)
+- **دانة غاز” و”نفط الهلال” تبدآن تزويد كركوك بالغاز الطبيعي**: [Link](https://kalimaiq.com/news/details/67268)
+
+
+### ليونيل ميسي (N/A, Tue, 4 Aug 2026 09:10:00 -0700)
+
+- **رسميا.. ميسي يتبرع بـ80 ألف يورو لإسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%AA%D8%A8%D8%B1%D8%B9-%D8%A8%D9%8080-%D8%A7%D9%94%D9%84%D9%81-%D9%8A%D9%88%D8%B1%D9%88-%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blt4193bb58923cf295)
+- **ميسي يقدم مساهمة مالية بقيمة 80 ألف يورو لمدريد**: [Link](https://www.mshireb.com/sports/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D9%82%D8%AF%D9%85-%D9%85%D8%B3%D8%A7%D9%87%D9%85%D8%A9-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D9%82%D9%8A%D9%85%D8%A9-80-%D8%A3%D9%84%D9%81-%D9%8A%D9%88%D8%B1%D9%88/)
+- **ميسي يتبرع بـ80 ألف يورو لدعم متضرري حرائق مدريد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%AA%D8%A8%D8%B1%D8%B9-%D8%A880-%D8%A3%D9%84%D9%81-%D9%8A%D9%88%D8%B1%D9%88-%D9%84%D8%AF%D8%B9%D9%85-%D9%85%D8%AA%D8%B6%D8%B1%D8%B1%D9%8A-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/23769)
+
+
+### prix (N/A, Tue, 4 Aug 2026 09:10:00 -0700)
+
+- **Les prix à la pompe diminueront ce mercredi : voici les nouveaux tarifs**: [Link](https://www.lesoir.be/763072/article/2026-08-04/les-prix-la-pompe-diminueront-ce-mercredi-voici-les-nouveaux-tarifs)
+- **Pénurie de carburant: le gouvernement «prêt à libérer des réserves de pétrole sur le marché»**: [Link](https://www.virgule.lu/luxembourg/penurie-de-carburant-le-gouvernement-pret-a-liberer-des-reserves-de-petrole-sur-le-marche/159568936.html)
+- **Les prix des carburants baissent fortement à partir de demain : l'essence, le diesel et le fioul domestique sont moins chers**: [Link](https://fr.businessam.be/les-prix-des-carburants-baissent-fortement-a-partir-de-demain-lessence-le-diesel-et-le-fioul-domestique-sont-moins-chers/)
+
+
+### séisme (N/A, Tue, 4 Aug 2026 08:30:00 -0700)
+
+- **Un séisme de magnitude 4,7 enregistré dans la région d’Errachidia**: [Link](https://lematin.ma/regions/un-seisme-de-magnitude-47-enregistre-dans-la-region-derrachidia/359254)
+- **Maroc : Séisme de magnitude 4,7 à 64 km de Midelt**: [Link](https://le1.ma/maroc-seisme-de-magnitude-47-a-64-km-de-midelt/)
+- **Errachidia : une secousse tellurique de magnitude 4,6 enregistrée**: [Link](https://www.lesiteinfo.com/maroc/679822-errachidia-une-secousse-tellurique-de-magnitude-46-enregistree.html)
+
+
 ### رودري (N/A, Tue, 4 Aug 2026 07:50:00 -0700)
 
 - **رودري يحسم اختياره بين ريال مدريد وبرشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D9%87-%D8%A8%D9%8A%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt96db45e58813bfdd)
