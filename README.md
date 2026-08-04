@@ -1,3 +1,10 @@
+### محطة تحويل النفايات إلى طاقة (N/A, Tue, 4 Aug 2026 14:50:00 -0700)
+
+- **المغرب يخطط لبناء محطة تُحوّل النفايات إلى طاقة بالدار البيضاء**: [Link](https://www.aljazeera.net/ebusiness/2026/8/4/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D8%A8%D9%86%D8%A7%D8%A1-%D9%85%D8%AD%D8%B7%D8%A9-%D8%AA%D8%AD%D9%88%D9%84)
+- **البيضاء تطلق مركز تثمين النفايات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%AA%D8%B7%D9%84%D9%82-%D9%85%D8%B1%D9%83%D8%B2-%D8%AA%D8%AB%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D9%86%D9%81%D8%A7%D9%8A%D8%A7%D8%AA-1787668.html)
+- **مشروع لتحويل النفايات إلى كهرباء في المغرب.. تفاصيل**: [Link](https://attaqa.net/2026/08/04/%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D9%84%D8%AA%D8%AD%D9%88%D9%8A%D9%84-%D8%A7%D9%84%D9%86%D9%81%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84/)
+
+
 ### classement coupe d'afrique des nations féminine (N/A, Tue, 4 Aug 2026 13:40:00 -0700)
 
 - **CAN Maroc-2026: Le Maroc en quart de finale**: [Link](https://frmf.ma/fr/articles/can-maroc-2026-le-maroc-en-quart-de-finale)
