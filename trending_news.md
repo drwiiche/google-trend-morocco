@@ -1,3 +1,10 @@
+### gonzalo garcía (N/A, Tue, 4 Aug 2026 04:30:00 -0700)
+
+- **Oficial: Gonzalo ya es del Fulham**: [Link](https://as.com/futbol/internacional/oficial-gonzalo-ya-es-del-fulham-f202608-n/)
+- **Comunicado Oficial: Palacios**: [Link](https://www.realmadrid.com/es-ES/noticias/club/comunicados/comunicado-oficial-palacios-03-08-2026)
+- **Real Madrid hace oficial sorpresiva salida de estrella del equipo que jugará en club de Inglaterra tras llegada de Mourinho**: [Link](https://www.ntn24.com/noticias-deportes/real-madrid-hace-oficial-sorpresiva-salida-de-estrella-del-equipo-que-jugara-en-club-de-inglaterra-tras-llegada-de-mourinho-638610)
+
+
 ### جيجو ضد البايرن (N/A, Tue, 4 Aug 2026 04:10:00 -0700)
 
 - **"ابتسامات وكعكة وأزمة".. مؤتمر صحفي غريب لبايرن ميونخ في كوريا الجنوبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%A8%D8%AA%D8%B3%D8%A7%D9%85%D8%A7%D8%AA-%D9%88%D9%83%D8%B9%D9%83%D8%A9-%D9%88%D8%A7%D9%94%D8%B2%D9%85%D8%A9--%D9%85%D9%88%D9%94%D8%AA%D9%85%D8%B1-%D8%B5%D8%AD%D9%81%D9%8A-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%81%D9%8A-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9/blt548a863412d778f2)
