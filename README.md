@@ -1,3 +1,24 @@
+### restaurant (N/A, Tue, 4 Aug 2026 13:00:00 -0700)
+
+- **What to know about the victims of the In-N-Out Burger shooting**: [Link](https://abcnews.com/US/victims-burger-shooting/story?id=135352228)
+- **Authorities combating mountain of misinfromation surrounding In-N-Out shooting**: [Link](https://www.eastidahonews.com/2026/08/authorities-combating-mountain-of-misinfromation-surrounding-in-n-out-shooting/)
+- **Man who returned fire at In-N-Out gunman had done firearm training after 2021 mass shooting**: [Link](https://www.theguardian.com/us-news/2026/aug/03/in-n-out-shooting-idaho)
+
+
+### retraite (N/A, Tue, 4 Aug 2026 11:50:00 -0700)
+
+- **Neymar entretient le doute sur son avenir en club : « Je ne sais vraiment pas ce que je vais faire »**: [Link](https://www.lequipe.fr/Football/Actualites/Neymar-entretient-le-doute-sur-son-avenir-en-club-je-ne-sais-vraiment-pas-ce-que-je-vais-faire/1708857)
+- **Neymar jette le doute sur un départ à la retraite**: [Link](https://www.footmercato.net/a3928267498434911536-neymar-jette-le-doute-sur-un-depart-a-la-retraite)
+- **Neymar, retraite internationale... et retraite tout court ?**: [Link](https://www.eurosport.fr/football/transferts/2026-2027/transferts-neymar-un-doute-pour-la-suite-alors-quil-sera-bientot-en-fin-de-contrat-a-santos-je-ne-sais-vraiment-pas-ce-que-je-vais-faire_sto23325175/story.shtml)
+
+
+### ربع النهائي (N/A, Tue, 4 Aug 2026 10:20:00 -0700)
+
+- **"لبؤات الأطلس" يتعادلن مع السنغاليات ويبلغن ربع نهائي كأس إفريقيا**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D9%86-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A7%D8%AA-%D9%88-1787219.html)
+- **الندوة الصحافية لمدرب المنتخب الوطني النسوي بعد مواجهة السنغال**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9-%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84)
+- **فيلدا: التأهل إلى ربع النهائي كان هدفنا الأول**: [Link](https://www.ahdath.info/%D9%81%D9%8A%D9%84%D8%AF%D8%A7-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D9%86-%D9%87%D8%AF%D9%81%D9%86%D8%A7/)
+
+
 ### google play (N/A, Tue, 4 Aug 2026 11:30:00 -0700)
 
 - **Google System Updates July 2026 Release Notes Summary**: [Link](https://jetstream.blog/en/google-system-update-july-2026-summary/)
