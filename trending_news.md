@@ -1,3 +1,24 @@
+### روسيا (N/A, Mon, 3 Aug 2026 15:20:00 -0700)
+
+- **أوكرانيا تضرب "عملاق التجارة الإلكترونية" الروسي وموسكو تستهدف سفنا عسكرية**: [Link](https://www.aljazeera.net/news/2026/8/3/%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7-150)
+- **تخدم 20 مليون طلب.. مسيّرات أوكرانيا تضرب أمازون روسيا**: [Link](https://www.skynewsarabia.com/world/1884184-%D8%AA%D8%AE%D8%AF%D9%85-20-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%B7%D9%84%D8%A8-%D9%85%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A3%D9%85%D8%A7%D8%B2%D9%88%D9%86-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7)
+- **فيديو. لحظة هجوم طائرة مسيرة على منتجع روسي على البحر الأسود**: [Link](https://arabic.euronews.com/video/2026/08/03/moment-drone-strikes-russian-black-sea-beach-resort)
+
+
+### البطولة (N/A, Mon, 3 Aug 2026 15:00:00 -0700)
+
+- **كان المغرب 2026: هل يعزز المنتخب الوطني النسوي صدارته للمجموعة الأولى؟**: [Link](https://inews.ma/news/8544675)
+- **المغرب مرشح لاحتضان بطولة إفريقية مهمة السنة القادمة**: [Link](https://www.sport7.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D8%A7%D8%AD%D8%AA%D8%B6%D8%A7%D9%86-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%85%D9%87%D9%85/)
+- **كأس أمم إفريقيا 2026: المغرب يستضيف وينافس في عرس إفريقي استثنائي**: [Link](https://www.altreeq.com/539712)
+
+
+### women's africa cup of nations (N/A, Mon, 3 Aug 2026 14:30:00 -0700)
+
+- **Algeria book quarter-final place with commanding win over Kenya**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/algeria-book-quarter-final-place-with-commanding-win-over-kenya/)
+- **Wafcon 2026: Coach Odemba keeps hope alive despite winless run**: [Link](https://capitalfm.africa/wafcon-2026-coach-odemba-keeps-hope-alive-despite-wafcon-heartbreak/)
+- **Harambee Starlets end forgettable WAFCON 2026 campaign with 2-0 loss to Algeria**: [Link](https://citizen.digital/article/harambee-starlets-end-forgettable-wafcon-2026-campaign-with-2-0-loss-to-algeria-n387656)
+
+
 ### أيباك (N/A, Mon, 3 Aug 2026 14:30:00 -0700)
 
 - **من أصول عربية.. أيباك تضخ أضخم مبلغ في تاريخها لإسقاط مرشح**: [Link](https://www.aljazeera.net/news/2026/8/3/%D9%85%D9%86-%D8%A3%D8%B5%D9%88%D9%84-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A3%D9%8A%D8%A8%D8%A7%D9%83-%D8%AA%D8%B6%D8%AE-%D8%A3%D8%B6%D8%AE%D9%85-%D9%85%D8%A8%D9%84%D8%BA-%D9%81%D9%8A)
