@@ -1,3 +1,38 @@
+### google (N/A, Mon, 3 Aug 2026 20:00:00 -0700)
+
+- **Google Pixel 11: Every rumor, leak, and confirmed fact ahead of Made By Google**: [Link](https://mashable.com/tech/google-pixel-11-everything-we-know)
+- **Pixel 11 specs and price leak with no surprises**: [Link](https://www.theverge.com/tech/974238/pixel-11-specs-and-price-leak)
+- **Leaked Pixel 11 Pro Fold Photos Also Include Mysterious New Camera Bar Feature**: [Link](https://www.engadget.com/2227282/leaked-google-pixel-11-pro-fold-photos-new-camera-bar-feature/)
+
+
+### x (N/A, Mon, 3 Aug 2026 19:00:00 -0700)
+
+- **‘X-Men’: Samara Weaving Lands Role Of Emma Frost In Upcoming Marvel Studios Pic**: [Link](https://deadline.com/2026/07/x-men-samara-weaving-emma-frost-marvel-studios-1237013568/)
+- **15 Years Later, Marvel Just Recast A Surprising X-Men Character**: [Link](https://www.inverse.com/entertainment/emma-frost-recast-mcu)
+- **X-Men: Margot Robbie’s Emma Frost MCU Casting Was Never Going to Happen, Here’s Why**: [Link](https://www.yahoo.com/entertainment/movies/articles/x-men-margot-robbie-emma-200956961.html)
+
+
+### telegram (N/A, Mon, 3 Aug 2026 18:00:00 -0700)
+
+- **Telegram says app restored on Apple's App Store**: [Link](https://www.reuters.com/business/retail-consumer/telegram-says-app-restored-apples-app-store-2026-08-04/)
+- **Telegram briefly disappeared from the Apple App Store with no explanation**: [Link](https://appleinsider.com/articles/26/08/04/telegram-briefly-disappeared-from-the-apple-app-store-with-no-explanation)
+- **Telegram Vanishes From the iOS App Store Worldwide With No Explanation From Apple**: [Link](https://glitchwire.com/news/telegram-vanishes-from-the-ios-app-store-worldwide-with-no-explanation-from-appl/)
+
+
+### تمارا حمدي الميرغني (N/A, Mon, 3 Aug 2026 16:10:00 -0700)
+
+- **قصة حبهما بدأت في الكويت والرسائل الرومانسية ملأت حساباتهما على "السوشيال ميديا" … 20 صورة لـ حمدي الميرغني وإسراء عبد الفتاح قبل الانفصال**: [Link](https://www.filfan.com/galleries/31634)
+- **طلاقان فى أسبوع واحد**: [Link](https://akhbarelyom.com/news/newdetails/4860101/1/%D8%B7%D9%84%D8%A7%D9%82%D8%A7%D9%86-%D9%81%D9%89-%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%88%D8%A7%D8%AD%D8%AF)
+- **أسبوع ساخن في الوسط الفني.. انفصالات وأزمات تتصدر المشهد**: [Link](https://www.vetogate.com/5705499)
+
+
+### مصر (N/A, Mon, 3 Aug 2026 14:20:00 -0700)
+
+- **"ضربة صامتة".. هل تسبب تفجير نووي تحت البحر في زلزال مصر؟**: [Link](https://www.aljazeera.net/science/2026/8/3/%D8%B6%D8%B1%D8%A8%D8%A9-%D8%B5%D8%A7%D9%85%D8%AA%D8%A9-%D9%87%D9%84-%D8%AA%D8%B3%D8%A8%D8%A8-%D8%AA%D9%81%D8%AC%D9%8A%D8%B1-%D9%86%D9%88%D9%88%D9%8A-%D8%AA%D8%AD%D8%AA)
+- **راصد الزلازل الهولندي تنبأ بزلزال مصر.. وتوقع المزيد**: [Link](https://www.alarabiya.net/science/2026/08/03/%D8%B1%D8%A7%D8%B5%D8%AF-%D8%A7%D9%84%D8%B2%D9%84%D8%A7%D8%B2%D9%84-%D8%A7%D9%84%D9%87%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D8%AA%D9%86%D8%A8%D8%A7-%D8%A8%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%85%D8%B5%D8%B1-%D9%88%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF)
+- **زالزال ضخم يهز مصر.. والرياضيون في "خبر كان"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%85%D8%B5%D8%B1-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B5%D8%A7%D8%AF%D9%85-%D9%84%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9--%D9%88%D8%AD%D8%B6%D9%88%D8%B1-%D9%82%D9%88%D9%8A-%D9%84%D9%84%D9%81%D9%86/bltc6e686ca8b457df1)
+
+
 ### روسيا (N/A, Mon, 3 Aug 2026 15:20:00 -0700)
 
 - **أوكرانيا تضرب "عملاق التجارة الإلكترونية" الروسي وموسكو تستهدف سفنا عسكرية**: [Link](https://www.aljazeera.net/news/2026/8/3/%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7-150)
