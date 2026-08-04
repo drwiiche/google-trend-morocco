@@ -1,3 +1,45 @@
+### جيجو ضد البايرن (N/A, Tue, 4 Aug 2026 04:10:00 -0700)
+
+- **"ابتسامات وكعكة وأزمة".. مؤتمر صحفي غريب لبايرن ميونخ في كوريا الجنوبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%A8%D8%AA%D8%B3%D8%A7%D9%85%D8%A7%D8%AA-%D9%88%D9%83%D8%B9%D9%83%D8%A9-%D9%88%D8%A7%D9%94%D8%B2%D9%85%D8%A9--%D9%85%D9%88%D9%94%D8%AA%D9%85%D8%B1-%D8%B5%D8%AD%D9%81%D9%8A-%D8%BA%D8%B1%D9%8A%D8%A8-%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%81%D9%8A-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9/blt548a863412d778f2)
+- **مواعيد مباريات اليوم الثلاثاء 4 أغسطس 2026**: [Link](https://www.almasryalyoum.com/news/details/4329988)
+- **القنوات الناقلة لمباراة بايرن ميونخ وجيجو يونايتد بث مباشر اليوم في ودية الأندية 2026 والموعد**: [Link](https://www.cairo24.com/2470362)
+
+
+### jeju vs bayern (N/A, Tue, 4 Aug 2026 04:10:00 -0700)
+
+- **Jeju FC vs Bayern Munich: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c62vg2vdn20t)
+- **Bayern Munich set to take friendlies seriously**: [Link](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/238763/bayern-munich-set-to-take-friendlies-seriously)
+- **Vincent Kompany eager to solve puzzle this season at Bayern Munich**: [Link](https://sports.yahoo.com/articles/vincent-kompany-eager-solve-puzzle-190000531.html)
+
+
+### aleksander čeferin (N/A, Tue, 4 Aug 2026 04:00:00 -0700)
+
+- **FIFA investment setback fuels speculation over potential challengers to Infantino**: [Link](https://en.hespress.com/143151-fifa-investment-setback-fuels-speculation-over-potential-challengers-to-infantino.html)
+- **European soccer officials eye Qatari sports executive to challenge Infantino**: [Link](https://www.politico.com/news/2026/07/29/europe-nasser-al-khelaifi-challenge-infantino-fifa-01015898)
+- **Victor Montagliani: The man emerging as Gianni Infantino’s biggest threat**: [Link](https://www.telegraph.co.uk/football/2026/08/03/victor-montagliani-fifa-profile-gianni-infantino-concacaf/)
+
+
+### عز الدين أوناحي (N/A, Tue, 4 Aug 2026 03:50:00 -0700)
+
+- **صفقة صيفية قريبة.. لماذا يصر برشلونة على ضم عز الدين أوناحي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%81%D9%82%D8%A9-%D8%B5%D9%8A%D9%81%D9%8A%D8%A9-%D9%82%D8%B1%D9%8A%D8%A8%D8%A9--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B5%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%B6%D9%85-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A/blt818f358591712fe3)
+- **صحيفة: 10 ملايين يورو لضم أوناحي**: [Link](https://www.hespress.com/%D8%B5%D8%AD%D9%8A%D9%81%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D8%B6%D9%85-%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-1786594.html)
+- **برشلونة يستهدف عز الدين أوناحي لتعويض غياب دي يونغ**: [Link](https://www.ahdath.info/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6/)
+
+
+### jeju united – bayern (N/A, Tue, 4 Aug 2026 03:30:00 -0700)
+
+- **Line-ups: Jeju SK FC vs. FC Bayern - Audi Football Summit 26/27**: [Link](https://fcbayern.com/en/matches/profis/friendly/2026-2027/jeju-fc-fc-bayern-muenchen-04-08-2026/lineup)
+- **Recap: The FCB Women Allianz Women's Tour in Tokyo**: [Link](https://sports.yahoo.com/articles/recap-fcb-women-allianz-womens-115600347.html)
+- **Tanikawa’s homecoming highlights her rapid rise with Bayern**: [Link](https://www.japantimes.co.jp/sports/2026/07/31/soccer/momoko-tanikawa-interview-bayern/)
+
+
+### كسوف الشمس (N/A, Tue, 4 Aug 2026 02:40:00 -0700)
+
+- **كسوف شمسي في غشت يشمل المغرب جزئيا ويعبر إسبانيا كليا – اليوم 24**: [Link](https://alyaoum24.com/2036594.html)
+- **إيبيريا تستأجر طائرة لرصد الكسوف الكلي للشمس ويمكن متابعته عبر الإنترنت**: [Link](https://arabic.euronews.com/travel/2026/08/04/iberia-is-set-to-charter-a-plane-for-the-total-solar-eclipse-and-you-can-watch-it-online)
+- **ظلام تام في عز النهار.. موعد كسوف الشمس الكلي 2026 وأماكن رؤيته (لا تنظروا للسماء)**: [Link](https://www.almasryalyoum.com/news/details/4329890)
+
+
 ### tiempo (N/A, Mon, 3 Aug 2026 23:50:00 -0700)
 
 
