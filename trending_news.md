@@ -1,3 +1,43 @@
+### google play (N/A, Tue, 4 Aug 2026 11:30:00 -0700)
+
+- **Google System Updates July 2026 Release Notes Summary**: [Link](https://jetstream.blog/en/google-system-update-july-2026-summary/)
+- **Google Play Store update brings live sports hub and built-in movie search**: [Link](https://www.androidauthority.com/google-play-store-update-sports-hub-movie-search-3694279/)
+- **Android Google Play Store v52.5 Update (August 3, 2026)**: [Link](https://jetstream.blog/en/android-google-play-store-v52-5-update-20260803/)
+
+
+### sparta prague – lyon (N/A, Tue, 4 Aug 2026 11:10:00 -0700)
+
+
+
+
+### كأس العالم لكرة القدم 2030 (N/A, Tue, 4 Aug 2026 10:30:00 -0700)
+
+- **"لا يمكن شراء ما يريده فيفا".. الفاتورة السوداء لمونديال 2030 تضع المغرب أمام المستحيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%84%D8%A7-%D9%8A%D9%85%D9%83%D9%86-%D8%B4%D8%B1%D8%A7%D8%A1-%D9%85%D8%A7-%D9%8A%D8%B1%D9%8A%D8%AF%D9%87-%D9%81%D9%8A%D9%81%D8%A7--%D8%A7%D9%84%D9%81%D8%A7%D8%AA%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D8%A1-%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D8%AA%D8%B6%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AD%D9%8A%D9%84/blt853f5cb4d76abb88)
+- **إسبانيا تنوي إبعاد المغرب عن استضافة نهائي كأس العالم 2030**: [Link](https://www.alarabiya.net/sport/2026/08/03/%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%86%D9%88%D9%8A-%D8%A7%D8%A8%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%86-%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2030-)
+- **المغرب في قلب أزمة فيفا ويويفا.. هل يتأثر مونديال 2030؟**: [Link](https://www.aljazeera.net/sport/2026/8/1/%D9%85%D8%B5%D9%8A%D8%B1-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D9%8A%D8%AA%D9%88%D9%82%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B5%D8%AF%D8%A7%D9%85)
+
+
+### equidia (N/A, Tue, 4 Aug 2026 10:20:00 -0700)
+
+- **MAIDEN FILLIES' STAKES (CLASS 4)**: [Link](https://www.equidia.fr/courses/2026-08-04/R5/C3)
+- **BRITISH STALLION STUDS EBF MAIDEN STAKES (CLASS 2)**: [Link](https://www.equidia.fr/courses/2026-08-01/R6/C6)
+- **TATLER BRITISH EBF MAIDEN FILLIES' STAKES (CLASS 2) (GBB RACE)**: [Link](https://www.equidia.fr/courses/2026-07-30/R5/C7)
+
+
+### turf fr (N/A, Tue, 4 Aug 2026 10:20:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 3 Anssio**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-3-anssio-130247.html)
+- **Tiercé. Les pronostics de L'Alsace pour mercredi 5 août 2026 - Grand National du Trot**: [Link](https://www.lalsace.fr/actualite/2026/08/04/les-pronostics-de-l-alsace-pour-mercredi-5-aout-2026-grand-national-du-trot)
+- **Quinté Plus PMU : Lord Délo est très bien engagé**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-lord-delo-est-tres-bien-engage-130251.html)
+
+
+### نادي الاتحاد (N/A, Tue, 4 Aug 2026 10:10:00 -0700)
+
+- **الاتحاد يقترب من حسم صفقة سنغالية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D8%B5%D9%81%D9%82%D8%A9-%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9/blt25a0c9f842e2454d)
+- **الاتحاد يقترب من ضم ديون لوبي مقابل 19 مليون يورو**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/5303059-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B6%D9%85-%D8%AF%D9%8A%D9%88%D9%86-%D9%84%D9%88%D8%A8%D9%8A-%D9%85%D9%82%D8%A7%D8%A8%D9%84-19-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88)
+- **تقارير: الاتحاد يقترب من التعاقد مع ديون لوبي**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%AF%D9%8A%D9%88%D9%86-%D9%84%D9%88%D8%A8%D9%8A-765770)
+
+
 ### عثمان معما (N/A, Tue, 4 Aug 2026 10:00:00 -0700)
 
 - **موهبة المغرب يطلب الرحيل.. وعرض ألماني على الطاولة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84--%D9%88%D8%B9%D8%B1%D8%B6-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9/blt8d18b94a1e33a240)
