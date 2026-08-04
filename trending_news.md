@@ -1,3 +1,15 @@
+### akhbarona (N/A, Mon, 3 Aug 2026 21:50:00 -0700)
+
+- **الاتحاد الأوروبي يطالب بإجراءات أشد صرامة بعد وصول 60 ألف مهاجر إلى سبتة**: [Link](https://www.aol.com/articles/60-142852000.html)
+
+
+### can (N/A, Mon, 3 Aug 2026 15:10:00 -0700)
+
+- **Yankees' Cashman on Judge status: Can't rule out anything**: [Link](https://www.espn.com/mlb/story/_/id/49525286/yankees-cashman-judge-status-rule-it)
+- **Aaron Judge's Timeline to Return to Yankees from Rib Injury Discussed by Brian Cashman**: [Link](https://bleacherreport.com/articles/25461374-aaron-judges-timeline-return-yankees-rib-injury-discussed-brian-cashman)
+- **Yankees' Aaron Judge: NY remains optimistic about return**: [Link](https://www.cbssports.com/fantasy/baseball/news/yankees-aaron-judge-ny-remains-optimistic-about-return/)
+
+
 ### google (N/A, Mon, 3 Aug 2026 20:00:00 -0700)
 
 - **Google Pixel 11: Every rumor, leak, and confirmed fact ahead of Made By Google**: [Link](https://mashable.com/tech/google-pixel-11-everything-we-know)
