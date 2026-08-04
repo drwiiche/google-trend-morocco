@@ -1,3 +1,20 @@
+### tiempo (N/A, Mon, 3 Aug 2026 23:50:00 -0700)
+
+
+
+
+### meteo (N/A, Mon, 3 Aug 2026 23:40:00 -0700)
+
+- **Une quatrième canicule attendue à Paris cette semaine ?**: [Link](https://www.lebonbon.fr/paris/news/quatrieme-canicule-attendue-paris-semaine/)
+
+
+### غونزالو غارسيا (N/A, Mon, 3 Aug 2026 22:30:00 -0700)
+
+- **رسميا.. ريال مدريد يعلن رحيل نجمه إلى البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%AD%D9%8A%D9%84-%D9%86%D8%AC%D9%85%D9%87-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/bltaa9630cf7c0ad0a9)
+- **بيان رسمي: غونزالو**: [Link](https://www.realmadrid.com/ar-AE/news/club/announcements/comunicado-oficial-gonzalo-03-08-2026)
+- **أربيلوا مدرب فولهام يطلب ضم لاعب ثالث من ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/8/2/%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%85%D8%AF%D8%B1%D8%A8-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D9%8A%D8%B7%D9%84%D8%A8-%D8%B6%D9%85-%D9%84%D8%A7%D8%B9%D8%A8-%D8%AB%D8%A7%D9%84%D8%AB)
+
+
 ### akhbarona (N/A, Mon, 3 Aug 2026 21:50:00 -0700)
 
 - **الاتحاد الأوروبي يطالب بإجراءات أشد صرامة بعد وصول 60 ألف مهاجر إلى سبتة**: [Link](https://www.aol.com/articles/60-142852000.html)
