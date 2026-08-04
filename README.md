@@ -1,3 +1,52 @@
+### رودري (N/A, Tue, 4 Aug 2026 07:50:00 -0700)
+
+- **رودري يحسم اختياره بين ريال مدريد وبرشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D9%87-%D8%A8%D9%8A%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt96db45e58813bfdd)
+- **لخطف صفقة ريال مدريد.. برشلونة يضع 50 مليون يورو على طاولة مانشستر سيتي**: [Link](https://www.eremnews.com/sports/62t7wp8)
+- **"سبيشيال وان" لا يغيّر فلسفة عمرها 20 عامًا.. لماذا يصر مورينيو على ضم رودري؟**: [Link](https://twaslnews1.twaslnews.com/3789980/)
+
+
+### gianni infantino (N/A, Tue, 4 Aug 2026 07:40:00 -0700)
+
+- **Arsène Wenger: Gianni Infantino's FIFA World Cup sell-off U-turn 'absolutely necessary'**: [Link](https://www.espn.com/soccer/story/_/id/49527513/arsene-wenger-gianni-infantino-fifa-world-cup-sell-u-turn-absolutely-necessary)
+- **JPMorgan Finds Itself in Another Global Soccer Fiasco**: [Link](https://www.nytimes.com/2026/08/04/world/europe/fifa-jpmorgan.html)
+- **Two women led the resistance to Infantino's World Cup sell-off. That matters**: [Link](https://sports.yahoo.com/articles/two-women-led-resistance-infantino-041603533.html)
+
+
+### immeuble (N/A, Tue, 4 Aug 2026 07:30:00 -0700)
+
+- **La Broque. Un incendie s'est déclaré dans un immeuble, quatre familles relogées**: [Link](https://www.dna.fr/faits-divers-justice/2026/08/04/un-incendie-s-est-declare-dans-un-immeuble-quatre-familles-relogees)
+- **Immobilier à Fnideq: des MRE saisissent le médiateur du Royaume**: [Link](https://fr.le360.ma/societe/immobilier-a-fnideq-des-mre-saisissent-le-mediateur-du-royaume_373OYUNWZZFC7C4KDIBK2Q2KKU/)
+- **À leur retour au Maroc, des MRE découvrent leur immeuble fissuré**: [Link](https://www.bladi.net/retour-maroc-mre-decouvrent-immeuble-fissure,122919.html)
+
+
+### ceuta schengen (N/A, Tue, 4 Aug 2026 07:30:00 -0700)
+
+- **Migrant Crisis Pits Spain’s Leader Against Critics Across Europe**: [Link](https://www.wsj.com/world/europe/migrant-crisis-pits-spains-leader-against-critics-across-europe-42f46470)
+- **Ceuta migrant surge exposes Spain-Morocco tensions as Islamist groups reportedly seek to exploit border crisis**: [Link](https://www.foxnews.com/world/ceuta-migrant-surge-exposes-spain-morocco-tensions-islamist-groups-reportedly-seek-exploit-border-crisis)
+- **Morocco says Spain should have foreseen migration impact of court ruling**: [Link](https://www.reuters.com/world/morocco-says-spain-should-have-foreseen-migration-impact-court-ruling-2026-08-03/)
+
+
+### bg pathum united – aston villa (N/A, Tue, 4 Aug 2026 06:20:00 -0700)
+
+- **How to watch BG Pathum United vs Aston Villa - TV channel, live stream and kick-off time**: [Link](https://www.mirror.co.uk/sport/football/news/aston-villa-pathum-united-channel-37506962)
+- **WWE SummerSlam RESULTS: Reigns BEATS Rollins to retain title after Oba Femi wins**: [Link](https://www.thesun.co.uk/sport/39888613/wwe-summerslam-live-results-roman-reigns-updates/)
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/august/04/prematch-gallery-villa-touch-down-in-bangkok/)
+
+
+### maroc ceuta (N/A, Tue, 4 Aug 2026 06:20:00 -0700)
+
+- **Crise de Ceuta : l’impossible quête des origines de la rumeur d’une ouverture de la frontière**: [Link](https://www.lemonde.fr/pixels/article/2026/08/04/crise-de-ceuta-l-impossible-quete-des-origines-de-la-rumeur-d-une-ouverture-de-la-frontiere_6738730_4408996.html)
+- **Après Sebta, les Européens tentent de recoller les morceaux**: [Link](https://telquel.ma/instant-t/2026/08/04/apres-sebta-les-europeens-tentent-de-recoller-les-morceaux_2002158/)
+- **Rabat : "Nous ne sommes ni le gendarme ni le concierge de l’Europe"**: [Link](https://medias24.com/2026/08/04/rabat-nous-ne-sommes-ni-le-gendarme-ni-le-concierge-de-leurope-source-autorisee-1736147/)
+
+
+### hausse prix gasoil maroc (N/A, Tue, 4 Aug 2026 05:10:00 -0700)
+
+- **Les syndicats du transport réclament une aide en quatre tranches après une nouvelle hausse des prix des carburants**: [Link](https://fr.hespress.com/484055-les-syndicats-du-transport-reclament-une-aide-en-quatre-tranches-apres-une-nouvelle-hausse-des-prix-des-carburants.html)
+- **Carburants : les prix du gasoil et de l’essence à la pompe augmentent d’un dirham**: [Link](https://mobile.telquel.ma/instant-t/2026/08/03/carburants-les-prix-du-gasoil-et-de-lessence-a-la-pompe-augmentent-dun-dirham_2001927/)
+- **Carburants: un dirham de plus, sur fond de spéculation persistante et de concurrence en trompe-l’œil**: [Link](https://fr.le360.ma/economie/carburants-un-dirham-de-plus-sur-fond-de-speculation-persistante-et-de-concurrence-en-trompe-loeil_3W4B7PIJ4VH5PMHIZQNIJNNVCY/)
+
+
 ### gonzalo garcía (N/A, Tue, 4 Aug 2026 04:30:00 -0700)
 
 - **Oficial: Gonzalo ya es del Fulham**: [Link](https://as.com/futbol/internacional/oficial-gonzalo-ya-es-del-fulham-f202608-n/)
