@@ -1,3 +1,17 @@
+### match maroc senegal can féminine (N/A, Tue, 4 Aug 2026 21:30:00 -0700)
+
+- **CAN Maroc-2026: Le Maroc en quart de finale**: [Link](https://frmf.ma/fr/articles/can-maroc-2026-le-maroc-en-quart-de-finale)
+- **Football féminin : derrière l’élan des Lionnes à la CAN 2026, le défi des progrès durables**: [Link](https://fr.hespress.com/484067-football-feminin-derriere-lelan-des-lionnes-a-la-can-2026-le-defi-des-progres-durables.html)
+- **Jorge Vilda : “Nous avons atteint notre premier objectif en nous qualifiant pour les quarts de finale”**: [Link](https://mobile.telquel.ma/instant-t/2026/08/04/jorge-vilda-nous-avons-atteint-notre-premier-objectif-en-nous-qualifiant-pour-les-quarts-de-finale_2001987/)
+
+
+### ريال بيتيس (N/A, Tue, 4 Aug 2026 17:00:00 -0700)
+
+- **بيتيس يستسلم في ملف أمرابط.. وصفقة جديدة تحدد مستقبل الزلزولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%B3%D8%AA%D8%B3%D9%84%D9%85-%D9%81%D9%8A-%D9%85%D9%84%D9%81-%D8%A7%D9%94%D9%85%D8%B1%D8%A7%D8%A8%D8%B7/blt5147b586ee7be128)
+- **فياريال يدخل صراع التعاقد مع الدولي المغربي سفيان أمرابط**: [Link](https://barlamane.com/%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D8%AF%D8%AE%D9%84-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%A7%D9%84/)
+- **الاتحاد السعودي مستعد لتلبية المطالب المالية لفنربخشة من أجل سفيان أمرابط**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%85%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%AA%D9%84%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%81%D9%86%D8%B1%D8%A8%D8%AE%D8%B4%D8%A9-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7/23727)
+
+
 ### crise migratoire ceuta (N/A, Tue, 4 Aug 2026 20:20:00 -0700)
 
 - **Crise à Sebta : Rabat avait prévenu Madrid des risques liés à la décision du Tribunal suprême**: [Link](https://medias24.com/2026/08/04/crise-a-sebta-rabat-avait-prevenu-madrid-des-risques-lies-a-la-decision-du-tribunal-supreme-1736345/)
