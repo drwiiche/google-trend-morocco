@@ -1,3 +1,31 @@
+### crise migratoire ceuta (N/A, Tue, 4 Aug 2026 20:20:00 -0700)
+
+- **Crise à Sebta : Rabat avait prévenu Madrid des risques liés à la décision du Tribunal suprême**: [Link](https://medias24.com/2026/08/04/crise-a-sebta-rabat-avait-prevenu-madrid-des-risques-lies-a-la-decision-du-tribunal-supreme-1736345/)
+- **Honte et colère**: [Link](https://fr.le360.ma/societe/honte-et-colere_B3LSMFDPMJFGJIOMTU4MVH6MKE/)
+- **Événements de Sebta : la plaidoirie du Maroc, selon une source gouvernementale**: [Link](https://mobile.telquel.ma/instant-t/2026/08/04/evenements-de-sebta-la-plaidoirie-du-maroc-selon-une-source-gouvernementale_2001978/)
+
+
+### neymar (N/A, Tue, 4 Aug 2026 20:20:00 -0700)
+
+- **Neymar evita pensar en 2027, pero su papá descarta que se retire**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20260804-neymar-evita-pensar-en-2027-pero-su-pap%C3%A1-descarta-que-se-retire)
+- **Neymar habló del RETIRO y criticó a la prensa de su país**: [Link](https://es-us.noticias.yahoo.com/deportes/neymar-habla-retiro-critica-prensa-011000086.html)
+- **¿Le queda un último baile a Neymar o se retira en Santos?**: [Link](https://www.beinsports.com/es-us/football/serie-a-brazil/articles/-le-queda-un-%C3%BAltimo-baile-a-neymar-o-se-retira-en-santos-2026-08-04)
+
+
+### el niño (N/A, Tue, 4 Aug 2026 16:50:00 -0700)
+
+- **Intensificación de un fuerte episodio de El Niño en un contexto de temperaturas superiores a lo normal y cambios drásticos en las pautas de precipitación en gran parte del planeta**: [Link](https://wmo.int/es/media/news/intensificacion-de-un-fuerte-episodio-de-el-nino-en-un-contexto-de-temperaturas-superiores-lo-normal)
+- **Lo que "El Niño más fuerte en los registros" significa realmente (para los humanos)**: [Link](https://cnnespanol.cnn.com/2026/08/04/mundo/el-nino-mas-fuerte-que-significa-temperaturas-trax)
+- **Este verano aún no bate récords de calor. Esperen a que llegue El Niño, dicen científicos**: [Link](https://www.chicagotribune.com/2026/08/04/este-verano-an-no-bate-rcords-de-calor-esperen-a-que-llegue-el-nio-dicen-cientficos/)
+
+
+### newport county – roma (N/A, Tue, 4 Aug 2026 12:20:00 -0700)
+
+- **East Stand Lounge Bar open for season ticket holders ahead of AS Roma fixture**: [Link](https://www.newport-county.co.uk/news/east-stand-lounge-bar-open-season-ticket-holders-ahead-roma-fixture)
+- **Hermoso on playing in midfield in friendly win vs Newport: “I do what the coach wants. That’s the mentality.”**: [Link](https://romapress.net/hermoso-on-playing-in-midfield-in-friendly-win-vs-newport-i-do-what-the-coach-wants-thats-the-mentality/)
+- **Newport County news: Hayden Mullins calls for focus on Exiles against Roma**: [Link](https://www.bbc.com/sport/football/articles/cvgvmdjln5no)
+
+
 ### infantino (N/A, Tue, 4 Aug 2026 17:10:00 -0700)
 
 - **Gianni Infantino: FIFA president asks senior staff to attend crisis meeting in Morocco on Wednesday**: [Link](https://www.skysports.com/football/news/12010/13569849/gianni-infantino-fifa-president-asks-senior-staff-to-attend-crisis-meeting-in-morocco-on-wednesday)
