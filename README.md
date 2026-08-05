@@ -1,3 +1,45 @@
+### جريدة المنتخب (N/A, Wed, 5 Aug 2026 14:20:00 -0700)
+
+- **يونس إيدر يتلقى أول استدعاء مع الفريق الأول لباريس سان جيرمان**: [Link](https://www.almountakhab.com/node/13229079)
+- **من بينهم حكيمي .. 11 باريسيا يقتربون من العودة**: [Link](https://www.almountakhab.com/node/13229077)
+- **بعد ثلاثية تاريخية مع أورلاندو بايرتس.. وادو ينتقد واقع المدربين في فرنسا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A3%D9%88%D8%B1%D9%84%D8%A7%D9%86%D8%AF%D9%88-%D8%A8%D8%A7%D9%8A%D8%B1%D8%AA%D8%B3-%D9%88%D8%A7%D8%AF%D9%88-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/23791)
+
+
+### azzedine ounahi (N/A, Wed, 5 Aug 2026 14:00:00 -0700)
+
+- **Pourquoi le FC Barcelone fonce sur Azzedine Ounahi**: [Link](https://www.footmercato.net/a924106257475191856-pourquoi-le-fc-barcelone-fonce-sur-azzedine-ounahi)
+- **Après l'intérêt du FC Barcelone et du Real Madrid : Gérone ouvre les enchères pour Ounahi**: [Link](https://www.goal.com/fr/news/apres-l-interet-du-fc-barcelone-et-du-real-madrid-gerone-ouvre-les-encheres-pour-ounahi/bltd2ff32716848d0f1)
+- **Azzedine Ounahi attise les convoitises des cadors européens**: [Link](https://fr.hespress.com/484254-azzedine-ounahi-attise-les-convoitises-des-cadors-europeens.html)
+
+
+### mo salah (N/A, Wed, 5 Aug 2026 13:40:00 -0700)
+
+- **Mohamed Salah arrives in Turkey ahead of Trabzonspor move**: [Link](https://en.hespress.com/143257-mohamed-salah-arrives-in-turkey-ahead-of-trabzonspor-move.html)
+- **Mohamed Salah: Turkish club Trabzonspor set to sign former Liverpool forward**: [Link](https://www.bbc.com/sport/football/articles/cn8negllz1ko)
+- **Carragher: Salah is like Cristiano, and his place is Juventus not Trabzon**: [Link](https://www.goal.com/en-in/news/carragher-salah-is-like-cristiano-and-his-place-is-juventus-not-trabzon/blt7a3d21102aa18200)
+
+
+### bouaddi (N/A, Wed, 5 Aug 2026 13:30:00 -0700)
+
+- **Lille target Real Madrid player to replace Ayoub Bouaddi**: [Link](https://www.goal.com/en/news/lille-target-real-madrid-player-to-replace-ayoub-bouaddi/blt5461ca957e7895be)
+- **Real Madrid Prospect Emerges as Lille’s Top Target to Replace Ayyoub Bouaddi**: [Link](https://koorabreak.com/en/323763/)
+- **Lille consider Real Madrid prospect Jorge Cestero as Ayoub Bouaddi departure nears**: [Link](https://africasoccer.com/lille-consider-real-madrid-prospect-jorge-cestero-as-ayoub-bouaddi-departure-nears/)
+
+
+### gianni infantino (N/A, Wed, 5 Aug 2026 13:30:00 -0700)
+
+- **Canada’s Carney says he has no confidence in FIFA’s Infantino**: [Link](https://apnews.com/article/carney-fifa-infantino-world-cup-soccer-cb538d650858a787b805c0b0326b3df6)
+- **Gianni Infantino scrambling for his future in Morocco with Colombia next**: [Link](https://www.theguardian.com/football/2026/aug/05/gianni-infantino-scrambling-for-his-future-in-morocco-with-colombia-next)
+- **Soccer legend Figo says beleaguered Infantino ‘must go’ as FIFA holds crisis meeting**: [Link](https://www.cnn.com/2026/08/05/sport/figo-infantino-fifa-crisis-meeting-intl)
+
+
+### vinicius júnior (N/A, Wed, 5 Aug 2026 12:20:00 -0700)
+
+- **Vinícius Júnior volta ao Real Madrid e revela pedido de José Mourinho**: [Link](https://www.noticiasaominuto.com.br/esporte/2403271/vinicius-junior-volta-ao-real-madrid-e-revela-pedido-de-jose-mourinho)
+- **'É um risco!' - Arsenal é alertado de que Vinicius Jr pode DESTRUIR o espírito do vestiário de Mikel Arteta apesar do talento de classe mundial**: [Link](https://www.goal.com/br/listas/e-um-risco-arsenal-e-alertado-de-que-vinicius-jr-pode-destruir-o-espirito-do-vestiario-de-mikel-arteta-apesar-do-talento-de-classe-mundial/blt3fef0e9cce070996)
+- **Gesto de Vinícius Jr. surpreende após reunião sobre a renovação com o Real Madrid**: [Link](https://www.abola.pt/noticias/gesto-de-vinicius-jr-surpreende-apos-reuniao-sobre-a-renovacao-com-o-real-madrid-2026080518551938356)
+
+
 ### matchs amicaux (N/A, Wed, 5 Aug 2026 13:00:00 -0700)
 
 - **21 mois après, Mudryk a rejoué - Angleterre - Chelsea**: [Link](https://www.sofoot.com/breves/21-mois-apres-mudryk-a-rejoue-avec-chelsea)
