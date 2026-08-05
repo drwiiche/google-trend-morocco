@@ -1,3 +1,52 @@
+### ياسر زبيري (N/A, Wed, 5 Aug 2026 11:30:00 -0700)
+
+- **الزبيري يحدد هدفه مع راسينغ سانتاندير: "أريد تسجيل 10 أهداف"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%87%D8%AF%D9%81%D9%87-%D9%85%D8%B9-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-%D8%A3%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-10-%D8%A3%D9%87%D8%AF%D8%A7%D9%81/23818)
+- **تصرف غير متوقع.. ياسر زابيري يثير استياء جماهير سانتاندير الإسباني خلال تقديمه الرسمي أمام وسائل الإعلام**: [Link](https://www.akhbarona.com/sport/worldfoot/430369.html)
+- **الزابيري : هدفي الأول في الليغا هو تسجيل 10 أهداف**: [Link](https://ar.sport.le360.ma/football/74GH77SKCVEWFNND25UEKW2XRI/)
+
+
+### majorque – paris-sg (N/A, Wed, 5 Aug 2026 11:10:00 -0700)
+
+- **À quelle heure et sur quelle chaîne voir le premier match de pré-saison du PSG face à Majorque ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-le-premier-match-de-pre-saison-du-psg-face-a-majorque/1709066)
+- **PSG : la raison derrière ce curieux match amical à Majorque**: [Link](https://www.footmercato.net/a4943791699950052784-psg-la-raison-derriere-ce-curieux-match-amical-a-majorque)
+- **Amical - Ibrahim Mbaye titulaire, la composition de Luis Enrique pour le premier match de préparation du PSG**: [Link](https://madeinparisiens.ouest-france.fr/infos/article-amical-ibrahim-mbaye-titulaire-la-composition-de-luis-enrique-pour-le-premier-match-de-preparation-du-psg-533811.html)
+
+
+### آرسنال ضد ريال بتيس (N/A, Wed, 5 Aug 2026 10:50:00 -0700)
+
+- **القنوات الناقلة لمباراة أرسنال ضد ريال بيتيس الودية اليوم مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/308895062482912-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **هافيرتز بعد التسجيل في فوز أرسنال: أنا قوي وجاهز**: [Link](https://gate.ahram.org.eg/News/5882072.aspx)
+- **تألق تزوليس في أول ظهور له مع أرسنال الذي سحق جيرونا بنتيجة 4-1 في مباراة ودية قبل انطلاق الموسم.**: [Link](https://www.vietnam.vn/ar/tzolis-ruc-sang-ngay-ra-mat-arsenal-de-bep-girona-4-1-trong-tran-giao-huu-tien-mua-giai)
+
+
+### arsenal – betis (N/A, Wed, 5 Aug 2026 10:40:00 -0700)
+
+- **Arsenal vs. Real Betis: TV channel, how to watch in UK, kickoff time, live stream, team news**: [Link](https://www.espn.co.uk/football/story/_/id/49518322/arsenal-vs-real-betis-tv-channel-how-watch-uk-kickoff-live-stream-team-news)
+- **Arsenal vs Real Betis DELAYED after Spanish side caught in Dublin traffic**: [Link](https://www.thesun.co.uk/sport/39977248/arsenal-real-betis-delayed-dublin-traffic/)
+- **Saliba, Timber, White - Arsenal injury news and return dates before Real Betis clash**: [Link](https://www.football.london/arsenal-fc/news/arsenal-injury-news-saliba-timber-34400018)
+
+
+### أيوب بوعدي (N/A, Wed, 5 Aug 2026 10:40:00 -0700)
+
+- **ليل يستهدف لاعب ريال مدريد لتعويض أيوب بوعدي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D9%84-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D8%A7%D9%94%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A/blt5461ca957e7895be)
+- **بوعدي يقترب من ارتداء قميص مانشستر سيتي**: [Link](https://radiomars.ma/%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D8%B1%D8%AA%D8%AF%D8%A7%D8%A1-%D9%82%D9%85%D9%8A%D8%B5-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA/)
+- **نادي ليل يتجه لريال مدريد من أجل تعويض رحيل محتمل للشبل بوعدي للسيتي**: [Link](https://www.almountakhab.com/node/13229068)
+
+
+### turf fr (N/A, Wed, 5 Aug 2026 10:10:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 5 Katchi Quick**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-5-katchi-quick-130250.html)
+- **Tiercé. Les pronostics de L'Alsace pour jeudi 6 août 2026 - Prix des Pyramides**: [Link](https://www.lalsace.fr/actualite/2026/08/05/les-pronostics-de-l-alsace-pour-jeudi-6-aout-2026-prix-des-pyramides)
+- **Quinté Plus PMU : Muze Maker est le plus riche du lot**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-muze-maker-est-le-plus-riche-du-lot-130258.html)
+
+
+### can feminine programme (N/A, Wed, 5 Aug 2026 09:40:00 -0700)
+
+- **Égypte – Nigeria : les Super Falcons sous pression, les Cléopâtres veulent finir avec les honneurs**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/egypte-nigeria-les-super-falcons-sous-pression-les-cleopatres-veulent-finir-avec-les-honneurs/)
+- **CAN féminine Maroc 2026 : le groupe C rend son verdict ce mercredi**: [Link](https://fr.hespress.com/484202-can-feminine-maroc-2026-le-groupe-c-rend-son-verdict-ce-mercredi.html)
+- **CAN féminine 2026 : le Nigeria sous pression, Malawi-Zambie pour le fauteuil de leader**: [Link](https://www.afrik.com/can-feminine-2026-le-nigeria-sous-pression-malawi-zambie-pour-le-fauteuil-de-leader)
+
+
 ### نادي الوداد الرياضي (N/A, Wed, 5 Aug 2026 09:40:00 -0700)
 
 - **الوداد يدشن الاستعداد للموسم الجديد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AF%D8%B4%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF-%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-1787466.html)
