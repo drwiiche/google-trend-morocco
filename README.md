@@ -1,3 +1,24 @@
+### vinicius junior real madrid (N/A, Wed, 5 Aug 2026 05:20:00 -0700)
+
+- **What we’re hearing about Arsenal’s interest in Vinicius Junior and his Real Madrid contract - The Athletic**: [Link](https://www.nytimes.com/athletic/7484629/2026/08/01/vinicius-junior-arsenal-transfer-latest-real-madrid-contract/)
+- **Arsenal make breakthrough in pursuit of Vinicius Junior**: [Link](https://www.independent.co.uk/sport/football/arsenal-vinicius-junior-real-madrid-transfer-news-b3025767.html)
+- **Vinícius Júnior’s potential move to Arsenal could be a problem for Bayern Munich**: [Link](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/239226/vinicius-juniors-potential-move-to-arsenal-could-be-a-problem-for-bayern-munich)
+
+
+### محمد صلاح (N/A, Wed, 5 Aug 2026 05:10:00 -0700)
+
+- **استقبال حاشد وتحية "الأوتشلو".. صلاح يشعل حماس جماهير طرابزون سبور (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/8/5/%D9%87%D9%84-%D8%A3%D9%86%D8%AA%D9%85-%D9%85%D8%B3%D8%AA%D8%B9%D8%AF%D9%88%D9%86-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD)
+- **محمد صلاح يلعب في دوري تركيا**: [Link](https://www.hespress.com/%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%84%D8%B9%D8%A8-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-1787761.html)
+- **بين إسبانيا والسعودية وتركيا.. هل اتخذ محمد صلاح القرار الصائب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D9%8A%D9%86-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%AA%D8%B1%D9%83%D9%8A%D8%A7--%D9%87%D9%84-%D8%A7%D8%AA%D8%AE%D8%B0-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%B5%D8%A7%D9%8A%D9%94%D8%A8/bltc1984f7364429e48)
+
+
+### mehdi laribi (N/A, Wed, 5 Aug 2026 04:50:00 -0700)
+
+- **Mehdi Laribi, présenté comme l'un des fondateurs de la DZ Mafia, arrêté en Algérie il y a quelques jours**: [Link](https://www.franceinfo.fr/societe/drogue/info-franceinfo-mehdi-laribi-presente-comme-l-un-des-fondateurs-de-la-dz-mafia-arrete-en-algerie-il-y-a-quelques-jours_8135381.html)
+- **Mehdi Laribi, présenté comme un cadre de la DZ Mafia, a été arrêté en Algérie, sur exécution d’un mandat d’arrêt français, à la fin du mois de juillet**: [Link](https://www.lemonde.fr/societe/article/2026/08/05/mehdi-laribi-presente-comme-un-cadre-de-la-dz-mafia-a-ete-arrete-en-algerie-sur-execution-d-un-mandat-d-arret-francais-a-la-fin-du-mois-de-juillet_6739406_3224.html)
+- **Mehdi Laribi, dit « Tic », cadre suspecté de la DZ, interpellé en Algérie**: [Link](https://www.20minutes.fr/faits_divers/faits-divers-marseille/4237883-20260805-narcotrafic-marseille-mehdi-laribi-dit-tic-interpelle-algerie)
+
+
 ### تشيلسي ضد يوفنتوس (N/A, Wed, 5 Aug 2026 04:00:00 -0700)
 
 - **مواعيد مباريات اليوم.. مواجهات تصفيات أبطال أوروبا والبايرن مع جيجو يونايتد**: [Link](https://www.youm7.com/story/2026/8/4/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D8%B9-%D8%AC%D9%8A%D8%AC%D9%88/7501960)
