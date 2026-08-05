@@ -1,3 +1,51 @@
+### نادي الوداد الرياضي (N/A, Wed, 5 Aug 2026 09:40:00 -0700)
+
+- **الوداد يدشن الاستعداد للموسم الجديد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AF%D8%B4%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF-%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-1787466.html)
+- **جبران وعطية الله في تداريب الوداد**: [Link](https://assabah.ma/941561.html)
+- **عطية الله بعد عودته للوداد: اتعهد ببذل كل ما في وسعي لتقديم الأفضل**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B9%D8%B7%D9%8A%D8%A9-%D8%A7%D9%84%D9%84%D9%87-%D8%A8%D8%B9%D8%AF-%D8%B9%D9%88%D8%AF%D8%AA%D9%87-%D9%84%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D8%AA%D8%B9%D9%87%D8%AF-%D8%A8%D8%A8%D8%B0%D9%84-%D9%83%D9%84-%D9%85%D8%A7-%D9%81%D9%8A-%D9%88%D8%B3%D8%B9%D9%8A-%D9%84%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84/23740)
+
+
+### كريستيانو رونالدو (N/A, Wed, 5 Aug 2026 09:30:00 -0700)
+
+- **رسائل وهدايا.. هل سيحضر ميسي وأنتونيلا زفاف رونالدو وجورجينا؟**: [Link](https://www.eremnews.com/sports/h8ksbjt)
+- **رونالدو وجورجينا غايتزوجو فجيزرة ماديرا**: [Link](https://www.goud.ma/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%BA%D8%A7%D9%8A%D8%AA%D8%B2%D9%88%D8%AC%D9%88-%D9%81%D8%AC%D9%8A%D8%B2%D8%B1%D8%A9-%D9%85%D8%A7%D8%AF-1034609/)
+- **كريستيانو رونالدو يتزوج من جورجينا السبت في ماديرا**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5303068-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AA%D8%B2%D9%88%D8%AC-%D9%85%D9%86-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D9%81%D9%8A-%D9%85%D8%A7%D8%AF%D9%8A%D8%B1%D8%A7)
+
+
+### abdeslam ouaddou (N/A, Wed, 5 Aug 2026 09:00:00 -0700)
+
+- **Abdeslam Ouaddou, coach des Orlando Pirates qu'il a menés au triplé : «Quand la FFF aura compris qu'il faut colorer un peu les entraîneurs, on aura avancé»**: [Link](https://www.lequipe.fr/Football/Article/Abdeslam-ouaddou-coach-des-orlando-pirates-qu-il-a-menes-au-triple-en-afrique-du-sud-quand-la-fff-aura-compris-qu-il-faut-colorer-un-peu-les-entraineurs-on-aura-avance/1708985)
+- **La France lui ferme la porte, Abdeslam Ouaddou devient le meilleur entraîneur d'Afrique du Sud**: [Link](https://www.bladi.net/france-ferme-porte-abdeslam-ouaddou-devient-meilleur-entraineur-afrique-sud,122937.html)
+- **Abdelsalam Ouaddou: De la défense des Lions de l'Atlas au triomphe historique en Afrique du Sud**: [Link](https://snrtnews.com/fr/article/abdelsalam-ouaddou-de-la-defense-des-lions-de-latlas-au-triomphe-historique-en-afrique-du)
+
+
+### جائزة الكرة الذهبية (N/A, Wed, 5 Aug 2026 08:50:00 -0700)
+
+- **بأرقام استثنائية.. هل يكون كوبارسي مفاجأة الكرة الذهبية؟**: [Link](https://www.aljazeera.net/sport/2026/8/4/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D9%83%D9%88%D8%A8%D8%A7%D8%B1%D8%B3%D9%8A-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1)
+- **بعمر الـ19.. سر هيمنة باو كوبارسي على كأس العالم**: [Link](https://al-ain.com/article/pau-cubarsi-secret-dominating-world-cup)
+- **أقوى 5 مرشحين للفوز بالكرة الذهبية 2026**: [Link](https://www.eremnews.com/sports/vtlamqv)
+
+
+### didier deschamps (N/A, Wed, 5 Aug 2026 08:30:00 -0700)
+
+- **Mercato : Deschamps, et maintenant ?**: [Link](https://m.maxifoot.fr/football/article-65574.htm)
+- **La FFF était «déjà passée à Zinédine Zidane» pendant la Coupe du monde 2026 : Un journaliste révèle un malaise avec Didier Deschamps en équipe de France**: [Link](https://le10sport.com/football/equipe-de-france/la-fff-etait-deja-passee-a-zinedine-zidane-pendant-la-coupe-du-monde-2026-un-journaliste-revele-un-malaise-avec-didier-deschamps-en-equipe-de-france-789806)
+- **DES ÉTOILES DANS LEURS YEUX (Philippe Sanfourche, Loïc Tanzi et François Vignolles)**: [Link](https://www.sport-a-lire.fr/des-etoiles-dans-leurs-yeux-philippe-sanfourche-loic-tanzi-et-francois-vignolles/)
+
+
+### mohamed ouahbi (N/A, Wed, 5 Aug 2026 07:40:00 -0700)
+
+- **After the 2026 World Cup, Morocco Coach Drops Six Atlas Lions Players**: [Link](https://www.jordannews.jo/Section-71/Football/After-the-2026-World-Cup-Morocco-Coach-Drops-Six-Atlas-Lions-Players-53802)
+- **From failed teacher to World Cup hero: How Mohamed Ouahbi built Morocco’s new collective**: [Link](https://thepost.co.za/2026-07-08-from-failed-teacher-to-world-cup-hero-how-mohamed-ouahbi-built-moroccos-new-collective/)
+- **Mohamed Ouahbi plots immediate AFCON redemption for Morocco after World Cup exit**: [Link](https://independentonsaturday.co.za/2026-07-10-mohamed-ouahbi-plots-immediate-afcon-redemption-for-morocco-after-france-heartbreak/)
+
+
+### belkacem boutayeb (N/A, Wed, 5 Aug 2026 05:30:00 -0700)
+
+- **Décès de Belkacem Boutayeb, banquier, expert international, 80 ans**: [Link](https://www.maroc-hebdo.com/article/deces-de-belkacem-boutayeb-banquier-expert-international-80-ans)
+- **Décès de Belkacem Boutayeb : une figure de la finance internationale s’est éteinte à 80 ans**: [Link](https://www.lebrief.ma/deces-de-belkacem-boutayeb-une-figure-de-la-finance-internationale-sest-eteinte-a-80-ans-100162266/)
+
+
 ### ceuta espagne migrants (N/A, Wed, 5 Aug 2026 07:10:00 -0700)
 
 - **Pourquoi le Maroc n’a pas pu orchestrer la crise de Ceuta ?**: [Link](https://legrandcontinent.eu/fr/2026/08/05/pourquoi-le-maroc-na-pas-pu-orchestrer-la-crise-de-ceuta/)
