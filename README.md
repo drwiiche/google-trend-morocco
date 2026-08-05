@@ -1,3 +1,38 @@
+### جورجينا رودريغيز (N/A, Wed, 5 Aug 2026 15:10:00 -0700)
+
+- **بعد تعرضها للسخرية.. زوجة ميسي تدعم جورجينا (صورة)**: [Link](https://www.eremnews.com/sports/8pk9xcm)
+- **أثارت صديقة رونالدو، وهي عارضة أزياء، ضجة كبيرة بنشرها صوراً لها بالبيكيني رداً على منتقديه.**: [Link](https://www.vietnam.vn/ar/ban-gai-nguoi-mau-cua-ronaldo-gay-sot-khi-tung-anh-mac-bikini-dap-tra-antifan)
+- **جورجينا رودريغيز ترد على التنمر بسبب جسمها.. ورونالدو يدعمها**: [Link](https://etbilarabi.com/%D9%85%D9%8A%D9%83%D8%B3/%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%BA%D9%8A%D8%B2-%D8%AA%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%86%D9%85%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AC%D8%B3%D9%85%D9%87%D8%A7-%D9%88%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AF%D8%B9%D9%85%D9%87%D8%A7)
+
+
+### انتخابات (N/A, Wed, 5 Aug 2026 15:10:00 -0700)
+
+- **ترمب: فوز عبدول السيد الكاره لإسرائيل خبر سار للجمهوريين**: [Link](https://www.aljazeera.net/news/2026/8/5/%D8%AA%D8%B1%D9%85%D8%A8-%D9%81%D9%88%D8%B2-%D8%B9%D8%A8%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D8%AE%D8%A8%D8%B1-%D8%B3%D8%A7%D8%B1)
+- **أميركي من أصول مصرية يقلب الطاولة في انتخابات مجلس الشيوخ**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/08/05/%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%85%D9%86-%D8%A7%D8%B5%D9%88%D9%84-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B4%D9%8A%D9%88%D8%AE)
+- **فوز عبد الرحمن السيد المعارض للدعم الأميركي لإسرائيل في الانتخابات التمهيدية للديمقراطيين في ميشيغن**: [Link](https://arabic.euronews.com/2026/08/05/abdul-el-sayed-an-opponent-of-support-for-israel-wins-michigans-democratic-primary)
+
+
+### éclipse solaire (N/A, Wed, 5 Aug 2026 15:00:00 -0700)
+
+- **Comment regarder l’éclipse solaire du 12 août sans danger pour les yeux**: [Link](https://www.lemonde.fr/sciences/article/2026/08/05/comment-regarder-l-eclipse-sans-danger-pour-la-vue_6739357_1650684.html)
+- **Cinq choses à savoir sur les éclipses solaires - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/agence-presse/cinq-choses-a-savoir-sur-les-eclipses-solaires/)
+- **Eclipse solaire partielle au Maroc et en Espagne le 12 août**: [Link](https://fr.hespress.com/484131-eclipse-solaire-partielle-au-maroc-et-en-espagne-le-12-aout.html)
+
+
+### خبر (N/A, Wed, 5 Aug 2026 14:40:00 -0700)
+
+- **اتهموا بالإرهاب..موريتانيا تتحرك للإفراج عن مواطنيها في مالي**: [Link](https://www.skynewsarabia.com/middle-east/1884532-%D8%A7%D8%AA%D9%87%D9%85%D9%88%D8%A7-%D8%A8%D8%A7%D9%84%D8%A5%D8%B1%D9%87%D8%A7%D8%A8-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D9%84%D8%A5%D9%81%D8%B1%D8%A7%D8%AC-%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A%D9%87%D8%A7-%D9%85%D8%A7%D9%84%D9%8A)
+- **عائلات موريتانيين محتجزين لدى الجيش المالي تستنجد بنواكشوط.. نجهل مصيرهم**: [Link](https://arabi21.com/story/1779456/%D8%B9%D8%A7%D8%A6%D9%84%D8%A7%D8%AA-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D9%8A%D9%86-%D9%85%D8%AD%D8%AA%D8%AC%D8%B2%D9%8A%D9%86-%D9%84%D8%AF%D9%89-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A-%D8%AA%D8%B3%D8%AA%D9%86%D8%AC%D8%AF-%D8%A8%D9%86%D9%88%D8%A7%D9%83%D8%B4%D9%88%D8%B7-%D9%86%D8%AC%D9%87%D9%84-%D9%85%D8%B5%D9%8A%D8%B1%D9%87%D9%85)
+- **بتعليمات من رئيس الجمهورية.. اتصالات مكثفة لتأمين الإفراج عن مواطنين موقوفين في مالي**: [Link](https://www.ami.mr/archives/265897)
+
+
+### سلاح (N/A, Wed, 5 Aug 2026 13:50:00 -0700)
+
+- **احتكار السلاح أم احتكار المعايير؟ ...**: [Link](https://alghad.com/Section-114/%D9%85%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85/%D8%A7%D8%AD%D8%AA%D9%83%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D8%AD-%D8%A3%D9%85-%D8%A7%D8%AD%D8%AA%D9%83%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D9%8A%D9%8A%D8%B1-2090176)
+- **توقيف مسلح الأحد في ملعب غولف تابع لترامب في كاليفورنيا قبيل زيارة للرئيس**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260805-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%B3%D9%84%D8%AD-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8-%D8%BA%D9%88%D9%84%D9%81-%D8%AA%D8%A7%D8%A8%D8%B9-%D9%84%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%81%D9%8A-%D9%83%D8%A7%D9%84%D9%8A%D9%81%D9%88%D8%B1%D9%86%D9%8A%D8%A7-%D9%82%D8%A8%D9%8A%D9%84-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D9%84%D9%84%D8%B1%D8%A6%D9%8A%D8%B3)
+- **اعتقال مسلح قرب نادي ترامب قبل زيارته لكاليفورنيا**: [Link](https://www.skynewsarabia.com/varieties/1884495-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D9%85%D8%B3%D9%84%D8%AD-%D9%82%D8%B1%D8%A8-%D9%86%D8%A7%D8%AF%D9%8A-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%B2%D9%8A%D8%A7%D8%B1%D8%AA%D9%87-%D9%84%D9%83%D8%A7%D9%84%D9%8A%D9%81%D9%88%D8%B1%D9%86%D9%8A%D8%A7)
+
+
 ### جريدة المنتخب (N/A, Wed, 5 Aug 2026 14:20:00 -0700)
 
 - **يونس إيدر يتلقى أول استدعاء مع الفريق الأول لباريس سان جيرمان**: [Link](https://www.almountakhab.com/node/13229079)
