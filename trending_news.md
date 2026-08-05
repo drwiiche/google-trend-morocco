@@ -1,3 +1,17 @@
+### inter miami – san luis (N/A, Wed, 5 Aug 2026 16:00:00 -0700)
+
+- **Inter Miami vs Monterrey: Pronóstico, Picks, Momios y Alineaciones**: [Link](https://www.squawka.com/us-es/news/leagues-cup/inter-miami-vs-monterrey-pronostico-leagues-cup-08-08-26/)
+- **LEO INICIA SU PARTICIPACIÓN EN LA LEAGUES CUP**: [Link](https://messi.com/leo-inicia-su-participacion-en-la-leagues-cup/)
+- **Leagues Cup: así es el formato del torneo en el que debutará el Inter Miami de Lionel Messi**: [Link](https://www.radio3caseros.com.ar/articulo/leagues-cup-asi-es-el-formato-del-torneo-en-el-que-debutara-el-inter-miami-de-lionel-messi.php)
+
+
+### محمد هنيدي (N/A, Wed, 5 Aug 2026 15:10:00 -0700)
+
+- **الموت يفجع الفنان المصري محمد هنيدي -صورة**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D9%81%D8%AC%D8%B9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D9%87%D9%86%D9%8A%D8%AF%D9%8A-%D8%B5%D9%88-1014369.html)
+- **الجواهرجي.. من التحديات إلى الشاشة.. رحلة فيلم طال انتظاره**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1837515-%D8%A7%D9%84%D8%AC%D9%88%D8%A7%D9%87%D8%B1%D8%AC%D9%8A-%D8%B1%D8%AD%D9%84%D8%A9-%D9%81%D9%8A%D9%84%D9%85-%D8%B7%D8%A7%D9%84-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1%D9%87)
+- **محمد هنيدى يطالب بعدم تغطية جنازة شقيقه واليوم السابع يؤكد احترام رغبته**: [Link](https://a5r5br.net/egypt/local-news/7969652-%D9%85%D8%AD%D9%85%D8%AF-%D9%87%D9%86%D9%8A%D8%AF%D9%89-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%B9%D8%AF%D9%85-%D8%AA%D8%BA%D8%B7%D9%8A%D8%A9-%D8%AC%D9%86%D8%A7%D8%B2%D8%A9-%D8%B4%D9%82%D9%8A%D9%82%D9%87-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D8%B9-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85-%D8%B1%D8%BA%D8%A8%D8%AA%D9%87)
+
+
 ### جورجينا رودريغيز (N/A, Wed, 5 Aug 2026 15:10:00 -0700)
 
 - **بعد تعرضها للسخرية.. زوجة ميسي تدعم جورجينا (صورة)**: [Link](https://www.eremnews.com/sports/8pk9xcm)
