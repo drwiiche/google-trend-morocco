@@ -1,3 +1,73 @@
+### qatar airways (N/A, Wed, 5 Aug 2026 02:20:00 -0700)
+
+- **Qatar Airways Reconnects Doha and Philadelphia with First Flight**: [Link](https://www.fananews.com/language/en/qatar-airways-reconnects-doha-and-philadelphia-with-first-flight/)
+- **Qatar Airways resumes daily Doha-Philadelphia flights**: [Link](https://qazinform.com/news/qatar-airways-resumes-daily-doha-philadelphia-flights-055b9c)
+- **Qatar Airways to Restart A350 Flights to This Historical US City**: [Link](https://aviationa2z.com/index.php/2026/08/05/qatar-airways-resumes-doha-philadelphia-flights/)
+
+
+### coupe d'afrique des nations féminine de football 2026 (N/A, Wed, 5 Aug 2026 01:50:00 -0700)
+
+- **CAN féminine Maroc 2026: Les Lionnes de l’Atlas affrontent l’Afrique du Sud en quart de finale**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-affrontent-lafrique-du-sud-en-quart-de-finale)
+- **CAN féminine : les Lionnes de l’Atlas affrontent l’Afrique du Sud aux quarts de finale**: [Link](https://telquel.ma/instant-t/2026/08/05/can-feminine-les-lionnes-de-latlas-affrontent-lafrique-du-sud-aux-quarts-de-finale_2002228/)
+- **Football féminin : derrière l’élan des Lionnes à la CAN 2026, le défi des progrès durables**: [Link](https://fr.hespress.com/484067-football-feminin-derriere-lelan-des-lionnes-a-la-can-2026-le-defi-des-progres-durables.html)
+
+
+### aziz akhannouch (N/A, Wed, 5 Aug 2026 01:20:00 -0700)
+
+- **Après la polémique, un journal espagnol affirme qu’Akhannouch a écourté ses vacances à Majorque et regagné le Maroc**: [Link](https://mobile.telquel.ma/instant-t/2026/08/04/apres-la-polemique-un-journal-espagnol-affirme-quakhannouch-a-ecourte-ses-vacances-a-majorque-et-regagne-le-maroc_2002115/)
+- **L’ESPAGNE INTIME À AKHANNOUCH L’ORDRE DE QUITTER SON TERRITOIRE : « Rentre chez toi au Maroc**: [Link](https://lecourrier-dalgerie.com/lespagne-intime-a-akhannouch-lordre-de-quitter-son-territoire-rentre-chez-toi-au-maroc/)
+- **Parti à Majorque en pleine crise de Sebta, Akhannouch revient moins de 48 heures après**: [Link](https://www.bladi.net/parti-majorque-pleine-crise-sebta-akhannouch-revient-heures,122905.html)
+
+
+### ذهب (N/A, Wed, 5 Aug 2026 01:10:00 -0700)
+
+- **الذهب يرتفع والنفط يتراجع بعد إرجاء ترمب شن هجوم على إيران**: [Link](https://www.aljazeera.net/ebusiness/2026/8/3/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%85%D8%B9-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D8%A8%D8%B9%D8%AF-%D8%A3%D9%86-%D8%A3%D8%B1%D8%AC%D8%A3)
+- **الذهب يرتفع لأعلى مستوى في شهر مع تراجع النفط والدولار**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%84%D8%A3%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D9%81%D9%8A-%D8%B4%D9%87%D8%B1-%D9%85%D8%B9-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9/)
+- **الذهب يرتفع قليلا مع ترقب بيانات الوظائف في أمريكا**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%82%D9%84%D9%8A%D9%84%D8%A7-%D9%85%D8%B9-%D8%AA%D8%B1%D9%82%D8%A8-%D8%A8%D9%8A%D8%A7%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D8%B8%D8%A7%D8%A6%D9%81-%D9%81%D9%8A-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-12796)
+
+
+### diarrhée explosive (N/A, Wed, 5 Aug 2026 01:00:00 -0700)
+
+- **Aux États-Unis, l'épidémie de "diarrhées explosives" fait deux premiers morts**: [Link](https://www.bfmtv.com/international/amerique-nord/etats-unis/aux-etats-unis-l-epidemie-de-diarrhees-explosives-fait-deux-premiers-morts_AN-202608040514.html)
+- **Épidémie d’infections intestinales dans le Michigan**: [Link](https://www.medi1news.com/fr/tag/%C3%89pid%C3%A9mie-d%E2%80%99infections-intestinales-dans-le-Michigan)
+- **EN EXCLUSIVITÉ-Sysco a cessé d'acheter de la laitue iceberg en provenance du Mexique en raison de l'épidémie d**: [Link](https://www.boursorama.com/bourse/actualites/en-exclusivite-sysco-a-cesse-d-acheter-de-la-laitue-iceberg-en-provenance-du-mexique-en-raison-de-l-epidemie-de-cyclosporose-aux-etats-unis-a-declare-son-directeur-general-c20d383d912a0207d6ea31bd56ef180a)
+
+
+### كأس الأمم الإفريقية للسيدات (N/A, Wed, 5 Aug 2026 00:30:00 -0700)
+
+- **مالي تتفوق على الرأس الأخضر بثلاثية في مباراة مثيرة**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D9%84%D9%8A-%D8%AA%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B1%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D8%AE%D8%B6%D8%B1-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9/)
+- **الكاميرون تهزم غانا وتقترب من ربع نهائي كأس أمم إفريقيا للسيدات**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%AA%D9%87%D8%B2%D9%85-%D8%BA%D8%A7%D9%86%D8%A7-%D9%88%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6/)
+- **سيدات مالي ينعشن الآمال في "الكان"**: [Link](https://www.hesport.com/%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%85%D8%A7%D9%84%D9%8A-%D9%8A%D9%86%D8%B9%D8%B4%D9%86-%D8%A7%D9%84%D8%A2%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86-450034.html)
+
+
+### المهاجرون (N/A, Wed, 5 Aug 2026 00:20:00 -0700)
+
+- **يحيى: خطاب الكراهية والإسلاموفوبيا لا يصلح مع واقع سبتة ومليلية**: [Link](https://www.hespress.com/%D9%8A%D8%AD%D9%8A%D9%89-%D8%AE%D8%B7%D8%A7%D8%A8-%D8%A7%D9%84%D9%83%D8%B1%D8%A7%D9%87%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%88%D9%81%D9%88%D8%A8%D9%8A%D8%A7-%D9%84%D8%A7-1787716.html)
+- **رغم الترحيل.. مهاجرون يتمسكون بسبتة أملا في العبور إلى أوروبا**: [Link](https://www.aljazeera.net/politics/2026/8/4/%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%AA%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%88%D9%86-%D9%8A%D8%AA%D9%85%D8%B3%D9%83%D9%88%D9%86-%D8%A8%D8%B3%D8%A8%D8%AA%D8%A9)
+- **ارتفاع الوفيات جراء اندفاع المهاجرين من المغرب لسبتة إلى 72 شخصا**: [Link](https://www.alarabiya.net/north-africa/morocco/2026/08/03/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%88%D9%81%D9%8A%D8%A7%D8%AA-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%A7%D9%86%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%89-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%A7%D9%84%D9%89-72-%D8%B4%D8%AE%D8%B5%D8%A7)
+
+
+### جياني إنفانتينو (N/A, Wed, 5 Aug 2026 00:10:00 -0700)
+
+- **إنفانتينو يدعو قادة الفيفا لاجتماع أزمة عاجل في المغرب مع تصاعد المعارضة ضده**: [Link](https://www.bbc.com/arabic/articles/c5yr911yg7yo)
+- **الضغوط تحاصره.. قرار عاجل من إنفانتينو في المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B6%D8%BA%D9%88%D8%B7-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1%D9%87--%D9%82%D8%B1%D8%A7%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D9%86-%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt0681f5184bf0092d)
+- **معركة كروية قانونية.. يويفا يوجه خطاب حفظ أدلة للفيفا ويهدد مستقبل إنفانتينو**: [Link](https://www.aljazeera.net/sport/2026/8/4/%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D9%81%D9%8A%D9%81%D8%A7-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+
+
+### سفيان بنجديدة (N/A, Tue, 4 Aug 2026 22:30:00 -0700)
+
+- **المغرب الفاسي يكشف عن قميصه الجديد بشراكة مع نايك**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%82%D9%85%D9%8A%D8%B5%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8%D8%B4%D8%B1/)
+- **"الماص" يعوض بنجديدة بمهاجم جنوب إفريقي**: [Link](https://sport.rue20.com/%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%B9%D9%88%D8%B6-%D8%A8%D9%86%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82.html)
+- **بديل سفيان بنجديدة يصل المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AF%D9%8A%D9%84-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%86%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/bltc744e4380441cedb)
+
+
+### ismael saibari (N/A, Tue, 4 Aug 2026 21:50:00 -0700)
+
+- **Ismael Saibari gets started at Bayern**: [Link](https://fcbayern.com/en/news/2026/08/ismael-saibari-gets-started-at-fc-bayern)
+- **Bayern Munich Confirm Timeline for Ismael Saibari’s Return**: [Link](https://www.moroccoworldnews.com/2026/07/331802/bayern-munich-confirm-timeline-for-ismael-saibaris-return/)
+- **Update: Ismael Saibari to join the Bayern Munich squad after the Asia tour**: [Link](https://sports.yahoo.com/articles/ismael-saibari-join-bayern-munich-053000918.html)
+
+
 ### match maroc senegal can féminine (N/A, Tue, 4 Aug 2026 21:30:00 -0700)
 
 - **CAN Maroc-2026: Le Maroc en quart de finale**: [Link](https://frmf.ma/fr/articles/can-maroc-2026-le-maroc-en-quart-de-finale)
