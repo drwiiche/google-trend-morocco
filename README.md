@@ -1,3 +1,59 @@
+### تشيلسي ضد يوفنتوس (N/A, Wed, 5 Aug 2026 04:00:00 -0700)
+
+- **مواعيد مباريات اليوم.. مواجهات تصفيات أبطال أوروبا والبايرن مع جيجو يونايتد**: [Link](https://www.youm7.com/story/2026/8/4/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D8%B9-%D8%AC%D9%8A%D8%AC%D9%88/7501960)
+- **تجربة جديدة للأهلي وظهور مانشستر سيتي.. أبرز مباريات اليوم الأربعاء**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2026/8/5/3028364/%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%B8%D9%87%D9%88%D8%B1-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1)
+- **مواعيد مباريات اليوم.. قمة تشيلسي ويوفنتوس والسيتي مع نجوم الدوري الكوري**: [Link](https://sudanindependent.com/news/sports/2026/08/05/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%82%D9%85%D8%A9-%D8%AA%D8%B4%D9%8A)
+
+
+### ميلان ضد الإنتر (N/A, Wed, 5 Aug 2026 03:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ميلان وإنتر الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt3114d06f1152bde5)
+- **ماريسكا يخسر مباراته الأولى على رأس سيتي أمام انتر بركلات الترجيح**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260801-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%AE%D8%B3%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%B9%D9%84%D9%89-%D8%B1%D8%A3%D8%B3-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%86%D8%AA%D8%B1-%D8%A8%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD)
+- **صور | انطلاقة قوية للسيتي في فترة الإعداد للموسم الجديد**: [Link](https://ar.mancity.com/news/mens/inter-v-city-match-gallery-pre-season-friendly-63921196)
+
+
+### k league all-stars – manchester city (N/A, Wed, 5 Aug 2026 03:40:00 -0700)
+
+- **Every word Enzo Maresca said at Man City press conference - transfer latest and Blues change**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/enzo-maresca-press-conference-live-34400042)
+- **Manchester City vs K-League All Stars: TV channel, how to watch in UK, kick-off time, live stream, team news**: [Link](https://www.espn.in/football/story/_/id/49518750/manchester-city-vs-k-league-all-stars-tv-channel-how-watch-uk-kickoff-live-stream-team-news-pre-season-friendly-2026-27)
+- **Lee Dong-kyung, Phil Foden Set for Left-Footed Duel in Coupang Play Series**: [Link](https://www.chosun.com/english/sports-en/2026/08/05/DMEH3N4TRNHDFP7VJ3M4PZ3YNU/)
+
+
+### chelsea – juventus (N/A, Wed, 5 Aug 2026 03:40:00 -0700)
+
+- **Chelsea vs. Juventus, Friendly: Confirmed lineups; how to watch**: [Link](https://weaintgotnohistory.sbnation.com/friendlies/170766/chelsea-vs-juventus-friendly-confirmed-lineups-how-to-watch)
+- **Training gallery: Warm welcome in Hong Kong | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/training-gallery-warm-welcome-in-hong-kong)
+- **Why Palmer and Colwill are not playing for Chelsea against Juventus**: [Link](https://www.standard.co.uk/sport/football/chelsea-fc-why-palmer-colwill-are-not-playing-b1292433.html)
+
+
+### grand national du trot (N/A, Wed, 5 Aug 2026 03:40:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour mercredi 5 août 2026 - Grand National du Trot**: [Link](https://www.lalsace.fr/actualite/2026/08/04/les-pronostics-de-l-alsace-pour-mercredi-5-aout-2026-grand-national-du-trot)
+- **Les pronos hippiques du mercredi 5 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-5-aout-2026_AN-202608040279.html)
+- **8e étape du GNT**: [Link](https://www.pmu.fr/point-de-vente/cote-courses/8e-etape-du-gnt-2026-promo/)
+
+
+### milan vs inter (N/A, Wed, 5 Aug 2026 03:30:00 -0700)
+
+- **Dimarco explains meaning of pre-season derby and pays tribute to Baresi: “A different feel”**: [Link](https://sempremilan.com/dimarco-explains-meaning-derby-baresi-tribute)
+- **How to Watch AC Milan vs. Inter Milan on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-ac-milan-vs-inter-milan-tv-live-stream-8-5-26)
+- **AC Milan vs Internazionale – Prediction, Where to Watch, Kick-off Time and Lineups 05-08**: [Link](https://oddsscanner.com/predictions/football/ac-milan-x-internazionale-05-08-2026)
+
+
+### ac milan – inter (N/A, Wed, 5 Aug 2026 03:20:00 -0700)
+
+- **Milan-Inter, derby a Perth: dove vedere l'amichevole in streaming e in tv**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Inter/05-08-2026/milan-inter-a-perth-dove-vedere-il-derby-in-streaming-e-in-tv.shtml)
+- **Esordio Ramos, esame Diouf, poi Leao e i registi: cinque spunti che può darci Milan-Inter**: [Link](https://www.sportmediaset.mediaset.it/calcio/inter/esordio-ramos-esame-diouf-poi-leao-e-i-registi-cinque-spunti-che-puo-darci-milan-inter_115163735-202602k.shtml)
+- **Milan vs Inter - Pronostico, dove vederla, orario e formazioni 05-08-2026**: [Link](https://onefootball.com/it/scommesse/pronostici/milan-vs-inter-05-08-2026)
+
+
+### marokko (N/A, Wed, 5 Aug 2026 02:00:00 -0700)
+
+- **Immer noch Tausende Migranten in Ceuta: Jetzt bieten Schleuser Jetski-Fahrten ans Festland an**: [Link](https://www.bild.de/politik/ausland-und-internationales/immer-noch-tausende-migranten-in-ceuta-jetzt-bieten-schleuser-jetski-fahrten-ans-festland-an-6a70e7e0cc46967c04caddd2)
+- **Spanien fordert seine Verbündeten auf, Marokko nicht für die Ceuta-Krise verantwortlich zu machen**: [Link](https://euractiv.com/de/news/spanien-fordert-seine-verbundeten-auf-marokko-nicht-fur-die-ceuta-krise-verantwortlich-zu-machen/)
+- **„Ceuta zeigt, wie schnell falsche Signale zu neuer illegaler Migration führen“**: [Link](https://www.focusplus.de/politik/ceuta-zeigt-wie-schnell-falsche-signale-zu-neuer-illegaler-migration-fuehren-15981)
+
+
 ### qatar airways (N/A, Wed, 5 Aug 2026 02:20:00 -0700)
 
 - **Qatar Airways Reconnects Doha and Philadelphia with First Flight**: [Link](https://www.fananews.com/language/en/qatar-airways-reconnects-doha-and-philadelphia-with-first-flight/)
