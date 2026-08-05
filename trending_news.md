@@ -1,3 +1,59 @@
+### matchs amicaux (N/A, Wed, 5 Aug 2026 13:00:00 -0700)
+
+- **21 mois après, Mudryk a rejoué - Angleterre - Chelsea**: [Link](https://www.sofoot.com/breves/21-mois-apres-mudryk-a-rejoue-avec-chelsea)
+- **Après 615 jours sans jouer le moindre match, Mikhaïlo Moudrik a rejoué avec Chelsea contre la Juventus**: [Link](https://www.lequipe.fr/Football/Actualites/Apres-615-jours-sans-jouer-le-moindre-match-mikhailo-moudrik-a-rejoue-avec-chelsea-contre-la-juventus/1709113)
+- **Après le scandale de dopage, Xabi Alonso accroît le flou autour de l'avenir de la star de Chelsea**: [Link](https://www.goal.com/fr/news/apres-le-scandale-de-dopage-xabi-alonso-accroit-le-flou-autour-de-l-avenir-de-la-star-de-chelsea/bltc1b3398582c03f77)
+
+
+### حكيم زياش (N/A, Wed, 5 Aug 2026 12:50:00 -0700)
+
+- **في واقعة لافتة.. زياش يغادر تداريب الوداد و"سيت أنفو" يكشف السبب**: [Link](https://sport.lesiteinfo.com/elbotola/500875.html)
+- **قلة العروض تبقي زياش في الوداد**: [Link](https://aljarida24.ma/p/actualites/353808/)
+- **زياش يبدي استعداده لقضاء موسم آخر داخل الوداد الرياضي**: [Link](https://www.sport7.ma/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%A8%D8%AF%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%87-%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D9%85%D9%88%D8%B3%D9%85-%D8%A2%D8%AE%D8%B1-%D8%AF%D8%A7%D8%AE%D9%84/)
+
+
+### مايوركا ضد بي اس جي (N/A, Wed, 5 Aug 2026 12:10:00 -0700)
+
+- **القنوات الناقلة لمباراة باريس سان جيرمان ضد مايوركا الودية استعدادًا للموسم الجديد**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B6%D8%AF-%D9%85%D8%A7/)
+- **المباريات المقبلة لباريس سان جرمان: برنامج أغسطس 2026 والقناة الناقلة**: [Link](https://www.sortiraparis.com/ar/altarfihi/alriyada-walrafaahiya/articles/271020-mbaryat-barys-san-jrman-alqadmt-brnamj-aghsts-2026-wqnwat-altlfzywn)
+- **موعد مباراة مانشستر يونايتد وباريس سان جيرمان الودية 2026**: [Link](https://www.elbalad.news/7061690)
+
+
+### mallorca vs psg (N/A, Wed, 5 Aug 2026 12:10:00 -0700)
+
+- **𝚆𝙰𝚃𝙲𝙷 PSG vs. Mallorca 𝐋𝐈𝐕𝐄 Ｓｔｒｅａｍ Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ!PRE-SEASON™**: [Link](https://www.jacksoncountypilot.com/articles/%F0%9D%9A%86%F0%9D%99%B0%F0%9D%9A%83%F0%9D%99%B2%F0%9D%99%B7-psg-vs-mallorca-%F0%9D%90%8B%F0%9D%90%88%F0%9D%90%95%F0%9D%90%84-%EF%BD%93%EF%BD%94%EF%BD%92%EF%BD%85%EF%BD%81%EF%BD%8D-%EF%BD%86%EF%BD%92/)
+- **The key numbers: Mallorca-Paris**: [Link](https://www.psg.fr/en/content/key-numbers-rcd-mallorca-paris-saint-germain-friendly-2026-2027/)
+- **Mallorca vs Paris Saint-Germain: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cj4kwln5r09t)
+
+
+### راسينغ سانتاندير (N/A, Wed, 5 Aug 2026 12:10:00 -0700)
+
+- **الزبيري يحدد هدفه مع راسينغ سانتاندير: "أريد تسجيل 10 أهداف"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%87%D8%AF%D9%81%D9%87-%D9%85%D8%B9-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-%D8%A3%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-10-%D8%A3%D9%87%D8%AF%D8%A7%D9%81/23818)
+- **الزابيري : هدفي الأول في الليغا هو تسجيل 10 أهداف**: [Link](https://ar.sport.le360.ma/football/74GH77SKCVEWFNND25UEKW2XRI/)
+- **الزبيري: أسلوب لعب راسينغ سانتاندير أقنعني وأطمح لتسجيل الأهداف**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D8%A3%D8%B3%D9%84%D9%88%D8%A8-%D9%84%D8%B9%D8%A8-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-%D8%A3%D9%82-450355.html)
+
+
+### منتخب الغابون لكرة القدم (N/A, Wed, 5 Aug 2026 11:50:00 -0700)
+
+- **صدمة في المغرب.. وهبي يقرر الإطاحة بـ6 نجوم دفعة واحدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D9%806-%D9%86%D8%AC%D9%88%D9%85-%D8%AF%D9%81%D8%B9%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9/blta2ef909be8dda752)
+- **وهبي يبحث عن خليفة حكيمي**: [Link](https://assabah.ma/941562.html)
+- **بعد فشل مباراة المكسيك.. منتخب محمد وهبي يقترب من مواجهة منتخب عالمي**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/500833.html)
+
+
+### almountakhab (N/A, Wed, 5 Aug 2026 11:50:00 -0700)
+
+- **بعد ثلاثية تاريخية مع أورلاندو بايرتس.. وادو ينتقد واقع المدربين في فرنسا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A3%D9%88%D8%B1%D9%84%D8%A7%D9%86%D8%AF%D9%88-%D8%A8%D8%A7%D9%8A%D8%B1%D8%AA%D8%B3-%D9%88%D8%A7%D8%AF%D9%88-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D9%88%D8%A7%D9%82%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/23791)
+- **عبد السلام وادو: منعوني من العمل.. فنجحت في إفريقيا**: [Link](https://inews.ma/news/8563739)
+- **عبد السلام وادو.. رحلة قائد لم تتوقف عند حدود المستطيل الأخضر**: [Link](https://snrtnews.com/article/156124)
+
+
+### عطلة (N/A, Wed, 5 Aug 2026 11:00:00 -0700)
+
+- **شواطئ الحسيمة تستقبل المصطافين وسط مياه نقية وطبيعة ساحلية خلابة**: [Link](https://maadialna.ma/ar/shwaty-alhsymt-tstqbl-almstafyn-wst-myah-nqyt-wtbyt-sahlyt-khlabt)
+- **الازدحام المروري ينغص عطلة الصيف على زوار و ساكنة المنصورية**: [Link](https://a5r5br.net/morocco/local-news/7971117-%D8%A7%D9%84%D8%A7%D8%B2%D8%AF%D8%AD%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%B1%D9%88%D8%B1%D9%8A-%D9%8A%D9%86%D8%BA%D8%B5-%D8%B9%D8%B7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D9%81-%D8%B9%D9%84%D9%89-%D8%B2%D9%88%D8%A7%D8%B1-%D9%88-%D8%B3%D8%A7%D9%83%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A%D8%A9)
+- **شمال المغرب يدعم مكانته كوجهة سياحية مع ارتفاع عدد الوافدين..**: [Link](https://expresstv.ma/en-vedette/142620/)
+
+
 ### ياسر زبيري (N/A, Wed, 5 Aug 2026 11:30:00 -0700)
 
 - **الزبيري يحدد هدفه مع راسينغ سانتاندير: "أريد تسجيل 10 أهداف"**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%87%D8%AF%D9%81%D9%87-%D9%85%D8%B9-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-%D8%A3%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-10-%D8%A3%D9%87%D8%AF%D8%A7%D9%81/23818)
