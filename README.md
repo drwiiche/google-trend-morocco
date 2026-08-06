@@ -1,3 +1,17 @@
+### ismael saibari (N/A, Thu, 6 Aug 2026 05:00:00 -0700)
+
+- **Cruel blow for Morocco as star Ismael Saibari is ruled out of France showdown**: [Link](https://sundaytribune.co.za/2026-07-09-cruel-blow-for-morocco-as-star-ismael-saibari-is-ruled-out-of-france-showdown/)
+- **Cruel blow for Morocco as star Ismael Saibari is ruled out of France showdown**: [Link](https://iol.co.za/2026-07-09-cruel-blow-for-morocco-as-star-ismael-saibari-is-ruled-out-of-france-showdown/)
+- **Who Will Replace Hakimi and Saibari in Upcoming 2027 AFCON Qualifiers?**: [Link](https://www.moroccoworldnews.com/2026/08/333238/who-will-replace-hakimi-and-saibari-in-the-2027-afcon-qualifiers/)
+
+
+### هشام هنيدي (N/A, Thu, 6 Aug 2026 04:50:00 -0700)
+
+- **الجواهرجى يعيد دويتو محمد هنيدى ولبلبة بعد 20 عاما من وش إجرام - النيلين**: [Link](https://www.alnilin.com/13481262.htm)
+- **الموت يفجع الفنان المصري محمد هنيدي**: [Link](https://ihata.ma/%D9%81%D9%86%D9%8A%D8%A9/wafat-shaqiq-mohamed-henedy/)
+- **محمد هنيدى يطالب بعدم تغطية جنازة شقيقه واليوم السابع يؤكد احترام رغبته**: [Link](https://a5r5br.net/egypt/local-news/7969652-%D9%85%D8%AD%D9%85%D8%AF-%D9%87%D9%86%D9%8A%D8%AF%D9%89-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%B9%D8%AF%D9%85-%D8%AA%D8%BA%D8%B7%D9%8A%D8%A9-%D8%AC%D9%86%D8%A7%D8%B2%D8%A9-%D8%B4%D9%82%D9%8A%D9%82%D9%87-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D8%B9-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85-%D8%B1%D8%BA%D8%A8%D8%AA%D9%87)
+
+
 ### éclipse solaire totale (N/A, Thu, 6 Aug 2026 04:10:00 -0700)
 
 - **Cinq choses à savoir sur les éclipses solaires - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/agence-presse/cinq-choses-a-savoir-sur-les-eclipses-solaires/)
