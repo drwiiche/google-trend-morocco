@@ -1,3 +1,31 @@
+### éclipse solaire totale (N/A, Thu, 6 Aug 2026 04:10:00 -0700)
+
+- **Cinq choses à savoir sur les éclipses solaires - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/agence-presse/cinq-choses-a-savoir-sur-les-eclipses-solaires/)
+- **Comment regarder l’éclipse solaire du 12 août sans danger pour les yeux**: [Link](https://www.lemonde.fr/sciences/article/2026/08/05/comment-regarder-l-eclipse-sans-danger-pour-la-vue_6739357_1650684.html)
+- **Eclipse solaire partielle au Maroc et en Espagne le 12 août**: [Link](https://fr.hespress.com/484131-eclipse-solaire-partielle-au-maroc-et-en-espagne-le-12-aout.html)
+
+
+### samuel eto'o (N/A, Thu, 6 Aug 2026 02:30:00 -0700)
+
+- **Qui peut arrêter Samuel Eto’o devant les tribunaux sportifs ?**: [Link](https://actucameroun.com/2026/08/06/qui-peut-arreter-samuel-etoo-devant-les-tribunaux-sportifs/)
+- **Après la contestation de l'arbitrage face au Maroc : la CAF annule ses sanctions contre Eto'o**: [Link](https://www.goal.com/fr/news/apres-la-contestation-de-l-arbitrage-face-au-maroc-la-caf-annule-ses-sanctions-contre-eto-o/blt3598838b0b512029)
+- **Samuel Eto’o blanchi par la CAF !**: [Link](https://www.afrik-foot.com/samuel-etoo-blanchi-par-la-caf)
+
+
+### rodri (N/A, Thu, 6 Aug 2026 02:00:00 -0700)
+
+- **Bombazo: ¡El fichaje de Rodri por el Madrid, casi roto!**: [Link](https://www.sport.es/es/noticias/real-madrid/bombazo-fichaje-rodri-madrid-roto-133133560)
+- **El Barça no entra en la puja por Rodri**: [Link](https://www.marca.com/futbol/barcelona/2026/08/05/barca-entra-puja-rodri.html)
+- **The Athletic: el Barça explora el fichaje de Rodri**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260806/1004213638/the-athletic-barca-explora-fichaje-rodri.html)
+
+
+### el niño (N/A, Thu, 6 Aug 2026 01:00:00 -0700)
+
+- **Intensificación de un fuerte episodio de El Niño en un contexto de temperaturas superiores a lo normal y cambios drásticos en las pautas de precipitación en gran parte del planeta**: [Link](https://wmo.int/es/media/news/intensificacion-de-un-fuerte-episodio-de-el-nino-en-un-contexto-de-temperaturas-superiores-lo-normal)
+- **Los graves efectos que los científicos temen en América Latina por el fenómeno del 'Súper El Niño'**: [Link](https://acento.com.do/bbc-news-mundo/los-graves-efectos-que-los-cientificos-temen-en-america-latina-por-el-fenomeno-del-super-el-nino-9732307.html)
+- **No es el año más caluroso de la historia, pero científicos prevén que El Niño suba más el termómetro**: [Link](https://www.dallasnews.com/espanol/al-dia/noticias/article/cient-ficos-preven-que-suba-m-s-la-temperatura-22376169.php)
+
+
 ### sahara occidental (N/A, Thu, 6 Aug 2026 02:20:00 -0700)
 
 - **Sahara occidental : une autoroute rebaptisée Trump par Mohammed VI**: [Link](https://www.france24.com/fr/afrique/20260803-sahara-occidental-autoroute-rebaptisee-trump-mohammed-vi-maroc-tiznit-dakhla)
