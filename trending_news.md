@@ -1,3 +1,42 @@
+### sahara occidental (N/A, Thu, 6 Aug 2026 02:20:00 -0700)
+
+- **Sahara occidental : une autoroute rebaptisée Trump par Mohammed VI**: [Link](https://www.france24.com/fr/afrique/20260803-sahara-occidental-autoroute-rebaptisee-trump-mohammed-vi-maroc-tiznit-dakhla)
+- **"Donald J. Trump Highway" : la lettre du Roi révèle les raisons de ce choix**: [Link](https://medias24.com/2026/08/02/donald-j-trump-highway-la-lettre-du-roi-revele-les-raisons-de-ce-choix-1735415/)
+- **Trump à Mohammed VI : le statu quo au Sahara est « inacceptable »**: [Link](https://ledesk.ma/2026/08/01/trump-a-mohammed-vi-le-statu-quo-au-sahara-est-inacceptable/)
+
+
+### yassine bounou (N/A, Thu, 6 Aug 2026 01:20:00 -0700)
+
+
+
+
+### police (N/A, Thu, 6 Aug 2026 01:20:00 -0700)
+
+- **As Europe Migration Debate Rages, Bologna Businessman's Death Highlights Human Cost**: [Link](https://www.usnews.com/news/world/articles/2026-08-04/as-europe-migration-debate-rages-bologna-businessmans-death-highlights-human-cost)
+- **Abderrahim Fakir case: Police bodycam to undergo forensic examination on August 10**: [Link](https://en.yabiladi.com/articles/details/200161/abderrahim-fakir-case-police-bodycam.html)
+- **Family fear politics will prevent justice in Bologna police death**: [Link](https://hyphenonline.com/2026/08/03/abderrahim-fakir-death-protest-justice-investigation-police-bologna-italy/)
+
+
+### mojtaba khamenei (N/A, Wed, 5 Aug 2026 23:30:00 -0700)
+
+- **Iran president says contact with supreme leader is 'very difficult'**: [Link](https://www.france24.com/en/middle-east/20260805-iran-president-says-contact-with-supreme-leader-is-very-difficult)
+- **Amid Reports Of Rift, Iran's President's Big Claim On Mojtaba Khamenei**: [Link](https://www.ndtv.com/world-news/contact-hard-but-irans-president-masoud-pezeshkian-on-supreme-leader-mojtaba-khameneis-role-in-war-11872250)
+- **Iran’s president: ‘Very difficult’ to communicate with the Supreme Leader**: [Link](https://www.newsnationnow.com/world/us-iran-war-strait-of-hormuz-peace-trump/)
+
+
+### bouznika (N/A, Wed, 5 Aug 2026 23:20:00 -0700)
+
+- **Bouznika : les cabanons face à la mer, dernier été avant le grand chantier émirati**: [Link](https://ledesk.ma/2026/08/04/bouznika-les-cabanons-face-a-la-mer-dernier-ete-avant-le-grand-chantier-emirati/)
+- **Bouznika: en prévision d’un projet touristique émirati, le domaine public maritime récupéré**: [Link](https://fr.le360.ma/societe/bouznika-en-prevision-dun-projet-touristique-emirati-le-domaine-public-maritime-recupere_Y3M5SGF33JFQFGHMVWFMFNSG74/)
+
+
+### الاتحاد الدولي لكرة القدم (N/A, Wed, 5 Aug 2026 22:00:00 -0700)
+
+- **"خطر على مستقبل اللعبة".. فيغو يشن هجوما ناريا على إنفانتينو ويطالب بإقالته**: [Link](https://www.aljazeera.net/sport/2026/8/5/%D9%81%D9%8A%D8%BA%D9%88-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A%D9%81%D8%A7)
+- **شبح "فيفا جيت" يعود.. حرب الآثار الرقمية تمهد للإطاحة بإنفانتينو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B4%D8%A8%D8%AD-%D9%81%D9%8A%D9%81%D8%A7-%D8%AC%D9%8A%D8%AA-%D9%8A%D8%B9%D9%88%D8%AF--%D8%AD%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D9%93%D8%AB%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D8%AA%D9%85%D9%87%D8%AF-%D9%84%D9%84%D8%A7%D9%95%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88/blt3b7e22e62f800d86)
+- **هل كتب إنفانتينو الفصل الأخير من رئاسته للفيفا؟**: [Link](https://www.alquds.co.uk/%D9%87%D9%84-%D9%83%D8%AA%D8%A8-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%A7%D9%84%D9%81%D8%B5%D9%84-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1-%D9%85%D9%86-%D8%B1%D8%A6%D8%A7%D8%B3%D8%AA/)
+
+
 ### كأس الأمم الإفريقية (N/A, Wed, 5 Aug 2026 22:40:00 -0700)
 
 - **مالاوي تتأهل إلى ربع النهائي رغم الخسارة أمام زامبيا**: [Link](https://radiomars.ma/%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D8%AA%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%B1%D8%BA%D9%85-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7/)
