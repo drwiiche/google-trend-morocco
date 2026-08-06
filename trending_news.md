@@ -1,3 +1,24 @@
+### كووورة (N/A, Thu, 6 Aug 2026 07:40:00 -0700)
+
+- **بعد خسارة حقوق الليجا.. بي إن سبورتس ترد ببيان شديد اللهجة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7--%D8%A8%D9%8A-%D8%A7%D9%95%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%B1%D8%AF-%D8%A8%D8%A8%D9%8A%D8%A7%D9%86-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%87%D8%AC%D8%A9/blte57c8214fb1939cb)
+- **تصعيد غريب.. تحرك رسمي في البرلمان الإسباني لاستبعاد المغرب من تنظيم مونديال 2030**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%BA%D8%B1%D9%8A%D8%A8--%D8%AA%D8%AD%D8%B1%D9%83-%D8%B1%D8%B3%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%84%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030/bltc766b38054f43204)
+- **"فيفا" تكذب وعود إنفانتينو للمغرب**: [Link](https://www.hespress.com/%D9%81%D9%8A%D9%81%D8%A7-%D8%AA%D9%83%D8%B0%D8%A8-%D9%88%D8%B9%D9%88%D8%AF-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1788010.html)
+
+
+### mohammed vi (N/A, Thu, 6 Aug 2026 07:10:00 -0700)
+
+- **Fact-checking. Satellites Mohammed VI : ce que les données orbitales disent… et ne disent pas sur la crise de Sebta**: [Link](https://medias24.com/2026/08/06/fact-checking-satellites-mohammed-vi-ce-que-les-donnees-orbitales-disent-et-ne-disent-pas-sur-la-crise-de-sebta-1736561/)
+- **Non, les satellites marocains n’ont pas été « placés » au-dessus de Ceuta**: [Link](https://ledesk.ma/desintox/non-les-satellites-marocains-nont-pas-ete-places-au-dessus-de-ceuta/)
+- **Quatre avions de transport militaire marocains se sont posés à Tétouan, à quarante kilomètres de Ceuta**: [Link](https://barlamane.com/fr/quatre-avions-de-transport-militaire-marocains-se-sont-poses-a-tetouan-a-quarante-kilometres-de-ceuta/)
+
+
+### موريتانيا (N/A, Thu, 6 Aug 2026 07:10:00 -0700)
+
+- **موريتانيا تراهن على الهيدروجين الأخضر في التحول إلى مركز إقليمي للطاقة والصناعة منخفضة الكربون**: [Link](https://www.alquds.co.uk/%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%8A%D8%AF%D8%B1%D9%88%D8%AC%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D8%AE%D8%B6/)
+- **اتهموا بالإرهاب..موريتانيا تتحرك للإفراج عن مواطنيها في مالي**: [Link](https://www.skynewsarabia.com/middle-east/1884532-%D8%A7%D8%AA%D9%87%D9%85%D9%88%D8%A7-%D8%A8%D8%A7%D9%84%D8%A5%D8%B1%D9%87%D8%A7%D8%A8-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D9%84%D8%A5%D9%81%D8%B1%D8%A7%D8%AC-%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A%D9%87%D8%A7-%D9%85%D8%A7%D9%84%D9%8A)
+- **الحكومة: نتابع ملف المواطنيين الموقوفين مع السلطات المالية**: [Link](https://www.alakhbar.info/6a73b38d18704200017fca63/)
+
+
 ### ismael saibari (N/A, Thu, 6 Aug 2026 05:00:00 -0700)
 
 - **Cruel blow for Morocco as star Ismael Saibari is ruled out of France showdown**: [Link](https://sundaytribune.co.za/2026-07-09-cruel-blow-for-morocco-as-star-ismael-saibari-is-ruled-out-of-france-showdown/)
