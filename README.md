@@ -1,3 +1,17 @@
+### إنتر ميامي ضد سان لويس (N/A, Wed, 5 Aug 2026 17:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي وأتلتيكو سان لويس في كأس الدوريات 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%B3%D8%A7%D9%86-%D9%84%D9%88%D9%8A%D8%B3-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb08bc1c917e76a70)
+- **موعد مباراة إنتر ميامي وسانت لويس في الدوري الأمريكي 2026 والقنوات الناقلة**: [Link](https://al-ain.com/article/how-to-watch-inter-miami-vs-saunt-luis-mls-2026)
+- **انتر ميامي ضد سان لويس: نتائج مباشرة، تشكيلات ومواجهات سابقة**: [Link](https://www.365scores.com/ar/football/match/north-america-leagues-cup-7242/atletico-san-luis-inter-miami-54729-1260-7242)
+
+
+### inter miami (N/A, Wed, 5 Aug 2026 17:00:00 -0700)
+
+- **WATCH: Lionel Messi scores first Inter Miami goal since returning from Argentina's 2026 World Cup run**: [Link](https://www.goal.com/en-in/lists/watch-lionel-messi-scores-first-inter-miami-goal-since-returning-from-argentina-s-2026-world-cup-run/blt9ecd5414fd25f9a7)
+- **MLS: Leagues Cup Phase One-Club Atletico de San Luis at Inter Miami FC**: [Link](https://lufkindailynews.com/news_reuters/sports/mls-leagues-cup-phase-one-club-atletico-de-san-luis-at-inter-miami-fc/image_4757431f-7b33-5468-a440-e0aa57c6b724.html)
+- **San Luis Inter Miami Leagues Cup Soccer**: [Link](https://www.couriernews.com/sports/san-luis-inter-miami-leagues-cup-soccer/image_82973777-b82e-5556-b5f7-41256d07ed2a.html)
+
+
 ### inter miami vs san luis (N/A, Wed, 5 Aug 2026 16:50:00 -0700)
 
 - **BetMGM bonus code POSTBET: Get up to $1,500 in bonuses for Inter Miami vs. Atlético de San Luis**: [Link](https://nypost.com/2026/08/05/betting/betmgm-bonus-code-postbet-get-up-to-1500-in-bonuses-for-inter-miami-vs-atletico-de-san-luis/)
