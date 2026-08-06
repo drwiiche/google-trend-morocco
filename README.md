@@ -1,3 +1,10 @@
+### inter miami vs san luis (N/A, Wed, 5 Aug 2026 16:50:00 -0700)
+
+- **BetMGM bonus code POSTBET: Get up to $1,500 in bonuses for Inter Miami vs. Atlético de San Luis**: [Link](https://nypost.com/2026/08/05/betting/betmgm-bonus-code-postbet-get-up-to-1500-in-bonuses-for-inter-miami-vs-atletico-de-san-luis/)
+- **Inside Inter Miami: Messi is back. Will the team win Leagues Cup without Suarez?**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article316773464.html)
+- **San Luis Inter Miami Leagues Cup Soccer**: [Link](https://www.couriernews.com/sports/san-luis-inter-miami-leagues-cup-soccer/image_8a5a3668-080d-546c-a0ec-755bb32e633c.html)
+
+
 ### inter miami – san luis (N/A, Wed, 5 Aug 2026 16:00:00 -0700)
 
 - **Inter Miami vs Monterrey: Pronóstico, Picks, Momios y Alineaciones**: [Link](https://www.squawka.com/us-es/news/leagues-cup/inter-miami-vs-monterrey-pronostico-leagues-cup-08-08-26/)
