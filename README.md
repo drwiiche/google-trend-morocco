@@ -1,3 +1,45 @@
+### كأس الأمم الإفريقية للسيدات (N/A, Fri, 7 Aug 2026 10:00:00 -0700)
+
+- **لبؤات الأطلس أمام "تذكرة مونديالية"**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D8%B0%D9%83%D8%B1%D8%A9-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A%D8%A9-1788605.html)
+- **اكتمال عقد ربع النهائي كأس إفريقيا للسيدات**: [Link](https://madar21.com/445263.html)
+- **فيلدا: درسنا جنوب إفريقيا ونسعى لبلوغ نصف نهائي كأس إفريقيا**: [Link](https://assabah.ma/942701.html)
+
+
+### نادي المغرب الفاسي (N/A, Fri, 7 Aug 2026 09:20:00 -0700)
+
+- **“الماص” يضم هداف أبي الجعد**: [Link](https://assabah.ma/942413.html)
+- **المغرب الفاسي يعلن رسميا ضمه لعبد الله خفيفي بعقد يمتد لموسمين**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B6%D9%85%D9%87-%D9%84%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87/)
+- **الماص يعزز خطه الأمامي بالتعاقد مع الدولي الكونغولي إيبايي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AE%D8%B7%D9%87-%D8%A7%D9%84%D8%A3%D9%85%D8%A7%D9%85%D9%8A-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D9%88%D9%84%D9%8A-%D8%A5%D9%8A%D8%A8%D8%A7%D9%8A%D9%8A/23883)
+
+
+### محمود حميدة (N/A, Fri, 7 Aug 2026 09:20:00 -0700)
+
+- **محمود حميدة يقدم رقصة عمرها 32 عاماً في زفاف ابنته**: [Link](https://www.alarabiya.net/social-media/2026/08/07/%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D8%AD%D9%85%D9%8A%D8%AF%D8%A9-%D9%8A%D9%82%D8%AF%D9%85-%D8%B1%D9%82%D8%B5%D8%A9-%D8%B9%D9%85%D8%B1%D9%87%D8%A7-32-%D8%B9%D8%A7%D9%85%D8%A7-%D9%81%D9%8A-%D8%B2%D9%81%D8%A7%D9%81-%D8%A7%D8%A8%D9%86%D8%AA%D9%87)
+- **محمود حميدة يرقص مع ابنته على أغنية «ولا يا ولا» في حفل زفافها**: [Link](https://al-ain.com/article/mahmoud-hemida-dances-daughter-wedding)
+- **محمود حميدة يرقص مع ابنته أمنية في حفل زفافها ويستعيد ذكريات "حرب الفراولة"**: [Link](https://www.hiamag.com/%D8%AA%D8%B1%D9%81%D9%8A%D9%87-%D9%88%D9%81%D9%86%D9%88%D9%86/%D8%AA%D8%B1%D9%81%D9%8A%D9%87/1802214-%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D8%AD%D9%85%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B1%D9%82%D8%B5-%D9%85%D8%B9-%D8%A7%D8%A8%D9%86%D8%AA%D9%87-%D8%A3%D9%85%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81%D9%87%D8%A7-%D9%88%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AD%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D9%88%D9%84%D8%A9)
+
+
+### real madrid rodri (N/A, Fri, 7 Aug 2026 09:20:00 -0700)
+
+- **Negociación abierta por Rodri**: [Link](https://www.marca.com/futbol/barcelona/2026/08/07/negociacion-abierta-rodri.html)
+- **Enfado monumental de Florentino y cabreo mayúsculo de Mourinho con la pérdida de Rodri**: [Link](https://www.elperiodico.com/es/deportes/20260807/enfado-monumental-florentino-cabreo-mayusculo-mourinho-real-madrid-133166643)
+- **El giro de guion de Rodri: de la gran oferta del Madrid a elegir al Barça**: [Link](https://elpais.com/deportes/2026-08-07/el-giro-de-guion-de-rodri-de-la-gran-oferta-del-madrid-a-elegir-al-barca.html)
+
+
+### 2030 (N/A, Fri, 7 Aug 2026 08:00:00 -0700)
+
+- **Infantino Offers Morocco 2030 World Cup Final In Exchange For Support, Report Says**: [Link](https://www.forbes.com/sites/antoniopequenoiv/2026/08/05/infantino-offers-morocco-2030-world-cup-final-in-exchange-for-support-report-says/)
+- **Spain's sports minister says country 'deserves' to host 2030 World Cup final, not Morocco**: [Link](https://www.espn.com/soccer/story/_/id/49543435/spain-sports-minister-says-country-deserves-host-2030-world-cup-final-not-morocco)
+- **FIFA claims Infantino has some board support amid calls for his resignation, denies report that he promised Morocco World Cup final in exchange for re-election support**: [Link](https://sports.yahoo.com/soccer/breaking-news/article/fifa-claims-infantino-has-some-board-support-amid-calls-for-his-resignation-denies-report-that-he-promised-morocco-world-cup-final-in-exchange-for-re-election-support-172424083.html)
+
+
+### luca zidane (N/A, Fri, 7 Aug 2026 07:20:00 -0700)
+
+- **A final step separates Luka Zidane from a Madrid club**: [Link](https://www.goal.com/en-za/news/a-final-step-separates-luka-zidane-from-a-madrid-club/blt761c568466cd76d9)
+- **Algeria goalkeeper Luca Zidane closes in on Leganés move from Granada**: [Link](https://africasoccer.com/luca-zidane-leganes-transfer-granada-algeria-goalkeeper/)
+- **A final step separates Luca Zidane from a Madrid club**: [Link](https://www.goal.com/en/news/a-final-step-separates-luka-zidane-from-a-madrid-club/blt761c568466cd76d9)
+
+
 ### trump (N/A, Fri, 7 Aug 2026 08:40:00 -0700)
 
 - **US appeals court halts Trump ballroom project paving way for Supreme Court appeal**: [Link](https://www.bbc.com/news/articles/cwyq80jqqleo)
