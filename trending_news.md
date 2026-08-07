@@ -1,3 +1,31 @@
+### المهاجرون (N/A, Fri, 7 Aug 2026 13:50:00 -0700)
+
+- **مخدرات للجزائر ومهاجرون لإسبانيا.. سقوط شبكة تهريب كبرى**: [Link](https://www.skynewsarabia.com/world/1884947-%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%88%D9%86-%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B3%D9%82%D9%88%D8%B7-%D8%B4%D8%A8%D9%83%D8%A9-%D8%AA%D9%87%D8%B1%D9%8A%D8%A8-%D9%83%D8%A8%D8%B1%D9%89)
+- **إسبانيا تعلن تفكيك شبكة كبرى لتهريب البشر في البحر المتوسط**: [Link](https://www.alarabiya.net/arab-and-world/2026/08/07/%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D8%AA%D9%81%D9%83%D9%8A%D9%83-%D8%B4%D8%A8%D9%83%D8%A9-%D9%83%D8%A8%D8%B1%D9%89-%D9%84%D8%AA%D9%87%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%B3%D8%B7)
+- **تفكيك أكبر شبكات تهريب المهاجرين على الطريق البحري بين إسبانيا والجزائر وتوقيف 78 شخصا**: [Link](https://www.alquds.co.uk/%D8%AA%D9%81%D9%83%D9%8A%D9%83-%D8%A3%D9%83%D8%A8%D8%B1-%D8%B4%D8%A8%D9%83%D8%A7%D8%AA-%D8%AA%D9%87%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7/)
+
+
+### فيورنتينا (N/A, Fri, 7 Aug 2026 13:20:00 -0700)
+
+- **رسميا.. نجم ريال مدريد ينتقل إلى الدوري الإيطالي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D9%86%D8%AC%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D8%AA%D9%82%D9%84-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A/bltc8ea14d4b55eda5d)
+- **ماستانتونو إلى فيورنتينا على سبيل الإعارة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%B3%D9%8A%D8%B1%D9%8A-%D8%A2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D8%B3%D8%AA%D8%A7%D9%86%D8%AA%D9%88%D9%86%D9%88-%D8%A5%D9%84%D9%89-%D9%81%D9%8A%D9%88%D8%B1%D9%86%D8%AA%D9%8A%D9%86%D8%A7-%D8%B9%D9%84%D9%89-%D8%B3%D8%A8%D9%8A%D9%84-%D8%A7%D9%84%D8%A5%D8%B9%D8%A7%D8%B1%D8%A9-2026-08-07)
+- **فيورنتينا يتعاقد مع فرانكو ماستنتونو على سبيل الإعارة**: [Link](https://radiomars.ma/%D9%81%D9%8A%D9%88%D8%B1%D9%86%D8%AA%D9%8A%D9%86%D8%A7-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%81%D8%B1%D8%A7%D9%86%D9%83%D9%88-%D9%85%D8%A7%D8%B3%D8%AA%D9%86%D8%AA%D9%88%D9%86%D9%88/)
+
+
+### barrage (N/A, Fri, 7 Aug 2026 13:20:00 -0700)
+
+- **Barrages au Maroc : les chiffres de l’été révèlent un changement majeur**: [Link](https://maroc-diplomatique.net/barrages-au-maroc-les-chiffres-de-lete-revelent-un-changement-majeur/)
+- **La sécheresse devient une caractéristique durable du climat (Experte)**: [Link](https://lematin.ma/nation/la-secheresse-devient-une-caracteristique-durable-du-climat-experte/359986)
+- **Alexis Jacques, permaculteur: sécheresse, crues, exode rural, son plaidoyer pour une «armée verte» au Maroc**: [Link](https://fr.le360.ma/societe/alexis-jacques-permaculteur-secheresse-crues-exode-rural-son-plaidoyer-pour-une-armee-verte-au-maroc_OEB76FF7WJF75J2MDKLSZT2XGY/)
+
+
+### zeturf pronostics (N/A, Fri, 7 Aug 2026 11:40:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 6 Jockey**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-6-jockey-130263.html)
+- **Les pronos hippiques du vendredi 7 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-7-aout-2026_AN-202608060422.html)
+- **Jockey, la base solide du Quinté+ de ce vendredi 7 août**: [Link](https://www.equidia.fr/articles/actualite/jockey-la-base-solide-du-quinte-de-ce-vendredi-7-aout)
+
+
 ### meteo di domani (N/A, Fri, 7 Aug 2026 13:00:00 -0700)
 
 - **Meteo, le previsioni per i prossimi giorni: l'anticiclone aumenta, i temporali scendono in pianura con grandine**: [Link](https://www.ilmattino.it/schede/meteo_previsioni_prossimi_giorni_anticiclone_aumenta_temporali_scendono_pianura_grandine-9694554.html)
