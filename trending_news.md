@@ -1,3 +1,17 @@
+### وزارة التربية الوطنية (N/A, Fri, 7 Aug 2026 14:20:00 -0700)
+
+- **شكاية ضد قيادي في حزب "فوكس" بالمحكمة العليا بسبب الدعوة إلى "مطاردة" المهاجرين في سبتة**: [Link](https://ar.telquel.ma/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3/)
+- **وزارة التربية الوطنية تعلن عن مواعيد الدخول المدرسي المقبل**: [Link](https://2m.ma/ar/news/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84-20260807)
+- **وزارة التربية الوطنية تعلن عن مواعيد الدخول المدرسي المقبل**: [Link](https://radiotetouan.ma/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7/%D9%85%D8%AE%D8%AA%D8%A7%D8%B1%D8%A7%D8%AA/)
+
+
+### voortvluchtige (N/A, Fri, 7 Aug 2026 13:30:00 -0700)
+
+- **Voortvluchtige Nederlander opgepakt in Marokko, verdacht van drugshandel**: [Link](https://nos.nl/artikel/2625909-voortvluchtige-nederlander-opgepakt-in-marokko-verdacht-van-drugshandel)
+- **’Gezochte Nederlander (25) gepakt in Marokko: verdacht van gijzeling, drugshandel en deelname criminele organisatie’**: [Link](https://www.telegraaf.nl/misdaad/gezochte-nederlander-25-gepakt-in-marokko-verdacht-van-gijzeling-drugshandel-en-deelname-criminele-organisatie/159740955.html)
+- **Nederlander gezocht door Interpol opgepakt in Marokkaanse stad Oujda**: [Link](https://nieuws.marokko.nl/116046/nederlander-gezocht-door-interpol-opgepakt-in-marokkaanse-stad-oujda/)
+
+
 ### المهاجرون (N/A, Fri, 7 Aug 2026 13:50:00 -0700)
 
 - **مخدرات للجزائر ومهاجرون لإسبانيا.. سقوط شبكة تهريب كبرى**: [Link](https://www.skynewsarabia.com/world/1884947-%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%88%D9%86-%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B3%D9%82%D9%88%D8%B7-%D8%B4%D8%A8%D9%83%D8%A9-%D8%AA%D9%87%D8%B1%D9%8A%D8%A8-%D9%83%D8%A8%D8%B1%D9%89)
