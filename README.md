@@ -1,3 +1,73 @@
+### ryanair maroc (N/A, Thu, 6 Aug 2026 16:20:00 -0700)
+
+- **156 lignes, 17 nouvelles dessertes et 5,3 millions de sièges : Ryanair dévoile un programme record au Maroc**: [Link](https://medias24.com/2026/08/06/156-lignes-17-nouvelles-dessertes-et-53-millions-de-sieges-ryanair-devoile-un-programme-record-au-maroc-1737635/)
+- **Ryanair au Maroc : un programme hivernal record**: [Link](https://ledesk.ma/encontinu/ryanair-au-maroc-un-programme-hivernal-record/)
+- **L’ONMT et Ryanair s’allient pour le plus important programme hivernal**: [Link](https://www.leconomiste.com/flash-infos/lonmt-et-ryanair-sallient-pour-le-plus-important-programme-hivernal/)
+
+
+### طيار (N/A, Thu, 6 Aug 2026 14:40:00 -0700)
+
+- **رحلة جوية تتحول إلى كابوس بسبب "4 كلمات مقلقة" قالها الطيار**: [Link](https://www.alarabiya.net/arab-and-world/2026/08/06/%D8%B1%D8%AD%D9%84%D8%A9-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A7%D9%84%D9%89-%D9%83%D8%A7%D8%A8%D9%88%D8%B3-%D8%A8%D8%B3%D8%A8%D8%A8-4-%D9%83%D9%84%D9%85%D8%A7%D8%AA-%D9%85%D9%82%D9%84%D9%82%D8%A9-%D9%82%D8%A7%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D8%B7%D9%8A%D8%A7%D8%B1)
+- **"ارتطمنا بطائر.. علينا الهبوط".. دقائق رعب على متن رحلة بريطانية**: [Link](https://elaph.com/Web/News/2026/08/1603056.html)
+- **نقابيون: شركة طيران تشغل ربابنة بنظام "المقاول الذاتي" في المغرب**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D9%8A%D9%88%D9%86-%D8%B4%D8%B1%D9%83%D8%A9-%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B4%D8%BA%D9%84-%D8%B1%D8%A8%D8%A7%D8%A8%D9%86%D8%A9-%D8%A8%D9%86%D8%B8%D8%A7%D9%85-1786835.html)
+
+
+### بيدرو بورو (N/A, Thu, 6 Aug 2026 14:20:00 -0700)
+
+- **لامين جمال يطلب من إدارة برشلونة ضم أحد نجوم منتخب إسبانيا**: [Link](https://www.aljazeera.net/sport/2026/8/6/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D9%8A%D8%AF%D8%B1%D9%88-%D8%A8%D9%88%D8%B1%D9%88)
+- **ليس رودري أو ألفاريز.. يامال يختار الصفقة المثالية لبرشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%A7%D9%94%D9%88-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2--%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltac8ff8597aa3718b)
+- **يحث لامين يامال برشلونة على التعاقد مع بيدرو بورو لتعزيز جناحهم الأيمن.**: [Link](https://www.vietnam.vn/ar/lamine-yamal-hoi-thuc-barcelona-chieu-mo-pedro-porro-de-hoan-thien-hanh-lang-phai)
+
+
+### bilal el khannouss (N/A, Thu, 6 Aug 2026 14:20:00 -0700)
+
+- **Report: Matthias Jaissle wants Newcastle United to sign £34.2m World Cup star**: [Link](https://eplindex.com/149154/report-matthias-jaissle-wants-newcastle-united-to-sign-34-2m-world-cup-star.html)
+- **EFL club to receive second transfer fee for player sold earlier this summer in bizarre twist**: [Link](https://talksport.com/football/4488086/efl-leicester-second-transfer-fee-bilal-el-khannouss-stuttgart/)
+- **49ers can forget about signing Leeds United target as absurd price revealed: View**: [Link](https://www.leedsallover.com/49ers-can-forget-about-signing-leeds-united-target-as-absurd-price-revealed-view/)
+
+
+### قانون المالية (N/A, Thu, 6 Aug 2026 13:40:00 -0700)
+
+- **مشروع قانون المالية 2027 .. رئيس الحكومة يحدد 4 أولويات**: [Link](https://snrtnews.com/article/156494)
+- **توجيه صارم لترشيد النفقات وتعزيز موارد الدولة يسِم إعداد ميزانية 2027**: [Link](https://www.hespress.com/%D8%AA%D9%88%D8%AC%D9%8A%D9%87-%D8%B5%D8%A7%D8%B1%D9%85-%D9%84%D8%AA%D8%B1%D8%B4%D9%8A%D8%AF-%D9%88%D8%A7%D9%84%D9%86%D9%81%D9%82%D8%A7%D8%AA-%D9%88%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D9%85%D9%88%D8%A7-1788114.html)
+- **أخنوش يتوقع نمو الاقتصاد الوطني بـ5.3% في 2026 و4.1% في 2027**: [Link](https://ar.hibapress.com/details-746730.html)
+
+
+### psg match (N/A, Thu, 6 Aug 2026 13:40:00 -0700)
+
+- **Le PSG sombre à Majorque en amical à une semaine de la Supercoupe d'Europe**: [Link](https://www.lequipe.fr/Football/Actualites/Le-psg-sombre-a-majorque-en-amical-a-une-semaine-de-la-supercoupe-d-europe/1709189)
+- **"Il faut vite avancer car la saison commence déjà" : Paris, une claque et un rappel**: [Link](https://www.eurosport.fr/football/psg-il-faut-vite-avancer-car-la-saison-commence-deja-paris-une-claque-et-un-rappel_sto23325819/story.shtml)
+- **Football : La tête sans doute encore en vacances, le PSG prend une raclée par Majorque**: [Link](https://www.20minutes.fr/sport/football/4238023-20260806-football-tete-doute-encore-vacances-psg-prend-raclee-majorque)
+
+
+### amende (N/A, Thu, 6 Aug 2026 12:00:00 -0700)
+
+- **Centres d'appels : le marché français change les règles du jeu**: [Link](https://fr.hespress.com/484295-centres-dappels-le-marche-francais-change-les-regles-du-jeu.html)
+- **Appels depuis le Maroc : jusqu’à 375 000 euros d’amende par appel sans accord**: [Link](https://www.bladi.net/appels-maroc-jusqu-euros-amende-appel-accord,122961.html)
+- **Vidéo. France : le démarchage téléphonique interdit à partir du 11 août**: [Link](https://fr.euronews.com/video/2026/08/06/demarchage-telephonique-bientot-interdit-en-france-ce-qui-va-changer-a-partir-du-11-aout)
+
+
+### benfica – hearts (N/A, Thu, 6 Aug 2026 12:00:00 -0700)
+
+- **Treinador do Hearts: «Não era muito realista sairmos daqui com um bom resultado»**: [Link](https://tvi.iol.pt/noticias/hearts/liga-europa/treinador-do-hearts-nao-era-muito-realista-sairmos-daqui-com-um-bom-resultado)
+- **Adeptos do Benfica pediram o "39" ao plantel. Assista ao momento**: [Link](https://sapo.pt/artigo/adeptos-do-benfica-pediram-o-39-ao-plantel-assista-ao-momento-6a74fbbb0734a16b752d7f96)
+- **Cláudio Braga recusa impossíveis depois da goleada sofrida e lamenta: «Não jogámos o nosso jogo por respeitar demasiado o Benfica»**: [Link](https://bolanarede.pt/especial-bola-na-rede/atualidade/claudio-braga-recusa-impossiveis-depois-da-goleada-sofrida-e-lamenta-nao-jogamos-o-nosso-jogo-por-respeitar-demasiado-o-benfica/)
+
+
+### نفط (N/A, Thu, 6 Aug 2026 11:10:00 -0700)
+
+- **النفط يرتفع وسط ترقب لمحادثات إيران وعُمان ومخاوف بشأن الإمدادات**: [Link](https://www.aljazeera.net/ebusiness/2026/8/6/%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%88%D8%B3%D8%B7-%D8%AA%D8%B1%D9%82%D8%A8-%D9%84%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **أسعار برنت ترتفع 1.8 بالمئة إلى 80.9 دولارا للبرميل**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A8%D8%B1%D9%86%D8%AA-%D8%AA%D8%B1%D8%AA%D9%81%D8%B9-18-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D8%A5%D9%84%D9%89-809-%D8%AF%D9%88%D9%84%D8%A7%D8%B1%D8%A7-%D9%84%D9%84%D8%A8%D8%B1%D9%85%D9%8A%D9%84-/4020346)
+- **ترامب يلوح بفتح هرمز قريبا وإلا.. والأسواق تقفز مع انتعاش الآمال باتفاق ينهي أزمة المضيق**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260805-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%84%D9%88%D8%AD-%D8%A8%D9%81%D8%AA%D8%AD-%D9%87%D8%B1%D9%85%D8%B2-%D9%82%D8%B1%D9%8A%D8%A8%D8%A7-%D9%88%D8%A5%D9%84%D8%A7-%D9%88%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%AA%D9%82%D9%81%D8%B2-%D9%85%D8%B9-%D8%A7%D9%86%D8%AA%D8%B9%D8%A7%D8%B4-%D8%A7%D9%84%D8%A2%D9%85%D8%A7%D9%84-%D8%A8%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%8A%D9%86%D9%87%D9%8A-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B6%D9%8A%D9%82)
+
+
+### بي إن سبورتس (N/A, Thu, 6 Aug 2026 11:10:00 -0700)
+
+- **بعد خسارة حقوق الليجا.. بي إن سبورتس ترد ببيان شديد اللهجة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7--%D8%A8%D9%8A-%D8%A7%D9%95%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%B1%D8%AF-%D8%A8%D8%A8%D9%8A%D8%A7%D9%86-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%87%D8%AC%D8%A9/blte57c8214fb1939cb)
+- **خبر صادم! الدوري الإسباني (لا ليغا) سينتقل من beIN Sports إلى DAZN وDisney+**: [Link](https://entrevue.fr/ar/television/coup-de-tonnerre-la-liga-espagnole-quitte-bein-sports-pour-dazn-et-disney/)
+- **ياسر القحطاني يعلن رحيله عن بي إن سبورتس استعدادا لتحد إع...**: [Link](https://www.africa4press.com/blog/7f71915d-97e1-4c51-856c-b1b13eb394c8)
+
+
 ### كووورة (N/A, Thu, 6 Aug 2026 07:40:00 -0700)
 
 - **بعد خسارة حقوق الليجا.. بي إن سبورتس ترد ببيان شديد اللهجة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7--%D8%A8%D9%8A-%D8%A7%D9%95%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%B1%D8%AF-%D8%A8%D8%A8%D9%8A%D8%A7%D9%86-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%87%D8%AC%D8%A9/blte57c8214fb1939cb)
