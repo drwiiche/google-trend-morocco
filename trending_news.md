@@ -1,3 +1,22 @@
+### meteo di domani (N/A, Fri, 7 Aug 2026 13:00:00 -0700)
+
+- **Meteo, le previsioni per i prossimi giorni: l'anticiclone aumenta, i temporali scendono in pianura con grandine**: [Link](https://www.ilmattino.it/schede/meteo_previsioni_prossimi_giorni_anticiclone_aumenta_temporali_scendono_pianura_grandine-9694554.html)
+- **Instabilità (poca) nel weekend**: [Link](https://www.lanazione.it/meteo/caldo-toscana-g93ywxfe-sck/2)
+- **Italia sotto la cupola subtropicale: perché il caldo non basta a spiegare i temporali che stanno cambiando l’estate**: [Link](https://www.civonline.it/news/meteo/1351567/italia-sotto-la-cupola-subtropicale-perche-il-caldo-non-basta-a-spiegare-i-temporali-che-stanno-cambiando-lestate.html)
+
+
+### كيليان مبابي (N/A, Fri, 7 Aug 2026 12:10:00 -0700)
+
+- **دراسة تتوقع العمر الذي يصبح فيه مبابي مليارديرا**: [Link](https://www.aljazeera.net/sport/2026/8/6/%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B9%D9%85%D8%B1-%D8%A7%D9%84%D8%B0%D9%8A-%D9%82%D8%AF-%D9%8A%D8%B5%D8%A8%D8%AD-%D9%81%D9%8A%D9%87-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A)
+- **مصريون في الكويت | جنون صفقات الملايين.. مبابي يتربع على عرش أغلى المهاجمين في تاريخ كرة القدم**: [Link](https://egkw.com/Art/-%D8%AC%D9%86%D9%88%D9%86-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-1059513)
+- **دراسة: كيليان مبابي مرشح ليصبح أصغر ملياردير في عالم الرياضة**: [Link](https://www.thawabit.net/%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D9%83%D9%8A%D9%84%D9%8A%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%8A%D8%B5%D8%A8%D8%AD-%D8%A3%D8%B5%D8%BA%D8%B1-%D9%85%D9%84%D9%8A/)
+
+
+### physalies (N/A, Fri, 7 Aug 2026 11:50:00 -0700)
+
+
+
+
 ### رودريغو هيرنانديز كاسكانتي (N/A, Fri, 7 Aug 2026 12:00:00 -0700)
 
 - **تحديد موعد انضمامه.. برشلونة يحسم صفقة رودري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%86%D8%B6%D9%85%D8%A7%D9%85%D9%87--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D8%B3%D9%85-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A/bltb4b47bccbfab0a80)
