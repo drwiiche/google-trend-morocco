@@ -1,3 +1,17 @@
+### رودريغو هيرنانديز كاسكانتي (N/A, Fri, 7 Aug 2026 12:00:00 -0700)
+
+- **تحديد موعد انضمامه.. برشلونة يحسم صفقة رودري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%86%D8%B6%D9%85%D8%A7%D9%85%D9%87--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D8%B3%D9%85-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A/bltb4b47bccbfab0a80)
+- **مانشستر سيتي يتجنب بيع رودري**: [Link](https://www.hespress.com/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AA%D8%AC%D9%86%D8%A8-%D8%A8%D9%8A%D8%B9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-1788794.html)
+- **ماذا قال ديكو عن رودري وبرشلونة عام 2024؟**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84-%D8%AF%D9%8A%D9%83%D9%88-%D8%B9%D9%86-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B9%D8%A7%D9%85-2024/23872)
+
+
+### turf fr (N/A, Fri, 7 Aug 2026 11:40:00 -0700)
+
+- **Tiercé. Les pronostics de « L'Alsace » pour samedi 8 août - Prix de Bayeux**: [Link](https://www.lalsace.fr/actualite/2026/08/07/les-pronostics-de-l-alsace-pour-samedi-8-aout-prix-de-bayeux)
+- **Les pronostics des experts pour la réunion 1 à DEAUVILLE-LA TOUQUES ce samedi 8 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-deauville-la%20touques-ce-samedi-08-ao%C3%BBt)
+- **Les pronos hippiques du samedi 8 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-8-aout-2026_AN-202608070397.html)
+
+
 ### أنصار الله الحوثيون (N/A, Fri, 7 Aug 2026 10:40:00 -0700)
 
 - **قتلى مدنيون وعسكريون في هجوم للحوثيين على مأرب**: [Link](https://www.aljazeera.net/news/2026/8/7/%D9%88%D8%B3%D8%A7%D8%A6%D9%84-%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D9%8A%D9%85%D9%86%D9%8A%D8%A9-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%85%D8%A3%D8%B1%D8%A8-%D8%A8%D8%B9%D8%AF)
