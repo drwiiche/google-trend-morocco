@@ -1,3 +1,10 @@
+### خرف (N/A, Thu, 6 Aug 2026 14:30:00 -0700)
+
+- **علماء يحددون علامة مبكرة على الخرف.. يمكن ملاحظتها عند نزول السلالم**: [Link](https://www.alarabiya.net/science/2026/08/06/%D8%B9%D9%84%D9%85%D8%A7%D8%A1-%D9%8A%D8%AD%D8%AF%D8%AF%D9%88%D9%86-%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D9%85%D8%A8%D9%83%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AE%D8%B1%D9%81-%D9%8A-%D9%85%D9%83%D9%86-%D9%85%D9%84%D8%A7%D8%AD%D8%B8%D8%AA%D9%87%D8%A7-%D8%B9%D9%86%D8%AF-%D9%86%D8%B2%D9%88%D9%84-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%84%D9%85)
+- **13 عاماً إضافية بلا خرف.. السر يكمن في 3 عادات بسيطة**: [Link](https://www.almashhad.com/article/638944300664525-health/177437562290765-13%D8%B9%D8%A7%D9%85%D8%A7-%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A9-%D8%A8%D9%84%D8%A7-%D8%AE%D8%B1%D9%81-%D8%A7%D9%84%D8%B3%D8%B1-%D9%8A%D9%83%D9%85%D9%86-%D9%81%D9%8A-3-%D8%B9%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A8%D8%B3%D9%8A%D8%B7%D8%A9/)
+- **الابتعاد عن 3 مخاطر صحية في منتصف العمر يمنحك 13 عاما بلا خرف**: [Link](https://www.alghad.tv/%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%BA%D8%AF/news/%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF-%D8%B9%D9%86-3-%D9%85%D8%AE%D8%A7%D8%B7%D8%B1-%D8%B5%D8%AD%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%86%D8%AA%D8%B5%D9%81-%D8%A7%D9%84%D8%B9%D9%85%D8%B1-%D9%8A%D9%85%D9%86%D8%AD%D9%83-13-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A8%D9%84%D8%A7-%D8%AE%D8%B1%D9%81)
+
+
 ### ryanair maroc (N/A, Thu, 6 Aug 2026 16:20:00 -0700)
 
 - **156 lignes, 17 nouvelles dessertes et 5,3 millions de sièges : Ryanair dévoile un programme record au Maroc**: [Link](https://medias24.com/2026/08/06/156-lignes-17-nouvelles-dessertes-et-53-millions-de-sieges-ryanair-devoile-un-programme-record-au-maroc-1737635/)
