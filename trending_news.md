@@ -1,3 +1,24 @@
+### salaire (N/A, Fri, 7 Aug 2026 10:20:00 -0700)
+
+- **Le gouvernement approuve une hausse des salaires des fonctionnaires, six mois supplémentaires**: [Link](https://icibeyrouth.com/articles/1340868/le-gouvernement-approuve-une-hausse-des-salaires-des-fonctionnaires-six-mois-supplementaires)
+- **États-Unis : le salaire horaire moyen progresse de 0,1 % en juillet, contre une hausse de 0,3 % attendue**: [Link](https://www.zonebourse.com/actualite-bourse/etats-unis-le-salaire-horaire-moyen-progresse-de-0-1-en-juillet-contre-une-hausse-de-0-3-atte-ce7f50d2de89fe27)
+- **Pour une hausse des salaires et des taxes sur le numérique et la robotique !**: [Link](https://www.michel-edouard-leclerc.com/categorie/societe/nouvelles-economies/pour-une-hausse-des-salaires-et-des-taxes-sur-le-numerique-et)
+
+
+### إصابة (N/A, Fri, 7 Aug 2026 10:20:00 -0700)
+
+- **الاحتلال ينسحب من قلنديا بعد اقتحام خلّف دمارا واعتقالات بالعشرات**: [Link](https://www.aljazeera.net/news/2026/8/7/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D9%86%D8%B3%D8%AD%D8%A8-%D9%85%D9%86-%D9%82%D9%84%D9%86%D8%AF%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%82%D8%AA%D8%AD%D8%A7%D9%85)
+- **اقتحام مخيم قلنديا: إصابة 11 فلسطينيا والجيش يشن حملة اعتقالات وهدم محال تجارية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260806-%D8%A7%D9%82%D8%AA%D8%AD%D8%A7%D9%85-%D9%85%D8%AE%D9%8A%D9%85-%D9%82%D9%84%D9%86%D8%AF%D9%8A%D8%A7-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-11-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%8A%D8%B4%D9%86-%D8%AD%D9%85%D9%84%D8%A9-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D9%88%D9%87%D8%AF%D9%85-%D9%85%D8%AD%D8%A7%D9%84-%D8%AA%D8%AC%D8%A7%D8%B1%D9%8A%D8%A9)
+- **فلسطين: استهداف قلنديا جزء من مخطط إسرائيلي لتهجير اللاجئين**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%82%D9%84%D9%86%D8%AF%D9%8A%D8%A7-%D8%AC%D8%B2%D8%A1-%D9%85%D9%86-%D9%85%D8%AE%D8%B7%D8%B7-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%84%D8%AA%D9%87%D8%AC%D9%8A%D8%B1-%D8%A7%D9%84%D9%84%D8%A7%D8%AC%D8%A6%D9%8A%D9%86-/4019967)
+
+
+### coupe d'afrique des nations féminine de football (N/A, Fri, 7 Aug 2026 10:10:00 -0700)
+
+- **Suspense, émotions et exploits : les huit quarts de finalistes de la CAN Féminine TotalEnergies CAF Maroc 2026 sont connus**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/suspense-emotions-et-exploits-les-huit-quarts-de-finalistes-de-la-can-feminine-totalenergies-caf-maroc-2026-sont-connus/)
+- **CAN féminine Maroc 2026: Les Lionnes de l’Atlas poursuivent les entraînements avant les quarts de finale**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-poursuivent-les-entrainements-avant-les-quarts-de-finale)
+- **CAN féminine : “Nous avons bien analysé l’Afrique du Sud pour aller chercher la victoire”**: [Link](https://mobile.telquel.ma/instant-t/2026/08/07/can-feminine-nous-avons-bien-analyse-lafrique-du-sud-pour-aller-chercher-la-victoire_2002679/)
+
+
 ### كأس الأمم الإفريقية للسيدات (N/A, Fri, 7 Aug 2026 10:00:00 -0700)
 
 - **لبؤات الأطلس أمام "تذكرة مونديالية"**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D8%B0%D9%83%D8%B1%D8%A9-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A%D8%A9-1788605.html)
