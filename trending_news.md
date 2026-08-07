@@ -1,3 +1,37 @@
+### دونالد ترمب (N/A, Fri, 7 Aug 2026 06:40:00 -0700)
+
+- **إيران.. ترمب يؤكد السيطرة على هرمز وطهران تتحدث عن اتفاق وشيك مع مسقط**: [Link](https://www.aljazeera.net/news/liveblog/2026/8/7/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%82%D8%B4%D9%85-%D9%88%D9%84%D8%A7)
+- **ترامب يعلن توقعاته بشأن إيران.. ويتحدث عن"إمدادات غير محدود"**: [Link](https://www.skynewsarabia.com/world/1884802-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA%D9%87-%D8%A8%D8%B4%D8%A3%D9%86-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%A5%D9%85%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA-%D9%85%D8%AD%D8%AF%D9%88%D8%AF)
+- **نائب ترامب عن المفاوضات مع الإيرانيين: "يصعب التعامل معهم ونظامهم منقسم"**: [Link](https://arabic.cnn.com/middle-east/article/2026/08/06/vance-says-iran-negotiations-will-take-some-time)
+
+
+### إسرائيل (N/A, Fri, 7 Aug 2026 06:30:00 -0700)
+
+- **المشروع بديلا عن الانتماء.. كيف يصعد المسلمون الأمريكيون لمواقع القرار؟**: [Link](https://www.aljazeera.net/news/2026/8/6/%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%85%D8%A7%D8%A1-%D9%83%D9%8A%D9%81-%D9%8A%D8%B5%D8%B9%D8%AF)
+- **السيد.. من هو ابن المهاجر المصري الذي لم يفترض دخوله السياسة؟**: [Link](https://arabic.cnn.com/world/article/2026/08/07/abdul-el-sayed-what-we-know-bio)
+- **عبد الرحمن السيد: فوز طبيب أمريكي من أصل مصري في الانتخابات التمهيدية يُربك حسابات الحزب الديمقراطي**: [Link](https://www.bbc.com/arabic/articles/c3d30r2g7v3o)
+
+
+### transavia (N/A, Fri, 7 Aug 2026 06:30:00 -0700)
+
+- **New Transavia route between Portugal and Belgium**: [Link](https://www.theportugalnews.com/news/2026-08-07/new-transavia-route-between-portugal-and-belgium/1066774)
+- **Transavia compensates crew over scheduling error on Morocco flights**: [Link](https://en.yabiladi.com/articles/details/200215/transavia-compensates-crew-over-scheduling.html)
+
+
+### le siteinfo (N/A, Fri, 7 Aug 2026 06:10:00 -0700)
+
+- **Sécurité à Tanger : les véhicules intelligents « Aman » et « Madar » déployés (VIDEO)**: [Link](https://www.lesiteinfo.com/maroc/679986-securite-a-tanger-les-vehicules-intelligents-aman-et-madar-deployes-video.html)
+- **Match amical à Tanger annulé**: [Link](https://www.fcbarcelona.fr/fr/club/actualites/4555203/match-amical--tanger-annul)
+- **Le FC Barcelone annule son match amical prévu à Tanger**: [Link](https://lematin.ma/sports/le-fc-barcelone-annule-son-match-amical-prevu-a-tanger/359848)
+
+
+### secret story (N/A, Fri, 7 Aug 2026 06:00:00 -0700)
+
+- **Secret story 2026 - Saison 14 Prime 7 (Partie 2) du 6 août 2026**: [Link](https://www.tf1.fr/fr-ma/tf1/secret-story/videos/secret-story-2026-saison-14-prime-7-partie-2-du-6-aout-2026-64720343.html)
+- **Arthur, éliminé de Secret Story, revient sur son comportement jugé condescendant : "J'avais de plus en plus de mal à trouver ma place"**: [Link](https://www.programme-tv.net/news/tv/406362-arthur-elimine-de-secret-story-revient-sur-son-comportement-juge-condescendant-j-avais-de-plus-en-plus-de-mal-a-trouver-ma-place/)
+- **Secret Story : Qui est le candidat éliminé ce jeudi 6 août ?**: [Link](https://www.programme.tv/news/tele-realite/268595-secret-story-qui-est-le-candidat-elimine-ce-jeudi-6-aout/)
+
+
 ### خطبة الجمعة اليوم (N/A, Fri, 7 Aug 2026 05:50:00 -0700)
 
 - **إمام الحرم: التآخي في الله فريضة شرعية تقتضي التلاحم بين المسلمين**: [Link](https://www.alyaum.com/articles/6676898/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85/%D8%A5%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AD%D8%B1%D9%85-%D8%A7%D9%84%D8%AA%D8%A2%D8%AE%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%87-%D9%81%D8%B1%D9%8A%D8%B6%D8%A9-%D8%B4%D8%B1%D8%B9%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D8%B6%D9%8A-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D8%AD%D9%85-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D9%85%D9%8A%D9%86)
