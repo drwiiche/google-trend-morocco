@@ -1,3 +1,10 @@
+### physalie (N/A, Fri, 7 Aug 2026 16:30:00 -0700)
+
+- **Des plages espagnoles fermées à cause d’une invasion de galères portugaises : une centaine de personnes piquées**: [Link](https://www.rtl.be/actu/monde/europe/des-plages-espagnoles-fermees-cause-dune-invasion-de-galeres-portugaises-une/2026-08-06/article/796597)
+- **Vidéo. Les physalies prolifèrent en Espagne : que faire en cas de piqûre ?**: [Link](https://fr.euronews.com/video/2026/08/07/les-physalies-proliferent-en-espagne-que-faire-en-cas-de-piqure)
+- **Invasion de physalies sur des plages du Sud-Ouest**: [Link](https://www.alouette.fr/invasion-de-physalies-sur-des-plages-du-sud-ouest)
+
+
 ### دنيا بطمة (N/A, Fri, 7 Aug 2026 15:10:00 -0700)
 
 - **لماذا فتحت دنيا بطمة النار على فنان شهير بعد حفل المغرب؟**: [Link](https://www.okaz.com.sa/culture/art/2260290)
