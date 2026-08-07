@@ -1,3 +1,17 @@
+### trump (N/A, Fri, 7 Aug 2026 08:40:00 -0700)
+
+- **US appeals court halts Trump ballroom project paving way for Supreme Court appeal**: [Link](https://www.bbc.com/news/articles/cwyq80jqqleo)
+- **Appeals court says Trump is unlawfully constructing White House ballroom**: [Link](https://www.cnn.com/2026/08/07/politics/white-house-ballroom-appeals-court-ruling)
+- **Appeals court rules Trump must get approval from Congress on ballroom, ordering halt to construction**: [Link](https://apnews.com/article/trump-ballroom-court-ruling-1528247275ec6103da892d271d4ee883)
+
+
+### سفيان أمرابط (N/A, Fri, 7 Aug 2026 08:10:00 -0700)
+
+- **أمرابط يضغط للعودة إلى ريال بيتيس**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D9%8A%D8%B6%D8%BA%D8%B7-%D9%84%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-1788466.html)
+- **بين المطرقة والسندان.. أمرابط يواجه مستقبلا غامضا بين فنربخشه وريال بيتيس**: [Link](https://radiomars.ma/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%B7%D8%B1%D9%82%D8%A9-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%AF%D8%A7%D9%86-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D8%B3%D8%AA/)
+- **راتب بقيمة 6 ملايين أورو يهدد بعرقلة انتقال نجم المنتخب المغربي**: [Link](https://ar.lesiteinfo.com/sport/%D8%B1%D8%A7%D8%AA%D8%A8-%D8%A8%D9%82%D9%8A%D9%85%D8%A9-6-%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D8%A3%D9%88%D8%B1%D9%88-%D9%8A%D9%87%D8%AF%D8%AF-%D8%A8%D8%B9%D8%B1%D9%82%D9%84%D8%A9-%D8%A7%D9%86%D8%AA-1014885.html)
+
+
 ### aston villa – bayern (N/A, Fri, 7 Aug 2026 07:30:00 -0700)
 
 - **Working hard in the Hong Kong heat**: [Link](https://www.avfc.co.uk/news/2026/august/06/gallery-working-hard-in-the-hong-kong-heat/)
