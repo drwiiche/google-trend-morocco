@@ -1,3 +1,15 @@
+### أنصار الله الحوثيون (N/A, Fri, 7 Aug 2026 10:40:00 -0700)
+
+- **قتلى مدنيون وعسكريون في هجوم للحوثيين على مأرب**: [Link](https://www.aljazeera.net/news/2026/8/7/%D9%88%D8%B3%D8%A7%D8%A6%D9%84-%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D9%8A%D9%85%D9%86%D9%8A%D8%A9-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%85%D8%A3%D8%B1%D8%A8-%D8%A8%D8%B9%D8%AF)
+- **هجمات الحوثيين تقتل ما لا يقل عن 58 جندياً يمنياً وتصيب 11 مدنياً في السعودية، والعراق يتحرك لمنع استهداف دول الجوار**: [Link](https://www.bbc.com/arabic/articles/c39e4krpe03o)
+- **مصادر: صواريخ ومسيرات حوثية تستهدف معسكر "صحن الجن"**: [Link](https://www.skynewsarabia.com/middle-east/1884915-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D9%88%D9%85%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AD%D9%88%D8%AB%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%B5%D8%AD%D9%86-%D8%A7%D9%84%D8%AC%D9%86)
+
+
+### éclipse (N/A, Fri, 7 Aug 2026 10:30:00 -0700)
+
+
+
+
 ### salaire (N/A, Fri, 7 Aug 2026 10:20:00 -0700)
 
 - **Le gouvernement approuve une hausse des salaires des fonctionnaires, six mois supplémentaires**: [Link](https://icibeyrouth.com/articles/1340868/le-gouvernement-approuve-une-hausse-des-salaires-des-fonctionnaires-six-mois-supplementaires)
