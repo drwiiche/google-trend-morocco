@@ -1,3 +1,17 @@
+### aston villa – bayern (N/A, Fri, 7 Aug 2026 07:30:00 -0700)
+
+- **Working hard in the Hong Kong heat**: [Link](https://www.avfc.co.uk/news/2026/august/06/gallery-working-hard-in-the-hong-kong-heat/)
+- **Who was Bayern Munich’s Meister of the Match?**: [Link](https://www.bavarianfootballworks.com/question-of-the-day/239969/who-was-bayern-munichs-meister-of-the-match)
+- **Aston Villa vs Bayern Munich predictions & betting tips - Emery’s side eye upset**: [Link](https://talksport.com/betting/4495068/aston-villa-vs-bayern-munich-odds-tips-2026/)
+
+
+### aya nakamura (N/A, Thu, 6 Aug 2026 18:10:00 -0700)
+
+- **Aya Nakamura s'est mariée avec RK ! Vladimir Boudnikoff, l'ex de la chanteuse, s'emporte sur Instagram**: [Link](https://www.voici.fr/celebrites/aya-nakamura-s-est-mariee-avec-rk-vladimir-boudnikoff-l-ex-de-la-chanteuse-s-emporte-sur-instagram-827353)
+- **Aya Nakamura mariée religieusement au rappeur RK ? Un membre de sa famille, bien remonté, publie une photo de la cérémonie**: [Link](https://www.public.fr/aya-nakamura-mariee-religieusement-au-rappeur-rk-un-membre-de-sa-famille-bien-remonte-publie-une-photo-de-la-ceremonie)
+- **"Si j’avais su…" : Aya Nakamura mariée au rappeur RK ? Son ex Vladimir Boudnikoff vit (très) mal la situation !**: [Link](https://portail.free.fr/divertissement/people/si-javais-su-aya-nakamura-mariee-au-rappeur-rk-son-ex-vladimir-boudnikoff-vit-tres-mal-la-situation/)
+
+
 ### دونالد ترمب (N/A, Fri, 7 Aug 2026 06:40:00 -0700)
 
 - **إيران.. ترمب يؤكد السيطرة على هرمز وطهران تتحدث عن اتفاق وشيك مع مسقط**: [Link](https://www.aljazeera.net/news/liveblog/2026/8/7/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%82%D8%B4%D9%85-%D9%88%D9%84%D8%A7)
