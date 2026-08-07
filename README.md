@@ -1,3 +1,17 @@
+### خطبة الجمعة اليوم (N/A, Fri, 7 Aug 2026 05:50:00 -0700)
+
+- **إمام الحرم: التآخي في الله فريضة شرعية تقتضي التلاحم بين المسلمين**: [Link](https://www.alyaum.com/articles/6676898/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85/%D8%A5%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AD%D8%B1%D9%85-%D8%A7%D9%84%D8%AA%D8%A2%D8%AE%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%87-%D9%81%D8%B1%D9%8A%D8%B6%D8%A9-%D8%B4%D8%B1%D8%B9%D9%8A%D8%A9-%D8%AA%D9%82%D8%AA%D8%B6%D9%8A-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D8%AD%D9%85-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D9%85%D9%8A%D9%86)
+- **يدفع النقم.. خطيب المسجد الحرام: التلاحم من أسس الحياة الإيمانية**: [Link](https://www.elbalad.news/7065190)
+- **إمام المسجد الحرام يحث المسلمين على قضاء الحوائج**: [Link](https://daralmaref.com/News/2576718.aspx)
+
+
+### dessalement (N/A, Fri, 7 Aug 2026 03:50:00 -0700)
+
+- **OCP Green Water : deux filiales pour 410 millions de m³ d’eau dessalée**: [Link](https://medias24.com/2026/08/07/ocp-green-water-deux-filiales-pour-410-millions-de-m%C2%B3-deau-dessalee-1738121/)
+- **OCP Green Water filialise ses actifs de dessalement pour lever de la dette dédiée**: [Link](http://ledesk.ma/2026/08/07/ocp-green-water-filialise-ses-actifs-de-dessalement-pour-lever-de-la-dette-dediee/)
+- **OCP Green Water autorisée à créer deux filiales dédiées au dessalement d’eau de mer**: [Link](https://mobile.telquel.ma/2026/08/06/ocp-green-water-autorisee-a-creer-deux-filiales-dediees-au-dessalement-deau-de-mer_2002537)
+
+
 ### صامويل إيتو (N/A, Fri, 7 Aug 2026 04:30:00 -0700)
 
 - **بعد الاعتراض على التحكيم أمام المغرب.. كاف يلغي عقوباته ضد إيتو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D9%83%D8%A7%D9%81-%D9%8A%D9%84%D8%BA%D9%8A-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA%D9%87-%D8%B6%D8%AF-%D8%A7%D9%95%D9%8A%D8%AA%D9%88/blt3598838b0b512029)
