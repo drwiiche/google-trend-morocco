@@ -1,3 +1,17 @@
+### chelsea – ac milan (N/A, Sat, 8 Aug 2026 05:00:00 -0700)
+
+- **Joao Pedro starts and Cole Palmer returns in predicted Chelsea starting XI vs AC Milan**: [Link](https://www.football.london/chelsea-fc/news/joao-pedro-starts-cole-palmer-34422800)
+- **Indonesia Chelsea AC Milan Soccer**: [Link](https://www.couriernews.com/sports/indonesia-chelsea-ac-milan-soccer/image_a38a6a6e-80a2-575a-a2b0-3da4507985ad.html)
+- **Training gallery: Preparing in Jakarta | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/training-gallery-preparing-in-jakarta)
+
+
+### jorge messi (N/A, Sat, 8 Aug 2026 04:40:00 -0700)
+
+- **Lionel Messi's father dies**: [Link](https://nashaniva.com/en/401765)
+- **Lionel Messi's father, Jorge Messi, passes away at 68 | What we know about the cause of his death**: [Link](https://www.livemint.com/news/world/lionel-messis-father-jorge-messi-passes-away-at-68-what-we-know-about-the-cause-of-his-death-11786190133100.html)
+- **Lionel Messi’s Father Jorge Messi Dies At 68: Argentina Legend Suffers Family Loss In Rosario After Long Illness**: [Link](https://sundayguardianlive.com/sports/lionel-messis-father-jorge-messi-dies-at-68-argentina-legend-suffers-family-loss-in-rosario-after-long-illness-256519/)
+
+
 ### italie (N/A, Sat, 8 Aug 2026 04:40:00 -0700)
 
 - **Carlos Echeverria Jesus, politiste : « La crise de Ceuta traduit les ambitions territoriales du Maroc »**: [Link](https://www.lemonde.fr/afrique/article/2026/08/08/carlos-echeverria-jesus-politiste-la-crise-de-ceuta-traduit-les-ambitions-territoriales-du-maroc_6741060_3212.html)
