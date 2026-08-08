@@ -1,3 +1,73 @@
+### مباريات اليوم (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
+
+- **جدول مباريات اليوم السبت 8 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-8-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt9566eb3caa151930)
+- **مواعيد مباريات اليوم.. مواجهات ودية قوية أبرزها يوفنتوس ضد إنتر**: [Link](https://www.rosaelyoussef.com/1422823)
+- **مواعيد مباريات اليوم السبت الودية.. برشلونة يواجه أودينيزي.. وتشيلسي ضد ميلان**: [Link](https://www.almasryalyoum.com/news/details/4332697)
+
+
+### المغرب ضد جنوب أفريقيا (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
+
+- **تشكيلة "اللبؤات" أمام جنوب إفريقيا**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A3%D9%85%D8%A7%D9%85-%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1789444.html)
+- **من يعبر إلى المربع الذهبي؟ .. مواجهات نارية في ربع نهائي كان السيدات**: [Link](https://www.medi1news.com/ar/article/404590.html)
+- **لبؤات الأطلس ينهين استعداداتهن لمواجهة جنوب إفريقيا في ربع نهائي كأس إفريقيا**: [Link](https://radiomars.ma/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%86%D9%87%D9%8A%D9%86-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87%D9%86-%D9%84%D9%85%D9%88%D8%A7%D8%AC-2/)
+
+
+### مباريات اليوم مباشر (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
+
+- **ميسي يستعد لأصعب رحلة في حياته**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A7%D9%94%D8%B5%D8%B9%D8%A8-%D8%B1%D8%AD%D9%84%D8%A9-%D9%81%D9%8A-%D8%AD%D9%8A%D8%A7%D8%AA%D9%87/blt57f3901a6f54959b)
+- **ميسي يتلقى صدمة موجعة بوفاة والده خورخي عن 68 عاما**: [Link](https://www.aljazeera.net/sport/2026/8/8/%D9%88%D9%81%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D8%AF-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%85%D8%B1%D8%B6)
+- **رحيل الرجل الذي آمن بـ"البرغوث" أولاً.. والد ميسي يودع الحياة عن 68 عاماً**: [Link](https://arabic.euronews.com/2026/08/08/jorge-messi-father-and-agent-of-lionel-messi-dies-at-68)
+
+
+### كورة (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة مانشستر يونايتد وباريس سان جيرمان الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt024263995e79c280)
+- **أمام باريس سان جيرمان.. مزراوي يعود إلى التشكيلة الأساسية لمانشستر يونايتد**: [Link](https://kifache.com/%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89/)
+- **ثلاثية مايوركا في مرمى باريس سان جيرمان وديا**: [Link](https://elsport.com/news/show/834637/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%85%D8%A7%D9%8A%D9%88%D8%B1%D9%83%D8%A7-%D9%85%D8%B1%D9%85%D9%89-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%AF%D9%8A%D8%A7)
+
+
+### snrt (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
+
+- **Jeux méditerranéens 2026: la liste finale de l'Equipe Nationale U20**: [Link](https://frmf.ma/fr/articles/20-5)
+- **Jeux méditerranéens 2026 : Ludovic Batelli dévoile la liste finale de la sélection U20**: [Link](https://fr.hespress.com/484473-jeux-mediterraneens-2026-ludovic-batelli-devoile-la-liste-finale-de-la-selection-u20.html)
+- **Jeux méditerranéens 2026 : le Maroc alignera 120 athlètes à Tarente**: [Link](https://radiomars.ma/fr/?p=5302)
+
+
+### meteo di domani (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
+
+- **Meteo Liguria: la previsione per domani**: [Link](https://www.albengacorsara.it/2026/08/08/meteo-liguria-la-previsione-per-domani-236/)
+- **VIDEO | "Ospedale Galliera, il quadro elettrico è raffreddato dal 'pinguino'. Fare chiarezza"**: [Link](https://www.genovatoday.it/video/galliera-pinguino-quadro-elettrico.html)
+- **Nono giorno di bollino rosso per il caldo lunedì 10 agosto in Liguria**: [Link](https://www.rainews.it/tgr/liguria/articoli/2026/08/nono-giorno-di-bollino-rosso-per-il-caldo-lunedi-10-agosto-in-liguria-0266c064-5f81-43fb-917f-b3e1fbe009d3.html)
+
+
+### البطولة (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
+
+- **قرعة بطولة شمال إفريقيا للأندية تُجرى الإثنين بتونس**: [Link](https://radiomars.ma/%D9%82%D8%B1%D8%B9%D8%A9-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%AA%D9%8F%D8%AC%D8%B1%D9%89/)
+- **الدوري البرتغالي.. المغربي يانيس بكراوي ينقذ إستوريل من الهزيمة أمام فاماليكاو**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%A7%D9%86%D9%8A%D8%B3-%D8%A8%D9%83%D8%B1%D8%A7%D9%88%D9%8A-%D9%8A%D9%86%D9%82%D8%B0-%D8%A5%D8%B3%D8%AA%D9%88%D8%B1%D9%8A%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-20260808)
+- **بكراوي ينقذ استوريل من الهزيمة في افتتاح الدوري البرتغالي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%83%D8%B1%D8%A7%D9%88%D9%8A-%D9%8A%D9%86%D9%82%D8%B0-%D8%A7%D8%B3%D8%AA%D9%88%D8%B1%D9%8A%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A/23934)
+
+
+### yalla kora (N/A, Sat, 8 Aug 2026 13:30:00 -0700)
+
+- **كل شيء يبدأ من العقل.. رسالة غامضة من عبد الله السعيد بعد غيابه عن الزمالك**: [Link](https://www.youm7.com/story/2026/8/8/%D9%83%D9%84-%D8%B4%D9%8A%D8%A1-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%82%D9%84-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D9%85%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87/7506969)
+- **لا أعذار.. عقوبات مالية جديدة في الزمالك ضد شيكو بانزا وبيزيزا وعبد الله السعيد بسبب غيابهم عن المعسكر**: [Link](https://www.cairo24.com/2473005)
+- **مصدر بالزمالك: بيزيرا لم يخطرنا بموعد الوصول حتى الآن**: [Link](https://a5r5br.net/egypt/local-sports/7979173-%D9%85%D8%B5%D8%AF%D8%B1-%D8%A8%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D8%A8%D9%8A%D8%B2%D9%8A%D8%B1%D8%A7-%D9%84%D9%85-%D9%8A%D8%AE%D8%B7%D8%B1%D9%86%D8%A7-%D8%A8%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%88%D8%B5%D9%88%D9%84-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%A2%D9%86)
+
+
+### نادي اتحاد طنجة (N/A, Sat, 8 Aug 2026 13:30:00 -0700)
+
+- **رسميا.. برشلونة يكشف عن منافسه الجديد قبل مواجهة الأهلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A/bltbb15a253b88598de)
+- **برشلونة يلغي مباراة ودية في طنجة بسبب أزمة سبتة**: [Link](https://www.aljazeera.net/sport/2026/8/7/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%84%D8%BA%D9%8A-%D9%88%D8%AF%D9%8A%D8%A9-%D8%B7%D9%86%D8%AC%D8%A9-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **من قاعات التحرير - أحداث سبتة تلقي بظلالها على لقاء رياضي ودي بين طنجة وبرشلونة**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D9%85%D9%86-%D9%82%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%AD%D8%B1%D9%8A%D8%B1/20260807-%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%AA%D9%84%D9%82%D9%8A-%D8%A8%D8%B8%D9%84%D8%A7%D9%84%D9%87%D8%A7-%D8%B9%D9%84%D9%89-%D9%84%D9%82%D8%A7%D8%A1-%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%88%D8%AF%D9%8A-%D8%A8%D9%8A%D9%86-%D8%B7%D9%86%D8%AC%D8%A9-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
+### morocco vs south africa (N/A, Sat, 8 Aug 2026 13:20:00 -0700)
+
+- **MATCH STATS: Morocco face South Africa in TotalEnergies CAF WAFCON Morocco 2026 quarter-final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-morocco-face-south-africa-in-totalenergies-caf-wafcon-morocco-2026-quarter-final/)
+- **Morocco ready for South Africa clash as Vilda targets direct World Cup qualification**: [Link](https://en.hespress.com/143376-morocco-ready-for-south-africa-clash-as-vilda-targets-direct-world-cup-qualification.html)
+- **Morocco vs. South Africa - Banyana's WAFCON quarter-final live as it happens**: [Link](https://africa.espn.com/espn/story/_/id/49561639/morocco-vs-south-africa-banyana-wafcon-quarter-final-live-happens)
+
+
 ### bein sport (N/A, Sat, 8 Aug 2026 13:10:00 -0700)
 
 - **Manchester United announce transfer exit with up to £14million set to be banked**: [Link](https://www.manchestereveningnews.co.uk/sport/football/manchester-united-announce-transfer-exit-34406062)
