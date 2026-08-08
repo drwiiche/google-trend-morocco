@@ -1,3 +1,17 @@
+### psg (N/A, Sat, 8 Aug 2026 08:10:00 -0700)
+
+- **Mercato : Ferran Torres s'est mis d'accord avec le PSG pour un contrat de 5 ans, négociations en cours entre Paris et le Barça**: [Link](https://www.lequipe.fr/Football/Actualites/Mercato-ferran-torres-s-est-mis-d-accord-avec-le-psg-pour-un-contrat-de-5-ans-negociations-en-cours-entre-paris-et-le-barca/1709669)
+- **Ferran Torres aurait dit oui au Paris Saint-Germain**: [Link](https://www.eurosport.fr/football/transferts/2026-2027/mercato-lattaquant-du-fc-barcelone-ferran-torres-aurait-accepte-de-rejoindre-le-paris-saint-germain-cet-ete_sto23326342/story.shtml)
+- **PSG : accord imminent avec le Barça pour Ferran Torres !**: [Link](https://www.footmercato.net/a6943517600537180402-psg-accord-imminent-avec-le-barca-pour-ferran-torres)
+
+
+### paris-sg – manchester united (N/A, Sat, 8 Aug 2026 07:50:00 -0700)
+
+- **Pre-match show live from the Campus PSG**: [Link](https://www.psg.fr/en/content/veille-de-match-en-direct-du-campus-psg-a-17h-live-training-talk-preparation-manchester-2026-2027)
+- **What's happening in Gothenburg?**: [Link](https://www.manutd.com/en/news/whats-happening-in-gothenburg-before-psg-game)
+- **Manchester United vs Paris Saint Germain - Prediction, where to watch, kick-off time and line-ups 08-08-2026**: [Link](https://onefootball.com/en/betting/predictions/manchester-united-vs-paris-saint-germain-08-08-2026)
+
+
 ### west ham – portsmouth (N/A, Sat, 8 Aug 2026 07:20:00 -0700)
 
 - **How to watch West Ham vs Portsmouth: TV channel and live stream for Carabao Cup today**: [Link](https://www.standard.co.uk/sport/football/how-to-watch-west-ham-vs-portsmouth-tv-channel-live-stream-carabao-cup-b1292753.html)
