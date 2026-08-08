@@ -1,3 +1,31 @@
+### barca (N/A, Sat, 8 Aug 2026 11:40:00 -0700)
+
+- **Barcelona's 'triangular' match? Unusual preseason fixture explained**: [Link](https://www.espn.com/soccer/story/_/id/49560010/barcelona-playing-triangular-match-vs-udinese-nottingham-forest-unusual-preseason-fixture-explained)
+- **How to Watch Nottingham Forest vs. Barcelona on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-nottingham-forest-vs-barcelona-tv-live-stream-8-8-26)
+- **When and where to watch the triangular tournament**: [Link](https://www.fcbarcelona.com/en/news/4553717/when-and-where-to-watch-the-triangular-tournament)
+
+
+### betis – bournemouth (N/A, Sat, 8 Aug 2026 11:30:00 -0700)
+
+- **Adli on pre-season work, Europa League journey and taking on Betis**: [Link](https://www.afcb.co.uk/news/2026/august/05/adli-on-pre-season-work--europa-league-journey-and-taking-on-betis-/)
+- **Live*Free*!𝚆𝙰𝚃𝙲𝙷 Real Betis vs. Bournemouth 𝐋𝐈𝐕𝐄 Ｓｔｒｅａｍ Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ!PRE™SEASON**: [Link](https://www.jacksoncountypilot.com/articles/livefree%F0%9D%9A%86%F0%9D%99%B0%F0%9D%9A%83%F0%9D%99%B2%F0%9D%99%B7-real-betis-vs-bournemouth-%F0%9D%90%8B%F0%9D%90%88%F0%9D%90%95%F0%9D%90%84-%EF%BD%93%EF%BD%94%EF%BD%92%EF%BD%85%EF%BD%81/)
+- **Preview: Real Betis vs Bournemouth - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/betis/preview/betis-vs-bournemouth-prediction-team-news-lineups_602530.html)
+
+
+### sofascore (N/A, Sat, 8 Aug 2026 11:20:00 -0700)
+
+- **Fulham 1-2 Crystal Palace**: [Link](https://www.fulhamfc.com/news/2026/august/07/fulham-1-2-crystal-palace/)
+- **Fulham 1-2 Crystal Palace: Eagles come from behind for friendly win over Cottagers**: [Link](https://www.bbc.com/sport/football/articles/cjd4jd50932o)
+- **Fulham vs Crystal Palace – Prediction, Where to Watch, Kick-off Time and Lineups 07-08**: [Link](https://oddsscanner.com/predictions/football/fulham-x-crystal-palace-07-08-2026)
+
+
+### sundowns – polokwane city (N/A, Sat, 8 Aug 2026 10:40:00 -0700)
+
+- **Mamelodi Sundowns 2-2 Polokwane LIVE Score Updates: The game was tied in the second half (2-2)**: [Link](https://www.vavel.com/en-us/soccer/2026/08/08/1267523-mamelodi-sundowns-vs-polokwane-live-score-mtn-8.html)
+- **Continental Success Brings Continental Overload: Sundowns' Eight-Competition Juggling Act Begins**: [Link](https://www.soccerladuma.co.za/psl/mamelodi-sundowns/mamelodi-sundowns-face-eight-trophy-campaign-as-champions-league-glory-opens-new-frontiers)
+- **Coach Miguel Cardoso Confident After Emotional and Productive Pre-Season**: [Link](https://sundownsfc.co.za/coach-miguel-cardoso-confident-after-emotional-and-productive-pre-season/)
+
+
 ### coventry city – espanyol (N/A, Sat, 8 Aug 2026 11:10:00 -0700)
 
 - **Your Matchday Guide for RCD Espanyol**: [Link](https://www.ccfc.co.uk/news/2026/august/07/your-matchday-guide-for-RCD-espanyol/)
