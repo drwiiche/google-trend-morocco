@@ -1,3 +1,10 @@
+### our sticky love netflix (N/A, Sat, 8 Aug 2026 09:30:00 -0700)
+
+- **Breaking Down the Sweet Ending of Romantic K-Drama Our Sticky Love**: [Link](https://time.com/article/2026/08/07/our-sticky-love-k-drama-ending/)
+- **'Our Sticky Love' Netflix Review: Stream It Or Skip It?**: [Link](https://decider.com/2026/08/07/our-sticky-love-netflix-review-stream-it-or-skip-it/)
+- **'D.P.' star Jung Hae-in's 'Our Sticky Love' turns Korean wordplay into romance**: [Link](https://www.koreaherald.com/article/10831998)
+
+
 ### manchester united (N/A, Sat, 8 Aug 2026 08:30:00 -0700)
 
 - **Manchester United handed injury worry as star of pre-season taken off after 20 minutes vs PSG**: [Link](https://uk.sports.yahoo.com/news/manchester-united-handed-injury-worry-153056414.html)
