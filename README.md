@@ -1,3 +1,17 @@
+### italie (N/A, Sat, 8 Aug 2026 04:40:00 -0700)
+
+- **Carlos Echeverria Jesus, politiste : « La crise de Ceuta traduit les ambitions territoriales du Maroc »**: [Link](https://www.lemonde.fr/afrique/article/2026/08/08/carlos-echeverria-jesus-politiste-la-crise-de-ceuta-traduit-les-ambitions-territoriales-du-maroc_6741060_3212.html)
+- **Tensions autour de Schengen : l'Espagne impose des contrôles aux voyageurs venant d'Italie**: [Link](https://fr.euronews.com/my-europe/2026/08/07/madrid-donne-deux-jours-a-rome-pour-lever-les-controles-aux-frontieres-apres-la-crise-migr)
+- **Yassine Sellami - La frontière n’est pas où l’on croit - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/chronique/la-frontiere-nest-pas-ou-lon-croit/)
+
+
+### messi (N/A, Sat, 8 Aug 2026 04:00:00 -0700)
+
+- **Breaking: Lionel Messi's Father Jorge Messi Dies at 68**: [Link](https://www.chosun.com/english/sports-en/2026/08/08/U2WU57IX2RCR3M4BMXBG2W3PHY/)
+- **Lionel Messi's father dies**: [Link](https://nashaniva.com/en/401765)
+- **Argentina national team to play friendly matches in Argentina and China**: [Link](https://mundoalbiceleste.com/2026/08/03/argentina-national-team-to-play-friendly-matches-in-argentina-and-china/)
+
+
 ### إسبانيا (N/A, Sat, 8 Aug 2026 04:10:00 -0700)
 
 - **"فوق السلطة".. أحذية على ساحل سبتة وقضية إبستين تعود للواجهة**: [Link](https://www.aljazeera.net/video/beyond-authority/2026/8/7/%D9%81%D9%88%D9%82-%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A9-%D8%A3%D8%AD%D8%B0%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%B3%D8%A7%D8%AD%D9%84-%D8%B3%D8%A8%D8%AA%D8%A9-%D9%88%D9%82%D8%B6%D9%8A%D8%A9)
