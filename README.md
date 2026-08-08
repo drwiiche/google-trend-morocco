@@ -1,3 +1,10 @@
+### juventus vs inter (N/A, Sat, 8 Aug 2026 05:20:00 -0700)
+
+- **Juventus vs Inter Milan: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5y4pgp2ve0t)
+- **Cambiaso & Spalletti: Games like tomorrow’s are why we play**: [Link](https://www.juventus.com/en/news/articles/cambiaso-spalletti-games-like-tomorrow-s-are-what-we-re-here-for)
+- **Inter takes lead against Juventus with Di Marco’s goal in Australian pre-season clash**: [Link](https://cryptobriefing.com/inter-juventus-di-marco-goal-perth/)
+
+
 ### chelsea – ac milan (N/A, Sat, 8 Aug 2026 05:00:00 -0700)
 
 - **Joao Pedro starts and Cole Palmer returns in predicted Chelsea starting XI vs AC Milan**: [Link](https://www.football.london/chelsea-fc/news/joao-pedro-starts-cole-palmer-34422800)
