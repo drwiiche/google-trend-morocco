@@ -1,3 +1,38 @@
+### barcelona (N/A, Sat, 8 Aug 2026 12:20:00 -0700)
+
+- **Triangular del Barcelona, en directo: amistosos contra Udinese y Nottingham Forest, hoy en vivo**: [Link](https://as.com/futbol/primera/triangular-del-barcelona-en-directo-amistosos-contra-udinese-y-nottingham-forest-hoy-en-vivo-f202608-d/)
+- **Barcelona - Nottingham Forest, en directo | Última hora del triangular de pretemporada hoy, en vivo**: [Link](https://www.marca.com/futbol/2026/08/08/6a77661eb364eacdc85d7b6b-directo.html)
+- **Dónde ver el partido del Barcelona vs Nottingham Forest y Udinese en el triangular de pretemporada hoy gratis por TV, online y en directo**: [Link](https://www.sport.es/es/noticias/barca/donde-ver-barcelona-nottingham-forest-udinese-amistoso-pretemporada-triangular-133166238)
+
+
+### koora (N/A, Sat, 8 Aug 2026 12:00:00 -0700)
+
+- **أزمة غير متوقعة تهدد الرجاء قبل مواجهة فالنسيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7/blt058cb8e879a50f27)
+- **الرجاء يكتسح أشبال الصخور السوداء ودياً**: [Link](https://www.hesport.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D8%B5%D8%AE%D9%88%D8%B1-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D8%A1-%D9%88%D8%AF%D9%8A-450700.html)
+- **الرجاء يضرب بقوة في أول اختبار ودي له استعدادا للموسم الجديد**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A8%D9%82%D9%88%D8%A9-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%88%D8%AF%D9%8A-%D9%84%D9%87-%D8%A7%D8%B3/)
+
+
+### galatasaray – villarreal (N/A, Sat, 8 Aug 2026 12:00:00 -0700)
+
+- **CANLI | Galatasaray - Villarreal hazırlık maçı Canlı Anlatım Galatasaray - Villarreal maçı kadrosu, skoru ve istatistikleri**: [Link](https://www.fanatik.com.tr/galatasaray/live-galatasaray-villarreal-hazirlik-maci-canli-anlatim-galatasaray-villarreal-maci-kadrosu-skoru-ve-2633529)
+- **TV100 FREKANS AYARLARI | Galatasaray-Villarreal maçı TV100 şifreli mi, şifresiz mi? TV100 D-Smart kaçıncı kanalda?**: [Link](https://www.haberturk.com/bilgi/foto/tv100-frekans-ayarlari-galatasaray-villarreal-maci-tv100-sifreli-mi-sifresiz-mi-tv100-d-smart-kacinci-kanalda-3904276)
+- **Galatasaray'da Okan Buruk penaltı kararına büyük tepki! Hazırlık maçında kırmızı gördü**: [Link](https://www.milliyet.com.tr/skorer/galatasarayda-okan-buruk-penalti-kararina-buyuk-tepki-hazirlik-macinda-kirmizi-gordu-7637789)
+
+
+### flashscore (N/A, Sat, 8 Aug 2026 12:00:00 -0700)
+
+- **Liverpool transfers: Ronald Araujo close to season-long loan from Barcelona**: [Link](https://www.bbc.com/sport/football/articles/c4gxvvxldewo)
+- **Darwin Nunez has already told Liverpool all they need to know about Ronald Araujo**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/liverpool-ronald-araujo-barcelona-darwin-34426133)
+- **Transfer news LIVE: Liverpool to sign Araujo, Man City ‘set’ Rodri price after Barcelona bid, Hojbjerg to Newcastle**: [Link](https://www.thesun.co.uk/sport/39958888/transfer-news-live-liverpool-man-city-chelsea-rodri-updates/page/9/)
+
+
+### fc barcelona (N/A, Sat, 8 Aug 2026 12:00:00 -0700)
+
+- **Murió Jorge Messi, el papá de Lionel Messi**: [Link](https://www.infobae.com/deportes/2026/08/08/murio-jorge-messi-el-papa-de-lionel-messi/)
+- **Barça y Real Madrid muestran sus condolencias por el fallecimiento de Jorge Messi**: [Link](https://www.marca.com/futbol/2026/08/08/barca-real-madrid-muestran-condolencias-fallecimiento-jorge-messi.html)
+- **Leo Messi se queda sin ángel de la guarda**: [Link](https://www.sport.es/es/noticias/barca/leo-messi-queda-angel-guarda-133199075)
+
+
 ### barca (N/A, Sat, 8 Aug 2026 11:40:00 -0700)
 
 - **Barcelona's 'triangular' match? Unusual preseason fixture explained**: [Link](https://www.espn.com/soccer/story/_/id/49560010/barcelona-playing-triangular-match-vs-udinese-nottingham-forest-unusual-preseason-fixture-explained)
