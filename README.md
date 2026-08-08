@@ -1,3 +1,17 @@
+### inter miami – cf monterrey (N/A, Sat, 8 Aug 2026 16:40:00 -0700)
+
+- **Is Lionel Messi playing today for Inter Miami vs Monterrey in 2026 Leagues Cup Matchday 2?**: [Link](https://bolavip.com/en/soccer/is-lionel-messi-playing-today-for-inter-miami-vs-monterrey-in-2026-leagues-cup-matchday-2)
+- **Messi leads Inter Miami into Leagues Cup clash with Mexican power Monterrey**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article316796372.html)
+- **Will Messi Play Against Rayados? Here’s the Real Reason He’s Missing Tonight’s Leagues Cup Match**: [Link](https://www.soyfutbol.com/en/news/will-messi-play-against-rayados-heres-the-real-reason-hes-missing-tonights-leagues-cup-match-20260808-0038.html)
+
+
+### the last house (N/A, Sat, 8 Aug 2026 16:40:00 -0700)
+
+- **‘The Last House’ Review: End of the World as They Know It**: [Link](https://www.nytimes.com/2026/08/07/movies/the-last-house-review.html)
+- **‘The Last House’ Review: An Unthrilling Thriller on Netflix**: [Link](https://www.wsj.com/arts-culture/television/the-last-house-review-an-unthrilling-thriller-on-netflix-74c1374f)
+- **'The Last House' ending, explained. Because what?**: [Link](https://mashable.com/entertainment/the-last-house-ending-explained)
+
+
 ### ياسين بونو (N/A, Sat, 8 Aug 2026 16:10:00 -0700)
 
 - **بدون مشاركة.. كيف أجبر ياسين بونو الهلال على القرار الأصعب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AF%D9%88%D9%86-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9--%D9%83%D9%8A%D9%81-%D8%A7%D9%94%D8%AC%D8%A8%D8%B1-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D8%B5%D8%B9%D8%A8/blt3ee158a14ed02108)
