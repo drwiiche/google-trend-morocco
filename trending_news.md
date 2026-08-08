@@ -1,3 +1,10 @@
+### كاس افريقيا للسيدات (N/A, Sat, 8 Aug 2026 14:20:00 -0700)
+
+- **هذا ما قاله مدرب سيدات "الخضر" قبل مواجهة منتخب البلد المنظم (فيديو)**: [Link](https://www.echoroukonline.com/%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D9%82%D8%A7%D9%84%D9%87-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87)
+- **Egypt 1-3 Malawi | Match Highlights l TotalEnergies WAFCON 2026 l Groub C | ملخص مباراة مصر ومالاوي**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D9%81%D9%8A%D8%AF%D9%8A%D9%88%D9%87%D8%A7%D8%AA/egypt-1-3-malawi-match-highlights-l-totalenergies-wafcon-2026-l-groub-c-%D9%85%D9%84%D8%AE%D8%B5-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A/)
+- **سناء مسعودي.. نجمة صنعت المجد من أزقة الدار البيضاء**: [Link](https://snrtnews.com/article/156281)
+
+
 ### bein sport live (N/A, Sat, 8 Aug 2026 14:10:00 -0700)
 
 - **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/football/carabao-cup/articles/watch-live-this-week-on-bein-sports-2026-08-07)
