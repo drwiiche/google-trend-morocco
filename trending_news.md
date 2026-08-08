@@ -1,3 +1,17 @@
+### bein sport (N/A, Sat, 8 Aug 2026 13:10:00 -0700)
+
+- **Manchester United announce transfer exit with up to £14million set to be banked**: [Link](https://www.manchestereveningnews.co.uk/sport/football/manchester-united-announce-transfer-exit-34406062)
+- **New EFL signing immediately forced to clarify ‘stepping stone’ comment amid backlash**: [Link](https://talksport.com/football/4500100/radek-vitek-middlesbrough-immediately-forced-clarify-comment-backlash/)
+- **None**: [Link](https://www.mfc.co.uk/news/2026/august/08/radek-vitek-first-boro-interview/)
+
+
+### لحم (N/A, Sat, 8 Aug 2026 12:10:00 -0700)
+
+- **ضبط 7 أطنان مصنعات سجق وكفتة وهمبورجر غير صالحة للاستهلاك بالعبور**: [Link](https://www.youm7.com/story/2026/8/8/%D8%B6%D8%A8%D8%B7-7-%D8%A3%D8%B7%D9%86%D8%A7%D9%86-%D9%85%D8%B5%D9%86%D8%B9%D8%A7%D8%AA-%D8%B3%D8%AC%D9%82-%D9%88%D9%83%D9%81%D8%AA%D8%A9-%D9%88%D9%87%D9%85%D8%A8%D9%88%D8%B1%D8%AC%D8%B1-%D8%BA%D9%8A%D8%B1-%D8%B5%D8%A7%D9%84%D8%AD%D8%A9-%D9%84%D9%84%D8%A7%D8%B3%D8%AA%D9%87%D9%84%D8%A7%D9%83/7507154)
+- **«سلامة الغذاء بالإسماعيلية» تضبط 8 كيلو مكملات غذائية وهرمونات منتهية الصلاحية**: [Link](https://m.akhbarelyom.com/news/newdetails/4860782/1/%D8%B3%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D8%BA%D8%B0%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84%D9%8A%D8%A9/amp)
+- **ضبط أكثر من طنين عينات ومصنعات الدجاج والجمبري غير صالحة للاستهلاك بالمنصورة**: [Link](https://gate.ahram.org.eg/News/5883156.aspx)
+
+
 ### fc barcelone (N/A, Sat, 8 Aug 2026 12:40:00 -0700)
 
 - **DIRECT. FC Barcelone: suivez en live les matchs du Barça face à Nottingham Forest et Udinese**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-fc-barcelone-suivez-en-live-les-matchs-du-barca-face-a-nottingham-forest-et-udinese_LS-202608080212.html)
