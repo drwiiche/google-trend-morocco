@@ -1,3 +1,45 @@
+### bein sport live (N/A, Sat, 8 Aug 2026 14:10:00 -0700)
+
+- **Watch live this week on beIN SPORTS**: [Link](https://www.beinsports.com/en-au/football/carabao-cup/articles/watch-live-this-week-on-bein-sports-2026-08-07)
+- **MATCH STATS: Cabo Verde face Cameroon in TotalEnergies CAF WAFCON Morocco 2026 Group D**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-cabo-verde-face-cameroon-in-totalenergies-caf-wafcon-morocco-2026-group-d/)
+- **Cape Verde Women 1-1 Cameroon Women in Africa Cup of Nations Round 3**: [Link](https://africasoccer.com/cape-verde-women-1-1-cameroon-women-in-africa-cup-of-nations-round-3/)
+
+
+### iphone 18 pro (N/A, Sat, 8 Aug 2026 14:00:00 -0700)
+
+- **Apple iPhone 18 Pro September Release Date Signaled In Keynote Update**: [Link](https://www.forbes.com/sites/davidphelan/2026/08/03/apple-iphone-18-pro-september-release-date-signaled-in-keynote-update/)
+- **Top Stories: Apple's September Announcements, MacBook Air Shortages, and More**: [Link](https://www.macrumors.com/2026/08/08/top-stories-apple-september-announcements/)
+- **iPhone 18 Pro vs iPhone 16 Pro: All expected differences**: [Link](https://www.phonearena.com/reviews/iphone-18-pro-vs-iphone-16-pro_id8006)
+
+
+### wafcon (N/A, Sat, 8 Aug 2026 13:50:00 -0700)
+
+- **MATCH STATS: Côte d’Ivoire face Algeria in TotalEnergies CAF WAFCON Morocco 2026 quarter-final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-cote-d-ivoire-face-algeria-in-totalenergies-caf-wafcon-morocco-2026-quarter-final/)
+- **Algeria reach WAFCON semi-finals and World Cup**: [Link](https://en.hespress.com/143465-algeria-reach-wafcon-semi-finals-and-world-cup.html)
+- **Cote d’Ivoire and Algeria chase historic progress in Women’s AFCON quarter-final**: [Link](https://africasoccer.com/cote-divoire-and-algeria-chase-historic-progress-in-womens-afcon-quarter-final/)
+
+
+### هانزي فليك (N/A, Sat, 8 Aug 2026 13:50:00 -0700)
+
+- **هانزي فليك لا يعرف الراحة: برشلونة هرب من أمريكا فـ"وجد مشاكل أوروبا والمغرب".. والخسائر عديدة**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D8%A7%D9%86%D8%B2%D9%8A-%D9%81%D9%84%D9%8A%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A/bltb5d8d89b595bb664)
+- **3 أنباء سارة تثلج صدر فليك في برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/3-%D8%A7%D9%94%D9%86%D8%A8%D8%A7%D8%A1-%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AA%D8%AB%D9%84%D8%AC-%D8%B5%D8%AF%D8%B1-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt9f86e9d1886e2d66)
+- **فيرمين لوبيز يمنح برشلونة دفعة قوية قبل انطلاق الموسم**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=03082026&id=f59bc268-4a2f-4e13-9c03-fab328f20cb1)
+
+
+### sports (N/A, Sat, 8 Aug 2026 13:50:00 -0700)
+
+- **Sports injuries in kids: 5 signs to watch for**: [Link](https://www.geisinger.org/health-and-wellness/wellness-articles/2026/08/03/19/16/signs-of-sports-injuries-in-kids)
+- **Special Care for Sports-Related Concussions**: [Link](https://www.uvahealth.com/healthy-practice/sports-related-concussion-program)
+- **STHS Children's Webinar to Help Parents Protect Young Athletes from Sports-Related Injuries, Aug. 19th**: [Link](https://megadoctornews.com/sths-childrens-webinar-to-help-parents-protect-young-athletes-from-sports-related-injuries-aug-19th/)
+
+
+### وزارة التربية والتعليم (N/A, Sat, 8 Aug 2026 13:50:00 -0700)
+
+- **وزارة التربية تؤكد موعد الدخول المدرسي: الانطلاقة الفعلية يوم 7 شتنبر المقبل**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%A4%D9%83%D8%AF-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF-1789107.html)
+- **خمس مهاجرات قاصرات دون 14 سنة يصلن إلى مستشفى سبتة بعد اعتداءات جنسية**: [Link](https://ar.telquel.ma/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3/)
+- **وزارة التربية الوطنية تعلن عن مواعيد الدخول المدرسي المقبل**: [Link](https://2m.ma/ar/news/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84-20260807)
+
+
 ### مباريات اليوم (N/A, Sat, 8 Aug 2026 13:40:00 -0700)
 
 - **جدول مباريات اليوم السبت 8 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-8-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt9566eb3caa151930)
