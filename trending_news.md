@@ -1,3 +1,31 @@
+### real madrid (N/A, Sat, 8 Aug 2026 10:10:00 -0700)
+
+- **Ferencvaros - Real Madrid, en directo: partido amistoso hoy, en vivo**: [Link](https://as.com/futbol/primera/ferencvaros-real-madrid-en-directo-partido-amistoso-hoy-en-vivo-f202608-d/)
+- **Convocatoria del Real Madrid contra el Ferencvaros**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-ferencvaros-07-08-2026)
+- **Ferencvárosi TC - R. Madrid en directo**: [Link](https://www.marca.com/futbol/amistosos-clubes/ferencvarosi-tc-r-madrid/2026/08/08/01_0111_20260808_227_186-directo.html)
+
+
+### منتخب المغرب لكرة القدم (N/A, Sat, 8 Aug 2026 10:10:00 -0700)
+
+- **المنتخب الوطني النسوي ينهي استعداداته للقاء جنوب أفريقيا**: [Link](https://frmf.ma/articles/can-feminine-maroc-2026-dernier-entrainement-avant-les-quarts-de-finale)
+- **المغربيات يتزودن بالثقة لملاقاة جنوب إفريقيا في ربع نهائي "كان السيدات"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D8%AA-%D9%8A%D8%AA%D8%B2%D9%88%D8%AF%D9%86-%D8%A8%D8%A7%D9%84%D8%AB%D9%82%D8%A9-%D9%84%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%AC%D9%86%D9%88%D8%A8-1788769.html)
+- **من يعبر إلى المربع الذهبي؟ .. مواجهات نارية في ربع نهائي كان السيدات**: [Link](https://www.medi1news.com/ar/article/404590.html)
+
+
+### خبر (N/A, Sat, 8 Aug 2026 10:10:00 -0700)
+
+- **انطلاق فعاليات "موسم ثقافة الضفة" من مدينة سيلبابي**: [Link](https://www.alakhbar.info/6a7761ed02856500018d4126/)
+- **وزيرة التجارة والسياحة تشرف من سيلبابي على إطلاق موسم «ثقافة الضفة»**: [Link](https://alwiam.info/ar/51156)
+- **«كمين» ديمقراطي ينتظر ترامب في الكونغرس.. تحقيقات واستدعاءات منتظرة**: [Link](https://al-ain.com/article/trump-congress-usa)
+
+
+### ferencváros tc – real madrid (N/A, Sat, 8 Aug 2026 10:00:00 -0700)
+
+- **Ferencvaros vs. Real Madrid: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/ferencvaros-vs-real-madrid-preview-predictions-lineups-8-8-26)
+- **Ferencvarosi TC vs Real Madrid – Prediction, Where to Watch, Kick-off Time and Lineups 08-08**: [Link](https://oddsscanner.com/predictions/football/ferencvarosi-tc-x-real-madrid-08-08-2026)
+- **More tickets available for the Real Madrid match**: [Link](https://www.fradi.hu/en/football/men-s/news/more-tickets-available-for-the-real-madrid-match)
+
+
 ### our sticky love netflix (N/A, Sat, 8 Aug 2026 09:30:00 -0700)
 
 - **Breaking Down the Sweet Ending of Romantic K-Drama Our Sticky Love**: [Link](https://time.com/article/2026/08/07/our-sticky-love-k-drama-ending/)
