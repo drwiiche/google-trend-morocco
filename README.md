@@ -1,3 +1,29 @@
+### tiempo (N/A, Fri, 7 Aug 2026 23:40:00 -0700)
+
+
+
+
+### الطقس (N/A, Fri, 7 Aug 2026 23:10:00 -0700)
+
+- **نشرة إنذارية تتوقع زخات في المغرب**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1788677.html)
+- **توقعات أحوال الطقس لليوم الاثنين**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AD%D8%A7%D8%B1%D8%A9-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D9%87%D8%A8%D8%A7/)
+- **نشرة إنذارية..استمرار موجة الحرارة وزخات رعدية من اليوم الجمعة إلى الأحد**: [Link](https://www.ahdath.info/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%B2%D8%AE/)
+
+
+### weather (N/A, Fri, 7 Aug 2026 23:10:00 -0700)
+
+- **A tale of two pitches as dry weather hits clubs**: [Link](https://www.bbc.co.uk/news/articles/c5ywl92748xo)
+- **Wolverhampton non-league club counts cost of dry pitches**: [Link](https://www.bbc.com/news/articles/cwyr1gpv12yo)
+- **Wolverhampton non-league club counts cost of dry pitches**: [Link](https://www.bbc.co.uk/news/articles/cwyr1gpv12yo)
+
+
+### coupe d'afrique des nations de football 2025 (N/A, Fri, 7 Aug 2026 15:40:00 -0700)
+
+- **CAF : Samuel Eto'o blanchi en appel dans l'affaire du match face au Maroc**: [Link](https://fr.hespress.com/484393-caf-samuel-etoo-blanchi-en-appel-dans-laffaire-du-match-face-au-maroc.html)
+- **CAN 2025 : Les sanctions contre Samuel Eto’o après le match Maroc – Cameroun annulées**: [Link](https://www.yabiladi.com/articles/details/200244/2025-sanctions-contre-samuel-eto-o.html)
+- **Maroc-Cameroun: la CAF annule la sanction de Samuel Eto’o (CAN 2025)**: [Link](https://www.lesiteinfo.com/sport/679969-maroc-cameroun-la-caf-annule-la-sanction-de-samuel-etoo-can-2025.html)
+
+
 ### can féminine 2026 maroc (N/A, Fri, 7 Aug 2026 22:50:00 -0700)
 
 - **Suspense, émotions et exploits : les huit quarts de finalistes de la CAN Féminine TotalEnergies CAF Maroc 2026 sont connus**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/suspense-emotions-et-exploits-les-huit-quarts-de-finalistes-de-la-can-feminine-totalenergies-caf-maroc-2026-sont-connus/)
