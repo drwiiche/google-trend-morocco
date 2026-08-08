@@ -1,3 +1,17 @@
+### eclipse solaire maroc (N/A, Sat, 8 Aug 2026 02:30:00 -0700)
+
+- **CARTE. Où et quand l'éclipse du 12 août sera-t-elle la plus impressionnante dans l'Hexagone**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire/carte-ou-et-quand-l-eclipse-du-12-aout-sera-t-elle-la-plus-impressionnante-dans-l-hexagone_8135849.html)
+- **Lunettes pour éclipse solaire - Des marquages fantaisistes, mais la sécurité assurée**: [Link](https://www.quechoisir.org/actualite-lunettes-pour-eclipse-solaire-des-marquages-fantaisistes-mais-la-securite-assuree-n177698/)
+- **Comment filmer et photographier l'éclipse sans abîmer l'appareil photo du téléphone**: [Link](https://fr.euronews.com/next/2026/08/07/comment-filmer-et-photographier-leclipse-sans-abimer-lappareil-photo-du-telephone)
+
+
+### rentrée scolaire (N/A, Sat, 8 Aug 2026 02:10:00 -0700)
+
+- **Rentrée scolaire 2026-2027: voici les dates à retenir pour élèves et enseignants**: [Link](https://fr.le360.ma/societe/rentree-scolaire-2026-2027-voici-les-dates-a-retenir-pour-eleves-et-enseignants_RYP6BIUGCRB33KVH37R5DKMCZQ/)
+- **Rentrée scolaire : Le ministère détaille le calendrier**: [Link](https://www.leconomiste.com/flash-infos/rentree-scolaire-le-ministere-detaille-le-calendrier/)
+- **MEN : la prochaine rentrée scolaire se déroulera comme prévu par l’arrêté n°047.26**: [Link](https://fr.hespress.com/484539-men-la-prochaine-rentree-scolaire-se-deroulera-comme-prevu-par-larrete-n047-26.html)
+
+
 ### المهدي موهوب (N/A, Fri, 7 Aug 2026 16:50:00 -0700)
 
 - **المهدي موهوب ينتقل إلى يونايتد الإماراتي على سبيل الإعارة**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%A7%D9%84%D9%85%D9%87%D8%AF%D9%8A-%D9%85%D9%88%D9%87%D9%88%D8%A8-%D9%8A%D9%86%D8%B6%D9%85-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A5%D9%84%D9%89-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%85%D8%B9-%D8%A3%D8%AD%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D8%A7%D8%A1/23876)
