@@ -1,3 +1,10 @@
+### كاس امم افريقيا للسيدات (N/A, Fri, 7 Aug 2026 18:30:00 -0700)
+
+- **المغربيات يتزودن بالثقة لملاقاة جنوب إفريقيا في ربع نهائي "كان السيدات"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D8%AA-%D9%8A%D8%AA%D8%B2%D9%88%D8%AF%D9%86-%D8%A8%D8%A7%D9%84%D8%AB%D9%82%D8%A9-%D9%84%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%AC%D9%86%D9%88%D8%A8-1788769.html)
+- **المنتخب الوطني النسوي يواصل استعداداته لمباراة جنوب إفريقيا**: [Link](https://frmf.ma/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-poursuivent-les-entrainements-avant-les-quarts-de-finale)
+- **من يعبر إلى المربع الذهبي؟ .. مواجهات نارية في ربع نهائي كان السيدات**: [Link](https://www.medi1news.com/ar/article/404590.html)
+
+
 ### akdital (N/A, Fri, 7 Aug 2026 16:20:00 -0700)
 
 - **En Arabie saoudite, Akdital ouvre le capital de sa holding internationale à Arab Invest**: [Link](https://ledesk.ma/encontinu/en-arabie-saoudite-akdital-ouvre-le-capital-de-sa-holding-internationale-a-arab-invest/)
