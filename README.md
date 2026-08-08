@@ -1,3 +1,17 @@
+### can féminine 2026 maroc (N/A, Fri, 7 Aug 2026 22:50:00 -0700)
+
+- **Suspense, émotions et exploits : les huit quarts de finalistes de la CAN Féminine TotalEnergies CAF Maroc 2026 sont connus**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/suspense-emotions-et-exploits-les-huit-quarts-de-finalistes-de-la-can-feminine-totalenergies-caf-maroc-2026-sont-connus/)
+- **CAN féminine Maroc 2026: Les Lionnes de l’Atlas poursuivent les entraînements avant les quarts de finale**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-poursuivent-les-entrainements-avant-les-quarts-de-finale)
+- **CAN féminine : “Nous avons bien analysé l’Afrique du Sud pour aller chercher la victoire”**: [Link](https://mobile.telquel.ma/instant-t/2026/08/07/can-feminine-nous-avons-bien-analyse-lafrique-du-sud-pour-aller-chercher-la-victoire_2002679/)
+
+
+### gta 6 (N/A, Fri, 7 Aug 2026 19:20:00 -0700)
+
+- **Grand Theft Auto VI: An Extended Look**: [Link](https://www.rockstargames.com/newswire/article/9k2kaa1o3297k9/grand-theft-auto-vi-an-extended-look)
+- **‘GTA 6’ to Debut ‘Extended Look’ on Netflix and YouTube on Aug. 27**: [Link](https://variety.com/2026/gaming/news/gta-6-trailer-netflix-youtube-aug-27-1236789693/)
+- **Game On: ‘Grand Theft Auto VI’ Netflix special**: [Link](https://www.cnn.com/2026/08/08/entertainment/video/hollywood-entertainment-video-games-grand-theft-auto-vi-netflix-pokemon-pokopia-marvel-tokon)
+
+
 ### ربع النهائي (N/A, Fri, 7 Aug 2026 14:30:00 -0700)
 
 - **المغربيات يتزودن بالثقة لملاقاة جنوب إفريقيا في ربع نهائي "كان السيدات"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7%D8%AA-%D9%8A%D8%AA%D8%B2%D9%88%D8%AF%D9%86-%D8%A8%D8%A7%D9%84%D8%AB%D9%82%D8%A9-%D9%84%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%AC%D9%86%D9%88%D8%A8-1788769.html)
