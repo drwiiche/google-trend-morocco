@@ -1,3 +1,17 @@
+### zone turf (N/A, Sat, 8 Aug 2026 00:40:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 6 Jockey**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-6-jockey-130263.html)
+- **Les pronos hippiques du samedi 8 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-8-aout-2026_AN-202608070397.html)
+- **Les Notes des partants du Quinté+ de ce samedi 8 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-8-aout)
+
+
+### nasser bourita (N/A, Fri, 7 Aug 2026 23:40:00 -0700)
+
+- **Investiture d’Abelardo de la Espriella en Colombie : le nouveau président d’extrême droite promet l’« ordre », Washington annonce un milliard de dollars d’aide**: [Link](https://www.lemonde.fr/international/article/2026/08/08/investi-president-de-la-colombie-abelardo-de-la-espriella-promet-une-offensive-contre-le-narcotrafic_6740541_3210.html)
+- **Bourita à Cali pour baliser le vote colombien au Conseil de sécurité**: [Link](https://ledesk.ma/2026/08/07/bourita-a-cali-pour-baliser-le-vote-colombien-au-conseil-de-securite/)
+- **Nasser Bourita représente le roi à la cérémonie d'investiture du nouveau président colombien**: [Link](https://mobile.telquel.ma/instant-t/2026/08/07/nasser-bourita-represente-le-roi-a-la-ceremonie-dinvestiture-du-nouveau-president-colombien_2002588/)
+
+
 ### tiempo (N/A, Fri, 7 Aug 2026 23:40:00 -0700)
 
 
