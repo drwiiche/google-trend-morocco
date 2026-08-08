@@ -1,3 +1,17 @@
+### fc barcelone (N/A, Sat, 8 Aug 2026 12:40:00 -0700)
+
+- **DIRECT. FC Barcelone: suivez en live les matchs du Barça face à Nottingham Forest et Udinese**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-fc-barcelone-suivez-en-live-les-matchs-du-barca-face-a-nottingham-forest-et-udinese_LS-202608080212.html)
+- **Où et quand voir la triangulaire ?**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4553717/ou-et-quand-voir-la-triangulaire-)
+- **Flick écarte 3 talents du stage de Barcelone : quelle est la situation de Hamza Abdelkrim ?**: [Link](https://www.goal.com/fr/news/flick-ecarte-3-talents-du-stage-de-barcelone-quelle-est-la-situation-de-hamza-abdelkrim/blt5c83d4f1fa9c11a8)
+
+
+### caf women (N/A, Sat, 8 Aug 2026 12:40:00 -0700)
+
+- **MATCH STATS: Morocco face South Africa in TotalEnergies CAF WAFCON Morocco 2026 quarter-final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-morocco-face-south-africa-in-totalenergies-caf-wafcon-morocco-2026-quarter-final/)
+- **Morocco ready for South Africa clash as Vilda targets direct World Cup qualification**: [Link](https://en.hespress.com/143376-morocco-ready-for-south-africa-clash-as-vilda-targets-direct-world-cup-qualification.html)
+- **Women's AFCON 2026 Quarterfinals: Fixtures, kickoff times and the road to the 2027 FIFA Women's World Cup**: [Link](https://www.beinsports.com/en-us/soccer/womens-africa-cup-of-nations/articles/women-s-afcon-2026-quarterfinals-fixtures-kickoff-times-and-the-road-to-the-2027-fifa-women-s-world-cup-2026-08-07)
+
+
 ### barcelona (N/A, Sat, 8 Aug 2026 12:20:00 -0700)
 
 - **Triangular del Barcelona, en directo: amistosos contra Udinese y Nottingham Forest, hoy en vivo**: [Link](https://as.com/futbol/primera/triangular-del-barcelona-en-directo-amistosos-contra-udinese-y-nottingham-forest-hoy-en-vivo-f202608-d/)
