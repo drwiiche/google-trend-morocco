@@ -1,3 +1,10 @@
+### akdital (N/A, Fri, 7 Aug 2026 16:20:00 -0700)
+
+- **En Arabie saoudite, Akdital ouvre le capital de sa holding internationale à Arab Invest**: [Link](https://ledesk.ma/encontinu/en-arabie-saoudite-akdital-ouvre-le-capital-de-sa-holding-internationale-a-arab-invest/)
+- **Akdital ouvre 15% de sa holding internationale à Arab Invest**: [Link](https://medias24.com/2026/08/07/akdital-ouvre-15-de-sa-holding-internationale-a-arab-invest-1738331/)
+- **Akdital fait entrer un fonds d'investissement panarabe majeur au capital de sa holding internationale**: [Link](https://lematin.ma/economie/akdital-arab-invest-prend-15-de-sa-holding-internationale/359841)
+
+
 ### physalie (N/A, Fri, 7 Aug 2026 16:30:00 -0700)
 
 - **Des plages espagnoles fermées à cause d’une invasion de galères portugaises : une centaine de personnes piquées**: [Link](https://www.rtl.be/actu/monde/europe/des-plages-espagnoles-fermees-cause-dune-invasion-de-galeres-portugaises-une/2026-08-06/article/796597)
