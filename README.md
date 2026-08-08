@@ -1,3 +1,10 @@
+### manchester united (N/A, Sat, 8 Aug 2026 08:30:00 -0700)
+
+- **Manchester United handed injury worry as star of pre-season taken off after 20 minutes vs PSG**: [Link](https://uk.sports.yahoo.com/news/manchester-united-handed-injury-worry-153056414.html)
+- **Man Utd suffer huge injury scare as Mount forced off against PSG**: [Link](https://www.standard.co.uk/sport/football/man-utd-injury-news-mount-b1292788.html)
+- **Manchester United star suffers injury in PSG friendly**: [Link](https://centredevils.co.uk/news/manchester-united-star-suffers-injury-in-psg-friendly/)
+
+
 ### psg (N/A, Sat, 8 Aug 2026 08:10:00 -0700)
 
 - **Mercato : Ferran Torres s'est mis d'accord avec le PSG pour un contrat de 5 ans, négociations en cours entre Paris et le Barça**: [Link](https://www.lequipe.fr/Football/Actualites/Mercato-ferran-torres-s-est-mis-d-accord-avec-le-psg-pour-un-contrat-de-5-ans-negociations-en-cours-entre-paris-et-le-barca/1709669)
