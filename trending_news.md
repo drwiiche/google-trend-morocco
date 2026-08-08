@@ -1,3 +1,51 @@
+### coventry city – espanyol (N/A, Sat, 8 Aug 2026 11:10:00 -0700)
+
+- **Your Matchday Guide for RCD Espanyol**: [Link](https://www.ccfc.co.uk/news/2026/august/07/your-matchday-guide-for-RCD-espanyol/)
+- **Preview: Coventry City vs Espanyol - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/coventry-city/preview/coventry-vs-espanyol-prediction-team-news-lineups_602528.html)
+
+
+### real madrid match (N/A, Sat, 8 Aug 2026 11:10:00 -0700)
+
+- **DIRECT. Ferencvaros-Real Madrid: belle soirée madrilène, des stars de retour, suivez le match de préparation des Merengue en live**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-ferencvaros-real-madrid-suivez-le-match-de-preparation-des-merengue-en-live_LS-202608080196.html)
+- **Ferencvaros-Real Madrid : Budapest accueille le deuxième test de la pré-saison**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/preliminaires/ferencvaros-real-madrid-segundo-test-de-la-pretemporada-08-08-2026)
+- **À quelle heure et sur quelle chaîne voir le match de pré-saison entre le Real Madrid et Ferencvaros ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-le-match-de-pre-saison-entre-le-real-madrid-et-ferencvaros/1709232)
+
+
+### رودري (N/A, Sat, 8 Aug 2026 11:00:00 -0700)
+
+- **ضياع رودري ليس نهاية العالم.. كيف يستفيق ريال مدريد من صفعة برشلونة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B6%D9%8A%D8%A7%D8%B9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%84%D9%8A%D8%B3-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85--%D9%83%D9%8A%D9%81-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D9%82-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D8%B5%D9%81%D8%B9%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltb7b14558f5426ff4)
+- **برشلونة في طريقه لتقديم عرض ثانٍ لضم رودري من السيتي**: [Link](https://radiomars.ma/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%B7%D8%B1%D9%8A%D9%82%D9%87-%D9%84%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D8%B9%D8%B1%D8%B6-%D8%AB%D8%A7%D9%86%D9%8D-%D9%84%D8%B6%D9%85-%D8%B1%D9%88/)
+- **مورينيو غاضب بعد تعثر صفقة رودري مع ريال مدريد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%BA%D8%A7%D8%B6%D8%A8-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/23899)
+
+
+### ferencváros - real madrid (N/A, Sat, 8 Aug 2026 10:50:00 -0700)
+
+- **Extraprofitra számít a Fradi, az ultrák keményen megfenyegették a „divatszurkolókat”**: [Link](https://index.hu/sport/futball/2026/08/08/real-madrid-jegyarak-ferencvaros-borsos-biztonsag-groupama-arena/)
+- **A Ferencváros elleni kezdőcsapat**: [Link](https://penamadridista.hu/2026/08/08/a-ferencvaros-elleni-kezdocsapat/)
+- **A legendás Vidi elleni kupadöntő feledhetetlen – a Real Madrid magyarok elleni meccsei**: [Link](https://www.nemzetisport.hu/spanyol-labdarugas/2026/08/a-legendas-vidi-elleni-kupadonto-feledhetetlen-a-real-madrid-magyarok-elleni-meccsei)
+
+
+### maroc vs afrique du sud (N/A, Sat, 8 Aug 2026 10:50:00 -0700)
+
+- **Les statistiques clés avant le quart de finale entre la Côte d’Ivoire et l’Algérie**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-statistiques-cles-avant-le-quart-de-finale-entre-la-cote-d-ivoire-et-l-algerie/)
+- **Maroc-Afrique du Sud (CAN féminine) : quelle heure, quelles chaînes**: [Link](https://medias24.com/2026/08/08/maroc-afrique-du-sud-can-feminine-quelle-heure-quelles-chaines-1738207/)
+- **CAN féminine : Sakina Ouzraoui, l’art de déséquilibrer les défenses**: [Link](https://mobile.telquel.ma/2026/08/07/can-feminine-sakina-ouzraoui-lart-de-desequilibrer-les-defenses_2002673)
+
+
+### خوليان ألفاريز (N/A, Sat, 8 Aug 2026 10:30:00 -0700)
+
+- **فشل وشيك.. برشلونة يجهز لصفقتين بميزانية "ألفاريز"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%B4%D9%84-%D9%88%D8%B4%D9%8A%D9%83--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AC%D9%87%D8%B2-%D9%84%D8%B5%D9%81%D9%82%D8%AA%D9%8A%D9%86-%D8%A8%D9%85%D9%8A%D8%B2%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2/bltb828ce1fbe5ba02b)
+- **سيميوني يؤكد تمسك أتليتيكو مدريد بخدمات خوليان ألفاريس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D8%AA%D9%85%D8%B3%D9%83-%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%AE%D8%AF%D9%85%D8%A7%D8%AA-%D8%AE%D9%88%D9%84%D9%8A%D8%A7%D9%86-%D8%A3%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B3-2026-08-08)
+- **قدم.. مدرب أتلتيكو مدريد الإسباني يتمسك ببقاء الأرجنتيني ألفاريز**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A8%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A-%D8%A3%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2/4021913)
+
+
+### yalla shoot (N/A, Sat, 8 Aug 2026 10:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة برشلونة ونوتنجهام فورست الودية التحضيرية للموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%86%D9%88%D8%AA%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%81%D9%88%D8%B1%D8%B3%D8%AA-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte4c21d9f8d913cd9)
+- **ما القنوات الناقلة لمباراة أودينيزي وبرشلونة الودية التحضيرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D9%88%D8%AF%D9%8A%D9%86%D9%8A%D8%B2%D9%8A-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta97ab0a512deb38e)
+- **القنوات الناقلة لمباراة برشلونة ونوتنجهام فورست الودية والموعد.. وموقف حمزة عبدالكريم**: [Link](https://www.almasryalyoum.com/news/details/4332639)
+
+
 ### فيرينكفاروسي ضد الريال (N/A, Sat, 8 Aug 2026 10:20:00 -0700)
 
 - **ما القنوات الناقلة لمباراة فرينكفاروزي وريال مدريد الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D9%8A%D9%86%D9%83%D9%81%D8%A7%D8%B1%D9%88%D8%B2%D9%8A-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt641387a6e6a1e854)
