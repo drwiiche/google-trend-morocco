@@ -1,3 +1,17 @@
+### فيرينكفاروسي ضد الريال (N/A, Sat, 8 Aug 2026 10:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة فرينكفاروزي وريال مدريد الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D9%8A%D9%86%D9%83%D9%81%D8%A7%D8%B1%D9%88%D8%B2%D9%8A-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt641387a6e6a1e854)
+- **ما القنوات الناقلة لمباراة ريال مدريد وفرينسفاروشي الودية التحضيرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt13faa996afb7f73e)
+- **قائمة ريال مدريد لمواجهة فيرينكفاروس**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/squad-call/convocatoria-del-real-madrid-contra-el-ferencvaros-07-08-2026)
+
+
+### matchs amicaux (N/A, Sat, 8 Aug 2026 10:20:00 -0700)
+
+- **« Il ne faut pas se tromper, on n’aura pas le temps de se retourner » : toujours dans l’attente de recrues au FC Lorient, Alexandre Dujeux garde confiance**: [Link](https://www.letelegramme.fr/sports/football/fc-lorient/il-ne-faut-pas-se-tromper-on-naura-pas-le-temps-de-se-retourner-toujours-dans-lattente-de-recrues-au-fc-lorient-alexandre-dujeux-garde-confiance-7097057.php)
+- **FC Lorient - Angers Sco. À quelle heure et comment suivre le match amical ?**: [Link](https://www.ouest-france.fr/sport/football/fc-lorient/fc-lorient-angers-sco-a-quelle-heure-et-comment-suivre-le-match-amical-71c74dde-9193-11f1-affe-b5734e615deb)
+- **Inzinzac-Lochrist. Un match de gala au service de l’US Montagnarde**: [Link](https://lorient.maville.com/actu/actudet_-inzinzac-lochrist-un-match-de-gala-au-service-de-l-us-montagnarde_-7432717_actu.Htm)
+
+
 ### real madrid (N/A, Sat, 8 Aug 2026 10:10:00 -0700)
 
 - **Ferencvaros - Real Madrid, en directo: partido amistoso hoy, en vivo**: [Link](https://as.com/futbol/primera/ferencvaros-real-madrid-en-directo-partido-amistoso-hoy-en-vivo-f202608-d/)
