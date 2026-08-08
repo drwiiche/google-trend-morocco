@@ -1,3 +1,17 @@
+### west ham – portsmouth (N/A, Sat, 8 Aug 2026 07:20:00 -0700)
+
+- **How to watch West Ham vs Portsmouth: TV channel and live stream for Carabao Cup today**: [Link](https://www.standard.co.uk/sport/football/how-to-watch-west-ham-vs-portsmouth-tv-channel-live-stream-carabao-cup-b1292753.html)
+- **Paddy Power Carabao Offer: Bet £5, Get £30 for West Ham v Portsmouth**: [Link](https://www.oddschecker.com/insight/football/20260808-paddy-power-carabao-cup-offer-bet-5-get-30-for-west-ham-v-portsmouth)
+- **This Week's Opposition: West Ham United**: [Link](https://www.expressfm.com/news/football/this-weeks-opposition-west-ham-united/)
+
+
+### swansea – birmingham (N/A, Sat, 8 Aug 2026 07:20:00 -0700)
+
+- **Team news | Swansea City v Birmingham City**: [Link](https://www.swanseacity.com/news/team-news-swansea-city-v-birmingham-city-5)
+- **Football Bet of the Day: Jack Ogalbe has a 13-10 selection from the EFL Cup**: [Link](https://www.racingpost.com/sport/football-tips/efl-cup/football-bet-of-the-day-jack-ogalbe-has-a-13-10-selection-from-the-efl-cup-afI9e5s6UKxX/)
+- **Swansea City news: Ross Stewart not ready as Goncalo Franco eyes early return**: [Link](https://www.bbc.com/sport/football/articles/ckg9d0mjrd0o)
+
+
 ### éclipse solaire (N/A, Sat, 8 Aug 2026 07:10:00 -0700)
 
 - **CARTE. Où et quand l'éclipse du 12 août sera-t-elle la plus impressionnante dans l'Hexagone**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire/carte-ou-et-quand-l-eclipse-du-12-aout-sera-t-elle-la-plus-impressionnante-dans-l-hexagone_8135849.html)
