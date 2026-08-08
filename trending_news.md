@@ -1,3 +1,10 @@
+### éclipse solaire (N/A, Sat, 8 Aug 2026 07:10:00 -0700)
+
+- **CARTE. Où et quand l'éclipse du 12 août sera-t-elle la plus impressionnante dans l'Hexagone**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire/carte-ou-et-quand-l-eclipse-du-12-aout-sera-t-elle-la-plus-impressionnante-dans-l-hexagone_8135849.html)
+- **Lunettes pour éclipse solaire - Des marquages fantaisistes, mais la sécurité assurée**: [Link](https://www.quechoisir.org/actualite-lunettes-pour-eclipse-solaire-des-marquages-fantaisistes-mais-la-securite-assuree-n177698/)
+- **Comment filmer et photographier l'éclipse sans abîmer l'appareil photo du téléphone**: [Link](https://fr.euronews.com/next/2026/08/07/comment-filmer-et-photographier-leclipse-sans-abimer-lappareil-photo-du-telephone)
+
+
 ### تشيلسي ضد ميلان (N/A, Sat, 8 Aug 2026 06:40:00 -0700)
 
 - **ما القنوات الناقلة لمباراة تشيلسي وميلان الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltef0ed86768d49f91)
