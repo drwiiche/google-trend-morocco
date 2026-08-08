@@ -1,3 +1,10 @@
+### كويكب (N/A, Sat, 8 Aug 2026 03:30:00 -0700)
+
+- **خبير في وكالة "ناسا" يدعو البشرية إلى الاستعداد لاصطدام محتمل بكويكب**: [Link](https://www.hespress.com/%D8%AE%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%B3%D8%A7-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84-1789105.html)
+- **قبل مروره التاريخي.. أبوفيس مهدد بالاصطدام بحطام فضائي**: [Link](https://www.khlaasa.net/1458407)
+- **خبير في وكالة “ناسا” يدعو البشرية إلى الاستعداد لاصطدام محتمل بكويكب**: [Link](https://mnamerica.com/%D8%AE%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%B3%D8%A7-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84/)
+
+
 ### eclipse solaire maroc (N/A, Sat, 8 Aug 2026 02:30:00 -0700)
 
 - **CARTE. Où et quand l'éclipse du 12 août sera-t-elle la plus impressionnante dans l'Hexagone**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire/carte-ou-et-quand-l-eclipse-du-12-aout-sera-t-elle-la-plus-impressionnante-dans-l-hexagone_8135849.html)
