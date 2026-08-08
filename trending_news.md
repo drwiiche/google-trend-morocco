@@ -1,3 +1,24 @@
+### ياسين بونو (N/A, Sat, 8 Aug 2026 16:10:00 -0700)
+
+- **بدون مشاركة.. كيف أجبر ياسين بونو الهلال على القرار الأصعب؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%AF%D9%88%D9%86-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9--%D9%83%D9%8A%D9%81-%D8%A7%D9%94%D8%AC%D8%A8%D8%B1-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D8%B5%D8%B9%D8%A8/blt3ee158a14ed02108)
+- **بعد مونديال 2026.. بونو يلتحق بتداريب الهلال**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2026-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D9%84%D8%AA%D8%AD%D9%82-%D8%A8%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/23924)
+- **أول قرار من إنزاغي بعد العودة من النمسا**: [Link](https://www.alyaum.com/articles/6676393/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/%D8%A3%D9%88%D9%84-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%86-%D8%A5%D9%86%D8%B2%D8%A7%D8%BA%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D9%85%D8%B3%D8%A7)
+
+
+### fc barcelone match (N/A, Sat, 8 Aug 2026 16:10:00 -0700)
+
+- **Udinese-FC Barcelone: une victoire puis une défaite pour un Barça qui attend encore ses champions du monde**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-fc-barcelone-suivez-en-live-les-matchs-du-barca-face-a-nottingham-forest-et-udinese_LS-202608080212.html)
+- **Où et quand voir la triangulaire ?**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4553717/ou-et-quand-voir-la-triangulaire-)
+- **Au milieu des difficultés de Hamza Abdelkarim : Raphinha sauve le Barça sur penalty**: [Link](https://www.goal.com/fr/listes/au-milieu-des-difficultes-de-hamza-abdelkarim-raphinha-sauve-le-barca-sur-penalty/blt7d933ca50c28d949)
+
+
+### match can feminine 2026 (N/A, Sat, 8 Aug 2026 14:10:00 -0700)
+
+- **Naomi Eto (Cameroun) : « Face au Nigeria, nous donnerons tout sur le terrain. »**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/naomi-eto-cameroun-face-au-nigeria-nous-donnerons-tout-sur-le-terrain/)
+- **CAN féminine 2026 : le Cameroun et le Ghana décrochent les 2 derniers tickets des quarts**: [Link](https://fr.hespress.com/484380-can-feminine-2026-le-cameroun-et-le-ghana-decrochent-les-2-derniers-tickets-des-quarts.html)
+- **CAN féminine: le Ghana et le Cameroun décrochent les deux derniers tickets pour les quarts**: [Link](https://sport.le360.ma/football/can/can-feminine-le-ghana-et-le-cameroun-decrochent-les-deux-derniers-tickets-pour-les-quarts_C6TLDAMTUNA5FKEDL7YRUSAJIE/)
+
+
 ### ميسي (N/A, Sat, 8 Aug 2026 14:30:00 -0700)
 
 - **لحظة إنسانية تجمع الغريمين.. برشلونة وريال مدريد ينعيان والد ميسي**: [Link](https://www.aljazeera.net/sport/2026/8/8/%D9%84%D8%AD%D8%B8%D8%A9-%D8%A5%D9%86%D8%B3%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AC%D9%85%D8%B9-%D8%A7%D9%84%D8%BA%D8%B1%D9%8A%D9%85%D9%8A%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
