@@ -1,3 +1,10 @@
+### مجتبى خامنئي (N/A, Sun, 9 Aug 2026 09:10:00 -0700)
+
+- **إيران.. خامنئي يلتقي بزشكيان وعراقجي يتحدث عن تبادل رسائل مع واشنطن**: [Link](https://www.aljazeera.net/news/liveblog/2026/8/9/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%88%D8%B4%D9%8A%D9%83-%D8%A8%D9%8A%D9%86-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%88%D9%85%D8%B3%D9%82%D8%B7)
+- **إعلام إيراني ينشر فيديو لمجتبى خامنئي دون تحديد تاريخه**: [Link](https://www.skynewsarabia.com/middle-east/1885092-%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%8A%D9%86%D8%B4%D8%B1-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%85%D8%AC%D8%AA%D8%A8%D9%89-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%87)
+- **بعد أول فيديو لمجتبى خامنئي.. بزشكيان يلتقي المرشد الإيراني**: [Link](https://www.alarabiya.net/iran/2026/08/09/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%88%D9%84-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%A8%D8%B2%D8%B4%D9%83%D9%8A%D8%A7%D9%86-%D9%8A%D9%84%D8%AA%D9%82%D9%8A-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AF-%D8%A7%D9%84%D8%A7%D9%8A%D8%B1%D8%A7%D9%86%D9%8A)
+
+
 ### liverpool (N/A, Sun, 9 Aug 2026 07:30:00 -0700)
 
 - **Club Friendlies LIVE: Build-up, team news, live text & score updates as Man City, Liverpool, Arsenal and Chelsea play**: [Link](https://www.bbc.com/sport/football/live/c6n9n81zpzg8t)
