@@ -1,3 +1,17 @@
+### deauville prix de bayeux (N/A, Sat, 8 Aug 2026 21:20:00 -0700)
+
+- **Tiercé. Les pronostics de « L'Alsace » pour samedi 8 août - Prix de Bayeux**: [Link](https://www.lalsace.fr/actualite/2026/08/07/les-pronostics-de-l-alsace-pour-samedi-8-aout-prix-de-bayeux)
+- **Les pronos hippiques du dimanche 9 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-9-aout-2026_AN-202608070499.html)
+- **Quinté du samedi 8 août à Deauville : la belle forme de l’écurie Jésus**: [Link](https://www.leparisien.fr/sports/hippisme/quinte-du-samedi-8-aout-a-deauville-la-belle-forme-de-lecurie-jesus-07-08-2026-HKK3YGLINVEC7BZX3W5NRG4ENY.php)
+
+
+### webook (N/A, Sat, 8 Aug 2026 15:00:00 -0700)
+
+- **الرجاء يختار webook.com شريكًا رسميًا للتذاكر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/raja-s-a-%D8%AA%D8%AE%D8%AA%D8%A7%D8%B1-webook-com-%D8%B4%D8%B1%D9%8A%D9%83%D9%8B%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D9%84%D9%84%D8%AA%D8%B0%D8%A7%D9%83%D8%B1/blt990251afc227506c)
+- **خطوة جديدة من الرجاء الرياضي لتعزيز الحضور الرقمي**: [Link](https://barlamanesport.com/%D8%AE%D8%B7%D9%88%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84/)
+- **الرجاء يتعاقد مع منصة سعودية**: [Link](https://sport.lesiteinfo.com/elbotola/501006.html)
+
+
 ### murphy oil (N/A, Sat, 8 Aug 2026 16:40:00 -0700)
 
 - **Murphy Oil Balances Growth Drive and Capital Discipline**: [Link](https://www.tipranks.com/news/company-announcements/murphy-oil-balances-growth-drive-and-capital-discipline)
