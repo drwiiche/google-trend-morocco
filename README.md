@@ -1,3 +1,31 @@
+### algérie (N/A, Sun, 9 Aug 2026 09:40:00 -0700)
+
+- **Les statistiques clés avant le quart de finale entre la Côte d’Ivoire et l’Algérie**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-statistiques-cles-avant-le-quart-de-finale-entre-la-cote-d-ivoire-et-l-algerie/)
+- **CAN féminine 2026: l'Algérie et le Maroc filent en demi-finales et se qualifient au Mondial 2027**: [Link](https://www.rfi.fr/fr/afrique-foot/20260808-can-f%C3%A9minine-2026-l-alg%C3%A9rie-et-le-maroc-filent-en-demi-finales-et-se-qualifient-au-mondial-2027)
+- **Une grande première: l'Algérie qualifiée pour la Coupe du monde féminine, le Maroc y retourne**: [Link](https://rmcsport.bfmtv.com/football/feminin/coupe-du-monde/une-grande-premiere-l-algerie-qualifiee-pour-la-coupe-du-monde-feminine-le-maroc-y-retourne_AV-202608080284.html)
+
+
+### fédération royale marocaine de football (N/A, Sun, 9 Aug 2026 09:40:00 -0700)
+
+- **Communiqué DTN**: [Link](https://frmf.ma/fr/articles/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D8%A7%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9)
+- **Interdiction de création d’académies et d’écoles portant des noms de clubs étrangers**: [Link](https://sport.le360.ma/football/interdiction-de-creation-dacademies-et-decoles-portant-des-noms-de-clubs-etrangers_7PJINEL2PVCTTB3NFKU3YACKKE/)
+- **Football marocain : la FRMF interdit la création d'académies et d'écoles privées sous le nom de clubs étrangers**: [Link](https://radiomars.ma/fr/?p=5345)
+
+
+### كسوف جزئي (N/A, Sun, 9 Aug 2026 09:20:00 -0700)
+
+- **كسوف جزئي للشمس يغير ملامح الغروب في المغرب مساء الأربعاء المقبل**: [Link](https://www.hespress.com/%D9%83%D8%B3%D9%88%D9%81-%D8%AC%D8%B2%D8%A6%D9%8A-%D9%84%D9%84%D8%B4%D9%85%D8%B3-%D9%8A%D8%BA%D9%8A%D8%B1-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%A7%D9%84%D8%BA%D8%B1%D9%88%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84-1789699.html)
+- **الكسوف الكلي للشمس.. أين يمكنك مشاهدته؟**: [Link](https://arabic.cnn.com/science-and-health/article/2026/08/07/total-solar-eclipse-path-august-infographic)
+- **كسوف الشمس المرتقب يهدد استقرار شبكات الكهرباء**: [Link](https://www.skynewsarabia.com/technology/1885129-%D9%83%D8%B3%D9%88%D9%81-%D8%A7%D9%84%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%8A%D9%87%D8%AF%D8%AF-%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%B4%D8%A8%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A1)
+
+
+### volcan etna sicile (N/A, Sun, 9 Aug 2026 09:20:00 -0700)
+
+- **L’éruption de l’Etna provoque des problèmes dans le ciel : un aéroport sicilien a été obligé de suspendre ses vols à l’arrivée**: [Link](https://www.rtl.be/actu/monde/europe/leruption-de-letna-provoque-des-problemes-dans-le-ciel-un-aeroport-sicilien-ete/2026-08-08/article/796756)
+- **Une nouvelle éruption de l'Etna perturbe le trafic aérien y compris vers Israël**: [Link](https://israj.media-j.com/article/66894/une-nouvelle-eruption-de-letna-perturbe-le-trafic-aerien-y-compris-vers-israel)
+- **La question conso. Vol annulé à cause d’une éruption volcanique : pouvons-nous être remboursés ?**: [Link](https://www.lalsace.fr/economie/2026/08/04/vol-annule-a-cause-d-une-eruption-volcanique-pouvons-nous-etre-rembourses)
+
+
 ### مجتبى خامنئي (N/A, Sun, 9 Aug 2026 09:10:00 -0700)
 
 - **إيران.. خامنئي يلتقي بزشكيان وعراقجي يتحدث عن تبادل رسائل مع واشنطن**: [Link](https://www.aljazeera.net/news/liveblog/2026/8/9/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%88%D8%B4%D9%8A%D9%83-%D8%A8%D9%8A%D9%86-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D9%88%D9%85%D8%B3%D9%82%D8%B7)
