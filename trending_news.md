@@ -1,3 +1,10 @@
+### medhi benatia france football (N/A, Sun, 9 Aug 2026 02:40:00 -0700)
+
+- **Medhi Benatia tire le bilan de son passage à l'OM : « C'était une guerre de tous les instants »**: [Link](https://www.lequipe.fr/France-Football/Article/Grand-recit-medhi-benatia-pas-besoin-d-acheter-mon-silence-ce-que-j-ai-a-dire-coute-trop-cher-ca-n-a-pas-de-prix-la-verite/1708898)
+- **Benatia revient sur la bagarre entre Rabiot et Rowe - France - Marseille**: [Link](https://www.sofoot.com/breves/olympique-de-marseille-medhi-benatia-revient-sur-la-bagarre-entre-adrien-rabiot-et-jonathan-rowe)
+- **Mehdi Benatia fustige cette médiocrité encore « bien ancrée » à l’OM**: [Link](https://www.20minutes.fr/sport/football/ligue-1/4238305-20260808-mehdi-benatia-fustige-mediocrite-encore-bien-ancree-om)
+
+
 ### مان سيتي ضد أتلتيكو مدريد (N/A, Sun, 9 Aug 2026 03:50:00 -0700)
 
 - **ما القنوات الناقلة لمباراة مانشستر سيتي وأتلتيكو مدريد الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt9848a0955a909692)
