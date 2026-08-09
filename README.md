@@ -1,3 +1,10 @@
+### benfica – académico de viseu futebol clube (N/A, Sun, 9 Aug 2026 12:40:00 -0700)
+
+- **Previsão Benfica x Académico Viseu: escalações esperadas**: [Link](https://www.vietnam.vn/pt/nhan-dinh-benfica-vs-academico-viseu-doi-hinh-du-kien)
+- **Milhares de adeptos na Fan Zone da Luz em dia de jogo à porta fechada**: [Link](https://www.jn.pt/desporto/artigo/milhares-de-adeptos-na-fan-zone-da-luz-em-dia-de-jogo-a-porta-fechada/18114676)
+- **Em direto/ Benfica-Académico Viseu. Águia apadrinha regresso dos viriatos com Luz à porta fechada**: [Link](https://observador.pt/liveblogs/benfica-academico-viseu-aguia-apadrinha-regresso-dos-viriatos-com-luz-a-porta-fechada/)
+
+
 ### miss monde (N/A, Sun, 9 Aug 2026 11:50:00 -0700)
 
 - **Miss Monde 2026: dans les coulisses de la préparation de la candidate marocaine Chirihan Chergui**: [Link](https://fr.le360.ma/lifestyle/miss-monde-2026-dans-les-coulisses-de-la-preparation-de-la-candidate-marocaine-chirihan-chergui_FT4Y42XAPBF23HM7DVM2LHVQMY/)
