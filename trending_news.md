@@ -1,3 +1,17 @@
+### مان سيتي ضد أتلتيكو مدريد (N/A, Sun, 9 Aug 2026 03:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة مانشستر سيتي وأتلتيكو مدريد الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt9848a0955a909692)
+- **مواعيد مباريات الأحد 9 أغسطس 2026.. أرسنال في كأس الإمارات وناشئات اليد للبرونزية**: [Link](https://www.akhbarak.net/news/details/49252539/3/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-9-%D8%A3%D8%BA%D8%B3%D8%B7%D8%B3-2026-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D9%86%D8%A7%D8%B4%D8%A6%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D8%AF-%D9%84%D9%84%D8%A8%D8%B1%D9%88%D9%86%D8%B2%D9%8A%D8%A9)
+- **دياز يقود تشكيلة قوية للسيتي أمام أتلتيكو مدريد**: [Link](https://ar.mancity.com/news/mens/atletico-madrid-team-news-tactics-asia-tour-2026-63921867)
+
+
+### parti démocrate (N/A, Sun, 9 Aug 2026 00:50:00 -0700)
+
+- **"Le vent est en train de tourner": l'aile gauche du parti démocrate gagne du terrain aux États-Unis avant les élections de mi-mandat cruciales**: [Link](https://www.bfmtv.com/international/amerique-nord/etats-unis/le-vent-est-en-train-de-tourner-l-aile-gauche-du-parti-democrate-gagne-du-terrain-aux-etats-unis-avant-les-elections-de-mi-mandat-cruciales_AV-202608080201.html)
+- **Qui est Abdul El-Sayed, le démocrate victorieux dans le Michigan ?**: [Link](https://www.20minutes.fr/monde/etats-unis/4237990-20260805-etats-unis-abdul-el-sayed-medecin-progressiste-victorieux-michigan)
+- **Aux États-Unis, les primaires des élections de mi-mandat tirent le Parti démocrate vers la gauche**: [Link](https://www.franceinfo.fr/monde/usa/aux-etats-unis-les-primaires-des-elections-de-mi-mandat-tirent-le-parti-democrate-plus-a-gauche_8140088.html)
+
+
 ### manchester city – atlético madrid (N/A, Sun, 9 Aug 2026 03:30:00 -0700)
 
 - **Xavier Parker race, line-up hint, Ruben Dias gesture - five things spotted in Man City training**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/xavier-parker-race-line-up-34426157)
