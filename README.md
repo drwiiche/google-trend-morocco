@@ -1,3 +1,17 @@
+### manchester city – atlético madrid (N/A, Sun, 9 Aug 2026 03:30:00 -0700)
+
+- **Xavier Parker race, line-up hint, Ruben Dias gesture - five things spotted in Man City training**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/xavier-parker-race-line-up-34426157)
+- **Gallery: Gearing up for Atletico Madrid**: [Link](https://www.mancity.com/news/mens/asia-tour-training-gallery-atletico-madrid-63921805)
+- **Man City boss Maresca eager to face 'fantastic' Lee Kang-in of Atletico Madrid**: [Link](https://www.koreatimes.co.kr/sports/20260809/man-city-boss-maresca-eager-to-face-fantastic-lee-kang-in-of-atletico-madrid)
+
+
+### immatriculation maroc (N/A, Sun, 9 Aug 2026 02:40:00 -0700)
+
+- **Fin de la plaque internationale : les lettres latines généralisées à toutes les immatriculations**: [Link](https://ledesk.ma/auto/fin-de-la-plaque-internationale-les-lettres-latines-generalisees-a-toutes-les-immatriculations/)
+- **Des lettres latines bientôt introduites sur les plaques d’immatriculation**: [Link](https://fr.le360.ma/societe/des-lettres-latines-bientot-introduites-sur-les-plaques-dimmatriculation_OK4SE4P5FJF4PLQOYU4OAC4ZG4/)
+- **Les lettres latines intègrent les plaques d'immatriculation au Maroc**: [Link](https://fr.hespress.com/484649-les-lettres-latines-integrent-les-plaques-dimmatriculation-au-maroc.html)
+
+
 ### quinte du jour (N/A, Sun, 9 Aug 2026 00:40:00 -0700)
 
 - **3 Calas - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-3-calas-130278.html)
