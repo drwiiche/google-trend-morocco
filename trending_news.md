@@ -1,3 +1,10 @@
+### miss monde (N/A, Sun, 9 Aug 2026 11:50:00 -0700)
+
+- **Miss Monde 2026: dans les coulisses de la préparation de la candidate marocaine Chirihan Chergui**: [Link](https://fr.le360.ma/lifestyle/miss-monde-2026-dans-les-coulisses-de-la-preparation-de-la-candidate-marocaine-chirihan-chergui_FT4Y42XAPBF23HM7DVM2LHVQMY/)
+- **"Elle a toutes les qualités, j'y crois !" : avant son départ pour le concours Miss Monde, la Guyanaise Audrey Ho Wen Tsaï rencontre ses fans**: [Link](https://la1ere.franceinfo.fr/elle-a-toutes-les-qualites-j-y-crois-avant-son-depart-pour-le-concours-miss-monde-la-guyanaise-audrey-ho-wen-tsai-rencontre-ses-fans-1726261.html)
+- **Flegme et strass dans la valise, Indira Ampiot en route pour Miss Monde : « On me l'aurait proposé il y a 2 ans, j'aurais hésité**: [Link](https://fr.news.yahoo.com/flegme-et-strass-dans-la-valise-indira-ampiot-en-route-pour-miss-monde--%C2%AB-on-me-laurait-propose-il-y-a-2-ans-jaurais-hesite-%C2%BB-061808935.html)
+
+
 ### نزار الرشدان (N/A, Sun, 9 Aug 2026 11:20:00 -0700)
 
 - **الوداد الرياضي يتوصل لاتفاق مع الدولي الأردني نزار الرشدان**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%AA%D9%88%D8%B5%D9%84-%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%85%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A/)
