@@ -1,3 +1,10 @@
+### russie (N/A, Sun, 9 Aug 2026 13:50:00 -0700)
+
+- **EN DIRECT, guerre en Ukraine : de nouvelles frappes russes sur Kiev et sa région font quatre morts**: [Link](https://www.lemonde.fr/international/live/2026/08/08/en-direct-guerre-en-ukraine-de-nouvelles-frappes-russes-sur-kiev-et-sa-region-font-quatre-morts_6737250_3210.html)
+- **Nouvelles frappes russes sur Kyiv et sa région, Volodymyr Zelensky est en Serbie**: [Link](https://fr.euronews.com/my-europe/2026/08/08/nouvelles-frappes-russes-sur-kyiv-et-sa-region-volodymyr-zelensky-est-en-serbie)
+- **Un drone explose près d'un gazoduc en Bulgarie, Sofia incrimine Kiev**: [Link](https://www.france24.com/fr/europe/20260808-ukraine-au-moins-trois-morts-dans-de-nouvelles-frappes-russes-sur-la-r%C3%A9gion-de-kiev)
+
+
 ### سبتة (N/A, Sun, 9 Aug 2026 14:20:00 -0700)
 
 - **سبتة ومليلية تعيدان شبح "المسيرة الخضراء"، فهل يقف حلفاء إسبانيا معها؟ - مقال في بوليتيكو**: [Link](https://www.bbc.com/arabic/articles/c0ejd1zvp2no)
