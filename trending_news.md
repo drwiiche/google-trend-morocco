@@ -1,3 +1,17 @@
+### arsenal (N/A, Sun, 9 Aug 2026 06:30:00 -0700)
+
+- **Versatile Bruno Guimarães gives Mikel Arteta options to shuffle midfield pack | Ed Aarons**: [Link](https://www.theguardian.com/football/2026/aug/08/bruno-guimaraes-mikel-arteta-arsenal-options-midfield)
+- **Bruno Guimaraes joins Arsenal**: [Link](https://www.arsenal.com/news/bruno-guimaraes-joins-arsenal-assZJ0i5HUEi)
+- **Bruno Guimaraes joins Arsenal from Newcastle**: [Link](https://www.bbc.com/sport/football/articles/c1719r079rjo)
+
+
+### liverpool – monaco (N/A, Sun, 9 Aug 2026 06:20:00 -0700)
+
+- **Liverpool confirmed lineup for pre-season friendly vs AS Monaco: Alisson and Virgil van Dijk both start**: [Link](https://rushthekop.com/liverpool-confirmed-lineup-for-pre-season-friendly-vs-as-monaco-alisson-and-virgil-van-dijk-both-start-01kzjt0jdyxk)
+- **Andoni Iraola's Anfield Record Ahead of Liverpool Home Debut**: [Link](https://www.thisisanfield.com/2026/08/andoni-iraola-anfield-record-liverpool-home-debut/)
+- **Trey Nyoni can force Andoni Iraola into decision as Liverpool new signing awaits**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/trey-nyoni-can-force-andoni-34427152)
+
+
 ### جوهور ضد تشيلسي (N/A, Sun, 9 Aug 2026 06:00:00 -0700)
 
 - **ما القنوات الناقلة لمباراة جوهور وتشيلسي الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%88%D9%87%D9%88%D8%B1-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt6a59135d0887add7)
