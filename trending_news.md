@@ -1,3 +1,17 @@
+### ليفربول ضد موناكو (N/A, Sun, 9 Aug 2026 06:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ليفربول وموناكو الودية التحضيرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1b7bdc569619e973)
+- **مباشر.. مباراة ليفربول ضد موناكو**: [Link](https://www.eremnews.com/sports/kshgyv8)
+- **بعد إذلال ليفربول.. مدرب ليدز يفاجئ الجميع بطلب غريب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%95%D8%B0%D9%84%D8%A7%D9%84-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84--%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D8%A8%D8%B7%D9%84%D8%A8-%D8%BA%D8%B1%D9%8A%D8%A8/blt3d15e0b0874ce851)
+
+
+### arsenal vs dortmund (N/A, Sun, 9 Aug 2026 05:40:00 -0700)
+
+- **Team news: Two changes for Emirates Cup Final**: [Link](https://www.arsenal.com/news/team-news-two-changes-for-emirates-cup-final-apSjp1s0LSV8)
+- **Arsenal vs Borussia Dortmund predictions and betting tips – Gunners seek to bounce back**: [Link](https://talksport.com/betting/4496979/arsenal-vs-borussia-dortmund-odds-tips-2026/)
+- **Julienne, O’Neill, Ogunnaike, Kabia and Ibrahim named on bench as Arsenal face Borussia Dortmund**: [Link](https://arsenalyouth.wordpress.com/2026/08/09/julienne-oneill-ogunnaike-kabia-and-ibrahim-named-on-bench-as-arsenal-face-borussia-dortmund/)
+
+
 ### arsenal (N/A, Sun, 9 Aug 2026 06:30:00 -0700)
 
 - **Versatile Bruno Guimarães gives Mikel Arteta options to shuffle midfield pack | Ed Aarons**: [Link](https://www.theguardian.com/football/2026/aug/08/bruno-guimaraes-mikel-arteta-arsenal-options-midfield)
