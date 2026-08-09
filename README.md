@@ -1,3 +1,15 @@
+### marseille – ath. bilbao (N/A, Sun, 9 Aug 2026 08:20:00 -0700)
+
+- **OM-Athletic Bilbao: à quelle heure et sur quelle chaîne TV suivre le match de préparation des Marseillais?**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/om-athletic-bilbao-a-quelle-heure-et-sur-quelle-chaine-tv-suivre-le-match-de-preparation-des-marseillais_AV-202608080253.html)
+- **OM/Bilbao - Des retours attendus dans le onze de départ**: [Link](https://www.lephoceen.fr/infos-om/saison/om-bilbao-des-retours-attendus-dans-le-onze-de-depart-237271)
+- **OM : ce chiffre qui montre que l’été a refroidi Marseille**: [Link](https://www.football365.fr/om-ce-chiffre-qui-montre-que-lete-a-refroidi-marseille-10307171.html)
+
+
+### المديرية العامة للأمن الوطني (N/A, Sun, 9 Aug 2026 07:10:00 -0700)
+
+
+
+
 ### حسين خرجة (N/A, Sun, 9 Aug 2026 07:30:00 -0700)
 
 - **حسين خرجة لفيجو: تصريحاتك حقيرة.. وكيف تتحدث بعد ما فعلته مع برشلونة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B3%D9%8A%D9%86-%D8%AE%D8%B1%D8%AC%D8%A9-%D9%84%D9%81%D9%8A%D8%AC%D9%88-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA%D9%83-%D8%AD%D9%82%D9%8A%D8%B1%D8%A9--%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%AD%D8%AF%D8%AB-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A7-%D9%81%D8%B9%D9%84%D8%AA%D9%87-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt8bedb4a5eda23644)
