@@ -1,3 +1,10 @@
+### classement inter miami – cf monterrey (N/A, Sat, 8 Aug 2026 20:30:00 -0700)
+
+- **Pronostic Inter Miami - Monterrey, Leagues Cup - 08/08/2026**: [Link](https://www.sportytrader.com/pronostics/inter-miami-cf-monterrey-363832/)
+- **Composition du match Monterrey – Orlando City | Leagues Cup · 6 août 2026**: [Link](https://www.ysscores.com/fr/lineup/5844829/CF-Monterrey-vs-Orlando-City-SC)
+- **Compos PRÊTES pour le duel entre Rayados et l’Inter Miami**: [Link](https://onefootball.com/fr/news/compos-pretes-pour-le-duel-entre-rayados-et-linter-miami-43249649)
+
+
 ### deauville prix de bayeux (N/A, Sat, 8 Aug 2026 21:20:00 -0700)
 
 - **Tiercé. Les pronostics de « L'Alsace » pour samedi 8 août - Prix de Bayeux**: [Link](https://www.lalsace.fr/actualite/2026/08/07/les-pronostics-de-l-alsace-pour-samedi-8-aout-prix-de-bayeux)
