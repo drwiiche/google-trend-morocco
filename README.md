@@ -1,3 +1,52 @@
+### جوهور ضد تشيلسي (N/A, Sun, 9 Aug 2026 06:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة جوهور وتشيلسي الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%88%D9%87%D9%88%D8%B1-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt6a59135d0887add7)
+- **شاهد.. تشيلسي يهزم ميلان وديا بثلاثية.. وإنتر يتغلب على يوفنتوس**: [Link](https://www.aljazeera.net/sport/2026/8/8/%D8%B4%D8%A7%D9%87%D8%AF-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D8%AF%D9%8A%D8%A7-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9)
+- **تشيلسي ضد ميلان.. البلوز يسحق الروسونيري 3 - 0 وديا.. فيديو)**: [Link](https://www.youm7.com/story/2026/8/8/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%A8%D9%84%D9%88%D8%B2-%D9%8A%D8%B3%D8%AD%D9%82-%D8%A7%D9%84%D8%B1%D9%88%D8%B3%D9%88%D9%86%D9%8A%D8%B1%D9%8A-3-0-%D9%88%D8%AF%D9%8A%D8%A7-%D9%81%D9%8A%D8%AF%D9%8A%D9%88/7507038)
+
+
+### آرسنال ضد دورتموند (N/A, Sun, 9 Aug 2026 05:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة آرسنال وبوروسيا دورتموند الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt69a528ca7a1910a0)
+- **تشكيلة مباراة أرسنال ودورتموند | مباراة ودية - أندية · 9 أغسطس 2026**: [Link](https://www.ysscores.com/ar/lineup/5898653/Arsenal-FC-vs-Borussia-Dortmund)
+- **اليوم.. أرسنال يصطدم بدورتموند في مواجهة قوية بكأس الإمارات**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=09082026&id=ac443039-c634-48b1-a656-e27b8bcb440b)
+
+
+### lunettes éclipse solaire (N/A, Sun, 9 Aug 2026 05:50:00 -0700)
+
+- **Eclipse solaire : tout comprendre au phénomène attendu le 12 août**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/08/08/eclipse-solaire-tout-comprendre-au-phenomene-attendu-le-12-aout_6740821_4355770.html)
+- **CARTE. Où et quand l'éclipse du 12 août sera-t-elle la plus impressionnante dans l'Hexagone**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire/carte-ou-et-quand-l-eclipse-du-12-aout-sera-t-elle-la-plus-impressionnante-dans-l-hexagone_8135849.html)
+- **Lunettes pour éclipse solaire - Des marquages fantaisistes, mais la sécurité assurée**: [Link](https://www.quechoisir.org/actualite-lunettes-pour-eclipse-solaire-des-marquages-fantaisistes-mais-la-securite-assuree-n177698/)
+
+
+### arsenal – dortmund (N/A, Sun, 9 Aug 2026 05:30:00 -0700)
+
+- **How to watch Arsenal vs Dortmund for free - TV channel and YouTube stream**: [Link](https://www.walesonline.co.uk/sport/football/football-news/how-watch-arsenal-vs-dortmund-34428715)
+- **Gallery: Final preparations for Emirates Cup**: [Link](https://www.arsenal.com/news/gallery-final-preparations-for-emirates-cup-aNzUv8s4xGbb)
+- **Julienne, O’Neill, Ogunnaike, Kabia and Ibrahim named on bench as Arsenal face Borussia Dortmund**: [Link](https://arsenalyouth.wordpress.com/2026/08/09/julienne-oneill-ogunnaike-kabia-and-ibrahim-named-on-bench-as-arsenal-face-borussia-dortmund/)
+
+
+### zwolle – ajax (N/A, Sun, 9 Aug 2026 05:20:00 -0700)
+
+- **LIVE Eredivisie | Mika Godts haakt op allerlaatste moment af tegen PEC Zwolle, Ajax jaagt op treffer**: [Link](https://www.telegraaf.nl/sport/voetbal/live-eredivisie-mika-godts-haakt-op-allerlaatste-moment-af-tegen-pec-zwolle-ajax-jaagt-op-treffer/159792471.html)
+- **Míchel legt uit waarom Ter Stegen toch speelt en verklaart defensieve mutaties Ajax**: [Link](https://www.ajaxshowtime.com/hoofdnieuws/michel-legt-uit-waarom-ter-stegen-toch-speelt-en-verklaart-defensieve-mutaties-ajax)
+- **Eerst in de basis, maar hij haakte tijdens opwarming af: Mika Godts, die nog altijd flirt met PSG, “is niet fit genoeg om te starten” bij Ajax**: [Link](https://www.hln.be/rode-duivels/eerst-in-de-basis-maar-hij-haakte-tijdens-opwarming-af-mika-godts-die-nog-altijd-flirt-met-psg-is-niet-fit-genoeg-om-te-starten-bij-ajax~a844765a/)
+
+
+### vinicius jr (N/A, Sun, 9 Aug 2026 05:20:00 -0700)
+
+- **Official Announcement: Vini Jr. renewed until 2032**: [Link](https://www.realmadrid.com/en-US/news/club/announcements/comunicado-oficial-vini-jr-renovado-hasta-2032-06-08-2026)
+- **Real Madrid make improved contract offer to Vinicius Junior - The Athletic**: [Link](https://www.nytimes.com/athletic/7494398/2026/08/05/real-madrid-vinicius-junior-contract-arsenal/)
+- **Arsenal dealt major blow in pursuit of Real Madrid’s Vinicius Jr**: [Link](https://www.independent.co.uk/bulletin/sport/arsenal-vinicius-jr-new-contract-real-madrid-transfer-news-b3028916.html)
+
+
+### johor fc – chelsea (N/A, Sun, 9 Aug 2026 05:00:00 -0700)
+
+- **Johor Darul Ta’zim FC vs. Chelsea, Friendly: Preview, team news, how to watch**: [Link](https://weaintgotnohistory.sbnation.com/friendlies/170868/johor-darul-tazim-fc-vs-chelsea-friendly-preview-team-news-how-to-watch)
+- **How Crown Prince transformed Chelsea’s friendly rivals in Johor**: [Link](https://observer.co.uk/news/sport/article/how-crown-prince-transformed-chelseas-friendly-rivals-in-johor)
+- **Chelsea fans puzzled by one Xabi Alonso lineup decision**: [Link](https://www.talkchelsea.net/?p=54436)
+
+
 ### medhi benatia france football (N/A, Sun, 9 Aug 2026 02:40:00 -0700)
 
 - **Medhi Benatia tire le bilan de son passage à l'OM : « C'était une guerre de tous les instants »**: [Link](https://www.lequipe.fr/France-Football/Article/Grand-recit-medhi-benatia-pas-besoin-d-acheter-mon-silence-ce-que-j-ai-a-dire-coute-trop-cher-ca-n-a-pas-de-prix-la-verite/1708898)
