@@ -1,3 +1,10 @@
+### الشاطئ البلدي (N/A, Sun, 9 Aug 2026 14:00:00 -0700)
+
+- **جحيم "الازدحام" ينغص صيف طنجة**: [Link](https://www.hespress.com/%D8%AC%D8%AD%D9%8A%D9%85-%D8%A7%D9%84%D8%A7%D8%B2%D8%AF%D8%AD%D8%A7%D9%85-%D9%8A%D9%86%D8%BA%D8%B5-%D8%B5%D9%8A%D9%81-%D8%B7%D9%86%D8%AC%D8%A9-1789794.html)
+- **الشاطئ البلدي بطنجة يتحول إلى سوق شعبي**: [Link](https://www.alakhbar.press.ma/%D8%A7%D9%84%D8%B4%D8%A7%D8%B7%D8%A6-%D8%A7%D9%84%D8%A8%D9%84%D8%AF%D9%8A-%D8%A8%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%B3%D9%88%D9%82-%D8%B4%D8%B9%D8%A8%D9%8A-296923.html)
+- **إهمال يهدد الأرواح.. حفرة كبيرة وسط الطريق بمنطقة اكزناية بطنجة دون إصلاح**: [Link](https://ar.hibapress.com/details-746390.html)
+
+
 ### direction générale de la sûreté nationale (N/A, Sun, 9 Aug 2026 13:00:00 -0700)
 
 - **À Bouznika, les enfants de la famille de la Sûreté nationale profitent pleinement de leurs vacances**: [Link](https://fr.le360.ma/societe/a-bouznika-les-enfants-de-la-famille-de-la-surete-nationale-profitent-pleinement-de-leurs-vacances_TWBHQ3ITBBB3RI654XV4TFQQLM/)
