@@ -1,3 +1,10 @@
+### liverpool (N/A, Sun, 9 Aug 2026 07:30:00 -0700)
+
+- **Club Friendlies LIVE: Build-up, team news, live text & score updates as Man City, Liverpool, Arsenal and Chelsea play**: [Link](https://www.bbc.com/sport/football/live/c6n9n81zpzg8t)
+- **Club Friendlies LIVE: Build-up, team news, live text & score updates as Man City, Liverpool, Arsenal and Chelsea play**: [Link](https://www.bbc.co.uk/sport/football/live/c6n9n81zpzg8t?page=3)
+- **THE WEEKENDER #11**: [Link](https://tf1892.substack.com/p/kevin-keegan-a-boys-own-hero)
+
+
 ### marseille – ath. bilbao (N/A, Sun, 9 Aug 2026 08:20:00 -0700)
 
 - **OM-Athletic Bilbao: à quelle heure et sur quelle chaîne TV suivre le match de préparation des Marseillais?**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/om-athletic-bilbao-a-quelle-heure-et-sur-quelle-chaine-tv-suivre-le-match-de-preparation-des-marseillais_AV-202608080253.html)
