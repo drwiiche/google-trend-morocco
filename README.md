@@ -1,3 +1,24 @@
+### سفيان بوفال (N/A, Sun, 9 Aug 2026 10:20:00 -0700)
+
+- **قنبلة الميركاتو.. ناد مغربي يتحرك صوب سفيان بوفال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%86%D8%A8%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88--%D9%86%D8%A7%D8%AF-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D8%B5%D9%88%D8%A8-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%88%D9%81%D8%A7%D9%84/blte68abab38b09bb05)
+- **الترجي يفتح باب التفاوض مع بوفال**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D9%88%D8%B6-%D9%85%D8%B9-%D8%A8%D9%88%D9%81%D8%A7%D9%84-1786406.html)
+- **من هو عماد فراج الذي اقترب من قيادة هجوم الترجي التونسي؟**: [Link](https://www.eremnews.com/sports/ja8m5m3)
+
+
+### grand handicap de deauville (N/A, Sun, 9 Aug 2026 10:20:00 -0700)
+
+- **Quinté+ du dimanche 9 août à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-9-aout-a-deauville-les-pronostics-7900660679)
+- **Les pronos hippiques du dimanche 9 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-9-aout-2026_AN-202608070499.html)
+- **Les Notes des partants du Quinté+ de ce samedi 8 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-8-aout)
+
+
+### شمس البارودي (N/A, Sun, 9 Aug 2026 09:40:00 -0700)
+
+- **شمس البارودي تنشر صورة نادرة من شبابها.. "كله طبيعي"**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/09/%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D9%88%D8%AF%D9%8A-%D8%AA%D9%86%D9%81%D9%8A-%D8%AE%D8%B6%D9%88%D8%B9%D9%87%D8%A7-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA-%D8%AA%D8%AC%D9%85%D9%8A%D9%84-%D9%83%D9%84%D9%87-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A%D8%AE%D9%84%D9%82%D8%A9-%D8%B1%D8%A8%D9%86%D8%A7)
+- **«كله طبيعي».. شمس البارودي تكشف حقيقة خضوعها لعمليات تجميل**: [Link](https://al-ain.com/article/shams-albaroudi-reveals-truth-about-undergoing)
+- **شمس البارودي ترد بحدة على مروجّي تصريحات نُسبت إليها**: [Link](https://www.lahamag.com/article/239887-%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D9%88%D8%AF%D9%8A-%D8%AA%D8%B1%D8%AF-%D8%A8%D8%AD%D8%AF%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D8%B1%D9%88%D8%AC%D9%8A-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%86%D8%B3%D8%A8%D8%AA-%D8%A5%D9%84%D9%8A%D9%87%D8%A7)
+
+
 ### algérie (N/A, Sun, 9 Aug 2026 09:40:00 -0700)
 
 - **Les statistiques clés avant le quart de finale entre la Côte d’Ivoire et l’Algérie**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-statistiques-cles-avant-le-quart-de-finale-entre-la-cote-d-ivoire-et-l-algerie/)
