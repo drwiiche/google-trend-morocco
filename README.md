@@ -1,3 +1,17 @@
+### rentree scolaire maroc (N/A, Sat, 8 Aug 2026 23:20:00 -0700)
+
+- **Rentrée scolaire 2026-2027 : le calendrier maintenu, aucun report prévu**: [Link](https://lematin.ma/enseignement/rentree-scolaire-2026-2027-au-maroc-le-calendrier-est-maintenu/360008)
+- **Algérie : la rentrée scolaire reportée sur instruction de Tebboune**: [Link](https://www.tsa-algerie.com/algerie-la-rentree-scolaire-reportee-sur-instruction-de-tebboune/)
+- **Rentrée scolaire 2026-2027: voici les dates à retenir pour élèves et enseignants**: [Link](https://fr.le360.ma/societe/rentree-scolaire-2026-2027-voici-les-dates-a-retenir-pour-eleves-et-enseignants_RYP6BIUGCRB33KVH37R5DKMCZQ/)
+
+
+### impôt (N/A, Sat, 8 Aug 2026 23:10:00 -0700)
+
+- **Taxe foncière : jusqu’à 154% de hausse dans ces 30 villes, 7,4 millions de logements visés**: [Link](https://www.letribunaldunet.fr/?p=1274881)
+- **Taxe foncière 2026 : Ces grandes villes où la facture restera parmi les plus lourdes**: [Link](https://www.mysweetimmo.com/2026/08/02/taxe-fonciere-2026-ces-grandes-villes-ou-la-facture-restera-parmi-les-plus-lourdes/)
+- **On pensait le dégrèvement de taxe foncière accordé d'office : sauf que le fisc calcule votre avis d'août 2026 sur vos revenus de 2024, pas de 2025**: [Link](https://www.senioractu.com/On-pensait-le-degrevement-de-taxe-fonciere-accorde-d-office-sauf-que-le-fisc-calcule-votre-avis-d-aout-2026-sur-vos_a27925.html)
+
+
 ### منتخب المغرب لكرة القدم للسيدات (N/A, Sun, 9 Aug 2026 01:20:00 -0700)
 
 - **"لبؤات الأطلس" يتأهلن إلى نصف نهائي "الكان" على حساب جنوب إفريقيا**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D8%AA%D8%A3%D9%87%D9%84%D9%86-%D8%A5%D9%84%D9%89-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83-1789518.html)
