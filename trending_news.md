@@ -1,3 +1,10 @@
+### quinte du jour (N/A, Sun, 9 Aug 2026 00:40:00 -0700)
+
+- **3 Calas - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-3-calas-130278.html)
+- **Quinté+ du dimanche 9 août à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-9-aout-a-deauville-les-pronostics-7900660679)
+- **Equidia met le feu au Quinté+ du dimanche 9 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-dimanche-9-aout)
+
+
 ### rentree scolaire maroc (N/A, Sat, 8 Aug 2026 23:20:00 -0700)
 
 - **Rentrée scolaire 2026-2027 : le calendrier maintenu, aucun report prévu**: [Link](https://lematin.ma/enseignement/rentree-scolaire-2026-2027-au-maroc-le-calendrier-est-maintenu/360008)
