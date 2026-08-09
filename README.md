@@ -1,3 +1,17 @@
+### فنان (N/A, Sun, 9 Aug 2026 16:00:00 -0700)
+
+- **وفاة الفنان المصري محمد عبد الرحمن إمام بعد أزمة صحية طارئة**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/09/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D9%85%D9%86-%D8%A7%D9%85%D8%A7%D9%85-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B2%D9%85%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9)
+- **أخبار الفن اليوم: محمد رمضان يتصدر قائمة الأغاني الأكثر رواجا على يوتيوب.. محمود العسيلي يطرح "عامله فيها من إيچيبت".. وفاة الفنان محمد عبد الرحمن إمام**: [Link](https://www.vetogate.com/5709713)
+- **شارك فى «حب فى الزنزانة».. وفاة الفنان محمد عبدالرحمن إمام بعد صراع مع المرض**: [Link](https://www.almasryalyoum.com/news/details/4333892)
+
+
+### ألفارو أربيلوا (N/A, Sun, 9 Aug 2026 15:00:00 -0700)
+
+- **بعد ثنائي الريال.. أربيلوا ينصب شباكه حول لاعب برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84--%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D9%86%D8%B5%D8%A8-%D8%B4%D8%A8%D8%A7%D9%83%D9%87-%D8%AD%D9%88%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt520883442ca21897)
+- **عروض إنجليزية للتعاقد مع مدافع برشلونة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%B9%D8%B1%D9%88%D8%B6-%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D9%84%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86/)
+- **فولهام ينافس إيفرتون على ضم مدافع برشلونة**: [Link](https://www.yallakora.com/la-liga/3034/news/561613/%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D9%8A%D9%86%D8%A7%D9%81%D8%B3-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D8%B9%D9%84%D9%89-%D8%B6%D9%85-%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
 ### russie (N/A, Sun, 9 Aug 2026 13:50:00 -0700)
 
 - **EN DIRECT, guerre en Ukraine : de nouvelles frappes russes sur Kiev et sa région font quatre morts**: [Link](https://www.lemonde.fr/international/live/2026/08/08/en-direct-guerre-en-ukraine-de-nouvelles-frappes-russes-sur-kiev-et-sa-region-font-quatre-morts_6737250_3210.html)
