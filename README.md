@@ -1,3 +1,24 @@
+### direction générale de la sûreté nationale (N/A, Sun, 9 Aug 2026 13:00:00 -0700)
+
+- **À Bouznika, les enfants de la famille de la Sûreté nationale profitent pleinement de leurs vacances**: [Link](https://fr.le360.ma/societe/a-bouznika-les-enfants-de-la-famille-de-la-surete-nationale-profitent-pleinement-de-leurs-vacances_TWBHQ3ITBBB3RI654XV4TFQQLM/)
+- **DGSN : 1.008 jeunes profitent des colonies de vacances à Bouznika**: [Link](https://www.leconomiste.com/flash-infos/dgsn-1-008-jeunes-profitent-des-colonies-de-vacances-a-bouznika/)
+- **1.008 enfants et adolescents bénéficient des colonies de vacances de la DGSN à Bouznika**: [Link](https://fr.hespress.com/484490-1-008-enfants-et-adolescents-beneficient-des-colonies-de-vacances-de-la-dgsn-a-bouznika.html)
+
+
+### سفيان رحيمي (N/A, Sun, 9 Aug 2026 12:50:00 -0700)
+
+- **رحيمي في رسالة مفجعة: يا رب.. لا طاقة لي أن أرى أبي يتألم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%81%D9%8A-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D9%81%D8%AC%D8%B9%D8%A9-%D9%84%D8%A7-%D8%B7%D8%A7%D9%82%D8%A9-%D9%84%D9%8A-%D8%A7%D9%94%D9%86-%D8%A7%D9%94%D8%B1%D9%89-%D8%A7%D9%94%D8%A8%D9%8A-%D9%8A%D8%AA%D8%A7%D9%94%D9%84%D9%85/bltf173f449dc5a4e6d)
+- **بكلمات مؤثرة.. سفيان رحيمي يكشف معاناة والده مع المرض**: [Link](https://radiomars.ma/%D8%A8%D9%83%D9%84%D9%85%D8%A7%D8%AA-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D9%88/)
+- **سفيان رحيمي يكشف معاناته بسبب مرض والده برسالة مؤثرة: «لا طاقة لي أن أراه يتألم»**: [Link](https://koorabreak.com/ar/325256/)
+
+
+### باريس سان جيرمان (N/A, Sun, 9 Aug 2026 12:20:00 -0700)
+
+- **من البريميرليج.. باريس سان جيرمان يبرم رسميا صفقته الثالثة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC--%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%A8%D8%B1%D9%85-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B5%D9%81%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9/bltaa91f8d983a2bc70)
+- **رسمياً.. باريس سان جيرمان يعلن عودة لوكا دين**: [Link](https://radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D9%88%D9%83%D8%A7/)
+- **قدم.. باريس سان جيرمان يضم الفرنسي لوكاس دين حتى 2029**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B6%D9%85-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%84%D9%88%D9%83%D8%A7%D8%B3-%D8%AF%D9%8A%D9%86-%D8%AD%D8%AA%D9%89-2029/4022630)
+
+
 ### benfica – académico de viseu futebol clube (N/A, Sun, 9 Aug 2026 12:40:00 -0700)
 
 - **Previsão Benfica x Académico Viseu: escalações esperadas**: [Link](https://www.vietnam.vn/pt/nhan-dinh-benfica-vs-academico-viseu-doi-hinh-du-kien)
