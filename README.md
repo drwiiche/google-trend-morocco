@@ -1,3 +1,10 @@
+### murphy oil (N/A, Sat, 8 Aug 2026 16:40:00 -0700)
+
+- **Murphy Oil Balances Growth Drive and Capital Discipline**: [Link](https://www.tipranks.com/news/company-announcements/murphy-oil-balances-growth-drive-and-capital-discipline)
+- **Murphy closing in on first oil from Southeast Asian offshore project**: [Link](https://www.offshore-energy.biz/murphy-closing-in-on-first-oil-from-southeast-asian-offshore-project/)
+- **Murphy Oil advances Côte d'Ivoire appraisal campaign, sanctions Banjo and Cello**: [Link](https://www.offshore-mag.com/production/news/55396413/murphy-advances-cote-divoire-appraisal-campaign-sanctions-banjo-and-cello)
+
+
 ### inter miami – cf monterrey (N/A, Sat, 8 Aug 2026 16:40:00 -0700)
 
 - **Is Lionel Messi playing today for Inter Miami vs Monterrey in 2026 Leagues Cup Matchday 2?**: [Link](https://bolavip.com/en/soccer/is-lionel-messi-playing-today-for-inter-miami-vs-monterrey-in-2026-leagues-cup-matchday-2)
