@@ -1,3 +1,20 @@
+### meteo (N/A, Sun, 9 Aug 2026 01:00:00 -0700)
+
+
+
+
+### tiempo (N/A, Sun, 9 Aug 2026 00:50:00 -0700)
+
+
+
+
+### passeport (N/A, Sat, 8 Aug 2026 23:00:00 -0700)
+
+- **De l’époque coloniale à l’ère biométrique, la petite histoire du passeport marocain**: [Link](https://ledesk.ma/grandangle/de-lepoque-coloniale-a-lere-biometrique-la-petite-histoire-du-passeport-marocain/)
+- **Fin de la plaque internationale : les lettres latines généralisées à toutes les immatriculations**: [Link](https://ledesk.ma/auto/fin-de-la-plaque-internationale-les-lettres-latines-generalisees-a-toutes-les-immatriculations/)
+- **Des lettres latines bientôt introduites sur les plaques d’immatriculation**: [Link](https://fr.le360.ma/societe/des-lettres-latines-bientot-introduites-sur-les-plaques-dimmatriculation_OK4SE4P5FJF4PLQOYU4OAC4ZG4/)
+
+
 ### classement inter miami – cf monterrey (N/A, Sat, 8 Aug 2026 20:30:00 -0700)
 
 - **Pronostic Inter Miami - Monterrey, Leagues Cup - 08/08/2026**: [Link](https://www.sportytrader.com/pronostics/inter-miami-cf-monterrey-363832/)
