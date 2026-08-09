@@ -1,3 +1,24 @@
+### نزار الرشدان (N/A, Sun, 9 Aug 2026 11:20:00 -0700)
+
+- **الوداد الرياضي يتوصل لاتفاق مع الدولي الأردني نزار الرشدان**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%AA%D9%88%D8%B5%D9%84-%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%85%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A/)
+- **سبب وحيد يدفع الفيصلي لاستبعاد نزار الرشدان من خياراته**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A8%D8%A8-%D9%88%D8%AD%D9%8A%D8%AF-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D9%84%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%86%D8%B2%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D8%B4%D8%AF%D8%A7%D9%86-%D9%85%D9%86-%D8%AE%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA%D9%87)
+- **الانتقالات - نجم الأردن نزار الرشدان مطروح على طاولة الأهلي المصري**: [Link](https://www.almashhad.com/article/218257510540304-sports/404290509497019-%D9%86%D8%B2%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D8%B4%D8%AF%D8%A7%D9%86-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86/)
+
+
+### pluie (N/A, Sun, 9 Aug 2026 11:00:00 -0700)
+
+- **Alerte aux fortes pluies, aux tornades et à la foudre dans les Hauts Plateaux du Centre et le Sud du Vietnam.**: [Link](https://www.vietnam.vn/fr/canh-bao-mua-lon-loc-set-tai-cao-nguyen-trung-bo-va-nam-bo)
+- **Prévisions de pluies et d'orages aujourd'hui, avec des endroits connaissant de fortes pluies de plus de 50 mm**: [Link](https://fr.laodong.vn/moi-truong/du-bao-khu-vuc-mua-dong-hom-nay-co-noi-mua-to-tren-50mm-1747799.ldo)
+- **Pluies diluviennes dans le Nord : quatre victimes et de nombreux dégâts matériels**: [Link](https://lecourrier.vn/pluies-diluviennes-dans-le-nord-quatre-victimes-et-de-nombreux-degats-materiels/1352598.html)
+
+
+### ناسا (N/A, Sun, 9 Aug 2026 10:00:00 -0700)
+
+- **خبير في وكالة "ناسا" يدعو البشرية إلى الاستعداد لاصطدام محتمل بكويكب**: [Link](https://www.hespress.com/%D8%AE%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%B3%D8%A7-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84-1789105.html)
+- **خبير كويكبات يحذر من اصطدامات مستقبلية.. ماذا ينتظر الأرض في 2029؟**: [Link](https://casa24.ma/people/67864.html)
+- **لماذا تستعد «ناسا» لمواجهة الكويكبات؟**: [Link](https://www.ammanjo.co/article/273858)
+
+
 ### بشار الأسد (N/A, Sun, 9 Aug 2026 10:40:00 -0700)
 
 - **"دبلوماسي الأسد".. ظهور بشار الجعفري في حفل بموسكو يستفز السوريين**: [Link](https://www.aljazeera.net/news/2026/8/9/%D8%A8%D8%B4%D8%A7%D8%B1-%D8%A7%D9%84%D8%AC%D8%B9%D9%81%D8%B1%D9%8A-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D9%85%D9%88%D8%B3%D9%83%D9%88-%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A)
