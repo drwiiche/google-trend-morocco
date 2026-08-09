@@ -1,3 +1,10 @@
+### eclipse solaire 12 aout 2026 (N/A, Sun, 9 Aug 2026 16:40:00 -0700)
+
+- **Eclipse solaire : tout comprendre au phénomène attendu le 12 août**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/08/08/eclipse-solaire-tout-comprendre-au-phenomene-attendu-le-12-aout_6740821_4355770.html)
+- **CARTE. Où et quand l'éclipse du 12 août sera-t-elle la plus impressionnante dans l'Hexagone**: [Link](https://www.franceinfo.fr/sciences/astronomie/eclipse-solaire/carte-ou-et-quand-l-eclipse-du-12-aout-sera-t-elle-la-plus-impressionnante-dans-l-hexagone_8135849.html)
+- **Lunettes pour éclipse solaire - Des marquages fantaisistes, mais la sécurité assurée**: [Link](https://www.quechoisir.org/actualite-lunettes-pour-eclipse-solaire-des-marquages-fantaisistes-mais-la-securite-assuree-n177698/)
+
+
 ### فنان (N/A, Sun, 9 Aug 2026 16:00:00 -0700)
 
 - **وفاة الفنان المصري محمد عبد الرحمن إمام بعد أزمة صحية طارئة**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/09/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D9%85%D9%86-%D8%A7%D9%85%D8%A7%D9%85-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B2%D9%85%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9)
