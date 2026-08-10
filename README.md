@@ -1,3 +1,31 @@
+### israel (N/A, Mon, 10 Aug 2026 14:30:00 -0700)
+
+- **Benjamin Netanyahu's rejection of Trump's 15-point Gaza plan unlikely to be final word**: [Link](https://www.bbc.com/news/articles/ce3q5282ep3o)
+- **Netanyahu rejects US-led 15-point Gaza peace plan in rare public break with Trump**: [Link](https://www.theguardian.com/world/2026/aug/09/israel-rejects-us-led-15-point-gaza-peace-plan-says-netanyahu)
+- **Netanyahu calculates upsetting Trump is his least-bad option**: [Link](https://www.cnn.com/2026/08/09/middleeast/netanyahu-decision-trump-gaza-plan-analysis-latam-intl)
+
+
+### plage (N/A, Mon, 10 Aug 2026 13:50:00 -0700)
+
+- **La plage de Porsmeur à Plouescat labellisée Handiplage grâce à ses équipements**: [Link](https://www.ouest-france.fr/bretagne/plouescat-29430/la-plage-de-porsmeur-a-plouescat-labellisee-handiplage-grace-a-ses-equipements-6b5dc93a-9410-11f1-a48b-fb7fc1c0a6aa)
+- **À Plouescat, une station BeachWheel pour les personnes à mobilité réduite vient d’être installée à la plage de Porsmeur**: [Link](https://www.letelegramme.fr/finistere/plouescat-29430/a-plouescat-une-station-beachwheel-pour-les-personnes-a-mobilite-reduite-vient-detre-installee-a-la-plage-de-porsmeur-7095625.php)
+- **Une plage sur deux fermée pour cause bactériologique après les orages du week-end**: [Link](https://www.mediabask.eus/en/info_mbsk/20260810/une-plage-sur-deux-fermee-pour-cause-bacteriologique-apres-les-orages-du-week-end)
+
+
+### séisme colombie (N/A, Mon, 10 Aug 2026 13:40:00 -0700)
+
+- **Au moins 111 morts en Colombie après un puissant séisme de magnitude 7,4**: [Link](https://www.bfmtv.com/international/au-moins-18-morts-en-colombie-apres-un-seisme-de-magnitude-7-4_AD-202608100379.html)
+- **Real Madrid : le communiqué de soutien pour la Colombie**: [Link](https://www.footmercato.net/a1742875805396814139-real-madrid-le-communique-de-soutien-pour-la-colombie)
+- **Séisme en Colombie : au moins 111 morts ; le président Abelardo de la Espriella décrète l’« état d’urgence »**: [Link](https://www.lemonde.fr/planete/article/2026/08/10/seisme-en-colombie-au-moins-111-morts-le-gouvernement-decrete-l-etat-d-urgence_6743410_3245.html)
+
+
+### roony bardghji (N/A, Mon, 10 Aug 2026 13:10:00 -0700)
+
+- **Barcelona fear serious knee injury for promising winger; could face several months out**: [Link](https://barcauniversal.com/barcelona-fear-serious-knee-injury-for-promising-winger-could-face-several-months-out/)
+- **Roony Bardghji Roony Bardghji Gets Injured in Training at Barcelona and It Could Be Serious**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/roony-bardghji-roony-bardghji-gets-injured-in-training-at-barcelona-and-it-could-be-serious-2026-08-10)
+- **Huge blow: Ajax transfer target suffers serious injury and is out for months**: [Link](https://www.goal.com/en/news/huge-setback-ajax-transfer-target-suffers-serious-injury-and-is-out-for-months/blted1fcc035435d68d)
+
+
 ### hakim ziyech (N/A, Mon, 10 Aug 2026 13:30:00 -0700)
 
 - **A decisive stance and fan anger: Ziyech's decision puts Wydad's management in a difficult position**: [Link](https://www.goal.com/en/news/a-decisive-stance-and-fan-anger-ziyech-s-decision-leaves-wydad-s-management-facing-a-difficult-situation/bltf17e7903ec15d937)
