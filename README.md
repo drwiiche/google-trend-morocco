@@ -1,3 +1,45 @@
+### nouvelle plaque immatriculation maroc (N/A, Mon, 10 Aug 2026 10:50:00 -0700)
+
+- **Des lettres latines bientôt introduites sur les plaques d’immatriculation**: [Link](https://fr.le360.ma/societe/des-lettres-latines-bientot-introduites-sur-les-plaques-dimmatriculation_OK4SE4P5FJF4PLQOYU4OAC4ZG4/)
+- **Fin de la plaque internationale : les lettres latines généralisées à toutes les immatriculations**: [Link](https://ledesk.ma/auto/fin-de-la-plaque-internationale-les-lettres-latines-generalisees-a-toutes-les-immatriculations/)
+- **Plaques d’immatriculation : le Maroc instaure un modèle unifié**: [Link](https://medias24.com/2026/08/10/plaques-dimmatriculation-le-maroc-instaure-un-modele-unique-1738879/)
+
+
+### سفينة (N/A, Mon, 10 Aug 2026 10:40:00 -0700)
+
+- **جنوح ناقلة نفط روسية.. كيف تواجه عُمان بقعة تلوث تمتد 800 كيلومتر مربع؟**: [Link](https://www.aljazeera.net/video/2026/8/10/%D8%AC%D9%86%D9%88%D8%AD-%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%86%D9%81%D8%B7-%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D9%83%D9%8A%D9%81-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%B9%D9%85%D8%A7%D9%86)
+- **سلطنة عُمان تقول إنها تعمل على احتواء "تلوث نفطي" قبالة سواحلها**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260810-%D8%B3%D9%84%D8%B7%D9%86%D8%A9-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AA%D9%82%D9%88%D9%84-%D8%A5%D9%86%D9%87%D8%A7-%D8%AA%D8%B9%D9%85%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D8%AD%D8%AA%D9%88%D8%A7%D8%A1-%D8%AA%D9%84%D9%88%D8%AB-%D9%86%D9%81%D8%B7%D9%8A-%D9%82%D8%A8%D8%A7%D9%84%D8%A9-%D8%B3%D9%88%D8%A7%D8%AD%D9%84%D9%87%D8%A7)
+- **سلطنة عمان تؤكد استمرار التعامل مع سفينة نفطية جنحت في مياهها الإقليمية للحد من مخاطرها البيئية**: [Link](https://www.fananews.com/%D8%B3%D9%84%D8%B7%D9%86%D8%A9-%D8%B9%D9%85%D8%A7%D9%86-%D8%AA%D8%A4%D9%83%D8%AF-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%85%D9%84-%D9%85%D8%B9-%D8%B3%D9%81%D9%8A/)
+
+
+### athlétisme (N/A, Mon, 10 Aug 2026 10:40:00 -0700)
+
+- **A Birmingham, les championnats d’Europe d’athlétisme cherchent à exister au cœur d’un calendrier chargé**: [Link](https://www.lemonde.fr/sport/article/2026/08/10/a-birmingham-les-championnats-d-europe-d-athletisme-cherchent-a-exister-au-c-ur-d-un-calendrier-charge_6743088_3242.html)
+- **1re journée Streaming Athlétisme 1h45**: [Link](https://www.canalplus.com/sport/1-re-journee-championnats-d-europe/h/31952914_50027)
+- **Jimmy Gressier vise le doublé européen sur 5 000 m et 10 000 m à Birmingham**: [Link](https://www.ohmymag.com/people/actu-people/jimmy-gressier-vise-le-double-europeen-sur-5-000-m-et-10-000-m-a-birmingham_art193820.html)
+
+
+### colombie (N/A, Mon, 10 Aug 2026 10:40:00 -0700)
+
+- **Colombie : un séisme de magnitude 7,4 secoue le pays et fait des dégâts**: [Link](https://maroc-diplomatique.net/colombie-un-seisme-de-magnitude-74-secoue-le-pays-et-fait-des-degats/)
+- **Bâtiments effondrés, habitants en fuite... Les images du violent séisme en Colombie qui a fait au moins 69 morts**: [Link](https://www.lefigaro.fr/international/batiments-effondres-habitants-en-fuite-les-images-du-violent-seisme-en-colombie-qui-a-fait-au-moins-18-morts-20260810)
+- **Colombie: un séisme de magnitude 7,4 fait des blessés et des destructions dans l'ouest du pays**: [Link](https://medias24.com/agence-presse/colombie-un-seisme-de-magnitude-74-fait-des-blesses-et-des-destructions-dans-louest-du-pays/)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Mon, 10 Aug 2026 10:20:00 -0700)
+
+- **موعد كأس أفريقيا 2027.. كاف يكشف أجندة البطولات المقبلة**: [Link](https://www.aljazeera.net/sport/2026/8/10/%D9%85%D9%88%D8%B9%D8%AF-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%83%D8%A7%D9%81-%D9%8A%D9%83%D8%B4%D9%81-%D8%A3%D8%AC%D9%86%D8%AF%D8%A9)
+- **المغرب يحتضن "كأس إفريقيا U17"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-u17-1790132.html)
+- **مصر والمغرب في الواجهة.. إعلان الدول المنظمة للبطولات الأفريقية المقبلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9--%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9/bltb408c172b4b9cb70)
+
+
+### confédération africaine de football (N/A, Mon, 10 Aug 2026 10:00:00 -0700)
+
+- **Le Ghana, l’Égypte, le Sénégal, le Maroc et l’Afrique du Sud accueilleront plusieurs compétitions de la CAF en 2026/27**: [Link](https://www.cafonline.com/fr/infos/le-ghana-l-egypte-le-senegal-le-maroc-et-l-afrique-du-sud-accueilleront-plusieurs-competitions-de-la-caf-en-202627/)
+- **CAN U17 2027 : le Maroc désigné pays hôte de la compétition par la CAF**: [Link](https://maroc-diplomatique.net/can-u17-2027-le-maroc-designe-pays-hote-de-la-competition-par-la-caf/)
+- **Compétitions africaines : le Maroc encore au rendez-vous avec deux CAN en 2026-2027**: [Link](https://lematin.ma/sports/le-maroc-encore-au-rendez-vous-avec-deux-can-en-2026-2027/360336)
+
+
 ### turf fr (N/A, Mon, 10 Aug 2026 10:20:00 -0700)
 
 - **Quinté+ du 10/08/2026 — Prix Genybet Super Top 5 (Prix de la Côte de Nacre) (Clairefontaine) | Pronostic & résultats**: [Link](https://www.paris-turf.com/quinte/aujourdhui)
