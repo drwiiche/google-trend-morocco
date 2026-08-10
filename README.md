@@ -1,3 +1,17 @@
+### turf fr (N/A, Mon, 10 Aug 2026 10:20:00 -0700)
+
+- **Quinté+ du 10/08/2026 — Prix Genybet Super Top 5 (Prix de la Côte de Nacre) (Clairefontaine) | Pronostic & résultats**: [Link](https://www.paris-turf.com/quinte/aujourdhui)
+- **11 Elusive Way - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-11-elusive-way-130274.html)
+- **Shapesmith, la base solide du Quinté+ de ce lundi 10 août à Clairefontaine**: [Link](https://www.equidia.fr/articles/actualite/shapesmith-la-base-solide-du-quinte-de-ce-lundi-10-aout-a-clairefontaine)
+
+
+### daniel kinahan (N/A, Mon, 10 Aug 2026 08:40:00 -0700)
+
+- **UAE extradites suspected cartel boss to Ireland**: [Link](https://en.hespress.com/143496-uae-extradites-suspected-cartel-boss-to-ireland.html)
+- **Daniel Kinahan: Suspected crime boss Kinahan spends first night in custody in Ireland**: [Link](https://www.bbc.com/news/articles/c62qd5plzp6o)
+- **The man who hunted the Kinahans**: [Link](https://spectator.com/article/the-man-who-hunted-the-kinahans/)
+
+
 ### سد (N/A, Mon, 10 Aug 2026 08:40:00 -0700)
 
 - **سد « خنْكرو» مشروع مائي عملاق يقترب من الاكتمال ويعزز الأمن المائي بشرق المغرب**: [Link](https://alittihad.info/%D8%B3%D8%AF-%D8%AE%D9%86%D9%92%D9%83%D8%B1%D9%88-%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D9%85%D8%A7%D8%A6%D9%8A-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7/)
