@@ -1,3 +1,17 @@
+### démarchage téléphonique (N/A, Mon, 10 Aug 2026 11:50:00 -0700)
+
+- **Fin du démarchage téléphonique non consenti : "De nouvelles pratiques et arnaques apparaissent"**: [Link](https://www.marianne.net/economie/consommation/fin-du-demarchage-telephonique-non-consenti-de-nouvelles-pratiques-et-arnaques-apparaissent)
+- **Centres d’appel: Le Maroc face au tournant français**: [Link](https://www.leconomiste.com/centres-dappel-le-maroc-face-au-tournant-francais/)
+- **Démarchage téléphonique : à partir du 11 août, les entreprises devront obtenir le consentement des consommateurs**: [Link](https://www.lemonde.fr/economie/article/2026/08/10/demarchage-telephonique-a-partir-du-11-aout-les-entreprises-devront-obtenir-le-consentement-des-consommateurs_6733043_3235.html)
+
+
+### الكسوف (N/A, Mon, 10 Aug 2026 11:50:00 -0700)
+
+- **كسوف جزئي للشمس يغير ملامح الغروب في المغرب مساء الأربعاء المقبل**: [Link](https://www.hespress.com/%D9%83%D8%B3%D9%88%D9%81-%D8%AC%D8%B2%D8%A6%D9%8A-%D9%84%D9%84%D8%B4%D9%85%D8%B3-%D9%8A%D8%BA%D9%8A%D8%B1-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%A7%D9%84%D8%BA%D8%B1%D9%88%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84-1789699.html)
+- **الأرصاد الجوية تكشف تفاصيل حالة الطقس وتحدد أفضل مناطق مشاهدة الكسوف يوم 12 أوت**: [Link](https://elayem.news/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3/)
+- **بعد 114 عاماً.. إسبانيا تترقّب كسوفاً كلياً نادراً وسط انتعاش سياحي واسع**: [Link](https://arabic.euronews.com/2026/08/10/spain-prepares-for-the-historic-trio-of-eclipses)
+
+
 ### gare ferroviaire (N/A, Mon, 10 Aug 2026 11:50:00 -0700)
 
 - **Une nouvelle liaison ferroviaire ouvre la voie entre la Finlande et le reste de l’Europe**: [Link](https://www.ouest-france.fr/economie/transports/train/une-nouvelle-liaison-ferroviaire-ouvre-la-voie-entre-la-finlande-et-le-reste-de-leurope-f7448030-94ea-11f1-8bae-616c424ae7e0)
