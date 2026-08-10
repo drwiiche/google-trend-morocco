@@ -1,3 +1,24 @@
+### gare ferroviaire (N/A, Mon, 10 Aug 2026 11:50:00 -0700)
+
+- **Une nouvelle liaison ferroviaire ouvre la voie entre la Finlande et le reste de l’Europe**: [Link](https://www.ouest-france.fr/economie/transports/train/une-nouvelle-liaison-ferroviaire-ouvre-la-voie-entre-la-finlande-et-le-reste-de-leurope-f7448030-94ea-11f1-8bae-616c424ae7e0)
+- **Finlande et Suède à nouveau reliées par le train après une interruption du service en 1992**: [Link](https://www.dhnet.be/videos/2026/08/10/finlande-et-suede-a-nouveau-reliees-par-le-train-apres-une-interruption-du-service-en-1992-3vfv0ru/)
+- **La Finlande reliée à l'Europe par le train via la Suède, une première**: [Link](https://www.rfi.fr/fr/europe/20260810-la-finlande-reli%C3%A9e-%C3%A0-l-europe-par-le-train-via-la-su%C3%A8de-une-premi%C3%A8re)
+
+
+### ayyoub bouaddi (N/A, Mon, 10 Aug 2026 11:20:00 -0700)
+
+- **FIFA President Gianni Infantino Hails Ayyoub Bouaddi**: [Link](https://www.moroccoworldnews.com/2026/08/334009/fifa-president-gianni-infantino-hails-ayyoub-bouaddi/)
+- **Youngest Since Pelé: Infantino Congratulates Bouaddi After Making World Cup History**: [Link](https://barlamantoday.com/2026/08/10/ayyoub-bouaddi-becomes-youngest-player-to-play-in-world-cup-quarterfinal-since-pele/)
+- **Transfer latest: Done deals, gossip, rumours**: [Link](https://www.bbc.com/sport/football/live/c0kmv3legv6t)
+
+
+### شرطة (N/A, Mon, 10 Aug 2026 10:40:00 -0700)
+
+- **بعد واقعة المسيّرة المفخخة.. ألمانيا تحذر من "حرب هجينة" تستهدف استقرار البلاد**: [Link](https://www.aljazeera.net/news/2026/8/9/%D8%A8%D8%B9%D8%AF-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%81%D8%AE%D8%AE%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7)
+- **ألمانيا توسع وحدة الشرطة الاتحادية للتصدي للطائرات المسيرة**: [Link](https://www.alquds.co.uk/%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%88%D8%B3%D8%B9-%D9%88%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF%D9%8A%D8%A9-%D9%84%D9%84/)
+- **رصد طائرات مسيرة فوق موقع عسكري في ألمانيا**: [Link](https://arabi21.com/story/1780520/%D8%B1%D8%B5%D8%AF-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D9%81%D9%88%D9%82-%D9%85%D9%88%D9%82%D8%B9-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7)
+
+
 ### nouvelle plaque immatriculation maroc (N/A, Mon, 10 Aug 2026 10:50:00 -0700)
 
 - **Des lettres latines bientôt introduites sur les plaques d’immatriculation**: [Link](https://fr.le360.ma/societe/des-lettres-latines-bientot-introduites-sur-les-plaques-dimmatriculation_OK4SE4P5FJF4PLQOYU4OAC4ZG4/)
