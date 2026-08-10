@@ -1,3 +1,31 @@
+### محمد إمام (N/A, Mon, 10 Aug 2026 06:30:00 -0700)
+
+- **وفاة الفنان المصري محمد عبد الرحمن إمام بعد أزمة صحية طارئة**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/09/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D9%85%D9%86-%D8%A7%D9%85%D8%A7%D9%85-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B2%D9%85%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9)
+- **أبرز أحداث الوسط الفني في 24 ساعة.. حقيقة إصابة إنجي شرف بمرض خطير**: [Link](https://www.elwatannews.com/news/details/8336519)
+- **شارك في فيلم "حب في الزنزانة".. وفاة الفنان محمد إمام**: [Link](https://www.masrawy.com/arts/zoom/details/2026/8/9/3030488/%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D9%81%D9%8A%D9%84%D9%85-%D8%AD%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%B2%D9%86%D8%B2%D8%A7%D9%86%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%A5%D9%85%D8%A7%D9%85)
+
+
+### أفريقيا (N/A, Mon, 10 Aug 2026 06:30:00 -0700)
+
+- **مصر والمغرب في الواجهة.. إعلان الدول المنظمة للبطولات الأفريقية المقبلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9--%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D9%84%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9/bltb408c172b4b9cb70)
+- **المغرب يحتضن "كأس إفريقيا U17"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-u17-1790132.html)
+- **غانا ومصر والسنغال والمغرب وجنوب إفريقيا تستضيف مسابقات "الكاف" 2026-2027**: [Link](https://www.cafonline.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D8%A7%D9%86%D8%A7-%D9%88%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%81-2026-2027/)
+
+
+### plaques d immatriculation maroc (N/A, Mon, 10 Aug 2026 06:20:00 -0700)
+
+- **Plaques d’immatriculation : le Maroc instaure un modèle unifié**: [Link](https://medias24.com/2026/08/10/plaques-dimmatriculation-le-maroc-instaure-un-modele-unique-1738879/)
+- **Fin de la plaque internationale : les lettres latines généralisées à toutes les immatriculations**: [Link](https://ledesk.ma/auto/fin-de-la-plaque-internationale-les-lettres-latines-generalisees-a-toutes-les-immatriculations/)
+- **Immatriculation des voitures et motos : ce qui va changer dès janvier 2027**: [Link](https://lematin.ma/nation/immatriculation-des-voitures-et-motos-ce-qui-va-changer-des-janvier-2027/360172)
+
+
+### حكيم زياش (N/A, Mon, 10 Aug 2026 05:50:00 -0700)
+
+- **موقف حاسم وغضب جماهيري.. قرار زياش يضع إدارة الوداد أمام ملف صعب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%82%D9%81-%D8%AD%D8%A7%D8%B3%D9%85-%D9%88%D8%BA%D8%B6%D8%A8-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A--%D9%82%D8%B1%D8%A7%D8%B1-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%B6%D8%B9-%D8%A7%D9%95%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%85%D9%84%D9%81-%D8%B5%D8%B9%D8%A8/bltf17e7903ec15d937)
+- **محلل "راديو مارس" يحدد شرطاً أساسياً لإدارة الوداد في الميركاتو الصيفي**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AD%D9%8A%D9%85%D8%B1-%D9%84%D9%80-%D8%B1%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%85%D9%8F%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%A7%D9%84/)
+- **حكيم زياش يحسم مستقبله مع الوداد ويتمسّك براتبه**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%B1%D8%A7%D8%AA%D8%A8%D9%87/23952)
+
+
 ### فيران توريس (N/A, Mon, 10 Aug 2026 05:10:00 -0700)
 
 - **برشلونة يصدم باريس بسعر فيران توريس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B5%D8%AF%D9%85-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%A8%D8%B3%D8%B9%D8%B1-%D9%81%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%88%D8%B1%D9%8A%D8%B3/blt833ee80815e1c10f)
