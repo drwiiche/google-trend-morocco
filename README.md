@@ -1,3 +1,24 @@
+### émilie tran nguyen (N/A, Mon, 10 Aug 2026 03:20:00 -0700)
+
+- **Quel avenir pour Emilie Tran Nguyen, évincée de France 5 ? “La priorité, c’est elle, sa santé et sa famille”**: [Link](https://www.gala.fr/culture/television/quel-avenir-pour-emilie-tran-nguyen-evincee-de-france-5-la-priorite-c-est-elle-sa-sante-et-sa-famille-20260808)
+- **Quel avenir à la télé pour Emilie Tran Nguyen après sa garde à vue ? Une amie se confie**: [Link](https://www.voici.fr/television/quel-avenir-a-la-tele-pour-emilie-tran-nguyen-apres-sa-garde-a-vue-une-amie-se-confie-827415)
+- **Emilie Tran Nguyen bientôt au chômage après sa garde à vue pour usage de stupéfiants ? “La priorité, c’est sa santé et sa famille”**: [Link](https://www.closermag.fr/people/emilie-tran-nguyen-bientot-au-chomage-apres-sa-garde-a-vue-pour-usage-de-stupefiants-la-priorite-cest-sa-sante-et-sa-famille-3652096)
+
+
+### منتخب الجزائر لكرة القدم للسيدات (N/A, Mon, 10 Aug 2026 03:20:00 -0700)
+
+- **بالفيديو.. أمم إفريقيا للسيدات: تأهل تاريخي للجزائر.. والمغرب يكرر إنجازه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1--%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%83%D8%B1%D8%B1-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2%D9%87/blt2fe593b79f782531)
+- **بعد الفوز على كوت ديفوار.. تأهل تاريخي لسيدات الجزائر إلى كأس العالم (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/8/8/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **سيدات الجزائر في نصف نهائي "الكان"**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%8A%D8%AA%D8%A3%D9%87%D9%84%D9%86-%D9%84%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-1789493.html)
+
+
+### محمد عبد الرحمن (N/A, Mon, 10 Aug 2026 01:30:00 -0700)
+
+- **وفاة الفنان المصري محمد عبد الرحمن إمام بعد أزمة صحية طارئة**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/09/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D9%85%D9%86-%D8%A7%D9%85%D8%A7%D9%85-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B2%D9%85%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9)
+- **أبرز أحداث الوسط الفني في 24 ساعة.. حقيقة إصابة إنجي شرف بمرض خطير**: [Link](https://www.elwatannews.com/news/details/8336519)
+- **شارك في فيلم "حب في الزنزانة".. وفاة الفنان محمد إمام**: [Link](https://www.masrawy.com/arts/zoom/details/2026/8/9/3030488/%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D9%81%D9%8A%D9%84%D9%85-%D8%AD%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%B2%D9%86%D8%B2%D8%A7%D9%86%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%A5%D9%85%D8%A7%D9%85)
+
+
 ### match malawi ghana (N/A, Mon, 10 Aug 2026 01:50:00 -0700)
 
 - **Malawi, ranked 153rd, stun Ghana in WAFCON quarterfinals to qualify for World Cup**: [Link](https://africa.espn.com/espn/story/_/id/49571953/malawi-ranked-153-stun-ghana-wafcon-quarterfinals-qualify-women-world-cup)
