@@ -1,3 +1,45 @@
+### hakim ziyech (N/A, Mon, 10 Aug 2026 13:30:00 -0700)
+
+- **A decisive stance and fan anger: Ziyech's decision puts Wydad's management in a difficult position**: [Link](https://www.goal.com/en/news/a-decisive-stance-and-fan-anger-ziyech-s-decision-leaves-wydad-s-management-facing-a-difficult-situation/bltf17e7903ec15d937)
+- **Wydad AC: Ziyech Facing Contract Termination?**: [Link](https://en.africatopsports.com/wydad-ac-ziyech-facing-contract-termination/)
+- **Hakim Ziyech Joins Wydad’s First Pre-Season Training Under Paulo Sérgio**: [Link](https://www.moroccoworldnews.com/2026/08/333044/hakim-ziyech-joins-wydads-first-pre-season-training-under-paulo-sergio/)
+
+
+### ملعب (N/A, Mon, 10 Aug 2026 13:20:00 -0700)
+
+- **مونديال 2030 .. محاور جديدة تربط ملعب الحسن الثاني بـ"الطرق السيارة"**: [Link](https://www.hespress.com/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D9%85%D8%AD%D8%A7%D9%88%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B1%D8%A8%D8%B7-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D8%A7-1790140.html)
+- **تهيئة وإحداث طرق جديدة في المحمدية والمنصورية لربط ملعب الحسن الثاني**: [Link](https://ar.hibapress.com/details-748060.html)
+- **بعد تأهيله بـ4 مليارات درهم لـ”كان 2025″.. إطلاق صفقات جديدة بـ5 مليارات لإعادة تجهيز ملعب أكادير لمونديال 2030**: [Link](https://lakome2.com/decryptage/426396/)
+
+
+### خوليان ألفاريز (N/A, Mon, 10 Aug 2026 13:20:00 -0700)
+
+- **هدف برشلونة وآرسنال يضع قدما في أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%AF%D9%81-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B6%D8%B9-%D9%82%D8%AF%D9%85%D8%A7-%D9%81%D9%8A-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt823d7996e6d6655a)
+- **أخبار الانتقالات | مانشستر سيتي يتواصل مع وكلاء نجم ليفربول .. وأول تعليق من برشلونة على رحيل فيران توريس ورافينيا**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%85%D8%A7%D9%83-%D8%A3%D9%84%D9%8A%D8%B3%D8%AA%D8%B1/bltf8727b7e98c48d68)
+- **أتلتيكو مدريد يراهن على روميرو لإنقاذ جوليان ألفاريز من أزمة برشلونة**: [Link](https://alwasat.ly/news/international-sports/527637)
+
+
+### منة شلبي (N/A, Mon, 10 Aug 2026 13:00:00 -0700)
+
+- **التواء بالأمعاء.. تفاصيل الأزمة الصحية لمنة شلبي**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/10/%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D8%A7%D9%85%D8%B9%D8%A7%D8%A1-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D8%A7%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%85%D9%86%D8%A9-%D8%B4%D9%84%D8%A8%D9%8A-)
+- **أزمات صحية مرّ بها نجمات الفن.. ياسمين عبد العزيز ومي عز الدين ومنة شلبي**: [Link](https://darelhilal.com/News/3283441.aspx)
+- **«أتمنى أن تكون استراحة قصيرة».. سهير جودة تتحدث عن منة شلبى بعد أزمتها الصحية**: [Link](https://www.almasryalyoum.com/news/details/4334696)
+
+
+### pluie (N/A, Mon, 10 Aug 2026 12:30:00 -0700)
+
+- **Chine: le typhon Dolphin provoque de fortes pluies et s'affaiblit**: [Link](https://medias24.com/agence-presse/chine-le-typhon-dolphin-provoque-de-fortes-pluies-et-saffaiblit/)
+- **Alerte sur la qualité de l’air intérieur : inondations causées par le typhon Dolphin en Chine**: [Link](https://www.iqair.com/af-fr/newsroom/indoor-air-quality-alert-typhoon-dolphin-flooding-in-china)
+- **Aux Philippines, 8 morts et plus d'un million de personnes évacuées en Chine à cause du typhon « Dolphin**: [Link](https://www.koha.net/fr/bote/8-viktima-ne-filipine-e-mbi-nj-milion-te-evakuuar-ne-kine-nga-tajfuni-dolphin)
+
+
+### colombia (N/A, Mon, 10 Aug 2026 11:00:00 -0700)
+
+- **Live updates: At least 111 dead following 7.4 magnitude earthquake in Colombia**: [Link](https://www.cnn.com/2026/08/10/world/live-news/colombia-earthquake-san-jose-del-palmar)
+- **Scores killed in Colombia quake; call for action on sudden cardiac deaths; car insurance costs soar**: [Link](https://www.theguardian.com/australia-news/2026/aug/11/morning-mail-tuesday-ntwnfb)
+- **Colombia building collapses on camera as earthquake brings death, destruction**: [Link](https://www.foxnews.com/world/colombia-building-collapses-camera-earthquake-brings-death-destruction)
+
+
 ### démarchage téléphonique (N/A, Mon, 10 Aug 2026 11:50:00 -0700)
 
 - **Fin du démarchage téléphonique non consenti : "De nouvelles pratiques et arnaques apparaissent"**: [Link](https://www.marianne.net/economie/consommation/fin-du-demarchage-telephonique-non-consenti-de-nouvelles-pratiques-et-arnaques-apparaissent)
