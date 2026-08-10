@@ -1,3 +1,10 @@
+### نجاة عتابو (N/A, Sun, 9 Aug 2026 19:10:00 -0700)
+
+- **نجاة عتابو تتألق في مهرجان الحمامات بتونس**: [Link](https://madar21.com/445634.html)
+- **الدورة الستون لمهرجان الحمامات الدولي: نجاة عتابو تقدم عرضا تفاعليا يراوح بين الأغنية والحوار**: [Link](https://www.babnet.net/cadredetail-334258.asp)
+- **نجاة عتابو تشعل مهرجان الحمامات بأشهر أغانيها الشعبية**: [Link](https://attasiaa.com/%D9%86%D8%AC%D8%A7%D8%A9-%D8%B9%D8%AA%D8%A7%D8%A8%D9%88-%D8%AA%D8%B4%D8%B9%D9%84-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D9%85%D8%A7%D9%85%D8%A7%D8%AA-%D8%A8%D8%A3%D8%B4%D9%87%D8%B1/)
+
+
 ### grand handicap de deauville 2026 (N/A, Sun, 9 Aug 2026 19:40:00 -0700)
 
 - **Quinté+ du dimanche 9 août à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-9-aout-a-deauville-les-pronostics-7900660679)
