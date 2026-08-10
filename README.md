@@ -1,3 +1,24 @@
+### grand handicap de deauville 2026 (N/A, Sun, 9 Aug 2026 19:40:00 -0700)
+
+- **Quinté+ du dimanche 9 août à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-9-aout-a-deauville-les-pronostics-7900660679)
+- **Les pronos hippiques du dimanche 9 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-9-aout-2026_AN-202608070499.html)
+- **GRAND HANDICAP DE DEAUVILLE**: [Link](https://www.equidia.fr/courses/2026-08-09/R1/C3)
+
+
+### match cameroun nigeria (N/A, Sun, 9 Aug 2026 18:40:00 -0700)
+
+- **CAN féminine Maroc 2026: Les Lionnes de l’Atlas affrontent le Cameroun en demi-finale**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-demi-finale-maroc)
+- **Le Cameroun piège le Nigeria, tenant du titre, et rejoint le dernier carré de la CAN féminine**: [Link](https://www.lequipe.fr/Football/Actualites/Le-cameroun-piege-le-nigeria-tenant-du-titre-et-rejoint-le-dernier-carre-de-la-can-feminine/1709974)
+- **CAN féminine 2026 : Malawi-Ghana et Cameroun-Nigeria pour compléter le dernier carré**: [Link](https://fr.hespress.com/484646-can-feminine-2026-malawi-ghana-et-cameroun-nigeria-pour-completer-le-dernier-carre.html)
+
+
+### مباراة ودية (N/A, Sun, 9 Aug 2026 16:50:00 -0700)
+
+- **بعد دقيقة الحداد.. أودينيزي يحرم برشلونة من التتويج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%AD%D8%AF%D8%A7%D8%AF--%D8%A7%D9%94%D9%88%D8%AF%D9%8A%D9%86%D9%8A%D8%B2%D9%8A-%D9%8A%D8%AD%D8%B1%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC/blt5cc44fc4dcef1dd9)
+- **وقفوا لوداع خورخي ميسي في بطولة الثلاثة أشواط: بشرى فليك وفرصة حمزة المهدرة.. عبد الكريم يحتاج للنظر إلى رافينيا!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%88%D9%82%D9%81%D9%88%D8%A7-%D9%84%D9%88%D8%AF%D8%A7%D8%B9-%D8%AE%D9%88%D8%B1%D8%AE%D9%8A-%D9%85%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A7%D9%94%D8%B4%D9%88%D8%A7%D8%B7-%D8%A8%D8%B4%D8%B1%D9%89-%D9%81%D9%84%D9%8A%D9%83-%D9%88%D9%81%D8%B1%D8%B5%D8%A9-%D8%AD%D9%85%D8%B2%D8%A9-%D8%A7%D9%84%D9%85%D9%87%D8%AF%D8%B1%D8%A9--%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D9%84%D9%84%D9%86%D8%B8%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7/bltb2ba7f000feea78d)
+- **البث المباشر لمباراتي برشلونة ضد نوتنغهام وأودينيزي**: [Link](https://al-ain.com/article/barcelona-udinese-live-stream)
+
+
 ### eclipse solaire 12 aout 2026 (N/A, Sun, 9 Aug 2026 16:40:00 -0700)
 
 - **Eclipse solaire : tout comprendre au phénomène attendu le 12 août**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/08/08/eclipse-solaire-tout-comprendre-au-phenomene-attendu-le-12-aout_6740821_4355770.html)
