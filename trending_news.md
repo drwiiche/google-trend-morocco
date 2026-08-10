@@ -1,3 +1,17 @@
+### match malawi ghana (N/A, Mon, 10 Aug 2026 01:50:00 -0700)
+
+- **Malawi, ranked 153rd, stun Ghana in WAFCON quarterfinals to qualify for World Cup**: [Link](https://africa.espn.com/espn/story/_/id/49571953/malawi-ranked-153-stun-ghana-wafcon-quarterfinals-qualify-women-world-cup)
+- **Nigeria eliminated as Cameroon, Malawi reach WAFCON semis and World Cup**: [Link](https://www.aljazeera.com/sports/2026/8/10/nigeria-eliminated-as-cameroon-malawi-reach-wafcon-semis-and-world-cup)
+- **LIVE! Malawi vs. Ghana in the WAFCON 2026 Quarter-Finals on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/womens-africa-cup-of-nations/articles/live-malawi-vs-ghana-in-the-wafcon-2026-quarter-finals-on-bein-sports-2026-08-09)
+
+
+### benyamin netanyahou (N/A, Mon, 10 Aug 2026 00:00:00 -0700)
+
+- **Netanyahu calculates upsetting Trump is his least-bad option**: [Link](https://www.cnn.com/2026/08/09/middleeast/netanyahu-decision-trump-gaza-plan-analysis-latam-intl)
+- **Israel Rejects Trump’s 15-Point Plan to Disarm Hamas**: [Link](https://www.nytimes.com/2026/08/09/world/middleeast/israel-netanyahu-trump-15-point-plan-hamas-peace-gaza.html)
+- **Netanyahu says Trump's new Gaza plan is unacceptable**: [Link](https://www.reuters.com/world/middle-east/israel-rejects-trumps-15-point-plan-gaza-pm-netanyahu-says-2026-08-09/)
+
+
 ### نجاة عتابو (N/A, Sun, 9 Aug 2026 19:10:00 -0700)
 
 - **نجاة عتابو تتألق في مهرجان الحمامات بتونس**: [Link](https://madar21.com/445634.html)
