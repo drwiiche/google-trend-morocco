@@ -1,3 +1,17 @@
+### حرائق الغابات (N/A, Tue, 11 Aug 2026 14:10:00 -0700)
+
+- **فيديو. حريق هائل في إقليم هويلفا الإسباني يهدد المنازل.. وإجلاء نحو 800 شخص**: [Link](https://arabic.euronews.com/video/2026/08/11/the-wildfire-in-huelva-spain-is-threatening-homes-with-800-people-evacuated-amid-a-severe)
+- **إسبانيا.. إجلاء المئات جنوب البلاد جراء حرائق الغابات**: [Link](https://asharq.com/videos/shorts/10672/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A5%D8%AC%D9%84%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%A6%D8%A7%D8%AA-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D8%A7%D8%AA/)
+- **حرائق هائلة تجتاح إسبانيا وإجلاء 800 شخص واحتراق 20 ألف هكتار وسط تفاقم أزمة الجفاف في أوروبا**: [Link](https://darelhilal.com/News/3284347.aspx)
+
+
+### مانشستر سيتي (N/A, Tue, 11 Aug 2026 14:00:00 -0700)
+
+- **خطوة رسمية تشعل التكهنات.. هل حسم برشلونة صفقة رودري؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%B7%D9%88%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AA%D9%83%D9%87%D9%86%D8%A7%D8%AA--%D9%87%D9%84-%D8%AD%D8%B3%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A/bltd3a21af62f2de1f5)
+- **3 أسباب وراء رفض رودري لريال مدريد وتفضيله برشلونة**: [Link](https://www.aljazeera.net/sport/2026/8/11/%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **البارصا والسيتي يواصلان التفاوض بشأن صفقة رودري**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%B5%D8%A7-%D9%88%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D9%88%D8%B6-%D8%A8%D8%B4%D8%A3%D9%86-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A/24015)
+
+
 ### air algérie (N/A, Tue, 11 Aug 2026 13:50:00 -0700)
 
 - **Royal Air Maroc et Air Algérie : les chiffres montrent deux compagnies qui ne jouent plus dans la même catégorie**: [Link](https://www.bladi.net/royal-air-maroc-air-algerie-chiffres-montrent-deux-compagnies-jouent,123064.html)
