@@ -1,3 +1,10 @@
+### eclipse solaire 12 aout 2026 maroc (N/A, Tue, 11 Aug 2026 01:30:00 -0700)
+
+- **Éclipse : regarder directement le Soleil quelques secondes n’est pas sans risque (Wiam El Jai)**: [Link](https://lematin.ma/societe/eclipse-solaire-exposition-risques-les-conseils-dune-specialiste/360370)
+- **Une éclipse solaire partielle visible au Maroc ce mercredi 12 août**: [Link](https://fnh.ma/article/actualites-marocaines/eclipse-solaire-maroc-12-aout-2026)
+- **Eclipse solaire : tout comprendre au phénomène attendu le 12 août**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/08/08/eclipse-solaire-tout-comprendre-au-phenomene-attendu-le-12-aout_6740821_4355770.html)
+
+
 ### كهرباء (N/A, Mon, 10 Aug 2026 14:20:00 -0700)
 
 - **New Amazon Data Center Stokes Worry It Would Be the Most Polluting Power Plant in the U.S.**: [Link](https://www.nytimes.com/2026/08/08/climate/amazon-data-center-texas-pollution.html)
