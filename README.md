@@ -1,3 +1,24 @@
+### psg aston villa (N/A, Tue, 11 Aug 2026 12:50:00 -0700)
+
+- **Uefa Super Cup: Paris St-Germain get extra dressing room for Aston Villa match**: [Link](https://www.bbc.com/sport/football/articles/cre41pqy0r7o)
+- **Paris vs Aston Villa Super Cup preview: Where to watch, kick-off time, predicted line-ups**: [Link](https://www.uefa.com/uefasupercup/news/02a8-2149ed5e5bc1-0b130f0cdccd-1000--paris-vs-aston-villa-super-cup-preview-where-to-watch-ki/)
+- **PSG Includes Hakimi in European Super Cup’s Squad**: [Link](https://www.moroccoworldnews.com/2026/08/334152/psg-includes-hakimi-in-european-super-cups-squad/)
+
+
+### compagnie aérienne (N/A, Tue, 11 Aug 2026 12:20:00 -0700)
+
+- **Royal Air Maroc et Air Algérie : les chiffres montrent deux compagnies qui ne jouent plus dans la même catégorie**: [Link](https://www.bladi.net/royal-air-maroc-air-algerie-chiffres-montrent-deux-compagnies-jouent,123064.html)
+- **La forte croissance d’Air Algérie propulse l’aéroport d’Alger dans le Top 5 africain**: [Link](https://www.visa-algerie.com/la-forte-croissance-dair-algerie-propulse-laeroport-dalger-dans-le-top-5-africain/)
+- **Air Algérie affiche la plus forte progression parmi les grandes compagnies africaines**: [Link](https://voyagerdz.com/air-algerie-affiche-la-plus-forte-progression-parmi-les-grandes-compagnies-africaines/)
+
+
+### lyon – sparta prague (N/A, Tue, 11 Aug 2026 12:10:00 -0700)
+
+- **Lyon vs Sparta Prague predictions: Look for Lyon to respond**: [Link](https://www.livescore.com/en/news/football/champions-league/predictions/lyon-sparta-prague-predictions/)
+- **Moussa Niakhate set for Champions League return**: [Link](https://en.africatopsports.com/moussa-niakhate-set-for-champions-league-return/)
+- **Malick Fofana, Loïs Openda and Ernest Nuamah to start as OL chase Sparta Prague**: [Link](https://onefootball.com/en/news/malick-fofana-lois-openda-and-ernest-nuamah-to-start-as-ol-chase-sparta-prague-43258706)
+
+
 ### المغرب (N/A, Tue, 11 Aug 2026 11:50:00 -0700)
 
 - **مدرب "لبؤات الأطلس" يراهن على الضغط الجماهيري أمام المنتخب الكاميروني**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D8%AC-1790644.html)
