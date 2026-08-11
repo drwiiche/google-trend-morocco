@@ -1,3 +1,24 @@
+### palermo - juventus (N/A, Tue, 11 Aug 2026 05:00:00 -0700)
+
+- **LIVE Al 45' Juventus-Palermo 1-0: Yildiz firma il primo gol della stagione**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/11-08-2026/juventus-palermo-live-gol-e-marcatori-amichevole.shtml)
+- **Calcio: la Juve saluta Perth battendo 2-0 il Palermo**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/08/11/calcio-la-juve-saluta-perth-battendo-2-0-il-palermo_332e1d62-d60c-48f1-8922-e724723c9347.html)
+- **Yildiz, la prima fucilata arriva nella notte australiana: il gol dell'1-0 al Palermo**: [Link](https://www.tuttosport.com/foto/calcio/serie-a/juventus/2026/08/11-150477487/yildiz_la_prima_fucilata_arriva_nella_notte_australiana_il_gol_dell_1-0_al_palermo)
+
+
+### عاطف نجيب (N/A, Tue, 11 Aug 2026 04:50:00 -0700)
+
+- **من "شرارة درعا" إلى المشنقة.. سوريون يتفاعلون مع حكم إعدام عاطف نجيب**: [Link](https://www.aljazeera.net/news/2026/8/11/%D8%B9%D8%A7%D8%B7%D9%81-%D9%86%D8%AC%D9%8A%D8%A8-%D8%A3%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%88%D9%85%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D9%85%D9%86)
+- **بشار الأسد: القضاء السوري يحكم غيابياً بالإعدام على الرئيس السابق**: [Link](https://www.bbc.com/arabic/articles/cd0xryy95xno)
+- **الإعدام للأسد وقادة سوريين سابقين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D9%84%D9%84%D8%A3%D8%B3%D8%AF-%D9%88%D9%82%D8%A7%D8%AF%D8%A9-%D8%B3%D9%88%D8%B1%D9%8A%D9%8A%D9%86-%D8%B3%D8%A7%D8%A8%D9%82%D9%8A%D9%86-1790525.html)
+
+
+### elyaz zidane (N/A, Tue, 11 Aug 2026 04:10:00 -0700)
+
+- **Zinedine Zidane : son fils Elyaz, footballeur, fait un choix fort et surprend**: [Link](https://www.purepeople.com/diapo/zinedine-zidane-son-dernier-fils-elyaz-egalement-footballeur-a-abandonne-le-nom-de-son-pere_a553092/1)
+- **"On vit le foot pour des émotions", Damien Perrinelle, nouveau coach du Red Star FC est l'invité d'Intégrale Sport !**: [Link](https://rmcsport.bfmtv.com/football/ligue-2/video-on-vit-le-foot-pour-des-emotions-damien-perrinelle-nouveau-coach-du-red-star-fc-est-l-invite-d-integrale-sport_VN-202608090173.html)
+- **Une première préoccupan­te**: [Link](https://www.pressreader.com/france/presse-ocean/20260810/282003269244292)
+
+
 ### amine gouiri (N/A, Tue, 11 Aug 2026 04:40:00 -0700)
 
 - **The door is open: Algeria star raises uncertainty over his future**: [Link](https://www.goal.com/en-in/news/the-door-is-open-algeria-star-raises-uncertainty-over-his-future/blt5cde5ac7d7257f34)
