@@ -1,3 +1,17 @@
+### المحكمة الدستورية (N/A, Tue, 11 Aug 2026 03:20:00 -0700)
+
+- **المحكمة الدستورية تصرح بتعذر البت في دستورية قانون مهنة المحاماة بسبب إحالة غير مستوفية للشروط القانونية – اليوم 24**: [Link](https://alyaoum24.com/2037799.html)
+- **المحكمة الدستورية ترفض البت في قانون المحاماة بسبب "اختلال وثائق الإحالة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D8%B3%D8%AA%D9%88%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%A8%D8%AA-%D9%81%D9%8A-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7-1790361.html)
+- **ضربة للمحامين وانتصار لوهبي..المحكمة الدستورية: منقدروش نبثو دستورية قانون المحاماة بسبب خلل إجرائي**: [Link](https://www.goud.ma/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%84%D9%84%D9%85%D8%AD%D8%A7%D9%85%D9%8A%D9%86-%D9%88%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%84%D9%88%D9%87%D8%A8%D9%8A-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7-1035986/)
+
+
+### coupe du monde de football 2030 (N/A, Tue, 11 Aug 2026 00:10:00 -0700)
+
+- **Finale du Mondial 2030: la «menace marocaine», une aubaine pour l’Espagne qui évite de trancher entre Madrid et Barcelone**: [Link](https://sport.le360.ma/coupe-du-monde/finale-du-mondial-2030-la-menace-marocaine-une-aubaine-pour-lespagne-qui-evite-de-trancher-entre_NZUKAE5Q4ZCJ5H5VYCFYD3Z6P4/)
+- **Crise à la Fifa : Gianni Infantino fait une grande promesse au Maroc en échange d’un soutien public**: [Link](https://www.lefigaro.fr/flash-sport/crise-a-la-fifa-gianni-infantino-fait-une-grande-promesse-au-maroc-en-echange-d-un-soutien-public-20260805)
+- **Mondial 2030 : Madrid écarte toute remise en cause de la coorganisation avec le Maroc**: [Link](https://medias24.com/2026/08/07/mondial-2030-madrid-ecarte-toute-remise-en-cause-de-la-coorganisation-avec-le-maroc-1738311/)
+
+
 ### palerme – juventus (N/A, Tue, 11 Aug 2026 03:00:00 -0700)
 
 - **Juventus Turin - Palerme, Matches amicaux étrangers, match en direct le 11/08/2026**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-etrangers/2026-2027/juventus-turin-palerme-live/697913)
