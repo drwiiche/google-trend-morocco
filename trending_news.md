@@ -1,3 +1,24 @@
+### amine gouiri (N/A, Tue, 11 Aug 2026 04:40:00 -0700)
+
+- **The door is open: Algeria star raises uncertainty over his future**: [Link](https://www.goal.com/en-in/news/the-door-is-open-algeria-star-raises-uncertainty-over-his-future/blt5cde5ac7d7257f34)
+- **Como prepare €30m offer for Marseille striker Amine Gouiri**: [Link](https://africasoccer.com/como-prepare-e30m-offer-for-marseille-striker-amine-gouiri/)
+- **Amine Gouiri transfer rumour: Marseille forward linked with Sevilla move**: [Link](https://africasoccer.com/amine-gouiri-transfer-rumour-marseille-forward-linked-with-sevilla-move/)
+
+
+### lunettes éclipse solaire au maroc (N/A, Tue, 11 Aug 2026 04:10:00 -0700)
+
+- **Éclipse : regarder directement le Soleil quelques secondes n’est pas sans risque (Wiam El Jai)**: [Link](https://lematin.ma/societe/eclipse-solaire-exposition-risques-les-conseils-dune-specialiste/360370)
+- **Lunettes pour éclipse solaire - Des marquages fantaisistes, mais la sécurité assurée**: [Link](https://www.quechoisir.org/actualite-lunettes-pour-eclipse-solaire-des-marquages-fantaisistes-mais-la-securite-assuree-n177698/)
+- **Six questions sur l’éclipse solaire visible depuis le Maroc le 12 août**: [Link](https://telquel.ma/instant-t/2026/08/11/six-questions-sur-leclipse-solaire-visible-depuis-le-maroc-le-12-aout_2002916/)
+
+
+### اغتيال (N/A, Tue, 11 Aug 2026 04:10:00 -0700)
+
+- **إسرائيل تغير تعليمات إطلاق النار في غزة: التراجع عن المبادرة بالهجوم**: [Link](https://www.alaraby.co.uk/politics/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%BA%D9%8A%D8%B1-%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D8%A7%D8%AA-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A8%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85)
+- **الاحتلال يستعد لخفض كبير لقواته في غزة.. ماذا عن الفرقة 99؟**: [Link](https://arabi21.com/story/1780881/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%AE%D9%81%D8%B6-%D9%83%D8%A8%D9%8A%D8%B1-%D9%84%D9%82%D9%88%D8%A7%D8%AA%D9%87-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D9%85%D8%A7%D8%B0%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D9%82%D8%A9-99)
+- **إسرائيل تبحث انسحاباً من "الخط الأصفر" رغم عقدة سلاح حماس**: [Link](https://www.skynewsarabia.com/middle-east/1885063-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%A8%D8%AD%D8%AB-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8%D8%A7-%D8%A7%D9%84%D8%AE%D8%B7-%D8%A7%D9%84%D8%A3%D8%B5%D9%81%D8%B1-%D8%B1%D8%BA%D9%85-%D8%B9%D9%82%D8%AF%D8%A9-%D8%B3%D9%84%D8%A7%D8%AD-%D8%AD%D9%85%D8%A7%D8%B3)
+
+
 ### المحكمة الدستورية (N/A, Tue, 11 Aug 2026 03:20:00 -0700)
 
 - **المحكمة الدستورية تصرح بتعذر البت في دستورية قانون مهنة المحاماة بسبب إحالة غير مستوفية للشروط القانونية – اليوم 24**: [Link](https://alyaoum24.com/2037799.html)
