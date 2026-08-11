@@ -1,3 +1,10 @@
+### كهرباء (N/A, Mon, 10 Aug 2026 14:20:00 -0700)
+
+- **New Amazon Data Center Stokes Worry It Would Be the Most Polluting Power Plant in the U.S.**: [Link](https://www.nytimes.com/2026/08/08/climate/amazon-data-center-texas-pollution.html)
+- **Scoop: Amazon Is Behind One of the Largest Planned Gas Power Plants in the US**: [Link](https://www.distilled.earth/p/scoop-amazon-is-behind-one-of-the)
+- **Amazon data center plant in Texas could become America’s biggest polluter**: [Link](https://www.the-independent.com/tech/amazon-texas-data-center-pecos-county-emissions-natural-gas-b3029869.html)
+
+
 ### eclipse (N/A, Mon, 10 Aug 2026 15:50:00 -0700)
 
 - **A stunning solar eclipse will soon unfold. Here’s how scientists map the path of totality**: [Link](https://www.cnn.com/2026/08/10/science/eclipse-path-totality-map-explainer)
