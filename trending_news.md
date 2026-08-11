@@ -1,3 +1,17 @@
+### المغرب (N/A, Tue, 11 Aug 2026 11:50:00 -0700)
+
+- **مدرب "لبؤات الأطلس" يراهن على الضغط الجماهيري أمام المنتخب الكاميروني**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D8%AC-1790644.html)
+- **نصف نهائي كأس أمم إفريقيا للسيدات - (المغرب/ الكاميرون).. بعد ضمان التأهل إلى المونديال لبؤات الأطلس يوجهن البوصلة نحو النهائي**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%A8%D8%B9%D8%AF-%D8%B6%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%88%D8%AC%D9%87%D9%86)
+- **فيلدا: تأهلنا إلى المونديال والآن نريد بلوغ نهائي "الكان"**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA/%D9%81%D9%8A%D9%84%D8%AF%D8%A7-%D8%AA%D8%A3%D9%87%D9%84%D9%86%D8%A7-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A2%D9%86-%D9%86%D8%B1%D9%8A%D8%AF-%D8%A8%D9%84%D9%88%D8%BA-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86/24014)
+
+
+### gta vi (N/A, Tue, 11 Aug 2026 10:10:00 -0700)
+
+- **Take-Two CEO Strauss Zelnick on GTA 6: I believe we will exceed expectations**: [Link](https://www.cnbc.com/video/2026/08/10/take-two-ceo-strauss-zelnick-on-gta-6-i-believe-we-will-exceed-expectations.html)
+- **‘GTA 6’ Pre-Orders Reach ‘Unprecedented and Astonishing’ Level in June Quarter, Take-Two Interactive CEO Says**: [Link](https://variety.com/2026/gaming/news/gta-6-preorder-sales-take-two-earnings-1236829396/)
+- **Grand Theft Auto 6 Won’t See Discounts or Price Cuts For a While After Release, Says Take-Two CEO**: [Link](https://gamingbolt.com/grand-theft-auto-6-wont-see-discounts-or-price-cuts-for-a-while-after-release-says-take-two-ceo)
+
+
 ### ts galaxy football club – sundowns (N/A, Tue, 11 Aug 2026 10:50:00 -0700)
 
 - **Downs looking for a perfect league start against Galaxy**: [Link](https://www.sowetan.co.za/sport/2026-08-11-downs-looking-for-a-perfect-league-start-against-galaxy/)
