@@ -1,3 +1,38 @@
+### ts galaxy football club – sundowns (N/A, Tue, 11 Aug 2026 10:50:00 -0700)
+
+- **Downs looking for a perfect league start against Galaxy**: [Link](https://www.sowetan.co.za/sport/2026-08-11-downs-looking-for-a-perfect-league-start-against-galaxy/)
+- **Themba Zwane: Mamelodi Sundowns must beat TS Galaxy after last season’s heartbreak**: [Link](https://thestar.co.za/sport/soccer/2026-08-11-themba-zwane-mamelodi-sundowns-must-beat-ts-galaxy-after-last-seasons-heartbreak/)
+- **TS Galaxy 0-1 Mamelodi LIVE Score: León opens the scoring**: [Link](https://www.vavel.com/en-us/soccer/2026/08/11/1267702-ts-galaxy-vs-mamelodi-live-score-betway-premiership.html)
+
+
+### برشلونة (N/A, Tue, 11 Aug 2026 10:30:00 -0700)
+
+- **خطوة رسمية تشعل التكهنات.. هل حسم برشلونة صفقة رودري؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%B7%D9%88%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AA%D9%83%D9%87%D9%86%D8%A7%D8%AA--%D9%87%D9%84-%D8%AD%D8%B3%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A/bltd3a21af62f2de1f5)
+- **البارصا والسيتي يواصلان التفاوض بشأن صفقة رودري**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%B5%D8%A7-%D9%88%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D9%88%D8%B6-%D8%A8%D8%B4%D8%A3%D9%86-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A/24015)
+- **مورينيو "لم يصدق" الأمر .. مصادر كتالونية تكشف رد فعل مدرب ريال مدريد على اختيار رودري برشلونة**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%84%D9%85-%D9%8A%D8%B5%D8%AF%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1--%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%B1%D8%AF-%D9%81%D8%B9%D9%84-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt8fd83fbc8328bf7b)
+
+
+### الجزيرة ضد الاتحاد (N/A, Tue, 11 Aug 2026 10:20:00 -0700)
+
+- **فيديو: البديل الذهبي.. النصيري يمهد طريق موهبة الاتحاد لخلافة ديابي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%A8%D8%AF%D9%8A%D9%84-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A--%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%8A%D9%85%D9%87%D8%AF-%D8%B7%D8%B1%D9%8A%D9%82-%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D8%AF%D9%8A%D8%A7%D8%A8%D9%8A/blt56c7b48045b00450)
+- **استبعاد العبود من قائمة الاتحاد لمواجهة الجزيرة**: [Link](https://sa.hihi2.com/2026/08/09/p248526.html)
+- **عين على الحكم | فاتورة غياب تقنية الفيديو .. هدف غير محتسب للجزيرة أمام الاتحاد يتطور لاشتباكات بين الفريقين**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D8%AD%D9%82/bltb8f61e7017290680)
+
+
+### وزارة التربية والتعليم (N/A, Tue, 11 Aug 2026 10:00:00 -0700)
+
+- **تأجيل الدراسة 2027.. التعليم تحسم أمر تأجيل العام الدراسي إلى 21 سبتمبر**: [Link](https://www.almasryalyoum.com/news/details/4335534)
+- **خبير تربوي لـ كلمة أخيرة: تقديم موعد الدراسة أسبوعا يحتاج إلى مراجعة**: [Link](https://www.youm7.com/story/2026/8/10/%D8%AE%D8%A8%D9%8A%D8%B1-%D8%AA%D8%B1%D8%A8%D9%88%D9%8A-%D9%84%D9%80-%D9%83%D9%84%D9%85%D8%A9-%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A3%D8%B3%D8%A8%D9%88%D8%B9%D8%A7-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC/7509488)
+- **وقتاش تكون العودة المدرسية في الدول العربية؟**: [Link](https://www.tuniscope.com/ar/article/438005/arabe/actu-arabe/rentre-scolaire-tunisie-115515)
+
+
+### soufiane rahimi (N/A, Tue, 11 Aug 2026 10:00:00 -0700)
+
+- **Soufiane Rahimi démarre la saison sur une nouvelle distinction**: [Link](https://lematin.ma/sports/soufiane-rahimi-demarre-la-saison-sur-une-nouvelle-distinction/360512)
+- **Les malheurs s'enchaînent pour la star du Maroc**: [Link](https://fr.news.yahoo.com/sport/malheurs-sencha%C3%AEnent-star-maroc-174728506.html)
+- **UAE Pro League : Soufiane Rahimi élu meilleur joueur du championnat émirati**: [Link](https://africatopsports.com/encyclofoot/encyclofoot-asie-oceanie/uae-pro-league-soufiane-rahimi-elu-meilleur-joueur-du-championnat-emirati/)
+
+
 ### essence (N/A, Tue, 11 Aug 2026 09:40:00 -0700)
 
 - **Les prix à la pompe en baisse : voici les tarifs applicables dès aujourd’hui**: [Link](https://www.lesoir.be/763304/article/2026-08-05/les-prix-la-pompe-en-baisse-voici-les-tarifs-applicables-des-aujourdhui)
