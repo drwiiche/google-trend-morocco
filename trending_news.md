@@ -1,3 +1,29 @@
+### شرطة (N/A, Tue, 11 Aug 2026 06:30:00 -0700)
+
+- **الأمن الوطني يعلن حركة انتقالية واسعة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%A7%D8%B3%D8%B9%D8%A9-1790400.html)
+- **مديرية الأمن تعلن عن اللائحة السنوية للموظفين المستفيدين من الحركة الانتقالية**: [Link](https://barlamane.com/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A7%D9%84%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D9%8A%D8%A9-%D9%84/)
+- **🔥الأمن يعلن لائحته السنوية للمستفيدين من الحركة الانتقالية**: [Link](https://tanja7.com/190406/)
+
+
+### srm (N/A, Tue, 11 Aug 2026 06:10:00 -0700)
+
+- **Broncos share updated Burnham Yard master plan renderings**: [Link](https://www.denverbroncos.com/news/broncos-share-updated-burnham-yard-master-plan-renderings)
+- **Broncos president: 2031 goal for new stadium at risk if CBA timeline doesn’t accelerate**: [Link](https://www.denverpost.com/2026/08/01/broncos-burnham-yard-stadium-update-cba-process/)
+- **GUEST OPINION: Denver should be partner, not obstacle for Burnham Yard**: [Link](https://www.denvergazette.com/2026/08/11/guest-opinion-denver-should-be-partner-not-obstacle-for-burnham-yard/)
+
+
+### tout le monde veut prendre sa place (N/A, Tue, 11 Aug 2026 05:30:00 -0700)
+
+- **Le champion Vincent cède sa place sur France 2 mais…**: [Link](https://toutelatele.ouest-france.fr/le-champion-vincent-cede-sa-place-sur-france-2-mais-188901)
+- **Cyril Féraud : après Fort Boyard, l'émission "Tout le monde veut prendre sa place" aussi déprogrammée**: [Link](https://www.public.fr/cyril-feraud-apres-fort-boyard-lemission-tout-le-monde-veut-prendre-sa-place-aussi-deprogrammee)
+- **Tout le monde veut prendre sa place**: [Link](https://tvmag.lefigaro.fr/programme-tv/programme/tout-le-monde-veut-prendre-sa-place-f170407133)
+
+
+### النادي المصري (N/A, Tue, 11 Aug 2026 05:00:00 -0700)
+
+
+
+
 ### palermo - juventus (N/A, Tue, 11 Aug 2026 05:00:00 -0700)
 
 - **LIVE Al 45' Juventus-Palermo 1-0: Yildiz firma il primo gol della stagione**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/11-08-2026/juventus-palermo-live-gol-e-marcatori-amichevole.shtml)
