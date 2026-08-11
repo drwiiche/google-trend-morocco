@@ -1,3 +1,17 @@
+### كأس العالم لكرة القدم 2030 (N/A, Tue, 11 Aug 2026 02:10:00 -0700)
+
+- **حارس ريال مدريد السابق: المغرب خصم سيئ للغاية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%A7%D8%B1%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AE%D8%B5%D9%85-%D8%B3%D9%8A%D9%8A%D9%94-%D9%84%D9%84%D8%BA%D8%A7%D9%8A%D8%A9/blt2bca5c2e7dd149fa)
+- **حارس إسباني دولي سابق: المغرب منافس قوي على احتضان نهائي مونديال 2030 والجيوسياسية قد تحسم السباق**: [Link](https://barlamane.com/%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AF%D9%88%D9%84%D9%8A-%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D9%82%D9%88%D9%8A/)
+- **رسالة مفتوحة إلى اليسار الإسباني**: [Link](https://febrayer.com/1157000.html)
+
+
+### donald trump (N/A, Tue, 11 Aug 2026 00:20:00 -0700)
+
+- **Contradicting public statements, Trump took secret flight from Turkey amid Iranian threat**: [Link](https://www.washingtonpost.com/national-security/2026/08/10/trump-flew-secrecy-amid-iran-threat-air-force-one-became-decoy/)
+- **Trump used elaborate ruse to fly out of Turkey following summit because of Iran threat, report says**: [Link](https://wtop.com/white-house/2026/08/trump-used-elaborate-ruse-to-fly-out-of-turkey-following-summit-because-of-iran-threat-report-says/)
+- **Trump reportedly hid in catering container to board secret flight in Turkey amid Iran threat**: [Link](https://www.theguardian.com/us-news/2026/aug/10/trump-secret-flight-nato-return)
+
+
 ### eclipse solaire 12 aout 2026 maroc (N/A, Tue, 11 Aug 2026 01:30:00 -0700)
 
 - **Éclipse : regarder directement le Soleil quelques secondes n’est pas sans risque (Wiam El Jai)**: [Link](https://lematin.ma/societe/eclipse-solaire-exposition-risques-les-conseils-dune-specialiste/360370)
