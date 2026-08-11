@@ -1,3 +1,17 @@
+### الفنان محمد إمام (N/A, Tue, 11 Aug 2026 07:40:00 -0700)
+
+- **وفاة الفنان القدير محمد إمام.. وابنته: الجنازة بالقليوبية والعزاء بالمنزل فقط**: [Link](https://www.youm7.com/story/2026/8/10/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%82%D8%AF%D9%8A%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%A5%D9%85%D8%A7%D9%85-%D9%88%D8%A7%D8%A8%D9%86%D8%AA%D9%87-%D8%A7%D9%84%D8%AC%D9%86%D8%A7%D8%B2%D8%A9-%D8%A8%D8%A7%D9%84%D9%82%D9%84%D9%8A%D9%88%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%B2%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D9%86%D8%B2%D9%84/7508534)
+- **أبرز أحداث الوسط الفني في 24 ساعة.. حقيقة إصابة إنجي شرف بمرض خطير**: [Link](https://www.elwatannews.com/news/details/8336519)
+- **القصة الكاملة لوفاة الفنان محمد إمام.. حقيقة ارتباطه بالزعيم**: [Link](https://www.annahar.com/lifestyle/arts/337188/%D8%A7%D9%84%D9%82%D8%B5%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%84%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%A5%D9%85%D8%A7%D9%85-%D9%88%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7%D9%87-%D8%A8%D8%A7%D9%84%D8%B2%D8%B9%D9%8A%D9%85)
+
+
+### léon marchand (N/A, Tue, 11 Aug 2026 06:20:00 -0700)
+
+- **Horaires, programme et diffusion du mardi 11 août aux Championnats d'Europe de natation à Paris**: [Link](https://www.lequipe.fr/Natation/Actualites/Grousset-wattel-fuchs-horaires-programme-et-diffusion-du-mardi-11-aout-aux-championnats-d-europe-de-natation-a-paris/1710167)
+- **Championnat d’Europe de natation : la magie Léon Marchand a encore frappé, les Bleus en argent sur le 4x200m**: [Link](https://www.lefigaro.fr/sports/autres-sports/championnat-d-europe-de-natation-la-fusee-leon-marchand-et-les-bleus-en-argent-sur-le-relais-4x200m-nage-libre-20260810)
+- **Championnats d’Europe de natation : Le relais français en argent sur 200 m avec Léon Marchand**: [Link](https://www.20minutes.fr/sport/natation/4238566-20260810-direct-championnats-europe-natation-grousset-2e-demie-finale-borodin-sacre-400-4-nages)
+
+
 ### شرطة (N/A, Tue, 11 Aug 2026 06:30:00 -0700)
 
 - **الأمن الوطني يعلن حركة انتقالية واسعة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%A7%D8%B3%D8%B9%D8%A9-1790400.html)
