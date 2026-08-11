@@ -1,3 +1,10 @@
+### bouznika (N/A, Tue, 11 Aug 2026 16:00:00 -0700)
+
+- **Démolition à Bouznika Plage : les mises en demeure sont tombées, les résidents s'organisent**: [Link](https://ledesk.ma/2026/08/11/demolition-a-bouznika-plage-les-mises-en-demeure-sont-tombees-les-residents-sorganisent/)
+- **Bouznika, une petite ville paisible dans le viseur de la prédation immobilière**: [Link](https://www.challenge.ma/bouznika-une-petite-ville-paisible-dans-le-viseur-de-la-predation-immobiliere-323382/)
+- **«C’est notre résidence principale depuis 30 ans»: à Bouznika, des propriétaires redoutent la démolition de leurs villas**: [Link](https://fr.le360.ma/societe/cest-notre-residence-principale-depuis-30-ans-a-bouznika-des-proprietaires-redoutent-la-demolition_KD5GRJ5V55BO7KKOLRFVQR7CFA/)
+
+
 ### كريستيانو رونالدو (N/A, Tue, 11 Aug 2026 14:50:00 -0700)
 
 - **كريستيانو رونالدو يتزوج شريكته جورجينا رودريغيس**: [Link](https://www.hespress.com/%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AA%D8%B2%D9%88%D8%AC-%D8%B4%D8%B1%D9%8A%D9%83%D8%AA%D9%87-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A-1790833.html)
