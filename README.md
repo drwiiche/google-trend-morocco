@@ -1,3 +1,45 @@
+### air algérie (N/A, Tue, 11 Aug 2026 13:50:00 -0700)
+
+- **Royal Air Maroc et Air Algérie : les chiffres montrent deux compagnies qui ne jouent plus dans la même catégorie**: [Link](https://www.bladi.net/royal-air-maroc-air-algerie-chiffres-montrent-deux-compagnies-jouent,123064.html)
+- **La forte croissance d’Air Algérie propulse l’aéroport d’Alger dans le Top 5 africain**: [Link](https://www.visa-algerie.com/la-forte-croissance-dair-algerie-propulse-laeroport-dalger-dans-le-top-5-africain/)
+- **Air Algérie affiche la plus forte progression parmi les grandes compagnies africaines**: [Link](https://voyagerdz.com/air-algerie-affiche-la-plus-forte-progression-parmi-les-grandes-compagnies-africaines/)
+
+
+### gta (N/A, Tue, 11 Aug 2026 13:50:00 -0700)
+
+- **Take-Two CEO Strauss Zelnick on GTA 6: I believe we will exceed expectations**: [Link](https://www.cnbc.com/video/2026/08/10/take-two-ceo-strauss-zelnick-on-gta-6-i-believe-we-will-exceed-expectations.html)
+- **‘GTA 6’ Pre-Orders Reach ‘Unprecedented and Astonishing’ Level in June Quarter, Take-Two Interactive CEO Says**: [Link](https://variety.com/2026/gaming/news/gta-6-preorder-sales-take-two-earnings-1236829396/)
+- **$100 Grand Theft Auto VI Ultimate Edition Is Said to Lead Pre-Order Sales, According to Take-Two CEO Strauss Zelnick**: [Link](https://www.thefpsreview.com/2026/08/11/100-grand-theft-auto-vi-ultimate-edition-is-said-to-lead-pre-order-sales-according-to-take-two-ceo-strauss-zelnick/)
+
+
+### yan diomandé real madrid (N/A, Tue, 11 Aug 2026 13:20:00 -0700)
+
+- **De grandes chaussures à remplir : Yan Diomande succède à Vinicius Junior au Real Madrid**: [Link](https://www.goal.com/fr/news/de-grandes-chaussures-a-remplir-yan-diomande-succede-a-vinicius-junior-au-real-madrid/blt8469a5edc3e072e0)
+- **Numéros des maillots du Real Madrid pour la saison 2026/27**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/latest-news/dorsales-del-real-madrid-para-la-temporada-2026-27-10-08-2026)
+- **Real Madrid : Mourinho se passe de Yan Diomandé**: [Link](https://www.footmercato.net/a2250103729592798687-real-madrid-mourinho-se-passe-de-yan-diomande)
+
+
+### فلاديمير بيتكوفيتش (N/A, Tue, 11 Aug 2026 13:10:00 -0700)
+
+- **خليفة بيتكوفيتش يقلب حسابات الاتحاد الجزائري لكرة القدم**: [Link](https://www.alquds.co.uk/%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%81%D9%8A%D8%AA%D8%B4-%D9%8A%D9%82%D9%84%D8%A8-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7/)
+- **الاتحاد الجزائري يكشف كواليس رحيل بيتكوفيتش وحقيقة التفاوض مع تشافي**: [Link](https://www.aljazeera.net/sport/2026/8/6/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A8%D9%8A%D8%AA%D9%83%D9%88%D9%81%D9%8A%D8%AA%D8%B4)
+- **بعد ابتعاد سانشيز.. مرشح بارز يقترب من تدريب منتخب الجزائر**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%B9%D8%AF-%D8%A7%D8%A8%D8%AA%D8%B9%D8%A7%D8%AF-%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D9%85%D8%B1%D8%B4%D8%AD-%D8%A8%D8%A7%D8%B1%D8%B2-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA/)
+
+
+### cristiano ronaldo (N/A, Tue, 11 Aug 2026 13:10:00 -0700)
+
+- **Cristiano Ronaldo 'gets secretly married to Georgina' and posts ring pic**: [Link](https://www.thesun.co.uk/sport/40031727/cristiano-ronaldo-georgina-rodriguez-married-ring-finger/)
+- **Cristiano Ronaldo and Georgina Rodríguez announced their marriage with subtle ring photo**: [Link](https://ca.news.yahoo.com/cristiano-ronaldo-georgina-rodr-guez-203105218.html)
+- **Cristiano Ronaldo & Georgina Rodriguez Are Married, Confirm Wedding With Ring Photo**: [Link](https://www.justjared.com/2026/08/11/cristiano-ronaldo-georgina-rodriguez-are-married-confirm-wedding-with-ring-photo/)
+
+
+### direction générale des impôts (N/A, Tue, 11 Aug 2026 11:10:00 -0700)
+
+- **DGI : le 1er septembre 2026, dernier délai pour plusieurs obligations fiscales**: [Link](https://medias24.com/2026/08/11/dgi-le-1er-septembre-2026-dernier-delai-pour-plusieurs-obligations-fiscales-1739151/)
+- **Fiscalité : les échéances à ne pas manquer avant le 1er septembre**: [Link](https://fr.hespress.com/484797-fiscalite-les-echeances-a-ne-pas-manquer-avant-le-1er-septembre.html)
+- **Fiscalité : les obligations à accomplir avant le 1er septembre 2026**: [Link](https://lematin.ma/economie/fiscalite-les-obligations-a-accomplir-avant-le-1er-septembre-2026/360324)
+
+
 ### psg aston villa (N/A, Tue, 11 Aug 2026 12:50:00 -0700)
 
 - **Uefa Super Cup: Paris St-Germain get extra dressing room for Aston Villa match**: [Link](https://www.bbc.com/sport/football/articles/cre41pqy0r7o)
