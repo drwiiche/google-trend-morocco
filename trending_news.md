@@ -1,3 +1,38 @@
+### essence (N/A, Tue, 11 Aug 2026 09:40:00 -0700)
+
+- **Les prix à la pompe en baisse : voici les tarifs applicables dès aujourd’hui**: [Link](https://www.lesoir.be/763304/article/2026-08-05/les-prix-la-pompe-en-baisse-voici-les-tarifs-applicables-des-aujourdhui)
+- **- 11 centimes, le diesel à 1,85 € dans ce pays frontalier**: [Link](https://www.auto-moto.com/carburant/11-cts-diesel-1-85-e-lux-78947)
+- **Pénurie de carburant: le gouvernement «prêt à libérer des réserves de pétrole sur le marché»**: [Link](https://www.virgule.lu/luxembourg/penurie-de-carburant-le-gouvernement-pret-a-liberer-des-reserves-de-petrole-sur-le-marche/159568936.html)
+
+
+### marrakech (N/A, Tue, 11 Aug 2026 09:40:00 -0700)
+
+- **Marrakech : attention à vos casquettes !**: [Link](https://www.bladi.net/marrakech-attention-casquettes,123050.html)
+- **Chute de membres d’un réseau de vol de chapeaux de luxe à Marrakech**: [Link](https://fr.hibapress.com/news-265630.html)
+- **Corée : Jemaa el-Fnaa à Marrakech au cœur d'une émission de voyage**: [Link](https://www.yabiladi.com/articles/details/200384/coree-jemaa-el-fnaa-marrakech-coeur.html)
+
+
+### موت (N/A, Tue, 11 Aug 2026 09:30:00 -0700)
+
+- **أزمة النزوح تتفاقم في غزة مع استمرار خروقات التهدئة وارتفاع حرارة الصيف**: [Link](https://www.alquds.co.uk/%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%86%D8%B2%D9%88%D8%AD-%D8%AA%D8%AA%D9%81%D8%A7%D9%82%D9%85-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D9%85%D8%B9-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%AE%D8%B1/)
+- **غزة تواجه العطش في ذروة الصيف.. آبار مدمرة وشبكات محطمة**: [Link](https://arabi21.com/story/1780838/%D8%BA%D8%B2%D8%A9-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B9%D8%B7%D8%B4-%D9%81%D9%8A-%D8%B0%D8%B1%D9%88%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D9%81-%D8%A2%D8%A8%D8%A7%D8%B1-%D9%85%D8%AF%D9%85%D8%B1%D8%A9-%D9%88%D8%B4%D8%A8%D9%83%D8%A7%D8%AA-%D9%85%D8%AD%D8%B7%D9%85%D8%A9)
+- **غزة في مواجهة الموت البطيء**: [Link](https://www.wattan.net/ar/news/493985.html)
+
+
+### équipe du maroc féminine de football (N/A, Tue, 11 Aug 2026 07:20:00 -0700)
+
+- **CAN féminine Maroc 2026 : Le programme des demi-finales**: [Link](https://medias24.com/2026/08/10/can-feminine-maroc-2026-le-programme-des-demi-finales-1739057/)
+- **Coupe du monde féminine 2027 : l'Algérie, le Cameroun, le Malawi et le Maroc se qualifient**: [Link](https://www.bbc.com/afrique/articles/c1j17dzwyjyo)
+- **Jorge Vilda : “La qualification pour le Mondial 2027 est le fruit du projet de développement du football féminin”**: [Link](https://mobile.telquel.ma/instant-t/2026/08/10/jorge-vilda-la-qualification-pour-le-mondial-2027-est-le-fruit-du-projet-de-developpement-du-football-feminin_2002740/)
+
+
+### بشار الأسد (N/A, Tue, 11 Aug 2026 07:00:00 -0700)
+
+- **بعد الحكم بإعدامه في دمشق.. ما فرص ملاحقة بشار الأسد خارج سوريا؟**: [Link](https://www.aljazeera.net/politics/2026/8/11/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A8%D8%A5%D8%B9%D8%AF%D8%A7%D9%85%D9%87-%D9%81%D9%8A-%D8%AF%D9%85%D8%B4%D9%82-%D9%85%D8%A7-%D9%81%D8%B1%D8%B5)
+- **عاطف نجيب: الإعدام بحق ابن خالة بشار الأسد مؤجج "الثورة" في سوريا، فماذا نعرف عنه؟**: [Link](https://www.bbc.com/arabic/articles/c74gvw2l9nxo)
+- **الإعدام للأسد وقادة سوريين سابقين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D9%84%D9%84%D8%A3%D8%B3%D8%AF-%D9%88%D9%82%D8%A7%D8%AF%D8%A9-%D8%B3%D9%88%D8%B1%D9%8A%D9%8A%D9%86-%D8%B3%D8%A7%D8%A8%D9%82%D9%8A%D9%86-1790525.html)
+
+
 ### منتخب الأرجنتين لكرة القدم (N/A, Tue, 11 Aug 2026 09:00:00 -0700)
 
 - **بعد أحداث مباراة الأرجنتين بالمونديال.. الفيفا يعاقب مدرب منتخب مصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D9%88%D8%BA%D8%B1%D8%A7%D9%85%D8%A9-%D9%83%D8%A8%D9%8A%D8%B1%D8%A9--%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%B9%D8%A7%D9%82%D8%A8-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%A7%D9%94%D8%AD%D8%AF%D8%A7%D8%AB-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86/blt5debc1b786f85186)
