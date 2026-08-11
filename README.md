@@ -1,3 +1,17 @@
+### palerme – juventus (N/A, Tue, 11 Aug 2026 03:00:00 -0700)
+
+- **Juventus Turin - Palerme, Matches amicaux étrangers, match en direct le 11/08/2026**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-etrangers/2026-2027/juventus-turin-palerme-live/697913)
+- **Juventus, Spalletti : « Marché des transferts, les mêmes idées que celles que nous avions avant les matches amicaux. Contre Palerme, Perin joue**: [Link](https://fr.news.yahoo.com/sport/juventus-spalletti-march%C3%A9-transferts-m%C3%AAmes-115033036.html)
+- **La pré-saison se poursuit : suivez Palerme-Juventus en streaming**: [Link](https://www.rtl.be/sport/football/football-etranger/la-pre-saison-se-poursuit-suivez-palerme-juventus-en-streaming/2026-08-11/article/796977)
+
+
+### ليبيا (N/A, Tue, 11 Aug 2026 02:00:00 -0700)
+
+- **محافظ المركزي الليبي يقدم استقالته ومجلس الدولة يرفضها**: [Link](https://www.aljazeera.net/ebusiness/2026/8/10/%D9%85%D8%AD%D8%A7%D9%81%D8%B8-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%A8%D9%8A-%D9%8A%D9%82%D8%AF%D9%85-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%AA%D9%87)
+- **الإصلاح المالي تحت الضغط.. النفوذ السياسي يربك المشهد النقدي في ليبيا**: [Link](https://arabi21.com/story/1780883/%D8%A7%D9%84%D8%A5%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%86%D9%81%D9%88%D8%B0-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D9%8A%D8%B1%D8%A8%D9%83-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF-%D8%A7%D9%84%D9%86%D9%82%D8%AF%D9%8A-%D9%81%D9%8A-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7)
+- **استقالة ناجي عيسى.. من تسوية أزمة مصرف ليبيا المركزي إلى أسئلة الرحيل الغامض | التلفزيون العربي**: [Link](https://www.alaraby.com/news/%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%AC%D9%8A-%D8%B9%D9%8A%D8%B3%D9%89-%D9%85%D9%86-%D8%AA%D8%B3%D9%88%D9%8A%D8%A9-%D8%A3%D8%B2%D9%85%D8%A9-%D9%85%D8%B5%D8%B1%D9%81-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D9%8A-%D8%A5%D9%84%D9%89-%D8%A3%D8%B3%D8%A6%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%BA%D8%A7%D9%85%D8%B6)
+
+
 ### كأس العالم لكرة القدم 2030 (N/A, Tue, 11 Aug 2026 02:10:00 -0700)
 
 - **حارس ريال مدريد السابق: المغرب خصم سيئ للغاية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%A7%D8%B1%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AE%D8%B5%D9%85-%D8%B3%D9%8A%D9%8A%D9%94-%D9%84%D9%84%D8%BA%D8%A7%D9%8A%D8%A9/blt2bca5c2e7dd149fa)
