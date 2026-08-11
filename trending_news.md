@@ -1,3 +1,17 @@
+### القتل (N/A, Tue, 11 Aug 2026 16:20:00 -0700)
+
+- **طالبان تعتقل شخصاً قتل طبيباً في ولاية بكتيا**: [Link](https://www.afintl.com/ar/202608112017)
+- **مقتل طبيب في مستشفى ولاية باكتيّا برصاصة من سلاح هوائي في جرديز – وكالة أطلس للأنباء**: [Link](https://atlaspress.news/ar/murder-doctor-paktiya-air-gun-gardez/)
+- **بعد 30 عاما.. محاكمة زعيم عصابة سابق في قضية مقتل مغني الراب توباك شاكور**: [Link](https://www.mc-doualiya.com/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7/20260810-%D8%A8%D8%B9%D8%AF-30-%D8%B9%D8%A7%D9%85%D8%A7-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%B2%D8%B9%D9%8A%D9%85-%D8%B9%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B3%D8%A7%D8%A8%D9%82-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D9%85%D9%82%D8%AA%D9%84-%D9%85%D8%BA%D9%86%D9%8A-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8-%D8%AA%D9%88%D8%A8%D8%A7%D9%83-%D8%B4%D8%A7%D9%83%D9%88%D8%B1)
+
+
+### solar eclipse (N/A, Tue, 11 Aug 2026 15:30:00 -0700)
+
+- **How and when to see the solar eclipse**: [Link](https://www.bbc.co.uk/news/resources/idt-2a268141-80ca-480d-bd04-6cf688bcc3dd)
+- **Partial solar eclipse to be visible across Morocco on Wednesday**: [Link](https://en.hespress.com/143509-partial-solar-eclipse-to-be-visible-across-morocco-on-wednesday.html)
+- **Parisians get ready for the eclipse**: [Link](https://www.france24.com/en/parisians-get-ready-for-the-eclipse)
+
+
 ### bouznika (N/A, Tue, 11 Aug 2026 16:00:00 -0700)
 
 - **Démolition à Bouznika Plage : les mises en demeure sont tombées, les résidents s'organisent**: [Link](https://ledesk.ma/2026/08/11/demolition-a-bouznika-plage-les-mises-en-demeure-sont-tombees-les-residents-sorganisent/)
