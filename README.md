@@ -1,3 +1,10 @@
+### eclipse (N/A, Mon, 10 Aug 2026 15:50:00 -0700)
+
+- **A stunning solar eclipse will soon unfold. Here’s how scientists map the path of totality**: [Link](https://www.cnn.com/2026/08/10/science/eclipse-path-totality-map-explainer)
+- **How to watch this month’s ‘blood moon’ lunar eclipse and partial solar eclipse**: [Link](https://www.bostonglobe.com/2026/08/10/metro/lunar-solar-eclipses-2026-how-to-view/)
+- **Rush to find solar eclipse glasses as UK high street stocks run short**: [Link](https://www.theguardian.com/science/2026/aug/10/solar-eclipse-glasses-uk-high-street-shortage)
+
+
 ### تشارلز الثالث (N/A, Mon, 10 Aug 2026 15:10:00 -0700)
 
 - **16 دقيقة حدادا ووفاة الملك تشارلز ومذيع هارب.. محطة بريطانية تقع في ورطة**: [Link](https://www.youm7.com/story/2026/8/10/16-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%AD%D8%AF%D8%A7%D8%AF%D8%A7-%D9%88%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%AA%D8%B4%D8%A7%D8%B1%D9%84%D8%B2-%D9%88%D9%85%D8%B0%D9%8A%D8%B9-%D9%87%D8%A7%D8%B1%D8%A8-%D9%85%D8%AD%D8%B7%D8%A9-%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A%D8%A9/7509002)
