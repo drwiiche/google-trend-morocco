@@ -1,3 +1,17 @@
+### كريستيانو رونالدو (N/A, Tue, 11 Aug 2026 14:50:00 -0700)
+
+- **كريستيانو رونالدو يتزوج شريكته جورجينا رودريغيس**: [Link](https://www.hespress.com/%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AA%D8%B2%D9%88%D8%AC-%D8%B4%D8%B1%D9%8A%D9%83%D8%AA%D9%87-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A-1790833.html)
+- **رسالة عبر إنستغرام.. جورجينا تنهي فيلم الزواج من كريستيانو رونالدو (صورة)**: [Link](https://www.eremnews.com/sports/20od278)
+- **زفاف في كاتدرائية فونشال ليس زفاف كريستيانو وجورجينا**: [Link](https://arabic.euronews.com/culture/2026/08/10/there-was-a-wedding-at-the-funchal-cathedral-but-it-was-not-cristiano-and-georginas)
+
+
+### mossad (N/A, Tue, 11 Aug 2026 14:00:00 -0700)
+
+- **Ex-Mossad chief says ‘we toured’ Iran’s Fordo nuclear site ‘many times’**: [Link](https://www.timesofisrael.com/ex-mossad-chief-says-we-toured-irans-fordo-nuclear-site-many-times/)
+- **Mossad 'toured' Fordow nuclear site many times, ex-spy chief Yossi Cohen says**: [Link](https://www.jpost.com/middle-east/iran-news/article-905187)
+- **Ex-Mossad chief: Israel 'walked around' targeted Iranian nuclear site many times**: [Link](https://www.haaretz.com/middle-east-news/iran/2026-08-11/ty-article/.premium/ex-mossad-chief-israel-walked-around-targeted-iranian-nuclear-site-many-times/0000019f-f0c6-d569-a5ff-f0e6310e0000)
+
+
 ### حرائق الغابات (N/A, Tue, 11 Aug 2026 14:10:00 -0700)
 
 - **فيديو. حريق هائل في إقليم هويلفا الإسباني يهدد المنازل.. وإجلاء نحو 800 شخص**: [Link](https://arabic.euronews.com/video/2026/08/11/the-wildfire-in-huelva-spain-is-threatening-homes-with-800-people-evacuated-amid-a-severe)
