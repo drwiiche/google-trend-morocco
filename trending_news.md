@@ -1,3 +1,17 @@
+### كسوف الشمس (N/A, Tue, 11 Aug 2026 17:10:00 -0700)
+
+- **من "قضمة" القمر إلى الخاتم الماسي.. 5 مشاهد ستصنع كسوف اليوم**: [Link](https://www.aljazeera.net/science/2026/8/12/%D9%85%D9%86-%D9%82%D8%B6%D9%85%D8%A9-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AE%D8%A7%D8%AA%D9%85-%D8%A7%D9%84%D9%85%D8%A7%D8%B3%D9%8A-5-%D9%85%D8%B4%D8%A7%D9%87%D8%AF)
+- **بين العصر والغروب .. التوقيت يغيب صلاة الكسوف عن مساجد المملكة**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B9%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D9%88%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7-1790669.html)
+- **العيون إلى السماء.. 4 ظواهر فلكية متزامنة في يوم واحد**: [Link](https://www.alarabiya.net/science/2026/08/10/%D8%A7%D9%84%D9%83%D8%B3%D9%88%D9%81-%D8%A7%D9%84%D8%B4%D9%85%D8%B3%D9%8A-%D9%88%D8%B2%D8%AE%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%B4%D8%A7%D9%88%D9%8A%D8%A7%D8%AA-%D8%B9%D8%B1%D8%B6-%D9%81%D9%84%D9%83%D9%8A-%D9%85%D8%B2%D8%AF%D9%88%D8%AC-%D9%8A%D8%B2%D9%8A%D9%86-%D8%B3%D9%85%D8%A7%D8%A1-%D8%A7%D8%BA%D8%B3%D8%B7%D8%B3)
+
+
+### cardinals – phillies (N/A, Tue, 11 Aug 2026 17:10:00 -0700)
+
+- **With Cards on deck, Sánchez looks to continue five-start win streak**: [Link](https://www.mlb.com/news/cristopher-sanchez-start-cardinals-phillies-aug-11-2026)
+- **Schwarber, Sosa and Painter power the Phillies to a 6-5 win over the Cardinals**: [Link](https://www.theheraldreview.com/sports/article/schwarber-sosa-and-painter-power-the-phillies-to-22382846.php)
+- **Analyzing Which Phillies Pitchers Could Be Available in Bullpen**: [Link](https://www.si.com/mlb/phillies/onsi/analyzing-which-phillies-pitchers-could-be-available-in-bullpen)
+
+
 ### القتل (N/A, Tue, 11 Aug 2026 16:20:00 -0700)
 
 - **طالبان تعتقل شخصاً قتل طبيباً في ولاية بكتيا**: [Link](https://www.afintl.com/ar/202608112017)
