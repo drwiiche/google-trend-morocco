@@ -1,3 +1,37 @@
+### caf (N/A, Wed, 12 Aug 2026 00:10:00 -0700)
+
+- **The Battle for FIFA: Bility questions CAF backing of Infantino**: [Link](https://www.aclsports.com/the-battle-for-fifa-bility-questions-caf-backing-of-infantino/)
+- **Uefa Super Cup: Omar Artan gets ready for final after US World Cup ban**: [Link](https://www.bbc.com/sport/football/videos/c8xnwjr0v8vo)
+- **Barred Somali World Cup ref 'grateful' for Super Cup shot**: [Link](https://www.espn.com/soccer/story/_/id/49575753/barred-somali-world-cup-ref-grateful-super-cup-shot)
+
+
+### tiempo (N/A, Tue, 11 Aug 2026 23:40:00 -0700)
+
+- **Burned fire engine**: [Link](https://www.nbcrightnow.com/burned-fire-engine/image_a6194fbd-466a-5176-ab8c-4290e2eafd92.html)
+- **Stevens County fire crews work 40 hours, one after losing home**: [Link](https://www.nbcrightnow.com/stevens-county-fire-crews-work-40-hours-one-after-losing-home/image_ace1863e-49f9-59a5-a8af-ea1006d1427d.html)
+
+
+### breeze (N/A, Tue, 11 Aug 2026 21:20:00 -0700)
+
+- **Licensable picture: Tourists in campervans and motorhomes wait for solar eclipse in front of Cape Fisterra lighthouse the day before the solar eclipse, on the Costa da Morte**: [Link](https://www.reutersconnect.com/item/tourists-in-campervans-and-motorhomes-wait-for-solar-eclipse-in-front-of-cape-fisterra-lighthouse-the-day-before-the-solar-eclipse-on-the-costa-da-morte/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMkxXTUFZRjkwNg)
+- **Licensable picture: Summer evening in Munich**: [Link](https://www.reutersconnect.com/item/summer-evening-in-munich/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMkpXTUFETjg0UQ)
+- **Licensable picture: Copa Libertadores - Round of 16 - First Leg - Fluminense v Independiente Rivadavia**: [Link](https://www.reutersconnect.com/item/copa-libertadores-round-of-16-first-leg-fluminense-v-independiente-rivadavia/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOEIxT0VNTVc)
+
+
+### cricket (N/A, Tue, 11 Aug 2026 20:20:00 -0700)
+
+- **Australia lock in playing XI for first Test with Bangladesh**: [Link](https://www.icc-cricket.com/news/australia-lock-in-playing-xi-for-first-test-with-bangladesh)
+- **Josh Hazlewood returns for Darwin Test Alex Carey to stay at No. 6**: [Link](https://www.cricbuzz.com/cricket-news/139820/hazlewood-returns-for-darwin-test-carey-to-stay-at-no-6)
+- **Heat on Green as Australia name first Test side**: [Link](https://www.canberratimes.com.au/story/9329171/heat-on-green-as-australia-name-first-test-side/)
+
+
+### meteor (N/A, Tue, 11 Aug 2026 19:30:00 -0700)
+
+- **Summer Star Shower: Watch the Perseids with NASA!**: [Link](https://www.nasa.gov/blogs/watch-the-skies/2026/08/05/summer-star-shower-watch-the-perseids-with-nasa/)
+- **Licensable video: MOTION GRAPHICS - Six planets appear aligned in rare celestial event**: [Link](https://www.reutersconnect.com/item/motion-graphics-six-planets-appear-aligned-in-rare-celestial-event/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XQU5BQ0FBVklERU8yMDI2MDgxMjQyMTkzNzA2)
+- **Sky-gazers can look forward to a stunning meteor shower peak this week. How and when to see it**: [Link](https://www.cnn.com/2026/08/11/science/perseid-meteor-shower-peak-july-2026)
+
+
 ### تقاعد (N/A, Tue, 11 Aug 2026 21:50:00 -0700)
 
 - **شوكي: إصلاح التقاعد يحتاج معالجة عميقة وليس حلولا جزئية**: [Link](https://assabah.ma/943189.html)
