@@ -1,3 +1,10 @@
+### ahmed kantari (N/A, Tue, 11 Aug 2026 15:40:00 -0700)
+
+- **Moroccan Football Federation appoints Ahmed Kantari as U-17 head coach**: [Link](https://en.hespress.com/143638-moroccan-football-federation-appoints-ahmed-kantari-as-u-17-head-coach.html)
+- **FRMF Appoints Ahmed Kantari as New U-17 National Team Coach**: [Link](https://www.moroccoworldnews.com/2026/08/334287/frmf-appoints-ahmed-kantari-as-new-u-17-national-team-coach/)
+- **Officially: Federation Appoints Ahmed Kantari as Coach of U17 National Team**: [Link](https://m.elbotola.com/en/article/2026-08-11-19-28-39.html)
+
+
 ### كسوف الشمس (N/A, Tue, 11 Aug 2026 17:10:00 -0700)
 
 - **من "قضمة" القمر إلى الخاتم الماسي.. 5 مشاهد ستصنع كسوف اليوم**: [Link](https://www.aljazeera.net/science/2026/8/12/%D9%85%D9%86-%D9%82%D8%B6%D9%85%D8%A9-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AE%D8%A7%D8%AA%D9%85-%D8%A7%D9%84%D9%85%D8%A7%D8%B3%D9%8A-5-%D9%85%D8%B4%D8%A7%D9%87%D8%AF)
