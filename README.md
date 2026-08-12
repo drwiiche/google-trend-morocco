@@ -1,3 +1,17 @@
+### نايف أكرد (N/A, Wed, 12 Aug 2026 10:10:00 -0700)
+
+- **نجم المغرب يجري الكشف الطبي قبل الانتقال لليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D9%84%D9%84%D9%8A%D8%AC%D8%A7/bltad3948fba39bcce5)
+- **أكرد يقترب من ريال سوسيداد بعد اجتياز الفحص الطبي**: [Link](https://radiomars.ma/%D8%A3%D9%83%D8%B1%D8%AF-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%AC%D8%AA%D9%8A%D8%A7%D8%B2-%D8%A7/)
+- **أكرد يخضع للفحص الطبي تمهيداً للعودة إلى ريال سوسييداد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%83%D8%B1%D8%AF-%D9%8A%D8%AE%D8%B6%D8%B9-%D9%84%D9%84%D9%81%D8%AD%D8%B5-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A-%D8%AA%D9%85%D9%87%D9%8A%D8%AF%D8%A7-%D9%84%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF/24052)
+
+
+### gta6 (N/A, Wed, 12 Aug 2026 05:30:00 -0700)
+
+- **Grand Theft Auto VI: An Extended Look**: [Link](https://www.rockstargames.com/newswire/article/9k2kaa1o3297k9/grand-theft-auto-vi-an-extended-look)
+- **Grand Theft Auto VI: An Extended Look is Premiering Exclusively on Netflix**: [Link](https://www.netflix.com/tudum/articles/grand-theft-auto-6-extended-first-look)
+- **Grand Theft Auto 6 Studio’s Parent Company Doesn’t Want to be Acquired by Netflix**: [Link](https://gamingbolt.com/grand-theft-auto-6-studios-parent-company-doesnt-want-to-be-acquired-by-netflix)
+
+
 ### melilla (N/A, Wed, 12 Aug 2026 09:20:00 -0700)
 
 - **Nacionalistas marroquíes llevan hasta la puerta del Ayuntamiento de Ceuta su reivindicación sobre la ciudad**: [Link](https://www.elmundo.es/espana/2026/08/12/6a7bbbd5fdddff3e298b458f.html)
