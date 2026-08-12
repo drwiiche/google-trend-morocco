@@ -1,3 +1,38 @@
+### كاس افريقيا (N/A, Wed, 12 Aug 2026 15:10:00 -0700)
+
+- **إيلا: التتويج بلقب "كأس إفريقيا" أكبر تحديات كرة القدم النسوية المغربية**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D9%84%D8%A7-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D9%84%D9%82%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A3%D9%83%D8%A8%D8%B1-%D8%AA%D8%AD-1790552.html)
+- **العصبة الوطنية لكرة القدم النسوية ترسم أولويات تطوير البطولة والتكوين**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A%D8%A9-%D8%AA%D8%B1%D8%B3/)
+- **كرة القدم النسوية في المغرب تتطور ولا تنقص لبؤات الأطلس "سوى الألقاب"**: [Link](https://ar.yabiladi.com/articles/details/200485/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8.html)
+
+
+### كأس أفريقيا للسيدات (N/A, Wed, 12 Aug 2026 14:50:00 -0700)
+
+- **بالفيديو.. أمم إفريقيا للسيدات: تأهل تاريخي للجزائر.. والمغرب يكرر إنجازه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1--%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%83%D8%B1%D8%B1-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2%D9%87/blt2fe593b79f782531)
+- **الجزائر - مالاوي: فرصة نادرة لكتابة المزيد من التاريخ**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D9%81%D8%B1%D8%B5%D8%A9-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9-%D9%84%D9%83%D8%AA%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE/)
+- **قدم.. مالاوي تتأهل لنهائي أمم إفريقيا للسيدات على حساب الجزائر**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D8%AA%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1/4025792)
+
+
+### sports (N/A, Wed, 12 Aug 2026 14:50:00 -0700)
+
+- **Trump says would be 'terrible mistake' to oust embattled Infantino**: [Link](https://en.hespress.com/143595-trump-says-would-be-terrible-mistake-to-oust-embattled-infantino.html)
+- **Gianni Infantino: Division over Fifa president shown in map of support and opposition**: [Link](https://www.bbc.com/sport/football/articles/c0l5e18063lo)
+- **Open letter to the football family**: [Link](https://www.uefa.com/news-media/news/02a8-21501c254976-ca8bc2039a0f-1000--open-letter-to-the-football-family/)
+
+
+### maroc femme (N/A, Wed, 12 Aug 2026 14:20:00 -0700)
+
+- **La préfecture veut expulser un Marocain, sa femme espagnole gagne pourtant 2 000 €**: [Link](https://www.bladi.net/prefecture-veut-expulser-marocain-femme-espagnole-gagne,123067.html)
+- **CAN féminine Maroc-2026 (demi-finale): composition du Maroc face au Cameroun**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-demi-finale-composition-du-maroc-face-au-cameroun)
+- **Les stats d’avant-match : le Maroc et le Cameroun se disputent une place en finale de la CAN Féminine 2026**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-le-maroc-et-le-cameroun-se-disputent-une-place-en-finale-de-la-can-feminine-2026/)
+
+
+### l eclipse solaire au maroc (N/A, Wed, 12 Aug 2026 13:40:00 -0700)
+
+- **Éclipse solaire au Maroc : la prière de l’éclipse ne sera pas accomplie ce soir**: [Link](https://mobile.telquel.ma/instant-t/2026/08/12/eclipse-solaire-au-maroc-la-priere-de-leclipse-ne-sera-pas-accomplie-ce-soir_2003110/)
+- **Éclipse solaire : les recommandations du Ministère de la Santé pour observer le phénomène en toute sécurité**: [Link](https://medias24.com/2026/08/12/eclipse-solaire-les-recommandations-du-ministere-de-la-sante-pour-observer-le-phenomene-en-toute-securite-1739591/)
+- **Perséides 2026 : nos conseils d’observation**: [Link](https://www.cite-espace.com/actualites-spatiales/perseides-2026-nos-conseils-dobservation/)
+
+
 ### achraf hakimi (N/A, Wed, 12 Aug 2026 14:00:00 -0700)
 
 - **PSG 2-1 Aston Villa (Aug 12, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401873624)
