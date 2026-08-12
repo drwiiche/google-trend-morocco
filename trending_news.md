@@ -1,3 +1,38 @@
+### melilla (N/A, Wed, 12 Aug 2026 09:20:00 -0700)
+
+- **Nacionalistas marroquíes llevan hasta la puerta del Ayuntamiento de Ceuta su reivindicación sobre la ciudad**: [Link](https://www.elmundo.es/espana/2026/08/12/6a7bbbd5fdddff3e298b458f.html)
+- **Ouahbi sitúa la reivindicación de Sebta y Melilla en el largo plazo y apuesta por el diálogo**: [Link](https://es.le360.ma/politica/ouahbi-situa-la-reivindicacion-de-sebta-y-melilla-en-el-largo-plazo-y-apuesta-por-el-dialogo_6LIVEYMQZFAFZNVVHUO4OIBBSU/)
+- **El ministro de Justicia de Marruecos desafía al Gobierno con Ceuta y Melilla: "Nos aferramos a nuestros territorios"**: [Link](https://www.larazon.es/espana/ministro-justicia-marruecos-desafia-gobierno-ceuta-melilla-nos-aferramos-nuestros-territorios_202608126a7c1eae71b42a0b5deae72d.html)
+
+
+### everton – newcastle (N/A, Wed, 12 Aug 2026 08:50:00 -0700)
+
+- **How To Watch: Newcastle v Everton**: [Link](https://www.evertonfc.com/news/2026/august/11/how-to-watch--newcastle-v-everton/)
+- **Confirmed line-up: Joelinton skippers Magpies at Murray...**: [Link](https://www.newcastleunited.com/en/news/everton-friendly-team-news-26-27)
+- **Premier League sides meet at Scottish Gas Murrayfield this week**: [Link](https://scottishrugby.org/news-and-features/premier-league-sides-meet-at-scottish-gas-murrayfield-this-week/)
+
+
+### جورجينا رودريغيز (N/A, Wed, 12 Aug 2026 08:20:00 -0700)
+
+- **كريستيانو رونالدو يتزوج شريكته جورجينا رودريغيز في "زفاف العام"**: [Link](https://www.bbc.com/arabic/articles/cn9npxed089o)
+- **بعد 10 سنوات من الانتظار.. رونالدو يعقد قرانه على جورجينا في البرتغال**: [Link](https://www.aljazeera.net/sport/2026/8/11/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%B2%D9%81%D8%A7%D9%81-%D8%AD%D9%81%D9%84-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7)
+- **زواج كريستيانو وجورجينا.. خاتمان بسيطان وإطلالة عروس غامضة**: [Link](https://arabic.cnn.com/style/article/2026/08/12/cristiano-ronaldo-and-georgina-rodriguez-get-married)
+
+
+### fédération internationale de football association (N/A, Wed, 12 Aug 2026 07:00:00 -0700)
+
+- **Trump warns replacing FIFA chief Infantino would be 'terrible mistake'**: [Link](https://www.espn.com/soccer/story/_/id/49579404/trump-warns-soccer-federations-replacing-fifa-president-infantino)
+- **Infantino’s desperate reliance on Trump is his most pitiful behaviour**: [Link](https://www.telegraph.co.uk/football/2026/08/12/infantinos-desperate-reliance-on-trump-is-pitiful/)
+- **Donald Trump jumps in to support Gianni Infantino as FIFA president clings on to power**: [Link](https://www.cnn.com/2026/08/11/sport/donald-trump-gianni-infantino-fifa)
+
+
+### حي المحيط (N/A, Wed, 12 Aug 2026 02:30:00 -0700)
+
+- **هدم حي المحيط بالرباط يصل إلى «بي بي سي».. التعويضات ومصير العقارات**: [Link](https://nichan.ma/361354/)
+- **المغرب: حي المحيط … مساكن تهدم وأسئلة بلا إجابات**: [Link](https://inews.ma/news/8580001)
+- **المغرب: حي المحيط، مساكن تهدم وأسئلة بلا إجابات**: [Link](https://shafaq.com/ar/bbc-arabic/c80nm5lj2e8o)
+
+
 ### farine (N/A, Wed, 12 Aug 2026 06:20:00 -0700)
 
 - **Trafic de farine subventionnée: les autorités enquêtent sur un réseau clandestin**: [Link](https://fr.le360.ma/societe/trafic-de-farine-subventionnee-les-autorites-enquetent-sur-un-reseau-clandestin_JIJSYPFLZVAETJ3X5MDCZI7TYI/)
