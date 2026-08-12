@@ -1,3 +1,24 @@
+### achraf hakimi (N/A, Wed, 12 Aug 2026 14:00:00 -0700)
+
+- **PSG 2-1 Aston Villa (Aug 12, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401873624)
+- **PSG 2-1 Aston Villa: Is Kvaratskhelia the most talented player in the world? Has a new star been born for Villa?**: [Link](https://www.nytimes.com/athletic/7508497/2026/08/12/psg-aston-villa-score-result-report-analysis/)
+- **PSG vs Aston Villa LIVE! UEFA Super Cup commentary, updates, scores and team news**: [Link](https://www.skysports.com/football/live-blog/11095/13571948/psg-vs-aston-villa-live-uefa-super-cup-commentary-updates-scores-and-team-news)
+
+
+### coupe d'afrique des nations féminine (N/A, Wed, 12 Aug 2026 13:40:00 -0700)
+
+- **CAN féminine Maroc 2026 : Le programme des demi-finales**: [Link](https://medias24.com/2026/08/10/can-feminine-maroc-2026-le-programme-des-demi-finales-1739057/)
+- **Les stats d’avant-match : le Malawi et l’Algérie à la conquête d’une première finale de la TotalEnergies CAF CAN Féminine 2026**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-le-malawi-et-l-algerie-a-la-conquete-d-une-premiere-finale-de-la-totalenergies-caf-can-feminine-2026/)
+- **CAN 2026 : les Lionnes de l’Atlas peaufinent les derniers détails avant le choc face au Cameroun**: [Link](https://lematin.ma/sports/can-2026-les-lionnes-de-latlas-se-preparent-au-choc-face-au-cameroun/360337)
+
+
+### women's africa cup of nations (N/A, Wed, 12 Aug 2026 13:40:00 -0700)
+
+- **Chawinga sisters inspire Malawi into historic TotalEnergies CAF WAFCON final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/chawinga-sisters-inspire-malawi-into-historic-totalenergies-caf-wafcon-final/)
+- **I am confident Black Queens will qualify for 2027 World Cup despite WAFCON eliminatio­n — Mercy TagoeQuarc­oo**: [Link](https://www.pressreader.com/ghana/the-modern-guide-newspaper-ghana/20260812/281633902061551)
+- **WAFCON 2026: Ghana miss out on automatic 2027 World Cup qualification after loss to Malawi**: [Link](https://www.modernghana.com/videonews/joynews/7/696546)
+
+
 ### wafcon (N/A, Wed, 12 Aug 2026 13:50:00 -0700)
 
 - **Chawinga sisters inspire Malawi into historic TotalEnergies CAF WAFCON final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/chawinga-sisters-inspire-malawi-into-historic-totalenergies-caf-wafcon-final/)
