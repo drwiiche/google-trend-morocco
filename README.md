@@ -1,3 +1,24 @@
+### تقاعد (N/A, Tue, 11 Aug 2026 21:50:00 -0700)
+
+- **شوكي: إصلاح التقاعد يحتاج معالجة عميقة وليس حلولا جزئية**: [Link](https://assabah.ma/943189.html)
+- **معاشات التقاعد بلا تعقيدات.. منشور حكومي يُسقط كومة من الوثائق**: [Link](https://al3omk.com/1180105.html)
+- **الإفلاس يهدد صناديق التقاعد.. احتياطات CMR تكفي 6 سنوات وCNSS لـ10 سنوات**: [Link](https://madar21.com/444436.html)
+
+
+### volcano (N/A, Tue, 11 Aug 2026 20:20:00 -0700)
+
+- **Ash cloud from Sicily’s Mount Etna volcano disrupts Malta flights**: [Link](https://www.reuters.com/world/ash-cloud-sicilys-mount-etna-volcano-disrupts-malta-flights-2026-08-11/)
+- **Mount Etna erupts in stunning display as volcanic activity intensifies (Video)**: [Link](https://nypost.com/video/mount-etna-erupts-in-stunning-display-as-volcanic-activity-intensifies/)
+- **Etna eruption: arrivals halted at Catania airport**: [Link](https://www.euronews.com/my-europe/2026/08/10/etna-eruption-arrivals-halted-at-catania-airport)
+
+
+### dolphin (N/A, Tue, 11 Aug 2026 19:50:00 -0700)
+
+- **Mass evacuations in Beijing as Typhoon Dolphin brings more torrential rain to China**: [Link](https://www.theguardian.com/world/2026/aug/12/tyhpoon-dolphin-beijing-thousands-evacuated-flooding-rainfall)
+- **Typhoon Dolphin threatens central China as Beijing braces for one-third of its annual rainfall in the next 24 hours**: [Link](https://www.nbcnews.com/world/asia/typhoon-dolphin-threatens-central-china-hubei-province-rcna591870)
+- **Hundreds more flights are canceled as Tropical Storm Dolphin causes flooding in eastern China**: [Link](https://abcnews.com/International/wireStory/tropical-storm-causes-flooding-eastern-china-135509323)
+
+
 ### ahmed kantari (N/A, Tue, 11 Aug 2026 15:40:00 -0700)
 
 - **Moroccan Football Federation appoints Ahmed Kantari as U-17 head coach**: [Link](https://en.hespress.com/143638-moroccan-football-federation-appoints-ahmed-kantari-as-u-17-head-coach.html)
