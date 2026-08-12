@@ -1,3 +1,73 @@
+### الجزائر ضد ملاوي (N/A, Wed, 12 Aug 2026 12:20:00 -0700)
+
+- **ملخص وأهداف مباراة الجزائر ضد مالاوي في كأس أمم أفريقيا**: [Link](https://www.annahar.com/sports/338018/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA)
+- **كأس أمم إفريقيا للسيدات 2026: المنتخب الجزائري من أجل تجاوز عقبة منتخب مالاوي والتأهل إلى النهائي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-2026-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%B9%D9%82%D8%A8%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D9%88%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-2026-08-12)
+- **"كان السيدات" حماسي في المغرب**: [Link](https://www.hespress.com/%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AD%D9%85%D8%A7%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1790049.html)
+
+
+### match aujourd'hui (N/A, Wed, 12 Aug 2026 12:20:00 -0700)
+
+- **Camavinga plaît à United, Disasi proche de Villa : les dernières infos mercato**: [Link](https://www.eurosport.fr/football/transferts/2026-2027/vlahovic-va-signer-en-turquie-depay-quitte-le-bresil-les-dernieres-infos-mercato_lci50028575/liveevent.shtml)
+- **Real Madrid : une piste prestigieuse s’offre enfin à Eduardo Camavinga**: [Link](https://www.footmercato.net/a1610724901593113480-real-madrid-une-piste-prestigieuse-soffre-enfin-a-eduardo-camavinga)
+- **Manchester United revient à la charge pour Camavinga**: [Link](https://www.sport.fr/football/manchester-united-revient-a-la-charge-pour-camavinga-1473644.shtm)
+
+
+### arsenal (N/A, Wed, 12 Aug 2026 12:20:00 -0700)
+
+- **Arsenal reignite interest in Aston Villa's Konsa**: [Link](https://www.bbc.com/sport/football/articles/cx2v175j40zo)
+- **Arsenal transfer news LIVE: Gunners 'REIGNITE' interest in Konsa, £38m 'bid' for Martinelli, 'clear run' at Barcola**: [Link](https://www.the-sun.com/sport/16731166/arsenal-transfer-news-live-lewis-skelly-barcola-ndiaye-updates/)
+- **Arsenal just £20m away from signing second player of Mikel Arteta’s top three targets**: [Link](https://www.football.london/arsenal-fc/transfer-news/arsenal-transfer-arteta-ezri-konsa-34437287)
+
+
+### bein sport (N/A, Wed, 12 Aug 2026 12:20:00 -0700)
+
+- **Immediate impact: Salah changes the tourism map in Trabzon**: [Link](https://www.goal.com/en/news/immediate-impact-salah-changes-the-map-of-tourism-in-trabzon/blt4313970ac7a04d80)
+- **Mohamed Salah's memes speak Syrian. But the real story lies in Turkish soap operas.**: [Link](https://www.trtworld.com/article/9c7fcf11a279)
+- **Ramy Gamal Celebrates Mohamed Salah’s Trabzonspor Move with a Special Song**: [Link](https://www.egypttoday.com/Article/4/148767/Ramy-Gamal-Celebrates-Mohamed-Salah%E2%80%99s-Trabzonspor-Move-with-a-Special)
+
+
+### البطولة (N/A, Wed, 12 Aug 2026 12:20:00 -0700)
+
+- **"اتحاد طنجة" يتعاقد مع أيت الخرصة**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A3%D9%8A%D8%AA-%D8%A7%D9%84%D8%AE%D8%B1%D8%B5%D8%A9-1791161.html)
+- **خاص| اتحاد طنجة يقترب من حسم صفقة يونس النجاري**: [Link](https://radiomars.ma/%D8%AE%D8%A7%D8%B5-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D8%B5%D9%81%D9%82%D8%A9-%D9%8A%D9%88%D9%86%D8%B3-%D8%A7/)
+- **سعد أيت الخرصة لاعبا جديدا لاتحاد طنجة**: [Link](https://assabah.ma/943553.html)
+
+
+### yalla kora (N/A, Wed, 12 Aug 2026 12:10:00 -0700)
+
+- **"اتهامات وتضارب في التصريحات".. لاعبات منتخب مصر يفتحن النار على مدربهن بعد فضيحة أفريقيا**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2026/8/11/3031536/-%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D8%A7%D8%AA-%D9%88%D8%AA%D8%B6%D8%A7%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7%D8%AA-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D9%81%D8%AA%D8%AD%D9%86-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D9%85%D8%AF%D8%B1%D8%A8%D9%87%D9%86-%D8%A8%D8%B9%D8%AF-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **انقسام في اتحاد الكرة لتحديد مصير المدير الفني لمنتخب السيدات**: [Link](https://www.almasryalyoum.com/news/details/4335050)
+- **اجتماع بين شوقي غريب ومحمد كمال لمناقشة إخفاق منتخب مصر للسيدات في أمم أفريقيا**: [Link](https://www.albawabhnews.com/5396577)
+
+
+### بث مباشر (N/A, Wed, 12 Aug 2026 12:10:00 -0700)
+
+- **نهاية حزينة لمؤثرة يابانية.. بث مباشر على تيك توك يهز مجتمع الكيبوب**: [Link](https://www.aljazeera.net/misc/2026/8/11/%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D9%8A%D8%A7%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D9%86%D9%87%D9%8A-%D8%AD%D9%8A%D8%A7%D8%AA%D9%87%D8%A7-%D9%81%D9%8A-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **بعد موجة مضايقات .. مؤثرة يابانية تنهي حياتها في بث مباشر (فيديو إرم)**: [Link](https://www.eremnews.com/videos/rt4dkub)
+- **وفاة مينا تشان المؤثرة اليابانية في سيول بطريقة صادمة؟**: [Link](https://coulissemag.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%8A%D9%86%D8%A7-%D8%AA%D8%B4%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B3%D9%8A/)
+
+
+### flashscore (N/A, Wed, 12 Aug 2026 12:10:00 -0700)
+
+- **Anthropic and SpaceX bring high-paying tech jobs to Ireland**: [Link](https://www.businesspost.ie/tech/anthropic-and-spacex-bring-high-paying-tech-jobs-to-ireland/)
+- **JLL’s Deirdre Costello: Dublin’s office market isn’t waiting for recovery – it’s already turned**: [Link](https://www.businesspost.ie/property/jlls-deirdre-costello-dublins-office-market-isnt-waiting-for-recovery-its-already-turned/)
+- **‘Ticks all the right boxes’: Kingspan’s €900m mega deal is rewriting investor expectations**: [Link](https://www.businesspost.ie/markets/ticks-all-the-right-boxes-kingspans-e900m-mega-deal-is-rewriting-investor-expectations/)
+
+
+### algeria vs malawi (N/A, Wed, 12 Aug 2026 12:10:00 -0700)
+
+- **MATCH STATS: Malawi face Algeria in TotalEnergies CAF WAFCON Morocco 2026 semi-final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-malawi-face-algeria-in-totalenergies-caf-wafcon-morocco-2026-semi-final/)
+- **Home advantage in focus as Morocco face Cameroon in WAFCON semi-final**: [Link](https://en.hespress.com/143654-home-advantage-in-focus-as-morocco-face-cameroon-in-wafcon-semi-final.html)
+- **Sanaa Mssoudy: Morocco Fear No One Ahead of WAFCON Semi-Final**: [Link](https://www.moroccoworldnews.com/2026/08/334164/sanae-mssoudy-morocco-fear-no-one-ahead-of-wafcon-semi-final/)
+
+
+### paris (N/A, Wed, 12 Aug 2026 12:10:00 -0700)
+
+- **Paris Jackson Explains Ending 2 Engagements, Including 1 While ‘on Drugs’**: [Link](https://people.com/paris-jackson-explains-ending-2-engagements-including-1-strung-out-on-drugs-12057923)
+- **Paris Jackson Reveals Why She Ended Her Engagement, Talks Growing Up Without Mom Debbie Rowe, Drug Use & Life at Neverland**: [Link](https://www.justjared.com/2026/08/12/paris-jackson-reveals-why-she-ended-her-engagement-talks-growing-up-without-mom-debbie-rowe-drug-use-life-at-neverland/)
+- **Paris Jackson reveals secret engagement during drug addiction; ring had been purchased with her money**: [Link](https://www.hola.com/us/celebrities/20260812917698/paris-jackson-secret-engagement-drug-addiction/)
+
+
 ### deportivo – real madrid (N/A, Wed, 12 Aug 2026 11:10:00 -0700)
 
 - **Deportivo - Real Madrid, en directo: Teresa Herrera hoy, en vivo**: [Link](https://as.com/futbol/primera/deportivo-real-madrid-en-directo-teresa-herrera-hoy-en-vivo-f202608-d/)
