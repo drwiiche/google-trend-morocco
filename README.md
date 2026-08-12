@@ -1,3 +1,24 @@
+### inter miami – club león (N/A, Wed, 12 Aug 2026 16:00:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Hosts Club León in Third Leagues Cup 2026 Phase One Matchup**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-club-leon-in-third-leagues-cup-2026-phase-one-matchup)
+- **Inter Miami CF v Leon Odds**: [Link](https://sportsbook.fanduel.com/soccer/north-american-leagues-cup/inter-miami-cf-v-leon-35927550)
+- **Where to watch Inter Miami vs. León today: Leagues Cup soccer free stream**: [Link](https://www.syracuse.com/tv/2026/08/where-to-watch-inter-miami-vs-leon-today-leagues-cup-soccer-free-stream.html)
+
+
+### score live (N/A, Wed, 12 Aug 2026 15:30:00 -0700)
+
+- **Pre-season: Kalimuendo scores late as Nottingham Forest beat Bayer Leverkusen**: [Link](https://bulinews.com/pre-season-kalimuendo-scores-late-nottingham-forest-beat-bayer-leverkusen)
+- **Nottingham Forest Vs Bayer Leverkusen Preview, Prediction, H2H Record, Latest Odds & Betting Angles**: [Link](https://www.betvictor.com/news/forest-vs-leverkusen-preview-prediction-h2h-odds-betting-amgles/)
+- **Nottingham vs Leverkusen match lineup | Club Friendlies · 12 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5899096/Nottingham-Forest-vs-Bayer-04-Leverkusen)
+
+
+### لحم (N/A, Wed, 12 Aug 2026 14:40:00 -0700)
+
+- **قرار من النيابة بشأن ضبط 800 كيلو لحوم يشتبه أنها لحوم خيول بالغربية**: [Link](https://www.vetogate.com/5711505)
+- **قرار عاجل من النيابة.. ضبط وإحضار جزار هارب في واقعة ضبط 800 كيلو لحوم مذبوحة خارج السلخانة بالمحلة**: [Link](https://www.elbalad.news/7070549)
+- **ضبط 2 طن كبدة فاسدة داخل ثلاجة قبل تداولها بالأسواق في الغربية**: [Link](https://darelhilal.com/News/3283857.aspx)
+
+
 ### كاس افريقيا (N/A, Wed, 12 Aug 2026 15:10:00 -0700)
 
 - **إيلا: التتويج بلقب "كأس إفريقيا" أكبر تحديات كرة القدم النسوية المغربية**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D9%84%D8%A7-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D9%84%D9%82%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A3%D9%83%D8%A8%D8%B1-%D8%AA%D8%AD-1790552.html)
