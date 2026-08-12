@@ -1,3 +1,17 @@
+### georgina rodriguez (N/A, Wed, 12 Aug 2026 02:00:00 -0700)
+
+- **Cristiano Ronaldo marries long-time partner Georgina Rodríguez**: [Link](https://www.bbc.com/news/articles/clyj0325z3ko)
+- **Cristiano Ronaldo Marries Longtime Love Georgina Rodríguez in ‘Intimate’ Wedding in Portugal**: [Link](https://people.com/cristiano-ronaldo-marries-georgina-rodriguez-11789780)
+- **Cristiano Ronaldo’s $1.2 Billion Empire: How The Football Star Built His Fortune Beyond The Pitch | Photos**: [Link](https://www.news18.com/photogallery/viral/cristiano-ronaldos-1-2-billion-empire-how-the-football-star-built-his-fortune-beyond-the-pitch-photos-ws-l-10268484.html)
+
+
+### dominique libault (N/A, Wed, 12 Aug 2026 00:30:00 -0700)
+
+- **Mort de Dominique Libault, haut fonctionnaire et ancien directeur de la Sécurité sociale, à l’âge de 64 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/08/11/mort-de-dominique-libault-haut-fonctionnaire-et-ancien-directeur-de-la-securite-sociale-a-l-age-de-64-ans_6743794_3382.html)
+- **Le décès de Dominique Libault émeut le monde de la protection sociale et de l'autonomie**: [Link](https://www.hospimedia.fr/actualite/articles/20260811-disparition-le-deces-de-dominique-libault-emeut-le)
+- **Dominique Libault, directeur de l’EN3S à Saint-Etienne, est décédé**: [Link](https://mesinfos.fr/42000-saint-etienne/dominique-libault-directeur-de-l-en3s-a-saint-etienne-est-decede-336986.html)
+
+
 ### caf (N/A, Wed, 12 Aug 2026 00:10:00 -0700)
 
 - **The Battle for FIFA: Bility questions CAF backing of Infantino**: [Link](https://www.aclsports.com/the-battle-for-fifa-bility-questions-caf-backing-of-infantino/)
