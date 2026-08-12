@@ -1,3 +1,52 @@
+### deportivo – real madrid (N/A, Wed, 12 Aug 2026 11:10:00 -0700)
+
+- **Deportivo - Real Madrid, en directo: Teresa Herrera hoy, en vivo**: [Link](https://as.com/futbol/primera/deportivo-real-madrid-en-directo-teresa-herrera-hoy-en-vivo-f202608-d/)
+- **Convocatoria del Real Madrid frente al Deportivo**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-frente-al-deportivo-11-08-2026)
+- **El museo del club cambia la exposición temporal: Virgilio deja paso al Teresa Herrera**: [Link](https://dxtcampeon.elidealgallego.com/deportivo/depor/2026-08-12/el-museo-del-club-cambia-la-exposicion-temporal-virgilio-deja-paso-al-teresa-herrera-873215.html)
+
+
+### paris-sg – aston villa (N/A, Wed, 12 Aug 2026 11:10:00 -0700)
+
+- **À quelle heure et sur quelle chaîne voir le match de Supercoupe d'Europe entre le PSG et Aston Villa ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-le-match-de-supercoupe-d-europe-entre-le-psg-et-aston-villa/1710180)
+- **Supercoupe d'Europe I PSG - Aston Villa I Luis Enrique – Unai Emery : Je t’aime, moi aussi**: [Link](https://www.eurosport.fr/football/supercoupe-d-europe/2026/supercoupe-deurope-i-psg-aston-villa-i-luis-enrique-unai-emery-je-taime-moi-aussi_sto23327168/story.shtml)
+- **PSG-Aston Villa: "C’était vraiment nécessaire", pourquoi Emiliano Martinez ne disputera pas la Supercoupe d’Europe**: [Link](https://rmcsport.bfmtv.com/football/supercoupe-d-europe/psg-aston-villa-c-etait-vraiment-necessaire-pourquoi-emiliano-martinez-ne-disputera-pas-la-supercoupe-d-europe_AV-202608120309.html)
+
+
+### nasa (N/A, Wed, 12 Aug 2026 11:10:00 -0700)
+
+- **NASA reveals stunning image of Tarantula Nebula**: [Link](https://www.elkharttruth.com/news/national/nasa-reveals-stunning-image-of-tarantula-nebula/article_73da45d1-cccd-5ebb-a0af-fb59c5e78fdd.html)
+- **NASA reveals stunning image of Tarantula Nebula**: [Link](https://www.guampdn.com/news/national/nasa-reveals-stunning-image-of-tarantula-nebula/article_07f1dbac-4170-5cc0-95c2-24207fcfdac5.html)
+- **NASA reveals stunning image of Tarantula Nebula**: [Link](https://www.nbcrightnow.com/national/nasa-reveals-stunning-image-of-tarantula-nebula/article_2f94534e-b935-56de-99ee-0f909cbfea5c.html)
+
+
+### eclipse live (N/A, Wed, 12 Aug 2026 11:00:00 -0700)
+
+- **The best photos from Wednesday’s solar eclipse**: [Link](https://www.cnn.com/2026/08/12/science/gallery/photos-total-solar-eclipse)
+- **Watch the partial solar eclipse across the South**: [Link](https://www.bbc.com/news/live/cw8dnlj15n0vt)
+- **Solar Eclipse Live Updates: Europe Counts Down to Watch Its First Total Eclipse in Decades**: [Link](https://www.nytimes.com/live/2026/08/12/world/solar-eclipse-2026-updates)
+
+
+### مان يونايتد ضد ليدز (N/A, Wed, 12 Aug 2026 11:00:00 -0700)
+
+- **القنوات الناقلة لمباراة مانشستر يونايتد ضد ليدز يونايتد الودية اليوم مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/632139897249866-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF-%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **ليساندرو مارتينيز يتدرب بشكل منفصل في كارينغتون: معضلة مانشستر يونايتد الدفاعية.**: [Link](https://www.vietnam.vn/ar/lisandro-martinez-phai-tap-rieng-tai-carrington-bai-toan-hang-thu-cua-manchester-united)
+- **ودية مانشستر يونايتد ضد ميلان: ملخص الانتقالات، معاينة المباراة، والتشكيلتان المحتملتان**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%AF%D9%8A%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%85%D9%84%D8%AE%D8%B5-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D9%85%D8%B9%D8%A7%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%AA%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%85%D9%84%D8%AA%D8%A7%D9%86/bltbcfdacd653e7adf6)
+
+
+### maroc vs cameroun (N/A, Wed, 12 Aug 2026 11:00:00 -0700)
+
+- **CAN féminine Maroc 2026: Les Lionnes de l’Atlas affrontent le Cameroun en demi-finale**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-demi-finale-maroc)
+- **CAN féminine. Jorge Vilda a retenu les leçons du passé**: [Link](https://medias24.com/2026/08/12/can-feminine-jorge-vilda-a-retenu-les-lecons-du-passe-1739673/)
+- **Les stats d’avant-match : le Maroc et le Cameroun se disputent une place en finale de la CAN Féminine 2026**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-le-maroc-et-le-cameroun-se-disputent-une-place-en-finale-de-la-can-feminine-2026/)
+
+
+### manchester united – leeds united (N/A, Wed, 12 Aug 2026 10:50:00 -0700)
+
+- **Holland: Pre-season going to plan**: [Link](https://www.manutd.com/en/news/holland-pre-season-going-to-plan)
+- **Nottingham Forest vs Bayer Leverkusen: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-nottingham-forest-v-bayer-leverkusen/bltd87f36a805f8b465)
+- **Pre-Season Team News: Manchester United vs Leeds United**: [Link](https://www.leedsunited.com/en/news/pre-season-team-news-manchester-united-vs-leeds-united)
+
+
 ### نايف أكرد (N/A, Wed, 12 Aug 2026 10:10:00 -0700)
 
 - **نجم المغرب يجري الكشف الطبي قبل الانتقال لليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AC%D8%B1%D9%8A-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D9%84%D9%84%D9%8A%D8%AC%D8%A7/bltad3948fba39bcce5)
