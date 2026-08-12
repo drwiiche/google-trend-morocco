@@ -1,3 +1,10 @@
+### ريال بيتيس (N/A, Wed, 12 Aug 2026 02:50:00 -0700)
+
+- **الزلزولي في تداريب بيتيس الجماعية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%81%D9%8A-%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A%D8%A9-1790694.html)
+- **قبل انطلاق الموسم الجديد. بيلغريني يحذر بشأن جاهزية الزلزولي**: [Link](https://kifache.com/%D9%82%D8%A8%D9%84-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8%D9%8A%D9%84%D8%BA%D8%B1%D9%8A%D9%86%D9%8A-%D9%8A%D8%AD%D8%B0/)
+- **بعد شهرين على الاصابة. الزلزولي برا ورجع لريال بتيس**: [Link](https://www.goud.ma/%D8%A8%D8%B9%D8%AF-%D8%B4%D9%87%D8%B1%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%A8%D8%B1%D8%A7-%D9%88%D8%B1%D8%AC-1036037/)
+
+
 ### georgina rodriguez (N/A, Wed, 12 Aug 2026 02:00:00 -0700)
 
 - **Cristiano Ronaldo marries long-time partner Georgina Rodríguez**: [Link](https://www.bbc.com/news/articles/clyj0325z3ko)
