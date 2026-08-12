@@ -1,3 +1,57 @@
+### 2026 (N/A, Wed, 12 Aug 2026 13:10:00 -0700)
+
+- **Patricia Lee Niemeyer Obituary Aug 11, 2026**: [Link](https://www.porterfuneralhomes.com/obituaries/patricia-niemeyer)
+- **Naida Wills Obituary Aug 11, 2026**: [Link](https://www.mccombsfuneralhome.com/obituaries/naida-wills)
+- **Group Play schedule for Emirates NBA Cup 2026 revealed**: [Link](https://www.nba.com/news/2026-nba-cup-group-play-schedule-announced)
+
+
+### كاس افريقيا للسيدات (N/A, Wed, 12 Aug 2026 13:10:00 -0700)
+
+- **الكاميرونيات يختبرن "لبؤات الأطلس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86%D9%8A%D8%A7%D8%AA-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1%D9%86-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1790948.html)
+- **آخر حصة تدريبية للمنتخب الوطني النسوي قبل مواجهة الكاميرون**: [Link](https://frmf.ma/articles/%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86)
+- **حكمة طوغولية تقود مواجهة “لبؤات الأطلس” والكاميرون**: [Link](https://assabah.ma/943692.html)
+
+
+### botola (N/A, Wed, 12 Aug 2026 13:00:00 -0700)
+
+
+
+
+### frontière (N/A, Wed, 12 Aug 2026 12:50:00 -0700)
+
+- **Lituanie: des fossés à la frontière avec la Russie et le Bélarus**: [Link](https://fr.euronews.com/2026/08/12/lituanie-des-fosses-pour-renforcer-la-frontiere-avec-la-russie-et-le-belarus)
+- **Le ministère de l’Intérieur avertit contre les appels à franchir Sebta et Melilia le 15 août**: [Link](https://medias24.com/2026/08/12/le-ministere-de-linterieur-avertit-contre-les-appels-a-franchir-sebta-et-melilia-le-15-aout-1739625/)
+- **Le Maroc accuse l'Espagne de violences contre des migrants à Ceuta et revendique sa souveraineté**: [Link](https://fr.euronews.com/my-europe/2026/08/12/le-maroc-accuse-lespagne-de-violences-contre-des-migrants-a-ceuta-et-revendique-sa-souvera)
+
+
+### match (N/A, Wed, 12 Aug 2026 12:50:00 -0700)
+
+- **Knight Wins Opening Match In U.S. Amateur**: [Link](https://cubuffs.com/news/2026/8/12/mens-golf-knight-wins-opening-match-in-us-amateur)
+- **Extending His Stay**: [Link](https://www.coloradogolf.org/news/extending-his-stay-article)
+- **Knight Advances In U.S. Amateur**: [Link](https://cubuffs.com/news/2026/8/11/mens-golf-knight-advances-in-us-amateur)
+
+
+### brian madjo (N/A, Wed, 12 Aug 2026 12:40:00 -0700)
+
+- **UEFA Super Cup LIVE: Paris Saint-Germain vs Aston Villa - score, radio commentary, text updates & match stats**: [Link](https://www.bbc.com/sport/football/live/cmn4n23z15elt)
+- **Who is Brian Djomeni Madjo, the 17-year-old Aston Villa player on target against PSG in the UEFA Super Cup final**: [Link](https://www.goal.com/en-in/lists/who-is-brian-djomeni-madjo-the-17-year-old-aston-villa-player-on-target-against-psg-in-the-uefa-super-cup-final/blt4a278f9e26d015e9)
+- **Aston Villa equalizes 1-1 against Paris Saint-Germain in UEFA Super Cup Final with Madjo's goal**: [Link](https://cryptobriefing.com/aston-villa-psg-uefa-super-cup-madjo/)
+
+
+### bet365 (N/A, Wed, 12 Aug 2026 12:40:00 -0700)
+
+- **bet365 bonus code: Bet $10, get $150 in bonus bets for Yankees vs. Mariners**: [Link](https://nypost.com/2026/08/12/betting/bet365-bonus-code-bet-10-get-150-in-bonus-bets-for-yankees-vs-mariners-2/)
+- **DraftKings Predictions Promo Code: New DraftKings Customers Trade $5, Get $150 in Predictions Dollars**: [Link](https://www.foxsports.com/stories/betting/draftkings-predictions-promo-code)
+- **DraftKings Promo Code: Claim $150 Sign Up Bonus for Any MLB Game (Aug. 12)**: [Link](https://wtop.com/sports/2026/08/draftkings-promo-code-claim-150-sign-up-bonus-for-any-mlb-game-aug-12/)
+
+
+### كبد (N/A, Wed, 12 Aug 2026 12:30:00 -0700)
+
+- **دهون الكبد فخ العصر.. ثورة العقاقير الذكية وتنظيم الحياة جدار الحماية**: [Link](https://www.aljazeera.net/opinions/2026/8/10/%D8%AF%D9%87%D9%88%D9%86-%D8%A7%D9%84%D9%83%D8%A8%D8%AF-%D9%81%D8%AE-%D9%88%D8%A2%D9%81%D8%A9-%D8%A7%D9%84%D8%B9%D8%B5%D8%B1-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%85)
+- **هل يستطيع الذكاء الاصطناعي التنبؤ بمرض الكبد الدهني قبل 16 عاماً؟**: [Link](https://aawsat.com/%D8%B9%D9%84%D9%88%D9%85/5306048-%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D8%B7%D9%8A%D8%B9-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D8%AA%D9%86%D8%A8%D8%A4-%D8%A8%D9%85%D8%B1%D8%B6-%D8%A7%D9%84%D9%83%D8%A8%D8%AF-%D8%A7%D9%84%D8%AF%D9%87%D9%86%D9%8A-%D9%82%D8%A8%D9%84-16-%D8%B9%D8%A7%D9%85%D8%A7%D9%8B%D8%9F)
+- **بالفيديو.. ‏دكتور يكشف كيف تخفض 50٪ من دهون كبدك خلال عشرة أيام**: [Link](https://al-marsd.com/public/article/262466/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AF%D9%83%D8%AA%D9%88%D8%B1-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%8A%D9%81-%D8%AA%D8%AE%D9%81%D8%B6-50-%D9%85%D9%86-%D8%AF%D9%87%D9%88%D9%86-%D9%83%D8%A8%D8%AF%D9%83-%D8%AE%D9%84%D8%A7%D9%84-%D8%B9%D8%B4%D8%B1%D8%A9-%D8%A3%D9%8A%D8%A7%D9%85)
+
+
 ### الجزائر ضد ملاوي (N/A, Wed, 12 Aug 2026 12:20:00 -0700)
 
 - **ملخص وأهداف مباراة الجزائر ضد مالاوي في كأس أمم أفريقيا**: [Link](https://www.annahar.com/sports/338018/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA)
