@@ -1,3 +1,30 @@
+### wafcon (N/A, Wed, 12 Aug 2026 13:50:00 -0700)
+
+- **Chawinga sisters inspire Malawi into historic TotalEnergies CAF WAFCON final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/chawinga-sisters-inspire-malawi-into-historic-totalenergies-caf-wafcon-final/)
+- **I am confident Black Queens will qualify for 2027 World Cup despite WAFCON eliminatio­n — Mercy TagoeQuarc­oo**: [Link](https://www.pressreader.com/ghana/the-modern-guide-newspaper-ghana/20260812/281633902061551)
+- **Lyon contingent thrive as Chawinga, Benstiti, Bekhaled and Lipoff reach Women’s AFCON semi-finals**: [Link](https://onefootball.com/en/news/lyon-contingent-thrive-as-chawinga-benstiti-bekhaled-and-lipoff-reach-womens-afcon-semi-finals-43256820)
+
+
+### المغرب ضد الكاميرون (N/A, Wed, 12 Aug 2026 13:30:00 -0700)
+
+- **الكاميرونيات يختبرن "لبؤات الأطلس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86%D9%8A%D8%A7%D8%AA-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1%D9%86-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1790948.html)
+- **"كان سيدات 26"...موعد مباراة المغرب ضد الكاميرون والقنوات الناقلة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%83%D8%A7%D9%86-%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-26%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/24044)
+- **المنتخب الوطني النسوي لأقل من 20 سنة يواصل التحضير لنهائيات كأس العالم**: [Link](https://ar.telquel.ma/%D9%81%D9%8A%D9%84%D8%AF%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D8%A7%D9%84%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%AC/)
+
+
+### morocco vs cameroon (N/A, Wed, 12 Aug 2026 13:30:00 -0700)
+
+- **MATCH STATS: Morocco face Cameroon in TotalEnergies CAF WAFCON Morocco 2026 semi-final**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-morocco-face-cameroon-in-totalenergies-caf-wafcon-morocco-2026-semi-final/)
+- **Vilda: Morocco women’s team ‘doesn’t want to stop here’ after World Cup qualification**: [Link](https://en.hespress.com/143621-vilda-morocco-womens-team-doesnt-want-to-stop-here-after-world-cup-qualification.html)
+- **LIVE! Malawi vs. Algeria for a historic place in the WAFCON 2026 final**: [Link](https://www.beinsports.com/en-us/soccer/womens-africa-cup-of-nations/articles/live-malawi-vs-algeria-for-a-historic-place-in-the-wafcon-2026-final-2026-08-12)
+
+
+### match en direct (N/A, Wed, 12 Aug 2026 13:30:00 -0700)
+
+- **Deportivo 0-1 Real Madrid : ce qu'il faut retenir du match**: [Link](https://real-france.fr/deportivo-0-1-real-madrid-ce-quil-faut-retenir-du-match/)
+- **PSG : la folle ambition de Luis Enrique**: [Link](https://www.football.fr/psg/psg-la-folle-ambition-de-luis-enrique-827105.html)
+
+
 ### 2026 (N/A, Wed, 12 Aug 2026 13:10:00 -0700)
 
 - **Patricia Lee Niemeyer Obituary Aug 11, 2026**: [Link](https://www.porterfuneralhomes.com/obituaries/patricia-niemeyer)
