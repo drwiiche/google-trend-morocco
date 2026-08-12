@@ -1,3 +1,10 @@
+### farine (N/A, Wed, 12 Aug 2026 06:20:00 -0700)
+
+- **Trafic de farine subventionnée: les autorités enquêtent sur un réseau clandestin**: [Link](https://fr.le360.ma/societe/trafic-de-farine-subventionnee-les-autorites-enquetent-sur-un-reseau-clandestin_JIJSYPFLZVAETJ3X5MDCZI7TYI/)
+- **À Casablanca, la « farine des pauvres » finit dans des boulangeries clandestines**: [Link](https://www.bladi.net/casablanca-farine-pauvres-finit-boulangeries-clandestines,123076.html)
+- **Nabeul : saisie de 3,5 tonnes de farine subventionnée dans une boulangerie**: [Link](https://www.lapresse.tn/2026/08/08/nabeul-saisie-de-35-tonnes-de-farine-subventionnee-dans-une-boulangerie/)
+
+
 ### forex factory (N/A, Wed, 12 Aug 2026 05:20:00 -0700)
 
 - **Iran war updates: Pakistan minister in Tehran as Hormuz talks advance**: [Link](https://www.aljazeera.com/news/liveblog/2026/8/11/iran-war-live-trump-claims-the-strait-is-open-seeks-iranian-compensation)
