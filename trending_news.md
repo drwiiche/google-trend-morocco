@@ -1,3 +1,52 @@
+### prichard colon (N/A, Thu, 13 Aug 2026 11:10:00 -0700)
+
+- **Boxer Prichard Colon, 33, dies over a decade on from brain injury in ring as tributes pour in**: [Link](https://talksport.com/boxing/4510817/prichard-colon-dies-death-brain-injury-tributes/)
+- **Prichard Colón dead at 33, 11 years after controversial 2015 fight**: [Link](https://www.newsweek.com/prichard-colon-death-cause-boxer-terrel-williams-injury-12319896)
+- **Former Puerto Rican Contender Prichard Colón Passes Away at 33**: [Link](https://fightsatw.com/former-puerto-rican-contender-prichard-colon-passes-away-at-33/)
+
+
+### تأشيرة (N/A, Thu, 13 Aug 2026 11:10:00 -0700)
+
+- **هل تحد تأشيرة شنغن من هجرة الأفارقة إلى أوروبا؟**: [Link](https://www.aljazeera.net/news/2026/8/11/%D9%87%D9%84-%D8%AA%D8%AD%D8%AF-%D8%B4%D9%86%D8%BA%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A5%D9%84%D9%89)
+- **الاتحاد الأوروبي: 12 مليون طلب تأشيرة الإقامة القصيرة تلقتها قنصليات الدول الأعضاء في 2025**: [Link](https://elghadeldjazairi.dz/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-12-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%B7%D9%84%D8%A8-%D8%AA%D8%A3%D8%B4%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84/)
+- **بعد الجدل.. واشنطن تلغي 600 تأشيرة بسبب "سياحة الولادة"**: [Link](https://www.skynewsarabia.com/world/1885781-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D9%84%D8%BA%D9%8A-600-%D8%AA%D8%A3%D8%B4%D9%8A%D8%B1%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%B3%D9%8A%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D8%AF%D8%A9)
+
+
+### ألفارو أربيلوا (N/A, Thu, 13 Aug 2026 11:10:00 -0700)
+
+- **"إهانة وقلة احترام".. أربيلوا يصبح "أضحوكة إسبانيا" بعد واقعة مالاجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%87%D8%A7%D9%86%D8%A9-%D9%88%D9%82%D9%84%D8%A9-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85--%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%8A%D8%B5%D8%A8%D8%AD-%D8%A7%D9%94%D8%B6%D8%AD%D9%88%D9%83%D8%A9-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%85%D8%A7%D9%84%D8%A7%D8%AC%D8%A7/blt19509c025e0e0e5c)
+- **انسحاب ومرمى بلا حارس.. فوضى غير مسبوقة في ودية ملقا وفولهام (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/8/13/%D8%B7%D8%B1%D8%AF-%D9%88%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%85%D9%84%D9%82%D8%A7-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85)
+- **طرد أربيلوا وركلات ترجيح في المرمى الخالي .. مباراة ودية لفولهام تتحول إلى مشهد هزلي نادر!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B7%D8%B1%D8%AF-%D8%A7%D9%94%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%88%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%84%D8%AE%D8%A7%D9%84%D9%8A--%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%AF%D9%8A%D8%A9-%D9%84%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A7%D9%95%D9%84%D9%89-%D9%85%D8%B4%D9%87%D8%AF-%D9%87%D8%B2%D9%84%D9%8A-%D9%86%D8%A7%D8%AF%D8%B1/blta495c337f7185e81)
+
+
+### ramzi boukhiam (N/A, Thu, 13 Aug 2026 09:40:00 -0700)
+
+- **Round 3: Boukhiam's 8.00 brilliance takes him to the Quarterfinals at Teahupo'o**: [Link](https://www.worldsurfleague.com/posts/558872/boukhiams-800-brilliance-takes-to-the-quarterfinals-outerknown-tahiti-pro)
+- **Italo Ferreira Reclaims Championship Tour Lead From Leo Fioravanti**: [Link](https://www.theinertia.com/surf/italo-ferreira-reclaimed-championship-tour-lead-leo-fioravanti/)
+- **Morocco’s Ramzi Boukhiam Continues Dream Run at Tahiti Pro**: [Link](https://www.moroccoworldnews.com/2026/08/334542/moroccos-ramzi-boukhiam-continues-dream-run-at-tahiti-pro/)
+
+
+### خوليان ألفاريز (N/A, Thu, 13 Aug 2026 09:30:00 -0700)
+
+- **بديل ذهبي لصفقة ألفاريز.. ديكو يجتمع بوكيل نجم أرجنتيني بارز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AF%D9%8A%D9%84-%D8%B0%D9%87%D8%A8%D9%8A-%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2--%D8%AF%D9%8A%D9%83%D9%88-%D9%8A%D8%AC%D8%AA%D9%85%D8%B9-%D8%A8%D9%88%D9%83%D9%8A%D9%84-%D9%86%D8%AC%D9%85-%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A-%D8%A8%D8%A7%D8%B1%D8%B2/blt3909c193b0901047)
+- **أرجنتيني آخر يدخل حسابات برشلونة تحسبا لتعثر صفقة ألفاريز**: [Link](https://www.aljazeera.net/sport/2026/8/11/%D9%84%D9%88%D8%AA%D8%A7%D8%B1%D9%88-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D8%B2-%D8%AE%D9%88%D9%84%D9%8A%D8%A7%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **غضب ألفاريز يشعل أتلتيكو مدريد.. التوتر يتصاعد مع سيميوني !**: [Link](https://radiomars.ma/%D8%BA%D8%B6%D8%A8-%D8%A3%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D9%88%D8%AA%D8%B1/)
+
+
+### manchester city football club (N/A, Thu, 13 Aug 2026 09:10:00 -0700)
+
+- **Barcelona make €45m Rodri offer to Manchester City - The Athletic**: [Link](https://www.nytimes.com/athletic/7469727/2026/08/07/rodri-transfer-barcelona-real-madrid/)
+- **Barcelona set for talks with midfield prodigy to improve his contract**: [Link](https://barcauniversal.com/barcelona-set-for-talks-with-midfield-prodigy-to-improve-his-contract/)
+- **Real Madrid only offered €40m for Rodri**: [Link](https://frenchfootballweekly.com/2026/08/12/real-madrid-only-offered-e40m-for-rodri/)
+
+
+### apple iphone 18 (N/A, Thu, 13 Aug 2026 09:00:00 -0700)
+
+- **iPhone 18 could get two new Pro-level upgrades, per report**: [Link](https://9to5mac.com/2026/08/12/iphone-18-could-get-two-new-pro-level-upgrades-per-report/)
+- **Apple Already Increased the Price of iPhones Up to $300. Their Price Hikes Might Be Just Starting.**: [Link](https://finance.yahoo.com/markets/stocks/articles/apple-already-increased-price-iphones-154126850.html)
+- **It looks like Apple’s iPhone 18 really will skip the fall launch this year**: [Link](https://www.theverge.com/tech/979231/apple-base-iphone-18-launch-delayed)
+
+
 ### cisjordanie (N/A, Thu, 13 Aug 2026 10:10:00 -0700)
 
 - **L’ambassadeur américain en Israël dénonce un « acte de terreur » de colons**: [Link](https://www.20minutes.fr/monde/etats-unis/4238986-20260813-cisjordanie-ambassadeur-americain-israel-qualifie-acte-terreur-siege-maisons-colons)
