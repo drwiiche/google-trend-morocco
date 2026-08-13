@@ -1,3 +1,17 @@
+### فيديو سكينة كلامور (N/A, Wed, 12 Aug 2026 16:30:00 -0700)
+
+- **توقيف "مؤثرة" بتهمة الإخلال بالحياء**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D9%84%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A1-1791240.html)
+- **توقيف المؤثرة «كلامور» بمطار محمد الخامس بسبب محتوى خادش للحياء**: [Link](https://ar.le360.ma/people/YE53KJTT6RBXFMDTHCVABCBT4U/)
+- **من هي “المؤثرة” المشهورة التي اعتقلت في المطار؟**: [Link](https://www.alayam24.com/articles-636968.html)
+
+
+### morocco (N/A, Wed, 12 Aug 2026 15:40:00 -0700)
+
+- **How Social Media Sparked a Refugee Crisis Between Spain and Morocco**: [Link](https://www.nytimes.com/2026/08/11/technology/social-media-ceuta-spain-morocco.html)
+- **Ceuta showed just how easily Europe can be divided**: [Link](https://www.theguardian.com/commentisfree/2026/aug/12/ceuta-showed-just-how-easy-it-is-to-divide-europe)
+- **Spain Has a Simple Explanation for Why Migrants Flooded Across Border**: [Link](https://www.wsj.com/world/europe/theories-abound-about-what-spurred-a-flood-of-migrants-spain-says-its-simple-2e81e882)
+
+
 ### inter miami – club león (N/A, Wed, 12 Aug 2026 16:00:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Hosts Club León in Third Leagues Cup 2026 Phase One Matchup**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-club-leon-in-third-leagues-cup-2026-phase-one-matchup)
