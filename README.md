@@ -1,3 +1,31 @@
+### karoline leavitt (N/A, Thu, 13 Aug 2026 02:40:00 -0700)
+
+- **Trump says White House press secretary Karoline Leavitt to leave post**: [Link](https://www.bbc.com/news/articles/cvglzrvyrz3o)
+- **8/12: The Takeout with Major Garrett**: [Link](https://www.cbsnews.com/video/081226-the-takeout-with-major-garrett/)
+- **Trump spokeswoman’s stunning announcement saddens MAGA as Democrats rejoice**: [Link](https://www.al.com/politics/2026/08/trump-spokeswomans-stunning-announcement-saddens-maga-as-democrats-rejoice.html)
+
+
+### assurance (N/A, Thu, 13 Aug 2026 02:00:00 -0700)
+
+- **« Certains payent 178 euros l'année, d'autres 8.000 euros » : les aspirants kinés toujours dans l'attente d'études moins chères**: [Link](https://www.lesechos.fr/economie-france/social/certains-payent-178-euros-lannee-dautres-8000-euros-les-aspirants-kines-toujours-dans-lattente-detudes-moins-cheres-2246620)
+- **Assurance maladie : vers une baisse des remboursements des soins chez le kiné ?**: [Link](https://www.capital.fr/votre-argent/assurance-maladie-vers-une-baisse-des-remboursements-des-soins-chez-le-kine-1529240)
+- **"La facture est devenue beaucoup trop lourde" : les kinés dans le viseur de l'Assurance maladie**: [Link](https://www.tf1info.fr/sante/videos/video-la-facture-est-devenue-beaucoup-trop-lourde-les-kines-dans-le-viseur-de-l-assurance-maladie-98338-2458149.html)
+
+
+### 14 aout (N/A, Thu, 13 Aug 2026 01:40:00 -0700)
+
+- **Teyssier (Benjamin Baroche) lance le concours le plus difficile de l’histoire : il met les candidats en danger - Ici tout commence du 31 août au 4 septembre 2026 (spoilers)**: [Link](https://www.nouveautes-tele.com/378225-teyssier-benjamin-baroche-lance-le-concours-le-plus-difficile-de-lhistoire-il-met-les-candidats-en-danger-ici-tout-commence-du-31-aout-au-4-septembre-2026-spoilers.html)
+- **Avant-première - Ici tout commence du 14 août 2026 - Episode 1502**: [Link](https://www.tf1.fr/fr-ma/tf1/ici-tout-commence/videos/avant-premiere-ici-tout-commence-du-14-aout-2026-episode-1502-72794838.html)
+- **Alexandra Ferreira (Ici tout commence) : confidences sur l’avenir amoureux de Bianca après son rapprochement avec Loup**: [Link](https://www.ohmymag.com/people/actu-people/alexandra-ferreira-ici-tout-commence-confidences-sur-lavenir-amoureux-de-bianca-apres-son-rapprochement-avec-loup_art193903.html)
+
+
+### 14 غشت (N/A, Thu, 13 Aug 2026 00:20:00 -0700)
+
+- **🔥غدا الجمعة 14 غشت عطلة في المغرب**: [Link](https://tanja7.com/190521/)
+- **معركة بئر أنزران و ذكرى استرجاع أقاليم وادي الذهب**: [Link](https://i3lamtv.com/168089)
+- **14 غشت 1979 يوم تاريخي مشهود في مسيرة استكمال الاستقلال الوطني وتحقيق الوحدة الترابية المقدسة**: [Link](https://alittihad.info/14-%D8%BA%D8%B4%D8%AA-1979-%D9%8A%D9%88%D9%85-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%85%D8%B4%D9%87%D9%88%D8%AF-%D9%81%D9%8A-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D8%B3%D8%AA%D9%83%D9%85%D8%A7%D9%84/)
+
+
 ### addoha (N/A, Thu, 13 Aug 2026 00:10:00 -0700)
 
 - **Addoha : 12 milliards de dirhams vendus d’avance, un quart en Afrique de l’Ouest**: [Link](https://mobile.telquel.ma/2026/08/12/addoha-12-milliards-de-dirhams-vendus-davance-un-quart-en-afrique-de-louest_2003156)
