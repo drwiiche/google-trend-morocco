@@ -1,3 +1,24 @@
+### كولومبيا (N/A, Wed, 12 Aug 2026 23:30:00 -0700)
+
+- **كولومبيا تعلن حالة الكوارث الوطنية بعد زلزال مدمر**: [Link](https://www.aljazeera.net/video/2026/8/11/%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D8%B1%D8%AB-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9)
+- **الملك محمد السادس يعزي الرئيس الكولومبي في ضحايا الزلزال المدمر**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B9%D8%B2%D9%8A-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%84%D9%88%D9%85/)
+- **غادرها قبل الكارثة.. يامال يتفاعل مع زلزال كولومبيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D8%A7%D8%AF%D8%B1%D9%87%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D8%B1%D8%AB%D8%A9--%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AA%D9%81%D8%A7%D8%B9%D9%84-%D9%85%D8%B9-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7/blt743f5519be2780ad)
+
+
+### éclipse solaire au maroc (N/A, Wed, 12 Aug 2026 17:00:00 -0700)
+
+- **Avertissement concernant l'éclipse solaire de 2026 : un homme souffrant de lésions oculaires permanentes met en garde contre ce sujet.**: [Link](https://www.bbc.com/afrique/articles/ce97pxr55l0o)
+- **Eclipse solaire : les photos de ce rare spectacle qui a émerveillé des millions de personnes à travers le monde**: [Link](https://www.lemonde.fr/sciences/article/2026/08/12/eclipse-solaire-les-photos-de-ce-rare-spectacle-qui-a-emerveille-des-millions-de-personnes-a-travers-le-monde_6745101_1650684.html)
+- **Les professionnels risquent une amende de 200.000 euros: la Répression des Fraudes a constaté que certaines lunettes de protection vendues pour observer l'éclipse solaire étaient non conformes**: [Link](https://www.bfmtv.com/economie/consommation/les-vendeurs-risquent-une-amende-de-200-000-euros-la-repression-des-fraudes-a-constate-que-certaines-lunettes-de-protection-pour-observer-l-eclipse-solaire-etaient-non-conformes_AD-202608120380.html)
+
+
+### حارس مرمى (N/A, Wed, 12 Aug 2026 16:20:00 -0700)
+
+- **شاهد.. تصرف غريب من حارس مرمى تجاه حكم ينتهي بطرده**: [Link](https://www.aljazeera.net/sport/2026/8/12/%D8%B7%D8%B1%D8%AF-%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D9%85%D8%B1%D9%85%D9%89-%D9%86%D8%A7%D9%87%D9%88%D9%8A%D9%84-%D8%BA%D9%88%D8%B2%D9%85%D8%A7%D9%86)
+- **من دفع الحكم إلى تحطيم الكراسي.. نوبة غضب جنونية لحارس تيجريس بعد الطرد (فيديو)**: [Link](https://www.eremnews.com/sports/e8sfr50)
+- **ليلة جنون غوزمان.. ركل الكرسي وقذف الحاوية بعد طرد مثير**: [Link](https://www.alaraby.co.uk/sport/%D9%84%D9%8A%D9%84%D8%A9-%D8%AC%D9%86%D9%88%D9%86-%D8%BA%D9%88%D8%B2%D9%85%D8%A7%D9%86-%D8%B1%D9%83%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%B3%D9%8A-%D9%88%D9%82%D8%B0%D9%81-%D8%A7%D9%84%D8%AD%D8%A7%D9%88%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%B7%D8%B1%D8%AF-%D9%85%D8%AB%D9%8A%D8%B1)
+
+
 ### classement inter miami – club león (N/A, Wed, 12 Aug 2026 20:40:00 -0700)
 
 - **Inter Miami CF - Club León en direct - Leagues Cup : Football Scores & Résultats - 12/08/2026**: [Link](https://www.eurosport.fr/football/leagues-cup/2026/live-inter-miami-cf-club-leon_mtc21488273/live.shtml)
