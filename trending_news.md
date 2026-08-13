@@ -1,3 +1,17 @@
+### hiroshi okuda (N/A, Wed, 12 Aug 2026 16:00:00 -0700)
+
+- **Hiroshi Okuda, who led Toyota’s climb as a global automaker, dies at 93**: [Link](https://apnews.com/article/toyota-obit-japan-okuda-automakers-prius-327d352725d706f8e0c4539309990014)
+- **Hiroshi Okuda, outspoken outsider who led Toyota’s global expansion and championed game-changing Prius hybrid, dies at 93**: [Link](https://www.autonews.com/executives/an-obituary-/)
+- **Former head of Toyota Motor Okuda Hiroshi dies**: [Link](https://www3.nhk.or.jp/nhkworld/en/news/20260812_16/)
+
+
+### كلامور (N/A, Wed, 12 Aug 2026 15:20:00 -0700)
+
+- **توقيف "مؤثرة" بتهمة الإخلال بالحياء**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D9%84%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A1-1791240.html)
+- **محتويات مخلة بالحياء تسقط امرأة في قبضة الأمن بمطار محمد الخامس**: [Link](https://assabah.ma/943686.html)
+- **توقيف المؤثرة «كلامور» بمطار محمد الخامس بسبب محتوى خادش للحياء**: [Link](https://ar.le360.ma/people/YE53KJTT6RBXFMDTHCVABCBT4U/)
+
+
 ### فيديو سكينة كلامور (N/A, Wed, 12 Aug 2026 16:30:00 -0700)
 
 - **توقيف "مؤثرة" بتهمة الإخلال بالحياء**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D9%84%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A1-1791240.html)
