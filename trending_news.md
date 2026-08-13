@@ -1,3 +1,17 @@
+### olivier echaudemaison (N/A, Thu, 13 Aug 2026 04:50:00 -0700)
+
+- **Mort d’Olivier Echaudemaison, des Windsor à Guerlain, une vie au service de la beauté**: [Link](https://www.lepoint.fr/mode-design/mort-dolivier-echaudemaison-lesprit-de-la-beaute-a-la-francaise-HQ244MVNHVE75LFXM4T45W6I3U/)
+- **Caroline de Hanovre, les princesses Anne ou Lalla Salma... bouleversées par la disparition de leur ami et maquilleur star Olivier Echaudemaison**: [Link](https://www.pointdevue.fr/society/actus/caroline-de-hanovre-les-princesses-anne-ou-lalla-salma-bouleversees-par-la-disparition-de-leur-ami-et-maquilleur-star-olivier-echaudemaison)
+- **"Je n’oublierai jamais…" : Carla Bruni rend hommage à un proche qui a joué un rôle important dans sa carrière de mannequin**: [Link](https://www.voici.fr/celebrites/je-noublierai-jamais-carla-bruni-rend-hommage-a-un-proche-qui-a-joue-un-role-important-dans-sa-carriere-de-mannequin-827579)
+
+
+### efootball 2027 (N/A, Thu, 13 Aug 2026 01:20:00 -0700)
+
+- **INFO DETAIL**: [Link](https://www.konami.com/efootball/en/topic/promotion/campaign/888/)
+- **eFootball’s latest season launches today, including a new mini-game made by PlatinumGames**: [Link](https://www.videogameschronicle.com/news/efootballs-latest-season-launches-today-including-a-new-mini-game-made-by-platinumgames/)
+- **Messi And Yamal Headline eFootball 2027’s Big New Season Update**: [Link](https://www.thexboxhub.com/messi-and-yamal-headline-efootball-2027s-big-new-season-update/)
+
+
 ### pizza (N/A, Thu, 13 Aug 2026 02:10:00 -0700)
 
 - **Domino’s Set to Release New Individual-Size Pizza for Diners Who Don’t Want to Share**: [Link](https://www.wsj.com/business/hospitality/dominos-set-to-release-new-individual-size-pizza-for-diners-who-dont-want-to-share-72e4ae2d)
