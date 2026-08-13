@@ -1,3 +1,17 @@
+### عام دراسي (N/A, Thu, 13 Aug 2026 06:10:00 -0700)
+
+- **التربية تعلن موعد بدء العام الدراسي 2026/2027**: [Link](https://www.maannews.net/news/2166876.html)
+- **تبدأ 19 سبتمبر.. موعد انطلاق الدراسة بالجامعات والمعاهد**: [Link](https://www.youm7.com/story/2026/8/13/%D8%AA%D8%A8%D8%AF%D8%A3-19-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A8%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D9%87%D8%AF/7512020)
+- **تأجيل الدراسة 2027.. التعليم تحسم أمر تأجيل العام الدراسي إلى 21 سبتمبر**: [Link](https://www.almasryalyoum.com/news/details/4335534)
+
+
+### 14 aout maroc (N/A, Thu, 13 Aug 2026 01:00:00 -0700)
+
+- **Le 14 août 1979, une date historique marquante dans le processus de consécration de l'intégrité territoriale**: [Link](https://maroc.ma/fr/actualites/le-14-aout-1979-une-date-historique-marquante-dans-le-processus-de-consecration-de-lintegrite)
+- **Oued Eddahab : 47 ans après le 14 août 1979, une page majeure de l’histoire nationale commémorée**: [Link](https://www.infomediaire.net/oued-eddahab-47e-anniversaire-14-aout-1979/)
+- **Oued Eddahab : le 14 août 1979, une date qui a marqué l’histoire du Maroc**: [Link](https://industries.ma/oued-eddahab-le-14-aout-1979-une-date-qui-a-marque-lhistoire-du-maroc/)
+
+
 ### olivier echaudemaison (N/A, Thu, 13 Aug 2026 04:50:00 -0700)
 
 - **Mort d’Olivier Echaudemaison, des Windsor à Guerlain, une vie au service de la beauté**: [Link](https://www.lepoint.fr/mode-design/mort-dolivier-echaudemaison-lesprit-de-la-beaute-a-la-francaise-HQ244MVNHVE75LFXM4T45W6I3U/)
