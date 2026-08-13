@@ -1,3 +1,10 @@
+### pizza (N/A, Thu, 13 Aug 2026 02:10:00 -0700)
+
+- **Domino’s Set to Release New Individual-Size Pizza for Diners Who Don’t Want to Share**: [Link](https://www.wsj.com/business/hospitality/dominos-set-to-release-new-individual-size-pizza-for-diners-who-dont-want-to-share-72e4ae2d)
+- **Domino's leans into Detroit-style and customization with new product**: [Link](https://www.detroitnews.com/story/entertainment/dining/2026/08/11/dominos-leans-into-detroit-style-and-customization-with-new-product/91255564007/)
+- **Domino’s Introduces the Domino, a Detroit-style Pizza for One**: [Link](https://www.dbusiness.com/daily-news/dominos-introduces-the-domino-a-detroit-style-pizza-for-one/)
+
+
 ### الكسوف الكلي (N/A, Thu, 13 Aug 2026 04:20:00 -0700)
 
 - **لن يتكرر قبل 55 عاما.. كسوف نادر يحجب الشمس عن أوروبا وجزئيا عن المغرب**: [Link](https://www.aljazeera.net/misc/2026/8/12/%D9%84%D9%86-%D9%8A%D8%AA%D9%83%D8%B1%D8%B1-%D9%82%D8%A8%D9%84-55-%D8%B9%D8%A7%D9%85%D8%A7-%D9%83%D8%B3%D9%88%D9%81-%D9%86%D8%A7%D8%AF%D8%B1-%D9%8A%D8%AD%D8%AC%D8%A8-%D8%A7%D9%84%D8%B4%D9%85%D8%B3)
