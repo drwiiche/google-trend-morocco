@@ -1,3 +1,45 @@
+### الاتحاد الدولي لكرة القدم (N/A, Thu, 13 Aug 2026 13:30:00 -0700)
+
+- **6 دول عربية تعلن دعمها لرئيس فيفا إنفانتينو**: [Link](https://www.aljazeera.net/sport/2026/8/13/6-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF%D8%AA-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B9%D9%85-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88)
+- **يويفا مصمم على الإطاحة بإنفانتينو.. ومرشحان عربيان لرئاسة الفيفا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D9%85%D8%B5%D9%85%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%95%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88--%D9%88%D9%85%D8%B1%D8%B4%D8%AD%D8%A7%D9%86-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A7%D9%86-%D9%84%D8%B1%D9%8A%D9%94%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7/blt58b6c8734c55eb3a)
+- **ستة اتحادات عربية تعرب عن دعمها الكامل لإنفانتينو وسط أزمة الفيفا**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20260813-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF%D8%A7%D8%AA-%D9%82%D8%B7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B5%D8%B1-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%AF%D8%B9%D9%85-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%B1%D8%A6%D9%8A%D8%B3-%D9%81%D9%8A%D9%81%D8%A7)
+
+
+### wetter morgen (N/A, Thu, 13 Aug 2026 13:20:00 -0700)
+
+- **Das Wetter für den 13. August**: [Link](https://www.butenunbinnen.de/videos/wetter-15614.html)
+- **Aktuelle Wettervorhersage für Deutschland**: [Link](https://www.rnd.de/panorama/wetter-heute-donnerstag-13-8-2026-die-aktuelle-vorhersage-fuer-die-kommenden-tage-TRUEJY7TK23HE7EQYF7AVQWYRU.html)
+- **Wetter morgen am Donnerstag: Von früh bis spät viel Sonnenschein**: [Link](https://www.wetter.com/news/wetterbericht-fuer-morgen-donnerstag-13-august-2026-von-frueh-bis-spaet-viel-sonnenschein_aid_6a7c19d35d29685e2c0fc0e9.html)
+
+
+### فيران توريس (N/A, Thu, 13 Aug 2026 13:10:00 -0700)
+
+- **باريس يخطف فيران توريس.. تفاصيل مفاجئة في القيمة والمدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D8%AE%D8%B7%D9%81-%D9%81%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%88%D8%B1%D9%8A%D8%B3--%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D9%8A%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%AF%D8%A9/bltfb873f7b6c6d5ee6)
+- **لويس إنريكي: "أزمة إنفانتينو واليويفا؟ أنا لست سياسيًا"**: [Link](https://www.elbotola.com/article/2026-08-11-18-10-701.html)
+- **سان جيرمان يبدأ تحركاته لضم توريس.. وبرشلونة يحسم موقفه**: [Link](https://www.alaraby.co.uk/sport/%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%AA%D8%AD%D8%B1%D9%83%D8%A7%D8%AA%D9%87-%D9%84%D8%B6%D9%85-%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87)
+
+
+### meteo di domani (N/A, Thu, 13 Aug 2026 13:10:00 -0700)
+
+- **Il caldo non molla la presa: sulle Marche città da bollino rosso e temperature fino a 38 gradi. Ecco dove**: [Link](https://www.corriereadriatico.it/schede/caldo_marche_bollino_rosso_temperature_alte_citta_mappa_meteo_previsioni-9704400.html)
+- **Ondata di calore, livello 3 (rosso) fino a domenica 9 agosto**: [Link](https://www.comune.sanbenedettodeltronto.ap.it/it/news/ondata-di-calore-livello-3-rosso-fino-a-domenica-9-agosto)
+- **Meteo, Piceno sulla graticola almeno fino al 10 agosto**: [Link](https://www.offida.info/meteo-piceno-sulla-graticola-almeno-fino-al-10-agosto/)
+
+
+### twitch (N/A, Thu, 13 Aug 2026 13:10:00 -0700)
+
+- **Amazon is using Twitch to train generative AI**: [Link](https://www.bbc.co.uk/news/videos/cwyq22g0ylxo)
+- **Siberian Custom Studio Opens Pre-Order for Unofficial Daywalker Statue from "Blade" Movie**: [Link](https://ixbt.games/en/news/2026/08/13/427930-siberian-custom-studio-otkryla-predzakaz-na-neoficialnuiu-statuiu-dnevnogo-brodiagi-iz-filma-bleid.html)
+- **AMZN Stock Slips While Twitch Faces Pushback for Auto-Enrolling Creators in Amazon’s AI Training**: [Link](https://www.tipranks.com/news/amzn-stock-slips-as-twitch-faces-pushback-for-auto-enrolling-creators-in-amazons-ai-training)
+
+
+### انفجار (N/A, Thu, 13 Aug 2026 11:50:00 -0700)
+
+- **قتيلان و12 مصابا في حريق وانفجار بمول في التجمع بالقاهرة**: [Link](https://www.aljazeera.net/news/2026/8/13/%D9%85%D8%B5%D8%B1-%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%86-%D9%8812-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D9%81%D9%8A-%D8%AD%D8%B1%D9%8A%D9%82-%D9%88%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1)
+- **3 قتلى في انفجار داخل مول بالقاهرة الجديدة.. وتحقيق أولي يكشف السبب**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/13/3-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%AF%D8%A7%D8%AE%D9%84-%D9%85%D9%88%D9%84-%D8%A8%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%88%D9%84%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8)
+- **قتلى ومصابون بانفجار في 'أرابيلا بلازا' في القاهرة... ماذا حدث داخل المول؟**: [Link](https://www.annahar.com/arab-world/north-africa/338328/%D9%82%D8%AA%D9%84%D9%89-%D9%88%D9%85%D8%B5%D8%A7%D8%A8%D9%88%D9%86-%D8%A8%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A3%D8%B1%D8%A7%D8%A8%D9%8A%D9%84%D8%A7-%D8%A8%D9%84%D8%A7%D8%B2%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%85%D8%A7%D8%B0%D8%A7-%D8%AD%D8%AF%D8%AB-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%84)
+
+
 ### georgina rodriguez (N/A, Thu, 13 Aug 2026 10:50:00 -0700)
 
 - **Cristiano Ronaldo Marries Longtime Love Georgina Rodríguez in ‘Intimate’ Wedding in Portugal**: [Link](https://people.com/cristiano-ronaldo-marries-georgina-rodriguez-11789780)
