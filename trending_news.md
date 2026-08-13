@@ -1,3 +1,10 @@
+### الكسوف الكلي (N/A, Thu, 13 Aug 2026 04:20:00 -0700)
+
+- **لن يتكرر قبل 55 عاما.. كسوف نادر يحجب الشمس عن أوروبا وجزئيا عن المغرب**: [Link](https://www.aljazeera.net/misc/2026/8/12/%D9%84%D9%86-%D9%8A%D8%AA%D9%83%D8%B1%D8%B1-%D9%82%D8%A8%D9%84-55-%D8%B9%D8%A7%D9%85%D8%A7-%D9%83%D8%B3%D9%88%D9%81-%D9%86%D8%A7%D8%AF%D8%B1-%D9%8A%D8%AD%D8%AC%D8%A8-%D8%A7%D9%84%D8%B4%D9%85%D8%B3)
+- **الكسوف أخطر مما تظن!**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%B3%D9%88%D9%81-%D8%A3%D8%AE%D8%B7%D8%B1-%D9%85%D9%85%D8%A7-%D8%AA%D8%B8%D9%86-1791198.html)
+- **كسوف جزئي يحجب معظم قرص الشمس في شمال المغرب**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%83%D8%B3%D9%88%D9%81-%D8%AC%D8%B2%D8%A6%D9%8A-%D9%8A%D8%AD%D8%AC%D8%A8-%D9%85%D8%B9%D8%B8%D9%85-%D9%82%D8%B1%D8%B5-%D8%A7%D9%84%D8%B4%D9%85%D8%B3-%D9%81%D9%8A-%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/4025769)
+
+
 ### karoline leavitt (N/A, Thu, 13 Aug 2026 02:40:00 -0700)
 
 - **Trump says White House press secretary Karoline Leavitt to leave post**: [Link](https://www.bbc.com/news/articles/cvglzrvyrz3o)
