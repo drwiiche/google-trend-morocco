@@ -1,3 +1,10 @@
+### georgina rodriguez (N/A, Thu, 13 Aug 2026 10:50:00 -0700)
+
+- **Cristiano Ronaldo Marries Longtime Love Georgina Rodríguez in ‘Intimate’ Wedding in Portugal**: [Link](https://people.com/cristiano-ronaldo-marries-georgina-rodriguez-11789780)
+- **Cristiano Ronaldo And Georgina’s Marriage Sparks Reactions From Syrian Creators!**: [Link](https://lovin.co/damascus/en/community/ronaldo-georgina-finally-tied-the-knot/)
+- **Cristiano Ronaldo Just Got Married But ESPN’s Edit of His Wedding Photo Steals the Buzz**: [Link](https://currently.att.yahoo.com/att/cristiano-ronaldo-just-got-married-113300436.html)
+
+
 ### zone turf (N/A, Thu, 13 Aug 2026 12:20:00 -0700)
 
 - **15 Egyptian Glory - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-15-egyptian-glory-130304.html)
