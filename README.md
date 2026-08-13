@@ -1,3 +1,10 @@
+### inter miami (N/A, Wed, 12 Aug 2026 18:30:00 -0700)
+
+- **Lionel Messi not sure he will play football for 'much longer' after father's death**: [Link](https://www.bbc.com/sport/football/articles/c78gqj2dqyno)
+- **Diego Rossi helps Monterrey to 2-1 Leagues Cup win over Messi-less Inter Miami**: [Link](https://apnews.com/article/monterrey-inter-miami-leagues-cup-messi-3977f4a8758825b3779f0350e9a4af64)
+- **Jorge Messi’s touching gesture to Rosario doctors: “He saw to it all”**: [Link](https://onefootball.com/en/news/jorge-messis-touching-gesture-to-rosario-doctors-he-saw-to-it-all-43268414)
+
+
 ### hiroshi okuda (N/A, Wed, 12 Aug 2026 16:00:00 -0700)
 
 - **Hiroshi Okuda, who led Toyota’s climb as a global automaker, dies at 93**: [Link](https://apnews.com/article/toyota-obit-japan-okuda-automakers-prius-327d352725d706f8e0c4539309990014)
