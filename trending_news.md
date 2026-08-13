@@ -1,3 +1,17 @@
+### classement inter miami – club león (N/A, Wed, 12 Aug 2026 20:40:00 -0700)
+
+- **Inter Miami CF - Club León en direct - Leagues Cup : Football Scores & Résultats - 12/08/2026**: [Link](https://www.eurosport.fr/football/leagues-cup/2026/live-inter-miami-cf-club-leon_mtc21488273/live.shtml)
+- **L’Inter Miami éliminé de la Leagues Cup, Messi a rejoué**: [Link](https://www.footmercato.net/a6252870773198832907-linter-miami-elimine-de-la-leagues-cup-messi-a-rejoue)
+- **Pronostic du match Inter Miami - Leon : compositions probables**: [Link](https://www.vietnam.vn/fr/nhan-dinh-inter-miami-vs-leon-doi-hinh-du-kien)
+
+
+### israël (N/A, Wed, 12 Aug 2026 16:20:00 -0700)
+
+- **Désarmement du Hezbollah : quatre pays seraient envisagés pour participer à un mécanisme de vérification**: [Link](https://www.lorientlejour.com/article/1544367/desarmement-du-hezbollah-quatre-pays-seraient-envisages-pour-participer-a-un-mecanisme-de-verification.html)
+- **Israël-Liban : Nouvelle série de pourparlers en septembre à Rome**: [Link](https://lopinion.ma/fr/international/israel-liban--nouvelle-serie-de-pourparlers-en-septembre-a-rome_a77776?articleId=74ea0d57-3576-4e9a-9efa-468e3ebfaa1b)
+- **Salam: Le retour des habitants du Sud n’est pas négociable**: [Link](https://icibeyrouth.com/articles/1341055/salam-le-retour-des-habitants-du-sud-nest-pas-negociable)
+
+
 ### inter miami (N/A, Wed, 12 Aug 2026 18:30:00 -0700)
 
 - **Lionel Messi not sure he will play football for 'much longer' after father's death**: [Link](https://www.bbc.com/sport/football/articles/c78gqj2dqyno)
