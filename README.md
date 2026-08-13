@@ -1,3 +1,24 @@
+### cisjordanie (N/A, Thu, 13 Aug 2026 10:10:00 -0700)
+
+- **L’ambassadeur américain en Israël dénonce un « acte de terreur » de colons**: [Link](https://www.20minutes.fr/monde/etats-unis/4238986-20260813-cisjordanie-ambassadeur-americain-israel-qualifie-acte-terreur-siege-maisons-colons)
+- **Cisjordanie : des colons israéliens assiègent des maisons palestiniennes, l’ambassadeur américain en Israël dénonce un «acte de terreur»**: [Link](https://www.lefigaro.fr/international/cisjordanie-des-colons-israeliens-assiegent-des-maisons-palestiniennes-l-ambassadeur-americain-en-israel-denonce-un-acte-de-terreur-20260813)
+- **Cisjordanie occupée : l’armée israélienne réquisitionne 16 maisons palestiniennes à Qusra**: [Link](https://www.aa.com.tr/fr/monde/cisjordanie-occup%C3%A9e-l-arm%C3%A9e-isra%C3%A9lienne-r%C3%A9quisitionne-16-maisons-palestiniennes-%C3%A0-qusra/4026456)
+
+
+### ناصر الخليفي (N/A, Thu, 13 Aug 2026 09:30:00 -0700)
+
+- **الخليفي يرد لأول مرة على تقارير خلافة إنفانتينو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D9%81%D9%8A-%D9%8A%D8%B1%D8%AF-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88/blt929c3503c329db5d)
+- **ناصر الخليفي يحسم موقفه من رئاسة الفيفا**: [Link](https://radiomars.ma/%D9%86%D8%A7%D8%B5%D8%B1-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D9%81%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D9%81/)
+- **الخليفي يحفز لاعبي باريس سان جيرمان: سيكون موسماً طويلاً**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D9%81%D9%8A-%D9%8A%D8%AD%D9%81%D8%B2-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%B3%D9%8A%D9%83%D9%88%D9%86-%D9%85%D9%88%D8%B3%D9%85%D8%A7%D9%8B-%D8%B7%D9%88%D9%8A%D9%84%D8%A7%D9%8B)
+
+
+### معرض الكتاب (N/A, Thu, 13 Aug 2026 08:40:00 -0700)
+
+- **معرض الكتاب المستعمل يقرر التمديد**: [Link](https://www.hespress.com/%D9%85%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B9%D9%85%D9%84-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A7%D9%84%D8%AA%D9%85%D8%AF%D9%8A%D8%AF-1791057.html)
+- **تمديد معرض الكتاب المستعمل بالبيضاء بعد إقبال لافت من القراء**: [Link](https://assabah.ma/943445.html)
+- **معرض الكتاب المستعمل بالدارالبيضاء.. حين تصبح الثقافة قاطرة اقتصادية ومرآة لتحولات المدينة**: [Link](https://ar.le360.ma/culture/ZSIKCMAZMFBVTAYLE65XTQFAFQ/)
+
+
 ### عام دراسي (N/A, Thu, 13 Aug 2026 06:10:00 -0700)
 
 - **التربية تعلن موعد بدء العام الدراسي 2026/2027**: [Link](https://www.maannews.net/news/2166876.html)
