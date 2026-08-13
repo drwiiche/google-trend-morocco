@@ -1,3 +1,10 @@
+### مدينة القاهرة الجديدة (N/A, Thu, 13 Aug 2026 15:40:00 -0700)
+
+- **3 قتلى و17 مصابا في انفجار داخل مركز تجاري بالقاهرة الجديدة**: [Link](https://www.aljazeera.net/news/2026/8/13/%D9%85%D8%B5%D8%B1-%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%86-%D9%8812-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D9%81%D9%8A-%D8%AD%D8%B1%D9%8A%D9%82-%D9%88%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1)
+- **3 قتلى في انفجار داخل مول بالقاهرة الجديدة.. وتحقيق أولي يكشف السبب**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/13/3-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%AF%D8%A7%D8%AE%D9%84-%D9%85%D9%88%D9%84-%D8%A8%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%88%D9%84%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8)
+- **قتيلان و12 مصابًا.. ارتفاع ضحايا انفجار وحريق مول "أرابيلا بلازا" في مصر (شاهد)**: [Link](https://arabi21.com/story/1781658/%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%86-%D9%8812-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D9%88%D8%AD%D8%B1%D9%8A%D9%82-%D9%85%D9%88%D9%84-%D8%A3%D8%B1%D8%A7%D8%A8%D9%8A%D9%84%D8%A7-%D8%A8%D9%84%D8%A7%D8%B2%D8%A7-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF)
+
+
 ### ferran torres (N/A, Thu, 13 Aug 2026 13:40:00 -0700)
 
 - **Principio de acuerdo entre Barcelona y PSG por Ferran Torres**: [Link](https://www.marca.com/futbol/barcelona/2026/08/13/rodri-ferran-torres-maletas-preparadas.html)
