@@ -1,3 +1,31 @@
+### zone turf (N/A, Thu, 13 Aug 2026 12:20:00 -0700)
+
+- **15 Egyptian Glory - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-15-egyptian-glory-130304.html)
+- **Tiercé. Les pronostics de L'Alsace pour vendredi 14 août - Prix Fabien Rossolini**: [Link](https://www.lalsace.fr/actualite/2026/08/13/les-pronostics-de-l-alsace-pour-vendredi-14-aout-prix-fabien-rossolini)
+- **Faites le papier du Quinté+ de ce vendredi 14 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-vendredi-14-aout)
+
+
+### hearts – benfica (N/A, Thu, 13 Aug 2026 12:00:00 -0700)
+
+- **Confira o onze inicial do Benfica para a segunda mão com o Hearts**: [Link](https://sapo.pt/artigo/confira-o-onze-inicial-do-benfica-para-a-segunda-mao-com-o-hearts-6a7e0178722a0e2b23284257)
+- **Hearts-Benfica. Águia visita Escócia depois da goleada na Luz**: [Link](https://observador.pt/liveblogs/hearts-benfica-aguia-visita-escocia-depois-da-goleada-na-luz/)
+- **12h30m Rui Borges desvaloriza amuos de Suarez**: [Link](https://www.rtp.pt/noticias/noticiario-desporto/12h30m-rui-borges-desvaloriza-amuos-de-suarez_a1_1759237)
+
+
+### turf (N/A, Thu, 13 Aug 2026 10:50:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour jeudi 13 août - Prix des Chenettes**: [Link](https://www.lalsace.fr/actualite/2026/08/12/les-pronostics-de-l-alsace-pour-jeudi-13-aout-prix-des-chenettes)
+- **Faites le papier du Quinté+ de ce jeudi 13 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-jeudi-13-aout)
+- **Quinté Plus PMU : Rêve Bleu a une belle carte à jouer**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-reve-bleu-a-une-belle-carte-a-jouer-130303.html)
+
+
+### drone (N/A, Thu, 13 Aug 2026 09:40:00 -0700)
+
+- **U.S. military has lost roughly 25% of its Reaper drones as Iran war depletes arsenal**: [Link](https://www.washingtonpost.com/national-security/2026/08/13/us-military-has-lost-roughly-25-its-reaper-drones-iran-war-depletes-arsenal/)
+- **Trump Has Lost Nearly a Quarter of Key Drone Stockpile in Iran**: [Link](https://www.yahoo.com/news/politics/articles/trump-lost-nearly-quarter-key-183120188.html)
+- **US military loses 25% of its key drone fleet in Iran war: report**: [Link](https://www.independent.co.uk/news/world/americas/us-politics/us-military-drone-stockpile-reaper-iran-b3032712.html)
+
+
 ### prichard colon (N/A, Thu, 13 Aug 2026 11:10:00 -0700)
 
 - **Boxer Prichard Colon, 33, dies over a decade on from brain injury in ring as tributes pour in**: [Link](https://talksport.com/boxing/4510817/prichard-colon-dies-death-brain-injury-tributes/)
