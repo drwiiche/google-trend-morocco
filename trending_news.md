@@ -1,3 +1,10 @@
+### ferran torres (N/A, Thu, 13 Aug 2026 13:40:00 -0700)
+
+- **Principio de acuerdo entre Barcelona y PSG por Ferran Torres**: [Link](https://www.marca.com/futbol/barcelona/2026/08/13/rodri-ferran-torres-maletas-preparadas.html)
+- **Las consecuencias económicas del traspaso de Ferran**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260813/1004215801/consecuencias-economicas-traspaso-ferran.html)
+- **El Barça cierra la venta de Ferran Torres al PSG**: [Link](https://www.sport.es/es/noticias/barca/barca-cierra-venta-ferran-torres-133340987)
+
+
 ### الاتحاد الدولي لكرة القدم (N/A, Thu, 13 Aug 2026 13:30:00 -0700)
 
 - **6 دول عربية تعلن دعمها لرئيس فيفا إنفانتينو**: [Link](https://www.aljazeera.net/sport/2026/8/13/6-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF%D8%AA-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B9%D9%85-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88)
