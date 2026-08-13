@@ -1,3 +1,10 @@
+### addoha (N/A, Thu, 13 Aug 2026 00:10:00 -0700)
+
+- **Addoha : 12 milliards de dirhams vendus d’avance, un quart en Afrique de l’Ouest**: [Link](https://mobile.telquel.ma/2026/08/12/addoha-12-milliards-de-dirhams-vendus-davance-un-quart-en-afrique-de-louest_2003156)
+- **Addoha: Une croissance qui se joue encore dans les chantiers**: [Link](https://boursenews.ma/article/marches/Addoha-hausse-preventes-production-immobiliere-afrique-ouest)
+- **Addoha améliore ses indicateurs au S1-2026**: [Link](https://www.leconomiste.com/flash-infos/addoha-ameliore-ses-indicateurs-au-s1-2026/)
+
+
 ### كولومبيا (N/A, Wed, 12 Aug 2026 23:30:00 -0700)
 
 - **كولومبيا تعلن حالة الكوارث الوطنية بعد زلزال مدمر**: [Link](https://www.aljazeera.net/video/2026/8/11/%D9%83%D9%88%D9%84%D9%88%D9%85%D8%A8%D9%8A%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D8%A7%D8%B1%D8%AB-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9)
