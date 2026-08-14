@@ -1,3 +1,17 @@
+### carburant (N/A, Fri, 14 Aug 2026 09:20:00 -0700)
+
+- **Après le carburant, une nouvelle facture augmente pour les automobilistes au Maroc**: [Link](https://www.bladi.net/carburant-nouvelle-facture-augmente-automobilistes-maroc,123114.html)
+- **Chaos des remises d'assurance responsabilité civile obligatoire pour les véhicules automobiles**: [Link](https://fr.laodong.vn/xa-hoi/loan-chiet-khau-bao-hiem-trach-nhiem-dan-su-xe-co-gioi-bat-buoc-1749664.ldo)
+- **Assurance automobile: hausse silencieuse des tarifs**: [Link](https://fr.le360.ma/economie/assurance-automobile-hausse-silencieuse-des-tarifs_64NGJYRIIFFTHDUJTSNDPQUK4Q/)
+
+
+### عيد الشباب (N/A, Fri, 14 Aug 2026 06:20:00 -0700)
+
+- **خطبة يوم غد الجمعة 14 غشت 2026.. ذكرى ثورة الملك و الشعب و عيد الشباب**: [Link](https://hounasahara.net/%D8%AE%D8%B7%D8%A8%D8%A9-%D9%8A%D9%88%D9%85-%D8%BA%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-14-%D8%BA%D8%B4%D8%AA-2026-%D8%B0%D9%83%D8%B1%D9%89-%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%84/)
+- **ذكرى ثورة الملك والشعب و عيد الشباب المجيدتين – حين يلتقي الوفاء بالتجديد**: [Link](https://alakhbaralmaghribiya.ma/news/25218)
+- **«من نُزع منه الحياء صنع ما شاء».. خطيب المسجد النبوي: الحياء حجابٌ بين العبد والمعصية وقلته علامة شقاء**: [Link](https://sabq.org/article/zrnaalk)
+
+
 ### مانشستر يونايتد (N/A, Fri, 14 Aug 2026 07:10:00 -0700)
 
 - **"الصفقة الغامضة" تفاجئ مانشستر يونايتد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D8%AA%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/blt045581266f06b1dc)
