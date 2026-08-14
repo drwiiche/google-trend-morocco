@@ -1,3 +1,45 @@
+### خطبة الجمعة (N/A, Fri, 14 Aug 2026 06:10:00 -0700)
+
+- **«الإحسان إلى المحتاجين» موضوع خطبة الجمعة اليوم (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/4337431)
+- **خطبة الجمعة الأولى من شهر ربيع أول.. كيف تقدم الصدقة دون جرح مشاعر المحتاج؟**: [Link](https://www.cairo24.com/2475856)
+- **إمام مسجد آل دردير بأولاد يحيى بسوهاج يبدع في خطبة الجمعة عن الإحسان إلى المحتاجين**: [Link](https://ahlmasrnews.com/news/local-news/13485218/%D8%A5%D9%85%D8%A7%D9%85-%D9%85%D8%B3%D8%AC%D8%AF-%D9%84-%D8%AF%D8%B1%D8%AF%D9%8A%D8%B1-%D8%A8%D8%A3%D9%88%D9%84%D8%A7%D8%AF-%D9%8A%D8%AD%D9%8A-%D8%A8%D8%B3%D9%88%D9%87%D8%A7%D8%AC-%D9%8A%D8%A8%D8%AF%D8%B9-%D9%81%D9%8A-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%B9%D9%86-%D8%A7%D9%84%D8%A5%D8%AD%D8%B3%D8%A7%D9%86-%D8%A5%D9%84-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D8%A7%D8%AC%D9%8A%D9%86)
+
+
+### خطبة الجمعة اليوم (N/A, Fri, 14 Aug 2026 05:40:00 -0700)
+
+- **بث مباشر.. صلاة الجمعة مباشرة من مسجد حسان**: [Link](https://snrtnews.com/live/bth-mbashr-slat-aljmt-mbashrt-mn-msjd-hsan-156946)
+- **خطبة يوم غد الجمعة 14 غشت 2026.. ذكرى ثورة الملك و الشعب و عيد الشباب**: [Link](https://hounasahara.net/%D8%AE%D8%B7%D8%A8%D8%A9-%D9%8A%D9%88%D9%85-%D8%BA%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-14-%D8%BA%D8%B4%D8%AA-2026-%D8%B0%D9%83%D8%B1%D9%89-%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%84/)
+- **«من نُزع منه الحياء صنع ما شاء».. خطيب المسجد النبوي: الحياء حجابٌ بين العبد والمعصية وقلته علامة شقاء**: [Link](https://sabq.org/article/zrnaalk)
+
+
+### bayern munich (N/A, Fri, 14 Aug 2026 04:50:00 -0700)
+
+- **Ismael Saibari presented this Friday by Bayern**: [Link](https://mountakhab.net/en/ismael-saibari-presented-this-friday-by-bayern/)
+- **Jonathan Tah delighted to have Nathaniel Brown, Ismeal Saibari at Bayern Munich**: [Link](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/240009/jonathan-tah-delighted-to-have-nathaniel-brown-ismeal-saibari-at-bayern-munich)
+- **Ismail Saibari Returns to Bayern Munich Team Training After Injury Recovery**: [Link](https://m.elbotola.com/en/article/2026-08-10-16-17-434.html)
+
+
+### google pixel 11 pro xl (N/A, Fri, 14 Aug 2026 04:20:00 -0700)
+
+- **Hello! Amazon now offering extra $150 off Pixel 11 Pro XL w/ this code (stacks with $200 gift card and trade value)**: [Link](https://9to5toys.com/2026/08/14/amazon-extra-pixel-11-pro-xl-best-deal/)
+- **Google unveils latest Pixel phones with slimmer cameras and more AI features**: [Link](https://www.kcau9.com/news/business/ap-google-unveils-latest-pixel-phones-with-slimmer-cameras-and-more-ai-features/)
+- **Camera Looks may finally fix the biggest sin of Google Pixel cameras**: [Link](https://www.androidauthority.com/google-pixel-11-camera-looks-important-why-3696165/)
+
+
+### جواز سفر (N/A, Fri, 14 Aug 2026 04:10:00 -0700)
+
+- **أقوى وأضعف جوازات السفر في العالم خلال 2026.. سنغافورة تتصدر**: [Link](https://www.alarabiya.net/aswaq/special-stories/2026/08/06/%D8%A7%D9%82%D9%88%D9%89-%D9%88%D8%A7%D8%B6%D8%B9%D9%81-%D8%AC%D9%88%D8%A7%D8%B2%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AE%D9%84%D8%A7%D9%84-2026-%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-)
+- **تصنيف لأقوى جوازات السفر في أفريقيا للعام 2026 (إنفوغراف)**: [Link](https://arabi21.com/story/1781345/%D8%AA%D8%B5%D9%86%D9%8A%D9%81-%D9%84%D8%A3%D9%82%D9%88%D9%89-%D8%AC%D9%88%D8%A7%D8%B2%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D9%81%D9%8A-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B9%D8%A7%D9%85-2026-%D8%A5%D9%86%D9%81%D9%88%D8%BA%D8%B1%D8%A7%D9%81)
+- **مؤشر هينلي 2026: الجواز العراقي ضمن أدنى المستويات عالميا**: [Link](https://www.pukmedia.com/AR/Details/190144)
+
+
+### ryad mezzour (N/A, Fri, 14 Aug 2026 03:10:00 -0700)
+
+- **Le fils d’un ministre poursuivi pour «outrage à un agent de police»**: [Link](https://fr.le360.ma/societe/le-fils-dun-ministre-poursuivi-pour-outrage-a-un-agent-de-police_5BZ52HPLBFGI7CRMHWK4ZBSLJQ/)
+- **Tétouan : le fils mineur de Ryad Mezzour présenté devant le parquet pour outrage, rébellion et outrage à un corps constitué**: [Link](https://barlamane.com/fr/tetouan-le-fils-mineur-de-ryad-mezzour-presente-devant-le-parquet-pour-outrage-rebellion-et-outrage-a-un-corps-constitue/)
+- **Tétouan : une enquête ouverte contre le fils d'un ministre pour outrage présumé à la police**: [Link](https://www.telegraphe.ma/fr/tetouan-une-enquete-ouverte-contre-le-fils-dun-ministre-pour-outrage-presume-a-la-police)
+
+
 ### اليوم (N/A, Fri, 14 Aug 2026 03:00:00 -0700)
 
 - **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-86-1791765.html)
