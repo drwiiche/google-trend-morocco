@@ -1,3 +1,10 @@
+### دفاع جوي (N/A, Fri, 14 Aug 2026 14:50:00 -0700)
+
+- **كلفتها 50 مليون دولار.. مسيّرات "ريبر" الأمريكية التي التهمتها حرب إيران**: [Link](https://www.aljazeera.net/news/2026/8/14/%D9%83%D9%84%D9%81%D8%AA%D9%87%D8%A7-50-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%85%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A8%D8%B1)
+- **إيران تعلن إسقاط مسيرة أمريكية قرب مضيق هرمز**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%A5%D8%B3%D9%82%D8%A7%D8%B7-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%82%D8%B1%D8%A8-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2/4027458)
+- **إيران تعلن إسقاط مسيرة أميركية في هرمزغان**: [Link](https://www.alarabiya.net/iran/2026/08/14/%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D8%B3%D9%82%D8%A7%D8%B7-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D8%AC%D9%88%D8%A7%D8%A1-%D9%87%D8%B1%D9%85%D8%B2%D8%BA%D8%A7%D9%86)
+
+
 ### apple (N/A, Fri, 14 Aug 2026 14:30:00 -0700)
 
 - **If Apple sends you a push notification alerting you to a spyware attack, take it seriously**: [Link](https://techcrunch.com/2026/08/13/if-apple-sends-you-a-push-notification-alerting-you-to-a-spyware-attack-take-it-seriously/)
