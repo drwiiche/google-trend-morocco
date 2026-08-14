@@ -1,3 +1,17 @@
+### apple (N/A, Fri, 14 Aug 2026 14:30:00 -0700)
+
+- **If Apple sends you a push notification alerting you to a spyware attack, take it seriously**: [Link](https://techcrunch.com/2026/08/13/if-apple-sends-you-a-push-notification-alerting-you-to-a-spyware-attack-take-it-seriously/)
+- **Receive an Apple push alert about spyware? It's genuine**: [Link](https://www.usatoday.com/story/tech/2026/08/14/apple-threat-notifications-spyware-serious/91305090007/)
+- **Here's how to check if that Apple Threat Notification on your iPhone is real**: [Link](https://tech.yahoo.com/cybersecurity/article/heres-how-to-check-if-that-apple-threat-notification-on-your-iphone-is-real-150818890.html)
+
+
+### airbus a320 (N/A, Fri, 14 Aug 2026 13:30:00 -0700)
+
+- **Airbus Finds Hydraulic System Issues in Air India's A320 Aircraft Incident**: [Link](https://www.marketscreener.com/news/airbus-finds-hydraulic-system-issues-in-air-india-s-a320-aircraft-incident-ce7859dfd98bf723)
+- **Dope test mandatory for Air India pilots after captain tests positive for marijuana**: [Link](https://themalaysianreserve.com/2026/08/14/dope-test-mandatory-for-air-india-pilots-after-captain-tests-positive-for-marijuana/)
+- **Air India mandates substance screening for pilots after Phuket-Delhi flight incident**: [Link](https://qazinform.com/news/air-india-mandates-substance-screening-for-pilots-after-phuket-delhi-flight-incident-61582d)
+
+
 ### النادي الأهلي (N/A, Fri, 14 Aug 2026 14:10:00 -0700)
 
 - **أقطاى عبد الله: شرف كبير ارتداء قميص الأهلى.. وهدفنا حصد كل البطولات**: [Link](https://www.youm7.com/story/2026/8/14/%D8%A3%D9%82%D8%B7%D8%A7%D9%89-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%B4%D8%B1%D9%81-%D9%83%D8%A8%D9%8A%D8%B1-%D8%A7%D8%B1%D8%AA%D8%AF%D8%A7%D8%A1-%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%89-%D9%88%D9%87%D8%AF%D9%81%D9%86%D8%A7-%D8%AD%D8%B5%D8%AF/7513646)
