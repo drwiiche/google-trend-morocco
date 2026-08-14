@@ -1,3 +1,10 @@
+### مانشستر يونايتد (N/A, Fri, 14 Aug 2026 07:10:00 -0700)
+
+- **"الصفقة الغامضة" تفاجئ مانشستر يونايتد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D8%AA%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/blt045581266f06b1dc)
+- **ساعد الثنائي تيليمانس وسانتوس المدرب مايكل كاريك في إعادة بناء خط وسط مانشستر يونايتد.**: [Link](https://www.vietnam.vn/ar/bo-doi-tielemans-va-santos-giup-hlv-michael-carrick-tai-thiet-tuyen-giua-manchester-united)
+- **كاريك يطالب ادارة اليونايتد بالمزيد من الصفقات**: [Link](https://elsport.com/news/show/835635/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF-%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A7%D8%AA)
+
+
 ### islam makhachev (N/A, Fri, 14 Aug 2026 07:20:00 -0700)
 
 - **UFC 330: Islam Makhachev says he 'does not have much time' left in UFC**: [Link](https://www.bbc.co.uk/sport/mixed-martial-arts/articles/c3r020wn70vo)
