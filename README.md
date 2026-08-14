@@ -1,3 +1,17 @@
+### latest iphone rumors (N/A, Fri, 14 Aug 2026 00:40:00 -0700)
+
+- **iPhone 18 could get two new Pro-level upgrades, per report**: [Link](https://9to5mac.com/2026/08/12/iphone-18-could-get-two-new-pro-level-upgrades-per-report/)
+- **What's Coming in September: New iPhones, Apple Watches and More**: [Link](https://www.macrumors.com/2026/08/13/apple-september-announcement-rumors/)
+- **Apple delays standard iPhone 18 to 2027 amid severe component shortages**: [Link](https://uz.kursiv.media/en/2026-08-13/apple-delays-standard-iphone-18-to-2027-amid-severe-component-shortages/)
+
+
+### أيوب بوعدي (N/A, Thu, 13 Aug 2026 23:20:00 -0700)
+
+- **أيوب بوعدي أغلى صفقة في تاريخ الكرة المغربية والعربية**: [Link](https://www.alakhbar.press.ma/%D8%A3%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%A3%D8%BA%D9%84%D9%89-%D8%B5%D9%81%D9%82%D8%A9-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%85-297263.html)
+- **هل يستجيب النجم المغربي؟ ..جماهير ليل تحاصر أيوب بوعدي برسائل مؤثرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D8%AC%D9%8A%D8%A8-%D8%A7%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%84%D9%8A%D9%84-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1-%D8%A7%D9%94%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%A8%D8%B1%D8%B3%D8%A7%D9%8A%D9%94%D9%84-%D9%85%D9%88%D9%94%D8%AB%D8%B1%D8%A9/blt13cbf5d24b480ce2)
+- **مانشستر سيتي يواصل تحركاته لضم أيوب بوعدي رغم التعاقد مع أندرسون**: [Link](https://radiomars.ma/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AA%D8%AD%D8%B1%D9%83%D8%A7%D8%AA%D9%87-%D9%84%D8%B6%D9%85-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A8%D9%88/)
+
+
 ### vladimir poutine (N/A, Thu, 13 Aug 2026 21:00:00 -0700)
 
 - **Poutine en visite pour la première fois aux îles Kouriles, disputées avec le Japon**: [Link](https://medias24.com/agence-presse/poutine-en-visite-pour-la-premiere-fois-aux-iles-kouriles-disputees-avec-le-japon/)
