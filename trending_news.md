@@ -1,3 +1,24 @@
+### islam makhachev (N/A, Fri, 14 Aug 2026 07:20:00 -0700)
+
+- **UFC 330: Islam Makhachev says he 'does not have much time' left in UFC**: [Link](https://www.bbc.co.uk/sport/mixed-martial-arts/articles/c3r020wn70vo)
+- **Official Weigh-In Results | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/official-weigh-results-ufc-330-makhachev-vs-machado-garry)
+- **Conor McGregor Shares Prediction for UFC 330 Main Event**: [Link](https://heavy.com/sports/ufc/conor-mcgregor-prediction-ufc-330-headliner/)
+
+
+### كسوف (N/A, Fri, 14 Aug 2026 07:00:00 -0700)
+
+- **الكسوف يثير فضول البيضاويين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%B3%D9%88%D9%81-%D9%8A%D8%AB%D9%8A%D8%B1-%D9%81%D8%B6%D9%88%D9%84-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D9%88%D9%8A%D9%8A%D9%86-1791335.html)
+- **كسوف كلي للشمس يدهش الملايين.. هذا ما حدث خلال أبرز حدث فلكي هذا العام**: [Link](https://arabic.cnn.com/science-and-health/article/2026/08/13/total-solar-eclipse-in-august)
+- **لن يتكرر قبل 55 عاما.. كسوف نادر يحجب الشمس عن أوروبا وجزئيا عن المغرب**: [Link](https://www.aljazeera.net/misc/2026/8/12/%D9%84%D9%86-%D9%8A%D8%AA%D9%83%D8%B1%D8%B1-%D9%82%D8%A8%D9%84-55-%D8%B9%D8%A7%D9%85%D8%A7-%D9%83%D8%B3%D9%88%D9%81-%D9%86%D8%A7%D8%AF%D8%B1-%D9%8A%D8%AD%D8%AC%D8%A8-%D8%A7%D9%84%D8%B4%D9%85%D8%B3)
+
+
+### jeux (N/A, Fri, 14 Aug 2026 06:00:00 -0700)
+
+- **Catalogue des jeux PlayStation Plus pour août : Helldivers 2, Kingdom Come Deliverance 2, Vampire Survivors, Hell is Us et plus encore**: [Link](https://blog.fr.playstation.com/2026/08/12/catalogue-des-jeux-playstation-plus-pour-aout-helldivers-2-kingdom-come-deliverance-2-vampire-survivors-hell-is-us-et-plus-encore/)
+- **PS Plus : de nouveaux contenus gratuits à récupérer dès maintenant pour des jeux adorés**: [Link](https://www.gameblog.fr/jeu-video/ed/news/ps-plus-contenus-gratuits-marvel-rivals-720926)
+- **La mise à jour Devoid of Liberty de Helldivers 2 déploie la faction du Vide**: [Link](https://www.goclecd.fr/helldivers-2-mise-a-jour-devoid-liberty-faction-vide-news-r/)
+
+
 ### خطبة الجمعة (N/A, Fri, 14 Aug 2026 06:10:00 -0700)
 
 - **«الإحسان إلى المحتاجين» موضوع خطبة الجمعة اليوم (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/4337431)
