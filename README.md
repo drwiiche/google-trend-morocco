@@ -1,3 +1,10 @@
+### المولد النبوي (N/A, Thu, 13 Aug 2026 15:40:00 -0700)
+
+- **رسميا وزارة الأوقاف تعلن عيد المولد النبوي بالمغرب يوم الثلاثاء 25 غشت**: [Link](https://anwarpress.com/726959/)
+- **رسميًا.. موعد إجازة المولد النبوي 2026 بعد قرار مجلس الوزراء**: [Link](https://www.almasryalyoum.com/news/details/4337277)
+- **إيطاليا: انفجار في مصنع للذخيرة قرب روما**: [Link](https://menafn.com/arabic/1111540432/%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D8%B5%D9%86%D8%B9-%D9%84%D9%84%D8%B0%D8%AE%D9%8A%D8%B1%D8%A9-%D9%82%D8%B1%D8%A8-%D8%B1%D9%88%D9%85%D8%A7)
+
+
 ### neymar (N/A, Thu, 13 Aug 2026 17:30:00 -0700)
 
 - **Santos vuelve a escena en la Sudamericana, entre dudas sobre el futuro de Neymar**: [Link](https://www.vssports.com.py/versus/2026/08/12/santos-vuelve-a-escena-en-la-sudamericana-entre-dudas-sobre-el-futuro-de-neymar)
