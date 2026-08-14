@@ -1,3 +1,10 @@
+### اليوم (N/A, Fri, 14 Aug 2026 03:00:00 -0700)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-86-1791765.html)
+- **تحذير من أمطار عاصفية تصل المغرب بدءا من ليلة الثلاثاء**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%A8%D9%8E%D8%B1%D9%8E%D8%AF-%D9%88%D9%85%D9%88%D8%AC%D8%A9/)
+- **🔥ابتداء من اليوم.. الأرصاد تتوقع وتدعو للحذر من موجة عدم استقرار جوي في المغرب**: [Link](https://tanja7.com/190535/)
+
+
 ### byd seal 06 (N/A, Fri, 14 Aug 2026 03:20:00 -0700)
 
 - **BYD’s new electric sedan is the size of a Tesla Model 3, but half the price**: [Link](https://electrek.co/2026/08/12/byds-new-ev-sedan-size-of-tesla-model-3-half-the-price/)
