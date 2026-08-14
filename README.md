@@ -1,3 +1,10 @@
+### مجتبى خامنئي (N/A, Fri, 14 Aug 2026 11:50:00 -0700)
+
+- **تحليل: مجتبى خامنئي يخطط لحرب طويلة ولينكولن تدفع ثمن الاستنزاف**: [Link](https://www.aljazeera.net/politics/2026/8/14/%D9%85%D8%AC%D8%AA%D8%A8%D9%89-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D8%AD%D8%B1%D8%A8-%D8%B7%D9%88%D9%8A%D9%84%D8%A9-%D9%88%D9%84%D9%8A%D9%86%D9%83%D9%88%D9%84%D9%86)
+- **طهران تعيد رجل دين قمع احتجاجات 2009 لقيادة قوات البسيج**: [Link](https://arabic.euronews.com/2026/08/14/the-return-of-hossein-taeb-is-mojtaba-khamenei-preparing-for-possible-protests)
+- **خامنئي يعيد بناء ترسانة إيران: قيادة أكثر تشدداً واستعدادا لحرب طويلة**: [Link](https://arabi21.com/story/1781826/%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A8%D9%86%D8%A7%D8%A1-%D8%AA%D8%B1%D8%B3%D8%A7%D9%86%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A3%D9%83%D8%AB%D8%B1-%D8%AA%D8%B4%D8%AF%D8%AF%D8%A7-%D9%88%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D8%AD%D8%B1%D8%A8-%D8%B7%D9%88%D9%8A%D9%84%D8%A9)
+
+
 ### خوليان ألفاريز (N/A, Fri, 14 Aug 2026 12:20:00 -0700)
 
 - **الخديعة التي قلبت موقف ألفاريز.. أتلتيكو مدريد في قلب أزمة "العنكبوت"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AE%D8%AF%D9%8A%D8%B9%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D9%82%D9%84%D8%A8%D8%AA-%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2--%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%86%D9%83%D8%A8%D9%88%D8%AA/bltd629ec2bbade8439)
