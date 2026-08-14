@@ -1,3 +1,17 @@
+### marseille – atlético madrid (N/A, Fri, 14 Aug 2026 10:10:00 -0700)
+
+- **Marseille vs Atletico Madrid: Lookman in focus - Preview, team news, tips and H2H**: [Link](https://www.afrik-foot.com/en-ng/marseille-atletico-madrid-lookman-preview)
+- **Olympique de Marseille vs Atletico Madrid Live Streaming: When And Where to Watch OM vs ATM Pre-Season Friendly Live in USA, UK, France, Spain And More**: [Link](https://sundayguardianlive.com/sports/olympique-de-marseille-vs-atletico-madrid-live-streaming-when-and-where-to-watch-om-vs-atm-pre-season-friendly-live-in-usa-uk-france-spain-and-more-football-match-live-261236/)
+- **Marseille vs Atlético match lineup | Club Friendlies · 14 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5973858/Olympique-Marseille-vs-Atl%C3%A9tico-de-Madrid)
+
+
+### بسكويت (N/A, Fri, 14 Aug 2026 04:30:00 -0700)
+
+- **صدمة في مصر.. مصنع كبير يلون البسكويت بالفحم الأسود**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/14/%D8%B5%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%85%D8%B5%D9%86%D8%BA-%D9%83%D8%A8%D9%8A%D8%B1-%D9%8A%D9%84%D9%88%D9%86-%D8%A7%D9%84%D8%A8%D8%B3%D9%83%D9%88%D9%8A%D8%AA-%D8%A8%D8%A7%D9%84%D9%81%D8%AD%D9%85-%D8%A7%D9%84%D8%A7%D8%B3%D9%88%D8%AF)
+- **مصر.. ضبط مصنع يستخدم الفحم الأسود بديلاً عن الكاكاو في إنتاج البسكويت**: [Link](https://ar.hibapress.com/details-749357.html)
+- **بسكويت بالفحم في مصر**: [Link](https://al-ain.com/video/charcoal-powder-instead-cocoa-revealed-egypt)
+
+
 ### carburant (N/A, Fri, 14 Aug 2026 09:20:00 -0700)
 
 - **Après le carburant, une nouvelle facture augmente pour les automobilistes au Maroc**: [Link](https://www.bladi.net/carburant-nouvelle-facture-augmente-automobilistes-maroc,123114.html)
