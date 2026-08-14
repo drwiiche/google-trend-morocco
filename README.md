@@ -1,3 +1,10 @@
+### vladimir poutine (N/A, Thu, 13 Aug 2026 21:00:00 -0700)
+
+- **Poutine en visite pour la première fois aux îles Kouriles, disputées avec le Japon**: [Link](https://medias24.com/agence-presse/poutine-en-visite-pour-la-premiere-fois-aux-iles-kouriles-disputees-avec-le-japon/)
+- **Sanae Takaichi, la première ministre japonaise, réagit avec virulence à la visite de Vladimir Poutine aux îles Kouriles, la jugeant « inacceptable »**: [Link](https://www.lemonde.fr/international/article/2026/08/13/vladimir-poutine-en-visite-dans-les-iles-kouriles-disputees-avec-le-japon_6745579_3210.html)
+- **Vidéo. Poutine assiste à des manœuvres de la marine russe au large de Sakhaline**: [Link](https://fr.euronews.com/video/2026/08/13/poutine-assiste-a-des-manoeuvres-de-la-marine-russe-au-large-de-sakhaline)
+
+
 ### وزارة الأوقاف والشؤون الإسلامية (N/A, Thu, 13 Aug 2026 13:10:00 -0700)
 
 - **بيان ثبوت رؤية هلال شهر ربيع الأول لعام 1448هـ**: [Link](https://www.omandaily.om/article/1208560)
