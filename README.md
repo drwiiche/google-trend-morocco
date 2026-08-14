@@ -1,3 +1,17 @@
+### byd seal 06 (N/A, Fri, 14 Aug 2026 03:20:00 -0700)
+
+- **BYD’s new electric sedan is the size of a Tesla Model 3, but half the price**: [Link](https://electrek.co/2026/08/12/byds-new-ev-sedan-size-of-tesla-model-3-half-the-price/)
+- **BYD launches 2027 Seal 06 with 630 km range, second-gen Blade Battery**: [Link](https://cnevpost.com/2026/08/11/byd-launches-2027-seal-06/)
+- **BYD just dropped a $16,000 car into an EV price war America can’t compete with**: [Link](https://www.digitaltrends.com/cars/byd-just-dropped-a-16000-car-into-an-ev-price-war-america-cant-compete-with/)
+
+
+### père (N/A, Thu, 13 Aug 2026 15:00:00 -0700)
+
+- **Un père de famille américain meurt en tentant de sauver ses deux fils pris dans un courant**: [Link](https://www.ouest-france.fr/societe/faits-divers/un-pere-de-famille-americain-meurt-en-tentant-de-sauver-ses-deux-fils-pris-dans-un-courant-03359d3c-9650-11f1-8bf7-39f7788220e2)
+- **Le père harcèle sa fille en l'appelant continuellement, en lui envoyant une souris morte et une poupée d'enfance affublée d'un sextoy**: [Link](https://www.lavenir.net/regions/liege/liege/2026/08/14/le-pere-harcele-sa-fille-en-lappelant-continuellement-en-lui-envoyant-une-souris-morte-et-une-poupee-denfance-affublee-dun-sextoy-WIWWCMXREZDS7F3QXFCQHIGHUQ/)
+- **Il vivait avec le cadavre de son père de 93 ans pour pouvoir toucher sa retraite : l'homme est arrêté huit mois après sur dénonciation de sa nièce**: [Link](https://www.ladepeche.fr/2026/08/14/il-vivait-avec-le-cadavre-de-son-pere-de-93-ans-pour-pouvoir-toucher-sa-retraite-lhomme-est-arrete-huit-mois-apres-sur-denonciation-de-sa-niece-13508703.php)
+
+
 ### silvia monti décédée (N/A, Fri, 14 Aug 2026 02:40:00 -0700)
 
 - **Décès de l’actrice Silvia Monti, vue dans « Le Cerveau » avec Jean-Paul Belmondo et Bourvil**: [Link](https://soirmag.lesoir.be/764797/article/2026-08-13/deces-de-lactrice-silvia-monti-vue-dans-le-cerveau-avec-jean-paul-belmondo-et)
