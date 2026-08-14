@@ -1,3 +1,17 @@
+### نفط (N/A, Fri, 14 Aug 2026 10:50:00 -0700)
+
+- **إيران: تلوث نفطي على مساحة 3.2 هكتار في محيط هرمز بسبب الحرب**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%84%D9%88%D8%AB-%D9%86%D9%81%D8%B7%D9%8A-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%A7%D8%AD%D8%A9-32-%D9%87%D9%83%D8%AA%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D8%AD%D9%8A%D8%B7-%D9%87%D8%B1%D9%85%D8%B2-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8/4027643)
+- **تحذير من كارثة بيئية في الخليج عقب تسرب نفطي قبالة عُمان**: [Link](https://arabi21.com/story/1781853/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%A8%D9%8A%D8%A6%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%B9%D9%82%D8%A8-%D8%AA%D8%B3%D8%B1%D8%A8-%D9%86%D9%81%D8%B7%D9%8A-%D9%82%D8%A8%D8%A7%D9%84%D8%A9-%D8%B9%D9%85%D8%A7%D9%86)
+- **استهداف ناقلات النفط في حرب إيران.. هل تهدد التسريبات مياه الشرب في الخليج؟ | التلفزيون العربي**: [Link](https://www.alaraby.com/news/%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%86%D8%A7%D9%82%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%81%D9%8A-%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%87%D9%84-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D9%85%D9%8A%D8%A7%D9%87-%D8%A7%D9%84%D8%B4%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC)
+
+
+### سيارة أجرة (N/A, Fri, 14 Aug 2026 08:30:00 -0700)
+
+- **طوابير "سيارات الأجرة الكبيرة" تخنق الرباط وتنعش النقل السري بالصيف**: [Link](https://www.hespress.com/%D8%B7%D9%88%D8%A7%D8%A8%D9%8A%D8%B1-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AC%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1%D8%A9-%D8%AA%D8%AE%D9%86%D9%82-%D8%A7%D9%84-1791698.html)
+- **تتعاون الشرطة مع الرجل الذي اعتدى على سائق سيارة الأجرة.**: [Link](https://www.vietnam.vn/ar/cong-an-lam-viec-voi-nguoi-dan-ong-danh-tai-xe-xe-cong-nghe)
+- **أوبر وبوني أي الصينية تطلقان أكثر من 2000 سيارة أجرة ذاتية القيادة في أوروبا**: [Link](https://arabic.euronews.com/business/2026/08/14/uber-and-chinas-pony-ai-to-launch-more-than-2000-robotaxis-across-europe)
+
+
 ### marseille – atlético madrid (N/A, Fri, 14 Aug 2026 10:10:00 -0700)
 
 - **Marseille vs Atletico Madrid: Lookman in focus - Preview, team news, tips and H2H**: [Link](https://www.afrik-foot.com/en-ng/marseille-atletico-madrid-lookman-preview)
