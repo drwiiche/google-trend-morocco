@@ -1,3 +1,66 @@
+### خوليان ألفاريز (N/A, Fri, 14 Aug 2026 12:20:00 -0700)
+
+- **الخديعة التي قلبت موقف ألفاريز.. أتلتيكو مدريد في قلب أزمة "العنكبوت"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AE%D8%AF%D9%8A%D8%B9%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D9%82%D9%84%D8%A8%D8%AA-%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2--%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%86%D9%83%D8%A8%D9%88%D8%AA/bltd629ec2bbade8439)
+- **خوليان ألفاريز يعتذر إلى أتلتيكو مدريد .. وبرشلونة يحدد البديل**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AE%D9%88%D9%84%D9%8A%D8%A7%D9%86-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D8%AF%D8%AF-%D8%A7%D9%84%D8%A8%D8%AF%D9%8A%D9%84/bltd6ad290898120817)
+- **ألفاريز يقرّ بخطئه ويغلق باب الصدام مع أتلتيكو مدريد**: [Link](https://addiyar.com/article/2386704-%D8%A3%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D9%82%D8%B1-%D8%A8%D8%AE%D8%B7%D8%A6%D9%87-%D9%88%D9%8A%D8%BA%D9%84%D9%82-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D9%85-%D9%85%D8%B9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+
+
+### coventry city – monaco (N/A, Fri, 14 Aug 2026 12:00:00 -0700)
+
+- **Your Matchday Guide for Monaco**: [Link](https://www.ccfc.co.uk/news/2026/august/13/your-matchday-guide-for-monaco/)
+- **Coventry City vs AS Monaco live team news and updates ahead of Gus Hamer homecoming**: [Link](https://www.coventrytelegraph.net/sport/football/football-news/coventry-city-vs-monaco-live-34462698)
+- **Coventry City vs Monaco Live Streaming: When And Where to Watch Pre-Season Friendly in US, UK, Monaco, And More**: [Link](https://sundayguardianlive.com/sports/coventry-city-vs-monaco-live-streaming-when-and-where-to-watch-pre-season-friendly-in-usa-uk-monaco-and-more-261327/)
+
+
+### عاصفة رعدية (N/A, Fri, 14 Aug 2026 12:00:00 -0700)
+
+- **حرارة قياسية مع زخات رعدية بالمملكة**: [Link](https://www.hespress.com/%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D9%85%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-1791888.html)
+- **تحذير من أمطار عاصفية تصل المغرب بدءا من ليلة الثلاثاء**: [Link](https://ar.telquel.ma/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-48-%D8%AF%D8%B1/)
+- **استمرار ارتفاع الحرارة.. طقس اليوم الجمعة**: [Link](https://www.ahdath.info/%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85/)
+
+
+### الهلال ضد الفيصلي (N/A, Fri, 14 Aug 2026 12:00:00 -0700)
+
+- **أول ظهور رسمي.. سامرفيل يجاور بنزيما في افتتاحية الهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D9%84-%D8%B8%D9%87%D9%88%D8%B1-%D8%B1%D8%B3%D9%85%D9%8A--%D8%B3%D8%A7%D9%85%D8%B1%D9%81%D9%8A%D9%84-%D9%8A%D8%AC%D8%A7%D9%88%D8%B1-%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt02b9fa608ab9d871)
+- **الهلال يعلن طرح تذاكر مباراته أمام الفيصلي في روشن**: [Link](https://sa.hihi2.com/2026/08/13/p248575.html)
+- **عين على الحكم | إحداهما شبيهة بلعبة الأهلي الجدلية ولكن!.. خيل مانزانو يحتسب "ركلتي جزاء" للهلال ضد الفيصلي**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AE%D9%8A%D9%84-%D9%85%D8%A7%D9%86%D8%B2%D8%A7%D9%86%D9%88-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A/blt20974ce584446c22)
+
+
+### كريستيانو رونالدو (N/A, Fri, 14 Aug 2026 12:00:00 -0700)
+
+- **عقد زواج رونالدو بجورجينا كشف سراً.. وأمه وشقيقته لم تحضرا**: [Link](https://www.alarabiya.net/last-page/2026/08/14/%D8%B9%D9%82%D8%AF-%D8%B2%D9%88%D8%A7%D8%AC-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A8%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D9%83%D8%B4%D9%81-%D8%B3%D8%B1%D8%A7-%D9%88%D8%A7%D9%85%D9%87-%D9%88%D8%B4%D9%82%D9%8A%D9%82%D8%AA%D9%87-%D9%84%D9%85-%D8%AA%D8%AD%D8%B6%D8%B1%D8%A7)
+- **كريستيانو رونالدو يتزوج شريكته جورجينا رودريغيز في "زفاف العام"**: [Link](https://www.bbc.com/arabic/articles/cn9npxed089o)
+- **اتفاق سري بين رونالدو وجورجينا.. هذا ما ستحصل عليه حال طلاقهما**: [Link](https://www.aljazeera.net/sport/2026/8/14/%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D9%86%D8%A7-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A%D8%BA%D9%8A%D8%B2)
+
+
+### ufc 330 (N/A, Fri, 14 Aug 2026 11:50:00 -0700)
+
+- **UFC 330: Islam Makhachev says he 'does not have much time' left in UFC**: [Link](https://www.bbc.co.uk/sport/mixed-martial-arts/articles/c3r020wn70vo)
+- **Conor McGregor predicts new UFC champion at UFC 330**: [Link](https://sports.yahoo.com/articles/conor-mcgregor-predicts-ufc-champion-160000388.html)
+- **UFC 330 Co Main Event Stars Shredded At Weigh Ins**: [Link](https://mmasucka.com/news/ufc-330-co-main-event-stars-shredded-at-weigh-ins/)
+
+
+### إلهام شاهين (N/A, Fri, 14 Aug 2026 11:40:00 -0700)
+
+- **"ضربها على المسرح".. لقطة عفوية بين أحمد سعد وابنته في حفل الساحل الشمالي**: [Link](https://www.masrawy.com/arts/zoom/details/2026/8/14/3032887/-%D8%B6%D8%B1%D8%A8%D9%87%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%B1%D8%AD-%D9%84%D9%82%D8%B7%D8%A9-%D8%B9%D9%81%D9%88%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A3%D8%AD%D9%85%D8%AF-%D8%B3%D8%B9%D8%AF-%D9%88%D8%A7%D8%A8%D9%86%D8%AA%D9%87-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A)
+- **أحمد سعد يكشف سر ابنته جودي: حاولت أبعدها عن الغناء**: [Link](https://akhbarelyom.com/news/newdetails/4864598/1/%D8%A3%D8%AD%D9%85%D8%AF-%D8%B3%D8%B9%D8%AF-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%A7%D8%A8%D9%86%D8%AA%D9%87-%D8%AC%D9%88%D8%AF%D9%8A-%D8%AD%D8%A7%D9%88%D9%84%D8%AA-%D8%A3%D8%A8%D8%B9%D8%AF%D9%87%D8%A7)
+- **أبرزهم عمرو سعد ودنيا سمير غانم وإيمي وحسن الرداد.. نجوم الفن في حفل أحمد سعد بـ«يلا ساحل»**: [Link](https://www.almasryalyoum.com/news/details/4337294)
+
+
+### نادي الرجاء الرياضي (N/A, Fri, 14 Aug 2026 11:30:00 -0700)
+
+- **غضب جماهيري بسبب صفقة الرجاء.. وخطوة غير متوقعة لمحمد زريدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D8%B6%D8%A8-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1--%D9%88%D8%AE%D8%B7%D9%88%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%85%D8%AD%D9%85%D8%AF-%D8%B2%D8%B1%D9%8A%D8%AF%D8%A9/bltd84ba378faf47357)
+- **برازيلي يعزز صفوف الرجاء الرياضي**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-1791745.html)
+- **الرجاء يترقب نتائج فحوصات نبيل عليوي قبل حسم الصفقة**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%81%D8%AD%D9%88%D8%B5%D8%A7%D8%AA-%D9%86%D8%A8%D9%8A%D9%84-%D8%B9%D9%84%D9%8A%D9%88%D9%8A-%D9%82/)
+
+
+### دبابة (N/A, Fri, 14 Aug 2026 10:50:00 -0700)
+
+- **صهيب لُباد.. فتى غزة ابن الـ16 عاما الذي واجه دبابة إسرائيلية**: [Link](https://www.aljazeera.net/news/2026/8/14/%D8%B5%D9%87%D9%8A%D8%A8-%D9%84%D8%A8%D8%A7%D8%AF-%D9%81%D8%AA%D9%89-%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%A7%D8%A8%D9%86-%D8%A7%D9%84%D9%8016-%D8%B9%D8%A7%D9%85%D8%A7)
+- **قصة صهيب لباد الشاب الذي واجه الدبابات الاسرائيلية في غزة**: [Link](https://twaslnews1.twaslnews.com/4082865/)
+- **تقرير: المغرب في قلب برنامج تحديث دبابات M1 Abrams الأمريكية**: [Link](https://machahid24.com/politique/510103.html)
+
+
 ### نفط (N/A, Fri, 14 Aug 2026 10:50:00 -0700)
 
 - **إيران: تلوث نفطي على مساحة 3.2 هكتار في محيط هرمز بسبب الحرب**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%84%D9%88%D8%AB-%D9%86%D9%81%D8%B7%D9%8A-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%A7%D8%AD%D8%A9-32-%D9%87%D9%83%D8%AA%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D8%AD%D9%8A%D8%B7-%D9%87%D8%B1%D9%85%D8%B2-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%AD%D8%B1%D8%A8/4027643)
