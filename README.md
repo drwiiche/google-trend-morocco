@@ -1,3 +1,10 @@
+### bouznika (N/A, Fri, 14 Aug 2026 13:40:00 -0700)
+
+- **Plage de Bouznika: 300 villas et cabanons sommés d’évacuer avant le 15 septembre**: [Link](https://fr.le360.ma/societe/plage-de-bouznika-300-villas-et-cabanons-sommes-devacuer-avant-le-15-septembre_4ZWCL6AQZBDT3J5GX3RF5J7Z74/)
+- **Démolition à Bouznika Plage : les mises en demeure sont tombées, les résidents s'organisent**: [Link](https://ledesk.ma/2026/08/11/demolition-a-bouznika-plage-les-mises-en-demeure-sont-tombees-les-residents-sorganisent/)
+- **Bouznika, une petite ville paisible dans le viseur de la prédation immobilière**: [Link](https://www.challenge.ma/bouznika-une-petite-ville-paisible-dans-le-viseur-de-la-predation-immobiliere-323382/)
+
+
 ### galatasaray (N/A, Fri, 14 Aug 2026 13:20:00 -0700)
 
 - **Kulübede yedek forveti olmayan Okan Buruk Çorum'u yenmek için ne yapacak?**: [Link](https://www.fotospor.com.tr/galatasaray/kulubede-yedek-forveti-olmayan-okan-buruk-corumu-yenmek-icin-ne-yapacak-710740)
