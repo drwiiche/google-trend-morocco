@@ -1,3 +1,10 @@
+### ربيع الأول (N/A, Fri, 14 Aug 2026 01:20:00 -0700)
+
+- **بيان ثبوت رؤية هلال شهر ربيع الأول لعام 1448هـ**: [Link](https://www.omandaily.om/article/1208560)
+- **ذكرى المولد النبوي 25 غشت بالمغرب**: [Link](https://www.hespress.com/%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D9%88%D9%8A-25-%D8%BA%D8%B4%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1791789.html)
+- **وزارة الأوقاف تعلن يوم الثلاثاء 25 غشت عيدا للمولد النبوي**: [Link](https://www.ahdath.info/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D8%AA%D8%B9%D9%84%D9%86-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-25-%D8%BA%D8%B4%D8%AA-%D8%B9/)
+
+
 ### latest iphone rumors (N/A, Fri, 14 Aug 2026 00:40:00 -0700)
 
 - **iPhone 18 could get two new Pro-level upgrades, per report**: [Link](https://9to5mac.com/2026/08/12/iphone-18-could-get-two-new-pro-level-upgrades-per-report/)
