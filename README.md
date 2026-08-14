@@ -1,3 +1,29 @@
+### galatasaray (N/A, Fri, 14 Aug 2026 13:20:00 -0700)
+
+- **Kulübede yedek forveti olmayan Okan Buruk Çorum'u yenmek için ne yapacak?**: [Link](https://www.fotospor.com.tr/galatasaray/kulubede-yedek-forveti-olmayan-okan-buruk-corumu-yenmek-icin-ne-yapacak-710740)
+- **Galatasaray, Süper Lig'e Çorum FK ile Başladı**: [Link](https://www.sondakika.com/spor/haber-galatasaray-super-lig-e-corum-fk-ile-basladi-20146297/)
+- **Haftanın golüne ilk aday Rams Park'ta geldi!**: [Link](https://beinsports.com.tr/haber/haftanin-golune-ilk-aday-rams-parkta-geldi)
+
+
+### arrestation (N/A, Fri, 14 Aug 2026 12:10:00 -0700)
+
+
+
+
+### coupe d'afrique des nations féminine de football (N/A, Fri, 14 Aug 2026 12:10:00 -0700)
+
+- **CAN féminine Maroc-2026 (demi-finale): Défaite du Maroc face au Cameroun (1-3 t.a.b)**: [Link](https://frmf.ma/fr/articles/article-8)
+- **CAN féminine : “Nous avons manqué d’efficacité”, affirme Jorge Vilda**: [Link](https://mobile.telquel.ma/instant-t/2026/08/13/can-feminine-nous-avons-manque-defficacite-affirme-jorge-vilda_2003247/)
+- **CAN féminine : malgré l’élimination, les Lionnes de l’Atlas confirment leur montée en puissance**: [Link](https://fr.hespress.com/485100-can-feminine-malgre-lelimination-les-lionnes-de-latlas-confirment-leur-montee-en-puissance.html)
+
+
+### لويس سواريز (N/A, Fri, 14 Aug 2026 12:10:00 -0700)
+
+- **لويس سواريز.. خيار مفاجئ على طاولة برشلونة لتعويض صفقة ألفاريز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D9%8A%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%B9%D9%84%D9%89-%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2/bltb5bde004725515d3)
+- **برشلونة يستقر على نجم جورجيا بدلاً من ألفاريز**: [Link](https://www.alarabiya.net/sport/2026/08/13/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D8%B9%D9%84%D9%89-%D9%86%D8%AC%D9%85-%D8%AC%D9%88%D8%B1%D8%AC%D9%8A%D8%A7-%D8%A8%D8%AF%D9%84%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2)
+- **احضروا ألفاريز أو "التعويذة البرتغالية" .. فليك يتجاهل مقالب الماضي ويحاول تحضير "لويس سواريز" في المطبخ!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%88%D9%8A%D8%B3-%D8%B3%D9%88%D8%A7%D8%B1%D9%8A%D8%B2-%D9%87%D8%A7%D9%86%D8%B2%D9%8A-%D9%81%D9%84%D9%8A%D9%83-%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2/bltd1ca880617ac1336)
+
+
 ### مجتبى خامنئي (N/A, Fri, 14 Aug 2026 11:50:00 -0700)
 
 - **تحليل: مجتبى خامنئي يخطط لحرب طويلة ولينكولن تدفع ثمن الاستنزاف**: [Link](https://www.aljazeera.net/politics/2026/8/14/%D9%85%D8%AC%D8%AA%D8%A8%D9%89-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D8%AD%D8%B1%D8%A8-%D8%B7%D9%88%D9%8A%D9%84%D8%A9-%D9%88%D9%84%D9%8A%D9%86%D9%83%D9%88%D9%84%D9%86)
