@@ -1,3 +1,10 @@
+### neymar (N/A, Thu, 13 Aug 2026 17:30:00 -0700)
+
+- **Santos vuelve a escena en la Sudamericana, entre dudas sobre el futuro de Neymar**: [Link](https://www.vssports.com.py/versus/2026/08/12/santos-vuelve-a-escena-en-la-sudamericana-entre-dudas-sobre-el-futuro-de-neymar)
+- **Macará ya gana con gol de Posse en Brasil**: [Link](https://www.ecuavisa.com/liveblogs/santos-fc-vs.-macara-por-la-copa-sudamericana-lb202608130002.html)
+- **Tungurahua: 13 de agosto, 2026**: [Link](https://www.lahora.com.ec/ediciones/tungurahua-13-de-agosto-2026-20260812-0072.html)
+
+
 ### مدينة القاهرة الجديدة (N/A, Thu, 13 Aug 2026 15:40:00 -0700)
 
 - **3 قتلى و17 مصابا في انفجار داخل مركز تجاري بالقاهرة الجديدة**: [Link](https://www.aljazeera.net/news/2026/8/13/%D9%85%D8%B5%D8%B1-%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%86-%D9%8812-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D9%81%D9%8A-%D8%AD%D8%B1%D9%8A%D9%82-%D9%88%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1)
