@@ -1,3 +1,10 @@
+### laliga (N/A, Fri, 14 Aug 2026 15:20:00 -0700)
+
+- **La Liga launches big European domestic leagues without Barcelona and Real Madrid**: [Link](https://www.washingtonpost.com/sports/soccer/2026/08/13/laliga-barcelona-real-madrid-mourinho/c1614272-9720-11f1-9ef9-1be722184483_story.html)
+- **Who Will Win LaLiga, Finish as Top Scorer and Be the Biggest Disappointment?**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/who-will-win-laliga-finish-as-top-scorer-and-be-the-biggest-disappointment-2026-08-14)
+- **Let the games begin**: [Link](https://www.surinenglish.com/sport/let-the-games-begin-20260814092118-nt.html)
+
+
 ### kick (N/A, Fri, 14 Aug 2026 15:00:00 -0700)
 
 - **Anthony O'Connor signs for Galway United**: [Link](https://galwayunitedfc.ie/news/anthony-oconnor-signs-for-galway-united)
