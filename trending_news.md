@@ -1,3 +1,24 @@
+### النادي الأهلي (N/A, Fri, 14 Aug 2026 14:10:00 -0700)
+
+- **أقطاى عبد الله: شرف كبير ارتداء قميص الأهلى.. وهدفنا حصد كل البطولات**: [Link](https://www.youm7.com/story/2026/8/14/%D8%A3%D9%82%D8%B7%D8%A7%D9%89-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%B4%D8%B1%D9%81-%D9%83%D8%A8%D9%8A%D8%B1-%D8%A7%D8%B1%D8%AA%D8%AF%D8%A7%D8%A1-%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%89-%D9%88%D9%87%D8%AF%D9%81%D9%86%D8%A7-%D8%AD%D8%B5%D8%AF/7513646)
+- **أقطاي عبد الله: هدفي "أكسر الدنيا" مع الأهلي**: [Link](https://www.btolat.com/news/407719)
+- **أقطاي عبدالله يكشف كواليس انضمامه إلى الأهلي.. ورسالة وائل جمعة**: [Link](https://www.almasryalyoum.com/news/details/4337759)
+
+
+### يورو (N/A, Fri, 14 Aug 2026 14:00:00 -0700)
+
+- **الدرهم يرتفع مقابل اليورو والدولار**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D9%88-%D9%88%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-1791969.html)
+- **المؤشرات الأسبوعية لبنك المغرب في خمس نقاط رئيسية - تليكسبريس**: [Link](https://telexpresse.com/491735.html)
+- **أسعار العملات الأجنبية مقابل الدرهم المغربي اليوم الخميس**: [Link](https://www.africa4press.com/blog/3d38a989-d364-47c0-9369-7c6d764ab032)
+
+
+### explosion italie (N/A, Fri, 14 Aug 2026 13:40:00 -0700)
+
+- **Violente explosion dans une usine de munitions près de Rome**: [Link](https://maroc-diplomatique.net/violente-explosion-dans-une-usine-de-munitions-pres-de-rome/)
+- **Incident chez KNDS Ammo Italy**: [Link](https://knds.com/fr/communiques-de-presse/incident-chez-knds-ammo-italy)
+- **Une usine de munitions explose à Colleferro, près de Rome**: [Link](https://www.bfmtv.com/international/europe/italie/video-une-usine-de-munitions-explose-a-colleferro-pres-de-rome_VN-202608140245.html)
+
+
 ### bouznika (N/A, Fri, 14 Aug 2026 13:40:00 -0700)
 
 - **Plage de Bouznika: 300 villas et cabanons sommés d’évacuer avant le 15 septembre**: [Link](https://fr.le360.ma/societe/plage-de-bouznika-300-villas-et-cabanons-sommes-devacuer-avant-le-15-septembre_4ZWCL6AQZBDT3J5GX3RF5J7Z74/)
