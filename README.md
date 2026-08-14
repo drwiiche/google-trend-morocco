@@ -1,3 +1,17 @@
+### silvia monti décédée (N/A, Fri, 14 Aug 2026 02:40:00 -0700)
+
+- **Décès de l’actrice Silvia Monti, vue dans « Le Cerveau » avec Jean-Paul Belmondo et Bourvil**: [Link](https://soirmag.lesoir.be/764797/article/2026-08-13/deces-de-lactrice-silvia-monti-vue-dans-le-cerveau-avec-jean-paul-belmondo-et)
+- **Silvia Monti est morte à 80 ans : le cinéma perd l’une de ses étoiles les plus discrètes des années 1960 et 1970**: [Link](https://www.melty.fr/people/silvia-monti-est-morte-a-80-ans-le-cinema-perd-lune-de-ses-etoiles-les-plus-discretes-des-annees-1960-et-1970-2339813.html)
+- **Décès de Silvia Monti, la star du "Cerveau", atteinte d'une maladie neurodégénérative**: [Link](https://www.dhnet.be/medias/cinema/2026/08/12/deces-de-silvia-monti-la-star-du-cerveau-atteinte-dune-maladie-neurodegenerative-3WAAFLXBC5FSPP7ZCLQ4G73YCQ/)
+
+
+### apple iphone 18 pro (N/A, Fri, 14 Aug 2026 02:10:00 -0700)
+
+- **Apple Skipping iPhone 18 Launch This Year**: [Link](https://www.macrumors.com/2026/08/12/apple-skipping-iphone-18-launch-this-year/)
+- **iPhone 18 could get two new Pro-level upgrades, per report**: [Link](https://9to5mac.com/2026/08/12/iphone-18-could-get-two-new-pro-level-upgrades-per-report/)
+- **iPhone 18 Pro Could Be the New Default iPhone for Buyers This Fall**: [Link](https://www.macobserver.com/news/iphone-18-pro-could-be-the-new-default-iphone-for-buyers-this-fall/)
+
+
 ### ارابيلا بلازا (N/A, Fri, 14 Aug 2026 02:30:00 -0700)
 
 - **3 قتلى و17 مصابا في انفجار داخل مركز تجاري بالقاهرة الجديدة**: [Link](https://www.aljazeera.net/news/2026/8/13/%D9%85%D8%B5%D8%B1-%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%86-%D9%8812-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D9%81%D9%8A-%D8%AD%D8%B1%D9%8A%D9%82-%D9%88%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1)
