@@ -1,3 +1,17 @@
+### kick (N/A, Fri, 14 Aug 2026 15:00:00 -0700)
+
+- **Anthony O'Connor signs for Galway United**: [Link](https://galwayunitedfc.ie/news/anthony-oconnor-signs-for-galway-united)
+- **Penalty heartbreak for Bray Wanderers as Galway United edge FAI Cup tie in shoot-out**: [Link](https://www.independent.ie/county/wicklow/sport/penalty-heartbreak-for-bray-wanderers-as-galway-united-edge-fai-cup-tie-in-shoot-out/a/160062082.html)
+- **Da Cunha the hero as Galway edge shootout battle with Bray**: [Link](https://www.irishexaminer.com/sport/soccer/arid-41896378.html)
+
+
+### جيروزاليم بوست (N/A, Fri, 14 Aug 2026 15:00:00 -0700)
+
+- **جيروزاليم بوست: صدمة في إسرائيل من تعافي إيران عسكريا**: [Link](https://www.aljazeera.net/politics/2026/8/14/%D8%AC%D9%8A%D8%B1%D9%88%D8%B2%D8%A7%D9%84%D9%8A%D9%85-%D8%A8%D9%88%D8%B3%D8%AA-%D8%B5%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%85%D9%86)
+- **الجيش الإيراني: أكثر من 75 بالمئة من قدراتنا الصاروخية لم تستخدم**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-75-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D9%85%D9%86-%D9%82%D8%AF%D8%B1%D8%A7%D8%AA%D9%86%D8%A7-%D8%A7%D9%84%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A%D8%A9-%D9%84%D9%85-%D8%AA%D8%B3%D8%AA%D8%AE%D8%AF%D9%85/4025743)
+- **مسؤول عسكري إيراني: سنتبنى نهجًا "أكثر هجومية" في أي حرب مقبلة**: [Link](https://www.iranintl.com/ar/202608139338)
+
+
 ### دفاع جوي (N/A, Fri, 14 Aug 2026 14:50:00 -0700)
 
 - **كلفتها 50 مليون دولار.. مسيّرات "ريبر" الأمريكية التي التهمتها حرب إيران**: [Link](https://www.aljazeera.net/news/2026/8/14/%D9%83%D9%84%D9%81%D8%AA%D9%87%D8%A7-50-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%85%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A8%D8%B1)
