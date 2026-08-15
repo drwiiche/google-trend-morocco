@@ -1,3 +1,17 @@
+### بادو الزاكي (N/A, Sat, 15 Aug 2026 09:00:00 -0700)
+
+- **بسبب ظروف عائلية.. بيان جديد من الاتحاد الأردني عن بادو الزاكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%B8%D8%B1%D9%88%D9%81-%D8%B9%D8%A7%D9%8A%D9%94%D9%84%D9%8A%D8%A9--%D8%A8%D9%8A%D8%A7%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86%D9%8A-%D8%B9%D9%86-%D8%A8%D8%A7%D8%AF%D9%88-%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A/blt3e858720493b2666)
+- **بلاغ جديد بخصوص تعاقد الزاكي لتدريب المنتخب الأردني**: [Link](https://ar.sport.le360.ma/football/autres-championnats/2MKA3WPHURETTNEYZJ44LKJ3RI/)
+- **تعرف على الموعد المتوقع لوصول مدرب “النشامى” الجديد**: [Link](https://jfranews.com.jo/article/551808)
+
+
+### fulham – stuttgart (N/A, Sat, 15 Aug 2026 08:50:00 -0700)
+
+- **Matchday Preview: Stuttgart**: [Link](https://www.fulhamfc.com/news/2026/august/14/matchday-preview-stuttgart/)
+- **Fulham v Stuttgart - the final rehearsal for Alvaro Arbeloa: How to watch and a look at the opposition**: [Link](https://roundtable.io/sports/soccer/premier-league/fulham/news/fulham-v-stuttgart---the-final-rehearsal-for-alvaro-arbeloa-how-to-watch-and-a-look-at-the-opposition)
+- **𝚆𝙰𝚃𝙲𝙷 Fulham vs. VfB Stuttgart 𝐋𝐈𝐕𝐄 Ｓｔｒｅａｍ Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ!PRE™SEASON**: [Link](https://www.jacksoncountypilot.com/articles/%F0%9D%9A%86%F0%9D%99%B0%F0%9D%9A%83%F0%9D%99%B2%F0%9D%99%B7-fulham-vs-vfb-stuttgart-%F0%9D%90%8B%F0%9D%90%88%F0%9D%90%95%F0%9D%90%84-%EF%BD%93%EF%BD%94%EF%BD%92%EF%BD%85%EF%BD%81%EF%BD%8D-%EF%BD%86/)
+
+
 ### frontière entre l'espagne et le maroc (N/A, Sat, 15 Aug 2026 08:00:00 -0700)
 
 - **Fnideq Bab Sebta: déploiement sécuritaire massif, un seul incident ce samedi matin**: [Link](https://medias24.com/2026/08/15/fnideq-bab-sebta-deploiement-securitaire-inedit-un-seul-incident-ce-samedi-matin-1740445/)
