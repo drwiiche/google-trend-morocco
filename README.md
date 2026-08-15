@@ -1,3 +1,10 @@
+### إشبيلية ضد رايو فاليكانو (N/A, Sat, 15 Aug 2026 13:30:00 -0700)
+
+- **مواجهة مرتقبة بين إشبيلية ورايو فاييكانو في مستهل مباريات موسم الليغا الجديد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%88%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2026-08-15?videopage=true)
+- **توقعات مباراة إشبيلية ورايو فاليكانو: التشكيلات المتوقعة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-sevilla-vs-rayo-vallecano-doi-hinh-du-kien)
+- **إشبيلية ورايو فاليكانو يستهلان موسم الليغا بمواجهة متكافئة (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/08/sevilla-rayovallecano-j1-liga-pronostic.html)
+
+
 ### majorque – valladolid (N/A, Sat, 15 Aug 2026 12:50:00 -0700)
 
 - **Pronostic Majorque vs Real Valladolid 15 Août 2026**: [Link](https://dailysports.net/fr/predictions/pronostic-pour-le-match-majorque-valladolid-bienvenue-au-coup-denvoi-de-la-segunda-15082026/)
