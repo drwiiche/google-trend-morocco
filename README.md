@@ -1,3 +1,10 @@
+### grêle (N/A, Sat, 15 Aug 2026 09:20:00 -0700)
+
+- **Météo. Alerte orange avec des averses orageuses accompagnées de grêle**: [Link](https://medias24.com/2026/08/15/alerte-orange-1740403/)
+- **Les températures attendues ce samedi 15 août 2026**: [Link](https://fr.hespress.com/485214-les-temperatures-attendues-ce-samedi-15-aout-2026.html)
+- **Météo. Baisse des températures ce samedi 15 août avec des chaleurs persistantes au Sud et des averses orageuses sur les reliefs**: [Link](https://fr.le360.ma/societe/meteo-baisse-des-temperatures-ce-samedi-15-aout-avec-des-chaleurs-persistantes-au-sud-et-des-averses_IXYZDQEXVREDDPOQYN6RBY7CHY/)
+
+
 ### بادو الزاكي (N/A, Sat, 15 Aug 2026 09:00:00 -0700)
 
 - **بسبب ظروف عائلية.. بيان جديد من الاتحاد الأردني عن بادو الزاكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%B8%D8%B1%D9%88%D9%81-%D8%B9%D8%A7%D9%8A%D9%94%D9%84%D9%8A%D8%A9--%D8%A8%D9%8A%D8%A7%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AF%D9%86%D9%8A-%D8%B9%D9%86-%D8%A8%D8%A7%D8%AF%D9%88-%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A/blt3e858720493b2666)
