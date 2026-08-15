@@ -1,3 +1,10 @@
+### séisme espagne (N/A, Sat, 15 Aug 2026 02:00:00 -0700)
+
+- **Panique en Espagne : glissements de terrain, façades endommagées... Un tremblement de terre secoue une partie du pays en pleine nuit**: [Link](https://www.lindependant.fr/2026/08/15/panique-en-espagne-glissements-de-terrain-facades-endommagees-un-tremblement-de-terre-secoue-une-partie-du-pays-en-pleine-nuit-13510068.php)
+- **Séisme très faible mag. 2.1 - 59 km au nord-est de Vélez-Málaga, Malaga, Andalousie, Espagne, Saturday, 15 Aug 2026, à 03:47 (GMT +2)**: [Link](https://www.volcanodiscovery.com/fr/seismes/info-seisme/23272969/quake-felt-Aug-15-2026-Near-Granada-Andalusia-Spain.html)
+- **Un séisme de magnitude 5,2 réveille Grenade en pleine nuit**: [Link](https://www.24heures.ch/seisme-une-secousse-de-magnitude-5-2-frappe-landalousie-549811275027)
+
+
 ### granada (N/A, Fri, 14 Aug 2026 23:50:00 -0700)
 
 - **Un terremoto de magnitud 5 sacude Granada sin causar víctimas**: [Link](https://elpais.com/espana/2026-08-15/la-junta-de-anadalucia-activa-la-fase-de-emergencia-por-un-seismo-de-magnitud-cinco-en-granada.html)
