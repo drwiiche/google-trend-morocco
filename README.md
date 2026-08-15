@@ -1,3 +1,10 @@
+### باريس سان جيرمان (N/A, Sat, 15 Aug 2026 16:10:00 -0700)
+
+- **رسميا الصفقة الخامسة.. باريس يضرب بقوة في الميركاتو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9--%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A8%D9%82%D9%88%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88/blt6bcc363cfb661d4b)
+- **بطولة فرنسا: سان جرمان يعزز صفوفه بالجناح البلجيكي ميكا غودتس**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260815-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B5%D9%81%D9%88%D9%81%D9%87-%D8%A8%D8%A7%D9%84%D8%AC%D9%86%D8%A7%D8%AD-%D8%A7%D9%84%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D9%8A-%D9%85%D9%8A%D9%83%D8%A7-%D8%BA%D9%88%D8%AF%D8%AA%D8%B3)
+- **باريس سان جيرمان يقترب من حسم صفقة ميكا غوتس مقابل 55 مليون يورو**: [Link](https://radiomars.ma/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D8%B5%D9%81%D9%82%D8%A9-%D9%85%D9%8A%D9%83%D8%A7/)
+
+
 ### ufc live (N/A, Sat, 15 Aug 2026 15:30:00 -0700)
 
 - **Prelim Results | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-prelims-results)
