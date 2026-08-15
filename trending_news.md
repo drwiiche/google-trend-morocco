@@ -1,3 +1,38 @@
+### ميلان ضد مان يونايتد (N/A, Sat, 15 Aug 2026 07:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة مانشستر يونايتد وميلان الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt7aabaed324dda1f5)
+- **مان يونايتد ضد ليدز.. هجمة مرتدة مثالية توقظ الشياطين (فيديو)**: [Link](https://al-ain.com/article/man-united-vs-leeds-counter-attack)
+- **نصير مزراوي يثير الإعجاب في مباراة مانشستر يونايتد وليدز**: [Link](https://sport.lesiteinfo.com/internationaux/501374.html)
+
+
+### ac milan – manchester united (N/A, Sat, 15 Aug 2026 07:20:00 -0700)
+
+- **Michael Carrick has fixed four Ruben Amorim mistakes ahead of Manchester United reunion**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/michael-carrick-corrected-four-ruben-34445597)
+- **Man United v AC Milan LIVE: Latest team news and updates from pre-season friendly**: [Link](https://www.independent.co.uk/sport/football/man-united-ac-milan-live-score-result-b3033175.html)
+- **Man Utd vs Milan: Get £30 in football free bets when you join Midnite and stake £10**: [Link](https://www.thesun.co.uk/sport/40053282/man-utd-milan-football-free-bets-midnite/)
+
+
+### séisme indonésie (N/A, Sat, 15 Aug 2026 07:20:00 -0700)
+
+- **Indonésie : un puissant séisme de magnitude 7,7 fait au moins 40 morts**: [Link](https://www.lemonde.fr/international/article/2026/08/15/indonesie-un-puissant-seisme-fait-au-moins-deux-morts-alerte-au-tsunami-levee_6746394_3210.html)
+- **Puissant séisme dans l'est de l'Indonésie, au moins 20 morts**: [Link](https://medias24.com/agence-presse/puissant-seisme-dans-lest-de-lindonesie-au-moins-20-morts/)
+- **Vidéo. Vidéo: scène de chaos après un puissant séisme en Indonésie**: [Link](https://fr.euronews.com/video/2026/08/15/video-scene-de-chaos-apres-un-puissant-seisme-en-indonesie)
+
+
+### frontiere ceuta (N/A, Sat, 15 Aug 2026 07:20:00 -0700)
+
+- **Fnideq Bab Sebta: déploiement sécuritaire massif, un seul incident ce samedi matin**: [Link](https://medias24.com/2026/08/15/fnideq-bab-sebta-deploiement-securitaire-inedit-un-seul-incident-ce-samedi-matin-1740445/)
+- **Le dispositif d’alerte renforcé à Fnideq, le retour des migrants de Sebta se poursuit**: [Link](https://fr.le360.ma/politique/le-dispositif-dalerte-renforce-a-fnideq-le-retour-des-migrants-de-sebta-se-poursuit_GPES6WK5MNBWVPCWNJELJW6Q54/)
+- **Ceuta: ce que cachent les appels à traverser la frontière le 15 août**: [Link](https://www.rfi.fr/fr/afrique/20260814-ceuta-ce-que-cachent-les-appels-%C3%A0-traverser-la-fronti%C3%A8re-le-15-ao%C3%BBt)
+
+
+### tottenham – hoffenheim (N/A, Sat, 15 Aug 2026 07:10:00 -0700)
+
+- **Tottenham team vs Hoffenheim confirmed - Tonali, Van Hecke and Senesi all start at stadium**: [Link](https://www.football.london/tottenham-hotspur-fc/fixtures-results/tottenham-team-vs-hoffenheim-confirmed-34464733)
+- **Tottenham XI vs Hoffenheim: Starting lineup, confirmed team news, injury latest for pre-season friendly today**: [Link](https://www.standard.co.uk/sport/football/tottenham-xi-vs-hoffenheim-starting-lineup-confirmed-team-news-injury-latest-preseason-friendly-2026-today-b1293303.html)
+- **Licensable picture: UK: pre-season friendly: Tottenham Hotspur v Hoffenheim**: [Link](https://www.reutersconnect.com/item/uk-pre-season-friendly-tottenham-hotspur-v-hoffenheim/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBQUlVVUFU)
+
+
 ### everton – lille (N/A, Sat, 15 Aug 2026 06:40:00 -0700)
 
 - **How To Watch: Everton v Lille**: [Link](https://www.evertonfc.com/news/2026/august/15/how-to-watch--everton-v-lille/)
