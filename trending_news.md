@@ -1,3 +1,9 @@
+### majorque – valladolid (N/A, Sat, 15 Aug 2026 12:50:00 -0700)
+
+- **Pronostic Majorque vs Real Valladolid 15 Août 2026**: [Link](https://dailysports.net/fr/predictions/pronostic-pour-le-match-majorque-valladolid-bienvenue-au-coup-denvoi-de-la-segunda-15082026/)
+- **Pronostic Majorque - Valladolid, LaLiga 2 - 15/08/2026**: [Link](https://www.sportytrader.com/pronostics/majorque-valladolid-365303/)
+
+
 ### flashscore (N/A, Sat, 15 Aug 2026 12:30:00 -0700)
 
 - **Chelsea: Enzo Fernandez booed and Morgan Rogers scores as Xabi Alonso reveals blueprint**: [Link](https://www.bbc.com/sport/football/articles/c36dd10jj09o)
