@@ -1,3 +1,17 @@
+### ufc live (N/A, Sat, 15 Aug 2026 15:30:00 -0700)
+
+- **Prelim Results | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-prelims-results)
+- **Makhachev vs Garry Kalshi Prediction Market Gives Makhachev Massive Advantage**: [Link](https://www.si.com/prediction-markets/makhachev-vs-garry-kalshi-market-gives-makhachev-massive-advantage-01kzrnq3gmh1)
+- **UFC 330 fight card, betting odds, start time, TV & viewing info**: [Link](https://www.thebiglead.com/ufc-330-fight-card-betting-odds-start-time-tv-viewing-info/)
+
+
+### مسعود بزشكيان (N/A, Sat, 15 Aug 2026 14:50:00 -0700)
+
+- **الرئيس بزشكيان: تراجع النفط وتدمير المصانع يفاقمان أزمة إيران**: [Link](https://www.aljazeera.net/ebusiness/2026/8/15/%D8%A8%D8%B2%D8%B4%D9%83%D9%8A%D8%A7%D9%86-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%88%D8%AA%D8%AF%D9%85%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D9%86%D8%B9)
+- **إيران أمام حرب الاستنزاف الاقتصادي: هل يصمد الاقتصاد أم تفرض الأزمة إعادة هيكلة الأولويات؟**: [Link](https://rawabetcenter.com/archives/181104)
+- **شلل الإنتاج وتلاشي الأجور: ملايين الإيرانيين يلجأون إلى الاقتصاد غير الرسمي لتأمين القوت**: [Link](https://arabic.mojahedin.org/438333)
+
+
 ### sevilla vs rayo vallecano (N/A, Sat, 15 Aug 2026 14:00:00 -0700)
 
 - **Sevilla vs Vallecano match lineup | LaLiga · 15 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5868019/Sevilla-FC-vs-Rayo-Vallecano)
