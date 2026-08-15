@@ -1,3 +1,24 @@
+### apple iphone 18 pro max (N/A, Fri, 14 Aug 2026 20:40:00 -0700)
+
+- **iPhone 18 could get two new Pro-level upgrades, per report**: [Link](https://9to5mac.com/2026/08/12/iphone-18-could-get-two-new-pro-level-upgrades-per-report/)
+- **Apple’s Biggest iPhone Leak Yet? iPhone 18 Pro Max, iPhone 18 Pro and iPhone Ultra Could Change the September Lineup**: [Link](https://ascendants.in/spotlight/iphone-18-pro-max-leak-iphone-18-pro-iphone-ultra-september-launch/)
+- **What's Coming in September: New iPhones, Apple Watches and More**: [Link](https://www.macrumors.com/2026/08/13/apple-september-announcement-rumors/)
+
+
+### aid mawlid 2026 (N/A, Fri, 14 Aug 2026 17:30:00 -0700)
+
+- **Jour férié : Aïd Al Mawlid sera célébré le mardi 25 août**: [Link](https://mobile.telquel.ma/instant-t/2026/08/14/jour-ferie-aid-al-mawlid-sera-celebre-le-mardi-25-aout_2003400/)
+- **L’Aïd Al Mawlid Annabaoui sera célébré le mardi 25 août**: [Link](https://www.leconomiste.com/flash-infos/laid-al-mawlid-annabaoui-sera-celebre-le-mardi-25-aout/)
+- **Mouled 2026 : Kairouan mise sur la culture et le tourisme pour dynamiser la région**: [Link](https://www.webmanagercenter.com/2026/08/14/571423/mouled-2026-kairouan-mise-sur-la-culture-et-le-tourisme-pour-dynamiser-la-region/)
+
+
+### ufc (N/A, Fri, 14 Aug 2026 16:10:00 -0700)
+
+- **Kamaru Usman references history with Ian Machado Garry when arguing how he can beat Islam Makhachev**: [Link](https://bloodyelbow.com/2026/08/14/kamaru-usman-references-history-with-ian-machado-garry-when-arguing-how-he-can-beat-islam-makhachev/)
+- **Islam Makhachev Talks With Megan Olivi | UFC 330**: [Link](https://www.ufc.com/video/159241)
+- **“Islam Achieved More Than Khabib”: Dana White Compared Two Great Champions**: [Link](https://zamin.uz/en/sport/217982-islam-achieved-more-than-khabib-dana-white-compared-two-great-champions.html)
+
+
 ### plage de bouznika (N/A, Fri, 14 Aug 2026 16:20:00 -0700)
 
 - **Plage de Bouznika: 300 villas et cabanons sommés d’évacuer avant le 15 septembre**: [Link](https://fr.le360.ma/societe/plage-de-bouznika-300-villas-et-cabanons-sommes-devacuer-avant-le-15-septembre_4ZWCL6AQZBDT3J5GX3RF5J7Z74/)
