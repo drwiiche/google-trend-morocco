@@ -1,3 +1,10 @@
+### جائزة الكرة الذهبية (N/A, Fri, 14 Aug 2026 21:30:00 -0700)
+
+- **الإعلام الإسباني يرشح بطل العالم للكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B1%D8%B4%D8%AD-%D8%A8%D8%B7%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt869377cd751f3105)
+- **هل كفاراتسخيليا المرشح الأول للكرة الذهبية؟**: [Link](https://www.alaraby.co.uk/sport/%D9%87%D9%84-%D9%83%D9%81%D8%A7%D8%B1%D8%A7%D8%AA%D8%B3%D8%AE%D9%8A%D9%84%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9)
+- **فابيان رويز بينا**: [Link](https://sports.asharq.com/players/49320/)
+
+
 ### ici tout commence (N/A, Fri, 14 Aug 2026 20:30:00 -0700)
 
 - **Ici tout commence : Bianca attaquée, un départ chez les Teyssier ?… Les moments forts des épisodes du 17 au 21 août 2026**: [Link](https://toutelatele.ouest-france.fr/ici-tout-commence-bianca-attaquee-un-depart-chez-les-teyssier-les-moments-forts-des-episodes-du-17-au-21-aout-2026-188880)
