@@ -1,3 +1,17 @@
+### al-nassr fc – al-fateh (N/A, Sat, 15 Aug 2026 10:40:00 -0700)
+
+- **Al-Nassr 0-0 Al Fateh LIVE Score Updates Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/08/15/1268005-al-nassr-vs-al-fateh-live-score-saudi-pro-league.html)
+- **Shoulder blow threatens Nawaf Al-Aqidi’s place in Al Nassr season opener**: [Link](https://africasoccer.com/shoulder-blow-threatens-nawaf-al-aqidis-place-in-al-nassr-season-opener/)
+- **Al Nassr vs Al Fateh: How to watch, Live Stream, TV Channel and Time for Saudi Pro League game on August 15...**: [Link](https://bolavip.com/en/soccer/al-nassr-vs-al-fateh-how-to-watch-live-stream-tv-channel-and-time-for-saudi-pro-league-game-on-august-15-2026)
+
+
+### dortmund vs roma (N/A, Sat, 15 Aug 2026 09:30:00 -0700)
+
+- **Borussia Dortmund vs Roma: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw62e5nq1m93t)
+- **Germany Soccer Bundesliga**: [Link](https://www.daytondailynews.com/nation-world/germany-soccer-bundesliga/image_f08d76f8-7beb-5ae6-8668-14e6951c776f.html)
+- **Kobel and Ryerson make season debut – Nmecha captain against Roma**: [Link](https://onefootball.com/en/news/kobel-and-ryerson-make-season-debut-nmecha-captain-against-roma-43281643)
+
+
 ### deportivo alavés – getafe (N/A, Sat, 15 Aug 2026 10:30:00 -0700)
 
 - **Alavés - Getafe en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/alaves-getafe/2026/08/15/01_0101_20260815_173_1450-directo.html)
