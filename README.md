@@ -1,3 +1,10 @@
+### حسام حسن (N/A, Sat, 15 Aug 2026 05:50:00 -0700)
+
+- **مشاجرة بين زوجتي حسام حسن في الساحل الشمالي.. وبلاغ ينتهي بالتنازل**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/15/%D9%85%D8%B4%D8%A7%D8%AC%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B2%D9%88%D8%AC%D8%AA%D9%8A-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A-%D9%88%D8%A8%D9%84%D8%A7%D8%BA-%D9%8A%D9%86%D8%AA%D9%87%D9%8A-%D8%A8%D8%A7%D9%84%D8%AA%D9%86%D8%A7%D8%B2%D9%84)
+- **زوجة حسام حسن تكشف تفاصيل واقعة الاعتداء: «ضربوني بالشلاليط والبوكسات وسحلوني من شعري»**: [Link](https://www.elbalad.news/7073704)
+- **دماء وإغماء في اشتباك بالأيدي بين زوجتي نجم عربي كبير.. ما القصة؟**: [Link](https://www.okaz.com.sa/variety/na/2261382)
+
+
 ### galatasaray – çorum fk (N/A, Sat, 15 Aug 2026 05:00:00 -0700)
 
 - **Acil konsantrasyon**: [Link](https://www.nefes.com.tr/yazarlar/tahsin-dogan/acil-konsantrasyon-145315)
