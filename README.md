@@ -1,3 +1,31 @@
+### morocco vs algeria (N/A, Sat, 15 Aug 2026 11:30:00 -0700)
+
+- **MATCH STATS: Morocco face Algeria in TotalEnergies CAF WAFCON third-place play-off**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-morocco-face-algeria-in-totalenergies-caf-wafcon-third-place-play-off/)
+- **WAFCON 2026: Morocco Aims to Finish Competition with a Medal, Says Head Coach**: [Link](https://en.hespress.com/143797-wafcon-2026-morocco-aims-to-finish-competition-with-a-medal-says-head-coach.html)
+- **Morocco vs. Algeria: Players to Watch in the 2026 WAFCON Bronze Medal Match**: [Link](https://www.moroccoworldnews.com/2026/08/334771/morocco-vs-algeria-players-to-watch-in-the-2026-wafcon-bronze-medal-match/)
+
+
+### le bon coin (N/A, Sat, 15 Aug 2026 11:10:00 -0700)
+
+- **Pourquoi l'isolation thermique par l'extérieur (ITE) est-elle beaucoup plus efficace contre les canicules estivales que l'isolation par l'intérieur ?**: [Link](https://www.futura-sciences.com/maison/questions-reponses/isolation-isolation-thermique-exterieur-ite-elle-beaucoup-plus-efficace-canicules-estivales-isolation-interieur-25874/)
+- **Piscine, rez-de-jardin, climatisation… La chaleur rebat les critères d’achat immobilier**: [Link](https://www.ouest-france.fr/economie/immobilier/piscine-rez-de-jardin-climatisation-la-chaleur-rebat-les-criteres-dachat-immobilier-187196b6-8c3b-11f1-ae39-071763a6d211)
+- **« Une prise de conscience s’opère » : la canicule bouleverse les critères immobiliers**: [Link](https://www.lopinion.fr/economie/une-prise-de-conscience-sopere-la-canicule-bouleverse-les-criteres-immobiliers)
+
+
+### inter vs betis (N/A, Sat, 15 Aug 2026 10:50:00 -0700)
+
+- **Inter Milan vs Real Betis: Stones Set for Debut**: [Link](https://sempreinter.com/2026/08/15/inter-milan-real-betis-friendly/)
+- **The Nerazzurri arrive in Bari**: [Link](https://onefootball.com/en/news/the-nerazzurri-arrive-in-bari-43280057)
+- **Inter Milan vs Real Betis predictions: Nerazzurri seek a strong finish**: [Link](https://www.goal.com/en-us/betting/tips/inter-milan-vs-real-betis-predictions-15-08-2026/A%3Ablt734009b155b66d5f)
+
+
+### liga (N/A, Sat, 15 Aug 2026 10:40:00 -0700)
+
+- **Jose Mourinho has to deal with a crisis Real Madrid ignored his pleas to prevent**: [Link](https://therealchamps.com/jose-mourinho-has-to-deal-with-a-crisis-real-madrid-ignored-his-pleas-to-prevent-01kzzw9qd3n1)
+- **Mourinho unable to solve Real Madrid's crises before the season starts: will he pay the price?**: [Link](https://www.goal.com/en-in/lists/mourinho-unable-to-solve-real-madrid-s-crises-before-the-season-starts-will-he-pay-the-price/blt4394cc022f17cd63)
+- **Defensive Woes: Real Madrid Faces Ongoing Crisis Ahead of Season Start**: [Link](https://www.ysscores.com/en/news/14020006/defensive-woes-real-madrid-faces-ongoing-crisis-ahead-of-season-start)
+
+
 ### maroc vs algerie (N/A, Sat, 15 Aug 2026 11:00:00 -0700)
 
 - **Les stats d’avant-match : Maroc - Algérie, une médaille de bronze en jeu**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-maroc-algerie-une-medaille-de-bronze-en-jeu/)
