@@ -1,3 +1,24 @@
+### novak djokovic (N/A, Sat, 15 Aug 2026 11:50:00 -0700)
+
+- **Tennishead readers think the clear favourite for the Cincinnati Open title is not Novak Djokovic**: [Link](https://tennishead.net/tennishead-readers-think-the-clear-favourite-for-the-cincinnati-open-title-is-not-novak-djokovic/)
+- **With Jannik Sinner and Carlos Alcaraz Both Gone, Who’s Favored to Win the Cincinnati Masters?**: [Link](https://sports.betmgm.com/en/blog/atp/cincinnati-masters-favorite-after-carlos-alcaraz-jannik-sinner-withdrawals-2026-analysis-bm06/)
+- **Djokovic, Zverev and French Hopes: Cincinnati Masters Saturday Preview**: [Link](https://en.tennistemple.com/actu/djokovic-zverev-and-french-hopes-cincinnati/dlAi)
+
+
+### al-nassr vs al fateh (N/A, Sat, 15 Aug 2026 11:20:00 -0700)
+
+- **Video: Angelo begins the Postecoglou era, and Felix's magic draws sighs from Ronaldo**: [Link](https://www.goal.com/en/news/video-angelo-begins-the-postecoglou-era-and-felix-s-magic-draws-groans-from-ronaldo/blt381021d50c58f896)
+- **Al-Nassr 0-0 Al Fateh LIVE Score Updates: Everything set for kickoff**: [Link](https://www.vavel.com/en-us/soccer/2026/08/15/1268005-al-nassr-vs-al-fateh-live-score-saudi-pro-league.html)
+- **Shoulder blow threatens Nawaf Al-Aqidi’s place in Al Nassr season opener**: [Link](https://africasoccer.com/shoulder-blow-threatens-nawaf-al-aqidis-place-in-al-nassr-season-opener/)
+
+
+### النصر ضد الفتح (N/A, Sat, 15 Aug 2026 11:20:00 -0700)
+
+- **ألفية رونالدو ووداعية بنزيما.. بماذا يحلم نجوم الدوري السعودي في الموسم الجديد؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D9%84%D9%81%D9%8A%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D9%88%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A8%D9%86%D8%B2%D9%8A%D9%85%D8%A7--%D8%A8%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AD%D9%84%D9%85-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/bltd5720a907592a9f0)
+- **مباشر.. مباراة النصر ضد الفتح في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/15/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **رسالة محبطة أم ذكاء تكتيكي؟.. سر قنبلة بوستيكوغلو الأولى مع النصر**: [Link](https://www.eremnews.com/sports/lrji2wg)
+
+
 ### morocco vs algeria (N/A, Sat, 15 Aug 2026 11:30:00 -0700)
 
 - **MATCH STATS: Morocco face Algeria in TotalEnergies CAF WAFCON third-place play-off**: [Link](https://www.cafonline.com/caf-womens-africa-cup-of-nations/news/match-stats-morocco-face-algeria-in-totalenergies-caf-wafcon-third-place-play-off/)
