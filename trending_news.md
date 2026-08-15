@@ -1,3 +1,17 @@
+### bayern (N/A, Sat, 15 Aug 2026 09:10:00 -0700)
+
+- **Bayern Munich vs RB Leipzig: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c8wy4wpn045pt)
+- **Three Observations from Bayern Munich’s 3-1 friendly win over RB Leipzig**: [Link](https://www.bavarianfootballworks.com/bayern-munich-match-observations/243602/bayern-munich-vs-rb-leipzig-three-observations-match-analysis-jamal-musiala-ismael-saibari-vincent-kompany)
+- **Preview Telekom Cup: FC Bayern v RB Leipzig**: [Link](https://fcbayern.com/en/news/matchpreviews/2026/08/preview-telekom-cup-fc-bayern-v-rb-leipzig)
+
+
+### sunderland – rennes (N/A, Sat, 15 Aug 2026 07:40:00 -0700)
+
+- **Régis Le Bris's Sunderland starting XI and subs to face Stade Rennais predicted**: [Link](https://www.sunderlandecho.com/sport/football/sunderland-afc/regis-le-briss-sunderland-starting-xi-and-subs-to-face-stade-rennais-predicted-8921377)
+- **The Big Man Is Here… Welcome Back, Eli**: [Link](https://rokerreport.sbnation.com/opinion/148266/the-big-man-is-herewelcome-back-eli)
+- **Sunderland vs Rennes: pre-season preview, team news and likely line-ups**: [Link](https://www.vavel.com/en/football/2026/08/13/sunderland/1267909-sunderland-vs-rennes-pre-season-preview-team-news-and-likely-line-ups.html)
+
+
 ### grêle (N/A, Sat, 15 Aug 2026 09:20:00 -0700)
 
 - **Météo. Alerte orange avec des averses orageuses accompagnées de grêle**: [Link](https://medias24.com/2026/08/15/alerte-orange-1740403/)
