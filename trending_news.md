@@ -1,3 +1,24 @@
+### maroc algerie (N/A, Sat, 15 Aug 2026 10:20:00 -0700)
+
+- **Les stats d’avant-match : Maroc - Algérie, une médaille de bronze en jeu**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-maroc-algerie-une-medaille-de-bronze-en-jeu/)
+- **CAN féminine Maroc 2026: les Lionnes de l’Atlas reprennent le chemin des entraînements**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-reprennent-le-chemin-des-entrainements)
+- **CAN féminine : Maroc-Algérie, un derby maghrébin pour la médaille de bronze**: [Link](https://mobile.telquel.ma/instant-t/2026/08/15/can-feminine-maroc-algerie-un-derby-maghrebin-pour-la-medaille-de-bronze_2003411/)
+
+
+### inter – betis (N/A, Sat, 15 Aug 2026 10:00:00 -0700)
+
+- **Pellegrini alinea su once de gala en el amistoso Inter - Betis**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/pellegrini-alinea-once-gala-amistoso-inter-betis-20260815181656-nts.html)
+- **Una citación para Bari sin sorpresas, pero indiciaria: intenciones de mercado y once ante la Real Sociedad**: [Link](https://www.estadiodeportivo.com/futbol/betis/una-lista-para-bari-sin-sorpresas-pero-indiciaria-intenciones-mercado-once-ante-real-sociedad-20260814-544471.html)
+- **Lautaro Martínez será suplente en Inter – Betis este sábado**: [Link](https://es-us.noticias.yahoo.com/deportes/lautaro-mart%C3%ADnez-suplente-inter-betis-171000953.html)
+
+
+### تقاعد (N/A, Sat, 15 Aug 2026 10:00:00 -0700)
+
+- **منشور حكومي جديد لمعاشات التقاعد.. وثائق أقل ورقمنة أوسع وعبء أكبر على الإدارات**: [Link](https://nichan.ma/361437/)
+- **معاشات التقاعد بلا تعقيدات.. منشور حكومي يُسقط كومة من الوثائق**: [Link](https://al3omk.com/1180105.html)
+- **ألمانيا ـ إصلاح التقاعد معركة كسر عظم لا تحتمل التأجيل**: [Link](https://www.dw.com/ar/%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%80-%D8%A5%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D9%83%D8%B3%D8%B1-%D8%B9%D8%B8%D9%85-%D9%84%D8%A7-%D8%AA%D8%AD%D8%AA%D9%85%D9%84-%D8%A7%D9%84%D8%AA%D8%A3%D8%AC%D9%8A%D9%84/a-78290429)
+
+
 ### bayern (N/A, Sat, 15 Aug 2026 09:10:00 -0700)
 
 - **Bayern Munich vs RB Leipzig: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c8wy4wpn045pt)
