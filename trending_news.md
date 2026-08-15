@@ -1,3 +1,10 @@
+### sevilla - rayo vallecano (N/A, Sat, 15 Aug 2026 13:50:00 -0700)
+
+- **Sevilla - Rayo Vallecano, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/sevilla-rayo-vallecano-en-directo-laliga-ea-sports-hoy-en-vivo-f202608-d/)
+- **Dos penaltis le dan la vuelta al marcador y la primera victoria al Sevilla (2-1)**: [Link](https://holanews.com/dos-penaltis-le-dan-la-vuelta-al-marcador-y-la-primera-victoria-al-sevilla-2-1/)
+- **Jon Guridi releva a Dodi Lukebakio: estos son los primeros goleadores del Sevilla en liga desde 2001**: [Link](https://www.diariodesevilla.es/sevillafc/jon-guridi-releva-dodi-lukebakio-primeros-goleadores-sevilla-liga-2001_0_2007725361.html)
+
+
 ### snap (N/A, Sat, 15 Aug 2026 13:30:00 -0700)
 
 - **Can the 49ers depend on rookie WR De'Zhaun Stribling?**: [Link](https://www.espn.com/nfl/story/_/id/49609924/san-francisco-49ers-wide-receiver-dezhaun-stribling-preseason-debut)
