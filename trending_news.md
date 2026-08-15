@@ -1,3 +1,17 @@
+### maroc vs algerie (N/A, Sat, 15 Aug 2026 11:00:00 -0700)
+
+- **Les stats d’avant-match : Maroc - Algérie, une médaille de bronze en jeu**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-maroc-algerie-une-medaille-de-bronze-en-jeu/)
+- **CAN féminine Maroc 2026: les Lionnes de l’Atlas reprennent le chemin des entraînements**: [Link](https://frmf.ma/fr/articles/can-feminine-maroc-2026-les-lionnes-de-latlas-reprennent-le-chemin-des-entrainements)
+- **CAN féminine : Maroc-Algérie, un derby maghrébin pour la médaille de bronze**: [Link](https://mobile.telquel.ma/instant-t/2026/08/15/can-feminine-maroc-algerie-un-derby-maghrebin-pour-la-medaille-de-bronze_2003411/)
+
+
+### al ittihad – al-kholood club (N/A, Sat, 15 Aug 2026 11:00:00 -0700)
+
+- **Following his injury against Al-Jazira: what is Diaby's status for the match between Al-Ittihad and Al-Khaleej?**: [Link](https://www.goal.com/en/news/following-his-injury-against-al-jazira-what-is-diaby-s-status-for-the-al-ittihad-and-al-khaleej-match/bltfd4c183fe9382b0b)
+- **Al Ittihad vs Al Kholood prediction and betting tips 15 Аugust 2026**: [Link](https://dailysports.net/predictions/the-hosts-start-the-season-as-clear-favorites-prediction-for-al-ittihad-vs-al-kholood/)
+- **Al Ittihad vs Al-Kholood match lineup | Saudi Pro League · 15 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5969053/Al-Ittihad-Club-vs-Al-Kholood-Club)
+
+
 ### al-nassr fc – al-fateh (N/A, Sat, 15 Aug 2026 10:40:00 -0700)
 
 - **Al-Nassr 0-0 Al Fateh LIVE Score Updates Saudi Pro League Match**: [Link](https://www.vavel.com/en-us/soccer/2026/08/15/1268005-al-nassr-vs-al-fateh-live-score-saudi-pro-league.html)
