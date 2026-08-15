@@ -1,3 +1,10 @@
+### deportivo alavés – getafe (N/A, Sat, 15 Aug 2026 10:30:00 -0700)
+
+- **Alavés - Getafe en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/alaves-getafe/2026/08/15/01_0101_20260815_173_1450-directo.html)
+- **Toni Martínez y Satriano, referencias en el duelo que estrena LaLiga**: [Link](https://www.infobae.com/espana/agencias/2026/08/15/toni-martinez-y-satriano-referencias-en-el-duelo-que-estrena-laliga/)
+- **El Alavés se pone de nuevo en marcha en su refugio de Mendizorroza**: [Link](https://www.elcorreo.com/alaves/alaves-pone-nuevo-marcha-refugio-mendizorroza-20260815001248-nt.html)
+
+
 ### maroc algerie (N/A, Sat, 15 Aug 2026 10:20:00 -0700)
 
 - **Les stats d’avant-match : Maroc - Algérie, une médaille de bronze en jeu**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-maroc-algerie-une-medaille-de-bronze-en-jeu/)
