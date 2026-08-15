@@ -1,3 +1,24 @@
+### frontière entre l'espagne et le maroc (N/A, Sat, 15 Aug 2026 08:00:00 -0700)
+
+- **Fnideq Bab Sebta: déploiement sécuritaire massif, un seul incident ce samedi matin**: [Link](https://medias24.com/2026/08/15/fnideq-bab-sebta-deploiement-securitaire-inedit-un-seul-incident-ce-samedi-matin-1740445/)
+- **Sebta et Melilla: les tentatives d’infiltration collective déjouées par les forces de l’ordre**: [Link](https://fr.le360.ma/societe/sebta-et-melilla-les-tentatives-dinfiltration-collective-dejouees-par-les-forces-de-lordre_E4KDS4I3LBDJNFR6QIXTKDEFEE/)
+- **Ceuta: ce que cachent les appels à traverser la frontière le 15 août**: [Link](https://www.rfi.fr/fr/afrique/20260814-ceuta-ce-que-cachent-les-appels-%C3%A0-traverser-la-fronti%C3%A8re-le-15-ao%C3%BBt)
+
+
+### هزة ارتدادية (N/A, Sat, 15 Aug 2026 07:50:00 -0700)
+
+- **🔥خسائر عقب زلزال بقوة 5 درجات ضرب غرناطة**: [Link](https://tanja7.com/190605/)
+- **زلزال بقوة 5 درجات يضرب جنوب اسبانيا**: [Link](https://dalil-rif.com/permalink/38619.html)
+- **زلزالان يهزان إسبانيا وإندونيسيا في يوم واحد**: [Link](https://sabahagadir.ma/479285.html)
+
+
+### kaizer chiefs – sundowns (N/A, Sat, 15 Aug 2026 07:00:00 -0700)
+
+- **Loads of entertainment for Chiefs vs Sundowns and parking packages available**: [Link](https://en.africatopsports.com/loads-of-entertainment-for-chiefs-vs-sundowns-and-parking-packages-available/)
+- **Kaizer Chiefs vs. Mamelodi Sundowns - Premiership Clash LIVE as it happens**: [Link](https://africa.espn.com/espn/story/_/id/49617355/kaizer-chiefs-vs-mamelodi-sundowns-premiership-clash-live-happens)
+- **Chiefs host Sundowns in early-season heavyweight bout at FNB Stadium**: [Link](https://www.timeslive.co.za/sport/2026-08-15-chiefs-host-sundowns-in-early-season-heavyweight-bout-at-fnb-stadium/)
+
+
 ### ميلان ضد مان يونايتد (N/A, Sat, 15 Aug 2026 07:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة مانشستر يونايتد وميلان الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt7aabaed324dda1f5)
