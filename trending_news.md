@@ -1,3 +1,17 @@
+### إندونيسيا (N/A, Sat, 15 Aug 2026 05:00:00 -0700)
+
+- **زلزال إندونيسيا.. قتلى ومبان منهارة والسلطات تلغي تحذير تسونامي**: [Link](https://www.aljazeera.net/news/2026/8/15/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-7-7-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7%D8%B3-%D8%B1%D9%8A%D8%AE%D8%AA%D8%B1)
+- **زلزال بقوة 7.7 درجات يضرب إندونيسيا ويثير حالة من الذعر**: [Link](https://www.aa.com.tr/ar/vg/%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%B9%D8%B1%D8%B6/-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-77-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A5%D9%86%D8%AF%D9%88%D9%86%D9%8A%D8%B3%D9%8A%D8%A7-%D9%88%D9%8A%D8%AB%D9%8A%D8%B1-%D8%AD%D8%A7%D9%84%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B0%D8%B9%D8%B1/154043)
+- **زلزال بقوة 7.7 درجة في شرق إندونيسيا**: [Link](https://www.hespress.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-7-7-%D8%AF%D8%B1%D8%AC%D8%A9-%D9%81%D9%8A-%D8%B4%D8%B1%D9%82-%D8%A5%D9%86%D8%AF%D9%88%D9%86%D9%8A%D8%B3%D9%8A%D8%A7-1792226.html)
+
+
+### premier league (N/A, Sat, 15 Aug 2026 04:50:00 -0700)
+
+- **Sky Sports just got a rare price cut – and Full HD is included**: [Link](https://www.trustedreviews.com/deals/sky-sports-just-got-a-rare-price-cut-and-full-hd-is-included)
+- **Premier League fans race to get 'lowest ever price' Sky Sports deal before kick-off**: [Link](https://www.walesonline.co.uk/sport/football/football-news/premier-league-sky-sports-deal-34441240)
+- **Virgin Media offers lowest ever Sky Sports price, but we’ve found a cheaper way to stream**: [Link](https://www.express.co.uk/life-style/science-technology/2238191/virgin-media-lowest-sky-sports-price)
+
+
 ### حسام حسن (N/A, Sat, 15 Aug 2026 05:50:00 -0700)
 
 - **مشاجرة بين زوجتي حسام حسن في الساحل الشمالي.. وبلاغ ينتهي بالتنازل**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/15/%D9%85%D8%B4%D8%A7%D8%AC%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B2%D9%88%D8%AC%D8%AA%D9%8A-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A-%D9%88%D8%A8%D9%84%D8%A7%D8%BA-%D9%8A%D9%86%D8%AA%D9%87%D9%8A-%D8%A8%D8%A7%D9%84%D8%AA%D9%86%D8%A7%D8%B2%D9%84)
