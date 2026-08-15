@@ -1,3 +1,10 @@
+### ici tout commence (N/A, Fri, 14 Aug 2026 20:30:00 -0700)
+
+- **Ici tout commence : Bianca attaquée, un départ chez les Teyssier ?… Les moments forts des épisodes du 17 au 21 août 2026**: [Link](https://toutelatele.ouest-france.fr/ici-tout-commence-bianca-attaquee-un-depart-chez-les-teyssier-les-moments-forts-des-episodes-du-17-au-21-aout-2026-188880)
+- **"Il y aura quelques rebondissements" : Alexandra Ferreira (Ici tout commence) se confie sur l'avenir de Bianca et de Loup**: [Link](https://www.programme-tv.net/news/series-tv/406602-il-y-aura-quelques-rebondissements-alexandra-ferreira-ici-tout-commence-se-confie-sur-l-avenir-de-bianca-et-de-loup/)
+- **Ici tout commence du vendredi 14 août 2026 - Episode 1502**: [Link](https://www.tf1.fr/fr-ma/tf1/ici-tout-commence/videos/ici-tout-commence-du-vendredi-14-aout-2026-episode-1502-98522051.html)
+
+
 ### bouznika plage (N/A, Fri, 14 Aug 2026 22:20:00 -0700)
 
 - **Plage de Bouznika: 300 villas et cabanons sommés d’évacuer avant le 15 septembre**: [Link](https://fr.le360.ma/societe/plage-de-bouznika-300-villas-et-cabanons-sommes-devacuer-avant-le-15-septembre_4ZWCL6AQZBDT3J5GX3RF5J7Z74/)
