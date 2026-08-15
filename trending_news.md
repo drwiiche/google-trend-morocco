@@ -1,3 +1,17 @@
+### équipe du sénégal de football (N/A, Sat, 15 Aug 2026 03:00:00 -0700)
+
+- **Sénégal: Pape Thiaw, le sélectionneur limogé des lions de la Téranga, met en demeure la fédération**: [Link](https://www.rfi.fr/fr/afrique/20260814-s%C3%A9n%C3%A9gal-pape-thiaw-le-s%C3%A9lectionneur-limog%C3%A9-des-lions-de-la-t%C3%A9ranga-met-en-demeure-la-f%C3%A9d%C3%A9ration)
+- **Sénégal : limogé, Pape Thiaw réclame une fortune à la FSF**: [Link](https://radiomars.ma/fr/?p=5449)
+- **Sénégal: La polémique enfle après la Coupe du monde 2026**: [Link](https://www.sports.fr/football/senegal-la-polemique-enfle-apres-la-coupe-du-monde-2026-1036767.html)
+
+
+### الاميرة ايمان عبدالله الثاني (N/A, Sat, 15 Aug 2026 01:40:00 -0700)
+
+- **الأردن.. الأميرة إيمان بنت عبدﷲ الثاني ترزق بتوأمين**: [Link](https://arabic.cnn.com/entertainment/article/2026/08/14/jordan-princess-iman-bint-abdullah-ii-gives-birth-to-twins)
+- **الأميرة إيمان بنت عبدالله الثاني ترزق بتوأم من البنات**: [Link](https://www.alarabiya.net/last-page/2026/08/15/%D8%A7%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D8%A9-%D8%A7%D9%8A%D9%85%D8%A7%D9%86-%D8%A8%D9%86%D8%AA-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%AA%D8%B1%D8%B2%D9%82-%D8%A8%D8%AA%D9%88%D8%A7%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D9%86%D8%A7%D8%AA)
+- **الدكتور رفعت الطويل يهنئ الأميرة إيمان بنت عبدالله الثاني بمناسبة المولودتين**: [Link](https://www.ammonnews.net/article/1021361)
+
+
 ### terremoto (N/A, Sat, 15 Aug 2026 01:10:00 -0700)
 
 - **Un terremoto de magnitud 5 sacude Granada sin causar víctimas**: [Link](https://elpais.com/espana/2026-08-15/la-junta-de-anadalucia-activa-la-fase-de-emergencia-por-un-seismo-de-magnitud-cinco-en-granada.html)
