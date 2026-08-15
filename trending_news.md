@@ -1,3 +1,10 @@
+### sevilla vs rayo vallecano (N/A, Sat, 15 Aug 2026 14:00:00 -0700)
+
+- **Sevilla vs Vallecano match lineup | LaLiga · 15 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5868019/Sevilla-FC-vs-Rayo-Vallecano)
+- **Sevilla vs Rayo Vallecano Prediction, Betting Pick, Latest La Liga Odds for Saturday, August 15th Opener**: [Link](https://www.oddschecker.com/us/picks-parlays/soccer/20260815-sevilla-vs-rayo-vallecano-prediction-betting-pick-latest-la-liga-odds-for-saturday-august-15th-opener)
+- **Rayo Vallecano takes early lead against Sevilla with goal from Alvaro Garcia**: [Link](https://cryptobriefing.com/rayo-vallecano-alvaro-garcia-goal-sevilla/)
+
+
 ### sevilla - rayo vallecano (N/A, Sat, 15 Aug 2026 13:50:00 -0700)
 
 - **Sevilla - Rayo Vallecano, en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/sevilla-rayo-vallecano-en-directo-laliga-ea-sports-hoy-en-vivo-f202608-d/)
