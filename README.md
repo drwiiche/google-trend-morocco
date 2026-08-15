@@ -1,3 +1,10 @@
+### ياسين بونو (N/A, Fri, 14 Aug 2026 21:20:00 -0700)
+
+- **يحدث لأول مرة.. رقم كارثي يضرب شباك ياسين بونو مع الهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%AD%D8%AF%D8%AB-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9--%D8%B1%D9%82%D9%85-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B4%D8%A8%D8%A7%D9%83-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%85%D8%B9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt6861a9b61daa1157)
+- **شاهد.. نتيجة وأهداف مباراة الهلال ضد الفيصلي في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+- **الهلال يستهل موسمه بتحقيق فوز كبير على الفيصلي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D9%88%D8%B3%D9%85%D9%87-%D8%A8%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%88%D8%B2-%D9%83%D8%A8%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-2026-08-14)
+
+
 ### apple iphone 18 pro max (N/A, Fri, 14 Aug 2026 20:40:00 -0700)
 
 - **iPhone 18 could get two new Pro-level upgrades, per report**: [Link](https://9to5mac.com/2026/08/12/iphone-18-could-get-two-new-pro-level-upgrades-per-report/)
