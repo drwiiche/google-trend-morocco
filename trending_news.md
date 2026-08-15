@@ -1,3 +1,17 @@
+### galatasaray – çorum fk (N/A, Sat, 15 Aug 2026 05:00:00 -0700)
+
+- **Acil konsantrasyon**: [Link](https://www.nefes.com.tr/yazarlar/tahsin-dogan/acil-konsantrasyon-145315)
+- **Uğur Uçar: '10 kişi kalmasak belki kazanırdık!'**: [Link](https://www.hurriyet.com.tr/spor/videolar/super-lig/video-ugur-ucar-10-kisi-kalmasak-belki-kazanirdik-43274256)
+- **Mame Thiam: Bence 3 puana daha yakındık**: [Link](https://www.cnnturk.com/spor/futbol/mame-thiam-bence-3-puana-daha-yakindik-3454687)
+
+
+### pape thiaw (N/A, Sat, 15 Aug 2026 04:00:00 -0700)
+
+- **Sénégal: Pape Thiaw, le sélectionneur limogé des lions de la Téranga, met en demeure la fédération**: [Link](https://www.rfi.fr/fr/afrique/20260814-s%C3%A9n%C3%A9gal-pape-thiaw-le-s%C3%A9lectionneur-limog%C3%A9-des-lions-de-la-t%C3%A9ranga-met-en-demeure-la-f%C3%A9d%C3%A9ration)
+- **Le football sénégalais se déchire, Pape Thiaw met la Fédération en demeure**: [Link](https://sport.le360.ma/football/le-football-senegalais-se-dechire-pape-thiaw-met-la-federation-en-demeure_KESKGDWRFNBWFHTAZHHFPXBB5U/)
+- **Sénégal : limogé, Pape Thiaw réclame une fortune à la FSF**: [Link](https://radiomars.ma/fr/?p=5449)
+
+
 ### équipe du sénégal de football (N/A, Sat, 15 Aug 2026 03:00:00 -0700)
 
 - **Sénégal: Pape Thiaw, le sélectionneur limogé des lions de la Téranga, met en demeure la fédération**: [Link](https://www.rfi.fr/fr/afrique/20260814-s%C3%A9n%C3%A9gal-pape-thiaw-le-s%C3%A9lectionneur-limog%C3%A9-des-lions-de-la-t%C3%A9ranga-met-en-demeure-la-f%C3%A9d%C3%A9ration)
