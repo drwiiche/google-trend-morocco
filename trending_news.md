@@ -1,3 +1,10 @@
+### grève easyjet (N/A, Sat, 15 Aug 2026 12:10:00 -0700)
+
+- **EasyJet: grève d'hôtesses et stewards en France, une centaine de vols annulés**: [Link](https://medias24.com/agence-presse/easyjet-greve-dhotesses-et-stewards-en-france-une-centaine-de-vols-annules/)
+- **« Il y a aura des annulations de vol » : les hôtesses et stewards d'easyJet parient sur une grève « très suivie » le week-end du 15 août**: [Link](https://www.lesechos.fr/industrie-services/air-defense/il-y-a-aura-des-annulations-de-vol-les-hotesses-et-stewards-deasyjet-parient-sur-une-greve-tres-suivie-le-week-end-du-15-aout-2247005)
+- **Marrakech, Rabat, Essaouira : la grève easyJet frappe les vols vers le Maroc**: [Link](https://www.bladi.net/marrakech-rabat-essaouira-greve-easyjet-frappe-vols-maroc,123143.html)
+
+
 ### إشبيلية ضد رايو فاليكانو (N/A, Sat, 15 Aug 2026 13:30:00 -0700)
 
 - **مواجهة مرتقبة بين إشبيلية ورايو فاييكانو في مستهل مباريات موسم الليغا الجديد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%88%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2026-08-15?videopage=true)
