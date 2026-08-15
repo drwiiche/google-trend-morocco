@@ -1,3 +1,17 @@
+### granada (N/A, Fri, 14 Aug 2026 23:50:00 -0700)
+
+- **Un terremoto de magnitud 5 sacude Granada sin causar víctimas**: [Link](https://elpais.com/espana/2026-08-15/la-junta-de-anadalucia-activa-la-fase-de-emergencia-por-un-seismo-de-magnitud-cinco-en-granada.html)
+- **Terremoto de magnitud 5 en España deja daños materiales**: [Link](https://www.dw.com/es/terremoto-de-magnitud-5-en-espa%C3%B1a-deja-da%C3%B1os-materiales/a-78378360)
+- **Un fuerte terremoto de intensidad 5 sacude Granada de madrugada y causa daños materiales**: [Link](https://www.elmundo.es/espana/2026/08/15/6a7fa8d9fc6c835a148b4599.html)
+
+
+### jason arday (N/A, Fri, 14 Aug 2026 15:40:00 -0700)
+
+- **Jason Arday, ex-Cambridge professor at centre of plagiarism row, found dead**: [Link](https://www.bbc.com/news/articles/c1j1ye6n30no)
+- **Jason Arday, professor at centre of Cambridge plagiarism row, found dead**: [Link](https://www.theguardian.com/uk-news/2026/aug/14/jason-arday-found-dead-after-resigning-from-cambridge-over-plagiarism-claims)
+- **Jason Arday found dead**: [Link](https://www.telegraph.co.uk/news/2026/08/14/jason-arday-found-dead/)
+
+
 ### جائزة الكرة الذهبية (N/A, Fri, 14 Aug 2026 21:30:00 -0700)
 
 - **الإعلام الإسباني يرشح بطل العالم للكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B1%D8%B4%D8%AD-%D8%A8%D8%B7%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt869377cd751f3105)
