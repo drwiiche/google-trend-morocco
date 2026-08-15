@@ -1,3 +1,17 @@
+### flashscore (N/A, Sat, 15 Aug 2026 12:30:00 -0700)
+
+- **Chelsea: Enzo Fernandez booed and Morgan Rogers scores as Xabi Alonso reveals blueprint**: [Link](https://www.bbc.com/sport/football/articles/c36dd10jj09o)
+- **Chelsea’s Enzo Fernandez deadline passes but £120m saga may not be over yet**: [Link](https://www.telegraph.co.uk/football/2026/08/14/chelsea-transfer-news-enzo-fernandez-deadline-man-city-120/)
+- **Manchester City enter unknown territory to compensate for Rodri**: [Link](https://www.goal.com/en/lists/manchester-city-enter-unknown-territory-to-compensate-for-rodri/blt8b8bfc810c38bcfc)
+
+
+### المغرب ضد الجزائر (N/A, Sat, 15 Aug 2026 12:30:00 -0700)
+
+- **ركلات الترجيح تجهض حلم "لبؤات الأطلس" في البرونزية أمام الجزائريات**: [Link](https://www.hespress.com/%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD-%D8%AA%D8%AC%D9%87%D8%B6-%D8%AD%D9%84%D9%85-%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%81-1792580.html)
+- **كأس أمم إفريقيا للسيدات 2026.. المغرب والجزائر في ديربي مغاربي من أجل الميدالية البرونزية**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-2026-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A-20260814)
+- **آخر حصة تدريبية للمنتخب الوطني النسوي قبل مواجهة الجزائر**: [Link](https://frmf.ma/articles/%D8%A2%D8%AE%D8%B1-%D8%AD%D8%B5%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+
+
 ### elbotola (N/A, Sat, 15 Aug 2026 12:20:00 -0700)
 
 
