@@ -1,3 +1,13 @@
+### elbotola (N/A, Sat, 15 Aug 2026 12:20:00 -0700)
+
+
+
+
+### sofascore (N/A, Sat, 15 Aug 2026 12:20:00 -0700)
+
+- **Andres Andrade Jack Pinnington Jones live score and H2H results**: [Link](https://www.sofascore.com/tennis/match/jack-pinnington-jones-andres-andrade/vtrbsPKDc)
+
+
 ### novak djokovic (N/A, Sat, 15 Aug 2026 11:50:00 -0700)
 
 - **Tennishead readers think the clear favourite for the Cincinnati Open title is not Novak Djokovic**: [Link](https://tennishead.net/tennishead-readers-think-the-clear-favourite-for-the-cincinnati-open-title-is-not-novak-djokovic/)
