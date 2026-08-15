@@ -1,3 +1,10 @@
+### bouznika plage (N/A, Fri, 14 Aug 2026 22:20:00 -0700)
+
+- **Plage de Bouznika: 300 villas et cabanons sommés d’évacuer avant le 15 septembre**: [Link](https://fr.le360.ma/societe/plage-de-bouznika-300-villas-et-cabanons-sommes-devacuer-avant-le-15-septembre_4ZWCL6AQZBDT3J5GX3RF5J7Z74/)
+- **Démolition à Bouznika Plage : les mises en demeure sont tombées, les résidents s'organisent**: [Link](https://ledesk.ma/2026/08/11/demolition-a-bouznika-plage-les-mises-en-demeure-sont-tombees-les-residents-sorganisent/)
+- **Bouznika, une petite ville paisible dans le viseur de la prédation immobilière**: [Link](https://www.challenge.ma/bouznika-une-petite-ville-paisible-dans-le-viseur-de-la-predation-immobiliere-323382/)
+
+
 ### ياسين بونو (N/A, Fri, 14 Aug 2026 21:20:00 -0700)
 
 - **يحدث لأول مرة.. رقم كارثي يضرب شباك ياسين بونو مع الهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%AD%D8%AF%D8%AB-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9--%D8%B1%D9%82%D9%85-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B4%D8%A8%D8%A7%D9%83-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%85%D8%B9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/blt6861a9b61daa1157)
