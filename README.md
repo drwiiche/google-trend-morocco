@@ -1,3 +1,38 @@
+### everton – lille (N/A, Sat, 15 Aug 2026 06:40:00 -0700)
+
+- **How To Watch: Everton v Lille**: [Link](https://www.evertonfc.com/news/2026/august/15/how-to-watch--everton-v-lille/)
+- **Everton predicted XI vs Lille: Kiernan Dewsbury-Hall out as David Moyes rings changes**: [Link](https://www.goodisonnews.com/match/everton-predicted-xi-vs-lille-kiernan-dewsbury-hall-out-as-david-moyes-rings-changes)
+- **Everton vs Lille: Starting Lineups, TV and Live Streams, How to Watch Online**: [Link](https://royalbluemersey.sbnation.com/everton-2026-27-season-premier-league/82074/everton-vs-lille-starting-lineups-tv-live-streams-how-to-watch-online-preseason-friendly)
+
+
+### mönchengladbach – aston villa (N/A, Sat, 15 Aug 2026 06:40:00 -0700)
+
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/august/15/memberships-prematch-how-to-watch-monchengladbach-v-villa/)
+- **Borussia Mönchengladbach vs Aston Villa LIVE Score Updates in Friendly Match**: [Link](https://www.vavel.com/en-us/soccer/2026/08/15/1267974-borussia-gladbach-vs-aston-villa-live-score-friendly.html)
+- **Predicted Aston Villa XI vs Borussia Monchengladbach after double injury blow**: [Link](https://readastonvilla.com/2026/08/14/predicted-aston-villa-xi-vs-borussia-monchengladbach-after-double-injury-blow/)
+
+
+### newcastle – leverkusen (N/A, Sat, 15 Aug 2026 06:30:00 -0700)
+
+- **Confirmed Newcastle United team v Bayer Leverkusen as Woltemade, Wissa, Lewis Miley all start**: [Link](https://www.themag.co.uk/2026/08/confirmed-newcastle-united-team-v-bayer-leverkusen-as-woltemade-wissa-lewis-miley-all-start/)
+- **Latest. Confirmed line-up: Miley brothers start together in opening VisitMalta Weekender fixture**: [Link](https://www.newcastleunited.com/en/news/bayer-leverkusen-h-friendly-team-news-26-27)
+- **Newcastle United major injury update after three-month blow as Matthias Jaissle hands 17y/o first start**: [Link](https://www.shieldsgazette.com/sport/football/newcastle-united/lewis-miley-injury-newcastle-united-8922859)
+
+
+### chelsea (N/A, Sat, 15 Aug 2026 06:20:00 -0700)
+
+- **Enzo Fernandez: Chelsea expect midfielder to stay after Man City do not make bid**: [Link](https://www.bbc.com/sport/football/articles/c7vgyrl2573o)
+- **The deadline is today: Manchester City are reportedly submitting a huge offer for Rodri's successor**: [Link](https://www.goal.com/en/news/poker-tactic-or-ruthless-toughness-chelsea-are-reportedly-to-receive-a-mega-offer-for-enzo-fernandez-today/blteaae27ac012b98ae)
+- **Maresca on Rodri’s future and rules out Enzo bid before deadline**: [Link](https://hayters.com/maresca-on-rodris-future-and-rules-out-enzo-bid-before-deadline/)
+
+
+### libye (N/A, Sat, 15 Aug 2026 05:10:00 -0700)
+
+- **Libye : nouvelle attaque contre un important réservoir d’essence**: [Link](https://www.lefigaro.fr/international/libye-nouvelle-attaque-contre-un-important-reservoir-d-essence-20260811)
+- **La MANUL s’invite à nouveau dans les bras de fer inter-Libyens**: [Link](https://geotribune.com/20253-la-manul-sinvite-a-nouveau-dans-les-bras-de-fer-inter-libyens.html)
+- **Le Conseil présidentiel libyen appelle au calme à Zaouïa après l'incendie d'un réservoir de carburant**: [Link](https://www.aa.com.tr/fr/monde/le-conseil-pr%C3%A9sidentiel-libyen-appelle-au-calme-%C3%A0-zaou%C3%AFa-apr%C3%A8s-lincendie-dun-r%C3%A9servoir-de-carburant/4024533)
+
+
 ### إندونيسيا (N/A, Sat, 15 Aug 2026 05:00:00 -0700)
 
 - **زلزال إندونيسيا.. قتلى ومبان منهارة والسلطات تلغي تحذير تسونامي**: [Link](https://www.aljazeera.net/news/2026/8/15/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-7-7-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D9%8A%D8%A7%D8%B3-%D8%B1%D9%8A%D8%AE%D8%AA%D8%B1)
