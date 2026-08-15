@@ -1,3 +1,24 @@
+### snap (N/A, Sat, 15 Aug 2026 13:30:00 -0700)
+
+- **Can the 49ers depend on rookie WR De'Zhaun Stribling?**: [Link](https://www.espn.com/nfl/story/_/id/49609924/san-francisco-49ers-wide-receiver-dezhaun-stribling-preseason-debut)
+- **Inman: Five things I learned in 49ers’ preseason opener**: [Link](https://www.mercurynews.com/2026/08/15/49ers-locker-room-preseason-titans/)
+- **De’Zhaun Stribling is in rare company with his preseason debut against the Titans**: [Link](https://www.ninersnation.com/san-francisco-49ers-news/161303/49ers-titans-nfl-dezhaun-stribling-preseason-debut-2026)
+
+
+### الدوري الاسباني (N/A, Sat, 15 Aug 2026 13:30:00 -0700)
+
+- **نجم يونايتد السابق: فليك في حكم المنتهي إذا سمح لمورينيو بهذا الأمر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D9%87%D9%8A-%D8%A7%D9%95%D8%B0%D8%A7-%D8%B3%D9%85%D8%AD-%D9%84%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%A8%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1/bltbe19203b096aaf81)
+- **لماذا يغيب برشلونة وريال مدريد عن افتتاح الدوري الإسباني 2026-2027؟**: [Link](https://www.aljazeera.net/sport/2026/8/15/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7)
+- **لماذا يبدأ الدوري الإسباني من دون برشلونة وريال مدريد؟**: [Link](https://www.alarabiya.net/sport/2026/08/15/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%A8%D8%AF%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D8%AF%D9%88%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-)
+
+
+### بوروسيا دورتموند (N/A, Sat, 15 Aug 2026 13:20:00 -0700)
+
+- **وديا تعادل روما الايطالي ودورتموند الالماني**: [Link](https://elsport.com/news/show/835893/%D9%88%D8%AF%D9%8A%D8%A7-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%84%D8%A7%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%88%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A7%D9%84%D8%A7%D9%84%D9%85%D8%A7%D9%86%D9%8A)
+- **بوروسيا دورتموند وروما يتعادلان 2-2 فى مواجهة ودية مثيرة**: [Link](https://www.youm7.com/story/2026/8/15/%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%88%D8%B1%D9%88%D9%85%D8%A7-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D8%A7%D9%86-2-2-%D9%81%D9%89-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%88%D8%AF%D9%8A%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9/7514496)
+- **القنوات المجانية الناقلة لمباراة روما ودورتموند الودية**: [Link](https://roayahnews.com/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%88%D9%85/)
+
+
 ### grève easyjet (N/A, Sat, 15 Aug 2026 12:10:00 -0700)
 
 - **EasyJet: grève d'hôtesses et stewards en France, une centaine de vols annulés**: [Link](https://medias24.com/agence-presse/easyjet-greve-dhotesses-et-stewards-en-france-une-centaine-de-vols-annules/)
