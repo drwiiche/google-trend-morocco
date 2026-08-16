@@ -1,3 +1,38 @@
+### schalke vs real madrid (N/A, Sun, 16 Aug 2026 07:30:00 -0700)
+
+- **Schalke 04: Real Madrid startet mit Weltstars um Mbappé - diese S04-Elf soll dagegenhalten**: [Link](https://www.reviersport.de/fussball/1bundesliga/a629507---schalke-04-real-madrid-startet-weltstars-um-mbappe-diese-s04-elf-soll-dagegenhalten.html)
+- **Testspiele heute live im TV und LIVE-STREAM: Die Übertragungen am Sonntag, 16. August**: [Link](https://www.dazn.com/de-DE/news/fussball/testspiele-heute-live-tv-livestream-uebertragungen-sonntag-16-august/16isgetzkn2p518k2vvltlmbrm)
+- **Cucurella, Mbappé und Co.: Stars von Real Madrid übernachten in Düsseldorf – Fans jubeln vor Hotel**: [Link](https://rp-online.de/nrw/staedte/duesseldorf/duesseldorf-stars-von-real-madrid-vor-testspiel-im-hyatt-medienhafen_aid-153201197)
+
+
+### fc barcelone (N/A, Sun, 16 Aug 2026 07:30:00 -0700)
+
+- **Sur quelle chaîne et à quelle heure voir Bâle - FC Barcelone ?**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4557103/sur-quelle-chaine-et-a-quelle-heure-voir-bale-fc-barcelone-x)
+- **🚨 Gordon débute : voici le XI du Barça à Bâle**: [Link](https://onefootball.com/fr/news/gordon-debute-voici-le-xi-du-barca-a-bale-43286222)
+- **Quelle est la situation de Hamza Abdelkrim ? Deux joueurs de Barcelone forfaits pour le match amical contre Bâle avant la confrontation face à Al Ahly**: [Link](https://www.goal.com/fr/news/quelle-est-la-situation-de-hamza-abdelkrim-deux-joueurs-de-barcelone-forfaits-pour-le-match-amical-contre-bale-avant-la-confrontation-face-a-al-ahly/blt13ff64278c67a6ca)
+
+
+### barca vs (N/A, Sun, 16 Aug 2026 07:20:00 -0700)
+
+- **Basilea - Barcelona, hoy en directo: amistoso de clubes en vivo**: [Link](https://as.com/futbol/fc-barcelona/basilea-barcelona-hoy-en-directo-amistoso-de-clubes-en-vivo-f202608-d/)
+- **Basilea - Barcelona en directo | Pretemporada 26/27**: [Link](https://www.marca.com/futbol/amistosos-clubes/basilea-barcelona/2026/08/16/01_0111_20260816_481_178-directo.html)
+- **Precaución en el Barça con Pedri y Gavi**: [Link](https://www.sport.es/es/noticias/barca/precaucion-barca-pedri-gavi-133394020)
+
+
+### با العلوي (N/A, Sun, 16 Aug 2026 07:10:00 -0700)
+
+- **الداعية "با العلوي" يغادر دنيا الناس**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A8%D8%A7-%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%A7%D8%B3-1792921.html)
+- **وفاة الداعية « با العلوي » بعد صراع مرير مع المرض – اليوم 24**: [Link](https://alyaoum24.com/2038683.html)
+- **وفاة الشيخ المحبوب با العلوي بعد معاناة مع السرطان**: [Link](https://hnews.ma/111628/)
+
+
+### resultat quinte (N/A, Sun, 16 Aug 2026 07:10:00 -0700)
+
+- **PRIX DU CHAMP DURAND HONG KONG JOCKEY CLUB**: [Link](https://www.equidia.fr/courses/2026-08-15/R1/C3)
+- **Tiercé. Les pronostics de « L'Alsace » pour dimanche 16 août - Prix François André**: [Link](https://www.lalsace.fr/actualite/2026/08/15/les-pronostics-de-l-alsace-pour-dimanche-16-aout-prix-francois-andre)
+- **Les pronos hippiques du dimanche 16 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-16-aout-2026_AD-202608150201.html)
+
+
 ### watford – southampton (N/A, Sun, 16 Aug 2026 06:50:00 -0700)
 
 - **Championship: Build-up, team news, live text & score updates as it happens from across the Championship**: [Link](https://www.bbc.com/sport/football/live/cgjxzg2821nt)
