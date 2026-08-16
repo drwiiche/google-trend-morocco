@@ -1,3 +1,10 @@
+### ufc 330 live (N/A, Sat, 15 Aug 2026 18:20:00 -0700)
+
+- **Jalin Turner vs. Kaue Fernandes prediction, pick for UFC 330**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/08/15/jalin-turner-vs-kaue-fernandes-ufc-330-prediction-expert-pick-time/91314014007/)
+- **UFC 330 Fighter Says Three Ranked Opponents Turned Him Down**: [Link](https://www.mmanews.com/article/kaue-fernandes-ranked-lightweights-turned-down-ufc-330)
+- **UFC 330: Jalin Turner vs. Kaue Fernandes Predictions & Odds**: [Link](https://sports.betmgm.com/en/blog/ufc/330-jalin-turner-kaue-fernandes-predictions-odds-bm05/)
+
+
 ### princesse iman de jordanie (N/A, Sat, 15 Aug 2026 18:30:00 -0700)
 
 
