@@ -1,3 +1,10 @@
+### ajax (N/A, Sun, 16 Aug 2026 09:40:00 -0700)
+
+- **Zagaritis en Veldman met borst vooruit naar Amsterdam: ''De zege op FC Twente geeft vertrouwen''**: [Link](https://www.sc-heerenveen.nl/nieuws/zagaritis-en-veldman-met-borst-vooruit-naar-amsterdam-de-zege-op-fc-twente-geeft-vertrouwen)
+- **Feestje Ajax in jarige Arena loopt uit op kater door late gelijkmaker Heerenveen**: [Link](https://nos.nl/artikel/2627159-feestje-ajax-in-jarige-arena-loopt-uit-op-kater-door-late-gelijkmaker-heerenveen)
+- **Live Eredivisie | Vervanger Mika Godts vergroot Ajax-voorsprong met prachtgoal**: [Link](https://sportnieuws.nl/eredivisie-voetbal/nieuws/live-eredivisie-vervanger-mika-godts-vergroot-ajax-voorsprong-met-prachtgoal-2026081606411492169/)
+
+
 ### جامعة (N/A, Sun, 16 Aug 2026 10:10:00 -0700)
 
 - **تنسيق المرحلة الثانية.. إتاحة تسجيل الرغبات رغم حلول موعد غلق موقع التنسيق**: [Link](https://www.youm7.com/story/2026/8/16/%D8%AA%D9%86%D8%B3%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%A5%D8%AA%D8%A7%D8%AD%D8%A9-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%BA%D8%A8%D8%A7%D8%AA-%D8%B1%D8%BA%D9%85-%D8%AD%D9%84%D9%88%D9%84-%D9%85%D9%88%D8%B9%D8%AF-%D8%BA%D9%84%D9%82/7515495)
