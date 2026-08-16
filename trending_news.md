@@ -1,3 +1,10 @@
+### paris (N/A, Sun, 16 Aug 2026 13:50:00 -0700)
+
+- **Nouvelle médaille d'or pour la France à domicile : Léon Marchand épatant champion d'Europe du 400 m nage libre**: [Link](https://www.lequipe.fr/Natation/Actualites/Nouvelle-medaille-d-or-pour-la-france-a-domicile-leon-marchand-epatant-champion-d-europe-du-400-m-nage-libre/1711512)
+- **Léon Marchand champion d’Europe sur 400 m nage libre : la réinvention du nageur français, qu’on n’attendait pas sur cette distance**: [Link](https://www.lemonde.fr/sport/article/2026/08/16/leon-marchand-champion-d-europe-sur-400-m-nage-libre-la-reinvention-du-nageur-francais-qu-on-n-attendait-pas-sur-cette-distance_6747685_3242.html)
+- **"Ça peut être un tournant pour lui" : Le 400m nage libre, le plus grand défi de Marchand**: [Link](https://www.eurosport.fr/natation/championnats-deurope-2026-ca-peut-etre-un-tournant-pour-lui-le-400m-nage-libre-le-plus-grand-defi-de-leon-marchand_sto23328121/story.shtml)
+
+
 ### apple (N/A, Sun, 16 Aug 2026 14:10:00 -0700)
 
 - **Apple Skipping iPhone 18 Launch This Year**: [Link](https://www.macrumors.com/2026/08/12/apple-skipping-iphone-18-launch-this-year/)
