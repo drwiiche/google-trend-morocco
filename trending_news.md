@@ -1,3 +1,38 @@
+### liverpool vs como (N/A, Sun, 16 Aug 2026 09:30:00 -0700)
+
+- **¿Cómo ver el partido entre Liverpool vs Como en TV y Streaming?**: [Link](https://www.si.com/es-us/futbol/como-ver-el-partido-entre-liverpool-vs-como-en-tv-y-streaming)
+- **Confirmed Liverpool line-up for Como behind-closed-doors friendly**: [Link](https://www.liverpoolfc.com/es/news/confirmed-liverpool-line-como-behind-closed-doors-friendly)
+- **Alineación del partido Liverpool vs Como | Amistosos de Clubes · 16 ago. 2026**: [Link](https://www.ysscores.com/es/lineup/5765327/Liverpool-FC-vs-Como-1907)
+
+
+### erling haaland (N/A, Sun, 16 Aug 2026 09:30:00 -0700)
+
+- **No Rodri! Enzo Maresca reveals two Man City stars in leadership group as search for new captain continues**: [Link](https://www.goal.com/en/lists/rodri-enzo-maresca-man-city-captain-erling-haaland-ruben-dias/bltc74da42828bec8f4)
+- **Man City Boss Makes Erling Haaland Decision as Club Faces Captaincy Shake-Up**: [Link](https://heavy.com/sports/soccer/man-city-boss-erling-haaland-captaincy/)
+- **Enzo Maresca opens up on captaincy decision vs Arsenal as Ruben Dias wears armband**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/ruben-dias-been-named-man-34467043)
+
+
+### girona – leganés (N/A, Sun, 16 Aug 2026 09:20:00 -0700)
+
+- **Girona FC vs CD Leganés: horario, alineaciones y minuto a minuto | LaLiga Hypermotion 26-27**: [Link](https://rtvc.es/girona-fc-vs-cd-leganes-j1-laliga-hypermotion-26-27/)
+- **Montilivi decide los deberes pendientes**: [Link](https://as.com/futbol/segunda/montilivi-decide-los-deberes-pendientes-f202608-n/)
+- **Horario, canal y dónde ver por TV el Girona - Leganés de LaLiga Hypermotion**: [Link](https://www.mundodeportivo.com/horarios/futbol/20260816/1004216356/horario-canal-ver-tv-girona-leganes-laliga-hypermotion.html)
+
+
+### ceuta (N/A, Sun, 16 Aug 2026 09:10:00 -0700)
+
+- **Última hora de la entrada de inmigrantes a Ceuta, en directo | La ministra de Sanidad comunica que han atendido a 5.800 migrantes en Ceuta: “El hospital está ocupado a la mitad. No hay colapso”**: [Link](https://elpais.com/espana/2026-08-16/ultima-hora-de-la-entrada-de-inmigrantes-a-ceuta-en-directo.html)
+- **García niega colapso y denuncia como “xenófobo” el discurso sanitario sobre la migración**: [Link](https://es.rue20.com/2026/08/16/garcia-niega-colapso-y-denuncia-como-xenofobo-el-discurso-sanitario-sobre-la-migracion/)
+- **La Ciudad insta a la Ministra de Sanidad a que atienda las demandas del colectivo sanitario**: [Link](https://www.rtvce.es/articulo/politica/ciudad-insta-ministra-sanidad-que-atienda-demandas-colectivo-sanitario-que-enfoque-grave-situacion-que-vive-ceuta/20260816154604102195.html)
+
+
+### burnley – west ham (N/A, Sun, 16 Aug 2026 08:40:00 -0700)
+
+- **Burnley v West Ham: Championship – live**: [Link](https://www.theguardian.com/football/live/2026/aug/16/burnley-v-west-ham-championship-live)
+- **SlipsTips’ Tips: Take foul angle at Turf Moor on Sunday**: [Link](https://mrfixitstips.co.uk/slipstips-tips-take-foul-angle-at-turf-moor-on-sunday/)
+- **Coral Sign Up Offer: Earn £30 for Burnley v West Ham, When you Bet £5**: [Link](https://www.oddschecker.com/insight/football/20260816-coral-sign-up-offer-earn-30-for-burnley-v-west-ham-when-you-bet-5)
+
+
 ### real madrid tv (N/A, Sun, 16 Aug 2026 08:20:00 -0700)
 
 - **Schalke 04 vs Real Madrid: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-schalke-04-v-real-madrid/blte74f8187335eba41)
