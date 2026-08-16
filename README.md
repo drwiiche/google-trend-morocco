@@ -1,3 +1,45 @@
+### real madrid tv (N/A, Sun, 16 Aug 2026 08:20:00 -0700)
+
+- **Schalke 04 vs Real Madrid: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-schalke-04-v-real-madrid/blte74f8187335eba41)
+- **Man Utd vs Leeds LIVE: Latest score and updates from pre-season friendly**: [Link](https://www.standard.co.uk/sport/football/man-utd-vs-leeds-live-stream-latest-score-updates-result-preseason-friendly-b1293193.html)
+- **Irish Challenge 2026: Best Pictures: Before the tournament – Photo 54/54**: [Link](https://www.golfpost.com/galleries/irish-challenge-2026-bilder-1786562608-en/54/)
+
+
+### بث مباشر (N/A, Sun, 16 Aug 2026 08:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة شالكه وريال مدريد الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B4%D8%A7%D9%84%D9%83%D9%87-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb584427e5e901ea3)
+- **ريال مدريد يضع اللمسات الأخيرة على تحضيراته استعداداً للموسم الجديد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B6%D8%B9-%D8%A7%D9%84%D9%84%D9%85%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-2026-08-14)
+- **ما القنوات الناقلة لمباراة شالكه وريال مدريد الودية التحضرية لموسم 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B4%D8%A7%D9%84%D9%83%D9%87-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D8%B1%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt8a2e4ed107fba024)
+
+
+### matchs amicaux (N/A, Sun, 16 Aug 2026 08:10:00 -0700)
+
+- **Stade Brestois : Le coup dur pour Lachuer et Brest**: [Link](https://morning-foot.com/ligue-1/brest/stade-brestois-coup-dur-lachuer-brest/)
+- **Composition du match Nottingham – Brestois | Matchs amicaux de clubs · 16 août 2026**: [Link](https://www.ysscores.com/fr/lineup/5899097/Nottingham-Forest-vs-Stade-Brestois-29)
+- **Des Brestois apathiques s'inclinent contre Nottingham Forest**: [Link](https://www.sofoot.com/breves/amical-brest-sincline-face-a-nottingham-forest-a-une-semaine-de-la-reprise-de-la-ligue-1-et-continue-dinquieter)
+
+
+### barca (N/A, Sun, 16 Aug 2026 08:10:00 -0700)
+
+- **Basel vs Barcelona: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c64gj8g19584t)
+- **How to Watch Basel vs. Barcelona on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-basel-vs-barcelona-on-tv-live-stream-8-16-26)
+- **🚨 Gordon debuts: Barcelona's XI in Basel**: [Link](https://sports.yahoo.com/articles/gordon-debuts-barcelonas-xi-basel-132600657.html)
+
+
+### yalla kora (N/A, Sun, 16 Aug 2026 08:10:00 -0700)
+
+- **الصفقة السابعة.. الأهلي يتعاقد مع بديل بلعمري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D8%B9%D8%A9--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A8%D8%AF%D9%8A%D9%84-%D8%A8%D9%84%D8%B9%D9%85%D8%B1%D9%8A/bltf56ecc5aa0a13e54)
+- **الأهلي يعلن إصابة المغربي بلعمري بقطع في الرباط الصليبي**: [Link](https://www.aljazeera.net/sport/2026/8/13/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D9%84%D8%B9%D9%85%D8%B1%D9%8A)
+- **الأهلي يرفع اسم بلعمري ويقيد رضا سليم بدلاً منه**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D8%A7%D8%B3%D9%85-%D8%A8%D9%84%D8%B9%D9%85%D8%B1%D9%8A-%D9%88%D9%8A%D9%82%D9%8A%D8%AF-%D8%B1%D8%B6%D8%A7-%D8%B3%D9%84%D9%8A%D9%85-%D8%A8%D8%AF%D9%84%D8%A7-%D9%85%D9%86%D9%87/24124)
+
+
+### club friendlies (N/A, Sun, 16 Aug 2026 08:10:00 -0700)
+
+- **Toure starts, Jaouen returns - Confirmed Newcastle and Strasbourg team news**: [Link](https://nufcblog.co.uk/toure-starts-jaouen-returns-confirmed-newcastle-and-strasbourg-team-news-39032)
+- **Least I got to see and taste some actual Knox hydrate, leaves a similar taste in the mouth as NUFC**: [Link](https://www.themag.co.uk/2026/08/least-i-got-to-see-and-taste-some-actual-knox-hydrate-leaves-a-similar-taste-in-the-mouth-as-nufc-newcastle-united/)
+- **Preseason: Newcastle vs. Strasbourgh — Match Thread**: [Link](https://cominghomenewcastle.sbnation.com/newcastle-united-match-threads/24421/preseason-newcastle-vs-strasbourgh-match-thread)
+
+
 ### real madrid (N/A, Sun, 16 Aug 2026 08:00:00 -0700)
 
 - **Schalke - Real Madrid, en directo: amistoso de pretemporada hoy, en vivo**: [Link](https://as.com/futbol/primera/schalke-real-madrid-en-directo-amistoso-de-pretemporada-hoy-en-vivo-f202608-d/)
