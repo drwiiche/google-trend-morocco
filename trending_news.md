@@ -1,3 +1,10 @@
+### islam makhachev vs ian garry live (N/A, Sat, 15 Aug 2026 18:00:00 -0700)
+
+- **Official Scorecards | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-official-scorecards)
+- **UFC 330 Livestream: Here's Where to Watch the Makhachev vs. Machado Garry Online for Free**: [Link](https://variety.com/2026/shopping/news/how-to-watch-ufc-330-makhachev-vs-machado-garry-live-online-free-1236833641/)
+- **UFC 330 fight card predictions: Expert picks, odds for Islam Makhachev vs. Ian Garry in Philadelphia**: [Link](https://www.cbssports.com/ufc/news/ufc-330-fight-card-predictions-islam-makhachev-vs-ian-garry-expert-picks/)
+
+
 ### kick (N/A, Sat, 15 Aug 2026 20:50:00 -0700)
 
 - **Who is Ozemi? Kick streamer confronts female streamer in Japan after controversial exchange**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/who-is-ozemi-kick-streamer-confronts-female-streamer-in-japan-after-controversial-exchange/articleshow/133268786.cms)
