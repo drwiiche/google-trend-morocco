@@ -1,3 +1,29 @@
+### meteo (N/A, Sun, 16 Aug 2026 01:40:00 -0700)
+
+
+
+
+### جمال موسيالا (N/A, Sun, 16 Aug 2026 01:30:00 -0700)
+
+- **بعد انهياره المرعب.. بايرن كشف عن حالة موسيالا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1%D9%87-%D8%A7%D9%84%D9%85%D8%B1%D8%B9%D8%A8--%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7/blte1c93da90898ae25)
+- **صيباري بطل مزدوج مع بايرن ميونخ.. يصنع هدفا وينقذ موسيالا من الإغماء (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/8/15/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%A8%D8%A7%D9%8A%D8%B1-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7)
+- **بايرن يهزم لايبزيغ.. والصيباري يصنع أول أهدافه مع الفريق**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%BA-%D9%88%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B5%D9%86%D8%B9-%D8%A3%D9%88%D9%84-%D8%A3%D9%87%D8%AF%D8%A7%D9%81%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82/24146)
+
+
+### إيران (N/A, Sat, 15 Aug 2026 23:30:00 -0700)
+
+- **الحرس الثوري: قطر ترفض إدخال لجنة للتحقيق بمصير طيارين إيرانيين**: [Link](https://www.alarabiya.net/iran/2026/08/16/%D8%A7%D9%84%D8%AD%D8%B1%D8%B3-%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D9%8A-%D9%82%D8%B7%D8%B1-%D8%AA%D8%B1%D9%81%D8%B6-%D8%A7%D8%AF%D8%AE%D8%A7%D9%84-%D9%84%D8%AC%D9%86%D8%A9-%D9%84%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A8%D9%85%D8%B5%D9%8A%D8%B1-%D8%B7%D9%8A%D8%A7%D8%B1%D9%8A%D9%86-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D9%8A%D9%86)
+- **قطر تنفي احتجاز طيارين إيرانيين، بعد مطالبات طهران بالكشف عن مصيرهم**: [Link](https://www.bbc.com/arabic/articles/c1411l05xkvo)
+- **بعد "أزمة الطيارين".. إيران تطالب قطر بدخول فريق تقصي حقائق**: [Link](https://www.skynewsarabia.com/middle-east/1886390-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%B7%D9%8A%D8%A7%D8%B1%D9%8A%D9%86-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B7%D8%A7%D9%84%D8%A8-%D9%82%D8%B7%D8%B1-%D8%A8%D8%AF%D8%AE%D9%88%D9%84-%D9%81%D8%B1%D9%8A%D9%82-%D8%AA%D9%82%D8%B5%D9%8A-%D8%AD%D9%82%D8%A7%D8%A6%D9%82)
+
+
+### ian garry (N/A, Sat, 15 Aug 2026 17:30:00 -0700)
+
+- **Main Card Results | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-islam-makhachev-vs-ian-machado-garry-results)
+- **UFC 330 fight card predictions: Expert picks, odds for Islam Makhachev vs. Ian Garry in Philadelphia**: [Link](https://www.cbssports.com/ufc/news/ufc-330-fight-card-predictions-islam-makhachev-vs-ian-garry-expert-picks/)
+- **UFC 330 Livestream: Here's Where to Watch the Makhachev vs. Machado Garry Online for Free**: [Link](https://variety.com/2026/shopping/news/how-to-watch-ufc-330-makhachev-vs-machado-garry-live-online-free-1236833641/)
+
+
 ### makhachev vs garry (N/A, Sat, 15 Aug 2026 18:10:00 -0700)
 
 - **Main Card Results | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-islam-makhachev-vs-ian-machado-garry-results)
