@@ -1,3 +1,24 @@
+### tottenham – hoffenheim (N/A, Sun, 16 Aug 2026 03:50:00 -0700)
+
+- **Tottenham 3-0 Hoffenheim: Mikey Moore double gives Spurs comfortable Hoffenheim win**: [Link](https://www.bbc.com/sport/football/live/cmvgwk4j7w21t)
+- **Mikey Moore shows Rangers fans what they're missing in star showing for Spurs**: [Link](https://www.thescottishsun.co.uk/sport/16691371/mikey-moore-masterclass-rangers-fans-spurs-supporters-rave/)
+- **Tottenham outclass Hoffenheim: Does Richarlison start? Should Moore stay? Has Bergvall got a Spurs future?**: [Link](https://www.nytimes.com/athletic/7515213/2026/08/15/tottenham-hoffenheim-richarlison-moore-takeaways/)
+
+
+### مطر (N/A, Sun, 16 Aug 2026 02:40:00 -0700)
+
+- **العاصفة "لا لا" تهدد الجزيرة الكبيرة في هاواي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D9%84%D8%A7-%D9%84%D8%A7-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-1792323.html)
+- **الإعصار "لالا" يلامس جزيرة هاواي الكبرى**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260816-%D8%A7%D9%84%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D9%84%D8%A7%D9%84%D8%A7-%D9%8A%D9%84%D8%A7%D9%85%D8%B3-%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%87%D8%A7%D9%88%D8%A7%D9%8A-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89)
+- **هاواي تستعد للأسوأ.. العاصفة «لالا» تقترب وتحذيرات من فيضانات وانهيارات**: [Link](https://al-ain.com/video/tropical-storm-la-la-hawaii/)
+
+
+### avengers doomsday (N/A, Sat, 15 Aug 2026 23:20:00 -0700)
+
+- **Hugh Jackman And Ryan Reynolds Hint At Another Deadpool, Wolverine Collaboration After 2024 Film**: [Link](https://www.zoomtventertainment.com/hollywood/hugh-jackman-teases-wolverine-deadpool-collaboration-d23-expo-article-155692779)
+- **Deadpool and Wolverine Doomsday pitch: Jackman asks Marvel**: [Link](https://tbreak.com/jackman-reynolds-doomsday-d23-pitch/)
+- **Hugh Jackman teases Avengers: Doomsday appearance as dark new trailer arrives**: [Link](https://uk.movies.yahoo.com/hugh-jackman-teases-avengers-doomsday-051100250.html)
+
+
 ### سجن (N/A, Sun, 16 Aug 2026 01:50:00 -0700)
 
 - **توقيف "مؤثرة" بتهمة الإخلال بالحياء**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D9%84%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A1-1791240.html)
