@@ -1,3 +1,23 @@
+### جامعة (N/A, Sun, 16 Aug 2026 10:10:00 -0700)
+
+- **تنسيق المرحلة الثانية.. إتاحة تسجيل الرغبات رغم حلول موعد غلق موقع التنسيق**: [Link](https://www.youm7.com/story/2026/8/16/%D8%AA%D9%86%D8%B3%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%A5%D8%AA%D8%A7%D8%AD%D8%A9-%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%BA%D8%A8%D8%A7%D8%AA-%D8%B1%D8%BA%D9%85-%D8%AD%D9%84%D9%88%D9%84-%D9%85%D9%88%D8%B9%D8%AF-%D8%BA%D9%84%D9%82/7515495)
+- **قبل إغلاق موقع التنسيق.. موعد انتهاء تسجيل رغبات المرحلة الثانية 2026 في مصر**: [Link](https://al-ain.com/article/phase-two-tansik-2026)
+- **قبل ساعات من إغلاق التسجيل، الكليات والمعاهد المتاحة لطلاب علمي علوم فى تنسيق المرحلة الثانية 2026**: [Link](https://www.vetogate.com/5712497)
+
+
+### espanyol – levante (N/A, Sun, 16 Aug 2026 10:00:00 -0700)
+
+- **Cómo ver Espanyol vs Levante gratis desde cualquier país**: [Link](https://cybernews.com/es/ver-online/ver-espanyol-vs-levante-laliga-gratis-16-08-2026/)
+- **Espanyol - Levante en directo - La Liga: Resultados y resúmenes de Fútbol - 16/08/2026**: [Link](https://www.eurosport.es/futbol/la-liga/2026-2027/live-espanyol-levante_mtc21891455/live.shtml)
+- **Convocatoria para el Espanyol-Levante**: [Link](https://www.rcdespanyol.com/es/noticia/convocatoria-para-el-espanyollevante/20613)
+
+
+### تيبو كورتوا (N/A, Sun, 16 Aug 2026 10:00:00 -0700)
+
+- **كورتوا يتقدم المودعين.. رحيل اسم بارز في ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D9%88%D8%AF%D8%B9%D9%8A%D9%86--%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D8%B3%D9%85-%D8%A8%D8%A7%D8%B1%D8%B2-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltd33b52a1fcfebe0e)
+- **ريال مدريد يودّع مدرب حراس المرمى بعد عقدين من العمل**: [Link](https://elsport.com/news/show/835979/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%88%D8%AF%D9%91%D8%B9-%D9%85%D8%AF%D8%B1%D8%A8-%D8%AD%D8%B1%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%B1%D9%85%D9%89-%D8%A8%D8%B9%D8%AF-%D8%B9%D9%82%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%B9%D9%85%D9%84)
+
+
 ### états-unis (N/A, Sun, 16 Aug 2026 09:40:00 -0700)
 
 - **Donald Trump fait réagir Téhéran en déclarant vouloir proclamer le détroit d’Ormuz « territoire des Etats-Unis » après la guerre**: [Link](https://www.lemonde.fr/guerre-au-proche-orient/article/2026/08/15/donald-trump-fait-reagir-teheran-en-declarant-vouloir-proclamer-le-detroit-d-ormuz-territoire-des-etats-unis-apres-la-guerre_6746497_6325529.html)
