@@ -1,3 +1,10 @@
+### ligue 1 (N/A, Sun, 16 Aug 2026 12:40:00 -0700)
+
+- **L’offre inratable pour suivre le Trophée des Champions et la Liga !**: [Link](https://www.footmercato.net/a1095414683055670571-loffre-inratable-pour-suivre-le-trophee-des-champions-et-la-liga)
+- **Foot à la télé : le meilleur bouquet pour moins de 50 euros**: [Link](https://www.football365.fr/foot-a-la-tele-le-meilleur-bouquet-pour-moins-de-50-euros-10308569.html)
+- **DAZN : Abonnements, offres, matchs... tout ce qu'il faut savoir pour suivre la Ligue 1 sur Ligue 1+, La Liga etc**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/dazn-abonnements-offres-matchs-tout-ce-qu-il-faut-savoir-pour-suivre-la-ligue-1-sur-ligue-1-la-liga-etc_AB-202608150020.html)
+
+
 ### cameroun vs malawi (N/A, Sun, 16 Aug 2026 13:00:00 -0700)
 
 - **CAN féminine Maroc-2026 (match de classement): les Lionnes de l'Atlas terminent 4èmes**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%8A%D8%AD%D8%AA%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9-%D9%81%D9%8A-%D9%83%D8%A7%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
