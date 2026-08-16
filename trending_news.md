@@ -1,3 +1,24 @@
+### cristiano ronaldo (N/A, Sun, 16 Aug 2026 14:40:00 -0700)
+
+- **'Probably my last year' - Ronaldo hints at retirement**: [Link](https://www.bbc.com/sport/football/articles/c3300lxjz7lo)
+- **Cristiano Ronaldo suggests 2027 could mark his retirement from professional football**: [Link](https://www.beinsports.com/en-us/soccer/articles/cristiano-ronaldo-surprises-with-a-revelation-about-his-future-that-could-mark-the-end-of-an-era-2026-08-16)
+- **Cristiano Ronaldo Says This Is ‘Probably’ His Last Year of Soccer, Reveals His Retirement Plans**: [Link](https://www.imdb.com/news/ni65974725/?ref_=nwc_art_perm)
+
+
+### هجرة (N/A, Sun, 16 Aug 2026 14:30:00 -0700)
+
+- **تصعيد إيطالي ضد المغرب يعيد "أزمة سبتة والهجرة" إلى المربع الأول**: [Link](https://www.hespress.com/%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A3%D8%B2%D9%85%D8%A9-%D8%B3%D8%A8%D8%AA%D8%A9-1793048.html)
+- **ميلوني تحشد أوروبا ضد "الهجرة المنفلتة".. هل تقود قواعد دبلن إلى مواجهة مع برلين؟**: [Link](https://www.aljazeera.net/news/2026/8/10/%D9%85%D9%8A%D9%84%D9%88%D9%86%D9%8A-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-%D8%AC%D8%A8%D9%87%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%87%D9%84)
+- **الهجرة واللجوء في أوروبا ـ كيف ينظر الراي العام الأوروبي إلى قضية الهجرة؟**: [Link](https://www.europarabct.com/%D8%A7%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D8%A7%D9%84%D9%84%D8%AC%D9%88%D8%A1-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%80-%D9%83%D9%8A%D9%81-%D9%8A%D9%86%D8%B8%D8%B1-%D8%A7%D9%84%D8%B1%D8%A7/)
+
+
+### cdiscount (N/A, Sun, 16 Aug 2026 14:20:00 -0700)
+
+- **Ce robot culinaire Bosch à moins de 70 € fait l’unanimité chez Cdiscount**: [Link](https://www.20minutes.fr/guide-achat/guide-achat-bon-plan-cdiscount/4239187-20260816-robot-culinaire-bosch-moins-70-fait-unanimite-chez-cdiscount)
+- **Le Samsung Galaxy S26 n’avait jamais atteint un prix pareil depuis sa sortie**: [Link](https://www.20minutes.fr/guide-achat/bon-plan-rakuten/4238853-20260813-samsung-galaxy-s26-jamais-atteint-prix-pareil-depuis-sortie)
+- **Le Galaxy S25 FE est à moins de 375 € avec ses 7 ans de mises à jour !**: [Link](https://www.edcom.fr/actualites/le-galaxy-s25-fe-est-a-moins-de-375-avec-ses-7-ans-de-mises-a-jour)
+
+
 ### neymar (N/A, Sun, 16 Aug 2026 14:20:00 -0700)
 
 - **La disputa entre Neymar y Thiago Mendes se reaviva, y la estrella del Vasco desaira al superastro del Santos en un frío intercambio de apretones de manos**: [Link](https://www.goal.com/es-mx/listados/la-disputa-entre-neymar-y-thiago-mendes-se-reaviva-y-la-estrella-del-vasco-desaira-al-superastro-del-santos-en-un-frio-intercambio-de-apretones-de-manos/blt984a1e21d3dd4a37)
