@@ -1,3 +1,10 @@
+### jason arday (N/A, Sun, 16 Aug 2026 01:10:00 -0700)
+
+- **Jason Arday death 'tragedy on so many levels' says PM**: [Link](https://www.bbc.com/news/articles/c9982znvyk4o)
+- **Jason Arday, professor at centre of Cambridge plagiarism row, found dead**: [Link](https://www.theguardian.com/uk-news/2026/aug/14/jason-arday-found-dead-after-resigning-from-cambridge-over-plagiarism-claims)
+- **Cambridge professor found dead after scrutiny over academic record faced ‘sustained abuse,’ family say**: [Link](https://www.cnn.com/2026/08/15/uk/jason-arday-plagiarism-cambridge-dead-intl)
+
+
 ### arsenal (N/A, Sun, 16 Aug 2026 04:10:00 -0700)
 
 - **Every word from Arteta's pre-Community Shield presser**: [Link](https://www.arsenal.com/news/every-word-from-artetas-pre-community-shield-presser-aNRVh6w28qOL)
