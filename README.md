@@ -1,3 +1,24 @@
+### lens – paris-sg (N/A, Sun, 16 Aug 2026 11:00:00 -0700)
+
+- **Après la Supercoupe d'Europe, un retour en France périlleux pour le PSG**: [Link](https://www.eurosport.fr/football/trophee-des-champions/2026/trophee-des-champions-le-psg-se-frotte-a-lens-apres-des-debuts-valides-contre-aston-villa-pour-une-adversite-plus-dure-a-manoeuvrer_sto23328268/story.shtml)
+- **Joao Neves, Mika Godts et Ferran Torres absents : le groupe du PSG pour affronter Lens au Trophée des champions**: [Link](https://www.lequipe.fr/Football/Actualites/Joao-neves-mika-godts-et-ferran-torres-absents-le-groupe-du-psg-pour-affronter-lens-au-trophee-des-champions/1711416)
+- **RC Lens - PSG : les compositions probables**: [Link](https://www.footmercato.net/a557654620886272075-rc-lens-psg-les-compositions-probables)
+
+
+### jamal musiala (N/A, Sun, 16 Aug 2026 09:50:00 -0700)
+
+- **Jamal Musiala collapses during Bayern Munich friendly as team-mate catches him**: [Link](https://www.thesun.co.uk/sport/40070920/jamal-musiala-collapses-bayern-munich-ismael-saibari-rb-leipzig/)
+- **Top US Middle East commander visits deployed aircraft carrier, and other Mideast news**: [Link](https://www.couriernews.com/news/national/top-us-middle-east-commander-visits-deployed-aircraft-carrier-and-other-mideast-news/article_b24246fa-c1cb-5319-846b-53f6f142c53b.html)
+- **Bayern Munich’s Max Eberl unsure of extent of Konrad Laimer’s injury**: [Link](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/243834/bayern-munichs-max-eberl-unsure-of-extent-of-konrad-laimers-injury)
+
+
+### liverpool (N/A, Sun, 16 Aug 2026 09:50:00 -0700)
+
+- **Liverpool vs Como: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqrl71ly2l65t)
+- **Liverpool 0, Como 0 - Behind Closed Doors Match Recap**: [Link](https://liverpooloffside.sbnation.com/liverpool-fc-match-coverage/82714/liverpool-0-como-0-behind-closed-doors-match-recap)
+- **One Liverpool signing has all fans saying the same thing after behind-closed doors friendly**: [Link](https://readliverpoolfc.com/match-reviews/one-liverpool-signing-has-all-fans-saying-the-same-thing-after-behind-closed-doors-friendly/)
+
+
 ### ajax (N/A, Sun, 16 Aug 2026 09:40:00 -0700)
 
 - **Zagaritis en Veldman met borst vooruit naar Amsterdam: ''De zege op FC Twente geeft vertrouwen''**: [Link](https://www.sc-heerenveen.nl/nieuws/zagaritis-en-veldman-met-borst-vooruit-naar-amsterdam-de-zege-op-fc-twente-geeft-vertrouwen)
