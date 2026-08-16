@@ -1,3 +1,10 @@
+### espagne (N/A, Sun, 16 Aug 2026 00:50:00 -0700)
+
+- **Une inondation dans le nord-ouest de l'Espagne fait deux morts, deux bébés blessés**: [Link](https://www.france24.com/fr/europe/20260816-des-inondations-dans-le-nord-ouest-de-l-espagne-font-deux-morts-deux-b%C3%A9b%C3%A9s-bless%C3%A9s)
+- **Deux femmes meurent dans des inondations dans le nord-ouest de l’Espagne**: [Link](https://www.medi1news.com/fr/article/405330.html)
+- **Deux morts et des enfants blessés après des inondations au nord-ouest de l’Espagne**: [Link](https://sana.sy/fr/international/2324216/)
+
+
 ### meteo (N/A, Sun, 16 Aug 2026 01:40:00 -0700)
 
 
