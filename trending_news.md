@@ -1,3 +1,10 @@
+### achraf hakimi (N/A, Sun, 16 Aug 2026 13:50:00 -0700)
+
+- **Rodrigo y Cancelo, inminentes**: [Link](https://as.com/futbol/rodrigo-y-cancelo-inminentes-f202608-n/)
+- **Rodri ya es del Barça, acuerdo cerrado con el City**: [Link](https://www.marca.com/futbol/barcelona/2026/08/16/rodri-barca-acuerdo-cerrado-city.html)
+- **Principio de acuerdo Barça-City por Rodri**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260816/1004216688/principio-acuerdo-barca-city-rodri.html)
+
+
 ### ligue 1 (N/A, Sun, 16 Aug 2026 12:40:00 -0700)
 
 - **L’offre inratable pour suivre le Trophée des Champions et la Liga !**: [Link](https://www.footmercato.net/a1095414683055670571-loffre-inratable-pour-suivre-le-trophee-des-champions-et-la-liga)
