@@ -1,3 +1,38 @@
+### real madrid (N/A, Sun, 16 Aug 2026 08:00:00 -0700)
+
+- **Schalke - Real Madrid, en directo: amistoso de pretemporada hoy, en vivo**: [Link](https://as.com/futbol/primera/schalke-real-madrid-en-directo-amistoso-de-pretemporada-hoy-en-vivo-f202608-d/)
+- **Así fue la llegada del Real Madrid a Alemania**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/actualidad/el-real-madrid-ya-esta-en-alemania-15-08-2026)
+- **Schalke 04 - Real Madrid en directo | Último amistoso de la pretemporada en vivo**: [Link](https://www.marca.com/futbol/amistosos-clubes/schalke-04-r-madrid/2026/08/16/01_0111_20260816_167_186-directo.html)
+
+
+### ajax – heerenveen (N/A, Sun, 16 Aug 2026 08:00:00 -0700)
+
+- **Zagaritis en Veldman met borst vooruit naar Amsterdam: ''De zege op FC Twente geeft vertrouwen''**: [Link](https://www.sc-heerenveen.nl/nieuws/zagaritis-en-veldman-met-borst-vooruit-naar-amsterdam-de-zege-op-fc-twente-geeft-vertrouwen)
+- **Live Eredivisie | Ajax leidt dankzij eigen goal Heerenveen-keeper Klaverboer**: [Link](https://www.nu.nl/voetbal/6406486/live-eredivisie-ajax-leidt-dankzij-eigen-goal-heerenveen-keeper-klaverboer.html)
+- **Feyenoord geeft voorsprong weg tegen Eagles • Twente draait het om tegen PEC**: [Link](https://nos.nl/liveblog/2627093-feyenoord-zet-go-ahead-eagles-onder-druk-pec-op-voorsprong-tegen-twente)
+
+
+### وديات الأندية (N/A, Sun, 16 Aug 2026 08:00:00 -0700)
+
+- **جدول مباريات اليوم الأحد 16 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-16-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blte080603bcbe6a920)
+- **مواعيد مباريات اليوم الأحد والقنوات الناقلة.. ظهور عمر مرموش وتجربة برشلونة الأخيرة قبل الأهلي**: [Link](https://www.almasryalyoum.com/news/details/4338771)
+- **مواعيد مباريات اليوم.. آرسنال مع مان سيتي ولانس أمام سان جيرمان**: [Link](https://www.youm7.com/story/2026/8/16/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%85%D8%B9-%D9%85%D8%A7%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%84%D8%A7%D9%86%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%A7%D9%86/7514106)
+
+
+### kooora (N/A, Sun, 16 Aug 2026 07:50:00 -0700)
+
+- **كورتوا يتقدم المودعين.. رحيل اسم بارز في ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D9%88%D8%AF%D8%B9%D9%8A%D9%86--%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D8%B3%D9%85-%D8%A8%D8%A7%D8%B1%D8%B2-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltd33b52a1fcfebe0e)
+- **ريال مدريد يودّع مدرب حراس المرمى بعد عقدين من العمل**: [Link](https://addiyar.com/article/2387384-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%88%D8%AF%D8%B9-%D9%85%D8%AF%D8%B1%D8%A8-%D8%AD%D8%B1%D8%A7%D8%B3-%D8%A7%D9%84%D9%85%D8%B1%D9%85%D9%89-%D8%A8%D8%B9%D8%AF-%D8%B9%D9%82%D8%AF%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%85%D9%84)
+- **تحركات برشلونة تقرب بوعدي من انتزاع عرش حكيمي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D8%B1%D9%83%D8%A7%D8%AA-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AA%D9%82%D8%B1%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%85%D9%86-%D8%A7%D9%86%D8%AA%D8%B2%D8%A7%D8%B9-%D8%B9%D8%B1%D8%B4-%D8%AD%D9%83%D9%8A%D9%85%D9%8A/bltde97a01d423e5dde)
+
+
+### schalke 04 - real madrid (N/A, Sun, 16 Aug 2026 07:50:00 -0700)
+
+- **Possible Lineups: Schalke 04 vs. Real Madrid in International Friendly**: [Link](https://www.beinsports.com/en-us/soccer/friendlies/articles/possible-lineups-schalke-04-vs-real-madrid-in-international-friendly-2026-08-16)
+- **Miron Muslic: It’s a privilege to welcome Real Madrid**: [Link](https://schalke04.de/en/friendly-en/muslic-real-madrid-preview-2627/)
+- **The last time in Gelsenkirchen**: [Link](https://www.managingmadrid.com/real-madrid-cf-history/111298/the-last-time-in-gelsenkirchen)
+
+
 ### santander – villarreal (N/A, Sun, 16 Aug 2026 07:40:00 -0700)
 
 - **Sunday's La Liga predictions and previews including Racing de Santander vs. Villarreal**: [Link](https://www.sportsmole.co.uk/football/villarreal/feature/villarreal-to-start-with-a-win-sundays-la-liga-predictions-and-previews_603053.html)
