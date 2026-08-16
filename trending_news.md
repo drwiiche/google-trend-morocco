@@ -1,3 +1,10 @@
+### yacine titraoui (N/A, Sun, 16 Aug 2026 13:40:00 -0700)
+
+- **EN : Déjà sacré avec le RC Lens, Titraoui oh oui !**: [Link](https://www.footafrique.com/en-deja-sacre-avec-le-rc-lens-titraoui-oh-oui/)
+- **Sports - Baptème du feu pour Titraoui**: [Link](https://www.lexpressiondz.com/sports/bapteme-du-feu-pour-titraoui-408535)
+- **RC Lens Mercato : Titraoui fait déjà des envieux à Marseille**: [Link](https://www.butfootballclub.fr/1691020-rc-lens-mercato-titraoui-fait-deja-des-envieux-a-marseille/)
+
+
 ### paris (N/A, Sun, 16 Aug 2026 13:50:00 -0700)
 
 - **Nouvelle médaille d'or pour la France à domicile : Léon Marchand épatant champion d'Europe du 400 m nage libre**: [Link](https://www.lequipe.fr/Natation/Actualites/Nouvelle-medaille-d-or-pour-la-france-a-domicile-leon-marchand-epatant-champion-d-europe-du-400-m-nage-libre/1711512)
