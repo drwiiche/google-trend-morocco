@@ -1,3 +1,22 @@
+### princesse iman de jordanie (N/A, Sat, 15 Aug 2026 18:30:00 -0700)
+
+
+
+
+### strikeout (N/A, Sat, 15 Aug 2026 17:30:00 -0700)
+
+- **Jefry Yan unleashes wild strikeout dance prematurely in hilarious Mets moment: ‘That was funny’**: [Link](https://nypost.com/2026/08/15/sports/jefry-yan-unleashes-wild-strikeout-dance-prematurely-in-hilarious-mets-moment/)
+- **Savannah Bananas Owner Makes Offer to Polarizing New York Mets Player**: [Link](https://athlonsports.com/sports/savannah-bananas/jesse-cole-makes-offer-new-york-mets-pitcher-jefry-yan)
+- **Jefry Yan strikes out three, earns first career win**: [Link](https://www.mlb.com/mets/video/jefry-yan-strikes-out-three-earns-first-career-win)
+
+
+### حفيظ دراجي (N/A, Sat, 15 Aug 2026 16:40:00 -0700)
+
+- **حفيظ دراجي عن انتقال صلاح إلى طرابزون: يا خسارة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%81%D9%8A%D8%B8-%D8%AF%D8%B1%D8%A7%D8%AC%D9%8A-%D8%B9%D9%86-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%95%D9%84%D9%89-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D9%8A%D8%A7-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9/bltec1a4bc581748699)
+- **"ستظل في مكانة خاصة بقلبي".. مشجع ليفربول الصغير يودع محمد صلاح برسالة مؤثرة**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2026/8/14/3032919/-%D8%B3%D8%AA%D8%B8%D9%84-%D9%81%D9%8A-%D9%85%D9%83%D8%A7%D9%86%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D8%A8%D9%82%D9%84%D8%A8%D9%8A-%D9%85%D8%B4%D8%AC%D8%B9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D9%8A%D9%88%D8%AF%D8%B9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9)
+- **"الوقت يلحق به".. أسطورة توتنهام يحذر محمد صلاح من صعوبة الدوري التركي**: [Link](https://www.yallakora.com/turkish-super-lig/3039/news/562345/-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D9%8A%D9%84%D8%AD%D9%82-%D8%A8%D9%87-%D8%A3%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D9%86-%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A)
+
+
 ### nashville – inter miami (N/A, Sat, 15 Aug 2026 17:10:00 -0700)
 
 - **Inter Miami manager Guillermo Hoyos provides update on Lionel Messi ahead of Nashville clash**: [Link](https://www.goal.com/en/lists/lionel-messi-inter-miami-return-guillermo-hoyos-nashville/blt76a85f3ba6edfe02)
