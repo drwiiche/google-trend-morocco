@@ -1,3 +1,10 @@
+### watford – southampton (N/A, Sun, 16 Aug 2026 06:50:00 -0700)
+
+- **Championship: Build-up, team news, live text & score updates as it happens from across the Championship**: [Link](https://www.bbc.com/sport/football/live/cgjxzg2821nt)
+- **Watford v Southampton pre match stat pack**: [Link](https://efl.com/news/2026/august/16/watford-v-southampton-pre-match-stat-pack/)
+- **Football accumulator tips for Sunday, August 16: Back our acca at 8-1**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-sunday-august-16-back-our-acca-at-8-1-a7HMU5Z1204r/)
+
+
 ### آرسنال ضد مان سيتي (N/A, Sun, 16 Aug 2026 06:20:00 -0700)
 
 - **ما القنوات الناقلة لمباراة آرسنال ومانشستر سيتي في كأس الدرع الخيرية 2026-2027؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AF%D8%B1%D8%B9-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt76d8d15a822bea55)
