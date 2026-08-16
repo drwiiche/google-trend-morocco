@@ -1,3 +1,10 @@
+### أشرف حكيمي (N/A, Sun, 16 Aug 2026 12:10:00 -0700)
+
+- **صحفي إسباني يفجر مفاجأة حول مفاوضات رودري والريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AD%D9%81%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%81%D8%AC%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D8%AD%D9%88%D9%84-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt97b644fe524c35e5)
+- **سيتي يرد على عرض برشلونة الثالث لرودري**: [Link](https://www.alarabiya.net/sport/2026/08/16/%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%B9%D8%B1%D8%B6-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%84%D8%B1%D9%88%D8%AF%D8%B1%D9%8A)
+- **رودري يقترب من برشلونة.. المفاوضات تدخل مراحلها الأخيرة**: [Link](https://radiomars.ma/%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%AA%D8%AF%D8%AE%D9%84/)
+
+
 ### rodri (N/A, Sun, 16 Aug 2026 12:20:00 -0700)
 
 - **Rodrigo y Cancelo, inminentes**: [Link](https://as.com/futbol/rodrigo-y-cancelo-inminentes-f202608-n/)
