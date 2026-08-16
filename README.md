@@ -1,3 +1,10 @@
+### islam vs garry (N/A, Sat, 15 Aug 2026 16:10:00 -0700)
+
+- **Main Card Results | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-islam-makhachev-vs-ian-machado-garry-results)
+- **UFC 330 fight card predictions: Expert picks, odds for Islam Makhachev vs. Ian Garry in Philadelphia**: [Link](https://www.cbssports.com/ufc/news/ufc-330-fight-card-predictions-islam-makhachev-vs-ian-garry-expert-picks/)
+- **UFC 330 live blog: Islam Makhachev vs. Ian Machado Garry**: [Link](https://www.mmafighting.com/ufc/504929/ufc-330-live-blog-islam-makhachev-vs-ian-machado-garry)
+
+
 ### islam makhachev vs ian garry live (N/A, Sat, 15 Aug 2026 18:00:00 -0700)
 
 - **Official Scorecards | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-official-scorecards)
