@@ -1,3 +1,24 @@
+### cameroun vs malawi (N/A, Sun, 16 Aug 2026 13:00:00 -0700)
+
+- **CAN féminine Maroc-2026 (match de classement): les Lionnes de l'Atlas terminent 4èmes**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%8A%D8%AD%D8%AA%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9-%D9%81%D9%8A-%D9%83%D8%A7%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **CAN féminine 2026: penalty raté à la 97e, tirs au but... l’Algérie arrache la troisième place devant le Maroc après un scénario complètement fou**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-feminine-2026-penalty-rate-a-la-97e-tirs-au-but-l-algerie-arrache-la-troisieme-place-devant-le-maroc-apres-un-scenario-completement-fou_AV-202608150292.html)
+- **Les stats d’avant-match : Maroc - Algérie, une médaille de bronze en jeu**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-feminine/infos/les-stats-d-avant-match-maroc-algerie-une-medaille-de-bronze-en-jeu/)
+
+
+### juge (N/A, Sun, 16 Aug 2026 12:50:00 -0700)
+
+- **Les États-Unis envisagent de nouvelles sanctions contre un juge brésilien, selon le FT**: [Link](https://www.zonebourse.com/actualite-bourse/les-etats-unis-envisagent-de-nouvelles-sanctions-contre-un-juge-bresilien-selon-le-ft-ce7859dfdf80f42c)
+- **« Je me suis dégoûté » : un éducateur jugé pour l’envoi de photos sexuelles à une mineure**: [Link](https://www.leprogres.fr/faits-divers-justice/2026/08/16/je-me-suis-degoute-un-educateur-juge-pour-l-envoi-de-photos-sexuelles-a-une-mineure)
+- **Villefranche : ancien surveillant, il envoyait des photos de son sexe à une collégienne**: [Link](https://mesinfos.fr/69400-villefranche-sur-saone/villefranche-ancien-surveillant-il-envoyait-des-photos-de-son-sexe-a-une-collegienne-337118.html)
+
+
+### snap (N/A, Sun, 16 Aug 2026 11:50:00 -0700)
+
+- **Snap Judgments: Cowboys snap counts vs Seahawks**: [Link](https://www.bloggingtheboys.com/dallas-cowboys-preseason/214252/snap-counts-seahawks-preseason-game)
+- **Rams' top pick Simpson shines in 2-TD preseason debut vs. Chiefs**: [Link](https://www.espn.com/nfl/story/_/id/49622863/rams-top-pick-simpson-shines-2-td-preseason-debut-vs-chiefs)
+- **Rams' Ty Simpson already giving Matthew Stafford something to think about**: [Link](https://sports.yahoo.com/articles/rams-ty-simpson-already-giving-190419958.html)
+
+
 ### أشرف حكيمي (N/A, Sun, 16 Aug 2026 12:10:00 -0700)
 
 - **صحفي إسباني يفجر مفاجأة حول مفاوضات رودري والريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AD%D9%81%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%81%D8%AC%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D8%AD%D9%88%D9%84-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/blt97b644fe524c35e5)
