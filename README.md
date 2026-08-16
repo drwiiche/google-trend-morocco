@@ -1,3 +1,24 @@
+### états-unis (N/A, Sun, 16 Aug 2026 09:40:00 -0700)
+
+- **Donald Trump fait réagir Téhéran en déclarant vouloir proclamer le détroit d’Ormuz « territoire des Etats-Unis » après la guerre**: [Link](https://www.lemonde.fr/guerre-au-proche-orient/article/2026/08/15/donald-trump-fait-reagir-teheran-en-declarant-vouloir-proclamer-le-detroit-d-ormuz-territoire-des-etats-unis-apres-la-guerre_6746497_6325529.html)
+- **Combien de temps l’économie iranienne pourra-t-elle tenir ?**: [Link](https://legrandcontinent.eu/fr/2026/08/15/combien-de-temps-leconomie-iranienne-pourra-t-elle-tenir/)
+- **Le dilemme de Trump : mettre fin à la guerre contre l’Iran pour satisfaire les Américains, au risque de mécontenter sa base évangélique**: [Link](https://theconversation.com/le-dilemme-de-trump-mettre-fin-a-la-guerre-contre-liran-pour-satisfaire-les-americains-au-risque-de-mecontenter-sa-base-evangelique-289549)
+
+
+### الدوري الاسباني (N/A, Sun, 16 Aug 2026 09:40:00 -0700)
+
+- **لماذا يغيب برشلونة وريال مدريد عن افتتاح الدوري الإسباني 2026-2027؟**: [Link](https://www.aljazeera.net/sport/2026/8/15/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7)
+- **لماذا يبدأ الدوري الإسباني من دون برشلونة وريال مدريد؟**: [Link](https://www.alarabiya.net/sport/2026/08/15/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%A8%D8%AF%D8%A7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D8%AF%D9%88%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-)
+- **نجم يونايتد السابق: فليك في حكم المنتهي إذا سمح لمورينيو بهذا الأمر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%81%D9%84%D9%8A%D9%83-%D9%81%D9%8A-%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D9%87%D9%8A-%D8%A7%D9%95%D8%B0%D8%A7-%D8%B3%D9%85%D8%AD-%D9%84%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%A8%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1/bltbe19203b096aaf81)
+
+
+### إيرلينغ هالاند (N/A, Sun, 16 Aug 2026 09:20:00 -0700)
+
+- **بالفيديو.. "كوكايين هالاند" في قبضة الشرطة!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%83%D9%88%D9%83%D8%A7%D9%8A%D9%8A%D9%86-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%81%D9%8A-%D9%82%D8%A8%D8%B6%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9/bltdc122fb62145598b)
+- **إحباط تهريب نصف طن من الكوكايين قرب الحدود الكولومبية**: [Link](https://akhbarelyom.com/news/newdetails/4864696/1/%D8%A5%D8%AD%D8%A8%D8%A7%D8%B7-%D8%AA%D9%87%D8%B1%D9%8A%D8%A8-%D9%86%D8%B5%D9%81-%D8%B7%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A7%D9%8A%D9%8A%D9%86-%D9%82%D8%B1%D8%A8-%D8%A7%D9%84%D8%AD%D8%AF)
+- **هالاند يتصدر أغلفة عبوات مخدرات ضُبطت في الإكوادور**: [Link](https://yaffaps.com/ar/page-122002.html)
+
+
 ### liverpool vs como (N/A, Sun, 16 Aug 2026 09:30:00 -0700)
 
 - **¿Cómo ver el partido entre Liverpool vs Como en TV y Streaming?**: [Link](https://www.si.com/es-us/futbol/como-ver-el-partido-entre-liverpool-vs-como-en-tv-y-streaming)
