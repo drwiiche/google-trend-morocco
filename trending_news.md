@@ -1,3 +1,24 @@
+### santander – villarreal (N/A, Sun, 16 Aug 2026 07:40:00 -0700)
+
+- **Sunday's La Liga predictions and previews including Racing de Santander vs. Villarreal**: [Link](https://www.sportsmole.co.uk/football/villarreal/feature/villarreal-to-start-with-a-win-sundays-la-liga-predictions-and-previews_603053.html)
+- **Sunday’s La Liga betting tips: Expert predictions from Spain’s top flight**: [Link](https://mrfixitstips.co.uk/sunday-la-liga-predictions-16-08-2026/)
+- **La Liga weekend football predictions & tips: Back opening win for Villarreal**: [Link](https://www.telegraph.co.uk/betting/football/la-liga-predictions-tips-15-16-august-2026/)
+
+
+### barcelona (N/A, Sun, 16 Aug 2026 07:40:00 -0700)
+
+- **Basilea - Barcelona, hoy en directo: amistoso de clubes en vivo**: [Link](https://as.com/futbol/fc-barcelona/basilea-barcelona-hoy-en-directo-amistoso-de-clubes-en-vivo-f202608-d/)
+- **Basilea - Barcelona en directo | Última hora del partido de pretemporada en vivo**: [Link](https://www.marca.com/futbol/amistosos-clubes/basilea-barcelona/2026/08/16/01_0111_20260816_481_178-directo.html)
+- **Gordon, con el dorsal de Casadó, debuta de extremo y Raphinha, de '9'**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260816/1004216583/hay-once-barca-basilea-gordon-debuta-titular.html)
+
+
+### arrestation (N/A, Sun, 16 Aug 2026 06:40:00 -0700)
+
+- **Fnideq : 111 candidats à l’immigration irrégulière interpellés**: [Link](https://2m.ma/fr/news/Sebta-et-Melilla-111-candidats-%C3%A0-l-immigration-irr%C3%A9guli%C3%A8re-interpell%C3%A9s-20260815)
+- **Foreign Policy: pourquoi la restitution de Sebta (et Melilla) au Maroc est inéluctable**: [Link](https://fr.le360.ma/politique/foreign-policy-pourquoi-la-restitution-de-sebta-et-melilla-au-maroc-est-ineluctable_VRRCTSZ4SBERLEEVSJJEGNLILU/)
+- **Des dizaines de migrants interpellés près de la frontière marocaine en direction de Ceuta**: [Link](https://www.franceinfo.fr/monde/europe/migrants/des-dizaines-de-migrants-interpelles-pres-de-la-frontiere-marocaine-en-direction-de-ceuta_8149157.html)
+
+
 ### schalke vs real madrid (N/A, Sun, 16 Aug 2026 07:30:00 -0700)
 
 - **Schalke 04: Real Madrid startet mit Weltstars um Mbappé - diese S04-Elf soll dagegenhalten**: [Link](https://www.reviersport.de/fussball/1bundesliga/a629507---schalke-04-real-madrid-startet-weltstars-um-mbappe-diese-s04-elf-soll-dagegenhalten.html)
