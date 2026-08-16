@@ -1,3 +1,10 @@
+### الداعية با العلوي (N/A, Sun, 16 Aug 2026 15:50:00 -0700)
+
+- **الداعية "با العلوي" يغادر دنيا الناس**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A8%D8%A7-%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%A7%D8%B3-1792921.html)
+- **وعكة صحية حرجة تدخل الشيخ “با العلوي” قسم الإنعاش بالمستشفى العسكري بالرباط**: [Link](https://al3omk.com/tag/%D8%B5%D8%B9%D9%88%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D8%B3)
+- **رحيل الشيخ "با العلوي".. صوت ديني عرف بالاعتدال والبساطة**: [Link](https://tanja24.com/%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%A8%D8%A7-%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%8A-%D8%B5%D9%88%D8%AA-%D8%AF%D9%8A%D9%86%D9%8A-%D8%B9%D8%B1%D9%81-%D8%A8%D8%A7%D9%84%D8%A7/)
+
+
 ### yacine titraoui (N/A, Sun, 16 Aug 2026 13:40:00 -0700)
 
 - **EN : Déjà sacré avec le RC Lens, Titraoui oh oui !**: [Link](https://www.footafrique.com/en-deja-sacre-avec-le-rc-lens-titraoui-oh-oui/)
