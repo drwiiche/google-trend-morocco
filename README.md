@@ -1,3 +1,10 @@
+### ناشفيل ضد إنتر ميامي (N/A, Sat, 15 Aug 2026 19:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ناشفيل وإنتر ميامي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt373ff16f2702f7ef)
+- **أبرزها ضد مصر.. ركلات الجزاء تلحق بميسي رقما سلبيا (فيديو)**: [Link](https://al-ain.com/article/penalties-lionel-messi-egypt-disastrous-record)
+- **إهدار ركلة جزاء وسخرية من الحكم.. ماذا قدم ميسي في مباراة إنتر ميامي وناشفيل؟**: [Link](https://www.eremnews.com/sports/6s3ryla)
+
+
 ### islam vs garry (N/A, Sat, 15 Aug 2026 16:10:00 -0700)
 
 - **Main Card Results | UFC 330: Makhachev vs Machado Garry**: [Link](https://www.ufc.com/news/ufc-330-islam-makhachev-vs-ian-machado-garry-results)
