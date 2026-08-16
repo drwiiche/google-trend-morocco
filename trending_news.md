@@ -1,3 +1,17 @@
+### آرسنال ضد مان سيتي (N/A, Sun, 16 Aug 2026 06:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة آرسنال ومانشستر سيتي في كأس الدرع الخيرية 2026-2027؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AF%D8%B1%D8%B9-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt76d8d15a822bea55)
+- **مباشر مباراة أرسنال ضد مانشستر سيتي في نهائي "درع المجتمع".. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/16/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A)
+- **أرسنال ومانشستر سيتي في صدام قوي مبكر بحثاً عن أول الألقاب**: [Link](https://radiomars.ma/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%B5%D8%AF%D8%A7%D9%85-%D9%82%D9%88%D9%8A-%D9%85%D8%A8%D9%83%D8%B1-%D8%A8/)
+
+
+### arsenal – manchester city (N/A, Sun, 16 Aug 2026 06:10:00 -0700)
+
+- **Maresca fitness update on McAidoo, Haaland and Rodri**: [Link](https://www.mancity.com/news/mens/enzo-maresca-community-shield-squad-news-63922297)
+- **Arsenal v Man City: Community Shield 2026 - does winning trophy lead to good season?**: [Link](https://www.bbc.com/sport/football/articles/c1e1v64q256o)
+- **Every word from Arteta's pre-Community Shield presser**: [Link](https://www.arsenal.com/news/every-word-from-artetas-pre-community-shield-presser-aNRVh6w28qOL)
+
+
 ### jason arday (N/A, Sun, 16 Aug 2026 01:10:00 -0700)
 
 - **Jason Arday death 'tragedy on so many levels' says PM**: [Link](https://www.bbc.com/news/articles/c9982znvyk4o)
