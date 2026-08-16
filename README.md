@@ -1,3 +1,17 @@
+### mackenzie dern (N/A, Sat, 15 Aug 2026 20:10:00 -0700)
+
+- **UFC Picks: Robertson-Dern Title Fight Offers Intriguing Betting Value in Philadelphia**: [Link](https://blog.betway.com/ca/ufc/ufc-picks-robertson-dern-title-fight-offers-intriguing-betting-value-in-philadelphia/)
+- **Mackenzie Dern respects Gillian Robertson’s ground game, but ‘there are definitely weaknesses or holes there’**: [Link](https://sports.yahoo.com/articles/mackenzie-dern-respects-gillian-robertson-200000530.html)
+- **Gillian Robertson Talks With Megan Olivi | UFC 330**: [Link](https://www.ufc.com/video/159239)
+
+
+### ufc 330 carte (N/A, Sat, 15 Aug 2026 19:30:00 -0700)
+
+- **Islam Makhachev le GOAT de l’UFC ? Son coach l’affirme**: [Link](https://lasueur.com/islam-makhachev-le-goat-de-lufc-son-coach-laffirme-08-08-2026)
+- **Matt Brown prévient Ian Garry avant Islam Makhachev : « Le mauvais adversaire au mauvais moment… »**: [Link](https://www.actumma.com/matt-brown-previent-ian-garry-avant-islam-makhachev-le-mauvais-adversaire-au-mauvais-moment/189114/)
+- **Ian Garry vs Islam Makhachev : le pronostic direct d’Arman Tsarukyan**: [Link](https://www.actumma.com/ian-garry-vs-islam-makhachev-le-pronostic-direct-darman-tsarukyan/188910/)
+
+
 ### ufc 330 live (N/A, Sat, 15 Aug 2026 18:20:00 -0700)
 
 - **Jalin Turner vs. Kaue Fernandes prediction, pick for UFC 330**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/08/15/jalin-turner-vs-kaue-fernandes-ufc-330-prediction-expert-pick-time/91314014007/)
