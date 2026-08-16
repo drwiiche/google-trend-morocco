@@ -1,3 +1,10 @@
+### community shield (N/A, Sun, 16 Aug 2026 03:50:00 -0700)
+
+- **Every word from Arteta's pre-Community Shield presser**: [Link](https://www.arsenal.com/news/every-word-from-artetas-pre-community-shield-presser-aNRVh6w28qOL)
+- **Maresca fitness update on McAidoo, Haaland and Rodri**: [Link](https://www.mancity.com/news/mens/enzo-maresca-community-shield-squad-news-63922297)
+- **How to watch Community Shield 2026 online from anywhere: FREE live streams for Arsenal vs Man City**: [Link](https://www.whathifi.com/streaming-entertainment/how-to-watch/community-shield-2026-live-streams)
+
+
 ### tottenham – hoffenheim (N/A, Sun, 16 Aug 2026 03:50:00 -0700)
 
 - **Tottenham 3-0 Hoffenheim: Mikey Moore double gives Spurs comfortable Hoffenheim win**: [Link](https://www.bbc.com/sport/football/live/cmvgwk4j7w21t)
