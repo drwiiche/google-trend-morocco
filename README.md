@@ -1,3 +1,10 @@
+### apple (N/A, Sun, 16 Aug 2026 14:10:00 -0700)
+
+- **Apple Skipping iPhone 18 Launch This Year**: [Link](https://www.macrumors.com/2026/08/12/apple-skipping-iphone-18-launch-this-year/)
+- **Apple May Delay the iPhone 18 Until 2027 as Premium Models Get Fall Launch**: [Link](https://www.techrepublic.com/article/news-apple-iphone-18-delay-2027-pro-launch/)
+- **Apple’s first foldable could reshape its entire iPhone launch**: [Link](https://www.thestreet.com/investing/apples-first-foldable-could-reshape-its-entire-iphone-launch)
+
+
 ### cristiano ronaldo (N/A, Sun, 16 Aug 2026 14:40:00 -0700)
 
 - **'Probably my last year' - Ronaldo hints at retirement**: [Link](https://www.bbc.com/sport/football/articles/c3300lxjz7lo)
