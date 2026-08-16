@@ -1,3 +1,17 @@
+### rodri (N/A, Sun, 16 Aug 2026 12:20:00 -0700)
+
+- **Rodrigo y Cancelo, inminentes**: [Link](https://as.com/futbol/rodrigo-y-cancelo-inminentes-f202608-n/)
+- **Rodri ya es del Barça, acuerdo cerrado con el City**: [Link](https://www.marca.com/futbol/barcelona/2026/08/16/rodri-barca-acuerdo-cerrado-city.html)
+- **Aferrado a su exigencia: el Manchester City vuelve a golpear al Barcelona por tercera vez**: [Link](https://es-us.noticias.yahoo.com/deportes/aferrado-exigencia-manchester-city-vuelve-194701552.html)
+
+
+### لامين يامال (N/A, Sun, 16 Aug 2026 11:40:00 -0700)
+
+- **مخاطرة أم ثقة؟.. فليك يفتح باب المفاجآت لتعويض ليفاندوفسكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%AE%D8%A7%D8%B7%D8%B1%D8%A9-%D8%A7%D9%94%D9%85-%D8%AB%D9%82%D8%A9--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%93%D8%AA-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A/blt22ab34acdadff326)
+- **ماركا : فليك سيفتقد 54 هدفا في الموسم الجديد**: [Link](https://www.youm7.com/story/2026/8/14/%D9%85%D8%A7%D8%B1%D9%83%D8%A7-%D9%81%D9%84%D9%8A%D9%83-%D8%B3%D9%8A%D9%81%D8%AA%D9%82%D8%AF-54-%D9%87%D8%AF%D9%81%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/7513419)
+- **برشلونة يواجه مشكلة في الخط الهجومي؟**: [Link](https://addiyar.com/article/2386647-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D8%B4%D9%83%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AE%D8%B7-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85%D9%8A)
+
+
 ### لنس ضد بي اس جي (N/A, Sun, 16 Aug 2026 11:20:00 -0700)
 
 - **كأس السوبر الفرنسي.. باريس سان جيرمان يسعى لتعزيز رقمه القياسي أمام لانس**: [Link](https://www.aljazeera.net/sport/2026/8/16/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
