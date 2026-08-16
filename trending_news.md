@@ -1,3 +1,17 @@
+### سجن (N/A, Sun, 16 Aug 2026 01:50:00 -0700)
+
+- **توقيف "مؤثرة" بتهمة الإخلال بالحياء**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D9%84%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A1-1791240.html)
+- **إيداع "سكينة كلامور" السجن ومتابعتها بتهمة الإخلال العلني بالحياء**: [Link](https://www.ahdath.info/%D8%A5%D9%8A%D8%AF%D8%A7%D8%B9-%D8%B3%D9%83%D9%8A%D9%86%D8%A9-%D9%83%D9%84%D8%A7%D9%85%D9%88%D8%B1-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D9%88%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%AA%D9%87%D8%A7-%D8%A8/)
+- **متابعة المؤثرة كلامور في حالة اعتقال وهذا تاريخ محاكمتها – اليوم 24**: [Link](https://alyaoum24.com/2038587.html)
+
+
+### temps (N/A, Sun, 16 Aug 2026 01:40:00 -0700)
+
+- **Météo. Alerte orange avec des averses orageuses accompagnées de grêle**: [Link](https://medias24.com/2026/08/15/alerte-orange-1740403/)
+- **Les températures attendues ce dimanche 16 août 2026**: [Link](https://fr.hespress.com/485305-les-temperatures-attendues-ce-dimanche-16-aout-2026.html)
+- **Alerte météo : orages, grêle et canicule (45-48°C) attendus vendredi et samedi**: [Link](https://ledesk.ma/encontinu/alerte-meteo-orages-grele-et-canicule-45-48c-attendus-vendredi-et-samedi/)
+
+
 ### espagne (N/A, Sun, 16 Aug 2026 00:50:00 -0700)
 
 - **Une inondation dans le nord-ouest de l'Espagne fait deux morts, deux bébés blessés**: [Link](https://www.france24.com/fr/europe/20260816-des-inondations-dans-le-nord-ouest-de-l-espagne-font-deux-morts-deux-b%C3%A9b%C3%A9s-bless%C3%A9s)
