@@ -1,3 +1,31 @@
+### nashville – inter miami (N/A, Sat, 15 Aug 2026 17:10:00 -0700)
+
+- **Inter Miami manager Guillermo Hoyos provides update on Lionel Messi ahead of Nashville clash**: [Link](https://www.goal.com/en/lists/lionel-messi-inter-miami-return-guillermo-hoyos-nashville/blt76a85f3ba6edfe02)
+- **MLS Matchday 20 Preview: Nashville vs. Inter Miami, Union vs. NYCFC highlight weekend slate**: [Link](https://www.metrophiladelphia.com/stories/mls-matchday-20-preview,151841)
+- **Messi, Suarez are back as Inter Miami battles Nashville for top spot in the East**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article316881934.html)
+
+
+### 2026 (N/A, Sat, 15 Aug 2026 17:00:00 -0700)
+
+- **Daniel Tyler Hawkins Obituary Jul 31, 2026**: [Link](https://www.hartsmort.com/obituaries/daniel-hawkins)
+- **How Infleqtion’s NASA-Driven Revenue Gives It an Edge in Quantum Computing**: [Link](https://www.barrons.com/articles/infleqtion-earnings-stock-price-1bc56504)
+- **Infleqtion Shares Pause Following Q2 Results: What's Going On?**: [Link](https://www.benzinga.com/trading-ideas/movers/26/08/61206606/infleqtion-shares-pause-following-q2-results-whats-going-on)
+
+
+### xfinity mobile arena (N/A, Sat, 15 Aug 2026 16:10:00 -0700)
+
+- **UFC 330 in Philadelphia is going to be "absolutely electric," fans say**: [Link](https://www.cbsnews.com/philadelphia/news/ufc-330-fight-card-philadelphia-fans/)
+- **Video: UFC 330 backstage post-fight interviews with winners**: [Link](https://sports.yahoo.com/articles/video-ufc-330-backstage-post-231343918.html)
+- **Philly Special | Fabiano Buskei Relishes Being Back In Philadelphia**: [Link](https://www.ufc.com/news/philly-special-fabiano-buskei-relishes-being-back-philadelphia)
+
+
+### الأيام 24 (N/A, Sat, 15 Aug 2026 14:20:00 -0700)
+
+- **توقيف "مؤثرة" بتهمة الإخلال بالحياء**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%AE%D9%84%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A1-1791240.html)
+- **إيداع "سكينة كلامور" السجن ومتابعتها بتهمة الإخلال العلني بالحياء**: [Link](https://www.ahdath.info/%D8%A5%D9%8A%D8%AF%D8%A7%D8%B9-%D8%B3%D9%83%D9%8A%D9%86%D8%A9-%D9%83%D9%84%D8%A7%D9%85%D9%88%D8%B1-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D9%88%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%AA%D9%87%D8%A7-%D8%A8/)
+- **متابعة المؤثرة كلامور في حالة اعتقال وهذا تاريخ محاكمتها – اليوم 24**: [Link](https://alyaoum24.com/2038587.html)
+
+
 ### باريس سان جيرمان (N/A, Sat, 15 Aug 2026 16:10:00 -0700)
 
 - **رسميا الصفقة الخامسة.. باريس يضرب بقوة في الميركاتو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9--%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A8%D9%82%D9%88%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88/blt6bcc363cfb661d4b)
