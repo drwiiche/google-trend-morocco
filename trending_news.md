@@ -1,3 +1,10 @@
+### maroc espagne (N/A, Sun, 16 Aug 2026 16:00:00 -0700)
+
+- **Foreign Policy: pourquoi la restitution de Sebta (et Melilla) au Maroc est inéluctable**: [Link](https://fr.le360.ma/politique/foreign-policy-pourquoi-la-restitution-de-sebta-et-melilla-au-maroc-est-ineluctable_VRRCTSZ4SBERLEEVSJJEGNLILU/)
+- **Ceuta: des dizaines d'interpellations à la frontière entre le Maroc et l'Espagne**: [Link](https://www.bfmtv.com/international/europe/espagne/video-ceuta-des-dizaines-d-interpellations-a-la-frontiere-entre-le-maroc-et-l-espagne_VN-202608160033.html)
+- **Des dizaines de migrants interpellés près de la frontière marocaine en direction de Ceuta**: [Link](https://www.franceinfo.fr/monde/europe/migrants/des-dizaines-de-migrants-interpelles-pres-de-la-frontiere-marocaine-en-direction-de-ceuta_8149157.html)
+
+
 ### الداعية با العلوي (N/A, Sun, 16 Aug 2026 15:50:00 -0700)
 
 - **الداعية "با العلوي" يغادر دنيا الناس**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A8%D8%A7-%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%AF%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%A7%D8%B3-1792921.html)
