@@ -1,3 +1,24 @@
+### لنس ضد بي اس جي (N/A, Sun, 16 Aug 2026 11:20:00 -0700)
+
+- **كأس السوبر الفرنسي.. باريس سان جيرمان يسعى لتعزيز رقمه القياسي أمام لانس**: [Link](https://www.aljazeera.net/sport/2026/8/16/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+- **ما القنوات الناقلة لمباراة لانس وباريس سان جيرمان في نهائي السوبر الفرنسي 2026؟ وكيف تتابعها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D8%A7%D9%86%D8%B3-%D9%88%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%AA%D8%A7%D8%A8%D8%B9%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc8283e2372137702)
+- **بعد التتويج الأوروبي الأخير.. باريس سان جيرمان يقترب من منصات التتويج مرة أخرى**: [Link](https://radiomars.ma/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86/)
+
+
+### lens vs psg (N/A, Sun, 16 Aug 2026 11:20:00 -0700)
+
+- **Lens vs PSG predictions: Building on the first piece of silverware**: [Link](https://www.goal.com/en-ca/betting/tips/lens-vs-psg-predictions-16-08-2026/A%3Abltfea8692a9d83043a)
+- **RC Lens vs Paris Saint-Germain Live Stream: How to Watch French Super Cup Soccer**: [Link](https://www.fubo.tv/news/french-ligue-1-soccer/rc-lens-vs-paris-saint-germain-live-stream-how-to-watch-french-super-cup-soccer/)
+- **PSG's Squad to Face RC Lens in the Trophee des Champions**: [Link](https://roundtable.io/sports/soccer/ligue-1/paris-st-germain/news/psgs-squad-to-face-rc-lens-in-the-trophee-des-champions)
+
+
+### musiala (N/A, Sun, 16 Aug 2026 11:10:00 -0700)
+
+- **Jamal Musiala collapses during Bayern Munich friendly as team-mate catches him**: [Link](https://www.thesun.co.uk/sport/40070920/jamal-musiala-collapses-bayern-munich-ismael-saibari-rb-leipzig/)
+- **Top US Middle East commander visits deployed aircraft carrier, and other Mideast news**: [Link](https://www.couriernews.com/news/national/top-us-middle-east-commander-visits-deployed-aircraft-carrier-and-other-mideast-news/article_b24246fa-c1cb-5319-846b-53f6f142c53b.html)
+- **Bayern Munich’s Max Eberl unsure of extent of Konrad Laimer’s injury**: [Link](https://www.bavarianfootballworks.com/bayern-munich-transfer-news-rumors/243834/bayern-munichs-max-eberl-unsure-of-extent-of-konrad-laimers-injury)
+
+
 ### lens – paris-sg (N/A, Sun, 16 Aug 2026 11:00:00 -0700)
 
 - **Après la Supercoupe d'Europe, un retour en France périlleux pour le PSG**: [Link](https://www.eurosport.fr/football/trophee-des-champions/2026/trophee-des-champions-le-psg-se-frotte-a-lens-apres-des-debuts-valides-contre-aston-villa-pour-une-adversite-plus-dure-a-manoeuvrer_sto23328268/story.shtml)
