@@ -1,3 +1,17 @@
+### kick (N/A, Sat, 15 Aug 2026 20:50:00 -0700)
+
+- **Who is Ozemi? Kick streamer confronts female streamer in Japan after controversial exchange**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/who-is-ozemi-kick-streamer-confronts-female-streamer-in-japan-after-controversial-exchange/articleshow/133268786.cms)
+- **What happened between black streamer Ozemi and influencer Nanatty? Japanese police pursue former after altercation**: [Link](https://www.aol.com/articles/happened-between-black-streamer-ozemi-062753000.html)
+- **Guilherme runs goal-scoring streak to 4 games as Dynamo blank Galaxy**: [Link](https://lufkindailynews.com/news_reuters/sports/guilherme-runs-goal-scoring-streak-to-4-games-as-dynamo-blank-galaxy/article_2d250142-d9e0-5072-8d7e-266be5c2b804.html)
+
+
+### الاميرة ايمان عبدالله الثاني (N/A, Sat, 15 Aug 2026 20:50:00 -0700)
+
+- **الأردن.. الأميرة إيمان بنت عبدﷲ الثاني ترزق بتوأمين**: [Link](https://arabic.cnn.com/entertainment/article/2026/08/14/jordan-princess-iman-bint-abdullah-ii-gives-birth-to-twins)
+- **الملكة رانيا تكشف اسمي توأمي الأميرة إيمان: أكرمنا الرحمن بأجمل هباته**: [Link](https://www.annahar.com/lifestyle/arts/338741/%D8%A7%D9%84%D9%85%D9%84%D9%83%D8%A9-%D8%B1%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D8%B3%D9%85%D9%8A-%D8%AA%D9%88%D8%A3%D9%85-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A9-%D8%A5%D9%8A%D9%85%D8%A7%D9%86)
+- **الأميرة إيمان بنت عبد الله الثاني**: [Link](https://www.alaraby.com/tags/%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D8%A9-%D8%A5%D9%8A%D9%85%D8%A7%D9%86-%D8%A8%D9%86%D8%AA-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A)
+
+
 ### mackenzie dern (N/A, Sat, 15 Aug 2026 20:10:00 -0700)
 
 - **UFC Picks: Robertson-Dern Title Fight Offers Intriguing Betting Value in Philadelphia**: [Link](https://blog.betway.com/ca/ufc/ufc-picks-robertson-dern-title-fight-offers-intriguing-betting-value-in-philadelphia/)
