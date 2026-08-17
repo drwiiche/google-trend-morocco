@@ -1,3 +1,10 @@
+### الخطوط الملكية المغربية (N/A, Sun, 16 Aug 2026 15:10:00 -0700)
+
+- **أسطول "لارام" يسجل رقما قياسيا جديدا مع وصول طائرة "بوينغ" حديثة - تليكسبريس**: [Link](https://telexpresse.com/492231.html)
+- **في طريقها إلى 200 طائرة.. "لارام" تعزز أسطولها بـ"بوينغ 737 MAX-8" جديدة**: [Link](https://iktissadkom.ma/last-news-maroc/%D9%81%D9%8A-%D8%B7%D8%B1%D9%8A%D9%82%D9%87%D8%A7-%D8%A5%D9%84%D9%89-200-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%84%D8%A7%D8%B1%D8%A7%D9%85-%D8%AA%D8%B9%D8%B2%D8%B2-%D8%A3%D8%B3%D8%B7%D9%88%D9%84%D9%87%D8%A7-%D8%A8%D9%80-%D8%A8%D9%88%D9%8A%D9%86%D8%BA-737-max-8-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9)
+- **الخطوط الملكية المغربية تبلغ رقماً قياسياً.. طائرة «بوينغ» جديدة ترفع الأسطول إلى 69 طائرة**: [Link](https://www.alalam.ma/%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%B7-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%A8%D9%84%D8%BA-%D8%B1%D9%82%D9%85%D8%A7%D9%8B-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A7%D9%8B-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A8%D9%88%D9%8A%D9%86%D8%BA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9_a34316.html)
+
+
 ### tout le monde veut prendre sa place (N/A, Sun, 16 Aug 2026 23:10:00 -0700)
 
 - **Exclu. "J'ai gagné un ami pour la vie" : Cyril Féraud réagit à l’élimination de Vincent dans Tout le monde veut prendre sa place, le plus grand champion du jeu**: [Link](https://www.programme-tv.net/news/tv/406611-exclu-jai-gagne-un-ami-pour-la-vie-cyril-feraud-reagit-a-lelimination-de-vincent-dans-tout-le-monde-veut-prendre-sa-place-le-plus-grand-champion-du-jeu/)
