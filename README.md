@@ -1,3 +1,10 @@
+### soukaina glamour (N/A, Mon, 17 Aug 2026 09:30:00 -0700)
+
+- **Soukaina Glamour receives 10-month sentence and social media ban**: [Link](https://en.hespress.com/143948-soukaina-glamour-receives-10-month-sentence-and-social-media-ban.html)
+- **Influencer arrested over 'public decency' at airport claims content 'manipulated by AI'**: [Link](https://www.dailystar.co.uk/news/world-news/breaking-influencer-arrested-over-public-37557678)
+- **Moroccan Influencer Soukaina Glamour Sentenced to 10 Months for Public Indecency**: [Link](https://www.moroccoworldnews.com/2026/08/335016/moroccan-influencer-soukaina-glamour-sentenced-to-10-months-for-public-indecency/)
+
+
 ### سكينة كلامور (N/A, Mon, 17 Aug 2026 09:20:00 -0700)
 
 - **غلامور تدان بالحبس والغرامة والمنع**: [Link](https://www.hespress.com/%D8%BA%D9%84%D8%A7%D9%85%D9%88%D8%B1-%D8%AA%D8%AF%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%AD%D8%A8%D8%B3-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D9%86%D8%B9-1793390.html)
