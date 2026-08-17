@@ -1,3 +1,17 @@
+### casa pia – benfica (N/A, Mon, 17 Aug 2026 12:30:00 -0700)
+
+- **Sem Aursnes e Dedic, mas com surpresas — onze provável do Benfica para o Casa Pia**: [Link](https://www.abola.pt/noticias/sem-aursnes-e-dedic-mas-com-surpresas-onze-provavel-do-benfica-para-o-casa-pia-2026081618143140817)
+- **AO VIVO: Marco Silva volta à fórmula da Liga e repete onze para a visita ao Casa Pia**: [Link](https://www.flashscore.pt/noticias/ao-vivo-marco-silva-volta-a-formula-da-liga-e-repete-onze-para-a-visita-ao-casa-pia/pWfdOp1K/)
+- **Confira onze do Benfica para o jogo frente ao Casa Pia**: [Link](https://sapo.pt/artigo/confira-onze-do-benfica-para-o-jogo-frente-ao-casa-pia-6a834ec27feb5726f8054f83)
+
+
+### محكمة (N/A, Mon, 17 Aug 2026 12:10:00 -0700)
+
+- **المحكمة العليا الأمريكية ترفض مجددا طلب ترامب في قضية إي.جين كارول**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D9%8A%D8%A7-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%B1%D9%81%D8%B6-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7-%D8%B7/)
+- **ترامب يفشل مجددا في إسقاط حكم يدينه بالاعتداء الجنسي**: [Link](https://www.raialyoum.com/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%81%D8%B4%D9%84-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7-%D9%81%D9%8A-%D8%A5%D8%B3%D9%82%D8%A7%D8%B7-%D8%AD%D9%83%D9%85-%D9%8A%D8%AF%D9%8A%D9%86%D9%87-%D8%A8%D8%A7%D9%84/)
+- **للمرة الثانية.. رفض استئناف ترمب في قضية اعتداء جنسي**: [Link](https://www.alghad.tv/%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%BA%D8%AF/news/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B1%D9%81%D8%B6-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%AA%D8%B1%D9%85%D8%A8-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D8%AC%D9%86%D8%B3%D9%8A)
+
+
 ### شات جي بي تي (N/A, Mon, 17 Aug 2026 12:00:00 -0700)
 
 - **كيف تعرف ما إذا كان حسابك على منصات الذكاء الاصطناعي قد تعرض للاختراق؟**: [Link](https://www.alarabiya.net/technology/tips/2026/08/16/%D9%83%D9%8A%D9%81-%D8%AA%D8%B9%D8%B1%D9%81-%D9%85%D8%A7-%D8%A7%D8%B0%D8%A7-%D9%83%D8%A7%D9%86-%D8%AD%D8%B3%D8%A7%D8%A8%D9%83-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%B5%D8%A7%D8%AA-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%82%D8%AF-%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D9%84%D8%A7%D8%AE%D8%AA%D8%B1%D8%A7%D9%82-)
