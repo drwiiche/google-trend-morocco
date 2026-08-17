@@ -1,3 +1,10 @@
+### zeturf pronostics (N/A, Mon, 17 Aug 2026 00:30:00 -0700)
+
+- **Naruto, l'outsider séduisant du Quinté+ du lundi 17 août**: [Link](https://www.equidia.fr/articles/actualite/naruto-loutsider-seduisant-du-quinte-du-lundi-17-aout)
+- **Quinté+ du 17/08/2026 à Clairefontaine : Feu de Dieu, un nouvel élan**: [Link](https://www.paris-turf.com/actualites/france/302696098333-quinte-du-17-08-2026-a-clairefontaine-feu-de-dieu-un-nouvel-elan)
+- **Quinté+ du lundi 17 août 2026 : Rock And Roll peut viser la victoire**: [Link](https://www.zone-turf.fr/quinte/quinte-du-lundi-17-aout-2026-rock-and-roll-peut-viser-la-victoire-130337.html?highlight=Asta%20la%20Pasta)
+
+
 ### عدالة (N/A, Mon, 17 Aug 2026 07:00:00 -0700)
 
 - **حين تستعيد سوريا جغرافيتها ودورها**: [Link](https://www.alquds.co.uk/%D8%AD%D9%8A%D9%86-%D8%AA%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%AC%D8%BA%D8%B1%D8%A7%D9%81%D9%8A%D8%AA%D9%87%D8%A7-%D9%88%D8%AF%D9%88%D8%B1%D9%87%D8%A7/)
