@@ -1,3 +1,17 @@
+### tout le monde veut prendre sa place (N/A, Sun, 16 Aug 2026 23:10:00 -0700)
+
+- **Exclu. "J'ai gagné un ami pour la vie" : Cyril Féraud réagit à l’élimination de Vincent dans Tout le monde veut prendre sa place, le plus grand champion du jeu**: [Link](https://www.programme-tv.net/news/tv/406611-exclu-jai-gagne-un-ami-pour-la-vie-cyril-feraud-reagit-a-lelimination-de-vincent-dans-tout-le-monde-veut-prendre-sa-place-le-plus-grand-champion-du-jeu/)
+- **Tout le monde veut prendre sa place » : Vincent, le plus grand champion du jeu de France 2, éliminé après 267 victoires**: [Link](https://soirmag.lesoir.be/765255/article/2026-08-16/tout-le-monde-veut-prendre-sa-place-vincent-le-plus-grand-champion-du-jeu-de)
+- **« Tout le monde veut prendre sa place » : fin de l’aventure pour le Picard Vincent, éliminé après 267 victoires**: [Link](https://www.courrier-picard.fr/id738949/article/2026-08-16/tout-le-monde-veut-prendre-sa-place-fin-de-laventure-pour-le-picard-vincent)
+
+
+### thiago mendes (N/A, Sun, 16 Aug 2026 17:20:00 -0700)
+
+- **😂 Thiago Mendes who?: spat with Neymar and loads of digs at Vasco**: [Link](https://onefootball.com/en/news/thiago-mendes-who-spat-with-neymar-and-loads-of-digs-at-vasco-43288631)
+- **Neymar and Thiago Mendes feud reignites as Vasco star snubs Santos superstar in frosty handshake exchange**: [Link](https://www.goal.com/en-ca/lists/neymar-thiago-mendes-vasco-star-snubs-santos-handshake-exchange/blt984a1e21d3dd4a37)
+- **The Real Reason Why Vasco's Captain Refused to Shake Neymar's Hand Before Match**: [Link](https://www.givemesport.com/why-vasco-captain-thiago-mendes-refused-shake-neymar-hand-football-soccer/)
+
+
 ### carburant (N/A, Sun, 16 Aug 2026 23:40:00 -0700)
 
 - **EN DIRECT, guerre en Ukraine : plusieurs régions russes rationnent le carburant après les frappes ukrainiennes**: [Link](https://www.lemonde.fr/international/live/2026/08/14/en-direct-guerre-en-ukraine-plusieurs-regions-russes-rationnent-le-carburant-apres-les-frappes-ukrainiennes_6741928_3210.html)
