@@ -1,3 +1,10 @@
+### carburant (N/A, Sun, 16 Aug 2026 23:40:00 -0700)
+
+- **EN DIRECT, guerre en Ukraine : plusieurs régions russes rationnent le carburant après les frappes ukrainiennes**: [Link](https://www.lemonde.fr/international/live/2026/08/14/en-direct-guerre-en-ukraine-plusieurs-regions-russes-rationnent-le-carburant-apres-les-frappes-ukrainiennes_6741928_3210.html)
+- **Carburant : Moscou admet des pénuries après les frappes de Kyiv**: [Link](https://fr.euronews.com/my-europe/2026/08/15/la-russie-admet-de-nouvelles-penuries-de-carburant-face-aux-frappes-ukrainiennes-de-longue)
+- **Trente mille tonnes d'essence chargées à Tanger Med pour la Russie, sans trace côté marocain**: [Link](https://ledesk.ma/2026/08/09/trente-mille-tonnes-dessence-chargees-a-tanger-med-pour-la-russie-sans-trace-cote-marocain/)
+
+
 ### كرة القدم (N/A, Sun, 16 Aug 2026 22:40:00 -0700)
 
 
