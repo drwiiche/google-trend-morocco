@@ -1,3 +1,10 @@
+### dakhla atlantique (N/A, Mon, 17 Aug 2026 01:30:00 -0700)
+
+- **Maersk contourne la congestion de Casablanca en misant sur l’axe ferroviaire Tanger-Casablanca**: [Link](https://fr.le360.ma/economie/maersk-contourne-la-congestion-de-casablanca-en-misant-sur-laxe-ferroviaire-tanger-casablanca_YYVTAYCIVRG6JDSOBUQ2CUTROI/)
+- **Les ports de Dakhla et Nador pas encore lancés, l'Europe pense déjà à leur mettre des bâtons dans les roues**: [Link](https://www.bladi.net/ports-dakhla-nador-lances-europe-pense-batons-roues,123168.html)
+- **Maersk mise sur le rail entre Tanger et Casablanca pour fluidifier ses chaînes logistiques**: [Link](https://ledesk.ma/encontinu/maersk-mise-sur-le-rail-entre-tanger-et-casablanca-pour-fluidifier-ses-chaines-logistiques/)
+
+
 ### hayden panettiere cause deces (N/A, Mon, 17 Aug 2026 03:10:00 -0700)
 
 - **Hayden Panettiere, révélée par les séries « Heroes » et « Nashville », est morte à l’âge de 36 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/08/17/hayden-panettiere-revelee-par-les-series-heroes-et-nashville-est-morte-a-l-age-de-36-ans_6747975_3382.html)
