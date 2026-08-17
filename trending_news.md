@@ -1,3 +1,15 @@
+### هايدن بانتير (N/A, Mon, 17 Aug 2026 02:40:00 -0700)
+
+- **وفاة الممثلة الأمريكية هايدن بانتير عن 36 عاما**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%87%D8%A7%D9%8A%D8%AF%D9%86-%D8%A8%D8%A7%D9%86%D8%AA%D9%8A%D8%B1-%D8%B9-1793200.html)
+- **وفاة الممثلة الأميركية هايدن بانتير بطلة "هيروز" عن 36 عاما**: [Link](https://www.skynewsarabia.com/varieties/1886553-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D9%87%D8%A7%D9%8A%D8%AF%D9%86-%D8%A8%D8%A7%D9%86%D8%AA%D9%8A%D8%B1-%D8%A8%D8%B7%D9%84%D8%A9-%D9%87%D9%8A%D8%B1%D9%88%D8%B2-36-%D8%B9%D8%A7%D9%85%D8%A7)
+- **الممثلة هايدن بانتير الشريكة السابقة لوفلاديمير كليتشكو تتوفى عن 36 عاما**: [Link](https://arabic.euronews.com/2026/08/17/hayden-panettiere-actress-and-early-21st-century-icon-known-for-heroes-and-scream-has-pass)
+
+
+### hayden panettiere cause de mort (N/A, Mon, 17 Aug 2026 02:30:00 -0700)
+
+
+
+
 ### الخطوط الملكية المغربية (N/A, Sun, 16 Aug 2026 15:10:00 -0700)
 
 - **أسطول "لارام" يسجل رقما قياسيا جديدا مع وصول طائرة "بوينغ" حديثة - تليكسبريس**: [Link](https://telexpresse.com/492231.html)
