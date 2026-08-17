@@ -1,3 +1,17 @@
+### وزارة العدل (N/A, Mon, 17 Aug 2026 05:20:00 -0700)
+
+- **/ إعــــــلان**: [Link](https://justice.gov.ma/2026/08/17/%D8%A5%D8%B9%D9%80%D9%80%D9%80%D9%80%D9%80%D9%80%D9%84%D8%A7%D9%86/)
+- **مجتمع : القانون الجديد لمهنة العدول بالجريدة الرسمية .. شروط جديدة ورقمنة وتشديد للمراقبة**: [Link](https://assahraa.ma/web/2026/187852)
+- **قانون العدول يصل إلى الجريدة الرسمية عقب مخاض تشريعي وطعن دستوري**: [Link](https://nichan.ma/361712/)
+
+
+### désiré doué (N/A, Mon, 17 Aug 2026 04:50:00 -0700)
+
+- **PSG : Doué forcé à bouger, un nouveau renfort arrive**: [Link](https://www.sport.fr/football/psg-doue-force-a-bouger-un-nouveau-renfort-arrive-1474379.shtm)
+- **Les infos du jour : Kroupi relance Paris, Bordeaux joue son dernier espoir juridique, Obert résiste à Lens**: [Link](https://www.butfootballclub.fr/1690793-infos-du-jour-2026-08-15/)
+- **Mercato : Torres, Godts, plus un autre attaquant pour le PSG**: [Link](https://www.culturepsg.com/news/mercato/torres-godts-plus-un-autre-attaquant-pour-le-psg/60345)
+
+
 ### dakhla atlantique (N/A, Mon, 17 Aug 2026 01:30:00 -0700)
 
 - **Maersk contourne la congestion de Casablanca en misant sur l’axe ferroviaire Tanger-Casablanca**: [Link](https://fr.le360.ma/economie/maersk-contourne-la-congestion-de-casablanca-en-misant-sur-laxe-ferroviaire-tanger-casablanca_YYVTAYCIVRG6JDSOBUQ2CUTROI/)
