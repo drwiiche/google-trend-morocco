@@ -1,3 +1,17 @@
+### مراكش (N/A, Mon, 17 Aug 2026 09:00:00 -0700)
+
+- **غلامور تدان بالحبس والغرامة والمنع**: [Link](https://www.hespress.com/%D8%BA%D9%84%D8%A7%D9%85%D9%88%D8%B1-%D8%AA%D8%AF%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%AD%D8%A8%D8%B3-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D9%86%D8%B9-1793390.html)
+- **عاجل.. إدانة ''كلامور'' ب10 أشهر حبسا والابتعاد 3 سنوات على مواقع التواصل**: [Link](https://www.ahdath.info/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A5%D8%AF%D8%A7%D9%86%D8%A9-%D9%83%D9%84%D8%A7%D9%85%D9%88%D8%B1-%D8%A810-%D8%A3%D8%B4%D9%87%D8%B1-%D8%AD%D8%A8%D8%B3%D8%A7-%D9%88%D8%A7%D9%84%D8%A7%D8%A8%D8%AA/)
+- **القضاء يحارب (التفاهة) بأحكام المنع من الظهور على مواقع التواصل الاجتماعي**: [Link](https://ar.hibapress.com/details-750183.html)
+
+
+### البلاد (N/A, Mon, 17 Aug 2026 07:10:00 -0700)
+
+- **"حريق تاريخي" يلتهم غابات بلجيكا**: [Link](https://www.hespress.com/%D8%AD%D8%B1%D9%8A%D9%82-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%8A%D9%84%D8%AA%D9%87%D9%85-%D8%BA%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-1792776.html)
+- **آخر تطورات الحرائق في أوروبا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260817-%D8%A2%D8%AE%D8%B1-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **حرائق تجتاح بلجيكا واليونان.. إجلاء سكان وتحذيرات من اتساع رقعة النيران**: [Link](https://www.aljazeera.net/news/2026/8/16/%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%AA%D8%AC%D8%AA%D8%A7%D8%AD-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-%D8%A5%D8%AC%D9%84%D8%A7%D8%A1)
+
+
 ### soukaina glamour (N/A, Mon, 17 Aug 2026 09:30:00 -0700)
 
 - **Soukaina Glamour receives 10-month sentence and social media ban**: [Link](https://en.hespress.com/143948-soukaina-glamour-receives-10-month-sentence-and-social-media-ban.html)
