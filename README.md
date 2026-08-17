@@ -1,3 +1,10 @@
+### hayden panettiere cause deces (N/A, Mon, 17 Aug 2026 03:10:00 -0700)
+
+- **Hayden Panettiere, révélée par les séries « Heroes » et « Nashville », est morte à l’âge de 36 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/08/17/hayden-panettiere-revelee-par-les-series-heroes-et-nashville-est-morte-a-l-age-de-36-ans_6747975_3382.html)
+- **L’actrice Hayden Panettiere est morte à l’âge de 36 ans**: [Link](https://www.20minutes.fr/arts-stars/serie/4239524-20260817-mort-actrice-americaine-hayden-panettiere-star-series-heroes-nashville)
+- **"Une nouvelle dévastatrice": hommages à Hayden Panettiere, star de Heroes et Scream, morte à 36 ans**: [Link](https://fr.euronews.com/culture/2026/08/17/une-nouvelle-devastatrice-hommages-a-hayden-panettiere-star-de-heroes-et-scream-morte-a-36)
+
+
 ### هايدن بانتير (N/A, Mon, 17 Aug 2026 02:40:00 -0700)
 
 - **وفاة الممثلة الأمريكية هايدن بانتير عن 36 عاما**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%87%D8%A7%D9%8A%D8%AF%D9%86-%D8%A8%D8%A7%D9%86%D8%AA%D9%8A%D8%B1-%D8%B9-1793200.html)
