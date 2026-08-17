@@ -1,3 +1,37 @@
+### شات جي بي تي (N/A, Mon, 17 Aug 2026 12:00:00 -0700)
+
+- **كيف تعرف ما إذا كان حسابك على منصات الذكاء الاصطناعي قد تعرض للاختراق؟**: [Link](https://www.alarabiya.net/technology/tips/2026/08/16/%D9%83%D9%8A%D9%81-%D8%AA%D8%B9%D8%B1%D9%81-%D9%85%D8%A7-%D8%A7%D8%B0%D8%A7-%D9%83%D8%A7%D9%86-%D8%AD%D8%B3%D8%A7%D8%A8%D9%83-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%B5%D8%A7%D8%AA-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%82%D8%AF-%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D9%84%D8%A7%D8%AE%D8%AA%D8%B1%D8%A7%D9%82-)
+- **حسابك في شات جي بي تي قد يكون مخترقا.. تحقق بهذه الخطوات الآن**: [Link](https://a5r5br.net/international/international-news/8025334-%D8%AD%D8%B3%D8%A7%D8%A8%D9%83-%D9%81%D9%8A-%D8%B4%D8%A7%D8%AA-%D8%AC%D9%8A-%D8%A8%D9%8A-%D8%AA%D9%8A-%D9%82%D8%AF-%D9%8A%D9%83%D9%88%D9%86-%D9%85%D8%AE%D8%AA%D8%B1%D9%82%D8%A7-%D8%AA%D8%AD%D9%82%D9%82-%D8%A8%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%A2%D9%86)
+- **أخبار التكنولوجيا : هل تم اختراق حسابك على ChatGPT أو Claude أو Perplexity؟.. خطوات للتحقق**: [Link](https://www.nafeza2world.com/Tknwlwjya/2747925)
+
+
+### rc strasbourg (N/A, Mon, 17 Aug 2026 12:00:00 -0700)
+
+- **Mercato : Jacobo Ortega, attaquant du Real Madrid, s'engage pour 5 ans avec Strasbourg**: [Link](https://www.lequipe.fr/Football/Actualites/Mercato-jacobo-ortega-attaquant-du-real-madrid-s-engage-pour-5-ans-avec-strasbourg/1711639)
+- **Officiel : le Real Madrid annonce le départ de son joueur**: [Link](https://www.goal.com/fr/news/officiel-le-real-madrid-annonce-le-depart-de-son-joueur/blt23fce053644b48d2)
+- **Strasbourg s’offre un jeune attaquant du Real Madrid**: [Link](https://www.footmercato.net/a1477333032512935958-strasbourg-soffre-un-jeune-attaquant-du-real-madrid)
+
+
+### deportivo – elche (N/A, Mon, 17 Aug 2026 11:50:00 -0700)
+
+- **Deportivo - Elche en directo | Última hora de LaLiga EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/deportivo-elche/2026/08/17/01_0101_20260817_180_954-directo.html)
+- **Este es el once inicial favorito de los lectores de La Voz para el estreno del Deportivo en Primera ante el Elche**: [Link](https://www.lavozdegalicia.es/noticia/torremarathon/2026/08/17/once-inicial-favorito-lectores-voz-estreno-deportivo-primera-ante-elche/00031786981826688341643.htm)
+- **Hidalgo da la titularidad a cinco fichajes; Anselmi apuesta por Redondo, Neto y Aly Houary**: [Link](https://www.infobae.com/espana/agencias/2026/08/17/hidalgo-da-la-titularidad-a-cinco-fichajes-anselmi-apuesta-por-redondo-neto-y-aly-houary/)
+
+
+### الرائد ضد الهلال (N/A, Mon, 17 Aug 2026 11:50:00 -0700)
+
+- **موعد قرعة دور الـ 16 من كأس الملك السعودي 2026-2027 .. والقنوات الناقلة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B9%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%80-16-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2026-2027--%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/blt3a121d7f8d9c2bfb)
+- **مباشر.. مباراة الهلال ضد الرائد في كأس خادم الحرمين الشريفين**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/17/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B1%D8%A7%D8%A6%D8%AF)
+- **قيمة أندية كأس الملك ترتفع 5% إلى 1.25 مليار يورو والهلال يتصدر**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D9%8A%D9%85%D8%A9-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%AA%D8%B1%D8%AA%D9%81%D8%B9-5-%D8%A5%D9%84%D9%89-125-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D9%8A%D9%88%D8%B1%D9%88-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-13183)
+
+
+### al-raed – al-hilal (N/A, Mon, 17 Aug 2026 10:50:00 -0700)
+
+- **Al-Raed vs Al Hilal match lineup | King's Cup · 17 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5853721/Al-Raed-SFC-vs-Al-Hilal-SFC)
+- **Al-Raed vs Al-Hilal: Full lineups confirmed as Karim Benzema benched for Saudi King’s Cup 2026-27 match**: [Link](https://khelnow.com/football/al-raed-vs-al-hilal-full-lineups-saudi-kings-cup-202608)
+
+
 ### مراكش (N/A, Mon, 17 Aug 2026 09:00:00 -0700)
 
 - **غلامور تدان بالحبس والغرامة والمنع**: [Link](https://www.hespress.com/%D8%BA%D9%84%D8%A7%D9%85%D9%88%D8%B1-%D8%AA%D8%AF%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%AD%D8%A8%D8%B3-%D9%88%D8%A7%D9%84%D8%BA%D8%B1%D8%A7%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D9%86%D8%B9-1793390.html)
