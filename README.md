@@ -1,3 +1,10 @@
+### real madrid schalke 04 (N/A, Sun, 16 Aug 2026 16:50:00 -0700)
+
+- **Schalke 04 vs Real Madrid: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-schalke-04-v-real-madrid/blte74f8187335eba41)
+- **Man Utd vs Leeds LIVE: Latest score and updates from pre-season friendly**: [Link](https://www.standard.co.uk/sport/football/man-utd-vs-leeds-live-stream-latest-score-updates-result-preseason-friendly-b1293193.html)
+- **Irish Challenge 2026: Best Pictures: Round 1 – Photo 60/84**: [Link](https://www.golfpost.com/galleries/irish-challenge-2026-bilder-1786562608-en/60/)
+
+
 ### maroc espagne (N/A, Sun, 16 Aug 2026 16:00:00 -0700)
 
 - **Foreign Policy: pourquoi la restitution de Sebta (et Melilla) au Maroc est inéluctable**: [Link](https://fr.le360.ma/politique/foreign-policy-pourquoi-la-restitution-de-sebta-et-melilla-au-maroc-est-ineluctable_VRRCTSZ4SBERLEEVSJJEGNLILU/)
