@@ -1,3 +1,10 @@
+### ounahi (N/A, Tue, 18 Aug 2026 08:20:00 -0700)
+
+- **Azzedine Ounahi would prefer Ajax**: [Link](https://mountakhab.net/en/azzedine-ounahi-would-prefer-ajax/)
+- **Ounahi settles his destination: Morocco star weighs up Europe's giants against the Saudi league**: [Link](https://www.goal.com/en/news/ounahi-settles-his-destination-morocco-star-weighs-up-europe-s-giants-against-the-saudi-league/bltd4d97214f86272c0)
+- **Morocco’s Azzedine Ounahi Favors Ajax Move**: [Link](https://www.moroccoworldnews.com/2026/08/335125/moroccos-azzedine-ounahi-favors-ajax-move/)
+
+
 ### السنغال (N/A, Tue, 18 Aug 2026 08:10:00 -0700)
 
 - **رسميا.. أسطورة فرنسا مدربا للسنغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/bltf3be503b2b354ee0)
