@@ -1,3 +1,10 @@
+### tiempo mañana (N/A, Tue, 18 Aug 2026 12:50:00 -0700)
+
+- **Evolución del clima en Neuquén: máxima y mínima para hoy, 18 de agosto de 2026**: [Link](https://www.canal26.com/clima/neuquen/evolucion-del-clima-en-neuquen-maxima-y-minima-para-hoy-18-de-agosto-de-2026/)
+- **Martes fresco en Neuquén: se esperan 3 grados de mínima y cielo algo nublado**: [Link](https://neuquenpost.com/martes-fresco-en-neuquen-se-esperan-3-grados-de-minima-y-cielo-algo-nublado/)
+- **Tiempo: frío por la mañana con sol en toda la provincia**: [Link](https://www.alertadigital.ar/noticias/2026/08/17/173413-tiempo-frio-por-la-manana-con-sol-en-toda-la-provincia)
+
+
 ### lyon (N/A, Tue, 18 Aug 2026 12:30:00 -0700)
 
 - **Suivez Fenerbahçe - Lyon EN DIRECT, Ligue des champions 2026/2027, Barrages, match aller**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/live-fenerbahce-a.s.-olympique-lyonnais_mtc21878512/live-commentary.shtml)
