@@ -1,3 +1,17 @@
+### حرارة (N/A, Tue, 18 Aug 2026 01:30:00 -0700)
+
+- **«انقلاب صيفى».. بيان مهم بشأن تغير الطقس: انخفاض الحرارة وأمطار بعد موجة الحر**: [Link](https://www.almasryalyoum.com/news/details/4339556)
+- **رغم تحذيرات الأمطار الخفيفة.. درجات الحرارة تعود للارتفاع في مصر**: [Link](https://www.alkhaleej.ae/2026-08-17/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%B1%D8%BA%D9%85-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+- **​حالة طقس اليوم الثلاثاء 18-8-2026 في مصر**: [Link](https://almashhadalaraby.com/news/579433)
+
+
+### رانيا العبد الله (N/A, Mon, 17 Aug 2026 23:20:00 -0700)
+
+- **ملك الأردن والملكة رانيا يحملان حفيدتيهما تاليا ورانيا**: [Link](https://arabic.cnn.com/entertainment/article/2026/08/17/king-abdullah-ii-and-queen-rania-of-jordan-hold-their-two-new-granddaughters)
+- **فرحة مضاعفة في القصر الهاشمي.. الأميرة إيمان ترزق بتوأمتين**: [Link](https://maghribona24.com/79113)
+- **خبر : التوأمتان الجديدتان تنضمان لقصور أوروبية عريقة.. حكايات توائم الأسر الملكية**: [Link](https://samanews.ps/ar/post/623754/%D8%A7%D9%84%D8%AA%D9%88%D8%A3%D9%85%D8%AA%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%AA%D8%A7%D9%86-%D8%AA%D9%86%D8%B6%D9%85%D8%A7%D9%86-%D9%84%D9%82%D8%B5%D9%88%D8%B1-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%B9%D8%B1%D9%8A%D9%82%D8%A9-%D8%AD%D9%83%D8%A7%D9%8A%D8%A7%D8%AA-%D8%AA%D9%88%D8%A7%D8%A6%D9%85-%D8%A7%D9%84%D8%A3%D8%B3%D8%B1-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9)
+
+
 ### deauville (N/A, Tue, 18 Aug 2026 01:00:00 -0700)
 
 - **Les pronos hippiques du mardi 18 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-18-aout-2026_AN-202608170287.html)
