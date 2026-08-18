@@ -1,3 +1,31 @@
+### mathilde favier (N/A, Tue, 18 Aug 2026 06:30:00 -0700)
+
+- **Un des producteurs d'OSS 117 et une figure de Dior meurent dans un accident à Airvault près de Thouars**: [Link](https://www.ici.fr/nouvelle-aquitaine/deux-sevres-79/airvault/le-producteur-d-oss-117-et-une-grande-responsable-chez-dior-meurt-dans-un-accident-a-airvault-pres-de-thouars-3976463)
+- **Nicolas Altmayer, producteur d’« OSS 117 », et sa compagne, Mathilde Favier, cadre chez Dior, meurent dans un accident de la route**: [Link](https://www.lemonde.fr/disparitions/article/2026/08/18/nicolas-altmayer-producteur-de-oss-117-et-sa-compagne-mathilde-favier-meurent-dans-un-accident-de-la-route-dans-les-deux-sevres_6749044_3382.html)
+- **Nicolas Altmayer, producteur d’OSS 117, et une figure de Dior, Mathilde Favier, sont morts dans un accident de la route**: [Link](https://www.lefigaro.fr/cinema/nicolas-altmayer-producteur-d-oss-117-et-une-figure-de-dior-mathilde-favier-sont-morts-dans-un-accident-de-la-route-20260818)
+
+
+### israël (N/A, Tue, 18 Aug 2026 06:10:00 -0700)
+
+- **Moyen-Orient en direct : les États-Unis accusent Israël de frappes en Syrie**: [Link](https://www.france24.com/fr/moyen-orient/20260818-en-direct-iran-etats-unis-negociations-juge-caduc-delai-60-jours-netanyahu-kushner-gaza-liban-yemen-houthis)
+- **EN DIRECT - Moyen-Orient: la Syrie dénonce une attaque «injustifiée» d'Israël contre un aéroport militaire**: [Link](https://www.rfi.fr/fr/moyen-orient/20260818-en-direct-moyen-orient-un-navire-touch%C3%A9-par-un-projectile-inconnu-dans-le-d%C3%A9troit-d-ormuz)
+- **La Syrie dénonce des frappes israéliennes contre une base aérienne à Idlib et appelle à une intervention internationale**: [Link](https://qna.org.qa/fr-FR/News-Area/News/2026-8/18/la-syrie-denonce-des-frappes-israeliennes-contre-une-base-aerienne-a-idlib-et-appelle-a-une-intervention-internationale)
+
+
+### rudi garcia (N/A, Tue, 18 Aug 2026 05:40:00 -0700)
+
+- **Garcia blames Belgium’s doctors for World Cup struggles**: [Link](https://www.reuters.com/sports/soccer/garcia-blames-belgiums-doctors-world-cup-struggles-2026-08-17/)
+- **Rudi García warns Van Bommel about one man in Belgium: 'If I were still national coach, then...'**: [Link](https://www.goal.com/en/news/rudi-garcia-warns-van-bommel-about-one-man-in-belgium-if-i-were-still-national-coach-then/bltd0c8ebf34f70a0de)
+- **Former Belgium boss Rudi Garcia says team doctors hampered World Cup efforts**: [Link](https://www.flashscore.com/news/former-belgium-boss-rudi-garcia-says-team-doctors-hampered-world-cup-efforts/Clq5lLz9/)
+
+
+### greve easyjet vol annulé (N/A, Tue, 18 Aug 2026 05:20:00 -0700)
+
+- **"Cela m'a coûté 1.700 euros": la colère d'un Français qui a vu son vol annulé quelques heures avant le décollage par la grève chez EasyJet**: [Link](https://www.bfmtv.com/economie/entreprises/transports/cela-m-a-coute-1-700-euros-la-colere-d-un-francais-qui-a-vu-son-vol-annule-quelques-heures-avant-le-decollage-par-la-greve-chez-easy-jet_AV-202608150175.html)
+- **Victimes de la grève EasyJet, ils voient leurs économies « partir en fumée »**: [Link](https://www.20minutes.fr/societe/greve/4239598-20260817-greve-chez-easyjet-prix-vacances-multiplie-deux-voyageurs-coinces-annulation-vols)
+- **Vers une quarantaine de vols annulés : les hôtesses et stewards d'easyJet parient sur une grève « très suivie » le week-end du 15 août**: [Link](https://www.lesechos.fr/industrie-services/air-defense/il-y-a-aura-des-annulations-de-vol-les-hotesses-et-stewards-deasyjet-parient-sur-une-greve-tres-suivie-le-week-end-du-15-aout-2247005)
+
+
 ### الجزائر (N/A, Tue, 18 Aug 2026 04:50:00 -0700)
 
 - **الرميشي: "اللبؤات لم يبخلن بأي شيء"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%85%D9%8A%D8%B4%D9%8A-%D8%A7%D9%84%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D9%84%D9%85-%D9%8A%D8%A8%D8%AE%D9%84%D9%86-%D8%A8%D8%A3%D9%8A-%D8%B4%D9%8A%D8%A1-1793081.html)
