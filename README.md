@@ -1,3 +1,17 @@
+### الطقس غدًا (N/A, Tue, 18 Aug 2026 13:00:00 -0700)
+
+- **الأرصاد: انخفاض طفيف في الحرارة اليوم.. والعظمى بالقاهرة 34**: [Link](https://www.elwatannews.com/news/details/8341474)
+- **«أغسطس يغير مزاجه».. الأرصاد تكشف حالة الطقس غدًا الأربعاء**: [Link](https://www.almasryalyoum.com/news/details/4340720)
+- **الطقس غدا.. انخفاض درجات الحرارة وتحذير من ارتفاع أمواج هذه الشواطئ**: [Link](https://www.youm7.com/story/2026/8/17/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D8%A7-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D9%85%D9%88%D8%A7%D8%AC-%D9%87%D8%B0%D9%87/7516220)
+
+
+### champions league (N/A, Tue, 18 Aug 2026 12:10:00 -0700)
+
+- **Football accumulator tips for Wednesday August 19: Back our acca at 12-1**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/football-accumulator-tips-for-wednesday-august-19-back-our-acca-at-12-1-aF2Jn3r7jYCg/)
+- **Cameron Carter-Vickers looking forward to LASK game**: [Link](https://www.celticfc.com/news/2026/august/18/cameron-carter-vickers-looking-forward-to-lask-game/)
+- **Football Tips: Wednesday’s 11/1 UCL Bet Builder+**: [Link](https://news.paddypower.com/football/champions-league/2026/08/18/football-tips-champions-league-bet-builder-wed-19-aug/)
+
+
 ### météo demain (N/A, Tue, 18 Aug 2026 12:50:00 -0700)
 
 - **Météo : revirement de situation mercredi avec l’arrivée d’une masse d’air inattendue sur la France**: [Link](https://www.tameteo.com/actualites/previsions/meteo-revirement-de-situation-mercredi-avec-l-arrivee-d-une-masse-d-air-inattendue-sur-la-france.html)
