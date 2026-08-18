@@ -1,3 +1,38 @@
+### fenerbahçe – lyon (N/A, Tue, 18 Aug 2026 11:30:00 -0700)
+
+- **Fenerbahçe, Şampiyonlar Ligi Play-Off Turunda Avantaj İçin Sahada!**: [Link](https://www.kahtahaberpostasi.com/haber/fenerbahce-sampiyonlar-ligi-play-off-turunda-avantaj-i-cin-sahada)
+- **Fenerbahçe'de Lyon maçı öncesi ortak mesaj!**: [Link](https://www.sporx.com/fenerbahce-de-lyon-maci-oncesi-ortak-mesaj-SXHBQ1172876SXQ)
+- **Fenerbahçe tribünlerinden Ederson'a destek!**: [Link](https://www.aspor.com.tr/fenerbahce/2026/08/18/kadikoyde-edersona-ozel-destek)
+
+
+### diriyah vs al-nassr (N/A, Tue, 18 Aug 2026 11:30:00 -0700)
+
+- **Al Diriyah vs Al Nassr FC match lineup | King's Cup · 18 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5853717/Al-Diriyah-FC-vs-Al-Nassr-FC)
+- **In Ronaldo's absence: Postecoglou hands Samu Costa first start**: [Link](https://www.goal.com/en/news/in-ronaldo-s-absence-postecoglou-hands-samu-costa-first-start/blt273d1c842b34e8df)
+- **Why did Cristiano Ronaldo miss Al Nassr vs Al Diriyah Saudi King's Cup Round of 32 clash?**: [Link](https://khelnow.com/football/why-cristiano-ronaldo-miss-al-nassr-vs-al-diriyah-saudi-kings-cup-202608)
+
+
+### الدرعية ضد النصر (N/A, Tue, 18 Aug 2026 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الدرعية والنصر في كأس الملك السعودي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AF%D8%B1%D8%B9%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5fbc27d06fb9ab1c)
+- **توقعات مباراة الدرعية والنصر في دور الـ16 من كأس الملك: رونالدو يعود للمنافسة على التأهل**: [Link](https://www.vietnam.vn/ar/nhan-dinh-al-diriyah-vs-al-nassr-vong-1-16-king-s-cup-ronaldo-tai-xuat-san-ve-di-tiep)
+- **حسم موقفه من مواجهة الدرعية.. موعد أول مباراة لرونالدو مع النصر**: [Link](https://www.eremnews.com/sports/x2cidj4)
+
+
+### leon baptiste (N/A, Tue, 18 Aug 2026 10:50:00 -0700)
+
+- **Leon Baptiste, entraîneur britannique, porté disparu après un séjour au Maroc**: [Link](https://mobile.telquel.ma/instant-t/2026/08/18/leon-baptiste-entraineur-britannique-porte-disparu-apres-un-sejour-au-maroc_2003604/)
+- **Disparition au Maroc de l’entraîneur britannique d’athlétisme Leon Baptiste**: [Link](https://h24info.ma/maroc/disparition-au-maroc-de-lentraineur-britannique-dathletisme-leon-baptiste/)
+- **Le mystère entoure la disparition de l’entraîneur britannique d’athlétisme Leon Baptiste au Maroc**: [Link](https://en.yabiladi.com/articles/details/200827/mystere-entoure-disparition-l-entraineur-britannique.html)
+
+
+### tabac (N/A, Tue, 18 Aug 2026 09:20:00 -0700)
+
+- **Prix du tabac : voici les nouveaux prix des paquets de cigarettes au 1er septembre**: [Link](https://www.cnews.fr/france/2026-08-18/prix-du-tabac-voici-les-nouveaux-prix-des-paquets-de-cigarettes-au-1er-septembre)
+- **Prix des cigarettes : certaines marques vont baisser dès le 1er septembre**: [Link](https://www.nordlittoral.fr/295078/article/2026-08-18/prix-des-cigarettes-certaines-marques-vont-baisser-des-le-1er-septembre)
+- **Prix des cigarettes : des baisses et augmentations prévues au 1er septembre**: [Link](https://www.letelegramme.fr/economie/prix-des-cigarettes-des-baisses-et-augmentations-prevues-au-1er-septembre-7101922.php)
+
+
 ### turf fr (N/A, Tue, 18 Aug 2026 10:30:00 -0700)
 
 - **Tiercé. Les pronostics de « L'Alsace » pour mardi 18 août - Prix du Vieux Bassin**: [Link](https://www.lalsace.fr/actualite/2026/08/17/les-pronostics-de-l-alsace-pour-mardi-18-aout-prix-du-vieux-bassin)
