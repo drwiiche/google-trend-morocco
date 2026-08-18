@@ -1,3 +1,10 @@
+### boeing 787 (N/A, Tue, 18 Aug 2026 07:10:00 -0700)
+
+- **New footage from inside the plane captures moment Vietnam Airlines Dreamliner overshot runway at Munich Airport**: [Link](https://7news.com.au/news/new-footage-from-inside-the-plane-captures-moment-vietnam-airlines-dreamliner-overshot-runway-at-munich-airport-c-22735487)
+- **Video Frightening close call at Munich Airport**: [Link](https://abcnews.com/video/135680603/)
+- **'Mortal Fear': Passenger Describes Panic Aboard Boeing That Ran Off the Runway in Munich**: [Link](https://aroundprague.cz/en/news/mortal-fear-passenger-describes-panic-aboard-boeing-that-ran-off-the-runway-in-m)
+
+
 ### mathilde favier (N/A, Tue, 18 Aug 2026 06:30:00 -0700)
 
 - **Un des producteurs d'OSS 117 et une figure de Dior meurent dans un accident à Airvault près de Thouars**: [Link](https://www.ici.fr/nouvelle-aquitaine/deux-sevres-79/airvault/le-producteur-d-oss-117-et-une-grande-responsable-chez-dior-meurt-dans-un-accident-a-airvault-pres-de-thouars-3976463)
