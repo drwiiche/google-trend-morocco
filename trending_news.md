@@ -1,3 +1,15 @@
+### le360 (N/A, Tue, 18 Aug 2026 14:30:00 -0700)
+
+
+
+
+### mathilde favier dior (N/A, Tue, 18 Aug 2026 12:30:00 -0700)
+
+- **Un des producteurs d'OSS 117 et une figure de Dior meurent dans un accident à Airvault près de Thouars**: [Link](https://www.ici.fr/nouvelle-aquitaine/deux-sevres-79/airvault/le-producteur-d-oss-117-et-une-grande-responsable-chez-dior-meurt-dans-un-accident-a-airvault-pres-de-thouars-3976463)
+- **Mathilde Favier, directrice des relations publiques chez Dior, et Nicolas Altmayer, producteur d’« OSS 117 » meurent dans un accident de la route**: [Link](https://www.lemonde.fr/disparitions/article/2026/08/18/nicolas-altmayer-producteur-de-oss-117-et-sa-compagne-mathilde-favier-meurent-dans-un-accident-de-la-route-dans-les-deux-sevres_6749044_3382.html)
+- **Mathilde Favier et Nicolas Altmayer, le roman tragique d’un couple phare du cinéma et de la mode**: [Link](https://www.lefigaro.fr/actualite-france/mathilde-favier-et-nicolas-altmayer-le-roman-tragique-d-un-couple-phare-du-cinema-et-de-la-mode-20260818)
+
+
 ### tiempo mañana (N/A, Tue, 18 Aug 2026 12:50:00 -0700)
 
 - **Evolución del clima en Neuquén: máxima y mínima para hoy, 18 de agosto de 2026**: [Link](https://www.canal26.com/clima/neuquen/evolucion-del-clima-en-neuquen-maxima-y-minima-para-hoy-18-de-agosto-de-2026/)
