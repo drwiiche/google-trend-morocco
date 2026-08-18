@@ -1,3 +1,10 @@
+### السنغال (N/A, Tue, 18 Aug 2026 08:10:00 -0700)
+
+- **رسميا.. أسطورة فرنسا مدربا للسنغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D9%84%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/bltf3be503b2b354ee0)
+- **السنغال ترحب بالمدرب باتريك فييرا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%B1%D8%AD%D8%A8-%D8%A8%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D9%81%D9%8A%D9%8A%D8%B1%D8%A7-1793761.html)
+- **ثياو يصدم الاتحاد السنغالي ويطالب بأكثر من نصف مليون يورو**: [Link](https://infosports.ma/225169/)
+
+
 ### boeing 787 (N/A, Tue, 18 Aug 2026 07:10:00 -0700)
 
 - **New footage from inside the plane captures moment Vietnam Airlines Dreamliner overshot runway at Munich Airport**: [Link](https://7news.com.au/news/new-footage-from-inside-the-plane-captures-moment-vietnam-airlines-dreamliner-overshot-runway-at-munich-airport-c-22735487)
