@@ -1,3 +1,10 @@
+### al draih – al-nassr fc (N/A, Tue, 18 Aug 2026 11:10:00 -0700)
+
+- **Al Diriyah vs Al Nassr FC match lineup | King's Cup · 18 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5853717/Al-Diriyah-FC-vs-Al-Nassr-FC)
+- **In Ronaldo's absence: Postecoglou hands Samu Costa first start**: [Link](https://www.goal.com/en/news/in-ronaldo-s-absence-postecoglou-hands-samu-costa-first-start/blt273d1c842b34e8df)
+- **Why did Cristiano Ronaldo miss Al Nassr vs Al Diriyah Saudi King's Cup Round of 32 clash?**: [Link](https://khelnow.com/football/why-cristiano-ronaldo-miss-al-nassr-vs-al-diriyah-saudi-kings-cup-202608)
+
+
 ### fenerbahçe – lyon (N/A, Tue, 18 Aug 2026 11:30:00 -0700)
 
 - **Fenerbahçe, Şampiyonlar Ligi Play-Off Turunda Avantaj İçin Sahada!**: [Link](https://www.kahtahaberpostasi.com/haber/fenerbahce-sampiyonlar-ligi-play-off-turunda-avantaj-i-cin-sahada)
