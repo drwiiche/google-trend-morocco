@@ -1,3 +1,31 @@
+### météo demain (N/A, Tue, 18 Aug 2026 12:50:00 -0700)
+
+- **Météo : revirement de situation mercredi avec l’arrivée d’une masse d’air inattendue sur la France**: [Link](https://www.tameteo.com/actualites/previsions/meteo-revirement-de-situation-mercredi-avec-l-arrivee-d-une-masse-d-air-inattendue-sur-la-france.html)
+- **Météo de demain : un dimanche lourd et orageux**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-08-15/meteo-de-demain-un-dimanche-lourd-et-orageux-91348)
+- **EN DIRECT, incendies et canicule : la canicule se maintient dans le sud-est ; dans les Landes, une partie des personnes évacuées sont autorisées à rentrer chez elles**: [Link](https://www.lemonde.fr/climat/live/2026/08/16/en-direct-incendies-et-canicule-la-canicule-se-maintient-dans-le-sud-est-dans-les-landes-une-partie-des-personnes-evacuees-sont-autorisees-a-rentrer-chez-elles_6744636_1652612.html)
+
+
+### weather tomorrow (N/A, Tue, 18 Aug 2026 12:40:00 -0700)
+
+- **IMD predicts heavy rainfall over UP, MP and Uttarakhand**: [Link](https://newsonair.gov.in/imd-predicts-heavy-rainfall-over-up-mp-and-uttarakhand/)
+- **Weather Forecast August 19: Heavy rain, thunderstorms alert in 23 states; winds up to 85 kmph, check forecast**: [Link](https://www.zeebiz.com/india/news-weather-forecast-august-19-heavy-rain-thunderstorms-alert-in-23-states-winds-up-to-85-kmph-check-forecast-400729)
+- **Humid conditions continue in Delhi-NCR, chances of heavy rain remain slim**: [Link](https://ddnews.gov.in/en/humid-conditions-continue-in-delhi-ncr-chances-of-heavy-rain-remain-slim/)
+
+
+### meteo di domani (N/A, Tue, 18 Aug 2026 12:40:00 -0700)
+
+- **Temporali dopo il caldo, parla l'esperto: 'Le Alpi fanno da hot spot per i fulmini'**: [Link](https://www.ansa.it/sito/notizie/cronaca/2026/08/18/temporali-dopo-il-caldo-parla-lesperto-le-alpi-fanno-da-hot-spot-per_d9e35673-8b00-4df7-885c-a720ae9e3fd0.html)
+- **L’estate rallenta il passo ma non è finita. Allerta gialla per temporali in sette regioni**: [Link](https://www.repubblica.it/cronaca/2026/08/18/news/temporali_allerta_gialla_sette_regioni-425534266/)
+- **Previsioni meteo mercoledì 19 agosto, a Milano e in Lombardia bel tempo, poi tornano i temporali**: [Link](https://milano.corriere.it/notizie/meteo/26_agosto_18/previsioni-meteo-mercoledi-19-agosto-a-milano-e-in-lombardia-bel-tempo-poi-tornano-i-temporali-f87c946c-f658-463c-8194-0389b9a43xlk.shtml)
+
+
+### wetter morgen (N/A, Tue, 18 Aug 2026 12:40:00 -0700)
+
+- **Das Wetter für den 19. August**: [Link](https://www.butenunbinnen.de/videos/wetter-15626.html)
+- **Wetter morgen am Mittwoch: Wo gewittriger Regen fällt und die Sonne scheint**: [Link](https://www.wetter.com/news/wetterbericht-fuer-morgen-mittwoch-19-august-2026-wo-gewittriger-regen-faellt-und-die-sonne-scheint_aid_6a83fdfae879fec9da056b2e.html)
+- **Sonne, Wolken, Schauer: Wetter wird wechselhaft**: [Link](https://bo.de/sonne-wolken-schauer-wetter-wird-wechselhaft/)
+
+
 ### al draih – al-nassr fc (N/A, Tue, 18 Aug 2026 11:10:00 -0700)
 
 - **Al Diriyah vs Al Nassr FC match lineup | King's Cup · 18 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5853717/Al-Diriyah-FC-vs-Al-Nassr-FC)
