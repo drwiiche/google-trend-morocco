@@ -1,3 +1,10 @@
+### musiala bayern munich (N/A, Mon, 17 Aug 2026 21:50:00 -0700)
+
+- **Saibari eilte sofort zu Musiala: Schlimmes Déjà-vu für Bayern-Star**: [Link](https://www.bild.de/sport/fussball/saibari-eilte-sofort-zu-musiala-schlimmes-deja-vu-fuer-bayern-star-6a82b3a7169e8e32c0aeaf51)
+- **"Fühle mich wie zu Hause": Brown schwärmt von Integration beim FC Bayern**: [Link](https://fcbinside.de/2026/08/17/fuehle-mich-wie-zu-hause-brown-schwaermt-von-integration-beim-fc-bayern/)
+- **Lothar Matthäus über Bayern, Kane, Musiala BVB und El Mala**: [Link](https://sport.sky.de/fussball/artikel/lothar-matthaeus-ueber-bayern-kane-musiala-bvb-und-el-mala/13574023/34130)
+
+
 ### syndicat (N/A, Mon, 17 Aug 2026 12:10:00 -0700)
 
 - **À Ceuta, des migrants bloqués aux portes de l'Europe attendent de connaître leur sort**: [Link](https://www.france24.com/fr/europe/20260817-ceuta-enclave-espagne-le-sort-des-migrants-suspendu-porte-europe-immigration-fronti%C3%A8re-maroc)
