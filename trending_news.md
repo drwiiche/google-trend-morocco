@@ -1,3 +1,10 @@
+### yael trepy (N/A, Tue, 18 Aug 2026 02:50:00 -0700)
+
+- **Football: Serie A footballer Yael Trepy in intensive care after swimming pool incident**: [Link](https://www.bbc.com/sport/football/articles/cm2g7mr0d17o)
+- **Cagliari forward Yael Trepy, 20, in intensive care after swimming incident**: [Link](https://www.espn.com/soccer/story/_/id/49638680/cagliari-forward-yael-trepy-20-intensive-care-swimming-incident)
+- **Trepy’s ‘improvement in respiratory function’ after swimming pool incident**: [Link](https://sports.yahoo.com/articles/trepy-improvement-respiratory-function-swimming-103000066.html)
+
+
 ### aljazeera (N/A, Tue, 18 Aug 2026 01:30:00 -0700)
 
 
