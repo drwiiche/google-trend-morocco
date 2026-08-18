@@ -1,3 +1,17 @@
+### turf fr (N/A, Tue, 18 Aug 2026 10:30:00 -0700)
+
+- **Tiercé. Les pronostics de « L'Alsace » pour mardi 18 août - Prix du Vieux Bassin**: [Link](https://www.lalsace.fr/actualite/2026/08/17/les-pronostics-de-l-alsace-pour-mardi-18-aout-prix-du-vieux-bassin)
+- **Les pronos hippiques du mardi 18 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-18-aout-2026_AN-202608170287.html)
+- **Quinté+ du mardi 18 août 2026 : Aloysius est une bonne base**: [Link](https://www.zone-turf.fr/quinte/quinte-du-mardi-18-aout-2026-aloysius-est-une-bonne-base-130335.html)
+
+
+### kevin lamour (N/A, Tue, 18 Aug 2026 08:40:00 -0700)
+
+- **Info RMC Sport. Le message de Kevin Lamour aux équipes de la Fifa après son licenciement...sans un mot pour Infantino**: [Link](https://rmcsport.bfmtv.com/football/coupe-du-monde/info-rmc-sport-le-message-de-kevin-lamour-aux-equipes-de-la-fifa-apres-son-licenciement-sans-un-mot-pour-infantino_AV-202608180331.html)
+- **Après être monté au front contre Gianni Infantino, le numéro 3 de la FIFA Kevin Lamour licencié**: [Link](https://www.lequipe.fr/Football/Actualites/Apres-etre-monte-au-front-contre-gianni-infantino-le-numero-3-de-la-fifa-kevin-lamour-licencie/1711781)
+- **La FIFA licencie le Français Kevin Lamour, numéro trois de l’instance, qui s’est opposé à Gianni Infantino**: [Link](https://www.lemonde.fr/sport/article/2026/08/17/la-fifa-licencie-le-francais-kevin-lamour-numero-trois-de-l-instance-qui-s-est-oppose-a-gianni-infantino_6748483_3242.html)
+
+
 ### roberto carlos (N/A, Tue, 18 Aug 2026 09:50:00 -0700)
 
 - **Souhaila Ettahiri: Morocco-Rooted Agent Married to Roberto Carlos**: [Link](https://www.moroccoworldnews.com/2026/08/335078/souhaila-ettahiri-morocco-rooted-agent-married-to-roberto-carlos/)
