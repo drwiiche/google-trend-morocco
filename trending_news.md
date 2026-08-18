@@ -1,3 +1,17 @@
+### بيب غوارديولا (N/A, Tue, 18 Aug 2026 15:20:00 -0700)
+
+- **أحبها بجنون.. حكاية "إمبراطورة الموضة" التي أبكت غوارديولا**: [Link](https://www.alarabiya.net/sport/2026/08/19/%D8%A7%D8%AD%D8%A8%D9%87%D8%A7-%D8%A8%D8%AC%D9%86%D9%88%D9%86-%D8%AD%D9%83%D8%A7%D9%8A%D8%A9-%D8%A7%D9%85%D8%A8%D8%B1%D8%A7%D8%B7%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B6%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D8%A7%D8%A8%D9%83%D8%AA-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7)
+- **جوارديولا يفجر مفاجأة من العيار الثقيل: "ربما انتهى الأمر"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D9%81%D8%AC%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84--%D8%B1%D8%A8%D9%85%D8%A7-%D8%A7%D9%86%D8%AA%D9%87%D9%89-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1/bltb4818ebdbfa61e65)
+- **"من الصعب العودة".. هل قرر غوارديولا اعتزال التدريب مبكرا؟**: [Link](https://www.aljazeera.net/sport/2026/8/18/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85)
+
+
+### condamné (N/A, Tue, 18 Aug 2026 13:20:00 -0700)
+
+- **La Syrie condamne à mort Wassim al-Assad, cousin du président déchu**: [Link](https://www.france24.com/fr/moyen-orient/20260818-la-syrie-condamne-%C3%A0-mort-wassim-al-assad-cousin-de-l-ex-pr%C3%A9sident)
+- **Procès de Bachar al-Assad : quelle justice transitionnelle en Syrie ?**: [Link](https://www.radiofrance.fr/franceculture/podcasts/questions-du-soir-le-debat/proces-de-bachar-al-assad-quelle-justice-transitionnelle-en-syrie-5880888)
+- **« Je suis Dieu à Deraa » : Atef Najib, le cousin d’Assad condamné à mort**: [Link](https://www.lorientlejour.com/article/1544207/je-suis-dieu-a-deraa-atef-najib-le-cousin-d-assad-condamne-a-mort.html)
+
+
 ### le360 (N/A, Tue, 18 Aug 2026 14:30:00 -0700)
 
 
