@@ -1,3 +1,10 @@
+### roberto carlos (N/A, Tue, 18 Aug 2026 09:50:00 -0700)
+
+- **Souhaila Ettahiri: Morocco-Rooted Agent Married to Roberto Carlos**: [Link](https://www.moroccoworldnews.com/2026/08/335078/souhaila-ettahiri-morocco-rooted-agent-married-to-roberto-carlos/)
+- **Roberto Carlos converted to Islam**: [Link](https://en.haberler.com/roberto-carlos-converted-to-islam-2299796/)
+- **Married Again: Who Is Roberto Carlos’s Wife and When Did the Wedding Take Place?**: [Link](https://zamin.uz/en/world/218351-married-again-who-is-roberto-carloss-wife-and-when-did-the-wedding-take-place.html)
+
+
 ### ounahi (N/A, Tue, 18 Aug 2026 08:20:00 -0700)
 
 - **Azzedine Ounahi would prefer Ajax**: [Link](https://mountakhab.net/en/azzedine-ounahi-would-prefer-ajax/)
