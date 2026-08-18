@@ -1,3 +1,10 @@
+### apple iphone 18 pro max (N/A, Mon, 17 Aug 2026 16:50:00 -0700)
+
+- **Apple Skipping iPhone 18 Launch This Year**: [Link](https://www.macrumors.com/2026/08/12/apple-skipping-iphone-18-launch-this-year/)
+- **A20 Pro: the truth about Apple’s 15% faster, 30% more efficient chip**: [Link](https://tech-ish.com/2026/08/17/a20-pro-the-truth-about-apples-15-faster-30-more-efficient-chip/)
+- **iPhone 18 Pro Max 2026 Buying Guide: Upgrade or Wait for 2027?**: [Link](https://ascendants.in/industry_events/iphone-18-pro-max-2026-buy-or-skip/)
+
+
 ### الصندوق المغربي للتقاعد (N/A, Mon, 17 Aug 2026 15:40:00 -0700)
 
 
