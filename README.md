@@ -1,3 +1,17 @@
+### prix carburant maroc (N/A, Mon, 17 Aug 2026 16:10:00 -0700)
+
+- **Carburants : le gasoil augmente de 65 centimes, l’essence baisse de 30 centimes dès ce soir**: [Link](https://lematin.ma/economie/le-gasoil-augmente-de-65-centimes-lessence-baisse-de-30-centimes/361090)
+- **Carburants: le gasoil prend 0,65 dirham, l’essence recule de 0,3 dirham**: [Link](https://fr.le360.ma/economie/carburants-le-gasoil-prend-065-dirham-lessence-recule-de-03-dirham_UF6Z2TRS7RBVFF5GUG3D5H7OPQ/)
+- **Carburants : le gasoil enchaîne les hausses et approche les 15 dirhams**: [Link](https://fr.hespress.com/485411-carburants-le-gasoil-enchaine-les-hausses-et-approche-les-15-dirhams.html)
+
+
+### soukaïna glamour (N/A, Mon, 17 Aug 2026 15:50:00 -0700)
+
+- **Soukaina Glamour arrêtée à l’aéroport de Casablanca**: [Link](https://fr.le360.ma/societe/soukaina-glamour-arretee-a-laeroport-de-casablanca_HX6G7PZJPJBIDHIL35DDLRQQSU/)
+- **L'influenceuse Soukaina Glamour condamnée à de la prison ferme et interdiction de réseaux sociaux**: [Link](https://fr.hespress.com/485452-linfluenceuse-soukaina-glamour-condamnee-a-de-la-prison-ferme-et-interdiction-de-reseaux-sociaux.html)
+- **Maroc : une influenceuse interdite… de réseaux sociaux par la justice**: [Link](https://www.bladi.net/maroc-influenceuse-interdite-reseaux-sociaux-justice,123195.html)
+
+
 ### apple iphone 18 pro max (N/A, Mon, 17 Aug 2026 16:50:00 -0700)
 
 - **Apple Skipping iPhone 18 Launch This Year**: [Link](https://www.macrumors.com/2026/08/12/apple-skipping-iphone-18-launch-this-year/)
