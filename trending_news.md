@@ -1,3 +1,10 @@
+### deauville (N/A, Tue, 18 Aug 2026 01:00:00 -0700)
+
+- **Les pronos hippiques du mardi 18 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-18-aout-2026_AN-202608170287.html)
+- **Equidia met le feu au Quinté+ du mardi 18 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mardi-18-aout)
+- **Tiercé. Les pronostics de « L'Alsace » pour mardi 18 août - Prix du Vieux Bassin**: [Link](https://www.lalsace.fr/actualite/2026/08/17/les-pronostics-de-l-alsace-pour-mardi-18-aout-prix-du-vieux-bassin)
+
+
 ### musiala bayern munich (N/A, Mon, 17 Aug 2026 21:50:00 -0700)
 
 - **Saibari eilte sofort zu Musiala: Schlimmes Déjà-vu für Bayern-Star**: [Link](https://www.bild.de/sport/fussball/saibari-eilte-sofort-zu-musiala-schlimmes-deja-vu-fuer-bayern-star-6a82b3a7169e8e32c0aeaf51)
