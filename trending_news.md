@@ -1,3 +1,10 @@
+### syndicat (N/A, Mon, 17 Aug 2026 12:10:00 -0700)
+
+- **À Ceuta, des migrants bloqués aux portes de l'Europe attendent de connaître leur sort**: [Link](https://www.france24.com/fr/europe/20260817-ceuta-enclave-espagne-le-sort-des-migrants-suspendu-porte-europe-immigration-fronti%C3%A8re-maroc)
+- **Foreign Policy: pourquoi la restitution de Sebta (et Melilla) au Maroc est inéluctable**: [Link](https://fr.le360.ma/politique/foreign-policy-pourquoi-la-restitution-de-sebta-et-melilla-au-maroc-est-ineluctable_VRRCTSZ4SBERLEEVSJJEGNLILU/)
+- **Sebta : les syndicats d'agents frontaliers espagnols affirment avoir alerté Madrid plusieurs semaines auparavant**: [Link](https://medias24.com/2026/08/17/sebta-les-syndicats-dagents-frontaliers-espagnols-affirmant-avoir-alerte-madrid-plusieurs-semaine-avant-1740763/)
+
+
 ### prix carburant maroc (N/A, Mon, 17 Aug 2026 16:10:00 -0700)
 
 - **Carburants : le gasoil augmente de 65 centimes, l’essence baisse de 30 centimes dès ce soir**: [Link](https://lematin.ma/economie/le-gasoil-augmente-de-65-centimes-lessence-baisse-de-30-centimes/361090)
