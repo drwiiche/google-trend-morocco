@@ -1,3 +1,17 @@
+### prison (N/A, Tue, 18 Aug 2026 04:20:00 -0700)
+
+- **Stroke by stroke around Boston Harbor, with the King of Prison Island Swimming**: [Link](https://www.bostonglobe.com/2026/08/17/metro/stroke-by-stroke-around-boston-harbor-with-king-prison-island-swimming/)
+- **Pakistan top court orders ex-PM Imran Khan be moved to hospital from jail**: [Link](https://www.reuters.com/world/asia-pacific/pakistan-top-court-orders-ex-pm-imran-khan-be-moved-hospital-jail-local-media-2026-08-18/)
+- **Pakistan’s top court orders imprisoned former PM Imran Khan taken to hospital, allows family visits**: [Link](https://www.wral.com/news/ap/043c3-pakistan-s-top-court-orders-imprisoned-former-pm-imran-khan-taken-to-hospital-allows-family-visits/)
+
+
+### caisse marocaine des retraites (N/A, Tue, 18 Aug 2026 04:10:00 -0700)
+
+- **Retraite : la CMR veut réduire les documents à fournir et les déplacements des usagers**: [Link](https://lematin.ma/nation/la-cmr-va-reduire-les-documents-a-fournir-et-les-deplacements-des-usagers/361252)
+- **CMR : adoption de nouvelles mesures pour simplifier la gestion des dossiers de retraites**: [Link](https://telquel.ma/instant-t/2026/08/18/cmr-adoption-de-nouvelles-mesures-pour-simplifier-la-gestion-des-dossiers-de-retraites_2003597/)
+- **CMR : les démarches de retraite simplifiées grâce au numérique**: [Link](https://www.infomediaire.net/cmr-les-demarches-de-retraite-simplifiees-grace-au-numerique/)
+
+
 ### yael trepy (N/A, Tue, 18 Aug 2026 02:50:00 -0700)
 
 - **Football: Serie A footballer Yael Trepy in intensive care after swimming pool incident**: [Link](https://www.bbc.com/sport/football/articles/cm2g7mr0d17o)
