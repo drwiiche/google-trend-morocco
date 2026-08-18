@@ -1,3 +1,24 @@
+### lyon (N/A, Tue, 18 Aug 2026 12:30:00 -0700)
+
+- **Suivez Fenerbahçe - Lyon EN DIRECT, Ligue des champions 2026/2027, Barrages, match aller**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/live-fenerbahce-a.s.-olympique-lyonnais_mtc21878512/live-commentary.shtml)
+- **« 430 millions d'euros de dettes », sanctionné par l'UEFA mais toujours aussi actif : pourquoi Fenerbahçe continue à recruter et doit gagner contre l'OL**: [Link](https://www.lequipe.fr/Football/Article/-430-millions-d-euros-de-dettes-sanctionne-par-l-uefa-mais-toujours-aussi-actif-fenerbahce-doit-gagner-et-continue-a-recruter/1711681)
+- **Les secrets du nouveau riche Fenerbahçe, la presse anglaise conquise par Bouaddi**: [Link](https://www.footmercato.net/a4948495785615112933-les-secrets-du-nouveau-riche-fenerbahce-la-presse-anglaise-conquise-par-bouaddi)
+
+
+### hicham amine chafik (N/A, Tue, 18 Aug 2026 12:20:00 -0700)
+
+- **Décès de Hicham Amine Chafik, député et candidat de l'Istiqlal à Médiouna**: [Link](https://medias24.com/2026/08/17/deces-de-hachim-amine-chafik-depute-et-candidat-de-listiqlal-a-mediouna-1740889/)
+- **Un député marocain meurt à 41 ans, son oncle met en cause un ascenseur en panne à l'hôpital**: [Link](https://www.bladi.net/depute-marocain-meurt-oncle-cause-ascenseur-panne-hopital,123206.html)
+- **Décès d'Amine Hachem Chafik, le parlementaire de Mediouna et président de la commune d'El M'Gatya**: [Link](https://fr.hibapress.com/news-266821.html)
+
+
+### escroquerie (N/A, Tue, 18 Aug 2026 12:10:00 -0700)
+
+- **14 victimes supplémentaires en seulement cinq jours : l’arnaque aux faux agents bancaires se propage dans le Gers**: [Link](https://www.ladepeche.fr/2026/08/18/jamais-une-banque-ne-vous-enverra-un-coursier-larnaque-aux-faux-agents-bancaires-se-propage-dans-le-gers-14-victimes-supplementaires-en-seulement-cinq-13513027.php)
+- **Seine-Maritime. Ils récupéraient des cartes bancaires à domicile, trois escrocs interpellés et condamnés**: [Link](https://www.tendanceouest.com/actualite-441796-seine-maritime-ils-recuperaient-des-cartes-bancaires-a-domicile-trois-escrocs-interpelles-et-condamnes)
+- **Commentez sur l'article "76actu - Des personnes vulnérables escroquées au Havre et à Rouen par de faux conseillers bancaires : la police met en garde"**: [Link](https://actu.fr/espace-debat/commentaires/64676996/)
+
+
 ### الطقس غدًا (N/A, Tue, 18 Aug 2026 13:00:00 -0700)
 
 - **الأرصاد: انخفاض طفيف في الحرارة اليوم.. والعظمى بالقاهرة 34**: [Link](https://www.elwatannews.com/news/details/8341474)
