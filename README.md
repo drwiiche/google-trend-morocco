@@ -1,3 +1,17 @@
+### الجزائر (N/A, Tue, 18 Aug 2026 04:50:00 -0700)
+
+- **الرميشي: "اللبؤات لم يبخلن بأي شيء"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%85%D9%8A%D8%B4%D9%8A-%D8%A7%D9%84%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D9%84%D9%85-%D9%8A%D8%A8%D8%AE%D9%84%D9%86-%D8%A8%D8%A3%D9%8A-%D8%B4%D9%8A%D8%A1-1793081.html)
+- **كأس أمم إفريقيا للسيدات – المغرب 2026 (مباراة الترتيب).. المنتخب المغربي ينهي مشاركته في المركز الرابع**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%E2%80%93-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2026-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%AA%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9)
+- **تفاصيل صفقة الرجاء مع البرازيلي فيليبينيو**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D9%84%D8%AA%D9%8A%D9%85%D9%8A%D8%AF%D9%8A%D8%A7/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%85%D8%B9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%81%D9%8A%D9%84%D9%8A%D8%A8%D9%8A%D9%86%D9%8A%D9%88/24214)
+
+
+### pedro sánchez (N/A, Tue, 18 Aug 2026 04:30:00 -0700)
+
+- **La Audiencia Nacional clona el teléfono de Juanma Serrano tras negarse el ex presidente de Correos a aceptar la copia irregular que hizo la UCO**: [Link](https://www.elmundo.es/espana/2026/08/18/6a842cdfe9cf4af8188b4571.html)
+- **El juez Pedraz blinda los posibles mensajes del ‘caso Leire’ en el móvil del expresidente de Correos con un nuevo volcado**: [Link](https://elpais.com/espana/2026-08-18/el-juez-pedraz-blinda-los-posibles-mensajes-del-caso-leire-en-el-movil-del-expresidente-de-correos-con-un-nuevo-volcado.html)
+- **El papel que la UCO atribuye a Juan Manuel Serrano en el caso Leire**: [Link](https://www.antena3.com/noticias/espana/papel-que-uco-atribuye-juan-manuel-serrano-caso-leire_202608186a843d2771b42a0b5df5eeae.html)
+
+
 ### prison (N/A, Tue, 18 Aug 2026 04:20:00 -0700)
 
 - **Stroke by stroke around Boston Harbor, with the King of Prison Island Swimming**: [Link](https://www.bostonglobe.com/2026/08/17/metro/stroke-by-stroke-around-boston-harbor-with-king-prison-island-swimming/)
