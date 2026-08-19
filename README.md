@@ -1,3 +1,24 @@
+### barcelona vs al ahly (N/A, Wed, 19 Aug 2026 10:20:00 -0700)
+
+- **Barcelona vs Al Ahly SC: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-barcelona-v-al-ahly-sc/blt07d158eb82ecffd5)
+- **Today's match schedule and broadcast channels: Al Ahly of Egypt faces Barcelona, ​​and other tough matches in Saudi Arabia and Europe**: [Link](https://www.voiceofemirates.com/en/sport/2026/08/19/todays-match-schedule-and-broadcast-channels-al-ahly-of-egypt-faces-barcelona-and-other-tough-matches-in-saudi-arabia-and-europe/)
+- **GAMPER PREVIEW | FC Barcelona v Al Ahly**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4561033/gamper-preview-fc-barcelona-v-al-ahly/featured)
+
+
+### برشلونة ضد الأهلي (N/A, Wed, 19 Aug 2026 10:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة برشلونة والأهلي في كأس خوان جامبر 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%AE%D9%88%D8%A7%D9%86-%D8%AC%D8%A7%D9%85%D8%A8%D8%B1-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf9e9c8a25c7fbe35)
+- **مباشر مباراة برشلونة الإسباني ضد الأهلي المصري بكأس جوان غامبر.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/19/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B6%D8%AF)
+- **قبل مباراة برشلونة والأهلي.. سجل مخيب للأندية العربية أمام "البلوغرانا" وديا**: [Link](https://radiomars.ma/%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B3%D8%AC%D9%84-%D9%85%D8%AE%D9%8A%D8%A8-%D9%84%D9%84/)
+
+
+### استيراد (N/A, Wed, 19 Aug 2026 09:30:00 -0700)
+
+- **نوفاك: روسيا بدأت استيراد الوقود**: [Link](https://www.24.ae/965690)
+- **من طنجة إلى مورمانسك.. شحنة بنزين ضخمة لا تزال عالقة خارج السوق الروسية - تليكسبريس**: [Link](https://telexpresse.com/492639.html)
+- **محطات وقود في موسكو تحد من المبيعات في ظل نقص الإمدادات**: [Link](https://www.reuters.com/ar/business/OM34QNLWVZM2ZDMSN7AWQIAPQY-2026-08-19/)
+
+
 ### barca vs ahly (N/A, Wed, 19 Aug 2026 09:10:00 -0700)
 
 - **Barcelona vs Al Ahly SC: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-barcelona-v-al-ahly-sc/blt07d158eb82ecffd5)
