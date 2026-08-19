@@ -1,3 +1,17 @@
+### الجزيرة (N/A, Wed, 19 Aug 2026 08:40:00 -0700)
+
+- **"مغربي" بلهجة جزائرية.. تقرير تلفزيوني يثير السخرية**: [Link](https://attasiaa.com/%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D9%84%D9%87%D8%AC%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%AB/)
+- **نصب نفسه محاميا عن مدريد.. النظام الجزائري يتهجم من جديد على الإمارات ويقحم المغرب**: [Link](https://machahid24.com/politique/510558.html)
+- **واقعة سطيف الجزائرية تُقدَّم على أنها مغربية.. قناة الجزيرة تواجه اتهامات بالإساءة إلى المغرب**: [Link](https://inews.ma/news/8595604)
+
+
+### livakovic (N/A, Wed, 19 Aug 2026 08:30:00 -0700)
+
+- **€3 million and a loan: Barcelona agree deal with new goalkeeper | Goal.com India**: [Link](https://www.goal.com/en-in/news/eur3-million-and-a-loan-barcelona-agree-deal-for-new-goalkeeper/blt62feb116d976118e)
+- **Barcelona have a plan for goal: Dominik Livakovic**: [Link](https://onefootball.com/en/news/barcelona-have-a-plan-for-goal-dominik-livakovic-43301221)
+- **Just in: Barcelona weigh up late move for 31-year-old Croatian goalkeeper – Romano**: [Link](https://barcauniversal.com/just-in-barcelona-weigh-up-late-move-for-31-year-old-croatian-goalkeeper-romano/)
+
+
 ### tierce (N/A, Wed, 19 Aug 2026 09:00:00 -0700)
 
 - **Les pronos hippiques du mercredi 19 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-19-aout-2026_AN-202608180422.html)
