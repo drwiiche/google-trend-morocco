@@ -1,3 +1,17 @@
+### الطقس (N/A, Wed, 19 Aug 2026 00:30:00 -0700)
+
+- **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-94-1793993.html)
+- **المديرية العامة للأرصاد الجوية تتوقع استمرار الحر في عدة مناطق بالمغرب**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1-%D9%81%D9%8A-%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-20260817)
+- **نشرة إنذارية.. زخات رعدية وبرد وهبات رياح تضرب عدة مناطق بالمملكة**: [Link](https://anfaspress.com/news/voir/176743-2026-08-16-01-18-06)
+
+
+### wetter (N/A, Tue, 18 Aug 2026 23:50:00 -0700)
+
+- **So wird das Wetter am Mittwoch**: [Link](https://www.zdfheute.de/video/zdf-morgenmagazin/wetter-2432.html)
+- **Örtlich Hagel möglich: Wo heute Gewitter drohen**: [Link](https://www.stuttgarter-zeitung.de/panorama/oertlich-droht-hagel-dwd-warnt-vor-gewittern-in-diesen-regionen-79395314.html)
+- **Drohen nun Unwetter in Deutschland? Das kommt auf uns zu**: [Link](https://www.rnd.de/wissen/wetterextreme-drohen-unwetter-in-deutschland-F2KMNKOWMNBINICUQB5EQ6ZOIQ.html)
+
+
 ### tiempo (N/A, Tue, 18 Aug 2026 23:30:00 -0700)
 
 
