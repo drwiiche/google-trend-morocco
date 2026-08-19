@@ -1,3 +1,10 @@
+### karim benzema (N/A, Wed, 19 Aug 2026 04:00:00 -0700)
+
+- **Trabzonspor Explore Sensational Move to Pair Karim Benzema With Mohamed Salah**: [Link](https://www.goal.com/en-ca/lists/karim-benzema-transfer-trabzonspor/blt5e481f4794258bd4)
+- **Trabzonspor target Al-Hilal striker Karim Benzema in surprise transfer link**: [Link](https://africasoccer.com/trabzonspor-target-al-hilal-striker-karim-benzema-in-surprise-transfer-link/)
+- **Trabzonspor Inquires About Signing Karim Benzema**: [Link](https://www.ysscores.com/en/news/14022264/trabzonspor-inquires-about-signing-karim-benzema)
+
+
 ### منصب (N/A, Wed, 19 Aug 2026 04:10:00 -0700)
 
 - **خاص. نايضا على تعيينات كتهم 60 منصب كبير بإدارة الجمارك… مصادر نقابية ل”گود”: كاينا ضغوط لخرق مبدأ الاستحقاق واستغلال فصل الصيف وصداع نايض بين أطر الديوانة**: [Link](https://www.goud.ma/%D8%AE%D8%A7%D8%B5-%D9%86%D8%A7%D9%8A%D8%B6%D8%A7-%D8%B9%D9%84%D9%89-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D8%A7%D8%AA-%D9%83%D8%AA%D9%87%D9%85-60-%D9%85%D9%86%D8%B5%D8%A8-%D9%83%D8%A8%D9%8A%D8%B1-%D8%A8-1037148/)
