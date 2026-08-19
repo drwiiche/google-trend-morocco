@@ -1,3 +1,17 @@
+### paquet de cigarettes (N/A, Wed, 19 Aug 2026 02:00:00 -0700)
+
+- **Prix du tabac : voici les nouveaux prix des paquets de cigarettes au 1er septembre**: [Link](https://www.cnews.fr/france/2026-08-18/prix-du-tabac-voici-les-nouveaux-prix-des-paquets-de-cigarettes-au-1er-septembre)
+- **Prix du tabac : Amsterdamer, Django... ces références vont disparaître au 1ᵉʳ septembre 2026**: [Link](https://actu.fr/economie/prix-du-tabac-amsterdamer-django-ces-references-vont-disparaitre-au-1er-septembre-2026_64672927.html)
+- **Prix des cigarettes : des baisses et augmentations prévues au 1er septembre**: [Link](https://www.letelegramme.fr/economie/prix-des-cigarettes-des-baisses-et-augmentations-prevues-au-1er-septembre-7101922.php)
+
+
+### hossam hassan (N/A, Wed, 19 Aug 2026 01:30:00 -0700)
+
+- **Egypt manager collapses after brawl between two wives and then divorces one of them**: [Link](https://talksport.com/football/4521160/hossam-hassan-wives-brawl-collapse-egypt/)
+- **Hossam Hassan sets the Spanish media alight: an Egyptian story that transcends borders**: [Link](https://www.goal.com/en/news/hossam-hassan-sets-the-spanish-media-alight-an-egyptian-story-that-transcends-borders/blt67950bc981915bc4)
+- **Egypt football coach collapses after wives brawl in hotel**: [Link](https://www.newagebd.net/post/football/310230/egypt-coach-hassan-collapses-after-wives-brawl-in-hotel)
+
+
 ### manon aubry vipere (N/A, Tue, 18 Aug 2026 14:30:00 -0700)
 
 - **Manon Aubry mordue par une vipère : ce serpent mal-aimé est pourtant moins dangereux qu'on le croit**: [Link](https://reporterre.net/Pas-de-panique-la-vipere-a-plus-a-craindre-de-nous-que-l-inverse)
