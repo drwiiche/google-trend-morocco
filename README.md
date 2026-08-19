@@ -1,3 +1,10 @@
+### philadelphie union – inter miami (N/A, Wed, 19 Aug 2026 16:10:00 -0700)
+
+- **Cavan Sullivan is set to host Lionel Messi for the first time as the Union face Miami**: [Link](https://www.inquirer.com/soccer/cavan-sullivan-lionel-messi-philadelphia-union-inter-miami-20260818.html)
+- **Philadelphia Union Vs Inter Miami Odds: Kalshi Vs AI**: [Link](https://www.oddsshopper.com/articles/prediction-markets/philadelphia-union-vs-inter-miami-odds)
+- **How to buy Philadelphia Union tickets: 2026 MLS fixtures, Messi's visit, prices & more**: [Link](https://www.goal.com/en-ca/news/philadelphia-union-tickets/blt6baebb82e1e040c7)
+
+
 ### médicament (N/A, Wed, 19 Aug 2026 15:40:00 -0700)
 
 - **Un médicament jugé trop dangereux retiré du marché en France**: [Link](https://www.leparisien.fr/societe/sante/un-medicament-juge-trop-dangereux-retire-du-marche-en-france-19-08-2026-6H5R7D57NRGJFNCQEWEOTVVBGU.php)
