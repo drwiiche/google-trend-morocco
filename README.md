@@ -1,3 +1,10 @@
+### حالة الطقس (N/A, Wed, 19 Aug 2026 02:50:00 -0700)
+
+- **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-94-1793993.html)
+- **المديرية العامة للأرصاد الجوية تتوقع استمرار الحر في عدة مناطق بالمغرب**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1-%D9%81%D9%8A-%D8%B9%D8%AF%D8%A9-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-20260817)
+- **نشرة إنذارية.. زخات رعدية وبرد وهبات رياح تضرب عدة مناطق بالمملكة**: [Link](https://anfaspress.com/news/voir/176743-2026-08-16-01-18-06)
+
+
 ### paquet de cigarettes (N/A, Wed, 19 Aug 2026 02:00:00 -0700)
 
 - **Prix du tabac : voici les nouveaux prix des paquets de cigarettes au 1er septembre**: [Link](https://www.cnews.fr/france/2026-08-18/prix-du-tabac-voici-les-nouveaux-prix-des-paquets-de-cigarettes-au-1er-septembre)
