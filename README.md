@@ -1,3 +1,10 @@
+### manon aubry vipere (N/A, Tue, 18 Aug 2026 14:30:00 -0700)
+
+- **Manon Aubry mordue par une vipère : ce serpent mal-aimé est pourtant moins dangereux qu'on le croit**: [Link](https://reporterre.net/Pas-de-panique-la-vipere-a-plus-a-craindre-de-nous-que-l-inverse)
+- **« La semaine ne s’est pas passée comme prévu » : l’élue insoumise Manon Aubry hospitalisée après une morsure de vipère**: [Link](https://www.lefigaro.fr/politique/la-semaine-ne-s-est-pas-passee-comme-prevu-l-elue-insoumise-manon-aubry-hospitalisee-apres-une-morsure-de-vipere-20260818)
+- **La députée européenne Manon Aubry hospitalisée après une morsure de vipère, sa jambe immobilisée**: [Link](https://www.leparisien.fr/politique/la-deputee-europeenne-manon-aubry-annonce-avoir-ete-hospitalisee-apres-une-morsure-de-vipere-18-08-2026-KTFJZNP2CRGH3DDZWOKDAZXF3U.php)
+
+
 ### الطقس (N/A, Wed, 19 Aug 2026 00:30:00 -0700)
 
 - **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-94-1793993.html)
