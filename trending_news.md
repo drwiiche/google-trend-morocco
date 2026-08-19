@@ -1,3 +1,17 @@
+### خوان كارلوس الأول (N/A, Wed, 19 Aug 2026 15:00:00 -0700)
+
+- **جذور سبتة المحتلة**: [Link](https://www.hespress.com/%D8%AC%D8%B0%D9%88%D8%B1-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%84%D8%A9-1793600.html)
+- **"سبتة لم تكن مغربية".. أطروحة دكتوراه لمؤرخ إسباني، في مواجهة تاريخ موثق يربط المدينة بالمجال المغربي قبل الاحتلال البرتغالي وقيام الدولة الإسبانية الحديثة**: [Link](https://www.assahifa.com/%D8%B3%D8%A8%D8%AA%D8%A9-%D9%84%D9%85-%D8%AA%D9%83%D9%86-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A3%D8%B7%D8%B1%D9%88%D8%AD%D8%A9-%D8%AF%D9%83%D8%AA%D9%88%D8%B1%D8%A7%D9%87-%D9%84%D9%85%D8%A4/)
+- **ممثل جبهة البوليساريو بإسبانيا يفند التضليل المغربي ويؤكد: وضع الصحراء الغربية ليس شماعة للتغطية على الأزمات الهيكلية بين مدريد والرباط**: [Link](https://www.spsrasd.info/ar/2026/08/18/17344.html)
+
+
+### هند رجب (N/A, Wed, 19 Aug 2026 14:00:00 -0700)
+
+- **هند رجب: الجيش الإسرائيلي يؤكد أن جنوده أطلقوا النار على سيارة الطفلة ويفتح تحقيقاً جنائياً**: [Link](https://www.bbc.com/arabic/articles/c77gpd4y6nzo)
+- **وسط تشكيك في جدّيته.. الجيش الإسرائيلي يعلن فتح تحقيق جنائي في مقتل الطفلة هند رجب بغزة**: [Link](https://arabic.euronews.com/2026/08/19/israel-opens-criminal-investigations-into-the-killing-of-child-hind-rajab-and-rafah-parame)
+- **الجيش الإسرائيلي يعترف لأول مرة بإطلاق النار على سيارة الطفلة هند رجب**: [Link](https://arabic.cnn.com/middle-east/video/2026/08/19/v200351-admits-firing-on-car-carrying-5-year-old-hind-rajab)
+
+
 ### bet365 (N/A, Wed, 19 Aug 2026 14:00:00 -0700)
 
 - **bet365 bonus code: Bet $10, Get $150 in bonus bets for NFL Preseason Week 2**: [Link](https://news.inbox.eu/150n5cw-bet365-bonus-code-bet-10-get-150-in-bonus-bets-for-nfl-preseason-week-2?language=en)
