@@ -1,3 +1,10 @@
+### أرابيسك (N/A, Wed, 19 Aug 2026 13:30:00 -0700)
+
+- **استغاثة للعلاج وأخرى لدفنه.. الرحيل المؤلم لفنان "أرابيسك" عمرو محمد علي**: [Link](https://www.aljazeera.net/arts/2026/8/19/%D8%A7%D8%B3%D8%AA%D8%BA%D8%A7%D8%AB%D8%A9-%D9%84%D9%84%D8%B9%D9%84%D8%A7%D8%AC-%D9%88%D8%A3%D8%AE%D8%B1%D9%89-%D9%84%D8%AF%D9%81%D9%86%D9%87-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84)
+- **آخرهم عمرو محمد علي.. فنانون دفنوا بعيداً عن مقابر العائلة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/18/%D8%A7%D8%AE%D8%B1%D9%87%D9%85-%D8%B9%D9%85%D8%B1%D9%88-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D9%84%D9%89-%D9%81%D9%86%D8%A7%D9%86%D9%8A%D9%86-%D8%AF%D9%81%D8%B9%D9%86%D9%88%D8%A7-%D8%A8%D8%B9%D9%8A%D8%AF%D8%A7-%D8%B9%D9%86-%D9%85%D9%82%D8%A7%D8%A8%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D8%A6%D9%84%D8%A9-)
+- **أحمد العوضي يواصل لفتاته الإنسانية ويستجيب لهذا الطلب**: [Link](https://www.lahamag.com/article/240118-%D8%A3%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D9%84%D9%81%D8%AA%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%A5%D9%86%D8%B3%D8%A7%D9%86%D9%8A%D8%A9-%D9%88%D9%8A%D8%B3%D8%AA%D8%AC%D9%8A%D8%A8-%D9%84%D8%B7%D9%84%D8%A8-%D9%88%D8%A7%D9%84%D8%AF%D8%A9-%D8%B9%D9%85%D8%B1%D9%88-%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D9%84%D9%8A)
+
+
 ### énergie (N/A, Wed, 19 Aug 2026 12:00:00 -0700)
 
 - **Tensions Maroc-Espagne : l'énergie, un moyen de pression pour Madrid ?**: [Link](https://medias24.com/2026/08/19/tensions-maroc-espagne-lenergie-un-moyen-de-pression-pour-madrid-1741519/)
