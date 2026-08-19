@@ -1,3 +1,15 @@
+### barcelona (N/A, Wed, 19 Aug 2026 10:50:00 -0700)
+
+- **Barcelona - Al Ahly, en directo: Trofeo Joan Gamper hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-al-ahly-en-directo-trofeo-joan-gamper-hoy-en-vivo-f202608-d/)
+- **El once del Barça en el Gamper, con Espart y Hamza**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260819/1004217707/once-barca-gamper-espart-hamza.html)
+- **Barcelona - Al Ahly en directo | Trofeo Joan Gamper hoy en vivo**: [Link](https://www.marca.com/futbol/trofeo-joan-gamper/barcelona-al-ahly/2026/08/19/01_0197_20260819_178_1555-directo.html)
+
+
+### barcelone – al ahly (N/A, Wed, 19 Aug 2026 10:40:00 -0700)
+
+
+
+
 ### barcelona vs al ahly (N/A, Wed, 19 Aug 2026 10:20:00 -0700)
 
 - **Barcelona vs Al Ahly SC: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-barcelona-v-al-ahly-sc/blt07d158eb82ecffd5)
