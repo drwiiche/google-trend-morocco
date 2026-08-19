@@ -1,3 +1,31 @@
+### barca vs ahly (N/A, Wed, 19 Aug 2026 09:10:00 -0700)
+
+- **Barcelona vs Al Ahly SC: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-barcelona-v-al-ahly-sc/blt07d158eb82ecffd5)
+- **Today's match schedule and broadcast channels: Al Ahly of Egypt faces Barcelona, ​​and other tough matches in Saudi Arabia and Europe**: [Link](https://www.voiceofemirates.com/en/sport/2026/08/19/todays-match-schedule-and-broadcast-channels-al-ahly-of-egypt-faces-barcelona-and-other-tough-matches-in-saudi-arabia-and-europe/)
+- **Licensable picture: Pre Season Friendly - FC Barcelona v Al Ahly**: [Link](https://www.reutersconnect.com/item/pre-season-friendly-fc-barcelona-v-al-ahly/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOEoxOUZCWDc)
+
+
+### نادي الجيش الملكي (N/A, Wed, 19 Aug 2026 09:10:00 -0700)
+
+- **الجيش الملكي يُنهي ارتباطه بمهاجمه الأجنبي**: [Link](https://radiomars.ma/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D8%A8%D8%A7%D8%B3%D9%8A-%D9%8A%D9%81%D8%B3%D8%AE-%D8%B9%D9%82%D8%AF%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A8%D8%A7/)
+- **المدرب الجديد للجيش الملكي يتخلص من لاعب بارز في الميركاتو الصيفي**: [Link](https://ar.sport.le360.ma/football/AKBGRPQIHJCAFK6I6U6Z7NKU74/)
+- **الجيش يفسخ عقد لاعب بارز – الرياضة**: [Link](https://anbaetv.ma/1187485)
+
+
+### إيران (N/A, Wed, 19 Aug 2026 07:50:00 -0700)
+
+- **إيران مباشر.. ترمب يطلب وقف المحادثات مع طهران والعبور في مضيق هرمز يتباطأ**: [Link](https://www.aljazeera.net/news/liveblog/2026/8/19/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%B9%D9%84%D9%86-%D8%A3%D9%86-%D9%87%D8%B1%D9%85%D8%B2-%D8%AA%D8%AD%D8%AA)
+- **ترامب يغلق الباب أمام طهران.. ويفتحه للقاء كيم**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/08/19/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%84%D8%A7-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%85%D8%B9-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D8%AD%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D8%B3%D8%A7%D9%84%D8%AA%D9%82%D9%8A-%D9%83%D9%8A%D9%85-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%B9%D8%A7%D9%85)
+- **ترمب يوقف المحادثات... وإيران تدرس استهداف أصول أميركية في أوروبا (تغطية حية)**: [Link](https://aawsat.com/%D8%B4%D8%A4%D9%88%D9%86-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9/5246834-%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D9%88%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AF%D8%B1%D8%B3-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D8%A3%D8%B5%D9%88%D9%84-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%AA%D8%BA%D8%B7%D9%8A%D8%A9-%D8%AD%D9%8A%D8%A9)
+
+
+### جمال موسيالا (N/A, Wed, 19 Aug 2026 06:20:00 -0700)
+
+- **بعد سقوطه مرتين.. خبير أعصاب يكشف مصير موسيالا مع كرة القدم**: [Link](https://www.aljazeera.net/sport/2026/8/19/%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7-%D8%B3%D9%82%D9%88%D8%B7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE)
+- **بايرن: حالة موسيالا لا تستدعي اعتزاله**: [Link](https://www.alarabiya.net/sport/2026/08/19/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7-%D9%84%D8%A7-%D8%AA%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87)
+- **هونيس الرئيس الفخري لبايرن "مصدوم" بعد الانهيار الثاني لموسيالا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260819-%D9%87%D9%88%D9%86%D9%8A%D8%B3-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D8%AE%D8%B1%D9%8A-%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D8%B5%D8%AF%D9%88%D9%85-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%84%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7)
+
+
 ### الجزيرة (N/A, Wed, 19 Aug 2026 08:40:00 -0700)
 
 - **"مغربي" بلهجة جزائرية.. تقرير تلفزيوني يثير السخرية**: [Link](https://attasiaa.com/%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D9%84%D9%87%D8%AC%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%AB/)
