@@ -1,3 +1,10 @@
+### espagne (N/A, Wed, 19 Aug 2026 12:10:00 -0700)
+
+- **Ceuta : l’Espagne refuse de renvoyer 500 jeunes filles au Maroc, contre l’avis de l’Union européenne**: [Link](https://www.leparisien.fr/international/espagne/ceuta-lespagne-refuse-de-renvoyer-500-jeunes-filles-au-maroc-contre-lavis-de-lunion-europeenne-19-08-2026-VE5OJHIKPZBDBC2VKIRVROMRAM.php)
+- **Bruxelles soutient le rapatriement des mineurs marocains au Maroc**: [Link](https://medias24.com/2026/08/18/bruxelles-soutient-le-rapatriement-des-mineurs-marocains-au-maroc-1741465/)
+- **Ceuta : Bruxelles confirme que les retours de migrants relèvent du droit de l’UE**: [Link](https://ledesk.ma/encontinu/ceuta-bruxelles-confirme-que-les-retours-de-migrants-relevent-du-droit-de-lue/)
+
+
 ### gta vi leaks (N/A, Wed, 19 Aug 2026 11:50:00 -0700)
 
 - **[UPDATE] GTA 6 Suffers Second Day of Leaks as Group Reportedly Responsible Continues Threats**: [Link](https://www.ign.com/articles/gta-6-gameplay-and-map-appear-to-leak-online-group-reportedly-responsible-threatens-rockstar-over-all-digital-future)
