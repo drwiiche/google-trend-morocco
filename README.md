@@ -1,3 +1,31 @@
+### bet365 (N/A, Wed, 19 Aug 2026 14:00:00 -0700)
+
+- **bet365 bonus code: Bet $10, Get $150 in bonus bets for NFL Preseason Week 2**: [Link](https://news.inbox.eu/150n5cw-bet365-bonus-code-bet-10-get-150-in-bonus-bets-for-nfl-preseason-week-2?language=en)
+- **Hard Rock Bet Promo Code: Bet $5, Get $150 in Bonus Bets With a Win**: [Link](https://www.rotowire.com/news/hard-rock-bet-promo-code-150-in-bonus-bets-august-2026-128916)
+- **DraftKings Promo Code: Get $150 Sign Up Bonus for Aug. 19 Games**: [Link](https://wtop.com/sports/2026/08/draftkings-promo-code-get-150-sign-up-bonus-for-aug-20-games/)
+
+
+### laliga (N/A, Wed, 19 Aug 2026 13:30:00 -0700)
+
+- **Atletico Madrid vs Málaga: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c9drv440vlget)
+- **Atlético Madrid 2-0 Málaga CF: Hancko’s assist and set-piece power seal LaLiga opener**: [Link](https://www.sofascore.com/news/atletico-madrid-2-0-malaga-cf-hanckos-assist-and-set-piece-power-seal-laliga-opener)
+- **'Historic Debut' Lee Kang-in Scores Atletico's First Goal → Decisive Winning Goal 'Hero Emerges'... First Official Match 2-0 Victory**: [Link](https://www.starnewskorea.com/en/sports/2026/08/20/2026082005493531883)
+
+
+### liga (N/A, Wed, 19 Aug 2026 13:20:00 -0700)
+
+- **La Liga 2026-27 preview: Madrid look to Mourinho in bid to dethrone Barcelona**: [Link](https://www.theguardian.com/football/2026/aug/15/2026-2027-la-liga-preview-real-madrid-jose-mourinho-barcelona)
+- **LaLiga returns with headline comebacks, from Aubameyang to Canales**: [Link](https://onefootball.com/en/news/laliga-returns-with-headline-comebacks-from-aubameyang-to-canales-43281721)
+- **La Liga Predictions 2026-27: The Opta Supercomputer Projections**: [Link](https://theanalyst.com/articles/la-liga-predictions-2026-27-opta-supercomputer-projections)
+
+
+### بث مباشر مباريات اليوم (N/A, Wed, 19 Aug 2026 13:00:00 -0700)
+
+- **جدول مباريات اليوم الثلاثاء 18 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-18-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blte1464df553460491)
+- **مواعيد مباريات اليوم.. مواجهات كأس خادم الحرمين ولاكورنيا مع إلتشي**: [Link](https://www.youm7.com/story/2026/8/17/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%AE%D8%A7%D8%AF%D9%85-%D8%A7%D9%84%D8%AD%D8%B1%D9%85%D9%8A%D9%86-%D9%88%D9%84%D8%A7%D9%83%D9%88%D8%B1%D9%86%D9%8A%D8%A7-%D9%85%D8%B9-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A/7515016)
+- **ابرز الاحداث الرياضية ليوم الثلاثاء في 18-08-2026**: [Link](https://elsport.com/news/show/836162/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-18-08-2026)
+
+
 ### إضراب (N/A, Wed, 19 Aug 2026 13:50:00 -0700)
 
 - **إضراب عمال النسيج في مصر.. غضب الأجور يفتح جبهة جديدة في قلب الشرق الأوسط**: [Link](https://www.watanserb.com/2026/08/19/%D8%A5%D8%B6%D8%B1%D8%A7%D8%A8-%D8%B9%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%AC-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%BA%D8%B6%D8%A8-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-%D9%8A%D9%81/)
