@@ -1,3 +1,10 @@
+### abdallah ii (N/A, Tue, 18 Aug 2026 15:50:00 -0700)
+
+- **Queen Rania Introduces Her Twin Granddaughters in First Official Photos**: [Link](https://www.townandcountrymag.com/society/tradition/a73452506/queen-rania-jordan-twin-granddaughters-names-photos-2026/)
+- **Queen Rania's twin granddaughters aren't the first: Inside the Hashemite Dynasty's history of twins**: [Link](https://www.hola.com/us/royals/20260818918686/queen-rania-hashemite-royal-twins-history/)
+- **Princess Iman of Jordan Surprises with Birth of Twin Girls After Keeping Twin Pregnancy Private**: [Link](https://people.com/princess-iman-of-jordan-welcomes-twin-girls-with-husband-jameel-thermiotis-12060431)
+
+
 ### بيب غوارديولا (N/A, Tue, 18 Aug 2026 15:20:00 -0700)
 
 - **أحبها بجنون.. حكاية "إمبراطورة الموضة" التي أبكت غوارديولا**: [Link](https://www.alarabiya.net/sport/2026/08/19/%D8%A7%D8%AD%D8%A8%D9%87%D8%A7-%D8%A8%D8%AC%D9%86%D9%88%D9%86-%D8%AD%D9%83%D8%A7%D9%8A%D8%A9-%D8%A7%D9%85%D8%A8%D8%B1%D8%A7%D8%B7%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B6%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D8%A7%D8%A8%D9%83%D8%AA-%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7)
