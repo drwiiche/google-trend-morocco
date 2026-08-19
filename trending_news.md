@@ -1,3 +1,10 @@
+### démolition (N/A, Wed, 19 Aug 2026 05:10:00 -0700)
+
+- **« Votre maison sera démolie » : le Mondial 2030 accélère la disparition de quartiers au Maroc**: [Link](https://www.bladi.net/maison-sera-demolie-mondial-accelere-disparition-quartiers-maroc,123221.html)
+- **Mondial 2030 : derrière la vitrine du Makhzen, le Maroc social craque**: [Link](https://lapatrienews.dz/mondial-2030-derriere-la-vitrine-du-makhzen-le-maroc-social-craque/)
+- **Nadia Hachimi Alaoui : “Le ‘gouvernement du Mondial’, c'est le plus grand danger qui guette le Maroc”**: [Link](https://mobile.telquel.ma/2026/08/10/nadia-hachimi-alaoui-le-gouvernement-du-mondial-cest-le-plus-grand-danger-qui-guette-le-maroc_2002784)
+
+
 ### yael trepy (N/A, Wed, 19 Aug 2026 05:00:00 -0700)
 
 - **Serie A's Trepy out of coma after pool rescue**: [Link](https://www.bbc.com/sport/football/articles/cp8xdx7ypr6o)
