@@ -1,3 +1,69 @@
+### kooora (N/A, Wed, 19 Aug 2026 11:20:00 -0700)
+
+- **روبرتو كارلوس يرد لأول مرة على أنباء اعتناقه الإسلام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D8%A8%D8%B1%D8%AA%D9%88-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D9%8A%D8%B1%D8%AF-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%86%D8%A8%D8%A7%D8%A1-%D8%A7%D8%B9%D8%AA%D9%86%D8%A7%D9%82%D9%87-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D9%84%D8%A7%D9%85/bltcdd1c9a62cc52ac1)
+- **زوجة روبرتو كارلوس التي لفتت الأنظار.. ماذا نعرف عن سهيلة الطاهري؟**: [Link](https://www.aljazeera.net/misc/2026/8/19/%D9%85%D9%86-%D9%87%D9%8A-%D8%B2%D9%88%D8%AC%D8%A9-%D8%B1%D9%88%D8%A8%D8%B1%D8%AA%D9%88-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D8%B3%D9%87%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D9%87%D8%B1%D9%8A)
+- **بعد الزفاف بأسابيع.. زوجة روبرتو كارلوس العربية تشعل المنصات**: [Link](https://www.skynewsarabia.com/varieties/1886639-%D8%A3%D8%B3%D8%A7%D8%A8%D9%8A%D8%B9-%D8%A7%D9%84%D8%B2%D9%81%D8%A7%D9%81-%D8%B2%D9%88%D8%AC%D8%A9-%D8%B1%D9%88%D8%A8%D8%B1%D8%AA%D9%88-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B4%D8%B9%D9%84-%D9%85%D9%86%D8%B5%D8%A7%D8%AA)
+
+
+### kooora live (N/A, Wed, 19 Aug 2026 11:20:00 -0700)
+
+
+
+
+### matchs amicaux (N/A, Wed, 19 Aug 2026 11:20:00 -0700)
+
+- **Victor Wembanyama nommé capitaine de l'équipe de France de basket pour les matches de l'été**: [Link](https://www.lequipe.fr/Basket/Actualites/Victor-wembanyama-nomme-capitaine-de-l-equipe-de-france-de-basket/1712087)
+- **« Quand il est là, tout est hors norme » : literie XXL, sécurité renforcée… dans les coulisses de la venue de Wembanyama en Bleu**: [Link](https://www.leparisien.fr/sports/basket/quand-il-est-la-tout-est-hors-norme-literie-xxl-securite-renforcee-dans-les-coulisses-de-la-venue-de-wembanyama-en-bleu-19-08-2026-KYTDUFX22JHTBEHQKQCBRUFIHA.php)
+- **Basket : Wemby et les Bleus contre le « haut du panier » en Serbie**: [Link](https://www.lanouvellerepublique.fr/sports/basket-wemby-et-les-bleus-contre-le-haut-du-panier-en-serbie-1787163671)
+
+
+### إسطنبول (N/A, Wed, 19 Aug 2026 11:20:00 -0700)
+
+- **سقوط مطلوبة للمغرب في إسطنبول**: [Link](https://www.hespress.com/%D8%B3%D9%82%D9%88%D8%B7-%D9%85%D8%B7%D9%84%D9%88%D8%A8%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D8%A5%D8%B3%D8%B7%D9%86%D8%A8%D9%88%D9%84-1794171.html)
+- **إسطنبول.. توقيف مغربية مبحوث عنها دولياً في قضية اتجار بالمخدرات**: [Link](https://ar.hibapress.com/details-750646.html)
+- **سقوط "عرابة كبسولات الموت" في قلب إسطنبول**: [Link](https://attasiaa.com/%D8%B3%D9%82%D9%88%D8%B7-%D8%B9%D8%B1%D8%A7%D8%A8%D8%A9-%D9%83%D8%A8%D8%B3%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D8%A5%D8%B3%D8%B7%D9%86%D8%A8%D9%88/)
+
+
+### le desk (N/A, Wed, 19 Aug 2026 11:20:00 -0700)
+
+
+
+
+### fcb (N/A, Wed, 19 Aug 2026 11:20:00 -0700)
+
+- **10 things about Rodri**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4561492/10-things-about-rodri)
+- **Rodri joins Barcelona from Man City in £65m deal**: [Link](https://www.bbc.com/sport/football/articles/c2k7w3vwv5yo)
+- **Barcelona steal Rodri away from Real Madrid and plan to make him new Busquets**: [Link](https://www.theguardian.com/football/2026/aug/18/barcelona-snatch-rodri-from-madrid-and-make-him-new-busquets)
+
+
+### koora (N/A, Wed, 19 Aug 2026 11:10:00 -0700)
+
+- **فيديو: حمدالله يبدأ مسلسل أهدافه مع التعاون.. والهلال خيبته الوحيدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%A8%D8%AF%D8%A7%D9%94-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%94%D9%87%D8%AF%D8%A7%D9%81%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86--%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%AE%D9%8A%D8%A8%D8%AA%D9%87-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF%D8%A9/blt0ab738f3a05f56df)
+- **التعاون يحل ضيفاً على ضمك.. جدة يقابل الخلود.. والعلا يستضيف الفتح**: [Link](https://www.al-jazirah.com/2026/20260819/sp4.htm)
+- **مفاجآت مبكرة.. 13 ناديًا يغادرون كأس خادم الحرمين من دور الـ32**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D9%85%D8%A8%D9%83%D8%B1%D8%A9-13-%D9%86%D8%A7%D8%AF%D9%8A%D8%A7-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1%D9%88%D9%86-%D9%83%D8%A3%D8%B3-%D8%AE%D8%A7%D8%AF%D9%85-%D8%A7%D9%84%D8%AD%D8%B1%D9%85%D9%8A%D9%86-%D9%85%D9%86-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8032-767137)
+
+
+### fc barcelone (N/A, Wed, 19 Aug 2026 11:10:00 -0700)
+
+- **De Luis Saurez à Lionel Messi, la longue tradition des Ballons d'Or du FC Barcelone**: [Link](https://www.lequipe.fr/Football/Actualites/De-luis-suarez-a-lionel-messi-la-longue-tradition-des-ballons-d-or-du-fc-barcelone/1712053)
+- **Le FC Barcelone recrute Rodri**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4561501/le-fc-barcelone-recrute-rodri)
+- **Le transfert de l'été est conclu : Rodri a signé au FC Barcelone**: [Link](https://www.eurosport.fr/football/transferts/2026-2027/mercato-le-transfert-de-lete-est-conclu-rodri-quitte-manchester-city-pour-rejoindre-le-fc-barcelone_sto23329223/story.shtml)
+
+
+### درجة حرارة (N/A, Wed, 19 Aug 2026 11:10:00 -0700)
+
+- **زخات رعدية مرتقبة في جهة الشرق**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D9%81%D9%8A-%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-1794080.html)
+- **الأرصاد تحذر: أمطار رعدية وبَرَد وموجة حر تصل إلى 48 درجة**: [Link](https://ar.telquel.ma/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A3%D8%B1%D8%A8%D8%B9%D8%A9-%D8%A3%D9%82%D8%A7%D9%84%D9%8A/)
+- **طقس الثلاثاء.. أجواء حارة نسبيا وأمطار رعدية ورياح قوية بعدد من المناطق**: [Link](https://www.ahdath.info/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AD%D8%A7%D8%B1%D8%A9-%D9%86%D8%B3%D8%A8%D9%8A%D8%A7-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1/)
+
+
+### barca vs (N/A, Wed, 19 Aug 2026 11:00:00 -0700)
+
+- **Barcelona - Al Ahly, en directo: Trofeo Joan Gamper hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-al-ahly-en-directo-trofeo-joan-gamper-hoy-en-vivo-f202608-d/)
+- **El once del Barça en el Gamper, con Espart y Hamza**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260819/1004217707/once-barca-gamper-espart-hamza.html)
+- **Barcelona - Al Ahly en directo | Trofeo Joan Gamper hoy en vivo**: [Link](https://www.marca.com/futbol/trofeo-joan-gamper/barcelona-al-ahly/2026/08/19/01_0197_20260819_178_1555-directo.html)
+
+
 ### barcelona (N/A, Wed, 19 Aug 2026 10:50:00 -0700)
 
 - **Barcelona - Al Ahly, en directo: Trofeo Joan Gamper hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-al-ahly-en-directo-trofeo-joan-gamper-hoy-en-vivo-f202608-d/)
