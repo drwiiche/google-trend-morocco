@@ -1,3 +1,17 @@
+### médicament (N/A, Wed, 19 Aug 2026 15:40:00 -0700)
+
+- **Un médicament jugé trop dangereux retiré du marché en France**: [Link](https://www.leparisien.fr/societe/sante/un-medicament-juge-trop-dangereux-retire-du-marche-en-france-19-08-2026-6H5R7D57NRGJFNCQEWEOTVVBGU.php)
+- **Retrait d'AMM de TAVNEOS : l'ANSM sonne la fin de la prescription et de la délivrance**: [Link](https://www.vidal.fr/actualites/38197-retrait-d-amm-de-tavneos-l-ansm-sonne-la-fin-de-la-prescription-et-de-la-delivrance.html)
+- **Le médicament Tavneos, destiné au traitement de certaines maladies auto-immunes, retiré du marché français**: [Link](https://sante.ouest-france.fr/medicament/le-medicament-tavneos-destine-au-traitement-de-certaines-maladies-auto-immunes-retire-du-marche-francais-5ccb0aee-9bd2-11f1-a150-d338aff2f727)
+
+
+### iphone 18 (N/A, Wed, 19 Aug 2026 15:40:00 -0700)
+
+- **「iPhone 18」シリーズうわさまとめ　秋にPro、来春に無印登場か　「さらなる値上げ」の可能性も考える（1/2 ページ） - ITmedia Mobile**: [Link](https://www.itmedia.co.jp/mobile/articles/2608/19/news077.html)
+- **AppleのA20 Pro、2nmプロセスで性能18%向上・電力効率30%改善の見通し**: [Link](https://finance.biggo.jp/news/c8a10d9a-ccd8-46d6-a185-daba02b3470a)
+- **折りたたみiPhoneのモデル名は「iPhone Folio」？7種類の候補名とは - iPhone Mania**: [Link](https://iphone-mania.jp/iphone18-604641/)
+
+
 ### خوان كارلوس الأول (N/A, Wed, 19 Aug 2026 15:00:00 -0700)
 
 - **جذور سبتة المحتلة**: [Link](https://www.hespress.com/%D8%AC%D8%B0%D9%88%D8%B1-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%84%D8%A9-1793600.html)
