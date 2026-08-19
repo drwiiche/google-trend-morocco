@@ -1,3 +1,10 @@
+### yael trepy (N/A, Wed, 19 Aug 2026 05:00:00 -0700)
+
+- **Serie A's Trepy out of coma after pool rescue**: [Link](https://www.bbc.com/sport/football/articles/cp8xdx7ypr6o)
+- **Cagliari striker Trepy out of induced coma after swimming pool accident**: [Link](https://www.reuters.com/sports/soccer/cagliari-striker-trepy-out-induced-coma-after-swimming-pool-accident-2026-08-18/)
+- **French Serie A footballer Yael Trepy in intensive care after near-drowning**: [Link](https://www.aljazeera.com/sports/2026/8/17/french-serie-a-footballer-yael-trepy-in-intensive-care-after-near-drowning)
+
+
 ### karim benzema (N/A, Wed, 19 Aug 2026 04:00:00 -0700)
 
 - **Trabzonspor Explore Sensational Move to Pair Karim Benzema With Mohamed Salah**: [Link](https://www.goal.com/en-ca/lists/karim-benzema-transfer-trabzonspor/blt5e481f4794258bd4)
