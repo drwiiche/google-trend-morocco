@@ -1,3 +1,10 @@
+### énergie (N/A, Wed, 19 Aug 2026 12:00:00 -0700)
+
+- **Tensions Maroc-Espagne : l'énergie, un moyen de pression pour Madrid ?**: [Link](https://medias24.com/2026/08/19/tensions-maroc-espagne-lenergie-un-moyen-de-pression-pour-madrid-1741519/)
+- **Les «concessions» de l’Espagne au Maroc: anatomie d’un mythe politique**: [Link](https://fr.le360.ma/politique/les-concessions-de-lespagne-au-maroc-anatomie-dun-mythe-politique_SHP42SQABBB2XLQFVKLQXGEHHI/)
+- **Patrick Weil : “Trop de gens se sont permis de faire de la géopolitique de comptoir en évoquant les relations Maroc-Espagne”**: [Link](https://mobile.telquel.ma/2026/08/17/patrick-weil-trop-de-gens-se-sont-permis-de-faire-de-la-geopolitique-de-comptoir-en-evoquant-les-relations-maroc-espagne_2003551)
+
+
 ### atletico madrid (N/A, Wed, 19 Aug 2026 12:40:00 -0700)
 
 - **Licensable picture: Atletico de Madrid v Malaga CF - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/atletico-de-madrid-v-malaga-cf-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDM1U01UQQ)
