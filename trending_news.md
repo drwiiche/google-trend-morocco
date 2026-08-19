@@ -1,3 +1,10 @@
+### توقيت صيفي (N/A, Tue, 18 Aug 2026 13:50:00 -0700)
+
+- **الساعة تعود 60 دقيقة للخلف.. انتهاء التوقيت الصيفي رسميا يوم خميس**: [Link](https://www.elbalad.news/7075452)
+- **التحول إلى التوقيت الصيفي في نهاية هذا الأسبوع: هل يجب عليك ضبط ساعتك إلى الوراء أم تقديمها ساعة واحدة؟**: [Link](https://www.sortiraparis.com/ar/akhbar/fi-baris/articles/232247-tghyyr-altwqyt-fy-am-2026-mty-mn-almqrr-alantqal-aly-altwqyt-alshtwy)
+- **موعد انتهاء التوقيت الصيفي 2026 في مصر.. هنغير الساعة إلى التوقيت الشتوي امتى؟**: [Link](https://www.banker.news/148894)
+
+
 ### abdallah ii (N/A, Tue, 18 Aug 2026 15:50:00 -0700)
 
 - **Queen Rania Introduces Her Twin Granddaughters in First Official Photos**: [Link](https://www.townandcountrymag.com/society/tradition/a73452506/queen-rania-jordan-twin-granddaughters-names-photos-2026/)
