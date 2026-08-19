@@ -1,3 +1,38 @@
+### atletico madrid (N/A, Wed, 19 Aug 2026 12:40:00 -0700)
+
+- **Licensable picture: Atletico de Madrid v Malaga CF - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/atletico-de-madrid-v-malaga-cf-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDM1U01UQQ)
+- **How to watch Atlético Madrid vs. Málaga online for free**: [Link](https://mashable.com/entertainment/atletico-madrid-malaga-la-liga-2026-live-stream-for-free)
+- **Atletico vs Malaga: Second Half Winner**: [Link](https://www.coinbase.com/en-sg/predictions/event/KXLALIGA2H-26AUG19ATMMCF)
+
+
+### مطر (N/A, Wed, 19 Aug 2026 12:30:00 -0700)
+
+- **أمطار رعدية مرتقبة على 22 ولاية بداية من الخميس**: [Link](https://barakanews.dz/posts/amtar-raady-mrtkb-aal-22-olay-bday-mn-alkhmys)
+- **أمطار رعدية وحرارة مرتفعة في عدة ولايات**: [Link](https://www.dz54.dz/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A9-%D9%81%D9%8A-%D8%B9%D8%AF%D8%A9-%D9%88%D9%84%D8%A7%D9%8A%D8%A7/)
+- **نشرية خاصة:أمطار مرتقبة على عدة ولايات يومي الخميس والجمعة**: [Link](https://news.radioalgerie.dz/ar/node/92608)
+
+
+### club friendlies (N/A, Wed, 19 Aug 2026 12:30:00 -0700)
+
+- **Live ticker: Heidenheim vs. FC Bayern - friendly 26/27**: [Link](https://fcbayern.com/en/matches/profis/friendly/2026-2027/testspiel-1-fc-heidenheim-fc-bayern-18-08-2026/liveticker)
+- **Heidenheim vs Bayern Munich: Club Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c8kgv535wpgvt)
+- **Did Bayern Munich overload on preseason friendlies?**: [Link](https://www.bavarianfootballworks.com/bayern-munich-opinion/244951/bayern-munich-opinion-preseason-friendlies-overload-fc-heidenheim-vincent-kompany)
+
+
+### barcelona vs (N/A, Wed, 19 Aug 2026 11:50:00 -0700)
+
+- **Barcelona - Al Ahly, en directo: Trofeo Joan Gamper hoy, en vivo**: [Link](https://as.com/futbol/primera/barcelona-al-ahly-en-directo-trofeo-joan-gamper-hoy-en-vivo-f202608-d/)
+- **El once del Barça en el Gamper, con Espart y Hamza**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260819/1004217707/once-barca-gamper-espart-hamza.html)
+- **Barcelona - Al Ahly en directo | Trofeo Joan Gamper hoy en vivo**: [Link](https://www.marca.com/futbol/trofeo-joan-gamper/barcelona-al-ahly/2026/08/19/01_0197_20260819_178_1555-directo.html)
+
+
+### yalla kora (N/A, Wed, 19 Aug 2026 11:40:00 -0700)
+
+- **روبرتو كارلوس يرد لأول مرة على أنباء اعتناقه الإسلام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D8%A8%D8%B1%D8%AA%D9%88-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D9%8A%D8%B1%D8%AF-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%86%D8%A8%D8%A7%D8%A1-%D8%A7%D8%B9%D8%AA%D9%86%D8%A7%D9%82%D9%87-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D9%84%D8%A7%D9%85/bltcdd1c9a62cc52ac1)
+- **زوجة روبرتو كارلوس التي لفتت الأنظار.. ماذا نعرف عن سهيلة الطاهري؟**: [Link](https://www.aljazeera.net/misc/2026/8/19/%D9%85%D9%86-%D9%87%D9%8A-%D8%B2%D9%88%D8%AC%D8%A9-%D8%B1%D9%88%D8%A8%D8%B1%D8%AA%D9%88-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D8%B3%D9%87%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D9%87%D8%B1%D9%8A)
+- **كارلوس لـ«عكاظ»: أحترم الإسلام.. وهذه حقيقة اعتناقه**: [Link](https://www.okaz.com.sa/sport/international/2262008)
+
+
 ### espagne (N/A, Wed, 19 Aug 2026 12:10:00 -0700)
 
 - **Ceuta : l’Espagne refuse de renvoyer 500 jeunes filles au Maroc, contre l’avis de l’Union européenne**: [Link](https://www.leparisien.fr/international/espagne/ceuta-lespagne-refuse-de-renvoyer-500-jeunes-filles-au-maroc-contre-lavis-de-lunion-europeenne-19-08-2026-VE5OJHIKPZBDBC2VKIRVROMRAM.php)
