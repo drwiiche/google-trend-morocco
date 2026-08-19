@@ -1,3 +1,31 @@
+### gta vi leaks (N/A, Wed, 19 Aug 2026 11:50:00 -0700)
+
+- **[UPDATE] GTA 6 Suffers Second Day of Leaks as Group Reportedly Responsible Continues Threats**: [Link](https://www.ign.com/articles/gta-6-gameplay-and-map-appear-to-leak-online-group-reportedly-responsible-threatens-rockstar-over-all-digital-future)
+- **Morality System and RDR 2-Style Melee Combat: What's Been Revealed About GTA VI from New Leaks**: [Link](https://ixbt.games/en/news/2026/08/19/428941-sistema-morali-i-rukopasnyi-boi-v-stile-rdr-2-cto-stalo-izvestno-o-gta-vi-iz-novyx-utecek.html)
+- **MORE Grand Theft Auto VI 'gameplay' leaked ahead of official gameplay release**: [Link](https://geekireland.com/grand-theft-auto-vi-gameplay-footage-leak/)
+
+
+### hamza abdelkarim (N/A, Wed, 19 Aug 2026 11:40:00 -0700)
+
+- **Une échéance décisive pour le transfert d'Alvarez : la pépite de l'Égypte deviendra-t-elle le premier attaquant du Barça ?**: [Link](https://www.goal.com/fr/news/une-echeance-decisive-pour-le-transfert-d-alvarez-la-pepite-de-l-egypte-deviendra-t-elle-le-premier-attaquant-du-barca/bltfc049c110f28d887)
+- **Football: Hamza Abdelkarim, le nouveau phénomène égyptien du FC Barcelone**: [Link](https://www.rfi.fr/fr/sports/20260819-football-hamza-abdelkarim-le-nouveau-ph%C3%A9nom%C3%A8ne-%C3%A9gyptien-du-fc-barcelone)
+- **Avant le match contre Al Ahly : un message du Barça au sujet de Hamza Abdelkrim**: [Link](https://fr.news.yahoo.com/sport/avant-match-contre-al-ahly-085858942.html)
+
+
+### كورة (N/A, Wed, 19 Aug 2026 11:40:00 -0700)
+
+- **زلزال في الميركاتو.. عملاق سعودي يفاوض هاري كين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88--%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D9%81%D8%A7%D9%88%D8%B6-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86/blt75753939fb69d92c)
+- **بطولة ألمانيا لكرة القدم.. كاين يؤكد إجراء محادثات تمديد عقده مع بايرن ميونيخ**: [Link](https://2m.ma/ar/news/%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%83%D8%A7%D9%8A%D9%86-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1-%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D8%AA%D9%85%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF%D9%87-%D9%85%D8%B9-20260818)
+- **هاري كاين يؤكد بدء مفاوضات تمديد عقده مع بايرن ميونيخ**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D8%A7%D9%8A%D9%86-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A8%D8%AF%D8%A1-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%AA%D9%85%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF%D9%87-%D9%85%D8%B9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE/24215)
+
+
+### atlético madrid – málaga (N/A, Wed, 19 Aug 2026 11:30:00 -0700)
+
+- **Atlético - Málaga, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/atletico-malaga-en-directo-laliga-ea-sports-hoy-en-vivo-f202608-d/)
+- **Simeone da el poder a la cantera en el primer once de la 26/27, con dos apuestas llamativas**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260819/1004217733/simeone-da-cantera-primer-once-26-27-dos-apuestas-llamativas.html)
+- **Llorente y Baena, en la convocatoria; Julián, ‘Cuti’, Sorloth, Vargas y Lemar, ausencias**: [Link](https://es-us.noticias.yahoo.com/deportes/llorente-baena-convocatoria-juli%C3%A1n-cuti-122355838.html)
+
+
 ### kooora (N/A, Wed, 19 Aug 2026 11:20:00 -0700)
 
 - **روبرتو كارلوس يرد لأول مرة على أنباء اعتناقه الإسلام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D8%A8%D8%B1%D8%AA%D9%88-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D9%8A%D8%B1%D8%AF-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D9%86%D8%A8%D8%A7%D8%A1-%D8%A7%D8%B9%D8%AA%D9%86%D8%A7%D9%82%D9%87-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D9%84%D8%A7%D9%85/bltcdd1c9a62cc52ac1)
