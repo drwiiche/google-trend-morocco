@@ -1,3 +1,10 @@
+### tierce (N/A, Wed, 19 Aug 2026 09:00:00 -0700)
+
+- **Les pronos hippiques du mercredi 19 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-19-aout-2026_AN-202608180422.html)
+- **Tiercé. Les pronostics de « L'Alsace » pour mercredi 19 août - Prix de Beaune**: [Link](https://www.lalsace.fr/actualite/2026/08/18/les-pronostics-de-l-alsace-pour-mercredi-19-aout-prix-de-beaune)
+- **Equidia met le feu au Quinté+ du mercredi 19 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mercredi-19-aout)
+
+
 ### démolition (N/A, Wed, 19 Aug 2026 05:10:00 -0700)
 
 - **« Votre maison sera démolie » : le Mondial 2030 accélère la disparition de quartiers au Maroc**: [Link](https://www.bladi.net/maison-sera-demolie-mondial-accelere-disparition-quartiers-maroc,123221.html)
