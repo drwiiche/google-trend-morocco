@@ -1,3 +1,10 @@
+### classement atlético madrid – málaga cf (N/A, Wed, 19 Aug 2026 14:20:00 -0700)
+
+- **Atlético de Madrid 2-0 Malaga, La Liga : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/atletico-de-madrid-malaga-live/693079)
+- **Atlético de Madrid - Málaga en direct - La Liga : Football Scores & Résultats - 19/08/2026**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-atletico-de-madrid-malaga_mtc21891272/live.shtml)
+- **Un ex du PSG se livre sans détour : « J’y ai pensé à maintes reprises »**: [Link](https://www.football365.fr/un-ex-du-psg-se-livre-sans-detour-jy-ai-pense-a-maintes-reprises-10309004.html)
+
+
 ### فيلادلفيا ضد إنتر ميامي (N/A, Wed, 19 Aug 2026 18:00:00 -0700)
 
 - **بعد هدفه أمام فيلادلفيا.. ماذا يحتاج ميسي للوصول إلى الهدف 1000؟**: [Link](https://www.eremnews.com/sports/taum58f)
