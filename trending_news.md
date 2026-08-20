@@ -1,3 +1,22 @@
+### gta vi gameplay (N/A, Thu, 20 Aug 2026 03:20:00 -0700)
+
+- **[UPDATE] GTA 6 Suffers Third Day of Leaks, Latest Video Suggests Leakers Have Access to a Build of the Game**: [Link](https://www.ign.com/articles/gta-6-gameplay-and-map-appear-to-leak-online-group-reportedly-responsible-threatens-rockstar-over-all-digital-future)
+- **As more videos flood the internet, Stop Killing Games wants us to stop supporting Grand Theft Auto VI leakers**: [Link](https://www.gamereactor.eu/as-more-videos-flood-the-internet-stop-killing-games-wants-us-to-stop-supporting-grand-theft-auto-vi-leakers-1761893/)
+- **GTA 6 leaker's manifesto demands an apology from Rockstar over its "anti-consumerism"**: [Link](https://www.xda-developers.com/gta-6-leaker-demand-an-apology-from-rockstar-over-its-anti-consumerism/)
+
+
+### عادل الخلوفي (N/A, Thu, 20 Aug 2026 01:10:00 -0700)
+
+
+
+
+### عريف (N/A, Wed, 19 Aug 2026 19:30:00 -0700)
+
+- **وفاة عريف بالقوات المسلحة الملكية خلال أداء واجبه العسكري بالمحبس**: [Link](https://sabahagadir.ma/480254.html)
+- **تيفلت تودّع شهيد الواجب الوطني العريف أحمد أحمرحنكو في جنازة عسكرية مهيبة**: [Link](https://www.tifeltpress.com/197650.html)
+- **وفاة عريف بالقوات المسلحة الملكية إثر أزمة قلبية مفاجئة**: [Link](https://inews.ma/news/8596083)
+
+
 ### طقس طنجة (N/A, Thu, 20 Aug 2026 02:30:00 -0700)
 
 - **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-91-1794345.html)
