@@ -1,3 +1,10 @@
+### الطقس اليوم (N/A, Thu, 20 Aug 2026 03:00:00 -0700)
+
+- **أمطار وسيول وأعاصير قمعية متوقعة على الشرقية.. السبت والأحد**: [Link](https://www.jehat.net/?act=artc&id=139821)
+- **من 30 إلى 45 مئوية.. درجات الحرارة العظمى على بعض مدن المملكة**: [Link](https://25h.app/2026/08/20/%D9%85%D9%86-30-%D8%A5%D9%84%D9%89-45-%D9%85%D8%A6%D9%88%D9%8A%D8%A9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D9%89-%D8%B9%D9%84%D9%89/)
+- **حالة الطقس - جريدة المدينة**: [Link](https://www.al-madina.com/article/1002112/%D9%85%D8%AD%D9%84%D9%8A%D8%A7%D8%AA/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3)
+
+
 ### éclipse lunaire (N/A, Thu, 20 Aug 2026 02:30:00 -0700)
 
 - **Éclipse lunaire : quelques jours après le Soleil, la Lune s’éclipsera le 28 août 2026**: [Link](https://www.sudouest.fr/sciences-et-technologie/astronomie/eclipse-lunaire-quelques-jours-apres-le-soleil-la-lune-s-eclipsera-le-28-aout-2026-30302200.php)
