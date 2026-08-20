@@ -1,3 +1,22 @@
+### benfica – agf århus (N/A, Thu, 20 Aug 2026 12:30:00 -0700)
+
+- **Benfica vs AGF: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm62qq9rv9ket)
+- **Benfica vs. AGF Lineups, Live Streaming, How & Where to Watch UEFA Europa League Playoff on TV**: [Link](https://athlonsports.com/soccer/benfica-agf-lineups-live-streaming-how-to-watch-europa-league)
+- **Benfica coach warns players before AGF-clash: 'They can cause us problems'**: [Link](https://www.flashscore.com/news/soccer-europa-league-benfica-coach-warns-players-before-agf-clash-they-can-cause-us-problems/8Ktbpfxe/)
+
+
+### getafe – partizan (N/A, Thu, 20 Aug 2026 12:30:00 -0700)
+
+- **🚨Confirmed XIs: the Coliseum kicks off Getafe's European dream**: [Link](https://onefootball.com/en/news/confirmed-xis-the-coliseum-kicks-off-getafes-european-dream-43309424)
+- **Licensable picture: Getafe CF V FK Partizan - UEFA Conference League 2026/27 Play-Off Round First Leg**: [Link](https://www.reutersconnect.com/item/getafe-cf-v-fk-partizan-uefa-conference-league-202627-play-off-round-first-leg/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBPRFY2N1M)
+- **Ilic Before Getafe: 'We Must Give More Than 100 Percent'**: [Link](https://srpske.rs/en/news/sport/2026/08/19/partizan-flies-to-madrid-for-getafe-playoff-clash)
+
+
+### quinte (N/A, Thu, 20 Aug 2026 11:50:00 -0700)
+
+
+
+
 ### rayo – deportivo alavés (N/A, Thu, 20 Aug 2026 11:40:00 -0700)
 
 - **El Alavés muestra su descontento después de que el Rayo no le facilitara entradas para su afición**: [Link](https://kirolakeitb.eus/es/futbol/equipos/alaves/2026/08/20/el-alaves-muestra-su-descontento-despues-el-rayo-le-negara-entradas-su-aficion/)
