@@ -1,3 +1,24 @@
+### rayo – deportivo alavés (N/A, Thu, 20 Aug 2026 11:40:00 -0700)
+
+- **El Alavés muestra su descontento después de que el Rayo no le facilitara entradas para su afición**: [Link](https://kirolakeitb.eus/es/futbol/equipos/alaves/2026/08/20/el-alaves-muestra-su-descontento-despues-el-rayo-le-negara-entradas-su-aficion/)
+- **Rayo y Alavés, duelo clave por la fecha 2 de La Liga**: [Link](https://www.identidadcorrentina.com.ar/noticia/37880_rayo-y-alavs-duelo-clave-por-la-fecha-2-de-la-liga.htm)
+- **Rayo Vallecano vs Deportivo Alavés: horario, alineaciones y minuto a minuto | LaLiga EA Sports 26-27**: [Link](https://rtvc.es/rayo-vallecano-vs-deportivo-alaves-j2-laliga-ea-sports-25-26/)
+
+
+### sion – ajax (N/A, Thu, 20 Aug 2026 11:20:00 -0700)
+
+- **Opstelling Ajax: Míchel kiest voor Brandt en Gloukh tegen Sion**: [Link](https://www.vi.nl/nieuws/opstelling-ajax-michel-kiest-voor-brandt-en-gloukh-tegen-sion)
+- **Play-offs UEFA Conference League**: [Link](https://www.ziggosport.nl/ajax_uecl/)
+- **Ajax één tweeluik verwijderd van Europees voetbal: goal levert 100x je inleg op!**: [Link](https://www.voetbalprimeur.nl/nieuws/2125317/ajax-een-tweeluik-verwijderd-van-europees-voetbal-goal-levert-100x-je-inleg-op.html)
+
+
+### górnik zabrze – monaco (N/A, Thu, 20 Aug 2026 11:20:00 -0700)
+
+- **Poruszenie w sieci. Tak Francuzi pokazali polskie miasto**: [Link](https://sportowefakty.wp.pl/pilka-nozna/1269105/poruszenie-w-sieci-francuzi-pokazali-zdjecia-ze-slaska)
+- **Trener Górnika Zabrze patrzył na pucharową drabinkę i... nie wierzył. "Z czymś takim jeszcze się nie spotkałem"**: [Link](https://roosevelta81.pl/trener-gornika-zabrze-patrzyl-na-pucharowa-drabinke-i-nie-wierzyl-z-czyms-takim-jeszcze-sie-nie-spotkalem/)
+- **"0:7 i do widzenia". Kosecki mocno o starciu Górnika z Monaco**: [Link](https://www.polsatsport.pl/wiadomosc/2026-08-20/07-i-do-widzenia-kosecki-mocno-o-starciu-gornika-z-monaco/)
+
+
 ### al feiha – al-hilal (N/A, Thu, 20 Aug 2026 10:20:00 -0700)
 
 - **Al-Hilal line-up against Al-Feiha: Inzaghi picks Malcom's replacement**: [Link](https://www.goal.com/en-in/news/al-hilal-line-up-against-al-feiha-inzaghi-picks-malcom-s-replacement/blt9a75231efb902e96)
