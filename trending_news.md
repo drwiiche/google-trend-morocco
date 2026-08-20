@@ -1,3 +1,10 @@
+### العفو الملكي في المغرب (N/A, Wed, 19 Aug 2026 15:50:00 -0700)
+
+- **935 شخصا يستفيدون من العفو الملكي**: [Link](https://www.hespress.com/935-%D8%B4%D8%AE%D8%B5%D8%A7-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D8%AF%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1794286.html)
+- **ثورة الملك والشعب .. ملحمة وطنية خالدة جسدت تلاحم العرش والشعب في سبيل الحرية والاستقلال والوحدة**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%88%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D9%85%D9%84%D8%AD%D9%85%D8%A9-%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AE%D8%A7%D9%84%D8%AF%D8%A9-%D8%AC%D8%B3%D8%AF%D8%AA-%D8%AA%D9%84%D8%A7%D8%AD%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D9%88%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D9%81%D9%8A-%D8%B3%D8%A8%D9%8A%D9%84-%D8%A7%D9%84%D8%AD%D8%B1%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9)
+- **زعيم المعارضة الإسبانية ينتقد "حدودا بلاستيكية" في سبتة.. ويقول: "أمن بلادنا لا يجب أن يُترك للمغرب"**: [Link](https://ar.telquel.ma/%D8%B9%D9%81%D9%88-%D9%85%D9%84%D9%83%D9%8A-%D8%B9%D9%86-935-%D8%B4%D8%AE%D8%B5%D8%A7-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B0%D9%83%D8%B1%D9%89-%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85/)
+
+
 ### philadelphie union – inter miami (N/A, Wed, 19 Aug 2026 16:10:00 -0700)
 
 - **Cavan Sullivan is set to host Lionel Messi for the first time as the Union face Miami**: [Link](https://www.inquirer.com/soccer/cavan-sullivan-lionel-messi-philadelphia-union-inter-miami-20260818.html)
