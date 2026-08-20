@@ -1,3 +1,15 @@
+### ألفيحاء ضد الهلال (N/A, Thu, 20 Aug 2026 12:20:00 -0700)
+
+
+
+
+### ronaldinho (N/A, Thu, 20 Aug 2026 11:40:00 -0700)
+
+- **Former Ballon d'Or Winner, 46, Set to Come Out of Retirement to Score 'Final Goal of His Career'**: [Link](https://www.givemesport.com/ballon-dor-ronaldinho-out-of-retirement-goal-with-ravenna-italy/)
+- **Italy Ronaldinho Soccer**: [Link](https://www.gazettextra.com/apgstate/italy-ronaldinho-soccer/image_4693a510-1cbe-52a7-9ea2-0f2773c7032e.html)
+- **Ronaldinho returns in search of 'beautiful' 300th goal**: [Link](https://www.france24.com/en/live-news/20260820-ronaldinho-returns-in-search-of-beautiful-300th-goal)
+
+
 ### benfica – agf århus (N/A, Thu, 20 Aug 2026 12:30:00 -0700)
 
 - **Benfica vs AGF: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm62qq9rv9ket)
