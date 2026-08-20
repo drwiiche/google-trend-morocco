@@ -1,3 +1,38 @@
+### diesel (N/A, Thu, 20 Aug 2026 10:00:00 -0700)
+
+- **Opinion | The ‘Crack Spread’ Is Going to Make Your Life Unpleasant**: [Link](https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html)
+- **Red lights are flashing in energy markets**: [Link](https://www.cnn.com/2026/08/19/business/oil-gas-war-iran-russia)
+- **Diesel in California rises to $7 a gallon as wars in Europe and Middle East strain supply**: [Link](https://www.cnbc.com/2026/08/19/diesel-price-california-ukraine-russia-iran-strait-hormuz.html)
+
+
+### أفريقيا (N/A, Thu, 20 Aug 2026 10:00:00 -0700)
+
+- **بمشاركة المغرب ... انطلاق فعاليات بطولة إفريقيا للكرة الطائرة الشاطئية للرجال والسيدات بالإسكندرية.**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%A5%D8%B3%D9%83%D9%86%D8%AF%D8%B1%D9%8A%D8%A9-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%81%D8%B9%D8%A7%D9%84%D9%8A%D8%A7%D8%AA-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7%D9%84%D8%B4%D8%A7%D8%B7%D8%A6%D9%8A%D8%A9-20260819)
+- **إبراهيم بولامي يتابع منافسات بطولة أفريقيا للكرة الطائرة الشاطئية ويشيد بالتنظيم في الإسكندرية**: [Link](https://www.altreeq.com/544088)
+- **الجزائر تحجز مقعدها في الدور الثاني من بطولة إفريقيا للكرة الطائرة الشاطئية**: [Link](https://al24news.dz/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%AD%D8%AC%D8%B2-%D9%85%D9%82%D8%B9%D8%AF%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%85%D9%86/)
+
+
+### نادي الجيش الملكي (N/A, Thu, 20 Aug 2026 10:00:00 -0700)
+
+- **أكاديمية الجيش الملكي: مدرسة تصنع النجوم وتدر الملايين**: [Link](https://www.sport7.ma/%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D8%AA%D8%B5%D9%86%D8%B9-%D8%A7%D9%84%D9%86%D8%AC/)
+- **الجيش الملكي يواصل تحضيراته في تركيا.. اليوم الخامس من المعسكر**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87-%D9%81%D9%8A-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B9%D8%B3%D9%83%D8%B1/24259)
+- **الجيش يرفع وتيرة الاستعدادات بتركيا**: [Link](https://assabah.ma/944350.html)
+
+
+### turf prono (N/A, Thu, 20 Aug 2026 09:50:00 -0700)
+
+- **Les pronos hippiques du jeudi 20 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-20-aout-2026_AN-202608190339.html)
+- **Quinté du jeudi 20 août 2026 en nocturne à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-jeudi-20-aout-2026-en-nocturne-a-deauville-les-pronostics-7900663226)
+- **Les Notes des partants du Quinté+ de ce jeudi 20 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-jeudi-20-aout)
+
+
+### shahid (N/A, Thu, 20 Aug 2026 08:30:00 -0700)
+
+- **When Anushka Sharma and Shahid Kapoor's alleged ugly fight caught on camera, he said, 'kyu bich mein kud...**: [Link](https://www.moneycontrol.com/entertainment/when-anushka-sharma-and-shahid-kapoor-s-alleged-ugly-fight-caught-on-camera-he-said-kyu-bich-mein-kud-rahi-ho-actress-told-him-to-shut-up-article-14011822.html)
+- **‘Kyun Beech Mein Kood Rahi Ho?’ Anushka Sharma-Shahid Kapoor’s Ugly Fight Caught On Camera | Watch**: [Link](https://www.news18.com/movies/bollywood/kyun-beech-mein-kood-rahi-ho-anushka-sharma-shahid-kapoors-ugly-fight-caught-on-camera-watch-ws-l-10275807.html)
+- **Shahid Kapoor named brand ambassador for WonderWorks’ Ziggy packaged cakes**: [Link](https://brandequity.economictimes.indiatimes.com/news/research/advertising/shahid-kapoor-named-brand-ambassador-for-wonderworks-ziggy-packaged-cakes/133346198)
+
+
 ### fantasy premier league (N/A, Thu, 20 Aug 2026 07:00:00 -0700)
 
 - **Budget buys and differentials: The low-cost players who will transform your FPL squad**: [Link](https://www.goal.com/en/news/budget-buys-differentials-low-cost-players-fpl-squad/blt355bdbc465926081)
