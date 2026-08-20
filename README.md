@@ -1,3 +1,17 @@
+### عز الدين الحداد (N/A, Thu, 20 Aug 2026 05:40:00 -0700)
+
+- **مشاهد جديدة لعز الدين الحداد.. القسام توثق تدريباته في سلاح البحرية**: [Link](https://www.aljazeera.net/news/2026/8/20/%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D9%86%D8%B4%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D9%82%D8%A7%D8%A6%D8%AF%D9%87%D8%A7-%D8%A7%D9%84%D8%B9%D8%A7%D9%85)
+- **أقمار الطوفان.. القسام تنشر مشاهد عسكرية جديدة للقائد عز الدين الحداد**: [Link](https://palinfo.com/news/2026/08/20/1115811/)
+- **كتائب القسام تنشر مشاهد جديدة للقائد عز الدين الحداد خلال تدريبات عسكرية**: [Link](https://elayem.news/%D9%83%D8%AA%D8%A7%D8%A6%D8%A8-%D8%A7%D9%84%D9%82%D8%B3%D8%A7%D9%85-%D8%AA%D9%86%D8%B4%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D8%B9/)
+
+
+### حميد شباط (N/A, Thu, 20 Aug 2026 05:00:00 -0700)
+
+- **الحركة الشعبية تعزز حضورها في فاس.. ريم شباط وخالد العجلي ضمن المرشحين**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D8%AD%D8%B6%D9%88%D8%B1%D9%87%D8%A7-%D9%81%D9%8A-%D9%81%D8%A7%D8%B3-%D8%B1%D9%8A%D9%85-%D8%B4%D8%A8%D8%A7%D8%B7-%D9%88%D8%AE%D8%A7%D9%84%D8%AF-%D8%A7%D9%84%D8%B9%D8%AC%D9%84%D9%8A-%D8%B6%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-20260819)
+- **الحركة الشعبية تستقطب ريم شباط وتقدمها وكيلة للائحة فاس الشمالية – اليوم 24**: [Link](https://alyaoum24.com/2039368.html)
+- **بحضور حميد شباط.. محمد أوزين يقدم مرشحي فاس الشمالية و الجنوبية ريم شباط وخالد العجلي**: [Link](https://www.akhbarona.com/videos/431093.html)
+
+
 ### isack hadjar (N/A, Thu, 20 Aug 2026 04:30:00 -0700)
 
 - **ANALYSIS: Why Lawson’s Red Bull call-up is such a huge opportunity**: [Link](https://www.formula1.com/en/latest/article/analysis-why-lawsons-red-bull-call-up-is-such-a-huge-opportunity.2ARsOWE56XDkDyJ7yBScFC)
