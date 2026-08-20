@@ -1,3 +1,10 @@
+### joão cancelo (N/A, Thu, 20 Aug 2026 06:00:00 -0700)
+
+- **Barcelona set to meet with super-agent today to accelerate out-of-favour star’s exit**: [Link](https://barcauniversal.com/barcelona-set-to-meet-with-super-agent-today-to-accelerate-out-of-favour-stars-exit/)
+- **Frustrated Joao Cancelo storms down Camp Nou tunnel after Barcelona's presentation snub**: [Link](https://www.goal.com/en/lists/joao-cancelo-barcelona-presentation-joan-gamper-trophy-transfer/bltce1eccd9792f5ad5)
+- **Al-Hilal agrees to transfer João Cancelo to Barcelona**: [Link](https://alhilal.com/en/news/al-hilal-agrees-to-transfer-joao-cancelo-to-barcelona)
+
+
 ### الحسين عموتة (N/A, Thu, 20 Aug 2026 05:10:00 -0700)
 
 - **إعلامي يطالب جماهير الأهلي بمنح عموتة فرصة لإثبات نفسه**: [Link](https://daralmaref.com/News/2580937.aspx)
