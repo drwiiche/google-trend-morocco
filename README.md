@@ -1,3 +1,10 @@
+### al feiha – al-hilal (N/A, Thu, 20 Aug 2026 10:20:00 -0700)
+
+- **Al-Hilal line-up against Al-Feiha: Inzaghi picks Malcom's replacement**: [Link](https://www.goal.com/en-in/news/al-hilal-line-up-against-al-feiha-inzaghi-picks-malcom-s-replacement/blt9a75231efb902e96)
+- **Danny Makkelie to Officiate Al-Fayha vs Al-Hilal in Ro…**: [Link](https://www.ysscores.com/en/news/14023209/danny-makkelie-to-officiate-al-fayha-vs-al-hilal-in-roshn-league)
+- **Inzaghi names Al-Hilal side, with Mandash replacing Malcom against Al-Feiha**: [Link](https://onefootball.com/en/news/inzaghi-names-al-hilal-side-with-mandash-replacing-malcom-against-al-feiha-43309108)
+
+
 ### diesel (N/A, Thu, 20 Aug 2026 10:00:00 -0700)
 
 - **Opinion | The ‘Crack Spread’ Is Going to Make Your Life Unpleasant**: [Link](https://www.nytimes.com/2026/08/19/opinion/gas-prices-crude-oil-diesel.html)
