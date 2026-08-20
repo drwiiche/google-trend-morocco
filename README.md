@@ -1,3 +1,10 @@
+### fantasy premier league (N/A, Thu, 20 Aug 2026 07:00:00 -0700)
+
+- **Budget buys and differentials: The low-cost players who will transform your FPL squad**: [Link](https://www.goal.com/en/news/budget-buys-differentials-low-cost-players-fpl-squad/blt355bdbc465926081)
+- **My NEW FPL Team - Bench Boost active!**: [Link](https://fpl.page/article/my-latest-fpl-draft-team-2627)
+- **Best FPL Defenders at Each Price Point for the 2026/27 Season**: [Link](https://allaboutfpl.com/2026/08/best-fpl-defenders-at-each-price-point-for-the-2026-27-season/)
+
+
 ### joão cancelo (N/A, Thu, 20 Aug 2026 06:00:00 -0700)
 
 - **Barcelona set to meet with super-agent today to accelerate out-of-favour star’s exit**: [Link](https://barcauniversal.com/barcelona-set-to-meet-with-super-agent-today-to-accelerate-out-of-favour-stars-exit/)
