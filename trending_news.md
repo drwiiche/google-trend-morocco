@@ -1,3 +1,10 @@
+### isack hadjar (N/A, Thu, 20 Aug 2026 04:30:00 -0700)
+
+- **ANALYSIS: Why Lawson’s Red Bull call-up is such a huge opportunity**: [Link](https://www.formula1.com/en/latest/article/analysis-why-lawsons-red-bull-call-up-is-such-a-huge-opportunity.2ARsOWE56XDkDyJ7yBScFC)
+- **What's really at stake for Lawson on shock Red Bull F1 return**: [Link](https://www.the-race.com/formula-1/what-really-at-stake-for-liam-lawson-shock-red-bull-f1-return/)
+- **Verstappen’s team-mate Isack Hadjar out: The list of injured and ill drivers**: [Link](https://www.speedweek.com/en/a/formula-1/verstappen-team-mate-isack-hadjar-out-the-list-of-injured-and-ill-drivers)
+
+
 ### الطقس اليوم (N/A, Thu, 20 Aug 2026 03:00:00 -0700)
 
 - **أمطار وسيول وأعاصير قمعية متوقعة على الشرقية.. السبت والأحد**: [Link](https://www.jehat.net/?act=artc&id=139821)
