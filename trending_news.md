@@ -1,3 +1,29 @@
+### meteo (N/A, Thu, 20 Aug 2026 02:40:00 -0700)
+
+
+
+
+### ثورة الملك والشعب (N/A, Thu, 20 Aug 2026 02:40:00 -0700)
+
+- **935 شخصا يستفيدون من العفو الملكي**: [Link](https://www.hespress.com/935-%D8%B4%D8%AE%D8%B5%D8%A7-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D8%AF%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-1794286.html)
+- **زعيم المعارضة الإسبانية ينتقد "حدودا بلاستيكية" في سبتة.. ويقول: "أمن بلادنا لا يجب أن يُترك للمغرب"**: [Link](https://ar.telquel.ma/%D8%B9%D9%81%D9%88-%D9%85%D9%84%D9%83%D9%8A-%D8%B9%D9%86-935-%D8%B4%D8%AE%D8%B5%D8%A7-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B0%D9%83%D8%B1%D9%89-%D8%AB%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85/)
+- **🔥عطلة يومي 20 و21 غشت في المغرب**: [Link](https://tanja7.com/190714/)
+
+
+### 20 aout (N/A, Thu, 20 Aug 2026 01:30:00 -0700)
+
+- **Nord. La revue de presse quotidienne de ce jeudi 20 août**: [Link](https://www.oisehebdo.fr/2026/08/20/nord-revue-presse-quotidienne-jeudi-20-aout/)
+- **Nord. La revue de presse quotidienne du mercredi 19 août**: [Link](https://www.oisehebdo.fr/2026/08/19/nord-revue-presse-quotidienne-mercredi-19-aout/)
+- **Le Beausset fête sa Libération ce 20 août : défilé militaire, hélicoptère et concerts au programme**: [Link](https://www.varactu.fr/le-beausset-fete-sa-liberation-ce-20-aout-defile-militaire-helicoptere-et-concerts-au-programme/)
+
+
+### عبد الرزاق حمد الله (N/A, Thu, 20 Aug 2026 00:20:00 -0700)
+
+- **فيديو: حمدالله يبدأ مسلسل أهدافه مع التعاون.. والهلال خيبته الوحيدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%A8%D8%AF%D8%A7%D9%94-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%94%D9%87%D8%AF%D8%A7%D9%81%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86--%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%AE%D9%8A%D8%A8%D8%AA%D9%87-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF%D8%A9/blt0ab738f3a05f56df)
+- **ضمك الضحية: عبدالرزاق حمدالله رد عليكم بـ"عادة سعودية".. وبدأ حكايته التهديفية مع التعاون**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B6%D9%85%D9%83-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D8%B1%D8%B2%D8%A7%D9%82-%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%83%D8%A3%D8%B3-%D8%AE%D8%A7%D8%AF%D9%85-%D8%A7%D9%84%D8%AD%D8%B1%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D9%81%D9%8A%D9%86/bltccf42a62eef76c96)
+- **مدرب التعاون يعلق على الفوز أمام ضمك في كأس الملك.. ماذا قال؟**: [Link](https://www.alyaum.com/articles/6678806/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A3%D9%85%D8%A7%D9%85-%D8%B6%D9%85%D9%83-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84)
+
+
 ### classement atlético madrid – málaga cf (N/A, Wed, 19 Aug 2026 14:20:00 -0700)
 
 - **Atlético de Madrid 2-0 Malaga, La Liga : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/atletico-de-madrid-malaga-live/693079)
