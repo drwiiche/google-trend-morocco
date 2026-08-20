@@ -1,3 +1,10 @@
+### éclipse lunaire (N/A, Thu, 20 Aug 2026 02:30:00 -0700)
+
+- **Éclipse lunaire : quelques jours après le Soleil, la Lune s’éclipsera le 28 août 2026**: [Link](https://www.sudouest.fr/sciences-et-technologie/astronomie/eclipse-lunaire-quelques-jours-apres-le-soleil-la-lune-s-eclipsera-le-28-aout-2026-30302200.php)
+- **Nouveau spectacle céleste : le 28 août, comment profiter de l'éclipse quasi totale de Lune en France**: [Link](https://www.lesnumeriques.com/astronomie-conquete-spatiale/nouveau-spectacle-celeste-le-28-aout-comment-profiter-de-l-eclipse-quasi-totale-de-lune-en-france-n260631.html)
+- **Pleine lune d’août 2026 : quelle est la date de la lune de l’Esturgeon ?**: [Link](https://www.larepubliquedespyrenees.fr/sciences-et-technologie/astronomie/pleine-lune-d-aout-2026-quelle-est-la-date-de-la-lune-de-l-esturgeon-30292909.php)
+
+
 ### gta vi gameplay (N/A, Thu, 20 Aug 2026 03:20:00 -0700)
 
 - **[UPDATE] GTA 6 Suffers Third Day of Leaks, Latest Video Suggests Leakers Have Access to a Build of the Game**: [Link](https://www.ign.com/articles/gta-6-gameplay-and-map-appear-to-leak-online-group-reportedly-responsible-threatens-rockstar-over-all-digital-future)
