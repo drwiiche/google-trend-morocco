@@ -1,3 +1,15 @@
+### gta leaks (N/A, Fri, 21 Aug 2026 07:00:00 -0700)
+
+- **Take-Two Subpoenas Trove Of Records From Microsoft And Discord As It Hunts For GTA 6 Leaker**: [Link](https://kotaku.com/take-two-subpoenas-microsoft-and-discord-records-related-to-spread-of-gta-6-leaks-2000726633)
+- **Rockstar hit with more leaks as GTA 6 gameplay and assets appear to circulate on social media**: [Link](https://www.gamesindustry.biz/rockstar-hit-with-more-leaks-as-gta-6-gameplay-and-assets-appear-to-circulate-on-social-media)
+- **Second season of "Transformers: Cyberverse" starts August 22 - teaser trailer released**: [Link](https://ixbt.games/en/news/2026/08/21/vtoroi-sezon-transformerov-kibermir-startuet-22-avgusta-vysel-tizer-treiler.html)
+
+
+### سعفان الصغير (N/A, Fri, 21 Aug 2026 07:00:00 -0700)
+
+
+
+
 ### مصطفى الدرقاوي (N/A, Fri, 21 Aug 2026 07:10:00 -0700)
 
 - **رحيل الدرقاوي.. مخرج "أحداث بلا دلالة"**: [Link](https://www.hespress.com/%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D9%82%D8%A7%D9%88%D9%8A-%D9%85%D8%AE%D8%B1%D8%AC-%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A8%D9%84%D8%A7-%D8%AF%D9%84%D8%A7%D9%84%D8%A9-1794897.html)
