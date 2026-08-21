@@ -1,3 +1,10 @@
+### erzurumspor – galatasaray (N/A, Fri, 21 Aug 2026 12:40:00 -0700)
+
+- **Erzurumspor-Galatasaray maçında bu görüntü çok konuşuldu**: [Link](https://www.gazetepusula.net/erzurumspor-galatasaray-macinda-bu-goruntu-cok-konusuldu/393174/)
+- **Roland Sallai: 'Hedeflerimiz çok büyük'**: [Link](https://www.sporx.com/roland-sallai-hedeflerimiz-cok-buyuk-SXHBQ1173238SXQ)
+- **Barış Alper Yılmaz: Şampiyonluk ve Şampiyonlar Ligi hedeflerim var!**: [Link](https://www.sabah.com.tr/spor/futbol/2026/08/21/baris-alper-yilmaz-sampiyonluk-ve-sampiyonlar-ligi-hedeflerim-var)
+
+
 ### الاتحاد السنغالي لكرة القدم (N/A, Fri, 21 Aug 2026 13:20:00 -0700)
 
 - **محكمة الـ"طاس" تُلزم لجنة الاستئناف التابعة للاتحاد السنغالي بقبول طعن "مادي توري" ضد انتخاب الرئيس الحالي "عبد الله فال"**: [Link](https://www.elbotola.com/article/2026-08-21-14-27-757.html)
