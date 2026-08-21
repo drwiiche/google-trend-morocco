@@ -1,3 +1,10 @@
+### الاتحاد السنغالي لكرة القدم (N/A, Fri, 21 Aug 2026 13:20:00 -0700)
+
+- **محكمة الـ"طاس" تُلزم لجنة الاستئناف التابعة للاتحاد السنغالي بقبول طعن "مادي توري" ضد انتخاب الرئيس الحالي "عبد الله فال"**: [Link](https://www.elbotola.com/article/2026-08-21-14-27-757.html)
+- **زلزال في الكرة السنغالية.. محكمة التحكيم الرياضي تعيد فتح ملف الانتخابات**: [Link](https://www.shihabpresse.dz/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A/)
+- **"أسوأ اتحاد كروي تنظيما".. رومين مولينا: بعثة السنغال إلى "كان المغرب" ضمت 17 مشعوذا**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A-%D9%81%D9%8A-%D9%88%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A7%D8%AA-%D9%85%D8%B9-%D8%AB/)
+
+
 ### la liga (N/A, Fri, 21 Aug 2026 13:00:00 -0700)
 
 - **Real Betis vs Real Sociedad – Prediction, Where to Watch, Kick-off Time and Lineups 21-08**: [Link](https://oddsscanner.com/predictions/football/real-betis-x-real-sociedad-21-08-2026)
