@@ -1,3 +1,38 @@
+### نادي برشلونة (N/A, Fri, 21 Aug 2026 09:30:00 -0700)
+
+- **زيادة 10 أضعاف.. برشلونة يقرر مكافأة حمزة عبد الكريم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-10-%D8%A7%D9%94%D8%B6%D8%B9%D8%A7%D9%81--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D8%B1%D8%B1-%D9%85%D9%83%D8%A7%D9%81%D8%A7%D9%94%D8%A9-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85/blte6cb58800e97d5e8)
+- **بـ10 أضعاف.. برشلونة يحصن نجمه المصري حمزة عبد الكريم**: [Link](https://www.aljazeera.net/sport/2026/8/21/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D9%85%D8%B5%D8%B1-%D8%B9%D9%82%D8%AF)
+- **بشرى سارة لـ حمزة عبد الكريم.. برشلونة يضع صفقة المهاجم على قائمة الانتظار**: [Link](https://www.youm7.com/story/2026/8/19/%D8%A8%D8%B4%D8%B1%D9%89-%D8%B3%D8%A7%D8%B1%D8%A9-%D9%84%D9%80-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B6%D8%B9-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D9%85/7517976)
+
+
+### الرياض ضد النصر (N/A, Fri, 21 Aug 2026 09:20:00 -0700)
+
+- **عاد ولكن.. رونالدو يظهر مع النصر في مباراة الرياض**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%AF-%D9%88%D9%84%D9%83%D9%86--%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%B8%D9%87%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6/bltf425520381773d60)
+- **تريزيجيه في مهمة صعبة.. الرياض يصطدم بالنصر في الدوري السعودي**: [Link](https://daralmaref.com/News/2581274.aspx)
+- **مباشر.. النصر ضد الرياض في الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+
+
+### al-riyadh vs al-nassr (N/A, Fri, 21 Aug 2026 09:10:00 -0700)
+
+- **Will Ronaldo miss a third match with Al-Nassr?**: [Link](https://www.goal.com/en/news/ronaldo-takes-everyone-by-surprise-al-nassr-captain-s-stance-on-the-riyadh-battle-revealed/blt1c18142e37ef71ac)
+- **Cristiano Ronaldo handed double blow as rivals Al-Riyadh and Al-Ettifaq get major boost before facing Al-Na...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-handed-double-blow-as-rivals-al-riyadh-and-al-ettifaq-get-major-boost-before-facing-al-nassr-in-saudi-pro-league/)
+- **Cristiano Ronaldo Debuts New Hairstyle in Photo, Video After Marriage to Georgina Rodríguez**: [Link](https://bleacherreport.com/articles/25471055-cristiano-ronaldo-debuts-new-hairstyle-photo-video-after-marriage-georgina-rodriguez)
+
+
+### بنيامين نتنياهو (N/A, Fri, 21 Aug 2026 09:00:00 -0700)
+
+- **نشرة حمراء لنتنياهو.. تركيا تفتح باب الملاحقة الدولية**: [Link](https://www.aljazeera.net/news/2026/8/21/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D8%B7%D9%84%D8%A8-%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%A8%D8%AD%D9%82-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88)
+- **تركيا تصدر مذكرة توقيف دولية بحق نتنياهو.. والأخير يصف أردوغان بـ"ديكتاتور معاد للسامية"**: [Link](https://www.alquds.co.uk/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D8%B0%D9%83%D8%B1%D8%A9-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D8%A8%D8%AD%D9%82-%D9%86%D8%AA%D9%86%D9%8A%D8%A7/)
+- **نتانياهو يصف إردوغان بـ"ديكتاتور معاد للسامية"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260821-%D9%86%D8%AA%D8%A7%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%B5%D9%81-%D8%A5%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D8%A8%D9%80-%D8%AF%D9%8A%D9%83%D8%AA%D8%A7%D8%AA%D9%88%D8%B1-%D9%85%D8%B9%D8%A7%D8%AF-%D9%84%D9%84%D8%B3%D8%A7%D9%85%D9%8A%D8%A9)
+
+
+### transfert (N/A, Fri, 21 Aug 2026 08:30:00 -0700)
+
+- **Le mercato en direct : Coulibaly à Strasbourg, Savinho et Marmoush proches de Tottenham, Disasi proche de Crystal Palace**: [Link](https://www.lequipe.fr/Football/actu-en-direct/le-mercato-en-direct-live/20021)
+- **C’est bouclé entre Manchester City et Tottenham pour Savinho !**: [Link](https://www.footmercato.net/a5169015924646056192-cest-boucle-entre-manchester-city-et-tottenham-pour-savinho)
+- **Allan Elias : la clause à 100 millions d’euros qui verrouille le plan B de Manchester City**: [Link](https://www.sport.fr/football/allan-elias-la-clause-a-100-millions-deuros-qui-verrouille-le-plan-b-de-manchester-city-1475668.shtm)
+
+
 ### laliga (N/A, Fri, 21 Aug 2026 08:40:00 -0700)
 
 - **Barcelona enter new era as Flick targets La Liga hat-trick**: [Link](https://www.france24.com/en/live-news/20260821-barcelona-enter-new-era-as-flick-targets-la-liga-hat-trick)
