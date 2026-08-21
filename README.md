@@ -1,3 +1,10 @@
+### classement arsenal football club – coventry city (N/A, Fri, 21 Aug 2026 14:10:00 -0700)
+
+- **Profitant de l'instabilité de ses concurrents en Premier League, Arsenal rêve de dynastie**: [Link](https://www.lequipe.fr/Football/Article/Profitant-de-l-instabilite-de-ses-concurrents-en-premier-league-arsenal-reve-de-dynastie/1712374)
+- **Premier League 2026-2027 : Incertitudes et Blessures pour la Première Journée**: [Link](https://rdcsport.cd/news/premier-league-2026-2027-incertitudes-blessures)
+- **📊 Bukayo Saka dépasse un héros culte, Arsenal déroule face à Coventry**: [Link](https://onefootball.com/fr/news/bukayo-saka-depasse-un-heros-culte-arsenal-deroule-face-a-coventry-43315883)
+
+
 ### air algérie (N/A, Fri, 21 Aug 2026 14:20:00 -0700)
 
 - **Air Algérie vient directement chasser sur les terres africaines de Royal Air Maroc**: [Link](https://www.bladi.net/air-algerie-vient-directement-chasser-terres-africaines-royal-air-maroc,123270.html)
