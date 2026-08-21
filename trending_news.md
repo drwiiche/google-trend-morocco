@@ -1,3 +1,15 @@
+### transavia (N/A, Fri, 21 Aug 2026 00:30:00 -0700)
+
+- **Transavia transforms Brussels Airport into a "full-fledged home base"**: [Link](https://www.belganewsagency.eu/press-releases/35638/)
+
+
+### euro (N/A, Thu, 20 Aug 2026 15:40:00 -0700)
+
+- **EUR/USD breakout puts dollar pressure valve in focus**: [Link](https://www.forex.com/en-us/news-and-analysis/eur-usd-breakout-puts-dollar-pressure-valve-in-focus/)
+- **EUR/USD: Euro Jumps Toward $1.17 as Treasury Knocks Dollar to Three-Month Low**: [Link](https://www.tradingview.com/news/tradingview:d54f261ff094b:0-eur-usd-euro-jumps-toward-1-17-as-treasury-knocks-dollar-to-three-month-low/)
+- **EURUSD – Bulls Take a Breather Ahead of Fresh Advance**: [Link](https://www.actionforex.com/contributors/technical-analysis/651293-eurusd-bulls-take-a-breather-ahead-of-fresh-advance/)
+
+
 ### ounahi (N/A, Fri, 21 Aug 2026 00:10:00 -0700)
 
 - **Azzedine Ounahi: three clubs accelerate**: [Link](https://mountakhab.net/en/azzedine-ounahi-three-clubs-accelerate/)
