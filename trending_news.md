@@ -1,3 +1,10 @@
+### mutiny (N/A, Thu, 20 Aug 2026 14:30:00 -0700)
+
+- **Amazon seemingly leaked Jason Statham’s entire Mutiny movie**: [Link](https://www.theverge.com/entertainment/981943/amazon-prime-video-mutiny-movie-leak)
+- **El motín divide a la crítica: el thriller de Jason Statham logra un 49 % en Rotten Tomatoes tras 39 reseñas**: [Link](https://www.imdb.com/news/ni65979839/?ref_=nmnw_art_perm)
+- **Interview: Annabelle Wallis on Jason Statham Impressions and Their New Action Movie 'Mutiny'**: [Link](https://awardsradar.com/2026/08/20/interview-annabelle-wallis-on-jason-statham-mutiny/)
+
+
 ### وزارة (N/A, Thu, 20 Aug 2026 15:30:00 -0700)
 
 - **قانون المحاماة الجديد يدخل التنفيذ**: [Link](https://www.hespress.com/%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%85%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0-1794762.html)
