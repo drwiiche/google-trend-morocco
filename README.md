@@ -1,3 +1,17 @@
+### خطبة الجمعة (N/A, Fri, 21 Aug 2026 05:20:00 -0700)
+
+- **"وانسب إلى قدره ما شئت من عظم".. موضوع خطبة الجمعة بمساجد الجمهورية اليوم**: [Link](https://www.youm7.com/story/2026/8/21/%D9%88%D8%A7%D9%86%D8%B3%D8%A8-%D8%A5%D9%84%D9%89-%D9%82%D8%AF%D8%B1%D9%87-%D9%85%D8%A7-%D8%B4%D8%A6%D8%AA-%D9%85%D9%86-%D8%B9%D8%B8%D9%85-%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9/7519080)
+- **خطبة الجمعة اليوم 21 أغسطس.. اعرف الموضوع**: [Link](https://daralmaref.com/News/2581202.aspx)
+- **خطبة الجمعة اليوم.. «وانسب إلى قدره ما شئت من عظم» أبرز الرسائل في ذكرى المولد النبوي**: [Link](https://www.mobtada.com/egypt/1642388/%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88%D8%A7%D9%86%D8%B3%D8%A8-%D8%A5%D9%84%D9%89-%D9%82%D8%AF%D8%B1%D9%87-%D9%85%D8%A7-%D8%B4%D8%A6%D8%AA-%D9%85%D9%86-%D8%B9%D8%B8%D9%85-%D8%A3%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D9%81%D9%8A-%D8%B0%D9%83%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D9%86%D8%A8%D9%88%D9%8A)
+
+
+### بطولة (N/A, Fri, 21 Aug 2026 04:20:00 -0700)
+
+- **الشادلي يحذر من تأخر انطلاق البطولة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D8%A7%D8%AF%D9%84%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA%D8%A3%D8%AE%D8%B1-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-1794691.html)
+- **العصبة الاحترافية تؤكد استمرار نظام الـ16 فريقا في الموسم المقبل**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%AA%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D8%B4%D8%A3%D9%86-%D8%B1%D9%81%D8%B9-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%84%D9%89-20-%D9%81%D8%B1%D9%8A%D9%82%D8%A7/24325)
+- **بعد مقترح 20 فريقا.. العصبة الاحترافية تنهي الجدل وتكشف الصيغة المعتمدة**: [Link](https://ar.telquel.ma/%D8%A8%D8%B9%D8%AF-%D9%85%D9%82%D8%AA%D8%B1%D8%AD-20-%D9%81%D8%B1%D9%8A%D9%82%D8%A7-%D8%A7%D9%84%D8%B9%D8%B5%D8%A8%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%AA%D9%86/)
+
+
 ### premier league (N/A, Fri, 21 Aug 2026 04:40:00 -0700)
 
 - **David Squires on … new managers causing a stir before Premier League’s return**: [Link](https://www.theguardian.com/football/picture/2026/aug/18/david-squires-new-managers-causing-stir-premier-league-return)
