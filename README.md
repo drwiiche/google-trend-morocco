@@ -1,3 +1,17 @@
+### la liga (N/A, Fri, 21 Aug 2026 13:00:00 -0700)
+
+- **Real Betis vs Real Sociedad – Prediction, Where to Watch, Kick-off Time and Lineups 21-08**: [Link](https://oddsscanner.com/predictions/football/real-betis-x-real-sociedad-21-08-2026)
+- **Licensable video: Matarazzo considers Real Sociedad “ready” for its league debut against Real Betis**: [Link](https://www.reutersconnect.com/item/matarazzo-considers-real-sociedad-ready-for-its-league-debut-against-real-betis/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzU1MDIxMTg4MDA3MDAx)
+- **Real Betis vs Real Sociedad: Lineups, Prediction, Betting Tips & Odds**: [Link](https://www.whoscored.com/articles/oatyajOkrUOVm95zGnup3w/show/20260821-real-betis-vs-real-sociedad-prediction-1787310371)
+
+
+### آرسنال ضد كوفنتري سيتي (N/A, Fri, 21 Aug 2026 11:30:00 -0700)
+
+- **التشكيل الرسمي.. هافيرتز يقود هجوم آرسنال في انطلاقة البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A--%D9%87%D8%A7%D9%81%D9%8A%D8%B1%D8%AA%D8%B2-%D9%8A%D9%82%D9%88%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt14695bd02a049058)
+- **أرسنال يقص شريط الدوري الإنجليزي الممتاز بمواجهة كوفنتري**: [Link](https://radiomars.ma/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D9%82%D8%B5-%D8%B4%D8%B1%D9%8A%D8%B7-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85/)
+- **آرسنال يدشن رحلة الدفاع عن لقب "البريميرليغ" في موسم التغييرات الكبرى**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%AF%D8%B4%D9%86-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D9%84%D9%82%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D9%81%D9%8A-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89/24311)
+
+
 ### bet365 (N/A, Fri, 21 Aug 2026 12:50:00 -0700)
 
 - **'Brilliant in the basics'**: [Link](https://www.steelers.com/news/brilliant-in-the-basics)
