@@ -1,3 +1,17 @@
+### premier league (N/A, Fri, 21 Aug 2026 04:40:00 -0700)
+
+- **David Squires on … new managers causing a stir before Premier League’s return**: [Link](https://www.theguardian.com/football/picture/2026/aug/18/david-squires-new-managers-causing-stir-premier-league-return)
+- **The Most Punishing Job Market in Sports Is on an English Soccer Sideline**: [Link](https://www.wsj.com/sports/soccer/english-premier-league-arsenal-man-city-arteta-34c99b30)
+- **New season, same madness: Kenyan fans deliver unfiltered verdicts for the Premier League**: [Link](https://www.standardmedia.co.ke/sports/premier-league/article/2001555873/new-season-same-madness-kenyan-fans-deliver-unfiltered-verdicts-for-the-new-2026-27-premier-league)
+
+
+### paul pogba (N/A, Fri, 21 Aug 2026 04:30:00 -0700)
+
+- **Merci Paul!**: [Link](https://www.asmonaco.com/en/news/the-principality-club-and-paul-pogba-announce-the-end-of-the-venture)
+- **World Cup champion linked with surprise MLS move after having contract terminated**: [Link](https://www.themirror.com/sport/soccer/paul-pogba-mls-transfer-odds-1991015)
+- **Sports - Ligue 1: Paul Pogba's Monaco adventure comes to an end**: [Link](https://www.france24.com/en/tv-shows/sports/20260820-ligue-1-paul-pogba-s-monaco-adventure-comes-to-an-end)
+
+
 ### ألمانيا (N/A, Fri, 21 Aug 2026 04:10:00 -0700)
 
 - **أكثر من 25 ألف وفاة في ألمانيا وإسبانيا وفرنسا جراء موجات الحر**: [Link](https://www.aljazeera.net/news/2026/8/20/%D9%88%D9%81%D8%A7%D8%A9-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-25-%D8%A3%D9%84%D9%81-%D8%B4%D8%AE%D8%B5-%D9%81%D9%8A-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7)
