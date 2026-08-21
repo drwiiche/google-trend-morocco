@@ -1,3 +1,10 @@
+### hyundai tucson 2027 (N/A, Thu, 20 Aug 2026 18:20:00 -0700)
+
+- **2027 Hyundai Tucson First Look: Bigger, Boxier, Roomier**: [Link](https://www.edmunds.com/car-news/2027-hyundai-tucson-design-first-look.html)
+- **Hyundai Just Revealed the New Tucson with a Radical New Design**: [Link](https://www.caranddriver.com/news/a73469617/2027-hyundai-tucson-revealed/)
+- **Crikey, the next gen Hyundai Tucson looks a bit bonkers**: [Link](https://www.topgear.com/car-news/first-look/crikey-next-gen-hyundai-tucson-looks-a-bit-bonkers)
+
+
 ### mutiny (N/A, Thu, 20 Aug 2026 14:30:00 -0700)
 
 - **Amazon seemingly leaked Jason Statham’s entire Mutiny movie**: [Link](https://www.theverge.com/entertainment/981943/amazon-prime-video-mutiny-movie-leak)
