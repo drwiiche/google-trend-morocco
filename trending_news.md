@@ -1,3 +1,45 @@
+### محكمة جنائية دولية (N/A, Fri, 21 Aug 2026 12:30:00 -0700)
+
+- **المحكمة الجنائية الدولية تفصل تحقيق طالبان عن القضية الأمريكية ومصير الأفغانيات غامض**: [Link](https://arabic.euronews.com/2026/08/20/icc-separates-taliban-investigation-from-us-case-as-the-future-of-afghan-women-remains-unc)
+- **المحكمة الجنائية الدولية تفصل تحقيق طالبان عن القضية الأمريكية ومصير الأفغانيات غامض**: [Link](https://a5r5br.net/iraq/international-news/8035781-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D8%AA%D9%81%D8%B5%D9%84-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%B7%D8%A7%D9%84%D8%A8%D8%A7%D9%86-%D8%B9%D9%86-%D8%A7%D9%84%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%88%D9%85%D8%B5%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%81%D8%BA%D8%A7%D9%86%D9%8A%D8%A7%D8%AA-%D8%BA%D8%A7%D9%85%D8%B6)
+- **رئيسة الجنائية الدولية تحذر من "انهيار القانون الدولي"**: [Link](https://www.aljazeera.net/news/2026/8/21/%D8%AA%D9%88%D9%85%D9%88%D9%83%D9%88-%D8%A3%D9%83%D8%A7%D9%86%D9%8A)
+
+
+### hansa rostock – stuttgart (N/A, Fri, 21 Aug 2026 12:30:00 -0700)
+
+- **Freitag – Blick aufs Wochenende 21. - 23.08.2026**: [Link](https://steady.page/de/gaisburger-marsch/posts/a83c52bb-725d-4d49-9a05-9b8469225d57)
+- **VfB-Startelf gegen Hansa Rostock: Neuzugang Pejcinovic beginnt im DFB-Pokal**: [Link](https://www.stimme.de/sport/vfb-stuttgart/aufstellung-startelf-dfb-pokal-hansa-rostock-erste-runde-freitag-neuzugang-kapitaen-tor-sturm-dzenan-pejcinovic-art-5206438)
+- **Stuttgart trifft auf Seriengegner Rostock: "Die Unterschiede sind nicht mehr groß"**: [Link](https://sport.sky.de/fussball/artikel/stuttgart-trifft-auf-seriengegner-rostock-die-unterschiede-sind-nicht-mehr-gross/13575350/34957)
+
+
+### liga (N/A, Fri, 21 Aug 2026 12:30:00 -0700)
+
+- **Mourinho Names First Real Madrid Squad With Six Summer Signings**: [Link](https://www.moroccoworldnews.com/2026/08/335629/mourinho-names-first-real-madrid-squad-with-six-summer-signings/)
+- **Mourinho prepares for Espanyol**: [Link](https://www.espn.com/video/clip/_/id/49680057/mourinho-prepares-espanyol)
+- **Real Madrid announce squad for La Liga opener against Espanyol**: [Link](https://www.managingmadrid.com/111646/real-madrid-espanyol-2026-squad-list)
+
+
+### محكمة (N/A, Fri, 21 Aug 2026 12:20:00 -0700)
+
+- **المحكمة العليا تجيز موقتا استئناف الأعمال في قاعة الحفلات في البيت الأبيض**: [Link](https://www.lbcgroup.tv/news/world/953765/%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D9%8A%D8%A7-%D8%AA%D8%AC%D9%8A%D8%B2-%D9%85%D9%88%D9%82%D8%AA%D8%A7-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7%D9%84%D8%A3%D8%B9%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D9%82%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D9%81%D9%84%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3/ar)
+- **ترامب ومشاريع إعادة الإعمار المثيرة للجدل التي أطلقها.**: [Link](https://www.vietnam.vn/ar/ong-trump-va-loat-du-an-tai-thiet-gay-tranh-cai)
+- **ديمقراطيو الكونغرس يصعّدون معركة «قاعة حفلات» البيت الأبيض**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9%E2%80%8B/5308846-%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D9%88-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D8%B1%D8%B3-%D9%8A%D8%B5%D8%B9%D9%91%D8%AF%D9%88%D9%86-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D9%82%D8%A7%D8%B9%D8%A9-%D8%AD%D9%81%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D8%A3%D8%A8%D9%8A%D8%B6)
+
+
+### yalla kora (N/A, Fri, 21 Aug 2026 12:20:00 -0700)
+
+- **النصيري ليس وحيدًا.. الاتحاد يفاجئ القادسية في غياب ديابي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%84%D9%8A%D8%B3-%D9%88%D8%AD%D9%8A%D8%AF%D9%8B%D8%A7--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%AF%D9%8A%D8%A7%D8%A8%D9%8A/blt054a9156c1de8528)
+- **حكام مباريات اليوم الجمعة في الجولة "2" من دوري روشن**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-2-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-767384)
+- **توقعات مباراة القادسية والاتحاد: التشكيلات المتوقعة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-al-qadisiyah-fc-vs-al-ittihad-fc-doi-hinh-du-kien)
+
+
+### om (N/A, Fri, 21 Aug 2026 12:10:00 -0700)
+
+- **Leak: Update 21-8: Gameplaybeelden en volledige map van GTA 6 zijn gelekt**: [Link](https://gameliner.nl/nieuws/leak-update-21-8-gameplaybeelden-en-volledige-map-van-gta-6-zijn-gelekt/56147)
+- **Gameuitgever Take-Two maakt jacht op Grand Theft Auto 6-leaker**: [Link](https://id.nl/huis-en-entertainment/computer-en-gaming/playstation/gameuitgever-take-two-maakt-jacht-op-grand-theft-auto-6-leaker)
+- **Hackersgroep Cyberleek steelt GTA 6, Netflix en Rockstar balen**: [Link](https://www.rtl.nl/nieuws/video/video/e688ea8f-9564-4a15-90a4-5ec8ded7ce9e/hackersgroep-cyberleek-steelt-gta-6-netflix)
+
+
 ### arsenal (N/A, Fri, 21 Aug 2026 12:10:00 -0700)
 
 - **Barcelona priority target Julian Alvarez rejects Arsenal after Atletico Madrid agree to negotiate exit**: [Link](https://barcauniversal.com/barcelona-priority-target-julian-alvarez-rejects-arsenal-after-atletico-madrid-agree-to-negotiate-exit/)
