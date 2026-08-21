@@ -1,3 +1,8 @@
+### boa constricteur (N/A, Fri, 21 Aug 2026 02:20:00 -0700)
+
+- **Spokesperson gives insight on loose boa constrictor at Parkview Randallia Hospital**: [Link](https://www.21alivenews.com/2026/08/20/boa-constrictor-loose-parkview-randallia-hospital-this-week/)
+
+
 ### مدير أمن (N/A, Fri, 21 Aug 2026 02:30:00 -0700)
 
 - **وفاة مدير الأمن العمومي الحايل الزيتوني**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%85%D9%88%D9%85%D9%8A-%D8%A7%D9%84%D8%AD%D8%A7%D9%8A%D9%84-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88-1794837.html)
