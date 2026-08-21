@@ -1,3 +1,31 @@
+### arsenal (N/A, Fri, 21 Aug 2026 12:10:00 -0700)
+
+- **Barcelona priority target Julian Alvarez rejects Arsenal after Atletico Madrid agree to negotiate exit**: [Link](https://barcauniversal.com/barcelona-priority-target-julian-alvarez-rejects-arsenal-after-atletico-madrid-agree-to-negotiate-exit/)
+- **Atlético confirms Julián Álvarez will stay as Gil Marín sends message amid Barcelona interest**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/atl%C3%A9tico-closes-the-juli%C3%A1n-%C3%A1lvarez-case-did-gil-mar%C3%ADn-take-a-shot-at-barcelona-2026-08-21)
+- **Cristian Romero delivers Arsenal Julian Alvarez blow as behaviour brought up**: [Link](https://www.football.london/arsenal-fc/news/cristian-romero-delivers-arsenal-julian-34497500)
+
+
+### محكمة التحكيم الرياضية (N/A, Fri, 21 Aug 2026 11:50:00 -0700)
+
+- **محكمة الـ"طاس" تُلزم لجنة الاستئناف التابعة للاتحاد السنغالي بقبول طعن "مادي توري" ضد انتخاب الرئيس الحالي "عبد الله فال"**: [Link](https://www.elbotola.com/article/2026-08-21-14-27-757.html)
+- **زلزال في الكرة السنغالية.. محكمة التحكيم الرياضي تعيد فتح ملف الانتخابات**: [Link](https://www.shihabpresse.dz/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A/)
+- **إيقاف 10 مباريات.. الفيفا يفرض عقوبات قاسية على نجوم الأرجنتين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-10-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA--%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%81%D8%B1%D8%B6-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D9%82%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86/bltb0dc1d6b6a1e4b8e)
+
+
+### تركيا (N/A, Fri, 21 Aug 2026 11:10:00 -0700)
+
+- **نشرة حمراء لنتنياهو.. تركيا تفتح باب الملاحقة الدولية**: [Link](https://www.aljazeera.net/news/2026/8/21/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D8%B7%D9%84%D8%A8-%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%A8%D8%AD%D9%82-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88)
+- **وصفه بـ"الديكتاتور المعادي للسامية".. نتنياهو يهاجم أردوغان**: [Link](https://arabic.cnn.com/middle-east/article/2026/08/21/natanyahu-attacks-erdogan-calling-him-dictator)
+- **نتانياهو يصف إردوغان بـ"ديكتاتور معاد للسامية"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260821-%D9%86%D8%AA%D8%A7%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%B5%D9%81-%D8%A5%D8%B1%D8%AF%D9%88%D8%BA%D8%A7%D9%86-%D8%A8%D9%80-%D8%AF%D9%8A%D9%83%D8%AA%D8%A7%D8%AA%D9%88%D8%B1-%D9%85%D8%B9%D8%A7%D8%AF-%D9%84%D9%84%D8%B3%D8%A7%D9%85%D9%8A%D8%A9)
+
+
+### al nassr (N/A, Fri, 21 Aug 2026 11:10:00 -0700)
+
+- **Al Riyadh vs Al Nassr: Saudi Pro League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmzxee961y96t)
+- **Al Riyadh vs Al Nassr LIVE Streaming: Will Cristiano Ronaldo Play? Where to Watch Riyadh Derby LIVE in UAE and Saudi Arabia**: [Link](https://sundayguardianlive.com/sports/al-riyadh-vs-al-nassr-live-streaming-will-cristiano-ronaldo-play-where-to-watch-riyadh-derby-live-in-uae-and-saudi-arabia-266640/)
+- **Al Riyadh vs Al Nassr Preview – prediction, team news, lineups | Saudi Pro League 2026-27**: [Link](https://khelnow.com/football/al-riyadh-vs-al-nassr-preview-saudi-pro-league-202608)
+
+
 ### betis – real sociedad (N/A, Fri, 21 Aug 2026 11:20:00 -0700)
 
 - **Betis - Real Sociedad, en directo | Última hora de LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/betis-real-sociedad/2026/08/21/01_0101_20260821_185_188-directo.html)
