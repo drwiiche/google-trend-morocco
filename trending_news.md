@@ -1,3 +1,10 @@
+### f1 (N/A, Fri, 21 Aug 2026 05:40:00 -0700)
+
+- **Antonelli leads Norris and Russell in Dutch GP FP1**: [Link](https://www.formula1.com/en/latest/article/fp1-antonelli-leads-norris-and-russell-in-sole-practice-session-ahead-of-dutch-gp.6UhqlSxsUab9wkQWyJbuPo)
+- **Max Verstappen issues 'a shame' response ahead of home grand prix departure**: [Link](https://racingnews365.com/max-verstappen-issues-shame-response-ahead-of-home-grand-prix-departure)
+- **Licensable picture: F1 Grand Prix of Netherlands - Practice & Sprint Qualifying**: [Link](https://www.reutersconnect.com/item/f1-grand-prix-of-netherlands-practice-sprint-qualifying/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDVTNURVOA)
+
+
 ### livakovic (N/A, Fri, 21 Aug 2026 06:00:00 -0700)
 
 - **Barcelona loanee may have no way back as Deco pushes for new signing**: [Link](https://barcauniversal.com/barcelona-loanee-may-have-no-way-back-as-deco-pushes-for-new-signing/)
