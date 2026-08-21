@@ -1,3 +1,17 @@
+### laliga (N/A, Fri, 21 Aug 2026 08:40:00 -0700)
+
+- **Barcelona enter new era as Flick targets La Liga hat-trick**: [Link](https://www.france24.com/en/live-news/20260821-barcelona-enter-new-era-as-flick-targets-la-liga-hat-trick)
+- **Real Madrid vs Barça: Tactical Keys to Win LaLiga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/real-madrid-vs-bar%C3%A7a-tactical-keys-to-win-laliga-2026-08-21)
+- **Barcelona UCL Favorites NOW? How Rodri Changes EVERYTHING - Morning Footy**: [Link](https://247sports.com/high-school/washington/video/barcelona-ucl-favorites-now-how-rodri-changes-everything-morning-footy-14270291)
+
+
+### avocat (N/A, Fri, 21 Aug 2026 06:00:00 -0700)
+
+- **Nouvelle loi sur les avocats : ce qui va concrètement changer**: [Link](https://medias24.com/2026/08/21/nouvelle-loi-sur-les-avocats-ce-qui-va-concretement-changer-1742345/)
+- **Les caisses des barreaux passent sous le contrôle de la Cour des comptes**: [Link](https://ledesk.ma/2026/08/21/les-caisses-des-barreaux-passent-sous-le-controle-de-la-cour-des-comptes/)
+- **Avocats: la loi controversée publiée au Bulletin officiel malgré la grève de la profession**: [Link](https://fr.le360.ma/politique/avocats-la-loi-controversee-publiee-au-bulletin-officiel-malgre-la-greve-de-la-profession_AQBU7UGNTBDHJCWTZ7GFUIYTUY/)
+
+
 ### gta leaks (N/A, Fri, 21 Aug 2026 07:00:00 -0700)
 
 - **Take-Two Subpoenas Trove Of Records From Microsoft And Discord As It Hunts For GTA 6 Leaker**: [Link](https://kotaku.com/take-two-subpoenas-microsoft-and-discord-records-related-to-spread-of-gta-6-leaks-2000726633)
