@@ -1,3 +1,10 @@
+### ounahi (N/A, Fri, 21 Aug 2026 00:10:00 -0700)
+
+- **Azzedine Ounahi: three clubs accelerate**: [Link](https://mountakhab.net/en/azzedine-ounahi-three-clubs-accelerate/)
+- **Atletico is Also Among Clubs Racing for Morocco’s Ounahi**: [Link](https://www.moroccoworldnews.com/2026/08/335462/atletico-is-also-among-clubs-racing-for-moroccos-ounahi/)
+- **Morocco star Azzedine Ounahi favors Ajax move as Girona exit looms**: [Link](https://africasoccer.com/morocco-star-azzedine-ounahi-favors-ajax-move-as-girona-exit-looms/)
+
+
 ### حالة الطقس (N/A, Fri, 21 Aug 2026 00:00:00 -0700)
 
 - **موجة حر جديدة تضرب البلاد نهاية الأسبوع.. ارتفاع ملحوظ في درجات الحرارة**: [Link](https://www.maannews.net/news/2167313.html)
