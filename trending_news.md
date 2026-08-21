@@ -1,3 +1,10 @@
+### pièce commémorative (N/A, Fri, 21 Aug 2026 09:20:00 -0700)
+
+- **Bank Al-Maghrib émet une pièce commémorative du 63ème Anniversaire de Sa Majesté le Roi Mohammed VI**: [Link](https://maroc-diplomatique.net/bank-al-maghrib-emet-une-piece-commemorative-du-63eme-anniversaire-de-sa-majeste-le-roi-mohammed-vi/)
+- **BAM émet une pièce commémorative du 63ème Anniversaire de SM le Roi Mohammed VI**: [Link](https://www.leconomiste.com/flash-infos/bam-emet-une-piece-commemorative-du-63eme-anniversaire-de-sm-le-roi-mohammed-vi/)
+- **63ème Anniversaire de Sa Majesté le Roi Mohammed VI**: [Link](https://www.maroc24.com/fr/tag/63%C3%A8me%20Anniversaire%20de%20Sa%20Majest%C3%A9%20le%20Roi%20Mohammed%20VI/)
+
+
 ### مطر (N/A, Fri, 21 Aug 2026 10:10:00 -0700)
 
 - **أمطار رعدية ورياح قوية منتظرة اليوم وغدا**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1527957/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88%D8%BA%D8%AF%D8%A7)
