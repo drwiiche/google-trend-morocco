@@ -1,3 +1,24 @@
+### air algérie (N/A, Fri, 21 Aug 2026 14:20:00 -0700)
+
+- **Air Algérie vient directement chasser sur les terres africaines de Royal Air Maroc**: [Link](https://www.bladi.net/air-algerie-vient-directement-chasser-terres-africaines-royal-air-maroc,123270.html)
+- **Air Algérie ouvre les réservations pour 4 nouvelles destinations internationales**: [Link](https://www.algerie360.com/air-algerie-ouvre-les-reservations-pour-4-nouvelles-destinations-internationales/)
+- **Air Algérie : les réservations ouvertes pour les vols Alger – Berlin dès septembre**: [Link](https://voyagerdz.com/air-algerie-les-reservations-ouvertes-pour-les-vols-alger-berlin-des-septembre/)
+
+
+### nayef aguerd (N/A, Fri, 21 Aug 2026 14:00:00 -0700)
+
+- **OM : Nayef Aguerd opérationnel, Genesio confirme son retour progressif**: [Link](https://fr.hespress.com/485627-om-nayef-aguerd-operationnel-genesio-confirme-son-retour-progressif.html)
+- **Lions de l’Atlas : Nayef Aguerd prêt à retrouver les terrains avec l’OM**: [Link](https://lematin.ma/sports/lions-de-latlas-nayef-aguerd-pret-a-retrouver-les-terrains-avec-lom/361541)
+- **OM: Bruno Genesio s’exprime sur le retour de Nayef Aguerd**: [Link](https://sport.le360.ma/football/ligue-1/om-bruno-genesio-sexprime-sur-le-retour-de-nayef-aguerd_Z65JIKVADRFONG2W4WOKU5J5ZQ/)
+
+
+### europe (N/A, Fri, 21 Aug 2026 13:10:00 -0700)
+
+- **Europe's hottest town says climate change is reshaping daily life**: [Link](https://www.reuters.com/business/environment/europes-hottest-town-says-climate-change-is-reshaping-daily-life-2026-08-21/)
+- **Floridia’s Furnace: A Glimpse of Europe’s Hotter Future**: [Link](https://eutoday.net/floridias-furnace-sicily/)
+- **Licensable picture: Five years on, Sicily’s record-hot town offers glimpse of Europe’s hotter future**: [Link](https://www.reutersconnect.com/item/five-years-on-sicilys-record-hot-town-offers-glimpse-of-europes-hotter-future/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMlAxTkFHQ1lGRw)
+
+
 ### erzurumspor – galatasaray (N/A, Fri, 21 Aug 2026 12:40:00 -0700)
 
 - **Erzurumspor-Galatasaray maçında bu görüntü çok konuşuldu**: [Link](https://www.gazetepusula.net/erzurumspor-galatasaray-macinda-bu-goruntu-cok-konusuldu/393174/)
