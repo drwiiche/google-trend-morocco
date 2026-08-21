@@ -1,3 +1,10 @@
+### livakovic (N/A, Fri, 21 Aug 2026 06:00:00 -0700)
+
+- **Barcelona loanee may have no way back as Deco pushes for new signing**: [Link](https://barcauniversal.com/barcelona-loanee-may-have-no-way-back-as-deco-pushes-for-new-signing/)
+- **Barcelona have a plan for goal: Dominik Livakovic**: [Link](https://onefootball.com/en/news/barcelona-have-a-plan-for-goal-dominik-livakovic-43301221)
+- **Barcelona pursues Fenerbahce's Croatian goalkeeper Livakovic: Report**: [Link](https://www.turkiyetoday.com/sports/barcelona-pursues-fenerbahces-croatian-goalkeeper-livakovic-report-3226492)
+
+
 ### خطبة الجمعة (N/A, Fri, 21 Aug 2026 05:20:00 -0700)
 
 - **"وانسب إلى قدره ما شئت من عظم".. موضوع خطبة الجمعة بمساجد الجمهورية اليوم**: [Link](https://www.youm7.com/story/2026/8/21/%D9%88%D8%A7%D9%86%D8%B3%D8%A8-%D8%A5%D9%84%D9%89-%D9%82%D8%AF%D8%B1%D9%87-%D9%85%D8%A7-%D8%B4%D8%A6%D8%AA-%D9%85%D9%86-%D8%B9%D8%B8%D9%85-%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9/7519080)
