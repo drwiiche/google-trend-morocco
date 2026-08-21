@@ -1,3 +1,17 @@
+### bet365 (N/A, Fri, 21 Aug 2026 12:50:00 -0700)
+
+- **'Brilliant in the basics'**: [Link](https://www.steelers.com/news/brilliant-in-the-basics)
+- **BetMGM bonus code POSTBET: Get up to $1,500 in bonus bets for Jets vs. Steelers**: [Link](https://nypost.com/2026/08/21/betting/betmgm-bonus-code-postbet-get-up-to-1500-in-bonus-bets-for-jets-vs-steelers/)
+- **Best NFL Bet Today on Novig led by the Jets**: [Link](https://ftnfantasy.com/nfl/best-nfl-bet-today-on-novig-led-by-the-jets)
+
+
+### betis vs real sociedad (N/A, Fri, 21 Aug 2026 12:40:00 -0700)
+
+- **Real Betis vs Real Sociedad – Prediction, Where to Watch, Kick-off Time and Lineups 21-08**: [Link](https://oddsscanner.com/predictions/football/real-betis-x-real-sociedad-21-08-2026)
+- **Licensable video: Matarazzo considers Real Sociedad “ready” for its league debut against Real Betis**: [Link](https://www.reutersconnect.com/item/matarazzo-considers-real-sociedad-ready-for-its-league-debut-against-real-betis/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzU1MDIxMTg4MDA3MDAx)
+- **Real Betis vs Real Sociedad: Lineups, Prediction, Betting Tips & Odds**: [Link](https://www.whoscored.com/articles/oatyajOkrUOVm95zGnup3w/show/20260821-real-betis-vs-real-sociedad-prediction-1787310371)
+
+
 ### محكمة جنائية دولية (N/A, Fri, 21 Aug 2026 12:30:00 -0700)
 
 - **المحكمة الجنائية الدولية تفصل تحقيق طالبان عن القضية الأمريكية ومصير الأفغانيات غامض**: [Link](https://arabic.euronews.com/2026/08/20/icc-separates-taliban-investigation-from-us-case-as-the-future-of-afghan-women-remains-unc)
