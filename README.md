@@ -1,3 +1,31 @@
+### betis – real sociedad (N/A, Fri, 21 Aug 2026 11:20:00 -0700)
+
+- **Betis - Real Sociedad, en directo | Última hora de LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/betis-real-sociedad/2026/08/21/01_0101_20260821_185_188-directo.html)
+- **Silencio, están jugando los campeones de la Copa del Rey**: [Link](https://onefootball.com/es/noticias/silencio-estan-jugando-los-campeones-de-la-copa-del-rey-43310718)
+- **13:00H | 21 AGOSTO 2026 | DEPORTES COPE EN SEVILLA**: [Link](https://www.cope.es/emisoras/andalucia/sevilla-provincia/sevilla/podcast/episodios/13-00h-21-agosto-2026-deportes-cope-sevilla-20260821_3423170.html)
+
+
+### arsenal vs coventry (N/A, Fri, 21 Aug 2026 11:20:00 -0700)
+
+- **Arsenal vs Coventry City LIVE: Premier League build-up, team news, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cmy0jjenxx24t)
+- **Arteta's update on Rice, Saka and Guimaraes**: [Link](https://www.arsenal.com/news/artetas-update-on-rice-saka-and-guimaraes-aynNJ9I4lir5)
+- **Bruno Guimaraes faces weeks on the sidelines as Arsenal suffer major injury blow at the start of the season**: [Link](https://www.goal.com/en/lists/bruno-guimaraes-faces-weeks-sidelines-arsenal-suffer-major-injury-start-season/blt94b926204cd5ad57)
+
+
+### córdoba – girona (N/A, Fri, 21 Aug 2026 11:20:00 -0700)
+
+- **Córdoba vs Girona de Segunda División: horario y dónde ver hoy por TV y online el partido de LaLiga Hypermotion a través de DAZN**: [Link](https://www.dazn.com/es-ES/news/f%C3%BAtbol/cordoba-vs-girona-segunda-division-horario-donde-ver-hoy-tv-online-partido-laliga-hypermotion-a-traves-dazn/yb3xsfs3n6s510mqy2sghtpjx)
+- **El Córdoba CF abre la temporada en El Arcángel con el reto de asentar su proyecto ante un Girona herido**: [Link](https://www.abc.es/espana/andalucia/cordoba/cordoba-cf/cordoba-abre-temporada-arcangel-reto-sumar-primeros-20260820094809-nts.html)
+- **El Córdoba quiere estrenar su casillero ante un caído de Primera**: [Link](https://www.eldebate.com/espana/la-voz-de-cordoba/deportes/20260821/cordoba-quiere-estrenar-casillero-ante-caido-primera_451085.html)
+
+
+### marseille – strasbourg (N/A, Fri, 21 Aug 2026 11:10:00 -0700)
+
+- **Strasbourg, un nouveau Chelsea toujours moins clinquant**: [Link](https://www.eurosport.fr/football/transferts/2026-2027/le-racing-demarre-sa-saison-face-a-lolympique-de-marseille-vendredi-soir-avec-des-incertitudes-a-tous-les-etages_sto23329706/story.shtml)
+- **OM - Strasbourg : les compositions probables**: [Link](https://www.footmercato.net/a5787955562703212029-om-strasbourg-les-compositions-probables)
+- **OM/Strasbourg - Le Onze de départ de Genesio sans Aguerd mais avec Kondogbia**: [Link](https://www.lephoceen.fr/infos-om/saison/om-strasbourg-le-onze-de-depart-de-genesio-sans-aguerd-mais-avec-kondogbia-237544)
+
+
 ### pièce commémorative (N/A, Fri, 21 Aug 2026 09:20:00 -0700)
 
 - **Bank Al-Maghrib émet une pièce commémorative du 63ème Anniversaire de Sa Majesté le Roi Mohammed VI**: [Link](https://maroc-diplomatique.net/bank-al-maghrib-emet-une-piece-commemorative-du-63eme-anniversaire-de-sa-majeste-le-roi-mohammed-vi/)
