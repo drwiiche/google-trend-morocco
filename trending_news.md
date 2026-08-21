@@ -1,3 +1,43 @@
+### مدير أمن (N/A, Fri, 21 Aug 2026 02:30:00 -0700)
+
+- **وفاة مدير الأمن العمومي الحايل الزيتوني**: [Link](https://www.hespress.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%85%D9%88%D9%85%D9%8A-%D8%A7%D9%84%D8%AD%D8%A7%D9%8A%D9%84-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88-1794837.html)
+- **وفاة الزيتوني الحايل والي امن مراكش السابق**: [Link](https://marrakechpost.com/2026/08/20/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86%D9%8A-%D8%A7%D9%84%D8%AD%D8%A7%D9%8A%D9%84-%D9%88%D8%A7%D9%84%D9%8A-%D8%A7%D9%85%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D8%A7%D9%84/)
+- **رحيل والي الأمن الزيتوني الحايل مدير الأمن العمومي**: [Link](https://le12.ma/%D8%B1%D8%AD%D9%8A%D9%84-%D9%88%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86%D9%8A-%D8%A7%D9%84%D8%AD%D8%A7%D9%8A%D9%84-%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7/)
+
+
+### avion militaire (N/A, Fri, 21 Aug 2026 02:30:00 -0700)
+
+- **Les Dassault Aviation Rafale grecs sous les menaces de la Turquie !**: [Link](https://www.avionslegendaires.net/2026/08/actu/les-dassault-aviation-rafale-grecs-sous-les-menaces-de-la-turquie/)
+- **Reprise notable des incursions aériennes turques en Mer Egée**: [Link](https://www.lorientlejour.com/article/1544442/reprise-notable-des-incursions-aeriennes-turques-en-mer-egee.html)
+- **Tensions en Égée : les Rafale grecs en alerte après 25 violations de F-16 turcs armés**: [Link](https://lanouvelletribune.info/2026/08/tensions-en-egee-les-rafale-grecs-en-alerte-apres-25-violations-de-f-16-turcs-armes/)
+
+
+### محمد صلاح (N/A, Fri, 21 Aug 2026 02:10:00 -0700)
+
+- **بالفيديو: صلاح يقترب من توديع الدوري الأوروبي مع طرابزون**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D9%88%D8%AF%D9%8A%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%85%D8%B9-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86/blt6b61bace90b558c8)
+- **فيديو.. مشجع بالزي الفرعوني يدعم صلاح في أولى مبارياته الأوروبية**: [Link](https://www.aljazeera.net/sport/2026/8/21/%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D9%85%D8%B4%D8%AC%D8%B9-%D8%B2%D9%8A-%D9%81%D8%B1%D8%B9%D9%88%D9%86%D9%8A-%D8%AC%D9%85%D9%84-%D8%B5%D9%84%D8%A7%D8%AD)
+- **موندو ديبورتيفو: بداية باهتة لصلاح في ظهوره الأوروبي الأول مع طرابزون سبور**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=21082026&id=5ab320e6-3942-4f2a-a9af-1733b8bb9695)
+
+
+### eau (N/A, Fri, 21 Aug 2026 01:30:00 -0700)
+
+- **[VIDEO] Des contrôles renforcés de l'usage de l'eau en Vendée - Actualités locales - Actualités**: [Link](https://www.vendee.gouv.fr/Actualites/Actualites-locales/VIDEO-Des-controles-renforces-de-l-usage-de-l-eau-en-Vendee)
+- **"Une douche, c'est quatre minutes" : sur le littoral vendéen, il sensibilise aux bons gestes pour économiser de l'eau**: [Link](https://www.ici.fr/emissions/l-info-d-ici-ici-loire-ocean/une-douche-c-est-quatre-minutes-sur-le-littoral-vendeen-il-sensibilise-aux-bons-gestes-pour-economiser-de-l-eau-3960533)
+- **Dans l’Yonne, les contrôles se multiplient face à la sécheresse**: [Link](https://www.lyonne.fr/seignelay-89250/actualites/dans-lyonne-les-controles-se-multiplient-face-a-la-secheresse_15034496/)
+
+
+### polizia di stato (N/A, Fri, 21 Aug 2026 00:20:00 -0700)
+
+
+
+
+### حالة الطقس اليوم (N/A, Fri, 21 Aug 2026 00:00:00 -0700)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-87-1794785.html)
+- **زخات رعدية وبَرَد ورياح قوية.. الأرصاد تدعو إلى الحيطة والحذر**: [Link](https://www.ahdath.info/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%A8%D9%8E%D8%B1%D9%8E%D8%AF-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA/)
+- **الأرصاد تحذر: أمطار رعدية وبَرَد وموجة حر تصل إلى 48 درجة**: [Link](https://ar.telquel.ma/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B9%D8%A7%D8%B5%D9%81%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A3%D8%B1%D8%A8%D8%B9%D8%A9-%D8%A3%D9%82%D8%A7%D9%84%D9%8A/)
+
+
 ### transavia (N/A, Fri, 21 Aug 2026 00:30:00 -0700)
 
 - **Transavia transforms Brussels Airport into a "full-fledged home base"**: [Link](https://www.belganewsagency.eu/press-releases/35638/)
