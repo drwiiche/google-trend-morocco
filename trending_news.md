@@ -1,3 +1,10 @@
+### مصطفى الدرقاوي (N/A, Fri, 21 Aug 2026 07:10:00 -0700)
+
+- **رحيل الدرقاوي.. مخرج "أحداث بلا دلالة"**: [Link](https://www.hespress.com/%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D9%82%D8%A7%D9%88%D9%8A-%D9%85%D8%AE%D8%B1%D8%AC-%D8%A3%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A8%D9%84%D8%A7-%D8%AF%D9%84%D8%A7%D9%84%D8%A9-1794897.html)
+- **وفاة المخرج مصطفى الدرقاوي عن عمر يناهز 82 سنة بعد مسيرة سينمائية حافلة**: [Link](https://2m.ma/ar/news/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%AE%D8%B1%D8%AC-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D8%B1%D9%82%D8%A7%D9%88%D9%8A-%D8%B9%D9%86-%D8%B9%D9%85%D8%B1-%D9%8A%D9%86%D8%A7%D9%87%D8%B2-82-%D8%B3%D9%86%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%B3%D9%8A%D9%86%D9%85%D8%A7%D8%A6%D9%8A%D8%A9-20260821)
+- **رحيل المخرج السينمائي مصطفى الدرقاوي أحد رواد السينما في المغرب - تليكسبريس**: [Link](https://telexpresse.com/493086.html)
+
+
 ### f1 (N/A, Fri, 21 Aug 2026 05:40:00 -0700)
 
 - **Antonelli leads Norris and Russell in Dutch GP FP1**: [Link](https://www.formula1.com/en/latest/article/fp1-antonelli-leads-norris-and-russell-in-sole-practice-session-ahead-of-dutch-gp.6UhqlSxsUab9wkQWyJbuPo)
