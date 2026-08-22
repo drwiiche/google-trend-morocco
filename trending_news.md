@@ -1,3 +1,24 @@
+### بطيخ (N/A, Sat, 22 Aug 2026 06:10:00 -0700)
+
+- **أكبر 10 دول تنتج وتصدر البطيخ.. الجزائر والمغرب في المقدمة عربيا**: [Link](https://www.aljazeera.net/ebusiness/2026/8/22/watermelons-algeria-morocco)
+- **203 آلاف طن من المشمش.. الجزائر بين أكبر 5 منتجين في العالم**: [Link](https://tadamsanews.dz/%D9%85%D8%B4%D9%85%D8%B4-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1/)
+- **الجزائر في المقدمة عربيا من حيث انتاج البطيخ ( الدلاع)**: [Link](https://barakanews.dz/posts/algzayr-fy-almkdm-aarbya-mn-hyth-antag-albtykh-aldlaaa)
+
+
+### pl (N/A, Sat, 22 Aug 2026 05:30:00 -0700)
+
+- **Litewska publicystka o wizerunku Polski: wrażenie robi modernizacja armii i rozwój infrastruktury**: [Link](https://www.wnp.pl/rynki/litewska-publicystka-o-wizerunku-polski-wrazenie-robi-modernizacja-armii-i-rozwoj-infrastruktury,1092080.html)
+- **Litwini coraz lepiej oceniają Polskę. Szczególne wrażenie robią armia i infrastruktura**: [Link](https://wilno.tvp.pl/94978884/litwini-coraz-lepiej-oceniaja-polske-szczegolne-wrazenie-robia-armia-i-infrastruktura)
+- **Powiedziała, co Litwini myślą o Polsce. "Przekonują się na własne oczy"**: [Link](https://biznes.interia.pl/gospodarka/news-litwini-zachwyceni-polska-zrobila-w-tej-dziedzinie-ogromny-k,nId,23532575)
+
+
+### bradley barcola (N/A, Sat, 22 Aug 2026 05:20:00 -0700)
+
+- **Liverpool preparing HUGE £155m double move for PSG pair as Iraola makes Gakpo decision**: [Link](https://www.teamtalk.com/liverpool/bradley-barcola-transfer-news-liverpool-ibrahim-mbaye-double-deal)
+- **Liverpool step up pursuit of double signing with one player already agreeing terms**: [Link](https://www.caughtoffside.com/2026/08/22/liverpool-step-up-pursuit-of-double-signing-with-one-player-already-agreeing-terms/)
+- **Liverpool handed major transfer blow with days remaining in transfer window**: [Link](https://www.sportbible.com/football/transfer-news/liverpool-ibrahim-mbaye-bradley-barcola-transfer-window-psg-819447-20260822)
+
+
 ### hull city (N/A, Sat, 22 Aug 2026 06:00:00 -0700)
 
 - **Hull City - MU: Başlangıç ​​kadroları ve canlı yayın bağlantıları**: [Link](https://www.vietnam.vn/tr/hull-city-vs-mu-doi-hinh-xuat-phat-va-link-xem-xem-truc-tiep)
