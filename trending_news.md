@@ -1,3 +1,10 @@
+### everton – crystal palace (N/A, Sat, 22 Aug 2026 06:40:00 -0700)
+
+- **Norgaard + Garner: Everton injury latest for FPL Gameweek 1**: [Link](https://www.fantasyfootballscout.co.uk/2026/08/21/norgaard-garner-everton-injury-latest-for-fpl-gameweek-1/)
+- **Where To Go For Everton v Crystal Palace Coverage And Highlights**: [Link](https://www.evertonfc.com/news/2026/august/21/where-to-go-for-everton-v-crystal-palace-coverage-and-highlights/)
+- **Premier League - Everton v Crystal Palace**: [Link](https://www.reutersconnect.com/item/premier-league-everton-v-crystal-palace/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOE0wWkZPR0o)
+
+
 ### بطيخ (N/A, Sat, 22 Aug 2026 06:10:00 -0700)
 
 - **أكبر 10 دول تنتج وتصدر البطيخ.. الجزائر والمغرب في المقدمة عربيا**: [Link](https://www.aljazeera.net/ebusiness/2026/8/22/watermelons-algeria-morocco)
