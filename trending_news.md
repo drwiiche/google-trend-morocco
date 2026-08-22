@@ -1,3 +1,10 @@
+### f1 (N/A, Sat, 22 Aug 2026 03:10:00 -0700)
+
+- **Antonelli leads Norris and Russell in Dutch GP FP1**: [Link](https://www.formula1.com/en/latest/article/fp1-antonelli-leads-norris-and-russell-in-sole-practice-session-ahead-of-dutch-gp.6UhqlSxsUab9wkQWyJbuPo)
+- **Max Verstappen issues 'a shame' response ahead of home grand prix departure**: [Link](https://racingnews365.com/max-verstappen-issues-shame-response-ahead-of-home-grand-prix-departure)
+- **Kimi Antonelli quickest in sole Dutch GP practice**: [Link](https://www.thenews.pk/print/1433252-kimi-antonelli-quickest-in-sole-dutch-gp-practice)
+
+
 ### تأشيرة (N/A, Sat, 22 Aug 2026 02:40:00 -0700)
 
 - **القضاء الأمريكي يُطيح بسياسة ترمب لتقييد تأشيرات الهجرة لمواطني 75 دولة**: [Link](https://www.aljazeera.net/news/2026/8/22/%D9%82%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9)
