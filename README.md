@@ -1,3 +1,10 @@
+### carolyn rodrigues (N/A, Sat, 22 Aug 2026 16:20:00 -0700)
+
+- **UN Secretary-General poll cuts the chaff**: [Link](https://www.economist.com/the-world-in-brief/2026/08/22/0a1ca598-4bf4-4e1d-bfe0-62b298d8c4b3)
+- **Who are the eight candidates running to succeed Antonio Guterres as UN chief?**: [Link](https://www.france24.com/en/who-are-the-eight-candidates-running-to-succeed-antonio-guterres-as-un-chief)
+- **Rodrigues Birkett and Otunnu Show Biggest Gains in UN SecGen Poll**: [Link](https://passblue.com/2026/08/21/rodrigues-birkett-and-otunnu-show-biggest-gains-in-un-secgen-poll/)
+
+
 ### inter miami – toronto (N/A, Sat, 22 Aug 2026 16:00:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Hosts Toronto FC on Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-toronto-fc-on-saturday)
