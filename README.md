@@ -1,3 +1,24 @@
+### yan diomandé (N/A, Sat, 22 Aug 2026 14:10:00 -0700)
+
+- **Le choix fort de José Mourinho avec Yan Diomandé, le Bayern va protéger Jamal Musiala**: [Link](https://www.footmercato.net/a6133744568618679271-le-choix-fort-de-jose-mourinho-avec-yan-diomande-le-bayern-va-proteger-jamal-musiala)
+- **Real Madrid, PSG : Leipzig fait finalement grimper l’addition à 140 M€ !**: [Link](https://www.butfootballclub.fr/1692232-real-madrid-psg-leipzig-fait-finalement-grimper-laddition-a-140-me/)
+- **« Lamine est bien meilleur » : le défi auquel est confronté Yan Diomande, la star du Real Madrid à 140 M€, alors que l’ailier adolescent fait face à des comparaisons inévitables avec le prodige du Barça Yamal**: [Link](https://www.goal.com/fr/listes/lamine-est-bien-meilleur-le-defi-auquel-est-confronte-yan-diomande-la-star-du-real-madrid-a-140-meur-alors-que-l-ailier-adolescent-fait-face-a-des-comparaisons-inevitables-avec-le-prodige-du-barca-yamal/blt51ff9b23c330babb)
+
+
+### محمد أوزين (N/A, Sat, 22 Aug 2026 14:10:00 -0700)
+
+- **أوزين يعد المغاربة بتنزيل برنامج الكراء المفضي إلى تملك العقار السكني**: [Link](https://www.hespress.com/%D8%A3%D9%88%D8%B2%D9%8A%D9%86-%D9%8A%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A8%D8%AA%D9%86%D8%B2%D9%8A%D9%84-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D9%83%D8%B1-1795419.html)
+- **من مراكش ... محمد أوزين يستعرض مرتكزات "التعاقد الحركي" ويعلن وكلاء لوائح الحزب**: [Link](https://2m.ma/ar/news/%D8%AA%D8%AD%D8%AA-%D8%B4%D8%B9%D8%A7%D8%B1-Let-s-Talk-%D9%85%D8%AD%D9%85%D8%AF-%D8%A3%D9%88%D8%B2%D9%8A%D9%86-%D9%8A%D8%B3%D8%AA%D8%B9%D8%B1%D8%B6-%D9%85%D8%B1%D8%AA%D9%83%D8%B2%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D8%A7%D9%84%D8%AD%D8%B1%D9%83%D9%8A-20260822)
+- **الحركة الشعبية تهز المشهد السياسي بمراكش.. حضور جماهيري قوي يربك الحسابات الانتخابية**: [Link](https://www.bayanemarrakech.com/%D8%A7%D9%84%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D9%8A%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A8%D9%85%D8%B1/)
+
+
+### georgina rodriguez (N/A, Sat, 22 Aug 2026 14:00:00 -0700)
+
+- **After marrying Cristiano Ronaldo, Georgina Rodríguez has made a major family decision**: [Link](https://en.as.com/entertainment/after-marrying-cristiano-ronaldo-georgina-rodriguez-has-made-a-major-family-decision-f202608-n/)
+- **Georgina Rodríguez makes major decision involving Cristiano Ronaldo’s children after wedding**: [Link](https://www.hola.com/us/celebrities/20260821919404/georgina-rodriguez-major-decision-cristiano-ronaldo-children-after-wedding/)
+- **Georgina Rodríguez adopts Cristiano Ronaldo's 3 children - 1 week after marrying footballer**: [Link](https://www.hellomagazine.com/celebrities/919418/georgina-rodriguez-adopts-cristiano-ronaldo-children-after-marriage/)
+
+
 ### vinicius júnior (N/A, Sat, 22 Aug 2026 13:50:00 -0700)
 
 - **Vinícius incendeia o estádio do Espanyol: provocação à torcida e confusão que ameaça o Real Madrid**: [Link](https://www.goal.com/br/not%C3%ADcias/vinicius-incendeia-o-estadio-do-espanyol-provocacao-a-torcida-e-confusao-que-ameaca-o-real-madrid/blt7b7964e2fe3ef4df)
