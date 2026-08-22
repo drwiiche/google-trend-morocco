@@ -1,3 +1,31 @@
+### مباريات اليوم مباشر (N/A, Sat, 22 Aug 2026 12:50:00 -0700)
+
+- **جدول مباريات اليوم السبت 22 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-22-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltefa4ecccd6b85d40)
+- **ابرز الاحداث الرياضية ليوم السبت في 22 اب 2026**: [Link](https://www.elsport.com/news/show/836651/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-2026)
+- **السبت الممتاز:٤مباريات فى الدورى وسيتي ضدمانشستريونايتدوإسبانيول يواجه الريال**: [Link](https://www.maspero.eg/sport/2026/08/22/982542/%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2%D9%A4%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D9%88%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B6%D8%AF%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84)
+
+
+### real madrid match (N/A, Sat, 22 Aug 2026 12:30:00 -0700)
+
+- **Suivez Espanyol Barcelone - Real Madrid En direct - Liga - 2e journée**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-espanyol-real-madrid_mtc21891448/live-commentary.shtml)
+- **Espanyol - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a7477644808879887209-espanyol-real-madrid-les-compositions-officielles)
+- **Brahim Díaz convoqué pour les débuts de Mourinho**: [Link](https://mountakhab.net/brahim-diaz-convoque-pour-les-debuts-de-mourinho/)
+
+
+### laliga (N/A, Sat, 22 Aug 2026 12:10:00 -0700)
+
+- **Preview: Valencia vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/valencia/preview/valencia-vs-celta-vigo-prediction-team-news-lineups_603378.html)
+- **Licensable picture: Soccer 2026: LaLiga EA Sports: Valencia CF - Celta Vigo**: [Link](https://www.reutersconnect.com/item/soccer-2026-laliga-ea-sports-valencia-cf-celta-vigo/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBFSko1U0c)
+- **Valencia v Celta Vigo Match Stats, Hit Rates & Bet Builder Data**: [Link](https://andysbetclub.co.uk/football-fixtures/valencia-v-celta-vigo-20260822/stats/team/)
+
+
+### real vs (N/A, Sat, 22 Aug 2026 12:00:00 -0700)
+
+- **Espanyol vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmwyjzndv4xnt)
+- **How to Watch Espanyol vs. Real Madrid on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-espanyol-vs-real-madrid-tv-live-stream-8-22-26)
+- **Espanyol vs. Real Madrid LIVE: LaLiga updates as Bellingham heads Mourinho's side in front**: [Link](https://www.espn.com/soccer/story/_/id/49692327/espanyol-real-madrid-live-laliga-latest-updates-commentary-score-result-jose-mourinho)
+
+
 ### yallakora (N/A, Sat, 22 Aug 2026 12:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة الأهلي والشرقية إنبي في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9-%D8%A7%D9%95%D9%86%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt914e30f9e36476b0)
