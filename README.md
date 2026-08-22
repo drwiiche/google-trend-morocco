@@ -1,3 +1,31 @@
+### brentford – tottenham (N/A, Sat, 22 Aug 2026 09:00:00 -0700)
+
+- **Team news | Pedro Porro, van de Ven out of opener at Brentford**: [Link](https://www.tottenhamhotspur.com/news/1086430/team-news-porro-van-de-ven-out-of-opener-at-brentford)
+- **Licensable picture: UK: Premier League: Brentford v Tottenham Hotspur**: [Link](https://www.reutersconnect.com/item/uk-premier-league-brentford-v-tottenham-hotspur/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBRTlVRQ1o)
+- **Brentford v Tottenham Hotspur confirmed team news: Sangaré starts for Bees**: [Link](https://onefootball.com/en/news/brentford-v-tottenham-hotspur-confirmed-team-news-sangare-starts-for-bees-43319868)
+
+
+### inter – monza (N/A, Sat, 22 Aug 2026 09:00:00 -0700)
+
+- **Licensable picture: Serie A - Inter Milan v Monza**: [Link](https://www.reutersconnect.com/item/serie-a-inter-milan-v-monza/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOE0xNklLVTk)
+- **Chivu on Lautaro: 'The transfer market is always a bastard'**: [Link](https://www.gazzetta.it/en/football/teams/inter/news/22-08-2026/chivu-locks-inter-s-new-project-as-lautaro-remains.shtml)
+- **'We're starting from scratch, knowing we're still the team to beat' says Inter's Chivu**: [Link](https://www.ansa.it/english/news/sports/2026/08/21/were-starting-from-scratch-knowing-were-still-the-team-to-beat_defa5e1e-1fab-4daa-a569-796002d509bd.html)
+
+
+### loi avocats maroc (N/A, Sat, 22 Aug 2026 08:00:00 -0700)
+
+- **La loi sur les avocats promulguée et publiée au B.O. - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/08/20/la-loi-sur-les-avocats-promulguee-et-publiee-au-b-o-1742253/)
+- **Revue du web. Réforme de la profession d’avocat: le bras de fer se poursuit malgré l’officialisation de la loi**: [Link](https://fr.le360.ma/societe/revue-du-web-reforme-de-la-profession-davocat-le-bras-de-fer-se-poursuit-malgre-lofficialisation-de_FC77O2SFMNAMPHOPRB754GPKYE/)
+- **Des cabinets d’avocats étrangers pourront être autorisés à exercer au Maroc**: [Link](https://ledesk.ma/2026/08/21/des-cabinets-davocats-etrangers-pourront-etre-autorises-a-exercer-au-maroc/)
+
+
+### clément vandenkerckhove (N/A, Sat, 22 Aug 2026 08:00:00 -0700)
+
+- **Belgian car salesman becomes prince after DNA test proves royal parentage**: [Link](https://www.cnn.com/2026/08/22/europe/prince-belgium-secret-son-scli-intl)
+- **A Prince at 26: Once-Secret Son of Belgian Royal Gains Legal Recognition**: [Link](https://www.nytimes.com/2026/08/20/world/europe/prince-laurent-belgium-clement-son.html)
+- **Car salesman becomes Belgian prince at 26 after being recognized as secret son of king’s brother**: [Link](https://nypost.com/2026/08/21/world-news/belgiums-prince-laurent-recognizes-car-salesman-clement-vandenkerckhove-as-secret-son/)
+
+
 ### athletic - sevilla (N/A, Sat, 22 Aug 2026 08:30:00 -0700)
 
 - **Athletic Club - Sevilla, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/athletic-club-sevilla-en-directo-laliga-ea-sports-hoy-en-vivo-f202608-d/)
