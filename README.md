@@ -1,3 +1,17 @@
+### مباراة اليوم (N/A, Sat, 22 Aug 2026 12:20:00 -0700)
+
+- **جدول مباريات اليوم السبت 22 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-22-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltefa4ecccd6b85d40)
+- **ابرز الاحداث الرياضية ليوم السبت في 22 اب 2026**: [Link](https://www.elsport.com/news/show/836651/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-2026)
+- **السبت الممتاز:٤مباريات فى الدورى وسيتي ضدمانشستريونايتدوإسبانيول يواجه الريال**: [Link](https://www.maspero.eg/sport/2026/08/22/982542/%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2%D9%A4%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D9%88%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B6%D8%AF%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84)
+
+
+### chadi riad (N/A, Sat, 22 Aug 2026 11:20:00 -0700)
+
+- **La rodilla de Chadi Riad vuelve a encender todas las alarmas**: [Link](https://www.ultimahora.es/deportes/futbol/2026/08/22/2694003/rodilla-chadi-riad-vuelve-encender-todas-alarmas.html)
+- **El marroquí Shadi Riyad abandona el partido del Crysta…**: [Link](https://www.ysscores.com/es/news/14025115/el-marroqu%C3%AD-shadi-riyad-abandona-el-partido-del-crystal-palace-llorando-tras-una-grave-lesi%C3%B3n)
+- **إصابة مقلقة لشادي رياض مع انطلاق الدوري الإنجليزي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D9%82%D9%84%D9%82%D8%A9-%D9%84%D8%B4%D8%A7%D8%AF%D9%8A-%D8%B1%D9%8A%D8%A7%D8%B6-%D9%85%D8%B9-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/24381)
+
+
 ### koora (N/A, Sat, 22 Aug 2026 11:50:00 -0700)
 
 - **فابينيو يقترب من مزاملة محمد صلاح فى طرابزون سبور التركى**: [Link](https://www.youm7.com/story/2026/8/22/%D9%81%D8%A7%D8%A8%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%85%D8%B2%D8%A7%D9%85%D9%84%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%81%D9%89-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D8%B3%D8%A8%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%89/7521479)
