@@ -1,3 +1,38 @@
+### ismael saibari (N/A, Sat, 22 Aug 2026 13:30:00 -0700)
+
+- **Bayern: Kompany promises an important role for Saibari**: [Link](https://mountakhab.net/en/bayern-kompany-promises-an-important-role-for-saibari/)
+- **German Super Cup: Bensebaini in the starting line-up, Chibani on the bench, and a surprise choice in Musiala's place**: [Link](https://www.goal.com/en/news/german-super-cup-ben-seghir-starts-and-chebbout-on-the-bench-with-a-surprise-choice-in-musiala-s-position/blt8e96cc09a5de48cf)
+- **Bayern Munich captain impressed by Ismael Saibari**: [Link](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/242785/bayern-munich-captain-impressed-by-ismael-saibari)
+
+
+### حسام حسن (N/A, Sat, 22 Aug 2026 13:20:00 -0700)
+
+- **بعد انفصالها عن حسام حسن.. ابنة مدرب منتخب مصر تدعم والدتها برسالة مؤثرة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/21/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84%D9%87%D8%A7-%D8%B9%D9%86-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D8%A7%D8%A8%D9%86%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%AA%D8%AF%D8%B9%D9%85-%D9%88%D8%A7%D9%84%D8%AF%D8%AA%D9%87%D8%A7-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-)
+- **بعد مشاجرتها مع زوجته الثانية.. حسام حسن يطلق زوجته الأولى رسمياً**: [Link](https://ar.hibapress.com/details-749994.html)
+- **حسام حسن يشعل الإعلام الإسباني.. قصة مصرية تتجاوز الحدود**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A--%D9%82%D8%B5%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF/blt67950bc981915bc4)
+
+
+### مالكوم (N/A, Sat, 22 Aug 2026 13:10:00 -0700)
+
+- **ياسين بونو يودع مالكوم برسالة مؤثرة.. ماذا قال؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D9%88%D8%AF%D8%B9-%D9%85%D8%A7%D9%84%D9%83%D9%88%D9%85-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D9%88%D9%94%D8%AB%D8%B1%D8%A9--%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84/bltbb81c790e15b519f)
+- **ياسين بونو يودع مالكوم فيليب برسالة مؤثرة بعد رحيله عن الهلال**: [Link](https://www.alyaum.com/articles/6679213/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D9%88%D8%AF%D8%B9-%D9%85%D8%A7%D9%84%D9%83%D9%88%D9%85-%D9%81%D9%8A%D9%84%D9%8A%D8%A8-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D8%B9%D9%86-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84)
+- **الجزيرة الإماراتي يتعاقد مع البرازيلي مالكوم**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84/)
+
+
+### bet365 (N/A, Sat, 22 Aug 2026 13:10:00 -0700)
+
+- **bet365 Bonus Code: $150 in Bonus Bets Win or Lose**: [Link](https://www.rotowire.com/news/bet365-bonus-code-bet-10-get-150-win-or-lose-81-129446)
+- **DraftKings Promo Code: Claim $150 Prediction Bonus for Jets vs. Steelers**: [Link](https://www.fantasylabs.com/articles/draftkings-promo-code-claim-150-prediction-bonus-for-jets-vs-steelers/)
+- **bet365 Bonus Code GOALBET: Get $150 in Bonuses For 49ers vs Chargers, NFL Preseason**: [Link](https://www.goal.com/en-us/betting/news/bet365-bonus-code-goalbet-get-150-bonuses-49ers-vs-chargers-nfl-preseason-8-20/A%3Ablt5a3fecafb9f59473)
+
+
+### al-ahli saudi – abha (N/A, Sat, 22 Aug 2026 12:20:00 -0700)
+
+- **Al-Ahli vs Abha match lineup | Saudi Pro League · 22 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5970097/Al-Ahli-SFC-vs-Abha-Club)
+- **Video: eight minutes are enough as Ivan Toney sets Abha's net alight**: [Link](https://www.goal.com/en/news/video-eight-minutes-are-enough-ivan-toney-burns-the-abha-net/blt96cdb1b84360cbe7)
+- **Video: With Toney's hat-trick, Al-Ahli close in on Al-Hilal and Al-Nassr at the top of the Roshn League**: [Link](https://www.livescore.com/en/news/football/more/video-with-toneys-hat-trick-al-ahli-close-in-on-al-hilal-and-al-nassr-at-the-top-of-the-roshn-league-goal/)
+
+
 ### مباريات اليوم مباشر (N/A, Sat, 22 Aug 2026 12:50:00 -0700)
 
 - **جدول مباريات اليوم السبت 22 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-22-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltefa4ecccd6b85d40)
