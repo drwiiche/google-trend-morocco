@@ -1,3 +1,17 @@
+### inter miami – toronto (N/A, Sat, 22 Aug 2026 16:00:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Hosts Toronto FC on Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-toronto-fc-on-saturday)
+- **Soccer Picks: Messi, Inter Miami Stand in the Way of Toronto FC’s Playoff Aspirations**: [Link](https://blog.betway.com/ca/soccer/soccer-picks-messi-inter-miami-stand-in-the-way-of-toronto-fcs-playoff-aspirations/)
+- **Predicted lineups for Inter Miami vs Toronto FC today in 2026 MLS Matchday 22**: [Link](https://bolavip.com/en/soccer/predicted-lineups-for-inter-miami-vs-toronto-fc-today-in-2026-mls-matchday-22)
+
+
+### رامي بن سبعيني (N/A, Sat, 22 Aug 2026 15:40:00 -0700)
+
+- **فيديو: بمشاركة الصيباري.. بايرن ميونخ بطلًا للسوبر الألماني على حساب دورتموند**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A--%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A8%D8%B7%D9%84%D9%8B%D8%A7-%D9%84%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF/bltf6a8f5c3b6b8d575)
+- **بايرن يهزم دورتموند ويتوج بكأس السوبر**: [Link](https://www.aljazeera.net/sport/2026/8/22/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%88%D9%8A%D8%AA%D9%88%D8%AC-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1)
+- **عين على الحكم | بطاقة حمراء تشعل كلاسيكر السوبر الألماني.. تهور بن سبعيني أمام صيباري يفسد انتفاضة دورتموند!**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A8%D9%86-%D8%B3%D8%A8%D8%B9%D9%8A%D9%86%D9%8A-%D9%88%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A--%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%AA%D8%B4%D8%B9%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%81%D9%8A-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D8%B1-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A/blta70877a9a6cd0684)
+
+
 ### chine (N/A, Sat, 22 Aug 2026 15:50:00 -0700)
 
 - **Pour les stationner, il faudrait un parking de 87 km2 : la Chine annonce son plus gros rappel automobile**: [Link](https://www.presse-citron.net/pour-les-stationner-il-faudrait-un-parking-de-87-km2-la-chine-annonce-son-plus-gros-rappel-automobile/)
