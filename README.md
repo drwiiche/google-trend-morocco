@@ -1,3 +1,10 @@
+### hull city (N/A, Sat, 22 Aug 2026 06:00:00 -0700)
+
+- **Hull City - MU: Başlangıç ​​kadroları ve canlı yayın bağlantıları**: [Link](https://www.vietnam.vn/tr/hull-city-vs-mu-doi-hinh-xuat-phat-va-link-xem-xem-truc-tiep)
+- **Acun Ilıcalı, transfer için sayı verdi!**: [Link](https://www.sporx.com/acun-ilicali-transfer-icin-sayi-verdi-SXHBQ1173281SXQ)
+- **Premier Lig'de heyecan başladı: Günün programında hangi maçlar var?**: [Link](https://www.birgun.net/haber/premier-lig-de-heyecan-basladi-gunun-programinda-hangi-maclar-var-730556)
+
+
 ### sv wehen – leverkusen (N/A, Sat, 22 Aug 2026 05:10:00 -0700)
 
 - **Liveticker | SV Wehen Wiesbaden - Bayer 04 Leverkusen 0:2 | 1. Runde | DFB-Pokal 2026/27**: [Link](https://www.kicker.at/wiesbaden-gegen-leverkusen-2026-dfb-pokal-5204703/ticker)
