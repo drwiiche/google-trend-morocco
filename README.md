@@ -1,3 +1,10 @@
+### hull city – manchester united (N/A, Sat, 22 Aug 2026 03:40:00 -0700)
+
+- **Manchester United press conferences: Michael Carrick on Mason Mount, Marcus Rashford and Carlos Baleba**: [Link](https://www.bbc.com/sport/football/live/c8kgv7dvg5d0t)
+- **Man Utd XI vs Hull: Confirmed team news and predicted lineup**: [Link](https://www.standard.co.uk/sport/football/man-utd-xi-vs-hull-confirmed-team-news-predicted-lineup-injury-latest-premier-league-2026-b1294124.html)
+- **Hull vs Man Utd | Premier League preview & free bets for Saturday lunchtime game**: [Link](https://www.thesun.co.uk/sport/40105916/hull-vs-man-utd-premier-league-predictions-free-bets/)
+
+
 ### f1 (N/A, Sat, 22 Aug 2026 03:10:00 -0700)
 
 - **Antonelli leads Norris and Russell in Dutch GP FP1**: [Link](https://www.formula1.com/en/latest/article/fp1-antonelli-leads-norris-and-russell-in-sole-practice-session-ahead-of-dutch-gp.6UhqlSxsUab9wkQWyJbuPo)
