@@ -1,3 +1,17 @@
+### ipswich town – sunderland (N/A, Sat, 22 Aug 2026 07:10:00 -0700)
+
+- **Le Bris provides latest team news ahead of Ipswich**: [Link](https://www.safc.com/news/2026/august/20/le-bris-provides-latest-team-news-ahead-of-ipswich/)
+- **Ipswich Town vs Sunderland predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.co.uk/sport/football/articles/cpw94yjz48yo)
+- **MATCHDAY LIVE | SUNDERLAND (H)**: [Link](https://www.itfc.co.uk/news/2026/august/22/matchday-live---sunderland--h-/)
+
+
+### nottm forest – leeds united (N/A, Sat, 22 Aug 2026 07:00:00 -0700)
+
+- **Ipswich vs Sunderland bet builder [4/1 odds]**: [Link](https://talksport.com/betting/4528060/ipswich-vs-sunderland-bet-builder-tips-2026/)
+- **Oliver Glasner press conference: Nottingham Forest vs Leeds United**: [Link](https://www.bbc.co.uk/sport/football/articles/c171k47e9nzo)
+- **Licensable picture: UK: Premier League: Nottingham Forest v Leeds United**: [Link](https://www.reutersconnect.com/item/uk-premier-league-nottingham-forest-v-leeds-united/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBRTlJPSkw)
+
+
 ### everton – crystal palace (N/A, Sat, 22 Aug 2026 06:40:00 -0700)
 
 - **Norgaard + Garner: Everton injury latest for FPL Gameweek 1**: [Link](https://www.fantasyfootballscout.co.uk/2026/08/21/norgaard-garner-everton-injury-latest-for-fpl-gameweek-1/)
