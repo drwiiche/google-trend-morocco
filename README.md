@@ -1,3 +1,24 @@
+### espanyol – real madrid (N/A, Sat, 22 Aug 2026 11:40:00 -0700)
+
+- **Espanyol - Real Madrid hoy, en directo: última hora de la vuelta de Mourinho a LaLiga EA Sports**: [Link](https://as.com/futbol/primera/espanyol-real-madrid-hoy-en-directo-previa-y-ultima-hora-de-la-vuelta-de-mourinho-a-laliga-ea-sports-f202608-d/)
+- **Espanyol-Real Madrid: arranca la Liga**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/previas/espanyol-real-madrid-nuestro-equipo-arranca-la-liga-22-08-2026)
+- **Espanyol - Real Madrid, en directo: alineaciones y última hora del partido de LaLiga hoy, en vivo**: [Link](https://www.sport.es/es/noticias/real-madrid/espanyol-real-madrid-directo-alineaciones-133572490)
+
+
+### إسبانيول ضد الريال (N/A, Sat, 22 Aug 2026 11:40:00 -0700)
+
+- **مفاجآت عديدة.. مورينيو يعلن تشكيلته الرسمية الأولى**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%93%D8%AA-%D8%B9%D8%AF%D9%8A%D8%AF%D8%A9--%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%AA%D9%87-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84%D9%89/bltf009261abe9bf38c)
+- **قائمة ريال مدريد لمباراة إسبانيول في الدوري الاسباني.. موقف الصفقات الجديدة**: [Link](https://www.btolat.com/news/408196)
+- **وهنا بث مباشر لمباراة ريال مدريد ضد إسبانيول في الدوري الإسباني**: [Link](https://www.annahar.com/sports/340551/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+
+
+### classement racing club de lens – aj auxerre (N/A, Sat, 22 Aug 2026 10:50:00 -0700)
+
+- **Ligue 1 : le RC Lens étrille Auxerre avec un grand Florian Thauvin**: [Link](https://www.footmercato.net/a2353090093102401918-ligue-1-le-rc-lens-etrille-auxerre-avec-un-grand-florian-thauvin)
+- **Auxerre : les regrets de Namaso**: [Link](https://www.maxifoot.fr/auxerre/les-regrets-de-namaso-foot-462300.htm)
+- **Ligue 1 : en vidéo, trois penaltys et des buts en pagaille à Bollaert**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/ligue-1-en-video-trois-penaltys-et-des-buts-en-pagaille-a-bollaert-20260822)
+
+
 ### دورتموند ضد البايرن (N/A, Sat, 22 Aug 2026 11:00:00 -0700)
 
 - **الصيباري بديلًا ضد بوروسيا دورتموند.. واختيار مفاجئ في مكان موسيالا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%A8%D8%AF%D9%8A%D9%84%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A--%D9%88%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%81%D9%8A-%D9%85%D9%83%D8%A7%D9%86-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7/blt8e96cc09a5de48cf)
