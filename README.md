@@ -1,3 +1,17 @@
+### zone turf (N/A, Sat, 22 Aug 2026 00:10:00 -0700)
+
+- **Les pronos hippiques du samedi 22 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-samedi-22-aout-2026_AN-202608210602.html)
+- **Quinté du samedi 22 août 2026 à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-samedi-22-aout-2026-a-deauville-les-pronostics-7900663709)
+- **Les Notes des partants du Quinté+ de ce samedi 22 août**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-notes-des-partants-du-quinte-de-ce-samedi-22-aout)
+
+
+### real betis (N/A, Fri, 21 Aug 2026 14:10:00 -0700)
+
+- **Pellegrini: "Isco está para 30 minutos por partido"**: [Link](https://www.marca.com/futbol/betis/2026/08/21/pellegrini-isco-30-minutos-partido.html)
+- **Pellegrini aprieta y espera nuevos fichajes para el Betis**: [Link](https://www.eldesmarque.com/futbol/mercado-de-fichajes/20260821/pellegrini-fichajes-betis-mercado_18_019997485.html)
+- **Pellegrini no contará con Abde este viernes y pide refuerzos**: [Link](https://www.sevillaactualidad.com/deportes/betis/597287-pellegrini-no-contara-con-abde-este-viernes-y-pide-refuerzos/)
+
+
 ### عائشة وهاب (N/A, Sat, 22 Aug 2026 00:00:00 -0700)
 
 - **"ضربة جديدة لأيباك".. احتفاء واسع بصعود عائشة وهاب للكونغرس**: [Link](https://www.aljazeera.net/news/2026/8/21/%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%A3%D9%8A%D8%A8%D8%A7%D9%83-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D8%A1-%D9%88%D8%A7%D8%B3%D8%B9-%D8%A8%D8%B5%D8%B9%D9%88%D8%AF)
