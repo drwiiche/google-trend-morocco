@@ -1,3 +1,24 @@
+### vinicius júnior (N/A, Sat, 22 Aug 2026 13:50:00 -0700)
+
+- **Vinícius incendeia o estádio do Espanyol: provocação à torcida e confusão que ameaça o Real Madrid**: [Link](https://www.goal.com/br/not%C3%ADcias/vinicius-incendeia-o-estadio-do-espanyol-provocacao-a-torcida-e-confusao-que-ameaca-o-real-madrid/blt7b7964e2fe3ef4df)
+- **Com Arsenal no passado, Vinícius Jr atinge status inédito no Real Madrid de Mourinho**: [Link](https://trivela.com.br/espanha/vinicius-jr-atinge-status-inedito-real-madrid-mourinho/)
+- **Fotos de Vini Jr./Vinícius Júnior - Página 19**: [Link](https://www.purepeople.com.br/famosos/vini-jr-vinicius-junior_p555138/fotos/19)
+
+
+### match real (N/A, Sat, 22 Aug 2026 12:50:00 -0700)
+
+- **Suivez Espanyol Barcelone - Real Madrid En direct - Liga - 2e journée**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-espanyol-real-madrid_mtc21891448/live-commentary.shtml)
+- **Espanyol - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a7477644808879887209-espanyol-real-madrid-les-compositions-officielles)
+- **Brahim Díaz convoqué pour les débuts de Mourinho**: [Link](https://mountakhab.net/brahim-diaz-convoque-pour-les-debuts-de-mourinho/)
+
+
+### بث مباشر (N/A, Sat, 22 Aug 2026 12:30:00 -0700)
+
+- **على الرغم من الخسارة 0-2 على أرضه، لا يزال المدرب التايلاندي يؤمن بإمكانية تغيير مجرى المباراة في ملعب ماي دينه.**: [Link](https://www.vietnam.vn/ar/thua-0-2-tren-san-nha-hlv-thai-lan-van-tin-vao-co-hoi-loi-nguoc-dong-tai-my-dinh)
+- **مباراة الذهاب من نهائي كأس آسيان 2026: حالة من الهيجان تعم المكان حيث يتدافع الناس للحصول على أماكن لمشاهدة مباراة كرة القدم.**: [Link](https://www.vietnam.vn/ar/chung-ket-luot-di-asean-cup-2026-ran-ran-tim-cho-xem-bong-da)
+- **انفجرت الجماهير في مدينتي هو تشي منه وكان ثو فرحاً بعد أن سجلت فيتنام هدفين في مرمى تايلاند.**: [Link](https://www.vietnam.vn/ar/cdv-tp-hcm-va-can-tho-vo-oa-sau-2-ban-thang-cua-viet-nam-truoc-thai-lan)
+
+
 ### ismael saibari (N/A, Sat, 22 Aug 2026 13:30:00 -0700)
 
 - **Bayern: Kompany promises an important role for Saibari**: [Link](https://mountakhab.net/en/bayern-kompany-promises-an-important-role-for-saibari/)
