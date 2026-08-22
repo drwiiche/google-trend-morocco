@@ -1,3 +1,31 @@
+### koora (N/A, Sat, 22 Aug 2026 11:50:00 -0700)
+
+- **فابينيو يقترب من مزاملة محمد صلاح فى طرابزون سبور التركى**: [Link](https://www.youm7.com/story/2026/8/22/%D9%81%D8%A7%D8%A8%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%85%D8%B2%D8%A7%D9%85%D9%84%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%81%D9%89-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D8%B3%D8%A8%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%89/7521479)
+- **4 أضعاف.. طرابزون سبور يغري نجم فلامنجو لمزاملة محمد صلاح**: [Link](https://www.elwatannews.com/news/details/8344107)
+- **حقيقة اهتمام طرابزون سبور بضم هاكان تشالهان أوجلو**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=13082026&id=b30c2b97-b7b3-4ed8-8e21-f1c4d470846b)
+
+
+### toulouse – lyon (N/A, Sat, 22 Aug 2026 11:50:00 -0700)
+
+- **Lyon, la tête dans les étoiles**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/ligue-1-i-1ere-journee-i-lyon-aura-la-tete-a-la-ligue-des-champions-face-a-toulouse_sto23329755/story.shtml)
+- **TFC-OL : reporte-moi si tu peux ! - Ligue 1 - J1 - Toulouse-OL**: [Link](https://www.sofoot.com/articles/tfc-ol-la-lfp-prise-a-son-propre-piege-sur-la-question-des-reports)
+- **Jens Berthel Askou dévoile son groupe pour TéFéCé - Olympique Lyonnais, 1ère journée de Ligue 1**: [Link](https://www.toulousefc.com/play/blog/2026/08/jens-berthel-askou-devoile-son-groupe-pour-tefece-olympique-lyonnais-1ere-journee-de-ligue-1-mcdonald-s)
+
+
+### la liga (N/A, Sat, 22 Aug 2026 11:50:00 -0700)
+
+- **Real Madrid Squad Announcement Against Espanyol**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/squad-call/convocatoria-del-real-madrid-contra-el-espanyol-21-08-2026)
+- **Brahim Díaz called up for Mourinho’s debut**: [Link](https://mountakhab.net/en/brahim-diaz-called-up-for-mourinhos-debut/)
+- **By the numbers: the ghost of Arbeloa haunts Mourinho at the start of the Spanish league**: [Link](https://www.goal.com/en/news/by-the-numbers-the-ghost-of-arbeloa-haunts-mourinho-at-the-start-of-the-spanish-league/blt8cf6f3c200751a12)
+
+
+### كورة (N/A, Sat, 22 Aug 2026 11:50:00 -0700)
+
+- **إحصائيات الكالتشيو.. لاوتارو يطارد رقما تاريخيا ومونزا يتحدى عقدته أمام إنتر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%AD%D8%B5%D8%A7%D9%8A%D9%94%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%88--%D9%84%D8%A7%D9%88%D8%AA%D8%A7%D8%B1%D9%88-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%B1%D9%82%D9%85%D8%A7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A7-%D9%88%D9%85%D9%88%D9%86%D8%B2%D8%A7-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%B9%D9%82%D8%AF%D8%AA%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%86%D8%AA%D8%B1/blt7e047ced58615526)
+- **بطولة إيطاليا: إنتر يستهل حملة الدفاع عن لقبه برباعية في مرمى مونتسا**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260822-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A5%D9%86%D8%AA%D8%B1-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%AD%D9%85%D9%84%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D9%84%D9%82%D8%A8%D9%87-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B1%D9%85%D9%89-%D9%85%D9%88%D9%86%D8%AA%D8%B3%D8%A7)
+- **ما القنوات الناقلة لمباراة تورينو وميلان في الدوري الإيطالي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%B1%D9%8A%D9%86%D9%88-%D9%88%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb52a29902bdb2a98)
+
+
 ### espanyol – real madrid (N/A, Sat, 22 Aug 2026 11:40:00 -0700)
 
 - **Espanyol - Real Madrid hoy, en directo: última hora de la vuelta de Mourinho a LaLiga EA Sports**: [Link](https://as.com/futbol/primera/espanyol-real-madrid-hoy-en-directo-previa-y-ultima-hora-de-la-vuelta-de-mourinho-a-laliga-ea-sports-f202608-d/)
