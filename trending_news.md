@@ -1,3 +1,10 @@
+### chine (N/A, Sat, 22 Aug 2026 15:50:00 -0700)
+
+- **Pour les stationner, il faudrait un parking de 87 km2 : la Chine annonce son plus gros rappel automobile**: [Link](https://www.presse-citron.net/pour-les-stationner-il-faudrait-un-parking-de-87-km2-la-chine-annonce-son-plus-gros-rappel-automobile/)
+- **L'un des plus gros rappels automobiles de l'histoire va officiellement débuter**: [Link](https://www.automobile-magazine.fr/toute-l-actualite/article/52896-lun-des-plus-gros-rappels-automobiles-de-lhistoire-va-officiellement-debuter)
+- **Après Tesla, toute l’industrie chinoise paie le prix de cette mode automobile**: [Link](https://www.autoplus.fr/actualite/tesla-industrie-chinoise-paie-prix-mode-automobile-1462520.html)
+
+
 ### émir du qatar (N/A, Sat, 22 Aug 2026 15:00:00 -0700)
 
 - **Une vidéo de Walid Regragui aux côtés de l’émir du Qatar enflamme la Toile**: [Link](https://www.lesiteinfo.com/sport/680477-une-video-de-walid-regragui-aux-cotes-de-lemir-du-qatar-enflamme-la-toile.html)
