@@ -1,3 +1,24 @@
+### lens – auxerre (N/A, Sat, 22 Aug 2026 07:40:00 -0700)
+
+- **« Ce n'est pas un bon souvenir, c'est un très bon souvenir » : malgré une 8e place et un départ plus vite que prévu, Will Still a laissé une bonne impression à Lens**: [Link](https://www.lequipe.fr/Football/Article/-ce-n-est-pas-un-bon-souvenir-c-est-un-tres-bon-souvenir-malgre-une-8e-place-et-un-depart-plus-vite-que-prevu-will-still-a-laisse-une-bonne-impression-a-lens/1712391)
+- **Prédiction du match Lens - Auxerre : compositions probables**: [Link](https://www.vietnam.vn/fr/nhan-dinh-lens-vs-auxerre-doi-hinh-du-kien)
+- **Notre vidéo "Jour de match" pour présenter la première journée Lens-AJA**: [Link](https://www.lyonne.fr/auxerre-89000/sports/notre-video-jour-de-match-pour-presenter-la-premiere-journee-lens-aja_15035360/)
+
+
+### espagne (N/A, Sat, 22 Aug 2026 07:40:00 -0700)
+
+- **Pause express après le Tour et concurrence plus modeste : Tadej Pogacar bien décidé à boucler la trilogie des grands Tours lors de la Vuelta**: [Link](https://www.lequipe.fr/Cyclisme-sur-route/Article/Pause-express-apres-le-tour-et-concurrence-plus-modeste-tadej-pogacar-bien-decide-a-boucler-la-trilogie-des-grands-tours-lors-de-la-vuelta/1712602)
+- **Nos favoris si Pogacar s'égare**: [Link](https://www.eurosport.fr/cyclisme/tour-d-espagne/2026/nos-favoris-de-la-vuelta-2026-si-tadej-pogacar-segare-felix-gall-oscar-onley-richard-carapaz-enric-mas_sto23329757/story.shtml)
+- **Tennis : Masters 1000 de Cincinnati, à la tv**: [Link](https://www.linternaute.com/television/emission-sportive-tennis-masters-1000-de-cincinnati-carlos-alcaraz-novak-djokovic-p6209714/tennis-masters-1000-de-cincinnati-flavio-cobolli-arthur-fils-e7071013/)
+
+
+### bachir belloumi (N/A, Sat, 22 Aug 2026 05:50:00 -0700)
+
+- **Revivez la victoire de Hull City face à Manchester United en Premier League 2026-2027**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-hull-city-manchester-united_mtc21883259/live-commentary.shtml)
+- **Premier League: Manchester United et Noussair Mazraoui battus d’entrée par le promu Hull City**: [Link](https://sport.le360.ma/football/premier-league/premier-league-manchester-united-et-noussair-mazraoui-battus-dentree-par-le-promu-hull-city_MJSKZHAXH5DGHNGSA62ED3Q24Q/)
+- **Pari du jour : sur quoi parier le samedi 22 août 2026**: [Link](https://africafoot.com/pari-du-jour-sur-quoi-parier-le-samedi-22-aout-2026/)
+
+
 ### ipswich town – sunderland (N/A, Sat, 22 Aug 2026 07:10:00 -0700)
 
 - **Le Bris provides latest team news ahead of Ipswich**: [Link](https://www.safc.com/news/2026/august/20/le-bris-provides-latest-team-news-ahead-of-ipswich/)
