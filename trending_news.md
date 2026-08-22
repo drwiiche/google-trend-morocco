@@ -1,3 +1,17 @@
+### kylian mbappé (N/A, Sat, 22 Aug 2026 14:30:00 -0700)
+
+- **Jose Mourinho is quietly showing the signs of achieving something nobody else did with Kylian Mbappe**: [Link](https://therealchamps.com/jose-mourinho-is-quietly-showing-the-signs-of-achieving-something-nobody-else-did-with-kylian-mbappe-01m0awna6yba)
+- **Mbappé: “We are going to win titles”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/mbappe-estoy-seguro-de-que-este-ano-vamos-a-volver-a-ganar-titulos-14-08-2026)
+- **Kylian Mbappé’s objectives ahead of season three with Real Madrid**: [Link](https://en.as.com/soccer/kylian-mbappes-objectives-ahead-of-season-three-with-real-madrid-f202608-n/)
+
+
+### flashscore (N/A, Sat, 22 Aug 2026 14:30:00 -0700)
+
+- **Preview: Genoa vs Napoli - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/genoa/preview/genoa-vs-napoli-prediction-team-news-lineups_603273.html)
+- **Licensable picture: Genoa CFC v SSC Napoli - Serie A Enilive**: [Link](https://www.reutersconnect.com/item/genoa-cfc-v-ssc-napoli-serie-a-enilive/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMFcxOVJaMQ)
+- **Licensable picture: Genoa CFC v SSC Napoli - Serie A Enilive**: [Link](https://www.reutersconnect.com/item/genoa-cfc-v-ssc-napoli-serie-a-enilive/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMFcxOUIwUA)
+
+
 ### yan diomandé (N/A, Sat, 22 Aug 2026 14:10:00 -0700)
 
 - **Le choix fort de José Mourinho avec Yan Diomandé, le Bayern va protéger Jamal Musiala**: [Link](https://www.footmercato.net/a6133744568618679271-le-choix-fort-de-jose-mourinho-avec-yan-diomande-le-bayern-va-proteger-jamal-musiala)
