@@ -1,3 +1,17 @@
+### dortmund – bayern (N/A, Sat, 22 Aug 2026 10:50:00 -0700)
+
+- **Vor Supercup in Dortmund: Bayern-Boss Eberl kritisiert Ticketvergabe für den Wettbewerb**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/vor-supercup-eberl-moechte-mehr-tickets-fuer-bayern-fans-94455256.html)
+- **Dortmund gegen Bayern München – Prognose, 23. August, 01:30 Uhr: Ein klassisches deutsches Fußballspiel.**: [Link](https://www.vietnam.vn/de/nhan-dinh-dortmund-vs-bayern-munich-01h30-ngay-23-8-kinh-dien-bong-da-duc)
+- **BVB: Warum fehlt Nico Schlotterbeck im Supercup gegen den FC Bayern?**: [Link](https://www.dazn.com/de-DE/news/fussball/bvb-nico-schlotterbeck-supercup-fehlen-fc-bayern/t6eaq3zlxovt1co8wg3cy3rh4)
+
+
+### آيفون (N/A, Sat, 22 Aug 2026 10:40:00 -0700)
+
+- **4 أسباب تدفعك لتخطي آيفون 18 والترقية إلى آيفون 17 الآن**: [Link](https://www.alarabiya.net/technology/smart-phones/2026/08/21/4-%D8%A7%D8%B3%D8%A8%D8%A7%D8%A8-%D8%AA%D8%AF%D9%81%D8%B9%D9%83-%D9%84%D8%AA%D8%AE%D8%B7%D9%8A-%D8%A7%D9%8A%D9%81%D9%88%D9%86-18-%D9%88%D8%A7%D9%84%D8%AA%D8%B1%D9%82%D9%8A%D8%A9-%D8%A7%D9%84%D9%89-%D8%A7%D9%8A%D9%81%D9%88%D9%86-17-%D8%A7%D9%84%D8%A7%D9%86)
+- **مخاوف من تراجع أسعار الآيفون المستعمل مع اقتراب إطلاق "آيفون 18"**: [Link](https://www.telegraphe.ma/%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D9%85%D9%86-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%A2%D9%8A%D9%81%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B9%D9%85%D9%84-%D9%85%D8%B9-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%A2%D9%8A%D9%81%D9%88%D9%86-18)
+- **هاتف iPhone 18 لن يصل في سبتمبر.. أبل تقلب جدول ظهور آيفون**: [Link](https://al-ain.com/article/iphone-18-why-apple-changing-launch-highly-phone)
+
+
 ### valence – celta vigo (N/A, Sat, 22 Aug 2026 10:20:00 -0700)
 
 - **Composition du match Valencia – Celta Vigo | LaLiga · 22 août 2026**: [Link](https://www.ysscores.com/fr/lineup/5868030/Valencia-CF-vs-Celta-de-Vigo)
