@@ -1,3 +1,10 @@
+### discord (N/A, Fri, 21 Aug 2026 21:10:00 -0700)
+
+- **Take-Two Subpoenas Microsoft And Discord Over GTA 6 Leaks**: [Link](https://kotaku.com/take-two-subpoenas-microsoft-and-discord-records-related-to-spread-of-gta-6-leaks-2000726633)
+- **Rockstar Rattled As ‘Grand Theft Auto VI’ Leaks Again**: [Link](https://www.bloomberg.com/news/newsletters/2026-08-21/rockstar-rattled-as-grand-theft-auto-vi-leaks-again)
+- **GTA 6 CyberLeek update: Everything leaked so far, what might be next**: [Link](https://mashable.com/entertainment/grand-theft-auto-6-cyberleek-everything-leaked-so-far)
+
+
 ### أيباك (N/A, Fri, 21 Aug 2026 14:30:00 -0700)
 
 - **"ضربة جديدة لأيباك".. احتفاء واسع بصعود عائشة وهاب للكونغرس**: [Link](https://www.aljazeera.net/news/2026/8/21/%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%A3%D9%8A%D8%A8%D8%A7%D9%83-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D8%A1-%D9%88%D8%A7%D8%B3%D8%B9-%D8%A8%D8%B5%D8%B9%D9%88%D8%AF)
