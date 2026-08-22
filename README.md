@@ -1,3 +1,10 @@
+### هال سيتي ضد مان يونايتد (N/A, Sat, 22 Aug 2026 04:10:00 -0700)
+
+- **مانشستر يونايتد يستهل الموسم الجديد بمواجهة هال سيتي الوافد الجديد على البريميرليغ**: [Link](https://radiomars.ma/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8/)
+- **بشير بلومي يستهل مشواره في "البريمرليغ" بمواجهة اليونايتد**: [Link](https://www.aljazairalyoum.dz/%D8%A8%D8%B4%D9%8A%D8%B1-%D8%A8%D9%84%D9%88%D9%85%D9%8A-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D8%B1%D9%84%D9%8A%D8%BA/)
+- **مدرب هال سيتي يتحدى المشككين قبل العودة الى البريمييرليغ**: [Link](https://www.elsport.com/news/show/836532/%D9%85%D8%AF%D8%B1%D8%A8-%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D9%85%D8%B4%D9%83%D9%83%D9%8A%D9%86-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85)
+
+
 ### hull city – manchester united (N/A, Sat, 22 Aug 2026 03:40:00 -0700)
 
 - **Manchester United press conferences: Michael Carrick on Mason Mount, Marcus Rashford and Carlos Baleba**: [Link](https://www.bbc.com/sport/football/live/c8kgv7dvg5d0t)
