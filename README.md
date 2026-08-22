@@ -1,3 +1,45 @@
+### yallakora (N/A, Sat, 22 Aug 2026 12:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي والشرقية إنبي في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9-%D8%A7%D9%95%D9%86%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt914e30f9e36476b0)
+- **قائمة الأهلي لمباراته الأولى في الدورى المصري تشهد غياب إمام عاشور**: [Link](https://www.alkhaleej.ae/2026-08-22/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%89-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%AA%D8%B4%D9%87%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A5%D9%85%D8%A7%D9%85-%D8%B9%D8%A7%D8%B4%D9%88%D8%B1)
+- **إمام عاشور على رأس قائمة المستبعدين من قائمة الأهلي أمام الشرقية إنبي**: [Link](https://darelhilal.com/News/3291179.aspx)
+
+
+### match real madrid (N/A, Sat, 22 Aug 2026 12:30:00 -0700)
+
+- **Suivez Espanyol Barcelone - Real Madrid En direct - Liga - 2e journée**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-espanyol-real-madrid_mtc21891448/live-commentary.shtml)
+- **Espanyol - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a7477644808879887209-espanyol-real-madrid-les-compositions-officielles)
+- **Brahim Díaz convoqué pour les débuts de Mourinho**: [Link](https://mountakhab.net/brahim-diaz-convoque-pour-les-debuts-de-mourinho/)
+
+
+### tod (N/A, Sat, 22 Aug 2026 12:20:00 -0700)
+
+- **Bericht: Bruder von Hickerson äußert sich zu Panettieres Tod**: [Link](https://www.lz.de/starline/leute/24401434_Bericht-Bruder-von-Hickerson-aeussert-sich-zu-Panettieres-Tod.html)
+- **19-Jähriger stürzt beim Abseilen in Kals tödlich ab**: [Link](https://nachrichten.jetzt/2026/08/19-jaehriger-stuerzt-beim-abseilen-in-kals-toedlich-ab/)
+- **Drama am Großglockner: Deutscher stürzt vor Augen seiner Freunde ab**: [Link](https://www.t-online.de/nachrichten/panorama/ungluecke/id_101400920/oesterreich-deutscher-stirbt-in-tirol-vor-augen-seiner-freunde.html)
+
+
+### dfl-supercup (N/A, Sat, 22 Aug 2026 12:10:00 -0700)
+
+- **"Will have to drop a few players" - Kovac issues squad update ahead of Bayern showdown**: [Link](https://bvbbuzz.com/will-have-to-drop-a-few-players-kovac-issues-squad-update-ahead-of-bayern-showdown-01m0fkxenmr5)
+- **The new boys: Bayern Munich and Borussia Dortmund's new signings ahead of the Franz Beckenbauer Supercup**: [Link](https://www.bundesliga.com/en/bundesliga/news/borussia-dortmund-bayern-munich-supercup-saibari-brown-karetsas-veerman-38716)
+- **German Super Cup: Bensebaini in the starting line-up, Chabot on the bench, and a surprise choice in Musiala's place**: [Link](https://www.goal.com/en/news/german-super-cup-bensebaini-in-the-starting-line-up-and-el-chibary-on-the-bench-plus-a-surprise-choice-in-musiala-s-position/blt8e96cc09a5de48cf)
+
+
+### لا ليغا (N/A, Sat, 22 Aug 2026 12:10:00 -0700)
+
+- **فليك يحصل على نبأ سار بشأن صفقات برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D8%B5%D9%84-%D8%B9%D9%84%D9%89-%D9%86%D8%A8%D8%A7%D9%94-%D8%B3%D8%A7%D8%B1-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%B5%D9%81%D9%82%D8%A7%D8%AA-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt48fc0722feb03bb8)
+- **بدأت في مطعم.. كواليس مفاوضات برشلونة لخطف رودري قبل ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/8/19/%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%B5%D9%81%D9%82%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **رودري يغيب عن برشلونة في افتتاح الليغا.. وفليك يشيد بالمصري حمزة عبد الكريم**: [Link](https://arabi21.com/story/1783626/%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D9%88%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85)
+
+
+### real (N/A, Sat, 22 Aug 2026 11:50:00 -0700)
+
+- **Espanyol gegen Real Madrid – Prognose: Chance, die Tabellenspitze anzugreifen**: [Link](https://www.vietnam.vn/de/nhan-dinh-espanyol-vs-real-madrid-co-hoi-bam-duoi-ngoi-dau)
+- **La Liga - Espanyol Barcelona - Real Madrid heute live im Ticker - Auftaktmatch für die Königlichen in der Liga**: [Link](https://www.eurosport.de/fussball/la-liga/2026-2027/live-espanyol-barcelona-real-madrid_mtc21891448/live-commentary.shtml)
+- **Abschlusstraining mit 20 Stars – A-Elf gegen Espanyol möglich**: [Link](https://www.realtotal.de/abschlusstraining-mit-20-stars-a-elf-gegen-espanyol-moeglich/)
+
+
 ### مباراة اليوم (N/A, Sat, 22 Aug 2026 12:20:00 -0700)
 
 - **جدول مباريات اليوم السبت 22 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-22-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltefa4ecccd6b85d40)
