@@ -1,3 +1,10 @@
+### west ham – charlton (N/A, Sat, 22 Aug 2026 08:10:00 -0700)
+
+- **MATCH PREVIEW | West Ham United v Charlton**: [Link](https://www.cafc.co.uk/news/match-preview-west-ham-united-v-charlton)
+- **Bowen | We have to have high consistency levels week in, week out**: [Link](https://www.whufc.com/en/news/bowen-or-we-have-to-have-high-consistency-levels-week-in-week-out)
+- **Ollie Scarles central to more West Ham anger after what's happened vs Charlton**: [Link](https://uk.sports.yahoo.com/news/ollie-scarles-central-more-west-144734419.html)
+
+
 ### brentford – tottenham (N/A, Sat, 22 Aug 2026 09:00:00 -0700)
 
 - **Team news | Pedro Porro, van de Ven out of opener at Brentford**: [Link](https://www.tottenhamhotspur.com/news/1086430/team-news-porro-van-de-ven-out-of-opener-at-brentford)
