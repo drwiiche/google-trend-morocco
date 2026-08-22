@@ -1,3 +1,17 @@
+### طقس (N/A, Sat, 22 Aug 2026 10:00:00 -0700)
+
+- **الأرصاد تحذر من تقلبات جوية بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1795287.html)
+- **استمرار الأجواء الحارة ورياح قوية بعدد من المناطق**: [Link](https://assabah.ma/945293.html)
+- **طقس السبت: قطرات مصحوبة برعد أقصى جنوب الأقاليم الصحراوية ليلا مع هبوب رياح قوية – اليوم 24**: [Link](https://alyaoum24.com/2039603.html)
+
+
+### جريدة المنتخب (N/A, Sat, 22 Aug 2026 10:00:00 -0700)
+
+- **حضور مغربي قوي في «البريميرليغ» مع انطلاق موسم 2026-2027**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D8%B6%D9%88%D8%B1-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%82%D9%88%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D9%85%D8%B9-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%88%D8%B3%D9%85-2026-2027/24349)
+- **ديوب بأداء متوسط يفوز على طالبي البديل في بداية البريمرليغ**: [Link](https://inews.ma/news/8602939)
+- **ديوب بأداء متوسط يفوز على طالبي البديل في بداية البريمرليغ**: [Link](https://www.almountakhab.com/node/16229639)
+
+
 ### west ham – charlton (N/A, Sat, 22 Aug 2026 08:10:00 -0700)
 
 - **MATCH PREVIEW | West Ham United v Charlton**: [Link](https://www.cafc.co.uk/news/match-preview-west-ham-united-v-charlton)
