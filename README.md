@@ -1,3 +1,17 @@
+### classement espanyol – real madrid (N/A, Sat, 22 Aug 2026 14:40:00 -0700)
+
+- **Suivez Espanyol Barcelone - Real Madrid En direct - Liga - 2e journée**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-espanyol-real-madrid_mtc21891448/live-commentary.shtml)
+- **Espanyol - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a7477644808879887209-espanyol-real-madrid-les-compositions-officielles)
+- **DIRECT. Espanyol-Real Madrid: la recrue Carlos Espi offre la première victoire de l'ère Mourinho au Real !**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-espanyol-barcelone-real-madrid-suivez-le-premier-match-de-mourinho-en-liga-en-live_LS-202608220286.html)
+
+
+### espi (N/A, Sat, 22 Aug 2026 14:20:00 -0700)
+
+- **Espanyol vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmwyjzndv4xnt)
+- **Brahim Díaz called up for Mourinho’s debut**: [Link](https://mountakhab.net/en/brahim-diaz-called-up-for-mourinhos-debut/)
+- **Real Madrid Squad Announcement Against Espanyol**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/squad-call/convocatoria-del-real-madrid-contra-el-espanyol-21-08-2026)
+
+
 ### kylian mbappé (N/A, Sat, 22 Aug 2026 14:30:00 -0700)
 
 - **Jose Mourinho is quietly showing the signs of achieving something nobody else did with Kylian Mbappe**: [Link](https://therealchamps.com/jose-mourinho-is-quietly-showing-the-signs-of-achieving-something-nobody-else-did-with-kylian-mbappe-01m0awna6yba)
