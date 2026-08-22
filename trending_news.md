@@ -1,3 +1,17 @@
+### عائشة وهاب (N/A, Sat, 22 Aug 2026 00:00:00 -0700)
+
+- **"ضربة جديدة لأيباك".. احتفاء واسع بصعود عائشة وهاب للكونغرس**: [Link](https://www.aljazeera.net/news/2026/8/21/%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%A3%D9%8A%D8%A8%D8%A7%D9%83-%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D8%A1-%D9%88%D8%A7%D8%B3%D8%B9-%D8%A8%D8%B5%D8%B9%D9%88%D8%AF)
+- **عائشة وهاب أول سياسية من أصول أفغانية تدخل الكونغرس الأمريكي**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%B9%D8%A7%D8%A6%D8%B4%D8%A9-%D9%88%D9%87%D8%A7%D8%A8-%D8%A3%D9%88%D9%84-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D8%A3%D8%B5%D9%88%D9%84-%D8%A3%D9%81%D8%BA%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AF%D8%AE%D9%84-%D8%A7%D9%84%D9%83%D9%88%D9%86%D8%BA%D8%B1%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A/4033488)
+- **من هي عائشة وهاب التي هزمت مرشحة دعمتها جماعات مرتبطة بـ"أيباك"؟**: [Link](https://www.bbc.com/arabic/articles/c78g23e7j44o)
+
+
+### jimmy mohamed (N/A, Fri, 21 Aug 2026 23:40:00 -0700)
+
+- **Il n’y a pas de procédure judiciaire à ce stade » : mis en retrait par France 2, Jimmy Mohamed reste à l’antenne de RTL**: [Link](https://www.leparisien.fr/culture-loisirs/tv/il-ny-a-pas-de-procedure-judiciaire-a-ce-stade-mis-en-retrait-par-france-2-jimmy-mohamed-reste-a-lantenne-de-rtl-20-08-2026-PAZVGVDP3NCYBLK67OYBO7MQSA.php)
+- **Déjà mis en retrait par France Télévisions, Jimmy Mohamed perd une autre émission avec Flavie Flament sur RTL**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/deja-mis-en-retrait-par-france-televisions-jimmy-mohamed-perd-une-autre-emission-avec-flavie-flament-sur-rtl-20260820)
+- **Flavie Flament : pourquoi le 7 septembre prochain sera une date importante pour l’animatrice**: [Link](https://www.gala.fr/culture/television/flavie-flament-pourquoi-le-7-septembre-prochain-sera-une-date-importante-pour-l-animatrice-20260821)
+
+
 ### akhbarona (N/A, Fri, 21 Aug 2026 22:20:00 -0700)
 
 
