@@ -1,3 +1,10 @@
+### athletic - sevilla (N/A, Sat, 22 Aug 2026 08:30:00 -0700)
+
+- **Athletic Club - Sevilla, en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/athletic-club-sevilla-en-directo-laliga-ea-sports-hoy-en-vivo-f202608-d/)
+- **Athletic - Sevilla en directo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/athletic-sevilla/2026/08/22/01_0101_20260822_174_179-directo.html)
+- **Nico Williams empieza en el banquillo y Robbie Ure, referencia en ataque del Sevilla**: [Link](https://www.infobae.com/espana/agencias/2026/08/22/nico-williams-empieza-en-el-banquillo-y-robbie-ure-referencia-en-ataque-del-sevilla/)
+
+
 ### illya zabarnyi (N/A, Sat, 22 Aug 2026 08:10:00 -0700)
 
 - **Tottenham linked with £57m Ligue 1 star as Spurs consider another addition**: [Link](https://www.yardbarker.com/soccer/articles/tottenham_linked_with_57m_ligue_1_star_as_spurs_consider_another_addition/s1_15953_44190195)
