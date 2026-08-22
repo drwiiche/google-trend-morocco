@@ -1,3 +1,24 @@
+### دورتموند ضد البايرن (N/A, Sat, 22 Aug 2026 11:00:00 -0700)
+
+- **الصيباري بديلًا ضد بوروسيا دورتموند.. واختيار مفاجئ في مكان موسيالا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%A8%D8%AF%D9%8A%D9%84%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A--%D9%88%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%81%D9%8A-%D9%85%D9%83%D8%A7%D9%86-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7/blt8e96cc09a5de48cf)
+- **صيباري أمام فرصة التتويج بأول لقب مع بايرن ميونيخ**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D8%B1%D8%B5%D8%A9-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A3%D9%88%D9%84-%D9%84%D9%82%D8%A8-%D9%85%D8%B9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE/24360)
+- **ما القنوات الناقلة لمباراة بوروسيا دورتموند وبايرن ميونخ في نهائي كأس السوبر الألماني 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt8604a860423eb05c)
+
+
+### bayern munich (N/A, Sat, 22 Aug 2026 11:00:00 -0700)
+
+- **Bayern Munich News: Espanyol eyeing FC Bayern’s Bryan Zaragoza; Max Eberl happy with summer haul; and MORE!**: [Link](https://www.bavarianfootballworks.com/transfer-rumors/245441/bayern-munich-espanyol-manchester-city-ac-milan-as-roma-tottenham-hotspur-fc-barcelona)
+- **"Will have to drop a few players" - Kovac issues squad update ahead of Bayern showdown**: [Link](https://bvbbuzz.com/will-have-to-drop-a-few-players-kovac-issues-squad-update-ahead-of-bayern-showdown-01m0fkxenmr5)
+- **Licensable picture: DFL Supercup - Final - Borussia Dortmund v Bayern Munich**: [Link](https://www.reutersconnect.com/item/dfl-supercup-final-borussia-dortmund-v-bayern-munich/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOE0xOUk0MEQ)
+
+
+### رود فان نيستلروي (N/A, Sat, 22 Aug 2026 10:50:00 -0700)
+
+- **تشافي يضم غريمه المدريدي ومدرب الوداد السابق لفي هولندا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%8A%D8%B6%D9%85-%D8%BA%D8%B1%D9%8A%D9%85%D9%87-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D9%8A%D8%AF%D9%8A-%D9%88%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%84%D8%AC%D9%87%D8%A7%D8%B2%D9%87-%D9%81%D9%8A-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7/bltcfc9f4599529b2e9)
+- **المغربي رمزي ضمن الطاقم التقني لتشافي مدرب منتخب هولندا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B1%D9%85%D8%B2%D9%8A-%D8%B6%D9%85%D9%86-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D9%85-%D8%A7%D9%84%D8%AA%D9%82%D9%86%D9%8A-%D9%84%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7/24380)
+- **مفاجأة… الاتحاد الهولندي يضم مدربا مغربيا للطاقم التقني لمنتخبه الأول**: [Link](https://ar.sport.le360.ma/football/lions-atlas/OIB6ERRF5FCQJHJZ6HZN4N4WUM/)
+
+
 ### dortmund – bayern (N/A, Sat, 22 Aug 2026 10:50:00 -0700)
 
 - **Vor Supercup in Dortmund: Bayern-Boss Eberl kritisiert Ticketvergabe für den Wettbewerb**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/vor-supercup-eberl-moechte-mehr-tickets-fuer-bayern-fans-94455256.html)
