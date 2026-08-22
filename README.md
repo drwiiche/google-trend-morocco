@@ -1,3 +1,17 @@
+### illya zabarnyi (N/A, Sat, 22 Aug 2026 08:10:00 -0700)
+
+- **Tottenham linked with £57m Ligue 1 star as Spurs consider another addition**: [Link](https://www.yardbarker.com/soccer/articles/tottenham_linked_with_57m_ligue_1_star_as_spurs_consider_another_addition/s1_15953_44190195)
+- **Gossip: Spurs consider move for Zabarnyi**: [Link](https://www.aol.com/articles/gossip-spurs-consider-move-zabarnyi-071020000.html)
+- **Tottenham ponder Illia Zabarnyi move as Liverpool interest cools**: [Link](https://thehardtackle.com/transfer-news/2026/08/19/tottenham-ponder-illia-zabarnyi-move-as-liverpool-interest-cools/)
+
+
+### ياسمين عز (N/A, Sat, 22 Aug 2026 06:50:00 -0700)
+
+- **ياسمين عز ترد على شائعات سقوطها في أحد الملاهي الليلية**: [Link](https://www.lahamag.com/article/240261-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%B9%D8%B2-%D8%AA%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%B4%D8%A7%D8%A6%D8%B9%D8%A7%D8%AA-%D8%B3%D9%82%D9%88%D8%B7%D9%87%D8%A7-%D9%81%D9%8A-%D8%A3%D8%AD%D8%AF-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%87%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D9%84%D9%8A%D8%A9)
+- **«لا أتهاون في المساس بسمعتي».. ياسمين عز تتخذ إجراءات قانونية ضد صفحات على السوشيال ميديا**: [Link](https://www.almasryalyoum.com/news/details/4342967)
+- **هل فقدت مذيعة MBC الوعي في ملهى ليلي؟**: [Link](https://www.okaz.com.sa/culture/art/2262336)
+
+
 ### lens – auxerre (N/A, Sat, 22 Aug 2026 07:40:00 -0700)
 
 - **« Ce n'est pas un bon souvenir, c'est un très bon souvenir » : malgré une 8e place et un départ plus vite que prévu, Will Still a laissé une bonne impression à Lens**: [Link](https://www.lequipe.fr/Football/Article/-ce-n-est-pas-un-bon-souvenir-c-est-un-tres-bon-souvenir-malgre-une-8e-place-et-un-depart-plus-vite-que-prevu-will-still-a-laisse-une-bonne-impression-a-lens/1712391)
