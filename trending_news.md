@@ -1,3 +1,38 @@
+### sv wehen – leverkusen (N/A, Sat, 22 Aug 2026 05:10:00 -0700)
+
+- **Liveticker | SV Wehen Wiesbaden - Bayer 04 Leverkusen 0:2 | 1. Runde | DFB-Pokal 2026/27**: [Link](https://www.kicker.at/wiesbaden-gegen-leverkusen-2026-dfb-pokal-5204703/ticker)
+- **Kurzpässe: Pflichtspielstart im DFB-Pokal**: [Link](https://www.bayer04.de/de-de/news/dfb-pokal/kurzpaesse-pflichtspielstart-im-dfb-pokal)
+- **Ronny König im Interview vor dem DFB-Pokalspiel - „An die eigene Chance glauben“**: [Link](https://www.flw24.de/aktuelles/meldungen/details/datum/2026/08/ronny-koenig-im-interview-vor-dem-dfb-pokalspiel-an-die-eigene-chance-glauben/)
+
+
+### يوتيوب (N/A, Sat, 22 Aug 2026 05:10:00 -0700)
+
+- **ميو تطلق سلسلة "الرسوم المتحركة في حوار" على يوتيوب**: [Link](https://www.animationmagazine.net/ar/2026/08/%D9%85%D9%8A%D9%88-%D8%AA%D8%B7%D9%84%D9%82-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%B1%D8%B3%D9%88%D9%85-%D9%85%D8%AA%D8%AD%D8%B1%D9%83%D8%A9-%D8%AA%D9%81%D8%A7%D8%B9%D9%84%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8/)
+- **يوتيوب ونتفليكس.. معركة جديدة على كبار صناع المحتوى**: [Link](https://www.aljazeera.net/tech/2026/8/21/%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8-%D9%88%D9%86%D8%AA%D9%81%D9%84%D9%8A%D9%83%D8%B3-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B9%D9%84%D9%89-%D9%83%D8%A8%D8%A7%D8%B1)
+- **"يوتيوب" و"نتفلكس".. صراع على صناع المحتوى**: [Link](https://www.skynewsarabia.com/varieties/1887183-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8-%D9%88-%D9%86%D8%AA%D9%81%D9%84%D9%83%D8%B3-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%B5%D9%86%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%88%D9%89)
+
+
+### yalla kora (N/A, Sat, 22 Aug 2026 05:00:00 -0700)
+
+- **أغضبه ديابي وإمام عاشور.. فيسينج يكشف سر فوز الاتحاد على القادسية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%BA%D8%B6%D8%A8%D9%87-%D8%AF%D9%8A%D8%A7%D8%A8%D9%8A-%D9%88%D8%A7%D9%95%D9%85%D8%A7%D9%85-%D8%B9%D8%A7%D8%B4%D9%88%D8%B1--%D9%81%D9%8A%D8%B3%D9%8A%D9%86%D8%AC-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B3%D9%8A%D8%A9/blt9237d04b167c40f7)
+- **ماذا قال مدربا القادسية والاتحاد بعد القمة؟**: [Link](https://www.alkhaleej.ae/2026-08-22/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D8%A8%D8%A7-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B3%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%82%D9%85%D8%A9)
+- **طرد ديون لوبي لم يمنع "النمور " من الفوز على القادسية**: [Link](https://alsaudialyaum.com/news/105442)
+
+
+### manchester united (N/A, Sat, 22 Aug 2026 03:40:00 -0700)
+
+- **Marcus Rashford makes decision on Man Utd shirt number with Matheus Cunha wearing his old No10**: [Link](https://www.thesun.co.uk/sport/40100614/rashford-man-utd-shirt-number-matheus-cunha/)
+- **Confirmed: Our 2026/27 squad numbers**: [Link](https://www.manutd.com/en/news/confirmed-our-2026-27-squad-numbers)
+- **Michael Carrick compares forward to Ryan Giggs for his challenging times**: [Link](https://readmanutd.com/2026/08/21/michael-carrick-marcus-rashford-hull-city-update/)
+
+
+### عطلة عيد المولد النبوي 2026 (N/A, Sat, 22 Aug 2026 03:10:00 -0700)
+
+- **بعد قرار ترحيلها.. موعد إجازة المولد النبوي الشريف والإجازات الرسمية المتبقية في 2026**: [Link](https://www.almasryalyoum.com/news/details/4342721)
+- **كم باقي على مولد النبي 2026؟.. أقل من 3 أيام وأجازته بعد يومين آخرين**: [Link](https://www.elbalad.news/7080985)
+- **إعلان عطلة رسمية – سفارة جمهورية العراق في فيينا**: [Link](https://mofa.gov.iq/vienna/2026/08/20/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%B9%D8%B7%D9%84%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-2/)
+
+
 ### هال سيتي ضد مان يونايتد (N/A, Sat, 22 Aug 2026 04:10:00 -0700)
 
 - **مانشستر يونايتد يستهل الموسم الجديد بمواجهة هال سيتي الوافد الجديد على البريميرليغ**: [Link](https://radiomars.ma/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8/)
