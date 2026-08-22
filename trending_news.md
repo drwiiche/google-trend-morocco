@@ -1,3 +1,17 @@
+### émir du qatar (N/A, Sat, 22 Aug 2026 15:00:00 -0700)
+
+- **Une vidéo de Walid Regragui aux côtés de l’émir du Qatar enflamme la Toile**: [Link](https://www.lesiteinfo.com/sport/680477-une-video-de-walid-regragui-aux-cotes-de-lemir-du-qatar-enflamme-la-toile.html)
+- **À Paris, Walid Regragui aperçu autour d’un café avec l’émir du Qatar**: [Link](https://www.maroc-hebdo.com/article/a-paris-walid-regragui-apercu-autour-dun-cafe-avec-lemir-du-qatar)
+- **Vidéo : l'apparition de Regragui aux côtés de l'émir du Qatar suscite des interrogations**: [Link](https://fr.news.yahoo.com/sport/vid%C3%A9o-lapparition-regragui-c%C3%B4t%C3%A9s-l%C3%A9mir-150216931.html)
+
+
+### espanyol vs real madrid standings (N/A, Sat, 22 Aug 2026 14:50:00 -0700)
+
+- **Espanyol vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmwyjzndv4xnt)
+- **Brahim Díaz called up for Mourinho’s debut**: [Link](https://mountakhab.net/en/brahim-diaz-called-up-for-mourinhos-debut/)
+- **Real Madrid Squad Announcement Against Espanyol**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/squad-call/convocatoria-del-real-madrid-contra-el-espanyol-21-08-2026)
+
+
 ### classement espanyol – real madrid (N/A, Sat, 22 Aug 2026 14:40:00 -0700)
 
 - **Suivez Espanyol Barcelone - Real Madrid En direct - Liga - 2e journée**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-espanyol-real-madrid_mtc21891448/live-commentary.shtml)
