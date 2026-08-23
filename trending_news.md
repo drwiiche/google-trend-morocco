@@ -1,3 +1,10 @@
+### اليمين الدستورية (N/A, Sat, 22 Aug 2026 21:20:00 -0700)
+
+- **ولي العهد يؤدي اليمين الدستورية نائبا للملك**: [Link](https://www.almamlakatv.com/news/207884-%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D9%87%D8%AF-%D9%8A%D8%A4%D8%AF%D9%8A-%D8%A7%D9%84%D9%8A%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D8%B3%D8%AA%D9%88%D8%B1%D9%8A%D8%A9-%D9%86%D8%A7%D8%A6%D8%A8%D8%A7-%D9%84%D9%84%D9%85%D9%84%D9%83)
+- **ولي العهد الأردني الأمير الحسين بن عبدالله الثاني يؤدي اليمين الدستورية نائباً للملك**: [Link](https://www.almashhad.news/news/490844)
+- **‏وكالة الأنباء الأردنية: ولي العهد الأردني الأمير الحسين بن عبدالله الثاني يؤدي اليمين الدستورية نائباً للملك**: [Link](https://observeriraq.net/%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%86%D8%A8%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A%D8%A9-%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D9%87%D8%AF-%D8%A7%D9%84/)
+
+
 ### el niño (N/A, Sat, 22 Aug 2026 19:00:00 -0700)
 
 - **Impactos inmediatos del fenómeno de El Niño en América Latina**: [Link](https://www.france24.com/es/video/20260821-impactos-inmediatos-del-fen%C3%B3meno-de-el-ni%C3%B1o-en-am%C3%A9rica-latina)
