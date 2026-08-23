@@ -1,3 +1,24 @@
+### ayoub bouaddi (N/A, Sun, 23 Aug 2026 06:30:00 -0700)
+
+- **INFO RMC SPORT. Mercato: Ayyoub Bouaddi va signer à Manchester City pour un transfert record de 100 millions d'euros**: [Link](https://rmcsport.bfmtv.com/football/transferts/info-rmc-sport-mercato-ayyoub-bouaddi-va-signer-a-manchester-city-pour-un-transfert-record-de-100-millions-d-euros_AV-202608230201.html)
+- **Manchester City tombe enfin d’accord avec Lille pour Ayyoub Bouaddi !**: [Link](https://www.footmercato.net/a4705086793932821962-manchester-city-tombe-enfin-daccord-avec-lille-pour-ayyoub-bouaddi)
+- **Ayoub Bouaddi à Manchester pour 100 M euros - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/08/23/ayoub-bouaddi-a-manchester-pour-100-m-euros-1742653/)
+
+
+### psv eindhoven – groningen (N/A, Sun, 23 Aug 2026 06:10:00 -0700)
+
+- **Bosz kiest voor Sano en Fernandez, Geertruida en Kostic debuteren in wedstrijdselectie**: [Link](https://www.espn.nl/voetbal/artikel/_/id/17154685/bosz-kiest-voor-sano-en-fernandez-geertruida-en-kostic-debuteren-in-wedstrijdselectie)
+- **LIVE eredivisie | Perisic zet PSV op voorsprong tegen FC Groningen, Van Bommel weer belangrijk**: [Link](https://www.ad.nl/voetbal/live-eredivisie-perisic-zet-psv-op-voorsprong-tegen-fc-groningen-van-bommel-weer-belangrijk~a4ed66bb/)
+- **PSV poetst goal Groningen weg (3-1) • Straks nog Cambuur - Feyenoord**: [Link](https://nos.nl/liveblog/2627970-psv-poetst-goal-groningen-weg-3-1-straks-nog-cambuur-feyenoord)
+
+
+### man city (N/A, Sun, 23 Aug 2026 05:40:00 -0700)
+
+- **Manchester City reportedly agree deal worth up to €100 million for Morocco’s Bouaddi**: [Link](https://en.hespress.com/144234-manchester-city-reportedly-agree-deal-worth-up-to-e100-million-for-moroccos-bouaddi.html)
+- **Ayyoub Bouaddi set to obliterate record as most expensive U19 players of all-time**: [Link](https://www.transfermarkt.com/ayyoub-bouaddi-set-to-obliterate-record-as-most-expensive-u19-players-of-all-time/view/news/484372)
+- **Ayyoub Bouaddi: Manchester City held back by Lille**: [Link](https://mountakhab.net/en/ayyoub-bouaddi-manchester-city-held-back-by-lille/)
+
+
 ### angers – lille (N/A, Sun, 23 Aug 2026 05:40:00 -0700)
 
 - **Angers - Lille, Ligue 1, match en direct le 23/08/2026**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/angers-lille-live/690259)
