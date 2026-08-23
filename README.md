@@ -1,3 +1,17 @@
+### le havre – monaco (N/A, Sun, 23 Aug 2026 08:40:00 -0700)
+
+- **Suivez Le Havre - Monaco En direct - Ligue 1 - 1ère journée**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-havre-ac-monaco_mtc21875636/live-commentary.shtml)
+- **Filipe Luís : "Le plus important est de montrer que nous sommes une équipe"**: [Link](https://www.asmonaco.com/fr/news/conference-presse-le-havre-monaco-filipe-luis-filipe-luis-le-plus-important-est-de-montrer-que-nous-sommes-une-equipe)
+- **HAC-ASM : La conférence de presse**: [Link](https://onefootball.com/fr/news/hac-asm-la-conference-de-presse-43324524)
+
+
+### atletico madrid (N/A, Sun, 23 Aug 2026 08:30:00 -0700)
+
+- **Alvarez 'changes Arsenal transfer stance after Arteta talks'**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-alvarez-transfer-latest-arteta-talks-b1294314.html)
+- **The Spider in the eye of the storm: whistles of anger surround Alvarez at the Metropolitano**: [Link](https://www.goal.com/en/news/the-spider-at-the-heart-of-the-storm-whistles-of-anger-surround-alvarez-at-the-metropolitano/bltb3ceba85a6fd6360)
+- **Simeone insists Julián Álvarez is important to Atlético de Madrid**: [Link](https://onefootball.com/en/video/simeone-insists-julian-alvarez-is-important-to-atletico-de-madrid-3IITIUwsv5PwxhnYxInFe8Jixeb)
+
+
 ### classement manchester city – bournemouth (N/A, Sun, 23 Aug 2026 08:10:00 -0700)
 
 - **DIRECT. Manchester City - Bournemouth, Premier League : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2026-2027/manchester-city-bournemouth-live/691302)
