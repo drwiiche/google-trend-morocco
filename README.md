@@ -1,3 +1,10 @@
+### el niño (N/A, Sat, 22 Aug 2026 19:00:00 -0700)
+
+- **Impactos inmediatos del fenómeno de El Niño en América Latina**: [Link](https://www.france24.com/es/video/20260821-impactos-inmediatos-del-fen%C3%B3meno-de-el-ni%C3%B1o-en-am%C3%A9rica-latina)
+- **Un fuerte fenómeno de El Niño elevará la temperatura mundial**: [Link](https://azertag.az/es/xeber/un_fuerte_fenomeno_de_el_nio_elevar_la_temperatura_mundial-4377633)
+- **Advierten que El Niño será muy fuerte: En Entre Ríos ya hay zonas en alerta**: [Link](https://despertarentrerriano.com/advierten-que-el-nino-sera-muy-fuerte-en-entre-rios-ya-hay-zonas-en-alerta/)
+
+
 ### lionel messi (N/A, Sat, 22 Aug 2026 19:30:00 -0700)
 
 - **Lionel Messi: Inter Miami star fined for slapping opponent in MLS game**: [Link](https://www.bbc.com/sport/football/articles/cz05k0j72p5o)
