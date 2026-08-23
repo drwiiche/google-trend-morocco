@@ -1,3 +1,17 @@
+### getafe – santander (N/A, Sun, 23 Aug 2026 10:30:00 -0700)
+
+- **Examen de rotaciones**: [Link](https://as.com/futbol/primera/examen-de-rotaciones-f202608-n/)
+- **Sergio Martínez repite en el once del Racing; Sazonov y Andrés, novedades del Getafe**: [Link](https://www.infobae.com/espana/agencias/2026/08/23/sergio-martinez-repite-en-el-once-del-racing-sazonov-y-andres-novedades-del-getafe/)
+- **A ver de qué pasta está hecho**: [Link](https://www.eldiariomontanes.es/deportes/racing/ver-pasta-20260823073813-nt.html)
+
+
+### الهدم (N/A, Sun, 23 Aug 2026 09:40:00 -0700)
+
+- **إعادة تهيئة حي المحيط بالرباط.. استمرار عمليات الهدم ومسار التعويضات يتقدم**: [Link](https://ar.le360.ma/societe/7AFTMHXEGRAJDOBFG3A52IGH5E/)
+- **مونديال 2030.. المغرب يترقب مكاسب تصل إلى 300 مليار درهم**: [Link](https://www.alakhbar.press.ma/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D9%85%D9%83%D8%A7%D8%B3%D8%A8-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-300-%D9%85-297528.html)
+- **مونديال 2030 في المغرب.. مشاريع فخمة على حساب الأسر المتضررة**: [Link](https://www.dz54.dz/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%B4%D8%A7%D8%B1%D9%8A%D8%B9-%D9%81%D8%AE%D9%85%D8%A9-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7/)
+
+
 ### قيس سعيد (N/A, Sun, 23 Aug 2026 10:20:00 -0700)
 
 - **رئيس الجمهورية: حجز أكثر من 80 ألف قارورة ماء معدني مخفية في مستودع**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1528123/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%AD%D8%AC%D8%B2-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-80-%D8%A3%D9%84%D9%81-%D9%82%D8%A7%D8%B1%D9%88%D8%B1%D8%A9-%D9%85%D8%A7%D8%A1-%D9%85%D8%B9%D8%AF%D9%86%D9%8A-%D9%85%D8%AE%D9%81%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%88%D8%AF%D8%B9)
