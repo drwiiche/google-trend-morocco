@@ -1,3 +1,17 @@
+### باريس سان جيرمان (N/A, Sun, 23 Aug 2026 14:10:00 -0700)
+
+- **توريس بطل ليلة باريس.. دخل والنتيجة 2-0 فقلب كل شيء في 12 دقيقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D8%A8%D8%B7%D9%84-%D9%84%D9%8A%D9%84%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3--%D8%AF%D8%AE%D9%84-%D9%88%D8%A7%D9%84%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-2-0-%D9%81%D9%82%D9%84%D8%A8-%D9%83%D9%84-%D8%B4%D9%8A%D8%A1-%D9%81%D9%8A-12-%D8%AF%D9%82%D9%8A%D9%82%D8%A9/bltdb7b06b859f074b0)
+- **حكيمي وآيت بودلال يتعادلان في فرنسا**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%A2%D9%8A%D8%AA-%D8%A8%D9%88%D8%AF%D9%84%D8%A7%D9%84-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-1796066.html)
+- **باريس سان جيرمان يستهل حملة الدفاع عن لقبه بالتعادل مع رين وتألق لافت للمهاجم فيران توريس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%AD%D9%85%D9%84%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D9%84%D9%82%D8%A8%D9%87-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%B1%D9%8A%D9%86-%D9%88%D8%AA%D8%A3%D9%84%D9%82-%D9%84%D8%A7%D9%81%D8%AA-%D9%84%D9%84%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D9%81%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-2026-08-23)
+
+
+### achraf hakimi (N/A, Sun, 23 Aug 2026 13:50:00 -0700)
+
+- **Man City agree £86m deal for teen midfielder Bouaddi**: [Link](https://www.bbc.com/sport/football/articles/clyjy0e0pkzo)
+- **Ayyoub Bouaddi transfer: Manchester City reach agreement with Lille to sign 18-year-old Morocco midfielder**: [Link](https://www.skysports.com/football/news/11095/13576242/ayyoub-bouaddi-transfer-manchester-city-reach-agreement-with-lille-to-sign-18-year-old-morocco-midfielder)
+- **Ayyoub Bouaddi is the World Cup wonderkid signing for Manchester City: ‘He destroyed everyone’ - The Athletic**: [Link](https://www.nytimes.com/athletic/7532838/2026/08/23/ayyoub-bouaddi-manchester-city-profile-transfer/)
+
+
 ### adeyemi (N/A, Sun, 23 Aug 2026 13:40:00 -0700)
 
 - **📸 Barcelona new boy nets on debut as champions double lead at Elche 🔥**: [Link](https://onefootball.com/en/news/barcelona-new-boy-nets-on-debut-as-champions-double-lead-at-elche-43327599)
