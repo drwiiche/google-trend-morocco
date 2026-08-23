@@ -1,3 +1,24 @@
+### ferran torres (N/A, Sun, 23 Aug 2026 13:30:00 -0700)
+
+- **Expectación ante el debut de Ferran Torres con el PSG**: [Link](https://www.sport.es/es/noticias/futbol-internacional/expectacion-debut-ferran-torres-psg-133570604)
+- **PSG ante Rennes: primeras de Ferran Torres y Godts; 4 bajas**: [Link](https://onefootball.com/es/noticias/psg-ante-rennes-primeras-de-ferran-torres-y-godts-4-bajas-43325023)
+- **El verano de «Oh, Ferran»**: [Link](https://www.lavozdegalicia.es/noticia/gente/2026/08/22/verano-oh-ferran/00031787403478362823382.htm)
+
+
+### hamza abdelkarim (N/A, Sun, 23 Aug 2026 13:20:00 -0700)
+
+- **Barcelone veut déjà déchirer et revaloriser le contrat de sa recrue estivale après seulement deux mois**: [Link](https://www.goal.com/fr/news/barcelone-veut-deja-dechirer-et-revaloriser-le-contrat-de-sa-recrue-estivale-apres-seulement-deux-mois/blt4640e16d91486b5d)
+- **Barça : Abdelkarim bientôt verrouillé ?**: [Link](https://m.maxifoot.fr/barca/abdelkarim-bientot-verrouille-foot-462350.htm)
+- **'Julián Álvarez ? Je n'aime pas parler des joueurs d'autres clubs'**: [Link](https://fr.besoccer.com/info/julian-alvarez-je-naime-pas-parler-des-joueurs-dautres-clubs-1425765)
+
+
+### psg (N/A, Sun, 23 Aug 2026 13:00:00 -0700)
+
+- **PSG : Luis Campos sort du silence sur le "pelouse gate" face à Rennes**: [Link](https://www.footmercato.net/a3092807295192831261-psg-luis-campos-sort-du-silence-sur-le-pelouse-gate-face-a-rennes)
+- **Le PSG a-t-il vraiment tout fait pour éviter de jouer la 1re journée de Ligue 1 à Rennes ?**: [Link](https://www.lequipe.fr/Football/Actualites/Le-psg-a-t-il-vraiment-tout-fait-pour-eviter-de-jouer-la-1re-journee-de-ligue-1-a-rennes/1712829)
+- **Pronostic Rennes - Paris Saint-Germain : Un choc au sommet**: [Link](https://www.vietnam.vn/fr/nhan-dinh-rennes-vs-paris-saint-germain-diem-nong-cuoc-dua-top-dau)
+
+
 ### la liga (N/A, Sun, 23 Aug 2026 13:10:00 -0700)
 
 - **Boufal emerges as Deportivo target for La Liga return**: [Link](https://en.hespress.com/144247-boufal-emerges-as-deportivo-target-for-la-liga-return.html)
