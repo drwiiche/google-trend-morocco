@@ -1,3 +1,17 @@
+### إيرلينغ هالاند (N/A, Sun, 23 Aug 2026 07:40:00 -0700)
+
+- **بالفيديو.. جوارديولا ردًا على مفاجأة هالاند: أتمنى لو كان لدي شعر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B1%D8%AF%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%A7%D9%94%D8%AA%D9%85%D9%86%D9%89-%D9%84%D9%88-%D9%83%D8%A7%D9%86-%D9%84%D8%AF%D9%8A-%D8%B4%D8%B9%D8%B1/blt7bb93922a61f431f)
+- **هالاند يصدم محبيه.. وينشر صوراً بقصة شعر جديدة**: [Link](https://www.alarabiya.net/sport/2026/08/23/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D8%A8%D8%AF%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A8%D8%B4%D9%83%D9%84-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B9%D9%87%D9%88%D8%AF)
+- **زلاتان طالبه بمسح رقمه .. هالاند يفاجيء إبراهيموفيتش وجوارديولا بمظهره الجديد!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B2%D9%84%D8%A7%D8%AA%D8%A7%D9%86-%D8%B7%D8%A7%D9%84%D8%A8%D9%87-%D8%A8%D9%85%D8%B3%D8%AD-%D8%B1%D9%82%D9%85%D9%87--%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D8%A1-%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85%D9%88%D9%81%D9%8A%D8%AA%D8%B4-%D9%88%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A8%D9%85%D8%B8%D9%87%D8%B1%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/blt430e117d2a3412c1)
+
+
+### belgique (N/A, Sun, 23 Aug 2026 06:50:00 -0700)
+
+- **Rentrée scolaire : les dates clés à retenir en Belgique**: [Link](https://www.lesoir.be/766503/article/2026-08-22/rentree-scolaire-les-dates-cles-retenir-en-belgique)
+- **La rentrée jeudi plutôt que lundi : la France publie son calendrier 2027-2028, la zone B va devoir s'accrocher**: [Link](https://www.presse-citron.net/la-rentree-jeudi-plutot-que-lundi-la-france-publie-son-calendrier-2027-2028-la-zone-b-va-devoir-saccrocher/)
+- **Vacances 2026 : toujours pas de rentrée à l’horizon !**: [Link](https://www.vousnousils.fr/2026/08/21/vacances-2026-toujours-pas-de-rentree-a-lhorizon-704006)
+
+
 ### newcastle – liverpool (N/A, Sun, 23 Aug 2026 07:40:00 -0700)
 
 - **Newcastle vs Liverpool Confirmed Lineups & Team News for August 23**: [Link](https://lastwordonsports.com/football/2026/08/23/newcastle-vs-liverpool-confirmed-lineups-team-news-august/)
