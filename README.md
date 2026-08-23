@@ -1,3 +1,38 @@
+### barca (N/A, Sun, 23 Aug 2026 11:30:00 -0700)
+
+- **Elche vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c60ej013yengt)
+- **LIVE: Elche vs Barcelona – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2026/8/23/live-elche-vs-barcelona-la-liga)
+- **Elche vs. Barcelona: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/elche-vs-barcelona-preview-predictions-lineups-8-23-26)
+
+
+### torino – ac milan (N/A, Sun, 23 Aug 2026 11:20:00 -0700)
+
+- **Torino vs AC Milan: Italian Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/crx2v3kzj11qt)
+- **Luca Zufferli will officiate Torino vs. Milan: His record with the Rossoneri**: [Link](https://sempremilan.com/zufferli-officiate-torino-milan-record)
+- **Torino vs AC Milan predictions: Milan won’t have it all their way**: [Link](https://www.goal.com/en-ca/betting/tips/torino-vs-ac-milan-predictions-23-08-2026/A%3Ablt3a6730524f7d273b)
+
+
+### barcelona (N/A, Sun, 23 Aug 2026 11:20:00 -0700)
+
+- **Elche - Barcelona hoy, en directo: LaLiga EA Sports, última hora en el Martínez Valero**: [Link](https://as.com/futbol/primera/elche-barcelona-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202608-d/)
+- **El posible once del Barça en Elche: un rompecabezas para Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260823/1004218665/posible-once-barca-elche-rompecabezas-flick.html)
+- **Elche - Barcelona en directo | LALIGA EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/elche-barcelona/2026/08/23/01_0101_20260823_954_178-directo.html)
+
+
+### fcb (N/A, Sun, 23 Aug 2026 11:20:00 -0700)
+
+- **Workers raise red flag at FCB**: [Link](http://www.guardian.co.tt/news/workers-raise-red-flag-at-fcb-6.2.2651563.ba088832f8)
+- **CBTT seeks answers from First Citizens**: [Link](https://trinidadexpress.com/business/local/cbtt-seeks-answers-from-first-citizens/article_b7a7a3e6-703c-4a48-b401-11372d4ea86c.html)
+- **Live ticker: Dortmund vs. FC Bayern - Franz Beckenbauer Supercup 26/27**: [Link](https://fcbayern.com/en/matches/profis/supercup/2026-2027/franz-beckenbauer-supercup-borussia-dortmund-fc-bayern-22-08-2026/liveticker)
+
+
+### barca match (N/A, Sun, 23 Aug 2026 10:40:00 -0700)
+
+- **This is more than a friendly, says Albion boss ahead of Barcelona test**: [Link](https://www.theargus.co.uk/sport/26481734.brighton-women-prepare-face-barcelona-winning-3-0/)
+- **Albion star hailed for 'golazo' as mighty Barcelona are given a Trophy test**: [Link](https://www.theargus.co.uk/sport/26487951.brightons-kiko-seike-scored-goal-night-barcelona/)
+- **How to buy Barcelona vs Al Ahly tickets: Joan Gamper Trophy 2026 prices, kick-off time & more**: [Link](https://www.goal.com/en/news/barcelona-vs-al-ahly-tickets-joan-gamper-trophy/blta1a5179f7b501362)
+
+
 ### rennes – paris-sg (N/A, Sun, 23 Aug 2026 11:00:00 -0700)
 
 - **Le PSG a-t-il vraiment tout fait pour éviter de jouer la 1re journée de Ligue 1 à Rennes ?**: [Link](https://www.lequipe.fr/Football/Actualites/Le-psg-a-t-il-vraiment-tout-fait-pour-eviter-de-jouer-la-1re-journee-de-ligue-1-a-rennes/1712829)
