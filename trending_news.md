@@ -1,3 +1,10 @@
+### inter miami vs toronto (N/A, Sat, 22 Aug 2026 17:10:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Hosts Toronto FC on Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-toronto-fc-on-saturday)
+- **Inter Miami’s winless streak hits 5 games after 2-1 loss to Toronto**: [Link](https://www.local10.com/sports/local/2026/08/22/inter-miamis-winless-streak-hits-5-games-after-2-1-loss-to-toronto/)
+- **Soccer Picks: Messi, Inter Miami Stand in the Way of Toronto FC’s Playoff Aspirations**: [Link](https://blog.betway.com/ca/soccer/soccer-picks-messi-inter-miami-stand-in-the-way-of-toronto-fcs-playoff-aspirations/)
+
+
 ### carolyn rodrigues (N/A, Sat, 22 Aug 2026 16:20:00 -0700)
 
 - **UN Secretary-General poll cuts the chaff**: [Link](https://www.economist.com/the-world-in-brief/2026/08/22/0a1ca598-4bf4-4e1d-bfe0-62b298d8c4b3)
