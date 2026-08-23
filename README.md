@@ -1,3 +1,10 @@
+### 2026 (N/A, Sun, 23 Aug 2026 01:40:00 -0700)
+
+- **The most likely Scorigami results for the 2026 NFL season**: [Link](https://www.sbnation.com/nfl/1125364/what-is-scorigami-final-score-nfl)
+- **Champions decided at the 2026 FAI F5J European Championship for Electric Powered Thermal Duration Gliders**: [Link](https://www.fai.org/news/champions-decided-2026-fai-f5j-european-championship-electric-powered-thermal-duration-gliders?type=node&id=204795)
+- **Deleted tweets show Natalie Harp’s zealous support of Trump on January 6**: [Link](https://www.cnn.com/2026/08/22/politics/deleted-tweets-trump-aide-natalie-harp-jan-6-invs)
+
+
 ### ليونيل ميسي (N/A, Sun, 23 Aug 2026 00:40:00 -0700)
 
 - **فيديو: سقوط جديد.. ميسي يسجل ويفشل في إنقاذ إنتر ميامي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B3%D9%82%D9%88%D8%B7-%D8%AC%D8%AF%D9%8A%D8%AF--%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D9%88%D9%8A%D9%81%D8%B4%D9%84-%D9%81%D9%8A-%D8%A7%D9%95%D9%86%D9%82%D8%A7%D8%B0-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A/bltf89d7602a4f7792f)
