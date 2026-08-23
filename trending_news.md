@@ -1,3 +1,10 @@
+### وليد الركراكي (N/A, Sun, 23 Aug 2026 00:50:00 -0700)
+
+- **لقاء الركراكي وأمير قطر يثير التكهنات**: [Link](https://www.hespress.com/%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%88%D8%A3%D9%85%D9%8A%D8%B1-%D9%82%D8%B7%D8%B1-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D9%83%D9%87%D9%86%D8%A7%D8%AA-1795427.html)
+- **فيديو: ظهور الركراكي برفقة أمير قطر يثير التساؤلات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%A8%D8%B1%D9%81%D9%82%D8%A9-%D8%A7%D9%94%D9%85%D9%8A%D8%B1-%D9%82%D8%B7%D8%B1-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%B3%D8%A7%D9%88%D9%94%D9%84%D8%A7%D8%AA/bltadd97993033bcbb2)
+- **فيديو لقاء أمير قطر مع وليد الركراكي في مقهى بباريس يثير تفاعلا واسعا ـ (شاهد)**: [Link](https://www.alquds.co.uk/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%82%D8%A7%D8%A1-%D8%A3%D9%85%D9%8A%D8%B1-%D9%82%D8%B7%D8%B1-%D9%85%D8%B9-%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%81%D9%8A/)
+
+
 ### 2026 (N/A, Sun, 23 Aug 2026 01:40:00 -0700)
 
 - **The most likely Scorigami results for the 2026 NFL season**: [Link](https://www.sbnation.com/nfl/1125364/what-is-scorigami-final-score-nfl)
