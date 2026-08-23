@@ -1,3 +1,24 @@
+### كريم أديمي (N/A, Sun, 23 Aug 2026 14:10:00 -0700)
+
+- **البداية بطعم التاريخ.. كريم أديمي يحقق إنجازًا نادرًا في الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A8%D8%B7%D8%B9%D9%85-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE--%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D9%94%D8%AF%D9%8A%D9%85%D9%8A-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2%D9%8B%D8%A7-%D9%86%D8%A7%D8%AF%D8%B1%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/bltae7e921066208bb4)
+- **إلتشي ضد برشلونة.. أديمي يفتتح سجله التهديفي الكتالوني**: [Link](https://al-ain.com/article/elche-vs-barcelona-karim-adeyemi-anthony-gordon)
+- **كوفاتش: أتوقع مسيرة رائعة لـ «أديمي»**: [Link](https://akhbar-alkhaleej.com/news/article/1448034)
+
+
+### أوليفييه جيرو (N/A, Sun, 23 Aug 2026 14:10:00 -0700)
+
+- **المغربي أيوب بوعدي قريب من مانشستر سيتي.. تفاصيل الصفقة**: [Link](https://www.aljazeera.net/sport/2026/8/23/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%82%D8%B1%D9%8A%D8%A8-%D9%85%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1)
+- **تفاصيل صفقة "مان سيتي وبوعدي"**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B5%D9%81%D9%82%D8%A9-%D9%85%D8%A7%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-1795814.html)
+- **قبل الرحيل.. جيرو يوجه كلمات مؤثرة لأيوب بوعدي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84--%D8%AC%D9%8A%D8%B1%D9%88-%D9%8A%D9%88%D8%AC%D9%87-%D9%83%D9%84%D9%85%D8%A7%D8%AA-%D9%85%D9%88%D9%94%D8%AB%D8%B1%D8%A9-%D9%84%D8%A7%D9%94%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A/bltc5c1a23b2ee8207f)
+
+
+### paris (N/A, Sun, 23 Aug 2026 14:00:00 -0700)
+
+- **La Ville de Paris annonce la « mise à l’abri » de 250 personnes, migrantes pour la plupart, qui étaient installées sur le parvis de la mairie de Paris Centre**: [Link](https://www.lemonde.fr/societe/article/2026/08/22/la-ville-de-paris-annonce-la-mise-a-l-abri-de-250-personnes-migrantes-pour-la-plupart-qui-etaient-installees-sur-le-parvis-de-la-mairie_6753262_3224.html)
+- **Deux gymnases réquisitionnés pour les 253 immigrés du campement évacué à Paris Centre**: [Link](https://www.frontieresmedia.fr/societe/paris-deux-gymnases-requisitionnes-pour-les-253-immigres-du-campement-evacue-a-paris-centre---19360)
+- **"Et le moral, ça va?" Dans la clinique mobile, des migrants à la rue à Paris qui craquent**: [Link](https://www.notretemps.com/depeches/et-le-moral-ca-va-dans-la-clinique-mobile-des-migrants-a-la-rue-a-paris-qui-craquent-137604)
+
+
 ### باريس سان جيرمان (N/A, Sun, 23 Aug 2026 14:10:00 -0700)
 
 - **توريس بطل ليلة باريس.. دخل والنتيجة 2-0 فقلب كل شيء في 12 دقيقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D8%A8%D8%B7%D9%84-%D9%84%D9%8A%D9%84%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3--%D8%AF%D8%AE%D9%84-%D9%88%D8%A7%D9%84%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-2-0-%D9%81%D9%82%D9%84%D8%A8-%D9%83%D9%84-%D8%B4%D9%8A%D8%A1-%D9%81%D9%8A-12-%D8%AF%D9%82%D9%8A%D9%82%D8%A9/bltdb7b06b859f074b0)
