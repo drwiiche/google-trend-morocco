@@ -1,3 +1,10 @@
+### r1c3 (N/A, Sun, 23 Aug 2026 06:50:00 -0700)
+
+- **Pronostic Quinté+ du Dimanche 23 Août - Sumbe Grand Handicap (Deauville-La Touques R1C3) : le turf décrypté comme un pronostic foot**: [Link](https://www.ruedesjoueurs.com/turf/pronostic-turf/pronostics-quinte/74221-pronostic-quinte-du-dimanche-23-aout-sumbe-grand-handicap-deauville-la-touques-r1c3-le-turf-decrypte-comme-un-pronostic-foot.html)
+- **Cassius, la base solide du Quinté+ du mardi 18 août**: [Link](https://www.equidia.fr/articles/actualite/cassius-la-base-solide-du-quinte-du-mardi-18-aout)
+- **Quinté+ du mardi 18 août à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-18-aout-a-deauville-les-pronostics-7900662634)
+
+
 ### ayoub bouaddi (N/A, Sun, 23 Aug 2026 06:30:00 -0700)
 
 - **INFO RMC SPORT. Mercato: Ayyoub Bouaddi va signer à Manchester City pour un transfert record de 100 millions d'euros**: [Link](https://rmcsport.bfmtv.com/football/transferts/info-rmc-sport-mercato-ayyoub-bouaddi-va-signer-a-manchester-city-pour-un-transfert-record-de-100-millions-d-euros_AV-202608230201.html)
