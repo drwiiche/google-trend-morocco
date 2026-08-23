@@ -1,3 +1,38 @@
+### برايتون ضد أستون فيلا (N/A, Sun, 23 Aug 2026 07:20:00 -0700)
+
+- **الجماهير تغادر.. برايتون يذل أستون فيلا في 40 دقيقة!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%AA%D8%BA%D8%A7%D8%AF%D8%B1--%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%8A%D8%B0%D9%84-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%81%D9%8A-40-%D8%AF%D9%82%D9%8A%D9%82%D8%A9/bltcf956938d4463526)
+- **برايتون ضد أستون فيلا.. 4 أهداف تصنع 31 دقيقة تاريخية**: [Link](https://al-ain.com/article/brighton-vs-aston-villa-4-goals)
+- **كيفية شراء تذاكر برايتون لموسم 2026-27: الأسعار، المباريات والمزيد**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D8%B4%D8%B1%D8%A7%D8%A1-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-27-%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF/blt8c30486ba786c387)
+
+
+### atlético madrid – villarreal (N/A, Sun, 23 Aug 2026 07:10:00 -0700)
+
+- **Atlético - Villarreal, hoy en directo: última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/atletico-villarreal-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202608-d/)
+- **Ya hay once del Atlético: la decisión de Simeone respecto a Julián Álvarez**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260823/1004218886/hay-once-atletico-decision-simeone-respecto-julian-alvarez.html)
+- **Turno para los campeones**: [Link](https://www.marca.com/futbol/atletico/2026/08/23/turno-campeones.html)
+
+
+### haaland (N/A, Sun, 23 Aug 2026 07:10:00 -0700)
+
+- **'New season, new trim' - Haaland reveals buzzcut**: [Link](https://www.bbc.com/sport/football/articles/cr4941zkgevo)
+- **In video: Guardiola responds to Haaland's surprise: I wish I had hair**: [Link](https://www.goal.com/en/news/in-video-guardiola-responds-to-haaland-surprise-i-wish-i-had-hair/blt7bb93922a61f431f)
+- **Haaland's haircut: Man City star chops off his locks for the new season**: [Link](https://www.bastillepost.com/global/article/6101011-haalands-haircut-man-city-star-chops-off-his-locks-for-the-new-season)
+
+
+### pl (N/A, Sun, 23 Aug 2026 06:30:00 -0700)
+
+- **Stałe bazy USA w Polsce coraz bliżej? Dr M. Kawa studzi emocje: Nie jest to najlepszy czas dla sojuszników**: [Link](https://www.radiomaryja.pl/informacje/stale-bazy-usa-w-polsce-coraz-blizej-dr-m-kawa-studzi-emocje-nie-jest-to-najlepszy-czas-dla-sojusznikow/)
+- **Ile będzie kosztowac baza wojsk USA w Polsce? Czy koszty się opłacą?**: [Link](https://managerplus.pl/ile-bedzie-kosztowac-baza-wojsk-usa-w-polsce-czy-koszty-sie-oplaca-67250)
+- **Tomczyk: Polskim stosunkom z USA trzeba kibicować, a nie przeszkadzać**: [Link](https://polityka.se.pl/wiadomosci/tomczyk-polskim-stosunkom-z-usa-trzeba-kibicowac-a-nie-przeszkadzac-aa-1Hnd-AjoD-Lcyy.html)
+
+
+### formula 1 (N/A, Sun, 23 Aug 2026 06:10:00 -0700)
+
+- **Max Verstappen suffers big crash in opening stages of Dutch Grand Prix**: [Link](https://www.espn.com/f1/story/_/id/49610383/max-verstappen-suffers-big-crash-opening-stages-dutch-grand-prix-formula-1-zandvoort)
+- **F1 Dutch Grand Prix LIVE RESULTS: Antonelli leads Norris after Verstappen CRASH**: [Link](https://www.thesun.co.uk/sport/40143316/f1-dutch-grand-prix-live-results-race-updates/)
+- **Formula One 2026: Antonelli leads after Verstappen crashes out of Dutch GP – live**: [Link](https://www.theguardian.com/sport/live/2026/aug/23/formula-one-2026-dutch-grand-prix-race-updates-live?page=with:block-6a8b00b88f089694d1d5afab)
+
+
 ### r1c3 (N/A, Sun, 23 Aug 2026 06:50:00 -0700)
 
 - **Pronostic Quinté+ du Dimanche 23 Août - Sumbe Grand Handicap (Deauville-La Touques R1C3) : le turf décrypté comme un pronostic foot**: [Link](https://www.ruedesjoueurs.com/turf/pronostic-turf/pronostics-quinte/74221-pronostic-quinte-du-dimanche-23-aout-sumbe-grand-handicap-deauville-la-touques-r1c3-le-turf-decrypte-comme-un-pronostic-foot.html)
