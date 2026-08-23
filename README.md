@@ -1,3 +1,24 @@
+### rennes – paris-sg (N/A, Sun, 23 Aug 2026 11:00:00 -0700)
+
+- **Le PSG a-t-il vraiment tout fait pour éviter de jouer la 1re journée de Ligue 1 à Rennes ?**: [Link](https://www.lequipe.fr/Football/Actualites/Le-psg-a-t-il-vraiment-tout-fait-pour-eviter-de-jouer-la-1re-journee-de-ligue-1-a-rennes/1712829)
+- **Rennes - PSG : les compositions probables**: [Link](https://www.footmercato.net/a1424065872673502835-rennes-psg-les-compositions-probables)
+- **PSG : Luis Enrique écarte Senny Mayulu**: [Link](https://www.foot01.com/paris/psg-luis-enrique-ecarte-senny-mayulu)
+
+
+### rennes vs psg (N/A, Sun, 23 Aug 2026 11:00:00 -0700)
+
+- **Enrique sparks a French league crisis: where is the level playing field?**: [Link](https://www.goal.com/en/news/enrique-sparks-a-french-league-crisis-where-is-the-level-playing-field/bltea1904a030177c17)
+- **Ligue 1 - Stade Rennes v Paris St Germain**: [Link](https://www.reutersconnect.com/item/ligue-1-stade-rennes-v-paris-st-germain/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOE4xRTZGQzI)
+- **Unplayable pitches and postponed fixtures: heatwaves disrupt the start of European football**: [Link](https://www.atalayar.com/en/articulo/sports/unplayable-pitches-and-postponed-fixtures-heatwaves-disrupt-the-start-of-european-football/20260821133032228546.html)
+
+
+### barca vs (N/A, Sun, 23 Aug 2026 11:00:00 -0700)
+
+- **Elche - Barcelona hoy, en directo: LaLiga EA Sports, última hora en el Martínez Valero**: [Link](https://as.com/futbol/primera/elche-barcelona-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202608-d/)
+- **El posible once del Barça en Elche: un rompecabezas para Flick**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260823/1004218665/posible-once-barca-elche-rompecabezas-flick.html)
+- **¿Juega Lamine Yamal? Las alineaciones de Elche y Barcelona por la fecha 2 de LaLiga**: [Link](https://bolavip.com/ar/europa/juega-lamine-yamal-las-alineaciones-de-elche-y-barcelona-por-la-fecha-2-de-laliga)
+
+
 ### الأهلي ضد الشرقية إنبي (N/A, Sun, 23 Aug 2026 10:40:00 -0700)
 
 - **ما القنوات الناقلة لمباراة الأهلي والشرقية إنبي في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9-%D8%A7%D9%95%D9%86%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt914e30f9e36476b0)
