@@ -1,3 +1,24 @@
+### la liga (N/A, Sun, 23 Aug 2026 13:10:00 -0700)
+
+- **Boufal emerges as Deportivo target for La Liga return**: [Link](https://en.hespress.com/144247-boufal-emerges-as-deportivo-target-for-la-liga-return.html)
+- **Sofiane Boufal wanted by Deportivo La Coruña after Le Havre spell**: [Link](https://africasoccer.com/deportivo-la-coruna-sofiane-boufal-transfer/)
+- **Sofiane Boufal linked with LaLiga return at Deportivo La Coruna**: [Link](https://africasoccer.com/sofiane-boufal-linked-with-laliga-return-at-deportivo-la-coruna/)
+
+
+### pronostics quinté (N/A, Sun, 23 Aug 2026 13:10:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour dimanche 23 août - Grand Handicap**: [Link](https://www.lalsace.fr/sport/2026/08/22/les-pronostics-de-l-alsace-pour-dimanche-23-aout-grand-handicap)
+- **Les pronos hippiques du dimanche 23 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-23-aout-2026_AN-202608220250.html)
+- **Quinté du dimanche 23 août à Deauville : « L’importance de gagner en visibilité », selon le jockey Olivier d’Andigné**: [Link](https://www.leparisien.fr/sports/hippisme/quinte-du-dimanche-23-aout-a-deauville-limportance-de-gagner-en-visibilite-selon-le-jockey-olivier-dandigne-22-08-2026-QUGWBKLA65FIPFWCGHWO6PZ2TI.php)
+
+
+### meryem du maroc (N/A, Sun, 23 Aug 2026 12:40:00 -0700)
+
+- **S.A.R. la Princesse Lalla Meryem reçoit les enfants maqdessis participant aux colonies de vacances de l’Agence Bayt Mal Al-Qods Acharif**: [Link](https://lematin.ma/nation/sar-la-princesse-lalla-meryem-recoit-les-enfants-maqdessis/361818)
+- **Sur ordre du Roi, la Princesse Lalla Meryem reçoit des enfants de Jérusalem participant au camp d'été du Maroc**: [Link](https://fr.hibapress.com/news-268013.html)
+- **Les colonies de vacances de l’Agence Bayt Mal Al-Qods confortent l’impact concret des efforts du Comité Al-Qods, présidé par SM le Roi, en faveur de la Ville Sainte et de ses habitants**: [Link](https://lareleve.ma/201874/)
+
+
 ### karim adeyemi (N/A, Sun, 23 Aug 2026 12:50:00 -0700)
 
 - **Good News for Flick: Barcelona Registers Four New Signings Before Elche Clash**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/good-news-for-flick-barcelona-registers-four-new-signings-before-elche-clash-2026-08-22)
