@@ -1,3 +1,38 @@
+### newcastle – liverpool (N/A, Sun, 23 Aug 2026 07:40:00 -0700)
+
+- **Newcastle vs Liverpool Confirmed Lineups & Team News for August 23**: [Link](https://lastwordonsports.com/football/2026/08/23/newcastle-vs-liverpool-confirmed-lineups-team-news-august/)
+- **Liverpool confirmed lineup for Premier League opener vs Newcastle United: Jérémy Jacquet debuts**: [Link](https://rushthekop.com/liverpool-confirmed-lineup-for-premier-league-opener-vs-newcastle-united-jeremy-jacquet-debuts-01m0pwk057dz)
+- **Newcastle vs. Liverpool—Premier League: Live Score and Match Stats**: [Link](https://www.si.com/soccer/newcastle-vs-liverpool-premier-league-live-score-match-stats-8-23-26)
+
+
+### niu lai (N/A, Sun, 23 Aug 2026 07:40:00 -0700)
+
+- **How a low-budget fever dream sparked a Chinese box office revolt**: [Link](https://www.reuters.com/world/asia-pacific/how-low-budget-fever-dream-sparked-chinese-box-office-revolt-2026-08-20/)
+- **Niu Lai: Movie that went viral for terrible animation becomes China box office hit**: [Link](https://www.bbc.com/news/articles/c4g4r0mrmlpo)
+- **Bad Plot, Worse Graphics: Chinese Moviegoers Flock to a Low-Budget Hit**: [Link](https://www.nytimes.com/2026/08/20/world/asia/niu-lai-chinese-movie-box-office.html)
+
+
+### أتلتيكو مدريد ضد فياريال (N/A, Sun, 23 Aug 2026 07:30:00 -0700)
+
+- **سيميوني يضم ألفاريز لقائمة مباراة فياريال رغم رغبته في الرحيل**: [Link](https://alomksport.com/106925.html)
+- **توقعات مباراة أتلتيكو مدريد وفياريال: نقطة ساخنة في سباق الصدارة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-atletico-madrid-vs-villarreal-diem-nong-cuoc-dua-top-dau)
+- **وسط جدال انتقاله إلى برشلونة.. ألفاريز بديلا في تشكيل أتلتيكو أمام فياريال**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=23082026&id=fbb6f691-5ae6-4275-9fa6-c6403b4a866b)
+
+
+### atlético madrid vs villarreal (N/A, Sun, 23 Aug 2026 07:30:00 -0700)
+
+- **Atletico Madrid vs Villarreal predictions: Can Atleti avenge the loss?**: [Link](https://www.goal.com/en-ca/betting/tips/atletico-madrid-vs-villarreal-predictions-23-08-2026/A%3Ablte1521a18a376a21f)
+- **Villarreal’s record at Atlético, two recent wins but latest meeting ended 2-0**: [Link](https://onefootball.com/en/news/villarreals-record-at-atletico-two-recent-wins-but-latest-meeting-ended-2-0-43325342)
+- **European Soccer Expert Picks & Predictions for (8/23)**: [Link](https://www.bettingnews.com/articles/soccer/can-atletico-block-out-the-alvarez-noise-expert-picks-on-the-pitch-today/)
+
+
+### barcelone (N/A, Sun, 23 Aug 2026 07:00:00 -0700)
+
+- **Flick, l’âge de se faire une raison ?**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/liga-1e-journee-a-laube-de-sa-troisieme-saison-avec-le-barca-est-il-lheure-pour-hansi-flick-de-devenir-raisonnable_sto23330225/story.shtml)
+- **Elche - FC Barcelone, La Liga, match en direct le 23/08/2026**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/elche-fc-barcelone-live/693090)
+- **Barça, coup dur confirmé**: [Link](https://www.football365.fr/barca-coup-dur-confirme-10309952.html)
+
+
 ### برايتون ضد أستون فيلا (N/A, Sun, 23 Aug 2026 07:20:00 -0700)
 
 - **الجماهير تغادر.. برايتون يذل أستون فيلا في 40 دقيقة!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%AA%D8%BA%D8%A7%D8%AF%D8%B1--%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%8A%D8%B0%D9%84-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%81%D9%8A-40-%D8%AF%D9%82%D9%8A%D9%82%D8%A9/bltcf956938d4463526)
