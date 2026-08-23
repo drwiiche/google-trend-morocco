@@ -1,3 +1,17 @@
+### karim adeyemi (N/A, Sun, 23 Aug 2026 12:50:00 -0700)
+
+- **Good News for Flick: Barcelona Registers Four New Signings Before Elche Clash**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/good-news-for-flick-barcelona-registers-four-new-signings-before-elche-clash-2026-08-22)
+- **Final session before La Liga opener**: [Link](https://www.fcbarcelona.com/en/news/4564703/final-session-before-la-liga-opener)
+- **How Barcelona's lever-pulling president Joan Laporta survived calls to step down to signing Anthony Gordon, Karim Adeyemi, Rodri and maybe even Julian Alvarez**: [Link](https://www.goal.com/en-gb/originals/barcelona-joan-laporta-financial-levers-signing-anthony-gordon-karim-adeyemi-rodri-julian-alvarez/blt8165768a8f835eb5)
+
+
+### بث مباشر (N/A, Sun, 23 Aug 2026 12:40:00 -0700)
+
+- **السعودية تحول تحدي نقل كأس العالم للرياضات الإلكترونية إلى اختبار ناجح في باريس**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%AD%D9%88%D9%84-%D8%AA%D8%AD%D8%AF%D9%8A-%D9%86%D9%82%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D9%84%D9%83%D8%AA%D8%B1%D9%88%D9%86%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%86%D8%A7%D8%AC%D8%AD-%D9%81%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-13375)
+- **لأول مرة خارج السعودية...ماكرون وبن سلمان يحضران الحفل الختامي لمونديال الألعاب الإلكترونية بباريس**: [Link](https://www.france24.com/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/20260823-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D9%86-%D8%B3%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%AE%D8%AA%D8%A7%D9%85%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%A5%D9%84%D9%83%D8%AA%D8%B1%D9%88%D9%86%D9%8A%D8%A9-%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9)
+- **صناعة الألعاب الإلكترونية عالميا تتجاوز السينما والموسيقى معا**: [Link](https://www.independentarabia.com/node/656357/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%88%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A%D8%A9/%D8%B5%D9%86%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%A5%D9%84%D9%83%D8%AA%D8%B1%D9%88%D9%86%D9%8A%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A7-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A7%D9%84%D8%B3%D9%8A%D9%86%D9%85%D8%A7-%D9%88%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%8A%D9%82%D9%89)
+
+
 ### bein live (N/A, Sun, 23 Aug 2026 12:40:00 -0700)
 
 - **Espanyol vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmwyjzndv4xnt)
