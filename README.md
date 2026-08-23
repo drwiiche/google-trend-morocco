@@ -1,3 +1,10 @@
+### lionel messi (N/A, Sat, 22 Aug 2026 19:30:00 -0700)
+
+- **Lionel Messi: Inter Miami star fined for slapping opponent in MLS game**: [Link](https://www.bbc.com/sport/football/articles/cz05k0j72p5o)
+- **Will Cavan Sullivan Play for Philadelphia Union vs. Austin FC After Red Card Drama?**: [Link](https://www.livescore.com/en/news/football/more/will-cavan-sullivan-play-for-philadelphia-union-vs-austin-fc-after-red-card-drama-si/)
+- **Cavan Sullivan: From rescinded red to goal with his head**: [Link](https://sports.yahoo.com/articles/cavan-sullivan-rescinded-red-goal-024700747.html)
+
+
 ### inter miami vs toronto (N/A, Sat, 22 Aug 2026 17:10:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Hosts Toronto FC on Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-toronto-fc-on-saturday)
