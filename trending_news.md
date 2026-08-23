@@ -1,3 +1,24 @@
+### قيس سعيد (N/A, Sun, 23 Aug 2026 10:20:00 -0700)
+
+- **رئيس الجمهورية: حجز أكثر من 80 ألف قارورة ماء معدني مخفية في مستودع**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1528123/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%AD%D8%AC%D8%B2-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-80-%D8%A3%D9%84%D9%81-%D9%82%D8%A7%D8%B1%D9%88%D8%B1%D8%A9-%D9%85%D8%A7%D8%A1-%D9%85%D8%B9%D8%AF%D9%86%D9%8A-%D9%85%D8%AE%D9%81%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%88%D8%AF%D8%B9)
+- **سعيد يندد بتأجيج الأوضاع في تونس عبر قطع الماء والكهرباء**: [Link](https://www.alquds.co.uk/%D8%B3%D8%B9%D9%8A%D8%AF-%D9%8A%D9%86%D8%AF%D8%AF-%D8%A8%D8%AA%D8%A3%D8%AC%D9%8A%D8%AC-%D8%A7%D9%84%D8%A3%D9%88%D8%B6%D8%A7%D8%B9-%D9%81%D9%8A-%D8%AA%D9%88%D9%86%D8%B3-%D8%B9%D8%A8%D8%B1-%D9%82%D8%B7/)
+- **عاجل: قيس سعيّد يفتح ملف قصان الضو ويكشف تفاصيل حجز 80 ألف دبوزة ماء**: [Link](https://www.tuniscope.com/ar/article/438665/actu-arabe/arabe/viste-35445611)
+
+
+### zeturf pronostics (N/A, Sun, 23 Aug 2026 10:20:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour dimanche 23 août - Grand Handicap**: [Link](https://www.lalsace.fr/sport/2026/08/22/les-pronostics-de-l-alsace-pour-dimanche-23-aout-grand-handicap)
+- **Les pronos hippiques du dimanche 23 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-23-aout-2026_AN-202608220250.html)
+- **Quinté du dimanche 23 août à Deauville : « L’importance de gagner en visibilité », selon le jockey Olivier d’Andigné**: [Link](https://www.leparisien.fr/sports/hippisme/quinte-du-dimanche-23-aout-a-deauville-limportance-de-gagner-en-visibilite-selon-le-jockey-olivier-dandigne-22-08-2026-QUGWBKLA65FIPFWCGHWO6PZ2TI.php)
+
+
+### julián alvarez (N/A, Sun, 23 Aug 2026 10:10:00 -0700)
+
+- **Pitada retumbante a Julián en su vuelta al Metropolitano**: [Link](https://as.com/futbol/asi-ha-sido-el-recibimiento-del-metropolitano-a-julian-alvarez-pitada-cuando-mencionaban-su-nombre-f202608-n/)
+- **El Metropolitano sentencia a Julián Álvarez y reaviva las dudas sobre el futuro del crack y el Barça**: [Link](https://www.sport.es/es/noticias/barca/metropolitano-sentencia-julian-alvarez-reaviva-133590157)
+- **Cerezo atiza al Barça por el tema Julián: "No han estado a la altura"**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260823/1004218898/cerezo-atiza-barca-tema-julian-no-han-altura.html)
+
+
 ### al ahly – enppi (N/A, Sun, 23 Aug 2026 09:50:00 -0700)
 
 - **Amrouche surprises everyone: Al-Ahly's line-up against El-Sharkia El-Sherqia at kick-off**: [Link](https://www.goal.com/en-za/news/amrouche-surprises-everyone-al-ahly-s-line-up-against-el-sharkia-el-sherqia-at-kick-off/blt2b6c55e140a9566c)
