@@ -1,3 +1,10 @@
+### al ahly – enppi (N/A, Sun, 23 Aug 2026 09:50:00 -0700)
+
+- **Amrouche surprises everyone: Al-Ahly's line-up against El-Sharkia El-Sherqia at kick-off**: [Link](https://www.goal.com/en-za/news/amrouche-surprises-everyone-al-ahly-s-line-up-against-el-sharkia-el-sherqia-at-kick-off/blt2b6c55e140a9566c)
+- **Sunday football: Al Ahly start league campaign as Liverpool and Barcelona feature**: [Link](https://africasoccer.com/sunday-football-al-ahly-start-league-campaign-as-liverpool-and-barcelona-feature/)
+- **Head-to-Head: Al Ahly vs. ENPPI Ahead of Their First M…**: [Link](https://www.ysscores.com/en/news/14025527/head-to-head-al-ahly-vs-enppi-ahead-of-their-first-match-post-merger)
+
+
 ### frosinone – juventus (N/A, Sun, 23 Aug 2026 09:00:00 -0700)
 
 - **Frosinone Juve in tv e streaming: dove vedere la partita**: [Link](https://sport.sky.it/calcio/serie-a/2026/08/23/frosinone-juventus-dove-vedere-tv-streaming)
