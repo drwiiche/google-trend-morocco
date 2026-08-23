@@ -1,3 +1,45 @@
+### مان سيتي ضد بورنموث (N/A, Sun, 23 Aug 2026 05:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة مانشستر سيتي وبورنموث في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt83840c61507f1d39)
+- **بطولة إنكلترا: دوكو يغيب عن سيتي بين "أسبوعين وثلاثة" بسبب الإصابة**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260821-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%AF%D9%88%D9%83%D9%88-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A8%D9%8A%D9%86-%D8%A3%D8%B3%D8%A8%D9%88%D8%B9%D9%8A%D9%86-%D9%88%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9)
+- **تشكيل مانشستر سيتي ضد بورنموث فى الدوري الإنجليزي.. عمر مرموش احتياطيًا**: [Link](https://www.youm7.com/story/2026/8/23/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B6%D8%AF-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%B9%D9%85%D8%B1-%D9%85%D8%B1%D9%85%D9%88%D8%B4/7522121)
+
+
+### brighton – aston villa (N/A, Sun, 23 Aug 2026 05:30:00 -0700)
+
+- **‘This is just the beginning’ – Pau**: [Link](https://www.avfc.co.uk/news/2026/august/22/interview-prematch--this-is-just-the-beginning----pau/)
+- **Gomez, David + Minteh: Brighton injury latest for FPL Gameweek 1**: [Link](https://www.fantasyfootballscout.co.uk/2026/08/21/gomez-david-minteh-brighton-injury-latest-for-fpl-gameweek-1/)
+- **Kwiff Premier League Offer: Bet £10, Get £40 for Brighton v Aston Villa**: [Link](https://www.oddschecker.com/insight/football/23082026-kwiff-premier-league-offer-bet-10-get-40-for-brighton-v-aston-villa)
+
+
+### رياض محرز (N/A, Sun, 23 Aug 2026 05:30:00 -0700)
+
+- **صفقة مفاجئة.. هل ينتقل رياض محرز إلى الوداد المغربي؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D9%81%D9%82%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94%D8%A9--%D9%87%D9%84-%D9%8A%D9%86%D8%AA%D9%82%D9%84-%D8%B1%D9%8A%D8%A7%D8%B6-%D9%85%D8%AD%D8%B1%D8%B2-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/bltcfd1c40cb27b1db5)
+- **محرز ومستقبله.. هل يلعب مع حكيم زياش؟**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%AD%D8%B1%D8%B2-%D9%88%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84%D9%87-%D9%87%D9%84-%D9%8A%D9%84%D8%B9%D8%A8-%D9%85%D8%B9-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4)
+- **رياض محرز يحسمها...هذا ما قاله عن الانتقال إلى الوداد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D8%B6-%D9%85%D8%AD%D8%B1%D8%B2-%D9%8A%D8%AD%D8%B3%D9%85%D9%87%D8%A7%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D9%82%D8%A7%D9%84%D9%87-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF/24412)
+
+
+### manchester city – bournemouth (N/A, Sun, 23 Aug 2026 05:20:00 -0700)
+
+- **Manchester City v Bournemouth: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/aug/23/manchester-city-v-bournemouth-premier-league-live)
+- **Guéhi and Lewis come in for opening clash of Premier League season**: [Link](https://www.mancity.com/news/mens/manchester-city-v-bournemouth-team-news-tactics-63923078)
+- **Manchester City vs AFC Bournemouth Prediction: Where to Watch, Kick-off Time and Lineups Today 23/08**: [Link](https://oddsscanner.com/predictions/football/manchester-city-x-afc-bournemouth-23-08-2026)
+
+
+### عمار بلاني (N/A, Sun, 23 Aug 2026 05:20:00 -0700)
+
+- **عمار بلاني يرد على المرزوقي: الجزائر غير مسؤولة عن "الموت السريري" للاتحاد المغاربي والبحث عن منفذ إلى الأطلسي خدعة مغربية**: [Link](https://www.alquds.co.uk/%D8%B9%D9%85%D8%A7%D8%B1-%D8%A8%D9%84%D8%A7%D9%86%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B1%D8%B2%D9%88%D9%82%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%BA%D9%8A/)
+- **قضية الصحراء تشعل الجدل.. رئيس تونس يوجه اتهاماً ثقيلاً للجزائر ويحذر من مواجهة مع المغرب**: [Link](https://maghrebtimes.ma/2026/08/20/%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%AA%D9%88%D9%86%D8%B3-%D9%8A%D9%88%D8%AC%D9%87/)
+- **دبلوماسية مغربية مزدوجة مع الجزائر**: [Link](https://www.awras.com/video/%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%85%D8%B2%D8%AF%D9%88%D8%AC%D8%A9-%D9%85%D8%B9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1/)
+
+
+### bouaddi (N/A, Sun, 23 Aug 2026 05:10:00 -0700)
+
+- **Ayyoub Bouaddi: Manchester City held back by Lille**: [Link](https://mountakhab.net/en/ayyoub-bouaddi-manchester-city-held-back-by-lille/)
+- **Manchester City Agree €100M Deal for Ayyoub Bouaddi**: [Link](https://www.moroccoworldnews.com/2026/08/335768/manchester-city-agree-e100m-deal-for-ayyoub-bouaddi/)
+- **Manchester City pay a huge fee of €100 million for Rodri successor**: [Link](https://www.livescore.com/en/news/football/premier-league/manchester-city-pay-a-huge-fee-of-100-million-for-rodri-successor-goal/)
+
+
 ### f1 (N/A, Sun, 23 Aug 2026 02:30:00 -0700)
 
 - **Why Williams problems are worse than previously known**: [Link](https://www.autosport.com/f1/news/why-williams-problems-are-worse-than-previously-known/10848229/)
