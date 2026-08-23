@@ -1,3 +1,22 @@
+### إبراهيم دياز (N/A, Sun, 23 Aug 2026 15:00:00 -0700)
+
+- **براهيم دياز يتابع انتصار ريال مدريد على إسبانيول من مقاعد البدلاء**: [Link](https://mountakhab.net/ar/%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%AA%D8%A7%D8%A8%D8%B9-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B9%D9%84/)
+- **مورينيو يصدم إبراهيم دياز في افتتاح “الليغا”**: [Link](https://www.alayam24.com/articles-638177.html)
+- **دياز يتصدر قائمة ريال مدريد بعد عودة مورينهو في موسم جديد**: [Link](https://ar.sport.le360.ma/football/QUH354VDWFCSFAQBDBBX2SJJC4/)
+
+
+### elche - barcellona (N/A, Sun, 23 Aug 2026 15:00:00 -0700)
+
+- **Pronostico Elche-Barcellona: un match imperdibile nella corsa al vertice.**: [Link](https://www.vietnam.vn/it/nhan-dinh-elche-vs-barcelona-diem-nong-cuoc-dua-top-dau)
+- **Capitan Raphinha scatenato: il Barcellona apre la stagione con una manita!**: [Link](https://www.corrieredellosport.it/news/calcio/calcio-estero/liga/barcellona/2026/08/23-150758336/capitan_raphinha_scatenato_il_barcellona_apre_la_stagione_con_una_manita_)
+- **Manita del Barcellona in Liga, l'Atletico fa 2-2 col Villareal**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/08/23/manita-del-barcellona-in-liga-latletico-fa-2-2-col-villareal_cb316106-cc4c-4a28-9e33-57c39a227ae1.html)
+
+
+### classement elche club de fútbol – fc barcelone (N/A, Sun, 23 Aug 2026 14:40:00 -0700)
+
+
+
+
 ### chine (N/A, Sun, 23 Aug 2026 14:40:00 -0700)
 
 - **(Multimédia) La sonde chinoise Chang'e-7 ne sera pas lancée cette année pendant la fenêtre de lancement prévue**: [Link](https://french.news.cn/20260823/78ba7eeb85804e55b190b23eec31db56/c.html)
