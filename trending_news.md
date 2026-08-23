@@ -1,3 +1,22 @@
+### bein live (N/A, Sun, 23 Aug 2026 12:40:00 -0700)
+
+- **Espanyol vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmwyjzndv4xnt)
+- **Real Madrid strike late to give José Mourinho winning return**: [Link](https://www.espn.com/soccer/story/_/id/49694751/jose-mourinho-real-madrid-espanyol-laliga-bellingham-carlos-espi)
+- **Jose Mourinho has his day on Real Madrid return – but galactico issues still there - The Athletic**: [Link](https://www.nytimes.com/athletic/7532162/2026/08/23/real-madrid-espanyol-jose-mourinho-analysis/)
+
+
+### yalla kora (N/A, Sun, 23 Aug 2026 12:30:00 -0700)
+
+- **فيديو: حمد الله يضرب رقم السومة.. ويقترب من العرش التاريخي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D8%B3%D9%88%D9%85%D8%A9--%D9%88%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A/blt83bda50a9d0e5e39)
+- **حمدالله ثاني لاعب يسجل مع 4 أندية في الدوري السعودي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%AB%D8%A7%D9%86%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D9%8A%D8%B3%D8%AC%D9%84-%D9%85%D8%B9-4-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/24408)
+- **حمد الله يواصل تحطيم الأرقام في السعودية ويقترب من الانفراد بصدارة تاريخية**: [Link](https://barlamane.com/%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AA%D8%AD%D8%B7%D9%8A%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF/)
+
+
+### yallakora (N/A, Sun, 23 Aug 2026 12:30:00 -0700)
+
+
+
+
 ### elche vs barcelona (N/A, Sun, 23 Aug 2026 12:00:00 -0700)
 
 - **Elche - Barcelona hoy, en directo: LaLiga EA Sports, última hora en el Martínez Valero**: [Link](https://as.com/futbol/primera/elche-barcelona-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202608-d/)
