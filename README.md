@@ -1,3 +1,17 @@
+### الأهلي ضد الشرقية إنبي (N/A, Sun, 23 Aug 2026 10:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي والشرقية إنبي في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9-%D8%A7%D9%95%D9%86%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt914e30f9e36476b0)
+- **هدف مروان عطية العالمي في مرمي الشرقية انبي بالدوري المصري**: [Link](https://www.btolat.com/video/94408)
+- **موعد عودة إمام عاشور لقائمة الأهلي بعد غيابه عن الوديات وافتتاحية الدوري**: [Link](https://www.elwatannews.com/news/details/8344509)
+
+
+### atletico (N/A, Sun, 23 Aug 2026 10:10:00 -0700)
+
+- **Alvarez 'changes Arsenal transfer stance after Arteta talks'**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-alvarez-transfer-latest-arteta-talks-b1294314.html)
+- **The Spider in the eye of the storm: whistles of anger surround Alvarez at the Metropolitano**: [Link](https://www.goal.com/en/news/the-spider-at-the-heart-of-the-storm-whistles-of-anger-surround-alvarez-at-the-metropolitano/bltb3ceba85a6fd6360)
+- **Simeone insists Julián Álvarez is important to Atlético de Madrid**: [Link](https://onefootball.com/it/video/simeone-insists-julian-alvarez-is-important-to-atletico-de-madrid-43323053)
+
+
 ### getafe – santander (N/A, Sun, 23 Aug 2026 10:30:00 -0700)
 
 - **Examen de rotaciones**: [Link](https://as.com/futbol/primera/examen-de-rotaciones-f202608-n/)
