@@ -1,3 +1,31 @@
+### elche vs barcelona (N/A, Sun, 23 Aug 2026 12:00:00 -0700)
+
+- **Elche - Barcelona hoy, en directo: LaLiga EA Sports, última hora en el Martínez Valero**: [Link](https://as.com/futbol/primera/elche-barcelona-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202608-d/)
+- **Primer once liguero de Flick, con sorpresa**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260823/1004218965/primer-once-liguero-flick-sorpresa.html)
+- **🚨 ¡YA CASI EMPIEZA! ¡IMPERDIBLE! 🚨 Así podrás ver EN VIVO el Elche vs Barcelona en LaLiga HOY 🏆 A esta HORA inicia... 🔥**: [Link](https://www.facebook.com/MilenioDiario/posts/-ya-casi-empieza-imperdible-as%C3%AD-podr%C3%A1s-ver-en-vivo-el-elche-vs-barcelona-en-lali/1583150403842425/)
+
+
+### إلتشيه ضد برشلونة (N/A, Sun, 23 Aug 2026 12:00:00 -0700)
+
+- **فليك يفاجئ الجميع في ضربة البداية.. إعلان التشكيلة الرسمية لمواجهة إلتشي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D9%81%D9%8A-%D8%B6%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9--%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%95%D9%84%D8%AA%D8%B4%D9%8A/blta6a653ee0bee7682)
+- **مباشر مباراة برشلونة ضد إلتشي في الدوري الإسباني 2026-2027**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/23/%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-vs-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **مُدعماً بأسلحته الجديدة... برشلونة يبدأ رحلة الدفاع عن عرشه بمواجهة إلتشي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85-%D8%AF%D8%B9%D9%85%D8%A7-%D8%A8%D8%A3%D8%B3%D9%84%D8%AD%D8%AA%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D8%B9%D8%B1%D8%B4%D9%87-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-2026-08-23)
+
+
+### نادي الرجاء الرياضي (N/A, Sun, 23 Aug 2026 11:50:00 -0700)
+
+- **البرتغالي هوخا يوقع للرجاء حتى 2029**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D9%87%D9%88%D8%AE%D8%A7-%D9%8A%D9%88%D9%82%D8%B9-%D9%84%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%AD%D8%AA%D9%89-2029-1795327.html)
+- **رسميا...الرجاء الرياضي يعلن تعاقده مع الغاني أغبيكبورنو**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B9%D8%A7%D9%82%D8%AF%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D8%BA%D8%A7%D9%86%D9%8A-%D8%A3%D8%BA%D8%A8%D9%8A%D9%83%D8%A8%D9%88%D8%B1%D9%86%D9%88/24406)
+- **الرجاء يتعاقد مع البرتغالي ماريان هوخا لثلاثة مواسم**: [Link](https://assabah.ma/945308.html)
+
+
+### elche – barcelone (N/A, Sun, 23 Aug 2026 11:40:00 -0700)
+
+- **Elche - FC Barcelone, La Liga, match en direct le 23/08/2026**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/elche-fc-barcelone-live/693090)
+- **Elche-Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a6816429553859316825-elche-barcelone-les-compositions-officielles)
+- **Flick, l’âge de se faire une raison ?**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/liga-1e-journee-a-laube-de-sa-troisieme-saison-avec-le-barca-est-il-lheure-pour-hansi-flick-de-devenir-raisonnable_sto23330225/story.shtml)
+
+
 ### barca (N/A, Sun, 23 Aug 2026 11:30:00 -0700)
 
 - **Elche vs Barcelona: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c60ej013yengt)
