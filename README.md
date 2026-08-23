@@ -1,3 +1,17 @@
+### chine (N/A, Sun, 23 Aug 2026 14:40:00 -0700)
+
+- **(Multimédia) La sonde chinoise Chang'e-7 ne sera pas lancée cette année pendant la fenêtre de lancement prévue**: [Link](https://french.news.cn/20260823/78ba7eeb85804e55b190b23eec31db56/c.html)
+- **La Chine part à la recherche de glace lunaire dans l’un des endroits les plus froids du système solaire**: [Link](https://www.boursorama.com/bourse/actualites/la-chine-part-a-la-recherche-de-glace-lunaire-dans-l-un-des-endroits-les-plus-froids-du-systeme-solaire-0abbabbd3166f86b33562b8699e16cc7)
+- **Avec Chang’e 7, la Chine va chercher de l’eau au Pôle sud de la Lune**: [Link](https://www.cite-espace.com/actualites-spatiales/avec-change-7-la-chine-va-chercher-de-leau-au-pole-sud-de-la-lune/)
+
+
+### xavi espart (N/A, Sun, 23 Aug 2026 13:10:00 -0700)
+
+- **‘Become a legend’ – Barcelona fans stunned with level of latest breakthrough youngster vs Elche**: [Link](https://ca.sports.yahoo.com/news/become-legend-barcelona-fans-stunned-214000859.html)
+- **Barcelona Coach Flick Has A New Midfielder Ahead Of Elche Debut**: [Link](https://www.forbes.com/sites/tomsanderson/2026/08/22/barcelona-coach-flick-has-a-new-midfielder-ahead-of-elche-debut/)
+- **Barcelona youngster set for a surprise start at left-back vs Elche CF**: [Link](https://barcauniversal.com/barcelona-youngster-set-for-a-surprise-start-at-left-back-vs-elche-cf/)
+
+
 ### كريم أديمي (N/A, Sun, 23 Aug 2026 14:10:00 -0700)
 
 - **البداية بطعم التاريخ.. كريم أديمي يحقق إنجازًا نادرًا في الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A8%D8%B7%D8%B9%D9%85-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE--%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D9%94%D8%AF%D9%8A%D9%85%D9%8A-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2%D9%8B%D8%A7-%D9%86%D8%A7%D8%AF%D8%B1%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/bltae7e921066208bb4)
