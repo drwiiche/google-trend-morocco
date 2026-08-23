@@ -1,3 +1,10 @@
+### quinté du jour (N/A, Sun, 23 Aug 2026 00:40:00 -0700)
+
+- **13 Prince des Villes - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-13-prince-des-villes-130370.html)
+- **Quinté du dimanche 23 août 2026 à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-dimanche-23-aout-2026-a-deauville-les-pronostics-7900663989)
+- **Les pronos hippiques du dimanche 23 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-23-aout-2026_AN-202608220250.html)
+
+
 ### cédric sbirrazzuoli (N/A, Sun, 23 Aug 2026 01:50:00 -0700)
 
 - **"La boucle est bouclée" : l'épouse de Cédric Sbirrazzuoli révèle les circonstances bouleversantes de sa mort**: [Link](https://lanouvelletribune.info/2026/08/la-boucle-est-bouclee-lepouse-de-cedric-sbirrazzuoli-revele-les-circonstances-bouleversantes-de-sa-mort/)
