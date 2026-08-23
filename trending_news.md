@@ -1,3 +1,24 @@
+### classement manchester city – bournemouth (N/A, Sun, 23 Aug 2026 08:10:00 -0700)
+
+- **DIRECT. Manchester City - Bournemouth, Premier League : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2026-2027/manchester-city-bournemouth-live/691302)
+- **Manchester City - Bournemouth en direct : suivez la Premier League 2026-2027**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-manchester-city-afc-bournemouth_mtc21883286/live-commentary.shtml)
+- **Galerie : derniers préparatifs avant les débuts en Premier League**: [Link](https://fr.mancity.com/news/mens/galerie-les-derniers-preparatifs-avant-les-debuts-en-premier-league-63923000)
+
+
+### نيوكاسل يونايتد ضد ليفربول (N/A, Sun, 23 Aug 2026 08:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة نيوكاسل وليفربول في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf7b9403714475c2f)
+- **"الأمور صعبة" .. مدرب ليفربول يوجه رسالة قاسية بعد شائعات إندريك**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A5%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D8%B4%D8%A7%D9%8A%D9%94%D8%B9%D8%A7%D8%AA-%D8%A7%D9%95%D9%86%D8%AF%D8%B1%D9%8A%D9%83/blt15d9d32e10ef2df0)
+- **يحذر بيتر كراوتش من أن فريق نيوكاسل قد ينهار بسهولة أمام ليفربول بسبب سياستهم المتمثلة في بيع اللاعبين الرئيسيين.**: [Link](https://www.vietnam.vn/ar/peter-crouch-canh-bao-newcastle-de-guc-nga-truoc-liverpool-vi-chinh-sach-ban-thao-tru-cot)
+
+
+### erling haaland (N/A, Sun, 23 Aug 2026 08:10:00 -0700)
+
+- **'New season, new trim' - Haaland reveals buzzcut**: [Link](https://www.bbc.com/sport/football/articles/cr4941zkgevo)
+- **In video: Guardiola responds to Haaland's surprise: I wish I had hair**: [Link](https://www.goal.com/en/news/in-video-guardiola-responds-to-haaland-surprise-i-wish-i-had-hair/blt7bb93922a61f431f)
+- **Real Madrid stars react to Erling Haaland’s new haircut – ‘Ragnar’**: [Link](https://ca.sports.yahoo.com/news/real-madrid-stars-react-erling-105000492.html)
+
+
 ### إيرلينغ هالاند (N/A, Sun, 23 Aug 2026 07:40:00 -0700)
 
 - **بالفيديو.. جوارديولا ردًا على مفاجأة هالاند: أتمنى لو كان لدي شعر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%B1%D8%AF%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%A7%D9%94%D8%AA%D9%85%D9%86%D9%89-%D9%84%D9%88-%D9%83%D8%A7%D9%86-%D9%84%D8%AF%D9%8A-%D8%B4%D8%B9%D8%B1/blt7bb93922a61f431f)
