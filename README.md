@@ -1,3 +1,17 @@
+### frosinone – juventus (N/A, Sun, 23 Aug 2026 09:00:00 -0700)
+
+- **Frosinone Juve in tv e streaming: dove vedere la partita**: [Link](https://sport.sky.it/calcio/serie-a/2026/08/23/frosinone-juventus-dove-vedere-tv-streaming)
+- **La Juventus è determinata a respingere l'offerta dell'Arsenal per poter trattenere a lungo termine l'attaccante Kenan Yildiz in Serie A.**: [Link](https://www.vietnam.vn/it/juventus-kien-quyet-tu-choi-arsenal-de-giu-chan-tien-dao-kenan-yildiz-dai-han-tai-serie-a)
+- **Serie A: le formazioni ufficiali di Frosinone-Juventus e Venezia-Lecce**: [Link](https://www.diretta.it/news/calcio-serie-a-serie-a-le-formazioni-ufficiali-di-frosinone-juventus-e-venezia-lecce/6VfmYBs1/)
+
+
+### عبد الرحيم بوعيدة (N/A, Sun, 23 Aug 2026 09:00:00 -0700)
+
+- **استقالة بوعيدة تهز "الاستقلال" .. والوجهة الحزبية المقبلة "مجهولة"**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D9%8A%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D9%85%D9%82%D8%A7-1795584.html)
+- **برلمان سبتة المحتلة يُسقط مقترح حزب "فوكس" المتطرف حول مواجهة "الحرب الهجينة المغربية ضد إسبانيا"**: [Link](https://ar.telquel.ma/%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D9%8A%D9%84-%D9%85%D9%86-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D8%B1%D8%AF%D8%A7-%D8%B9%D9%84%D9%89/)
+- **بسبب التزكيات..بوعيدة يستقيل من حزب الاستقلال**: [Link](https://2m.ma/ar/news/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%AA%D8%B2%D9%83%D9%8A%D8%A7%D8%AA-%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D9%8A%D9%84-%D9%85%D9%86-%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-20260822)
+
+
 ### le havre – monaco (N/A, Sun, 23 Aug 2026 08:40:00 -0700)
 
 - **Suivez Le Havre - Monaco En direct - Ligue 1 - 1ère journée**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-havre-ac-monaco_mtc21875636/live-commentary.shtml)
