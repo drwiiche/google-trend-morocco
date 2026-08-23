@@ -1,3 +1,10 @@
+### cédric sbirrazzuoli (N/A, Sun, 23 Aug 2026 01:50:00 -0700)
+
+- **"La boucle est bouclée" : l'épouse de Cédric Sbirrazzuoli révèle les circonstances bouleversantes de sa mort**: [Link](https://lanouvelletribune.info/2026/08/la-boucle-est-bouclee-lepouse-de-cedric-sbirrazzuoli-revele-les-circonstances-bouleversantes-de-sa-mort/)
+- **« Un pilote de grand talent, une personne authentique et rayonnante » : le Monégasque Cédric Sbirrazzuoli est décédé à 39 ans**: [Link](https://fr.news.yahoo.com/pilote-grand-talent-personne-authentique-140513839.html)
+- **Mort de Cédric Sbirrazzuoli : les mots poignants de sa femme qui a révélé un détail bouleversant**: [Link](https://www.voici.fr/celebrites/mort-de-cedric-sbirrazzuoli-les-mots-poignants-de-sa-femme-qui-a-revele-un-detail-bouleversant-828000)
+
+
 ### hibapress (N/A, Sat, 22 Aug 2026 22:50:00 -0700)
 
 - **إيران مباشر.. ترمب يؤكد مرافقة ألف سفينة بهرمز وطهران تحذر الجوار من الانخراط في الحرب الاقتصادية**: [Link](https://www.aljazeera.net/news/liveblog/2026/8/23/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A7%D9%84%D8%AC%D9%88%D8%A7%D8%B1-%D9%85%D9%86)
