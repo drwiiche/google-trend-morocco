@@ -1,3 +1,10 @@
+### f1 (N/A, Sun, 23 Aug 2026 02:30:00 -0700)
+
+- **Why Williams problems are worse than previously known**: [Link](https://www.autosport.com/f1/news/why-williams-problems-are-worse-than-previously-known/10848229/)
+- **Formula 1 News: Sainz Jr. says ‘quality’ is Williams’ biggest weakness**: [Link](https://www.autoracing1.com/?p=https://www.autoracing1.com/?post_type=post&p=501828)
+- **Vowles Gets Brutally Honest About Williams’ Botched 2026 Car: “We Are Way Off”**: [Link](https://www.motorbiscuit.com/vowles-gets-brutally-honest-about-williams-botched-2026-car-we-are-way-off/)
+
+
 ### quinté du jour (N/A, Sun, 23 Aug 2026 00:40:00 -0700)
 
 - **13 Prince des Villes - Plat**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-13-prince-des-villes-130370.html)
