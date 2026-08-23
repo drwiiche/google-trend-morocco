@@ -1,3 +1,10 @@
+### angers – lille (N/A, Sun, 23 Aug 2026 05:40:00 -0700)
+
+- **Angers - Lille, Ligue 1, match en direct le 23/08/2026**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/angers-lille-live/690259)
+- **Bouaddi absent : Les compositions officielles d’Angers SCO – LOSC**: [Link](https://lepetitlillois.com/2026/08/23/angers-lille-compositions-officielles-angers-sco-losc/)
+- **L1 : Angers-Lille, les compos**: [Link](https://www.maxifoot.fr/ligue-1/angers-lille-les-compos-foot-462369.htm)
+
+
 ### مان سيتي ضد بورنموث (N/A, Sun, 23 Aug 2026 05:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة مانشستر سيتي وبورنموث في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt83840c61507f1d39)
