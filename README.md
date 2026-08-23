@@ -1,3 +1,10 @@
+### adeyemi (N/A, Sun, 23 Aug 2026 13:40:00 -0700)
+
+- **📸 Barcelona new boy nets on debut as champions double lead at Elche 🔥**: [Link](https://onefootball.com/en/news/barcelona-new-boy-nets-on-debut-as-champions-double-lead-at-elche-43327599)
+- **"The star of the evening!" Karim Adeyemi celebrated after scoring debut for Barcelona**: [Link](https://www.goal.com/en/news/the-star-of-the-evening-karim-adeyemi-celebrated-after-scoring-debut-for-barcelona/blt36f892eb1bab7803)
+- **Flick's Barcelona selection clue puts €22 million signing ahead of Anthony Gordon for Elche clash - report**: [Link](https://barcauniversal.com/flicks-barcelona-selection-clue-puts-e22-million-signing-ahead-of-anthony-gordon-for-elche-clash-report/)
+
+
 ### ferran torres (N/A, Sun, 23 Aug 2026 13:30:00 -0700)
 
 - **Expectación ante el debut de Ferran Torres con el PSG**: [Link](https://www.sport.es/es/noticias/futbol-internacional/expectacion-debut-ferran-torres-psg-133570604)
