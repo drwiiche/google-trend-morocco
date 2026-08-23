@@ -1,3 +1,10 @@
+### hibapress (N/A, Sat, 22 Aug 2026 22:50:00 -0700)
+
+- **إيران مباشر.. ترمب يؤكد مرافقة ألف سفينة بهرمز وطهران تحذر الجوار من الانخراط في الحرب الاقتصادية**: [Link](https://www.aljazeera.net/news/liveblog/2026/8/23/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A7%D9%84%D8%AC%D9%88%D8%A7%D8%B1-%D9%85%D9%86)
+- **مسؤول أميركي: ترامب يمتلك أوراق ضغط عدة ضد إيران**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/08/22/%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%85%D8%AA%D9%84%D9%83-%D8%A7%D9%88%D8%B1%D8%A7%D9%82-%D8%B6%D8%BA%D8%B7-%D8%B9%D8%AF%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86)
+- **إيران: "يوم الإنزال الاقتصادي" يمهّد الطريق لـ"عودة مريعة إلى الاستعمار"**: [Link](https://arabic.cnn.com/middle-east/article/2026/08/22/economic-d-day-paves-the-way-for-return-to-full-scale-classic-colonialism-iran-says)
+
+
 ### عبد الرزاق حمد الله (N/A, Sat, 22 Aug 2026 23:50:00 -0700)
 
 - **فيديو: حمد الله يضرب رقم السومة.. ويقترب من العرش التاريخي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D8%B3%D9%88%D9%85%D8%A9--%D9%88%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%B1%D8%B4-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A/blt83bda50a9d0e5e39)
