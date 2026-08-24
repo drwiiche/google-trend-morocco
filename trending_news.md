@@ -1,3 +1,10 @@
+### للا مريم (N/A, Sun, 23 Aug 2026 22:10:00 -0700)
+
+- **أطفال مقدسيون في ضيافة للا مريم**: [Link](https://www.hespress.com/%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D9%85%D9%82%D8%AF%D8%B3%D9%8A%D9%88%D9%86-%D9%81%D9%8A-%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%84%D9%84%D8%A7-%D9%85%D8%B1%D9%8A%D9%85-1795772.html)
+- **“المغرب بلدنا الثاني”.. أطفال القدس يشيدون بالرعاية الملكية**: [Link](https://assabah.ma/945424.html)
+- **المخيم الصيفي لبيت مال القدس Archives - فبراير.كوم | موقع مغربي إخباري شامل يتجدد على مدار الساعة**: [Link](https://febrayer.com/tag/%D8%A7%D9%84%D9%85%D8%AE%D9%8A%D9%85-%D8%A7%D9%84%D8%B5%D9%8A%D9%81%D9%8A-%D9%84%D8%A8%D9%8A%D8%AA-%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%82%D8%AF%D8%B3)
+
+
 ### jugement (N/A, Mon, 24 Aug 2026 01:20:00 -0700)
 
 - **“Inique et disproportionnée”: Bouchez critique la peine infligée à Gregory Lenoci**: [Link](https://www.7sur7.be/belgique/inique-et-disproportionnee-bouchez-critique-la-peine-infligee-a-gregory-lenoci~abbcdba0/)
