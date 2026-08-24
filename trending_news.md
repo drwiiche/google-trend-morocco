@@ -1,3 +1,10 @@
+### classement fulham – chelsea football club (N/A, Mon, 24 Aug 2026 14:10:00 -0700)
+
+- **Revivez la victoire de Chelsea à Fulham en Premier League 2026-2027**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-fulham-chelsea_mtc21883295/live-commentary.shtml)
+- **Chelsea : le premier onze de Xabi Alonso en Premier League**: [Link](https://www.footmercato.net/a104559787230421848-chelsea-le-premier-onze-de-xabi-alonso-en-pl)
+- **Un début exceptionnel : Rodgers entre par la grande porte dans l'histoire de Chelsea**: [Link](https://fr.news.yahoo.com/sport/d%C3%A9but-exceptionnel-rodgers-entre-grande-193959839.html)
+
+
 ### المولد النبوي الشريف 2026 (N/A, Mon, 24 Aug 2026 12:40:00 -0700)
 
 
