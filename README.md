@@ -1,3 +1,17 @@
+### jugement (N/A, Mon, 24 Aug 2026 01:20:00 -0700)
+
+- **“Inique et disproportionnée”: Bouchez critique la peine infligée à Gregory Lenoci**: [Link](https://www.7sur7.be/belgique/inique-et-disproportionnee-bouchez-critique-la-peine-infligee-a-gregory-lenoci~abbcdba0/)
+- **« J’ai perdu le contrôle » : un homme condamné à 17 ans de prison pour avoir agressé son voisin qu’il accusait de pédocriminalité**: [Link](https://fr.news.yahoo.com/j-perdu-contr%C3%B4le-homme-condamn%C3%A9-130223348.html)
+- **TC Namur - Le CSJ vivement inquiet des réactions après le jugement dans l'affaire Lenoci**: [Link](https://www.lalibre.be/dernieres-depeches/2026/08/21/tc-namur-le-csj-vivement-inquiet-des-reactions-apres-le-jugement-dans-laffaire-lenoci-WYV4LEPMGBBSDDU6HK5SDJ7AIA/)
+
+
+### raphaël glucksmann (N/A, Sun, 23 Aug 2026 23:40:00 -0700)
+
+- **Léa Salamé se retire du « 20 heures » de France 2 après la déclaration officielle de candidature de Raphaël Glucksmann**: [Link](https://www.lemonde.fr/economie/article/2026/08/23/lea-salame-se-retire-du-20-heures-de-france-2-apres-la-declaration-officielle-de-candidature-de-raphael-glucksmann_6754541_3234.html)
+- **Présidentielle 2027 : Raphaël Glucksmann peut-il atteindre le second tour ?**: [Link](https://www.lefigaro.fr/politique/presidentielle-2027-raphael-glucksmann-peut-il-atteindre-le-second-tour-20260823)
+- **« Ils lui préparent une autre émission » : quel avenir pour Léa Salamé après son probable retrait du « 20 Heures »**: [Link](https://www.leparisien.fr/culture-loisirs/tv/ils-lui-preparent-une-autre-emission-quel-avenir-pour-lea-salame-apres-son-probable-retrait-du-20-heures-19-08-2026-E5YWGUV6MBAJXBT7NHTD2VB3EE.php)
+
+
 ### هبة بريس (N/A, Sun, 23 Aug 2026 22:30:00 -0700)
 
 - **اختراق غير مسبوق في علاج السرطان .. لقاحات شخصية تلاحق طفرات الأورام**: [Link](https://www.hespress.com/%D8%A7%D8%AE%D8%AA%D8%B1%D8%A7%D9%82-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D9%81%D9%8A-%D8%B9%D9%84%D8%A7%D8%AC-%D8%A7%D9%84%D8%B3%D8%B1%D8%B7%D8%A7%D9%86-%D9%84%D9%82%D8%A7%D8%AD-1796090.html)
