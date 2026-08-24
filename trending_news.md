@@ -1,3 +1,17 @@
+### زيت الزيتون (N/A, Mon, 24 Aug 2026 03:40:00 -0700)
+
+- **إقبال إسبانيا على المشتريات من زيت الزيتون المغربي يرتفع 90 مرة**: [Link](https://www.hespress.com/%D8%A5%D9%82%D8%A8%D8%A7%D9%84-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B4%D8%AA%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D9%86-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2-1795346.html)
+- **إسبانيا تستورد قرابة 19 طنا من زيت الزيتون المغربي خلال ستة أشهر**: [Link](https://www.assahifa.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D9%88%D8%B1%D8%AF-%D9%82%D8%B1%D8%A7%D8%A8%D8%A9-19-%D8%B7%D9%86%D8%A7-%D9%85%D9%86-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA/)
+- **إسبانيا تستورد من المغرب خضرا وفواكه بـ890 مليون يورو خلال خمسة أشهر**: [Link](https://barlamane.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D9%88%D8%B1%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AE%D8%B6%D8%B1%D8%A7-%D9%88%D9%81%D9%88%D8%A7%D9%83%D9%87-%D8%A8/)
+
+
+### dinar algérien (N/A, Mon, 24 Aug 2026 03:40:00 -0700)
+
+- **Dinar algérien : l’euro gagne du terrain sur les marchés parallèle et officiel**: [Link](https://www.tsa-algerie.com/dinar-algerien-leuro-gagne-du-terrain-sur-les-marches-parallele-et-officiel/)
+- **L’euro repart à la hausse : À combien s’échange le billet de 100 € ce 16 août ?**: [Link](https://www.algerie360.com/leuro-repart-a-la-hausse-a-combien-sechange-le-billet-de-100-e-ce-16-aout/)
+- **Euro : le dinar algérien se stabilise face à la monnaie européenne, légère hausse sur le marché officiel**: [Link](https://maghrebemergent.news/fr/euro-le-dinar-algerien-se-stabilise-face-a-la-monnaie-europeenne-legere-hausse-sur-le-marche-officiel/)
+
+
 ### الصندوق المهني المغربي للتقاعد (N/A, Mon, 24 Aug 2026 04:00:00 -0700)
 
 - **"صندوق التقاعد" يدخل مرحلة جديدة من الاستثمار في القطاع المنجمي**: [Link](https://www.hespress.com/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D9%8A%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A7-1795906.html)
