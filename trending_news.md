@@ -1,3 +1,17 @@
+### هبة بريس (N/A, Sun, 23 Aug 2026 22:30:00 -0700)
+
+- **اختراق غير مسبوق في علاج السرطان .. لقاحات شخصية تلاحق طفرات الأورام**: [Link](https://www.hespress.com/%D8%A7%D8%AE%D8%AA%D8%B1%D8%A7%D9%82-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82-%D9%81%D9%8A-%D8%B9%D9%84%D8%A7%D8%AC-%D8%A7%D9%84%D8%B3%D8%B1%D8%B7%D8%A7%D9%86-%D9%84%D9%82%D8%A7%D8%AD-1796090.html)
+- **"لقاح مختلف لكل مريض".. العلماء يقتربون من هزيمة السرطان**: [Link](https://www.skynewsarabia.com/technology/1887818-%D9%84%D9%82%D8%A7%D8%AD-%D9%85%D8%AE%D8%AA%D9%84%D9%81-%D9%84%D9%83%D9%84-%D9%85%D8%B1%D9%8A%D8%B6-%D8%A7%D9%84%D8%B9%D9%84%D9%85%D8%A7%D8%A1-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8%D9%88%D9%86-%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D8%B1%D8%B7%D8%A7%D9%86)
+- **مرضى البرتغال يشاركون في تجربة لقاح الميلانوما الشخصية**: [Link](https://www.theportugalnews.com/ar/nieuws/2026-08-21/three-patients-take-part-in-portugal-trial-of-personalised-melanoma-vaccine/1073710)
+
+
+### togo (N/A, Sun, 23 Aug 2026 20:50:00 -0700)
+
+- **Equipe française de tournage arrêtée au nord-Togo: Version officielle des faits et état des lieux de l'enquête judiciaire**: [Link](https://afriquinfos.com/equipe-francaise-de-tournage-arretee-au-nord-togo-version-officielle-des-faits-et-etat-des-lieux-de-lenquete-judiciaire/)
+- **Affaire Tony Comiti au Togo : les autorités s'expliquent après l'incarcération de l'équipe de tournage**: [Link](https://www.alwihdainfo.com/affaire-tony-comiti-au-togo-les-autorites-sexpliquent-apres-lincarceration-de-lequipe-de-tournage/)
+- **Togo: le gouvernement affirme disposer 'd’indices graves et concordants' à l'encontre de Gaël Mocaër et Sebastian Perez Pezzani**: [Link](https://information.tv5monde.com/afrique/togo-le-gouvernement-affirme-disposer-dindices-graves-et-concordants-lencontre-de-gael-mocaer-et-sebastian-perez-pezzani-2834592)
+
+
 ### hibapress (N/A, Sun, 23 Aug 2026 22:40:00 -0700)
 
 - **فاس..استنفار أمني وسط المدينة إثر شبهة خيانة زوجية بين شخصية مرموقة و مديرة مؤسسة بنكية**: [Link](https://l3assima.ma/%D9%81%D8%A7%D8%B3%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A5%D8%AB%D8%B1-%D8%B4%D8%A8%D9%87%D8%A9-%D8%AE%D9%8A%D8%A7%D9%86%D8%A9-%D8%B2%D9%88%D8%AC%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D9%85%D8%B1%D9%85%D9%88%D9%82%D8%A9-%D9%88-%D9%85%D8%AF%D9%8A%D8%B1%D8%A9-%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-%D8%A8%D9%86%D9%83%D9%8A%D8%A9)
