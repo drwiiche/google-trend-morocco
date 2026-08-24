@@ -1,3 +1,17 @@
+### al ittihad – al hazm (N/A, Mon, 24 Aug 2026 10:40:00 -0700)
+
+- **A refereeing expert settles it: Al-Hazm were denied a penalty against Al-Ittihad**: [Link](https://www.goal.com/en/news/a-refereeing-expert-settles-it-al-hazm-were-denied-a-penalty-against-al-ittihad/blt67e9efa776b333c6)
+- **Al-Ittihad face Al-Hazm with three new changes to the starting line-up**: [Link](https://www.goal.com/en/news/al-ittihad-face-al-hazm-with-three-new-changes-to-the-starting-line-up/bltf75fa92706a81ad4)
+- **Al-Ittihad vs Al-Hazem LIVE Streaming: Match Time, Prediction, Team News And Where To Watch Saudi Pro League Live In UK, USA, UAE And Other Countries?**: [Link](https://sundayguardianlive.com/sports/al-ittihad-vs-al-hazem-live-streaming-match-time-prediction-latest-team-news-and-where-to-watch-saudi-pro-league-live-in-uk-usa-uae-india-and-canada-269122/)
+
+
+### جافي (N/A, Mon, 24 Aug 2026 10:40:00 -0700)
+
+- **الكشف رسميا عن طبيعة إصابة جافي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%B9%D9%86-%D8%B7%D8%A8%D9%8A%D8%B9%D8%A9-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AC%D8%A7%D9%81%D9%8A/bltfcd753da2ae9be59)
+- **فليك: برشلونة بحاجة إلى مهاجم جديد**: [Link](https://www.alarabiya.net/sport/2026/08/24/%D9%81%D9%84%D9%8A%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D8%AD%D8%A7%D8%AC%D8%A9-%D8%A7%D9%84%D9%89-%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%AC%D8%AF%D9%8A%D8%AF)
+- **قدم المدرب هانسي فليك تحديثاً بشأن إصابة غافي في الركبة بعد الفوز 5-0 على إلتشي.**: [Link](https://www.vietnam.vn/ar/hlv-hansi-flick-cap-nhat-tinh-hinh-chan-thuong-dau-goi-cua-gavi-sau-tran-thang-elche-5-0)
+
+
 ### ريال سوسيداد (N/A, Mon, 24 Aug 2026 12:00:00 -0700)
 
 - **رسميا.. ريال مدريد يقدم صفقته الجديدة قبل موقعة سوسيداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%82%D8%AF%D9%85-%D8%B5%D9%81%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF/blt15ad52b49977e7c7)
