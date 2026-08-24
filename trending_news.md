@@ -1,3 +1,10 @@
+### julián alvarez (N/A, Mon, 24 Aug 2026 08:20:00 -0700)
+
+- **Los 30″ de Valdano sobre la ruptura entre Julián y el Atlético de Madrid: de obligatorio visionado**: [Link](https://as.com/futbol/videos/los-30-de-valdano-sobre-la-ruptura-entre-julian-y-el-atletico-de-madrid-de-obligatorio-visionado-f202608-v/)
+- **Julián Alvarez, sin salida**: [Link](https://www.marca.com/futbol/atletico/2026/08/24/julian-alvarez-salida.html)
+- **Julián Álvarez: El Atlético refuerza su apuesta por el Arsenal**: [Link](https://www.sport.es/es/noticias/barca/julian-alvarez-atletico-refuerza-apuesta-133604494)
+
+
 ### نصير مزراوي (N/A, Mon, 24 Aug 2026 06:50:00 -0700)
 
 - **ميلان يستهدف ضم مزراوي بناءً على رغبة اموريم**: [Link](https://www.elsport.com/news/show/836946/%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-%D8%A8%D9%86%D8%A7%D8%A1%D9%8B-%D8%B9%D9%84%D9%89-%D8%B1%D8%BA%D8%A8%D8%A9-%D8%A7%D9%85%D9%88%D8%B1%D9%8A%D9%85)
