@@ -1,3 +1,17 @@
+### تشافي هيرنانديز (N/A, Mon, 24 Aug 2026 13:10:00 -0700)
+
+- **بعد النكسة المغربية.. تشافي يشعل ثورة في هولندا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%86%D9%83%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9--%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%8A%D8%B4%D8%B9%D9%84-%D8%AB%D9%88%D8%B1%D8%A9-%D9%81%D9%8A-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7/bltf73722836f21de0c)
+- **بوصابون: تعيين رمزي في الطاقم التدريبي للمنتخب الهولندي "غير مفهوم"**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B5%D8%A7%D8%A8%D9%88%D9%86-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86-%D8%B1%D9%85%D8%B2%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D9%85-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D9%8A-1795634.html)
+- **مفاجأة… الاتحاد الهولندي يضم مدربا مغربيا للطاقم التقني لمنتخبه الأول**: [Link](https://ar.sport.le360.ma/football/lions-atlas/OIB6ERRF5FCQJHJZ6HZN4N4WUM/)
+
+
+### navire (N/A, Mon, 24 Aug 2026 12:00:00 -0700)
+
+- **Porte-conteneurs à voile, catamaran nouvelle génération, drone sous-marin… Des projets bretons lauréats d’un appel à projets du gouvernement**: [Link](https://www.letelegramme.fr/economie/mer/porte-conteneurs-a-voile-catamaran-nouvelle-generation-drone-sous-marin-des-projets-bretons-laureats-dun-appel-a-projets-du-gouvernement-7104453.php)
+- **Navires bas-carbone : l’État octroie un ensemble de 21,4 millions d'euros à six nouveaux projets**: [Link](https://www.rse-magazine.com/navires-bas-carbone-aide-etat-six-projets/)
+- **La mer, un enjeu stratégique de la transition écologique**: [Link](https://www.icp.fr/a-propos-de-licp/actualites/la-mer-un-enjeu-strategique-de-la-transition-ecologique)
+
+
 ### al ittihad – al hazm (N/A, Mon, 24 Aug 2026 10:40:00 -0700)
 
 - **A refereeing expert settles it: Al-Hazm were denied a penalty against Al-Ittihad**: [Link](https://www.goal.com/en/news/a-refereeing-expert-settles-it-al-hazm-were-denied-a-penalty-against-al-ittihad/blt67e9efa776b333c6)
