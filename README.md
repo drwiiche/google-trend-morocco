@@ -1,3 +1,10 @@
+### chelsea (N/A, Mon, 24 Aug 2026 10:00:00 -0700)
+
+- **Xabi Alonso delivers the latest Chelsea team news ahead of Fulham | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/xabi-alonso-delivers-the-latest-chelsea-team-news-ahead-of-fulham)
+- **Predicted XI: Enzo questions leak onto the pitch as Alonso faces first selection dilemma of the season**: [Link](https://onefootball.com/en/news/predicted-xi-enzo-questions-leak-onto-the-pitch-as-alonso-faces-first-selection-dilemma-of-the-season-43331301)
+- **How to watch Fulham vs Chelsea for FREE: Live streams and TV channels for first Monday Night Football of the season**: [Link](https://www.fourfourtwo.com/competition/watch-fulham-vs-chelsea-premier-league-2026-27-free)
+
+
 ### osasuna – levante (N/A, Mon, 24 Aug 2026 10:30:00 -0700)
 
 - **Pronóstico Osasuna vs Levante: Un punto clave en la máxima categoría.**: [Link](https://www.vietnam.vn/es/nhan-dinh-osasuna-vs-levante-diem-nong-cuoc-dua-top-dau)
