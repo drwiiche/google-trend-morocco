@@ -1,3 +1,17 @@
+### osasuna – levante (N/A, Mon, 24 Aug 2026 10:30:00 -0700)
+
+- **Pronóstico Osasuna vs Levante: Un punto clave en la máxima categoría.**: [Link](https://www.vietnam.vn/es/nhan-dinh-osasuna-vs-levante-diem-nong-cuoc-dua-top-dau)
+- **15:25H | 24 AGOSTO 2026 | DEPORTES COPE EN NAVARRA**: [Link](https://www.cope.es/emisoras/navarra/podcast/episodios/15-25h-24-agosto-2026-deportes-cope-navarra-20260824_3424087.html)
+- **El Levante UD visita Pamplona con la plantilla todavía cogida con pinzas**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/valencia/levante-visita-pamplona-plantilla-todavia-cogida-pinzas_202608246a8c0cba7b9bc81c9ed6ce25.html)
+
+
+### seisme tokyo (N/A, Mon, 24 Aug 2026 09:40:00 -0700)
+
+- **Un séisme de magnitude 5,9 secoue l’est du Japon, faisant plus de 30 blessés dans la région de Tokyo**: [Link](https://www.lemonde.fr/international/article/2026/08/23/un-seisme-de-magnitude-5-9-secoue-l-est-du-japon-faisant-plus-de-30-blesses-dans-la-region-de-tokyo_6753860_3210.html)
+- **Séisme à Tōkyō | Détroit d’Ormuz | Anime et Paix**: [Link](https://www.japoninfos.com/seisme-a-tokyo-detroit-dormuz-anime-et-paix.html)
+- **La préfecture japonaise d'Ibaraki touchée par un séisme de magnitude 5,9, de fortes secousses ressenties à Tokyo**: [Link](http://www.french.xinhuanet.com/20260823/b87a83b6040240c191861b9498eb3b36/c.html)
+
+
 ### منتخب تونس لكرة القدم (N/A, Mon, 24 Aug 2026 08:30:00 -0700)
 
 - **"منتخب أقل من 20" ينهزم أمام تونس**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D9%88%D9%86%D8%B3-1796320.html)
