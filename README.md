@@ -1,3 +1,10 @@
+### turf (N/A, Mon, 24 Aug 2026 04:50:00 -0700)
+
+- **Les pronos hippiques du lundi 24 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-lundi-24-aout-2026_AN-202608230206.html)
+- **13 Henrique - Trot**: [Link](https://www.zone-turf.fr/actualite/trot/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-13-henrique-130376.html)
+- **Henrique, la base solide du Quinté+ de ce lundi 24 août**: [Link](https://www.equidia.fr/articles/actualite/henrique-la-base-solide-du-quinte-de-ce-lundi-24-aout)
+
+
 ### زيت الزيتون (N/A, Mon, 24 Aug 2026 03:40:00 -0700)
 
 - **إقبال إسبانيا على المشتريات من زيت الزيتون المغربي يرتفع 90 مرة**: [Link](https://www.hespress.com/%D8%A5%D9%82%D8%A8%D8%A7%D9%84-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B4%D8%AA%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D9%86-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2-1795346.html)
