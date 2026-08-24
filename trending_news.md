@@ -1,3 +1,59 @@
+### وائل جمعة (N/A, Mon, 24 Aug 2026 11:50:00 -0700)
+
+- **شاهد.. ريمونتادا مثيرة للأهلي تنقذ عموتة في اختباره الأول بالدوري المصري**: [Link](https://www.aljazeera.net/sport/2026/8/23/%D8%B4%D8%A7%D9%87%D8%AF-%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%AA%D9%86%D9%82%D8%B0)
+- **عموتة يقود الأهلي إلى "فوز مثير"**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A5%D9%84%D9%89-%D9%81%D9%88%D8%B2-%D9%85%D8%AB%D9%8A%D8%B1-1796038.html)
+- **عموتة يتنفس الصعداء ويعول على خبرة أشرف داري لتأمين دفاع الأهلي**: [Link](https://radiomars.ma/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D8%AA%D9%86%D9%81%D8%B3-%D8%A7%D9%84%D8%B5%D8%B9%D8%AF%D8%A7%D8%A1-%D9%88%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AE%D8%A8%D8%B1%D8%A9-%D8%A3%D8%B4%D8%B1/)
+
+
+### فولهام ضد تشيلسي (N/A, Mon, 24 Aug 2026 11:40:00 -0700)
+
+- **ألونسو يعلن تشكيله الأول مع تشيلسي ضد فولهام**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85/blt8ea4d6af1d2f0ed7)
+- **ألونسو وأربيلوا في مواجهة بذكريات خيبة ريال مدريد**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%88%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AE%D9%8A%D8%A8%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **تشلسي ألونسو يواجه فولهام أربيلوا في مباراة واعدة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D8%A3%D8%B1%D8%A8%D9%8A%D9%84%D9%88%D8%A7-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%A7%D8%B9%D8%AF%D8%A9-2026-08-24)
+
+
+### roma – fiorentina (N/A, Mon, 24 Aug 2026 11:40:00 -0700)
+
+- **CALCIO Serie A, 1a Giornata live Roma-Fiorentina 0-0**: [Link](https://www.firenzeviolasupersportlive.it/fiorentina/notizie-viola/calcio-serie-a-1a-giornata-live-roma-fiorentina-0-0/)
+- **Roma-Fiorentina allo stadio Olimpico: dove parcheggiare, come arrivare e trasporti dopo la partita**: [Link](https://roma.corriere.it/notizie/sport/26_agosto_24/roma-fiorentina-allo-stadio-olimpico-dove-parcheggiare-come-arrivare-e-trasporti-dopo-la-partita-7d5c1d10-08d0-4535-827e-a1d422712xlk.shtml)
+- **Roma, siamo pronti a ricominciare**: [Link](https://pagineromaniste.com/roma-siamo-pronti-a-ricominciare/)
+
+
+### إيران (N/A, Mon, 24 Aug 2026 11:40:00 -0700)
+
+- **الريال الإيراني في أدنى مستوى قياسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%A3%D8%AF%D9%86%D9%89-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-1796158.html)
+- **ترامب: إيران "تنهار تماما".. والريال الإيراني يسجل "سقوطا حرا" أمام الدولار**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20260824-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%86%D9%87%D8%A7%D8%B1-%D8%AA%D9%85%D8%A7%D9%85%D8%A7-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D8%B3%D9%82%D9%88%D8%B7%D8%A7-%D8%AD%D8%B1%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1)
+- **إيران بين الضغوط الاقتصادية وخيار التسوية مع واشنطن**: [Link](https://www.alquds.co.uk/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B6%D8%BA%D9%88%D8%B7-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A%D8%A9-%D9%88%D8%AE%D9%8A%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA/)
+
+
+### fulham – chelsea (N/A, Mon, 24 Aug 2026 11:10:00 -0700)
+
+- **Fulham vs Chelsea LIVE: Premier League score, team news, commentary & updates**: [Link](https://www.bbc.com/sport/football/live/cqp8xg4jy4r3t)
+- **Predicted XI: Enzo questions leak onto the pitch as Alonso faces first selection dilemma of the season**: [Link](https://onefootball.com/en/news/predicted-xi-enzo-questions-leak-onto-the-pitch-as-alonso-faces-first-selection-dilemma-of-the-season-43331301)
+- **How to watch Fulham vs Chelsea for FREE: Live streams and TV channels for first Monday Night Football of the season**: [Link](https://www.fourfourtwo.com/competition/watch-fulham-vs-chelsea-premier-league-2026-27-free)
+
+
+### شادي رياض (N/A, Mon, 24 Aug 2026 10:40:00 -0700)
+
+- **إصابة رياض تربك كريستال بالاس**: [Link](https://www.hespress.com/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B1%D9%8A%D8%A7%D8%B6-%D8%AA%D8%B1%D8%A8%D9%83-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-1796260.html)
+- **إصابة شادي رياض تربك حسابات كريستال بالاس.. والنادي يترقب التقرير الطبي قبل التحرك**: [Link](https://radiomars.ma/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B4%D8%A7%D8%AF%D9%8A-%D8%B1%D9%8A%D8%A7%D8%B6-%D8%AA%D8%B1%D8%A8%D9%83-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7/)
+- **إصابة جديدة لرياض تربك وهبي**: [Link](https://assabah.ma/945374.html)
+
+
+### دينا المصري (N/A, Mon, 24 Aug 2026 10:10:00 -0700)
+
+- **إيقاف نهائي لبرنامج مصري بسبب تغريدة مسيئة.. والمذيعة ترد**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/08/23/%D8%A7%D9%8A%D9%82%D8%A7%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D9%85%D8%B0%D9%8A%D8%B9%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AA%D8%BA%D8%B1%D9%8A%D8%AF%D8%A9-%D9%85%D8%B3%D9%8A%D8%A6%D8%A9)
+- **وقف برنامج دينا المصري بعد منشور عن الأذان يثير تفاعلًا واسعًا في مصر**: [Link](https://www.raialyoum.com/%D9%88%D9%82%D9%81-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D8%AF%D9%8A%D9%86%D8%A7-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%85%D9%86%D8%B4%D9%88%D8%B1-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3/)
+- **تصريحاتها أشعلت الأزمة، بلاغ يتهم مذيعة بازدراء الأديان وتهديد السلم الاجتماعي**: [Link](https://alestad.com/egypt/157694.html)
+
+
+### ox alpha (N/A, Mon, 24 Aug 2026 10:00:00 -0700)
+
+- **Nobody knows who built AI coding model Ox Alpha or where the code goes**: [Link](https://siliconangle.com/2026/08/23/nobody-knows-who-built-ai-coding-model-ox-alpha-or-where-the-code-goes/)
+- **A free AI model is winning over developers. And nobody knows whose servers it runs on**: [Link](https://thenextweb.com/news/ox-alpha-stealth-model-openrouter-anonymous-provider)
+- **Who’s behind the new ‘stealth model’ Ox Alpha?**: [Link](https://techcrunch.com/2026/08/23/whos-behind-the-new-stealth-model-ox-alpha/)
+
+
 ### chelsea (N/A, Mon, 24 Aug 2026 10:00:00 -0700)
 
 - **Xabi Alonso delivers the latest Chelsea team news ahead of Fulham | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/xabi-alonso-delivers-the-latest-chelsea-team-news-ahead-of-fulham)
