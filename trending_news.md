@@ -1,3 +1,10 @@
+### موجة حر (N/A, Mon, 24 Aug 2026 16:00:00 -0700)
+
+- **عالم مناخ يحذر من "احترار أوروبا"**: [Link](https://www.hespress.com/%D8%B9%D8%A7%D9%84%D9%85-%D9%85%D9%86%D8%A7%D8%AE-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D8%B1-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-1796148.html)
+- **حرائق الغابات تعيد كشف الوجه الدموي لأوروبا**: [Link](https://www.aljazeera.net/news/2026/8/22/%D8%AD-%D8%A7)
+- **موجات الحر تكلف ألمانيا 36 مليار يورو**: [Link](https://www.aletihad.ae/news/%D8%B9%D8%B1%D8%A8%D9%8A-%D9%88%D8%AF%D9%88%D9%84%D9%8A/4687069/%D9%85%D9%88%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1-%D8%AA%D9%83%D9%84%D9%81-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-36-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D9%8A%D9%88%D8%B1%D9%88)
+
+
 ### classement fulham – chelsea football club (N/A, Mon, 24 Aug 2026 14:10:00 -0700)
 
 - **Revivez la victoire de Chelsea à Fulham en Premier League 2026-2027**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-fulham-chelsea_mtc21883295/live-commentary.shtml)
