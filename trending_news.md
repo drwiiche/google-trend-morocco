@@ -1,3 +1,17 @@
+### الصندوق المهني المغربي للتقاعد (N/A, Mon, 24 Aug 2026 04:00:00 -0700)
+
+- **"صندوق التقاعد" يدخل مرحلة جديدة من الاستثمار في القطاع المنجمي**: [Link](https://www.hespress.com/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D9%8A%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A7-1795906.html)
+- **صندوق التقاعد يدخل بقوة إلى سوق المناجم المغربية**: [Link](https://attasiaa.com/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A8%D9%82%D9%88%D8%A9-%D8%A5%D9%84%D9%89-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%AC/)
+- **CIMR يدخل على خط شركة منجمية مدرجة**: [Link](https://expresstv.ma/en-vedette/144761/)
+
+
+### هسبريس (N/A, Sun, 23 Aug 2026 22:30:00 -0700)
+
+- **مشهد لمفتي سوريا السابق مرتبكاً.. وفقرة في الحكم تمنع العفو عنه**: [Link](https://www.alarabiya.net/arab-and-world/syria/2026/08/24/%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%B9%D9%84%D9%89-%D9%85%D9%81%D8%AA%D9%8A-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A8%D8%A7%D9%84%D9%85%D8%A4%D8%A8%D8%AF-%D9%85%D8%B1%D8%AA%D8%B9%D8%AF%D8%A7-%D9%84%D8%A7-%D8%B9%D9%81%D9%88-%D9%88%D9%84%D8%A7-%D8%AA%D8%B3%D8%A7%D9%85%D8%AD)
+- **محكمة الجنايات بدمشق: السجن المؤبد بحق مفتي النظام المخلوع أحمد حسون**: [Link](https://www.aljazeera.net/news/2026/8/24/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D9%86%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A8%D8%AF%D9%85%D8%B4%D9%82-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D8%A7%D9%84%D9%85%D8%A4%D8%A8%D8%AF-%D8%A8%D8%AD%D9%82)
+- **القضاء السوري يحكم حضوريا بالسجن المؤبد على المفتي السابق أحمد حسون**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260824-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D9%88%D8%B1%D9%8A-%D9%8A%D8%AD%D9%83%D9%85-%D8%AD%D8%B6%D9%88%D8%B1%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D8%A7%D9%84%D9%85%D8%A4%D8%A8%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%81%D8%AA%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A3%D8%AD%D9%85%D8%AF-%D8%AD%D8%B3%D9%88%D9%86)
+
+
 ### milliardaire (N/A, Mon, 24 Aug 2026 03:50:00 -0700)
 
 - **Le Maroc a un nouveau milliardaire que Forbes n’a pas encore repéré**: [Link](https://www.bladi.net/maroc-nouveau-milliardaire-forbes-repere,123324.html)
