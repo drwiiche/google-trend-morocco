@@ -1,3 +1,36 @@
+### كلود لو روا (N/A, Mon, 24 Aug 2026 14:10:00 -0700)
+
+- **السنغال تستعين بالفرنسي كلود لوروا أمام "الطاس"**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%B3%D8%AA%D8%B9%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%83%D9%84%D9%88%D8%AF-%D9%84%D9%88%D8%B1%D9%88%D8%A7-%D8%A3%D9%85)
+- **محكمة الـ"TAS" تعيد ملف انتخابات الاتحاد السنغالي لكرة القدم إلى نقطة الصفر**: [Link](https://barlamane.com/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D9%80tas-%D8%AA%D8%B9%D9%8A%D8%AF-%D9%85%D9%84%D9%81-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7/)
+- **السينغال تطلب شهادة مدرب فرنسي بالطاس**: [Link](https://anbaetv.ma/1187762)
+
+
+### منتخب الغابون لكرة القدم (N/A, Mon, 24 Aug 2026 13:50:00 -0700)
+
+- **منتخب "الأسود" يواجه الغابون وليسوتو**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-%D9%88%D9%84%D9%8A%D8%B3%D9%88%D8%AA%D9%88-1796368.html)
+- **تصفيات “الكان”.. المغرب يبدأ رسميا مشواره أمام الغابون قبل رحلة جنوب إفريقيا**: [Link](https://ar.lesiteinfo.com/sport/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%85%D8%B4%D9%88-1016914.html)
+- **حكم كاميروني يقود “الأسود” أمام ليسوتو في تصفيات “كان 2027”**: [Link](https://hnews.ma/112100/)
+
+
+### le desk (N/A, Mon, 24 Aug 2026 13:50:00 -0700)
+
+
+
+
+### يوسف النصيري (N/A, Mon, 24 Aug 2026 13:40:00 -0700)
+
+- **إشبيلية يدفع يوسف النصيري للتألق بخطف دبابة الاتحاد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%8A%D8%AF%D9%81%D8%B9-%D9%8A%D9%88%D8%B3%D9%81-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%84%D9%84%D8%AA%D8%A7%D9%94%D9%84%D9%82-%D8%A8%D8%AE%D8%B7%D9%81-%D8%AF%D8%A8%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/bltd473d28c9f43b057)
+- **إعارة إيلينيخينا إلى إشبيلية مهددة بالفشل.. تطورات جديدة في صفقة مهاجم الاتحاد**: [Link](https://kolelkoora.com/%D8%A5%D8%B9%D8%A7%D8%B1%D8%A9-%D8%A5%D9%8A%D9%84%D9%8A%D9%86%D9%8A%D8%AE%D9%8A%D9%86%D8%A7-%D8%A5%D9%84%D9%89-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%85%D9%87%D8%AF%D8%AF%D8%A9-%D8%A8%D8%A7/)
+- **إشبيلية يتحرك لضم إلينيخينا.. والاتحاد يحدد مطالبه المالية**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%B6%D9%85-%D8%A5%D9%84%D9%8A%D9%86%D9%8A%D8%AE%D9%8A%D9%86%D8%A7-%D9%88%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D8%B7%D8%A7%D9%84%D8%A8%D9%87-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-767206)
+
+
+### fulham (N/A, Mon, 24 Aug 2026 13:20:00 -0700)
+
+- **Fulham 2 Chelsea 3: Cole Palmer back to his best in five-goal thriller**: [Link](https://www.thesun.co.uk/sport/40159883/chelsea-fulham-cole-palmer-joao-pedro-morgan-rogers/)
+- **Nick Freitas: Why UK Immigration Policy Is Fuelling Britain’s Civil Unrest**: [Link](https://www.thesun.ie/video/17508536/nick-freitas-why-uk-immigration-policy-is-fuelling-britains-civil-unrest/)
+- **Man United Exposed**: [Link](https://www.thesun.ie/video/man-united-exposed/)
+
+
 ### تشافي هيرنانديز (N/A, Mon, 24 Aug 2026 13:10:00 -0700)
 
 - **بعد النكسة المغربية.. تشافي يشعل ثورة في هولندا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%86%D9%83%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9--%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%8A%D8%B4%D8%B9%D9%84-%D8%AB%D9%88%D8%B1%D8%A9-%D9%81%D9%8A-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7/bltf73722836f21de0c)
