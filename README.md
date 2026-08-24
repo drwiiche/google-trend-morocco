@@ -1,3 +1,31 @@
+### milliardaire (N/A, Mon, 24 Aug 2026 03:50:00 -0700)
+
+- **Le Maroc a un nouveau milliardaire que Forbes n’a pas encore repéré**: [Link](https://www.bladi.net/maroc-nouveau-milliardaire-forbes-repere,123324.html)
+- **Le milliardaire allemand Klaus-Michael Kuehne s'éteint à l'âge de 89 ans**: [Link](https://www.boursorama.com/bourse/actualites/le-milliardaire-allemand-klaus-michael-kuehne-s-eteint-a-l-age-de-89-ans-63811e1957fde044bd1da6706d2248fa)
+- **Kühne + Nagel: Ex homme le plus riche de Suisse, Klaus-Michael Kühne est décédé**: [Link](https://www.lematin.ch/story/kuehne-nagel-ex-homme-le-plus-riche-de-suisse-klaus-michael-kuehne-est-decede-103621816)
+
+
+### riyad mahrez (N/A, Mon, 24 Aug 2026 03:30:00 -0700)
+
+- **Matteo Dams to Club Brugge**: [Link](https://www.clubbrugge.be/en/news/matteo-dams-to-club-brugge)
+- **After Mahrez and Kessie: 48 hours separate Al-Ahli from losing another foreign player**: [Link](https://www.goal.com/en/news/after-mahrez-and-kessie-48-hours-separate-al-ahli-from-losing-another-foreign-player/blt9e85addb609c0fff)
+- **Former PSV defender on Club Brugge’s radar as a back up to Joaquin Seys**: [Link](https://sports.yahoo.com/articles/former-psv-defender-club-brugge-094500994.html)
+
+
+### philippe bouvard (N/A, Mon, 24 Aug 2026 02:40:00 -0700)
+
+- **Philippe Bouvard, animateur historique des "Grosses Têtes", est mort**: [Link](https://www.rtl.fr/culture/medias-people/philippe-bouvard-animateur-historique-des-grosses-tetes-est-mort-7900664275)
+- **Philippe Bouvard, journaliste, homme de radio et de télévision, est mort à l’âge de 96 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/08/24/philippe-bouvard-journaliste-homme-de-radio-et-de-television-est-mort-a-l-age-de-96-ans_6755089_3382.html)
+- **Philippe Bouvard, journaliste et animateur radio, est décédé à 96 ans**: [Link](https://www.20minutes.fr/arts-stars/medias/4240569-20260824-philippe-bouvard-journaliste-animateur-radio-decede-96-ans)
+
+
+### regragui (N/A, Mon, 24 Aug 2026 02:20:00 -0700)
+
+- **Vidéo : l'apparition de Regragui aux côtés de l'émir du Qatar suscite des interrogations**: [Link](https://fr.news.yahoo.com/sport/vid%C3%A9o-lapparition-regragui-c%C3%B4t%C3%A9s-l%C3%A9mir-150216931.html)
+- **À Paris, Walid Regragui aperçu autour d’un café avec l’émir du Qatar**: [Link](https://www.maroc-hebdo.com/article/a-paris-walid-regragui-apercu-autour-dun-cafe-avec-lemir-du-qatar)
+- **La rencontre entre Regragui et l’émir du Qatar qui enflamme les réseaux sociaux**: [Link](https://www.afrik-foot.com/la-rencontre-entre-regragui-et-lemir-du-qatar-qui-enflamme-les-reseaux-sociaux)
+
+
 ### للا مريم (N/A, Sun, 23 Aug 2026 22:10:00 -0700)
 
 - **أطفال مقدسيون في ضيافة للا مريم**: [Link](https://www.hespress.com/%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D9%85%D9%82%D8%AF%D8%B3%D9%8A%D9%88%D9%86-%D9%81%D9%8A-%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%84%D9%84%D8%A7-%D9%85%D8%B1%D9%8A%D9%85-1795772.html)
