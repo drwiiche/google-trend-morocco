@@ -1,3 +1,17 @@
+### منتخب تونس لكرة القدم (N/A, Mon, 24 Aug 2026 08:30:00 -0700)
+
+- **"منتخب أقل من 20" ينهزم أمام تونس**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D9%88%D9%86%D8%B3-1796320.html)
+- **تصريحات السيد يونس ربيع و لاعبتي المنتخب النسوي لأقل من 17 سنة عقب المباراة أمام البرتغال**: [Link](https://frmf.ma/articles/reactions-du-coach-youness-rabie-et-de-deux-joueurs-de-lequipe-nationale-feminine-u17-a-lissue-du-match-face-au-portugal)
+- **الأشبال يهدرون صدارة ألعاب المتوسط**: [Link](https://assabah.ma/945376.html)
+
+
+### ألعاب البحر الأبيض المتوسط (N/A, Mon, 24 Aug 2026 06:50:00 -0700)
+
+- **"منتخب أقل من 20" ينهزم أمام تونس**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%82%D9%84-%D9%85%D9%86-20-%D9%8A%D9%86%D9%87%D8%B2%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%AA%D9%88%D9%86%D8%B3-1796320.html)
+- **تصريحات السيد يونس ربيع و لاعبتي المنتخب النسوي لأقل من 17 سنة عقب المباراة أمام البرتغال**: [Link](https://frmf.ma/articles/reactions-du-coach-youness-rabie-et-de-deux-joueurs-de-lequipe-nationale-feminine-u17-a-lissue-du-match-face-au-portugal)
+- **الأشبال يهدرون صدارة ألعاب المتوسط**: [Link](https://assabah.ma/945376.html)
+
+
 ### julián alvarez (N/A, Mon, 24 Aug 2026 08:20:00 -0700)
 
 - **Los 30″ de Valdano sobre la ruptura entre Julián y el Atlético de Madrid: de obligatorio visionado**: [Link](https://as.com/futbol/videos/los-30-de-valdano-sobre-la-ruptura-entre-julian-y-el-atletico-de-madrid-de-obligatorio-visionado-f202608-v/)
