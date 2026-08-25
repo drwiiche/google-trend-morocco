@@ -1,3 +1,10 @@
+### birmingham – brentford (N/A, Tue, 25 Aug 2026 12:50:00 -0700)
+
+- **Birmingham City vs Brentford: League Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6z97dn2n0nqt)
+- **Carabao Cup Preview: Birmingham City v Brentford**: [Link](https://www.bcfc.com/pages/en/media-article/carabao-cup-preview-birmingham-city-v-brentford)
+- **Birmingham City v Brentford Carabao Cup TV channel, live stream, kick-off time**: [Link](https://www.radiotimes.com/tv/sport/football/birmingham-city-brentford-carabao-cup-2026-27-preview/)
+
+
 ### bet365 (N/A, Tue, 25 Aug 2026 12:40:00 -0700)
 
 - **BetMGM bonus code POSTBET: Get up to $1,500 back in bonus bets for Mets vs. Brewers**: [Link](https://nypost.com/2026/08/25/betting/betmgm-bonus-code-postbet-get-up-to-1500-back-in-bonus-bets-for-mets-vs-brewers/)
