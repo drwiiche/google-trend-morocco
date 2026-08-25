@@ -1,3 +1,10 @@
+### brahim díaz (N/A, Tue, 25 Aug 2026 08:20:00 -0700)
+
+- **Brahim Díaz, AC Milan does not abandon the pursuit**: [Link](https://mountakhab.net/en/brahim-diaz-ac-milan-does-not-abandon-the-pursuit/)
+- **CM: Amorim still wants a new playmaker – the list of targets in the final week**: [Link](https://sempremilan.com/amorim-new-playmaker-list-targets)
+- **Harvey Elliott attracting interest in Milan**: [Link](https://www.daveockop.com/transfer-news/harvey-elliott-attracting-interest-in-milan/)
+
+
 ### gta 6 (N/A, Tue, 25 Aug 2026 08:10:00 -0700)
 
 - **Rockstar Rattled As ‘Grand Theft Auto VI’ Leaks Again**: [Link](https://www.bloomberg.com/news/newsletters/2026-08-21/rockstar-rattled-as-grand-theft-auto-vi-leaks-again)
