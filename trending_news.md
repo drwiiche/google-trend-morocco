@@ -1,3 +1,17 @@
+### easyjet (N/A, Mon, 24 Aug 2026 23:40:00 -0700)
+
+- **Major airline urges over-50s to join as cabin crew - you don't need experience**: [Link](https://www.thesun.co.uk/money/40154548/major-uk-airline-urges-over-50-s-cabin-crew-jobs/)
+- **EasyJet targets older workers for new jobs in fresh recruitment drive**: [Link](https://uk.finance.yahoo.com/news/easyjet-targets-older-workers-jobs-080506590.html)
+- **Sky’s the limit for over-50s’ careers | Daily Record - newspaper**: [Link](https://www.magzter.com/stories/newspaper/Daily-Record/SKYS-THE-LIMIT-FOR-OVER50S-CAREERS)
+
+
+### prix (N/A, Mon, 24 Aug 2026 22:00:00 -0700)
+
+- **Les prix de l’essence augmentent à la pompe**: [Link](https://www.rtl.be/actu/conso/les-prix-de-lessence-augmentent-la-pompe/2026-08-24/article/798118)
+- **« On s’est tous habitués, on n’a pas le choix » : des automobilistes résignés face aux prix élevés des carburants**: [Link](https://www.leparisien.fr/economie/consommation/on-sest-tous-habitues-on-na-pas-le-choix-des-automobilistes-resignes-face-aux-prix-eleves-des-carburants-24-08-2026-FV7NSEPAAJFMVLWT64EINRF5IY.php)
+- **Pourquoi les carburants repartent à la hausse**: [Link](https://www.tf1info.fr/conso/videos/video-pourquoi-les-carburants-repartent-a-la-hausse-40226-2460110.html)
+
+
 ### hibapress (N/A, Mon, 24 Aug 2026 22:50:00 -0700)
 
 - **فاس..استنفار أمني وسط المدينة إثر شبهة خيانة زوجية بين شخصية مرموقة و مديرة مؤسسة بنكية**: [Link](https://l3assima.ma/%D9%81%D8%A7%D8%B3%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A5%D8%AB%D8%B1-%D8%B4%D8%A8%D9%87%D8%A9-%D8%AE%D9%8A%D8%A7%D9%86%D8%A9-%D8%B2%D9%88%D8%AC%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D9%85%D8%B1%D9%85%D9%88%D9%82%D8%A9-%D9%88-%D9%85%D8%AF%D9%8A%D8%B1%D8%A9-%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-%D8%A8%D9%86%D9%83%D9%8A%D8%A9)
