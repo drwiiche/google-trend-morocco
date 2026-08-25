@@ -1,3 +1,10 @@
+### groupe ocp (N/A, Tue, 25 Aug 2026 15:20:00 -0700)
+
+- **L'Algérie promet de « faire mal » au Maroc avec 2,4 millions de tonnes contre 15 millions pour OCP**: [Link](https://www.bladi.net/algerie-promet-maroc-millions-tonnes-millions-ocp,123356.html)
+- **L’Algérie veut transformer son sous-sol en industrie**: [Link](https://lematindalgerie.com/lalgerie-veut-transformer-son-sous-sol-en-industrie/)
+- **Avec son phosphate, Alger espère séduire Washington et concurrencer Rabat**: [Link](https://www.courrierinternational.com/article/economie-avec-son-phosphate-alger-espere-seduire-washington-et-concurrencer-rabat_262005)
+
+
 ### lask (N/A, Tue, 25 Aug 2026 14:30:00 -0700)
 
 - **LASK vs Celtic (agg 0-3): UEFA Champions League LIVE radio commentary, live text & match report**: [Link](https://www.bbc.com/sport/football/live/cwx2meg1g1z7t)
