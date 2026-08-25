@@ -1,3 +1,10 @@
+### gta 6 (N/A, Tue, 25 Aug 2026 08:10:00 -0700)
+
+- **Rockstar Rattled As ‘Grand Theft Auto VI’ Leaks Again**: [Link](https://www.bloomberg.com/news/newsletters/2026-08-21/rockstar-rattled-as-grand-theft-auto-vi-leaks-again)
+- **Take-Two Subpoenas Microsoft And Discord Over GTA 6 Leaks**: [Link](https://kotaku.com/take-two-subpoenas-microsoft-and-discord-records-related-to-spread-of-gta-6-leaks-2000726633)
+- **‘GTA 6’ Developer Rockstar Games Subpoenas Microsoft, Discord Amid Leaks**: [Link](https://variety.com/2026/gaming/news/gta-6-leaks-rockstar-subpoenas-microsoft-discord-1236840176/)
+
+
 ### رامي بن سبعيني (N/A, Tue, 25 Aug 2026 06:20:00 -0700)
 
 - **بن سبعيني يدفع ثمن واقعة الصيباري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%86-%D8%B3%D8%A8%D8%B9%D9%8A%D9%86%D9%8A-%D9%8A%D8%AF%D9%81%D8%B9-%D8%AB%D9%85%D9%86-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A/blt464fce43f24232e2)
