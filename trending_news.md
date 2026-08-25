@@ -1,3 +1,22 @@
+### turf fr (N/A, Tue, 25 Aug 2026 10:30:00 -0700)
+
+- **Equidia met le feu au Quinté+ du mardi 25 août à Deauville**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mardi-25-aout-a-deauville)
+- **Quinté du mardi 25 août 2026 à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-25-aout-2026-a-deauville-les-pronostics-7900664470)
+- **Les top chances du mardi 25 août 2026**: [Link](https://www.zone-turf.fr/top-chances/les-top-chances-du-mardi-25-aout-2026-130389.html)
+
+
+### zone turf (N/A, Tue, 25 Aug 2026 10:20:00 -0700)
+
+
+
+
+### singapour (N/A, Tue, 25 Aug 2026 08:20:00 -0700)
+
+- **Pourquoi les suicides sont à la hausse surtout chez les 30-39 ans à Singapour ?**: [Link](https://lepetitjournal.com/singapour/actualites/pourquoi-suicides-hausse-trente-ans-sante-pression-singapour-450681)
+- **Singapour : booster la technologique et la formation des talents**: [Link](https://lecourrier.vn/vietnam-singapour-booster-la-technologique-et-la-formation-des-talents/1354139.html)
+- **Connecter le système d'identification électronique VNeID à SINGPASS est une vision stratégique.**: [Link](https://www.vietnam.vn/fr/ket-noi-he-thong-dinh-danh-dien-tu-vneid-voi-singpass-la-tam-nhin-chien-luoc)
+
+
 ### al-ettifaq – al-nassr fc (N/A, Tue, 25 Aug 2026 10:10:00 -0700)
 
 - **Al Ettifaq vs Al Nassr: Saudi Pro League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqp8x6lplr52t)
