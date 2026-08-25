@@ -1,3 +1,49 @@
+### valencia c. f. - real betis (N/A, Tue, 25 Aug 2026 11:50:00 -0700)
+
+- **Valencia - Betis en directo | LALIGA EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/valencia-betis/2026/08/25/01_0101_20260825_191_185-directo.html)
+- **13:00H | 25 AGOSTO 2026 | DEPORTES COPE EN SEVILLA**: [Link](https://www.cope.es/emisoras/andalucia/sevilla-provincia/sevilla/podcast/episodios/13-00h-25-agosto-2026-deportes-cope-sevilla-20260825_3424610.html)
+- **¿Quién juega hoy en Primera División? El partido de LaLiga de este martes 25 de agosto**: [Link](https://www.elpespunte.es/articulo/otros/quien-juega-hoy-primera-division-partido-laliga-martes-25-agosto/20260825171016147490.html)
+
+
+### عبد الرحيم بوعيدة (N/A, Tue, 25 Aug 2026 11:50:00 -0700)
+
+- **في أول رد على استقالة بوعيدة.. رئيس الفريق الإستقلالي يكشف كواليس التزكية ويؤكد: كان يتمتع بحرية التعبير داخل الحزب.**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B9%D9%85%D8%B1%D8%A7%D9%88%D9%8A-%D9%84%D9%80-2M-ma-%D9%84%D9%85-%D8%A3%D8%AA%D9%88%D8%B5%D9%84-%D8%A8%D8%A3%D9%8A-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%85%D9%86-%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D8%AD%D8%B2%D8%A8-20260824)
+- **استقالة بوعيدة تهز "الاستقلال" .. والوجهة الحزبية المقبلة "مجهولة"**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D9%8A%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D9%85%D9%82%D8%A7-1795584.html)
+- **بعد استقالته من الاستقلال.. مصادر بالـ PPS تنفي عودة بوعيدة إلى صفوف الحزب**: [Link](https://al3omk.com/1182293.html)
+
+
+### valence – betis (N/A, Tue, 25 Aug 2026 11:20:00 -0700)
+
+- **Valence – Betis : Mestalla attend sa première victoire, compos probables et chaîne TV**: [Link](https://www.befoot.net/valence-betis-compos-probables-chaine-tv-heure/)
+
+
+### dolly parton (N/A, Tue, 25 Aug 2026 11:10:00 -0700)
+
+- **Dolly Parton, Country Music Superstar Whose Songs Spoke to Millions, Dies at 80**: [Link](https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html)
+- **Dolly Parton, Queen of Country Music, Dies at 80**: [Link](https://variety.com/2026/music/news/dolly-parton-dead-dies-country-music-1236842727/)
+- **Dolly Parton, queen of country music and humanitarian hero, dead at 80**: [Link](https://www.cnn.com/2026/08/25/entertainment/dolly-parton-death)
+
+
+### جيرارد بيكيه (N/A, Tue, 25 Aug 2026 11:10:00 -0700)
+
+- **الموت يفجع جبرارد بيكيه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D9%81%D8%AC%D8%B9-%D8%AC%D8%A8%D8%B1%D8%A7%D8%B1%D8%AF-%D8%A8%D9%8A%D9%83%D9%8A%D9%87/blt9ed7cdb528f81677)
+- **وفاة جدة جيرارد بيكيه عن عمر ناهز 102 عام**: [Link](https://www.cairo24.com/2483037)
+
+
+### bruno le maire (N/A, Tue, 25 Aug 2026 11:10:00 -0700)
+
+- **France, Allemagne, Italie, Espagne, Pays-Bas et Pologne qui "fusionnent", une capitale unique, une souveraineté économique... Bruno Le Maire détaille son projet de Fédération à six pays**: [Link](https://www.bfmtv.com/economie/economie-social/union-europeenne/france-allemagne-italie-espagne-pays-bas-et-pologne-qui-fusionnent-une-capitale-unique-une-souverainete-economique-bruno-le-maire-detaille-son-projet-de-federation-a-six-pays_AV-202608250335.html)
+- **Bruno Le Maire : « Je propose une autre France »**: [Link](https://www.leparisien.fr/politique/bruno-le-maire-je-propose-une-autre-france-22-08-2026-MLIY2RQJR5AZVES4YVLRTUNZOY.php)
+- **Le courage, ils le découvrent une fois qu’ils ont quitté le pouvoir » : la charge d’Isabelle Saporta contre Bruno Le Maire**: [Link](https://www.21news.be/le-courage-ils-le-decouvrent-une-fois-quils-ont-quitte-le-pouvoir-la-charge-disabelle-saporta-contre-bruno-le-maire/)
+
+
+### الأرض (N/A, Tue, 25 Aug 2026 11:00:00 -0700)
+
+- **شاهد.. لماذا تبدو الأرض مثل "حبة بطاطا مشوهة" في صور ناسا الأخيرة؟**: [Link](https://www.aljazeera.net/science/2026/8/25/%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D8%A8%D8%AF%D9%88-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D9%85%D8%AB%D9%84-%D8%AD%D8%A8%D8%A9-%D8%A8%D8%B7%D8%A7%D8%B7%D8%A7)
+- **الأرضُ التي لا تراها العين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B6%D9%8F-%D8%A7%D9%84%D8%AA%D9%8A-%D9%84%D8%A7-%D8%AA%D8%B1%D8%A7%D9%87%D8%A7-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-1796757.html)
+- **"جيود" الأرض: نموذج جاذبية ناسا يجعل الكوكب يشبه البطاطا**: [Link](https://arabic.euronews.com/next/2026/08/17/the-geoid-why-nasas-gravity-model-makes-earth-look-like-a-potato)
+
+
 ### الاتفاق ضد النصر (N/A, Tue, 25 Aug 2026 11:00:00 -0700)
 
 - **بسلاح الجرأة.. مدرب الاتفاق يتحدى النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D9%94%D8%A9--%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt43e559e62c481740)
