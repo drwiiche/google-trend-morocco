@@ -1,3 +1,22 @@
+### الاتفاق ضد النصر (N/A, Tue, 25 Aug 2026 11:00:00 -0700)
+
+- **بسلاح الجرأة.. مدرب الاتفاق يتحدى النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D9%94%D8%A9--%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt43e559e62c481740)
+- **حكام مباريات اليوم الثلاثاء في الجولة "3" من دوري روشن**: [Link](https://www.akhbaar24.com/%D8%B3%D8%A8%D9%88%D8%B1%D8%AA-24/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-3-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-767760)
+- **مباشر.. مباراة النصر ضد الاتفاق في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/25/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%81%D9%8A)
+
+
+### ريال سوسيداد (N/A, Tue, 25 Aug 2026 10:30:00 -0700)
+
+- **7 غيابات تضرب قائمة ريال مدريد أمام سوسيداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/7-%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF/bltc7316a0036e4c526)
+- **ريال مدريد ضد ريال سوسيداد في الدوري الإسباني.. الموعد والقنوات الناقلة والتشكيلتان المتوقعتان**: [Link](https://www.aljazeera.net/sport/2026/8/25/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF)
+- **فيديو.. مورينيو يحذر صحفياً من نشر أخبار ريال مدريد السلبية**: [Link](https://www.alarabiya.net/sport/2026/08/25/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AD%D8%B0%D8%B1-%D8%B5%D8%AD%D9%81%D9%8A%D8%A7-%D9%85%D9%86-%D9%86%D8%B4%D8%B1-%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%B3%D9%84%D8%A8%D9%8A%D8%A9)
+
+
+### turf (N/A, Tue, 25 Aug 2026 09:40:00 -0700)
+
+
+
+
 ### turf fr (N/A, Tue, 25 Aug 2026 10:30:00 -0700)
 
 - **Equidia met le feu au Quinté+ du mardi 25 août à Deauville**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/equidia-met-le-feu-au-quinte-du-mardi-25-aout-a-deauville)
