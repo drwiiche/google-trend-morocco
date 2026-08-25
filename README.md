@@ -1,3 +1,17 @@
+### دوللي بارتون (N/A, Tue, 25 Aug 2026 15:50:00 -0700)
+
+- **وفاة نجمة الموسيقى والممثلة الأميركية دوللي بارتون عن 80 عاماً**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/25/%D9%88%D9%81%D8%A7%D8%A9-%D9%86%D8%AC%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%8A%D9%82%D9%89-%D9%88%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AF%D9%88%D9%84%D9%84%D9%8A-%D8%A8%D8%A7%D8%B1%D8%AA%D9%88%D9%86-%D8%B9%D9%86-80-%D8%B9%D8%A7%D9%85-%D8%A7)
+- **الكاونتري فحداد. الاسطورة دولي پارتون ماتت: باعت 100 مليون**: [Link](https://www.goud.ma/%D8%A7%D9%84%D9%83%D8%A7%D9%88%D9%86%D8%AA%D8%B1%D9%8A-%D9%81%D8%AD%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%AF%D9%88%D9%84%D9%8A-%D9%BE%D8%A7%D8%B1%D8%AA%D9%88%D9%86-1038201/)
+- **دولي بارتون تكشف تطورات حالتها الصحية وتدرس عروض "أفاتار" مستقبلا**: [Link](https://arabic.euronews.com/culture/2026/08/24/dolly-parton-shares-health-update-and-considers-avatar-performances-in-future)
+
+
+### champions league (N/A, Tue, 25 Aug 2026 12:40:00 -0700)
+
+- **LASK vs Celtic (agg 0-3): UEFA Champions League LIVE radio commentary, live text & match report**: [Link](https://www.bbc.com/sport/football/live/cwx2meg1g1z7t)
+- **LASK 5 (5)-(4) 1 Celtic | Highlights**: [Link](https://www.beinsports.com/en-mena/football/uefa-champions-league/articles-video/adeniran-completes-stunning-lask-champions-league-comeback-as-celtic-crumble-2026-08-25?videopage=true)
+- **Celtic suffer casualties and embarrassment in all-time Euro low as Champions League dream torpedoed**: [Link](https://www.scotsman.com/sport/football/celtic/latest-celtic-news/celtic-suffer-casualties-and-embarassment-in-all-time-european-low-as-champions-league-torpedoed-8941947)
+
+
 ### groupe ocp (N/A, Tue, 25 Aug 2026 15:20:00 -0700)
 
 - **L'Algérie promet de « faire mal » au Maroc avec 2,4 millions de tonnes contre 15 millions pour OCP**: [Link](https://www.bladi.net/algerie-promet-maroc-millions-tonnes-millions-ocp,123356.html)
