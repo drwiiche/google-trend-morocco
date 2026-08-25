@@ -1,3 +1,10 @@
+### belgique (N/A, Mon, 24 Aug 2026 14:00:00 -0700)
+
+- **Après plus de 17 ans en Belgique, on lui demande de retourner au Maroc pour une “formalité” : le juge intervient**: [Link](https://www.bladi.net/belgique-demande-retourner-maroc-formalite-juge-intervient,123320.html)
+- **Son français est trop bon, la Belgique doute de son projet d'études : le refus de visa d'un Marocain annulé**: [Link](https://www.bladi.net/francais-bon-belgique-doute-projet-etudes-refus-visa-marocain-annule,123292.html)
+- **La Belgique lui ordonne de quitter le territoire après sa demande de séjour, ce Marocain fait annuler les décisions**: [Link](https://www.bladi.net/belgique-ordonne-quitter-territoire-demande-sejour-marocain-annuler-decisions,123237.html)
+
+
 ### عفو (N/A, Mon, 24 Aug 2026 16:30:00 -0700)
 
 - **الملك محمد السادس يصدر "عفو المولد"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-1796570.html)
