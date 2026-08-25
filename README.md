@@ -1,3 +1,17 @@
+### police (N/A, Tue, 25 Aug 2026 03:20:00 -0700)
+
+- **Karen Solomon, Wife Charged in Massachusetts Officer’s Death, Is Believed Dead**: [Link](https://www.nytimes.com/2026/08/24/us/karen-solomon-dead-worcester.html)
+- **Massachusetts woman suspected of killing police officer husband found dead**: [Link](https://www.theguardian.com/us-news/2026/aug/24/massachusetts-woman-police-officer-husband-deaths)
+- **Kurt Solomon Obituary**: [Link](https://www.telegram.com/obituaries/pneo1547414)
+
+
+### chantier (N/A, Tue, 25 Aug 2026 00:50:00 -0700)
+
+- **Ligne C de tramway : les prochaines étapes du chantier**: [Link](https://www.lehavreseinemetropole.fr/actualites/ligne-c-de-tramway-les-prochaines-etapes-du-chantier)
+- **Chantier d’extension du tramway au Havre : « Nous sommes dans le bon timing »**: [Link](https://www.paris-normandie.fr/id740591/article/2026-08-25/chantier-dextension-du-tramway-au-havre-nous-sommes-dans-le-bon-timing)
+- **"Des ajustements au millimètre" : c’est bientôt la fin de ce chantier hors norme pour le tramway du Havre**: [Link](https://france3-regions.franceinfo.fr/normandie/seine-maritime/havre/video-le-chantier-du-tramway-au-havre-avance-a-grands-pas-les-dates-a-connaitre-3398422.html)
+
+
 ### جوزيه مورينيو (N/A, Tue, 25 Aug 2026 03:40:00 -0700)
 
 - **مورينيو يشعل غرفة ملابس ريال مدريد.. كورتوا يعلن بداية التحول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%B4%D8%B9%D9%84-%D8%BA%D8%B1%D9%81%D8%A9-%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF--%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%8A%D8%B9%D9%84%D9%86-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%88%D9%84/blta7ca5d216b78534d)
