@@ -1,3 +1,38 @@
+### play store (N/A, Tue, 25 Aug 2026 13:20:00 -0700)
+
+- **Government orders Google to shut down hundreds of Firebase accounts after finding pattern of the service**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/government-orders-google-to-shut-down-hundreds-of-firebase-accounts-after-finding-pattern-of-the-service-being-misused-by-criminals/articleshow/133403273.cms)
+- **Modi government flags 3 fraudulent loan apps on Play Store**: [Link](https://www.newsbytesapp.com/news/science/beware-of-these-3-fraudulent-loan-apps-on-play-store/story)
+- **Google Firebase scam explained: How cybercriminals are misusing the platform for phishing and fraud**: [Link](https://morungexpress.com/google-firebase-scam-explained-how-cybercriminals-are-misusing-the-platform-for-phishing-and-fraud)
+
+
+### مجتبى خامنئي (N/A, Tue, 25 Aug 2026 13:10:00 -0700)
+
+- **أول ظهور علني للمرشد الإيراني مجتبى خامنئي في اجتماع حكومي.. ما حقيقته؟**: [Link](https://www.aljazeera.net/news/2026/8/25/%D8%A3%D9%88%D9%84-%D8%B8%D9%87%D9%88%D8%B1-%D8%B9%D9%84%D9%86%D9%8A-%D9%84%D9%84%D9%85%D8%B1%D8%B4%D8%AF-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%85%D8%AC%D8%AA%D8%A8%D9%89)
+- **فيديو متداول يُظهر مجتبى خامنئي يتابع تطورات مضيق هرمز.. ما حقيقته؟ | التلفزيون العربي**: [Link](https://www.alaraby.com/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%AA%D8%AF%D8%A7%D9%88%D9%84-%D9%8A%D8%B8%D9%87%D8%B1-%D9%85%D8%AC%D8%AA%D8%A8%D9%89-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D9%8A%D8%AA%D8%A7%D8%A8%D8%B9-%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2-%D9%85%D8%A7-%D8%AD%D9%82%D9%8A%D9%82%D8%AA%D9%87)
+- **بالفيديو: وكالة «فارس» الإيرانية تنشر مشاهد لمجتبى خامنئي بصفته «مراقباً استراتيجياً» في اجتماعٍ حسّاس**: [Link](https://newturkpost.com/news/119300-%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%88%D9%83%D8%A7%D9%84%D8%A9-%D9%81%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D9%86%D8%B4%D8%B1-%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D9%85%D8%AC%D8%AA%D8%A8%D9%89-%D8%AE%D8%A7%D9%85%D9%86%D8%A6%D9%8A-%D8%A8%D8%B5%D9%81%D8%AA%D9%87-%D9%85%D8%B1%D8%A7%D9%82%D8%A8%D8%A7-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D8%AD%D8%B3%D8%A7%D8%B3)
+
+
+### nottm forest – leeds united (N/A, Tue, 25 Aug 2026 13:10:00 -0700)
+
+- **Leeds get late winner in Glasner's first Forest Premier League game**: [Link](https://www.bbc.com/sport/football/live/cm4gkdpw5qq7t)
+- **Licensable picture: UK: Carabao Cup round 2 Nottingham Forest v Leeds Rhinos**: [Link](https://www.reutersconnect.com/item/uk-carabao-cup-round-2-nottingham-forest-v-leeds-rhinos/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBSM1M3STI)
+- **Farke hails Leeds summer signing after opening day win over Nottingham Forest**: [Link](https://hayters.com/farke-hails-leeds-summer-signing-after-opening-day-win-over-nottingham-forest/)
+
+
+### southampton – west ham (N/A, Tue, 25 Aug 2026 13:10:00 -0700)
+
+- **Only Around 10,000 Tickets Sold In Home Sections For West Ham Cup Tie**: [Link](https://www.fansnetwork.co.uk/football/southampton/news/66675/only-around-10000-tickets-sold-in-home-sections-for-west-ham-cup-tie)
+- **Every word Tonda Eckert said on West Ham, squad rotation and Cyle Larin**: [Link](https://www.dailyecho.co.uk/sport/26489643.every-word-southampton-fc-s-eckert-said-west-ham-cup-tie/)
+- **Nuno looks for a Hammers response**: [Link](https://www.yellowad.co.uk/nuno-looks-for-a-hammers-response/)
+
+
+### هانزي فليك (N/A, Tue, 25 Aug 2026 13:00:00 -0700)
+
+- **قرار مصيري.. برشلونة يكافئ حمزة عبد الكريم رسميًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D8%B5%D9%8A%D8%B1%D9%8A--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%83%D8%A7%D9%81%D9%8A%D9%94-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7/blta43716a1cab4485e)
+- **مصر تترقب الظهور التاريخي للاعب الـ"9 مليارات" مع برشلونة**: [Link](https://www.alarabiya.net/sport/2026/08/22/%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%809-%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **ناقوس خطر.. سبب هام قد يعيد حمزة عبد الكريم لـ شباب برشلونة**: [Link](https://www.btolat.com/news/408456)
+
+
 ### birmingham – brentford (N/A, Tue, 25 Aug 2026 12:50:00 -0700)
 
 - **Birmingham City vs Brentford: League Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6z97dn2n0nqt)
