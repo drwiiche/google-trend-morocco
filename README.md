@@ -1,3 +1,10 @@
+### hibapress (N/A, Mon, 24 Aug 2026 22:50:00 -0700)
+
+- **فاس..استنفار أمني وسط المدينة إثر شبهة خيانة زوجية بين شخصية مرموقة و مديرة مؤسسة بنكية**: [Link](https://l3assima.ma/%D9%81%D8%A7%D8%B3%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%A5%D8%AB%D8%B1-%D8%B4%D8%A8%D9%87%D8%A9-%D8%AE%D9%8A%D8%A7%D9%86%D8%A9-%D8%B2%D9%88%D8%AC%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D9%85%D8%B1%D9%85%D9%88%D9%82%D8%A9-%D9%88-%D9%85%D8%AF%D9%8A%D8%B1%D8%A9-%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-%D8%A8%D9%86%D9%83%D9%8A%D8%A9)
+- **فاس : الغموض يلف تعاطي الجهات المعنية مع قضية محامي وعشيقته المفترضة مديرة وكالة بنكية بلغ عنهما الزوج**: [Link](https://www.almayadeennews.ma/36388-dklxfx/)
+- **زوج يروي تفاصيل ضبط زوجته رفقة شخص آخر داخل شقة بمدينة فاس..هرب من النافذة**: [Link](https://www.akhbarona.com/videos/431342.html)
+
+
 ### belgique (N/A, Mon, 24 Aug 2026 14:00:00 -0700)
 
 - **Après plus de 17 ans en Belgique, on lui demande de retourner au Maroc pour une “formalité” : le juge intervient**: [Link](https://www.bladi.net/belgique-demande-retourner-maroc-formalite-juge-intervient,123320.html)
