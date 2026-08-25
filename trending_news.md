@@ -1,3 +1,17 @@
+### عفو (N/A, Mon, 24 Aug 2026 16:30:00 -0700)
+
+- **الملك محمد السادس يصدر "عفو المولد"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D9%85%D9%88%D9%84%D8%AF-1796570.html)
+- **الملك محمد السادس يصدر عفوا عن 634 شخصا بمناسبة عيد المولد النبوي**: [Link](https://lakome2.com/flash-infos/427899/)
+- **جلالة الملك يصدر عفوه السامي على 667 شخصا بمناسبة عيد الشباب**: [Link](https://justice.gov.ma/2026/08/21/%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%B9%D9%81%D9%88%D9%87-%D8%A7%D9%84%D8%B3%D8%A7%D9%85%D9%8A-%D8%B9%D9%84%D9%89-667-%D8%B4%D8%AE%D8%B5%D8%A7/)
+
+
+### harald v de norvège (N/A, Mon, 24 Aug 2026 15:20:00 -0700)
+
+- **La santé du roi Harald de Norvège s'est "détériorée" ce week-end, selon le palais**: [Link](https://fr.euronews.com/my-europe/2026/08/24/la-sante-du-roi-harald-de-norvege-sest-deterioree-ce-week-end-selon-le-palais)
+- **Que se passera-t-il lorsque Harald sera absent : Haakon exerce déjà en tant que régent, mais presque la moitié de la Norvège ne veut pas de Mette-Marit comme reine.**: [Link](https://www.democrata.es/fr/democrate-pro/actualite-et-suivi-legislatif/que-se-passera-t-il-lorsque-harald-sera-absent-haakon-exerce-deja-en-tant-que-regent-mais-presque-la-moitie-de-la-norvege-ne-veut-pas-de-mette-marit-comme-reine/)
+- **Harald V de Norvège au plus mal à 89 ans : la reine Sonja bouleverse son agenda en catastrophe**: [Link](https://www.gala.fr/royautes/harald-v-de-norvege-au-plus-mal-a-89-ans-la-reine-sonja-bouleverse-son-agenda-en-catastrophe-20260824)
+
+
 ### kick (N/A, Mon, 24 Aug 2026 17:00:00 -0700)
 
 - **Licensable picture: Italia: Serie A Enilive Football Match AS Roma vs AC Fiorentina 2026**: [Link](https://www.reutersconnect.com/item/italia-serie-a-enilive-football-match-as-roma-vs-ac-fiorentina-2026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBSMzU4UVA)
