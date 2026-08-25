@@ -1,3 +1,31 @@
+### مصرف (N/A, Tue, 25 Aug 2026 05:50:00 -0700)
+
+- **ADIB appoints Chief AI officer to boost Vision 2035 through AI-led Banking**: [Link](https://intlbm.com/2026/08/24/adib-appoints-chief-ai-officer-to-boost-vision-2035-through-ai-led-banking/)
+- **ADIB taps AI veteran Pedro Uria-Recio to scale AI deployment across the bank**: [Link](https://enterpriseam.com/uae/2026/08/25/adib-taps-ai-veteran-pedro-uria-recio-to-scale-ai-deployment-across-the-bank/)
+- **ADIB hires Pedro Uria-Recio to lead AI strategy**: [Link](https://www.fintechfutures.com/job-cuts-new-hires/adib-hires-pedro-uria-recio-to-lead-ai-strategy)
+
+
+### vinicius junior real madrid (N/A, Tue, 25 Aug 2026 04:50:00 -0700)
+
+- **'Nobody wants him': legend voices explosive suspicion about Real Madrid's Vinicius Junior**: [Link](https://www.goal.com/en/news/nobody-wants-him-legend-voices-explosive-suspicion-about-real-madrid-s-vinicius-junior/blt4ed34ad1c1c44a37)
+- **Real Madrid’s Mourinho condemns bullying of Vinicius after La Liga win**: [Link](https://www.aljazeera.com/video/newsfeed/2026/8/23/real-madrids-mourinho-condemns-bullying-of-vinicius-after-la-liga-win)
+- **Real Madrid TV Revives Referee Criticism After Espanyol Win**: [Link](https://www.livescore.com/en/news/football/laliga/real-madrid-tv-revives-referee-criticism-after-espanyol-win-football-espana/)
+
+
+### aziz akhannouch (N/A, Tue, 25 Aug 2026 04:30:00 -0700)
+
+- **Au Maroc, Aziz Akhannouch officiellement en retrait mais omniprésent sur le terrain**: [Link](https://www.jeuneafrique.com/1837198/politique/au-maroc-aziz-akhannouch-officiellement-en-retrait-mais-omnipresent-sur-le-terrain/)
+- **[Tribune] Du “Maroc des compétences” au “Maroc des résultats”, le bilan qui dérange**: [Link](https://mobile.telquel.ma/2026/08/24/tribune-du-maroc-des-competences-au-maroc-des-resultats-le-bilan-qui-derange_2004006)
+- **Fête de la Jeunesse – Pourquoi les créations d’emploi ne suivent pas?**: [Link](https://www.leconomiste.com/fete-de-la-jeunesse-pourquoi-les-creations-demploi-ne-suivent-pas/)
+
+
+### كهرباء (N/A, Mon, 24 Aug 2026 22:50:00 -0700)
+
+- **فرق ومعدات من المغرب والسنغال للمساعدة في استعادة الكهرباء بنواكشوط**: [Link](https://www.alakhbar.info/6a8c456d4f7d8700016ce654/)
+- **موريتانيا: حريقان شديدان يقطعان الكهرباء عن أحياء في العاصمة ويشعلان جدلا سياسيا كبيرا والمعارضة تعيد قضية الفساد للواجهة**: [Link](https://www.alquds.co.uk/%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%AD%D8%B1%D9%8A%D9%82%D8%A7%D9%86-%D8%B4%D8%AF%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D9%82%D8%B7%D8%B9%D8%A7%D9%86-%D8%A7%D9%84%D9%83%D9%87%D8%B1/)
+- **ظلام نواكشوط: حصيلة سبع سنوات من التملق**: [Link](https://aqlame.com/node/43678)
+
+
 ### police (N/A, Tue, 25 Aug 2026 03:20:00 -0700)
 
 - **Karen Solomon, Wife Charged in Massachusetts Officer’s Death, Is Believed Dead**: [Link](https://www.nytimes.com/2026/08/24/us/karen-solomon-dead-worcester.html)
