@@ -1,3 +1,10 @@
+### al-ettifaq – al-nassr fc (N/A, Tue, 25 Aug 2026 10:10:00 -0700)
+
+- **Al Ettifaq vs Al Nassr: Saudi Pro League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqp8x6lplr52t)
+- **Today's matches and broadcast channels: Al-Nassr of Saudi Arabia faces Al-Ettifaq in a crucial Champions League playoff match**: [Link](https://www.voiceofemirates.com/en/sport/2026/08/25/todays-matches-and-broadcast-channels-al-nassr-of-saudi-arabia-faces-al-ettifaq-in-a-crucial-champions-league-playoff-match/)
+- **Will Cristiano Ronaldo Start Tonight vs Al-Ettifaq in Saudi Pro League? Latest Al-Nassr Team News, Lineup, Match Time And LIVE Streaming Details**: [Link](https://sundayguardianlive.com/sports/will-cristiano-ronaldo-start-tonight-vs-al-ettifaq-in-saudi-pro-league-latest-al-nassr-team-news-lineup-match-time-and-live-streaming-details-269851/)
+
+
 ### brahim díaz (N/A, Tue, 25 Aug 2026 08:20:00 -0700)
 
 - **Brahim Díaz, AC Milan does not abandon the pursuit**: [Link](https://mountakhab.net/en/brahim-diaz-ac-milan-does-not-abandon-the-pursuit/)
