@@ -1,3 +1,31 @@
+### رامي بن سبعيني (N/A, Tue, 25 Aug 2026 06:20:00 -0700)
+
+- **بن سبعيني يدفع ثمن واقعة الصيباري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%86-%D8%B3%D8%A8%D8%B9%D9%8A%D9%86%D9%8A-%D9%8A%D8%AF%D9%81%D8%B9-%D8%AB%D9%85%D9%86-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A/blt464fce43f24232e2)
+- **رغم الطرد.. بن سبعيني يستعد للمباراة الأولى في الدوري الألماني**: [Link](https://al-ain.com/article/bensebaini-dortmund-bundesliga)
+- **إيقاف رامي بن سبعيني مدافع دورتموند مباراتين في كأس ألمانيا**: [Link](https://gate.ahram.org.eg/News/5894856.aspx)
+
+
+### رياضة (N/A, Tue, 25 Aug 2026 06:20:00 -0700)
+
+- **Kobe Bryant Honored by Sports World to Celebrate Birthday of Late Lakers Icon**: [Link](https://bleacherreport.com/articles/25481605-kobe-bryant-honored-sports-world-celebrate-birthday-late-lakers-icon)
+- **Vanessa Bryant Shares Intimate Photo with Kobe Bryant on What Would Have Been the Late NBA Star’s 48th Birthday**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/vanessa-bryant-shares-intimate-photo-170632049.html)
+- **Monday is ‘Kobe Bryant Day’ for Black Mamba fans worldwide**: [Link](https://ktla.com/news/monday-is-kobe-bryant-day-for-black-mamba-fans-worldwide/)
+
+
+### quinte du 24 aout 2026 (N/A, Tue, 25 Aug 2026 05:40:00 -0700)
+
+- **Quinté du lundi 24 août 2026 à Vincennes : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-lundi-24-aout-2026-a-vincennes-les-pronostics-7900664139)
+- **Paroles de pros de lundi 24 août**: [Link](https://www.equidia.fr/articles/actualite/paroles-de-pros-de-lundi-24-aout)
+- **Henrique offre un premier Quinté+ à Lilian Durantet**: [Link](https://www.letrot.com/actualites/henrique-offre-un-premier-quinte-a-lilian-durantet-28524)
+
+
+### بوعيدة (N/A, Tue, 25 Aug 2026 05:10:00 -0700)
+
+- **في أول رد على استقالة بوعيدة.. رئيس الفريق الإستقلالي يكشف كواليس التزكية ويؤكد: كان يتمتع بحرية التعبير داخل الحزب.**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B9%D9%85%D8%B1%D8%A7%D9%88%D9%8A-%D9%84%D9%80-2M-ma-%D9%84%D9%85-%D8%A3%D8%AA%D9%88%D8%B5%D9%84-%D8%A8%D8%A3%D9%8A-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D9%85%D9%86-%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D8%AD%D8%B2%D8%A8-20260824)
+- **استقالة بوعيدة تهز "الاستقلال" .. والوجهة الحزبية المقبلة "مجهولة"**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%8A%D8%B3%D8%AA%D9%82%D9%8A%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84-%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D9%85%D9%82%D8%A7-1795584.html)
+- **العمراوي يرد على استقالة بوعيدة ويكشف تفاصيل التزكيات بكلميم**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D8%B9%D9%85%D8%B1%D8%A7%D9%88%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D8%A8%D9%88%D8%B9%D9%8A%D8%AF%D8%A9-%D9%88%D9%8A%D9%83%D8%B4%D9%81/)
+
+
 ### مصرف (N/A, Tue, 25 Aug 2026 05:50:00 -0700)
 
 - **ADIB appoints Chief AI officer to boost Vision 2035 through AI-led Banking**: [Link](https://intlbm.com/2026/08/24/adib-appoints-chief-ai-officer-to-boost-vision-2035-through-ai-led-banking/)
