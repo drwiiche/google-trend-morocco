@@ -1,3 +1,24 @@
+### kick (N/A, Mon, 24 Aug 2026 17:00:00 -0700)
+
+- **Licensable picture: Italia: Serie A Enilive Football Match AS Roma vs AC Fiorentina 2026**: [Link](https://www.reutersconnect.com/item/italia-serie-a-enilive-football-match-as-roma-vs-ac-fiorentina-2026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBSMzU4UVA)
+- **Licensable picture: Roma v Fiorentina - Serie A**: [Link](https://www.reutersconnect.com/item/roma-v-fiorentina-serie-a/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwVlc5VlFQ)
+- **Licensable picture: AS Roma v ACF Fiorentina, Serie A, Football**: [Link](https://www.reutersconnect.com/item/as-roma-v-acf-fiorentina-serie-a-football/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBSMlI2VlQ)
+
+
+### درك (N/A, Mon, 24 Aug 2026 16:30:00 -0700)
+
+- **سرية مكناس تشن حملة ضد المخدرات**: [Link](https://www.hespress.com/%D8%B3%D8%B1%D9%8A%D8%A9-%D9%85%D9%83%D9%86%D8%A7%D8%B3-%D8%AA%D8%B4%D9%86-%D8%AD%D9%85%D9%84%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-1796087.html)
+- **درك مكناس يكثف حملاته ضد المخدرات وتحجز نحو 20 كيلوغراما من الشيرا**: [Link](https://journal24.ma/%D8%AF%D8%B1%D9%83-%D9%85%D9%83%D9%86%D8%A7%D8%B3-%D9%8A%D9%83%D8%AB%D9%81-%D8%AD%D9%85%D9%84%D8%A7%D8%AA%D9%87-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D9%88%D8%AA%D8%AD%D8%AC/)
+- **توقيف أربعة أشخاص ضواحي مكناس لحيازتهم كمية مهمة من المخدرات**: [Link](https://ar.le360.ma/societe/OR5VXV3C2JEFXGVGRAOXJKLJ6M/)
+
+
+### الفناير (N/A, Mon, 24 Aug 2026 16:00:00 -0700)
+
+- **إصدار فني جديد لمجموعة فناير "MARROKIA" يحتفي بالمرأة المغربية**: [Link](https://2m.ma/ar/news/%D8%A5%D8%B5%D8%AF%D8%A7%D8%B1-%D9%81%D9%86%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%81%D9%86%D8%A7%D9%8A%D8%B1-MARROKIA-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%B1%D8%A3%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-20260822)
+- **الفناير تكرغلو…منتج جزائري يتسبب في عاصفة من الإنتقادات ودعوات للمقاطعة بسبب ألبوم "مروكية"**: [Link](https://rue20.com/1025424.html)
+- **مجموعة «فناير» تثير غضب المغاربة على مواقع التواصل الاجتماعي بسبب أغنية «المروكية»**: [Link](https://ar.le360.ma/culture/EXXGEGOU6NCTBDF4WEHOEHYBIA/)
+
+
 ### موجة حر (N/A, Mon, 24 Aug 2026 16:00:00 -0700)
 
 - **عالم مناخ يحذر من "احترار أوروبا"**: [Link](https://www.hespress.com/%D8%B9%D8%A7%D9%84%D9%85-%D9%85%D9%86%D8%A7%D8%AE-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D8%B1-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-1796148.html)
