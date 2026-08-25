@@ -1,3 +1,10 @@
+### kick (N/A, Tue, 25 Aug 2026 14:00:00 -0700)
+
+- **LASK vs Celtic (agg 0-3): UEFA Champions League LIVE radio commentary, live text & match report**: [Link](https://www.bbc.com/sport/football/live/cwx2meg1g1z7t)
+- **O'Neill sets the tone for Celtic's decisive clash in Austria**: [Link](https://onefootball.com/de/video/oneill-sets-the-tone-for-celtics-decisive-clash-in-austria-3INbvQUYprS0AZujAmXvDmlK2f8)
+- **Team’s Up: LASK Starting XI for Celtic Playoff**: [Link](https://sports.yahoo.com/articles/team-lask-starting-xi-celtic-183500597.html)
+
+
 ### play store (N/A, Tue, 25 Aug 2026 13:20:00 -0700)
 
 - **Government orders Google to shut down hundreds of Firebase accounts after finding pattern of the service**: [Link](https://timesofindia.indiatimes.com/technology/tech-news/government-orders-google-to-shut-down-hundreds-of-firebase-accounts-after-finding-pattern-of-the-service-being-misused-by-criminals/articleshow/133403273.cms)
