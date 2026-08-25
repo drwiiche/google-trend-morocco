@@ -1,3 +1,10 @@
+### ayyoub bouaddi (N/A, Tue, 25 Aug 2026 03:00:00 -0700)
+
+- **Bouaddi nears record €100 million move to Manchester City**: [Link](https://en.hespress.com/144303-bouaddi-nears-record-e100-million-move-to-manchester-city.html)
+- **Ayyoub Bouaddi has completed his medical examination at Manchester City**: [Link](https://mountakhab.net/en/ayyoub-bouaddi-has-completed-his-medical-examination-at-manchester-city/)
+- **Bouaddi left out of Lille squad ahead of reported $117M move to Man City as Rodri replacement**: [Link](https://infonews.ca/news/7828150/bouaddi-left-out-of-lille-squad-ahead-of-reported-117m-move-to-man-city-as-rodri-replacement/)
+
+
 ### easyjet (N/A, Mon, 24 Aug 2026 23:40:00 -0700)
 
 - **Major airline urges over-50s to join as cabin crew - you don't need experience**: [Link](https://www.thesun.co.uk/money/40154548/major-uk-airline-urges-over-50-s-cabin-crew-jobs/)
