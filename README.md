@@ -1,3 +1,17 @@
+### lask (N/A, Tue, 25 Aug 2026 14:30:00 -0700)
+
+- **LASK vs Celtic (agg 0-3): UEFA Champions League LIVE radio commentary, live text & match report**: [Link](https://www.bbc.com/sport/football/live/cwx2meg1g1z7t)
+- **Camilo Duran: Celtic hero hailed for ‘world-class performance’ in Champions League win**: [Link](https://www.independent.co.uk/sport/football/camilo-duran-celtic-champions-league-goals-lask-b3036013.html)
+- **Celtic were shambolic, but dysfunctional board hung Martin O'Neill men out to dry**: [Link](https://thecelticbhoys.com/celtic-were-shambolic-dysfunctional-board-blame)
+
+
+### coupe d'afrique des nations de football (N/A, Tue, 25 Aug 2026 13:30:00 -0700)
+
+- **L’Éthiopie annonce sa candidature pour la CAN 2028**: [Link](https://www.footmercato.net/a6348796092905275012-lethiopie-annonce-sa-candidature-pour-la-can-2028)
+- **CAN 2028: l’Éthiopie officiellement candidate pour l’organisation**: [Link](https://h24info.ma/sport/football/can-2028-lethiopie-officiellement-candidate-pour-lorganisation/)
+- **La course est officiellement lancée : le premier pays se porte candidat à l'organisation de la CAN 2028**: [Link](https://fr.news.yahoo.com/sport/course-officiellement-lanc%C3%A9e-premier-pays-075059148.html)
+
+
 ### kick (N/A, Tue, 25 Aug 2026 14:00:00 -0700)
 
 - **LASK vs Celtic (agg 0-3): UEFA Champions League LIVE radio commentary, live text & match report**: [Link](https://www.bbc.com/sport/football/live/cwx2meg1g1z7t)
