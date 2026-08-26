@@ -1,3 +1,24 @@
+### tim curry (N/A, Wed, 26 Aug 2026 09:40:00 -0700)
+
+- **Tim Curry, Star of ‘Rocky Horror’ and Much More, Dies at 80**: [Link](https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html)
+- **Tim Curry, star of ‘Rocky Horror Picture Show’ and ‘Clue,’ dead at 80**: [Link](https://www.cnn.com/tim-curry-death)
+- **Tim Curry, 'Rocky Horror Picture Show' and 'Clue' actor, dies at 80**: [Link](https://abcnews.com/GMA/Culture/tim-curry-rocky-horror-picture-show-clue-actor/story?id=106455175)
+
+
+### هجوم (N/A, Wed, 26 Aug 2026 09:30:00 -0700)
+
+- **السويد.. القبض على مشتبه به ثانٍ في الهجوم بالسيف على مدرسة ثانوية**: [Link](https://arabic.euronews.com/2026/08/26/sweden-second-suspect-arrested-vagersta-school-attack)
+- **هجوم على مدرسة يُخلف قتيلة وثلاثة جرحى بالسويد**: [Link](https://ar.lesiteinfo.com/faits-divers/%D9%87%D8%AC%D9%88%D9%85-%D8%B9%D9%84%D9%89-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D9%8A%D9%8F%D8%AE%D9%84%D9%81-%D9%82%D8%AA%D9%8A%D9%84%D8%A9-%D9%88%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%AC%D8%B1%D8%AD%D9%89-1017225.html)
+- **السويد تلقي القبض على مشتبه به ثان في حادث طعن مميت بمدرسة**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=26082026&id=943ce1f2-cc2e-4faf-8352-302b459fef07)
+
+
+### انتقال (N/A, Wed, 26 Aug 2026 09:30:00 -0700)
+
+- **ليس برشلونة فقط.. سر رفض جوليان ألفاريز الانتقال إلى آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%82%D8%B7--%D8%B3%D8%B1-%D8%B1%D9%81%D8%B6-%D8%AC%D9%88%D9%84%D9%8A%D8%A7%D9%86-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt0be85659afdbc654)
+- **من ديمبلي إلى ألفاريز.. نجوم أعلنوا الحرب على أنديتهم لأجل برشلونة**: [Link](https://www.aljazeera.net/sport/2026/8/25/%D9%84%D8%A7%D8%B9%D8%A8%D9%88%D9%86-%D8%AA%D9%85%D8%B1%D8%AF%D9%88%D8%A7-%D8%B9%D9%84%D9%89-%D8%A3%D9%86%D8%AF%D9%8A%D8%AA%D9%87%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **جوليان ألفاريز يفاجئ أتلتيكو مدريد اليوم**: [Link](https://radiomars.ma/%D8%A3%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D8%B3%D8%AC%D9%84-%D8%BA%D9%8A%D8%A7%D8%A8%D9%87-%D8%B9%D9%86-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/)
+
+
 ### démarchage (N/A, Wed, 26 Aug 2026 09:00:00 -0700)
 
 - **Fin du démarchage téléphonique non consenti : la casse sociale en France et au Maroc ne fait que commencer**: [Link](https://www.marianne.net/economie/fin-du-demarchage-telephonique-non-consenti-la-casse-sociale-en-france-et-au-maroc-ne-fait-que-commencer)
