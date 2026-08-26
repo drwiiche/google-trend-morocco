@@ -1,3 +1,31 @@
+### démarchage (N/A, Wed, 26 Aug 2026 09:00:00 -0700)
+
+- **Fin du démarchage téléphonique non consenti : la casse sociale en France et au Maroc ne fait que commencer**: [Link](https://www.marianne.net/economie/fin-du-demarchage-telephonique-non-consenti-la-casse-sociale-en-france-et-au-maroc-ne-fait-que-commencer)
+- **Démarchage téléphonique : « Certains démarcheurs contournent déjà la réglementation », comment vous protéger ?**: [Link](https://www.ouest-france.fr/societe/demarchage-telephonique-certains-demarcheurs-contournent-deja-la-reglementation-comment-vous-proteger-4c299f42-9a2a-11f1-80a8-4192b81f52ff)
+- **Démarchage téléphonique : la fin de l'enfer**: [Link](https://www.news-eco.com/communique/demarchage-telephonique-la-fin-de-lenfer/)
+
+
+### كارثة (N/A, Wed, 26 Aug 2026 08:40:00 -0700)
+
+- **سيول نيبال .. 95 قتيلا و384 مفقودا**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D9%86%D9%8A%D8%A8%D8%A7%D9%84-%D8%AA%D8%AE%D9%84%D9%81-%D9%82%D8%AA%D9%84%D9%89-%D9%88%D9%85%D9%81%D9%82%D9%88%D8%AF%D9%8A%D9%86-1797242.html)
+- **شاهد.. موجة مائية هائلة تباغت الناس عند معبر حدودي بين الصين ونيبال وتجبرهم على الفرار**: [Link](https://arabic.cnn.com/world/video/2026/08/26/v200716-people-flee-as-huge-wave-of-floodwater-engulfs-nepal-china-border-crossing)
+- **8 قتلى في فيضانات في النيبال قرب الحدود مع الصين**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260826-%D8%A7%D9%86%D8%B2%D9%84%D8%A7%D9%82-%D8%A3%D9%88%D8%AD%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%86%D9%8A%D8%A8%D8%A7%D9%84-%D9%8A%D9%88%D9%82%D8%B9-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D8%A7%D9%86%D8%A8-%D8%A7%D9%84%D8%B5%D9%8A%D9%86%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D9%8A%D8%A8%D8%AA)
+
+
+### maroc (N/A, Wed, 26 Aug 2026 08:20:00 -0700)
+
+- **Qualification des Lionceaux de l'Atlas pour les demi-finales des Jeux méditerranéens Tarente-2026**: [Link](https://frmf.ma/fr/articles/article-12)
+- **Jeux méditerranéens : le Maroc U20 bat la Macédoine du Nord et file en demi-finales**: [Link](https://fr.hespress.com/486129-jeux-mediterraneens-le-maroc-u20-bat-la-macedoine-du-nord-et-file-en-demi-finales.html)
+- **Jeux méditerranéens (Football) : L'équipe du Maroc U20 décroche son ticket pour les demi-finales**: [Link](https://lematin.ma/sports/jeux-mediterraneens-football-lequipe-du-maroc-u20-en-demi-finales/362121)
+
+
+### koh lanta (N/A, Wed, 26 Aug 2026 07:40:00 -0700)
+
+- **Koh-Lanta Koh Lanta All Stars - Emission 01 (Partie 1) du 25 août 2026**: [Link](https://www.tf1.fr/fr-ma/tf1/koh-lanta/videos/koh-lanta-2026-all-stars-emission-01-partie-1-du-25-aout-2026-92323979.html)
+- **"On est tout de suite mis à l'écart" : Maxime et Joana évoquent "l'handicap invisible" qui a plombé leur début d'aventure dans "Koh-Lanta All-Stars" - Puremédias**: [Link](https://www.ozap.com/actu/on-est-tout-de-suite-mis-a-lecart-maxime-et-joana-evoquent-lhandicap-invisible-qui-a-plombe-leur-debut-daventure-dans-koh-lanta-all-stars/656619)
+- **Audiences : Quel score pour le retour de Koh-Lanta sur TF1 face à un épisode inédit d'OPJ sur France 3 ?**: [Link](https://www.programme-tv.net/news/tv/407187-audiences-quel-score-pour-le-retour-de-koh-lanta-sur-tf1-face-a-un-episode-inedit-d-opj-sur-france-3/)
+
+
 ### nepal (N/A, Wed, 26 Aug 2026 07:30:00 -0700)
 
 - **Video shows scale of flash flood hitting Nepal-Tibet border**: [Link](https://www.bbc.com/news/videos/c62jmlgev3po)
