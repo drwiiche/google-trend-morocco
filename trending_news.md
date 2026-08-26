@@ -1,3 +1,10 @@
+### talbi alami (N/A, Wed, 26 Aug 2026 05:00:00 -0700)
+
+- **RNI-PAM : un audio fuité de Talbi Alami expose la bataille autour de Lekjaa**: [Link](https://ledesk.ma/2026/08/26/rni-pam-un-audio-fuite-de-talbi-alami-expose-la-bataille-autour-de-lekjaa/)
+- **Législatives 2026: Marouane Chbaatou quitte le RNI et rejoint le PAM**: [Link](https://fr.le360.ma/politique/legislatives-2026-marouane-chbaatou-quitte-le-rni-et-rejoint-le-pam_BM24DGPYH5HN3HTQSMZZFCNE4Q/)
+- **Tensions au sein de la majorité : le PAM tient une réunion extraordinaire pour répondre à Talbi El Alami du RNI**: [Link](https://telquel.ma/instant-t/2026/08/26/tensions-au-sein-de-la-majorite-le-pam-tient-une-reunion-extraordinaire-pour-repondre-a-talbi-el-alami-du-rni_2004249/)
+
+
 ### جثة (N/A, Wed, 26 Aug 2026 04:40:00 -0700)
 
 - **جثة مجهولة في عجلات طائرة وصلت إلى بريطانيا من مطار طنجة… القضاء البريطاني يفتح تحقيقاً – اليوم 24**: [Link](https://alyaoum24.com/2040216.html)
