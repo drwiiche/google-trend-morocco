@@ -1,3 +1,24 @@
+### nepal (N/A, Wed, 26 Aug 2026 07:30:00 -0700)
+
+- **Video shows scale of flash flood hitting Nepal-Tibet border**: [Link](https://www.bbc.com/news/videos/c62jmlgev3po)
+- **Earthquake and landslide trigger Nepal deadly floods**: [Link](https://www.cnn.com/2026/08/26/world/video/nepal-flood-regmi-intv-ctw-082609aseg1-cnni-world-fast)
+- **Live Updates: Hundreds Missing as Deadly Floods Sweep Away Villages in Nepal**: [Link](https://www.nytimes.com/live/2026/08/26/world/nepal-floods)
+
+
+### sonia mabrouk (N/A, Wed, 26 Aug 2026 07:00:00 -0700)
+
+- **« Pas question de devenir une pâle copie d’une chaîne d’opinion » : « 100 % Mabrouk » fait déjà grincer des dents à BFMTV**: [Link](https://www.leparisien.fr/culture-loisirs/tv/pas-question-de-devenir-une-pale-copie-dune-chaine-dopinion-100-mabrouk-fait-deja-grincer-des-dents-a-bfmtv-26-08-2026-7UTX4S7CNNEJHKOA6HJM2AV77U.php)
+- **Sonia Mabrouk sur BFM : la tornade, "le coeur" et "la nature" - Par Daniel Schneidermann**: [Link](https://www.arretsurimages.net/chroniques/obsessions/sonia-mabrouk-sur-bfm-la-tornade-le-coeur-et-la-nature)
+- **Médias et extrême droite, quelques glissements d’été, par Daniel Schneidermann**: [Link](https://www.liberation.fr/idees-et-debats/opinions/extreme-droite-petits-glissements-dete-au-monde-par-daniel-schneidermann-20260821_CS6SWBELIJBSPNP2V3DOYJEEDQ/)
+
+
+### chine (N/A, Wed, 26 Aug 2026 06:30:00 -0700)
+
+- **Vidéo. Crues soudaines au Népal: des centaines de disparus**: [Link](https://fr.euronews.com/video/2026/08/26/crues-soudaines-au-nepal-des-centaines-de-disparus)
+- **Glissement de terrain à la frontière entre le Népal et le Tibet : le ministère des Affaires étrangères s’efforce de vérifier l’implication de l’Italie.**: [Link](https://www.agenzianova.com/fr/news/Un-glissement-de-terrain-s%27est-produit-%C3%A0-la-fronti%C3%A8re-entre-le-N%C3%A9pal-et-le-Tibet.-Le-minist%C3%A8re-des-Affaires-%C3%A9trang%C3%A8res-s%27efforce-de-v%C3%A9rifier-l%27implication-%C3%A9ventuelle-d%27Italiens./)
+- **"Ces ouvrages ne tiendront pas le changement climatique du XXIe siècle" : au moins 19 morts dans des inondations au Népal**: [Link](https://www.tf1info.fr/international/videos/video-ces-ouvrages-ne-tiendront-pas-le-changement-climatique-du-xxie-siecle-au-moins-19-morts-dans-des-inondations-au-nepal-31833-2460577.html)
+
+
 ### washington (N/A, Wed, 26 Aug 2026 05:20:00 -0700)
 
 - **Seattle police arrest man accused of planning bus trip to kill Gov. Bob Ferguson**: [Link](https://www.king5.com/article/news/crime/seattle-police-arrest-man-accused-planning-bus-trip-to-kill-gov-bob-ferguson/281-71c4ec29-44be-4a69-95b8-4ea9ef6a87b0)
