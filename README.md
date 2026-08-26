@@ -1,3 +1,59 @@
+### ajax – real madrid club de fútbol (N/A, Wed, 26 Aug 2026 11:40:00 -0700)
+
+- **Ajax - Real Madrid, hoy en directo: última hora de la Champions Femenina en vivo**: [Link](https://as.com/futbol/femenino/ajax-real-madrid-hoy-en-directo-ultima-hora-de-la-champions-femenina-en-vivo-f202608-d/)
+- **El Real Madrid femenino vuelve a empezar en Ámsterdam la búsqueda de su primer título**: [Link](https://onefootball.com/es/noticias/el-real-madrid-femenino-vuelve-a-empezar-en-amsterdam-la-busqueda-de-su-primer-titulo-43340390)
+- **Pau Quesada: "Queremos ver a un Real Madrid capaz de ser muy agresivo en campo rival"**: [Link](https://www.articulo14.es/deportes/pau-quesada-queremos-ver-a-un-real-madrid-capaz-de-ser-muy-agresivo-en-campo-rival-20260826.html)
+
+
+### الريال ضد ريال سوسيداد (N/A, Wed, 26 Aug 2026 11:20:00 -0700)
+
+- **ثلاثي جديد.. مورينيو يفجر تشكيلة ريال مدريد لمعركة البرنابيو ضد سوسيداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF--%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%81%D8%AC%D8%B1-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D8%B6%D8%AF-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF/blt590e70ab3ebd8dd4)
+- **مباشر مباراة ريال مدريد ضد سوسيداد في الدوري الإسباني.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/26/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A)
+- **للمرة الثانية على التوالي الدولي المغربي إبراهيم دياز يتواجد في دكة احتياط الفريق الملكي.**: [Link](https://radiomars.ma/%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%BA/)
+
+
+### real madrid – real sociedad (N/A, Wed, 26 Aug 2026 11:10:00 -0700)
+
+- **Real Madrid - Real Sociedad hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-real-sociedad-hoy-en-directo-previa-y-ultima-hora-laliga-ea-sports-f202608-d/)
+- **Mourinho repite once; Oyarzabal, titular en la Real Sociedad**: [Link](https://es-us.noticias.yahoo.com/deportes/mourinho-repite-once-oyarzabal-titular-180024824.html)
+- **¿Por qué Real Madrid juega hoy la primera fecha de LaLiga? La razón detrás del partido aplazado**: [Link](https://www.365scores.com/es/news/por-que-real-madrid-juega-fecha-laliga/)
+
+
+### newcastle – wba (N/A, Wed, 26 Aug 2026 11:00:00 -0700)
+
+- **Latest. How to watch Newcastle United vs West Brom: TV channel, kick-off time and team news**: [Link](https://www.newcastleunited.com/en/news/how-to-watch-newcastle-united-vs-west-brom-tv-channel-kick-off-time-and-team-news)
+- **Football Tips: Wednesday’s 9/1 Carabao Cup Acca**: [Link](https://news.paddypower.com/football/2026/08/25/football-tips-everton-wednesday-second-round-carabao-cup-acca-aug-26/?beta=1/)
+- **Newcastle news: Matthias Jaissle knows importance of EFL Cup to Magpies**: [Link](https://www.bbc.co.uk/sport/football/articles/c3wj6ylpnyxo)
+
+
+### tottenham – charlton (N/A, Wed, 26 Aug 2026 11:00:00 -0700)
+
+- **Charlton chief drops line-up admission before Tottenham trip in Carabao Cup**: [Link](https://talksport.com/football/4539856/charlton-athletic-line-up-tottenham-carabao-cup-team-news/)
+- **TEAM NEWS: Van de Ven, Porro on bench for Charlton, Kudus, Maddison out**: [Link](https://cartilagefreecaptain.sbnation.com/tottenham-hotspur-news/73167/tottenham-hotspur-news-charlton-fa-cup-press-conference-injury-list)
+- **Bet £5, Get £40 for Spurs v Charlton in Carabao Cup Second Round with Sky Bet**: [Link](https://www.oddschecker.com/insight/football/20260826-bet-5-get-40-for-spurs-v-charlton-in-carabao-cup-second-round-with-sky-bet)
+
+
+### al-ahli saudi – auckland football club (N/A, Wed, 26 Aug 2026 11:00:00 -0700)
+
+- **FIFA Intercontinental Cup™: Everything you need to know**: [Link](https://aucklandfc.co.nz/news/fifa-intercontinental-cup-everything-you-need-to-know/)
+- **A Gap of More Than 24 Times: Market Values Give Al Ahli the Edge Over Auckland FC**: [Link](https://koorabreak.com/en/331146/)
+- **Al Ahly Rally Fans Ahead of Auckland Clash in Club Wor…**: [Link](https://www.ysscores.com/en/news/14028122/al-ahly-rally-fans-ahead-of-auckland-clash-in-club-world-cup)
+
+
+### turf fr (N/A, Wed, 26 Aug 2026 10:40:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour jeudi 27 août - Prix de la Villa Lucie**: [Link](https://www.lalsace.fr/actualite/2026/08/26/les-pronostics-de-l-alsace-pour-jeudi-27-aout-prix-de-la-villa-lucie)
+- **Quinté Plus PMU : Zeloro a une belle carte à jouer**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-zeloro-a-une-belle-carte-a-jouer-130396.html)
+- **Les pronos hippiques du jeudi 27 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-27-aout-2026_AN-202608260367.html)
+
+
+### i (N/A, Wed, 26 Aug 2026 10:30:00 -0700)
+
+- **Dolly Parton, queen of country music and humanitarian hero, dead at 80**: [Link](https://www.cnn.com/interactive/2026/08/26/entertainment/dolly-parton-dead-vis/index.html)
+- **Miley Cyrus grieves death of godmother Dolly Parton: ‘I have an angel by my side’**: [Link](https://www.yahoo.com/entertainment/celebrity/article/miley-cyrus-grieves-death-of-godmother-dolly-parton-i-have-an-angel-by-my-side-164420122.html)
+- **Dolly Parton left one final song for fans to hear in 2046**: [Link](https://abcnews.com/GMA/Culture/dolly-parton-left-final-song-fans-hear-2046/story?id=135968393)
+
+
 ### tim curry (N/A, Wed, 26 Aug 2026 09:40:00 -0700)
 
 - **Tim Curry, Star of ‘Rocky Horror’ and Much More, Dies at 80**: [Link](https://www.nytimes.com/2026/08/26/movies/tim-curry-dead.html)
