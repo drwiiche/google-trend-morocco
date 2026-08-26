@@ -1,3 +1,10 @@
+### coupe d'afrique des nations de football des moins de 23 ans (N/A, Tue, 25 Aug 2026 16:20:00 -0700)
+
+- **Tirage au sort des éliminatoires de la Coupe d’Afrique des nations U23: le Maroc affrontera le vainqueur d’Éthiopie-Ouganda**: [Link](https://frmf.ma/fr/articles/tirage-au-sort-des-eliminatoires-de-la-coupe-dafrique-des-nations-u23-le-maroc-affrontera-le-vainqueur-dethiopie-ouganda)
+- **À SUIVRE EN DIRECT : Les tirages au sort des éliminatoires de la TotalEnergies CAF CAN U-23 et de la CAN de Beach Soccer auront lieu au Caire mardi**: [Link](https://www.cafonline.com/fr/infos/a-suivre-en-direct-les-tirages-au-sort-des-eliminatoires-de-la-totalenergies-caf-can-u-23-et-de-la-can-de-beach-soccer-auront-lieu-au-caire-mardi/)
+- **CAN U23 2027 : les Lionceaux de l’Atlas face au vainqueur d’Éthiopie-Ouganda**: [Link](https://fr.hespress.com/486100-can-u23-2027-les-lionceaux-de-latlas-face-au-vainqueur-dethiopie-ouganda.html)
+
+
 ### دوللي بارتون (N/A, Tue, 25 Aug 2026 15:50:00 -0700)
 
 - **وفاة نجمة الموسيقى والممثلة الأميركية دوللي بارتون عن 80 عاماً**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/25/%D9%88%D9%81%D8%A7%D8%A9-%D9%86%D8%AC%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%8A%D9%82%D9%89-%D9%88%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AF%D9%88%D9%84%D9%84%D9%8A-%D8%A8%D8%A7%D8%B1%D8%AA%D9%88%D9%86-%D8%B9%D9%86-80-%D8%B9%D8%A7%D9%85-%D8%A7)
