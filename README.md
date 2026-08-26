@@ -1,3 +1,10 @@
+### إسماعيل صيباري (N/A, Tue, 25 Aug 2026 14:50:00 -0700)
+
+- **على خطى مزراوي.. الصيباري يرفض حمل كأس "البيرة" في صورة بايرن ميونيخ**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D9%89-%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B1%D9%81%D8%B6-%D8%AD%D9%85%D9%84-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A8%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%B5%D9%88%D8%B1%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE/24500)
+- **التعايش زوين.. البايرن ما بزّزوش على الصايباري يبان فالتصويرة هاز بيرة وهو قبل يتصور معهم بلا حتى مشكل**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%8A%D8%B4-%D8%B2%D9%88%D9%8A%D9%86-%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D8%A7-%D8%A8%D8%B2%D9%91%D8%B2%D9%88%D8%B4-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5-1038105/)
+- **الصيباري يرفض كأس الكحول في صورة بايرن ميونخ... موقف يلفت الأنظار**: [Link](https://aabbir.com/%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B1%D9%81%D8%B6-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D8%AD%D9%88%D9%84-%D9%81%D9%8A-%D8%B5%D9%88%D8%B1%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86/)
+
+
 ### coupe d'afrique des nations de football des moins de 23 ans (N/A, Tue, 25 Aug 2026 16:20:00 -0700)
 
 - **Tirage au sort des éliminatoires de la Coupe d’Afrique des nations U23: le Maroc affrontera le vainqueur d’Éthiopie-Ouganda**: [Link](https://frmf.ma/fr/articles/tirage-au-sort-des-eliminatoires-de-la-coupe-dafrique-des-nations-u23-le-maroc-affrontera-le-vainqueur-dethiopie-ouganda)
