@@ -1,3 +1,10 @@
+### فوزي لقجع (N/A, Wed, 26 Aug 2026 02:10:00 -0700)
+
+- **لقجع يتدخل لإنقاذ اللاعب السابق للكوكب المراكشي عبد الواحد ويندي**: [Link](https://inews.ma/news/8610707)
+- **ساكنة مراكش ومحبو الكوكب المراكشي يناشدون فوزي لقجع: أنقذوا عبدالواحد ويندي قبل فوات الأوان**: [Link](https://satv.ma/%D8%B3%D8%A7%D9%83%D9%86%D8%A9-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D9%88%D9%85%D8%AD%D8%A8%D9%88-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%8A%D9%86%D8%A7.html)
+- **فوزي لقجع يتدخل ويتكفل بمصاريف علاج لاعب الكوكب المراكشي السابق عبد الواحد ويندي**: [Link](https://www.marrakechalaan.com/article-692175)
+
+
 ### yazid ichemrahen (N/A, Wed, 26 Aug 2026 02:00:00 -0700)
 
 - **INFO BFMTV. La star de la pâtisserie Yazid Ichemrahen dépose plainte pour harcèlement moral contre un ancien collaborateur**: [Link](https://www.bfmtv.com/police-justice/info-bfmtv-la-star-de-la-patisserie-yazid-ichemrahen-depose-plainte-pour-harcelement-moral-contre-un-ancien-collaborateur_AN-202608250508.html)
