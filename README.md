@@ -1,3 +1,17 @@
+### yazid ichemrahen (N/A, Wed, 26 Aug 2026 02:00:00 -0700)
+
+- **INFO BFMTV. La star de la pâtisserie Yazid Ichemrahen dépose plainte pour harcèlement moral contre un ancien collaborateur**: [Link](https://www.bfmtv.com/police-justice/info-bfmtv-la-star-de-la-patisserie-yazid-ichemrahen-depose-plainte-pour-harcelement-moral-contre-un-ancien-collaborateur_AN-202608250508.html)
+- **Le chef pâtissier Yazid Ichemrahen porte plainte contre un ancien collaborateur : menaces, harcèlement et...**: [Link](http://foodandsens.com/f-and-s-live/le-chef-patissier-yazid-ichemrahen-porte-plainte-contre-un-ancien-collaborateur-menaces-harcelement-et-vol-dargent/)
+- **Menaces de mort, vol d’argent... Le célèbre chef pâtissier Yazid Ichemrahen dépose plainte contre un ancien collaborateur**: [Link](https://www.lechorepublicain.fr/france-monde/faits-divers/menaces-de-mort-vol-dargent-le-celebre-chef-patissier-yazid-ichemrahen-depose-plainte-contre-un-ancien-collaborateur_15036644/)
+
+
+### viande (N/A, Tue, 25 Aug 2026 14:30:00 -0700)
+
+- **« Débordée » par le nombre impressionnant de personnes recherchant de la viande de buffle fumée du Nord-Ouest vietnamien sur les plateformes de vente en ligne.**: [Link](https://www.vietnam.vn/fr/hoa-mat-tim-mua-thit-trau-gac-bep-tay-bac-tren-cho-mang)
+- **La viande de buffle indienne à moitié prix des produits vietnamiens, les petits commerçants annoncent une "rupture de stock"**: [Link](https://fr.laodong.vn/kinh-doanh/thit-trau-an-do-gia-re-bang-nua-hang-viet-tieu-thuong-bao-chay-hang-1756543.ldo)
+- **Pourquoi Hai Sapa transforme-t-il la viande de buffle indienne en viande de buffle fumée ?**: [Link](https://www.vietnam.vn/fr/vi-sao-thit-trau-an-do-lai-duoc-hai-sapa-phu-phep-thanh-trau-gac-bep)
+
+
 ### درجة حرارة (N/A, Wed, 26 Aug 2026 01:40:00 -0700)
 
 - **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-95-1796909.html)
