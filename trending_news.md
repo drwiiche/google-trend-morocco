@@ -1,3 +1,71 @@
+### kylian mbappé (N/A, Wed, 26 Aug 2026 14:00:00 -0700)
+
+- **LIVE - Suivez le match Real Madrid-Real Sociedad en direct**: [Link](https://www.football.fr/espagne/live-suivez-le-match-real-madrid-real-sociedad-en-direct-829760.html)
+- **Real Madrid – Real Sociedad : le retour de Mourinho au Bernabéu, compos probables et chaîne TV**: [Link](https://www.befoot.net/real-madrid-real-sociedad-compos-chaine-heure-2/)
+- **AI-generated image of Mbappe in military uniform at Real Madrid stadium**: [Link](https://www.aiornot.com/tracker/image/ai-generated-la-parka-real-madrid)
+
+
+### laliga (N/A, Wed, 26 Aug 2026 14:00:00 -0700)
+
+- **How to get Real Madrid vs Rayo Vallecano tickets: LaLiga prices, fixture information, last-minute sales & more**: [Link](https://www.goal.com/en-ca/news/real-madrid-rayo-vallecano-tickets/bltc40794cf78ffd1ea)
+- **Real Madrid vs Real Sociedad: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck24mej548lvt)
+- **Licensable picture: Real Madrid v Real Sociedad - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/real-madrid-v-real-sociedad-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDJDUFAxWQ)
+
+
+### brahim díaz (N/A, Wed, 26 Aug 2026 14:00:00 -0700)
+
+- **Sources: Liverpool star is “standout” profile for Euro giants as they prepare transfer move**: [Link](https://www.caughtoffside.com/2026/08/26/harvey-elliott-transfer-ac-milan/)
+- **Brahim Díaz, AC Milan does not abandon the pursuit**: [Link](https://mountakhab.net/en/brahim-diaz-ac-milan-does-not-abandon-the-pursuit/)
+- **Second Liverpool midfield exit ON as he's a 'standout' for Euro giants**: [Link](https://www.teamtalk.com/liverpool/concrete-chance-harvey-elliott-follows-curtis-jones-ac-milan)
+
+
+### لامين يامال (N/A, Wed, 26 Aug 2026 13:20:00 -0700)
+
+- **3 لاعبين وراء تدهور الحالة النفسية للامين يامال**: [Link](https://www.alarabiya.net/sport/2026/08/26/3-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%88%D8%B1%D8%A7%D8%A1-%D8%AA%D8%AF%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%86%D9%81%D8%B3%D9%8A%D8%A9-%D9%84%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84)
+- **أول تحرك من برشلونة بعد تراجع مستوى لامين يامال المفاجئ**: [Link](https://www.eremnews.com/sports/eshj9p2)
+- **فيديو | علامة استفهام في برشلونة وعزلة بليلة الخماسية.. تقرير إسباني يكشف كواليس حزن لامين يامال وتدخل رافينيا!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%B9%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D8%B3%D8%AA%D9%81%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B9%D8%B2%D9%84%D8%A9-%D8%A8%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9--%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%AD%D8%B2%D9%86-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%AA%D8%AF%D8%AE%D9%84-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7/bltfe596b04ee179c12)
+
+
+### la liga (N/A, Wed, 26 Aug 2026 13:10:00 -0700)
+
+- **Real Madrid vs Real Sociedad: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck24mej548lvt)
+- **How to Watch Real Madrid vs. Real Sociedad on TV, Live Stream**: [Link](https://www.si.com/soccer/how-to-watch-real-madrid-vs-real-sociedad-tv-live-stream-8-26-26)
+- **LIVE: Real Madrid vs Real Sociedad – La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2026/8/26/live-real-madrid-vs-sociedad-la-liga)
+
+
+### بث مباشر مباريات اليوم (N/A, Wed, 26 Aug 2026 12:50:00 -0700)
+
+
+
+
+### طاقة (N/A, Wed, 26 Aug 2026 12:40:00 -0700)
+
+- **صندوق أبو ظبي للتنمية يشيد بالبيئة الاستثمارية في المملكة**: [Link](https://www.fananews.com/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A3%D8%A8%D9%88-%D8%B8%D8%A8%D9%8A-%D9%84%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%A8%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D8%A7/)
+- **صندوق أبوظبي للتنمية يعلن تمويل مشاريع في الأردن بـ410 ملايين دولار**: [Link](https://www.aajeg.com/economy/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A3%D8%A8%D9%88%D8%B8%D8%A8%D9%8A-%D9%84%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%8A%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%A8%D9%80410-%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D8%AF%D9%88%D9%84%D8%A7%D8%B1)
+- **خطة استراتيجية لتزويد المدن الصناعية بالغاز الطبيعي لتعزيز التنافسية الاقتصادية**: [Link](https://alwakaai.com/article/742858)
+
+
+### union nord-africaine de football (N/A, Wed, 26 Aug 2026 12:40:00 -0700)
+
+- **L’équipe nationale U20 face à l’Égypte, à la Tunisie, à l’Algérie et à la Libye au Championnat de l’UNAF**: [Link](https://frmf.ma/fr/articles/lequipe-nationale-u20-face-a-legypte-a-la-tunisie-a-lalgerie-et-a-la-libye-au-championnat-de-lunaf)
+- **Foot – CAN-2027 U20 : la Tunisie ouvre face à l’Algérie le 24 septembre**: [Link](https://www.lapresse.tn/2026/08/26/foot-can-2027-u20-la-tunisie-ouvre-face-a-lalgerie-le-24-septembre/)
+- **EN (U-20) : La Tunisie en entrée et l’Egypte en dessert, pour les Verts**: [Link](https://www.footafrique.com/en-u-20-la-tunisie-en-entree-et-legypte-en-dessert-pour-les-verts/)
+
+
+### bet365 (N/A, Wed, 26 Aug 2026 12:40:00 -0700)
+
+- **bet365 Referral Code ROTOWIRE: Up To $500 Annually**: [Link](https://www.rotowire.com/article/bet365-refer-a-friend-bonus-rotowire-up-to-500-august-2026-130099)
+- **bet365 bonus code: Bet $10, get $365 in bonus bets for college football futures**: [Link](https://nypost.com/2026/08/26/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-college-football-futures/)
+- **BetOnline Welcome Offer Claim 250 Bonus For Week 0 College Football Betting**: [Link](https://www.sportscasting.com/news/betonline-welcome-offer-college-football-week-0/)
+
+
+### bein sport (N/A, Wed, 26 Aug 2026 12:40:00 -0700)
+
+- **beIN Sports hiring Kaylyn Kyle from MLS as lead soccer presenter after Richard Keys’ exit**: [Link](https://www.nytimes.com/athletic/7534935/2026/08/24/kaylyn-kyle-bein-sports-mls-keys-gray/)
+- **Stunning TV presenter's hottest pics as she becomes new face of Premier League coverage**: [Link](https://www.dailystar.co.uk/sport/football/gallery/kaylyn-kyle-richard-keys-bein-37594112)
+- **beIN SPORTS picks ex-Canadian footballer Kaylyn Kyle for Premier League coverage**: [Link](https://campaignme.com/bein-sports-picks-ex-canadian-footballer-kaylyn-kyle-for-mena-coverage/)
+
+
 ### ajax – real madrid club de fútbol (N/A, Wed, 26 Aug 2026 11:40:00 -0700)
 
 - **Ajax - Real Madrid, hoy en directo: última hora de la Champions Femenina en vivo**: [Link](https://as.com/futbol/femenino/ajax-real-madrid-hoy-en-directo-ultima-hora-de-la-champions-femenina-en-vivo-f202608-d/)
