@@ -1,3 +1,17 @@
+### washington (N/A, Wed, 26 Aug 2026 05:20:00 -0700)
+
+- **Seattle police arrest man accused of planning bus trip to kill Gov. Bob Ferguson**: [Link](https://www.king5.com/article/news/crime/seattle-police-arrest-man-accused-planning-bus-trip-to-kill-gov-bob-ferguson/281-71c4ec29-44be-4a69-95b8-4ea9ef6a87b0)
+- **Man charged with threatening to kill WA governor after laying out detailed plan**: [Link](https://mynorthwest.com/crime-blotter/wa-governor-threat-kill/4269305)
+- **Seattle man allegedly targeted governor after telling hospital of murderous plan: docs**: [Link](https://www.foxnews.com/politics/seattle-man-allegedly-targeted-governor-telling-hospital-murderous-plan-docs)
+
+
+### الطالبي العلمي (N/A, Wed, 26 Aug 2026 02:00:00 -0700)
+
+- **رئيس "الأحرار" يرد على التسريب الصوتي المنسوب إلى الطالبي العلمي**: [Link](https://www.hespress.com/%D8%B4%D9%88%D9%83%D9%8A-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%AA%D8%B3%D8%B1%D9%8A%D8%A8-%D8%B5%D9%88%D8%AA%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3-1797032.html)
+- **الأحرار يكشف استهداف منتخبيه.. حين يتحول التنافس من البرامج إلى استقطاب المرشحين**: [Link](https://rni.ma/%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D9%8A%D9%87-%D8%AD%D9%8A%D9%86-%D9%8A%D8%AA%D8%AD%D9%88/)
+- **قبل الانتخابات.. الأحرار يتهم "البام" باستقطاب منتخبيه ومرشحيه ويهدد بسلوك المساطر القانونية**: [Link](https://2m.ma/ar/news/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D8%AA%D9%87%D9%85-%D8%A7%D9%84%D8%A8%D8%A7%D9%85-%D8%A8%D8%A7%D8%B3%D8%AA%D9%82%D8%B7%D8%A7%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D9%8A%D9%87-%D9%88%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%87-%D9%88%D9%8A%D9%87%D8%AF%D8%AF-20260825)
+
+
 ### talbi alami (N/A, Wed, 26 Aug 2026 05:00:00 -0700)
 
 - **RNI-PAM : un audio fuité de Talbi Alami expose la bataille autour de Lekjaa**: [Link](https://ledesk.ma/2026/08/26/rni-pam-un-audio-fuite-de-talbi-alami-expose-la-bataille-autour-de-lekjaa/)
