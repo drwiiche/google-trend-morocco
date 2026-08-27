@@ -1,3 +1,59 @@
+### avion (N/A, Wed, 26 Aug 2026 14:30:00 -0700)
+
+- **Rien n’indique que cette vidéo montre un crash d’avion à Tel-Aviv**: [Link](https://www.france24.com/fr/moyen-orient/20260826-rien-n-indique-que-cette-vid%C3%A9o-montre-un-crash-d-avion-%C3%A0-tel-aviv)
+- **Rien n’indique que cette vidéo montre un crash d’avion à Tel-Aviv**: [Link](https://fr.news.yahoo.com/rien-n-indique-vid%C3%A9o-montre-162741300.html)
+- **Un homme retrouvé mort dans un avion Air Arabia entre Tanger et Gatwick**: [Link](https://www.yabiladi.com/articles/details/201394/homme-retrouve-mort-dans-avion.html)
+
+
+### real madrid vs real sociedad standings (N/A, Wed, 26 Aug 2026 14:20:00 -0700)
+
+- **Confirmed: Real Madrid squad list to face Real Sociedad | La Liga MD 2**: [Link](https://sports.yahoo.com/articles/confirmed-real-madrid-squad-list-123500086.html)
+- **Real Madrid vs. Real Sociedad Live Stream (8/26) | Time, TV Channel for La Liga game**: [Link](https://www.nj.com/tv/2026/08/real-madrid-vs-real-sociedad-live-stream-826-time-tv-channel-for-la-liga-game.html)
+- **Mbappé hace campaña por Mou**: [Link](https://as.com/futbol/primera/mbappe-hace-campana-por-mou-f202608-n/)
+
+
+### classement real madrid – real sociedad (N/A, Wed, 26 Aug 2026 14:10:00 -0700)
+
+- **Auteur d'un triplé contre la Real Sociedad, Kylian Mbappé guide le Real Madrid vers son deuxième succès en Liga**: [Link](https://www.lequipe.fr/Football/Actualites/Auteur-d-un-triple-contre-la-real-sociedad-kylian-mbappe-guide-le-real-madrid-vers-son-deuxieme-succes-en-liga/1713784)
+- **Mbappé signe un triplé pour ses retrouvailles avec Santiago Bernabeu**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/liga-match-en-retard-de-la-1re-journee-kylian-mbappe-marque-un-triple-pour-porter-le-real-madrid-contre-la-real-sociedad-4-1_sto23331505/story.shtml)
+- **Real Madrid : les mots forts de Fede Valverde sur Kylian Mbappé**: [Link](https://www.footmercato.net/a2489882068166173606-real-madrid-les-mots-forts-de-fede-valverde-sur-kylian-mbappe)
+
+
+### voyage (N/A, Wed, 26 Aug 2026 14:10:00 -0700)
+
+- **Dolly Parton, Country Music Superstar Whose Songs Spoke to Millions, Dies at 80**: [Link](https://www.nytimes.com/2026/08/25/arts/music/dolly-parton-dead.html)
+- **Petition to Rename Nashville Airport After Dolly Parton Reaches Over 100,000 Signatures Following Her Death**: [Link](https://people.com/petition-to-rename-nashville-airport-after-dolly-parton-gains-momentum-following-her-death-12069097)
+- **The Most Beautiful Woman**: [Link](https://www.theatlantic.com/ideas/2026/08/dolly-parton-southern-influence/688414/)
+
+
+### الدوري الاسباني (N/A, Wed, 26 Aug 2026 14:00:00 -0700)
+
+- **نجم برشلونة خارج مباراة أتلتيك بيلباو.. ورودري جاهز لضربة البداية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88--%D9%88%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%AC%D8%A7%D9%87%D8%B2-%D9%84%D8%B6%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9/bltf1260d3b4ef4c6e5)
+- **فليك يعلن موقف رودري من مباراة بلباو ويؤكد: لامين يامال لن يتفهم قراري**: [Link](https://www.btolat.com/news/408581)
+- **«رفقة رودري».. حمزة عبد الكريم يتواجد في مران المستبعدين عقب مواجهة إلتشي**: [Link](https://www.elwatannews.com/news/details/8345512)
+
+
+### ligue des champions (N/A, Wed, 26 Aug 2026 13:20:00 -0700)
+
+- **« Allez l'OM », doigt d'honneur et signe Jul face aux supporters de l'OL : Mattéo Guendouzi a fait dégénérer la soirée**: [Link](https://www.lequipe.fr/Football/Article/-allez-l-om-doigt-d-honneur-et-signe-jul-face-aux-supporters-de-l-ol-matteo-guendouzi-a-fait-degenerer-la-soiree/1713800)
+- **OL - Fenerbahçe : les notes du match**: [Link](https://www.footmercato.net/a2394691381624267173-ol-fenerbahce-les-notes-du-match)
+- **OL-Fenerbahçe: battu en barrage retour, Lyon ne verra pas la Ligue des champions cette année encore**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-ol-fenerbahce-suivez-en-live-le-barrage-retour-de-qualification-pour-la-ligue-des-champions_LS-202608260575.html)
+
+
+### توتنهام ضد تشارلتون (N/A, Wed, 26 Aug 2026 13:20:00 -0700)
+
+- **إنفاق توتنهام في سوق الانتقالات يتخطى 300 مليون إسترليني**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A5%D9%86%D9%81%D8%A7%D9%82-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-300-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%A5%D8%B3%D8%AA%D8%B1%D9%84%D9%8A%D9%86%D9%8A-13468)
+- **دي زيربي يتعهد بالتعامل بجدية مع كأس الرابطة**: [Link](https://www.elsport.com/news/show/837181/%D8%B2%D9%8A%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AA%D8%B9%D9%87%D8%AF-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%85%D9%84-%D8%A8%D8%AC%D8%AF%D9%8A%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9)
+- **كأس الرابطة الإنجليزية - سافينيو يتألق في الظهور الأول لـ توتنام.. وتأهل نيوكاسل وإيفرتون**: [Link](https://www.filgoal.com/articles/535747/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D8%B3%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%80-%D8%AA%D9%88%D8%AA%D9%86%D8%A7%D9%85-%D9%88%D8%AA%D8%A3%D9%87%D9%84-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%88%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86)
+
+
+### tottenham (N/A, Wed, 26 Aug 2026 13:10:00 -0700)
+
+- **Ipswich Town drawn in Carabao Cup third round**: [Link](https://www.arsenal.com/news/ipswich-town-drawn-in-carabao-cup-third-round-aXUPf9c4XH4Z)
+- **EFL Cup LIVE: Build-up, team news, live text & score updates as it happens from across the EFL Cup**: [Link](https://www.bbc.com/sport/football/live/c6zxq5xxdz4kt)
+- **Carabao Cup Round Three draw details**: [Link](https://efl.com/news/2026/august/25/carabao-cup-round-three-draw-details/)
+
+
 ### kylian mbappé (N/A, Wed, 26 Aug 2026 14:00:00 -0700)
 
 - **LIVE - Suivez le match Real Madrid-Real Sociedad en direct**: [Link](https://www.football.fr/espagne/live-suivez-le-match-real-madrid-real-sociedad-en-direct-829760.html)
