@@ -1,3 +1,59 @@
+### chatgpt (N/A, Thu, 27 Aug 2026 01:30:00 -0700)
+
+- **Will ChatGPT Use Your Chats For Ads? OpenAI Explains As Ads Roll Out In India**: [Link](https://www.ndtv.com/feature/chatgpt-ads-launch-in-india-how-they-work-and-what-openai-says-about-your-privacy-11965150)
+- **Ads arrive on ChatGPT in France**: [Link](https://www.lemonde.fr/en/economy/article/2026/08/25/ads-arrive-on-chatgpt-in-france_6756812_19.html)
+- **Proceed Innovative Empowers Local Businesses with ChatGPT Advertising Solutions**: [Link](https://markets.businessinsider.com/news/stocks/proceed-innovative-empowers-local-businesses-with-chatgpt-advertising-solutions-1036486661)
+
+
+### wa (N/A, Thu, 27 Aug 2026 01:30:00 -0700)
+
+- **Federal judge lifts final block on Trump mail-in voting order, clearing way for midterm restrictions**: [Link](https://www.cnbc.com/2026/08/26/trump-usps-mail-voting-rule-lawsuit-states-supreme-court.html)
+- **Judge allows Trump’s mail-in ballots plan to proceed, at least for now**: [Link](https://www.nbcnews.com/politics/elections/judge-allows-trumps-mail-ballots-plan-proceed-least-now-rcna594365)
+- **News Wrap: States sue USPS, challenging Trump’s order on mail-in voting**: [Link](https://www.pbs.org/newshour/show/news-wrap-states-sue-usps-challenging-trumps-order-on-mail-in-voting)
+
+
+### rachid talbi alami (N/A, Thu, 27 Aug 2026 01:10:00 -0700)
+
+- **“Des échecs et une mauvaise communication” : Othman et Manal Badel justifient leur passage du RNI au PAM**: [Link](https://mobile.telquel.ma/instant-t/2026/08/26/des-echecs-et-une-mauvaise-communication-othman-et-manal-badel-justifient-leur-passage-du-rni-au-pam_2004318/)
+- **Accusations de débauchage : Mansouri refuse de commenter les propos de Talbi Alami**: [Link](https://medias24.com/2026/08/27/accusations-de-debauchage-mansouri-refuse-de-commenter-les-propos-de-talbi-alami-1743831/)
+- **Ces hommes politiques trop petits pour le Maroc**: [Link](https://maroc-diplomatique.net/ces-hommes-politiques-trop-petits-pour-le-maroc/)
+
+
+### outlook (N/A, Thu, 27 Aug 2026 00:50:00 -0700)
+
+- **NVIDIA Announces Financial Results for Second Quarter Fiscal 2027**: [Link](https://nvidianews.nvidia.com/news/nvidia-announces-financial-results-for-second-quarter-fiscal-2027)
+- **Key Takeaways From Nvidia’s Earnings**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp-500-nasdaq-08-27-2026/card/key-takeaways-from-nvidia-s-earnings-gKcMMZJoaRc62lbBLONR)
+- **World in Brief: Nvidia’s record earnings; catastrophic floods sweep Nepal**: [Link](https://www.economist.com/the-world-in-brief/2026/08/26/1afb6277-2f7a-4abf-a8ed-f03b871da663)
+
+
+### goud (N/A, Wed, 26 Aug 2026 23:10:00 -0700)
+
+- **Goudprijs vandaag (middag van 26 augustus): Onveranderd**: [Link](https://www.vietnam.vn/nl/gia-vang-hom-nay-chieu-26-8-dung-yen)
+- **Op de ochtend van 26 augustus: Het verschil tussen de binnenlandse en internationale goudprijs bedroeg ongeveer 600.000 VND per tael.**: [Link](https://www.vietnam.vn/nl/sang-26-8-gia-vang-trong-nuoc-va-the-gioi-chenh-lech-khoang-600-ngan-dong-luong)
+- **Goudprijzen stijgen, experts voorspellen een nieuw koersdoel.**: [Link](https://www.vietnam.vn/nl/gia-vang-tang-manh-chuyen-gia-du-bao-nang-muc-tieu-moi)
+
+
+### جبل الشيخ (N/A, Wed, 26 Aug 2026 22:50:00 -0700)
+
+- **ردود فعل غاضبة عقب جولة لوزير الدفاع الإسرائيلي في جبل الشيخ**: [Link](https://www.aljazeera.net/news/2026/8/26/%D8%B1%D8%AF%D9%88%D8%AF-%D9%81%D8%B9%D9%84-%D8%BA%D8%A7%D8%B6%D8%A8%D8%A9-%D8%B9%D9%82%D8%A8-%D8%AC%D9%88%D9%84%D8%A9-%D9%84%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9)
+- **من سوريا.. كاتس يؤكد بقاء قواته في جبل الشيخ والمنطقة الأمنية ويبعث برسالة إلى الشرع**: [Link](https://arabic.euronews.com/2026/08/25/syria-israel-katz-mount-hermon-turkey-israeli-army-strikes)
+- **رئيس أركان الجيش الإسرائيلي من غزة: متأهبون على جميع الجبهات**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A3%D8%B1%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%85%D9%86-%D8%BA%D8%B2%D8%A9-%D9%85%D8%AA%D8%A3%D9%87%D8%A8%D9%88%D9%86-%D8%B9%D9%84%D9%89-%D8%AC%D9%85%D9%8A%D8%B9-%D8%A7%D9%84%D8%AC%D8%A8%D9%87%D8%A7%D8%AA/4037341)
+
+
+### guendouzi (N/A, Wed, 26 Aug 2026 18:20:00 -0700)
+
+- **Lyon 1-2 Fenerbahce: Matteo Guendouzi at heart of heated scenes after Turkish side progress**: [Link](https://www.bbc.com/sport/football/live/cmy459zg4wext)
+- **Chaos mars Fenerbahce’s Champions League qualifying win over Lyon**: [Link](https://www.aljazeera.com/sports/2026/8/27/chaos-mars-fenerbahces-champions-league-qualifying-win-over-lyon)
+- **Ex-Arsenal hothead Matteo Guendouzi sparks enormous brawl and attacked by fan after heated Champions League tie**: [Link](https://www.thesun.co.uk/sport/40184820/matteo-guendouzi-attacked-fan-lyon-fenerbahce/)
+
+
+### هبة مجدي (N/A, Wed, 26 Aug 2026 17:20:00 -0700)
+
+- **القصة الكاملة لمرض هبة مجدي ورسالة مؤثرة من زوجها**: [Link](https://www.masrawy.com/arts/zoom/details/2026/8/26/3039028/%D8%A7%D9%84%D9%82%D8%B5%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%84%D9%85%D8%B1%D8%B6-%D9%87%D8%A8%D8%A9-%D9%85%D8%AC%D8%AF%D9%8A-%D9%88%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D9%85%D9%86-%D8%B2%D9%88%D8%AC%D9%87%D8%A7)
+- **هبة مجدي تتصدر التريند بعد أول ظهور.. الإرادة تهزم السرطان على خشبة المسرح**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1838469-%D8%B1%D8%AD%D9%84%D8%A9-%D8%B9%D9%84%D8%A7%D8%AC-%D9%87%D8%A8%D8%A9-%D9%85%D8%AC%D8%AF%D9%8A)
+- **الفنانة هبة مجدي تعود بعد أزمتها الصحية بدعاء مؤثر من الرئيس عبدالفتاح السيسي**: [Link](https://coulissemag.com/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D9%87%D8%A8%D8%A9-%D9%85%D8%AC%D8%AF%D9%8A-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A3%D8%B2%D9%85%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A/)
+
+
 ### avion (N/A, Wed, 26 Aug 2026 14:30:00 -0700)
 
 - **Rien n’indique que cette vidéo montre un crash d’avion à Tel-Aviv**: [Link](https://www.france24.com/fr/moyen-orient/20260826-rien-n-indique-que-cette-vid%C3%A9o-montre-un-crash-d-avion-%C3%A0-tel-aviv)
