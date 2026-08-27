@@ -1,3 +1,73 @@
+### raphinha (N/A, Thu, 27 Aug 2026 13:30:00 -0700)
+
+- **In numbers: Raphinha, the king of penalties in La Liga**: [Link](https://www.goal.com/en-za/news/in-numbers-raphinha-the-king-of-penalties-in-la-liga/blt5af62a4cc9dd51be)
+- **Pedri’s vision and Raphinha’s finish give Barca the lead**: [Link](https://www.besoccer.com/new/pedris-vision-and-raphinhas-finish-give-barca-the-lead-1426824)
+- **9/9 – Barcelona star has a perfect penalty record at the club**: [Link](https://getfootballnewsspain.com/9-9-barcelona-star-has-a-perfect-penalty-record-at-the-club/)
+
+
+### direction générale de la sûreté nationale (N/A, Thu, 27 Aug 2026 13:30:00 -0700)
+
+- **Au Maroc, les hackeurs du groupe Jabaroot publient les noms de 70 000 agents des services de sécurité et de renseignement**: [Link](https://www.lemonde.fr/afrique/article/2026/08/26/au-maroc-les-hackeurs-du-groupe-jabaroot-publient-les-noms-de-70-000-agents-des-services-de-securite-et-de-renseignement_6757367_3212.html)
+- **Fuite « Jabaroot » : la DGSN et la DGST démentent tout piratage de leurs systèmes, évoquant des données anciennes issues d'assureurs**: [Link](https://ledesk.ma/2026/08/27/fuite-jabaroot-la-dgsn-et-la-dgst-dementent-tout-piratage-de-leurs-systemes-evoquant-des-donnees-anciennes-issues-dassureurs/)
+- **Des hackeurs proalgériens publient les données de 70 000 agents marocains présumés**: [Link](https://www.courrierinternational.com/article/cyberattaque-des-hackeurs-proalgeriens-publient-les-donnees-de-70-000-agents-marocains-presumes_263951)
+
+
+### fulham – afc wimbledon (N/A, Thu, 27 Aug 2026 13:20:00 -0700)
+
+- **Fulham vs AFC Wimbledon: League Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6vg8gpkzlxqt)
+- **From the Press Box: Arbeloa targets trophy as cup campaign begins**: [Link](https://www.fulhamish.co.uk/p/from-the-press-box-arbeloa-targets)
+- **What channel is Fulham v Wimbledon Carabao Cup 2nd round match on? TV coverage, live stream and kick-off time**: [Link](https://www.radiotimes.com/tv/sport/football/fulham-wimbledon-carabao-cup-2026-27-preview/)
+
+
+### chelsea (N/A, Thu, 27 Aug 2026 13:10:00 -0700)
+
+- **Manchester City Consider £120 Million Late Move for Chelsea Star Enzo Fernandez**: [Link](https://www.moroccoworldnews.com/2026/08/336261/manchester-city-consider-120-million-late-move-for-chelsea-star-enzo-fernandez/)
+- **Xabi Alonso just made his first mistake as Chelsea manager (or could it be a masterstroke)**: [Link](https://theprideoflondon.com/xabi-alonso-just-made-his-first-mistake-as-chelsea-enzo-fernandez)
+- **Selling Enzo might be best for Chelsea as well as the midfielder**: [Link](https://onefootball.com/en/news/selling-enzo-might-be-best-for-chelsea-as-well-as-the-midfielder-43342331)
+
+
+### نيويورك (N/A, Thu, 27 Aug 2026 12:40:00 -0700)
+
+- **أمريكية محجبة للجزيرة: إعلان بلدية نيويورك حوّل حياتي إلى رعب**: [Link](https://www.aljazeera.net/politics/2026/8/27/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%85%D8%AD%D8%AC%D8%A8%D8%A9-%D9%84%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%87%D9%83%D8%B0%D8%A7-%D8%AD%D9%88%D9%84-%D8%A5%D8%B9%D9%84%D8%A7%D9%86)
+- **فيديو ترويجي لبلدية نيويورك.. كيف أشعل ظهور محجبة هجومًا على ممداني؟ | التلفزيون العربي**: [Link](https://www.alaraby.com/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AA%D8%B1%D9%88%D9%8A%D8%AC%D9%8A-%D9%84%D8%A8%D9%84%D8%AF%D9%8A%D8%A9-%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D9%83%D9%8A%D9%81-%D8%A3%D8%B4%D8%B9%D9%84-%D8%B8%D9%87%D9%88%D8%B1-%D9%85%D8%AD%D8%AC%D8%A8%D8%A9-%D9%87%D8%AC%D9%88%D9%85%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%85%D8%AF%D8%A7%D9%86%D9%8A)
+- **بعد ظهورها مع ممداني.. حملة كراهية تطال أمريكية فلسطينية**: [Link](https://inews.ma/news/8615237)
+
+
+### xavi espart (N/A, Thu, 27 Aug 2026 12:40:00 -0700)
+
+- **Confirmed: Barcelona teenage prodigy registered as a first-team player**: [Link](https://barcauniversal.com/confirmed-barcelona-teenage-prodigy-registered-as-a-first-team-player/)
+- **Barcelona Coach Flick Has A New Midfielder Ahead Of Elche Debut**: [Link](https://www.forbes.com/sites/tomsanderson/2026/08/22/barcelona-coach-flick-has-a-new-midfielder-ahead-of-elche-debut/)
+- **FC Barcelona News: 26 August 2026; Preparations continue for Athletic Club, Xavi Espart set for first team promotion**: [Link](https://www.barcablaugranes.com/barcelona-news/130368/fc-barcelona-news-26-august-2026-preparations-continue-athletic-xavi-espart-first-team-promotion)
+
+
+### bet365 (N/A, Thu, 27 Aug 2026 12:30:00 -0700)
+
+- **bet365 Bonus Code: Get $365 Bonus Bets for College Football Kickoff, MLB & WNBA**: [Link](https://www.si.com/betting-promo/bet365-bonus-code-get-365-bonus-bets-for-college-football-kickoff-mlb-wnba-01m120fzz634)
+- **BetMGM Ohio Promo Code ALARM Scores $1,500 Bonus For Patriots vs. Browns**: [Link](https://www.fantasyalarm.com/articles/promotions/betmgm-ohio-promo-code-alarm-1500-bonus-patriots-vs-browns/194406)
+- **Bet365 Promo Code MHS365: Get $365 Bonus for Braves-Dodgers, MLB, CFB Week 0 Games**: [Link](https://milehighsports.com/bet365-promo-code-mhs365-get-365-bonus-for-braves-dodgers-mlb-cfb-week-0-games/)
+
+
+### turf (N/A, Thu, 27 Aug 2026 12:30:00 -0700)
+
+- **Quinté du jeudi 27 août 2026 en nocturne à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-jeudi-27-aout-2026-en-nocturne-a-deauville-les-pronostics-7900665382)
+- **Les pronos hippiques du jeudi 27 août 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-jeudi-27-aout-2026_AN-202608260367.html)
+- **Tiercé. Les pronostics de L'Alsace pour jeudi 27 août - Prix de la Villa Lucie**: [Link](https://www.lalsace.fr/actualite/2026/08/26/les-pronostics-de-l-alsace-pour-jeudi-27-aout-prix-de-la-villa-lucie)
+
+
+### gta 6 (N/A, Thu, 27 Aug 2026 12:20:00 -0700)
+
+- **GTAVI: An exclusive deep dive into the video game of the decade**: [Link](https://www.dazeddigital.com/life-culture/article/70859/1/gta-6-grand-theft-auto-vi-rockstar-exclusive-deep-dive-game-unparalleled-world)
+- **We Saw GTA 6 at Rockstar HQ — Here Are 69 Gameplay Details You Haven’t Seen**: [Link](https://www.ign.com/articles/gta-6-new-gameplay-details)
+- **San Andreas' exercise mechanics will return to Grand Theft Auto VI.**: [Link](https://en.gamegpu.com/news/igry/v-grand-theft-auto-vi-vernetsya-mekhanika-zanyatij-sportom-iz-san-andreas)
+
+
+### koora tv (N/A, Thu, 27 Aug 2026 12:20:00 -0700)
+
+- **جدول مباريات اليوم الخميس 27 أغسطس 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-27-%D8%A7%D9%94%D8%BA%D8%B3%D8%B7%D8%B3-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt6dd67c6474dd9ce3)
+- **مواعيد مباريات اليوم.. برشلونة مع أتلتيك بيلباو وتشيلسي ضد لوتون تاون**: [Link](https://www.youm7.com/story/2026/8/27/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D8%B9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D9%84%D9%88%D8%AA%D9%88%D9%86/7526667)
+- **ابرز الاحداث الرياضية ليوم الخميس في 27-08-2026**: [Link](https://www.elsport.com/news/show/837323/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-27-08-2026)
+
+
 ### chatgpt (N/A, Thu, 27 Aug 2026 01:30:00 -0700)
 
 - **Will ChatGPT Use Your Chats For Ads? OpenAI Explains As Ads Roll Out In India**: [Link](https://www.ndtv.com/feature/chatgpt-ads-launch-in-india-how-they-work-and-what-openai-says-about-your-privacy-11965150)
