@@ -1,3 +1,73 @@
+### eclipse lunaire (N/A, Thu, 27 Aug 2026 21:00:00 -0700)
+
+- **Une éclipse lunaire sera visible au Maroc ce vendredi 28 août**: [Link](https://lematin.ma/societe/une-eclipse-lunaire-sera-visible-au-maroc-ce-vendredi-28-aout/362175)
+- **Le 28 août 2026, ne ratez pas l’éclipse partielle de Lune !**: [Link](https://www.cite-espace.com/actualites-spatiales/le-28-aout-2026-ne-ratez-pas-leclipse-partielle-de-lune/)
+- **Éclipse lunaire du 28 août 2026 : un nouveau spectacle céleste à observer en France**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-08-20/eclipse-lunaire-du-28-aout-2026-un-nouveau-spectacle-celeste-a-observer-en-france-91503)
+
+
+### تمويل (N/A, Thu, 27 Aug 2026 15:50:00 -0700)
+
+- **محفظة القروض الحالية للمغرب .. 4.46 مليار دولار خارج دائرة الصرف**: [Link](https://www.hespress.com/%D9%85%D8%AD%D9%81%D8%B8%D8%A9-%D8%A7%D9%84%D9%82%D8%B1%D9%88%D8%B6-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-4-46-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D9%88-1797209.html)
+- **كريديات أكوا حكومة**: [Link](https://nichan.ma/363050/)
+- **تهدد المالية العمومية..هل ورط لقجع المغاربة في قروض طويلة الأمد؟**: [Link](https://journal24.ma/%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D9%85%D9%88%D9%85%D9%8A%D8%A9-%D9%87%D9%84-%D9%88%D8%B1%D8%B7-%D9%84%D9%82%D8%AC%D8%B9-%D8%A7%D9%84%D9%85%D8%BA/)
+
+
+### classement fc barcelone – ath. bilbao (N/A, Thu, 27 Aug 2026 14:20:00 -0700)
+
+- **Liga : le Barça dompte Bilbao pour la première de Rodri**: [Link](https://www.footmercato.net/a8180161279198590924-liga-le-barca-dompte-bilbao-pour-la-premiere-de-rodri)
+- **À quelle heure et sur quelle chaîne voir Barcelone - Athletic Bilbao ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-barcelone-athletic-bilbao/1713461)
+- **Rodrigo, dans le groupe pour Barça-Athletic**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4567003/rodrigo-dans-le-groupe-pour-barca-athletic)
+
+
+### fc barcelona vs athletic bilbao standings (N/A, Thu, 27 Aug 2026 14:20:00 -0700)
+
+- **Athletic Club standout beats Barcelona stars to Man of the Match award despite defeat**: [Link](https://getfootballnewsspain.com/athletic-club-standout-beats-barcelona-stars-to-man-of-the-match-award-despite-defeat/)
+- **Barcelona 2-0 Athletic Club: Raphinha scores again as Rodri makes debut**: [Link](https://www.bbc.com/sport/football/live/c69989m7ld0lt)
+- **Hansi Flick announces Barcelona squad for La Liga match against Athletic Bilbao**: [Link](https://www.voiceofemirates.com/en/sport/2026/08/27/hansi-flick-announces-barcelona-squad-for-la-liga-match-against-athletic-bilbao/)
+
+
+### المهدي بنعبيد (N/A, Thu, 27 Aug 2026 14:20:00 -0700)
+
+- **آخر المستجدات التي تخص ملف المهدي بنعبيد**: [Link](https://radiomars.ma/%D8%AE%D8%A7%D8%B5-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B1%D9%81%D8%B6-%D8%B9%D8%B1%D8%B6%D8%A7%D9%8B-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A7%D9%8B-%D9%84%D8%B6%D9%85-%D8%A8%D9%86%D8%B9%D8%A8/)
+- **بعد المهدي بنعبيد ... فريق سعودي يخطط لخطف لاعب من الوداد في المبركاتو الصيفي**: [Link](https://ar.sport.le360.ma/football/botola/3J4W2C3AR5BUJOXZ7TZEGLEEWA/)
+- **بعد زياش.. العسري يجالس بنعبيد من أجل الحسم في مستقبله**: [Link](https://sport.lesiteinfo.com/elbotola/501846.html)
+
+
+### finance (N/A, Thu, 27 Aug 2026 14:10:00 -0700)
+
+- **Michael Burry Thanks Tech Columnist’s Praise For Making ‘A Killing’ On NVDA, MSFT Calls Into Earnings**: [Link](https://finance.yahoo.com/markets/options/articles/michael-burry-thanks-tech-columnist-031318839.html)
+- **Michael Burry buys Nvidia calls as hedge, expands shorts on Oracle and Palantir (NVDA:NASDAQ)**: [Link](https://seekingalpha.com/news/4637492-michael-burry-buys-nvidia-calls-as-hedge-expands-shorts-on-oracle-and-palantir)
+- **Big Short's Michael Burry Sounds Alarm on AI Trade**: [Link](https://www.tradingview.com/news/u_today:6dcf44073094b:0-big-short-s-michael-burry-sounds-alarm-on-ai-trade/)
+
+
+### lamine yamal (N/A, Thu, 27 Aug 2026 14:00:00 -0700)
+
+- **What’s Going On With Lamine Yamal? Barcelona Star’s Frustration Raises Eyebrows**: [Link](https://www.sportscapemagazine.com/blog/whats-going-on-with-lamine-yamal-barcelona-stars-frustration-raises-eyebrows)
+- **Barcelone - Flick : "Lamine Yamal est un génie, on le sait tous"**: [Link](https://onefootball.com/en/video/barcelone-flick-lamine-yamal-est-un-genie-on-le-sait-tous-43345518)
+- **Lamine Yamal makes feelings clear over treatment of Alejandro Balde**: [Link](https://www.yardbarker.com/soccer/articles/lamine_yamal_makes_feelings_clear_over_treatment_of_alejandro_balde/s1_17737_44221922)
+
+
+### rodri (N/A, Thu, 27 Aug 2026 14:00:00 -0700)
+
+- **Rodri debuta con el Barça**: [Link](https://www.marca.com/futbol/barcelona/2026/08/27/rodri-debuta-barca.html)
+- **Rodri eclipsa el sueño de Gil Marín**: [Link](https://www.sport.es/es/noticias/opinion/rodri-eclipsa-sueno-gil-marin-133720113)
+- **Lista del Barça ante el Athletic, con Rodri y una ausencia sintomática**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260827/1004220274/lista-barca-athletic-rodri-ausencia-sintomatica.html)
+
+
+### الخسوف (N/A, Thu, 27 Aug 2026 13:30:00 -0700)
+
+- **استيقظوا قبل الفجر.. خسوف قمري أحمر يزين سماء العالم العربي**: [Link](https://www.aljazeera.net/science/2026/8/27/%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA%D9%83%D9%85-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%AA%D9%87-%D8%A7%D9%84%D8%A8%D8%AF%D8%B1-%D9%8A%D8%AE%D8%AA%D9%81%D9%8A-%D9%81%D8%AC%D8%B1-%D8%BA%D8%AF)
+- **خسوف جزئي عميق يحول لون القمر إلى "الأحمر النحاسي" في المغرب**: [Link](https://www.hespress.com/%D8%AE%D8%B3%D9%88%D9%81-%D8%AC%D8%B2%D8%A6%D9%8A-%D8%B9%D9%85%D9%8A%D9%82-%D9%8A%D8%AD%D9%88%D9%84-%D9%84%D9%88%D9%86-%D8%A7%D9%84%D9%82%D9%85%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AD-1796934.html)
+- **خسوف جزئي للقمر... ظاهرة فلكية نادرة تزين سماء مصر**: [Link](https://www.dw.com/ar/%D8%AE%D8%B3%D9%88%D9%81-%D8%AC%D8%B2%D8%A6%D9%8A-%D9%84%D9%84%D9%82%D9%85%D8%B1-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D9%81%D9%84%D9%83%D9%8A%D8%A9-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9-%D8%AA%D8%B2%D9%8A%D9%86-%D8%B3%D9%85%D8%A7%D8%A1-%D9%85%D8%B5%D8%B1/a-78523573)
+
+
+### منتخب المغرب لكرة القدم (N/A, Thu, 27 Aug 2026 13:30:00 -0700)
+
+- **العاب البحر الأبيض المتوسط 2026: المنتخب الوطني النسوي لأقل من 17 سنة ينهزم أمام إيطاليا**: [Link](https://frmf.ma/articles/2026-17)
+- **المغرب والجزائر وجها لوجه في تارانتو**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%AC%D9%87%D8%A7-%D9%84%D9%88%D8%AC%D9%87-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D8%A7%D9%86%D8%AA%D9%88-1797670.html)
+- **الفتيات يكتسحن كوسوفو برباعية**: [Link](https://assabah.ma/945666.html)
+
+
 ### raphinha (N/A, Thu, 27 Aug 2026 13:30:00 -0700)
 
 - **In numbers: Raphinha, the king of penalties in La Liga**: [Link](https://www.goal.com/en-za/news/in-numbers-raphinha-the-king-of-penalties-in-la-liga/blt5af62a4cc9dd51be)
