@@ -1,3 +1,73 @@
+### santander – elche (N/A, Fri, 28 Aug 2026 09:30:00 -0700)
+
+- **Racing – Elche el partido de fútbol de Jornada 1 de LaLiga EA Sports, en directo**: [Link](https://www.lavanguardia.com/deportes/futbol/20260828/24352/racing-elche-laliga-primera-division-ca-en-directo-ctx.html)
+- **NUEVA TERTULIA RACINGUISTA DE CASTRO PUNTO RADIO EN LA PREVIA DEL SEGUNDO PARTIDO EN CASA PARA LOS VERDIBLANCOS, QUE ESTA TARDE RECIBEN AL ELCHE**: [Link](https://castropuntoradio.es/nueva-tertulia-racinguista-de-castro-punto-radio-en-la-previa-del-segundo-partido-en-casa-para-los-verdiblancos-que-esta-tarde-reciben-al-elche/)
+- **Primer duelo directo**: [Link](https://www.eldiariomontanes.es/deportes/racing/primer-duelo-directo-20260828071408-nt.html)
+
+
+### كرة القدم (N/A, Fri, 28 Aug 2026 09:30:00 -0700)
+
+- **Flex your football brain with our daily quizzes**: [Link](https://www.bbc.com/sport/football/articles/cwyz7481wr7o)
+- **Five in Five: Football quiz No 12**: [Link](https://www.bbc.co.uk/sport/football/articles/clyxkxn6jngo)
+- **BBC Sport Offers Three Daily Football Quizzes**: [Link](https://ozarab.media/bbc-sport-offers-three-daily-football-quizzes/)
+
+
+### bouznika (N/A, Fri, 28 Aug 2026 06:50:00 -0700)
+
+- **Plage de Bouznika : la procédure de démolition des "cabanons" est suspendue**: [Link](https://medias24.com/2026/08/28/plage-de-bouznika-la-procedure-de-demolition-des-cabanons-est-suspendue-1744391/)
+- **Bouznika plage: les mises en demeure d’évacuation désormais «sans effet»**: [Link](https://fr.le360.ma/societe/bouznika-plage-les-mises-en-demeure-devacuation-desormais-sans-effet_7NN4P6AMLFCCVIHUOYNBENMUWI/)
+- **Cabanons de Bouznika : suspension des mises en demeure, dans l'attente de l'arbitrage de l'exécutif**: [Link](https://ledesk.ma/2026/08/28/cabanons-de-bouznika-suspension-des-mises-en-demeure-dans-lattente-de-larbitrage-de-lexecutif/)
+
+
+### وزارة التربية والتعليم (N/A, Fri, 28 Aug 2026 06:40:00 -0700)
+
+- **قرارات عاجلة من «التعليم» قبل بدء العام الدراسي الجديد 2026-2027**: [Link](https://www.almasryalyoum.com/news/details/4347275)
+- **قرار عاجل بترشيد استهلاك الطاقة والمياه في جميع المدارس.. توجيهات جديدة قبل بدء الدراسة**: [Link](https://almelnoujoum.com/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D8%AA%D8%B1%D8%B4%D9%8A%D8%AF-%D8%A7%D8%B3%D8%AA%D9%87%D9%84%D8%A7%D9%83-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D9%8A/)
+- **منع الضرب والعقوبات النفسية وحظر المساس بكرامة الطالب بالمدارس في العام الدراسي الجديد**: [Link](https://www.elbalad.news/7087081)
+
+
+### وزارة (N/A, Fri, 28 Aug 2026 06:20:00 -0700)
+
+- **وزارة التربية توجه بضبط غياب التلاميذ منذ "اليوم الأول" ورصد وفرة الكتب**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%88%D8%AC%D9%87-%D8%A8%D8%B6%D8%A8%D8%B7-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-1798108.html)
+- **وزارة التربية الوطنية تعلن عن تاريخ الدخول المدرسي وتحدث “خلايا” إقليمية لتتبع توفر الكتب المدرسية**: [Link](https://lakome2.com/education/428172/)
+- **لا تأجيل للدروس ولا تساهل مع التأخير.. تعليمات صارمة لإعادة الانضباط للفصول منذ 7 شتنبر**: [Link](https://tanja24.com/%D9%84%D8%A7-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D9%84%D9%84%D8%AF%D8%B1%D9%88%D8%B3-%D9%88%D9%84%D8%A7-%D8%AA%D8%B3%D8%A7%D9%87%D9%84-%D9%85%D8%B9-%D8%A7%D9%84%D8%AA%D8%A3%D8%AE%D9%8A%D8%B1-%D8%AA/)
+
+
+### avocat (N/A, Fri, 28 Aug 2026 05:20:00 -0700)
+
+- **Les avocats maintiennent la grève**: [Link](https://medias24.com/2026/08/28/les-avocats-maintiennent-la-greve-1744285/)
+- **Loi 66.23 : l’ABAM annonce le prolongement de la grève des avocats**: [Link](https://mobile.telquel.ma/2026/08/28/loi-66-23-labam-annonce-le-prolongement-de-la-greve-des-avocats_2004580)
+- **Profession d’avocat : la bataille contre la loi n°66.23 se poursuit, l’incertitude grandit**: [Link](https://lematin.ma/nation/profession-davocat-la-bataille-contre-la-loi-n6623-se-poursuit/362443)
+
+
+### ملك النرويج (N/A, Fri, 28 Aug 2026 05:10:00 -0700)
+
+- **وفاة ملك النرويج هارالد الخامس وتنصيب نجله هاكون الثامن**: [Link](https://www.aljazeera.net/news/2026/8/28/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%84%D9%83-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-%D9%87%D8%A7%D8%B1%D8%A7%D9%84%D8%AF-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D9%88%D8%AA%D9%86%D8%B5%D9%8A%D8%A8)
+- **وفاة ملك النرويج هارالد الخامس عن 89 عاما**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%84%D9%83-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-%D9%87%D8%A7%D8%B1%D8%A7%D9%84%D8%AF-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D8%B9%D9%86-89-%D8%B9%D8%A7%D9%85%D8%A7/4039918)
+- **الملك محمد السادس يعزي عاهل النرويج**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B9%D8%B2%D9%8A-%D9%85%D9%84%D9%83-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-1798277.html)
+
+
+### خبر (N/A, Fri, 28 Aug 2026 04:20:00 -0700)
+
+- **أنباء عن مقتل مسؤول أمني إسرائيلي في يافا**: [Link](https://www.tasnimnews.ir/ar/news/2026/08/28/3682833/%D8%A3%D9%86%D8%A8%D8%A7%D8%A1-%D8%B9%D9%86-%D9%85%D9%82%D8%AA%D9%84-%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%A3%D9%85%D9%86%DB%8C-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%DB%8C%D9%84%DB%8C-%D9%81%DB%8C-%DB%8C%D8%A7%D9%81%D8%A7)
+- **"جحيم الدنيا".. حرائق هائلة تلتهم غابات الجزائر وتقترب من المنازل**: [Link](https://www.aljazeera.net/news/2026/8/28/%D8%AC%D8%AD%D9%8A%D9%85-%D8%A7%D9%84%D8%AF%D9%86%D9%8A%D8%A7-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D9%87%D8%A7%D8%A6%D9%84%D8%A9-%D8%AA%D9%84%D8%AA%D9%87%D9%85-%D8%BA%D8%A7%D8%A8%D8%A7%D8%AA)
+- **بينهم 21 من عائلة واحدة.. حرائق الجزائر تحصد 73 ضحية في جيجل**: [Link](https://www.skynewsarabia.com/middle-east/1888775-%D8%A8%D9%8A%D9%86%D9%87%D9%85-21-%D8%B9%D8%A7%D8%A6%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%AD%D8%B5%D8%AF-73-%D8%B6%D8%AD%D9%8A%D8%A9-%D8%AC%D9%8A%D8%AC%D9%84)
+
+
+### bls (N/A, Fri, 28 Aug 2026 04:10:00 -0700)
+
+- **Smaller Revision Points to More Accurate Jobs Numbers**: [Link](https://www.nytimes.com/2026/08/28/business/economy/jobs-labor-numbers.html)
+- **The U.S. Created 79,000 Fewer Jobs Than Previously Reported, New Revisions Suggest**: [Link](https://www.wsj.com/economy/jobs/job-growth-bls-revision-5a632dc9)
+- **US Job Growth Marked Down in Preliminary Benchmark Estimate**: [Link](https://www.bloomberg.com/news/articles/2026-08-28/us-job-growth-marked-down-79-000-in-preliminary-estimate)
+
+
+### wa (N/A, Fri, 28 Aug 2026 02:10:00 -0700)
+
+- **Washington chemical tank was called unfit for service before deadly failure, investigators find**: [Link](https://apnews.com/article/nippon-dynawave-longview-chemical-tank-rupture-washington-3da9aff673419848f5cc29e076baabeb)
+- **Nippon tank was unfit for service 10 months before implosion, federal report says**: [Link](https://katu.com/news/local/nippon-tank-was-unfit-for-service-10-months-before-implosion-federal-report-says-dynawave-longview-kelso-washington-state-11-deaths-may-2026-united-states-chemical-safety-board-cowlitz-county)
+- **Longview chemical tank was called unfit for service 10 months before deadly failure, investigators find**: [Link](https://www.kptv.com/2026/08/28/longview-chemical-tank-called-unfit-service-10-months-before-deadly-failure-investigators-find/)
+
+
 ### eclipse lunaire (N/A, Thu, 27 Aug 2026 21:00:00 -0700)
 
 - **Une éclipse lunaire sera visible au Maroc ce vendredi 28 août**: [Link](https://lematin.ma/societe/une-eclipse-lunaire-sera-visible-au-maroc-ce-vendredi-28-aout/362175)
