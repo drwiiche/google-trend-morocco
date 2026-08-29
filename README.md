@@ -1,3 +1,38 @@
+### dimarco (N/A, Sat, 29 Aug 2026 14:20:00 -0700)
+
+- **Deco working on a final bombshell in Barcelona's mercato**: [Link](https://www.goal.com/en-in/news/deco-working-on-a-final-bombshell-in-barcelona-s-mercato/bltde6e59d88fbcf590)
+- **Barcelona in talks over surprise swap deal with Inter Milan**: [Link](https://getfootballnewsspain.com/barcelona-in-talks-over-surprise-player-swap-deal-with-inter-milan/)
+- **Potential Swap Deal on the Horizon Between Barcelona a…**: [Link](https://www.ysscores.com/en/news/14031231/potential-swap-deal-on-the-horizon-between-barcelona-and-inter)
+
+
+### محطة وقود (N/A, Sat, 29 Aug 2026 13:30:00 -0700)
+
+- **وزارة الانتقال الطاقي تدعو محطات الوقود الجديدة إلى اعتماد الطاقات المتجددة ابتداء من نهاية غشت**: [Link](https://2m.ma/ar/news/%D8%AF%D9%88%D8%B1%D9%8A%D8%A9-%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-%D8%AA%D8%AA%D8%AC%D9%87-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AC%D8%AF%D8%AF%D8%A9-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%A9-20260828)
+- **المغرب يعلن عن شروط جديدة لإنشاء محطات الوقود**: [Link](https://www.alarabiya.net/aswaq/oil-and-gas/2026/08/27/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%B4%D8%B1%D9%88%D8%B7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%A7%D9%86%D8%B4%D8%A7%D8%A1-%D9%85%D8%AD%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF)
+- **أكثر من 20% من قدرات إفريقيا الشمسية.. المغرب يكرس ريادته في الطاقة النظيفة - تليكسبريس**: [Link](https://telexpresse.com/494505.html)
+
+
+### israël (N/A, Sat, 29 Aug 2026 13:20:00 -0700)
+
+- **Libertés d’expression et de la presse | Les détracteurs d’Israël ne peuvent pas être déportés, tranche une juge**: [Link](https://www.lapresse.ca/international/etats-unis/2026-08-29/libertes-d-expression-et-de-la-presse/les-detracteurs-d-israel-ne-peuvent-pas-etre-deportes-tranche-une-juge.php)
+- **Visas étudiants pro-palestiniens : la justice américaine désavoue Trump**: [Link](https://africtelegraph.com/blog/visas-etudiants-pro-palestiniens-la-justice-americaine-desavoue-trump/)
+- **Un juge fédéral des États-Unis freine l'expulsion d'étrangers pour leurs discours politiques**: [Link](https://www.democrata.es/fr/international/un-juge-federal-des-etats-unis-freine-l-expulsion-d-etrangers-pour-leurs-discours-politiques/)
+
+
+### juventus (N/A, Sat, 29 Aug 2026 13:20:00 -0700)
+
+- **I Top&Flop di Juventus-Parma**: [Link](https://www.torinocronaca.it/news/sport/686950/i-top-flop-di-juventus-parma.html)
+- **Spalletti condottiero, Koopmeiners fa dimenticare Kessié: social scatenati dopo la vittoria della Juve**: [Link](https://www.corrieredellosport.it/foto/calcio/serie-a/juve/2026/08/29-150893801/spalletti_condottiero_koopmeiners_fa_dimenticare_kessi_social_scatenati_dopo_la_vittoria_della_juve)
+- **Juve-Parma, fallo in area su Keita e mancato rigore ai gialloblù? Cos’è successo**: [Link](https://www.startupbusiness.it/juve-parma-fallo-in-area-su-keita-e-mancato-rigore-ai-gialloblu-cose-successo/192823/)
+
+
+### galatasaray (N/A, Sat, 29 Aug 2026 13:10:00 -0700)
+
+- **Galatasaray 1-1 Göztepe Maçında İlk Yarı Berabere Tamamlandı**: [Link](https://www.beyazbelgehaber.com/haber/galatasaray-1-1-goztepe-macinda-i-lk-yari-berabere-tamamlandi)
+- **Stanimir Stoilov: Puan alarak ayrılmamız gerekiyordu**: [Link](https://www.ensonhaber.com/stanimir-stoilov-puan-alarak-ayrilmamiz-gerekiyordu-h1561580)
+- **Galatsaray - Göztepe Karşılaşması Öncesi Sarı - Kırmızılılarda Son Gelişmeler Neler? | Emre Kaplan**: [Link](https://www.aspor.com.tr/webtv/program/spor-gundemi/galatsaray-goztepe-karsilasmasi-oncesi-sari-kirmizililarda-son-gelismeler-neler-emre-kaplan)
+
+
 ### sevilla - atlético madrid (N/A, Sat, 29 Aug 2026 12:30:00 -0700)
 
 - **El Atlético viaja a Sevilla sin 9 puro**: [Link](https://www.marca.com/futbol/atletico/2026/08/29/atletico-viaja-sevilla-9-puro.html)
