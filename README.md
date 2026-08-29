@@ -1,3 +1,71 @@
+### زلزال (N/A, Sat, 29 Aug 2026 10:00:00 -0700)
+
+- **هل إسبانيا على موعد مع زلزال مدمّر؟ هذا ما قاله خبير لـ"يورنيوز"**: [Link](https://arabic.euronews.com/my-europe/2026/08/27/is-spain-facing-a-destructive-earthquake-an-expert-explains-to-euronews)
+- **تضرر قصر الحمراء جراء الزلزالين الأخيرين في غرناطة**: [Link](https://ar.yabiladi.com/articles/details/201570/.html)
+- **سلسلة هزات أرضية تضرب جنوب إسبانيا وتخلّف أضراراً مادية**: [Link](https://www.okaz.com.sa/variety/na/2263397)
+
+
+### ريال سوسيداد ضد إسبانيول (N/A, Sat, 29 Aug 2026 09:30:00 -0700)
+
+- **تشكيلة مباراة ريال سوسيداد وإسبانيول | الدوري الإسباني · 29 أغسطس 2026**: [Link](https://www.ysscores.com/ar/lineup/5868039/Real-Sociedad-vs-RCD-Espanyol-Barcelona)
+
+
+### real sociedad – espanyol (N/A, Sat, 29 Aug 2026 09:20:00 -0700)
+
+- **Que la bola no se haga más grande**: [Link](https://www.diariovasco.com/real-sociedad/bola-haga-grande-20260829000740-nt.html)
+- **Matarazzo, sobre el sorteo de la Liga Europa: "Estoy muy contento con el resultado del sorteo"**: [Link](https://kirolakeitb.eus/es/futbol/equipos/real-sociedad/2026/08/28/declaraciones-matarazzo-sorteo-liga-europa-estoy-muy-contento-resultado/)
+- **Real Sociedad - Espanyol, en directo hoy: sigue el partido de LaLiga EA Sports minuto a minuto**: [Link](https://www.europapress.es/deportes/partidos-en-directo/noticia-real-sociedad-espanyol-directo-hoy-sigue-partido-laliga-ea-sports-minuto-minuto-20260829180056.html)
+
+
+### gta vi netflix (N/A, Sat, 29 Aug 2026 09:10:00 -0700)
+
+- **Grand Theft Auto VI: An Extended Look — Now Playing**: [Link](https://www.rockstargames.com/newswire/article/4k138k8okkk483/grand-theft-auto-vi-an-extended-look-now-playing)
+- **GTAVI: An exclusive deep dive into the video game of the decade**: [Link](https://www.dazeddigital.com/life-culture/article/70859/1/gta-6-grand-theft-auto-vi-rockstar-exclusive-deep-dive-game-unparalleled-world)
+- **We Saw More of GTA 6, and Rockstar’s New Open World Feels Less Like a Game and More Like a Place**: [Link](https://www.ign.com/articles/gta-6-exclusive-preview)
+
+
+### dortmund – hambourg (N/A, Sat, 29 Aug 2026 09:00:00 -0700)
+
+- **Borussia Dortmund vs Hamburger SV: German Bundesliga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmjrxdz1ywz9t)
+- **Confirmed Lineups: Borussia Dortmund vs. Hamburger SV**: [Link](https://sports.yahoo.com/articles/confirmed-lineups-borussia-dortmund-vs-153000177.html)
+- **Match Preview: New-Look BVB Opens the Season Against Hamburg**: [Link](https://www.fearthewall.com/general/24664/match-preview-new-look-bvb-opens-the-season-against-hamburg)
+
+
+### jeux méditerranéens (N/A, Sat, 29 Aug 2026 09:00:00 -0700)
+
+- **Jeux méditerranéens : le judoka marocain Ahmed Alaoui Cherifi décroche l’or des -60 kg**: [Link](https://medias24.com/2026/08/29/jeux-mediterraneens-le-judoka-marocain-ahmed-alaoui-cherifi-decroche-lor-des-60-kg-1744919/)
+- **Jeux méditerranéens (Judo): Deux médailles d’argent pour le Maroc**: [Link](https://maroc-diplomatique.net/jeux-mediterraneens-judo-deux-medailles-dargent-pour-le-maroc/)
+- **Judo : l'argent pour Hassan Doukkali, battu en finale par l'Algérien Idriss Redouane Messaoud**: [Link](https://radiomars.ma/fr/?p=5787)
+
+
+### tottenham – newcastle (N/A, Sat, 29 Aug 2026 08:50:00 -0700)
+
+- **Tottenham v Newcastle: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/aug/29/tottenham-hotspur-v-newcastle-premier-league-live)
+- **Sky Bet Spurs v Newcastle Offer: Get 50/1 on a Goal to be Scored in the Game**: [Link](https://www.whoscored.com/articles/trCN-AGW9UWyENEwuDjYKA/show/sky-bet-spurs-v-newcastle-offer-get-501-on-a-goal-to-be-scored-in-the-game)
+- **Tottenham v Newcastle LIVE: New signings Savio and Marmoush could make Spurs debuts in Premier League**: [Link](https://www.livescore.com/en/news/football/premier-league/tottenham-v-newcastle-live-new-signings-savio-and-marmoush-could-make-spurs-debuts-in-premier-league-the-independent/)
+
+
+### levante vs betis (N/A, Sat, 29 Aug 2026 08:30:00 -0700)
+
+- **Levante vs Real Betis: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6evwjn2dxn2t)
+- **Licensable picture: Levante UD v Real Betis Balompie - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/levante-ud-v-real-betis-balompie-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDdVUlJCWg)
+- **!+[Here's Way To Watch]!@! Real Betis vs Levante Free Soccer Match Thursday, 28.08.2026**: [Link](https://airandspace.si.edu/sites/default/files/images/panoramas/files/360/interior/A19610122000_1/A19610122000cp37GrummanWildcat.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sarahkatie172sf.github.io/ant/z.xml%22/%3E%3C/krpano%3E&id=real-betis-vs-levante-liv-568)
+
+
+### ليفانتي ضد ريال بتيس (N/A, Sat, 29 Aug 2026 08:00:00 -0700)
+
+- **الزلزولي يعود إلى قائمة بيتيس بعد غياب طويل.. وبيليغريني يحدد شرط مشاركته**: [Link](https://kifache.com/%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A8%D8%B9%D8%AF-%D8%BA%D9%8A%D8%A7%D8%A8/)
+- **محمد وهبي يتلقى خبرا سارا قبل مواجهتي الغابون وليسوتو**: [Link](https://ar.sport.le360.ma/football/botola/AJHWXCFZONBGBAGD7BLK7XJW5I/)
+- **كابوس الجاهزية يهدد انطلاقة نجم الأسود في الموسم الجديد**: [Link](https://aljarida24.ma/p/actualites/355643/)
+
+
+### strasbourg – lens (N/A, Sat, 29 Aug 2026 07:40:00 -0700)
+
+- **Strasbourg - Lens en direct : suivez la Ligue 1 2026-2027**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-strasbourg-rc-lens_mtc21875673/live-commentary.shtml)
+- **Football. Ligue 1 : Abdallah Sima, un « bosseur » à la pointe de l'attaque lensoise face à Strasbourg**: [Link](https://www.ledauphine.com/sport/2026/08/29/ligue-1-abdallah-sima-un-bosseur-a-la-pointe-de-l-attaque-lensoise-face-a-strasbourg)
+- **En direct Ligue 1. Le but d'Ortega refusé... Le Racing Club de Strasbourg manque l'occasion de prendre l'avantage : suivez le match en direct**: [Link](https://www.dna.fr/sport/2026/08/29/premiere-de-la-saison-a-la-meinau-le-racing-club-de-strasbourg-accueille-lens-pour-une-belle-affiche-suivez-le-match-en-direct)
+
+
 ### نادي المغرب الفاسي (N/A, Sat, 29 Aug 2026 05:40:00 -0700)
 
 - **"قرعة الدوري" تثير غضب "الماص"**: [Link](https://www.hespress.com/%D9%82%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%BA%D8%B6%D8%A8-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-1798651.html)
