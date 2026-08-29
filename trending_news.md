@@ -1,3 +1,31 @@
+### inter miami – montréal (N/A, Sat, 29 Aug 2026 16:10:00 -0700)
+
+- **Miami vs. CF Montréal (Aug 29, 2026) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/761757)
+- **Lionel Messi Goalscorer Payout Odds: Inter Miami vs. Montreal**: [Link](https://www.gambling911.com/lionel-messi-goalscorer-prop-bets-vs-montreal)
+- **Inter Miami CF vs. CF Montréal Prediction, Picks, Live Odds – Aug. 29**: [Link](https://www.bleachernation.com/picks/2026/08/29/inter-miami-cf-vs-cf-montreal-prediction-picks-live-odds-aug-29/)
+
+
+### سفيان أمرابط (N/A, Sat, 29 Aug 2026 16:00:00 -0700)
+
+- **فنربخشة يعلن رحيل سفيان أمرابط والنجم المغربي يحدد وجهته القادمة**: [Link](https://www.aljazeera.net/sport/2026/8/29/%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D9%81%D9%86%D8%B1%D8%A8%D8%AE%D8%B4%D8%A9)
+- **نجم المغرب يفسخ عقده.. ويتفق سريعًا مع عملاق أوروبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%81%D8%B3%D8%AE-%D8%B9%D9%82%D8%AF%D9%87--%D9%88%D9%8A%D8%AA%D9%81%D9%82-%D8%B3%D8%B1%D9%8A%D8%B9%D9%8B%D8%A7-%D9%85%D8%B9-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A/bltb26440a2a9c3d2ad)
+- **قدم.. فنربهتشه ينهي عقد المغربي سفيان أمرابط بالتراضي**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%81%D9%86%D8%B1%D8%A8%D9%87%D8%AA%D8%B4%D9%87-%D9%8A%D9%86%D9%87%D9%8A-%D8%B9%D9%82%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A3%D9%85%D8%B1%D8%A7%D8%A8%D8%B7-%D8%A8%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%B6%D9%8A/4041191)
+
+
+### لعبة جهنم (N/A, Sat, 29 Aug 2026 15:50:00 -0700)
+
+- **ترقب لعرض "لعبة جهنم" أولى حكايات مسلسل "القصة الكاملة..دراما"**: [Link](https://arabic.cnn.com/entertainment/article/2026/08/27/anticipation-is-high-for-the-premiere-of-the-full-story-drama-series)
+- **بسنت شوقي تستغيث لإنقاذ زوجها محمد فراج من عمله**: [Link](https://www.lahamag.com/article/240468-%D8%A8%D8%B3%D9%86%D8%AA-%D8%B4%D9%88%D9%82%D9%8A-%D8%AA%D8%B3%D8%AA%D8%BA%D9%8A%D8%AB-%D9%84%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%B2%D9%88%D8%AC%D9%87%D8%A7-%D9%85%D8%AD%D9%85%D8%AF-%D9%81%D8%B1%D8%A7%D8%AC-%D9%85%D9%86-%D8%B9%D9%85%D9%84%D9%87)
+- **من هو عمر رزيق الذي فاجأ الجمهور؟.. تحول لافت من «ولنا في الخيال حب» إلى «لعبة جهنم»**: [Link](https://www.almasryalyoum.com/news/details/4348480)
+
+
+### thiago pitarch (N/A, Sat, 29 Aug 2026 15:30:00 -0700)
+
+- **Journalists' laughter erupted: Mourinho surprises Thiago Pitarch with a strange piece of advice**: [Link](https://www.goal.com/en-za/news/journalists-laughter-erupted-mourinho-surprises-thiago-pitarch-with-a-strange-piece-of-advice/blt41c56d09fe84c901)
+- **Mourinho: 'I'm Impressed with Tiago Pitarh, His Leg Muscles Are Like Mine and He Needs to Gain Weight'**: [Link](https://m.elbotola.com/en/article/2026-08-29-11-35-787.html)
+- **José Mourinho confirms Real Madrid youngster is now a first-team player: ‘He deserves it’**: [Link](https://getfootballnewsspain.com/jose-mourinho-confirms-real-madrid-youngster-is-now-a-first-team-player-he-deserves-it/)
+
+
 ### dimarco (N/A, Sat, 29 Aug 2026 14:20:00 -0700)
 
 - **Deco working on a final bombshell in Barcelona's mercato**: [Link](https://www.goal.com/en-in/news/deco-working-on-a-final-bombshell-in-barcelona-s-mercato/bltde6e59d88fbcf590)
