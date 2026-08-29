@@ -1,3 +1,45 @@
+### عاصفة رعدية (N/A, Fri, 28 Aug 2026 23:00:00 -0700)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-88-1797958.html)
+- **أجواء حارة ورياح وأمطار رعدية بعدد من المناطق**: [Link](https://assabah.ma/946127.html)
+- **توقعات أحوال الطقس لليوم السبت بعدد من مناطق المملكة**: [Link](https://barlamane.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%84%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-8/)
+
+
+### kick (N/A, Fri, 28 Aug 2026 20:40:00 -0700)
+
+- **I'm honestly so sick of Kick, and the "Last Woman Standing" exploitation stream was my final straw**: [Link](https://esportsinsider.com/2026/08/last-woman-standing-stream-kick-backlash)
+- **Belloumou | Villa test is a really good game to finish pre-season**: [Link](https://www.whufc.com/en/news/belloumou-or-villa-test-is-a-really-good-game-to-finish-pre-season)
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/august/26/women-player-availability-update--west-ham-united/)
+
+
+### boeing 737 max (N/A, Fri, 28 Aug 2026 18:30:00 -0700)
+
+- **Southwest Airlines Just Hit 100 Daily International Flights On An Aircraft That Can't Take It Much Further**: [Link](https://simpleflying.com/southwest-airlines-hit-100-daily-international-flights-aircraft-cant-take-much-further/)
+- **Southwest hits 100 daily international flights**: [Link](https://www.insideflyer.com/posts/southwest-hits-100-daily-international-flights-2/)
+- **Airidea to charter Jetsteam 32 amid new partnership**: [Link](https://www.ch-aviation.com/news/171146-airidea-to-charter-jetsteam-32-amid-new-partnership)
+
+
+### sonia mabrouk bfmtv (N/A, Fri, 28 Aug 2026 17:10:00 -0700)
+
+- **Les débuts sur BFMTV de l’ex-CNews Sonia Mabrouk déjà critiqués en interne**: [Link](https://www.20minutes.fr/arts-stars/television/4241211-20260827-bfmtv-debuts-transfuge-cnews-sonia-mabrouk-deja-critiques-interne)
+- **Sonia Mabrouk : « Depuis la mort de ma mère, je fais une prière matin et soir. Une musulmane, une chrétienne »**: [Link](https://www.parismatch.com/culture/medias/sonia-mabrouk-depuis-la-mort-de-ma-mere-je-fais-une-priere-matin-et-soir-une-musulmane-une-chretienne-274696)
+- **100% Mabrouk (BFMTV) – Sonia Mabrouk : « Au départ, je voulais m’éloigner de l’interview politique »**: [Link](https://www.programme-television.org/news/tv/emissions-tele/100-mabrouk-bfmtv-sonia-mabrouk-au-depart-je-voulais-meloigner-de-linterview-politique-138212)
+
+
+### الشركة الوطنية لتوزيع البترول (N/A, Fri, 28 Aug 2026 16:30:00 -0700)
+
+- **شركة 'عجيل': التزوّد بالوقود سيعود إلى نسقه الطبيعي بدايةً من السبت**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1528609/%D8%B4%D8%B1%D9%83%D8%A9-%D8%B9%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AA%D8%B2%D9%88-%D8%AF-%D8%A8%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF-%D8%B3%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D9%86%D8%B3%D9%82%D9%87-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA)
+- **إضراب بقطاع المحروقات في تونس.. هذا موعده**: [Link](https://www.almashhad.com/article/174515324408726-economy/815395969414008-%D8%A5%D8%B6%D8%B1%D8%A7%D8%A8-%D8%AA%D9%88%D9%86%D8%B3/)
+- **قسم القطاع الخاص بالاتحاد العام للشغل يصدر برقية تنبيه بإضراب في قطاع نقل المحروقات يومي 23 و24 سبتمبر المقبل**: [Link](https://www.babnet.net/cadredetail-335125.asp)
+
+
+### نادي بنفيكا (N/A, Fri, 28 Aug 2026 15:50:00 -0700)
+
+- **أزمة تفتح الباب.. عملاق أوروبي يترقب الكرواني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%A8%D8%A7%D8%A8--%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%84%D9%83%D8%B1%D9%88%D8%A7%D9%86%D9%8A/blt2966267bb779f0c9)
+- **دولي مغربي جديد يقترب من الانتقال للدوري البرتغالي**: [Link](https://ar.sport.le360.ma/mercato/7FU7MFHVHFDUBNWUYNFT3RMQE4/)
+- **أسد مغربي على أعتاب الرحيل بعد شهر من انتقاله إلى الدوري السعودي**: [Link](https://barlamanesport.com/%D8%A3%D8%B3%D8%AF-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D9%84%D9%89-%D8%A3%D8%B9%D8%AA%D8%A7%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%A8%D8%B9%D8%AF-%D8%B4%D9%87%D8%B1-%D9%85%D9%86-%D8%A7%D9%86/)
+
+
 ### nigeria (N/A, Fri, 28 Aug 2026 17:00:00 -0700)
 
 - **Nigeria's president orders rescue after mass kidnapping exposes security failings**: [Link](https://www.reuters.com/world/africa/nigerias-president-orders-rescue-after-mass-kidnapping-2026-08-25/)
