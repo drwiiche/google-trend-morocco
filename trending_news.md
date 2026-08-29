@@ -1,3 +1,71 @@
+### نادي المغرب الفاسي (N/A, Sat, 29 Aug 2026 05:40:00 -0700)
+
+- **"قرعة الدوري" تثير غضب "الماص"**: [Link](https://www.hespress.com/%D9%82%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%BA%D8%B6%D8%A8-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-1798651.html)
+- **العصبة تكشف برنامج البطولة الاحترافية لموسم 2026-2027**: [Link](https://assabah.ma/946393.html)
+- **كلاسيكو الجيش والرجاء في افتتاح مباريات البطولة والديربي في الجولة 11**: [Link](https://www.ahdath.info/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A/)
+
+
+### algerie maroc u21 (N/A, Sat, 29 Aug 2026 05:20:00 -0700)
+
+- **Jeux méditerranéens (équipes masculines): Algérie -Maroc 4-3 (t.a.b)**: [Link](https://frmf.ma/fr/articles/article-13)
+- **Jeux méditerranéens 2026 : le Maroc et l’Algérie s’affrontent pour une place en finale**: [Link](https://www.lebrief.ma/jeux-mediterraneens-2026-maroc-algerie-saffrontent-pour-une-place-en-finale-100163977/)
+- **Football : le Maroc U20 éliminé par l'Algérie aux tirs au but en demi-finale des Jeux méditerranéens**: [Link](https://radiomars.ma/fr/?p=5803)
+
+
+### liverpool (N/A, Sat, 29 Aug 2026 04:40:00 -0700)
+
+- **Federico Chiesa injury update**: [Link](https://www.liverpoolfc.com/news/federico-chiesa-injury-update-0)
+- **Liverpool FC team news vs. Forest – 5 injuries and available squad**: [Link](https://www.thisisanfield.com/2026/08/liverpool-available-squad-nottingham-forest/)
+- **Liverpool forward suffers injury blow confirms Iraola**: [Link](https://hayters.com/liverpool-forward-suffers-injury-blow-confirms-iraola/)
+
+
+### ليفربول ضد نوتينغهام فورست (N/A, Sat, 29 Aug 2026 04:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ليفربول ونوتينجهام فورست في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D9%86%D9%88%D8%AA%D9%8A%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D9%81%D9%88%D8%B1%D8%B3%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5fd0b5f0c46b7410)
+- **لأول مرة منذ 9 سنوات.. آنفيلد يفتقد الرقم القياسي التاريخي لـ محمد صلاح**: [Link](https://www.btolat.com/news/408837)
+- **مباشر مباراة ليفربول اليوم ضد نوتنجهام فورست في الدوري الإنجليزي**: [Link](https://twaslnews1.twaslnews.com/4463022/)
+
+
+### liverpool – nottm forest (N/A, Sat, 29 Aug 2026 03:50:00 -0700)
+
+- **Licensable picture: Premier League - Liverpool v Nottingham Forest**: [Link](https://www.reutersconnect.com/item/premier-league-liverpool-v-nottingham-forest/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOFQwWlRCNFQ)
+- **Preview: Anfield hosts the early Saturday kick off as Liverpoo face Forest**: [Link](https://www.fotmob.com/ro/topnews/29286-preview-anfield-hosts-early-saturday-kick-off-liverpoo-face-forest?utm_source=fotmob)
+- **Andoni Iraola shares the advice he has gave his Liverpool players before Nottingham Forest clash**: [Link](https://sports.yahoo.com/articles/andoni-iraola-shares-advice-gave-095000628.html)
+
+
+### banque (N/A, Sat, 29 Aug 2026 03:40:00 -0700)
+
+- **«Nous sommes en situation de guerre» : le président iranien Massoud Pezeshkian appelle la population à «accepter» l’impact économique**: [Link](https://www.lefigaro.fr/international/nous-sommes-en-situation-de-guerre-le-president-iranien-massoud-pezeshkian-appelle-la-population-a-accepter-l-impact-economique-20260829)
+- **Guerre en Iran: Washington interdit l’accès à son système financier à la branche émirienne de la banque Misr**: [Link](https://www.rfi.fr/fr/moyen-orient/20260828-guerre-en-iran-washington-interdit-l-acc%C3%A8s-%C3%A0-son-syst%C3%A8me-financier-%C3%A0-la-branche-%C3%A9mirienne-de-la-banque-misr)
+- **6 mois de guerre en Iran ont suffi à Trump pour s’enliser dans un bourbier qui pourrait lui coûter les midterms**: [Link](https://www.huffingtonpost.fr/international/video/6-mois-de-guerre-en-iran-ont-suffi-a-trump-pour-s-enliser-dans-un-bourbier-qui-pourrait-lui-couter-les-midterms_313106.html)
+
+
+### الولايات المتحدة (N/A, Sat, 29 Aug 2026 03:40:00 -0700)
+
+- **ماذا فعلت حرب إيران بمخزونات صواريخ باتريوت الأمريكية؟**: [Link](https://www.aljazeera.net/news/2026/8/27/%D9%85%D8%A7%D8%B0%D8%A7-%D9%81%D8%B9%D9%84%D8%AA-%D8%AD%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A8%D9%85%D8%AE%D8%B2%D9%88%D9%86%D8%A7%D8%AA-%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE)
+- **وول ستريت جورنال: تدفق الذخائر الأمريكية إلى الشرق الأوسط يستنزف مخزونات واشنطن**: [Link](https://www.alquds.co.uk/%D9%88%D9%88%D9%84-%D8%B3%D8%AA%D8%B1%D9%8A%D8%AA-%D8%AC%D9%88%D8%B1%D9%86%D8%A7%D9%84-%D8%AA%D8%AF%D9%81%D9%82-%D8%A7%D9%84%D8%B0%D8%AE%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83/)
+- **مخزونات الأسلحة الأمريكية تتآكل.. كيف تهدد حرب إيران قدرة واشنطن على ردع خصومها؟**: [Link](https://arabic.euronews.com/2026/08/29/us-arms-stockpiles-are-dwindling-how-would-a-war-with-iran-threaten-washingtons-abilit)
+
+
+### موزاييك أف أم (N/A, Sat, 29 Aug 2026 01:50:00 -0700)
+
+
+
+
+### شادي رياض (N/A, Sat, 29 Aug 2026 01:50:00 -0700)
+
+- **ضربة موجعة.. الرباط الصليبي ينهي موسم نجم منتخب المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AC%D8%B9%D8%A9--%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D8%B5%D9%84%D9%8A%D8%A8%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D9%85%D9%88%D8%B3%D9%85-%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt881b9bf63cd3cd79)
+- **إصابة الصليبي تُبعد شادي رياض عن المنتخب المغربي في التوقف الدولي المقبل – اليوم 24**: [Link](https://alyaoum24.com/2040834.html)
+- **عرض رسمي.. كريستال بالاس يتحرك لضم العيناوي وروما تحدد شروطها المالية**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%B9%D8%B1%D8%B6-%D8%B1%D8%B3%D9%85%D9%8A-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%B6%D9%85-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%88%D8%B1%D9%88%D9%85%D8%A7-%D8%AA%D8%AD%D8%AF%D8%AF-%D8%B4%D8%B1%D9%88%D8%B7%D9%87%D8%A7-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9/24609)
+
+
+### oyo rukidi iv (N/A, Sat, 29 Aug 2026 01:30:00 -0700)
+
+- **Uganda's King Oyo: World's youngest reigning traditional monarch dies aged 34**: [Link](https://www.bbc.com/news/articles/c0j38d9v40po)
+- **Pastor Kayanja says divine intervention is needed after speaking to Queen Mother Best Kemigisa**: [Link](https://www.pulse.ug/story/pastor-kayanja-queen-mother-best-kemigisa-king-oyo-2026082908212049327)
+- **“A great loss”: Ugandan Catholic Bishops Mourn World’s Youngest Traditional Monarch, Express Solidarity with Kingdom**: [Link](https://www.aciafrica.org/news/23835/a-great-loss-ugandan-catholic-bishops-mourn-worlds-youngest-traditional-monarch-express-solidarity-with-kingdom)
+
+
 ### عاصفة رعدية (N/A, Fri, 28 Aug 2026 23:00:00 -0700)
 
 - **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-88-1797958.html)
