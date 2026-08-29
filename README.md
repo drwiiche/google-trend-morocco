@@ -1,3 +1,73 @@
+### sevilla - atlético madrid (N/A, Sat, 29 Aug 2026 12:30:00 -0700)
+
+- **El Atlético viaja a Sevilla sin 9 puro**: [Link](https://www.marca.com/futbol/atletico/2026/08/29/atletico-viaja-sevilla-9-puro.html)
+- **¡Descubre las alineaciones titulares del Sevilla-Atlético de Madrid!**: [Link](https://www.atleticodemadrid.com/noticias/descubre-las-alineaciones-titulares-del-sevilla-atletico-de-madrid)
+- **DIRECTO | Sevilla - Atlético; Barrios, Llorente y Baena vuelven al once de Simeone**: [Link](https://www.cope.es/programas/tiempo-de-juego/cronica/directo-sevilla-atletico-madrid-3a-jornada-primera-division-29-20260829_3427066.html)
+
+
+### girona – las palmas (N/A, Sat, 29 Aug 2026 12:20:00 -0700)
+
+- **Le toca a 'Maradona Clemente' y Enzo sigue portando el GPS de la UD Las Palmas en Montilivi**: [Link](https://www.laprovincia.es/ud-las-palmas/2026/08/29/le-toca-maradona-clemente-enzo-133767200.html)
+- **Girona - Las Palmas en directo**: [Link](https://www.elmundo.es/deportes/futbol/laliga-hypermotion/girona-las-palmas/2026/08/29/01_0102_20260829_2893_407-directo.html)
+- **"El estilo de De la Barrera ha caído de pie en Las Palmas"**: [Link](https://www.tintaamarilla.es/el-estilo-de-de-la-barrera-ha-caido-de-pie-en-las-palmas/)
+
+
+### sevilla vs atlético madrid (N/A, Sat, 29 Aug 2026 12:10:00 -0700)
+
+- **Sevilla vs Atletico Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmvgyenp744nt)
+- **[ESPN LIVE] Atletico vs Sevilla LIVE FREE Soccer Match EVENT 28 August 2026**: [Link](https://airandspace.si.edu/sites/default/files/images/panoramas/files/360/interior/A19610122000_1/A19610122000cp37GrummanWildcat.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sarahkatie172sf.github.io/ant/z.xml%22/%3E%3C/krpano%3E&id=atletico-vs-sevilla-liv-on-air-coverage-828)
+- **Atletico Madrid vs. Sevilla FC Prediction, Picks, Live Odds – Aug. 29**: [Link](https://www.bleachernation.com/picks/2026/08/29/atletico-madrid-vs-sevilla-fc-prediction-picks-live-odds-aug-29/)
+
+
+### مدافع (N/A, Sat, 29 Aug 2026 12:10:00 -0700)
+
+- **أسلوب لعب المدافعين التايلانديين، حيث سجلوا أهدافاً وأهدافاً عكسية في ملعب ماي دينه.**: [Link](https://www.vietnam.vn/ar/phong-cach-hau-ve-thai-lan-vua-ghi-ban-vua-phan-luoi-nha-o-my-dinh)
+- **سجلت بطولة كأس الآسيان 2026 رقماً قياسياً في عدد الأهداف العكسية، حيث ضاعفت الرقم القياسي السابق المسجل في عام 2004.**: [Link](https://www.vietnam.vn/ar/asean-cup-2026-lap-ky-luc-ve-so-ban-phan-luoi-gap-doi-ky-luc-cu-2004)
+- **يواجه المدافع التايلاندي سيلاً من الانتقادات لتسجيله هدفاً في مرماه بعد وقت قصير من تسجيله هدفاً.**: [Link](https://www.vietnam.vn/ar/hau-ve-thai-lan-hung-mua-chi-trich-vi-phan-luoi-nha-sau-khi-vua-ghi-ban)
+
+
+### إشبيلية ضد أتلتيكو مدريد (N/A, Sat, 29 Aug 2026 12:00:00 -0700)
+
+- **قرار رسمي من سيميوني يحسم موقف ألفاريز أمام إشبيلية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B1%D8%B3%D9%85%D9%8A-%D9%85%D9%86-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9/blt09baf4a9f6045cfa)
+- **إشبيلية يتحدى أتلتيكو مدريد في قمة مبكرة بالليغا (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/08/sevilla-atleticomadrid-j3-liga-pronostic.html)
+- **مباشر مباراة أتلتيكو مدريد ضد إشبيلية في الجولة 3 من الدوري الإسباني 2026/ 2027**: [Link](https://twaslnews1.twaslnews.com/4475263/)
+
+
+### lyon – le havre (N/A, Sat, 29 Aug 2026 11:50:00 -0700)
+
+- **DIRECT. OL - Le Havre, Ligue 1 : Le match commence !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/lyon-le-havre-live/690271)
+- **EN DIRECT - Multiplex Ligue 1 : Lyon veut se racheter, Brest en hommage à Éric Roy, Auxerre et Angers revanchards**: [Link](https://www.lefigaro.fr/sports/football/ligue-1/en-direct-multiplex-ligue-1-lyon-veut-se-racheter-brest-en-hommage-a-eric-roy-auxerre-et-angers-revanchards-20260829)
+- **PRONOS PARIS RMC Le pari sûr du 29 août - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-29-aout-ligue-1_AN-202608280731.html)
+
+
+### séville – atlético madrid (N/A, Sat, 29 Aug 2026 11:40:00 -0700)
+
+- **Liga : compos probables pour FC Séville – Atlético Madrid, à 21h30**: [Link](https://www.sport.fr/football/liga-compos-probables-pour-fc-seville-atletico-madrid-a-21h30-1477509.shtm)
+- **'Cuti' Romero, nouveauté de l'Atleti sans Julián Álvarez face à Séville**: [Link](https://onefootball.com/fr/news/cuti-romero-nouveaute-de-latleti-sans-julian-alvarez-face-a-seville-43360629)
+- **Décision officielle de Simeone qui tranche sur la situation d'Álvarez face à Séville**: [Link](https://fr.news.yahoo.com/sport/d%C3%A9cision-officielle-simeone-tranche-situation-073706803.html)
+
+
+### إصابة (N/A, Sat, 29 Aug 2026 11:30:00 -0700)
+
+- **الرباط الصليبي يضرب نجمًا مغربيًا في ملاعب الخليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D8%B5%D9%84%D9%8A%D8%A8%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D9%86%D8%AC%D9%85%D9%8B%D8%A7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D9%8B%D8%A7-%D9%81%D9%8A-%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC/blteefb6fbe97612d16)
+- **الرباط الصليبي يحبط أحلام حريمات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D8%B5%D9%84%D9%8A%D8%A8%D9%8A-%D9%8A%D8%AD%D8%A8%D8%B7-%D8%A3%D8%AD%D9%84%D8%A7%D9%85-%D8%AD%D8%B1%D9%8A%D9%85%D8%A7%D8%AA-1798750.html)
+- **ربيع حريمات توعت وعندو عملية جراحية غاتبعدو على التيرانات مدة طويلة**: [Link](https://www.goud.ma/%D8%B1%D8%A8%D9%8A%D8%B9-%D8%AD%D8%B1%D9%8A%D9%85%D8%A7%D8%AA-%D8%AA%D9%88%D8%B9%D8%AA-%D9%88%D8%B9%D9%86%D8%AF%D9%88-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%AC%D8%B1%D8%A7%D8%AD%D9%8A%D8%A9-%D8%BA%D8%A7-1038707/)
+
+
+### juventus – parme (N/A, Sat, 29 Aug 2026 11:20:00 -0700)
+
+- **Official: Four Juventus players ruled out for Parma clash as squad list confirmed**: [Link](https://football-italia.net/official-4-juventus-players-out-parma-squad/)
+- **Spalletti: We need to have balance and play attacking football**: [Link](https://www.juventus.com/en/news/articles/spalletti-we-need-to-have-balance-and-play-attacking-football)
+- **Juventus, McKennie pulls up: fatigue for the American**: [Link](https://www.goal.com/en/lists/juventus-mckennie-sidelined-fatigue-for-the-american/blt827ed62abcabef6c)
+
+
+### classement racing club de strasbourg alsace – racing club de lens (N/A, Sat, 29 Aug 2026 11:00:00 -0700)
+
+- **Gessime Yassine réagit aux comparaisons avec Hatem Ben Arfa**: [Link](https://www.footmercato.net/a287714023061312485-gessime-yassine-reagit-aux-comparaisons-avec-hatem-ben-arfa)
+- **Porté par le talent de Gessime Yassine, Strasbourg fait tomber Lens et s'offre sa première victoire de la saison**: [Link](https://www.lequipe.fr/Football/Actualites/Porte-par-le-talent-de-gessime-yassine-strasbourg-fait-tomber-lens-et-s-offre-sa-premiere-victoire-de-la-saison/1714518)
+- **Strasbourg 2-1 Lens : Les Lensois trébuchent à la Meinau, les comms RMC**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/video-strasbourg-2-1-lens-les-lensois-trebuchent-a-la-meinau-les-comms-rmc_VN-202608290321.html)
+
+
 ### زلزال (N/A, Sat, 29 Aug 2026 10:00:00 -0700)
 
 - **هل إسبانيا على موعد مع زلزال مدمّر؟ هذا ما قاله خبير لـ"يورنيوز"**: [Link](https://arabic.euronews.com/my-europe/2026/08/27/is-spain-facing-a-destructive-earthquake-an-expert-explains-to-euronews)
