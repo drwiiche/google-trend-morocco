@@ -1,3 +1,73 @@
+### nigeria (N/A, Fri, 28 Aug 2026 17:00:00 -0700)
+
+- **Nigeria's president orders rescue after mass kidnapping exposes security failings**: [Link](https://www.reuters.com/world/africa/nigerias-president-orders-rescue-after-mass-kidnapping-2026-08-25/)
+- **Nigeria launches hunt for hundreds of kidnapped mosque worshippers**: [Link](https://www.aljazeera.com/news/2026/8/26/nigeria-launches-hunt-for-hundreds-of-kidnapped-mosque-worshippers)
+- **‘This is one case too many’ — Obi reacts to Niger mass abduction**: [Link](https://www.vanguardngr.com/2026/08/this-is-one-case-too-many-obi-reacts-to-niger-mass-abduction/)
+
+
+### ركلة جزاء (N/A, Fri, 28 Aug 2026 15:20:00 -0700)
+
+- **50 حالة إغماء ومغادرة.. الطقس يفسد خماسية الهلال أمام الخليج!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/50-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%95%D8%BA%D9%85%D8%A7%D8%A1-%D9%88%D9%85%D8%BA%D8%A7%D8%AF%D8%B1%D8%A9--%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%8A%D9%81%D8%B3%D8%AF-%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC/blt5b7653b13189850a)
+- **ياسين بونو يكرر "التصدي الغريب" في ضربة جزاء الخليج (فيديو)**: [Link](https://www.eremnews.com/sports/i34oax2)
+- **لا يشاهد ولا يقرأ، ولم يتعلم شيئًا من ظلم برشلونة!.. كاليدو كوليبالي يكمل كوارثه في الهلال بـ"ركلة بوبيل" ضد الخليج**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%83%D8%A7%D9%84%D9%8A%D8%AF%D9%88-%D9%83%D9%88%D9%84%D9%8A%D8%A8%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/blted0b36e2fe2ea9d1)
+
+
+### ديكو (N/A, Fri, 28 Aug 2026 15:20:00 -0700)
+
+- **بمساعدة نجم برشلونة.. ديكو وفليك يتفقان بشأن صفقة المهاجم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D8%A9-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9--%D8%AF%D9%8A%D9%83%D9%88-%D9%88%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AA%D9%81%D9%82%D8%A7%D9%86-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D9%85/blt6c8b269bb89c2f5f)
+- **مدرب برشلونة يتبرأ من ملف جوليان ألفاريز!**: [Link](https://radiomars.ma/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%A8%D8%B1%D8%A3-%D9%85%D9%86-%D9%85%D9%84%D9%81-%D8%AC%D9%88%D9%84%D9%8A%D8%A7%D9%86-%D8%A3%D9%84%D9%81%D8%A7%D8%B1/)
+- **سبورت: هانز فليك يختار المهاجم رقم 9 في برشلونة**: [Link](https://www.btolat.com/news/408828)
+
+
+### rukidi iv (N/A, Fri, 28 Aug 2026 14:50:00 -0700)
+
+- **Uganda's King Oyo: World's youngest reigning traditional monarch dies aged 34**: [Link](https://www.bbc.com/news/articles/c0j38d9v40po)
+- **King Oyo of Uganda’s Tooro Kingdom Dies at 34**: [Link](https://www.nytimes.com/2026/08/28/world/africa/uganda-king-oyo-dead.html)
+- **Ugandan King Oyo Nyimba, once world’s youngest monarch, dies at 34**: [Link](https://www.cnn.com/2026/08/28/africa/ugandan-king-oyo-nyimba-dies-intl)
+
+
+### المغرب ضد الجزائر (N/A, Fri, 28 Aug 2026 14:50:00 -0700)
+
+- **ألعاب البحر الأبيض المتوسط: المنتخب الوطني لأقل من 20 سنة يلتقي منتخب الجزائر في الدور النصف نهائي**: [Link](https://frmf.ma/articles/jeux-mediterraneens-equipes-masculines-u20-le-maroc-face-a-lalgerie-en-demi-finale)
+- **منتخب المغرب "تحت 20 سنة" يخسر أمام الجزائر ويودع "ألعاب المتوسط"**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AD%D8%AA-20-%D8%B3%D9%86%D8%A9-%D9%8A%D8%AE%D8%B3%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6-1798612.html)
+- **الأشبال يصطدمون بالجزائر**: [Link](https://assabah.ma/945904.html)
+
+
+### losc lille vs paris saint-germain f.c. standings (N/A, Fri, 28 Aug 2026 14:30:00 -0700)
+
+- **Lille 2-2 Paris St-Germain: Marquinhos and Vitinha late goals rescue draw for PSG**: [Link](https://www.bbc.com/sport/football/live/cm934333dp4dt)
+- **European football: PSG scramble another draw while Bayern make flying start**: [Link](https://www.theguardian.com/football/2026/aug/29/european-football-psg-scramble-another-draw-while-bayern-make-flying-start)
+- **Luis Enrique praises PSG's trademark resilience after another late comeback**: [Link](https://www.espn.com/soccer/story/_/id/49757105/luis-enrique-praises-psg-trademark-resilience-another-late-comeback)
+
+
+### ألافيس ضد فياريال (N/A, Fri, 28 Aug 2026 14:30:00 -0700)
+
+- **ألافيس يفوز على فياريال بهدف دون مقابل في الدوري الإسباني**: [Link](https://swiftnewz.com/archives/746739)
+- **توقعات مباراة ألافيس وفياريال: نقطة ساخنة في سباق الصدارة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-alaves-vs-villarreal-diem-nong-cuoc-dua-top-dau)
+- **ألافيس يتصدر مؤقتًا.. وراسينغ سانتاندير يحسم مواجهة مثيرة أمام إلتشي**: [Link](https://msdrnews.com/124229/%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D9%88%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A)
+
+
+### البطولة الاحترافية المغربية (N/A, Fri, 28 Aug 2026 14:20:00 -0700)
+
+- **كلاسيكو الجيش والرجاء يفتتح البطولة**: [Link](https://www.hespress.com/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-1798455.html)
+- **العصبة الاحترافية تكشف برنامج الجولات 22 و23 و24 للبطولة**: [Link](https://ar.telquel.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84/)
+- **العصبة تكشف برنامج البطولة الاحترافية لموسم 2026-2027**: [Link](https://assabah.ma/946393.html)
+
+
+### classement crystal palace – manchester city (N/A, Fri, 28 Aug 2026 14:10:00 -0700)
+
+- **Cherki-Haaland, duo gagnant**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/premier-league-crystal-palace-manchester-city-rayan-cherki-auteur-dun-double-joue-un-mauvais-tour-a-pierre-sage_sto23332107/story.shtml)
+- **PL : Man City écrase Crystal Palace grâce à un grand Cherki**: [Link](https://www.footmercato.net/a2323241776925382818-pl-man-city-ecrase-crystal-palace-grace-a-un-grand-cherki)
+- **Mariska : C'était un Match Difficile, et C'est Mon Rôl…**: [Link](https://www.ysscores.com/fr/news/14030498/mariska-c%C3%A9tait-un-match-difficile-et-cest-mon-r%C3%B4le)
+
+
+### تونس (N/A, Fri, 28 Aug 2026 14:10:00 -0700)
+
+- **تونس تهزم إيطاليا وتضرب موعدا مع الفائز من الجزائر والمغرب بنهائي ألعاب المتوسط**: [Link](https://www.aljazeera.net/sport/2026/8/28/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-%D9%8A%D9%87%D8%B2%D9%85-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **الألعاب المتوسطية 2026: تشكيلة المنتخب الوطني لأقل من 20 سنة أمام مقدونيا الشمالية**: [Link](https://frmf.ma/articles/jeux-mediterraneens-2026-equipes-masculines-composition-du-maroc-face-a-la-macedoine-du-nord)
+- **تارانتو 2026: المستوى العالي للمنافسين والتباين في الامكانيات اللوجستية حالا دون بلوغنا ثمن النهائي.. (محمد حماد ورؤى بن عبد القادر)**: [Link](https://www.babnet.net/cadredetail-335131.asp)
+
+
 ### santander – elche (N/A, Fri, 28 Aug 2026 09:30:00 -0700)
 
 - **Racing – Elche el partido de fútbol de Jornada 1 de LaLiga EA Sports, en directo**: [Link](https://www.lavanguardia.com/deportes/futbol/20260828/24352/racing-elche-laliga-primera-division-ca-en-directo-ctx.html)
