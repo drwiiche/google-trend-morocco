@@ -1,3 +1,59 @@
+### كأس العالم (N/A, Sun, 30 Aug 2026 15:10:00 -0700)
+
+- **المغرب يبدأ "مونديال السداسية" بالفوز**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%81%D9%88%D8%B2-1799371.html)
+- **المنتخب المغربي يستهل مشاركته في كأس العالم لكرة القدم السداسية بفوز على الشيلي (3-2)**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%AA%D9%87-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9-20260830)
+- **مونديال السداسيات: المغرب يفتتح مشواره بفوز مثير على تشيلي (3-2)**: [Link](https://anwarpress.com/729121/)
+
+
+### roi harald v de norvège (N/A, Sun, 30 Aug 2026 15:00:00 -0700)
+
+- **La Norvège en deuil rend hommage au roi Harald - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/agence-presse/la-norvege-en-deuil-rend-hommage-au-roi-harald/)
+- **Le nouveau roi de Norvège Haakon VIII rend hommage à son père**: [Link](https://www.20minutes.fr/monde/4241640-20260829-norvege-maintenant-tour-nouveau-roi-haakon-viii-prononce-premier-discours)
+- **Le roi Harald V de Norvège meurt à 89 ans**: [Link](https://telquel.ma/instant-t/2026/08/28/le-roi-harald-v-de-norvege-meurt-a-89-ans_2004642/)
+
+
+### dominique de villepin (N/A, Sun, 30 Aug 2026 14:30:00 -0700)
+
+- **"J'ai 72 ans, je n'ai jamais arrêté de travailler": pour le départ en retraite, Dominique de Villepin veut sortir de l'âge pivot et mieux prendre en compte l'espérance de vie et les conditions de travail**: [Link](https://www.bfmtv.com/economie/patrimoine/retraite/j-ai-72-ans-je-n-ai-jamais-arrete-de-travailler-pour-le-depart-en-retraite-dominique-de-villepin-veut-sortir-de-l-age-pivot-et-mieux-prendre-en-compte-l-esperance-de-vie-et-les-conditions-de-travail_AV-202608300244.html)
+- **Présidentielle 2027 : «Je veux être candidat», Dominique de Villepin se dévoile un peu plus et accuse Philippe de «faire le jeu de Le Pen» sur l'immigration**: [Link](https://www.lefigaro.fr/elections/presidentielles/candidats/presidentielle-2027-je-veux-etre-candidat-dominique-de-villepin-se-devoile-un-peu-plus-et-accuse-philippe-de-faire-le-jeu-de-le-pen-sur-l-immigration-20260830)
+- **Présidentielle 2027 : Dominique de Villepin presque candidat, Olivier Faure à la primaire sociale-démocrate**: [Link](https://fr.euronews.com/my-europe/2026/08/30/presidentielle-2027-dominique-de-villepin-presque-candidat-olivier-faure-a-la-primaire-soc)
+
+
+### classement as monaco – olympique de marseille (N/A, Sun, 30 Aug 2026 14:10:00 -0700)
+
+- **Monaco 2-0 OM, Ligue 1 : Monaco maîtrise l'OM et trône en tête de L1**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/monaco-om-live/690272)
+- **OM : Bruno Genesio fait une grande annonce sur la fin de mercato**: [Link](https://www.footmercato.net/a2861852978220379652-om-bruno-genesio-fait-une-grande-annonce-sur-la-fin-de-mercato)
+- **"Ça peut être dramatique", Walid Acherchour "effrayé" par la situation de l'OM après sa défaite à Monaco**: [Link](https://rmcsport.bfmtv.com/football/clubs/olympique-marseille/ca-peut-etre-dramatique-walid-acherchour-effraye-par-la-situation-de-l-om-apres-sa-defaite-a-monaco_AV-202608300452.html)
+
+
+### celta vs athletic (N/A, Sun, 30 Aug 2026 14:00:00 -0700)
+
+- **Celta - Athletic Club en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/celta-athletic-club-en-directo-laliga-ea-sports-hoy-en-vivo-f202608-d/)
+- **Terzic ya sabe ganar en la Liga**: [Link](https://www.marca.com/futbol/primera-division/cronica/2026/08/30/terzic-ganar-liga.html)
+- **Así ha narrado Monje los goles de la primera victoria de la temporada del Athletic**: [Link](https://www.ondavasca.com/asi-ha-narrado-monje-los-goles-de-la-primera-victoria-de-la-temporada-del-athletic/)
+
+
+### inter milan (N/A, Sun, 30 Aug 2026 13:40:00 -0700)
+
+- **Serie A official line-ups: Cagliari vs. Inter**: [Link](https://football-italia.net/serie-a-official-line-ups-cagliari-vs-inter/)
+- **Calha with another goal: “The secret is hard work and believing in myself”**: [Link](https://www.inter.it/en/news/interview-calhanoglu-cagliari-inter-serie-a-26-27)
+- **Cagliari vs Internazionale – Prediction, Where to Watch, Kick-off Time and Lineups 30-08**: [Link](https://oddsscanner.com/predictions/football/cagliari-x-internazionale-30-08-2026)
+
+
+### jeux mediterraneen 2026 (N/A, Sun, 30 Aug 2026 12:40:00 -0700)
+
+- **Le moment est venu pour l’athlétisme aux Jeux Méditerranéens de Tarente 2026**: [Link](https://cijm.org.gr/le-moment-est-venu-pour-lathletisme-aux-jeux-mediterraneens-de-tarente-2026/?lang=fr)
+- **JM Tarente-2026 (aviron) : "La sélection tunisienne vise une première médaille méditerranéenne de son histoire" (DTN)**: [Link](https://africanmanager.com/jm-tarente-2026-aviron-la-selection-tunisienne-vise-une-premiere-medaille-mediterraneenne-de-son-histoire-dtn/)
+- **JEUX MÉDITERRANÉENS TARANTO : 4 BLEUS EN QUÊTE D’EXPLOIT**: [Link](https://www.fftri.com/actualite/jeux-mediterraneens-taranto-4-bleus-en-quete-dexploit/)
+
+
+### النيجر (N/A, Sun, 30 Aug 2026 12:30:00 -0700)
+
+- **عقب محاولة التمرد العسكري الأخيرة... الجزائر تعلن إيفاد 4 طائرات سوخوي مقاتلة لدعم الاستقرار في النيجر**: [Link](https://www.alquds.co.uk/%D8%B9%D9%82%D8%A8-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D9%85%D8%B1%D8%AF-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AC/)
+- **الجزائر: 4 طائرات قتالية تصل النيجر لمواجهة محاولة زعزعة الاستقرار**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-4-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D9%82%D8%AA%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A9-%D8%B2%D8%B9%D8%B2%D8%B9%D8%A9-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-/4041972)
+- **الجزائر ترسل دوريتين من الطائرات القتالية إلى نيامي لدعم الجيش النيجري**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%B1%D8%B3%D9%84-%D8%AF%D9%88%D8%B1%D9%8A%D8%AA%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%AA)
+
+
 ### zinédine zidane (N/A, Sun, 30 Aug 2026 12:40:00 -0700)
 
 - **EdF: Zinedine Zidane recruits his new press chief**: [Link](https://frenchfootballweekly.com/2026/08/29/edf-zinedine-zidane-recruits-his-new-press-chief/)
