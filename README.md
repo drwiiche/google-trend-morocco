@@ -1,3 +1,71 @@
+### zinédine zidane (N/A, Sun, 30 Aug 2026 12:40:00 -0700)
+
+- **EdF: Zinedine Zidane recruits his new press chief**: [Link](https://frenchfootballweekly.com/2026/08/29/edf-zinedine-zidane-recruits-his-new-press-chief/)
+
+
+### محمد التاجي (N/A, Sun, 30 Aug 2026 12:40:00 -0700)
+
+- **مصر.. وفاة الفنان محمد التاجي عن 72 عاماً بعد صراع مع المرض**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/30/%D9%85%D8%B5%D8%B1-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AA%D8%A7%D8%AC%D9%8A-%D8%B9%D9%86-72-%D8%B9%D8%A7%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%B1%D8%B6-)
+- **صفاء أبو السعود ناعية محمد التاجى: حجز لنفسه مكانا ومكانة خاصة فى تاريخنا الفنى**: [Link](https://www.youm7.com/story/2026/8/30/%D8%B5%D9%81%D8%A7%D8%A1-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF-%D9%86%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AA%D8%A7%D8%AC%D9%89-%D8%AD%D8%AC%D8%B2-%D9%84%D9%86%D9%81%D8%B3%D9%87-%D9%85%D9%83%D8%A7%D9%86%D8%A7-%D9%88%D9%85%D9%83%D8%A7%D9%86%D8%A9/7530974)
+- **تعرف على تفاصيل الفترة الأخيرة في حياة الراحل محمد تاجي**: [Link](https://www.elbalad.news/7090544)
+
+
+### celta vigo – ath. bilbao (N/A, Sun, 30 Aug 2026 12:00:00 -0700)
+
+- **Celta Vigo vs Athletic Club Confirmed Lineups**: [Link](https://www.whoscored.com/news/SR0LiX7SLkWjE5DubcSZHw/show/20260830-celta-vigo-vs-athletic-club-confirmed-lineup-1788114831)
+- **RC Celta de Vigo vs. Athletic Bilbao Prediction, Picks, Live Odds – Aug. 30**: [Link](https://www.bleachernation.com/picks/2026/08/30/rc-celta-de-vigo-vs-athletic-bilbao-prediction-picks-live-odds-aug-30/)
+- **Athletic travel to Vigo with 23-man squad as Edin Terzić recalls Yuri Berchiche**: [Link](https://onefootball.com/en/news/athletic-travel-to-vigo-with-23-man-squad-as-edin-terzic-recalls-yuri-berchiche-43367307)
+
+
+### نجلاء فتحي (N/A, Sun, 30 Aug 2026 11:50:00 -0700)
+
+- **بأزمة قلبية مفاجئة.. وفاة الابنة الوحيدة للفنانة نجلاء فتحي**: [Link](https://www.alarabiya.net/culture-and-art/2026/08/30/%D8%A8%D8%A7%D8%B2%D9%85%D8%A9-%D9%82%D9%84%D8%A8%D9%8A%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%A8%D9%86%D8%A9-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D9%86%D8%AC%D9%84%D8%A7%D8%A1-%D9%81%D8%AA%D8%AD%D9%8A)
+- **بعد وفاة ابنة نجلاء فتحي الوحيدة.. إليك سبب مرض ياسمين أبو النجا**: [Link](https://www.elconsolto.com/medical-advice/advice-news/details/2026/8/30/3040842/%D8%A8%D8%B9%D8%AF-%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D8%A8%D9%86%D8%A9-%D9%86%D8%AC%D9%84%D8%A7%D8%A1-%D9%81%D8%AA%D8%AD%D9%8A-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF%D8%A9-%D8%A5%D9%84%D9%8A%D9%83-%D8%B3%D8%A8%D8%A8-%D9%85%D8%B1%D8%B6-%D9%8A%D8%A7%D8%B3%D9%85%D9%8A%D9%86-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D9%86%D8%AC%D8%A7)
+- **فيدرا: موت ياسمين وجعني بشكل مختلف. لحد دلوقتي مش قادرة أصدق إنها ماتت.**: [Link](https://twaslnews1.twaslnews.com/4504514/)
+
+
+### arabie saoudite (N/A, Sun, 30 Aug 2026 11:40:00 -0700)
+
+- **"C'est un enfer total" : un ressortissant franco-égyptien condamné à huit ans de prison en Arabie saoudite dénonce des actes de torture**: [Link](https://www.franceinfo.fr/monde/proche-orient/c-est-un-enfer-total-un-ressortissant-franco-egyptien-condamne-a-huit-ans-de-prison-en-arabie-saoudite-denonce-des-actes-de-torture_8168828.html)
+- **Arabe saoudite : Un ressortissant franco-égyptien détenu doit être libéré : Amr Abdelfattah**: [Link](https://www.amnesty.fr/communiques/arabe-saoudite-un-ressortissant-franco-egyptien-detenu-doit-etre-libere-amr-abdelfattah/)
+- **« Menacé de mort, battu, privé de nourriture » : un Français dans l’enfer des prisons saoudiennes de MBS**: [Link](https://www.ouest-france.fr/monde/arabie-saoudite/menace-de-mort-battu-prive-de-nourriture-un-francais-dans-lenfer-des-prisons-saoudiennes-de-mbs-f5640f94-9fce-11f1-b6b2-5710555c207e)
+
+
+### ميدالية برونزية (N/A, Sun, 30 Aug 2026 11:30:00 -0700)
+
+- **مباشر مباراة الجزائر ضد تونس في نهائي كرة القدم بدورة ألعاب البحر المتوسط**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/30/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D9%86%D8%B3-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **منتخب "U20" يحرز الميدالية البرونزية**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-u20-%D9%8A%D8%AD%D8%B1%D8%B2-%D8%A7%D9%84%D9%85%D9%8A%D8%AF%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%88%D9%86%D8%B2%D9%8A%D8%A9-1799235.html)
+- **المنتخب الوطني لاقل من 20 سنة ينهزم امام الجزائر**: [Link](https://frmf.ma/articles/article-13)
+
+
+### napoli (N/A, Sun, 30 Aug 2026 11:30:00 -0700)
+
+- **LIVE Napoli-Como 1-2: gli azzurri soffrono, triplo cambio per Allegri. Dentro anche De Bruyne**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/30-08-2026/napoli-como-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Napoli-Como, diretta Serie A: formazioni e risultato in tempo reale. 3 gol in 34' nel big match al Maradona!**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2026/08/30-150904757/napoli-como_diretta_serie_a_formazioni_e_risultato_in_tempo_reale_allegri_sfida_fabregas)
+- **Il Como espugna il Maradona grazie a Douvikas**: [Link](https://www.rsi.ch/sport/calcio/Il-Como-espugna-il-Maradona-grazie-a-Douvikas--4048366.html)
+
+
+### monaco – marseille (N/A, Sun, 30 Aug 2026 11:20:00 -0700)
+
+- **Monaco - Marseille en direct : suivez la Ligue 1 2026-2027**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-monaco-olympique-de-marseille_mtc21875816/live-commentary.shtml)
+- **AS Monaco - Olympique de Marseille : les compositions officielles**: [Link](https://www.footmercato.net/a3476983127782680124-as-monaco-olympique-de-marseille-les-compositions-officielles)
+- **« Pour l'instant, il n'y a pas d'actualité sur une éventuelle démission » : malgré les départs et le manque de recrues, Bruno Genesio calme le jeu avant Monaco-OM**: [Link](https://www.lequipe.fr/Football/Actualites/-pour-l-instant-il-n-y-a-pas-d-actualite-sur-une-eventuelle-demission-malgre-les-departs-et-le-manque-de-recrues-bruno-genesio-calme-le-jeu-avant-monaco-om/1714439)
+
+
+### cagliari – inter (N/A, Sun, 30 Aug 2026 11:20:00 -0700)
+
+- **LIVE Cagliari-Inter 0-1: gol di Calhanoglu, miracolo di Caprile su Dimarco!**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Cagliari/30-08-2026/cagliari-inter-live-risultato-gol-diretta-serie-a.shtml)
+- **FORMAZIONI UFFICIALI - La scelta su Zielinski, Pinamonti, Diouf, Tavares, Thuram, Isaksen, Bisseck e Fazzini**: [Link](https://www.sosfanta.com/news/formazioni-ufficiali-zielinski-pinamonti-diouf-tavares-thuram-isaksen-bisseck-fazzini/)
+- **Serie A: in campo Cagliari-Inter DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/08/30/serie-a-in-campo-cagliari-inter-diretta-e-foto_6eae30e2-232d-4b2f-a3ea-e82f30241ec1.html)
+
+
+### classement stade rennais football club – le mans football club (N/A, Sun, 30 Aug 2026 11:10:00 -0700)
+
+- **Rennes - Le Mans EN DIRECT (3-2) : une fin de match complètement folle**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-stade-rennais-le-mans-fc_mtc21875529/live-commentary.shtml)
+- **Ligue 1 : Rennes s’impose face au Mans au terme d’un match fou**: [Link](https://www.footmercato.net/a1932551454268973959-ligue-1-rennes-simpose-face-au-mans-au-terme-dun-match-fou)
+- **"Quand vous lâchez trop de choses, c'est normal de se faire punir", Haise peu emballé par la victoire de Rennes face au Mans**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/quand-vous-lachez-trop-de-choses-c-est-normal-de-se-faire-punir-haise-peu-emballe-par-la-victoire-de-rennes-face-au-mans_AV-202608300403.html)
+
+
 ### real madrid – málaga cf composition (N/A, Sun, 30 Aug 2026 10:30:00 -0700)
 
 - **Notes : Real Madrid - Malaga**: [Link](https://real-france.fr/notes-real-madrid-malaga-ligaj3/)
