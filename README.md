@@ -1,3 +1,24 @@
+### classement inter miami – cf montréal (N/A, Sat, 29 Aug 2026 22:20:00 -0700)
+
+- **L’Inter Miami profite du CF Montréal pour sortir de sa torpeur**: [Link](https://www.journaldemontreal.com/2026/08/29/linter-miami-profite-du-cf-montreal-pour-sortir-de-sa-torpeur)
+- **Le point MLS : Lionel Messi, auteur de quatre buts, fait du Nu Stadium son terrain de jeu pendant que Cavan Sullivan et Dejan Joveljic brillent**: [Link](https://www.goal.com/fr/originaux/le-point-mls-lionel-messi-auteur-de-quatre-buts-fait-du-nu-stadium-son-terrain-de-jeu-pendant-que-cavan-sullivan-et-dejan-joveljic-brillent/blt61cdc07262bb9a43)
+- **Est-ce que ça peut être pire? Mais si! Un 4e pour l'Argentin...**: [Link](https://www.rds.ca/soccer/mls/videos/2026/08/30/est-ce-que-ca-peut-etre-pire-mais-si-un-4e-pour-largentin/)
+
+
+### roi harald (N/A, Sat, 29 Aug 2026 21:00:00 -0700)
+
+- **Le nouveau roi de Norvège Haakon VIII rend hommage à son père**: [Link](https://www.20minutes.fr/monde/4241640-20260829-norvege-maintenant-tour-nouveau-roi-haakon-viii-prononce-premier-discours)
+- **Le roi Harald V de Norvège meurt à 89 ans**: [Link](https://telquel.ma/instant-t/2026/08/28/le-roi-harald-v-de-norvege-meurt-a-89-ans_2004642/)
+- **La Norvège, en deuil, entre dans une nouvelle ère sous Haakon VIII**: [Link](https://medias24.com/agence-presse/la-norvege-en-deuil-entre-dans-une-nouvelle-ere-sous-haakon-viii/)
+
+
+### عروس (N/A, Sat, 29 Aug 2026 17:30:00 -0700)
+
+- **ثلاثة أيام بين الزفاف والموت.. حكاية عروس الجنوب اللبناني**: [Link](https://www.aljazeera.net/politics/2026/8/29/%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A3%D9%8A%D8%A7%D9%85-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%B2%D9%81%D8%A7%D9%81-%D9%88%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D8%AD%D9%83%D8%A7%D9%8A%D8%A9)
+- **عروس تطلب من المدعوين لزفافها دفع ثمن طعامهم**: [Link](https://www.alkhaleej.ae/2026-08-29/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%B9%D8%B1%D9%88%D8%B3-%D8%AA%D8%B7%D9%84%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D8%B9%D9%88%D9%8A%D9%86-%D9%84%D8%B2%D9%81%D8%A7%D9%81%D9%87%D8%A7-%D8%AF%D9%81%D8%B9-%D8%AB%D9%85%D9%86-%D8%B7%D8%B9%D8%A7%D9%85%D9%87%D9%85)
+- **عروس تثير الجدل بطلب غير مألوف من ضيوف حفل زفافها**: [Link](https://www.akhbarona.com/last/431536.html)
+
+
 ### mls (N/A, Sat, 29 Aug 2026 19:00:00 -0700)
 
 - **Toronto FC unbeaten in 4, welcome New York City FC to BMO Field for CNE game**: [Link](https://wakingthered.com/2026/08/28/25740/toronto-fc-unbeaten-in-4-welcome-new-york-city-fc-to-bmo-field-for-cne-game/)
