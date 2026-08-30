@@ -1,3 +1,73 @@
+### real madrid – málaga cf composition (N/A, Sun, 30 Aug 2026 10:30:00 -0700)
+
+- **Notes : Real Madrid - Malaga**: [Link](https://real-france.fr/notes-real-madrid-malaga-ligaj3/)
+- **Trois sur trois pour le Real Madrid : les Merengues balayent le promu Malaga en Liga, Mbappé et Bellingham buteurs**: [Link](https://www.lequipe.fr/Football/Actualites/Trois-sur-trois-pour-le-real-madrid-les-merengues-balayent-le-promu-malaga-en-liga-mbappe-et-bellingham-buteurs/1714768)
+- **Real Madrid - Malaga en direct : suivez La Liga 2025-2026**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-real-madrid-malaga_mtc21891302/live-commentary.shtml)
+
+
+### real madrid vs málaga cf standings (N/A, Sun, 30 Aug 2026 10:20:00 -0700)
+
+- **Real Madrid vs Málaga: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmvgyx9y35n8t)
+- **Real Madrid vs. Málaga - Game Highlights**: [Link](https://www.espn.com/video/clip/_/id/49773900/real-madrid-vs-malaga-game-highlights)
+- **Why Real Madrid vs. Malaga Is Europe’s Most ‘Unfair’ Fixture**: [Link](https://www.si.com/soccer/why-real-madrid-vs-malaga-europe-most-unfair-fixture)
+
+
+### sofascore (N/A, Sun, 30 Aug 2026 10:20:00 -0700)
+
+- **MOTM (Not a) Poll: BVB Victorious to Kick Off Bundesliga Season**: [Link](https://www.fearthewall.com/bvb-league/24680/motm-not-a-poll-bvb-victorious-to-kick-off-bundesliga-season)
+- **Borussia Dortmund vs Hamburger SV: German Bundesliga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmjrxdz1ywz9t)
+- **Giannis Konstantelias on target as 10-man Dortmund defeat Hamburg**: [Link](https://www.bundesliga.com/en/bundesliga/news/borussia-dortmund-hamburg-match-report-highlights-matchday-1-38881)
+
+
+### deportivo – valence (N/A, Sun, 30 Aug 2026 10:10:00 -0700)
+
+- **Prédiction Deportivo La Corogne vs Valence : un point chaud dans la course au sommet**: [Link](https://www.vietnam.vn/fr/nhan-dinh-deportivo-la-coruna-vs-valencia-diem-nong-cuoc-dua-top-dau)
+- **La Corogne - Valence en direct - La Liga : Football Scores & Résultats - 30/08/2026**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-la-corogne-valence_mtc21891436/live.shtml)
+- **Deportivo de A Coruña vs Valence : présentation de la LaLiga, tendances et joueurs clés au Riazor**: [Link](https://www.sofascore.com/fr/news/deportivo-de-a-coruna-vs-valence-presentation-de-la-laliga-tendances-et-joueurs-cles-au-riazor)
+
+
+### naples – côme (N/A, Sun, 30 Aug 2026 10:10:00 -0700)
+
+- **Naples – Como : aperçu, stats, forme, analyse et notes Sofascore | Serie A**: [Link](https://www.sofascore.com/fr/news/naples-como-apercu-forme-face-a-face-et-note-sofascore-a-surveiller)
+- **Allegri assure n'avoir « aucun problème » avec Fàbregas**: [Link](https://www.fotmob.com/fr/news/jlv7spgyq4v1oc2wtmk274u7_fr-allegri-assure-navoir-aucun-probleme-avec-fabregas)
+- **« J’aimerais avoir gagné ne serait-ce que 20% de ce qu’il a gagné » : Fabregas revient sur son clash avec Allegri et lâche un transfert bouclé avant Napoli-Côme**: [Link](https://onefootball.com/fr/news/jaimerais-avoir-gagne-ne-serait-ce-que-20-de-ce-quil-a-gagne-fabregas-revient-sur-son-clash-avec-allegri-et-lache-un-transfert-boucle-avant-napoli-come-43360485)
+
+
+### bet365 (N/A, Sun, 30 Aug 2026 10:10:00 -0700)
+
+- **bet365 Bonus Code: $365 Promo for Reds vs. Cubs, MLB Today**: [Link](https://www.actionnetwork.com/general/bet365-bonus-code-365-promo-for-reds-vs-cubs-mlb-slate-sunday)
+- **bet365 Bonus Code: Bet $10, Get $365 in Bonus Bets for North Carolina vs. TCU**: [Link](https://www.si.com/betting-promo/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-north-carolina-vs-tcu-01m14dxbvx0p)
+- **Bet365 Prommo Code MHS365: Bet $10, Get $365 Bonus For Week 0 Games**: [Link](https://milehighsports.com/bet365-prommo-code-mhs365-bet-10-get-365-bonus-for-week-0-games/)
+
+
+### لا ليغا (N/A, Sun, 30 Aug 2026 09:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة برشلونة ورايو فاييكانو في الدوري الإسباني 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd3a13df94a33cc38)
+- **حمزة عبد الكريم.. موعد مباراة برشلونة ضد رايو فاليكانو والقناة الناقلة**: [Link](https://www.youm7.com/story/2026/8/30/%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9/7530461)
+- **بمشاركة حمزة عبدالكريم.. برشلونة يتطلع لتعزيز رقمه القياسي على ملعبه في مواجهة فايكانو بالدوري الإسباني**: [Link](https://gate.ahram.org.eg/News/5897485.aspx)
+
+
+### yallakora (N/A, Sun, 30 Aug 2026 09:20:00 -0700)
+
+- **الحسين عموتة حاول تهدئته.. غضب عارم من سفيان بن جديدة بعد مباراة الأهلي (فيديو)**: [Link](https://www.eremnews.com/sports/fjmepqh)
+- **هل طلب معروف تغيير لاعب الأهلي؟.. رد حاسم من لجنة الحكام المصرية**: [Link](https://www.alkhaleej.ae/2026-08-30/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%87%D9%84-%D8%B7%D9%84%D8%A8-%D9%85%D8%B9%D8%B1%D9%88%D9%81-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B1%D8%AF-%D8%AD%D8%A7%D8%B3%D9%85-%D9%85%D9%86-%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9)
+- **شادى عيسي يوجه رساله الى لجنة التحكيم بعد ما قاله كريم حسن شحاته بالامس**: [Link](https://twaslnews1.twaslnews.com/4492955/)
+
+
+### ترتيب الدوري الاسباني (N/A, Sun, 30 Aug 2026 09:10:00 -0700)
+
+- **بعد هدفه ضد مالاجا.. من هو الفريق الوحيد الذي لم يسجل ضده مبابي في الليجا؟**: [Link](https://twaslnews1.twaslnews.com/4500933/)
+- **هداف الدوري الإسباني 2027.. مبابي ينفرد بالصدارة**: [Link](https://al-ain.com/article/real-madrid-vs-malaga-la-liga-scorer-mbappe)
+- **جدول ترتيب هدافي الدوري الإسباني موسم 2026-27**: [Link](https://www.almasryalyoum.com/news/details/4348980)
+
+
+### حرائق الغابات (N/A, Sun, 30 Aug 2026 09:10:00 -0700)
+
+- **حرائق الغابات في إندونيسيا لا ترحم حتى إنسان الغاب**: [Link](https://www.alarabiya.net/last-page/2026/08/30/%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%86%D8%AF%D9%88%D9%86%D9%8A%D8%B3%D9%8A%D8%A7-%D9%84%D8%A7-%D8%AA%D8%B1%D8%AD%D9%85-%D8%AD%D8%AA%D9%89-%D8%A7%D9%86%D8%B3%D8%A7%D9%86-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8-)
+- **تحذير من دخان الحرائق بإندونيسيا وتنبيه من "إل نينيو" بأميركا الوسطى**: [Link](https://www.aajeg.com/society/%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%AF%D8%AE%D8%A7%D9%86-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A8%D8%A5%D9%86%D8%AF%D9%88%D9%86%D9%8A%D8%B3%D9%8A%D8%A7-%D9%88%D8%AA%D9%86%D8%A8%D9%8A%D9%87-%D9%85%D9%86-%D8%A5%D9%84-%D9%86%D9%8A%D9%86%D9%8A%D9%88-%D8%A8%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D8%A7-%D8%A7%D9%84%D9%88%D8%B3%D8%B7%D9%89)
+- **ألقت إندونيسيا القبض على أكثر من 70 مشتبهاً بهم في حادثة حريق غابات.**: [Link](https://www.vietnam.vn/ar/indonesia-bat-hon-70-nghi-pham-gay-chay-rung)
+
+
 ### leeds united – brentford (N/A, Sun, 30 Aug 2026 06:00:00 -0700)
 
 - **Pre-match thoughts: Brenden Aaronson**: [Link](https://www.leedsunited.com/en/news/pre-match-thoughts-brenden-aaronson)
