@@ -1,3 +1,71 @@
+### leeds united – brentford (N/A, Sun, 30 Aug 2026 06:00:00 -0700)
+
+- **Pre-match thoughts: Brenden Aaronson**: [Link](https://www.leedsunited.com/en/news/pre-match-thoughts-brenden-aaronson)
+- **Leeds vs Brentford – Prediction, Where to Watch, Kick-off Time and Lineups 30-08**: [Link](https://oddsscanner.com/predictions/football/leeds-x-brentford-30-08-2026)
+- **Licensable picture: UK: Premier League: Leeds United v Brentford**: [Link](https://www.reutersconnect.com/item/uk-premier-league-leeds-united-v-brentford/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBSTENFUkg)
+
+
+### gabriel jesus (N/A, Sun, 30 Aug 2026 05:40:00 -0700)
+
+- **Here we go: Barcelona set to sign Arsenal striker for €10 million plus add-ons**: [Link](https://barcauniversal.com/here-we-go-barcelona-set-to-sign-arsenal-striker-for-e10-million-plus-add-ons/)
+- **Barcelona Agree Deal to Sign Gabriel Jesus From Arsenal**: [Link](https://www.dawan.africa/news/barcelona-agree-deal-to-sign-gabriel-jesus-from-arsenal)
+- **Following complications in the Alvarez deal: Barcelona snatch their new striker from Arsenal**: [Link](https://www.goal.com/en/news/after-the-alvarez-deal-became-complicated-barcelona-snatch-their-new-striker-from-arsenal/bltf5e81f420fd9a14c)
+
+
+### تشيلسي ضد برايتون (N/A, Sun, 30 Aug 2026 05:40:00 -0700)
+
+- **مباراة مشوقة بين تشلسي وبرايتون**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B4%D9%88%D9%82%D8%A9-%D8%A8%D9%8A%D9%86-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-2026-08-30)
+- **مارتينيز أساسياً مع تشيلسي أمام برايتون**: [Link](https://twaslnews1.twaslnews.com/4492914/)
+- **كيفية مشاهدة مباراة تشيلسي وبرايتون في الدوري الإنجليزي**: [Link](https://www.alkhaleej.ae/2026-08-30/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+
+
+### el aynaoui (N/A, Sun, 30 Aug 2026 05:40:00 -0700)
+
+- **Trato cerrado: El-Ainaoui pone rumbo a la Bundesliga**: [Link](https://es-us.noticias.yahoo.com/deportes/trato-cerrado-ainaoui-pone-rumbo-093923541.html)
+- **El Ainaoui se acerca a la Bundesliga**: [Link](https://www.goal.com/es/noticias/el-ainaoui-se-acerca-a-la-bundesliga/blt04d0d438ad51187a)
+- **El RB Leipzig alemán muestra interés en El Aynaoui ante su inminente salida de la Roma**: [Link](https://m.elbotola.com/es/article/2026-08-29-21-32-524.html)
+
+
+### sunderland – fulham (N/A, Sun, 30 Aug 2026 05:30:00 -0700)
+
+- **Fan Focus: What can Sunderland expect from Alvaro Arbeloa’s Fulham side?**: [Link](https://rokerreport.sbnation.com/fan-focus/150436/fan-focus-what-can-sunderland-expect-from-alvaro-arbeloas-fulham-side)
+- **EV Eagle's Value Premier League Football Betting Tips on Sunday**: [Link](https://www.oddschecker.com/tips/football/20260830-ev-eagles-value-premier-league-football-betting-tips-on-sunday)
+- **Cottage Tactico: Sunderland's solid foundations**: [Link](https://www.fulhamfc.com/news/2026/august/28/cottage-tactico-sunderlands-solid-foundations/)
+
+
+### chelsea – brighton (N/A, Sun, 30 Aug 2026 05:20:00 -0700)
+
+- **Premier League LIVE: Live text, radio & score updates as it happens from across the Premier League**: [Link](https://www.bbc.com/sport/football/live/cq563p0xvgxt)
+- **Xabi Alonso confirms Chelsea team news for Brighton visit | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/xabi-alonso-confirms-chelsea-team-news-for-brighton-visit)
+- **2pm team news: Martinez debut, James, Wilson + Dango benched**: [Link](https://www.fantasyfootballscout.co.uk/2026/08/30/2pm-team-news-martinez-debut-james-wilson-dango-benched/)
+
+
+### benjamin duhamel (N/A, Sun, 30 Aug 2026 05:20:00 -0700)
+
+- **«Vos questions sont celles du vieux monde» : Débuts chahutés pour Benjamin Duhamel à la tête de «Franc-Jeu»**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/vos-questions-sont-celles-du-vieux-monde-debuts-chahutes-pour-benjamin-duhamel-a-la-tete-de-franc-jeu-20260830)
+- **Changement d’horaire pour une émission de France 2**: [Link](https://soirmag.lesoir.be/767944/article/2026-08-30/changement-dhoraire-pour-une-emission-de-france-2)
+- **"Franc-Jeu". Avec Raphaël Glucksmann**: [Link](https://www.franceinfo.fr/replay-magazine/france-2/franc-jeu/franc-jeu-avec-raphael-glucksmann_8163872.html)
+
+
+### crédit (N/A, Sun, 30 Aug 2026 04:50:00 -0700)
+
+- **Elle a économisé 72.000 euros en renégociant son prêt immobilier : les conseils d'une experte pour en faire autant**: [Link](https://www.leveil.fr/paris-75000/economie/elle-a-economise-72-000-euros-en-renegociant-son-pret-immobilier-les-conseils-d-une-experte-pour-en-faire-autant_15037560/)
+
+
+### football féminin (N/A, Sun, 30 Aug 2026 04:50:00 -0700)
+
+- **Jeux de la Méditerranée (équipes féminines U17): le Maroc face à la Slovénie en match de classement**: [Link](https://frmf.ma/fr/articles/jeux-de-la-mediterranee-equipes-feminines-u17-le-maroc-face-a-la-slovenie-en-match-de-classement)
+- **Jeux méditerranéens: le Maroc face à la Slovénie en match de classement**: [Link](https://radiomars.ma/fr/?p=5824)
+- **Jeux méditerranéens: les Lioncelles U17 joueront pour la médaille de bronze**: [Link](https://sport.le360.ma/football/jeux-mediterraneens-les-lioncelles-u17-joueront-pour-la-medaille-de-bronze_ZE7HJJTZ6NAZHOVZF7EBLH4YBA/)
+
+
+### utrecht – psv eindhoven (N/A, Sun, 30 Aug 2026 03:40:00 -0700)
+
+- **Bosz makes a decision on Geertruida's starting place at PSV**: [Link](https://www.goal.com/en-za/news/bosz-makes-a-decision-on-geertruida-s-starting-place-at-psv/blt8563d3f169f24f09)
+- **Boeren run riot at Utrecht to surge into second**: [Link](https://onefootball.com/en/news/boeren-run-riot-at-utrecht-to-surge-into-second-43368185)
+- **FC Utrecht vs PSV Eindhoven match lineup | Eredivisie · 30 Aug 2026**: [Link](https://www.ysscores.com/en/lineup/5781726/FC-Utrecht-vs-PSV-Eindhoven)
+
+
 ### classement inter miami – cf montréal (N/A, Sat, 29 Aug 2026 22:20:00 -0700)
 
 - **L’Inter Miami profite du CF Montréal pour sortir de sa torpeur**: [Link](https://www.journaldemontreal.com/2026/08/29/linter-miami-profite-du-cf-montreal-pour-sortir-de-sa-torpeur)
