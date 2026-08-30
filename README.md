@@ -1,3 +1,31 @@
+### mls (N/A, Sat, 29 Aug 2026 19:00:00 -0700)
+
+- **Toronto FC unbeaten in 4, welcome New York City FC to BMO Field for CNE game**: [Link](https://wakingthered.com/2026/08/28/25740/toronto-fc-unbeaten-in-4-welcome-new-york-city-fc-to-bmo-field-for-cne-game/)
+- **MATCH RECAP: Toronto FC 1 – 1 New York City FC**: [Link](https://www.torontofc.ca/news/match-recap-toronto-fc-1-1-new-york-city-fc)
+- **Salloi’s late marker helps Toronto earn 1-1 MLS draw with New York City**: [Link](https://www.thestar.com/sports/tfc/sallois-late-marker-helps-toronto-earn-1-1-mls-draw-with-new-york-city/article_d338c06d-3b07-5b10-88de-445d8cbc9e2f.html)
+
+
+### إنتر ميامي ضد نادي مونتريال لكرة القدم (N/A, Sat, 29 Aug 2026 17:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي ومونتريال في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%85%D9%88%D9%86%D8%AA%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd73b72f97d1ea530)
+- **تكرر قبل 13 عاما.. رقم سلبي يطارد ميسي مع إنتر ميامي**: [Link](https://www.aljazeera.net/sport/2026/8/25/%D9%85%D9%8A%D8%B3%D9%8A-%D8%B1%D9%82%D9%85-%D8%B3%D9%84%D8%A8%D9%8A-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **القنوات الناقلة لمباراة إنتر ميامي ضد مونتريال امباكت في الدوري الأمريكي 2026**: [Link](https://twaslnews1.twaslnews.com/4474572/)
+
+
+### قوات مسلحة (N/A, Sat, 29 Aug 2026 17:10:00 -0700)
+
+- **العراق: انسحاب قوات التحالف يتسارع والموعد النهائي نهاية سبتمبر**: [Link](https://www.aljazeera.net/news/2026/8/26/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D8%AD%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A%D8%A9-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D9%82%D9%88%D8%A7%D8%AA)
+- **بغداد تؤكد الالتزام بإنجاز الانسحاب الأميركي نهاية سبتمبر**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/5312370-%D8%A8%D8%BA%D8%AF%D8%A7%D8%AF-%D8%AA%D8%A4%D9%83%D8%AF-%D8%A7%D9%84%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85-%D8%A8%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D8%A7%D9%84%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1)
+- **النعمان: تغيير المصطلحات لا يغير الهدف.. السلاح سيكون حصراً تحت إشارة وزارة الدفاع**: [Link](https://almadapaper.net/450341/)
+
+
+### greve avocats maroc (N/A, Sat, 29 Aug 2026 16:20:00 -0700)
+
+- **Les avocats maintiennent la grève**: [Link](https://medias24.com/2026/08/28/les-avocats-maintiennent-la-greve-1744285/)
+- **Loi 66.23 : l’ABAM maintient le bras de fer et réclame l’abrogation de la nouvelle loi**: [Link](https://fr.hespress.com/486407-loi-66-23-labam-maintient-le-bras-de-fer-et-reclame-labrogation-de-la-nouvelle-loi.html)
+- **Profession d’avocat : la bataille contre la loi n°66.23 se poursuit, l’incertitude grandit**: [Link](https://lematin.ma/nation/profession-davocat-la-bataille-contre-la-loi-n6623-se-poursuit/362443)
+
+
 ### inter miami – montréal (N/A, Sat, 29 Aug 2026 16:10:00 -0700)
 
 - **Miami vs. CF Montréal (Aug 29, 2026) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/761757)
