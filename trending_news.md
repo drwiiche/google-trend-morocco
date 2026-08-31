@@ -1,3 +1,10 @@
+### novak djokovic (N/A, Sun, 30 Aug 2026 17:30:00 -0700)
+
+- **Novak Djokovic makes comment about Carlos Alcaraz when honestly rating his chances of winning the US Open**: [Link](https://tennishead.net/novak-djokovic-makes-comment-about-carlos-alcaraz-when-honestly-rating-his-chances-of-winning-the-us-open/)
+- **Tennis: Djokovic 'prepared' for US Open bid for history - Omni sports - Sports**: [Link](https://english.ahram.org.eg/News/575515.aspx)
+- **Novak Djokovic Reveals Ongoing Health Concern Ahead of Pursuit of Historic 25th Grand Slam**: [Link](https://sports.yahoo.com/articles/novak-djokovic-reveals-ongoing-health-190755001.html)
+
+
 ### كأس العالم (N/A, Sun, 30 Aug 2026 15:10:00 -0700)
 
 - **المغرب يبدأ "مونديال السداسية" بالفوز**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%81%D9%88%D8%B2-1799371.html)
