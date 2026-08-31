@@ -1,3 +1,24 @@
+### نفط (N/A, Sun, 30 Aug 2026 21:30:00 -0700)
+
+- **الرئيسة الانتقالية في فنزويلا: اتفاقية الطاقة مع واشنطن مدتها 25 عاما**: [Link](https://www.aljazeera.net/news/2026/8/30/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7)
+- **65 مليار برميل تحت سيطرة واشنطن.. ترامب يعلن أكبر صفقة نفط في التاريخ**: [Link](https://www.alarabiya.net/aswaq/oil-and-gas/2026/08/29/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%A8%D8%B1%D9%85-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D8%A7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A7-%D9%85%D8%B9-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-%D9%84%D8%AA%D8%A7%D9%85%D9%8A%D9%86-%D8%A7%D8%AD%D8%AA%D9%8A%D8%A7%D8%B7%D9%8A%D8%A7%D8%AA-%D9%86%D9%81%D8%B7%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-65-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%A8%D8%B1%D9%85%D9%8A%D9%84)
+- **اتفاق النفط يشعل الجدل في فنزويلا**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D9%81%D9%8A-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7-1799157.html)
+
+
+### harmattan ai (N/A, Sun, 30 Aug 2026 17:00:00 -0700)
+
+- **Harmattan AI place à Rabat l’ingénierie de son programme de drones pour les FAR**: [Link](https://ledesk.ma/2026/08/29/harmattan-ai-place-a-rabat-lingenierie-de-son-programme-de-drones-pour-les-far/)
+- **Drones: Harmattan AI accélère son implantation au Maroc et vise la production en série**: [Link](https://h24info.ma/economie/drones-harmattan-ai-implantation-au-maroc/)
+- **Conçu à Rabat, testé dans le sud : un nouveau drone militaire prend forme au Maroc**: [Link](https://www.bladi.net/concu-rabat-teste-sud-nouveau-drone-militaire-prend-forme-maroc,123439.html)
+
+
+### real madrid club de fútbol – club atlético de madrid (N/A, Sun, 30 Aug 2026 13:20:00 -0700)
+
+- **Schröder, (mal) genio y figura del derbi**: [Link](https://as.com/futbol/femenino/schroder-mal-genio-y-figura-del-derbi-f202608-n/)
+- **Real Madrid - Atlético en directo | Última hora de la Liga F Moeve hoy**: [Link](https://www.marca.com/futbol/liga-f-moeve/r-madrid-atletico/2026/08/30/01_0122_20260830_16928_11212-directo.html)
+- **Real Madrid - Atlético de Madrid: alineaciones, horario, dónde ver, pronósticos y estadísticas**: [Link](https://www.betfair.es/blog/futbol/futbol-espanol/liga-f/real-madrid---atletico-de-madrid-alineaciones-horario-donde-ver-pronosticos-y-estadisticas-290826-1377.html)
+
+
 ### novak djokovic (N/A, Sun, 30 Aug 2026 17:30:00 -0700)
 
 - **Novak Djokovic makes comment about Carlos Alcaraz when honestly rating his chances of winning the US Open**: [Link](https://tennishead.net/novak-djokovic-makes-comment-about-carlos-alcaraz-when-honestly-rating-his-chances-of-winning-the-us-open/)
