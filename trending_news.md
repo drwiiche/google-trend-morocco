@@ -1,3 +1,71 @@
+### fcb (N/A, Mon, 31 Aug 2026 12:50:00 -0700)
+
+- **Héctor Fort transferred to Real Sociedad**: [Link](https://www.fcbarcelona.com/en/news/4568488/hector-fort-transferred-to-real-sociedad)
+- **Lamine Yamal says goodbye to his 'brother'! Barcelona confirm €8m exit for La Masia star as Real Sociedad secure long-term deal**: [Link](https://sports.yahoo.com/articles/lamine-yamal-says-goodbye-brother-053338339.html)
+- **Barcelona officially announces the departure of their player to a La Liga club**: [Link](https://www.goal.com/en/news/barcelona-officially-announce-the-departure-of-their-player/blt407abf08649e8b1f)
+
+
+### مباراة اليوم (N/A, Mon, 31 Aug 2026 12:50:00 -0700)
+
+
+
+
+### barca (N/A, Mon, 31 Aug 2026 12:40:00 -0700)
+
+- **Licensable picture: FC Barcelona v Rayo Vallecano de Madrid - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/fc-barcelona-v-rayo-vallecano-de-madrid-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMEJOVEQ0TQ)
+- **First appearance and a perfect record: an "exceptional" test for the referee of Barcelona vs Vallecano**: [Link](https://www.goal.com/en/news/first-appearance-and-a-flawless-record-an-exceptional-test-for-the-barcelona-and-vallecano-referee/blt8a8213ad977530de)
+- **Barcelona Vs Rayo Vallecano Correct Score: Kalshi Traders Pile Into 4-0**: [Link](https://www.oddsshopper.com/articles/prediction-markets/barcelona-vs-rayo-vallecano-correct-score-kalshi-odds)
+
+
+### yalla kora (N/A, Mon, 31 Aug 2026 12:40:00 -0700)
+
+- **مشاهدة مباراة بيراميدز والمصري اليوم في الدوري المصري.. الموعد والقنوات الناقلة**: [Link](https://www.alkhaleej.ae/2026-08-31/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%88%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+- **لاعب الأردن يتعرض لإصابة قوية في الدوري المصري**: [Link](https://www.365scores.com/ar/news/magazine/%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1/)
+- **إصابة الأردني فاخوري بجزع في أربطة الكاحل**: [Link](https://tembah.net/news?nid=96301)
+
+
+### بث مباشر (N/A, Mon, 31 Aug 2026 12:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة آميد سبورتيف وطرابزون سبور في الدوري التركي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D9%85%D9%8A%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81-%D9%88%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D8%B3%D8%A8%D9%88%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt7892b0d3c7c6e144)
+- **تكريما للنجم المصري.. إطلاق اسم محمد صلاح على شارع في تركيا**: [Link](https://www.aljazeera.net/sport/2026/8/31/%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D8%B3%D9%85-%D8%B4%D8%A7%D8%B1%D8%B9-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86)
+- **بث مباشر لمباراة طرابزون سبور ضد آميد سبور في الدوري التركي**: [Link](https://www.annahar.com/sports/343046/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D8%B3%D8%A8%D9%88%D8%B1-%D8%B6%D8%AF-%D9%85%D9%8A%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A)
+
+
+### barcelone – rayo (N/A, Mon, 31 Aug 2026 11:50:00 -0700)
+
+- **FC Barcelone - Rayo Vallecano, La Liga, match en direct le 31/08/2026**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/fc-barcelone-rayo-vallecano-live/693099)
+- **FC Barcelone - Rayo Vallecano en direct : suivez La Liga 2026-2027**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-fc-barcelone-rayo-vallecano_mtc21891609/live-commentary.shtml)
+- **Absence surprise et retour polémique : Flick dévoile la liste de Barcelone pour affronter le Rayo Vallecano**: [Link](https://www.goal.com/fr/news/absence-surprise-et-retour-polemique-flick-devoile-la-liste-de-barcelone-pour-affronter-le-rayo-vallecano/blte6256f155b9ea781)
+
+
+### برشلونة ضد رايو فاليكانو (N/A, Mon, 31 Aug 2026 11:50:00 -0700)
+
+- **ما موقف حمزة عبد الكريم؟.. فليك يعلن تشكيل برشلونة أمام رايو فاليكانو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88/blt4c0aae91c8e75770)
+- **مباشر.. مباراة برشلونة ضد رايو فاليكانو في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/8/31/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88)
+- **الليغا الاسبانية...موعد مباراة البارصا ضد فاليكانو والقناة الناقلة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%B5%D8%A7-%D8%B6%D8%AF-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/24692)
+
+
+### barcelona vs rayo vallecano (N/A, Mon, 31 Aug 2026 11:50:00 -0700)
+
+- **El posible once del Barça ante el Rayo Vallecano**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260831/1004221483/posible-once-barca-rayo-vallecano.html)
+- **¿Cuál es la situación de Hamza Abdelkarim? Flick anuncia la alineación del Barcelona ante el Rayo Vallecano**: [Link](https://www.goal.com/es/noticias/cual-es-la-situacion-de-hamza-abdelkarim-flick-anuncia-la-alineacion-del-barcelona-ante-el-rayo-vallecano/blt4c0aae91c8e75770)
+- **"Retratando la pasividad de Jules Koundé": Así se ha narrado el gol de Sergio Camello**: [Link](https://www.sport.es/es/videos/barca/20260831/retratando-pasividad-jules-kounde-narrado/133820077.shtml)
+
+
+### carlos alcaraz (N/A, Mon, 31 Aug 2026 11:40:00 -0700)
+
+- **Alcaraz - Safiullin, en directo: primera ronda del US Open 2026 hoy, en vivo**: [Link](https://as.com/tenis/us_open/alcaraz-safiullin-en-directo-primera-ronda-del-us-open-2026-hoy-en-vivo-f202608-d/)
+- **Carlos Alcaraz regresa a lo grande y presenta candidatura a retener la corona**: [Link](https://www.marca.com/tenis/us-open/2026/08/31/carlos-alcaraz-regresa-grande-presenta-candidatura-retener-corona.html)
+- **En shock por Djokovic, turno del debut de riesgo de Alcaraz en el US Open**: [Link](https://www.france24.com/es/minuto-a-minuto/20260831-en-shock-por-djokovic-turno-del-debut-de-riesgo-de-alcaraz-en-el-us-open)
+
+
+### walid regragui (N/A, Mon, 31 Aug 2026 11:40:00 -0700)
+
+- **Walid Regragui : confessions sur son épopée, ses secrets de vestiaire et son avenir**: [Link](https://medias24.com/2026/08/31/walid-regragui-confessions-sur-son-epopee-ses-secrets-de-vestiaire-et-son-avenir-1745931/)
+- **Regragui se livre sans filtre : CAN 2025, Ziyech, Lamine Yamal… ses vérités**: [Link](https://radiomars.ma/fr/?p=5901)
+- **En citant Mbappé, Regragui justifie le penalty manqué par Brahim Diaz face au Sénégal**: [Link](https://www.goal.com/fr/news/en-citant-mbappe-regragui-justifie-le-penalty-manque-par-brahim-diaz-face-au-senegal/blte5f198414db94e63)
+
+
 ### مدافع (N/A, Mon, 31 Aug 2026 06:20:00 -0700)
 
 - **خاص| نادٍ بارز في البطولة الاحترافية يفاوض الكاميروني إيكامبي**: [Link](https://radiomars.ma/%D9%86%D8%A7%D8%AF%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A8%D9%82%D9%88%D8%A9-%D9%81%D9%8A-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%84%D8%B6%D9%85-%D9%83%D8%A7%D8%B1/)
