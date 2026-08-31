@@ -1,3 +1,73 @@
+### مدافع (N/A, Mon, 31 Aug 2026 06:20:00 -0700)
+
+- **خاص| نادٍ بارز في البطولة الاحترافية يفاوض الكاميروني إيكامبي**: [Link](https://radiomars.ma/%D9%86%D8%A7%D8%AF%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AF%D8%AE%D9%84-%D8%A8%D9%82%D9%88%D8%A9-%D9%81%D9%8A-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%84%D8%B6%D9%85-%D9%83%D8%A7%D8%B1/)
+- **المدافع غونزاليز على مشارف الإنتقال إلى البطولة الإحترافية**: [Link](https://www.sport7.ma/%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D8%BA%D9%88%D9%86%D8%B2%D8%A7%D9%84%D9%8A%D8%B2-%D8%B9%D9%84%D9%89-%D9%85%D8%B4%D8%A7%D8%B1%D9%81-%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5/)
+- **نهضة بركان يكثف تحركاته للتعاقد مع مهاجم كاميروني بارز**: [Link](https://twaslnews1.twaslnews.com/4473518/)
+
+
+### رئيس الجزائر (N/A, Mon, 31 Aug 2026 06:10:00 -0700)
+
+- **الرئيس الجزائري يوجّه بإقرار عقوبة الإعدام لمتعمدي إشعال حرائق الغابات**: [Link](https://www.aljazeera.net/news/2026/8/31/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%8A%D9%88%D8%AC%D9%87-%D8%A8%D8%A5%D9%82%D8%B1%D8%A7%D8%B1-%D8%B9%D9%82%D9%88%D8%A8%D8%A9)
+- **رئيس الجزائر: لا نستبعد وجود أياد إجرامية وراء حرائق الولايات**: [Link](https://arabic.cnn.com/middle-east/article/2026/08/30/algeria-president-criminal-fires)
+- **المرزوقي يتضامن مع ضحايا الحرائق في الجزائر**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D8%B1%D8%B2%D9%88%D9%82%D9%8A-%D9%8A%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D9%85%D8%B9-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D9%81%D9%8A-%D8%A7%D9%84/)
+
+
+### bitcoin (N/A, Mon, 31 Aug 2026 05:20:00 -0700)
+
+- **Strategy returns to bitcoin buys, adding $370 million worth last week**: [Link](https://www.coindesk.com/markets/2026/08/31/strategy-returns-to-bitcoin-buys-adding-usd370-million-worth-last-week)
+- **MSTR Looks 9.1% Overvalued on GF Value™ as Market Prices in Chal**: [Link](https://www.gurufocus.com/news/9059991/mstr-looks-91-overvalued-on-gf-value-as-market-prices-in-challenging-growth)
+- **Strategy: Acquires 4603 BTC for $370M**: [Link](https://blockchain.news/flashnews/strategy-acquires-4603-btc-370m)
+
+
+### gabriel jesus barcelone (N/A, Mon, 31 Aug 2026 05:00:00 -0700)
+
+- **Arsenal transfer news: Gabriel Jesus close to joining Barcelona**: [Link](https://www.bbc.com/sport/football/articles/c9qr79jr1qqo)
+- **Report: Barcelona Target Arsenal Striker As Julian Alvarez Alternative**: [Link](https://www.fotmob.com/embed/news/01m19g0bg7m2/report-barcelona-target-arsenal-striker-julian-alvarez-alternative)
+- **Smart Signing or Step Down? Barcelona’s Gabriel Jesus Gamble After Julian Álvarez Miss**: [Link](https://www.sportscapemagazine.com/blog/smart-signing-or-step-down-barcelonas-gabriel-jesus-gamble-after-julian-lvarez-miss)
+
+
+### grand theft auto vi (N/A, Mon, 31 Aug 2026 04:40:00 -0700)
+
+- **The Grand Ambitions of Grand Theft Auto VI**: [Link](https://www.nytimes.com/2026/08/27/arts/grand-theft-auto-vi-trailer-extended-look-rockstar.html)
+- **GTAVI: An exclusive deep dive into the video game of the decade**: [Link](https://www.dazeddigital.com/life-culture/article/70859/1/gta-6-grand-theft-auto-vi-rockstar-exclusive-deep-dive-game-unparalleled-world)
+- **We Saw GTA 6 at Rockstar HQ — Here Are 69 Gameplay Details You Haven’t Seen**: [Link](https://www.ign.com/articles/gta-6-new-gameplay-details)
+
+
+### pedro sánchez (N/A, Mon, 31 Aug 2026 03:50:00 -0700)
+
+- **Sánchez exculpa a Marruecos por la crisis de Ceuta y avanza que el Rey la visitará por primera vez con este Gobierno**: [Link](https://elpais.com/espana/2026-08-31/sanchez-destaca-la-cooperacion-instantanea-con-marruecos-y-asegura-que-el-rey-visitara-ceuta.html)
+- **Sebta: Sánchez defiende la alianza Madrid-Rabat y asegura que «ninguna información permite dudar de Marruecos**: [Link](https://es.le360.ma/politica/sebta-sanchez-defiende-la-alianza-madrid-rabat-y-asegura-que-ninguna-informacion-permite-dudar-de_46TQTW4J2JC6HJKUP6OHOAPPCQ/)
+- **Sánchez promete que el Rey irá a Ceuta sin concretar fecha y hace una defensa cerrada de Marruecos: "Sin cooperación esta crisis se agravaría"**: [Link](https://www.elmundo.es/espana/2026/08/31/6a951e7ee9cf4a43568b45a0.html)
+
+
+### marrakech (N/A, Mon, 31 Aug 2026 03:30:00 -0700)
+
+- **Marrakech: le périlleux équilibre entre records de fréquentation et urgence écologique**: [Link](https://fr.le360.ma/economie/marrakech-le-perilleux-equilibre-entre-records-de-frequentation-et-urgence-ecologique_XM2VKRAXHJG6JL4PN4NU6EHB4M/)
+- **La nouvelle équation hôtelière au Maroc : changement d’échelle, expérience et ancrage local**: [Link](https://lnt.ma/la-nouvelle-equation-hoteliere-au-maroc-changement-dechelle-experience-et-ancrage-local/)
+- **Sur les 300.000 lits identifiés, combien sont réellement disponibles ?**: [Link](https://premiumtravelnews.com/2026/08/27/sur-les-300-000-lits-identifies-combien-sont-reellement-disponibles/)
+
+
+### belgique (N/A, Mon, 31 Aug 2026 02:50:00 -0700)
+
+- **Theo Francken évoque un renforcement de la coopération avec son homologue japonais**: [Link](https://www.lalibre.be/dernieres-depeches/2026/08/31/theo-francken-evoque-un-renforcement-de-la-cooperation-avec-son-homologue-japonais-NJ73CHVYIRBWZNVO62CTDRA3SA/)
+- **« Nous partageons les mêmes valeurs démocratiques et défendons le même ordre juridique international » : la Belgique renforce sa coopération militaire avec… le Japon**: [Link](https://www.sudinfo.be/id1187514/article/2026-08-31/nous-partageons-les-memes-valeurs-democratiques-et-defendons-le-meme-ordre)
+- **Rhode arrive enfin en boutiques en Belgique (et on connaît la date)**: [Link](https://www.elle.be/fr/477973-rhode-hailey-bieber-boutiques-belges-date.html)
+
+
+### إسرائيل (N/A, Mon, 31 Aug 2026 02:10:00 -0700)
+
+- **رئيس وزراء إسبانيا ينفي أي مسؤولية للمغرب عن تدفق المهاجرين إلى سبتة**: [Link](https://www.alarabiya.net/north-africa/morocco/2026/08/31/%D8%B1%D8%A6%D9%8A%D8%B3-%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D9%86%D9%81%D9%8A-%D8%A7%D9%8A-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D8%AA%D8%AF%D9%81%D9%82-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86-%D8%A7%D9%84%D9%89-%D8%B3%D8%A8%D8%AA%D8%A9)
+- **رئيس الوزراء الإسباني بيدرو سانشيز يقرر الاستمرار في منصبه**: [Link](https://ar.telquel.ma/%D9%81%D9%8A%D9%81%D8%A7%D8%B3-%D9%8A%D9%83%D8%B4%D9%81-%D9%81%D9%8A-%D8%AD%D8%AF%D9%8A%D8%AB%D9%87-%D9%85%D8%B9-%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA/)
+- **المنظمة المغربية لحقوق الإنسان تراسل السفير الإسباني بشأن أوضاع المهاجرين بسبتة**: [Link](https://assabah.ma/946755.html)
+
+
+### mail (N/A, Mon, 31 Aug 2026 01:00:00 -0700)
+
+- **More Mail Ballots Are Arriving Late This Year, and They’re Getting Tossed**: [Link](https://www.nytimes.com/2026/08/31/us/politics/postal-service-mail-ballots-delays-midterms-voting.html)
+- **Mail-in voting back-and-forth**: [Link](https://www.channel3000.com/video/mail-in-voting-back-and-forth/video_31d36192-f948-5393-8217-1c9c4f98f789.html)
+- **Late mail ballot rejections in Michigan may impact Democratic Senate prospects**: [Link](https://cryptobriefing.com/late-mail-ballot-rejections-in-michigan-may-impact-democratic-senate-prospects/)
+
+
 ### نفط (N/A, Sun, 30 Aug 2026 21:30:00 -0700)
 
 - **الرئيسة الانتقالية في فنزويلا: اتفاقية الطاقة مع واشنطن مدتها 25 عاما**: [Link](https://www.aljazeera.net/news/2026/8/30/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D8%A7)
