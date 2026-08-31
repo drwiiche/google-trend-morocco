@@ -1,3 +1,71 @@
+### paco jemez (N/A, Mon, 31 Aug 2026 15:20:00 -0700)
+
+- **Paco Jémez Meets Raja Players, Emphasizes Discipline During Training Session with Performance Analyst**: [Link](https://m.elbotola.com/en/article/2026-08-31-22-29-103.html)
+- **Paco Jémez, Raja's New Coach: The Possession Maestro Who Made Rayo Vallecano Fearless Against Giants**: [Link](https://m.elbotola.com/en/article/2026-08-31-11-29-105.html)
+- **Spanish Paco Jemez Frontrunner to Coach Raja, Replacing Tunisian Nasreddine Nabi**: [Link](https://m.elbotola.com/en/article/2026-08-30-16-42-887.html)
+
+
+### حافلة (N/A, Mon, 31 Aug 2026 15:10:00 -0700)
+
+- **160 حافلة جديدة لفائدة مؤسسات النقل الحضري وشبه الحضري في 5 ولايات**: [Link](https://rasselmal.com/160-%D8%AD%D8%A7%D9%81%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9-%D9%85%D8%A4%D8%B3%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%AD%D8%B6/)
+- **6 بنوك عمومية تمول شراء الحافلات الجديدة حتى 90%**: [Link](https://tadamsanews.dz/%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D8%A7%D9%84%D8%AD%D8%A7%D9%81%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1/)
+- **برنامج استيراد 10 آلاف حافلة: تسليم 160 حافلة كبيرة لمؤسسات النقل الحضري وشبه الحضري بعدة ولايات**: [Link](https://www.elitihadcom.dz/%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D8%A7%D8%B3%D8%AA%D9%8A%D8%B1%D8%A7%D8%AF-10-%D8%A2%D9%84%D8%A7%D9%81-%D8%AD%D8%A7%D9%81%D9%84%D8%A9-%D8%AA%D8%B3%D9%84%D9%8A%D9%85-160-%D8%AD%D8%A7%D9%81%D9%84/)
+
+
+### nfl schedule this week (N/A, Mon, 31 Aug 2026 15:00:00 -0700)
+
+- **Fantasy Football: Preseason takeaways for all 32 NFL teams**: [Link](https://www.pff.com/news/fantasy-football-preseason-takeaways-all-32-nfl-teams)
+- **Preseason Week 3 IDP Takeaways**: [Link](https://www.theidpshow.com/p/preseason-week-3-idp-takeaways)
+- **What NFL games are on today? Preseason Week 3 TV channels, Sunday schedule**: [Link](https://au.sports.yahoo.com/nfl-games-today-preseason-week-100446331.html)
+
+
+### fc barcelona vs rayo vallecano standings (N/A, Mon, 31 Aug 2026 14:50:00 -0700)
+
+- **Raphinha and Lamine Yamal score as Barcelona beat Rayo Vallecano**: [Link](https://www.bbc.com/sport/football/live/cq3d7vy8ye01t)
+- **With the participation of Hamza Abdelkarim: a five-goal storm sends Barcelona back to the top of La Liga**: [Link](https://www.goal.com/en/news/with-the-participation-of-hamza-abdelkarim-five-goal-storm-returns-barcelona-to-the-top-of-la-liga/blt4d5fd3bfd4a20688)
+- **Licensable picture: FC Barcelona v Rayo Vallecano de Madrid - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/fc-barcelona-v-rayo-vallecano-de-madrid-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMEJOVENFUQ)
+
+
+### where to watch nfl games (N/A, Mon, 31 Aug 2026 14:50:00 -0700)
+
+- **Bengals Eagles Football**: [Link](http://www.idahopress.com/sports/national/bengals-eagles-football/image_9396c5f2-7a22-5e8e-90be-fe43bdd902bf.html)
+- **Bengals Eagles Football**: [Link](https://www.bdtonline.com/sports/national_sports/bengals-eagles-football/image_6effe9f9-cd5f-5a7b-9255-9407aa47bce4.html)
+- **Bengals Eagles Football**: [Link](https://www.bdtonline.com/sports/national_sports/bengals-eagles-football/image_777e6457-6fe5-5f24-81d3-768407998f4b.html)
+
+
+### باكو خيميز (N/A, Mon, 31 Aug 2026 14:30:00 -0700)
+
+- **خلفا لنصر الدين نابي.. الرجاء يحدد هوية مدربه الجديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D9%84%D9%81%D8%A7-%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D9%86%D8%A7%D8%A8%D9%8A--%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%87%D9%88%D9%8A%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/blt6b02dbf767d97513)
+- **رسمياً.. الرجاء الرياضي يتعاقد مع المدرب الإسباني باكو خيميز**: [Link](https://radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7%D9%8B-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%AF/)
+- **نابي يكشف كواليس الانفصال: "تعرفت على بعض الانتدابات عبر الإنترنت"**: [Link](https://febrayer.com/1159398.html)
+
+
+### donald trump (N/A, Mon, 31 Aug 2026 14:30:00 -0700)
+
+- **Trump Live Updates: White House Ballroom Construction Can Continue, Supreme Court Rules**: [Link](https://www.nytimes.com/live/2026/08/31/us/trump-news)
+- **Secret White House bunker undercuts Trump’s ballroom lawsuit, ex-officials say**: [Link](https://www.washingtonpost.com/politics/2026/08/23/secret-white-house-bunker-undercuts-trumps-ballroom-lawsuit-ex-officials-say/)
+- **Lawfare Live: Supreme Court Allows White House Ballroom Construction to Continue**: [Link](https://www.lawfaremedia.org/article/lawfare-live--supreme-court-allows-white-house-ballroom-construction-to-continue)
+
+
+### xavi espart (N/A, Mon, 31 Aug 2026 13:50:00 -0700)
+
+- **The 2007 generation goes from strength to strength**: [Link](https://www.fcbarcelona.com/en/news/4568150/the-2007-generation-goes-from-strength-to-strength)
+- **Confirmed: Barcelona teenage prodigy registered as a first-team player**: [Link](https://barcauniversal.com/confirmed-barcelona-teenage-prodigy-registered-as-a-first-team-player/)
+- **Emergence of Xavi Espart shows embarrassment of riches La Masia keeps producing**: [Link](https://www.catalannews.com/sports/item/emergence-of-xavi-espart-shows-embarrassment-of-riches-la-masia-keeps-producing)
+
+
+### barcellona - rayo vallecano (N/A, Mon, 31 Aug 2026 13:20:00 -0700)
+
+
+
+
+### bet365 (N/A, Mon, 31 Aug 2026 13:00:00 -0700)
+
+- **bet365 bonus code: Bet $10, get $365 in bonus bets for college football Week 1**: [Link](https://nypost.com/2026/08/31/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-college-football-week-1/)
+- **Bet365 Promo Code BROAD365: Get $365 Bonus Tonight for Phillies-Diamondbacks, MLB Games**: [Link](https://www.crossingbroad.com/news/sports-gambling/bet365-promo-code-broad365-get-365-mlb-bonus/)
+- **bet365 Bonus Code Offers $365 for US Open Tonight, NFL Futures Odds**: [Link](https://www.actionnetwork.com/general/bet365-bonus-code-offers-365-for-us-open-tonight-nfl-futures-odds)
+
+
 ### fcb (N/A, Mon, 31 Aug 2026 12:50:00 -0700)
 
 - **Héctor Fort transferred to Real Sociedad**: [Link](https://www.fcbarcelona.com/en/news/4568488/hector-fort-transferred-to-real-sociedad)
