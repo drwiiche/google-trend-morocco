@@ -1,3 +1,17 @@
+### prix carburant maroc (N/A, Mon, 31 Aug 2026 17:10:00 -0700)
+
+- **Gasoil à 15 dirhams: les rouages d’un prix à la pompe sous haute tension**: [Link](https://fr.le360.ma/economie/gasoil-a-15-dirhams-les-rouages-dun-prix-a-la-pompe-sous-haute-tension_7Z7XVMKVUJEMNAG5F7FH5HJWXA/)
+- **Carburants au Maroc : pourquoi le litre de gasoil pourrait dépasser les 15 DH**: [Link](https://leseco.ma/maroc/carburants-au-maroc-pourquoi-le-litre-de-gasoil-pourrait-depasser-les-15-dh.html)
+- **Prix des carburants : le gasoil en légère hausse, pas de changement pour l’essence**: [Link](https://lematin.ma/economie/prix-des-carburants-legere-hausse-du-gasoil-lessence-reste-stable/362845)
+
+
+### laliga (N/A, Mon, 31 Aug 2026 14:40:00 -0700)
+
+- **Licensable picture: SL Benfica V GD Estoril Praia - Liga Portugal**: [Link](https://www.reutersconnect.com/item/sl-benfica-v-gd-estoril-praia-liga-portugal/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBGMk1GU0I)
+- **Licensable picture: FC Barcelona V Rayo Vallecano - LaLiga.August 31th**: [Link](https://www.reutersconnect.com/item/fc-barcelona-v-rayo-vallecano-laligaaugust-31th/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBIVFRTU0E)
+- **Licensable picture: SL Benfica X Estoril Praia - Liga Portugal Betclic**: [Link](https://www.reutersconnect.com/item/sl-benfica-x-estoril-praia-liga-portugal-betclic/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBBT0NMWEc)
+
+
 ### paco jemez (N/A, Mon, 31 Aug 2026 15:20:00 -0700)
 
 - **Paco Jémez Meets Raja Players, Emphasizes Discipline During Training Session with Performance Analyst**: [Link](https://m.elbotola.com/en/article/2026-08-31-22-29-103.html)
