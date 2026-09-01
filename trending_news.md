@@ -1,3 +1,45 @@
+### oncf (N/A, Tue, 1 Sep 2026 09:30:00 -0700)
+
+- **ONCF : des perturbations du trafic prévues à partir du 5 septembre**: [Link](https://ledesk.ma/encontinu/oncf-des-perturbations-du-trafic-prevues-a-partir-du-5-septembre/)
+- **LGV Kénitra-Marrakech : Jesa chargée de la coordination des travaux des nouvelles gares**: [Link](https://medias24.com/2026/08/31/lgv-kenitra-marrakech-jesa-chargee-de-la-coordination-des-travaux-des-nouvelles-gares-1745397/)
+- **Travaux ferroviaires : L’ONCF revoit temporairement la circulation de plusieurs trains**: [Link](https://fr.hespress.com/486676-travaux-ferroviaires-loncf-revoit-temporairement-la-circulation-de-plusieurs-trains.html)
+
+
+### keffe d (N/A, Tue, 1 Sep 2026 08:30:00 -0700)
+
+- **Jury convicts Duane ‘Keffe D’ Davis of first-degree murder in orchestrating killing of Tupac Shakur**: [Link](https://apnews.com/live/tupac-murder-trial-duane-davis-08-31-2026)
+- **Duane "Keffe D" Davis found guilty of 1996 murder of rapper Tupac Shakur**: [Link](https://www.bbc.com/news/articles/c24j5192j7jo)
+- **Why It Took 30 Years to Convict Tupac’s Killer**: [Link](https://emeraldbook.org/news/sep-0126/)
+
+
+### تأشيرة (N/A, Tue, 1 Sep 2026 08:00:00 -0700)
+
+- **FM reviews progress on digital consular services platform for Egyptians abroad**: [Link](https://sis.gov.eg/en/media-center/news/fm-reviews-progress-on-digital-consular-services-platform-for-egyptians-abroad/)
+- **Egypt: Could visa fees rise by $15 starting in 2027?**: [Link](https://visasnews.com/en/egypt-could-visa-fees-rise-by-15-starting-in-2027/)
+- **Foreign Ministry announces no increase in consular fees for Egyptians abroad**: [Link](https://www.egyptindependent.com/foreign-ministry-announces-no-increase-in-consular-fees-for-egyptians-abroad/)
+
+
+### وزارة التربية والتعليم (N/A, Tue, 1 Sep 2026 06:40:00 -0700)
+
+- **وزير الصحة يترأس اجتماع مجلس إدارة الهيئة العامة للتأمين الصحى لمناقشة ملفات التعاون وتطوير الخدمات الطبية**: [Link](https://www.nile.eg/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D9%8A%D8%AA%D8%B1%D8%A3%D8%B3-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D9%85%D8%AC%D9%84%D8%B3-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%87-4)
+- **وزيرا التعليم والصحة يبحثان تطوير منظومة مدارس التمريض**: [Link](https://www.almasryalyoum.com/news/details/4350514)
+- **"الصحة" تتلقى عرضًا لتطوير وتشغيل مستشفى هليوبوليس الجديدة**: [Link](https://www.alborsaanews.com/2026/09/01/1989700)
+
+
+### لويس إنريكي (N/A, Tue, 1 Sep 2026 06:30:00 -0700)
+
+- **"عليه أن يستفيق".. صفقة باريس الصيفية تثير قلق إنريكي مبكرا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%84%D9%8A%D9%87-%D8%A7%D9%94%D9%86-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D9%82--%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%A7%D9%84%D8%B5%D9%8A%D9%81%D9%8A%D8%A9-%D8%AA%D8%AB%D9%8A%D8%B1-%D9%82%D9%84%D9%82-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%85%D8%A8%D9%83%D8%B1%D8%A7/blt6184ca8ad6523e80)
+- **لوكا ديني يواجه بداية صعبة في تجربته الثانية مع بي اس جي**: [Link](https://www.elsport.com/news/show/837884/%D9%84%D9%88%D9%83%D8%A7-%D8%AF%D9%8A%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B5%D8%B9%D8%A8%D8%A9-%D8%AA%D8%AC%D8%B1%D8%A8%D8%AA%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9)
+- **باريس سان جيرمان يُبدي قلقه من بداية لوكاس دينييه مع الفريق**: [Link](https://twaslnews1.twaslnews.com/4525543/)
+
+
+### نبيل باها (N/A, Tue, 1 Sep 2026 02:10:00 -0700)
+
+- **7 معلومات عن المغربية ميساء باها لاعبة برشلونة.. «انضمت على طريقة حمزة عبد الكريم»**: [Link](https://www.elwatannews.com/news/details/8349835)
+- **بنت باها تكتب التاريخ مع برشلونة**: [Link](https://inews.ma/news/8625030)
+- **"بنت باها"تكتب التاريخ مع برشلونة**: [Link](https://www.almountakhab.com/node/16229974)
+
+
 ### resultat quinte (N/A, Tue, 1 Sep 2026 05:20:00 -0700)
 
 - **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 6 Shapesmith**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-6-shapesmith-130425.html)
