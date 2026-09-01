@@ -1,3 +1,66 @@
+### قيس سعيد (N/A, Tue, 1 Sep 2026 13:10:00 -0700)
+
+- **"الإنسانية تدخل مرحلة جديدة" تصريح لسعيد يثير موجة من التندر في تونس**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A5%D9%86%D8%B3%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%84%D8%B3%D8%B9/)
+- **ألمانيا تتجه إلى الجزائر لتأمين عقود غاز طويلة الأجل قبل الشتاء**: [Link](https://www.aljazeera.net/ebusiness/2026/9/2/%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AA%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%84%D8%AA%D8%A3%D9%85%D9%8A%D9%86-%D8%B9%D9%82%D9%88%D8%AF)
+- **100 مليون يورو من ألمانيا إلى تونس لتمويل مشاريع اقتصادية**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/100-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%85%D9%86-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A5%D9%84%D9%89-%D8%AA%D9%88%D9%86%D8%B3-%D9%84%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%8A%D8%B9-%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A%D8%A9-/4043202)
+
+
+### حركة حماس (N/A, Tue, 1 Sep 2026 13:10:00 -0700)
+
+- **اعتقال قيادي بحماس وقتلى إسرائيليون.. ماذا جرى في غزة؟**: [Link](https://www.skynewsarabia.com/middle-east/1889361-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D9%82%D9%8A%D8%A7%D8%AF%D9%8A-%D8%A8%D8%AD%D9%85%D8%A7%D8%B3-%D9%88%D9%82%D8%AA%D9%84%D9%89-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D9%88%D9%86-%D8%AC%D8%B1%D9%89-%D8%BA%D8%B2%D8%A9)
+- **أمن المقاومة يؤكد إحباط "عمل عدائي كبير" في غزة.. وحماس تعلق**: [Link](https://arabi21.com/story/1785744/%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%85%D8%A9-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A5%D8%AD%D8%A8%D8%A7%D8%B7-%D8%B9%D9%85%D9%84-%D8%B9%D8%AF%D8%A7%D8%A6%D9%8A-%D9%83%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D9%88%D8%AD%D9%85%D8%A7%D8%B3-%D8%AA%D8%B9%D9%84%D9%82)
+- **داخلية غزة: إسرائيل اختطفت الضابط معين العرابيد خلال مهامه المعتادة**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%BA%D8%B2%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A7%D8%AE%D8%AA%D8%B7%D9%81%D8%AA-%D8%A7%D9%84%D8%B6%D8%A7%D8%A8%D8%B7-%D9%85%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D8%A8%D9%8A%D8%AF-%D8%AE%D9%84%D8%A7%D9%84-%D9%85%D9%87%D8%A7%D9%85%D9%87-%D8%A7%D9%84%D9%85%D8%B9%D8%AA%D8%A7%D8%AF%D8%A9-/4044472)
+
+
+### thaïlande (N/A, Tue, 1 Sep 2026 13:10:00 -0700)
+
+- **Thaïlande : fin de l’exemption de visa pour les Marocains dès le 15 septembre**: [Link](https://lematin.ma/societe/thailandefin-de-lexemption-de-visa-pour-les-marocains-des-le-15-septembre/362996)
+- **Thaïlande: séjours sans visa réduits à 30 jours pour les voyageurs de l’UE**: [Link](https://fr.euronews.com/voyages/2026/09/01/thailande-sejours-sans-visa-reduits-a-30-jours-pour-les-voyageurs-de-lue)
+- **La Thaïlande en a marre des touristes à problèmes et veut désormais pouvoir les expulser rapidement**: [Link](https://partir.ouest-france.fr/magazine/la-thailande-en-a-marre-des-touristes-a-problemes-et-veut-desormais-les-expulser/)
+
+
+### al hilal (N/A, Tue, 1 Sep 2026 13:10:00 -0700)
+
+- **Al-Hilal Saudi FC vs Al-Ahli Jeddah – Prediction, Where to Watch, Kick-off Time and Lineups 01-09**: [Link](https://oddsscanner.com/predictions/football/al-hilal-saudi-fc-x-al-ahli-jeddah-01-09-2026)
+- **Surprise decision: Inzaghi settles Watkins' status for the Al-Ahly clásico**: [Link](https://www.goal.com/en/news/a-surprise-decision-inzaghi-settles-watkins-situation-for-the-al-ahli-clasico/bltcc9b7302f9241b49)
+- **Al Ahli reshuffle ahead of Al Hilal showdown after Al Kholood setback**: [Link](https://africasoccer.com/al-ahli-reshuffle-ahead-of-al-hilal-showdown-after-al-kholood-setback/)
+
+
+### خوليان ألفاريز (N/A, Tue, 1 Sep 2026 13:00:00 -0700)
+
+- **جوليان ألفاريز يبلغ أتلتيكو مدريد بقراره النهائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%88%D9%84%D9%8A%D8%A7%D9%86-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D9%8A%D8%A8%D9%84%D8%BA-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1%D9%87-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A/bltfbd9ca33264219f2)
+- **طبيب الأرجنتين يحذّر أتلتيكو مدريد من تداعيات أزمة ألفاريز النفسية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B7%D8%A8%D9%8A%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%8A%D8%AD%D8%B0%D8%B1-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D8%AA%D8%AF%D8%A7%D8%B9%D9%8A%D8%A7%D8%AA-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A3%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D8%A7%D9%84%D9%86%D9%81%D8%B3%D9%8A%D8%A9/24680)
+- **بعد حسم التعاقد مع جيسوس .. موقف برشلونة من ضم ألفاريز**: [Link](https://www.btolat.com/news/408941)
+
+
+### météo pour demain (N/A, Tue, 1 Sep 2026 13:00:00 -0700)
+
+- **Ce dimanche en France : une météo déjà plus sèche et chaude ? Voici les prévisions**: [Link](https://www.tameteo.com/actualites/previsions/ce-dimanche-en-france-une-meteo-deja-plus-seche-et-chaude-voici-les-previsions-intemperies.html)
+- **Météo : un temps plus calme ce week-end avec une nouvelle perturbation sur le nord du pays**: [Link](https://meteofrance.com/actualites/meteo-un-temps-plus-calme-ce-week-end-avec-une-nouvelle-perturbation-sur-le-nord-du-pays)
+- **Quelques averses dans le centre du pays alors que le soleil persiste dans le Sud, avec des températures comprises entre 21°C et 33°C... La météo de ce 30 août**: [Link](https://www.bfmtv.com/meteo/video-quelques-averses-dans-le-centre-du-pays-alors-que-le-soleil-persiste-dans-le-sud-avec-des-temperatures-comprises-entre-21-c-et-33-c-la-meteo-de-ce-30-aout_VN-202608300078.html)
+
+
+### عاصفة رعدية (N/A, Tue, 1 Sep 2026 12:50:00 -0700)
+
+- **تحذير من خطر الفيضانات المفاجئة والانهيارات الأرضية على نطاق واسع في كوانغ تري في 1 سبتمبر 2026.**: [Link](https://www.vietnam.vn/ar/canh-bao-nguy-co-xuat-hien-lu-quet-va-sat-lo-dat-tren-dien-rong-tai-quang-tri-ngay-01-09-2026)
+- **ما هي المناطق التي ستشهد أشد العواصف الرعدية بدءاً من الليلة؟**: [Link](https://www.vietnam.vn/ar/nhung-khu-vuc-nao-mua-dong-manh-nhat-tu-dem-nay)
+- **تستجيب اثنتا عشرة مقاطعة ومدينة بشكل عاجل للأمطار الغزيرة التي تسبق عطلة الثاني من سبتمبر.**: [Link](https://www.vietnam.vn/ar/12-tinh-thanh-khan-truong-ung-pho-voi-dot-mua-lon-truoc-ngay-le-2-9)
+
+
+### west ham – wolves (N/A, Tue, 1 Sep 2026 12:40:00 -0700)
+
+- **West Ham fight off Wolves as Divine Mukasa double eases pressure on Nuno**: [Link](https://www.theguardian.com/football/2026/sep/01/west-ham-wolves-championship-match-report)
+- **Bowen | We will need to be more clinical in both penalty areas**: [Link](https://www.whufc.com/en/news/bowen-or-we-will-need-to-be-more-clinical-in-both-penalty-areas)
+- **BOYLE Sports Sign Up Offer: Bet £10, Get £30 on West Ham v Wolves, Plus 50% Bet Builder Boost**: [Link](https://www.oddschecker.com/insight/football/20260901-boyle-sports-sign-up-offer-bet-10-get-30-on-west-ham-v-wolves-plus-50-bet-builder-boost)
+
+
+### azzedine ounahi (N/A, Tue, 1 Sep 2026 11:40:00 -0700)
+
+- **Le Panathinaikos va dépenser une fortune pour récupérer Azzedine Ounahi**: [Link](https://www.footmercato.net/a8131693027736575618-accord-verbal-panathinaikos-girona-pour-azzedine-ounahi)
+- **OM : un joli chèque à venir grâce à Ounahi**: [Link](https://m.maxifoot.fr/om/un-joli-cheque-a-venir-grace-a-ounahi-foot-463086.htm)
+- **Mercato : mais où va atterrir Azzedine Ounahi ?**: [Link](https://www.lesiteinfo.com/sport/680909-mercato-mais-ou-va-atterrir-azzedine-ounahi.html)
+
+
 ### carburant (N/A, Tue, 1 Sep 2026 12:20:00 -0700)
 
 - **Carburant : légère hausse du gasoil ce 1er septembre au Maroc**: [Link](https://medias24.com/2026/09/01/carburant-legere-hausse-du-gasoil-ce-1er-septembre-au-maroc-1746023/)
