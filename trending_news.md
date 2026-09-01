@@ -1,3 +1,31 @@
+### resultat quinte (N/A, Tue, 1 Sep 2026 05:20:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 6 Shapesmith**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-6-shapesmith-130425.html)
+- **Course du pari Quinté+® : nouveaux horaires d’hiver**: [Link](https://www.pmu.fr/point-de-vente/cote-courses/course-du-pari-quinte-nouveaux-horaires-hiver-promo-off/)
+- **Les pronostics des experts pour la réunion 1 à DEAUVILLE-LA TOUQUES ce mardi 1er septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-deauville-la-touques-ce-mardi-1er-septembre)
+
+
+### incendies algérie (N/A, Tue, 1 Sep 2026 02:50:00 -0700)
+
+- **Incendies en Algérie : face au désastre, le pouvoir cherche des coupables plutôt que des solutions**: [Link](https://www.marianne.net/monde/afrique/incendies-en-algerie-face-au-desastre-le-pouvoir-cherche-des-coupables-plutot-que-des-solutions)
+- **L’Aïnouche du jour. Victimes des feux de forêt en Algérie: l’anonymat comme dernier hommage**: [Link](https://fr.le360.ma/medias/lainouche-du-jour-victimes-des-feux-de-foret-en-algerie-lanonymat-comme-dernier-hommage_APR3QQ3ZZ5AYFBVOZGH3T6NYBU/)
+- **Incendies en Algérie : Emmanuel Macron apporte son soutien ; le président algérien veut faire appliquer la peine de mort pour les pyromanes**: [Link](https://www.lemonde.fr/afrique/article/2026/08/31/incendies-en-algerie-emmanuel-macron-apporte-son-soutien-le-president-algerien-veut-faire-appliquer-la-peine-de-mort-contre-les-pyromanes_6762312_3212.html)
+
+
+### محاكم (N/A, Tue, 1 Sep 2026 02:00:00 -0700)
+
+- **رئاسة النيابة العامة تدعو كافة النيابات العامة لدى محاكم الاستئناف والمحاكم الابتدائية إلى التعبئة لضمان نزاهة الاستحقاقات الانتخابية المقبلة**: [Link](https://www.maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D9%83%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D8%AF%D9%89-%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D9%88%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9)
+- **رئاسة النيابة العامة تدعو إلى الحزم في مواجهة المخالفات الانتخابية**: [Link](https://www.ahdath.info/%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%AA%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D8%B2%D9%85-%D9%81%D9%8A/)
+- **ملاحظو الانتخابات يواكبون "مرحلة ما قبل الحملة" لرصد الأموال والترحال**: [Link](https://www.hespress.com/%D9%85%D9%84%D8%A7%D8%AD%D8%B8%D9%88-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D9%8A%D9%88%D8%A7%D9%83%D8%A8%D9%88%D9%86-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D9%85%D8%A7-%D9%82%D8%A8-1799339.html)
+
+
+### الشاب خالد (N/A, Tue, 1 Sep 2026 01:20:00 -0700)
+
+- **الشاب خالد في مرمى الانتقادات بسبب حفل في المغرب- (فيديو)**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B4%D8%A7%D8%A8-%D8%AE%D8%A7%D9%84%D8%AF-%D9%81%D9%8A-%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AD%D9%81%D9%84/)
+- **الشاب خالد يواجه انتقادات بسبب حفله في باريس**: [Link](https://attasiaa.com/%D8%A7%D9%84%D8%B4%D8%A7%D8%A8-%D8%AE%D8%A7%D9%84%D8%AF-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AD%D9%81%D9%84%D9%87-%D9%81%D9%8A/)
+- **"بلادك تحترق وأنت تقيم الحفلات".. الشاب خالد يواجه انتقادات واسعة**: [Link](https://www.aljazeera.net/arts/2026/8/30/%D8%A8%D9%84%D8%A7%D8%AF%D9%83-%D8%AA%D8%AD%D8%AA%D8%B1%D9%82-%D9%88%D8%A3%D9%86%D8%AA-%D8%AA%D9%82%D9%8A%D9%85-%D8%A7%D9%84%D8%AD%D9%81%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%A7%D8%A8)
+
+
 ### apple iphone 18 pro max (N/A, Mon, 31 Aug 2026 19:50:00 -0700)
 
 - **iPhone 18 Pro pre-orders might start later than usual this year**: [Link](https://www.macworld.com/article/3222711/iphone-18-pro-pre-orders-later-than-usual.html)
