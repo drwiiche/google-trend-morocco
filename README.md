@@ -1,3 +1,31 @@
+### apple iphone 18 pro max (N/A, Mon, 31 Aug 2026 19:50:00 -0700)
+
+- **iPhone 18 Pro pre-orders might start later than usual this year**: [Link](https://www.macworld.com/article/3222711/iphone-18-pro-pre-orders-later-than-usual.html)
+- **Apple’s Foldable iPhone Will Help Bring Some Magic Back**: [Link](https://www.bloomberg.com/news/newsletters/2026-08-23/apple-s-foldable-iphone-details-retail-store-changes-for-new-home-products-mt5vjf61)
+- **2024 Apple Fall Event: The Most Anticipated Must-Watch Keynote in Recent Years**: [Link](https://eu.36kr.com/en/p/3964160810573315)
+
+
+### drone (N/A, Mon, 31 Aug 2026 16:40:00 -0700)
+
+- **Nine killed, over a dozen injured as Russia strikes Kyiv region for sixth successive day**: [Link](https://www.reuters.com/world/europe/explosions-heard-ukraines-kyiv-four-people-injured-2026-09-01/)
+- **‘Everything’s smashed to bits’: Ukrainians turn anger on those storing weapons near their villages**: [Link](https://www.theguardian.com/world/2026/aug/31/ukraine-anger-weapons-storage-russian-bombing-myla)
+- **'Massive' Russian missile and drone attack on Kyiv kills eight**: [Link](https://www.euronews.com/my-europe/2026/09/01/at-least-four-people-killed-as-russia-launches-nighttime-ballistic-missile-attacks-targeti)
+
+
+### لعبة جهنم (N/A, Mon, 31 Aug 2026 16:20:00 -0700)
+
+- **قبل العرض الرسمي.. كل ما تريد معرفته عن حكاية «ما لم يُحكَ عن بني مزار»**: [Link](https://www.alkhaleej.ae/2026-09-01/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%83%D9%84-%D9%85%D8%A7-%D8%AA%D8%B1%D9%8A%D8%AF-%D9%85%D8%B9%D8%B1%D9%81%D8%AA%D9%87-%D8%B9%D9%86-%D8%AD%D9%83%D8%A7%D9%8A%D8%A9-%D9%85%D8%A7-%D9%84%D9%85-%D9%8A%D8%AD%D9%83-%D8%B9%D9%86-%D8%A8%D9%86%D9%8A-%D9%85%D8%B2%D8%A7%D8%B1)
+- **ترقب لعرض "لعبة جهنم" أولى حكايات مسلسل "القصة الكاملة..دراما"**: [Link](https://arabic.cnn.com/entertainment/article/2026/08/27/anticipation-is-high-for-the-premiere-of-the-full-story-drama-series)
+- **محمد فراج يكشف كواليس تجسيد شخصية الشيخ علاء في ''لعبة جهنم''**: [Link](https://www.lahamag.com/article/240505-%D9%85%D8%AD%D9%85%D8%AF-%D9%81%D8%B1%D8%A7%D8%AC-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%AA%D8%AC%D8%B3%D9%8A%D8%AF-%D8%B4%D8%AE%D8%B5%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%B9%D9%84%D8%A7%D8%A1-%D9%81%D9%8A-%D9%84%D8%B9%D8%A8%D8%A9-%D8%AC%D9%87%D9%86%D9%85)
+
+
+### classement fc barcelone – rayo vallecano de madrid (N/A, Mon, 31 Aug 2026 14:50:00 -0700)
+
+- **Barcelona 5-2 Rayo (Aug 31, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401882903)
+- **Barcelona talent Marc Bernal responds to Rodri competition after impressive Rayo Vallecano display: ‘Good and healthy’**: [Link](https://sports.yahoo.com/articles/barcelona-talent-marc-bernal-responds-064000036.html)
+- **Raphinha and Lamine doubles lift Barcelona past Rayo Vallecano**: [Link](https://www.reuters.com/sports/soccer/raphinha-lamine-doubles-lift-barcelona-past-rayo-vallecano-2026-08-31/)
+
+
 ### prix carburant maroc (N/A, Mon, 31 Aug 2026 17:10:00 -0700)
 
 - **Gasoil à 15 dirhams: les rouages d’un prix à la pompe sous haute tension**: [Link](https://fr.le360.ma/economie/gasoil-a-15-dirhams-les-rouages-dun-prix-a-la-pompe-sous-haute-tension_7Z7XVMKVUJEMNAG5F7FH5HJWXA/)
