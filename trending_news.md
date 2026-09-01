@@ -1,3 +1,66 @@
+### carburant (N/A, Tue, 1 Sep 2026 12:20:00 -0700)
+
+- **Carburant : légère hausse du gasoil ce 1er septembre au Maroc**: [Link](https://medias24.com/2026/09/01/carburant-legere-hausse-du-gasoil-ce-1er-septembre-au-maroc-1746023/)
+- **Carburants: phénomène rare, le gasoil flirte avec les 15 dirhams et devient plus cher que l’essence**: [Link](https://fr.le360.ma/economie/carburants-phenomene-rare-le-gasoil-flirte-avec-les-15-dirhams-et-devient-plus-cher-que-lessence_CIGU7ZNTDZD2RIOMH5Z3GPGLME/)
+- **Carburants: nouvelle hausse du gasoil ce 1er septembre, l’essence épargnée**: [Link](https://h24info.ma/economie/carburants-nouvelle-hausse-du-gasoil-ce-1er-septembre-lessence-epargnee/)
+
+
+### موجة حر (N/A, Tue, 1 Sep 2026 12:20:00 -0700)
+
+- **موجة حر من الثلاثاء إلى الجمعة (نشرة إنذارية)**: [Link](https://assabah.ma/946994.html)
+- **موجة حر تضرب عددا من مناطق المملكة ودرجات الحرارة تصل إلى 45 درجة**: [Link](https://www.ahdath.info/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B9%D8%AF%D8%AF%D8%A7-%D9%85%D9%86-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D9%88%D8%AF%D8%B1%D8%AC/)
+- **يوعابد لـ 2M.ma: ارتفاع مرتقب في درجات الحرارة الأربعاء والخميس بعدد من مناطق المملكة**: [Link](https://2m.ma/ar/news/%D9%8A%D9%88%D8%B9%D8%A7%D8%A8%D8%AF-%D9%84%D9%80-2M-ma-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-20260831)
+
+
+### خبر (N/A, Tue, 1 Sep 2026 11:30:00 -0700)
+
+- **عبر الخريطة التفاعلية.. تفاصيل الاستهدافات الأمريكية الجديدة جنوب إيران**: [Link](https://www.aljazeera.net/video/2026/9/1/%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B9%D9%84%D9%8A%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
+- **الجيش الأمريكي يضرب أهدافا في إيران**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A3%D9%87%D8%AF%D8%A7%D9%81%D8%A7-%D9%81%D9%8A-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-1800429.html)
+- **حروب ترامب: هل جاء دور الذكاء الاصطناعي؟**: [Link](https://www.alquds.co.uk/%D8%AD%D8%B1%D9%88%D8%A8-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%87%D9%84-%D8%AC%D8%A7%D8%A1-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A/)
+
+
+### الهلال ضد الأهلي (N/A, Tue, 1 Sep 2026 11:00:00 -0700)
+
+- **من الملعب إلى المدرجات.. قروش الهلال تبتلع الأهلي في نصف شوط**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA--%D9%82%D8%B1%D9%88%D8%B4-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%AA%D8%A8%D8%AA%D9%84%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D8%B4%D9%88%D8%B7/blteea61c6cd848a6e2)
+- **مباشر مباراة الهلال ضد الأهلي في كلاسيكو الدوري السعودي لكرة القدم.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/1/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **قمة الهلال والأهلي "تعذب" بونو وميندي**: [Link](https://www.alarabiya.net/sport/2026/08/31/%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A7%D9%87%D9%84%D9%8A-%D8%AA%D8%B9%D8%B0%D8%A8-%D8%A8%D9%88%D9%86%D9%88-%D9%88%D9%85%D9%8A%D9%86%D8%AF%D9%8A)
+
+
+### al-hilal – al-ahli saudi (N/A, Tue, 1 Sep 2026 10:20:00 -0700)
+
+- **Before the clash with Al-Hilal: Al-Ahli snatch a domestic deal from the jaws of Al-Nassr**: [Link](https://www.goal.com/en/news/before-the-clash-with-al-hilal-al-ahli-snatches-a-domestic-signing-from-the-jaws-of-al-nassr/blte2a90adb977e1840)
+- **Watkins faces Toney clash as strikers push for Saudi supremacy and Tuchel’s attention**: [Link](https://www.theguardian.com/football/2026/aug/31/ollie-watkins-ivan-toney-saudi-arabia-thomas-tuchel-england)
+- **Today's match schedule and broadcast channels: Al-Hilal faces Al-Ahly, and 3 matches in the Egyptian League**: [Link](https://www.voiceofemirates.com/en/sport/2026/09/01/todays-match-schedule-and-broadcast-channels-al-hilal-faces-al-ahly-and-3-matches-in-the-egyptian-league/)
+
+
+### عز الدين أوناحي (N/A, Tue, 1 Sep 2026 10:10:00 -0700)
+
+- **الأعلى في الفريق.. راتب قياسي يقرب أوناحي من ناديه الجديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D8%B9%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82--%D8%B1%D8%A7%D8%AA%D8%A8-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%8A%D9%82%D8%B1%D8%A8-%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%85%D9%86-%D9%86%D8%A7%D8%AF%D9%8A%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/blt49776c9a4a72c947)
+- **أوناحي يقترب من باناثينايكوس.. ومارسيليا يترقب ستة ملايين يورو!**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A8%D8%A7%D9%86%D8%A7%D8%AB%D9%8A%D9%86%D8%A7%D9%8A%D9%83%D9%88%D8%B3-%D9%88%D9%85%D8%A7%D8%B1%D8%B3%D9%8A%D9%84%D9%8A%D8%A7-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%B3%D8%AA%D8%A9-%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D9%8A%D9%88%D8%B1%D9%88/24783)
+- **نهاية الميركاتو تضيق الخناق على أوناحي**: [Link](https://ar.lesiteinfo.com/sport/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88-%D8%AA%D8%B6%D9%8A%D9%82-%D8%A7%D9%84%D8%AE%D9%86%D8%A7%D9%82-%D8%B9%D9%84%D9%89-%D8%A3%D9%88%D9%86%D8%A7%D8%AD-1018103.html)
+
+
+### chaleur (N/A, Tue, 1 Sep 2026 10:10:00 -0700)
+
+- **Hausse des températures en fin de semaine : risque-t-on une nouvelle vague de chaleur ?**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-08-31/hausse-des-temperatures-en-fin-de-semaine-risque-t-on-une-nouvelle-vague-de-chaleur-91839)
+- **Un nouvel épisode de chaleur « remarquable » attendu à partir de mercredi dans le sud de la France**: [Link](https://www.lemonde.fr/planete/article/2026/09/01/un-nouvel-episode-de-chaleur-remarquable-attendu-a-partir-de-mercredi-dans-le-sud-de-la-france_6763098_3244.html)
+- **Météo : retour du soleil et de la chaleur au fil de la semaine**: [Link](https://meteofrance.com/actualites/meteo-retour-du-soleil-et-de-la-chaleur-au-fil-de-la-semaine)
+
+
+### غزة (N/A, Tue, 1 Sep 2026 10:10:00 -0700)
+
+- **سلسلة هجمات جوية إسرائيلية تستهدف المنطقة الغربية لمدينة غزة**: [Link](https://www.aljazeera.net/video/2026/9/1/%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81)
+- **فيديو. غارات إسرائيلية تقتل ما لا يقل عن 5 فلسطينيين في مدينة غزة**: [Link](https://arabic.euronews.com/video/2026/09/01/israeli-airstrikes-have-killed-at-least-five-palestinians-in-gaza-city)
+- **تسلل للاحتلال في غزة... رسائل عودة العمليات الإسرائيلية الخاصة**: [Link](https://www.alaraby.co.uk/politics/%D8%AA%D8%B3%D9%84%D9%84-%D9%84%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%BA%D8%B2%D8%A9-%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5%D8%A9)
+
+
+### tanger (N/A, Tue, 1 Sep 2026 10:00:00 -0700)
+
+- **La 26e édition du Festival national du film de Tanger reportée à mars prochain**: [Link](https://telquel.ma/instant-t/2026/09/01/la-26e-edition-du-festival-national-du-film-de-tanger-reportee-a-mars-prochain_2005075/)
+- **Le Festival de Tanger bouleverse son calendrier pour s’offrir un nouveau rayonnement**: [Link](https://www.laverite.ma/le-festival-de-tanger-bouleverse-son-calendrier-pour-soffrir-un-nouveau-rayonnement/)
+- **Festival national du film de Tanger : la 26e édition reportée à mars 2027**: [Link](https://quid.ma/a-la-une/festival-national-du-film-de-tanger-la-e-edition-reportee-a-mars)
+
+
 ### oncf (N/A, Tue, 1 Sep 2026 09:30:00 -0700)
 
 - **ONCF : des perturbations du trafic prévues à partir du 5 septembre**: [Link](https://ledesk.ma/encontinu/oncf-des-perturbations-du-trafic-prevues-a-partir-du-5-septembre/)
