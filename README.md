@@ -1,3 +1,73 @@
+### resultat quinte (N/A, Wed, 2 Sep 2026 05:10:00 -0700)
+
+- **Galord, l’outsider séduisant du Quinté+ de ce mardi 1er septembre**: [Link](https://www.equidia.fr/articles/actualite/galord-loutsider-seduisant-du-quinte-de-ce-mardi-1er-septembre)
+- **Quinté Plus PMU : Félix aux Ormes nous plaît bien**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-felix-aux-ormes-nous-plait-bien-130432.html)
+- **Quinté du mardi 1er septembre 2026 à Deauville : les pronostics**: [Link](https://www.rtl.fr/sport/autres-sports/quinte-du-mardi-1er-septembre-2026-a-deauville-les-pronostics-7900666998)
+
+
+### john ternus (N/A, Wed, 2 Sep 2026 04:20:00 -0700)
+
+- **Apple CEO Tim Cook gives nod to founder Steve Jobs in final memo**: [Link](https://en.hespress.com/144685-apple-ceo-tim-cook-gives-nod-to-founder-steve-jobs-in-final-memo.html)
+- **Apple’s Cook Says He ‘Will Miss This Work’ in Final Memo as CEO**: [Link](https://www.bloomberg.com/news/articles/2026-08-31/apple-s-cook-says-he-will-miss-this-work-as-he-leaves-ceo-role)
+- **Cook hands Apple to Ternus: bigger and richer, but catching up in AI race**: [Link](https://www.reuters.com/legal/transactional/cook-hands-apple-ternus-bigger-richer-catching-up-ai-race-2026-09-01/)
+
+
+### neil el aynaoui (N/A, Wed, 2 Sep 2026 04:20:00 -0700)
+
+- **Football : L’international marocain Neil El Aynaoui rejoint le RB Leipzig**: [Link](https://mobile.telquel.ma/instant-t/2026/09/02/football-linternational-marocain-neil-el-aynaoui-rejoint-le-rb-leipzig_2005157/)
+- **Le transfert de Neil El Aynaoui à Leipzig menacé de capoter**: [Link](https://fr.hespress.com/486691-le-transfert-de-neil-el-aynaoui-a-leipzig-menace-de-capoter.html)
+- **Neil El Aynaoui vers Leipzig: Gasperini explique les raisons de son départ**: [Link](https://sport.le360.ma/football/serie-a/neil-el-aynaoui-vers-leipzig-gasperini-explique-les-raisons-de-son-depart_Q6CBMMRUM5A3BNGPWVKAHGQAY4/)
+
+
+### impôt (N/A, Wed, 2 Sep 2026 03:50:00 -0700)
+
+- **Législatives 2026 : le PAM dévoile son programme électoral**: [Link](https://medias24.com/2026/09/01/le-pam-devoile-son-programme-electoral-1746801/)
+- **Législatives 2026 : entre bilan assumé et volonté de rupture, le PAM présente son programme**: [Link](https://ledesk.ma/2026/09/01/legislatives-2026-entre-bilan-assume-et-volonte-de-rupture-le-pam-presente-son-programme/)
+- **Législatives 2026: le PAM présente un programme électoral de 20 engagements pour 350 milliards de dirhams**: [Link](https://fr.le360.ma/politique/legislatives-2026-le-pam-presente-un-programme-electoral-de-20-engagements-pour-350-milliards-de_6X35BVEOVJDSXPORDJWQEC75MA/)
+
+
+### منى زكي (N/A, Wed, 2 Sep 2026 02:30:00 -0700)
+
+- **صفقة بـ5 ملايين جنيه تنتهي بالحجز على أموال منى زكي**: [Link](https://www.aljazeera.net/arts/2026/9/1/%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D9%805-%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86-%D8%AC%D9%86%D9%8A%D9%87-%D8%AA%D9%86%D8%AA%D9%87%D9%8A-%D8%A8%D8%A7%D9%84%D8%AD%D8%AC%D8%B2-%D8%B9%D9%84%D9%89)
+- **منى زكي في ورطة قضائية : الحجز على أموالها في 3 بنوك**: [Link](https://lallafatema.ma/%D9%85%D9%86%D9%89-%D8%B2%D9%83%D9%8A/)
+- **في ثلاثة بنوك.. ما حقيقة الحجز على أموال منى زكي؟**: [Link](https://www.lebanon24.com/news/women/1567138/%D9%81%D9%8A-%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A8%D9%86%D9%88%D9%83-%D9%85%D8%A7-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%AD%D8%AC%D8%B2-%D8%B9%D9%84%D9%89-%D8%A3%D9%85%D9%88%D8%A7%D9%84-%D9%85%D9%86%D9%89-%D8%B2%D9%83%D9%8A%D8%9F)
+
+
+### what is a heat index (N/A, Wed, 2 Sep 2026 02:30:00 -0700)
+
+- **Chicago weather today: Heat index over 100 forecast for Chicago area again Wednesday**: [Link](https://abc7chicago.com/post/chicago-weather-today-heat-index-100-forecast-area-wednesday/19779071/)
+- **No relief from the heat as September kicks off. Is this normal?**: [Link](https://chicago.suntimes.com/weather/2026/09/01/september-october-chicago-heat-wave-is-this-normal)
+- **Chicago records its hottest start to September in more than 4 decades**: [Link](https://wgntv.com/weather/chicago-records-hottest-start-september-four-decades/)
+
+
+### نيل العيناوي (N/A, Wed, 2 Sep 2026 02:20:00 -0700)
+
+- **انقلاب مفاجئ.. صفقة العيناوي إلى لايبزيج على وشك الانهيار**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94--%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%AC-%D8%B9%D9%84%D9%89-%D9%88%D8%B4%D9%83-%D8%A7%D9%84%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1/blt4c05c017fab40df2)
+- **العيناوي ينضم رسميا إلى لايبزيغ الألماني لموسم واحد بنظام الإعارة**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%8A%D9%86%D8%B6%D9%85-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A5%D9%84%D9%89-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%BA-%D8%A7%D9%84%D8%A3%D9%84%D9%85/)
+- **الأسود يتصدرون عناوين “الميركاتو”**: [Link](https://assabah.ma/946517.html)
+
+
+### rima hassan (N/A, Wed, 2 Sep 2026 02:10:00 -0700)
+
+- **Apologie du terrorisme : Rima Hassan défendue par cinq rapporteurs spéciaux de l’ONU**: [Link](https://www.lemonde.fr/societe/article/2026/08/31/apologie-du-terrorisme-cinq-rapporteurs-speciaux-de-l-onu-prennent-la-defense-de-rima-hassan_6762854_3224.html)
+- **5 experts de l’ONU interpellent la France sur le harcèlement judiciaire et politique visant Rima Hassan**: [Link](https://agencemediapalestine.fr/blog/2026/09/01/5-experts-de-lonu-interpellent-la-france-sur-le-harcelement-judiciaire-et-politique-visant-rima-hassan/)
+- **Pourquoi Macron reconnaît la Palestine et persécute Rima Hassan**: [Link](https://www.lecourrierdesstrateges.fr/pourquoi-macron-reconnait-la-palestine-et-persecute-rima-hassan/)
+
+
+### zeturf (N/A, Wed, 2 Sep 2026 01:30:00 -0700)
+
+- **Les pronos hippiques du mercredi 3 septembre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-3-septembre-2026_AN-202609010422.html)
+- **Quinté du mercredi 2 septembre à La Capelle : « Une position stratégique », Matthieu Verva retrouve le Nord et compte sur Jalimède**: [Link](https://www.leparisien.fr/sports/hippisme/quinte-du-mercredi-2-septembre-a-la-capelle-matthieu-verva-retrouve-le-nord-et-compte-sur-jalimede-01-09-2026-TFLNMYUFINCZ7ATNGIQARIG43U.php)
+- **Horizon d'Eymy, l'outsider séduisant du Quinté+ de ce mercredi 2 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/horizon-deymy-loutsider-seduisant-du-quinte-de-ce-mercredi-2-septembre)
+
+
+### cryptocurrency trading (N/A, Tue, 1 Sep 2026 21:10:00 -0700)
+
+- **Sberbank plans to add ether and USDT as collateral for crypto-backed loans: Report**: [Link](https://www.coindesk.com/business/2026/08/31/sberbank-plans-to-add-ether-and-usdt-as-collateral-for-crypto-backed-loans)
+- **Russia enters the era of cryptocurrency regulation with a new law**: [Link](https://www.arabictrader.com/en/news/cryptocurrencies/227998/russia-enters-the-era-of-cryptocurrency-regulation-with-a-new-law)
+- **Best Crypto Presale to Buy as Russia’s Biggest Bank Lends Against Bitcoin and BTC Eyes $109,000**: [Link](https://blockchainreporter.net/best-crypto-presale-to-buy-as-russias-biggest-bank-lends-against-bitcoin-and-btc-eyes-109000/)
+
+
 ### taha majni (N/A, Tue, 1 Sep 2026 15:00:00 -0700)
 
 - **Crystal Palace target Moroccan teenage defender Taha Majni in late-window move**: [Link](https://africasoccer.com/crystal-palace-target-moroccan-teenage-defender-taha-majni-in-late-window-move/)
