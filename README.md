@@ -1,3 +1,31 @@
+### école (N/A, Wed, 2 Sep 2026 15:00:00 -0700)
+
+- **Appui scolaire, végétalisation… Quoi de neuf dans les écoles de Fougères pour cette rentrée**: [Link](https://www.ouest-france.fr/education/rentree-scolaire/appui-scolaire-vegetalisation-quoi-de-neuf-dans-les-ecoles-de-fougeres-pour-cette-rentree-d2fcf4a8-a5e0-11f1-8a27-1e0c4eb5e395)
+- **Fougerolles-Saint-Valbert : 200 élèves à l’école des Fougères**: [Link](https://www.lesaffichesdelahautesaone.fr/fougerolles-saint-valbert-200-eleves-a-lecole-des-fougeres/)
+- **Fusion, végétalisation, travaux… Dans les écoles de Fougères, plusieurs nouveautés pour la rentrée**: [Link](https://actu.fr/bretagne/fougeres_35115/fusion-vegetalisation-travaux-dans-les-ecoles-de-fougeres-plusieurs-nouveautes-pour-la-rentree_64730694.html)
+
+
+### cheikh (N/A, Wed, 2 Sep 2026 14:40:00 -0700)
+
+- **Décès de Cheikh Larbas Ben Cheikh Mohammed Laghdaf, figure du paysage religieux marocain**: [Link](https://medias24.com/2026/09/02/deces-de-cheikh-larbas-ben-cheikh-mohammed-laghdaf-figure-du-paysage-religieux-marocain-1747095/)
+- **Décès de Cheikh Larabass Ould Cheikh Mohamed Laghdaf Ould Cheikh Maelainine: les condoléances du Roi à la famille du défunt**: [Link](https://fr.le360.ma/politique/deces-de-cheikh-larabass-ould-cheikh-mohamed-laghdaf-ould-cheikh-maelainine-les-condoleances-du-roi_JIBC6RJDQNHCFANMTWLSMWH5CI/)
+- **Le Roi exprime ses condoléances suite au décès du Cheikh Larbas Ould Cheikh Mohamed Laghdaf Ould Cheikh Maoulainine**: [Link](https://fr.hibapress.com/news-269829.html)
+
+
+### نادي الفتح (N/A, Wed, 2 Sep 2026 14:40:00 -0700)
+
+- **اللاعب رقم 8.. موهبة مغربية جديدة تقتحم الدوري السعودي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D9%82%D9%85-8--%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D9%82%D8%AA%D8%AD%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/bltf4d46f77049a8c21)
+- **حسام الصادق يقترب من الفتح السعودي**: [Link](https://radiomars.ma/%D8%AD%D8%B3%D8%A7%D9%85-%D8%A7%D9%84%D8%B5%D8%A7%D8%AF%D9%82-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/)
+- **"الثالثة ثابتة؟.. موهبة مغربية في طريقها صوب الدوري السعودي**: [Link](https://sport.lesiteinfo.com/internationaux/502307.html)
+
+
+### ليونيل سكالوني (N/A, Wed, 2 Sep 2026 13:50:00 -0700)
+
+- **بعد اعتزاله دوليا.. الاتحاد الأرجنتيني يكرم ميسي بقرار استثنائي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87-%D8%AF%D9%88%D9%84%D9%8A%D8%A7--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A-%D9%8A%D9%83%D8%B1%D9%85-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A/blted6c2e821fba66ec)
+- **"وجدته وحيدا تماما".. برافو يكشف كواليس أصعب لحظات ميسي مع الأرجنتين**: [Link](https://www.aljazeera.net/sport/2026/9/2/%D9%85%D9%8A%D8%B3%D9%8A-%D9%83%D9%84%D8%A7%D9%88%D8%AF%D9%8A%D9%88-%D8%A8%D8%B1%D8%A7%D9%81%D9%88)
+- **تكريم خاص من رابطة الدوري الأرجنتيني للنجم ليونيل ميسي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D9%83%D8%B1%D9%8A%D9%85-%D8%AE%D8%A7%D8%B5-%D9%85%D9%86-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A-%D9%84%D9%84%D9%86%D8%AC%D9%85-%D9%84%D9%8A%D9%88%D9%86%D9%8A%D9%84-%D9%85%D9%8A%D8%B3%D9%8A-2026-09-02)
+
+
 ### équipe du maroc de football (N/A, Wed, 2 Sep 2026 14:50:00 -0700)
 
 - **Finale de la CAN, Panenka ratée de Diaz... Regragui sort enfin de son mutisme**: [Link](https://lematin.ma/sports/finale-de-la-can-panenka-ratee-de-diaz-regragui-sort-de-son-mutisme/362999)
