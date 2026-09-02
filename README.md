@@ -1,3 +1,52 @@
+### وليد الركراكي (N/A, Wed, 2 Sep 2026 09:50:00 -0700)
+
+- **الركراكي يخوض تجربة جديدة في فرنسا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-1800977.html)
+- **وجهة غير متوقعة لوليد الركراكي**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/502266.html)
+- **وليد الركراكي خدم مع + Canal**: [Link](https://www.goud.ma/%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D8%AE%D8%AF%D9%85-%D9%85%D8%B9-canal-1039362/)
+
+
+### الحسين عموتة (N/A, Wed, 2 Sep 2026 09:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي وسموحة في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%B3%D9%85%D9%88%D8%AD%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4daa40a3cc78dc46)
+- **23 لاعبا في قائمة سموحة لمواجهة الأهلي**: [Link](https://www.akhbarak.net/news/details/49348800/3/23-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D9%81%D9%8A-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%B3%D9%85%D9%88%D8%AD%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+- **عموتة يدرس استمرار علي محمود في تشكيل الأهلي أمام سموحة بعد تألقه أمام زد**: [Link](https://www.youm7.com/story/2026/9/2/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%B9%D9%84%D9%8A-%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D9%85%D9%88%D8%AD%D8%A9/7533735)
+
+
+### سبتة (N/A, Wed, 2 Sep 2026 08:20:00 -0700)
+
+- **المغرب: هيئة حقوقية تنفّذ وقفة احتجاجية أمام سفارة مدريد في الرباط وأخرى توجه رسالة إلى السفير الاسباني**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%87%D9%8A%D8%A6%D8%A9-%D8%AD%D9%82%D9%88%D9%82%D9%8A%D8%A9-%D8%AA%D9%86%D9%81%D9%91%D8%B0-%D9%88%D9%82%D9%81%D8%A9-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D9%8A/)
+- **الشرطة الإسبانية تنفي اتهام قوات الأمن المغربية في أحداث سبتة المحتلة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D9%86%D9%81%D9%8A-%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85-1800911.html)
+- **3519 مهاجرا عادوا طوعا من سبتة إلى المغرب منذ 10 غشت.. ومدريد: "يعلمون أنه لا أمل لهم"**: [Link](https://ar.telquel.ma/3519-%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D8%A7-%D8%B9%D8%A7%D8%AF%D9%88%D8%A7-%D8%B7%D9%88%D8%B9%D8%A7-%D9%85%D9%86-%D8%B3%D8%A8%D8%AA%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85/)
+
+
+### marocains (N/A, Wed, 2 Sep 2026 08:20:00 -0700)
+
+- **Législatives : Mohamed Tozy table sur une forte baisse de la participation électorale**: [Link](https://medias24.com/2026/09/01/legislatives-mohamed-tozy-table-sur-une-forte-baisse-de-la-participation-electorale-1746423/)
+- **Élections législatives 2026: 1.003 déclarations de candidature déposées via la plateforme électronique jusqu'à mardi au soir**: [Link](https://mobile.telquel.ma/instant-t/2026/09/02/elections-legislatives-2026-1-003-declarations-de-candidature-deposees-via-la-plateforme-electronique-jusqua-mardi-au-soir_2005235/)
+- **575 MMDH, 220 engagements, 996 mesures… le PPS détaille son « alternative démocratique et progressiste**: [Link](http://ledesk.ma/2026/09/02/575-mmdh-220-engagements-996-mesures-le-pps-detaille-son-alternative-democratique-et-progressiste/)
+
+
+### walid regragui (N/A, Wed, 2 Sep 2026 07:20:00 -0700)
+
+- **Walid Regragui rejoint… Canal+**: [Link](https://www.footmercato.net/a3225186396567291004-walid-regragui-rejoint-canal)
+- **Walid Regragui devient consultant pour Canal+**: [Link](https://www.lequipe.fr/Medias/Actualites/Walid-regragui-devient-consultant-pour-canal/1715444)
+- **Canal+ enrôle Walid Regragui et Mehdi Benatia comme consultants**: [Link](https://lematin.ma/sports/canal-enrole-walid-regragui-et-mehdi-benatia-comme-consultants/363182)
+
+
+### azzedine ounahi transfert (N/A, Wed, 2 Sep 2026 06:30:00 -0700)
+
+- **Ounahi vers la Grèce, une trajectoire loin des promesses de 2022**: [Link](https://radiomars.ma/fr/?p=5964)
+- **Azzedine Ounahi tout proche d’un retour au Panathinaïkos**: [Link](https://fr.hespress.com/486708-azzedine-ounahi-tout-proche-dun-retour-au-panathinaikos.html)
+- **Mercato : mais où va atterrir Azzedine Ounahi ?**: [Link](https://www.lesiteinfo.com/sport/680909-mercato-mais-ou-va-atterrir-azzedine-ounahi.html)
+
+
+### pablo garcia (N/A, Wed, 2 Sep 2026 04:20:00 -0700)
+
+- **Pablo García y su madre, completamente rotos y entre lágrimas tras su venta: la secuencia es tremenda**: [Link](https://as.com/futbol/videos/pablo-garcia-y-su-madre-completamente-rotos-y-entre-lagrimas-la-secuencia-es-tremenda-f202609-v/)
+- **Chema Aragón, director deportivo del Racing, sobre las cifras del traspaso de Pablo García: «No es la cantidad, ni mucho menos, que se ha dicho»**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/chema-aragon-director-deportivo-racing-sobre-cifras-20260902150939-nts.html)
+- **Su club lo vendió el último día del mercado para incorporar a un volante de Real Madrid y se retiró llorando**: [Link](https://www.tycsports.com/espana/la-liga/pablo-garcia-betis-vendio-ultimo-dia-comprar-dani-ceballos-real-madrid-retiro-llorando-madre-id758520.html)
+
+
 ### resultat quinte (N/A, Wed, 2 Sep 2026 05:10:00 -0700)
 
 - **Galord, l’outsider séduisant du Quinté+ de ce mardi 1er septembre**: [Link](https://www.equidia.fr/articles/actualite/galord-loutsider-seduisant-du-quinte-de-ce-mardi-1er-septembre)
