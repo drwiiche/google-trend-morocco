@@ -1,3 +1,8 @@
+### taha majni (N/A, Tue, 1 Sep 2026 15:00:00 -0700)
+
+- **Crystal Palace target Moroccan teenage defender Taha Majni in late-window move**: [Link](https://africasoccer.com/crystal-palace-target-moroccan-teenage-defender-taha-majni-in-late-window-move/)
+
+
 ### عاصفة (N/A, Tue, 1 Sep 2026 15:40:00 -0700)
 
 - **المغرب على موعد مع عواصف رعدية وحرارة تصل إلى 46 درجة مئوية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%B9-%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA-1800205.html)
