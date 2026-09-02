@@ -1,3 +1,44 @@
+### équipe du maroc de football (N/A, Wed, 2 Sep 2026 14:50:00 -0700)
+
+- **Finale de la CAN, Panenka ratée de Diaz... Regragui sort enfin de son mutisme**: [Link](https://lematin.ma/sports/finale-de-la-can-panenka-ratee-de-diaz-regragui-sort-de-son-mutisme/362999)
+- **Finale de la CAN 2025, Hakim Ziyech, Lamine Yamal, Brahim Diaz… les confidences de Walid Regragui**: [Link](https://sport.le360.ma/football/finale-de-la-can-2025-hakim-ziyech-lamine-yamal-brahim-diaz-les-confidences-de-walid-regragui_HD6OLEXHIFAL3CAIVLRRTWU2UE/)
+- **En citant Mbappé, Regragui justifie le penalty manqué par Brahim Diaz face au Sénégal**: [Link](https://www.goal.com/fr/news/en-citant-mbappe-regragui-justifie-le-penalty-manque-par-brahim-diaz-face-au-senegal/blte5f198414db94e63)
+
+
+### badr hari (N/A, Wed, 2 Sep 2026 13:50:00 -0700)
+
+- **Badr Hari, Notorious Kickboxer, Arrested in Amsterdam for Threats**: [Link](https://bvmsports.com/2026/09/01/badr-hari-notorious-kickboxer-arrested-in-amsterdam-for-threats/)
+- **Badr Hari arrested in Amsterdam over alleged threats and insults**: [Link](https://en.yabiladi.com/articles/details/201948/badr-hari-arrested-amsterdam-over.html)
+
+
+### ismael saibari (N/A, Wed, 2 Sep 2026 13:40:00 -0700)
+
+- **Bayern: Saibari, "incapable de donner seulement 90 %"**: [Link](https://mountakhab.net/en/bayern-saibari-incapable-de-donner-seulement-90/)
+- **With Toni Kroos: Al-Sibari breaks into a historic Bundesliga list**: [Link](https://www.goal.com/en/news/with-toni-kroos-al-sibari-breaks-into-a-historic-bundesliga-list/bltd8166d3bd9f08d9e)
+- **Ismael Saibari explains the dual nature of Bayern Munich coach Vincent Kompany**: [Link](https://sports.yahoo.com/articles/ismael-saibari-explains-dual-nature-233000639.html)
+
+
+### weather tomorrow (N/A, Wed, 2 Sep 2026 13:00:00 -0700)
+
+- **Heavy to extremely heavy rainfall warning issued for several states, list released | To read the entire bulletin issued by IMD | Inshorts**: [Link](https://inshorts.com/en/news/heavy-to-extremely-heavy-rainfall-warning-issued-for-several-states--list-released-1788354305776)
+- **Weather tomorrow: IMD forecasts heavy rain, thunderstorms across states; red alert in Jharkhand, orange a**: [Link](https://timesofindia.indiatimes.com/city/delhi/weather-tomorrow-imd-forecasts-heavy-rain-thunderstorms-across-states-red-alert-in-jharkhand-orange-alert-in-mp/articleshow/133703940.cms)
+- **Heavy rains trigger fresh floods in Mayurbhanj district**: [Link](https://www.newindianexpress.com/cities/bhubaneswar/2026/Sep/02/heavy-rains-trigger-fresh-floods-in-mayurbhanj-district)
+
+
+### condamné (N/A, Wed, 2 Sep 2026 13:00:00 -0700)
+
+- **Feldkirch. 29 000 tonnes de plastique stockées près d’un cours d’eau : la société Locacil échappe à la condamnation pour écocide**: [Link](https://www.lalsace.fr/environnement/2026/09/02/29-000-tonnes-de-plastique-stockees-pres-d-un-cours-d-eau-pas-de-condamnation-pour-ecocide)
+- **33.000 tonnes de polluants à l'air libre : ce village pourrait marquer malgré lui l'histoire du droit environnemental**: [Link](https://www.lechorepublicain.fr/feldkirch-68540/actualites/33-000-tonnes-de-polluants-a-l-air-libre-ce-village-pourrait-marquer-malgre-lui-l-histoire-du-droit-environnemental_15039089/)
+- **« Le délit est très difficile à qualifier » : pourquoi la justice française n’a jamais prononcé de peine pour écocide ?**: [Link](https://caen.maville.com/actu/actudet_-le-delit-est-tres-difficile-a-qualifier-pourquoi-la-justice-francaise-n-a-jamais-prononce-de-peine-pour-ecocide_54135-7461115_actu.Htm)
+
+
+### إيران (N/A, Wed, 2 Sep 2026 11:40:00 -0700)
+
+- **أمريكا تضرب 100 هدف إيراني وطهران ترد في دول عربية**: [Link](https://www.aljazeera.net/news/2026/9/1/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%AF%D9%88%D9%8A-5)
+- **الأردن يعلن اعتراض صواريخ إيرانية والكويت تتصدى لهجمات بمسيّرات**: [Link](https://www.bbc.com/arabic/articles/c750z56q9dyo)
+- **الجيش الأميركي يمهاجم ناقلات نفط إيرانية "راسية"**: [Link](https://www.skynewsarabia.com/world/1889481-%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%85%D9%87%D8%A7%D8%AC%D9%85%D8%A9-%D9%86%D8%A7%D9%82%D9%84%D8%A7%D8%AA-%D9%86%D9%81%D8%B7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9)
+
+
 ### iliman ndiaye (N/A, Wed, 2 Sep 2026 12:30:00 -0700)
 
 - **Jamie Carragher s’enflamme pour Iliman Ndiaye : « S’il devient même 20 % meilleur, les gens se demanderont pourquoi personne ne l’a payé avant City**: [Link](https://wiwsport.com/2026/08/31/jamie-carragher-senflamme-pour-iliman-ndiaye-sil-devient-meme-20-meilleur-les-gens-se-demanderont-pourquoi-personne-ne-la-paye-avant-city/)
