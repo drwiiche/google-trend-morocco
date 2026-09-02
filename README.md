@@ -1,3 +1,10 @@
+### عاصفة (N/A, Tue, 1 Sep 2026 15:40:00 -0700)
+
+- **المغرب على موعد مع عواصف رعدية وحرارة تصل إلى 46 درجة مئوية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%B9-%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%88%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA-1800205.html)
+- **من الغد إلى الجمعة.. الأرصاد تتوقع موجة حر ببلادنا**: [Link](https://2m.ma/ar/news/%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D8%A8%D8%A8%D9%84%D8%A7%D8%AF%D9%86%D8%A7-20260901)
+- **موجة حر من الثلاثاء إلى الجمعة (نشرة إنذارية)**: [Link](https://assabah.ma/946994.html)
+
+
 ### hamburg eimsbütteler ballspiel club – dortmund (N/A, Tue, 1 Sep 2026 11:20:00 -0700)
 
 - **DFB-Pokal: Eigentor von HSV-Mitarbeiter – BVB spaziert in die zweite Runde**: [Link](https://www.welt.de/sport/fussball/article6a9735602a6051ae2e13ff7d/dfb-pokal-eigentor-von-hsv-mitarbeiter-bvb-spaziert-in-die-zweite-runde.html)
