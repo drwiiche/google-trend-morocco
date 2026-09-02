@@ -1,3 +1,10 @@
+### hamburg eimsbütteler ballspiel club – dortmund (N/A, Tue, 1 Sep 2026 11:20:00 -0700)
+
+- **DFB-Pokal: Eigentor von HSV-Mitarbeiter – BVB spaziert in die zweite Runde**: [Link](https://www.welt.de/sport/fussball/article6a9735602a6051ae2e13ff7d/dfb-pokal-eigentor-von-hsv-mitarbeiter-bvb-spaziert-in-die-zweite-runde.html)
+- **Mit dem Linienbus zum Arbeitsplatz: So verlief der emotionale Abend für den HEBC**: [Link](https://www.kicker.at/mit-dem-linienbus-zum-arbeitsplatz-so-verlief-der-emotionale-abend-fuer-den-hebc-1248888/video)
+- **Erzieher und Lehrer "Spieler des Spiels"**: [Link](https://www.n-tv.de/sport/mediathek/videos/eingang/Gleich-zwei-Spieler-des-Spiels-Ueberragende-Eimsbuettler-Torhueter-bekommen-Auszeichnung-id31258837.html)
+
+
 ### قيس سعيد (N/A, Tue, 1 Sep 2026 13:10:00 -0700)
 
 - **"الإنسانية تدخل مرحلة جديدة" تصريح لسعيد يثير موجة من التندر في تونس**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A5%D9%86%D8%B3%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%84%D8%B3%D8%B9/)
