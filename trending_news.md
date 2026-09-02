@@ -1,3 +1,73 @@
+### iliman ndiaye (N/A, Wed, 2 Sep 2026 12:30:00 -0700)
+
+- **Jamie Carragher s’enflamme pour Iliman Ndiaye : « S’il devient même 20 % meilleur, les gens se demanderont pourquoi personne ne l’a payé avant City**: [Link](https://wiwsport.com/2026/08/31/jamie-carragher-senflamme-pour-iliman-ndiaye-sil-devient-meme-20-meilleur-les-gens-se-demanderont-pourquoi-personne-ne-la-paye-avant-city/)
+- **Une alternative à Gakpo : Manchester City annonce un nouveau transfert**: [Link](https://www.goal.com/fr/news/une-alternative-a-gakpo-manchester-city-annonce-un-nouveau-transfert/blt72533e5d8011d521)
+- **Manchester City a arraché la cible de Tottenham sous leur nez.**: [Link](https://www.vietnam.vn/fr/man-city-hot-tay-tren-muc-tieu-cua-tottenham)
+
+
+### bayern munich (N/A, Wed, 2 Sep 2026 12:10:00 -0700)
+
+- **Licensable picture: DFB Cup - First Round - VfL Osnabruck v Bayern Munich**: [Link](https://www.reutersconnect.com/item/dfb-cup-first-round-vfl-osnabruck-v-bayern-munich/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOTIxSDdIVEo)
+- **Urbig to replace Neuer in goal against Osnabrück, Kompany confirms**: [Link](https://bulinews.com/urbig-replace-neuer-goal-against-osnabruck-kompany-confirms)
+- **VfL Osnabrück vs. Bayern Munich: Gamethread**: [Link](https://www.bavarianfootballworks.com/bayern-munich-gamethreads-discussion/250498/vfl-osnabruck-vs-bayern-munich-match-discussion-game-time-thread-prediction-how-to-watch)
+
+
+### bayern (N/A, Wed, 2 Sep 2026 12:10:00 -0700)
+
+- **VfL Osnabrück: Peace-Zeichen beim Duell mit Bayern**: [Link](https://www.bild.de/sport/fussball/vfl-osnabrueck-peace-zeichen-beim-duell-mit-bayern-6a98743810ed2fce141fe43d)
+- **ARD: Gesundes Halbwissen zum DFB-Pokal mit „WUMMS“**: [Link](https://smalltalk-entertainment.de/2026/09/02/ard-gesundes-halbwissen-zum-dfb-pokal-mit-wumms/?ref=dwdl)
+- **Der Raitenbucher Patrick Kammerbauer freut sich auf den Pokalhit gegen den FC Bayern**: [Link](https://www.nn.de/region/weissenburg/der-raitenbucher-patrick-kammerbauer-freut-sich-auf-den-pokalhit-gegen-den-fc-bayern-1.15261898)
+
+
+### نادي الاتحاد (N/A, Wed, 2 Sep 2026 12:10:00 -0700)
+
+- **مفاجأة مدوية.. الاتحاد يدرس عودة موسى ديابي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%85%D8%AF%D9%88%D9%8A%D8%A9--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%88%D8%B3%D9%89-%D8%AF%D9%8A%D8%A7%D8%A8%D9%8A/bltea4a315ce882565a)
+- **قدم.. بشيكطاش يضم الهولندي بوكو من ليفركوزن على سبيل الإعارة**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D8%B4%D9%8A%D9%83%D8%B7%D8%A7%D8%B4-%D9%8A%D8%B6%D9%85-%D8%A7%D9%84%D9%87%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D8%A8%D9%88%D9%83%D9%88-%D9%85%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D9%83%D9%88%D8%B2%D9%86-%D8%B9%D9%84%D9%89-%D8%B3%D8%A8%D9%8A%D9%84-%D8%A7%D9%84%D8%A5%D8%B9%D8%A7%D8%B1%D8%A9/4039467)
+- **اليوم - السعودية / عاجل.. الاتحاد يحسم موقفه النهائي من رحيل موسي ديابي لـ باير ليفركوزن**: [Link](https://nabdapp.com/t/177438983-9468f8)
+
+
+### real madrid club de fútbol – ajax (N/A, Wed, 2 Sep 2026 12:10:00 -0700)
+
+- **Real Madrid-Ajax: a por el pase a la Women’s Champions League, en directo por Realmadrid TV**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo-femenino/previas/previa-real-madrid-ajax-vuelta-tercera-ronda-clasificatoria-wcl-02-09-2026)
+- **Pau Quesada: "Lo vivimos el año pasado, la renta no te vale de nada"**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20260902/1004222467/pau-quesada-vivimos-ano-pasado-renta-no-te-vale.html)
+- **Lotte Keukelaar, la chispa que necesita el Madrid para cerrar el pase ante el Ajax**: [Link](https://www.articulo14.es/deportes/lotte-keukelaar-la-chispa-que-necesita-el-madrid-para-cerrar-el-pase-ante-el-ajax-20260902.html)
+
+
+### iphone (N/A, Wed, 2 Sep 2026 11:10:00 -0700)
+
+- **Apple to launch next iPhone on September 9 in first major event under new CEO Ternus**: [Link](https://www.reuters.com/technology/apple-sets-sept-9-date-next-iphone-launch-event-2026-08-26/)
+- **Apple’s foldable iPhone Ultra said to feature MagSafe charging - GSMArena.com news**: [Link](https://www.gsmarena.com/apples_foldable_iphone_ultra_said_to_feature_magsafe_charging-news-74443.php)
+- **A Folding iPhone at Last? What to Expect From Apple’s Surprise and Shine Fall Event**: [Link](https://www.cnet.com/tech/mobile/apple-event-what-to-expect-iphone-18-ultra-fold/)
+
+
+### سر مهني (N/A, Wed, 2 Sep 2026 11:00:00 -0700)
+
+- **وزارة العدل تشهر سلاح “المتابعة الجنائية” بوجه مسربي ملفات المحاكم**: [Link](https://al3omk.com/1184470.html)
+- **وهبي يشدد على ضرورة كتمان السر المهني.. ويحذر موظفي العدل من المتابعات الجنائية والتأديبية**: [Link](https://barlamane.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%B6%D8%B1%D9%88%D8%B1%D8%A9-%D9%83%D8%AA%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%B3%D8%B1-%D8%A7%D9%84%D9%85%D9%87%D9%86%D9%8A/)
+- **وزير العدل لموظفي المحاكم: وا وذني منكم راه السر المهني خط حمر**: [Link](https://www.goud.ma/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D9%84%D9%85%D9%88%D8%B8%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D9%88%D8%A7-%D9%88%D8%B0%D9%86%D9%8A-%D9%85%D9%86%D9%83%D9%85-1039392/)
+
+
+### الجامعة الملكية المغربية لكرة القدم (N/A, Wed, 2 Sep 2026 10:40:00 -0700)
+
+- **بلاغ الإدارة التقنية الوطنية**: [Link](https://frmf.ma/articles/%D8%A8%D9%84%D8%A7%D8%BA-%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%82%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9)
+- **منتخب لاتيني يعتذر عن مواجهة "الأسود" وديا**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/502231.html)
+- **الأسود قد يواجهون منتخب نسور قرطاج وديا**: [Link](https://www.almountakhab.com/node/13230031)
+
+
+### عبد الصمد الزلزولي (N/A, Wed, 2 Sep 2026 10:40:00 -0700)
+
+- **في اللحظات الأخيرة.. كواليس تعثر انتقال عبد الصمد الزلزولي إلى البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9--%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B5%D9%85%D8%AF-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/bltbd842806aa00b024)
+- **بيتيس يرفض عرضا بـ43 مليون يورو من إيفرتون لضم الزلزولي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%B1%D9%81%D8%B6-%D8%B9%D8%B1%D8%B6%D8%A7-%D8%A843-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%85%D9%86-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%84%D8%B6%D9%85-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A/24802)
+- **ريال بيتيس رفضو عرض فالزلزولي من النگليز**: [Link](https://www.goud.ma/%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%B1%D9%81%D8%B6%D9%88-%D8%B9%D8%B1%D8%B6-%D9%81%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%86%DA%AF%D9%84-1039351/)
+
+
+### اعتقال (N/A, Wed, 2 Sep 2026 10:20:00 -0700)
+
+- **الاحتلال الإسرائيلي يجدد أوامر الاعتقال الإداري بحق 45 أسيرا فلسطينيا**: [Link](https://qna.org.qa/ar-QA/News-Area/News/2026-9/2/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1%D8%A7%D9%8A%D9%8A%D9%84%D9%8A-%D9%8A%D8%AC%D8%AF%D8%AF-%D8%A7%D9%88%D8%A7%D9%85%D8%B1-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%A7%D9%84%D8%A7%D8%AF%D8%A7%D8%B1%D9%8A-%D8%A8%D8%AD%D9%82-45-%D8%A7%D8%B3%D9%8A%D8%B1%D8%A7-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A7)
+- **مركز حقوقي فلسطيني: 328 شهيداً من الأسرى في سجون الاحتلال منذ عام 1967**: [Link](https://alkhabaralyemeni.net/2026/09/02/353211/)
+- **الاحتلال يصدر أوامر اعتقال إداري بحق 45 معتقلًا**: [Link](https://yaffaps.com/ar/page-126207.html)
+
+
 ### وليد الركراكي (N/A, Wed, 2 Sep 2026 09:50:00 -0700)
 
 - **الركراكي يخوض تجربة جديدة في فرنسا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-1800977.html)
