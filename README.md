@@ -1,3 +1,31 @@
+### caf (N/A, Thu, 3 Sep 2026 03:50:00 -0700)
+
+- **Can anyone stop Mamelodi Sundowns in the 2026/27 CAF Champions League?**: [Link](https://www.ewn.co.za/can-anyone-stop-mamelodi-sundowns-in-the-202627-caf-champions-league/)
+- **CAF Champions League first preliminary round kicks off**: [Link](https://ghanaiantimes.com.gh/caf-champions-league-first-preliminary-round-kicks-off/)
+- **ES Zarzis and Club Africain begin their CAF Champions League journey**: [Link](https://www.ysscores.com/en/news/14033081/es-zarzis-and-club-africain-begin-their-caf-champions-league-journey)
+
+
+### بدر هاري (N/A, Thu, 3 Sep 2026 02:10:00 -0700)
+
+- **الأمن يوقف بدر هاري في أمستردام**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%8A%D9%88%D9%82%D9%81-%D8%A8%D8%AF%D8%B1-%D9%87%D8%A7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A3%D9%85%D8%B3%D8%AA%D8%B1%D8%AF%D8%A7%D9%85-1800731.html)
+- **توقيف مقاتل الكيك بوكسينغ المغربي بدر هاري في هولندا**: [Link](https://ar.yabiladi.com/articles/details/201947/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D9%85%D9%82%D8%A7%D8%AA%D9%84-%D8%A7%D9%84%D9%83%D9%8A%D9%83-%D8%A8%D9%88%D9%83%D8%B3%D9%8A%D9%86%D8%BA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A.html)
+- **توقيف بدر هاري في أمستردام للاشتباه في التهديد والإهانة**: [Link](https://attasiaa.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%A8%D8%AF%D8%B1-%D9%87%D8%A7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A3%D9%85%D8%B3%D8%AA%D8%B1%D8%AF%D8%A7%D9%85-%D9%84%D9%84%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%87-%D9%81%D9%8A/)
+
+
+### algérie (N/A, Thu, 3 Sep 2026 01:50:00 -0700)
+
+- **L’Algérie va emprisonner les narcotrafiquants dans l’un des pires déserts au monde**: [Link](https://www.20minutes.fr/monde/4242466-20260903-algerie-va-emprisonner-narcotrafiquants-pires-deserts-monde)
+- **L’Algérie va ouvrir une prison pour narcotrafiquants dans le désert du Tanezrouft**: [Link](https://www.lemonde.fr/afrique/article/2026/09/03/l-algerie-va-ouvrir-une-prison-pour-narcotrafiquants-dans-le-desert-hostile-du-tanezrouft_6764738_3212.html)
+- **Guerre totale contre le narcotrafic!**: [Link](https://www.lexpressiondz.com/nationale/guerre-totale-contre-le-narcotrafic-409103)
+
+
+### barrage (N/A, Thu, 3 Sep 2026 01:30:00 -0700)
+
+- **Barrages du Maroc : Les réserves d'eau résistent aux fortes chaleurs de l’été**: [Link](https://lematin.ma/videos/barrages-du-maroc-les-reserves-deau-resistent-aux-chaleurs-de-lete/362969)
+- **Tunisie : le taux de remplissage des barrages atteint 50 %**: [Link](https://directinfo.webmanagercenter.com/2026/09/02/tunisie-le-taux-de-remplissage-des-barrages-atteint-50/)
+- **Eau: Les réserves des barrages atteignent leur plus haut niveau depuis 2025**: [Link](https://lopinion.ma/fr/actu-maroc/eau-les-reserves-des-barrages-atteignent-leur-plus-haut-niveau-depuis-2025_a78595?articleId=037d34ed-a919-4762-9e9c-c8bf7d425b16)
+
+
 ### carlos alcaraz (N/A, Wed, 2 Sep 2026 19:20:00 -0700)
 
 - **“El tenista del pueblo” y el “futuro nº1” amenazan el reinado de Alcaraz en Nueva York**: [Link](https://as.com/tenis/videos/solo-alcaraz-sinner-y-djokovic-son-mejores-que-jodar-ahora-mismo-f202609-v/)
