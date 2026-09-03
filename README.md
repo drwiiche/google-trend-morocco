@@ -1,3 +1,50 @@
+### accident algésiras (N/A, Thu, 3 Sep 2026 14:10:00 -0700)
+
+- **Two women die when a car falls into the sea at the port of Algeciras: all the keys to the accident**: [Link](https://www.democrata.es/en/society/two-women-die-when-a-car-falls-into-the-sea-at-the-port-of-algeciras-all-the-keys-to-the-accident/)
+- **Car Plunges Into Sea at Spain’s Algeciras Port, Kills Two Moroccan Women**: [Link](https://www.moroccoworldnews.com/2026/09/337020/car-plunges-into-sea-at-spains-algeciras-port-kills-two-moroccan-women/)
+- **Tragedy as two women drown after car plunges into the sea at Andalucia’s largest port**: [Link](https://www.theolivepress.es/spain-news/2026/09/02/tragedy-as-two-women-drown-after-car-plunges-into-the-sea-at-andalucias-largest-port/)
+
+
+### ماركوس يورينتي (N/A, Thu, 3 Sep 2026 14:00:00 -0700)
+
+- **رسميًا.. اعتزال دولي مفاجئ لنجم إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%AF%D9%88%D9%84%D9%8A-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blt652804ed89cc076f)
+- **"كان شرفا لي أن أمثل بلادي".. ماركوس يورينتي يعلن اعتزاله اللعب دوليا**: [Link](https://www.filgoal.com/articles/536333/%D9%83%D8%A7%D9%86-%D8%B4%D8%B1%D9%81%D8%A7-%D9%84%D9%8A-%D8%A3%D9%86-%D8%A3%D9%85%D8%AB%D9%84-%D8%A8%D9%84%D8%A7%D8%AF%D9%8A-%D9%85%D8%A7%D8%B1%D9%83%D9%88%D8%B3-%D9%8A%D9%88%D8%B1%D9%8A%D9%86%D8%AA%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D8%AF%D9%88%D9%84%D9%8A%D8%A7)
+- **رسميًا.. لاعب ريال مدريد السابق يعتزل اللعب دوليًا**: [Link](https://www.btolat.com/news/409305)
+
+
+### real sociedad (N/A, Thu, 3 Sep 2026 13:50:00 -0700)
+
+- **Preview: Real Sociedad vs Celta Vigo - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/real-sociedad/preview/real-sociedad-vs-celta-vigo-prediction-team-news-lineups_604226.html)
+- **🚨 Real Sociedad-Celta: Matarazzo and Giráldez confirm their XIs**: [Link](https://onefootball.com/en/news/real-sociedad-celta-matarazzo-and-giraldez-confirm-their-xis-43396431)
+- **Real Sociedad v Celta Vigo Betting Markets - La Liga 3 September**: [Link](https://www.gambling911.com/real-sociedad-v-celta-vigo-betting-markets-la-liga-3-september-2026)
+
+
+### rca (N/A, Thu, 3 Sep 2026 13:10:00 -0700)
+
+- **Cum se schimbă experienţa șoferului atunci când protecția auto merge dincolo de minimul obligatoriu**: [Link](https://www.economica.net/cum-se-schimba-experienta-soferului-atunci-cand-protectia-auto-merge-dincolo-de-minimul-obligatoriu_973351.html)
+
+
+### weather tomorrow (N/A, Thu, 3 Sep 2026 12:50:00 -0700)
+
+- **Brief break in the heatwave on the way**: [Link](https://www.14news.com/2026/09/03/brief-break-heatwave-way/)
+- **Another scorcher on the way**: [Link](https://www.11alive.com/video/weather/weather-ott/another-scorcher-on-the-way/85-04359274-6268-4ebb-b527-32af2075ec29)
+- **Heat wave continues in Central Illinois ahead of Labor Day weekend**: [Link](https://ipmnewsroom.org/heat-wave-continues-in-central-illinois-ahead-of-labor-day-weekend/)
+
+
+### éclipse solaire (N/A, Thu, 3 Sep 2026 12:40:00 -0700)
+
+- **Arrive l'éclipse solaire la plus longue du siècle : le jour se transformera en nuit et ne se reproduira pas avant plus de 80 ans**: [Link](https://www.linternaute.com/sortir/id/11284892-article/)
+- **Une éclipse partielle en août 2027 : sera-t-elle visible depuis la région parisienne ?**: [Link](https://www.sortiraparis.com/actualites/a-paris/articles/350407-une-eclipse-partielle-en-aout-2027-sera-t-elle-visible-depuis-la-region-parisienne)
+- **L’Egypte prépare une campagne touristique pour l’éclipse solaire d’août 2027 à Louxor et Siwa - Voyages - Voyages**: [Link](https://french.ahram.org.eg/News/92705.aspx)
+
+
+### afrique (N/A, Thu, 3 Sep 2026 12:20:00 -0700)
+
+- **Le Brésil installe en Éthiopie sa première base commerciale permanente en Afrique**: [Link](https://www.agenceecofin.com/actualites/0309-141296-le-bresil-installe-en-ethiopie-sa-premiere-base-commerciale-permanente-en-afrique)
+- **Le Brésil installe sa première antenne commerciale permanente en Afrique à Addis-Abeba**: [Link](https://beninwebtv.bj/le-bresil-installe-sa-premiere-antenne-commerciale-permanente-en-afrique-a-addis-abeba/)
+- **Tabac : 5 chiffres pour comprendre la place croissante de l’Afrique sur le marché mondial**: [Link](https://www.agenceecofin.com/actualites-agro/0309-141280-tabac-5-chiffres-pour-comprendre-la-place-croissante-de-l-afrique-sur-le-marche-mondial)
+
+
 ### real sociedad – celta vigo (N/A, Thu, 3 Sep 2026 11:20:00 -0700)
 
 - **¿Por qué adelantan Real Sociedad y Celta el partido de la sexta fecha?**: [Link](https://es-us.noticias.yahoo.com/deportes/adelantan-real-sociedad-celta-partido-134000398.html)
