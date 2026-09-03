@@ -1,3 +1,38 @@
+### وزير الدفاع الإسرائيلي (N/A, Thu, 3 Sep 2026 15:30:00 -0700)
+
+- **وزير الدفاع الإسرائيلي يتوعد بضرب البنى التحتية ومنشآت الطاقة في إيران**: [Link](https://www.aljazeera.net/news/2026/9/3/%D9%83%D8%A7%D8%AA%D8%B3-%D9%8A%D9%87%D8%AF%D8%AF-%D8%A8%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D9%86%D9%89-%D8%A7%D9%84%D8%AA%D8%AD%D8%AA%D9%8A%D8%A9-%D9%88%D9%85%D9%86%D8%B4%D8%A2%D8%AA)
+- **نتنياهو: إسقاط النظام في إيران ليس مستحيلاً.. بل في المتناول**: [Link](https://www.alarabiya.net/arab-and-world/2026/09/03/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%A7%D8%B3%D9%82%D8%A7%D8%B7-%D8%A7%D9%84%D9%86%D8%B8%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D9%84%D9%8A%D8%B3-%D9%85%D8%B3%D8%AA%D8%AD%D9%8A%D9%84%D8%A7-%D8%A8%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AA%D9%86%D8%A7%D9%88%D9%84)
+- **ضرب ما تبقى من "النووي".. تأهب إسرائيلي لجولة كبيرة مع إيران**: [Link](https://www.skynewsarabia.com/world/1889694-%D8%B6%D8%B1%D8%A8-%D8%AA%D8%A8%D9%82%D9%89-%D8%A7%D9%84%D9%86%D9%88%D9%88%D9%8A-%D8%AA%D8%A3%D9%87%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D9%83%D8%A8%D9%8A%D8%B1%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+
+
+### مارين لوبان (N/A, Thu, 3 Sep 2026 14:50:00 -0700)
+
+- **"الحجاب سيُعاقب بغرامة" .. معركة حقوقية في فرنسا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%A8-%D8%B3%D9%8A%D9%8F%D8%B9%D8%A7%D9%82%D8%A8-%D8%A8%D8%BA%D8%B1%D8%A7%D9%85%D8%A9-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%AD%D9%82%D9%88%D9%82%D9%8A%D8%A9-%D9%81-1801252.html)
+- **معركة الحجاب مجددا.. لوبان تفتح الجبهة وفرنسا تنقسم**: [Link](https://www.aljazeera.net/politics/2026/9/1/%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%A8-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7-%D9%84%D9%88%D8%A8%D8%A7%D9%86-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%AC%D8%A8%D9%87%D8%A9)
+- **"المجلس الإسلامي الفرنسي": على الدولة حماية حق المرأة في الحجاب**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%AD%D9%82-%D8%A7%D9%84%D9%85%D8%B1%D8%A3%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%AC%D8%A7%D8%A8/4043987)
+
+
+### ترتيبات النادي الأهلي – نادى سموحه (N/A, Thu, 3 Sep 2026 14:40:00 -0700)
+
+- **من دون أي لاعب من الأهلي.. ترتيب هدافي الدوري المصري**: [Link](https://www.eremnews.com/sports/ohztjhp)
+- **مواعيد مباريات الجولة الرابعة بالدوري المصري والقناة الناقلة**: [Link](https://www.youm7.com/story/2026/9/4/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/7534472)
+- **بيراميدز يحلق في الصدارة.. والزمالك وصيفًا مؤقتًا بعد الجولة الثالثة من الدوري**: [Link](https://daralmaref.com/News/2583969.aspx)
+
+
+### jeux méditerranéens de tarente 2026 (N/A, Thu, 3 Sep 2026 13:50:00 -0700)
+
+- **Jeux méditerranéens 2026 : 44 médailles dont 16 en or pour le Maroc**: [Link](https://www.yabiladi.com/articles/details/202052/jeux-mediterraneens-2026-medailles-dont.html)
+- **Jeux méditerranéens : Fatima Zahra Berdaha sacrée au semi-marathon**: [Link](https://maroc-diplomatique.net/jeux-mediterraneens-fatima-zahra-berdaha-sacree-au-semi-marathon/)
+- **Jeux méditerranéens: le Marocain Salaheddine Ben Yazid sacré au 3.000 m steeple**: [Link](https://fr.hespress.com/486845-jeux-mediterraneens-le-marocain-salaheddine-ben-yazid-sacre-au-3-000-m-steeple.html)
+
+
+### ريال سوسيداد ضد سلتا فيغو (N/A, Thu, 3 Sep 2026 11:40:00 -0700)
+
+- **Sociedad vs Celta Vigo match lineup | LaLiga · 3 Sep 2026**: [Link](https://www.ysscores.com/en/lineup/5868070/Real-Sociedad-vs-Celta-de-Vigo)
+- **Real Sociedad vs Celta Vigo Lineups, Prediction, Betting Tips & Odds**: [Link](https://www.whoscored.com/articles/uSJ3JUXXC0C2RIh-t0O2bg/show/20260903-real-sociedad-vs-celta-vigo-prediction-1788433474)
+- **Real Sociedad v Celta, line-ups confirmed for LaLiga EA Sports match**: [Link](https://onefootball.com/en/news/real-sociedad-v-celta-line-ups-confirmed-for-laliga-ea-sports-match-43396578)
+
+
 ### accident algésiras (N/A, Thu, 3 Sep 2026 14:10:00 -0700)
 
 - **Two women die when a car falls into the sea at the port of Algeciras: all the keys to the accident**: [Link](https://www.democrata.es/en/society/two-women-die-when-a-car-falls-into-the-sea-at-the-port-of-algeciras-all-the-keys-to-the-accident/)
