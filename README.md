@@ -1,3 +1,10 @@
+### carlos alcaraz (N/A, Wed, 2 Sep 2026 19:20:00 -0700)
+
+- **“El tenista del pueblo” y el “futuro nº1” amenazan el reinado de Alcaraz en Nueva York**: [Link](https://as.com/tenis/videos/solo-alcaraz-sinner-y-djokovic-son-mejores-que-jodar-ahora-mismo-f202609-v/)
+- **Jaime Faria, el apasionado del fútbol y del Sporting de Portugal, que cargó contra la grada del US Open y ahora se enfrenta a Carlos Alcaraz**: [Link](https://www.infobae.com/espana/deportes/2026/09/02/jaime-faria-el-apasionado-del-futbol-y-del-sporting-de-portugal-que-cargo-contra-la-grada-del-us-open-y-ahora-se-enfrenta-a-carlos-alcaraz/)
+- **Carlos Alcaraz reacciona tras ceder el primer set y alcanza la tercera ronda del US Open**: [Link](https://www.chicagotribune.com/2026/09/02/carlos-alcaraz-reacciona-tras-ceder-el-primer-set-y-alcanza-la-tercera-ronda-del-us-open/)
+
+
 ### école (N/A, Wed, 2 Sep 2026 15:00:00 -0700)
 
 - **Appui scolaire, végétalisation… Quoi de neuf dans les écoles de Fougères pour cette rentrée**: [Link](https://www.ouest-france.fr/education/rentree-scolaire/appui-scolaire-vegetalisation-quoi-de-neuf-dans-les-ecoles-de-fougeres-pour-cette-rentree-d2fcf4a8-a5e0-11f1-8a27-1e0c4eb5e395)
