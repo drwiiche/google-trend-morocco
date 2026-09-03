@@ -1,3 +1,73 @@
+### ai (N/A, Thu, 3 Sep 2026 08:10:00 -0700)
+
+- **Nvidia inks $13 billion deal to buy the AI startup that was hacked by OpenAI**: [Link](https://www.cnn.com/2026/09/03/tech/nvidia-hugging-face-ai-acquisition)
+- **Why Nvidia's purchase of Hugging Face is an 'important strategic move'**: [Link](https://finance.yahoo.com/video/why-nvidias-purchase-hugging-face-132058312.html)
+- **Watch CNBC's full interview with Nvidia CEO Jensen Huang and Hugging Face CEO Clément Delangue**: [Link](https://www.cnbc.com/video/2026/09/03/watch-cnbcs-full-interview-with-nvidia-ceo-jensen-huang-and-hugging-face-ceo-clament-delangue.html)
+
+
+### claude (N/A, Thu, 3 Sep 2026 08:00:00 -0700)
+
+- **Anthropic muscle Claude avec ses nouveaux modèles Fable 5.1 et Mythos 5.1**: [Link](https://lematin.ma/hi-tech/anthropic-muscle-claude-avec-ses-nouveaux-modeles-fable-51-et-mythos-51/363103)
+- **Anthropic : ses nouveaux modèles d’IA sont en panne un jour après leur lancement**: [Link](https://itdaily.fr/nouvelles/logiciel/les-modeles-dia-danthropics-sont-hors-service-des-le-lendemain-de-leur-lancement/)
+- **WebDev Arena : Fable 5.1 Max en tête, Qwen domine le fullstack**: [Link](https://www.briefia.fr/article/webdev-arena-fable-5-1-max-en-tete-qwen-domine-le-fullstack)
+
+
+### gemini ai (N/A, Thu, 3 Sep 2026 07:50:00 -0700)
+
+- **Introducing Gemini 3.8 Flash and 3.8 Flash Cyber**: [Link](https://blog.google/innovation-and-ai/models-and-research/gemini-models/3-8-flash-and-3-8-flash-cyber/)
+- **Exclusive | New Google AI Model Said to Narrow Gap on Coding Ability**: [Link](https://www.wsj.com/tech/ai/new-google-ai-model-said-to-narrow-gap-on-coding-ability-264c6052)
+- **Google, Anthropic, and OpenAI Unveil Cyber AI Models, Safeguards, and Access Programs**: [Link](https://thehackernews.com/2026/09/google-anthropic-and-openai-unveil.html)
+
+
+### خبر (N/A, Thu, 3 Sep 2026 07:50:00 -0700)
+
+- **نجل مادورو يكشف مصدر صور والده**: [Link](https://www.hespress.com/%D9%86%D8%AC%D9%84-%D9%85%D8%A7%D8%AF%D9%88%D8%B1%D9%88-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D8%B5%D8%AF%D8%B1-%D8%B5%D9%88%D8%B1-%D9%88%D8%A7%D9%84%D8%AF%D9%87-1801104.html)
+- **مادورو ينشر صورتين من السجن ويؤكد أنه "صامد"**: [Link](https://www.alarabiya.net/arab-and-world/2026/08/30/%D9%85%D8%A7%D8%AF%D9%88%D8%B1%D9%88-%D9%8A%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%AA%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D9%88%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D9%86%D9%87-%D8%B5%D8%A7%D9%85%D8%AF-)
+- **أول ظهور لمادورو منذ احتجازه.. ماذا قال في رسالة إلى الفنزويليين؟**: [Link](https://www.mc-doualiya.com/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7/20260831-%D8%A3%D9%88%D9%84-%D8%B8%D9%87%D9%88%D8%B1-%D9%84%D9%85%D8%A7%D8%AF%D9%88%D8%B1%D9%88-%D9%85%D9%86%D8%B0-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%B2%D9%87-%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%A7%D9%84-%D9%81%D9%8A-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%86%D8%B2%D9%88%D9%8A%D9%84%D9%8A%D9%8A%D9%86)
+
+
+### chaleur canicule septembre (N/A, Thu, 3 Sep 2026 07:30:00 -0700)
+
+- **Jusqu'à 40°C et une pluie de records de chaleur à venir en France : découvrez les régions et les villes concernées**: [Link](https://www.tameteo.com/actualites/previsions/jusqu-a-40-c-et-une-pluie-de-records-de-chaleur-a-venir-en-france-decouvrez-les-regions-et-les-villes-concernees.html)
+- **Canicule ce week-end : le classement des villes qui vont suffoquer samedi et dimanche**: [Link](https://selectra.info/energie/actualites/marche/canicule-week-end-6-septembre-2026-classement)
+- **Météo : vers un changement de temps la semaine prochaine après les fortes chaleurs ?**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-09-02/meteo-vers-un-changement-de-temps-la-semaine-prochaine-apres-les-fortes-chaleurs-91956)
+
+
+### سفير (N/A, Thu, 3 Sep 2026 07:00:00 -0700)
+
+- **سوريا.. الشيباني يتسلم أوراق اعتماد سفير البرازيل الجديد**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%B4%D9%8A%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D8%B3%D9%84%D9%85-%D8%A3%D9%88%D8%B1%D8%A7%D9%82-%D8%A7%D8%B9%D8%AA%D9%85%D8%A7%D8%AF-%D8%B3%D9%81%D9%8A%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/4046376)
+- **وزير الخارجية يستقبل سفير البرازيل ويتسلّم نسخة عن أوراق اعتماده**: [Link](https://sana.sy/syria-and-the-world/2571064/)
+- **هلال: حركة عدم الانحياز مطالبة بالتكيف مع تحولات النظام الدولي**: [Link](https://2m.ma/ar/news/%D9%87%D9%84%D8%A7%D9%84-%D8%AD%D8%B1%D9%83%D8%A9-%D8%B9%D8%AF%D9%85-%D8%A7%D9%84%D8%A7%D9%86%D8%AD%D9%8A%D8%A7%D8%B2-%D9%85%D8%B7%D8%A7%D9%84%D8%A8%D8%A9-%D8%A8%D8%A7%D9%84%D8%AA%D9%83%D9%8A%D9%81-%D9%85%D8%B9-%D8%AA%D8%AD%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-20260902)
+
+
+### حسين رحيمي (N/A, Thu, 3 Sep 2026 06:50:00 -0700)
+
+- **"رحيمي الأب" يغادر إلى دار البقاء**: [Link](https://www.hespress.com/%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A5%D9%84%D9%89-%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%82%D8%A7%D8%A1-1801237.html)
+- **وفاة "الحاج يوعري" والد سفيان وحسين رحيمي**: [Link](https://madar21.com/450323.html)
+- **العين الإماراتي يعزي في وفاة يوعري**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%8A%D8%B9%D8%B2%D9%8A-%D9%81%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D9%8A%D9%88%D8%B9%D8%B1%D9%8A/24846)
+
+
+### chômage (N/A, Thu, 3 Sep 2026 05:30:00 -0700)
+
+- **Données du commerce international des États-Unis en juillet**: [Link](https://www.zonebourse.com/actualite-bourse/donnees-du-commerce-international-des-etats-unis-en-juillet-ce7858d3d08ef125)
+- **Allocations chômage US en légère hausse; marché du travail en 'slow hire, slow fire'**: [Link](https://invezz.com/fr/actualites/2026/09/03/allocations-chomage-us-en-legere-hausse-marche-du-travail-en-slow-hire-slow-fire/)
+- **USA : légère hausse des inscriptions hebdomadaires au chômage**: [Link](https://www.boursorama.com/bourse/actualites/usa-legere-hausse-des-inscriptions-hebdomadaires-au-chomage-e118e388ba86da8ba6c5f3f4e3254584)
+
+
+### resultat quinte (N/A, Thu, 3 Sep 2026 05:20:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 1 Zelzara**: [Link](https://www.zone-turf.fr/actualite/plat/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-1-zelzara-130444.html)
+- **PRIX DU CREDIT AGRICOLE NORD-EST**: [Link](https://www.equidia.fr/courses/2026-09-02/R1/C1)
+- **Les pronostics hippiques de Sébastien Mortagne : Mercredi 2 Septembre**: [Link](https://www.rdlradio.fr/page-contenu-article-1561)
+
+
+### محمد سليمان (N/A, Thu, 3 Sep 2026 05:10:00 -0700)
+
+- **ثلاث رصاصات من البحر.. كواليس اغتيال إسرائيل لمساعد بشار الأسد**: [Link](https://www.aljazeera.net/news/2026/9/3/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D8%BA%D8%AA%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B9%D9%85%D9%8A%D8%AF)
+- **إسرائيل تعترف باغتيال مهندس "النووي السوري" وكاتم أسرار الأسد في طرطوس.. كيف جرت العملية؟**: [Link](https://arabic.euronews.com/2026/09/03/ehud-olmert-muhammad-suleiman-tartous-assassination-israeli-commandos-syrian-nuclear-r)
+- **3 رصاصات أنهت العشاء الأخير.. كيف اغتالت إسرائيل «كاتم أسرار» الأسد؟**: [Link](https://al-ain.com/article/israel-mohammed-suleiman-bashar-al-assad)
+
+
 ### caf (N/A, Thu, 3 Sep 2026 03:50:00 -0700)
 
 - **Can anyone stop Mamelodi Sundowns in the 2026/27 CAF Champions League?**: [Link](https://www.ewn.co.za/can-anyone-stop-mamelodi-sundowns-in-the-202627-caf-champions-league/)
