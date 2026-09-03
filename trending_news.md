@@ -1,3 +1,73 @@
+### real sociedad – celta vigo (N/A, Thu, 3 Sep 2026 11:20:00 -0700)
+
+- **¿Por qué adelantan Real Sociedad y Celta el partido de la sexta fecha?**: [Link](https://es-us.noticias.yahoo.com/deportes/adelantan-real-sociedad-celta-partido-134000398.html)
+- **15:30H | 03 SEPTIEMBRE 2026 | DEPORTES EN COPE EN LA PROVINCIA DE PONTEVEDRA**: [Link](https://www.cope.es/emisoras/galicia/pontevedra-provincia/podcast/episodios/15-30h-03-septiembre-2026-deportes-cope-provincia-pontevedra-20260903_3429994.html)
+- **Otro paso más**: [Link](https://www.realsociedad.eus/es/noticias/detalle/otro-paso-mas-5)
+
+
+### toulouse – lille (N/A, Thu, 3 Sep 2026 11:00:00 -0700)
+
+- **Toulouse FC – LOSC : Pourquoi les Dogues doivent-ils se méfier de Casper Tengstedt ?**: [Link](https://lepetitlillois.com/2026/09/03/tfc-losc-pourquoi-dogues-mefier-tengstedt/)
+- **Première titularisation en Ligue 1 pour Ilyas Azizi, Ayase Ueda sur le banc du LOSC : les compos de Toulouse-Lille**: [Link](https://www.lequipe.fr/Football/Actualites/Premiere-titularisation-en-ligue-1-pour-ilyas-azizi-ayase-ueda-sur-le-banc-du-losc-les-compos-de-toulouse-lille/1715840)
+- **PRONOS PARIS RMC Le pari football de Pascal Dupraz du 3 septembre - Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-football-de-pascal-dupraz-du-3-septembre-ligue-1_AN-202609030523.html)
+
+
+### كريم البركاوي (N/A, Thu, 3 Sep 2026 11:00:00 -0700)
+
+- **كريم البركاوي لاعبا جديدا لنادي الظفرة الإماراتي**: [Link](https://assabah.ma/947590.html)
+- **البركاوي يجدد للظفرة الإماراتي ويسدل الستار على مفاوضات الوداد**: [Link](https://radiomars.ma/%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D9%83%D8%A7%D9%88%D9%8A-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D8%B8%D9%81%D8%B1%D8%A9-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A/)
+- **العسري يخسر صفقة البركاوي ويقرر شراء عقد مبينزا**: [Link](https://www.sport7.ma/%D8%A7%D9%84%D8%B9%D8%B3%D8%B1%D9%8A-%D9%8A%D8%AE%D8%B3%D8%B1-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%83%D8%A7%D9%88%D9%8A-%D9%88%D9%8A%D9%82%D8%B1%D8%B1-%D8%B4%D8%B1%D8%A7%D8%A1-%D8%B9/)
+
+
+### الأهلي ضد سموحة (N/A, Thu, 3 Sep 2026 10:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي وسموحة في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%B3%D9%85%D9%88%D8%AD%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4daa40a3cc78dc46)
+- **الأهلي وسموحة 0-0.. القائم يتصدى لأخطر فرص الأحمر في الشوط الأول**: [Link](https://daralmaref.com/News/2584878.aspx)
+- **أمين عمر يظهر بـ لوك جديد بعد أداء العمرة خلال مباراة الأهلي وسموحة**: [Link](https://www.youm7.com/story/2026/9/3/%D8%A3%D9%85%D9%8A%D9%86-%D8%B9%D9%85%D8%B1-%D9%8A%D8%B8%D9%87%D8%B1-%D8%A8%D9%80-%D9%84%D9%88%D9%83-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D9%85%D8%B1%D8%A9-%D8%AE%D9%84%D8%A7%D9%84/7535313)
+
+
+### mitsubishi pajero (N/A, Thu, 3 Sep 2026 10:40:00 -0700)
+
+- **2027 Mitsubishi Pajero First Look: Hello, Montero!**: [Link](https://www.motortrend.com/news/first-look-2027-mitsubishi-pajero)
+- **Mitsubishi Motors Unveils the All-New Pajero Cross-Country SUV**: [Link](https://www.mitsubishi-motors.com/en/newsroom/newsrelease/2026/20260902_1.html)
+- **Mitsubishi Pajero goes premium in pursuit of Toyota Land Cruiser**: [Link](https://www.autonews.com/mitsubishi/an-mitsubishi-pajero-montero-suv-launch-revival-next-generation-crossover-0902/)
+
+
+### ألعاب البحر الأبيض المتوسط (N/A, Thu, 3 Sep 2026 09:40:00 -0700)
+
+- **نصف ماراطون المتوسط يتوج برداحة**: [Link](https://www.hespress.com/%D9%86%D8%B5%D9%81-%D9%85%D8%A7%D8%B1%D8%A7%D8%B7%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%B3%D8%B7-%D9%8A%D8%AA%D9%88%D8%AC-%D8%A8%D8%B1%D8%AF%D8%A7%D8%AD%D8%A9-1801228.html)
+- **بالأرقام.. ترتيب الرياضات المغربية الأكثر تتويجاً في تارانتو 2026**: [Link](https://radiomars.ma/%D8%A8%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3/)
+- **بطلة في الكاراتي.. شيماء الحيطي تهدي المغرب ذهبية أخرى من إيطاليا**: [Link](https://2m.ma/ar/news/%D8%A8%D8%B7%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%B4%D9%8A%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D9%8A%D8%B7%D9%8A-%D8%AA%D9%87%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A3%D8%AE%D8%B1%D9%89-%D9%85%D9%86-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7--20260901)
+
+
+### جيه دي فانس (N/A, Thu, 3 Sep 2026 09:10:00 -0700)
+
+- **"المسيح الدجال قد يكون بيننا".. فانس يتحدث عن نهاية الزمان ومشيئة الله**: [Link](https://www.aljazeera.net/politics/2026/9/3/%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%AD-%D8%A7%D9%84%D8%AF%D8%AC%D8%A7%D9%84-%D9%82%D8%AF-%D9%8A%D9%83%D9%88%D9%86-%D8%A8%D9%8A%D9%86%D9%86%D8%A7-%D9%81%D8%A7%D9%86%D8%B3)
+- **فانس: إذا انتهى عملنا مع ترامب إلى "نهاية العالم" فهذا مقبول- (فيديو)**: [Link](https://www.alquds.co.uk/%D9%81%D8%A7%D9%86%D8%B3-%D8%A5%D8%B0%D8%A7-%D8%A7%D9%86%D8%AA%D9%87%D9%89-%D8%B9%D9%85%D9%84%D9%86%D8%A7-%D9%85%D8%B9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%A5%D9%84%D9%89-%D9%86%D9%87%D8%A7%D9%8A/)
+- **فانس يفتح باب «نهاية الأزمنة»: ماذا لو كان المسيح الدجال بيننا؟**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9%E2%80%8B/5313916-%D9%81%D8%A7%D9%86%D8%B3-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D9%86%D8%A9-%D9%85%D8%A7%D8%B0%D8%A7-%D9%84%D9%88-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%AD-%D8%A7%D9%84%D8%AF%D8%AC%D8%A7%D9%84-%D8%A8%D9%8A%D9%86%D9%86%D8%A7%D8%9F)
+
+
+### soufiane rahimi (N/A, Thu, 3 Sep 2026 08:50:00 -0700)
+
+- **Le Raja en deuil : décès de « Youari », père de S. Rahimi**: [Link](https://radiomars.ma/fr/?p=6018)
+- **Le père de Soufiane Rahimi, «Youari», n’est plus**: [Link](https://www.lesiteinfo.com/sport/681008-le-pere-de-soufiane-rahimi-youari-nest-plus.html)
+- **Le Raja perd sa mémoire vivante : adieu au Haj Mohamed Rahimi, "Youari", père d'une légende verte**: [Link](https://industries.ma/le-raja-perd-sa-memoire-vivante-adieu-au-haj-mohamed-rahimi-youari-pere-dune-legende-verte/)
+
+
+### يورغن كلوب (N/A, Thu, 3 Sep 2026 08:30:00 -0700)
+
+- **صراع مغربي ألماني.. يونس ابن طالب يقترب من حمل قميص الأسود – اليوم 24**: [Link](https://alyaoum24.com/2041502.html)
+- **بالفيديو.. هاتريك مغربي يسرق الأضواء في البوندسليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%B3%D8%B1%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D8%B6%D9%88%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%AC%D8%A7/bltb8260dfd5e569437)
+- **تحرك من كلوب لإقناع نجم مغربي باللعب لألمانيا**: [Link](https://ar.lesiteinfo.com/sport/%D8%AA%D8%AD%D8%B1%D9%83-%D9%85%D9%86-%D9%83%D9%84%D9%88%D8%A8-%D9%84%D8%A5%D9%82%D9%86%D8%A7%D8%B9-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D9%84%D8%A3-1018466.html)
+
+
+### chatgpt gratuit (N/A, Thu, 3 Sep 2026 08:30:00 -0700)
+
+- **ChatGPT, Claude, Gemini, Copilot: combien coûte réellement l’IA en 2026 ?**: [Link](https://snrtnews.com/article/chatgpt-claude-gemini-copilot-combien-coute-reellement-lia-en-2026-157870)
+- **ChatGPT Work : code web, Chrome scriptable et sites déployés**: [Link](https://www.briefia.fr/article/chatgpt-work-code-web-chrome-scriptable-et-sites-deployes)
+- **Claude ou Gemini : faut-il choisir l’intelligence ou la polyvalence ?**: [Link](https://android-mt.ouest-france.fr/services/intelligence-artificielle/claude-ou-gemini-faut-il-choisir-lintelligence-ou-la-polyvalence/212798/)
+
+
 ### ai (N/A, Thu, 3 Sep 2026 08:10:00 -0700)
 
 - **Nvidia inks $13 billion deal to buy the AI startup that was hacked by OpenAI**: [Link](https://www.cnn.com/2026/09/03/tech/nvidia-hugging-face-ai-acquisition)
