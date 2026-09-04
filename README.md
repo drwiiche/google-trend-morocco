@@ -1,3 +1,59 @@
+### الصندوق الوطني للضمان الاجتماعي (N/A, Fri, 4 Sep 2026 09:50:00 -0700)
+
+- **Déficit des polycliniques, fuite de données: la CNSS crée deux filiales pour s’attaquer à ses dossiers sensibles**: [Link](https://fr.le360.ma/economie/deficit-des-polycliniques-fuite-de-donnees-la-cnss-cree-deux-filiales-pour-sattaquer-a-ses-dossiers_DKUOQWWUANHEDFTLQ7IMW2H5OI/)
+- **Digital, polycliniques, nouvelles filiales… ce qui change à la CNSS**: [Link](https://lematin.ma/economie/digital-polycliniques-nouvelles-filiales-ce-qui-change-a-la-cnss/363449)
+- **CNSS : Plus de 25 millions de bénéficiaires de l'AMO en 2025, en hausse de 3%**: [Link](https://www.maroc24.com/fr/203135-cnss-plus-de-25-millions-de-beneficiaires-de-l-amo-en-2025-en-hausse-de-3/)
+
+
+### لحم (N/A, Fri, 4 Sep 2026 09:40:00 -0700)
+
+- **أسعار اللحوم اليوم الجمعة 4 سبتمبر**: [Link](https://akhbarelyom.com/news/newdetails/4873293/1/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%AD%D9%88%D9%85-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-4-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1)
+- **انخفاض الكندوز والبتلو، أسعار اللحوم اليوم الجمعة في الأسواق**: [Link](https://www.vetogate.com/5725010)
+- **انخفاض جديد في أسعار اللحوم اليوم الأربعاء.. البتلو يسجل 455 جنيهًا**: [Link](https://www.banker.news/150833)
+
+
+### lyon – auxerre (N/A, Fri, 4 Sep 2026 09:30:00 -0700)
+
+- **"Il a besoin de temps", "Des similarités avec la RAAL", "On sait où on a fauté" : quand Will Still trouvera-t-il la recette à Auxerre ?**: [Link](https://www.dhnet.be/sports/football/europe/championnatsetrangers/2026/09/04/il-a-besoin-de-temps-des-similarites-avec-la-raal-on-sait-ou-on-a-faute-quand-will-still-trouvera-t-il-la-recette-a-auxerre-W3ILSH6ZGFFYVEBBOUCB3DGTYU/)
+- **Huit buts encaissés en deux matches : l'AJ Auxerre doit très vite stopper l'hémorragie en Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Huit-buts-encaisses-en-deux-matches-l-aj-auxerre-doit-tres-vite-stopper-l-hemorragie-en-ligue-1/1715773)
+- **PRONOS PARIS RMC Le pari foot de Lionel Charbonnier du 4 septembre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-foot-de-lionel-charbonnier-du-4-septembre-ligue-1_AN-202609040569.html)
+
+
+### mitsubishi pajero 2027 (N/A, Fri, 4 Sep 2026 08:50:00 -0700)
+
+- **The Redesigned 2027 Mitsubishi Pajero Looks Ready to Take on the Toyota Land Cruiser**: [Link](https://www.caranddriver.com/news/a73592111/2027-mitsubishi-pajero-revealed/)
+- **In America, a Bull Bar Is a Look. In Australia, It’s Just Another Factory Option**: [Link](https://www.thedrive.com/news/in-america-a-bull-bar-is-a-look-in-australia-its-just-another-factory-option)
+- **Mitsubishi's 4Runner Fighter Officially Getting Bronco Sport-Sized Siblings**: [Link](https://carbuzz.com/mitsubishi-pajero-family-compact-crossover-september-2026/)
+
+
+### نادي المغرب الفاسي (N/A, Fri, 4 Sep 2026 07:20:00 -0700)
+
+- **المغرب الفاسي يتعاقد مع الموزمبيقي كاليلا من الدوري البرتغالي**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82%D9%8A-%D9%83%D8%A7/)
+- **المغرب الفاسي يتجه لتسريح الغدامسي وتعويضه بدولي موزمبيقي**: [Link](https://www.sport7.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%AA%D8%AC%D9%87-%D9%84%D8%AA%D8%B3%D8%B1%D9%8A%D8%AD-%D8%A7%D9%84%D8%BA%D8%AF%D8%A7%D9%85%D8%B3%D9%8A-%D9%88%D8%AA/)
+- **المغرب الفاسي في مفاوضات متقدمة لضم الدولي الموزمبيقي كاليلا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%81%D9%8A-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%85%D8%AA%D9%82%D8%AF%D9%85%D8%A9-%D9%84%D8%B6%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82%D9%8A-%D9%83%D8%A7%D9%84%D9%8A%D9%84%D8%A7/24794)
+
+
+### brosse à dents dyson (N/A, Fri, 4 Sep 2026 07:20:00 -0700)
+
+- **Dyson lance une brosse à dents à 479€ avec caméra et jet de bain de bouche**: [Link](https://freshmagparis.com/dyson-brosse-dents-camera-jet-bain-bouche/)
+- **« Ne pas prendre de risque, c'est prendre le risque de faire faillite » : entretien avec James Dyson, l'ingénieur star qui veut vivre « sur le fil du rasoir »**: [Link](https://www.lesechos.fr/industrie-services/conso-distribution/ne-pas-prendre-de-risque-cest-prendre-le-risque-de-faire-faillite-entretien-avec-james-dyson-lingenieur-star-qui-veut-vivre-sur-le-fil-du-rasoir-2249284)
+- **James Dyson (Dyson) : James Dyson, le déclic de l'aspirateur - 03/09**: [Link](https://www.bfmtv.com/economie/replay-emissions/tech-and-co/video-james-dyson-dyson-james-dyson-le-declic-de-l-aspirateur-03-09_VN-202609030888.html)
+
+
+### michael schumacher (N/A, Fri, 4 Sep 2026 06:00:00 -0700)
+
+- **Rosso Corsa: Why Ferrari race in red – and when they haven’t**: [Link](https://www.formula1.com/en/latest/article/a-history-of-ferraris-iconic-racing-liveries-in-f1-rosso-corsa-and-all-the-times-they-havent-raced-in-red.5gK8REBWYiX2h36Hv2Jcir)
+- **David Coulthard questions timing of Ferrari's Michael Schumacher tribute amid distraction concerns**: [Link](https://www.motorsport.com/f1/news/david-coulthard-questions-timing-of-ferraris-michael-schumacher-tribute-amid-distraction-concerns/10851864/)
+- **F1 - 2026 Italian Grand Prix - Thursday Press Conference Transcript**: [Link](https://www.fia.com/news/f1-2026-italian-grand-prix-thursday-press-conference-transcript)
+
+
+### carlo ancelotti (N/A, Fri, 4 Sep 2026 06:00:00 -0700)
+
+- **Carlo Ancelotti at Real Madrid City**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/carlo-ancelotti-en-la-ciudad-real-madrid-03-09-2026)
+- **Anceplott suddenly appears in Real Madrid's training, the reason is revealed!**: [Link](https://periskopi.com/en/2026/9/anceplott-suddenly-appears-real-madrids-training-reason-revealed)
+- **Ancelotti: I exchange ideas with Mourinho, and he would do an excellent job at Real Madrid**: [Link](https://www.goal.com/en/news/ancelotti-i-exchange-ideas-with-mourinho-and-he-will-do-an-excellent-job-at-real-madrid/bltc5ec704e7c9b41aa)
+
+
 ### démarchage (N/A, Fri, 4 Sep 2026 05:20:00 -0700)
 
 - **Centres d’appel. Trois semaines après la fin du démarchage en France: des enseignes retirées à Casablanca, 10.000 emplois touchés**: [Link](https://fr.le360.ma/economie/centres-dappel-trois-semaines-apres-la-fin-du-demarchage-en-france-des-enseignes-retirees-a_EKHR2UDAZRDP5E445MLZCJ7ZCM/)
