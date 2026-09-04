@@ -1,3 +1,24 @@
+### المهدي بنعطية (N/A, Fri, 4 Sep 2026 02:40:00 -0700)
+
+- **بنعطية يرافق الركراكي في تجربة جديدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%86%D8%B9%D8%B7%D9%8A%D8%A9-%D9%8A%D8%B1%D8%A7%D9%81%D9%82-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%81%D9%8A-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/blt0e10804b33a1be2e)
+- **الركراكي يخوض تجربة جديدة في فرنسا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-1800977.html)
+- **🔥الإعلان عن وظيفة وليد الركراكي الجديدة**: [Link](https://tanja7.com/191192/)
+
+
+### إنتر ميامي (N/A, Fri, 4 Sep 2026 01:50:00 -0700)
+
+- **رسميًا.. عدو فرنسا ينضم لميسي في إنتر ميامي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%B9%D8%AF%D9%88-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%8A%D9%86%D8%B6%D9%85-%D9%84%D9%85%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A/blt061322687a2e2261)
+- **إنتر ميامي يعلن التعاقد مع المونديالي جالارزا**: [Link](https://www.yallakora.com/friendly-matches-club/2541/news/564631/%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84%D9%8A-%D8%AC%D8%A7%D9%84%D8%A7%D8%B1%D8%B2%D8%A7)
+- **صديق مارادونا وملهم ميسي.. من هو مدرب إنتر ميامي الجديد؟**: [Link](https://www.aljazeera.net/sport/2026/9/3/%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86-%D8%BA%D9%88%D9%86%D8%B2%D8%A7%D9%84%D9%8A%D8%B3-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%8A%D8%B3%D9%8A-%D9%85%D8%A7%D8%B1%D8%A7%D8%AF%D9%88%D9%86%D8%A7)
+
+
+### roi harald v de norvège (N/A, Fri, 4 Sep 2026 00:30:00 -0700)
+
+- **Après la mort du roi Harald V de Norvège, Abdallah II et Rania de Jordanie prennent une décision forte**: [Link](https://www.gala.fr/royautes/apres-la-mort-du-roi-harald-v-de-norvege-abdallah-ii-et-rania-de-jordanie-prennent-une-decision-forte-20260903)
+- **Le chagrin de la princesse Astrid seule face au cercueil de son frère Harald V**: [Link](https://histoiresroyales.fr/princesse-astrid-seule-face-cercueil-de-son-frere-harald-v/)
+- **La reine Mette-Marit de Norvège emmenée brièvement à l'hôpital par son époux le roi Haakon VIII après sa prestation de serment**: [Link](https://www.bfmtv.com/people/tetes-couronnees/la-reine-mette-marit-de-norvege-emmenee-brievement-a-l-hopital-par-son-epoux-le-roi-haakon-viii-apres-sa-prestation-de-serment_AD-202609020110.html)
+
+
 ### ريال بيتيس (N/A, Thu, 3 Sep 2026 16:50:00 -0700)
 
 - **يشجع برشلونة وهاجمته قناة الملكي.. إعلان حكم لقاء الريال وبيتيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%B4%D8%AC%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%87%D8%A7%D8%AC%D9%85%D8%AA%D9%87-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A--%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%AD%D9%83%D9%85-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/blt7ab14aa6499bbb67)
