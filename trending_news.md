@@ -1,3 +1,24 @@
+### démarchage (N/A, Fri, 4 Sep 2026 05:20:00 -0700)
+
+- **Centres d’appel. Trois semaines après la fin du démarchage en France: des enseignes retirées à Casablanca, 10.000 emplois touchés**: [Link](https://fr.le360.ma/economie/centres-dappel-trois-semaines-apres-la-fin-du-demarchage-en-france-des-enseignes-retirees-a_EKHR2UDAZRDP5E445MLZCJ7ZCM/)
+- **Centres d’appels : la fin du démarchage coûte déjà des milliers d’emplois**: [Link](https://medias24.com/2026/09/01/centres-dappels-les-premiers-effets-sur-lemploi-1746417/)
+- **Centres d’appels : l’UMT réclame un dialogue tripartite**: [Link](https://h24info.ma/economie/centres-appels-umt-dialogue/)
+
+
+### azzedine ounahi (N/A, Fri, 4 Sep 2026 04:10:00 -0700)
+
+- **L’international marocain Azzedine Ounahi rejoint le Panathinaïkos pour quatre ans**: [Link](https://telquel.ma/instant-t/2026/09/04/linternational-marocain-azzedine-ounahi-rejoint-le-panathinaikos-pour-quatre-ans_2005678/)
+- **Ounahi vers la Grèce, une trajectoire loin des promesses de 2022**: [Link](https://radiomars.ma/fr/?p=5964)
+- **Mercato : Ounahi proche d’un retour au Panathinaïkos**: [Link](https://lopinion.ma/fr/sport/newsroom/mercato--ounahi-proche-dun-retour-au-panathinaikos_a10493?articleId=847bb763-6a50-465b-bfda-b17a4da720c1)
+
+
+### tanzanie (N/A, Fri, 4 Sep 2026 03:00:00 -0700)
+
+- **Un safari vire au cauchemar pour des touristes en Tanzanie**: [Link](https://www.lesoir.be/768876/article/2026-09-03/un-safari-vire-au-cauchemar-pour-des-touristes-en-tanzanie)
+- **Un safari tourne mal en Tanzanie: une jeep transportant des touristes finit dans une rivière pleine de crocodiles**: [Link](https://www.7sur7.be/monde/un-safari-tourne-mal-en-tanzanie-une-jeep-transportant-des-touristes-finit-dans-une-riviere-pleine-de-crocodiles~a4bc0e43/)
+- **Tanzanie: grosse frayeur pour des touristes suisses en safari**: [Link](https://www.20min.ch/fr/story/tanzanie-grosse-frayeur-pour-des-touristes-suisses-en-safari-103626266)
+
+
 ### المهدي بنعطية (N/A, Fri, 4 Sep 2026 02:40:00 -0700)
 
 - **بنعطية يرافق الركراكي في تجربة جديدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%86%D8%B9%D8%B7%D9%8A%D8%A9-%D9%8A%D8%B1%D8%A7%D9%81%D9%82-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%81%D9%8A-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/blt0e10804b33a1be2e)
