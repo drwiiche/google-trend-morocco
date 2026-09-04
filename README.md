@@ -1,3 +1,73 @@
+### real betis vs real madrid standings (N/A, Fri, 4 Sep 2026 14:30:00 -0700)
+
+- **Real Betis 1-0 Real Madrid: Substitute Troy Parrott scores winner as Jose Mourinho suffers first loss**: [Link](https://www.bbc.com/sport/football/live/c3n071elp7jyt)
+- **Betis: Abde Ezzalzouli ruled out against Real Madrid**: [Link](https://mountakhab.net/en/betis-abde-ezzalzouli-ruled-out-against-real-madrid/)
+- **A Madrid journalist: Mourinho surprised me with this decision**: [Link](https://www.goal.com/en/news/a-madrid-journalist-mourinho-surprised-me-with-this-decision/bltff7d3ceda7e4a5b9)
+
+
+### لويس إنريكي (N/A, Fri, 4 Sep 2026 14:30:00 -0700)
+
+- **قرار رسمي من سان جيرمان بشأن مصير إنريكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B1%D8%B3%D9%85%D9%8A-%D9%85%D9%86-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D9%85%D8%B5%D9%8A%D8%B1-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A/blt55772183b6ce476a)
+- **لويس إنريكي يمدّد عقده مع باريس**: [Link](https://www.hespress.com/%D9%84%D9%88%D9%8A%D8%B3-%D8%A5%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D9%85%D8%AF%D9%91%D8%AF-%D8%B9%D9%82%D8%AF%D9%87-%D9%85%D8%B9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-1802061.html)
+- **باريس سان جيرمان يجدد عقد مدربه لويس إنريكي حتى 2030**: [Link](https://radiomars.ma/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AC%D8%AF%D8%AF-%D8%B9%D9%82%D8%AF-%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D9%84%D9%88%D9%8A%D8%B3-%D8%A5%D9%86/)
+
+
+### as (N/A, Fri, 4 Sep 2026 14:20:00 -0700)
+
+- **Meals tax money not going to tourism as intended**: [Link](https://www.wfsb.com/2026/09/04/meals-tax-money-not-going-tourism-intended/)
+- **Cathy Engelbert, who oversaw WNBA boom, to retire as commissioner**: [Link](https://www.espn.com/wnba/story/_/id/49825466/sources-wnba-commissioner-cathy-engelbert-retire)
+- **WNBA Commissioner Cathy Engelbert to Retire Stream of WNBA**: [Link](https://www.cbssports.com/watch/wnba/video/wnba-commissioner-cathy-engelbert-to-retire)
+
+
+### classement ipswich town – liverpool football club (N/A, Fri, 4 Sep 2026 14:10:00 -0700)
+
+- **Liverpool signe sa première victoire de l'ère Iraola contre Ipswich en Premier League, Bradley Barcola fait ses grands débuts avec les Reds**: [Link](https://www.lequipe.fr/Football/Actualites/Liverpool-signe-sa-premiere-victoire-de-l-ere-iraola-contre-ipswich-en-premier-league-bradley-barcola-fait-ses-grands-debuts-avec-les-reds/1716211)
+- **Liverpool : Barcola sur le banc mais…**: [Link](https://www.footmercato.net/a6410761324716010838-liverpool-barcola-sur-le-banc-mais)
+- **Suivez Ipswich - Liverpool En direct - Premier League - 3e journée**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-ipswich-town-liverpool_mtc21883024/live-commentary.shtml)
+
+
+### مباريات اليوم (N/A, Fri, 4 Sep 2026 14:10:00 -0700)
+
+- **جدول مباريات اليوم السبت 5 سبتمبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-5-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt2386b316c11ee2fb)
+- **مواعيد مباريات اليوم.. الزمالك في إفريقيا وظهور ليفربول وريال مدريد**: [Link](https://www.elwatannews.com/news/details/8351783)
+- **مواعيد مباريات اليوم الجمعة 4-9-2026 والقنوات الناقلة.. الزمالك يواجه إيه إس بورت في دوري أبطال إفريقيا**: [Link](https://www.btolat.com/news/409336)
+
+
+### match (N/A, Fri, 4 Sep 2026 14:10:00 -0700)
+
+- **'It's so strong' - Sabalenka halts play over cannabis smell**: [Link](https://www.bbc.com/sport/tennis/articles/c4gm2607p0zo)
+- **Aryna Sabalenka complains about the smell of marijuana during her U.S. Open match**: [Link](https://www.nbcnews.com/sports/tennis/aryna-sabalenka-complains-smell-marijuana-us-open-rcna596185)
+- **Is the US Open the loudest -- and smelliest -- of the majors?**: [Link](https://www.espn.com/tennis/story/_/id/49820391/us-open-2026-smells-marijuana-loud-crowd-noise-arthur-ashe-stadium)
+
+
+### koora (N/A, Fri, 4 Sep 2026 14:00:00 -0700)
+
+- **كونتي وتوران على رأس المرشحين لتدريب طرابزون سبور**: [Link](https://www.aljazeera.net/sport/2026/9/2/%D9%83%D9%88%D9%86%D8%AA%D9%8A-%D8%A3%D8%B1%D8%AF%D8%A7-%D8%AA%D9%88%D8%B1%D8%A7%D9%86-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D8%B3%D8%A8%D9%88%D8%B1)
+- **فوضى يعيشها صلاح في تركيا .. طرابزون يطيح رسميًا بمدربه بعدما رفض استقالته!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%95%D9%82%D8%A7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B7%D8%B1%D8%A7%D8%A8%D8%B2%D9%88%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%81%D8%A7%D8%AA%D8%AD-%D8%AA%D9%82%D9%8A/bltf969598527e159d4)
+- **شاختار يكشف لـ365Scores: هل يرحل أردا توران لتدريب طرابزون سبور؟**: [Link](https://www.365scores.com/ar/news/magazine/%D8%B4%D8%A7%D8%AE%D8%AA%D8%A7%D8%B1-%D9%8A%D9%83%D8%B4%D9%81-%D9%84%D9%80365scores-%D9%87%D9%84-%D9%8A%D8%B1%D8%AD%D9%84-%D8%A3%D8%B1%D8%AF%D8%A7-%D8%AA%D9%88%D8%B1%D8%A7%D9%86-%D9%84%D8%AA%D8%AF/)
+
+
+### flashscore (N/A, Fri, 4 Sep 2026 14:00:00 -0700)
+
+- **Richarlison: Striker's omission not my decision says Spurs boss Roberto de Zerbi**: [Link](https://www.bbc.com/sport/football/articles/c79038z3q4yo)
+- **Tottenham could rip up Richarlison’s contract and blow transfer saga wide open**: [Link](https://talksport.com/football/4558382/tottenham-terminate-richarlison-contract-trabzonspor-transfer/)
+- **From the Premier League: Salah steps in to seal a last-minute deal**: [Link](https://www.goal.com/en/news/from-the-premier-league-salah-intervenes-to-seal-a-last-minute-deal/blt8a319672a4d85a4d)
+
+
+### real vs betis (N/A, Fri, 4 Sep 2026 14:00:00 -0700)
+
+- **En vídeo: el VAR frustra al Real Madrid al anular la espectacular chilena de Asensio**: [Link](https://www.goal.com/es-mx/noticias/en-video-el-var-frustra-al-real-madrid-al-anular-la-espectacular-chilena-de-asensio/bltdaa8c1e6ebb95da3)
+- **Por qué anularon el gol de Carlos Espí en Betis vs Real Madrid: fuera de juego milimétrico**: [Link](https://www.365scores.com/es/news/por-que-anularon-real-madrid-var-betis/)
+- **La tecnología del videoarbitraje frustra al Real Madrid al anular la espectacular chilena de Ceballos**: [Link](https://www.goal.com/es/noticias/la-tecnologia-del-videoarbitraje-frustra-al-real-madrid-al-anular-la-espectacular-chilena-de-ceballos/bltdaa8c1e6ebb95da3)
+
+
+### sofascore (N/A, Fri, 4 Sep 2026 14:00:00 -0700)
+
+- **Top 5 Serie A signings**: [Link](https://www.beinsports.com/en-us/soccer/serie-a/articles/top-5-serie-a-signings-2026-09-01)
+- **CorSera: Milan and Juve, the investments are record-breaking**: [Link](https://milanreports.com/2026/09/03/corsera-milan-and-juve-the-investments-are-record-breaking/)
+- **Serie A Transfer Window: Moneyball Moves & Top Signings**: [Link](https://www.sofascore.com/news/serie-as-summer-overhaul-english-class-club-records-and-moneyball-gambles)
+
+
 ### kooora live (N/A, Fri, 4 Sep 2026 12:30:00 -0700)
 
 
