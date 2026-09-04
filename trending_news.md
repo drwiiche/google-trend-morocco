@@ -1,3 +1,38 @@
+### ريال بيتيس (N/A, Thu, 3 Sep 2026 16:50:00 -0700)
+
+- **يشجع برشلونة وهاجمته قناة الملكي.. إعلان حكم لقاء الريال وبيتيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%B4%D8%AC%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%87%D8%A7%D8%AC%D9%85%D8%AA%D9%87-%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A--%D8%A7%D9%95%D8%B9%D9%84%D8%A7%D9%86-%D8%AD%D9%83%D9%85-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/blt7ab14aa6499bbb67)
+- **مباراة ريال مدريد ضد ريال بيتيس في الدوري الإسباني.. الموعد والقنوات الناقلة والتشكيلتان المتوقعتان**: [Link](https://www.aljazeera.net/sport/2026/9/3/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%81%D9%8A)
+- **مواجهة مغربية خالصة في قمة الدوري الاسباني .**: [Link](https://radiomars.ma/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AE%D8%A7%D9%84%D8%B5%D8%A9-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3/)
+
+
+### thaïlande (N/A, Thu, 3 Sep 2026 16:30:00 -0700)
+
+- **Dès le 15 septembre 2026, les Marocains devront obtenir un visa pour se rendre en Thaïlande**: [Link](https://medias24.com/2026/09/02/des-le-15-septembre-2026-les-marocains-devront-obtenir-un-visa-pour-se-rendre-en-thailande-1747177/)
+- **En Thaïlande, le pouvoir augmente la pression sur les touristes et les étrangers**: [Link](https://www.lemonde.fr/international/article/2026/09/02/en-thailande-le-pouvoir-augmente-la-pression-sur-les-touristes-et-les-etrangers_6764419_3210.html)
+- **Voyage en Thaïlande : Nouvelles règles d’entrée pour les Marocains**: [Link](https://lematin.ma/videos/voyage-en-thailande-nouvelles-regles-dentree-pour-les-marocains/363203)
+
+
+### donald trump (N/A, Thu, 3 Sep 2026 16:20:00 -0700)
+
+- **White House Releases Arcade Games Focused on Deportation**: [Link](https://www.tmz.com/2026/09/03/white-house-releases-arcade-games-focused-on-deportation/)
+- **Trump Arcade**: [Link](https://www.dailyrecordnews.com/ap_news/us/trump-arcade/image_aaf33223-6f7d-5f1b-a8b8-64b9cba5a334.html)
+- **White House Debuts MAGA Video Games Where Players Build the Border Wall and Punch Unhealthy Food**: [Link](https://www.mediaite.com/politics/trump/white-house-debuts-maga-video-games-where-players-build-the-border-wall-and-punch-unhealthy-food/)
+
+
+### منتخب إسبانيا لكرة القدم (N/A, Thu, 3 Sep 2026 16:10:00 -0700)
+
+- **رسميًا.. اعتزال دولي مفاجئ لنجم إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%AF%D9%88%D9%84%D9%8A-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blt652804ed89cc076f)
+- **الإسباني يورنتي بطل العالم يعتزل اللعب دوليا عن 31 عاما**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260903-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D8%B1%D9%86%D8%AA%D9%8A-%D8%A8%D8%B7%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%8A%D8%B9%D8%AA%D8%B2%D9%84-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D8%AF%D9%88%D9%84%D9%8A%D8%A7-%D8%B9%D9%86-31-%D8%B9%D8%A7%D9%85%D8%A7)
+- **ماركوس يورينتي يعلن اعتزاله دوليًا مع إسبانيا بعمر 31 عامًا**: [Link](https://www.youm7.com/story/2026/9/3/%D9%85%D8%A7%D8%B1%D9%83%D9%88%D8%B3-%D9%8A%D9%88%D8%B1%D9%8A%D9%86%D8%AA%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87-%D8%AF%D9%88%D9%84%D9%8A%D9%8B%D8%A7-%D9%85%D8%B9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B9%D9%85%D8%B1-31-%D8%B9%D8%A7%D9%85%D9%8B%D8%A7/7535387)
+
+
+### ألعاب البحر الأبيض المتوسط تارانتو 2026 (N/A, Thu, 3 Sep 2026 14:40:00 -0700)
+
+- **نصف ماراطون المتوسط يتوج برداحة**: [Link](https://www.hespress.com/%D9%86%D8%B5%D9%81-%D9%85%D8%A7%D8%B1%D8%A7%D8%B7%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%B3%D8%B7-%D9%8A%D8%AA%D9%88%D8%AC-%D8%A8%D8%B1%D8%AF%D8%A7%D8%AD%D8%A9-1801228.html)
+- **تارانتو 2026... المغرب يكتب صفحة تاريخية جديدة في ألعاب البحر الأبيض المتوسط بإحرازه 44 ميدالية منها 16 ذهبية**: [Link](https://alyaoum24.com/2041796.html)
+- **بطلة في الكاراتي.. شيماء الحيطي تهدي المغرب ذهبية أخرى من إيطاليا**: [Link](https://2m.ma/ar/news/%D8%A8%D8%B7%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%B4%D9%8A%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D8%AD%D9%8A%D8%B7%D9%8A-%D8%AA%D9%87%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A3%D8%AE%D8%B1%D9%89-%D9%85%D9%86-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7--20260901)
+
+
 ### وزير الدفاع الإسرائيلي (N/A, Thu, 3 Sep 2026 15:30:00 -0700)
 
 - **وزير الدفاع الإسرائيلي يتوعد بضرب البنى التحتية ومنشآت الطاقة في إيران**: [Link](https://www.aljazeera.net/news/2026/9/3/%D9%83%D8%A7%D8%AA%D8%B3-%D9%8A%D9%87%D8%AF%D8%AF-%D8%A8%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D9%86%D9%89-%D8%A7%D9%84%D8%AA%D8%AD%D8%AA%D9%8A%D8%A9-%D9%88%D9%85%D9%86%D8%B4%D8%A2%D8%AA)
