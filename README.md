@@ -1,3 +1,71 @@
+### kooora live (N/A, Fri, 4 Sep 2026 12:30:00 -0700)
+
+
+
+
+### إيبسويتش تاون ضد ليفربول (N/A, Fri, 4 Sep 2026 12:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إبسويتش تاون وليفربول في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D8%A8%D8%B3%D9%88%D9%8A%D8%AA%D8%B4-%D8%AA%D8%A7%D9%88%D9%86-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt98af97eec8e1bdcb)
+- **إيراولا يكشف سبب جلوس باركولا على مقاعد البدلاء أمام إبسويتش تاون**: [Link](https://www.filgoal.com/articles/536405/%D8%A5%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%A8%D8%A8-%D8%AC%D9%84%D9%88%D8%B3-%D8%A8%D8%A7%D8%B1%D9%83%D9%88%D9%84%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D8%A8%D8%B3%D9%88%D9%8A%D8%AA%D8%B4-%D8%AA%D8%A7%D9%88%D9%86)
+- **في مباراة اليوم.. ليفربول يطارد أول انتصار بالدوري الإنجليزي بعد رحيل محمد صلاح**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2026/9/4/3043198)
+
+
+### galatasaray (N/A, Fri, 4 Sep 2026 12:00:00 -0700)
+
+- **Gabriel Sara'dan Başakşehir maçı sonrası açıklamalar: Osimhen ve Lemina'nın çıkması da bizi zorladı!**: [Link](https://www.aspor.com.tr/galatasaray/2026/09/04/gabriel-saradan-basaksehir-maci-sonrasi-aciklamalar-osimhen-ve-leminanin-cikmasi-da-bizi-zorladi)
+- **Galatasaray'da Rafael Leao ve Deniz Gül, ilk kez oynadı**: [Link](https://www.ensonhaber.com/galatasarayda-rafael-leao-ve-deniz-gul-ilk-kez-oynadi-h1563057)
+- **Başakşehir'de Nuri Şahin kırmızı kart gördü!**: [Link](https://www.hurriyet.com.tr/sporarena/basaksehirde-nuri-sahin-kirmizi-kart-gordu-43296488)
+
+
+### فرينكي دي يونج (N/A, Fri, 4 Sep 2026 12:00:00 -0700)
+
+- **قرار صادم من دي يونج يضع برشلونة في مأزق**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B5%D8%A7%D8%AF%D9%85-%D9%85%D9%86-%D8%AF%D9%8A-%D9%8A%D9%88%D9%86%D8%AC-%D9%8A%D8%B6%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D9%85%D8%A7%D9%94%D8%B2%D9%82/blt4ce5329caf99752a)
+- **لوك دي يونغ يقترب من العودة ويُبدي انفتاحه على مواصلة… | يلا شووت**: [Link](https://www.ysscores.com/ar/news/14036329/%D9%84%D9%88%D9%83-%D8%AF%D9%8A-%D9%8A%D9%88%D9%86%D8%BA-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%88%D9%8A%D9%8F%D8%A8%D8%AF%D9%8A-%D8%A7%D9%86%D9%81%D8%AA%D8%A7%D8%AD%D9%87-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D9%85%D8%B3%D9%8A%D8%B1%D8%AA%D9%87)
+- **أزمة إصابة دي يونج تلقي بظلالها على برشلونة**: [Link](https://www.ysscores.com/ar/news/14036886/%D8%A3%D8%B2%D9%85%D8%A9-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AF%D9%8A-%D9%8A%D9%88%D9%86%D8%AC-%D8%AA%D9%84%D9%82%D9%8A-%D8%A8%D8%B8%D9%84%D8%A7%D9%84%D9%87%D8%A7-%D8%B9%D9%84%D9%89-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
+### carlos alcaraz (N/A, Fri, 4 Sep 2026 11:50:00 -0700)
+
+- **Mediodía (03-09-26) Carlos Alcaraz reta a la ATP con una decisión que puede marcar un antes y un después**: [Link](https://www.atresplayer.com/lasexta/noticias/deportes/septiembre-2026/03-09-26-carlos-alcaraz-reta-a-la-atp-con-una-decision-que-puede-marcar-un-antes-y-un-despues_6a99452ee0dc1500078388f3/)
+- **La polémica con el calendario del tenis de la que ha vuelto a quejarse Alcaraz: «Si no hacen nada, será peor»**: [Link](https://www.eldebate.com/deportes/tenis/20260904/polemica-calendario-tenis-vuelto-quejarse-alcaraz-no-hacen-nada-sera-peor_455082.html)
+- **Alcaraz admite que no puede participar en todo el circuito ATP.**: [Link](https://www.vietnam.vn/es/alcaraz-thua-nhan-khong-the-tham-gia-het-atp-tour)
+
+
+### الشباب ضد الهلال (N/A, Fri, 4 Sep 2026 11:50:00 -0700)
+
+- **سبب غير معتاد يؤخر بداية مباراة الهلال والشباب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A8%D8%A8-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B9%D8%AA%D8%A7%D8%AF-%D9%8A%D9%88%D9%94%D8%AE%D8%B1-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8/blt7c8559bf19e4c23e)
+- **ما القنوات الناقلة لمباراة الشباب والهلال في دوري روشن السعودي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltfdf022be22e3781f)
+- **بث مباشر لحظة بلحظة: مباراة الشباب والهلال في الدوري السعودي 2027**: [Link](https://al-ain.com/article/al-shabab-al-hilal-saudi-pro-league-2026-live)
+
+
+### psg vs monaco (N/A, Fri, 4 Sep 2026 11:40:00 -0700)
+
+- **PSG vs Monaco LIVE: Score, goals and live updates | Ligue 1**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/psg-vs-monaco-live-score-goals-and-ligue-1-updates-2026-09-03)
+- **Paris Saint-Germain vs Monaco Confirmed Lineups**: [Link](https://www.whoscored.com/news/fGau69D9oEGyYauwQ3VLVw/show/20260904-paris-saint-germain-vs-monaco-confirmed-lineup-1788546370)
+- **++[LIVESTREAMS]FREE! Monaco v PSG Live Free Soccer Match Event 05 September 2026**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sarahkatie172sf.github.io/ant/mm.xml%22/%3E%3C/krpano%3E&id=monaco-v-psg-l-845)
+
+
+### stuttgart – cologne (N/A, Fri, 4 Sep 2026 11:40:00 -0700)
+
+- **Preview: Stuttgart vs FC Koln - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/stuttgart/preview/stuttgart-vs-fc-koln-prediction-team-news-lineups_604211.html)
+- **📸 How did that stay out? Köln get a huge slice of luck v VfB**: [Link](https://onefootball.com/en/news/how-did-that-stay-out-koeln-get-a-huge-slice-of-luck-v-vfb-43402621)
+- **Licensable picture: VfB Stuttgart - 1. FC Koeln, 1. Bundesliga, 2. Spieltag**: [Link](https://www.reutersconnect.com/item/vfb-stuttgart-1-fc-koeln-1-bundesliga-2-spieltag/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBTNTJYNTE)
+
+
+### paris-sg – monaco (N/A, Fri, 4 Sep 2026 11:30:00 -0700)
+
+- **PSG : y a-t-il un problème Lucas Digne, non retenu par Luis Enrique pour la réception de Monaco ?**: [Link](https://www.lequipe.fr/Football/Actualites/Psg-y-a-t-il-un-probleme-lucas-digne-non-retenu-par-luis-enrique-pour-la-reception-de-monaco/1716137)
+- **PSG : les raisons de la mise à l’écart de Lucas Digne par Luis Enrique**: [Link](https://www.footmercato.net/a813660180807184201-psg-les-raisons-de-la-mise-a-lecart-de-lucas-digne-par-luis-enrique)
+- **Ligue 1 : le PSG face à Monaco ce soir**: [Link](https://lopinion.ma/fr/sport/newsroom/ligue-1--le-psg-face-a-monaco-ce-soir_a65387?articleId=29c9e0ff-52e3-4254-bc66-508e84dd95af)
+
+
+### ipswich town – liverpool (N/A, Fri, 4 Sep 2026 11:20:00 -0700)
+
+- **Premier League LIVE: Ipswich Town vs Liverpool - score, text commentary, team news & match stats**: [Link](https://www.bbc.com/sport/football/live/c6vgy8x2z08et)
+- **Confirmed Liverpool line-up v Ipswich Town**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-ipswich-town-1)
+- **Premier League predictions & Jones Knows' best bets: More Andoni Iraola issues? Liverpool to slip at Ipswich**: [Link](https://www.skysports.com/football/news/11661/13581012/premier-league-predictions-and-jones-knows-best-bets-more-andoni-iraola-issues-liverpool-to-slip-at-ipswich)
+
+
 ### الصندوق الوطني للضمان الاجتماعي (N/A, Fri, 4 Sep 2026 09:50:00 -0700)
 
 - **Déficit des polycliniques, fuite de données: la CNSS crée deux filiales pour s’attaquer à ses dossiers sensibles**: [Link](https://fr.le360.ma/economie/deficit-des-polycliniques-fuite-de-donnees-la-cnss-cree-deux-filiales-pour-sattaquer-a-ses-dossiers_DKUOQWWUANHEDFTLQ7IMW2H5OI/)
