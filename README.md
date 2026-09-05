@@ -1,3 +1,66 @@
+### villarreal (N/A, Sat, 5 Sep 2026 14:30:00 -0700)
+
+- **Aubameyang es un cohete**: [Link](https://as.com/futbol/aubameyang-es-un-cohete-f202609-n/)
+- **Pronóstico Villarreal vs Deportivo La Coruña: El equipo visitante enfrenta dificultades debido a la escasez de jugadores.**: [Link](https://www.vietnam.vn/es/nhan-dinh-villarreal-vs-deportivo-la-coruna-doi-khach-dau-dau-vi-thieu-nguoi)
+- **Derrota ante el Dépor en el retorno a La Cerámica**: [Link](https://villarrealcf.es/derrota-ante-el-depor-en-el-retorno-a-la-ceramica/)
+
+
+### avion militaire (N/A, Sat, 5 Sep 2026 13:50:00 -0700)
+
+- **Les circonstances de l'accident restent indéterminées: un avion militaire grec F-4 Phantom s'est écrasé lors d'un meeting aérien près d'Athènes, entraînant la mort des deux pilotes**: [Link](https://www.bfmtv.com/economie/entreprises/defense/une-operation-de-recherche-et-de-sauvetage-est-en-cours-un-avion-militaire-grec-f4-phantom-avec-deux-pilotes-a-bord-s-ecrase-lors-d-un-meeting-aerien-pres-d-athenes_AN-202609050260.html)
+- **Crash mortel d’un F-4E Phantom II en Grèce !**: [Link](https://www.avionslegendaires.net/2026/09/actu/crash-mortel-dun-f-4e-phantom-ii-en-grece/)
+- **Grèce-Un avion F-4 s'écrase lors d'un meeting aérien, les deux pilotes tués**: [Link](https://www.boursorama.com/actualite-economique/actualites/grece-un-avion-f-4-s-ecrase-lors-d-un-meeting-aerien-les-deux-pilotes-tues-08097e847e2b111dbcdbdd3f4116a92c)
+
+
+### zakaria eddahchouri (N/A, Sat, 5 Sep 2026 13:40:00 -0700)
+
+- **Preview: Villarreal vs Deportivo La Coruna - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/villarreal/preview/villarreal-vs-deportivo-prediction-team-news-lineups_604413.html)
+- **FC Villarreal vs Deportivo de A Coruna Betting Odds, Tips, Predictions, Preview 5th September 2026**: [Link](https://easyodds.com/fc-villarreal-vs-deportivo-de-a-coruna-betting-odds-tips-predictions-preview-5th-september-2026)
+- **Licensable picture: Villarreal CF v RC Deportivo de A Coruna - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/villarreal-cf-v-rc-deportivo-de-a-coruna-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDEwMTNDQQ)
+
+
+### ayoub el kaabi (N/A, Sat, 5 Sep 2026 13:30:00 -0700)
+
+- **¡Imágenes sensibles! Delantero del Olympiacos sufrió terrible lesión; La Hormiga González lo relevó**: [Link](https://www.mediotiempo.com/futbol/imagenes-sensibles-delantero-olympiacos-sufrio-terrible-lesion-hormiga-gonzalez-relevo)
+- **Escena escalofriante: terrible lesión de una estrella de la selección de Marruecos y su traslado al hospital**: [Link](https://es-us.noticias.yahoo.com/deportes/escena-escalofriante-terrible-lesi%C3%B3n-estrella-170725465.html)
+- **La “Hormiga” González entró de emergencia y estuvo cerca del gol en el empate del Olympiacos ante el Volos**: [Link](https://www.telemundo.com/deportes/mas-deporte/la-hormiga-gonzalez-entro-de-emergencia-y-estuvo-cerca-del-gol-en-el-e-rcna596288)
+
+
+### إنتر ميلان (N/A, Sat, 5 Sep 2026 13:20:00 -0700)
+
+- **إنتر ميلان يتذر ريال مدريد بريمونتادا مذهلة ضد نابولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D9%88%D8%AA%D8%A7%D8%B1%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D8%B6%D8%AF-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D9%88%D9%8A%D9%88%D9%94%D9%85%D9%86-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%83%D9%88%D8%AF%D9%8A%D8%AA%D9%88/bltf19f276f9ff73e18)
+- **بطولة إيطاليا: لاوتارو مارتينيس يقود إنتر ميلان إلى العودة من بعيد وقلب الطاولة على نابولي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260905-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%84%D8%A7%D9%88%D8%AA%D8%A7%D8%B1%D9%88-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D8%B3-%D9%8A%D9%82%D9%88%D8%AF-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D9%86-%D8%A8%D8%B9%D9%8A%D8%AF-%D9%88%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A)
+- **دي بروين يبحث عن صحوة مع نابولي أمام إنتر ميلان**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A-%D8%A8%D8%B1%D9%88%D9%8A%D9%86-%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%B5%D8%AD%D9%88%D8%A9-%D9%85%D8%B9-%D9%86%D8%A7%D8%A8%D9%88%D9%84%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D9%84%D8%A7%D9%86/24870)
+
+
+### salahdine parnasse (N/A, Sat, 5 Sep 2026 13:00:00 -0700)
+
+- **Licensable picture: UFC Fight Night - Hooker Vs Parnasse**: [Link](https://www.reutersconnect.com/item/ufc-fight-night-hooker-vs-parnasse/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDA1TllWRUw)
+- **"An event I would not wish even on my worst enemy": Veteran fighter Hooker clashes with Parnas in 'UFC debut in home country' — "Accustomed to high-stakes fights"**: [Link](https://www.starnewskorea.com/en/sports/2026/09/05/2026090511353524513)
+- **MMA Same Game Parlay of the Week: UFC Paris**: [Link](https://www.sportsgamblingpodcast.com/2026/09/05/mma-same-game-parlay-of-the-week-ufc-paris-2/)
+
+
+### marítimo – benfica (N/A, Sat, 5 Sep 2026 13:00:00 -0700)
+
+- **Assistir a Maritimo x Benfica**: [Link](https://www.disneyplus.com/pt-br/browse/entity-a5de9c7e-c7b4-43bd-8b23-5bdb9bdb5b97)
+- **Mitchell van der Gaag: «Não marcámos, é preciso marcar para ganhar»**: [Link](https://www.abola.pt/noticias/mitchell-van-der-gaag-nao-marcamos-e-preciso-marcar-para-ganhar-2026090519353620068)
+- **Marco Silva: «Não me lembro de uma defesa do Samuel em todo o jogo»**: [Link](https://maisfutebol.iol.pt/benfica/liga/marco-silva-nao-me-lembro-de-uma-defesa-do-samuel-em-todo-o-jogo)
+
+
+### فياريال ضد ديبورتيفو (N/A, Sat, 5 Sep 2026 12:50:00 -0700)
+
+- **ديبورتيفو لاكورونيا يخطف فوزا مثيرا بثلاثية من فياريال بالدوري الإسباني**: [Link](https://www.elbalad.news/7097130)
+- **زكرياء الدهشوري من الإحتياط يعدل الكفة للاكرونيا وأوباميانغ يقلب الطاولة**: [Link](https://www.almountakhab.com/node/13230179)
+- **التعادل 1-1 يحسم الشوط الأول بين فياريال وديبورتيفو لاكورونيا**: [Link](https://www.npa-ar.com/sports/257238/)
+
+
+### الاستثمار في المغرب (N/A, Sat, 5 Sep 2026 12:20:00 -0700)
+
+- **EOS الألمانية تدرس الاستثمار بالمغرب**: [Link](https://www.hespress.com/eos-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AF%D8%B1%D8%B3-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1802096.html)
+- **هل يمكن للبنك بيع دين المواطن دون موافقته؟ علي الغنبوري يوضح – اليوم 24**: [Link](https://alyaoum24.com/2040957.html)
+- **134 مليار درهم من القروض المتعثرة.. محلل يكشف كيف يمكن تحويلها إلى فرصة للمقاولات**: [Link](https://al3omk.com/1183551.html)
+
+
 ### schalke vs bayern munich standings (N/A, Sat, 5 Sep 2026 12:00:00 -0700)
 
 - **🥹Football ALWAYS offers redemption: Loris Karius had his dream night**: [Link](https://onefootball.com/en/news/football-always-offers-redemption-loris-karius-had-his-dream-night-43408561)
