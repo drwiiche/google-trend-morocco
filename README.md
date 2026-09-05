@@ -1,3 +1,59 @@
+### inter miami – atlanta utd (N/A, Sat, 5 Sep 2026 16:10:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Set to Host Atlanta United FC this Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-host-atlanta-united-fc-this-saturday)
+- **Breel Embolo set for Atlanta United debut vs. Inter Miami**: [Link](https://www.mlssoccer.com/news/breel-embolo-set-for-atlanta-united-debut-vs-inter-miami)
+- **Messi Expected in Inter Miami Starting XI vs. Atlanta After Argentina Farewell**: [Link](https://heavy.com/sports/soccer/lionel-messi-inter-miami-atlanta-united/)
+
+
+### أيوب الكعبي (N/A, Sat, 5 Sep 2026 15:50:00 -0700)
+
+- **لقطة تقشعر لها الأبدان.. إصابة مروعة لنجم منتخب المغرب ونقله للمستشفى**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%82%D8%B7%D8%A9-%D8%AA%D9%82%D8%B4%D8%B9%D8%B1-%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%AF%D8%A7%D9%86--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%B1%D9%88%D8%B9%D8%A9-%D9%84%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%86%D9%82%D9%84%D9%87-%D9%84%D9%84%D9%85%D8%B3%D8%AA%D8%B4%D9%81%D9%89/blt3c25b962db4cfa84)
+- **إصابة خطيرة تنقل أيوب الكعبي إلى المستشفى**: [Link](https://www.ahdath.info/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9-%D8%AA%D9%86%D9%82%D9%84-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%AA/)
+- **مازا وزرقان يقودان التألق الجزائري في أوروبا وإصابة المغربي الكعبي**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%A7%D8%B2%D8%A7-%D9%88%D8%B2%D8%B1%D9%82%D8%A7%D9%86-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%84%D9%82-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%88%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A)
+
+
+### وزارة التربية والتعليم (N/A, Sat, 5 Sep 2026 15:40:00 -0700)
+
+- **متحدث التعليم لـ DMC: استحداث 98 ألف فصل لخفض كثافات الطلاب**: [Link](https://www.youm7.com/story/2026/9/5/%D9%85%D8%AA%D8%AD%D8%AF%D8%AB-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D9%84%D9%80-DMC-%D8%A7%D8%B3%D8%AA%D8%AD%D8%AF%D8%A7%D8%AB-98-%D8%A3%D9%84%D9%81-%D9%81%D8%B5%D9%84-%D9%84%D8%AE%D9%81%D8%B6-%D9%83%D8%AB%D8%A7%D9%81%D8%A7%D8%AA/7537220)
+- **نيفين شحاتة: طفرة غير مسبوقة في تطوير منظومة التعليم المصرية**: [Link](https://www.elwatannews.com/news/details/8352729)
+- **التعليم: إجراءات جديدة لمواجهة غياب الطلاب والتسرب من المدارس**: [Link](https://www.youlyou.com/48262)
+
+
+### serhat kılıç (N/A, Sat, 5 Sep 2026 15:10:00 -0700)
+
+- **Serhat Kılıç kimdir, kaç yaşında ve nereli? Serhat Kılıç neden öldü, dizi ve filmleri**: [Link](https://tersaci.com/serhat-kilic-kimdir-kac-yasinda-ve-nereli-serhat-kilic-neden-oldu-dizi-ve-filmleri/)
+- **Evinde uyuşturucu madde bulundu**: [Link](https://www.aydintimes.com/evinde-uyusturucu-madde-bulundu)
+- **EVİNDE ÖLÜ BULUNAN OYUNCU SERHAT KILIÇ’IN CENAZESİ ADLİ TIP KURUMU’NA KALDIRILDI**: [Link](https://www.yozgatgazetesi.com/iha-haberleri/evinde-oelue-bulunan-oyuncu-serhat-kilic-in-cenazesi-adli-tip-kurumu-na-kaldirildi-262991.html)
+
+
+### سرحات كيليتش (N/A, Sat, 5 Sep 2026 14:40:00 -0700)
+
+- **"المؤسس عثمان".. وفاة غامضة لسرحات كيليتش داخل منزله بإسطنبول**: [Link](https://www.eremnews.com/entertainment/w9wp8o5)
+- **وفاة الممثل التركي سرحات كيليتش عن عمر 51 عامًا**: [Link](https://www.voiceofemirates.com/lifestyle/2026/09/05/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D8%B3%D8%B1%D8%AD%D8%A7%D8%AA-%D9%83%D9%8A%D9%84%D9%8A%D8%AA%D8%B4-%D8%B9%D9%86-%D8%B9%D9%85%D8%B1-5/)
+- **العثور على ممثل تركي شهير جثة هامدة بمنزله في إسطنبول**: [Link](https://a5r5br.net/international/varieties/8101205-%D8%A7%D9%84%D8%B9%D8%AB%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D9%85%D9%85%D8%AB%D9%84-%D8%AA%D8%B1%D9%83%D9%8A-%D8%B4%D9%87%D9%8A%D8%B1-%D8%AC%D8%AB%D8%A9-%D9%87%D8%A7%D9%85%D8%AF%D8%A9-%D8%A8%D9%85%D9%86%D8%B2%D9%84%D9%87-%D9%81%D9%8A-%D8%A5%D8%B3%D8%B7%D9%86%D8%A8%D9%88%D9%84)
+
+
+### قضية سارة خليفة (N/A, Sat, 5 Sep 2026 14:30:00 -0700)
+
+- **الحكم بإعدام الإعلامية سارة خليفة في قضية "المخدرات الكبرى"**: [Link](https://www.aljazeera.net/arts/2026/9/5/%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A8%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D9%81%D9%8A)
+- **بعد إحالة أوراقها للمفتي.. هذا ما ينتظر سارة خليفة في الساعات الحاسمة**: [Link](https://www.raialyoum.com/%D8%A8%D8%B9%D8%AF-%D8%A5%D8%AD%D8%A7%D9%84%D8%A9-%D8%A3%D9%88%D8%B1%D8%A7%D9%82%D9%87%D8%A7-%D9%84%D9%84%D9%85%D9%81%D8%AA%D9%8A-%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D9%8A%D9%86%D8%AA%D8%B8%D8%B1/)
+- **مصر.. الإعدام شنقا لسارة خليفة في "قضية المخدرات الكبرى"**: [Link](https://www.skynewsarabia.com/varieties/1890197-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D8%B4%D9%86%D9%82%D8%A7-%D9%84%D8%B3%D8%A7%D8%B1%D8%A9-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AE%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89)
+
+
+### fonds souverain (N/A, Sat, 5 Sep 2026 14:20:00 -0700)
+
+- **Dettes des Etats : pourquoi le plus grand fonds souverain du monde se prépare à une tempête globale**: [Link](https://www.lesechos.fr/finance-marches/marches-financiers/dettes-des-etats-pourquoi-le-plus-grand-fonds-souverain-du-monde-se-prepare-a-une-tempete-globale-2249980)
+- **Selon certaines sources, les banques chinoises achèteraient des bons du Trésor américain après avoir cherché à**: [Link](https://www.boursorama.com/actualite-economique/actualites/selon-certaines-sources-les-banques-chinoises-acheteraient-des-bons-du-tresor-americain-apres-avoir-cherche-a-attirer-des-depots-en-dollars-9f2aea772331f675f1ac24ade3593d7b)
+- **La Norvège accentue la pression sur les Treasuries : 3-Minutes MLIV**: [Link](https://www.zonebourse.com/actualite-bourse/la-norvege-accentue-la-pression-sur-les-treasuries-3-minutes-mliv-ce785bdadf80ff2d)
+
+
+### boufal (N/A, Sat, 5 Sep 2026 14:20:00 -0700)
+
+- **Mercato: Sofiane Boufal vers la Libye?**: [Link](https://sport.le360.ma/football/mercato/mercato-sofiane-boufal-vers-la-libye_WGYHOEECS5EDHOAZV65QJL5WBY/)
+- **Mercato : Soufiane Boufal aurait dit oui à une offre très alléchante en Libye**: [Link](https://www.lesiteinfo.com/sport/681224-mercato-soufiane-boufal-aurait-dit-oui-a-une-offre-tres-allechante-en-libye.html)
+- **Après ses années européennes : Boufal proche d'une surprenante destination africaine**: [Link](https://fr.news.yahoo.com/sport/apr%C3%A8s-ann%C3%A9es-europ%C3%A9ennes-boufal-proche-180844639.html)
+
+
 ### villarreal (N/A, Sat, 5 Sep 2026 14:30:00 -0700)
 
 - **Aubameyang es un cohete**: [Link](https://as.com/futbol/aubameyang-es-un-cohete-f202609-n/)
