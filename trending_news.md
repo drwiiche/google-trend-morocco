@@ -1,3 +1,52 @@
+### schalke vs bayern munich standings (N/A, Sat, 5 Sep 2026 12:00:00 -0700)
+
+- **🥹Football ALWAYS offers redemption: Loris Karius had his dream night**: [Link](https://onefootball.com/en/news/football-always-offers-redemption-loris-karius-had-his-dream-night-43408561)
+- **Bayern Munich fire Bundesliga blank for first time in over 18 months at Schalke**: [Link](https://www.hackneygazette.co.uk/sport/national/26525468.bayern-munich-fire-bundesliga-blank-first-time-18-months-schalke/)
+- **Schalke 0-0 Bayern Munich: Kompany gamble backfires as Kane and co. frustrated**: [Link](https://www.fotmob.com/news/12u8jekqxzwsf1bzni7m0n9x80-schalke-0-0-bayern-munich-kompany-gamble-backfires-kane-co-frustrated)
+
+
+### ufc (N/A, Sat, 5 Sep 2026 12:00:00 -0700)
+
+- **Licensable picture: UFC Fight Night - Hooker Vs Parnasse**: [Link](https://www.reutersconnect.com/item/ufc-fight-night-hooker-vs-parnasse/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDA1TllWRUk)
+- **"An event I would not wish even on my worst enemy": Veteran fighter Hooker clashes with Parnas in 'UFC debut in home country' — "Accustomed to high-stakes fights"**: [Link](https://www.starnewskorea.com/en/sports/2026/09/05/2026090511353524513)
+- **MMA Same Game Parlay of the Week: UFC Paris**: [Link](https://www.sportsgamblingpodcast.com/2026/09/05/mma-same-game-parlay-of-the-week-ufc-paris-2/)
+
+
+### roma – atalanta (N/A, Sat, 5 Sep 2026 12:00:00 -0700)
+
+- **Pronostico Roma-Atalanta: opportunità per inseguire il primo posto**: [Link](https://www.vietnam.vn/it/nhan-dinh-as-roma-vs-atalanta-co-hoi-bam-duoi-ngoi-dau)
+- **Europei di pallavolo, Italia-Turchia in finale: quando si gioca e dove vederla in tv**: [Link](https://www.oglioponews.it/2026/09/05/europei-di-pallavolo-italia-turchia-in-finale-quando-si-gioca-e-dove-vederla-in-tv/)
+- **Roma-Atalanta, il ct Mancini in tribuna**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/09/05/roma-atalanta-il-ct-mancini-in-tribuna_6ec2819c-cca6-4acb-ae62-6a8fcc78ded2.html)
+
+
+### الاتحاد ضد النصر (N/A, Sat, 5 Sep 2026 11:00:00 -0700)
+
+- **مشروع جديد وصبر مفقود.. مرارة الأهلي تهدد الاتحاد أمام النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%88%D8%B5%D8%A8%D8%B1-%D9%85%D9%81%D9%82%D9%88%D8%AF--%D9%85%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt5ec314c2372d06a7)
+- **ماني يطرق أبواب الأرقام القياسية ضد الاتحاد في الكلاسيكو**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D8%A7%D9%86%D9%8A-%D9%8A%D8%B7%D8%B1%D9%82-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88)
+- **ثلاثي إسبانيا.. لقاء بأدوار جديدة في «كلاسيكو روشن»**: [Link](https://arriyadiyah.com/899545/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7..-%D9%84%D9%82%D8%A7%D8%A1-%D8%A8%D8%A3%D8%AF%D9%88%D8%A7%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%C2%AB%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B1%D9%88%D8%B4%D9%86%C2%BB)
+
+
+### ajax – psv eindhoven (N/A, Sat, 5 Sep 2026 10:50:00 -0700)
+
+- **Ajax Coach: "Amrabat Available for Tomorrow's Match Against Eindhoven... He is Physically Ready to Play"**: [Link](https://m.elbotola.com/en/article/2026-09-04-17-58-337.html)
+- **Lutsharel Geertruida makes his full debut for PSV for the top clash against Ajax**: [Link](https://www.goal.com/en/news/lutsharel-geertruida-makes-his-full-debut-for-psv-for-the-top-match-against-ajax/blta335ed33a1033431)
+- **TV!+[𝐒𝐓ream]HERE'S*! Betis vs Real Madrid Ｌｉｖｅ Ｓｔｒｅａｍｉｎｇ Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ 05 September 2026**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sportb133.github.io/tapvideo/video%22/%3E%3C/krpano%3E&id=video-TV-ream-HERE-S-Betis-vs-Real-Madrid-September-01)
+
+
+### ufc paris (N/A, Sat, 5 Sep 2026 10:20:00 -0700)
+
+- **UFC Paris Highlights! Pinto Lays Waste To ‘Superman’ In Heavyweight Slugfest**: [Link](https://www.mmamania.com/ufc-paramount-plus-news-hub-fight-cards-schedule/469576/watch-official-ufc-paris-video-highlights-results-paramount-pinto-knockout-spann)
+- **Mario Pinto vs Ryan Spann Prediction & Preview - 9/5/2026**: [Link](https://ats.io/mma/mario-pinto-vs-ryan-spann-prediction-preview-9-5-2026/)
+- **Mario Pinto Finishes Spann Early In Round 2 | UFC Paris**: [Link](https://www.ufc.com/video/159851)
+
+
+### atlético madrid (N/A, Sat, 5 Sep 2026 09:40:00 -0700)
+
+- **Jonathan David joins Atletico Madrid on loan**: [Link](https://www.juventus.com/en/news/articles/jonathan-david-joins-atletico-madrid-on-loan-01-09-26)
+- **Simeone now has his number nines for Bilbao**: [Link](https://onefootball.com/en/news/simeone-now-has-his-number-nines-for-bilbao-43404256)
+- **What Jonathan David's move to Madrid is doing for Ottawa soccer**: [Link](https://www.cbc.ca/player/play/video/9.7333447)
+
+
 ### إيتمار بن غفير (N/A, Sat, 5 Sep 2026 10:40:00 -0700)
 
 - **فيديو مواجهة زوجته مع بن غفير يصدم أسيرا محررا من جنين**: [Link](https://www.aljazeera.net/politics/2026/9/5/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B2%D9%88%D8%AC%D8%AA%D9%87-%D9%85%D8%B9-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1-%D9%8A%D8%B5%D8%AF%D9%85)
