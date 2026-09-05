@@ -1,3 +1,52 @@
+### إيتمار بن غفير (N/A, Sat, 5 Sep 2026 10:40:00 -0700)
+
+- **فيديو مواجهة زوجته مع بن غفير يصدم أسيرا محررا من جنين**: [Link](https://www.aljazeera.net/politics/2026/9/5/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B2%D9%88%D8%AC%D8%AA%D9%87-%D9%85%D8%B9-%D8%A8%D9%86-%D8%BA%D9%81%D9%8A%D8%B1-%D9%8A%D8%B5%D8%AF%D9%85)
+- **إهانة الأسيرات الفلسطينيات تكشف صمت العرب وعجزهم أمام"إسرائيل"**: [Link](https://www.alalam.ir/news/7611633/%D8%A5%D9%87%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A7%D8%AA-%D8%AA%D9%83%D8%B4%D9%81-%D8%B5%D9%85%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%88%D8%B9%D8%AC%D8%B2%D9%87%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84)
+- **بعد 25 شهرًا من الاعتقال.. عائلة الأسيرة هناء طحاينة تتعرف إليها في فيديو من سجن الدامون**: [Link](https://www.tasnimnews.ir/ar/media/2026/09/02/3687049/%D8%A8%D8%B9%D8%AF-25-%D8%B4%D9%87%D8%B1%D9%8B%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84-%D8%B9%D8%A7%D8%A6%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%DB%8C%D8%B1%D8%A9-%D9%87%D9%86%D8%A7%D8%A1-%D8%B7%D8%AD%D8%A7%DB%8C%D9%86%D8%A9-%D8%AA%D8%AA%D8%B9%D8%B1%D9%81-%D8%A5%D9%84%DB%8C%D9%87%D8%A7-%D9%81%DB%8C-%D9%81%DB%8C%D8%AF%DB%8C%D9%88-%D9%85%D9%86-%D8%B3%D8%AC%D9%86-%D8%A7%D9%84%D8%AF%D8%A7%D9%85%D9%88%D9%86)
+
+
+### al ittihad – al-nassr fc (N/A, Sat, 5 Sep 2026 10:20:00 -0700)
+
+- **Know the referee for the Al Nassr and Al Ittihad clas…**: [Link](https://www.ysscores.com/en/news/14037445/know-the-referee-for-the-al-nassr-and-al-ittihad-clash-in-the-saudi-pro-league-tonight)
+- **Saudi Clasico: Al Nassr Aim to Keep Perfect Start Alive Against Al Ittihad**: [Link](https://www.telecomasia.net/bd/blog/saudi-clasico-al-nassr-aim-to-keep-perfect-start-alive-against-al-ittihad/)
+- **Clásico line-up: Ronaldo up front as Al-Ittihad coach shocks the Lion of Morocco**: [Link](https://www.goal.com/en-in/news/clasico-line-up-ronaldo-up-front-as-al-ittihad-coach-shocks-the-lion-of-morocco/blt4de9cb8e9735b3a2)
+
+
+### athletic bilbao vs atlético madrid standings (N/A, Sat, 5 Sep 2026 09:50:00 -0700)
+
+- **A.Bilbao vs Atlético match lineup | LaLiga · 5 Sep 2026**: [Link](https://www.ysscores.com/en/lineup/5868042/Athletic-Bilbao-vs-Atl%C3%A9tico-de-Madrid)
+- **Athletic Club vs Atletico Madrid Confirmed Lineups**: [Link](https://www.whoscored.com/news/VONXuVNUvUmjZJa1CsbR8w/show/20260905-athletic-club-vs-atletico-madrid-confirmed-lineup-1788614050)
+- **Ratings: Atlético crushed by incisive Athletic at San Mamés**: [Link](https://www.intothecalderon.com/atletico-madrid-player-ratings/27828/athletic-club-atletico-de-madrid-la-liga-player-ratings)
+
+
+### hull city – aston villa (N/A, Sat, 5 Sep 2026 09:10:00 -0700)
+
+- **Hull City vs Aston Villa: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5n4kmv1j7z4t)
+- **[VER EN VIVO] Rayo Vallecano - Racing de Santander Copa del En Vivo Online grátis 5 septiembre 2026**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/shabagimgi-hash.github.io/gutta/sok/a.xml%22/%3E%3C/krpano%3E&id=ver-en-vivo-rayo-vallecano-racing-de-santander-copa-del-en-vivo-online-gr%C3%A1t)
+- **Hull vs Aston Villa Confirmed Lineups**: [Link](https://www.whoscored.com/news/5dET_mMcFkG13DOajDziLw/show/20260905-hull-vs-aston-villa-confirmed-lineup-1788622003)
+
+
+### ayyoub bouaddi (N/A, Sat, 5 Sep 2026 09:10:00 -0700)
+
+- **Ayyoub Bouaddi Among Africa’s Top Three Most Expensive Players This Summer**: [Link](https://www.moroccoworldnews.com/2026/09/337268/ayyoub-bouaddi-among-africas-top-three-most-expensive-players-this-summer/)
+- **Transfers recap - Senegal's stars, and Man City, dominate deadline day**: [Link](https://www.espn.in/espn/story/_/id/49800564/transfers-recap-senegal-stars-man-city-dominate-deadline-day)
+- **Africa's transfer deadline day - Ndiaye to Man City, Mbaye incoming, Osimhen to Man United?**: [Link](https://www.espn.com/espn/story/_/id/49790853/africa-transfer-deadline-day-ndiaye-man-city-mbaye-incoming-osimhen-man-united)
+
+
+### rayo – santander (N/A, Sat, 5 Sep 2026 09:00:00 -0700)
+
+- **Rayo Vallecano - Racing, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/rayo-vallecano-racing-en-directo-laliga-ea-sports-en-vivo-hoy-f202609-d/)
+- **Rayo Vallecano - Racing de Santander, en directo | Última hora de LALIGA EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/rayo-racing-santander/2026/09/05/01_0101_20260905_184_189-directo.html)
+- **Radioestadio Cantabria 04/09/2026**: [Link](https://www.ondacero.es/podcast/emisoras/santander/cantabria-onda-deporte/radioestadio-cantabria-04092026_202609046a9ac1077374f5435428d8bf.html)
+
+
+### شالكه ضد البايرن (N/A, Sat, 5 Sep 2026 09:00:00 -0700)
+
+- **الصيباري أساسيًا لأول مرة في الدوري الألماني.. وكين بديلًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A--%D9%88%D9%83%D9%8A%D9%86-%D8%A8%D8%AF%D9%8A%D9%84%D9%8B%D8%A7/blt0a5bbbe8e778cb60)
+- **بعد الغياب بسبب "نوبات عصبية".. كومباني يزف أنباء سارة بشأن موسيالا**: [Link](https://www.aljazeera.net/sport/2026/9/5/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%86%D9%88%D8%A8%D8%A7%D8%AA-%D8%B9%D8%B5%D8%A8%D9%8A%D8%A9-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A)
+- **إسماعيل الصيباري ضمن التشكيل الرسمي لبايرن ميونخ في مواجهة شالكة**: [Link](https://radiomars.ma/%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%B6%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84/)
+
+
 ### schalke – bayern (N/A, Sat, 5 Sep 2026 08:50:00 -0700)
 
 - **2,65 Mio. gegen 200 Mio. Euro: Warum Kompany die Bundesliga für Aufsteiger leichter sieht**: [Link](https://cristinaiglesias.com/article/265-mio-gegen-200-mio-euro-warum-kompany-die-bundesliga-fuer-aufsteiger-leichter-sieht/)
