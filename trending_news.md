@@ -1,3 +1,65 @@
+### جيان بييرو غاسبيريني (N/A, Sat, 5 Sep 2026 02:20:00 -0700)
+
+- **مستقبل "ضبابي" لنجم المنتخب المغربي بعد خروجه من حسابات مدربه**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/502429.html)
+- **مدرب روما: أنس صلاح الدين ليس ضمن خططي**: [Link](https://kifache.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%B1%D9%88%D9%85%D8%A7-%D8%A3%D9%86%D8%B3-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D9%84%D9%8A%D8%B3-%D8%B6%D9%85%D9%86-%D8%AE%D8%B7%D8%B7%D9%8A/)
+- **وست هام يونايتد يتقدم بعرض لاستعارة أنس صلاح الدين من روما**: [Link](https://www.hesport.com/%D9%88%D8%B3%D8%AA-%D9%87%D8%A7%D9%85-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%AA%D9%82%D8%AF%D9%85-%D8%A8%D8%B9%D8%B1%D8%B6-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%B1%D8%A9-%D8%A3%D9%86-453733.html)
+
+
+### رمضان (N/A, Sat, 5 Sep 2026 01:50:00 -0700)
+
+- **موعد شهر رمضان 2027 فلكيًا.. متى يبدأ الشهر الكريم؟**: [Link](https://twaslnews1.twaslnews.com/4682906/)
+- **وفقا للحسابات الفلكية ودور الإفتاء.. متى أول يوم رمضان وعيد الفطر؟**: [Link](https://al-ain.com/article/ramadan-2027-start-date-february-8-eid)
+- **رسمياً وفق تقويم الديانة: رمضان 2027 يبدأ الاثنين 8 فبراير والعيد يوم 9 مارس**: [Link](https://newturkpost.com/news/121077-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%88%D9%81%D9%82-%D8%AA%D9%82%D9%88%D9%8A%D9%85-%D8%A7%D9%84%D8%AF%D9%8A%D8%A7%D9%86%D8%A9-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2027-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-8-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D9%88%D8%A7%D9%84%D8%B9%D9%8A%D8%AF-%D9%8A%D9%88%D9%85-9-%D9%85%D8%A7%D8%B1%D8%B3)
+
+
+### أفريقيا (N/A, Sat, 5 Sep 2026 01:50:00 -0700)
+
+- **الأمم المتحدة تصوت لاعتماد خريطة جديدة للعالم تظهر الحجم الحقيقي لأفريقيا**: [Link](https://www.aljazeera.net/politics/2026/9/5/%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%B5%D9%88%D8%AA-%D9%84%D8%A7%D8%B9%D8%AA%D9%85%D8%A7%D8%AF-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9)
+- **الأمم المتحدة تعتمد خريطة جديدة للعالم تبرز حدود الصحراء الغربية المعترف بها دوليا**: [Link](https://spsrasd.info/ar/2026/09/04/17581.html)
+- **الأمم المتحدة تعتمد قرارا بأغلبية مطلقة لتصحيح خريطة العالم**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%AA%D8%A8%D9%86%D9%89-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%84%D8%B9%D8%A7%D9%84/)
+
+
+### véhicule (N/A, Sat, 5 Sep 2026 01:10:00 -0700)
+
+- **Plaques d'immatriculation : la NARSA dément l'obligation d'un changement généralisé avant fin 2026**: [Link](https://ledesk.ma/encontinu/plaques-dimmatriculation-la-narsa-dement-lobligation-dun-changement-generalise-avant-fin-2026/)
+- **Non, toutes les plaques d’immatriculation ne devront pas être remplacées avant le 31 décembre**: [Link](https://fr.le360.ma/societe/non-toutes-les-plaques-dimmatriculation-ne-devront-pas-etre-remplacees-avant-le-31-decembre_CYRDHQY2FZH5FIVOYZGO4UB6RY/)
+- **NARSA: non, toutes les plaques d’immatriculation ne doivent pas être changées avant le 31 décembre 2026**: [Link](https://h24info.ma/economie/narsa-non-toutes-les-plaques-dimmatriculation-ne-doivent-pas-etre-changees-avant-le-31-decembre-2026/)
+
+
+### déchet (N/A, Sat, 5 Sep 2026 00:30:00 -0700)
+
+- **Hanoï veille à ce qu'aucun déchet ne reste non ramassé pendant les vacances de la Fête nationale, le 2 septembre.**: [Link](https://www.vietnam.vn/fr/ha-noi-khong-de-ton-luu-rac-thai-trong-ky-nghi-le-quoc-khanh-2-9)
+- **URENCO nettoie les rues et préserve la beauté de la capitale après les vacances du 2 septembre.**: [Link](https://www.vietnam.vn/fr/urenco-lam-sach-pho-phuong-giu-dep-thu-do-sau-le-2-9)
+- **Gardons la capitale propre, aucun déchet ne doit être laissé sur place pendant la Fête nationale.**: [Link](https://www.vietnam.vn/fr/giu-sach-thu-do-khong-de-rac-ton-luu-dip-quoc-khanh)
+
+
+### tarente (N/A, Fri, 4 Sep 2026 23:30:00 -0700)
+
+- **Jeux méditerranéens : le Maroc enchaîne les médailles à Tarente**: [Link](https://medias24.com/2026/09/04/jeux-mediterraneens-le-maroc-enchaine-les-medailles-a-tarente-1748693/)
+- **Jeux méditerranéens : une moisson historique pour le Maroc, de nouvelles ambitions olympiques**: [Link](https://mobile.telquel.ma/instant-t/2026/09/04/jeux-mediterraneens-une-moisson-historique-pour-le-maroc-de-nouvelles-ambitions-olympiques_2005850/)
+- **Jeux Méditerranéens – Taranto 2026 : Un record pour le Maroc**: [Link](https://www.leconomiste.com/flash-infos/jeux-mediterraneens-taranto-2026-un-record-pour-le-maroc/)
+
+
+### وزارة التربية الوطنية (N/A, Fri, 4 Sep 2026 22:30:00 -0700)
+
+- **الدخول المدرسي.. وزارة التربية تمنع ضم الأقسام وخلق الاكتظاظ في “مؤسسات الريادة”**: [Link](https://kifache.com/%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%B3%D9%8A-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D9%85%D9%86%D8%B9-%D8%B6%D9%85-%D8%A7/)
+- **رسميا.. وزارة التعليم تحسم جدل الساعات الإضافية بمؤسسات الريادة وتتعهد بأداء مستحقاتها**: [Link](https://al3omk.com/1185185.html)
+- **وزارة التربية الوطنية تطلق الدعم التربوي الممتد بمؤسسات الريادة مقابل تعويضات للأساتذة**: [Link](https://agadir24.info/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B7%D9%84%D9%82-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%AA%D8%B1.html)
+
+
+### بلال الخنوس (N/A, Fri, 4 Sep 2026 17:00:00 -0700)
+
+- **بصمة مغربية من الخنوس.. شتوتغارت يكتسح كولن ويحصد فوزه الأول بالبوندسليغا**: [Link](https://www.aljazeera.net/sport/2026/9/5/%D8%A8%D8%B5%D9%85%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AE%D9%86%D9%88%D8%B3-%D8%B4%D8%AA%D9%88%D8%AA%D8%BA%D8%A7%D8%B1%D8%AA-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD)
+- **الخنوس يتألق بهدف في فوز شتوتغارت على كولون**: [Link](https://sport.rue20.com/%D8%A7%D9%84%D8%AE%D9%86%D9%88%D8%B3-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D8%A8%D9%87%D8%AF%D9%81-%D9%81%D9%8A-%D9%81%D9%88%D8%B2-%D8%B4%D8%AA%D9%88%D8%AA%D8%BA%D8%A7%D8%B1%D8%AA-%D8%B9%D9%84%D9%89-%D9%83.html)
+- **البوندسليغا: شتوتغارت يصالح جماهيره برباعية في مرمى كولن**: [Link](https://www.elsport.com/news/show/838552/%D8%A7%D9%84%D8%A8%D9%88%D9%86%D8%AF%D8%B3%D9%84%D9%8A%D8%BA%D8%A7-%D8%B4%D8%AA%D9%88%D8%AA%D8%BA%D8%A7%D8%B1%D8%AA-%D9%8A%D8%B5%D8%A7%D9%84%D8%AD-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%87-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D8%B1%D9%85%D9%89-%D9%83%D9%88)
+
+
+### mostafa terrab (N/A, Fri, 4 Sep 2026 16:30:00 -0700)
+
+- **Iliass El Fali quitte le pôle Value Steering d’OCP, dont les périmètres sont redistribués**: [Link](https://ledesk.ma/enoff/iliass-el-fali-quitte-le-pole-value-steering-docp-dont-les-perimetres-sont-redistribues/)
+- **OCP construit un écosystème de fournisseurs financé par les banques et adossé à un label**: [Link](https://ledesk.ma/2026/09/04/ocp-construit-un-ecosysteme-de-fournisseurs-finance-par-les-banques-et-adosse-a-un-label/)
+
+
 ### كورة (N/A, Fri, 4 Sep 2026 14:20:00 -0700)
 
 - **أزمة أم حل؟.. مارتينيلي "صفقة" أثارت الجدل بعد وصولها للهلال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%94%D9%85-%D8%AD%D9%84--%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D9%84%D9%8A-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%94%D8%AB%D8%A7%D8%B1%D8%AA-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D8%B9%D8%AF-%D9%88%D8%B5%D9%88%D9%84%D9%87%D8%A7-%D9%84%D9%84%D9%87%D9%84%D8%A7%D9%84/blt971a00f6033dd128)
