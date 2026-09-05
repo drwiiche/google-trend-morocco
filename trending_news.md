@@ -1,3 +1,73 @@
+### schalke – bayern (N/A, Sat, 5 Sep 2026 08:50:00 -0700)
+
+- **2,65 Mio. gegen 200 Mio. Euro: Warum Kompany die Bundesliga für Aufsteiger leichter sieht**: [Link](https://cristinaiglesias.com/article/265-mio-gegen-200-mio-euro-warum-kompany-die-bundesliga-fuer-aufsteiger-leichter-sieht/)
+- **Kane und Olise auf der Bank! Das ist die Bayern-Aufstellung auf Schalke**: [Link](https://fcbinside.de/2026/09/05/kane-und-olise-auf-der-bank-das-ist-die-bayern-aufstellung-gegen-schalke-04/)
+- **Miron Muslić: Emotionen als Schlüssel zum FC-Schalke-04-Aufstieg**: [Link](https://www.faz.net/aktuell/sport/fussball/bundesliga/miron-musli-emotionen-als-schluessel-zum-fc-schalke-04-aufstieg-accg-201192276.html)
+
+
+### inter – naples (N/A, Sat, 5 Sep 2026 08:50:00 -0700)
+
+- **Serie A - Inter Milan v Napoli**: [Link](https://www.reutersconnect.com/item/serie-a-inter-milan-v-napoli/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOTUxNThCSVQ)
+- **Internazionale vs Napoli – Prediction, Where to Watch, Kick-off Time and Lineups 05-09**: [Link](https://oddsscanner.com/predictions/football/internazionale-x-napoli-05-09-2026)
+- **Unforgettable champions: Maicon and Sneijder at San Siro for Inter vs. Napoli**: [Link](https://onefootball.com/en/news/unforgettable-champions-maicon-and-sneijder-at-san-siro-for-inter-vs-napoli-43407408)
+
+
+### atletico madrid (N/A, Sat, 5 Sep 2026 08:50:00 -0700)
+
+- **Preview: Athletic Bilbao vs Atletico Madrid - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/atletico-madrid/race-for-the-la-liga-title/preview/athletic-bilbao-vs-atletico-prediction-team-news-lineups_604408.html)
+- **A.Bilbao vs Atlético match lineup | LaLiga · 5 Sep 2026**: [Link](https://www.ysscores.com/en/lineup/5868042/Athletic-Bilbao-vs-Atl%C3%A9tico-de-Madrid)
+- **San Mamés builds as Athletic host Atlético, Terzic expects intense contest**: [Link](https://onefootball.com/en/news/san-mames-builds-as-athletic-host-atletico-terzic-expects-intense-contest-43406860)
+
+
+### مخالفة (N/A, Sat, 5 Sep 2026 08:30:00 -0700)
+
+- **مخالفة مرورية تقود إلى توقيف صاحب فيديو مهين للشرطة بفاس – أحداث.أنفو**: [Link](https://www.ahdath.info/%D9%85%D8%AE%D8%A7%D9%84%D9%81%D8%A9-%D9%85%D8%B1%D9%88%D8%B1%D9%8A%D8%A9-%D8%AA%D9%82%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%B5%D8%A7%D8%AD%D8%A8-%D9%81%D9%8A%D8%AF%D9%8A/)
+- **فاس.. إيقاف شخص بعد نشره فيديو مسيئا لعناصر الشرطة**: [Link](https://assabah.ma/947946.html)
+- **بسبب مخالفة سير بقيمة 300 درهم.. تيكتوكر يصف الأمن بـ(الشفارة)**: [Link](https://ar.hibapress.com/details-754626.html)
+
+
+### استثمار (N/A, Sat, 5 Sep 2026 08:30:00 -0700)
+
+- **منح تصريح بيئي لمشروع الاستثمار في البنية التحتية والأعمال في مجمع زاي دا بي الصناعي.**: [Link](https://www.vietnam.vn/ar/cap-giay-phep-moi-truong-cho-du-an-dau-tu-kinh-doanh-ha-tang-cum-cong-nghiep-xay-da-b)
+- **استثمارات صينية جديدة في المغرب**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B5%D9%8A%D9%86%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1801857.html)
+- **تعثر مسطرة هندسية لمصنع Guizhou Tyre بطنجة تيك والمشروع يواصل طريقه نحو الإنجاز**: [Link](https://tanjanews.com/189884.html)
+
+
+### lens – lorient (N/A, Sat, 5 Sep 2026 08:00:00 -0700)
+
+- **RC Lens - FC Lorient. Un groupe lorientais sans la recrue Srdjan Kuzmic à Lens**: [Link](https://www.ouest-france.fr/sport/football/fc-lorient/rc-lens-fc-lorient-un-groupe-lorientais-sans-la-recrue-srdjan-kuzmic-a-lens-160984ae-a916-11f1-a3f7-c4f38a0eaa1c)
+- **Lorient et Dujeux rêvent d'un exploit à Bollaert, le 25e départ de l'été officialisé à Strasbourg**: [Link](https://www.onzemondial.com/ligue-1/lorient-et-dujeux-revent-dun-exploit-a-bollaert-le-25e-depart-de-lete-officialise-a-strasbourg-998773)
+- **Dino Toppmöller fait des rotations pour Lens-Lorient : Amadou Haidara et Thorgan Hazard titulaires**: [Link](https://www.lequipe.fr/Football/Actualites/Dino-toppmoller-fait-des-rotations-pour-lens-lorient-amadou-haidara-et-thorgan-hazard-titulaires/1716334)
+
+
+### كرة القدم (N/A, Sat, 5 Sep 2026 07:50:00 -0700)
+
+- **Watch: Bologna v Sassuolo in Serie A**: [Link](https://www.bbc.com/sport/football/live/ckjrxyyv8ez7t)
+- **PREVIEW | Bologna vs Sassuolo: team news, lineups, predictions (Serie A 06/09)**: [Link](https://sports.yahoo.com/articles/preview-bologna-vs-sassuolo-team-160500796.html)
+- **Bologna's dual mission: Reclaim the Dall'Ara immediately to erase the last season.**: [Link](https://sport.quotidiano.net/en/calcio/bologna/la-doppia-missione-del-bologna-19d3eb77)
+
+
+### man city (N/A, Sat, 5 Sep 2026 07:50:00 -0700)
+
+- **Enzo Fernandez called up for surprise Man City debut after Nico O'Reilly injured in warm-up**: [Link](https://sports.yahoo.com/articles/enzo-fernandez-called-surprise-man-140029246.html)
+- **Man City forced into late line-up change against Coventry after injury blow**: [Link](https://www.independent.co.uk/bulletin/sport/man-city-vs-coventry-city-fc-lineups-b3045245.html)
+- **Video: Chelsea fans will be sniggering as £125m Enzo Fernandez makes awful mistake on Man City debut**: [Link](https://www.livescore.com/en/news/football/more/video-chelsea-fans-will-be-sniggering-as-125m-enzo-fernandez-makes-awful-mistake-on-man-city-debut-caughtoffside/)
+
+
+### كأس العالم (N/A, Sat, 5 Sep 2026 07:50:00 -0700)
+
+- **"لا تنظروا بعين أوروبا".. صامويل إيتو يدعو اتحادات أفريقيا لدعم إنفانتينو**: [Link](https://www.aljazeera.net/sport/2026/9/3/%D8%B5%D8%A7%D9%85%D9%88%D9%8A%D9%84-%D8%A5%D9%8A%D8%AA%D9%88-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **يدافع عن مصالحه بعد خسارة مبابي.. إيتو يكشف سر دعمه القوي لإنفانتينو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D9%85%D8%B5%D8%A7%D9%84%D8%AD%D9%87-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D8%A7%D9%95%D9%8A%D8%AA%D9%88-%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%AF%D8%B9%D9%85%D9%87-%D8%A7%D9%84%D9%82%D9%88%D9%8A-%D9%84%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88/blt698b96671f0ace79)
+- **هل يغيب إنفانتينو عن افتتاح مونديال السيدات تحت 20 سنة بسبب الأزمات؟**: [Link](https://www.alaraby.co.uk/sport/%D9%87%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%B9%D9%86-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D8%AD%D8%AA-20-%D8%B3%D9%86%D8%A9)
+
+
+### جورجينا رودريغيز (N/A, Sat, 5 Sep 2026 07:20:00 -0700)
+
+- **بعد زفافها..كيف أطلت جورجينا رودريغيز للمرة الأولى في مهرجان البندقية؟ | CNN Arabic | CNN**: [Link](https://arabic.cnn.com/style/article/2026/09/05/georgina-rodriguez-at-venice-film-festival-2026)
+- **تألقت زوجة رونالدو العارضة على السجادة الحمراء بمجوهرات من الماس بقيمة 1.4 تريليون دونغ فيتنامي.**: [Link](https://www.vietnam.vn/ar/vo-nguoi-mau-cua-cau-thu-ronaldo-dat-kim-cuong-1-400-ty-len-tham-do)
+- **الإطلالات الجمالية في اليوم الثالث من مهرجان فينيسيا السينمائي 2026.. المكياج الناعم يتصدر المشهد**: [Link](https://www.sayidaty.net/%D8%AC%D9%85%D8%A7%D9%84/%D9%85%D9%83%D9%8A%D8%A7%D8%AC-%D9%88%D8%B9%D8%B7%D9%88%D8%B1/1838901-%D8%A7%D9%84%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D9%85%D9%86-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D8%A7-2026)
+
+
 ### نيوكاسل يونايتد ضد بورنموث (N/A, Sat, 5 Sep 2026 05:20:00 -0700)
 
 - **هارفي بارنز يسجل هدفا خياليا في مباراة نيوكاسل وبورنموث (فيديو)**: [Link](https://www.eremnews.com/sports/iuzybfb)
