@@ -1,3 +1,45 @@
+### نيوكاسل يونايتد ضد بورنموث (N/A, Sat, 5 Sep 2026 05:20:00 -0700)
+
+- **هارفي بارنز يسجل هدفا خياليا في مباراة نيوكاسل وبورنموث (فيديو)**: [Link](https://www.eremnews.com/sports/iuzybfb)
+- **مواعيد مباريات اليوم في الدوري الإنجليزي والقنوات الناقلة**: [Link](https://www.vetogate.com/5725907)
+- **نيوكاسل يونايتد ضد بورنموث**: [Link](https://newturkpost.com/news/121372-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB)
+
+
+### الحسين عموتة (N/A, Sat, 5 Sep 2026 04:20:00 -0700)
+
+- **عمر كمال عبد الواحد: عموتة سبب رحيلى عن الأهلى.. ولقيت رد فعل مش طبيعى**: [Link](https://www.youm7.com/story/2026/9/5/%D8%B9%D9%85%D8%B1-%D9%83%D9%85%D8%A7%D9%84-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%88%D8%A7%D8%AD%D8%AF-%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D8%B3%D8%A8%D8%A8-%D8%B1%D8%AD%D9%8A%D9%84%D9%89-%D8%B9%D9%86-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%89-%D9%88%D9%84%D9%82%D9%8A%D8%AA/7536320)
+- **من الهداف التاريخي للأردن لـ عمر كمال.. كيف يظهر عموته وجهه الصارم أمام لاعبيه؟**: [Link](https://www.yallakora.com/egyptian-league/3031/news/564816/%D9%85%D9%86-%D8%A7%D9%84%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%84%D9%80-%D8%B9%D9%85%D8%B1-%D9%83%D9%85%D8%A7%D9%84-%D9%83%D9%8A%D9%81-%D9%8A%D8%B8%D9%87%D8%B1-%D8%B9%D9%85%D9%88%D8%AA%D9%87-%D9%88%D8%AC%D9%87%D9%87-%D8%A7%D9%84%D8%B5%D8%A7%D8%B1%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-)
+- **نجم الأهلي السابق يكشف موقفه من الانتقال إلى الزمالك**: [Link](https://www.almasryalyoum.com/news/details/4352725)
+
+
+### plaque d'immatriculation (N/A, Sat, 5 Sep 2026 04:00:00 -0700)
+
+- **Plaques d'immatriculation : la NARSA dément l'obligation d'un changement généralisé avant fin 2026**: [Link](https://ledesk.ma/encontinu/plaques-dimmatriculation-la-narsa-dement-lobligation-dun-changement-generalise-avant-fin-2026/)
+- **Plaques d’immatriculation : NARSA dément une échéance au 31 décembre 2026**: [Link](https://maroc-diplomatique.net/plaques-dimmatriculation-narsa-dement-une-echeance-au-31-decembre-2026/)
+- **Plaques d’immatriculation : Le 31 décembre 2026 ne concerne pas tous les véhicules**: [Link](https://www.lavieeco.com/au-royaume/plaques-dimmatriculation-le-31-decembre-2026-ne-concerne-pas-tous-les-vehicules/)
+
+
+### gianni infantino (N/A, Sat, 5 Sep 2026 04:00:00 -0700)
+
+- **Uefa legal case may be beginning of the end for Infantino as Trump’s support evaporates | Barney Ronay**: [Link](https://www.theguardian.com/football/2026/sep/05/uefa-legal-case-beginning-of-end-infantino-trump-support-evaporates)
+- **FIFA accuses UEFA of 'smear campaign' in opposing discovery request**: [Link](https://www.espn.com/soccer/story/_/id/49817156/fifa-uefa-legal-filing-discovery-world-cup-sell-stake)
+- **Josh Kushner: Thrive would have stayed away from World Cup deal if it had known what was coming**: [Link](https://fortune.com/2026/09/04/josh-kushner-thrive-capital-fifa-world-cup-investment-plan-uefa-gianni-infantino-private-investors-soccer-dispute/)
+
+
+### newcastle – bournemouth (N/A, Sat, 5 Sep 2026 03:50:00 -0700)
+
+- **Newcastle United vs Bournemouth: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6jrx89l5eejt)
+- **‘We are heading in the right direction’ Matthias Jaissle Saturday morning message**: [Link](https://www.themag.co.uk/2026/09/we-are-heading-in-the-right-direction-matthias-jaissle-saturday-morning-message-newcastle-united/)
+- **Premier League - Newcastle United v AFC Bournemouth**: [Link](https://www.reutersconnect.com/item/premier-league-newcastle-united-v-afc-bournemouth/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOTUwUjJaMlU)
+
+
+### charles sapin (N/A, Sat, 5 Sep 2026 01:50:00 -0700)
+
+- **Psychodrame à France Inter : la rentrée tourne au bras de fer avec la direction**: [Link](https://www.lepoint.fr/economie/rentree-explosive-a-france-inter-la-direction-de-radio-france-hausse-le-ton-FATUORWJQVCEVMRIYGIWYXGOTQ/)
+- **« Ils sont invirables et se considèrent comme les propriétaires de la radio » : ces salariés de France Inter qui mettent la pression sur la direction pour interdire un chroniqueur de droite**: [Link](https://www.lefigaro.fr/medias/ils-sont-invirables-et-se-considerent-comme-les-proprietaires-de-la-radio-ces-salaries-de-france-inter-qui-mettent-la-pression-sur-la-direction-pour-interdire-un-chroniqueur-de-droite-20260904)
+- **"Si vous croyez que le président de la République doit s'exprimer sur un éditorialiste de France Inter, c'est que vous n'avez pas compris ce qu'était la République", rétorque Raphaël Glucksmann à Stéphane Bureau**: [Link](https://www.bfmtv.com/politique/elections/presidentielle/video-si-vous-croyez-que-le-president-de-la-republique-doit-s-exprimer-sur-un-editorialiste-de-france-inter-c-est-que-vous-n-avez-pas-compris-ce-qu-etait-la-republique-retorque-raphael-glucksmann-a-stephane-bureau_VN-202609040540.html)
+
+
 ### جيان بييرو غاسبيريني (N/A, Sat, 5 Sep 2026 02:20:00 -0700)
 
 - **مستقبل "ضبابي" لنجم المنتخب المغربي بعد خروجه من حسابات مدربه**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/502429.html)
