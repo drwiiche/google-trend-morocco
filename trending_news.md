@@ -1,3 +1,64 @@
+### أزمة (N/A, Sun, 6 Sep 2026 15:00:00 -0700)
+
+- **أزمة "غازوال" تضرب العالم وارتفاع قياسي قادم في الأسعار يثير رعب المغاربة**: [Link](https://www.akhbarona.com/economy/432052.html)
+- **تقلبات تؤثر على محروقات المغرب**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AA%D8%A4%D8%AB%D8%B1-%D8%B9%D9%84%D9%89-%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1799225.html)
+- **الحسين اليماني: لهذه الأسباب.. حان وقت مراجعة الضرائب على المحروقات لإنقاذ القدرة الشرائية للمغاربة**: [Link](https://anfaspress.com/news/voir/177696-2026-09-05-01-04-44)
+
+
+### طفل (N/A, Sun, 6 Sep 2026 14:20:00 -0700)
+
+- **مذيعة جزائرية تنهار على الهواء مباشرة بعد إعلان وفاة الطفل أيوب**: [Link](https://www.alarabiya.net/north-africa/algeria/2026/09/06/%D9%85%D8%B0%D9%8A%D8%B9%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%AA%D9%86%D9%87%D8%A7%D8%B1-%D8%A8%D8%A7%D9%83%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%A1-)
+- **فيديو اجتاح المنصات العربية.. هل يوثق لحظة انتشال جثمان الطفل أيوب؟**: [Link](https://www.aljazeera.net/news/2026/9/6/%D9%87%D9%84-%D9%8A%D9%88%D8%AB%D9%82-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D9%84-%D8%AC%D8%AB%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%B7%D9%81%D9%84-%D8%A3%D9%8A%D9%88%D8%A8)
+- **"أبي أخرجني".. سباق مع الزمن لإنقاذ الطفل الجزائري أيوب من البئر**: [Link](https://www.aa.com.tr/ar/vg/video-galeri/%D8%A3%D8%A8%D9%8A-%D8%A3%D8%AE%D8%B1%D8%AC%D9%86%D9%8A-%D8%B3%D8%A8%D8%A7%D9%82-%D9%85%D8%B9-%D8%A7%D9%84%D8%B2%D9%85%D9%86-%D9%84%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%A7%D9%84%D8%B7%D9%81%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%A3%D9%8A%D9%88%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%A6%D8%B1)
+
+
+### حالة الطقس (N/A, Sun, 6 Sep 2026 14:20:00 -0700)
+
+- **حتى الثلاثاء.. موجة حر ودرجات حرارة تصل إلى 46 درجة (فيديو)**: [Link](https://2m.ma/ar/news/%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D9%88%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-46-%D8%AF%D8%B1%D8%AC%D8%A9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-20260905)
+- **استمرار موجة الحرارة مصحوبة بزخات رعدية من الأحد إلى الثلاثاء**: [Link](https://www.ahdath.info/%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B5%D8%AD%D9%88%D8%A8%D8%A9-%D8%A8%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF/)
+- **موجة حر وزخات رعدية بعدد من المناطق (نشرة إنذارية)**: [Link](https://assabah.ma/947941.html)
+
+
+### classement juventus – ac milan (N/A, Sun, 6 Sep 2026 14:10:00 -0700)
+
+- **De l'échec à Manchester aux pleins pouvoirs à Milan : Amorim, l'heure de la revanche**: [Link](https://www.eurosport.fr/football/serie-a/2026-2027/serie-a-i-juventus-ac-milan-i-de-lechec-a-manchester-aux-pleins-pouvoirs-a-milan-amorim-lheure-de-la-revanche_sto23334067/story.shtml)
+- **AC Milan : Rúben Amorim répond sèchement à la pique de Cristian Chivu**: [Link](https://www.footmercato.net/a4963612139366195017-ac-milan-ruben-amorim-repond-sechement-a-la-pique-de-cristian-chivu)
+- **Italie: la Juventus Turin arrache le nul face à l’AC Milan**: [Link](https://sport.le360.ma/football/serie-a/italie-la-juventus-turin-arrache-le-nul-face-a-lac-milan_DT4HCN3HFRFTLH3O4N6QG3Z5EA/)
+
+
+### meteo (N/A, Sun, 6 Sep 2026 14:10:00 -0700)
+
+
+
+
+### أشرف حكيمي (N/A, Sun, 6 Sep 2026 14:00:00 -0700)
+
+- **أشرف حكيمي ضمن قائمة أفضل 30 لاعبا في العالم لسنة 2026**: [Link](https://assabah.ma/947925.html)
+- **«صلاح» يحافظ على مكانته ضمن أفضل أجنحة العالم**: [Link](https://www.almasryalyoum.com/news/details/4350545)
+- **النجم المغربي حكيمي ضمن أفضل 30 لاعبا لسنة 2026**: [Link](https://inews.ma/news/8634546)
+
+
+### espanyol vs sevilla (N/A, Sun, 6 Sep 2026 13:40:00 -0700)
+
+- **Espanyol vs Sevilla match lineup | LaLiga · 6 Sep 2026**: [Link](https://www.ysscores.com/en/lineup/5868045/RCD-Espanyol-Barcelona-vs-Sevilla-FC)
+- **Fernandez Sanchez bags last-gasp equaliser to rescue point for Espanyol against Sevilla**: [Link](https://www.tribalfootball.com/article/fernandez-sanchez-bags-last-gasp-equaliser-to-rescue-point-for-espanyol-against-sevilla-d54d216d-81f6-4c4f-a78b-132d6f3d9918)
+- **Liga: Sevilla misses the mark despite Stassin**: [Link](https://frenchfootballweekly.com/2026/09/06/liga-sevilla-misses-the-mark-despite-stassin/)
+
+
+### us open (N/A, Sun, 6 Sep 2026 13:40:00 -0700)
+
+- **Empty seats, tired stars: The US Open’s post-2 a.m. finishes spark a pushback**: [Link](https://ny1.com/nyc/all-boroughs/ap-top-news/2026/09/06/empty-seats-tired-stars-the-us-opens-post-2-am-finishes-spark-a-pushback)
+- **Empty seats, tired stars: The US Open’s post-2 a.m. finishes spark a pushback**: [Link](https://www.bdtonline.com/sports/national_sports/empty-seats-tired-stars-the-us-open-s-post-2-a-m-finishes-spark-a/article_18a4ca25-0e11-5e9b-a240-72343e14cd89.html)
+- **Empty seats, tired stars: The US Open’s post-2 a.m. finishes spark a pushback**: [Link](https://www.wpxi.com/sports/empty-seats-tired/4JJPCOJ56Q5QTMPYZMHUTDLY3I/)
+
+
+### bande de gaza (N/A, Sun, 6 Sep 2026 13:30:00 -0700)
+
+- **Gaza : Huit pays musulmans condamnent les appels d’Israël à déplacer les populations**: [Link](https://www.leconomiste.com/flash-infos/gaza-huit-pays-musulmans-condamnent-les-appels-disrael-a-deplacer-les-populations/)
+- **Bande de Gaza : huit pays à majorité musulmane condamnent dans « les termes les plus fermes » les appels de ministres israéliens à déplacer les Palestiniens**: [Link](https://www.lemonde.fr/international/article/2026/09/06/bande-de-gaza-huit-pays-a-majorite-musulmane-condamnent-dans-les-termes-les-plus-fermes-les-appels-de-ministres-israeliens-a-deplacer-les-palestiniens_6767307_3210.html)
+- **Le président du Parlement arabe condamne les projets de déplacement forcé des Palestiniens**: [Link](https://french.wafa.ps/Pages/Details/246451)
+
+
 ### الطقس غدًا (N/A, Sun, 6 Sep 2026 13:00:00 -0700)
 
 - **[فيديو] توقعات الطقس لليلة وغدًا، 7 سبتمبر 2026: زيادة سطوع الشمس في الشمال، وانخفاض هطول الأمطار في الجنوب.**: [Link](https://www.vietnam.vn/ar/video-du-bao-thoi-tiet-dem-nay-va-ngay-mai-7-9-2026-mien-bac-nang-tang-phia-nam-mua-giam)
