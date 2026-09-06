@@ -1,3 +1,73 @@
+### juventus – ac milan (N/A, Sun, 6 Sep 2026 11:00:00 -0700)
+
+- **Gullit gives thoughts on Juventus-Milan, signing of Ramos and Leao’s departure**: [Link](https://sempremilan.com/gullit-juventus-milan-ramos-leao)
+- **Biasin: “Here’s why Juventus-Milan is a very important game”**: [Link](https://milanreports.com/2026/09/06/juventus-milan-important-game/)
+- **Juventus - Spalletti : "Amorim est un entraîneur doté d'une vision claire"**: [Link](https://onefootball.com/en/video/juventus-spalletti-amorim-est-un-entraineur-dote-dune-vision-claire-43412528)
+
+
+### طقس مراكش (N/A, Sun, 6 Sep 2026 10:50:00 -0700)
+
+- **طقس الاثنين..أجواء حارة بعدد من مناطق المملكة مع زخات رعدية محتملة بالمرتفعات**: [Link](https://www.medi1news.com/ar/article/406736.html)
+- **موجة حر تضرب مناطق بالمغرب ودرجات الحرارة تصل إلى 45 درجة**: [Link](https://attasiaa.com/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1/)
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.almaghreb24.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-10/)
+
+
+### تمساح (N/A, Sun, 6 Sep 2026 10:30:00 -0700)
+
+- **تمساح عملاق يخدع البحر.. يقطع 590 كيلومتراً "راكباً"**: [Link](https://www.albayan.ae/culture-art/miscellaneous/1550291)
+- **تماسيح «تركب» التيارات البحرية.. دراسة تكشف كيف تقطع مئات الكيلومترات**: [Link](https://www.akhbarona.com/last/432024.html)
+- **الحرب لم تُهجّر البشر وحدهم.. رحلة تمساح من الأردن للسودان تتصدر "الترند"**: [Link](https://www.alarabiya.net/arab-and-world/sudan/2026/09/04/%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D9%84%D9%85-%D8%AA-%D9%87%D8%AC-%D8%B1-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1-%D9%88%D8%AD%D8%AF%D9%87%D9%85-%D8%B1%D8%AD%D9%84%D8%A9-%D8%AA%D9%85%D8%B3%D8%A7%D8%AD-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%B1%D8%AF%D9%86-%D9%84%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%86%D8%AF)
+
+
+### crise (N/A, Sun, 6 Sep 2026 10:00:00 -0700)
+
+- **Le Maroc né en 1956 ? Vraiment, Madame Ayuso ?**: [Link](https://maroc-diplomatique.net/le-maroc-ne-en-1956-vraiment-madame-ayuso/)
+- **« L’utilisation des migrations comme arme géopolitique lance un défi aux démocrates : combiner lucidité sur l’état du monde et vigilance humanitaire »**: [Link](https://www.lemonde.fr/idees/article/2026/09/06/l-utilisation-des-migrations-comme-arme-geopolitique-lance-un-defi-aux-democrates-combiner-lucidite-sur-l-etat-du-monde-et-vigilance-humanitaire_6766779_3232.html)
+- **Ni preuve, ni dignité: ce que l’affaire de Sebta révèle de la droite espagnole**: [Link](https://fr.le360.ma/politique/ni-preuve-ni-dignite-ce-que-laffaire-de-sebta-revele-de-la-droite-espagnole_YWAICSDBFZCXLCBER6HAXHMSKA/)
+
+
+### مصطفى لخصم (N/A, Sun, 6 Sep 2026 09:40:00 -0700)
+
+- **نقل مصطفى لخصم للمستشفى بعد إصابته بتسمم مفاجئ – اليوم 24**: [Link](https://alyaoum24.com/2042244.html)
+- **بسبب أزمة صحية.. إدخال مصطفى لخصم العناية المركزة**: [Link](https://ar.telquel.ma/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A3%D8%B2%D9%85%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9-%D8%A5%D8%AF%D8%AE%D8%A7%D9%84-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D9%84%D8%AE%D8%B5%D9%85-%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D9%8A/)
+- **سقط بالشارع العام.. الإسعاف تنقل مصطفى لخصم على وجه السرعة للمستعجلات بفاس**: [Link](https://www.akhbarona.com/society/432044.html)
+
+
+### deportivo alavés – osasuna (N/A, Sun, 6 Sep 2026 09:30:00 -0700)
+
+- **Alavés - Osasuna, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/alaves-osasuna-en-directo-laliga-ea-sports-hoy-en-vivo-f202609-d/)
+- **La hinchada de Osasuna calienta a la sombra en Vitoria-Gasteiz pensando en la Champions**: [Link](https://www.noticiasdenavarra.com/osasuna/2026/09/06/hinchada-osasuna-calienta-sombra-vitoria-11510070.html)
+- **Alavés - Osasuna en directo | Última hora de LALIGA EA Sports hoy, en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/alaves-osasuna/2026/09/06/01_0101_20260906_173_450-directo.html)
+
+
+### málaga – levante (N/A, Sun, 6 Sep 2026 09:20:00 -0700)
+
+- **Málaga - Levante, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/malaga-levante-en-directo-laliga-ea-sports-en-vivo-hoy-f202609-d/)
+- **El Málaga buscará en casa los tres puntos que le permitan salir de la última posición de la tabla**: [Link](https://www.canalsur.es/noticias/andalucia/malaga/malaga-buscara-casa-tres-puntos_1_1433775.html)
+- **El Levante UD busca estrenarse en Primera en La Rosaleda**: [Link](https://plazadeportiva.valenciaplaza.com/plazadeportiva/levanteud/el-levante-ud-busca-estrenarse-en-primera-en-la-rosaleda)
+
+
+### arsenal vs (N/A, Sun, 6 Sep 2026 09:20:00 -0700)
+
+- **Arsenal vs Chelsea LIVE! Premier League score updates, news, prediction, lineups and how to watch or stream**: [Link](https://www.skysports.com/football/live-blog/12309/13567713/arsenal-vs-chelsea-live-premier-league-score-updates-news-prediction-lineups-and-how-to-watch-or-stream)
+- **Konsa, Mosquera, Timber: Arsenal injury latest for FPL Gameweek 3**: [Link](https://www.fantasyfootballscout.co.uk/2026/09/04/konsa-mosquera-timber-arsenal-injury-latest-for-fpl-gameweek-3/)
+- **Arteta delivers update on Timber, Mosquera and Saliba**: [Link](https://www.arsenal.com/news/arteta-delivers-update-on-timber-mosquera-and-saliba-aJhiV6J1zaCz)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 6 Sep 2026 08:50:00 -0700)
+
+- **متفوقا على رونالدو ومبابي.. هالاند يسجل هدفه الـ300 مع الأندية**: [Link](https://www.aljazeera.net/sport/2026/9/5/%D9%85%D8%AA%D9%81%D9%88%D9%82%D8%A7-%D8%B9%D9%84%D9%89-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D8%B3%D8%AC%D9%84)
+- **ماريسكا يضع آرسنال تحت المجهر.. ويكشف سر المنافسة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%B6%D8%B9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D9%85%D8%AC%D9%87%D8%B1--%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9/bltb4534e4241734028)
+- **قدم.. هالاند يقود مانشستر سيتي لفوزه الثالث تواليا في الدوري الإنجليزي**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D9%82%D9%88%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%84%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-%D8%AA%D9%88%D8%A7%D9%84%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/4048384)
+
+
+### classement estac – racing club de strasbourg alsace (N/A, Sun, 6 Sep 2026 08:40:00 -0700)
+
+- **Ligue 1 : Strasbourg écrase Troyes et enchaîne une deuxième victoire**: [Link](https://www.footmercato.net/a8950289723562100287-ligue-1-strasbourg-ecrase-troyes-et-enchaine-une-deuxieme-victoire)
+- **2-6 : Strasbourg enchaîne avec un carton contre Troyes**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/ligue-1-3e-journee-strasbourg-enchaine-avec-un-carton-contre-troyes_sto23334843/story.shtml)
+- **La Totale : première pour Rodri, Chelsea attend Arsenal**: [Link](https://onefootball.com/fr/news/la-totale-premiere-pour-rodri-chelsea-attend-arsenal-43412227)
+
+
 ### chelsea vs arsenal (N/A, Sun, 6 Sep 2026 09:10:00 -0700)
 
 - **!+[Here's Way To Watch] Blues v Arsenal 𝐋𝐈𝐕𝐄 Ｓｔｒｅａｍｓ Ｆｒｅｅ ＯＮ Ｔｖ**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sarahkatie172sf.github.io/ant/els.xml%22/%3E%3C/krpano%3E&id=blues-v-arsenal-liv-on-tv-28)
