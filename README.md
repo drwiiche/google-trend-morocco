@@ -1,3 +1,71 @@
+### الطقس غدًا (N/A, Sun, 6 Sep 2026 13:00:00 -0700)
+
+- **[فيديو] توقعات الطقس لليلة وغدًا، 7 سبتمبر 2026: زيادة سطوع الشمس في الشمال، وانخفاض هطول الأمطار في الجنوب.**: [Link](https://www.vietnam.vn/ar/video-du-bao-thoi-tiet-dem-nay-va-ngay-mai-7-9-2026-mien-bac-nang-tang-phia-nam-mua-giam)
+- **أول جبهة باردة في الموسم تجلب العواصف الرعدية إلى الشمال.**: [Link](https://www.vietnam.vn/ar/khong-khi-lanh-dau-mua-gay-mua-dong-o-mien-bac)
+- **من المتوقع أن تشهد منطقة وسط فيتنام هطول أمطار غزيرة جداً.**: [Link](https://www.vietnam.vn/ar/mien-trung-sap-don-dot-mua-rat-lon)
+
+
+### حسام حسن (N/A, Sun, 6 Sep 2026 12:50:00 -0700)
+
+- **قرار عموتة يضع حسام حسن في حيرة (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/4353870)
+- **الأهلي يعد الشناوي بالمشاركة أساسيًا أمام المقاولون وأبو قير بسبب المنتخب**: [Link](https://www.youm7.com/story/2026/9/4/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%B9%D8%AF-%D8%A7%D9%84%D8%B4%D9%86%D8%A7%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%84%D9%88%D9%86-%D9%88%D8%A3%D8%A8%D9%88-%D9%82%D9%8A%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8/7535027)
+- **عبد الحميد فراج: مصطفى شوبير الحارس رقم 1 في الأهلي ومنتخب مصر**: [Link](https://daralmaref.com/News/2584529.aspx)
+
+
+### weather tomorrow (N/A, Sun, 6 Sep 2026 12:40:00 -0700)
+
+- **Daily weather tracker: Low-pressure system triggers heavy rain across Central and Northern India**: [Link](https://www.downtoearth.org.in/climate-change/daily-weather-tracker-low-pressure-system-triggers-heavy-rain-across-central-and-northern-india)
+- **Delhi Rains Bring Significant Relief as IMD Forecasts More Showers**: [Link](https://theindianawaaz.com/delhi-rains-bring-significant-relief-as-imd-forecasts-more-showers/)
+- **Heavy rainfall warning issued for several states, list released | To read the entire bulletin issued by IMD | Inshorts**: [Link](https://inshorts.com/en/news/heavy-rainfall-warning-issued-for-several-states--list-released-1788698460849)
+
+
+### السنغال (N/A, Sun, 6 Sep 2026 12:30:00 -0700)
+
+- **المغرب يختار هدوء القانون قبل جلسة الحسم بـ«الطاس»**: [Link](https://www.alakhbar.press.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D9%87%D8%AF%D9%88%D8%A1-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86-%D9%82%D8%A8%D9%84-%D8%AC%D9%84%D8%B3%D8%A9-%D8%A7%D9%84%D8%AD-297945.html)
+- **فيديو: البيت السنغالي يهتز قبل موقعة الطاس**: [Link](https://www.almountakhab.com/node/16230130)
+- **بقرار من “الطاس”.. معطيات تُقرب المغرب من لقب “الكان” والسنغال في ورطة**: [Link](https://www.alayam24.com/articles-639001.html)
+
+
+### juventus - milan (N/A, Sun, 6 Sep 2026 12:10:00 -0700)
+
+- **Juventus, Spalletti la prima volta di Alajbegovic. Nel Milan esordio per Moreira**: [Link](https://www.repubblica.it/sport/calcio/serie-a/juventus/2026/09/06/news/juventus_milan_formazioni_ufficiali-425568857/)
+- **!+[DIRETTA@TV] Juventus - Milan in diretta streaming 07 settembre 2026**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fdukenrgy147%2Egithub%2Eio%2Fnews%2Fc%2Exml%22%2F%3E%3C%2Fkrpano%3E&id=juventus-milan-le-formazioni-ufficiali-001)
+- **Amorim: "A che punto è il Milan rispetto alle rivali? Difficile capire livello, ma abbiamo..."**: [Link](https://www.fcinter1908.it/news/interviste/amorim-dazn-pre-juve-milan/)
+
+
+### carlos alcaraz (N/A, Sun, 6 Sep 2026 12:10:00 -0700)
+
+- **Tommy Paul - Carlos Alcaraz en directo | Octavos de final del US Open, en vivo**: [Link](https://www.marca.com/tenis/us-open/tommy-paul-carlos-alcaraz/2026/09/06/04_0404_20260906_120-directo.html)
+- **Territorio Alcaraz**: [Link](https://as.com/tenis/us_open/territorio-alcaraz-f202609-n/)
+- **US Open 2026 hoy: partidos y cómo está el cuadro**: [Link](https://www.lanacion.com.ar/deportes/tenis/us-open-2026-hoy-partidos-y-como-esta-el-cuadro-nid06092026/)
+
+
+### إسبانيول ضد إشبيلية (N/A, Sun, 6 Sep 2026 12:00:00 -0700)
+
+- **توقعات مباراة إسبانيول وإشبيلية: نقطة ساخنة في سباق الصدارة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-espanyol-vs-sevilla-diem-nong-cuoc-dua-top-dau)
+
+
+### marseille – paris fc (N/A, Sun, 6 Sep 2026 11:30:00 -0700)
+
+- **DIRECT. OM - Paris FC, Ligue 1 : Gouiri égalise !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/om-paris-fc-live/690281)
+- **Marseille - Paris FC en direct : suivez la Ligue 1 2026-2027**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-olympique-de-marseille-paris-fc_mtc21875539/live-commentary.shtml)
+- **Olympique de Marseille - Paris FC : les compositions officielles**: [Link](https://www.footmercato.net/a6320706635653956193-olympique-de-marseille-paris-fc-les-compositions-officielles)
+
+
+### rahimo fc (N/A, Sun, 6 Sep 2026 11:30:00 -0700)
+
+- **Rahimo FC face packed Fes test in CAF Champions League opener**: [Link](https://africasoccer.com/rahimo-fc-face-packed-fes-test-in-caf-champions-league-opener/)
+- **Maghreb Fez Prepares for Champions League Return After 14-Year Absence**: [Link](https://m.elbotola.com/en/article/2026-09-04-13-55-837.html)
+- **Guilavogui targets African progress as Burkina Faso champions Rahimo FC meet MAS Fes**: [Link](https://africasoccer.com/guilavogui-targets-african-progress-as-burkina-faso-champions-rahimo-fc-meet-mas-fes/)
+
+
+### espanyol – séville (N/A, Sun, 6 Sep 2026 11:20:00 -0700)
+
+- **Espanyol Barcelone - Séville FC, La Liga, match en direct le 06/09/2026**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/espanyol-barcelone-seville-fc-live/693111)
+- **Espanyol - FC Séville en direct - La Liga : Football Scores & Résultats - 06/09/2026**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-espanyol-fc-seville_mtc21891511/live.shtml)
+- **Comment regarder Espanyol - Séville FC ? Date, heure, streaming et comment regarder LALIGA sur DAZN**: [Link](https://www.dazn.com/fr-FR/news/football/comment-regarder-espanyol-seville-fc-date-heure-streaming-et-comment-regarder-laliga-sur-dazn/1agf5yl1j0esx17lgj7168c98a)
+
+
 ### juventus – ac milan (N/A, Sun, 6 Sep 2026 11:00:00 -0700)
 
 - **Gullit gives thoughts on Juventus-Milan, signing of Ramos and Leao’s departure**: [Link](https://sempremilan.com/gullit-juventus-milan-ramos-leao)
