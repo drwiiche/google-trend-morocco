@@ -1,3 +1,73 @@
+### ayoub el kaabi blessure (N/A, Sun, 6 Sep 2026 06:00:00 -0700)
+
+- **Ayoub El Kaabi victime d'une fracture en plein match avec l'Olympiakos**: [Link](https://fr.hespress.com/487271-ayoub-el-kaabi-victime-dune-fracture-en-plein-match-avec-lolympiakos.html)
+- **Lions de l’Atlas : Ayoub El Kaabi opéré avec succès après sa grave blessure avec l’Olympiakos**: [Link](https://lematin.ma/sports/ayoub-el-kaabi-opere-avec-succes-apres-sa-grave-blessure-avec-lolympiakos/363668)
+- **Exclu360. Ayoub El Kaabi victime d’une fracture du tibia, une longue absence se profile**: [Link](https://sport.le360.ma/football/autres-championnats/exclu360-ayoub-el-kaabi-victime-dune-fracture-du-tibia-une-longue-absence-se-profile_Y5SHWDZLHNCGNOVYCDYE4RO64I/)
+
+
+### إيفرتون ضد مان يونايتد (N/A, Sun, 6 Sep 2026 05:40:00 -0700)
+
+- **اليونايتد يتطلع لمواصلة الصحوة عندما يحل ضيفا على إيفرتون**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%AA%D8%B7%D9%84%D8%B9-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%88%D8%A9-%D8%B9%D9%86%D8%AF%D9%85%D8%A7/)
+- **القنوات الناقلة لمباراة مانشستر يونايتد ضد إيفرتون في الجولة الثالثة بالدوري الإنجليزي 2026/2027**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7-64/)
+- **كاريك: مواجهة إيفرتون دائما صعبة مهما كان ترتيبه في الدوري**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=05092026&id=c931ba59-9347-421a-9f9c-2baf9aa61a76)
+
+
+### troyes – strasbourg (N/A, Sun, 6 Sep 2026 05:40:00 -0700)
+
+- **Troyes sans Titi, Boura ni Gozzi contre Strasbourg**: [Link](https://www.lequipe.fr/Football/Actualites/Troyes-sans-titi-boura-ni-gozzi-contre-strasbourg/1716480)
+- **« On a beaucoup moins le droit à l’erreur en Ligue 1 », affirme le milieu de terrain de l’Estac Antoine Mille**: [Link](https://www.lest-eclair.fr/id826210/article/2026-09-05/beaucoup-moins-le-droit-lerreur-en-ligue-1-affirme-le-milieu-de-terrain-de)
+- **ESTAC-Strasbourg (J3) : la conf d’avant-match**: [Link](https://www.estac.fr/estac-strasbourg-j3-la-conf-davant-match/)
+
+
+### everton – manchester united (N/A, Sun, 6 Sep 2026 05:10:00 -0700)
+
+- **Carrick names team for Everton encounter**: [Link](https://www.manutd.com/en/news/carrick-names-team-to-tackle-everton-6-sep-2026)
+- **Amad, Baleba, Shaw - Manchester United injury news and return dates ahead of Everton**: [Link](https://www.manchestereveningnews.co.uk/sport/football/amad-baleba-shaw-manchester-united-34574856)
+- **Bruno Fernandes can break Man Utd record against Everton**: [Link](https://readmanutd.com/2026/09/06/bruno-fernandes-can-break-man-utd-record-against-everton/)
+
+
+### classement miss monde 2026 (N/A, Sun, 6 Sep 2026 05:00:00 -0700)
+
+- **Joheirry Mola Dominguez sacrée Miss Monde 2026**: [Link](https://www.rtl.be/actu/monde/joheirry-mola-dominguez-sacree-miss-monde-2026/2026-09-06/article/799382)
+- **Miss République dominicaine sacrée Miss Monde, Indira Ampiot dans le top 12**: [Link](https://www.20minutes.fr/arts-stars/culture/4242971-20260905-miss-monde-miss-republique-dominicaine-couronnee-francaise-indira-ampiot-top-12)
+- **« Ces réseaux sociaux me courent sur le haricot » : Sylvie Tellier s’insurge contre les critiques envers Indira Ampiot à Miss Monde**: [Link](https://www.leparisien.fr/culture-loisirs/tv/ces-reseaux-sociaux-me-courent-sur-le-haricot-sylvie-tellier-sinsurge-contre-les-critiques-envers-indira-ampiot-a-miss-monde-05-09-2026-45GLNZ255NAYXLKCQTEKUD4YZQ.php)
+
+
+### برادلي باركولا (N/A, Sun, 6 Sep 2026 04:40:00 -0700)
+
+- **باركولا يحطم رقما قياسيا في أول ظهور له في الدوري الإنجليزي**: [Link](https://www.aljazeera.net/sport/2026/9/6/%D8%A8%D8%A7%D8%B1%D9%83%D9%88%D9%84%D8%A7-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%B3%D8%B1%D8%B9%D8%A9)
+- **على خطى صلاح؟.. باركولا يتلقى أول تحذير من كاراجر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D9%89-%D8%B5%D9%84%D8%A7%D8%AD--%D8%A8%D8%A7%D8%B1%D9%83%D9%88%D9%84%D8%A7-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%A7%D9%94%D9%88%D9%84-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D9%83%D8%A7%D8%B1%D8%A7%D8%AC%D8%B1/blt6f870903c593b909)
+- **دولي فرنسي يكسر رقم بوعدي في "ظرف قياسي"**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/502157.html)
+
+
+### اصابة ايوب الكعبي (N/A, Sun, 6 Sep 2026 04:00:00 -0700)
+
+- **إصابة مروعة لأيوب الكعبي تصدم أولمبياكوس اليوناني والمنتخب المغربي (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/9/6/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%83%D8%B3%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D9%82)
+- **مدة غيابه صادمة.. الكعبي يخضع لجراحة ناجحة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D8%AF%D8%A9-%D8%BA%D9%8A%D8%A7%D8%A8%D9%87-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9--%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%8A%D8%AE%D8%B6%D8%B9-%D9%84%D8%AC%D8%B1%D8%A7%D8%AD%D8%A9-%D9%86%D8%A7%D8%AC%D8%AD%D8%A9/blt0e15c5a33d42fcc2)
+- **للمباراة الثالثة تواليا.. الإصابة تبعد أيوب الكعبي عن أولمبياكوس**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%88%D9%84%D9%88%D8%B3-%D9%85%D8%B5%D8%A7%D8%A8%D8%A7-%D9%88%D8%B3%D8%B7-%D9%85%D8%AE/)
+
+
+### أياكس أمستردام (N/A, Sun, 6 Sep 2026 03:50:00 -0700)
+
+- **فيديو: كارثة تير شتيجن.. أياكس يتلقى ضربة موجعة في ليلة كابوسية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%AA%D9%8A%D8%B1-%D8%B4%D8%AA%D9%8A%D8%AC%D9%86--%D8%A7%D9%94%D9%8A%D8%A7%D9%83%D8%B3-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D9%88%D8%AC%D8%B9%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D9%83%D8%A7%D8%A8%D9%88%D8%B3%D9%8A%D8%A9/blt6344bf449c8a9672)
+- **كلاسيكو هولندا | "لم يعرف أن أياكس كان خاسرًا؟" .. تير شتيجن يحول جمهور أياكس إلى كتالونيين!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7--%D9%84%D9%85-%D9%8A%D8%B9%D8%B1%D9%81-%D8%A7%D9%94%D9%86-%D8%A7%D9%94%D9%8A%D8%A7%D9%83%D8%B3-%D9%83%D8%A7%D9%86-%D8%AE%D8%A7%D8%B3%D8%B1%D9%8B%D8%A7---%D8%AA%D9%8A%D8%B1-%D8%B4%D8%AA%D9%8A%D8%AC%D9%86-%D9%8A%D8%AD%D9%88%D9%84-%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D9%94%D9%8A%D8%A7%D9%83%D8%B3-%D8%A7%D9%95%D9%84%D9%89-%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D9%8A%D9%86/bltb04b4e4328bd8279)
+- **الدوري الهولندي.. آيندهوفن يحسم القمة أمام أياكس بثلاثية**: [Link](https://inews.ma/news/8637513)
+
+
+### نادي بوتافوغو (N/A, Sun, 6 Sep 2026 03:10:00 -0700)
+
+- **ما حقيقة تراجع المغربي زياش عن الانتقال إلى بوتافوغو؟**: [Link](https://www.aljazeera.net/sport/2026/9/6/%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%BA%D9%88)
+- **الوداد يقلب الطاولة على زياش.. والنجم المغربي يخرج عن صمته بخطوة حاسمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9-%D8%B9%D9%84%D9%89-%D8%B2%D9%8A%D8%A7%D8%B4--%D9%88%D8%A7%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AE%D8%B1%D8%AC-%D8%B9%D9%86-%D8%B5%D9%85%D8%AA%D9%87-%D8%A8%D8%AE%D8%B7%D9%88%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9/blt3f10b170af56ad7f)
+- **اتصال من لبيض يدفع زياش للتراجع عن السفر إلى البرازيل والتوقيع مع بوتافوغو**: [Link](https://www.hesport.com/%D8%A7%D8%AA%D8%B5%D8%A7%D9%84-%D9%85%D9%86-%D9%84%D8%A8%D9%8A%D8%B6-%D9%8A%D8%AF%D9%81%D8%B9-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%84%D9%84%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D9%86-%D8%A7%D9%84%D8%B3%D9%81-454089.html)
+
+
+### زفاف (N/A, Sun, 6 Sep 2026 02:50:00 -0700)
+
+- **هيفاء وهبي تسقط فجأة أثناء غنائها.. وردها يشعل مواقع التواصل**: [Link](https://www.alarabiya.net/culture-and-art/2026/09/06/%D9%87%D9%8A%D9%81%D8%A7%D8%A1-%D9%88%D9%87%D8%A8%D9%8A-%D8%AA%D8%AA%D8%B9%D8%AB%D8%B1-%D9%88%D8%AA%D8%B3%D9%82%D8%B7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%B1%D8%AD-%D8%A7%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AD%D8%B6%D9%88%D8%B1-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84)
+- **إيلي صعب يوقّع إطلالة جوليا بطرس وكنّتها لانا نصولي عروس سامر بو صعب**: [Link](https://www.annahar.com/lifestyle/fashion/344596/%D8%A5%D9%8A%D9%84%D9%8A-%D8%B5%D8%B9%D8%A8-%D9%8A%D9%88%D9%82%D8%B9-%D8%A5%D8%B7%D9%84%D8%A7%D9%84%D8%A9-%D8%AC%D9%88%D9%84%D9%8A%D8%A7-%D8%A8%D8%B7%D8%B1%D8%B3-%D9%88%D9%83%D9%86%D8%AA%D9%87%D8%A7-%D9%84%D8%A7%D9%86%D8%A7-%D9%86%D8%B5%D9%88%D9%84%D9%8A-%D8%B9%D8%B1%D9%88%D8%B3-%D8%B3%D8%A7%D9%85%D8%B1-%D8%A8%D9%88-%D8%B5%D8%B9%D8%A8)
+- **أحمد سعد ممازحاً في أحد الأعراس: أغني التفاهة دي إزاي!**: [Link](https://www.alhadath.net/2026/09/06/%D8%A7%D8%AD%D9%85%D8%AF-%D8%B3%D8%B9%D8%AF-%D9%8A%D9%85%D8%A7%D8%B2%D8%AD-%D8%AC%D9%88%D9%84%D9%8A%D8%A7-%D8%A8%D8%B7%D8%B1%D8%B3-%D9%81%D9%8A-%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81-%D8%A7%D8%A8%D9%86%D9%87%D8%A7-%D8%A7%D8%BA%D9%85%D9%8A-%D8%B9%D9%84%D9%8A-)
+
+
 ### salaire (N/A, Sun, 6 Sep 2026 02:20:00 -0700)
 
 - **Maroc : à combien s’élève le salaire minimum en 2026 ?**: [Link](https://www.lequotidiendesentreprises.fr/argent/maroc-a-combien-seleve-le-salaire-minimum-en-2026/)
