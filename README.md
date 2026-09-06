@@ -1,3 +1,73 @@
+### chelsea vs arsenal (N/A, Sun, 6 Sep 2026 09:10:00 -0700)
+
+- **!+[Here's Way To Watch] Blues v Arsenal 𝐋𝐈𝐕𝐄 Ｓｔｒｅａｍｓ Ｆｒｅｅ ＯＮ Ｔｖ**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sarahkatie172sf.github.io/ant/els.xml%22/%3E%3C/krpano%3E&id=blues-v-arsenal-liv-on-tv-28)
+- **DAℤℕ-TV EPL 2026: Chelsea v Arsenal Premier League Live Covarage**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/happyhubs.nl/files/a.xml%22/%3E%3C/krpano%3E&id=video-epl-2026-chelsea-v-arsenal-premier-league-lie-en-oxauwrc)
+- **(Live)! Chelsea Arsenal EPL Live Free Premier League Coverage September 6, 2026**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fnayeemelli46%2Egithub%2Eio%2Fget%2Fa%2Exml%22%2F%3E%3C%2Fkrpano%3E&id=pbckvecsof)
+
+
+### condamné (N/A, Sun, 6 Sep 2026 08:30:00 -0700)
+
+- **"Ce ne sont pas 300 ou 400 euros d’amende qui me font peur" : IPTV, site de piratage, abonnements trop chers… qui sont ces utilisateurs**: [Link](https://www.midilibre.fr/2026/09/04/ce-ne-sont-pas-300-ou-400-euros-damende-qui-me-font-peur-iptv-site-de-piratage-abonnements-trop-chers-qui-sont-ces-utilisateurs-13532626.php)
+- **IPTV et piratage du foot anglais : un retraité condamné à plus de six ans de prison**: [Link](https://android-mt.ouest-france.fr/news/iptv-et-piratage-du-foot-anglais-un-retraite-condamne-a-plus-de-six-ans-de-prison/212972/)
+- **IPTV pirate : les clients pourraient payer le prix fort à la suite du piratage de leur fournisseur**: [Link](https://www.zataz.com/iptv-pirate-les-clients-pourraient-payer-le-prix-fort-a-la-suite-du-piratage-de-leur-fournisseur/)
+
+
+### classement everton – manchester united (N/A, Sun, 6 Sep 2026 08:20:00 -0700)
+
+- **Everton 2-2 Manchester United, Premier League : Les Red Devils repris deux fois**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2026-2027/everton-manchester-united-live/691318)
+- **Suivez Everton - Manchester United En direct - Premier League - 3e journée**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-everton-manchester-united_mtc21883289/live-commentary.shtml)
+- **Angleterre: Everton accroche Manchester United dans un final enflammé**: [Link](https://sport.le360.ma/football/premier-league/angleterre-everton-accroche-manchester-united-dans-un-final-enflamme_TWL3JDGK7FAB5EZ6OX6XQ44QEA/)
+
+
+### arsenal (N/A, Sun, 6 Sep 2026 08:10:00 -0700)
+
+- **(1) Arsenal v Chelsea: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/sep/06/arsenal-v-chelsea-premier-league-live)
+- **Mikel Arteta vs Xabi Alonso is a rivalry born out of a lifelong friendship**: [Link](https://www.telegraph.co.uk/football/2026/09/06/mikel-arteta-xabi-alonso-special-relationship-sociedad/)
+- **Mikel Arteta, Xabi Alonso and Andoni Iraola started their paths to the top at Antiguoko: 'If I really think about it, it's absolutely crazy'**: [Link](https://www.skysports.com/football/news/11669/13580891/mikel-arteta-xabi-alonso-and-andoni-iraola-started-their-paths-to-the-top-at-antiguoko-if-i-really-think-about-it-its-absolutely-crazy)
+
+
+### angers – rennes (N/A, Sun, 6 Sep 2026 08:10:00 -0700)
+
+- **Angers SCO – Stade Rennais. Qui va gagner le derby selon Opta ?**: [Link](https://sportune.20minutes.fr/sport-business/football/angers-sco-stade-rennais-qui-va-gagner-le-derby-selon-opta-410279)
+- **Le but de l'Angevin Jordan Lefort contre son camp face à Rennes en Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Le-but-de-l-angevin-jordan-lefort-contre-son-camp-face-a-rennes-en-ligue-1/1716672)
+- **La conférence de presse d'avant-match**: [Link](https://www.staderennais.com/actualites/ligue-1-mcdonalds/la-conference-de-presse-davant-match)
+
+
+### آرسنال ضد تشيلسي (N/A, Sun, 6 Sep 2026 07:50:00 -0700)
+
+- **تشكيل ديربي لندن: كونسا أساسيًا مع آرسنال.. والثلاثي الناري يقود تشيلسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%84%D9%86%D8%AF%D9%86-%D9%83%D9%88%D9%86%D8%B3%D8%A7-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D9%85%D8%B9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84--%D9%88%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A7%D9%84%D9%86%D8%A7%D8%B1%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/blt4815412e0c37ffb2)
+- **بث مباشر لمباراة آرسنال ضد تشيلسي في الدوري الإنجليزي**: [Link](https://www.annahar.com/sports/football/344728/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D9%83%D9%84%D9%8A%D8%B2%D9%8A)
+- **أرتيتا يواجه ألونسو في قمة إنكلترا بين أرسنال وتشلسي**: [Link](https://www.alaraby.co.uk/sport/%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A8%D9%8A%D9%86-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%AA%D8%B4%D9%84%D8%B3%D9%8A)
+
+
+### arsenal – chelsea (N/A, Sun, 6 Sep 2026 07:40:00 -0700)
+
+- **𝐓ODAY MATCH Arsenal vs Chelsea Live Stream Free TV**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sdpathan.github.io/si.edu/sun.xml%22/%3E%3C/krpano%3E&id=video-arsenal-vs-chelsea-liv-str-aqkjhsv)
+- **>+!【TOTAL SPORTEK】...! Arsenal vs Chelsea Live Broadcast Reddit**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/gevtsv.github.io/lucas/aw.xml%22/%3E%3C/krpano%3E&id=video-total-sportek-arsenal-vs-che-cpdsqtuq)
+- **[[[CBS^Sports]] Arsenal vs Chelsea Live Stream Free TV**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fdukenrgy147%2Egithub%2Eio%2Fnews%2Fc%2Exml%22%2F%3E%3C%2Fkrpano%3E&id=video-arsenal-chelsea-liv-str-cqrnjfb)
+
+
+### barca (N/A, Sun, 6 Sep 2026 07:40:00 -0700)
+
+- **Raphinha appointed Barcelona captain, first Brazilian to hold the role**: [Link](https://www.espn.com/soccer/story/_/id/49834658/raphinha-barcelona-la-liga-spain-brazil-pedri-lamine-yamal-frenkie-de-jong-eric-garcia)
+- **Lamine Yamal’s Latest Barcelona Milestone Paves the Way for More History**: [Link](https://www.si.com/soccer/lamine-yamal-latest-barcelona-milestone-more-history)
+- **FC Barcelona News: 6 September 2026; All set for Valencia clash, Raphinha and Pedri confirmed as new main captains**: [Link](https://www.barcablaugranes.com/barcelona-news/131619/fc-barcelona-news-6-september-2026-all-set-valencia-raphinha-pedri-captains)
+
+
+### arsenal vs chelsea (N/A, Sun, 6 Sep 2026 07:40:00 -0700)
+
+- **Arsenal vs Chelsea: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck1wx0010el5t)
+- **Artificial intelligence answers: what is the expected result of the London derby?**: [Link](https://www.goal.com/en-in/news/artificial-intelligence-answers-what-is-the-expected-result-of-the-london-derby/blt57ffee2ebbf9ed51)
+- **LIVE: Arsenal vs Chelsea – Premier League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/9/6/live-arsenal-vs-chelsea-premier-league-2)
+
+
+### fcb (N/A, Sun, 6 Sep 2026 07:30:00 -0700)
+
+- **When and where to watch Valencia v FC Barcelona**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4571041/when-and-where-to-watch-valencia-v-fc-barcelona)
+- **What is the situation with Rodri and Yamal? Flick announces Barcelona's line-up against Valencia**: [Link](https://www.goal.com/en/news/what-is-the-situation-with-rodri-and-yamal-flick-announces-barcelona-s-line-up-against-valencia/blt54973e6a9a669975)
+- **Follow the Arsenal-Chelsea match live with commentary Live 17:20 – Premier League**: [Link](https://frenchfootballweekly.com/2026/09/06/follow-the-arsenal-chelsea-match-live-with-commentary-live-1720-premier-league/)
+
+
 ### ayoub el kaabi blessure (N/A, Sun, 6 Sep 2026 06:00:00 -0700)
 
 - **Ayoub El Kaabi victime d'une fracture en plein match avec l'Olympiakos**: [Link](https://fr.hespress.com/487271-ayoub-el-kaabi-victime-dune-fracture-en-plein-match-avec-lolympiakos.html)
