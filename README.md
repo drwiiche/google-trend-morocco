@@ -1,3 +1,24 @@
+### salaire (N/A, Sun, 6 Sep 2026 02:20:00 -0700)
+
+- **Maroc : à combien s’élève le salaire minimum en 2026 ?**: [Link](https://www.lequotidiendesentreprises.fr/argent/maroc-a-combien-seleve-le-salaire-minimum-en-2026/)
+- **Salaires : le Maroc au 36e rang mondial avec une moyenne annuelle de 6 900 dollars**: [Link](https://2m.ma/fr/news/Salaires-le-Maroc-au-36e-rang-mondial-avec-une-moyenne-annuelle-20260904)
+- **Au Maroc, 6 000 dirhams par mois pour dépasser le salaire médian**: [Link](https://www.bladi.net/maroc-dirhams-mois-depasser-salaire-median,123581.html)
+
+
+### آينتراخت فرانكفورت (N/A, Sun, 6 Sep 2026 00:40:00 -0700)
+
+- **كلوب يتدخل شخصيًا لخطف موهبة مغربية لصالح ألمانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%84%D9%88%D8%A8-%D9%8A%D8%AA%D8%AF%D8%AE%D9%84-%D8%B4%D8%AE%D8%B5%D9%8A%D9%8B%D8%A7-%D9%84%D8%AE%D8%B7%D9%81-%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D8%B5%D8%A7%D9%84%D8%AD-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7/blt11657c17b15bbd28)
+- **يونس إبن طالب لاعبا للشهر بفريقه آينتراخت فرانكفورت**: [Link](https://sport.rue20.com/%D9%8A%D9%88%D9%86%D8%B3-%D8%A5%D8%A8%D9%86-%D8%B7%D8%A7%D9%84%D8%A8-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D9%84%D9%84%D8%B4%D9%87%D8%B1-%D8%A8%D9%81%D8%B1%D9%8A%D9%82%D9%87-%D8%A2%D9%8A%D9%86%D8%AA%D8%B1.html)
+- **ابن طالب لاعب الشهر في آينتراخت**: [Link](https://www.hesport.com/%D8%A7%D8%A8%D9%86-%D8%B7%D8%A7%D9%84%D8%A8-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%B4%D9%87%D8%B1-%D9%81%D9%8A-%D8%A2%D9%8A%D9%86%D8%AA%D8%B1%D8%A7%D8%AE%D8%AA-454037.html)
+
+
+### dirham marocain (N/A, Sat, 5 Sep 2026 23:10:00 -0700)
+
+- **Cours des devises du vendredi 04 septembre**: [Link](https://maroc-diplomatique.net/cours-des-devises-du-vendredi-04-septembre/)
+- **Le dirham recule : 1 000 euros rapportent désormais 39 dirhams de plus**: [Link](https://www.bladi.net/dirham-recule-euros-rapportent-desormais-dirhams,123567.html)
+- **Banque du Maroc : le dirham en baisse face au dollar**: [Link](https://fr.hibapress.com/news-270295.html)
+
+
 ### kaabi (N/A, Sat, 5 Sep 2026 15:30:00 -0700)
 
 - **Ayoub El Kaabi victime d'une fracture en plein match avec l'Olympiakos**: [Link](https://fr.hespress.com/487271-ayoub-el-kaabi-victime-dune-fracture-en-plein-match-avec-lolympiakos.html)
