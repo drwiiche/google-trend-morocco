@@ -1,3 +1,10 @@
+### kaabi (N/A, Sat, 5 Sep 2026 15:30:00 -0700)
+
+- **Ayoub El Kaabi victime d'une fracture en plein match avec l'Olympiakos**: [Link](https://fr.hespress.com/487271-ayoub-el-kaabi-victime-dune-fracture-en-plein-match-avec-lolympiakos.html)
+- **Exclu360. Ayoub El Kaabi victime d’une fracture du tibia, une longue absence se profile**: [Link](https://sport.le360.ma/football/autres-championnats/exclu360-ayoub-el-kaabi-victime-dune-fracture-du-tibia-une-longue-absence-se-profile_Y5SHWDZLHNCGNOVYCDYE4RO64I/)
+- **Olympiacos : très grave blessure pour Ayoub El Kaabi**: [Link](https://www.footmercato.net/a4197579201148891230-olympiacos-tres-grave-blessure-pour-ayoub-el-kaabi)
+
+
 ### inter miami – atlanta utd (N/A, Sat, 5 Sep 2026 16:10:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Set to Host Atlanta United FC this Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-host-atlanta-united-fc-this-saturday)
