@@ -1,3 +1,24 @@
+### hakim ziyech (N/A, Mon, 7 Sep 2026 00:00:00 -0700)
+
+- **Wydad and Hakim Ziyech terminate contract by mutual consent**: [Link](https://en.hespress.com/144957-wydad-and-hakim-ziyech-terminate-contract-by-mutual-consent.html)
+- **Wydad turn the tables on Ziyech: the Moroccan star breaks his silence with a decisive move**: [Link](https://www.goal.com/en/news/wydad-turns-the-tables-on-ziyech-moroccan-star-breaks-his-silence-with-a-decisive-move/blt3f10b170af56ad7f)
+- **Hicham Ait Mana Bids Farewell to Hakim Ziyech Following Wydad AC Stint**: [Link](https://m.elbotola.com/en/article/2026-09-06-11-42-586.html)
+
+
+### weather (N/A, Sun, 6 Sep 2026 23:00:00 -0700)
+
+- **Kauai Weather Forecast for September 07, 2026**: [Link](https://kauainownews.com/2026/09/06/kauai-weather-forecast-for-september-07-2026/)
+- **Kauai Weather Forecast for September 06, 2026**: [Link](https://kauainownews.com/2026/09/05/kauai-weather-forecast-for-september-06-2026/)
+- **Kauai Weather Forecast for September 05, 2026**: [Link](https://kauainownews.com/2026/09/04/kauai-weather-forecast-for-september-05-2026/)
+
+
+### allemagne (N/A, Sun, 6 Sep 2026 19:00:00 -0700)
+
+- **EN DIRECT, élections régionales en Allemagne : l’AfD remporte les élections en Saxe-Anhalt mais échouerait à obtenir la majorité absolue**: [Link](https://www.lemonde.fr/international/live/2026/09/07/en-direct-elections-regionales-en-allemagne-l-afd-remporte-les-elections-en-saxe-anhalt-mais-echouerait-a-obtenir-la-majorite-absolue_6767342_3210.html)
+- **En Saxe-Anhalt, le triomphe du candidat AfD Ulrich Siegmund, « homme le plus dangereux d’Allemagne » aux airs de « gendre idéal »**: [Link](https://www.lefigaro.fr/international/en-saxe-anhalt-le-triomphe-du-candidat-afd-ulrich-siegmund-homme-le-plus-dangereux-d-allemagne-aux-airs-de-gendre-ideal-20260906)
+- **L’AfD remporte une victoire historique mais ne décroche pas la majorité absolue en Saxe-Anhalt**: [Link](https://www.7sur7.be/monde/lafd-remporte-une-victoire-historique-mais-ne-decroche-pas-la-majorite-absolue-en-saxe-anhalt~ac1ebb97/)
+
+
 ### boss (N/A, Sun, 6 Sep 2026 19:30:00 -0700)
 
 - **Bigg Boss Tamil 10: Probable list of contestants to enter the house**: [Link](https://timesofindia.indiatimes.com/tv/news/tamil/bigg-boss-tamil-10-probable-list-of-contestants-to-enter-the-house/photostory/133794695.cms)
