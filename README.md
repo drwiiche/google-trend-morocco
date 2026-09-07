@@ -1,3 +1,73 @@
+### imzouren (N/A, Mon, 7 Sep 2026 13:50:00 -0700)
+
+- **Morocco grants posthumous promotion to police officer killed in Imzouren operation**: [Link](https://en.hespress.com/145021-morocco-grants-posthumous-promotion-to-police-officer-killed-in-imzouren-operation.html)
+- **Police officer killed in Al Hoceima operation to arrest drug suspect**: [Link](https://en.yabiladi.com/articles/details/202310/police-officer-killed-hoceima-operation.html)
+- **Morocco Gives Police Officer Posthumous Promotion After Fatal Shooting in Al Hoceima**: [Link](https://www.moroccoworldnews.com/2026/09/337466/morocco-gives-police-officer-posthumous-promotion-after-fatal-shooting-in-al-hoceima/)
+
+
+### عثمان معما (N/A, Mon, 7 Sep 2026 13:40:00 -0700)
+
+- **عثمان معما في منشور غامض: حسبي الله ونعم الوكيل**: [Link](https://inews.ma/news/8641248)
+- **عثمان معما في منشور غامض: "حسبي الله ونعم الوكيل"**: [Link](https://www.almountakhab.com/node/16230251)
+- **عثمان معما يُثير الغموض برسالة مقتضبة: حسبي الله ونعم… | يلا شووت**: [Link](https://www.ysscores.com/ar/news/14039830/%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D9%85%D8%B9%D9%85%D8%A7-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%BA%D9%85%D9%88%D8%B6-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D9%82%D8%AA%D8%B6%D8%A8%D8%A9-%D8%AD%D8%B3%D8%A8%D9%8A-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D9%86%D8%B9%D9%85-%D8%A7%D9%84%D9%88%D9%83%D9%8A%D9%84)
+
+
+### المديرية العامة للأمن الوطني (N/A, Mon, 7 Sep 2026 13:20:00 -0700)
+
+- **حموشي يمنح ترقية لشرطي متوفٍ**: [Link](https://www.hespress.com/%D8%AD%D9%85%D9%88%D8%B4%D9%8A-%D9%8A%D9%85%D9%86%D8%AD-%D8%AA%D8%B1%D9%82%D9%8A%D8%A9-%D9%84%D8%B4%D8%B1%D8%B7%D9%8A-%D8%B1%D8%A7%D8%AD%D9%84-1803443.html)
+- **​ترقية استثنائية لشهيد الواجب حمزة الزعام بعد مصرعه في عملية أمنية مشتركة بالحسيمة**: [Link](https://2m.ma/ar/news/%D8%AA%D8%B1%D9%82%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%84%D8%B4%D9%87%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D8%A8-%D8%AD%D9%85%D8%B2%D8%A9-%D8%A7%D9%84%D8%B2%D8%B9%D8%A7%D9%85-%D8%A8%D8%B9%D8%AF-%D9%85%D8%B5%D8%B1%D8%B9%D9%87-%D9%81%D9%8A-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A3%D9%85%D9%86%D9%8A%D8%A9-20260907)
+- **استنفار أمني بامزورن.. تبادل لإطلاق النار في عملية أمنية لإيقاف مشتبه فيهم**: [Link](https://ar.hibapress.com/details-755151.html)
+
+
+### scientifique (N/A, Mon, 7 Sep 2026 13:10:00 -0700)
+
+- **Le directeur scientifique d’OpenAI indique perdre le contrôle sur le raisonnement de ses IA**: [Link](https://www.numerama.com/tech/2326859-le-directeur-scientifique-dopenai-indique-perdre-le-controle-sur-le-raisonnement-de-ses-ia.html)
+- **Pensées cachées, désalignement de l’IA... L’humanité n’est pas «préparée» face à un «esprit» que «nous ne comprenons» plus, affirme le scientifique en chef d’OpenAI**: [Link](https://www.lefigaro.fr/secteur/high-tech/pensees-cachees-desalignement-de-l-ia-l-humanite-n-est-pas-preparee-face-a-un-esprit-que-nous-ne-comprenons-plus-affirme-le-scientifique-en-chef-d-openai-20260907)
+- **Après le « doctorant », OpenAI veut créer un véritable chercheur en intelligence artificielle**: [Link](https://www.papergeek.fr/apres-le-doctorant-openai-veut-creer-un-veritable-chercheur-en-intelligence-artificielle-2472361)
+
+
+### al hilal (N/A, Mon, 7 Sep 2026 13:10:00 -0700)
+
+- **Today's matches and broadcast channels: Al-Hilal vs. Neom, and other exciting matches in the Egyptian, Saudi, Spanish, and Italian leagues**: [Link](https://www.voiceofemirates.com/en/sport/2026/09/07/todays-matches-and-broadcast-channels-al-hilal-vs-neom-and-other-exciting-matches-in-the-egyptian-saudi-spanish-and-italian-leagues/)
+- **Inzaghi: I won't sleep because of Al-Hilal's defeat**: [Link](https://www.goal.com/en-in/news/inzaghi-i-won-t-sleep-because-of-al-hilal-s-defeat/blt116e868202192790)
+- **Yassine Bounou ruled out after warm-up injury before Al-Hilal v Neom**: [Link](https://onefootball.com/en/news/yassine-bounou-ruled-out-after-warm-up-injury-before-al-hilal-v-neom-43419459)
+
+
+### weather tomorrow (N/A, Mon, 7 Sep 2026 13:00:00 -0700)
+
+- **Flood alerts: India Met Department urges public to stay updated on heavy rain forecast, despite no flash-flood risk**: [Link](https://www.humanresourcesonline.net/flood-alerts-india-met-department-urges-public-to-stay-updated-on-heavy-rain-forecast-despite-no-flash-flood-risk)
+- **18 districts of Bihar hit by floods: Several rivers, including Narmada, in spate in MP; severe waterlogging...**: [Link](https://www.bhaskarenglish.in/national/news/mp-up-bihar-monsoon-floods-narmada-ganga-river-water-level-update-138955799.html)
+- **Weather Tomorrow, September 7: Very heavy rain warning issued for Bengal – Check IMD forecast for Delhi, Maha**: [Link](https://www.india.com/news/india/weather-tomorrow-september-7-very-heavy-rain-warning-issued-for-bengal-check-imd-forecast-for-delhi-maharashtra-uttar-pradesh-mp-bihar-tamil-nadu-uttarakhand-8518996/)
+
+
+### الخبر (N/A, Mon, 7 Sep 2026 12:50:00 -0700)
+
+- **بسبب أزمة صحية.. إدخال مصطفى لخصم العناية المركزة**: [Link](https://ar.telquel.ma/%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A3%D8%B2%D9%85%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9-%D8%A5%D8%AF%D8%AE%D8%A7%D9%84-%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D9%84%D8%AE%D8%B5%D9%85-%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D9%8A/)
+- **عرشان يؤكد ل"اليوم 24" نقل مصطفى لخصم للمستشفى بعد إصابته بتسمم مفاجئ**: [Link](https://alyaoum24.com/2042244.html)
+- **لخصم يخضع إلى العلاج من تسمم**: [Link](https://www.hespress.com/%D9%84%D8%AE%D8%B5%D9%85-%D9%8A%D8%AE%D8%B6%D8%B9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D8%AC-%D9%85%D9%86-%D8%AA%D8%B3%D9%85%D9%85-1803110.html)
+
+
+### إسماعيل صيباري (N/A, Mon, 7 Sep 2026 12:20:00 -0700)
+
+- **إسماعيل صيباري يشعل الجدل في الدوري الألماني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A/blt4c7615d4c0546b6b)
+- **"نسخة سيئة من هاري كين وبطء للغاية".. أسطورة بايرن ميونخ يهاجم إسماعيل صيباري!**: [Link](https://www.goal.com/ar-eg/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D9%85%D8%A7%D9%86-%D9%83%D9%8A%D9%86-%D9%86%D8%B3%D8%AE%D8%A9-%D8%B3%D9%8A%D9%8A%D9%94%D8%A9-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D9%84%D8%A7%D8%B0%D8%B9%D8%A9-%D9%86%D8%AC%D9%85-%D9%87%D8%AC%D9%88%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A/blt7620e8568dc4d33a)
+- **هامان ينتقد الصيباري: لاعب رائع لكنه أبطأ حتى من هاري كين**: [Link](https://kifache.com/%D9%87%D8%A7%D9%85%D8%A7%D9%86-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D8%A7%D8%A6%D8%B9-%D9%84%D9%83%D9%86%D9%87-%D8%A3%D8%A8/)
+
+
+### elche – real sociedad (N/A, Mon, 7 Sep 2026 11:50:00 -0700)
+
+- **Elche - Real Sociedad en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/elche-real-sociedad-en-directo-laliga-ea-sports-hoy-en-vivo-f202609-d/)
+- **Siguiente desafío**: [Link](https://www.realsociedad.eus/es/noticias/detalle/siguiente-desafio)
+- **Vuelve a escuchar la Tertulia del Deporte en Onda Cero Elche**: [Link](https://www.ondacero.es/emisoras/comunidad-valenciana/elche/noticias/vuelve-escuchar-tertulia-deporte-onda-cero-elche_202609076a9ec6b62d7d302217820fcd.html)
+
+
+### خيتافي ضد سلتا فيغو (N/A, Mon, 7 Sep 2026 11:40:00 -0700)
+
+- **توقعات مباراة خيتافي ضد سيلتا فيغو: الزوار مصممون على وقف تراجعهم.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-getafe-vs-celta-vigo-khach-quyet-chan-da-sa-sut)
+- **«لا ليغا»: خيتافي وسيلتا فيغو يكتفيان بالتعادل**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5315781-%D9%84%D8%A7-%D9%84%D9%8A%D8%BA%D8%A7-%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D9%88%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%8A%D9%83%D8%AA%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84)
+- **خيتافي بـ 10 لاعبين يتعادل مع سيلتا فيجو 1-1 في الدوري الإسباني (صور)**: [Link](https://www.vetogate.com/5727517)
+
+
 ### espagne (N/A, Mon, 7 Sep 2026 11:10:00 -0700)
 
 - **Crise de Ceuta : neuf Espagnols sur dix estiment que le Maroc porte la responsabilité (sondage)**: [Link](https://ledesk.ma/2026/09/07/crise-de-ceuta-neuf-espagnols-sur-dix-estiment-que-le-maroc-porte-la-responsabilite-sondage/)
