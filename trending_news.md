@@ -1,3 +1,73 @@
+### espagne (N/A, Mon, 7 Sep 2026 11:10:00 -0700)
+
+- **Crise de Ceuta : neuf Espagnols sur dix estiment que le Maroc porte la responsabilité (sondage)**: [Link](https://ledesk.ma/2026/09/07/crise-de-ceuta-neuf-espagnols-sur-dix-estiment-que-le-maroc-porte-la-responsabilite-sondage/)
+- **Crise de Sebta: un deux poids, deux mesures que les Marocains ne peuvent plus accepter**: [Link](https://fr.le360.ma/politique/crise-de-sebta-un-deux-poids-deux-mesures-que-les-marocains-ne-peuvent-plus-accepter_CDCPR5JCZ5AXXIE6P2HE6VADOI/)
+- **La justice espagnole ouvre une enquête sur l’afflux massif de migrants à Sebta**: [Link](https://telquel.ma/instant-t/2026/09/07/la-justice-espagnole-ouvre-une-enquete-sur-lafflux-massif-de-migrants-a-sebta_2006134/)
+
+
+### محمد وهبي (N/A, Mon, 7 Sep 2026 09:50:00 -0700)
+
+- **أولمبياكوس يوجه رسالة مؤثرة للكعبي**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D9%83%D9%88%D8%B3-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D9%84%D9%84%D9%83%D8%B9%D8%A8%D9%8A-1802756.html)
+- **من يعوض فاجعة المغرب المزدوجة في معسكر سبتمبر؟**: [Link](https://www.alquds.co.uk/%D9%85%D9%86-%D9%8A%D8%B9%D9%88%D8%B6-%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%B2%D8%AF%D9%88%D8%AC%D8%A9-%D9%81%D9%8A-%D9%85%D8%B9%D8%B3%D9%83%D8%B1/)
+- **إصابة مروعة لأيوب الكعبي تصدم أولمبياكوس اليوناني والمنتخب المغربي (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/9/6/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A7%D9%84%D9%83%D8%B9%D8%A8%D9%8A-%D9%83%D8%B3%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D9%82)
+
+
+### getafe – celta vigo (N/A, Mon, 7 Sep 2026 09:20:00 -0700)
+
+- **Getafe - Celta, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/getafe-celta-en-directo-laliga-ea-sports-en-vivo-hoy-f202609-d/)
+- **Al Hilal vs AL Suqoor: First Half Spread**: [Link](https://www.coinbase.com/es-es/predictions/event/KXSAUDIPL1HSPREAD-26SEP07HILNEO)
+- **Giráldez revoluciona el once con seis cambios; Gudelj y Mario Martín, novedades del Getafe**: [Link](https://www.infobae.com/espana/agencias/2026/09/07/giraldez-revoluciona-el-once-con-seis-cambios-gudelj-y-mario-martin-novedades-del-getafe/)
+
+
+### إضراب (N/A, Mon, 7 Sep 2026 09:10:00 -0700)
+
+- **إضراب المحامين.. تحذير من تعطيل مصالح المتقاضين**: [Link](https://al3omk.com/1185800.html)
+- **الإبراهيمي: يجب تطبيق قانون المحاماة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85%D9%8A-%D9%8A%D8%AC%D8%A8-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%85%D8%A7%D8%A9-1801031.html)
+- **مواطنون يستحسنون عودة محامين للعمل بعد أسابيع من تعطيل مصالح المتقاضين**: [Link](https://ar.hibapress.com/details-754095.html)
+
+
+### aubervilliers (N/A, Mon, 7 Sep 2026 08:10:00 -0700)
+
+- **"C'était un cauchemar" : Aubervilliers sous le choc après l'explosion d'une maison qui a tué un enfant et fait 7 blessés**: [Link](https://actu.fr/ile-de-france/aubervilliers_93001/c-etait-un-cauchemar-aubervilliers-sous-le-choc-apres-l-explosion-d-une-maison-qui-a-tue-un-enfant-et-fait-7-blesses_64753179.html)
+- **Les trois infos à retenir ce dimanche 6 septembre**: [Link](https://actu.orange.fr/france/les-trois-infos-a-retenir-ce-dimanche-6-septembre-magic-CNT000002rKOA5.html)
+- **Un pavillon s’effondre après une explosion : un enfant de 3 ans meurt, sept personnes blessées, l’origine de la fuite de gaz encore inconnue**: [Link](https://www.ladepeche.fr/2026/09/06/un-pavillon-seffondre-apres-une-explosion-un-enfant-de-3-ans-meurt-sept-personnes-blessees-lorigine-de-la-fuite-de-gaz-encore-inconnue-13538561.php)
+
+
+### سفينة (N/A, Mon, 7 Sep 2026 08:00:00 -0700)
+
+- **إيران مباشر.. طهران تستعد لإعلان منطقة محظورة خارج هرمز وقتلى بغارات إسرائيلية على لبنان**: [Link](https://www.aljazeera.net/news/liveblog/2026/9/7/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%85%D9%86%D8%B7%D9%82%D8%A9)
+- **إيران: سنعلن قريباً عن منطقة محظورة في الخليج وخرائط لممر ملاحي جديد عبر هرمز**: [Link](https://www.bbc.com/arabic/articles/cp30kd0dw6lo)
+- **طهران تتحدث عن تفاهم خلال أيام مع مسقط حول هرمز**: [Link](https://www.alarabiya.net/iran/2026/09/07/%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%AA%D8%AD%D8%AF%D8%AB-%D8%B9%D9%86-%D8%AA%D9%81%D8%A7%D9%87%D9%85-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D9%8A%D8%A7%D9%85-%D9%85%D8%B9-%D9%85%D8%B3%D9%82%D8%B7-%D8%AD%D9%88%D9%84-%D9%87%D8%B1%D9%85%D8%B2)
+
+
+### إنزو ماريسكا (N/A, Mon, 7 Sep 2026 08:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة بورتو ومانشستر سيتي في دوري أبطال أوروبا 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%88%D8%B1%D8%AA%D9%88-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt64be63060f5703ff)
+- **دليل الاثنين: دليلك لمتابعة أسبوع مانشستر سيتي**: [Link](https://ar.mancity.com/news/club/monday-marker-7-september-63924372)
+- **ماريسكا يعلن قائمة مانشستر سيتي ضد بورتو في دوري أبطال أوروبا**: [Link](https://www.almasryalyoum.com/news/details/4354636)
+
+
+### station-service (N/A, Mon, 7 Sep 2026 07:50:00 -0700)
+
+- **Stations-service au Maroc : voici les nouvelles règles qui vont changer le secteur**: [Link](https://maroc-diplomatique.net/stations-service-au-maroc-voici-les-nouvelles-regles-qui-vont-changer-le-secteur/)
+- **Stations-service: cap sur la dématérialisation et l’énergie verte**: [Link](https://fr.le360.ma/economie/stations-service-cap-sur-la-dematerialisation-et-lenergie-verte_VKGN664T6ZBKNJ4CKFYPF7LFZI/)
+- **Stations‑service : voici les nouvelles procédures d’autorisation**: [Link](https://www.challenge.ma/stations-service-voici-les-nouvelles-procedures-dautorisation-323959/)
+
+
+### brahim hemdani (N/A, Mon, 7 Sep 2026 06:40:00 -0700)
+
+- **Brahim Hemdani, un inconnu sous pression à la tête de l'équipe nationale d'Algérie**: [Link](https://www.lequipe.fr/Football/Article/Brahim-hemdani-un-inconnu-sous-pression-a-la-tete-de-l-equipe-nationale-d-algerie/1716679)
+- **« Tu es payé, donc tu viens » : la règle surprenante du nouveau sélectionneur de l’Algérie**: [Link](https://www.football365.fr/regle-brutale-nouveau-selectionneur-algerien-10312849.html)
+- **ALG : Les Verts rugiront-ils de nouveau en Afrique ? (Mohamed Malik)**: [Link](https://www.footafrique.com/alg-les-verts-rugiront-ils-de-nouveau-en-afrique-mohamed-malik/)
+
+
+### margrethe ii (N/A, Mon, 7 Sep 2026 06:10:00 -0700)
+
+- **One Royal Will Miss King Harald's Funeral After Being Hospitalized for the Third Time This Year**: [Link](https://www.marieclaire.com/celebrity/royals/one-royal-will-miss-king-harald-state-funeral-hospitalized/)
+- **Former Queen Margrethe of Denmark hospitalized in Copenhagen**: [Link](https://ua.news/en/world/kolishniu-korolevu-daniyi-margrete-gospitalizuvali-v-kopengageni)
+- **Queen Margrethe II of Denmark, 86, is hospitalised and will miss King Harald V of Norway's funeral**: [Link](https://www.tatler.com/article/queen-margrethe-ii-of-denmark-is-hospitalised-and-will-miss-king-harald-v-of-norways-funeral)
+
+
 ### حكيم زياش (N/A, Mon, 7 Sep 2026 06:00:00 -0700)
 
 - **الوداد يكتب نهاية قصة زياش رسميا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%83%D8%AA%D8%A8-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%82%D8%B5%D8%A9-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7/blt07e71ad535324071)
