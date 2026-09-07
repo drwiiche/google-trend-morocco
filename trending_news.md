@@ -1,3 +1,64 @@
+### حكيم زياش (N/A, Mon, 7 Sep 2026 06:00:00 -0700)
+
+- **الوداد يكتب نهاية قصة زياش رسميا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%83%D8%AA%D8%A8-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%82%D8%B5%D8%A9-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7/blt07e71ad535324071)
+- **العثور على جثة مجهولة داخل غابة يستنفر أمن فاس**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%A8%D8%A7%D9%84%D8%AA/)
+- **زياش يؤجل حسم انتقاله إلى بوتافوغو**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%A4%D8%AC%D9%84-%D8%AD%D8%B3%D9%85-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%87-%D8%A5%D9%84%D9%89-%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%BA%D9%88-1802760.html)
+
+
+### فيضان (N/A, Mon, 7 Sep 2026 06:00:00 -0700)
+
+- **نيبال.. حداد على ضحايا الفيضانات وسباق مع الزمن في الأنفاق المطمورة**: [Link](https://www.aljazeera.net/news/2026/9/7/%D8%AD%D8%AF%D8%A7%D8%AF-%D9%88%D8%B7%D9%86%D9%8A-%D9%81%D9%8A-%D9%86%D9%8A%D8%A8%D8%A7%D9%84)
+- **10 أيام تحت الأرض.. إنقاذ صيني من نفق أغرقته فيضانات نيبال**: [Link](https://www.hespress.com/10-%D8%A3%D9%8A%D8%A7%D9%85-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%B5%D9%8A%D9%86%D9%8A-%D9%85%D9%86-%D9%86%D9%81%D9%82-%D8%A3%D8%BA%D8%B1%D9%82%D8%AA-1802746.html)
+- **البحث في الأنفاق عقب كارثة النيبال يطرح تعقيدات "غير مسبوقة" (خبير)**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260907-%D8%A7%D9%84%D8%A8%D8%AD%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%86%D9%81%D8%A7%D9%82-%D8%B9%D9%82%D8%A8-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D8%A8%D8%A7%D9%84-%D9%8A%D8%B7%D8%B1%D8%AD-%D8%AA%D8%B9%D9%82%D9%8A%D8%AF%D8%A7%D8%AA-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D8%AE%D8%A8%D9%8A%D8%B1)
+
+
+### zeturf (N/A, Mon, 7 Sep 2026 05:30:00 -0700)
+
+- **Application ZEturf : pariez sur les courses hippiques depuis votre mobile**: [Link](https://www.goal.com/fr/parier-en-ligne/application-zeturf/blt727eb83e8a24a2d8)
+- **Tiercé. Les pronostics de L'Alsace pour lundi 7 septembre - Prix V and B**: [Link](https://www.lalsace.fr/actualite/2026/09/06/nos-pronostics-pour-lundi-7-septembre-prix-v-and-b)
+- **Les pronos hippiques du lundi 7 septembre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-lundi-7-septembre-2026_AN-202609060157.html)
+
+
+### سيارة أجرة (N/A, Mon, 7 Sep 2026 05:10:00 -0700)
+
+- **ينصح سائق سيارة أجرة في دا نانغ السياح الغربيين بإلغاء الرحلة؛ حادثة غريبة وقعت في الليلة التي اندلع فيها حريق في جسر التنين.**: [Link](https://www.vietnam.vn/ar/tai-xe-da-nang-khuyen-khach-tay-huy-cuoc-chuyen-nguoc-doi-dem-cau-rong-phun-lua)
+- **تلقى سائق السيارة سيلاً من الإعجابات بعد أن نصح راكباً أجنبياً بإلغاء الرحلة.**: [Link](https://www.vietnam.vn/ar/nam-tai-xe-nhan-mua-tim-khi-khuyen-khach-nuoc-ngoai-huy-cuoc-xe)
+- **جسر التنين سيطلق النار لمدة 6 ليالٍ خلال عطلة 2 سبتمبر، مع زيادة التحكم في الطائرات بدون طيار.**: [Link](https://www.vietnam.vn/ar/cau-rong-phun-lua-6-dem-dip-nghi-le-2-9-tang-cuong-kiem-soat-flycam-uav)
+
+
+### نادي بايرن ميونيخ (N/A, Mon, 7 Sep 2026 03:30:00 -0700)
+
+- **هل سيبقى أوليسي بعد 2027؟.. رئيس بايرن ميونخ يرد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%B3%D9%8A%D8%A8%D9%82%D9%89-%D8%A7%D9%94%D9%88%D9%84%D9%8A%D8%B3%D9%8A-%D8%A8%D8%B9%D8%AF-2027--%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D8%B1%D8%AF/bltb199899eba958461)
+- **بايرن يثير الشكوك حول مستقبل مايكل أوليسيه**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%B4%D9%83%D9%88%D9%83-%D8%AD%D9%88%D9%84-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%85%D8%A7%D9%8A%D9%83%D9%84-%D8%A3%D9%88%D9%84%D9%8A%D8%B3%D9%8A%D9%87/24941)
+- **بايرن ميونيخ قد يوافق على طلب أوليس لإقناعه بتجديد عق… | يلا شووت**: [Link](https://www.ysscores.com/ar/news/14037023/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D9%82%D8%AF-%D9%8A%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%B7%D9%84%D8%A8-%D8%A3%D9%88%D9%84%D9%8A%D8%B3-%D9%84%D8%A5%D9%82%D9%86%D8%A7%D8%B9%D9%87-%D8%A8%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF%D9%87)
+
+
+### accident a3 lamborghini (N/A, Mon, 7 Sep 2026 03:20:00 -0700)
+
+
+
+
+### espace schengen (N/A, Mon, 7 Sep 2026 02:30:00 -0700)
+
+- **Crise de Sebta : le Portugal écarte toute menace "immédiate" pour l'espace Schengen et salue le rôle du Maroc**: [Link](https://medias24.com/2026/09/06/crise-de-sebta-le-portugal-ecarte-toute-menace-immediate-pour-lespace-schengen-et-salue-le-role-du-maroc-1749859/)
+- **Crise de Ceuta : Le Portugal salue la capacité du Maroc à freiner l’afflux de migrants**: [Link](https://www.yabiladi.com/articles/details/202212/crise-ceuta-portugal-salue-capacite.html)
+- **Gestion migratoire : qu’attend Bruxelles de Rabat en échange de son aide de 190 millions ?**: [Link](https://www.jeuneafrique.com/1838451/politique/gestion-migratoire-quattend-bruxelles-de-rabat-en-echange-de-son-aide-de-190-millions/)
+
+
+### botafogo (N/A, Mon, 7 Sep 2026 01:30:00 -0700)
+
+- **Palmeiras perde liderança do Brasileiro após 19 rodadas seguidas no topo**: [Link](https://virgula.me/esporte/palmeiras-perde-lideranca-do-brasileiro-apos-19-rodadas-seguidas-no-topo/)
+- **Abel perde liderança para Leonardo Jardim e 'explode': "É o Big Brother?"**: [Link](https://www.noticiasaominuto.com.br/esporte/2411188/abel-perde-lideranca-para-leonardo-jardim-e-explode-e-o-big-brother)
+- **Botafogo segura Palmeiras e ajuda Fla a tomar a liderança do Brasileirão**: [Link](https://www.cbf.com.br/futebol-brasileiro/noticias/campeonato-brasileiro-serie-a/a/botafogo-segura-palmeiras-e-ajuda-fla-a-tomar-a-lideranca-do-brasileirao)
+
+
+### 1 (N/A, Mon, 7 Sep 2026 01:30:00 -0700)
+
+- **Projecting the College Football Playoff top 12 after Week 1**: [Link](https://www.espn.com/college-football/story/_/id/49839984/projecting-college-football-playoff-top-12-week-1)
+- **Yahoo Top 10: After so many Week 1 blowouts, which team deserves the No. 1 spot?**: [Link](https://sports.yahoo.com/college-football/article/yahoo-top-10-which-team-deserves-the-no-1-spot-after-a-blowout-heavy-week-1-041351900.html)
+- **College Football Playoff and Bowl Projections After Week 1: Notre Dame Remains Top Team**: [Link](https://www.si.com/college-football/cfp-and-bowl-projections-after-week-1-notre-dame-remains-top-team)
+
+
 ### hakim ziyech (N/A, Mon, 7 Sep 2026 00:00:00 -0700)
 
 - **Wydad and Hakim Ziyech terminate contract by mutual consent**: [Link](https://en.hespress.com/144957-wydad-and-hakim-ziyech-terminate-contract-by-mutual-consent.html)
