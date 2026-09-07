@@ -1,3 +1,24 @@
+### boss (N/A, Sun, 6 Sep 2026 19:30:00 -0700)
+
+- **Bigg Boss Tamil 10: Probable list of contestants to enter the house**: [Link](https://timesofindia.indiatimes.com/tv/news/tamil/bigg-boss-tamil-10-probable-list-of-contestants-to-enter-the-house/photostory/133794695.cms)
+- **Bigg Boss Tamil Season 10 contestants list: Lakshmi Priya, Chandini, Raaghav, Black Pandi, and more**: [Link](https://www.thehindu.com/entertainment/movies/bigg-boss-tamil-season-10-contestants-list-lakshmi-priya-chandini-raaghav-black-pandi-and-more/article71435399.ece)
+- **Joy Crizildaa clarifies she is not entering Bigg Boss Season 10**: [Link](https://www.dtnext.in/entertainment/cinema/joy-crizildaa-clarifies-she-is-not-entering-bigg-boss-season-10)
+
+
+### iphone 18 pro max (N/A, Sun, 6 Sep 2026 17:50:00 -0700)
+
+- **Memory Costs Drive Up iPhone 18 Series BOM; AI and Pricing to Shape Upgrade Demand, Says TrendForce**: [Link](https://www.trendforce.com/presscenter/news/20260903-13213.html)
+- **I already know what Apple is going to announce at its event this week**: [Link](https://www.pocket-lint.com/apples-big-iphone-event-is-just-days-away-heres-what-to-expect/)
+- **Can Apple's New Boss Deliver a Blockbuster Product Launch?**: [Link](https://www.inkl.com/news/can-apples-new-boss-deliver-a-blockbuster-product-launch)
+
+
+### serie a (N/A, Sun, 6 Sep 2026 13:50:00 -0700)
+
+- **Clamoroso a Firenze: dopo l'avvio disastroso, esonerato Grosso. Al suo posto torna Vanoli!**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Fiorentina/06-09-2026/fiorentina-esonerato-grosso.shtml)
+- **Fiorentina, esonerato Fabio Grosso**: [Link](https://sport.sky.it/calciomercato/allenatori-svincolati?cmp=app_sport-push_urban_null_null)
+- **Fiorentina, scelto Vanoli: ultimi dettagli per il ritorno dell’allenatore**: [Link](https://www.gianlucadimarzio.com/news-calcio/fiorentina-scelto-vanoli-ultimi-dettagli-ritorno-dell-allenatore-496981)
+
+
 ### ورزازات (N/A, Sun, 6 Sep 2026 15:40:00 -0700)
 
 - **تساقطات مطرية غزيرة تشل حركة السير بين ورزازات وقلعة مڭونة (صور)**: [Link](https://al3omk.com/1185590.html)
