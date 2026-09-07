@@ -1,3 +1,17 @@
+### وزارة العدل (N/A, Mon, 7 Sep 2026 15:10:00 -0700)
+
+- **تصعيد خطير في اليمن.. الحوثيون يتهمون السعودية بشن غارات وصواريخ على 4 محافظات**: [Link](https://arabic.euronews.com/2026/09/07/dangerous-escalation-in-yemen-houthis-accuse-saudi-arabia-of-launching-airstrikes-and-mis)
+- **مواجهات وغارات جوية تطال 7 محافظات و«أنصار الله» تتوعد بالرد على «مجزرة الجوف»**: [Link](https://www.alquds.co.uk/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%88%D8%BA%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%B7%D8%A7%D9%84-7-%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A7%D8%AA-%D9%88%D8%A3%D9%86/)
+- **شهداء وجرحى في مجزرة سعودية استهدفت الإصلاحية المركزية بالجوف**: [Link](https://www.al-akhbar.com/news/arab/903577/%D8%B4%D9%87%D8%AF%D8%A7%D8%A1-%D9%88%D8%AC%D8%B1%D8%AD%D9%89-%D9%81%D9%8A-%D9%85%D8%AC%D8%B2%D8%B1%D8%A9-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D9%81%D8%AA-%D8%A7%D9%84%D8%A5%D8%B5%D9%84%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%AC%D9%88)
+
+
+### حارس مرمى (N/A, Mon, 7 Sep 2026 12:00:00 -0700)
+
+- **تغيير "طارئ" على مستوى حراسة المرمى في الرجاء**: [Link](https://sport.lesiteinfo.com/elbotola/502581.html)
+- **مدرب مانشستر سيتي يُمعن في "استفزاز" آيت نوري – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%8F%D9%85%D8%B9%D9%86-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D9%81%D8%B2%D8%A7%D8%B2-%D8%A2%D9%8A)
+- **وضعية ايت نوري تتعقد اكثر مع السيتي**: [Link](https://www.dzair-tube.dz/%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D8%A7%D9%8A%D8%AA-%D9%86%D9%88%D8%B1%D9%8A-%D8%AA%D8%AA%D8%B9%D9%82%D8%AF-%D8%A7%D9%83%D8%AB%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A/)
+
+
 ### imzouren (N/A, Mon, 7 Sep 2026 13:50:00 -0700)
 
 - **Morocco grants posthumous promotion to police officer killed in Imzouren operation**: [Link](https://en.hespress.com/145021-morocco-grants-posthumous-promotion-to-police-officer-killed-in-imzouren-operation.html)
