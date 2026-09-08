@@ -1,3 +1,36 @@
+### rafael louzán (N/A, Tue, 8 Sep 2026 02:20:00 -0700)
+
+- **La obra de arte de Santa Cruz en la final ante el Barça**: [Link](https://www.sport.es/es/videos/futbol-sala/20260907/obra-arte-santa-cruz-final/134028024.shtml)
+- **López Miras felicita a ElPozo tras conquistar la Supercopa de España y destaca su "excelencia" en el ...**: [Link](https://www.carm.es/web/pagina?IDCONTENIDO=132096&IDTIPO=160&__PLANT_PERSONALIZADA=archivoMultimedia/plantillaDetalleArchivoMultimedia.jsp&RASTRO=c$m122,133,2102)
+- **Conocimiento de la casa, la constancia diaria y un carácter combativo, las teclas correctas de Josan para hacer campeón a ElPozo**: [Link](https://www.laverdad.es/deportes/pozo/conocimiento-casa-constancia-diaria-caracter-combativo-teclas-20260907001744-nt.html)
+
+
+### donald trump (N/A, Tue, 8 Sep 2026 00:10:00 -0700)
+
+- **GOP faces brutal midterm headwinds as Republicans paint election as ‘competition with communism’**: [Link](https://www.foxnews.com/politics/gop-faces-brutal-midterm-headwinds-republicans-paint-election-competition-communism)
+- **Trump wants voters to pretend he’s on the ballot. The Republican Party is going along for the ride**: [Link](https://apnews.com/article/trump-midterm-convention-dallas-republicans-abf83481a5add5a3b16977b3ceb87feb)
+- **Republican midterm convention will be ‘Trumpist pageantry’ – at the party’s own risk**: [Link](https://www.theguardian.com/us-news/2026/sep/07/republican-midterm-convention-trump)
+
+
+### meteo (N/A, Mon, 7 Sep 2026 23:30:00 -0700)
+
+
+
+
+### séisme (N/A, Mon, 7 Sep 2026 22:30:00 -0700)
+
+- **Séisme en Bretagne : "les murs de la maison ont tremblé", faut-il s’en inquiéter ?**: [Link](https://france3-regions.franceinfo.fr/bretagne/ille-et-vilaine/rennes/seisme-en-bretagne-les-murs-de-la-maison-ont-tremble-faut-il-s-en-inquieter-3413009.html)
+- **Ille-et-Vilaine : un séisme de magnitude 2,3 détecté près de Fougères**: [Link](https://www.lefigaro.fr/sciences/ille-et-vilaine-un-seisme-de-magnitude-2-3-detecte-pres-de-fougeres-20260907)
+- **Ille-et-Vilaine : un petit séisme ressenti cette nuit près de Fougères**: [Link](https://www.europe1.fr/societe/ille-et-vilaine-un-petit-seisme-ressenti-cette-nuit-pres-de-fougeres-1061294)
+
+
+### ballon d'or 2026 (N/A, Mon, 7 Sep 2026 15:50:00 -0700)
+
+- **2026 Ballon d’Or Nominees: Live Updates on 30-Player Shortlist, Harry Kane Favorite**: [Link](https://www.si.com/soccer/2026-ballon-dor-nominees-live-updates-30-player-shortlist)
+- **A surprise in the nominations for best coach of 2026, with the Spanish dominating the competition**: [Link](https://www.goal.com/en-za/news/a-surprise-in-the-nominations-for-best-coach-of-2026-with-the-spanish-dominating-the-competition/bltd5dc5e0a4ef592e7)
+- **Arsenal & PSG Headline Shortlist for 2026 Club of the Year**: [Link](https://forzafootball.com/news/arsenal-psg-headline-shortlist-for-2026-club-of-the-year-159445749)
+
+
 ### كريستال بالاس (N/A, Mon, 7 Sep 2026 18:30:00 -0700)
 
 - **رسميا.. صفقة غير مسبوقة من الدوري المغربي إلى البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%B5%D9%81%D9%82%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt79e1bffa2cdee85d)
