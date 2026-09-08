@@ -1,3 +1,52 @@
+### فيصل فجر (N/A, Tue, 8 Sep 2026 15:20:00 -0700)
+
+- **رسميا.. المغرب التطواني يعزز صفوفه بالدولي المغربي السابق فيصل فجر**: [Link](https://radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B5%D9%81%D9%88%D9%81%D9%87-%D8%A8%D8%A7%D9%84%D8%AF/)
+- **المغرب التطواني يضم الدولي المغربي السابق فيصل فجر لصفوفه – اليوم 24**: [Link](https://alyaoum24.com/2042765.html)
+- **فيصل فجر يعود إلى البطولة من بوابة المغرب التطواني**: [Link](https://inews.ma/news/8644362)
+
+
+### classement pisa 2025 (N/A, Tue, 8 Sep 2026 15:20:00 -0700)
+
+- **PISA 2025 : au Maroc, neuf élèves sur dix n’atteignent pas le niveau minimal en lecture**: [Link](https://ledesk.ma/datadesk/pisa-2025-au-maroc-neuf-eleves-sur-dix-natteignent-pas-le-niveau-minimal-en-lecture/)
+- **La France stagne à la 27e place, la Chine domine, le niveau global baisse… Ce qu'il faut retenir des résultats du classement Pisa 2026**: [Link](https://www.franceinfo.fr/societe/education/classement-pisa/la-france-stagne-a-la-27e-place-la-chine-domine-le-niveau-global-baisse-ce-qu-il-faut-retenir-du-classement-pisa-2026_8180801.html)
+- **PISA 2025 : pour Edouard Geffray, ministre de l’éducation, « on aurait dû s’interroger plus tôt sur les mesures à prendre pour le collège »**: [Link](https://www.lemonde.fr/societe/article/2026/09/08/pisa-2025-pour-le-ministre-de-l-education-edouard-geffray-on-aurait-du-s-interroger-plus-tot-sur-les-mesures-a-prendre-pour-le-college_6768164_3224.html)
+
+
+### موجة حر (N/A, Tue, 8 Sep 2026 15:10:00 -0700)
+
+- **موجة حر وزخات رعدية بعدد من الأقاليم**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-1803918.html)
+- **طقس حار مع زخات رعدية متوقع اليوم الخميس**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%85%D8%B9-%D9%82%D8%B7%D8%B1%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB-3/)
+- **موجة حر وزخات رعدية مع تساقط البرد وهبات رياح من الثلاثاء إلى الأربعاء بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%85%D9%86-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A5%D9%84%D9%89-20260908)
+
+
+### أجر (N/A, Tue, 8 Sep 2026 15:00:00 -0700)
+
+- **350 ألف دينار في مواجهة كلفة المعيشة.. أجور العمال تتآكل أمام التضخم**: [Link](https://almadapaper.net/451971/)
+- **شوكي: خمس سنوات من الإنصات أفضت إلى "كرامة وفرص للجميع"**: [Link](https://www.hespress.com/%D8%B4%D9%88%D9%83%D9%8A-%D8%AE%D9%85%D8%B3-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%86%D8%B5%D8%A7%D8%AA-%D8%A3%D9%81%D8%B6%D8%AA-%D8%A5%D9%84%D9%89-%D9%83%D8%B1%D8%A7-1804170.html)
+- **من نواحي إقليم صويرة.. بيرو: الأحرار يتحمل مسؤولية حصيلته الحكومية ويواصل تنزيل الأوراش**: [Link](https://2m.ma/ar/news/%D9%85%D9%86-%D9%86%D9%88%D8%A7%D8%AD%D9%8A-%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%B5%D9%88%D9%8A%D8%B1%D8%A9-%D8%A8%D9%8A%D8%B1%D9%88-%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D8%AA%D8%AD%D9%85%D9%84-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D8%AD%D8%B5%D9%8A%D9%84%D8%AA%D9%87-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-20260908)
+
+
+### راتكو ملاديتش (N/A, Tue, 8 Sep 2026 14:30:00 -0700)
+
+- **"الجزار" بطل قومي.. صربيا تلمع راتكو ملاديتش وتغضب أوروبا**: [Link](https://www.aljazeera.net/politics/2026/9/8/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%B1-%D8%A8%D8%B7%D9%84-%D9%82%D9%88%D9%85%D9%8A-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-%D8%AA%D9%84%D9%85%D8%B9-%D8%B1%D8%A7%D8%AA%D9%83%D9%88)
+- **تركيا تستنكر تمجيد صربيا لملاديتش المدان بالإبادة في سربرنيتسا**: [Link](https://www.aa.com.tr/ar/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D9%86%D9%83%D8%B1-%D8%AA%D9%85%D8%AC%D9%8A%D8%AF-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-%D9%84%D9%85%D9%84%D8%A7%D8%AF%D9%8A%D8%AA%D8%B4-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%A5%D8%A8%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-%D8%B3%D8%B1%D8%A8%D8%B1%D9%86%D9%8A%D8%AA%D8%B3%D8%A7/4050515)
+- **الآلاف يتجمعون في بلغراد لتأبين "جزار البوسنة".. وانتقادات من مسؤولين أوروبيين**: [Link](https://arabic.cnn.com/world/video/2026/09/08/v201390-mourners-remember-the-butcher-of-bosnia)
+
+
+### classement fc porto – manchester city (N/A, Tue, 8 Sep 2026 14:20:00 -0700)
+
+- **En Europe aussi, ce City est parfait**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/ligue-des-champions-porto-manchester-city-erling-haaland-buteur-service-minimum-pour-le-city-denzo-maresca_sto23335580/story.shtml)
+- **LdC : les folles statistiques d’Erling Haaland**: [Link](https://www.footmercato.net/a6499177602726352279-ldc-les-folles-statistiques-derling-haaland)
+- **Bouaddi, une première européenne attendue avec Manchester City**: [Link](https://radiomars.ma/fr/?p=6071)
+
+
+### ayyoub bouaddi (N/A, Tue, 8 Sep 2026 14:00:00 -0700)
+
+- **Ballon d’Or 2026: Morocco’s Ayyoub Bouaddi nominated for Young Talent of the Year award**: [Link](https://www.yabiladi.com/articles/details/202371/ballon-d-or-2026-morocco-s-ayyoub.html)
+- **Ayyoub Bouaddi Earns Kopa Trophy Shortlist Spot Alongside Lamine Yamal**: [Link](https://www.moroccoworldnews.com/2026/09/337634/ayyoub-bouaddi-earns-kopa-trophy-shortlist-spot-alongside-lamine-yamal/)
+- **Alajbegovic in the Company of the World’s Greatest Talents, Nominated for the Ballon d’Or**: [Link](https://sarajevotimes.com/alajbegovic-in-the-company-of-the-worlds-greatest-talents-nominated-for-the-ballon-dor/)
+
+
 ### classement real madrid – inter milan (N/A, Tue, 8 Sep 2026 14:10:00 -0700)
 
 - **DIRECT. Real Madrid - Inter Milan, Ligue des champions : Pas de doublé pour Mbappé**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/real-madrid-inter-milan-live/702021)
