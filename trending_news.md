@@ -1,3 +1,73 @@
+### قنصلية (N/A, Tue, 8 Sep 2026 07:00:00 -0700)
+
+- **أزمة المسيّرة تتصاعد.. روسيا تغلق القنصلية الألمانية وتحمّل برلين "كامل المسؤولية"**: [Link](https://www.aljazeera.net/news/2026/9/7/%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%AA%D8%AA%D8%B5%D8%A7%D8%B9%D8%AF-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%BA%D9%84%D9%82)
+- **لافروف: اتهامنا بواقعة المسيرة في ألمانيا بداية حرب حقيقية**: [Link](https://www.alarabiya.net/arab-and-world/2026/09/06/%D9%84%D8%A7%D9%81%D8%B1%D9%88%D9%81-%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%A8%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%AD%D8%B1%D8%A8-%D8%AD%D9%82%D9%8A%D9%82%D9%8A%D8%A9)
+- **موسكو ترد على برلين بإغلاق قنصليتها في سان بطرسبورغ ومراكز "معهد غوته"**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%85%D9%88%D8%B3%D9%83%D9%88-%D8%AA%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A8%D8%B1%D9%84%D9%8A%D9%86-%D8%A8%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D9%82%D9%86%D8%B5%D9%84%D9%8A%D8%AA%D9%87%D8%A7-%D9%81%D9%8A-%D8%B3%D8%A7%D9%86-%D8%A8%D8%B7%D8%B1%D8%B3%D8%A8%D9%88%D8%B1%D8%BA-%D9%88%D9%85%D8%B1%D8%A7%D9%83%D8%B2-%D9%85%D8%B9%D9%87%D8%AF-%D8%BA%D9%88%D8%AA%D9%87/4050104)
+
+
+### شات جي بي تي (N/A, Tue, 8 Sep 2026 07:00:00 -0700)
+
+- **ماذا يعرف شات جي بي تي وكلود عنك؟ أداة مجانية تكشف ذلك**: [Link](https://www.aljazeera.net/tech/2026/9/8/%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B9%D8%B1%D9%81-%D8%B4%D8%A7%D8%AA-%D8%AC%D9%8A-%D8%A8%D9%8A-%D8%AA%D9%8A-%D9%88%D9%83%D9%84%D9%88%D8%AF-%D8%B9%D9%86%D9%83-%D8%A3%D8%AF%D8%A7%D8%A9)
+- **تشات جي بي تي: كل ما تحتاج معرفته عن روبوت الدردشة الذي غيّر عالم الذكاء الاصطناعي**: [Link](https://znaki.fm/ar/teams/chat-gpt/)
+- **كاشف الأسرار الرقمية: أداة جديدة تكشف حجم بياناتك التي يعرفها الذكاء الاصطناعي**: [Link](https://sahafatak.net/show6045037.html)
+
+
+### pisa (N/A, Tue, 8 Sep 2026 05:50:00 -0700)
+
+- **U.S. Reading Scores Plummet on Global Exam**: [Link](https://www.nytimes.com/2026/09/08/us/us-reading-test-scores-pisa.html)
+- **Are teenagers growing dimmer?**: [Link](https://www.economist.com/international/2026/09/08/are-teenagers-growing-dimmer)
+- **PISA 2025: Students’ reading and mathematics performance declined sharply across the OECD**: [Link](https://www.oecd.org/en/about/news/press-releases/2026/09/pisa-2025-students-reading-and-mathematics-performance-declined-sharply-across-the-oecd.html)
+
+
+### hakim ziyech wydad (N/A, Tue, 8 Sep 2026 05:20:00 -0700)
+
+- **Wydad and Hakim Ziyech terminate contract by mutual consent**: [Link](https://en.hespress.com/144957-wydad-and-hakim-ziyech-terminate-contract-by-mutual-consent.html)
+- **Hakim Ziyech set to join Brazil’s Botafogo on deal until 2028**: [Link](https://www.yabiladi.com/articles/details/202223/hakim-ziyech-join-brazil-s-botafogo.html)
+- **Hakim Ziyech to Botafogo: agreement finalized, arrival on Tuesday**: [Link](https://mountakhab.net/en/hakim-ziyech-to-botafogo-agreement-finalized-arrival-on-tuesday/)
+
+
+### hypertension artérielle (N/A, Tue, 8 Sep 2026 05:20:00 -0700)
+
+- **Hypertension : cette simple injection tous les 6 mois pourrait changer la donne**: [Link](https://www.futura-sciences.com/sante/actualites/medecine-hypertension-cette-simple-injection-tous-6-mois-pourrait-changer-donne-w2t8-137089/)
+- **Un adulte sur trois, annonce la campagne de l'Assurance Maladie : sauf qu'après 65 ans, l'hypertension touche deux personnes sur trois, et votre tension monte sans prévenir**: [Link](https://www.senioractu.com/Un-adulte-sur-trois-annonce-la-campagne-de-l-Assurance-Maladie-sauf-qu-apres-65-ans-l-hypertension-touche-deux_a28018.html)
+- **Discipline**: [Link](https://www.leparisien.fr/societe/sante/discipline-08-09-2026-HX5YIVJBUBGEPBIKSPMXMZXXMM.php)
+
+
+### أنصار الله الحوثيون (N/A, Tue, 8 Sep 2026 05:00:00 -0700)
+
+- **اليمن مباشر.. هجمات حوثية على السعودية والتحالف يتعهد بالرد**: [Link](https://www.aljazeera.net/news/liveblog/2026/9/5/%D8%A7%D9%84%D9%8A%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AA%D8%AC%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B9%D8%B2)
+- **إصابة أكثر من سبعين شخصاً في السعودية بهجمات من جماعة أنصار الله**: [Link](https://www.bbc.com/arabic/articles/c2l8ep44xrpo)
+- **الملك يعزي الرئيس الفرنسي والعاهل السعودي في ضحايا حادثي تحطم طائرة وسقوط مروحية**: [Link](https://ar.telquel.ma/%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D9%84%D9%84%D8%AD%D9%88%D8%AB%D9%8A%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%B4%D8%A2%D8%AA-%D8%B7%D8%A7%D9%82%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88/)
+
+
+### intelligence artificielle (N/A, Tue, 8 Sep 2026 04:40:00 -0700)
+
+- **Guide to Investigating Tech and AI in Modern Warfare**: [Link](https://gijn.org/resource/investigate-tech-ai-modern-warfare/)
+- **Does Artificial Intelligence Change the Nature of War?**: [Link](https://www.ifri.org/en/articles-politique-etrangere/politique-etrangere/does-artificial-intelligence-change-nature-war)
+- **Exclusive: Future of battlefield AI must be built for disconnection**: [Link](https://tech.yahoo.com/ai/articles/exclusive-future-battlefield-ai-must-103000554.html)
+
+
+### el niño (N/A, Tue, 8 Sep 2026 04:30:00 -0700)
+
+- **El Niño podría causar un invierno más lluvioso en el sur de Texas**: [Link](https://www.telemundocc.com/el-tiempo/mas-alla-del-tiempo/el-nino-podria-traer-mas-lluvia-al-sur-de-texas-este-invierno)
+- **El Niño fuerte y el mapa de nieve: qué estados pueden verse más blancos este invierno**: [Link](https://voz.us/es/sociedad/260908/38945/nino-fuerte-mapa-nieve-estados-verse-blancos-invierno.html)
+- **El impacto del fenómeno El Niño en las precipitaciones y temperaturas**: [Link](https://www.radiobuenosaires.com.ar/el-impacto-del-fenomeno-el-nino-en-las-precipitaciones-y-temperaturas)
+
+
+### محمد أبو جبل (N/A, Tue, 8 Sep 2026 04:10:00 -0700)
+
+- **فيصل فجر يوقّع للمغرب التطواني.. وإيسوفو دايو في الطريق**: [Link](https://radiomars.ma/%D9%81%D9%8A%D8%B5%D9%84-%D9%81%D8%AC%D8%B1-%D9%8A%D9%88%D9%82%D9%91%D8%B9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%88%D8%A5%D9%8A%D8%B3%D9%88%D9%81/)
+- **خطوة أخيرة تفصل حارس مصر عن الدوري المغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AE%D8%B7%D9%88%D8%A9-%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9-%D8%AA%D9%81%D8%B5%D9%84-%D8%AD%D8%A7%D8%B1%D8%B3-%D9%85%D8%B5%D8%B1-%D8%B9%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt0d00fe4c0f8b1193)
+- **المصري أبو جبل يحط الرحال بالمغرب تمهيدا للانضمام إلى المغرب التطواني**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A3%D8%A8%D9%88-%D8%AC%D8%A8%D9%84-%D9%8A%D8%AD%D8%B7-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D9%85%D9%87%D9%8A-454305.html)
+
+
+### أصالة (N/A, Tue, 8 Sep 2026 03:50:00 -0700)
+
+- **أصالة تعود إلى الغناء وسط دمشق**: [Link](https://www.hespress.com/%D8%A3%D8%B5%D8%A7%D9%84%D8%A9-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%BA%D9%86%D8%A7%D8%A1-%D9%88%D8%B3%D8%B7-%D8%AF%D9%85%D8%B4%D9%82-1803496.html)
+- **أصالة تطلق "الألبوم السوري" قبل حفلها المرتقب في دمشق**: [Link](https://arabic.cnn.com/entertainment/article/2026/09/07/assala-releases-the-syrian-album-ahead-of-her-concert-in-damascus)
+- **سوريا الجديدة: أصالة والفتوى وإدارة الاختلاف**: [Link](https://www.almodon.com/culture/2026/09/08/%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A3%D8%B5%D8%A7%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D9%88%D9%89-%D9%88%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D8%AE%D8%AA%D9%84%D8%A7%D9%81)
+
+
 ### rafael louzán (N/A, Tue, 8 Sep 2026 02:20:00 -0700)
 
 - **La obra de arte de Santa Cruz en la final ante el Barça**: [Link](https://www.sport.es/es/videos/futbol-sala/20260907/obra-arte-santa-cruz-final/134028024.shtml)
