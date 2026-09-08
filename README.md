@@ -1,3 +1,73 @@
+### الريال ضد الإنتر (N/A, Tue, 8 Sep 2026 11:20:00 -0700)
+
+- **إبراهيم دياز أساسيًا أمام إنتر.. ومورينيو يتغلب على الإيقافات بتوليفة جديدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%86%D8%AA%D8%B1--%D9%88%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AA%D8%BA%D9%84%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81%D8%A7%D8%AA-%D8%A8%D8%AA%D9%88%D9%84%D9%8A%D9%81%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/blt67254f1f7767b3ed)
+- **مباشر مباراة ريال مدريد ضد إنتر ميلان في دوري أبطال أوروبا 2026-2027.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/8/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A5%D9%86%D8%AA%D8%B1-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **الريال يرفع شعار الانتصار في موقعة إنتر بدوري الأبطال**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D8%B1%D9%81%D8%B9-%D8%B4%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A5%D9%86%D8%AA/)
+
+
+### lille – betis (N/A, Tue, 8 Sep 2026 11:20:00 -0700)
+
+- **Lille**: [Link](https://www.flashscore.com/match/football/betis-vJbTeCGP/lille-pfDZL71o/odds/1x2-odds/full-time/?mid=StY6NNoJ)
+- **'He deserves more recognition' - Davide Ancelotti hails 'incredible' Manuel Pellegrini ahead of Champions League clash**: [Link](https://www.goal.com/en/lists/davide-ancelotti-hails-manuel-pellegrini-ahead-lille-real-betis-champions-league/blt403cfc02de5e76e7)
+- **Champions League Preview: Lille vs. Real Betis**: [Link](https://hooligan-soccer.com/champions-league-preview-lille-real-betis/)
+
+
+### dortmund – villarreal (N/A, Tue, 8 Sep 2026 11:20:00 -0700)
+
+- **¡Cuidado con el Submarino Amarillo! Niko Kovac advierte al Dortmund, en plena racha, que no subestime al Villarreal**: [Link](https://es-us.noticias.yahoo.com/deportes/cuidado-submarino-amarillo-niko-kovac-051515100.html)
+- **Gran balance en casa: estos datos ilusionan para la Champions**: [Link](https://onefootball.com/es/noticias/gran-balance-en-casa-estos-datos-ilusionan-para-la-champions-43419381)
+- **El Villarreal afronta su décimo partido en tierras alemanas**: [Link](https://as.com/futbol/el-villarreal-afronta-su-decimo-partido-en-tierras-alemanas-f202609-n/)
+
+
+### match real madrid (N/A, Tue, 8 Sep 2026 11:20:00 -0700)
+
+- **Real Madrid - Inter Milan : les compositions officielles**: [Link](https://www.footmercato.net/a1860628100085011755-real-madrid-inter-milan-les-compositions-officielles)
+- **Real Madrid - Inter Milan, Ligue des champions, match en direct le 08/09/2026**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/real-madrid-inter-milan-live/702021)
+- **Ligue des Champions: Brahim Diaz devrait démarrer contre l’Inter**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-brahim-diaz-devrait-demarrer-contre-linter_4J4S2K6SWFEUBPHAFJSLEAKNPM/)
+
+
+### real madrid – inter (N/A, Tue, 8 Sep 2026 11:10:00 -0700)
+
+- **Real Madrid faces Inter Milan in the Champions League with Jose Mourinho aiming for another title**: [Link](https://infonews.ca/news/7864042/real-madrid-faces-inter-milan-in-the-champions-league-with-jose-mourinho-aiming-for-another-title/)
+- **Inter face Real as Juventus suffer Locatelli blow, Vanoli returns**: [Link](https://onefootball.com/en/news/inter-face-real-as-juventus-suffer-locatelli-blow-vanoli-returns-43422246)
+- **Real Madrid: Eduardo Camavinga, it’s official**: [Link](https://frenchfootballweekly.com/2026/09/08/real-madrid-eduardo-camavinga-its-official/)
+
+
+### porto – manchester city (N/A, Tue, 8 Sep 2026 11:10:00 -0700)
+
+- **City travelling squad for FC Porto game confirmed**: [Link](https://www.mancity.com/news/mens/fc-porto-manchester-city-travelling-squad-63924385)
+- **Manchester City: Maresca announces playing time for Bouaddi in the Champions League**: [Link](https://mountakhab.net/en/manchester-city-maresca-announces-playing-time-for-bouaddi-in-the-champions-league/)
+- **Farioli set to reshuffle for Manchester City, €526m spenders and second by value**: [Link](https://onefootball.com/en/news/farioli-set-to-reshuffle-for-manchester-city-526m-spenders-and-second-by-value-43422356)
+
+
+### crystal palace – middlesbrough (N/A, Tue, 8 Sep 2026 11:10:00 -0700)
+
+- **Crystal Palace vs Middlesbrough: League Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck209x1j2xjlt)
+- **Tuesday's EFL Cup and Championship predictions**: [Link](https://www.racingpost.com/sport/football-tips/tuesday-efl-cup-and-championship-predictions-aa8j28s2qGwV/)
+- **Crystal Palace vs Middlesbrough: Lineups, Prediction, Betting Tips & Odds**: [Link](https://www.oddschecker.com/tips/football/english-league-cup/20260908-crystal-palace-vs-middlesbrough-predictions-bet-builder-tips-lineups-odds)
+
+
+### sofyan amrabat (N/A, Tue, 8 Sep 2026 10:50:00 -0700)
+
+- **Sofyan Amrabat steps back under Mohamed Ouahbi**: [Link](https://mountakhab.net/en/sofyan-amrabat-steps-back-under-mohamed-ouahbi/)
+- **Sofyan Amrabat suspends Morocco duty under Mohamed Ouahbi**: [Link](https://en.yabiladi.com/articles/details/202392/sofyan-amrabat-suspends-morocco-duty.html)
+- **Sofyan Amrabat Steps Away From Morocco National Team Under Current Coach**: [Link](https://www.moroccoworldnews.com/2026/09/337578/sofyan-amrabat-steps-away-from-morocco-national-team-under-current-coach/)
+
+
+### équipe du maroc de football (N/A, Tue, 8 Sep 2026 10:50:00 -0700)
+
+- **Maroc : Sofyan Amarabat refuse de jouer sous Mohamed Ouahbi**: [Link](https://www.footmercato.net/a1252600578386208570-maroc-sofyan-amarabat-refuse-de-jouer-sous-mohamed-ouahbi)
+- **Sofyan Amrabat se met en retrait de la sélection marocaine après un conflit avec Mohamed Ouahbi : « Je suis indisponible tant qu'il restera en poste »**: [Link](https://www.lequipe.fr/Football/Actualites/Sofyan-amrabat-se-met-en-retrait-de-la-selection-marocaine-apres-un-conflit-avec-mohamed-ouahbi-je-suis-indisponible-tant-qu-il-restera-en-poste/1717182)
+- **Foot : Sofyan Amrabat annonce se mettre en retrait de la sélection tant que Ouahbi sera sélectionneur**: [Link](https://telquel.ma/instant-t/2026/09/08/sofyan-amrabat-annonce-se-mettre-en-retrait-de-la-selection-tant-que-ouahbi-sera-selectionneur_2006409/)
+
+
+### hakimi (N/A, Tue, 8 Sep 2026 10:40:00 -0700)
+
+- **Lamine y Cubarsí, nominados al mejor talento joven del Balón de Oro**: [Link](https://www.marca.com/futbol/balon-oro/2026/09/08/lamine-cubarsi-nominados-mejor-talento-joven-balon-oro.html)
+- **Hakimi y Bouaddi, doble presencia marroquí en los premios del Balón de Oro**: [Link](https://es.rue20.com/2026/09/08/hakimi-y-bouaddi-doble-presencia-marroqui-en-los-premios-del-balon-de-oro/)
+- **Balón de Oro 2026: Ayyoub Bouaddi, nominado en la categoría «joven jugador del año»**: [Link](https://es.le360.ma/deportes/balon-de-oro-2026-ayyoub-bouaddi-nominado-en-la-categoria-joven-jugador-del-ano_A37BONGQMJFXVPYLU2PEHYB7ZY/)
+
+
 ### قنصلية (N/A, Tue, 8 Sep 2026 07:00:00 -0700)
 
 - **أزمة المسيّرة تتصاعد.. روسيا تغلق القنصلية الألمانية وتحمّل برلين "كامل المسؤولية"**: [Link](https://www.aljazeera.net/news/2026/9/7/%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%AA%D8%AA%D8%B5%D8%A7%D8%B9%D8%AF-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%BA%D9%84%D9%82)
