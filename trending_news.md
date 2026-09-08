@@ -1,3 +1,73 @@
+### classement real madrid – inter milan (N/A, Tue, 8 Sep 2026 14:10:00 -0700)
+
+- **DIRECT. Real Madrid - Inter Milan, Ligue des champions : Pas de doublé pour Mbappé**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/real-madrid-inter-milan-live/702021)
+- **Ligue des champions 2026/2027 - 1ère journée de la phase de ligue : suivez Real Madrid-Inter Milan EN DIRECT (2-0)**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/live-real-madrid-inter-milan_mtc21878661/live-commentary.shtml)
+- **DIRECT. Real Madrid-Inter Milan: l'Inter met la pression sur le Real en fin de match, suivez le match en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-real-madrid-inter-milan-suivez-en-live-le-match-de-la-1ere-journee-de-ligue-des-champions_LS-202609080566.html)
+
+
+### betis (N/A, Tue, 8 Sep 2026 13:40:00 -0700)
+
+- **Lille - Betis en directo: fase liga de la Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/lille-betis-en-directo-fase-liga-de-la-champions-league-hoy-en-vivo-f202609-d/)
+- **Lille - Betis en directo: ¡roja a Mbappé! | Última hora de Champions League en vivo hoy**: [Link](https://www.marca.com/futbol/champions-league/lille-betis/2026/09/08/01_0103_20260908_429_185-directo.html)
+- **Joaquín Sánchez: «Es muy difícil competir en la máxima categoría de Europa»**: [Link](https://mundobetis.com/2026/09/08/joaquin-sanchez-es-muy-dificil-competir-en-la-maxima-categoria-de-europa/)
+
+
+### دورتموند ضد فياريال (N/A, Tue, 8 Sep 2026 13:40:00 -0700)
+
+- **نظرة متشائمة إلى بوروسيا دورتموند في دوري أبطال أوروبا: ماتس هوملز يعارض كريستوف كرامر**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%B8%D8%B1%D8%A9-%D9%85%D8%AA%D8%B4%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D8%A7%D8%AA%D8%B3-%D9%87%D9%88%D9%85%D9%84%D8%B2-%D9%8A%D8%B9%D8%A7%D8%B1%D8%B6-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%88%D9%81-%D9%83%D8%B1%D8%A7%D9%85%D8%B1/blt60e02c3ef17ef5c5)
+- **39 مشجعاً فقط من فياريال يرافقون فريقهم إلى دورتموند**: [Link](https://www.elsport.com/news/show/838962/%D9%85%D8%B4%D8%AC%D8%B9%D8%A7%D9%8B-%D9%81%D9%82%D8%B7-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D8%B1%D8%A7%D9%81%D9%82%D9%88%D9%86-%D9%81%D8%B1%D9%8A%D9%82%D9%87%D9%85-%D8%A5%D9%84%D9%89-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF)
+- **سفينسون وكاريتساس يغيبان عن تدريب دورتموند استعداداً لفياريال**: [Link](https://twaslnews1.twaslnews.com/4770964/)
+
+
+### dortmund vs villarreal (N/A, Tue, 8 Sep 2026 13:20:00 -0700)
+
+- **German clubs return to the Champions League: What to expect from Dortmund, Stuttgart, Leipzig and Bayern**: [Link](https://www.sofascore.com/news/german-clubs-return-to-the-champions-league-what-to-expect-from-dortmund-stuttgart-leipzig-and-bayern)
+- **Niko Kovac hails stand-in captain Waldemar Anton for setting the standard at Borussia Dortmund**: [Link](https://www.goal.com/en/lists/niko-kovac-hails-stand-in-dortmund-captain-waldemar-anton/blt4e66d50cfe401537)
+- **Comment Thread: Dortmund’s UCL Campaign Kicks Off vs Villarreal**: [Link](https://www.fearthewall.com/general/24782/comment-thread-dortmunds-ucl-campaign-kicks-off-vs-villarreal)
+
+
+### moulay driss filali (N/A, Tue, 8 Sep 2026 13:20:00 -0700)
+
+- **Moulay Idriss Filali, fils de SAR la Princesse Lalla Meryem, s’est marié**: [Link](https://www.leconomiste.com/flash-infos/moulay-idriss-filali-fils-de-sar-la-princesse-lalla-meryem-sest-marie/)
+- **Le fils de la princesse Lalla Meryem épouse Ahlam Oumha**: [Link](https://www.yabiladi.com/articles/details/202402/fils-princesse-lalla-meryem-epouse.html)
+- **Mariage du fils de la Princesse Lalla Meryem avec la jeune Ahlam Oumha, béni par le Roi**: [Link](https://fr.hibapress.com/news-271016.html)
+
+
+### real madrid (N/A, Tue, 8 Sep 2026 13:10:00 -0700)
+
+- **Triunfo necesario e inquietante**: [Link](https://as.com/futbol/champions/triunfo-necesario-e-inquietante-f202609-n/)
+- **El Bernabéu se marcha preocupado**: [Link](https://www.marca.com/futbol/real-madrid/2026/09/08/bernabeu-marcha-preocupado.html)
+- **Champions League: Brahim Díaz apunta a la titularidad frente al Inter de Milán**: [Link](https://es.le360.ma/deportes/champions-league-brahim-diaz-apunta-a-la-titularidad-frente-al-inter-de-milan_DOVF37WLPNBD5BYVK36DFEZUQM/)
+
+
+### dortmund (N/A, Tue, 8 Sep 2026 13:10:00 -0700)
+
+- **BVB: Darum bleibt eine Stadion-Ecke heute komplett leer**: [Link](https://www.bild.de/sport/fussball/bvb-darum-bleibt-eine-stadion-ecke-heute-komplett-leer-6a9f010e181cb962d48872fe)
+- **Kovac wechselt den Sieg ein | Note Eins für den Doppelpacker**: [Link](https://www.fussballtransfers.com/a6157252851510059981-kovac-wechselt-den-sieg-ein-note-eins-fuer-den-doppelpacker)
+- **Gelbes U-Boot trifft auf Gelbe Wand: Villarreal mit schwierigem Saisonstart**: [Link](https://www.fussballdaten.de/news/gelbes-u-boot-trifft-gelbe-wand-villarreal-schwierigem-saisonstart/)
+
+
+### city (N/A, Tue, 8 Sep 2026 12:40:00 -0700)
+
+- **Wales' papers: Mum died after cancer results delay and city 'riddled' with drugs**: [Link](https://www.bbc.co.uk/news/articles/c1kxzjjmep1o)
+- **Mum died from cancer after nine-month delay receiving vital test results**: [Link](https://www.walesonline.co.uk/news/wales-news/mum-died-cancer-after-nine-34583475)
+- **Wales' papers: Mum died after cancer results delay and city 'riddled' with drugs**: [Link](https://www.bbc.com/news/articles/c1kxzjjmep1o)
+
+
+### colonies israéliennes (N/A, Tue, 8 Sep 2026 12:40:00 -0700)
+
+- **La France, le Canada et le Royaume-Uni annoncent vouloir mettre fin au commerce avec les colonies israéliennes en Cisjordanie**: [Link](https://www.lemonde.fr/international/article/2026/09/08/la-france-le-canada-et-le-royaume-uni-vont-mettre-fin-au-commerce-avec-les-colonies-israeliennes-en-cisjordanie_6768387_3210.html)
+- **Cisjordanie occupée: 12 pays, dont la France et le Royaume-Uni, veulent «sanctionner le commerce avec les colonies» israéliennes**: [Link](https://www.rfi.fr/fr/europe/20260908-cisjordanie-occup%C3%A9e-12-pays-dont-la-france-et-le-royaume-uni-veulent-sanctionner-le-commerce-avec-les-colonies-isra%C3%A9liennes)
+- **Après Londres, la France va interdire les produits des colonies israéliennes de Cisjordanie**: [Link](https://www.lefigaro.fr/international/cisjordanie-douze-pays-dont-la-france-reclament-des-mesures-commerciales-contre-les-colonies-israeliennes-20260908)
+
+
+### real inter (N/A, Tue, 8 Sep 2026 12:40:00 -0700)
+
+- **Mourinho si riunisce con l'Inter al Bernabéu: 16 anni per una reunion speciale.**: [Link](https://www.vietnam.vn/it/mourinho-tai-ngo-inter-milan-tai-bernabeu-16-nam-cho-mot-cuoc-hoi-ngo-dac-biet)
+- **Champions: Chivu scegli la Thu-La e in difesa sorprende con Bisseck**: [Link](https://www.mattinopadova.it/italia/champions-chivu-scegli-la-thu-la-e-in-difesa-sorprende-con-bisseck-hnr6jqur)
+- **L'abbraccio con Thuram, i sorrisi con Calhanoglu: Dumfries ritrova i suoi ex compagni dell'Inter**: [Link](https://www.corrieredellosport.it/foto/calcio/champions-league/2026/09/08-151111627/l_abbraccio_con_thuram_i_sorrisi_con_calhanoglu_dumfries_ritrova_i_suoi_ex_compagni_dell_inter)
+
+
 ### الريال ضد الإنتر (N/A, Tue, 8 Sep 2026 11:20:00 -0700)
 
 - **إبراهيم دياز أساسيًا أمام إنتر.. ومورينيو يتغلب على الإيقافات بتوليفة جديدة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D9%86%D8%AA%D8%B1--%D9%88%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AA%D8%BA%D9%84%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81%D8%A7%D8%AA-%D8%A8%D8%AA%D9%88%D9%84%D9%8A%D9%81%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/blt67254f1f7767b3ed)
