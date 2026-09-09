@@ -1,3 +1,24 @@
+### carlos alcaraz (N/A, Tue, 8 Sep 2026 21:40:00 -0700)
+
+- **Alcaraz - Shelton, hoy en directo: cuartos de final del US Open hoy en vivo online**: [Link](https://as.com/tenis/us_open/alcaraz-shelton-hoy-en-directo-cuartos-de-final-del-us-open-hoy-en-vivo-online-f202609-d/)
+- **Carlos Alcaraz desmiente una información de los medios antes de su duelo contra Ben Shelton**: [Link](https://www.tennisworldes.com/tenis/news/Carlos_Alcaraz/92427/carlos-alcaraz-desmiente-una-informacion-de-los-medios-antes-de-su-duelo-contra-ben-shelton/)
+- **Cuotas Ben Shelton - Carlos Alcaraz: las apuestas que más pagan por el murciano**: [Link](https://www.casasdeapuestas.com/noticias/cuotas-ben-shelton-carlos-alcaraz-las-apuestas-que-mas-pagan-por-el-murciano/)
+
+
+### كيليان مبابي (N/A, Tue, 8 Sep 2026 16:30:00 -0700)
+
+- **بالفيديو.. مبابي يعادل رقم راؤول ويكمل سلسلة الريال التاريخية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B9%D8%A7%D8%AF%D9%84-%D8%B1%D9%82%D9%85-%D8%B1%D8%A7%D9%88%D9%94%D9%88%D9%84-%D9%88%D9%8A%D9%83%D9%85%D9%84-%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9/blt5f35e5560351662b)
+- **70 هدفا ولقب غائب.. مبابي يطارد الحلم الأوروبي بعد 10 محاولات**: [Link](https://www.aljazeera.net/sport/2026/9/8/%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84)
+- **أردا غولر يتسلم جائزة اللاعب الواعد في دوري أبطال أوروبا 2025/26**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/latest-news/arda-guler-recoge-el-premio-al-jugador-revelacion-de-la-champions-league-2025-26-08-09-2026)
+
+
+### أحلام (N/A, Tue, 8 Sep 2026 15:30:00 -0700)
+
+- **أحلام تكشف تفاصيل إجراء تجميلي جديد لشد الوجه**: [Link](https://www.okaz.com.sa/culture/art/2264883)
+- **أحلام تفاجئ متابعيها بإجراء تجميلي في وجهها.. وتكشف النتيجة بنفسها**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1839121-%D8%A3%D8%AD%D9%84%D8%A7%D9%85-%D8%AA%D9%88%D8%AB%D9%82-%D8%AE%D8%B6%D9%88%D8%B9%D9%87%D8%A7-%D9%84%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1-%D8%AA%D8%AC%D9%85%D9%8A%D9%84%D9%8A-%D9%81%D9%8A-%D9%88%D8%AC%D9%87%D9%87%D8%A7)
+- **نجمات يكشفن تجاربهن مع التجميل.. الجراحة ليست الخيار الوحيد**: [Link](https://www.youlyou.com/49764)
+
+
 ### us open (N/A, Tue, 8 Sep 2026 17:20:00 -0700)
 
 - **US Open 2026 quarter-finals: Tiafoe beats Michelsen in five sets; Sabalenka survives – live**: [Link](https://www.theguardian.com/sport/live/2026/sep/08/us-open-tennis-2026-quarter-finals-sabalenka-noskova-tiafoe-michelsen-live?page=with%3Ablock-6aa0862d8f081e01929e6d21)
