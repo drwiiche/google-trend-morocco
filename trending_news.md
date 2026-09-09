@@ -1,3 +1,73 @@
+### naples – arsenal (N/A, Wed, 9 Sep 2026 11:20:00 -0700)
+
+- **Arteta on Champions League return and Napoli trip**: [Link](https://www.arsenal.com/news/arteta-on-champions-league-return-and-napoli-trip-aFaYY9K7ZHLJ)
+- **Only Cristhian Mosquera and William Saliba are missing from Arsenal's pre-Napoli training**: [Link](https://paininthearsenal.com/only-cristhian-mosquera-william-saliba-missing-arsenal-pre-napoli-training)
+- **Allegri sets 12-point target for Napoli in Champions League**: [Link](https://www.idman.biz/en/news/world-football/155250)
+
+
+### chelsea – leeds united (N/A, Wed, 9 Sep 2026 11:20:00 -0700)
+
+- **Every word Xabi Alonso said on four Chelsea injury blows, Estevao reports and Arsenal dark arts**: [Link](https://www.football.london/chelsea-fc/news/every-word-xabi-alonso-said-34581174)
+- **Watch Chelsea’s 2012 League Cup rout of Leeds in full! | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/watch-chelseas-2012-league-cup-rout-of-leeds-in-full)
+- **Predicted XI: Alonso leaves out Palmer and Fofana in Carabao Cup change-up**: [Link](https://www.talkchelsea.net/team-news-line-ups/alonso-leaves-out-palmer-fofana-change-up/)
+
+
+### iphone duo (N/A, Wed, 9 Sep 2026 11:20:00 -0700)
+
+- **アップル、30万円超の折り畳み式iPhone「Duo」発表へ－「18 Pro」も**: [Link](https://www.bloomberg.com/jp/news/articles/2026-09-09/TL2WJ8KIJH8U00)
+- **Appleイベントが今晩9月10日午前2時から配信予定、折りたたみiPhone来るか!?**: [Link](https://www.famitsu.com/article/202609/87398)
+- **アップルが折りたたみ式スマートフォンの競争に参入。**: [Link](https://www.vietnam.vn/ja/apple-buoc-vao-cuoc-dua-cua-nhung-chiec-may-gap)
+
+
+### ليفربول ضد أتلتيكو مدريد (N/A, Wed, 9 Sep 2026 11:20:00 -0700)
+
+- **إيراولا: دعونا نرى أين نحن أمام فريق مثل أتلتيكو مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D8%AF%D8%B9%D9%88%D9%86%D8%A7-%D9%86%D8%B1%D9%89-%D8%A7%D9%94%D9%8A%D9%86-%D9%86%D8%AD%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%81%D8%B1%D9%8A%D9%82-%D9%85%D8%AB%D9%84-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt3cefdf57b00cc925)
+- **دوري أبطال أوروبا: سيميوني يرى أن أتلتيكو في طور البناء للوصول إلى النهائي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260908-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B1%D9%89-%D8%A3%D9%86-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%81%D9%8A-%D8%B7%D9%88%D8%B1-%D8%A7%D9%84%D8%A8%D9%86%D8%A7%D8%A1-%D9%84%D9%84%D9%88%D8%B5%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **المباراة "المحظورة" على ملعب أنفيلد في دوري أبطال أوروبا الموسم المقبل.**: [Link](https://www.vietnam.vn/ar/cap-dau-bi-cam-o-anfield-tai-champions-league-mua-sau)
+
+
+### النصر ضد أبها (N/A, Wed, 9 Sep 2026 11:20:00 -0700)
+
+- **رونالدو ليس وحيدًا.. بوستيكوجلو يغير خطة النصر في غياب فيليكس وكومان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%84%D9%8A%D8%B3-%D9%88%D8%AD%D9%8A%D8%AF%D9%8B%D8%A7--%D8%A8%D9%88%D8%B3%D8%AA%D9%8A%D9%83%D9%88%D8%AC%D9%84%D9%88-%D9%8A%D8%BA%D9%8A%D8%B1-%D8%AE%D8%B7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D9%88%D9%83%D9%88%D9%85%D8%A7%D9%86/bltc3354402b601bc2d)
+- **مباشر مباراة النصر ضد أبها في الدوري السعودي للمحترفين.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/9/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A3%D8%A8%D9%87%D8%A7-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **ضربة قوية للنصر في الدوري السعودي .. ما القصة؟**: [Link](https://www.youlyou.com/49941)
+
+
+### paris-sg – slovan bratislava (N/A, Wed, 9 Sep 2026 11:10:00 -0700)
+
+- **Young Moroccan goalkeeper makes Paris Saint-Germain's Champions League squad**: [Link](https://www.ysscores.com/en/news/14041474/young-moroccan-goalkeeper-makes-paris-saint-germains-champions-league-squad)
+- **PSG vs Slovan Bratislava injury news as one ruled out with another set to return**: [Link](https://psgpost.com/psg-vs-slovan-bratislava-injury-news-as-one-ruled-out-with-another-set-to-return)
+- **Luis Enrique and Roma’s bitter memory, Bratislava exit in 2011-12 Europa League play-offs**: [Link](https://onefootball.com/en/news/luis-enrique-and-romas-bitter-memory-bratislava-exit-in-2011-12-europa-league-play-offs-43427918)
+
+
+### liverpool – atlético madrid (N/A, Wed, 9 Sep 2026 11:10:00 -0700)
+
+- **Liverpool vs Atletico Madrid: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c670lnjz8n42t)
+- **Liverpool v Atletico Madrid: Team news**: [Link](https://www.liverpoolfc.com/news/liverpool-v-atletico-madrid-team-news-0)
+- **From footballers to coaches: Iraola and Simeone face each other again!**: [Link](https://todaypress.tv/en/sports/futbolculuqdan-mesqciliye-iraola-ve-simeone-yeniden-uz-uze)
+
+
+### stuttgart fc (N/A, Wed, 9 Sep 2026 11:10:00 -0700)
+
+- **Stuttgart vs Viking: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c8207nrpzwwet)
+- **Confirmed lineups: VfB Stuttgart vs. Viking FK**: [Link](https://bulinews.com/confirmed-lineups-vfb-stuttgart-viking)
+- **🔴 Barça in cruise control vs Feyenoord; Stuttgart thrashing Viking**: [Link](https://onefootball.com/en/news/barca-in-cruise-control-vs-feyenoord-stuttgart-thrashing-viking-43429682)
+
+
+### uefa champions league (N/A, Wed, 9 Sep 2026 11:00:00 -0700)
+
+- **Champions League: Is the rise of the superclubs becoming a problem?**: [Link](https://www.cityam.com/champions-league-is-the-rise-of-the-superclubs-becoming-a-problem/)
+- **Champions League Winner Could Earn Around €110 Million in 2026-27 Season**: [Link](https://www.moroccoworldnews.com/2026/09/337747/champions-league-winner-could-earn-around-e110-million-in-2026-27-season/)
+- **Why the Premier League still can’t bully Europe’s giants in the Champions League**: [Link](https://www.independent.co.uk/tv/copa-independent/premier-league-champions-europe-podcast-copa-independent-b3047102.html)
+
+
+### karim adeyemi (N/A, Wed, 9 Sep 2026 10:50:00 -0700)
+
+- **On video: Ademi surpasses Ballack with a work of art at Barcelona**: [Link](https://www.goal.com/en-za/news/on-video-ademi-surpasses-ballack-with-a-work-of-art-at-barcelona/blt91f0ea7eb9ff772f)
+- **Masterpiece! Adeyemi scores an unbelievable Champions League goal for Barcelona. VIDEO**: [Link](https://dailysports.net/news/masterpiece-adeyemi-scores-an-unbelievable-champions-league-goal-for-barcelona-video/)
+- **On video: Ademi surpasses Ballack with a work of art for Barcelona**: [Link](https://www.goal.com/en-in/news/on-video-ademi-surpasses-ballack-with-a-work-of-art-for-barcelona/blt91f0ea7eb9ff772f)
+
+
 ### drone (N/A, Wed, 9 Sep 2026 06:10:00 -0700)
 
 - **Drones are becoming organized crime’s weapon of choice in Latin America. Governments are struggling to keep up**: [Link](https://www.cnn.com/2026/09/09/americas/drones-crime-latin-america-latam-intl)
