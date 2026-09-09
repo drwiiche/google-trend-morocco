@@ -1,3 +1,10 @@
+### us open (N/A, Tue, 8 Sep 2026 17:20:00 -0700)
+
+- **US Open 2026 quarter-finals: Tiafoe beats Michelsen in five sets; Sabalenka survives – live**: [Link](https://www.theguardian.com/sport/live/2026/sep/08/us-open-tennis-2026-quarter-finals-sabalenka-noskova-tiafoe-michelsen-live?page=with%3Ablock-6aa0862d8f081e01929e6d21)
+- **Frances Tiafoe Authors Epic Comeback To Reach 3rd U.S. Open Semifinal**: [Link](https://sports.yahoo.com/articles/frances-tiafoe-authors-epic-comeback-230850552.html)
+- **US Open 2026 LIVE: Frances Tiafoe v Alex Michelsen in quarter-finals - scores, radio & live text updates**: [Link](https://www.bbc.com/sport/tennis/live/c07rexxzegnt?page=8)
+
+
 ### فيصل فجر (N/A, Tue, 8 Sep 2026 15:20:00 -0700)
 
 - **رسميا.. المغرب التطواني يعزز صفوفه بالدولي المغربي السابق فيصل فجر**: [Link](https://radiomars.ma/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B5%D9%81%D9%88%D9%81%D9%87-%D8%A8%D8%A7%D9%84%D8%AF/)
