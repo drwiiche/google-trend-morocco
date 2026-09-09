@@ -1,3 +1,38 @@
+### إيرلينغ هالاند (N/A, Wed, 9 Sep 2026 02:50:00 -0700)
+
+- **ماريسكا مذهول من أداء بوعدي: توقعت ما فعله من هالاند أو دياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%85%D8%B0%D9%87%D9%88%D9%84-%D9%85%D9%86-%D8%A7%D9%94%D8%AF%D8%A7%D8%A1-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%AA%D9%88%D9%82%D8%B9%D8%AA-%D9%85%D8%A7-%D9%81%D8%B9%D9%84%D9%87-%D9%85%D9%86-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%A7%D9%94%D9%88-%D8%AF%D9%8A%D8%A7%D8%B2/blt7945fb404ca2c15a)
+- **أبرزها من هالاند.. الإشادات تنهال على المغربي أيوب بوعدي بعد تألقه بدوري الأبطال**: [Link](https://www.aljazeera.net/sport/2026/9/9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **دوري أبطال أوروبا: هالاند يحبط محاولة كوشتا إنقاذ بورتو أمام سيتي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260908-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D8%AD%D8%A8%D8%B7-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A9-%D9%83%D9%88%D8%B4%D8%AA%D8%A7-%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%A8%D9%88%D8%B1%D8%AA%D9%88-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D9%8A%D8%AA%D9%8A)
+
+
+### princesse lalla meryem (N/A, Wed, 9 Sep 2026 02:00:00 -0700)
+
+- **Conclusion, avec la bénédiction de Sa Majesté le Roi, de l’acte de mariage de Moulay Driss Filali, Fils de S.A.R. la Princesse Lalla Meryem, avec la jeune Ahlam Oumha**: [Link](https://lematin.ma/nation/mariage-de-moulay-driss-filali-fils-de-sar-la-princesse-lalla-meryem/364147)
+- **Moulay Idriss Filali, fils de SAR la Princesse Lalla Meryem, s’est marié**: [Link](https://www.leconomiste.com/flash-infos/moulay-idriss-filali-fils-de-sar-la-princesse-lalla-meryem-sest-marie/)
+- **La princesse Lalla Meryem du Maroc marie son fils en toute intimité**: [Link](https://www.pointdevue.fr/royal/maroc/la-princesse-lalla-meryem-du-maroc-marie-son-fils-en-toute-intimite)
+
+
+### iphone 18 (N/A, Wed, 9 Sep 2026 01:10:00 -0700)
+
+- **iPhone 18 Proのベトナムでの発売日が確定。価格は4000万ベトナムドンから。新しい2nmチップを搭載。**: [Link](https://www.vietnam.vn/ja/iphone-18-pro-chot-ngay-mo-ban-tai-viet-nam-voi-gia-tu-40-trieu-dong-cung-chip-2nm-moi)
+- **iPhone18 Proの予約はいつ？9月の予定を日付ごとに整理 - iPhone Mania**: [Link](https://iphone-mania.jp/iphone18-605460/)
+- **【iPhone 18】まもなく発表へ！今年は折りたたみiPhoneにも注目**: [Link](https://www.fukuoka-navi.jp/411913)
+
+
+### navire (N/A, Wed, 9 Sep 2026 00:30:00 -0700)
+
+- **« L’Iran est en train de perdre le contrôle du détroit d’Ormuz »**: [Link](https://www.lepoint.fr/monde/liran-est-en-train-de-perdre-le-controle-du-detroit-dormuz-DXBBHYMMBZH4FHFEMGVJLKPVNE/)
+- **EN DIRECT Guerre au Moyen-Orient : Téhéran cible une base américaine en Jor…**: [Link](https://www.20minutes.fr/monde/etats-unis/4243732-20260909-direct-guerre-moyen-orient-teheran-menace-bases-americaines-washington-coule-cinq-petroliers-iraniens)
+- **L’Iran bombarde des bases en Jordanie et dans le Golfe, en riposte aux attaques des Etats-Unis contre des pétroliers iraniens**: [Link](https://www.lemonde.fr/international/article/2026/09/09/l-iran-frappe-des-bases-americaines-en-jordanie-et-dans-le-golfe-en-riposte-aux-attaques-etasuniennes-contre-des-petroliers-iraniens_6768518_3211.html)
+
+
+### botafogo (N/A, Wed, 9 Sep 2026 00:20:00 -0700)
+
+- **Campeão da Champions, Ziyech chega ao Rio para reforçar Botafogo**: [Link](https://www.uol.com.br/esporte/futebol/ultimas-noticias/2026/09/08/campeao-da-champions-ziyech-chega-ao-rio-para-reforcar-botafogo.ghtm)
+- **Provável 'pré-temporada', contrato vantajoso e desejo por desafio: os bastidores da chegada de Ziyech ao Botafogo**: [Link](https://oglobo.globo.com/esportes/futebol/botafogo/noticia/2026/09/09/provavel-pre-temporada-contrato-vantajoso-e-desejo-por-desafio-os-bastidores-da-chegada-de-ziyech-ao-botafogo.ghtml)
+- **Ziyech, atacante com passagem pelo Chelsea, chega ao Rio de Janeiro para reforçar o Botafogo**: [Link](https://www.estadao.com.br/em-alta/esportes/futebol/ziyech-atacante-com-passagem-pelo-chelsea-chega-ao-rio-de-janeiro-para-reforcar-o-botafogo-npres/)
+
+
 ### carlos alcaraz (N/A, Tue, 8 Sep 2026 21:40:00 -0700)
 
 - **Alcaraz - Shelton, hoy en directo: cuartos de final del US Open hoy en vivo online**: [Link](https://as.com/tenis/us_open/alcaraz-shelton-hoy-en-directo-cuartos-de-final-del-us-open-hoy-en-vivo-online-f202609-d/)
