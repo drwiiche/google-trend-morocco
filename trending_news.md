@@ -1,3 +1,73 @@
+### ferran torres (N/A, Wed, 9 Sep 2026 13:50:00 -0700)
+
+- **3️⃣ El nuevo del PSG sigue brillando con hat-trick en Champions**: [Link](https://es-us.noticias.yahoo.com/deportes/3-psg-brillando-hat-trick-202900671.html)
+- **El tren del PSG arrolla la ilusión de Touré Yaya con un hat-trick de Ferran Torres**: [Link](https://www.sport.es/es/noticias/champions/tren-psg-arrolla-ilusion-toure-134124186)
+- **Liga de Campeones | El Arsenal asalta Nápoles, Ferran brilla en la goleada del PSG**: [Link](https://www.fichajes.com/a1104661525303970321-liga-de-campeones-el-arsenal-asalta-napoles-ferran-brilla-en-la-goleada-del-psg)
+
+
+### psg (N/A, Wed, 9 Sep 2026 13:30:00 -0700)
+
+- **DIRECT. PSG - Slovan Bratislava, Ligue des champions : But de Ruiz !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/psg-slovan-bratislava-live/702025)
+- **EN DIRECT - PSG-Bratislava : le duo magique Dembélé-Ferran Torres, les Parisiens fêtent leurs retrouvailles avec la Ligue des champions**: [Link](https://www.lefigaro.fr/sports/football/live/ligue-des-champions/2026/2685381/paris-sg-slovan-bratislava)
+- **Marquinhos avertit : avec Luis Enrique, personne n'est intouchable**: [Link](https://rdcsport.cd/news/marquinhos-luis-enrique-intouchable)
+
+
+### paris (N/A, Wed, 9 Sep 2026 13:30:00 -0700)
+
+- **Violences dans le périscolaire à Paris : Anne Hidalgo partage la douleur des familles, sans s’excuser**: [Link](https://www.lemonde.fr/societe/article/2026/09/09/violences-dans-le-periscolaire-a-paris-anne-hidalgo-partage-la-douleur-des-familles-sans-s-excuser_6768915_3224.html)
+- **Viols dans le périscolaire : De simples « trous dans le filet » pour Anne Hidalgo**: [Link](https://www.europe1.fr/emissions/yen-aura-pour-tout-le-monde/viols-dans-le-periscolaire-de-simples-trous-dans-le-filet-pour-anne-hidalgo-1066187)
+- **« La première structure de ce type en France » : qu’est-ce que l'« école du périscolaire » tout juste inaugurée à Paris ?**: [Link](https://www.parismatch.com/actu/societe/la-premiere-structure-de-ce-type-en-france-quest-ce-que-l-ecole-du-periscolaire-tout-juste-inauguree-a-paris-275417)
+
+
+### napoli (N/A, Wed, 9 Sep 2026 13:00:00 -0700)
+
+- **Napoli-Arsenal, Meret ko, cori contro De Laurentiis e scoppia pure il caso Lang: succede di tutto al Maradona**: [Link](https://sport.virgilio.it/napoli-arsenal-meret-infortunio-caso-lang-cori-de-laurentiis-970882)
+- **BREAKING - Non solo Meret, costretto al cambio anche Alisson Santos: da valutare le sue condizioni**: [Link](https://www.sosfanta.com/probabili-formazioni/infortunati/napoli-infortunio-alisson-santos-arsenal-condizioni-fantacalcio-tempi-recupero/)
+- **Napoli, problemi muscolari per Meret con l'Arsenal: entra Milinkovic-Savic. Ko anche Alisson**: [Link](https://www.gazzetta.it/calcio/fantanews/strumenti-fantacalcio/indisponibili/09-09-2026/meret-infortunio-le-condizioni-del-portiere-del-napoli.shtml)
+
+
+### tunisie (N/A, Wed, 9 Sep 2026 13:00:00 -0700)
+
+- **Le rendez-vous Afrique - Tunisie : l'information en péril ?**: [Link](https://www.france24.com/fr/%C3%A9missions/le-rendez-vous-afrique/20260909-tunisie-l-information-en-p%C3%A9ril)
+- **Après un été meurtrier, “pourquoi les Tunisiens ne se soulèvent-ils pas ?”**: [Link](https://www.courrierinternational.com/article/opinion-apres-un-ete-meurtrier-pourquoi-les-tunisiens-ne-se-soulevent-ils-pas_266379)
+- **Chronique d’un pays suspendu**: [Link](https://realites.com.tn/fr/chronique-dun-pays-suspendu/)
+
+
+### al nassr (N/A, Wed, 9 Sep 2026 12:50:00 -0700)
+
+- **Video: after 8 years, Al-Nassr recreates Nabil Fekir's iconic goal against Paris Saint-Germain**: [Link](https://www.livescore.com/en/news/football/more/video-after-8-years-al-nassr-recreates-nabil-fekirs-iconic-goal-against-paris-saint-germain-goal/)
+- **Video: eight years on, Al-Nassr recreates Nabil Fekir's iconic goal against Paris Saint-Germain**: [Link](https://www.goal.com/en/news/video-after-8-years-al-nassr-recreates-nabil-fekir-s-iconic-goal-against-paris-saint-germain/blt71f51c96ad397bc7)
+- **Video: after 8 years, Al-Nassr recreates Nabil Fekir's iconic goal against Paris Saint-Germain**: [Link](https://www.goal.com/en/news/video-eight-years-on-al-nassr-recreates-nabil-fekir-s-iconic-goal-against-paris-saint-germain/blt71f51c96ad397bc7)
+
+
+### تشيلسي ضد ليدز (N/A, Wed, 9 Sep 2026 12:40:00 -0700)
+
+- **أزمة خارج الملعب.. سر تأخر انطلاق مباراة تشيلسي وليدز**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%B2%D9%85%D8%A9-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8-%D8%B3%D8%B1-%D8%AA%D8%A3%D8%AE%D8%B1-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%84%D9%8A%D8%AF%D8%B2)
+- **ألونسو يؤكد جاهزية كولفيل لمواجهة ليدز وغياب أربعة لاعبين عن تشيلسي**: [Link](https://gate.ahram.org.eg/News/5923275.aspx)
+- **مشاهدة مباراة تشيلسي وليدز يونايتد والقنوات الناقلة**: [Link](https://www.alkhaleej.ae/2026-09-09/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+
+
+### أشرف حكيمي (N/A, Wed, 9 Sep 2026 12:30:00 -0700)
+
+- **إنريكي في قفص الاتهام.. لماذا تراجع مستوى أشرف حكيمي مع سان جيرمان؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%81%D9%8A-%D9%82%D9%81%D8%B5-%D8%A7%D9%84%D8%A7%D8%AA%D9%87%D8%A7%D9%85--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D8%A7%D9%94%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D8%B9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86/blt0f7c92862dc5a0b0)
+- **الهلال السعودي يطارد صفقة حكيمي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%B5%D9%81%D9%82%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-1803646.html)
+- **"ليكيب" تكشف أسباب تراجع مستوى أشرف حكيمي مع باريس سان جيرمان**: [Link](https://sport.lesiteinfo.com/internationaux/502653.html)
+
+
+### sporting – galatasaray (N/A, Wed, 9 Sep 2026 12:20:00 -0700)
+
+- **Okan Buruk ters köşe yaptı: İlk 11'de sürpriz tercih**: [Link](https://www.yenicaggazetesi.com/okan-buruk-ters-kose-yapti-ilk-11de-surpriz-tercih-1070133h.htm)
+- **Galatasaray Portekiz'de kayıp: Şampiyonlar Ligi'ne Sporting yenilgisiyle başladı**: [Link](https://gazeteoksijen.com/spor/galatasaray-portekizde-kayip-sampiyonlar-ligine-sporting-yenilgisiyle-basladi-288914)
+- **Galatasaray'ın yeni transferi El Chadaille Bitshiabu ilk kez kadroda - Galatasaray Haberler - HT Spor**: [Link](https://www.haberturk.com/spor/galatasaray-in-yeni-transferi-el-chadaille-bitshiabu-ilk-kez-kadroda-3911434)
+
+
+### coupe du monde de football 2030 (N/A, Wed, 9 Sep 2026 11:50:00 -0700)
+
+- **Mondial 2030: 8 en Espagne, 6 au Maroc et 2 au Portugal… les révélations de Marca sur la répartition des stades**: [Link](https://sport.le360.ma/coupe-du-monde/mondial-2030-8-en-espagne-6-au-maroc-et-2-au-portugal-les-revelations-de-marca-sur-la-repartition_547W7PY5GREJLGZ7QLP6CTGYRU/)
+- **Mondial 2030: voici la répartition des stades officiels (média espagnol)**: [Link](https://h24info.ma/sport/mondial-2030-repartition-stades-officiels/)
+- **Espagne, politisation du sport et instrumentalisation du Mondial 2030**: [Link](https://fr.hespress.com/487289-espagne-politisation-du-sport-et-instrumentalisation-du-mondial-2030.html)
+
+
 ### naples – arsenal (N/A, Wed, 9 Sep 2026 11:20:00 -0700)
 
 - **Arteta on Champions League return and Napoli trip**: [Link](https://www.arsenal.com/news/arteta-on-champions-league-return-and-napoli-trip-aFaYY9K7ZHLJ)
