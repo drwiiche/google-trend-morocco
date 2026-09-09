@@ -1,3 +1,31 @@
+### شتاء (N/A, Wed, 9 Sep 2026 16:00:00 -0700)
+
+- **باستثناء شهر وحيد.. التوقعات الجوية تتنبأ بفصل شتاء شحيح تتخلله إشارات مطرية غير مستقرة**: [Link](https://www.akhbarona.com/national/432210.html)
+- **" القطرية" تعزز شبكة وجهاتها خلال موسم الشتاء لتصل إلى أكثر من 170 وجهة حول العالم**: [Link](https://www.fananews.com/%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D8%B4%D8%A8%D9%83%D8%A9-%D9%88%D8%AC%D9%87%D8%A7%D8%AA%D9%87%D8%A7-%D8%AE%D9%84%D8%A7%D9%84-%D9%85%D9%88%D8%B3%D9%85-%D8%A7/)
+- **الخطوط الجوية القطرية تستأنف رحلاتها إلى القصيم والطائف وينبع وتبوك شتاء 2026/2027**: [Link](https://rahhal.wego.com/blog/%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D8%A3%D9%86%D9%81-%D8%B1%D8%AD%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-2026/)
+
+
+### classement paris saint-germain football club – slovan bratislava (N/A, Wed, 9 Sep 2026 14:10:00 -0700)
+
+- **PSG 6-1 Slovan Bratislava, Ligue des champions : Reprise européenne en fanfare pour le PSG**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/psg-slovan-bratislava-live/702025)
+- **Ligue des Champions : les notes de PSG - Slovan Bratislava**: [Link](https://www.footmercato.net/a2363414697701552922-ligue-des-champions-les-notes-de-psg-slovan-bratislava)
+- **PSG-Bratislava : revivez la démonstration des Parisiens pour leurs retrouvailles avec la Ligue des champions**: [Link](https://www.lefigaro.fr/sports/football/live/ligue-des-champions/2026/2685381/paris-sg-slovan-bratislava)
+
+
+### moreirense – benfica (N/A, Wed, 9 Sep 2026 13:50:00 -0700)
+
+- **Benfica conquista ante Moreirense quarto triunfo e sobe ao segundo lugar**: [Link](https://www.correiodamanhacanada.com/benfica-conquista-ante-moreirense-quarto-triunfo-e-sobe-ao-segundo-lugar/)
+- **«Obrigámos o adversário a defender muito baixo»**: [Link](https://cnnportugal.iol.pt/videos/obrigamos-o-adversario-a-defender-muito-baixo/6aa1e0cf0cf2f6a1a1e7747a)
+- **Manuel Mendonça: "Acho que o penálti destabilizou-nos. Se não fosse isso..."**: [Link](https://sapo.pt/artigo/manuel-mendonca-acho-que-o-penalti-destabilizou-nos-se-nao-fosse-isso-6aa1db1d8767c6705c176a7e)
+
+
+### boycott adidas (N/A, Wed, 9 Sep 2026 13:40:00 -0700)
+
+- **Javier Bardem urges Adidas boycott over ad featuring Israeli soldier**: [Link](https://www.dailysabah.com/arts/javier-bardem-urges-adidas-boycott-over-ad-featuring-israeli-soldier/news)
+- **Adidas faces boycott calls over campaign featuring former Israeli soldier**: [Link](https://www.aljazeera.com/sports/2026/9/6/adidas-faces-boycott-calls-over-campaign-featuring-former-israeli-soldier)
+- **Adidas issues apology over campaign featuring disabled Israeli soldier**: [Link](https://www.jpost.com/diaspora/antisemitism/article-907991)
+
+
 ### ferran torres (N/A, Wed, 9 Sep 2026 13:50:00 -0700)
 
 - **3️⃣ El nuevo del PSG sigue brillando con hat-trick en Champions**: [Link](https://es-us.noticias.yahoo.com/deportes/3-psg-brillando-hat-trick-202900671.html)
