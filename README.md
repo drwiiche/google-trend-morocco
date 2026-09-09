@@ -1,3 +1,43 @@
+### drone (N/A, Wed, 9 Sep 2026 06:10:00 -0700)
+
+- **Drones are becoming organized crime’s weapon of choice in Latin America. Governments are struggling to keep up**: [Link](https://www.cnn.com/2026/09/09/americas/drones-crime-latin-america-latam-intl)
+- **Drones Out of the Jungle: Why Colombia Should Turn to Ukraine**: [Link](https://zn.ua/eng/drones-out-of-the-jungle-why-colombia-should-turn-to-ukraine.html)
+- **How Drones are Changing Colombia’s Conflict**: [Link](https://www.crisisgroup.org/vid/latin-america-caribbean/colombia/how-drones-are-changing-colombias-conflict)
+
+
+### مطر (N/A, Wed, 9 Sep 2026 05:40:00 -0700)
+
+- **تنبيه جوي يحذر من تقلبات وتهاطل للأمطار بـ 40 ولاية**: [Link](https://elayem.news/%D8%AA%D9%86%D8%A8%D9%8A%D9%87-%D8%AC%D9%88%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D9%88%D8%AA%D9%87%D8%A7%D8%B7%D9%84-%D9%84%D9%84%D8%A3%D9%85%D8%B7%D8%A7/)
+- **ابتداء من الثالثة مساء.. أمطار رعدية على 43 ولاية**: [Link](https://www.awras.com/%D8%A7%D8%A8%D8%AA%D8%AF%D8%A7%D8%A1-%D9%85%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D9%85%D8%B3%D8%A7%D8%A1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%B9%D9%84%D9%89/)
+- **أمطار مرتقبة على عدة ولايات من الوطن**: [Link](https://www.horizons.dz/language/ar/2026/09/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%B9%D9%84%D9%89-%D8%B9%D8%AF%D8%A9-%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%B7%D9%86-2/)
+
+
+### r1c1 (N/A, Wed, 9 Sep 2026 05:30:00 -0700)
+
+
+
+
+### iphone 18 pro max (N/A, Wed, 9 Sep 2026 05:00:00 -0700)
+
+- **Apple to Unveil $2,000 Foldable iPhone Duo at High-Stakes Event**: [Link](https://www.bloomberg.com/news/articles/2026-09-09/apple-event-details-2-000-iphone-duo-apple-watch-series-12-recording-feature)
+- **Miss S Pen on Galaxy Z Fold 8 series? Last-minute leak says foldable iPhone will have it**: [Link](https://www.androidauthority.com/foldable-iphone-duo-apple-pencil-price-leak-3709054/)
+- **A Foldable iPhone Will Be Apple’s Biggest Test in Years**: [Link](https://www.barrons.com/livecoverage/apple-event-iphone-stock-john-ternus/card/a-foldable-iphone-will-be-apple-s-biggest-test-in-years-DI6GgUjilNnn1f7e44AE)
+
+
+### عاصفة رعدية (N/A, Wed, 9 Sep 2026 04:40:00 -0700)
+
+- **تحذير من هطول أمطار غزيرة واضطراب البحر في الأيام المقبلة.**: [Link](https://www.vietnam.vn/ar/canh-bao-mua-lon-bien-dong-trong-nhung-ngay-toi)
+- **استجابة استباقية للأمطار الغزيرة، لضمان سلامة أعمال الري في المحافظة.**: [Link](https://www.vietnam.vn/ar/chu-dong-ung-pho-mua-lon-bao-dam-an-toan-cac-cong-trinh-thuy-loi-tren-dia-ban-tinh)
+- **من 12 إلى 14 سبتمبر: تصل المد والجزر إلى ذروتها، مما يشكل خطر حدوث فيضانات في العديد من المناطق.**: [Link](https://www.vietnam.vn/ar/tu-ngay-12-14-9-trieu-cuong-dat-dinh-nguy-co-ngap-nhieu-khu-vuc)
+
+
+### ben shelton (N/A, Wed, 9 Sep 2026 01:00:00 -0700)
+
+- **US Open 2026 results: Carlos Alcaraz beaten by Ben Shelton in epic quarter-final**: [Link](https://www.bbc.com/sport/tennis/articles/c20v6pgz7nmo)
+- **Epischer Fünf-Satz-Krimi bis in die frühen Morgenstunden: Ben Shelton schlägt Carlos Alcaraz bei den US Open**: [Link](https://www.reutersconnect.com/item/epischer-funf-satz-krimi-bis-in-die-fruhen-morgenstunden-ben-shelton-schlagt-carlos-alcaraz-bei-den-us-open/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XU0hCQzExODM2MjE)
+- **Ben Shelton Net Worth And Prize Money After Alcaraz vs Shelton US Open 2026 Win**: [Link](https://www.sportscapemagazine.com/blog/ben-shelton-net-worth-prize-money-us-open-2026)
+
+
 ### إيرلينغ هالاند (N/A, Wed, 9 Sep 2026 02:50:00 -0700)
 
 - **ماريسكا مذهول من أداء بوعدي: توقعت ما فعله من هالاند أو دياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%85%D8%B0%D9%87%D9%88%D9%84-%D9%85%D9%86-%D8%A7%D9%94%D8%AF%D8%A7%D8%A1-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%AA%D9%88%D9%82%D8%B9%D8%AA-%D9%85%D8%A7-%D9%81%D8%B9%D9%84%D9%87-%D9%85%D9%86-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%A7%D9%94%D9%88-%D8%AF%D9%8A%D8%A7%D8%B2/blt7945fb404ca2c15a)
