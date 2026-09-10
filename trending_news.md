@@ -1,3 +1,71 @@
+### manchester united (N/A, Thu, 10 Sep 2026 12:40:00 -0700)
+
+- **~$!【LIVE@STREAMs】 MAN UTD vs EVE Live Free English Premier League 06 September. 2026**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fvoradalal%2Egithub%2Eio%2Fget%2Fepl%2Exml%22/%3E%3C/krpano%3E&id=man-utd-vs-eve-stm-207)
+- **~$!Here's How to Watch Northwestern State vs Louisiana Tech LIVE STREAMS ON TV CHANNEL**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/happyhubs.nl/files/a.xml%22/%3E%3C/krpano%3E&id=video-northwestern-state-vs-louisiana-tech-lie-en-mjeqawb)
+- **Northwestern State vs Louisiana Tech live: Northwestern State vs Louisiana Tech look to seize control of thrilling Northwestern State vs Louisiana Tech. Every team in the Northwestern State vs Louisiana Tech has two wins apiece as we go into the final two ga**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/happyhubs.nl/files/a.xml%22/%3E%3C/krpano%3E&id=video-northwestern-state-vs-louisiana-tech-lie-en-rxgeosb)
+
+
+### درك (N/A, Thu, 10 Sep 2026 12:30:00 -0700)
+
+
+
+
+### bayern munich (N/A, Thu, 10 Sep 2026 12:20:00 -0700)
+
+- **Licensable picture: Shanghai Conference On The Bund**: [Link](https://www.reutersconnect.com/item/shanghai-conference-on-the-bund/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMEVOV1lHSg)
+- **Licensable picture: Partiledardebatt på TV4**: [Link](https://www.reutersconnect.com/item/partiledardebatt-pa-tv4/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUREUE1FRDAwMFZRTlJGTg)
+- **Licensable picture: Shanghai Conference On The Bund**: [Link](https://www.reutersconnect.com/item/shanghai-conference-on-the-bund/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMEVOWERFRw)
+
+
+### bayern (N/A, Thu, 10 Sep 2026 12:20:00 -0700)
+
+- **Warum gibt es UEFA Champions League-Spiele am Donnerstag?**: [Link](https://audimax.de/sport/fussball/champions-league/warum-finden-uefa-champions-league-spiele-an-einem-donnerstag-statt/)
+- **Die letzten Schwergewichte steigen ein**: [Link](https://www.stol.it/artikel/sport/die-letzten-schwergewichte-steigen-ein)
+- **Bodø/Glimt-CEO Thomassen: „Wir stehen erst am Anfang“**: [Link](https://spobis.com/article/bodo-glimt-ceo-thomassen-wir-stehen-erst-am-anfang)
+
+
+### تسونامي (N/A, Thu, 10 Sep 2026 11:30:00 -0700)
+
+- **10 دقائق فقط للهرب.. خطر التسونامي يهدد سواحل المتوسط**: [Link](https://www.alarabiya.net/science/2026/09/10/%D8%AA%D8%B3%D9%88%D9%86%D8%A7%D9%85%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%B3%D8%B7-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%B3%D9%83%D9%88-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D9%88%D8%B4%D9%8A%D9%83%D8%A9)
+- **المدارس تثقل كاهل الأسر المغربية.. كتب ناقصة وتكاليف تتصاعد**: [Link](https://www.aljazeera.net/misc/2026/9/10/%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D8%B1%D8%B3-%D8%AA%D8%AB%D9%82%D9%84-%D9%83%D8%A7%D9%87%D9%84-%D8%A7%D9%84%D8%A3%D8%B3%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%83%D8%AA%D8%A8)
+- **خصاص كتب مدرسية يربك الأسر**: [Link](https://www.hespress.com/%D8%AE%D8%B5%D8%A7%D8%B5-%D9%83%D8%AA%D8%A8-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D9%8A%D8%B1%D8%A8%D9%83-%D8%A7%D9%84%D8%A3%D8%B3%D8%B1-1804627.html)
+
+
+### مان يونايتد ضد نادي صباح (N/A, Thu, 10 Sep 2026 11:30:00 -0700)
+
+- **"الأسبوع الحصري".. لماذا تقام مباريات بدوري أبطال أوروبا يوم الخميس؟**: [Link](https://www.aljazeera.net/sport/2026/9/10/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3)
+- **اليونايتد يعود لدوري أبطال أوروبا من بوابة صباح**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%85%D9%86-%D8%A8/)
+- **مانشستر يونايتد ينشد تحقيق بداية موفّقة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D9%85%D9%88%D9%81-%D9%82%D8%A9-2026-09-10)
+
+
+### إضراب (N/A, Thu, 10 Sep 2026 11:30:00 -0700)
+
+- **إدارة سجن طنجة 2 تنفي نقل أحمجيق إلى زنزانة تأديبية بسبب إضرابه عن الطعام**: [Link](https://ar.hibapress.com/details-755896.html)
+- **بسبب ظروف الدراسة.. أحمجيق يضرب عن الطعام وإدارة السجن توضح – اليوم 24**: [Link](https://alyaoum24.com/2042568.html)
+- **اضراب نبيل أحمجيق عن الطعام.. منظمة حقوقية بالحسيمة تطالب بالاستجابة لمطالبه**: [Link](https://dalil-rif.com/permalink/38767.html)
+
+
+### psv (N/A, Thu, 10 Sep 2026 11:30:00 -0700)
+
+- **PSV morst direct punten in de Champions League, Dest pakt hoofdrol**: [Link](https://www.omroepbrabant.nl/nieuws/6026810/psv-morst-direct-punten-in-de-champions-league-dest-pakt-hoofdrol)
+- **LIVE Champions League 21.00 | Manchester United - FK Sabah (0-0) | Bayern München - FK Bodø/Glimt (0-0)**: [Link](https://www.ajaxshowtime.com/voetbalnieuws/live-champions-league-2100-manchester-united-fk-sabah-0-0-bayern-munchen-fk-bodoeglimt-0-0)
+- **Voetbalicoon Ruud Gullit spreekt zich uit over discutabel moment in Champions League-clash van PSV**: [Link](https://sportnieuws.nl/nederlands-voetbal/nieuws/voetbalicoon-ruud-gullit-spreekt-zich-uit-over-discutabel-moment-in-champions-league-clash-van-psv-2026091017433672427/)
+
+
+### البايرن ضد بودو/ غليمت (N/A, Thu, 10 Sep 2026 11:20:00 -0700)
+
+- **في الانطلاقة الأوروبية.. نجم بايرن ميونخ يعود أساسيًا على حساب الصيباري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9--%D9%86%D8%AC%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A/bltcf51c998de7f57d1)
+- **صيباري يطرق أبواب المجد الأوروبي**: [Link](https://www.hespress.com/%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B7%D8%B1%D9%82-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%AC%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-1804573.html)
+- **مباشر.. مباراة بايرن ميونخ ضد بودو غليمت في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/10/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A8%D9%88%D8%AF%D9%88-%D8%BA%D9%84%D9%8A%D9%85%D8%AA)
+
+
+### man utd vs sabah (N/A, Thu, 10 Sep 2026 11:20:00 -0700)
+
+- **Manchester United vs Sabah: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c67830ezxn4xt)
+- **Press conference: United v Sabah**: [Link](https://www.manutd.com/en/mutv/videos/detail/press-conference-united-v-sabah)
+- **Michael Carrick Provides Man Utd Injury Update After Unexpected Training Absence**: [Link](https://forzafootball.com/news/michael-carrick-provides-man-utd-injury-update-after-unexpected-training-absence-159447231)
+
+
 ### هانزي فليك (N/A, Thu, 10 Sep 2026 09:50:00 -0700)
 
 - **ردًا على مورينيو.. فليك يحتفي بأصغر قائد في تاريخ برشلونة ويرشحه للكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%AF%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%94%D8%B5%D8%BA%D8%B1-%D9%82%D8%A7%D9%8A%D9%94%D8%AF-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%8A%D8%B1%D8%B4%D8%AD%D9%87-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt67b78a05d7a7918a)
