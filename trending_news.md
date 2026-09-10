@@ -1,3 +1,73 @@
+### نادي بوتافوغو (N/A, Thu, 10 Sep 2026 14:50:00 -0700)
+
+- **بوتافوغو البرازيلي يعلن ضم حكيم زياش حتى عام 2028**: [Link](https://www.aljazeera.net/sport/2026/9/10/%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%BA%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B6%D9%85-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4)
+- **فيديو: زياش يصل البرازيل.. هتاف حار "بالعربية" لنجم المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D8%B5%D9%84-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84--%D9%87%D8%AA%D8%A7%D9%81-%D8%AD%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt52e2e7aed8d196e7)
+- **زياش: أريد أن أعيش الكرة بالبرازيل**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%B4-%D8%A3%D8%B1%D9%8A%D8%AF-%D8%A3%D9%86-%D8%A3%D8%B9%D9%8A%D8%B4-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A8%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-1804646.html)
+
+
+### ismael saibari (N/A, Thu, 10 Sep 2026 14:30:00 -0700)
+
+- **Saibari: Bayern reveals Kompany’s role in his recruitment**: [Link](https://mountakhab.net/en/saibari-bayern-reveals-kompanys-role-in-his-recruitment/)
+- **Bayern’s Eberl Reveals How Club Chose Ismael Saibari Over Anthony Gordon**: [Link](https://www.moroccoworldnews.com/2026/09/337743/bayerns-eberl-reveals-how-club-chose-ismael-saibari-over-anthony-gordon/)
+- **Sibari: I chose number 34 in tribute to Abdelhak Nour…**: [Link](https://www.ysscores.com/en/news/14033862/sibari-i-chose-number-34-in-tribute-to-abdelhak-nouri)
+
+
+### emirats arabes unis (N/A, Thu, 10 Sep 2026 14:30:00 -0700)
+
+- **L’Algérie, en rompant ses relations diplomatiques avec les Emirats arabes unis, choisit l’épreuve de force**: [Link](https://www.lemonde.fr/afrique/article/2026/09/10/l-algerie-en-rompant-ses-relations-diplomatiques-avec-les-emirats-arabes-unis-choisit-l-epreuve-de-force_6769970_3212.html)
+- **Paranoïa au sommet: après la provocation et les insultes, le régime d’Alger rompt avec les Émirats et poursuit ses errances**: [Link](https://fr.le360.ma/monde/paranoia-au-sommet-apres-la-provocation-et-les-insultes-le-regime-dalger-rompt-avec-les-emirats-et_RZFWF5IRQJBUTBX64232L5VUL4/)
+- **Algérie-Émirats : une rupture diplomatique aux motifs peu détaillés**: [Link](https://medias24.com/2026/09/10/algerie-emirats-une-rupture-diplomatique-aux-motifs-peu-detailles-1753177/)
+
+
+### عبد الصمد الزلزولي (N/A, Thu, 10 Sep 2026 14:30:00 -0700)
+
+- **"معقدة".. بيليجريني يكشف مستجدات حالة الزلزولي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D9%82%D8%AF%D8%A9--%D8%A8%D9%8A%D9%84%D9%8A%D8%AC%D8%B1%D9%8A%D9%86%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D8%B3%D8%AA%D8%AC%D8%AF%D8%A7%D8%AA-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A/blt70abdce6467d7e11)
+- **مدرب بيتيس يحسم وضعية الزلزولي**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%8A%D8%AD%D8%B3%D9%85-%D9%88%D8%B6%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-1804068.html)
+- **نجم مغربي يزف خبرا سارا لوهبي قبل معسكر شتنبر**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/502788.html)
+
+
+### classement bayern munich – bodø/glimt (N/A, Thu, 10 Sep 2026 14:20:00 -0700)
+
+- **Ligue des Champions : le Bayern Munich écrase Bodø/Glimt, Manchester United surclasse Sabah**: [Link](https://www.footmercato.net/a6827400131289688607-ligue-des-champions-le-bayern-munich-ecrase-bodo-glimt-manchester-united-surclasse-sabah)
+- **Olise et le Bayern s'amusent, Côme réussit sa grande première**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/ligue-des-champions-le-bayern-munich-et-manchester-united-samusent-contre-bodoglimt-et-le-sabah-fk-come-reussit-sa-grande-premiere-contre-leipzig_sto23336225/story.shtml)
+- **Ligue des champions: Ismael Saibari pour porter le Bayern vers le sommet**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-ismael-saibari-pour-porter-le-bayern-vers-le-sommet_NVRSPQ3HOVFBNLYXQ54CQAVU7I/)
+
+
+### como (N/A, Thu, 10 Sep 2026 14:20:00 -0700)
+
+- **Abren un proceso penal contra los padres de una joven trans que se suicidó por enterrarla con el nombre anterior a su transición**: [Link](https://www.marca.com/tiramillas/sociedad/2026/09/10/abren-proceso-penal-padres-joven-trans-suicido-enterrarla-nombre-anterior-transicion.html)
+- **Daniela murió, pero en su tumba aparece el nombre y la foto de un hombre: ¿delito de odio ‘post mortem’?**: [Link](https://elpais.com/sociedad/lgtb/2026-09-10/daniela-murio-pero-en-su-tumba-aparece-el-nombre-y-la-foto-de-un-hombre-delito-de-odio-post-mortem.html)
+- **Un juzgado investiga un delito de odio en el entierro de una joven trans en Aspe con el nombre previo a su transición**: [Link](https://alicanteplaza.es/alicanteplaza/elda-vinalopo-mitja/un-juzgado-investiga-un-delito-de-odio-en-el-entierro-de-una-joven-trans-en-aspe-con-el-nombre-previo-a-su-transicion)
+
+
+### champions league (N/A, Thu, 10 Sep 2026 13:40:00 -0700)
+
+- **Como 4-1 RB Leipzig: Cesc Fabregas' side make Champions League debut special**: [Link](https://www.bbc.com/sport/football/live/cm4g56rwxew2t)
+- **Nico Paz: ‘Nights like this are why I wanted to stay at Como’**: [Link](https://onefootball.com/en/news/nico-paz-nights-like-this-are-why-i-wanted-to-stay-at-como-43437937)
+- **Why Como’s emphatic Leipzig win is huge for Italian football**: [Link](https://sports.yahoo.com/articles/why-como-emphatic-leipzig-win-212000354.html)
+
+
+### nadorcity (N/A, Thu, 10 Sep 2026 13:00:00 -0700)
+
+- **تنمية اقتصادية وخدمات أساسية.. هذه انتظارات ساكنة الناظور من انتخابات 2026**: [Link](https://2m.ma/ar/news/%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A%D8%A9-%D9%88%D8%AE%D8%AF%D9%85%D8%A7%D8%AA-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A9-%D9%87%D8%B0%D9%87-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%B3%D8%A7%D9%83%D9%86%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D8%B8%D9%88%D8%B1-%D9%85%D9%86-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-2026-20260909)
+- **أقوضاض وبنعلي يقودان طموح الاتحاد الدستوري نحو مقعد برلماني بالناظور**: [Link](https://lisanpress.com/2026/09/10/22315.html)
+- **حزب الأصالة والمعاصرة بالناظور يعلن جاهزية لجان الحملة.. والمومني يستعد لـ«صافرة الانطلاقة» منتصف الليل**: [Link](https://alakhbar55.ma/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%A3%D8%B5%D8%A7%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B5%D8%B1%D8%A9-%D8%A8%D8%A7%D9%84%D9%86%D8%A7%D8%B8%D9%88%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%AC/)
+
+
+### weather tomorrow (N/A, Thu, 10 Sep 2026 13:00:00 -0700)
+
+- **FIRST ALERT WEATHER DAY: Storm Chances and Flooding Concerns This Evening**: [Link](https://www.wymt.com/2026/09/10/first-alert-weather-day-storm-chances-flooding-concerns-this-evening/)
+- **Storms thoughout the forecast**: [Link](https://www.wbko.com/2026/09/10/storms-thoughout-forecast/)
+- **Scattered shower chances for Thursday**: [Link](https://www.wlky.com/article/scattered-shower-chances-for-thursday/73661204)
+
+
+### flashscore (N/A, Thu, 10 Sep 2026 12:40:00 -0700)
+
+- **Chelsea plot fresh talks to complete €70m January signing**: [Link](https://www.footballtransfers.com/en/transfer-news/uk-premier-league/2026/09/chelsea-transfer-news-manu-kone-as-roma-jamie-gittens-swap-deal-talks-january-2027)
+- **Gossip: Chelsea could go back for midfielder Kone in the summer**: [Link](https://www.aol.com/articles/gossip-chelsea-could-back-midfielder-060144000.html)
+- **Chelsea ready to revive discussions to sign Manu Kone**: [Link](https://thehardtackle.com/transfer-news/2026/09/10/chelsea-ready-to-revive-discussions-to-sign-manu-kone/)
+
+
 ### manchester united (N/A, Thu, 10 Sep 2026 12:40:00 -0700)
 
 - **~$!【LIVE@STREAMs】 MAN UTD vs EVE Live Free English Premier League 06 September. 2026**: [Link](https://www2.rikkyo.ac.jp/web/panoramatour/?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fvoradalal%2Egithub%2Eio%2Fget%2Fepl%2Exml%22/%3E%3C/krpano%3E&id=man-utd-vs-eve-stm-207)
