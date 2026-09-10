@@ -1,3 +1,38 @@
+### مطار (N/A, Thu, 10 Sep 2026 06:50:00 -0700)
+
+- **مطارات المغرب تجدد زي الاستقبال**: [Link](https://www.hespress.com/%D9%85%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AC%D8%AF%D8%AF-%D8%B2%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-1805060.html)
+- **المكتب الوطني للمطارات يعتمد زياً جديداً ويُضاعف أعداد أعوان الاستقبال ضمن استراتيجية "مطارات 2030" (صور)**: [Link](https://barlamane.com/%D8%A7%D9%84%D9%85%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D9%85%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D9%8A%D8%B9%D8%AA%D9%85%D8%AF-%D8%B2%D9%8A%D8%A7%D9%8B-%D8%AC%D8%AF%D9%8A/)
+- **مطارات المغرب.. زي رسمي جديد وهيكلة شاملة لتعزيز جودة استقبال المسافرين**: [Link](https://tanja24.com/%D9%85%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B2%D9%8A-%D8%B1%D8%B3%D9%85%D9%8A-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%88%D9%87%D9%8A%D9%83%D9%84%D8%A9-%D8%B4%D8%A7%D9%85%D9%84/)
+
+
+### agence internationale de l'énergie atomique (N/A, Thu, 10 Sep 2026 06:20:00 -0700)
+
+- **AIEA/Syrie : Adoption d’une résolution, soumise par un quartet comprenant le Maroc**: [Link](https://fr.hespress.com/487851-aiea-syrie-adoption-dune-resolution-soumise-par-un-quartet-comprenant-le-maroc.html)
+- **Le Qatar apprécie la décision de l’AIEA de clore le dossier de non-conformité nucléaire de la Syrie**: [Link](https://qna.org.qa/fr-FR/News-Area/News/2026-9/10/le-qatar-apprecie-la-decision-de-laiea-de-clore-le-dossier-de-non-conformite-nucleaire-de-la-syrie)
+- **L’Arabie Saoudite salue l’adoption par le Conseil des gouverneurs de l’AIEA de la résolution relative à la République arabe syrienne**: [Link](https://www.spa.gov.sa/fr/N2672623)
+
+
+### الجزائر (N/A, Thu, 10 Sep 2026 05:10:00 -0700)
+
+- **الجزائر تعلن قطع العلاقات الدبلوماسية مع الإمارات**: [Link](https://www.aljazeera.net/news/2026/9/10/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%B9%D9%84%D9%86-%D9%82%D8%B7%D8%B9-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA)
+- **عاجل: الجزائر تقطع علاقاتها الدبلوماسية مع الإمارات**: [Link](https://www.bbc.com/arabic/articles/cvgyr59r494o)
+- **الجزائر تقطع علاقاتها الدبلوماسية مع الإمارات وتمهل سفيرها 48 ساعة – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%82%D8%B7%D8%B9-%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D9%85%D8%B9)
+
+
+### cybersécurité (N/A, Thu, 10 Sep 2026 04:50:00 -0700)
+
+- **L'UE peut enfin accéder à Mythos, le modèle d'IA le plus puissant d'Anthropic**: [Link](https://medias24.com/agence-presse/lue-peut-enfin-acceder-a-mythos-le-modele-dia-le-plus-puissant-danthropic/)
+- **L'agence européenne de cybersécurité s'est vu accorder l'accès au modèle d'IA Mythos 5, selon la Commission**: [Link](https://www.boursorama.com/bourse/actualites/l-agence-europeenne-de-cybersecurite-s-est-vu-accorder-l-acces-au-modele-d-ia-mythos-5-selon-la-commission-4a56b66a0ca2f90fe8e7f95f5f02cf6b)
+- **Le Royaume-Uni craint l'influence de Trump : Anthropic refuse de soumettre son dernier modèle à l'agence de sécurité**: [Link](https://www.cryptopolitan.com/fr/anthropic-withholds-latest-model-from-uk/)
+
+
+### lionel messi (N/A, Wed, 9 Sep 2026 20:30:00 -0700)
+
+- **Football: Lionel Messi reaches 'preliminary agreement' to buy Eldense**: [Link](https://www.bbc.com/sport/football/articles/c99dmky78d3o)
+- **Messi’s first task: find a new coach**: [Link](https://en.as.com/soccer/messis-first-task-find-a-new-coach-f202609-n/)
+- **Messi builds an ownership portfolio**: [Link](https://planetsoccer.substack.com/p/messi-builds-an-ownership-portfolio)
+
+
 ### شرطة (N/A, Thu, 10 Sep 2026 01:50:00 -0700)
 
 - **توقيف شرطي بانزكان ظهر فيدي فيديو يعنِّف سيدة بالشارع العام**: [Link](https://2m.ma/ar/news/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%B4%D8%B1%D8%B7%D9%8A-%D8%A8%D8%A7%D9%86%D8%B2%D9%83%D8%A7%D9%86-%D8%B8%D9%87%D8%B1-%D9%81%D9%8A%D8%AF%D9%8A-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%8A%D8%B9%D9%86-%D9%81-%D8%B3%D9%8A%D8%AF%D8%A9-%D9%8A%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-20260907)
