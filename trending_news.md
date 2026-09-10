@@ -1,3 +1,31 @@
+### chicago fire – inter miami (N/A, Wed, 9 Sep 2026 17:40:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Visits Chicago Fire FC in Midweek MLS Regular Season Action**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-visits-chicago-fire-fc-in-midweek-mls-regular-season-action)
+- **Lionel Messi vs. Robert Lewandowski showdown sells out, Chicago Fire says**: [Link](https://www.nbcchicago.com/news/local/lionel-messi-vs-robert-lewandowski-showdown-sells-out-chicago-fire-says/3986647/)
+- **Where to watch Chicago Fire vs. Inter Miami MLS soccer for free today**: [Link](https://www.syracuse.com/tv/2026/09/where-to-watch-chicago-fire-vs-inter-miami-mls-soccer-for-free-today.html)
+
+
+### الفنيدق (N/A, Wed, 9 Sep 2026 16:10:00 -0700)
+
+- **114.7 مليون يورو من المفوضية الأوروبية لإسبانيا بعد أزمة الهجرة نحو سبتة المحتلة**: [Link](https://ar.telquel.ma/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%86%D9%81%D9%8A-%D8%AA%D9%84%D9%82%D9%8A-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D9%80cia-%D8%A8%D8%B4%D8%A3%D9%86-%D8%A3%D8%AD/)
+- **فضيحة الإعلام الإسباني.. عندما تتحول محطة سيارات أجرة إلى سلاح فتاك في "حرب هجينة"!**: [Link](https://ar.hibapress.com/details-755737.html)
+- **بعد 40 يوما من أزمة حدود الفنيدق.. مدريد تستعد لإنهاء إدارة الطوارئ في سبتة**: [Link](https://tanja24.com/%D8%A8%D8%B9%D8%AF-40-%D9%8A%D9%88%D9%85%D8%A7-%D9%85%D9%86-%D8%A3%D8%B2%D9%85%D8%A9-%D8%AD%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D9%86%D9%8A%D8%AF%D9%82-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%B3/)
+
+
+### julián alvarez (N/A, Wed, 9 Sep 2026 14:50:00 -0700)
+
+- **Simeone es el único que puede 'salvar' a Julián**: [Link](https://www.marca.com/futbol/atletico/2026/09/09/simeone-unico-salvar-julian.html)
+- **Cerezo: “El caso Julián está cerrado”**: [Link](https://holanews.com/cerezo-el-caso-julian-esta-cerrado/)
+- **Presidente del Atlético de Madrid dice que Álvarez 'sufre' tras no 'concretar' su salida del equipo**: [Link](https://es-us.noticias.yahoo.com/deportes/presidente-atl%C3%A9tico-madrid-%C3%A1lvarez-sufre-193551028.html)
+
+
+### al-nassr vs abha club standings (N/A, Wed, 9 Sep 2026 13:50:00 -0700)
+
+- **Patrick Mahomes' Week 1 outlook**: [Link](https://www.espn.com/video/clip/_/id/49882355/patrick-mahomes-week-1-outlook)
+- **Liverpool 2-1 Atlético (9 Sep, 2026) Player Stats - ESPN (UK)**: [Link](https://www.espn.co.uk/soccer/player-stats/_/gameId/401915446)
+- **América Cali vs. Pereira (10 Sep, 2026) Live Score**: [Link](https://africa.espn.com/football/match/_/gameId/401902716)
+
+
 ### شتاء (N/A, Wed, 9 Sep 2026 16:00:00 -0700)
 
 - **باستثناء شهر وحيد.. التوقعات الجوية تتنبأ بفصل شتاء شحيح تتخلله إشارات مطرية غير مستقرة**: [Link](https://www.akhbarona.com/national/432210.html)
