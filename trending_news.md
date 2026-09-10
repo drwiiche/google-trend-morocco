@@ -1,3 +1,43 @@
+### شرطة (N/A, Thu, 10 Sep 2026 01:50:00 -0700)
+
+- **توقيف شرطي بانزكان ظهر فيدي فيديو يعنِّف سيدة بالشارع العام**: [Link](https://2m.ma/ar/news/%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%B4%D8%B1%D8%B7%D9%8A-%D8%A8%D8%A7%D9%86%D8%B2%D9%83%D8%A7%D9%86-%D8%B8%D9%87%D8%B1-%D9%81%D9%8A%D8%AF%D9%8A-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%8A%D8%B9%D9%86-%D9%81-%D8%B3%D9%8A%D8%AF%D8%A9-%D9%8A%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-20260907)
+- **تطورات جديدة في قضية ضابط الأمن المتابع في واقعة تعنيف سيدة بإنزكان**: [Link](https://www.telegraphe.ma/%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%B6%D8%A7%D8%A8%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9-%D9%81%D9%8A-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%AA%D8%B9%D9%86%D9%8A%D9%81-%D8%B3%D9%8A%D8%AF%D8%A9-%D8%A8%D8%A5%D9%86%D8%B2%D9%83%D8%A7%D9%86)
+- **تطورات قضية ‘موظف أمن إنزكان’: إطلاق سراح وتوقيف إداري بانتظار التحقيقات**: [Link](https://daralkhabar.com/%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D9%82%D8%B6%D9%8A%D8%A9-%D9%85%D9%88%D8%B8%D9%81-%D8%A3%D9%85%D9%86-%D8%A5%D9%86%D8%B2%D9%83%D8%A7%D9%86-%D8%A5%D8%B7%D9%84%D8%A7%D9%82-%D8%B3%D8%B1%D8%A7/)
+
+
+### غواصة (N/A, Thu, 10 Sep 2026 01:00:00 -0700)
+
+- **كنز تقني.. هذا ما ستفعله إيران بالغواصة الأمريكية التي سيطرت عليها**: [Link](https://www.aljazeera.net/news/2026/9/10/%D9%83%D9%86%D8%B2-%D8%AA%D9%82%D9%86%D9%8A-%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D8%B3%D8%AA%D9%81%D8%B9%D9%84%D9%87-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%BA%D9%88%D8%A7%D8%B5%D8%A9)
+- **تعطل غواصة عسكرية أميركية بالشرق الأوسط والحرس الثوري يعلن مصادرتها**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/09/08/%D8%AA%D8%B9%D8%B7%D9%84-%D8%BA%D9%88%D8%A7%D8%B5%D8%A9-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A7%D9%88%D8%B3%D8%B7-%D9%88%D8%A7%D9%84%D8%AD%D8%B1%D8%B3-%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1%D8%AA%D9%87%D8%A7)
+- **غواصة أمريكية مسيّرة تقع في قبضة طهران.. هل تستطيع إيران الاستفادة من تقنياتها؟**: [Link](https://arabic.euronews.com/2026/09/10/us-drone-submarine-seized-iran-two-narratives)
+
+
+### زفاف (N/A, Thu, 10 Sep 2026 00:50:00 -0700)
+
+- **أغرقوا العروس بالذهب.. فلماذا انتهى العريس خلف القضبان؟**: [Link](https://www.aljazeera.net/misc/2026/9/9/%D8%A3%D8%BA%D8%B1%D9%82%D9%88%D8%A7-%D8%A7%D9%84%D8%B9%D8%B1%D9%88%D8%B3-%D8%A8%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D9%86%D8%AA%D9%87%D9%89)
+- **من زفاف أسطوري إلى زنزانة التحقيق.. الذهب يفتح ملفاً خطيراً لعريس تركي**: [Link](https://www.alarabiya.net/last-page/2026/09/08/%D9%85%D9%86-%D8%B2%D9%81%D8%A7%D9%81-%D8%A7%D8%B3%D8%B7%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%89-%D8%B2%D9%86%D8%B2%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D9%81%D8%AA%D8%AD-%D9%85%D9%84%D9%81%D8%A7-%D8%AE%D8%B7%D9%8A%D8%B1%D8%A7-%D9%84%D8%B9%D8%B1%D9%8A%D8%B3-%D8%AA%D8%B1%D9%83%D9%8A)
+- **اقتيد من العرس إلى السجن .. عريس تركي يقدم للعروس ذهباً بمليون دولار**: [Link](https://www.emaratalyoum.com/life/four-sides/2026-09-10-1.2081511)
+
+
+### passeport (N/A, Wed, 9 Sep 2026 23:50:00 -0700)
+
+- **Huawei lance le Mate XT 2 et une puce conçue sans logiciel ni fonderie américains**: [Link](https://www.mac4ever.com/iphone/197912-huawei-lance-le-mate-xt-2-et-une-puce-concue-sans-logiciel-ni-fonderie-americains)
+- **En fait, j'aime vraiment beaucoup le smartphone pliable de Xiaomi, rival de l'iPhone Ultra**: [Link](https://fr.cnet.com/foldable-phones-1/5670/en-fait-jaime-vraiment-beaucoup-le-smartphone-pliable-de-xiaomi-rival-de-liphone-ultra)
+- **Les 5 smartphones les plus sympas que j'ai vus à l'IFA 2026 – dont un nouveau modèle pliable**: [Link](https://www.zdnet.fr/actualites/les-5-smartphones-les-plus-sympas-que-jai-vus-a-lifa-2026-dont-un-nouveau-modele-pliable-503159.htm)
+
+
+### meteo (N/A, Wed, 9 Sep 2026 23:40:00 -0700)
+
+
+
+
+### liverpool f.c. vs atlético madrid standings (N/A, Wed, 9 Sep 2026 14:50:00 -0700)
+
+- **Liverpool Player Ratings vs. Atletico Madrid: Barcola Injury Mars Major European Win**: [Link](https://forzafootball.com/news/liverpool-player-ratings-vs-atletico-madrid-barcola-injury-mars-major-european-win-159446883)
+- **Bradley Barcola, the verdict falls after his premature exit**: [Link](https://frenchfootballweekly.com/2026/09/10/bradley-barcola-the-verdict-falls-after-his-premature-exit/)
+- **Fitness Updates: Barcola and Kerkez Cramp, Gakpo Doubt for Fulham**: [Link](https://liverpooloffside.sbnation.com/liverpool-champions-league-coverage/83546/liverpool-fc-fitness-updates-barcola-and-kerkez-cramp-gakpo-doubt-for-fulham)
+
+
 ### chicago fire – inter miami (N/A, Wed, 9 Sep 2026 17:40:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Visits Chicago Fire FC in Midweek MLS Regular Season Action**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-visits-chicago-fire-fc-in-midweek-mls-regular-season-action)
