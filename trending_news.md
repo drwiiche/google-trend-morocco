@@ -1,3 +1,71 @@
+### هانزي فليك (N/A, Thu, 10 Sep 2026 09:50:00 -0700)
+
+- **ردًا على مورينيو.. فليك يحتفي بأصغر قائد في تاريخ برشلونة ويرشحه للكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%AF%D9%8B%D8%A7-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%94%D8%B5%D8%BA%D8%B1-%D9%82%D8%A7%D9%8A%D9%94%D8%AF-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%8A%D8%B1%D8%B4%D8%AD%D9%87-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt67b78a05d7a7918a)
+- **فليك يدعم يامال للفوز بالكرة الذهبية**: [Link](https://www.hespress.com/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%AF%D8%B9%D9%85-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%84%D9%84%D9%81%D9%88%D8%B2-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-1805009.html)
+- **برشلونة يفتتح مشواره بانتصار كبير أمام فاينورد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D8%A8%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%83%D8%A8%D9%8A%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D8%A7%D9%8A%D9%86%D9%88%D8%B1%D8%AF-2026-09-09)
+
+
+### psv eindhoven – chakhtior donetsk (N/A, Thu, 10 Sep 2026 09:40:00 -0700)
+
+- **!+[ＬＩＶＥＳＴＲＥＡＭ]TODAY!!] PSV Eindhoven vs Shakhtar Donetsk Live Online**: [Link](https://www.uv.es/bidia/LaNau.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url=%22/%5C/mediahubss.github.io/wxp/a.xml%22/%3E%3C/krpano%3E&id=video-psv-eindhoven-shakhtar-donetsk-ul-li-uktv-ucl89917)
+- **Peter Bosz says Shakhtar’s situation is ‘terrible’ before Champions League group match**: [Link](https://onefootball.com/en/news/peter-bosz-says-shakhtars-situation-is-terrible-before-champions-league-group-match-43434379)
+- **'It would be nice to repay them!' – Mykola Matviyenko makes bold promise ahead of PSV clash**: [Link](https://www.goal.com/en/lists/mykola-matviyenko-shakhtar-donetsk-psv-champions-league-preview/bltc1906c53e15d8210)
+
+
+### لاعب (N/A, Thu, 10 Sep 2026 09:30:00 -0700)
+
+- **بعد تراجع مكانته.. لاعب برشلونة يقاتل لاستعادة ثقة فليك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%85%D9%83%D8%A7%D9%86%D8%AA%D9%87--%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%82%D8%A7%D8%AA%D9%84-%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%AB%D9%82%D8%A9-%D9%81%D9%84%D9%8A%D9%83/blt959f0b10ac3b626d)
+- **ليس لامين يامال .. ورقة فليك التي لا غنى عنها في تشكيلة برشلونة**: [Link](https://twaslnews1.twaslnews.com/4839545/)
+- **بوتافوغو البرازيلي يعلن ضم حكيم زياش حتى عام 2028**: [Link](https://www.aljazeera.net/sport/2026/9/10/%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%BA%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B6%D9%85-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4)
+
+
+### fouzi lekjaa (N/A, Thu, 10 Sep 2026 09:30:00 -0700)
+
+- **Le président de la Fédération marocaine affirme que la finale de la Coupe du monde 2030 aura lieu au Maroc**: [Link](https://www.lequipe.fr/Football/Actualites/Le-president-de-la-federation-marocaine-affirme-que-la-finale-de-la-coupe-du-monde-2030-aura-lieu-a-casablanca/1717667)
+- **Coupe du Monde 2030 : la FIFA dément l’affirmation de Faouzi Lekjaa**: [Link](https://www.footmercato.net/a7737965042900054172-coupe-du-monde-2030-la-fifa-dement-laffirmation-de-faouzi-lekjaa)
+- **Mondial 2030: l’auberge espagnole et la fabrique des boucs émissaires**: [Link](https://sport.le360.ma/coupe-du-monde/mondial-2030-lauberge-espagnole-et-la-fabrique-des-boucs-emissaires_XCKAKY57VJC2HFPHZMNEXZH7DU/)
+
+
+### سرقة (N/A, Thu, 10 Sep 2026 09:10:00 -0700)
+
+- **حادث خطير في قاعدة للجيش الإسرائيلي.. جندي يسرق 3 بنادق تعود لعناصر من الكوماندوز البحري**: [Link](https://arabic.euronews.com/2026/09/10/israeli-soldier-steals-m16-rifles-shayetet-13-investigation)
+- **صحيفة اسرائيلية: اختراق أمني خطير داخل واحدة من أكثر الوحدات الإسرائيلية حساسية**: [Link](https://madar.news/%D8%B5%D8%AD%D9%8A%D9%81%D8%A9-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7%D8%AE%D8%AA%D8%B1%D8%A7%D9%82-%D8%A3%D9%85%D9%86%D9%8A-%D8%AE%D8%B7%D9%8A%D8%B1-%D8%AF%D8%A7%D8%AE%D9%84/)
+- **سرقة أسلحة من قاعدة عسكرية إسرائيلية.. القبض على 3 مشتبه بهم في شمال إسرائيل**: [Link](https://almelnoujoum.com/%D8%B3%D8%B1%D9%82%D8%A9-%D8%A3%D8%B3%D9%84%D8%AD%D8%A9-%D9%85%D9%86-%D9%82%D8%A7%D8%B9%D8%AF%D8%A9-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%A7/)
+
+
+### espagne (N/A, Thu, 10 Sep 2026 09:10:00 -0700)
+
+- **Stefan Küng remporte le contre-la-montre de la 18e étape de la Vuelta, Enric Mas maintient Primoz Roglic à distance et s'accroche à son maillot rouge**: [Link](https://www.lequipe.fr/Cyclisme-sur-route/Actualites/Stefan-kung-remporte-le-contre-la-montre-de-la-18e-etape-de-la-vuelta-enric-mas-maintient-primoz-roglic-a-distance-et-s-accroche-a-son-maillot-rouge/1717679)
+- **Tour d'Espagne - Suivez la 18e étape contre-la-montre EN DIRECT (El Puerto de Santa María - Jerez de la Frontera)**: [Link](https://www.eurosport.fr/cyclisme/tour-d-espagne/2026/live-contre-la-montre-individuel-hommes-etape-18-el-puerto-de-santa-maria-jerez-de-la-frontera_mtc1651439/live-commentary.shtml)
+- **Vuelta - Mas : « Une situation idéale » : Sports - Orange**: [Link](https://sports.orange.fr/cyclisme/tour-d-espagne/article/vuelta-mas-une-situation-ideale-exclu-CNT000002rPNFI.html)
+
+
+### jacob coxon (N/A, Thu, 10 Sep 2026 08:50:00 -0700)
+
+- **Exclusive | Anthropic Researcher Quits Over ‘Out-of-Control’ AI Fears**: [Link](https://www.wsj.com/tech/ai/anthropic-researcher-quits-over-out-of-control-ai-fears-707b7628)
+- **Scoop: Anthropic whistleblower gave up his equity to leave the company**: [Link](https://www.axios.com/2026/09/09/anthropic-researcher-ai-warning-interview)
+- **Lawmakers blast AI companies after researcher warns of human extinction by 2030**: [Link](https://www.theguardian.com/technology/2026/sep/09/lawmakers-blast-ai-human-extinct-2030)
+
+
+### حرارة (N/A, Thu, 10 Sep 2026 08:40:00 -0700)
+
+- **«الصيف يرفض الرحيل في هدوء».. الأرصاد تكشف حالة الطقس اليوم الخميس**: [Link](https://www.almasryalyoum.com/news/details/4356381)
+- **الأرصاد تحذر: شبورة مائية كثيفة غدا.. والعظمى على القاهرة 34 درجة**: [Link](https://twaslnews1.twaslnews.com/4848379/)
+- **طقس اليوم.. انخفاض طفيف للحرارة وشبورة على الطرق**: [Link](https://www.youlyou.com/50820)
+
+
+### kim ju-ae (N/A, Thu, 10 Sep 2026 08:20:00 -0700)
+
+- **South Korea trying to learn if Kim Jong Un has a son but daughter’s status as heir appears solid**: [Link](https://www.adn.com/nation-world/2026/09/10/south-korea-trying-to-learn-if-kim-jong-un-has-a-son-but-daughters-status-as-heir-appears-solid/)
+- **North Korea leader's daughter believed to have younger sibling: Seoul**: [Link](https://www.rfi.fr/en/international-news/20260910-north-korea-leader-s-daughter-believed-to-have-younger-sibling-seoul)
+- **North Korean leader's daughter believed to have younger sibling, Seoul's spy agency says**: [Link](https://www.thestar.com.my/aseanplus/aseanplus-news/2026/09/10/north-korean-leader039s-daughter-believed-to-have-younger-sibling-seoul039s-spy-agency-says)
+
+
+### مولاي ادريس الفيلالي (N/A, Thu, 10 Sep 2026 08:20:00 -0700)
+
+
+
+
 ### مطار (N/A, Thu, 10 Sep 2026 06:50:00 -0700)
 
 - **مطارات المغرب تجدد زي الاستقبال**: [Link](https://www.hespress.com/%D9%85%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AC%D8%AF%D8%AF-%D8%B2%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A8%D8%A7%D9%84-1805060.html)
