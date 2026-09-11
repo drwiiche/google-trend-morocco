@@ -1,3 +1,45 @@
+### للا مريم (N/A, Fri, 11 Sep 2026 13:10:00 -0700)
+
+- **مولاي إدريس الفيلالي**: [Link](https://www.medi1news.com/ar/tag/%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%A5%D8%AF%D8%B1%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D9%8A%D9%84%D8%A7%D9%84%D9%8A)
+- **بمباركة من صاحب الجلالة الملك محمد السادس، عقد قران مولاي إدريس الفيلالي، نجل صاحبة السمو الملكي الأميرة للا مريم، بالشابة المصونة أحلام أومحا (وزارة القصور الملكية والتشريفات والأوسمة)**: [Link](https://2m.ma/ar/news/%D8%A8%D9%85%D8%A8%D8%A7%D8%B1%D9%83%D8%A9-%D9%85%D9%86-%D8%B5%D8%A7%D8%AD%D8%A8-%D8%A7%D9%84%D8%AC%D9%84%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D8%B9%D9%82%D8%AF-%D9%82%D8%B1%D8%A7%D9%86-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%A5%D8%AF%D8%B1%D9%8A%D8%B3-20260908)
+- **عرس فالقصر. ها بمن تزوج ادريس ولد الأميرة لالة مريم**: [Link](https://www.goud.ma/%D8%B9%D8%B1%D8%B3-%D9%81%D8%A7%D9%84%D9%82%D8%B5%D8%B1-%D9%87%D8%A7-%D8%A8%D9%85%D9%86-%D8%AA%D8%B2%D9%88%D8%AC-%D8%A7%D8%AF%D8%B1%D9%8A%D8%B3-%D9%88%D9%84%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-1040341/)
+
+
+### سوخوي سو-57 (N/A, Fri, 11 Sep 2026 13:00:00 -0700)
+
+- **«السلاح السري» للمقاتلة سو-57 يظهر لأول مرة في مصر: ماذا نعرف عن إس-71 «مونوكروم» و«كوفير»؟**: [Link](https://www.defense-arabic.com/2026/09/11/%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%B3%D8%B1%D9%8A-%D9%84%D9%84%D9%85%D9%82%D8%A7%D8%AA%D9%84%D8%A9-%D8%B3%D9%88-57-%D9%8A%D8%B8%D9%87%D8%B1-%D9%84%D8%A3%D9%88%D9%84/)
+- **مروحية Ka-52E الروسية تظهر في مصر بتسليح ومستشعرات أكثر تطورا**: [Link](https://alnahdanews.com/article/165660-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D9%88%D8%AD%D9%8A%D8%A9-ka52e-%D8%A7%D9%84%D9%85%D8%B7%D9%88%D8%B1%D8%A9-%D8%A8%D9%86%D8%B8%D8%A7%D9%85-strelets-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%B9%D9%84%D9%85%D9%8A%D9%86-%D8%A8%D9%85%D8%B5%D8%B1)
+- **يكشف كبير طياري الاختبار عن سر رئيسي للطائرة المقاتلة Su-57.**: [Link](https://www.vietnam.vn/ar/phi-cong-thu-nghiem-hang-dau-he-lo-bi-mat-chinh-cua-tiem-kich-su-57)
+
+
+### weather tomorrow (N/A, Fri, 11 Sep 2026 13:00:00 -0700)
+
+- **Low-pressure system may cross Odisha coast by Saturday, sea warning in force**: [Link](https://bdnews24.com/bangladesh/00847d8dd80e)
+- **Low-Pressure System To Bring Rain Across Central, East India: IMD**: [Link](https://www.etvbharat.com/en/bharat/low-pressure-system-to-bring-rain-across-central-east-india-imd-enn26091102962)
+- **Yellow alert in parts of state till Sept 12**: [Link](https://timesofindia.indiatimes.com/city/ranchi/yellow-alert-in-parts-of-state-till-sept-12/articleshow/134015156.cms)
+
+
+### مطر (N/A, Fri, 11 Sep 2026 12:40:00 -0700)
+
+- **اليوم.. هذه الولايات على موعد مع أمطار رعدية**: [Link](https://elayem.news/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%B9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1/)
+- **عاصفة رعدية تضرب 16 ولاية في الجزائر.. تحذير شديد من التقلبات الجوية**: [Link](https://al-ain.com/video/thunderstorm-hits-16-algerian-provinces/)
+- **اضطراب جوي يضرب عدة ولايات.. أمطار رعدية غزيرة قد تتجاوز 50 ملم يومي السبت والأحد**: [Link](https://www.shihabpresse.dz/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%AC%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%B9%D8%AF%D8%A9-%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9/)
+
+
+### pétrole (N/A, Fri, 11 Sep 2026 12:20:00 -0700)
+
+- **Wall Street se ressaisit, poussée par le répit sur l'énergie**: [Link](https://medias24.com/agence-presse/wall-street-se-ressaisit-poussee-par-le-repit-sur-lenergie/)
+- **L'inflation américaine reste à 3,4 % et les prix mensuels au plus haut depuis mai**: [Link](https://fr.euronews.com/business/2026/09/11/linflation-americaine-reste-a-34-et-les-prix-mensuels-au-plus-haut-depuis-mai)
+- **USA: pas de ralentissement de l'inflation en août, à 3,4% sur un an**: [Link](https://boursenews.ma/article/marches/les-etats-unis-enregistrent-une-hausse-de-l-inflation-a-3-4-pourcent-sur-un-an-en-aout-2026)
+
+
+### amine harit (N/A, Fri, 11 Sep 2026 12:00:00 -0700)
+
+- **Harit Declines to Detail Marseille Salary Talks: ‘I’m Very Happy Here’**: [Link](https://www.moroccoworldnews.com/2026/09/337914/harit-declines-to-detail-marseille-salary-talks-im-very-happy-here/)
+- **Harit Clarifies Stance on Marseille Salary Cut: "Discussions Held, Out of Respect I Won't Detail Them"**: [Link](https://m.elbotola.com/en/article/2026-09-10-18-10-110.html)
+- **Morocco midfielder Amine Harit confirms Marseille salary talks but keeps details private**: [Link](https://africasoccer.com/amine-harit-confirms-marseille-salary-talks/)
+
+
 ### west ham – wrexham (N/A, Fri, 11 Sep 2026 12:30:00 -0700)
 
 - **Championship LIVE: West Ham United vs Wrexham - text updates, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx24jvn0evpdt)
