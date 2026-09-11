@@ -1,3 +1,31 @@
+### us open (N/A, Fri, 11 Sep 2026 15:20:00 -0700)
+
+- **No. 1 seed Alexander Zverev outlasts Karen Kachenov to book place in US Open final**: [Link](https://www.cnn.com/2026/09/11/sport/mens-2026-us-open-semifinal)
+- **US Open tennis 2026 men’s semi-final: Frances Tiafoe v Ben Shelton – live buildup**: [Link](https://www.theguardian.com/sport/live/2026/sep/11/us-open-tennis-2026-mens-semi-final-frances-tiafoe-v-ben-shelton-live-buildup)
+- **How to watch the men’s US Open: Streaming options for the Semifinal**: [Link](https://www.nytimes.com/athletic/7584253/2026/09/11/how-to-watch-the-mens-us-open-streaming-options-for-the-semifinal/)
+
+
+### الأردن (N/A, Fri, 11 Sep 2026 14:10:00 -0700)
+
+- **العراق يقيل قائد عمليات ميسان ويؤكد أهمية التنسيق مع السعودية**: [Link](https://www.aljazeera.net/news/2026/9/12/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A%D8%A9-%D8%A5%D8%B9%D9%81%D8%A7%D8%A1-%D9%82%D8%A7%D8%A6%D8%AF)
+- **السعودية توقف "احترازياً" خط أنابيب شرق-غرب النفطي، وبغداد تثمن قرار الرياض بعدم الرد على الهجمات**: [Link](https://www.bbc.com/arabic/live/c83v4z056d7nt)
+- **العراق يتحرك بعد هجمات على السعودية.. إقالة وإغلاق منافذ مع إيران**: [Link](https://www.alarabiya.net/arab-and-world/iraq/2026/09/12/%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%8A%D9%82%D9%8A%D9%84-%D9%82%D8%A7%D8%A6%D8%AF-%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA-%D9%85%D9%8A%D8%B3%D8%A7%D9%86-%D8%A8%D8%B9%D8%AF-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9)
+
+
+### harald v (N/A, Fri, 11 Sep 2026 13:50:00 -0700)
+
+- **Princess Märtha Louise’s Eldest Daughter Shares a Heartfelt Tribute to Her Late Grandfather, King Harald of Norway**: [Link](https://www.townandcountrymag.com/society/tradition/a73685987/king-harald-granddaughter-maud-angelica-behn-tribute/)
+- **Thousands Gather for Funeral of a King Norwegians Called Grandfather**: [Link](https://www.nytimes.com/2026/09/09/world/europe/norway-king-harald-funeral.html)
+- **Norway bids final farewell to popular King Harald V as crowds and royals converge for his funeral**: [Link](https://edition.cnn.com/2026/09/09/europe/norway-king-harald-funeral-intl)
+
+
+### فوزي لقجع (N/A, Fri, 11 Sep 2026 13:30:00 -0700)
+
+- **رئيس الحكومة المغربية يحرج لقجع بشأن نهائي كأس العالم 2030**: [Link](https://www.aljazeera.net/sport/2026/9/11/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%82%D8%AC%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **بعد تصريحات لقجع .. "فيفا" يؤكد عدم حسم ملعب نهائي مونديال 2030**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%84%D9%82%D8%AC%D8%B9-%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B9%D8%AF%D9%85-%D8%AD%D8%B3%D9%85-%D9%85%D9%84%D8%B9-1805752.html)
+- **أخنوش يقطع الطريق على “الإنجاز الكروي” في حملة “البام”**: [Link](https://assabah.ma/948924.html)
+
+
 ### للا مريم (N/A, Fri, 11 Sep 2026 13:10:00 -0700)
 
 - **مولاي إدريس الفيلالي**: [Link](https://www.medi1news.com/ar/tag/%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%A5%D8%AF%D8%B1%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D9%8A%D9%84%D8%A7%D9%84%D9%8A)
