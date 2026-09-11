@@ -1,3 +1,66 @@
+### west ham – wrexham (N/A, Fri, 11 Sep 2026 12:30:00 -0700)
+
+- **Championship LIVE: West Ham United vs Wrexham - text updates, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx24jvn0evpdt)
+- **Starting XI | Nuno switches things up for Wrexham visit**: [Link](https://www.whufc.com/en/news/starting-xi-or-nuno-switches-things-up-for-wrexham-visit)
+- **West Ham United vs Wrexham predictions: Championship tips and odds**: [Link](https://sports.yahoo.com/articles/west-ham-united-vs-wrexham-154429338.html)
+
+
+### جوزيه مورينيو (N/A, Fri, 11 Sep 2026 12:30:00 -0700)
+
+- **مورينيو عن انتقادات مبابي: هناك من لا يفهم كرة القدم.. وانتصاراتنا تُغضب البعض**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B9%D9%86-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%87%D9%86%D8%A7%D9%83-%D9%85%D9%86-%D9%84%D8%A7-%D9%8A%D9%81%D9%87%D9%85-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85--%D9%88%D8%AA%D8%B9%D8%AB%D8%B1%D9%86%D8%A7-%D9%8A%D9%8F%D8%B3%D8%B9%D8%AF-%D8%A7%D9%84%D8%A8%D8%B9%D8%B6/bltfd9929846e8d8057)
+- **استعان بمثل برتغالي.. مورينيو يدافع عن مبابي وفينيسيوس أمام منتقديهما**: [Link](https://www.aljazeera.net/sport/2026/9/11/%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D9%86-%D8%A8%D9%85%D8%AB%D9%84-%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86)
+- **مواعيد مباريات الجولة الخامسة من الدوري**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/latest-news/horarios-de-la-quinta-jornada-de-liga-11-09-2026)
+
+
+### émirats arabes unis (N/A, Fri, 11 Sep 2026 12:20:00 -0700)
+
+- **Diplomatie : pourquoi l'Algérie rompt ses relations avec les Emirats arabes unis**: [Link](https://www.lexpress.fr/monde/afrique/diplomatie-pourquoi-lalgerie-rompt-ses-relations-avec-les-emirats-arabes-unis-PGJE36THT5CFZCUR7YF5CLRY7E/)
+- **MBZ–Tebboune: le bien contre le mal**: [Link](https://fr.le360.ma/monde/mbztebboune-le-bien-contre-le-mal_XF6G2ELLJJB3TLJIZJVLHSZUBY/)
+- **L’Algérie annonce la rupture de ses relations diplomatiques avec les Emirats arabes unis, après des années de tension**: [Link](https://www.lemonde.fr/international/article/2026/09/10/l-algerie-annonce-la-rupture-de-ses-relations-diplomatiques-avec-les-emirats-arabes-unis-apres-des-annees-de-tension_6769761_3210.html)
+
+
+### sevilla vs valencia (N/A, Fri, 11 Sep 2026 12:10:00 -0700)
+
+- **Sevilla vs Valencia: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw804pvz8nrxt)
+- **Corberán at Nervión: from nemesis to possibly facing the sack**: [Link](https://onefootball.com/en/news/corberan-at-nervion-from-nemesis-to-possibly-facing-the-sack-43438211)
+- **Sevilla vs Valencia Predictions, Bet Builder Tips, Lineups, Odds**: [Link](https://www.whoscored.com/articles/ARGXCXpR9Eqp0KocZlZ_nw/show/20260911-sevilla-vs-valencia-prediction-1789125050)
+
+
+### إشبيلية ضد فالنسيا (N/A, Fri, 11 Sep 2026 11:40:00 -0700)
+
+- **مواعيد مباريات الجولة الخامسة من الدوري الإسباني 2026 والقنوات الناقلة**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3/)
+- **توقعات مباراة إشبيلية وفالنسيا: نقطة ساخنة في سباق الصدارة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-sevilla-vs-valencia-diem-nong-cuoc-dua-top-dau)
+- **ديانج يقود تشكيل فالنسيا أمام إشبيلية في الدوري الإسباني**: [Link](https://www.almasryalyoum.com/news/details/4357581)
+
+
+### séville – valence (N/A, Fri, 11 Sep 2026 11:20:00 -0700)
+
+- **Borussia Dortmund vs SC Paderborn 07: 1st Half Correct Score**: [Link](https://www.coinbase.com/fr/predictions/event/KXBUNDESLIGA1HSCORE-26SEP12BVBPAD)
+- **Pronostic Séville - Valence : Un match à suspense au sommet**: [Link](https://www.vietnam.vn/fr/nhan-dinh-sevilla-vs-valencia-diem-nong-cuoc-dua-top-dau)
+- **🚨 Marcao dans le groupe de Séville après la suspension de Sanganté**: [Link](https://onefootball.com/fr/news/marcao-dans-le-groupe-de-seville-apres-la-suspension-de-sangante-43436441)
+
+
+### rennes – marseille (N/A, Fri, 11 Sep 2026 11:10:00 -0700)
+
+- **À l'aube d'un triptyque corsé pour l'OM, Bruno Genesio maintient le cap avec son effectif réduit**: [Link](https://www.lequipe.fr/Football/Article/A-l-aube-d-un-triptyque-corse-pour-l-om-bruno-genesio-maintient-le-cap-avec-son-effectif-reduit/1717712)
+- **Stade Rennais - OM : les compositions probables**: [Link](https://www.footmercato.net/a4771389438165571476-stade-rennais-om-les-compositions-probables)
+- **Gouiri contre Lepaul, sept buts à eux deux : les compos probables de Rennes-OM**: [Link](https://news.footeo.com/2026/09/11/gouiri-contre-lepaul-sept-buts-a-eux-deux-les-compos-probables-de-rennes-om-11650)
+
+
+### union berlin – schalke (N/A, Fri, 11 Sep 2026 11:00:00 -0700)
+
+- **Gelingt Union gegen Schalke der erste Saisonsieg?**: [Link](https://www.rbb24.de/sport/beitrag/2026/09/fussball-bundesliga-union-berlin-schalke-04-audiostream-liveticker-sportschau-spielbericht.html)
+- **Mit der großen gegen die alte Liebe: Schalkes Gosens trifft auf Berlin**: [Link](https://www.grenzecho.net/146136/artikel/2026-09-11/mit-der-grossen-gegen-die-alte-liebe-schalkes-gosens-trifft-auf-berlin)
+- **Schalke: Karaman kehrt gegen Union zurück - darum steht Sylla nicht im Kader**: [Link](https://www.reviersport.de/fussball/1bundesliga/a630375---schalke-karaman-kehrt-gegen-union-zurueck-darum-steht-sylla-kader.html)
+
+
+### température (N/A, Fri, 11 Sep 2026 10:10:00 -0700)
+
+- **Août 2026 a été le mois le plus chaud jamais mesuré dans le monde**: [Link](https://mobile.telquel.ma/instant-t/2026/09/10/aout-2026-a-ete-le-mois-le-plus-chaud-jamais-mesure-dans-le-monde_2006898/)
+- **Fin du monde, fin du mois : même combat**: [Link](https://contre-attaque.net/2026/09/11/fin-du-monde-fin-du-mois-meme-combat/)
+- **Changement climatique : la chaleur a atteint des niveaux jamais enregistrés cet été**: [Link](https://www.france24.com/fr/vid%C3%A9o/20260910-changement-climatique-la-chaleur-a-atteint-des-niveaux-jamais-enregistr%C3%A9s-cet-%C3%A9t%C3%A9)
+
+
 ### الفيصلي ضد الاتحاد (N/A, Fri, 11 Sep 2026 09:50:00 -0700)
 
 - **الفيصلي يعيد النصيري إلى تشكيل الاتحاد.. وهذا موقف فينالدوم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF--%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D9%81%D9%8A%D9%86%D8%A7%D9%84%D8%AF%D9%88%D9%85/blte109a7b36f4188c3)
