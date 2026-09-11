@@ -1,3 +1,17 @@
+### لويس دي لا فوينتي (N/A, Thu, 10 Sep 2026 15:50:00 -0700)
+
+- **دي لا فوينتي يعارض رغبة المغرب علنا.. ويحصر الكرة الذهبية بين لاعبي إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A-%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%8A%D8%B9%D8%A7%D8%B1%D8%B6-%D8%B1%D8%BA%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%86%D8%A7--%D9%88%D9%8A%D8%AD%D8%B5%D8%B1-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blt74aca60bfda8d60a)
+- **دي لافوينتي: يجب أن يفوز لاعب إسباني بالكرة الذهبية**: [Link](https://www.alriyadh.com/2206150)
+- **"إنه يستحق التتويج!" .. تيباس يرشح نجم برشلونة للفوز بجائزة الكرة الذهبية**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AE%D8%A7%D9%81%D9%8A%D9%8A%D8%B1-%D8%AA%D9%8A%D8%A8%D8%A7%D8%B3-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D8%AC%D8%A7%D9%8A%D9%94%D8%B2%D8%A9-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/bltcf409ec7cbdccfa3)
+
+
+### ceuta (N/A, Thu, 10 Sep 2026 15:40:00 -0700)
+
+- **Marruecos rechaza las acusaciones por el salto a Ceuta y lanza una indirecta al PP por caer en un “lodazal irracional y populista”**: [Link](https://elpais.com/espana/2026-09-10/marruecos-rechaza-las-acusaciones-por-el-salto-a-ceuta-y-lanza-una-indirecta-al-pp-por-caer-en-un-lodazal-irracional-y-populista.html)
+- **Relaciones con España: Marruecos rechaza ser el «chivo expiatorio» de ajustes de cuentas partidistas**: [Link](https://es.le360.ma/politica/relaciones-con-espana-marruecos-rechaza-ser-el-chivo-expiatorio-de-ajustes-de-cuentas-partidistas_MKMD2LIIDRCZRMT3XFQU3JYNRM/)
+- **Marruecos elude cualquier responsabilidad del cruce masivo a Ceuta y amenaza al PP por sus críticas a la gestión**: [Link](https://www.elmundo.es/espana/2026/09/10/6aa2eb13fc6c83f9758b45b7.html)
+
+
 ### نادي بوتافوغو (N/A, Thu, 10 Sep 2026 14:50:00 -0700)
 
 - **بوتافوغو البرازيلي يعلن ضم حكيم زياش حتى عام 2028**: [Link](https://www.aljazeera.net/sport/2026/9/10/%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%BA%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B6%D9%85-%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4)
