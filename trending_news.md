@@ -1,3 +1,50 @@
+### هجوم (N/A, Fri, 11 Sep 2026 05:10:00 -0700)
+
+- **هجوم بالمسيّرات يغلق مطار ماندالاي ثاني كبرى مدن بورما**: [Link](https://arabic.euronews.com/2026/09/11/burma-drones-mandalay-airport-conflict-closure-flights)
+- **إغلاق ثاني أكبر مطار في ميانمار بعد هجوم بطائرة مسيرة.**: [Link](https://www.vietnam.vn/ar/san-bay-lon-thu-hai-myanmar-dong-cua-sau-vu-tan-cong-bang-uav)
+- **هجوم مسيرات يغلق مطار ماندالاي ثاني كبرى مدن ميانمار**: [Link](https://www.alkhaleej.ae/2026-09-11/%D8%B9%D8%B1%D8%A8-%D9%88%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%B3%D9%8A%D8%B1%D8%A7%D8%AA-%D9%8A%D8%BA%D9%84%D9%82-%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%A7%D9%86%D8%AF%D8%A7%D9%84%D8%A7%D9%8A-%D8%AB%D8%A7%D9%86%D9%8A-%D9%83%D8%A8%D8%B1%D9%89-%D9%85%D8%AF%D9%86-%D9%85%D9%8A%D8%A7%D9%86%D9%85%D8%A7%D8%B1)
+
+
+### équipe du maroc de football (N/A, Fri, 11 Sep 2026 05:10:00 -0700)
+
+- **Accusations d'arbitrage truqué dans un match du Maroc à la CAN : le CDJM classe sans suite la plainte contre L'Équipe TV**: [Link](https://ledesk.ma/enoff/accusations-darbitrage-truque-dans-un-match-du-maroc-a-la-can-le-cdjm-classe-sans-suite-la-plainte-contre-lequipe-tv/)
+- **La finale de la Coupe du monde 2030 déjà attribuée au Maroc ? La FIFA dément**: [Link](https://www.lequipe.fr/Football/Actualites/La-finale-de-la-coupe-du-monde-2030-deja-attribuee-au-maroc-la-fifa-dement/1717824)
+- **Mondial 2030: l’auberge espagnole et la fabrique des boucs émissaires**: [Link](https://sport.le360.ma/coupe-du-monde/mondial-2030-lauberge-espagnole-et-la-fabrique-des-boucs-emissaires_XCKAKY57VJC2HFPHZMNEXZH7DU/)
+
+
+### الأسطول الخامس (N/A, Fri, 11 Sep 2026 03:10:00 -0700)
+
+- **مسؤول البحرية الأمريكية: إيران "دمّرت بشكل هائل" قاعدة الأسطول الخامس في البحرين**: [Link](https://www.alquds.co.uk/%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AF%D9%85%D9%91%D8%B1%D8%AA-%D8%A8/)
+- **عراقجي: الشعب الأمريكي لا ينبغي أن يدفع تكلفة حروب إسرائيل**: [Link](https://www.aa.com.tr/ar/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/%D8%B9%D8%B1%D8%A7%D9%82%D8%AC%D9%8A-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%84%D8%A7-%D9%8A%D9%86%D8%A8%D8%BA%D9%8A-%D8%A3%D9%86-%D9%8A%D8%AF%D9%81%D8%B9-%D8%AA%D9%83%D9%84%D9%81%D8%A9-%D8%AD%D8%B1%D9%88%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/4053985)
+- **البحرية الأمريكية تعترف لأول مرة بتعرض قواعدها العسكرية والاستراتيجية في البحرين لـ”دمار هائل” نتيجة الهجمات الإيرانية**: [Link](https://www.raialyoum.com/%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%B9%D8%AA%D8%B1%D9%81-%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D8%A8%D8%AA%D8%B9%D8%B1/)
+
+
+### علي الطاهر (N/A, Fri, 11 Sep 2026 03:10:00 -0700)
+
+- **عناصر حزب الله فضلوا الموت.. إسرائيل تنسحب من مرتفعات علي الطاهر وتكشف تفاصيل التفجير**: [Link](https://www.aljazeera.net/news/2026/9/11/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A5%D8%B0%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%82%D9%88%D8%A7%D8%AA%D9%86%D8%A7-2)
+- **تفجيرات إسرائيلية تتسبب في زلزال**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%AC%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B3%D8%A8%D8%A8-%D9%81%D9%8A-%D8%B2%D9%84%D8%B2%D8%A7%D9%84-1805418.html)
+- **علي الطاهر: إسرائيل تعلن تدمير "نفقين لحزب الله" في جنوب لبنان باستخدام أكثر من ألف طن متفجرات**: [Link](https://www.bbc.com/arabic/articles/cevwz7npy4wo)
+
+
+### منتخب ساحل العاج لكرة القدم (N/A, Fri, 11 Sep 2026 03:00:00 -0700)
+
+- **قيس باري يختار المغرب ويفضل «الأسود» على بلجيكا وكوت ديفوار**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%8A%D8%B3-%D8%A8%D8%A7%D8%B1%D9%8A-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%8A%D9%81%D8%B6%D9%84-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%B9%D9%84%D9%89-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%88%D9%83%D9%88%D8%AA-%D8%AF%D9%8A%D9%81%D9%88%D8%A7%D8%B1/25164)
+- **لاعب آخر يختار اللعب للمغرب بدل بلجيكا وساحل العاج**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/502820.html)
+- **إنفراد.. قيس باري يختار المغرب ويصدم كوت ديفوار وبلجيكا**: [Link](https://inews.ma/article/8648368-%D8%A5%D9%86%D9%81%D8%B1%D8%A7%D8%AF..%20%D9%82%D9%8A%D8%B3%20%D8%A8%D8%A7%D8%B1%D9%8A%20%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1%20%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%20%D9%88%D9%8A%D8%B5%D8%AF%D9%85%20%D9%83%D9%88%D8%AA%20%D8%AF%D9%8A%D9%81%D9%88%D8%A7%D8%B1%20%D9%88%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8)
+
+
+### بنتاغون (N/A, Fri, 11 Sep 2026 02:30:00 -0700)
+
+- **لقد ضربت طائرةٌ البنتاغون وعلينا أن نغادر مكاتبنا**: [Link](https://www.aljazeera.net/opinions/2026/9/11/11-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-%D8%B9%D9%81%D9%88-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9)
+- **مسؤول البحرية الأمريكية: إيران "دمّرت بشكل هائل" قاعدة الأسطول الخامس في البحرين**: [Link](https://www.alquds.co.uk/%D9%85%D8%B3%D8%A4%D9%88%D9%84-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AF%D9%85%D9%91%D8%B1%D8%AA-%D8%A8/)
+- **عراقجي: الشعب الأمريكي لا ينبغي أن يدفع تكلفة حروب إسرائيل**: [Link](https://www.aa.com.tr/ar/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/%D8%B9%D8%B1%D8%A7%D9%82%D8%AC%D9%8A-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%84%D8%A7-%D9%8A%D9%86%D8%A8%D8%BA%D9%8A-%D8%A3%D9%86-%D9%8A%D8%AF%D9%81%D8%B9-%D8%AA%D9%83%D9%84%D9%81%D8%A9-%D8%AD%D8%B1%D9%88%D8%A8-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/4053985)
+
+
+### meteo (N/A, Thu, 10 Sep 2026 23:50:00 -0700)
+
+
+
+
 ### aryna sabalenka (N/A, Fri, 11 Sep 2026 00:50:00 -0700)
 
 - **Aryna Sabalenka reaches fourth consecutive US Open final in the United States**: [Link](https://ua.news/en/sport/arina-sabalenko-vchetverte-pospil-viishla-do-finalu-us-open-u-ssha)
