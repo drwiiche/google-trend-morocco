@@ -1,3 +1,24 @@
+### aryna sabalenka (N/A, Fri, 11 Sep 2026 00:50:00 -0700)
+
+- **Aryna Sabalenka reaches fourth consecutive US Open final in the United States**: [Link](https://ua.news/en/sport/arina-sabalenko-vchetverte-pospil-viishla-do-finalu-us-open-u-ssha)
+- **Pegula Hails Sabalenka’s ‘Best Match of the Year’ as US Open Final Beckons**: [Link](https://en.tennistemple.com/actu/pegula-hails-sabalenkas-best-match-of-the-year-as/ABtc)
+- **U.S. Open**: [Link](https://www.reutersconnect.com/item/us-open/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOUIwMkdESlo)
+
+
+### hibapress (N/A, Thu, 10 Sep 2026 23:10:00 -0700)
+
+- **أزمة جديدة في حياة حسام حسن.. زوجته الثانية تطلب الطلاق**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/09/10/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%8A%D8%A7%D9%85-%D9%85%D9%86-%D8%AA%D8%B7%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D8%A7%D9%88%D9%84%D9%89-%D8%AF%D8%A7%D9%86-%D8%A7%D8%AF%D9%85-%D8%AA%D8%B9%D9%84%D9%86-%D9%84%D8%AC%D9%88%D8%A6%D9%87%D8%A7-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D9%84%D9%84%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D9%86-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86)
+- **بعد فشل الصلح.. دان آدم تلجأ للقضاء لطلب الطلاق من حسام حسن**: [Link](https://ar.hibapress.com/details-756152.html)
+- **مصر.. حسام حسن يواجه أزمة عائلية قبل المعسكر المغلق**: [Link](https://d-dall.com/%D9%85%D8%B5%D8%B1-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D8%B2%D9%85%D8%A9-%D8%B9%D8%A7%D8%A6%D9%84%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85/)
+
+
+### weather (N/A, Thu, 10 Sep 2026 23:10:00 -0700)
+
+- **Thunderstorms forecast for Donegal as part of weather warning**: [Link](https://donegalnews.com/thunderstorms-forecast-for-donegal-as-part-of-weather-warning/)
+- **Met Éireann: Mixed skies ahead this weekend**: [Link](https://www.agriland.ie/farming-news/met-eireann-mixed-skies-ahead-this-weekend/)
+- **Heavy rain could 'cause issues' for Irish Open as Ireland braces for washout weekend**: [Link](https://www.kilkennypeople.ie/national/heavy-rain-could-cause-issues-for-irish-open-as-ireland-braces-for-washout-weekend-9008740)
+
+
 ### لويس دي لا فوينتي (N/A, Thu, 10 Sep 2026 15:50:00 -0700)
 
 - **دي لا فوينتي يعارض رغبة المغرب علنا.. ويحصر الكرة الذهبية بين لاعبي إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A-%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%8A%D8%B9%D8%A7%D8%B1%D8%B6-%D8%B1%D8%BA%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B9%D9%84%D9%86%D8%A7--%D9%88%D9%8A%D8%AD%D8%B5%D8%B1-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blt74aca60bfda8d60a)
