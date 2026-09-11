@@ -1,3 +1,71 @@
+### الفيصلي ضد الاتحاد (N/A, Fri, 11 Sep 2026 09:50:00 -0700)
+
+- **الفيصلي يعيد النصيري إلى تشكيل الاتحاد.. وهذا موقف فينالدوم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF--%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D9%81%D9%8A%D9%86%D8%A7%D9%84%D8%AF%D9%88%D9%85/blte109a7b36f4188c3)
+- **يوسف النصيري يقود الاتحاد لفوز صعب على الفيحاء بهدفين لهدف في الدوري السعودي**: [Link](https://radiomars.ma/%D9%8A%D9%88%D8%B3%D9%81-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%84%D9%81%D9%88%D8%B2-%D8%B5%D8%B9%D8%A8-%D8%B9%D9%84%D9%89/)
+- **مدرب الفيصلي قبل لقاء الاتحاد: تنتظرنا مباراة صعبة.. ولدينا ثقة في لاعبينا**: [Link](https://www.al-jazirah.com/2026/20260911/sp7.htm)
+
+
+### desogestrel (N/A, Fri, 11 Sep 2026 09:00:00 -0700)
+
+- **Agência francesa de medicamentos alerta para risco de tumor nas meninges associado a anticoncepcional**: [Link](https://www.terra.com.br/noticias/mundo/europa/agencia-francesa-de-medicamentos-alerta-para-risco-de-tumor-nas-meninges-associado-a-anticoncepcional,d090a5affba1ee2f1047e0b88bc2d042kv9ey77g.html)
+
+
+### tunisie (N/A, Fri, 11 Sep 2026 09:00:00 -0700)
+
+- **Tunisie-Afrique : Le TABC tient son 2ᵉ congrès et son assemblée élective à Tunis**: [Link](https://www.lapresse.tn/2026/09/11/tunisie-afrique-le-tabc-tient-son-2%E1%B5%89-congres-et-son-assemblee-elective-a-tunis/)
+- **Tunisie : Le CEPEX invite les entreprises exportatrices à définir les priorités du programme 2027**: [Link](https://www.entreprises-magazine.com/tunisie-le-cepex-invite-les-entreprises-exportatrices-a-definir-les-priorites-du-programme-2027/)
+- **La Tunisie a besoin de 4 nouvelles centrales pour combler son déficit électrique**: [Link](https://kapitalis.com/tunisie/2026/09/06/la-tunisie-a-besoin-de-4-nouvelles-centrales-pour-combler-son-deficit-electrique/)
+
+
+### al faisaly – al ittihad (N/A, Fri, 11 Sep 2026 08:30:00 -0700)
+
+- **Al-Faisaly v Al-Ittihad: How to watch the Roshn Saudi League match online**: [Link](https://africasoccer.com/al-faisaly-v-al-ittihad-how-to-watch-the-roshn-saudi-league-match-online/)
+- **Facing: Three points are the most important thing for…**: [Link](https://www.ysscores.com/en/news/14041132/facing-three-points-are-the-most-important-thing-for-ittihad-and-carille-is-happy-with-the-competition)
+- **Vitor Pereira: Al-Nassr are the reason the Al-Fayha match was difficult, and this is why we signed Wijnaldum**: [Link](https://www.goal.com/en/news/vitesse-al-nassr-the-reason-for-the-difficulty-of-the-al-fayha-match-and-this-is-why-we-signed-wijnaldum/blte21d910594f1dc93)
+
+
+### belgique (N/A, Fri, 11 Sep 2026 07:20:00 -0700)
+
+- **La Belgique traque les biens immobiliers à l'étranger : plus d'un contrôle sur deux au Maroc est positif**: [Link](https://www.bladi.net/belgique-traque-biens-immobiliers-etranger-controle-deux-maroc-positif,123689.html)
+- **l’AMCI et Enabel veulent développer de nouveaux projets de coopération triangulaire en Afrique**: [Link](https://lematin.ma/nation/amci-enabel-nouveaux-projets-de-cooperation-triangulaire-en-afrique/364549)
+- **La Belgique signe un accord avec le Maroc : "Il faut sortir d'une logique de charité "**: [Link](https://www.lavenir.net/actu/belgique/2026/09/09/la-belgique-signe-un-accord-avec-le-maroc-il-faut-sortir-dune-logique-de-charite-AK7OFP3EQBG4RFNN3COSN42RQM/)
+
+
+### الإمارات العربية المتحدة (N/A, Fri, 11 Sep 2026 07:10:00 -0700)
+
+- **أول بيان لوزارة الخارجية الإماراتية بعد إعلان الجزائر قطع العلاقات الدبلوماسية مع أبوظبي**: [Link](https://arabic.cnn.com/middle-east/article/2026/09/10/uae-first-statement-algeria-announcing-cutting-diplomatic-relations)
+- **إجماع بين أحزاب الموالاة والمعارضة في الجزائر على دعم قطع العلاقات مع الإمارات.. وبلاني يفسر دواعي القرار**: [Link](https://www.alquds.co.uk/%D8%A5%D8%AC%D9%85%D8%A7%D8%B9-%D8%A8%D9%8A%D9%86-%D8%A3%D8%AD%D8%B2%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%84%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B1%D8%B6%D8%A9-%D9%81%D9%8A/)
+- **رئيس الحكومة الإسبانية الأسبق يدعو إلى إعادة تطبيع العلاقات مع إسرائيل لتفادي أزمات مع المغرب**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%82%D8%B1%D8%B1-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D9%85%D8%AC%D8%A7%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D8%AC%D9%88%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%83/)
+
+
+### ziyech (N/A, Fri, 11 Sep 2026 07:10:00 -0700)
+
+- **Morocco's Hakim Ziyech arrives in Brazil to join Botafogo**: [Link](https://en.hespress.com/145171-moroccos-hakim-ziyech-arrives-in-brazil-to-join-botafogo.html)
+- **Wydad officially write the end of the Ziyech story**: [Link](https://www.goal.com/en/lists/wydad-officially-write-the-end-of-the-ziyech-story/blt07e71ad535324071)
+- **Hakim Ziyech Reconsiders Botafogo Move, But Brazilian Club Remains Confident**: [Link](https://www.moroccoworldnews.com/2026/09/337351/hakim-ziyech-reconsiders-botafogo-move-but-brazilian-club-remains-confident/)
+
+
+### fugitif (N/A, Fri, 11 Sep 2026 07:00:00 -0700)
+
+- **Fugitifs recherchés par la justice française : le Maroc, premier refuge**: [Link](https://ledesk.ma/encontinu/fugitifs-recherches-par-la-justice-francaise-le-maroc-premier-refuge/)
+- **Les fugitifs français trouvent principalement refuge au Maroc, en Algérie et en Israël, selon une note policière**: [Link](https://www.lefigaro.fr/actualite-france/les-fugitifs-francais-trouvent-principalement-refuge-au-maroc-en-algerie-et-en-israel-selon-une-note-policiere-20260911)
+- **Maroc, Algérie, Israël, Dubaï… Le palmarès des pays où se trouvent les fugitifs recherchés par la justice française**: [Link](https://www.leparisien.fr/faits-divers/maroc-algerie-israel-dubai-le-palmares-des-pays-ou-se-trouvent-les-fugitifs-recherches-par-la-justice-francaise-10-09-2026-6XEUZYF7OFHQVPWGBX53OWLKP4.php)
+
+
+### diesel (N/A, Fri, 11 Sep 2026 06:40:00 -0700)
+
+- **Diesel Jumps Above $6 a Gallon, Adding to Inflation Pressure**: [Link](https://www.nytimes.com/2026/09/11/business/diesel-fuel-prices-oil-iran-war.html)
+- **U.S. diesel prices soar past $6 a gallon, deepening strain for hauling everyday goods**: [Link](https://www.pbs.org/newshour/economy/u-s-diesel-prices-soar-past-6-a-gallon-deepening-strain-for-hauling-everyday-goods)
+- **Live Updates: Diesel hits record $6 a gallon as, reports say, Houthis take key territory along Red Sea**: [Link](https://www.cbsnews.com/live-updates/iran-war-diesel-price-record-houthis-red-sea/)
+
+
+### sahraoui (N/A, Fri, 11 Sep 2026 06:30:00 -0700)
+
+- **L’Espagne veut accorder la nationalité à des dizaines de milliers de Sahraouis occidentaux**: [Link](https://www.20minutes.fr/monde/espagne/4244337-20260910-espagne-veut-accorder-nationalite-dizaines-milliers-sahraouis-occidentaux)
+- **Sahara: quand l’Espagne transforme son passé colonial en passeport**: [Link](https://fr.le360.ma/politique/sahara-quand-lespagne-transforme-son-passe-colonial-en-passeport_GLBCJ6NUNVBZZI3CYKZU6DB3WQ/)
+- **Espagne : le Congrès approuve la proposition de loi sur la nationalité des Sahraouis**: [Link](https://medias24.com/2026/09/10/espagne-le-congres-approuve-la-proposition-de-loi-sur-la-nationalite-des-sahraouis-1753089/)
+
+
 ### هجوم (N/A, Fri, 11 Sep 2026 05:10:00 -0700)
 
 - **هجوم بالمسيّرات يغلق مطار ماندالاي ثاني كبرى مدن بورما**: [Link](https://arabic.euronews.com/2026/09/11/burma-drones-mandalay-airport-conflict-closure-flights)
