@@ -1,3 +1,73 @@
+### aryna sabalenka (N/A, Sat, 12 Sep 2026 14:10:00 -0700)
+
+- **US Open 2026 final LIVE: Aryna Sabalenka vs Elena Rybakina - scores, radio & live text updates**: [Link](https://www.bbc.com/sport/tennis/live/ckgd2jp4pxvt)
+- **Andy Roddick hopes the US Women's final gets the 'respect it deserves' despite absence of Coco Gauff and Jessica Pegula**: [Link](https://www.hitc.com/andy-roddick-hopes-the-us-womens-final-gets-the-respect-it-deserves-despite-absence-of-coco-gauff-and-jessica-pegula/)
+- **Kalshi Promo Code WHOSCORED: Get up to $25 in Bonuses for the Sabalenka vs Rybakina US Open Final**: [Link](https://www.whoscored.com/articles/CR8PyzWdqkGhy3kczo8ytw/show/kalshi-promo-code-whoscored-get-up-to-$25-in-bonuses-for-the-sabalenka-vs-rybakina-us-open-final)
+
+
+### هداف الدوري الاسباني (N/A, Sat, 12 Sep 2026 14:10:00 -0700)
+
+- **إنزاجي يكشف.. لماذا استبدل مارتينيلي مبكرًا رغم هاتريك التعاون؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D9%83%D8%B4%D9%81--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D8%B3%D8%AA%D8%A8%D8%AF%D9%84-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D9%84%D9%8A-%D9%85%D8%A8%D9%83%D8%B1%D9%8B%D8%A7-%D8%B1%D8%BA%D9%85-%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86/bltf8d8af4f6c66b1a0)
+- **الهلال يكتسح التعاون بسداسية ويستعيد صدارة الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%81%D9%8A-3)
+- **ياسين بونو يعود إلى التدريبات الجماعية للهلال بعد تعافيه من الإصابة**: [Link](https://radiomars.ma/%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A/)
+
+
+### ufc live (N/A, Sat, 12 Sep 2026 13:40:00 -0700)
+
+- **LIVE! Noche UFC Results: Silva vs. Degaldo**: [Link](https://www.mmafighting.com/ufc/509669/noche-ufc-results-silva-vs-degaldo)
+- **Faceoffs | Noche UFC**: [Link](https://www.ufc.com/video/160029)
+- **UFC Noche takes place in Arizona: Full fight card**: [Link](https://www.idman.biz/en/news/mma/155817)
+
+
+### منتخب الأرجنتين لكرة القدم (N/A, Sat, 12 Sep 2026 13:00:00 -0700)
+
+- **الكشف عن سبب رفض الأرجنتين مواجهة المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%B3%D8%A8%D8%A8-%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt5a219ee74783f8d9)
+- **تقرير أرجنتيني يسلط الضوء على سبب اعتذار الأرجنتين عن مواجهة "أسود الأطلس" بملعب مولاي عبد الله**: [Link](https://radiomars.ma/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86%D9%8A-%D9%8A%D8%B3%D9%84%D8%B7-%D8%A7%D9%84%D8%B6%D9%88%D8%A1-%D8%B9%D9%84%D9%89-%D8%B3%D8%A8%D8%A8-%D8%A7%D8%B9%D8%AA%D8%B0/)
+- **جامعة الكرة تطلب مواجهة الأرجنتين**: [Link](https://sport.rue20.com/%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%AA%D8%B7%D9%84%D8%A8-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86.html)
+
+
+### weather tomorrow (N/A, Sat, 12 Sep 2026 13:00:00 -0700)
+
+- **UAE weather tomorrow: Dip in temperatures expected, mercury could drop to 23ºC**: [Link](https://www.khaleejtimes.com/uae/weather/uae-weather-september-13-2026)
+- **UAE weather forecast: Humidity reaches 90% in coastal areas with fog warning for Dubai and Abu Dhabi this weekend**: [Link](https://www.emirates247.com/uae/uae-weather-forecast-humidity-reaches-90-in-coastal-areas-with-fog-warning-for-dubai-and-abu-dhabi-this-weekend/5552)
+- **NCM forecasts fair to partly cloudy weather Thursday**: [Link](https://sharjah24.ae/en/Articles/2026/09/09/AL013)
+
+
+### match real (N/A, Sat, 12 Sep 2026 12:40:00 -0700)
+
+- **Suivez Real Madrid - Rayo Vallecano EN DIRECT, Liga, saison 2026/2027, 5e journée**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-real-madrid-rayo-vallecano_mtc21891279/live-commentary.shtml)
+- **Real Madrid - Rayo Vallecano : les compositions officielles**: [Link](https://www.footmercato.net/a3503343423605727204-real-madrid-rayo-vallecano-les-compositions-officielles)
+- **Mourinho prépare une mauvaise surprise à Brahim Díaz**: [Link](https://www.goal.com/fr/news/mourinho-prepare-une-mauvaise-surprise-a-brahim-diaz/blt0af99cf32ec084ab)
+
+
+### yalla kora (N/A, Sat, 12 Sep 2026 12:40:00 -0700)
+
+- **تشكيل زد أمام أساس جيبوتى فى الكونفدرالية.. مزيكا يحرس العرين**: [Link](https://www.youm7.com/story/2026/9/12/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%B2%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D8%B3%D8%A7%D8%B3-%D8%AC%D9%8A%D8%A8%D9%88%D8%AA%D9%89-%D9%81%D9%89-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D9%85%D8%B2%D9%8A%D9%83%D8%A7-%D9%8A%D8%AD%D8%B1%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D9%8A%D9%86/7544371)
+- **مواجهات دور الـ32 من كأس الكونفدرالية**: [Link](https://www.btolat.com/news/410053)
+- **تفوق عربي في نتائج اليوم من الدور التمهيدي الأول للكونفدرالية**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=12092026&id=d54b1649-606e-4efd-9a85-5626c0bb1041)
+
+
+### ufc (N/A, Sat, 12 Sep 2026 12:20:00 -0700)
+
+- **Dan Ige Shares Glimpse of Journey before Bantamweight Debut**: [Link](https://mmasucka.com/news/dan-ige-shares-a-glimpse-of-his-journey-to-debuting-in-bantamweight/)
+- **Martinez vs. Ige Fight Analysis: Odds & Predictions**: [Link](https://www.sportsgrid.com/mixed-martial-arts/video/martinez-vs-ige-fight-analysis-odds-predictions)
+- **Dan Ige vs. David Martinez prediction, pick, time for Noche UFC**: [Link](https://www.centraloregondaily.com/sports/dan-ige-vs-david-martinez-prediction-pick-time-for-noche-ufc/article_7174a09d-1f20-529a-9b41-9c168d246050.html)
+
+
+### بث مباشر (N/A, Sat, 12 Sep 2026 12:20:00 -0700)
+
+- **حريق هائل بالشرباصي بدمياط.. والمحافظ ومدير الأمن في الموقع**: [Link](https://twaslnews1.twaslnews.com/4893900/)
+- **حريق في شقة سكنية بشارع الشرباصي بمدينة دمياط**: [Link](https://www.elbalad.news/7104241)
+- **حريق هائل يلتهم وحدة سكنية بدمياط.. والحماية المدنية تحاصر النيران (صور)**: [Link](https://www.youm7.com/story/2026/9/12/%D8%AD%D8%B1%D9%8A%D9%82-%D9%87%D8%A7%D8%A6%D9%84-%D9%8A%D9%84%D8%AA%D9%87%D9%85-%D9%88%D8%AD%D8%AF%D8%A9-%D8%B3%D9%83%D9%86%D9%8A%D8%A9-%D8%A8%D8%AF%D9%85%D9%8A%D8%A7%D8%B7-%D9%88%D8%A7%D9%84%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D9%86%D9%8A%D8%A9-%D8%AA%D8%AD%D8%A7%D8%B5%D8%B1-%D8%A7%D9%84%D9%86%D9%8A%D8%B1%D8%A7%D9%86/7543896)
+
+
+### yallakora (N/A, Sat, 12 Sep 2026 12:20:00 -0700)
+
+- **بقيادة الزمالك والمغرب الفاسي.. توهج عربي في دوري أبطال أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A--%D8%AA%D9%88%D9%87%D8%AC-%D8%B9%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt817f755bc02a10b2)
+- **عبد الله السعيد يسجل الهاتريك فى شباك بطل جيبوتى ويدخل التاريخ**: [Link](https://www.youm7.com/story/2026/9/12/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%B3%D8%B9%D9%8A%D8%AF-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A7%D9%84%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D9%81%D9%89-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A8%D8%B7%D9%84-%D8%AC%D9%8A%D8%A8%D9%88%D8%AA%D9%89-%D9%88%D9%8A%D8%AF%D8%AE%D9%84/7544388)
+- **نتيجة وأهداف مباراة الزمالك والميناء الجيبوتي في دوري أبطال إفريقيا**: [Link](https://www.eremnews.com/sports/66mqaty)
+
+
 ### paris fc – lyon (N/A, Sat, 12 Sep 2026 11:40:00 -0700)
 
 - **Licensable picture: Ligue 1 - Paris FC v Olympique Lyonnais**: [Link](https://www.reutersconnect.com/item/ligue-1-paris-fc-v-olympique-lyonnais/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOUMxRlJIVE4)
