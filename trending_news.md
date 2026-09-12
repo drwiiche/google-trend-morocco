@@ -1,3 +1,66 @@
+### inter miami – nashville (N/A, Sat, 12 Sep 2026 15:50:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Hosts Nashville SC This Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-nashville-sc-this-saturday)
+- **CLINCHING SCENARIO: How Nashville SC can reach MLS Cup Playoffs on Saturday**: [Link](https://www.frontrowsoccer.com/2026/09/11/clinching-scenario-how-nashville-sc-can-reach-mls-cup-playoffs-on-saturday/)
+- **Messi, Inter Miami aim to close gap on Nashville in Eastern Conference showdown**: [Link](https://www.miamiherald.com/sports/mls/inter-miami/article317212943.html)
+
+
+### alexa grasso (N/A, Sat, 12 Sep 2026 15:50:00 -0700)
+
+- **UFC broadcast officially confirms title shot is on the line in Noche UFC main card matchup**: [Link](https://bloodyelbow.com/2026/09/12/ufc-broadcast-officially-confirms-title-shot-is-on-the-line-in-noche-ufc-main-card-matchup/)
+- **Grasso Drops, Outlasts Fiorot In Flyweight Title Eliminator**: [Link](https://www.mmanews.com/article/grasso-drops-outlasts-fiorot-flyweight-eliminator)
+- **Manon Fiorot vs. Alexa Grasso Officially a Title Eliminator Fight**: [Link](https://heavy.com/sports/ufc/manon-fiorot-alexa-grasso-title-eliminator/)
+
+
+### الحسين عموتة (N/A, Sat, 12 Sep 2026 15:20:00 -0700)
+
+- **في بيان رسمي.. الأهلي يعلن عن إجراءات قانونية ضد "عموتة المزيف"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D8%A7%D9%95%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D9%82%D8%A7%D9%86%D9%88%D9%86%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D9%81/bltc02fcf32853beef0)
+- **الأهلي يحسمها بشأن عموتة.. رسالة قوية تنهي جدل رحيله**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85%D9%87%D8%A7-%D8%A8%D8%B4%D8%A3%D9%86-%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D9%86%D9%87%D9%8A-%D8%AC%D8%AF%D9%84-%D8%B1%D8%AD%D9%8A%D9%84%D9%87/25268)
+- **الأهلي يتفاعل مع غضب جماهيره ويحسم موقفه من إقالة عموتة**: [Link](https://ar.sport.le360.ma/football/5JXXS7YHDNAKFHJKXU57DFYAC4/)
+
+
+### sabalenka (N/A, Sat, 12 Sep 2026 14:40:00 -0700)
+
+- **US Open 2026 final LIVE: Elena Rybakina beats Aryna Sabalenka for title - scores, radio & live text updates**: [Link](https://www.bbc.com/sport/tennis/live/ckgd2jp4pxvt)
+- **Andy Roddick hopes the US Women's final gets the 'respect it deserves' despite absence of Coco Gauff and Jessica Pegula**: [Link](https://www.hitc.com/andy-roddick-hopes-the-us-womens-final-gets-the-respect-it-deserves-despite-absence-of-coco-gauff-and-jessica-pegula/)
+- **Mary Joe Fernandez previews US Open women's singles final match**: [Link](https://www.modernghana.com/videonews/abc/1/716016)
+
+
+### سجن (N/A, Sat, 12 Sep 2026 14:40:00 -0700)
+
+- **النيابة العامة تعلن “مواصلة البحث” في شكاية الفايق ضد محمد شوكي – اليوم 24**: [Link](https://alyaoum24.com/2043722.html)
+- **وكيل فاس يوضح مصير شكاية سجين**: [Link](https://www.hespress.com/%D9%88%D9%83%D9%8A%D9%84-%D9%81%D8%A7%D8%B3-%D9%8A%D9%88%D8%B6%D8%AD-%D9%85%D8%B5%D9%8A%D8%B1-%D8%B4%D9%83%D8%A7%D9%8A%D8%A9-%D8%B3%D8%AC%D9%8A%D9%86-1806363.html)
+- **النيابة العامة بفاس توضح مآل شكاية بشأن ادعاءات الابتزاز والتهديد بالسجن**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%A8%D9%81%D8%A7%D8%B3-%D8%AA%D9%88%D8%B6%D8%AD-%D9%85%D8%A2%D9%84-%D8%B4%D9%83%D8%A7%D9%8A%D8%A9-%D8%A8%D8%B4%D8%A3%D9%86-%D8%A7%D8%AF%D8%B9%D8%A7%D8%A1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%A8%D8%AA%D8%B2%D8%A7%D8%B2-%D9%88%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-20260912)
+
+
+### classement sunderland – arsenal (N/A, Sat, 12 Sep 2026 14:20:00 -0700)
+
+- **4eme journée de Premier League : Revivez la victoire 2-0 d'Arsenal face à Sunderland**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-sunderland-arsenal_mtc21883049/live-commentary.shtml)
+- **Premier League : Arsenal poursuit son sans-faute en dominant Sunderland**: [Link](https://www.footmercato.net/a7529153023042365644-premier-league-arsenal-poursuit-son-sans-faute-en-dominant-sunderland)
+- **Premier League: Arsenal poursuit son sans-faute à Sunderland**: [Link](https://sport.le360.ma/football/premier-league/premier-league-arsenal-poursuit-son-sans-faute-a-sunderland_FNWSY2LA7VHZLCHNHNFKPBXRPM/)
+
+
+### paramount (N/A, Sat, 12 Sep 2026 14:20:00 -0700)
+
+- **Paramount Settlement Talks With California Moving Forward**: [Link](https://www.hollywoodreporter.com/business/business-news/paramount-settlement-talks-with-california-moving-forward-1236697830/)
+- **Paramount Skydance Argues States’ Antitrust Lawsuit Against Warner Bros. Merger Is ‘Not the Product of Sound Economic Analysis’**: [Link](https://www.yahoo.com/entertainment/movies/articles/paramount-skydance-argues-states-antitrust-170421517.html)
+- **Paramount requests $1.88B bond from state AGs trying to stop Paramount merger**: [Link](https://www.thecentersquare.com/national/article_cf5f87c8-e24a-4f4b-b6ea-6928f4649310.html)
+
+
+### avocat (N/A, Sat, 12 Sep 2026 14:20:00 -0700)
+
+- **Avocats. La grève est maintenue !**: [Link](https://medias24.com/2026/09/10/avocats-la-greve-est-maintenue-1691424/)
+- **Loi sur la profession d’avocat : les barreaux maintiennent la pression**: [Link](https://lematin.ma/nation/loi-sur-la-profession-davocat-les-barreaux-maintiennent-la-pression/364724)
+- **Loi sur les avocats: l’ABM maintient la grève et appelle au dialogue institutionnel**: [Link](https://fr.le360.ma/politique/loi-sur-les-avocats-labm-maintient-la-greve-et-appelle-au-dialogue-institutionnel_Z2XMW3BINNC47HSWPM5DZZZX3U/)
+
+
+### rahiki vs mcmillen (N/A, Sat, 12 Sep 2026 13:10:00 -0700)
+
+- **Marwan Rahiki | Another Speed Runner Has Arrived**: [Link](https://www.ufc.com/news/marwan-rahiki-another-speed-runner-has-arrived-noche-ufc)
+- **'I feel like I'm a modern-day rockstar': Inside the meteoric rise of Tommy 'Gun' McMillen**: [Link](https://www.cbssports.com/ufc/news/tommy-mcmillen-noche-ufc/)
+- **Tommy McMillen vs. Marwan Rahiki prediction, pick, time for Noche UFC**: [Link](https://mmajunkie.usatoday.com/story/sports/ufc/2026/09/12/noche-ufc-tommy-mcmillen-vs-marwan-rahiki-expert-prediction-pick-time-mma-betting-odds/91713186007/)
+
+
 ### aryna sabalenka (N/A, Sat, 12 Sep 2026 14:10:00 -0700)
 
 - **US Open 2026 final LIVE: Aryna Sabalenka vs Elena Rybakina - scores, radio & live text updates**: [Link](https://www.bbc.com/sport/tennis/live/ckgd2jp4pxvt)
