@@ -1,3 +1,43 @@
+### السويد (N/A, Sat, 12 Sep 2026 03:40:00 -0700)
+
+- **خذ 35 ألف دولار وارحل.. خطة لطرد المهاجرين تثير الانقسام في السويد**: [Link](https://www.aljazeera.net/news/2026/9/9/%D8%AE%D8%B0-35-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%A7%D8%B1%D8%AD%D9%84-%D8%AE%D8%B7%D8%A9-%D9%84%D8%B7%D8%B1%D8%AF-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86)
+- **السويد تشدد سياسات الهجرة وقطاع الصحة يخشى دفع الثمن**: [Link](https://www.infomigrants.net/ar/post/73564/%D8%A7%D9%84%D8%B3%D9%88%D9%8A%D8%AF-%D8%AA%D8%B4%D8%AF%D8%AF-%D8%B3%D9%8A%D8%A7%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D9%88%D9%82%D8%B7%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D9%8A%D8%AE%D8%B4%D9%89-%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D8%AB%D9%85%D9%86)
+- **السويد تعرض 35 ألف دولار على المهاجرين مقابل العودة لبلدانهم**: [Link](https://www.alqabas.com/article/5969592-%D8%A7%D9%84%D8%B3%D9%88%D9%8A%D8%AF-%D8%AA%D8%B9%D8%B1%D8%B6-35-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D8%A8%D9%84%D8%AF%D8%A7%D9%86%D9%87%D9%85/)
+
+
+### bernard arnault (N/A, Sat, 12 Sep 2026 01:10:00 -0700)
+
+- **US Billionaires Occupy All Top 10 Spots in Bloomberg Index**: [Link](https://www.uzdaily.uz/en/us-billionaires-occupy-all-top-10-spots-in-bloomberg-index/)
+- **The 10 Richest People in the World Named: Sergey in 4th Place**: [Link](https://news.inbox.eu/150qhfg-the-10-richest-people-in-the-world-named-sergey-in-4th-place?language=en)
+- **Americans have occupied all the spots in the top 10 richest people in the world for the first time**: [Link](https://unn.ua/en/news/americans-have-occupied-all-the-spots-in-the-top-10-richest-people-in-the-world-for-the-first-time)
+
+
+### مراكش (N/A, Fri, 11 Sep 2026 23:00:00 -0700)
+
+- **واحة سيدي إبراهيم.. مقتل قاصر إثر شجار باولاد برحمون وعناصر الدرك توقف المشتبه فيه**: [Link](https://www.marrakechalaan.com/article-694266)
+- **جريمة قتل تهز دوار برحمون ضواحي مراكش**: [Link](https://alhayatalyaoumia.ma/%D8%AC%D8%B1%D9%8A%D9%85%D8%A9-%D9%82%D8%AA%D9%84-%D8%AA%D9%87%D8%B2-%D8%AF%D9%88%D8%A7%D8%B1-%D8%A8%D8%B1%D8%AD%D9%85%D9%88%D9%86-%D8%B6%D9%88%D8%A7%D8%AD%D9%8A-%D9%85%D8%B1%D8%A7%D9%83%D8%B4/)
+- **عاجل.. شجار بسبب التنمر ينتهي بمأساة.. وفاة قاصر في ظروف صادمة بدوار بنرحمون**: [Link](https://www.nichanealane.ma/141147/)
+
+
+### hibapress (N/A, Fri, 11 Sep 2026 22:30:00 -0700)
+
+- **توفيا في يوم واحد.. دفن مهاجرين مغربيين في سبتة المحتلة**: [Link](https://ar.hibapress.com/details-756442.html)
+- **وفاة فتى تعيد أزمة "قاصري سبتة" للواجهة**: [Link](https://www.skynewsarabia.com/varieties/1889974-%D9%88%D9%81%D8%A7%D8%A9-%D9%81%D8%AA%D9%89-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A3%D8%B2%D9%85%D8%A9-%D9%82%D8%A7%D8%B5%D8%B1%D9%8A-%D8%B3%D8%A8%D8%AA%D8%A9-%D9%84%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9)
+- **وفاة فتى مغربي يبلغ 17 عاما في مركز استضافة بسبتة**: [Link](https://www.infomigrants.net/ar/post/73508/%D9%88%D9%81%D8%A7%D8%A9-%D9%81%D8%AA%D9%89-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%A8%D9%84%D8%BA-17-%D8%B9%D8%A7%D9%85%D8%A7-%D9%81%D9%8A-%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D8%A8%D8%B3%D8%A8%D8%AA%D8%A9)
+
+
+### محمد وهبي (N/A, Fri, 11 Sep 2026 22:20:00 -0700)
+
+- **مؤشرات إيجابية حول تعافي الزلزولي واقتراب عودته إلى صفوف ريال بيتيس**: [Link](https://radiomars.ma/%D9%85%D8%A4%D8%B4%D8%B1%D8%A7%D8%AA-%D8%A5%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A%D8%A9-%D8%AD%D9%88%D9%84-%D8%AA%D8%B9%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%88%D8%A7%D9%82/)
+- **الزلزولي يعتذر لمحمد وهبي**: [Link](https://ar.lesiteinfo.com/sport/%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D9%84%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-1020167.html)
+- **الزلزولي يزف خبرا سارا للناخب الوطني قبل تصفيات « الكان »**: [Link](https://ar.sport.le360.ma/football/MH5GZW52YJAWZC4XZRSB24HT3I/)
+
+
+### وزارة الأوقاف والشؤون الإسلامية (N/A, Fri, 11 Sep 2026 21:30:00 -0700)
+
+
+
+
 ### météo (N/A, Fri, 11 Sep 2026 23:00:00 -0700)
 
 - **Du soleil sur une grande partie du territoire: la météo de ce samedi 12 septembre**: [Link](https://www.bfmtv.com/meteo/video-du-soleil-sur-une-grande-partie-du-territoire-la-meteo-de-ce-samedi-12-septembre_VN-202609120050.html)
