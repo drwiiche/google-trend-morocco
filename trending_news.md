@@ -1,3 +1,31 @@
+### ben shelton (N/A, Fri, 11 Sep 2026 17:30:00 -0700)
+
+- **When are the US Open semi-finals?**: [Link](https://www.atptour.com/en/news/us-open-2026-semi-final-schedule)
+- **Zverev Conquers Khachanov for Third Straight Slam Final at US Open**: [Link](https://tennisnow.com/zverev-conquers-khachanov-for-third-straight-slam-final-at-us-open/)
+- **Frances Tiafoe and Ben Shelton Bring Buzz to Lululemon and On in U.S. Open Semifinals — And This Classic Sneaker Brand Also Gets a Nod**: [Link](https://wwd.com/footwear-news/sneaker-news/frances-tiafoe-ben-shelton-us-open-semifinals-outfits-shoes-1239223884/)
+
+
+### ufc (N/A, Fri, 11 Sep 2026 17:00:00 -0700)
+
+- **Licensable picture: MMA: UFC Fight Night - Arizona Weigh Ins**: [Link](https://www.reutersconnect.com/item/mma-ufc-fight-night-arizona-weigh-ins/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVVTQVRPREFZMjk3OTI1MjA)
+- **Chris Weidman: Jean Silva 'a tough challenge for anybody,' beats Jose Delgado**: [Link](https://sports.yahoo.com/articles/chris-weidman-jean-silva-tough-202026950.html)
+- **Weigh-In Highlights | Noche UFC**: [Link](https://www.ufc.com/video/160015)
+
+
+### marwan rahiki (N/A, Fri, 11 Sep 2026 16:10:00 -0700)
+
+- **Marwan Rahiki | Another Speed Runner Has Arrived**: [Link](https://www.ufc.com/news/marwan-rahiki-another-speed-runner-has-arrived-noche-ufc)
+- **'I feel like I'm a modern-day rockstar': Inside the meteoric rise of Tommy 'Gun' McMillen**: [Link](https://www.cbssports.com/ufc/news/tommy-mcmillen-noche-ufc/)
+- **UFC analyst: Tommy McMillen, Marwan Rahiki 'use their offense as their defense'**: [Link](https://sports.yahoo.com/articles/ufc-analyst-tommy-mcmillen-marwan-220143409.html)
+
+
+### alexander zverev (N/A, Fri, 11 Sep 2026 14:00:00 -0700)
+
+- **US Open semi-finals 2026 recap: Alexander Zverev beats Karen Khachanov to reach final**: [Link](https://www.bbc.com/sport/live/crl7re17811t)
+- **Zverev's Triumphant Return: From Doubt to U.S. Open Final**: [Link](https://www.devdiscourse.com/article/sports-games/3976278-zverevs-triumphant-return-from-doubt-to-us-open-final)
+- **Alexander Zverev halts US Open semifinal play to make bizarre complaint to umpire**: [Link](https://www.aol.com/articles/alexander-zverev-halts-semifinal-play-223207000.html)
+
+
 ### us open (N/A, Fri, 11 Sep 2026 15:20:00 -0700)
 
 - **No. 1 seed Alexander Zverev outlasts Karen Kachenov to book place in US Open final**: [Link](https://www.cnn.com/2026/09/11/sport/mens-2026-us-open-semifinal)
