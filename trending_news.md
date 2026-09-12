@@ -1,3 +1,73 @@
+### maroc (N/A, Sat, 12 Sep 2026 09:40:00 -0700)
+
+- **Sebta : après les révélations sur une alerte du CNI, le chef de cabinet Gonzalo Sanz démissionne**: [Link](https://medias24.com/2026/09/11/sebta-apres-les-revelations-sur-une-alerte-du-cni-le-chef-de-cabinet-de-la-delegation-du-gouvernement-demissionne-1754103/)
+- **Quand le Maroc dit «basta»: et maintenant?**: [Link](https://fr.le360.ma/politique/quand-le-maroc-dit-basta-et-maintenant_QULRCLLFNFAL7DEX4HRAIIJWZY/)
+- **Un problème espagnol… mais pas que**: [Link](https://mobile.telquel.ma/2026/09/11/un-probleme-espagnol-mais-pas-que_2007063)
+
+
+### فلسطين (N/A, Sat, 12 Sep 2026 09:40:00 -0700)
+
+- **خريطة فلسطين تقود المغربية دينا إلى غزة.. إليكم التفاصيل**: [Link](https://www.aljazeera.net/politics/2026/9/12/%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D8%AA%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AF%D9%8A%D9%86%D8%A7-%D8%A5%D9%84%D9%89)
+- **سفير فلسطين لدى إسبانيا يبحث تعزيز التعاون مع رابطة الكتّاب الإسبان**: [Link](https://www.shfanews.net/post/322736)
+- **السفير الفلسطيني لدى إسبانيا يبحث تعزيز العلاقات والدعم الإسباني للحقوق الفلسطينية**: [Link](https://yaffaps.com/ar/page-127475.html)
+
+
+### classement chelsea football club – hull city (N/A, Sat, 12 Sep 2026 09:20:00 -0700)
+
+- **Chelsea - Hull City en direct - Premier League : Football Scores & Résultats - 12/09/2026**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-chelsea-hull-city_mtc21883079/live.shtml)
+- **PRONOS PARIS RMC Le buteur du jour du 12 septembre - Premier League - Angleterre**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-12-septembre-premier-league-angleterre_AN-202609110847.html)
+- **Mainz vs Frankfurt: Second Half Spread**: [Link](https://www.coinbase.com/fr-ca/predictions/event/KXBUNDESLIGA2HSPREAD-26SEP12M05SGE)
+
+
+### girona – castellón (N/A, Sat, 12 Sep 2026 09:20:00 -0700)
+
+- **Girona - Castellón: horario y dónde ver hoy en TV y online el partido de la jornada 5 de LaLiga Hypermotion**: [Link](https://www.marca.com/futbol/segunda-division/2026/09/12/girona-castellon-horario-donde-ver-hoy-tv-online-partido-jornada-5-laliga-hypermotion.html)
+- **Quique Álvarez: “El Castellón es de los mejores equipos de la categoría”**: [Link](https://as.com/futbol/quique-alvarez-el-castellon-es-de-los-mejores-equipos-de-la-categoria-f202609-n/)
+- **Pablo Hernández: «Vamos con la idea clara de imponer nuestro juego»**: [Link](https://www.cdcastellon.com/pablo-hernandez-vamos-con-la-idea-clara-de-imponer-nuestro-juego/)
+
+
+### التعاون ضد الهلال (N/A, Sat, 12 Sep 2026 09:10:00 -0700)
+
+- **على خطى حمدالله.. لعنة الهلال تضرب هداف دوري جوي للنخبة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%84%D9%89-%D8%AE%D8%B7%D9%89-%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87--%D9%84%D8%B9%D9%86%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%87%D8%AF%D8%A7%D9%81-%D8%AF%D9%88%D8%B1%D9%8A-%D8%AC%D9%88%D9%8A-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9/blt9d53f7f3c356efdd)
+- **مباشر.. مباراة الهلال ضد التعاون في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D9%81%D9%8A-3)
+- **الإصابات خصم الركراكي قبل مباراة تونس والبنين وطبيب المنتخب يوضح**: [Link](https://ar.telquel.ma/%D8%A8%D9%88%D9%86%D9%88-%D8%B6%D9%85%D9%86-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D9%85%D9%88/)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 12 Sep 2026 09:10:00 -0700)
+
+- **ترتيب هدافي الدوري الإنجليزي 2026/2027 بعد الجولة الرابعة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84/)
+- **التساوي في عدد الأهداف سمة الموسم الجديد للدوري الإنجليزي**: [Link](https://www.youlyou.com/51644)
+- **مباراة فريقي بريستون و لينكولن سيتي في بطولة الدوري الإنجليزي | الدرجة الأولى - الأسبوع 7**: [Link](https://www.filgoal.com/matches/376906/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA%D9%88%D9%86-%D9%84%D9%8A%D9%86%D9%83%D9%88%D9%84%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89)
+
+
+### تمساح (N/A, Sat, 12 Sep 2026 09:00:00 -0700)
+
+- **ظهور تمساح جديد.. حملات فحص وتمشيط مكثفة بمصرف الزوامل بالشرقية «فيديو»**: [Link](https://www.youm7.com/story/2026/9/11/%D8%B8%D9%87%D9%88%D8%B1-%D8%AA%D9%85%D8%B3%D8%A7%D8%AD-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%AD%D9%85%D9%84%D8%A7%D8%AA-%D9%81%D8%AD%D8%B5-%D9%88%D8%AA%D9%85%D8%B4%D9%8A%D8%B7-%D9%85%D9%83%D8%AB%D9%81%D8%A9-%D8%A8%D9%85%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D8%B2%D9%88%D8%A7%D9%85%D9%84-%D8%A8%D8%A7%D9%84%D8%B4%D8%B1%D9%82%D9%8A%D8%A9/7543364)
+- **رعب في قرية مصرية.. فيديو ظهور تمساح ضخم يثير القلق**: [Link](https://www.alkhaleej.ae/2026-09-12/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%B1%D8%B9%D8%A8-%D9%81%D9%8A-%D9%82%D8%B1%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B8%D9%87%D9%88%D8%B1-%D8%AA%D9%85%D8%B3%D8%A7%D8%AD-%D8%B6%D8%AE%D9%85-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D9%82%D9%84%D9%82)
+- **محافظ الشرقية يوجه بتشكيل لجنة عاجلة لبحث ظهور «تمساح» في بلبيس| صور**: [Link](https://gate.ahram.org.eg/News/5924454.aspx)
+
+
+### radio mars (N/A, Sat, 12 Sep 2026 08:50:00 -0700)
+
+- **الوداد المغربي ينهي تعاقده مع حكيم زياش**: [Link](https://www.aljazeera.net/sport/2026/9/6/%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84)
+- **زياش بقميص بوتافوغو: "فخور بتمثيل العلم المغربي في البرازيل"**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/493946.html)
+- **يفوق راتبه الشهري المثير للجدل بالوداد .. تسريب « الصالير » الضخم لزياش مع بوتافاغو**: [Link](https://ar.sport.le360.ma/football/3CDAAXSUYRF5FFKTLE73YXQFCQ/)
+
+
+### ath. bilbao – elche (N/A, Sat, 12 Sep 2026 08:40:00 -0700)
+
+- **Crecer en la inercia positiva**: [Link](https://www.deia.eus/athletic/2026/09/12/athletic-elche-crecer-inercia-positiva-11532672.html)
+- **Terzic apuesta por Unai Simón para el Trofeo Yashin**: [Link](https://www.mundodeportivo.com/futbol/athletic-bilbao/20260912/1004226129/terzic-apuesta-unai-simon-trofeo-yashin.html)
+- **Una conexión histórica**: [Link](https://as.com/futbol/una-conexion-historica-f202609-n/)
+
+
+### lazio – ac milan (N/A, Sat, 12 Sep 2026 08:30:00 -0700)
+
+- **Amorim says Cissé ‘ready’ for Italy, jokes about Man Utd criticism: ‘More is impossible’**: [Link](https://football-italia.net/amorim-cisse-ready-italy-man-utd-criticism/)
+- **Rabiot to start alongside Modric against Lazio, Sky reports**: [Link](https://milanreports.com/2026/09/12/rabiot-modric-lazio-sky-reports/)
+- **Milan, Amorim: "Criticism of Loftus-Cheek? It is essential to be honest with players. We need quality"**: [Link](https://www.goal.com/en/lists/milan-amorim-criticism-of-loftus-cheek-it-is-essential-to-be-honest-with-the-players-we-need-quality/blta4440b4316fcda6b)
+
+
 ### تشيلسي ضد هال سيتي (N/A, Sat, 12 Sep 2026 06:50:00 -0700)
 
 - **ما القنوات الناقلة لمباراة تشيلسي وهال سيتي في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt80a8c6c3dd5c0905)
