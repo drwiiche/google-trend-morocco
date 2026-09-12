@@ -1,3 +1,66 @@
+### paris fc – lyon (N/A, Sat, 12 Sep 2026 11:40:00 -0700)
+
+- **Licensable picture: Ligue 1 - Paris FC v Olympique Lyonnais**: [Link](https://www.reutersconnect.com/item/ligue-1-paris-fc-v-olympique-lyonnais/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOUMxRlJIVE4)
+- **Paris FC vs Olympique Lyonnais - Where to Watch, Stream Info, TV Channel, and Live Updates (September 12, 2026)**: [Link](https://www.fubo.tv/news/soccer/paris-fc-vs-olympique-lyonnais-where-to-watch-stream-info-tv-channel-and-live-updates-september-12-2026/)
+- **Paris FC keep low profile before OL trip**: [Link](https://onefootball.com/en/news/paris-fc-keep-low-profile-before-ol-trip-43444790)
+
+
+### سندرلاند ضد آرسنال (N/A, Sat, 12 Sep 2026 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة سندرلاند وآرسنال في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt6868503327758f4b)
+- **موعد مباراة أرسنال وسندرلاند في الدوري الإنجليزي والقنوات الناقلة**: [Link](https://gate.ahram.org.eg/News/5925445.aspx)
+- **آرسنال يحل ضيفاً على سندرلاند لمواصلة الانتصارات**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A7-%D8%B9%D9%84%D9%89-%D8%B3%D9%86%D8%AF%D8%B1%D9%84%D8%A7%D9%86%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-2026-09-12)
+
+
+### real madrid – rayo (N/A, Sat, 12 Sep 2026 11:10:00 -0700)
+
+- **Real Madrid - Rayo Vallecano, en directo: previa y última hora de LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/real-madrid-rayo-vallecano-hoy-en-directo-laliga-ea-sports-hoy-en-vivo-f202609-d/)
+- **Convocatoria del Real Madrid frente al Rayo Vallecano**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-frente-al-rayo-vallecano-11-09-2026)
+- **Diomande se estrena como titular con el Madrid y vuelven Bernardo, Rüdiger y Carreras**: [Link](https://www.infobae.com/america/agencias/2026/09/12/diomande-se-estrena-como-titular-con-el-madrid-y-vuelven-bernardo-rudiger-y-carreras/)
+
+
+### الريال ضد رايو فاليكانو (N/A, Sat, 12 Sep 2026 11:10:00 -0700)
+
+- **مفاجأة وصدمة في تشكيل ريال مدريد أمام رايو فاليكانو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%88%D8%B5%D8%AF%D9%85%D8%A9-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%84%D9%8A%D9%83%D8%A7%D9%86%D9%88/blte78249fd82732d75)
+- **مباشر مباراة ريال مدريد ضد رايو فايكانو في الدوري الإسباني لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D9%81%D8%A7%D9%8A%D9%83%D8%A7%D9%86%D9%88)
+- **إبراهيم دياز ورقة بديلة لريال مدريد أمام رايو فاليكانو**: [Link](https://radiomars.ma/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%88%D8%B1%D9%82%D8%A9-%D8%A8%D8%AF%D9%8A%D9%84%D8%A9-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%85/)
+
+
+### sunderland – arsenal (N/A, Sat, 12 Sep 2026 11:10:00 -0700)
+
+- **Arteta's update on White, Mosquera and Timber**: [Link](https://www.arsenal.com/news/artetas-update-on-white-mosquera-and-timber-axoYv8N7qYHf)
+- **Kalshi Promo Code GOALMAX: Get $25 in bonuses for Sunderland vs Arsenal, EPL**: [Link](https://www.goal.com/en-us/betting/news/kalshi-promo-code-goalmax-get-25-bonuses-sunderland-vs-arsenal-epl-9-12-26/A%3Abltcec7e7caa640080b)
+- **Arsenal and Sunderland teams released**: [Link](https://sports.yahoo.com/articles/arsenal-sunderland-teams-released-174500302.html)
+
+
+### classement racing club de strasbourg alsace – as monaco (N/A, Sat, 12 Sep 2026 11:00:00 -0700)
+
+- **Suivez Strasbourg - Monaco En direct - Ligue 1 - 4e journée**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-strasbourg-monaco_mtc21875608/live-commentary.shtml)
+- **El Mourabet de retour avec Strasbourg après sa suspension**: [Link](https://mountakhab.net/el-mourabet-de-retour-avec-strasbourg-apres-sa-suspension/)
+- **RCS-ASM Les Tops Flops**: [Link](https://onefootball.com/fr/news/rcs-asm-les-tops-flops-43448050)
+
+
+### fortuna sittard – ajax (N/A, Sat, 12 Sep 2026 11:00:00 -0700)
+
+- **Míchel geeft update over Bouwman: 'We moeten zien of de pijn verbetert'**: [Link](https://www.voetbalprimeur.nl/nieuws/2134890/michel-licht-basisplaatsen-amrabat-en-mokio-toe.html)
+- **LIVE Eredivisie | Ajax met Thilo Kehrer en Sofyan Amrabat op bezoek bij Fortuna Sittard**: [Link](https://www.telegraaf.nl/sport/voetbal/live-eredivisie-ajax-met-thilo-kehrer-en-sofyan-amrabat-op-bezoek-bij-fortuna-sittard/161350389.html)
+- **Opstelling Ajax: Edvardsen vervangt Gloukh, basisplaatsen voor Amrabat en Kehrer**: [Link](https://www.espn.nl/voetbal/artikel/_/id/17245877/opstelling-ajax-edvardsen-vervangt-gloukh-basisplaatsen-voor-amrabat-en-kehrer)
+
+
+### al khaleej saihat – al-nassr fc (N/A, Sat, 12 Sep 2026 10:40:00 -0700)
+
+- **A triple blow disrupts Al-Nassr before the Al-Khaleej clash**: [Link](https://www.goal.com/en/news/triple-blow-rattles-al-nassr-before-al-khaleej-clash/bltebe5074f2991572b)
+- **Ahead of the AFC Champions League clash with Al-Ain,…**: [Link](https://www.ysscores.com/en/news/14044495/ahead-of-the-afc-champions-league-clash-with-al-ain-a-major-blow-disrupts-al-nassrs-plans)
+- **Al Khaleej vs Al Nassr: Full lineups confirmed as Cristiano Ronaldo starts in Saudi Pro League 2026-27 clash**: [Link](https://khelnow.com/football/al-khaleej-vs-al-nassr-lineups-saudi-pro-league-202609)
+
+
+### كريستيانو رونالدو (N/A, Sat, 12 Sep 2026 10:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الخليج والنصر في دوري روشن السعودي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D9%88%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt909a6410f4ea1e0c)
+- **مباشر.. مباراة النصر ضد الخليج في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/12/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC)
+- **رونالدو وجواو فيليكس يقودان النصر أمام الخليج في الدوري السعودي**: [Link](https://sports.asharq.com/football/118104/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D8%AC%D9%88%D8%A7%D9%88-%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC/)
+
+
 ### maroc (N/A, Sat, 12 Sep 2026 09:40:00 -0700)
 
 - **Sebta : après les révélations sur une alerte du CNI, le chef de cabinet Gonzalo Sanz démissionne**: [Link](https://medias24.com/2026/09/11/sebta-apres-les-revelations-sur-une-alerte-du-cni-le-chef-de-cabinet-de-la-delegation-du-gouvernement-demissionne-1754103/)
