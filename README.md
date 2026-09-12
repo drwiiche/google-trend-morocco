@@ -1,3 +1,38 @@
+### météo (N/A, Fri, 11 Sep 2026 23:00:00 -0700)
+
+- **Du soleil sur une grande partie du territoire: la météo de ce samedi 12 septembre**: [Link](https://www.bfmtv.com/meteo/video-du-soleil-sur-une-grande-partie-du-territoire-la-meteo-de-ce-samedi-12-septembre_VN-202609120050.html)
+- **Votre météo du week-end : temps estival en Atlantique et Méditerranée, plus mitigé en Manche**: [Link](https://figaronautisme.meteoconsult.fr/actus-meteo-marine/2026-09-12/92182-votre-meteo-du-week-end-temps-estival-en-atlantique-et-mediterranee-plus-mitige-en-manche)
+- **Prévisions météo du samedi 12 septembre : un temps plus calme, soleil dominant au Sud**: [Link](https://www.sudradio.fr/sud-radio/previsions-meteo-du-samedi-12-septembre-un-temps-plus-calme-soleil-dominant-au-sud)
+
+
+### الطقس (N/A, Fri, 11 Sep 2026 23:00:00 -0700)
+
+- **موجة حر جديدة وزخات رعدية محلية**: [Link](https://www.hespress.com/%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A9-1805590.html)
+- **طقس حار مع زخات رعدية متوقع اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%84%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-4/)
+- **حرارة مرتفعة وأمطار رعدية مرتقبة غدا السبت بهذه المناطق – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%85%D8%B1%D8%AA%D9%81%D8%B9%D8%A9-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%BA%D8%AF%D8%A7-%D8%A7/)
+
+
+### in (N/A, Fri, 11 Sep 2026 23:00:00 -0700)
+
+- **‘A f***-up of epic proportions’: Blame game begins after Iran-backed Houthis’ lightning advance down Red Sea coast**: [Link](https://www.cnn.com/2026/09/12/middleeast/yemen-houthi-saudi-us-blame-intl)
+- **Yemen's Houthis capture a Red Sea island in threat to shipping**: [Link](https://www.npr.org/2026/09/12/g-s1-143044/yemens-houthis-capture-red-sea-island)
+- **Saudi Arabia shuts down a pipeline as Houthis seize an island, opening a new front in the Iran war**: [Link](https://apnews.com/article/yemen-houthis-iran-mokha-mandeb-shipping-saudi-025d052a14d9481258d51009a76d0bd6)
+
+
+### espagne (N/A, Fri, 11 Sep 2026 19:40:00 -0700)
+
+- **Tour d'Espagne - Suivez la 19e étape de la Vuelta EN DIRECT (Vélez-Málaga - Peñas Blancas. Estepona)**: [Link](https://www.eurosport.fr/cyclisme/tour-d-espagne/2026/live-course-en-ligne-hommes-etape-19-velez-malaga-penas-blancas_mtc1651440/live-commentary.shtml)
+- **Santiago Buitrago : « J'ai sombré »**: [Link](https://www.lavuelta.es/fr/actus/2026/etape-19/santiago-buitrago-jai-sombre/69930)
+- **Dunbar surprend Buitrago et remporte la 19ᵉ étape, les favoris se neutralisent**: [Link](https://www.7sur7.be/cyclisme/dunbar-surprend-buitrago-et-remporte-la-19-etape-les-favoris-se-neutralisent~a7665560/)
+
+
+### sonia mabrouk (N/A, Fri, 11 Sep 2026 18:20:00 -0700)
+
+- **« Elle a jugé bon de répondre, c’est sa liberté » : pourquoi le torchon brûle entre Sonia Mabrouk et une partie de BFMTV**: [Link](https://www.leparisien.fr/culture-loisirs/tv/elle-a-juge-bon-de-repondre-cest-sa-liberte-pourquoi-le-torchon-brule-entre-sonia-mabrouk-et-une-partie-de-bfmtv-11-09-2026-KGZIGGYY45A4LNGWGGPQVU5N7A.php)
+- **Sonia Mabrouk accusée de complaisance avec l’extrême droite par deux syndicats du groupe RMC BFM**: [Link](https://www.lemonde.fr/economie/article/2026/09/11/deux-syndicats-du-groupe-rmc-bfm-accusent-sonia-mabrouk-de-complaisance-avec-l-extreme-droite_6770560_3234.html)
+- **Le journalisme, c'est le pluralisme » : Vague de soutiens politiques et médiatiques à Sonia Mabrouk face aux syndicats**: [Link](https://www.21news.be/le-journalisme-cest-le-pluralisme-vague-de-soutiens-politiques-et-mediatiques-a-sonia-mabrouk-face-aux-syndicats/)
+
+
 ### ben shelton (N/A, Fri, 11 Sep 2026 17:30:00 -0700)
 
 - **When are the US Open semi-finals?**: [Link](https://www.atptour.com/en/news/us-open-2026-semi-final-schedule)
