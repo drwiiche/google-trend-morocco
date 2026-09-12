@@ -1,3 +1,73 @@
+### تشيلسي ضد هال سيتي (N/A, Sat, 12 Sep 2026 06:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة تشيلسي وهال سيتي في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt80a8c6c3dd5c0905)
+- **ضربة لتشيلسي قبل مباراة هال سيتي .. ما القصة؟**: [Link](https://www.youlyou.com/51877)
+- **القنوات الناقلة لمباراة تشيلسي ضد هال سيتي اليوم في الدوري الإنجليزي مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/712018273373326-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%B6%D8%AF-%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+
+
+### ليفربول ضد فولهام (N/A, Sat, 12 Sep 2026 06:50:00 -0700)
+
+- **إيراولا: مدرب ريال مدريد السابق أكثر نجاحا مني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D9%85%D8%AF%D8%B1%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%94%D9%83%D8%AB%D8%B1-%D9%86%D8%AC%D8%A7%D8%AD%D8%A7-%D9%85%D9%86%D9%8A/blt510f96fb37039a59)
+- **معاينة المباراة: ليفربول ضد فولهام، الساعة 9:00 مساءً، 12 سبتمبر: الكرة في يد إيراولا.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-tran-dau-liverpool-vs-fulham-21h00-ngay-12-9-co-trao-tay-thay-tro-iraola)
+- **تشكيل ليفربول أمام فولهام في البريميرليج**: [Link](https://almsaey.akhbarelyom.com/news/newdetails/3546049/1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%88%D9%84%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC)
+
+
+### zabiri (N/A, Sat, 12 Sep 2026 06:50:00 -0700)
+
+- **Newcastle, Aston Villa Monitoring Yassir Zabiri After LaLiga Hat-Trick**: [Link](https://www.moroccoworldnews.com/2026/09/338037/newcastle-aston-villa-monitoring-yassir-zabiri-after-laliga-hat-trick/)
+- **After Strong Start with Racing Santander, Zaaberi Attracts Newcastle and Aston Villa Interest**: [Link](http://m.elbotola.com/en/article/2026-09-12-10-00-477.html)
+- **Aston Villa and Newcastle monitor talented striker after stunning hat-trick**: [Link](https://www.caughtoffside.com/2026/09/10/aston-villa-and-newcastle-monitor-talented-striker-after-stunning-hat-trick/)
+
+
+### osasuna – espanyol (N/A, Sat, 12 Sep 2026 06:40:00 -0700)
+
+- **Ramis: "Espero ver a un Osasuna atrevido ante el Espaynol"**: [Link](https://kirolakeitb.eus/es/futbol/equipos/osasuna/2026/09/11/ramis-espero-ver-un-osasuna-atrevido-ante-el-espaynol/)
+- **Un cambio por línea con la primera titularidad de Marcos Fernández**: [Link](https://www.mundodeportivo.com/futbol/rcd-espanyol/20260912/1004226322/cambio-linea-primera-titularidad-marcos-fernandez.html)
+- **Real Sociedad - Atlético: pronóstico, cuotas y análisis**: [Link](https://www.relevo.com/pronosticos/real-sociedad-vs-atletico-de-madrid/)
+
+
+### crystal palace – ipswich town (N/A, Sat, 12 Sep 2026 06:40:00 -0700)
+
+- **Crystal Palace vs Ipswich predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/c9w4dnw1wgzo)
+- **O'Neil: We Want to Play Quick But Sometimes We Need to Slow it Down**: [Link](https://www.twtd.co.uk/ipswich-town-news/52756/oneil-we-want-to-play-quick-but-sometimes-we-need-to-slow-it-down)
+- **Crystal Palace vs Ipswich Town: Where to watch, live stream, TV channel & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-crystal-palace-v-ipswich-town/blt885d2305cc3083c1)
+
+
+### aston villa – nottm forest (N/A, Sat, 12 Sep 2026 06:30:00 -0700)
+
+- **Aston Villa vs Nottingham Forest LIVE! Premier League match updates, news and score**: [Link](https://www.skysports.com/football/live-blog/11727/13572166/aston-villa-vs-nottingham-forest-live-premier-league-match-updates-news-and-score)
+- **Why this John McGinn omen is good news for Aston Villa vs Nottingham Forest**: [Link](https://uk.sports.yahoo.com/news/why-john-mcginn-omen-good-070000525.html)
+- **Munoz, Jesus, Delap - Nottingham Forest predicted XI for key Aston Villa clash**: [Link](https://onefootball.com/en/news/munoz-jesus-delap-nottingham-forest-predicted-xi-for-key-aston-villa-clash-43445013)
+
+
+### liga (N/A, Sat, 12 Sep 2026 06:30:00 -0700)
+
+- **Sergio Busquets backs Flick to lead Barcelona to Champions League triumph: 'We have a great manager and great players'**: [Link](https://barcauniversal.com/sergio-busquets-backs-flick-to-lead-barcelona-to-champions-league-triumph-we-have-a-great-manager-and-great-players/)
+- **‘A Long Way to Go’ — Flick Keeps Barcelona Grounded**: [Link](https://semprebarca.com/hansi-flick-yamal-raphinha/)
+- **Flick warns Barca stars to keep focus after perfect start**: [Link](https://www.afp.com/en/flick-warns-barca-stars-keep-focus-after-perfect-start)
+
+
+### مانشستر سيتي (N/A, Sat, 12 Sep 2026 06:20:00 -0700)
+
+- **ديربي مانشستر.. 6 مفاتيح قد تحسم المواجهة بين يونايتد وسيتي**: [Link](https://www.aljazeera.net/sport/2026/9/12/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-6-%D9%85%D9%81%D8%A7%D8%AA%D9%8A%D8%AD-%D9%82%D8%AF-%D8%AA%D8%AD%D8%B3%D9%85)
+- **كاريك يقلل من شأن تصريح أندرسون بأن "سيتي هم ملوك مانشستر"**: [Link](https://www.hesport.com/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D9%82%D9%84%D9%84-%D9%85%D9%86-%D8%B4%D8%A3%D9%86-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%A3%D9%86%D8%AF%D8%B1%D8%B3%D9%88%D9%86-%D8%A8%D8%A3%D9%86-%D8%B3%D9%8A-454685.html)
+- **برنامج الدورة الرابعة من بطولة إنجلترا لكرة القدم**: [Link](https://milafattadla24.com/136352.html)
+
+
+### chelsea – hull city (N/A, Sat, 12 Sep 2026 06:10:00 -0700)
+
+- **10 players to miss Chelsea vs Hull City as Xabi Alonso gives injury update**: [Link](https://www.football.london/chelsea-fc/news/chelsea-injury-latest-hull-caicedo-34605736)
+- **Chelsea vs Hull City predictions: Chris Sutton on Premier League game**: [Link](https://www.bbc.com/sport/football/articles/ckg82zdggzqo)
+- **Why isn’t Moises Caicedo playing today for Chelsea vs Hull City in 2026-27 Premier League Matchday 4?**: [Link](https://bolavip.com/en/premier-league/why-isnt-moises-caicedo-playing-today-for-chelsea-vs-hull-city-in-2026-27-premier-league-matchday-4)
+
+
+### liverpool – fulham (N/A, Sat, 12 Sep 2026 06:10:00 -0700)
+
+- **Confirmed Liverpool line-up v Fulham**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-fulham-9)
+- **Iraola: Real Madrid's former coach is more successful than me**: [Link](https://www.goal.com/en/news/iraola-real-madrid-s-former-coach-is-more-successful-than-me/blt510f96fb37039a59)
+- **🚨 Liverpool v Fulham XIs: Barcola, Gonzalo and Affengruber start!**: [Link](https://onefootball.com/en/news/liverpool-v-fulham-xis-barcola-gonzalo-and-affengruber-start-43446377)
+
+
 ### السويد (N/A, Sat, 12 Sep 2026 03:40:00 -0700)
 
 - **خذ 35 ألف دولار وارحل.. خطة لطرد المهاجرين تثير الانقسام في السويد**: [Link](https://www.aljazeera.net/news/2026/9/9/%D8%AE%D8%B0-35-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%A7%D8%B1%D8%AD%D9%84-%D8%AE%D8%B7%D8%A9-%D9%84%D8%B7%D8%B1%D8%AF-%D8%A7%D9%84%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86)
