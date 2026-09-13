@@ -1,3 +1,66 @@
+### charles sapin (N/A, Sun, 13 Sep 2026 03:00:00 -0700)
+
+- **« C’est révoltant » : 300 personnalités protestent contre l’arrivée de Charles Sapin de Valeurs actuelles sur France Inter**: [Link](https://www.leparisien.fr/culture-loisirs/tv/cest-revoltant-300-personnalites-protestent-contre-larrivee-de-charles-sapin-de-valeurs-actuelles-sur-france-inter-12-09-2026-W3QNYHTNOFBIBAVEAQXRTIXGJA.php)
+- **Josiane Balasko, Julie Gayet, Annie Ernaux, Lilian Thuram… Arguant des «limites du pluralisme», 300 personnalités s’opposent à la chronique de Charles Sapin sur France Inter**: [Link](https://www.lefigaro.fr/medias/josiane-balasko-julie-gayet-annie-ernaux-lilian-thuram-arguant-des-limites-du-pluralisme-300-personnalites-s-opposent-a-la-chronique-de-charles-sapin-sur-france-inter-20260912)
+- **Grève à Radio France : ces 180 secondes de chronique qui ont mis le feu à la radio publique**: [Link](https://www.nouvelobs.com/economie/20260913.OBS118187/greve-a-radio-france-ces-180-secondes-de-chronique-qui-ont-mis-le-feu-a-la-radio-publique.html)
+
+
+### خوليان ألفاريز (N/A, Sun, 13 Sep 2026 01:40:00 -0700)
+
+- **ضربة في التوقيت الأصعب.. ماذا حدث لألفاريز؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D8%B5%D8%B9%D8%A8--%D9%85%D8%A7%D8%B0%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%84%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2/blt92258e3b1f0092fa)
+- **نجم أتلتيكو مدريد يغيب عن مواجهة الديربي أمام الريال**: [Link](https://www.almasryalyoum.com/news/details/4357918)
+- **بعد الاتهامات بإشراك نجله دون أحقية .. سيميوني يرد بحزم على منتقدي أتلتيكو وجوليانو**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D8%A7%D8%AA-%D8%A8%D8%A7%D9%95%D8%B4%D8%B1%D8%A7%D9%83-%D9%86%D8%AC%D9%84%D9%87-%D8%AF%D9%88%D9%86-%D8%A7%D9%94%D8%AD%D9%82%D9%8A%D8%A9-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%A8%D8%AD%D8%B2%D9%85-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%AA%D9%82%D8%AF%D9%8A-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%88%D8%AC%D9%88%D9%84%D9%8A%D8%A7%D9%86%D9%88/blt618098af8040a5fb)
+
+
+### patrouilleur (N/A, Sun, 13 Sep 2026 01:10:00 -0700)
+
+- **Le Maroc hausse le ton face à l’Espagne et dénonce une instrumentalisation politique**: [Link](https://ledesk.ma/2026/09/10/le-maroc-hausse-le-ton-face-a-lespagne-et-denonce-une-instrumentalisation-politique/)
+- **Communiqué**: [Link](https://diplomatie.ma/fr/communiqu%C3%A9-56)
+- **Le colonialisme espagnol, ce passé qui perdure**: [Link](https://medias24.com/chronique/le-colonialisme-espagnol-ce-passe-qui-perdure/)
+
+
+### نادي لانس (N/A, Sun, 13 Sep 2026 00:50:00 -0700)
+
+- **الجزائر تنافس فرنسا والبرتغال على "توأم لامين يامال"**: [Link](https://www.alarabiya.net/sport/2026/09/11/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%86%D8%A7%D9%81%D8%B3-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%A4%D8%A7%D9%85-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84)
+- **عمره 16 عاما لكنه يراوغ ويسجل كالكبار.. 3 منتخبات تتنافس على مزيان مسلوب صاحب الأصول الجزائرية**: [Link](https://www.aljazeera.net/sport/2026/9/11/%D9%84%D9%86%D8%B3-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%85%D8%B2%D9%8A%D8%A7%D9%86-%D9%85%D8%B3%D9%84%D9%88%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84)
+- **الموهبة مزيان مسلوب... ماذا تنتظر الفاف؟ – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A7%D9%84%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%B2%D9%8A%D8%A7%D9%86-%D9%85%D8%B3%D9%84%D9%88%D8%A8-%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D9%81%D8%A7%D9%81%D8%9F)
+
+
+### weather (N/A, Sat, 12 Sep 2026 23:50:00 -0700)
+
+- **Morning downpours, isolated flash flooding expected Sunday as fast-moving system sweeps in**: [Link](https://www.bostonglobe.com/2026/09/09/metro/boston-weekend-forecast-weather-dave-epstein/)
+- **Mass. weather: Flood watch issued ahead of soaking Sunday**: [Link](https://www.masslive.com/weather/2026/09/mass-weather-flood-watch-issued-ahead-of-soaking-sunday.html)
+- **A very soggy Sunday on the way with Flood Watches posted**: [Link](https://www.wtnh.com/weather/dry-and-seasonable-today-with-a-stormy-start-to-sunday-on-the-way/)
+
+
+### apple iphone 18 pro max (N/A, Sat, 12 Sep 2026 23:30:00 -0700)
+
+- **Apple debuts iPhone 18 Pro and iPhone 18 Pro Max**: [Link](https://www.apple.com/newsroom/2026/09/apple-debuts-iphone-18-pro-and-iphone-18-pro-max/)
+- **Apple A20 Pro beats M5 Max in peak single-core Geekbench 7 performance**: [Link](https://www.digitaltrends.com/phones/apple-a20-pro-beats-m5-max-in-peak-single-core-geekbench-7-performance/)
+- **How to Pay $0 Instead of $1,199 for the iPhone 18 Pro, and No, It Isn’t a Scam**: [Link](https://gizmodo.com/how-to-pay-0-instead-of-1199-for-the-iphone-18-pro-and-no-it-isnt-a-scam-2000810936)
+
+
+### météo (N/A, Sat, 12 Sep 2026 23:10:00 -0700)
+
+- **Nouvelle alerte pluie en Algérie : les régions concernées**: [Link](https://www.tsa-algerie.com/nouvelle-alerte-pluie-en-algerie-les-regions-concernees/)
+- **Météo : temps ensoleillé sur l’Ouest et le Centre et pluvieux sur l’Est**: [Link](https://lapatrienews.dz/meteo-temps-ensoleille-sur-louest-et-le-centre-et-pluvieux-sur-lest/)
+- **Des pluies orageuses pour ce samedi pouvant atteindre 50 mm**: [Link](http://news.radioalgerie.dz/fr/node/94176)
+
+
+### ayyoub bouaddi (N/A, Sat, 12 Sep 2026 22:30:00 -0700)
+
+- **Ayyoub Bouaddi opens up before his first Manchester derby**: [Link](https://mountakhab.net/en/ayyoub-bouaddi-opens-up-before-his-first-manchester-derby/)
+- **Maresca Predicts Ayoub Bouaddi Will Become One of Manchester City’s Best Players**: [Link](https://www.moroccoworldnews.com/2026/09/338057/maresca-predicts-ayoub-bouaddi-will-become-one-of-manchester-citys-best-players/)
+- **Bouadi on Haaland's Passing Observation: "He Spoke to Me About It, and I 100% Agree"**: [Link](https://m.elbotola.com/en/article/2026-09-12-18-33-483.html)
+
+
+### akdital (N/A, Sat, 12 Sep 2026 18:20:00 -0700)
+
+- **Akdital lance son academy pour structurer sa formation interne**: [Link](https://medias24.com/nativeads/akdital-lance-son-academy-pour-structurer-sa-formation-interne/)
+- **Akdital investit dans sa propre académie pour renforcer ses talents**: [Link](https://ledesk.ma/2026/09/10/akdital-investit-dans-sa-propre-academie-pour-renforcer-ses-talents/)
+- **AKDITAL lance une Academy pour structurer la formation de ses équipes**: [Link](https://mobile.telquel.ma/instant-t/2026/09/11/akdital-lance-une-academy-pour-structurer-la-formation-de-ses-equipes_2007243/)
+
+
 ### mls (N/A, Sat, 12 Sep 2026 19:20:00 -0700)
 
 - **Recap | Aaronson strikes, Whittaker and Abu Farkhi debut in Rapids' 1-0 victory over CF Montréal**: [Link](https://www.coloradorapids.com/news/recap-aaronson-strikes-whittaker-and-abu-farkhi-debut-in-rapids-1-0-victory-over-cf-montreal)
