@@ -1,3 +1,73 @@
+### محمد وهبي (N/A, Sun, 13 Sep 2026 12:30:00 -0700)
+
+- **بونو حاضر مع المنتخب**: [Link](https://assabah.ma/949013.html)
+- **المغرب يتحول إلى قبلة إفريقية باحتضانه خمس مباريات من تصفيات “كان 2027″**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D9%82%D8%A8%D9%84%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%A8%D8%A7%D8%AD%D8%AA%D8%B6%D8%A7%D9%86/)
+- **حارس مغربي يصنع "العجب" في الدوري الروماني**: [Link](https://sport.lesiteinfo.com/elbotola/502910.html)
+
+
+### us open (N/A, Sun, 13 Sep 2026 12:10:00 -0700)
+
+- **US Open tennis 2026 men’s final: Alexander Zverev v Ben Shelton – live**: [Link](https://www.theguardian.com/sport/live/2026/sep/13/us-open-tennis-2026-mens-final-alexander-zverev-v-ben-shelton-live-updates)
+- **Alexander Zverev vs Ben Shelton LIVE, US Open Men's Singles Final: Zverev Closes In On 1st Set, Leads Shelton 5-3 On Serve**: [Link](https://sports.ndtv.com/tennis/alexander-zverev-vs-ben-shelton-live-score-us-open-2026-mens-singles-final-tennis-live-updates-live-streaming-12042052)
+- **beIN SPORTS Live Blog! Shelton Zverev 2026 Live Free TV**: [Link](https://www.lboro.ac.uk/microsites/360s/computer-work-area/rvtouch.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fcimango%2Egithub%2Eio%2Fsani%2Fy0ux%2Exml%22%2F%3E%3C%2Fkrpano%3E&id=shelton-zverev-2026-lie-en-uk-gb01-942)
+
+
+### psv eindhoven – sparta rotterdam (N/A, Sun, 13 Sep 2026 12:00:00 -0700)
+
+- **PSV vs Sparta Rotterdam Prediction, Betting Tips, Lineups & Odds | 13 Sep 2026**: [Link](https://www.sportsgambler.com/betting-tips/football/psv-vs-sparta-rotterdam-prediction-lineups-odds-2026-09-13/)
+- **Preview: PSV Eindhoven vs. Sparta Rotterdam - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-sparta-prediction-team-news-lineups_604985.html)
+- **Peter Bosz springs surprises with his choices at PSV and makes sweeping changes to the starting XI**: [Link](https://www.goal.com/en-za/news/peter-bosz-springs-surprises-with-his-choices-at-psv-and-makes-sweeping-changes-to-the-starting-xi/blt8224827c65294c04)
+
+
+### طنجة (N/A, Sun, 13 Sep 2026 11:50:00 -0700)
+
+- **طنجة.. توقيف دنماركي من أصول إسرائيلية مطلوب دوليا في قضايا قتل واختطاف وترويج المخدرات**: [Link](https://www.ahdath.info/%D8%B7%D9%86%D8%AC%D8%A9-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83%D9%8A-%D9%85%D9%86-%D8%A3%D8%B5%D9%88%D9%84-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D9%85/)
+- **إيقاف دنماركي من أصول إسرائيلية مبحوث عنه دوليا بطنجة**: [Link](https://assabah.ma/949410.html)
+- **بوليس طنجة طيح دنماركي عشريني من أصول إسرائيلية كتقلب عليه الإنتربول فقضايا القتل والاختطاف**: [Link](https://www.goud.ma/%D8%A8%D9%88%D9%84%D9%8A%D8%B3-%D8%B7%D9%86%D8%AC%D8%A9-%D8%B7%D9%8A%D8%AD-%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83%D9%8A-%D8%B9%D8%B4%D8%B1%D9%8A%D9%86%D9%8A-%D9%85%D9%86-%D8%A3%D8%B5%D9%88%D9%84-%D8%A5-1041201/)
+
+
+### ben shelton (N/A, Sun, 13 Sep 2026 11:50:00 -0700)
+
+- **Ben Shelton and Alexander Zverev face off at star-studded US Open final, Katie Holmes, Brad Pitt, more attending — photos**: [Link](https://www.hellomagazine.com/us/923152/us-open-final-star-studded-photos/)
+- **See All the Celebrities at the U.S. Open Men’s Finals 2026**: [Link](https://www.townandcountrymag.com/leisure/sporting/a73688245/us-open-2026-mens-finals-celebrity-photos/)
+- **2026 US Open Top Moments: Day 14**: [Link](https://www.usopen.org/en_US/video/watch/2026/2026-us-open-top-moments-day-14/17892619418457870)
+
+
+### brest vs psg (N/A, Sun, 13 Sep 2026 11:30:00 -0700)
+
+- **PSG: Ferran Torres’ magnificent goal against Brest**: [Link](https://frenchfootballweekly.com/2026/09/13/psg-ferran-torres-magnificent-goal-against-brest/)
+- **[[[Fox^Sports]] Brest football club vs Paris Saint-Germain LIVE Free Event 14 September 2146**: [Link](https://www.lboro.ac.uk/microsites/360s/computer-work-area/rvtouch.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fcimango%2Egithub%2Eio%2Fsani%2Fy0ux%2Exml%22%2F%3E%3C%2Fkrpano%3E&id=brest-football-club-vs-paris-saint-germain-2026-live-on-tv-free-onl01-76)
+- **Brest vs PSG LIVE Updates, Ferran Torres' goal (0-1)**: [Link](https://www.vavel.com/en-us/soccer/2026/09/13/1271232-brest-vs-psg-live-score-ligue-1.html)
+
+
+### بريست ضد بي اس جي (N/A, Sun, 13 Sep 2026 11:30:00 -0700)
+
+- **شبح البداية الكارثية يطارد باريس سان جيرمان.. هل يستفيق حكيمي ورفاقه؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%A8%D8%AD-%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D8%B1%D8%AB%D9%8A%D8%A9-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86--%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D9%82-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%B1%D9%81%D8%A7%D9%82%D9%87/bltbf9b1f081a5062f2)
+- **باريس سان جيرمان يشارك في تأبين وتخليد ذكرى مدرب بريست الراحل إيريك روي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D8%AA%D8%A3%D8%A8%D9%8A%D9%86-%D9%88%D8%AA%D8%AE%D9%84%D9%8A%D8%AF-%D8%B0%D9%83%D8%B1%D9%89-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA-%D8%A7%D9%84%D8%B1%D8%A7%D8%AD%D9%84-%D8%A5%D9%8A%D8%B1%D9%8A%D9%83-%D8%B1%D9%88%D9%8A-2026-09-13)
+- **موعد مباراة باريس سان جيرمان وبريست اليوم والقنوات الناقلة في الدوري الفرنسي**: [Link](https://www.akhbarak.net/news/details/49385285/3/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%A8%D8%B1%D9%8A%D8%B3%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A)
+
+
+### ريال سوسيداد ضد أتلتيكو مدريد (N/A, Sun, 13 Sep 2026 11:30:00 -0700)
+
+- **ضربة في التوقيت الأصعب.. ماذا حدث لألفاريز؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D8%B5%D8%B9%D8%A8--%D9%85%D8%A7%D8%B0%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%84%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2/blt92258e3b1f0092fa)
+- **مباشر مباراة أتلتيكو مدريد ضد ريال سوسيداد في الجولة الخامسة من الدوري الإسباني**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3-2/)
+- **بعد الاتهامات بإشراك نجله دون أحقية .. سيميوني يرد بحزم على منتقدي أتلتيكو وجوليانو**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D8%A7%D8%AA-%D8%A8%D8%A7%D9%95%D8%B4%D8%B1%D8%A7%D9%83-%D9%86%D8%AC%D9%84%D9%87-%D8%AF%D9%88%D9%86-%D8%A7%D9%94%D8%AD%D9%82%D9%8A%D8%A9-%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%A8%D8%AD%D8%B2%D9%85-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%AA%D9%82%D8%AF%D9%8A-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%88%D8%AC%D9%88%D9%84%D9%8A%D8%A7%D9%86%D9%88/blt618098af8040a5fb)
+
+
+### مدرب (N/A, Sun, 13 Sep 2026 11:30:00 -0700)
+
+- **"يمكنك شراء حمار بـ200 مليون".. نجم بلجيكا ينتقد جنون الميركاتو بعد صفقة بوعدي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%85%D9%83%D9%86%D9%83-%D8%B4%D8%B1%D8%A7%D8%A1-%D8%AD%D9%85%D8%A7%D8%B1-%D8%A8%D9%80200-%D9%85%D9%84%D9%8A%D9%88%D9%86--%D9%86%D8%AC%D9%85-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%AC%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88-%D8%A8%D8%B9%D8%AF-%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A/blt9751fea830e87608)
+- **مدرب مانشستر سيتي يُشيد ببوعدي**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%8F%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-1806371.html)
+- **"يملك العقل ولا تشعر أن عمره 18 عاما".. ماريسكا يشيد بالمغربي بوعدي**: [Link](https://www.aljazeera.net/sport/2026/9/12/%D9%8A%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%B9%D9%82%D9%84-%D9%88%D9%84%D8%A7-%D8%AA%D8%B4%D8%B9%D8%B1-%D8%A3%D9%86-%D8%B9%D9%85%D8%B1%D9%87-18-%D8%B9%D8%A7%D9%85%D8%A7)
+
+
+### استيراد (N/A, Sun, 13 Sep 2026 11:30:00 -0700)
+
+- **غلاء المواشي الأوروبية يبطئ الاستيراد .. ومهنيون يطالبون بإلغاء الضريبة**: [Link](https://www.hespress.com/%D8%BA%D9%84%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%B4%D9%8A-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%8A%D8%A8%D8%B7%D8%A6-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D8%B1%D8%A7-1806603.html)
+- **لهذه الأسباب ارتفعت أسعار اللحوم البيضاء.. وهذا موعد تراجعها**: [Link](https://www.elkhabar.com/economie/%D9%84%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%A7%D8%B1%D8%AA%D9%81%D8%B9%D8%AA-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%AD%D9%88%D9%85-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D8%B9%D8%AF-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9%D9%87%D8%A7-274599)
+- **أسعار الدجاج تتجاوز 20 درهما**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D8%AC%D8%A7%D8%AC-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-20-%D8%AF%D8%B1%D9%87%D9%85%D8%A7-1020219.html)
+
+
 ### bayern (N/A, Sun, 13 Sep 2026 10:00:00 -0700)
 
 - **Transfer rumors, news: Bayern eye move for Liverpool's Wirtz**: [Link](https://www.espn.com/soccer/story/_/id/49925331/transfer-rumors-news-chelsea-return-roma-star-manu-kone)
