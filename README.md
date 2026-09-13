@@ -1,3 +1,71 @@
+### rb leipzig – hambourg (N/A, Sun, 13 Sep 2026 07:20:00 -0700)
+
+
+
+
+### levante (N/A, Sun, 13 Sep 2026 07:10:00 -0700)
+
+- **The squad for Levante v Barça**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4575331/the-squad-for-levante-v-barca)
+- **Barcelona squad includes Hamza Abdelkarim: and the return of the man in the mask**: [Link](https://www.goal.com/en/news/barcelona-squad-includes-hamza-abdelkarim-and-the-return-of-the-man-in-the-mask/bltc477ef1e61eed69f)
+- **Final preparations for Levante without Bisiwu**: [Link](https://www.mundodeportivo.com/en/20260912/1004226333/final-preparations-for-levante-without-bisiwu.html)
+
+
+### levante - barcelona (N/A, Sun, 13 Sep 2026 06:40:00 -0700)
+
+- **Levante - Barcelona hoy, en directo: partido de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/levante-barcelona-hoy-en-directo-partido-de-laliga-ea-sports-en-vivo-f202609-d/)
+- **Preparativos finales para Levante sin Bisiwu**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260912/1004226258/preparativos-finales-levante-bisiwu.html)
+- **Levante - Barcelona, en directo hoy: partido de LaLiga EA Sports, en vivo**: [Link](https://www.sport.es/es/noticias/barca/levante-barcelona-directo-hoy-partido-134237044)
+
+
+### exportation (N/A, Sun, 13 Sep 2026 06:40:00 -0700)
+
+- **Deux mois après leur réouverture, le Maroc pourrait rebloquer ses exportations d’oignons**: [Link](https://www.bladi.net/deux-mois-reouverture-maroc-pourrait-rebloquer-exportations-oignons,123722.html)
+- **Diapo. Import-export: la balance commerciale, révélatrice des stratégies et des fragilités de ces 10 pays africains**: [Link](https://afrique.le360.ma/economie/diapo-import-export-la-balance-commerciale-revelatrice-des-strategies-et-des-fragilites-de-ces-10_SLOHKKGSRBHNDDKLH44NLPMLL4/)
+- **Zlecaf : L’Afrique change d’échelle**: [Link](https://www.lavieeco.com/affaires/echanges/zlecaf-lafrique-change-dechelle/)
+
+
+### levante – barcelone (N/A, Sun, 13 Sep 2026 06:30:00 -0700)
+
+- **Levante - FC Barcelone, La Liga, match en direct le 13/09/2026**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/levante-fc-barcelone-live/693121)
+- **Levante - FC Barcelone : les compositions officielles**: [Link](https://www.footmercato.net/a5155802325976580127-levante-fc-barcelone-les-compositions-officielles)
+- **La liste du Barça inclut Hamza Abdelkerim, et le retour de l'homme au masque**: [Link](https://fr.news.yahoo.com/sport/liste-bar%C3%A7a-inclut-hamza-abdelkrim-144430148.html)
+
+
+### ليفانتي ضد برشلونة (N/A, Sun, 13 Sep 2026 06:30:00 -0700)
+
+- **كانسيلو بديلا.. فليك يعلن تشكيل برشلونة لمباراة ليفانتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D9%86%D8%B3%D9%8A%D9%84%D9%88-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A/blt1a56734c7460b1c6)
+- **برشلونة يحل ضيفاً على ليفانتي لمواصلة انطلاقته القوية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A7-%D8%B9%D9%84%D9%89-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A-%D9%84%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D9%82%D9%88%D9%8A%D8%A9-2026-09-13)
+- **ماركا: لاعب برشلونة يمثل عائقًا أمام حمزة عبد الكريم**: [Link](https://twaslnews1.twaslnews.com/4918910/)
+
+
+### levante vs barcelona (N/A, Sun, 13 Sep 2026 06:30:00 -0700)
+
+- **Ver Barcelona vs Levante en Fútbol Libre o Roja Directa daña el dispositivo y expone contraseñas**: [Link](https://www.infobae.com/tecno/2026/09/13/ver-barcelona-vs-levante-en-futbol-libre-o-roja-directa-dana-el-dispositivo-y-expone-contrasenas/)
+- **Así funciona la estafa del fútbol gratis: la Guardia Civil alerta de aplicaciones falsas para robar a aficionados**: [Link](https://www.lasprovincias.es/sociedad/funciona-estafa-futbol-gratis-guardia-civil-alerta-20260904003734-nt.html)
+- **Ver fútbol alemán en Fútbol Libre, Pelota Libre o Xuper TV en vivo y gratis online es un riesgo: por dónde hacerlo de manera legal**: [Link](https://www.eldestapeweb.com/deportes/ver-futbol-aleman-futbol-libre-pelota-libre-xuper-tv-riesgo-2026910113511)
+
+
+### formula 1 (N/A, Sun, 13 Sep 2026 06:30:00 -0700)
+
+- **Norris denies Antonelli pole position for Spanish GP in closely-fought Qualifying in Madrid**: [Link](https://www.formula1.com/en/latest/article/norris-denies-antonelli-pole-position-for-spanish-gp-in-closely-fought-qualifying-in-madrid.5AqJXaE8s1sLfv8dJVLqty)
+- **F1 qualifying LIVE: Spanish Grand Prix 2026 times, results, radio & updates from Madrid**: [Link](https://www.bbc.com/sport/formula1/live/c5yvxd2x8xkt)
+- **What impressed team principal Stella most about Lando Norris’s fabulous lap**: [Link](https://www.speedweek.com/en/a/formula-1/lando-norris-pole-spain-gp-stella)
+
+
+### coventry city – brighton (N/A, Sun, 13 Sep 2026 05:50:00 -0700)
+
+- **Premier League: Brighton dominating early on at Coventry**: [Link](https://www.bbc.com/sport/football/live/cq4g7z2yv2n4t)
+- **Coventry vs Brighton 6/1 bet builder tips**: [Link](https://talksport.com/betting/4574975/coventry-vs-brighton-bet-builder-tips/)
+- **Brighton's Starting XI the Last Time Albion Faced Coventry in the League (2011)**: [Link](https://sports.yahoo.com/articles/brightons-starting-xi-last-time-115432089.html)
+
+
+### lille – troyes (N/A, Sun, 13 Sep 2026 05:40:00 -0700)
+
+- **DIRECT. Lille - Troyes, Ligue 1 : Mi-temps (1-0)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/lille-troyes-live/690290)
+- **Lille - Troyes en direct : suivez la Ligue 1 2026-2027**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-lille-osc-troyes_mtc21875674/live-commentary.shtml)
+- **LOSC - ESTAC : date, heure, streaming et comment regarder en direct la Ligue 1 McDonald’s sur Ligue 1+, disponible sur DAZN**: [Link](https://www.dazn.com/fr-FR/news/football/losc-estac-date-heure-streaming-et-comment-regarder-en-direct-la-ligue-1-mcdonalds-sur-ligue-1-disponible-sur-dazn/1w00ce62g3hzs1fugqk4380uvi)
+
+
 ### charles sapin (N/A, Sun, 13 Sep 2026 03:00:00 -0700)
 
 - **« C’est révoltant » : 300 personnalités protestent contre l’arrivée de Charles Sapin de Valeurs actuelles sur France Inter**: [Link](https://www.leparisien.fr/culture-loisirs/tv/cest-revoltant-300-personnalites-protestent-contre-larrivee-de-charles-sapin-de-valeurs-actuelles-sur-france-inter-12-09-2026-W3QNYHTNOFBIBAVEAQXRTIXGJA.php)
