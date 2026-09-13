@@ -1,3 +1,73 @@
+### real sociedad vs atlético madrid standings (N/A, Sun, 13 Sep 2026 14:30:00 -0700)
+
+- **Real Sociedad vs Atletico Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck1e5j6ydjq1t)
+- **Club Atlético de Madrid - Here's our starting XI vs Real Sociedad**: [Link](https://en.atleticodemadrid.com/noticias/here-s-our-starting-xi-vs-real-sociedad-13)
+- **How will Atlético Madrid line up for LaLiga clash at Real Sociedad?**: [Link](https://www.intothecalderon.com/previews/27731/real-sociedad-atletico-de-madrid-preview-team-news-score-prediction-la-liga)
+
+
+### stade brestois vs psg standings (N/A, Sun, 13 Sep 2026 14:20:00 -0700)
+
+- **Sunday's Ligue 1 predictions including Brest vs. Paris Saint-Germain**: [Link](https://www.sportsmole.co.uk/football/psg/feature/will-psg-finally-win-sundays-ligue-1-predictions_605037.html)
+- **Criticism 'has to make PSG get better', insists Luis Enrique**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/criticism-has-to-make-psg-get-better-insists-luis-enrique-2026-09-12)
+- **Stade Brestois 29 vs Paris Saint Germain – Prediction, Where to Watch, Kick-off Time and Lineups 13-09**: [Link](https://oddsscanner.com/predictions/football/stade-brestois-29-x-paris-saint-germain-13-09-2026)
+
+
+### إسبانيا (N/A, Sun, 13 Sep 2026 14:00:00 -0700)
+
+- **سبتة تقوم بترحيل "آلاف المقتحمين"**: [Link](https://www.hespress.com/%D8%B3%D8%A8%D8%AA%D8%A9-%D8%AA%D9%82%D9%88%D9%85-%D8%A8%D8%AA%D8%B1%D8%AD%D9%8A%D9%84-%D8%A2%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D9%85%D9%82%D8%AA%D8%AD%D9%85%D9%8A%D9%86-1806785.html)
+- **المغرب يحبط 73 ألف محاولة للهجرة غير النظامية ويفكك 300 شبكة تهريب خلال سنة واحدة**: [Link](https://ar.telquel.ma/%D8%AD%D8%A7%D9%83%D9%85-%D8%B3%D8%A8%D8%AA%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%AE%D9%8A%D8%A8%D8%A9-%D8%A3%D9%85%D9%84-%D9%85%D9%86-%D8%A8%D8%B1%D9%88%D9%83%D8%B3%D9%8A%D9%84-%D8%A7%D9%84/)
+- **🔥عودة 5321 مهاجرا من سبتة وألف شخص في الطريق**: [Link](https://tanja7.com/191712/)
+
+
+### sassuolo vs juventus (N/A, Sun, 13 Sep 2026 13:40:00 -0700)
+
+- **Serie A official line-ups: Sassuolo vs. Juventus**: [Link](https://football-italia.net/serie-a-official-line-ups-sassuolo-vs-juventus/)
+- **Juventus, a defeat caused by confusion, arrogance and Spalletti’s wrong choices. Adzic scores... and David scores too!**: [Link](https://www.goal.com/en/lists/juventus-a-defeat-born-of-confusion-arrogance-and-spalletti-s-wrong-choices-adzic-scores-and-david-scores-too/bltf05d0d56bca7d4e4)
+- **Juventus make unfortunate history by failing to start a single Italian outfield player**: [Link](https://onefootball.com/en/news/juventus-make-unfortunate-history-by-failing-to-start-a-single-italian-outfield-player-43454004)
+
+
+### نادي الوداد الرياضي (N/A, Sun, 13 Sep 2026 13:20:00 -0700)
+
+- **الصنايبي "ليس ناطقا رسميا" للوداد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B5%D9%86%D8%A7%D9%8A%D8%A8%D9%8A-%D9%84%D9%8A%D8%B3-%D9%86%D8%A7%D8%B7%D9%82%D8%A7-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%84%D9%84%D9%88%D8%AF%D8%A7%D8%AF-1806424.html)
+- **الجماهير ترفضه.. الوداد يتراجع عن تعيين الناطق الرسمي الجديد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%AA%D8%B1%D9%81%D8%B6%D9%87-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D9%86-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/25276)
+- **العسري يتراجع سريعًا.. غضب الجماهير يربك حسابات إدارة الوداد**: [Link](https://ar.sport.le360.ma/football/23ONEN5Y55DCPGEQYJFCIIP7RU/)
+
+
+### الطقس غدًا (N/A, Sun, 13 Sep 2026 13:00:00 -0700)
+
+- **«سبتمبر ينتصر على أغسطس».. تحذير من حالة الطقس: الحرارة تقفز لـ 46**: [Link](https://www.almasryalyoum.com/news/details/4357976)
+- **الأرصاد تحذر من شبورة كثيفة وضباب صباح الاثنين.. والعظمى بالقاهرة 35 درجة**: [Link](https://www.youlyou.com/53087)
+- **شأنها شمس ساطعة وسماء صافية في مختلف المناطق**: [Link](https://akher.news/25415/%D8%B4%D8%A3%D9%86%D9%87%D8%A7-%D8%B4%D9%85%D8%B3-%D8%B3%D8%A7%D8%B7%D8%B9%D8%A9-%D9%88%D8%B3%D9%85%D8%A7%D8%A1-%D8%B5%D8%A7%D9%81%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%AE%D8%AA%D9%84%D9%81-%D8%A7%D9%84/)
+
+
+### wetter morgen (N/A, Sun, 13 Sep 2026 13:00:00 -0700)
+
+- **Das Wetter für den 14. September**: [Link](https://www.butenunbinnen.de/videos/wetter-15824.html)
+- **Wetter morgen am Montag: Regen zieht ab – Sonne und Wolken im Wechselspiel**: [Link](https://www.wetter.com/news/wetterbericht-fuer-morgen-montag-14-september-regen-zieht-ab-sonne-und-wolken-im-wechselspiel_aid_6aa63c457974c41fc50ca102.html)
+- **Neue Woche bringt wechselhaftes und kühleres Wetter**: [Link](https://www.radioduisburg.de/dpa/neue-woche-bringt-wechselhaftes-und-kuehleres-wetter-2747727)
+
+
+### météo demain (N/A, Sun, 13 Sep 2026 12:50:00 -0700)
+
+- **C'est confirmé : la France connaîtra mardi 15 septembre l'une des anomalies de chaleur les plus extrêmes d'Europe**: [Link](https://www.tameteo.com/actualites/previsions/c-est-confirme-la-france-connaitra-mardi-15-septembre-l-une-des-anomalies-de-chaleur-les-plus-extremes-d-europe-previsions-meteo-temperatures.html)
+- **Météo aujourd'hui : entre lunettes de soleil et parapluie**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-09-12/meteo-aujourd-hui-entre-lunettes-de-soleil-et-parapluie-92216)
+- **Météo : beau temps et chaleur avant un retour aux normales de saison, quel temps pour cette semaine**: [Link](https://www.ici.fr/infos/meteo/meteo-beau-temps-et-chaleur-avant-un-retour-aux-normales-de-saison-quel-temps-pour-cette-semaine-2127662)
+
+
+### سفيان بوفال (N/A, Sun, 13 Sep 2026 12:50:00 -0700)
+
+- **براتب خيالي في ليبيا.. سفيان بوفال يحط في طرابلس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%A7%D8%AA%D8%A8-%D8%AE%D9%8A%D8%A7%D9%84%D9%8A-%D9%81%D9%8A-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7--%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%88%D9%81%D8%A7%D9%84-%D9%8A%D8%AD%D8%B7-%D9%81%D9%8A-%D8%B7%D8%B1%D8%A7%D8%A8%D9%84%D8%B3/blt523ea5dbc76a0a94)
+- **بوفال يصل إلى طرابلس لتوقيع عقد انضمامه إلى الاتحاد الليبي**: [Link](https://www.ahdath.info/%D8%A8%D9%88%D9%81%D8%A7%D9%84-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D8%B7%D8%B1%D8%A7%D8%A8%D9%84%D8%B3-%D9%84%D8%AA%D9%88%D9%82%D9%8A%D8%B9-%D8%B9%D9%82%D8%AF-%D8%A7%D9%86%D8%B6%D9%85%D8%A7%D9%85/)
+- **نجم الأسود في مونديال قطر يستعد للانتقال إلى ناد ليبي**: [Link](https://sport.lesiteinfo.com/internationaux/502986.html)
+
+
+### weather tomorrow (N/A, Sun, 13 Sep 2026 12:40:00 -0700)
+
+- **The scorching heat is finally leaving, temperatures will drop below 30 degrees next week**: [Link](https://www.gazetaexpress.com/en/The-intense-heat-is-finally-leaving--temperatures-will-drop-below-30-degrees-next-week./)
+- **Weather Tomorrow and the following Days**: [Link](https://periskopi.com/en/2026/9/weather-tomorrow-days)
+- **Javën e ardhshme temperaturat deri në 29 gradë celsius**: [Link](https://reporteri.net/en/NEWS/Next-week-temperatures-up-to-29-degrees-Celsius/)
+
+
 ### محمد وهبي (N/A, Sun, 13 Sep 2026 12:30:00 -0700)
 
 - **بونو حاضر مع المنتخب**: [Link](https://assabah.ma/949013.html)
