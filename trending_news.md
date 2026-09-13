@@ -1,3 +1,17 @@
+### عز الدين أوناحي (N/A, Sun, 13 Sep 2026 15:10:00 -0700)
+
+- **أوناحي يسجل لفريق "باناثينايكوس"**: [Link](https://www.hespress.com/%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%A8%D8%A7%D9%86%D8%A7%D8%AB%D9%8A%D9%86%D8%A7%D9%8A%D9%83%D9%88%D8%B3-1806983.html)
+- **أوناحي يكتب أول سطر في حكايته مع باناثينايكوس: بصمة أولى في ليلة الثلاثية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D9%83%D8%AA%D8%A8-%D8%A7%D9%94%D9%88%D9%84-%D8%B3%D8%B7%D8%B1-%D9%81%D9%8A-%D8%AD%D9%83%D8%A7%D9%8A%D8%AA%D9%87-%D9%85%D8%B9-%D8%A8%D8%A7%D9%86%D8%A7%D8%AB%D9%8A%D9%86%D8%A7%D9%8A%D9%83%D9%88%D8%B3-%D8%A8%D8%B5%D9%85%D8%A9-%D8%A7%D9%94%D9%88%D9%84%D9%89-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9/blt8813390678ecd204)
+- **عز الدين أوناحي يدشن عودته لباناثينايكوس بهدف ويقود فريقه لفوز عريض**: [Link](https://radiomars.ma/%D8%B9%D8%B2-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A3%D9%88%D9%86%D8%A7%D8%AD%D9%8A-%D9%8A%D8%AF%D8%B4%D9%86-%D8%B9%D9%88%D8%AF%D8%AA%D9%87-%D9%84%D8%A8%D8%A7%D9%86%D8%A7%D8%AB%D9%8A%D9%86%D8%A7%D9%8A/)
+
+
+### bouaddi (N/A, Sun, 13 Sep 2026 14:10:00 -0700)
+
+- **Ayyoub Bouaddi opens up before his first Manchester derby**: [Link](https://mountakhab.net/en/ayyoub-bouaddi-opens-up-before-his-first-manchester-derby/)
+- **Anderson Hails Bouaddi After Porto Display: ‘He’s Such a Good Player’**: [Link](https://www.moroccoworldnews.com/2026/09/338131/anderson-hails-bouaddi-after-porto-display-hes-such-a-good-player/)
+- **Bouadi on Haaland's Passing Observation: "He Spoke to Me About It, and I 100% Agree"**: [Link](https://m.elbotola.com/en/article/2026-09-12-18-33-483.html)
+
+
 ### real sociedad vs atlético madrid standings (N/A, Sun, 13 Sep 2026 14:30:00 -0700)
 
 - **Real Sociedad vs Atletico Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck1e5j6ydjq1t)
