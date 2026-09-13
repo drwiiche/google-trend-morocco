@@ -1,3 +1,31 @@
+### إنتر ميامي ضد ناشفيل (N/A, Sat, 12 Sep 2026 17:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي وناشفيل في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta128ecd1bdb3548f)
+- **معاينة مباراة إنتر ميامي ضد ناشفيل إس سي: اشتدت المنافسة على المركز الأول.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-inter-miami-vs-nashville-sc-cuoc-dua-ngoi-dau-nong-len)
+- **كيفية مشاهدة البث المباشر لمباراة إنتر ميامي وناشفيل في الدوري الأمريكي 2026**: [Link](https://akhbarak.net/news/details/49384378/3/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%A7%D9%84%D8%A8%D8%AB-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026)
+
+
+### ryan garcia (N/A, Sat, 12 Sep 2026 16:30:00 -0700)
+
+- **Andrea Celina, Ryan Garcia’s Ex-Wife & Children: 5 Fast Facts You Need to Know**: [Link](https://heavy.com/sports/boxing/ryan-garcia-ex-wife-children-kids-andrea-celina/)
+- **Ryan Garcia Parents & Family: 5 Fast Facts You Need to Know**: [Link](https://heavy.com/sports/boxing/ryan-garcia-familly-parents/)
+- **Results + Scorecards | Garcia vs Benn**: [Link](https://www.ufc.com/news/garcia-vs-benn-results)
+
+
+### celine dion (N/A, Sat, 12 Sep 2026 14:50:00 -0700)
+
+- **Celine Dion Delivers Tearful Speech on Opening Night of Paris Residency: ‘I Had Promised Myself Not to Cry’**: [Link](https://variety.com/2026/music/news/celine-dion-emotional-speech-opening-night-paris-residency-1236859560/)
+- **Venice Film Festival 2026, «Woman Unknown» of May el-Toukhy wins the Golden Lion**: [Link](https://news.inbox.eu/150qm7c-venice-film-festival-2026-woman-unknown-of-may-el-toukhy-wins-the-golden-lion?language=en)
+- **Licensable video: Queues to music in Nanterre (France) for Céline Dion's first full concert in six years**: [Link](https://www.reutersconnect.com/item/queues-to-music-in-nanterre-france-for-celine-dions-first-full-concert-in-six-years/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzU1MDIxMzgzNjUzMDAx)
+
+
+### real madrid vs rayo vallecano standings (N/A, Sat, 12 Sep 2026 14:20:00 -0700)
+
+- **Real Madrid vs Rayo Vallecano, 2026 La Liga: Predicted lineups**: [Link](https://sports.yahoo.com/articles/real-madrid-vs-rayo-vallecano-063703906.html)
+- **Real Madrid Defeats Rayo Vallecano (4-1), Climbs to Second in La Liga Standings**: [Link](https://m.elbotola.com/en/article/2026-09-12-21-03-303.html)
+- **Mbappe and Bellingham on target as Real Madrid thrash Rayo Vallecano**: [Link](https://www.bbc.com/sport/football/live/cr1e50y62d1dt)
+
+
 ### inter miami – nashville (N/A, Sat, 12 Sep 2026 15:50:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Hosts Nashville SC This Saturday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-nashville-sc-this-saturday)
