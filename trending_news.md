@@ -1,3 +1,17 @@
+### mls (N/A, Sat, 12 Sep 2026 19:20:00 -0700)
+
+- **Recap | Aaronson strikes, Whittaker and Abu Farkhi debut in Rapids' 1-0 victory over CF Montréal**: [Link](https://www.coloradorapids.com/news/recap-aaronson-strikes-whittaker-and-abu-farkhi-debut-in-rapids-1-0-victory-over-cf-montreal)
+- **MLS Montreal Rapids Soccer**: [Link](https://www.daytondailynews.com/nation-world/mls-montreal-rapids-soccer/image_34518f01-b450-577b-9dbe-e390bb261526.html)
+- **MLS Montreal Rapids Soccer**: [Link](https://www.springfieldnewssun.com/nation-world/mls-montreal-rapids-soccer/image_7b8c065b-ab03-5c76-b84f-9f93dd479df8.html)
+
+
+### crise migratoire (N/A, Sat, 12 Sep 2026 16:50:00 -0700)
+
+- **[Tribune] Sebta : quand la quête de libertés individuelles pousse à l’exil**: [Link](https://mobile.telquel.ma/2026/09/11/tribune-sebta-quand-la-quete-de-libertes-individuelles-pousse-a-lexil_2007185)
+- **La crise migratoire de Sebta commence à toucher le tourisme au Maroc**: [Link](https://www.bladi.net/crise-migratoire-sebta-commence-toucher-tourisme-maroc,123718.html)
+- **Sebta : l'enclave de plus en plus en proie aux actes de violence**: [Link](https://lopinion.ma/fr/actu-maroc/sebta--lenclave-de-plus-en-plus-en-proie-aux-actes-de-violence-_a26134?articleId=46258b94-f4f8-495b-a1bf-9ca8e6fe68ca)
+
+
 ### إنتر ميامي ضد ناشفيل (N/A, Sat, 12 Sep 2026 17:10:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر ميامي وناشفيل في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D8%A7%D8%B4%D9%81%D9%8A%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta128ecd1bdb3548f)
