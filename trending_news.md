@@ -1,3 +1,71 @@
+### bayern (N/A, Sun, 13 Sep 2026 10:00:00 -0700)
+
+- **Transfer rumors, news: Bayern eye move for Liverpool's Wirtz**: [Link](https://www.espn.com/soccer/story/_/id/49925331/transfer-rumors-news-chelsea-return-roma-star-manu-kone)
+- **Liverpool Emerge As ‘Rival Suitor’ for Two Chelsea Midfield Targets**: [Link](https://www.si.com/soccer/liverpool-emerge-rival-suitor-two-chelsea-midfield-targets)
+- **Flashscore sources: Roma star is main Chelsea transfer alternative to Alex Scott**: [Link](https://www.flashscore.com/news/soccer-premier-league-flashscore-sources-roma-star-is-main-chelsea-transfer-alternative-to-alex-scott/INwIS0AD/)
+
+
+### إدوارد ميندي (N/A, Sun, 13 Sep 2026 09:50:00 -0700)
+
+- **بأحزان مصر والمغرب.. إدوارد ميندي يعلن اعتزال اللعب مع السنغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%94%D8%AD%D8%B2%D8%A7%D9%86-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D8%A7%D9%95%D8%AF%D9%88%D8%A7%D8%B1%D8%AF-%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/blt6e2cfa5d93634092)
+- **إدوارد ميندي يعلن اعتزاله اللعب الدولي مع منتخب السنغال**: [Link](https://twaslnews1.twaslnews.com/4928874/)
+- **تقارير: ميندي يعتزل اللعب الدولي**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=13092026&id=86c57f0b-5ea6-4aa5-930a-58238eadbaa5)
+
+
+### classement (N/A, Sun, 13 Sep 2026 09:30:00 -0700)
+
+- **Opportuniste, Kimi Antonelli remporte le premier GP d'Espagne au Madring devant Max Verstappen et Lando Norris**: [Link](https://www.lequipe.fr/Formule-1/Actualites/Opportuniste-kimi-antonelli-remporte-le-premier-gp-au-madring-devant-verstappen-et-norris/1718442)
+- **LIVE F1 - Suivez le GP d'Espagne en direct | Live Texte**: [Link](https://fr.motorsport.com/f1/live-text/f1-spanish-gp-follow-the-race-in-madrid-with-live-timing/1127779/)
+- **F1 : Norris réalise le hold-up parfait et signe la pole devant Antonelli, Verstappen et Hamilton**: [Link](https://lemagsportauto.ouest-france.fr/f1-norris-realise-le-hold-up-parfait-et-signe-la-pole-devant-antonelli-verstappen-et-hamilton/122266/)
+
+
+### getafe – deportivo (N/A, Sun, 13 Sep 2026 09:20:00 -0700)
+
+- **Getafe - Deportivo en directo: LaLiga EA Sports hoy, en vivo**: [Link](https://as.com/futbol/primera/getafe-deportivo-en-directo-laliga-ea-sports-hoy-en-vivo-f202609-d/)
+- **Hidalgo se mira en el espejo de Bordalás**: [Link](https://www.epe.es/es/madrid/20260913/hidalgo-mira-espejo-bordalas-getafe-deportivo-134213162)
+- **El 1x1 del rival: Nuevos nombres, mismo idioma**: [Link](https://dxtcampeon.elidealgallego.com/deportivo/rivales/2026-09-13/el-1x1-del-rival-nuevos-nombres-mismo-idioma-878650.html)
+
+
+### city vs (N/A, Sun, 13 Sep 2026 09:20:00 -0700)
+
+- **Wayne Rooney and Gary Neville clash over Phil Foden's controversial red card in Manchester derby**: [Link](https://www.goal.com/en/lists/wayne-rooney-gary-neville-clash-over-phil-foden-controversial-red-card-manchester-derby/blt3b7722a238ccf9d0)
+- **Premier League - Manchester United v Manchester City**: [Link](https://www.reutersconnect.com/item/premier-league-manchester-united-v-manchester-city/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOUQxOENUNTM)
+- **Phil Foden controversially sent off vs Man Utd as Erling Haaland rages at Man City star**: [Link](https://www.express.co.uk/sport/football/2248200/Phil-Foden-red-card-Man-Utd-City)
+
+
+### bayern munich (N/A, Sun, 13 Sep 2026 09:20:00 -0700)
+
+- **Bayern Munich ready to pounce if Liverpool lose faith in Florian Wirtz**: [Link](https://www.teamtalk.com/liverpool/florian-wirtz-news-transfer-exit-bayern-munich-interest-sources)
+- **Following the difficult start: Bayern Munich monitoring Liverpool star**: [Link](https://www.goal.com/en/news/after-the-difficult-start-bayern-munich-monitor-liverpool-star/bltde451663617abd3f)
+- **Bayern Munich 'ready' to sign Liverpool star on one condition as 'concerns' revealed**: [Link](https://www.football365.com/news/bayern-munich-ready-sign-liverpool-star-one-condition-concerns-anfield-revealed)
+
+
+### man city vs man united (N/A, Sun, 13 Sep 2026 09:00:00 -0700)
+
+- **[LIVESTREAM]TV!!] EPL: Man City v Man United 𝐋𝐈𝐕𝐄 Stream ＯＮ Ｔｖ Ｃｈａｎｎｅｌ 13 September 2026**: [Link](https://www.lboro.ac.uk/microsites/360s/computer-work-area/rvtouch.html?xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/sportb133.github.io/tapvideo/video%22/%3E%3C/krpano%3E&id=video-LIVESTREAM-TV-EPL-Man-City-v-Man-United-Stream-September-01)
+- **[WATCHLIVE]ＴＯＤＡＹ!] United City Live free tv! 29 august 2026**: [Link](https://www.lboro.ac.uk/microsites/360s/computer-work-area/rvtouch.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22/%5C/espnhub.github.io/antsports/file.xml%22/%3E%3C/krpano%3E&id=united-city-liv-epl-on-ustv-1176-ezuok21594)
+- **[𝐒𝐓ream]HERE’S*!Simple WaY TO WATCH Manchester United vs Manchester City 𝕃𝕚𝕧𝕖 𝒮𝒯𝑅𝐸𝒜𝑀𝒮 Derby it's *FREE**: [Link](https://www.lboro.ac.uk/microsites/360s/computer-work-area/rvtouch.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fajebaje.pro%2Fre%2Fimg.php%22%2F%3E%3C%2Fkrpano%3E&id=manchester-united-vs-manchester-city-2dfgsdfgsdfg)
+
+
+### bundesliga (N/A, Sun, 13 Sep 2026 09:00:00 -0700)
+
+- **$√→[ÜbertragungTV]@!!]Hier läuft RB Leipzig gegen den Hamburg live im TV und Stream**: [Link](https://www.lboro.ac.uk/microsites/360s/computer-work-area/rvtouch.html?&xml=data:gsf,%3Ckrpano%3E%3Cinclude%20url%3D%22%2F%5C%2Fhqdtv.com%2Ffiles%2Fnu.xml%22%2F%3E%3C%2Fkrpano%3E&id=rb-leipzig-hamburg-im-live-004)
+- **Bundesliga im Liveticker: SV 07 Elversberg gegen Bayern München**: [Link](https://www.zdfheute.de/sport/fussball-bundesliga/sv-07-elversberg-bayern-muenchen-liveticker-bundesliga-highlights-saison-2026-27-102.html)
+- **Rômulo meldet sich mit Tor zurück**: [Link](https://www.ligainsider.de/romulo-cardoso_38565/romulo-meldet-sich-mit-tor-zurueck-418078/)
+
+
+### maison (N/A, Sun, 13 Sep 2026 09:00:00 -0700)
+
+- **Alors qu’un feu ravage une maison à Honnelles, la bouche incendie ne fonctionne pas : « C’est une question de sécurité publique ! »**: [Link](https://www.sudinfo.be/id1193200/article/2026-09-13/alors-quun-feu-ravage-une-maison-honnelles-la-bouche-incendie-ne-fonctionne-pas)
+- **Un incendie dans une maison squattée à Fosses-la-Ville**: [Link](https://www.lavenir.net/regions/namur/2026/09/13/incendie-dans-une-maison-squattee-a-fosses-la-ville-4ALLK5O6W5GKNOHJNT34W6MNNI/)
+- **Deux mois après l’incendie, l’association La voix des femmes regagne en partie le pôle de cohésion sociale, à Hérouville**: [Link](https://www.ouest-france.fr/associations/deux-mois-apres-lincendie-lassociation-la-voix-des-femmes-regagne-en-partie-le-pole-de-cohesion-sociale-a-herouville-84e062c2-ad34-11f1-8346-c9d5c99462af)
+
+
+### le mans – lens (N/A, Sun, 13 Sep 2026 08:40:00 -0700)
+
+
+
+
 ### rb leipzig – hambourg (N/A, Sun, 13 Sep 2026 07:20:00 -0700)
 
 
