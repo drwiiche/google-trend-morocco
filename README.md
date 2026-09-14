@@ -1,3 +1,73 @@
+### فياريال ضد ريال بتيس (N/A, Mon, 14 Sep 2026 11:20:00 -0700)
+
+- **موعد مشاهدة بث مباشر مباراة فياريال وريال بيتيس اليوم في الدوري الإسباني**: [Link](https://www.cairo24.com/2494404)
+- **القنوات الناقلة لمباراة فياريال ضد ريال بيتيس اليوم في الدوري الإسباني مع الموعد والتشكيلة**: [Link](https://www.almashhad.com/article/218257510540304-sports/462051146875379-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9/)
+- **تشكيلة مباراة فياريال وريال بيتيس | الدوري الإسباني · 14 سبتمبر 2026**: [Link](https://www.ysscores.com/ar/lineup/5868060/Villarreal-CF-vs-Real-Betis-Balompi%C3%A9)
+
+
+### leeds united – newcastle (N/A, Mon, 14 Sep 2026 11:20:00 -0700)
+
+- **No Home Wins? 26-Year Premier League Wait Could End on Monday Night**: [Link](https://theanalyst.com/articles/premier-league-no-home-wins-single-matchday)
+- **Brenden Aaronson: It is going to be a very physical game**: [Link](https://www.leedsunited.com/en/news/brenden-aaronson-it-is-going-to-be-a-very-physical-game)
+- **Daniel Farke names team for Monday night Premier League clash**: [Link](https://sports.yahoo.com/articles/daniel-farke-names-team-monday-174500154.html)
+
+
+### villarreal – betis (N/A, Mon, 14 Sep 2026 11:10:00 -0700)
+
+- **Villarreal - Betis, hoy en directo: última hora de LaLiga EA Sports en vivo**: [Link](https://as.com/futbol/primera/villarreal-betis-hoy-en-directo-ultima-hora-de-laliga-ea-sports-en-vivo-f202609-d/)
+- **Apuesta del día: los pronósticos de nuestros expertos para cada jornada**: [Link](https://www.goal.com/es/apuestas/pronosticos/apuesta-del-dia-14-09-2026/A%3Abltf6bb8874eea22509)
+- **Alineaciones confirmadas de Villarreal y Real Betis en la jornada 5 de LALIGA EA SPORTS**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20260914/alineaciones-confirmadas-villarreal-betis-laliga-jornada-5_18_020165253.html)
+
+
+### bachelor (N/A, Mon, 14 Sep 2026 11:10:00 -0700)
+
+- **Watch: Flash flooding interrupts half-marathon, submerges cars**: [Link](https://www.bbc.com/news/videos/cqdj48mpw8mro)
+- **‘Bro, this is nuts!': Marathon runners race straight into torrential flooding**: [Link](https://www.nbcnewyork.com/news/local/bro-this-is-nuts-marathon-runners-race-straight-into-torrential-flooding/6547313/)
+- **Former 'Bachelorette' contestant Zac Clark caught in flood during half marathon in New Jersey**: [Link](https://abc7.com/post/former-bachelorette-contestant-zac-clark-caught-flood-during-half-marathon-new-jersey/19830048/)
+
+
+### inter – udinese (N/A, Mon, 14 Sep 2026 11:00:00 -0700)
+
+- **Inter-Udinese, le formazioni ufficiali: out Lautaro, Calhanoglu in tribuna**: [Link](https://www.fantacalcio.it/news/calcio-italia/14_09_2026/inter-udinese-le-formazioni-ufficiali-497936)
+- **Un’Udinese incerottata va a caccia dell’impresa al “Meazza”**: [Link](https://www.telefriuli.it/cronaca/unudinese-incerottata-va-a-caccia-dellimpresa-al-meazza/)
+- **Inter-Udinese diretta Serie A: segui la sfida tra Chivu e Runjaić, il risultato LIVE**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2026/09/14-151240394/inter-udinese_diretta_serie_a_segui_la_sfida_tra_chivu_e_runjaic_il_risultato_live)
+
+
+### gare ferroviaire (N/A, Mon, 14 Sep 2026 10:50:00 -0700)
+
+- **L'ONCF ouvre la présélection des entreprises pour la ligne ferroviaire Tanger Ville–aéroport Ibn Battouta**: [Link](https://ledesk.ma/enoff/loncf-ouvre-la-preselection-des-entreprises-pour-la-ligne-ferroviaire-tanger-ville-aeroport-ibn-battouta/)
+- **Tanger : l’ONCF ouvre la course aux travaux du futur RER**: [Link](https://fr.hespress.com/488336-tanger-loncf-ouvre-la-course-aux-travaux-du-futur-rer.html)
+- **Tanger: le projet de train urbain vers l’aéroport franchit un cap décisif malgré les défis fonciers**: [Link](https://fr.le360.ma/economie/tanger-le-projet-de-train-urbain-vers-laeroport-franchit-un-cap-decisif-malgre-les-defis-fonciers_DW7B7AE4JRBQ7NUV4MTO4TN7TA/)
+
+
+### أشرف حكيمي (N/A, Mon, 14 Sep 2026 10:30:00 -0700)
+
+- **سان جيرمان يكشف طبيعة إصابة حكيمي**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%83%D8%B4%D9%81-%D8%B7%D8%A8%D9%8A%D8%B9%D8%A9-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-1807204.html)
+- **توريس يمنح إنريكي فوزه الأول.. وحكيمي يخرج من ليلة الانتصار حزينًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%88%D8%B1%D9%8A%D8%B3-%D9%8A%D9%85%D9%86%D8%AD-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84--%D9%88%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%AE%D8%B1%D8%AC-%D9%85%D9%86-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%AD%D8%B2%D9%8A%D9%86%D9%8B%D8%A7/blt0949ddcce02cb9a8)
+- **توب سبور - سان جرمان فوز أول غير مقنع محليا بالرغم من التألق الأوروبي**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D8%AA%D9%88%D8%A8-%D8%B3%D8%A8%D9%88%D8%B1/20260914-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%81%D9%88%D8%B2-%D8%A3%D9%88%D9%84-%D8%BA%D9%8A%D8%B1-%D9%85%D9%82%D9%86%D8%B9-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D8%B1%D8%BA%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%84%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A)
+
+
+### astrid de norvège (N/A, Mon, 14 Sep 2026 10:20:00 -0700)
+
+- **Décès de la princesse Astrid de Norvège : comme son frère le roi Harald V, elle avait dû se battre pour épouser l'homme de sa vie**: [Link](https://www.parismatch.be/actualites/people/2026/09/13/deces-de-la-princesse-astrid-de-norvege-comme-son-frere-le-roi-harald-v-elle-avait-du-se-battre-pour-epouser-lhomme-de-sa-vie-RHQP3PHFFRFLNIQWHQPJYHDGTU/)
+- **“Tu me manqueras tellement” : Durek Verrett, le mari de Märtha Louise de Norvège, bouleversé par la mort de la princesse Astrid**: [Link](https://www.gala.fr/royautes/tu-me-manqueras-tellement-durek-verrett-le-mari-de-martha-louise-de-norvege-bouleverse-par-la-mort-de-la-princesse-astrid-20260914)
+- **À Oslo, Aziz Akhannouch représente le Roi Mohammed VI aux obsèques du Roi Harald V**: [Link](https://medias24.com/2026/09/09/a-oslo-aziz-akhannouch-represente-le-roi-mohammed-vi-aux-obseques-du-roi-harald-v-1752211/)
+
+
+### côme – parme (N/A, Mon, 14 Sep 2026 10:20:00 -0700)
+
+- **Como 2-1 Parme : la xG confirme la victoire, Corvi se démarque – Analyse détaillée**: [Link](https://www.sofascore.com/fr/news/como-2-1-parme-la-victoire-confirmee-par-la-xg-corvi-se-distingue)
+- **Côme, Fabregas : « Baturina est un peu anarchique, mais il est incroyable. Diao à un niveau supérieur »**: [Link](https://www.goal.com/fr/listes/come-fabregas-baturina-est-un-peu-anarchique-mais-il-est-incroyable-diao-a-un-niveau-superieur/blt54c059ff6461ad6c)
+- **DIRECT. Côme - Parme, Serie A : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-italie/2026-2027/come-parme-live/689910)
+
+
+### aryna sabalenka (N/A, Mon, 14 Sep 2026 10:00:00 -0700)
+
+- **Rybakina is already thinking about completing the four Grand Slams: "Roland Garros is my next goal"**: [Link](https://www.puntodebreak.com/en/2026/09/14/rybakina-is-already-thinking-about-completing-the-four-grand-slams-roland-garros-is-my)
+- **'Controversy over shocking exposure → vulgar outburst → fine of up to 100 million won' Tennis star who lost the world No. 1 title, what a humiliation "It was hard to hold back my emotions..."**: [Link](https://www.starnewskorea.com/en/sports/2026/09/15/2026091414524684765)
+- **Aryna Sabalenka Tells Cameraman to ‘F--- Off’ After Her US Open Loss**: [Link](https://nz.news.yahoo.com/aryna-sabalenka-tells-cameraman-f-174216098.html)
+
+
 ### وقود (N/A, Mon, 14 Sep 2026 06:30:00 -0700)
 
 - **Protests break out across Syria over fuel price increases**: [Link](https://www.aljazeera.com/news/2026/9/14/protests-break-out-across-syria-over-fuel-price-increases)
