@@ -1,3 +1,66 @@
+### وقود (N/A, Mon, 14 Sep 2026 06:30:00 -0700)
+
+- **Protests break out across Syria over fuel price increases**: [Link](https://www.aljazeera.com/news/2026/9/14/protests-break-out-across-syria-over-fuel-price-increases)
+- **Syria fuel price hikes trigger widest protests since Assad fall**: [Link](https://www.reuters.com/world/middle-east/syria-fuel-price-hikes-trigger-widest-protests-since-assad-fall-2026-09-14/)
+- **Protests erupt in Syria over fuel price increases**: [Link](https://www.timesofisrael.com/liveblog_entry/protests-erupt-in-syria-over-fuel-price-increases/)
+
+
+### إنقاذ (N/A, Mon, 14 Sep 2026 06:20:00 -0700)
+
+- **سوء الأحوال الجوية يعرقل جهود إنقاذ 129 مفقودا في بحر جاوة**: [Link](https://www.aljazeera.net/news/2026/9/14/%D8%B3%D9%88%D8%A1-%D8%A7%D9%84%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D9%8A%D8%B9%D8%B1%D9%82%D9%84-%D8%AC%D9%87%D9%88%D8%AF-%D8%A5%D9%86%D9%82%D8%A7%D8%B0-129)
+- **130 مفقودا إثر اختفاء عبارة إندونيسية**: [Link](https://www.hespress.com/130-%D9%85%D9%81%D9%82%D9%88%D8%AF%D8%A7-%D8%A5%D8%AB%D8%B1-%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1-%D8%B9%D8%A8%D8%A7%D8%B1%D8%A9-%D8%A5%D9%86%D8%AF%D9%88%D9%86%D9%8A%D8%B3%D9%8A%D8%A9-1806551.html)
+- **إندونيسيا..مصرع 6 أشخاص وفقدان 130 آخرين بعد انقلاب عبارة**: [Link](https://2m.ma/ar/news/%D8%A5%D9%86%D8%AF%D9%88%D9%86%D9%8A%D8%B3%D9%8A%D8%A7-%D9%85%D8%B5%D8%B1%D8%B9-6-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%88%D9%81%D9%82%D8%AF%D8%A7%D9%86-130-%D8%A2%D8%AE%D8%B1%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%B9%D8%A8%D8%A7%D8%B1%D8%A9-20260913)
+
+
+### حرارة (N/A, Mon, 14 Sep 2026 05:30:00 -0700)
+
+- **توقعات بانخفاض الحرارة في المغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1807067.html)
+- **الطقس اليوم الإثنين.. استمرار حرارة الجو بعدد من المناطق**: [Link](https://ar.hibapress.com/details-756973.html)
+- **بعدما تجاوزت 40 درجة منتصف شتنبر.. فاس تعيش على وقع أجواء صيفية استثنائية**: [Link](https://ar.le360.ma/societe/YTRUHHLIVRDIBKTTPDWHU2AXPQ/)
+
+
+### الأمم المتحدة (N/A, Mon, 14 Sep 2026 03:30:00 -0700)
+
+- **لحظة الأمم المتحدة الحرجة.. لماذا قد تكون هذه هي الفرصة الأخيرة؟**: [Link](https://www.aljazeera.net/opinions/2026/9/14/%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%AC%D8%A9-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%AF)
+- **انتهاك مجلس الأمن لميثاق الأمم المتحدة**: [Link](https://masirahtv.net/post/309695)
+- **ميثاق الأمم المتحدة... هل حان وقت التعديل؟**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D8%A3%D9%8A/5314846-%D9%85%D9%8A%D8%AB%D8%A7%D9%82-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D9%87%D9%84-%D8%AD%D8%A7%D9%86-%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D8%AA%D8%B9%D8%AF%D9%8A%D9%84%D8%9F)
+
+
+### fouzi lekjaa (N/A, Mon, 14 Sep 2026 02:50:00 -0700)
+
+- **Exclusif. La présentation de Lekjaa devant la CGEM - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/09/13/exclusif-la-presentation-de-lekjaa-devant-la-cgem-1754931/)
+- **Fouzi Lekjaâ : « Premier ministre ? Je vais vous dire une chose, je n’y ai jamais réfléchi »**: [Link](https://www.jeuneafrique.com/1840086/politique/fouzi-lekjaa-premier-ministre-je-vais-vous-dire-une-chose-je-ny-ai-jamais-reflechi/)
+- **Elections 2026 : Devant la CGEM, Lekjaâ détaille le programme économique du PAM**: [Link](https://lematin.ma/nation/elections-devant-la-cgem-lekjaa-detaille-le-programme-economique-du-pam/364921)
+
+
+### كأس العالم لكرة القدم 2030 (N/A, Mon, 14 Sep 2026 02:00:00 -0700)
+
+- **رئيس الحكومة المغربية يحرج لقجع بشأن نهائي كأس العالم 2030**: [Link](https://www.aljazeera.net/sport/2026/9/11/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%82%D8%AC%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **بعد تصريحات لقجع .. "فيفا" يؤكد عدم حسم ملعب نهائي مونديال 2030**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%84%D9%82%D8%AC%D8%B9-%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B9%D8%AF%D9%85-%D8%AD%D8%B3%D9%85-%D9%85%D9%84%D8%B9-1805752.html)
+- **أخنوش يرد على لقجع: المونديال لا يحتمل المزايدات ولم نتحدث مع شركائنا حول نهائي بنسليمان – اليوم 24**: [Link](https://alyaoum24.com/2043404.html)
+
+
+### adèle haenel (N/A, Mon, 14 Sep 2026 02:00:00 -0700)
+
+- **Propos d’Adèle Haenel sur Israël : France Télévisions s’explique sur la suppression du replay de “La grande librairie”**: [Link](https://www.telerama.fr/television/propos-d-adele-haenel-sur-israel-france-televisions-s-explique-sur-la-suppression-du-replay-de-la-grande-librairie-7032828.php)
+- **Adèle Haenel tisse le lien entre le silence des violences sexuelles et du génocide**: [Link](https://blogs.mediapart.fr/hejer-charf/blog/140926/adele-haenel-tisse-le-lien-entre-le-silence-des-violences-sexuelles-et-du-genocide)
+- **Suppression d’un replay avec Adèle Haenel : la naïveté et l'hypocrisie de France Télévisions**: [Link](https://www.marianne.net/societe/medias/la-supression-d-un-replay-avec-adele-haenel-la-naivete-et-l-hypocrisie-de-france-televisions)
+
+
+### 1 (N/A, Mon, 14 Sep 2026 01:40:00 -0700)
+
+- **Quinnen Williams, Caleb Downs circle what went wrong in Cowboys loss to Giants**: [Link](https://www.dallascowboys.com/news/quinnen-williams-caleb-downs-circle-what-went-wrong-in-cowboys-loss-to-giants)
+- **Why Rex isn't surprised by Giants' win over Cowboys**: [Link](https://www.espn.com/video/clip/_/id/49939587/why-rex-surprised-giants-win-cowboys)
+- **“That Was Atrocious,” “Fire Him ASAP”: NFL Fans Want DC Christian Parker Fired As Cowboys “Defense Looks Way Worse Than Last Year” in Loss to Giants**: [Link](https://sports.yahoo.com/articles/atrocious-fire-him-asap-nfl-085159412.html)
+
+
+### viande (N/A, Mon, 14 Sep 2026 00:40:00 -0700)
+
+- **L’Europe bloque la viande brésilienne, le Maroc l’achète et l’Espagne perd son marché**: [Link](https://www.bladi.net/europe-bloque-viande-bresilienne-maroc-achete-espagne-perd-marche,123742.html)
+- **Les importations des viandes de volaille du Brésil, l’Anvol approuve**: [Link](https://www.lafranceagricole.fr/anvol/article/903385/volaille-bresilienne-l-anvol-salue-l-arret-des-importations-europeennes)
+- **Le Brésil augmente ses exportations de poulet de 50% vers l'UE au premier semestre**: [Link](https://www.action-agricole-picarde.com/le-bresil-augmente-ses-exportations-de-poulet-de-50-vers-lue-au-premier-semestre)
+
+
 ### weather (N/A, Sun, 13 Sep 2026 23:00:00 -0700)
 
 - **Karachi weather: Rain, thunderstorms likely in several areas today**: [Link](https://www.thenews.pk/story/1437372-karachi-weather-rain-thunderstorms-likely-in-several-areas-today)
