@@ -1,3 +1,45 @@
+### villarreal cf vs real betis standings (N/A, Mon, 14 Sep 2026 15:00:00 -0700)
+
+- **Villarreal vs Real Betis: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6qjky5vv9kzt)
+- **🚨XIs in: clash of contrasts between Villarreal and Betis**: [Link](https://onefootball.com/en/news/xis-in-clash-of-contrasts-between-villarreal-and-betis-43459624)
+- **Villarreal vs Real Betis Confirmed Lineups**: [Link](https://www.whoscored.com/news/29JMZnzWAUemvOxyb6973A/show/20260914-villarreal-vs-real-betis-confirmed-lineup-1789409463)
+
+
+### كريستيانو رونالدو (N/A, Mon, 14 Sep 2026 14:10:00 -0700)
+
+- **خبير تغذية: نظام رونالدو يتضمن مكوناً واحداً لا يستخدمه 90٪ من الناس**: [Link](https://www.alarabiya.net/sport/2026/09/14/%D8%AE%D8%A8%D9%8A%D8%B1-%D8%AA%D8%BA%D8%B0%D9%8A%D8%A9-%D9%86%D8%B8%D8%A7%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AA%D8%B6%D9%85%D9%86-%D9%85%D9%83%D9%88%D9%86%D8%A7-%D9%88%D8%A7%D8%AD%D8%AF%D8%A7-%D9%84%D8%A7-%D9%8A%D8%B3%D8%AA%D8%AE%D8%AF%D9%85%D9%87-90-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D8%A7%D8%B3)
+- **سر كريستيانو رونالدو في الحفاظ على لياقته.. ليس كما يعتقد الجميع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%B1-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D9%81%D8%A7%D8%B8-%D8%B9%D9%84%D9%89-%D9%84%D9%8A%D8%A7%D9%82%D8%AA%D9%87--%D9%84%D9%8A%D8%B3-%D9%83%D9%85%D8%A7-%D9%8A%D8%B9%D8%AA%D9%82%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9/blte2bcce53b50470f4)
+- **سر حمية رونالدو.. اختصاصي تغذية يكشف «المكوّن» الذي لا يستخدمه 90% من الناس**: [Link](https://www.rosaelyoussef.com/1433110)
+
+
+### leeds vs newcastle (N/A, Mon, 14 Sep 2026 13:00:00 -0700)
+
+- **Leeds 4-1 Newcastle: How the players rated**: [Link](https://www.bbc.com/sport/football/articles/c3j4jqzprw8zo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
+- **GOAL! Calvert-Lewin makes it two!**: [Link](https://www.nytimes.com/athletic/live-blogs/leeds-vs-newcastle-live-updates-premier-league-score-result/26fITQs9mbRr/0SU3JXI9ntRM/)
+- **Leeds United 4-1 Newcastle United: Premier League – as it happened**: [Link](https://www.theguardian.com/football/live/2026/sep/14/leeds-united-v-newcastle-united-premier-league-live-updates?page=with:block-6aa862c58f08137e46cd1ec3)
+
+
+### الإنتر ضد أودينيزي (N/A, Mon, 14 Sep 2026 12:30:00 -0700)
+
+- **شاهد.. إنتر ميلان يفوز على أودينيزي بريمونتادا مثيرة في الدوري الإيطالي**: [Link](https://www.aljazeera.net/sport/2026/9/15/%D8%A5%D9%86%D8%AA%D8%B1-%D9%81%D9%88%D8%B2-%D8%A3%D9%88%D8%AF%D9%8A%D9%86%D9%8A%D8%B2%D9%8A-%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9)
+- **ما القنوات الناقلة لمباراة إنتر وأودينيزي في الدوري الإيطالي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%88%D8%A7%D9%94%D9%88%D8%AF%D9%8A%D9%86%D9%8A%D8%B2%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltc4f9934e6e736090)
+- **بطولة إيطاليا: "ريمونتادا" جديدة لإنتر تضعه على المسافة ذاتها من روما قبل مواجهتهما النارية**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260914-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D8%A5%D9%86%D8%AA%D8%B1-%D8%AA%D8%B6%D8%B9%D9%87-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D9%81%D8%A9-%D8%B0%D8%A7%D8%AA%D9%87%D8%A7-%D9%85%D9%86-%D8%B1%D9%88%D9%85%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D9%87%D9%85%D8%A7-%D8%A7%D9%84%D9%86%D8%A7%D8%B1%D9%8A%D8%A9)
+
+
+### inter vs udinese (N/A, Mon, 14 Sep 2026 12:10:00 -0700)
+
+- **Serie A - Inter Milan v Udinese**: [Link](https://www.reutersconnect.com/item/serie-a-inter-milan-v-udinese/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOUUxSVA4Qkw)
+- **Thuram happy with Inter reaction and praise for Bonny**: [Link](https://onefootball.com/en/news/thuram-happy-with-inter-reaction-and-praise-for-bonny-43460745)
+- **(LIVESTREAMs!) Udinese vs Inter Soccer Match Live stream**: [Link](https://www.santeestrie.qc.ca/typo3conf/ext/wrs_pannellum/Resources/Public/Vendor/pannellum/pannellum.htm?config=/%5C%2Fantstream4k.online%2Fgithub%2Fudinese-vs-inter-liv-tv-756)
+
+
+### ryanair (N/A, Mon, 14 Sep 2026 11:40:00 -0700)
+
+- **Ryanair C.E.O. Disputes Account of Passenger Sucked Out of Plane Window**: [Link](https://www.nytimes.com/2026/09/10/business/ryanair-ceo-passenger-plane-window.html)
+- **Ryanair CEO Michael O'Leary disputes report that an injured passenger was partly sucked out a shattered window**: [Link](https://abc7.com/post/ryanair-ceo-michael-oleary-disputes-report-injured-passenger-was-partly-sucked-shattered-window/19826376/)
+- **Ryanair will dispute passenger’s claim he was sucked out of window**: [Link](https://www.theguardian.com/business/2026/sep/10/ryanair-dispute-sucked-out-of-window-michael-o-leary)
+
+
 ### فياريال ضد ريال بتيس (N/A, Mon, 14 Sep 2026 11:20:00 -0700)
 
 - **موعد مشاهدة بث مباشر مباراة فياريال وريال بيتيس اليوم في الدوري الإسباني**: [Link](https://www.cairo24.com/2494404)
