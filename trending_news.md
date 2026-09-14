@@ -1,3 +1,24 @@
+### weather (N/A, Sun, 13 Sep 2026 23:00:00 -0700)
+
+- **Karachi weather: Rain, thunderstorms likely in several areas today**: [Link](https://www.thenews.pk/story/1437372-karachi-weather-rain-thunderstorms-likely-in-several-areas-today)
+- **Lahore put on alert after Met Office forecasts last monsoon spell Breaking**: [Link](https://www.inp.net.pk/news-detail/pakistan/lahore-put-on-alert-after-met-office-forecasts-last-monsoon-spell)
+- **Pakistan warns of fresh flooding, heavy rains as monsoon death toll reaches 183**: [Link](https://www.arabnews.pk/pakistan/pakistan-warns-of-fresh-flooding-heavy-rains-as-monsoon-death-toll-reaches-183-3000979)
+
+
+### درك (N/A, Sun, 13 Sep 2026 22:20:00 -0700)
+
+- **اجبار طفل على شرب الكحول.. الدرك يوقف أحد المشتبه فيهم**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AF%D8%B1%D9%83-%D9%8A%D9%88%D9%82%D9%81-%D8%B4%D8%A7%D8%A8%D8%A7-%D9%88%D9%81%D8%AA%D8%A7%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84-%D9%85%D8%B3%D8%AC%D8%AF-%D8%A8%D8%A5%D9%82%D9%84%D9%8A%D9%85/)
+- **توقيف شاب وفتاة داخل مرافق مسجد.. التحقيقات تكشف معطيات إضافية**: [Link](https://agadirtv.ma/127628.html)
+- **داخل مسجد بعين الشقف.. توقيف شاب وفتاة يكشف سوابق ومذكرة بحث**: [Link](https://hnews.ma/113304/)
+
+
+### حارس مرمى (N/A, Sun, 13 Sep 2026 14:10:00 -0700)
+
+- **فيديو: 3 أهداف في الوقت القاتل.. ساسولو يخطف انتصارًا جنونيًا أمام يوفنتوس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-3-%D8%A7%D9%94%D9%87%D8%AF%D8%A7%D9%81-%D9%81%D9%8A-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D9%82%D8%A7%D8%AA%D9%84--%D8%B3%D8%A7%D8%B3%D9%88%D9%84%D9%88-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D9%8B%D8%A7-%D8%AC%D9%86%D9%88%D9%86%D9%8A%D9%8B%D8%A7-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3/blt676cfb428a76662b)
+- **ساسولو يقتنص فوزا دراميا من يوفنتوس في الدوري الإيطالي**: [Link](https://www.aljazeera.net/sport/2026/9/14/%D8%B3%D8%A7%D8%B3%D9%88%D9%84%D9%88-%D9%8A%D9%82%D8%AA%D9%86%D8%B5-%D9%81%D9%88%D8%B2%D8%A7-%D8%AF%D8%B1%D8%A7%D9%85%D9%8A%D8%A7-%D9%85%D9%86-%D9%8A%D9%88%D9%81%D9%86%D8%AA%D9%88%D8%B3-%D9%81%D9%8A)
+- **«الدوري الإيطالي»: سقوط مثير ليوفينتوس أمام ساسولو في «ريدجو إميليا»**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5317910-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D8%B3%D9%82%D9%88%D8%B7-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%8A%D9%88%D9%81%D9%8A%D9%86%D8%AA%D9%88%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%A7%D8%B3%D9%88%D9%84%D9%88-%D9%81%D9%8A-%D8%B1%D9%8A%D8%AF%D8%AC%D9%88-%D8%A5%D9%85%D9%8A%D9%84%D9%8A%D8%A7)
+
+
 ### برج فلكي (N/A, Sun, 13 Sep 2026 17:20:00 -0700)
 
 - **أبراج - أبراج يوم الأحد 13 أيلول - سبتمبر 2026**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D8%A3%D8%A8%D8%B1%D8%A7%D8%AC/20260913-%D8%A3%D8%A8%D8%B1%D8%A7%D8%AC-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-13-%D8%A3%D9%8A%D9%84%D9%88%D9%84-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2026)
