@@ -1,3 +1,73 @@
+### ليفربول ضد توتنهام (N/A, Tue, 15 Sep 2026 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ليفربول وتوتنهام في كأس الرابطة الإنجليزية 2026-2027؟ وكيف تشاهدها عبر الإنترنت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1931abd92d06e06f)
+- **جاكبو يقود هجوم ليفربول أمام توتنهام في كأس الرابطة**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=15092026&id=1f69be93-5513-485b-a57a-5530b688128b)
+- **"قبل مباراة كأس كاراباو".. ماذا قدم عمر مرموش أمام ليفربول؟**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2026/9/15/3048354/-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D8%A3%D8%B3-%D9%83%D8%A7%D8%B1%D8%A7%D8%A8%D8%A7%D9%88-%D9%85%D8%A7%D8%B0%D8%A7-%D9%82%D8%AF%D9%85-%D8%B9%D9%85%D8%B1-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%81%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-)
+
+
+### west ham – fulham (N/A, Tue, 15 Sep 2026 11:20:00 -0700)
+
+- **Team News: Sess to miss West Ham clash**: [Link](https://www.fulhamfc.com/news/2026/september/14/team-news-ryan-sessegnon-to-miss-west-ham-clash/)
+- **Arbeloa adamant Fulham will fight in the Carabao Cup**: [Link](https://www.vavel.com/en/football/2026/09/15/fulham/1271419-arbeloa-adamant-fulham-will-fight-in-the-carabao-cup.html)
+- **West Ham vs Fulham betting tips and prediction – Jarrod Bowen to star again?**: [Link](https://talksport.com/betting/4579886/west-ham-vs-fulham-betting-tips-prediction-jarrod-bowen/)
+
+
+### ipswich town – arsenal (N/A, Tue, 15 Sep 2026 11:10:00 -0700)
+
+- **(3) Ipswich Town v Arsenal: Carabao Cup third round – live**: [Link](https://www.theguardian.com/football/live/2026/sep/15/ipswich-town-v-arsenal-carabao-cup-third-round-live)
+- **Bally Bet Carabao Cup Offer: Get £30 in Rewards for Ipswich vs Arsenal**: [Link](https://www.oddschecker.com/insight/football/20260915-bally-bet-carabao-cup-offer-get-30-in-rewards-for-ipswich-vs-arsenal)
+- **The best snaps before Carabao Cup trip to Ipswich**: [Link](https://www.arsenal.com/news/the-best-snaps-from-carabao-cup-training-aqApO4C26GS2)
+
+
+### liverpool – tottenham (N/A, Tue, 15 Sep 2026 11:10:00 -0700)
+
+- **Confirmed Liverpool line-up v Tottenham Hotspur**: [Link](https://www.liverpoolfc.com/news/confirmed-liverpool-line-v-tottenham-hotspur-11)
+- **🚨XIs in: Anfield hosts a blockbuster cup tie with signs of rotation**: [Link](https://onefootball.com/en/news/xis-in-anfield-hosts-a-blockbuster-cup-tie-with-signs-of-rotation-43465285)
+- **Iraola could do with a good cup run but it's a delicate juggling act**: [Link](https://malaysia.news.yahoo.com/iraola-could-good-cup-run-102737453.html)
+
+
+### ألافيس ضد فالنسيا (N/A, Tue, 15 Sep 2026 11:10:00 -0700)
+
+- **توقعات مباراة ألافيس وفالنسيا: الزوار عازمون على وقف تراجعهم.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-alaves-vs-valencia-khach-quyet-chan-da-sa-sut)
+- **الدوري الإسباني.. فالنسيا يخسر من إشبيلية بهدف ويواصل نتائجه السلبية في المسابقة**: [Link](https://www.fananews.com/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D9%8A%D8%AE%D8%B3%D8%B1-%D9%85%D9%86-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84/)
+- **ديانج يقود تشكيل فالنسيا أمام إشبيلية في الدوري الإسباني**: [Link](https://www.almasryalyoum.com/news/details/4357581)
+
+
+### groupe ocp (N/A, Tue, 15 Sep 2026 11:10:00 -0700)
+
+- **OCP Green Energy met sous tension le premier système de stockage par batteries à grande échelle**: [Link](https://medias24.com/2026/09/14/ocp-green-energy-met-sous-tension-le-premier-systeme-de-stockage-par-batteries-a-grande-echelle-1755869/)
+- **OCP Green Energy met sous tension à Benguerir le premier parc de batteries industriel du Maroc**: [Link](https://ledesk.ma/2026/09/14/ocp-green-energy-met-sous-tension-a-benguerir-le-premier-parc-de-batteries-industriel-du-maroc/)
+- **Énergie solaire : OCP met sous tension le premier système de stockage par batteries à grande échelle au Maroc**: [Link](https://lematin.ma/economie/energie-solaire-ocp-deploie-a-benguerir-125-mwh-de-stockage-par-batteries/365144)
+
+
+### الأهلي ضد سماد أبوقير (N/A, Tue, 15 Sep 2026 11:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأهلي وأبو قير للأسمدة في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%94%D8%A8%D9%88-%D9%82%D9%8A%D8%B1-%D9%84%D9%84%D8%A7%D9%94%D8%B3%D9%85%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt02a3c128a37103e6)
+- **بقرار من عموتة.. داري يعود لقائمة الأهلي ويترقب ظهوره الأول أمام أبو قير للأسمدة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AF%D8%A7%D8%B1%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D8%A8%D9%88-%D9%82%D9%8A%D8%B1-%D9%84%D9%84%D8%A3%D8%B3%D9%85%D8%AF%D8%A9/25347)
+- **عموتة يفتح باب الأهلي أمام نجم مغربي من جديد**: [Link](https://ar.lesiteinfo.com/sport/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%85%D9%86-1020622.html)
+
+
+### c1 d'asie (N/A, Tue, 15 Sep 2026 11:10:00 -0700)
+
+- **Composition du match Gamba Osaka – Cong An Ha Noi | AFC Champions League Elite · 15 sept. 2026**: [Link](https://www.ysscores.com/fr/lineup/6049977/Gamba-Osaka-vs-Cong-An-Ha-Noi-FC)
+- **L'entraîneur Polking : CAHN a été sanctionné pour ses erreurs commises en Ligue des champions asiatique.**: [Link](https://www.vietnam.vn/fr/hlv-polking-cahn-bi-trung-phat-vi-mac-sai-lam-o-cup-c1-chau-a)
+- **Prédiction du match Gamba Osaka contre Hanoi Police : Un duel en bas du classement.**: [Link](https://baonghean.vn/fr/nhan-dinh-gamba-osaka-vs-cong-an-ha-noi-cuoc-chien-nhom-cuoi-10351400.html)
+
+
+### ajax – willem ii (N/A, Tue, 15 Sep 2026 10:50:00 -0700)
+
+- **Roulerende Míchel hint op Duitsland-oproep voor Ajax-bankzitter Ter Stegen**: [Link](https://www.vi.nl/nieuws/michel-verklaart-wisselingen-marc-is-herstellende-en-interlandbreak-komt-eraan)
+- **LIVE | Delanghe goud waard voor Willem II, dat via Vilhena en Haen óók een enorme kans krijgt**: [Link](https://www.ad.nl/tilburg/live-delanghe-goud-waard-voor-willem-ii-keeper-voorkomt-dat-ajax-de-score-opent~a45ab596/)
+- **Ajax jaagt op midweekse zege in Tilburg tegen Willem II: pak tot 100x je inleg!**: [Link](https://www.voetbalprimeur.nl/nieuws/2135870/ajax-jaagt-op-midweekse-zege-in-tilburg-tegen-willem-ii-pak-tot-100x-je-inleg.html)
+
+
+### al-hilal – al gharafa (N/A, Tue, 15 Sep 2026 10:30:00 -0700)
+
+- **Al Hilal vs Al-Gharafa match lineup | AFC Champions League Elite · 15 Sep 2026**: [Link](https://www.ysscores.com/en/lineup/6050071/Al-Hilal-SFC-vs-Al-Gharafa-SC)
+- **Inzaghi casts doubt on Watkins' participation against Al-Gharafa and insists: we are the best!**: [Link](https://www.goal.com/en/news/inzaghi-casts-doubt-on-watkins-participation-against-al-gharafa-and-insists-we-are-the-best/blt7978056d39d72dc9)
+- **Al Hilal hit by five absences before Al Gharafa AFC Champions League Elite opener**: [Link](https://africasoccer.com/al-hilal-hit-by-five-absences-before-al-gharafa-afc-champions-league-elite-opener/)
+
+
 ### أيوب بوعدي (N/A, Tue, 15 Sep 2026 07:00:00 -0700)
 
 - **"يمكنك شراء حمار بـ200 مليون".. نجم بلجيكا ينتقد جنون الميركاتو بعد صفقة بوعدي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%85%D9%83%D9%86%D9%83-%D8%B4%D8%B1%D8%A7%D8%A1-%D8%AD%D9%85%D8%A7%D8%B1-%D8%A8%D9%80200-%D9%85%D9%84%D9%8A%D9%88%D9%86--%D9%86%D8%AC%D9%85-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%AC%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88-%D8%A8%D8%B9%D8%AF-%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A/blt9751fea830e87608)
