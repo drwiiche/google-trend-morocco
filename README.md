@@ -1,3 +1,36 @@
+### غاز (N/A, Mon, 14 Sep 2026 23:20:00 -0700)
+
+
+
+
+### stock market news today (N/A, Mon, 14 Sep 2026 22:50:00 -0700)
+
+- **10-year Treasury yield hits 5%, critical threshold for US economy and markets**: [Link](https://www.cnn.com/2026/09/14/investing/bond-yields-market-turmoil)
+- **Stock Market Today: 10-Year Yield Above 5% With Dow Futures Lower — Live Updates**: [Link](https://www.wsj.com/livecoverage/stock-market-today-dow-sp-500-nasdaq-09-15-2026)
+- **Spike on 10-year bond yields renews concerns over U.S. debt**: [Link](https://www.washingtonpost.com/business/2026/09/14/spike-10-year-bond-yields-renews-concerns-over-us-debt/)
+
+
+### netflix top movies right now (N/A, Mon, 14 Sep 2026 22:40:00 -0700)
+
+- **The Whisper Man film review — Robert De Niro and Adam Scott star in trope-heavy serial-killer thriller**: [Link](https://www.ft.com/content/7ead6968-841f-40b6-8893-e371c9d5555a)
+- **The Whisper Man Tracks Down No. 1 in This Week’s Top 10**: [Link](https://www.netflix.com/tudum/articles/top-10-august-31-2026)
+- **Netflix’s New Crime Thriller Officially Scores 55 Million Views in Just 2 Weeks**: [Link](https://collider.com/the-whisper-man-adam-scott-robert-de-niro-streaming-success-netflix-september-2026/)
+
+
+### artificial intelligence news (N/A, Mon, 14 Sep 2026 21:00:00 -0700)
+
+- **Trump says AI safety fears a 'hoax' as he rejects calls for greater safeguards**: [Link](https://www.bbc.com/news/articles/cw980n0nd0qjo)
+- **Trump dismisses AI alarms as a ‘HOAX’ — worrying White House officials | CNN Politics**: [Link](https://edition.cnn.com/2026/09/14/politics/trump-vance-ai-alarms)
+- **AI-linked stocks slide after tech bosses call for slowdown in ‘reckless’ development**: [Link](https://www.theguardian.com/business/2026/sep/14/ai-linked-stocks-fall-tech-bosses-call-slowdown-anthropic-openai)
+
+
+### راسينغ سانتاندير (N/A, Mon, 14 Sep 2026 17:20:00 -0700)
+
+- **المعادلة السرية لفليك.. كيف يكشف التناوب المدروس تشكيلة برشلونة أمام راسينج؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%AF%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%B1%D9%8A%D8%A9-%D9%84%D9%81%D9%84%D9%8A%D9%83--%D9%83%D9%8A%D9%81-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D9%86%D8%A7%D9%88%D8%A8-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D9%88%D8%B3-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%AC/bltc02ef9d952b13d89)
+- **لم يحدث طوال تاريخه.. برشلونة يستهدف إنجازا مذهلا أمام راسينغ**: [Link](https://www.aljazeera.net/sport/2026/9/14/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%84%D9%8A%D9%83-7-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA)
+- **بطولة إسبانيا: برشلونة مرشح لمواصلة بدايته المثالية**: [Link](https://ar.sport.le360.ma/football/liga/YIFJMINMZFBXHFFWNDFQ6YUSUI/)
+
+
 ### where to watch nfl games (N/A, Mon, 14 Sep 2026 20:50:00 -0700)
 
 - **Kalshi Promo Code SI35: Get a $35 Trading Bonus With a $25 Trade on Broncos-Chiefs**: [Link](https://www.si.com/prediction-markets/kalshi-promo-code-si35-get-a-35-trading-bonus-with-a-25-trade-on-broncos-chiefs-01m2g2abgbx6-dp)
