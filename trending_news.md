@@ -1,3 +1,73 @@
+### أيوب بوعدي (N/A, Tue, 15 Sep 2026 07:00:00 -0700)
+
+- **"يمكنك شراء حمار بـ200 مليون".. نجم بلجيكا ينتقد جنون الميركاتو بعد صفقة بوعدي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%85%D9%83%D9%86%D9%83-%D8%B4%D8%B1%D8%A7%D8%A1-%D8%AD%D9%85%D8%A7%D8%B1-%D8%A8%D9%80200-%D9%85%D9%84%D9%8A%D9%88%D9%86--%D9%86%D8%AC%D9%85-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%AC%D9%86%D9%88%D9%86-%D8%A7%D9%84%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%AA%D9%88-%D8%A8%D8%B9%D8%AF-%D8%B5%D9%81%D9%82%D8%A9-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A/blt9751fea830e87608)
+- **مدرب مانشستر سيتي يُشيد ببوعدي**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%8F%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-1806371.html)
+- **كتبت صحيفة "لابريس" التونسية، في عددها الصادر اليوم السبت،**: [Link](https://niya.maroc.ma/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8/)
+
+
+### ios 27 (N/A, Tue, 15 Sep 2026 07:00:00 -0700)
+
+- **Siri AI, a profoundly more capable and personal assistant, is here**: [Link](https://www.apple.com/newsroom/2026/09/siri-ai-a-profoundly-more-capable-and-personal-assistant-is-here/)
+- **iOS 27 now seeding, here are all the iPhones getting it - GSMArena.com news**: [Link](https://www.gsmarena.com/ios_27_now_seeding_here_are_all_the_iphones_getting_it_-news-74617.php)
+- **Apple's Siri Upgrade Does Not Require Every User to Buy Another iPhone**: [Link](https://www.tradingview.com/news/gurufocus:3372899a5094b:0-apple-s-siri-upgrade-does-not-require-every-user-to-buy-another-iphone/)
+
+
+### above (N/A, Tue, 15 Sep 2026 07:00:00 -0700)
+
+- **10-year Treasury yield hits highest level since 2007 as traders bet a Fed rate hike is coming**: [Link](https://www.cnbc.com/2026/09/15/10-year-treasury-yield-rises-to-highest-since-2007.html)
+- **10-year Treasuries cross above 5%, but are other market risks showing up?**: [Link](https://finance.yahoo.com/video/10-year-treasuries-cross-above-5-but-are-other-market-risks-showing-up-142715529.html)
+- **Global bond yields hit 2008 highs, raising stakes for big borrowers**: [Link](https://www.reuters.com/world/asia-pacific/bond-selloff-drives-us-benchmark-beyond-5-stocks-rattled-2026-09-15/)
+
+
+### administration (N/A, Tue, 15 Sep 2026 06:50:00 -0700)
+
+- **Trump lashes out at Supreme Court justices, saying his appointees ‘are not the people I interviewed’**: [Link](https://www.cnn.com/2026/09/15/politics/trump-supreme-court-mail-voting)
+- **SCOTUS leaves lower court decision in place blocking President Trump's mail-in ballot rules**: [Link](https://www.cbsnews.com/chicago/video/scotus-leaves-lower-court-decision-in-place-blocking-president-trumps-mail-in-ballot-rules/)
+- **Trump’s Effort to Assert Control Over Elections Continues Despite Supreme Court Loss**: [Link](https://www.nytimes.com/2026/09/14/us/politics/supreme-court-trump-mail-in-ballots.html)
+
+
+### act (N/A, Tue, 15 Sep 2026 06:50:00 -0700)
+
+- **This bill could reshape crypto in America — and it's sparking a major battle**: [Link](https://www.npr.org/2026/09/15/nx-s1-5968711/clarity-act-crypto-senate-vote)
+- **Republicans pour cold water on Democratic crypto bill counteroffer**: [Link](https://www.politico.com/live-updates/2026/09/15/congress/republicans-pour-cold-water-on-democratic-crypto-bill-counteroffer-01076641)
+- **Warren to rip Clarity Act on Senate floor ahead of key preliminary vote**: [Link](https://www.cnbc.com/2026/09/14/warren-clarity-act-senate-key-preliminary-vote.html)
+
+
+### against (N/A, Tue, 15 Sep 2026 06:50:00 -0700)
+
+- **USC men’s basketball coach Eric Musselman accused of launching racist tirade at star player in explosive lawsuit**: [Link](https://nypost.com/2026/09/14/sports/usc-coach-eric-musselman-launched-racist-tirade-at-star-player-lawsuit/)
+- **Chad Baker-Mazara files lawsuit after dismissal from team**: [Link](https://dailytrojan.com/2026/09/14/chad-baker-mazara-files-lawsuit-after-dismissal-from-team/)
+- **Ex-USC star Chad Baker-Mazara sues school, alleges Eric Musselman launched racially charged tirade - The Athletic**: [Link](https://www.nytimes.com/athletic/7594570/2026/09/15/chad-baker-mazara-usc-lawsuit-eric-musselman/)
+
+
+### coupe du monde de football (N/A, Tue, 15 Sep 2026 06:50:00 -0700)
+
+- **Finale du Mondial 2030: la FIFA «reste à l’écart» mais «penche pour le Bernabéu»… quand le média espagnol AS se contredit**: [Link](https://sport.le360.ma/coupe-du-monde/finale-du-mondial-2030-la-fifa-reste-a-lecart-mais-penche-pour-le-bernabeu-quand-le-media-espagnol_TMRALAX5GVF2TD47KBNVTM7OLE/)
+- **Coupe du Monde 2030 : le Maroc envoie une nouvelle pique à l’Espagne**: [Link](https://www.footmercato.net/a6414363527078076931-coupe-du-monde-2030-le-maroc-envoie-une-nouvelle-pique-a-lespagne)
+- **Akhannouch et Lekjaa : le match qui a commencé avant le coup d’envoi du Mondial**: [Link](https://www.lebrief.ma/tribunes/akhannouch-et-lekjaa-le-match-qui-a-commence-avant-le-coup-denvoi-du-mondial/)
+
+
+### ahead (N/A, Tue, 15 Sep 2026 06:40:00 -0700)
+
+- **Evening storms Tuesday; Turning breezy tomorrow**: [Link](https://www.gulfcoastnewsnow.com/article/evening-storms-tuesday-turning-breezy-tomorrow/73736736)
+- **South Florida to see increasing risk of showers, thunderstorms this week**: [Link](https://www.cbsnews.com/miami/news/south-florida-weather-forecast-miami-fort-lauderdale-miami-dade-broward-september-15-2026/)
+- **Afternoon rain chances likely, temperatures in the 90s**: [Link](https://www.orlandosentinel.com/2026/09/14/afternoon-rain-chances-likely-temperatures-in-the-90s/)
+
+
+### حسام حسن (N/A, Tue, 15 Sep 2026 06:40:00 -0700)
+
+- **حسام حسن: الأجنبي ليس حلًا.. وأتعجب من شكوى أندية الدوري**: [Link](https://www.btolat.com/news/410258)
+- **حسام حسن: لا تهمني ألوان الأندية.. وأختار من يستحق ارتداء قميص منتخب مصر**: [Link](https://elbaladtv.net/%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%84%D8%A7-%D8%AA%D9%87%D9%85%D9%86%D9%8A-%D8%A3%D9%84%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D9%88%D8%A3%D8%AE%D8%AA%D8%A7)
+- **بعد تجديد عقده.. حسام حسن يتواجد في اجتماع اتحاد الكرة**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=15092026&id=7d1d0aa3-b201-4e14-b7d2-6c24410257de)
+
+
+### بيدرو سانشيز (N/A, Tue, 15 Sep 2026 06:40:00 -0700)
+
+- **الوجود الإسباني في شمال المغرب.. بركان كامن**: [Link](https://www.aljazeera.net/opinions/2026/9/15/%D8%A7%D9%84%D9%88%D8%AC%D9%88%D8%AF-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D8%B1%D9%83%D8%A7%D9%86)
+- **المغرب في قلب بروباغندا تضليلية .. سبتة تشعل حربا سياسية في إسبانيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D8%A8%D8%B1%D9%88%D8%A8%D8%A7%D8%BA%D9%86%D8%AF%D8%A7-%D8%AA%D8%B6%D9%84%D9%8A%D9%84%D9%8A%D8%A9-%D8%B3%D8%A8%D8%AA%D8%A9-1807714.html)
+- **صوت العقل في مدريد: سانشيز ينسف مزاعم اليمين ويثبت محورية الشراكة مع الرباط**: [Link](https://ar.le360.ma/politique/RZC6OUV27ZCFVLJILBCFBTGIMU/)
+
+
 ### غاز (N/A, Mon, 14 Sep 2026 23:20:00 -0700)
 
 
