@@ -1,3 +1,27 @@
+### elche cf vs real madrid standings (N/A, Tue, 15 Sep 2026 15:20:00 -0700)
+
+- **Elche vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmkgw3kyv37qt)
+- **"We were going to draw with a dead team": Mourinho explodes at his players and refuses to make an exception for Guler**: [Link](https://www.goal.com/en/news/we-were-going-to-draw-with-a-dead-team-mourinho-explodes-at-his-players-and-refuses-to-make-an-exception-for-guler/blt87414bdac08de201)
+- **(VIDEO) All Goals From Elche vs. Real Madrid in LaLiga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/-video-all-goals-from-elche-vs-real-madrid-in-laliga-2026-09-15)
+
+
+### classement la liga (N/A, Tue, 15 Sep 2026 15:00:00 -0700)
+
+- **Liga Portugal 2026-2027 — Classement après J6 | Sports Infos**: [Link](https://www.ski-nordique.net/liga-portugal-20262027-classement-apres-j5-le-fc-porto-en-pleine-forme-benfica-dauphin.6750732-72348.html)
+- **SL Benfica s'impose avec trois buts, Echeverri et Pre…**: [Link](https://www.ysscores.com/fr/news/14045643/sl-benfica-simpose-avec-trois-buts-echeverri-et-prestiani-brillent)
+- **SL Benfica - Gil Vicente FC en direct - Liga Portugaise : Football Scores & Résultats - 13/09/2026**: [Link](https://www.eurosport.fr/football/liga-portugaise/2026-2027/live-sl-benfica-gil-vicente-fc_mtc21896216/live.shtml)
+
+
+### وقود (N/A, Tue, 15 Sep 2026 14:50:00 -0700)
+
+
+
+
+### remboursement (N/A, Tue, 15 Sep 2026 14:40:00 -0700)
+
+
+
+
 ### la liga (N/A, Tue, 15 Sep 2026 14:30:00 -0700)
 
 - **Live Blog! Elche vs. Real Madrid in LaLiga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/live-blog-elche-vs-real-madrid-in-laliga-2026-09-15)
