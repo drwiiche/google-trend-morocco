@@ -1,3 +1,24 @@
+### where to watch nfl games (N/A, Mon, 14 Sep 2026 20:50:00 -0700)
+
+- **Kalshi Promo Code SI35: Get a $35 Trading Bonus With a $25 Trade on Broncos-Chiefs**: [Link](https://www.si.com/prediction-markets/kalshi-promo-code-si35-get-a-35-trading-bonus-with-a-25-trade-on-broncos-chiefs-01m2g2abgbx6-dp)
+- **Travis Kelce reacts to Chiefs' 31-10 win over Denver Broncos (Video)**: [Link](https://www.kansascity.com/sports/nfl/kansas-city-chiefs/article317246757.html)
+- **Rashee Rice bounces into EZ amidst modest volume**: [Link](https://www.nbcsports.com/fantasy/football/player-news/2026-09-15/rashee-rice-bounces-into-ez-amidst-modest-volume)
+
+
+### nfl schedule this week (N/A, Mon, 14 Sep 2026 19:20:00 -0700)
+
+- **Broncos are 2.5-point favorites over the Jaguars in Week 2**: [Link](https://sports.yahoo.com/articles/broncos-2-5-point-favorites-040000839.html)
+- **When do the Denver Broncos play next? NFL Week 2 schedule, opponent**: [Link](https://www.azcentral.com/story/sports/nfl/2026/09/14/denver-broncos-schedule-opponent-nfl-week-2-game-2026/91064869007/)
+- **Jaguars vs. Broncos: Week 2 opening odds**: [Link](https://www.bigcatcountry.com/jacksonville-jaguars-odds/88665/jags-broncos-early-week-2-betting-lines)
+
+
+### serie a (N/A, Mon, 14 Sep 2026 12:10:00 -0700)
+
+- **Serie A, Torino-Roma 0-2, Como-Parma 2-1 e Inter-Udinese 5-3. Gol e highlights**: [Link](https://tg24.sky.it/sport/2026/09/14/serie-a-partite-oggi-risultati-gol-highlights-video)
+- **Roma corsara a Torino, Inter a valanga sull’Udinese: Gasp e Chivu al comando**: [Link](https://www.ecovicentino.it/sport/roma-corsara-a-torino-inter-a-valanga-sulludinese-gasp-e-chivu-al-comando/)
+- **Calcio, i risultati della Serie A. Roma in testa da sola**: [Link](https://www.radiostudio90italia.it/calcio-i-risultati-della-serie-a-roma-in-testa-da-sola/)
+
+
 ### عبد الصمد الزلزولي (N/A, Mon, 14 Sep 2026 15:20:00 -0700)
 
 - **قميص الزلزولي عن سبتة يشعل الجدل**: [Link](https://www.hespress.com/%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%B9%D9%86-%D8%B3%D8%A8%D8%AA%D8%A9-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-1807465.html)
