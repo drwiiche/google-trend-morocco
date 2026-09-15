@@ -1,3 +1,17 @@
+### عبد الصمد الزلزولي (N/A, Mon, 14 Sep 2026 15:20:00 -0700)
+
+- **قميص الزلزولي عن سبتة يشعل الجدل**: [Link](https://www.hespress.com/%D9%82%D9%85%D9%8A%D8%B5-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%B9%D9%86-%D8%B3%D8%A8%D8%AA%D8%A9-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-1807465.html)
+- **سقوط في المحظور أم حسن نية؟.. قميص بيتيس يضع الزلزولي في مرمى الانتقادات**: [Link](https://le12.ma/%D8%B3%D9%82%D9%88%D8%B7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AD%D8%B8%D9%88%D8%B1-%D8%A3%D9%85-%D8%AD%D8%B3%D9%86-%D9%86%D9%8A%D8%A9%D8%9F-%D9%82%D9%85%D9%8A%D8%B5-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/)
+- **حملة سخط غير مسبوقة.. جماهير مغربية تطالب بإبعاد الزلزولي عن المنتخب بعد واقعة "قميص سبتة"**: [Link](https://www.akhbarona.com/sport/proplayers/432480.html)
+
+
+### todos somos caballas (N/A, Mon, 14 Sep 2026 13:30:00 -0700)
+
+- **El Betis aprovechará el parón con un amistoso solidario ante el Ceuta**: [Link](https://www.marca.com/futbol/betis/2026/09/11/betis-aprovechara-paron-amistoso-solidario-ceuta.html)
+- **Críticas a Abde en Marruecos por vestir la camiseta de apoyo a Ceuta: «Todos somos caballas»**: [Link](https://www.abc.es/deportes/alfinaldelapalmera/noticias-betis/criticas-abde-marruecos-vestir-camiseta-apoyo-ceuta-20260915002335-nts.html)
+- **El Villarreal y el Betis saltarán al campo con una camiseta de apoyo a Ceuta**: [Link](https://www.elpueblodeceuta.es/sec/deportes/villarreal-betis-saltaran-campo-camiseta_1_1189145.html)
+
+
 ### villarreal cf vs real betis standings (N/A, Mon, 14 Sep 2026 15:00:00 -0700)
 
 - **Villarreal vs Real Betis: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6qjky5vv9kzt)
