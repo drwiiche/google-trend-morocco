@@ -1,3 +1,73 @@
+### la liga (N/A, Tue, 15 Sep 2026 14:30:00 -0700)
+
+- **Live Blog! Elche vs. Real Madrid in LaLiga**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/live-blog-elche-vs-real-madrid-in-laliga-2026-09-15)
+- **To fix Real Madrid's weak point: Mourinho sets a tight plan before the derby**: [Link](https://www.goal.com/en/news/to-address-real-madrid-s-weak-point-mourinho-sets-a-tight-plan-before-the-derby/blt0079140c3c9310ae)
+- **Elche v Real Madrid Goalscorer Betting Markets: Kylian Mbappe, Carlos Espi, Vinicius Junior**: [Link](https://www.gambling911.com/elche-v-real-madrid-goalscorer-betting-markets-kylian-mbappe)
+
+
+### match real (N/A, Tue, 15 Sep 2026 14:20:00 -0700)
+
+- **DIRECT. Elche - Real Madrid, La Liga : Le Real mène de 2 buts à la pause**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/elche-real-madrid-live/693132)
+- **Sixième journée de Liga 2026 : suivez Elche-Real Madrid EN DIRECT (0-2)**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-elche-cf-real-madrid_mtc21891393/live-commentary.shtml)
+- **Yan Diomande lance enfin sa saison madrilène avec une passe décisive**: [Link](https://africafoot.com/yan-diomande-lance-enfin-sa-saison-madrilene-avec-une-passe-decisive/)
+
+
+### carburant (N/A, Tue, 15 Sep 2026 14:10:00 -0700)
+
+- **Salaires, carburants, mobilisations... le pouvoir d'achat s'impose dans la campagne**: [Link](https://medias24.com/agence-presse/salaires-carburants-mobilisations-le-pouvoir-dachat-simpose-dans-la-campagne/)
+- **INFO RMC. -6.6% en août: la consommation de carburant en France plonge**: [Link](https://rmc.bfmtv.com/actualites/societe/transports/info-rmc-6-6-en-aout-la-consommation-de-carburant-en-france-plonge_AV-202609140174.html)
+- **Diesel à partir de 2,19€/L ce mardi 15 septembre : jusqu’à -0,16 € par litre dans les stations-service les moins chères**: [Link](https://www.turbo.fr/actualite-automobile/diesel-partir-de-219eu-l-ce-mardi-15-septembre-jusqua-016-eu-par-litre-dans-les-stations-service-les-moins-cheres-203595)
+
+
+### اتحاد شمال إفريقيا لكرة القدم (N/A, Tue, 15 Sep 2026 13:40:00 -0700)
+
+- **المنتخب الوطني لاقل من 17 سنة يشارك في بطولة شمال أفريقيا بتونس**: [Link](https://frmf.ma/articles/lequipe-nationale-u17-face-a-lalgerie-a-legypte-a-la-tunisie-et-a-la-libye-au-championnat-de-lunaf)
+- **كأس أمم إفريقيا لكرة القدم - أقل من 17 سنة (تصفيات منطقة شمال إفريقيا) .. المنتخب المغربي يواجه في مباراته الأولى نظيره الجزائري**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-20260915)
+- **الكشف عن قرعة تصفيات "كان الفتيان"**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%82%D8%B1%D8%B9%D8%A9-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-454984.html)
+
+
+### accords d'abraham (N/A, Tue, 15 Sep 2026 13:20:00 -0700)
+
+- **Jared Kushner, le Maroc et les milliards promis des accords d’Abraham**: [Link](https://www.jeuneafrique.com/1841750/politique/jared-kushner-le-maroc-et-les-milliards-promis-des-accords-dabraham/)
+- **Nouvelles alliances, armements améliorés… Comment les houthistes sont parvenus à humilier l’Arabie saoudite**: [Link](https://www.lefigaro.fr/international/nouvelles-alliances-armements-ameliores-comment-les-houthistes-sont-parvenus-a-humilier-l-arabie-saoudite-20260915)
+- **« Dans le détroit de Bab el-Mandeb, l’Iran abat une carte stratégique déterminante face aux États-Unis »**: [Link](https://www.lepoint.fr/monde/dans-le-detroit-de-bab-el-mandeb-liran-abat-une-carte-strategique-determinante-face-aux-etats-unis-P5DPEHQDHZGLFH5FBD5F3H6ZVE/)
+
+
+### kylian mbappé (N/A, Tue, 15 Sep 2026 13:20:00 -0700)
+
+- **Benatia Calls Yamal ‘More Classy’ Than Mbappe in Ballon d’Or Debate**: [Link](https://www.moroccoworldnews.com/2026/09/338394/benatia-calls-yamal-more-classy-than-mbappe-in-ballon-dor-debate/)
+- **Real can use the previous strategy to help Mbarpa win Golden Ball 2026**: [Link](https://periskopi.com/en/2026/9/real-previous-strategy-mbarpa-win-golden-ball-2026)
+- **After Vinícius was hurt: Real Madrid ends the rift with a fierce campaign to crown Mbappé with the Ballon d'Or**: [Link](https://www.goal.com/en-in/news/after-vinicius-was-hurt-real-madrid-ends-the-rift-with-a-fierce-campaign-to-crown-mbappe-with-the-ballon-d-or/blt5fec3e23b68e995c)
+
+
+### السنغال (N/A, Tue, 15 Sep 2026 13:00:00 -0700)
+
+- **تطورات جديدة بشأن طعن السنغال ضد تتويج المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%B7%D8%B9%D9%86-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%B6%D8%AF-%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt5c3c63442b19ad26)
+- **كان 2025.. المغرب والسنغال يقتربان من موعد الحسم أمام «طاس»**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D9%86-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8%D8%A7%D9%86-%D9%85%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D8%A3%D9%85%D8%A7%D9%85-%D8%B7%D8%A7%D8%B3/25384)
+- **الشمامي في "جلسة عمل" .. ذكريات الجيش الملكي ومستقبل الكرة المغربية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%AC%D9%84%D8%B3%D8%A9-%D8%B9%D9%85%D9%84-%D8%B0%D9%83%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84-1804294.html)
+
+
+### إصابة (N/A, Tue, 15 Sep 2026 12:40:00 -0700)
+
+- **عموتة يفاجئ أشرف داري بقرار جديد في الأهلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%94%D8%B4%D8%B1%D9%81-%D8%AF%D8%A7%D8%B1%D9%8A-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A/blt10e135be3badd3a7)
+- **عماد متعب: الأهلي يعاني من مشاكل عديدة.. والانتصارات تأتي بمجهود فردي**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=15092026&id=d04c3aae-aad4-4a2f-9d77-a58b46e2911f)
+- **طبيب الأهلى يكشف تفاصيل إصابة طاهر محمد طاهر فى مباراة أبو قير**: [Link](https://www.youm7.com/story/2026/9/16/%D8%B7%D8%A8%D9%8A%D8%A8-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%89-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B7%D8%A7%D9%87%D8%B1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B7%D8%A7%D9%87%D8%B1-%D9%81%D9%89-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9/7547853)
+
+
+### elche (N/A, Tue, 15 Sep 2026 12:40:00 -0700)
+
+- **Elche vs. Real Madrid (Sep 15, 2026) Live Score**: [Link](https://www.espn.com/soccer/match/_/gameId/401882872)
+- **Tribute to Cucurella for the World Cup**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/homenaje-a-cucurella-por-la-copa-del-mundo-15-09-2026)
+- **How to watch Elche vs. Real Madrid online for free**: [Link](https://mashable.com/entertainment/elche-real-madrid-la-liga-2026-live-stream-for-free)
+
+
+### بشرى كربوبي (N/A, Tue, 15 Sep 2026 12:30:00 -0700)
+
+- **الزلزولي يثير الجدل بقميص "كلنا سبتاويون" بعد أزمة الهجرة**: [Link](https://ar.telquel.ma/%D8%AE%D8%A7%D8%B5-%D8%A8%D8%B4%D8%B1%D9%89-%D9%83%D8%B1%D8%A8%D9%88%D8%A8%D9%8A-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81/)
+- **بشرى كربوبي تتراجع عن قرار الاعتزال**: [Link](https://ar.lesiteinfo.com/sport/%D8%A8%D8%B4%D8%B1%D9%89-%D9%83%D8%B1%D8%A8%D9%88%D8%A8%D9%8A-%D8%AA%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-1020754.html)
+- **بعد تراجع حضورها محليا.. بشرى كربوبي تبحث عن انطلاقة جديدة في إسبانيا**: [Link](https://i3lamtv.com/172012)
+
+
 ### ليفربول ضد توتنهام (N/A, Tue, 15 Sep 2026 11:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة ليفربول وتوتنهام في كأس الرابطة الإنجليزية 2026-2027؟ وكيف تشاهدها عبر الإنترنت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1931abd92d06e06f)
