@@ -1,3 +1,29 @@
+### météo (N/A, Tue, 15 Sep 2026 23:10:00 -0700)
+
+
+
+
+### weather (N/A, Tue, 15 Sep 2026 23:00:00 -0700)
+
+- **Blast of wintry weather to impact millions of people**: [Link](https://www.nine.com.au/australia-news/weather-forecast-unseasonable-spring-cold-blast-20260915-p60xc3.html)
+- **Southwest Sizzles, East Cools in National Forecast**: [Link](https://www.miragenews.com/southwest-sizzles-east-cools-in-national-1745054/)
+- **Heavy snowfalls in Tasmania as cold front bites**: [Link](https://www.weatherzone.com.au/news/heavy-snowfalls-in-tasmania-as-cold-front-bites/1891557)
+
+
+### google (N/A, Tue, 15 Sep 2026 20:00:00 -0700)
+
+- **Build real-time voice applications with Gemini 3.8 Live and 3.5 Transcribe**: [Link](https://blog.google/innovation-and-ai/technology/developers-tools/build-real-time-voice-applications-gemini-audio/)
+- **Google releases new Gemini models built to improve conversing capabilities of voice agents**: [Link](https://seekingalpha.com/news/4643146-google-releases-new-gemini-models-built-to-improve-conversing-capabilities-of-voice-agents)
+- **Gemini 3.8 Live Extended Thinking powers Gemini Live, Gmail, & Keep**: [Link](https://9to5google.com/2026/09/15/gemini-3-8-live-announced/)
+
+
+### match real madrid (N/A, Tue, 15 Sep 2026 15:00:00 -0700)
+
+- **Elche 2-3 Real Madrid, La Liga : Espi sauve à nouveau le Real, Mbappé buteur et passeur**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/elche-real-madrid-live/693132)
+- **Elche-Real Madrid: le Real se fait peur mais s'impose, Mbappé doublement décisif**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-elche-real-madrid-suivez-le-match-de-la-6e-journee-de-liga-avec-kylian-mbappe-en-live_LS-202609150621.html)
+- **Elche-Real Madrid : revivez la victoire arrachée par Mbappé et les Madrilènes**: [Link](https://www.lefigaro.fr/sports/football/live/liga/2026/2650816/elche-real-madrid)
+
+
 ### mort (N/A, Tue, 15 Sep 2026 18:30:00 -0700)
 
 - **Catherine Ringer, célèbre voix des Rita Mitsouko, est morte à l’âge de 68 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/09/15/catherine-ringer-celebre-voix-des-rita-mitsouko-est-morte_6774408_3382.html)
