@@ -1,3 +1,17 @@
+### mort (N/A, Tue, 15 Sep 2026 18:30:00 -0700)
+
+- **Catherine Ringer, célèbre voix des Rita Mitsouko, est morte à l’âge de 68 ans**: [Link](https://www.lemonde.fr/disparitions/article/2026/09/15/catherine-ringer-celebre-voix-des-rita-mitsouko-est-morte_6774408_3382.html)
+- **« Une sorte de Piaf pop, une Castafiore sous acide » : La chanteuse des Rita Mitsouko Catherine Ringer est morte**: [Link](https://www.parismatch.com/culture/musique/une-sorte-de-piaf-pop-une-castafiore-sous-acide-la-chanteuse-des-rita-mitsouko-catherine-ringer-est-morte-275780)
+- **Insultée par Serge Gainsbourg, échange lunaire avec Thierry Ardisson… les moments télé de Catherine Ringer**: [Link](https://tvmag.lefigaro.fr/programme-tv/people/insultee-par-serge-gainsbourg-echange-lunaire-avec-thierry-ardisson-les-moments-tele-de-catherine-ringer-20260915)
+
+
+### kick (N/A, Tue, 15 Sep 2026 13:20:00 -0700)
+
+- **Hearing into former Regina police chief's appeal of firing underway**: [Link](https://www.cbc.ca/player/play/video/9.7345618)
+- **Appeal hearing for fired RPS chief hears from complaint investigator**: [Link](https://www.ctvnews.ca/regina/article/appeal-hearing-for-fired-rps-chief-hears-from-complaint-investigator/)
+- **'Flirtatious' texts, drug trafficking investigation kick-started probe into fired Regina police chief**: [Link](https://ca.news.yahoo.com/flirtatious-texts-drug-trafficking-investigation-001903568.html)
+
+
 ### elche cf vs real madrid standings (N/A, Tue, 15 Sep 2026 15:20:00 -0700)
 
 - **Elche vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmkgw3kyv37qt)
