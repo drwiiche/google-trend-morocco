@@ -1,3 +1,57 @@
+### كأس الأمم الإفريقية (N/A, Wed, 16 Sep 2026 04:10:00 -0700)
+
+- **المنتخب الوطني لاقل من 17 سنة يشارك في بطولة شمال أفريقيا بتونس**: [Link](https://frmf.ma/articles/lequipe-nationale-u17-face-a-lalgerie-a-legypte-a-la-tunisie-et-a-la-libye-au-championnat-de-lunaf)
+- **المغرب يواجه الجزائر في تصفيات "كان" أقل من 17 سنة**: [Link](https://madar21.com/453003.html)
+- **طريق "الأشبال" نحو الكان: مواجهات قوية تنتظر المنتخب المغربي في تصفيات شمال إفريقيا لأقل من 17 سنة**: [Link](https://radiomars.ma/%D8%B7%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%86%D8%AD%D9%88-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA/)
+
+
+### منتخب الأردن لكرة القدم (N/A, Wed, 16 Sep 2026 03:40:00 -0700)
+
+- **بادو الزاكي يكشف اوراق النشامى استعدادا لمواجهتي سوريا وفنزويلا**: [Link](https://alwakaai.com/article/748511)
+- **بيان صادر عن الاتحاد الاردني لكرة القدم**: [Link](https://www.sarayanews.com/article/1108093/%D8%A8%D9%8A%D8%A7%D9%86-%D8%B5%D8%A7%D8%AF%D8%B1-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A7%D8%B1%D8%AF%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85)
+- **لماذا اكتفى الأردن بمباراتين فقط في التوقف الدولي المقبل؟**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D9%83%D8%AA%D9%81%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%A8%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D9%86-%D9%81%D9%82%D8%B7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D9%81-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%9F)
+
+
+### coupe d'afrique des nations de football (N/A, Wed, 16 Sep 2026 02:50:00 -0700)
+
+- **Football : Coupe d'Afrique des Nations**: [Link](https://www.canalplus.com/bf/sport/football-coupe-dafrique-des-nations/h/47002893_50466)
+- **Qualifications CAN 2027 : Côte d’Ivoire-Ghana à Bouaké**: [Link](https://fr.apanews.net/cote-divoire/qualifications-can-2027-cote-divoire-ghana-a-bouake/)
+- **Football : Qualifications de la CAN : Épisodes, casting et diffusions**: [Link](https://programmetv.ouest-france.fr/sport/football/football-qualifications-de-la-can-m212294225/)
+
+
+### mohammed vi (N/A, Wed, 16 Sep 2026 02:00:00 -0700)
+
+- **Yasser Mounbir, figure de la scène graffiti au Maroc, risque la prison ferme pour avoir dessiné le roi Mohammed VI**: [Link](https://www.lemonde.fr/international/article/2026/09/16/critiquer-le-pouvoir-n-est-pas-un-crime-au-maroc-un-artiste-de-22-ans-en-proces-pour-des-dessins-de-mohammed-vi_6774958_3210.html)
+- **Maroc : le graffeur Yasser Mounbir jugé après des dessins de Mohammed VI**: [Link](https://www.africaradio.com/actualite-116557-maroc-le-graffeur-yasser-mounbir-juge-apres-des-dessins-de-mohammed-vi)
+- **L'Événement Maroc Comment les voitures chinoises roulent pour Mohammed VI sur le continent**: [Link](https://www.africaintelligence.fr/afrique-du-nord/2026/09/16/comment-les-voitures-chinoises-roulent-pour-mohammed-vi-sur-le-continent,110878427-eve)
+
+
+### équipe du maroc de football (N/A, Tue, 15 Sep 2026 23:50:00 -0700)
+
+- **Accréditations presse : match de l’équipe nationale “A”face au Gabon**: [Link](https://frmf.ma/fr/articles/accreditations-presse-match-de-lequipe-nationale-aface-au-gabon)
+- **Lions de l’Atlas : De nouveaux visages attendus face au Gabon et au Lesotho**: [Link](https://lematin.ma/videos/lions-de-latlas-de-nouveaux-visages-attendus-face-au-gabon-et-au-lesotho/365319)
+- **Éliminatoires de la CAN 2027 : Ouahbi dévoilera ce jeudi la liste des Lions de l’Atlas**: [Link](https://mobile.telquel.ma/2026/09/14/eliminatoires-de-la-can-2027-ouahbi-devoilera-ce-jeudi-la-liste-des-lions-de-latlas_2007335)
+
+
+### weer (N/A, Tue, 15 Sep 2026 22:50:00 -0700)
+
+- **Na 14 jaar bereikt Vierpolders weer eens de tweede ronde**: [Link](https://www.brielsnieuwsland.nl/nieuws/actueel/229274/na-14-jaar-bereikt-vierpolders-weer-eens-de-tweede-ronde)
+- **Vierpolders verspert M.S.V.’71 de weg naar volgende bekerronde**: [Link](https://www.waterwegsport.nl/vierpolders-verspert-m-s-v-71-de-weg-naar-volgende-bekerronde/)
+- **Zomer definitief voorbij, wolken en regen blijven hangen**: [Link](https://www.nhnieuws.nl/nieuws/363296/zomer-definitief-voorbij-wolken-en-regen-blijven-hangen)
+
+
+### هسبريس (N/A, Tue, 15 Sep 2026 22:50:00 -0700)
+
+
+
+
+### union nord-africaine de football (N/A, Tue, 15 Sep 2026 22:40:00 -0700)
+
+- **L’équipe nationale U17 face à l’Algérie, à l’Égypte, à la Tunisie et à la Libye au Championnat de l’UNAF**: [Link](https://frmf.ma/fr/articles/lequipe-nationale-u17-face-a-lalgerie-a-legypte-a-la-tunisie-et-a-la-libye-au-championnat-de-lunaf)
+- **Tournoi UNAF U17: le calendrier des Lionceaux de l’Atlas dévoilé**: [Link](https://sport.le360.ma/football/lions-atlas/tournoi-unaf-u17-le-calendrier-des-lionceaux-de-latlas-devoile_RDJ4C3QPNJCFZAV45JMKWKEYKA/)
+- **EN U17 : Le Maroc entre en lice, compétition reportée et nouveau tirage !**: [Link](https://www.dzfoot.com/equipes-nationales/en-u17-le-maroc-entre-en-lice-competition-reportee-et-nouveau-tirage-299147.html)
+
+
 ### météo (N/A, Tue, 15 Sep 2026 23:10:00 -0700)
 
 
