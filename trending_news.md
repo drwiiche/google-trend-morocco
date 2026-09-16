@@ -1,3 +1,73 @@
+### barca (N/A, Wed, 16 Sep 2026 12:30:00 -0700)
+
+- **Barcelona vs Racing de Santander: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw305vp3rv2dt)
+- **Barcelona vs. Racing Santander: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/barcelona-vs-racing-santander-preview-predictions-lineups-9-16-26)
+- **How to watch Racing Santander vs. Barcelona in the U.S.: TV channel and streaming options for September 16**: [Link](https://www.nytimes.com/athletic/7599945/2026/09/16/racing-santander-vs-barcelona-stream-how-to-watch-la-liga-sept-16/)
+
+
+### anderlecht – lyon (N/A, Wed, 16 Sep 2026 12:00:00 -0700)
+
+- **OL : le but de Nartey après le joli numéro de Boudache face à Anderlecht**: [Link](https://www.footmercato.net/a8114552960770536980-ol-le-but-de-nartey-apres-le-joli-numero-de-boudache)
+- **Pronostic Anderlecht - Lyon : Un match à suspense au sommet**: [Link](https://www.vietnam.vn/fr/nhan-dinh-anderlecht-vs-lyon-diem-nong-cuoc-dua-top-dau)
+- **Europa League - Vitor Bruno opte pour Amane, Aasgaard et Cvetkovic, Openda titulaire à Lyon**: [Link](https://www.lalibre.be/dernieres-depeches/2026/09/16/europa-league-vitor-bruno-opte-pour-amane-aasgaard-et-cvetkovic-openda-titulaire-a-lyon-KAGBNFGYTVBHJI7XG7OFKYZQB4/)
+
+
+### match barca (N/A, Wed, 16 Sep 2026 12:00:00 -0700)
+
+- **Levante 2-4 Barcelona: Champions continue perfect start to La Liga season as Lamine Yamal scores twiece**: [Link](https://www.bbc.com/sport/football/live/cqzezrl9wrx9t)
+- **Lamine Yamal, two by two**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4576115/lamine-yamal-two-by-two)
+- **Barcelona boss Hansi Flick: 'Not our best game' despite 4-2 win at Levante**: [Link](https://global.espn.com/football/story/_/id/49929329/barcelona-hansi-flick-not-our-best-game-levante-win-laliga)
+
+
+### برشلونة ضد رسينغ (N/A, Wed, 16 Sep 2026 11:50:00 -0700)
+
+- **تشكيل برشلونة ضد راسينج.. ما موقف حمزة عبد الكريم في أول مباراة بعد التجديد؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%AC--%D9%85%D8%A7-%D9%85%D9%88%D9%82%D9%81-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85-%D9%81%D9%8A-%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF/blt6ad2cf3f4edaa0d3)
+- **مباشر مباراة برشلونة وراسينغ سانتاندير في الدوري الإسباني 2026-2027.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/16/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA)
+- **ياسر زبيري أمام برشلونة.. المغربي في اختبار قوي بالدوري الإسباني**: [Link](https://2m.ma/ar/news/%D9%8A%D8%A7%D8%B3%D8%B1-%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D9%82%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-20260916)
+
+
+### levante – ath. bilbao (N/A, Wed, 16 Sep 2026 11:50:00 -0700)
+
+- **El Levante-Athletic, pendiente de la alerta naranja por lluvias en Valencia**: [Link](https://www.elcorreo.com/athletic/levanteathletic-pendiente-alerta-naranja-lluvias-valencia-20260916110302-nt.html)
+- **Metrovalencia refuerza este miércoles por la noche el servicio con motivo del encuentro entre Levante U.D. y Athletic Club de Bilbao**: [Link](https://comunica.gva.es/es/detalle?id=414983281&site=373428693)
+- **Alineaciones oficiales del Levante UD - Athletic Club: ¡siete cambios de Luís Castro!**: [Link](https://www.superdeporte.es/levante-ud/2026/09/16/alineaciones-oficiales-levante-ud-athletic-134366298.html)
+
+
+### مان يونايتد ضد برايتون (N/A, Wed, 16 Sep 2026 11:50:00 -0700)
+
+- **كاريك يفتح صفحة ظلم الديربي.. ويكشف موقفه من كأس الرابطة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D9%81%D8%AA%D8%AD-%D8%B5%D9%81%D8%AD%D8%A9-%D8%B8%D9%84%D9%85-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A--%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9/bltec1e51a4ef5bfe28)
+- **مشاهدة مباراة مانشستر يونايتد ضد برايتون في كأس كاراباو.. الموعد والقنوات الناقلة**: [Link](https://www.alkhaleej.ae/2026-09-16/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D9%83%D8%A7%D8%B1%D8%A7%D8%A8%D8%A7%D9%88-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+- **مواعيد مباريات دور الـ32 من كأس رابطة المحترفين الإنجليزية 2027 والقنوات الناقلة**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8032-%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D8%B1%D9%81%D9%8A%D9%86/)
+
+
+### sunderland – az (N/A, Wed, 16 Sep 2026 11:50:00 -0700)
+
+- **Sunderland v AZ, Milan v Benfica and more: Europa League clockwatch – live**: [Link](https://www.theguardian.com/football/live/2026/sep/16/sunderland-v-az-milan-v-benfica-and-more-europa-league-clockwatch-live)
+- **Europa League stats you might see in Gameweek 1**: [Link](https://www.squawka.com/en/features/europa-league-2026-27-stats-you-might-see-gameweek-1/)
+- **AZ come up against the very popular Brian Brobbey, who can still improve in one area**: [Link](https://www.goal.com/en/news/az-come-up-against-the-very-popular-brian-brobbey-who-can-still-improve-in-one-area/blt21a3c1a5fbb95ed0)
+
+
+### atletico madrid (N/A, Wed, 16 Sep 2026 11:50:00 -0700)
+
+- **Atletico Madrid vs Osasuna: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm0repgwx0dlt)
+- **"ATM attackers sidelined by injury, only Lee Kang-in can be trusted! Will Osasuna match break Simone's 'early substitution button'?"**: [Link](https://www.starnewskorea.com/en/sports/2026/09/16/2026091607085987786)
+- **Liga: David and Lee offer victory to Atlético**: [Link](https://frenchfootballweekly.com/2026/09/16/liga-david-and-lee-offer-victory-to-atletico/)
+
+
+### barcelone – santander (N/A, Wed, 16 Sep 2026 11:40:00 -0700)
+
+- **FC Barcelone - Real Racing Club en direct - La Liga : Football Scores & Résultats - 16/09/2026**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-fc-barcelone-real-racing-club_mtc21891327/live.shtml)
+- **Barcelone - Racing de Santander : les compositions officielles**: [Link](https://www.footmercato.net/a889131435783924032-barcelone-racing-de-santander-les-compositions-officielles)
+- **Liga: Zabiri absent du onze de départ face au FC Barcelone**: [Link](https://www.lesiteinfo.com/sport/682098-liga-zabiri-pas-dans-le-onze-de-depart-face-au-fc-barcelone.html)
+
+
+### barcelona vs racing santander (N/A, Wed, 16 Sep 2026 11:40:00 -0700)
+
+- **Cuatro cambios, alguno sorprendente, en el once del Barça**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20260916/1004228103/rotaciones.html)
+- **Íñigo Sainz-Maza, capitán del Racing: "Nuestro estilo de juego puede hacer daño al Barça"**: [Link](https://www.sport.es/es/noticias/barca/inigo-sainz-maza-capitan-racing-santander-barca-barcelona-134298065)
+- **🔴 ESPN EN VIVO por Internet | Mira ahora partido FC Barcelona vs. Racing EN DIRECTO vía Disney Plus**: [Link](https://gestion.pe/mix/sports/espn-en-vivo-por-internet-mira-ahora-partido-fc-barcelona-vs-racing-en-directo-por-futbol-tv-y-disney-plus-online-nnda-nnrt-noticia/)
+
+
 ### atlético madrid – osasuna (N/A, Wed, 16 Sep 2026 09:30:00 -0700)
 
 - **Atlético de Madrid - Osasuna hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/atletico-de-madrid-osasuna-hoy-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-en-vivo-f202609-d/)
