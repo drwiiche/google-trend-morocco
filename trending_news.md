@@ -1,3 +1,73 @@
+### محاكمة (N/A, Wed, 16 Sep 2026 15:10:00 -0700)
+
+- **داتي أمام المحكمة بسبب "ملف رونو"**: [Link](https://www.hespress.com/%D8%AF%D8%A7%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D9%84%D9%81-%D8%B1%D9%88%D9%86%D9%88-1808478.html)
+- **فرنسا: انطلاق محاكمة رشيدة داتي وكارلوس غصن في قضية فساد**: [Link](https://www.france24.com/ar/%D9%81%D8%B1%D9%86%D8%B3%D8%A7/20260916-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D8%B1%D8%B4%D9%8A%D8%AF%D8%A9-%D8%AF%D8%A7%D8%AA%D9%8A-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D9%81%D8%B3%D8%A7%D8%AF-%D8%A7%D8%B3%D8%AA%D8%BA%D9%84%D8%A7%D9%84-%D9%86%D9%81%D9%88%D8%B0)
+- **من هي رشيدة داتي التي تحاكم مع كارلوس غصن في باريس؟**: [Link](https://www.annahar.com/annahar-pedia/348105/%D9%85%D9%86-%D9%87%D9%8A-%D8%B1%D8%B4%D9%8A%D8%AF%D8%A9-%D8%AF%D8%A7%D8%AA%D9%8A-%D8%A7%D9%84%D8%AA%D9%8A-%D8%AA%D8%AD%D8%A7%D9%83%D9%85-%D9%85%D8%B9-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D8%BA%D8%B5%D9%86-%D9%81%D9%8A-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3)
+
+
+### thaïlande (N/A, Wed, 16 Sep 2026 15:10:00 -0700)
+
+- **Thaïlande: fin de l’exemption de visa pour les ressortissants marocains**: [Link](https://fr.le360.ma/economie/thailande-fin-de-lexemption-de-visa-pour-les-ressortissants-marocains_I5BCB4TYWBHCNAHDRQOPSNETSQ/)
+- **Thaïlande : les Marocains désormais soumis à l’obligation de visa**: [Link](https://mobile.telquel.ma/instant-t/2026/09/16/thailande-les-marocains-desormais-soumis-a-lobligation-de-visa_2007853/)
+- **En Thaïlande, des séjours touristiques moins longs pour lutter contre la criminalité**: [Link](https://www.france24.com/fr/asie-pacifique/20260914-tha%C3%AFlande-s%C3%A9jours-touristiques-moins-longs-lutter-contre-criminalit%C3%A9-visa)
+
+
+### fc barcelona vs racing santander standings (N/A, Wed, 16 Sep 2026 14:50:00 -0700)
+
+- **Will he miss the Sevilla clash? The secret behind Juan Garcia's substitution on the night of Barcelona's seven-goal haul**: [Link](https://www.goal.com/en-in/news/will-he-miss-the-sevilla-clash-the-secret-behind-juan-garcia-s-substitution-on-the-night-of-barcelona-s-seven-goal-haul/bltdf9f626b14472317)
+- **Is Joan Garcia injured? Barcelona stopper replaced by Wojciech Szczęsny against Racing**: [Link](https://www.barcablaugranes.com/barcelona-team-news/132598/joan-garcia-injured-wojciech-szczesny-racing)
+- **Barcelona star forced off with injury vs Racing**: [Link](https://getfootballnewsspain.com/barcelona-star-forced-off-with-injury-vs-racing/)
+
+
+### lamine yamal (N/A, Wed, 16 Sep 2026 14:40:00 -0700)
+
+- **'Superstar' Dowman shows his class - but Arsenal know caution is needed**: [Link](https://www.bbc.com/sport/football/articles/c54g7w2jz77mo)
+- **Max Dowman doubles up for Arsenal’s back-ups to beat Ipswich in Carabao Cup**: [Link](https://www.theguardian.com/football/2026/sep/15/ipswich-arsenal-carabao-cup-third-round-match-report)
+- **Mikel Merino makes bold Lamine Yamal comparison as he hails Arsenal's 'unbelievable' teenage sensation Max Dowman**: [Link](https://www.goal.com/en/lists/mikel-merino-compares-arsenal-max-dowman-lamine-yamal/bltc8062f55cf7521f9)
+
+
+### ترتيب الدوري الاسباني (N/A, Wed, 16 Sep 2026 14:40:00 -0700)
+
+- **"كنا سنتعادل مع فريق ميت".. مورينيو ينفجر في وجه لاعبيه ويرفض استثناء جولر | كووورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%86%D8%A7-%D8%B3%D9%86%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D9%81%D8%B1%D9%8A%D9%82-%D9%85%D9%8A%D8%AA--%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%86%D9%81%D8%AC%D8%B1-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A1-%D8%AC%D9%88%D9%84%D8%B1/blt87414bdac08de201)
+- **قدم.. ريال مدريد يخطف فوزا مثيرا من إلتشي ويواصل مطاردة الصدارة**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AE%D8%B7%D9%81-%D9%81%D9%88%D8%B2%D8%A7-%D9%85%D8%AB%D9%8A%D8%B1%D8%A7-%D9%85%D9%86-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-%D9%88%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D9%85%D8%B7%D8%A7%D8%B1%D8%AF%D8%A9-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9/4058453)
+- **مورينيو عن الفوز الصعب على إلتشي: "المشكلة واضحة بالنسبة لي"**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B9%D9%86-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%B5%D8%B9%D8%A8-%D8%B9%D9%84%D9%89-%D8%A5%D9%84%D8%AA%D8%B4%D9%8A-%D8%A7%D9%84%D9%85%D8%B4%D9%83%D9%84%D8%A9-%D9%88%D8%A7%D8%B6%D8%AD%D8%A9-%D8%A8%D8%A7%D9%84%D9%86%D8%B3%D8%A8%D8%A9-%D9%84%D9%8A-2026-09-16)
+
+
+### classement ac milan – benfica (N/A, Wed, 16 Sep 2026 14:40:00 -0700)
+
+- **DIRECT. AC Milan - Benfica, Ligue Europa : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2026-2027/ac-milan-benfica-live/702162)
+- **« J’ai beaucoup appris » : la classe de Gonçalo Ramos envers le PSG et Luis Enrique**: [Link](https://www.sport.fr/football/jai-beaucoup-appris-la-classe-de-goncalo-ramos-envers-le-psg-et-luis-enrique-1482864.shtm)
+- **Rúben Amorim veut remporter la Ligue Europa**: [Link](https://www.sofoot.com/breves/ligue-europa-ruben-amorim-affiche-les-ambitions-de-lac-milan)
+
+
+### ياسر زبيري (N/A, Wed, 16 Sep 2026 14:40:00 -0700)
+
+- **بالفيديو: 6 في 6.. نجم المغرب يستغل خطأ كارثيًا من حارس برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-6-%D9%81%D9%8A-6--%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%BA%D9%84-%D8%AE%D8%B7%D8%A7%D9%94-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A%D9%8B%D8%A7-%D9%85%D9%86-%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltc9cff07e1ba40ca7)
+- **بالفيديو.. المغربي ياسر زبيري يستغل هفوة تشيزني الكارثية ويهز شباك برشلونة**: [Link](https://www.aljazeera.net/sport/2026/9/17/%D8%B4%D8%A7%D9%87%D8%AF-%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+- **إسبانيا تعيد الحس التهديفي للزابيري**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AD%D8%B3-%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A-%D9%84%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-1807687.html)
+
+
+### لامين يامال (N/A, Wed, 16 Sep 2026 14:20:00 -0700)
+
+- **"زلة لسان" تُورط بيدرول.. اعتذار بعد تصريح مثير عن أصول لامين يامال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%84%D8%A9-%D9%84%D8%B3%D8%A7%D9%86-%D8%AA%D9%8F%D9%88%D8%B1%D8%B7-%D8%A8%D9%8A%D8%AF%D8%B1%D9%88%D9%84--%D8%A7%D8%B9%D8%AA%D8%B0%D8%A7%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%86-%D8%A7%D9%94%D8%B5%D9%88%D9%84-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84/blteebdac98fbcb2939)
+- **ألبرت لوكي.. إقناع والد لامين جمال كان المهمة الأصعب في حسم ملف نجم برشلونة**: [Link](https://machahid24.com/sport/512436.html)
+- **الكلمة التي حسمت انضمام لامين جمال لمنتخب إسبانيا بدلا من المغرب**: [Link](https://www.aljazeera.net/sport/2026/9/7/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+
+
+### هداف الدوري الاسباني (N/A, Wed, 16 Sep 2026 14:20:00 -0700)
+
+- **رافينيا يشعل الصدارة.. ترتيب هدافي الدوري الإسباني**: [Link](https://www.eremnews.com/sports/74l7u5i)
+- **ارقام مبابي الاستثنائية مستمرة منذ الموسم الماضي**: [Link](https://www.elsport.com/news/show/840086/%D8%A7%D8%B1%D9%82%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9-%D9%85%D9%86%D8%B0-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A)
+- **هدف كيليان مبابي في مرمي التشي بالدوري الاسباني**: [Link](https://www.btolat.com/video/94855)
+
+
+### efl cup (N/A, Wed, 16 Sep 2026 14:20:00 -0700)
+
+- **League Two Fleetwood host Arsenal in Carabao Cup**: [Link](https://www.bbc.com/sport/football/articles/cqd08y9dd5dko)
+- **EFL Cup fourth round: Premier League clubs' fixtures revealed**: [Link](https://www.premierleague.com/en/news/4698490/efl-cup-fourth-round-premier-league-clubs-fixtures-revealed)
+- **Carabao Cup Round Four draw details and ball numbers**: [Link](https://efl.com/news/2026/september/16/carabao-cup-round-four-draw-details/)
+
+
 ### barca (N/A, Wed, 16 Sep 2026 12:30:00 -0700)
 
 - **Barcelona vs Racing de Santander: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw305vp3rv2dt)
