@@ -1,3 +1,66 @@
+### atlético madrid – osasuna (N/A, Wed, 16 Sep 2026 09:30:00 -0700)
+
+- **Atlético de Madrid - Osasuna hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/atletico-de-madrid-osasuna-hoy-en-directo-previa-y-ultima-hora-de-laliga-ea-sports-en-vivo-f202609-d/)
+- **🚨XIs confirmados: El Metropolitano exige regularidad previa a la gran cita**: [Link](https://es-us.noticias.yahoo.com/deportes/xis-confirmados-metropolitano-exige-regularidad-160000025.html)
+- **Jonathan David jugará de inicio en un once con varias rotaciones en el Atlético**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20260916/1004228057/cholo-presenta-once-rotaciones-atletico-osasuna.html)
+
+
+### deportivo – séville (N/A, Wed, 16 Sep 2026 09:30:00 -0700)
+
+- **Pronostic Deportivo La Corogne vs FC Séville 16 Septembre 2026**: [Link](https://dailysports.net/fr/predictions/le-deportivo-na-toujours-pas-perdu-depuis-son-retour-en-liga-pronostic-pour-deportivo-seville/)
+- **Composition du match La Coruna – Sevilla | LaLiga · 16 sept. 2026**: [Link](https://www.ysscores.com/fr/lineup/5868064/Deportivo-de-La-Coru%C3%B1a-vs-Sevilla-FC)
+- **La Corogne - FC Séville en direct - La Liga : Football Scores & Résultats - 16/09/2026**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-la-corogne-fc-seville_mtc21891289/live.shtml)
+
+
+### omonia – celta vigo (N/A, Wed, 16 Sep 2026 09:10:00 -0700)
+
+- **AC Milan vs Benfica: Where to watch, live stream, TV channel and kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-ac-milan-v-benfica/blt0601058a6df38c7f)
+- **Ligue 1 Round 4 recap: PSG win at Brest, leaders keep pace**: [Link](https://www.sofascore.com/news/ligue-1-round-4-recap-psg-win-at-brest-leaders-keep-pace)
+- **Ligue 1 - Brest v Paris St Germain**: [Link](https://www.reutersconnect.com/item/ligue-1-brest-v-paris-st-germain/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNOUQxRVEySlU)
+
+
+### diesel (N/A, Wed, 16 Sep 2026 09:00:00 -0700)
+
+- **Gas prices rising across the board in NC as national prices hit milestones**: [Link](https://www.wral.com/news/local/gas-prices-surge-in-nc-and-us-september-2026/)
+- **Record-high diesel prices are pushing up the cost of living for everyone**: [Link](https://www.wbur.org/hereandnow/2026/09/16/diesel-prices)
+- **Record Diesel Prices Hit at Worst Time in Key Battleground States**: [Link](https://www.bloomberg.com/news/features/2026-09-16/midterm-elections-rising-us-diesel-heating-oil-prices-hit-voters-in-key-states)
+
+
+### أنصار الله الحوثيون (N/A, Wed, 16 Sep 2026 08:30:00 -0700)
+
+- **رويترز تكشف تفاصيل اجتماع بين الحوثيين ومسؤولين أمريكيين في مسقط**: [Link](https://www.aljazeera.net/news/2026/9/16/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%B9%D9%86-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%88%D9%86-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D9%88%D9%86)
+- **قيادات حوثية تعهدت لأميركيين بعدم مهاجمة سفن إسرائيل**: [Link](https://www.alarabiya.net/arab-and-world/yemen/2026/09/16/%D9%82%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%AD%D9%88%D8%AB%D9%8A%D8%A9-%D8%AA%D8%B9%D9%87%D8%AF%D8%AA-%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF%D9%85-%D9%85%D9%87%D8%A7%D8%AC%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D9%81%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9)
+- **لقاء أميركي حوثي في سلطنة عمان.. "رويترز" تكشف التفاصيل**: [Link](https://www.skynewsarabia.com/middle-east/1892498-%D9%84%D9%82%D8%A7%D8%A1-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%AD%D9%88%D8%AB%D9%8A-%D8%B3%D9%84%D8%B7%D9%86%D8%A9-%D8%B9%D9%85%D8%A7%D9%86-%D8%B1%D9%88%D9%8A%D8%AA%D8%B1%D8%B2-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
+
+
+### رونالد كومان (N/A, Wed, 16 Sep 2026 08:20:00 -0700)
+
+- **نجم الكرة الهولندية كومان ينعى بارتينا**: [Link](https://www.hespress.com/%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%87%D9%88%D9%84%D9%86%D8%AF%D9%8A%D8%A9-%D9%83%D9%88%D9%85%D8%A7%D9%86-%D9%8A%D9%86%D8%B9%D9%89-%D8%A8%D8%A7%D8%B1%D8%AA%D9%8A%D9%86-1808222.html)
+- **الموت يفجع أسطورة برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D9%81%D8%AC%D8%B9-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltc2fbc1e2e6405461)
+- **ترك تدريب هولندا لأجلها.. كومان يعلن وفاة "زوجته الرائعة" بكلمات مؤثرة**: [Link](https://www.aljazeera.net/sport/2026/9/16/%D8%AA%D8%B1%D9%83-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%84%D8%A3%D8%AC%D9%84%D9%87%D8%A7-%D9%83%D9%88%D9%85%D8%A7%D9%86-%D9%8A%D8%B9%D9%84%D9%86)
+
+
+### koh lanta (N/A, Wed, 16 Sep 2026 07:40:00 -0700)
+
+- **Koh-Lanta : "Très déçu !", "8 victoires, c'était pas assez..." Absent de la saison All Stars, ce candidat mythique s'en prend à TF1**: [Link](https://serieously.ouest-france.fr/koh-lanta-tres-decu-8-victoires-cetait-pas-assez-absent-de-la-saison-all-stars-ce-candidat-mythique-sen-prend-a-tf1/)
+- **Lola (Koh-Lanta All Stars) en couple avec Jérémy, elle nous raconte comment elle vit la diffusion : "C'est quand même dur et prenant"**: [Link](https://www.programme-tv.net/news/tv/408091-lola-koh-lanta-all-stars-en-couple-avec-jeremy-elle-nous-raconte-comment-elle-vit-la-diffusion-c-est-quand-meme-dur-et-prenant/)
+- **"Je vais répondre par un uppercut !" : Retournement de situation dans "Koh-Lanta : All Stars"**: [Link](https://www.dhnet.be/medias/television/2026/09/16/je-vais-repondre-par-un-uppercut-retournement-de-situation-dans-koh-lanta-all-stars-UQEUWP5H3VH3PEPKK3F7UDDZZI/)
+
+
+### ذهب (N/A, Wed, 16 Sep 2026 06:30:00 -0700)
+
+- **بعد كارثة منجم "الزرع".. تحذيرات من غياب شروط السلامة في المناجم بالسودان**: [Link](https://www.aljazeera.net/politics/2026/9/16/%D8%A8%D8%B9%D8%AF-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D9%85%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B2%D8%B1%D8%B9-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8)
+- **عشرات القتلى في انهيار منجم سوداني**: [Link](https://www.hespress.com/%D8%B9%D8%B4%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%85%D9%86%D8%AC%D9%85-%D8%B3%D9%88%D8%AF%D8%A7%D9%86%D9%8A-1808314.html)
+- **انهيار منجم ذهب يقتل ما لا يقل عن 67 شخصًا في السودان**: [Link](https://ozarab.media/%D8%A7%D9%86%D9%87%D9%8A%D8%A7%D8%B1-%D9%85%D9%86%D8%AC%D9%85-%D8%B0%D9%87%D8%A8-%D9%8A%D9%82%D8%AA%D9%84-%D9%85%D8%A7-%D9%84%D8%A7-%D9%8A%D9%82%D9%84-%D8%B9%D9%86-67-%D8%B4%D8%AE%D8%B5%D9%8B%D8%A7/)
+
+
+### abde ezzalzouli (N/A, Wed, 16 Sep 2026 06:00:00 -0700)
+
+- **Caso de la camiseta sobre Sebta: Abde Ezzalzouli se explica pero no pide perdón**: [Link](https://es.le360.ma/deportes/caso-de-la-camiseta-sobre-sebta-abde-ezzalzouli-se-explica-pero-no-pide-perdon_USUGPGIN3NCC7B4KP36L4I7YYA/)
+- **Abde responde a las críticas desde Marruecos tras lucir una camiseta en apoyo a Ceuta: "Esto no es una disculpa ante nadie"**: [Link](https://www.elmundo.es/deportes/futbol/2026/09/15/6aa905aee85ece25238b4573.html)
+- **La politización del fútbol: LaLiga sitúa a jugadores extranjeros ante cuestiones políticas ajenas a su profesión**: [Link](https://es.rue20.com/2026/09/15/la-politizacion-del-futbol-laliga-situa-a-jugadores-extranjeros-ante-cuestiones-politicas-ajenas-a-su-profesion/)
+
+
 ### كأس الأمم الإفريقية (N/A, Wed, 16 Sep 2026 04:10:00 -0700)
 
 - **المنتخب الوطني لاقل من 17 سنة يشارك في بطولة شمال أفريقيا بتونس**: [Link](https://frmf.ma/articles/lequipe-nationale-u17-face-a-lalgerie-a-legypte-a-la-tunisie-et-a-la-libye-au-championnat-de-lunaf)
