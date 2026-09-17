@@ -1,3 +1,59 @@
+### avocat (N/A, Thu, 17 Sep 2026 13:00:00 -0700)
+
+- **Diddy lâché par ses avocats en raison d’honoraires impayés**: [Link](https://ici.radio-canada.ca/nouvelle/2284829/diddy-poursuite-diffamation-avocats-abandon)
+- **Sean Combs abandonné par ses avocats pour six mois d'honoraires impayés**: [Link](https://www.urbanhit.fr/sean-combs-abandonne-par-ses-avocats-pour-six-mois-d-honoraires-impayes)
+- **Jugée pour "un pacte de corruption" avec Ghosn, Dati assène avoir "exercé comme avocate"**: [Link](https://medias24.com/agence-presse/jugee-pour-un-pacte-de-corruption-avec-ghosn-dati-assene-avoir-exerce-comme-avocate/)
+
+
+### ligue europa (N/A, Thu, 17 Sep 2026 12:30:00 -0700)
+
+- **Ligue Europa : l'OM subit face à Besiktas une quatrième défaite d'affilée, à trois jours du Classique face au PSG**: [Link](https://www.lequipe.fr/Football/Actualites/A-trois-jours-du-classique-face-au-psg-l-om-subit-face-a-besiktas-une-quatrieme-defaite-d-affilee/1719425)
+- **Besiktas-OM : Harit fait réagir après ses propos sur la ferveur des stades turcs**: [Link](https://fr.hespress.com/488559-besiktas-om-harit-fait-reagir-apres-ses-propos-sur-la-ferveur-des-stades-turcs.html)
+- **OM : Bruno Genesio en remet une couche sur les ambitions du club et annonce un gros turn-over face à Besiktas !**: [Link](https://www.footmercato.net/a7636880625632527742-om-bruno-genesio-en-remet-une-couche-sur-les-ambitions-du-club-et-annonce-un-gros-turn-over-face-a-besiktas)
+
+
+### málaga – villarreal (N/A, Thu, 17 Sep 2026 12:10:00 -0700)
+
+- **Málaga - Villarreal, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/malaga-villarreal-en-directo-laliga-ea-sports-en-vivo-hoy-f202609-d/)
+- **Málaga - Villarreal en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/malaga-villarreal/2026/09/17/01_0101_20260917_182_449-directo.html)
+- **Posiciones de Villarreal contra La Rosaleda: Estadísticas, horarios y dónde ver**: [Link](https://xpectrofm.com/posiciones-de-villarreal-contra-la-rosaleda-estadisticas-horarios-y-donde-ver/)
+
+
+### أوروبا (N/A, Thu, 17 Sep 2026 12:10:00 -0700)
+
+- **إن بى سى: البنتاجون يدرس سحب نحو ثلث القوات الأمريكية من أوروبا**: [Link](https://www.youm7.com/story/2026/9/17/%D8%A5%D9%86-%D8%A8%D9%89-%D8%B3%D9%89-%D8%A7%D9%84%D8%A8%D9%86%D8%AA%D8%A7%D8%AC%D9%88%D9%86-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%B3%D8%AD%D8%A8-%D9%86%D8%AD%D9%88-%D8%AB%D9%84%D8%AB-%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9/7549929)
+- **«زلزال في حلف الناتو».. مخاوف أوروبية من التخلي الأميركي**: [Link](https://www.alghad.tv/%D8%A7%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%BA%D8%AF/news/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D9%81%D9%8A-%D8%AD%D9%84%D9%81-%D8%A7%D9%84%D9%86%D8%A7%D8%AA%D9%88-%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%AE%D9%84%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A)
+- **البنتاغون يدرس سحب نحو ثلث القوات الأمريكية من أوروبا**: [Link](http://burathanews.com/arabic/oI_AtUeP)
+
+
+### موت (N/A, Thu, 17 Sep 2026 12:10:00 -0700)
+
+- **«الإبادة الجماعية مقاربة نسوية فلسطينية»: الحياة والموت في كلمات نساء غزيات**: [Link](https://alittihad.info/%D8%A7%D9%84%D8%A5%D8%A8%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D9%82%D8%A7%D8%B1%D8%A8%D8%A9-%D9%86%D8%B3%D9%88%D9%8A%D8%A9-%D9%81%D9%84%D8%B3%D8%B7%D9%8A/)
+- **غزة بعيون نسائها.. الإبادة بين الجسد والمقاومة والذاكرة.. كتاب جديد**: [Link](https://arabi21.com/story/1788866/%D8%BA%D8%B2%D8%A9-%D8%A8%D8%B9%D9%8A%D9%88%D9%86-%D9%86%D8%B3%D8%A7%D8%A6%D9%87%D8%A7-%D8%A7%D9%84%D8%A5%D8%A8%D8%A7%D8%AF%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AC%D8%B3%D8%AF-%D9%88%D8%A7%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D8%B0%D8%A7%D9%83%D8%B1%D8%A9-%D9%83%D8%AA%D8%A7%D8%A8-%D8%AC%D8%AF%D9%8A%D8%AF)
+- **خالد الجندي: لا إشعار بالموت قبل وقوعه.. واعتقاد “الأربعين يومًا” وهم شائع**: [Link](https://www.youm7.com/story/2026/9/17/%D8%AE%D8%A7%D9%84%D8%AF-%D8%A7%D9%84%D8%AC%D9%86%D8%AF%D9%8A-%D9%84%D8%A7-%D8%A5%D8%B4%D8%B9%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%82%D8%A8%D9%84-%D9%88%D9%82%D9%88%D8%B9%D9%87-%D9%88%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D8%AF-%E2%80%9C%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D9%8A%D9%86-%D9%8A%D9%88%D9%85%D9%8B%D8%A7%E2%80%9D/7549685)
+
+
+### بادو الزاكي (N/A, Thu, 17 Sep 2026 12:10:00 -0700)
+
+- **الزاكي يستدعي 28 لاعبا لمنتخب الأردن**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-28-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-1808777.html)
+- **الزاكي يستدعي الرشدان لوديتي سوريا و فنزويلا**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%A7%D9%84%D8%B1%D8%B4%D8%AF%D8%A7%D9%86-%D9%84%D9%88%D8%AF%D9%8A%D8%AA%D9%8A-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D9%88-%D9%81/)
+- **الزاكي يستدعي ثنائي الرجاء والوداد إلى صفوف المنتخب الأردني**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A5%D9%84%D9%89-%D8%B5%D9%81%D9%88%D9%81-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A/25447)
+
+
+### باكستان (N/A, Thu, 17 Sep 2026 12:00:00 -0700)
+
+- **اليمن مباشر.. إدانات للهجمات الحوثية على السعودية وباكستان تلوح بتنفيذ اتفاق مكة**: [Link](https://www.aljazeera.net/news/liveblog/2026/9/18/%D8%A7%D9%84%D9%8A%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A5%D8%AF%D8%A7%D9%86%D8%A7%D8%AA-%D9%84%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D9%88%D8%AB%D9%8A%D8%A9)
+- **وزير الدفاع الباكستاني يوجه تهديدًا للحوثيين: الوقت حان لتنفيذ "اتفاق مكة" مع السعودية وتركيا**: [Link](https://arabic.euronews.com/2026/09/17/pakistans-defense-minister-issues-a-threat-to-the-houthis-the-time-has-come-to-implement)
+- **باكستان تدين هجوم الحوثيين قرب مكة المكرمة**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A8%D8%A7%D9%83%D8%B3%D8%AA%D8%A7%D9%86-%D8%AA%D8%AF%D9%8A%D9%86-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%AD%D9%88%D8%AB%D9%8A%D9%8A%D9%86-%D9%82%D8%B1%D8%A8-%D9%85%D9%83%D8%A9-%D8%A7%D9%84%D9%85%D9%83%D8%B1%D9%85%D8%A9/4059507)
+
+
+### europa league (N/A, Thu, 17 Sep 2026 11:50:00 -0700)
+
+- **Crystal Palace vs Lech Poznań: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmqlw97ze15zt)
+- **Preview: Crystal Palace vs Lech Poznan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/crystal-palace/europa-league/preview/crystal-palace-vs-lech-poznan-prediction-team-news-lineups_605189.html)
+- **Licensable picture: Football. UEFA Europa League. Crystal Palace - Lech Poznan. 17.09.2026**: [Link](https://www.reutersconnect.com/item/football-uefa-europa-league-crystal-palace-lech-poznan-17092026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDA2Q0VSRUc)
+
+
 ### crystal palace – lech poznań (N/A, Thu, 17 Sep 2026 11:40:00 -0700)
 
 - **Gustav Berggren poza kadrą meczową Lecha Poznań. Dlatego nie zagra z Crystal Palace**: [Link](https://transfery.info/aktualnosci/gustav-berggren-poza-kadra-meczowa-lecha-poznan-dlatego-nie-zagra-z-crystal-palace/282420)
