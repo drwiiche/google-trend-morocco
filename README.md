@@ -1,3 +1,17 @@
+### netflix top movies right now (N/A, Thu, 17 Sep 2026 00:00:00 -0700)
+
+- **R-Rated Taylor Sheridan Thriller, Starring Jon Bernthal, Ranked Among Top Movies on Netflix Right Now**: [Link](https://www.mensjournal.com/entertainment/those-who-wish-me-dead-taylor-sheridan-movie-top-netflix-movies)
+- **‘Those Who Wish Me Dead’ Ending Explained: What Was Owen’s Secret?**: [Link](https://people.com/those-who-wish-me-dead-ending-explained-12111301)
+- **A Great Angelina Jolie Action Movie Rockets Up Netflix’s Top 10 List**: [Link](https://www.forbes.com/sites/paultassi/2026/09/08/a-great-angelina-jolie-action-movie-rockets-up-netflixs-top-10-list/)
+
+
+### nfl schedule this week (N/A, Wed, 16 Sep 2026 23:30:00 -0700)
+
+- **NFL Offensive Line Rankings Week 2: Matchups to Exploit**: [Link](https://www.4for4.com/2026/w2/nfl-offensive-line-rankings-week-2-matchups-exploit)
+- **Circa Survivor Week 2 Strategy & Picks (2026)**: [Link](https://poolgenius.teamrankings.com/circa-survivor-picks/articles/circa-survivor-strategy-picks-week-2-2026/)
+- **NFL Week 2 Predictions: Packers MUST WIN, Vikings-Bears SHOWDOWN & Jack APOLOGIZES to Caleb Williams**: [Link](https://bvmsports.com/2026/09/17/nfl-week-2-predictions-packers-must-win-vikings-bears-showdown-jack-apologizes-to-caleb-williams/)
+
+
 ### إنتر ميامي ضد كروز آزول (N/A, Wed, 16 Sep 2026 18:50:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر ميامي وكروز أزول في نهائي كأس الأبطال 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%83%D8%B1%D9%88%D8%B2-%D8%A7%D9%94%D8%B2%D9%88%D9%84-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte69f50e7990ce598)
