@@ -1,3 +1,17 @@
+### fondateur (N/A, Thu, 17 Sep 2026 14:50:00 -0700)
+
+- **Décès de Mohamed Tazi, fondateur du Groupe Azura et pionnier de l’agro-export marocain**: [Link](https://h24info.ma/economie/deces-mohamed-tazi-azura-maroc/)
+- **Décès de Mohamed Tazi, fondateur du groupe Azura**: [Link](https://fr.le360.ma/societe/deces-de-mohamed-tazi-fondateur-du-groupe-azura_PJJT3LPNK5CZJLGDVTBUIR7IMY/)
+- **Le poète Jean Orizet, cofondateur de la maison d’édition Le Cherche Midi, est mort à 89 ans**: [Link](https://www.lemonde.fr/livres/article/2026/09/17/le-poete-jean-orizet-cofondateur-de-la-maison-d-edition-le-cherche-midi-est-mort-a-89-ans_6776451_3260.html)
+
+
+### يارا السكري (N/A, Thu, 17 Sep 2026 14:30:00 -0700)
+
+- **يارا السكري تؤكد ارتباطها العاطفي بأحمد العوضي**: [Link](https://www.alarabiya.net/culture-and-art/2026/09/17/%D9%8A%D8%A7%D8%B1%D8%A7-%D8%A7%D9%84%D8%B3%D9%83%D8%B1%D9%8A-%D8%AA%D8%A4%D9%83%D8%AF-%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7%D9%87%D8%A7-%D8%B9%D8%A7%D8%B7%D9%81%D9%8A%D8%A7-%D8%A8%D8%A7%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A)
+- **أخبار الفن اليوم: تطورات الحالة الصحية لـ سامح حسين.. مقربون من أحمد العوضي ينفون ارتباطه بـ يارا السكري.. 5 أغاني ينتظرها جمهور كاظم الساهر بحفل القاهرة الجديدة**: [Link](https://www.vetogate.com/5733886)
+- **يارا السكرى تحتفل بعيد ميلاد شقيقتها ريناد.. صور**: [Link](https://www.youm7.com/story/2026/9/17/%D9%8A%D8%A7%D8%B1%D8%A7-%D8%A7%D9%84%D8%B3%D9%83%D8%B1%D9%89-%D8%AA%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B9%D9%8A%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF-%D8%B4%D9%82%D9%8A%D9%82%D8%AA%D9%87%D8%A7-%D8%B1%D9%8A%D9%86%D8%A7%D8%AF-%D8%B5%D9%88%D8%B1/7549580)
+
+
 ### avocat (N/A, Thu, 17 Sep 2026 13:00:00 -0700)
 
 - **Diddy lâché par ses avocats en raison d’honoraires impayés**: [Link](https://ici.radio-canada.ca/nouvelle/2284829/diddy-poursuite-diffamation-avocats-abandon)
