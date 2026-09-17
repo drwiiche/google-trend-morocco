@@ -1,3 +1,17 @@
+### inter miami – cruz azul (N/A, Wed, 16 Sep 2026 16:50:00 -0700)
+
+- **Inter Miami vs Cruz Azul: Campeones Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c64gr3v2m2jkt)
+- **Cruz Azul star Alan Mozo sends defiant warning to Lionel Messi and Inter Miami ahead of Campeones Cup showdown**: [Link](https://www.goal.com/en-ca/lists/lionel-messi-inter-miami-campeones-cup-cruz-azul-alan-mozo/blt0e492ceeb6d38c26)
+- **Cruz Azul Hits a Snag: Huiqui Forced to Rethink Game Plan Before Facing Messi’s Inter Miami**: [Link](https://www.soyfutbol.com/en/news/cruz-azul-hits-a-snag-huiqui-forced-to-rethink-game-plan-before-facing-messis-inter-miami-20260915-0023.html)
+
+
+### kick (N/A, Wed, 16 Sep 2026 15:40:00 -0700)
+
+- **How Ed Craven Co-Founded the Businesses Behind Stake, Kick and Easygo**: [Link](https://kalkine.com.au/news/technology/how-ed-craven-co-founded-the-businesses-behind-stake-kick-and-easygo)
+- **Kick On — Nick Kozakis [TIFF ’26 Review]**: [Link](https://inreviewonline.com/2026/09/16/kick-on-review/)
+- **‘John Wick Cracked Out on Meth’ Toronto Midnight Madness Film ‘Kick On’ Director Nick Kozakis Says Real Stunts Sell the Brutality**: [Link](https://variety.com/2026/film/festivals/nick-kozakis-real-stunts-brutality-kick-on-toronto-midnight-madness-1236859401/)
+
+
 ### محاكمة (N/A, Wed, 16 Sep 2026 15:10:00 -0700)
 
 - **داتي أمام المحكمة بسبب "ملف رونو"**: [Link](https://www.hespress.com/%D8%AF%D8%A7%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D9%84%D9%81-%D8%B1%D9%88%D9%86%D9%88-1808478.html)
