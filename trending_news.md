@@ -1,3 +1,73 @@
+### rima hassan (N/A, Thu, 17 Sep 2026 06:30:00 -0700)
+
+- **"Peut-être qu'un ministre de l'Intérieur ne devrait pas dire ça" : Laurent Nuñez a-t-il participé à alimenter des fuites sur la détention de drogue par Rima Hassan ?**: [Link](https://www.franceinfo.fr/politique/la-france-insoumise/video-peut-etre-qu-un-ministre-de-l-interieur-ne-devrait-pas-dire-ca-laurent-nunez-a-t-il-participe-a-alimenter-des-fuites-sur-la-detention-de-drogue-par-rima-hassan_8191880.html)
+- **« Complément d’enquête » met en cause Nuñez sur l’affaire de drogue visant Rima Hassan**: [Link](https://www.20minutes.fr/politique/4246015-20260916-rima-hassan-nunez-contribue-repandre-information-erronee-possession-drogue-eurodeputee)
+- **«Je n’ai organisé aucune fuite» : Laurent Nuñez nie avoir relayé une information inexacte sur une prétendue drogue dans le sac de Rima Hassan**: [Link](https://www.lefigaro.fr/politique/affaire-rima-hassan-laurent-nunez-accuse-d-avoir-relaye-une-information-inexacte-sur-une-pretendue-drogue-dans-son-sac-20260917)
+
+
+### r1c1 (N/A, Thu, 17 Sep 2026 05:30:00 -0700)
+
+- **R1 FEURS C6 GRAND PRIX DU CENTRE EST-PRIX PARIS-TURF : partants, résultats et arrivée définitive**: [Link](https://www.letrot.com/courses/2026-09-16/4201/6)
+- **Tiercé. Les pronostics de « L'Alsace » pour mercredi 16 septembre - Prix Pallanche Constructions**: [Link](https://www.lalsace.fr/actualite/2026/09/15/les-pronostics-de-l-alsace-pour-mercredi-16-septembre-prix-pallanche-constructions)
+- **Les pronos hippiques du mercredi 16 septembre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mercredi-16-septembre-2026_AN-202609140568.html)
+
+
+### لحم (N/A, Thu, 17 Sep 2026 05:00:00 -0700)
+
+- **الاحتلال الإسرائيلي يقتحم “بيت لحم” وبلدة “الدوحة”**: [Link](https://www.nile.eg/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D9%82%D8%AA%D8%AD%D9%85-%D8%A8%D9%8A%D8%AA-%D9%84%D8%AD%D9%85-%D9%88%D8%A8)
+- **قوات الاحتلال تقتحم بيت لحم وتشن حملة اعتقالات واسعة فى طولكرم**: [Link](https://www.youm7.com/story/2026/9/15/%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D8%AA%D9%82%D8%AA%D8%AD%D9%85-%D8%A8%D9%8A%D8%AA-%D9%84%D8%AD%D9%85-%D9%88%D8%AA%D8%B4%D9%86-%D8%AD%D9%85%D9%84%D8%A9-%D8%A7%D8%B9%D8%AA%D9%82%D8%A7%D9%84%D8%A7%D8%AA-%D9%88%D8%A7%D8%B3%D8%B9%D8%A9-%D9%81%D9%89/7546852)
+- **قوات الاحتلال تقتحم عدة مناطق في بيت لحم**: [Link](https://www.shfanews.net/post/323695)
+
+
+### bourse de casablanca (N/A, Thu, 17 Sep 2026 04:50:00 -0700)
+
+- **Bourse de Casablanca : la séance suspendue ce jeudi**: [Link](https://boursenews.ma/article/marches/bourse-de-casablanca-seance-suspendue-ce-jeudi-17-septembre)
+- **Bourse de Casablanca: la séance de cotation suspendue après un incident technique**: [Link](https://fr.le360.ma/economie/bourse-de-casablanca-la-seance-de-cotation-suspendue-apres-un-incident-technique_YRJQYSA73JCVFA3KA76EJXIHJY/)
+- **Bourse de Casablanca : le MASI recule de 1,13% à la clôture**: [Link](https://medias24.com/2026/09/16/bourse-de-casablanca-le-masi-recule-de-113-a-la-cloture-1757149/)
+
+
+### marine royale (N/A, Thu, 17 Sep 2026 04:10:00 -0700)
+
+- **Le Maroc réceptionnera ce jeudi le patrouilleur Moulay Hassan construit par le groupe espagnol Navantia**: [Link](https://fr.le360.ma/politique/le-maroc-receptionnera-ce-jeudi-le-patrouilleur-moulay-hassan-construit-par-le-groupe-espagnol_FYX7J53JF5DKHHSDPXMZPIV4XY/)
+- **Marine royale : le Maroc réceptionne la patrouille « Moulay Hassan »**: [Link](https://fr.hespress.com/488570-marine-royale-le-maroc-receptionne-la-patrouille-moulay-hassan.html)
+- **La marine marocaine reçoit à huis clos le patrouilleur Moulay-Hassan-Iᵉʳ, premier navire de guerre construit en Espagne depuis 1983**: [Link](https://barlamane.com/fr/la-marine-marocaine-recoit-a-huis-clos-le-patrouilleur-moulay-hassan-i%E1%B5%89%CA%B3-premier-navire-de-guerre-construit-en-espagne-depuis-1983/)
+
+
+### militaire (N/A, Thu, 17 Sep 2026 04:00:00 -0700)
+
+- **Des parachutistes suspendus dans les arbres après une rafale lors d’un exercice militaire : deux blessés graves**: [Link](https://www.bruxellestoday.be/faits-divers/rafale-vent-secours-parachutistes-exercice-militaire-accident.html)
+- **L’exercice militaire tourne au chaos : 14 parachutistes dévient de leur trajectoire et atterrissent dans les arbres, 1 blessé grave**: [Link](https://www.sudinfo.be/id1194889/article/2026-09-17/lexercice-militaire-tourne-au-chaos-14-parachutistes-devient-de-leur-trajectoire)
+- **Plusieurs parachutistes atterrissent dans des arbres à Hechtel-Eksel**: [Link](https://www.lalibre.be/dernieres-depeches/2026/09/17/plusieurs-parachutistes-atterrissent-dans-des-arbres-a-hechtel-eksel-IUBSVUD5VRBN3L6PZL53GTV624/)
+
+
+### match maroc (N/A, Thu, 17 Sep 2026 04:00:00 -0700)
+
+- **M. Mohamed Ouahbi annonce une liste de 29 joueurs en prévision des matchs face au Gabon, au Lesotho et au Ghana**: [Link](https://frmf.ma/fr/articles/m-mohamed-ouahbi-annonce-une-liste-de-29-joueurs-en-prevision-des-matchs-face-au-gabon-au-lesotho-et-au-ghana)
+- **Éliminatoires CAN 2027 : Mohamed Ouahbi dévoile sa liste contre le Gabon et le Lesotho**: [Link](https://medias24.com/2026/09/17/eliminatoires-can-2027-mohamed-ouahbi-devoile-sa-liste-contre-le-gabon-et-le-lesotho-1757589/)
+- **Maroc : Yassir Zabiri et Younes Ebnoutalib convoqués**: [Link](https://www.footmercato.net/a3890286422603410919-maroc-yassir-zabiri-et-younes-ebnoutalib-convoques)
+
+
+### tawfik bentayeb (N/A, Thu, 17 Sep 2026 03:50:00 -0700)
+
+- **Tawfik Bentayeb prêt à franchir un nouveau cap avec Anderlecht en Europe**: [Link](https://fr.hespress.com/488525-tawfik-bentayeb-pret-a-franchir-un-nouveau-cap-avec-anderlecht-en-europe.html)
+- **Tawfik Bentayeb confirme avoir discuté avec Marc Wilmots : "Le projet à Liège était intéressant, mais..."**: [Link](https://www.walfoot.be/news/2026-09-16/tawfik-bentayeb-confirme-avoir-discute-avec-marc-wilmots-le-projet-a-liege-etait-interessant-mais)
+- **L'offre Standard, sa faim de buts, Sibierski, Boussoufa,... Tawfik Bentayeb, la nouvelle arme offensive d'Anderlecht, se confie avant d'affronter Lyon**: [Link](https://www.dhnet.be/sports/football/division-1a/anderlecht/2026/09/16/loffre-standard-sa-faim-de-buts-sibierski-boussoufa-tawfik-bentayeb-la-nouvelle-arme-offensive-danderlecht-se-confie-avant-daffronter-lyon-3KLL2L2EZZHOVGIY2WVZ2WYPRA/)
+
+
+### soufiane el faouzi (N/A, Thu, 17 Sep 2026 03:40:00 -0700)
+
+- **Maroc : Mohamed Ouahbi lâche ses vérités sur le cas Younès Ebnoutalib**: [Link](https://www.footmercato.net/a5245850425945998521-maroc-mohamed-ouahbi-lache-ses-verites-sur-le-cas-younes-ebnoutalib)
+- **44 joueurs, deux équipes : Klopp bouscule les codes pour sa première liste de sélectionneur**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/44-joueurs-deux-equipes-differentes-klopp-bouscule-les-codes-pour-sa-premiere-liste-comme-selectionneur-de-lallemagne_sto23338037/story.shtml)
+- **Allemagne : Klopp convoque 44 joueurs répartis en deux groupes**: [Link](https://fr.hespress.com/488721-allemagne-klopp-convoque-44-joueurs-repartis-en-deux-groupes.html)
+
+
+### direction générale des impôts (N/A, Thu, 17 Sep 2026 02:20:00 -0700)
+
+- **La DGI rappelle trois échéances fiscales avant le 1ᵉʳ octobre**: [Link](https://medias24.com/2026/09/16/la-dgi-rappelle-trois-echeances-fiscales-avant-le-1%E1%B5%89%CA%B3-octobre-1756965/)
+- **DGI : le 1er octobre 2026, dernier délai pour plusieurs obligations fiscales**: [Link](https://maroc-diplomatique.net/dgi-le-1er-octobre-2026-dernier-delai-pour-plusieurs-obligations-fiscales/)
+- **Amnistie fiscale : vous avez jusqu’au 30 septembre pour éviter les pénalités !**: [Link](https://www.tuniscope.com/article/439851/tunisie/actualites/amnistie-fiscale-035809)
+
+
 ### netflix top movies right now (N/A, Thu, 17 Sep 2026 00:00:00 -0700)
 
 - **R-Rated Taylor Sheridan Thriller, Starring Jon Bernthal, Ranked Among Top Movies on Netflix Right Now**: [Link](https://www.mensjournal.com/entertainment/those-who-wish-me-dead-taylor-sheridan-movie-top-netflix-movies)
