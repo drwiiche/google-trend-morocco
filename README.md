@@ -1,3 +1,73 @@
+### crystal palace – lech poznań (N/A, Thu, 17 Sep 2026 11:40:00 -0700)
+
+- **Gustav Berggren poza kadrą meczową Lecha Poznań. Dlatego nie zagra z Crystal Palace**: [Link](https://transfery.info/aktualnosci/gustav-berggren-poza-kadra-meczowa-lecha-poznan-dlatego-nie-zagra-z-crystal-palace/282420)
+- **Crystal Palace - Lech Poznań gdzie oglądać? Stream online i transmisja na żywo w TV z Ligi Europy (17.09.2026)**: [Link](https://www.meczyki.pl/newsy/pilka-nozna/crystal-palace-lech-poznan-gdzie-ogladac-stream-online-i-transmisja-na-zywo-w-tv-z-ligi-europy-17-09-2026/313189)
+- **Frederiksen przed meczem z Crystal Palace: Chcemy awansować do fazy play off LE**: [Link](https://www.flashscore.pl/wiadomosci/pi-ka-nozna-liga-europy-frederiksen-przed-meczem-z-crystal-palace-chcemy-awansowac-do-fazy-play-off-le/jLPBGAfm/)
+
+
+### الخبر (N/A, Thu, 17 Sep 2026 11:40:00 -0700)
+
+- **بنكيران يرفض التطبيع ويتجنب التعليق**: [Link](https://www.hespress.com/%D8%A8%D9%86%D9%83%D9%8A%D8%B1%D8%A7%D9%86-%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B7%D8%A8%D9%8A%D8%B9-%D9%88%D9%8A%D8%AA%D8%AC%D9%86%D8%A8-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%82-1808802.html)
+- **إسرائيل والمغرب يتفقان على فتح سفارتين.. وتنشيط التعاون الاقتصادي**: [Link](https://www.alarabiya.net/north-africa/morocco/2026/09/17/%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D9%81%D9%82%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D9%81%D8%AA%D8%AD-%D8%B3%D9%81%D8%A7%D8%B1%D8%AA%D9%8A%D9%86-%D9%88%D8%AA%D9%86%D8%B4%D9%8A%D8%B7-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A)
+- **سفارة تحت الضغط**: [Link](https://thevoice.ma/%D8%B3%D9%81%D8%A7%D8%B1%D8%A9-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7/)
+
+
+### منتخب الغابون لكرة القدم (N/A, Thu, 17 Sep 2026 11:30:00 -0700)
+
+- **المنتخب الوطني: محمد وهبي يعلن عن لائحة 29 لاعبا استعدادا لمباريات الغابون وليسوتو وغانا**: [Link](https://frmf.ma/articles/m-mohamed-ouahbi-annonce-une-liste-de-29-joueurs-en-prevision-des-matchs-face-au-gabon-au-lesotho-et-au-ghana)
+- **قائمة منتخب المغرب.. وهبي يفاجئ الجماهير بوجوه جديدة لتصفيات أمم أفريقيا 2027**: [Link](https://www.aljazeera.net/sport/2026/9/17/%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%87%D8%A8%D9%8A-%D9%83%D8%A7%D9%86)
+- **وهبي يوضح حقيقة الجدل حول الزلزولي.. مجرد سوء فهم ولا أحد يشكك في وطنيته**: [Link](https://ar.telquel.ma/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%88%D8%B6%D8%AD-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D9%85%D8%B9%D9%85%D8%A7-%D8%A7%D9%84%D9%85%D9%86/)
+
+
+### besiktas – marseille (N/A, Thu, 17 Sep 2026 11:20:00 -0700)
+
+- **Besiktas-OM : Harit fait réagir après ses propos sur la ferveur des stades turcs**: [Link](https://fr.hespress.com/488559-besiktas-om-harit-fait-reagir-apres-ses-propos-sur-la-ferveur-des-stades-turcs.html)
+- **OM : Bruno Genesio en remet une couche sur les ambitions du club et annonce un gros turn-over face à Besiktas !**: [Link](https://www.footmercato.net/a7636880625632527742-om-bruno-genesio-en-remet-une-couche-sur-les-ambitions-du-club-et-annonce-un-gros-turn-over-face-a-besiktas)
+- **Pourquoi l'OM a réfléchi à ne pas participer à la Ligue Europa**: [Link](https://www.lequipe.fr/Football/Article/Pourquoi-l-om-a-fait-le-choix-de-se-battre-contre-une-exclusion-de-la-ligue-europa/1718995)
+
+
+### مان سيتي ضد نورويتش (N/A, Thu, 17 Sep 2026 10:50:00 -0700)
+
+- **قبل مواجهة نوريتش...المان سيتي يعول على بوعدي في كأس الرابطة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D9%88%D8%B1%D9%8A%D8%AA%D8%B4%D8%A7%D9%84%D9%85%D8%A7%D9%86-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9/25403)
+- **توقعات مباراة مانشستر سيتي ونورويتش: الفوز للتأهل**: [Link](https://www.vietnam.vn/ar/nhan-dinh-manchester-city-vs-norwich-thang-de-di-tiep)
+- **من هو فلويد سامبا**: [Link](https://ar.mancity.com/news/mens/who-is-city-s-floyd-samba-63925266)
+
+
+### يونس ابن طالب (N/A, Thu, 17 Sep 2026 10:50:00 -0700)
+
+- **وهبي يحسم الجدل بخصوص بنطالب .. ويكشف سبب عدم ملاقاة الأرجنتين**: [Link](https://www.hespress.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D8%AE%D8%B5%D9%88%D8%B5-%D8%A8%D9%86%D8%B7%D8%A7%D9%84%D8%A8-%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D8%B3%D8%A8-1808720.html)
+- **هدد بالاستقالة.. كلوب يبدأ رحلته مع ألمانيا بقائمتين منفصلتين وثورة في الاستدعاءات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%AF%D8%AF-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9--%D9%83%D9%84%D9%88%D8%A8-%D9%8A%D8%A8%D8%AF%D8%A7%D9%94-%D8%B1%D8%AD%D9%84%D8%AA%D9%87-%D9%85%D8%B9-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%AA%D9%8A%D9%86-%D9%85%D9%86%D9%81%D8%B5%D9%84%D8%AA%D9%8A%D9%86-%D9%88%D8%AB%D9%88%D8%B1%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A1%D8%A7%D8%AA/blt6c57a7067f91c727)
+- **يورغن كلوب يوجّه رسالة سياسية حازمة لليمين خلال إعلان قائمة منتخب ألمانيا**: [Link](https://www.aljazeera.net/sport/2026/9/17/%D9%8A%D9%88%D8%B1%D8%BA%D9%86-%D9%83%D9%84%D9%88%D8%A8-%D9%85%D8%AF%D8%B1%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7)
+
+
+### manchester city – norwich city (N/A, Thu, 17 Sep 2026 10:40:00 -0700)
+
+- **Rulli, Allan and Samba handed debuts for Norwich Carabao Cup clash**: [Link](https://www.mancity.com/news/mens/manchester-city-v-norwich-team-news-and-tactics-1-63925262)
+- **Manchester City v Norwich City pre match stat pack**: [Link](https://www.efl.com/news/2026/september/17/manchester-city-v-norwoch-city-pre-match-stat-pack/)
+- **Husanov to start against Norwich: Maresca shows confidence in him**: [Link](https://zamin.uz/en/sport/221651-husanov-to-start-against-norwich-maresca-shows-confidence-in-him.html)
+
+
+### betis vs getafe (N/A, Thu, 17 Sep 2026 10:30:00 -0700)
+
+- **Real Betis vs Getafe CF - Where to Watch, Stream Info, TV Channel, and Live Updates (September 17, 2026)**: [Link](https://www.fubo.tv/news/soccer/real-betis-vs-getafe-cf-where-to-watch-stream-info-tv-channel-and-live-updates-september-17-2026/)
+- **Real Betis vs Getafe Predictions, Bet Builder Tips, Lineups, Odds**: [Link](https://www.whoscored.com/articles/Xni9Ko0_s0il_MscTZHJkQ/show/20260917-real-betis-vs-getafe-prediction-1789636223)
+- **Watch Real Betis vs Getafe LaLiga soccer game LIVE: Online streams, TV channel, confirmed team news, start time**: [Link](https://www.goal.com/en-us/news/watch-real-betis-v-getafe-live-stream-online-tv-channel/blt223be7f592706e99)
+
+
+### سامح حسين (N/A, Thu, 17 Sep 2026 09:20:00 -0700)
+
+- **ما زال بالعناية المركزة.. زوجة سامح حسين تطلب من الجمهور الدعاء له**: [Link](https://www.alarabiya.net/culture-and-art/2026/09/17/%D9%85%D8%A7%D8%B2%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%B9%D9%86%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D8%A9-%D8%B2%D9%88%D8%AC%D8%A9-%D8%B3%D8%A7%D9%85%D8%AD-%D8%AD%D8%B3%D9%8A%D9%86-%D8%AA%D8%B7%D9%84%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%AF%D8%B9%D8%A7%D8%A1-%D9%84%D9%87-)
+- **أهل الفن في 24 ساعة.. عملية جراحية وعناية مركزة وحادث سير**: [Link](https://www.elwatannews.com/news/details/8360024)
+- **فنان شهير يتعرض لأزمة صحية مفاجئة وصور من داخل المستشفى تنتشر**: [Link](https://www.arabwindow.net/celebrities/130484/%D9%81%D9%86%D8%A7%D9%86-%D8%B4%D9%87%D9%8A%D8%B1-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A3%D8%B2%D9%85%D8%A9-%D8%B5%D8%AD%D9%8A%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%88%D8%B5%D9%88%D8%B1/)
+
+
+### betis – getafe (N/A, Thu, 17 Sep 2026 09:10:00 -0700)
+
+- **Betis - Getafe hoy, en directo: sigue el partido de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/betis-getafe-hoy-en-directo-sigue-el-partido-de-laliga-ea-sports-en-vivo-f202609-d/)
+- **Betis - Getafe en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/betis-getafe/2026/09/17/01_0101_20260917_185_1450-directo.html)
+- **El brasileño Antony y Parrott en un once con 7 cambios; Satriano e Iván, ataque del Getafe**: [Link](https://www.infobae.com/espana/agencias/2026/09/17/el-brasileno-antony-y-parrott-en-un-once-con-7-cambios-satriano-e-ivan-ataque-del-getafe/)
+
+
 ### rima hassan (N/A, Thu, 17 Sep 2026 06:30:00 -0700)
 
 - **"Peut-être qu'un ministre de l'Intérieur ne devrait pas dire ça" : Laurent Nuñez a-t-il participé à alimenter des fuites sur la détention de drogue par Rima Hassan ?**: [Link](https://www.franceinfo.fr/politique/la-france-insoumise/video-peut-etre-qu-un-ministre-de-l-interieur-ne-devrait-pas-dire-ca-laurent-nunez-a-t-il-participe-a-alimenter-des-fuites-sur-la-detention-de-drogue-par-rima-hassan_8191880.html)
