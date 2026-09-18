@@ -1,3 +1,17 @@
+### محكمة (N/A, Fri, 18 Sep 2026 14:40:00 -0700)
+
+- **محكمة أمريكية ترفض سياسة ترامب لترحيل المهاجرين إلى دول ثالثة**: [Link](https://www.alquds.co.uk/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%B1%D9%81%D8%B6-%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%84%D8%AA%D8%B1%D8%AD%D9%8A%D9%84/)
+- **مشرّعون ينتقدون سياسة الترحيل الجماعي التي ينتهجها ترمب**: [Link](https://www.independentarabia.com/node/658285/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B4%D8%B1%D9%91%D8%B9%D9%88%D9%86-%D9%8A%D9%86%D8%AA%D9%82%D8%AF%D9%88%D9%86-%D8%B3%D9%8A%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D8%AA%D9%8A-%D9%8A%D9%86%D8%AA%D9%87%D8%AC%D9%87%D8%A7-%D8%AA%D8%B1%D9%85%D8%A8)
+- **رفض سياسة ترحيل ترامب السريع للمهاجرين غير النظاميين**: [Link](https://twaslnews1.twaslnews.com/5087581/)
+
+
+### classement as monaco – racing club de lens (N/A, Fri, 18 Sep 2026 14:10:00 -0700)
+
+- **Grâce à un Paris Brunner une fois de plus décisif, Monaco se défait de Lens et prend la tête de la Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Monaco-bat-lens-et-prend-la-tete-de-la-ligue-1/1719699)
+- **Classement de la Ligue 1 : le choc Monaco - Lens, résultats et scores en direct**: [Link](https://www.linternaute.com/sport/competitions/11019676-classement-de-la-ligue-1-le-choc-monaco-lens-resultats-et-scores-en-direct/)
+- **La compo officielle du RCL concoctée par Yannick Cahuzac pour le match face à l'AS Monaco**: [Link](https://madeinlensois.ouest-france.fr/infos/article-rc-lens-la-compo-officielle-du-rcl-concoctee-par-yannick-cahuzac-pour-le-match-face-a-l-as-monaco-539336.html)
+
+
 ### bayern munich vs union berlin standings (N/A, Fri, 18 Sep 2026 13:50:00 -0700)
 
 - **Bundesliga LIVE: Bayern Munich vs Union Berlin - watch TV coverage, live stream & follow match stats**: [Link](https://www.bbc.co.uk/sport/football/live/cx305jmen55rt)
