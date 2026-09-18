@@ -1,3 +1,59 @@
+### bayern munich vs union berlin standings (N/A, Fri, 18 Sep 2026 13:50:00 -0700)
+
+- **Bundesliga LIVE: Bayern Munich vs Union Berlin - watch TV coverage, live stream & follow match stats**: [Link](https://www.bbc.co.uk/sport/football/live/cx305jmen55rt)
+- **Harry Kane becomes quickest in history to 100 Bundesliga goals**: [Link](https://www.espn.co.uk/football/story/_/id/49965151/harry-kane-fastest-record-100-bundesliga-goals-bayern-munich)
+- **Preview: FC Bayern vs. 1. FC Union Berlin, Bundesliga**: [Link](https://fcbayern.com/en/news/matchpreviews/2026/09/preview-fc-bayern-vs.-union-berlin-bundesliga-md-4)
+
+
+### classement bayern munich – union berlin (N/A, Fri, 18 Sep 2026 13:40:00 -0700)
+
+- **DIRECT. Bayern Munich - Union Berlin, Bundesliga : But de Saibari !**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-allemagne/2026-2027/bayern-munich-union-berlin-live/693791)
+- **PRONOS PARIS RMC Le pari sûr du 18 septembre - Bundesliga**: [Link](https://rmcsport.bfmtv.com/replay-emissions/les-paris-rmc/pronos-paris-rmc-le-pari-sur-du-18-septembre-bundesliga_AN-202609170587.html)
+- **Bundesliga : Michael Olise s'offre un nouveau bijou !**: [Link](https://www.beinsports.com/fr-fr/football/bundesliga/articles-video/bundesliga-michael-olise-s-offre-un-nouveau-bijou-2026-09-18)
+
+
+### ismael saibari (N/A, Fri, 18 Sep 2026 13:30:00 -0700)
+
+- **Morocco turn to youth as Ouahbi names first squad for AFCON 2027 qualifiers**: [Link](https://www.cafonline.com/afcon2025/news/morocco-turn-to-youth-as-ouahbi-names-first-squad-for-afcon-2027-qualifiers/)
+- **Ouahbi reveals the two positions considered for Saibari**: [Link](https://mountakhab.net/en/ouahbi-reveals-the-two-positions-considered-for-saibari/)
+- **Atlas Lions’ New Generation: Meet the Six Talents in Ouahbi’s Squad**: [Link](https://www.moroccoworldnews.com/2026/09/338728/atlas-lions-new-generation-meet-the-six-talents-in-ouahbis-squad/)
+
+
+### مصرف (N/A, Fri, 18 Sep 2026 13:10:00 -0700)
+
+- **«موديز»: الكويت الثالثة خليجياً في حجم التمويل الإسلامي**: [Link](https://www.alraimedia.com/article/1779632/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D9%85%D9%88%D8%AF%D9%8A%D8%B2-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AD%D8%AC%D9%85-%D8%A7%D9%84%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A)
+- **موديز: المصارف الإسلامية تعزز قوة القطاع المالي الإماراتي**: [Link](https://www.alkhaleej.ae/2026-09-18/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D9%85%D9%88%D8%AF%D9%8A%D8%B2-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D8%B1%D9%81-%D8%A7%D9%84%D8%A5%D8%B3%D9%84%D8%A7%D9%85%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D9%82%D8%B7%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A)
+- **موديز: المصارف الإسلامية تعزز قوة القطاع المالي الإماراتي**: [Link](https://twaslnews1.twaslnews.com/5085218/)
+
+
+### برينتفورد ضد تشيلسي (N/A, Fri, 18 Sep 2026 11:50:00 -0700)
+
+- **أكبر تشكيل لتشيلسي منذ 3 أعوام.. مفاجأة في ديربي غرب لندن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D9%83%D8%A8%D8%B1-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%84%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%85%D9%86%D8%B0-3-%D8%A7%D9%94%D8%B9%D9%88%D8%A7%D9%85--%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%BA%D8%B1%D8%A8-%D9%84%D9%86%D8%AF%D9%86/blt6d3d8f521cf0c74e)
+- **الموعد والقنوات الناقلة.. تعرف على مباريات اليوم في الدوريات الأوروبية**: [Link](https://twaslnews1.twaslnews.com/5072966/)
+- **تقديم المباراة: تشيلسي يحل ضيفًا على برينتفورد في ديربي غرب لندن**: [Link](https://www.fotmob.com/ar/topnews/29682-preview-chelsea-head-brentford-west-london-derby?utm_source=fotmob&lang=ar)
+
+
+### قناة الجزيرة (N/A, Fri, 18 Sep 2026 11:50:00 -0700)
+
+- **خطأ من الذكاء الاصطناعي كاد يشعل حربا أمريكية صينية.. ما الذي حدث؟**: [Link](https://www.aljazeera.net/news/2026/9/18/%D8%AE%D8%B7%D8%A3-%D9%85%D9%86-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%83%D8%A7%D8%AF-%D9%8A%D8%B4%D8%B9%D9%84-%D8%AD%D8%B1%D8%A8%D8%A7)
+- **حصري لـCNN: خطأ من الذكاء الاصطناعي كاد يشعل حرباً بين أمريكا والصين.. إليكم التفاصيل**: [Link](https://arabic.cnn.com/world/article/2026/09/18/exclusive-us-military-had-close-call-after-using-ai-for-false-intelligence-report)
+- **تقرير يكشف واقعة كادت تفجّر مواجهة بين واشنطن وبكين.. ما علاقة الذكاء الاصطناعي؟**: [Link](https://arabic.euronews.com/2026/09/18/a-report-reveals-an-incident-that-nearly-sparked-a-confrontation-between-washington-and-be)
+
+
+### brentford vs chelsea (N/A, Fri, 18 Sep 2026 11:30:00 -0700)
+
+- **Premier League: Superb Brentford put three past Chelsea**: [Link](https://www.bbc.com/sport/football/live/cmrl69xy3lyyt)
+- **Confirmed Chelsea line up vs Brentford | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-brentford-180926)
+- **Brentford v Chelsea - Match Preview, kick-off time and more**: [Link](https://www.brentfordfc.com/en/news/article/match-previews-brentford-v-chelsea-premier-league-18-09-2026)
+
+
+### منتخب إسبانيا لكرة القدم (N/A, Fri, 18 Sep 2026 11:30:00 -0700)
+
+- **قائمة إسبانيا.. عودة ثنائي الريال وبرشلونة ضمن 4 تغييرات واستبعاد مفاجئ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7--%D8%B9%D9%88%D8%AF%D8%A9-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D9%85%D9%86-4-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%88%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94/blt6b46d101a7b8419b)
+- **منتخب إسبانيا.. فيرمين لوبيز يعود بعد التألق مع برشلونة**: [Link](https://www.aljazeera.net/sport/2026/9/18/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%81%D9%8A%D8%B1%D9%85%D9%8A%D9%86-%D9%84%D9%88%D8%A8%D9%8A%D8%B2-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%B9%D8%AF)
+- **بينهم هاوسن.. دي لا فوينتي يجري 4 تغييرات على قائمة إسبانيا**: [Link](https://www.alarabiya.net/sport/2026/09/18/%D8%A8%D9%8A%D9%86%D9%87%D8%A7-%D9%87%D8%A7%D9%88%D8%B3%D9%86-%D8%AF%D9%8A-%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A-4-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%B9%D9%84%D9%89-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+
+
 ### espanyol – elche (N/A, Fri, 18 Sep 2026 11:20:00 -0700)
 
 - **La pizarra de Manolo González para el lateral derecho**: [Link](https://el1900.com/la-pizarra-de-manolo-gonzalez-para-el-lateral-derecho/)
