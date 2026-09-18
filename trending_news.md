@@ -1,3 +1,73 @@
+### tennis scores today (N/A, Fri, 18 Sep 2026 07:50:00 -0700)
+
+- **Asian Swing 411: Dates, draws, prize money and everything you need to know**: [Link](https://www.wtatennis.com/news/4576359/asian-swing-2026-preview-dates-draws-prize-money-and-everything-you-need-to-know)
+- **AITO Hangzhou Open 2026: Draws, Dates, History & All You Need To Know**: [Link](https://www.atptour.com/en/news/hangzhou-atp-250-2026-history-draw-schedule)
+- **Hangzhou Open 2026: Entry List, When is the draw and schedule confirmed, Prize Money and History**: [Link](https://tennisuptodate.com/atp/hangzhou-open-2026-entry-list-when-is-the-draw-and-schedule-confirmed-prize-money-and-history)
+
+
+### what is phishing (N/A, Fri, 18 Sep 2026 07:50:00 -0700)
+
+- **Revolut says no direct demand received over alleged data breach**: [Link](https://www.reuters.com/legal/government/revolut-hackers-demand-3-million-ransom-ft-reports-2026-09-16/)
+- **Revolut confirms customer data breach through fake government requests**: [Link](https://techcrunch.com/2026/09/12/revolut-confirms-customer-data-breach-through-fake-government-requests/)
+- **Europe’s Most Valuable Startup Gave Data to a Scammer. Now It Faces a Shakedown.**: [Link](https://www.tovima.com/wsj/europes-most-valuable-startup-gave-data-to-a-scammer-now-it-faces-a-shakedown/)
+
+
+### what is a data breach (N/A, Fri, 18 Sep 2026 07:50:00 -0700)
+
+- **Nearly two million Quest Apartment Hotels customers affected by data breach**: [Link](https://www.sbs.com.au/news/article/nearly-two-million-quest-apartment-hotels-customers-affected-by-data-breach/6eu396nng)
+- **Revolut says no direct demand received over alleged data breach**: [Link](https://www.reuters.com/legal/government/revolut-hackers-demand-3-million-ransom-ft-reports-2026-09-16/)
+- **Revolut confirms customer data breach through fake government requests**: [Link](https://techcrunch.com/2026/09/12/revolut-confirms-customer-data-breach-through-fake-government-requests/)
+
+
+### mortgage rates today (N/A, Fri, 18 Sep 2026 07:50:00 -0700)
+
+- **Soaring mortgage rates and high prices are putting homeownership further out of reach**: [Link](https://www.nbcnews.com/business/real-estate/high-mortgage-rates-home-prices-stress-rcna598396)
+- **US mortgage rates brush 7%, weighing on buyers, sellers and further straining a bleak housing market**: [Link](https://apnews.com/article/mortgage-rates-housing-interest-financing-home-d57cc5a38163cfef3a7b2639dd3d8d7c)
+- **The Stagnant Housing Market Is About to Face a 7% Mortgage**: [Link](https://www.wsj.com/economy/housing/the-stagnant-housing-market-is-about-to-face-a-7-mortgage-55a041d6)
+
+
+### artificial intelligence news (N/A, Fri, 18 Sep 2026 07:40:00 -0700)
+
+- **OpenAI's latest AI revelation is a 'serious situation,' Microsoft's Suleyman tells CNBC**: [Link](https://www.cnbc.com/2026/09/18/microsoft-ai-ceo-openais-latest-ai-revelation-a-serious-situation.html)
+- **Microsoft AI CEO Mustafa Suleyman on OpenAI safety disclosures**: [Link](https://qz.com/microsoft-mustafa-suleyman-openai-safety-disclosures-serious-091826)
+- **Our framework for reporting model misalignment**: [Link](https://openai.com/index/model-misalignment-reporting-framework/)
+
+
+### when is daylight saving time (N/A, Fri, 18 Sep 2026 07:40:00 -0700)
+
+- **When do clocks fall back? 2026 daylight saving time start and end**: [Link](https://www.detroitnews.com/story/news/local/michigan/2026/09/18/when-do-clocks-fall-back-2026-daylight-saving-time-start-and-end/91819566007/)
+- **Permanent daylight saving time: Sorry - looks like time change is going to happen this year**: [Link](https://www.al.com/news/2026/09/permanent-daylight-saving-time-sorry-looks-like-time-change-is-going-to-happen-this-year.html)
+- **Permanent daylight saving time: These states would benefit the most**: [Link](https://www.cleveland.com/news/2026/09/permanent-daylight-saving-time-these-states-would-benefit-the-most.html)
+
+
+### stock market news today (N/A, Fri, 18 Sep 2026 07:40:00 -0700)
+
+- **Warren Buffett steps down as chairman of Berkshire Hathaway**: [Link](https://www.cnn.com/2026/09/18/business/buffett-retires-as-chairman-of-berkshire-hathaway)
+- **Billionaire Warren Buffett steps down as Berkshire Hathaway chairman, a post he has held since 1970**: [Link](https://www.dallasnews.com/business/article/warren-buffett-steps-down-as-berkshire-hathaway-22437838.php)
+- **Buffett steps down, Wall Street bounces back, 2027 'truck wars' and more in Morning Squawk**: [Link](https://www.cnbc.com/2026/09/18/5-things-to-know-before-the-stock-market-opens.html)
+
+
+### disneyland ticket prices (N/A, Fri, 18 Sep 2026 07:40:00 -0700)
+
+- **Every 2027 Date With the Lowest Ticket Price at Disney World**: [Link](https://allears.net/2026/09/18/every-2027-date-with-the-lowest-ticket-price-at-disney-world/)
+- **Disney Ticket Prices May Rise Again as U.S. Entertainment Costs Climb**: [Link](https://finchannel.com/disney-ticket-prices-may-rise-again-as-u-s-entertainment-costs-climb/135424/entertainment/2026/09/)
+- **From Food to Tickets to Lightning Lane: Everything is Going to Get More Expensive at Disney World Next Month**: [Link](https://insidethemagic.net/2026/09/traditionally-price-increases-at-disney-world-happen-in-october-heres-what-to-expect-when-prices-climb-next-month-rl1/)
+
+
+### latest iphone rumors (N/A, Fri, 18 Sep 2026 07:40:00 -0700)
+
+- **iOS 28: What to expect, release date and latest rumors**: [Link](https://www.theapplepost.com/2026/09/18/72517/ios-28-what-to-expect-release-date-and-latest-rumors/)
+- **Global Foldable Shipments to Hit 100-million Cumulative Milestone by End of 2026**: [Link](https://counterpointresearch.com/en/insights/global-foldable-shipments-to-hit-100-million-cumulative-milestone-by-end-of-2026)
+- **Apple unveils iPhone Duo**: [Link](https://www.apple.com/newsroom/2026/09/apple-unveils-iphone-duo/)
+
+
+### where to watch nfl games (N/A, Fri, 18 Sep 2026 07:30:00 -0700)
+
+- **Josh Allen opens the Bills’ new stadium with a 5-TD outing in a 41-31 win over the Lions**: [Link](https://apnews.com/article/lions-bills-score-a7707bc879e8c59e2d142731be81a82c)
+- **An exasperated Dan Campbell drops expletive in halftime interview**: [Link](https://sports.yahoo.com/articles/exasperated-dan-campbell-drops-expletive-131208003.html)
+- **Video: Detroit Lions defensive struggles continue in Week 2 loss to Buffalo Bills**: [Link](https://www.nytimes.com/athletic/video/uXE2VURLMQ0goTO/)
+
+
 ### وقود السيارات (N/A, Fri, 18 Sep 2026 04:10:00 -0700)
 
 - **مندوبية التخطيط: ارتفاع أسعار المحروقات والحليب والبيض**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A-%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A7-2/)
