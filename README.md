@@ -1,3 +1,73 @@
+### espanyol – elche (N/A, Fri, 18 Sep 2026 11:20:00 -0700)
+
+- **La pizarra de Manolo González para el lateral derecho**: [Link](https://el1900.com/la-pizarra-de-manolo-gonzalez-para-el-lateral-derecho/)
+- **Pronóstico Espanyol vs Elche: Ambos equipos están ansiosos por ganar.**: [Link](https://www.vietnam.vn/es/nhan-dinh-espanyol-vs-elche-ca-hai-cung-khat-thang)
+- **Sigue todas las noticias del mundo del fútbol en formato breve**: [Link](https://www.flashscore.com.ar/noticias/futbol-en-directo-ultimas-noticias-laliga-premier-champions-league/2FXYrtMa/)
+
+
+### brentford – chelsea (N/A, Fri, 18 Sep 2026 11:10:00 -0700)
+
+- **Brentford v Chelsea - Match Preview, kick-off time and more**: [Link](https://www.brentfordfc.com/en/news/article/match-previews-brentford-v-chelsea-premier-league-18-09-2026)
+- **Confirmed Chelsea line up vs Brentford | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/confirmed-chelsea-line-up-vs-brentford-180926)
+- **bet365 bonus code: Bet $10, get $365 in bonus bets for Brentford vs. Chelsea**: [Link](https://nypost.com/2026/09/18/betting/bet365-bonus-code-bet-10-get-365-in-bonus-bets-for-brentford-vs-chelsea/)
+
+
+### monaco – lens (N/A, Fri, 18 Sep 2026 11:10:00 -0700)
+
+- **PRONOS PARIS RMC Les paris du 18 septembre sur Monaco - Lens - Ligue 1**: [Link](https://rmcsport.bfmtv.com/replay-emissions/les-paris-rmc/pronos-paris-rmc-les-paris-sur-du-18-septembre-sur-monaco-lens-ligue-1_AN-202609170565.html)
+- **Du choix, des profils variés et des automatismes à affiner : focus sur les munitions offensives de l’AS Monaco avant le match face à Lens**: [Link](https://www.nicematin.com/sports/football/du-choix-des-profils-varies-et-des-automatismes-a-affiner-focus-sur-les-munitions-offensives-de-l-as-monaco-avant-le-match-face-a-lens-10725312)
+- **Monaco – Lens : les compos officielles avec Abline et Mesloub**: [Link](https://www.sport.fr/non-classe/monaco-lens-les-compos-officielles-avec-abline-et-mesloub-1483737.shtm)
+
+
+### تشافي هيرنانديز (N/A, Fri, 18 Sep 2026 11:10:00 -0700)
+
+- **تغييرات تشافي تُشعل هولندا.. غياب مفاجئ وظهور نجل أسطورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D8%AA%D9%8F%D8%B4%D8%B9%D9%84-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7--%D8%BA%D9%8A%D8%A7%D8%A8-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%88%D8%B8%D9%87%D9%88%D8%B1-%D9%86%D8%AC%D9%84-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9/blt1eeddfdbce4eee3a)
+- **فان بوميل يبتهج بانضمام نجله إلى المنتخب الهولندي**: [Link](https://almashhadalaraby.com/news/584286)
+- **تشافي هيرنانديز يستبعد ممفيس ديباي من قائمة هولندا لدوري الأمم الأوروبية**: [Link](https://gate.ahram.org.eg/News/5929548.aspx)
+
+
+### البايرن ضد يونيون برلين (N/A, Fri, 18 Sep 2026 11:00:00 -0700)
+
+- **البايرن أمام فرصة الانقضاض على الصدارة في مواجهة يونيون برلين**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D8%B1%D8%B5%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D9%82%D8%B6%D8%A7%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%8A%D9%88%D9%86%D9%8A%D9%88%D9%86-%D8%A8%D8%B1%D9%84%D9%8A%D9%86/25479)
+- **الدوري الألماني.. برنامج مباريات الجولة الرابعة**: [Link](https://inews.ma/news/8666769)
+- **موعد مباراة بايرن ميونخ في الدوري الألماني والقناة الناقلة**: [Link](https://www.youlyou.com/55954)
+
+
+### bayern – union berlin (N/A, Fri, 18 Sep 2026 10:50:00 -0700)
+
+- **Der Bayern-Plan gegen den FC Bayern**: [Link](https://www.kicker.de/der-bayern-plan-gegen-den-fc-bayern-1253522/artikel)
+- **Bundesliga live: Ballert sich der FC Bayern über Nacht an die Spitze?**: [Link](https://www.express.de/sport/fussball/bundesliga-live-alle-spiele-des-4-spieltags-im-liveticker-1091029)
+- **FC Bayern wieder mit Musiala in der Startelf**: [Link](https://www.ligaportal.at/international/deutsche-bundesliga/93935-fc-bayern-wieder-mit-musiala-in-der-startelf)
+
+
+### espagne (N/A, Fri, 18 Sep 2026 10:40:00 -0700)
+
+- **Liste de l'Espagne : le retour de deux joueurs du Real et du Barça parmi quatre changements et une exclusion surprise**: [Link](https://www.goal.com/fr/news/liste-de-l-espagne-le-retour-de-deux-joueurs-du-real-et-du-barca-parmi-quatre-changements-et-une-exclusion-surprise/blt6b46d101a7b8419b)
+- **Espagne : la liste de Luis de la Fuente avec 2 retours et 1 nouveau**: [Link](https://www.footmercato.net/a1193675348849710718-espagne-la-liste-de-luis-de-la-fuente-avec-2-retours-et-1-nouveau)
+- **Xavi Espart, Carlos Espí, Gonzalo García... Voici la liste des Espoirs**: [Link](https://onefootball.com/fr/news/xavi-espart-carlos-espi-gonzalo-garcia-voici-la-liste-des-espoirs-43481651)
+
+
+### coupe du monde de football 2030 (N/A, Fri, 18 Sep 2026 10:40:00 -0700)
+
+- **Mondial 2030 : Javier Tebas s’oppose à une finale au Maroc et évoque un retrait espagnol**: [Link](https://maroc-diplomatique.net/mondial-2030-javier-tebas-soppose-a-une-finale-au-maroc-et-evoque-un-retrait-espagnol/)
+- **Le Boualem et l’été des grandes illusions**: [Link](https://mobile.telquel.ma/2026/09/17/le-boualem-et-lete-des-grandes-illusions_2008083)
+- **Mondial 2030: La grippe espagnole 2.0**: [Link](https://sport.le360.ma/football/mondial-2030-la-grippe-espagnole-20_PLYJMY6G3JHYFAJ4VENRRFL6RU/)
+
+
+### géopolitique (N/A, Fri, 18 Sep 2026 10:10:00 -0700)
+
+- **Au Maghreb, des fractures géopolitiques de plus en plus inquiétantes**: [Link](https://www.lemonde.fr/afrique/article/2026/09/18/au-maghreb-des-fractures-geopolitiques-de-plus-en-plus-inquietantes_6776780_3212.html)
+- **Cinquante jours de guerre hybride espagnole contre le Maroc**: [Link](https://fr.le360.ma/politique/cinquante-jours-de-guerre-hybride-espagnole-contre-le-maroc_UNLGU24SBNA5LFK24AORKK2NYA/)
+- **Le Maroc face au vacarme hostile, le choix du sérieux et des urnes - Par Talaa Saoud Al Atlassi**: [Link](https://quid.ma/politique/le-maroc-face-au-vacarme-hostile-le-choix-du-serieux-et-des-urnes-par-talaa-saoud-al-atlassi)
+
+
+### طقس (N/A, Fri, 18 Sep 2026 09:10:00 -0700)
+
+- **نشرة إنذارية تحذر من أمطار ورياح قوية**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-1809278.html)
+- **توقعات أحوال الطقس لليوم الجمعة**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%85%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85-3/)
+- **فيديو: تقلبات جوية في المغرب.. زخات رعدية، رياح قوية وموجة حر مرتقبة**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%85%D9%88%D8%AC%D8%A9-%D8%AD%D8%B1-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-20260918)
+
+
 ### tennis scores today (N/A, Fri, 18 Sep 2026 07:50:00 -0700)
 
 - **Asian Swing 411: Dates, draws, prize money and everything you need to know**: [Link](https://www.wtatennis.com/news/4576359/asian-swing-2026-preview-dates-draws-prize-money-and-everything-you-need-to-know)
