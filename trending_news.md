@@ -1,3 +1,17 @@
+### tanger (N/A, Thu, 17 Sep 2026 17:00:00 -0700)
+
+- **Concours de Recrutement Tanger Région Aménagements 2026 (3 Chefs de Projet)**: [Link](https://www.dreamjob.ma/emploi-public/concours-de-recrutement-tanger-region-amenagements-2026-3-chefs-de-projet/)
+- **Le chef du réseau criminel suédois Foxtrot, Ali Namdar, arrêté à Tanger**: [Link](https://ledesk.ma/2026/09/17/le-chef-du-reseau-criminel-suedois-foxtrot-ali-namdar-arrete-a-tanger/)
+- **Coopération sécuritaire: Stockholm salue l’arrestation au Maroc d’un Suédois recherché par Interpol**: [Link](https://fr.le360.ma/societe/cooperation-securitaire-stockholm-salue-larrestation-au-maroc-dun-suedois-recherche-par-interpol_PCLDUKPTYJEFVMICCO3RT6NP7M/)
+
+
+### استثمار (N/A, Thu, 17 Sep 2026 14:30:00 -0700)
+
+- **StrikeReady raises Aramco-backed round, hits $29M total to fund Saudi expansion**: [Link](https://app.dealroom.co/news/note/strikeready-raises-aramco-backed-round-hits-29m-total-to-fund-saudi-expansion)
+- **StrikeReady Announces Investment Led by Wa'ed Ventures to Power Unmetered AI Security Operations**: [Link](https://www.lincolnjournal.com/online_features/press_releases/strikeready-announces-investment-led-by-waed-ventures-to-power-unmetered-ai-security-operations/article_68ea4f5b-2a7c-5009-9d21-f525b16d1be5.html)
+- **StrikeReady Receives Investment From Wa’ed Ventures**: [Link](https://www.finsmes.com/2026/09/strikeready-receives-investment-from-waed-ventures.html)
+
+
 ### fondateur (N/A, Thu, 17 Sep 2026 14:50:00 -0700)
 
 - **Décès de Mohamed Tazi, fondateur du Groupe Azura et pionnier de l’agro-export marocain**: [Link](https://h24info.ma/economie/deces-mohamed-tazi-azura-maroc/)
