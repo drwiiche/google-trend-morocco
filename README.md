@@ -1,3 +1,24 @@
+### ياسين بونو (N/A, Thu, 17 Sep 2026 17:20:00 -0700)
+
+- **فيديو: بونو يخطف الأنظار في السعودية على طريقة المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A7%D9%94%D9%86%D8%B8%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%B7%D8%B1%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt112bf590045ca5ee)
+- **ياسين بونو يحطم رقمًا تاريخيًا في الدوري السعودي**: [Link](https://anfaspress.com/news/voir/178143-2026-09-13-10-21-34)
+- **بونو يواصل التألق ويحقق رقماً مميزاً مع الهلال**: [Link](https://sabahagadir.ma/484294.html)
+
+
+### classement juventus – nec nimègue (N/A, Thu, 17 Sep 2026 15:10:00 -0700)
+
+- **Juventus Turin 5-0 NEC Nimègue, Ligue Europa : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2026-2027/juventus-turin-nec-nimegue-live/702175)
+- **Juventus Turin - N.E.C. Nimègue en direct - Ligue Europa : Football Scores & Résultats - 17/09/2026**: [Link](https://www.eurosport.fr/football/ligue-europa/2026-2027/live-juventus-turin-n.e.c.-nimegue_mtc21878872/live.shtml)
+- **Bonne nouvelle pour Kolo Muani**: [Link](https://www.sports.fr/football/juventus/bonne-nouvelle-pour-kolo-muani-1046456.html)
+
+
+### manchester city (N/A, Thu, 17 Sep 2026 12:40:00 -0700)
+
+- **Bouaddi decisive with Manchester City**: [Link](https://mountakhab.net/en/bouaddi-decisive-with-manchester-city/)
+- **Bouaddi Rodri: Man City's Rodri succession plan revealed**: [Link](https://panafricafootball.com/article/bouaddi-rodri-succession)
+- **Man Utd vs Man City: Ayyoub Bouaddi, Elliot Anderson and Enzo Fernandez are the perfect answer to Rodri's summer exit**: [Link](https://www.skysports.com/football/news/11660/13584237/man-utd-vs-man-city-ayyoub-bouaddi-elliot-anderson-and-enzo-fernandez-are-the-perfect-answer-to-rodris-summer-exit)
+
+
 ### tanger (N/A, Thu, 17 Sep 2026 17:00:00 -0700)
 
 - **Concours de Recrutement Tanger Région Aménagements 2026 (3 Chefs de Projet)**: [Link](https://www.dreamjob.ma/emploi-public/concours-de-recrutement-tanger-region-amenagements-2026-3-chefs-de-projet/)
