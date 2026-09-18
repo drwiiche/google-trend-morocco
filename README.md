@@ -1,3 +1,66 @@
+### وقود السيارات (N/A, Fri, 18 Sep 2026 04:10:00 -0700)
+
+- **مندوبية التخطيط: ارتفاع أسعار المحروقات والحليب والبيض**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%A7%D8%B1%D9%88%D8%AE%D9%8A-%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A7-2/)
+- **غلاء النفط يضغط على مالية المغرب**: [Link](https://www.hespress.com/%D8%BA%D9%84%D8%A7%D8%A1-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%8A%D8%B6%D8%BA%D8%B7-%D8%B9%D9%84%D9%89-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1808409.html)
+- **محروقات..زيادات جديدة و"المازوط" أغلى من "ليصانص"**: [Link](https://www.ahdath.info/%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%A7%D8%B2%D9%88%D8%B7-%D8%A3%D8%BA%D9%84%D9%89-%D9%85/)
+
+
+### anticyclone (N/A, Fri, 18 Sep 2026 03:50:00 -0700)
+
+- **La France touchée : mercredi, un anticyclone reliera le Maroc à la mer du Nord, avec des conséquences sur la météo**: [Link](https://www.tameteo.com/actualites/previsions/la-france-touchee-mercredi-un-anticyclone-reliera-le-maroc-a-la-mer-du-nord-avec-des-consequences-sur-la-chaleur-previsions-meteo-secheresse.html)
+- **Le retour de la canicule dès la semaine prochaine ? Une nouvelle vague de chaleur annoncée pour fin septembre et au-delà**: [Link](https://www.journaldugeek.com/2026/09/18/le-retour-de-la-canicule-des-la-semaine-prochaine-une-nouvelle-vague-de-chaleur-annoncee-pour-fin-septembre-et-au-dela/)
+- **Météo : grand soleil et températures élevées, jusqu'à 30°C par endroits, quel temps pour ce week-end**: [Link](https://www.ici.fr/infos/meteo/meteo-soleil-chaleur-et-anticyclone-quel-temps-pour-ce-week-end-1034797)
+
+
+### bourse (N/A, Fri, 18 Sep 2026 02:40:00 -0700)
+
+- **Bourse de Casablanca : un incident technique annule la séance du 17 septembre (détails)**: [Link](https://medias24.com/2026/09/17/bourse-de-casablanca-un-incident-technique-annule-la-seance-de-17-septembre-details-1758029/)
+- **Reprise de la cotation à la Bourse de Casablanca**: [Link](https://telquel.ma/instant-t/2026/09/18/reprise-de-la-cotation-a-la-bourse-de-casablanca_2008199/)
+- **Bourse de Casablanca : la séance suspendue ce jeudi**: [Link](https://boursenews.ma/article/marches/bourse-de-casablanca-seance-suspendue-ce-jeudi-17-septembre)
+
+
+### دواجن (N/A, Fri, 18 Sep 2026 01:50:00 -0700)
+
+- **أسعار البيض والفراخ اليوم الجمعة 18 سبتمبر 2026 في الأقصر**: [Link](https://www.almasryalyoum.com/news/details/4362357)
+- **بورصة الدواجن الآن.. تحرك أسعار الفراخ والبانيه اليوم الجمعة**: [Link](https://twaslnews1.twaslnews.com/5068972/)
+- **أسعار الدواجن وسوق الكتاكيت والطيور في الأسواق اليوم الجمعة 18 سبتمبر 2026**: [Link](https://gate.ahram.org.eg/News/5929369.aspx)
+
+
+### younes ebnoutalib (N/A, Fri, 18 Sep 2026 01:00:00 -0700)
+
+- **Allemagne : Klopp convoque 44 joueurs répartis en deux groupes**: [Link](https://fr.hespress.com/488721-allemagne-klopp-convoque-44-joueurs-repartis-en-deux-groupes.html)
+- **Maroc : Mohamed Ouahbi lâche ses vérités sur le cas Younès Ebnoutalib**: [Link](https://www.footmercato.net/a5245850425945998521-maroc-mohamed-ouahbi-lache-ses-verites-sur-le-cas-younes-ebnoutalib)
+- **"On continue à avancer, on est 6e mondial": la réaction du sélectionneur du Maroc au choix d'Ebnoutalib de représenter l'Allemagne**: [Link](https://rmcsport.bfmtv.com/football/equipe-maroc/on-continue-a-avancer-on-est-6e-mondial-la-reaction-du-selectionneur-du-maroc-au-choix-d-ebnoutalib-de-representer-l-allemagne_AV-202609170807.html)
+
+
+### إسبانيا (N/A, Fri, 18 Sep 2026 00:00:00 -0700)
+
+- **سيول تجتاح إسبانيا وموجة الحر تودي بحياة 8 آلاف في فرنسا خلال الصيف**: [Link](https://www.aljazeera.net/news/2026/9/17/%D8%B3%D9%8A%D9%88%D9%84-%D9%81%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%88%D9%85%D9%88%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1-%D8%AA%D9%88%D8%AF%D9%8A-%D8%A8%D8%AD%D9%8A%D8%A7%D8%A9-8)
+- **لماذا أُلغيت مباراة ليفانتي وبيلباو ولعبت مواجهة برشلونة مع راسينج رغم إنذار الأمطار؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D9%8F%D9%94%D9%84%D8%BA%D9%8A%D8%AA-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AA%D9%8A-%D9%88%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D9%84%D8%B9%D8%A8%D8%AA-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D8%B9-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%AC-%D8%B1%D8%BA%D9%85-%D8%A7%D9%95%D9%86%D8%B0%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B7%D8%A7%D8%B1/blt6976447ae0d0945e)
+- **فيديو. أمطار غزيرة تغمر فالنسيا وكتالونيا وتقتل سائقاً في إسبانيا**: [Link](https://arabic.euronews.com/video/2026/09/17/torrential-rains-flood-valencia-and-catalonia-killing-a-driver-in-spain)
+
+
+### prix gasoil maroc (N/A, Thu, 17 Sep 2026 23:50:00 -0700)
+
+- **Carburant : le cap des 15 DH franchi ce mercredi 16 septembre**: [Link](https://medias24.com/2026/09/16/carburant-le-cap-des-15-dh-franchi-ce-mercredi-16-septembre-1756391/)
+- **Carburants: voici les tarifs affichés à Casablanca après la hausse de ce mercredi 16 septembre**: [Link](https://fr.le360.ma/societe/carburants-voici-les-tarifs-affiches-a-casablanca-apres-la-hausse-de-ce-mercredi-16-septembre_VATWLMEWABC73EW3D7GZKC7YNY/)
+- **«La pression sur les prix à la pompe devrait se poursuivre»**: [Link](https://www.leconomiste.com/la-pression-sur-les-prix-a-la-pompe-devrait-se-poursuivre/)
+
+
+### morandini (N/A, Thu, 17 Sep 2026 23:50:00 -0700)
+
+- **CNews : incident en direct, la chaîne forcée de couper l’antenne**: [Link](https://toutelatele.ouest-france.fr/cnews-incident-en-direct-la-chaine-forcee-de-couper-l-antenne-189971)
+- **« On était obligés, franchement » : comment les deux jeunes youtubeurs Gabiche et Rodav ont piégé CNews en direct**: [Link](https://www.lavoixdunord.fr/1738264/article/2026-09-18/etait-obliges-franchement-comment-les-deux-jeunes-youtubeurs-gabiche-et-rodav)
+- **Jean-Marc Morandini absent de l’antenne de CNews : que devient-il depuis sa condamnation**: [Link](https://www.closermag.fr/tv_tele_realite/jean-marc-morandini-absent-de-lantenne-de-cnews-que-devient-il-depuis-sa-condamnation-3658765)
+
+
+### المديرية العامة للضرائب (N/A, Thu, 17 Sep 2026 22:40:00 -0700)
+
+- **أكتوبر آخر أجل لأداء التزامات ضريبية**: [Link](https://www.hespress.com/%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D8%A2%D8%AE%D8%B1-%D8%A3%D8%AC%D9%84-%D9%84%D8%A3%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85%D8%A7%D8%AA-%D8%B6%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-1808470.html)
+- **مديرية الضرائب تستنفر المقاولات والمهنيين لتسوية واجباتهم قبل فاتح أكتوبر**: [Link](https://ar.le360.ma/economie/3SZQQWZMVVDEVDVTHYN4I5QPYA/)
+- **إعلان هام من مديرية الضرائب: هذه الفئات ملزمة بالأداء والتصريح إلكترونياً قبل فاتح أكتوبر 2026**: [Link](https://agadir24.info/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%87%D8%A7%D9%85-%D9%85%D9%86-%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B6%D8%B1%D8%A7%D8%A6%D8%A8-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%81%D8%A6%D8%A7%D8%AA.html)
+
+
 ### ياسين بونو (N/A, Thu, 17 Sep 2026 17:20:00 -0700)
 
 - **فيديو: بونو يخطف الأنظار في السعودية على طريقة المونديال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A7%D9%94%D9%86%D8%B8%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%B7%D8%B1%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84/blt112bf590045ca5ee)
