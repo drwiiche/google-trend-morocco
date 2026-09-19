@@ -1,3 +1,38 @@
+### arsenal (N/A, Sat, 19 Sep 2026 07:50:00 -0700)
+
+- **Premier League LIVE: Nottingham Forest host Coventry after Brighton stun Arsenal**: [Link](https://www.bbc.com/sport/football/live/c2elng94nz2t)
+- **Every word from Arteta's pre-Brighton presser**: [Link](https://www.arsenal.com/news/every-word-from-artetas-pre-brighton-presser-aMD8C0p8HAYL)
+- **Brighton vs Arsenal LIVE! Premier League score updates, news, prediction and line-ups**: [Link](https://www.skysports.com/football/live-blog/11661/13572139/brighton-vs-arsenal-live-premier-league-score-updates-news-prediction-and-line-ups)
+
+
+### bet365 (N/A, Sat, 19 Sep 2026 06:50:00 -0700)
+
+- **New Bet365 Sign Up Offer for the 2026 NFL Season: Bet $10, Get $365 in Bonus Bets**: [Link](https://sailgp.com/us-betting-promos/new-bet365-sign-up-offer-for-365-in-bonus-bets-for-2026-nfl-season)
+- **Bet365 Bonus Code: Bet $10, Get $365 on College Football This Weekend, Including LSU vs Ole Miss**: [Link](https://www.wfmd.com/2026/09/18/bet365-bonus-code-bet-10-get-365-on-college-football-this-weekend-including-lsu-vs-ole-miss/)
+- **bet365 Bonus Code: Claim $365 Bet-and-Get Promo for Georgia vs. Arkansas**: [Link](https://www.actionnetwork.com/general/bet365-bonus-code-claim-365-bet-and-get-promo-for-georgia-vs-arkansas)
+
+
+### flashscore (N/A, Sat, 19 Sep 2026 05:50:00 -0700)
+
+- **Tottenham Hotspur vs Aston Villa: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqvgyryp28xnt)
+- **Spurs vs Aston Villa LIVE! Premier League score updates, news, prediction and lineups**: [Link](https://www.skysports.com/football/live-blog/11675/13572163/spurs-vs-aston-villa-live-premier-league-score-updates-news-prediction-and-lineups)
+- **Team news | Porro, Tonali available for Villa clash**: [Link](https://www.tottenhamhotspur.com/news/1090777/team-news-porro-tonali-available-for-villa-clash)
+
+
+### jeux (N/A, Sat, 19 Sep 2026 04:00:00 -0700)
+
+- **Scrabble, belote, jeu de l’oie… Faut-il changer les règles des jeux d’antan ?**: [Link](https://www.20minutes.fr/gaming/4246562-20260919-scrabble-belote-jeu-oie-fallait-vraiment-changer-regles-jeux-antan)
+- **Festival de Vichy 2026 : que de jeux pour les enfants**: [Link](https://www.tryagame.fr/festival-de-vichy-2026-jeux-pour-enfants/)
+- **Catch, tarot et taupes voleuses : Notre Vichy 2026 en 3 jours**: [Link](https://gusandco.net/2026/09/17/vichy-2026-salon-professionnel-jeux-societe/)
+
+
+### a (N/A, Sat, 19 Sep 2026 02:00:00 -0700)
+
+- **Ravens DC: Saints QB Tyler Shough reminds me of 'a poor man's Josh Allen'**: [Link](https://www.nfl.com/news/ravens-dc-saints-qb-tyler-shough-poor-mans-josh-allen)
+- **Ravens defensive coordinator Anthony Weaver: Tyler Shough is a 'poor-man's Josh Allen'**: [Link](https://www.nola.com/sports/saints/saints-poor-man-josh-allen-tyler-shough/article_94e3fe33-918e-4eee-ad1e-eb35482459b4.html)
+- **Ravens DC Anthony Weaver: Tyler Shough reminds me of “a poor-man’s Josh Allen”**: [Link](https://www.nbcsports.com/nfl/profootballtalk/rumor-mill/news/ravens-dc-anthony-weaver-tyler-shough-reminds-me-of-a-poor-mans-josh-allen)
+
+
 ### يوتيوب (N/A, Sat, 19 Sep 2026 04:20:00 -0700)
 
 - **من هي المغنية التي حصدت قناتها على يوتيوب 900 مليون مشاهدة، ولماذا تثير ضجة كبيرة على موقع Threads؟**: [Link](https://www.vietnam.vn/ar/nu-ca-si-so-huu-kenh-youtube-900-trieu-luot-xem-la-ai-vi-sao-gay-sot-threads)
