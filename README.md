@@ -1,3 +1,17 @@
+### g (N/A, Sat, 19 Sep 2026 01:40:00 -0700)
+
+- **Frank G. Mikos**: [Link](https://www.cummingsfuneral.com/obituary/Frank-Mikos)
+- **Obituary for Theodore “Ted” G. Kondos**: [Link](https://www.bekavacfuneralhome.com/obituary/TheodoreTed-Kondos)
+- **Jason Derr Obituary (09/04/1974 - 09/12/2026) - Easton, PA**: [Link](https://obits.lehighvalleylive.com/us/obituaries/etpa/name/jason-derr-obituary?id=62454120)
+
+
+### outlook (N/A, Sat, 19 Sep 2026 01:10:00 -0700)
+
+- **Map Shows US States Facing Coldest Weather This Winter**: [Link](https://www.mensjournal.com/news/map-shows-us-states-facing-coldest-weather-this-winter-research)
+- **New NOAA Maps Show Which U.S. States Are Facing Heavy Snow This Winter**: [Link](https://www.yahoo.com/news/weather-news/articles/noaa-maps-show-u-states-151324742.html)
+- **NOAA Releases New Forecast For The 2026-2027 Ski Season**: [Link](https://unofficialnetworks.com/2026/09/17/noaa-cpc-updated-winter-outlook/)
+
+
 ### arsenal (N/A, Sat, 19 Sep 2026 07:50:00 -0700)
 
 - **Premier League LIVE: Nottingham Forest host Coventry after Brighton stun Arsenal**: [Link](https://www.bbc.com/sport/football/live/c2elng94nz2t)
