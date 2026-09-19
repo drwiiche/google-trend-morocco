@@ -1,3 +1,50 @@
+### يوتيوب (N/A, Sat, 19 Sep 2026 04:20:00 -0700)
+
+- **من هي المغنية التي حصدت قناتها على يوتيوب 900 مليون مشاهدة، ولماذا تثير ضجة كبيرة على موقع Threads؟**: [Link](https://www.vietnam.vn/ar/nu-ca-si-so-huu-kenh-youtube-900-trieu-luot-xem-la-ai-vi-sao-gay-sot-threads)
+- **طفل ينفق 118 ألف دولار على إعلانات يوتيوب**: [Link](https://www.skynewsarabia.com/varieties/1892789-%D8%B7%D9%81%D9%84-%D9%8A%D9%86%D9%81%D9%82-118-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%A5%D8%B9%D9%84%D8%A7%D9%86%D8%A7%D8%AA-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8)
+- **أراد زيادة المشاهدات.. طفل يغرم والده 118 ألف دولار على إعلانات يوتيوب**: [Link](https://www.youm7.com/story/2026/9/17/%D8%A3%D8%B1%D8%A7%D8%AF-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A7%D8%AA-%D8%B7%D9%81%D9%84-%D9%8A%D8%BA%D8%B1%D9%85-%D9%88%D8%A7%D9%84%D8%AF%D9%87-118-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%B9%D9%84%D9%89/7549085)
+
+
+### google (N/A, Sat, 19 Sep 2026 03:50:00 -0700)
+
+- **Exclusive | Gemini Hacked Three Companies in First Known Breakout by Google’s AI**: [Link](https://www.wsj.com/tech/ai/gemini-hacked-three-companies-in-first-known-breakout-by-googles-ai-5c0baba2)
+- **Gemini hacked three companies in first known breakout by Google’s AI**: [Link](https://www.cnn.com/2026/09/19/business/gemini-ai-hack-internet)
+- **Google Says Its A.I. Hacked Three Companies in Testing Breakout**: [Link](https://www.nytimes.com/2026/09/18/technology/google-gemini-ai.html)
+
+
+### roblox (N/A, Sat, 19 Sep 2026 03:50:00 -0700)
+
+- **’99 Nights in the Forest’: Josh Cooley to Pen 20th Century Studios Film**: [Link](https://www.hollywoodreporter.com/movies/movie-news/99-nights-in-the-forest-josh-cooley-20th-century-studios-film-1236704624/)
+- **Sam Raimi Turning Popular Horror Survival Video Game Into Movie With Toy Story 4 Director**: [Link](https://www.yahoo.com/entertainment/movies/articles/sam-raimi-turning-popular-horror-215807919.html)
+- **Sam Raimi to Produce Roblox Adaptation ’99 Nights in the Forest’**: [Link](https://gizmodo.com/sam-raimi-to-produce-roblox-adaptation-99-nights-in-the-forest-2000813485)
+
+
+### hespress (N/A, Sat, 19 Sep 2026 01:10:00 -0700)
+
+- **4 أسئلة عن الاتفاق الأمني بين الولايات المتحدة والدانمارك بشأن غرينلاند**: [Link](https://www.aljazeera.net/news/2026/9/19/%D8%B9%D8%A7%D8%AC%D9%84-%D8%AA%D8%B1%D9%85%D8%A8-%D8%A3%D8%A8%D8%B1%D9%85%D9%86%D8%A7-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83)
+- **الدنمارك تثمن إبرام "اتفاق غرينلاند"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83-%D8%AA%D8%AB%D9%85%D9%86-%D8%A5%D8%A8%D8%B1%D8%A7%D9%85-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%BA%D8%B1%D9%8A%D9%86%D9%84%D8%A7%D9%86%D8%AF-1809719.html)
+- **اتفاق ثلاثي بين واشنطن وكوبنهاغن ونوك: أمريكا تتسلم زمام أمن غرينلاند لمنع النفوذ الروسي والصيني**: [Link](https://arabic.euronews.com/2026/09/19/us-denmark-greenland-security-deal-no-russia-china-control-eu-trump)
+
+
+### play store (N/A, Sat, 19 Sep 2026 00:50:00 -0700)
+
+- **Lenovo Vantage App Hits Play Store to Power Up Ultra-Customizable Googlebook Accessories**: [Link](https://www.androidheadlines.com/2026/09/lenovo-vantage-app-googlebook-accessories.html)
+
+
+### rachida dati (N/A, Sat, 19 Sep 2026 00:20:00 -0700)
+
+- **Former French culture minister goes on trial over corruption charges**: [Link](https://www.theguardian.com/world/2026/sep/16/rachida-dati-france-former-culture-minister-trial-corruption-renault-nissan-carlos-ghosn)
+- **Carlos Ghosn, French Politician on Trial Over $1 Million Fee**: [Link](https://www.bloomberg.com/news/articles/2026-09-16/car-tycoon-ghosn-french-lawmaker-on-trial-over-1-million-fees)
+- **Licensable picture: FRANCE-POLITICS-JUSTICE-DATI-TRIAL**: [Link](https://www.reutersconnect.com/item/france-politics-justice-dati-trial/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUhOU0xDUzAwMENBTVFQSQ)
+
+
+### mort (N/A, Fri, 18 Sep 2026 23:10:00 -0700)
+
+- **Mort de Gerrit Graham : L’acteur américain vu dans Dallas et Star Trek est décédé à l’âge de 76 ans**: [Link](https://www.programme-tv.net/news/people/408384-mort-de-gerrit-graham-lacteur-americain-vu-dans-dallas-et-star-trek-est-mort-a-lage-de-76-ans/)
+- **À Auxerre, un patient décède après une "erreur d'administration médicamenteuse" au centre hospitalier**: [Link](https://www.ici.fr/infos/sante-sciences/a-auxerre-un-patient-decede-apres-une-erreur-d-administration-medicamenteuse-au-centre-hospitalier-4444300)
+- **Décès d'un patient à l'hôpital d'Auxerre : une enquête ouverte pour homicide involontaire, les causes de la mort pas encore déterminées**: [Link](https://www.leveil.fr/auxerre-89000/faits-divers/deces-d-un-patient-a-l-hopital-d-auxerre-une-enquete-ouverte-pour-homicide-involontaire-les-causes-de-la-mort-pas-encore-determinees_15049414/)
+
+
 ### maroc (N/A, Fri, 18 Sep 2026 22:30:00 -0700)
 
 - **Crise avec l’Espagne : quel impact sur le deuxième marché émetteur du tourisme marocain ?**: [Link](https://medias24.com/2026/09/15/crise-avec-lespagne-quel-impact-sur-le-deuxieme-marche-emetteur-du-tourisme-marocain-1756343/)
