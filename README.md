@@ -1,3 +1,24 @@
+### maroc (N/A, Fri, 18 Sep 2026 22:30:00 -0700)
+
+- **Crise avec l’Espagne : quel impact sur le deuxième marché émetteur du tourisme marocain ?**: [Link](https://medias24.com/2026/09/15/crise-avec-lespagne-quel-impact-sur-le-deuxieme-marche-emetteur-du-tourisme-marocain-1756343/)
+- **Lachgar salue la gestion marocaine du dossier de Sebta et recentre le débat sur le Sahara**: [Link](https://fr.hespress.com/488796-lachgar-salue-la-gestion-marocaine-du-dossier-de-sebta-et-recentre-le-debat-sur-le-sahara.html)
+- **Le gouvernement espagnol rejette la proposition du Parti populaire européen de suspendre l’accord d’association entre Bruxelles et le Maroc et défend le caractère stratégique du partenariat avec Rabat**: [Link](https://barlamane.com/fr/le-gouvernement-espagnol-rejette-la-proposition-du-parti-populaire-europeen-de-suspendre-laccord-dassociation-entre-bruxelles-et-le-maroc-et-defend-le-caractere-strategique-du-parten/)
+
+
+### الجزائر (N/A, Fri, 18 Sep 2026 22:00:00 -0700)
+
+- **تندوف أمام الأمم المتحدة .. اتهامات للبوليساريو ونداء لمساءلة الجزائر**: [Link](https://www.hespress.com/%D8%AA%D9%86%D8%AF%D9%88%D9%81-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D8%A7%D8%AA-%D9%84%D9%84%D8%A8%D9%88-1809411.html)
+- **انتهاكات وقيود واختفاءات قسرية.. منظمات حقوقية تفتح ملف مخيمات تندوف أمام مجلس حقوق الإنسان**: [Link](https://www.ahdath.info/%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D9%83%D8%A7%D8%AA-%D9%88%D9%82%D9%8A%D9%88%D8%AF-%D9%88%D8%A7%D8%AE%D8%AA%D9%81%D8%A7%D8%A1%D8%A7%D8%AA-%D9%82%D8%B3%D8%B1%D9%8A%D8%A9-%D9%85%D9%86%D8%B8%D9%85%D8%A7/)
+- **جنيف.. خبراء حقوقيون يبرزون التباين بين الأوضاع في الأقاليم الجنوبية للمملكة وتلك السائدة في مخيمات تندوف**: [Link](https://2m.ma/ar/news/%D8%AC%D9%86%D9%8A%D9%81-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D8%AD%D9%82%D9%88%D9%82%D9%8A%D9%88%D9%86-%D9%8A%D8%A8%D8%B1%D8%B2%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%A8%D8%A7%D9%8A%D9%86-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D9%88%D8%B6%D8%A7%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8%D9%8A%D8%A9-20260918)
+
+
+### heure maroc (N/A, Fri, 18 Sep 2026 21:50:00 -0700)
+
+- **Rappel. Retour à l'heure GMT au Maroc ce dimanche 20 septembre**: [Link](https://medias24.com/2026/09/18/rappel-retour-a-lheure-gmt-au-maroc-ce-dimanche-20-septembre-1758871/)
+- **Le Maroc repasse à l’heure GMT ce dimanche 20 septembre**: [Link](https://mobile.telquel.ma/instant-t/2026/09/18/le-maroc-repasse-a-lheure-gmt-ce-dimanche-20-septembre_2008382/)
+- **Changement d’heure au Maroc : retour à GMT ce dimanche**: [Link](https://lematin.ma/nation/changement-dheure-au-maroc-retour-a-gmt-ce-dimanche/365840)
+
+
 ### طائر (N/A, Fri, 18 Sep 2026 14:40:00 -0700)
 
 - **المغرب يتحرك لإنقاذ طائر "الزركيل"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%B7%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%B2%D8%B1%D9%83%D9%8A%D9%84-1809320.html)
