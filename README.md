@@ -1,3 +1,22 @@
+### la liga (N/A, Sun, 20 Sep 2026 09:20:00 -0700)
+
+- **Lamine Yamal Becomes Youngest Player to Reach 50 La Liga Assists**: [Link](https://www.moroccoworldnews.com/2026/09/339034/lamine-yamal-becomes-youngest-player-to-reach-50-la-liga-assists/)
+- **Profile of Lamine Yamal: 19-Year-Old Barcelona Star Chasing 2026**: [Link](https://aktualita.co/en/sports/profile-of-lamine-yamal-the-19-year-old-barcelona-star-chasing-the)
+- **New LaLiga goalscoring record for Lamine Yamal**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4577750/new-laliga-goalscoring-record-for-lamine-yamal)
+
+
+### elbotola (N/A, Sun, 20 Sep 2026 06:50:00 -0700)
+
+
+
+
+### instagram (N/A, Sun, 20 Sep 2026 06:40:00 -0700)
+
+- **Kate Beckinsale Shares Bleak Messages on Instagram**: [Link](https://people.com/kate-beckinsale-shares-bleak-messages-on-instagram-12130092)
+- **Kate Beckinsale posts alarming messages on social media weeks after sharing PTSD struggles**: [Link](https://pagesix.com/2026/09/20/celebrity-news/kate-beckinsale-posts-alarming-messages-on-social-media-weeks-after-sharing-ptsd-struggles/)
+- **Kate Beckinsale Shares Cryptic “I Give Up” Message on Instagram, Leaving Fans Concerned**: [Link](https://www.hollywoodreporter.com/news/general-news/kate-beckinsale-i-give-up-message-instagram-fans-concerned-1236706414/)
+
+
 ### كورة مباشر (N/A, Sun, 20 Sep 2026 07:20:00 -0700)
 
 - **موقف فينيسيوس وألفاريز؟ التشكيل الرسمي لديربي الريال وأتلتيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%82%D9%81-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/blt08a54f85087efad4)
