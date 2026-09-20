@@ -1,3 +1,10 @@
+### best shows on hbo max (N/A, Sat, 19 Sep 2026 19:40:00 -0700)
+
+- **10 Best HBO Max TV Shows Of 2026 (So Far)**: [Link](https://www.imdb.com/es/news/ni66023920/?ref_=nwc_art_perm)
+- **The Best HBO Max Shows of 2026 (So Far)**: [Link](https://www.esquire.com/entertainment/tv/a73762324/best-hbo-max-shows-2026_1789580826/)
+- **10 Best HBO Max TV Shows Of 2026 (So Far)**: [Link](https://www.tvline.com/2260382/best-hbo-max-tv-shows-2026/)
+
+
 ### nfl schedule this week (N/A, Sat, 19 Sep 2026 16:50:00 -0700)
 
 - **College football scores, live updates: UNC vs. Clemson, Georgia vs. Arkansas and more**: [Link](https://www.aol.co.uk/articles/college-football-scores-live-updates-140511000.html)
