@@ -1,3 +1,17 @@
+### nfl schedule this week (N/A, Sat, 19 Sep 2026 16:50:00 -0700)
+
+- **College football scores, live updates: UNC vs. Clemson, Georgia vs. Arkansas and more**: [Link](https://www.aol.co.uk/articles/college-football-scores-live-updates-140511000.html)
+- **TST Best Bets: September 18, 2026**: [Link](https://www.thesportingtribune.com/2026/09/18/tst-best-bets-september-18-2026)
+- **SEC Football Week 3 REACTION | Ole Miss vs. LSU, Auburn vs. Florida, Alabama vs. FSU And More**: [Link](https://bvmsports.com/2026/09/19/sec-football-week-3-reaction-ole-miss-vs-lsu-auburn-vs-florida-alabama-vs-fsu-and-more/)
+
+
+### tiktok (N/A, Sat, 19 Sep 2026 01:20:00 -0700)
+
+- **U.S. judge signals rejection of part of TikTok $400 million privacy settlement**: [Link](https://www.cnbc.com/2026/09/19/us-judge-signals-rejection-of-part-of-tiktok-privacy-settlement.html)
+- **Judge says he could reject part of $400 million TikTok settlement**: [Link](https://www.usatoday.com/story/tech/2026/09/19/part-of-400-million-tiktok-settlement-could-be-rejected/91846342007/)
+- **California judge blocks part of TikTok’s $400 million privacy settlement**: [Link](https://www.investing.com/news/company-news/california-judge-blocks-part-of-tiktoks-400-million-privacy-settlement-4908058)
+
+
 ### g (N/A, Sat, 19 Sep 2026 01:40:00 -0700)
 
 - **Frank G. Mikos**: [Link](https://www.cummingsfuneral.com/obituary/Frank-Mikos)
