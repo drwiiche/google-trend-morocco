@@ -1,3 +1,24 @@
+### ترتيب الدوري الاسباني (N/A, Sun, 20 Sep 2026 09:10:00 -0700)
+
+- **قدم.. موناكو ينفرد بصدارة الدوري الفرنسي بفوز قاتل 2-1 أمام لانس**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D9%86%D9%81%D8%B1%D8%AF-%D8%A8%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%A8%D9%81%D9%88%D8%B2-%D9%82%D8%A7%D8%AA%D9%84-2-1-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D8%A7%D9%86%D8%B3/4061857)
+- **لا تحرقوا جوهرة لانس بأفعالكم: عودة سعود عبدالحميد أصبحت ضرورية.. وموناكو مُخيف مع فيليبي لويس ولكن!**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B3%D8%B9%D9%88%D8%AF-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D8%AD%D9%85%D9%8A%D8%AF-%D9%84%D8%A7%D9%86%D8%B3-%D9%85%D8%B2%D9%8A%D8%A7%D9%86-%D9%85%D8%B3%D9%84%D9%88%D8%A8-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%81%D9%8A%D9%84%D9%8A%D8%A8%D9%8A-%D9%84%D9%88%D9%8A%D8%B3-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/blt510b35ba253bff29)
+- **موناكو يهزم لونس ويرتقي إلى الصدارة مؤقتاً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D9%87%D8%B2%D9%85-%D9%84%D9%88%D9%86%D8%B3-%D9%88%D9%8A%D8%B1%D8%AA%D9%82%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-2026-09-18)
+
+
+### real (N/A, Sun, 20 Sep 2026 08:50:00 -0700)
+
+- **Mit Video: Real verliert in Unterzahl wieder bei Atletico - und früh Kontakt zu Barcelona**: [Link](https://www.kicker.ch/atl-madrid-gegen-real-madrid-2026-la-liga-5223854/spielbericht)
+- **Mourinho: „Das waren zwei klare rote Karten“**: [Link](https://www.realmadrid.com/de-DE/news/fussball/erste-mannshaft/latest-news/mourinho-20-09-2026)
+- **Wilde Szenen auf dem Weg in die Kabine! Madrid-Derby eskaliert – und Antonio Rüdiger ist mittendrin**: [Link](https://www.goal.com/de/meldungen/wilde-szenen-auf-dem-weg-in-die-kabine-madrid-derby-eskaliert-und-antonio-ruediger-ist-mittendrin/blt1b081e66ca54865f)
+
+
+### بث مباشر (N/A, Sun, 20 Sep 2026 06:50:00 -0700)
+
+- **بث مباشر من جمعية أصحاب المنازل: الترويج للكستناء الحاصلة على شهادة فيتجاب - نشر المنتجات الزراعية المحلية**: [Link](https://www.vietnam.vn/ar/hoa-an-livestream-quang-ba-hat-de-vietgap-lan-toa-nong-san-dia-phuong)
+- **السيسي يستقبل مدير "سي آي إيه" في القاهرة ومباحثات حول أزمات الشرق الأوسط**: [Link](https://www.mc-doualiya.com/%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/20260920-%D8%A7%D9%84%D8%B3%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%85%D8%AF%D9%8A%D8%B1-%D8%B3%D9%8A-%D8%A2%D9%8A-%D8%A5%D9%8A%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%88%D9%85%D8%A8%D8%A7%D8%AD%D8%AB%D8%A7%D8%AA-%D8%AD%D9%88%D9%84-%D8%A3%D8%B2%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7)
+- **السيسي يلتقي مدير الاستخبارات الأمريكية ويدعو لاتفاق ينهي أزمة إيران**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%B3%D9%8A%D8%B3%D9%8A-%D9%8A%D9%84%D8%AA%D9%82%D9%8A-%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%88%D9%8A%D8%AF%D8%B9%D9%88-%D9%84%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%8A%D9%86%D9%87%D9%8A-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-/4062431)
+
+
 ### la liga (N/A, Sun, 20 Sep 2026 09:20:00 -0700)
 
 - **Lamine Yamal Becomes Youngest Player to Reach 50 La Liga Assists**: [Link](https://www.moroccoworldnews.com/2026/09/339034/lamine-yamal-becomes-youngest-player-to-reach-50-la-liga-assists/)
