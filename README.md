@@ -1,3 +1,37 @@
+### play store (N/A, Sun, 20 Sep 2026 03:00:00 -0700)
+
+- **Google Play Games is giving Sidekick a much-needed activation upgrade**: [Link](https://www.androidauthority.com/google-play-games-sidekick-upgrade-apk-teardown-3712920/)
+- **Lenovo Vantage app for Googlebook hits the Play Store with custom RGB and shortcuts**: [Link](https://chromeunboxed.com/lenovo-vantage-app-for-googlebook-hits-the-play-store-with-custom-rgb-and-shortcuts/)
+
+
+### يوتيوب (N/A, Sun, 20 Sep 2026 02:40:00 -0700)
+
+- **من هي المغنية التي حصدت قناتها على يوتيوب 900 مليون مشاهدة، ولماذا تثير ضجة كبيرة على موقع Threads؟**: [Link](https://www.vietnam.vn/ar/nu-ca-si-so-huu-kenh-youtube-900-trieu-luot-xem-la-ai-vi-sao-gay-sot-threads)
+- **118 ألف دولار فاتورة غير متوقعة.. طفل يورّط والده بسبب قناة ألعاب**: [Link](https://www.24.ae/967737)
+- **طفل ينفق 118 ألف دولار على إعلانات يوتيوب**: [Link](https://www.skynewsarabia.com/varieties/1892789-%D8%B7%D9%81%D9%84-%D9%8A%D9%86%D9%81%D9%82-118-%D8%A3%D9%84%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%A5%D8%B9%D9%84%D8%A7%D9%86%D8%A7%D8%AA-%D9%8A%D9%88%D8%AA%D9%8A%D9%88%D8%A8)
+
+
+### heure gmt (N/A, Sat, 19 Sep 2026 21:40:00 -0700)
+
+- **Retour définitif à l’heure GMT dimanche 20 septembre 2026**: [Link](https://fr.le360.ma/societe/retour-definitif-a-lheure-gmt-dimanche-20-septembre-2026_ZI5T7JUP7VG7ZLP7KJVY3CGA3E/)
+- **Rappel. Retour à l'heure GMT au Maroc ce dimanche 20 septembre**: [Link](https://medias24.com/2026/09/18/rappel-retour-a-lheure-gmt-au-maroc-ce-dimanche-20-septembre-1758871/)
+- **Retour à l'heure GMT: Les recommandations des médecins pour réussir la transition**: [Link](https://fr.hespress.com/488979-retour-a-lheure-gmt-les-recommandations-des-medecins-pour-reussir-la-transition.html)
+
+
+### توقيت غرينتش الان (N/A, Sat, 19 Sep 2026 21:30:00 -0700)
+
+- **الساعة القانونية في المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1809786.html)
+- **فيديو: المغرب يقرر إلغاء الساعة الإضافية والعودة إلى توقيت غرينتش**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%BA%D8%B1%D9%8A%D9%86%D8%AA%D8%B4-20260918)
+- **الثامنة صباحا موعد انطلاق الدراسة ابتداء من 21 شتنبر**: [Link](https://assabah.ma/950470.html)
+
+
+### tennis scores today (N/A, Sat, 19 Sep 2026 16:40:00 -0700)
+
+- **Zverev gives Germany 1-0 lead over Croatia in Davis Cup qualifying. South Korea reaches Final 8**: [Link](https://www.itemonline.com/zverev-gives-germany-1-0-lead-over-croatia-in-davis-cup-qualifying-south-korea-reaches/article_b8e1c76e-41aa-5be3-951e-9e944038e12f.html)
+- **South Korea becomes the first Asian country to reach the Davis Cup finals**: [Link](https://www.ctinsider.com/sports/article/south-korea-becomes-the-first-asian-country-to-22439423.php)
+- **Shelton loses again in Davis Cup as Czechs defeat US to reach Final 8. Zverev wins for Germany**: [Link](https://www.abc4.com/sports/ap-sports/ap-zverev-gives-germany-1-0-lead-over-croatia-in-davis-cup-qualifying-south-korea-reaches-final-8/)
+
+
 ### best shows on hbo max (N/A, Sat, 19 Sep 2026 19:40:00 -0700)
 
 - **10 Best HBO Max TV Shows Of 2026 (So Far)**: [Link](https://www.imdb.com/es/news/ni66023920/?ref_=nwc_art_perm)
