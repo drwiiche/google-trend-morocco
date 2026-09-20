@@ -1,3 +1,73 @@
+### كورة مباشر (N/A, Sun, 20 Sep 2026 07:20:00 -0700)
+
+- **موقف فينيسيوس وألفاريز؟ التشكيل الرسمي لديربي الريال وأتلتيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%82%D9%81-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%88%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88/blt08a54f85087efad4)
+- **10 أهداف في مباراة واحدة.. 6 مباريات مجنونة رسمت تاريخ ديربي مدريد**: [Link](https://www.aljazeera.net/sport/2026/9/20/%D8%A3%D8%B4%D9%87%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88)
+- **ملعب "طيران الرياض" يؤمن اتصال 70 ألف مشجع في الديربي اليوم**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D9%84%D8%B9%D8%A8-%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D9%8A%D8%A4%D9%85%D9%86-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84-70-%D8%A3%D9%84%D9%81-%D9%85%D8%B4%D8%AC%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-14436)
+
+
+### مباريات اليوم (N/A, Sun, 20 Sep 2026 07:00:00 -0700)
+
+- **جدول مباريات اليوم الأحد 20 سبتمبر 2026.. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-20-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltb859f27dff0bdcb4)
+- **تُعد مباراة ديربي مدريد الحدث الأبرز، حيث سيخوض كل من مانشستر يونايتد ومانشستر سيتي المباراة على أرض الملعب.**: [Link](https://www.vietnam.vn/ar/tam-diem-derby-madrid-manchester-united-manchester-city-cung-ra-san)
+- **ابرز الاحداث الرياضية في 20 ايلول 2026**: [Link](https://www.elsport.com/news/show/840481/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%8A%D9%84%D9%88%D9%84-2026)
+
+
+### bet365 (N/A, Sun, 20 Sep 2026 07:00:00 -0700)
+
+- **bet365 bonus code CBSBET365: Score $365 in bonus bets for Miami-Wake Forest, Texas Tech-Houston on Friday**: [Link](https://www.cbssports.com/betting/news/bet365-bonus-code-cbsbet365-score-365-bonus-bets-miami-wake-forest-texas-tech-houston-friday/)
+- **bet365 Bonus Code FOX365 Unlocks $365 in Bonuses for Bills vs. Lions**: [Link](https://www.foxsports.com/stories/betting/bet365-bonus-code-fox365-unlocks-365-bonuses-bills-vs-lions)
+- **Bet365 Bonus Code: Claim $365 Bonus for Ole Miss-LSU, Any CFB, NFL Game**: [Link](https://wtop.com/news/2026/09/bet365-bonus-code-claim-365-bonus-for-ole-miss-lsu-any-cfb-nfl-game/)
+
+
+### kooora (N/A, Sun, 20 Sep 2026 06:50:00 -0700)
+
+- **بيان رسمي.. برشلونة يخسر نجمه لعدة أسابيع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AE%D8%B3%D8%B1-%D9%86%D8%AC%D9%85%D9%87-%D9%84%D8%B9%D8%AF%D8%A9-%D8%A7%D9%94%D8%B3%D8%A7%D8%A8%D9%8A%D8%B9/blt9c947173e72524b4)
+- **برشلونة يتلقى ضربة قوية رغم الفوز على إشبيلية**: [Link](https://www.eremnews.com/sports/dgcg37m)
+- **كوندي يعيش واقعًا جديدًا مع برشلونة**: [Link](https://twaslnews1.twaslnews.com/5126899/)
+
+
+### yalla kora (N/A, Sun, 20 Sep 2026 06:50:00 -0700)
+
+- **قرار صادم.. المحكمة الفيدرالية تؤيد إيقاف رمضان صبحي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B5%D8%A7%D8%AF%D9%85--%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D9%88%D9%94%D9%8A%D8%AF-%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B5%D8%A8%D8%AD%D9%8A/blt534c12060fa8119e)
+- **التتويج التاريخي بدوري الأبطال.. ماذا قدم رمضان صبحي مع بيراميدز؟**: [Link](https://twaslnews1.twaslnews.com/5126726/)
+- **خالد الغندور يوجه رسالة مؤثرة لـ رمضان صبحي بعد أزمته الأخيرة**: [Link](https://www.elbalad.news/7113445)
+
+
+### real madrid vs (N/A, Sun, 20 Sep 2026 06:50:00 -0700)
+
+- **Mourinho and Simeone renew rivalry in Madrid derby after more than a decade**: [Link](https://sports.yahoo.com/articles/mourinho-simeone-renew-rivalry-madrid-065801450.html)
+- **Live Blog: Atletico Madrid vs. Real Madrid LIVE | ET time, goals and LaLiga result**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/live-blog-atletico-madrid-vs-real-madrid-live-laliga-derby-2026-09-20)
+- **Real Madrid Announces Derby Squad Against Atletico Madrid Led by Jose Mourinho**: [Link](https://m.elbotola.com/en/article/2026-09-19-15-15-92.html)
+
+
+### koora (N/A, Sun, 20 Sep 2026 06:40:00 -0700)
+
+- **بطولة كأس الخليج.. ملتقى "لمّ الشمل" عبر التاريخ**: [Link](https://www.aljazeera.net/sport/2026/9/18/%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D9%85%D9%84%D8%AA%D9%82%D9%89-%D9%84%D9%85-%D8%A7%D9%84%D8%B4%D9%85%D9%84-%D8%B9%D8%A8%D8%B1)
+- **دونيس والوعد المفقود.. هل يفاجئ الجماهير السعودية بهوية مختلفة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%88%D9%86%D9%8A%D8%B3-%D9%88%D8%A7%D9%84%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D9%81%D9%82%D9%88%D8%AF--%D9%87%D9%84-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A8%D9%87%D9%88%D9%8A%D8%A9-%D9%85%D8%AE%D8%AA%D9%84%D9%81%D8%A9/blt025d710b1db5489c)
+- **الأخضر يواصل تحضيراته لـ«خليجي 27»**: [Link](https://www.al-jazirah.com/2026/20260920/sp4.htm)
+
+
+### google (N/A, Sun, 20 Sep 2026 06:30:00 -0700)
+
+- **Gemini hacked three companies in first known breakout by Google’s AI**: [Link](https://www.cnn.com/2026/09/19/business/gemini-ai-hack-internet)
+- **Google Gemini breaches company systems as Trump unveils new ‘AI Force’**: [Link](https://www.foxnews.com/live-news/artificial-intelligence-google-gemini-trump-09-20)
+- **Google's Gemini becomes latest AI model to break out and hack computer systems**: [Link](https://www.cnbc.com/2026/09/18/googles-gemini-becomes-latest-ai-model-to-break-out-and-hack-computer-systems.html)
+
+
+### كورة (N/A, Sun, 20 Sep 2026 06:30:00 -0700)
+
+- **منشور اتحادي يثير الجدل عقب تعثر الأهلي في «القارات»**: [Link](https://www.okaz.com.sa/sport/na/2266809)
+- **الاتحاد يسخر من هزيمة الأهلي أمام صن داونز**: [Link](https://sa.hihi2.com/2026/09/20/p249088.html)
+- **يامال يحطم رقما تاريخيا لفينيسيوس في الليجا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AD%D8%B7%D9%85-%D8%B1%D9%82%D9%85%D8%A7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A7-%D9%84%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%AC%D8%A7/blt9c29b88acd0de990)
+
+
+### real madrid (N/A, Sun, 20 Sep 2026 06:10:00 -0700)
+
+- **Atlético - Real Madrid hoy, en directo: derbi madrileño de LaLiga EA Sports, última hora en el Metropolitano**: [Link](https://as.com/futbol/primera/atletico-de-madrid-real-madrid-en-directo-derbi-madrileno-de-laliga-ea-sports-hoy-en-vivo-f202609-d/)
+- **Convocatoria del Real Madrid contra el Atlético**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-atletico-19-09-2026)
+- **Atlético - Real Madrid: La capital está de moda**: [Link](https://www.marca.com/futbol/primera-division/2026/09/20/atletico-real-madrid-capital-moda.html)
+
+
 ### play store (N/A, Sun, 20 Sep 2026 03:00:00 -0700)
 
 - **Google Play Games is giving Sidekick a much-needed activation upgrade**: [Link](https://www.androidauthority.com/google-play-games-sidekick-upgrade-apk-teardown-3712920/)
