@@ -1,3 +1,31 @@
+### instagram (N/A, Mon, 21 Sep 2026 11:40:00 -0700)
+
+- **Kate Beckinsale sparks concern with cryptic Instagram posts**: [Link](https://abcnews.com/GMA/Culture/kate-beckinsale-sparks-concern-cryptic-instagram-posts/story?id=136603258)
+- **Kate Beckinsale wipes Instagram after cryptic ‘bye’ post**: [Link](https://www.cleveland.com/entertainment/2026/09/fans-concerned-after-actress-clears-instagram-posts-bye.html)
+- **Kate Beckinsale Shares Bleak Messages on Instagram**: [Link](https://people.com/kate-beckinsale-shares-bleak-messages-on-instagram-12130092)
+
+
+### kick (N/A, Mon, 21 Sep 2026 09:10:00 -0700)
+
+- **Kick Offers Viewers More Visibility in Chats — Here’s How the New KICKs Pinned Messages Work**: [Link](https://win.gg/kick-offers-viewers-more-visibility-in-chats-with-kicks/)
+- **Social Media Reacts To Footage Of Kick Streamer Drago Appearing To Punch Miamaxxed At Nick Lee’s SeeEx Event**: [Link](https://www.yahoo.com/entertainment/articles/social-media-reacts-footage-kick-110708505.html)
+- **'Shut The F*ck Up': Myron Gaines' Blunt Advice To Drago After Viral Fight**: [Link](https://sports.ndtv.com/us/us-streamers/shut-the-f-ck-up-myron-gaines-blunt-advice-to-drago-after-viral-fight-12076656)
+
+
+### google (N/A, Mon, 21 Sep 2026 08:10:00 -0700)
+
+- **Googlebook: The laptop your Android phone has been waiting for**: [Link](https://blog.google/products-and-platforms/devices/googlebook/pre-order-googlebook/)
+- **I got to see Google’s wild ideas about the future of laptops**: [Link](https://www.theverge.com/tech/997986/google-googlebooks-android-laptops-dell-hp-lenovo-acer-asus-price-specs)
+- **Google Rolls Out $899-Plus ‘Googlebook’ AI Laptops With Hardware Partners**: [Link](https://www.bloomberg.com/news/articles/2026-09-21/google-rolls-out-899-plus-googlebooks-from-dell-hp-lenovo-acer-asus)
+
+
+### charles sapin (N/A, Mon, 21 Sep 2026 00:50:00 -0700)
+
+- **« C’est révoltant » : 300 personnalités protestent contre l’arrivée de Charles Sapin de Valeurs actuelles sur France Inter**: [Link](https://www.leparisien.fr/culture-loisirs/tv/cest-revoltant-300-personnalites-protestent-contre-larrivee-de-charles-sapin-de-valeurs-actuelles-sur-france-inter-12-09-2026-W3QNYHTNOFBIBAVEAQXRTIXGJA.php)
+- **Arnaud Esquerre, sociologue : “Le pluralisme, ce n’est pas l’expression de tous les points de vue”**: [Link](https://www.nouvelobs.com/idees/20260920.OBS118429/arnaud-esquerre-sociologue-le-pluralisme-ce-n-est-pas-l-expression-de-tous-les-points-de-vue.html)
+- **Gilles-William Goldnadel : « Le micro de notre radio publique est confisqué par la gauche »**: [Link](https://www.lefigaro.fr/vox/societe/gilles-william-goldnadel-le-micro-de-notre-radio-publique-est-confisque-par-la-gauche-20260921)
+
+
 ### federico valverde (N/A, Mon, 21 Sep 2026 04:50:00 -0700)
 
 - **Parte médico de Valverde**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-valverde-20-09-2026)
