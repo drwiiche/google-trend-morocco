@@ -1,3 +1,17 @@
+### play store (N/A, Mon, 21 Sep 2026 11:30:00 -0700)
+
+- **Google Play Games is giving Sidekick a much-needed activation upgrade**: [Link](https://www.androidauthority.com/google-play-games-sidekick-upgrade-apk-teardown-3712920/)
+- **UK Competition Appeal Tribunal approves £260 million Google Play Store deal**: [Link](https://dig.watch/updates/uk-tribunal-approves-google-play-store-deal)
+- **£260m Google settlement halts UK app developer trial 12 days early**: [Link](https://ppc.land/260m-google-settlement-halts-uk-app-developer-trial-12-days-early/)
+
+
+### classroom (N/A, Mon, 21 Sep 2026 11:00:00 -0700)
+
+- **Italian PM pushes foreign student cap in classrooms, burqa, niqab ban in schools**: [Link](https://www.foxnews.com/world/italian-pm-pushes-cap-foreign-students-classes-ban-burqas-niqabs-italian-schools)
+- **Italy to ban veils in schools, limit foreign students per class, Meloni says**: [Link](https://www.cnn.com/2026/09/20/europe/italy-meloni-schools-ban-veils-limit-foreigners-intl)
+- **Italy leader Giorgia Meloni announces plans to limit foreign student numbers, ban face coverings in schools**: [Link](https://www.cbsnews.com/news/italy-giorgia-meloni-limit-foreign-student-numbers-ban-face-coverings-schools/)
+
+
 ### instagram (N/A, Mon, 21 Sep 2026 11:40:00 -0700)
 
 - **Kate Beckinsale sparks concern with cryptic Instagram posts**: [Link](https://abcnews.com/GMA/Culture/kate-beckinsale-sparks-concern-cryptic-instagram-posts/story?id=136603258)
