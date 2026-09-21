@@ -1,3 +1,31 @@
+### federico valverde (N/A, Mon, 21 Sep 2026 04:50:00 -0700)
+
+- **Parte médico de Valverde**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/partes-medicos/parte-medico-de-valverde-20-09-2026)
+- **El Madrid señala a Kang-in y al árbitro: Valverde, lesionado**: [Link](https://as.com/futbol/el-madrid-senala-a-kang-in-y-al-arbitro-valverde-lesionado-f202609-n/)
+- **Valdano le reprocha a Valverde su reacción "naif" tras la entrada de roja de Kang-in Lee**: [Link](https://www.marca.com/futbol/real-madrid/2026/09/21/valdano-le-reprocha-valverde-reaccion-naif-entrada-roja-kang-in-lee.html)
+
+
+### hespress (N/A, Mon, 21 Sep 2026 03:30:00 -0700)
+
+- **ألباريس: لا تجاوب مع دعوات "اقتحام سبتة" .. والتواصل مستمر مع المغرب**: [Link](https://www.hespress.com/%D8%A3%D9%84%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%84%D8%A7-%D8%AA%D8%AC%D8%A7%D9%88%D8%A8-%D9%85%D8%B9-%D8%AF%D8%B9%D9%88%D8%A7%D8%AA-%D8%A7%D9%82%D8%AA%D8%AD%D8%A7%D9%85-%D8%B3%D8%A8%D8%AA%D8%A9-1810800.html)
+- **ترحيل مئات المهاجرين إلى مركز إيواء ضخم بميناء سبتة لم ينه أزمة المخيمات على الشواطئ**: [Link](https://ar.telquel.ma/%D9%88%D9%83%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B3%D9%81%D8%A7%D8%B1-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D8%AF%D9%85-%D8%AA%D8%B3%D8%AC/)
+- **سفارة إسبانيا بالرباط تحذر من دعوات لمحاولة دخول جماعي إلى سبتة تزامنا مع الانتخابات – اليوم 24**: [Link](https://alyaoum24.com/2045221.html)
+
+
+### atlético madrid – real madrid (N/A, Sun, 20 Sep 2026 08:30:00 -0700)
+
+- **Atletico Madrid 2-1 Real Madrid: Jose Mourinho's men beaten in feisty derby**: [Link](https://www.bbc.com/sport/football/live/c61mv7p2k4dlt)
+- **Atletico Madrid vs Real Madrid: Where to watch, live stream, TV channel & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-atletico-madrid-v-real-madrid/blt49c064e057abb997)
+- **Atletico Madrid Beat 10-Man Real Madrid 2-1 in Heated Derby**: [Link](https://www.moroccoworldnews.com/2026/09/339038/atletico-madrid-beat-10-man-real-madrid-2-1-in-heated-derby/)
+
+
+### real madrid vs atlético madrid (N/A, Sun, 20 Sep 2026 08:10:00 -0700)
+
+- **Atlético 2-1 Real Madrid: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/atletico-de-madrid-real-madrid-en-directo-derbi-madrileno-de-laliga-ea-sports-hoy-en-vivo-f202609-d/)
+- **El derbi es territorio del Atlético**: [Link](https://www.marca.com/futbol/primera-division/cronica/2026/09/20/derbi-territorio-atletico.html)
+- **Reacciones y polémica del Atlético de Madrid - Real Madrid de La Liga EA Sports**: [Link](https://www.sport.es/es/noticias/real-madrid/reacciones-polemica-atletico-madrid-real-134489728)
+
+
 ### ترتيب الدوري الاسباني (N/A, Sun, 20 Sep 2026 09:10:00 -0700)
 
 - **قدم.. موناكو ينفرد بصدارة الدوري الفرنسي بفوز قاتل 2-1 أمام لانس**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D9%86%D9%81%D8%B1%D8%AF-%D8%A8%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D8%A8%D9%81%D9%88%D8%B2-%D9%82%D8%A7%D8%AA%D9%84-2-1-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D8%A7%D9%86%D8%B3/4061857)
