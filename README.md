@@ -1,3 +1,29 @@
+### كيليان مبابي (N/A, Tue, 22 Sep 2026 11:20:00 -0700)
+
+- **من مبابي إلى ريال مدريد: تبًا لكم وللموسم الصفري .. أنا هنا لأجل الكرة الذهبية!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%A8%D9%8B%D8%A7-%D9%84%D9%83%D9%85-%D9%88%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%B5%D9%81%D8%B1%D9%8A-%D8%A7%D9%94%D9%86%D8%A7-%D9%87%D9%86%D8%A7-%D9%84%D8%A7%D9%94%D8%AC%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/bltd95273d363074f51)
+- **مبابي يشدد على الطابع الفردي لجائزة الكرة الذهبية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B4%D8%AF%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D8%A8%D8%B9-%D8%A7%D9%84%D9%81%D8%B1%D8%AF%D9%8A-%D9%84%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-2026-09-22)
+- **مبابي ينفي توتر علاقته مع عثمان ديمبلي وسط تنافسهما على الفوز بجائزة الكرة الذهبية**: [Link](https://www.alquds.co.uk/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D9%86%D9%81%D9%8A-%D8%AA%D9%88%D8%AA%D8%B1-%D8%B9%D9%84%D8%A7%D9%82%D8%AA%D9%87-%D9%85%D8%B9-%D8%B9%D8%AB%D9%85%D8%A7%D9%86-%D8%AF%D9%8A%D9%85%D8%A8%D9%84%D9%8A/)
+
+
+### ministre (N/A, Tue, 22 Sep 2026 11:10:00 -0700)
+
+- **Le ministre des AE s’entretient avec son homologue tunisien**: [Link](https://sis.gov.eg/fr/centre-m%C3%A9diatique/actualit%C3%A9s/le-ministre-des-ae-s-entretient-avec-son-homologue-tunisien-1/)
+- **Le Qatar participe à la réunion consultative annuelle du Conseil de la Ligue arabe au niveau des ministres des Affaires étrangères**: [Link](https://qna.org.qa/fr-FR/News-Area/News/2026-9/22/le-qatar-participe-a-la-reunion-consultative-annuelle-du-conseil-de-la-ligue-arabe-au-niveau-des-ministres-des-affaires-etrangeres)
+- **Nafti appelle les pays arabes à renforcer leur action commune face aux crises**: [Link](https://africanmanager.com/nafti-appelle-les-pays-arabes-a-renforcer-leur-action-commune-face-aux-crises/)
+
+
+### فيديريكو فالفيردي (N/A, Tue, 22 Sep 2026 10:50:00 -0700)
+
+- **ريال مدريد يصدر بيانًا صادمًا بشأن إصابة فالفيردي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D9%8B%D8%A7-%D8%B5%D8%A7%D8%AF%D9%85%D9%8B%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D8%AF%D9%8A/blt0f4b97fb72bc3de9)
+- **خسائر الديربي تتوالى.. إصابة قوية تبعد قائد ريال مدريد عن الملاعب لأسابيع**: [Link](https://www.aljazeera.net/sport/2026/9/22/%D8%AE%D8%B3%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%AA%D8%AA%D9%88%D8%A7%D9%84%D9%89-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%A8%D8%B9%D8%AF)
+- **تقرير طبي جديد لفالفيردي**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/medical-reports/nuevo-parte-medico-de-valverde-22-09-2026)
+
+
+### liste electorale (N/A, Tue, 22 Sep 2026 06:30:00 -0700)
+
+
+
+
 ### gouvernement (N/A, Tue, 22 Sep 2026 04:50:00 -0700)
 
 - **DIRECT. Prix des carburants: suivez les annonces du gouvernement**: [Link](https://www.bfmtv.com/politique/direct-le-gouvernement-presente-cet-apres-midi-de-nouvelles-mesures-d-aide-aux-francais-pour-compenser-la-flambee-des-prix-des-carburants_LN-202609220155.html)
