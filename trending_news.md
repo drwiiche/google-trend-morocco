@@ -1,3 +1,24 @@
+### وليد الركراكي (N/A, Mon, 21 Sep 2026 14:30:00 -0700)
+
+- **غضب وحسرة.. هل تعمد نيوكاسل استفزاز الأهلي بعد صدمة صن داونز؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%BA%D8%B6%D8%A8-%D8%B9%D8%A7%D8%B1%D9%85--%D9%87%D9%84-%D8%AA%D8%B9%D9%85%D8%AF-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D8%A7%D8%B3%D8%AA%D9%81%D8%B2%D8%A7%D8%B2-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%AF%D9%85%D8%A9-%D8%B5%D9%86-%D8%AF%D8%A7%D9%88%D9%86%D8%B2/blt7802c91a127edbaa)
+- **وليد الركراكي يعود إلى الواجهة من جديد!**: [Link](https://radiomars.ma/%D9%88%D9%84%D9%8A%D8%AF-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF/)
+- **10 معلومات عن فيتور بيريرا.. المرشح لخلافة بوسيتش في الأهلي**: [Link](https://twaslnews1.twaslnews.com/5165704/)
+
+
+### يوتيوب (N/A, Mon, 21 Sep 2026 10:40:00 -0700)
+
+- **داخل القرية التي تبلغ تكلفتها حوالي 10 ملايين دولار والتي بناها "ملياردير اليوتيوب" في أفريقيا.**: [Link](https://www.vietnam.vn/ar/ben-trong-ngoi-lang-gan-10-trieu-usd-ty-phu-youtube-xay-o-chau-phi)
+- **«مليار عمل مجتمعي» تحقق نقلة تنموية شاملة في قرية بشرق غانا**: [Link](https://emirates24.net/international/2009/109198/)
+- **«مليار عمل مجتمعي» تنجز تحولاً تنموياً في قرية بغانا**: [Link](https://www.alkhaleej.ae/2026-09-21/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1/%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%B9%D9%85%D9%84-%D9%85%D8%AC%D8%AA%D9%85%D8%B9%D9%8A-%D8%AA%D9%86%D8%AC%D8%B2-%D8%AA%D8%AD%D9%88%D9%84%D8%A7-%D8%AA%D9%86%D9%85%D9%88%D9%8A%D8%A7-%D9%81%D9%8A-%D9%82%D8%B1%D9%8A%D8%A9-%D8%A8%D8%BA%D8%A7%D9%86%D8%A7)
+
+
+### séisme (N/A, Mon, 21 Sep 2026 09:40:00 -0700)
+
+- **Un séisme de magnitude 5 frappe au large des îles Amami Oshima au Japon**: [Link](https://www.spa.gov.sa/fr/N2680797)
+- **Séisme de magnitude 5,1 à 46 km au sud-est de Saiki, au Japon**: [Link](https://www.volcanodiscovery.com/fr/seismes/actualites/361879/seisme-de-magnitude-5-1-a-46-km-au-sud-est-de-saiki-au-japon.html)
+- **Un séisme de magnitude 4,9 frappe les îles Bonin au Japon**: [Link](https://www.spa.gov.sa/fr/N2674762)
+
+
 ### play store (N/A, Mon, 21 Sep 2026 11:30:00 -0700)
 
 - **Google Play Games is giving Sidekick a much-needed activation upgrade**: [Link](https://www.androidauthority.com/google-play-games-sidekick-upgrade-apk-teardown-3712920/)
