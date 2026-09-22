@@ -1,3 +1,64 @@
+### عبد الله وزان (N/A, Tue, 22 Sep 2026 03:50:00 -0700)
+
+- **المنتخب الوطني يباشر تحضيراته للاستحقاقات المقبلة**: [Link](https://frmf.ma/articles/les-lions-de-latlas-entament-leur-preparation)
+- **الفاوزي: اخترت المغرب بقرار من القلب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D8%A7%D9%88%D8%B2%D9%8A-%D8%A7%D8%AE%D8%AA%D8%B1%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D9%82%D9%84%D8%A8-1811188.html)
+- **الجامعة الملكية المغربية لكرة القدم تكشف عن موعد التحاق حكيمي و الصيباري بمعسكر "الاسود"**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA-4/)
+
+
+### إبراهيم دياز (N/A, Tue, 22 Sep 2026 03:30:00 -0700)
+
+- **كواليس مثيرة.. تضحية سرية وراء غياب دياز عن ريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9--%D8%AA%D8%B6%D8%AD%D9%8A%D8%A9-%D8%B3%D8%B1%D9%8A%D8%A9-%D9%88%D8%B1%D8%A7%D8%A1-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%B9%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blta3657dc4bf7773b3)
+- **الصحافة الإسبانية تتساءل.. أين اختفى ابراهيم؟**: [Link](https://www.almountakhab.com/node/13230759)
+- **تقرير يكشف سبب غياب نجم ريال مدريد عن المشاركة مع الفريق**: [Link](https://www.almasryalyoum.com/news/details/4365250)
+
+
+### claude (N/A, Tue, 22 Sep 2026 02:50:00 -0700)
+
+- **Claude down latest update: Users report outage as Mythos 5.1, Fable 5.1 and Opus 5 face errors**: [Link](https://www.moneycontrol.com/world/claude-down-latest-update-users-report-outage-as-mythos-5-1-fable-5-1-and-opus-5-face-errors-article-14034936.html)
+- **Claude Elevated Errors for Multiple Models Now Resolved**: [Link](https://www.technobezz.com/news/claude-service-incident-9f8629b4)
+- **Anthropic Resolves Outage Affecting Multiple Claude AI Models**: [Link](https://suaragarut.id/en/anthropic-resolves-claude-ai-outage)
+
+
+### محاكم (N/A, Tue, 22 Sep 2026 02:10:00 -0700)
+
+- **كتابان نقديان يرصدان تحولات الإبداع السوري في زمن الثورة وحفظ الذاكرة**: [Link](https://sana.sy/culture-and-arts/2582337/)
+- **محاكم التفتيش**: [Link](https://www.alaraby.co.uk/culture/%D9%85%D8%AD%D8%A7%D9%83%D9%85-%D8%A7%D9%84%D8%AA%D9%81%D8%AA%D9%8A%D8%B4)
+- **بنسعيد: الحوار مع المحامين ممكن.. و"البام" لم يتبرأ من حصيلة الحكومة**: [Link](https://www.hespress.com/%D8%A8%D9%86%D8%B3%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%AD%D8%A7%D9%85%D9%8A%D9%86-%D9%85%D9%85%D9%83%D9%86-%D9%88%D8%A7%D9%84%D8%A8%D8%A7-1810627.html)
+
+
+### زكي الهواري (N/A, Tue, 22 Sep 2026 02:00:00 -0700)
+
+- **الفنان المغربي زكي الهواري في ذمة الله**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B2%D9%83%D9%8A-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%B0%D9%85%D8%A9-%D8%A7%D9%84%D9%84%D9%87-1811037.html)
+- **وفاة الفنان المغربي زكي الهواري.. وزارة الثقافة تنعي أحد وجوه الساحة الفنية الوطنية**: [Link](https://www.ahdath.info/%D9%88%D9%81%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B2%D9%83%D9%8A-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%B1%D9%8A-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9/)
+- **وفاة الفنان المغربي زكي الهواري بعد مسار فني امتد لعقود – اليوم 24**: [Link](https://alyaoum24.com/2045461.html)
+
+
+### outlook (N/A, Tue, 22 Sep 2026 01:50:00 -0700)
+
+- **Kingfisher Lifts Full-Year Earnings Forecast on Trade Sales**: [Link](https://www.bloomberg.com/news/articles/2026-09-22/kingfisher-lifts-full-year-earnings-forecast-on-trade-sales)
+- **Kingfisher delivers profit upgrade despite flagging B&Q sales**: [Link](https://www.independent.co.uk/news/business/kingfisher-ireland-b-q-britons-b3054018.html)
+- **Kingfisher raises FY guidance, Rentokil Initial agrees to sell SOLitude and Vertex units**: [Link](https://www.sharecast.com/news/market-live-email/market-live--23635642.html)
+
+
+### zone turf (N/A, Mon, 21 Sep 2026 22:00:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 10 Louba**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-10-louba-130567.html)
+- **Tiercé. Les pronostics de « L'Alsace » pour mardi 22 septembre - Prix Calabrais**: [Link](https://www.lalsace.fr/actualite/2026/09/21/nos-pronostics-pour-mardi-22-septembre-prix-calabrais)
+- **Quinté+: Les 3 belles cotes du mardi 22 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-3-belles-cotes-du-mardi-22-septembre)
+
+
+### maps (N/A, Mon, 21 Sep 2026 21:10:00 -0700)
+
+- **Appeals court orders Missouri to use Trump-backed congressional map, setting up another Supreme Court battle**: [Link](https://www.cnn.com/2026/09/21/politics/missouri-redistricting-map-supreme-court)
+- **Appeals court revives GOP gerrymander in Missouri that Supreme Court killed off twice**: [Link](https://www.politico.com/news/2026/09/21/missouri-map-ruling-midterms-01086519)
+- **Appeals court rules in favor of Trump-backed Missouri congressional maps**: [Link](https://www.theguardian.com/us-news/2026/sep/21/missouri-congressional-map-trump-appeals-court)
+
+
+### akhbarona (N/A, Mon, 21 Sep 2026 16:20:00 -0700)
+
+
+
+
 ### chatgpt (N/A, Mon, 21 Sep 2026 08:10:00 -0700)
 
 - **Meta's Muse AI agent downloads are surging. Here's how it compares to ChatGPT, Grok and Claude**: [Link](https://www.cnbc.com/2026/09/21/meta-muse-personal-ai-agent-downloads.html)
