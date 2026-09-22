@@ -1,3 +1,10 @@
+### chatgpt (N/A, Mon, 21 Sep 2026 08:10:00 -0700)
+
+- **Meta's Muse AI agent downloads are surging. Here's how it compares to ChatGPT, Grok and Claude**: [Link](https://www.cnbc.com/2026/09/21/meta-muse-personal-ai-agent-downloads.html)
+- **Morning Bid: AI trade gets its Muse**: [Link](https://www.reuters.com/markets/europe/global-markets-view-europe-2026-09-22/)
+- **Why Intel, Arm, and Other AI Chip Stocks Soared Today**: [Link](https://finance.yahoo.com/technology/ai/articles/why-intel-arm-other-ai-010318570.html)
+
+
 ### وليد الركراكي (N/A, Mon, 21 Sep 2026 14:30:00 -0700)
 
 - **غضب وحسرة.. هل تعمد نيوكاسل استفزاز الأهلي بعد صدمة صن داونز؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%BA%D8%B6%D8%A8-%D8%B9%D8%A7%D8%B1%D9%85--%D9%87%D9%84-%D8%AA%D8%B9%D9%85%D8%AF-%D9%86%D9%8A%D9%88%D9%83%D8%A7%D8%B3%D9%84-%D8%A7%D8%B3%D8%AA%D9%81%D8%B2%D8%A7%D8%B2-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%AF%D9%85%D8%A9-%D8%B5%D9%86-%D8%AF%D8%A7%D9%88%D9%86%D8%B2/blt7802c91a127edbaa)
