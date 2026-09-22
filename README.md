@@ -1,3 +1,24 @@
+### gouvernement (N/A, Tue, 22 Sep 2026 04:50:00 -0700)
+
+- **DIRECT. Prix des carburants: suivez les annonces du gouvernement**: [Link](https://www.bfmtv.com/politique/direct-le-gouvernement-presente-cet-apres-midi-de-nouvelles-mesures-d-aide-aux-francais-pour-compenser-la-flambee-des-prix-des-carburants_LN-202609220155.html)
+- **France : une « règle d’or » pour neutraliser les surplus de TVA sur les carburants**: [Link](https://www.leconomiste.com/flash-infos/france-une-regle-dor-pour-neutraliser-les-surplus-de-tva-sur-les-carburants/)
+- **Gazole, essence : une station sur cinq en rupture d’au moins un carburant**: [Link](https://www.lefigaro.fr/conjoncture/carburants-une-station-sur-cinq-en-rupture-d-au-moins-un-carburant-20260921)
+
+
+### turf fr (N/A, Tue, 22 Sep 2026 03:50:00 -0700)
+
+- **Faites le papier du Quinté+ de ce mercredi 23 septembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-mercredi-23-septembre)
+- **Quinté Plus PMU : Just de l'Oison sur sa lancée**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-just-de-l-oison-sur-sa-lancee-130580.html)
+- **GNT à Argentan : 7 stats incontournables**: [Link](https://www.letrot.com/actualites/gnt-a-argentan-7-stats-incontournables-28859)
+
+
+### zeturf (N/A, Tue, 22 Sep 2026 01:40:00 -0700)
+
+- **Mamaland, l'outsider séduisant du Quinté+ de ce mardi 22 septembre à Auteuil**: [Link](https://www.equidia.fr/articles/actualite/mamaland-loutsider-seduisant-du-quinte-de-ce-mardi-22-septembre-a-auteuil)
+- **Nos Bonnes Notes en Piste - Mardi 22 septembre**: [Link](https://www.paris-turf.com/actualites/france/302837473784-nos-bonnes-notes-en-piste-mardi-22-septembre)
+- **Pronostic Turf du 22 Septembre 2026 : les favoris du jour en Simple Placé**: [Link](https://www.ruedesjoueurs.com/turf/pronostic-turf/pronostics-quinte/74444-pronostic-turf-du-22-septembre-2026-les-favoris-du-jour-en-simple-place.html)
+
+
 ### عبد الله وزان (N/A, Tue, 22 Sep 2026 03:50:00 -0700)
 
 - **المنتخب الوطني يباشر تحضيراته للاستحقاقات المقبلة**: [Link](https://frmf.ma/articles/les-lions-de-latlas-entament-leur-preparation)
