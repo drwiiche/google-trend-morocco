@@ -1,3 +1,38 @@
+### اقتصاد (N/A, Tue, 22 Sep 2026 13:40:00 -0700)
+
+- **بنك المغرب يثبّت الفائدة ويخفض توقع التضخم**: [Link](https://www.aljazeera.net/ebusiness/2026/9/22/%D8%A8%D9%86%D9%83-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AB%D8%A8%D8%AA-%D8%A7%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9-%D9%88%D9%8A%D8%AE%D9%81%D8%B6-%D8%AA%D9%88%D9%82%D8%B9)
+- **الفاتورة الطاقية تتفاقم.. وعجز الحساب الجاري يبلغ مستويات مقلقة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D8%A7%D8%AA%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D8%AA%D9%81%D8%A7%D9%82%D9%85-%D9%88%D8%B9%D8%AC%D8%B2-%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8-%D8%A7-1811461.html)
+- **المغرب.. تثبيت الفائدة عند 2.25 بالمئة وتوقع نمو 4.4 بالمئة**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%AB%D8%A8%D9%8A%D8%AA-%D8%A7%D9%84%D9%81%D8%A7%D8%A6%D8%AF%D8%A9-%D8%B9%D9%86%D8%AF-225-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D9%88%D8%AA%D9%88%D9%82%D8%B9-%D9%86%D9%85%D9%88-44-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9/4064758)
+
+
+### نادي موناكو (N/A, Tue, 22 Sep 2026 13:10:00 -0700)
+
+- **موناكو يوقع رسميا مع ثنائي مغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%86%D8%A7%D9%83%D9%88-%D9%8A%D9%88%D9%82%D8%B9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D9%85%D8%B9-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt6735b3593c2a4ff1)
+- **جوهرتان مغربيتان تدشنان مسيرتهما الاحترافية مع موناكو**: [Link](https://radiomars.ma/%D8%AC%D9%88%D9%87%D8%B1%D8%AA%D8%A7%D9%86-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%AA%D8%A7%D9%86-%D8%AA%D8%AF%D8%B4%D9%86%D8%A7%D9%86-%D9%85%D8%B3%D9%8A%D8%B1%D8%AA%D9%87%D9%85%D8%A7-%D8%A7%D9%84/)
+- **موهبتان مغربيتان توقعان أول عقد احترافي مع موناكو**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/503524.html)
+
+
+### 2030 (N/A, Tue, 22 Sep 2026 12:50:00 -0700)
+
+- **Delivering on the UAE Consensus: Tracking progress toward tripling renewable energy capacity and doubling energy efficiency by 2030**: [Link](https://www.irena.org/Publications/2026/Sep/UAE-Consensus-2030-tripling-renewables-doubling-efficiency)
+- **Global renewable deployment must double to hit 2030 climate target, report says**: [Link](https://www.reuters.com/sustainability/cop/global-renewable-deployment-must-double-hit-2030-climate-target-report-says-2026-09-21/)
+- **Renewable energy’s security case moves from potential to delivery**: [Link](https://www.digitaljournal.com/article/renewable-energys-security-case-moves-from-potential-to-delivery/)
+
+
+### نادية رشاد (N/A, Tue, 22 Sep 2026 12:10:00 -0700)
+
+- **الفنانة نادية رشاد تعلن اعتزالها الفن: "لا أرحب بمكالمة من أي زميل"**: [Link](https://www.alarabiya.net/culture-and-art/2026/09/22/%D9%86%D8%A7%D8%AF%D9%8A%D8%A9-%D8%B1%D8%B4%D8%A7%D8%AF-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D9%81%D9%86-%D9%84%D8%A7-%D8%A7%D8%B1%D8%AD%D8%A8-%D8%A8%D9%85%D9%83%D8%A7%D9%84%D9%85%D8%A9-%D9%85%D9%86-%D8%A7%D9%8A-%D8%B2%D9%85%D9%8A%D9%84)
+- **حدث بالفن| فنانة تعلن اعتزالها وتأجيل سادس دورات مهرجان البحر الأحمر**: [Link](https://www.masrawy.com/arts/zoom/details/2026/9/22/3051733/%D8%AD%D8%AF%D8%AB-%D8%A8%D8%A7%D9%84%D9%81%D9%86-%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87%D8%A7-%D9%88%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D8%B3%D8%A7%D8%AF%D8%B3-%D8%AF%D9%88%D8%B1%D8%A7%D8%AA-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D8%A3%D8%AD%D9%85%D8%B1-)
+- **بعد اعتزال نادية رشاد.. كيف كان تكريم السيسي وترشيح اسمها محطة فارقة في مسيرتها؟**: [Link](https://elbaladtv.net/%D8%A8%D8%B9%D8%AF-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D9%86%D8%A7%D8%AF%D9%8A%D8%A9-%D8%B1%D8%B4%D8%A7%D8%AF-%D9%83%D9%8A%D9%81-%D9%83%D8%A7%D9%86-%D8%AA%D9%83%D8%B1%D9%8A%D9%85-%D8%A7%D9%84)
+
+
+### real madrid club de fútbol – psg (N/A, Tue, 22 Sep 2026 12:10:00 -0700)
+
+- **Real Madrid 1-1 PSG, Champions League Femenina: resumen, goles y resultado**: [Link](https://as.com/futbol/femenino/real-madrid-psg-en-directo-champions-league-femenina-en-vivo-hoy-f202609-d/)
+- **Real Madrid - Paris Saint-Germain en directo | Última hora de Champions League Femenina en vivo hoy**: [Link](https://www.marca.com/futbol/champions-league-femenina/r-madrid-paris-saint-germain/2026/09/22/01_0183_20260922_16928_9101-directo.html)
+- **Estreno plácido para el Arsenal de Mariona**: [Link](https://www.mundodeportivo.com/futbol/femenino/20260922/1004229915/estreno-placido-arsenal-mariona.html)
+
+
 ### كيليان مبابي (N/A, Tue, 22 Sep 2026 11:20:00 -0700)
 
 - **من مبابي إلى ريال مدريد: تبًا لكم وللموسم الصفري .. أنا هنا لأجل الكرة الذهبية!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AA%D8%A8%D9%8B%D8%A7-%D9%84%D9%83%D9%85-%D9%88%D9%84%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%B5%D9%81%D8%B1%D9%8A-%D8%A7%D9%94%D9%86%D8%A7-%D9%87%D9%86%D8%A7-%D9%84%D8%A7%D9%94%D8%AC%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/bltd95273d363074f51)
