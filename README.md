@@ -1,3 +1,27 @@
+### pedro sánchez (N/A, Wed, 23 Sep 2026 01:10:00 -0700)
+
+- **Sánchez asegura que ha pedido “acciones” a Marruecos “porque su control de fronteras falló” en Ceuta**: [Link](https://elpais.com/espana/2026-09-22/sanchez-pide-explicaciones-a-marruecos-porque-su-control-de-fronteras-fallo.html)
+- **55 días después de la entrada masiva, Sánchez cambia su discurso: ahora reconoce que Marruecos falló**: [Link](https://www.ceutatv.com/articulo/politica/55-dias-despues-entrada-masiva-sanchez-cambia-discurso-ahora-reconoce-que-marruecos-fallo/20260923112649255490.html)
+- **Compromís cuestiona el giro de Sánchez sobre Marruecos y el PSOE niega cambios en la versión**: [Link](https://actualidadvalencia.com/compromis-critica-cambio-version-sanchez-frontera-marruecos/)
+
+
+### عبد المجيد تبون (N/A, Wed, 23 Sep 2026 00:40:00 -0700)
+
+
+
+
+### meteo (N/A, Wed, 23 Sep 2026 00:20:00 -0700)
+
+
+
+
+### موعد اذان الفجر (N/A, Tue, 22 Sep 2026 21:40:00 -0700)
+
+- **موعد أذان الظهر.. مواقيت الصلاة اليوم الأربعاء 23 سبتمبر 2026 وفقاً للفواعل الرسمية**: [Link](https://akher.news/34482/%D9%85%D9%88%D8%B9%D8%AF-%D8%A3%D8%B0%D8%A7%D9%86-%D8%A7%D9%84%D8%B8%D9%87%D8%B1-%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84-3/)
+- **مواقيت الصلاة في أسوان اليوم الأربعاء 23-9-2026**: [Link](https://twaslnews1.twaslnews.com/5205476/)
+- **مواقيت الصلاة اليوم الأربعاء، موعد أذان الظهر في القاهرة والمحافظات**: [Link](https://www.vetogate.com/5731407)
+
+
 ### الفجر (N/A, Tue, 22 Sep 2026 21:50:00 -0700)
 
 - **مواقيت الصلاة في أسوان اليوم الأربعاء 23-9-2026**: [Link](https://twaslnews1.twaslnews.com/5205476/)
