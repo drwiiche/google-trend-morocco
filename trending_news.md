@@ -1,3 +1,69 @@
+### حزب الاستقلال (N/A, Wed, 23 Sep 2026 14:20:00 -0700)
+
+- **لقجع: 23 شتنبر محطة حاسمة للانتقال من منطق الوعود إلى ثقافة الإنجاز**: [Link](https://pam.ma/%D9%84%D9%82%D8%AC%D8%B9-23-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-%D9%85%D8%AD%D8%B7%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D9%85%D9%86-%D9%85%D9%86%D8%B7/)
+- **رأسمالها مفتوح أمام التجار. ."البام" يقترح إحداث شركات جهوية لتقليص الوسطاء بالأسواق**: [Link](https://www.ahdath.info/%D8%B1%D8%A3%D8%B3%D9%85%D8%A7%D9%84%D9%87%D8%A7-%D9%85%D9%81%D8%AA%D9%88%D8%AD-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%AC%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%A7%D9%85-%D9%8A%D9%82%D8%AA/)
+- **فوزي لقجع يدلي بصوته في الانتخابات التشريعية بدائرة بركان**: [Link](https://barlamane.com/%D9%81%D9%88%D8%B2%D9%8A-%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%AF%D9%84%D9%8A-%D8%A8%D8%B5%D9%88%D8%AA%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA/)
+
+
+### pjd (N/A, Wed, 23 Sep 2026 14:10:00 -0700)
+
+
+
+
+### البام (N/A, Wed, 23 Sep 2026 14:00:00 -0700)
+
+- **"سيناريو محبوك" .. "البام" يرد على واقعة مكتب التصويت بمدينة طنجة**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D9%85%D8%AD%D8%A8%D9%88%D9%83-%D8%A7%D9%84%D8%A8%D8%A7%D9%85-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%85%D9%83-1812221.html)
+- **🔥توضيحات النيابة العامة حول توقيف شخص بمدرسة القدس وبحوزته حقيبة**: [Link](https://tanja7.com/192233/)
+- **طنجة.. البيجيدي يحذر من وقائع قد تمس بـ « نزاهة » الانتخابات**: [Link](https://ledesk.ma/arabia/%D8%B7%D9%86%D8%AC%D8%A9-%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D9%8A%D8%AF%D9%8A-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%88%D9%82%D8%A7%D8%A6%D8%B9-%D9%82%D8%AF-%D8%AA%D9%85%D8%B3-%D8%A8%D9%80-%D9%86/)
+
+
+### العدالة والتنمية (N/A, Wed, 23 Sep 2026 13:50:00 -0700)
+
+- **حامي الدين: "البيجيدي" يتصدر دوائر**: [Link](https://www.hespress.com/%D8%AD%D8%A7%D9%85%D9%8A-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D9%8A%D8%AF%D9%8A-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AF%D9%88%D8%A7%D8%A6%D8%B1-1812349.html)
+- **حامي الدين: النتائج الأولية تضع العدالة والتنمية في صدارة الانتخابات ولا حزب يطارده – اليوم 24**: [Link](https://alyaoum24.com/2046057.html)
+- **🔥مع بداية الفرز.. العدالة والتنمية يتقدم في طنجة**: [Link](https://tanja7.com/192250/)
+
+
+### nadorcity (N/A, Wed, 23 Sep 2026 13:50:00 -0700)
+
+- **الناظور.. فرز 40% من الأصوات كيقلب الترتيب: البام اللول والاتحاد الاشتراكي ثاني والأحرار ثالث والفارق ضيق بين الستة الأوائل**: [Link](https://www.goud.ma/%D8%A7%D9%84%D9%86%D8%A7%D8%B8%D9%88%D8%B1-%D9%81%D8%B1%D8%B2-40-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B5%D9%88%D8%A7%D8%AA-%D9%83%D9%8A%D9%82%D9%84%D8%A8-%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-1043207/)
+- **الانتخابات البرلمانية بالناظور.. الساعات الأخيرة تحسم إقبال الناخبين على صناديق الاقتراع**: [Link](https://ar.hibapress.com/details-759195.html)
+- **بني أنصار.. مهرجان انتخابي للأحرار بحضور قيادات الحزب ودعم لائحة حليم فوطاط**: [Link](https://ardbladi.com/%D8%A8%D9%86%D9%8A-%D8%A3%D9%86%D8%B5%D8%A7%D8%B1-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D9%8A-%D9%84%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D8%A8%D8%AD%D8%B6%D9%88/)
+
+
+### princesse lalla meryem (N/A, Wed, 23 Sep 2026 13:40:00 -0700)
+
+- **Le Roi Mohammed VI préside lundi une veillée religieuse en hommage à feu Hassan II**: [Link](https://medias24.com/2026/09/21/le-roi-mohammed-vi-preside-lundi-une-veillee-religieuse-en-hommage-a-feu-hassan-ii-1760523/)
+- **Au Maroc, le roi Mohammed VI et son fils Moulay El Hassan unis dans la douleur lors d’un moment très émouvant**: [Link](https://www.gala.fr/royautes/au-maroc-le-roi-mohammed-vi-et-son-fils-moulay-el-hassan-unis-dans-la-douleur-lors-d-un-moment-tres-emouvant-20260923)
+- **S.A.R. la Princesse Lalla Meryem préside une veillée religieuse en commémoration du 28e anniversaire de la disparition de Feu S.M. le Roi Hassan II**: [Link](https://lematin.ma/nation/sar-la-princesse-lalla-meryem-preside-une-veillee-religieuse/366332)
+
+
+### هسبريس (N/A, Wed, 23 Sep 2026 13:40:00 -0700)
+
+
+
+
+### نتائج الانتخابات (N/A, Wed, 23 Sep 2026 12:40:00 -0700)
+
+- **انتخابات 2026.. تارودانت تستعد للاقتراع وسط تنافس على سبعة مقاعد**: [Link](https://2m.ma/ar/news/%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-2026-%D8%AA%D8%A7%D8%B1%D9%88%D8%AF%D8%A7%D9%86%D8%AA-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%B9-%D9%88%D8%B3%D8%B7-%D8%AA%D9%86%D8%A7%D9%81%D8%B3-%D8%B9%D9%84%D9%89-%D8%B3%D8%A8%D8%B9%D8%A9-%D9%85%D9%82%D8%A7%D8%B9%D8%AF-20260923)
+- **انطلاق عملية التصويت لانتخاب أعضاء مجلس النواب بمكاتب التصويت وسط أجواء منظمة بتارودانت الجنوبية**: [Link](https://www.ahdath.info/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8-%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D9%85%D8%AC/)
+- **العدالة والتنمية يكتسح نتائج الانتخابات التشريعية الأولية بتارودانت الجنوبية.**: [Link](https://agadir24.info/%D8%A7%D9%84%D8%B9%D8%AF%D8%A7%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7.html)
+
+
+### hibapress (N/A, Wed, 23 Sep 2026 12:40:00 -0700)
+
+- **فيديو : استحقاقات 2026.. استمرار عملية فرز الأصوات في مختلف مراكز الاقتراع بربوع المملكة**: [Link](https://www.medi1tv.com/ar/reportage/409384/%D8%A7%D8%B3%D8%AA%D8%AD%D9%82%D8%A7%D9%82%D8%A7%D8%AA-2026.-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%81%D8%B1%D8%B2-%D8%A7%D9%84%D8%A3%D8%B5%D9%88%D8%A7%D8%AA-%D9%81%D9%8A-%D9%85%D8%AE%D8%AA%D9%84%D9%81-%D9%85%D8%B1%D8%A7%D9%83%D8%B2-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%B9-%D8%A8%D8%B1%D8%A8%D9%88%D8%B9-%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9)
+- **نتائج جزئية.. حسان بركاني يتصدر فرز الأصوات بعدد من مكاتب التصويت بأنفا البيضاء**: [Link](https://ar.hibapress.com/details-759475.html)
+- **من مقر العدالة والتنمية.. موفد ميدي1 تيفي يرصد أجواء انتظار النتائج**: [Link](https://www.medi1news.com/ar/article/409387.html)
+
+
+### 2m (N/A, Wed, 23 Sep 2026 12:20:00 -0700)
+
+- **RECAP - Crash on M5 causes major delays as traffic held near Wolverhampton**: [Link](https://www.birmingham-now.co.uk/news/26574199.m5-crash-j3-j2-eastbound-causes-major-traffic-delays---recap/)
+- **Twins rebuild their father's Swaledale legacy after Foot and Mouth loss**: [Link](https://www.thescottishfarmer.co.uk/livestock/livestock_features/26569423.sisters-breed-swaledales-sell-tups-borders-farm/)
+- **A38 traffic chaos after 'incident' between Taunton and Wellington**: [Link](https://www.somersetcountygazette.co.uk/news/26575681.a38-traffic-halted-near-somerset-farm-shop-incident/)
+
+
 ### paris saint-germain football club (N/A, Wed, 23 Sep 2026 10:20:00 -0700)
 
 - **Accréditation – Manchester City FC – Paris Saint-Germain - Ligue des Champions de l'UEFA – J2**: [Link](https://www.psg.fr/content/cp-accreditation-manchester-city-fc-paris-saint-germain-ligue-des-champions-de-luefa-j2/)
