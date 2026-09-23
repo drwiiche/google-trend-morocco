@@ -1,3 +1,52 @@
+### paris saint-germain football club (N/A, Wed, 23 Sep 2026 10:20:00 -0700)
+
+- **Accréditation – Manchester City FC – Paris Saint-Germain - Ligue des Champions de l'UEFA – J2**: [Link](https://www.psg.fr/content/cp-accreditation-manchester-city-fc-paris-saint-germain-ligue-des-champions-de-luefa-j2/)
+- **PSG : Luis Campos confie son obsession depuis des mois**: [Link](https://www.foot01.com/paris/psg-luis-campos-confie-son-obsession-depuis-des-mois)
+- **PSG : Campos sent un groupe toujours motivé**: [Link](https://www.maxifoot.fr/psg/campos-sent-un-groupe-toujours-motive-foot-464470.htm)
+
+
+### انتخابات (N/A, Wed, 23 Sep 2026 10:00:00 -0700)
+
+- **يوم الاقتراع من الرباط ومراكش.. انسيابية في العملية الانتخابية وإقبال محدود**: [Link](https://www.aljazeera.net/politics/2026/9/23/%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%B9%D9%85%D9%86-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%88%D9%85%D8%B1%D8%A7%D9%83%D8%B4)
+- **أول قراءة لصناديق الاقتراع**: [Link](https://www.hespress.com/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D9%88%D9%84-%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%84%D8%B5%D9%86%D8%A7%D8%AF%D9%8A%D9%82-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%B9-1812100.html)
+- **نسبة المشاركة في الانتخابات التشريعية تتجاوز 21% إلى حدود الثالثة زوالا**: [Link](https://www.ahdath.info/%D9%86%D8%B3%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B4%D8%B1%D9%8A%D8%B9%D9%8A/)
+
+
+### إدوارد ميندي (N/A, Wed, 23 Sep 2026 10:00:00 -0700)
+
+- **حارس السنغال يكشف سر تصديه لضربة جزاء براهيم دياز الشهيرة**: [Link](https://www.eremnews.com/sports/4q97ot2)
+- **ميندي يستعيد نهائي الرباط ويكشف كيف قرأ ضربة جزاء دياز**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%8A%D9%81-%D9%82%D8%B1%D8%A3-%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%AF%D9%8A%D8%A7%D8%B2/25662)
+- **لقجع.. بغيناكم ابتداء من 24 شتنبر تحاسبو المنتخبين نتاعنا ومن حقكم**: [Link](https://alalam24.press.ma/266289/)
+
+
+### زفاف (N/A, Wed, 23 Sep 2026 09:40:00 -0700)
+
+- **بعد ساعات من الاحتفال بزواجه وحيدا.. آلاف الجزائريين يشاركون يتيما حفل زفافه**: [Link](https://www.alarabiya.net/north-africa/algeria/2026/09/23/%D8%A8%D8%B9%D8%AF-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%81%D8%A7%D9%84-%D8%A8%D8%B2%D9%88%D8%A7%D8%AC%D9%87-%D9%88%D8%AD%D9%8A%D8%AF%D8%A7-%D8%A7%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D9%8A%D9%86-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83%D9%88%D9%86-%D9%8A%D8%AA%D9%8A%D9%85%D8%A7-%D8%AD%D9%81%D9%84-%D8%B2%D9%81%D8%A7%D9%81%D9%87)
+- **فيديو - 📍من قاعة خالية إلى موكب ضخم.. قصة زفاف صالح البارا تهز ولاية باتنة😍😢 : البلاد**: [Link](https://www.elbilad.net/videos/%F0%9F%93%8D%D9%85%D9%86-%D9%82%D8%A7%D8%B9%D8%A9-%D8%AE%D8%A7%D9%84%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D9%85%D9%88%D9%83%D8%A8-%D8%B6%D8%AE%D9%85-%D9%82%D8%B5%D8%A9-%D8%B2%D9%81%D8%A7%D9%81-%D8%B5%D8%A7%D9%84%D8%AD-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D8%A7-%D8%AA%D9%87%D8%B2-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-%D8%A8%D8%A7%D8%AA%D9%86%D8%A9%F0%9F%98%8D%F0%9F%98%A2)
+- **عريس جزائري وحيد في عرسو.. شوفوا شنوّة صار بعد الفيديو**: [Link](https://www.tuniscope.com/ar/article/440764/arabe/societe/mariage-algerie-seul-461644)
+
+
+### maroc (N/A, Wed, 23 Sep 2026 08:30:00 -0700)
+
+- **LIVE. Élections législatives 2026 : le taux de participation atteint 21% à 15h**: [Link](https://ledesk.ma/live/elections-legislatives-2026-le-taux-de-participation-atteint-1134-a-midi/)
+- **Scrutin du 23 septembre : Chichaoua en tête de la région Marrakech-Safi avec un taux de participation de 33,60% à 15h**: [Link](https://medias24.com/2026/09/23/scrutin-du-23-septembre-chichaoua-en-tete-de-la-region-marrakech-safi-avec-un-taux-de-participation-de-3360-a-15h-1762683/)
+- **Législatives 2026: L’appel des urnes**: [Link](https://www.leconomiste.com/legislatives-2026-lappel-des-urnes/)
+
+
+### العراق ضد عمان (N/A, Wed, 23 Sep 2026 08:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة العراق وعُمان في كأس الخليج العربي "خليجي 27"؟ وكيف تشاهدها مجانًا عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%88%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27--%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D9%85%D8%AC%D8%A7%D9%86%D9%8B%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt23709afdd76915ad)
+- **السكتيوي في تحد جديد بكأس الخليج**: [Link](https://assabah.ma/950993.html)
+- **قدم.. العراق وعُمان يتعادلان في افتتاح "خليجي 27"**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%88%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27/4066741)
+
+
+### brahim díaz (N/A, Wed, 23 Sep 2026 07:50:00 -0700)
+
+- **Brahim Diaz Carries Muscle Concerns Into Morocco Camp**: [Link](https://www.moroccoworldnews.com/2026/09/339491/brahim-diaz-carries-muscle-concerns-into-morocco-camp/)
+- **Dramatic behind-the-scenes details: a secret sacrifice behind Diaz's absence from Real Madrid**: [Link](https://www.goal.com/en/news/explosive-behind-the-scenes-details-a-secret-sacrifice-behind-diaz-s-absence-from-real-madrid/blta3657dc4bf7773b3)
+- **Brahim Díaz has been playing with limitations for several matches**: [Link](https://mountakhab.net/en/brahim-diaz-has-been-playing-with-limitations-for-several-matches/)
+
+
 ### محمد وهبي (N/A, Wed, 23 Sep 2026 06:40:00 -0700)
 
 - **السيد محمد وهبي يوجه الدعوة إلى إلياس أخوماش**: [Link](https://frmf.ma/articles/coach-ouahbi-fait-appel-a-akhomach)
