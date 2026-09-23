@@ -1,3 +1,10 @@
+### الفجر (N/A, Tue, 22 Sep 2026 21:50:00 -0700)
+
+- **مواقيت الصلاة في أسوان اليوم الأربعاء 23-9-2026**: [Link](https://twaslnews1.twaslnews.com/5205476/)
+- **مواقيت الصلاة خلال فصل الخريف في جميع محافظات مصر اليوم**: [Link](https://www.almasryalyoum.com/news/details/4365721)
+- **مواقيت الصلاة اليوم الأربعاء 23 سبتمبر 2026 بمحافظات الجمهورية**: [Link](https://www.youm7.com/story/2026/9/23/%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-23-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2026-%D8%A8%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9/7554477)
+
+
 ### روسيا (N/A, Tue, 22 Sep 2026 15:40:00 -0700)
 
 - **أوروبا اليوم: لقاء بين ترامب وزيلينسكي في الأمم المتحدة وتعثر عقوبات روسيا**: [Link](https://arabic.euronews.com/2026/09/22/europe-today-trump-and-zelenskyy-to-meet-at-the-un-as-the-eu-fails-to-agree-on-russia-sanc)
