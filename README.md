@@ -1,3 +1,45 @@
+### برلمان (N/A, Thu, 24 Sep 2026 10:50:00 -0700)
+
+- **الفنانة وشاي تضمن مقعدا برلمانيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D9%88%D8%B4%D8%A7%D9%8A-%D8%AA%D8%B6%D9%85%D9%86-%D9%85%D9%82%D8%B9%D8%AF%D8%A7-%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-1812804.html)
+- **بعد جدل دخولها السياسة.. وشاي تفوز بمقعد برلماني**: [Link](https://febrayer.com/1162536.html)
+- **المحامية نادية نوعم تصل البرلمان من لائحة حزب الزيتونة بجهة الدار البيضاء سطات**: [Link](https://ar.hibapress.com/details-760127.html)
+
+
+### police (N/A, Thu, 24 Sep 2026 09:50:00 -0700)
+
+- **St. Helena Police Department veteran to lead agency as chief**: [Link](https://www.pressdemocrat.com/2026/09/24/st-helena-chief/)
+- **Justin Tharp named St. Helena police chief**: [Link](https://napavalleyregister.com/star/news/st-helena-police-department-justin-tharp-chief/article_f64def2a-e92a-4a6b-b7ad-2a5e00cec0ca.html)
+- **New details emerge on Milania Giudice’s airport clash with mom Teresa and sister Gia**: [Link](https://pagesix.com/2026/09/24/celebrity-news/new-details-emerge-on-milania-giudices-airport-clash-with-mom-teresa-and-sister-gia/)
+
+
+### match maroc (N/A, Thu, 24 Sep 2026 07:20:00 -0700)
+
+- **Les Lions de l’Atlas affinent leur préparation avant le Gabon**: [Link](https://frmf.ma/fr/articles/les-lions-de-latlas-affinent-leur-preparation-avant-le-gabon)
+- **Maroc-Gabon : à quelle heure et sur quelles chaînes suivre le match ?**: [Link](https://maroc-diplomatique.net/maroc-gabon-a-quelle-heure-et-sur-quelles-chaines-suivre-le-match/)
+- **Équipe nationale. Gardien de but, un poste où la relève tarde à se dessiner**: [Link](https://medias24.com/2026/09/24/equipe-nationale-gardien-de-but-un-poste-ou-la-releve-tarde-a-se-dessiner-1764413/)
+
+
+### nasser bourita (N/A, Thu, 24 Sep 2026 07:10:00 -0700)
+
+- **M. Bourita appelle la communauté internationale à redéfinir ses priorités dans la lutte contre les groupes armés non étatiques**: [Link](https://diplomatie.ma/fr/m-bourita-appelle-la-communaut%C3%A9-internationale-%C3%A0-red%C3%A9finir-ses-priorit%C3%A9s-dans-la-lutte-contre-les-groupes-arm%C3%A9s-non-%C3%A9tatiques)
+- **ONU : Bourita énonce six principes sur le Sahara et confirme la candidature du Maroc au Conseil de sécurité**: [Link](https://ledesk.ma/2026/09/23/onu-bourita-enonce-six-principes-sur-le-sahara-et-confirme-la-candidature-du-maroc-au-conseil-de-securite/)
+- **La question palestinienne reste une “priorité constante” de la politique étrangère du Maroc, affirme Bourita**: [Link](https://mobile.telquel.ma/instant-t/2026/09/23/la-question-palestinienne-reste-une-priorite-constante-de-la-politique-etrangere-du-maroc-affirme-bourita_2009102/)
+
+
+### senegal vs mozambique (N/A, Thu, 24 Sep 2026 06:50:00 -0700)
+
+- **Mozambique vs Senegal: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck05r27revvlt)
+- **Kalidou Koulibaly, a new role with the Lions?**: [Link](https://sportnewsafrica.com/en/posts/kalidou-koulibaly-a-new-role-with-the-lions)
+- **Patrick Vieira impressed with Senegal’s focus for Mozambique 2027 AFCON clash**: [Link](https://www.flashscore.co.za/news/soccer-africa-cup-of-nations-patrick-vieira-impressed-with-senegal-s-focus-for-mozambique-2027-afcon-clash/jm40ARZ8/)
+
+
+### السنغال ضد موزمبيق (N/A, Thu, 24 Sep 2026 06:40:00 -0700)
+
+- **تصفيات كأس أمم إفريقيا 2027: فييرا يبدأ عهدا جديدا مع السنغال ونيجيريا تواجه اختبارا مبكرا من دون أوسيمين في مباريات المجموعات العاشرة والحادية عشرة الثانية عشرة**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%81%D9%8A%D9%8A%D8%B1%D8%A7-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%B9%D9%87%D8%AF%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7-%D9%85%D8%A8%D9%83%D8%B1%D8%A7-%D9%85%D9%86-%D8%AF%D9%88%D9%86-%D8%A3%D9%88%D8%B3%D9%8A%D9%85%D9%8A%D9%86-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%A7%D8%B4%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%AD%D8%A7%D8%AF%D9%8A%D8%A9-%D8%B9%D8%B4%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D8%B9%D8%B4%D8%B1%D8%A9/)
+- **موزمبيق ضد السنغال: التاريخ، التوقيت، القناة الناقلة، البث المباشر، والتشكيلات المتوقعة**: [Link](https://el-zamalek.com/%D9%85%D9%88%D8%B2%D9%85%D8%A8%D9%8A%D9%82-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D8%8C-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D9%8A%D8%AA%D8%8C/)
+- **21 مدرباً جديداً يدشنون مشوار تصفيات كأس الأمم الأفريقية**: [Link](https://elsport.com/news/show/841086/%D9%85%D8%AF%D8%B1%D8%A8%D8%A7%D9%8B-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7%D9%8B-%D9%8A%D8%AF%D8%B4%D9%86%D9%88%D9%86-%D9%85%D8%B4%D9%88%D8%A7%D8%B1-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A)
+
+
 ### sénégal – mozambique (N/A, Thu, 24 Sep 2026 06:10:00 -0700)
 
 - **Mozambique-Sénégal : où regarder le match des éliminatoires de la CAN 2027 ?**: [Link](https://www.afrik-foot.com/mozambique-senegal-ou-regarder-le-match-des-eliminatoires-de-la-can-2027)
