@@ -1,3 +1,38 @@
+### قيمة سوقية (N/A, Thu, 24 Sep 2026 15:50:00 -0700)
+
+- **ديلي آلي.. من قيمة سوقية 100 مليون يورو إلى "الدرجة الرابعة"**: [Link](https://sports.asharq.com/football/119129/%D8%AF%D9%8A%D9%84%D9%8A-%D8%A2%D9%84%D9%8A-%D9%85%D9%86-%D9%82%D9%8A%D9%85%D8%A9-%D8%B3%D9%88%D9%82%D9%8A%D8%A9-100-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9/)
+- **بعد رحيله عن ليفربول.. أرنولد يفقد 50 مليون يورو من قيمته السوقية**: [Link](https://www.yallakora.com/la-liga/3034/news/567051/%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84%D9%87-%D8%B9%D9%86-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A3%D8%B1%D9%86%D9%88%D9%84%D8%AF-%D9%8A%D9%81%D9%82%D8%AF-50-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%85%D9%86-%D9%82%D9%8A%D9%85%D8%AA%D9%87-%D8%A7%D9%84%D8%B3%D9%88%D9%82%D9%8A%D8%A9)
+- **بعد 6 مباريات.. مورينيو يحسم الصراع بين دومفريس وأرنولد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-6-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA--%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A8%D9%8A%D9%86-%D8%AF%D9%88%D9%85%D9%81%D8%B1%D9%8A%D8%B3-%D9%88%D8%A7%D9%94%D8%B1%D9%86%D9%88%D9%84%D8%AF/bltd49780a918ffe150)
+
+
+### van bommel (N/A, Thu, 24 Sep 2026 14:10:00 -0700)
+
+- **Nations League: Oranje knokt zich naar gelijkspel tegen Duitsland (1-1), nu nabeschouwing**: [Link](https://nos.nl/livestream/2625738-nations-league-oranje-knokt-zich-naar-gelijkspel-tegen-duitsland-1-1-nu-nabeschouwing)
+- **LIVE. Xavi gooit zoon van Mark van Bommel in de strijd: kan hij het tij nog doen keren voor Nederland?**: [Link](https://www.hln.be/buitenlands-voetbal/live-xavi-gooit-zoon-van-mark-van-bommel-in-de-strijd-kan-hij-het-tij-nog-doen-keren-voor-nederland~aeb977a0/)
+- **Aanvoerder Van Dijk: we verdienden minimaal een punt**: [Link](https://www.rtl.nl/nieuws/sport/artikel/5655377/aanvoerder-van-dijk-we-verdienden-minimaal-een-punt)
+
+
+### بنيامين نتنياهو (N/A, Thu, 24 Sep 2026 14:00:00 -0700)
+
+- **نتنياهو أمام الجمعية العامة: "إسرائيل لم تكن يوماً بهذه القوة"**: [Link](https://www.bbc.com/arabic/live/c64g7d8eveyvt)
+- **ساعات في نيويورك بدون لقاءات رفيعة.. عزلة دولية تحاصر نتنياهو**: [Link](https://www.aljazeera.net/news/2026/9/24/%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%81%D9%8A-%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%A8%D8%AF%D9%88%D9%86-%D9%84%D9%82%D8%A7%D8%A1%D8%A7%D8%AA-%D8%B1%D9%81%D9%8A%D8%B9%D8%A9)
+- **البيجر وممداني وتركيا.. رسائل نتنياهو أمام الأمم المتحدة**: [Link](https://www.skynewsarabia.com/world/1894269-%D8%A7%D9%84%D8%A8%D9%8A%D8%AC%D8%B1-%D9%88%D9%85%D9%85%D8%AF%D8%A7%D9%86%D9%8A-%D9%88%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%B1%D8%B3%D8%A7%D8%A6%D9%84-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9)
+
+
+### portugal match (N/A, Thu, 24 Sep 2026 13:00:00 -0700)
+
+- **Cristiano Ronaldo: 1,000-goal target and Portugal ambition fuel football icon**: [Link](https://www.bbc.com/sport/football/articles/ck4glyl0nwd6o)
+- **"Critics been trying to kill me; I want to win Nations League, complete 1000 goals": Cristiano Ronaldo**: [Link](https://www.indiagazette.com/news/279327375/critics-been-trying-to-kill-me-i-want-to-win-nations-league-complete-1000-goals-cristiano-ronaldo)
+- **Ronaldo says considered retirement from international soccer after World Cup exit**: [Link](https://www.ynetnews.com/sport/article/b1lov3zcgl)
+
+
+### portugal vs (N/A, Thu, 24 Sep 2026 12:00:00 -0700)
+
+- **Portugal 1-0 Wales: Joao Felix strike earns Nations League win over Craig Bellamy's side**: [Link](https://www.bbc.com/sport/football/live/cqrk31vz1xjxt)
+- **Ronaldo Leads Portugal Lineup Against Wales in UEFA Nations League**: [Link](https://koorabreak.com/en/341212/)
+- **Portugal vs Wales predictions: Hosts to win by two goals or more**: [Link](https://www.goal.com/en-in/betting/tips/portugal-vs-wales-predictions-25-09-2026/A%3Abltc352ac8f7ebbf08a)
+
+
 ### portugal fc (N/A, Thu, 24 Sep 2026 13:40:00 -0700)
 
 - **Santa Clara visita Mafra na 3.ª eliminatória da Taça de Portugal**: [Link](https://www.acorianooriental.pt/noticia/santa-clara-visita-mafra-na-3-a-eliminatoria-da-taca-de-portugal-380575)
