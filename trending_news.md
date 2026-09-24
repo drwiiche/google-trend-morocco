@@ -1,3 +1,31 @@
+### snrt (N/A, Wed, 23 Sep 2026 18:40:00 -0700)
+
+- **Sahara, Palestine, groupes armés, Afrique, climat… ce qu’il faut retenir du discours de Bourita à l’ONU**: [Link](https://medias24.com/2026/09/23/sahara-palestine-groupes-armes-afrique-climat-ce-quil-faut-retenir-du-discours-de-bourita-a-lonu-1762217/)
+- **ONU : Bourita énonce six principes sur le Sahara et confirme la candidature du Maroc au Conseil de sécurité**: [Link](https://ledesk.ma/2026/09/23/onu-bourita-enonce-six-principes-sur-le-sahara-et-confirme-la-candidature-du-maroc-au-conseil-de-securite/)
+- **La question palestinienne reste une “priorité constante” de la politique étrangère du Maroc, affirme Bourita**: [Link](https://mobile.telquel.ma/instant-t/2026/09/23/la-question-palestinienne-reste-une-priorite-constante-de-la-politique-etrangere-du-maroc-affirme-bourita_2009102/)
+
+
+### فاطمة الزهراء المنصوري (N/A, Wed, 23 Sep 2026 18:00:00 -0700)
+
+- **المنصوري تعرض أولويات برنامج "البام"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D8%AA%D8%B9%D8%B1%D8%B6-%D8%A3%D9%88%D9%84%D9%88%D9%8A%D8%A7%D8%AA-%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D8%A8%D8%A7%D9%85-1811257.html)
+- **عمالة مراكش: منسقة القيادة الجماعية للأمانة العامة لحزب الأصالة والمعاصرة تدلي بصوتها في الانتخابات التشريعية**: [Link](https://2m.ma/ar/news/%D8%B9%D9%85%D8%A7%D9%84%D8%A9-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D9%85%D9%86%D8%B3%D9%82%D8%A9-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A%D8%A9-%D9%84%D9%84%D8%A3%D9%85%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%A3%D8%B5%D8%A7%D9%84%D8%A9-20260923)
+- **المنصوري تدلي بصوتها في الانتخابات التشريعية بمراكش -فيديو**: [Link](https://ar.lesiteinfo.com/maroc/%D9%81%D8%A7%D8%B7%D9%85%D8%A9-%D8%A7%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D8%AA%D8%AF%D9%84%D9%8A-%D8%A8%D8%B5%D9%88%D8%AA%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE-1022221.html)
+
+
+### رئيس الحكومة المغربية (N/A, Wed, 23 Sep 2026 17:30:00 -0700)
+
+- **شوكي: المسؤولية الحكومية ليست "أرخبيلاً".. ولقجع دعم استيراد المواشي**: [Link](https://www.hespress.com/%D8%B4%D9%88%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D9%84%D9%8A%D8%B3%D8%AA-%D8%A3%D8%B1%D8%AE%D8%A8%D9%8A%D9%84%D8%A7-1811235.html)
+- **شوكي: الناخبون سيختارون البرامج والمرشحين الأفضل للفترة 2026-2031**: [Link](https://www.ahdath.info/%D8%B4%D9%88%D9%83%D9%8A-%D8%A7%D9%84%D9%86%D8%A7%D8%AE%D8%A8%D9%88%D9%86-%D8%B3%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1%D9%88%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D9%85%D8%AC-%D9%88%D8%A7%D9%84%D9%85%D8%B1/)
+- **مورو من تطوان: المرحلة المقبلة تتطلب استمرارية الأوراش التنموية**: [Link](https://ledesk.ma/arabia/%D9%85%D9%88%D8%B1%D9%88-%D9%85%D9%86-%D8%AA%D8%B7%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9-%D8%AA%D8%AA%D8%B7%D9%84%D8%A8-%D8%A7%D8%B3/)
+
+
+### الحركة الشعبية (N/A, Wed, 23 Sep 2026 16:50:00 -0700)
+
+- **أبرزهم أوزين وريم شباط .. "الحركة الشعبية" تؤكد فوز 18 من المرشحين**: [Link](https://www.hespress.com/%D8%A3%D8%A8%D8%B1%D8%B2%D9%87%D9%85-%D8%A3%D9%88%D8%B2%D9%8A%D9%86-%D9%88%D8%B1%D9%8A%D9%85-%D8%B4%D8%A8%D8%A7%D8%B7-%D8%A7%D9%84%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D9%8A-1812617.html)
+- **أوزين واشقيق برلمانيان عن إفران**: [Link](https://www.hespress.com/%D8%A3%D9%88%D8%B2%D9%8A%D9%86-%D9%88%D8%A7%D8%B4%D9%82%D9%8A%D9%82-%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7%D9%86-%D8%B9%D9%86-%D8%A5%D9%81%D8%B1%D8%A7%D9%86-1812629.html)
+- **نتائج أولية.. "الحركة الشعبية" يحصد 12 مقعداً وريم شباط تحجز مقعدها بفاس**: [Link](https://madar21.com/455097.html)
+
+
 ### شيرين (N/A, Wed, 23 Sep 2026 16:40:00 -0700)
 
 - **بظهور عفوي مع ابنتها هنا.. شيرين عبد الوهاب تتصدر الترند**: [Link](https://www.alarabiya.net/culture-and-art/2026/09/23/%D8%B4%D9%8A%D8%B1%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%88%D9%87%D8%A7%D8%A8-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%B3%D9%88%D8%B4%D9%8A%D8%A7%D9%84-%D9%85%D9%8A%D8%AF%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%B8%D9%87%D9%88%D8%B1%D9%87%D8%A7-%D9%85%D8%B9-%D8%A7%D8%A8%D9%86%D8%AA%D9%87%D8%A7-%D9%87%D9%86%D8%A7)
