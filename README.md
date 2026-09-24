@@ -1,3 +1,73 @@
+### portugal fc (N/A, Thu, 24 Sep 2026 13:40:00 -0700)
+
+- **Santa Clara visita Mafra na 3.ª eliminatória da Taça de Portugal**: [Link](https://www.acorianooriental.pt/noticia/santa-clara-visita-mafra-na-3-a-eliminatoria-da-taca-de-portugal-380575)
+- **Presidente do Lamelas e o sorteio da Taça: «É um marco para o nosso clube»**: [Link](https://www.record.pt/futebol/futebol-nacional/taca-de-portugal/amp/presidente-do-lamelas-e-o-sorteio-da-taca-e-um-marco-para-o-nosso-clube)
+- **União de Leiria recebe GD Bragança na terceira eliminatória da Taça de Portugal**: [Link](https://www.regiaodeleiria.pt/2026/09/uniao-de-leiria-recebe-gd-braganca-na-terceira-eliminatoria-da-taca-de-portugal/)
+
+
+### cristiano ronaldo (N/A, Thu, 24 Sep 2026 13:40:00 -0700)
+
+- **Cristiano Ronaldo plays a particularly unfortunate leading role for Portugal, phenomenal Erling Haaland shows Norway the way**: [Link](https://www.goal.com/en/news/cristiano-ronaldo-plays-a-particularly-unfortunate-leading-role-for-portugal-phenomenal-erling-haaland-shows-norway-the-way/blt50723e99294e0269)
+- **How far is Cristiano Ronaldo from 1,000 goals after Portugal’s 2026-27 UEFA Nations League debut?**: [Link](https://worldsoccertalk.com/news/how-far-is-cristiano-ronaldo-from-1000-goals-after-portugals-2026-27-uefa-nations-league-debut/)
+- **Cristiano Ronaldo left devastated after Portugal goal vs Wales is ruled out**: [Link](https://www.the-sun.com/sport/17054854/cristiano-ronaldo-portugal-goal-ruled-out-wales-nations-league/)
+
+
+### تونس ضد أوغندا (N/A, Thu, 24 Sep 2026 12:50:00 -0700)
+
+- **مباشر مباراة تونس ضد أوغندا في تصفيات كأس أمم أفريقيا 2027. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/24/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027)
+- **غيث الزعلوني يتلقى مفاجأة سارة بعد استبعاده من قائمة منتخب تونس**: [Link](https://www.eremnews.com/sports/zt3ma33)
+- **التشكيلة المحتملة للمنتخب الوطني في مواجهة أوغندا**: [Link](https://espacemanager.com/ar/%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AD%D8%AA%D9%85%D9%84%D8%A9-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%81%D9%8A-%D9%85-2/)
+
+
+### فيرجيل فان دايك (N/A, Thu, 24 Sep 2026 12:40:00 -0700)
+
+- **شاهد.. فان دايك ينفجر في وجه صحفي اتهمه بتدمير الكرة الهولندية**: [Link](https://www.aljazeera.net/sport/2026/9/24/%D8%B4%D8%A7%D9%87%D8%AF-%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%8A%D9%86%D9%81%D8%AC%D8%B1-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%B5%D8%AD%D9%81%D9%8A-%D8%A7%D8%AA%D9%87%D9%85%D9%87)
+- **"كأنه في حالة حرب وحتى تشافي كان مندهشًا منه" .. انتقادات لتصرفات فيرجيل فان دايك بالمؤتمر الصحفي قبل مواجهة هولندا وألمانيا**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%81%D9%8A%D8%B1%D8%AC%D9%8A%D9%84-%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/blt174f11fb1531d055)
+- **فان دايك يرفض الانتقادات بعد خروج هولندا من المونديال**: [Link](https://www.elsport.com/news/show/841063/%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B1%D9%88%D8%AC-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### younes ebnoutalib (N/A, Thu, 24 Sep 2026 12:30:00 -0700)
+
+- **First Germany call-ups: “A childhood dream come true”**: [Link](https://www.dfb.de/news/first-germany-call-ups-a-childhood-dream-come-true)
+- **🐣 This week's wonderkid: Younes Ebnoutalib 🇩🇪**: [Link](https://sports.yahoo.com/articles/weeks-wonderkid-younes-ebnoutalib-131700919.html)
+- **Per report, potential future No. 1 Noah Atubolu will be nominated for Jürgen Klopp’s Germany**: [Link](https://www.bavarianfootballworks.com/germany-international-soccer/257360/per-report-potential-future-no-1-noah-atubolu-will-be-nominated-for-jurgen-klopps-germany-jonas-urbig-dennis-seimen-manuel-neuer-marc-andre-ter-stegen-mio-backhaus)
+
+
+### cameroun – comores (N/A, Thu, 24 Sep 2026 12:00:00 -0700)
+
+- **Éliminatoires CAN : Premier test pour le Cameroun de Pagou**: [Link](https://chretiens.com/actualites/eliminatoires-can-premier-test-pour-le-cameroun-de-pagou/2026/09/24/12/17/)
+- **Lions Indomptables : Bryan Mbeumo officiellement nommé nouveau capitaine**: [Link](https://camerounactuel.com/lions-indomptables-bryan-mbeumo-officiellement-nomme-nouveau-capitaine/)
+- **Voici le 11 entrant des lions indomptables contre le Comores**: [Link](https://actucameroun.com/2026/09/24/voici-le-11-entrant-des-lions-indomptables-contre-le-comores/)
+
+
+### tunisie – ouganda (N/A, Thu, 24 Sep 2026 11:50:00 -0700)
+
+- **La Tunisie, le Maroc et l’Algérie se tournent vers la CAN 2027**: [Link](https://www.beurfm.net/la-tunisie-le-maroc-et-l-algerie-se-tournent-vers-la-can-2027)
+- **Tunisie. Football : Chaâbani face au premier test, entre reconstruction et retour aux anciens**: [Link](https://www.lecourrierdelatlas.com/tunisie-football-chaabani-face-au-premier-test-entre-reconstruction-et-retour-aux-anciens/)
+- **Ferjani Sassi remplace Aïssa Laïdouni face à l'Ouganda**: [Link](https://www.mosaiquefm.net/fr/football/1531342/ferjani-sassi-remplace-aissa-laidouni-face-a-l-ouganda)
+
+
+### عبد الحميد آيت بودلال (N/A, Thu, 24 Sep 2026 11:50:00 -0700)
+
+- **ارتفاع القيمة السوقية لثلاثة أسود**: [Link](https://www.ahdath.info/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D9%82%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D9%82%D9%8A%D8%A9-%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A9-%D8%A3%D8%B3%D9%88%D8%AF/)
+- **تألق لافت في "الليغ 1".. القيمة السوقية للمغربي آيت بودلال تقفز إلى 20 مليون أورو**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%A3%D9%84%D9%82-%D9%84%D8%A7%D9%81%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA-1-%D8%A7%D9%84%D9%82%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D9%82%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A2%D9%8A%D8%AA-%D8%A8%D9%88%D8%AF%D9%84%D8%A7%D9%84-%D8%AA%D9%82%D9%81%D8%B2-%D8%A5%D9%84%D9%89-20-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%A3%D9%88%D8%B1%D9%88/25735)
+- **قفزة قوية في قيمة ثنائي المنتخب المغربي.**: [Link](https://sabahagadir.ma/486409.html)
+
+
+### portugal (N/A, Thu, 24 Sep 2026 11:40:00 -0700)
+
+- **Portugal-País de Gales: era Jorge Jesus começa com caras conhecidas**: [Link](https://www.abola.pt/futebol/jogo/portugal-pais-de-gales-8394776/liveblog)
+- **Edital nº66 Deliberações da reunião de Câmara de 21 de setembro**: [Link](https://sapo.pt/artigo/edital-n-66-deliberacoes-da-reuniao-de-camara-de-21-de-setembro-6ab566621c8a1615618f4f4c)
+- **Do festejo anulado ao míster Jesus. O que não viu na TV do Portugal-Gales**: [Link](https://www.noticiasaominuto.com/desporto/3057002/do-festejo-anulado-ao-mister-jesus-o-que-nao-viu-na-tv-do-portugal-gales)
+
+
+### éliminatoires de la can (N/A, Thu, 24 Sep 2026 11:40:00 -0700)
+
+- **Nigéria : Victor Osimhen forfait pour les premiers matchs de qualification pour la CAN 2027**: [Link](https://www.footmercato.net/a7096191751541431033-nigeria-victor-osimhen-forfait-pour-les-premiers-matchs-de-qualification-pour-la-can-2027)
+- **Nigeria – Madagascar : Akor Adams appelle à l’optimisme**: [Link](https://africafoot.com/nigeria-madagascar-akor-adams-appelle-a-loptimisme/)
+- **TÉLÉVISION - Les matchs des Barea sur Canal+**: [Link](https://www.lexpress.mg/2026/09/television-les-matchs-des-barea-sur.html)
+
+
 ### برلمان (N/A, Thu, 24 Sep 2026 10:50:00 -0700)
 
 - **الفنانة وشاي تضمن مقعدا برلمانيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D9%88%D8%B4%D8%A7%D9%8A-%D8%AA%D8%B6%D9%85%D9%86-%D9%85%D9%82%D8%B9%D8%AF%D8%A7-%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-1812804.html)
