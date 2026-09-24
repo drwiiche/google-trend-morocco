@@ -1,3 +1,50 @@
+### sénégal – mozambique (N/A, Thu, 24 Sep 2026 06:10:00 -0700)
+
+- **Mozambique-Sénégal : où regarder le match des éliminatoires de la CAN 2027 ?**: [Link](https://www.afrik-foot.com/mozambique-senegal-ou-regarder-le-match-des-eliminatoires-de-la-can-2027)
+- **Capitaine des Lions : Vieira hésite entre un attaquant et un milieu**: [Link](https://sanslimitesn.com/capitaine-des-lions-vieira-hesite-entre-un-attaquant-et-un-milieu/)
+- **Éliminatoires CAN 2027 : le bilan des confrontations directes entre le Sénégal et le Mozambique**: [Link](https://foot-africa.com/actualites/liminatoires-can-2027-le-bilan-des-confrontations-directes-entre-le-senegal-et-le-mozambique-1363232/)
+
+
+### صفرو (N/A, Thu, 24 Sep 2026 05:50:00 -0700)
+
+- **لخصم يكتسح الانتخابات في صفرو**: [Link](https://www.hespress.com/%D9%84%D8%AE%D8%B5%D9%85-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%B5%D9%81%D8%B1%D9%88-1812454.html)
+- **رئيس جماعة اموزار لخصم يكتسح انتخابات دائرة صفرو**: [Link](https://2m.ma/ar/news/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%AC%D9%85%D8%A7%D8%B9%D8%A9-%D8%A7%D9%85%D9%88%D8%B2%D8%A7%D8%B1-%D9%84%D8%AE%D8%B5%D9%85-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%AF%D8%A7%D8%A6%D8%B1%D8%A9-%D8%B5%D9%81%D8%B1%D9%88-20260924)
+- **مصطفى لخصم يتصدر النتائج الأولية للانتخابات التشريعية بإقليم صفرو – اليوم 24**: [Link](https://alyaoum24.com/2046120.html)
+
+
+### japon – uruguay (N/A, Thu, 24 Sep 2026 05:30:00 -0700)
+
+- **Japan vs Uruguay: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c3dx0d7yd2g4t)
+- **Japan vs Uruguay Predictions, Picks & Odds – 24/09/2026**: [Link](https://www.toffeeweb.com/ng/japan-vs-uruguay-predictions-picks-odds-24-09-2026/)
+- **Japan v Uruguay Prediction: 7/4 hosts to blunt Forlan's visitors**: [Link](https://news.bet365.com/en-gb/article/football-japan-uruguay-prediction-and-tips/2026092311170791143)
+
+
+### groupe ocp (N/A, Thu, 24 Sep 2026 05:10:00 -0700)
+
+- **L'Événement Maroc Départs en cascade chez Groupe OCP**: [Link](https://www.africaintelligence.fr/afrique-du-nord/2026/09/24/departs-en-cascade-chez-groupe-ocp,110882408-eve)
+- **Hicham El Habti nommé secrétaire général d’OCP pour orchestrer le Corporate**: [Link](https://ledesk.ma/enoff/hicham-el-habti-nomme-secretaire-general-docp-pour-orchestrer-le-corporate/)
+- **Maroc : le géant OCP poursuit sa réorganisation dans un contexte de chocs géopolitiques**: [Link](https://www.jeuneafrique.com/1845870/economie-entreprises/maroc-le-geant-ocp-poursuit-sa-reorganisation-dans-un-contexte-de-chocs-geopolitiques/)
+
+
+### fatima zahra mansouri (N/A, Thu, 24 Sep 2026 00:20:00 -0700)
+
+- **Marrakech : le PAM de Fatima Ezzahra El Mansouri tient bon, le RNI rayé de la carte**: [Link](https://ledesk.ma/live-content/marrakech-le-pam-de-fatima-ezzahra-el-mansouri-tient-bon-le-rni-raye-de-la-carte/)
+- **Le Maroc est-il prêt à voir Mohammed VI nommer une femme à la tête du gouvernement ?**: [Link](https://www.jeuneafrique.com/1845067/politique/le-maroc-est-il-pret-a-voir-mohammed-vi-nommer-une-femme-a-la-tete-du-gouvernement/)
+- **Diapo. Fatima-Zahra Mansouri a voté à Marrakech**: [Link](https://fr.le360.ma/politique/diapo-fatima-zahra-mansouri-a-vote-a-marrakech_BLOMEAWHAJEXNKEB5OM5VXQOVA/)
+
+
+### akhbarona (N/A, Wed, 23 Sep 2026 22:10:00 -0700)
+
+
+
+
+### medias24 (N/A, Wed, 23 Sep 2026 19:40:00 -0700)
+
+- **Alliances post-électorales : les lignes rouges des partis, exprimés avant les résultats**: [Link](https://medias24.com/2026/09/24/alliances-post-electorales-les-lignes-rouges-des-partis-exprimes-avant-les-resultats-1759131/)
+- **Alliances post-électorales : les lignes rouges des partis, exprimés avant les résultats**: [Link](https://medias24.com/m24-evenement/soiree-electorale-2026/?article=alliances-post-electorales-les-lignes-rouges-des-partis-exprimes-avant-les-resultats)
+- **Numéro un de l'information économique marocaine**: [Link](https://medias24.com/?article=a-settat-la-surprise-de-la-pomme-en-tete)
+
+
 ### وهبي (N/A, Thu, 24 Sep 2026 01:10:00 -0700)
 
 - **السيد محمد وهبي يوجه الدعوة إلى إلياس أخوماش**: [Link](https://frmf.ma/articles/coach-ouahbi-fait-appel-a-akhomach)
