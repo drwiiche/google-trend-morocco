@@ -1,3 +1,43 @@
+### وهبي (N/A, Thu, 24 Sep 2026 01:10:00 -0700)
+
+- **السيد محمد وهبي يوجه الدعوة إلى إلياس أخوماش**: [Link](https://frmf.ma/articles/coach-ouahbi-fait-appel-a-akhomach)
+- **وهبي يكافئ نجم المغرب.. ويستعد لاستبعاد إبراهيم دياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%83%D8%A7%D9%81%D9%8A%D9%94-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D9%88%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2/blt3a02d0e7939872cc)
+- **وهبي يستدعي أخوماش إلى المنتخب**: [Link](https://www.hespress.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%A3%D8%AE%D9%88%D9%85%D8%A7%D8%B4-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-1811754.html)
+
+
+### المنصوري (N/A, Thu, 24 Sep 2026 00:40:00 -0700)
+
+- **منصوري آخر صفقات بركان**: [Link](https://assabah.ma/951011.html)
+- **نهضة بركان يتعاقد مع عمر المنصوري**: [Link](https://www.hespress.com/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D9%88%D9%82%D8%B9-%D9%85%D8%B9-%D8%B9%D9%85%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-1811565.html)
+- **بالتراضي.. ضمك يفك ارتباط حركاس**: [Link](https://arriyadiyah.com/900393/%D8%A8%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%B6%D9%8A..-%D8%B6%D9%85%D9%83-%D9%8A%D9%81%D9%83-%D8%A7%D8%B1%D8%AA%D8%A8%D8%A7%D8%B7-%D8%AD%D8%B1%D9%83%D8%A7%D8%B3)
+
+
+### لقجع (N/A, Wed, 23 Sep 2026 23:00:00 -0700)
+
+- **"ترانسبرانسي" تسائل لقجع عن 280 مليار**: [Link](https://www.hespress.com/%D8%AA%D8%B1%D8%A7%D9%86%D8%B3%D8%A8%D8%B1%D8%A7%D9%86%D8%B3%D9%8A-%D8%AA%D8%B3%D8%A7%D8%A6%D9%84-%D9%84%D9%82%D8%AC%D8%B9-%D8%B9%D9%86-280-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-1811113.html)
+- **280 مليار "بدون فائدة"**: [Link](https://thevoice.ma/%D9%84%D9%87%D9%84%D8%A7-%D9%8A%D9%92%D8%AE%D9%8E%D9%8A%D9%8E%D9%91%D8%B1%D9%86%D8%A7-%D9%81-%D8%A7%D8%B6%D8%B1%D8%A7%D8%B1/)
+- **ورطة لقجع.. "البام" فتح له منصة الخطابة السياسية، فوجد نفسه أمام أسئلة المال العام**: [Link](https://le12.ma/%D9%88%D8%B1%D8%B7%D8%A9-%D9%84%D9%82%D8%AC%D8%B9-%D8%A7%D9%84%D8%A8%D8%A7%D9%85-%D9%81%D8%AA%D8%AD-%D9%84%D9%87-%D9%85%D9%86%D8%B5%D8%A9-%D8%A7%D9%84%D8%AE%D8%B7%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84/)
+
+
+### حزب اخنوش (N/A, Wed, 23 Sep 2026 22:40:00 -0700)
+
+- **شوكي: الناخبون سيختارون البرامج والمرشحين الأفضل للفترة 2026-2031**: [Link](https://www.ahdath.info/%D8%B4%D9%88%D9%83%D9%8A-%D8%A7%D9%84%D9%86%D8%A7%D8%AE%D8%A8%D9%88%D9%86-%D8%B3%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1%D9%88%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D9%85%D8%AC-%D9%88%D8%A7%D9%84%D9%85%D8%B1/)
+- **شوكي: المسؤولية الحكومية ليست "أرخبيلاً".. ولقجع دعم استيراد المواشي**: [Link](https://www.hespress.com/%D8%B4%D9%88%D9%83%D9%8A-%D8%A7%D9%84%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D9%84%D9%8A%D8%B3%D8%AA-%D8%A3%D8%B1%D8%AE%D8%A8%D9%8A%D9%84%D8%A7-1811235.html)
+- **مورو من تطوان: المرحلة المقبلة تتطلب استمرارية الأوراش التنموية**: [Link](https://ledesk.ma/arabia/%D9%85%D9%88%D8%B1%D9%88-%D9%85%D9%86-%D8%AA%D8%B7%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9-%D8%AA%D8%AA%D8%B7%D9%84%D8%A8-%D8%A7%D8%B3/)
+
+
+### pam maroc (N/A, Wed, 23 Sep 2026 15:40:00 -0700)
+
+- **Numéro un de l'information économique marocaine**: [Link](https://medias24.com/?article=oujda-omar-hejira-elu)
+- **Législatives 2026 : le PAM en tête avec 97 sièges**: [Link](https://fr.hespress.com/489715-legislatives-2026-le-pam-en-tete-avec-97-sieges.html)
+- **Législatives 2026: Le taux de participation atteint 38,02 %**: [Link](https://www.lavieeco.com/au-royaume/legislatives-2026-le-taux-de-participation-atteint-3802/)
+
+
+### النتائج الاولية للانتخابات التشريعية 2026 (N/A, Wed, 23 Sep 2026 15:00:00 -0700)
+
+
+
+
 ### snrt (N/A, Wed, 23 Sep 2026 18:40:00 -0700)
 
 - **Sahara, Palestine, groupes armés, Afrique, climat… ce qu’il faut retenir du discours de Bourita à l’ONU**: [Link](https://medias24.com/2026/09/23/sahara-palestine-groupes-armes-afrique-climat-ce-quil-faut-retenir-du-discours-de-bourita-a-lonu-1762217/)
