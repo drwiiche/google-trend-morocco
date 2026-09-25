@@ -1,3 +1,73 @@
+### مباراة المغرب (N/A, Fri, 25 Sep 2026 10:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة المغرب والجابون في تصفيات كأس أمم أفريقيا 2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%A7%D8%A8%D9%88%D9%86-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt750eaad3121ed69b)
+- **مباشر مباراة المغرب ضد الغابون في تصفيات كأس أمم أفريقيا 2027.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/25/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-%D9%83%D8%A3%D8%B3)
+- **المنتخب المغربي يجهز لملاقاة الغابون**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AC%D9%87%D8%B2-%D9%84%D9%85%D9%84%D8%A7%D9%82%D8%A7%D8%A9-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-1813161.html)
+
+
+### morocco vs (N/A, Fri, 25 Sep 2026 10:40:00 -0700)
+
+- **Morocco vs Gabon: When and where to watch 2027 AFCON qualifier**: [Link](https://en.hespress.com/146135-morocco-vs-gabon-when-and-where-to-watch-2027-afcon-qualifier.html)
+- **AFCON 2027 Qualifiers: Morocco Host Gabon in Group A Opener**: [Link](https://www.maroc.ma/en/news/afcon-2027-qualifiers-morocco-host-gabon-group-opener)
+- **Wahbi rewards Morocco's star: and prepares to drop Brahim Diaz**: [Link](https://www.goal.com/en/news/wahbi-rewards-morocco-s-star-and-prepares-to-drop-brahim-diaz/blt3a02d0e7939872cc)
+
+
+### maroc vs gabon (N/A, Fri, 25 Sep 2026 09:50:00 -0700)
+
+- **CAN 2027. Maroc-Gabon, des retrouvailles tant attendues**: [Link](https://medias24.com/2026/09/25/can-2027-maroc-gabon-des-retrouvailles-tant-attendues-1765221/)
+- **Dernier entrainement avant le match face au Gabon**: [Link](https://frmf.ma/fr/articles/derniers-reglages-avant-le-gabon)
+- **Maroc-Gabon : voici la composition probable des Lions de l’Atlas**: [Link](https://maroc-diplomatique.net/maroc-gabon-voici-la-composition-probable-des-lions-de-latlas/)
+
+
+### abdelali benamour (N/A, Fri, 25 Sep 2026 09:50:00 -0700)
+
+- **Décès de Abdelali Benamour, fondateur de HEM et ancien président du Conseil de la concurrence**: [Link](https://medias24.com/2026/09/25/deces-de-abdelali-benamour-fondateur-de-hem-et-ancien-president-du-conseil-de-la-concurrence-1765049/)
+- **Décès du Professeur Abdelali Benamour, fondateur de HEM**: [Link](https://lematin.ma/enseignement/deces-du-professeur-abdelali-benamour-fondateur-de-hem/367003)
+- **Décès d’Abdelali Benamour, l’économiste qui voulait donner des dents au Conseil de la concurrence**: [Link](https://fr.le360.ma/societe/deces-dabdelali-benamour-leconomiste-qui-voulait-donner-des-dents-au-conseil-de-la-concurrence_YNBATS2W3RCVDLG2JZ7QHGOSSE/)
+
+
+### هطول (N/A, Fri, 25 Sep 2026 09:10:00 -0700)
+
+- **حالة الطقس : هطول أمطار رعدية متفرقة خلال اليوم**: [Link](https://althawrah.ye/archives/1242146)
+- **الأرصاد يتوقع أمطاراً رعدية غزيرة ويحذر من السيول والرياح الشديدة**: [Link](https://alwahdawi.net/news-40029)
+- **تحذيرات جوية: طقس رطب وحار مع أمطار رعدية ورياح نشطة**: [Link](https://www.almontasaf.net/news149376.html)
+
+
+### nigeria – madagascar (N/A, Fri, 25 Sep 2026 09:00:00 -0700)
+
+- **!+[𝐒𝐓ream]HERE'S*! Nigeria vs Madagascar 𝐋𝐈𝐕𝐄 ｏｎｌｉｎｅ 24 September 2026**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz4KICA8aW5jbHVkZSB1cmw9Ii8vZnVybmRlbjEyNS5naXRodWIuaW8vc29iYS9oYWdhLnhtbCIvPgo8L2tycGFubz4=&id=video-Nigeria-Madagascar-live07)
+- **Ndidi Vows Super Eagles Won’t Repeat Old Mistakes**: [Link](https://therealmediang.com/sports/ndidi-vows-super-eagles-wont-repeat-old-mistakes)
+- **Osimhen, Kudus, Mané: 10 African stars missing as AFCON 2027 qualifiers heat up**: [Link](https://www.afrik-foot.com/en-ng/osimhen-kudus-mane-africa-afcon-qualifier)
+
+
+### match aujourd'hui (N/A, Fri, 25 Sep 2026 08:40:00 -0700)
+
+- **Coupable : City serait en infraction sur près de 115 règles financières**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/premier-league-i-manchester-city-reconnu-coupable-davoir-enfreint-pres-de-115-regles-financieres-medias_sto23340299/story.shtml)
+- **Manchester City reconnu coupable de 114 infractions financières aux règles de régulation de la Premier League**: [Link](https://www.lequipe.fr/Football/Actualites/Manchester-city-reconnu-coupable-de-114-infractions-financieres-aux-regles-de-regulation-de-la-premier-league/1721185)
+- **Contrats bidons, salaires gonflés et omerta…que reproche-t-on vraiment à Manchester City ?**: [Link](https://www.footmercato.net/a457849933587584919-contrats-bidons-salaires-gonfles-et-omerta-que-reproche-t-on-vraiment-a-manchester-city)
+
+
+### الجزائر (N/A, Fri, 25 Sep 2026 08:30:00 -0700)
+
+- **سفير جزائري سابق يتهم الإمارات بمحاولة إبعاد موريتانيا عن الجزائر وإدخالها في فلك التطبيع وينتقد "غموض موقف نواكشوط"**: [Link](https://www.alquds.co.uk/%D8%B3%D9%81%D9%8A%D8%B1-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D8%AA%D9%87%D9%85-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A8%D9%85%D8%AD%D8%A7%D9%88%D9%84/)
+- **محاولات يائسة من نظام المغرب للتشويش على علاقات الجزائر بموريتانيا – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D9%8A%D8%A7%D8%A6%D8%B3%D8%A9-%D9%85%D9%86-%D9%86%D8%B8%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%84%D8%AA%D8%B4%D9%88%D9%8A%D8%B4-%D8%B9)
+- **فيديو : وزير التجهيز الموريتاني: اتفاقية تهيئة الطريق الحدودي مع المغرب تاريخية**: [Link](https://www.medi1tv.com/ar/reportage/409013/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%AC%D9%87%D9%8A%D8%B2-%D8%A7%D9%84%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D9%87%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9)
+
+
+### maroc vs (N/A, Fri, 25 Sep 2026 06:40:00 -0700)
+
+- **Maroc vs Sénégal au TAS : le 8 octobre, ultime audience avant la sentence**: [Link](https://medias24.com/2026/09/23/maroc-vs-senegal-au-tas-le-8-octobre-ultime-audience-avant-la-sentence-1762491/)
+- **CAN 2027. Maroc-Gabon, des retrouvailles tant attendues**: [Link](https://medias24.com/2026/09/25/can-2027-maroc-gabon-des-retrouvailles-tant-attendues-1765221/)
+- **Dernier entrainement avant le match face au Gabon**: [Link](https://frmf.ma/fr/articles/derniers-reglages-avant-le-gabon)
+
+
+### classement fifa (N/A, Fri, 25 Sep 2026 06:40:00 -0700)
+
+- **Le Maroc se hisse à la 5e place mondiale du classement FIFA et égale un record continental**: [Link](https://medias24.com/2026/09/25/le-maroc-se-hisse-a-la-5e-place-mondiale-du-classement-fifa-et-egale-un-record-continental-1765303/)
+- **Classement FIFA: le Maroc grimpe à la 5e place mondiale après le nul du Brésil face à l’Australie**: [Link](https://sport.le360.ma/football/lions-atlas/classement-fifa-le-maroc-grimpe-a-la-5e-place-mondiale-apres-le-nul-du-bresil-face-a-laustralie_YWQIJD474BHGPNAO4LO54B34QQ/)
+- **Classement FIFA : le Maroc s’installe dans le Top 5 mondial**: [Link](https://radiomars.ma/fr/?p=6336)
+
+
 ### fifa ranking (N/A, Fri, 25 Sep 2026 05:40:00 -0700)
 
 - **Portugal 1-0 Wales (Sep 24, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401861044)
