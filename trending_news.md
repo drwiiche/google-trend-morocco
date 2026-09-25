@@ -1,3 +1,71 @@
+### fifa ranking (N/A, Fri, 25 Sep 2026 05:40:00 -0700)
+
+- **Portugal 1-0 Wales (Sep 24, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401861044)
+- **João Félix strike for Portugal enough to sink Wales but Ronaldo fever falls flat**: [Link](https://www.theguardian.com/football/2026/sep/24/portugal-wales-nations-league-match-report)
+- **Portugal vs Wales: UEFA Nations League – teams, start, lineups, Ronaldo**: [Link](https://www.aljazeera.com/sports/2026/9/23/portugal-vs-wales-uefa-nations-league-teams-start-lineups)
+
+
+### mozambique – sénégal (N/A, Fri, 25 Sep 2026 05:30:00 -0700)
+
+- **++[ＬＩＶＥＳｔｒｅａｍ]NOW!!] Kaizer Chiefs vs Polokwane LIVE Updates**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2R1a2Vucmd5MTQ3LmdpdGh1Yi5pby9uZXdzLyIvPjwva3JwYW5vPg==&id=local-mozambique-senegal-en-direct-tv-25827817)
+- **« On parle de Manio Sané » : quand Patrick Vieira écorche le nom de Sadio Mané et subit ses premières critiques au Sénégal**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/on-parle-de-manio-sane-quand-patrick-vieira-ecorche-le-nom-de-sadio-mane-et-subit-ses-premieres-critiques-au-senegal-25-09-2026-NMHB2RL2LRA5BOPEW53L5GY26I.php)
+- **OL : "La Coupe du monde a été un échec", Moussa Niakhaté veut tourner la page**: [Link](https://www.lyonfoot.com/article/14298/ol-la-coupe-du-monde-a-ete-un-echec-moussa-niakhate-veut-tourner-la-page)
+
+
+### جواز سفر مزور (N/A, Fri, 25 Sep 2026 04:50:00 -0700)
+
+- **"جواز مزور" بحوزة مغربي في باكو**: [Link](https://www.hespress.com/%D8%AC%D9%88%D8%A7%D8%B2-%D9%85%D8%B2%D9%88%D8%B1-%D8%A8%D8%AD%D9%88%D8%B2%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A8%D8%A7%D9%83%D9%88-1812218.html)
+- **جواز مزور نحو فرنسا ينتهي بسجن مغربي في أذربيجان**: [Link](https://sabahagadir.ma/486485.html)
+- **تزوير جواز سفر مغربي في أذربيجان: تفاصيل اعتقال مواطن في مطار باكو**: [Link](https://aljareeda.net/93582-%D8%AA%D8%B2%D9%88%D9%8A%D8%B1-%D8%AC%D9%88%D8%A7%D8%B2-%D8%B3%D9%81%D8%B1-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A-%D8%A3%D8%B0%D8%B1%D8%A8%D9%8A%D8%AC%D8%A7%D9%86-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A.html)
+
+
+### ناصر بوريطة (N/A, Fri, 25 Sep 2026 02:40:00 -0700)
+
+- **بوريطة يذكر إسبانيا بإعادة مهاجرين**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D9%8A%D8%B0%D9%83%D8%B1-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D9%85%D9%87%D8%A7%D8%AC%D8%B1%D9%8A%D9%86-1813269.html)
+- **بوريطة يجتمع بوزير الخارجية الإسباني في نيويورك في أول لقاء بعد أزمة الهجرة**: [Link](https://ar.telquel.ma/%D8%A8%D9%88%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D8%B9%D9%84%D8%A7%D9%82%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%82/)
+- **بوريطة من نيويورك يرد على المزايدات الإسبانية بشأن الهجرة والشراكة مع المغرب – اليوم 24**: [Link](https://alyaoum24.com/2046458.html)
+
+
+### أستراليا ضد البرازيل (N/A, Fri, 25 Sep 2026 02:20:00 -0700)
+
+- **بالفيديو: البرازيل تغرق مع أنشيلوتي.. تعادل مخيب أمام أستراليا يفضح الأزمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%AA%D8%BA%D8%B1%D9%82-%D9%85%D8%B9-%D8%A7%D9%94%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A--%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%AE%D9%8A%D8%A8-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D8%B3%D8%AA%D8%B1%D8%A7%D9%84%D9%8A%D8%A7-%D9%8A%D9%81%D8%B6%D8%AD-%D8%A7%D9%84%D8%A7%D9%94%D8%B2%D9%85%D8%A9/blt773f96a0961f0ede)
+- **أنشيلوتي يقارن بين فينيسيوس ورافينها ويصرح: سأستدعي هذا اللاعب أينما كان**: [Link](https://www.btolat.com/news/411015)
+- **القنوات الناقلة لمباراة البرازيل وأستراليا**: [Link](https://www.eremnews.com/sports/ob1gmj3)
+
+
+### australia vs brazil (N/A, Fri, 25 Sep 2026 02:20:00 -0700)
+
+- **Australia vs Brazil: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-australia-v-brazil/blt065399187bfe1310)
+- **Socceroos denied famous win as late Brazil goal cancels out Irankunda stunner**: [Link](https://www.theguardian.com/football/2026/sep/25/australia-socceroos-brazil-irankunda-international-friendly-match-report)
+- **Australia and Brazil national teams begin series of friendly matches in Australia — ABC News Australia**: [Link](https://ua.news/en/sport/v-avstraliyi-startuie-seriia-tovariskikh-matchiv-zbirnikh-avstraliyi-ta-braziliyi-abc-news-australia)
+
+
+### australie – brésil (N/A, Fri, 25 Sep 2026 02:10:00 -0700)
+
+- **Amical : Endrick et Vinicius titulaires avec le Brésil**: [Link](https://www.footmercato.net/a8238504287197226921-amical-endrick-et-vinicius-titulaires-avec-le-bresil)
+- **Pronostic Australie - Brésil – Match Amical (25/09)**: [Link](https://onefootball.com/fr/paris-sportif/pronostics/australie-vs-bresil-25-09-2026)
+- **Brésil, la catastrophe**: [Link](https://www.football365.fr/bresil-la-catastrophe-10316996.html)
+
+
+### compagnie aérienne (N/A, Fri, 25 Sep 2026 02:00:00 -0700)
+
+- **EN DIRECT, visite du pape à Paris | Le programme de Léon XIV : balade en papamobile sur le boulevard Montparnasse, célébration des vêpres à Notre-Dame puis veillée de prière au Stade de France**: [Link](https://www.lemonde.fr/societe/live/2026/09/25/en-direct-visite-du-pape-a-paris-leon-xiv-est-a-l-elysee-accueilli-par-emmanuel-macron-qui-attendait-plus-de-ce-voyage_6782008_3224.html)
+- **Le Pape entame une visite apostolique de quatre jours en France**: [Link](https://fr.hespress.com/489888-le-pape-entame-une-visite-apostolique-de-quatre-jours-en-france.html)
+- **“Grotesques”, “misérables”… Roselyne Bachelot excédée par les rumeurs autour d’Emmanuel Macron et du pape Léon XIV avant sa visite en France**: [Link](https://www.gala.fr/politique/grotesque-miserables-roselyne-bachelot-excedee-par-les-rumeurs-autour-d-emmanuel-macron-et-du-pape-leon-xiv-avant-sa-visite-en-france-20260924)
+
+
+### توقيت صيفي (N/A, Fri, 25 Sep 2026 01:20:00 -0700)
+
+
+
+
+### كرة القدم (N/A, Thu, 24 Sep 2026 23:00:00 -0700)
+
+- **Havertz returns to Arsenal; Bellingham scoops England award; Nations League buildup: football news – live**: [Link](https://www.theguardian.com/football/live/2026/sep/25/havertz-injury-latest-haaland-fires-norway-to-victory-england-v-spain-buildup-and-more-football-news-live)
+- **Emile Heskey explains why Real Madrid star WILL inspire Three Lions to glory**: [Link](https://sports.yahoo.com/articles/emile-heskey-explains-why-real-075851925.html)
+- **Jude Bellingham Named Best English Footballer of 2026**: [Link](https://www.telecomasia.net/news/football/jude-bellingham-best-english-footballer-2026/)
+
+
 ### virgil van dijk (N/A, Thu, 24 Sep 2026 22:50:00 -0700)
 
 - **Nations League: Oranje knokt zich naar gelijkspel tegen Duitsland (1-1), nu nabeschouwing**: [Link](https://nos.nl/livestream/2625738-nations-league-oranje-knokt-zich-naar-gelijkspel-tegen-duitsland-1-1-nu-nabeschouwing)
