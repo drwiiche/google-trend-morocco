@@ -1,3 +1,10 @@
+### virgil van dijk (N/A, Thu, 24 Sep 2026 22:50:00 -0700)
+
+- **Nations League: Oranje knokt zich naar gelijkspel tegen Duitsland (1-1), nu nabeschouwing**: [Link](https://nos.nl/livestream/2625738-nations-league-oranje-knokt-zich-naar-gelijkspel-tegen-duitsland-1-1-nu-nabeschouwing)
+- **Het goeie voorbeeld voor vader Mark: Ruben van Bommel bezorgt Nederland met weergaloze assist punt tegen Duitsland**: [Link](https://www.hln.be/buitenlands-voetbal/het-goeie-voorbeeld-voor-vader-mark-ruben-van-bommel-bezorgt-nederland-met-weergaloze-assist-punt-tegen-duitsland~aeb977a0/)
+- **Bondscoach Xavi Hernández wijst uitblinker aan bij het Nederlands elftal tegen Duitsland: ‘Hij speelde heel goed’**: [Link](https://www.voetbalzone.nl/nieuws/bondscoach-xavi-hernandez-wijst-uitblinker-aan-bij-het-nederlands-elftal-tegen-duitsland-hij-speelde-heel-goed/blt6d9d6e71e4847d34)
+
+
 ### classement équipe de côte d'ivoire de football – équipe du ghana de football (N/A, Thu, 24 Sep 2026 14:30:00 -0700)
 
 - **Éliminatoires CAN 2027. Côte d’Ivoire-Ghana: pour ces retrouvailles, Abidjan ne jure que par la victoire**: [Link](https://afrique.le360.ma/sports/eliminatoires-can-2027-cote-divoire-ghana-pour-ces-retrouvailles-abidjan-ne-jure-que-par-la-victoire_RNVSLW24YFEZFMJMM5FVFNZTFY/)
