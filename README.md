@@ -1,3 +1,71 @@
+### ترتيبات منتخب المغرب لكرة القدم – منتخب الغابون لكرة القدم (N/A, Fri, 25 Sep 2026 14:10:00 -0700)
+
+- **عادل إنجازًا تاريخيًا.. المغرب يتخطى البرازيل ويصل مكانة غير مسبوقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2%D9%8B%D8%A7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D9%8B%D8%A7--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%88%D9%8A%D8%B5%D9%84-%D9%85%D9%83%D8%A7%D9%86%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9/blt2021e34d4fcb2f45)
+- **فيفا يضع المغرب سادسا في "الفوتسال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1813346.html)
+- **عودة حكيمي.. التشكيلة الرسمية للمنتخب المغربي أمام تنزانيا**: [Link](https://ar.telquel.ma/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-%D8%AA%D8%B5%D9%86%D9%8A%D9%81-%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B1%D8%AA%D9%82%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85/)
+
+
+### egypt vs (N/A, Fri, 25 Sep 2026 14:00:00 -0700)
+
+- **Salah: We Aim to Keep Making Egyptian Fans Happy...**: [Link](https://www.jordannews.jo/Section-71/Football/Salah-We-Aim-to-Keep-Making-Egyptian-Fans-Happy-56522)
+- **Egypt defender withdraws from squad through injury**: [Link](https://www.channelafrica.co.za/channelafrica/news/egypt-defender-withdraws-from-squad-through-injury/)
+- **Egypt Held by Angola in AFCON Qualifier Opener**: [Link](https://www.kingfut.com/2026/09/25/egypt-held-by-angola-in-afcon-qualifier-opener/)
+
+
+### yalla kora (N/A, Fri, 25 Sep 2026 12:10:00 -0700)
+
+- **بالفيديو: بلجيكا تصعق إيطاليا بثنائية.. وتشعل صراع الصدارة مع فرنسا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D8%AA%D8%B5%D8%B9%D9%82-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9--%D9%88%D8%AA%D8%B4%D8%B9%D9%84-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/bltbe44b137410500c3)
+- **دوري الأمم الأوروبية: مانشيني بين عودة مستبعدة ومنطقية لإيطاليا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260925-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D9%8A%D9%86%D9%8A-%D8%A8%D9%8A%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D8%B3%D8%AA%D8%A8%D8%B9%D8%AF%D8%A9-%D9%88%D9%85%D9%86%D8%B7%D9%82%D9%8A%D8%A9-%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-1)
+- **تقرير: مانشيني يستقر على تشكيلته الأساسية مع منتخب إيطاليا قبل مواجهة بلجيكا**: [Link](https://www.hesport.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%85%D8%A7%D9%86%D8%B4%D9%8A%D9%86%D9%8A-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D8%B9%D9%84%D9%89-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%AA%D9%87-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7-455807.html)
+
+
+### bein sport live (N/A, Fri, 25 Sep 2026 12:10:00 -0700)
+
+- **Game4Hope 2026: Date, kick-off time, Liverpool venue, how to watch and full ticket prices**: [Link](https://www.everton.news/game4hope-2026-date-kick-off-time-liverpool-venue-how-to-watch-and-full-ticket-prices/)
+- **Former Premier League stadium set to host charity match after last-minute change**: [Link](https://www.thesun.co.uk/sport/40487972/premier-league-everton-goodison-park-charity-match/)
+- **Everton legends return to Goodison for Game4Hope – details and how to watch**: [Link](https://readeverton.com/everton-legends-goodison-game4hope-how-to-watch/)
+
+
+### الجزائر ضد زامبيا (N/A, Fri, 25 Sep 2026 12:00:00 -0700)
+
+- **شاهد.. الجزائر تسحق زامبيا بثلاثية في تصفيات كأس أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/25/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7)
+- **ما القنوات الناقلة لمباراة الجزائر وزامبيا في تصفيات كأس أمم أفريقيا 2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%88%D8%B2%D8%A7%D9%85%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt0c115177e16dc1ef)
+- **تصفيات "كان" 2027: حمداني يعلن تشكيلة أساسية تحمل الكثير من المفاجآت**: [Link](https://ar.africatopsports.com/2026/09/25/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%86-2027-%D8%AD%D9%85%D8%AF%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A/)
+
+
+### mali – cap-vert (N/A, Fri, 25 Sep 2026 12:00:00 -0700)
+
+- **CAN 2027 (Q) : le forfait très mystérieux d’El Bilal Touré avec le Mali…**: [Link](https://www.afrik-foot.com/can-2027-q-le-forfait-tres-mysterieux-del-bilal-toure-avec-le-mali)
+- **!+[Streaming] Mali vs Cap-Vert : Diffusion TV en direct - 25 septembre 2026**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2p1bnRlc3RhY2Njb3VudC5naXRodWIuaW8vbmV3cy9zY2NvZXIvdGVzdC9hLnhtbCIvPjwva3JwYW5vPg==&id=video-streaming-mali-vs-cap-vert-diffusion-tv-liv-ustv-fr)
+- **Qualifications pour la CAN 2027. Parcours, objectifs, système tactique : que doit-on attendre des Aigles du Mali menés par Anthony Da Silva ?**: [Link](https://www.africaradio.com/actualite-116662-qualifications-pour-la-can-2027-parcours-objectifs-systeme-tactique-que-doit-on-attendre-des-aigles-du-mali-menes-par-anthony-da-silva)
+
+
+### snrt (N/A, Fri, 25 Sep 2026 12:00:00 -0700)
+
+- **Bourita et Mahmoud Ali Youssouf examinent les priorités du continent africain**: [Link](https://medias24.com/2026/09/25/bourita-et-mahmoud-ali-youssouf-examinent-les-priorites-du-continent-africain-1765105/)
+- **Sous la conduite du Roi, le Maroc continuera à œuvrer pour les droits légitimes du peuple palestinien**: [Link](https://fr.hespress.com/489878-sous-la-conduite-du-roi-le-maroc-continuera-a-oeuvrer-pour-les-droits-legitimes-du-peuple-palestinien.html)
+- **ONU : Bourita énonce six principes sur le Sahara et confirme la candidature du Maroc au Conseil de sécurité**: [Link](https://ledesk.ma/2026/09/23/onu-bourita-enonce-six-principes-sur-le-sahara-et-confirme-la-candidature-du-maroc-au-conseil-de-securite/)
+
+
+### bein sport (N/A, Fri, 25 Sep 2026 12:00:00 -0700)
+
+- **Salah: We Aim to Keep Making Egyptian Fans Happy...**: [Link](https://www.jordannews.jo/Section-71/Football/Salah-We-Aim-to-Keep-Making-Egyptian-Fans-Happy-56522)
+- **Egypt defender withdraws from squad through injury**: [Link](https://www.channelafrica.co.za/channelafrica/news/egypt-defender-withdraws-from-squad-through-injury/)
+- **Egypt Held by Angola in AFCON Qualifier Opener**: [Link](https://www.kingfut.com/2026/09/25/egypt-held-by-angola-in-afcon-qualifier-opener/)
+
+
+### marruecos - gabón (N/A, Fri, 25 Sep 2026 11:50:00 -0700)
+
+- **Morocco vs Gabon: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5zjz24zmypmt)
+- **Morocco vs. Gabon Lineups, Live Streaming, How & Where to Watch AFCON Qualifiers on TV**: [Link](https://sports.yahoo.com/articles/morocco-vs-gabon-lineups-live-171500033.html)
+- **Gabon Sports Minister Urges Panthers to Fight for Pride Against Morocco**: [Link](https://www.moroccoworldnews.com/2026/09/339775/gabon-sports-minister-urges-panthers-to-fight-for-pride-against-morocco/)
+
+
+### elbotola (N/A, Fri, 25 Sep 2026 11:50:00 -0700)
+
+
+
+
 ### مباراة المغرب (N/A, Fri, 25 Sep 2026 10:50:00 -0700)
 
 - **ما القنوات الناقلة لمباراة المغرب والجابون في تصفيات كأس أمم أفريقيا 2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D8%A7%D8%A8%D9%88%D9%86-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt750eaad3121ed69b)
