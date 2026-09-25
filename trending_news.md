@@ -1,3 +1,10 @@
+### classement équipe de côte d'ivoire de football – équipe du ghana de football (N/A, Thu, 24 Sep 2026 14:30:00 -0700)
+
+- **Éliminatoires CAN 2027. Côte d’Ivoire-Ghana: pour ces retrouvailles, Abidjan ne jure que par la victoire**: [Link](https://afrique.le360.ma/sports/eliminatoires-can-2027-cote-divoire-ghana-pour-ces-retrouvailles-abidjan-ne-jure-que-par-la-victoire_RNVSLW24YFEZFMJMM5FVFNZTFY/)
+- **Franck Kessié : « C’est le plus méritant qui joue »**: [Link](https://panafricafootball.com/article/franck-kessie-cote-divoire-ghana)
+- **2-0 : Diomande participe à la victoire de la Côte d'Ivoire contre le Ghana**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/latest-news/2-0-diomande-participa-en-la-victoria-de-costa-de-marfil-contra-ghana-24-09-2026)
+
+
 ### قيمة سوقية (N/A, Thu, 24 Sep 2026 15:50:00 -0700)
 
 - **ديلي آلي.. من قيمة سوقية 100 مليون يورو إلى "الدرجة الرابعة"**: [Link](https://sports.asharq.com/football/119129/%D8%AF%D9%8A%D9%84%D9%8A-%D8%A2%D9%84%D9%8A-%D9%85%D9%86-%D9%82%D9%8A%D9%85%D8%A9-%D8%B3%D9%88%D9%82%D9%8A%D8%A9-100-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9/)
