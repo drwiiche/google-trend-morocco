@@ -1,3 +1,64 @@
+### برلمان (N/A, Sat, 26 Sep 2026 06:30:00 -0700)
+
+- **حزب الأصالة والمعاصرة يتصدر انتخابات المغرب**: [Link](https://www.aljazeera.net/video/2026/9/25/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%A3%D8%B5%D8%A7%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B5%D8%B1%D8%A9-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA)
+- **بوانو ومخرجات الانتخابات**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%A7%D9%86%D9%88-%D9%88%D9%85%D8%AE%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-1813792.html)
+- **حمورو يكتب: قراءة أولية في نتائج 23 شتنبر 2026: من سؤال الفائز والخاسر إلى سؤال فعالية النظام الانتخابي**: [Link](https://www.pjd.ma/234422-%D8%AD%D9%85%D9%88%D8%B1%D9%88-%D9%8A%D9%83%D8%AA%D8%A8-%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D8%A3%D9%88%D9%84%D9%8A%D8%A9-%D9%81%D9%8A-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-23-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-202.html)
+
+
+### afrique du sud – guinée (N/A, Sat, 26 Sep 2026 05:50:00 -0700)
+
+- **++[ＬＩＶＥＳｔｒｅａｍ]NOW!!] Afrique du Sud–Guinée LIVE Updates**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2R1a2Vucmd5MTQ3LmdpdGh1Yi5pby9uZXdzLyIvPjwva3JwYW5vPg==&id=uefa-kenya-eritrea-en-direct-tv-24426393)
+- **!!(((STREAMING))) Guinée Afrique du Sud football En Direct Streaming Gratuit tv**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vcGFyYWRlNzA2LmdpdGh1Yi5pby9zaS5lZHUvYmd0LnhtbCIvPjwva3JwYW5vPg==&id=video-guinee-afrique-du-sud-match-lie-hnirmkj)
+- **$$@@[diffusion**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vcGFyYWRlNzA2LmdpdGh1Yi5pby9zaS5lZHUvYmd0LnhtbCIvPjwva3JwYW5vPg==&id=video-afrique-du-sud-guinee-lie-en-xhmnwiu)
+
+
+### saad lamjarred (N/A, Sat, 26 Sep 2026 05:50:00 -0700)
+
+- **Affaire Laura Prioul: Saad Lamjarred condamné en appel à 10 ans de prison**: [Link](https://fr.le360.ma/people/affaire-laura-prioul-saad-lamjarred-condamne-en-appel-a-10-ans-de-prison_AJQTJ72N7RBYZFMKDIK6WY7X7U/)
+- **France : Saad Lamjarred condamné en appel à dix ans de prison ferme**: [Link](https://fr.hespress.com/490061-france-saad-lamjarred-condamne-en-appel-a-dix-ans-de-prison-ferme.html)
+- **Le chanteur marocain Saad Lamjarred condamné en appel à 10 ans de réclusion pour viol à Paris**: [Link](https://www.brut.media/fr/articles/france/justice-faits-divers/le-chanteur-marocain-saad-lamjarred-condamne-en-appel-a-10-ans-de-reclusion-pour-viol-a-paris)
+
+
+### journaliste (N/A, Sat, 26 Sep 2026 04:50:00 -0700)
+
+- **Décès du journaliste Hamid Barrada à l’âge de 87 ans**: [Link](https://ledesk.ma/encontinu/deces-du-journaliste-hamid-barrada-a-lage-de-87-ans/)
+- **Décès de Hamid Barrada, le Maroc perd l’une de ses grandes voix journalistiques**: [Link](https://fr.hespress.com/490053-deces-de-hamid-barrada-le-maroc-perd-lune-de-ses-grandes-voix-journalistiques.html)
+- **Décès du journaliste et intellectuel Hamid Barrada - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/09/26/deces-du-journaliste-et-intellectuel-hamid-barrada-1765801/)
+
+
+### أيوب بوعدي (N/A, Sat, 26 Sep 2026 03:30:00 -0700)
+
+- **"114".. ما سر الرقم الذي نشره ممداني عن مانشستر سيتي؟**: [Link](https://www.aljazeera.net/sport/2026/9/26/114-%D9%85%D8%A7-%D8%B3%D8%B1-%D8%A7%D9%84%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D8%B0%D9%8A-%D9%86%D8%B4%D8%B1%D9%87-%D9%85%D9%85%D8%AF%D8%A7%D9%86%D9%8A-%D8%B9%D9%86)
+- **سرّب ملايين الوثائق وحاكمته دول.. هاكر برتغالي حاول إسقاط مانشستر سيتي**: [Link](https://www.aljazeera.net/sport/2026/9/26/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%82%D8%B1%D8%B5%D9%86%D8%A9-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA)
+- **بعد إدانة مانشستر سيتي.. فرديناند ونجم ليفربول السابق يطالبان بألقاب الدوري الإنجليزي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%95%D8%AF%D8%A7%D9%86%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A--%D9%81%D8%B1%D8%AF%D9%8A%D9%86%D8%A7%D9%86%D8%AF-%D9%88%D9%86%D8%AC%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8%D8%A7%D9%86-%D8%A8%D8%A7%D9%94%D9%84%D9%82%D8%A7%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/blt6e20fb726bd8c590)
+
+
+### tiempo (N/A, Fri, 25 Sep 2026 23:10:00 -0700)
+
+
+
+
+### x (N/A, Fri, 25 Sep 2026 20:10:00 -0700)
+
+- **EU vows to defend its stand against X after the US backs a court challenge from Elon Musk**: [Link](https://abcnews.com/Technology/wireStory/eu-vows-defend-stand-after-us-backs-court-136751402)
+- **U.S. Intercedes for Elon Musk’s X Over European Fine**: [Link](https://www.nytimes.com/2026/09/24/technology/us-x-elon-musk-europe-fine.html)
+- **U.S. government seeks to join Elon Musk in challenge against EU's fine on X**: [Link](https://www.cnbc.com/2026/09/25/us-government-seeks-to-join-musk-in-challenge-against-eus-fine-on-x.html)
+
+
+### منير الليموري (N/A, Fri, 25 Sep 2026 18:20:00 -0700)
+
+- **تحقيقات انتخابات طنجة تتوسع .. 4 موقوفين وخيوط جديدة قيد البحث**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D9%82%D9%8A%D9%82%D8%A7%D8%AA-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%B7%D9%86%D8%AC%D8%A9-%D8%AA%D8%AA%D9%88%D8%B3%D8%B9-4-%D9%85%D9%88%D9%82%D9%88%D9%81%D9%8A%D9%86-1813337.html)
+- **فرار عمدة طنجة منير الليموري إلى الخارج إثر تورطه في فضيحة محاولة تزوير الانتخابات – اليوم 24**: [Link](https://alyaoum24.com/2046725.html)
+- **قضية أوراق التصويت بطنجة.. إحالة 3 مشتبه فيهم بينهم رئيسا مكتبي اقتراع على النيابة العامة**: [Link](https://www.ahdath.info/%D9%82%D8%B6%D9%8A%D8%A9-%D8%A3%D9%88%D8%B1%D8%A7%D9%82-%D8%A7%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D8%A8%D8%B7%D9%86%D8%AC%D8%A9-%D8%A5%D8%AD%D8%A7%D9%84%D8%A9-3-%D9%85%D8%B4%D8%AA%D8%A8%D9%87/)
+
+
+### سفيان رحيمي (N/A, Fri, 25 Sep 2026 17:00:00 -0700)
+
+- **رسالة مؤثرة من "روسو فيردي" إلى سفيان رحيمي**: [Link](https://www.almountakhab.com/node/16230940)
+- **رسالة مؤثرة من روسو فيردي إلى سفيان رحيمي**: [Link](https://inews.ma/news/8685522)
+- **سفيان رحيمي يسجل الهدف الثاني ويقبل صورة والده**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/495502.html)
+
+
 ### الدرك الملكي (N/A, Sat, 26 Sep 2026 01:20:00 -0700)
 
 - **الجنرال الملكوني رئيساً للأمن العمومي بالقيادة العليا للدرك وبن بلعيد يخلفه بطنجة**: [Link](https://www.elhadat24.com/24h/291208/)
