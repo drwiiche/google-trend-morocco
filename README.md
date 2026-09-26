@@ -1,3 +1,10 @@
+### maroc live (N/A, Fri, 25 Sep 2026 12:40:00 -0700)
+
+- **Mohamed Sammouni : “La nomination de Lekjaa à la tête du gouvernement engendrerait une crise de légitimité électorale”**: [Link](https://mobile.telquel.ma/2026/09/25/mohamed-sammouni-la-nomination-de-lekjaa-a-la-tete-du-gouvernement-engendrerait-une-crise-de-legitimite-electorale_2009763)
+- **Résultats des Législatives : David Goeury livre sa lecture de la nouvelle carte politique**: [Link](https://medias24.com/2026/09/25/resultats-des-legislatives-david-goeury-livre-sa-lecture-de-la-nouvelle-carte-politique-1765041/)
+- **Législatives 2026: les figures qui quittent le Parlement et celles qui y font leur retour**: [Link](https://fr.le360.ma/politique/legislatives-2026-les-figures-qui-quittent-le-parlement-et-celles-qui-y-font-leur-retour_2FSKLW3R5VF2HKNSCDIK7G7PCA/)
+
+
 ### classement équipe d'algérie de football – équipe de zambie de football (N/A, Fri, 25 Sep 2026 15:20:00 -0700)
 
 - **Éliminatoires CAN 2027 : l’Algérie surclasse la Zambie, le Maroc domine le Gabon, le Mali s’offre le Cap-Vert**: [Link](https://www.footmercato.net/a7638477421567108995-eliminatoires-can-2027-lalgerie-surclasse-la-zambie-le-maroc-domine-le-gabon-le-mali-soffre-le-cap-vert)
