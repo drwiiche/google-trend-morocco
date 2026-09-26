@@ -1,3 +1,45 @@
+### classement équipe d'algérie de football – équipe de zambie de football (N/A, Fri, 25 Sep 2026 15:20:00 -0700)
+
+- **Éliminatoires CAN 2027 : l’Algérie surclasse la Zambie, le Maroc domine le Gabon, le Mali s’offre le Cap-Vert**: [Link](https://www.footmercato.net/a7638477421567108995-eliminatoires-can-2027-lalgerie-surclasse-la-zambie-le-maroc-domine-le-gabon-le-mali-soffre-le-cap-vert)
+- **De Jadaoui à Bitković… Retour sur le premier match des entraîneurs des Verts avant l'épreuve de Hamdani**: [Link](https://algerie-foot.com/fr/de-jadaoui-a-bitkovic-retour-sur-le-premier-match-des-entraineurs-des-verts-avant-lepreuve-de-hamdani/)
+- **Vidéo : l'Algérie frappe fort pour le début de l'ère Hamdani**: [Link](https://www.goal.com/fr/news/video-l-algerie-frappe-fort-pour-le-debut-de-l-ere-hamdani/bltf44570d0d02353f4)
+
+
+### الأمم المتحدة (N/A, Fri, 25 Sep 2026 14:40:00 -0700)
+
+- **نتنياهو يهاجم زوجة ممداني من منبر الأمم المتحدة.. ما السبب؟**: [Link](https://www.aljazeera.net/news/2026/9/25/%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%B2%D9%88%D8%AC%D8%A9-%D9%85%D9%85%D8%AF%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D9%85%D9%86%D8%A8%D8%B1)
+- **"مجرم حرب".. آلاف يحتجون ضد نتنياهو في نيويورك بسبب إبادة غزة**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%85%D8%AC%D8%B1%D9%85-%D8%AD%D8%B1%D8%A8-%D8%A2%D9%84%D8%A7%D9%81-%D9%8A%D8%AD%D8%AA%D8%AC%D9%88%D9%86-%D8%B6%D8%AF-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%81%D9%8A-%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A5%D8%A8%D8%A7%D8%AF%D8%A9-%D8%BA%D8%B2%D8%A9/4068813)
+- **فيديو. احتجاجات وانسحاب وفود خلال خطاب نتنياهو في الأمم المتحدة**: [Link](https://arabic.euronews.com/video/2026/09/25/protests-and-walkouts-as-netanyahu-addresses-the-un)
+
+
+### turkey national football team vs france national football team standings (N/A, Fri, 25 Sep 2026 14:10:00 -0700)
+
+- **Turkey 0-1 France: Kylian Mbappe injured while scoring winner in Nations League**: [Link](https://www.bbc.com/sport/football/live/crlyqpvqjgqet)
+- **Turkey vs. France Lineup Today: Confirmed Team News & Starting XI**: [Link](https://sports.yahoo.com/articles/turkey-vs-france-lineup-today-202621849.html)
+- **Turkey 0-1 France, Italy 0-2 Belgium, Georgia 0-1 Northern Ireland: Nations League – live**: [Link](https://www.theguardian.com/football/live/2026/sep/25/turkey-v-france-italy-v-belgium-and-more-nations-league-clockwatch-live)
+
+
+### match (N/A, Fri, 25 Sep 2026 12:40:00 -0700)
+
+- **Session 2 Recap – 2026 Presidents Cup – Friday Foursome**: [Link](https://www.pgatour.com/article/news/latest/2026/09/25/session-2-recap-presidents-cup-2026)
+- **2026 Presidents Cup: The best closer in golf**: [Link](https://www.golfdigest.com/story/presidents-cup-2026-nick-taylor-friday)
+- **Presidents Cup 2026: Saturday’s fourballs matchups, starting times at Medinah**: [Link](https://www.golfchannel.com/pga-tour/news/presidents-cup-2026-saturdays-fourballs-matchups-starting-times-at-medinah)
+
+
+### marokko – gabun (N/A, Fri, 25 Sep 2026 12:10:00 -0700)
+
+- **Spielschema | Marokko - Gabun 2:0 | 1. Spieltag | Afrika-Cup-Qualifikation 2026/27**: [Link](https://www.kicker.de/marokko-gegen-gabun-2026-afrika-cup-qualifikation-5265812/schema)
+- **Liveticker | Namibia - Kongo 1:0 | 1. Spieltag | Afrika-Cup-Qualifikation 2026/27**: [Link](https://www.kicker.at/namibia-gegen-kongo-2026-afrika-cup-qualifikation-5265796/ticker)
+- **Aufstellung | Togo - Burundi : | 1. Spieltag | Afrika-Cup-Qualifikation 2026/27**: [Link](https://www.kicker.de/togo-gegen-burundi-2026-afrika-cup-qualifikation-5265808/aufstellung)
+
+
+### algeria vs zambia (N/A, Fri, 25 Sep 2026 12:00:00 -0700)
+
+- **Winning starts for Algeria and Morocco as TotalEnergies CAF AFCON PAMOJA 2027 qualifiers continue**: [Link](https://www.cafonline.com/afcon2025/news/winning-starts-for-algeria-and-morocco-as-totalenergies-caf-afcon-pamoja-2027-qualifiers-continue/)
+- **Algeria vs Zambia | Highlights | Africa Cup of Nations Qualification 2027**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations-qualification/articles-video/how-to-watch-algeria-vs-zambia-live-on-bein-sports-2026-09-24)
+- **ZNBC confirms it will not broadcast Zambia’s away AFCON qualifiers**: [Link](https://zambianfootball.co.zm/znbc-confirms-it-will-not-broadcast-zambias-away-afcon-qualifiers/)
+
+
 ### ترتيبات منتخب المغرب لكرة القدم – منتخب الغابون لكرة القدم (N/A, Fri, 25 Sep 2026 14:10:00 -0700)
 
 - **عادل إنجازًا تاريخيًا.. المغرب يتخطى البرازيل ويصل مكانة غير مسبوقة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%95%D9%86%D8%AC%D8%A7%D8%B2%D9%8B%D8%A7-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D9%8B%D8%A7--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%AE%D8%B7%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%88%D9%8A%D8%B5%D9%84-%D9%85%D9%83%D8%A7%D9%86%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9/blt2021e34d4fcb2f45)
