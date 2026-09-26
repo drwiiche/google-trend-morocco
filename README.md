@@ -1,3 +1,71 @@
+### طقس (N/A, Sat, 26 Sep 2026 12:50:00 -0700)
+
+- **تطورات الحرارة في صيف المغرب.. وجدة والحسيمة وتطوان بالمقدمة**: [Link](https://www.hespress.com/%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D8%AD-1813639.html)
+- **توقعات أحوال الطقس اليوم السبت**: [Link](https://ar.telquel.ma/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-84/)
+- **طقس حار نهاية الأسبوع وتغير مرتقب في الأجواء ابتداءً من الأحد**: [Link](https://febrayer.com/1162776.html)
+
+
+### spain national football team (N/A, Sat, 26 Sep 2026 12:40:00 -0700)
+
+- **Nations League: Trafford starts for England against world champions Spain**: [Link](https://www.bbc.com/sport/football/live/c9j3dpkxe5vdt)
+- **Thomas Tuchel reveals real reason why James Trafford started over Jordan Pickford vs Spain after fan outcry**: [Link](https://www.thesun.co.uk/sport/40504949/thomas-tuchel-james-trafford-jordan-pickford-england-spain/)
+- **Lamine Yamal scores a goal of historic proportions for Spain in England**: [Link](https://www.goal.com/en/news/england-have-not-experienced-anything-like-this-for-almost-70-years-lamine-yamal-shocks-wembley-and-thomas-tuchel/bltec74634f0f78ff8d)
+
+
+### منتخب الجزائر لكرة القدم (N/A, Sat, 26 Sep 2026 12:40:00 -0700)
+
+- **بعد آيت نوري.. لاعب آخر يغادر معسكر الجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%93%D9%8A%D8%AA-%D9%86%D9%88%D8%B1%D9%8A--%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%93%D8%AE%D8%B1-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/bltc1d9740afdf8e632)
+- **استبعاد ريان آيت نوري من معسكر الجزائر وعودته إلى مانشستر سيتي**: [Link](https://www.aljazeera.net/sport/2026/9/26/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%B1%D9%8A%D8%A7%D9%86-%D8%A2%D9%8A%D8%AA-%D9%86%D9%88%D8%B1%D9%8A-%D9%85%D9%86-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **استبعاد آيت نوري من تشكيلة منتخب الجزائر**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-0000/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D8%A2%D9%8A%D8%AA-%D9%86%D9%88%D8%B1%D9%8A-%D9%85%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-2026-09-26)
+
+
+### محمد صلاح (N/A, Sat, 26 Sep 2026 12:30:00 -0700)
+
+- **محمد صلاح يترك معسكر منتخب مصر بسبب حسام حسن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%AA%D8%B1%D9%83-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86/blt56635c35a18bea1c)
+- **لسبب "غريب".. محمد صلاح يغيب عن مواجهة جنوب السودان**: [Link](https://www.aljazeera.net/sport/2026/9/26/%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86)
+- **صلاح يغيب عن لقاء جنوب السودان**: [Link](https://www.hespress.com/%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%84%D9%82%D8%A7%D8%A1-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-1813801.html)
+
+
+### england vs (N/A, Sat, 26 Sep 2026 12:10:00 -0700)
+
+- **England 26-19 New Zealand recap: WXV Global Series - try-scorers, reaction and clips after dramatic win**: [Link](https://www.bbc.com/sport/rugby-union/live/cqdr7m1d8m6gt)
+- **Zoe Harrison rescues Red Roses with thrilling last-gasp try against New Zealand**: [Link](https://www.theguardian.com/sport/2026/sep/26/england-new-zealand-wxv-rugby-union-match-report)
+- **England's Harrison scores last-gasp try to beat Black Ferns**: [Link](https://sports.yahoo.com/articles/englands-harrison-scores-last-gasp-161232950.html)
+
+
+### macédoine du nord – suisse (N/A, Sat, 26 Sep 2026 11:30:00 -0700)
+
+- **Murat Yakin s'est plaint de la longueur du gazon avant d'affronter la Macédoine du Nord samedi. La pelouse n'est pas assez bien tondue, s'agace le sélectionneur national. 👉 Retrouvez l'article complet : https://brnw.ch/21x5Yrx**: [Link](https://www.facebook.com/blickfr/posts/murat-yakin-sest-plaint-de-la-longueur-du-gazon-avant-daffronter-la-mac%C3%A9doine-du/1463800529138535/)
+- **Football: Suivez en direct la rencontre entre la Macédoine et la Suisse**: [Link](https://www.20min.ch/fr/story/football-suivez-en-direct-la-rencontre-entre-la-macedoine-et-la-suisse-103639487)
+- **PRONOS PARIS RMC Le pari sûr du 26 septembre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-sur-du-26-septembre-ligue-des-nations_AN-202609250742.html)
+
+
+### inglaterra - españa (N/A, Sat, 26 Sep 2026 11:20:00 -0700)
+
+
+
+
+### tchéquie – croatie (N/A, Sat, 26 Sep 2026 11:20:00 -0700)
+
+- **Tchéquie - Croatie, Ligue des nations A, match en direct le 26/09/2026**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/tchequie-croatie-live/688727)
+- **UEFA Nations League : Slaven Bilić et Santi Denia veulent marquer les esprits**: [Link](https://fr.uefa.com/uefanationsleague/news/02a9-219e90bfb558-c39d412958b4-1000--uefa-nations-league-slaven-bilic-et-santi-denia-veulent-marq/)
+- **Football | République tchèque - Croatie : Chaîne, streaming, où voir le match et à quelle heure en France ?**: [Link](https://www.mediasportif.fr/2026/09/26/football-republique-tcheque-croatie-chaine-streaming-ou-voir-le-match-et-a-quelle-heure-en-france/)
+
+
+### angleterre – espagne (N/A, Sat, 26 Sep 2026 11:00:00 -0700)
+
+- **DIRECT. Angleterre - Espagne, Ligue des nations A : Mi-temps**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/angleterre-espagne-live/688728)
+- **Suivez Angleterre - Espagne En direct - Ligue des Nations A - Groupe 3 - 1ère journée**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-angleterre-espagne_mtc20005851/live-commentary.shtml)
+- **Espagne : le but de Lamine Yamal après 2 minutes pour refroidir l’Angleterre**: [Link](https://www.footmercato.net/a5227009536089588174-espagne-le-but-de-lamine-yamal-apres-2-minutes-pour-refroidir-langleterre)
+
+
+### england vs spain (N/A, Sat, 26 Sep 2026 11:00:00 -0700)
+
+- **England vs Spain LIVE: UEFA Nations League score, commentary, updates & stats**: [Link](https://www.bbc.com/sport/football/live/c9j3dpkxe5vdt)
+- **~$$!!【TRANSMIInglaterraES EN VIVO】 Inglaterra vs España En Vivo y En Directo Online TV 26 de septiembre de 2026**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3BpeGlyZWVsLmNvbS9yYW8vcWEueG1sIi8+PC9rcnBhbm8+&id=video-england-vs-spain-li-uk-en26)
+- **[[[CBS Sports]]England vs Spain FrEe StReAm Broadcast ON Tv Channel 16 September ２０２6**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3NoYWJhZ2ltZ2ktaGFzaC5naXRodWIuaW8vcHVraS8iLz48L2tycGFubz4&id=video-cbs-sports-england-vs-spain-free-stream-esp)
+
+
 ### wydad (N/A, Sat, 26 Sep 2026 10:00:00 -0700)
 
 - **Wydad AC : 21 joueurs convoqués face au Wydad Témara, les nouvelles recrues présentes**: [Link](https://www.elbotola.com/fr/article/2026-09-26-13-38-978.html)
