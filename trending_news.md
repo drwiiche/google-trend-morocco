@@ -1,3 +1,24 @@
+### الوداد (N/A, Sat, 26 Sep 2026 15:10:00 -0700)
+
+- **الوداد يستهل الدوري المغربي بخسارة مهينة على أرضه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%87%D9%8A%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B1%D8%B6%D9%87/bltaa7afff18fb89691)
+- **وداد تمارة يهزم الوداد في "دونور"**: [Link](https://www.hespress.com/%D9%88%D8%AF%D8%A7%D8%AF-%D8%AA%D9%85%D8%A7%D8%B1%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D9%86%D9%88%D8%B1-1814154.html)
+- **مدرب الوداد يكشف اختياراته لمواجهة وداد تمارة في الجولة الأولى**: [Link](https://radiomars.ma/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%83%D8%B4%D9%81-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%88%D8%AF/)
+
+
+### bet365 (N/A, Sat, 26 Sep 2026 13:00:00 -0700)
+
+- **bet365 Bonus Code: $200 in Bonus Bets Win or Lose**: [Link](https://www.rotowire.com/article/bet365-bonus-code-bet-10-get-200-win-or-lose-926-136930)
+- **NFL & CFB Week 3 Promos: Claim up to $2,960 in Sportsbook Bonuses for This Weekend's Action**: [Link](https://sports.yahoo.com/betting/sportsbook/promos/article/nfl--cfb-week-3-promos-claim-up-to-2960-in-sportsbook-bonuses-for-this-weekends-action-150000490.html)
+- **Claim $1200+ in Prediction Market Promos for Cowboys vs Ravens from Kalshi, Polymarket & More**: [Link](https://cowboyswire.usatoday.com/story/sports/2026/09/26/claim-1200-in-prediction-promos-for-cowboys-vs-ravens/91924555007/)
+
+
+### مانشستر سيتي (N/A, Sat, 26 Sep 2026 12:20:00 -0700)
+
+- **رئيس مانشستر سيتي يكسر الصمت ويرد ببيان رسمي: "لن نمنحهم الفرصة"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%8A%D9%83%D8%B3%D8%B1-%D8%A7%D9%84%D8%B5%D9%85%D8%AA-%D9%88%D9%8A%D8%B1%D8%AF-%D8%A8%D8%A8%D9%8A%D8%A7%D9%86-%D8%B1%D8%B3%D9%85%D9%8A--%D9%84%D9%86-%D9%86%D9%85%D9%86%D8%AD%D9%87%D9%85-%D8%A7%D9%84%D9%81%D8%B1%D8%B5%D8%A9/bltf17fd53c7ce7c44a)
+- **"114".. ما سر الرقم الذي نشره ممداني عن مانشستر سيتي؟**: [Link](https://www.aljazeera.net/sport/2026/9/26/114-%D9%85%D8%A7-%D8%B3%D8%B1-%D8%A7%D9%84%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D8%B0%D9%8A-%D9%86%D8%B4%D8%B1%D9%87-%D9%85%D9%85%D8%AF%D8%A7%D9%86%D9%8A-%D8%B9%D9%86)
+- **خلدون المبارك يوجه رسالة لجماهير سيتي ويؤكد ثقته**: [Link](https://www.skynewsarabia.com/sport/1894572-%D8%AE%D9%84%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%83-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D9%8A%D8%A4%D9%83%D8%AF-%D8%AB%D9%82%D8%AA%D9%87)
+
+
 ### طقس (N/A, Sat, 26 Sep 2026 12:50:00 -0700)
 
 - **تطورات الحرارة في صيف المغرب.. وجدة والحسيمة وتطوان بالمقدمة**: [Link](https://www.hespress.com/%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%81%D9%8A-%D8%B5%D9%8A%D9%81-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AC%D8%AF%D8%A9-%D9%88%D8%A7%D9%84%D8%AD-1813639.html)
