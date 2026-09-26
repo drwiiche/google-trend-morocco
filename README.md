@@ -1,3 +1,38 @@
+### wydad (N/A, Sat, 26 Sep 2026 10:00:00 -0700)
+
+- **Wydad AC : 21 joueurs convoqués face au Wydad Témara, les nouvelles recrues présentes**: [Link](https://www.elbotola.com/fr/article/2026-09-26-13-38-978.html)
+- **Pronostic : Wydad Casablanca VS Widad Temara | 26/09/2026**: [Link](https://www.footix.fr/pronostic-wydad-casablanca-vs-widad-temara-26-09-2026/)
+- **Brito modifie l'horaire des entraînements du Wydad avant le match contre le Wydad Témara**: [Link](https://www.elbotola.com/fr/article/2026-09-25-13-46-81.html)
+
+
+### إبراهيم دياز (N/A, Sat, 26 Sep 2026 09:00:00 -0700)
+
+- **دياز يقلق المغاربة.. ووهبي يحمل الإجابة المنتظرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D9%82%D9%84%D9%82-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9--%D9%88%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AD%D9%85%D9%84-%D8%A7%D9%84%D8%A7%D9%95%D8%AC%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9/blt959b7a835496d56c)
+- **وهبي يكشف تفاصيل إصابة إبراهيم دياز بعد الغياب عن مباراة الغابون**: [Link](https://radiomars.ma/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A8%D8%B9/)
+- **شكوك حول مشاركة دياز مع الأسود أمام الغابون**: [Link](https://www.ahdath.info/%D8%B4%D9%83%D9%88%D9%83-%D8%AD%D9%88%D9%84-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%85%D8%B9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%BA/)
+
+
+### policier (N/A, Sat, 26 Sep 2026 07:50:00 -0700)
+
+- **Carcassonne : le policier accusé d’avoir causé la mort d’un homme après l’avoir jeté à terre sera jugé au début de novembre**: [Link](https://www.lemonde.fr/societe/article/2026/09/26/carcassonne-le-policier-accuse-d-avoir-cause-la-mort-d-un-homme-apres-l-avoir-jete-a-terre-sera-juge-au-debut-de-novembre_6783138_3224.html)
+- **Violences policières à Carcassonne : le policier qui avait projeté un homme au sol entendu par l'IGPN et interdit d'exercer jusqu'à son procès**: [Link](https://www.ladepeche.fr/2026/09/26/violences-policieres-a-carcassonne-le-policier-qui-avait-projete-un-homme-au-sol-entendu-par-ligpn-et-interdit-dexercer-jusqua-son-proces-13568611.php)
+- **Vidéo d’un homme violemment jeté au sol : le policier mis en cause placé sous contrôle judiciaire et interdit d’exercer jusqu’à son procès**: [Link](https://www.lindependant.fr/2026/09/25/video-dun-homme-violemment-jete-au-sol-le-policier-mis-en-cause-place-sous-controle-judiciaire-et-interdit-dexercer-jusqua-son-proces-13569138.php)
+
+
+### سعد لمجرد (N/A, Sat, 26 Sep 2026 06:50:00 -0700)
+
+- **السجن عشر سنوات لسعد لمجرد بتهمة الاغتصاب**: [Link](https://www.alarabiya.net/north-africa/morocco/2026/09/26/-%D8%A7%D9%84%D8%B3%D8%AC%D9%86-%D8%B9%D8%B4%D8%B1-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D9%84%D8%B3%D8%B9%D8%AF-%D9%84%D9%85%D8%AC%D8%B1%D8%AF-%D8%A8%D8%AA%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%BA%D8%AA%D8%B5%D8%A7%D8%A8)
+- **البشير عبدو: ولدي سعد لمجرد مظلوم**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A8%D8%B4%D9%8A%D8%B1-%D8%B9%D8%A8%D8%AF%D9%88-%D9%88%D9%84%D8%AF%D9%8A-%D8%B3%D8%B9%D8%AF-%D9%84%D9%85%D8%AC%D8%B1%D8%AF-%D9%85%D8%B8%D9%84%D9%88%D9%85-1813970.html)
+- **القضاء الفرنسي يشدد عقوبة سعد لمجرد إلى 10 سنوات… وأنباء عن اعتقاله – اليوم 24**: [Link](https://alyaoum24.com/2046741.html)
+
+
+### coupe d'afrique des nations de football 2027 (N/A, Sat, 26 Sep 2026 06:50:00 -0700)
+
+- **CAN 2027 : face aux retards accumulés par les trois pays organisateurs, la Confédération africaine de football envisage des solutions de remplacement**: [Link](https://www.lemonde.fr/sport/article/2026/09/26/can-2027-face-aux-retards-accumules-par-les-trois-pays-organisateurs-la-confederation-africaine-de-football-envisage-des-solutions-de-remplacement_6783096_3242.html)
+- **Dossier: Football- Coupe d’Afrique des Nations Kenya, Tanzanie et Ouganda 2027**: [Link](https://news.abidjan.net/dossier/4160-football-coupe-dafrique-des-nations-kenya-tanzanie-et-ouganda-2027)
+- **Face aux retards dans les chantiers de la CAN 2027, le Maroc pourrait récupérer en urgence l’organisation de la compétition…en 2028**: [Link](https://fr.le7tv.ma/2026/09/24/face-aux-retards-dans-les-chantiers-de-la-can-2027-le-maroc-pourrait-recuperer-en-urgence-lorganisation-de-la-competition-en-2028/)
+
+
 ### برلمان (N/A, Sat, 26 Sep 2026 06:30:00 -0700)
 
 - **حزب الأصالة والمعاصرة يتصدر انتخابات المغرب**: [Link](https://www.aljazeera.net/video/2026/9/25/%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%A3%D8%B5%D8%A7%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B5%D8%B1%D8%A9-%D9%8A%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA)
