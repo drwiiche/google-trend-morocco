@@ -1,3 +1,17 @@
+### mexique – colombie (N/A, Sat, 26 Sep 2026 17:40:00 -0700)
+
+- **Mexico vs Colombia: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cr3wj0qql7dzt)
+- **Mexico vs. Colombia—International Friendly: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/mexico-vs-colombia-international-friendly-preview-predictions-lineups-9-26-26)
+- **Future is here for El Tri: Gilberto Mora scores in Rafa Marquez's coaching debut**: [Link](https://www.usatoday.com/story/sports/soccer/2026/09/27/mexico-draw-colombia-gilberto-mora-goal/91964618007/)
+
+
+### lamine yamal (N/A, Sat, 26 Sep 2026 13:50:00 -0700)
+
+- **Lamine Yamal: ‘Football is mechanised but players like me have that special spark’**: [Link](https://www.theguardian.com/football/2026/sep/26/lamine-yamal-football-special-spark-spain-world-cup-barcelona)
+- **Ballon d’Or 2026: Williams Names Player Who Deserves to Win Award**: [Link](https://therealmediang.com/sports/ballon-dor-2026-williams-names-player-who-deserves-to-win-award)
+- **Gerard Martin backs Barcelona sensation Lamine Yamal for Ballon d'Or and demands recognition for Pau Cubarsi**: [Link](https://sports.yahoo.com/articles/gerard-martin-backs-barcelona-sensation-045003938.html)
+
+
 ### spain vs (N/A, Sat, 26 Sep 2026 11:30:00 -0700)
 
 - **England 2-3 Spain: World champions come from behind to win at Wembley after Kane penalty miss**: [Link](https://www.bbc.com/sport/football/live/c9j3dpkxe5vdt)
