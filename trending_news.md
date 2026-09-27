@@ -1,3 +1,67 @@
+### meteo (N/A, Sun, 27 Sep 2026 14:10:00 -0700)
+
+
+
+
+### سفيان رحيمي (N/A, Sun, 27 Sep 2026 14:10:00 -0700)
+
+- **فعالية سفيان رحيمي تثير إعجاب محمد وهبي**: [Link](https://ar.lesiteinfo.com/sport/%D9%81%D8%B9%D8%A7%D9%84%D9%8A%D8%A9-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D8%AA%D8%AB%D9%8A%D8%B1-%D8%A5%D8%B9%D8%AC%D8%A7%D8%A8-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8-1023026.html)
+- **رحيمي يحسمها للمغرب.. مهاجم العين يسجل في شباك الجابون**: [Link](https://twaslnews1.twaslnews.com/5318817/)
+- **سفيان رحيمي يسجل الهدف الثاني ويقبل صورة والده**: [Link](https://inews.ma/news/8685550)
+
+
+### الكوكب ضد حسنية أكادير (N/A, Sun, 27 Sep 2026 13:40:00 -0700)
+
+- **غيابات وازنة للحسنية أمام الكوكب**: [Link](https://assabah.ma/951468.html)
+- **نفاد تذاكر قمة الكوكب وحسنية أكادير في أقل من 24 ساعة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D9%86%D9%81%D8%A7%D8%AF-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D9%88%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D9%81%D9%8A-%D8%A3%D9%82%D9%84-%D9%85%D9%86-24-%D8%B3%D8%A7%D8%B9%D8%A9/25812)
+- **أول اختبار رسمي للكوكب المراكشي في الموسم الجديد امام أكادير**: [Link](https://www.almarrakchia.net/%D8%A3%D9%88%D9%84-%D8%B8%D9%87%D9%88%D8%B1-%D9%84%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%81%D9%8A-%D8%AD%D9%84%D8%AA%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A/)
+
+
+### portugal fc (N/A, Sun, 27 Sep 2026 13:10:00 -0700)
+
+- **Tanner Omlid e a alma de campeão do FC Porto na Supertaça: “Aqui é até ao fim”**: [Link](https://superportistas.pt/noticias/futebol/tanner-omlid-e-a-alma-de-campeao-do-fc-porto-na-supertaca-aqui-e-ate-ao-fim/)
+- **Bernardo Pires conformado com a derrota do Sporting na Supertaça: «Estamos a construir as nossas rotinas»**: [Link](https://www.record.pt/modalidades/basquetebol/detalhe/bernardo-pires-conformado-com-a-derrota-do-sporting-na-supertaca-estamos-a-construir-as-nossas-rotinas)
+- **FC Porto conquista XLI Supertaça Mário Saldanha em Albufeira**: [Link](https://www.fpb.pt/noticia/fc-porto-conquista-xli-supertaca-mario-saldanha-em-albufeira/)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Sun, 27 Sep 2026 13:00:00 -0700)
+
+- **بوتسوانا تنسحب من ملف "كان 2028"**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%AA%D8%B3%D9%88%D8%A7%D9%86%D8%A7-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D9%85%D9%86-%D9%85%D9%84%D9%81-%D9%83%D8%A7%D9%86-2028-1814021.html)
+- **بوتسوانا تنسحب من سباق استضافة كأس أمم إفريقيا 2028 – اليوم 24**: [Link](https://alyaoum24.com/2046913.html)
+- **بوتسوانا تنسحب من الملف المشترك مع جنوب إفريقيا وزيمبابوي لإستضافة كأس أمم إفريقيا 2028**: [Link](https://www.jawharafm.net/ar/article/%D8%A8%D9%88%D8%AA%D8%B3%D9%88%D8%A7%D9%86%D8%A7-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%84%D9%81-%D8%A7%D9%84%D9%85%D8%B4%D8%AA%D8%B1%D9%83-%D9%85%D8%B9-%D8%AC%D9%86%D9%88%D8%A8-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D8%B2%D9%8A%D9%85%D8%A8%D8%A7%D8%A8%D9%88%D9%8A-%D9%84%D8%A5%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2028/96/299591?fbclid=IwY2xjawUl84dleHRuA2FlbQIxMQBwZG9mBXNydGMGYXBwX2lkDDM1MDY4NTUzMTcyOAABHmlZeUORBVB52mMSxEZsS08U4zz-Al1NYMr710j4139fucG7VoOxQt7a4cfU_aem_cCT7yQsy_K4FNLqHGtwp9A)
+
+
+### الطقس غدًا (N/A, Sun, 27 Sep 2026 12:50:00 -0700)
+
+- **«جهزوا الكمامات».. بيان عاجل بشأن حالة الطقس غدا الأحد**: [Link](https://www.almasryalyoum.com/news/details/4368714)
+- **الأرصاد: ظهور سحب ركامية في الصحراء الغربية وفرص لسقوط الأمطار**: [Link](https://elbaladtv.net/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%B8%D9%87%D9%88%D8%B1-%D8%B3%D8%AD%D8%A8-%D8%B1%D9%83%D8%A7%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%BA)
+- **درجات الحرارة اليوم الإثنين 28 سبتمبر 2026.. العظمى بالقاهرة 32 درجة**: [Link](https://www.youm7.com/story/2026/9/28/%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-28-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2026-%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D9%89-%D8%A8%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-32/7559686)
+
+
+### météo demain (N/A, Sun, 27 Sep 2026 12:40:00 -0700)
+
+
+
+
+### tiempo mañana (N/A, Sun, 27 Sep 2026 12:40:00 -0700)
+
+- **Clima en Capital Federal hoy: pronóstico del tiempo en vivo**: [Link](https://www.eldestapeweb.com/sociedad/clima-en-capital-federal-hoy-pronostico-del-tiempo-en-vivo-20269273020)
+
+
+### germany vs greece (N/A, Sun, 27 Sep 2026 12:40:00 -0700)
+
+- **Germany 0-1 Greece: Jurgen Klopp's side stunned in Nations League**: [Link](https://www.bbc.com/sport/football/live/cqpve31xg1rxt)
+- **!!+[HD/Live] (FWC!)* Germany football team vs Greece Live Free Ｓｔｒｅａｍｓ On Ｔｖ 29 September 2096**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2NpbWFuZ28uZ2l0aHViLmlvL3NhbmkvdTJsLnhtbCIvPjwva3JwYW5vPg==&id=germany-football-team-vs-greece-2026-live-on-tv-free-onl01-705)
+- **Tzolis after historic Greece win: “I’m happy it happened today!”**: [Link](https://bulinews.com/tzolis-after-historic-greece-win-happy-happened-today)
+
+
+### weather tomorrow (N/A, Sun, 27 Sep 2026 12:30:00 -0700)
+
+- **!!+[HD/Live] (FWC!)* Titans vs Giants 𝕃𝕚𝕧𝕖 Ｆｒｅｅ Ｓｔｒｅａｍ**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3NhZ29ybWlhMDA0Ny5naXRodWIuaW8vYW50c3RyZWFtL2EueG1sIi8+PC9rcnBhbm8+&id=video-titans-vs-giants-live-5k_today-match_tvx1-19)
+- **Brian Daboll Downplays Emotions of MetLife Stadium Return With Titans**: [Link](https://athlonsports.com/nfl/new-york-giants/brian-daboll-titans-giants-return-metlife-emotions)
+- **Titans vs Giants score, live updates, highlights, stats from Week 3 game**: [Link](https://www.tennessean.com/story/sports/nfl/titans/2026/09/27/giants-titans-score-updates-highlights-stats-nfl-week-3--live/91845972007/)
+
+
 ### نادي الرجاء الرياضي (N/A, Sun, 27 Sep 2026 11:50:00 -0700)
 
 - **أرمومن يؤكد أن الخويدسي ضحية "التهميش" بالرجاء**: [Link](https://barlamanesport.com/%D8%A3%D8%B1%D9%85%D9%88%D9%85%D9%86-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D8%A7%D9%84%D8%AE%D9%88%D9%8A%D8%AF%D8%B3%D9%8A-%D8%B6%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D9%87%D9%85%D9%8A%D8%B4/)
