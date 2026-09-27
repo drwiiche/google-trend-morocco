@@ -1,3 +1,73 @@
+### نادي الرجاء الرياضي (N/A, Sun, 27 Sep 2026 11:50:00 -0700)
+
+- **أرمومن يؤكد أن الخويدسي ضحية "التهميش" بالرجاء**: [Link](https://barlamanesport.com/%D8%A3%D8%B1%D9%85%D9%88%D9%85%D9%86-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D8%A7%D9%84%D8%AE%D9%88%D9%8A%D8%AF%D8%B3%D9%8A-%D8%B6%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D9%87%D9%85%D9%8A%D8%B4/)
+- **جماهير الرجاء تعض أصابع الندم بعد خسارة الوداد.. ماذا يحدث؟**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%AA%D8%B9%D8%B6-%D8%A3%D8%B5%D8%A7%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D8%AF%D9%85-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%AD%D8%AF%D8%AB%D8%9F)
+- **جماهير الرجاء تنفجر غضبا بسبب تألق خويدسي أمام الوداد**: [Link](https://www.almountakhab.com/node/13231001)
+
+
+### portugal (N/A, Sun, 27 Sep 2026 11:40:00 -0700)
+
+- **[[esporte**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2NpbWFuZ28uZ2l0aHViLmlvL3NhbmkvdTJsLnhtbCIvPjwva3JwYW5vPg==&id=noruega-x-portugal-ao-vivo-liv-en-ditecto-brr-ukk1-108)
+- **Jorge Jesus mantém dúvida sobre titularidade de Ronaldo (áudio)**: [Link](https://madeira.rtp.pt/desporto/jorge-jesus-mantem-duvida-sobre-titularidade-de-ronaldo-audio/)
+- **Bruno Fernandes deixa o hotel da Seleção Nacional**: [Link](https://cnnportugal.iol.pt/videos/bruno-fernandes-deixa-o-hotel-da-selecao-nacional/6ab8f1dc0cf22b9f8904cd01)
+
+
+### visa (N/A, Sun, 27 Sep 2026 11:40:00 -0700)
+
+- **‘We have handcuffs ready’: Trump admin warns of major H-1B changes as visa fraud crackdown widens**: [Link](https://timesofindia.indiatimes.com/world/us/we-have-handcuffs-ready-trump-admin-warns-of-major-h-1b-changes-as-visa-fraud-crackdown-widens/articleshow/134519521.cms)
+- **H-1B under the scanner: Trump admin signals major changes to visa system in 365 days**: [Link](https://m.economictimes.com/nri/work/h-1b-visa-under-the-scanner-trump-admin-signals-major-changes-to-system-in-365-days/articleshow/134521356.cms)
+- **Exclusive | Tech Industry Calls on Trump Administration to Withdraw New H-1B Visa Fee**: [Link](https://www.wsj.com/politics/policy/tech-industry-calls-on-trump-administration-to-withdraw-new-h-1b-visa-fee-dcf918f8)
+
+
+### portugal vs (N/A, Sun, 27 Sep 2026 11:20:00 -0700)
+
+- **Uefa Nations League today: How to watch Norway v Portugal, TV channels & live stream Sunday 27 September**: [Link](https://www.theguardian.com/football/2026/sep/27/how-to-watch-uefa-nations-league-norway-portugal)
+- **Haaland meets Ronaldo as Nations League Matchday 2 gets underway**: [Link](https://enterpriseam.com/egypt/2026/09/27/haaland-meets-ronaldo-as-nations-league-matchday-2-gets-underway/)
+- **!+[𝐒𝐓ream]HERE'S*!$ Norway Football Team vs Portugal Match Live streams**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2hhcHB5bmVwcHkuZ2l0aHViLmlvL2JhYnUvbnVudS54bWwiLz48L2tycGFubz4=&id=norway-football-team-vs-portugal-liv-on-tv-18)
+
+
+### norvège – portugal (N/A, Sun, 27 Sep 2026 11:00:00 -0700)
+
+- **Suivez Norvège - Portugal EN DIRECT, Ligue des Nations A 2026/2027, Groupe 4, 2e journée**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-norvege-portugal_mtc20005954/live-commentary.shtml)
+- **Duel de machines à buts ! Ronaldo, en quête des 1 000 buts, prêt à gâcher la fête de Haaland après la folie à Oslo**: [Link](https://fr.news.yahoo.com/sport/duel-machines-%C3%A0-buts-ronaldo-112558090.html)
+- **PRONOS PARIS RMC Le pari du jour du 27 septembre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-27-septembre-ligue-des-nations_AN-202609260262.html)
+
+
+### norway vs portugal (N/A, Sun, 27 Sep 2026 11:00:00 -0700)
+
+- **Portugal Head coach says Cristiano Ronaldo is not 20-year old Joao Neves**: [Link](https://indianexpress.com/article/sports/football/portugal-head-coach-says-cristiano-ronaldo-is-is-not-20-year-old-joao-neves-10895736/)
+- **"He's not the age of João Neves": Jesus surprises everyone with a striking statement about Ronaldo**: [Link](https://www.goal.com/en/news/not-at-joao-neves-s-age-jesus-surprises-everyone-with-a-striking-comment-about-ronaldo/bltb3c821b1f60159de)
+- **‘He can do better’ – Ronaldo’s Portugal starting spot in doubt as Jorge Jesus refuses to commit**: [Link](https://footmundo.co.uk/jorge-jesus-cristiano-ronaldo-portugal-norway-starting-spot/)
+
+
+### النرويج ضد البرتغال (N/A, Sun, 27 Sep 2026 11:00:00 -0700)
+
+- **جدول مباريات اليوم الأحد 27 سبتمبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-27-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltfeebda32d1d295e4)
+- **مباشر مباراة البرتغال ضد النرويج في دوري الأمم الأوروبية.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-%D9%81%D9%8A)
+- **جيسوس: برونو فرنانديز يلعب مع مانشستر يونايتد مصابًا**: [Link](https://twaslnews1.twaslnews.com/5333788/)
+
+
+### نادي وداد تمارة (N/A, Sun, 27 Sep 2026 10:40:00 -0700)
+
+- **الوداد يستهل الدوري المغربي بخسارة مهينة على أرضه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%87%D9%8A%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B1%D8%B6%D9%87/bltaa7afff18fb89691)
+- **وداد تمارة يهزم الوداد في "دونور"**: [Link](https://www.hespress.com/%D9%88%D8%AF%D8%A7%D8%AF-%D8%AA%D9%85%D8%A7%D8%B1%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D9%86%D9%88%D8%B1-1814154.html)
+- **مدرب الوداد يكشف سبب الانهيار أمام وداد تمارة**: [Link](https://radiomars.ma/%D8%A8%D8%A7%D9%88%D9%84%D9%88-%D8%B3%D9%8A%D8%B1%D8%AC%D9%8A%D9%88-%D8%A3%D8%AE%D8%B7%D8%A7%D8%A1-%D8%A7%D9%84%D8%AA%D9%85%D8%B1%D9%83%D8%B2-%D8%A8%D8%AF%D8%AF%D8%AA-%D9%85%D8%AC%D9%87%D9%88%D8%AF/)
+
+
+### مضيق هرمز (N/A, Sun, 27 Sep 2026 09:50:00 -0700)
+
+- **هرمز واليمن: تهدئة إيرانية معروضة بثمن يدفعه الآخرون**: [Link](https://www.aljazeera.net/opinions/2026/9/27/%D9%87%D8%B1%D9%85%D8%B2-%D9%88%D8%A7%D9%84%D9%8A%D9%85%D9%86-%D8%AA%D9%87%D8%AF%D8%A6%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D9%85%D8%B9%D8%B1%D9%88%D8%B6%D8%A9-%D8%A8%D8%AB%D9%85%D9%86)
+- **لماذا رفض ترامب عرض إيران؟.. واشنطن توضح الأسباب**: [Link](https://www.skynewsarabia.com/world/1894675-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%B1%D9%81%D8%B6-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D8%B9%D8%B1%D8%B6-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D9%88%D8%B6%D8%AD-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8)
+- **السلطات الإيرانية تفيد بمقتل شخص بضربة على سفينة تجارية في مضيق هرمز**: [Link](https://ar.telquel.ma/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%B4%D8%B1%D9%88%D8%B7%D9%87%D8%A7-%D9%84%D9%81%D8%AA%D8%AD-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2/)
+
+
+### 2028 (N/A, Sun, 27 Sep 2026 09:00:00 -0700)
+
+- **The AI debate is already shaping the 2028 election. Here’s where Democratic hopefuls stand**: [Link](https://www.theguardian.com/us-news/2026/sep/26/potential-2028-democratic-presidential-candidates-ai)
+- **How Potential 2028 Presidential Candidates Are Talking About A.I.**: [Link](https://www.nytimes.com/2026/09/21/us/politics/2028-presidential-race-artificial-intelligence.html)
+- **Will AI kill us? Mark Kelly doubts it, but worries it could kill jobs | Exclusive**: [Link](https://www.azcentral.com/story/money/tech/2026/09/24/mark-kelly-says-ai-likely-wont-kill-us-but-could-kill-jobs/91911961007/)
+
+
 ### guinée conakry (N/A, Sun, 27 Sep 2026 07:40:00 -0700)
 
 - **Guinée : une figure de l'opposition, ancien Premier ministre, décède à Paris  **: [Link](https://fr.africanews.com/2026/09/26/guinee-une-figure-de-lopposition-ancien-premier-ministre-decede-a-paris/)
