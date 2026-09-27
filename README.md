@@ -1,3 +1,10 @@
+### spain vs (N/A, Sat, 26 Sep 2026 11:30:00 -0700)
+
+- **England 2-3 Spain: World champions come from behind to win at Wembley after Kane penalty miss**: [Link](https://www.bbc.com/sport/football/live/c9j3dpkxe5vdt)
+- **England 2-3 Spain: Nations League football – as it happened**: [Link](https://www.theguardian.com/football/live/2026/sep/26/england-v-spain-nations-league-football-live-score-updates)
+- **Spain player ratings vs England: Alex Baena and Mikel Oyarzabal inspire stunning comeback at Wembley**: [Link](https://www.goal.com/en-ca/lists/spain-player-ratings-england-alex-baena-mikel-oyarzabal-inspire-stunning-comeback-wembley/blt50bf7d52d222d2cf)
+
+
 ### الوداد (N/A, Sat, 26 Sep 2026 15:10:00 -0700)
 
 - **الوداد يستهل الدوري المغربي بخسارة مهينة على أرضه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%87%D9%8A%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B1%D8%B6%D9%87/bltaa7afff18fb89691)
