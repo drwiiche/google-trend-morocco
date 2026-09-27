@@ -1,3 +1,36 @@
+### منتخب السعودية لكرة القدم (N/A, Sun, 27 Sep 2026 03:00:00 -0700)
+
+- **فيديو: استعرض عضلاته أمام عمان.. المنتخب السعودي أول المتأهلين لنصف نهائي خليجي 27**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D8%B3%D8%AA%D8%B9%D8%B1%D8%B6-%D8%B9%D8%B6%D9%84%D8%A7%D8%AA%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B9%D9%85%D8%A7%D9%86--%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%94%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D9%8A%D9%86-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27/blt3cbd4786e4c9a6da)
+- **شاهد.. السعودية تتأهل لنصف نهائي خليجي 27 بفوز كبير على عُمان**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/26/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%B6%D8%AF-%D8%B9%D9%85%D8%A7%D9%86-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27)
+- **خليجي 27: المنتخب السعودي يتأهل إلى المربع الذهبي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A-2026-09-26)
+
+
+### السعودية (N/A, Sun, 27 Sep 2026 01:10:00 -0700)
+
+- **الملك: استهداف السعودية اعتداء على مشاعر أكثر من مليار مسلم**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D9%85%D8%B4%D8%A7-1814107.html)
+- **كأس العرب: المدرب المغربي السلامي يقود الأردن إلى النهائي للمرة الأولى على حساب السعودية**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%AF%D9%8A%D9%86-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D9%88%D8%AB%D9%8A%D9%8A%D9%86/)
+- **الملك محمد السادس: أي اعتداء على السعودية هو اعتداء على المغرب**: [Link](https://assabah.ma/951939.html)
+
+
+### rayan ait nouri (N/A, Sun, 27 Sep 2026 01:10:00 -0700)
+
+- **Rayan Aït-Nouri renvoyé du stage de l'Algérie par son sélectionneur Brahim Hemdani**: [Link](https://www.lequipe.fr/Football/Actualites/Rayan-ait-nouri-renvoye-du-stage-de-l-algerie-par-son-selectionneur-brahim-hemdani/1721412)
+- **Algérie : Brahim Hemdani est au cœur d’une première polémique avec un cadre !**: [Link](https://www.footmercato.net/a4697829772891695439-algerie-brahim-hemdani-est-au-coeur-dune-premiere-polemique-avec-un-cadre)
+- **ANALYSE TECHNICO-TACTIQUE : De la verticalité offensive, mais une défense encore fébrile - Sports**: [Link](https://www.lesoirdalgerie.com/sports/de-la-verticalite-offensive-mais-une-defense-encore-febrile-157744)
+
+
+### prix (N/A, Sat, 26 Sep 2026 23:40:00 -0700)
+
+- **Wall Street clôture en hausse, soutenue par le repli du pétrole**: [Link](https://medias24.com/agence-presse/wall-street-cloture-en-hausse-soutenue-par-le-repli-du-petrole/)
+- **Le pétrole grimpe faute de progrès au Moyen-Orient**: [Link](https://mobile.telquel.ma/instant-t/2026/09/24/le-petrole-grimpe-faute-de-progres-au-moyen-orient_2009558/)
+- **Economie - Le Brent pointe à 104,32 dollars**: [Link](https://www.lexpressiondz.com/economie/le-brent-pointe-a-104-32-dollars-409823)
+
+
+### akhbarona (N/A, Sat, 26 Sep 2026 23:10:00 -0700)
+
+
+
+
 ### mexique – colombie (N/A, Sat, 26 Sep 2026 17:40:00 -0700)
 
 - **Mexico vs Colombia: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cr3wj0qql7dzt)
