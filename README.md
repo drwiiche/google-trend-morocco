@@ -1,3 +1,45 @@
+### guinée conakry (N/A, Sun, 27 Sep 2026 07:40:00 -0700)
+
+- **Guinée : une figure de l'opposition, ancien Premier ministre, décède à Paris  **: [Link](https://fr.africanews.com/2026/09/26/guinee-une-figure-de-lopposition-ancien-premier-ministre-decede-a-paris/)
+- **Décès de Sidya Touré : Dr Ousmane Kaba rend hommage à un « grand frère » de près de trente ans**: [Link](https://guineenews.org/2026/09/26/deces-de-sidya-toure-dr-ousmane-kaba-rend-hommage-a-un-grand-frere-de-pres-de-trente-ans/)
+- **Flash info 17:00 TU (26.09.2026)**: [Link](https://www.dw.com/fr/flash-info-1700-tu-26092026/audio-79445365)
+
+
+### majorque – almería (N/A, Sun, 27 Sep 2026 07:30:00 -0700)
+
+- **Majorque - UD Almería en direct - LaLiga Hypermotion : Football Scores & Résultats - 27/09/2026**: [Link](https://www.eurosport.fr/football/laliga-hypermotion/2026-2027/live-majorque-ud-almeria_mtc21892268/live.shtml)
+- **Pronostic Majorque vs Almeria 27 Septembre 2026**: [Link](https://dailysports.net/fr/predictions/lattaque-andalouse-percera-t-elle-la-defense-monolithique-des-baleares-pronostic-pour-le-match-de-liga-2-entre-majorque-et-almeria/)
+- **Pronostic Majorque - Almería, LaLiga 2 - 27/09/2026**: [Link](https://www.sportytrader.com/pronostics/majorque-almeria-374940/)
+
+
+### avion ravitailleur (N/A, Sun, 27 Sep 2026 07:00:00 -0700)
+
+- **La marine indienne envisage de se doter d’une flotte d’avions ravitailleurs**: [Link](https://www.opex360.com/2026/09/26/la-marine-indienne-envisage-de-se-doter-dune-flotte-davions-ravitailleurs/)
+- **n°1295. Avec Oryx 26, les F-16 marocains s’entraînent à opérer loin de leurs bases**: [Link](https://ledesk.ma/enclair/avec-oryx-26-les-f-16-marocains-sentrainent-a-operer-loin-de-leurs-bases/)
+- **F-16 et Rafale dans le même ciel: grand entraînement conjoint franco-marocain dans le Vaucluse**: [Link](https://fr.le360.ma/politique/f-16-et-rafale-dans-le-meme-ciel-grand-entrainement-conjoint-franco-marocain-dans-le-vaucluse_ET4YSY6FEZDSPPQBEXIWHPJ2R4/)
+
+
+### webook (N/A, Sun, 27 Sep 2026 06:20:00 -0700)
+
+- **Maroc-Ghana : la billetterie ouvre, découvrez les tarifs**: [Link](https://radiomars.ma/fr/?p=6389)
+- **انطلاق بيع تذاكر ودية المنتخب الوطني وغانا**: [Link](https://assabah.ma/951967.html)
+- **انطلاق بيع تذاكر لقاء "الأسود" وغانا**: [Link](https://www.hesport.com/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%88%D8%BA%D8%A7%D9%86%D8%A7-456086.html)
+
+
+### دواجن (N/A, Sun, 27 Sep 2026 05:30:00 -0700)
+
+- **ارتفاع أسعار البيض في مصر... «سندوتشات المدارس» تعوض «خسائر الطيبات»**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/5322892-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%B3%D9%86%D8%AF%D9%88%D8%AA%D8%B4%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D8%B1%D8%B3-%D8%AA%D8%B9%D9%88%D8%B6-%D8%AE%D8%B3%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%B7%D9%8A%D8%A8%D8%A7%D8%AA)
+- **شعبة الدواجن: زيادة الأسعار تصحيح طبيعي بعد 8 أشهر من الخسائر الفادحة.. ولا مغالاة على المواطنين**: [Link](https://twaslnews1.twaslnews.com/5315588/)
+- **تعرف على أسعار الفراخ في السوق.. اليوم الأحد**: [Link](https://www.akhbarelnaselyoum.com/archives/204468)
+
+
+### وزير التعليم (N/A, Sun, 27 Sep 2026 04:50:00 -0700)
+
+- **«القراءة والحساب».. لماذا تعود وزارة التربية والتعليم إلى الأساسيات؟**: [Link](https://www.soutalomma.com/Article/1252042/%C2%AB%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%88%D8%A7%D9%84%D8%AD%D8%B3%D8%A7%D8%A8%C2%BB-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D8%B9%D9%88%D8%AF-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A7%D8%AA)
+- **وزير التعليم يكرم معلمة كفر الشيخ خلال إطلاق المرحلة الرابعة لتنمية مهارات اللغة العربية**: [Link](https://twaslnews1.twaslnews.com/5298255/)
+- **منظمة اليونيسف: الأطفال حققوا تقدما فى مهارات القراءة والكتابة**: [Link](https://www.youm7.com/story/2026/9/26/%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D9%8A%D8%B3%D9%81-%D8%A7%D9%84%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D8%AD%D9%82%D9%82%D9%88%D8%A7-%D8%AA%D9%82%D8%AF%D9%85%D8%A7-%D9%81%D9%89-%D9%85%D9%87%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%88%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D8%A8%D8%A9/7558418)
+
+
 ### منتخب السعودية لكرة القدم (N/A, Sun, 27 Sep 2026 03:00:00 -0700)
 
 - **فيديو: استعرض عضلاته أمام عمان.. المنتخب السعودي أول المتأهلين لنصف نهائي خليجي 27**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D8%B3%D8%AA%D8%B9%D8%B1%D8%B6-%D8%B9%D8%B6%D9%84%D8%A7%D8%AA%D9%87-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B9%D9%85%D8%A7%D9%86--%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%94%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%87%D9%84%D9%8A%D9%86-%D9%84%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27/blt3cbd4786e4c9a6da)
