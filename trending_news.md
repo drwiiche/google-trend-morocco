@@ -1,3 +1,73 @@
+### باريس سان جيرمان (N/A, Mon, 28 Sep 2026 12:00:00 -0700)
+
+- **صدمة للبارسا.. نجم برشلونة يغيب عن مواجهتي سان جيرمان والكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D9%84%D9%84%D8%A8%D8%A7%D8%B1%D8%B3%D8%A7--%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D9%8A-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt61b9eb88ddcc3b0a)
+- **مارك بيرنال يقترب من دور أكبر في برشلونة**: [Link](https://twaslnews1.twaslnews.com/5323635/)
+- **فليك يحسم موقفه من مستقبل دي يونج مع برشلونة**: [Link](https://gate.ahram.org.eg/News/5935078.aspx)
+
+
+### tunisie – botswana (N/A, Mon, 28 Sep 2026 12:00:00 -0700)
+
+- **La Tunisie, le Maroc et l’Algérie se tournent vers la CAN 2027**: [Link](https://www.beurfm.net/la-tunisie-le-maroc-et-l-algerie-se-tournent-vers-la-can-2027)
+- **Tunisie. Football : Chaâbani face au premier test, entre reconstruction et retour aux anciens**: [Link](https://www.lecourrierdelatlas.com/tunisie-football-chaabani-face-au-premier-test-entre-reconstruction-et-retour-aux-anciens/)
+- **Éliminatoires CAN 2027 : La CAF valide la comptabilisation des points face à l’Ouganda… Statu quo dans le Groupe H**: [Link](https://www.tunisie-tribune.com/2026/09/26/eliminatoires-can-2027-la-caf-valide-la-comptabilisation-des-points-face-a-louganda-statu-quo-dans-le-groupe-h/)
+
+
+### كأس العالم لكرة القدم 2030 (N/A, Mon, 28 Sep 2026 11:20:00 -0700)
+
+- **نهائي مونديال 2030… لماذا المغرب “الأحق” بالتنظيم من إسبانيا؟**: [Link](https://www.alquds.co.uk/%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D8%AD%D9%82-%D8%A8%D8%A7/)
+- **كأس العالم 2030... كيف سيحسم فيفا هوية ملعب النهائي؟**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2030-%D9%83%D9%8A%D9%81-%D8%B3%D9%8A%D8%AD%D8%B3%D9%85-%D9%81%D9%8A%D9%81%D8%A7-%D9%87%D9%88%D9%8A%D8%A9-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A)
+- **بدر الدين الإدريسي لـ "راديو مارس": معايير الفيفا ترجح كفة ملعب الحسن الثاني لاستضافة نهائي كأس العالم**: [Link](https://radiomars.ma/%D8%A8%D8%AF%D8%B1-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%A5%D8%AF%D8%B1%D9%8A%D8%B3%D9%8A-%D9%84%D9%80-%D8%B1%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D8%B1%D8%B3-%D9%85%D8%B9%D8%A7%D9%8A/)
+
+
+### إيرانيون (N/A, Mon, 28 Sep 2026 11:20:00 -0700)
+
+- **الأدميرال سياري: العدو أخطأ بتجاهله الشعب الإيراني في حساباته**: [Link](https://www.tasnimnews.ir/ar/news/2026/09/28/3708392/%D8%A7%D9%84%D8%A3%D8%AF%D9%85%DB%8C%D8%B1%D8%A7%D9%84-%D8%B3%DB%8C%D8%A7%D8%B1%DB%8C-%D8%A7%D9%84%D8%B9%D8%AF%D9%88-%D8%A3%D8%AE%D8%B7%D8%A3-%D8%A8%D8%AA%D8%AC%D8%A7%D9%87%D9%84%D9%87-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D8%A7%D9%84%D8%A5%DB%8C%D8%B1%D8%A7%D9%86%DB%8C-%D9%81%DB%8C-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA%D9%87)
+- **Farsnews | اللواء عبداللهي: الجنود ركيزة تعزيز القدرات الدفاعية ورفع مستوى الردع الوطني**: [Link](https://farsnews.ir/khezri3279/1790418053942767752/%D8%A7%D9%84%D9%84%D9%88%D8%A7%D8%A1-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87%D9%8A-%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%AF-%D8%B1%D9%83%D9%8A%D8%B2%D8%A9-%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D9%82%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9%D9%8A%D8%A9-%D9%88%D8%B1%D9%81%D8%B9-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D8%A7%D9%84%D8%B1%D8%AF%D8%B9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A)
+- **الأدميرال سياري يؤكد على جاهزية الشعب والقوات المسلحة لمواجهة تهديدات العدو**: [Link](https://www.islamtimes.com/ar/news/1308987/%D8%A7%D9%84%D8%A3%D8%AF%D9%85%D9%8A%D8%B1%D8%A7%D9%84-%D8%B3%D9%8A%D8%A7%D8%B1%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B9%D9%84%D9%89-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8-%D9%88%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B3%D9%84%D8%AD%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%AF%D9%88)
+
+
+### belgium vs france (N/A, Mon, 28 Sep 2026 11:00:00 -0700)
+
+- **Today's (Monday) match schedule and broadcasting channels: Belgium faces France in the UEFA Nations League**: [Link](https://www.voiceofemirates.com/en/sport/2026/09/28/todays-monday-match-schedule-and-broadcasting-channels-belgium-faces-france-in-the-uefa-nations-league/)
+- **How to watch today's Finland vs Belarus UEFA Nations League C game anywhere in the world with a VPN**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-finland-v-belarus/blt80135aa760d5a2ff)
+- **Diouf and Da Cunha granted France debuts in Nations League with Belgium**: [Link](https://football-italia.net/diouf-and-da-cunha-granted-france-debuts/)
+
+
+### بلجيكا ضد فرنسا (N/A, Mon, 28 Sep 2026 11:00:00 -0700)
+
+- **جدول مباريات اليوم الإثنين 28 سبتمبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-28-%D8%B3%D8%A8%D8%AA%D9%85%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltb3ac9650d3d37089)
+- **مباشر.. مباراة بلجيكا ضد فرنسا في دوري الأمم الأوروبية.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/28/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D8%B6%D8%AF-%D9%81%D8%B1%D9%86%D8%B3%D8%A7)
+- **دوري الأمم: زيدان أمام أول اختبار حقيقي بمواجهة بلجيكا وغياب ورقته الرابحة**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260928-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%88%D9%84-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%AD%D9%82%D9%8A%D9%82%D9%8A-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D9%88%D8%BA%D9%8A%D8%A7%D8%A8-%D9%88%D8%B1%D9%82%D8%AA%D9%87-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%AD%D8%A9-1)
+
+
+### turquie – italie (N/A, Mon, 28 Sep 2026 11:00:00 -0700)
+
+- **Ligue des nations (2e journée) : Suivez Turquie – Italie EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-turquie-italie_mtc20005863/live-commentary.shtml)
+- **Italie : Roberto Mancini écarte dix joueurs avant d’affronter la Turquie**: [Link](https://www.footmercato.net/a6766296609705142696-italie-roberto-mancini-ecarte-dix-joueurs-avant-daffronter-la-turquie)
+- **« Cette fois, nous gagnerons » : Montella promet une victoire de la Turquie contre l'Italie**: [Link](https://www.fotmob.com/fr/news/tafeaa7zwemq1wkj09tgzehu3_fr-cette-fois-nous-gagnerons-montella-promet-une-victoire-de-la-turquie-contre-litalie)
+
+
+### belgique – france (N/A, Mon, 28 Sep 2026 10:50:00 -0700)
+
+- **Suivez Belgique-France en direct, Ligue des Nations A, groupe 1, 2e journée : les Bleus de Zidane veulent confirmer face aux Diables Rouges (20h45)**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-belgique-france_mtc20005956/live-commentary.shtml)
+- **Lepaul, Jacquet, Diouf et Da Cunha titulaires : Zinédine Zidane change neuf joueurs face à la Belgique**: [Link](https://www.lequipe.fr/Football/Actualites/Lepaul-jacquet-diouf-et-da-cunha-titulaires-zinedine-zidane-change-neuf-joueurs-face-a-la-belgique/1721925)
+- **À quelle heure et sur quelle chaîne TV voir Belgique - France**: [Link](https://www.20minutes.fr/sport/football/4249147-20260928-belgique-france-chaine-tv-heure-voir-match-bleus-ligue-nations)
+
+
+### kick (N/A, Mon, 28 Sep 2026 09:10:00 -0700)
+
+- **Sarkisian addresses Tennessee onside kick SEC says was incorrectly officiated**: [Link](https://sports.yahoo.com/articles/sarkisian-addresses-tennessee-onside-kick-185143026.html)
+- **SEC issues statement about illegal onside kick in Tennessee-Texas**: [Link](https://collegesportswire.usatoday.com/story/sports/college/college-football/2026/09/28/tennessee-football-onside-kick-texas-illegal-sec-statement/91991196007/)
+- **SEC Admits Officiating Error on Tennessee vs. Texas Game**: [Link](https://www.si.com/college/tennessee/football/sec-admits-officiating-error-on-tennessee-vs-texas-game-01m3mc2c1q2x)
+
+
+### diphtérie (N/A, Mon, 28 Sep 2026 08:30:00 -0700)
+
+- **CHU d’Agadir : ce que l’on sait des cas suspects de diphtérie**: [Link](https://medias24.com/2026/09/27/chu-dagadir-ce-que-lon-sait-des-cas-suspects-de-diphterie-1766239/)
+- **Diphtérie à Souss-Massa: deux foyers détectés, un cas confirmé et huit en cours d’investigation**: [Link](https://fr.le360.ma/societe/diphterie-a-agadir-deux-foyers-detectes-un-cas-confirme-et-huit-en-cours-dinvestigation_TES364YQENFH5BT2IOKOOKTNNY/)
+- **Diphtérie : deux foyers familiaux détectés à Agadir et Chtouka Aït Bah**: [Link](https://www.leconomiste.com/flash-infos/diphterie-deux-foyers-familiaux-detectes-a-agadir-et-chtouka-ait-bah/)
+
+
 ### irlande (N/A, Mon, 28 Sep 2026 04:40:00 -0700)
 
 - **The story behind Israel vs Ireland: Bowed heads, black armbands and a one-man boycott**: [Link](https://www.nytimes.com/athletic/7636549/2026/09/28/israel-ireland-uefa-gaza/)
