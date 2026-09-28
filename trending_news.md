@@ -1,3 +1,73 @@
+### irlande (N/A, Mon, 28 Sep 2026 04:40:00 -0700)
+
+- **The story behind Israel vs Ireland: Bowed heads, black armbands and a one-man boycott**: [Link](https://www.nytimes.com/athletic/7636549/2026/09/28/israel-ireland-uefa-gaza/)
+- **Ireland soccer boss says team ‘raised awareness’ about Gaza during Israel game**: [Link](https://www.timesofisrael.com/liveblog_entry/ireland-soccer-boss-says-team-raised-awareness-about-gaza-during-israel-game/)
+- **Irish player leaves team as remaining players vote to play Israel games amid pressure to boycott**: [Link](https://www.cnn.com/2026/09/26/sport/ireland-israel-uefa-nations-league)
+
+
+### japon – venezuela (N/A, Mon, 28 Sep 2026 03:10:00 -0700)
+
+- **Pronostic Japon - Venezuela : Avantage du terrain**: [Link](https://baonghean.vn/fr/nhan-dinh-nhat-ban-vs-venezuela-diem-tua-san-nha-10352316.html)
+- **Pronostic Japon vs Venezuela 28 Septembre 2026**: [Link](https://dailysports.net/fr/predictions/le-japon-a-remporte-six-matchs-amicaux-consecutifs-pronostic-pour-japon-venezuela/)
+- **Composition Japon - Venezuela, Matchs amicaux internationaux, 1ère journée, match du lundi 28 septembre 2026**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/live/2026/match-japon-venezuela-tous-les-matchs_FM-260729894803.html)
+
+
+### بادو الزاكي (N/A, Mon, 28 Sep 2026 02:30:00 -0700)
+
+- **"اعتذار وتعهد".. بيان أردني عاجل بعد أول مباراة للزاكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B9%D8%AA%D8%B0%D8%A7%D8%B1-%D9%88%D8%AA%D8%B9%D9%87%D8%AF--%D8%A8%D9%8A%D8%A7%D9%86-%D8%A7%D9%94%D8%B1%D8%AF%D9%86%D9%8A-%D8%B9%D8%A7%D8%AC%D9%84-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%84%D8%B2%D8%A7%D9%83%D9%8A/blt17fa975622f71e6d)
+- **الأردن يتعادل في أول لقاء مع الزاكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D9%84%D9%82%D8%A7%D8%A1-%D9%85%D8%B9-%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A-1814535.html)
+- **شاهد.. ملخص وأهداف مباراة الأردن ضد سوريا استعدادا لكأس آسيا لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/9/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%B6%D8%AF-%D8%B3%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7)
+
+
+### حسام حسن (N/A, Mon, 28 Sep 2026 01:20:00 -0700)
+
+- **المسكوت عنه في حرب "الفراعنة".. هل دفع حسام حسن ثمن أخطر صراع في الأهلي؟**: [Link](https://www.eremnews.com/sports/i5f9aoq)
+- **حسام حسن يفتح أربع جبهات.. ومستقبله مع منتخب مصر على المحك**: [Link](https://www.alaraby.co.uk/sport/%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A3%D8%B1%D8%A8%D8%B9-%D8%AC%D8%A8%D9%87%D8%A7%D8%AA-%D9%88%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84%D9%87-%D9%85%D8%B9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AD%D9%83)
+- **شريف إكرامي يُعلق لأول مرة على أزمة محمد الشناوي: أين مصلحة الأهلي؟**: [Link](https://twaslnews1.twaslnews.com/5354973/)
+
+
+### retraite (N/A, Mon, 28 Sep 2026 01:10:00 -0700)
+
+- **Il percevait une allocation néerlandaise au Maroc depuis les années 1980 : tout s'arrête à la retraite**: [Link](https://www.bladi.net/percevait-allocation-neerlandaise-maroc-annees-arrete-retraite,124031.html)
+- **Retraite : les Français nés avant 1964 doivent toucher au moins cette pension par mois en 2026**: [Link](https://www.pleinevie.fr/retraite-travail/retraite/retraite-les-francais-nes-avant-1964-doivent-toucher-au-moins-cette-somme-par-mois-en-2026-ter-222084.html)
+- **62 ans et 9 mois : le nouvel âge "clé" pour partir en retraite dès 2026 si vous êtes né entre 1964 et 1968**: [Link](https://www.maison-travaux.fr/actualites/budget/62-ans-et-9-mois-le-nouvel-age-cle-pour-partir-en-retraite-des-2026-si-vous-etes-ne-entre-1964-et-1968-643854.html)
+
+
+### نادي الوداد الرياضي (N/A, Mon, 28 Sep 2026 00:20:00 -0700)
+
+- **الوداد يستهل الدوري المغربي بخسارة مهينة على أرضه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D9%85%D9%87%D9%8A%D9%86%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%94%D8%B1%D8%B6%D9%87/bltaa7afff18fb89691)
+- **سقوط جديد للوداد**: [Link](https://assabah.ma/952009.html)
+- **فيديو: مهرجان أهداف في ثاني أيام البطولة الاحترافية**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%81%D9%8A-%D8%AB%D8%A7%D9%86%D9%8A-%D8%A3%D9%8A%D8%A7%D9%85-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-20260927)
+
+
+### bangkok (N/A, Sun, 27 Sep 2026 23:50:00 -0700)
+
+- **Bangkok floods leave Korean travelers stranded as flights face overnight delays**: [Link](https://www.koreajoongangdaily.com/world/bangkok-floods-leave-korean-travelers-stranded-as-flights-face-overnight-delays/12894235)
+- **PM visits flooded Klong Chan estate, hears residents’ calls for pumps**: [Link](https://www.thaipbsworld.com/politics/558740)
+- **Bangkok declared a ‘disaster zone’ after flooding, as rainstorms shift direction**: [Link](https://www.theguardian.com/environment/2026/sep/28/thai-rain-shift-north-westwards-bangkok-declared-disaster-zone)
+
+
+### roberto carlos (N/A, Sun, 27 Sep 2026 23:50:00 -0700)
+
+- **‘I Lost 99% of Everything’—Real Madrid, Brazil Legend Opens Up on Crisis**: [Link](https://www.si.com/soccer/real-madrid-brazil-legend-opens-up-on-crisis)
+- **Roberto Carlos 'lost 99%' of £137 million earnings from playing career**: [Link](https://www.sportbible.com/football/la-liga/real-madrid/roberto-carlos-lost-99-of-137-million-earnings-from-career-615080-20260927)
+- **11 Children, 2 Marriages, Some Bad Investments And Bad Agents Wiped Away "99%" Of Soccer Legend Roberto Carlos' $180 Million Fortune**: [Link](https://www.celebritynetworth.com/articles/sports-news/11-children-2-marriages-some-bad-investments-and-bad-agents-wiped-away-99-of-soccer-legend-roberto-carlos-180-million-fortune/)
+
+
+### météo (N/A, Sun, 27 Sep 2026 22:40:00 -0700)
+
+- **Météo aujourd'hui : soleil et chaleur à l’est, pluies parfois soutenues au nord-ouest**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-09-27/meteo-aujourd-hui-soleil-et-chaleur-a-l-est-pluies-parfois-soutenues-au-nord-ouest-92687)
+- **Après la chaleur, va-t-on connaître du froid en France ? Découvrez les tendances météo**: [Link](https://www.tameteo.com/actualites/previsions/apres-la-chaleur-va-t-on-connaitre-du-froid-en-france-decouvrez-les-tendances-meteo-mercure.html)
+- **Les températures ne redescendent pas: jusqu'à 10 degrés au-dessus des normales de saison ce week-end**: [Link](https://www.bfmtv.com/replay-emissions/bfm-premiere/video-les-temperatures-ne-redescendent-pas-jusqu-a-10-degres-au-dessus-des-normales-de-saison-ce-week-end_VN-202609280075.html)
+
+
+### weather (N/A, Sun, 27 Sep 2026 22:40:00 -0700)
+
+- **Sunny and Mild Weather Coming Up**: [Link](https://www.wmtv15news.com/2026/09/28/sunny-mild-weather-coming-up/)
+- **Autumn heat wave in store for the Carolinas this week: Latest forecast**: [Link](https://www.wbtv.com/2026/09/28/autumn-heat-wave-store-carolinas-this-week-latest-forecast/)
+- **Abundant sunshine with a gradual warm-up**: [Link](https://www.wspa.com/news/abundant-sunshine-with-a-gradual-warm-up/)
+
+
 ### الطقس (N/A, Sun, 27 Sep 2026 22:30:00 -0700)
 
 - **48 ساعة فارقة.. بيان مهم بشأن موعد تحسن حالة الطقس**: [Link](https://www.almasryalyoum.com/news/details/4369767)
