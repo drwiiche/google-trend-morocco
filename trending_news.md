@@ -1,3 +1,17 @@
+### tanger (N/A, Sun, 27 Sep 2026 15:40:00 -0700)
+
+- **Bulletins falsifiés : le maire de Tanger annonce son retour d'Espagne pour répondre aux enquêteurs**: [Link](https://ledesk.ma/2026/09/27/bulletins-falsifies-le-maire-de-tanger-annonce-son-retour-despagne-pour-repondre-aux-enqueteurs/)
+- **Fraude électorale à Tanger: le parquet dévoile le mode opératoire, cinq suspects poursuivis**: [Link](https://fr.le360.ma/politique/fraude-electorale-a-tanger-le-parquet-devoile-le-mode-operatoire-cinq-suspects-poursuivis_V63TMUGFZJHUXPQWEOAI5B5NZY/)
+- **Tanger: arrestation de cinq suspects dans l'affaire de saisie d'un sac contenant des bulletins de vote**: [Link](https://2m.ma/fr/news/Tanger-arrestation-de-cinq-suspects-dans-l-affaire-de-saisie-20260927)
+
+
+### columbus crew – inter miami (N/A, Sun, 27 Sep 2026 15:30:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF in Road Action Against Columbus Crew this Sunday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-in-road-action-against-columbus-crew-this-sunday)
+- **Lionel Messi Keeps Focus on Inter Miami Ahead of Argentina Farewell**: [Link](https://forzafootball.com/news/lionel-messi-keeps-focus-on-inter-miami-ahead-of-argentina-farewell-159456846)
+- **Columbus Crew host Latino Celebration Night, presented by Sherwin-Williams, vs. Inter Miami CF on Sunday**: [Link](https://www.columbuscrew.com/news/columbus-crew-host-latino-celebration-night-presented-by-sherwin-williams-vs-inter-miami-cf-on-sunday)
+
+
 ### meteo (N/A, Sun, 27 Sep 2026 14:10:00 -0700)
 
 
