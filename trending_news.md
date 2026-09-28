@@ -1,3 +1,38 @@
+### سفيان بنجديدة (N/A, Mon, 28 Sep 2026 15:00:00 -0700)
+
+- **بنجديدة يقود عموتة إلى فوز الأهلي**: [Link](https://ar.sport.le360.ma/football/lions-atlas/HZLM67OFNBBSPA3ZUXQXS64ESM/)
+- **لماذا لم يسجل سفيان بن جديدة مع الأهلي؟**: [Link](https://www.vetogate.com/5735236)
+- **الأهلي يضرب الاتحاد المصراتي.. عموتة يختبر البدلاء ويمنح الناشئين قبلة الحياة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D8%A7%D8%AA%D9%8A--%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1-%D8%A7%D9%84%D8%A8%D8%AF%D9%84%D8%A7%D8%A1-%D9%88%D9%8A%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D9%8A%D9%94%D9%8A%D9%86-%D9%82%D8%A8%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9/bltcace5ddbf7342ebb)
+
+
+### classement équipe de belgique de football – équipe de france de football (N/A, Mon, 28 Sep 2026 14:00:00 -0700)
+
+- **Ligue des nations, J2, l’Italie impressionne, la France arrache la victoire**: [Link](https://fr.uefa.com/uefanationsleague/news/02a9-21b1bfd13e9f-4df5fe1eb3b3-1000--ligue-des-nations-j2-l-italie-impressionne-la-france-arra/)
+- **La Géorgie cale encore, Gyökeres buteur avec la Suède... les résultats de la soirée en Ligue des nations**: [Link](https://www.sofoot.com/breves/la-georgie-cale-encore-gyokeres-buteur-avec-la-suede-les-resultats-de-la-soiree-en-ligue-des-nations)
+- **LdN : les résultats de la soirée**: [Link](https://m.maxifoot.fr/ldn/les-resultats-de-la-soiree-foot-464782.htm)
+
+
+### نزاع (N/A, Mon, 28 Sep 2026 13:30:00 -0700)
+
+- **خطة دفاع متكاملة في ملف المغرب ضد السينغال أمام الطاس**: [Link](https://inews.ma/news/8689732)
+- **نزاع الكان في أروقة "الطاس".. تحالف قانوني دولي يحسم ملف تتويج المغرب وتجريد السنغال**: [Link](https://agadir24.info/%D9%86%D8%B2%D8%A7%D8%B9-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D9%81%D9%8A-%D8%A3%D8%B1%D9%88%D9%82%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-%D8%AA%D8%AD%D8%A7%D9%84%D9%81-%D9%82%D8%A7%D9%86%D9%88%D9%86.html)
+- **خطة دفاع متكاملة في ملف المغرب ضد السينغال أمام الطاس**: [Link](https://www.almountakhab.com/node/16231048)
+
+
+### تركيا ضد إيطاليا (N/A, Mon, 28 Sep 2026 12:30:00 -0700)
+
+- **بعد افتراس تركيا.. مانشيني يبعث رسالة تحد إلى زيدان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%81%D8%AA%D8%B1%D8%A7%D8%B3-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7--%D9%85%D8%A7%D9%86%D8%B4%D9%8A%D9%86%D9%8A-%D9%8A%D8%A8%D8%B9%D8%AB-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%AA%D8%AD%D8%AF-%D8%A7%D9%95%D9%84%D9%89-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86/blt32381e423cfbcf8a)
+- **استعدادًا للمباريات المقبلة.. مانشيني يُعفي 10 لاعبين من السفر إلى تركيا**: [Link](https://addiyar.com/article/2400965-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D9%8A%D9%86%D9%8A-%D9%8A%D8%B9%D9%81%D9%8A-10-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D8%A5%D9%84%D9%89-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7)
+- **منتخب إيطاليا يضطر لإلغاء مرانه الأخير قبل مواجهة تركيا بسبب الأمطار**: [Link](https://www.filgoal.com/articles/538181/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%8A%D8%B6%D8%B7%D8%B1-%D9%84%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D9%85%D8%B1%D8%A7%D9%86%D9%87-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1)
+
+
+### türkiye vs italy (N/A, Mon, 28 Sep 2026 12:30:00 -0700)
+
+- **Son Dakika Spor Haberi | Vincenzo Montella: Yuhalanmayı ve ıslıklanmayı hak ettik**: [Link](https://www.cnnturk.com/spor/futbol/vincenzo-montella-yuhalanmayi-ve-isliklanmayi-hak-ettik-3472594)
+- **Türkiye-İtalya maçının ardından**: [Link](https://yerel-haberler.haberturk.com/bursa-haberleri/turkiye-italya-macinin-ardindan-42597587)
+- **Altay Bayındır bu sene kaç maça çıktı, Altay Bayındır Celta Vigo'da kaç maçta forma giydi?**: [Link](https://www.haberler.com/haber/altay-bayindir-bu-sene-kac-maca-cikti-altay-20279753-haberi/)
+
+
 ### باريس سان جيرمان (N/A, Mon, 28 Sep 2026 12:00:00 -0700)
 
 - **صدمة للبارسا.. نجم برشلونة يغيب عن مواجهتي سان جيرمان والكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D9%84%D9%84%D8%A8%D8%A7%D8%B1%D8%B3%D8%A7--%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D9%8A-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt61b9eb88ddcc3b0a)
