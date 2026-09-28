@@ -1,3 +1,45 @@
+### الطقس (N/A, Sun, 27 Sep 2026 22:30:00 -0700)
+
+- **48 ساعة فارقة.. بيان مهم بشأن موعد تحسن حالة الطقس**: [Link](https://www.almasryalyoum.com/news/details/4369767)
+- **انخفاض وأمطار رعدية.. تحذير من الأرصاد المصرية بشأن طقس الـ48 ساعة المقبلة**: [Link](https://www.alkhaleej.ae/2026-09-27/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%A8%D8%B4%D8%A3%D9%86-%D8%B7%D9%82%D8%B3-%D8%A7%D9%8448-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9)
+- **الأرصاد: أمطار خفيفة تصل لمتوسطة على السواحل الشمالية والصحراء الغربية**: [Link](https://www.youm7.com/story/2026/9/28/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D8%AA%D8%B5%D9%84-%D9%84%D9%85%D8%AA%D9%88%D8%B3%D8%B7%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D9%88%D8%A7%D8%AD%D9%84-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9/7560034)
+
+
+### after (N/A, Sun, 27 Sep 2026 22:20:00 -0700)
+
+- **USC suspends LB Stephens one game after hit on Oregon QB Moore**: [Link](https://www.espn.com/college-football/story/_/id/50043971/usc-suspends-lb-stephens-one-game-hit-oregon-qb-moore)
+- **USC suspends Desman Stephens II, apologizes after late hit on Oregon’s Dante Moore**: [Link](https://www.latimes.com/sports/usc/story/2026-09-27/usc-suspends-desman-stephens-ii-after-late-dante-moore-hit)
+- **Oregon QB Dante Moore suffered concussion but no other additional injuries in second-quarter hit vs. USC**: [Link](https://sports.yahoo.com/college-football/breaking-news/article/oregon-qb-dante-moore-suffered-concussion-but-no-other-additional-injuries-in-second-quarter-hit-vs-usc-235929842.html)
+
+
+### action (N/A, Sun, 27 Sep 2026 22:20:00 -0700)
+
+- **Palestine Action protesters arrested outside UK Labour Party conference**: [Link](https://www.aljazeera.com/news/2026/9/28/palestine-action-protesters-arrested-outside-uk-labour-party-conference)
+- **More than 50 arrested at Palestine Action support rally**: [Link](https://www.bbc.com/news/articles/c933kx42np4xo)
+- **Massive Attack’s Robert Del Naja Arrested Again For Protesting Palestine Action Ban**: [Link](https://stereogum.com/2512750/massive-attacks-robert-del-naja-arrested-again-for-protesting-palestine-action-ban/news)
+
+
+### ahead (N/A, Sun, 27 Sep 2026 22:20:00 -0700)
+
+- **A dry Monday ahead before rain chances return to Omaha**: [Link](https://www.yahoo.com/news/videos/dry-monday-ahead-rain-chances-023112328.html)
+- **Weekend Warm-Up: Showers Fade Before Sunshine Returns**: [Link](https://www.knopnews2.com/2026/09/26/weekend-warm-up-showers-fade-before-sunshine-returns/)
+- **Carmelo’s First Alert 6 Forecast: Enjoy the calm before the rain — Wet week ahead starting Tuesday**: [Link](https://www.wowt.com/2026/09/27/carmelos-first-alert-6-forecast-enjoy-calm-before-rain-wet-week-ahead-starting-tuesday/)
+
+
+### american (N/A, Sun, 27 Sep 2026 22:10:00 -0700)
+
+- **Trump asked Xi Jinping if China would like to buy US weapons, American ambassador says**: [Link](https://www.theguardian.com/world/2026/sep/28/trump-xi-jinping-china-buy-weapons)
+- **Trump asked China’s president if he wants to buy US arms, ambassador says**: [Link](https://apnews.com/article/trump-xi-china-arms-sales-weapons-b5df7c498d2165c646a559799116786b)
+- **U.S. Says No Plans to Sell Weapons to China After Perdue Comments**: [Link](https://www.wsj.com/world/china/u-s-says-no-plans-to-sell-weapons-to-china-after-perdue-comments-ed99bf46)
+
+
+### haïti – costa rica (N/A, Sun, 27 Sep 2026 16:10:00 -0700)
+
+- **Haiti vs Costa Rica: Concacaf Nations League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ckp84711550pt)
+- **Preview: Haiti vs Costa Rica - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/haiti/preview/haiti-vs-costa-rica-prediction-team-news-lineups_605785.html)
+- **New Victory for Haiti against Costa Rica**: [Link](https://lenouvelliste.com/en/article/272358/new-victory-for-haiti-against-costa-rica)
+
+
 ### tanger (N/A, Sun, 27 Sep 2026 15:40:00 -0700)
 
 - **Bulletins falsifiés : le maire de Tanger annonce son retour d'Espagne pour répondre aux enquêteurs**: [Link](https://ledesk.ma/2026/09/27/bulletins-falsifies-le-maire-de-tanger-annonce-son-retour-despagne-pour-repondre-aux-enqueteurs/)
