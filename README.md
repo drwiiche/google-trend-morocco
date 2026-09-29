@@ -1,3 +1,73 @@
+### gabon vs niger (N/A, Tue, 29 Sep 2026 12:40:00 -0700)
+
+- **Gabon vs Niger: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwdr7vmn3v78t)
+- **Daniel Sosah: "Morocco biggest threat" for Niger in AFCON 2027 qualifiers**: [Link](https://panafricafootball.com/article/daniel-sosah-afcon-qualifiers)
+- **How and Where to Watch: Gabon vs Niger Live on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations-qualification/articles/how-and-where-to-watch-gabon-vs-niger-live-on-bein-sports-2026-09-28)
+
+
+### congo – cameroun (N/A, Tue, 29 Sep 2026 12:30:00 -0700)
+
+- **Elim. CAN 2027 : le derby Congo – Cameroun officiellement décrété à huis clos !**: [Link](https://africatopsports.com/afrique-football/elim-can-2027-le-derby-congo-cameroun-officiellement-decrete-a-huis-clos/)
+- **Eliminatoires de la CAN 2027 Archives**: [Link](https://www.journaldebrazza.com/tag/eliminatoires-de-la-can-2027/)
+- **Football | Congo - Cameroun : Chaîne, streaming, où voir le match et à quelle heure en France ?**: [Link](https://www.mediasportif.fr/2026/09/29/football-congo-cameroun-chaine-streaming-ou-voir-le-match-et-a-quelle-heure-en-france/)
+
+
+### كأس الأمم الإفريقية (N/A, Tue, 29 Sep 2026 12:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة جنوب السودان ومصر في تصفيات كأس أمم أفريقيا 2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%88%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt35459d61b970e65e)
+- **منتخب مصر يعود بفوز كبير من أرض جنوب السودان**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-0000/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D9%81%D9%88%D8%B2-%D9%83%D8%A8%D9%8A%D8%B1-%D9%85%D9%86-%D8%A3%D8%B1%D8%B6-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-2026-09-29)
+- **فرحوا للغاية.. إمام عاشور يفاجئ طفلين من جنوب السودان (فيديو)**: [Link](https://www.eremnews.com/sports/5eyh2by)
+
+
+### gabon – niger (N/A, Tue, 29 Sep 2026 11:50:00 -0700)
+
+- **Elim. CAN 2027 : Gabon – Niger, les compositions officielles**: [Link](https://africatopsports.com/afrique-football/elim-can-2027-gabon-niger-les-compositions-officielles/)
+- **Gabon-Niger : Chris Obiang appelé en renfort**: [Link](https://www.union.sonapresse.com/fr/gabon-niger-chris-obiang-appele-en-renfort)
+- **Gabon – Niger : le pronostic de Brice Ondo**: [Link](https://africafoot.com/gabon-niger-le-pronostic-de-brice-ondo/)
+
+
+### españa - croacia (N/A, Tue, 29 Sep 2026 11:50:00 -0700)
+
+- **España - Croacia hoy, en directo: grupo C de Nations League, última hora en el Pizjuán**: [Link](https://as.com/futbol/seleccion/espana-croacia-hoy-en-directo-grupo-c-de-nations-league-en-vivo-ultima-hora-en-el-sanchez-pizjuan-f202609-d/)
+- **España - Croacia en directo: ¡gol de Lamine Yamal! | Última hora de UEFA Nations League en vivo hoy**: [Link](https://www.marca.com/futbol/uefa-nations-league/espana-croacia/2026/09/29/01_0195_20260929_118_535-directo.html)
+- **Fabián Ruiz repite con España; Rodri y Ferran, suplentes ante Croacia**: [Link](https://onefootball.com/es/noticias/fabian-ruiz-repite-con-espana-rodri-y-ferran-suplentes-ante-croacia-43538168)
+
+
+### التشيك ضد إنجلترا (N/A, Tue, 29 Sep 2026 11:30:00 -0700)
+
+- **أرنولد أساسيًا وبيلينجهام على الدكة.. توخيل يجرب توليفة جديدة أمام التشيك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B1%D9%86%D9%88%D9%84%D8%AF-%D8%A7%D9%94%D8%B3%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D9%88%D8%A8%D9%8A%D9%84%D9%86%D8%AC%D9%87%D8%A7%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%83%D8%A9--%D8%AA%D9%88%D8%AE%D9%8A%D9%84-%D9%8A%D8%AC%D8%B1%D8%A8-%D8%AA%D9%88%D9%84%D9%8A%D9%81%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%83/blt08bc1b6d11b61739)
+- **دوري الأمم: توخل يرى أن المباراة ضد تشيكيا "ليست بعد مصيرية"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20260928-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%AA%D9%88%D8%AE%D9%84-%D9%8A%D8%B1%D9%89-%D8%A3%D9%86-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B6%D8%AF-%D8%AA%D8%B4%D9%8A%D9%83%D9%8A%D8%A7-%D9%84%D9%8A%D8%B3%D8%AA-%D8%A8%D8%B9%D8%AF-%D9%85%D8%B5%D9%8A%D8%B1%D9%8A%D8%A9-1)
+- **توخيل: لا أرد على مكالمات مدربي الدوري الإنجليزي**: [Link](https://www.alarabiya.net/sport/2026/09/28/%D8%AA%D9%88%D8%AE%D9%8A%D9%84-%D9%84%D8%A7-%D8%A7%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%85%D9%83%D8%A7%D9%84%D9%85%D8%A7%D8%AA-%D9%85%D8%AF%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A)
+
+
+### somalie – côte d'ivoire (N/A, Tue, 29 Sep 2026 11:20:00 -0700)
+
+- **« 0 but en 6 matchs » : Hervé Renard demande « un petit peu de patience » pour Yoan Bonny**: [Link](https://www.linfodrome.com/sport/125855-0-but-en-6-matchs-herve-renard-demande-un-petit-peu-de-patience-pour-yoan-bonny)
+- **Somalie - Côte d'Ivoire : heure et chaîne TV du match**: [Link](https://www.linternaute.com/sport/foot/11306023-somalie-cote-d-ivoire-heure-et-chaine-tv-du-match/)
+- **Abidjan : le boulevard Lagunaire fermé ce mardi 29 septembre — WebPress 7INFO**: [Link](https://7info.ci/webpress/article/abidjan-le-boulevard-lagunaire-sera-ferme-a-la-circulation-ce-mardi-apres-midi)
+
+
+### czechia vs england (N/A, Tue, 29 Sep 2026 11:10:00 -0700)
+
+- **Czech Republic vs England LIVE: Nations League score, lineups, commentary & updates**: [Link](https://www.bbc.com/sport/football/live/c5x2z793kwwjt)
+- **Arnold in the starting line-up and Bellingham on the bench: Tuchel tries a new combination against the Czech Republic**: [Link](https://www.goal.com/en/news/arnold-in-the-starting-line-up-and-bellingham-on-the-bench-tuchel-trials-a-new-combination-against-the-czechs/blt08bc1b6d11b61739)
+- **England-Czechia, Spain-Croatia and USMNT Live Updates, Scores and Highlights (9/29)**: [Link](https://bleacherreport.com/liveblogs/25504602-england-czechia-spain-croatia-and-usmnt-live-updates-scores-and-highlights-929)
+
+
+### écosse – suisse (N/A, Tue, 29 Sep 2026 11:10:00 -0700)
+
+- **Les pilotes se sont trompés dans un calcul et se retrouvent à court de kérosène en plein vol : l'avion de l'équipe suisse obligé de faire une escale pour faire le plein de carburant**: [Link](https://www.ladepeche.fr/2026/09/29/les-pilotes-se-sont-trompes-dans-un-calcul-et-se-retrouvent-a-court-de-kerosene-en-plein-vol-lavion-de-lequipe-suisse-oblige-de-faire-une-escale-pour-13574297.php)
+- **DIRECT. Ligue des nations: la Suisse veut éviter la douche écossaise**: [Link](https://www.24heures.ch/direct-ligue-des-nations-la-suisse-veut-eviter-la-douche-ecossaise-469380165595)
+- **Vingt-trois joueuses ont été convoquées pour les deux rencontres face à Israël par le sélectionneur suisse Rafel Navarro**: [Link](https://www.rts.ch/sport/football/2026/depeche/vingt-trois-joueuses-ont-ete-convoquees-pour-les-deux-rencontres-face-a-israel-par-le-selectionneur-suisse-rafel-navarro-29370728.html)
+
+
+### espagne – croatie (N/A, Tue, 29 Sep 2026 11:00:00 -0700)
+
+- **DIRECT. Espagne - Croatie, Ligue des nations A : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/espagne-croatie-live/688730)
+- **Espagne - Croatie EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-espagne-croatie_mtc20005922/live-commentary.shtml)
+- **Qui est Beljo, le chouchou de Boban qui a marqué contre l’Espagne**: [Link](https://www.goal.com/fr/listes/qui-est-beljo-le-chouchou-de-boban-qui-a-marque-contre-l-espagne/bltb92c22698bc10523)
+
+
 ### hespress (N/A, Tue, 29 Sep 2026 09:00:00 -0700)
 
 - **الملك محمد السادس يعين فاطمة الزهراء المنصوري رئيسة للحكومة الجديدة**: [Link](https://www.hespress.com/%D8%A7%D8%AF%D8%B1%D8%A7%D8%AC-%D8%A7%D8%B3%D8%AA%D8%A8%D8%A7%D9%82%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-1813298.html)
