@@ -1,3 +1,73 @@
+### hespress (N/A, Tue, 29 Sep 2026 09:00:00 -0700)
+
+- **الملك محمد السادس يعين فاطمة الزهراء المنصوري رئيسة للحكومة الجديدة**: [Link](https://www.hespress.com/%D8%A7%D8%AF%D8%B1%D8%A7%D8%AC-%D8%A7%D8%B3%D8%AA%D8%A8%D8%A7%D9%82%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-1813298.html)
+- **رئيس الحكومة الجديد.. قراءة في صلاحيات الملك والاجتهاد القضائي الدستوري لـ2016**: [Link](https://ar.telquel.ma/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%82%D8%B1%D8%A7%D8%A1%D8%A9-%D9%81%D9%8A-%D8%B5%D9%84%D8%A7%D8%AD%D9%8A%D8%A9-%D8%A7%D9%84/)
+- **« الأوليات »… مغربيات صنعن السبق في مراكز القرار – اليوم 24**: [Link](https://alyaoum24.com/2047125.html)
+
+
+### جائزة الكرة الذهبية (N/A, Tue, 29 Sep 2026 08:50:00 -0700)
+
+- **هل يستحق مبابي الكرة الذهبية؟.. 3 عقبات تهدد حلم الفرنسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D8%AD%D9%82-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9--3-%D8%B9%D9%82%D8%A8%D8%A7%D8%AA-%D8%AA%D9%87%D8%AF%D8%AF-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/blte1a85db260e4dbd2)
+- **من مبابي إلى لامين جمال... حملة غير مسبوقة للفوز بالكرة الذهبية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A5%D9%84%D9%89-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D8%AD%D9%85%D9%84%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D9%84%D9%84%D9%81%D9%88%D8%B2-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/25903)
+- **صراع مبابي ولامين يامال.. الكرة الذهبية 2026 تتحول إلى حملة انتخابية**: [Link](https://www.youm7.com/story/2026/9/29/%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%88%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-2026-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%AD%D9%85%D9%84%D8%A9/7560390)
+
+
+### fatima zahra mansouri (N/A, Tue, 29 Sep 2026 08:40:00 -0700)
+
+- **King Mohammed VI appoints Fatima Ezzahra El Mansouri as Morocco’s first female head of government**: [Link](https://en.hespress.com/146332-king-mohammed-vi-appoints-fatima-ezzahra-el-mansouri-as-moroccos-first-female-head-of-government.html)
+- **Morocco's king appoints first woman PM following Sept 23 election**: [Link](https://www.reuters.com/world/africa/moroccos-king-appoints-first-woman-pm-following-sept-23-election-2026-09-29/)
+- **King Mohammed VI Appoints Fatima Zahra El Mansouri as Morocco’s First-Ever Female Head of Government**: [Link](https://www.moroccoworldnews.com/2026/09/340090/king-mohammed-vi-appoints-fatima-zahra-el-mansouri-as-moroccos-first-ever-female-head-of-government/)
+
+
+### فينيسيوس جونيور (N/A, Tue, 29 Sep 2026 08:30:00 -0700)
+
+- **هل تم استبدال فينيسيوس؟ اتهامات خطيرة تطارد نجم ريال مدريد في البرازيل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D9%8A--%D9%86%D8%B8%D8%B1%D9%8A%D8%A9-%D9%85%D9%88%D9%94%D8%A7%D9%85%D8%B1%D8%A9-%D9%85%D8%AC%D9%86%D9%88%D9%86%D8%A9-%D8%AA%D8%B7%D8%A7%D8%B1%D8%AF-%D9%86%D8%AC%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt2d4f58f41eb1c8c2)
+- **إصابة مبابي قد تكون الحل.. تهميش فينيسيوس يعيد الجدل بشأن مستقبله في ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/9/26/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **الشرق رياضة/انتشرت خلال الأيام الأخيرة في البرازيل نظرية مؤامرة غريبة تزعم أن فينيسيوس جونيور**: [Link](https://nabdapp.com/t/178709450-467945)
+
+
+### madagascar – tanzanie (N/A, Tue, 29 Sep 2026 07:10:00 -0700)
+
+- **Football – CAN 2027 - Les Barea jouent banco face à la Tanzanie**: [Link](https://www.lexpress.mg/2026/09/football-can-2027-les-barea-jouent.html)
+- **Elim. CAN 2027 : les compositions probables du match Madagascar vs Tanzanie !**: [Link](https://africatopsports.com/afrique-football/elim-can-2027-les-compositions-probables-du-match-madagascar-vs-tanzanie/)
+- **Eliminatoires de la Can: les Barea condamnés à briser leur série noire**: [Link](https://newsmada.com/2026/09/29/eliminatoires-de-la-can-les-barea-condamnes-a-briser-leur-serie-noire/)
+
+
+### match aujourd'hui (N/A, Tue, 29 Sep 2026 06:40:00 -0700)
+
+- **Quand le nouveau milieu des Bleus Lucas Da Cunha expliquait comment prononcer correctement son nom de famille**: [Link](https://www.lequipe.fr/Football/Actualites/Quand-le-nouveau-milieu-des-bleus-lucas-da-cunha-expliquait-comment-prononcer-correctement-son-nom-de-famille/1722002)
+- **Équipe de France : les nouveaux ont presque tous marqué des points**: [Link](https://www.footmercato.net/a1243398819678033094-equipe-de-france-les-nouveaux-ont-presque-tous-marque-des-points)
+- **Belgique 0-1 France : Da Cunha, Camavinga… le milieu des Bleus a séduit l'After Foot**: [Link](https://rmcsport.bfmtv.com/replay-emissions/after-foot/video-belgique-0-1-france-da-cunha-camavinga-le-milieu-des-bleus-a-seduit-l-after-foot_VN-202609280861.html)
+
+
+### ethiopia vs senegal (N/A, Tue, 29 Sep 2026 06:30:00 -0700)
+
+- **Vieira says Senegal will apply intensity against Ethiopia in 2027 AFCON qualifier**: [Link](https://www.flashscore.co.za/news/soccer-africa-cup-of-nations-vieira-says-senegal-will-apply-intensity-against-ethiopia-in-2027-afcon-qualifier/b5PYPJPF/)
+- **Live: Ethiopia vs. Senegal | AFCON 2027 Qualifiers**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations-qualification/articles/live-ethiopia-vs-senegal-afcon-2027-qualifiers-2026-09-29)
+- **Ethiopia vs Senegal LIVE Updates, Second half begins (0-1)**: [Link](https://www.vavel.com/en-us/soccer/2026/09/29/1273240-ethiopia-vs-senegal-live-score-africa-cup-qualifiers.html)
+
+
+### africa cup of nations qualification (N/A, Tue, 29 Sep 2026 06:20:00 -0700)
+
+- **South Sudan vs Egypt: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw8r6n43p1llt)
+- **The suicide of Hossam Hassan**: [Link](https://www.goal.com/en/lists/the-suicide-of-hossam-hassan/blted99da137167a86b)
+- **Egypt Youth Minister Moves to Calm AFCON Qualifier Tensions Involving Salah**: [Link](https://egyptianstreets.com/2026/09/29/egypt-youth-minister-moves-to-calm-afcon-qualifier-tensions-involving-salah/)
+
+
+### مباريات اليوم مباشر (N/A, Tue, 29 Sep 2026 06:20:00 -0700)
+
+- **دفع الحكم وانفعل عليه.. قانون الدقيقة الواحدة يشعل غضب دي بروين**: [Link](https://www.aljazeera.net/sport/2026/9/29/%D8%AF%D9%8A-%D8%A8%D8%B1%D9%88%D9%8A%D9%86-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85)
+- **زيدان يتغنى بأوليسي: موهبة فذة.. أعشق هذا النوع من اللاعبين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D8%AA%D8%BA%D9%86%D9%89-%D8%A8%D8%A7%D9%94%D9%88%D9%84%D9%8A%D8%B3%D9%8A-%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%81%D8%B0%D8%A9--%D8%A7%D9%94%D8%B9%D8%B4%D9%82-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%86%D9%88%D8%B9-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86/blta6554d49cb7731f1)
+- **منتخب فرنسا بقيادة مدربه زيدان يعود بالنقاط على حساب مستضيفه منتخب بلجيكا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D8%A7%D9%84%D9%86%D9%82%D8%A7%D8%B7-%D8%B9%D9%84%D9%89-%D8%AD%D8%B3%D8%A7%D8%A8-%D9%85%D8%B3%D8%AA%D8%B6%D9%8A%D9%81%D9%87-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A8%D9%84%D8%AC%D9%8A%D9%83%D8%A7-2026-09-28)
+
+
+### bein sport (N/A, Tue, 29 Sep 2026 06:20:00 -0700)
+
+- **Six Things That Stood Out for the Titans in Sunday's 12-7 Loss to the Giants**: [Link](https://www.tennesseetitans.com/news/six-things-that-stood-out-in-sunday-s-12-7-loss-to-the-giants)
+- **Giants 12-7 Titans (Sep 27, 2026) Game Recap**: [Link](https://www.espn.com/nfl/recap/_/gameId/401872956)
+- **Titans coach Robert Saleh says Cam Ward not 'reckless' on interception vs Giants**: [Link](https://www.tennessean.com/story/sports/nfl/titans/2026/09/28/cam-ward-interception-titans-giants-robert-saleh/91561493007/)
+
+
 ### australie – brésil (N/A, Tue, 29 Sep 2026 02:20:00 -0700)
 
 - **Pronostic Australie - Brésil : analyse et cotes (29/09)**: [Link](https://oddsscanner.com/fr/pronostics/football/australie-x-bresil-29-09-2026)
