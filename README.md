@@ -1,3 +1,38 @@
+### سوق الطاقة (N/A, Tue, 29 Sep 2026 16:40:00 -0700)
+
+- **توترات أسواق الطاقة.. هل يصل سعر الغازوال بالمغرب إلى 20 درهما للتر؟**: [Link](https://madar21.com/456183.html)
+- **"القدرة الشرائية" تتقدم وعود الأحزاب المتصدرة نتائج الانتخابات التشريعية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%AF%D8%B1%D8%A9-%D8%A7%D9%84%D8%B4%D8%B1%D8%A7%D8%A6%D9%8A%D8%A9-%D8%AA%D8%AA%D9%82%D8%AF%D9%85-%D9%88%D8%B9%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%AD%D8%B2%D8%A7%D8%A8-%D8%A7-1813272.html)
+- **حروب الطاقة**: [Link](https://www.alakhbar.press.ma/%D8%AD%D8%B1%D9%88%D8%A8-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9-299508.html)
+
+
+### منتخب عمان لكرة القدم (N/A, Tue, 29 Sep 2026 15:40:00 -0700)
+
+- **سيناريو نادر في "خليجي 27".. القرعة تبتسم لعُمان وتمنحها بطاقة المربع الذهبي**: [Link](https://www.aljazeera.net/sport/2026/9/30/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D9%86%D8%A7%D8%AF%D8%B1-%D9%81%D9%8A-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27-%D8%A7%D9%84%D9%82%D8%B1%D8%B9%D8%A9-%D8%AA%D8%A8%D8%AA%D8%B3%D9%85)
+- **القرعة تبتسم للسكتيوي مع منتخب عُمان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%B1%D8%B9%D8%A9-%D8%AA%D8%A8%D8%AA%D8%B3%D9%85-%D9%84%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%85%D8%B9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-1815628.html)
+- **"تأهل عمان ليس عدلًا".. مدرب العراق يطالب باللجوء إلى الفيفا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%A7%D9%84%D9%84%D8%AC%D9%88%D8%A1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%84%D9%86-%D9%8A%D9%83%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%B9%D9%85%D8%A7%D9%86/blt14f9861f88a950c0)
+
+
+### visa (N/A, Tue, 29 Sep 2026 14:50:00 -0700)
+
+- **Visa issues derail international star Taemin's San Jose concert**: [Link](https://www.sfgate.com/sf-culture/article/taemin-cancel-san-jose-22455188.php)
+- **TAEMIN Postpones North American Leg of LiMiNaL World Tour**: [Link](https://inmusicblog.com/k-pop/taemin-liminal-world-tour-north-america-postponed/)
+- **[Official] Taemin postpones North America tour two weeks before departure… Impact of staff U.S. visa issues**: [Link](https://www.starnewskorea.com/en/music/2026/09/29/2026092911203481436)
+
+
+### أوبك (N/A, Tue, 29 Sep 2026 14:10:00 -0700)
+
+- **"هنيئًا للجزائر".. أول تعليق من أمين عام أوبك على مشروع أنبوب الغاز**: [Link](https://attaqa.net/2026/09/29/%D9%87%D9%86%D9%8A%D8%A6%D9%8B%D8%A7-%D9%84%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A3%D9%88%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%85%D9%86-%D8%A3%D9%85%D9%8A%D9%86-%D8%B9%D8%A7%D9%85-%D8%A3/)
+- **الغيص يحذر من تأثير الحديث عن انخفاض الطلب على الاستثمارات النفطية**: [Link](https://asharqbusiness.com/power/149454/%D8%A7%D9%84%D8%BA%D9%8A%D8%B5-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA%D8%A3%D8%AB%D8%B1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D8%A8%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AB-%D8%B9%D9%86-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%A7%D9%84%D8%B7%D9%84%D8%A8/)
+- **AMAN - APS - محروقات: اتفاق الجزائر ضمن منظمة أوبك "نقطة تحول استراتيجية" في سوق النفط العالمية**: [Link](https://www.aman-alliance.org/Home/ContentDetail/107175)
+
+
+### الغابون ضد النيجر (N/A, Tue, 29 Sep 2026 12:10:00 -0700)
+
+- **الغابون ضد النيجر**: [Link](https://www.elbotola.com/analytics/match/pxwrxlhyd4vxryk)
+- **الغابون تهزم النيجر وتنفرد بوصافة مجموعة المنتخب المغربي**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D9%88%D9%86-%D8%AA%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D9%88%D8%AA%D9%86%D9%81%D8%B1%D8%AF-%D8%A8%D9%88%D8%B5%D8%A7%D9%81%D8%A9-%D9%85%D8%AC%D9%85/)
+- **بِالفيديو: بداية موفّقة للمدرب نغيز مع النيجر – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D9%85%D9%88%D9%81%D9%91%D9%82%D8%A9-%D9%84%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D9%86%D8%BA%D9%8A%D8%B2-%D9%85%D8%B9-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1)
+
+
 ### gabon vs niger (N/A, Tue, 29 Sep 2026 12:40:00 -0700)
 
 - **Gabon vs Niger: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwdr7vmn3v78t)
