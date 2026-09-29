@@ -1,3 +1,31 @@
+### australie – brésil (N/A, Tue, 29 Sep 2026 02:20:00 -0700)
+
+- **Pronostic Australie - Brésil : analyse et cotes (29/09)**: [Link](https://oddsscanner.com/fr/pronostics/football/australie-x-bresil-29-09-2026)
+- **Hugo Souza répond aux accusations d’« erreur » après ne pas avoir réagi sur le coup franc de Nestory Irankunda lors du match nul du Brésil**: [Link](https://fr.news.yahoo.com/sport/hugo-souza-r%C3%A9pond-accusations-d-021045290.html)
+- **1-1 : Vini Jr. et Endrick font match nul avec le Brésil contre l'Australie**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/latest-news/1-1-vini-jr-y-endrick-empatan-con-brasil-ante-australia-25-09-2026)
+
+
+### أستراليا ضد البرازيل (N/A, Tue, 29 Sep 2026 02:20:00 -0700)
+
+- **7 تغييرات دون المساس بفينيسيوس.. سر ثقة أنشيلوتي بنجم ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/9/28/%D8%B3%D8%B1-%D8%AB%D9%82%D8%A9-%D8%A3%D9%86%D8%B4%D9%8A%D9%84%D9%88%D8%AA%D9%8A-%D9%81%D9%8A-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84)
+- **ما القنوات الناقلة لمباراة أستراليا والبرازيل الودية؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%B3%D8%AA%D8%B1%D8%A7%D9%84%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt53c5402c859ca377)
+- **البرازيل تتعادل بصعوبة مع أستراليا**: [Link](https://www.alarabiya.net/sport/2026/09/25/%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D8%AA%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A8%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D9%85%D8%B9-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D9%84%D9%8A%D8%A7)
+
+
+### australia vs brazil (N/A, Tue, 29 Sep 2026 02:20:00 -0700)
+
+- **Hugo Souza addresses 'mistake' claims after failing to react to Nestory Irankunda free-kick in Brazil draw**: [Link](https://www.goal.com/en/lists/hugo-souza-nestory-irankunda-free-kick-brazil-australia-friendly/blt7800cb6c2c3fc829)
+- **Tony Popovic names unchanged Socceroos XI for second Brazil game in Brisbane**: [Link](https://www.flashscore.co.za/news/tony-popovic-names-unchanged-socceroos-xi-for-second-brazil-game-in-brisbane/zZIfQWDL/)
+- **Brazil XI vs Australia – Predicted lineup and team news**: [Link](https://sports.yahoo.com/articles/brazil-xi-vs-australia-predicted-052000384.html)
+
+
+### fédération royale marocaine de football (N/A, Tue, 29 Sep 2026 00:10:00 -0700)
+
+- **Les Lions de l’Atlas à pied d’œuvre à Bloemfontein**: [Link](https://frmf.ma/fr/articles/les-lions-de-latlas-a-pied-doeuvre-a-bloemfontein)
+- **Lesotho-Maroc (Éliminatoires CAN 2027) : quelle heure, quelles chaînes**: [Link](https://medias24.com/2026/09/29/lesotho-maroc-eliminatoires-can-2027-quelle-heure-quelles-chaines-1766713/)
+- **Éliminatoires CAN 2027**: [Link](https://afrique.le360.ma/sports/eliminatoires-can-2027_3AQ64UNBIVB3PITNDKU67V2A6E/)
+
+
 ### سفيان بنجديدة (N/A, Mon, 28 Sep 2026 15:00:00 -0700)
 
 - **بنجديدة يقود عموتة إلى فوز الأهلي**: [Link](https://ar.sport.le360.ma/football/lions-atlas/HZLM67OFNBBSPA3ZUXQXS64ESM/)
