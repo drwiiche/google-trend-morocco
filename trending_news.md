@@ -1,3 +1,10 @@
+### états-unis – chili (N/A, Tue, 29 Sep 2026 16:50:00 -0700)
+
+- **EN DIRECT États-Unis contre Chili : Le match est en cours**: [Link](https://www.vietnam.vn/fr/truc-tieptruc-tiep-my-vs-chile-tran-dau-dang-dien-ra)
+- **Le Chili déçoit encore et tombe face aux États-Unis, plombé par ses erreurs**: [Link](https://onefootball.com/fr/news/le-chili-decoit-encore-et-tombe-face-aux-etats-unis-plombe-par-ses-erreurs-43539260)
+- **Composition du match les États-Unis – Chili | Matchs amicaux · 30 sept. 2026**: [Link](https://www.ysscores.com/fr/lineup/5991874/United-States-vs-Chile)
+
+
 ### سوق الطاقة (N/A, Tue, 29 Sep 2026 16:40:00 -0700)
 
 - **توترات أسواق الطاقة.. هل يصل سعر الغازوال بالمغرب إلى 20 درهما للتر؟**: [Link](https://madar21.com/456183.html)
