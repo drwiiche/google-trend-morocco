@@ -1,3 +1,52 @@
+### فلاي دبي (N/A, Wed, 30 Sep 2026 09:10:00 -0700)
+
+- **رعب وصراخ على متن طائرة "فلاي دبي" إلى إسرائيل.. ما حقيقة الفيديو؟**: [Link](https://www.aljazeera.net/news/2026/9/30/%D8%B1%D8%B9%D8%A8-%D9%88%D8%B5%D8%B1%D8%A7%D8%AE-%D8%B9%D9%84%D9%89-%D9%85%D8%AA%D9%86-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%81%D9%84%D8%A7%D9%8A-%D8%AF%D8%A8%D9%8A-%D8%A5%D9%84%D9%89)
+- **حالة طوارئ بعد تحويل اتجاه طائرة على متنها 150 إسرائيلي وهبوطها اضطراريا في السعودية – اليوم 24**: [Link](https://alyaoum24.com/2047560.html)
+- **إطلاق إنذار بـ "اختطاف طائرة" بعد شجار بين طياري رحلة متجهة من الإمارات إلى إسرائيل**: [Link](https://www.aa.com.tr/ar/info/%D8%A5%D9%86%D9%81%D9%88%D8%AC%D8%B1%D8%A7%D9%81%D9%8A%D9%83/54233)
+
+
+### maroc vs algerie (N/A, Wed, 30 Sep 2026 08:50:00 -0700)
+
+- **Eliminatoires CAN U20 (tournoi UNAF): composition du Maroc face à l'Algérie**: [Link](https://frmf.ma/fr/articles/eliminatoires-can-u20-tournoi-unaf-composition-du-maroc-face-a-lalgerie)
+- **UNAF U20 : les Lionceaux de l’Atlas dominent l’Algérie et se relancent**: [Link](https://radiomars.ma/fr/?p=6475)
+- **Qualifications de la CAN U-20 : la sélection nationale fait match nul face à la Tunisie**: [Link](https://www.yabiladi.com/articles/details/203781/qualifications-u-20-selection-nationale-fait.html)
+
+
+### راؤول أسينسيو (N/A, Wed, 30 Sep 2026 08:40:00 -0700)
+
+- **غياب 4 أشهر.. ريال مدريد يعلن رسميًا خضوع نجمه لعملية جراحية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D9%8A%D8%A7%D8%A8-4-%D8%A7%D9%94%D8%B4%D9%87%D8%B1--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%AE%D8%B6%D9%88%D8%B9-%D9%86%D8%AC%D9%85%D9%87-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%AC%D8%B1%D8%A7%D8%AD%D9%8A%D8%A9/bltefab934436a1f3a8)
+- **ماركا: لاعب ريال مدريد يخضع لجراحة وتكهنات حول مدة غيابه المتوقعة**: [Link](https://www.btolat.com/news/411507)
+- **الإعلان الطبي لأسينسيو**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/medical-reports/parte-medico-de-asencio-30-09-2026)
+
+
+### محكمة التحكيم الرياضية (N/A, Wed, 30 Sep 2026 07:50:00 -0700)
+
+- **جلسة حاسمة بشأن نهائي "كان 2025"**: [Link](https://www.hespress.com/%D8%AC%D9%84%D8%B3%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%A8%D8%B4%D8%A3%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D9%86-2025-1815891.html)
+- **جلسة مغلقة.. تطورات جديدة في أزمة نهائي أمم أفريقيا بين المغرب والسنغال**: [Link](https://www.aljazeera.net/sport/2026/9/30/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81)
+- **المحكمة الرياضية تعلن تفاصيل جلسة الاستئناف السنغالي بشأن نهائي « كان » المغرب 2025 – اليوم 24**: [Link](https://alyaoum24.com/2047661.html)
+
+
+### كأس الأمم الإفريقية 2027 (N/A, Wed, 30 Sep 2026 06:40:00 -0700)
+
+- **كأس أمم إفريقيا 2027: من هم ملوك الفرص الضائعة في التصفيات؟**: [Link](https://foot-africa.com/ar/news/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%85%D9%86-%D9%87%D9%85-%D9%85%D9%84%D9%88%D9%83-%D8%A7%D9%84%D9%81%D8%B1%D8%B5-%D8%A7%D9%84%D8%B6%D8%A7%D8%A6%D8%B9%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-1371143/)
+- **رونار يواجه كيروش في قمة إفريقية**: [Link](https://www.hespress.com/%D8%B1%D9%88%D9%86%D8%A7%D8%B1-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%83%D9%8A%D8%B1%D9%88%D8%B4-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-1811933.html)
+- **ترتيب مجموعات تصفيات كأس أمم إفريقيا 2027**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/)
+
+
+### emmanuel macron (N/A, Wed, 30 Sep 2026 06:40:00 -0700)
+
+- **« Les banques sont toutes détenues par des juifs » : Jordan Bardella face à ses écrits antisémites**: [Link](https://www.mediapart.fr/journal/politique/280926/les-banques-sont-toutes-detenues-par-des-juifs-jordan-bardella-face-ses-ecrits-antisemites)
+- **"La suite de nos révélations arrive", promet Fabrice Arfi de Mediapart, après les accusations d'antisémitisme contre Jordan Bardella**: [Link](https://www.franceinfo.fr/politique/jordan-bardella/la-suite-de-nos-revelation-arrive-promet-fabrice-arfi-de-mediapart-apres-les-accusations-d-antisemitisme-contre-jordan-bardella_8215730.html)
+- **Jordan Bardella, une jeunesse au FN sous l’influence idéologique d’Alain Soral**: [Link](https://www.lemonde.fr/politique/article/2026/09/30/jordan-bardella-une-jeunesse-au-fn-sous-l-influence-ideologique-d-alain-soral_6786026_823448.html)
+
+
+### novak djokovic (N/A, Wed, 30 Sep 2026 05:10:00 -0700)
+
+- **Novak Djokovic: Former world No 1 lands his first win since Wimbledon with victory over Nuno Borges at the China Open**: [Link](https://www.skysports.com/tennis/news/13593587/novak-djokovic-former-world-no-1-lands-his-first-win-since-wimbledon-with-victory-over-nuno-borges-at-the-china-open)
+- **Borges on Djokovic’s perfect 29-0 Beijing record: ‘More pressure for him’**: [Link](https://www.atptour.com/en/news/borges-feature-beijing-2026)
+- **Serbian tennis star Novak Djokovic wins opening match at the 2026 China Open**: [Link](https://www.globaltimes.cn/galleries/6361.html)
+
+
 ### عطلة (N/A, Wed, 30 Sep 2026 00:20:00 -0700)
 
 - **عيدا الفطر والأضحى عطلتان رسميتان لأول مرة في تاريخ كاليفورنيا.. ماذا يعني القرار؟**: [Link](https://www.aljazeera.net/misc/2026/9/29/%D9%83%D8%A7%D9%84%D9%8A%D9%81%D9%88%D8%B1%D9%86%D9%8A%D8%A7-%D8%AA%D9%82%D8%B1-%D8%B9%D8%B7%D9%84%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%88%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%89)
