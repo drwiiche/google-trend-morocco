@@ -1,3 +1,24 @@
+### عطلة (N/A, Wed, 30 Sep 2026 00:20:00 -0700)
+
+- **عيدا الفطر والأضحى عطلتان رسميتان لأول مرة في تاريخ كاليفورنيا.. ماذا يعني القرار؟**: [Link](https://www.aljazeera.net/misc/2026/9/29/%D9%83%D8%A7%D9%84%D9%8A%D9%81%D9%88%D8%B1%D9%86%D9%8A%D8%A7-%D8%AA%D9%82%D8%B1-%D8%B9%D8%B7%D9%84%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%88%D8%A7%D9%84%D8%A3%D8%B6%D8%AD%D9%89)
+- **حدث تاريخي في أمريكا.. كاليفورنيا تعتمد عيد الفطر والأضحى عطلتين رسميتين**: [Link](https://www.akhbarelnaselyoum.com/archives/204768)
+- **كاليفورنيا تعترف رسميًا بعيدي الفطر والأضحى.. ما الذي تغيّر بموجب القانون الجديد؟**: [Link](https://arabic.euronews.com/2026/09/29/california-eid-al-fitr-al-adha-muslims-holidays-schools-employees)
+
+
+### washington (N/A, Tue, 29 Sep 2026 22:20:00 -0700)
+
+- **D.C.'s latest viral party celebrates data centers amid growing pushback**: [Link](https://www.axios.com/local/washington-dc/2026/09/24/ai-data-centers-party-pubkey-partiful)
+- **The AI Bros Are Partying**: [Link](https://www.washingtonsun.com/national/ai-bros-are-partying-data-center)
+- **Protester storms pro-data center bash, flips off crowd as ‘USA!’ chants erupt amid Trump’s AI push**: [Link](https://www.foxnews.com/video/6405742683112)
+
+
+### gta 6 (N/A, Tue, 29 Sep 2026 21:40:00 -0700)
+
+- **Grand Theft Auto VI – Welcome to Leonida**: [Link](https://gameinformer.com/feature/2026/09/29/grand-theft-auto-vi-welcome-to-leonida)
+- **GTA 6's Advanced Weather System Officially Confirmed By Rockstar**: [Link](https://www.svg.com/2272767/gta-6-advanced-weather-system-rockstar/)
+- **A collection of new Grand Theft Auto 6 gameplay images has been released.**: [Link](https://en.gamegpu.com/news/igry/opublikovana-podborka-novykh-izobrazhenij-igrovogo-protsessa-grand-theft-auto-6)
+
+
 ### états-unis – chili (N/A, Tue, 29 Sep 2026 16:50:00 -0700)
 
 - **EN DIRECT États-Unis contre Chili : Le match est en cours**: [Link](https://www.vietnam.vn/fr/truc-tieptruc-tiep-my-vs-chile-tran-dau-dang-dien-ra)
