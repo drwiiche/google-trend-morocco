@@ -1,3 +1,45 @@
+### وقود (N/A, Wed, 30 Sep 2026 12:50:00 -0700)
+
+- **أكتوبر يستقبل المغاربة بزيادة جديدة في أسعار المحروقات بمحطات الوقود**: [Link](https://www.hespress.com/%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A8%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81-1816117.html)
+- **الدار البيضاء تستعد لاستقبال أبطال العالم في سيف المبارزة**: [Link](https://ar.telquel.ma/%D9%85%D8%AE%D8%B2%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%B1%D8%A7%D9%88%D8%AD-%D8%A8%D9%8A%D9%86-40/)
+- **مواصلة صرف الدعم المباشر والاستثنائي الموجه لمهنيي قطاع النقل للبضائع والأشخاص – أحداث.أنفو**: [Link](https://www.ahdath.info/%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%88%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A/)
+
+
+### carburant (N/A, Wed, 30 Sep 2026 11:50:00 -0700)
+
+- **Prix des carburants : voici les tarifs en France ce mercredi 30 septembre 2026**: [Link](https://media.roole.fr/quotidien/au-volant/prix-des-carburants-voici-les-tarifs-en-france-ce-mercredi-30-septembre-2026)
+- **« Dès qu’on lâche l’accélérateur, la consommation est à zéro » : comment ne pas exploser son budget carburant ?**: [Link](https://www.ouest-france.fr/economie/transports/carburants-essence-diesel/des-quon-lache-laccelerateur-la-consommation-est-a-zero-comment-ne-pas-exploser-son-budget-carburant-25bc1dd0-bb13-11f1-bf2b-20ac402d7e60)
+- **Carburant à 2,40 € : 7 astuces geek pour payer moins cher à la pompe**: [Link](https://www.kingofgeek.com/2026/09/astuces-geek-economiser-carburant/)
+
+
+### prix (N/A, Wed, 30 Sep 2026 11:00:00 -0700)
+
+- **Info360. Carburants: nouvelle flambée des prix dès ce soir, le gasoil au-dessus de 16 dirhams le litre**: [Link](https://fr.le360.ma/economie/info360-carburants-nouvelle-flambee-des-prix-des-ce-soir-le-gasoil-au-dessus-de-16-dirhams-le-litre_RCIGRA7YKJCCNN7LTEIXQMJCLU/)
+- **Hydrocarbures : le gouvernement poursuit son soutien direct aux professionnels du transport**: [Link](https://mobile.telquel.ma/instant-t/2026/09/30/hydrocarbures-le-gouvernement-poursuit-son-soutien-direct-aux-professionnels-du-transport_2010736/)
+- **Un stock de réserve en gasoil et en gaz butane de 40 à 60 jours au Maroc, reconduction du soutien direct aux transporteurs**: [Link](https://medias24.com/2026/09/30/un-stock-de-reserve-en-gasoil-et-en-gaz-butane-de-40-a-60-jours-au-maroc-reconduction-du-soutien-direct-aux-transporteurs-1768841/)
+
+
+### émirats arabes unis – qatar (N/A, Wed, 30 Sep 2026 11:00:00 -0700)
+
+- **Temps forts du match UAE - le Qatar | Arabian Gulf Cup | Yalla Shoot**: [Link](https://www.ysscores.com/fr/video/368215)
+- **L'entraîneur des Émirats arabes unis lance un avertissement avant le choc des demi-finales de la Gulf Cup 27**: [Link](https://fr.news.yahoo.com/sport/lentra%C3%AEneur-%C3%A9mirats-arabes-unis-lance-180747721.html)
+- **Émirats arabes unis - Qatar : Heure du match et compositions (Coupe du Golfe des nations de football)**: [Link](https://www.livefoot.fr/direct/coupe-du-golfe-des-nations-de-football-international/match-emirats-arabes-unis-vs-qatar-2510c98d)
+
+
+### طارق السكتيوي (N/A, Wed, 30 Sep 2026 10:10:00 -0700)
+
+- **"تأهل عمان ليس عدلًا".. مدرب العراق يطالب باللجوء إلى الفيفا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%A7%D9%84%D9%84%D8%AC%D9%88%D8%A1-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%84%D9%86-%D9%8A%D9%83%D9%88%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%B9%D9%85%D8%A7%D9%86/blt14f9861f88a950c0)
+- **سيناريو نادر في "خليجي 27".. القرعة تبتسم لعُمان وتمنحها بطاقة المربع الذهبي**: [Link](https://www.aljazeera.net/sport/2026/9/30/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D9%86%D8%A7%D8%AF%D8%B1-%D9%81%D9%8A-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27-%D8%A7%D9%84%D9%82%D8%B1%D8%B9%D8%A9-%D8%AA%D8%A8%D8%AA%D8%B3%D9%85)
+- **القرعة تبتسم للسكتيوي مع منتخب عُمان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%B1%D8%B9%D8%A9-%D8%AA%D8%A8%D8%AA%D8%B3%D9%85-%D9%84%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%85%D8%B9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%B9%D9%8F%D9%85%D8%A7%D9%86-1815628.html)
+
+
+### منتخب المغرب لكرة القدم (N/A, Wed, 30 Sep 2026 09:50:00 -0700)
+
+- **المنتخب الوطني يواجه نظيره المالي وديا بطنجة بدلا من المنتخب الغاني**: [Link](https://frmf.ma/articles/match-amical-lequipe-nationale-affronte-le-mali-a-la-place-du-ghana)
+- **الاتحاد الغاني يؤكد إلغاء ودية المغرب**: [Link](https://www.hespress.com/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%BA%D8%A7%D9%86%D8%A7-%D9%87%D8%B0%D9%87-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1815591.html)
+- **إلغاء ودية الأسود وغانا – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A5%D9%84%D8%BA%D8%A7%D8%A1-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%88%D8%BA%D8%A7%D9%86%D8%A7/)
+
+
 ### فلاي دبي (N/A, Wed, 30 Sep 2026 09:10:00 -0700)
 
 - **رعب وصراخ على متن طائرة "فلاي دبي" إلى إسرائيل.. ما حقيقة الفيديو؟**: [Link](https://www.aljazeera.net/news/2026/9/30/%D8%B1%D8%B9%D8%A8-%D9%88%D8%B5%D8%B1%D8%A7%D8%AE-%D8%B9%D9%84%D9%89-%D9%85%D8%AA%D9%86-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%81%D9%84%D8%A7%D9%8A-%D8%AF%D8%A8%D9%8A-%D8%A5%D9%84%D9%89)
