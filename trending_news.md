@@ -1,3 +1,59 @@
+### denmark vs portugal (N/A, Thu, 1 Oct 2026 11:10:00 -0700)
+
+- **Retracing the five biggest clashes in history between Denmark and Portugal**: [Link](https://www.flashscore.com/news/soccer-uefa-nations-league-retracing-the-five-biggest-clashes-in-history-between-denmark-and-portugal/fJaRKAyq/)
+- **Nations League Picks and Predictions: Best Bets for October 1, 2026**: [Link](https://www.betus.com.pa/soccer/picks/nations-league-hot-takes-odds-picks-and-predictions-10-01-2026/)
+- **Watch UEFA Nations League Soccer: Livestream Denmark vs. Portugal From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/watch-uefa-nations-league-soccer-livestream-denmark-vs-portugal-from-anywhere-2/)
+
+
+### danemark – portugal (N/A, Thu, 1 Oct 2026 11:00:00 -0700)
+
+- **Danemark - Portugal en direct - Ligue des Nations : Football Scores & Résultats - 01/10/2026**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-danemark-portugal_mtc20005902/live.shtml)
+- **Paris sportifs du 1 octobre 2026 : matchs phares & cotes**: [Link](https://paris-sportifs.lefigaro.fr/actualites/daily-summary-2026-10-01/)
+- **PRONOS PARIS RMC Le pari du jour du 1e octobre – Ligue des nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-1e-octobre-ligue-des-nations_AN-202609300926.html)
+
+
+### pays de galles – norvège (N/A, Thu, 1 Oct 2026 11:00:00 -0700)
+
+- **Allemagne - Serbie en direct - Ligue des Nations : Football Scores & Résultats - 01/10/2026**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-allemagne-serbie_mtc20005888/live.shtml)
+- **Super Cote⚡PMU PLAY Sport : La cote du pari "Norvège gagne sans encaisser de but" passe à 2,69 !**: [Link](https://www.ruedesjoueurs.com/paris-sportifs/sport-news/news-pmu-sport/74545-super-cote-pmu-play-sport-la-cote-du-pari-norvege-gagne-sans-encaisser-de-but-passe-a-2-69.html)
+- **Pronostic Pays de Galles - Norvège : Haaland met la défense de Cardiff à l'épreuve**: [Link](https://www.vietnam.vn/fr/nhan-dinh-bong-da-xu-wales-vs-na-uy-haaland-thu-lua-hang-thu-cardiff)
+
+
+### allemagne – serbie (N/A, Thu, 1 Oct 2026 11:00:00 -0700)
+
+- **Icône du Borussia Dortmund, débuts ratés avec la Nationalmannschaft : Jürgen Klopp arrive en terrain hostile à Munich avant Allemagne-Serbie**: [Link](https://www.lequipe.fr/Football/Actualites/Icone-du-borussia-dortmund-debuts-rates-avec-la-nationalmannschaft-jurgen-klopp-arrive-en-terrain-hostile-a-munich-avant-allemagne-serbie/1722412)
+- **LdN : l’Allemagne et le Portugal sous les projecteurs ce soir**: [Link](https://lopinion.ma/fr/sport/newsroom/ldn--lallemagne-et-le-portugal-sous-les-projecteurs-ce-soir_a67637?articleId=7012a2bf-684b-4064-8663-a95aac126e33)
+- **🗣️ Donne ton avis : que manque-t-il à l'Allemagne pour revenir au top ?**: [Link](https://onefootball.com/fr/news/donne-ton-avis-que-manque-t-il-a-lallemagne-pour-revenir-au-top-43546301)
+
+
+### الدنمارك ضد البرتغال (N/A, Thu, 1 Oct 2026 11:00:00 -0700)
+
+- **جدول مباريات اليوم الخميس 1 أكتوبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-1-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltfc97f20dc9a33ab1)
+- **مباشر.. مباراة البرتغال ضد الدانمارك في دوري الأمم الأوروبية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/1/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AF%D8%A7%D9%86%D9%85%D8%A7%D8%B1%D9%83)
+- **البرتغال تواجه الدنمارك وأزمة رونالدو تسيطر على الأجواء**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83-%D9%88%D8%A3%D8%B2%D9%85%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%AA%D8%B3%D9%8A%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-2026-10-01)
+
+
+### محمد صلاح (N/A, Thu, 1 Oct 2026 07:50:00 -0700)
+
+- **بفضل تألقه أمام غلطة سراي.. جائزة أوروبية لمحمد صلاح**: [Link](https://www.emaratalyoum.com/sports/arab-and-international/2026-09-25-1.2086473)
+- **رسالة صلاح لزملائه في طرابزون قبل مواجهة جالاتا سراي.. ماذا قال؟**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=25092026&id=7f747193-29be-47e2-a60a-7f0869409838)
+- **محمد صلاح ضمن قائمة أفضل 10 هدافين في دوريات أوروبا خلال الموسم الحالي**: [Link](https://daralmaref.com/News/2591747.aspx)
+
+
+### مجلس الشيوخ الإسباني (N/A, Thu, 1 Oct 2026 07:40:00 -0700)
+
+- **تعديلات تقيد مسار تجنيس الصحراويين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B4%D9%8A%D9%88%D8%AE-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%82%D9%8A%D8%AF-%D9%85%D8%B3%D8%A7%D8%B1-%D8%AA%D8%AC%D9%86%D9%8A%D8%B3-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1-1816375.html)
+- **الحزب الشعبي ينسف مقترح تجنيس الصحراويين في إسبانيا ويحذف المسار الاستثنائي الذي أقره مجلس النواب**: [Link](https://www.assahifa.com/%D8%A7%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D9%8A-%D9%8A%D9%86%D8%B3%D9%81-%D9%85%D9%82%D8%AA%D8%B1%D8%AD-%D8%AA%D8%AC%D9%86%D9%8A%D8%B3-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7/)
+- **صحراويون من أجل السلام تنتقد تعديلات الحزب الشعبي على منح الجنسية الإسبانية للصحراويين**: [Link](https://ar.yabiladi.com/articles/details/204020/%D8%B5%D8%AD%D8%B1%D8%A7%D9%88%D9%8A%D9%88%D9%86-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85-%D8%AA%D9%86%D8%AA%D9%82%D8%AF.html)
+
+
+### موجة حر (N/A, Thu, 1 Oct 2026 07:30:00 -0700)
+
+- **مديرية الأرصاد تحذر من تقلبات جوية وزخات رعدية في مناطق بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%AC%D9%88%D9%8A%D8%A9-%D9%88%D8%B2%D8%AE-1816598.html)
+- **موجة حر وزخات رعدية من اليوم الخميس إلى الأحد (نشرة إنذارية)**: [Link](https://assabah.ma/953000.html)
+- **توقعات أحوال الطقس اليوم السبت**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%85%D8%B9-%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1-4/)
+
+
 ### طالب جامعي (N/A, Thu, 1 Oct 2026 04:00:00 -0700)
 
 - **وزارة التعليم العالي تعفي الطلبة الدوليين من معادلات الشهادات والمباريات**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%8A-%D8%AA%D8%B9%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D9%84%D8%A8%D8%A9-%D8%A7%D9%84%D8%AF%D9%88-1815954.html)
