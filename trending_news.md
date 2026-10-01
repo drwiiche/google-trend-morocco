@@ -1,3 +1,24 @@
+### argentina vs bolivia (N/A, Wed, 30 Sep 2026 16:30:00 -0700)
+
+- **"A different look": will Scaloni change Argentina's "identity" after Messi?**: [Link](https://www.goal.com/en/news/a-different-look-will-scaloni-change-argentina-s-identity-after-messi/blt12be863e906491f0)
+- **With ‘Dibu’ as vice-captain and two doubts: Scaloni’s XI v Bolivia**: [Link](https://onefootball.com/en/news/with-dibu-as-vice-captain-and-two-doubts-scalonis-xi-v-bolivia-43541414)
+- **Argentina vs Bolivia preview: prediction, lineups and TV info as Alexis Mac Allister decision made**: [Link](https://rushthekop.com/argentina-vs-bolivia-preview-prediction-lineups-and-tv-info-as-alexis-mac-allister-decision-made)
+
+
+### الأرجنتين ضد بوليفيا (N/A, Wed, 30 Sep 2026 16:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الأرجنتين وبوليفيا الودية؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D8%A8%D9%88%D9%84%D9%8A%D9%81%D9%8A%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltbca1c607d5f2f551)
+- **الأرجنتين تواجه بوليفيا فجر الخميس في أول اختبار بعد المونديال**: [Link](https://www.maspero.eg/sport/2026/09/30/993789/%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A8%D9%88%D9%84%D9%8A%D9%81%D9%8A%D8%A7-%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+- **القنوات الناقلة لمباراة الأرجنتين وبوليفيا مباشر والموعد.. هل يشارك ميسي؟**: [Link](https://www.almasryalyoum.com/news/details/4371930)
+
+
+### argentine – bolivie (N/A, Wed, 30 Sep 2026 16:20:00 -0700)
+
+- **Argentine - Bolivie, Matches amicaux A, match en direct le 01/10/2026**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2026-2027/argentine-bolivie-live/703000)
+- **Avec le «Dibu» vice-capitaine et deux doutes: le onze de Scaloni**: [Link](https://onefootball.com/fr/news/avec-le-dibu-vice-capitaine-et-deux-doutes-le-onze-de-scaloni-43541415)
+- **L'Argentine se prépare pour ses matchs amicaux FIFA.**: [Link](https://www.vietnam.vn/fr/argentina-chuan-bi-cho-loat-tran-giao-huu-fifa)
+
+
 ### وقود (N/A, Wed, 30 Sep 2026 12:50:00 -0700)
 
 - **أكتوبر يستقبل المغاربة بزيادة جديدة في أسعار المحروقات بمحطات الوقود**: [Link](https://www.hespress.com/%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A8%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81-1816117.html)
