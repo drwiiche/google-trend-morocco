@@ -1,3 +1,52 @@
+### طالب جامعي (N/A, Thu, 1 Oct 2026 04:00:00 -0700)
+
+- **وزارة التعليم العالي تعفي الطلبة الدوليين من معادلات الشهادات والمباريات**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%8A-%D8%AA%D8%B9%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D9%84%D8%A8%D8%A9-%D8%A7%D9%84%D8%AF%D9%88-1815954.html)
+- **مذكرة وزارية تدعو إلى تسهيل تسجيل الطلبة الأفارقة بالجامعات المغربية – اليوم 24**: [Link](https://alyaoum24.com/2047529.html)
+- **ميداوي يوجه الجامعات لتسهيل ولوج الطلبة الأفارقة إلى التعليم العالي**: [Link](https://febrayer.com/1163391.html)
+
+
+### japon – équateur (N/A, Thu, 1 Oct 2026 02:50:00 -0700)
+
+- **Score en direct Japon - Équateur : Ayase Ueda met à l'épreuve la défense physiquement solide de La Tri.**: [Link](https://www.vietnam.vn/fr/truc-tiep-ti-so-nhat-ban-vs-ecuador-ayase-ueda-thu-suc-hang-thu-giau-the-luc-cua-la-tri)
+- **Prédiction du match Japon vs Équateur**: [Link](https://fr.laodong.vn/bong-da-quoc-te/nhan-dinh-bong-da-nhat-ban-vs-ecuador-1775366.ldo)
+- **Super Cote⚡PMU PLAY Sport : La cote du pari "Victoire Japon par au moins 2 buts d'écart" passe à 2,91 !!!**: [Link](https://www.ruedesjoueurs.com/paris-sportifs/sport-news/news-pmu-sport/74535-super-cote-pmu-play-sport-la-cote-du-pari-victoire-japon-par-au-moins-2-buts-decart-passe-a-2-91.html)
+
+
+### retraite (N/A, Thu, 1 Oct 2026 01:40:00 -0700)
+
+- **Comment mettre à contribution les retraités pour le redressement des finances publiques ?**: [Link](https://www.ipp.eu/publication/comment-mettre-a-contribution-les-retraites-pour-le-redressement-des-finances-publiques/)
+- **« Nous ne baisserons aucune retraite » : Jean-Pierre Farandou dévoile les plans du gouvernement pour diviser par deux le déficit de la Sécu en 2027​​​​​​​**: [Link](https://www.challenges.fr/economie/jean-pierre-farandou-nous-voulons-diviser-quasiment-par-deux-le-deficit-de-la-securite-sociale-en-2027_646080)
+- **Projet de budget de la Sécurité sociale: les principales mesures**: [Link](https://medias24.com/agence-presse/projet-de-budget-de-la-securite-sociale-les-principales-mesures/)
+
+
+### impôt (N/A, Thu, 1 Oct 2026 01:40:00 -0700)
+
+- **SARL ou SAS, les nouveaux seuils d’imposition des dirigeants pour les revenus 2026**: [Link](https://www.gerantdesarl.com/actualite/sarl-ou-sas-les-nouveaux-seuils-d-imposition-des-dirigeants-pour-les-revenus-2026)
+- **Impôt sur le revenu: le nouveau barème 2027 est dévoilé, allez-vous payer moins d'impôts l'année prochaine?**: [Link](https://www.bfmtv.com/economie/economie-social/finances-publiques/impot-sur-le-revenu-le-nouveau-bareme-2027-est-devoile-allez-vous-payer-moins-d-impots-l-annee-prochaine_AV-202610010303.html)
+- **Impôt sur le revenu : pourquoi vous paieriez moins en 2027 sans avoir changé de salaire**: [Link](https://selectra.info/finance/actualites/marche/impot-revenu-2027-bareme-indexe-salaire-stable)
+
+
+### ماركو روبيو (N/A, Thu, 1 Oct 2026 01:40:00 -0700)
+
+- **"توبيخ دبلوماسي".. روبيو طالب الوفد الإيراني في الأمم المتحدة بالمغادرة فورا**: [Link](https://www.aljazeera.net/news/2026/10/1/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B1%D9%88%D8%A8%D9%8A%D9%88-%D8%B7%D8%A7%D9%84%D8%A8-%D8%A7%D9%84%D9%88%D9%81%D8%AF-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A)
+- **إيران تعلق على تقارير "طرد بعثتها من نيويورك"**: [Link](https://www.skynewsarabia.com/middle-east/1895521-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B9%D9%84%D9%82-%D8%AA%D9%82%D8%A7%D8%B1%D9%8A%D8%B1-%D8%B7%D8%B1%D8%AF-%D8%A8%D8%B9%D8%AB%D8%AA%D9%87%D8%A7-%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83)
+- **إن بي سي عن إدارة السلامة العامة في ولاية تكساس: أحبطنا مخططًا لمهاجمة مبنى الكابيتول في مدينة أوستن**: [Link](https://www.lbcgroup.tv/news/latest-news/960621/%D8%A5%D9%86-%D8%A8%D9%8A-%D8%B3%D9%8A-%D8%B9%D9%86-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D9%81%D9%8A-%D9%88%D9%84%D8%A7%D9%8A%D8%A9-%D8%AA%D9%83%D8%B3%D8%A7%D8%B3-%D8%A3%D8%AD%D8%A8%D8%B7%D9%86%D8%A7-%D9%85%D8%AE%D8%B7%D8%B7%D9%8B%D8%A7-%D9%84%D9%85%D9%87%D8%A7%D8%AC%D9%85%D8%A9/ar)
+
+
+### carlos alcaraz (N/A, Thu, 1 Oct 2026 01:40:00 -0700)
+
+- **Alcaraz gana en su debut en Tokio, Nishikori se retira del tenis**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20261001-alcaraz-gana-en-su-debut-en-tokio-nishikori-se-retira-del-tenis-1)
+- **Alcaraz evita el susto ante Michelsen**: [Link](https://www.orm.es/deportes/alcaraz-evita-el-susto-ante-michelsen/)
+- **Horario y dónde ver por televisión el partido de Alcaraz ante Arnaldi en octavos de Tokio**: [Link](https://www.eurosport.es/tenis/atp-tokio/2026/carlos-alcaraz-matteo-arnaldi-horario-fecha-segunda-ronda-octavos-como-ver-television-online-streaming-hoy_sto23341852/story.shtml)
+
+
+### weather (N/A, Thu, 1 Oct 2026 00:00:00 -0700)
+
+- **Warmer through Friday & what about the weekend**: [Link](https://www.yahoo.com/news/videos/warmer-friday-weekend-074900105.html)
+- **Warming up and keeping the forecast dry into the first week of October**: [Link](https://www.applevalleynewsnow.com/news/warming-up-and-keeping-the-forecast-dry-into-the-first-week-of-october/article_ef96a696-337e-4dcb-82ec-cc7797051cae.html)
+- **Above average temperatures to continue through Friday morning before new changes arrive**: [Link](https://cnycentral.com/newsletter-daily/above-average-temperatures-to-continue-through-friday-morning-before-new-changes-arrive)
+
+
 ### السنغال (N/A, Wed, 30 Sep 2026 22:30:00 -0700)
 
 - **لقب إفريقيا على الطاولة.. كاس تحدد موعد جلسة المغرب والسنغال التاريخية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%82%D8%A8-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9--%D9%83%D8%A7%D8%B3-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AC%D9%84%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9/blt5b139afa0f2c99a2)
