@@ -1,3 +1,17 @@
+### السنغال (N/A, Wed, 30 Sep 2026 22:30:00 -0700)
+
+- **لقب إفريقيا على الطاولة.. كاس تحدد موعد جلسة المغرب والسنغال التاريخية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%82%D8%A8-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B7%D8%A7%D9%88%D9%84%D8%A9--%D9%83%D8%A7%D8%B3-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AC%D9%84%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9/blt5b139afa0f2c99a2)
+- **جلسة حاسمة بشأن نهائي "كان 2025"**: [Link](https://www.hespress.com/%D8%AC%D9%84%D8%B3%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%A8%D8%B4%D8%A3%D9%86-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A7%D9%86-2025-1815891.html)
+- **الطاس تحدد موعد جلسة الحسم في استئناف السنغال بشأن نهائي كأس أمم إفريقيا 2025 – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-%D8%AA%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AC%D9%84%D8%B3%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D9%81%D9%8A-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7/)
+
+
+### prix gasoil maroc (N/A, Wed, 30 Sep 2026 20:40:00 -0700)
+
+- **Carburants : nouvelle flambée des prix ce 1ᵉʳ octobre, le gasoil franchit la barre des 16 DH**: [Link](https://medias24.com/2026/10/01/carburants-nouvelle-flambee-des-prix-ce-1%E1%B5%89%CA%B3-octobre-le-gasoil-franchit-la-barre-des-16-dh-1769165/)
+- **Hydrocarbures : le gouvernement poursuit son soutien direct aux professionnels du transport**: [Link](https://mobile.telquel.ma/instant-t/2026/09/30/hydrocarbures-le-gouvernement-poursuit-son-soutien-direct-aux-professionnels-du-transport_2010736/)
+- **Carburant : hausse des prix à la pompe dès ce jeudi 1er octobre**: [Link](https://fr.hespress.com/490699-carburant-hausse-des-prix-a-la-pompe-des-ce-jeudi-1er-octobre.html)
+
+
 ### argentina vs bolivia (N/A, Wed, 30 Sep 2026 16:30:00 -0700)
 
 - **"A different look": will Scaloni change Argentina's "identity" after Messi?**: [Link](https://www.goal.com/en/news/a-different-look-will-scaloni-change-argentina-s-identity-after-messi/blt12be863e906491f0)
