@@ -1,3 +1,52 @@
+### سجن (N/A, Thu, 1 Oct 2026 15:40:00 -0700)
+
+- **‘Dire situation’: Lebanese prisoners on hunger strike for 18 days**: [Link](https://www.aljazeera.com/news/2026/9/30/dire-situation-lebanese-prisoners-on-hunger-strike-for-18-days)
+- **Death Toll Reaches 7 as Rumiyeh Prison Hunger Strike Enters Day 19**: [Link](https://waradana.com/english/article/274272-death-toll-reaches-7-as-rumiyeh-prison-hunger-strike-enters-day-19)
+- **Lebanon prison tensions flare after amnesty law suspended**: [Link](https://www.thenationalnews.com/news/mena/2026/09/29/lebanon-prison-tensions-flare-after-amnesty-law-suspended/)
+
+
+### سيارة أجرة (N/A, Thu, 1 Oct 2026 13:50:00 -0700)
+
+- **بعد الإعتداء على سائقها.. مختل عقليا يستولي على سيارة أجرة بمراكش**: [Link](https://inews.ma/news/8697093)
+- **حصري: أمن الدائرة الأمنية الثانية "قشيش" يجنب المواطنين من كارثة مرورية بعد ضبط مختل عقلي استولى على سيارة اجرة صغيرة**: [Link](https://www.nichanealane.ma/143610/)
+- **أمن مراكش يوقف شخصاً استولى على سيارة أجرة بالداوديات وتسبب في أضرار مادية**: [Link](https://www.marrakechalaan.com/article-696786)
+
+
+### greece vs netherlands (N/A, Thu, 1 Oct 2026 13:20:00 -0700)
+
+- **Draw with the Dutch keeps underdog Greece ahead of favorites in the Nations League**: [Link](https://infonews.ca/news/7903591/draw-with-the-dutch-keeps-underdog-greece-ahead-of-favorites-in-the-nations-league/)
+- **Licensable picture: Greece v Netherlands - UEFA Nations League 2026/27 Group A2 MD3**: [Link](https://www.reutersconnect.com/item/greece-v-netherlands-uefa-nations-league-202627-group-a2-md3/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDhTWDJMOQ)
+- **Netherlands Player Ratings in 2-2 Draw against Greece**: [Link](http://www.football-oranje.com/netherlands-player-ratings-in-2-2-draw-against-greece/)
+
+
+### ريال مدريد (N/A, Thu, 1 Oct 2026 13:00:00 -0700)
+
+- **صدمة للريال.. مسئول إسباني يفجر مفاجأة: قضية نيجريرا سقطت بالتقادم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D9%84%D9%84%D8%B1%D9%8A%D8%A7%D9%84--%D9%85%D8%B3%D9%8A%D9%94%D9%88%D9%84-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%81%D8%AC%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%82%D8%B6%D9%8A%D8%A9-%D9%86%D9%8A%D8%AC%D8%B1%D9%8A%D8%B1%D8%A7-%D8%B3%D9%82%D8%B7%D8%AA-%D8%A8%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%AF%D9%85/bltcb9893779078794f)
+- **"مستعدون للرد فورا".. برشلونة يرد على تصعيد ريال مدريد أمام يويفا**: [Link](https://www.aljazeera.net/sport/2026/10/1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D9%8A%D8%A7%D9%86-%D9%82%D8%B6%D9%8A%D8%A9-%D9%86%D9%8A%D8%BA%D8%B1%D9%8A%D8%B1%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **قدم.. برشلونة ينفي فتح "يويفا" إجراءات جديدة ضده في قضية نيغريرا**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%86%D9%81%D9%8A-%D9%81%D8%AA%D8%AD-%D9%8A%D9%88%D9%8A%D9%81%D8%A7-%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%B6%D8%AF%D9%87-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D9%86%D9%8A%D8%BA%D8%B1%D9%8A%D8%B1%D8%A7/4075359)
+
+
+### اليونان ضد هولندا (N/A, Thu, 1 Oct 2026 11:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة اليونان وهولندا في دوري الأمم الأوروبية 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-%D9%88%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5cd8c35b3340dff9)
+- **تشافي يدرس تغيير مركز فان دايك**: [Link](https://www.hesport.com/%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%85%D8%B1%D9%83%D8%B2-%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-456500.html)
+- **توتنهام يتلقى ضربة دفاعية قوية قبل 9 أيام من مواجهة مانشستر يونايتد**: [Link](https://twaslnews1.twaslnews.com/5458709/)
+
+
+### ياسر زبيري (N/A, Thu, 1 Oct 2026 11:50:00 -0700)
+
+- **متفوقا على نجم برشلونة.. المغربي الزبيري يحصد أولى جوائزه الفردية في "الليغا"**: [Link](https://www.aljazeera.net/sport/2026/9/30/%D9%85%D8%AA%D9%81%D9%88%D9%82%D8%A7-%D8%B9%D9%84%D9%89-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A)
+- **الزابيري يحصد جائزة أفضل لاعب شاب لشهر شتنبر في "الليغا" – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D8%AD%D8%B5%D8%AF-%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B4%D8%A7%D8%A8-%D9%84%D8%B4%D9%87%D8%B1/)
+- **الدوري الإسباني.. ياسر الزبيري أفضل لاعب تحت 23 سنة خلال شتنبر**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D8%AA%D8%AD%D8%AA-23-%D8%B3%D9%86%D8%A9-%D8%AE%D9%84%D8%A7%D9%84-%D8%B4%D8%AA%D9%86%D8%A8%D8%B1-20260930)
+
+
+### wales vs norway (N/A, Thu, 1 Oct 2026 11:40:00 -0700)
+
+- **Wales vs Norway: Watch & follow - Uefa Nations League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6wyzzzkr917t)
+- **Licensable picture: Wales v Norway - UEFA Nations League 2026/27 Group A4 MD3**: [Link](https://www.reutersconnect.com/item/wales-v-norway-uefa-nations-league-202627-group-a4-md3/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMEM5UURGTg)
+- **Brilliant Wales player ratings as colossal captain keeps Haaland out in Norway win**: [Link](https://www.walesonline.co.uk/sport/football/football-news/superb-wales-player-ratings-colossal-34704170)
+
+
 ### denmark vs portugal (N/A, Thu, 1 Oct 2026 11:10:00 -0700)
 
 - **Retracing the five biggest clashes in history between Denmark and Portugal**: [Link](https://www.flashscore.com/news/soccer-uefa-nations-league-retracing-the-five-biggest-clashes-in-history-between-denmark-and-portugal/fJaRKAyq/)
