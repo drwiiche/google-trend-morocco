@@ -1,3 +1,66 @@
+### عزيز أخنوش (N/A, Fri, 2 Oct 2026 12:00:00 -0700)
+
+- **بلاغ المكتب السياسي لحزب التجمع الوطني للأحرار**: [Link](https://rni.ma/253809/)
+- **"الأحرار" يعلن الاستعداد للمشاركة في الحكومة ومواصلة الأوراش المفتوحة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF-%D9%84%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7-1816413.html)
+- **"إخفاقات وضعف تواصل".. عثمان ومنال بادل يبرران انتقالهما من "الأحرار" إلى "البام"**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D8%A8%D8%AF%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%87-%D9%84%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD/)
+
+
+### bosnie-herzégovine – suède (N/A, Fri, 2 Oct 2026 12:00:00 -0700)
+
+- **Un virus empêche cinq joueurs suédois de faire le déplacement en Bosnie**: [Link](https://www.sofoot.com/breves/un-virus-empeche-cinq-joueurs-suedois-de-faire-le-deplacement-en-bosnie)
+- **Graham Potter plaisante sur le fair-play financier de Manchester City alors que la sélection suédoise est ravagée par une crise de blessures et de maladie**: [Link](https://fr.news.yahoo.com/sport/graham-potter-plaisante-fair-play-040037336.html)
+- **Internationaux : Nanasi dans un choc au sommet — Alsa'Sports - Direct Racing**: [Link](https://www.alsasports.fr/football/rc-strasbourg/internationaux-nanasi-dans-un-choc-au-sommet/83958/)
+
+
+### coupe d'afrique des nations de football 2027 (N/A, Fri, 2 Oct 2026 11:50:00 -0700)
+
+- **Éliminatoires CAN 2027: scores fleuves, surprises, remontada... Résultats et classements après la 2e journée**: [Link](https://afrique.le360.ma/sports/eliminatoires-can-2027-scores-fleuves-surprises-remontada-resultats-et-classement-apres-la-2e_P5AEHT3QANFBPLVQKZN6YDJB4E/)
+- **CAN 2027 : la Guinée-Bissau et la Gambie frappent fort, le Nigeria et le Ghana chutent**: [Link](https://www.cafonline.com/fr/can2025/infos/can-2027-la-guinee-bissau-et-la-gambie-frappent-fort-le-nigeria-et-le-ghana-chutent/)
+- **Qualifications pour la CAN 2027 : quand aura lieu la prochaine journée avec les matchs de l’Algérie, du Maroc ou du Sénégal**: [Link](https://www.leparisien.fr/sports/football/coupe-d-afrique-des-nations/qualifications-pour-la-can-2027-quand-aura-lieu-la-prochaine-journee-avec-les-matchs-de-lalgerie-du-maroc-ou-du-senegal-29-09-2026-ZPN3NGGFCNDLVOPIWFXFIGIFUA.php)
+
+
+### francia - italia (N/A, Fri, 2 Oct 2026 11:50:00 -0700)
+
+- **Francia - Italia, en directo: Nations League, en vivo hoy**: [Link](https://as.com/futbol/internacional/francia-italia-en-directo-nations-league-en-vivo-hoy-f202610-d/)
+- **Francia - Italia en directo | Última hora de UEFA Nations League en vivo hoy**: [Link](https://www.marca.com/futbol/uefa-nations-league/francia-italia/2026/10/02/01_0195_20261002_368_119-directo.html)
+- **«¡Siempre jugamos buscando la victoria!» - Roberto Mancini lanza un mensaje claro a Francia antes del duelo de la Nations League**: [Link](https://es-us.noticias.yahoo.com/deportes/jugamos-buscando-victoria-roberto-mancini-170723509.html)
+
+
+### orage (N/A, Fri, 2 Oct 2026 11:40:00 -0700)
+
+- **Orages : les neuf départements placés en vigilance jaune par Météo-France ce vendredi**: [Link](https://www.tameteo.com/actualites/previsions/orages-les-neuf-departements-places-en-vigilance-jaune-par-meteo-france-ce-vendredi.html)
+- **La vigilance pour risque d'orages se poursuit dans la Nièvre : voici à quoi s’attendre pour les prochaines heures**: [Link](https://www.lejdc.fr/france-monde/faits-divers/la-vigilance-pour-risque-d-orages-se-poursuit-dans-la-nievre_15055686/)
+- **Vigilance jaune crues : hausses localisées possibles dans les Bouches-du-Rhône et dans l'Hérault ce 01 octobre 2026**: [Link](https://www.franceinfo.fr/environnement/meteo/alertes-meteo-et-vigilances/vigilance-jaune-crues-hausses-localisees-possibles-dans-les-bouches-du-rhone-et-dans-l-herault-ce-01-octobre-2026_8217766.html)
+
+
+### france – italie (N/A, Fri, 2 Oct 2026 11:00:00 -0700)
+
+- **Suivez France - Italie En direct - Ligue des Nations A - Groupe 1 - 3e journée**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-france-italie_mtc20006002/live-commentary.shtml)
+- **L'équipe de France avec Da Cunha, Rabiot et Cherki au milieu pour affronter l'Italie**: [Link](https://www.lequipe.fr/Football/Actualites/L-equipe-de-france-avec-da-cunha-rabiot-et-cherki-au-milieu-pour-affronter-l-italie/1722907)
+- **Zinédine Zidane «pas fier» de son coup de tête à Materazzi**: [Link](https://sport.le360.ma/football/zinedine-zidane-pas-fier-de-son-coup-de-tete-a-materazzi_2642WDSIYVFJFDMJZTHRDWTDRQ/)
+
+
+### فرنسا ضد إيطاليا (N/A, Fri, 2 Oct 2026 11:00:00 -0700)
+
+- **زيدان يكشف عن أسلحته في غياب مبابي.. وكين يقود هجوم إيطاليا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%8A%D8%AF%D8%A7%D9%86-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%A7%D9%94%D8%B3%D9%84%D8%AD%D8%AA%D9%87-%D9%84%D8%B6%D8%B1%D8%A8-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D8%AF%D9%88%D9%86-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D8%AF%D9%8A%D9%85%D8%A8%D9%8A%D9%84%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D9%85%D8%B1%D8%B9%D8%A8/bltb58367a1e3fd4b63)
+- **مباشر.. مباراة فرنسا ضد إيطاليا في دوري الأمم الأوروبية.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/2/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%B6%D8%AF-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7)
+- **كافيه شو - رياضة شو: دوري الأمم الأوروبية**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D9%83%D8%A7%D9%81%D9%8A%D9%87-%D8%B4%D9%88/20261002-%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B4%D9%88-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9)
+
+
+### belgique – turquie (N/A, Fri, 2 Oct 2026 11:00:00 -0700)
+
+- **À quelle heure et sur quelle chaîne voir Belgique-Turquie en Ligue des nations ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-belgique-turquie-en-ligue-des-nations/1722341)
+- **Belgique : Pourquoi Godts doit abandonner le numéro 10 : Sports - Orange**: [Link](https://sports.orange.fr/football/autres/article/belgique-pourquoi-godts-doit-abandonner-le-numero-10-exclu-CNT000002sgLtd.html)
+- **Diables Rouges - Maxim De Cuyper, Hans Vanaken et Dodi Lukebakio titularisés contre la Turquie**: [Link](https://www.dhnet.be/dernieres-depeches/2026/10/02/diables-rouges-maxim-de-cuyper-hans-vanaken-et-dodi-lukebakio-titularises-contre-la-turquie-ZLUKNWYD2VGCHILDO5WTIIKLHA/)
+
+
+### باريس سان جيرمان (N/A, Fri, 2 Oct 2026 08:40:00 -0700)
+
+- **سان جيرمان يضع بديلا لأشرف حكيمي**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B6%D8%B9-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7-%D9%84%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-1815410.html)
+- **القضاء الفرنسي يصدم أشرف حكيمي بقرار رسمي في "قضية الاغتصاب"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%8A%D8%B5%D8%AF%D9%85-%D8%A7%D9%94%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%B1%D8%B3%D9%85%D9%8A-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%BA%D8%AA%D8%B5%D8%A7%D8%A8/blt88a71ab91109831c)
+- **قضية حكيمي تثير التساؤلات من جديد.. ماذا ينتظر اللاعب في فرنسا؟**: [Link](https://aljarida24.ma/p/actualites/358533/)
+
+
 ### موجة حر (N/A, Fri, 2 Oct 2026 06:40:00 -0700)
 
 - **إنذار جوي بالمغرب .. حر وزخات رعدية**: [Link](https://www.hespress.com/%D8%A5%D9%86%D8%B0%D8%A7%D8%B1-%D8%AC%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AD%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-1816906.html)
