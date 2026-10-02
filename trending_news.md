@@ -1,3 +1,59 @@
+### diesel (N/A, Fri, 2 Oct 2026 15:40:00 -0700)
+
+- **‘Blackmail’: Europe fumes against White House demand for more diesel**: [Link](https://www.politico.com/news/2026/10/02/white-house-diesel-europe-01104936)
+- **Trump claims credit for European diesel release, says US export ban is off**: [Link](https://apnews.com/video/trump-claims-credit-for-european-diesel-release-says-us-export-ban-is-off-0b7dc6bd05e94cddbfca188e76a5f9c5)
+- **G7 nations will release 100 million barrels of oil and diesel fuel after prices soar**: [Link](https://www.yahoo.com/news/politics/articles/trump-europe-agrees-release-diesel-141011437.html)
+
+
+### اتحاد طنجة (N/A, Fri, 2 Oct 2026 14:20:00 -0700)
+
+- **"ديربي الشمال" ينتهي بالتعادل الإيجابي**: [Link](https://www.hespress.com/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-%D9%8A%D9%86%D8%AA%D9%87%D9%8A-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%A5%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A-1817209.html)
+- **اتحاد طنجة يكافئ ثلاثة من جماهيره بدعوات لحضور مباراة المغرب التطواني**: [Link](https://assabah.ma/953106.html)
+- **توقيفات بالجملة لجماهير المغرب التطواني بعد خرقها لقرار المنع من حضور ديربي الشمال**: [Link](https://radiomars.ma/%D8%AA%D9%88%D9%82%D9%8A%D9%81%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D8%AC%D9%85%D9%84%D8%A9-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88/)
+
+
+### france national football team vs italy national football team standings (N/A, Fri, 2 Oct 2026 14:10:00 -0700)
+
+- **France 1-1 Italy: Michael Olise scores before Alessandro Bastoni equalises in Nations League**: [Link](https://www.bbc.com/sport/football/live/cqe8xr3lw0ret)
+- **Licensable picture: France V Italy : Group 1 - UEFA Nations League**: [Link](https://www.reutersconnect.com/item/france-v-italy-group-1-uefa-nations-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBKWktaNTM)
+- **Nations League | France 1-1 Italy: Bastoni seals impressive result in Paris**: [Link](https://football-italia.net/nations-league-france-1-1-italy-bastoni-paris/)
+
+
+### classement équipe de france de football – équipe d'italie de football (N/A, Fri, 2 Oct 2026 14:00:00 -0700)
+
+- **Ligue des nations : la France de Zidane accrochée par l’Italie, la Belgique écrase la Turquie**: [Link](https://radiomars.ma/fr/?p=6531)
+- **LdN : les résultats du jour**: [Link](https://news.maxifoot.fr/ldn/les-resultats-de-la-soiree-foot-464994.htm)
+- **UEFA Nations League, Journée 3, les résumés, Kevin De Bruyne brille avec la Belgique, l’Italie accroche la France, triplé de Robert Lewandowski**: [Link](https://fr.uefa.com/uefanationsleague/news/02aa-21b9df6597e5-af696158faa0-1000--uefa-nations-league-journee-3-les-resumes-kevin-de-bruyne-/)
+
+
+### المهدي بنعطية (N/A, Fri, 2 Oct 2026 13:00:00 -0700)
+
+- **نجل أسطورة المغرب يرفض "الأسود" من أجل فرنسا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%84-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B5%D9%81%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D9%88%D8%AF-%D9%85%D9%86-%D8%A7%D9%94%D8%AC%D9%84-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/blt64f4ea91aac66f50)
+- **ولد مهدي بنعطية غايلعب مع فرنسا**: [Link](https://www.goud.ma/%D9%88%D9%84%D8%AF-%D9%85%D9%87%D8%AF%D9%8A-%D8%A8%D9%86%D8%B9%D8%B7%D9%8A%D8%A9-%D8%BA%D8%A7%D9%8A%D9%84%D8%B9%D8%A8-%D9%85%D8%B9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-1044898/)
+- **نجل مهدي بنعطية ضمن قائمة فرنسا لكأس العالم تحت 15 سنة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%84-%D9%85%D9%87%D8%AF%D9%8A-%D8%A8%D9%86%D8%B9%D8%B7%D9%8A%D8%A9-%D8%B6%D9%85%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AD%D8%AA-15-%D8%B3%D9%86%D8%A9/26044)
+
+
+### كووورة (N/A, Fri, 2 Oct 2026 12:50:00 -0700)
+
+- **دي لا فوينتي يُمهد لقرار مفاجئ بشأن لامين يامال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%8A-%D9%84%D8%A7-%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%8A%D9%8F%D9%85%D9%87%D8%AF-%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84/blt1fafd4c52102dac0)
+- **ما القنوات الناقلة لمباراة إسبانيا والتشيك في دوري الأمم الأوروبية 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://twaslnews1.twaslnews.com/5509452/)
+- **استعداداً لمواجهة جمهورية التشيك في دوري الأمم الأوروربية 🔥 لامين يامال يتألق في تدريبات المنتخب الإسباني ويسجل هدفاً رائعاً**: [Link](https://sports.asharq.com/videos/shorts/6914/%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B4%D9%8A%D9%83-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D9%81%D9%8A-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%88%D9%8A%D8%B3%D8%AC%D9%84-%D9%87%D8%AF%D9%81%D8%A7-%D8%B1%D8%A7%D8%A6%D8%B9%D8%A7-/)
+
+
+### مدرسة (N/A, Fri, 2 Oct 2026 12:50:00 -0700)
+
+- **احتجاج وعنف واستقطاب سياسي.. ماذا يحدث في ثانويات فرنسا؟**: [Link](https://www.aljazeera.net/news/2026/10/2/%D8%AA%D8%AD%D9%88%D9%84%D8%AA-%D8%A5%D9%84%D9%89-%D9%83%D8%B1%D8%A9-%D8%AB%D9%84%D8%AC-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AA%D8%B9%D8%B1%D9%8A-%D8%A3%D8%B2%D9%85%D8%A9)
+- **فرنسا: تعطل الدراسة في أكثر من 560 مدرسة ثانوية وسط توسع الاحتجاجات الطلابية**: [Link](https://www.france24.com/ar/%D9%81%D8%B1%D9%86%D8%B3%D8%A7/20261002-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A8%D8%B9%D8%AF-%D9%8A%D9%88%D9%85-%D8%AD%D8%A7%D9%81%D9%84-%D8%AA%D9%88%D8%AA%D8%B1-%D8%AA%D8%B9%D8%A8%D8%A6%D8%A9-%D8%AA%D8%B3%D8%AA%D9%85-%D9%85%D8%AF%D8%A7%D8%B1%D8%B3-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%88%D9%8A%D8%A9-%D9%85%D8%AE%D8%AA%D9%84%D9%81-%D8%A3%D9%86%D8%AD%D8%A7%D8%A1-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%AF)
+- **رقعة احتجاجات الثانويات تتسع بفرنسا**: [Link](https://www.hespress.com/%D9%85%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%88%D9%8A%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-1816785.html)
+
+
+### محمد وهبي (N/A, Fri, 2 Oct 2026 12:10:00 -0700)
+
+- **الكاف تدعو الاتحادات الإفريقية للتنافس على استضافة ثلاث نسخ من "الكان"**: [Link](https://ar.telquel.ma/%D9%88%D9%87%D8%A8%D9%8A-%D9%88%D9%81%D9%8A%D9%86%D8%BA%D8%B1-%D8%AC%D9%84%D8%B3%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%84%D9%85%D9%86%D8%A7%D9%82%D8%B4%D8%A9-%D9%86%D8%AC%D8%A7%D8%AD-%D8%A5%D9%81%D8%B1/)
+- **إيميرس فايي: لماذا تكتسي رحلة بطل إفريقيا أهمية في ندوة "الكاف" للاستراتيجية**: [Link](https://www.cafonline.com/ar/caf-strategy-conference/news/%D8%A5%D9%8A%D9%85%D9%8A%D8%B1%D8%B3-%D9%81%D8%A7%D9%8A%D9%8A-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D9%83%D8%AA%D8%B3%D9%8A-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A8%D8%B7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A3%D9%87%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D9%86%D8%AF%D9%88%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%84%D9%84%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A9/)
+- **بحضور وهبي.. أبرز مدربي إفريقيا يجتمعون في مؤتمر «كاف» للاستراتيجية**: [Link](https://radiomars.ma/%D8%A8%D8%AD%D8%B6%D9%88%D8%B1-%D9%88%D9%87%D8%A8%D9%8A-%D8%A3%D8%A8%D8%B1%D8%B2-%D9%85%D8%AF%D8%B1%D8%A8%D9%8A-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%8A%D8%AC%D8%AA%D9%85%D8%B9%D9%88%D9%86/)
+
+
 ### عزيز أخنوش (N/A, Fri, 2 Oct 2026 12:00:00 -0700)
 
 - **بلاغ المكتب السياسي لحزب التجمع الوطني للأحرار**: [Link](https://rni.ma/253809/)
