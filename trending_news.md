@@ -1,3 +1,10 @@
+### portugal vs (N/A, Thu, 1 Oct 2026 12:40:00 -0700)
+
+- **Norway 1-2 Portugal | Report**: [Link](https://www.beinsports.com/en-mena/football/uefa-nations-league/articles-video/ramos-fires-holders-portugal-to-nations-league-win-in-norway-2026-09-27)
+- **（ＰＲＥＭＩＵＭ-TV！ how to watch 49ers 🆚 Cardinals 𝐋𝐈𝐕𝐄 Ｆｒｅｅ Ｓｔｒｅａｍｓ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ**: [Link](https://czechinvest.gov.cz/panorama/CZI-Holesov/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2xpdmVwbGF5My5naXRodWIuaW8vbmV3LyIvPjwva3JwYW5vPg==&id=49ers-vs-cardinals-updates-from-nfl-week-3-game-today-029)
+- **Norway – Portugal: Portugal Hold Out For Win Under Jorge Jesus Despite Haaland Equaliser (1-2)**: [Link](https://betweentheposts.net/norway-portugal-portugal-hold-out-for-win-under-jorge-jesus-despite-haaland-equaliser-1-2/)
+
+
 ### république dominicaine – haïti (N/A, Thu, 1 Oct 2026 17:20:00 -0700)
 
 - **Ligue des Nations : Entre Haïtiens et Dominicains, l’île s’apprête à choisir son maître**: [Link](https://haititempo.com/ligue-des-nations-entre-haitiens-et-dominicains-lile-sapprete-a-choisir-son-maitre/)
