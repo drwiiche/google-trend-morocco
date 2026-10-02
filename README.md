@@ -1,3 +1,17 @@
+### république dominicaine – haïti (N/A, Thu, 1 Oct 2026 17:20:00 -0700)
+
+- **Ligue des Nations : Entre Haïtiens et Dominicains, l’île s’apprête à choisir son maître**: [Link](https://haititempo.com/ligue-des-nations-entre-haitiens-et-dominicains-lile-sapprete-a-choisir-son-maitre/)
+- **« Vendre l’héritage » : comment la République dominicaine est allée au-delà du baseball pour devenir une menace dans la CONCACAF avant un choc de rivalité longtemps attendu face à Haïti**: [Link](https://www.goal.com/fr/originaux/vendre-l-heritage-comment-la-republique-dominicaine-est-allee-au-dela-du-baseball-pour-devenir-une-menace-dans-la-concacaf-avant-un-choc-de-rivalite-longtemps-attendu-face-a-haiti/bltc8fc4f891bc246e7)
+- **Pronostic République Dominicaine vs Haïti 01 Octobre 2026**: [Link](https://dailysports.net/fr/predictions/la-bataille-des-6-points-qui-sortira-vainqueur-pronostic-pour-le-match-entre-la-republique-dominicaine-et-haiti-le-2-octobre/)
+
+
+### منتخب إسبانيا لكرة القدم (N/A, Thu, 1 Oct 2026 16:50:00 -0700)
+
+- **نجم إسبانيا يغادر المعسكر مصابًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AC%D9%85-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%85%D8%B5%D8%A7%D8%A8%D9%8B%D8%A7/bltbd107b366994fad2)
+- **دوري الأمم: نيكو وليامس يغادر معسكر إسبانيا بسبب إصابة في الفخذ**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261001-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D9%86%D9%8A%D9%83%D9%88-%D9%88%D9%84%D9%8A%D8%A7%D9%85%D8%B3-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%81%D8%AE%D8%B0-1)
+- **ماركا توضح تطورات حالة إريك جارسيا بعد إصابته مع إسبانيا**: [Link](https://www.btolat.com/news/411373)
+
+
 ### سجن (N/A, Thu, 1 Oct 2026 15:40:00 -0700)
 
 - **‘Dire situation’: Lebanese prisoners on hunger strike for 18 days**: [Link](https://www.aljazeera.com/news/2026/9/30/dire-situation-lebanese-prisoners-on-hunger-strike-for-18-days)
