@@ -1,3 +1,66 @@
+### موجة حر (N/A, Fri, 2 Oct 2026 06:40:00 -0700)
+
+- **إنذار جوي بالمغرب .. حر وزخات رعدية**: [Link](https://www.hespress.com/%D8%A5%D9%86%D8%B0%D8%A7%D8%B1-%D8%AC%D9%88%D9%8A-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AD%D8%B1-%D9%88%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-1816906.html)
+- **طقس حار مع قطرات مطرية متوقع اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AD%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7/)
+- **موجة حر وزخات رعدية من اليوم الخميس إلى الأحد (نشرة إنذارية)**: [Link](https://assabah.ma/953000.html)
+
+
+### crise migratoire (N/A, Fri, 2 Oct 2026 06:40:00 -0700)
+
+- **« Tout indique que le Maroc a laissé passer » : comment Rabat a instrumentalisé la crise migratoire à Ceuta**: [Link](https://www.leparisien.fr/international/tout-indique-que-le-maroc-a-laisse-passer-comment-rabat-a-instrumentalise-la-crise-migratoire-a-ceuta-02-10-2026-B5K67WPCOFGMZATVJHJWPYRUZA.php)
+- **Le cynisme du PP à l’égard du Maroc: de la rhétorique de Rajoy aux accusations de Feijóo**: [Link](https://fr.le360.ma/monde/le-cynisme-du-pp-a-legard-du-maroc-de-la-rhetorique-de-rajoy-aux-accusations-de-feijoo_K7HGQ655GZGXTHJ5Z47R22D7VA/)
+- **L'armée espagnole aurait identifié 72 militaires et agents marocains à Sebta, la ministre dit ne rien savoir**: [Link](https://www.bladi.net/armee-espagnole-aurait-identifie-militaires-agents-marocains-sebta-ministre-dit,124043.html)
+
+
+### منتخب ألمانيا لكرة القدم (N/A, Fri, 2 Oct 2026 06:40:00 -0700)
+
+- **كلوب: الجميع سعداء في ليفربول اليوم.. ولاعب بايرن ميونخ مذهل**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%84%D9%88%D8%A8-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D8%B3%D8%B9%D8%AF%D8%A7%D8%A1-%D9%81%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85--%D9%88%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%85%D8%B0%D9%87%D9%84/bltcee8b28a2b3a394a)
+- **يورغن كلوب يحقق فوزه الأول مع المنتخب الألماني**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%8A%D9%88%D8%B1%D8%BA%D9%86-%D9%83%D9%84%D9%88%D8%A8-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A-2026-10-01)
+- **دوري الأمم الأوروبية: فوز أول لألمانيا بقيادة كلوب وهولندا تنجو من فخ اليونان**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261001-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%81%D9%88%D8%B2-%D8%A3%D9%88%D9%84-%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%83%D9%84%D9%88%D8%A8-%D9%88%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D8%AA%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D9%81%D8%AE-%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86)
+
+
+### novak djokovic (N/A, Fri, 2 Oct 2026 06:40:00 -0700)
+
+- **Djokovic wowed by China Open crowds**: [Link](https://www.chinadaily.com.cn/a/202610/02/WS6abef0f1e4b06d4aa05612bd.html)
+- **Tennis Stats Are Stupid, and Djokovic’s 30-0 Record Proves It**: [Link](https://sports.yahoo.com/articles/tennis-stats-stupid-djokovic-30-110107889.html)
+- **Novak Djokovic gives his verdict on the current state of Chinese tennis, ‘it’s important’**: [Link](https://tennishead.net/novak-djokovic-gives-his-verdict-on-the-current-state-of-chinese-tennis-its-important/)
+
+
+### فيتينيا (N/A, Fri, 2 Oct 2026 06:20:00 -0700)
+
+- **بعد أزمة كريستيانو رونالدو.. فيتينيا يخرج بتصريح مثير عن البرتغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88--%D9%81%D9%8A%D8%AA%D9%8A%D9%86%D9%8A%D8%A7-%D9%8A%D8%AE%D8%B1%D8%AC-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84/bltad5f595eb7a4c4c0)
+- **"نحبك يا جيسوس" .. جمهور ونجوم البرتغال يساندون مدرب الفريق عقب أزمة رونالدو**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D8%AD%D8%A8%D9%83-%D9%8A%D8%A7-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D9%88%D9%86%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%8A%D8%B3%D8%A7%D9%86%D8%AF%D9%88%D9%86-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%B1%D9%8A%D9%82-%D8%B9%D9%82%D8%A8-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88/blt98cf7d85e89d30b4)
+- **برباعية.. البرتغال تهزم الدنمارك في غياب رونالدو**: [Link](https://www.alarabiya.net/sport/2026/10/02/%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AA%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%AF%D9%86%D9%85%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D8%BA%D9%8A%D8%A7%D8%A8-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88)
+
+
+### corée du sud – venezuela (N/A, Fri, 2 Oct 2026 05:50:00 -0700)
+
+- **Corée du Sud - Venezuela en direct : Compositions des équipes**: [Link](https://www.vietnam.vn/fr/truc-tieptruc-tiep-han-quoc-vs-venezuela-doi-hinh-xuat-phat)
+- **Pronostic Corée du Sud vs Venezuela 02 Octobre 2026**: [Link](https://dailysports.net/fr/predictions/la-coree-du-sud-et-le-venezuela-jouent-regulierement-des-matchs-prolifiques-pronostic-pour-coree-du-sud-venezuela/)
+- **Pronostic Corée du Sud - Venezuela : On s'attend à un match à score élevé et très disputé.**: [Link](https://www.vietnam.vn/fr/nhan-dinh-han-quoc-vs-venezuela-hua-hen-man-doi-cong)
+
+
+### marrakech (N/A, Fri, 2 Oct 2026 00:40:00 -0700)
+
+- **Les Européens ne sont plus seuls : Marrakech attire une nouvelle génération d'acheteurs fortunés**: [Link](https://www.bladi.net/europeens-seuls-marrakech-attire-nouvelle-generation-acheteurs-fortunes,124111.html)
+- **Résidences secondaires : le nouvel investissement des élites africaines**: [Link](https://forbesafrique.com/residences-secondaires-le-nouvel-investissement-des-elites-africaines/)
+- **Marrakech Short Film Festival 2026 : la 6e édition bat déjà son plein à Marrakech**: [Link](https://hitradio.ma/new/marrakech-short-film-festival-2026-la-6e-edition-bat-deja-son-plein-a-marrakech)
+
+
+### weather (N/A, Fri, 2 Oct 2026 00:30:00 -0700)
+
+- **More Light Rain Forecast into the Weekend**: [Link](https://www.kxii.com/2026/10/01/more-light-rain-forecast-into-weekend/)
+- **Rain moves in tomorrow evening, sticking around into the weekend**: [Link](https://www.wvva.com/2026/10/01/rain-moves-tomorrow-evening-sticking-around-into-weekend/)
+- **Cooler weather arrives in Texoma with clouds and rain**: [Link](https://www.aol.com/articles/cooler-weather-arrives-texoma-clouds-132043000.html)
+
+
+### ليونيل ميسي (N/A, Fri, 2 Oct 2026 00:10:00 -0700)
+
+- **رسميًا.. ميسي يعود إلى الكرة الإسبانية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9/blt58719557bc8063a3)
+- **ميسي يستحوذ على نادي إلدينسي الإسباني في صفقة تنتظر الموافقات الرسمية**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AD%D9%88%D8%B0-%D8%B9%D9%84%D9%89-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A5%D9%84%D8%AF%D9%8A%D9%86%D8%B3%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%B5%D9%81%D9%82%D8%A9-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%81%D9%82%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9/4075467)
+- **بعد كورنيا.. ميسي يواصل الاستثمار في إسبانيا بشراء نادي إلدينسي**: [Link](https://www.aljazeera.net/sport/2026/10/2/%D9%85%D9%8A%D8%B3%D9%8A-%D8%A5%D9%84%D8%AF%D9%8A%D9%86%D8%B3%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%B4%D8%B1%D8%A7%D8%A1)
+
+
 ### portugal vs (N/A, Thu, 1 Oct 2026 12:40:00 -0700)
 
 - **Norway 1-2 Portugal | Report**: [Link](https://www.beinsports.com/en-mena/football/uefa-nations-league/articles-video/ramos-fires-holders-portugal-to-nations-league-win-in-norway-2026-09-27)
