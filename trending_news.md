@@ -1,3 +1,71 @@
+### منتخب مصر لكرة القدم (N/A, Sat, 3 Oct 2026 12:10:00 -0700)
+
+- **تشكيلة المنتخب الوطني لاقل من 20سنة امام مصر**: [Link](https://frmf.ma/articles/eliminatoires-u20-tournoi-unaf-composition-du-maroc-face-a-legypte)
+- **ملخص مباراة منتخب مصر للشباب ضد المغرب اليوم في تصفيات شمال أفريقيا تحت 20 سنة**: [Link](https://www.almasryalyoum.com/news/details/4373985)
+- **في قمة حاسمة للعبور إلى "الكان".. "أشبال الأطلس" يصطدمون بالفراعنة .. الموعد والقنوات الناقلة**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA/%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D9%84%D8%B9%D8%A8%D9%88%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85%D9%88%D9%86-%D8%A8%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/26087)
+
+
+### spain vs (N/A, Sat, 3 Oct 2026 12:00:00 -0700)
+
+- **Spain vs Czech Republic: UEFA Nations League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm4gjnl08ylyt)
+- **Santi Denia won Olympic gold with Spain’s youngsters, and now he brings Czechia to Oviedo with no points**: [Link](https://www.sportsadda.asia/football/news-football/santi-denia-won-olympic-gold-with-spains-youngsters-and-now-he-brings-czechia-to-oviedo-with-no-points/)
+- **'Rest for Lamine? We will pick the right team to win'**: [Link](https://www.besoccer.com/new/rest-for-lamine-we-will-pick-the-right-team-to-win-1432750)
+
+
+### suisse – slovénie (N/A, Sat, 3 Oct 2026 12:00:00 -0700)
+
+- **Ligue des nations : Yakin aligne le même 11 contre la Slovénie**: [Link](https://www.rts.ch/sport/football/2026/article/ligue-des-nations-yakin-aligne-le-meme-11-contre-la-slovenie-29375077.html)
+- **La star slovène Jan Oblak encense la Nati**: [Link](https://www.blick.ch/fr/sport/football/la-star-slovene-jan-oblak-la-suisse-fait-partie-du-top-5-europeen/yjq754k)
+- **La Nati s’apprête à vivre un changement radical**: [Link](https://www.watson.ch/fr/sport/football/476443255-la-nati-s-apprete-a-vivre-un-changement-radical)
+
+
+### españa - chequia (N/A, Sat, 3 Oct 2026 11:40:00 -0700)
+
+- **Roberto, dentro; Espí, fuera; y descanso para Cubarsí**: [Link](https://as.com/futbol/seleccion/espi-y-cubarsi-descartados-ante-republica-checa-f202610-n/)
+- **Cruzan los dedos por Ferran Torres**: [Link](https://www.sport.es/es/noticias/futbol-internacional/psg-cruza-dedos-ferran-torres-134950156)
+- **Cubarsí se queda fuera ante República Checa**: [Link](https://www.mundodeportivo.com/seleccion-espanola/20261003/1004234010/cubarsi-espi-dos-descartes-espana-medirse-republica-checa.html)
+
+
+### botola (N/A, Sat, 3 Oct 2026 11:40:00 -0700)
+
+
+
+
+### espagne – tchéquie (N/A, Sat, 3 Oct 2026 11:00:00 -0700)
+
+- **Espagne - Tchéquie, Ligue des nations A, match en direct le 03/10/2026**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/espagne-tchequie-live/688732)
+- **Espagne - République tchèque en direct - Ligue des Nations : Football Scores & Résultats - 03/10/2026**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-espagne-republique-tcheque_mtc20005905/live.shtml)
+- **De la Fuente surprend tout le monde avec 9 changements dans la composition de l'Espagne**: [Link](https://www.goal.com/fr/news/de-la-fuente-surprend-tout-le-monde-avec-9-changements-dans-la-composition-de-l-espagne/blt236948ba5538fb1e)
+
+
+### spain vs czechia (N/A, Sat, 3 Oct 2026 11:00:00 -0700)
+
+- **Spain vs Czech Republic LIVE Updates, Lamine Yamal scores the first goal (1-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/10/03/1273758-spain-vs-czech-republic-live-score-uefa-nations-league.html)
+- **#~@√⁂〖LALIGA 2026〗 Chequia vs. Espana en directo En Directo Online Gratis**: [Link](https://www.oita-trinita.co.jp/wp/wp-content/themes/db-theme/assets/parts/pannellum/pannellum.htm?config=/%5C/sanimbro%2Eonline%2Fxnxpox%2Fchequia-vs-espana-en-directo-en-vivo-ver-tvc-0101-es-190)
+- **📸 Lamine Yamal continues stunning form with sensational strike 🔥**: [Link](https://sports.yahoo.com/articles/lamine-yamal-continues-stunning-form-190900447.html)
+
+
+### إسبانيا ضد التشيك (N/A, Sat, 3 Oct 2026 11:00:00 -0700)
+
+- **مدرب إسبانيا عن أزمة رونالدو: لا أملك الحقائق**: [Link](https://www.alarabiya.net/sport/2026/10/03/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B9%D9%86-%D8%A7%D8%B2%D9%85%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%84%D8%A7-%D8%A7%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%AD%D9%82%D8%A7%D8%A6%D9%82)
+- **بشكل مفاجئ.. نجم إسبانيا يغادر المعسكر ويطير إلى فرنسا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94--%D9%86%D8%AC%D9%85-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%88%D9%8A%D8%B7%D9%8A%D8%B1-%D8%A7%D9%95%D9%84%D9%89-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/blt3be8a5be8835579b)
+- **أزمة رونالدو أمام مدرب إسبانيا.. دي لا فوينتي يجيب بحذر**: [Link](https://www.aljazeera.net/sport/2026/10/3/%D8%AF%D9%8A-%D9%84%D8%A7%D9%81%D9%88%D9%8A%D9%86%D8%AA%D9%8A-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88)
+
+
+### الدفاع الجديدي ضد الوداد الرياضي (N/A, Sat, 3 Oct 2026 10:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الدفاع الجديدي والوداد في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-%D9%88%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd006c70f0ab48514)
+- **منع تنقل جماهير الوداد لمساندة فريقها أمام الدفاع الحسني الجديدي**: [Link](https://assabah.ma/953071.html)
+- **30 درهما لمتابعة مباراة الدفاع الجديدي والوداد في «ملعب العبدي»**: [Link](https://casa24.ma/sport/68764.html)
+
+
+### royal air maroc (N/A, Sat, 3 Oct 2026 10:00:00 -0700)
+
+- **Hamam Al Hammami, le copilote accusé de l'attaque du vol flydubai, est passé par la Royal Air Maroc**: [Link](https://ledesk.ma/2026/10/03/hamam-al-hammami-le-copilote-accuse-de-lattaque-du-vol-flydubai-est-passe-par-la-royal-air-maroc/)
+- **Incident Flydubai : la RAM affirme avoir écarté la candidature du copilote**: [Link](https://fr.hespress.com/490950-incident-flydubai-la-ram-affirme-avoir-ecarte-la-candidature-du-copilote.html)
+- **Vol Flydubai dérouté : Oman avait interdit au copilote de voler en raison de soupçons de radicalisation, selon le « Wall Street Journal »**: [Link](https://www.lemonde.fr/international/article/2026/10/03/vol-flydubai-deroute-oman-avait-interdit-au-copilote-de-voler-en-raison-de-soupcons-d-extremisme-selon-le-wall-street-journal_6787491_3210.html)
+
+
 ### croatia vs england (N/A, Sat, 3 Oct 2026 08:20:00 -0700)
 
 - **Croatia vs England: UEFA Nations League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm046w9zdkrwt)
