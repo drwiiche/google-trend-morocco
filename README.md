@@ -1,3 +1,66 @@
+### croatia vs england (N/A, Sat, 3 Oct 2026 08:20:00 -0700)
+
+- **Croatia vs England: UEFA Nations League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm046w9zdkrwt)
+- **Final blaugrana duel of the international break**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4585817/final-blaugrana-duel-of-the-international-break)
+- **Bilic hails the difference-making quality of Luka Modrić**: [Link](https://www.vavel.com/en/international-football/2026/10/03/1273787-bilic-hails-the-difference-making-quality-of-luka-modric.html)
+
+
+### كرواتيا ضد إنجلترا (N/A, Sat, 3 Oct 2026 08:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة كرواتيا وإنجلترا في دوري الأمم الأوروبية 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-%D9%88%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta9a27b52e42e5b73)
+- **أموريم يتحدث عن مودريتش و أبرز تحديات الفريق: "أمور كثيرة تنقصنا"**: [Link](https://milanreports.com/ar/2026/10/02/%D8%A3%D9%85%D9%88%D8%B1%D9%8A%D9%85-%D8%B9%D9%86-%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D8%AA%D8%B4-%D9%88-%D8%A7%D9%84%D8%AA%D8%AD%D8%AF%D9%8A%D8%A7%D8%AA/)
+- **توخيل: لا مجال للتراخي وكأننا في عطلة**: [Link](https://www.fotmob.com/ar/news/n2peumd1da511dnwy8n8k7ax8_ar-)
+
+
+### تونس (N/A, Sat, 3 Oct 2026 08:20:00 -0700)
+
+- **المنتخب الوطني للأواسط يغادر تصفيات شمال إفريقيا**: [Link](https://diwanfm.net/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D8%A3%D9%88%D8%A7%D8%B3%D8%B7-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+- **منتخب ليبيا تحت 20 عامًا يواجه تونس بطموح الفوز الأول في شمال أفريقيا**: [Link](https://alwasat.ly/news/480213)
+- **بطولة اتحاد شمال إفريقيا تحت 20 عاما: المنتخب التونسي يفقد آماله في التأهل إلى كأس أمم إفريقيا 2027**: [Link](https://www.babnet.net/cadredetail-337170.asp)
+
+
+### croatie – angleterre (N/A, Sat, 3 Oct 2026 08:10:00 -0700)
+
+- **Croatie vs Angleterre: Où regarder le match en ligne, streaming en direct, chaînes TV et heure du coup d'envoi**: [Link](https://www.goal.com/fr/news/streaming-en-direct-en-ligne-tv-ou-regarder-croatie-v-angleterre/blt2f700eec9ee6bd7e)
+- **Ligue des Nations : Croatie-Angleterre, Espagne-République tchèque ce samedi**: [Link](https://lopinion.ma/fr/sport/newsroom/ligue-des-nations--croatie-angleterre-espagne-republique-tcheque-ce-samedi_a97190?articleId=8f4e3ad5-0bd3-48da-be46-edfb931a94c4)
+- **Un aperçu d’une affiche intrigante de la Ligue des nations entre la Croatie et l’Angleterre**: [Link](https://www.flashscore.fr/actualites/un-apercu-d-une-affiche-intrigante-de-la-ligue-des-nations-entre-la-croatie-et-l-angleterre/8EixNPSP/)
+
+
+### vol (N/A, Sat, 3 Oct 2026 07:40:00 -0700)
+
+- **Hamam Al Hammami, le copilote accusé de l'attaque du vol Flydubai, est passé par Royal Air Maroc**: [Link](https://ledesk.ma/2026/10/03/hamam-al-hammami-le-copilote-accuse-de-lattaque-du-vol-flydubai-est-passe-par-la-royal-air-maroc/)
+- **Incident Flydubai : la RAM affirme avoir écarté la candidature du copilote**: [Link](https://fr.hespress.com/490950-incident-flydubai-la-ram-affirme-avoir-ecarte-la-candidature-du-copilote.html)
+- **Vol Flydubai dérouté: le copilote était interdit de vol par Oman car soupçonné de radicalisation, selon plusieurs médias**: [Link](https://www.bfmtv.com/international/moyen-orient/vol-flydubai-deroute-le-copilote-etait-interdit-de-vol-par-oman-car-soupconne-de-radicalisation-selon-plusieurs-medias_AN-202610030073.html)
+
+
+### india vs brazil (N/A, Sat, 3 Oct 2026 06:50:00 -0700)
+
+- **India vs Brazil: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm36lgnwx4zpt)
+- **India vs Brazil football 2026: Know where to watch IND vs BRA friendly match live streaming and telecast**: [Link](https://www.olympics.com/en/news/india-vs-brazil-football-2026-friendly-match-time-watch-live-streaming-telecast)
+- **India vs. Brazil 2026 livestream: How to watch International Friendly for free**: [Link](https://mashable.com/entertainment/india-brazil-international-friendly-2026-live-stream-for-free)
+
+
+### الهند ضد البرازيل (N/A, Sat, 3 Oct 2026 06:50:00 -0700)
+
+- **"قلوبنا منقسمة".. أزمة ولاء تواجه جماهير منتخب البرازيل في الهند**: [Link](https://www.aljazeera.net/sport/2026/10/3/%D9%82%D9%84%D9%88%D8%A8%D9%86%D8%A7-%D9%85%D9%86%D9%82%D8%B3%D9%85%D8%A9-%D8%A3%D8%B2%D9%85%D8%A9-%D9%88%D9%84%D8%A7%D8%A1-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1)
+- **لتفادي سيناريو ميسي .. اجراءات استثنائية من البرازيل قبل زيارة الهند**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%8A%D8%B3%D9%8A-%D8%A7%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%82%D8%A8%D9%84-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%87%D9%86%D8%AF/bltae0dd1c23b8e0d91)
+- **توقعات مباراة الهند والبرازيل: يسعى الفريق المضيف للعودة إلى سكة الانتصارات.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-an-do-vs-brazil-chu-nha-tim-lai-chien-thang)
+
+
+### inde – brésil (N/A, Sat, 3 Oct 2026 06:20:00 -0700)
+
+- **DIRECT. Inde - Brésil, Matches amicaux A : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2026-2027/inde-bresil-live/702994)
+- **Sécurité maximale pour le Brésil à Kolkata**: [Link](https://rdcsport.cd/news/securite-maximale-bresil-kolkata)
+- **Inde-Brésil : une première historique à Calcutta pour la Seleção d’Ancelotti**: [Link](https://www.sport.fr/football/inde-bresil-une-premiere-historique-a-calcutta-pour-la-selecao-dancelotti-1486920.shtm)
+
+
+### medhi benatia (N/A, Sat, 3 Oct 2026 00:50:00 -0700)
+
+- **Jesus fails to stop Ronaldo from leaving Portugal camp**: [Link](https://www.sowetan.co.za/sport/2026-10-02-jesus-fails-to-stop-ronaldo-from-leaving-portugal-camp/)
+- **Cristiano Ronaldo’s Portugal exit may not stop him from receiving UEFA Nations League gold due to one less-...**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldos-portugal-exit-may-not-stop-him-from-receiving-uefa-nations-league-gold-due-to-one-less-known-rule/)
+- **Video: You're not worth Ronaldo's finger: Portuguese fan shocks Jesus on arrival!**: [Link](https://www.goal.com/en/news/video-not-worth-ronaldo-s-finger-portuguese-fan-shocks-jesus-upon-his-arrival/bltc7ff35cd27478f3d)
+
+
 ### تقاعد (N/A, Sat, 3 Oct 2026 02:30:00 -0700)
 
 - **يغطي نظام التقاعد الخاص بالضباط العسكريين المتقاعدين 58 مرضاً خطيراً، ويشمل العديد منها السرطان.**: [Link](https://www.vietnam.vn/ar/58-benh-hiem-ngheo-ap-dung-che-do-voi-si-quan-quan-doi-nghi-huu-co-nhieu-benh-ung-thu)
