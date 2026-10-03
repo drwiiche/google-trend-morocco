@@ -1,3 +1,36 @@
+### تقاعد (N/A, Sat, 3 Oct 2026 02:30:00 -0700)
+
+- **يغطي نظام التقاعد الخاص بالضباط العسكريين المتقاعدين 58 مرضاً خطيراً، ويشمل العديد منها السرطان.**: [Link](https://www.vietnam.vn/ar/58-benh-hiem-ngheo-ap-dung-che-do-voi-si-quan-quan-doi-nghi-huu-co-nhieu-benh-ung-thu)
+- **58 مرضاً خطيراً ينطبق على الضباط العسكريين المتقاعدين.**: [Link](https://www.vietnam.vn/ar/58-benh-hiem-ngheo-ap-dung-voi-si-quan-quan-doi-nghi-huu)
+- **المتقاعدون المغاربة ينادون الحكومة القادمة بالرفع من قيمة المعاشات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AA%D9%82%D8%A7%D8%B9%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D9%86%D8%A7%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7-1816608.html)
+
+
+### weather (N/A, Sat, 3 Oct 2026 00:30:00 -0700)
+
+- **Grab the Umbrella this Weekend, Crisp Fall Weather Follows!**: [Link](https://www.wsls.com/weather/2026/10/03/grab-the-umbrella-this-weekend-crisp-fall-weather-follows/)
+- **Warmest Day Of The Week, Then Temperatures Tumble**: [Link](https://www.29news.com/2026/10/02/warmest-day-week-then-temperatures-tumble/)
+- **Warm afternoon on Friday along with a chance of rain**: [Link](https://www.wtva.com/2026/10/02/warm-afternoon-friday-along-with-chance-rain/)
+
+
+### flydubai (N/A, Fri, 2 Oct 2026 23:20:00 -0700)
+
+- **Flydubai co-pilot attacked captain with axe, UAE official says**: [Link](https://www.bbc.com/news/articles/c61wv7lgex13o)
+- **Flydubai co-pilot used crash axe to attack captain, says UAE**: [Link](https://www.theguardian.com/world/2026/oct/03/flydubai-co-pilot-used-crash-axe-to-attack-captain-says-uae)
+- **Royal Air Maroc clarifies Flydubai co-pilot’s past training with the airline**: [Link](https://en.hespress.com/146622-royal-air-maroc-clarifies-flydubai-co-pilots-past-training-with-the-airline.html)
+
+
+### tiempo (N/A, Fri, 2 Oct 2026 23:00:00 -0700)
+
+
+
+
+### نقل (N/A, Fri, 2 Oct 2026 22:00:00 -0700)
+
+- **المحروقات ترفع قيمة دعم مهنيي النقل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%AA%D8%B1%D9%81%D8%B9-%D9%82%D9%8A%D9%85%D8%A9-%D8%AF%D8%B9%D9%85-%D9%85%D9%87%D9%86%D9%8A%D9%8A-%D8%A7%D9%84%D9%86%D9%82%D9%84-1817061.html)
+- **تعليق التكرير يكلف 4 آلاف مليار سنويا**: [Link](https://assabah.ma/952953.html)
+- **بين تطمينات بنعلي وضبابية حرب الشرق الأوسط..هذه وضعية احتياطيات المواد الطاقية – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A8%D9%8A%D9%86-%D8%AA%D8%B7%D9%85%D9%8A%D9%86%D8%A7%D8%AA-%D8%A8%D9%86%D8%B9%D9%84%D9%8A-%D9%88%D8%B6%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D8%AD%D8%B1%D8%A8-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84/)
+
+
 ### france vs (N/A, Fri, 2 Oct 2026 13:10:00 -0700)
 
 - **France 1-1 Italy: Michael Olise scores before Alessandro Bastoni equalises in Nations League**: [Link](https://www.bbc.com/sport/football/live/cqe8xr3lw0ret)
