@@ -1,3 +1,52 @@
+### spain national football team vs czech republic national football team standings (N/A, Sat, 3 Oct 2026 14:40:00 -0700)
+
+- **Spain 3-1 Czech Republic: World champions secure victory to maintain winning run**: [Link](https://www.bbc.com/sport/football/live/cm4gjnl08ylyt)
+- **De la Fuente surprises everyone with nine changes to Spain's line-up**: [Link](https://www.goal.com/en/news/de-la-fuente-surprises-everyone-with-nine-changes-to-spain-s-line-up/blt236948ba5538fb1e)
+- **📸 Lamine Yamal continues stunning form with sensational strike 🔥**: [Link](https://sports.yahoo.com/articles/lamine-yamal-continues-stunning-form-190900447.html)
+
+
+### lamine yamal (N/A, Sat, 3 Oct 2026 13:50:00 -0700)
+
+- **Josko Gvardiol makes honest Lamine Yamal admission after Croatia suffers heavy defeat to Spain**: [Link](https://www.goal.com/en/lists/josko-gvardiol-lamine-yamal-croatia-spain/blta8e0d60ea5d85ac1)
+- **Spain beat Croatia 4-1 in Seville, southern Spain, in Nations League**: [Link](https://sana.sy/en/sport/2346970/)
+- **Lamine Yamal Gives Barcelona Good News Before PSG, Real Madrid Games**: [Link](https://heavy.com/sports/soccer/lamine-yamal-barcelona-good-news-psg-real-madrid/)
+
+
+### raja match (N/A, Sat, 3 Oct 2026 13:40:00 -0700)
+
+- **Adam Copeland's Maple Leaf Pro match makes Northern Rising 'a big deal,' Rohan Raja says**: [Link](https://www.foxnews.com/outkick-sports/adam-copeland-maple-leaf-pro-match-makes-northern-rising-big-deal-rohan-raja-says)
+- **‘We want to be national’: Maple Leaf Pro’s rapidly-expanding mission to lead Canada’s wrestling scene**: [Link](https://www.postwrestling.com/2026/09/30/we-want-to-be-national-maple-leaf-pros-rapidly-expanding-mission-to-lead-canadas-wrestling-scene/)
+- **MLP Northern Rising Lineup Confirmed For October 3, 2026**: [Link](https://slamwrestling.net/news/mlp-northern-rising-lineup-confirmed-for-october-3-2026/)
+
+
+### raja casablanca (N/A, Sat, 3 Oct 2026 13:30:00 -0700)
+
+- **Combien coûte le nouveau maillot du Raja ?**: [Link](https://www.lesiteinfo.com/sport/683582-combien-coute-le-nouveau-maillot-du-raja.html)
+- **الرجاء الرياضي يستهل مشواره في البطولة الاحترافية بالفوز على نهضة الزمامرة**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D9%85%D8%B4%D9%88%D8%A7%D8%B1%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84/)
+- **بولكسوت: مرتاحون مع المدرب الجديد ولا نعيش أي ضغط في الرجاء**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A8%D9%88%D9%84%D9%83%D8%B3%D9%88%D8%AA-%D9%85%D8%B1%D8%AA%D8%A7%D8%AD%D9%88%D9%86-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%88%D9%84%D8%A7-%D9%86%D8%B9%D9%8A%D8%B4-%D8%A3%D9%8A-%D8%B6%D8%BA%D8%B7-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1/26024)
+
+
+### côte d'ivoire – cameroun (N/A, Sat, 3 Oct 2026 13:20:00 -0700)
+
+- **Côte d’Ivoire : Nicolas Pépé quitte le rassemblement**: [Link](https://www.footmercato.net/a2782076089860358371-cote-divoire-nicolas-pepe-quitte-le-rassemblement)
+- **Pronostic Côte d’Ivoire Cameroun – Match Amical (03/10)**: [Link](https://onefootball.com/fr/paris-sportif/pronostics/cote-d-ivoire-vs-cameroun-03-10-2026)
+- **Ibrahim Sangaré : « un derby ne se joue pas, il se gagne »**: [Link](https://www.camfoot.com/actualites/ibrahim-sangare-un-derby-ne-se-joue-pas-il-se-gagne,557250.html)
+
+
+### الرجاء ضد نهضة خميس الزمامرة (N/A, Sat, 3 Oct 2026 12:50:00 -0700)
+
+- **جدول مباريات الدوري المغربي 2026-2027، القنوات الناقلة والترتيب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8/blt0e67d00da3b963dd)
+- **تعيينات حكام الجولة الثانية من البطولة الوطنية الاحترافية 1 و2 INWI**: [Link](https://frmf.ma/articles/1-2-inwi)
+- **مديرية التحكيم تكشف عن حكام الجولة الثانية من البطولة**: [Link](https://assabah.ma/952961.html)
+
+
+### مباراة ودية (N/A, Sat, 3 Oct 2026 12:30:00 -0700)
+
+- **المنتخب الوطني يخوض آخر حصة تدريبية بالمعمورة قبل التوجه إلى طنجة**: [Link](https://frmf.ma/articles/les-lions-de-latlas-mettent-le-cap-sur-tanger)
+- **ما القنوات الناقلة لمباراة المغرب ومالي الودية 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%85%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blta6394cbec20b6812)
+- **تصفيات "كان 2027".. "الأسود" يختتمون تحضيراتهم لمواجهة ليسوتو**: [Link](https://ar.telquel.ma/%D9%85%D9%86-%D8%B7%D9%86%D8%AC%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D8%AE%D8%AA%D8%AA%D9%85%D9%88%D9%86-%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA%D9%87%D9%85-%D9%84%D9%88%D8%AF/)
+
+
 ### منتخب مصر لكرة القدم (N/A, Sat, 3 Oct 2026 12:10:00 -0700)
 
 - **تشكيلة المنتخب الوطني لاقل من 20سنة امام مصر**: [Link](https://frmf.ma/articles/eliminatoires-u20-tournoi-unaf-composition-du-maroc-face-a-legypte)
