@@ -1,3 +1,10 @@
+### france vs (N/A, Fri, 2 Oct 2026 13:10:00 -0700)
+
+- **France 1-1 Italy: Michael Olise scores before Alessandro Bastoni equalises in Nations League**: [Link](https://www.bbc.com/sport/football/live/cqe8xr3lw0ret)
+- **After 28 years: France fans surprise Zidane with a legendary reception**: [Link](https://www.goal.com/en/news/after-28-years-france-fans-surprise-zidane-with-a-legendary-reception/blt90ddfc16d311bc3c)
+- **Licensable picture: Soccer 2024 Paris France Italy**: [Link](https://www.reutersconnect.com/item/soccer-2024-paris-france-italy/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBCUDlWNFU)
+
+
 ### diesel (N/A, Fri, 2 Oct 2026 15:40:00 -0700)
 
 - **‘Blackmail’: Europe fumes against White House demand for more diesel**: [Link](https://www.politico.com/news/2026/10/02/white-house-diesel-europe-01104936)
