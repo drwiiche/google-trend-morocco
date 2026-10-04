@@ -1,3 +1,73 @@
+### netherlands vs serbia (N/A, Sun, 4 Oct 2026 11:50:00 -0700)
+
+- **Netherlands vs Serbia LIVE Updates, Serbia ties the game!(1-1)**: [Link](https://www.vavel.com/en-us/soccer/2026/10/04/1273877-netherlands-vs-serbia-live-score-uefa-nations-league.html)
+- **Netherlands and Dumfries target first clean sheet of the year**: [Link](https://www.beinsports.com/en-asia/football/uefa-nations-league/articles/netherlands-and-dumfries-target-first-clean-sheet-of-the-year-2026-10-03)
+- **Netherlands v Serbia Odds**: [Link](https://sportsbook.fanduel.com/soccer/uefa-nations-league-a/netherlands-v-serbia-36142371)
+
+
+### هولندا ضد صربيا (N/A, Sun, 4 Oct 2026 11:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة هولندا وصربيا في دوري الأمم الأوروبية 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%88%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt429ceddf8ba73516)
+- **1-2: دومفريس يساهم في فوز هولندا على صربيا**: [Link](https://www.realmadrid.com/ar-AE/news/football/first-team/latest-news/cronica-serbia-paises-bajos-nations-league-27-09-2026)
+- **هولندا تعود بالانتصار من أرض صربيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A8%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%85%D9%86-%D8%A3%D8%B1%D8%B6-%D8%B5%D8%B1%D8%A8%D9%8A%D8%A7-2026-09-27)
+
+
+### matches amicaux (N/A, Sun, 4 Oct 2026 11:20:00 -0700)
+
+- **L’Argentine va disputer un nouveau match de la honte contre le Bénin pour la dernière de Messi !**: [Link](https://www.footmercato.net/a2751001436463996467-largentine-va-disputer-un-nouveau-match-de-la-honte-contre-le-benin-pour-la-derniere-de-messi)
+- **L'Argentine écrase une équipe du Burkina Faso diminuée par son arrivée très tardive à Buenos Aires**: [Link](https://www.lequipe.fr/Football/Actualites/L-argentine-ecrase-une-equipe-du-burkina-faso-diminuee-par-son-arrivee-tres-tardive-a-buenos-aires/1723271)
+- **Foot: l’équipe du Burkina quitte le Maroc dans un chaos honteux**: [Link](https://h24info.ma/sport/football/foot-burkina-maroc-chaos-honteux/)
+
+
+### نقل (N/A, Sun, 4 Oct 2026 11:20:00 -0700)
+
+- **مهنيو النقل الطرقي يترقبون إصلاحات حكومية ويشكون مضايقات إسبانية**: [Link](https://www.hespress.com/%D9%85%D9%87%D9%86%D9%8A%D9%88-%D8%A7%D9%84%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%B7%D8%B1%D9%82%D9%8A-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8%D9%88%D9%86-%D8%A5%D8%B5%D9%84%D8%A7%D8%AD%D8%A7%D8%AA-%D8%AD%D9%83-1815269.html)
+- **بين تطمينات بنعلي وضبابية حرب الشرق الأوسط..هذه وضعية احتياطيات المواد الطاقية – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A8%D9%8A%D9%86-%D8%AA%D8%B7%D9%85%D9%8A%D9%86%D8%A7%D8%AA-%D8%A8%D9%86%D8%B9%D9%84%D9%8A-%D9%88%D8%B6%D8%A8%D8%A7%D8%A8%D9%8A%D8%A9-%D8%AD%D8%B1%D8%A8-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84/)
+- **المحروقات ترتفع في المغرب.. هل تغير المنصوري مسار أخنوش؟**: [Link](https://arabi21.com/story/1793150/%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%AA%D8%B1%D8%AA%D9%81%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%87%D9%84-%D8%AA%D8%BA%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D9%85%D8%B3%D8%A7%D8%B1-%D8%A3%D8%AE%D9%86%D9%88%D8%B4)
+
+
+### grèce – allemagne (N/A, Sun, 4 Oct 2026 11:10:00 -0700)
+
+- **Ligue des Nations - Y'a-t-il un malaise Kimmich en Allemagne ?**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/ligue-des-nations-ya-t-il-un-malaise-kimmich-en-allemagne_sto23342306/story.shtml)
+- **« J'abandonne » : Klopp exaspéré par le débat sur le rôle de Kimmich avec l'Allemagne**: [Link](https://www.fotmob.com/fr/news/phzjzor1ct0714pn2bxzrdw5a_fr-jabandonne-klopp-exaspere-par-le-debat-sur-le-role-de-kimmich-avec-lallemagne)
+- **« Ce syndrome du sauveur » : critiques à l’encontre de la star du Bayern Joshua Kimmich**: [Link](https://fr.news.yahoo.com/sport/syndrome-sauveur-critiques-%C3%A0-l-133436850.html)
+
+
+### portugal – norvège (N/A, Sun, 4 Oct 2026 11:00:00 -0700)
+
+- **DIRECT. Portugal - Norvège, Ligue des nations A : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/portugal-norvege-live/688745)
+- **4e journée de Ligue des nations - Groupe 4 : Suivez Portugal - Norvège EN DIRECT.**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-portugal-norvege_mtc20005931/live-commentary.shtml)
+- **La Norvège saura-t-elle prendre sa revanche ? Pronostic du match face au Portugal, le 4 octobre**: [Link](https://dailysports.net/fr/predictions/la-norvege-saura-t-elle-prendre-sa-revanche-pronostic-du-match-face-au-portugal-le-4-octobre/)
+
+
+### portugal vs norway (N/A, Sun, 4 Oct 2026 11:00:00 -0700)
+
+- **Licensable picture: UEFA Nations League 2026/27 League Phase Matchday 4 match between Portugal and Norway**: [Link](https://www.reutersconnect.com/item/uefa-nations-league-202627-league-phase-matchday-4-match-between-portugal-and-norway/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDA4Q0RXWUg)
+- **Hard yards! Skipper Fernandes warns Portugal must suffer to beat dangerous Norwegians**: [Link](https://www.goal.com/en/lists/bruno-fernandes-portugal-norway-nations-league-preview/blt7dbf502f2f310320)
+- **Portugal vs Norway: UEFA Nations League – Ronaldo latest, Haaland, teams**: [Link](https://www.aljazeera.com/sports/2026/10/3/portugal-vs-norway-uefa-nations-league-ronaldo-latest-haaland-teams)
+
+
+### البرتغال ضد النرويج (N/A, Sun, 4 Oct 2026 11:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة البرتغال والنرويج في دوري الأمم الأوروبية 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt81c02abc271d8452)
+- **المنتخب البرتغالي يستقبل نظيره النرويجي في بورتو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%86%D8%B8%D9%8A%D8%B1%D9%87-%D8%A7%D9%84%D9%86%D8%B1%D9%88%D9%8A%D8%AC%D9%8A-%D9%81%D9%8A-%D8%A8%D9%88%D8%B1%D8%AA%D9%88-2026-10-04)
+- **في غياب رونالدو.. التشكيل المتوقع لمنتخب البرتغال أمام النرويج**: [Link](https://www.eremnews.com/sports/fklipgf)
+
+
+### pays-bas – serbie (N/A, Sun, 4 Oct 2026 11:00:00 -0700)
+
+- **La solide équipe des Pays-Bas retrouve son ancienne place après neuf ans : « Très surprenant »**: [Link](https://www.goal.com/fr/news/la-solide-equipe-des-pays-bas-retrouve-son-ancienne-place-apres-neuf-ans-tres-surprenant/blt378caadb646c8792)
+- **« La première mi-temps était inacceptable ! » : Xavi et Virgil van Dijk lancent un avertissement sévère aux Pays-Bas avant la 100e sélection**: [Link](https://fr.news.yahoo.com/sport/premi%C3%A8re-mi-temps-%C3%A9tait-inacceptable-085912827.html)
+- **Pronostic Pays-Bas - Serbie, 01h45 le 5 octobre : Domination des faibles.**: [Link](https://www.vietnam.vn/fr/nhan-dinh-ha-lan-vs-serbia-01h45-ngay-5-10-bat-nat-ke-yeu)
+
+
+### المغرب ضد مالي (N/A, Sun, 4 Oct 2026 10:50:00 -0700)
+
+- **مباشر.. مباراة المغرب ضد مالي الودية استعدادا لكأس أمم أفريقيا 2027.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/4/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D9%85%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7)
+- **تشكيلة المنتخب المغربي أمام مالي**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%84%D9%8A-1817910.html)
+- **الحكم الموريتاني عبد العزيز بوه يقود المواجهة الودية بين المنتخب الوطني و مالي**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A8%D9%88%D9%87-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7/)
+
+
 ### عاصفة (N/A, Sun, 4 Oct 2026 09:00:00 -0700)
 
 - **عواصف قاتلة تضرب كتالونيا .. والمغرب يترقب أمطارا وزخات رعدية**: [Link](https://www.hespress.com/%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A7-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%A3%D9%85-1817801.html)
