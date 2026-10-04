@@ -1,3 +1,31 @@
+### عاصفة (N/A, Sun, 4 Oct 2026 09:00:00 -0700)
+
+- **عواصف قاتلة تضرب كتالونيا .. والمغرب يترقب أمطارا وزخات رعدية**: [Link](https://www.hespress.com/%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A7-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B9%D9%88%D8%A7%D8%B5%D9%81-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D8%A3%D9%85-1817801.html)
+- **قتيلان في إقليم كاتالونيا الإسباني جراء أمطار غزيرة (مسؤولون)**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261004-%D9%82%D8%AA%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D9%83%D8%A7%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AC%D8%B1%D8%A7%D8%A1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%88%D9%86-1)
+- **إسبانيا ترفع درجة التأهب إلى المستوى الأحمر بسبب الفيضانات في كاتالونيا**: [Link](https://www.marrakechalaan.com/article-697089)
+
+
+### منتخب فرنسا لكرة القدم (N/A, Sun, 4 Oct 2026 08:50:00 -0700)
+
+- **مفاجأة.. رونالدو لم يغادر معسكر البرتغال بمفرده**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9--%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%84%D9%85-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%A8%D9%85%D9%81%D8%B1%D8%AF%D9%87/blt9988024f96ef0ab5)
+- **"لماذا يُعامل ميسي بشكل مختلف؟".. رونالدو يتفاعل مع منشور ينتقد زملاءه في منتخب البرتغال**: [Link](https://www.aljazeera.net/sport/2026/10/3/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B9%D8%A7%D9%85%D9%84-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D8%B4%D9%83%D9%84-%D9%85%D8%AE%D8%AA%D9%84%D9%81)
+- **"عاصفة رونالدو" تلاحق جيسوس.. الصمت لم يوقف الأسئلة**: [Link](https://www.skynewsarabia.com/sport/1896091-%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%AA%D9%84%D8%A7%D8%AD%D9%82-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%A7%D9%84%D8%B5%D9%85%D8%AA-%D9%8A%D9%88%D9%82%D9%81-%D8%A7%D9%84%D8%A3%D8%B3%D8%A6%D9%84%D8%A9)
+
+
+### ملك إسبانيا (N/A, Sun, 4 Oct 2026 07:30:00 -0700)
+
+- **المبادلات التجارية المغربية الإسبانية تتجه إلى إنهاء 2026 بأرقام قياسية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%AF%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%AC%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86-1817132.html)
+- **ملك إسبانيا يتحول من وسيط مع المغرب إلى واجهة لسياسة التشدد**: [Link](https://www.alquds.co.uk/%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D9%85%D9%86-%D9%88%D8%B3%D9%8A%D8%B7-%D9%85%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A5%D9%84%D9%89/)
+- **موراتينوس: المغرب وإسبانيا مؤهلان ليصبحا قطبا للطاقة يربط أوربا بإفريقيا – اليوم 24**: [Link](https://alyaoum24.com/2048343.html)
+
+
+### maroc vs mali (N/A, Sun, 4 Oct 2026 06:10:00 -0700)
+
+- **Match amical: L'Equipe Nationale affronte le Mali à la place du Ghana**: [Link](https://frmf.ma/fr/articles/match-amical-lequipe-nationale-affronte-le-mali-a-la-place-du-ghana)
+- **Maroc-Mali: l’historique des confrontations**: [Link](https://sport.le360.ma/football/lions-atlas/maroc-mali-lhistorique-des-confrontations_EBQECDN3UJAHJBLAWIA6ADHGUU/)
+- **Maroc-Mali : voici la composition probable des Lions de l’Atlas**: [Link](https://maroc-diplomatique.net/maroc-mali-voici-la-composition-probable-des-lions-de-latlas/)
+
+
 ### alexander zverev (N/A, Sun, 4 Oct 2026 05:10:00 -0700)
 
 - **Jimmy Connors has message for Alexander Zverev after his recent success, ‘I am just going to say this’**: [Link](https://sports.yahoo.com/articles/jimmy-connors-message-alexander-zverev-090000264.html)
