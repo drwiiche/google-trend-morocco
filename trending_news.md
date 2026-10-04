@@ -1,3 +1,31 @@
+### argentina vs burkina faso (N/A, Sat, 3 Oct 2026 16:50:00 -0700)
+
+- **Argentina vs Burkina Faso: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cxnvl4g8jnq0t)
+- **Why isn't Lionel Messi playing for Argentina against Burkina Faso?**: [Link](https://www.usatoday.com/story/sports/soccer/2026/10/03/lionel-messi-argentina-burkina-faso-farewell-match-international-retirement/92055665007/)
+- **Argentina vs. Burkina Faso Lineups & Confirmed Team News- Is Lionel Messi Playing Tonight?**: [Link](https://sports.yahoo.com/articles/argentina-vs-burkina-faso-lineups-200000999.html)
+
+
+### الأرجنتين ضد بوركينا فاسو (N/A, Sat, 3 Oct 2026 16:50:00 -0700)
+
+- **منتخب بوركينا فاسو عالق في المغرب.. الغموض يلف ودية الأرجنتين**: [Link](https://www.aljazeera.net/sport/2026/10/2/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
+- **المنتخب البوركيني عالق في المغرب.. مباراة الأرجنتين مهددة بالإلغاء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D9%8A-%D8%B9%D8%A7%D9%84%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8--%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%85%D9%87%D8%AF%D8%AF%D8%A9-%D8%A8%D8%A7%D9%84%D8%A7%D9%95%D9%84%D8%BA%D8%A7%D8%A1/blta61ee16a7e81f900)
+- **وداعية ميسي مع الأرجنتين تضربها الفوضى .. والسبب بوركينا فاسو!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%88%D8%AF%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D9%8A%D8%B3%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%AA%D8%B6%D8%B1%D8%A8%D9%87%D8%A7-%D8%A7%D9%84%D9%81%D9%88%D8%B6%D9%89-%D9%88%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88/bltff0088fad27cb5ec)
+
+
+### argentine – burkina faso (N/A, Sat, 3 Oct 2026 16:20:00 -0700)
+
+- **Foot: l’équipe du Burkina quitte le Maroc dans un chaos honteux**: [Link](https://h24info.ma/sport/football/foot-burkina-maroc-chaos-honteux/)
+- **Le match face à l'Argentine en danger: l'équipe du Burkina Faso bloquée au Maroc**: [Link](https://rmcsport.bfmtv.com/football/matchs-amicaux/le-match-face-a-l-argentine-en-danger-l-equipe-du-burkina-faso-bloquee-au-maroc_AV-202610020908.html)
+- **Le déplacement complètement invraisemblable du Burkina Faso en Argentine**: [Link](https://www.footmercato.net/a5562057663275859829-le-deplacement-completement-invraisemblable-du-burkina-faso-en-argentine)
+
+
+### classement équipe d'espagne de football – équipe de tchéquie de football (N/A, Sat, 3 Oct 2026 14:20:00 -0700)
+
+- **Sur sa lancée, l'Espagne domine la Tchéquie et enchaîne un 41e match sans défaite, nouveau record**: [Link](https://www.lequipe.fr/Football/Actualites/Sur-sa-lancee-l-espagne-domine-la-tchequie-et-enchaine-un-41e-match-sans-defaite/1723241)
+- **Ligue des Nations : l’Espagne domine la Tchéquie et poursuit son sans-faute, la Suisse et l’Écosse assurent**: [Link](https://www.footmercato.net/a8250566956529249031-ligue-des-nations-lespagne-domine-la-tchequie-et-poursuit-son-sans-faute-la-suisse-et-lecosse-assurent)
+- **Ligue des nations: l’Espagne enchaîne contre la République tchèque**: [Link](https://sport.le360.ma/football/ligue-des-nations-lespagne-enchaine-contre-la-republique-tcheque_B7RJCQJWTRBK3KBDSQCMZZIIHE/)
+
+
 ### spain national football team vs czech republic national football team standings (N/A, Sat, 3 Oct 2026 14:40:00 -0700)
 
 - **Spain 3-1 Czech Republic: World champions secure victory to maintain winning run**: [Link](https://www.bbc.com/sport/football/live/cm4gjnl08ylyt)
