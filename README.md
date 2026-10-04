@@ -1,3 +1,17 @@
+### états-unis – mexique (N/A, Sat, 3 Oct 2026 19:50:00 -0700)
+
+- **États-Unis - Mexique : tout ce qu’il faut savoir avant ce match amical international**: [Link](https://www.goal.com/fr/news/etats-unis-mexique-tout-ce-qu-il-faut-savoir-avant-ce-match-amical-international/blt423bc9fe6d04e06f)
+- **Pronostic États-Unis - Mexique, Matchs Amicaux - 03/10/2026**: [Link](https://www.sportytrader.com/pronostics/usa-mexique-376372/)
+- **⚠️​ Mora joue-t-il face aux USA ? Le coach du Mexique a parlé**: [Link](https://onefootball.com/fr/news/mora-joue-t-il-face-aux-usa-le-coach-du-mexique-a-parle-43553748)
+
+
+### ufc (N/A, Sat, 3 Oct 2026 18:40:00 -0700)
+
+- **UFC 332 -- Natalia Silva vs. Wang Cong: Results, winners, highlights from fight card in Salt Lake City**: [Link](https://www.cbssports.com/ufc/news/ufc-332-fight-card-natalia-silva-wang-cong-results-winners/)
+- **Post-Fight Press Conference | UFC 332: Silva vs Wang**: [Link](https://www.ufc.com/video/160710)
+- **‘Don’t get too comfortable’: Valentina Shevchenko, pros react to Natalia Silva’s UFC 332 title triumph**: [Link](https://sports.yahoo.com/articles/don-t-too-comfortable-valentina-032148150.html)
+
+
 ### argentina vs burkina faso (N/A, Sat, 3 Oct 2026 16:50:00 -0700)
 
 - **Argentina vs Burkina Faso: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cxnvl4g8jnq0t)
