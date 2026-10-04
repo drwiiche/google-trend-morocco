@@ -1,3 +1,57 @@
+### alexander zverev (N/A, Sun, 4 Oct 2026 05:10:00 -0700)
+
+- **Jimmy Connors has message for Alexander Zverev after his recent success, ‘I am just going to say this’**: [Link](https://sports.yahoo.com/articles/jimmy-connors-message-alexander-zverev-090000264.html)
+- **Jimmy Connors changes his tone on Alexander Zverev after Grand Slam success**: [Link](https://www.tennisworldusa.org/tennis/news/Tennis_Stories/170176/jimmy-connors-changes-his-tone-on-alexander-zverev-after-grand-slam-success/)
+- **Alexander Zverev, Jimmy Connors Has a Message for Him: “I Only Want to Tell Him One Thing”**: [Link](https://www.tennisworlditalia.com/en/tennis/news/Interviste_Tennis/107883/alexander-zverev-jimmy-connors-has-a-message-for-him-i-only-want-to-tell-him-one-thing/)
+
+
+### novak djokovic (N/A, Sun, 4 Oct 2026 05:00:00 -0700)
+
+- **Novak Djokovic Speaks On Health Ahead Of Zverev Showdown, Seeks ATP Finals Berth**: [Link](https://www.ubitennis.net/2026/10/novak-djokovic-speaks-on-health-ahead-of-zverev-showdown-seeks-atp-finals-berth/)
+- **China Open**: [Link](https://www.reutersconnect.com/item/china-open/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQTIxN1hTUFM)
+- **Highlights: Djokovic downs Borges in Beijing, reaches R2**: [Link](https://www.atptour.com/en/video/highlights-djokovic-downs-borges-in-beijing-2026-reaches-r2)
+
+
+### كأس الأمم الإفريقية (N/A, Sun, 4 Oct 2026 02:40:00 -0700)
+
+- **تشكيلة المنتخب الوطني لاقل من 20سنة امام مصر**: [Link](https://frmf.ma/articles/eliminatoires-u20-tournoi-unaf-composition-du-maroc-face-a-legypte)
+- **"الأشبال" يحجزون بطاقة بلوغ "الكان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%8A%D8%AD%D8%AC%D8%B2%D9%88%D9%86-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%A8%D9%84%D9%88%D8%BA-%D8%A7%D9%84%D9%83%D8%A7%D9%86-1817636.html)
+- **المغرب يصعق مصر.. ومواجهة "مصيرية بين الفراعنة أمام محاربي الصحراء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B5%D8%B9%D9%82-%D9%85%D8%B5%D8%B1--%D9%88%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%88%D9%85%D8%AD%D8%A7%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1/bltcfb359fc16407a62)
+
+
+### طارق السكتيوي (N/A, Sun, 4 Oct 2026 02:40:00 -0700)
+
+- **فيديو.. السكتيوي: لا نستحق الخسارة... وهذا القرار مهم لمستقبل الكرة العمانية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%84%D8%B3%D9%83%D8%AA%D9%8A%D9%88%D9%8A-%D9%84%D8%A7-%D9%86%D8%B3%D8%AA%D8%AD%D9%82-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9--%D9%88%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%87%D9%85-%D9%84%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%86%D9%8A%D8%A9/blt6ca0f0c296560da4)
+- **الإمارات والسعودية في نهائي "خليجي"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-1817673.html)
+- **لا مجال للتعويض.. مواجهة نارية بين الإمارات وعُمان في نصف نهائي خليجي 27**: [Link](https://www.aljazeera.net/sport/2026/10/2/%D9%84%D8%A7-%D9%85%D8%AC%D8%A7%D9%84-%D9%84%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86)
+
+
+### maroc football (N/A, Sun, 4 Oct 2026 02:10:00 -0700)
+
+- **Ultime séance des Lions de l’Atlas avant le Mali**: [Link](https://frmf.ma/fr/articles/ultime-seance-des-lions-de-latlas-avant-le-mali)
+- **Maroc-Mali: à quelle heure et sur quelle chaînes?**: [Link](https://sport.le360.ma/football/maroc-mali-a-quelle-heure-et-sur-quelle-chaines_MMI3BRTAEZGXFARKKDITAKZUXQ/)
+- **Football. Après le retrait du Ghana, le Maroc sera opposé au Mali**: [Link](https://medias24.com/2026/09/30/football-apres-le-retrait-du-ghana-le-maroc-sera-oppose-au-mali-1768465/)
+
+
+### f1 (N/A, Sun, 4 Oct 2026 01:40:00 -0700)
+
+- **F1 marshal goes viral in brilliant photo as Bahrain GP start delayed - and the memes write themselves**: [Link](https://www.indy100.com/sport/f1-bahrain-gp-malaysia-delay-marshal-photo)
+- **Sepang F1 marshal steals the show during Bahrain GP delay: “Absolute icon”**: [Link](https://www.motorsport.com/f1/news/sepang-f1-marshal-steals-the-show-during-bahrain-gp-delay-absolute-icon/10861809/)
+- **F1 Bahrain GP in Malaysia LIVE: Race updates, results, stream, highlights from 16th round of 2026 Formula 1 season at Sepang**: [Link](https://www.skysports.com/f1/live-blog/13594553/f1-bahrain-gp-in-malaysia-live-race-updates-results-stream-highlights-from-16th-round-of-2026-formula-1-season-at-sepang)
+
+
+### طائرة مقاتلة (N/A, Sun, 4 Oct 2026 00:40:00 -0700)
+
+- **مباحثات أمريكية مغربية رسمية حول مقاتلات إف-35 ومستقبل سلاح الجو المغربي**: [Link](https://www.defense-arabic.com/2026/10/03/%D9%85%D8%A8%D8%A7%D8%AD%D8%AB%D8%A7%D8%AA-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-%D8%AD%D9%88%D9%84-%D9%85%D9%82%D8%A7%D8%AA/)
+- **مقاتلة "إف-35 إيه" تحلق لأول مرة في الأجواء المغربية خلال معرض مراكش للطيران 2026 - تليكسبريس**: [Link](https://telexpresse.com/501309.html)
+- **المغرب يتسلم أول مروحيات «أباتشي AH-64E» للقوات الملكية الجوية**: [Link](https://rue20.com/1035175.html)
+
+
+### tiempo (N/A, Sat, 3 Oct 2026 23:30:00 -0700)
+
+
+
+
 ### états-unis – mexique (N/A, Sat, 3 Oct 2026 19:50:00 -0700)
 
 - **États-Unis - Mexique : tout ce qu’il faut savoir avant ce match amical international**: [Link](https://www.goal.com/fr/news/etats-unis-mexique-tout-ce-qu-il-faut-savoir-avant-ce-match-amical-international/blt423bc9fe6d04e06f)
