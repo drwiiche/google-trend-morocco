@@ -1,3 +1,45 @@
+### portugal national football team vs norway national football team standings (N/A, Sun, 4 Oct 2026 14:10:00 -0700)
+
+- **Portugal 2-1 Norway: Goncalo Ramos scores late winner**: [Link](https://www.bbc.com/sport/football/live/cr158e0d932vt)
+- **Licensable picture: UEFA Nations League 2026/27 League Phase Matchday 4 match between Portugal and Norway**: [Link](https://www.reutersconnect.com/item/uefa-nations-league-202627-league-phase-matchday-4-match-between-portugal-and-norway/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDA4UE82OVQ)
+- **Preview: Portugal vs Norway - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/portugal/uefa-nations-league/preview/portugal-vs-norway-prediction-team-news-lineups_606146.html)
+
+
+### classement équipe de grèce de football – équipe d'allemagne de football (N/A, Sun, 4 Oct 2026 14:00:00 -0700)
+
+- **« Qu’est-ce qu’on n’a pas dit sur nous, les Allemands ? » Le sélectionneur national Jürgen Klopp dresse un bilan enthousiaste de cette trêve internationale XXL**: [Link](https://www.goal.com/fr/news/qu-est-ce-qu-on-n-a-pas-dit-sur-nous-les-allemands-le-selectionneur-national-juergen-klopp-dresse-un-bilan-enthousiaste-de-cette-treve-internationale-xxl/blteddefd27ace5f10f)
+- **Pronostic Grèce - Allemagne (1h45, 5 octobre), Ligue des Nations de l'UEFA 2026-2027**: [Link](https://www.vietnam.vn/fr/nhan-dinh-hy-lap-vs-duc-1h45-ngay-5-10-uefa-nations-league-2026-2027)
+- **Jürgen Klopp salue la génération dorée grecque avant le match contre l’Allemagne**: [Link](https://www.flashscore.fr/actualites/jurgen-klopp-salue-la-generation-doree-grecque-avant-le-match-contre-l-allemagne/8Iic8W4C/)
+
+
+### météo demain (N/A, Sun, 4 Oct 2026 13:00:00 -0700)
+
+- **Ce dimanche en France : une météo "estivale" presque partout avant un temps automnal la semaine prochaine**: [Link](https://www.tameteo.com/actualites/previsions/ce-dimanche-en-france-une-meteo-estivale-avant-un-temps-automnal-la-semaine-prochaine-intemperies.html)
+- **Météo. La météo du samedi 3 octobre 2026 à Beauvais et ses environs**: [Link](https://www.ouest-france.fr/meteo/hauts-de-france/beauvais-60000/la-meteo-du-jour-a-beauvais-0652b3cf-131b-4d9a-8c0b-3e07b942f657)
+- **Vers un week-end agréable en perspective ?**: [Link](https://www.meteolor.fr/2026/10/02/vers-un-week-end-agreable-en-perspective/)
+
+
+### الطقس غدًا (N/A, Sun, 4 Oct 2026 13:00:00 -0700)
+
+- **طقس السبت 3 أكتوبر 2026**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1532222/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-3-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026)
+- **حالة الطقس اليوم الأحد في مصر.. أمطار خفيفة ونشاط الرياح**: [Link](https://www.cairo24.com/2505492)
+- **هل القاهرة داخل المنافسة؟.. الأرصاد تُحذر من حالة الطقس اليوم: أمطار رعدية تضرب عدة محافظات**: [Link](https://www.almasryalyoum.com/news/details/4375103)
+
+
+### classement fifa (N/A, Sun, 4 Oct 2026 13:00:00 -0700)
+
+- **Classement FIFA: le Portugal bat la Norvège et relègue les Lions à la 7e place**: [Link](https://sport.le360.ma/football/lions-atlas/classement-fifa-le-portugal-bat-la-norvege-et-relegue-les-lions-a-la-7e-place_7N76TSKV3VF7HGALV6UMJ37INI/)
+- **Classement FIFA : le Brésil reprend la 5e place au Maroc.**: [Link](https://mountakhab.net/classement-fifa-le-bresil-reprend-la-5e-place-au-maroc/)
+- **Classement FIFA : le Maroc grimpe à la 5e place mondiale**: [Link](https://lopinion.ma/fr/sport/newsroom/classement-fifa--le-maroc-grimpe-a-la-5e-place-mondiale_a46626?articleId=0dcb4e63-ab5a-4c89-b5ce-e64dd9eb12c5)
+
+
+### weather tomorrow (N/A, Sun, 4 Oct 2026 12:50:00 -0700)
+
+- **Cold front to bring thunderstorms, sharp temperature drop to northern Vietnam**: [Link](https://vietnamnet.vn/en/cold-front-to-bring-thunderstorms-sharp-temperature-drop-to-northern-vietnam-2561150.html)
+- **Forecast of bad weather in the next 2 days due to cold air**: [Link](https://news.laodong.vn/moi-truong/du-bao-dien-bien-thoi-tiet-xau-trong-2-ngay-toi-do-khong-khi-lanh-1777527.ldo)
+- **Northern Vietnam braces for cooler weather, heavy rain to persist in Ho Chi Minh City**: [Link](https://news.tuoitre.vn/northern-vietnam-braces-for-cooler-weather-heavy-rain-to-persist-in-ho-chi-minh-city-103261004150948717.htm)
+
+
 ### netherlands vs serbia (N/A, Sun, 4 Oct 2026 11:50:00 -0700)
 
 - **Netherlands vs Serbia LIVE Updates, Serbia ties the game!(1-1)**: [Link](https://www.vavel.com/en-us/soccer/2026/10/04/1273877-netherlands-vs-serbia-live-score-uefa-nations-league.html)
