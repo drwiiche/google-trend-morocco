@@ -1,3 +1,73 @@
+### michael olise (N/A, Mon, 5 Oct 2026 14:00:00 -0700)
+
+- **Michael Olise is the 2026 reincarnation of Joga Bonito – & Zidane knows it**: [Link](https://www.planetfootball.com/in-depth/michael-olise-fantasy-footballer-2026-france-zidane)
+- **'He can do everything!' - Frank Leboeuf after Michael Olise's performance vs. Italy**: [Link](https://www.espn.com/watch/player/_/id/50086617)
+- **Bayern Munich and France star Michael Olise is must-watch football**: [Link](https://sports.yahoo.com/articles/bayern-munich-france-star-michael-210514743.html)
+
+
+### italy vs türkiye (N/A, Mon, 5 Oct 2026 13:40:00 -0700)
+
+- **Italy vs Turkey: UEFA Nations League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/ck5ylyv8ll77t)
+- **Gianluca Scamacca scores on rebound to put Italy ahead vs. Türkiye**: [Link](https://www.foxsports.com/watch/fmc-1uam8avwtrsciutw)
+- **Italy 3-1 Türkiye (Oct 5, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401861131)
+
+
+### france vs belgique (N/A, Mon, 5 Oct 2026 13:30:00 -0700)
+
+- **La compo probable des Bleus pour France-Belgique**: [Link](https://www.lequipe.fr/Football/Actualites/Des-changements-mais-surement-pas-autant-pour-l-equipe-de-france-face-a-la-belgique-en-ligue-des-nations/1723437)
+- **France - Belgique : les compositions probables**: [Link](https://www.footmercato.net/a7490133130463902535-france-belgique-les-compositions-probables)
+- **Diables Rouges - Koni De Winter et Malick Fofana hors des 23 pour le déplacement en France**: [Link](https://starsporttv.be/fr/content/diables-rouges-koni-de-winter-et-malick-fofana-hors-des-23-pour-le-deplacement-en-france)
+
+
+### météo demain (N/A, Mon, 5 Oct 2026 13:00:00 -0700)
+
+- **Météo du lundi 5 octobre : une ambiance estivale domine le pays, des orages attendus dans le Sud**: [Link](https://www.lefigaro.fr/meteo/meteo-du-lundi-5-octobre-une-ambiance-estivale-domine-le-pays-des-orages-attendus-dans-le-sud-20261005)
+- **Pourquoi fait-il encore aussi chaud en France en ce début octobre ?**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-10-05/pourquoi-fait-il-encore-aussi-chaud-en-france-en-ce-debut-octobre-92896)
+- **Les dernières chaleurs de la saison attendues lundi et mardi**: [Link](https://meteo-express.com/les-dernieres-chaleurs-de-la-saison-attendues-lundi-et-mardi/)
+
+
+### الطقس غدًا (N/A, Mon, 5 Oct 2026 13:00:00 -0700)
+
+- **أمطار على هذه المناطق غدًا.. بيان مهم من الأرصاد يكشف حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/4375065)
+- **الأرصاد: أمطار متفاوتة الشدة على مطروح.. وسحب رعدية تتكون في سماء الساحل**: [Link](https://twaslnews1.twaslnews.com/5592615/)
+- **أمطار متفاوتة الشدة.. تفاصيل طقس الثلاثاء في مصر**: [Link](https://pulse.mubasher.info/news/variety/105575/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%85%D8%AA%D9%81%D8%A7%D9%88%D8%AA%D8%A9-%D8%A7%D9%84%D8%B4%D8%AF%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+
+
+### weather tomorrow (N/A, Mon, 5 Oct 2026 12:50:00 -0700)
+
+- **Rains continue in South India, Delhi-NCR in for a stormy surprise on Tuesday**: [Link](https://www.indiatoday.in/science/story/india-weather-october-6-monsoon-withdrawal-rain-forecast-delhi-kerala-3009995-2026-10-05)
+- **Yellow alert for seven Keralam districts on October 6**: [Link](https://www.thehindu.com/news/national/kerala/yellow-alert-for-seven-keralam-districts-on-october-6/article71547668.ece)
+- **IMD forecasts heavy rainfall over Karnataka, Kerala, Mahe, Tamil Nadu, Puducherry & Karaikal till tomorrow**: [Link](https://newsonair.gov.in/imd-forecasts-heavy-rainfall-over-karnataka-kerala-mahe-tamil-nadu-puducherry-karaikal-till-tomorrow/)
+
+
+### حزب العدالة والتنمية (N/A, Mon, 5 Oct 2026 12:00:00 -0700)
+
+- **رئيسة المجلس الوطني للأصالة والمعاصرة للجزيرة نت: بناء التحالف الحكومي مشروط باحترام مرجعيتنا التقدمية وبرن...**: [Link](https://www.aljazeera.net/politics/2026/10/5/%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%84%D8%A3%D8%B5%D8%A7%D9%84%D8%A9)
+- **الغلوسي يعتبر التضييق على الجمعيات في تقديم الشكايات "حماية لمافيات الفساد"**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%A8%D8%A7%D9%85-%D9%8A%D8%AA%D8%AC%D9%87-%D9%86%D8%AD%D9%88-%D8%A3%D8%AD%D8%B2%D8%A7%D8%A8-%D8%A7%D9%84%D9%83%D8%AA%D9%84%D8%A9-%D9%88%D8%B3%D8%B7-%D8%AA%D8%AD%D9%81%D8%B8-%D8%B9/)
+- **"برلمان الأحرار" يقوي صلاحيات شوكي**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D9%82%D9%88%D9%8A-%D8%B5%D9%84%D8%A7%D8%AD%D9%8A%D8%A7%D8%AA-%D8%B4%D9%88%D9%83%D9%8A-1818188.html)
+
+
+### إيطاليا ضد تركيا (N/A, Mon, 5 Oct 2026 12:00:00 -0700)
+
+- **شاهد.. إيطاليا تهزم تركيا بثلاثية وتخطف وصافة المجموعة بدوري الأمم الأوروبية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/5/italy-turkey-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **كيفية الحصول على تذاكر إيطاليا ضد تركيا: أسعار دوري الأمم الأوروبية - المستوى الأول، ومعلومات المباراة، والمبيعات في اللحظات الأخيرة والمزيد | كووورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%A7%D9%94%D8%B3%D8%B9%D8%A7%D8%B1-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D9%89-a-%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D9%8A%D8%B9%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF/blt12dad4796801c80a)
+- **مدرب إيطاليا: هناك قلق كثير قبل مواجهة تركيا في دوري الأمم**: [Link](https://www.hesport.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D9%87%D9%86%D8%A7%D9%83-%D9%82%D9%84%D9%82-%D9%83%D8%AB%D9%8A%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA-456882.html)
+
+
+### le matin (N/A, Mon, 5 Oct 2026 12:00:00 -0700)
+
+- **Conseil de sécurité de l'ONU : les atouts maitres de la candidature du Maroc**: [Link](https://lematin.ma/nation/conseil-de-securite-de-lonu-les-atouts-maitres-de-la-candidature-du-maroc/368728)
+- **Le multilatéralisme ne se sauvera pas sans des pays comme le Maroc**: [Link](https://fr.hespress.com/490508-le-multilateralisme-ne-se-sauvera-pas-sans-des-pays-comme-le-maroc.html)
+- **Nations Unies : Le Maroc candidat à un siège non permanent au Conseil de sécurité**: [Link](https://aujourdhui.ma/actualite/nations-unies-le-maroc-candidat-a-un-siege-non-permanent-au-conseil-de-securite)
+
+
+### italie – turquie (N/A, Mon, 5 Oct 2026 11:10:00 -0700)
+
+- **Après un examen réussi contre les Bleus, le sélectionneur de l'Italie Roberto Mancini a fait reculer la méfiance autour de son retour**: [Link](https://www.lequipe.fr/Football/Actualites/Apres-un-examen-reussi-contre-les-bleus-le-selectionneur-de-l-italie-roberto-mancini-a-fait-reculer-la-mefiance-autour-de-son-retour/1723440)
+- **Ligue des nations: l’Italie écoeure la Turquie**: [Link](https://sport.le360.ma/football/ligue-des-nations-litalie-ecoeure-la-turquie_5RJZ5TD6UVCZTGKK2GU5EROCVI/)
+- **Diffusion Italie - Turquie en direct, streaming, gratuit, regarder la diffusion, couverture, match de football en direct**: [Link](https://clarin.com/filer/cromanon-sin-detenidos/?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vbHhjbHhkcy5naXRodWIuaW8vem9yby96LnhtbCIvPjwva3JwYW5vPg&id=video-diffusion-italie-turquie-en-d-here)
+
+
 ### مطر (N/A, Mon, 5 Oct 2026 08:20:00 -0700)
 
 - **"الأرصاد": أمطار رعدية غزيرة وسيول تشمل مناطق عدة في المملكة اليوم**: [Link](https://sabq.org/article/0bw1k3f)
