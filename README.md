@@ -1,3 +1,38 @@
+### weather (N/A, Sun, 4 Oct 2026 23:30:00 -0700)
+
+- **Spectacular Fall Weather Continues this Week**: [Link](https://www.lex18.com/weather/daily-forecast/spectacular-fall-weather-continues-this-week)
+- **New York weather update: Pleasant autumn day with 23°C and 0% chance of rain on October 3, 2026**: [Link](https://timesofindia.indiatimes.com/weather/us/new-york-weather-update-pleasant-autumn-day-with-23c-and-0-chance-of-rain-on-october-3-2026/articleshow/134659400.cms)
+- **Sunny skies and light winds with 70’s for highs**: [Link](https://localnews8.com/weather/local-forecast/2026/09/29/sunny-skies-and-light-winds-with-70s-for-highs/)
+
+
+### tiempo (N/A, Sun, 4 Oct 2026 23:30:00 -0700)
+
+- **Qué día de la semana vuelven las lluvias a Buenos Aires, según el Servicio Meteorológico Nacional**: [Link](https://tn.com.ar/sociedad/2026/10/04/que-dia-de-la-semana-vuelven-las-lluvias-al-amba-segun-el-servicio-meteorologico-nacional/)
+- **Se avecinan tormentas aisladas, inestabilidad, temperaturas en ascenso e invasión de nieblas: las zonas afectadas**: [Link](https://www.lanacion.com.ar/sociedad/se-recupera-la-primavera-y-se-avecinan-tormentas-aisladas-inestabilidad-temperaturas-en-ascenso-e-nid04102026/)
+- **Clima en CABA: cómo estará el tiempo este lunes 5 de octubre**: [Link](https://www.cadena3.com/noticia/clima/clima-en-caba-como-estara-el-tiempo-este-lunes-5-de-octubre_600504)
+
+
+### météo (N/A, Sun, 4 Oct 2026 22:50:00 -0700)
+
+- **Météo : une partie de la Belgique en alerte jaune, voici les régions concernées**: [Link](https://www.lesoir.be/774809/article/2026-10-04/meteo-une-partie-de-la-belgique-en-alerte-jaune-voici-les-regions-concernees)
+- **Météo - De belles éclaircies avant une météo dégradée en milieu de semaine**: [Link](https://www.lalibre.be/dernieres-depeches/2026/10/05/meteo-de-belles-eclaircies-avant-une-meteo-degradee-en-milieu-de-semaine-QYMMZS47RZGWTIP7SEYL7RQG3E/)
+- **Météo en Belgique : brouillard en début de journée, soleil un peu voilé ensuite**: [Link](https://www.rtbf.be/article/meteo-en-belgique-brouillard-en-debut-de-journee-soleil-un-peu-voile-ensuite-11794944)
+
+
+### الطقس (N/A, Sun, 4 Oct 2026 22:50:00 -0700)
+
+- **نشرة إنذارية: زخات رعدية قوية بالمغرب**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-3-1817959.html)
+- **نشرة إنذارية.. زخات رعدية مصحوبة بتساقط البرد وهبات رياح اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%AD%D8%A7%D8%B1%D8%A9-%D9%85%D8%B9-%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7/)
+- **طقس الأحد: أجواء حارة وزخات رعدية مرتقبة بعدد من مناطق المملكة – اليوم 24**: [Link](https://alyaoum24.com/2048345.html)
+
+
+### الفجر (N/A, Sun, 4 Oct 2026 21:50:00 -0700)
+
+- **مواقيت الصلاة اليوم الإثنين 5 أكتوبر 2026 في القاهرة والمحافظات**: [Link](https://akhbarelyom.com/news/newdetails/4886802/1/%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-5-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-202)
+- **موعد صلاة العشاء اليوم السبت.. مواعيد الأذان في القاهرة والمحافظات بالتفصيل**: [Link](https://twaslnews1.twaslnews.com/5526739/)
+- **مواقيت الصلاة اليوم الإثنين 5 أكتوبر 2026 بمحافظات الجمهورية**: [Link](https://www.youm7.com/story/2026/10/5/%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-5-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026-%D8%A8%D9%85%D8%AD%D8%A7%D9%81%D8%B8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9/7566788)
+
+
 ### درهم مغربي (N/A, Sun, 4 Oct 2026 13:10:00 -0700)
 
 
