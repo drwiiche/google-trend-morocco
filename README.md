@@ -1,3 +1,59 @@
+### مطر (N/A, Mon, 5 Oct 2026 08:20:00 -0700)
+
+- **"الأرصاد": أمطار رعدية غزيرة وسيول تشمل مناطق عدة في المملكة اليوم**: [Link](https://sabq.org/article/0bw1k3f)
+- **توقعات بتشكل سيول وضباب على السواحل خلال أيام**: [Link](https://alsaudi.news/ai-forecasts/0510/107050/)
+- **حالة الطقس اليوم في السعودية وبيان درجات الحرارة**: [Link](https://www.almasryalyoum.com/news/details/4375403)
+
+
+### novak djokovic (N/A, Mon, 5 Oct 2026 04:50:00 -0700)
+
+- **Medvedev disqualified from China Open semi after injuring spectator with ball**: [Link](https://www.reuters.com/sports/tennis/medvedev-disqualified-china-open-semi-after-hitting-ball-into-crowd-2026-10-05/)
+- **Novak Djokovic issued 'soft warning' from umpire during China Open semifinal vs Daniil Medvedev**: [Link](https://www.tennis365.com/tennis-news/novak-djokovic-warning-against-daniil-medvedev)
+- **Highlights: Djokovic advances past Medvedev, into Beijing final**: [Link](https://www.atptour.com/en/video/highlights-djokovic-advances-past-medvedev-into-beijing-2026-final)
+
+
+### الحسين عموتة (N/A, Mon, 5 Oct 2026 03:40:00 -0700)
+
+- **رقم لا يصدق.. مكافآت جنونية من كيتارا للفوز على الأهلي المصري**: [Link](https://www.eremnews.com/sports/a5iwr22)
+- **عموتة يضع خطة الاستعداد للمشوار الإفريقي أمام كيتارالأوغندى**: [Link](https://twaslnews1.twaslnews.com/5597022/)
+- **كأس الكونفدرالية| الأهلي يحدد موعد سفره إلى أوغندا لمواجهة كيتارا**: [Link](https://www.alahlyegypt.com/ar/news/article/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%B3%D9%81%D8%B1%D9%87-%D8%A5%D9%84%D9%89-%D8%A3%D9%88%D8%BA%D9%86%D8%AF%D8%A7-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%83%D9%8A%D8%AA%D8%A7%D8%B1%D8%A7)
+
+
+### زيتون (N/A, Mon, 5 Oct 2026 02:00:00 -0700)
+
+- **أشجار الزيتون في مرمى المستوطنين.. حرق واقتلاع وتبريرات دينية**: [Link](https://www.aljazeera.net/video/2026/10/4/%D8%A3%D8%B4%D8%AC%D8%A7%D8%B1-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D9%85%D8%B1%D9%85%D9%89-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D8%B7%D9%86%D9%8A%D9%86-%D8%AD%D8%B1%D9%82)
+- **سرقوا زيتونا وجرارا زراعيا.. إرهاب المستوطنين يتواصل بالضفة**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%B3%D8%B1%D9%82%D9%88%D8%A7-%D8%B2%D9%8A%D8%AA%D9%88%D9%86%D8%A7-%D9%88%D8%AC%D8%B1%D8%A7%D8%B1%D8%A7-%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A%D8%A7-%D8%A5%D8%B1%D9%87%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D8%B7%D9%86%D9%8A%D9%86-%D9%8A%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A8%D8%A7%D9%84%D8%B6%D9%81%D8%A9-/4078145)
+- **الجيش الإسرائيلي ساعد مستوطنين في الاستيلاء على بساتين زيتون في الضفة الغربية (شهود)**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261003-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D8%B3%D8%A7%D8%B9%D8%AF-%D9%85%D8%B3%D8%AA%D9%88%D8%B7%D9%86%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%84%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D8%A8%D8%B3%D8%A7%D8%AA%D9%8A%D9%86-%D8%B2%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B6%D9%81%D8%A9-%D8%A7%D9%84%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%B4%D9%87%D9%88%D8%AF-1)
+
+
+### radio mars (N/A, Mon, 5 Oct 2026 01:40:00 -0700)
+
+- **Supporters : Belegchour maintient l'interdiction des déplacements et temporise sur le « Fan ID**: [Link](https://radiomars.ma/fr/?p=6589)
+- **Jalal Jayed au sifflet de la finale de la Coupe du Golfe**: [Link](https://radiomars.ma/fr/?p=6586)
+- **Coupe du Golfe: Jalal Jayed arbitre de la finale Arabie saoudite-Emirats arabes unis**: [Link](https://h24info.ma/sport/football/coupe-du-golfe-jalal-jayed-arbitre-de-la-finale-arabie-saoudite-emirats-arabes-unis/)
+
+
+### تقاعد (N/A, Mon, 5 Oct 2026 01:10:00 -0700)
+
+- **أفضل وجهة للتقاعد في الخارج لم تعد في أوروبا: 6 من بين 10 دول أوروبية**: [Link](https://arabic.euronews.com/2026/10/04/the-best-place-to-retire-abroad-is-no-longer-in-europe-but-six-of-the-top-ten-are)
+- **أوروغواي تتصدر مؤشر التقاعد العالمي 2026.. والبرتغال تتراجع إلى المركز الخامس**: [Link](https://www.aleqtsad.org/%D8%A3%D9%88%D8%B1%D9%88%D8%BA%D9%88%D8%A7%D9%8A-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D9%85%D8%A4%D8%B4%D8%B1-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A-2026/)
+- **المتقاعدون المغاربة ينادون الحكومة القادمة بالرفع من قيمة المعاشات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AA%D9%82%D8%A7%D8%B9%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%8A%D9%86%D8%A7%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7-1816608.html)
+
+
+### carlos alcaraz (N/A, Mon, 5 Oct 2026 01:00:00 -0700)
+
+- **Cuadro ATP Shanghái 2026**: [Link](https://canaltenis.com/cuadro-atp-shanghai-2026/)
+- **Alcaraz ya conoce su camino en Shanghái; Zverev y Djokovic cruzarían en SF**: [Link](https://www.atptour.com/es/news/shanghai-2026-draw-preview)
+- **Así será el torneo de Shanghái 2026: calendario, horarios, favoritos, prize money y dónde ver**: [Link](https://www.puntodebreak.com/2026/10/04/asi-sera-torneo-shanghai-2026-calendario-horarios-favoritos-prize-money-ver)
+
+
+### حالة الطقس (N/A, Mon, 5 Oct 2026 00:00:00 -0700)
+
+- **آي صاغة: الذهب يتحرك نحو 6200 جنيه.. وعيار 21 يسجل 6150**: [Link](https://www.youlyou.com/67004)
+- **الذهب يترقب 4200 دولار عالميًا.. ماذا يحدث في السوق المصرية مساء اليوم؟**: [Link](https://twaslnews1.twaslnews.com/5585483/)
+- **سعر الذهب اليوم عيار 21 الآن 2026 في مصر.. ثبات ملحوظ**: [Link](https://al-ain.com/article/price-egypt-today-5-october-2026)
+
+
 ### weather (N/A, Sun, 4 Oct 2026 23:30:00 -0700)
 
 - **Spectacular Fall Weather Continues this Week**: [Link](https://www.lex18.com/weather/daily-forecast/spectacular-fall-weather-continues-this-week)
