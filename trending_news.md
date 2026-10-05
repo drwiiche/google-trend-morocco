@@ -1,3 +1,8 @@
+### درهم مغربي (N/A, Sun, 4 Oct 2026 13:10:00 -0700)
+
+
+
+
 ### portugal national football team vs norway national football team standings (N/A, Sun, 4 Oct 2026 14:10:00 -0700)
 
 - **Portugal 2-1 Norway: Goncalo Ramos scores late winner**: [Link](https://www.bbc.com/sport/football/live/cr158e0d932vt)
