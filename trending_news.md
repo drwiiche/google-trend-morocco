@@ -1,3 +1,73 @@
+### كأس الأمم الإفريقية تحت 20 سنة (N/A, Tue, 6 Oct 2026 13:20:00 -0700)
+
+- **تصريحات لاعبين من المنتخب الوطني لاقل من 20سنة بعد التأهل لكاس افريقيا**: [Link](https://frmf.ma/articles/20-12)
+- **فيديو: مصر تتوج بطولة شمال أفريقيا للشباب بعد تعثر المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D9%88%D8%AC-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt384bc65bdb74453d)
+- **الأشبال في اختبار قوي أمام مصر**: [Link](https://assabah.ma/953112.html)
+
+
+### le matin (N/A, Tue, 6 Oct 2026 13:10:00 -0700)
+
+- **La Mamounia, élue numéro un au Maroc et en Afrique du Nord par les lecteurs de Condé Nast Traveler**: [Link](https://lematin.ma/lifestyle/la-mamounia-prime-par-conde-nast-traveler/368908)
+- **À 0,07 point près : La Mamounia remporte le duel des hôtels au Maroc**: [Link](https://www.bladi.net/point-mamounia-remporte-duel-hotels-maroc,124199.html)
+- **Classement: les lecteurs de «Condé Nast Traveler» plébiscitent La Mamounia**: [Link](https://fr.le360.ma/lifestyle/classement-les-lecteurs-de-conde-nast-traveler-plebiscitent-la-mamounia_OIX3JHSJXJHDZBOLYQCQF6L3KU/)
+
+
+### retraite (N/A, Tue, 6 Oct 2026 13:00:00 -0700)
+
+- **Elle touche une allocation néerlandaise pendant 20 ans au Maroc, puis tout s'arrête à la retraite**: [Link](https://www.bladi.net/touche-allocation-neerlandaise-maroc-puis-arrete-retraite,124197.html)
+- **Il percevait une allocation néerlandaise au Maroc depuis les années 1980 : tout s'arrête à la retraite**: [Link](https://www.bladi.net/percevait-allocation-neerlandaise-maroc-annees-arrete-retraite,124031.html)
+- **Retraite CNSS: Qui financera la promesse des 3.000 DH?**: [Link](https://www.leconomiste.com/retraite-cnss-qui-financera-la-promesse-des-3-000-dh/)
+
+
+### argentina match (N/A, Tue, 6 Oct 2026 13:00:00 -0700)
+
+- **Argentina bids Messi farewell in final national team match, ending an era**: [Link](https://apnews.com/article/argentina-lionel-messi-soccer-world-cup-champion-diego-maradona-scaloni-d399457f18032c45a996ef953565d535)
+- **‘It was an honour, thank you’ – Neymar sends heartfelt message to ex-Barcelona teammate Lionel Messi**: [Link](https://sports.yahoo.com/articles/honour-thank-neymar-sends-heartfelt-192000916.html)
+- **Scaloni: 'Only nostalgia remains' as Messi bids Argentina farewell**: [Link](https://www.espn.com/soccer/story/_/id/50110789/scaloni-messi-bids-argentina-farewell)
+
+
+### ceuta (N/A, Tue, 6 Oct 2026 12:40:00 -0700)
+
+- **Ceuta remitirá a la jueza certificación notarial de todas las llamadas de Vivas a Moncloa**: [Link](https://www.infobae.com/espana/agencias/2026/10/06/ceuta-remitira-a-la-jueza-certificacion-notarial-de-todas-las-llamadas-de-vivas-a-moncloa/)
+- **La jueza Tardón reclama a Vivas “a la mayor urgencia” sus comunicaciones con la Moncloa**: [Link](https://www.lavanguardia.com/politica/20261006/11652550/jueza-tardon-reclama-vivas-mayor-urgencia-comunicaciones-moncloa.html)
+- **Ceuta registra ante notario sus llamadas a Moncloa durante la crisis migratoria**: [Link](https://www.ceutaactualidad.com/articulo/actualidad/ceuta-registra-notario-llamadas-moncloa-crisis-migratoria/20261004125800284451.html)
+
+
+### عاصفة رعدية (N/A, Tue, 6 Oct 2026 12:20:00 -0700)
+
+- **زخات رعدية قوية تضرب أقاليم مغربية**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1818681.html)
+- **طقس حار مع سحب منخفضة متوقع اليوم الأربعاء**: [Link](https://ar.telquel.ma/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84/)
+- **زخات رعدية قوية مصحوبة بتساقط البرد وهبات رياح يومي الاثنين والثلاثاء بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B5%D8%AD%D9%88%D8%A8%D8%A9-%D8%A8%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%8A%D9%88%D9%85%D9%8A-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-20261005)
+
+
+### jean-luc mélenchon (N/A, Tue, 6 Oct 2026 12:20:00 -0700)
+
+- **"C'est un acte de trahison, il sera poursuivi pour cela": Jean-Luc Mélenchon s'en prend au gouverneur de la Banque de France pour ses propos sur la dette**: [Link](https://www.bfmtv.com/economie/economie-social/france/c-est-un-acte-de-trahison-il-sera-poursuivi-pour-cela-jean-luc-melenchon-s-en-prend-au-gouverneur-de-la-banque-de-france-pour-ses-propos-sur-la-dette_AV-202610060590.html)
+- **«Un acte de trahison» : Mélenchon veut que le gouverneur de la Banque de France soit «poursuivi» pour ses propos sur la dette**: [Link](https://www.lefigaro.fr/conjoncture/un-acte-de-trahison-melenchon-veut-que-le-gouverneur-de-la-banque-de-france-soit-poursuivi-pour-ses-propos-sur-la-dette-20261006)
+- **Le coût social de la « dette au feu »**: [Link](https://tnova.fr/economie-social/finances-macro-economie/le-cout-social-de-la-dette-au-feu/)
+
+
+### angola – malawi (N/A, Tue, 6 Oct 2026 12:10:00 -0700)
+
+- **Angola vs Malawi: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6j9x9g7rg8jt)
+- **AFCON 2027 (Q): Malawi coach Pasuwa calls for tactical discipline ahead of Angola clash**: [Link](https://en.africatopsports.com/afcon-2027-q-malawi-coach-pasuwa-calls-for-tactical-discipline-ahead-of-angola-clash/)
+- **How And Where To Watch: Angola vs Malawi LIVE on beIN SPORTS**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations-qualification/articles/how-and-where-to-watch-angola-vs-malawi-live-on-bein-sports-2026-10-06)
+
+
+### أحمد العوضي (N/A, Tue, 6 Oct 2026 12:10:00 -0700)
+
+- **خالد صلاح وزوجته شريهان أبو الحسن في العرض الخاص لـ مطلوب عائليًا**: [Link](https://twaslnews1.twaslnews.com/5666251/)
+- **بالصور- كريم عبدالعزيز يتألق في بالعرض الخاص لفيلمه "مطلوب عائليا"**: [Link](https://www.masrawy.com/arts/zoom/details/2026/10/6/3059105/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D9%83%D8%B1%D9%8A%D9%85-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D8%B9%D8%B2%D9%8A%D8%B2-%D9%8A%D8%AA%D8%A3%D9%84%D9%82-%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5-%D9%84%D9%81%D9%8A%D9%84%D9%85%D9%87-%D9%85%D8%B7%D9%84%D9%88%D8%A8-%D8%B9%D8%A7%D8%A6%D9%84%D9%8A%D8%A7-)
+- **"مطلوب عائلياً"... هل يستحق المشاهدة؟**: [Link](https://www.annahar.com/lifestyle/arts/354595/%D9%85%D8%B7%D9%84%D9%88%D8%A8-%D8%B9%D8%A7%D8%A6%D9%84%D9%8A%D8%A7-%D9%87%D9%84-%D9%8A%D8%B3%D8%AA%D8%AD%D9%82-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9)
+
+
+### درهم مغربي (N/A, Tue, 6 Oct 2026 11:40:00 -0700)
+
+- **ضغط الواردات يدفع الدرهم المغربي إلى التراجع أمام الدولار والأورو**: [Link](https://www.hespress.com/%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7-1818801.html)
+- **الدرهم المغربي يتراجع أمام الدولار واليورو للأسبوع الخامس على التوالي**: [Link](https://www.alarabiya.net/aswaq/economy/2026/10/05/%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D9%88-%D9%84%D9%84%D8%A7%D8%B3%D8%A8%D9%88%D8%B9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A)
+- **🔥خلال أيام اليورو يتجاوز 11 درهما في المغرب.. ماذا يحدث؟**: [Link](https://tanja7.com/193013/)
+
+
 ### نضال حسن (N/A, Tue, 6 Oct 2026 08:20:00 -0700)
 
 - **أول مرة منذ 65 عاماً.. ترامب يوافق على الإعدام بالرصاص لأميركي فلسطيني**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/10/06/%D8%A7%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%85%D9%86%D8%B0-65-%D8%B9%D8%A7%D9%85%D8%A7-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%B9%D8%AF%D8%A7%D9%85-%D8%A8%D8%A7%D9%84%D8%B1%D8%B5%D8%A7%D8%B5-%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A-%D9%82%D8%AA%D9%84-%D8%AC%D9%86%D9%88%D8%AF%D8%A7-%D8%B9%D8%A7%D9%85-2009)
