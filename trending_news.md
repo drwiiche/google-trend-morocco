@@ -1,3 +1,17 @@
+### france national football team vs belgium national football team standings (N/A, Mon, 5 Oct 2026 14:00:00 -0700)
+
+- **France 4-1 Belgium: Michael Olise scores twice in Nations League win for hosts**: [Link](https://www.bbc.com/sport/football/live/c6wyzyjez0n4t)
+- **Zidane and Mancini secure home wins in Nations League**: [Link](https://sportnation.nz/article/zidane-and-mancini-secure-home-wins-in-nations-league)
+- **Preview: France vs. Belgium - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/france/uefa-nations-league/preview/france-vs-belgium-prediction-team-news-lineups_606174.html)
+
+
+### classement équipe de france de football – équipe de belgique de football (N/A, Mon, 5 Oct 2026 13:50:00 -0700)
+
+- **Les Bleus électrisés par les entrants: Doué, Cherki et Olise offrent une troisième victoire à Zidane**: [Link](https://www.lequipe.fr/Football/Actualites/Les-bleus-electrises-par-les-entrants-doue-cherki-et-olise-offrent-une-troisieme-victoire-a-zidane/1723670)
+- **France-Belgique : le résumé du renversant succès des Bleus en Ligue des nations, sortis du piège des Diables rouges par un formidable Michael Olise**: [Link](https://www.lemonde.fr/sport/article/2026/10/05/france-belgique-le-resume-du-renversant-succes-des-bleus-en-ligue-des-nations-sauves-du-piege-des-diables-rouges-par-ses-remplacants-dont-un-formidable-michael-olise_6788587_3242.html)
+- **De l’ennui à la magie, les Bleus de Zidane renversent la Belgique**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-nations/renversants-les-bleus-de-zidane-punissent-la-belgique-au-stade-de-france-20261005)
+
+
 ### michael olise (N/A, Mon, 5 Oct 2026 14:00:00 -0700)
 
 - **Michael Olise is the 2026 reincarnation of Joga Bonito – & Zidane knows it**: [Link](https://www.planetfootball.com/in-depth/michael-olise-fantasy-footballer-2026-france-zidane)
