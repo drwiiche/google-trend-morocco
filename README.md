@@ -1,3 +1,50 @@
+### نفط (N/A, Tue, 6 Oct 2026 01:30:00 -0700)
+
+- **النفط دون 100 دولار والذهب يتراجع وسط توترات الشرق الأوسط**: [Link](https://www.aljazeera.net/ebusiness/2026/10/6/%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D8%AF%D9%88%D9%86-100-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%88%D8%B3%D8%B7)
+- **أسعار برنت تهبط 1.4 بالمئة إلى 100.8 دولار للبرميل**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A8%D8%B1%D9%86%D8%AA-%D8%AA%D9%87%D8%A8%D8%B7-14-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D8%A5%D9%84%D9%89-1008-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%84%D9%84%D8%A8%D8%B1%D9%85%D9%8A%D9%84/4078894)
+- **"برنت" يستقر قرب 100 دولار مع تعافي صادرات الخليج**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9/%D8%A8%D8%B1%D9%86%D8%AA-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D9%82%D8%B1%D8%A8-100-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%85%D8%B9-%D8%AA%D8%B9%D8%A7%D9%81%D9%8A-%D8%B5%D8%A7%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-14980)
+
+
+### wetter (N/A, Tue, 6 Oct 2026 00:00:00 -0700)
+
+- **DHMZ: Heute sonniges Wetter, abends starker Südwind.**: [Link](https://www.portal.hr/de/novosti/aktualnosti/114095-dhmz-danas-suncano-vrijeme-navecer-jugo-jacanju)
+- **In Dalmatien werden heute Sonnenschein und Temperaturen bis zu 25°C erwartet.**: [Link](https://www.portal.hr/de/novosti/aktualnosti/114042-dalmaciju-danas-ocekuje-sunce-temperature-25)
+- **Sonnig und warm**: [Link](https://www.portal.hr/de/novosti/aktualnosti/114017-suncano-toplo)
+
+
+### weather (N/A, Mon, 5 Oct 2026 23:30:00 -0700)
+
+- **Three Varanasi-bound flights diverted to Lucknow amid bad weather**: [Link](https://theprint.in/india/three-varanasi-bound-flights-diverted-to-lucknow-amid-bad-weather/3062728/)
+- **Dubai-Nepal flydubai Flight Diverted To Lucknow Due To Bad Weather**: [Link](https://www.ndtv.com/world-news/dubai-nepal-flydubai-flight-diverted-to-lucknow-due-to-bad-weather-12135901)
+- **flydubai Dubai-Phuket flight diverted to Lucknow due to bad weather**: [Link](https://www.indiatoday.in/india/story/flydubai-dubai-phuket-flight-diverted-to-lucknow-after-bad-weather-in-phuket-3008918-2026-10-03)
+
+
+### météo (N/A, Mon, 5 Oct 2026 23:10:00 -0700)
+
+
+
+
+### الطقس (N/A, Mon, 5 Oct 2026 23:10:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-103-1818474.html)
+- **زخات رعدية قوية ورياح الاثنين والثلاثاء بعدد من المناطق (نشرة إنذارية)**: [Link](https://assabah.ma/953705.html)
+- **زخات رعدية قوية مصحوبة بتساقط البرد وهبات رياح يومي الاثنين والثلاثاء بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B5%D8%AD%D9%88%D8%A8%D8%A9-%D8%A8%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D9%8A%D9%88%D9%85%D9%8A-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D9%88%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-20261005)
+
+
+### سعر (N/A, Mon, 5 Oct 2026 22:50:00 -0700)
+
+- **توقعات ببلوغ الذهب 5330 دولارا في عام 2027 بفعل التضخم والعجز الأمريكي**: [Link](https://www.aljazeera.net/ebusiness/2026/10/5/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%A8%D9%84%D9%88%D8%BA-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-5330-%D8%AF%D9%88%D9%84%D8%A7%D8%B1%D8%A7-%D9%81%D9%8A-2027-%D8%A8%D9%81%D8%B9%D9%84)
+- **الذهب يرتفع 0.5 بالمئة إلى 4175 دولارا للأونصة**: [Link](https://aa.com.tr/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-05-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D8%A5%D9%84%D9%89-4175-%D8%AF%D9%88%D9%84%D8%A7%D8%B1%D8%A7-%D9%84%D9%84%D8%A3%D9%88%D9%86%D8%B5%D8%A9/4078381)
+- **الذهب يتراجع بضغط من ارتفاع الدولار وعوائد السندات**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A8%D8%B6%D8%BA%D8%B7-%D9%85%D9%86-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%B9/)
+
+
+### euro dirham marocain (N/A, Mon, 5 Oct 2026 21:20:00 -0700)
+
+- **Pourquoi le dirham recule face à l’euro et au dollar, et ce que cela change pour l’économie marocaine**: [Link](https://medias24.com/2026/10/05/pourquoi-le-dirham-recule-face-a-leuro-et-au-dollar-1771951/)
+- **Le dollar frôle les 10 dirhams : 1 000 dollars valent déjà 379 dirhams de plus qu'il y a dix jours**: [Link](https://www.bladi.net/dollar-frole-dirhams-dollars-valent-dirhams-dix-jours,124185.html)
+- **Devises vs Dirham: les cours du lundi 5 octobre**: [Link](https://www.lesiteinfo.com/economie/683713-devises-vs-dirham-les-cours-du-lundi-5-octobre.html)
+
+
 ### france national football team vs belgium national football team standings (N/A, Mon, 5 Oct 2026 14:00:00 -0700)
 
 - **France 4-1 Belgium: Michael Olise scores twice in Nations League win for hosts**: [Link](https://www.bbc.com/sport/football/live/c6wyzyjez0n4t)
