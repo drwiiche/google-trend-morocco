@@ -1,3 +1,58 @@
+### نضال حسن (N/A, Tue, 6 Oct 2026 08:20:00 -0700)
+
+- **أول مرة منذ 65 عاماً.. ترامب يوافق على الإعدام بالرصاص لأميركي فلسطيني**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/10/06/%D8%A7%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%85%D9%86%D8%B0-65-%D8%B9%D8%A7%D9%85%D8%A7-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%88%D8%A7%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%B9%D8%AF%D8%A7%D9%85-%D8%A8%D8%A7%D9%84%D8%B1%D8%B5%D8%A7%D8%B5-%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A-%D9%82%D8%AA%D9%84-%D8%AC%D9%86%D9%88%D8%AF%D8%A7-%D8%B9%D8%A7%D9%85-2009)
+- **تستعد الولايات المتحدة لإعدام مرتكب المجزرة في فورت هود.**: [Link](https://www.vietnam.vn/ar/my-sap-xu-ban-thu-pham-tham-sat-o-can-cu-fort-hood)
+- **الاستثناء الأميركي: لماذا تقتل "أعرق الديمقراطيات" بحكم القانون؟**: [Link](https://www.akhbaralyawm.com/news/581856/%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A:-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%AA%D9%82%D8%AA%D9%84-%D8%A3%D8%B9%D8%B1%D9%82-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A%D8%A7%D8%AA-%D8%A8%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86%D8%9F)
+
+
+### maroc libye u20 (N/A, Tue, 6 Oct 2026 07:50:00 -0700)
+
+- **Eliminatoires U20 (tournoi UNAF): composition du Maroc face à la Libye**: [Link](https://frmf.ma/fr/articles/article-22)
+- **UNAF U20: les Lionceaux de l’Atlas s’inclinent face à la Libye**: [Link](https://sport.le360.ma/football/autres-championnats/unaf-u20-les-lionceaux-de-latlas-sinclinent-face-a-la-libye_PPZHRIOISFBWVGW3R7URGCWDUM/)
+- **Adam Baallal, capitaine du Maroc U20 et pépite de l’ASSE**: [Link](https://www.afrik.com/adam-baallal-capitaine-du-maroc-u20-et-pepite-de-l-asse)
+
+
+### منتخب مصر تحت 20 سنة لكرة القدم (N/A, Tue, 6 Oct 2026 06:20:00 -0700)
+
+- **المنتخب الوطني لأقل من 20 سنة يفوز على مصر ويتأهل إلى كأس أفريقيا**: [Link](https://frmf.ma/articles/20-11)
+- **المغرب يصعق مصر.. ومواجهة "مصيرية بين الفراعنة أمام محاربي الصحراء**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B5%D8%B9%D9%82-%D9%85%D8%B5%D8%B1--%D9%88%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%B5%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B9%D9%86%D8%A9-%D9%88%D9%85%D8%AD%D8%A7%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1/bltcfb359fc16407a62)
+- **العبادي يحلل تأهل أشبال الأطلس.. نضج تكتيكي واستغلال ذكي للمساحات أمام مصر (الفقرة الرياضية)**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B9%D8%A8%D8%A7%D8%AF%D9%8A-%D9%8A%D8%AD%D9%84%D9%84-%D8%AA%D8%A3%D9%87%D9%84-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%86%D8%B6%D8%AC-%D8%AA%D9%83%D8%AA%D9%8A%D9%83%D9%8A-%D9%88%D8%A7%D8%B3%D8%AA%D8%BA%D9%84%D8%A7%D9%84-%D8%B0%D9%83%D9%8A-%D9%84%D9%84%D9%85%D8%B3%D8%A7%D8%AD%D8%A7%D8%AA-20261004)
+
+
+### لامين يامال (N/A, Tue, 6 Oct 2026 06:10:00 -0700)
+
+- **مبابي يسقط أمام هيمنة يامال وهالاند في سباق الأغلى**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B3%D9%82%D8%B7-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%87%D9%8A%D9%85%D9%86%D8%A9-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%81%D9%8A-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%84%D8%A7%D9%94%D8%BA%D9%84%D9%89/blt72a5d83065f429a0)
+- **قائمة أغلى لاعبي العالم تتغير.. والقمة تحتفظ ببريقها**: [Link](https://www.alaraby.co.uk/sport/%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A3%D8%BA%D9%84%D9%89-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AA%D8%AA%D8%BA%D9%8A%D8%B1-%D9%88%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D8%AA%D8%AD%D8%AA%D9%81%D8%B8-%D8%A8%D8%A8%D8%B1%D9%8A%D9%82%D9%87%D8%A7)
+- **لامين يامال والريال الأغلى فى الدوري الإسباني.. تراجع صادم لـ فينيسيوس**: [Link](https://www.youm7.com/story/2026/10/5/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%BA%D9%84%D9%89-%D9%81%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B5%D8%A7%D8%AF%D9%85-%D9%84%D9%80/7568430)
+
+
+### novak djokovic (N/A, Tue, 6 Oct 2026 04:50:00 -0700)
+
+- **Djokovic wins China Open as Alcaraz retains Japan Open title**: [Link](https://www.aa.com.tr/en/sports/djokovic-wins-china-open-as-alcaraz-retains-japan-open-title/4079986)
+- **China Open**: [Link](https://www.reutersconnect.com/item/china-open/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQTYwWkk2QzI)
+- **No player had won titles for 21 consecutive seasons... until today**: [Link](https://www.puntodebreak.com/en/2026/10/06/no-player-had-won-titles-for-21-consecutive-seasons-until-today)
+
+
+### دراغان تالاييتش (N/A, Tue, 6 Oct 2026 04:40:00 -0700)
+
+- **أول إقالة لمدرب بعد الإقصاء من "خليجي 27"**: [Link](https://arabic.cnn.com/sport/article/2026/10/05/dragan-talajic-bahrain-gulf-cup)
+- **بعد فقدان لقب الخليج.. البحرين تنهي عقد المدرب تالاييتش بالتراضي**: [Link](https://www.aljazeera.net/sport/2026/10/6/%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D8%AA%D8%A7%D9%84%D8%A7%D9%8A%D9%8A%D8%AA%D8%B4-%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%B9%D9%82%D8%AF)
+- **قدم.. البحرين تنهي تعاقدها بالتراضي مع تالاييتش بعد وداع "خليجي 27"**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D9%86-%D8%AA%D9%86%D9%87%D9%8A-%D8%AA%D8%B9%D8%A7%D9%82%D8%AF%D9%87%D8%A7-%D8%A8%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%B6%D9%8A-%D9%85%D8%B9-%D8%AA%D8%A7%D9%84%D8%A7%D9%8A%D9%8A%D8%AA%D8%B4-%D8%A8%D8%B9%D8%AF-%D9%88%D8%AF%D8%A7%D8%B9-%D8%AE%D9%84%D9%8A%D8%AC%D9%8A-27/4078995)
+
+
+### carlos alcaraz (N/A, Tue, 6 Oct 2026 02:40:00 -0700)
+
+- **Alcaraz olvida la lesión en la muñeca defendiendo la corona de Tokio**: [Link](https://www.marca.com/tenis/2026/10/06/alcaraz-olvida-lesion-muneca-defendiendo-corona-tokio.html)
+- **Alcaraz hace saltar todas las alarmas en Tokio a 'palos'**: [Link](https://www.mundodeportivo.com/tenis/20261005/1004234734/alcaraz-saltar-todas-alarmas-tokio-palos.html)
+- **Carlos Alcaraz entra en el pódium de españoles con más títulos ATP Tour | ATP Tour | Tennis**: [Link](https://www.atptour.com/es/news/tokio-2026-alcaraz-tercer-espanol-mas-trofeos-era-open)
+
+
+### meteo (N/A, Tue, 6 Oct 2026 00:10:00 -0700)
+
+- **Intempéries: une accalmie attendue, mais la vigilance reste maximale**: [Link](https://www.lessentiel.fr/montpellier/environnement/2026-10-01/intemperies-une-accalmie-attendue-mais-la-vigilance-reste)
+- **Épisode méditerranéen : fortes pluies orageuses sur les Bouches-du-Rhône, accalmie en Languedoc**: [Link](https://www.meteoconsult.fr/actualites-meteo/2026-09-30/92751-episode-cevenol-intense-jusqu-a-336-mm-a-saint-hippolyte-du-fort-30-de-nombreuses-inondations-dans-le-gard-et-l-herault)
+
+
 ### نفط (N/A, Tue, 6 Oct 2026 01:30:00 -0700)
 
 - **النفط دون 100 دولار والذهب يتراجع وسط توترات الشرق الأوسط**: [Link](https://www.aljazeera.net/ebusiness/2026/10/6/%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D8%AF%D9%88%D9%86-100-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%88%D8%B3%D8%B7)
