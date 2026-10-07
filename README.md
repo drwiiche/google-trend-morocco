@@ -1,3 +1,10 @@
+### yallakora (N/A, Tue, 6 Oct 2026 16:10:00 -0700)
+
+- **7 أخبار رياضية لا تفوتك اليوم**: [Link](https://www.youm7.com/story/2026/10/6/7-%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85/7569110)
+- **ملف يلا كورة.. قرارات الأهلي.. محاولات الزمالك.. واستضافة السوبر المصري**: [Link](https://www.yallakora.com/egyptian-league/3031/news/568399/%D9%85%D9%84%D9%81-%D9%8A%D9%84%D8%A7-%D9%83%D9%88%D8%B1%D8%A9-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%85%D8%AD%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D9%88%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%A8%D8%B1-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A)
+- **حسام حسن وموسيماني يتفقان على 11 تبديلًا في ودية مصر وجنوب إفريقيا**: [Link](https://www.cairo24.com/2505934)
+
+
 ### états-unis – canada (N/A, Tue, 6 Oct 2026 16:50:00 -0700)
 
 - **Les États-Unis arrêtent une personne en lien avec la fusillade dans une école au Canada, selon des responsables**: [Link](https://www.zonebourse.com/actualite-bourse/les-etats-unis-arretent-une-personne-en-lien-avec-la-fusillade-dans-une-ecole-au-canada-selon-des-r-ce785dd9dc8df725)
