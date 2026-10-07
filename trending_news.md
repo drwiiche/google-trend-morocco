@@ -1,3 +1,59 @@
+### كيليان مبابي (N/A, Wed, 7 Oct 2026 11:40:00 -0700)
+
+- **"كفى لقد تجاوزتَ الحد".. هل اقترب مبابي من الرحيل عن ريال مدريد؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%81%D9%89-%D9%84%D9%82%D8%AF-%D8%AA%D8%AC%D8%A7%D9%88%D8%B2%D8%AA%D9%8E-%D8%A7%D9%84%D8%AD%D8%AF--%D9%87%D9%84-%D8%A7%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blta3cc8c94e4ed835f)
+- **الإدارة تخلت عنه ومورينيو وبخه.. تفاصيل خلاف ريال مدريد مع مبابي**: [Link](https://www.aljazeera.net/sport/2026/10/7/%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%AA%D8%AE%D9%84%D8%AA-%D8%B9%D9%86%D9%87-%D9%88%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%88%D8%A8%D8%AE%D9%87-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84)
+- **فيديو.. مبابي يتورط في جدل جديد بإسبانيا**: [Link](https://www.alarabiya.net/sport/2026/10/01/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AA%D9%88%D8%B1%D8%B7-%D9%81%D9%8A-%D8%AC%D8%AF%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A8%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7)
+
+
+### طائرة (N/A, Wed, 7 Oct 2026 11:40:00 -0700)
+
+- **تركيا تعزي نيجيريا في ضحايا تحطم طائرة عسكرية**: [Link](https://www.aa.com.tr/ar/%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D8%AA%D8%B9%D8%B2%D9%8A-%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%AA%D8%AD%D8%B7%D9%85-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-/4079141)
+- **تحطم طائرة يقتل 32 شخصا بنيجيريا**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D8%B7%D9%85-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%8A%D9%82%D8%AA%D9%84-32-%D8%B4%D8%AE%D8%B5%D8%A7-%D8%A8%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-1818397.html)
+- **بالفیدیو ؛ مقتل 32 شخصا بتحطم مروحية لسلاح الجو النيجيري غرب البلاد**: [Link](https://ar.shafaqna.com/AR/597011/)
+
+
+### لحم (N/A, Wed, 7 Oct 2026 10:20:00 -0700)
+
+- **إنقاذ طفل عمره 10 أشهر بعد ابتلاع قطعة لحم وانسداد مجرى التنفس في دمياط**: [Link](https://www.youm7.com/story/2026/10/6/%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%B7%D9%81%D9%84-%D8%B9%D9%85%D8%B1%D9%87-10-%D8%A3%D8%B4%D9%87%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A7%D8%A8%D8%AA%D9%84%D8%A7%D8%B9-%D9%82%D8%B7%D8%B9%D8%A9-%D9%84%D8%AD%D9%85-%D9%88%D8%A7%D9%86%D8%B3%D8%AF%D8%A7%D8%AF/7570196)
+- **فريق طبي بالداخلة ينقذ طفلًا بعد استخراج حجر من مجرى التنفس**: [Link](https://www.rosaelyoussef.com/1439522)
+- **إنقاذ طفل 10 أشهر بدمياط من الاختناق بعد ابتلاع قطعة لحم أدت لانسداد مجرى التنفس**: [Link](https://www.elbalad.news/7133857)
+
+
+### بنيامين نتنياهو (N/A, Wed, 7 Oct 2026 09:40:00 -0700)
+
+- **كيف تغيرت القواعد العسكرية الإسرائيلية قرب غزة بعد 7 أكتوبر؟.. صور أقمار صناعية تكشف**: [Link](https://www.aljazeera.net/news/2026/10/7/%D9%83%D9%8A%D9%81-%D8%AA%D8%BA%D9%8A%D8%B1%D8%AA-%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9)
+- **7 أكتوبر 2023: إسرائيل تحيي الذكرى الثالثة لهجمات حماس**: [Link](https://www.bbc.com/arabic/articles/cm62ylyn7lnro)
+- **إسرائيل: ذكرى7 أكتوبر تطغى على أجواء الانتخابات التشريعية المقبلة**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D9%86%D9%82%D8%A7%D8%B4-%D9%85%D9%88%D9%86%D8%AA-%D9%83%D8%A7%D8%B1%D9%84%D9%88-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D8%A9/20261007-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%B0%D9%83%D8%B1%D9%897-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D8%AA%D8%B7%D8%BA%D9%89-%D8%B9%D9%84%D9%89-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B4%D8%B1%D9%8A%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%82%D8%A8%D9%84%D8%A9)
+
+
+### ميزانية (N/A, Wed, 7 Oct 2026 07:30:00 -0700)
+
+- **ضغط الأسعار مستمر.. ميزانية 2027 تبحث عن إنعاش جيوب المغاربة**: [Link](https://www.hespress.com/%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D9%85%D8%B3%D8%AA%D9%85%D8%B1-%D9%85%D9%8A%D8%B2%D8%A7%D9%86%D9%8A%D8%A9-2027-%D8%AA%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A5%D9%86%D8%B9-1818415.html)
+- **الضرائب والتشغيل… انتظارات مستعجلة**: [Link](https://assabah.ma/953823.html)
+- **ينتظر الحكومة الجديدة..10 وصايا من جمعيات المستهلك لحماية القدرة الشرائية – أحداث.أنفو**: [Link](https://www.ahdath.info/%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-10-%D9%88%D8%B5%D8%A7%D9%8A%D8%A7-%D9%85%D9%86-%D8%AC%D9%85%D8%B9%D9%8A%D8%A7/)
+
+
+### harmattan ai (N/A, Wed, 7 Oct 2026 06:30:00 -0700)
+
+- **Défense. Voici ce que l’on sait d’IRIFI, le drone de frappe qu’Harmattan AI veut développer aux côtés des FAR**: [Link](https://fr.le360.ma/politique/defense-voici-ce-que-lon-sait-dirifi-le-drone-de-frappe-quharmattan-ai-veut-developper-aux-cotes-des_DSMXVWL4TRGDZBTKGY6XVWJQRM/)
+- **Airbus, Lockheed Martin et Safran rejoignent Boeing dans le centre de recherche industrielle ACME**: [Link](https://ledesk.ma/2026/10/07/airbus-lockheed-martin-et-safran-rejoignent-boeing-au-centre-de-recherche-industrielle-acme/)
+- **À Marrakech, Boeing dévoile ses projections pour l’Afrique et se positionne face aux ambitions de la RAM**: [Link](https://medias24.com/2026/10/07/a-marrakech-boeing-devoile-ses-projections-pour-lafrique-et-se-positionne-face-aux-ambitions-de-la-ram-1773661/)
+
+
+### منتخب السنغال لكرة القدم (N/A, Wed, 7 Oct 2026 06:20:00 -0700)
+
+- **الكل يترقب لحظة الحقيقة.. ثلاثي أوروبي يحدد البطل الشرعي لكأس أمم أفريقيا 2025**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D9%84-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9--%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%8A%D8%AD%D8%AF%D8%AF-%D8%A7%D9%84%D8%A8%D8%B7%D9%84-%D8%A7%D9%84%D8%B4%D8%B1%D8%B9%D9%8A-%D9%84%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025/bltb945c29b1dc486b8)
+- **أزمة نهائي أمم أفريقيا 2025.. "كاس" تنظر في طعن السنغال ضد تتويج المغرب**: [Link](https://www.aljazeera.net/sport/2026/10/7/%D8%A3%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **كأس أمم أفريقيا 2025: مباراة أخيرة بين المغرب والسنغال أمام محكمة التحكيم الرياضي**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20261007-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A)
+
+
+### coupe d'afrique des nations de football (N/A, Wed, 7 Oct 2026 06:10:00 -0700)
+
+- **Finale de la CAN 2025 Maroc-Sénégal : voici comment va se dérouler l’audience au TAS**: [Link](https://maroc-diplomatique.net/finale-de-la-can-2025-maroc-senegal-voici-comment-va-se-derouler-laudience-au-tas/)
+- **Maroc - Sénégal en finale de la CAN 2025 : à qui le TAS va-t-il attribuer le trophée ?**: [Link](https://www.france24.com/fr/sports/20261007-finale-can-2025-maroc-senegal-audience-tas)
+- **Finale CAN 2025 : un Français, un Italien et un Allemand au TAS pour le recours du Sénégal**: [Link](https://fr.hespress.com/491327-finale-can-2025-un-francais-un-italien-et-un-allemand-au-tas-pour-le-recours-du-senegal.html)
+
+
 ### مصر (N/A, Wed, 7 Oct 2026 04:50:00 -0700)
 
 - **مراجعة FTSE تعيد رسم خريطة الأسواق.. مصر تنجو من خفض التصنيف.. وعُمان تقترب من الانتقال إلى الأسواق الناشئة الثانوية**: [Link](https://www.cnbcarabia.com/157864/2026/07/10/%D9%85%D8%B1%D8%A7%D8%AC%D8%B9%D8%A9-FTSE-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B1%D8%B3%D9%85-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82..-%D9%85%D8%B5%D8%B1-%D8%AA%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B5%D9%86%D9%8A%D9%81..-%D9%88%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%88%D9%8A%D8%A9)
