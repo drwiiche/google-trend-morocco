@@ -1,3 +1,66 @@
+### états-unis – canada (N/A, Tue, 6 Oct 2026 16:50:00 -0700)
+
+- **Les États-Unis arrêtent une personne en lien avec la fusillade dans une école au Canada, selon des responsables**: [Link](https://www.zonebourse.com/actualite-bourse/les-etats-unis-arretent-une-personne-en-lien-avec-la-fusillade-dans-une-ecole-au-canada-selon-des-r-ce785dd9dc8df725)
+- **Un Américain accusé d’avoir comploté avec la tueuse de Tumbler Ridge**: [Link](https://www.ledevoir.com/actualites/1014950/americain-accuse-avoir-complote-tueuse-tumbler-ridge)
+- **Arrestation aux États-Unis en lien avec Tumbler Ridge | RCI**: [Link](https://ici.radio-canada.ca/rci/fr/nouvelle/2291203/arrestation-tumbler-ridge-seattle)
+
+
+### koora tv (N/A, Tue, 6 Oct 2026 16:30:00 -0700)
+
+- **جدول مباريات اليوم الثلاثاء 6 أكتوبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-6-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltaed32ec8778b77f6)
+- **مواعيد مباريات اليوم.. نهائى كأس «خليجى 27» وكرواتيا مع إسبانيا**: [Link](https://www.youm7.com/story/2026/10/6/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%86%D9%87%D8%A7%D8%A6%D9%89-%D9%83%D8%A3%D8%B3-%C2%AB%D8%AE%D9%84%D9%8A%D8%AC%D9%89-27%C2%BB-%D9%88%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-%D9%85%D8%B9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/7568352)
+- **ابرز الاحداث الرياضية ليوم الثلاثاء في 06-10-2026**: [Link](https://www.elsport.com/news/show/842527/%D8%A7%D8%A8%D8%B1%D8%B2-%D8%A7%D9%84%D8%A7%D8%AD%D8%AF%D8%A7%D8%AB-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-06-10-2026)
+
+
+### الأرجنتين ضد بنين (N/A, Tue, 6 Oct 2026 15:50:00 -0700)
+
+- **مباشر.. مباراة الأرجنتين ضد بنين الودية**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/6/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%B6%D8%AF-%D8%A8%D9%86%D9%8A%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9)
+- **برشلونة يواصل تجاهله.. سان جيرمان يوجه رسالة خاصة لميسي في ليلة الوداع**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%AA%D8%AC%D8%A7%D9%87%D9%84%D9%87--%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%AE%D8%A7%D8%B5%D8%A9-%D9%84%D9%85%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%B9/bltf10c0b934019195c)
+- **ميسي.. رقصة الوداع بعد 21 عامًا من المجد (تقرير)**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D9%8A%D8%B3%D9%8A-%D8%B1%D9%82%D8%B5%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%B9-%D8%A8%D8%B9%D8%AF-21-%D8%B9%D8%A7%D9%85%D9%8B%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AC%D8%AF-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1/4080212)
+
+
+### argentine – bénin (N/A, Tue, 6 Oct 2026 15:20:00 -0700)
+
+- **Argentine - Bénin, Matches amicaux A, match en direct le 07/10/2026**: [Link](https://www.lequipe.fr/Football/match-direct/matches-amicaux-a/2026-2027/argentine-benin-live/702987)
+- **DIRECT. Argentine-Bénin: suivez en live le dernier match de Lionel Messi avec l'Albiceleste**: [Link](https://rmcsport.bfmtv.com/football/equipe-argentine/direct-argentine-benin-suivez-en-live-le-dernier-match-de-lionel-messi-avec-l-albiceleste_LS-202610060768.html)
+- **Argentine : les incroyables images à Rosario avant le dernier match de Messi**: [Link](https://www.footmercato.net/a6121134506897336345-argentine-les-incroyables-images-a-rosario-avant-le-dernier-match-de-messi)
+
+
+### francis halzen (N/A, Tue, 6 Oct 2026 15:20:00 -0700)
+
+- **University of Wisconsin–Madison Professor Francis Halzen named 2026 Nobel laureate in physics**: [Link](https://news.wisc.edu/university-of-wisconsin-madison-professor-francis-halzen-named-2026-nobel-laureate-in-physics/)
+- **UW-Madison researcher wins Nobel Prize in physics**: [Link](https://www.channel3000.com/video/uw-madison-researcher-wins-nobel-prize-in-physics/video_88957ea1-74b8-55ba-a808-c2f05e3f42d2.html)
+- **A Nobel for the discovery of high-energy neutrinos**: [Link](https://www.economist.com/science-and-technology/2026/10/06/a-nobel-for-the-discovery-of-high-energy-neutrinos)
+
+
+### argentina vs benin (N/A, Tue, 6 Oct 2026 15:00:00 -0700)
+
+- **Lionel Messi live updates: Latest score as Messi makes final Argentina appearance against Benin**: [Link](https://www.nytimes.com/athletic/live-blogs/lionel-messi-live-updates-argentina-vs-benin-score-result/Zodrl7PQUgQc/)
+- **Lionel Messi farewell match live – updates and analysis from Argentina v Benin**: [Link](https://www.theguardian.com/football/live/2026/oct/06/lionel-messi-farewell-match-live-updates-analysis-argentina-benin)
+- **Argentina’s soccer icon Lionel Messi plays final match for national team**: [Link](https://www.cbsnews.com/newyork/video/argentinas-soccer-icon-lionel-messi-plays-final-match-for-national-team/)
+
+
+### العملة (N/A, Tue, 6 Oct 2026 14:40:00 -0700)
+
+- **ضغط الواردات يدفع الدرهم المغربي إلى التراجع أمام الدولار والأورو**: [Link](https://www.hespress.com/%D8%B6%D8%BA%D8%B7-%D8%A7%D9%84%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A5%D9%84%D9%89-%D8%A7-1818801.html)
+- **الدرهم المغربي يتراجع أمام الدولار واليورو للأسبوع الخامس على التوالي**: [Link](https://www.alarabiya.net/aswaq/economy/2026/10/05/%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D9%88-%D9%84%D9%84%D8%A7%D8%B3%D8%A8%D9%88%D8%B9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A)
+- **الهيري لـ”كود”: تراجع الدرهم للسيمانة الخامسة يقدر يرفع كلفة الواردات.. وقوة الدولار عالميا وضغط الطلب على العملة الصعبة أبرز العوامل المؤثرة**: [Link](https://www.goud.ma/%D8%A7%D9%84%D9%87%D9%8A%D8%B1%D9%8A-%D9%84%D9%80%D9%83%D9%88%D8%AF-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D9%84%D9%84%D8%B3%D9%8A%D9%85%D8%A7%D9%86%D8%A9-%D8%A7-1045484/)
+
+
+### سفيان رحيمي (N/A, Tue, 6 Oct 2026 13:50:00 -0700)
+
+- **الموت يفجع اللاعب الدولي سفيان رحيمي**: [Link](https://ar.lesiteinfo.com/cultures/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D9%81%D8%AC%D8%B9-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-1024704.html)
+- **"الدار بلا عزيز خسارة".. رحيمي يتفاعل بحرارة مع لفتة جماهير الرجاء لتأبين والده والزروالي وبنديان**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A8%D9%84%D8%A7-%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%8A%D8%AA%D9%81%D8%A7%D8%B9%D9%84-%D8%A8%D8%AD%D8%B1/)
+- **بعد وفاة “يوعري”.. الموت يفجع أسرة رحيمي مجددا**: [Link](https://www.alayam24.com/articles-643619.html)
+
+
+### تصفيات (N/A, Tue, 6 Oct 2026 13:40:00 -0700)
+
+- **"اللبؤات" إلى الدور 3 من التصفيات**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-3-%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-457008.html)
+- **تصفيات الألعاب الأولمبية 2028.. المنتخب الوطني النسوي لكرة القدم يتأهل إلى الدور الثالث**: [Link](https://2m.ma/ar/news/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%84%D8%B9%D8%A7%D8%A8-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A9-2028-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-20261006)
+- **المنتخب المغربي النسوي يتأهل مباشرة إلى الدور الثالث من تصفيات أولمبياد 2028**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-%D8%A5/)
+
+
 ### كأس الأمم الإفريقية تحت 20 سنة (N/A, Tue, 6 Oct 2026 13:20:00 -0700)
 
 - **تصريحات لاعبين من المنتخب الوطني لاقل من 20سنة بعد التأهل لكاس افريقيا**: [Link](https://frmf.ma/articles/20-12)
