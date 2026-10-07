@@ -1,3 +1,73 @@
+### مصرف (N/A, Wed, 7 Oct 2026 16:00:00 -0700)
+
+- **مطلوبات المصارف من القطاع العام بالمملكة ترتفع إلى 953 مليار ريال بنهاية أغسطس**: [Link](https://twaslnews1.twaslnews.com/5692414/)
+- **قروض الأفراد بالسعودية تزيد بأكثر من 10 مليارات دولار خلال 8 أشهر**: [Link](https://www.alhadath.net/2026/10/05/%D9%82%D8%B1%D9%88%D8%B6-%D8%A7%D9%84%D8%A7%D9%81%D8%B1%D8%A7%D8%AF-%D8%A8%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B2%D9%8A%D8%AF-%D8%A8%D8%A7%D9%83%D8%AB%D8%B1-%D9%85%D9%86-10-%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%AE%D9%84%D8%A7%D9%84-8-%D8%A7%D8%B4%D9%87%D8%B1)
+- **مع دخول بنك الأردن .. ارتفاع عدد البنوك الأجنبية وفروعها داخل السعودية**: [Link](https://mubasherbanks.com/8397/article/%D9%85%D8%B9-%D8%AF%D8%AE%D9%88%D9%84-%D8%A8%D9%86%D9%83-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D8%A8%D9%86%D9%88%D9%83-%D8%A7%D9%84%D8%A3%D8%AC%D9%86%D8%A8%D9%8A%D8%A9-%D9%88%D9%81%D8%B1%D9%88%D8%B9%D9%87%D8%A7-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9)
+
+
+### إدارة الجمارك والضرائب غير المباشرة (N/A, Wed, 7 Oct 2026 15:00:00 -0700)
+
+- **«ADIL» بحلة جديدة.. الجمارك تتيح احتساب رسوم وضرائب الاستيراد مسبقا – أحداث.أنفو**: [Link](https://www.ahdath.info/adil-%D8%A8%D8%AD%D9%84%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B1%D9%83-%D8%AA%D8%AA%D9%8A%D8%AD-%D8%A7%D8%AD%D8%AA%D8%B3%D8%A7%D8%A8-%D8%B1%D8%B3%D9%88/)
+- **بمحاكي ضرائب وشمول للتصدير.. الجمارك تطلق النسخة الجديدة لنظام "عادل"**: [Link](https://ihata.ma/economie/%D8%A7%D9%84%D9%86%D8%B3%D8%AE%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%84%D9%86%D8%B8%D8%A7%D9%85-%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%AC%D9%85%D8%B1%D9%83%D9%8A-%D9%85%D8%AD%D8%A7/)
+- **الجمارك المغربية تجدد نظام "ADIL" بخدمات رقمية متطورة لتسهيل الاستيراد والتصدير**: [Link](https://assafir24.ma/216523/)
+
+
+### القوات الجوية الملكية المغربية (N/A, Wed, 7 Oct 2026 14:30:00 -0700)
+
+- **"إف-16 بلوك 72" ترسم ملامح جيل جديد من القوة الجوية الملكية المغربية**: [Link](https://www.hespress.com/%D8%A5%D9%81-16-%D8%A8%D9%84%D9%88%D9%83-72-%D8%AA%D8%B1%D8%B3%D9%85-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%AC%D9%8A%D9%84-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7-1819474.html)
+- **المغرب يقترب من عالم إف-35.. واشنطن تفتح أبواب صناعة المقاتلة أمام شركات مغربية**: [Link](https://www.defense-arabic.com/2026/10/07/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%B9%D8%A7%D9%84%D9%85-%D8%A5%D9%81-35-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A3%D8%A8/)
+- **«إف-16 بلوك 72» المغربية تنجح في أول اختبار جوي تمهيداً للتسليم**: [Link](https://febrayer.com/1164079.html)
+
+
+### صناعة الطيران (N/A, Wed, 7 Oct 2026 14:30:00 -0700)
+
+- **المغرب يوقع اتفاقيات لتوطين صناعة الطيران والمسيّرات بمعرض مراكش الدولي للطيران**: [Link](https://www.aljazeera.net/ebusiness/2026/10/7/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D9%82%D8%B9-%D8%A7%D8%AA%D9%81%D8%A7%D9%82%D9%8A%D8%A7%D8%AA-%D9%84%D8%AA%D9%88%D8%B7%D9%8A%D9%86-%D8%B5%D9%86%D8%A7%D8%B9%D8%A9)
+- **فرسان الإمارات وصقور السعودية يُلوّنون سماء مراكش بالعروض الجوية**: [Link](https://www.hespress.com/%D9%81%D8%B1%D8%B3%D8%A7%D9%86-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D9%88%D8%B5%D9%82%D9%88%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%8A%D9%8F%D9%84%D9%88%D9%91%D9%86-1819276.html)
+- **انطلاق الدورة الثامنة لمعرض مراكش الدولي للطيران**: [Link](https://assabah.ma/954522.html)
+
+
+### ذهب (N/A, Wed, 7 Oct 2026 13:50:00 -0700)
+
+- **رغم إغلاق هرمز.. هكذا استطاع نفط الشرق الأوسط منع انفجار الأسعار**: [Link](https://www.aljazeera.net/ebusiness/2026/10/7/hormuz-oil-explosion)
+- **النفط يتراجع دون 100 دولار رغم تصاعد التوتر في الشرق الأوسط… عودة الإمدادات تخفف مخاوف الأسواق – اليوم 24**: [Link](https://alyaoum24.com/2048736.html)
+- **النفط يتراجع متأثراً بالموافقة على تسريع السحب من المخزونات**: [Link](https://24.ae/article/968891/%D8%A7%D9%84%D9%86%D9%81%D8%B7-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%85%D8%AA%D8%A3%D8%AB%D8%B1%D8%A7%D9%8B-%D8%A8%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%81%D9%82%D8%A9-%D8%B9%D9%84%D9%89-%D8%AA%D8%B3%D8%B1%D9%8A%D8%B9-%D8%A7%D9%84%D8%B3%D8%AD%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AE%D8%B2%D9%88%D9%86%D8%A7%D8%AA)
+
+
+### نقابية (N/A, Wed, 7 Oct 2026 13:30:00 -0700)
+
+- **المقاولات الصغرى تراهن على المنصوري وترفض تكرار سيناريو "فرصة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%82%D8%A7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D8%BA%D8%B1%D9%89-%D8%AA%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D9%88-1818851.html)
+- **دعوات نقابية لإعادة الاعتبار للحوار الاجتماعي – اليوم 24**: [Link](https://alyaoum24.com/2048868.html)
+- **“حكومة المنصوري” أمام مطالب نقابية بالتصدي للغلاء ورد الاعتبار للحوار الاجتماعي**: [Link](https://lakome2.com/politique/432945/)
+
+
+### meteo di domani (N/A, Wed, 7 Oct 2026 13:00:00 -0700)
+
+- **Scuole chiuse per maltempo giovedì 8 ottobre 2026, l'elenco dei comuni è in continuo aggiornamento**: [Link](https://sapere.virgilio.it/scuola/mondo-scuola/scuole-chiuse-per-maltempo-giovedi-8-ottobre-l-elenco-dei-comuni)
+- **Villani (Fdi): "Altra allerta, il comune di Montelupo cosa ha fatto?"**: [Link](https://www.clebs.it/villani-fdi-altra-allerta-il-comune-di-montelupo-cosa-ha-fatto.htm)
+- **Maltempo: a Firenze chiusi parchi, giardini e cimiteri**: [Link](https://www.firenzedintorni.it/it/articolo/48265/maltempo-a-firenze-chiusi-parchi-giardini-e-cimiteri-allerta-arancione-vietate-attivita-allaperto-in-tutti-i-parchi-giardini-e-aree-verdi.html)
+
+
+### dollar (N/A, Wed, 7 Oct 2026 12:30:00 -0700)
+
+- **Gold slides to two-month low as robust dollar, yields add pressure**: [Link](https://www.reuters.com/world/india/gold-edges-lower-with-focus-fed-minutes-rate-path-clues-2026-10-07/)
+- **Gold Steady as More Oil and Falling Yields Ease Rate-Hike Bets**: [Link](https://www.bloomberg.com/news/articles/2026-10-06/gold-steady-as-more-oil-and-falling-yields-ease-rate-hike-bets)
+- **Gold price today, Wednesday, October 7, 2026: Gold prices losing ground ahead of Fed minutes**: [Link](https://finance.yahoo.com/personal-finance/investing/article/gold-price-today-wednesday-october-7-2026-gold-prices-losing-ground-ahead-of-fed-minutes-105600743.html)
+
+
+### نادي تشيلسي (N/A, Wed, 7 Oct 2026 12:20:00 -0700)
+
+- **كيفية شراء تذاكر الضيافة الخاصة بليفربول: باقات كبار الشخصيات في أنفيلد، الأسعار والمعلومات | العربية Goal.com**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D8%B3%D9%81%D8%B1/%D8%A7%D8%B1%D8%B4%D8%A7%D8%AF%D8%A7%D8%AA/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-fc-%D8%A7%D9%84%D9%85%D9%85%D9%8A%D8%B2%D8%A9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%B9%D9%86-%D8%A7%D9%94%D9%86%D9%81%D9%8A%D9%84%D8%AF-%D8%A7%D9%94%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%82%D8%B5%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF/A~bltf1a6da9b66ba4d65)
+- **كيفية الحصول على تذاكر ليفربول لموسم 2026-27: المباريات، الأسعار ومعلومات التذاكر الموسمية**: [Link](https://akher.news/53372/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%84%D9%85%D9%88%D8%B3%D9%85-2026-27/)
+- **كيفية تأمين تذاكر تشيلسي FC المميزة: تذاكر الضيافة، معلومات عن ستامفورد بريدج، أسعار المقصورة التنفيذية والمزيد**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D8%B3%D9%81%D8%B1/%D8%A7%D8%B1%D8%B4%D8%A7%D8%AF%D8%A7%D8%AA/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D8%AA%D8%A7%D9%94%D9%85%D9%8A%D9%86-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-fc-%D8%A7%D9%84%D9%85%D9%85%D9%8A%D8%B2%D8%A9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D8%B6%D9%8A%D8%A7%D9%81%D8%A9-%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%B9%D9%86-%D8%B3%D8%AA%D8%A7%D9%85%D9%81%D9%88%D8%B1%D8%AF-%D8%A8%D8%B1%D9%8A%D8%AF%D8%AC-%D8%A7%D9%94%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%82%D8%B5%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF/A~blt29aa229ab401cc71)
+
+
+### بادو الزاكي (N/A, Wed, 7 Oct 2026 12:10:00 -0700)
+
+- **الزاكي يراهن على "جيل الأردن الذهبي"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D8%A7%D9%83%D9%8A-%D9%8A%D8%B1%D8%A7%D9%87%D9%86-%D8%B9%D9%84%D9%89-%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A-1818185.html)
+- **منافسو كأس آسيا يفرضون ضغطا مزدوجا على جهاز "النشامى" الفني...**: [Link](https://alghad.com/Section-180/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%88-%D9%83%D8%A3%D8%B3-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%8A%D9%81%D8%B1%D8%B6%D9%88%D9%86-%D8%B6%D8%BA%D8%B7%D8%A7-%D9%85%D8%B2%D8%AF%D9%88%D8%AC%D8%A7-%D8%B9%D9%84%D9%89-%D8%AC%D9%87%D8%A7%D8%B2-%D8%A7%D9%84%D9%86%D8%B4%D8%A7%D9%85%D9%89-%D8%A7%D9%84%D9%81%D9%86%D9%8A-2098641)
+- **قفزة جديدة لمنتخب النشامى في تصنيف الفيفا العالمي**: [Link](https://alwakaai.com/article/754560)
+
+
 ### كيليان مبابي (N/A, Wed, 7 Oct 2026 11:40:00 -0700)
 
 - **"كفى لقد تجاوزتَ الحد".. هل اقترب مبابي من الرحيل عن ريال مدريد؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%81%D9%89-%D9%84%D9%82%D8%AF-%D8%AA%D8%AC%D8%A7%D9%88%D8%B2%D8%AA%D9%8E-%D8%A7%D9%84%D8%AD%D8%AF--%D9%87%D9%84-%D8%A7%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blta3cc8c94e4ed835f)
