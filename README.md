@@ -1,3 +1,73 @@
+### مصر (N/A, Wed, 7 Oct 2026 04:50:00 -0700)
+
+- **مراجعة FTSE تعيد رسم خريطة الأسواق.. مصر تنجو من خفض التصنيف.. وعُمان تقترب من الانتقال إلى الأسواق الناشئة الثانوية**: [Link](https://www.cnbcarabia.com/157864/2026/07/10/%D9%85%D8%B1%D8%A7%D8%AC%D8%B9%D8%A9-FTSE-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B1%D8%B3%D9%85-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82..-%D9%85%D8%B5%D8%B1-%D8%AA%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B5%D9%86%D9%8A%D9%81..-%D9%88%D8%B9%D9%8F%D9%85%D8%A7%D9%86-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%88%D9%8A%D8%A9)
+- **كيف تفاعلت البورصة المصرية مع بقائها بالأسواق الناشئة لـ«فوتسي راسل»؟**: [Link](https://twaslnews1.twaslnews.com/5689518/)
+- **القيمة السوقية للبورصة ترتفع إلى 4.215 تريليون جنيه بعد الخروج من قائمة «فوتسي راسل»**: [Link](https://estsmararabe.com/%D8%A7%D9%84%D9%82%D9%8A%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D9%82%D9%8A%D8%A9-%D9%84%D9%84%D8%A8%D9%88%D8%B1%D8%B5%D8%A9-%D8%AA%D8%B1%D8%AA%D9%81%D8%B9-%D8%A5%D9%84%D9%89-4-215-%D8%AA%D8%B1%D9%8A/)
+
+
+### algérie (N/A, Wed, 7 Oct 2026 04:40:00 -0700)
+
+- **Amical : l’Algérie s’en sort bien contre le Niger**: [Link](https://www.footmercato.net/a9118779932728563013-amical-lalgerie-sen-sort-bien-contre-le-niger)
+- **Des Verts pas assez mûrs**: [Link](https://www.lexpressiondz.com/sports/des-verts-pas-assez-murs-410192)
+- **L'Algérie de Brahim Hemdani toujours invaincue après sa victoire contre le Niger, Adil Bourabaa a honoré sa première sélection**: [Link](https://www.lequipe.fr/Football/Actualites/L-algerie-de-brahim-hemdani-toujours-invaincue-apres-sa-victoire-contre-le-niger-adil-bourabaa-a-honore-sa-premiere-selection/1723870)
+
+
+### émirats arabes unis (N/A, Wed, 7 Oct 2026 04:10:00 -0700)
+
+- **Jalal Jayed désigné pour arbitrer la finale de la Coupe du Golfe**: [Link](https://maroc-diplomatique.net/jalal-jayed-designe-pour-arbitrer-la-finale-de-la-coupe-du-golfe/)
+- **Buts du match l'Arabie saoudite - UAE | Arabian Gulf Cup | Yalla Shoot**: [Link](https://www.ysscores.com/fr/video/369764)
+- **« Nous ne sommes pas une équipe d'une seule star » : que voulait dire le directeur de la sélection saoudienne ?**: [Link](https://www.goal.com/fr/news/nous-ne-sommes-pas-une-equipe-d-une-seule-star-que-voulait-dire-le-directeur-de-la-selection-saoudienne/blt4411d946acdeb5e2)
+
+
+### ريما حسن (N/A, Wed, 7 Oct 2026 02:50:00 -0700)
+
+- **ببندقية وعلم إسرائيل.. مسلح يهدد النائبة الأوروبية ريما حسن**: [Link](https://www.aljazeera.net/news/2026/10/7/%D8%A8%D8%A8%D9%86%D8%AF%D9%82%D9%8A%D8%A9-%D9%88%D8%B9%D9%84%D9%85-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%85%D8%B3%D9%84%D8%AD-%D9%8A%D9%87%D8%AF%D8%AF)
+- **البرلمان الأوروبي يحقق مع ريما حسن**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%8A%D8%AD%D9%82%D9%82-%D9%85%D8%B9-%D8%B1%D9%8A%D9%85%D8%A7-%D8%AD%D8%B3%D9%86-1818697.html)
+- **البرلمان الأوروبي يتعامل "بجدية" مع اتهام ريما حسن بنزع علم إسرائيلي**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261006-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%AA%D8%AA%D8%B9%D8%A7%D9%85%D9%84-%D8%A8%D8%AC%D8%AF%D9%8A%D8%A9-%D8%A7%D8%AA%D9%87%D8%A7%D9%85-%D8%B1%D9%8A%D9%85%D8%A7-%D8%AD%D8%B3%D9%86-%D8%A8%D9%86%D8%B2%D8%B9-%D8%B9%D9%84%D9%85-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-1)
+
+
+### دوري الأمم الأوروبية (N/A, Wed, 7 Oct 2026 02:50:00 -0700)
+
+- **تفاصيل المجموعات الأربع.. منتخبان فقط ضمنا التأهل إلى ربع نهائي دوري الأمم الأوروبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9--%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D9%86-%D9%81%D9%82%D8%B7-%D8%B6%D9%85%D9%86%D8%A7-%D8%A7%D9%84%D8%AA%D8%A7%D9%94%D9%87%D9%84-%D8%A7%D9%95%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/bltd1839445b59da1c9)
+- **المنتخبات المتأهلة رسميًا إلى ربع نهائي دوري الأمم الأوروبية**: [Link](https://www.eremnews.com/sports/p35g1xh)
+- **«دوري الأمم الأوروبية»: سويسرا تفوز وتقترب من الصعود… وألبانيا تفوز وتتصدر**: [Link](https://twaslnews1.twaslnews.com/5670087/)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Wed, 7 Oct 2026 01:10:00 -0700)
+
+- **أزمة نهائي أمم أفريقيا 2025.. "كاس" تنظر في طعن السنغال ضد تتويج المغرب**: [Link](https://www.aljazeera.net/sport/2026/10/7/%D8%A3%D8%B2%D9%85%D8%A9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **الطاس تحسم نزاع السنغال والمغرب.. ثلاث فرضيات تنتظر جلسة 8 أكتوبر**: [Link](https://madar21.com/458080.html)
+- **«طاس» يحدد هيئة النظر في طعن السنغال ضد قرار «كاف» بشأن نهائي «كان 2025**: [Link](https://radiomars.ma/%D8%B7%D8%A7%D8%B3-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%87%D9%8A%D8%A6%D8%A9-%D8%A7%D9%84%D9%86%D8%B8%D8%B1-%D9%81%D9%8A-%D8%B7%D8%B9%D9%86-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%B6%D8%AF/)
+
+
+### cristiano ronaldo (N/A, Wed, 7 Oct 2026 00:40:00 -0700)
+
+- **Cristiano Ronaldo: Portugal forward not retiring but says he wants to be punished for walking out**: [Link](https://www.bbc.com/sport/football/articles/cmd7qn48q13lo)
+- **Cristiano Ronaldo: Portugal star breaks silence over national team walkout in statement**: [Link](https://www.skysports.com/football/news/13595921/cristiano-ronaldo-portugal-star-breaks-silence-over-national-team-walkout-in-statement)
+- **Cristiano Ronaldo leaves Portugal camp after coach says he'd be benched again**: [Link](https://www.espn.com/soccer/story/_/id/50069045/cristiano-ronaldo-portugal-coach-leave-camp-jorge-jesus-bench-denmark)
+
+
+### الطقس اليوم (N/A, Wed, 7 Oct 2026 00:10:00 -0700)
+
+- **الأرصاد الجوية تحذر المواطنين من تلك الأمور.. تفاصيل**: [Link](https://twaslnews1.twaslnews.com/5680706/)
+- **من الخميس حتى الإثنين.. طقس مائل للحرارة والعظمى 40 درجة**: [Link](https://www.youlyou.com/68142)
+- **حالة الطقس اليوم الأربعاء في مصر.. أجواء مستقرة والعظمى 30 بالقاهرة**: [Link](https://www.cairo24.com/2507360)
+
+
+### الطقس (N/A, Tue, 6 Oct 2026 23:50:00 -0700)
+
+- **أمطار قوية وتساقط البرد في 17 إقليما**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%81%D9%8A-17-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D8%A7-1819121.html)
+- **أجواء حارة مع سحب منخفضة متوقعة اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1/)
+- **زخات رعدية ورياح الثلاثاء والأربعاء بعدد من المناطق (نشرة إنذارية)**: [Link](https://assabah.ma/953951.html)
+
+
+### weather (N/A, Tue, 6 Oct 2026 23:50:00 -0700)
+
+- **N.J. weather: Tropical Storm Isaias remnants could bring heavy rain to state by Sunday**: [Link](https://www.nj.com/weather/2026/10/nj-weather-tropical-storm-isaias-remnants-could-bring-heavy-rain-to-state-by-sunday.html)
+- **Dry & warm stretch continues; tropical rain possible Sunday**: [Link](https://www.wishtv.com/weather/dry-warm-stretch-continues-tropical-rain-possible-sunday/)
+- **First Alert Forecast: Mild & dry until Sunday rain arrives**: [Link](https://www.21alivenews.com/2026/10/07/first-alert-forecast-mild-dry-until-sunday-rain-arrives/)
+
+
 ### yallakora (N/A, Tue, 6 Oct 2026 16:10:00 -0700)
 
 - **7 أخبار رياضية لا تفوتك اليوم**: [Link](https://www.youm7.com/story/2026/10/6/7-%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D9%84%D8%A7-%D8%AA%D9%81%D9%88%D8%AA%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85/7569110)
