@@ -1,3 +1,71 @@
+### عادل إمام (N/A, Thu, 8 Oct 2026 09:20:00 -0700)
+
+- **حقيقة الظهور الخاطف لعادل إمام في شوارع القاهرة**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/08/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%AE%D8%A7%D8%B7%D9%81-%D9%84%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%85%D8%A7%D9%85-%D9%81%D9%8A-%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9)
+- **عادل إمام يظهر من داخل سيارة ويلوح لجمهوره.. ما حقيقة الصورة؟**: [Link](https://www.okaz.com.sa/culture/na/2269850)
+- **'الزعيم' في أحدث ظهور له؟**: [Link](https://www.annahar.com/factcheck/355218/%D8%A7%D9%84%D8%B0%D9%83%D8%A7-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AD%D9%88%D9%84-%D8%B3%D9%84%D9%8A%D9%85-%D8%AE%D8%A7%D9%86-%D8%A5%D9%84%D9%89-%D8%B9%D8%A7%D8%AF%D9%84-%D8%A5%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%B1-%D8%AA%D8%AA%D8%AD%D9%82%D9%82-factcheck)
+
+
+### rima hassan (N/A, Thu, 8 Oct 2026 08:50:00 -0700)
+
+- **7-octobre : une élue de la gauche radicale sous le feu des critiques au Parlement européen**: [Link](https://medias24.com/agence-presse/7-octobre-une-elue-de-la-gauche-radicale-sous-le-feu-des-critiques-au-parlement-europeen/)
+- **Vidéo. Metsola va prendre des mesures après le retrait du drapeau israélien par l'eurodéputée Rima Hassan**: [Link](https://fr.euronews.com/video/2026/10/07/metsola-va-prendre-des-mesures-apres-le-retrait-du-drapeau-israelien-par-leurodeputee-rima)
+- **L'eurodéputée Rima Hassan, accusée d'avoir renversé les drapeaux israélien et européen lors d'une exposition consacrée au 7 octobre, réagit**: [Link](https://www.lalibre.be/international/europe/2026/10/07/leurodeputee-rima-hassan-accusee-davoir-renverse-des-drapeaux-israelien-et-europeen-lors-dune-exposition-consacree-au-7-octobre-reagit-YTTC3DCBQZHHNJKU5ZQR2DV4KQ/)
+
+
+### جوزيه مورينيو (N/A, Thu, 8 Oct 2026 08:40:00 -0700)
+
+- **مورينيو يسخر من قضية السيتي: قد أبلغ 80 عامًا قبل صدور العقوبة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%82%D8%AF-%D8%A7%D9%94%D8%A8%D9%84%D8%BA-80-%D8%B9%D8%A7%D9%85%D9%8B%D8%A7-%D9%82%D8%A8%D9%84-%D8%B5%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%B9%D9%82%D9%88%D8%A8%D8%A9/bltfa1ca7e0fa4f87c8)
+- **مورينيو : لقد مُتّ بعد نهائي بودابست .. وسأبلغ الثمانين عندما يصدر الحكم في قضية مانشستر سيتي!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B1%D9%88%D9%85%D8%A7-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/blt1dd8b3b9f205716d)
+- **مورينيو يكشف مفاجآت عودته لريال مدريد ويتحدث عن قضية نيجريرا**: [Link](https://www.youlyou.com/69240)
+
+
+### rayan cherki (N/A, Thu, 8 Oct 2026 07:40:00 -0700)
+
+- **PSG ready to beat Liverpool to Man City attacking wizard if FFP punishment is severe - Exclusive**: [Link](https://www.teamtalk.com/manchester-city/psg-ready-beat-liverpool-man-city-rayan-cherki-ffp-punishment-severe-exclusive)
+- **Chelsea talks for Rayan Cherki revealed, as Manchester City exodus looms: report**: [Link](https://www.fourfourtwo.com/person/chelsea-talks-for-rayan-cherki-revealed-as-manchester-city-exodus-looms-report)
+- **Manchester City midfield mainstay establishing himself as strong option for Real Madrid – report**: [Link](https://sports.yahoo.com/articles/manchester-city-midfield-mainstay-establishing-084000454.html)
+
+
+### drone irifi maroc (N/A, Thu, 8 Oct 2026 07:10:00 -0700)
+
+
+
+
+### الخطوط الملكية المغربية (N/A, Thu, 8 Oct 2026 06:40:00 -0700)
+
+- **"بوينغ" تجدد مقصورات طائرات "لارام"**: [Link](https://www.hespress.com/%D8%A8%D9%88%D9%8A%D9%86%D8%BA-%D8%AA%D8%AC%D8%AF%D8%AF-%D9%85%D9%82%D8%B5%D9%88%D8%B1%D8%A7%D8%AA-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D9%84%D8%A7%D8%B1%D8%A7%D9%85-1819735.html)
+- **الخطوط الملكية المغربية وبوينغ توقعان اتفاقية لتجديد مقصورات طائرات ‘دريملاينر’**: [Link](https://daralkhabar.com/%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%B7-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D8%A8%D9%88%D9%8A%D9%86%D8%BA-%D8%AA%D9%88%D9%82%D8%B9%D8%A7/)
+- **المهدي المقدمي: الخطوط الملكية المغربية تعزز أسطولها بطائرة بوينغ جديدة**: [Link](https://alittihad.info/%D8%A7%D9%84%D9%85%D9%87%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%82%D8%AF%D9%85%D9%8A-%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%B7-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+
+
+### مناخ (N/A, Thu, 8 Oct 2026 05:50:00 -0700)
+
+- **ظاهرة مناخية تضع العالم في حالة ترقب**: [Link](https://www.hespress.com/%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D9%85%D9%86%D8%A7%D8%AE%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D8%AA%D8%B1%D9%82%D8%A8-1819581.html)
+- **أزيد من 347 مليون طفل في 100 دولة يواجهون مخاطر الجفاف والفيضانات – اليوم 24**: [Link](https://alyaoum24.com/2048877.html)
+- **المنظمة العالمية للأرصاد الجوية تحذر من اشتداد ظاهرة «إل نينيو» وتوقع بلوغها ذروتها في دجنبر المقبل**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D8%B4%D8%AA%D8%AF%D8%A7%D8%AF-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%A5%D9%84-%D9%86%D9%8A%D9%86%D9%8A%D9%88-20261008)
+
+
+### équipe du sénégal de football (N/A, Thu, 8 Oct 2026 04:40:00 -0700)
+
+- **Maroc vs Sénégal : affaire mise en délibéré au TAS, date de la sentence incertaine**: [Link](https://medias24.com/2026/10/08/maroc-vs-senegal-affaire-mise-en-delibere-au-tas-date-de-la-sentence-incertaine-1774989/)
+- **DIRECT. Finale de la CAN 2025: audience terminée pour le Maroc et le Sénégal devant le TAS, toutes les infos en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-finale-de-la-can-2025-le-maroc-et-le-senegal-devant-le-tas-pour-determiner-le-vainqueur-toutes-les-infos-en-live_LN-202610080326.html)
+- **Matthieu Reeb, Directeur Général du TAS : « Notre objectif est de rendre une décision fondée dès que possible »**: [Link](https://www.lequipe.fr/Football/Video/Can-2025-matthieu-reeb-directeur-general-du-tas-notre-objectif-est-de-rendre-une-decision-fondee-des-que-possible/20242805)
+
+
+### إبراهيم تراوري (N/A, Thu, 8 Oct 2026 04:20:00 -0700)
+
+- **رئيس بوركينا فاسو يتحدى فيفا: سأتدخل في الرياضة بعد فضيحة الأرجنتين**: [Link](https://www.alarabiya.net/sport/2026/10/07/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D9%81%D9%8A%D9%81%D8%A7-%D8%B3%D8%A7%D8%AA%D8%AF%D8%AE%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%A7%D9%84%D8%A7%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
+- **رئيس بوركينا فاسو يتحدى الفيفا بعد أزمة الأرجنتين: سنتدخل في اتحاد الكرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%8A%D9%94%D9%8A%D8%B3-%D8%A8%D9%88%D8%B1%D9%83%D9%8A%D9%86%D8%A7-%D9%81%D8%A7%D8%B3%D9%88-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%B3%D9%86%D8%AA%D8%AF%D8%AE%D9%84-%D9%81%D9%8A-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D8%A9/blt6e7794eb8a7040b1)
+- **دوغاري يهاجم مواجهة الأرجنتين وبنين: «إنها مباراة العار»**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%88%D8%BA%D8%A7%D8%B1%D9%8A-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D8%A8%D9%86%D9%8A%D9%86-%D8%A5%D9%86%D9%87%D8%A7-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D8%B1/26173)
+
+
+### didier deschamps (N/A, Thu, 8 Oct 2026 03:10:00 -0700)
+
+- **Équipe de France : Zinédine Zidane va changer radicalement une vieille habitude de Didier Deschamps**: [Link](https://www.footmercato.net/a688539663852530468-equipe-de-france-zinedine-zidane-va-changer-radicalement-une-vieille-habitude-de-didier-deschamps)
+- **Les gagnants et les perdants du rassemblement des Bleus - International - France**: [Link](https://www.sofoot.com/articles/ligue-des-nations-dembele-mbappe-zidane-les-gagnants-et-les-perdants-du-rassemblement-des-bleus)
+- **Equipe de France: La décision « injuste » de Zinedine Zidane qui fait des dégâts**: [Link](https://www.sports.fr/football/equipe-de-france-la-decision-injuste-de-zinedine-zidane-qui-fait-des-degats-1052312.html)
+
+
 ### محمد وهبي (N/A, Thu, 8 Oct 2026 00:50:00 -0700)
 
 - **إيغامان يقترب من العودة لتداريب ليل**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D8%BA%D8%A7%D9%85%D8%A7%D9%86-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-%D9%84%D9%8A%D9%84-1819546.html)
