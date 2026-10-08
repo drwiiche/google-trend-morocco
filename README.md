@@ -1,3 +1,73 @@
+### wydad athletic club (N/A, Thu, 8 Oct 2026 14:10:00 -0700)
+
+- **Botola : l’AS FAR démarre par une victoire contre le Wydad Témara**: [Link](https://radiomars.ma/fr/?p=6686)
+- **Botola Pro D1: l’AS FAR réussit son entrée en lice face au Wydad Témara**: [Link](https://sport.le360.ma/football/botola/botola-pro-d1-las-far-reussit-son-entree-en-lice-face-au-wydad-temara_N3VP6B6IA5DOVLKPXGWMWXNX4E/)
+- **La « Black Army » intensifie sa protestation contre la direction et annonce le boycott du match de l'AS FAR**: [Link](https://www.elbotola.com/fr/article/2026-10-06-11-12-497.html)
+
+
+### فيضان (N/A, Thu, 8 Oct 2026 14:00:00 -0700)
+
+- **فيضانات مدمرة تغرق مدنا ومناطق زراعية في تايلاند وسط تحذيرات من أمطار إضافية**: [Link](https://maacom.ma/2026/10/08/%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA-%D9%85%D8%AF%D9%85%D8%B1%D8%A9-%D8%AA%D8%BA%D8%B1%D9%82-%D9%85%D8%AF%D9%86%D8%A7-%D9%88%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A%D8%A9/)
+- **"المركزي" التايلاندي يتوقع ارتفاع ديون الأسر بسبب الفيضانات**: [Link](https://www.alarabiya.net/aswaq/economy/2026/10/08/%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D9%8A-%D8%A7%D9%84%D8%AA%D8%A7%D9%8A%D9%84%D8%A7%D9%86%D8%AF%D9%8A-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D9%8A%D9%88%D9%86-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%81%D9%8A%D8%B6%D8%A7%D9%86%D8%A7%D8%AA)
+- **انتشرت على مواقع التواصل الاجتماعي لقطات لحافلة تخوض مياه الفيضانات العميقة في بانكوك.**: [Link](https://www.vietnam.vn/ar/canh-xe-buyt-loi-qua-dong-nuoc-ngap-sau-o-bangkok-viral-khap-mxh)
+
+
+### riyad (N/A, Thu, 8 Oct 2026 14:00:00 -0700)
+
+- **Iran-backed Houthis target Saudi airports for third straight day as they warn of long conflict**: [Link](https://www.cnn.com/2026/10/08/middleeast/riyadh-airport-houthis-explosion-intl)
+- **Moroccan and Algerian women killed in attack on Saudi Arabia's Abha Airport**: [Link](https://en.hespress.com/146889-moroccan-and-algerian-women-killed-in-attack-on-saudi-arabias-abha-airport.html)
+- **Yemen war updates: Houthi attacks on two Saudi airports kill three people**: [Link](https://www.aljazeera.com/news/liveblog/2026/10/7/iran-war-live-yemen-forces-claim-control-over-strategic-taiz-mountain-peak)
+
+
+### ترتيب الدوري المغربي (N/A, Thu, 8 Oct 2026 13:40:00 -0700)
+
+- **جدول ترتيب الدوري المغربي 2026/2027 بعد الجولة الثالثة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%84-3/)
+- **جدول ترتيب هدافي الدوري المغربي 2026/2027 بعد الجولة الثالثة**: [Link](https://twaslnews1.twaslnews.com/5757326/)
+- **جدول ترتيب هدافي الدوري المغربي 2026/2027 بعد الجولة الثانية**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D8%A8%D8%B9%D8%AF-2/)
+
+
+### صاعقة (N/A, Thu, 8 Oct 2026 13:20:00 -0700)
+
+- **صاعقة تضرب طائرة ركاب على ارتفاع 17 ألف قدم**: [Link](https://www.aljazeera.net/misc/2026/10/8/%D8%B5%D8%A7%D8%B9%D9%82%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%B1%D9%83%D8%A7%D8%A8-%D8%B9%D9%84%D9%89-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-17-%D8%A3%D9%84%D9%81)
+- **صاعقة رعدية تضرب طائرة ركاب في سماء الهند**: [Link](https://jfranews.com.jo/article/558813)
+- **صاعقة رعدية تضرب طائرة ركاب في سماء الهند**: [Link](https://a5r5br.net/international/varieties/8269089-%D8%B5%D8%A7%D8%B9%D9%82%D8%A9-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%B1%D9%83%D8%A7%D8%A8-%D9%81%D9%8A-%D8%B3%D9%85%D8%A7%D8%A1-%D8%A7%D9%84%D9%87%D9%86%D8%AF)
+
+
+### mas fès vs raja ca (N/A, Thu, 8 Oct 2026 12:50:00 -0700)
+
+- **MAS Fes Move Raja Match to Meknes Due to Stadium Renovation**: [Link](https://www.moroccoworldnews.com/2026/10/340806/mas-fes-move-raja-match-to-meknes-due-to-stadium-renovation/)
+- **Botola Pro: El Houidri to Referee Maghreb Fez vs. Raja CA, Bouslim in VAR**: [Link](https://www.elbotola.com/en/article/2026-10-08-10-54-348.html)
+- **Predictions for the Botola Pro 1 game Maghrib de Fès vs. Raja Casablanca**: [Link](https://www.futbol24.com/betting-tips/preview/08-10-2026-maghrib-de-fes-raja-casablanca-betting-tip/)
+
+
+### المغرب الفاسي ضد الرجاء (N/A, Thu, 8 Oct 2026 12:50:00 -0700)
+
+- **الإصابة تبعدا لاعبا بارزا عن الرجاء أمام المغرب الفاسي – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D8%A8%D8%B9%D8%AF%D8%A7-%D9%84%D8%A7%D8%B9%D8%A8%D8%A7-%D8%A8%D8%A7%D8%B1%D8%B2%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A3%D9%85/)
+- **“الماص” يستقبل الرجاء بمكناس**: [Link](https://assabah.ma/953880.html)
+- **قمة نارية بين المغرب الفاسي والرجاء في قلب مكناس**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D9%82%D9%85%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%81%D9%8A-%D9%82%D9%84%D8%A8-%D9%85%D9%83%D9%86%D8%A7%D8%B3/26272)
+
+
+### عاصفة رعدية (N/A, Thu, 8 Oct 2026 12:30:00 -0700)
+
+- **التقلبات الجوية تتواصل في المغرب .. والأرصاد تنبه إلى مخاطر السيول**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A3%D8%B1-1819733.html)
+- **أجواء حارة مع قطرات مطرية متوقعة اليوم الاثنين**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9/)
+- **رعد قوي يضرب الدار البيضاء ويرعب السكان ويوعابد يشرح الظاهرة**: [Link](https://ar.lesiteinfo.com/maroc/%D8%B1%D8%B9%D8%AF-%D9%82%D9%88%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D9%88%D9%8A%D8%B1%D8%B9%D8%A8-%D8%A7%D9%84%D8%B3%D9%83%D8%A7-1025089.html)
+
+
+### جيانلويجي دوناروما (N/A, Thu, 8 Oct 2026 12:30:00 -0700)
+
+- **وكيل دوناروما: مانشستر سيتي أبلغ لاعبيه هذه الرسالة بعد قرار الإدانة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%83%D9%8A%D9%84-%D8%AF%D9%88%D9%86%D8%A7%D8%B1%D9%88%D9%85%D8%A7-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A7%D9%94%D8%A8%D9%84%D8%BA-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D8%AF%D8%A7%D9%86%D8%A9/blt4c9dbf0475950a5f)
+- **قضية مانشستر سيتي.. عقوبة ثانية محتملة وغوارديولا يواصل الدعم**: [Link](https://www.aljazeera.net/sport/2026/10/8/%D9%82%D8%B6%D9%8A%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%85%D8%AD%D8%AA%D9%85%D9%84%D8%A9)
+- **مدافع مانشستر سيتي: عقوبة التجريد من البطولات ليست عادلة**: [Link](https://www.alarabiya.net/sport/2026/10/08/%D9%85%D8%AF%D8%A7%D9%81%D8%B9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D8%AA%D8%AC%D8%B1%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA-%D9%84%D9%8A%D8%B3%D8%AA-%D8%B9%D8%A7%D8%AF%D9%84%D8%A9)
+
+
+### as far (N/A, Thu, 8 Oct 2026 12:00:00 -0700)
+
+- **AS FAR Beat Widad Temara 1-0 in First Botola Match of Season**: [Link](https://www.moroccoworldnews.com/2026/10/341310/as-far-beat-widad-temara-1-0-in-first-botola-match-of-season/)
+- **FAR Rabat - Widad Temara**: [Link](https://www.flashscore.co.za/match/soccer/far-rabat-CMn7Clai/widad-temara-hbO5F4bD/standings/?mid=ze1juqdR)
+- **Royal Army announces ticket prices for match against…**: [Link](https://www.ysscores.com/en/news/14063576/as-far-rabat-announces-ticket-prices-for-match-against-wydad-t%C3%A9mara)
+
+
 ### عادل إمام (N/A, Thu, 8 Oct 2026 09:20:00 -0700)
 
 - **حقيقة الظهور الخاطف لعادل إمام في شوارع القاهرة**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/08/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%AE%D8%A7%D8%B7%D9%81-%D9%84%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%85%D8%A7%D9%85-%D9%81%D9%8A-%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9)
