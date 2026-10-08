@@ -1,3 +1,36 @@
+### meteo (N/A, Wed, 7 Oct 2026 19:30:00 -0700)
+
+
+
+
+### حالة الطقس (N/A, Wed, 7 Oct 2026 19:30:00 -0700)
+
+- **الأرصاد: طقس خريفي مستقر واستمرار درجات الحرارة حول معدلاتها الطبيعية غدًا ا**: [Link](https://twaslnews1.twaslnews.com/5703320/)
+- **الأرصاد: نشاط لـ الرياح المثيرة للرمال والأتربة اليوم على هذه المناطق**: [Link](https://www.mobtada.com/egypt/1657243/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D9%86%D8%B4%D8%A7%D8%B7-%D9%84%D9%80-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%AD-%D8%A7%D9%84%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%B1%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A3%D8%AA%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B9%D9%84%D9%89-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82)
+- **حالة الطقس غدًا في مصر والسعودية والإمارات**: [Link](https://roayahnews.com/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%BA%D8%AF%D9%8B%D8%A7-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A5-17/)
+
+
+### طقس اليوم (N/A, Wed, 7 Oct 2026 19:30:00 -0700)
+
+- **أمطار قوية وتساقط البرد في 17 إقليما**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%81%D9%8A-17-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D8%A7-1819121.html)
+- **زخات رعدية ورياح اليوم الأربعاء بعدد من المناطق (نشرة إنذارية)**: [Link](https://assabah.ma/954260.html)
+- **أجواء حارة مع سحب منخفضة متوقعة اليوم الأحد**: [Link](https://ar.telquel.ma/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1/)
+
+
+### botafogo – vasco da gama (N/A, Wed, 7 Oct 2026 16:30:00 -0700)
+
+- **Veja a jogada do gol do Vasco no 1º tempo por outro ângulo**: [Link](https://www.netvasco.com.br/n/393906/veja-a-jogada-do-gol-do-vasco-no-1-tempo-por-outro-angulo)
+- **Titular do Botafogo sofre acidente e desfalca time**: [Link](https://www.terra.com.br/esportes/botafogo/titular-do-botafogo-sofre-acidente-e-desfalca-time,724cbf27f723be00f50a649ea405f75dni9a9cjh.html)
+- **Licensable picture: Brasileiro Championship - Botafogo v Vasco da Gama**: [Link](https://www.reutersconnect.com/item/brasileiro-championship-botafogo-v-vasco-da-gama/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQTgwMkFCWFE)
+
+
+### مسلسل تحت الأرض الموسم الثاني (N/A, Wed, 7 Oct 2026 16:00:00 -0700)
+
+- **مسلسلات تركية… موعد عرض الموسم الـ2 من مسلسل "تحت الأرض"**: [Link](https://arabic.cnn.com/entertainment/article/2026/09/29/premiere-date-for-season-2-of-the-turkish-series-yeralti)
+- **مسلسل «تحت الأرض» الموسم الثاني: القصة والأبطال وموعد العرض**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D8%B3%D9%8A%D9%86%D9%85%D8%A7-%D9%88%D8%AA%D9%84%D9%81%D8%B2%D9%8A%D9%88%D9%86/1840428-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%C2%AB%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6%C2%BB-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D9%82%D8%B5%D8%A9-%D9%88%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%88%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%B9%D8%B1%D8%B6)
+- **مسلسل تحت الأرض الحلقة 17 الموسم الثاني .. عودة الماضي**: [Link](https://etbilarabi.com/%D8%AA%D9%84%D9%8A%D9%81%D8%B2%D9%8A%D9%88%D9%86/%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%A7%D9%84%D8%AD%D9%84%D9%82%D8%A9-17-%D8%A7%D9%84%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B6%D9%8A)
+
+
 ### مصرف (N/A, Wed, 7 Oct 2026 16:00:00 -0700)
 
 - **مطلوبات المصارف من القطاع العام بالمملكة ترتفع إلى 953 مليار ريال بنهاية أغسطس**: [Link](https://twaslnews1.twaslnews.com/5692414/)
