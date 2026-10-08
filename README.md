@@ -1,3 +1,59 @@
+### محمد وهبي (N/A, Thu, 8 Oct 2026 00:50:00 -0700)
+
+- **إيغامان يقترب من العودة لتداريب ليل**: [Link](https://www.hespress.com/%D8%A5%D9%8A%D8%BA%D8%A7%D9%85%D8%A7%D9%86-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D9%84%D8%AA%D8%AF%D8%A7%D8%B1%D9%8A%D8%A8-%D9%84%D9%8A%D9%84-1819546.html)
+- **حمزة إيغامان على بعد خطوة من المستطيل الأخضر**: [Link](https://radiomars.ma/%D8%AD%D9%85%D8%B2%D8%A9-%D8%A5%D9%8A%D8%BA%D8%A7%D9%85%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B7%D9%88%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%B7%D9%8A%D9%84-%D8%A7/)
+- **هداف بارز أمام إمكانية تعزيز هجوم المنتخب المغربي لأول مرة مع محمد وهبي**: [Link](https://ar.lesiteinfo.com/sport/%D9%87%D8%AF%D8%A7%D9%81-%D8%A8%D8%A7%D8%B1%D8%B2-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D9%85%D9%83%D8%A7%D9%86%D9%8A%D8%A9-%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D9%85%D9%86-1024965.html)
+
+
+### منتخب مالي لكرة القدم (N/A, Thu, 8 Oct 2026 00:50:00 -0700)
+
+- **مركز جديد للمنتخب المغربي في تصنيف الفيفا بعد مباراة مالي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B1%D9%83%D8%B2-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%84%D9%8A/bltbf3d2bf3e725015a)
+- **المنتخب الوطني يتعادل مع مالي**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D9%85%D8%A7%D9%84%D9%8A-1)
+- **الأسود يثيرون الشكوك**: [Link](https://assabah.ma/953657.html)
+
+
+### feu (N/A, Thu, 8 Oct 2026 00:40:00 -0700)
+
+- **Une boule de feu traverse le ciel marocain à 256 000 km/h**: [Link](https://www.bladi.net/boule-feu-traverse-ciel-marocain-km,124224.html)
+- **"À fleurs d’éléments" : le feu et l’eau se rencontrent sur les toiles Saint-Cyprien.**: [Link](https://www.lindependant.fr/2026/10/08/a-fleurs-delements-le-feu-et-leau-se-rencontrent-sur-les-toiles-saint-cyprien-13589764.php)
+- **Incendie dans un restaurant à Porquerolles : le point sur l'intervention**: [Link](https://presseagence.fr/porquerolles-incendie-un-feu-de-sous-sol-dans-un-restaurant-rapidement-maitrise/)
+
+
+### weather (N/A, Wed, 7 Oct 2026 23:50:00 -0700)
+
+- **WEATHER: Met Éireann issue important rain warning for Mayo**: [Link](https://www.mayonews.ie/news/weather/weather-met-eireann-issue-important-rain-warning-for-mayo-9274221)
+- **Have you stuck the heating on yet this month?**: [Link](https://www.thejournal.ie/heating-temperatures-poll-7183767-Oct2026/)
+- **Met Eireann forecast as 'interesting' weather event 'making comeback' for Ireland**: [Link](https://www.connachttribune.ie/news/weather/met-eireann-forecast-weather-event-9273858)
+
+
+### سبتة (N/A, Wed, 7 Oct 2026 23:30:00 -0700)
+
+- **من يحكم إسبانيا بعد انتخابات 29 نونبر؟**: [Link](https://www.hespress.com/%D9%85%D9%86-%D9%8A%D8%AD%D9%83%D9%85-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-29-%D9%86%D9%88%D9%86%D8%A8%D8%B1%D8%9F-1819438.html)
+- **إسبانيا تنعى "ماريكارمن" شرارة الاحتجاجات وتنتفض على الجشع العقاري**: [Link](https://www.aljazeera.net/news/2026/10/8/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-8)
+- **رئيس معهد دراسات سبتة يحذر من "خطوات مغربية أكبر" ويقر: التصعيد العسكري سيكون نهاية المدينة**: [Link](https://ar.telquel.ma/%D8%B2%D8%B9%D9%8A%D9%85-%D8%A7%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%A8%D8%AF%D8%A3-%D8%AD%D9%85%D9%84%D8%AA%D9%87/)
+
+
+### الطقس (N/A, Wed, 7 Oct 2026 23:20:00 -0700)
+
+- **توقعات طقس اليوم الخميس بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-97-1819293.html)
+- **نشرة إنذارية.. زخات رعدية قوية وتساقطات ثلجية من الخميس إلى الأحد**: [Link](https://ar.telquel.ma/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%B5%D8%AD%D9%88%D8%A8%D8%A9-%D8%A8%D8%AA-6/)
+- **"مديرية الأرصاد" تحذر المغاربة من العواصف الرعدية**: [Link](https://ar.lesiteinfo.com/maroc/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D9%88-2-1024851.html)
+
+
+### météo (N/A, Wed, 7 Oct 2026 23:00:00 -0700)
+
+- **Météo : à partir de demain, baisse sensible des températures**: [Link](https://www.lapresse.tn/2026/10/08/meteo-a-partir-de-demain-baisse-sensible-des-temperatures/)
+- **Météo | Un temps orageux et pluvieux attendu cette nuit**: [Link](https://kapitalis.com/tunisie/2026/10/07/meteo-un-temps-orageux-et-pluvieux-attendu-cette-nuit/)
+- **Météo: Pluies sur le Centre et le Nord-est**: [Link](https://www.mosaiquefm.net/fr/national-tunisie/1532730/meteo-pluies-sur-le-centre-et-le-nord-est)
+
+
+### sahara occidental (N/A, Wed, 7 Oct 2026 22:20:00 -0700)
+
+- **Les premières conclusions de la fuite du rapport de l'ONU sur le Sahara occidental**: [Link](https://www.rfi.fr/fr/afrique/20261007-les-premi%C3%A8res-conclusions-de-la-fuite-du-rapport-de-l-onu-sur-le-sahara-occidental)
+- **Sahara : le Conseil de sécurité se penche sur l’avenir de la MINURSO**: [Link](https://medias24.com/2026/10/07/sahara-le-conseil-de-securite-se-penche-sur-lavenir-de-la-minurso-1773977/)
+- **Sahara marocain : la centralité du plan d’autonomie confortée au sein de la 4e Commission de l'ONU**: [Link](https://lematin.ma/nation/sahara-marocain-la-centralite-du-plan-dautonomie-confortee-a-lonu/369141)
+
+
 ### meteo (N/A, Wed, 7 Oct 2026 19:30:00 -0700)
 
 
