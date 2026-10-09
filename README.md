@@ -1,3 +1,73 @@
+### حزب التقدم والاشتراكية (N/A, Fri, 9 Oct 2026 12:30:00 -0700)
+
+- **التقدم والاشتراكية يكمل فريقه البرلماني**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%85-%D9%88%D8%A7%D9%84%D8%A7%D8%B4%D8%AA%D8%B1%D8%A7%D9%83%D9%8A%D8%A9-%D9%8A%D9%83%D9%85%D9%84-%D9%81%D8%B1%D9%8A%D9%82%D9%87-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85-1820307.html)
+- **التقدم والاشتراكية يعود إلى تركيبة فريقه النيابي السابقة بـ22 نائبا – اليوم 24**: [Link](https://alyaoum24.com/2049391.html)
+- **انهيار المجموعة النيابية للأحزاب الأربعة بعد أيام قليلة من الإعلان عنها**: [Link](https://www.achkayen.com/703467/.html)
+
+
+### barca (N/A, Fri, 9 Oct 2026 12:30:00 -0700)
+
+- **Barcelona's Flick confirms Raphinha out until Oct. 20 vs. PSG**: [Link](https://www.espn.com/soccer/story/_/id/50139412/barcelona-hansi-flick-confirms-raphinha-oct-20-psg-champions-league)
+- **Hansi Flick: 'Raphinha not available for Getafe'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4589429/hansi-flick-raphinha-not-available-for-getafe)
+- **Raphinha injury blow for Barcelona ahead of La Liga’s resumption**: [Link](https://sports.yahoo.com/articles/raphinha-injury-blow-barcelona-ahead-121909383.html)
+
+
+### west ham – qpr (N/A, Fri, 9 Oct 2026 12:20:00 -0700)
+
+- **West Ham United v Queens Park Rangers | Nuno’s lineup as Soucek returns**: [Link](https://www.claretandhugh.info/west-ham-united-v-queens-park-rangers-nunos-lineup-as-soucek-returns/)
+- **West Ham vs. QPR Lineups, Live Streaming, How and Where To Watch EFL Championship on TV**: [Link](https://www.yardbarker.com/soccer/articles/west_ham_vs_qpr_lineups_live_streaming_how_and_where_to_watch_efl_championship_on_tv/s1_17615_44408807)
+- **West Ham vs QPR match lineup | EFL Championship · 9 Oct 2026**: [Link](https://www.ysscores.com/en/lineup/5836861/West-Ham-United-vs-Queens-Park-Rangers)
+
+
+### ياسين بونو (N/A, Fri, 9 Oct 2026 12:10:00 -0700)
+
+- **أفضل انطلاقة في مسيرة جورج تهدد الهلال**: [Link](https://www.alarabiya.net/sport/2026/10/09/%D8%A7%D9%81%D8%B6%D9%84-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%AC%D9%88%D8%B1%D8%AC-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-)
+- **إنزاجي يمتدح دونيس وسط أنباء الإقالة.. ويضع الدوسري بين خيارين بالكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%8A%D9%85%D8%AA%D8%AF%D8%AD-%D8%AF%D9%88%D9%86%D9%8A%D8%B3-%D9%88%D8%B3%D8%B7-%D8%A7%D9%94%D9%86%D8%A8%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D9%95%D9%82%D8%A7%D9%84%D8%A9--%D9%88%D9%8A%D8%B6%D8%B9-%D8%A7%D9%84%D8%AF%D9%88%D8%B3%D8%B1%D9%8A-%D8%A8%D9%8A%D9%86-%D8%AE%D9%8A%D8%A7%D8%B1%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blted66b53257b4cc04)
+- **النصيري وبونو وجها لوجه في قمة الاتحاد والهلال**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%88%D8%A8%D9%88%D9%86%D9%88-%D9%88%D8%AC%D9%87%D8%A7-%D9%84%D9%88%D8%AC%D9%87-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/26333)
+
+
+### turf fr (N/A, Fri, 9 Oct 2026 12:10:00 -0700)
+
+- **Trio of impaired charges in QW**: [Link](https://www.inquinte.ca/2026/10/trio-of-impaired-charges-in-qw/)
+- **Impaired driving charge laid after Quinte West OPP stop side-by-side at campground**: [Link](https://quinteist.com/impaired-driving-charge-laid-after-quinte-west-opp-stop-side-by-side-at-campground/)
+- **Quinte West man charged with impaired driving in Belleville**: [Link](https://www.inquinte.ca/2026/10/quinte-west-man-charged-with-impaired-driving-in-belleville-2/)
+
+
+### نادي بوتافوغو (N/A, Fri, 9 Oct 2026 11:50:00 -0700)
+
+- **داكشي اللي ما داروهش الوداد دارتو بوتافوگو فشهر: خرجو فيلم على زياش باش يروجو علامتهم التجارية**: [Link](https://www.goud.ma/%D8%AF%D8%A7%D9%83%D8%B4%D9%8A-%D8%A7%D9%84%D9%84%D9%8A-%D9%85%D8%A7-%D8%AF%D8%A7%D8%B1%D9%88%D9%87%D8%B4-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%AF%D8%A7%D8%B1%D8%AA%D9%88-%D8%A8%D9%88%D8%AA%D8%A7-1046254/)
+- **زياش يفتح لبوتافوغو أبواب إفريقيا والعالم العربي.. أكثر من 300 ألف متابع جديد**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%8A%D8%A7%D8%B4-%D9%8A%D9%81%D8%AA%D8%AD-%D9%84%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%BA%D9%88-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/26258)
+- **بوتافوغو البرزيلي يستثمر ماليا في شعبية حكيم زياش**: [Link](https://ar.sport.le360.ma/football/KTTIREFKFJH7VFNVBGUETD6NZQ/)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Fri, 9 Oct 2026 11:40:00 -0700)
+
+- **قرار طال انتظاره.. الكاف يتخذ خطوة تاريخية في بطولات إفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B7%D8%A7%D9%84-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1%D9%87--%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D8%AA%D8%AE%D8%B0-%D8%AE%D8%B7%D9%88%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blta4859fbc02f30b45)
+- **الـ"كاف" يقرر الاستعانة بالـVAR انطلاقاً من دور المجموعات في مسابقتي دوري أبطال إفريقيا وكأس الاتحاد الإفريقي**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D9%80-%D9%83%D8%A7%D9%81-%D9%8A%D9%82%D8%B1%D8%B1-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D9%86%D8%A9-%D8%A8%D8%A7%D9%84%D9%80var-%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82%D8%A7-%D9%85%D9%86-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%81%D9%8A-%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%AA%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-2026-10-09)
+- **"الكاف" يعتمد تقنية الفار في دور المجموعات بدوري الأبطال والكونفدرالية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D8%B9%D8%AA%D9%85%D8%AF-%D8%AA%D9%82%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D8%A7%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9/26330)
+
+
+### la liga (N/A, Fri, 9 Oct 2026 11:40:00 -0700)
+
+- **Hansi Flick closing in on historic Barcelona record with Getafe win in sight**: [Link](https://barcauniversal.com/hansi-flick-closing-in-on-historic-barcelona-record-with-getafe-win-in-sight/)
+- **Bordalás: "¿Carvajal? Solo pienso que nos enfrentamos a uno de los mejores equipos del mundo"**: [Link](https://onefootball.com/en/video/bordalas-carvajal-solo-pienso-que-nos-enfrentamos-a-uno-de-los-mejores-equipos-del-mundo-43583756)
+- **Getafe star fires warning to Barcelona**: [Link](https://getfootballnewsspain.com/getafe-star-fires-warning-to-barcelona/)
+
+
+### liga (N/A, Fri, 9 Oct 2026 11:40:00 -0700)
+
+- **Mourinho: “We are up against a tough opponent and need to secure the points”**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/mourinho-09-10-2026)
+- **Scouting Villarreal: Real Madrid’s first rival after the international break**: [Link](https://www.managingmadrid.com/real-madrid-cf-la-liga/113804/scouting-villarreal-real-madrids-first-rival-after-the-international-break)
+- **Licensable video: Entrenamiento del Atlético de Madrid previo a su partido contra El Alavés**: [Link](https://www.reutersconnect.com/item/entrenamiento-del-atletico-de-madrid-previo-a-su-partido-contra-el-alaves/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzcwMDE2MjA0NTMwMDE)
+
+
+### málaga – espanyol (N/A, Fri, 9 Oct 2026 11:30:00 -0700)
+
+- **Málaga - Espanyol en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/malaga-espanyol/2026/10/09/01_0101_20261009_182_177-directo.html)
+- **【LIVESTREAMS】FREE]Malaga vs Espanyol Live Free Spanish La Liga October 09, 2026**: [Link](https://um.mos.ru/uploads/virtual_tours/lefortovo/Lefortovo/Lefortovo.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vcGl4aXJlZWwuY29tL2Juci95LnhtbCIvPjwva3JwYW5vPg==&id=video-malaga-vs-espanyol-live-en-us-tv13)
+- **Búscate en las gradas de La Rosaleda en el Málaga CF-Espanyol**: [Link](https://www.malagahoy.es/malaga_cf/buscate-gradas-rosaleda-malaga-cf_3_2008196075.html)
+
+
 ### jorge vilda (N/A, Fri, 9 Oct 2026 07:00:00 -0700)
 
 - **Leonas del Atlas: Eric Blahic sucede a Jorge Vilda**: [Link](https://es.le360.ma/deportes/leonas-del-atlas-eric-blahic-sucede-a-jorge-vilda_J5NMRWASBZHHDK6SXOJJ7HMOKQ/)
