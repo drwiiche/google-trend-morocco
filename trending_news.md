@@ -1,3 +1,59 @@
+### anne carson (N/A, Thu, 8 Oct 2026 16:20:00 -0700)
+
+- **Princeton Celebrates Anne Carson, a Nobel Prize Winner Who Was Denied Tenure**: [Link](https://www.nytimes.com/2026/10/08/books/anne-carson-nobel-prize-princeton-university-tenure-denied.html)
+- **Anne Carson, the genre-bending Canadian writer, wins Nobel Prize in literature**: [Link](https://www.cnn.com/2026/10/08/style/nobel-prize-literature-anne-carson-winner-2026-intl)
+- **Anne Carson’s Seductive Strangeness**: [Link](https://www.theatlantic.com/books/2026/10/anne-carson-nobel-prize-literature-autobiography-of-red/688938/)
+
+
+### الصحراء الغربية (N/A, Thu, 8 Oct 2026 15:50:00 -0700)
+
+- **وزير الخارجية الجزائري: قضية الصحراء الغربية قضية تصفية استعمار ولا يمكن بناء استقرار في المنطقة دون إنصاف شعبها**: [Link](https://spsrasd.info/ar/2026/10/08/18130.html)
+- **عطاف :موقف الجزائر من القضية الفلسطينية واضح كالشمس في رابعة النهار**: [Link](https://elraed.dz/162146-%D8%B9%D8%B7%D8%A7%D9%81--%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A9-%D9%88%D8%A7%D8%B6%D8%AD-%D9%83%D8%A7%D9%84%D8%B4%D9%85%D8%B3-%D9%81%D9%8A-%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%B1)
+- **الجزائر تواصل دعم قدرات دول الساحل في مجال الطاقة**: [Link](https://arabe.capdz.dz/archives/143596)
+
+
+### tas maroc sénégal can 2025 (N/A, Thu, 8 Oct 2026 15:30:00 -0700)
+
+- **Maroc vs Sénégal : affaire mise en délibéré au TAS, date de la sentence incertaine**: [Link](https://medias24.com/2026/10/08/maroc-vs-senegal-affaire-mise-en-delibere-au-tas-date-de-la-sentence-incertaine-1774989/)
+- **DIRECT. Finale de la CAN 2025: audience terminée pour le Maroc et le Sénégal devant le TAS, toutes les infos en live**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/direct-finale-de-la-can-2025-le-maroc-et-le-senegal-devant-le-tas-pour-determiner-le-vainqueur-toutes-les-infos-en-live_LN-202610080326.html)
+- **Le Maroc est tendu à l’approche du verdict de la CAN, des joueurs de Manchester City préparent leur départ**: [Link](https://www.footmercato.net/a2757978171105479947-le-maroc-est-tendu-a-lapproche-du-verdict-de-la-can-des-joueurs-de-manchester-city-preparent-leur-depart)
+
+
+### إل نينيو (N/A, Thu, 8 Oct 2026 15:20:00 -0700)
+
+- **المنظمة العالمية للأرصاد الجوية: ظاهرة النينيو ستزداد قوة وتستمر..**: [Link](https://www.mosaiquefm.net/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/1532832/%D8%A7%D9%84%D9%85%D9%86%D8%B8%D9%85%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%84%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D9%86%D9%8A%D9%88-%D8%B3%D8%AA%D8%B2%D8%AF%D8%A7%D8%AF-%D9%82%D9%88%D8%A9-%D9%88%D8%AA%D8%B3%D8%AA%D9%85%D8%B1)
+- **ظاهرة مناخية تضع العالم في حالة ترقب**: [Link](https://www.hespress.com/%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D9%85%D9%86%D8%A7%D8%AE%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D8%AA%D8%B1%D9%82%D8%A8-1819581.html)
+- **أزيد من 347 مليون طفل في 100 دولة يواجهون مخاطر الجفاف والفيضانات – اليوم 24**: [Link](https://alyaoum24.com/2048877.html)
+
+
+### messi argentine (N/A, Thu, 8 Oct 2026 15:00:00 -0700)
+
+- **Cristiano Ronaldo pays tribute to Lionel Messi after Argentina farewell**: [Link](https://www.aljazeera.com/sports/2026/10/8/cristiano-ronaldo-pays-tribute-to-lionel-messi-after-argentina-farewell)
+- **Argentina friendlies no fairy tale for African players**: [Link](https://www.socceramerica.com/argentina-friendlies-no-fairy-tale-for-african-players/)
+- **Benin manager Gernot Rohr fumes as Lionel Messi and Argentina stars refuse to swap shirts or take photos after legend's farewell**: [Link](https://www.goal.com/en/lists/gernot-rohr-lionel-messi-final-argentina-game-benin-shirt-swaps/blt891ae3a061d57ebc)
+
+
+### raja casablanca (N/A, Thu, 8 Oct 2026 14:50:00 -0700)
+
+- **Botola : Nul blanc entre le Maghreb Fès et le Raja Casablanca**: [Link](https://fr.hespress.com/491594-botola-nul-blanc-entre-le-maghreb-fes-et-le-raja-casablanca.html)
+- **Botola Pro D1 Inwi : le MAS et le Raja se neutralisent à Meknès (0-0)**: [Link](https://radiomars.ma/fr/?p=6692)
+- **Pronostic Maghrib de Fès - Raja Casablanca & meilleures cotes | 08.10.2026**: [Link](https://www.futbol24.com/fr/pronostic-foot/prevision/08-10-2026-maghrib-de-fes-raja-casablanca-pronostic/)
+
+
+### raja (N/A, Thu, 8 Oct 2026 14:40:00 -0700)
+
+- **Raja Venkatraman recommends three stocks for 8 October**: [Link](https://www.tradingview.com/news/moodys:8132429c64012:0-raja-venkatraman-recommends-three-stocks-for-8-october/)
+- **Raja Venkatraman recommends two stocks for 9 October**: [Link](https://www.livemint.com/market/stock-market-news/raja-venkatraman-recommends-two-stocks-for-9-october-11791505759804.html)
+- **Raja Venkatraman recommends three stocks for 7 October**: [Link](https://www.tradingview.com/news/moodys:d753a95aa53dc:0-raja-venkatraman-recommends-three-stocks-for-7-october/)
+
+
+### rca (N/A, Thu, 8 Oct 2026 14:30:00 -0700)
+
+- **Cu cât v-a crescut salariul sau pensia în 5 ani? Asigurarea RCA s-a scumpit și de 4 ori în București și Ilfov**: [Link](https://newsweek.ro/auto/salariul-sau-pensii-a-crescut-asigurarea-rca-s-a-scumpit-si-de-4-ori-in-bucuresti-si-ilfov)
+- **Vești proaste pentru șoferi! Datele oficiale care arată că vor plăti tot mai mult pe…**: [Link](https://www.economica.net/vesti-proaste-pentru-soferi-datele-oficiale-care-arata-ca-vor-plati-tot-mai-mult-pe-rca-pretul-a-crescut-deja-cu-15-tras-inainte-de-inflatie-top-preturi-mici_983675.html)
+- **TOP Brokeri de asigurari in S1 2026. Piata a crescut la peste 9,7 miliarde de lei**: [Link](https://www.1asig.ro/TOP-Brokeri-de-asigurari-in-S1-2026-Piata-a-crescut-la-peste-9-7-miliarde-de-lei-articol-100-75240.htm)
+
+
 ### wydad athletic club (N/A, Thu, 8 Oct 2026 14:10:00 -0700)
 
 - **Botola : l’AS FAR démarre par une victoire contre le Wydad Témara**: [Link](https://radiomars.ma/fr/?p=6686)
