@@ -1,3 +1,38 @@
+### roi du maroc (N/A, Fri, 9 Oct 2026 16:10:00 -0700)
+
+- **Le Roi devant le Parlement post-élections du 23 septembre : le discours intégral**: [Link](https://medias24.com/2026/10/09/le-roi-devant-le-parlement-post-elections-du-23-septembre-le-discours-integral-1775759/)
+- **Immigration : Mohammed VI annonce une nouvelle approche de coopération et refuse tout “chantage”**: [Link](https://mobile.telquel.ma/2026/10/09/immigration-mohammed-vi-annonce-une-nouvelle-approche-de-cooperation-et-refuse-tout-chantage_2012355)
+- **Mohammed VI acte les « limites » du modèle de coopération avec l’Espagne et annonce une nouvelle doctrine**: [Link](https://ledesk.ma/encontinu/mohammed-vi-acte-les-limites-du-modele-de-cooperation-avec-lespagne-et-annonce-une-nouvelle-doctrine/)
+
+
+### الجامعة الملكية المغربية لكرة القدم (N/A, Fri, 9 Oct 2026 16:00:00 -0700)
+
+- **المنتخب الوطني النسوي يجري مباراته الاولى امام أوزبكستان بالملعب الاولمبي**: [Link](https://frmf.ma/articles/equipe-nationale-feminine-a-les-lionnes-de-latlas-affrontent-louzbekistan-au-stade-olympique)
+- **بعد 3 سنوات من استقدامه.. إقالة المدرب الإسباني لمنتخب سيدات المغرب**: [Link](https://www.aljazeera.net/sport/2026/10/8/%D8%A8%D8%B9%D8%AF-%D8%AB%D9%84%D8%A7%D8%AB-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D8%B3%D8%AA%D9%82%D8%AF%D8%A7%D9%85%D9%87-%D8%A5%D9%82%D8%A7%D9%84%D8%A9)
+- **سفيان لمسرار: كررنا نفس الأخطاء أمام منتخب البرتغال الذي لا يرُد الهدايا**: [Link](https://ar.telquel.ma/%D8%AE%D9%84%D9%81-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D9%85%D8%BA%D9%84%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%86%D8%B3%D9%88%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A3/)
+
+
+### المغرب التطواني ضد الفتح الرباطي (N/A, Fri, 9 Oct 2026 14:10:00 -0700)
+
+- **التعادل ينصف تطوان والفتح الرياضي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%8A%D9%86%D8%B5%D9%81-%D8%AA%D8%B7%D9%88%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-1820569.html)
+- **البطولة: المغرب التطواني يتعادل سلبا مع الفتح الرياضي – اليوم 24**: [Link](https://alyaoum24.com/2049470.html)
+- **مجموعة مناصري الفتح توجه رسالة "شديدة اللهجة" للرئيس بنوحود**: [Link](https://sport.lesiteinfo.com/elbotola/504514.html)
+
+
+### كريستيانو رونالدو (N/A, Fri, 9 Oct 2026 12:40:00 -0700)
+
+- **في ليلة رد الاعتبار.. رونالدو يقود النصر لفوز عريض على الدرعية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%B1%D8%AF-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%A8%D8%A7%D8%B1--%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D8%B1%D9%8A%D8%B6-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D8%B1%D8%B9%D9%8A%D8%A9/blt416130e661f49d61)
+- **تيفو الوفاء يحتضن هدف رونالدو الـ980 في الدوري السعودي**: [Link](https://www.alaraby.co.uk/sport/%D8%AA%D9%8A%D9%81%D9%88-%D8%A7%D9%84%D9%88%D9%81%D8%A7%D8%A1-%D9%8A%D8%AD%D8%AA%D8%B6%D9%86-%D9%87%D8%AF%D9%81-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A7%D9%84%D9%80980-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A)
+- **شاهد.. رونالدو يقود النصر إلى صدارة الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/9/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%AF%D8%B1%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9)
+
+
+### carrasco (N/A, Fri, 9 Oct 2026 12:40:00 -0700)
+
+- **Ya hay fecha para el acto de conciliación por la macrodemanda de Antonio David contra Rocío Carrasco, Mediaset, Carlota Corredera y muchos más**: [Link](https://www.abc.es/gente/fecha-juicio-macrodemanda-antonio-david-rocio-carrasco-20261007134149-nt.html)
+- **Antonio David Flores anuncia la fecha de su macrojuicio contra Rocío Carrasco y 'amigos'**: [Link](https://www.elnortedecastilla.es/gente-estilo/antonio-david-flores-anuncia-fecha-macrojuicio-rocio-20261009193738-nt.html)
+- **Reencuentro de ‘Sálvame’ en los tribunales: la fecha para resolver la demanda millonaria de Antonio David Flores a Rocío Carrasco, Mediaset o María Patiño**: [Link](https://www.infobae.com/espana/2026/10/07/reencuentro-de-salvame-en-los-tribunales-la-fecha-para-resolver-la-demanda-millonaria-de-antonio-david-flores-a-rocio-carrasco-mediaset-o-maria-patino/)
+
+
 ### حزب التقدم والاشتراكية (N/A, Fri, 9 Oct 2026 12:30:00 -0700)
 
 - **التقدم والاشتراكية يكمل فريقه البرلماني**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%85-%D9%88%D8%A7%D9%84%D8%A7%D8%B4%D8%AA%D8%B1%D8%A7%D9%83%D9%8A%D8%A9-%D9%8A%D9%83%D9%85%D9%84-%D9%81%D8%B1%D9%8A%D9%82%D9%87-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85-1820307.html)
