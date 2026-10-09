@@ -1,3 +1,29 @@
+### حالة الطقس اليوم (N/A, Thu, 8 Oct 2026 23:50:00 -0700)
+
+- **هل تسقط أمطار الساعات المقبلة؟ حالة الطقس اليوم الجمعة 9 أكتوبر 2026 ودرجات الحرارة المتوقعة**: [Link](https://www.almasryalyoum.com/news/details/4378594)
+- **طقس اليوم الجمعة.. أمطار ورعد ورياح مثيرة للرمال والأتربة**: [Link](https://www.youlyou.com/69340)
+- **أحدث أخبار مصر والعالم**: [Link](https://ekhbary24.com/article/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%AD%D8%AA%D9%89-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-14-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1)
+
+
+### akhbarona (N/A, Thu, 8 Oct 2026 22:50:00 -0700)
+
+- **Shafaq News..Houthis down Saudi aircraft, target base and airport**: [Link](https://shafaq.com/en/World/Houthis-down-Saudi-aircraft-target-base-and-airport)
+
+
+### boeing 787 (N/A, Thu, 8 Oct 2026 18:50:00 -0700)
+
+- **EXCLUSIVE: Southwest Airlines weighs Boeing 787 for long-haul international push, sources say**: [Link](https://www.reuters.com/business/aerospace-defense/southwest-airlines-weighs-boeing-787-long-haul-international-push-sources-say-2026-10-08/)
+- **Southwest Airlines Plans to Keep its Fleet All-Boeing as it Weighs 787 Dreamliner Order for Long-Haul Expansion**: [Link](https://www.paddleyourownkanoo.com/2026/10/09/southwest-airlines-plans-to-keep-its-fleet-all-boeing-as-it-weighs-787-dreamliner-order-for-long-haul-expansion/)
+- **Southwest weighs Boeing 787 order for long haul flights**: [Link](https://www.insideflyer.com/posts/southwest-weighs-boeing-787-order-for-long-haul-flights/)
+
+
+### nba (N/A, Thu, 8 Oct 2026 18:50:00 -0700)
+
+- **LeBron James posts 10 and 5 in 76ers preseason vs Nets**: [Link](https://www.sofascore.com/news/lebron-james-puts-up-efficient-10-and-5-as-76ers-fall-to-nets)
+- **LeBron loses in Philadelphia debut in preseason game - against Wolf and Ben Saraf**: [Link](https://www.ynetnews.com/article/3n0xjmo47)
+- **LeBron James shines in Sixers’ preseason debut**: [Link](https://www.nba.com/news/lebron-james-sixers-preseason-debut)
+
+
 ### anne carson (N/A, Thu, 8 Oct 2026 16:20:00 -0700)
 
 - **Princeton Celebrates Anne Carson, a Nobel Prize Winner Who Was Denied Tenure**: [Link](https://www.nytimes.com/2026/10/08/books/anne-carson-nobel-prize-princeton-university-tenure-denied.html)
