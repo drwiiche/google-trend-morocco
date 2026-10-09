@@ -1,3 +1,73 @@
+### jorge vilda (N/A, Fri, 9 Oct 2026 07:00:00 -0700)
+
+- **Leonas del Atlas: Eric Blahic sucede a Jorge Vilda**: [Link](https://es.le360.ma/deportes/leonas-del-atlas-eric-blahic-sucede-a-jorge-vilda_J5NMRWASBZHHDK6SXOJJ7HMOKQ/)
+- **Jorge Vilda deja de ser seleccionador, pero Marruecos lo mantiene en su estructura**: [Link](https://www.marca.com/futbol/futbol-femenino/2026/10/08/jorge-vilda-deja-seleccionador-marruecos.html)
+- **Marruecos Femenino estrena nuevo entrenador ante Uzbekistán este viernes**: [Link](https://es.rue20.com/2026/10/08/marruecos-femenino-estrena-nuevo-entrenador-ante-uzbekistan-este-viernes/)
+
+
+### الجزائر (N/A, Fri, 9 Oct 2026 06:20:00 -0700)
+
+- **الجزائر تسلم 33 مغربيا عبر "زوج بغال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%B3%D9%84%D9%85-33-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%B2%D9%88%D8%AC-%D8%A8%D8%BA%D8%A7%D9%84-1819623.html)
+- **الحدود المغربية الجزائرية تفتتح بشكل استثنائي لتسليم 33 شخصا**: [Link](https://www.assahifa.com/%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%AA%D9%81%D8%AA%D8%AA%D8%AD-%D8%A8%D8%B4%D9%83%D9%84/)
+- **الجزائر رجعات 33 مغربي فيهم قاصر لبلادهم عبر المركز الحدودي «زوج بغال».. كانو مشدودين فقضايا عندها علاقة بالحريك**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B1%D8%AC%D8%B9%D8%A7%D8%AA-33-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%81%D9%8A%D9%87%D9%85-%D9%82%D8%A7%D8%B5%D8%B1-%D9%84%D8%A8%D9%84%D8%A7%D8%AF%D9%87%D9%85-1046060/)
+
+
+### ذهب (N/A, Fri, 9 Oct 2026 06:20:00 -0700)
+
+- **سعر الذهب اليوم في مصر الجمعة 9 أكتوبر 2026.. صعود ملحوظ**: [Link](https://twaslnews1.twaslnews.com/5772380/)
+- **أحدث أخبار مصر والعالم**: [Link](https://ekhbary24.com/article/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%88%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%AA-%D9%88%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-9-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1)
+- **ارتفاع أسعار جرامات الذهب عالمياً مع تداولات الجمعة**: [Link](https://akher.news/55958/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%AC%D8%B1%D8%A7%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A7%D9%8B-%D9%85%D8%B9-%D8%AA/)
+
+
+### نادي وداد تمارة (N/A, Fri, 9 Oct 2026 06:10:00 -0700)
+
+- **فوز للجيش واكتساح لحسنية أكادير**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%B2-%D9%84%D9%84%D8%AC%D9%8A%D8%B4-%D9%88%D8%A7%D9%83%D8%AA%D8%B3%D8%A7%D8%AD-%D9%84%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-1819911.html)
+- **الجيش الملكي يفوز على وداد تمارة**: [Link](https://assabah.ma/954880.html)
+- **عبد السلام بنجلون: قلة الخبرة كلفتنا المباراة أمام الجيش الملكي**: [Link](https://radiomars.ma/abdessalam-benjelloun-wydad-temara-far/)
+
+
+### موعد اذان المغرب (N/A, Fri, 9 Oct 2026 05:20:00 -0700)
+
+- **مواقيت الصلاة اليوم 9 أكتوبر 2026 في القاهرة.. مواعيد الأذان للصلوات الخمس**: [Link](https://twaslnews1.twaslnews.com/5769623/)
+- **موعد أذان المغرب اليوم الخميس "26 ربيع الآخر" في القاهرة والمحافظات**: [Link](https://www.vetogate.com/5742881)
+- **مواقيت الصلاة في أكتوبر 2026 بمصر.. هل تتغير مع التوقيت الشتوي؟**: [Link](https://roayahnews.com/%D9%85%D9%88%D8%A7%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D9%81%D9%8A-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026-%D8%A8%D9%85%D8%B5%D8%B1-%D9%87%D9%84-%D8%AA%D8%AA%D8%BA%D9%8A%D8%B1/)
+
+
+### usine (N/A, Fri, 9 Oct 2026 04:10:00 -0700)
+
+- **Hangyu Technology transfère à Tanger Tech son usine de forge prévue en Slovaquie**: [Link](https://ledesk.ma/2026/10/08/hangyu-technology-transfere-a-tanger-tech-son-usine-de-forge-prevue-en-slovaquie/)
+- **Un fabricant chinois de composants aérospatiaux transfère de Slovaquie au Maroc son usine de forge à 105 millions d’euros**: [Link](https://www.yabiladi.com/articles/details/204607/fabricant-chinois-composants-aerospatiaux-transfere.html)
+- **Aéronautique: Hangyu transfère de Slovaquie à Tanger un projet d’usine de forge de 105 millions d’euros**: [Link](https://lematin.ma/economie/hangyu-transfere-de-slovaquie-a-tanger-un-projet-dusine-de-forge/369397)
+
+
+### ثعبان (N/A, Fri, 9 Oct 2026 03:40:00 -0700)
+
+- **العثور على ثعبان نادر برأسين وأربع عيون**: [Link](https://www.aljazeera.net/misc/2026/10/9/%D8%A7%D9%84%D8%B9%D8%AB%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D8%AB%D8%B9%D8%A8%D8%A7%D9%86-%D9%86%D8%A7%D8%AF%D8%B1-%D8%A8%D8%B1%D8%A3%D8%B3%D9%8A%D9%86-%D9%88%D8%A3%D8%B1%D8%A8%D8%B9)
+- **ظاهرة بيولوجية نادرة: العثور على ثعبان برأسين في الهند**: [Link](https://sahafatak.net/show6092472.html)
+- **العثور على ثعبان نادر برأسين وأربع عيون**: [Link](https://www.alkhaleej.ae/2026-10-08/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%A7%D9%84%D8%B9%D8%AB%D9%88%D8%B1-%D8%B9%D9%84%D9%89-%D8%AB%D8%B9%D8%A8%D8%A7%D9%86-%D9%86%D8%A7%D8%AF%D8%B1-%D8%A8%D8%B1%D8%A3%D8%B3%D9%8A%D9%86-%D9%88%D8%A3%D8%B1%D8%A8%D8%B9-%D8%B9%D9%8A%D9%88%D9%86)
+
+
+### novak djokovic (N/A, Fri, 9 Oct 2026 03:30:00 -0700)
+
+- **Djokovic gives schedule update following Shanghai exit**: [Link](https://www.atptour.com/en/news/djokovic-shanghai-2026-reaction-friday)
+- **Follow the Shanghai Masters and Beijing Open LIVE**: [Link](https://www.flashscore.com/news/tennis-tracker-shanghai-masters-beijing-open-live-scores-updates-zverev-djokovic-shelton-cobolli-zheng-svitolina-mertens-swiatek/0WA0cUIP/)
+- **Hurkacz stuns Djokovic in ATP second round upset**: [Link](https://tvpworld.com/95842200/hubert-hurkacz-stuns-novak-djokovic-in-shanghai)
+
+
+### ماجد المصري (N/A, Fri, 9 Oct 2026 02:30:00 -0700)
+
+- **وفاة حفيد ماجد المصري وتشييع جنازته من مسجد حسن الشربتلي.. غدًا**: [Link](https://www.youm7.com/story/2026/10/8/%D9%88%D9%81%D8%A7%D8%A9-%D8%AD%D9%81%D9%8A%D8%AF-%D9%85%D8%A7%D8%AC%D8%AF-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%88%D8%AA%D8%B4%D9%8A%D9%8A%D8%B9-%D8%AC%D9%86%D8%A7%D8%B2%D8%AA%D9%87-%D9%85%D9%86-%D9%85%D8%B3%D8%AC%D8%AF-%D8%AD%D8%B3%D9%86-%D8%A7%D9%84%D8%B4%D8%B1%D8%A8%D8%AA%D9%84%D9%8A/7572674)
+- **الموت يفجع فنانا مصريا شهيرا**: [Link](https://www.alsumaria.tv/news/artculture/578289/%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%8A%D9%81%D8%AC%D8%B9-%D9%81%D9%86%D8%A7%D9%86%D8%A7-%D9%85%D8%B5%D8%B1%D9%8A%D8%A7-%D8%B4%D9%87%D9%8A%D8%B1%D8%A7)
+- **ماجد المصري ينعى حفيده... رحل بعد 5 أيام من ولادته**: [Link](https://www.annahar.com/lifestyle/arts/355460/%D9%85%D8%A7%D8%AC%D8%AF-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%86%D8%B9%D9%89-%D8%AD%D9%81%D9%8A%D8%AF%D9%87-%D8%B1%D8%AD%D9%84-%D8%A8%D8%B9%D8%AF-5-%D8%A3%D9%8A%D8%A7%D9%85-%D9%85%D9%86-%D9%88%D9%84%D8%A7%D8%AF%D8%AA%D9%87)
+
+
+### arabie saoudite (N/A, Fri, 9 Oct 2026 00:30:00 -0700)
+
+- **Explosions à Ryad, des élèves et diplomates appelés à se mettre à l'abri**: [Link](https://medias24.com/agence-presse/explosions-a-ryad-des-eleves-et-diplomates-appeles-a-se-mettre-a-labri/)
+- **Arabie saoudite : Une Marocaine tuée dans des attaques houthies**: [Link](https://www.yabiladi.com/articles/details/204459/arabie-saoudite-marocaine-tuee-dans.html)
+- **DIRECT - Yémen: le Pakistan dit avoir déployé ses forces armées pour défendre l'Arabie saoudite des attaques houthies**: [Link](https://www.rfi.fr/fr/moyen-orient/20261009-direct-y%C3%A9men-pourquoi-le-conflit-s-embrase-t-il-%C3%A0-nouveau)
+
+
 ### حالة الطقس اليوم (N/A, Thu, 8 Oct 2026 23:50:00 -0700)
 
 - **هل تسقط أمطار الساعات المقبلة؟ حالة الطقس اليوم الجمعة 9 أكتوبر 2026 ودرجات الحرارة المتوقعة**: [Link](https://www.almasryalyoum.com/news/details/4378594)
