@@ -1,3 +1,73 @@
+### bayern (N/A, Sat, 10 Oct 2026 07:50:00 -0700)
+
+- **Bundesliga: Ticker – Dicker Patzer, nach 8 Sekunden liegt Bayern in Augsburg schon zurück**: [Link](https://www.welt.de/sport/fussball/article6aca192561b3d4c01d3e21be/bundesliga-ticker-dicker-patzer-nach-8-sekunden-liegt-bayern-in-augsburg-schon-zurueck.html)
+- **Die größten 8,4-Sekunden-Rekorde nach Fellhauers Blitz-Tor**: [Link](https://www.bild.de/sport/fussball/die-groessten-8-4-sekunden-rekorde-nach-fellhauers-blitz-tor-6aca432b61b3d4c01d3e2486)
+- **Halbzeit: Augsburg führt gegen Bayern nach Fellhauers Blitzstart**: [Link](https://www.daz-augsburg.de/halbzeit-augsburg-fuehrt-gegen-bayern-nach-fellhauers-blitzstart/)
+
+
+### bet365 (N/A, Sat, 10 Oct 2026 07:30:00 -0700)
+
+- **bet365 bonus code: Bet $10, get $200 in bonus bets for Indiana vs. Nebraska**: [Link](https://nypost.com/2026/10/10/betting/bet365-bonus-code-bet-10-get-200-in-bonus-bets-for-indiana-vs-nebraska/)
+- **Bet365 Bonus Code: Get $365 Bonus for College Football, NFL Week 5**: [Link](https://wtop.com/news/2026/10/bet365-bonus-code-get-365-bonus-for-college-football-nfl-week-5/)
+- **bet365 Bonus Code: $200 Bonus for Dodgers vs. Braves, MLB Playoffs**: [Link](https://www.actionnetwork.com/news/bet365-bonus-code-200-bonus-for-dodgers-vs-braves-mlb-playoffs)
+
+
+### flashscore (N/A, Sat, 10 Oct 2026 07:30:00 -0700)
+
+- **AIB chief ‘disappointed’ with falling banking staff support for executives**: [Link](https://www.businesspost.ie/banking/aib-chief-disappointed-with-falling-banking-staff-support-for-executives/)
+- **Most impactful player of the match - India vs West Indies 2nd T20I 2026/27 - Cricket MVP**: [Link](https://www.cricinfo.com/series/west-indies-in-india-2026-27-1529215/india-vs-west-indies-2nd-t20i-1529231/match-impact-player)
+- **SpaceX in talks to raise $40bn to buy Nvidia chips**: [Link](https://www.businesspost.ie/tech/spacex-in-talks-to-raise-40bn-to-buy-nvidia-chips/)
+
+
+### ipswich town – fulham (N/A, Sat, 10 Oct 2026 07:30:00 -0700)
+
+- **Ipswich Town vs Fulham: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5j9knn18r08t)
+- **Ipswich vs Fulham LIVE! Premier League score updates, news, prediction and lineups**: [Link](https://www.skysports.com/football/live-blog/13592685/ipswich-vs-fulham-live-premier-league-score-updates-news-prediction-and-lineups)
+- **Cottage Tactico: High intensity Tractor Boys**: [Link](https://www.fulhamfc.com/news/2026/october/09/cottage-tactico-high-intensity-tractors-boys/)
+
+
+### bayern munich (N/A, Sat, 10 Oct 2026 07:20:00 -0700)
+
+- **Bundesliga predictions: All nine week five games (Oct 9th to 11th 2026)**: [Link](https://www.livescore.com/en/news/football/bundesliga/predictions/bundesliga-predictions-all-nine-week-five-games-oct-9th-to-11th-2026/)
+- **Bayern Munich won’t rotate vs. FC Augsburg per report**: [Link](https://www.bavarianfootballworks.com/bayern-munich-bundesliga/266153/bayern-munich-wont-rotate-vs-fc-augsburg-per-report)
+- **Kompany relishing derby test after Augsburg's 'flying start'**: [Link](https://www.beinsports.com/en-asia/football/bundesliga/articles/kompany-relishing-derby-test-after-augsburgs-flying-start-2026-10-09)
+
+
+### تشيلسي ضد بورنموث (N/A, Sat, 10 Oct 2026 07:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة تشيلسي وبورنموث في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt78fd8a0b5db203bf)
+- **اعتراف صريح من ألونسو.. مدرب ريال مدريد السابق يؤكد: أخطأت في هذا القرار!**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D9%84%D9%82%D8%AF-%D8%A7%D9%94%D8%AE%D8%B7%D8%A7%D9%94%D8%AA-%D9%81%D9%8A-%D8%B0%D9%84%D9%83-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81-%D8%A7%D9%94%D9%84%D9%88%D9%86%D8%B3%D9%88-%D8%A7%D9%84%D8%B5%D8%B1%D9%8A%D8%AD-%D8%A8%D9%8A%D9%86%D9%85%D8%A7-%D8%AA%D8%AA%D8%B9%D8%B1%D8%B6-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%84%D8%B6%D8%B1%D8%A8%D8%A9-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9/bltd030cf281d28394d)
+- **تشيلسي يستضيف بورنموث في البريميرليج**: [Link](https://akhbarelyom.com/news/newdetails/4889218/1/%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81-%D8%A8%D9%88%D8%B1%D9%86%D9%85%D9%88%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC)
+
+
+### ستافان دي ميستورا (N/A, Sat, 10 Oct 2026 07:00:00 -0700)
+
+- **مصدر أممي يكشف كواليس جلسة مغلقة بمجلس الأمن حول الصحراء**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%AF%D8%B1-%D8%A3%D9%85%D9%85%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%AC%D9%84%D8%B3%D8%A9-%D9%85%D8%BA%D9%84%D9%82%D8%A9-%D8%A8%D9%85%D8%AC%D9%84%D8%B3-1820188.html)
+- **بنما تجدد تأكيد دعمها لمبادرة الحكم الذاتي – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A8%D9%86%D9%85%D8%A7-%D8%AA%D8%AC%D8%AF%D8%AF-%D8%AA%D8%A3%D9%83%D9%8A%D8%AF-%D8%AF%D8%B9%D9%85%D9%87%D8%A7-%D9%84%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84/)
+- **الدرداري لـ"أخبارنا": السيادة غير قابلة للتفاوض.. وهذا مصير من يرفض القرار 2797**: [Link](https://www.akhbarona.com/politic/433851.html)
+
+
+### موساد (N/A, Sat, 10 Oct 2026 07:00:00 -0700)
+
+- **اختطاف أطفال وصداقات مع الموساد.. هكذا قادت المصادفة لاعتقال هانِنغ**: [Link](https://www.aljazeera.net/politics/2026/10/10/%D8%A7%D8%AE%D8%AA%D8%B7%D8%A7%D9%81-%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D9%88%D8%B5%D8%AF%D8%A7%D9%82%D8%A7%D8%AA-%D9%85%D8%B9-%D9%85%D8%AE%D8%A8%D8%B1%D9%8A%D9%86-%D9%81%D9%8A)
+- **من حارس أسرار إلى متهم بالخيانة .. سقوط رئيس المخابرات الألمانية السابق**: [Link](https://www.hespress.com/%D9%85%D9%86-%D8%AD%D8%A7%D8%B1%D8%B3-%D8%A3%D8%B3%D8%B1%D8%A7%D8%B1-%D8%A5%D9%84%D9%89-%D9%85%D8%AA%D9%87%D9%85-%D8%A8%D8%A7%D9%84%D8%AE%D9%8A%D8%A7%D9%86%D8%A9-%D8%B3%D9%82%D9%88%D8%B7-%D8%B1-1818945.html)
+- **"ألمانيا تواجه أزمة وجودية ومشكلة خطيرة في أجهزتها الاستخباراتية" - مقال في التلغراف**: [Link](https://www.bbc.com/arabic/articles/c6m24vly2e28o)
+
+
+### سعر (N/A, Sat, 10 Oct 2026 06:50:00 -0700)
+
+- **رسميا.. سعر الدولار مقابل الجنيه المصري اليوم السبت 10-10-2026 في البنوك**: [Link](https://www.almasryalyoum.com/news/details/4379324)
+- **بعيداً عن صخب منصات التواصل.. صخرة الـ 52.46 جنيهاً تقاوم عطلة نهاية الأسبوع في مصر**: [Link](https://www.doaah.com/2026/10/10/%D8%A8%D8%B9%D9%8A%D8%AF%D8%A7%D9%8B-%D8%B9%D9%86-%D8%B5%D8%AE%D8%A8-%D9%85%D9%86%D8%B5%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%B5%D8%AE%D8%B1%D8%A9-%D8%A7%D9%84%D9%80-52-46/)
+- **سعر الدولار في البنوك الآن**: [Link](https://twaslnews1.twaslnews.com/5821424/)
+
+
+### aston villa – brentford (N/A, Sat, 10 Oct 2026 06:50:00 -0700)
+
+- **Chelsea vs Bournemouth: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmdx3yyeggw0t)
+- **Predicted line-ups for Premier League teams in Matchweek 6**: [Link](https://www.premierleague.com/en/news/4730320/predicted-line-ups-for-premier-league-teams-in-matchweek-6)
+- **Football Daily | The Premier League is back and you absolutely can’t look away**: [Link](https://www.theguardian.com/football/2026/oct/09/football-daily-email-premier-league)
+
+
 ### mohammed vi (N/A, Fri, 9 Oct 2026 23:30:00 -0700)
 
 - **Immigration : Mohammed VI annonce une nouvelle approche de coopération et refuse tout “chantage”**: [Link](https://mobile.telquel.ma/2026/10/09/immigration-mohammed-vi-annonce-une-nouvelle-approche-de-cooperation-et-refuse-tout-chantage_2012355)
