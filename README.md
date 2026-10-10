@@ -1,3 +1,24 @@
+### panama (N/A, Fri, 9 Oct 2026 16:00:00 -0700)
+
+- **Un Terremoto de magnitud 8 sacude la costa de Panamá; alertas de tsunami**: [Link](https://saba.ye/es/news3806556.htm)
+- **Panamá: Mulino dice que su país vive un “desastre grande”**: [Link](https://www.dw.com/es/panam%C3%A1-mulino-dice-que-su-pa%C3%ADs-vive-un-desastre-grande/a-79623961)
+- **CSS exhorta a la calma luego del sismo: sin reportes de pacientes o usuarios afectados**: [Link](https://lawebdelasalud.com/css-exhorta-a-la-calma-luego-del-sismo-sin-reportes-de-pacientes-o-usuarios-afectados/)
+
+
+### mohamed 6 (N/A, Fri, 9 Oct 2026 13:40:00 -0700)
+
+- **Moroccan MPs seize on regions, strategic sovereignty and Spain after royal speech**: [Link](https://en.hespress.com/147017-moroccan-mps-seize-on-regions-strategic-sovereignty-and-spain-after-royal-speech.html)
+- **HM the King to Chair Friday Opening of 1st Session of 1st Legislative Year of 12th Legislature**: [Link](https://www.maroc.ma/en/news/hm-king-chair-friday-opening-1st-session-1st-legislative-year-12th-legislature)
+- **King Mohammed VI Calls for National Pride to Translate into Responsibility**: [Link](https://www.moroccoworldnews.com/2026/10/341436/king-mohammed-vi-calls-for-national-pride-to-translate-into-responsibility/)
+
+
+### ligue 1 (N/A, Fri, 9 Oct 2026 12:30:00 -0700)
+
+- **L'attaquant de l'OL Loïs Openda blessé et remplacé face à Lens**: [Link](https://www.lequipe.fr/Football/Actualites/L-attaquant-de-l-ol-lois-openda-blesse-et-remplace-face-a-lens/1724607)
+- **Yannick Cahuzac : « Ce qui m’importait le plus, c’était le contenu »**: [Link](https://onefootball.com/fr/news/yannick-cahuzac-ce-qui-mimportait-le-plus-cetait-le-contenu-43586899)
+- **Les compositions pour le match Lens - Lyon**: [Link](https://www.20minutes.fr/sport/football/ligue-1/4252992-20261009-lens-lyon-composition-officielle-6e-journee-ligue-1-2027)
+
+
 ### roi du maroc (N/A, Fri, 9 Oct 2026 16:10:00 -0700)
 
 - **Le Roi devant le Parlement post-élections du 23 septembre : le discours intégral**: [Link](https://medias24.com/2026/10/09/le-roi-devant-le-parlement-post-elections-du-23-septembre-le-discours-integral-1775759/)
