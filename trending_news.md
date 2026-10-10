@@ -1,3 +1,72 @@
+### طائرة (N/A, Sat, 10 Oct 2026 15:20:00 -0700)
+
+- **مضادات "درون" مصنوعة مغربيا**: [Link](https://www.hespress.com/%D9%85%D8%B6%D8%A7%D8%AF%D8%A7%D8%AA-%D8%AF%D8%B1%D9%88%D9%86-%D9%85%D8%B5%D9%86%D9%88%D8%B9%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-1820996.html)
+- **الطيران البحري.. 3 طائرات تحرس سيادة المغرب وحقوقه على مياهه الإقليمية**: [Link](https://madar21.com/458673.html)
+- **مروحيات أباتشي تابعة للقوات المسلحة تستعرض قدراتها بمعرض الطيران بمراكش (فيديو) – اليوم 24**: [Link](https://alyaoum24.com/2049362.html)
+
+
+### classement real madrid – villarreal (N/A, Sat, 10 Oct 2026 14:10:00 -0700)
+
+- **Real Madrid : Vinicius Junior sort du silence après son carton rouge polémique**: [Link](https://www.footmercato.net/a4399259964196259156-real-madrid-vinicius-junior-sort-du-silence-apres-son-expulsion-polemique)
+- **Le Real Madrid s'en sort contre Villarreal malgré l'expulsion invraisemblable de Vinicius**: [Link](https://www.lequipe.fr/Football/Actualites/Le-real-madrid-s-en-sort-contre-villarreal-malgre-l-expulsion-invraisemblable-de-vinicius/1724863)
+- **Liga I Mbappé muet, Vinicius expulsé, le Real s'en remet à Diomandé face à Villarreal (1-0)**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/liga-i-mbappe-muet-vinicius-expulse-le-real-sen-remet-diomande-face-a-villarreal-1-0_sto23344634/story.shtml)
+
+
+### orage (N/A, Sat, 10 Oct 2026 14:10:00 -0700)
+
+- **Alerte météo. Pluies, orages et grêle dans plusieurs provinces**: [Link](https://medias24.com/2026/10/09/alerte-meteo-pluies-orages-et-grele-dans-plusieurs-provinces-1775569/)
+- **Averses orageuses avec grêle et rafales de vent, samedi et dimanche, dans plusieurs provinces**: [Link](https://fr.hespress.com/491770-averses-orageuses-avec-grele-et-rafales-de-vent-samedi-et-dimanche-dans-plusieurs-provinces.html)
+- **Météo. Température en hausse sur les plaines intérieures, nord et centre, le Saiss et l’Oriental ce vendredi 9 octobre, en baisse ailleurs**: [Link](https://fr.le360.ma/societe/meteo-temperature-en-hausse-sur-les-plaines-interieures-nord-et-centre-le-saiss-et-loriental-ce_X4P6PSI5BFBCRICDYBSAG3ZRRE/)
+
+
+### psg vs le mans fc standings (N/A, Sat, 10 Oct 2026 14:10:00 -0700)
+
+- **Paris Saint-Germain vs Le Mans: French Ligue 1 stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5zjx77314wkt)
+- **PSG 3-1 Le Mans (Oct 10, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401876442)
+- **Achraf Hakimi Returns to PSG Squad After Thigh Injury**: [Link](https://www.moroccoworldnews.com/2026/10/341483/achraf-hakimi-returns-to-psg-squad-after-thigh-injury/)
+
+
+### kylian mbappé (N/A, Sat, 10 Oct 2026 14:10:00 -0700)
+
+- **Kylian Mbappe Injury: Progress, Potential Return Date for Real Madrid Star**: [Link](https://www.fotmob.com/embed/news/01m3hfcrp0pd/kylian-mbappe-injury-progress-potential-return-date-real-madrid-star)
+- **Spotted at a nightclub while injured! All hell broke loose.**: [Link](https://en.haberler.com/spotted-at-a-nightclub-while-injured-all-hell-2311226/)
+- **Good News for Mourinho: Mbappé Is Back**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/good-news-for-mourinho-mbapp%C3%A9-is-back-2026-10-08)
+
+
+### achraf hakimi (N/A, Sat, 10 Oct 2026 13:50:00 -0700)
+
+- **Récord histórico: Hakimi firma un hito en el Paris Saint-Germain**: [Link](https://es-us.noticias.yahoo.com/deportes/r%C3%A9cord-hist%C3%B3rico-hakimi-firma-hito-172307118.html)
+- **El juicio de Hakimi plantea preguntas en el mundo del fútbol**: [Link](https://www.ysscores.com/es/news/14066480/el-juicio-de-hakimi-plantea-preguntas-en-el-mundo-del-f%C3%BAtbol)
+
+
+### vinicius júnior (N/A, Sat, 10 Oct 2026 13:40:00 -0700)
+
+- **Vini Jr é expulso em lance bizarro, mas Real Madrid vence com gol de reforço mais caro**: [Link](https://www.espn.com.br/futebol/laliga/artigo/_/id/17363345/vini-jr-expulso-lance-bizarro-real-madrid-vence-villarreal-gol-reforco-mais-caro)
+- **O Real Madrid vence o Villarreal com um gol de Diomande**: [Link](https://www.realmadrid.com/pt-PT/noticias/futebol/primeira-equipa/cronicas/cronica-real-madrid-villarreal-j8-liga-10-10-2026)
+- **Mourinho cancela coletiva e gera polêmica no Real Madrid**: [Link](https://www.lance.com.br/futebol-internacional/mourinho-cancela-coletiva-e-gera-polemica-no-real-madrid.html)
+
+
+### extradition (N/A, Sat, 10 Oct 2026 13:40:00 -0700)
+
+- **Man captured in Vt. after allegedly killing his mother appears in court**: [Link](https://www.wcax.com/2026/10/09/man-captured-vt-after-allegedly-killing-his-mother-appears-court/)
+- **Man taken into custody in Vermont faces murder charge in his mother’s death in Massachusetts**: [Link](https://vtdigger.org/2026/10/09/man-taken-into-custody-in-vermont-faces-murder-charge-in-his-mothers-death-in-massachusetts/)
+- **Reading mother’s fatal shooting: Here are five takeaways from the police report**: [Link](https://www.bostonglobe.com/2026/10/09/metro/reading-ma-shooting-arrest-ryan-hanafin/)
+
+
+### هالة صدقي (N/A, Sat, 10 Oct 2026 13:30:00 -0700)
+
+- **هالة صدقي تكشف اختيارها بين محمد رمضان وأحمد العوضي.. وتوضح موقفها من الزواج**: [Link](https://twaslnews1.twaslnews.com/5816407/)
+- **هالة صدقي تكشف كواليس "القبلات السينمائية".. ومقارنة رمضان والعوضي**: [Link](https://www.alhadath.net/egypt/2026/10/10/%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%84%D9%87%D8%A7%D9%84%D8%A9-%D8%B5%D8%AF%D9%82%D9%8A-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%A7%D9%84%D9%82%D8%A8%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D9%8A%D9%86%D9%85%D8%A7%D8%A6%D9%8A%D8%A9-%D9%88%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%85%D9%82%D8%A7%D8%B1%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D8%A8%D8%B1%D9%85%D8%B6%D8%A7%D9%86)
+- **أرحب بالزواج من رجل عراقي.. هالة صدقي تكشف كواليس قبلة أحمد زكي والعوضي لا يقارن برمضان**: [Link](https://www.elbalad.news/7136221)
+
+
+### madrid match (N/A, Sat, 10 Oct 2026 13:30:00 -0700)
+
+- **Real Madrid 1-0 Villarreal: Vinicius Jr sent off for hair pull in win**: [Link](https://www.bbc.com/sport/football/live/cx30eppd991et)
+- **Vinícius Júnior sent off for hair pull after having goal denied in Real Madrid win**: [Link](https://www.espn.com/soccer/story/_/id/50150534/vinicius-junior-red-card-real-madrid-villarreal)
+- **Real Madrid Player Ratings vs. Villarreal: Vinicius Junior Red Card Overshadows Crucial Win**: [Link](https://www.si.com/soccer/real-madrid-player-ratings-vs-villarreal-vinicius-junior-red-card-10-10-26)
+
+
 ### classement manchester united – tottenham (N/A, Sat, 10 Oct 2026 11:50:00 -0700)
 
 - **Manchester United 1-1 Tottenham, Premier League : Tottenham frustre les Red Devils**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2026-2027/manchester-united-tottenham-live/691353)
