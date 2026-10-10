@@ -1,3 +1,10 @@
+### mohammed vi (N/A, Fri, 9 Oct 2026 23:30:00 -0700)
+
+- **Immigration : Mohammed VI annonce une nouvelle approche de coopération et refuse tout “chantage”**: [Link](https://mobile.telquel.ma/2026/10/09/immigration-mohammed-vi-annonce-une-nouvelle-approche-de-cooperation-et-refuse-tout-chantage_2012355)
+- **Souveraineté, jeunesse, déconcentration, migration… les messages forts du discours royal devant le Parlement**: [Link](https://fr.le360.ma/politique/souverainete-jeunesse-deconcentration-migration-les-messages-forts-du-discours-royal-devant-le_6F4VUXD6TFCABF76F77ISLAAJM/)
+- **Le Roi devant le Parlement post-élections du 23 septembre : le discours intégral**: [Link](https://medias24.com/2026/10/09/le-roi-devant-le-parlement-post-elections-du-23-septembre-le-discours-integral-1775759/)
+
+
 ### panama (N/A, Fri, 9 Oct 2026 16:00:00 -0700)
 
 - **Un Terremoto de magnitud 8 sacude la costa de Panamá; alertas de tsunami**: [Link](https://saba.ye/es/news3806556.htm)
