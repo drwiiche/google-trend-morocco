@@ -1,3 +1,71 @@
+### classement manchester united – tottenham (N/A, Sat, 10 Oct 2026 11:50:00 -0700)
+
+- **Manchester United 1-1 Tottenham, Premier League : Tottenham frustre les Red Devils**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2026-2027/manchester-united-tottenham-live/691353)
+- **Manchester United - Tottenham : les compositions officielles**: [Link](https://www.footmercato.net/a5978297573533500332-manchester-united-tottenham-les-compositions-officielles)
+- **6e journée de Premier League: Suivez Manchester United - Tottenham EN DIRECT**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-manchester-united-tottenham_mtc21883175/live-commentary.shtml)
+
+
+### lamine yamal (N/A, Sat, 10 Oct 2026 11:50:00 -0700)
+
+- **Ballon d’Or 2026: ‘No doubt’ – French pundit snubs Mbappe, names player to win**: [Link](https://dailypost.ng/2026/10/10/ballon-dor-2026-no-doubt-french-pundit-snubs-mbappe-names-player-to-win/)
+- **Zlatan Ibrahimovic Has Predicted the Winner of the 26/27 Champions League**: [Link](https://www.givemesport.com/zlatan-ibrahimovic-predicts-26-27-champions-league/)
+- **Gabriel Jesus talks Lamine Yamal, Neymar, Guardiola, Ballon d’or, life at Barcelona**: [Link](https://sports.yahoo.com/articles/gabriel-jesus-talks-lamine-yamal-132000578.html)
+
+
+### جمال السلامي (N/A, Sat, 10 Oct 2026 11:50:00 -0700)
+
+- **السلامي يوضح أسباب هزيمة الفتح الثقيلة أمام الأهلي في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/2026/10/10/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9)
+- **الفتح يُخذل سلامي.. والمدرب المغربي يواجه الحقيقة المُرّة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%8A%D9%8F%D8%AE%D8%B0%D9%84-%D8%B3%D9%84%D8%A7%D9%85%D9%8A--%D9%88%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D9%85%D9%8F%D8%B1%D9%91%D8%A9/blt8abd6f95f7374935)
+- **السلامي: جئت للفتح لنقل خبرتي ودوري روشن بات واحدا من أبرز الدوريات العربية – أحداث.أنفو**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D8%AC%D8%A6%D8%AA-%D9%84%D9%84%D9%81%D8%AA%D8%AD-%D9%84%D9%86%D9%82%D9%84-%D8%AE%D8%A8%D8%B1%D8%AA%D9%8A-%D9%88%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4/)
+
+
+### monaco – toulouse (N/A, Sat, 10 Oct 2026 11:40:00 -0700)
+
+- **Mika Biereth, Takumi Minamino et Mamadou Coulibaly pas dans le groupe de Monaco pour la réception de Toulouse**: [Link](https://www.lequipe.fr/Football/Actualites/Mika-biereth-takumi-minamino-et-mamadou-coulibaly-pas-dans-le-groupe-de-monaco-pour-la-reception-de-toulouse/1724683)
+- **AS Monaco, Celtic, Rangers, OL, LOSC... : Askou sait-il faire tomber les grosses équipes ?**: [Link](https://www.lesviolets.com/actu/as-monaco-celtic-rangers-ol-losc-askou-sait-il-faire-tomber-les-grosses-equipes,84527.html)
+- **ASM – TFC : Les compositions**: [Link](https://asm-supporters.fr/actualites/67441-asm-tfc-les-compositions-3)
+
+
+### طقس مراكش (N/A, Sat, 10 Oct 2026 11:40:00 -0700)
+
+
+
+
+### لا ليغا (N/A, Sat, 10 Oct 2026 11:40:00 -0700)
+
+- **بمساعدة ألفاريز.. أتلتيكو مدريد ينجو من فخ ألافيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%85%D8%B3%D8%A7%D8%B9%D8%AF%D8%A9-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2--%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D9%81%D8%AE-%D8%A7%D9%94%D9%84%D8%A7%D9%81%D9%8A%D8%B3/blted267814bd241b0a)
+- **أتليتيكو مدريد ينجو من فخ ألافيس بصعوبة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A3%D8%AA%D9%84%D9%8A%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D9%81%D8%AE-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D8%A8%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-2026-10-10)
+- **أتلتيكو مدريد يواصل صحوته وينفرد بالمركز الثاني في الدوري الإسباني**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%B5%D8%AD%D9%88%D8%AA%D9%87-%D9%88%D9%8A%D9%86%D9%81%D8%B1%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A/26355)
+
+
+### real (N/A, Sat, 10 Oct 2026 11:40:00 -0700)
+
+- **Real Madrid gegen Villarreal – Prognose: Der Vorteil des direkten Vergleichs.**: [Link](https://www.vietnam.vn/de/nhan-dinh-real-madrid-vs-villarreal-diem-tua-tu-thanh-tich-doi-dau)
+- **Mourinho verteidigt kriselnden Vinícius Júnior – Bankplatz kein Thema?**: [Link](https://www.fussballeuropa.com/news/mourinho-nimmt-vinicius-junior-in-schutz-2026-10)
+- **Real Madrid gibt Kader bekannt – fünf Ausfälle**: [Link](https://www.fussballdaten.de/news/real-madrid-gibt-kader-bekannt-fuenf-ausfaelle/)
+
+
+### بي اس جي ضد نادي لومان (N/A, Sat, 10 Oct 2026 11:20:00 -0700)
+
+- **حكيمي يستعيد الجاهزية قبل "لو مان"**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%84%D9%88-%D9%85%D8%A7%D9%86-1820547.html)
+- **فرمان إنريكي.. باريس يكرر تصرفه مع ديمبلي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A--%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%8A%D9%83%D8%B1%D8%B1-%D8%AA%D8%B5%D8%B1%D9%81%D9%87-%D9%85%D8%B9-%D8%AF%D9%8A%D9%85%D8%A8%D9%84%D9%8A/bltd7f763a99892382a)
+- **باريس سان جيرمان من أجل تحقيق الفوز عند مواجهة لومان**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%B9%D9%86%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D9%88%D9%85%D8%A7%D9%86-2026-10-10)
+
+
+### الهلال ضد الاتحاد (N/A, Sat, 10 Oct 2026 11:20:00 -0700)
+
+- **لقطة نادرة.. الهلال يكرم نجمي الاتحاد في الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%82%D8%B7%D8%A9-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9--%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D9%83%D8%B1%D9%85-%D9%86%D8%AC%D9%85%D9%8A-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt2317040525584ef7)
+- **مباشر مباراة الهلال ضد الاتحاد في كلاسيكو الدوري السعودي لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/10/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B1%D9%88%D8%B4%D9%86)
+- **النصيري وبونو وجها لوجه في قمة الاتحاد والهلال**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%88%D8%A8%D9%88%D9%86%D9%88-%D9%88%D8%AC%D9%87%D8%A7-%D9%84%D9%88%D8%AC%D9%87-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84/26333)
+
+
+### real madrid – villarreal (N/A, Sat, 10 Oct 2026 11:10:00 -0700)
+
+- **Real Madrid vs Villarreal 2026 live stream: Time, TV channels and how to watch La Liga online**: [Link](https://www.managingmadrid.com/113867/real-madrid-villarreal-2026-live-stream-time-tv-channels-and-how-to-watch-la-liga-online)
+- **Mourinho deals a fresh blow to Diaz and Diomande, and settles Valverde's situation**: [Link](https://www.goal.com/en/news/mourinho-deals-a-fresh-blow-to-diaz-and-diomande-and-settles-valverde-s-situation/blt5e070dfe9b2d9f98)
+- **Mourinho announces Militao’s unavailability vs Roma**: [Link](https://sports.yahoo.com/articles/mourinho-announces-militao-unavailability-vs-063600556.html)
+
+
 ### bayern (N/A, Sat, 10 Oct 2026 07:50:00 -0700)
 
 - **Bundesliga: Ticker – Dicker Patzer, nach 8 Sekunden liegt Bayern in Augsburg schon zurück**: [Link](https://www.welt.de/sport/fussball/article6aca192561b3d4c01d3e21be/bundesliga-ticker-dicker-patzer-nach-8-sekunden-liegt-bayern-in-augsburg-schon-zurueck.html)
