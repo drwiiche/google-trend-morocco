@@ -1,3 +1,71 @@
+### ترتيب الدوري المغربي (N/A, Sun, 11 Oct 2026 15:20:00 -0700)
+
+- **تواركة يواصل صحوته**: [Link](https://assabah.ma/954975.html)
+- **صدامات قوية في القمة والقاع في الجولة الرابعة من الدوري الاحترافي**: [Link](https://www.hesport.com/%D8%B5%D8%AF%D8%A7%D9%85%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D8%A7%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7-457456.html)
+- **الدورة الثالثة من القسم الثاني للبطولة برو تنتهي على إيقاع هذه النتائج مع الترتيب**: [Link](https://ar.sport.le360.ma/football/22HIOA6OW5D7ZDCPXNISB5XLD4/)
+
+
+### botola pro (N/A, Sun, 11 Oct 2026 15:20:00 -0700)
+
+
+
+
+### المديرية العامة للأمن الوطني (N/A, Sun, 11 Oct 2026 15:00:00 -0700)
+
+- **توقيف 61 مغربيا كانوا بصدد التحضير لارتكاب أعمال تخريبية في الجزائر – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%AA%D9%88%D9%82%D9%8A%D9%81-61-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-%D9%83%D8%A7%D9%86%D9%88%D8%A7-%D8%A8%D8%B5%D8%AF%D8%AF-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D8%A7%D8%B1%D8%AA%D9%83)
+- **تفكيك شبكة إجرامية دولية وتوقيف 61 مغربيا - الوطن : الخبر**: [Link](https://www.elkhabar.com/nation/%D8%AA%D9%81%D9%83%D9%8A%D9%83-%D8%B4%D8%A8%D9%83%D8%A9-%D8%A5%D8%AC%D8%B1%D8%A7%D9%85%D9%8A%D8%A9-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D9%88%D8%AA%D9%88%D9%82%D9%8A%D9%81-61-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-275296)
+- **تفكيك شبكة إجرامية دولية مغربية كانت تحضر لارتكاب أعمال تخريبية داخل الوطن**: [Link](https://www.aps.dz/algerie/actualite-nationale/mv43j3b9-%D8%AA%D9%81%D9%83%D9%8A%D9%83-%D8%B4%D8%A8%D9%83%D8%A9-%D8%A7%D9%95%D8%AC%D8%B1%D8%A7%D9%85%D9%8A%D8%A9-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%83%D8%A7%D9%86%D8%AA-%D8%AA%D8%AD%D8%B6%D8%B1-%D9%84%D8%A7%D8%B1%D8%AA%D9%83%D8%A7%D8%A8-%D8%A7%D9%94%D8%B9%D9%85%D8%A7%D9%84-%D8%AA%D8%AE%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%88%D8%B7%D9%86)
+
+
+### héritage (N/A, Sun, 11 Oct 2026 14:10:00 -0700)
+
+- **À Paris, l'héritage à plus de 2 millions d'euros de Michael Lonsdale fait toujours l'objet d'une bataille judiciaire**: [Link](https://actu.fr/ile-de-france/paris_75056/a-paris-l-heritage-a-plus-de-2-millions-d-euros-de-michael-lonsdale-fait-toujours-l-objet-d-une-bataille-judiciaire_64908025.html)
+- **Abus de faiblesse sur Michael Lonsdale: le couple condamné fait appel**: [Link](https://www.infochretienne.com/articles/abus-de-faiblesse-sur-michael-lonsdale-le-couple-condamne-fait-appel/)
+- **Autour de l’héritage de Michael Lonsdale, la bataille judiciaire rebondit**: [Link](https://lesinguliersete.fr/autour-de-lheritage-de-michael-lonsdale-la-bataille-judiciaire-rebondit/)
+
+
+### الوداد (N/A, Sun, 11 Oct 2026 14:10:00 -0700)
+
+- **التعادل ينهي لقاء الوداد والنادي المكناسي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%8A%D9%86%D9%87%D9%8A-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83-1821511.html)
+- **الوداد يستعيد غنيمي والرشدان ضد الكوديم ويفتقد خدمات 4 لاعبين**: [Link](https://www.ahdath.info/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%BA%D9%86%D9%8A%D9%85%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D8%B4%D8%AF%D8%A7%D9%86-%D8%B6%D8%AF-%D8%A7%D9%84%D9%83%D9%88%D8%AF/)
+- **"دونور" يستعصي على الوداد.. و"الكوديم" يعود بنقطة ثمينة من البيضاء**: [Link](https://radiomars.ma/%D8%AF%D9%88%D9%86%D9%88%D8%B1-%D9%8A%D8%B3%D8%AA%D8%B9%D8%B5%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D9%83%D9%88%D8%AF%D9%8A%D9%85-%D9%8A%D8%B9/)
+
+
+### raphaël glucksmann (N/A, Sun, 11 Oct 2026 14:00:00 -0700)
+
+- **EN DIRECT, primaire à gauche : Raphaël Glucksmann, élu dès le premier tour, promet de « rassembler » la gauche pour « battre l’extrême droite », et réaffirme son refus de s’allier avec LFI**: [Link](https://www.lemonde.fr/election-presidentielle-2027/live/2026/10/11/en-direct-primaire-a-gauche-raphael-glucksmann-affirme-que-sa-victoire-est-celle-de-tous-ceux-qui-croient-que-la-gauche-doit-rompre-avec-lfi-et-tend-la-main-a-francois-hollande_6791926_6205049.html)
+- **Patrick Mennucci en charge de l’organisation de la primaire sociale-démocrate : « Aucun bot n’a pu voter à ce scrutin »**: [Link](https://www.latribune.fr/article/la-tribune-dimanche/politique/presidentielle/24690184010655/patrick-mennucci-ancien-depute-en-charge-de-l-organisation-de-la-primaire-de-la-gauche-aucun-bot-n-a-pu-voter-a-ce-scrutin)
+- **Victoire de Raphaël Glucksmann: Marine Tondelier déplore que le vainqueur de la primaire sociale-démocrate soit "celui qui fait le choix du repli"**: [Link](https://www.bfmtv.com/politique/victoire-de-raphael-glucksmann-marine-tondelier-deplore-que-le-vainqueur-de-la-primaire-sociale-democrate-soit-celui-qui-fait-le-choix-du-repli_AN-202610110339.html)
+
+
+### فيضان (N/A, Sun, 11 Oct 2026 13:20:00 -0700)
+
+- **فيضانات مفجعة بـ”مزوضة” نواحي شيشاوة .. 4 وفيات وسيول تجرف المنازل والأغنام (صور)**: [Link](https://al3omk.com/1195548.html)
+- **حصيلة مؤقتة.. السيول الجارفة التي ضربت شيشاوة تخلف اربعة قتلى**: [Link](https://www.marrakechalaan.com/article-697948)
+- **سيول مدمرة تضرب مزوضة.. 3 قتلى ومفقود في حصيلة مأساوية وخسائر جسيمة**: [Link](https://rue20.com/1037124.html)
+
+
+### racing santander vs valencia (N/A, Sun, 11 Oct 2026 13:20:00 -0700)
+
+- **Zabiri Scores His 7th La Liga Goal in Racing Santander’s 2-2 Draw with Valencia**: [Link](https://www.moroccoworldnews.com/2026/10/341676/zabiri-scores-his-7th-la-liga-goal-in-racing-santanders-2-2-draw-with-valencia/)
+- **🚨Confirmed XIs: Vasco set for his debut at El Sardinero**: [Link](https://sports.yahoo.com/articles/confirmed-xis-vasco-set-debut-175500096.html)
+- **Tickets for Racing de Santander vs Valencia CF — LaLiga**: [Link](https://karlobag.eu/en/sports/news/racing-de-santander-vs-valencia-cf-laliga-tickets-xgyey/)
+
+
+### espace schengen (N/A, Sun, 11 Oct 2026 13:20:00 -0700)
+
+- **Visa Schengen : une annonce attendue le 24 octobre pour cinq pays arabes**: [Link](https://www.lapresse.tn/2026/10/11/visa-schengen-une-annonce-attendue-le-24-octobre-pour-cinq-pays-arabes/)
+- **Visa Schengen : cinq pays arabes sur le point d’obtenir une exemption**: [Link](https://www.visa-algerie.com/visa-schengen-cinq-pays-arabes-sur-le-point-dobtenir-une-exemption/)
+- **Visa Schengen : vers des démarches simplifiées et davantage de visas à entrées multiples pour les Tunisiens**: [Link](https://www.lapresse.tn/2026/10/11/visa-schengen-vers-des-demarches-simplifiees-et-davantage-de-visas-a-entrees-multiples-pour-les-tunisiens/)
+
+
+### racing santander (N/A, Sun, 11 Oct 2026 13:00:00 -0700)
+
+- **Racing 2-2 Valencia: resumen, goles y resultado**: [Link](https://as.com/futbol/primera/racing-valencia-en-directo-laliga-ea-sports-hoy-en-vivo-f202610-d/)
+- **El efecto Aguirre se queda a medias**: [Link](https://www.marca.com/futbol/primera-division/cronica/2026/10/11/efecto-aguirre-queda-medias.html)
+- **23:00 | 11 OCT 2026 | TIEMPO DE JUEGO**: [Link](https://www.cope.es/programas/tiempo-de-juego/horas-completas/23-00-11-oct-2026-juego-20261012_3454042.html)
+
+
 ### serie a (N/A, Sun, 11 Oct 2026 11:40:00 -0700)
 
 - **Segna Rabiot, ma il Milan si fa riprendere dal Sassuolo: Amorim non decolla**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/11-10-2026/sassuolo-milan-live-risultato-e-gol-in-diretta-serie-a.shtml)
