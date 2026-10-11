@@ -1,3 +1,73 @@
+### r1c3 (N/A, Sun, 11 Oct 2026 06:40:00 -0700)
+
+- **Tiercé. Les pronostics de L'Alsace pour dimanche 11 octobre - Prix Montgomery**: [Link](https://www.lalsace.fr/actualite/2026/10/10/les-pronostics-de-l-alsace-pour-dimanche-11-octobre-prix-montgomery)
+- **L'analyse des cotes du Quinté+ du dimanche 11 octobre à Auteuil**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/lanalyse-des-cotes-du-quinte-du-dimanche-11-octobre-a-auteuil)
+- **Les pronos hippiques du dimanche 11 octobre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-dimanche-11-octobre-2026_AN-202610090560.html)
+
+
+### hull city – everton (N/A, Sun, 11 Oct 2026 06:20:00 -0700)
+
+- **Hull City vs Everton: Match Preview| The Toffees are back!**: [Link](https://royalbluemersey.sbnation.com/everton-2026-27-season-premier-league/83756/hull-city-vs-everton-match-preview-the-toffees-are-back)
+- **Hull vs Everton prediction and betting tips – Can Toffees break into top four?**: [Link](https://talksport.com/betting/4630857/hull-everton-prediction-betting-tips-premier-league-preview-offer/)
+- **Hull vs Everton LIVE: Newly-promoted Tigers look to continue dream start against unbeaten Toffees - updates**: [Link](https://www.thesun.co.uk/sport/40589536/hull-vs-everton-live-score-result-premier-league-updates/)
+
+
+### crystal palace – nottm forest (N/A, Sun, 11 Oct 2026 06:10:00 -0700)
+
+- **TEAM NEWS | DUO RULED OUT OF PALACE TRIP**: [Link](https://www.nottinghamforest.co.uk/news/2026/october/09/team-news---duo-ruled-out-of-palace-trip/)
+- **Oliver Glasner given warm reception on his return to Nottingham Forest**: [Link](https://www.irishnews.com/sport/soccer/oliver-glasner-given-warm-reception-on-his-return-to-nottingham-forest-A7MAA5YNDZMSLAF7D5XQ7QTYC4/)
+- **Palace vs Forest: Bet £10 get £30 and a 25% bet builder boost with BOYLE Sports**: [Link](https://talksport.com/betting/4632805/palace-vs-forest-betting-offer-boyle-sports/)
+
+
+### roi mohammed vi (N/A, Sun, 11 Oct 2026 06:10:00 -0700)
+
+- **Immigration : Mohammed VI annonce une nouvelle approche de coopération et refuse tout “chantage”**: [Link](https://mobile.telquel.ma/2026/10/09/immigration-mohammed-vi-annonce-une-nouvelle-approche-de-cooperation-et-refuse-tout-chantage_2012355)
+- **Souveraineté, jeunesse, déconcentration, migration… les messages forts du discours royal devant le Parlement**: [Link](https://fr.le360.ma/politique/souverainete-jeunesse-deconcentration-migration-les-messages-forts-du-discours-royal-devant-le_6F4VUXD6TFCABF76F77ISLAAJM/)
+- **Maroc-Espagne : après la crise de Sebta, le Roi annonce un tournant**: [Link](https://medias24.com/2026/10/10/maroc-espagne-apres-la-crise-de-sebta-le-roi-annonce-un-tournant-1776141/)
+
+
+### nice – strasbourg (N/A, Sun, 11 Oct 2026 05:50:00 -0700)
+
+- **DIRECT. Nice - Strasbourg, Ligue 1 : C'est la mi-temps ! (1-1)**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/nice-strasbourg-live/690309)
+- **ALG : Boudaoui, jour de come-back (Rachid Belarbi)**: [Link](https://www.footafrique.com/boudaoui-jour-de-come-back/)
+- **On ne change pas une équipe qui gagne... Le onze de l’OGC Nice face à Strasbourg**: [Link](https://www.nicematin.com/sports/football/on-ne-change-pas-une-equipe-qui-gagne-le-onze-de-l-ogc-nice-face-a-strasbourg-10738546)
+
+
+### liverpool (N/A, Sun, 11 Oct 2026 04:50:00 -0700)
+
+- **On demand: Watch Andoni Iraola's pre-Manchester City press conference**: [Link](https://www.liverpoolfc.com/news/andoni-iraola-liverpool-manchester-city-press-conference-premier-league)
+- **Toxicity and uncertainty await Man City - will their season even matter?**: [Link](https://www.bbc.com/sport/football/articles/cvy0rp14xz7lo)
+- **Manchester City gets on with the football**: [Link](https://www.economist.com/the-world-in-brief/2026/10/11/26339585-532a-4477-9a86-c179bafd06f4)
+
+
+### elche – celta vigo (N/A, Sun, 11 Oct 2026 04:30:00 -0700)
+
+- **Elche 0-0 Celta: resumen y resultado**: [Link](https://as.com/futbol/primera/elche-celta-en-directo-laliga-ea-sports-en-vivo-hoy-f202610-d/)
+- **Elche - Celta, en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/elche-celta/2026/10/11/01_0101_20261011_954_176-directo.html)
+- **Anselmi: “El Celta juega bien al fútbol y lo viene demostrando”**: [Link](https://www.atlantico.net/celtismo/anselmi-celta-juega-futbol-viene_1_20261011-4447267.html)
+
+
+### مصرف (N/A, Sun, 11 Oct 2026 04:30:00 -0700)
+
+- **دراسة تتوقع مكاسب اقتصادية محدودة للدرهم الرقمي وتحذر من التضخم**: [Link](https://www.hespress.com/%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D9%85%D9%83%D8%A7%D8%B3%D8%A8-%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A%D8%A9-%D9%85%D8%AD%D8%AF%D9%88%D8%AF%D8%A9-%D9%84%D9%84%D8%AF-1820687.html)
+- **بنك المغرب يكشف نتائج دراسة حول «الدرهم الرقمي» ويحذر من مخاطر انتقال الودائع البنكية إليه – اليوم 24**: [Link](https://alyaoum24.com/2049572.html)
+- **بنك المغرب يصدر وثيقتي عمل حول العملة الرقمية للبنك المركزي**: [Link](https://assabah.ma/955001.html)
+
+
+### zone turf (N/A, Sun, 11 Oct 2026 04:20:00 -0700)
+
+- **La dernière minute de Zone-Turf pour le Quinté du jour : le n° 15 Kalibre**: [Link](https://www.zone-turf.fr/actualite/obstacle/la-derniere-minute-de-zone-turf-pour-le-quinte-du-jour-le-n-15-kalibre-130704.html)
+- **Tiercé. Les pronostics de L'Alsace pour dimanche 11 octobre - Prix Montgomery**: [Link](https://www.lalsace.fr/actualite/2026/10/10/les-pronostics-de-l-alsace-pour-dimanche-11-octobre-prix-montgomery)
+- **L'analyse des cotes du Quinté+ du dimanche 11 octobre à Auteuil**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/lanalyse-des-cotes-du-quinte-du-dimanche-11-octobre-a-auteuil)
+
+
+### côme – roma (N/A, Sun, 11 Oct 2026 04:00:00 -0700)
+
+- **Altro che show, Como-Roma è il primo 0-0 dell'anno. Follia di Malen che si fa espellere, Cesc non ne approfitta**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Como/11-10-2026/como-roma-live-diretta-serie-a-risultato-e-gol.shtml)
+- **Gasperini: "Dybala straordinario, Gollini saprà sostituire bene Svilar! Sul rosso a Malen..."**: [Link](https://www.fantacalcio.it/news/calcio-italia/11_10_2026/gasperini-dybala-straordinario-gollini-sapra-sostituire-bene-svilar-sul-rosso-a-malen-499041)
+- **Rosso a Malen, la moviola di Marelli: quante giornate di squalifica avrà?**: [Link](https://www.dazn.com/it-IT/news/calcio/rosso-a-malen-la-moviola-di-marelli-quante-giornate-di-squalifica-avra/8n8nallbol8v1apuu51zsms39)
+
+
 ### بصل (N/A, Sat, 10 Oct 2026 17:40:00 -0700)
 
 - **البصل ومقاومة الإنسولين.. نتائج أولية تثير الاهتمام**: [Link](https://www.skynewsarabia.com/technology/1897581-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D8%B7%D8%A9-%D8%B6%D8%A8%D8%B7-%D8%A7%D9%84%D8%B3%D9%83%D8%B1-%D9%8A%D9%81%D8%B9%D9%84-%D8%A7%D9%84%D8%A8%D8%B5%D9%84-%D8%A7%D9%84%D9%86%D9%8A%D8%A6-%D8%A8%D8%AC%D8%B3%D9%85%D9%83)
