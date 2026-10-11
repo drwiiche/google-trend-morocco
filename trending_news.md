@@ -1,3 +1,73 @@
+### serie a (N/A, Sun, 11 Oct 2026 11:40:00 -0700)
+
+- **Segna Rabiot, ma il Milan si fa riprendere dal Sassuolo: Amorim non decolla**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/11-10-2026/sassuolo-milan-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **TRIBUNA.COM * SERIE A: «CON MODRIC È UN'ALTRA VITA: LUKA INVENTA, RABIOT CI METTE CLASSE E POTENZA, IL MILAN LA SBLOCCA CONTRO IL SASSUOLO**: [Link](https://www.agenziagiornalisticaopinione.it/opinionmix/tribuna-com-serie-a-con-modric-e-unaltra-vita-luka-inventa-rabiot-ci-mette-classe-e-potenza-il-milan-la-sblocca-contro-il-sassuolo/)
+- **Serie A Enilive | Sassuolo-Milan live**: [Link](https://www.sassuolocalcio.it/prima-squadra/serie-a-enilive-segui-il-live-di-sassuolo-milan/)
+
+
+### cagliari – juventus (N/A, Sun, 11 Oct 2026 11:20:00 -0700)
+
+- **Cagliari-Juventus, dove vedere la partita in tv: gli orari**: [Link](https://sport.sky.it/calcio/serie-a/2026/10/11/cagliari-juventus-dove-vedere-tv-streaming)
+- **Rossoblù in volo, bianconeri per il sorpasso: la Domus si accende per Cagliari-Juventus**: [Link](https://www.sardegna24.news/2026/10/11/rossoblu-in-volo-bianconeri-per-il-sorpasso-la-domus-si-accende-per-cagliari-juventus/)
+- **Serie A: Cagliari-Juventus DIRETTA e FOTO**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/10/11/serie-a-cagliari-juventus-diretta-e-foto_cb4a2a0c-9ece-40a7-b7b8-5c181c9966f6.html)
+
+
+### أبها (N/A, Sun, 11 Oct 2026 11:20:00 -0700)
+
+- **قبل ساعات من إقامتها.. تأجيل مباراة أبها والفيصلي في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/2026/10/11/%D9%82%D8%A8%D9%84-%D8%B3%D8%A7%D8%B9%D8%A7%D8%AA-%D9%85%D9%86-%D8%A5%D9%82%D8%A7%D9%85%D8%AA%D9%87%D8%A7-%D8%AA%D8%A3%D8%AC%D9%8A%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%A8%D9%87%D8%A7)
+- **مدرب الفيصلي قبل لقاء اليوم أمام أبها: استفدنا من فترة التوقف بمعالجة سلبياتنا**: [Link](https://www.al-jazirah.com/2026/20261011/sp7.htm)
+- **تأجيل مباراة في الدوري السعودي بسبب الظروف الخارجة عن إرادة الأندية**: [Link](https://twaslnews1.twaslnews.com/5864878/)
+
+
+### troyes – marseille (N/A, Sun, 11 Oct 2026 11:10:00 -0700)
+
+- **Troyes - OM : les compositions probables**: [Link](https://www.footmercato.net/a5647777946886849771-troyes-om-les-compositions-probables)
+- **Pronostic Estac Troyes - Marseille : Un duel en bas du classement.**: [Link](https://www.vietnam.vn/fr/nhan-dinh-estac-troyes-vs-marseille-cuoc-chien-nhom-cuoi)
+- **Les compositions pour le match Troyes - Marseille**: [Link](https://www.20minutes.fr/sport/football/ligue-1/4253286-20261011-troyes-marseille-composition-officielle-6e-journee-ligue-1-2027)
+
+
+### الزمالك ضد الأهلي (N/A, Sun, 11 Oct 2026 11:00:00 -0700)
+
+- **مباشر.. قمة الكرة المصرية بين الأهلي والزمالك في الدوري الممتاز لكرة القدم**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/11/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A)
+- **الذكاء الاصطناعي يجيب: ما النتيجة المتوقعة لقمة الأهلي والزمالك؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AC%D9%8A%D8%A8-%D9%85%D8%A7-%D8%A7%D9%84%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D9%84%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B2%D9%85%D8%A7%D9%84%D9%83/bltc548accd662cca03)
+- **من يفرض كلمته فنيًا؟.. «القمة» تكشف أوراق عموتة ومعتمد جمال (تحليل)**: [Link](https://www.almasryalyoum.com/news/details/4380189)
+
+
+### ayyoub bouaddi (N/A, Sun, 11 Oct 2026 10:30:00 -0700)
+
+- **Training: Maresca's men return to the CFA**: [Link](https://www.mancity.com/news/mens/man-city-training-gallery-return-8-october-63927077)
+- **O'Reilly returns as City make one change for trip to Liverpool**: [Link](https://sports.yahoo.com/articles/oreilly-returns-city-one-change-142000874.html)
+- **Could Enzo Maresca change the Manchester City midfield set up against Liverpool?**: [Link](https://esteemedkompany.com/2026/10/11/could-enzo-maresca-change-the-manchester-city-midfield-set-up-against-liverpool/)
+
+
+### wydad (N/A, Sun, 11 Oct 2026 10:30:00 -0700)
+
+- **Wydad : Oussama Hettli et Junior Olagbadi toujours absents faute d'homologation**: [Link](https://www.elbotola.com/fr/article/2026-10-11-18-15-91.html)
+- **Erreur administrative perturbe le Wydad Casablanca**: [Link](https://www.ysscores.com/fr/news/14067592/erreur-administrative-perturbe-le-wydad-casablanca)
+- **Wydad : 22 joueurs convoqués pour le Club Meknassi, Ghanimi et Rachdan présents**: [Link](https://www.elbotola.com/fr/article/2026-10-11-15-45-307.html)
+
+
+### vinicius junior real madrid (N/A, Sun, 11 Oct 2026 10:10:00 -0700)
+
+- **Real Madrid 1-0 Villarreal: Vinicius Jr sent off for hair pull in win**: [Link](https://www.bbc.com/sport/football/live/cx30eppd991et)
+- **Vinícius may miss El Clásico due to possible suspension — Interia Sport**: [Link](https://ua.news/en/sport/vinisius-mozhe-propustiti-el-klasiko-cherez-mozhlivu-diskvalifikatsiiu-interia-sport)
+- **Vinícius: Referee's Report Details Red Card Reaction as El Clásico Hangs in the Balance**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/referee-s-report-raises-concerns-for-vin%C3%ADcius-his-apology-and-el-cl%C3%A1sico-at-risk-2026-10-11)
+
+
+### paul seixas (N/A, Sun, 11 Oct 2026 10:10:00 -0700)
+
+- **Spur of Moment Decision Sees Unexpected Last Race for Il Lombardia Winner Seixas**: [Link](https://velo.outsideonline.com/mountain/mountain-racing/surprise-last-race-il-lombardia-winner-seixas/)
+- **Seixas makes Giro di Lombardia history after riders stage safety protest**: [Link](https://www.theguardian.com/sport/2026/oct/10/giro-di-lombardia-cycling-safety-protest-evenepoel)
+- **'It's a great dream to really be able to compete against Tadej Pogačar' – Paul Seixas takes another step towards his man-made destiny at Il Lombardia**: [Link](https://www.cyclingnews.com/pro-cycling/teams-riders/its-a-great-dream-to-really-be-able-to-compete-against-tadej-pogacar-paul-seixas-takes-another-step-towards-his-man-made-destiny-at-il-lombardia/)
+
+
+### champions league (N/A, Sun, 11 Oct 2026 10:10:00 -0700)
+
+- **Hansi Flick drops major Barcelona lineup hints for Champions League clash vs Galatasaray**: [Link](https://barcauniversal.com/hansi-flick-drops-major-barcelona-lineup-hints-for-champions-league-clash-vs-galatasaray/)
+- **Jules Koundé Speaks About the Galatasaray Match in Barcelona! 'I'm really excited'**: [Link](https://www.fanatik.com.tr/en/jules-kounde-speaks-about-the-galatasaray-match-in-barcelona-im-really-excited-2640557)
+- **Marco Guida to referee Barcelona in Istanbul as Catalan club seeks first win under him**: [Link](https://www.mundodeportivo.com/en/20261011/1004237343/marco-guida-to-referee-barcelona-in-istanbul-as-catalan-club-seeks-first-win-under-him.html)
+
+
 ### r1c3 (N/A, Sun, 11 Oct 2026 06:40:00 -0700)
 
 - **Tiercé. Les pronostics de L'Alsace pour dimanche 11 octobre - Prix Montgomery**: [Link](https://www.lalsace.fr/actualite/2026/10/10/les-pronostics-de-l-alsace-pour-dimanche-11-octobre-prix-montgomery)
