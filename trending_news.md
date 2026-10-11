@@ -1,3 +1,24 @@
+### يوسف النصيري (N/A, Sat, 10 Oct 2026 17:20:00 -0700)
+
+- **فيديو: صاروخ النصيري يفاجئ بونو.. وعناق مغربي بالكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B5%D8%A7%D8%B1%D9%88%D8%AE-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%A8%D9%88%D9%86%D9%88--%D9%88%D8%B9%D9%86%D8%A7%D9%82-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt21949a166bdf9ce4)
+- **شاهد.. ملخص وأهداف كلاسيكو الدوري السعودي بين الهلال والاتحاد**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/10/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B1%D9%88%D8%B4%D9%86)
+- **الهلال يحسم كلاسيكو الاتحاد بثلاثية ويستعيد صدارة الدوري السعودي**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%8A%D8%AD%D8%B3%D9%85-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%88%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/4084775)
+
+
+### إنتر ميامي ضد دي سي يونايتد (N/A, Sat, 10 Oct 2026 17:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي ودي سي يونايتد في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%AF%D9%8A-%D8%B3%D9%8A-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1d67e3d2d5f50536)
+- **القنوات الناقلة لمباراة إنتر ميامي ضد دي سي يونايتد في الدوري الأمريكي الممتاز**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%B6%D8%AF/)
+- **بث مباشر إنتر ميامي ضد دي سي يونايتد في الجولة 28 للدوري الأمريكي 2026**: [Link](https://akher.news/58675/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%B6%D8%AF-%D8%AF%D9%8A-%D8%B3%D9%8A-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A/)
+
+
+### inter miami – dc united (N/A, Sat, 10 Oct 2026 15:50:00 -0700)
+
+- **Breaking News, World News and Video from Al Jazeera**: [Link](https://www.aljazeera.com/sitemap.xml%3Fyyyy=2026/page/28217?dd=26&mm=02%3Fgb%3Dtrue%3Fgb%3Dtrue%3Fgb%3Dtrue)
+- **Inter Miami vs D.C. United line-ups confirmed for MLS Matchday 29**: [Link](https://onefootball.com/en/news/inter-miami-vs-dc-united-line-ups-confirmed-for-mls-matchday-29-43592431)
+- **Fresh off final game with Argentina, Messi leads Miami vs. D.C. United**: [Link](https://www.thenewstribune.com/sports/soccer/article317565841.html)
+
+
 ### طائرة (N/A, Sat, 10 Oct 2026 15:20:00 -0700)
 
 - **مضادات "درون" مصنوعة مغربيا**: [Link](https://www.hespress.com/%D9%85%D8%B6%D8%A7%D8%AF%D8%A7%D8%AA-%D8%AF%D8%B1%D9%88%D9%86-%D9%85%D8%B5%D9%86%D9%88%D8%B9%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-1820996.html)
