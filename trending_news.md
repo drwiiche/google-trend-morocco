@@ -1,3 +1,10 @@
+### algérie (N/A, Sun, 11 Oct 2026 22:30:00 -0700)
+
+- **L’Algérie déclare avoir arrêté 61 Marocains soupçonnés de préparer « des actes de sabotages »**: [Link](https://www.lemonde.fr/afrique/article/2026/10/12/l-algerie-declare-avoir-arrete-61-marocains-soupconnes-de-preparer-des-actes-de-sabotages_6792242_3212.html)
+- **DGSN : Démantèlement d'un réseau criminel international marocain qui préparait des actes de sabotage sur le territoire national - Actualités**: [Link](https://www.lesoirdalgerie.com/actualites/demantelement-d-un-reseau-criminel-international-marocain-qui-preparait-des-actes-de-sabotage-sur-le-territoire-national-158533)
+- **Algérie : 61 Marocains qui « préparaient des actes de sabotage » arrêtés à Oran**: [Link](https://www.tsa-algerie.com/algerie-61-marocains-qui-preparaient-des-actes-de-sabotage-arretes/)
+
+
 ### felipe vi (N/A, Sun, 11 Oct 2026 16:50:00 -0700)
 
 - **El Rey visita la base de la OTAN más cercana a Rusia: “El Ártico es el epicentro de la geopolítica que definirá Europa”**: [Link](https://elpais.com/espana/2026-10-07/el-rey-visita-la-base-de-la-otan-mas-cercana-a-rusia-el-artico-es-el-epicentro-de-la-geopolitica-que-definira-europa.html)
