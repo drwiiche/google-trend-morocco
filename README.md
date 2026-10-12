@@ -1,3 +1,71 @@
+### foot salle maroc (N/A, Mon, 12 Oct 2026 10:00:00 -0700)
+
+- **61 Marocains arrêtés en Algérie: le régime ne fait pas la guerre au «Makhzen», mais aux Marocains**: [Link](https://fr.le360.ma/politique/61-marocains-arretes-en-algerie-le-regime-ne-fait-pas-la-guerre-au-makhzen-mais-aux-marocains_2X4J3DHYWJCQPDXUNT5WJUBWMM/)
+- **DGSN : Démantèlement d'un réseau criminel international marocain qui préparait des actes de sabotage sur le territoire national - Actualités**: [Link](https://www.lesoirdalgerie.com/actualites/demantelement-d-un-reseau-criminel-international-marocain-qui-preparait-des-actes-de-sabotage-sur-le-territoire-national-158533)
+- **« Ils s’apprêtaient à commettre des actes de sabotage » : l’Algérie arrête 61 Marocains entrés clandestinement dans le pays**: [Link](https://www.leparisien.fr/international/ils-sappretaient-a-commettre-des-actes-de-sabotage-lalgerie-arrete-61-marocains-entres-clandestinement-dans-le-pays-12-10-2026-LHX7UZVUBVA7BCSQSRJKGDSZOU.php)
+
+
+### إلهان عمر (N/A, Mon, 12 Oct 2026 09:20:00 -0700)
+
+- **السلطات الأمريكية تداهم منزل النائبة إلهان عمر.. ما الذي تبحث عنه؟**: [Link](https://www.aljazeera.net/news/2026/10/12/%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%AA%D8%AF%D8%A7%D9%87%D9%85-%D9%85%D9%86%D8%B2%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%A6%D8%A8%D8%A9)
+- **عملاء فيدراليون يفتشون منزل النائبة الأميركية إلهان عمر في إطار تحقيق جنائي**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/10/12/%D8%B9%D9%85%D9%84%D8%A7%D8%A1-%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D9%8A%D9%86-%D9%8A%D9%81%D8%AA%D8%B4%D9%88%D9%86-%D9%85%D9%86%D8%B2%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%A6%D8%A8%D8%A9-%D8%A7%D9%84%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%87%D8%A7%D9%86-%D8%B9%D9%85%D8%B1-%D9%81%D9%8A-%D8%A7%D8%B7%D8%A7%D8%B1-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%AC%D9%86%D8%A7%D8%A6%D9%8A)
+- **تحقيق جنائي يطال إلهان عمر.. تفتيش منزلها في واشنطن**: [Link](https://www.skynewsarabia.com/world/1897895-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%AC%D9%86%D8%A7%D8%A6%D9%8A-%D9%8A%D8%B7%D8%A7%D9%84-%D8%A5%D9%84%D9%87%D8%A7%D9%86-%D8%B9%D9%85%D8%B1-%D8%AA%D9%81%D8%AA%D9%8A%D8%B4-%D9%85%D9%86%D8%B2%D9%84%D9%87%D8%A7-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86)
+
+
+### عثمان معما (N/A, Mon, 12 Oct 2026 09:10:00 -0700)
+
+- **المطرب الانجليزي إلتون جون "مستاء ومحبط" من مستوى فريق واتفورد**: [Link](https://twaslnews1.twaslnews.com/5870830/)
+- **واتفورد مهدد بفقدان عثمان معما في يناير**: [Link](https://www.almountakhab.com/node/13231536)
+- **معما حل بديلا في هزيمة قاسية لواتفورد**: [Link](https://inews.ma/news/8717794)
+
+
+### iphone 18 (N/A, Mon, 12 Oct 2026 08:50:00 -0700)
+
+- **Exclusive: Apple cuts iPhone 18 Pro orders due to soft demand**: [Link](https://asia.nikkei.com/business/technology/exclusive-apple-cuts-iphone-18-pro-orders-due-to-soft-demand)
+- **Morgan Stanley: Channel checks indicate soft demand for iPhone 18 models**: [Link](https://www.cnbc.com/video/2026/10/12/morgan-stanley-channel-checks-indicate-soft-demand-for-iphone-18-models.html)
+- **Is iPhone 18 demand cooling off? Here’s how deep Apple reportedly is cutting component orders.**: [Link](https://www.marketwatch.com/story/is-iphone-18-demand-cooling-off-heres-how-deep-apple-reportedly-is-cutting-component-orders-a44244ee)
+
+
+### al wasl – al-ahli saudi (N/A, Mon, 12 Oct 2026 08:40:00 -0700)
+
+- **"It was disappointing for us" - Daniel Svensson reflects on the draw to Werder Bremen**: [Link](https://bvbbuzz.com/it-was-disappointing-for-us-daniel-svensson-reflects-on-the-draw-to-werder-bremen-01m4r8f98tsz)
+- **Al Quwa Al Jawiya vs Al-Ain: Where to watch, TV channel, live stream & kick-off time | AFC Champions League Elite**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-al-quwa-al-jawiya-v-al-ain/blt49f6b90c58eefdc7)
+- **Licensable picture: VfL Bochum - DSC Arminia Bielefeld**: [Link](https://www.reutersconnect.com/item/vfl-bochum-dsc-arminia-bielefeld/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUREUE1FREREUDI5NDYxODM1)
+
+
+### كأس الأمم الإفريقية لكرة الصالات (N/A, Mon, 12 Oct 2026 08:40:00 -0700)
+
+- **المنتخب الوطني لكرة القدم داخل القاعة ينهي استعداداته لكأس إفريقيا للأمم**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D9%8A%D9%86%D9%87%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D8%A7%D8%AA%D9%87-%D9%84%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A3%D9%85%D9%85)
+- **المغرب يستهل رحلة الدفاع عن لقب كأس الأمم الأفريقية لكرة الصالات CAF توتال انرجيز بمواجهة الجزائر في ديربي شمال أفريقيا ضمن بطولة كأس أمم أفريقيا لكرة الصالات**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D9%87%D9%84-%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%B9%D9%86-%D9%84%D9%82%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-caf-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A7%D9%86%D8%B1%D8%AC%D9%8A%D8%B2-%D8%A8%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%B4%D9%85%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%B6%D9%85%D9%86-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%A7%D8%AA/)
+- **المغرب يدافع عن لقب "كان الفوتسال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D9%84%D9%82%D8%A8-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1821333.html)
+
+
+### essence (N/A, Mon, 12 Oct 2026 08:00:00 -0700)
+
+- **Du diesel à partir de 2,24 €/L ce lundi 12 octobre : jusqu’à 0,11 €/L de moins sur la moyenne dans les stations-service les moins chères**: [Link](https://www.turbo.fr/actualite-automobile/du-diesel-partir-de-224-eu/l-ce-lundi-12-octobre-jusqua-011-eu/l-de-moins-sur-la-moyenne-dans-les-stations-service-les-moins-cheres-203969)
+- **Carburants en Seine-et-Marne : où faire le plein d'essence ou de gazole au meilleur prix ce lundi 12 octobre**: [Link](https://www.leparisien.fr/economie/consommation/carburants-en-seine-et-marne-ou-faire-le-plein-dessence-ou-de-gazole-au-meilleur-prix-ce-lundi-12-octobre-12-10-2026-KUSA3PNJABHPFIOPRIEIPE2HKU.php)
+- **Prix des carburants : voici les tarifs en France ce lundi 12 octobre 2026**: [Link](https://media.roole.fr/quotidien/au-volant/prix-des-carburants-voici-les-tarifs-en-france-ce-lundi-12-octobre-2026)
+
+
+### le360 sport (N/A, Mon, 12 Oct 2026 07:50:00 -0700)
+
+
+
+
+### djibouti (N/A, Mon, 12 Oct 2026 07:40:00 -0700)
+
+- **139 migrants, including children, die after boat capsizes off Djibouti**: [Link](https://apnews.com/article/migrants-boat-shipwreck-djibouti-africa-yemen-a9e324ca36a7d9dee0e745c736c8aa95)
+- **139 people dead, including 15 children, after migrant boat capsizes off Africa: "Overwhelmed with all the bodies"**: [Link](https://www.cbsnews.com/news/migrant-boat-capsizes-djibouti-over-100-dead/)
+- **Djibouti shipwreck: Death toll rises to 139 as 84 remain missing**: [Link](https://news.un.org/en/story/2026/10/1168573)
+
+
+### الجزائر (N/A, Mon, 12 Oct 2026 07:00:00 -0700)
+
+- **"مسرحيات الأمن الجزائري" ضد المغاربة تفجر جدلا حول صناعة العدو الخارجي**: [Link](https://www.hespress.com/%D9%85%D8%B3%D8%B1%D8%AD%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D8%AA-1821723.html)
+- **الأمن الجزائري يعلن توقيف 61 مغربيا بينهم عسكري سابق بشبهة "التحضير لأعمال تخريبية"**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D9%88%D9%82%D9%8A%D9%81-61-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-%D8%A8%D9%8A%D9%86%D9%87/)
+- **اعتقال 61 مغربيا في الجزائر: النظام لا يحارب «المخزن» بل يستهدف المغاربة**: [Link](https://ar.le360.ma/politique/2GOSQ33PY5CM7GBG3HSBTJOSKM/)
+
+
 ### algérie (N/A, Sun, 11 Oct 2026 22:30:00 -0700)
 
 - **L’Algérie déclare avoir arrêté 61 Marocains soupçonnés de préparer « des actes de sabotages »**: [Link](https://www.lemonde.fr/afrique/article/2026/10/12/l-algerie-declare-avoir-arrete-61-marocains-soupconnes-de-preparer-des-actes-de-sabotages_6792242_3212.html)
