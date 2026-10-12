@@ -1,3 +1,73 @@
+### ترتيب الدوري المغربي (N/A, Mon, 12 Oct 2026 15:00:00 -0700)
+
+- **الدوري الاحترافي الثاني.. صراع الصدارة يشتد بعد مباريات الجولة الثالثة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%8A%D8%B4%D8%AA%D8%AF-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9/26393)
+- **الجولة الرابعة من البطولة الاحترافية.. الحسنية والجيش يقصان شريط البداية مساء اليوم**: [Link](https://kifache.com/%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9/)
+- **صدامات قوية في القمة والقاع في الجولة الرابعة من الدوري الاحترافي**: [Link](https://www.hesport.com/%D8%B5%D8%AF%D8%A7%D9%85%D8%A7%D8%AA-%D9%82%D9%88%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D8%A7%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7-457456.html)
+
+
+### as far (N/A, Mon, 12 Oct 2026 14:50:00 -0700)
+
+- **Late El Fahli Penalty Rescues AS FAR in 2-2 Draw With Hassania Agadir**: [Link](https://www.moroccoworldnews.com/2026/10/341810/late-el-fahli-penalty-rescues-as-far-in-2-2-draw-with-hassania-agadir/)
+- **HUSA vs FAR Rabat match lineup | Botola Pro · 12 Oct 2026**: [Link](https://www.ysscores.com/en/lineup/81018576/Hassania-dAgadir-vs-AS-FAR-Rabat)
+- **Match Highlights HUSA - FAR Rabat**: [Link](https://www.ysscores.com/en/video/373100)
+
+
+### سفينة (N/A, Mon, 12 Oct 2026 14:40:00 -0700)
+
+- **قفزت من سفينة واختفت في البحر.. النهاية بعد 20 ساعة**: [Link](https://www.skynewsarabia.com/varieties/1897900-%D9%82%D9%81%D8%B2%D8%AA-%D8%B3%D9%81%D9%8A%D9%86%D8%A9-%D9%88%D8%A7%D8%AE%D8%AA%D9%81%D8%AA-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D9%8A%D8%A9-20-%D8%B3%D8%A7%D8%B9%D8%A9)
+- **إنقاذ امرأة تبلغ 44 عاما بعد 20 ساعة في البحر تقول خفر السواحل اليوناني**: [Link](https://arabic.euronews.com/2026/10/12/a-44-year-old-cruise-passenger-was-rescued-after-spending-20-hours-at-sea-according-to-the)
+- **اليونان: إنقاذ امرأة قضت 20 ساعة في البحر بعد قفزها من سفينة**: [Link](https://www.alkhaleej.ae/2026-10-12/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%A7%D9%84%D9%8A%D9%88%D9%86%D8%A7%D9%86-%D8%A5%D9%86%D9%82%D8%A7%D8%B0-%D8%A7%D9%85%D8%B1%D8%A3%D8%A9-%D9%82%D8%B6%D8%AA-20-%D8%B3%D8%A7%D8%B9%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A8%D8%B9%D8%AF-%D9%82%D9%81%D8%B2%D9%87%D8%A7-%D9%85%D9%86-%D8%B3%D9%81%D9%8A%D9%86%D8%A9)
+
+
+### حكيم زياش (N/A, Mon, 12 Oct 2026 14:40:00 -0700)
+
+- **تيتي يفاجئ زياش بقرار غير مخطط له في البداية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%8A%D8%AA%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AE%D8%B7%D8%B7-%D9%84%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9/blt50dc7611e08576a8)
+- **مدرب بوتافوغو يشيد بمؤهلات زياش**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%BA%D9%88-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D9%85%D8%A4%D9%87%D9%84%D8%A7%D8%AA-%D8%B2%D9%8A%D8%A7%D8%B4-1820880.html)
+- **بوتافوغو البرازيلي يوثق مسيرة حكيم زياش في فيلم وثائقي**: [Link](https://www.marrakechalaan.com/article-697838)
+
+
+### إسبانيا (N/A, Mon, 12 Oct 2026 14:30:00 -0700)
+
+- **العاهل الإسباني يواجه مكر التاريخ وعناد الجغرافيا في سبتة ومليلية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%87%D9%84-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D9%83%D8%B1-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%88%D8%B9%D9%86-1821812.html)
+- **عودة أكثر من 11 ألف مهاجر مغربي من سبتة المحتلة منذ بداية غشت بعد أزمة العبور الجماعي**: [Link](https://ar.telquel.ma/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%88%D8%B2%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AF%D8%AE%D9%88%D9%84-%D8%B3%D9%81%D9%86-%D8%B9%D8%B3/)
+- **سانشيز يؤكد دخول سفن حربية مغربية مياه سبتة في تموز الماضي**: [Link](https://www.alquds.co.uk/%D8%B3%D8%A7%D9%86%D8%B4%D9%8A%D8%B2-%D9%8A%D8%A4%D9%83%D8%AF-%D8%AF%D8%AE%D9%88%D9%84-%D8%B3%D9%81%D9%86-%D8%AD%D8%B1%D8%A8%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%85%D9%8A%D8%A7%D9%87/)
+
+
+### classement coventry city – newcastle united football club (N/A, Mon, 12 Oct 2026 14:30:00 -0700)
+
+- **Coventry City 4-1 Newcastle United: Sky Blues win first Premier League home game in 25 years**: [Link](https://www.bbc.com/sport/football/live/cwm23l547e4pt)
+- **Coventry 4-1 Newcastle (Oct 12, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401879267)
+- **Coventry land long-awaited home win as Mfuni seals rout of Newcastle**: [Link](https://www.theguardian.com/football/2026/oct/12/coventry-newcastle-premier-league-match-report)
+
+
+### équipe du maroc féminine de football (N/A, Mon, 12 Oct 2026 14:10:00 -0700)
+
+- **Match amical: composition du Maroc face à l'Ouzbékistan**: [Link](https://frmf.ma/fr/articles/article-23)
+- **Lionnes de l’Atlas : le Maroc accroché par l’Ouzbékistan**: [Link](https://radiomars.ma/fr/?p=6785)
+- **Jorge Vilda : Marca évoque un possible maintien au sein de la FRMF**: [Link](https://maroc-diplomatique.net/jorge-vilda-marca-evoque-un-possible-maintien-au-sein-de-la-frmf/)
+
+
+### breaking bad (N/A, Mon, 12 Oct 2026 14:00:00 -0700)
+
+- **RJ Mitte Dies: ‘Breaking Bad’ Actor Was 34**: [Link](https://deadline.com/2026/10/rj-mitte-dead-breaking-bad-actor-1237155037/)
+- **Breaking Bad actor RJ Mitte dies aged 34**: [Link](https://www.bbc.com/news/articles/cmn045en7d88o)
+- **RJ Mitte, ‘Breaking Bad’ Star, Dies at 34**: [Link](https://variety.com/2026/tv/news/rj-mitte-dead-breaking-bad-1236909451/)
+
+
+### منحة دراسية (N/A, Mon, 12 Oct 2026 14:00:00 -0700)
+
+- **التضامن تطلق 30 منحة دراسية لدبلومة الإرشاد والدعم النفسى**: [Link](https://www.nile.eg/%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D8%AA%D8%B7%D9%84%D9%82-30-%D9%85%D9%86%D8%AD%D8%A9-%D8%AF%D8%B1%D8%A7%D8%B3%D9%8A%D8%A9-%D9%84%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%A5%D8%B1)
+- **وزارة التضامن وجامعة عين شمس تجريان مقابلات دبلوم الإرشاد النفسي للأطفال**: [Link](https://www.youm7.com/7573822)
+- **أحدث أخبار مصر والعالم**: [Link](https://ekhbary24.com/article/%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D9%85%D8%B5%D8%B1-%D8%AA%D8%B7%D9%84%D9%82-30-%D9%85%D9%86%D8%AD%D8%A9-%D9%84%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%86%D9%81%D8%B3%D9%8A-%D9%84%D9%84%D8%A3%D8%B7%D9%81%D8%A7%D9%84)
+
+
+### far (N/A, Mon, 12 Oct 2026 14:00:00 -0700)
+
+- **’Bridgerton’ Spinoff About Young Lady Violet Greenlit At Netflix With Shonda Rhimes Writing**: [Link](https://deadline.com/2026/10/bridgerton-lady-violet-prequel-spinoff-in-works-shonda-1237149546/)
+- **Netflix Officially Confirms Its Most-Watched Steamy Hit Is Getting a New Spin-Off Series**: [Link](https://www.imdb.com/news/ni66057406/?ref_=ttnw_art_perm)
+- **Licensable video: REFILE: New ‘Bridgerton’ series to follow young Violet and Edmund Bridgerton romance**: [Link](https://www.reutersconnect.com/item/refile-new-bridgerton-series-to-follow-young-violet-and-edmund-bridgerton-romance/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1ZBODc4ODA5MTAyMDI2UlAx)
+
+
 ### foot salle maroc (N/A, Mon, 12 Oct 2026 10:00:00 -0700)
 
 - **61 Marocains arrêtés en Algérie: le régime ne fait pas la guerre au «Makhzen», mais aux Marocains**: [Link](https://fr.le360.ma/politique/61-marocains-arretes-en-algerie-le-regime-ne-fait-pas-la-guerre-au-makhzen-mais-aux-marocains_2X4J3DHYWJCQPDXUNT5WJUBWMM/)
