@@ -1,3 +1,29 @@
+### felipe vi (N/A, Sun, 11 Oct 2026 16:50:00 -0700)
+
+- **El Rey visita la base de la OTAN más cercana a Rusia: “El Ártico es el epicentro de la geopolítica que definirá Europa”**: [Link](https://elpais.com/espana/2026-10-07/el-rey-visita-la-base-de-la-otan-mas-cercana-a-rusia-el-artico-es-el-epicentro-de-la-geopolitica-que-definira-europa.html)
+- **Felipe VI cierra en Finlandia un viaje de Estado que consolida el soft power de la Corona**: [Link](https://www.moncloa.com/2026/10/11/felipe-vi-finlandia-viaje-estado-3446427/)
+- **Licensable video: Felipe VI, convencido de la solidaridad de la UE para responder a cualquier amenaza al sur**: [Link](https://www.reutersconnect.com/item/felipe-vi-convencido-de-la-solidaridad-de-la-ue-para-responder-a-cualquier-amenaza-al-sur/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzcwMDE2MTk5NjMwMDE)
+
+
+### برج فلكي (N/A, Sun, 11 Oct 2026 16:30:00 -0700)
+
+- **برج القوس.. حظك اليوم الإثنين 12 أكتوبر: مساحة للتجديد**: [Link](https://www.youm7.com/story/2026/10/12/%D8%A8%D8%B1%D8%AC-%D8%A7%D9%84%D9%82%D9%88%D8%B3-%D8%AD%D8%B8%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-12-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%85%D8%B3%D8%A7%D8%AD%D8%A9-%D9%84%D9%84%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF/7571649)
+- **فرصة جديدة تعيد لك الحماس وتغير نظرتك للمستقبل.. مفاجآت الفلك لمولود برج القوس اليوم**: [Link](https://www.elwatannews.com/news/details/8374275)
+- **برج القوس حظك اليوم السبت 10 أكتوبر 2026.. مفاجآت في الطريق**: [Link](https://www.elbalad.news/7135737)
+
+
+### zabiri (N/A, Sun, 11 Oct 2026 16:00:00 -0700)
+
+- **Zabiri Scores His 7th La Liga Goal in Racing Santander’s 2-2 Draw with Valencia**: [Link](https://www.moroccoworldnews.com/2026/10/341676/zabiri-scores-his-7th-la-liga-goal-in-racing-santanders-2-2-draw-with-valencia/)
+- **Tickets for Racing de Santander vs Valencia CF — LaLiga**: [Link](https://karlobag.eu/en/sports/news/racing-de-santander-vs-valencia-cf-laliga-tickets-xgyey/)
+- **Real Racing Club 2-2 Valencia: Vicente shines**: [Link](https://www.sofascore.com/news/real-racing-club-2-2-valencia-vicente-runs-the-show-in-lively-laliga-draw)
+
+
+### استثمار (N/A, Sun, 11 Oct 2026 15:30:00 -0700)
+
+
+
+
 ### ترتيب الدوري المغربي (N/A, Sun, 11 Oct 2026 15:20:00 -0700)
 
 - **تواركة يواصل صحوته**: [Link](https://assabah.ma/954975.html)
