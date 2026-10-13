@@ -1,3 +1,17 @@
+### pedro sánchez (N/A, Mon, 12 Oct 2026 17:10:00 -0700)
+
+- **Elecciones generales 29N, última hora en directo: Pedro Sánchez, encuestas, precampaña electoral, vivienda...**: [Link](https://as.com/actualidad/politica/elecciones-generales-29n-ultima-hora-en-directo-pedro-sanchez-encuestas-precampana-electoral-vivienda-f202610-d/)
+- **Última hora de las elecciones generales, en directo | El Gobierno lamenta la decisión del Supremo de mantener suspendido el voto por la ley de nietos**: [Link](https://www.epe.es/es/actualidad/20261012/sanchez-elecciones-generales-29-noviembre-directo-134914797)
+- **Elecciones generales del 29-N, en directo: Sánchez, Ester Muñoz y Abascal protagonizan los actos de campaña este domingo**: [Link](https://www.vozpopuli.com/espana/elecciones-generales-del-29-n-en-directo-sanchez-bendodo-ester-munoz-y-abascal-protagonizan-los-actos-de-campana.html)
+
+
+### classement hassania agadir – far rabat (N/A, Mon, 12 Oct 2026 16:20:00 -0700)
+
+- **Botola Pro Inwi : L’AS FAR sauve le point du nul face au Hassania d’Agadir (2-2)**: [Link](https://radiomars.ma/fr/?p=6788)
+- **Botola: le Hassania Agadir et l’AS FAR dos à dos (2-2)**: [Link](https://sport.le360.ma/football/botola/botola-le-hassania-agadir-et-las-far-dos-a-dos-2-2_WIJW6XMY6FF2ZLA6AUFO3Z3IVE/)
+- **Gonçalves (AS FAR) : « Nous avons fait ce qu'il fallait… le HUSA n'a pas eu beaucoup d'occasions de nous menacer »**: [Link](https://www.elbotola.com/fr/article/2026-10-12-23-34-971.html)
+
+
 ### ترتيب الدوري المغربي (N/A, Mon, 12 Oct 2026 15:00:00 -0700)
 
 - **الدوري الاحترافي الثاني.. صراع الصدارة يشتد بعد مباريات الجولة الثالثة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%8A%D8%B4%D8%AA%D8%AF-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9/26393)
