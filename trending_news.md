@@ -1,3 +1,59 @@
+### إيرلينغ هالاند (N/A, Tue, 13 Oct 2026 03:40:00 -0700)
+
+- **بعد أيام من الإدانة بالغش.. هالاند وجوارديولا يبيعون قصور مانشستر سيتي في أبوظبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D9%8A%D8%A7%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%95%D8%AF%D8%A7%D9%86%D8%A9-%D8%A8%D8%A7%D9%84%D8%BA%D8%B4--%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%A8%D9%8A%D8%B9%D9%88%D9%86-%D9%82%D8%B5%D9%88%D8%B1-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%94%D8%A8%D9%88%D8%B8%D8%A8%D9%8A/blt47137ba8793461e5)
+- **هالاند يتملك فيلا في «مانشستر ريزيدنسز - أبوظبي»**: [Link](https://www.alkhaleej.ae/2026-10-12/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%8A%D8%AA%D9%85%D9%84%D9%83-%D9%81%D9%8A%D9%84%D8%A7-%D9%81%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B1%D9%8A%D8%B2%D9%8A%D8%AF%D9%86%D8%B3%D8%B2-%D8%A3%D8%A8%D9%88%D8%B8%D8%A8%D9%8A)
+- **جار جوارديولا.. ما قصة عقار هالاند الجديد في أبوظبي؟**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%A7%D8%B1-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%85%D8%A7-%D9%82%D8%B5%D8%A9-%D8%B9%D9%82%D8%A7%D8%B1-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A/)
+
+
+### ayyoub bouaddi (N/A, Tue, 13 Oct 2026 03:00:00 -0700)
+
+- **Why did Paris Saint-Germain overlook the Ayoub Bouaddi deal?**: [Link](https://www.livescore.com/en/news/football/club-world-cup/why-did-paris-saint-germain-overlook-the-ayoub-bouaddi-deal-goal/)
+- **Why did Paris Saint-Germain overlook the Ayoub Bouaddi deal?**: [Link](https://www.goal.com/en/news/why-did-paris-saint-germain-overlook-the-ayoub-bouaddi-deal/blt6170f6e992e10f23)
+- **Eden Hazard, Nicolas Pépé, Gabriel, Ayyoub Bouaddi and the sales that made Lille kings in England**: [Link](https://onefootball.com/en/news/eden-hazard-nicolas-pepe-gabriel-ayyoub-bouaddi-and-the-sales-that-made-lille-kings-in-england-43603385)
+
+
+### équipe du maroc de football (N/A, Tue, 13 Oct 2026 02:20:00 -0700)
+
+- **CAN futsal Maroc-2026 (1ère journée): composition du Maroc face à l'Algérie**: [Link](https://frmf.ma/fr/articles/can-futsal-maroc-2026-1ere-journee-composition-du-maroc-face-a-lalgerie)
+- **CAN de Futsal 2026 : tous les matches en direct sur CAF TV**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-de-futsal/infos/can-de-futsal-2026-tous-les-matches-en-direct-sur-caf-tv/)
+- **CAN FUTSAL 2026 : la Libye s’incline face à la Zambie**: [Link](https://fr.hespress.com/491966-can-futsal-2026-la-libye-sincline-face-a-la-zambie.html)
+
+
+### nouveau gouvernement marocain (N/A, Tue, 13 Oct 2026 01:40:00 -0700)
+
+- **Officiel. Formation du gouvernement : le PAM s’allie à l'Istiqlal, au PPS et à l’USFP**: [Link](https://medias24.com/2026/10/12/officiel-formation-du-gouvernement-le-pam-sallie-a-listiqlal-au-pps-et-a-lusfp-1777747/)
+- **Fatima Ezzahra El Mansouri annonce une majorité avec le PAM, l’Istiqlal, le PPS et l’USFP**: [Link](https://ledesk.ma/2026/10/12/fatima-ezzahra-el-mansouri-annonce-une-majorite-avec-le-pam-listiqlal-le-pps-et-lusfp/)
+- **Gouvernement El Mansouri: les mesures envisagées pour les 100 premiers jours**: [Link](https://fr.le360.ma/politique/gouvernement-el-mansouri-les-premieres-mesures-envisagees-pour-les-100-premiers_FTAJIL6ZYRHTNMHPHI24YECKXQ/)
+
+
+### الثلاثاء (N/A, Tue, 13 Oct 2026 01:10:00 -0700)
+
+- **توقعات طقس اليوم الثلاثاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-104-1821933.html)
+- **زخات رعدية متوقعة اليوم الأربعاء**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D9%85%D9%85%D8%B7%D8%B1-%D9%85%D8%B9-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7/)
+- **الأرصاد تحذر 27 إقليما من أمطار مصحوبة بـ”التبروري” والرياح اليوم الأحد**: [Link](https://al3omk.com/1195534.html)
+
+
+### carburant (N/A, Mon, 12 Oct 2026 22:40:00 -0700)
+
+- **Le gouvernement assure que les prix du gazole baisseront dès le 1er novembre**: [Link](https://medias24.com/agence-presse/le-gouvernement-assure-que-les-prix-du-gazole-baisseront-des-le-1er-novembre/)
+- **Prix du gazole : baisse de 18 centimes par litre pendant 3 mois**: [Link](https://www.info.gouv.fr/actualite/baisse-du-prix-du-gazole-ce-qui-va-changer-a-la-pompe)
+- **Comment passe-t-on d’un mouvement social à des transformations politiques ?**: [Link](https://www.cafepedagogique.net/2026/10/13/comment-passe-t-on-dun-mouvement-social-a-des-transformations-politiques/)
+
+
+### salon international du cheval d'el jadida (N/A, Mon, 12 Oct 2026 22:20:00 -0700)
+
+- **Moulay El Hassan préside l'ouverture du 17è Salon du Cheval d'El Jadida**: [Link](https://fr.hespress.com/491954-moulay-el-hassan-preside-louverture-du-17e-salon-du-cheval-del-jadida.html)
+- **Dr El Habib Marzak : “Le cheval est un ambassadeur de l’histoire et de l’identité marocaines”**: [Link](https://mobile.telquel.ma/2026/10/12/dr-el-habib-marzak-le-cheval-est-un-ambassadeur-de-lhistoire-et-de-lidentite-marocaines_2012437)
+- **Maroc: lancement du 17e Salon du Cheval d’El Jadida**: [Link](https://fr.apanews.net/society/maroc-lancement-du-17e-salon-du-cheval-del-jadida/)
+
+
+### eliesse ben seghir (N/A, Mon, 12 Oct 2026 21:10:00 -0700)
+
+- **Martínez Sends Warning To Eliesse Ben Seghir After Another Injury Setback**: [Link](https://sports.yahoo.com/articles/mart-nez-sends-warning-eliesse-100446489.html)
+- **Four Big Positives For Leverkusen In 6-0 Fortuna Köln Win**: [Link](https://roundtable.io/sports/soccer/bundesliga/bayer-leverkusen/news/four-big-positives-for-leverkusen-in-6-0-fortuna-koln-win)
+- **Leverkusen: new injury for Ben Seghir**: [Link](https://mountakhab.net/en/leverkusen-new-injury-for-ben-seghir/)
+
+
 ### pedro sánchez (N/A, Mon, 12 Oct 2026 17:10:00 -0700)
 
 - **Elecciones generales 29N, última hora en directo: Pedro Sánchez, encuestas, precampaña electoral, vivienda...**: [Link](https://as.com/actualidad/politica/elecciones-generales-29n-ultima-hora-en-directo-pedro-sanchez-encuestas-precampana-electoral-vivienda-f202610-d/)
