@@ -1,3 +1,73 @@
+### barca (N/A, Tue, 13 Oct 2026 10:50:00 -0700)
+
+- **Barcelona star to return to starting XI vs Galatasaray**: [Link](https://sports.yahoo.com/articles/barcelona-star-return-starting-xi-161000080.html)
+- **Galatasaray vs. Barcelona: Livestream Champions League Soccer From Anywhere**: [Link](https://www.cnet.com/tech/services-and-software/galatasaray-vs-barcelona-livestream-champions-league-soccer-from-anywhere/)
+- **Hansi Flick: 'One of the best atmospheres'**: [Link](https://www.fcbarcelona.com/en/football/first-team/news/4591109/hansi-flick-one-of-the-best-atmospheres)
+
+
+### al ittihad – shabab al-ahli (N/A, Tue, 13 Oct 2026 10:40:00 -0700)
+
+- **For the first time: Wijnaldum leads Al-Ittihad against Shabab Al-Ahli, and the return of the Al-Hilal casualties**: [Link](https://www.goal.com/en-in/news/for-the-first-time-wijnaldum-leads-al-ittihad-against-shabab-al-ahli-and-the-return-of-the-al-hilal-casualties/blta01743a126ed918f)
+- **Shabab Al Ahli faces a tough test against Al Ittihad of Saudi Arabia in an Asian summit clash in Jeddah**: [Link](https://www.voiceofemirates.com/en/emirates/2026/10/13/shabab-al-ahli-faces-a-tough-test-against-al-ittihad-of-saudi-arabia-in-an-asian-summit-clash-in-jeddah/)
+- **Al Ittihad vs Shabab Al-Ahli match lineup | AFC Champions League Elite · 13 Oct 2026**: [Link](https://www.ysscores.com/en/lineup/6050079/Al-Ittihad-Club-vs-Shabab-Al-Ahli-Club)
+
+
+### barca vs (N/A, Tue, 13 Oct 2026 10:40:00 -0700)
+
+- **Galatasaray - Barcelona hoy, en directo: fase liga de Champions League, última hora en vivo**: [Link](https://as.com/futbol/champions/galatasaray-barcelona-en-directo-previa-y-ultima-hora-de-la-champions-league-hoy-en-vivo-f202610-d/)
+- **¡Dani Olmo saldrá como delantero centro ante el Galatasaray!**: [Link](https://www.sport.es/es/noticias/barca/dani-olmo-saldra-delantero-centro-135293898)
+- **Hansi Flick: "Es un privilegio vivir este momento, pero en el fútbol las cosas pueden cambiar muy rápido"**: [Link](https://www.marca.com/futbol/barcelona/2026/10/12/hansi-flick-privilegio-vivir-momento-futbol-cosas-cambiar-rapido.html)
+
+
+### anticyclone (N/A, Tue, 13 Oct 2026 09:40:00 -0700)
+
+- **Météo demain : brouillards le matin, éclaircies l’après-midi et grande douceur, jusqu'à 27°C à Biarritz**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-10-13/meteo-demain-brouillards-le-matin-eclaircies-l-apres-midi-et-grande-douceur-jusqu-a-27-c-a-biarritz-93102)
+- **Météo. Un temps brumeux puis ensoleillé ce mercredi sur la Saône-et-Loire**: [Link](https://www.lejsl.com/environnement/2026/10/13/un-temps-brumeux-puis-ensoleille-ce-mercredi-sur-la-saone-et-loire)
+- **Du brouillard dans la matinée et des températures douces dans une bonne partie du pays : découvrez la météo du 14 octobre**: [Link](https://www.lefigaro.fr/meteo/du-brouillard-dans-la-matinee-et-des-temperatures-douces-dans-une-bonne-partie-du-pays-decouvrez-la-meteo-du-14-octobre-20261013)
+
+
+### galatasaray (N/A, Tue, 13 Oct 2026 09:40:00 -0700)
+
+- **Galatasaray ve Barcelona yönetimi dostluk yemeğinde buluştu**: [Link](https://www.buyuksehirarena.com/2026/10/galatasaray-ve-barcelona-yonetimi-dostluk-yemeginde-bulustu/)
+- **Livakovic kimdir, Livakovic Fenerbahçe'de oynadı mı, ne zaman oynadı?**: [Link](https://www.haberler.com/haber/livakovic-kimdir-livakovic-fenerbahcede-oynadi-mi-20326450-haberi/)
+- **Pau Cubarsi: Yamal, dünyanın en iyisi**: [Link](https://www.fanatik.com.tr/video/video-pau-cubarsi-yamal-dunyanin-en-iyisi-2640760)
+
+
+### ucl (N/A, Tue, 13 Oct 2026 09:40:00 -0700)
+
+- **Six players set to miss Atletico Madrid vs Man United after double injury blow**: [Link](https://www.manchestereveningnews.co.uk/sport/football/football-news/united-man-utd-atletico-madrid-34755358)
+- **Michael Carrick and the Pressure at Manchester United in the Premier League to Atlético in the Champions League**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/michael-carrick-and-the-pressure-at-manchester-united-in-the-premier-league-to-atl%C3%A9tico-in-the-champions-league-2026-10-13)
+- **"Lee Kang-in's bench start in the previous match was for the Manchester United game," Spanish local media predict UCL starting lineup... "Top-tier alongside Alvarez and Baena"**: [Link](https://www.starnewskorea.com/en/sports/2026/10/13/2026101311203493044)
+
+
+### السد ضد الهلال (N/A, Tue, 13 Oct 2026 09:30:00 -0700)
+
+- **مباشر مباراة السد ضد الهلال في دوري أبطال آسيا للنخبة.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/13/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85)
+- **عودة سافيتش.. سامرفيل يحل أزمة إنزاجي في الهلال أمام السد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D8%B3%D8%A7%D9%81%D9%8A%D8%AA%D8%B4--%D8%B3%D8%A7%D9%85%D8%B1%D9%81%D9%8A%D9%84-%D9%8A%D8%AD%D9%84-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%95%D9%86%D8%B2%D8%A7%D8%AC%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B3%D8%AF/blt60d7bde14f694a20)
+- **بث مباشر لمباراة الهلال السعودي ضد السد القطري في دوري أبطال آسيا للنخبة**: [Link](https://www.annahar.com/sports/356529/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D8%AF-%D8%A7%D9%84%D9%82%D8%B7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%B3%D9%8A%D8%A7)
+
+
+### uefa champions league (N/A, Tue, 13 Oct 2026 09:30:00 -0700)
+
+- **PSG hunting down Champions League three-peat**: [Link](https://www.beinsports.com/en-us/soccer/uefa-champions-league/articles/psg-hunting-down-champions-league-three-peat-2026-10-13)
+- **PSG - Luis Enrique : "J'ai renouvelé mon contrat pour leur montrer que..."**: [Link](https://onefootball.com/en/video/psg-luis-enrique-jai-renouvele-mon-contrat-pour-leur-montrer-que-43604700)
+- **Luis Enrique Aims to Keep PSG at the Top with New Strategies**: [Link](https://www.nacionale.com/en/articles/luis-enrique-aims-to-keep-psg-at-the-top-with-new-strategies)
+
+
+### lens – sporting (N/A, Tue, 13 Oct 2026 09:10:00 -0700)
+
+- **Lens vs Sporting CP: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw073glvlj10t)
+- **RC Lens vs SCP Live Stream: How to Watch UEFA Champions League (Oct. 13, 2026)**: [Link](https://www.fubo.tv/news/uefa-champions-league/rc-lens-vs-scp-live-stream-how-to-watch-uefa-champions-league-oct-13-2026/)
+- **Lens predicted XI v Sporting CP: Abdallah Sima and Jonathan Gradit out**: [Link](https://sports.yahoo.com/articles/lens-predicted-xi-v-sporting-071000312.html)
+
+
+### محكمة (N/A, Tue, 13 Oct 2026 09:10:00 -0700)
+
+- **الرباط .. توقيع مذكرة تفاهم بين محكمة النقض بالمملكة المغربية ومحكمة التمييز اللبنانية**: [Link](https://www.maroc24.com/229882-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D9%88%D9%82%D9%8A%D8%B9-%D9%85%D8%B0%D9%83%D8%B1%D8%A9-%D8%AA%D9%81%D8%A7%D9%87%D9%85-%D8%A8%D9%8A%D9%86-%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D9%86%D9%82%D8%B6-%D8%A8%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%88%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D9%85%D9%8A%D9%8A%D8%B2-%D8%A7%D9%84%D9%84%D8%A8%D9%86%D8%A7%D9%86%D9%8A%D8%A9/)
+- **المغرب ولبنان يرسخان الشراكة القضائية بتوقيع مذكرة تفاهم بين محكمة النقض ومحكمة التمييز بلبنان**: [Link](https://anwarpress.com/738862/)
+- **بينها نقل المحكومين.. الرباط وبيروت تتفقان على تعزيز التعاون القضائي والجنائي**: [Link](https://le12.ma/%D8%A8%D9%8A%D9%86%D9%87%D8%A7-%D9%86%D9%82%D9%84-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%88%D9%85%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%88%D8%A8%D9%8A%D8%B1%D9%88%D8%AA-%D8%AA%D8%AA%D9%81/)
+
+
 ### إيرلينغ هالاند (N/A, Tue, 13 Oct 2026 03:40:00 -0700)
 
 - **بعد أيام من الإدانة بالغش.. هالاند وجوارديولا يبيعون قصور مانشستر سيتي في أبوظبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%94%D9%8A%D8%A7%D9%85-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%95%D8%AF%D8%A7%D9%86%D8%A9-%D8%A8%D8%A7%D9%84%D8%BA%D8%B4--%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%8A%D8%A8%D9%8A%D8%B9%D9%88%D9%86-%D9%82%D8%B5%D9%88%D8%B1-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%94%D8%A8%D9%88%D8%B8%D8%A8%D9%8A/blt47137ba8793461e5)
