@@ -1,3 +1,73 @@
+### ترتيب الدوري المغربي (N/A, Tue, 13 Oct 2026 15:00:00 -0700)
+
+- **جدول ترتيب هدافي الدوري المغربي 2026-2027 بعد الجولة الرابعة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D8%A8%D8%B9%D8%AF-4/)
+- **🔥برنامج البطولة - الجولة الرابعة**: [Link](https://tanja7.com/193358/)
+- **في ختام ثالث دورات البطولة.. صدارة ثنائية ومطاردون على بُعد نقطة واحدة**: [Link](https://kifache.com/%D9%81%D9%8A-%D8%AE%D8%AA%D8%A7%D9%85-%D8%AB%D8%A7%D9%84%D8%AB-%D8%AF%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%AB%D9%86%D8%A7%D8%A6%D9%8A/)
+
+
+### raja casablanca (N/A, Tue, 13 Oct 2026 14:50:00 -0700)
+
+- **La défense de l’OL rattrapée par ses limites à Lens**: [Link](https://www.lyonfoot.com/article/14452/la-defense-de-l-ol-rattrapee-par-ses-limites-a-lens)
+- **FUS Rabat 0-0 Raja Casablanca, Championnat du Maroc : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-du-maroc/2026-2027/fus-rabat-raja-casablanca-live/702559)
+- **Serge Aurier : « Très important de faire confiance à ceux qui connaissent le club »**: [Link](https://onefootball.com/fr/news/serge-aurier-tres-important-de-faire-confiance-a-ceux-qui-connaissent-le-club-43598216)
+
+
+### michael olise (N/A, Tue, 13 Oct 2026 14:20:00 -0700)
+
+- **Bayern held by Viking after 'super dumb' Olise red in Champions League**: [Link](https://www.france24.com/en/live-news/20261013-bayern-held-by-viking-after-olise-sees-red-in-champions-league)
+- **Bayern Munich’s Harry Kane: “When you make mistakes like that, you get punished”**: [Link](https://www.bavarianfootballworks.com/bayern-munich-champions-league/267987/bayern-munich-viking-harry-kane-mistakes-michael-olise-champions-league-red-card)
+- **Kompany defends Olise dismissal: "He regrets letting the team down"**: [Link](https://sports.yahoo.com/articles/kompany-defends-olise-dismissal-regrets-215800291.html)
+
+
+### classement galatasaray – fc barcelone (N/A, Tue, 13 Oct 2026 14:10:00 -0700)
+
+- **Une petite frayeur puis un festival : 10 sur 10 pour le Barça**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/ligue-des-champions-2e-journee-i-une-petite-frayeur-puis-un-festival-le-barca-regale-encore-contre-galatasaray_sto23345463/story.shtml)
+- **Ligue des Champions : le FC Barcelone s’amuse chez Galatasaray, Viking surprend le Bayern Munich, l’Atlético domine Manchester United**: [Link](https://www.footmercato.net/a928177291625944520-ligue-des-champions-le-fc-barcelone-samuse-chez-galatasaray-viking-surprend-le-bayern-munich-latletico-domine-manchester-united)
+- **Prise de marques au Ali Sami Yen**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4591186/prise-de-marques-au-ali-sami-yen)
+
+
+### classement atlético madrid – manchester united (N/A, Tue, 13 Oct 2026 14:10:00 -0700)
+
+- **Atlético de Madrid 2-0 Manchester United, Ligue des champions : L'Atlético s'impose fièrement**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/atletico-de-madrid-manchester-united-live/702037)
+- **Atlético de Madrid - Manchester United : les compositions officielles**: [Link](https://www.footmercato.net/a1960775450794943415-atletico-de-madrid-manchester-united-les-compositions-officielles)
+- **Ligue des champions: l’Atlético Madrid enfonce Manchester United**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-latletico-madrid-enfonce-manchester-united_PBHTXZDULJEJHOZOJMFNAU5VSM/)
+
+
+### الإنتر ضد كلوب بروج (N/A, Tue, 13 Oct 2026 14:00:00 -0700)
+
+- **رقم غير مسبوق.. إنتر يكتب صفحة سوداء في تاريخه الأوروبي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%82%D9%85-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82--%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%8A%D9%83%D8%AA%D8%A8-%D8%B5%D9%81%D8%AD%D8%A9-%D8%B3%D9%88%D8%AF%D8%A7%D8%A1-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A/blt7fd7167ee01d178c)
+- **إعصار تريسولدي يضرب إنتر بهاتريك... عاشق ميلان يُشعل الصراع**: [Link](https://www.alaraby.co.uk/sport/%D8%A5%D8%B9%D8%B5%D8%A7%D8%B1-%D8%AA%D8%B1%D9%8A%D8%B3%D9%88%D9%84%D8%AF%D9%8A-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%A5%D9%86%D8%AA%D8%B1-%D8%A8%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D8%B9%D8%A7%D8%B4%D9%82-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D9%8F%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D8%B9)
+- **الإنتر ضد كلوب بروج.. التعادل الإيجابي 1-1 يحسم الشوط الأول في دوري الأبطال**: [Link](https://www.youm7.com/story/2026/10/13/%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D8%B1-%D8%B6%D8%AF-%D9%83%D9%84%D9%88%D8%A8-%D8%A8%D8%B1%D9%88%D8%AC-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%A5%D9%8A%D8%AC%D8%A7%D8%A8%D9%8A-1-1-%D9%8A%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%B4%D9%88%D8%B7/7578928)
+
+
+### rb leipzig – psv eindhoven (N/A, Tue, 13 Oct 2026 13:40:00 -0700)
+
+- **RB Leipzig 1-0 PSV Eindhoven: Brajan Gruda's stunner helps Leipzig see off PSV**: [Link](https://www.bbc.com/sport/football/live/cx5yn4l5lr7rt)
+- **Licensable picture: Football. UEFA Champions League. RB Leipzig - PSV Eindhoven. 13.10.2026**: [Link](https://www.reutersconnect.com/item/football-uefa-champions-league-rb-leipzig-psv-eindhoven-13102026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBKT0Q2RVc)
+- **Preview: RB Leipzig vs PSV Eindhoven - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/rb-leipzig/preview/rb-leipzig-vs-psv-prediction-team-news-lineups_606701.html)
+
+
+### condamné (N/A, Tue, 13 Oct 2026 13:30:00 -0700)
+
+- **Meurtre de Tupac Shakur: Duane Davis, un ex-membre de gang, condamné à 40 ans de prison minimum**: [Link](https://afrique.le360.ma/people/meurtre-de-tupac-shakur-un-ex-membre-de-gang-condamne-a-40-ans-de-prison-minimum_ALNXW3JG3RGDDMHWJCKLNXQY5E/)
+- **«Vous ne pouvez pas arracher un homme à sa famille»: 40 ans de prison pour le meurtrier de Tupac**: [Link](https://www.noovo.info/videos/2026/10/13/vous-ne-pouvez-pas-arracher-un-homme-a-sa-famille-40-ans-de-prison-pour-le-meurtrier-de-tupac/)
+- **Il est mort il y a trente ans : comment le rappeur 2Pac a laissé une trace indélébile dans la musique**: [Link](https://www.ouest-france.fr/leditiondusoir/2026-10-13/il-est-mort-il-y-a-trente-ans-comment-le-rappeur-2pac-a-laisse-une-trace-indelebile-dans-la-musique-c2673110-3d3b-4076-aed0-3e4721cba145)
+
+
+### psg (N/A, Tue, 13 Oct 2026 13:30:00 -0700)
+
+- **Ligue des champions : le gardien marocain Adam Mouak convoqué avec le PSG face à Manchester City**: [Link](https://mobile.telquel.ma/instant-t/2026/10/13/ligue-des-champions-le-gardien-marocain-adam-mouak-convoque-avec-le-psg-face-a-manchester-city_2012832/)
+- **PSG, Luis Enrique : «tous les trophées de Manchester City sont mérités»**: [Link](https://www.footmercato.net/a950437248374297842-psg-luis-enrique-tous-les-trophees-de-manchester-city-sont-merites)
+- **Ballon d’Or : “Je suis fatigué du Ballon d'Or…”, avoue Luis Enrique**: [Link](https://rmcsport.bfmtv.com/football/video-ballon-d-or-je-suis-fatigue-du-ballon-d-or-avoue-luis-enrique_VN-202610130807.html)
+
+
+### galatasaray sk (N/A, Tue, 13 Oct 2026 13:30:00 -0700)
+
+- **TRT 1 ŞİFRESİZ TIKLA-İZLE: GS Barcelona maçı canlı yayın | HS Football maçı TRT 1 izle**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-gs-barcelona-lie-en-qokdjys)
+- **Uğurcan Çakır: "2-0 olsa daha farklı olabilirdi"**: [Link](https://beinsports.com.tr/haber/ugurcan-cakir-2-0-olsa-daha-farkli-olabilirdi)
+- **UEFA Şampiyonlar Ligi'nde sürpriz sonuçlar!**: [Link](https://www.sabah.com.tr/spor/futbol/2026/10/13/uefa-sampiyonlar-liginde-surpriz-sonuclar)
+
+
 ### barca (N/A, Tue, 13 Oct 2026 10:50:00 -0700)
 
 - **Barcelona star to return to starting XI vs Galatasaray**: [Link](https://sports.yahoo.com/articles/barcelona-star-return-starting-xi-161000080.html)
