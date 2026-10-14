@@ -1,3 +1,73 @@
+### koora (N/A, Wed, 14 Oct 2026 13:20:00 -0700)
+
+- **الأخبار - لجنة الحكام في الاتحاد الخليجي تعلن قائمة حكام كأس الخليج تحت 17 عاماً**: [Link](https://www.alkass.net/news_details?news_id=179955)
+- **​البدوي يشارك في الدورة التدريبية لأكاديمية التحكيم التابعة للاتحاد الآسيوي**: [Link](https://www.alayyam.info/news/ASAIHXWP-YNAK05-697D)
+- **4 حكام إماراتيين في أكبر نسخة لـ«خليجي الناشئين»**: [Link](https://twaslnews1.twaslnews.com/6022417/)
+
+
+### dortmund (N/A, Wed, 14 Oct 2026 13:20:00 -0700)
+
+- **Heidemarkt funktioniert auch im "Hinterhof"**: [Link](https://www.wirindortmund.de/luedo/heidemarkt-funktioniert-auch-im-hinterhof-318027)
+- **Die besondere Familiendynastie des BVB-Gegners**: [Link](https://www.sport1.de/tv-video/video/die-besondere-familiendynastie-des-bvb-gegners__c1dfa246-6325-43b7-b30b-c421fdf41fb3)
+- **((ESPN)) Bodo/Glimt gegen Dortmund – Kostenloser Live-Stream UEFA Champions League, 15. Oktober 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2FsaWJhYmExMDk5LmdpdGh1Yi5pby9lc3BuL2ZjYi54bWwiLz48L2tycGFubz4=&id=video-espn-bodo-glimt-gegen-dortmund-kostenloser-live-stream-de)
+
+
+### dybala (N/A, Wed, 14 Oct 2026 13:10:00 -0700)
+
+- **Roma: Dybala suffers muscle discomfort and is forced off**: [Link](https://www.goal.com/en/lists/roma-dybala-forced-off-with-muscle-discomfort/blt0d6adc5848271dd3)
+- **Real Madrid vs Roma: How & When to Watch Champions League Match**: [Link](https://www.moroccoworldnews.com/2026/10/342133/real-madrid-vs-roma-how-when-to-watch-champions-league-match/)
+- **Licensable picture: UEFA Champions League - AS Roma v Real Madrid**: [Link](https://www.reutersconnect.com/item/uefa-champions-league-as-roma-v-real-madrid/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQUUxS0owU0w)
+
+
+### اتحاد طنجة ضد المغرب الفاسي (N/A, Wed, 14 Oct 2026 13:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة اتحاد طنجة والمغرب الفاسي في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd3e1152d1ae97739)
+- **طبيب اتحاد طنجة يوضح الحالة الصحية لركيزتين من الفريق قبل مواجهة المغرب الفاسي**: [Link](https://radiomars.ma/%D8%B7%D8%A8%D9%8A%D8%A8-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D9%88%D8%B6%D8%AD-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D8%B1%D9%83/)
+- **المغرب الفاسي يطمح إلى تعزيز صدارته أمام اتحاد طنجة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9/26488)
+
+
+### bet365 (N/A, Wed, 14 Oct 2026 12:50:00 -0700)
+
+- **Get $200 Bonus Bets With The bet365 Bonus Code For ALCS, NHL, and NFL Week 6**: [Link](https://www.si.com/betting-promo/get-200-bonus-bets-with-the-bet365-bonus-code-for-alcs-nhl-and-nfl-week-6-01m4v9tn8b77)
+- **bet365 Bonus Code: Grab $200 Bet-and-Get Promo for Ravens vs. Falcons**: [Link](https://sports.yahoo.com/articles/bet365-bonus-code-grab-200-224010665.html)
+- **Bet365 Bonus Code WTOP365: Get $200 Bonus for MLB Playoffs, NCAAF, NFL Games (Oct. 14)**: [Link](https://wtop.com/news/2026/10/bet365-bonus-code-wtop365-get-200-bonus-for-mlb-playoffs-ncaaf-nfl-games-oct-14/)
+
+
+### champions league 2026 (N/A, Wed, 14 Oct 2026 12:50:00 -0700)
+
+- **2026-27 Champions League Glance**: [Link](https://apnews.com/article/soccer-uefa-champions-league-76b0ffd36124c824272ade8560ec0c7c)
+- **Champions League: why points alone cannot explain the table · SNA**: [Link](https://sportnewsafrica.com/en/news/champions-league-why-points-alone-cannot-explain-the-table/)
+- **2026-27 Champions League Glance**: [Link](https://apnews.com/article/soccer-uefa-champions-league-988da736e1be294c42404a6252fed54a)
+
+
+### kylian mbappé (N/A, Wed, 14 Oct 2026 12:40:00 -0700)
+
+- **Kylian Mbappé's great Champions League games: Monaco breakthrough, Camp Nou hat-trick and four-goal heroics**: [Link](https://www.uefa.com/uefachampionsleague/news/02aa-21d0f5c6e6ff-4cdc444bf64f-1000--kylian-mbappe-s-great-champions-league-games-monaco-breakthr/)
+- **Mbappé surpasses Raúl and achieves new milestone in U…**: [Link](https://www.ysscores.com/en/news/14070602/mbapp%C3%A9-surpasses-ra%C3%BAl-and-achieves-new-milestone-in-uefa-champions-league)
+- **🐐 The GOAT's only nemesis? Mbappé snatches another Messi record**: [Link](https://sports.yahoo.com/articles/goats-only-nemesis-mbapp-snatches-191200967.html)
+
+
+### sir (N/A, Wed, 14 Oct 2026 12:40:00 -0700)
+
+- **Where Exactly Are These Infiltrators?**: [Link](https://countercurrents.org/2026/10/where-exactly-are-these-infiltrators/)
+- **Congress vs Amit Shah on SIR. People's stir or bid to shield infiltrators? Debate - India Today**: [Link](https://www.indiatoday.in/programme/india-first/video/rahul-meets-ankita-bhandari-kin-over-sikkim-governor-role-amit-shah-congress-face-off-on-sir-frvd-3017459-2026-10-14)
+- **Kharge, Ramesh turn up heat on Modi Govt over S…**: [Link](https://www.uniindia.com/national/kharge-ramesh-turn-up-heat-on-modi-govt-over-sir-demand-answers-on-infiltrators/213168)
+
+
+### كورة مباريات اليوم مباشر (N/A, Wed, 14 Oct 2026 12:40:00 -0700)
+
+- **مورينيو مندهشًا: لماذا أُعلن إيقاف فينيسيوس قبل مباراة روما بساعة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%85%D9%86%D8%AF%D9%87%D8%B4%D9%8B%D8%A7-%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D8%A7%D9%8F%D9%94%D8%B9%D9%84%D9%86-%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%82%D8%A8%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%88%D9%85%D8%A7-%D8%A8%D8%B3%D8%A7%D8%B9%D8%A9/bltf4203e89e4e0618c)
+- **“مدريد في وضع حرج وفينيسيوس في أزمة” .. تصريح مثير يشعل التساؤلات**: [Link](https://twaslnews1.twaslnews.com/5982576/)
+- **خسائر في بورصة النجوم.. موسيالا وفينيسيوس أبرز المتضررين**: [Link](https://www.aljazeera.net/sport/2026/10/11/%D8%AE%D8%B3%D8%A7%D8%A6%D8%B1-%D9%81%D9%8A-%D8%A8%D9%88%D8%B1%D8%B5%D8%A9-%D8%A7%D9%84%D9%86%D8%AC%D9%88%D9%85-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7)
+
+
+### kooora (N/A, Wed, 14 Oct 2026 12:30:00 -0700)
+
+- **رسميًا.. توقيع عقوبة مغلظة على فينيسيوس وغيابه عن الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%AA%D9%88%D9%82%D9%8A%D8%B9-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D9%85%D8%BA%D9%84%D8%B8%D8%A9-%D8%B9%D9%84%D9%89-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%BA%D9%8A%D8%A7%D8%A8%D9%87-%D8%B9%D9%86-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blta2ce3d8b889e9ca3)
+- **عقوبة صادمة لفينيسيوس بعد واقعة "شد الشعر"**: [Link](https://www.skynewsarabia.com/sport/1898320-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9-%D9%84%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%B4%D8%AF-%D8%A7%D9%84%D8%B4%D8%B9%D8%B1)
+- **مورينيو ينتقد التحكيم في الدوري الإسباني**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/497607.html)
+
+
 ### لاسك لينز ضد ليفربول (N/A, Wed, 14 Oct 2026 09:20:00 -0700)
 
 - **إيراولا في موقف حرج أمام لاسك.. غيابات موثرة وشكوك حول فان دايك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D9%81-%D8%AD%D8%B1%D8%AC-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D8%A7%D8%B3%D9%83--%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D9%88%D8%AB%D8%B1%D8%A9-%D9%88%D8%B4%D9%83%D9%88%D9%83-%D8%AD%D9%88%D9%84-%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83/blt0ae6a9fabd8fb967)
