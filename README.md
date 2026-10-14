@@ -1,3 +1,71 @@
+### inter miami – new york city fc (N/A, Wed, 14 Oct 2026 15:50:00 -0700)
+
+- **MATCH PREVIEW: Inter Miami CF Set to Host New York City FC on Wednesday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-host-new-york-city-fc-on-wednesday)
+- **FACT FOCUS: Posts falsely claim Democratic Senate candidate James Talarico was at a mental facility**: [Link](https://www.couriernews.com/news/national/fact-focus-posts-falsely-claim-democratic-senate-candidate-james-talarico-was-at-a-mental-facility/article_8fd26742-4834-5dae-8dd9-d5710caf00d7.html)
+- **Is Lionel Messi playing today? Projected lineups for Inter Miami vs NYCFC in 2026 MLS season Matchday 30**: [Link](https://worldsoccertalk.com/news/is-lionel-messi-playing-today-projected-lineups-for-inter-miami-vs-nycfc-in-2026-mls-season-matchday-30/)
+
+
+### معارضة (N/A, Wed, 14 Oct 2026 15:30:00 -0700)
+
+- **"الأحرار" يختار غياث لرئاسة لجنة العدل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%BA%D9%8A%D8%A7%D8%AB-%D9%84%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-1822747.html)
+- **الملك محمد السادس: الشراكة مع إسبانيا لن تكون أبدا محل أي ضغط أو تهديد أو ابتزاز**: [Link](https://ar.telquel.ma/%D9%84%D9%86-%D9%86%D8%B1%D9%81%D8%B6-%D9%85%D9%86-%D8%A3%D8%AC%D9%84-%D8%A7%D9%84%D8%B1%D9%81%D8%B6-%D8%B4%D9%88%D9%83%D9%8A-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%82/)
+- **التوافق على ياسين عكاشة لرئاسة الفريق النيابي للتجمع الوطني للأحرار بمجلس النواب – اليوم 24**: [Link](https://alyaoum24.com/2050231.html)
+
+
+### آدم ماسينا (N/A, Wed, 14 Oct 2026 14:50:00 -0700)
+
+- **شارك في كأس أفريقيا 2025.. نجم منتخب المغرب يعتزل بعمر 32 عاما**: [Link](https://www.aljazeera.net/sport/2026/10/14/%D8%B4%D8%A7%D8%B1%D9%83-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **شارك بنهائي أمم أفريقيا.. نجم منتخب المغرب يعلن اعتزاله في عمر 32 عاما**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%A7%D8%B1%D9%83-%D8%A8%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7--%D9%86%D8%AC%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87-%D9%81%D9%8A-%D8%B9%D9%85%D8%B1-32-%D8%B9%D8%A7%D9%85%D8%A7/blt5848a50bc162df26)
+- **ماسينا يدخل عالم التدريب مع نادٍ إيطالي**: [Link](https://www.hespress.com/%D9%85%D8%A7%D8%B3%D9%8A%D9%86%D8%A7-%D9%8A%D8%AF%D8%AE%D9%84-%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8-%D9%85%D8%B9-%D9%86%D8%A7%D8%AF%D9%8D-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84-1822801.html)
+
+
+### algerie maroc (N/A, Wed, 14 Oct 2026 14:50:00 -0700)
+
+- **Sahara marocain : le Qatar, le Bahreïn et quatre autres pays réitèrent leur soutien au Maroc**: [Link](https://medias24.com/2026/10/12/sahara-marocain-le-qatar-le-bahrein-et-quatre-autres-pays-reiterent-leur-soutien-au-maroc-1776997/)
+- **L’Algérie met en garde le Conseil de sécurité contre la souveraineté du Maroc sur le Sahara**: [Link](https://www.yabiladi.com/articles/details/204908/l-algerie-garde-conseil-securite-contre.html)
+- **n°1302. Sahara : De Mistura laisse ouverte la piste d’une autonomie garantie par le Conseil de sécurité**: [Link](https://ledesk.ma/enclair/sahara-de-mistura-laisse-ouverte-la-piste-dune-autonomie-garantie-par-le-conseil-de-securite/)
+
+
+### finance (N/A, Wed, 14 Oct 2026 14:30:00 -0700)
+
+- **Trump was trying to force prices lower ahead of the midterms. But Iran gets a vote, too**: [Link](https://www.cnn.com/2026/10/14/economy/prices-inflation-iran-midterms)
+- **Watch Hot September CPI Spurs Fed Rate Hike Fears**: [Link](https://www.bloomberg.com/news/videos/2026-10-14/bloomberg-businessweek-daily-10-14-2026-video)
+- **How high inflation became a 'fact of life' in the U.S.**: [Link](https://www.cnbc.com/2026/10/14/high-inflation-fed-expectations.html)
+
+
+### fayza lamari (N/A, Wed, 14 Oct 2026 14:30:00 -0700)
+
+- **A step before charges: Mbappé's mother investigated in a major corruption case**: [Link](https://www.goal.com/en/news/one-step-before-indictment-mbappe-s-mother-investigated-in-a-major-corruption-case/blta47fadc6cbd07260)
+- **“U mor në pyetje nga policia”, zbulohet arsyeja e vërtetë e udhëtimit të Mbappes në Paris**: [Link](https://reporteri.net/en/sport/was-questioned-by-the-police--the-real-reason-for-Mbabpe%27s-trip-to-Paris-was-revealed/)
+- **Kylian Mbappe’s Mother Fayza Lamari Questioned in French Corruption Probe: What We Know About The Case**: [Link](https://sundayguardianlive.com/sports/kylian-mbappes-mother-fayza-lamari-questioned-in-french-corruption-what-we-know-about-the-case-latest-football-news-305600/)
+
+
+### vinicius júnior (N/A, Wed, 14 Oct 2026 14:30:00 -0700)
+
+- **Vini Jr. promete resposta: «Quando cheguei riam-se de mim e levo mais de 100 golos no Real Madrid**: [Link](https://www.abola.pt/noticias/vini-jr-promete-resposta-quando-cheguei-riam-se-de-mim-e-levo-mais-de-100-golos-no-real-madrid-2026101422080498399)
+- **Vinícius suspenso por quatro jogos e fora do clássico do Real Madrid com FC Barcelona**: [Link](https://observador.pt/2026/10/14/vinicius-suspenso-por-quatro-jogos-e-fora-do-classico-do-real-madrid-com-fc-barcelona/)
+- **Golpe duro para a versão de Madri: relatório do árbitro da partida contra o Villarreal revela as "mentiras" do Real**: [Link](https://www.goal.com/br/not%C3%ADcias/golpe-duro-para-a-versao-de-madri-relatorio-do-arbitro-da-partida-contra-o-villarreal-revela-as-mentiras-do-real/blt97606305c11b2c97)
+
+
+### نتائج مباريات اليوم (N/A, Wed, 14 Oct 2026 14:20:00 -0700)
+
+
+
+
+### classement as roma – real madrid (N/A, Wed, 14 Oct 2026 14:10:00 -0700)
+
+- **AS Rome 3-4 Real Madrid, Ligue des champions : Le Real renverse la Roma grâce à trois buts sur corner**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/as-rome-real-madrid-live/702045)
+- **Real Madrid : les folles réactions des Madrilènes après la remontada face à la Roma**: [Link](https://www.footmercato.net/a5770201261738071719-real-madrid-les-folles-reactions-des-madrilenes-apres-la-remontada-face-a-la-roma)
+- **De 3-1 à la 83e à 3-4, le Real a tout renversé**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/ligue-des-champions-de-3-1-a-la-83e-a-3-4-au-final-le-real-madrid-a-tout-renverse-face-a-la-roma-avec-des-buts-de-kylian-mbappe-et-dendrick_sto23345789/story.shtml)
+
+
+### endrick (N/A, Wed, 14 Oct 2026 14:10:00 -0700)
+
+- **Mourinho Rules Out Endrick Loan: ‘He Will Be a Huge Success Here’**: [Link](https://www.moroccoworldnews.com/2026/10/342108/mourinho-rules-out-endrick-loan-he-will-be-a-huge-success-here/)
+- **Milan and Aston Villa in 'fierce competition' for Real Madrid star's services**: [Link](https://www.gazetaexpress.com/en/Milan-and-Aston-Villa-in-fierce-competition-for-the-services-of-the-Real-Madrid-star/)
+- **Transfer news LIVE: Endrick January loan move rumours, as Nagelsmann eyes return to Germany**: [Link](https://www.transfermarkt.com/transfer-news-live-endrick-january-loan-move-rumours-as-nagelsmann-eyes-return-to-germany/view/news/445145)
+
+
 ### koora (N/A, Wed, 14 Oct 2026 13:20:00 -0700)
 
 - **الأخبار - لجنة الحكام في الاتحاد الخليجي تعلن قائمة حكام كأس الخليج تحت 17 عاماً**: [Link](https://www.alkass.net/news_details?news_id=179955)
