@@ -1,3 +1,29 @@
+### ياسر جلال (N/A, Tue, 13 Oct 2026 14:50:00 -0700)
+
+- **ياسر جلال يفاجئ "بائع البلاستيك" في منزله.. وفيديو يوثق**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/13/%D9%85%D8%B5%D8%B1-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%AC%D9%84%D8%A7%D9%84-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%85%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B7%D9%81%D9%84-%D8%A8%D8%A7%D8%A6%D8%B9-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%83-%D9%88%D9%8A%D8%B2%D9%88%D8%B1%D9%87-%D9%81%D9%8A-%D9%85%D9%86%D8%B2%D9%84%D9%87)
+- **روجينا تجمع بين الأناقة و الفخافة فى اخر ظهور لها**: [Link](https://www.elbalad.news/keyword/1403309)
+- **ياسر جلال يجبر بخاطر الطفل زياد في دارالسلام ويتناول معه الفطير والعسل**: [Link](https://twaslnews1.twaslnews.com/5920451/)
+
+
+### زلزال (N/A, Tue, 13 Oct 2026 14:50:00 -0700)
+
+- **زلزال بقوة 5,5 درجات يهز جزر تونغا**: [Link](https://www.achpress.com/?p=422206)
+- **زلزال بقوة 5.5 درجات يضرب جزر تونغا جنوب المحيط الهادي**: [Link](https://www.al-madina.com/article/1008947/%D8%AF%D9%88%D9%84%D9%8A%D8%A9/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-55-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AC%D8%B2%D8%B1-%D8%AA%D9%88%D9%86%D8%BA%D8%A7-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84%D9%85%D8%AD%D9%8A%D8%B7-%D8%A7%D9%84%D9%87%D8%A7%D8%AF%D9%8A)
+- **زلزال بقوة 5.5 درجة يضرب جزر تونغا جنوب المحيط الهادي**: [Link](https://www.fananews.com/%D8%B2%D9%84%D8%B2%D8%A7%D9%84-%D8%A8%D9%82%D9%88%D8%A9-5-5-%D8%AF%D8%B1%D8%AC%D8%A9-%D9%8A%D8%B6%D8%B1%D8%A8-%D8%AC%D8%B2%D8%B1-%D8%AA%D9%88%D9%86%D8%BA%D8%A7-%D8%AC%D9%86%D9%88%D8%A8-%D8%A7%D9%84/)
+
+
+### classement rsb berkane – renaissance club athletic zemamra (N/A, Tue, 13 Oct 2026 14:20:00 -0700)
+
+
+
+
+### karim adeyemi (N/A, Tue, 13 Oct 2026 13:40:00 -0700)
+
+- **Licensable picture: Galatasaray v Barcelona - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/galatasaray-v-barcelona-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwOFhXSFBZ)
+- **Licensable picture: Galatasaray v Barcelona - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/galatasaray-v-barcelona-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwOFhXSFBW)
+- **Licensable picture: Galatasaray v Barcelona - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/galatasaray-v-barcelona-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwOFhXSE84)
+
+
 ### ترتيب الدوري المغربي (N/A, Tue, 13 Oct 2026 15:00:00 -0700)
 
 - **جدول ترتيب هدافي الدوري المغربي 2026-2027 بعد الجولة الرابعة**: [Link](https://www.365scores.com/ar/news/magazine/%D8%AC%D8%AF%D9%88%D9%84-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D8%A8%D8%B9%D8%AF-4/)
