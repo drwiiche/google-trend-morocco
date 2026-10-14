@@ -1,3 +1,73 @@
+### لاسك لينز ضد ليفربول (N/A, Wed, 14 Oct 2026 09:20:00 -0700)
+
+- **إيراولا في موقف حرج أمام لاسك.. غيابات موثرة وشكوك حول فان دايك**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D9%81%D9%8A-%D9%85%D9%88%D9%82%D9%81-%D8%AD%D8%B1%D8%AC-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D8%A7%D8%B3%D9%83--%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D9%88%D8%AB%D8%B1%D8%A9-%D9%88%D8%B4%D9%83%D9%88%D9%83-%D8%AD%D9%88%D9%84-%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83/blt0ae6a9fabd8fb967)
+- **ثلاثي ليفربول يغيب عن مواجهة لاسك**: [Link](https://www.hesport.com/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%84%D8%A7%D8%B3%D9%83-457651.html)
+- **توقعات مباراة لاسك لينز وليفربول: نقطة ساخنة في سباق الصدارة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-lask-linz-vs-liverpool-diem-nong-cuoc-dua-top-dau)
+
+
+### مدرب (N/A, Wed, 14 Oct 2026 09:20:00 -0700)
+
+- **اجتماع مرتقب يحسم مصير مدرب الرجاء**: [Link](https://www.hespress.com/%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D8%B5%D9%8A%D8%B1-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-1822761.html)
+- **ما القنوات الناقلة لمباراة الفتح الرباطي والرجاء في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt5b1c9c14667bf4b5)
+- **خيميز.. مدرب الرجاء: يلزمنا الوقت لتصحيح الاختلالات**: [Link](https://sport.rue20.com/%D8%AE%D9%8A%D9%85%D9%8A%D8%B2-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%84%D8%B2%D9%85%D9%86%D8%A7-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D9%84%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD.html)
+
+
+### إسرائيل (N/A, Wed, 14 Oct 2026 09:10:00 -0700)
+
+- **إسرائيل تموّل صفقة "أباتشي" من مخصصات فلسطينيي الداخل.. ماذا وراء القرار المثير للجدل؟**: [Link](https://arabic.euronews.com/2026/10/14/israel-apache-helicopters-palestinian-citizens-budget-cuts)
+- **الموحدة تهاجم قرار الحكومة اقتطاع مليار شيكل من ميزانيات مستقبلية للمجتمع العربي**: [Link](https://panet.com/story/4305252)
+- **إسرائيل تحوّل أموال خطة تطوير المجتمع العربي لشراء 12 مروحية أباتشي**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A5%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9/artc-2b076d5e)
+
+
+### lask – liverpool (N/A, Wed, 14 Oct 2026 09:00:00 -0700)
+
+- **Team news: Confirmed Liverpool line-up v LASK**: [Link](https://www.liverpoolfc.com/news/team-news-confirmed-liverpool-line-up-v-lask)
+- **Liverpool's Alexander Isak, Cody Gakpo, Dominik Szoboszlai to miss Champions League clash with LASK**: [Link](https://www.espn.co.uk/football/story/_/id/50173447/liverpool-alexander-isak-cody-gakpo-dominik-szoboszlai-miss-champions-league-clash-lask)
+- **Preview: LASK Linz vs Liverpool - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lask-linz/champions-league/preview/lask-vs-liverpool-prediction-team-news-lineups_606769.html)
+
+
+### algérie (N/A, Wed, 14 Oct 2026 08:30:00 -0700)
+
+- **Lounès Magramane : qui est le nouveau directeur de cabinet de la Présidence ?**: [Link](https://www.tsa-algerie.com/lounes-magramane-qui-est-le-nouveau-directeur-de-cabinet-de-la-presidence/)
+- **Le président de la République nomme Lounès Magramane, directeur de Cabinet de la Présidence de la République**: [Link](https://www.lexpressiondz.com/info-en-continu/le-president-de-la-republique-nomme-lounes-magramane-directeur-de-cabinet-de-la-presidence-de-la-republique-352141)
+- **Exécutif : on reprend les mêmes et on recommence**: [Link](https://www.laradiodessansvoix.org/post/ex%C3%A9cutif-on-reprend-les-m%C3%AAmes-et-on-recommence)
+
+
+### أشرف داري (N/A, Wed, 14 Oct 2026 08:00:00 -0700)
+
+- **الإعلام المصري يحتفي بتألق أشرف داري في ديربي القمة**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%A5%D8%B9%D9%84%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%AA%D8%A3%D9%84%D9%82-%D8%A3%D8%B4%D8%B1%D9%81-%D8%AF%D8%A7%D8%B1%D9%8A-%D9%81/)
+- **عموتة يقلب موازين مستقبل أشرف داري في الأهلي المصري**: [Link](https://anfaspress.com/news/voir/180071-2026-10-13-07-33-00)
+- **الأهلي يفاجئ أشرف داري بخطوة عاجلة برعاية عموتة**: [Link](https://akher.news/65300/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D8%A6-%D8%A3%D8%B4%D8%B1%D9%81-%D8%AF%D8%A7%D8%B1%D9%8A-%D8%A8%D8%AE%D8%B7%D9%88%D8%A9-%D8%B9%D8%A7%D8%AC%D9%84%D8%A9-%D8%A8%D8%B1%D8%B9/)
+
+
+### السويد (N/A, Wed, 14 Oct 2026 07:40:00 -0700)
+
+- **رئيسة شرطة السويد: شكراً لأمن المغرب**: [Link](https://www.hespress.com/%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9-%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D9%8A%D8%AF-%D8%B4%D9%83%D8%B1%D8%A7%D9%8B-%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1822712.html)
+- **توقيف سويدي مطلوب دوليا بأكادير**: [Link](https://assabah.ma/955779.html)
+- **المغرب يوقف سويدياً مطلوباً في قضية محاولة استقطاب منفذين لجرائم قتل**: [Link](https://al3omk.com/1196506.html)
+
+
+### فينيسيوس جونيور (N/A, Wed, 14 Oct 2026 07:40:00 -0700)
+
+- **المصائب لا تأتي فرادى.. ضربة جديدة تهز فينيسيوس جونيور**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D9%8A%D9%94%D8%A8-%D9%84%D8%A7-%D8%AA%D8%A7%D9%94%D8%AA%D9%8A-%D9%81%D8%B1%D8%A7%D8%AF%D9%89--%D8%B6%D8%B1%D8%A8%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D9%87%D8%B2-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D8%AC%D9%88%D9%86%D9%8A%D9%88%D8%B1/bltfaad437e4b8c3f99)
+- **فينيسيوس وفيرجينيا فرتكوها مرة أخرى وجماهير ريال مدير فرحانة**: [Link](https://www.goud.ma/%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D9%81%D9%8A%D8%B1%D8%AC%D9%8A%D9%86%D9%8A%D8%A7-%D9%81%D8%B1%D8%AA%D9%83%D9%88%D9%87%D8%A7-%D9%85%D8%B1%D8%A9-%D8%A3%D8%AE%D8%B1%D9%89-%D9%88-1047066/)
+- **انفصال رسمي اليكم تفاصيله**: [Link](https://www.akhbaralyawm.com/news/583450/%D8%A7%D9%86%D9%81%D8%B5%D8%A7%D9%84-%D8%B1%D8%B3%D9%85%D9%8A-%D8%A7%D9%84%D9%8A%D9%83%D9%85-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84%D9%87-)
+
+
+### المدينة البعيدة (N/A, Wed, 14 Oct 2026 07:20:00 -0700)
+
+- **إعلان الحلقة 69 من مسلسل المدينة البعيدة.. موعد عرضها وطريقة مشاهدتها مجانًا**: [Link](https://www.almasryalyoum.com/news/details/4382443)
+- **مسلسل المدينة البعيدة الجزء الثالث.. متى موعد عرض الحلقة الجديدة مجانًا ؟**: [Link](https://www.almasryalyoum.com/news/details/4381262)
+- **مسلسل «المدينة البعيدة» الحلقة 69.. موعد العرض والقنوات الناقلة**: [Link](https://al-ain.com/article/episode-69-the-series-the-distant-city)
+
+
+### مكتب التحقيقات الفيدرالي (N/A, Wed, 14 Oct 2026 07:10:00 -0700)
+
+- **تقرير: مدير FBI يصل إلى روسيا لحضور اجتماع**: [Link](https://asharq.com/politics/199492/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%85%D8%AF%D9%8A%D8%B1-fbi-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%84%D8%AD%D8%B6%D9%88%D8%B1-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9/)
+- **مدير FBI يصل إلى روسيا في زيارة غير مسبوقة منذ 13 عاماً**: [Link](https://addiyar.com/article/2406486-%D9%85%D8%AF%D9%8A%D8%B1-fbi-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B2%D9%8A%D8%A7%D8%B1%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D9%85%D9%86%D8%B0-13-%D8%B9%D8%A7%D9%85%D8%A7)
+- **مدير FBI يصل إلى روسيا في زيارة "غامضة"**: [Link](https://www.eremnews.com/news/world/51uunxl)
+
+
 ### تزييف (N/A, Wed, 14 Oct 2026 04:50:00 -0700)
 
 - **الإخوان الكاذبون.. "كل يوم كذبة وتلفيقة شكل"**: [Link](https://hafryat.com/ar/blog/%D8%A7%D9%84%D8%A5%D8%AE%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D9%83%D8%A7%D8%B0%D8%A8%D9%88%D9%86-%D9%83%D9%84-%D9%8A%D9%88%D9%85-%D9%83%D8%B0%D8%A8%D8%A9-%D9%88%D8%AA%D9%84%D9%81%D9%8A%D9%82%D8%A9-%D8%B4%D9%83%D9%84)
