@@ -1,3 +1,22 @@
+### classement inter milan – club brugge (N/A, Tue, 13 Oct 2026 14:40:00 -0700)
+
+- **Ligue des champions: avec un triplé de Tresoldi, Bruges coule l’Inter Milan à San Siro**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-avec-un-triple-de-tresoldi-bruges-coule-linter-milan-a-san-siro_6Q3AZYOWHJEVXJ7A3WOJNXGYYY/)
+- **Sommer meilleur que Martinez : il dit au revoir à San Siro avec un match « digne de l’Inter »**: [Link](https://www.goal.com/fr/listes/sommer-meilleur-que-martinez-il-dit-au-revoir-a-san-siro-avec-un-match-digne-de-l-inter/blte79a616f0ae12469)
+- **"L'un des plus beaux moments de ma carrière" : Ivan Leko n'est pas près d'oublier cette soirée à Milan**: [Link](https://www.walfoot.be/news/2026-10-14/match-reaction-lun-des-plus-beaux-moments-de-ma-carriere-ivan-leko-nest-pas-pres-doublier-cette-soiree-a-milan)
+
+
+### rca (N/A, Tue, 13 Oct 2026 14:20:00 -0700)
+
+- **Ce se mai întâmplă pe piaţa RCA. Care sunt cei mai mari jucători? Piaţa asigurărilor RCA a ajuns la 6**: [Link](https://www.zf.ro/banci-si-asigurari/intampla-piata-rca-cei-mari-jucatori-piata-asigurarilor-rca-ajuns-6-mld-lei-s1-2026-crestere-17-groupama-conduce-topul-iar-allianz-tiriac-apropie-puternic-timp-axeria-isi-consolideaza-locul-3-23258383)
+
+
+### ترتيبات غلطة سراي – نادي برشلونة (N/A, Tue, 13 Oct 2026 14:10:00 -0700)
+
+- **فيديو: إبداع يامال يقود الطوفان الكتالوني.. برشلونة ينتفض ويسحق جالطة سراي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%95%D8%A8%D8%AF%D8%A7%D8%B9-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%B7%D9%88%D9%81%D8%A7%D9%86-%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A--%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%86%D8%AA%D9%81%D8%B6-%D9%88%D9%8A%D8%B3%D8%AD%D9%82-%D8%AC%D8%A7%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A/blt5865be5e75f64cd1)
+- **بالفيديو.. برشلونة يحوّل تأخره أمام غلطة سراي إلى مهرجان أهداف في دوري الأبطال**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/13/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **قدم.. برشلونة يفوز على غالاطة سراي في دوري الأبطال**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%BA%D8%A7%D9%84%D8%A7%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84/4087957)
+
+
 ### ياسر جلال (N/A, Tue, 13 Oct 2026 14:50:00 -0700)
 
 - **ياسر جلال يفاجئ "بائع البلاستيك" في منزله.. وفيديو يوثق**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/13/%D9%85%D8%B5%D8%B1-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%AC%D9%84%D8%A7%D9%84-%D9%8A%D8%AD%D9%82%D9%82-%D8%A7%D9%85%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%B7%D9%81%D9%84-%D8%A8%D8%A7%D8%A6%D8%B9-%D8%A7%D9%84%D8%A8%D9%84%D8%A7%D8%B3%D8%AA%D9%8A%D9%83-%D9%88%D9%8A%D8%B2%D9%88%D8%B1%D9%87-%D9%81%D9%8A-%D9%85%D9%86%D8%B2%D9%84%D9%87)
