@@ -1,3 +1,73 @@
+### تزييف (N/A, Wed, 14 Oct 2026 04:50:00 -0700)
+
+- **الإخوان الكاذبون.. "كل يوم كذبة وتلفيقة شكل"**: [Link](https://hafryat.com/ar/blog/%D8%A7%D9%84%D8%A5%D8%AE%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D9%83%D8%A7%D8%B0%D8%A8%D9%88%D9%86-%D9%83%D9%84-%D9%8A%D9%88%D9%85-%D9%83%D8%B0%D8%A8%D8%A9-%D9%88%D8%AA%D9%84%D9%81%D9%8A%D9%82%D8%A9-%D8%B4%D9%83%D9%84)
+- **حرب الشائعات والسرعة الاستباقية.. كيف أجهضت وزارة الداخلية مخططات التزييف الرقمي؟**: [Link](https://www.elwatannews.com/news/details/8376890)
+- **النائب محمد أبو النصر: الإخوان الإرهابية توظف المنصات المزيفة للنيل من الدولة**: [Link](https://www.parlmany.com/News/3/617715/%D8%A7%D9%84%D9%86%D8%A7%D8%A6%D8%A8-%D9%85%D8%AD%D9%85%D8%AF-%D8%A3%D8%A8%D9%88-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%A5%D8%AE%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D8%A5%D8%B1%D9%87%D8%A7%D8%A8%D9%8A%D8%A9-%D8%AA%D9%88%D8%B8%D9%81-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D9%81%D8%A9-%D9%84%D9%84%D9%86%D9%8A%D9%84)
+
+
+### باتريس موتسيبي (N/A, Wed, 14 Oct 2026 04:10:00 -0700)
+
+- **أسطورة أفريقية وعربيان.. 4 مرشحين محتملين لخلافة موتسيبي في رئاسة الكاف**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D9%82%D8%A7%D8%B1%D9%8A%D8%A9-%D9%88%D8%B9%D8%B1%D8%A8%D9%8A%D8%A7%D9%86--4-%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%85%D8%AD%D8%AA%D9%85%D9%84%D9%8A%D9%86-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%81%D9%8A-%D8%B1%D9%8A%D9%94%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%81/blt7212547b1ed5d126)
+- **“كاف” في مأزق بسبب “كان 2027”**: [Link](https://assabah.ma/955431.html)
+- **إيتو يترصد منصب موتسيبي ..كواليس صراع محتمل على رئاسة "الكاف"**: [Link](https://radiomars.ma/%D8%A5%D9%8A%D8%AA%D9%88-%D9%8A%D8%AA%D8%B1%D8%B5%D8%AF-%D9%85%D9%86%D8%B5%D8%A8-%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%B5%D8%B1%D8%A7%D8%B9-%D9%85%D8%AD/)
+
+
+### avion (N/A, Wed, 14 Oct 2026 04:00:00 -0700)
+
+- **Plusieurs passagers piqués en plein vol, leur avion est infesté de punaises de lit : il doit être nettoyé en profondeur**: [Link](https://www.ouest-france.fr/sante/punaise-de-lit/plusieurs-passagers-piques-en-plein-vol-leur-avion-est-infeste-de-punaises-de-lit-il-doit-etre-nettoye-en-profondeur-b1f66c0e-c70e-11f1-a1ba-1367ef44effb)
+- **Des punaises de lit ont été découvertes à bord d'un Boeing 787 Dreamliner de la compagnie Qantas.**: [Link](https://www.vietnam.vn/fr/phat-hien-rep-tren-may-bay-cho-khach-boeing-787-dreamliner-cua-qantas)
+- **Des punaises à bord, vol annulé. Qantas risque de devoir verser plus de 140 000 euros rien qu'en remboursements**: [Link](https://www.theflightclub.it/fr/2026/10/des-punaises-de-lit-a-bord-dun-vol-annule-qantas-risque-de-devoir-verser-plus-de-140-000-euros-rien-quen-remboursements/)
+
+
+### trafic d'armes (N/A, Wed, 14 Oct 2026 04:00:00 -0700)
+
+- **Démantèlement d’un réseau criminel spécialisé dans le trafic d’armes: Washington salue le rôle décisif des services de sécurité marocains**: [Link](https://fr.le360.ma/politique/demantelement-dun-reseau-criminel-specialise-dans-le-trafic-darmes-washington-salue-le-role-decisif_SYXY3AZHDFBWHMBAMLYH5ASXKE/)
+- **Le parquet fédéral de Virginie cite la DGSN et la DGST marocaines parmi ses partenaires dans l’extradition d’un Ougandais accusé d’avoir voulu armer un cartel mexicain**: [Link](https://barlamane.com/fr/le-parquet-federal-de-virginie-cite-la-dgsn-et-la-dgst-marocaines-parmi-ses-partenaires-dans-lextradition-dun-ougandais-accuse-davoir-voulu-armer-un-cartel-mexicain/)
+- **Après une arrestation à Casablanca, le dernier suspect d'un trafic d'armes pour un cartel mexicain extradé**: [Link](https://www.bladi.net/arrestation-casablanca-dernier-suspect-trafic-armes-cartel-mexicain-extrade,124290.html)
+
+
+### لبنان (N/A, Wed, 14 Oct 2026 03:00:00 -0700)
+
+- **العدّ التنازلي بدأ.. ماذا بعد انسحاب قوات "اليونيفيل" من جنوب لبنان؟**: [Link](https://arabic.euronews.com/2026/10/14/unifil-planned-withdrawal-swhat-next-for-south-lebanon-european-mission-israel-hezbollah)
+- **بري: لن نتراجع عن حماية حدودنا وتحرير أرضنا**: [Link](https://www.aljadeed.tv/news/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D9%84%D8%A8%D9%86%D8%A7%D9%86/592039/%D8%A8%D8%B1%D9%8A-%D9%84%D9%86-%D9%86%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%B9%D9%86-%D8%AD%D9%85%D8%A7%D9%8A%D8%A9-%D8%AD%D8%AF%D9%88%D8%AF%D9%86%D8%A7-%D9%88%D8%AA%D8%AD%D8%B1%D9%8A%D8%B1-%D8%A3%D8%B1%D8%B6%D9%86%D8%A7/ar)
+- **الأمم المتحدة تؤكد دعم استقرار لبنان مع قرب انتهاء مهمة "يونيفيل"**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261014-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%A4%D9%83%D8%AF-%D8%AF%D8%B9%D9%85-%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D9%84%D8%A8%D9%86%D8%A7%D9%86-%D9%85%D8%B9-%D9%82%D8%B1%D8%A8-%D8%A7%D9%86%D8%AA%D9%87%D8%A7%D8%A1-%D9%85%D9%87%D9%85%D8%A9-%D9%8A%D9%88%D9%86%D9%8A%D9%81%D9%8A%D9%84)
+
+
+### حكيم زياش (N/A, Wed, 14 Oct 2026 03:00:00 -0700)
+
+- **تيتي يفاجئ زياش بقرار غير مخطط له في البداية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%8A%D8%AA%D9%8A-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AE%D8%B7%D8%B7-%D9%84%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9/blt50dc7611e08576a8)
+- **زياش يواصل اثارة واعجاب جمهور بوطافوكو**: [Link](https://www.almountakhab.com/node/16231575)
+- **بوتافوغو البرازيلي يوثق مسيرة حكيم زياش في فيلم وثائقي**: [Link](https://www.marrakechalaan.com/article-697838)
+
+
+### mohammed ben salmane (N/A, Wed, 14 Oct 2026 02:50:00 -0700)
+
+- **Arabie saoudite : des explosions entendues à Riyad ; les houthistes revendiquent des attaques sur des sites pétroliers et des aéroports en Arabie saoudite**: [Link](https://www.lemonde.fr/guerre-au-proche-orient/article/2026/10/14/attaques-en-arabie-saoudite-de-nouvelles-explosions-a-riyad-les-houthistes-revendiquent-des-frappes-sur-les-installations-petrolieres-et-les-aeroports-saoudiens_6793721_6325529.html)
+- **Ryad menace un site pétrolier yéménite à Sanaa, appelle les civils à évacuer**: [Link](https://medias24.com/agence-presse/ryad-menace-un-site-petrolier-yemenite-a-sanaa-appelle-les-civils-a-evacuer/)
+- **L'Arabie Saoudite annonce l'interception de trois drones**: [Link](https://fr.hespress.com/492032-larabie-saoudite-annonce-linterception-de-trois-drones.html)
+
+
+### président (N/A, Wed, 14 Oct 2026 02:40:00 -0700)
+
+- **Officiel. Ahmed Touizi élu président de la Chambre des représentants**: [Link](https://medias24.com/2026/10/13/officiel-ahmed-touizi-elu-president-de-la-chambre-des-representants-1777987/)
+- **Chambre des représentants : séance plénière mercredi pour l'élection du Bureau et des présidents des commissions permanentes**: [Link](https://telquel.ma/instant-t/2026/10/14/chambre-des-representants-seance-pleniere-mercredi-pour-lelection-du-bureau-et-des-presidents-des-commissions-permanentes_2012947/)
+- **Après un duel avec Driss El Azami, Ahmed Touizi élu à la présidence de la Chambre des représentants**: [Link](https://ledesk.ma/2026/10/13/apres-un-duel-avec-driss-el-azami-ahmed-touizi-elu-a-la-presidence-de-la-chambre-des-representants/)
+
+
+### ياسر زبيري (N/A, Wed, 14 Oct 2026 02:30:00 -0700)
+
+- **هدف كل 67 دقيقة.. المغربي زبيري يتفوق على مبابي ولامين جمال**: [Link](https://www.aljazeera.net/sport/2026/10/12/%D9%8A%D8%A7%D8%B3%D8%B1-%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7)
+- **الزبيري يبهر الإسبان بسباعية تهديفية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D8%A8%D9%87%D8%B1-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86-%D8%A8%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A%D8%A9-1821790.html)
+- **حزب الاستقلال يرفض تحويل المغرب إلى "دركي" لأوروبا وينتقد تعامل إسبانيا مع أزمة سبتة**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D9%84%D8%AA%D8%AD%D9%82-%D8%A8%D9%85%D8%A8%D8%A7%D8%A8/)
+
+
+### acteur rj mitte (N/A, Wed, 14 Oct 2026 02:20:00 -0700)
+
+- **L’acteur RJ Mitte, révélé par son rôle dans « Breaking Bad », est mort à l’âge de 34 ans**: [Link](https://www.lemonde.fr/culture/article/2026/10/13/l-acteur-rj-mitte-revele-par-son-role-du-fils-de-walter-white-dans-breaking-bad-est-mort-a-l-age-de-34-ans_6792909_3246.html)
+- **Bryan Cranston effondré par le suicide de RJ Mitte**: [Link](https://www.20minutes.fr/arts-stars/people/4253862-20261013-bryan-cranston-effondre-deces-rj-mitte-fils-serie-breaking-bad)
+- **"La paralysie cérébrale et la santé mentale sont étroitement liées": les causes de la mort de RJ Mitte révélées**: [Link](https://fr.news.yahoo.com/paralysie-c%C3%A9r%C3%A9brale-sant%C3%A9-mentale-%C3%A9troitement-083730389.html)
+
+
 ### classement inter milan – club brugge (N/A, Tue, 13 Oct 2026 14:40:00 -0700)
 
 - **Ligue des champions: avec un triplé de Tresoldi, Bruges coule l’Inter Milan à San Siro**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-avec-un-triple-de-tresoldi-bruges-coule-linter-milan-a-san-siro_6Q3AZYOWHJEVXJ7A3WOJNXGYYY/)
