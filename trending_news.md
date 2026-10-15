@@ -1,3 +1,73 @@
+### carburant (N/A, Thu, 15 Oct 2026 12:00:00 -0700)
+
+- **Budget «record», chèques carburant… Les annonces de la FFF après le Comex**: [Link](https://www.lefigaro.fr/sports/football/equipe-de-france/budget-record-aide-aux-carburants-des-clubs-les-annonces-de-la-fff-apres-le-comex-20261015)
+- **TGV, bons essence et réduction fiscale... Comment les clubs alsaciens s’organisent face au surcoût des carburants**: [Link](https://www.dna.fr/sport/2026/10/14/train-bons-essence-reduction-fiscale-comment-les-clubs-alsaciens-s-organisent-face-au-surcout-des-carburants)
+- **La Fédération française de football renoue avec les bénéfices**: [Link](https://www.lesechos.fr/industrie-services/services-conseils/la-federation-francaise-de-football-renoue-avec-les-benefices-2257280)
+
+
+### أفريقيا (N/A, Thu, 15 Oct 2026 12:00:00 -0700)
+
+- **صندوق النقد الدولي يُحذر من تصاعد الضغوط التضخمية في أفريقيا جنوب الصحراء**: [Link](https://twaslnews1.twaslnews.com/6045475/)
+- **رياح الصراعات وتقلبات المناخ.. هل يعود التضخم ليهدد أسواق أفريقيا؟**: [Link](https://www.aljazeera.net/ebusiness/2026/10/7/%D8%B1%D9%8A%D8%A7%D8%AD-%D8%A7%D9%84%D8%B5%D8%B1%D8%A7%D8%B9%D8%A7%D8%AA-%D9%88%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%AE-%D9%87%D9%84-%D9%8A%D8%B9%D9%88%D8%AF)
+- **صندوق النقد: اقتصادات أفريقيا صامدة لكنها أكثر عرضة للصدمات**: [Link](https://asharqbusiness.com/economics/151651/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%B5%D8%A7%D9%85%D8%AF%D8%A9-%D9%84%D9%83%D9%86%D9%87%D8%A7-%D8%A3%D9%83%D8%AB%D8%B1-%D8%B9%D8%B1%D8%B6%D8%A9-%D9%84%D9%84%D8%B5%D8%AF%D9%85%D8%A7%D8%AA/)
+
+
+### ligue europa (N/A, Thu, 15 Oct 2026 11:50:00 -0700)
+
+- **2e journée de Ligue Europa: suivez Lyon - Crystal Palace EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-europa/2026-2027/live-olympique-lyonnais-crystal-palace_mtc21878912/live-commentary.shtml)
+- **« J'ai l'impression d'être parti hier » : adversaire de l'OL avec Crystal Palace, Pierre Sage est toujours profondément attaché à Lyon**: [Link](https://www.lequipe.fr/Football/Article/Pierre-sage-l-histoire-d-un-amour-sans-fin-pour-lyon-et-l-ol/1735803)
+- **Pierre Sage ne dirait pas non à l’OM**: [Link](https://www.footmercato.net/a4141276061273138598-pierre-sage-ne-dirait-pas-non-a-lom)
+
+
+### قناة الجزيرة (N/A, Thu, 15 Oct 2026 11:40:00 -0700)
+
+- **إسرائيل تسابق الزمن لدخول ممر تجاري ينافس قناة السويس**: [Link](https://www.aljazeera.net/ebusiness/2026/10/15/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AA%D8%B3%D8%A7%D8%A8%D9%82-%D8%A7%D9%84%D8%B2%D9%85%D9%86-%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D9%85%D9%85%D8%B1-%D8%AA%D8%AC%D8%A7%D8%B1%D9%8A)
+- **موانئ برية في إسرائيل… خطة لمواجهة تهديدات الحوثيين ومحاور المنافسة**: [Link](https://www.lebanondebate.com/article/889258-%D9%85%D9%88%D8%A7%D9%86%D8%A6-%D8%A8%D8%B1%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%AE%D8%B7%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D9%88%D8%AB%D9%8A%D9%8A%D9%86-%D9%88%D9%85%D8%AD%D8%A7%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9)
+- **وصلة لوجستية جديدة بين الهند وإسرائيل والغرب • ميناء حيفا كنقطة محورية في الممر الاقتصادي الدولي الجديد**: [Link](https://haipo.co.il/ar/item/649968)
+
+
+### vol (N/A, Thu, 15 Oct 2026 11:30:00 -0700)
+
+- **Inauguration d’une nouvelle ligne aérienne reliant Agadir et Helsinki**: [Link](https://mobile.telquel.ma/instant-t/2026/10/15/inauguration-dune-nouvelle-ligne-aerienne-reliant-agadir-et-helsinki_2013173/)
+- **Agadir-Helsinki : Finnair reprend ses vols directs pour la saison hivernale**: [Link](https://ledesk.ma/encontinu/agadir-helsinki-finnair-reprend-ses-vols-directs-pour-la-saison-hivernale/)
+- **Un vol direct reliera chaque mercredi Helsinki à Agadir jusqu’au 24 mars 2027, annonce la compagnie aérienne finlandaise Finnair**: [Link](https://barlamane.com/fr/un-vol-direct-reliera-chaque-mercredi-helsinki-a-agadir-jusquau-24-mars-2027-annonce-la-compagnie-aerienne-finlandaise-finnair/)
+
+
+### marseille – olympiakos (N/A, Thu, 15 Oct 2026 11:20:00 -0700)
+
+- **Ligue Europa, OM : l’Olympiakos annule les billets achetés par ses supporters**: [Link](https://www.footmercato.net/a7813177393467598804-ligue-europa-om-lolympiakos-annule-les-billets-achetes-par-ses-supporters)
+- **Ligue Europa : les compositions officielles du match Marseille vs Olympiakos !**: [Link](https://africatopsports.com/football-europe/ligue-europa-les-compositions-officielles-du-match-marseille-vs-olympiakos/)
+- **OM : "L'Olympique de Marseille doit se servir de la Ligue Europa pour continuer de construire", estime Di Meco**: [Link](https://rmcsport.bfmtv.com/replay-emissions/super-moscato-show/video-om-l-olympique-de-marseille-doit-se-servir-de-la-ligue-europa-pour-continuer-de-construire-estime-di-meco_VN-202610150736.html)
+
+
+### grêle (N/A, Thu, 15 Oct 2026 11:10:00 -0700)
+
+- **Alerte météo : averses orageuses avec risque de grêle et rafales de vent**: [Link](https://medias24.com/2026/10/15/alerte-meteo-averses-orageuses-avec-risque-de-grele-et-rafales-de-vent-1779733/)
+- **Le temps qu'il fera ce jeudi 15 octobre 2026**: [Link](https://fr.hespress.com/492104-le-temps-quil-fera-ce-jeudi-15-octobre-2026.html)
+- **Orages et vents forts attendus ce jeudi dans plusieurs régions du Maroc**: [Link](https://www.yabiladi.com/articles/details/205037/orages-vents-forts-attendus-jeudi.html)
+
+
+### rb salzburg vs milan (N/A, Thu, 15 Oct 2026 11:10:00 -0700)
+
+- **Preview: Red Bull Salzburg vs AC Milan - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/red-bull-salzburg/europa-league/preview/salzburg-vs-ac-milan-prediction-team-news-lineups_606816.html)
+- **Gallery: ‘Amorim looks to the future’, ‘All eyes on Camarda’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-italy-salzburg-milan-15-october)
+- **#UEFA Europa League2026: Milan v Salzburg 𝐋𝐈𝐕𝐄 Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ streaming**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2x1ZTkzNzJsdWNhcy5naXRodWIuaW8vbHVjYXMvc3BvcnRzLnhtbCIvPjwva3JwYW5vPg==&id=Milan-v-Salzburg-lie-uktvs-channel-9648283956)
+
+
+### pétrolier (N/A, Thu, 15 Oct 2026 11:00:00 -0700)
+
+- **Un pétrolier chargé de 40.000 tonnes de gazole russe en route vers le Maroc**: [Link](https://fr.le360.ma/economie/un-petrolier-charge-de-40000-tonnes-de-gazole-russe-en-route-vers-le-maroc_YHMA7P3GXFHF7NVZTKPNDFHDBU/)
+- **Reprise des exportations russes de diesel: 40.000 tonnes en route vers le Maroc**: [Link](https://h24info.ma/economie/exportations-russes-diesel-maroc/)
+- **Guerre en Ukraine : après la « trahison » de Donald Trump, Kiev et ses alliés espèrent encore inverser le cours de l’histoire**: [Link](https://www.lemonde.fr/international/article/2026/10/15/guerre-en-ukraine-apres-la-trahison-de-trump-kiev-et-ses-allies-esperent-encore-inverser-le-cours-de-l-histoire_6793998_3210.html)
+
+
+### radio mars (N/A, Thu, 15 Oct 2026 10:40:00 -0700)
+
+- **Coupe de la CAF : le Raja et l’AS FAR en quête d’une qualification pour la phase de groupes**: [Link](https://telquel.ma/instant-t/2026/10/15/coupe-de-la-caf-le-raja-et-las-far-en-quete-dune-qualification-pour-la-phase-de-groupes_2013207/)
+- **Pedro Gonçalves : « Il est très important d’arriver tôt à Korhogo »**: [Link](https://radiomars.ma/fr/?p=6855)
+- **Coupe de la CAF : l’AS FAR s’envole pour la Côte d’Ivoire avant son duel face à Korhogo**: [Link](https://lematin.ma/sports/coupe-de-la-caf-las-far-en-cote-divoire-avant-son-duel-face-a-korhogo/370347)
+
+
 ### رمسيس الثاني (N/A, Thu, 15 Oct 2026 07:10:00 -0700)
 
 - **حجر غامض في أرض مواطن مصري يقود إلى أسرار رمسيس الثاني**: [Link](https://www.aljazeera.net/misc/2026/10/14/%D8%AD%D8%AC%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%84%D8%AA%D8%A7-%D9%8A%D9%82%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%B1%D9%85%D8%B3%D9%8A%D8%B3-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A)
