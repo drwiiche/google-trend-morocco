@@ -1,3 +1,52 @@
+### رمسيس الثاني (N/A, Thu, 15 Oct 2026 07:10:00 -0700)
+
+- **حجر غامض في أرض مواطن مصري يقود إلى أسرار رمسيس الثاني**: [Link](https://www.aljazeera.net/misc/2026/10/14/%D8%AD%D8%AC%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%84%D8%AA%D8%A7-%D9%8A%D9%82%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%B1%D9%85%D8%B3%D9%8A%D8%B3-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A)
+- **حجر غريب عثر عليه فلاح مصري يقود إلى كنوز رمسيس الثاني**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/10/14/%D8%AD%D8%AC%D8%B1-%D8%BA%D8%B1%D9%8A%D8%A8-%D8%B9%D8%AB%D8%B1-%D8%B9%D9%84%D9%8A%D9%87-%D9%81%D9%84%D8%A7%D8%AD-%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%89-%D9%83%D9%86%D9%88%D8%B2-%D8%B1%D9%85%D8%B3%D9%8A%D8%B3-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A)
+- **في واقعة نادرة… مصري يكتشف كنزا أثريا والسلطات تكافئه بعمرة**: [Link](https://www.alquds.co.uk/%D9%81%D9%8A-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D9%86%D8%A7%D8%AF%D8%B1%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D9%83%D8%AA%D8%B4%D9%81-%D9%83%D9%86%D8%B2%D8%A7-%D8%A3%D8%AB%D8%B1%D9%8A%D8%A7-%D9%88/)
+
+
+### île maurice (N/A, Thu, 15 Oct 2026 06:40:00 -0700)
+
+- **A l’île Maurice, un couvre-feu décrété après plusieurs jours de manifestations et de violences, déclenchées par un tir policier**: [Link](https://www.lemonde.fr/afrique/article/2026/10/14/a-l-ile-maurice-un-couvre-feu-decrete-apres-plusieurs-jours-de-manifestations-et-de-violences-declenchees-par-un-tir-policier_6793788_3212.html)
+- **Tensions à travers l’île : Patrice Marie plaide pour la retenue et le dialogue**: [Link](https://lexpress.mu/s/patrice-marie-plaide-pour-la-retenue-et-le-dialogue-563641)
+- **COUVRE-FEU : Valayden demande au PM de revoir les horaires**: [Link](https://www.lemauricien.com/actualites/societe/couvre-feu-valayden-demande-au-pm-de-revoir-les-horaires/720667/)
+
+
+### gouvernement mansouri (N/A, Thu, 15 Oct 2026 06:20:00 -0700)
+
+- **Gouvernement El Mansouri : qui récupère quels ministères ?**: [Link](https://medias24.com/2026/10/14/gouvernement-el-mansouri-qui-recupere-quels-ministeres-1778989/)
+- **Une majorité politique assumée, le PAM attendu sur les résultats**: [Link](https://fr.hespress.com/492308-une-majorite-politique-assumee-le-pam-attendu-sur-les-resultats.html)
+- **Gouvernement : nouvelle audience royale pour Fatima Ezzahra El Mansouri**: [Link](https://mobile.telquel.ma/instant-t/2026/10/14/gouvernement-nouvelle-audience-royale-pour-fatima-ezzahra-el-mansouri_2013073/)
+
+
+### pompe (N/A, Thu, 15 Oct 2026 05:50:00 -0700)
+
+- **Du changement à la pompe ce jeudi**: [Link](https://www.lesoir.be/776950/article/2026-10-15/du-changement-la-pompe-ce-jeudi)
+- **Bonne nouvelle à la pompe : les prix de l'essence baissent ce jeudi en Belgique (infographies)**: [Link](https://www.lavenir.net/actu/conso/2026/10/14/bonne-nouvelle-a-la-pompe-les-prix-de-lessence-baissent-ce-jeudi-en-belgique-infographies-NIUW2VYATZBL3KBYZHCQLHUALI/)
+- **Carburants : le prix moyen du gazole en léger recul en France pour la troisième semaine consécutive**: [Link](https://www.lefigaro.fr/conso/carburants-le-prix-moyen-du-gazole-en-leger-recul-en-france-pour-la-troisieme-semaine-consecutive-20261012)
+
+
+### السعودية (N/A, Thu, 15 Oct 2026 04:50:00 -0700)
+
+- **السيسي: أكدت لنتنياهو مرارا أن دولة فلسطينية ستعود بالنفع على الجميع**: [Link](https://www.aa.com.tr/ar/%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84/%D8%A7%D9%84%D8%B3%D9%8A%D8%B3%D9%8A-%D8%A3%D9%83%D8%AF%D8%AA-%D9%84%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%85%D8%B1%D8%A7%D8%B1%D8%A7-%D8%A3%D9%86-%D8%AF%D9%88%D9%84%D8%A9-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A9-%D8%B3%D8%AA%D8%B9%D9%88%D8%AF-%D8%A8%D8%A7%D9%84%D9%86%D9%81%D8%B9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-/4089898)
+- **السيسي يوجه رسالة بشأن أمن السعودية وحدودها والممرات البحرية**: [Link](https://arabic.cnn.com/middle-east/article/2026/10/15/alsisi-message-security-saudi-arabia-borders-maritime-corridors)
+- **خبير علاقات دولية: مصر تدعم جهود خفض التصعيد وتحرص على مساندة الدول العربية**: [Link](https://www.youm7.com/story/2026/10/15/%D8%AE%D8%A8%D9%8A%D8%B1-%D8%B9%D9%84%D8%A7%D9%82%D8%A7%D8%AA-%D8%AF%D9%88%D9%84%D9%8A%D8%A9-%D9%85%D8%B5%D8%B1-%D8%AA%D8%AF%D8%B9%D9%85-%D8%AC%D9%87%D9%88%D8%AF-%D8%AE%D9%81%D8%B6-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF-%D9%88%D8%AA%D8%AD%D8%B1%D8%B5-%D8%B9%D9%84%D9%89/7581039)
+
+
+### أوكرانيا (N/A, Thu, 15 Oct 2026 04:10:00 -0700)
+
+- **"بمثابة ضربة نووية".. كيف انطفأت "عيون" الأوكرانيين في الميدان؟**: [Link](https://www.aljazeera.net/news/2026/10/15/%D8%A8%D9%85%D8%AB%D8%A7%D8%A8%D8%A9-%D8%B6%D8%B1%D8%A8%D8%A9-%D9%86%D9%88%D9%88%D9%8A%D8%A9-%D9%87%D9%84-%D8%A3%D9%86%D8%B7%D9%81%D8%A3%D8%AA-%D8%B9%D9%8A%D9%88%D9%86)
+- **ماسك يدعو مجدداً لرحيل زيلينسكي.. "تتواصل المجزرة مع بقائه"**: [Link](https://www.alarabiya.net/arab-and-world/american-elections-2016/2026/10/15/%D9%85%D8%A7%D8%B3%D9%83-%D9%8A%D8%AF%D8%B9%D9%88-%D9%85%D8%AC%D8%AF%D8%AF%D8%A7-%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B2%D9%8A%D9%84%D9%8A%D9%86%D8%B3%D9%83%D9%8A-%D8%AA%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%AC%D8%B2%D8%B1%D8%A9-%D9%85%D8%B9-%D8%A8%D9%82%D8%A7%D8%A6%D9%87)
+- **قيود في الفضاء تعرقل مهام الأرض.. ماذا تواجه أوكرانيا؟**: [Link](https://www.skynewsarabia.com/world/1898326-%D9%82%D9%8A%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D8%B6%D8%A7%D8%A1-%D8%AA%D8%B9%D8%B1%D9%82%D9%84-%D9%85%D9%87%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%AA%D9%88%D8%A7%D8%AC%D9%87-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7)
+
+
+### كويكب (N/A, Thu, 15 Oct 2026 03:50:00 -0700)
+
+- **كويكب ضخم يقترب من الأرض.. روسيا تستعد لمهمة فضائية استثنائية**: [Link](https://www.hespress.com/%D9%83%D9%88%D9%8A%D9%83%D8%A8-%D8%B6%D8%AE%D9%85-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B1%D8%B6-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84-1822937.html)
+- **خطورة اقتراب كويكب من الارض**: [Link](https://www.almasryalyoum.com/tag/2717529)
+- **حرب النجوم**: [Link](https://www.shorouknews.com/mobile/columns/view.aspx?cdate=08102026&id=0e43f135-49e4-4367-9859-213d78e29065)
+
+
 ### عقوبة الإعدام (N/A, Thu, 15 Oct 2026 03:30:00 -0700)
 
 - **الجزائر تفعّل رسميًا عقوبة الإعدام في حرائق الغابات واختطاف الأطفال**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%81%D8%B9%D9%91%D9%84-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D9%81%D9%8A-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D8%A7%D8%AA-%D9%88%D8%A7%D8%AE%D8%AA%D8%B7%D8%A7%D9%81-%D8%A7%D9%84%D8%A3%D8%B7%D9%81%D8%A7%D9%84-/4089018)
