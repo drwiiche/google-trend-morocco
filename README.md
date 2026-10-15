@@ -1,3 +1,57 @@
+### عقوبة الإعدام (N/A, Thu, 15 Oct 2026 03:30:00 -0700)
+
+- **الجزائر تفعّل رسميًا عقوبة الإعدام في حرائق الغابات واختطاف الأطفال**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%81%D8%B9%D9%91%D9%84-%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7-%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D9%81%D9%8A-%D8%AD%D8%B1%D8%A7%D8%A6%D9%82-%D8%A7%D9%84%D8%BA%D8%A7%D8%A8%D8%A7%D8%AA-%D9%88%D8%A7%D8%AE%D8%AA%D8%B7%D8%A7%D9%81-%D8%A7%D9%84%D8%A3%D8%B7%D9%81%D8%A7%D9%84-/4089018)
+- **عقوبة الإعدام وسؤال المرجعية.. من يملك حق التشريع في الجزائر؟**: [Link](https://arabi21.com/story/1795972/%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%A7%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D9%85-%D9%88%D8%B3%D8%A4%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D8%AC%D8%B9%D9%8A%D8%A9-%D9%85%D9%86-%D9%8A%D9%85%D9%84%D9%83-%D8%AD%D9%82-%D8%A7%D9%84%D8%AA%D8%B4%D8%B1%D9%8A%D8%B9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **صدور قانون العقوبات في الجريدة الرسمية**: [Link](https://africanews.dz/%D8%B5%D8%AF%D9%88%D8%B1-%D9%82%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D8%B1%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-2/)
+
+
+### صامويل إيتو (N/A, Thu, 15 Oct 2026 02:40:00 -0700)
+
+- **أشرف حكيمي يقتحم جدل "الكرة الذهبية" بتصريح دبلوماسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%82%D8%AA%D8%AD%D9%85-%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A/blt1ef6988c3acd1be1)
+- **أشرف حكيمي يكشف موقفه من حلم التتويج بالكرة الذهبية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D8%AD%D9%84%D9%85-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/26517)
+- **أشرف حكيمى يطارد رقم محمد صلاح التاريخى فى دورى أبطال أوروبا**: [Link](https://www.youm7.com/story/2026/10/15/%D8%A3%D8%B4%D8%B1%D9%81-%D8%AD%D9%83%D9%8A%D9%85%D9%89-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%B1%D9%82%D9%85-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%89-%D9%81%D9%89-%D8%AF%D9%88%D8%B1%D9%89-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84/7580333)
+
+
+### مباراة ودية (N/A, Thu, 15 Oct 2026 01:20:00 -0700)
+
+- **المفارقة: الصين "ترفض" كأس رابطة دول جنوب شرق آسيا (آسيان) لكنها تدعو ماليزيا لمباراة ودية.**: [Link](https://www.vietnam.vn/ar/nghich-ly-khi-trung-quoc-che-fifa-asean-cup-nhung-lai-moi-malaysia-da-giao-huu)
+- **اللبؤات يتعادلن أمام أوزبكستان**: [Link](https://assabah.ma/955628.html)
+- **مدرب "اللبؤات": يجب مواصلة التطور**: [Link](https://www.hespress.com/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D9%8A%D8%AC%D8%A8-%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%B1-1822009.html)
+
+
+### diesel (N/A, Thu, 15 Oct 2026 01:00:00 -0700)
+
+- **Kremlin says Russia restarts diesel exports after deal with Trump**: [Link](https://www.reuters.com/business/energy/kremlin-says-russia-restarts-diesel-exports-after-deal-with-trump-2026-10-15/)
+- **Trump’s Russian diesel deal draws GOP, European pushback — and industry shrug**: [Link](https://www.politico.com/news/2026/10/15/goptrump-russian-diesel-deal-01119657)
+- **Opinion | Anger Over Trump’s Deal With Putin**: [Link](https://www.nytimes.com/2026/10/14/opinion/trump-putin-diesel-deal-ukraine.html)
+
+
+### ملياردير (N/A, Thu, 15 Oct 2026 01:00:00 -0700)
+
+- **كاليفورنيا تستعد للتصويت على أول ضريبة أميركية تستهدف المليارديرات**: [Link](https://www.swissinfo.ch/ara/%D9%83%D8%A7%D9%84%D9%8A%D9%81%D9%88%D8%B1%D9%86%D9%8A%D8%A7-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D8%B9%D9%84%D9%89-%D8%A3%D9%88%D9%84-%D8%B6%D8%B1%D9%8A%D8%A8%D8%A9-%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AA%D9%87%D8%AF%D9%81-%D8%A7%D9%84%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D8%AF%D9%8A%D8%B1%D8%A7%D8%AA/92221417)
+- **معركة الضرائب تشعل كاليفورنيا: مرشحو الحكم منقسمون حول ضريبة "الحصة العادلة" والشركات الكبرى في مواجهة الناخبين**: [Link](https://www.almjhar.com/ar-sy/NewsView/51001/310744/%D9%85%D8%B9%D8%B1%D9%83%D8%A9_%D8%A7%D9%84%D8%B6%D8%B1%D8%A7%D8%A6%D8%A8_%D8%AA%D8%B4%D8%B9%D9%84_%D9%83%D8%A7%D9%84%D9%8A%D9%81%D9%88%D8%B1%D9%86%D9%8A%D8%A7_%D9%85%D8%B1%D8%B4%D8%AD%D9%88_%D8%A7%D9%84%D8%AD%D9%83%D9%85_%D9%85%D9%86%D9%82%D8%B3%D9%85%D9%88%D9%86_%D8%AD%D9%88%D9%84_%D8%B6%D8%B1%D9%8A%D8%A8%D8%A9_%D8%A7%D9%84%D8%AD%D8%B5%D8%A9_%D8%A7%D9%84%D8%B9%D8%A7%D8%AF%D9%84%D8%A9_%D9%88%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A7%D8%AA_%D8%A7%D9%84%D9%83%D8%A8%D8%B1%D9%89_%D9%81%D9%8A_%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9_%D8%A7%D9%84%D9%86%D8%A7%D8%AE%D8%A8%D9%8A%D9%86.aspx)
+- **5 أثرياء يخسرون 54 مليار دولار في يوم واحد.. ما القصة؟**: [Link](https://www.eremnews.com/economy/l1k67dm)
+
+
+### إلهان عمر (N/A, Thu, 15 Oct 2026 00:40:00 -0700)
+
+- **"قضية لسحب الجنسية والترحيل".. أنباء عن مصادرة جواز سفر إلهان عمر وهاتفها**: [Link](https://www.aljazeera.net/news/2026/10/15/%D8%B9%D8%A7%D8%AC%D9%84-%D8%A3%D8%B3%D9%88%D8%B4%D9%8A%D8%AA%D8%AF-%D8%A8%D8%B1%D8%B3-%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9)
+- **بعد تفتيش منزلها.. السلطات الأميركية تحقق مع أقارب إلهان عمر**: [Link](https://www.skynewsarabia.com/world/1898234-%D8%AA%D9%81%D8%AA%D9%8A%D8%B4-%D9%85%D9%86%D8%B2%D9%84%D9%87%D8%A7-%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%AD%D9%82%D9%82-%D8%A3%D9%82%D8%A7%D8%B1%D8%A8-%D8%A5%D9%84%D9%87%D8%A7%D9%86-%D8%B9%D9%85%D8%B1)
+- **بعد مداهمة منزلها… إلهان عمر ترد على نائب الرئيس الأمريكي: “هذا الرجل واهم”**: [Link](https://www.alquds.co.uk/%D8%A8%D8%B9%D8%AF-%D9%85%D8%AF%D8%A7%D9%87%D9%85%D8%A9-%D9%85%D9%86%D8%B2%D9%84%D9%87%D8%A7-%D8%A5%D9%84%D9%87%D8%A7%D9%86-%D8%B9%D9%85%D8%B1-%D8%AA%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%86%D8%A7/)
+
+
+### aljazeera (N/A, Wed, 14 Oct 2026 23:00:00 -0700)
+
+
+
+
+### وقود (N/A, Wed, 14 Oct 2026 20:20:00 -0700)
+
+- **تداعيات صفقة الديزل بين واشنطن وموسكو على حرب أوكرانيا**: [Link](https://www.aljazeera.net/video/2026/10/14/%D8%AA%D8%AF%D8%A7%D8%B9%D9%8A%D8%A7%D8%AA-%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%AF%D9%8A%D8%B2%D9%84-%D8%A8%D9%8A%D9%86-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-%D9%88%D9%85%D9%88%D8%B3%D9%83%D9%88)
+- **بعد اتفاق ترامب وبوتين.. روسيا تستأنف تصدير الديزل وتوجه ناقلة محملة بـ40 ألف طن نحو المغرب**: [Link](https://al3omk.com/1196770.html)
+- **موسكو تتوقع إبرام أول عقود الديزل مع واشنطن**: [Link](https://2m.ma/ar/news/%D9%85%D9%88%D8%B3%D9%83%D9%88-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%A5%D8%A8%D8%B1%D8%A7%D9%85-%D8%A3%D9%88%D9%84-%D8%B9%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%AF%D9%8A%D8%B2%D9%84-%D9%85%D8%B9-%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86-20261014)
+
+
 ### lionel messi (N/A, Wed, 14 Oct 2026 22:40:00 -0700)
 
 - **Most goals in first 100 Champions League appearances: Mbappe, Messi, Ronaldo…**: [Link](https://www.planetfootball.com/champions-league/most-goals-first-100-champions-league-appearances)
