@@ -1,3 +1,36 @@
+### lionel messi (N/A, Wed, 14 Oct 2026 22:40:00 -0700)
+
+- **Most goals in first 100 Champions League appearances: Mbappe, Messi, Ronaldo…**: [Link](https://www.planetfootball.com/champions-league/most-goals-first-100-champions-league-appearances)
+- **Real Madrid Almost Make a Mess of Kylian Mbappe’s Historic Champions League Night**: [Link](https://www.si.com/soccer/real-madrid-mess-kylian-mbappe-historic-champions-league)
+- **Mbappé confirms in the Champions League**: [Link](https://frenchfootballweekly.com/2026/10/14/mbappe-confirms-in-the-champions-league/)
+
+
+### tas senegal maroc (N/A, Wed, 14 Oct 2026 17:10:00 -0700)
+
+- **Maroc-Sénégal : comment le TAS va prendre sa décision**: [Link](https://medias24.com/2026/10/09/maroc-senegal-comment-le-tas-va-prendre-sa-decision-1775689/)
+- **Cet étrange bashing anti-Maroc**: [Link](https://sport.le360.ma/football/cet-etrange-bashing-anti-maroc_KJISVCFQGBBINFQFFOMUXZS4TM/)
+- **CAN 2025: Maroc-Sénégal, la grande annonce !**: [Link](https://www.sports.fr/football/can/maroc-senegal-la-grande-annonce-1053470.html)
+
+
+### ترتيبات اتحاد طنجة – المغرب الفاسي (N/A, Wed, 14 Oct 2026 16:30:00 -0700)
+
+- **"ريمونتادا" طنجاوية على "الماص"**: [Link](https://www.hespress.com/%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7-%D8%B7%D9%86%D8%AC%D8%A7%D9%88%D9%8A%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-1823018.html)
+- **ما القنوات الناقلة لمباراة اتحاد طنجة والمغرب الفاسي في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltd3e1152d1ae97739)
+- **طبيب اتحاد طنجة يوضح الحالة الصحية لركيزتين من الفريق قبل مواجهة المغرب الفاسي**: [Link](https://radiomars.ma/%D8%B7%D8%A8%D9%8A%D8%A8-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D9%88%D8%B6%D8%AD-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D8%B1%D9%83/)
+
+
+### classement ittihad tanger – mas fès (N/A, Wed, 14 Oct 2026 16:20:00 -0700)
+
+
+
+
+### ريال بيتيس (N/A, Wed, 14 Oct 2026 16:10:00 -0700)
+
+- **بالفيديو: الزلزولي يسحر في دوري الأبطال.. ويقود بيتيس لانتصار مثير على بورتو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%8A%D8%B3%D8%AD%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84--%D9%88%D9%8A%D9%82%D9%88%D8%AF-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%84%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%A8%D9%88%D8%B1%D8%AA%D9%88/blte878e8565f65f9f7)
+- **الزلزولي يفتتح سجله التهديفي في دوري أبطال أوروبا بهدف عالمي**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%8A%D9%81%D8%AA%D8%AA%D8%AD-%D8%B3%D8%AC%D9%84%D9%87-%D8%A7%D9%84%D8%AA%D9%87%D8%AF%D9%8A%D9%81%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3/)
+- **بيتيس يقلب الطاولة على بورتو ويحقق انتصاره الثاني في دوري الأبطال**: [Link](https://twaslnews1.twaslnews.com/6027828/)
+
+
 ### إنتر ميامي ضد نيويورك سيتي (N/A, Wed, 14 Oct 2026 17:20:00 -0700)
 
 - **ما القنوات الناقلة لمباراة إنتر ميامي ونيويورك سيتي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf5a2138fe5942066)
