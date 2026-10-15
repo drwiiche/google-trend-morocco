@@ -1,3 +1,24 @@
+### إنتر ميامي ضد نيويورك سيتي (N/A, Wed, 14 Oct 2026 17:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي ونيويورك سيتي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf5a2138fe5942066)
+- **بأسلوب التيكي تاكا، ميسي ينصب سيركا ملكيا في أول أهداف إنتر ميامي أمام نيويورك سيتي (فيديو)**: [Link](https://www.vetogate.com/5750563)
+- **القنوات الناقلة لمباراة إنتر ميامي ونيويورك سيتي في الدوري الأمريكي 2026**: [Link](https://www.akhbarak.net/news/details/49469434/3/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026)
+
+
+### overdrive ps5 (N/A, Wed, 14 Oct 2026 17:20:00 -0700)
+
+- **Free game stores have appeared on jailbroken PlayStation 5 consoles**: [Link](https://mezha.ua/en/news/playstation-5-games-free-316120/)
+- **Sony reportedly shuts down free PS5 game store accessed with console jailbreak**: [Link](https://www.notebookcheck.net/Sony-reportedly-shuts-down-free-PS5-game-store-accessed-with-console-jailbreak.1423408.0.html)
+- **PS5 homebrew storefront with over 1,600 free PS5 and PS4 games taken down by Sony — company plays piracy whack-a-mole as two further repos spring up**: [Link](https://www.tomshardware.com/video-games/playstation/ps5-homebrew-storefront-with-over-1-600-free-ps5-and-ps4-games-taken-down-by-sony-company-plays-piracy-whack-a-mole-as-two-further-repos-spring-up)
+
+
+### kick (N/A, Wed, 14 Oct 2026 16:30:00 -0700)
+
+- **LASK v Liverpool: Champions League team news**: [Link](https://www.liverpoolfc.com/news/lask-v-liverpool-champions-league-team-news)
+- **Preview: LASK Linz vs Liverpool - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/lask-linz/champions-league/preview/lask-vs-liverpool-prediction-team-news-lineups_606769.html)
+- **[LIVESTREAM]TV!!]Lask Linz vs. Liverpool in the 2026 UEFA Champions League Season Tonight**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3Rob21hc3NyaXZlcmEuZ2l0aHViLmlvL2Rob3BhL3FhLnhtbCIvPjwva3JwYW5vPg==&id=lask-linz-vs-liverpool-in-the-espn-tl8zk)
+
+
 ### inter miami – new york city fc (N/A, Wed, 14 Oct 2026 15:50:00 -0700)
 
 - **MATCH PREVIEW: Inter Miami CF Set to Host New York City FC on Wednesday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-set-to-host-new-york-city-fc-on-wednesday)
