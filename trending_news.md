@@ -1,3 +1,45 @@
+### المهدي بنعبيد (N/A, Thu, 15 Oct 2026 13:20:00 -0700)
+
+- **العصبة الاحترافية تتخذ قرار صارم في حق حارس مرمى الوداد ولاعب الماص**: [Link](https://radiomars.ma/%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D8%AA%D8%A3%D8%AF%D9%8A%D8%A8%D9%8A%D8%A9-%D8%AA%D9%8F%D8%A8%D8%B9%D8%AF-%D8%A8%D9%86%D8%B9%D8%A8%D9%8A%D8%AF-%D9%88%D8%A3%D9%88%D9%87%D8%B1%D9%88-%D8%B9%D9%86-%D8%A7/)
+- **العصبة الاحترافية تستعين بخبير في قراءة الشفاه**: [Link](https://sport.lesiteinfo.com/elbotola/504816.html)
+- **مدرب الوداد يتلقى « صدمة » جديدة قبل مواجهة أمل تزنيت**: [Link](https://ar.sport.le360.ma/football/botola/UB5X2D4ECNFJXP5OZRTKQITQ3E/)
+
+
+### juventus (N/A, Thu, 15 Oct 2026 13:20:00 -0700)
+
+- **++ Europa League: Celta Vigo-Juve 1-2 ++**: [Link](https://www.corrierealpi.it/italia/europa-league-celta-vigo-juve-1-2-w4uxlzkh)
+- **UEFA Europa League | Celta-Juventus | Il tabellino**: [Link](https://www.juventus.com/it/news/articoli/uefa-europa-league-celta-juventus-il-tabellino)
+- **Kolo Muani fa impazzire la Juve nel recupero: vittoria in rimonta sul Celta e 6 punti in classifica**: [Link](https://www.fanpage.it/sport/calcio/kolo-muani-fa-impazzire-la-juve-nel-recupero-vittoria-in-rimonta-sul-celta-e-6-punti-in-classifica/)
+
+
+### المغرب (N/A, Thu, 15 Oct 2026 13:00:00 -0700)
+
+- **اللجنة الرابعة الأممية تكرس القرار التاريخي 2797 لمجلس الأمن الدولي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%85%D9%8A%D8%A9-%D8%AA%D9%83%D8%B1%D8%B3-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84-1823380.html)
+- **المغرب يتجه بالسرعة القصوى لحسم ملف الصحراء**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D8%AC%D9%87-%D8%A8%D8%A7%D9%84%D8%B3%D8%B1%D8%B9%D8%A9-%D8%A7%D9%84%D9%82%D8%B5%D9%88%D9%89-%D9%84%D8%AD%D8%B3%D9%85-%D9%85%D9%84%D9%81-%D8%A7%D9%84/)
+- **قرار اللجنة الرابعة بشأن الصحراء.. هل فعلا حققت البوليساريو انتصارا؟**: [Link](https://ar.yabiladi.com/articles/details/205063/%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A8%D8%B4%D8%A3%D9%86-%D8%A7%D9%84%D8%B5%D8%AD%D8%B1%D8%A7%D8%A1.html)
+
+
+### برلمان (N/A, Thu, 15 Oct 2026 12:50:00 -0700)
+
+- **الولاية التشريعية الجديدة تضع مجلس النواب أمام تحديات الثقة والنجاعة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B4%D8%B1%D9%8A%D8%B9%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D8%B6%D8%B9-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84-1823006.html)
+- **الجيل الجديد من السياسات العمومية.. مطالب ببلورة استراتيجيات متكاملة للإقلاع الاقتصادي والتنمية الترابية**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%AC%D9%8A%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B3%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D9%85%D9%88%D9%85%D9%8A%D8%A9-%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%A8%D9%84%D9%88%D8%B1%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A7%D8%AA-%D9%85%D8%AA%D9%83%D8%A7%D9%85%D9%84%D8%A9-20261013)
+- **لشكر: الخطاب الملكي يضع المغرب أمام فرصة قد لا تتكرر ويؤكد المساواة بين المرأة والرجل – اليوم 24**: [Link](https://alyaoum24.com/2050271.html)
+
+
+### celta vs juventus (N/A, Thu, 15 Oct 2026 12:50:00 -0700)
+
+- **Europa League line-ups: Celta Vigo vs. Juventus**: [Link](https://football-italia.net/celta-vigo-juventus-europa-league-line-ups/)
+- **Licensable picture: UEFA Europa League 2026/27 League Phase MD2 Celta De Vigo X Juventus**: [Link](https://www.reutersconnect.com/item/uefa-europa-league-202627-league-phase-md2-celta-de-vigo-x-juventus/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBCVDI2SDg)
+- **Video: Juventus punish Celta Vigo, and Celtic lose despite Haitham Hassan's contribution**: [Link](https://www.goal.com/en/lists/video-juventus-punish-celta-vigo-and-celtic-lose-despite-haythem-hassan-s-contribution/blt3b8c0b95f97e371e)
+
+
+### brighton – kauno žalgiris (N/A, Thu, 15 Oct 2026 12:30:00 -0700)
+
+- **Brighton 4-0 Kauno Zalgiris: Seagulls cruise to victory in Conference League**: [Link](https://www.bbc.com/sport/football/live/cwly3rnggy88t)
+- **Brighton 4-0 Kauno Zalgiris: Georginio Rutter scores twice as Seagulls thrash Lithuanian side in Conference League**: [Link](https://www.skysports.com/football/news/13599638/brighton-4-0-kauno-zalgiris-georginio-rutter-scores-twice-as-seagulls-thrash-lithuanian-side-in-conference-league)
+- **Analysis: An easy night for Hurzeler's entertaining Brighton**: [Link](https://sports.yahoo.com/articles/analysis-easy-night-hurzelers-entertaining-213049871.html)
+
+
 ### carburant (N/A, Thu, 15 Oct 2026 12:00:00 -0700)
 
 - **Budget «record», chèques carburant… Les annonces de la FFF après le Comex**: [Link](https://www.lefigaro.fr/sports/football/equipe-de-france/budget-record-aide-aux-carburants-des-clubs-les-annonces-de-la-fff-apres-le-comex-20261015)
