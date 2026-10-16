@@ -1,3 +1,73 @@
+### أنصار الله الحوثيون (N/A, Fri, 16 Oct 2026 07:00:00 -0700)
+
+- **اليمن مباشر.. زوال الخطر عن ينبع والعليمي متمسك بأهداف "فجر اليمن"**: [Link](https://www.aljazeera.net/news/liveblog/2026/10/16/%D8%A7%D9%84%D9%8A%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-5-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%AD%D9%88%D8%AB%D9%8A-%D8%B9%D9%84%D9%89)
+- **العليمي : لا رجعة عن استعادة الدولة .. و"فجر اليمن" تمضي بثبات**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B9%D9%84%D9%8A%D9%85%D9%8A-%D9%84%D8%A7-%D8%B1%D8%AC%D8%B9%D8%A9-%D8%B9%D9%86-%D8%A7%D8%B3%D8%AA%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D9%88%D9%81%D8%AC%D8%B1-%D8%A7%D9%84%D9%8A%D9%85%D9%86-%D8%AA%D9%85%D8%B6%D9%8A-%D8%A8%D8%AB%D8%A8%D8%A7%D8%AA-15293)
+- **محلل سياسي يمني: استعادة صنعاء وإنهاء الانقلاب الحوثي هدف المعركة الوطنية**: [Link](https://www.elwatannews.com/news/details/8376896)
+
+
+### fédération royale marocaine de football (N/A, Fri, 16 Oct 2026 06:20:00 -0700)
+
+- **Note médicale**: [Link](https://frmf.ma/fr/articles/%D8%A5%D8%AD%D8%A7%D8%B7%D8%A9-%D8%B7%D8%A8%D9%8A%D8%A9-1)
+- **CAN FUTSAL 2026 : l'Angola surclasse la Tanzanie et valide son billet pour les demi-finales**: [Link](https://fr.hespress.com/492509-can-futsal-2026-langola-surclasse-la-tanzanie-et-valide-son-billet-pour-les-demi-finales.html)
+- **CAN Futsal : face à la Zambie (7-0), “le Maroc est resté fidèle à son style de jeu”, affirme Hicham Dguig**: [Link](https://mobile.telquel.ma/instant-t/2026/10/15/can-futsal-face-a-la-zambie-7-0-le-maroc-est-reste-fidele-a-son-style-de-jeu-affirme-hicham-dguig_2013175/)
+
+
+### navire (N/A, Fri, 16 Oct 2026 06:00:00 -0700)
+
+- **Dans le détroit : un navire qui peut se mettre rapidement au service de son pays**: [Link](https://www.lavoixdunord.fr/1746810/article/2026-10-16/dans-le-detroit-un-navire-qui-peut-se-mettre-rapidement-au-service-de-son-pays)
+- **Navires fantômes, formation militaire, soft power… Jusque dans l’océan Indien, la France en première ligne face à la pression de Moscou**: [Link](https://www.leparisien.fr/international/navires-fantomes-formation-militaire-soft-power-jusque-dans-locean-indien-la-france-en-premiere-ligne-face-a-la-pression-de-moscou-16-10-2026-BUO5V6QMZJGDROTJU57WZ65D2Y.php)
+- **«Flotte fantôme» russe : La Marine nationale a arraisonné le pétrolier DF Peak à 450 nautiques de La Réunion**: [Link](https://www.opex360.com/2026/10/13/flotte-fantome-russe-la-marine-nationale-a-arraisonne-le-petrolier-df-peak-a-450-nautiques-de-la-reunion/)
+
+
+### ezzalzouli (N/A, Fri, 16 Oct 2026 05:50:00 -0700)
+
+- **Champions League: Abde Ezzalzouli, nominado al «Gol de la semana»**: [Link](https://es.le360.ma/deportes/champions-league-abde-ezzalzouli-nominado-al-gol-de-la-semana_52NVHULRJBALLN3P5M4OSVXWZ4/)
+- **Retener a Abde será cada vez más difícil**: [Link](https://www.sport.es/es/noticias/champions/retener-abde-sera-vez-dificil-135355567)
+- **Champions con sello marroquí: gol de Abde, victoria de Hakimi y asistencia de Bouaddi**: [Link](https://es.rue20.com/2026/10/14/champions-con-sello-marroqui-gol-de-abde-victoria-de-hakimi-y-asistencia-de-bouaddi/)
+
+
+### زهور الحر (N/A, Fri, 16 Oct 2026 04:50:00 -0700)
+
+- **وفاة القاضية زهور الحر..عضو اللجنة الملكية الاستشارية لإصلاح مدونة الأسرة – اليوم 24**: [Link](https://alyaoum24.com/2050822.html)
+- **وفاة القاضية زهور الحر.. إحدى رائدات القضاء وأبرز مهندسي مدونة الأسرة بالمغرب**: [Link](https://al3omk.com/1197221.html)
+- **رحيل زهور الحر القاضية السابقة: كانت مدافعة شرسة على الأسرة المغربية وهي أول مرا ترأست قسم قضاء الأسرة فبلادنا**: [Link](https://www.goud.ma/%D8%B1%D8%AD%D9%8A%D9%84-%D8%B2%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%AD%D8%B1-%D8%A7%D9%84%D9%82%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D9%83%D8%A7%D9%86%D8%AA-%D9%85%D8%AF-1047654/)
+
+
+### christophe gleizes (N/A, Fri, 16 Oct 2026 04:00:00 -0700)
+
+- **Dans sa prison en Algérie, Christophe Gleizes est devenu un «héros» grâce au soutien de Zinédine Zidane, raconte la mère du journaliste**: [Link](https://www.lefigaro.fr/international/dans-sa-prison-en-algerie-christophe-gleizes-est-devenu-un-heros-grace-au-soutien-de-zinedine-zidane-raconte-la-mere-du-journaliste-20261015)
+- **Le rendez-vous Afrique - Zidane, soutien clé à Christophe Gleizes**: [Link](https://www.france24.com/fr/%C3%A9missions/le-rendez-vous-afrique/20261015-zidane-soutien-cl%C3%A9-%C3%A0-christophe-gleizes)
+- **Algérie: les parents de Christophe Gleizes appellent à «agir vite» pour sa libération**: [Link](https://sport.le360.ma/divers/algerie-les-parents-de-christophe-gleizes-appellent-a-agir-vite-pour-sa-liberation_R5OWQNFD3RAVJNFB3GKR5FZUNE/)
+
+
+### باراك أوباما (N/A, Fri, 16 Oct 2026 03:10:00 -0700)
+
+- **أوباما: إسرائيل أخذت أراضي الفلسطينيين وتجاوزت الحد**: [Link](https://www.aljazeera.net/news/2026/10/16/%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D8%A7-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A3%D8%AE%D8%B0%D8%AA-%D8%A3%D8%B1%D8%B6-%D8%A7%D9%84%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D9%8A%D9%86)
+- **أوباما: "إسرائيل فرّطت في رصيدها الأخلاقي" في صراع الشرق الأوسط**: [Link](https://arabi21.com/story/1796269/%D8%A3%D9%88%D8%A8%D8%A7%D9%85%D8%A7-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%81%D8%B1%D8%B7%D8%AA-%D9%81%D9%8A-%D8%B1%D8%B5%D9%8A%D8%AF%D9%87%D8%A7-%D8%A7%D9%84%D8%A3%D8%AE%D9%84%D8%A7%D9%82%D9%8A-%D9%81%D9%8A-%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7)
+- **نتنياهو يرد على اتهامات أوباما بأن إسرائيل سرقت أراضٍ فلسطينية:"هذا هو وطننا"**: [Link](https://www.i24news.tv/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/middle-east/artc-0ac95d58)
+
+
+### قرض (N/A, Fri, 16 Oct 2026 03:00:00 -0700)
+
+- **الأسر المغربية تتعثر في سداد قروض بـ 4470 مليار سنتيم تجاه البنوك**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B3%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B9%D8%AB%D8%B1-%D9%81%D9%8A-%D8%B3%D8%AF%D8%A7%D8%AF-%D9%82%D8%B1%D9%88%D8%B6-%D8%A8%D9%80-4470-%D9%85-1823295.html)
+- **96 في المائة من الأسر المغربية تشتكي ارتفاع أسعار المواد الغذائية**: [Link](https://assabah.ma/956236.html)
+- **مندوبية التخطيط: 81 بالمائة من الأسر أقرت بتدهور مستوى معيشتها في 2024**: [Link](https://ar.telquel.ma/%D9%85%D9%86%D8%AF%D9%88%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AE%D8%B7%D9%8A%D8%B7-925-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%A7%D8%A6%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B3%D8%B1-%D8%A7%D9%84/)
+
+
+### تصدير (N/A, Fri, 16 Oct 2026 02:50:00 -0700)
+
+- **وقف صادرات الطماطم المغربية يشعل الأسعار في الأسواق الموريتانية**: [Link](https://www.hespress.com/%D9%88%D9%82%D9%81-%D8%B5%D8%A7%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%85%D8%A7%D8%B7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A3%D8%B3-1823216.html)
+- **موريتانيا: أزمة في الطماطم «الترف الأحمر» المستورد من المغرب... وارتفاع سعره في الأسواق والحكومة تشرح السبب والمعارضة تحتج**: [Link](https://www.alquds.co.uk/%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%A3%D8%B2%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D9%85%D8%A7%D8%B7%D9%85-%D8%A7%D9%84%D8%AA%D8%B1%D9%81-%D8%A7%D9%84%D8%A3%D8%AD/)
+- **مصادرة لـ4.7 طن من الطماطم وتحديد 1200 سعرا للكيلوغرام**: [Link](https://www.alakhbar.info/6acfed480b4ddf00018c9191/)
+
+
+### onu sahara occidental (N/A, Fri, 16 Oct 2026 02:40:00 -0700)
+
+- **n°1305. Pourquoi Rabat et Washington ont divergé sur le Sahara à l’Assemblée de l’ONU**: [Link](https://ledesk.ma/enclair/pourquoi-rabat-et-washington-ont-diverge-sur-le-sahara-a-lassemblee-de-lonu/)
+- **Sahara : la Quatrième Commission adopte sa résolution annuelle, pourquoi Rabat et Alger ont tous deux voté pour**: [Link](https://medias24.com/2026/10/16/sahara-la-quatrieme-commission-adopte-sa-resolution-annuelle-pourquoi-rabat-et-alger-ont-tous-deux-vote-pour-1780449/)
+- **ONU : la Quatrième Commission adopte une résolution consacrant la résolution historique 2797 du Conseil de Sécurité**: [Link](https://mobile.telquel.ma/instant-t/2026/10/16/onu-la-quatrieme-commission-adopte-une-resolution-consacrant-la-resolution-historique-2797-du-conseil-de-securite_2013345/)
+
+
 ### teams (N/A, Fri, 16 Oct 2026 01:40:00 -0700)
 
 - **Sources: College Football Playoff nearing deal for 24-team format in '27**: [Link](https://www.espn.com/college-football/story/_/id/50190410/sources-college-football-playoff-nearing-deal-24-team-format)
