@@ -1,3 +1,73 @@
+### هانزي فليك (N/A, Fri, 16 Oct 2026 09:30:00 -0700)
+
+- **فليك منبهر بالزلزولي: "ما يقدمه مثير للإعجاب"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%85%D9%86%D8%A8%D9%87%D8%B1-%D8%A8%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A--%D9%85%D8%A7-%D9%8A%D9%82%D8%AF%D9%85%D9%87-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%A7%D9%95%D8%B9%D8%AC%D8%A7%D8%A8/blt8fa95765261652d9)
+- **ما القنوات الناقلة لمباراة ريال بيتيس وبرشلونة في الدوري الإسباني 2026-2027؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltdc84a4838b9aa30e)
+- **بطولة إسبانيا: برشلونة يعول على تألق نجمه جمال في مواجهة تحدي ريال بيتيس**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261016-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B9%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%A3%D9%84%D9%82-%D9%86%D8%AC%D9%85%D9%87-%D8%AC%D9%85%D8%A7%D9%84-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D8%AD%D8%AF%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3)
+
+
+### رشيد حموني (N/A, Fri, 16 Oct 2026 09:20:00 -0700)
+
+- **حموني : انتقالنا للأغلبية فرصة لتنزيل وعودنا الانتخابية**: [Link](https://al3omk.com/1196884.html)
+- **من قيادة المعارضة البرلمانية إلى وزارة الإدماج الاجتماعي.. من هو رشيد حموني الوزير الجديد في حكومة المنصوري؟**: [Link](https://tanja24.com/%D9%85%D9%86-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D8%A7%D8%B1%D8%B6%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%A5%D9%84%D9%89-%D9%88%D8%B2%D8%A7%D8%B1/)
+- **حموني: معظم مقترحات التقدم والاشتراكية ستكون حاضرة في البرنامج الحكومي**: [Link](https://24saa.com/%D8%AD%D9%85%D9%88%D9%86%D9%8A-%D9%85%D8%B9%D8%B8%D9%85-%D9%85%D9%82%D8%AA%D8%B1%D8%AD%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%85-%D9%88%D8%A7%D9%84%D8%A7%D8%B4%D8%AA%D8%B1%D8%A7%D9%83%D9%8A/)
+
+
+### نبيل بنعبد الله (N/A, Fri, 16 Oct 2026 09:10:00 -0700)
+
+- **بنعبد الله وحموني وأفيلال.. التقدم والاشتراكية يعود للتدبير الحكومي عبر قطاعات حيوية**: [Link](https://al3omk.com/1197361.html)
+- **بنعبد الله وأفيلال.. من الإعفاء في عهد العثماني إلى العودة للحكومة في عهد المنصوري**: [Link](https://ar.yabiladi.com/articles/details/205138/%D8%A8%D9%86%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%A3%D9%81%D9%8A%D9%84%D8%A7%D9%84-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D8%B9%D9%81%D8%A7%D8%A1.html)
+- **سلسلة واش قد فم رئيسة الحكومة قد تعيينها. 1 وزراء التقدم والاشتراكية: انتهازية وغضبة سيدنا وطرد عمارة: من غير حموني ما يستحق حتى واحد الاستوزار**: [Link](https://www.goud.ma/%D8%B3%D9%84%D8%B3%D9%84%D8%A9-%D9%88%D8%A7%D8%B4-%D9%82%D8%AF-%D9%81%D9%85-%D8%B1%D8%A6%D9%8A%D8%B3%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D9%82%D8%AF-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D9%87-1047788/)
+
+
+### kick (N/A, Fri, 16 Oct 2026 09:10:00 -0700)
+
+- **Kick Events | Full Details On Kick's New Hub**: [Link](https://win.gg/kick-events-hub-announced/)
+- **Lavlune’s Kick ban follows viral dog video as MoistCr1TiKaL criticism sparks heated response**: [Link](https://timesofindia.indiatimes.com/world/us-streamers/lavlunes-kick-ban-follows-viral-dog-video-as-moistcr1tikal-criticism-sparks-heated-response/articleshow/134973414.cms)
+- **Kick Ban After Dog Video: Lavlune faces backlash over pet clip; platform stays silent on reason**: [Link](https://www.inkl.com/news/kick-ban-after-dog-video-lavlune-faces-backlash-over-pet-clip-platform-stays-silent-on-reason)
+
+
+### أحمد المهدي المزواري (N/A, Fri, 16 Oct 2026 09:00:00 -0700)
+
+- **من هو أحمد المهدي المزواري؟…الوزير الجديد المكلف بالصيد البحري – اليوم 24**: [Link](https://alyaoum24.com/2050939.html)
+- **من إدارة شركات كبرى إلى وزارة الفلاحة.. من هو خالد حاتيمي الوزير الجديد في حكومة المنصوري؟**: [Link](https://tanja24.com/%D9%85%D9%86-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%B4%D8%B1%D9%83%D8%A7%D8%AA-%D9%83%D8%A8%D8%B1%D9%89-%D8%A5%D9%84%D9%89-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D8%A9/)
+- **اختلالات التسويق والدعم تعيد ملف الفلاحة إلى الواجهة.. والأنظار نحو الوزير المقبل**: [Link](https://aljarida24.ma/p/actualites/360037/)
+
+
+### صلاح الدين عبقري (N/A, Fri, 16 Oct 2026 08:50:00 -0700)
+
+- **الملك محمد السادس يستقبل ويعين أعضاء الحكومة الجديدة برئاسة المنصوري**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%88%D9%8A%D8%B9%D9%8A%D9%86-%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D8%A7-1823558.html)
+- **إعلان تشكيلة الحكومة المغربية برئاسة فاطمة الزهراء المنصوري**: [Link](https://www.alarabiya.net/north-africa/morocco/2026/10/16/%D8%A7%D9%84%D8%A7%D8%B9%D9%84%D8%A7%D9%86-%D8%B9%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D9%81%D8%A7%D8%B7%D9%85%D8%A9-%D8%A7%D9%84%D8%B2%D9%87%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A)
+- **اسقاط قطاع الاتصال من هيكلة الحكومة الجديدة – اليوم 24**: [Link](https://alyaoum24.com/2050918.html)
+
+
+### abderrahim chahid (N/A, Fri, 16 Oct 2026 08:50:00 -0700)
+
+- **Abderrahim Chahid, de la présidence du groupe socialiste au ministère de l’Emploi**: [Link](http://ledesk.ma/2026/10/16/abderrahim-chahid-de-la-presidence-du-groupe-socialiste-au-ministere-de-lemploi/)
+- **Abderrahim Chahid, un socialiste à la tête de l’emploi**: [Link](https://fr.le360.ma/politique/abderrahim-chahid-un-socialiste-a-la-tete-de-lemploi_XU4KURGZOVEGNGTZMUQVVLWXNY/)
+- **De l’opposition au gouvernement : qui est Abderrahim Chahid, cadre de l’USFP ?**: [Link](https://www.maroc-hebdo.com/article/de-lopposition-au-gouvernement-qui-est-abderrahim-chahid-cadre-de-lusfp)
+
+
+### احمد رحو (N/A, Fri, 16 Oct 2026 08:40:00 -0700)
+
+- **من رئاسة مجلس المنافسة إلى وزارة الذكاء الاصطناعي.. من هو أحمد رحو؟**: [Link](https://tanja24.com/%D9%85%D9%86-%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D8%A5%D9%84%D9%89-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%83%D8%A7/)
+- **من تكون عائشة الكلاع التي تم تعيينها كوزيرة منتدبة مكلفة بإصلاح الإدارة؟**: [Link](https://ar.hibapress.com/details-766325.html)
+- **المغرب يعلن حكومة جديدة بدمج قطاعات واستحداث وزارة للذكاء الاصطناعي**: [Link](https://asharqbusiness.com/politics/151841/%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A8%D8%AF%D9%85%D8%AC-%D9%82%D8%B7%D8%A7%D8%B9%D8%A7%D8%AA-%D9%88%D8%A7%D8%B3%D8%AA%D8%AD%D8%AF%D8%A7%D8%AB-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D9%84%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A/)
+
+
+### عبد الرحيم شهيد (N/A, Fri, 16 Oct 2026 08:40:00 -0700)
+
+- **عبد الرحيم شهيد.. من رئاسة الفريق الاشتراكي إلى وزارة التشغيل والحوار الاجتماعي – اليوم 24**: [Link](https://alyaoum24.com/2050921.html)
+- **من رئاسة الفرق النيابية إلى كراسي الحكومة.. ثلاثة رؤساء فرق ينتقلون إلى الاستوزار**: [Link](https://rue20.com/1038413.html)
+- **من هي ماديحة خيير التي عينها الملك وزيرة منتدبة مكلفة بالتكوين المهني والتأهيل؟**: [Link](https://tanja24.com/%D9%85%D9%86-%D9%87%D9%8A-%D9%85%D8%A7%D8%AF%D9%8A%D8%AD%D8%A9-%D8%AE%D9%8A%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D9%8A-%D8%B9%D9%8A%D9%86%D9%87%D8%A7-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%88%D8%B2%D9%8A%D8%B1/)
+
+
+### samir belfkih (N/A, Fri, 16 Oct 2026 08:40:00 -0700)
+
+- **Najwa Koukouss, la figure de Derb Soltane au ministère de la Famille**: [Link](http://ledesk.ma/2026/10/16/najwa-koukouss-la-figure-de-derb-soltane-au-ministere-de-la-famille/)
+- **Qui est Samir Belfkih, ministre de l’Aménagement du territoire national, de l’Urbanisme, de l’Habitat et de la Politique de la ville ?**: [Link](https://lematin.ma/nation/qui-est-samir-belfkih-ministre-de-lamenagement-du-territoire-national/370798)
+- **Le Département de la Jeunesse lance le « Hackathon Jeunes » pour encourager l’innovation et valoriser le patrimoine culturel**: [Link](https://mjcc.gov.ma/fr/le-departement-de-la-jeunesse-lance-le-hackathon-jeunes-pour-encourager-linnovation-et-valoriser-le-patrimoine-culturel/)
+
+
 ### أنصار الله الحوثيون (N/A, Fri, 16 Oct 2026 07:00:00 -0700)
 
 - **اليمن مباشر.. زوال الخطر عن ينبع والعليمي متمسك بأهداف "فجر اليمن"**: [Link](https://www.aljazeera.net/news/liveblog/2026/10/16/%D8%A7%D9%84%D9%8A%D9%85%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-5-%D9%82%D8%AA%D9%84%D9%89-%D9%81%D9%8A-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%A7%D9%84%D8%AD%D9%88%D8%AB%D9%8A-%D8%B9%D9%84%D9%89)
