@@ -1,3 +1,71 @@
+### wetter morgen (N/A, Fri, 16 Oct 2026 13:40:00 -0700)
+
+- **Wetterwechsel - Der Herbst meldet sich zurück**: [Link](https://www.srf.ch/meteo/meteo-stories/wetterwechsel-der-herbst-meldet-sich-zurueck)
+- **Oktoberwärme in Deutschland endet – kältere Luftmassen im Anmarsch**: [Link](https://www.wetter.net/wetter-tv/video/6629-oktoberwaerme-in-deutschland-endet-kaeltere-luftmassen-im-anmarsch)
+- **16-Tage-Trend: Goldener Oktober zum Monatsende? Hier sind wieder 20 Grad möglich**: [Link](https://ch.wetter.com/news/16-tage-trend-goldener-oktober-zum-monatsende-hier-sind-wieder-20-grad-moeglich_aid_6ad2028292a9a5fae90a6c35.html)
+
+
+### الحرس الملكي (N/A, Fri, 16 Oct 2026 13:10:00 -0700)
+
+- **معرض الفرس بالجديدة يكرّم فائزين في "السرج" و"لمكحلة" و"الخرقة"**: [Link](https://www.hespress.com/%D9%85%D8%B9%D8%B1%D8%B6-%D8%A7%D9%84%D9%81%D8%B1%D8%B3-%D8%A8%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%8A%D9%83%D8%B1%D9%91%D9%85-%D8%B5%D9%86%D8%A7%D8%B9%D8%A7-%D9%81%D8%A7%D8%A6%D8%B2%D9%8A-1823461.html)
+- **القوات المسلحة الملكية تستحضر تاريخ الفروسية العسكرية في معرض الفرس بالجديدة**: [Link](https://assabah.ma/956073.html)
+- **الجامعة الملكية المغربية للفروسية تعقد شراكة مع الجامعة البنينة بمعرض الفرس بالجديدة**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%84%D9%81%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D8%AA%D8%B9/)
+
+
+### ياسين جسيم (N/A, Fri, 16 Oct 2026 13:00:00 -0700)
+
+- **المغربي ياسين جسيم.. الولادة المبهرة لـ"نجم كرة الشارع"**: [Link](https://www.aljazeera.net/sport/2026/10/16/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AC%D8%B3%D9%8A%D9%85-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D9%87%D8%B1%D8%A9)
+- **"انتقاله بات شبه محسوم".. المدرب السابق لحراس تشيلسي يلمّح إلى اقتراب جسيم من الانضمام للنادي اللندني**: [Link](https://www.elbotola.com/article/2026-10-16-19-34-573.html)
+- **تشيلسي يقترب من حسم صفقة موهبة منتخب المغرب**: [Link](https://www.eremnews.com/sports/39zxcd8)
+
+
+### tiempo mañana (N/A, Fri, 16 Oct 2026 13:00:00 -0700)
+
+- **Clima en Santo Domingo, República Dominicana: ¿Cómo estará el tiempo este fin de semana? El pronóstico para este sábado 17 y domingo 18**: [Link](https://acento.com.do/ecologia/clima-en-santo-domingo-republica-dominicana-como-estara-el-tiempo-este-fin-de-semana-el-pronostico-para-este-sabado-17-y-domingo-18-9771703.html)
+- **Indomet prevé lluvias ligeras y temperaturas calurosas para este viernes en República Dominicana**: [Link](https://robertocavada.com/indomet-preve-lluvias-ligeras-y-temperaturas-calurosas-para-este-viernes-en-republica-dominicana/)
+- **Clima hoy en Santiago de los Caballeros, República Dominicana: el pronóstico del tiempo para este viernes 16 octubre de 2026**: [Link](https://www.clarin.com/informacion-general/clima-hoy-santiago-caballeros-republica-dominicana-pronostico-tiempo-viernes-16-octubre-2026_0_mIC4aOh244.html)
+
+
+### وزير الزراعة والثروة الحيوانية (N/A, Fri, 16 Oct 2026 12:30:00 -0700)
+
+
+
+
+### سياسي (N/A, Fri, 16 Oct 2026 12:20:00 -0700)
+
+- **أحمد رحو.. من هندسة المعلوميات إلى وزارة الذكاء الاصطناعي**: [Link](https://ar.telquel.ma/%D8%A3%D8%AD%D9%85%D8%AF-%D8%B1%D8%AD%D9%88-%D9%85%D9%86-%D9%87%D9%86%D8%AF%D8%B3%D8%A9-%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%88%D9%85%D9%8A%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9/)
+- **ميلاد وزارة السيادة الرقمية والذكاء الاصطناعي: رهان ملكي استراتيجي لتحديث الإدارة وصناعة المستقبل(خبراء)**: [Link](https://2m.ma/ar/news/%D9%85%D9%8A%D9%84%D8%A7%D8%AF-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D9%82%D9%85%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D8%B1%D9%87%D8%A7%D9%86-%D9%85%D9%84%D9%83%D9%8A-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A-20261016)
+- **حكومة المغرب.. الذكاء الاصطناعي يحضر والتواصل يغيب والأحزاب تتقاسم الحقائب (إضاءة)**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%85-%D8%A7%D9%84%D8%AA%D9%83%D9%86%D9%88%D9%84%D9%88%D8%AC%D9%8A%D8%A7/%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D8%AD%D8%B6%D8%B1-%D9%88%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D9%88%D8%A7%D9%84%D8%A3%D8%AD%D8%B2%D8%A7%D8%A8-%D8%AA%D8%AA%D9%82%D8%A7%D8%B3%D9%85-%D8%A7%D9%84%D8%AD%D9%82%D8%A7%D8%A6%D8%A8-%D8%A5%D8%B6%D8%A7%D8%A1%D8%A9/4091472)
+
+
+### فاطمة الزهراء المنصوري (N/A, Fri, 16 Oct 2026 11:40:00 -0700)
+
+- **32 عضوا في الحكومة الجديدة .. هذه حصص الأحزاب الأربعة والتكنوقراط**: [Link](https://www.hespress.com/32-%D8%B9%D8%B6%D9%88%D8%A7-%D9%81%D9%8A-%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D9%87%D8%B0%D9%87-%D8%AD%D8%B5%D8%B5-%D8%A7%D9%84%D8%A3%D8%AD%D8%B2-1823892.html)
+- **إعلان تشكيلة الحكومة المغربية برئاسة فاطمة الزهراء المنصوري**: [Link](https://www.alarabiya.net/north-africa/morocco/2026/10/16/%D8%A7%D9%84%D8%A7%D8%B9%D9%84%D8%A7%D9%86-%D8%B9%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A8%D8%B1%D8%A6%D8%A7%D8%B3%D8%A9-%D9%81%D8%A7%D8%B7%D9%85%D8%A9-%D8%A7%D9%84%D8%B2%D9%87%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A)
+- **اسقاط قطاع الاتصال من هيكلة الحكومة الجديدة – اليوم 24**: [Link](https://alyaoum24.com/2050918.html)
+
+
+### سفيان الشعراوي (N/A, Fri, 16 Oct 2026 11:40:00 -0700)
+
+- **إحاطة طبية**: [Link](https://frmf.ma/articles/%D8%A5%D8%AD%D8%A7%D8%B7%D8%A9-%D8%B7%D8%A8%D9%8A%D8%A9-1)
+- **تشكيلة "أسود القاعة" أمام منتخب ليبيا**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-1823942.html)
+- **أسود القاعة في نصف النهائي**: [Link](https://assabah.ma/956074.html)
+
+
+### deportivo – levante (N/A, Fri, 16 Oct 2026 11:30:00 -0700)
+
+- **Deportivo - Levante en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/deportivo-levante-en-directo-laliga-ea-sports-hoy-en-vivo-f202610-d/)
+- **Enzo Bardeli y Dani Requena entran en el once mientras que Jon Ander Olasagasti se queda en el banquillo**: [Link](https://www.lasprovincias.es/levanteud/enzo-bardeli-dani-requena-entran-once-jon-20261016200543-nt.html)
+- **Deportivo - Levante en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/deportivo-levante/2026/10/16/01_0101_20261016_180_855-directo.html)
+
+
+### katie zacharia (N/A, Fri, 16 Oct 2026 11:20:00 -0700)
+
+- **Trump selects Katie Zacharia as next White House press secretary**: [Link](https://www.cnn.com/2026/10/09/politics/katie-zacharia-white-house-press-secretary)
+- **White House scrambles over questions on new press secretary’s background**: [Link](https://www.washingtonpost.com/politics/2026/10/13/new-white-house-press-secretary-has-short-rocky-start/)
+- **Exclusive | White House Press Secretary Katie Zacharia Didn’t Pass Bar Exam**: [Link](https://www.wsj.com/business/media/white-house-press-secretary-katie-zacharia-didnt-pass-bar-exam-714a484e)
+
+
 ### هانزي فليك (N/A, Fri, 16 Oct 2026 09:30:00 -0700)
 
 - **فليك منبهر بالزلزولي: "ما يقدمه مثير للإعجاب"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%85%D9%86%D8%A8%D9%87%D8%B1-%D8%A8%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A--%D9%85%D8%A7-%D9%8A%D9%82%D8%AF%D9%85%D9%87-%D9%85%D8%AB%D9%8A%D8%B1-%D9%84%D9%84%D8%A7%D9%95%D8%B9%D8%AC%D8%A7%D8%A8/blt8fa95765261652d9)
