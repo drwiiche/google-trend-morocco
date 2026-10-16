@@ -1,3 +1,10 @@
+### أيوب بوعدي (N/A, Fri, 16 Oct 2026 10:30:00 -0700)
+
+- **المختاري: بوعدي مكسب للمنتخب المغربي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AE%D8%AA%D8%A7%D8%B1%D9%8A-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%85%D9%83%D8%B3%D8%A8-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1823711.html)
+- **ماريسكا: "بوعدي يجعل اللاعبين المحيطين به أفضل وهذه الميزة لا يمتلكها إلا اللاعبون الكبار"**: [Link](https://www.elbotola.com/article/2026-10-16-14-12-986.html)
+- **تألق لافت للمحترفين المغاربة في عصبة الأبطال الأوروبية**: [Link](https://sport.rue20.com/%D8%AA%D8%A3%D9%84%D9%82-%D9%84%D8%A7%D9%81%D8%AA-%D9%84%D9%84%D9%85%D8%AD%D8%AA%D8%B1%D9%81%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D8%A9-%D9%81%D9%8A-%D8%B9%D8%B5%D8%A8%D8%A9-%D8%A7.html)
+
+
 ### wetter morgen (N/A, Fri, 16 Oct 2026 13:40:00 -0700)
 
 - **Wetterwechsel - Der Herbst meldet sich zurück**: [Link](https://www.srf.ch/meteo/meteo-stories/wetterwechsel-der-herbst-meldet-sich-zurueck)
