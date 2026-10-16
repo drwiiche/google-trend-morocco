@@ -1,3 +1,66 @@
+### teams (N/A, Fri, 16 Oct 2026 01:40:00 -0700)
+
+- **Sources: College Football Playoff nearing deal for 24-team format in '27**: [Link](https://www.espn.com/college-football/story/_/id/50190410/sources-college-football-playoff-nearing-deal-24-team-format)
+- **SEC capitulation on 24-team CFP is another unforced humiliation | Opinion**: [Link](https://www.usatoday.com/story/sports/ncaaf/2026/10/16/sec-football-legacy-cfp-expansion-24-team-greg-sankey/92273496007/)
+- **How do you go from BCS nonsense to a 24-team College Football Playoff nobody wants? By not listening to fans**: [Link](https://sports.yahoo.com/college-football/article/from-bcs-to-24-team-college-football-playoff-nobody-wants-by-not-listening-to-fans-232731161.html)
+
+
+### ركلة جزاء (N/A, Fri, 16 Oct 2026 01:10:00 -0700)
+
+- **سدد اللاعب ركلة الجزاء بأسلوب "رجل عجوز يمشي"، وكانت النتيجة صادمة.**: [Link](https://www.vietnam.vn/ar/cau-thu-sut-phat-den-kieu-ong-gia-di-bo-va-cai-ket-gay-soc)
+- **قناة روسيا اليوم / نهاية كارثية.. لاعب جامايكي يبتكر طريقة غريبة لتنفيذ ركلة جزاء**: [Link](https://nabdapp.com/t/179471430-8f092f)
+- **فيديو - 17 ثانية لأغرب ركلة جزاء ضائعة!**: [Link](https://www.aljadeed.tv/sports/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/592222/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-17-%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D8%A3%D8%BA%D8%B1%D8%A8-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%B6%D8%A7%D8%A6%D8%B9%D8%A9/ar)
+
+
+### sénégal (N/A, Fri, 16 Oct 2026 01:00:00 -0700)
+
+- **Sénégal : recul de la production de Sangomar, stabilité de GTA**: [Link](https://fr.apanews.net/not-to-be-missed/senegal-recul-de-la-production-de-sangomar-stabilite-de-gta/)
+- **Maroc-Sénégal : le verdict du TAS peut-il changer les contrats de sponsoring ?**: [Link](https://www.lebrief.ma/maroc-senegal-quelles-consequences-financieres-apres-le-verdict-du-tas-100169476/)
+- **CAN 2025: un faux communiqué attribué au TAS annonçant la victoire du Sénégal circule sur les réseaux sociaux**: [Link](https://sport.le360.ma/football/can/can-2025-un-faux-communique-attribue-au-tas-annoncant-la-victoire-du-senegal-circule-sur-les-reseaux_2VZ3SP36RRC6DMDL375P4IOBIY/)
+
+
+### tesla (N/A, Fri, 16 Oct 2026 00:30:00 -0700)
+
+- **Tesla’s new Roadster makes a flying debut, hitting 60 MPH in under a second**: [Link](https://www.foxbusiness.com/technology/teslas-new-roadster-makes-flying-debut-hitting-60-mph-under-second)
+- **Video: Tesla Unveils Its New Roadster**: [Link](https://www.nytimes.com/video/business/100000011217990/tesla-roadster-elon-musk.html)
+- **Elon Musk's flying Tesla is gloriously absurd**: [Link](https://www.axios.com/2026/10/16/tesla-roadster-elon-musk-flying-car)
+
+
+### sally rooney (N/A, Fri, 16 Oct 2026 00:00:00 -0700)
+
+- **Sally Rooney’s publisher withdraws her books from UK sale over support for Palestine Action**: [Link](https://apnews.com/article/uk-sally-rooney-palestine-action-books-ban-a40a9ae7fee636939eca068a67aa403f)
+- **Sally Rooney’s stand on Palestine is brave and humane**: [Link](https://www.theguardian.com/books/2026/oct/15/sally-rooneys-stand-on-palestine-is-brave-and-humane)
+- **Sally Rooney’s Self-Boycott Stunt**: [Link](https://www.commentary.org/seth-mandel/sally-rooneys-self-boycott-stunt/)
+
+
+### طماطم (N/A, Thu, 15 Oct 2026 23:30:00 -0700)
+
+- **وقف صادرات الطماطم المغربية يشعل الأسعار في الأسواق الموريتانية**: [Link](https://www.hespress.com/%D9%88%D9%82%D9%81-%D8%B5%D8%A7%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%85%D8%A7%D8%B7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%8A%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%A3%D8%B3-1823216.html)
+- **موريتانيا: أزمة في الطماطم «الترف الأحمر» المستورد من المغرب... وارتفاع سعره في الأسواق والحكومة تشرح السبب والمعارضة تحتج**: [Link](https://www.alquds.co.uk/%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D8%A3%D8%B2%D9%85%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B7%D9%85%D8%A7%D8%B7%D9%85-%D8%A7%D9%84%D8%AA%D8%B1%D9%81-%D8%A7%D9%84%D8%A3%D8%AD/)
+- **مصادرة لـ4.7 طن من الطماطم وتحديد 1200 سعرا للكيلوغرام**: [Link](https://www.alakhbar.info/6acfed480b4ddf00018c9191/)
+
+
+### محكمة التحكيم الرياضية (N/A, Thu, 15 Oct 2026 22:40:00 -0700)
+
+- **وثيقة "كاس" تشعل الجدل.. ما حقيقة حسم لقب أفريقيا بين المغرب والسنغال؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%AB%D9%8A%D9%82%D8%A9-%D9%83%D8%A7%D8%B3-%D8%AA%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%84--%D9%85%D8%A7-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AD%D8%B3%D9%85-%D9%84%D9%82%D8%A8-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/blte29bfdc734cee0e4)
+- **أبرز القضايا والأحكام.. ملفات مغربية أمام محكمةالتحكيم الرياضي "الطاس"**: [Link](https://anfaspress.com/news/voir/180196-2026-10-15-01-30-53)
+- **وثيقة تمنح السنغال لقب أمم أفريقيا 2025 مزيفة ومحكمة التح...**: [Link](https://africaforpress.com/blog/%D9%88%D8%AB%D9%8A%D9%82%D8%A9-%D8%AA%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%84%D9%82%D8%A8-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2025-%D9%85%D8%B2%D9%8A%D9%81%D8%A9-%D9%88%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%84%D9%85-%D8%AA%D8%B5%D8%AF%D8%B1-%D8%AD%D9%83%D9%85%D9%87%D8%A7-%D8%A8%D8%B9%D8%AF)
+
+
+### أشرف بن شرقي (N/A, Thu, 15 Oct 2026 22:40:00 -0700)
+
+- **خطوة جديدة من الأهلي لإنهاء جدل صفقة نجمه المغربي**: [Link](https://ar.sport.le360.ma/football/botola/PXXCNETC75G2LHBAQ7EEIIJZJI/)
+- **تطورات مهمة فى ملف تجديد عقد أشرف بن شرقي بالأهلي.. تعرف عليها**: [Link](https://www.youm7.com/story/2026/10/16/%D8%AA%D8%B7%D9%88%D8%B1%D8%A7%D8%AA-%D9%85%D9%87%D9%85%D8%A9-%D9%81%D9%89-%D9%85%D9%84%D9%81-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF-%D8%A3%D8%B4%D8%B1%D9%81-%D8%A8%D9%86-%D8%B4%D8%B1%D9%82%D9%8A-%D8%A8%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A/7581686)
+- **تحرك جديد من الأهلي يهم مستقبل بن شرقي**: [Link](https://infosports.ma/229459/)
+
+
+### دعوى قضائية (N/A, Thu, 15 Oct 2026 16:20:00 -0700)
+
+- **قضية وثائق ترمب السرية تعود للواجهة بدعوى قضائية من محققين سابقين**: [Link](https://asharq.com/politics/199640/%D9%82%D8%B6%D9%8A%D8%A9-%D9%88%D8%AB%D8%A7%D8%A6%D9%82-%D8%AA%D8%B1%D9%85%D8%A8-%D8%A7%D9%84%D8%B3%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D8%AF%D8%B9%D9%88%D9%89-%D9%82%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/)
+- **عناصر من مكتب التحقيقات مفصولون يرفعون دعاوى للعودة إلى عملهم**: [Link](https://twaslnews1.twaslnews.com/6068888/)
+- **أمريكا: عناصر من مكتب التحقيقات الفيدرالي ومحللون مفصولون من وظائفهم يرفعون دعاوى للعودة إلى عملهم**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=15102026&id=f774589d-48be-4c36-afd4-1984648a748c)
+
+
 ### الصحراء الغربية (N/A, Thu, 15 Oct 2026 13:40:00 -0700)
 
 - **اللجنة الرابعة الأممية تكرس القرار التاريخي 2797 لمجلس الأمن الدولي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%85%D9%8A%D8%A9-%D8%AA%D9%83%D8%B1%D8%B3-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84-1823380.html)
