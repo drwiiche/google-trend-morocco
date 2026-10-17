@@ -1,3 +1,43 @@
+### héritage (N/A, Sat, 17 Oct 2026 01:30:00 -0700)
+
+- **Maroc : face à une nouvelle plainte pour faux, Rita Zniber dénonce un chantage**: [Link](https://www.jeuneafrique.com/1851787/economie-entreprises/maroc-face-a-une-nouvelle-plainte-pour-faux-rita-zniber-denonce-un-chantage/)
+- **Problèmes de succession chez les Zniber : Un héritage empoisonné**: [Link](https://www.maroc-hebdo.com/article/problemes-de-succession-chez-les-zniber-un-heritage-empoisonne)
+- **Rita Zniber interdite de quitter le Maroc : les dessous d’une guerre d’héritage**: [Link](https://le1.ma/rita-zniber-interdite-quitter-maroc-guerre-heritage/)
+
+
+### كرة الصالات (N/A, Sat, 17 Oct 2026 01:20:00 -0700)
+
+- **كأس الأمم الأفريقية لكرة الصالات TotalEnergies CAF – لاعب مصر بودي: تركيزنا كان التأهل لنصف النهائي**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-totalenergies-caf-%D9%84%D8%A7%D8%B9%D8%A8-%D9%85%D8%B5%D8%B1-%D8%A8%D9%88%D8%AF%D9%8A-%D8%AA%D8%B1%D9%83%D9%8A%D8%B2%D9%86%D8%A7-%D9%83%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A/)
+- **أجندة كأس إفريقيا للأمم للفوتصال**: [Link](https://www.almountakhab.com/node/16231704)
+- **صراع الصدارة يحدد منافس المغرب في نصف نهائي «كان الفوتسال»**: [Link](https://le12.ma/%D8%B5%D8%B1%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D9%86/)
+
+
+### مطر (N/A, Fri, 16 Oct 2026 23:20:00 -0700)
+
+- **تحرك السحب الممطرة شرقًا، أمطار على البحيرة وكفر الشيخ وأجزاء من الإسكندرية**: [Link](https://www.vetogate.com/5751812)
+- **هل نستقبل أمطارًا غزيرة وشتاءً لم نشهده منذ 30 عامًا؟.. الأرصاد تُجيب**: [Link](https://www.almasryalyoum.com/news/details/4385459)
+- **حالة الطقس في الإسكندرية اليوم.. أمطار متوسطة إلى شديدة الغزارة**: [Link](https://www.elwatannews.com/news/details/8378762)
+
+
+### tiempo (N/A, Fri, 16 Oct 2026 23:10:00 -0700)
+
+
+
+
+### ayyoub bouaddi (N/A, Fri, 16 Oct 2026 22:40:00 -0700)
+
+- **Maresca says Haaland and team-mates will need rest**: [Link](https://www.mancity.com/news/mens/maresca-written-ipswich-preview-63927753)
+- **FPL Gameweek 7 team news: Friday’s live injury updates**: [Link](https://www.fantasyfootballscout.co.uk/2026/10/16/fpl-gameweek-7-team-news-fridays-live-injury-updates-4/)
+- **Will Haaland start against Ipswich? Latest after Man City lineup hint**: [Link](https://www.standard.co.uk/sport/football/erling-haaland-man-city-injury-fpl-b1301187.html)
+
+
+### أكتوبر (N/A, Fri, 16 Oct 2026 22:10:00 -0700)
+
+- **Chevron CEO warns oil buffers that cushioned the Iran war shock have been ‘drained’—and diesel relief may not come until 2027**: [Link](https://finance.yahoo.com/energy/articles/chevron-ceo-warns-oil-buffers-070200650.html)
+- **Global Diesel Squeeze to Drag Into 2027, IEA Says**: [Link](https://www.wsj.com/business/energy-oil/global-diesel-squeeze-to-drag-into-2027-iea-says-c7d06769)
+- **IEA to speed up oil stocks release including over 20 million barrels of diesel**: [Link](https://www.reuters.com/business/energy/iea-speed-up-oil-stocks-release-including-over-20-million-barrels-diesel-2026-10-15/)
+
+
 ### netflix (N/A, Fri, 16 Oct 2026 18:30:00 -0700)
 
 - **Netflix Adds Chris Evans And Anya Taylor-Joy's Jarring 2026 Comedy**: [Link](https://www.slashfilm.com/2289062/chris-evans-anya-taylor-joy-2026-comedy-sacrifice/)
