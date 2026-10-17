@@ -1,3 +1,17 @@
+### salah eddine abkari (N/A, Fri, 16 Oct 2026 15:00:00 -0700)
+
+- **Qui est Salah-Eddine Abkari, ministre délégué auprès du ministre de la Jeunesse, de la Culture et des Sports, chargé de la Jeunesse ?**: [Link](https://lematin.ma/nation/qui-est-m-abkari-ministre-delegue-aupres-du-ministre-de-la-jeunesse/370807)
+- **Salaheddine Abkari, un trentenaire à la Jeunesse**: [Link](https://mobile.telquel.ma/instant-t/2026/10/16/salaheddine-abkari-un-trentenaire-a-la-jeunesse_2013608/)
+- **Mehdi Bensaïd, numéro deux du PAM, reconduit au même poste, avec les Sports en plus**: [Link](http://ledesk.ma/2026/10/16/mehdi-bensaid-le-numero-deux-du-pam-reconduit-au-meme-poste-au-gouvernement/)
+
+
+### maroc libye futsal (N/A, Fri, 16 Oct 2026 14:10:00 -0700)
+
+- **CAN futsal Maroc-2026: Le Maroc qualifié pour le dernier carré**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D9%8A%D8%AA%D8%A3%D9%87%D9%84-%D8%A5%D9%84%D9%89-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%A3%D9%85%D9%85)
+- **Maroc-Zambie (7-0) : Hicham Dguig salue la fidélité des Lions à leur style de jeu**: [Link](https://maroc-diplomatique.net/maroc-zambie-7-0-hicham-dguig-salue-la-fidelite-des-lions-a-leur-style-de-jeu/)
+- **Maroc-Libye (futsal): à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/futsal/maroc-libye-futsal-a-quelle-heure-et-sur-quelles-chaines_7BO7GA4S7VB5DGYFQHUJN45CDM/)
+
+
 ### أيوب بوعدي (N/A, Fri, 16 Oct 2026 10:30:00 -0700)
 
 - **المختاري: بوعدي مكسب للمنتخب المغربي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AE%D8%AA%D8%A7%D8%B1%D9%8A-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%85%D9%83%D8%B3%D8%A8-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1823711.html)
