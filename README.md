@@ -1,3 +1,71 @@
+### real betis - barcelona (N/A, Sat, 17 Oct 2026 09:00:00 -0700)
+
+- **Betis - Barcelona en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/betis-barcelona/2026/10/17/01_0101_20261017_185_178-directo.html)
+- **Flick cambia la rutina del Barça en una semana de órdago**: [Link](https://www.sport.es/es/noticias/barca/flick-cambia-rutina-barca-semana-135439264)
+- **Betis - FC Barcelone : Faire durer le plaisir**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4593115/betis--fc-barcelone-faire-durer-le-plaisir)
+
+
+### ريال بتيس ضد برشلونة (N/A, Sat, 17 Oct 2026 08:50:00 -0700)
+
+- **موقف رافينيا؟ 4 تغييرات في تشكيل برشلونة أمام ريال بيتيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D9%82%D9%81-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-4-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3/blt14fd2979caef516b)
+- **مباشر.. مباراة ريال بيتيس ضد برشلونة في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/17/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D8%A8%D9%8A%D8%AA%D9%8A%D8%B3-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85)
+- **بلانيس: الزلزولي يجسد فلسفتي في كرة القدم وتمسكت بضمه إلى بي**: [Link](https://kifache.com/%D8%A8%D9%84%D8%A7%D9%86%D9%8A%D8%B3-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%8A%D8%AC%D8%B3%D8%AF-%D9%81%D9%84%D8%B3%D9%81%D8%AA%D9%8A-%D9%81%D9%8A-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82/)
+
+
+### betis vs barcelona (N/A, Sat, 17 Oct 2026 08:50:00 -0700)
+
+- **La sequía de Antony pesa ante la visita del Barcelona a La Cartuja**: [Link](https://onefootball.com/es/noticias/la-sequia-de-antony-pesa-ante-la-visita-del-barcelona-a-la-cartuja-43626776)
+- **¿Por qué no juega Antony en Betis vs Barcelona por LaLiga?**: [Link](https://www.365scores.com/es/news/por-que-antony-no-juega-vs-barcelona/)
+- **Un récord indeseable: la pesadilla que acecha a Antony antes del Barça**: [Link](https://onefootball.com/es/noticias/un-record-indeseable-la-pesadilla-que-acecha-a-antony-antes-del-barca-43626781)
+
+
+### betis – barcelone (N/A, Sat, 17 Oct 2026 08:40:00 -0700)
+
+
+
+
+### bayern – rb leipzig (N/A, Sat, 17 Oct 2026 08:40:00 -0700)
+
+- **FC Bayern: Entscheidung um Manuel Neuer vor dem Leipzig-Spiel gefallen**: [Link](https://www.bild.de/sport/fussball/fc-bayern-entscheidung-um-manuel-neuer-im-training-vor-leipzig-topspiel-gefallen-6ad2189e51e5094f7a56eb9d)
+- **Vom Wackelkandidaten zum Angstgegner: Ex-Münchner sorgt bei seinem alten Klub für Schockwellen**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/fuer-bayern-hat-ex-star-demichelis-rb-zur-unzeit-wachgekuesst-94545936.html)
+- **Warum spielt Manuel Neuer nicht für den FC Bayern München beim Topspiel der Bundesliga gegen RB Leipzig?**: [Link](https://www.spox.com/fussball/news/warum-spielt-manuel-neuer-nicht-fuer-den-fc-bayern-muenchen-beim-topspiel-der-bundesliga-gegen-rb-leipzig-ist-er-verletzt-oder-wurde-jonas-urbig-befoerdert/bltc2d0e2426cc44606)
+
+
+### bologne – inter (N/A, Sat, 17 Oct 2026 08:40:00 -0700)
+
+- **Bologne–Inter : le leader privé de Lautaro, un rebond à construire · SNA**: [Link](https://sportnewsafrica.com/actualites/bologne-inter-le-leader-prive-de-lautaro-un-rebond-a-construire/)
+- **Bologne, Palladino : « Skorupski ou Pessina ? J’ai fait mon choix. Dovbyk devra attendre sa chance, Enem me plaît**: [Link](https://fr.news.yahoo.com/sport/bologne-palladino-skorupski-pessina-j-154716659.html)
+- **Bologna contre Inter : un choc de Serie A en vue**: [Link](https://rdcsport.cd/news/bologna-inter-choc-serie-a-2026)
+
+
+### liverpool (N/A, Sat, 17 Oct 2026 08:30:00 -0700)
+
+- **Liverpool set to raid Aston Villa for Johan Manzambi as Arsenal eye move for Bayern Munich defender - Paper Talk**: [Link](https://www.skysports.com/football/news/13600072/liverpool-set-to-raid-aston-villa-for-johan-manzambi-as-arsenal-eye-move-for-bayern-munich-defender-paper-talk)
+- **Liverpool target £59.5m Aston Villa midfielder to replace Alexis Mac Allister – TWO sources**: [Link](https://www.teamtalk.com/liverpool/johan-manzambi-alexis-mac-allister-liverpool-aston-villa)
+- **Liverpool line up Aston Villa record signing Johan Manzambi just months after £59.5m transfer**: [Link](https://www.thesun.co.uk/sport/40710539/liverpool-aston-villa-johan-manzambi-anfield/)
+
+
+### fulham – hull city (N/A, Sat, 17 Oct 2026 08:10:00 -0700)
+
+- **Fulham vs Hull City: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cx98zgy30d4zt)
+- **Fulham vs Hull: Confirmed Lineups & Match Prediction**: [Link](https://www.oddschecker.com/insight/football/cng102-20261017-fulham-vs-hull-confirmed-lineups)
+- **Fulham ease pressure on Alvaro Arbeloa with home win over Hull**: [Link](https://www.belfasttelegraph.co.uk/sport/football/premier-league/fulham-ease-pressure-on-alvaro-arbeloa-with-home-win-over-hull/a/163220493.html)
+
+
+### ستراسبورغ ضد بي اس جي (N/A, Sat, 17 Oct 2026 07:50:00 -0700)
+
+- **Strasbourg vs PSG LIVE Score Updates: Great first time (1-0)**: [Link](https://www.vavel.com/en-us/soccer/2026/10/17/1275487-racing-strasbourg-vs-psg-live-updates-ligue-1.html)
+- **~@√⁂[Ｄｉｒｅｃｔ-TV] Regarder Strasbourg - PSG en streaming October 17, 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2hhcHB5bmVwcHkuZ2l0aHViLmlvL2JhYnUvTWF0Y2h2YXVsdC54bWwiLz48L2tycGFubz4=&id=strasbourg-psg-liv-direct-tv-45545-531)
+- **GRATUIT+TV@!! PSG - Strasbourg match en direct**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2hhcHB5bmVwcHkuZ2l0aHViLmlvL2JhYnUvTWF0Y2h2YXVsdC54bWwiLz48L2tycGFubz4=&id=psg-strasbourg-tv-hobe-ajke-89765434-177)
+
+
+### strasbourg vs psg (N/A, Sat, 17 Oct 2026 07:50:00 -0700)
+
+- **Entre ménagement, besoin de concerner tout le monde et de créer de l'incertitude, Luis Enrique, l'entraîneur du PSG, passe d'une logique à l'autre**: [Link](https://www.lequipe.fr/Football/Article/Entre-menagement-besoin-de-concerner-tout-le-monde-et-de-creer-de-l-incertitude-luis-enrique-l-entraineur-du-psg-passe-d-une-logique-a-l-autre/1736331)
+- **PSG : Luis Enrique a lancé un nouveau défi à ses cadres**: [Link](https://www.footmercato.net/a2936896400245098781-psg-luis-enrique-a-lance-un-nouveau-defi-a-ses-cadres)
+- **@(STREAMING)!! Strasbourg PSG match : diffusion en direct et gratuite de la Supercoupe Finale, 28 Juillet 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-strasbourg-psg-match-livhq0295486)
+
+
 ### موت (N/A, Sat, 17 Oct 2026 05:50:00 -0700)
 
 - **للقبور خشوع .. وللفاجعة جفاء!**: [Link](https://www.hespress.com/%D9%84%D9%84%D9%82%D9%8F%D8%A8%D9%8F%D9%88%D8%B1%D9%90-%D8%AE%D9%8F%D8%B4%D9%8F%D9%88%D8%B9%D9%8C-%D9%88%D9%84%D9%90%D9%84%D9%92%D9%81%D9%8E%D8%A7%D8%AC%D9%90%D8%B9%D9%8E%D8%A9-%D8%AC%D9%81%D9%8E-1824193.html)
