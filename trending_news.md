@@ -1,3 +1,45 @@
+### هاري كين (N/A, Sat, 17 Oct 2026 14:30:00 -0700)
+
+- **كومباني يتعرض لإصابة أمام لايبزيج.. وإيبرل يكشف موقفه من موقعة آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%AC--%D9%88%D8%A7%D9%95%D9%8A%D8%A8%D8%B1%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt9ce3ddb490c996d1)
+- **بايرن ميونخ يكتسح لايبزيغ بسداسية ويعتلي صدارة الدوري الألماني**: [Link](https://www.aljazeera.net/sport/2026/10/17/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%BA-%D8%A8%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9)
+- **ليلة تاريخية لا يتمناها المغاربة: هاري كين سلم "جسدًا جريحًا" إلى ريال مدريد .. وخطوة لإزاحة ليفاندوفسكي!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%AC-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%88%D9%8A%D8%B3-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%84%D9%8A%D9%81%D8%A7%D9%86%D8%AF%D9%88%D9%81%D8%B3%D9%83%D9%8A/blt30587cfcbbf218af)
+
+
+### byd (N/A, Sat, 17 Oct 2026 14:30:00 -0700)
+
+- **BYD Is a Battery Company That Happens to Build Cars**: [Link](https://finance.yahoo.com/energy/articles/byd-battery-company-happens-build-152600191.html)
+- **BYD Is The World's Biggest EV Maker. So Why Can't You Buy One In The US?**: [Link](https://www.motor1.com/features/811958/why-cant-you-buy-a-byd-in-america/)
+- **China's Biggest Automaker Is In More Than Just The Car Business**: [Link](https://www.carscoops.com/2285830/china-biggest-carmaker-byd-business-operations/)
+
+
+### brahim díaz (N/A, Sat, 17 Oct 2026 13:50:00 -0700)
+
+- **Real Madrid: Brahim Díaz disappears from Mourinho’s plans**: [Link](https://mountakhab.net/en/real-madrid-brahim-diaz-disappears-from-mourinhos-plans/)
+- **Real Madrid: Brahim Díaz set for a loan in January?**: [Link](https://foot-africa.com/en/news/real-madrid-brahim-diaz-set-for-a-loan-in-january-1389920/)
+- **Why is Brahim Diaz losing his place at Real Madrid? Unexpected changes within the club**: [Link](https://zamin.uz/en/sport/224722-why-is-brahim-diaz-losing-his-place-at-real-madrid-unexpected-changes-within-the-club.html)
+
+
+### الدفاع الجديدي ضد المغرب التطواني (N/A, Sat, 17 Oct 2026 13:50:00 -0700)
+
+- **الجديدي يزور شباك "الماط" 4 مرات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-%D9%8A%D8%B2%D9%88%D8%B1-%D8%B4%D8%A8%D8%A7%D9%83-%D8%A7%D9%84%D9%85%D8%A7%D8%B7-4-%D9%85%D8%B1%D8%A7%D8%AA-1824834.html)
+- **البطولة: الدفاع الجديدي يواصل صحوته بانتصار على المغرب التطواني – اليوم 24**: [Link](https://alyaoum24.com/2051182.html)
+- **ريكاردو تشيو: مواجهة المغرب التطواني لن تكون سهلة ونسعى لتحقيق أفضل نتيجة**: [Link](https://radiomars.ma/%D8%B1%D9%8A%D9%83%D8%A7%D8%B1%D8%AF%D9%88-%D8%AA%D8%B4%D9%8A%D9%88-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%84/)
+
+
+### tomate (N/A, Sat, 17 Oct 2026 13:50:00 -0700)
+
+- **Maladies et ravageurs de la tomate au Maroc : identifier les symptômes et protéger les cultures**: [Link](https://www.agrimaroc.ma/maladies-ravageurs-tomate-maroc/)
+- **En France, ces tomates marocaines à 0,99 € n’ont plus le droit d’afficher « Maroc »**: [Link](https://www.bladi.net/france-tomates-marocaines-droit-afficher-maroc,124424.html)
+- **Tomates cerises du Maroc : que signifie la mention "Dakhla-Oued Ed Dahab" sur les étiquettes dans les supermarchés**: [Link](https://www.ladepeche.fr/2026/10/17/tomates-cerises-du-maroc-que-signifie-la-mention-dakhla-oued-ed-dahab-sur-les-etiquettes-dans-les-supermarches-13605483.php)
+
+
+### voiture tesla roadster (N/A, Sat, 17 Oct 2026 12:50:00 -0700)
+
+- **Le Roadster volant de Tesla n'est pas un "aéronef", affirme le régulateur américain**: [Link](https://medias24.com/agence-presse/le-roadster-volant-de-tesla-nest-pas-un-aeronef-affirme-le-regulateur-americain/)
+- **Tesla dévoile sa voiture "volante "avec une production prévue en 2028**: [Link](https://lematin.ma/monde/tesla-devoile-un-roadster-electrique-capable-de-selever-dans-les-airs/370648)
+- **Vidéo. "Ça a marché": Elon Musk dévoile la nouvelle Tesla Roadster qui peut voler**: [Link](https://fr.euronews.com/video/2026/10/16/ca-a-marche-elon-musk-devoile-la-nouvelle-tesla-roadster-qui-peut-voler)
+
+
 ### سد (N/A, Sat, 17 Oct 2026 13:40:00 -0700)
 
 - **ارتفاع الموارد المائية بعدد من سدود المملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.maadialna.ma/ar/artfa-almward-almayyt-bdd-mn-sdwd-almmlkt-khlal-al-24-sat-almadyt-53)
