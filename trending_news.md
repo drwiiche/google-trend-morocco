@@ -1,3 +1,71 @@
+### موت (N/A, Sat, 17 Oct 2026 05:50:00 -0700)
+
+- **للقبور خشوع .. وللفاجعة جفاء!**: [Link](https://www.hespress.com/%D9%84%D9%84%D9%82%D9%8F%D8%A8%D9%8F%D9%88%D8%B1%D9%90-%D8%AE%D9%8F%D8%B4%D9%8F%D9%88%D8%B9%D9%8C-%D9%88%D9%84%D9%90%D9%84%D9%92%D9%81%D9%8E%D8%A7%D8%AC%D9%90%D8%B9%D9%8E%D8%A9-%D8%AC%D9%81%D9%8E-1824193.html)
+- **سميح القاسم يتلو على عبدالناصر ما تيسَّر من سورة الموت**: [Link](https://middle-east-online.com/%D8%B3%D9%85%D9%8A%D8%AD-%D8%A7%D9%84%D9%82%D8%A7%D8%B3%D9%85-%D9%8A%D8%AA%D9%84%D9%88-%D8%B9%D9%84%D9%89-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%86%D8%A7%D8%B5%D8%B1-%D9%85%D8%A7-%D8%AA%D9%8A%D8%B3%D9%91%D9%8E%D8%B1-%D9%85%D9%86-%D8%B3%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%AA)
+- **بُلند الحيدري يرثي عبدالناصر من زاوية مغايرة**: [Link](https://middle-east-online.com/%D8%A8%D9%8F%D9%84%D9%86%D8%AF-%D8%A7%D9%84%D8%AD%D9%8A%D8%AF%D8%B1%D9%8A-%D9%8A%D8%B1%D8%AB%D9%8A-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%86%D8%A7%D8%B5%D8%B1-%D9%85%D9%86-%D8%B2%D8%A7%D9%88%D9%8A%D8%A9-%D9%85%D8%BA%D8%A7%D9%8A%D8%B1%D8%A9)
+
+
+### espanyol vs atlético (N/A, Sat, 17 Oct 2026 04:50:00 -0700)
+
+- **Espanyol vs Atlético match lineup | LaLiga · 17 Oct 2026**: [Link](https://www.ysscores.com/en/lineup/5868094/RCD-Espanyol-Barcelona-vs-Atl%C3%A9tico-de-Madrid)
+- **>ＨＥＲＥ’Ｓ!! ＷＡＹ ＴＯ ＷＡＴＣＨ Atletico Madrid vs Espanyol Barcelona ＬＩＶＥ ＳＴＲＥＡＭＳ ＯＮ ＴＶ ＣＨＡＮＮＥＬ**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2NpbWFuZ28uZ2l0aHViLmlvL3NhbmkvZXNwbi54bWwiLz48L2tycGFubz4=&id=atletico-madrid-vs-espanyol-barcelona-liv-tv-today-match-ukkky-588)
+- **🚨 Espanyol-Atleti XIs: Dani Martínez, Pubill and Drakusic start!**: [Link](https://onefootball.com/en/news/espanyol-atleti-xis-dani-martinez-pubill-and-drakusic-start-43625715)
+
+
+### إسبانيول ضد أتلتيكو مدريد (N/A, Sat, 17 Oct 2026 04:30:00 -0700)
+
+- **القنوات الناقلة لمباراة إسبانيول ضد أتلتيكو مدريد في الدوري الإسباني**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D9%88%D9%84-%D8%B6%D8%AF-%D8%A3/)
+- **تشكيل أتلتيكو مدريد ضد إسبانيول بالجولة التاسعة من الدوري الإسباني 2026/2027**: [Link](https://twaslnews1.twaslnews.com/6109000/)
+- **سيميوني يخفض سقف التوقعات في أتلتيكو بعد خمسة انتصارات متتالية**: [Link](https://www.fotmob.com/ar/news/906gclj3mc4r12g7iexwmsiy4_ar-)
+
+
+### espanyol – atlético madrid (N/A, Sat, 17 Oct 2026 04:20:00 -0700)
+
+- **¿Cómo ver el partido Espanyol vs Atlético de Madrid en TV y streaming?**: [Link](https://www.si.com/es-us/como-ver-el-partido-espanyol-vs-atletico-de-madrid-en-tv-y-streaming)
+- **🚨 ONCES del Espanyol-Atleti: ¡Dani Martínez, Pubill y Drakusic titulares!**: [Link](https://es-us.noticias.yahoo.com/deportes/onces-espanyol-atleti-dani-mart%C3%ADnez-104700248.html)
+- **Alineación del partido Espanyol vs Atlético | LaLiga · 17 oct. 2026**: [Link](https://www.ysscores.com/es/lineup/5868094/RCD-Espanyol-Barcelona-vs-Atl%C3%A9tico-de-Madrid)
+
+
+### إيفرتون ضد تشيلسي (N/A, Sat, 17 Oct 2026 04:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة إيفرتون وتشيلسي في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86-%D9%88%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltbdab659d3bed744e)
+- **تشكيل تشيلسي - تغيير وحيد في اختيارات ألونسو لمواجهة إيفرتون**: [Link](https://www.filgoal.com/articles/539486/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%88%D8%AD%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A5%D9%8A%D9%81%D8%B1%D8%AA%D9%88%D9%86)
+- **هدف بيدرو نيتو في مرمي ايفرتون بالدوري الانجليزي**: [Link](https://www.btolat.com/video/95524)
+
+
+### everton – chelsea (N/A, Sat, 17 Oct 2026 03:40:00 -0700)
+
+- **Everton vs Chelsea: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6398j10mrrxt)
+- **Triple Fitness Update As Moyes Reveals Everton Team News For Chelsea Test**: [Link](https://www.evertonfc.com/news/2026/october/16/Chelseateamnews/)
+- **Licensable picture: UK: Premier League: Everton v Chelsea**: [Link](https://www.reutersconnect.com/item/uk-premier-league-everton-v-chelsea/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBLNUVXRlk)
+
+
+### café rappelé (N/A, Sat, 17 Oct 2026 03:40:00 -0700)
+
+
+
+
+### alexander zverev (N/A, Sat, 17 Oct 2026 03:20:00 -0700)
+
+- **Licensable picture: ATP Masters 1000 - Shanghai Masters**: [Link](https://www.reutersconnect.com/item/atp-masters-1000-shanghai-masters/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQUgwVUNGNkQ)
+- **Zverev stunned by Davidovich Fokina in Shanghai semi-finals**: [Link](https://www.daily-sun.com/index.php/sports/903997/zverev-stunned-by-davidovich-fokina-in-shanghai-semi-finals)
+- **China Tennis Shanghai Masters**: [Link](https://www.wvnews.com/sports/pro/china-tennis-shanghai-masters/image_16bf22df-3ef9-538d-bfcd-8c9bb821ff99.html)
+
+
+### donald trump (N/A, Sat, 17 Oct 2026 03:00:00 -0700)
+
+- **Trump waives several Russia sanctions as row with Zelensky intensifies**: [Link](https://www.bbc.com/news/articles/cxr5yvzv7rp0o)
+- **Trump waives Russia-related sanctions before they even kick in as Ukraine ties worsen**: [Link](https://www.cnn.com/2026/10/16/europe/us-ukraine-russia-sanctions-intl-hnk)
+- **Trump pauses new Russia sanctions passed by Congress amid deepening row with Ukraine**: [Link](https://www.theguardian.com/us-news/2026/oct/17/trump-puts-new-russia-sanctions-passed-by-congress-on-hold-amid-deepening-row-with-ukraine)
+
+
+### مدرب (N/A, Sat, 17 Oct 2026 02:50:00 -0700)
+
+- **مورينيو: سعيد بعقوبة فينيسيوس.. ولو كنت مكانه لغادرت ريال مدريد**: [Link](https://www.aljazeera.net/sport/2026/10/17/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B3%D8%B9%D9%8A%D8%AF-%D8%A8%D8%B9%D9%82%D9%88%D8%A8%D8%A9-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D9%84%D9%88-%D9%83%D9%86%D8%AA)
+- **الرقم 16 يمنح ريال مدريد سلسلتين قياسيتين أمام إشبيلية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B1%D9%82%D9%85-16-%D9%8A%D9%85%D9%86%D8%AD-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B3%D9%84%D8%B3%D9%84%D8%AA%D9%8A%D9%86-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%AA%D9%8A%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%95%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9/blt43f69d1f5ffff3f5)
+- **مورينيو يقول إنه كان سيغادر ريال مدريد لو كان مكان فينيسيوس**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261017-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%82%D9%88%D9%84-%D8%A5%D9%86%D9%87-%D9%83%D8%A7%D9%86-%D8%B3%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%88-%D9%83%D8%A7%D9%86-%D9%85%D9%83%D8%A7%D9%86-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3)
+
+
 ### héritage (N/A, Sat, 17 Oct 2026 01:30:00 -0700)
 
 - **Maroc : face à une nouvelle plainte pour faux, Rita Zniber dénonce un chantage**: [Link](https://www.jeuneafrique.com/1851787/economie-entreprises/maroc-face-a-une-nouvelle-plainte-pour-faux-rita-zniber-denonce-un-chantage/)
