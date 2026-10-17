@@ -1,3 +1,73 @@
+### سد (N/A, Sat, 17 Oct 2026 13:40:00 -0700)
+
+- **ارتفاع الموارد المائية بعدد من سدود المملكة خلال الـ 24 ساعة الماضية**: [Link](https://www.maadialna.ma/ar/artfa-almward-almayyt-bdd-mn-sdwd-almmlkt-khlal-al-24-sat-almadyt-53)
+- **"غيث أكتوبر" ينعش سدود المغرب.. والجنوب الشرقي يحصد النصيب الأكبر**: [Link](https://www.hespress.com/%D8%BA%D9%8A%D8%AB-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%8A%D9%86%D8%B9%D8%B4-%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%AC%D9%86%D9%88%D8%A8-%D8%A7-1821704.html)
+- **منصة: أشغال تعلية سد المختار السوسي تتجاوز 85 في المائة**: [Link](https://barlamane.com/%D9%85%D9%86%D8%B5%D8%A9-%D8%A3%D8%B4%D8%BA%D8%A7%D9%84-%D8%AA%D8%B9%D9%84%D9%8A%D8%A9-%D8%B3%D8%AF-%D8%A7%D9%84%D9%85%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D9%88%D8%B3%D9%8A-%D8%AA%D8%AA%D8%AC/)
+
+
+### botafogo – chapecoense (N/A, Sat, 17 Oct 2026 13:30:00 -0700)
+
+- **Primeira vitória de Tite e quebra de jejum: os desafios do Botafogo contra a Chapecoense**: [Link](https://ge.globo.com/futebol/times/botafogo/noticia/2026/10/17/primeira-vitoria-de-tite-e-quebra-de-jejum-os-desafios-do-botafogo-contra-a-chapecoense.ghtml)
+- **Botafogo: até quando Tite viverá do passado?**: [Link](https://www.terra.com.br/esportes/futebol/botafogo-ate-quando-tite-vivera-do-passado,354159a1a14da3e7a85cc7c054f16d05bgxvszks.html)
+- **O que é Camisa 7, patrocinador do Botafogo contra a Chapecoense**: [Link](https://www.sportingnews.com/br/futebol/noticias/o-que-e-camisa-7-patrocinador-botafogo-contra-chapecoense/d281338f131375f40b096161)
+
+
+### الحسين عموتة (N/A, Sat, 17 Oct 2026 13:10:00 -0700)
+
+- **بالفيديو: رغم تردد الأهلي.. عموتة مصمم على ضم لاعب المغرب الفاسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B1%D8%BA%D9%85-%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A--%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%85%D8%B5%D9%85%D9%85-%D8%B9%D9%84%D9%89-%D8%B6%D9%85-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A/blt2b2798504f52f70c)
+- **صفقات الأهلي في يناير.. بديل رضا سليم وموقف الهجوم**: [Link](https://twaslnews1.twaslnews.com/6128913/)
+- **صفقة أجنبية.. بديل إمام عاشور في الأهلي بقيادة الحسين عموتة**: [Link](https://akher.news/71175/%D8%B5%D9%81%D9%82%D8%A9-%D8%A3%D8%AC%D9%86%D8%A8%D9%8A%D8%A9-%D8%A8%D8%AF%D9%8A%D9%84-%D8%A5%D9%85%D8%A7%D9%85-%D8%B9%D8%A7%D8%B4%D9%88%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A/)
+
+
+### الطقس غدًا (N/A, Sat, 17 Oct 2026 13:00:00 -0700)
+
+- **حالة الطقس ودرجات الحرارة الأيام المقبلة.. «الأرصاد» تحذر من الشبورة الكثيفة**: [Link](https://www.elwatannews.com/news/details/8379190)
+- **وسط تقلبات الحالة الجوية.. اعرف درجة الحرارة في مدينتك غدا الأحد**: [Link](https://akhbarelyom.com/news/newdetails/4893039/1/%D9%88%D8%B3%D8%B7-%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D8%B9%D8%B1%D9%81-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7)
+- **طقس خريفي ينعش رحلات مصر.. أمطار بالشمال وحرارة تصل 34 درجة بجنوب الصعيد**: [Link](https://tourismdailynews.com/2026/10/17/%D8%B7%D9%82%D8%B3-%D8%AE%D8%B1%D9%8A%D9%81%D9%8A-%D9%8A%D9%86%D8%B9%D8%B4-%D8%B1%D8%AD%D9%84%D8%A7%D8%AA-%D9%85%D8%B5%D8%B1-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84/)
+
+
+### meteo di domani (N/A, Sat, 17 Oct 2026 12:50:00 -0700)
+
+- **Allerta arancione, scattano chiusure e divieti in città: confermato il match al Ferraris**: [Link](https://www.genova24.it/2026/10/allerta-arancione-partita-sampdoria-divieti-478075/)
+- **Meteo Liguria: la previsione per domani**: [Link](https://www.albengacorsara.it/2026/10/17/meteo-liguria-la-previsione-per-domani-299/)
+- **Maltempo, domenica allerta arancione a Genova: chiudono parchi e cimiteri, partita e Rolli Days confermati (meno i tour a Staglieno)**: [Link](https://genovaquotidiana.com/2026/10/17/maltempo-domenica-allerta-arancione-a-genova-chiudono-parchi-e-cimiteri-partita-e-rolli-days-confermati-meno-i-tour-a-staglieno/)
+
+
+### wetter morgen (N/A, Sat, 17 Oct 2026 12:50:00 -0700)
+
+- **Bis zu 20 Grad im Oktober: Konkreter Tag für Wetter-Umbruch in Deutschland steht fest**: [Link](https://www.fr.de/panorama/bis-zu-20-grad-im-oktober-datum-fuer-wetter-wende-steht-fest-zr-94545946.html)
+- **Schauer, Böen, Gewitter – doch der Montag bringt Ruhe**: [Link](https://www.come-on.de/nordrhein-westfalen/schauer-boeen-gewitter-doch-der-montag-bringt-ruhe-94535692.html)
+- **WetterTicker am Sonntag - Heute so richtig herbstlich**: [Link](https://www.wetteronline.de/wetterticker/wetterticker-am-sonntag-heute-so-richtig-herbstlich--b8c83037-c3bd-44b2-ad7b-b367b75a1e21)
+
+
+### météo demain (N/A, Sat, 17 Oct 2026 12:40:00 -0700)
+
+- **Vacances de la Toussaint : de la douceur et davantage de pluie, l'automne va-t-il enfin s'installer ?**: [Link](https://www.tameteo.com/actualites/previsions/vacances-de-la-toussaint-de-la-douceur-zt-davantage-de-pluie-l-automne-va-t-il-enfin-s-installer-meteo-previsions.html)
+- **Dégringolade des températures et épisodes pluvieux pour ce week-end de la mi-octobre en France**: [Link](https://www.bfmtv.com/meteo/degringolade-des-temperatures-et-episodes-pluvieux-pour-ce-week-end-de-la-mi-octobre-en-france_AN-202610160706.html)
+- **Après un été indien, une importante baisse des températures prévue en ce premier week-end des vacances de la Toussaint**: [Link](https://fr.style.yahoo.com/apr%C3%A8s-%C3%A9t%C3%A9-indien-importante-baisse-064227558.html)
+
+
+### weather tomorrow (N/A, Sat, 17 Oct 2026 12:40:00 -0700)
+
+- **Heavy rain lashes western and southern Tamil Nadu, Cauvery delta farmers say rains inadequate**: [Link](https://timesofindia.indiatimes.com/city/chennai/heavy-rain-lashes-western-and-southern-tamil-nadu-cauvery-delta-farmers-say-rains-inadequate/articleshow/135002291.cms)
+- **Heavy rainfall to continue across T.N. till October 23**: [Link](https://www.thehindu.com/news/cities/chennai/heavy-rainfall-to-continue-across-tn-till-october-23/article71596452.ece)
+- **IMD issues orange alert in five districts of Keralam for very heavy rainfall**: [Link](https://newsonair.gov.in/imd-issues-orange-alert-in-five-districts-of-keralam-for-very-heavy-rainfall/)
+
+
+### tiempo mañana (N/A, Sat, 17 Oct 2026 12:40:00 -0700)
+
+- **Tarragona activa la alerta por inundaciones ante la previsión de lluvias intensas**: [Link](https://www.catalunyapress.es/articulo/tarragona/2026-10-17/6055803-tarragona-activa-alerta-inundaciones-ante-prevision-lluvias-intensas)
+- **El temporal provoca circulación por vía única en la R1 de Rodalies en Vilassar de Mar (Barcelona)**: [Link](https://www.europapress.es/catalunya/noticia-temporal-provoca-circulacion-via-unica-r1-rodalies-vilassar-mar-barcelona-20261017215826.html)
+- **Tiempo para el fin de semana: noche y madrugada de aguaceros con un domingo lluvioso y más fresco**: [Link](https://es.ara.cat/el-tiempo/noche-madrugada-aguaceros-domingo-lluvioso-fresco_1_5882499.html)
+
+
+### real madrid club de fútbol – rcd espanyol de barcelone (N/A, Sat, 17 Oct 2026 12:20:00 -0700)
+
+- **Real Madrid squad list against Espanyol**: [Link](https://www.realmadrid.com/en-US/news/football/womens-team/squad-call/convocatoria-del-real-madrid-contra-el-espanyol-17-10-2026)
+- **Despite being sidelined: Espi embarrasses Mourinho in Real Madrid's attack**: [Link](https://www.goal.com/en/news/despite-being-sidelined-espi-embarrasses-mourinho-in-real-madrid-s-attack/blt73df91fcfdcab78a)
+- **Numbers highlight why the Santiago Bernabeu deserve to see much more of Real Madrid’s surprise hero**: [Link](https://sports.yahoo.com/articles/numbers-highlight-why-santiago-bernabeu-121500027.html)
+
+
 ### سعر (N/A, Sat, 17 Oct 2026 11:10:00 -0700)
 
 - **أسعار الذهب في الدول العربية اليوم السبت 17 أكتوبر 2026**: [Link](https://www.economy-today.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84-95/)
