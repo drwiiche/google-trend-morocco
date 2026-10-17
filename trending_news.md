@@ -1,3 +1,10 @@
+### netflix (N/A, Fri, 16 Oct 2026 18:30:00 -0700)
+
+- **Netflix Adds Chris Evans And Anya Taylor-Joy's Jarring 2026 Comedy**: [Link](https://www.slashfilm.com/2289062/chris-evans-anya-taylor-joy-2026-comedy-sacrifice/)
+- **What to Watch and Read This Weekend: I Don’t Know What to Do With the Netflix Volcano Sacrifice Movie**: [Link](https://reactormag.com/what-to-watch-and-read-this-weekend-october-16-2026/)
+- **‘It’s Presumptuous to Think Films Can Change the World’**: [Link](https://www.vulture.com/article/romain-gavras-on-sacrifice-and-the-ending-of-athena.html)
+
+
 ### salah eddine abkari (N/A, Fri, 16 Oct 2026 15:00:00 -0700)
 
 - **Qui est Salah-Eddine Abkari, ministre délégué auprès du ministre de la Jeunesse, de la Culture et des Sports, chargé de la Jeunesse ?**: [Link](https://lematin.ma/nation/qui-est-m-abkari-ministre-delegue-aupres-du-ministre-de-la-jeunesse/370807)
