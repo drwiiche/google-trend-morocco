@@ -1,3 +1,71 @@
+### سعر (N/A, Sat, 17 Oct 2026 11:10:00 -0700)
+
+- **أسعار الذهب في الدول العربية اليوم السبت 17 أكتوبر 2026**: [Link](https://www.economy-today.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84-95/)
+- **أحدث أخبار مصر والعالم**: [Link](https://ekhbary24.com/article/17598)
+- **استقرار سعر الجنيه الذهب محلياً اليوم 17 أكتوبر**: [Link](https://akhbarelyom.com/news/newdetails/4892893/1/%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%AC%D9%86%D9%8A%D9%87-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%85%D8%AD%D9%84%D9%8A%D8%A7%D9%8B-%D8%A7%D9%84%D9%8A%D9%88%D9%85-17)
+
+
+### roma – genoa (N/A, Sat, 17 Oct 2026 11:00:00 -0700)
+
+- **Preview: Roma vs Genoa - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/roma/preview/roma-vs-genoa-prediction-team-news-lineups_606982.html)
+- **Sky Sport: Balerdi to replace Mancini in Roma’s XI**: [Link](https://sports.yahoo.com/articles/sky-sport-balerdi-replace-mancini-155900215.html)
+- **Gasperini calls up 4 Primavera players vs Genoa**: [Link](https://romapress.net/gasperini-calls-up-4-primavera-players-vs-genoa/)
+
+
+### أشرف حكيمي (N/A, Sat, 17 Oct 2026 11:00:00 -0700)
+
+- **ماريسكا يمدح المغربي أيوب بوعدي: لديه سمات اللاعبين الكبار**: [Link](https://www.aljazeera.net/sport/2026/10/17/%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D9%85%D8%AF%D8%AD-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%84%D8%AF%D9%8A%D9%87)
+- **المختاري: بوعدي مكسب للمنتخب المغربي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AE%D8%AA%D8%A7%D8%B1%D9%8A-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%85%D9%83%D8%B3%D8%A8-%D9%84%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-1823711.html)
+- **بوعدي ينال تنقيط 7.3 في أول ظهور أساسي له مع مانشستر سيتي في "البريميرليغ"**: [Link](https://www.elbotola.com/article/2026-10-17-16-53-743.html)
+
+
+### real betis balompié (N/A, Sat, 17 Oct 2026 10:50:00 -0700)
+
+- **González Fuertes: "Roja clara de Facundo Bernal por agresión a Lamine"**: [Link](https://www.marca.com/radio/2026/10/17/gonzalez-fuertes-roja-clara-facundo-bernal-agresion-lamine.html)
+- **🟥 El Real Betis se queda con 10 tras un cabezazo a Lamine Yamal**: [Link](https://es-us.noticias.yahoo.com/deportes/real-betis-queda-10-cabezazo-181000325.html)
+- **Con vídeo: el gol de Ez Abde enciende una batalla y Yamal provoca la expulsión de un jugador del Betis**: [Link](https://www.goal.com/es-mx/noticias/con-video-el-gol-de-ez-abde-enciende-una-batalla-y-yamal-provoca-la-expulsion-de-un-jugador-del-betis/blt3e3032bbe19e925a)
+
+
+### liga (N/A, Sat, 17 Oct 2026 10:40:00 -0700)
+
+- **Real demand Tebas resign over Goebbels comparison**: [Link](https://www.bbc.com/sport/football/articles/cr5yngpgejw0o)
+- **Mourinho Responds to Tebas’ Nazi Propaganda Comparison: ‘There Are Limits’**: [Link](https://www.moroccoworldnews.com/2026/10/342586/mourinho-responds-to-tebas-nazi-propaganda-comparison-there-are-limits/)
+- **Real Madrid vs. LaLiga: the complete history of the conflict**: [Link](https://dailysports.net/news/real-madrid-vs-laliga-the-complete-history-of-the-conflict/)
+
+
+### shabab al-ahli – al ain (N/A, Sat, 17 Oct 2026 10:30:00 -0700)
+
+- **Today’s match schedule (Saturday) and broadcast channels: Shabab Al-Ahli vs Al-Ain, and Egypt’s Al Ahly vs Kitara**: [Link](https://www.voiceofemirates.com/en/emirates/2026/10/17/todays-match-schedule-saturday-and-broadcast-channels-shabab-al-ahli-vs-al-ain-and-egypts-al-ahly-vs-kitara/)
+
+
+### achraf hakimi (N/A, Sat, 17 Oct 2026 10:20:00 -0700)
+
+- **ياسين جسيم يتألق بتمريرة حاسمة أمام باريس سان جيرمان وحكيمي بديلًا**: [Link](https://radiomars.ma/yassine-gessime-passe-decisive-contre-psg-achraf-hakimi/)
+- **مفاوضات متقدمة بين تشيلسي وستراسبورغ لضم جسيم**: [Link](https://www.elbotola.com/article/2026-10-17-11-58-832.html)
+- **ياسين جسيم.. من كرة الشوارع إلى التألق مع ستراسبورغ والمنتخب المغربي**: [Link](https://www.hesport.com/%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AC%D8%B3%D9%8A%D9%85-%D9%85%D9%86-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B4%D9%88%D8%A7%D8%B1%D8%B9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%A3%D9%84%D9%82-%D9%85-457941.html)
+
+
+### sir (N/A, Sat, 17 Oct 2026 10:20:00 -0700)
+
+- **Secular-minded voters targeted for deletion through SIR, says Goud**: [Link](https://timesofindia.indiatimes.com/city/hyderabad/secular-minded-voters-targeted-for-deletion-through-sir-says-goud/articleshow/135019055.cms)
+- **Telangana JAC Seeks Probe Into Bulk Form 7 Applications**: [Link](https://indtoday.com/telangana-jac-seeks-probe-into-bulk-form-7-applications/)
+- **TPCC chief Mahesh sees plot to delete 90L votes**: [Link](https://www.newindianexpress.com/states/telangana/2026/Oct/10/tpcc-chief-mahesh-sees-plot-to-delete-90l-votes)
+
+
+### la liga (N/A, Sat, 17 Oct 2026 10:10:00 -0700)
+
+- **LaLiga - Espanyol v Atletico Madrid**: [Link](https://www.reutersconnect.com/item/laliga-espanyol-v-atletico-madrid/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQUgxMk5MR0k)
+- **"Lightning strike in the first 80 seconds" Lee Kang-in, tops chance creation + dazzling passes shine... 'Baena's precious winning goal' ATM, a narrow 1-0 win over aespa뇰**: [Link](https://www.starnewskorea.com/en/sports/2026/10/17/2026101720174188102)
+- **>WATCHＬＩＶＥ:Atletico Madrid v Espanyol LIVE FREEAtletico Madrid v Espanyol 2026 MATCH On 17 october 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2NpbWFuZ28uZ2l0aHViLmlvL3NhbmkvZXNwbi54bWwiLz48L2tycGFubz4=&id=atletico-madrid-v-espanyol-match-live-free-ontv-0-0-0-0-0-0-1-904)
+
+
+### laliga (N/A, Sat, 17 Oct 2026 10:10:00 -0700)
+
+- **Valencia vs A.Bilbao match lineup | LaLiga · 17 Oct 2026**: [Link](https://www.ysscores.com/en/lineup/5868099/Valencia-CF-vs-Athletic-Bilbao)
+- **Valencia vs Athletic Club: Lineups, Prediction, Odds & Bet Builder Tip**: [Link](https://www.whoscored.com/articles/Fr5yPPVuVEOSDgzncR6Wcw/show/cng111-20261017-valencia-vs-athletic-club-prediction-1792235984)
+- **Valencia vs Athletic Club Betting Odds, Tips, Predictions, Preview 17th October 2026**: [Link](https://easyodds.com/valencia-vs-athletic-club-betting-odds-tips-predictions-preview-17th-october-2026)
+
+
 ### real betis - barcelona (N/A, Sat, 17 Oct 2026 09:00:00 -0700)
 
 - **Betis - Barcelona en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/betis-barcelona/2026/10/17/01_0101_20261017_185_178-directo.html)
