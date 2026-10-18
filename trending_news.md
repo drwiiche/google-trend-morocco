@@ -1,3 +1,73 @@
+### macky sall onu (N/A, Sun, 18 Oct 2026 06:00:00 -0700)
+
+- **L’ex-président sénégalais Macky Sall retire sa candidature au poste de secrétaire général de l’ONU**: [Link](https://afrique.le360.ma/politique/lex-president-senegalais-macky-sall-retire-sa-candidature-au-poste-de-secretaire-general-de-lonu_UKADVC2ZJRFRROBX2HAWMDXCLM/)
+- **Tous les candidats à la tête de l'ONU se heurtent à un veto**: [Link](https://fr.africanews.com/2026/10/17/tous-les-candidats-a-la-tete-de-lonu-se-heurtent-a-un-veto/)
+- **Flash Info 17HTU (17.10.2026)**: [Link](https://www.dw.com/fr/mack-sall-se-retire-course-secretariat-general-onu-debut-consultations-aes-cedeao-flash-info/audio-79689116)
+
+
+### brighton – crystal palace (N/A, Sun, 18 Oct 2026 05:50:00 -0700)
+
+- **[[[LIVESTREAM>>>]]>] Palace vs Brighton Live 𝐒𝐭𝐫𝐞𝐚𝐦 Today Match**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vY2ltYW5nby5naXRodWIuaW8vc2FuaS9lcHgueG1sIi8+PC9rcnBhbm8+&id=palace-vs-brighton-liv-str-today-match-tvd1-635)
+- **𝐻𝐸𝑅𝐸;𝒮 watch free Shanghai Open Final: Brighton vs Crystal Palace 𝐋𝐈𝐕𝐄 Ｆｒｅｅ Ｓｔｒｅａｍ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-brighton-vs-crystal-palace-lie-en-efxayil)
+- **Where to Watch Brighton vs Crystal Palace 𝗟𝗶𝘃𝗲 𝗦𝘁𝗿𝗲𝗮𝗺 𝗙𝗿𝗲𝗲: Official Channels**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-brighton-vs-crystal-palace-liv-str-sxhdyap)
+
+
+### bournemouth – sunderland (N/A, Sun, 18 Oct 2026 05:40:00 -0700)
+
+- **Starting XI: Is This The Sunderland Team To Take On Bournemouth Today?**: [Link](https://rokerreport.sbnation.com/match-previews/156600/starting-xi-is-this-the-sunderland-team-to-take-on-bournemouth-today)
+- **Brighton vs Crystal Palace live: Score and latest Premier League updates**: [Link](https://www.telegraph.co.uk/football/2026/10/18/brighton-vs-crystal-palace-live-score-latest-premier-league/)
+- **"It's up to us to prove it" — Rose urges Cherries to maintain momentum**: [Link](https://www.bournemouthecho.co.uk/sport/26645435.marco-rose-urges-bournemouth-maintain-momentum/)
+
+
+### ليدز ضد مان يونايتد (N/A, Sun, 18 Oct 2026 05:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ليدز يونايتد ومانشستر يونايتد في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D8%AF%D8%B2-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltbada3a7d16365c51)
+- **عودته تقترب.. كاريك يكشف تطورا إيجابيا في حالة مزراوي الصحية**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/504892.html)
+- **توقعات الكمبيوتر لمباريات 18 أكتوبر: من المرجح أن يخسر مانشستر يونايتد، ويواجه أرسنال صعوبات.**: [Link](https://www.vietnam.vn/ar/may-tinh-nhan-dinh-loat-tran-ngay-18-10-man-united-de-thua-arsenal-gap-kho)
+
+
+### angers – marseille (N/A, Sun, 18 Oct 2026 05:30:00 -0700)
+
+- **OM : Bruno Genesio fait passer un nouveau message à Frank McCourt**: [Link](https://www.footmercato.net/a2407913790461322385-om-bruno-genesio-fait-passer-un-nouveau-message-a-frank-mccourt)
+- **Pronostic Angers - Marseille, Ligue 1 - 18/10/2026**: [Link](https://www.sportytrader.com/pronostics/angers-sco-marseille-379837/)
+- **TV - comment ne rien rater d'Angers/OM ?**: [Link](https://www.lephoceen.fr/infos-om/autour-de-l-om/tv-comment-ne-rien-rater-d-angers-om-238892)
+
+
+### leeds vs man utd (N/A, Sun, 18 Oct 2026 05:20:00 -0700)
+
+- **(sTrEaMs Coverage)! Man United v Leeds Live STREAMING free English Premier League 18 October 2026 Right Now**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2FudHN0cmVhbTRrLm9ubGluZS91Y28vdS54bWwiLz48L2tycGFubz4=&id=man-united-v-leeds-tv-gz7skn)
+- **Licensable picture: Premier League - Leeds United v Manchester United**: [Link](https://www.reutersconnect.com/item/premier-league-leeds-united-v-manchester-united/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQUkwVU1IRDc)
+- **Martinez starts for Man Utd after outburst**: [Link](https://www.france24.com/en/live-news/20261018-martinez-starts-for-man-utd-after-outburst)
+
+
+### leeds united – manchester united (N/A, Sun, 18 Oct 2026 05:10:00 -0700)
+
+- **[WATCHTM] Bournemouth vs Sunderland Live Free EPL**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2x4Y2x4ZHMuZ2l0aHViLmlvL2JhbmthaS9sYXcueG1sIi8+PC9rcnBhbm8+&id=video-watchtm-bournemouth-vs-sunde-ustv)
+- ***#%[[[LIVESTREAMS>]]] Leeds vs Manchester United Live streaming free**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2FudHN0cmVhbTRrLm9ubGluZS91Y28vdS54bWwiLz48L2tycGFubz4=&id=leeds-vs-manchester-united-us-674)
+- **[!LIVESTREAMs!]Tv] Leeds v Man U Live Broadcast Free ON Tv Channel**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vcGFraGlwb2suZ2l0aHViLmlvL3NyLmVkdS94b2QueG1sIi8+PC9rcnBhbm8+&id=video-leeds-v-man-u-match-lie-dafgpwi)
+
+
+### équipe d'égypte de futsal (N/A, Sun, 18 Oct 2026 04:40:00 -0700)
+
+- **Coupe d’Afrique des Nations de futsal : la sélection nationale affronte l’Égypte en demi-finale**: [Link](https://frmf.ma/fr/articles/coupe-dafrique-des-nations-de-futsal-la-selection-nationale-affronte-legypte-en-demi-finale)
+- **TotalEnergies CAF CAN de Futsal 2026 /Soufiane Borite : « Nous voulons conserver le titre au Maroc »**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-de-futsal/infos/totalenergies-caf-can-de-futsal-2026-soufiane-borite-nous-voulons-conserver-le-titre-au-maroc/)
+- **CAN FUTSAL 2026 : Carton plein pour les Lions de l’Atlas**: [Link](https://fr.hespress.com/492705-can-futsal-2026-carton-plein-pour-les-lions-de-latlas.html)
+
+
+### إسبانيا (N/A, Sun, 18 Oct 2026 04:20:00 -0700)
+
+- **"الغازوال" الإسباني يتدفق على المغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%BA%D8%A7%D8%B2%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D8%AF%D9%81%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1824543.html)
+- **ارتفاع قياسي لواردات المغرب من "الغازوال" الإسباني**: [Link](https://www.alarabiya.net/aswaq/morocco-economy/2026/10/18/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%84%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D8%A7%D8%B2%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%A7%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+- **واردات المغرب من الغاز ترتفع 17%.. وروسيا في مقدمة المُصدّرين**: [Link](https://attaqa.net/2026/10/11/%D9%88%D8%A7%D8%B1%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D8%A7%D8%B2-%D8%AA%D8%B1%D8%AA%D9%81%D8%B9-17-%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%81/)
+
+
+### osasuna – santander (N/A, Sun, 18 Oct 2026 04:20:00 -0700)
+
+- **EN VIVO: Osasuna se adelanta 1 a 0 frente a Racing Santander**: [Link](https://www.directvsports.com/futbol/en-vivo-osasuna-se-adelanta-1-a-0-frente-a-racing-santander-20261015-0016.html)
+- **Alineaciones de Osasuna vs Santander: Estadísticas, horarios y dónde ver**: [Link](https://xpectrofm.com/alineaciones-de-osasuna-vs-santander-estadisticas-horarios-y-donde-ver/)
+- **Real Racing Club de Santander vs Osasuna EN VIVO por amistoso transmisión vía DIRECTV, TyC Sports: Real Racing Club de Santander vs Osasuna look to seize control of thrilling Real Racing Club de Santander vs Osasuna. Every team in the Real Racin**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2hhcHB5bmVwcHkuZ2l0aHViLmlvL2JhYnUvbWFzdGVyeG54eC54bWwiLz48L2tycGFubz4=&id=video-real-racing-club-de-santander-vs-osasuna-live-match-now-dpsvann)
+
+
 ### تزييف (N/A, Sun, 18 Oct 2026 00:10:00 -0700)
 
 - **الداخلية العراقية تعلن الإطاحة بشبكة لتزييف اللوحات المرورية وتزوير السنويات**: [Link](https://shafaq.com/ar/%D8%A3%D9%85%D9%80%D9%86/%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D9%84-%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%B4%D8%A8%D9%83%D8%A9-%D9%84%D8%AA%D8%B2%D9%8A%D9%8A%D9%81-%D8%A7%D9%84%D9%84%D9%88%D8%AD%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B1%D9%88%D8%B1%D9%8A%D8%A9-%D9%88%D8%AA%D8%B2%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D9%8A%D8%A7%D8%AA)
