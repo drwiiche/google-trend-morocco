@@ -1,3 +1,45 @@
+### شرطة (N/A, Sun, 18 Oct 2026 15:20:00 -0700)
+
+- **الرئيس الفرنسي ماكرون يتهم مثيري الشغب بمحاولة "إسقاط الجمهورية"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%85%D8%A7%D9%83%D8%B1%D9%88%D9%86-%D9%8A%D8%AA%D9%87%D9%85-%D9%85%D8%AB%D9%8A%D8%B1%D9%8A-%D8%A7%D9%84%D8%B4%D8%BA-1825149.html)
+- **فرنسا: ماكرون يتوعد بمحاسبة "من دمروا ومن نهبوا" ويتعهد بـ"الشفافية الكاملة" بشأن إستراتيجية حفظ الأمن**: [Link](https://www.france24.com/ar/%D9%81%D8%B1%D9%86%D8%B3%D8%A7/20261018-%D9%85%D8%A7%D9%83%D8%B1%D9%88%D9%86-%D8%AE%D8%B7%D8%A7%D8%A8-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%B9%D9%86%D9%81-%D8%B4%D8%BA%D8%A8-%D8%B7%D9%84%D8%A8%D8%A9-%D8%BA%D9%84%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%B9%D9%8A%D8%B4%D8%A9)
+- **من الشارع إلى الصندوق.. هل يغيّر الغلاء خريطة أوروبا السياسية؟**: [Link](https://www.aljazeera.net/politics/2026/10/18/%D9%85%D9%86-%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D8%B9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D9%87%D9%84-%D9%8A%D8%BA%D9%8A%D8%B1-%D8%A7%D9%84%D8%BA%D9%84%D8%A7%D8%A1)
+
+
+### درك (N/A, Sun, 18 Oct 2026 15:10:00 -0700)
+
+- **الدرك يفكك مصنعا سريا للقوارب المطاطية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%B1%D9%83-%D9%8A%D9%81%D9%83%D9%83-%D9%85%D8%B5%D9%86%D8%B9%D8%A7-%D8%B3%D8%B1%D9%8A%D8%A7-%D9%84%D9%84%D9%82%D9%88%D8%A7%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D8%B7%D9%8A-1825201.html)
+- **تفكيك مصنع سري للقوارب المطاطية وتوقيف 3 أشخاص ببن سليمان**: [Link](https://attasiaa.com/%D8%AA%D9%81%D9%83%D9%8A%D9%83-%D9%85%D8%B5%D9%86%D8%B9-%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%B1%D8%A8/)
+- **درك آسفي يحجز شاحنة وسيارتين رباعيتي الدفع محمّلة بزوارق مطاطية في عمليتين متزامنتين - الأحداث المغربية -**: [Link](https://www.alahdat.net/archives/220025)
+
+
+### inondation (N/A, Sun, 18 Oct 2026 14:50:00 -0700)
+
+- **Contre les inondations des habitants de Pontorson veulent «des travaux en urgence», le feu vert de l’État encore attendu**: [Link](https://www.ouest-france.fr/meteo/inondation/contre-les-inondations-des-habitants-de-pontorson-veulent-des-travaux-en-urgence-le-feu-vert-de-letat-encore-attendu-6c790062-cacc-11f1-ad87-e24a1a2986e9)
+- **VIDÉO. "Nous ne voulons pas revivre les inondations de février 2026" : à Pontorson, ces habitants interpellent l'État**: [Link](https://www.ouest-france.fr/meteo/inondation/video-nous-ne-voulons-pas-revivre-les-inondations-de-fevrier-2026-a-pontorson-ces-habitants-interpellent-l-etat-f4843ced-079c-388b-a414-81fea6c03702)
+- **Alerte Météo : Episode méditerranéen lundi et mardi**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/9641-episode-mediterraneen-lundi-et-mardi)
+
+
+### إسماعيل صيباري (N/A, Sun, 18 Oct 2026 14:30:00 -0700)
+
+- **الصيباري يفتح النار على “العربية للطيران” وينتقد تعاملها “غير الإنساني” مع الزبناء**: [Link](https://al3omk.com/1198058.html)
+- **"الأسوأ في العالم".. إسماعيل صيباري يهاجم شركة طيران عربية**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D9%88%D8%A7%D9%94-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%95%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D9%8A%D9%87%D8%A7%D8%AC%D9%85-%D8%B4%D8%B1%D9%83%D8%A9-%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/bltbf48b25996b4bf73)
+- **إسماعيل الصايباري: Air Arabia أسوء شركة فالعالم**: [Link](https://www.goud.ma/%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%A7%D9%84%D8%B5%D8%A7%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-air-arabia-%D8%A3%D8%B3%D9%88%D8%A1-%D8%B4%D8%B1%D9%83%D8%A9-%D9%81%D8%A7%D9%84%D8%B9%D8%A7-1048129/)
+
+
+### real madrid club de fútbol (N/A, Sun, 18 Oct 2026 14:00:00 -0700)
+
+- **“¿No se le cae la cara de vergüenza al Madrid de quejarse de los árbitros?**: [Link](https://as.com/futbol/primera/el-sevilla-alza-la-voz-sabiamos-a-lo-que-veniamos-ni-lo-repiten-en-tv-f202610-n/)
+- **Mourinho: "¿La posible roja a Güler? No entiendo la obsesión por algo que no se ha visto que ha pasado"**: [Link](https://www.marca.com/futbol/real-madrid/2026/10/18/mourinho-posible-roja-gueler-nadie-me-conseguido-ver-dicen-pasado.html)
+- **Indignación total en el Sevilla: "Sabíamos a lo que veníamos y cómo iba a ser todo"**: [Link](https://www.sport.es/es/noticias/real-madrid/indignacion-total-sevilla-sabiamos-veniamos-135479560)
+
+
+### classement botola (N/A, Sun, 18 Oct 2026 13:00:00 -0700)
+
+- **Botola Pro : le Kawkab bat Témara et s’empare provisoirement de la première place**: [Link](https://radiomars.ma/fr/?p=6961)
+- **Botola: vainqueur de Témara, le Kawkab prend provisoirement les commandes du classement**: [Link](https://sport.le360.ma/football/botola/botola-vainqueur-de-temara-le-kawkab-prend-provisoirement-les-commandes-du-classement_LZHLS3YSOFBIRPUD6ZPI3QTV4Y/)
+- **Composition du match Widad Témara – KACM | Botola Pro · 18 oct. 2026**: [Link](https://www.ysscores.com/fr/lineup/54655750/Widad-T%C3%A9mara-vs-KACM-Marrakech)
+
+
 ### widad (N/A, Sun, 18 Oct 2026 14:00:00 -0700)
 
 - **Botola: vainqueur de Témara, le Kawkab prend provisoirement les commandes du classement**: [Link](https://sport.le360.ma/football/botola/botola-vainqueur-de-temara-le-kawkab-prend-provisoirement-les-commandes-du-classement_LZHLS3YSOFBIRPUD6ZPI3QTV4Y/)
