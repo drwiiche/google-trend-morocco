@@ -1,3 +1,17 @@
+### atlanta utd – inter miami (N/A, Sat, 17 Oct 2026 16:10:00 -0700)
+
+- **@~!!【LIVESTREAMS】FREE] Atlanta United FC vs Inter Miami LIVE Coverage ON TV Channel 18 October 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3BhcnQyLXRlY2guZ2l0aHViLmlvL1hxWjAxL01UNTAueG1sIi8+PC9rcnBhbm8+&id=video-livestreamsfree-atlanta-unit-zjqxy0c3)
+- **Is Lionel Messi playing today? Confirmed lineups for Atlanta United vs Inter Miami in 2026 MLS season**: [Link](https://worldsoccertalk.com/news/is-lionel-messi-playing-today-projected-lineups-for-atlanta-united-vs-inter-miami-in-2026-mls-season/)
+- **Inter Miami At Atlanta, Toronto At Red Bulls: MLS Picks For Saturday**: [Link](https://rg.org/news/soccer/inter-miami-at-atlanta-toronto-at-red-bulls-mls-picks-for-saturday)
+
+
+### limoges (N/A, Sat, 17 Oct 2026 15:00:00 -0700)
+
+- **Mobilisation du 17 octobre : Mairies vandalisées, magasins pillés… Des scènes de chaos de Paris à Marseille…**: [Link](https://www.20minutes.fr/societe/4255128-20261017-direct-mobilisation-17-octobre-quelques-actions-dispersees-matin-notamment-lyon-marseille)
+- **La mairie de Limoges détruite par un incendie : "C’est un monument qui brûle mais pas la République" réagit le maire**: [Link](https://www.ici.fr/nouvelle-aquitaine/haute-vienne-87/limoges/la-mairie-de-limoges-detruite-par-un-incendie-c-est-un-monument-qui-brule-mais-pas-la-republique-reagit-le-maire-3525391)
+- **Manifestations du 17 octobre: l'hôtel de ville de Limoges incendié "est en grande partie perdu"**: [Link](https://www.bfmtv.com/police-justice/manifestations-du-17-octobre-un-incendie-est-en-cours-a-l-hotel-de-ville-de-limoges-les-pompiers-luttent-contre-les-flammes_AN-202610170329.html)
+
+
 ### هاري كين (N/A, Sat, 17 Oct 2026 14:30:00 -0700)
 
 - **كومباني يتعرض لإصابة أمام لايبزيج.. وإيبرل يكشف موقفه من موقعة آرسنال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D8%B9%D8%B1%D8%B6-%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D8%A7%D9%8A%D8%A8%D8%B2%D9%8A%D8%AC--%D9%88%D8%A7%D9%95%D9%8A%D8%A8%D8%B1%D9%84-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84/blt9ce3ddb490c996d1)
