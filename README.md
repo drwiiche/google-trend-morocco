@@ -1,3 +1,24 @@
+### tiktok (N/A, Sat, 17 Oct 2026 21:00:00 -0700)
+
+- **TikTok “Permanently Suspends” the ‘Musk’ Film Ad Account, Raising Suppression Fears (Exclusive)**: [Link](https://www.hollywoodreporter.com/news/politics-news/musk-movie-tiktok-banned-theaters-showtimes-1236734308/)
+- **TikTok suspends 'Musk' documentary account over political content**: [Link](https://mashable.com/tech/tiktok-musk-documentary-account-suspended)
+- **Explosive Elon Musk Film Hit With Shocking TikTok Censorship**: [Link](https://www.thedailybeast.com/obsessed/explosive-elon-musk-film-hit-with-shocking-tiktok-censorship)
+
+
+### mls (N/A, Sat, 17 Oct 2026 19:10:00 -0700)
+
+- **@~!!【LIVESTREAMS】FREE] New England Revolution vs Chicago Fire LIVE Coverage ON TV Channel 18 October 2026, @~!!【LIVESTREAMS】FREE] New England Revolution vs Chicago Fire LIVE Coverage ON TV Channel 18 October 2026 Watch your loca**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL0h1bHVzMjQ3LmdpdGh1Yi5pby94eHh5Njkvay54bWwiLz48L2tycGFubz4=&id=video-livestreamsfree-new-england-bbkzw5rc)
+- **Recap | Revs secure 10th home win in front of season-high 34,506 fans**: [Link](https://www.revolutionsoccer.net/news/recap-revs-secure-10th-home-win-in-front-of-season-high-34-506-fans)
+- **Matt Polster, Matt Turner guide Revolution over Fire for important home win**: [Link](https://www.bostonglobe.com/2026/10/17/sports/soccer-mls-revolution-fire-game-score/)
+
+
+### أتلانتا يونايتد ضد إنتر ميامي (N/A, Sat, 17 Oct 2026 18:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة أتلانتا يونايتد وإنتر ميامي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt96487fd1680815d9)
+- **شاهد.. ميسي يقود إنتر ميامي لمواصلة انتفاضته في الدوري الأمريكي**: [Link](https://www.aljazeera.net/sport/2026/10/15/%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7)
+- **كم عدد الأهداف والتمريرات الحاسمة لميسي في مسيرته؟**: [Link](https://www.annahar.com/sports/357113/%D8%AA%D9%85%D8%B1%D9%8A%D8%B1%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%83%D9%85-%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%88%D8%A7%D9%84%D8%AA%D9%85%D8%B1%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D9%84%D9%85%D9%8A%D8%B3%D9%8A-%D9%81%D9%8A-%D9%85%D8%B3%D9%8A%D8%B1%D8%AA%D9%87)
+
+
 ### atlanta utd – inter miami (N/A, Sat, 17 Oct 2026 16:10:00 -0700)
 
 - **@~!!【LIVESTREAMS】FREE] Atlanta United FC vs Inter Miami LIVE Coverage ON TV Channel 18 October 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3BhcnQyLXRlY2guZ2l0aHViLmlvL1hxWjAxL01UNTAueG1sIi8+PC9rcnBhbm8+&id=video-livestreamsfree-atlanta-unit-zjqxy0c3)
