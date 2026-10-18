@@ -1,3 +1,73 @@
+### widad (N/A, Sun, 18 Oct 2026 14:00:00 -0700)
+
+- **Botola: vainqueur de Témara, le Kawkab prend provisoirement les commandes du classement**: [Link](https://sport.le360.ma/football/botola/botola-vainqueur-de-temara-le-kawkab-prend-provisoirement-les-commandes-du-classement_LZHLS3YSOFBIRPUD6ZPI3QTV4Y/)
+- **Le Kawkab Marrakech s'impose face au Widad Témara (0-1) et prend la tête de la Botola Pro**: [Link](https://www.elbotola.com/fr/article/2026-10-18-20-24-743.html)
+- **Composition du match Widad Témara – KACM | Botola Pro · 18 oct. 2026**: [Link](https://www.ysscores.com/fr/lineup/54655750/Widad-T%C3%A9mara-vs-KACM-Marrakech)
+
+
+### emmanuel macron (N/A, Sun, 18 Oct 2026 13:40:00 -0700)
+
+- **« Les gens sont énervés, il y a beaucoup de colère accumulée » : à Paris, le jour d’après, à l’heure de compter les plaies**: [Link](https://www.lemonde.fr/societe/article/2026/10/18/les-gens-sont-enerves-il-y-a-beaucoup-de-colere-accumulee-a-paris-le-jour-d-apres-a-l-heure-de-compter-les-plaies_6797232_3224.html)
+- **Violences en France : à l'étranger, la sidération avant la présidentielle**: [Link](https://medias24.com/agence-presse/violences-en-france-a-letranger-la-sideration-avant-la-presidentielle/)
+- **« Qu’ont-ils dans la tête ? » : la « colère » et la « honte » de Macron après les émeutes**: [Link](https://www.huffingtonpost.fr/politique/video/qu-ont-ils-dans-la-tete-la-colere-et-la-honte-d-emmanuel-macron-apres-les-emeutes_341618.html)
+
+
+### gta6 (N/A, Sun, 18 Oct 2026 13:20:00 -0700)
+
+- **A reference to the first GTA was noticed in the GTA VI trailer - it is considered a hint at Lucia and Jason's past**: [Link](https://ixbt.games/en/news/2026/10/18/v-treilere-gta-vi-zametili-otsylku-k-pervoi-gta-ee-scitaiut-namekom-na-prosloe-lusii-i-dzeisona.html)
+- **Grand Theft Auto VI graphics comparison based on June and October 2026 footage**: [Link](https://en.gamegpu.com/news/igry/grafiku-grand-theft-auto-vi-sravnili-na-materialakh-iyunya-i-oktyabrya-2026-goda)
+- **Justice are composing the original score for Grand Theft Auto VI**: [Link](https://mixmag.asia/read/justice-composing-original-score-grand-theft-auto-vi-6-news)
+
+
+### wydad ac vs amal tiznit (N/A, Sun, 18 Oct 2026 13:10:00 -0700)
+
+- **Wydad : Ghanimi remplace Benabid dans la composition officielle face à Amal Tiznit**: [Link](https://www.elbotola.com/fr/article/2026-10-18-19-14-932.html)
+- **Nasser Eddine Nabi pressenti pour remplacer Paulo Ser…**: [Link](https://www.ysscores.com/fr/news/14070403/nasser-eddine-nabi-pressenti-pour-remplacer-paulo-sergio-au-wydad-casablanca)
+- **Wydad Casablanca - Amal Tiznit : Heure du match et compositions (Botola Pro)**: [Link](https://www.livefoot.fr/direct/botola-pro-maroc/match-wydad-casablanca-vs-amal-tiznit-fc6e9ac6)
+
+
+### kylian mbappé (N/A, Sun, 18 Oct 2026 13:00:00 -0700)
+
+- **Kylian Mbappé: 11 goals in 11 games this season**: [Link](https://onefootball.com/en/news/kylian-mbappe-11-goals-in-11-games-this-season-43633784)
+- **Real Madrid vs Sevilla: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw0k0xyeee56t)
+- **Licensable picture: SOCCER-SPAIN-RMA-SEV/ La Liga EA Sport match between Real Madrid CF and Sevilla FC at Bernabeu Stadium, on October 18, 2026.**: [Link](https://www.reutersconnect.com/item/soccer-spain-rma-sev-la-liga-ea-sport-match-between-real-madrid-cf-and-sevilla-fc-at-bernabeu-stadium-on-october-18-2026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUxFUElDMDAwV1FMN1RR)
+
+
+### الوداد الرياضي ضد أمل تزنيت (N/A, Sun, 18 Oct 2026 12:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الوداد وأمل تزنيت في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D8%A7%D9%94%D9%85%D9%84-%D8%AA%D8%B2%D9%86%D9%8A%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltdd549d72079840d7)
+- **غانيمي مكان بنعبيد.. الوداد يكشف تشكيلته الرسمية لمواجهة أمل تزنيت في البطولة**: [Link](https://www.elbotola.com/article/2026-10-18-19-14-128.html)
+- **اكوموندو "الوداد" جاهز لموقعة دونور.. تعرّف على اللائحة المستدعاة كاملة**: [Link](https://radiomars.ma/%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D9%85%D9%84-%D8%AA%D9%8A%D8%B2%D9%86%D9%8A%D8%AA/)
+
+
+### la liga (N/A, Sun, 18 Oct 2026 12:50:00 -0700)
+
+- **Licensable picture: Real Madrid v Sevilla FC - La Liga**: [Link](https://www.reutersconnect.com/item/real-madrid-v-sevilla-fc-la-liga/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwM04yOFo4)
+- **Licensable picture: Real Madrid v Sevilla FC - La Liga**: [Link](https://www.reutersconnect.com/item/real-madrid-v-sevilla-fc-la-liga/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwM04yOEVK)
+- **Licensable picture: Runners take part in Tokyo Half Marathon in Japan**: [Link](https://www.reutersconnect.com/item/runners-take-part-in-tokyo-half-marathon-in-japan/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwM04yMzdO)
+
+
+### real madrid match (N/A, Sun, 18 Oct 2026 12:50:00 -0700)
+
+- **Suivez Real Madrid - Séville FC En direct - Liga - 9e journée**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-real-madrid-fc-seville_mtc21891449/live-commentary.shtml)
+- **Real Madrid - FC Séville : les compositions officielles**: [Link](https://www.footmercato.net/a535067952163180970-real-madrid-fc-seville-les-compositions-officielles)
+- **DIRECT. Real Madrid-Séville FC: doublé de Mbappé, le Real Madrid s'envole!**: [Link](https://rmcsport.bfmtv.com/football/liga/direct-real-madrid-fc-seville-suivez-le-match-de-la-9e-journee-de-liga-en-live_LS-202610180268.html)
+
+
+### madrid match (N/A, Sun, 18 Oct 2026 12:50:00 -0700)
+
+- **PREVIEW | Stuttgart vs Atlético de Madrid: team news, lineups, predictions (Champions League 20/10)**: [Link](https://sports.yahoo.com/articles/preview-stuttgart-vs-atl-tico-191000978.html)
+- **Why VfB Stuttgart will beat Atlético Madrid in the UEFA Champions League**: [Link](https://www.bundesliga.com/en/bundesliga/news/why-stuttgart-will-beat-atletico-madrid-champions-league-undav-demirovic-39579)
+- **Prediction: Stuttgart vs Atletico Madrid**: [Link](https://www.soccernews.com/prediction-stuttgart-vs-atletico-madrid/406551/)
+
+
+### arda güler (N/A, Sun, 18 Oct 2026 12:50:00 -0700)
+
+- **🚨Real Madrid-Sevilla maçı Canlı Anlatım - RM SV maçı kadroları, skoru ve istatistikleri | Arda Güler ilk 11’de**: [Link](https://www.fanatik.com.tr/real-madrid/live-real-madrid-sevilla-maci-canli-anlatim-rm-sv-maci-kadrolari-skoru-ve-istatistikleri-arda-guler-ilk-11de-2641423)
+- **Katalan basınından Arda Güler tepkisi: 'El Clasico öncesi kırmızı kart görmeliydi'**: [Link](https://12punto.com.tr/spor/katalan-basinindan-arda-guler-tepkisi-el-clasico-oncesi-kirmizi-kart-gormeliydi-156160)
+- **Real Madrid'in ilk 11'i: Mourinho parlayan oyuncusuna sürpriz yaptı, Valverde'nin pozisyonu değişti**: [Link](https://www.goal.com/tr/haber/real-madrid-in-ilk-11-i-mourinho-parlayan-oyuncusunu-sasirtti-ve-valverde-nin-pozisyonu-degisti/bltee101ecf0c750802)
+
+
 ### ol – nice (N/A, Sun, 18 Oct 2026 11:30:00 -0700)
 
 - **OL : Fonseca prend un grosse décision pour les cages**: [Link](https://www.sport.fr/football/ol-fonseca-prend-un-grosse-decision-pour-les-cages-1491089.shtm)
