@@ -1,3 +1,57 @@
+### تزييف (N/A, Sun, 18 Oct 2026 00:10:00 -0700)
+
+- **الداخلية العراقية تعلن الإطاحة بشبكة لتزييف اللوحات المرورية وتزوير السنويات**: [Link](https://shafaq.com/ar/%D8%A3%D9%85%D9%80%D9%86/%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%82%D9%8A%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%A7%D9%84-%D8%B7%D8%A7%D8%AD%D8%A9-%D8%A8%D8%B4%D8%A8%D9%83%D8%A9-%D9%84%D8%AA%D8%B2%D9%8A%D9%8A%D9%81-%D8%A7%D9%84%D9%84%D9%88%D8%AD%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B1%D9%88%D8%B1%D9%8A%D8%A9-%D9%88%D8%AA%D8%B2%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D8%B3%D9%86%D9%88%D9%8A%D8%A7%D8%AA)
+- **“الاستخبارات” تفكك شبكة لتزوير اللوحات المرورية والسنويات وتضبط كميات كبيرة من المزورات**: [Link](https://observeriraq.net/%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D9%81%D9%83%D9%83-%D8%B4%D8%A8%D9%83%D8%A9-%D9%84%D8%AA%D8%B2%D9%88%D9%8A%D8%B1-%D8%A7%D9%84%D9%84%D9%88%D8%AD%D8%A7%D8%AA/)
+- **وكالة الاستخبارات تُطيح بشبكة لتزييـ.ـف اللوحات المرورية وتـ.ـزوير السنويات وتلقي القبض على افرادها**: [Link](https://moi.gov.iq/?article=21143)
+
+
+### wetter (N/A, Sat, 17 Oct 2026 23:10:00 -0700)
+
+- **Wetterumschwung in Rheinland-Pfalz: Von ungemütlich zu heiter**: [Link](https://www.ww-kurier.de/artikel/177187-wetterumschwung-in-rheinland-pfalz--von-ungemuetlich-zu-heiter)
+- **Wetter: Dicke Wolken und teilweise Regen**: [Link](https://www.zeit.de/news/2026-10/18/dicke-wolken-und-teilweise-regen)
+- **Grau-​trübes Wo­chen­en­de - mehr Sonne zum Wo­chen­start**: [Link](https://www.rheinpfalz.de/rheinland-pfalz_artikel,-grau-tr%C3%BCbes-wochenende-mehr-sonne-zum-wochenstart-_arid,5939596.html)
+
+
+### الطقس (N/A, Sat, 17 Oct 2026 23:00:00 -0700)
+
+- **الإمارات تعزي تركيا في ضحايا الأمطار الغزيرة والسيول**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B9%D8%B2%D9%8A-%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-%D9%81%D9%8A-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84/4092443)
+- **سيول جارفة تضرب إسطنبول وتخلّف ضحايا ودمارا واسعا**: [Link](https://www.aljazeera.net/video/2026/10/16/%D8%B3%D9%8A%D9%88%D9%84-%D8%AC%D8%A7%D8%B1%D9%81%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A5%D8%B3%D8%B7%D9%86%D8%A8%D9%88%D9%84-%D9%88%D8%AA%D8%AE%D9%84%D9%81-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7)
+- **ما حجم الأمطار التي هطلت على إسطنبول، وهل كان يمكن تفادي الفيضانات؟**: [Link](https://www.bbc.com/arabic/articles/cqy7ln2v50p6o)
+
+
+### weather (N/A, Sat, 17 Oct 2026 23:00:00 -0700)
+
+- **Kauai Weather Forecast for October 18, 2026**: [Link](https://kauainownews.com/2026/10/17/kauai-weather-forecast-for-october-18-2026/)
+- **Kauai Forecast Calls for Sunny Skies and Strengthening Trade Winds**: [Link](https://suaragarut.id/en/kauai-weather-forecast-october-14)
+- **Kauai Weather Forecast for October 13, 2026**: [Link](https://kauainownews.com/2026/10/12/kauai-weather-forecast-for-october-13-2026/)
+
+
+### météo (N/A, Sat, 17 Oct 2026 22:50:00 -0700)
+
+- **Météo : ce dimanche en France, début d'un épisode méditerranéen et conditions automnales**: [Link](https://www.tameteo.com/actualites/previsions/meteo-ce-dimanche-en-france-debut-d-un-episode-mediterraneen-et-conditions-automnales-pluie.html)
+- **Intempéries au Sud-Est : épisode méditerranéen confirmé lundi et mardi**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-10-15/intemperies-au-sud-est-episode-mediterraneen-confirme-lundi-et-mardi-93224)
+- **Mardi 20 octobre : 49 mm de pluie à Marseille, Lyon et Paris sous l’eau aussi**: [Link](https://www.letribunaldunet.fr/meteo/meteo-18-octobre-marseille-pluie-mardi-49-mm.html)
+
+
+### tiempo (N/A, Sat, 17 Oct 2026 22:50:00 -0700)
+
+
+
+
+### weer (N/A, Sat, 17 Oct 2026 22:40:00 -0700)
+
+- **Frisse start van de week na regenachtig weekend: maandagochtend 4 tot 10 graden**: [Link](https://www.parool.nl/amsterdam/frisse-start-van-de-week-na-regenachtig-weekend-maandagochtend-4-tot-10-graden~beb754e3/)
+- **Later in de week sterk wisselvallig**: [Link](https://www.weerverteller.nl/verhalen/later-in-de-week-sterk-wisselvallig)
+- **Nog even droog, maar wisselvalliger weer op komst**: [Link](https://focus-wtv.be/weerbericht/nog-even-droog-maar-wisselvalliger-weer-op-komst)
+
+
+### samir belfkih ministre (N/A, Sat, 17 Oct 2026 18:50:00 -0700)
+
+- **Samir Belfkih, de l’ENSAM au porte-parolat du gouvernement**: [Link](https://mobile.telquel.ma/instant-t/2026/10/16/samir-belfkih-de-lensam-au-porte-parolat-du-gouvernement_2013570/)
+- **La PAMiste Fatima Saadi, ministre déléguée chargée de l’Habitat et de la Politique de la Ville**: [Link](https://fr.hespress.com/492738-la-pamiste-fatima-saadi-ministre-deleguee-chargee-de-lhabitat-et-de-la-politique-de-la-ville.html)
+- **Kouloub Faitah, la présidente des femmes du PAM chargée des Relations avec le Parlement**: [Link](http://ledesk.ma/2026/10/16/kouloub-faitah-la-presidente-des-femmes-du-pam-chargee-des-relations-avec-le-parlement/)
+
+
 ### tiktok (N/A, Sat, 17 Oct 2026 21:00:00 -0700)
 
 - **TikTok “Permanently Suspends” the ‘Musk’ Film Ad Account, Raising Suppression Fears (Exclusive)**: [Link](https://www.hollywoodreporter.com/news/politics-news/musk-movie-tiktok-banned-theaters-showtimes-1236734308/)
