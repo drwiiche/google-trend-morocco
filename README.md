@@ -1,3 +1,66 @@
+### ol – nice (N/A, Sun, 18 Oct 2026 11:30:00 -0700)
+
+- **OL : Fonseca prend un grosse décision pour les cages**: [Link](https://www.sport.fr/football/ol-fonseca-prend-un-grosse-decision-pour-les-cages-1491089.shtm)
+- **Tout sur Lyon - Nice (J7 - 2026/27)**: [Link](https://www.ogcnice.com/fr/article/131001/tout-sur-lyon-nice-j7-2026-27.html)
+- **OL - Nice : Kaïl Boudache va retrouver Nice, son club formateur**: [Link](https://www.olympique-et-lyonnais.com/ol-nice-kail-boudache-va-retrouver-nice-son-club-formateur,409789.html)
+
+
+### classement fc lorient – as monaco (N/A, Sun, 18 Oct 2026 11:30:00 -0700)
+
+- **Lorient 1-0 AS Monaco : penalty, duels et masterclass de Makengo**: [Link](https://www.sofascore.com/fr/news/lorient-1-0-as-monaco-penalty-duels-et-masterclass-de-makengo)
+- **FCL-ASM : première défaite de la saison**: [Link](https://onefootball.com/fr/news/fcl-asm-premiere-defaite-de-la-saison-43632745)
+- **L1 : Lorient-Monaco, les compos probables**: [Link](https://www.maxifoot.fr/ligue-1/lorient-monaco-les-compos-probables-foot-465907.htm)
+
+
+### الريال ضد إشبيلية (N/A, Sun, 18 Oct 2026 11:20:00 -0700)
+
+- **تشكيل ريال مدريد: مورينيو يفاجئ لاعبه المتألق.. وتغيير مركز فالفيردي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%84%D8%A7%D8%B9%D8%A8%D9%87-%D8%A7%D9%84%D9%85%D8%AA%D8%A7%D9%94%D9%84%D9%82--%D9%88%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%85%D8%B1%D9%83%D8%B2-%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D8%AF%D9%8A/bltee101ecf0c750802)
+- **مباشر.. مباراة ريال مدريد وإشبيلية في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/18/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-vs-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9)
+- **مورينيو يقول إنه كان سيغادر ريال مدريد لو كان مكان فينيسيوس**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261017-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%82%D9%88%D9%84-%D8%A5%D9%86%D9%87-%D9%83%D8%A7%D9%86-%D8%B3%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%88-%D9%83%D8%A7%D9%86-%D9%85%D9%83%D8%A7%D9%86-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3)
+
+
+### juventus – lazio (N/A, Sun, 18 Oct 2026 11:20:00 -0700)
+
+- **LIVE Alle 20.45 Juventus-Lazio, le ultime: Spalletti punta sulla coppia Nico-Kolo, Gattuso sceglie Noslin**: [Link](https://www.gazzetta.it/Calcio/Serie-A/18-10-2026/juve-lazio-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Juventus-Lazio: dove vederla in tv (Sky, Dazn), probabili formazioni, orario e classifica Serie A**: [Link](https://www.ilmessaggero.it/sport/schede/juventus_lazio_dove_vederla_tv_sky_dazn_probabili_formazioni_orario_serie_a-dove_vederla_in_tv-4-9831365.html)
+- **Juve-Lazio al contrario: Gattuso all’attacco per la vetta, Spalletti insegue**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/2026/10/18-151974888/juve-lazio_al_contrario_gattuso_allattacco_per_la_vetta_spalletti_insegue)
+
+
+### real madrid – séville (N/A, Sun, 18 Oct 2026 11:10:00 -0700)
+
+- **Confirmed: Real Madrid starting eleven to face Sevilla**: [Link](https://sports.yahoo.com/articles/confirmed-real-madrid-starting-eleven-175200124.html)
+- **Real Madrid - Sevilla, en directo: última hora de LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/real-madrid-sevilla-hoy-en-directo-laliga-ea-sports-en-vivo-ultima-hora-en-el-bernabeu-f202610-d/)
+- **La doble guerra del Real Madrid por y contra LaLiga**: [Link](https://www.sport.es/es/noticias/real-madrid/doble-guerra-real-madrid-laliga-sevilla-135448743)
+
+
+### macron (N/A, Sun, 18 Oct 2026 11:10:00 -0700)
+
+- **DIRECT. Manifestations du 17 octobre: Édouard Philippe dénonce la "division qui est en train de frapper le pays"**: [Link](https://www.bfmtv.com/societe/manifestations/direct-manifestations-du-17-octobre-l-heure-est-au-bilan-apres-une-journee-sous-haute-tension_LN-202610180040.html)
+- **Violences en France : à l'étranger, la sidération avant la présidentielle**: [Link](https://medias24.com/agence-presse/violences-en-france-a-letranger-la-sideration-avant-la-presidentielle/)
+- **Manifestations du 17 Octobre : Emmanuel Macron prendra la parole à 20h**: [Link](https://www.france24.com/fr/vid%C3%A9o/20261018-manifestations-du-17-octobre-emmanuel-macron-prendra-la-parole-%C3%A0-20h)
+
+
+### coupe d'afrique des nations de football 2027 (N/A, Sun, 18 Oct 2026 11:00:00 -0700)
+
+- **Explosion des budgets, retards... La Confédération africaine de football en demande-t-elle trop aux pays organisateurs de la CAN?**: [Link](https://information.tv5monde.com/afrique/explosion-des-budgets-retards-la-confederation-africaine-de-football-en-demande-t-elle-trop-aux-pays-organisateurs-de-la-can-2842196)
+- **CAF: La réhabilitation du CHAN en question**: [Link](https://www.horizons.dz/2026/10/caf-la-rehabilitation-du-chan-en-question/)
+- **« 4 ans, c'est une période très longue » : Renard fait pression sur la CAF pour revenir sur sa décision concernant la Coupe d'Afrique des nations**: [Link](https://www.goal.com/fr/news/4-ans-c-est-une-periode-tres-longue-renard-fait-pression-sur-la-caf-pour-revenir-sur-sa-decision-concernant-la-coupe-d-afrique-des-nations/blt5bb95ba95ec2bd39)
+
+
+### david lisnard (N/A, Sun, 18 Oct 2026 10:40:00 -0700)
+
+- **Présidentielle 2027 : autour de la candidature de David Lisnard, « il se passe quelque chose », mais quoi ?**: [Link](https://www.lemonde.fr/politique/article/2026/10/17/presidentielle-2027-autour-de-la-candidature-de-david-lisnard-il-se-passe-quelque-chose-mais-quoi_6796307_823448.html)
+- **"L'idée, c'était de gagner en notoriété" : se passe-t-il vraiment "quelque chose" autour de la candidature de David Lisnard à la présidentielle**: [Link](https://www.franceinfo.fr/elections/presidentielle/l-idee-c-etait-de-gagner-en-notoriete-se-passe-t-il-vraiment-quelque-chose-autour-de-la-candidature-de-david-lisnard-a-la-presidentielle_8238541.html)
+- **Présidentielle : à droite, chassé-croisé entre David Lisnard et Bruno Retailleau**: [Link](https://www.sudouest.fr/elections/presidentielle/presidentielle-a-droite-chasse-croise-entre-david-lisnard-et-bruno-retailleau-31109316.php)
+
+
+### telquel (N/A, Sun, 18 Oct 2026 10:20:00 -0700)
+
+- **Gouvernement: Fin de mission express pour la ministre déléguée Madiha Khayr**: [Link](https://medias24.com/2026/10/18/gouvernement-fin-de-mission-express-pour-madiha-khayr-1781273/)
+- **Gouvernement El Mansouri : la ministre délégué Madiha Khayr démise de ses fonctions**: [Link](https://ledesk.ma/2026/10/18/gouvernement-el-mansouri-la-ministre-delegue-madiha-khayr-demise-de-ses-fonctions/)
+- **Le Roi accepte la fin des fonctions de Madiha Khayr, ministre déléguée chargée de la Formation professionnelle**: [Link](https://fr.le360.ma/politique/le-roi-accepte-la-fin-des-fonctions-de-madiha-khayr-ministre-deleguee-chargee-de-la-formation_Q4PY7LK5ZJDMZOELUPY3OBXY3Q/)
+
+
 ### ملك المغرب (N/A, Sun, 18 Oct 2026 09:00:00 -0700)
 
 - **التعيينات في "حكومة المنصوري" تفتح أبواب البرلمان أمام وجوه جديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A3%D8%A8%D9%88-1824990.html)
