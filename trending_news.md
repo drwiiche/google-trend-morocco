@@ -1,3 +1,73 @@
+### ملك المغرب (N/A, Sun, 18 Oct 2026 09:00:00 -0700)
+
+- **التعيينات في "حكومة المنصوري" تفتح أبواب البرلمان أمام وجوه جديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B9%D9%8A%D9%8A%D9%86%D8%A7%D8%AA-%D9%81%D9%8A-%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A3%D8%A8%D9%88-1824990.html)
+- **حكومة المنصوري.. أجلاب لـ"تيلكيل عربي": توزيع الحقائب لا يكفي لضمان الفعالية**: [Link](https://ar.telquel.ma/%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D8%A3%D8%AC%D9%84%D8%A7%D8%A8-%D9%84%D9%80%D8%AA%D9%8A%D9%84%D9%83%D9%8A%D9%84-%D8%B9%D8%B1%D8%A8%D9%8A-%D8%AA/)
+- **« أكيد كاينين حوايج أخرى كنا كنتمناو ننجزوها »… أخنوش في رسالة وداع رئاسة الحكومة بالدارجة – اليوم 24**: [Link](https://alyaoum24.com/2051145.html)
+
+
+### málaga – real sociedad (N/A, Sun, 18 Oct 2026 09:00:00 -0700)
+
+- **Alineación del partido Malaga vs Sociedad | LaLiga · 18 oct. 2026**: [Link](https://www.ysscores.com/es/lineup/5868096/M%C3%A1laga-CF-vs-Real-Sociedad)
+- **🚨Alineaciones listas: Málaga quiere resurgir ante la Real**: [Link](https://es-us.noticias.yahoo.com/deportes/alineaciones-listas-m%C3%A1laga-resurgir-real-153200595.html)
+- **Málaga - Real Sociedad, en directo: previa de LaLiga EA Sports**: [Link](https://onefootball.com/es/noticias/malaga-real-sociedad-en-directo-previa-de-laliga-ea-sports-43632263)
+
+
+### ac milan – atalanta (N/A, Sun, 18 Oct 2026 09:00:00 -0700)
+
+- **~$!![@SKY-TV] Atalanta vs Milan Live Tv Game**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vY2ltYW5nby5naXRodWIuaW8vc2FuaS9jb3gueG1sIi8+PC9rcnBhbm8+&id=atalanta-vs-milan-liv-str-today-match-tvd1-299)
+- **[DIRETTA]TV!] Milan - Atalanta In Diretta Streaming Tv**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2h1bWF5cmFrdGVyLmdpdGh1Yi5pby92aWRlby9tLnhtbCIvPjwva3JwYW5vPg==&id=video-milan-atalanta-ita-25)
+- **【LIVESTREAMS】Atalanta vs AC Milan 𝐋𝐈𝐕𝐄 ＭＡＴＣＨ**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2FvbHRlY2gueHl6L3Nlby9zZW8ueG1sIi8+PC9rcnBhbm8+&id=atalanta-vs-ac-milan-espn-xr4zp)
+
+
+### arsenal (N/A, Sun, 18 Oct 2026 08:50:00 -0700)
+
+- **Viktor Gyokeres WANTS Arsenal exit in January for TWO reasons – Exclusive**: [Link](https://www.teamtalk.com/arsenal/viktor-gyokeres-wants-arsenal-exit-in-january-for-two-reasons-exclusive)
+- **Football gossip: Gyokeres, Rabiot, De Jong, Kounde, Nmecha**: [Link](https://www.bbc.com/sport/football/articles/c9gkv34kezdko)
+- **Arsenal’s ‘spent force’ tipped for imminent exit after desperate start to season**: [Link](https://talksport.com/football/4649936/arsenal-viktor-gyokeres-transfer-january/)
+
+
+### paris fc – rennes (N/A, Sun, 18 Oct 2026 08:40:00 -0700)
+
+- **@(STREAMING)!! Paris FC - Rennes match en direct et gratuit - Supercoupe Finale, 18 octobre 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vc2Fnb3JtaWEwMDQ3LmdpdGh1Yi5pby9hbnQvdG9tLnhtbCIvPjwva3JwYW5vPg==&id=video-paris-fc-rennes-en-direct-work-0103-apjgri4)
+- **DIRECT. Paris FC Rennes match en direct Live du Dimanche 28 Juillet 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-paris-fc-rennes-match-liv0194825)
+- **DIRECT VIDÉO) Rennes-Paris FC en direct et gratuitement**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vc2Fnb3JtaWEwMDQ3LmdpdGh1Yi5pby9hbnQvdG9tLnhtbCIvPjwva3JwYW5vPg==&id=video-rennes-paris-fc-en-vivo-gratuit-dextvc-0101-25yg1rq)
+
+
+### classement angers sporting club de l'ouest – olympique de marseille (N/A, Sun, 18 Oct 2026 08:20:00 -0700)
+
+- **Angers - OM : les notes du match**: [Link](https://www.footmercato.net/a5191198993533778234-angers-om-les-notes-du-match)
+- **Un petit carton et l'OM regarde enfin vers le haut**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/ligue-1-i-lom-passe-cinq-buts-a-angers-et-enchaine-un-deuxieme-succes-consecutif-en-championnat_sto23346866/story.shtml)
+- **Kamissoko et Kondogbia titulaires, Aguerd et Angel Gomes sur le banc : les compos d'Angers-OM**: [Link](https://www.lequipe.fr/Football/Video/Ligue-1-kamissoko-et-kondogbia-titulaires-aguerd-et-angel-gomes-sur-le-banc-les-compos-d-angers-om/20243458)
+
+
+### lorient – monaco (N/A, Sun, 18 Oct 2026 08:20:00 -0700)
+
+- **EN DIRECT VIDÉO) Lorient - AS Monaco en direct et gratuitement**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vc2Fnb3JtaWEwMDQ3LmdpdGh1Yi5pby9hbnQvdG9tLnhtbCIvPjwva3JwYW5vPg==&id=video-lorient-as-monaco-match-en-direct-dextvc-0103-j106tzv)
+- **L1 : Lorient-Monaco, les compos probables**: [Link](https://www.maxifoot.fr/ligue-1/lorient-monaco-les-compos-probables-foot-465907.htm)
+- **Lorient - Monaco : sur quelle chaîne et à quelle heure voir le match de Ligue 1 en direct ?**: [Link](https://www.ouest-france.fr/sport/football/fc-lorient/lorient-monaco-sur-quelle-chaine-et-a-quelle-heure-voir-le-match-de-ligue-1-en-direct-48cafaf6-c97a-11f1-b8bc-a46147b584ed)
+
+
+### rca (N/A, Sun, 18 Oct 2026 08:10:00 -0700)
+
+- **Italia vrea să oprească „penalizarea Sudului” la RCA: polița ar depinde de cum conduci, nu…**: [Link](https://www.mediafax.ro/it/italia-vrea-sa-opreasca-penalizarea-sudului-la-rca-polita-ar-depinde-de-cum-conduci-nu-de-unde-locuiesti-3702)
+- **EXCLUSIV Soluție de RCA mai ieftin. Cum am plătit cu 500 lei mai puțin decât cea mai ieftină ofertă din piață. Procedura pas cu pas și explicații din ASF**: [Link](https://www.profit.ro/insider/auto-transporturi/exclusiv-solutie-de-rca-mai-ieftin-cum-am-platit-cu-500-lei-mai-putin-decat-cea-mai-ieftina-oferta-din-piata-procedura-pas-cu-pas-si-explicatii-din-asf-22829744)
+- **Cele trei metode prin care poți cumpăra RCA mai ieftin. Reduceri de până la 40%…**: [Link](https://www.economica.net/cele-trei-metode-prin-care-poti-cumpara-rca-mai-ieftin-reduceri-de-pana-la-40-in-bucuresti-si-ilfov_986508.html)
+
+
+### raja live (N/A, Sun, 18 Oct 2026 08:10:00 -0700)
+
+- **~$!【CAF Champions League】 Raja CA vs El Kanemi Warriors LIVE NOW**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2p1bnRlc3RhY2Njb3VudC5naXRodWIuaW8vbmV3cy9ic3BuL3Rlc3QvYS54bWwiLz48L2tycGFubz4=&id=video-caf-champions-league-raja-ca-v-liv-en-tv-ni)
+- **【LiveSTREAMS】FREE]# Raja CA vs El Kanemi Warriors Live Free TV Channel 18 October 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2p1bnRlc3RhY2Njb3VudC5naXRodWIuaW8vbmV3cy9ic3BuL3Rlc3QvYS54bWwiLz48L2tycGFubz4=&id=video-livestreams-free-raja-ca-vs-el-liv-en-tv-ni)
+- **WATCH Raja CA vs El Kanemi Warriors LIVE online**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2p1bnRlc3RhY2Njb3VudC5naXRodWIuaW8vbmV3cy9ic3BuL3Rlc3QvYS54bWwiLz48L2tycGFubz4=&id=video-watch-raja-ca-vs-el-kanemi-war-liv-en-tv-ni)
+
+
+### groningen – ajax (N/A, Sun, 18 Oct 2026 08:10:00 -0700)
+
+- **#@%(LIVESTREAM-TV#) AFC Ajax FC Groningen Gratis live-uitzending, Beker van België**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbWl0c3Vrb25nYW5ndW8uZ2l0aHViLmlvL3JxcC9jdmIueG1sIi8+PC9rcnBhbm8+&id=video-afc-ajax-fc-groningen-match-lie-tcrwdzi)
+- **LIVE eredivisie | Davy Klaassen faalt vanaf elf meter na discussie met Leonardo, Ajax blijft op gelijke hoogte in Groningen**: [Link](https://www.ad.nl/voetbal/live-eredivisie-davy-klaassen-mist-penalty-voor-ajax-na-discussie-met-leonardo-fc-groningen-blijft-op-gelijke-hoogte~a2733785/)
+- **Ajax aast op eerherstel in de Eredivisie: 100x je inleg bij doelpunt tegen Groningen!**: [Link](https://www.voetbalprimeur.nl/nieuws/2148186/ajax-aast-op-eerherstel-in-de-eredivisie-100x-je-inleg-bij-doelpunt-tegen-groning.html)
+
+
 ### macky sall onu (N/A, Sun, 18 Oct 2026 06:00:00 -0700)
 
 - **L’ex-président sénégalais Macky Sall retire sa candidature au poste de secrétaire général de l’ONU**: [Link](https://afrique.le360.ma/politique/lex-president-senegalais-macky-sall-retire-sa-candidature-au-poste-de-secretaire-general-de-lonu_UKADVC2ZJRFRROBX2HAWMDXCLM/)
