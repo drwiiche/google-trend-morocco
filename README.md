@@ -1,3 +1,71 @@
+### سد (N/A, Mon, 19 Oct 2026 11:30:00 -0700)
+
+- **الأمطار ترفع حقينة سدود المغرب بـ49 مليون متر مكعب في 24 ساعة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B1%D9%81%D8%B9-%D8%AD%D9%82%D9%8A%D9%86%D8%A9-%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%8049-%D9%85%D9%84%D9%8A%D9%88-1825511.html)
+- **نسبة ملء السدود المغربية تصل إلى 65,9 في المائة**: [Link](https://barlamane.com/%D9%86%D8%B3%D8%A8%D8%A9-%D9%85%D9%84%D8%A1-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-659-%D9%81%D9%8A-%D8%A7%D9%84/)
+- **إقليم شفشاون يستفيد من مشروع سد جديد ضمن برنامج وطني بقيمة 339 مليون درهم**: [Link](https://tanja24.com/%D8%A5%D9%82%D9%84%D9%8A%D9%85-%D8%B4%D9%81%D8%B4%D8%A7%D9%88%D9%86-%D9%8A%D8%B3%D8%AA%D9%81%D9%8A%D8%AF-%D9%85%D9%86-%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D8%B3%D8%AF-%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B6%D9%85/)
+
+
+### getafe – rayo (N/A, Mon, 19 Oct 2026 11:20:00 -0700)
+
+- **Carvajal, 149 días después... y directo al once titular del Getafe**: [Link](https://www.marca.com/futbol/getafe/2026/10/19/carvajal-149-dias-directo-once-titular-getafe.html)
+- **Jon Ander González Esteban volverá a arbitrar al Rayo Vallecano cinco años después**: [Link](https://unionrayo.es/jon-ander-gonzalez-esteban-volvera-a-arbitrar-al-rayo-vallecano-cinco-anos-despues/)
+- **Noticias Deportes 16:00 (19/10/26)**: [Link](https://www.ondacero.es/podcast/programas/noticias-deportes/noticias-deportes-1600-191026_202610196ad62596b4bcb0e427054427.html)
+
+
+### foot salle maroc (N/A, Mon, 19 Oct 2026 11:10:00 -0700)
+
+- **Coupe d’Afrique des Nations de futsal : la sélection nationale affronte l’Égypte en demi-finale**: [Link](https://frmf.ma/fr/articles/coupe-dafrique-des-nations-de-futsal-la-selection-nationale-affronte-legypte-en-demi-finale)
+- **Maroc-Égypte (demi-finale CAN de futsal) : quelle heure, quelles chaînes**: [Link](https://medias24.com/2026/10/19/maroc-egypte-demi-finale-can-de-futsal-quelle-heure-quelles-chaines-1781425/)
+- **CAN FUTSAL 2026 : le Maroc jouera l'Egypte en demi-finale**: [Link](https://fr.hespress.com/492876-can-futsal-2026-le-maroc-jouera-legypte-en-demi-finale.html)
+
+
+### sébastien lecornu (N/A, Mon, 19 Oct 2026 11:10:00 -0700)
+
+- **DIRECT. Violences du 17 octobre: Gérald Darmanin annonce 2.513 placements en garde à vue et 67 personnes incarcérées à ce stade**: [Link](https://www.bfmtv.com/societe/manifestations/direct-violences-du-17-octobre-au-moins-117-interpellations-a-paris-ce-dimanche-apres-de-nouveaux-incidents-laurent-nunez-attendu-a-marseille-au-lendemain-de-l-allocution-d-emmanuel-macron_LN-202610190067.html)
+- **France en direct : couvre-feu annoncé à Paris dans les quartiers des Halles et de République**: [Link](https://www.france24.com/fr/france/20261019-en-direct-macron-refuse-d%C3%A9mission-nu%C3%B1ez-demande-nouveaux-modes-action-contre-casseurs)
+- **Mobilisation du 17 octobre : Emmanuel Macron face à l’échec de ses quinquennats**: [Link](https://www.lemonde.fr/idees/article/2026/10/19/mobilisation-du-17-octobre-emmanuel-macron-face-a-l-echec-de-ses-quinquennats_6797500_3232.html)
+
+
+### حكم قضائي (N/A, Mon, 19 Oct 2026 11:00:00 -0700)
+
+
+
+
+### خبر (N/A, Mon, 19 Oct 2026 10:40:00 -0700)
+
+- **الخارجية الإيرانية تستدعي سفير إيرلندا**: [Link](https://www.tasnimnews.ir/ar/news/2026/10/19/3727213/%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%DB%8C%D8%A9-%D8%A7%D9%84%D8%A5%DB%8C%D8%B1%D8%A7%D9%86%DB%8C%D8%A9-%D8%AA%D8%B3%D8%AA%D8%AF%D8%B9%DB%8C-%D8%B3%D9%81%DB%8C%D8%B1-%D8%A5%DB%8C%D8%B1%D9%84%D9%86%D8%AF%D8%A7)
+- **طهران تستدعي سفير إيرلندا احتجاجاً على بيان الاتحاد الأوروبي**: [Link](https://www.kurdistan24.net/ar/story/947201/%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%AA%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%B3%D9%81%D9%8A%D8%B1-%D8%A5%D9%8A%D8%B1%D9%84%D9%86%D8%AF%D8%A7-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7-%D8%B9%D9%84%D9%89-%D8%A8%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A)
+- **وزارة الخارجية الايرانية تستدعي السفير الأيرلندي لدى طهران للاحتجاج على مزاعم لا أساس لها من الصحة ضد إيران في بيان قمة الاتحاد الأوروبي**: [Link](https://twaslnews1.twaslnews.com/6241786/)
+
+
+### al-hilal – al hazm (N/A, Mon, 19 Oct 2026 10:30:00 -0700)
+
+- **Al Hilal vs Al Hazem: Saudi Pro League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cq77p1vl18vkt)
+- **Al-Hilal v Al-Hazm: Savic returns to the starting line-up with Salem on the bench**: [Link](https://www.livescore.com/en/news/football/more/al-hilal-v-al-hazm-savic-returns-to-the-starting-line-up-with-salem-on-the-bench-goal/)
+- **Anticipated return: will Salem Al-Dawsari cause a change in the position of Inzaghi's devastating weapon?**: [Link](https://www.goal.com/en/news/an-awaited-return-will-salem-al-dawsari-cause-a-change-in-the-position-of-inzaghi-s-devastating-weapon/blt964d46ed2b883458)
+
+
+### منتخب مصر لكرة القدم (N/A, Mon, 19 Oct 2026 10:10:00 -0700)
+
+- **كأس إفريقيا للأمم لكرة القدم داخل القاعة: المنتخب الوطني يواجه مصر في نصف النهائي**: [Link](https://frmf.ma/articles/coupe-dafrique-des-nations-de-futsal-la-selection-nationale-affronte-legypte-en-demi-finale)
+- **المغرب ومصر وأنغولا والجزائر تستعد لمواجهات نصف النهائي الاثنين**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%85%D8%B5%D8%B1-%D9%88%D8%A3%D9%86%D8%BA%D9%88%D9%84%D8%A7-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86/)
+- **أسود القاعة في نهائي مبكر أمام مصر**: [Link](https://assabah.ma/956506.html)
+
+
+### إندريك (N/A, Mon, 19 Oct 2026 10:00:00 -0700)
+
+- **رغم جاهزيته وتألقه الدولي.. لماذا يصر مورينيو على إقصاء إبراهيم دياز؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%AA%D9%87-%D9%88%D8%AA%D8%A7%D9%94%D9%84%D9%82%D9%87-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B5%D8%B1-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B9%D9%84%D9%89-%D8%A7%D9%95%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2/blt3201b7907f1c731f)
+- **بدقائق قليلة ضد إشبيلية.. براهيم دياز يعود للمشاركة مع ريال مدريد**: [Link](https://kifache.com/%D8%A8%D8%AF%D9%82%D8%A7%D8%A6%D9%82-%D9%82%D9%84%D9%8A%D9%84%D8%A9-%D8%B6%D8%AF-%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%B9/)
+- **الريال يسحق اشبيلية بالرباعية ودياز يشارك بديل**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D8%B3%D8%AD%D9%82-%D8%A7%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D9%88%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%B4%D8%A7%D8%B1%D9%83-%D8%A8%D8%AF%D9%8A%D9%84/26659)
+
+
+### طقس تطوان (N/A, Mon, 19 Oct 2026 09:30:00 -0700)
+
+- **نشرة إنذارية: زخات رعدية قوية بالمغرب**: [Link](https://www.hespress.com/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D9%87%D9%85-%D8%B9%D8%AF%D8%A9-%D8%A3%D9%82%D8%A7%D9%84%D9%8A%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1825434.html)
+- **الأرصاد الجوية تحذر من السيول المفاجئة وتدعو لتجنب عبور الأودية والشعاب**: [Link](https://barlamane.com/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84-%D8%A7%D9%84%D9%85%D9%81%D8%A7%D8%AC%D8%A6/)
+- **أمطار رعدية وهبات رياح اليوم الأحد وغدا الإثنين بعدد من مناطق المغرب**: [Link](https://lakome2.com/meteo/434406/)
+
+
 ### منتخب المغرب لكرة الصالات (N/A, Mon, 19 Oct 2026 03:20:00 -0700)
 
 - **كأس إفريقيا للأمم لكرة القدم داخل القاعة: المنتخب الوطني يواجه مصر في نصف النهائي**: [Link](https://frmf.ma/articles/coupe-dafrique-des-nations-de-futsal-la-selection-nationale-affronte-legypte-en-demi-finale)
