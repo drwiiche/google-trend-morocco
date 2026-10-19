@@ -1,3 +1,31 @@
+### bella hadid (N/A, Sun, 18 Oct 2026 17:50:00 -0700)
+
+- **Bella Hadid Wears a Bright Pink Workout Set and Pigtails to the Gym**: [Link](https://www.instyle.com/bella-hadid-bares-toned-legs-pink-workout-set-sports-bra-shorts-12179893)
+- **Bella Hadid’s Curated Revolve Capsule Makes Her Supermodel Style Easy to Re-Create for Under $150**: [Link](https://www.eonline.com/news/1437204/bella-hadids-revolve-edit-is-the-ultimate-cozy-capsule-collection)
+- **Supermodel Bella Hadid goes topless in risky selfie as she works up a sweat during sauna work-out on luxe retreat**: [Link](https://www.the-sun.com/entertainment/17168096/bella-hadid-topless-sauna-selfie/)
+
+
+### adriana lima (N/A, Sun, 18 Oct 2026 16:50:00 -0700)
+
+- **Saying Adriana Lima Had a “Glow Up” Isn’t as Kind as You Think**: [Link](https://www.allure.com/story/adriana-lima-glow-up-victorias-secret-fashion-show)
+- **Adriana Lima, 45, turns heads in neon green lace as she makes sensational return to the Victoria's Secret runway**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/adriana-lima-45-turns-heads-001814256.html)
+- **Adriana Lima's legendary lingerie moment proves she is the ultimate VS Angel**: [Link](https://www.hellomagazine.com/fashion/celebrity-style/929731/adriana-limas-legendary-lingerie-moment-victorias-secret/)
+
+
+### victoria secret fashion show (N/A, Sun, 18 Oct 2026 15:30:00 -0700)
+
+- **See All the Stars Arriving on the Pink Carpet at the 2026 Victoria’s Secret Fashion Show**: [Link](https://people.com/2026-victorias-secret-fashion-show-arrivals-12180896)
+- **Gigi Hadid sparkles in sequin wings at the Victoria's Secret Fashion Show**: [Link](https://www.usatoday.com/story/entertainment/style/2026/10/18/gigi-hadid-victorias-secret-fashion-show-2026/92247394007/)
+- **The Super Bowl of lingerie returns**: [Link](https://www.economist.com/the-world-in-brief/2026/10/18/4c2fef5c-bfe4-4cee-bb8d-23321d14bb01)
+
+
+### wydad vs (N/A, Sun, 18 Oct 2026 14:40:00 -0700)
+
+- **A fresh setback: Wydad fall into a draw against Amal Tiznit**: [Link](https://www.goal.com/en/news/a-fresh-stumble-wydad-fall-into-a-draw-against-amal-tiznit/bltbcee3749ef9d35db)
+- **Wydad AC vs Amal Tiznit match lineup | Botola Pro · 18 Oct 2026**: [Link](https://www.ysscores.com/en/lineup/68701532/Wydad-Casablanca-vs-Amal-Tiznit)
+- **Wydad announces ticket prices for match against Amal…**: [Link](https://www.ysscores.com/en/news/14071478/wydad-announces-ticket-prices-for-match-against-amal-tiznit-in-professional-league)
+
+
 ### شرطة (N/A, Sun, 18 Oct 2026 15:20:00 -0700)
 
 - **الرئيس الفرنسي ماكرون يتهم مثيري الشغب بمحاولة "إسقاط الجمهورية"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%85%D8%A7%D9%83%D8%B1%D9%88%D9%86-%D9%8A%D8%AA%D9%87%D9%85-%D9%85%D8%AB%D9%8A%D8%B1%D9%8A-%D8%A7%D9%84%D8%B4%D8%BA-1825149.html)
