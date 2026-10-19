@@ -1,3 +1,73 @@
+### مدرسة (N/A, Mon, 19 Oct 2026 14:50:00 -0700)
+
+- **Oregon man who killed school shooter reportedly took part in military drills with Iraq veterans**: [Link](https://www.theguardian.com/us-news/2026/oct/19/oregon-school-shooter)
+- **Family of 5-year-old hires firms to probe Bend shooting**: [Link](https://www.kptv.com/2026/10/19/family-5-year-old-hires-firms-probe-bend-shooting/)
+- **Bend Police investigating how school shooting suspect obtained gun**: [Link](https://www.koin.com/news/oregon/bend-police-investigating-how-school-shooting-suspect-obtained-gun/)
+
+
+### kim jong un (N/A, Mon, 19 Oct 2026 14:40:00 -0700)
+
+- **North Korea’s Kim visits new defense museum as Trump floats meeting**: [Link](https://www.japantimes.co.jp/news/2026/10/13/asia-pacific/north-korea-kim-trump-museum/)
+- **Chung's Summit Optimism Clashes With Trump's Uncertainty**: [Link](https://www.chosun.com/english/world-en/2026/10/20/OIKVR5ZIEFG73PTFUQUETJJOO4/)
+- **Decoding the North Korean missile: a hybrid of Russian Hermes and US GLSDB.**: [Link](https://www.vietnam.vn/en/giai-ma-ten-lua-trieu-tien-lai-giua-hermes-nga-va-glsdb-my)
+
+
+### classement getafe – rayo vallecano de madrid (N/A, Mon, 19 Oct 2026 14:20:00 -0700)
+
+- **Preview: Getafe vs Rayo Vallecano - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/getafe/preview/getafe-vs-rayo-vallecano-prediction-team-news-lineups_607132.html)
+- **Best Bet & Goalscorer Picks for Getafe vs Rayo Vallecano**: [Link](https://www.sportsbettingdime.com/news/soccer/getafe-vs-rayo-vallecano-odds-predictions-october-19-2026/)
+- **Getafe 1-1 Rayo Vallecano: Satriano shines in gritty draw**: [Link](https://www.sofascore.com/news/getafe-1-1-rayo-vallecano-satriano-shines-in-gritty-draw)
+
+
+### الأنباء (N/A, Mon, 19 Oct 2026 14:00:00 -0700)
+
+- **US airman dies as daredevil descent goes wrong before Texas college football game**: [Link](https://www.bbc.com/news/articles/crd6dn63j2xwo)
+- **US airman who died after rappel fall at a college football game in Texas is identified**: [Link](https://www.click2houston.com/news/texas/2026/10/19/us-airman-who-died-after-rappel-fall-at-a-college-football-game-in-texas-is-identified/)
+- **Air Force member killed rappelling from Alamodome's ceiling in Salute to Armed Forces ceremony**: [Link](https://abcnews.com/US/air-force-member-killed-rappelling-alamodomes-ceiling-salute/story?id=137361366)
+
+
+### توتنهام ضد كوفنتري سيتي (N/A, Mon, 19 Oct 2026 13:00:00 -0700)
+
+- **فيديو: مرموش يسجل أخيرًا ويمنح توتنهام انتصاره الأول في البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%B1%D9%85%D9%88%D8%B4-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D9%8B%D8%A7-%D9%88%D9%8A%D9%85%D9%86%D8%AD-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/bltfdcf1f2c886e8ce1)
+- **توتنهام هوتسبير يتخطّى كوفنتري سيتي في ليلة تألّق المصري عمر مرموش**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%87%D9%88%D8%AA%D8%B3%D8%A8%D9%8A%D8%B1-%D9%8A%D8%AA%D8%AE%D8%B7-%D9%89-%D9%83%D9%88%D9%81%D9%86%D8%AA%D8%B1%D9%8A-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%AA%D8%A3%D9%84-%D9%82-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%B9%D9%85%D8%B1-%D9%85%D8%B1%D9%85%D9%88%D8%B4-2026-10-19)
+- **أدارابيويو يستعد لخوض أول مباراة أساسية له في الدوري الإنجليزي مع توتنهام**: [Link](https://twaslnews1.twaslnews.com/6241632/)
+
+
+### الخبر (N/A, Mon, 19 Oct 2026 12:50:00 -0700)
+
+- **تفكيك عصابة سرقة أبواب السيارات**: [Link](https://www.elkhabar.com/societe/%D8%AA%D9%81%D9%83%D9%8A%D9%83-%D8%B9%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B3%D8%B1%D9%82%D8%A9-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-275514)
+- **عصابة سرقة أبواب السيارات في قبضة شرطة العاصمة – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%B9%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B3%D8%B1%D9%82%D8%A9-%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D9%82%D8%A8%D8%B6%D8%A9-%D8%B4%D8%B1%D8%B7%D8%A9)
+- **الحبس المؤقت لـ3 متهمين بسرقة أبواب سيارة «أودي A3»**: [Link](https://www.algeriedirect.dz/%D8%A3%D8%A8%D9%88%D8%A7%D8%A8-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9/)
+
+
+### tottenham (N/A, Mon, 19 Oct 2026 12:20:00 -0700)
+
+- **Spurs vs Coventry LIVE: Premier League score, team news, commentary & updates**: [Link](https://www.bbc.com/sport/football/live/cq99z1401xljt)
+- **Tottenham beat Coventry to claim first Premier League win of season – as it happened**: [Link](https://www.theguardian.com/football/live/2026/oct/19/tottenham-v-coventry-premier-league-live)
+- **Maddison basks in 'dream' Spurs injury return after 'dark' recovery**: [Link](https://www.standard.co.uk/sport/football/maddison-tottenham-return-dark-days-b1301524.html)
+
+
+### futsal (N/A, Mon, 19 Oct 2026 12:20:00 -0700)
+
+- **Invicto há dois anos na Seleção, Marquinhos Xavier se emociona com 15º título e avalia fim de ciclo**: [Link](https://ge.globo.com/pr/futsal/noticia/2026/10/19/invicto-ha-dois-anos-na-selecao-marquinhos-xavier-se-emociona-com-15o-titulo-e-avalia-fim-de-ciclo.ghtml)
+- **Auxiliar técnico do Sport, Vanildo Neto, conquista título com Seleção Brasileira de Futsal**: [Link](https://sportrecife.com.br/esportes-olimpicos-amadores/auxiliar-tecnico-do-sport-vanildo-neto-conquista-titulo-com-selecao-brasileira-de-futsal/)
+- **Brasil é tricampeão da Copa das Nações de Futsal com dois integrantes da comissão técnica do Jaraguá**: [Link](https://www.jdv.com.br/brasil-tricampeao-copa-nacoes-jaragua-futsal/)
+
+
+### أياكس أمستردام (N/A, Mon, 19 Oct 2026 12:10:00 -0700)
+
+- **بثلاثي مغربي.. أياكس يكتسح غرونينغن بخماسية وعودة مبشرة لبونيدا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%A8%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A3%D9%8A%D8%A7%D9%83%D8%B3-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D8%BA%D8%B1%D9%88%D9%86%D9%8A%D9%86%D8%BA%D9%86-%D8%A8%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D9%88%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D8%A8%D8%B4%D8%B1%D8%A9-%D9%84%D8%A8%D9%88%D9%86%D9%8A%D8%AF%D8%A7/26672)
+- **توقعات مباراة غرونينغن وأياكس: نقطة ساخنة في سباق الصدارة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-groningen-vs-ajax-diem-nong-cuoc-dua-top-dau)
+- **ماذا قدم الثلاثي المغربي ليقودوا أياكس إلى انتصار كاسح ؟**: [Link](https://inews.ma/news/8736750)
+
+
+### خيتافي ضد رايو فاليكانو (N/A, Mon, 19 Oct 2026 12:00:00 -0700)
+
+- **خيتافي ورايو فاليكانو في مواجهة ديربي متقاربة (معطيات وتوقعات)**: [Link](https://www.koralogie.com/2026/10/getafe-rayo-j9-liga-pronostic.html)
+- **الظهور الأول لكارفاخال، خيتافي يتعادل مع رايو فاييكانو في الدوري الإسباني**: [Link](https://www.vetogate.com/5753662)
+- **خيتافي ضد رايو فايكانو: توقيت المباراة والتلفزيون الناقل**: [Link](https://akher.news/71571/%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D8%B6%D8%AF-%D8%B1%D8%A7%D9%8A%D9%88-%D9%81%D8%A7%D9%8A%D9%83%D8%A7%D9%86%D9%88-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9/)
+
+
 ### سد (N/A, Mon, 19 Oct 2026 11:30:00 -0700)
 
 - **الأمطار ترفع حقينة سدود المغرب بـ49 مليون متر مكعب في 24 ساعة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AA%D8%B1%D9%81%D8%B9-%D8%AD%D9%82%D9%8A%D9%86%D8%A9-%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A8%D9%8049-%D9%85%D9%84%D9%8A%D9%88-1825511.html)
