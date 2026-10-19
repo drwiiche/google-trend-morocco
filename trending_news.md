@@ -1,3 +1,71 @@
+### منتخب المغرب لكرة الصالات (N/A, Mon, 19 Oct 2026 03:20:00 -0700)
+
+- **كأس إفريقيا للأمم لكرة القدم داخل القاعة: المنتخب الوطني يواجه مصر في نصف النهائي**: [Link](https://frmf.ma/articles/coupe-dafrique-des-nations-de-futsal-la-selection-nationale-affronte-legypte-en-demi-finale)
+- **كأس الأمم الأفريقية لكرة الصالات (TotalEnergies CAF) – رامباو: رحلة تنزانيا تبدأ الآن**: [Link](https://www.cafonline.com/ar/%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-totalenergies-caf-%D8%B1%D8%A7%D9%85%D8%A8%D8%A7%D9%88-%D8%B1%D8%AD%D9%84%D8%A9-%D8%AA%D9%86%D8%B2%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%A8%D8%AF%D8%A3-%D8%A7%D9%84%D8%A2%D9%86/)
+- **المغرب يواجه مصر في نصف النهائي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-2-1824842.html)
+
+
+### اقتصاد (N/A, Mon, 19 Oct 2026 02:20:00 -0700)
+
+- **سندات الشركات الهندية مرشحة لرقم قياسي في 2026**: [Link](https://twaslnews1.twaslnews.com/6215231/)
+- **اقتصاد اليابان سيتراجع للمرتبة السادسة عالميا في 2027**: [Link](https://www.snabusiness.com/article/1899058-%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D8%B3%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%84%D9%84%D9%85%D8%B1%D8%AA%D8%A8%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A7-2027)
+- **يفقد الاقتصاد الياباني زخمه وسيتجاوزه الاقتصاد الهندي والبريطاني في العام المقبل.**: [Link](https://www.vietnam.vn/ar/kinh-te-nhat-ban-hut-hoi-sang-nam-bi-an-do-anh-vuot-mat)
+
+
+### classroom (N/A, Mon, 19 Oct 2026 02:20:00 -0700)
+
+- **What we know about the investigation into the Bend school shooting**: [Link](https://www.cnn.com/2026/10/19/us/bend-oregon-silver-rail-shooting)
+- **Oregon school shooter was 16-year-old whose mother purchased the gun he used, sources say**: [Link](https://www.nbcnews.com/news/us-news/oregon-school-shooter-identified-16-year-old-john-griffin-ii-whose-mot-rcna603908)
+- **Too Soon to Say Whether Criminal Charges Will be Filed in Silver Rail Aftermath**: [Link](https://www.bendsource.com/news/localnews/still-too-soon-to-say-whether-criminal-charges-will-be-filed-in-silver-rail-aftermath/)
+
+
+### نادية فتاح العلوي (N/A, Mon, 19 Oct 2026 01:40:00 -0700)
+
+- **فتاح العلوي تودع وزارة المالية**: [Link](https://www.hespress.com/%D9%81%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D8%B9%D9%84%D9%88%D9%8A-%D8%AA%D9%88%D8%AF%D8%B9-%D8%A7%D9%84%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-1824509.html)
+- **فوزي لقجع يحسم موقفه من رئاسة الاتحاد المغربي بعد المنصب الجديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%88%D8%B2%D9%8A-%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D8%B1%D9%8A%D9%94%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D8%A8-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/blt0b6a0315d007f319)
+- **المغرب: تعيين فوزي لقجع وزيرا للمالية في حكومة المنصوري والإبقاء على وزيري الداخلية والخارجية**: [Link](https://www.france24.com/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%A7%D8%B1%D8%A8%D9%8A%D8%A9/20261016-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B9%D9%8A%D9%8A%D9%86-%D9%81%D9%88%D8%B2%D9%8A-%D9%84%D9%82%D8%AC%D8%B9-%D9%88%D8%B2%D9%8A%D8%B1%D8%A7-%D9%84%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%A8%D9%82%D8%A7%D8%A1-%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC%D9%8A%D8%A9)
+
+
+### maroc (N/A, Mon, 19 Oct 2026 01:30:00 -0700)
+
+- **Coupe d’Afrique des Nations de futsal : la sélection nationale affronte l’Égypte en demi-finale**: [Link](https://frmf.ma/fr/articles/coupe-dafrique-des-nations-de-futsal-la-selection-nationale-affronte-legypte-en-demi-finale)
+- **TotalEnergies CAF CAN de Futsal 2026 /Soufiane Borite : « Nous voulons conserver le titre au Maroc »**: [Link](https://www.cafonline.com/fr/coupe-dafrique-des-nations-de-futsal/infos/totalenergies-caf-can-de-futsal-2026-soufiane-borite-nous-voulons-conserver-le-titre-au-maroc/)
+- **CAN FUTSAL 2026 : le Maroc jouera l'Egypte en demi-finale**: [Link](https://fr.hespress.com/492876-can-futsal-2026-le-maroc-jouera-legypte-en-demi-finale.html)
+
+
+### amende (N/A, Mon, 19 Oct 2026 01:30:00 -0700)
+
+- **Arrêtons de blâmer nos fenêtres quand il fait froid : j’ai trouvé l’accessoire parfait pour garder la chaleur en hiver**: [Link](https://www.leparisien.fr/guide-shopping/maison/arretons-de-blamer-nos-fenetres-quand-il-fait-froid-jai-trouve-laccessoire-parfait-pour-garder-la-chaleur-en-hiver-19-10-2026-R5XGRS4EQ5CI7N67IYPMHL542M.php)
+- **Froid : ce geste sur les fenêtres est interdit depuis 2023 et peut coûter jusqu'à 750 euros d'amende**: [Link](https://fr.style.yahoo.com/froid-geste-fen%C3%AAtres-interdit-depuis-102822246.html)
+- **Il colle du ruban adhésif sur les grilles de ses fenêtres pour moins sentir le froid : ce geste interdit depuis 2023 peut lui coûter jusqu'à 750 euros**: [Link](https://www.demotivateur.fr/vie-pratique/ruban-adhesif-sur-les-grilles-d-aeration-des-fenetres-pour-avoir-moins-froid-ce-geste-est-interdit-depuis-2023-et-peut-couter-jusqu-a-750-euros-50808)
+
+
+### سيل (N/A, Mon, 19 Oct 2026 00:20:00 -0700)
+
+- **سيول جارفة تربك حركة السير بتنغير**: [Link](https://www.hespress.com/%D8%B3%D9%8A%D9%88%D9%84-%D8%AC%D8%A7%D8%B1%D9%81%D8%A9-%D8%AA%D8%B1%D8%A8%D9%83-%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D8%B1-%D8%A8%D8%AA%D9%86%D8%BA%D9%8A%D8%B1-1824959.html)
+- **السيول تقطع طرقا حيوية بالجنوب الشرقي وتربك حركة السير بعدد من المناطق**: [Link](https://al3omk.com/1198074.html)
+- **السيول وارتفاع منسوب واد "تاملالت" يقطعان العديد من المقاطع الطرقية بزاكورة**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84-%D9%88%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D9%85%D9%86%D8%B3%D9%88%D8%A8-%D9%88%D8%A7%D8%AF-%D8%AA%D8%A7%D9%85%D9%84%D8%A7%D9%84%D8%AA-%D9%8A%D9%82%D8%B7-1027073.html)
+
+
+### أسيك ميموزا (N/A, Sun, 18 Oct 2026 23:50:00 -0700)
+
+- **بالفيديو: ليلة أفريقية حزينة للمغرب وتونس والجزائر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D8%AD%D8%B2%D9%8A%D9%86%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1/blt41be6773c2cc025b)
+- **المغرب الفاسي يتعادل مع أسيك الإيفواري**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%A3%D8%B3%D9%8A%D9%83-%D8%A7%D9%84%D8%A5%D9%8A%D9%81%D9%88%D8%A7%D8%B1-1825198.html)
+- **المغرب الفاسي يكشف لائحته لمواجهة أسيك ميموزا**: [Link](https://assabah.ma/956602.html)
+
+
+### wetter (N/A, Sun, 18 Oct 2026 23:40:00 -0700)
+
+- **Wetter in Berlin: Trübes Wochenende – und dann kündigen sich Minusgrade an**: [Link](https://www.morgenpost.de/berlin/article413440433/wetter-in-berlin-truebes-wochenende-und-dann-kuendigen-sich-minusgrade-an.html)
+- **Die Meetingpoint-Wettervorhersage**: [Link](https://meetingpoint-brandenburg.de/artikel/20498-die-meetingpoint-wettervorhersage)
+- **Wetter: Sonne und milde Temperaturen für Berlin und Brandenburg**: [Link](https://www.zeit.de/news/2026-10/19/sonne-und-milde-temperaturen-fuer-berlin-und-brandenburg)
+
+
+### le360 (N/A, Sun, 18 Oct 2026 23:00:00 -0700)
+
+
+
+
 ### tiempo (N/A, Sun, 18 Oct 2026 22:50:00 -0700)
 
 
