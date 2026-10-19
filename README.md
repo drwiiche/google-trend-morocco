@@ -1,3 +1,29 @@
+### tiempo (N/A, Sun, 18 Oct 2026 22:50:00 -0700)
+
+
+
+
+### sports (N/A, Sun, 18 Oct 2026 20:10:00 -0700)
+
+- **There's a crackdown on sports piracy - but is it already out of control?**: [Link](https://www.bbc.com/news/articles/cmx2375zqwwwo)
+- **Verimatrix Streamkeeper Puts Those Fighting Piracy in a Proactive Position for Battle**: [Link](https://www.sportsvideo.org/2026/10/12/veramatrix-streamkeeper-puts-those-fighting-piracy-in-a-proactive-position-for-battle/)
+- **2026 NFL pass rush, run stop, blocking win rate rankings**: [Link](https://www.espn.com/nfl/story/_/id/49742016/2026-win-rates-team-player-rankings-pass-rush-run-stop-blocking)
+
+
+### real madrid vs sevilla fc standings (N/A, Sun, 18 Oct 2026 14:20:00 -0700)
+
+- **Real Madrid 4-1 Sevilla - Kylian Mbappe scores twice as Real win**: [Link](https://www.bbc.com/sport/football/live/cw0k0xyeee56t)
+- **Yan Diomande shines for Real Madrid against Sevilla**: [Link](https://panafricafootball.com/article/yan-diomande-real-madrid-sevilla)
+- **Video: Real Madrid play on "without Vinicius", and "the whistle of controversy" sours the party at the Bernabeu**: [Link](https://www.goal.com/en/news/video-real-madrid-play-on-without-vinicius-and-the-whistle-of-controversy-sours-the-bernabeu-party/blt6e64074239b2c954)
+
+
+### yan diomandé (N/A, Sun, 18 Oct 2026 14:00:00 -0700)
+
+- **Un match monstrueux, un record au XXIe siècle et une célébration à la LeBron James : Yan Diomandé prend son envol au Real Madrid**: [Link](https://www.afrik-foot.com/un-match-monstrueux-un-record-au-xxie-siecle-et-une-celebration-a-la-lebron-james-yan-diomande-prend-son-envol-au-real-madrid)
+- **"Il va faire des étincelles": Yan Diomandé marque les esprits au Real Madrid avant le Clasico, Vinicius a du souci à se faire**: [Link](https://rmcsport.bfmtv.com/football/liga/il-va-faire-des-etincelles-yan-diomande-marque-les-esprits-au-real-madrid-avant-le-clasico-vinicius-a-du-souci-a-se-faire_AV-202610180405.html)
+- **Diomande a douché les espoirs de Bueno et du Séville FC**: [Link](https://fr.besoccer.com/info/diomande-a-douche-les-espoirs-de-bueno-et-du-seville-fc-1435802)
+
+
 ### bella hadid (N/A, Sun, 18 Oct 2026 17:50:00 -0700)
 
 - **Bella Hadid Wears a Bright Pink Workout Set and Pigtails to the Gym**: [Link](https://www.instyle.com/bella-hadid-bares-toned-legs-pink-workout-set-sports-bra-shorts-12179893)
