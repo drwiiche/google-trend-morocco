@@ -1,3 +1,71 @@
+### yalla (N/A, Tue, 20 Oct 2026 12:30:00 -0700)
+
+- **Did Yalla Group's Fall Catch You Out? What Investors Missed**: [Link](https://simplywall.st/stocks/us/media/nyse-yala/yalla-group/news/did-yalla-groups-fall-catch-you-out-what-investors-missed)
+
+
+### ferran torres (N/A, Tue, 20 Oct 2026 12:30:00 -0700)
+
+- **PSG - Barcelona en directo | Joan García salva un mano a mano ante Ferran**: [Link](https://elpais.com/deportes/futbol/2026-10-20/psg-barcelona-en-directo-el-partido-de-la-champions-league-en-vivo.html)
+- **Ferran y el Barça, breve historia de un desencuentro**: [Link](https://as.com/futbol/champions/ferran-y-el-barca-breve-historia-de-un-desencuentro-f202610-n/)
+- **Arantxa, hermana de Ferran Torres: "Tenemos un tatuaje, un recordatorio para no dejarnos hundir por nada ni por nadie. A mí padre le costó asimilarlo, pero ahora a mis abuelos les encanta”**: [Link](https://www.sport.es/es/noticias/barca/arantxa-hermana-ferran-torres-tatuaje-135516622)
+
+
+### flashscore (N/A, Tue, 20 Oct 2026 12:20:00 -0700)
+
+- **Bromley - Leicester**: [Link](https://www.flashscore.com/match/football/bromley-Opdcd08Q/leicester-KrrdAMyI/)
+- **Licensable picture: Bromley v Leicester City Sky Bet League 1**: [Link](https://www.reutersconnect.com/item/bromley-v-leicester-city-sky-bet-league-1/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBLTzNVR1I)
+- **Four changes Leicester City could make for Bromley as Russell Martin eyes first**: [Link](https://www.leicestermercury.co.uk/sport/football/football-news/leicester-city-bromley-russell-martin-11205587)
+
+
+### bet365 (N/A, Tue, 20 Oct 2026 12:20:00 -0700)
+
+- **bet365 Referral Code ROTOWIRE: Up To $500 Annually**: [Link](https://www.rotowire.com/article/bet365-refer-a-friend-bonus-rotowire-up-to-500-october-2026-142418)
+- **bet365 Bonus Code: Get $200 in Bonus Bets for NBA Openers, NFL Week 7 & World Series**: [Link](https://bearswire.usatoday.com/story/sports/2026/10/20/bet365-bonus-code-oct-20/91758412007/)
+- **Best prediction market combos at Kalshi, Polymarket: Knicks-76ers, Spurs-Thunder, NBA Opening Night on Tuesday**: [Link](https://www.cbssports.com/prediction/news/best-prediction-market-combos-kalshi-polymarket-knicks-76ers-spurs-thunder-nba-opening-night-tuesday/)
+
+
+### paris (N/A, Tue, 20 Oct 2026 12:20:00 -0700)
+
+- **La «panoplie du casseur» : des peines sévères lors des premières comparutions immédiates à Paris après le 17 octobre**: [Link](https://www.liberation.fr/societe/police-justice/la-panoplie-du-casseur-des-peines-severes-lors-des-premieres-comparutions-immediates-apres-le-17-octobre-20261019_FURFULNHYFGDZC2JEB6P2YSSOY/)
+- **« Manifester ? Moi ? Non »… Les premières comparutions ont commencé à Paris**: [Link](https://www.20minutes.fr/justice/4255605-20261019-violences-17-octobre-regrette-ecrit-paris-premieres-comparutions-commence)
+- **Violences du 17 octobre : musicien, cuisinier, sans-abri, primo-délinquants… Qui sont les premiers émeutiers présentés à la justice**: [Link](https://www.leparisien.fr/faits-divers/musicien-cuisinier-sans-abri-primo-delinquants-qui-sont-les-premiers-emeutiers-presentes-a-la-justice-19-10-2026-3WNLAGP7BBATHAGAQQTKLRIIGM.php)
+
+
+### match day (N/A, Tue, 20 Oct 2026 12:20:00 -0700)
+
+- **Champions League starting and predicted line-ups: Matchday 3 team news, injuries, suspensions**: [Link](https://www.uefa.com/uefachampionsleague/news/02aa-21dd60778d8f-1ea14fd92256-1000--champions-league-starting-and-predicted-line-ups-matchday-3-/)
+- **UCL Fantasy 2026/27: Expert team reveals for Matchday 3**: [Link](https://www.fantasyfootballscout.co.uk/2026/10/20/ucl-fantasy-2026-27-expert-team-reveals-for-matchday-3/)
+- **Champions League Matchday 3 Rate My Team UCL Fantasy Team**: [Link](https://sports.yahoo.com/articles/champions-league-matchday-3-rate-094249505.html)
+
+
+### مباشر (N/A, Tue, 20 Oct 2026 12:10:00 -0700)
+
+- **مباشر: مانشستر يونايتد ضد ألترينشام: ألترينشام يتعادل 1-1**: [Link](https://www.vietnam.vn/ar/truc-tieptruc-tiep-united-of-manchester-vs-altrincham-altrincham-go-hoa-1-1)
+- **توقعات مباراة مانشستر يونايتد ضد ألترينشام: أفضلية الأرض**: [Link](https://www.vietnam.vn/ar/nhan-dinh-united-of-manchester-vs-altrincham-diem-tua-san-nha)
+- **توقعات مباراة ألترينشام ضد مانشستر يونايتد: سيتم اختبار أداء الفريق خارج أرضه.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-altrincham-vs-united-of-manchester-ban-linh-san-khach-duoc-thu-lua)
+
+
+### sir (N/A, Tue, 20 Oct 2026 12:10:00 -0700)
+
+- **McCartney and Starr back new Beatles attraction**: [Link](https://www.bbc.com/news/articles/cr3wv555ew6lo)
+- **A new Beatles attraction is coming to Liverpool as interest in the Fab Four surges**: [Link](https://apnews.com/article/beatles-story-liverpool-apple-corps-b1f845f94691d5035c477f2455695710)
+- **Vast Beatles museum, hailed as ‘extraordinary’ by Paul McCartney, to open in Liverpool in 2028**: [Link](https://www.theguardian.com/music/2026/oct/20/vast-beatles-museum-hailed-as-extraordinary-by-paul-mccartney-to-open-in-liverpool-in-2028)
+
+
+### sports (N/A, Tue, 20 Oct 2026 12:10:00 -0700)
+
+- **Croatian Embassy brings a day of sports history to the Alexandria hotel where its team stayed**: [Link](https://www.alexandriabrief.com/croatian-embassy-brings-a-day-of-sports-history-to-the-alexandria-hotel-where-its-team-stayed/)
+- **Sport Brings Croatia and the United States Closer Together**: [Link](https://glashrvatske.hrt.hr/en/sports/sport-brings-croatia-and-the-united-states-closer-together-12967095)
+- **Alexandria City Council votes to establish friendship city with Osijek, Croatia**: [Link](https://www.alxnow.com/2026/10/14/alexandria-city-council-votes-to-establish-friendship-city-with-osijek-croatia/)
+
+
+### إيران (N/A, Tue, 20 Oct 2026 12:10:00 -0700)
+
+- **ترمب يضع شرطا لوقف الحرب على إيران ويرجح هبوط أسعار النفط**: [Link](https://www.aljazeera.net/news/2026/10/20/%D8%AA%D8%B1%D9%85%D8%A8-%D9%8A%D8%B4%D8%AA%D8%B1%D8%B7-%D9%85%D9%86%D8%B9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D9%86-%D8%A7%D9%84%D9%86%D9%88%D9%88%D9%8A-%D9%84%D9%88%D9%82%D9%81)
+- **ترامب: قادة إيران طلبوا وقف الهجمات ويخشون مصير أسلافهم**: [Link](https://www.alarabiya.net/iran/2026/10/20/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%82%D8%A7%D8%AF%D8%A9-%D8%A7%D9%8A%D8%B1%D8%A7%D9%86-%D8%B7%D9%84%D8%A8%D9%88%D8%A7-%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D9%88%D9%8A%D8%AE%D8%B4%D9%88%D9%86-%D9%85%D8%B5%D9%8A%D8%B1-%D8%A7%D8%B3%D9%84%D8%A7%D9%81%D9%87%D9%85)
+- **ترامب يكشف "مخاوف قادة إيران" ويذكّرهم بمصير سليماني**: [Link](https://www.skynewsarabia.com/world/1899484-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D9%82%D8%A7%D8%AF%D8%A9-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%88%D9%8A%D8%B0%D9%83%D8%B1%D9%87%D9%85-%D8%A8%D9%85%D8%B5%D9%8A%D8%B1-%D8%B3%D9%84%D9%8A%D9%85%D8%A7%D9%86%D9%8A)
+
+
 ### نزار بركة (N/A, Tue, 20 Oct 2026 08:30:00 -0700)
 
 - **قبل واقعة الوزيرة المنتدبة خيير.. تعددت الأسباب والإعفاء الدستوري واحد**: [Link](https://www.hespress.com/%D9%82%D8%A8%D9%84-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%88%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AF%D8%A8%D8%A9-%D8%AE%D9%8A%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3-1825747.html)
