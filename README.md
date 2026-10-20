@@ -1,3 +1,31 @@
+### richard attias (N/A, Mon, 19 Oct 2026 16:10:00 -0700)
+
+- **Exclusif. MHE–Attias : créer de la richesse, sans transiger sur l’éthique**: [Link](https://medias24.com/2026/10/17/exclusif-mhe-attias-creer-de-la-richesse-sans-transiger-sur-lethique-1781203/)
+- **Mehdi Tazi présente les attentes du patronat au gouvernement El Mansouri**: [Link](https://ledesk.ma/2026/10/17/mehdi-tazi-presente-les-attentes-du-patronat-au-gouvernement-el-mansouri/)
+- **“Je veux des patrons riches, mais éthiques” : la leçon de MHE au patronat… et à l’État**: [Link](https://mobile.telquel.ma/2026/10/19/je-veux-des-patrons-riches-mais-ethiques-la-lecon-de-mhe-au-patronat-et-a-letat_2013687)
+
+
+### جمال السلامي (N/A, Mon, 19 Oct 2026 16:00:00 -0700)
+
+- **السلامي يعتذر لجماهير الفتح السعودي بعد الخسارة المؤلمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85%D9%8A-%D9%8A%D8%B9%D8%AA%D8%B0%D8%B1-%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D9%94%D9%84%D9%85%D8%A9/bltdf56184d799f7977)
+- **سلامي يشيد بصفقة تواركة و يعتذر للفتح السعودي**: [Link](https://ar.sport.le360.ma/football/2ULHYYTZNZAQPJXZU7O7ENH7CM/)
+- **الفتح يستضيف الخليج في افتتاحية الجولة العاشرة**: [Link](https://www.al-jazirah.com/2026/20261018/sp4.htm)
+
+
+### mauritanie (N/A, Mon, 19 Oct 2026 15:40:00 -0700)
+
+- **SÉRIE EP. 26 Pourquoi la Mauritanie veut fixer les frontières du Sahara avant tout accord**: [Link](https://ledesk.ma/datadesk/pourquoi-la-mauritanie-veut-fixer-les-frontieres-du-sahara-avant-tout-accord/)
+- **Lagouira. Un demi-siècle de statu quo bientôt remis en question ?**: [Link](https://medias24.com/2026/10/19/lagouira-un-demi-siecle-de-statu-quo-bientot-remis-en-question-1781377/)
+- **Entre Sahara et océan, la petite ville marocaine de Lagouira attise l’intérêt de la Mauritanie**: [Link](https://www.jeuneafrique.com/1852028/politique/entre-sahara-et-ocean-la-petite-ville-marocaine-de-lagouira-attise-linteret-de-la-mauritanie/)
+
+
+### المغرب ضد مصر (N/A, Mon, 19 Oct 2026 13:50:00 -0700)
+
+- **تشكيلة المنتخب الوطني لكرة القدم داخل القاعة امام مصر**: [Link](https://frmf.ma/articles/can-futsal-maroc-2026-demi-finale-composition-du-maroc-face-a-legypte)
+- **"أسود القاعة" يكتسحون مصر بسداسية ويبلغون نهائي كأس إفريقيا**: [Link](https://www.hespress.com/%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD%D9%88%D9%86-%D9%85%D8%B5%D8%B1-%D8%A8%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9-%D9%88%D9%8A%D8%A8%D9%84-1825850.html)
+- **سداسية في شباك مصر تؤهل أسود الفوتسال إلى نهائي كأس إفريقيا**: [Link](https://assabah.ma/956962.html)
+
+
 ### مدرسة (N/A, Mon, 19 Oct 2026 14:50:00 -0700)
 
 - **Oregon man who killed school shooter reportedly took part in military drills with Iraq veterans**: [Link](https://www.theguardian.com/us-news/2026/oct/19/oregon-school-shooter)
