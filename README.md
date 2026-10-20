@@ -1,3 +1,64 @@
+### هلال رمضان (N/A, Tue, 20 Oct 2026 04:00:00 -0700)
+
+- **أقرب مما تتصور.. الموعد الفلكي لشهر رمضان 2027 وعيد الفطر**: [Link](https://www.alarabiya.net/last-page/2026/10/20/%D8%A7%D9%82%D8%B1%D8%A8-%D9%85%D9%85%D8%A7-%D8%AA%D8%AA%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A-%D9%84%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2027-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-)
+- **رمضان 2027 | الاثنين 8 فبراير الموعد المتوقع لبداية شهر رمضان 1448 هـ**: [Link](https://www.arabiaweather.com/ar/content/%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2027-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-8-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-1448-%D9%87%D9%80)
+- **موعد شهر رمضان 2027 وأول أيام عيد الفطر فلكيا**: [Link](https://www.youm7.com/story/2026/10/20/%D9%85%D9%88%D8%B9%D8%AF-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2027-%D9%88%D8%A3%D9%88%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-%D9%81%D9%84%D9%83%D9%8A%D8%A7/7586856)
+
+
+### el niño (N/A, Tue, 20 Oct 2026 02:50:00 -0700)
+
+- **¿Es el episodio actual de El Niño un récord? Todo depende de cómo se mida**: [Link](https://www.rfi.fr/es/m%C3%A1s-noticias/20261019-es-el-episodio-actual-de-el-ni%C3%B1o-un-r%C3%A9cord-todo-depende-de-c%C3%B3mo-se-mida)
+- **Un especialista en Ciencias Ambientales explicó en detalle el impacto del fenómeno del “Súper Niño” y cuándo se intensificará en la Argentina**: [Link](https://www.lanacion.com.ar/sociedad/un-especialista-explico-en-detalle-el-impacto-del-fenomeno-del-super-nino-y-cuando-se-intensificara-nid20102026/)
+- **Clima. La Nasa sigue de cerca El Niño: las señales anticipan un impacto climático extremo**: [Link](https://www.laradio1029.com.ar/2026/10/20/clima-la-nasa-sigue-de-cerca-el-nino-las-senales-anticipan-un-impacto-climatico-extremo/)
+
+
+### موريتانيا (N/A, Tue, 20 Oct 2026 01:50:00 -0700)
+
+- **جون أفريك: هل تكون لكويرة موريتانية مقابل اعتراف نواكشوط بمغربية الصحراء؟**: [Link](https://www.alquds.co.uk/%D8%AC%D9%88%D9%86-%D8%A3%D9%81%D8%B1%D9%8A%D9%83-%D9%87%D9%84-%D8%AA%D9%83%D9%88%D9%86-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%B1%D8%A9-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81/)
+- **تقرير فرنسي يكشف كواليس اهتمام موريتاني بمدينة لكويرة المغربية**: [Link](https://rue20.com/1039112.html)
+- **لكويرة تشغلنا.. ونواذيبو تنتظر التنمية**: [Link](https://aqlame.com/node/44186)
+
+
+### إبراهيم دياز (N/A, Tue, 20 Oct 2026 01:30:00 -0700)
+
+- **أرسنال يخطط للتعاقد مع إبراهيم دياز**: [Link](https://www.hespress.com/%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%AE%D8%B7%D8%B7-%D9%84%D9%84%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-1825901.html)
+- **رغم جاهزيته وتألقه الدولي.. لماذا يصر مورينيو على إقصاء إبراهيم دياز؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%BA%D9%85-%D8%AC%D8%A7%D9%87%D8%B2%D9%8A%D8%AA%D9%87-%D9%88%D8%AA%D8%A7%D9%94%D9%84%D9%82%D9%87-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A--%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D8%B5%D8%B1-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B9%D9%84%D9%89-%D8%A7%D9%95%D9%82%D8%B5%D8%A7%D8%A1-%D8%A7%D9%95%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2/blt3201b7907f1c731f)
+- **اتحاد جدة يعرض 25 مليون أورو لضم إبراهيم**: [Link](https://www.almountakhab.com/node/16231822)
+
+
+### شرطة (N/A, Mon, 19 Oct 2026 23:50:00 -0700)
+
+- **إندونيسيا تنشر أكثر من 9 آلاف شرطي للتعامل مع احتجاجات**: [Link](https://www.reuters.com/ar/world/KW6P6HXRPNJABAEN7MUOV73D3M-2026-10-20/)
+- **ديمو 20 أكتوبر ، نشر ديشوب DKI 1000 فردا وأعدت مسارات بديلة**: [Link](https://voi.id/ar/news/599186)
+- **إندونيسيا تنشر آلاف العناصر الأمنية تزامناً مع احتجاجات طلابية في جاكرتا**: [Link](https://alquds.com/ar/posts/263282-indonesia-deploys-police-jakarta-protests)
+
+
+### اخبارنا (N/A, Mon, 19 Oct 2026 23:20:00 -0700)
+
+
+
+
+### باريس سان جيرمان (N/A, Mon, 19 Oct 2026 22:20:00 -0700)
+
+- **قبل الموقعة: برشلونة يذكر باريس بليلة مذلة.. ويعترف بحقيقة مؤلمة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B0%D9%83%D8%B1-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%A8%D9%84%D9%8A%D9%84%D8%A9-%D9%85%D8%B0%D9%84%D8%A9--%D9%88%D9%8A%D8%B9%D8%AA%D8%B1%D9%81-%D8%A8%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D9%85%D9%88%D9%94%D9%84%D9%85%D8%A9/blte6ea3def7474e59c)
+- **توب سبور - دوري أبطال أوروبا: برشلونة الإسباني يصطدم بسان جرمان الفرنسي**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D8%AA%D9%88%D8%A8-%D8%B3%D8%A8%D9%88%D8%B1/20261019-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A)
+- **إقامة مباراة سان جيرمان وبرشلونة في العصبة رغم الاضطرابات العنيفة في فرنسا**: [Link](https://www.hesport.com/%D8%A5%D9%82%D8%A7%D9%85%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84-458266.html)
+
+
+### الفجر (N/A, Mon, 19 Oct 2026 22:10:00 -0700)
+
+- **بريزبن تستطلع آراء السكان لإعداد خطة اقتصاد الفجر**: [Link](https://ozarab.media/%D8%A8%D8%B1%D9%8A%D8%B2%D8%A8%D9%86-%D8%AA%D8%B3%D8%AA%D8%B7%D9%84%D8%B9-%D8%A2%D8%B1%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D9%83%D8%A7%D9%86-%D9%84%D8%A5%D8%B9%D8%AF%D8%A7%D8%AF-%D8%AE%D8%B7%D8%A9-%D8%A7/)
+- **أقرب مما تتصور.. الموعد الفلكي لشهر رمضان 2027 وعيد الفطر**: [Link](https://www.alarabiya.net/last-page/2026/10/20/%D8%A7%D9%82%D8%B1%D8%A8-%D9%85%D9%85%D8%A7-%D8%AA%D8%AA%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A-%D9%84%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2027-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-)
+- **رمضان 2027 | الاثنين 8 فبراير الموعد المتوقع لبداية شهر رمضان 1448 هـ**: [Link](https://www.arabiaweather.com/ar/content/%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2027-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-8-%D9%81%D8%A8%D8%B1%D8%A7%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-1448-%D9%87%D9%80)
+
+
+### موعد اذان الفجر (N/A, Mon, 19 Oct 2026 22:10:00 -0700)
+
+- **أحدث أخبار مصر والعالم**: [Link](https://ekhbary24.com/article/22061)
+- **مواقيت الصلاة اليوم الثلاثاء 20 أكتوبر 2026 في القاهرة والمحافظات**: [Link](https://twaslnews1.twaslnews.com/6256135/)
+- **موعد صلاة اليوم الأحد 18 أكتوبر 2026 في مدينة أسوان**: [Link](https://akher.news/71605/%D9%85%D9%88%D8%B9%D8%AF-%D8%B5%D9%84%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-18-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026-%D9%81%D9%8A-%D9%85%D8%AF%D9%8A%D9%86%D8%A9/)
+
+
 ### richard attias (N/A, Mon, 19 Oct 2026 16:10:00 -0700)
 
 - **Exclusif. MHE–Attias : créer de la richesse, sans transiger sur l’éthique**: [Link](https://medias24.com/2026/10/17/exclusif-mhe-attias-creer-de-la-richesse-sans-transiger-sur-lethique-1781203/)
