@@ -1,3 +1,73 @@
+### porto (N/A, Tue, 20 Oct 2026 14:20:00 -0700)
+
+- **Farioli: «O jogo em que tivemos mais dificuldades»**: [Link](https://diadejogo.pt/noticias/farioli-o-jogo-em-que-tivemos-mais-dificuldades-2026-10-20)
+- **PSV vence Porto por 1 a 0: Geertruida brilha na Champions League**: [Link](https://www.sofascore.com/pt/news/psv-vence-o-porto-por-1-a-0-com-destaque-para-geertruida-na-ucl)
+- **Diogo Costa triste com derrota do FC Porto: "Falta discernimento"**: [Link](https://www.noticiasaominuto.com/desporto/3070153/diogo-costa-triste-com-derrota-do-fc-porto-falta-discernimento)
+
+
+### classement manchester city – aek athènes (N/A, Tue, 20 Oct 2026 14:10:00 -0700)
+
+- **Manchester City 5-1 AEK Athènes, Ligue des champions : Triplé de Foden, Cherki brille, City lamine l'AEK**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/manchester-city-aek-athenes-live/702057)
+- **3e journée de Ligue des champions : Suivez Manchester City-AEK Athènes EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/live-manchester-city-aek-athenes-fc_mtc21878529/live-commentary.shtml)
+- **PRONOS PARIS RMC Le buteur du jour du 20 octobre – Ligue des Champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-20-octobre-ligue-des-champions_AN-202610190592.html)
+
+
+### fabián ruiz (N/A, Tue, 20 Oct 2026 14:10:00 -0700)
+
+- **¿Qué tiene que hacer Fabián para ganar un Balón de Oro?**: [Link](https://www.marca.com/futbol/champions-league/2026/10/20/fabian-ganar-balon-oro.html)
+- **Fabián Ruiz: "No nos sentimos superiores a ningún rival; solo confiamos en el equipo"**: [Link](https://www.infobae.com/espana/agencias/2026/10/20/fabian-ruiz-no-nos-sentimos-superiores-a-ningun-rival-solo-confiamos-en-el-equipo/)
+- **Entrevista con Fabián Ruiz: la importancia de su madre, el objetivo en la Champions League y Ferran Torres**: [Link](https://es.uefa.com/uefachampionsleague/news/02aa-21cf0ff7fb70-f1526bc62b62-1000--entrevista-con-fabian-ruiz-la-importancia-de-su-madre-el-ob/)
+
+
+### napoli (N/A, Tue, 20 Oct 2026 14:10:00 -0700)
+
+- **Napoli-Bodo Glimt, Allegri: "Dietro siamo fragili. De Bruyne, da play si divertirà"**: [Link](https://sport.sky.it/calcio/champions-league/2026/10/20/napoli-bodo-glimt-allegri-intervista-video)
+- **Quanto è mancato McTominay là davanti**: [Link](https://www.ilnapolista.it/2026/10/quanto-e-mancato-mctominay-la-davanti/)
+- **Allegri: "Serve pazienza, non possiamo prendere questi gol"**: [Link](https://www.corrieredellosport.it/news/calcio/serie-a/napoli/2026/10/20-152029157/allegri_serve_pazienza_non_possiamo_prendere_questi_gol)
+
+
+### achraf hakimi (N/A, Tue, 20 Oct 2026 14:00:00 -0700)
+
+- **Hakimi iguala la gesta de Mohamed Salah y se acerca a un trono histórico**: [Link](https://es-us.noticias.yahoo.com/deportes/hakimi-iguala-gesta-mohamed-salah-213158108.html)
+- **PSG 4-2 Barcelona: resumen, goles y resultado**: [Link](https://as.com/futbol/champions/psg-barcelona-hoy-en-directo-fase-liga-de-champions-league-ultima-hora-en-vivo-f202610-d/)
+- **PSG - FC Barcelona: resumen, resultado y goles del partido de Champions League 2026-27**: [Link](https://www.sport.es/es/noticias/barca/psg-barcelona-directo-hoy-partido-135549240)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Tue, 20 Oct 2026 14:00:00 -0700)
+
+- **إحصائيات دوري الأبطال: ريال مدريد الملك التاريخي للريمونتادا.. وبرشلونة وصيفًا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D8%AD%D8%B5%D8%A7%D9%8A%D9%94%D9%8A%D8%A7%D8%AA-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D8%B1%D9%8A%D9%85%D9%88%D9%86%D8%AA%D8%A7%D8%AF%D8%A7--%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B5%D9%8A%D9%81%D9%8B%D8%A7/bltad49516b72253ca0)
+- **دوري أبطال أوروبا يهتز بمفاجآت مدوية وريمونتادا وإعصار!**: [Link](https://www.alquds.co.uk/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%8A%D9%87%D8%AA%D8%B2-%D8%A8%D9%85%D9%81%D8%A7%D8%AC%D8%A2%D8%AA-%D9%85%D8%AF%D9%88%D9%8A%D8%A9-%D9%88/)
+- **46 هدفا في ليلة واحدة.. دوري أبطال أوروبا يحطم رقمه القياسي التاريخي**: [Link](https://www.aljazeera.net/sport/2026/10/15/%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A)
+
+
+### city (N/A, Tue, 20 Oct 2026 14:00:00 -0700)
+
+- **Toulouse to Ho Chi Minh City: Five fast-rising cities that should be on travellers' radars right now**: [Link](https://www.bbc.com/travel/article/20261015-the-worlds-top-cities-to-watch-in-2026)
+- **Live Gloucester City vs Barrow Commentary, Match Updates & Streaming**: [Link](https://dave.sport/live/gloucester-city-vs-barrow-live-stream-live-updates/)
+- **Match Report: Gloucester City AFC 0-2 Barrow AFC**: [Link](https://www.barrowafc.com/post/match-report-gloucester-city-afc-0-0-barrow-afc)
+
+
+### barca vs real (N/A, Tue, 20 Oct 2026 13:50:00 -0700)
+
+- **Lamine Yamal and Kylian Mbappé to Take Center Stage in El Clásico With Up to 40 Cameras Tracking Them**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/lamine-yamal-and-kylian-mbapp%C3%A9-to-take-center-stage-in-el-cl%C3%A1sico-with-up-to-40-cameras-tracking-them-2026-10-20)
+- **La Liga përgatit spektakël të stilit të Hollywoodit për El Clasico, prodhim rekord televiziv**: [Link](https://www.reporteri.net/en/sport/La-Liga-prepares-Hollywood-style-spectacle-for-El-Clasico--record-breaking-TV-production/)
+- **No place to hide in El Clasico: 40 cameras tracking Yamal and Mbappe 24 hours before the Ballon d'Or ceremony**: [Link](https://www.goal.com/en/news/no-place-to-hide-in-el-clasico-40-cameras-tracking-yamal-and-mbappe-24-hours-before-the-ballon-d-or-ceremony/blte0f7eee7ed9ccc08)
+
+
+### إحصاءات باريس سان جيرمان – نادي برشلونة (N/A, Tue, 20 Oct 2026 13:50:00 -0700)
+
+- **Liverpool 4-3 Villarreal (Oct 20, 2026) Player Stats**: [Link](https://www.espn.com/soccer/player-stats/_/gameId/401915397)
+- **Pistons' Jalen Duren: Tallies 14 points vs. Toronto**: [Link](https://www.cbssports.com/fantasy/basketball/news/pistons-jalen-duren-tallies-14-points-vs-toronto/)
+- **PSG 4-2 Barcelona (Oct 20, 2026) Player Stats**: [Link](https://www.espn.com/soccer/player-stats/_/gameId/401915399)
+
+
+### live score (N/A, Tue, 20 Oct 2026 13:50:00 -0700)
+
+- **🏀Live updates: Knicks launch NBA title defense tonight with 76ers season opener**: [Link](https://www.nbcnewyork.com/news/sports/live-knicks-updates-opening-nba-game-msg-philadelphia-76ers/6561058/)
+- **'2026-27 Champions Night?' Knicks championship celebration shirts raise eyebrows**: [Link](https://www.usatoday.com/story/sports/nba/knicks/2026/10/20/knicks-championship-celebration-shirts-2026-27-champions-night/92352324007/)
+- **How the Knicks celebrated their long-awaited championship in the offseason**: [Link](https://www.espn.com/nba/story/_/id/50221526/how-new-york-knicks-celebrated-championship-offseason)
+
+
 ### yalla (N/A, Tue, 20 Oct 2026 12:30:00 -0700)
 
 - **Did Yalla Group's Fall Catch You Out? What Investors Missed**: [Link](https://simplywall.st/stocks/us/media/nyse-yala/yalla-group/news/did-yalla-groups-fall-catch-you-out-what-investors-missed)
