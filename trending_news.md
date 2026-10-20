@@ -1,3 +1,71 @@
+### نزار بركة (N/A, Tue, 20 Oct 2026 08:30:00 -0700)
+
+- **قبل واقعة الوزيرة المنتدبة خيير.. تعددت الأسباب والإعفاء الدستوري واحد**: [Link](https://www.hespress.com/%D9%82%D8%A8%D9%84-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D9%88%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AF%D8%A8%D8%A9-%D8%AE%D9%8A%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3-1825747.html)
+- **"حكومة السوابق"**: [Link](https://ar.telquel.ma/%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D8%A7%D8%A8%D9%82/)
+- **مباشرة بعد إعفائها… الاستقلال يستبدل مديحة خيير برحال المكاوي على رأس فريقه النيابي – اليوم 24**: [Link](https://alyaoum24.com/2051508.html)
+
+
+### essence (N/A, Tue, 20 Oct 2026 07:40:00 -0700)
+
+- **Essence “Kpayor“ ‎Les prix grimpent, les usagers s’inquiètent !**: [Link](https://matinlibre.com/2026/10/20/essence-kpayor-les-prix-grimpent-les-usagers-sinquietent/)
+- **Bénin : les réserves de carburant peuvent couvrir 3 à 6 mois, selon Léandre Houngbédji**: [Link](https://lanouvelletribune.info/2026/10/benin-les-reserves-de-carburant-peuvent-couvrir-3-a-6-mois-selon-leandre-houngbedji/)
+- **Le gouvernement béninois affiche la fermeté à l’égard des distributeurs de produits pétroliers et gestionnaires de stations-service**: [Link](https://www.afrique7.com/economie/30255-le-gouvernement-beninois-affiche-la-fermete-a-legard-des-distributeurs-de-produits-petroliers-et-gestionnaires-de-stations-service.html)
+
+
+### نواكشوط (N/A, Tue, 20 Oct 2026 06:50:00 -0700)
+
+- **جون أفريك: هل تكون لكويرة موريتانية مقابل اعتراف نواكشوط بمغربية الصحراء؟**: [Link](https://www.alquds.co.uk/%D8%AC%D9%88%D9%86-%D8%A3%D9%81%D8%B1%D9%8A%D9%83-%D9%87%D9%84-%D8%AA%D9%83%D9%88%D9%86-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%B1%D8%A9-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81/)
+- **المغرب وموريتانيا.. "لكويرة" تعود إلى الواجهة وسط نقاشات ترسيم الحدود**: [Link](https://arabi21.com/story/1797235/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A%D8%A7-%D9%84%D9%83%D9%88%D9%8A%D8%B1%D8%A9-%D8%AA%D8%B9%D9%88%D8%AF-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%88%D8%B3%D8%B7-%D9%86%D9%82%D8%A7%D8%B4%D8%A7%D8%AA-%D8%AA%D8%B1%D8%B3%D9%8A%D9%85-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF)
+- **تقرير فرنسي يكشف كواليس اهتمام موريتاني بمدينة لكويرة المغربية**: [Link](https://rue20.com/1039112.html)
+
+
+### dette (N/A, Tue, 20 Oct 2026 06:50:00 -0700)
+
+
+
+
+### ballon d'or (N/A, Tue, 20 Oct 2026 06:30:00 -0700)
+
+- **A curious Ballon d’Or poll reignites Messi-Ronaldo rivalry**: [Link](https://www.thedailystar.net/sports/football/news/curious-ballon-dor-poll-reignites-messi-ronaldo-rivalry-4302296)
+- **Ballon d'Or: Cristiano Ronaldo is leading - Organisers confirm amid voting**: [Link](https://dailypost.ng/2026/10/20/ballon-dor-cristiano-ronaldo-is-leading-organisers-confirm-amid-voting/)
+- **Cristiano Ronaldo leads Ballon d’Or of All Time (B.O.A.T.) fan vote by a landslide ahead of Messi and 10**: [Link](https://timesofindia.indiatimes.com/sports/football/top-stories/cristiano-ronaldo-leads-ballon-dor-of-all-time-b-o-a-t-fan-vote-by-a-landslide-ahead-of-messi-and-10-other-winners/articleshow/135047386.cms)
+
+
+### aziz akhannouch (N/A, Tue, 20 Oct 2026 05:40:00 -0700)
+
+- **Programme gouvernemental. L'empreinte du PAM domine, mais plusieurs engagements restent sans précision**: [Link](https://medias24.com/2026/10/19/programme-gouvernemental-lempreinte-du-pam-domine-1781698/)
+- **Aides sociales à 1 000 DH, retraites à 3 000 DH… Les grandes promesses d’El Mansouri**: [Link](https://mobile.telquel.ma/2026/10/19/aides-sociales-a-1-000-dh-retraites-a-3-000-dh-les-grandes-promesses-del-mansouri_2013809)
+- **n°1307. Le déficit promis par El Mansouri exige un effort bien plus lourd qu’affiché**: [Link](https://ledesk.ma/enclair/le-deficit-promis-par-el-mansouri-exige-un-effort-bien-plus-lourd-quaffiche/)
+
+
+### psg vs barcelona (N/A, Tue, 20 Oct 2026 04:50:00 -0700)
+
+- **PSG - Barcelona hoy, en directo: previa y última hora de la Champions League, en vivo**: [Link](https://as.com/futbol/champions/psg-barcelona-hoy-en-directo-fase-liga-de-champions-league-ultima-hora-en-vivo-f202610-d/)
+- **Las incógnitas de Flick para derrocar al campeón**: [Link](https://www.sport.es/es/noticias/barca/incognitas-flick-derrocar-campeon-135517219)
+- **Rol de la tercera jornada de la Liga de Campeones y clasificación**: [Link](https://larazon.bo/marcas/2026/10/20/rol-de-la-tercera-jornada-de-la-liga-de-campeones-y-clasificacion/)
+
+
+### revolut (N/A, Tue, 20 Oct 2026 04:20:00 -0700)
+
+- **Google Cloud outage in UK eases after impacting digital banks, public sector websites**: [Link](https://www.reuters.com/world/europe/google-cloud-services-experience-outage-europe-2026-10-20/)
+- **Google Reports Cloud Disruptions in Europe**: [Link](https://www.nytimes.com/2026/10/20/technology/google-cloud-down-outage-europe.html)
+- **Google Cloud services face outage in London, Revolut services down too**: [Link](https://www.cnn.com/2026/10/20/europe/google-cloud-outage-london-revolut-intl)
+
+
+### espagne (N/A, Tue, 20 Oct 2026 04:20:00 -0700)
+
+- **Immobilier Espagne : acheter à Málaga coûte 10 ans de revenus**: [Link](https://www.lerevenu.com/investir-immobilier/prix-et-tendances/immobilier-en-espagne-acheter-a-malaga-coute-10-an/)
+- **Le parc locatif perdra 7.705 appartements en 2026 et descendra à 676.215 logements disponibles.**: [Link](https://www.democrata.es/fr/economie/le-parc-locatif-perdra-7-705-appartements-en-2026-et-descendra-a-676-215-logements-disponibles/)
+- **Acheter ou louer en Espagne en 2026 : le vrai coût dans six grandes villes**: [Link](https://lepetitjournal.com/barcelone/logement/acheter-ou-louer-espagne-2026-prix-credit-apport-six-villes-456625)
+
+
+### الخبر (N/A, Tue, 20 Oct 2026 04:10:00 -0700)
+
+- **Transfer rumors, news: Barcelona, Liverpool, Real Madrid eye Jeltsch**: [Link](https://www.espn.com/soccer/story/_/id/50216552/transfer-rumors-news-galatasaray-eye-move-man-united-star-bruno-fernandes)
+- **Bruno Fernandes following in Mohamed Salah's footsteps as Man United exit edges closer**: [Link](https://sports.yahoo.com/articles/bruno-fernandes-following-mohamed-salahs-140000025.html)
+- **Transfer Rumors: Barcelona Eye Wantaway Fernandes; Liverpool’s $157 Million Wirtz Replacement**: [Link](https://www.si.com/soccer/transfer-rumors-barcelona-wantaway-fernandes-liverpool-wirtz-replacement)
+
+
 ### هلال رمضان (N/A, Tue, 20 Oct 2026 04:00:00 -0700)
 
 - **أقرب مما تتصور.. الموعد الفلكي لشهر رمضان 2027 وعيد الفطر**: [Link](https://www.alarabiya.net/last-page/2026/10/20/%D8%A7%D9%82%D8%B1%D8%A8-%D9%85%D9%85%D8%A7-%D8%AA%D8%AA%D8%B5%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%81%D9%84%D9%83%D9%8A-%D9%84%D8%B4%D9%87%D8%B1-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-2027-%D9%88%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%81%D8%B7%D8%B1-)
