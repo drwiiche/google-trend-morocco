@@ -1,3 +1,17 @@
+### رمضان 2027 (N/A, Tue, 20 Oct 2026 17:40:00 -0700)
+
+- **محمد رمضان يوجه رسالة قوية لمنافسيه في موسم الدراما**: [Link](https://www.emiratesvoice.com/103/175451-%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A%D9%87-%D9%81%D9%8A-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%85%D8%A7)
+- **بعيدا عن الكوميديا.. إسعاد يونس تقدم دور الأم البسيطة في مسلسل «عشماوي» بطولة محمد رمضان 2027**: [Link](https://www.khabrabyad.com/49348)
+- **منشورات غامضة بين رمضان والعوضي.. بشخصيات "عشماوي والديب"**: [Link](https://www.alarabiya.net/amp/culture-and-art/2026/10/18/%D9%85%D9%86%D8%B4%D9%88%D8%B1%D8%A7%D8%AA-%D8%BA%D8%A7%D9%85%D8%B6%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D8%B9%D9%88%D8%B6%D9%8A-%D8%A8%D8%B4%D8%AE%D8%B5%D9%8A%D8%A7%D8%AA-%D8%B9%D8%B4%D9%85%D8%A7%D9%88%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D9%8A%D8%A8)
+
+
+### posiciones de psg contra fc barcelona (N/A, Tue, 20 Oct 2026 15:10:00 -0700)
+
+- **Así está la Clasificación de la Champions League: PSG y Liverpool, líderes tras ganar al Barça y Villarreal**: [Link](https://www.marca.com/futbol/champions-league/2026/10/20/clasificacion-champions-league-directo-barca-psg-juegan-liderato.html)
+- **Resultados de fútbol de hoy, 21 de octubre: Dramático partido entre el PSG y el Barça, el Liverpool se lleva una gran victoria.**: [Link](https://www.vietnam.vn/es/ket-qua-bong-da-hom-nay-21-10-kich-tinh-psg-vs-barca-liverpool-thang-to)
+- **Liga de Campeones de la UEFA 2026: todos los resultados de la tercera fecha y los goles argentinos**: [Link](https://www.sitioandino.com.ar/andino-sports/liga-campeones-la-uefa-2026-todos-los-resultados-la-tercera-fecha-y-los-goles-argentinos-n5732292)
+
+
 ### rima hassan (N/A, Tue, 20 Oct 2026 17:30:00 -0700)
 
 - **Procès de Rima Hassan pour apologie du terrorisme : prison avec sursis et inéligibilité requises contre l’eurodéputée de LFI**: [Link](https://www.lemonde.fr/societe/article/2026/10/20/proces-pour-apologie-du-terrorisme-de-rima-hassan-prison-avec-sursis-et-ineligibilite-requises-contre-l-eurodeputee-lfi_6797936_3224.html)
