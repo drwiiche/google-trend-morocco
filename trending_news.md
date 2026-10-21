@@ -1,3 +1,31 @@
+### rima hassan (N/A, Tue, 20 Oct 2026 17:30:00 -0700)
+
+- **Procès de Rima Hassan pour apologie du terrorisme : prison avec sursis et inéligibilité requises contre l’eurodéputée de LFI**: [Link](https://www.lemonde.fr/societe/article/2026/10/20/proces-pour-apologie-du-terrorisme-de-rima-hassan-prison-avec-sursis-et-ineligibilite-requises-contre-l-eurodeputee-lfi_6797936_3224.html)
+- **"Je demande au tribunal de rappeler les valeurs républicaines" : deux ans d’inéligibilité requis contre Rima Hassan**: [Link](https://www.marianne.net/societe/police-et-justice/je-demande-au-tribunal-de-rappeler-les-valeurs-republicaines-deux-ans-d-ineligibilite-requis-contre-rima-hassan)
+- **«Accusations d’antisémitisme», invectives, suspensions d’audience… Première journée mouvementée au procès de Rima Hassan pour apologie du terrorisme**: [Link](https://www.lefigaro.fr/actualite-france/accusations-d-antisemitisme-invectives-suspensions-d-audience-premiere-journee-mouvementee-au-proces-de-rima-hassan-pour-apologie-du-terrorisme-20261019)
+
+
+### remboursement (N/A, Tue, 20 Oct 2026 14:30:00 -0700)
+
+- **Mt. Gox repousse à 2027 l’échéance du remboursement des créanciers pour la sixième fois**: [Link](https://fr.tradingview.com/news/cointelegraph:0ef1e409eb858:0/)
+- **Bitcoin : Mt. Gox repousse à 2027 le remboursement de ses créanciers**: [Link](https://journalducoin.com/exchanges/bitcoin-mt-gox-repousse-2027-remboursement/)
+- **Mt. Gox reporte encore l’échéance, jusqu’à quand ?**: [Link](https://www.cointribune.com/crypto-mt-gox-repousse-encore-ses-remboursements-a-2027/)
+
+
+### classement champions league (N/A, Tue, 20 Oct 2026 14:30:00 -0700)
+
+- **Ligue des champions 2026/27 : Erling Haaland, Nicolò Tresoldi... qui est le meilleur buteur ?**: [Link](https://www.dazn.com/fr-FR/news/football/ligue-des-champions-202627-erling-haaland-ferran-torres-qui-est-le-meilleur-buteur/2p6tx5gz0mea15xdcenp98c3u)
+- **Ligue des champions : Haaland n’est plus seul en tête au classement des buteurs**: [Link](https://www.lefigaro.fr/sports/football/ligue-des-champions/ligue-des-champions-haaland-n-est-plus-seul-au-classement-des-buteurs-20261020)
+- **Ligue des Champions : Haaland, Jackson... Le classement des meilleurs buteurs après 2 journées**: [Link](https://foot-africa.com/actualites/ligue-des-champions-haaland-jackson-le-classement-des-meilleurs-buteurs-apres-2-journees-1387679/)
+
+
+### نتائج مباريات اليوم (N/A, Tue, 20 Oct 2026 14:00:00 -0700)
+
+- **"لبؤات أقل من 17 سنة" ينهزمن برباعية أمام ألمانيا في "المونديال"**: [Link](https://www.hespress.com/%D9%84%D8%A8%D8%A4%D8%A7%D8%AA-%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D9%86%D9%87%D8%B2%D9%85%D9%86-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3-1826337.html)
+- **تصريحات لاعبات المنتخب الوطني النسوي لاقل من 17 سنة بعد مواجهة المانيا**: [Link](https://frmf.ma/articles/17-21)
+- **الرباط تحتضن المرحلة التمهيدية من الملحق المؤهل لكأس العالم للسيدات 2027 بمشاركة ستة منتخبات – اليوم 24**: [Link](https://alyaoum24.com/2051717.html)
+
+
 ### porto (N/A, Tue, 20 Oct 2026 14:20:00 -0700)
 
 - **Farioli: «O jogo em que tivemos mais dificuldades»**: [Link](https://diadejogo.pt/noticias/farioli-o-jogo-em-que-tivemos-mais-dificuldades-2026-10-20)
