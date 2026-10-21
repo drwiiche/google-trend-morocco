@@ -1,3 +1,71 @@
+### loto (N/A, Wed, 21 Oct 2026 14:50:00 -0700)
+
+
+
+
+### foot salle (N/A, Wed, 21 Oct 2026 14:50:00 -0700)
+
+- **Programme du soir : un classique du futsal avec Ruban Noir**: [Link](https://www.franceguyane.fr/actualite/sports/programme-du-soir-un-classique-du-futsal-avec-ruban-noir-1097082.php)
+- **« Retrouver une âme associative » : l’arrivée d’un nouveau directeur sportif donne de l’élan au club de futsal**: [Link](https://www.leprogres.fr/societe/2026/10/21/retrouver-une-ame-associative-l-arrivee-d-un-nouveau-directeur-sportif-donne-de-l-elan-au-club-de-futsal)
+- **CAN futsal 2026 (finale) composition du Maroc face à l'Angola**: [Link](https://frmf.ma/fr/articles/can-futsal-2026-finale-composition-du-maroc-face-a-langola)
+
+
+### cameroun (N/A, Wed, 21 Oct 2026 14:40:00 -0700)
+
+- **Classement féminin FIFA : le Maroc toujours à la 64e place mondiale**: [Link](https://mobile.telquel.ma/instant-t/2026/10/20/classement-feminin-fifa-le-maroc-toujours-a-la-64e-place-mondiale_2013949/)
+- **Classement FIFA féminin : les Lionnes de l’Atlas stagnent à la 64e place mondiale**: [Link](https://fr.hespress.com/493223-classement-fifa-feminin-les-lionnes-de-latlas-stagnent-a-la-64e-place-mondiale.html)
+- **Le Cameroun élimine le Maroc à la CAN, puis lui passe devant au classement FIFA**: [Link](https://www.bladi.net/cameroun-elimine-maroc-coupe-afrique-nations-puis-passe-devant-classement-fifa,124504.html)
+
+
+### php2shell (N/A, Wed, 21 Oct 2026 14:30:00 -0700)
+
+- **Patch the Planet: global response coordination as agents uncover critical vulnerabilities**: [Link](https://openai.com/index/coordinated-disclosure-of-critical-vulnerabilities/)
+- **Critical security issue affecting PHP**: [Link](https://www.ncsc.gov.uk/news/critical-security-issue-affecting-php)
+- **PHP2Shell: AI uncovers critical RCE vulnerabilities affecting 70% of the Internet**: [Link](https://www.wiz.io/blog/php2shell-php-rce)
+
+
+### classement real madrid – rb leipzig (N/A, Wed, 21 Oct 2026 14:10:00 -0700)
+
+- **Mbappé buteur, le Real déroule avant le Clasico**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/ligue-des-champions-i-kylian-mbappe-buteur-le-real-madrid-deroule-face-a-leipzig-avant-le-clasico_sto23347983/story.shtml)
+- **Real Madrid-Leipzig: Mbappé régale, les Madrilènes préparent bien le Clasico**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-real-madrid-leipzig-suivez-le-match-de-la-3e-journee-de-ligue-des-champions-en-live_LS-202610210729.html)
+- **Ligue des champions: le Real Madrid s'offre une large victoire face à Leipzig**: [Link](https://fr.hespress.com/493481-ligue-des-champions-le-real-madrid-soffre-une-large-victoire-face-a-leipzig.html)
+
+
+### classement bayern munich – arsenal (N/A, Wed, 21 Oct 2026 14:10:00 -0700)
+
+- **Bayern Munich 2-2 Arsenal, Ligue des champions : Arsenal gâche la fête bavaroise !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/bayern-munich-arsenal-live/702065)
+- **PRONOS PARIS RMC Le buteur du jour du 21 octobre - Ligue des Champions**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-21-octobre-ligue-des-champions_AN-202610200563.html)
+- **Bayern Munich - Arsenal : les notes du match**: [Link](https://www.footmercato.net/a5850782242564808192-bayern-munich-arsenal-les-notes-du-match)
+
+
+### angola (N/A, Wed, 21 Oct 2026 14:10:00 -0700)
+
+- **Angola regista dois novos casos de Mpox no Moxico**: [Link](https://www.jornaldeangola.ao/noticias/0/%20/687923/angola-regista-dois-novos-casos-de-mpox-no-moxico)
+- **Cabinda assinala sete novos casos de Mpox nas últimas 24 horas**: [Link](https://www.novojornal.co.ao/sociedade/detalhe/cabinda-assinala-sete-novos-casos-de-mpox-nas-ultimas-24-horas-75463.html)
+- **Angola regista 7 novos casos de Mox nas últimas 24 horas**: [Link](https://rna.ao/rna.ao/2026/10/19/angola-regista-7-novos-casos-de-mox-nas-ultimas-24-horas/)
+
+
+### brahim díaz (N/A, Wed, 21 Oct 2026 14:00:00 -0700)
+
+- **Arsenal Reportedly Prepare €60 Million Bid for Real Madrid’s Brahim Díaz**: [Link](https://www.moroccoworldnews.com/2026/10/343183/arsenal-reportedly-prepare-e60-million-bid-for-real-madrids-brahim-diaz/)
+- **Arsenal handed €60m transfer opportunity as Real Madrid star grows frustrated**: [Link](https://www.yardbarker.com/soccer/articles/arsenal_handed_60m_transfer_opportunity_as_real_madrid_star_grows_frustrated/s1_15953_44449275)
+- **Licensable picture: Soccer 2026: Real Madrid CF Vs RB Leizpig**: [Link](https://www.reutersconnect.com/item/soccer-2026-real-madrid-cf-vs-rb-leizpig/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDAxUjVPVFU)
+
+
+### classement champions league (N/A, Wed, 21 Oct 2026 14:00:00 -0700)
+
+- **Ligue des Champions : le classement après la 3e journée**: [Link](https://www.footmercato.net/a6974794865454368751-ligue-des-champions-le-classement-apres-la-3e-journee)
+- **Man. City FACILE, Dortmund a SOUFFERT, Naples gagne ENFIN… le tour d’Europe de l’After !**: [Link](https://rmcsport.bfmtv.com/replay-emissions/after-foot/video-man-city-facile-dortmund-a-souffert-naples-gagne-enfin-le-tour-d-europe-de-l-after_VN-202610200944.html)
+- **Ligue des champions : quel canal CANAL+ choisir pour votre match ce mercredi soir ?**: [Link](https://www.football365.fr/ligue-champions-quel-canal-canal-plus-mercredi-21-octobre-10322667.html)
+
+
+### ريال بيتيس (N/A, Wed, 21 Oct 2026 14:00:00 -0700)
+
+- **الزلزولي أسقط ترغالين في مباراة شهدت تألقهما**: [Link](https://www.almountakhab.com/node/16231898)
+- **ريال بيتيس يهزم فينورد ويعمّق جراحه في دوري أبطال أوروبا**: [Link](https://twaslnews1.twaslnews.com/6379031/)
+- **دوري أبطال أوروبا، ريال بيتيس يخطف فوزا هاما أمام فاينورد في الجولة الثالثة**: [Link](https://www.vetogate.com/5755055)
+
+
 ### yalla kora (N/A, Wed, 21 Oct 2026 12:20:00 -0700)
 
 - **ببصمة مغربية مزدوجة.. الأهلي المصري يخرج بأخف الضررين أمام القناة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AE%D8%B1%D8%AC-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A8%D8%A7%D9%94%D8%AE%D9%81-%D8%A7%D9%84%D8%B6%D8%B1%D8%B1%D9%8A%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9/blt9884f53468d4c8ca)
