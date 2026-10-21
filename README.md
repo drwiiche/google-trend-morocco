@@ -1,3 +1,52 @@
+### ريو فرديناند (N/A, Wed, 21 Oct 2026 02:20:00 -0700)
+
+- **فرديناند يتحسّر على عدم ضم بوعدي**: [Link](https://www.hespress.com/%D9%81%D8%B1%D8%AF%D9%8A%D9%86%D8%A7%D9%86%D8%AF-%D9%8A%D8%AA%D8%AD%D8%B3%D9%91%D8%B1-%D8%B9%D9%84%D9%89-%D8%B9%D8%AF%D9%85-%D8%B6%D9%85-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-1826334.html)
+- **"لاعب رائع".. ماريسكا يشيد ببوعدي بعد تألقه مع مانشستر سيتي**: [Link](https://barlamane.com/%D9%84%D8%A7%D8%B9%D8%A8-%D8%B1%D8%A7%D8%A6%D8%B9-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D9%8A%D8%B4%D9%8A%D8%AF-%D8%A8%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%A3%D9%84/)
+- **ريو فرديناند يتحسر على ضياع أيوب بوعدي من مانشستر يونايتد**: [Link](https://radiomars.ma/%D8%B1%D9%8A%D9%88-%D9%81%D8%B1%D8%AF%D9%8A%D9%86%D8%A7%D9%86%D8%AF-%D9%8A%D8%AA%D8%AD%D8%B3%D8%B1-%D8%B9%D9%84%D9%89-%D8%B6%D9%8A%D8%A7%D8%B9-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A/)
+
+
+### درعة تافيلالت (N/A, Wed, 21 Oct 2026 01:10:00 -0700)
+
+- **أمطار الخير تتحول إلى "شر" في درعة**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D9%8A%D8%B1-%D8%AA%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%B4%D8%B1-%D9%81%D9%8A-%D8%AF%D8%B1%D8%B9%D8%A9-1826287.html)
+- **السيول تقطع الطريق بين زاكورة وتنغير وتُحاصر عشرات السيارات والشاحنات**: [Link](https://barlamane.com/%D8%A7%D9%84%D8%B3%D9%8A%D9%88%D9%84-%D8%AA%D9%82%D8%B7%D8%B9-%D8%A7%D9%84%D8%B7%D8%B1%D9%8A%D9%82-%D8%A8%D9%8A%D9%86-%D8%B2%D8%A7%D9%83%D9%88%D8%B1%D8%A9-%D9%88%D8%AA%D9%86%D8%BA%D9%8A%D8%B1-%D9%88/)
+- **تساقطات مطرية مهمة تنعش المؤشرات الفلاحية والمائية بدرعة-تافيلالت**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AA%D8%B3%D8%A7%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D9%87%D9%85%D8%A9-%D8%AA%D9%86%D8%B9%D8%B4-%D8%A7%D9%84%D9%85%D8%A4%D8%B4%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D9%84-1026692.html)
+
+
+### هسبريس (N/A, Wed, 21 Oct 2026 00:50:00 -0700)
+
+- **مصرع 4 أشخاص وإصابة 22 آخرين في انقلاب حافلة بإقليم زاكورة**: [Link](https://www.hespress.com/%D9%85%D8%B5%D8%B1%D8%B9-4-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-%D9%88%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-22-%D8%A2%D8%AE%D8%B1%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%AD%D8%A7%D9%81-1826420.html)
+- **فاجعة فزاكورة.. كار عامر بالمسافرين تقلب وخلا 4 ديال القتلى وعدد ديال الجرحى**: [Link](https://www.goud.ma/%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D9%81%D8%B2%D8%A7%D9%83%D9%88%D8%B1%D8%A9-%D9%83%D8%A7%D8%B1-%D8%B9%D8%A7%D9%85%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D9%81%D8%B1%D9%8A%D9%86-%D8%AA%D9%82%D9%84-1048587/)
+- **فاجعة بزاكورة.. انقلاب حافلة قادمة من مراكش يخلف 4 وفيات وأكثر من 22 مصاباً**: [Link](https://agadir24.info/%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D8%A8%D8%B2%D8%A7%D9%83%D9%88%D8%B1%D8%A9-%D8%A7%D9%86%D9%82%D9%84%D8%A7%D8%A8-%D8%AD%D8%A7%D9%81%D9%84%D8%A9-%D9%82%D8%A7%D8%AF%D9%85%D8%A9-%D9%85%D9%86-%D9%85%D8%B1.html)
+
+
+### isabelle saporta (N/A, Wed, 21 Oct 2026 00:00:00 -0700)
+
+- **Sur LCI, la chroniqueuse Isabelle Saporta suspendue d’antenne après son clash avec Prisca Thevenot**: [Link](https://www.telerama.fr/television/lci-la-chroniqueuse-isabelle-saporta-suspendue-d-antenne-apres-son-clash-avec-prisca-thevenot-7033452.php)
+- **Isabelle Saporta mise à pied après son altercation avec Prisca Thevenot sur LCI**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/isabelle-saporta-mise-a-pied-apres-son-altercation-avec-prisca-thevenot-sur-lci-20261020)
+- **"On ne peut pas attendre six mois et la présidentielle" : les députés Renaissance se lâchent contre Emmanuel Macron et le gouvernement après les violences du 17 octobre**: [Link](https://www.rtl.fr/actu/politique/on-ne-peut-pas-attendre-six-mois-et-la-presidentielle-les-deputes-renaissance-se-lachent-contre-emmanuel-macron-et-le-gouvernement-apres-les-violences-du-17-octobre-7900687458)
+
+
+### ibrahim hassan (N/A, Tue, 20 Oct 2026 23:40:00 -0700)
+
+- **FIFA Suspends Egypt Manager Hossam Hassan for 3 Matches**: [Link](https://www.moroccoworldnews.com/2026/10/342943/fifa-suspends-egypt-manager-hossam-hassan-for-3-matches/)
+- **Egypt coach receives three-match ban for referee criticism after World Cup loss to Argentina - The Athletic**: [Link](https://www.nytimes.com/athletic/7707944/2026/10/20/egypt-coach-hossam-hassan-ziko-ban-world-cup-argentina-referee/)
+- **FIFA Sanction Three Egypt Officials After Argentina Clash**: [Link](https://sportsration.com/fifa-sanction-three-egypt-officials-after-argentina-clash/)
+
+
+### وزارة العدل (N/A, Tue, 20 Oct 2026 23:10:00 -0700)
+
+- **/ وزارة العدل تعتمد دليلا جديدا لتدبير الموارد البشرية وتعزيز الحكامة الإدارية بالمحاكم**: [Link](https://justice.gov.ma/2026/10/20/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D8%B9%D8%AA%D9%85%D8%AF-%D8%AF%D9%84%D9%8A%D9%84%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D9%84%D8%AA%D8%AF%D8%A8%D9%8A%D8%B1-%D8%A7/)
+- **وهبي يتعقّب "المتغيّبين عن العمل"**: [Link](https://www.hespress.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AA%D8%B9%D9%82%D9%91%D8%A8-%D8%A7%D9%84%D9%85%D8%AA%D8%BA%D9%8A%D9%91%D8%A8%D9%8A%D9%86-%D8%B9%D9%86-%D8%A7%D9%84%D8%B9%D9%85%D9%84-1825452.html)
+- **وزارة العدل تعتمد دليلا موحدا لتدبير الموارد البشرية وتوحيد المساطر الإدارية – اليوم 24**: [Link](https://alyaoum24.com/2051774.html)
+
+
+### retraite (N/A, Tue, 20 Oct 2026 22:20:00 -0700)
+
+- **A 58 ans, ce banquier découvre le bonheur de prendre sa retraite anticipée : "En dix ans, j'ai acheté un camping-car et j'ai visité plus de 60 régions d'Espagne"**: [Link](https://www.mariefrance.fr/actualite/societe/a-58-ans-ce-banquier-decouvre-le-bonheur-de-prendre-sa-retraite-anticipee-en-dix-ans-jai-achete-un-camping-car-et-jai-visite-plus-de-60-regions-despagne-2026-33-1293409.html)
+- **Plutôt que le contesté gel des pensions de retraite, une autre solution mise sur la table**: [Link](https://www.20minutes.fr/societe/4256037-20261020-retraites-plutot-tres-conteste-gel-pensions-autre-solution-mise-table)
+- **Retraite 2027 : qui sont les pensionnés qui pourraient être les plus touchés par la sous-indexation ?**: [Link](https://www.pleinevie.fr/retraite-travail/retraite/retraite-2027-qui-sont-les-pensionnes-qui-pourraient-etre-les-plus-touches-par-la-sous-indexation-229189.html)
+
+
 ### رمضان 2027 (N/A, Tue, 20 Oct 2026 17:40:00 -0700)
 
 - **محمد رمضان يوجه رسالة قوية لمنافسيه في موسم الدراما**: [Link](https://www.emiratesvoice.com/103/175451-%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%8A%D9%88%D8%AC%D9%87-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%84%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A%D9%87-%D9%81%D9%8A-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D9%85%D8%A7)
