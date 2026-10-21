@@ -1,3 +1,73 @@
+### yalla kora (N/A, Wed, 21 Oct 2026 12:20:00 -0700)
+
+- **ببصمة مغربية مزدوجة.. الأهلي المصري يخرج بأخف الضررين أمام القناة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AE%D8%B1%D8%AC-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A8%D8%A7%D9%94%D8%AE%D9%81-%D8%A7%D9%84%D8%B6%D8%B1%D8%B1%D9%8A%D9%86-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9/blt9884f53468d4c8ca)
+- **ملخص وأهداف مباراة الأهلي ضد القناة في الدوري المصري**: [Link](https://www.annahar.com/sports/359113/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A)
+- **شلاطة وأبو سنة يكشفون خطايا الحسين عموتة في الأهلي**: [Link](https://darelhilal.com/News/3328821.aspx)
+
+
+### دوري الأبطال (N/A, Wed, 21 Oct 2026 12:20:00 -0700)
+
+- **بالفيديو: ليلة إذلال الشياطين.. كومو يقسو على مانشستر يونايتد برباعية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84%D9%8A%D9%84%D8%A9-%D8%A7%D9%95%D8%B0%D9%84%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D9%8A%D8%A7%D8%B7%D9%8A%D9%86--%D9%83%D9%88%D9%85%D9%88-%D9%8A%D8%AF%D9%85%D8%B1-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A8%D8%B1%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9/blt6b7d5a6be526047d)
+- **نيكو باز يقود كومو لتحقيق فوزٍ مدوٍ أمام مانشستر يونايتد**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%86%D9%8A%D9%83%D9%88-%D8%A8%D8%A7%D8%B2-%D9%8A%D9%82%D9%88%D8%AF-%D9%83%D9%88%D9%85%D9%88-%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%88%D8%B2-%D9%85%D8%AF%D9%88-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-2026-10-21)
+- **أمطار غزيرة تهطل على ملعب كومو قبيل لقائه مع مانشستر يونايتد**: [Link](https://sports.asharq.com/videos/shorts/8564/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D8%AA%D9%87%D8%B7%D9%84-%D8%B9%D9%84%D9%89-%D9%85%D9%84%D8%B9%D8%A8-%D9%83%D9%88%D9%85%D9%88-%D9%82%D8%A8%D9%8A%D9%84-%D9%84%D9%82%D8%A7%D8%A6%D9%87-%D9%85%D8%B9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/)
+
+
+### leipzig fc (N/A, Wed, 21 Oct 2026 12:20:00 -0700)
+
+- **So wollen die RBL-Frauen den FC Bayern ärgern**: [Link](https://rbleipzig.com/de/news/vorschau-rb-leipzig-frauen-bundesliga-gegen-bayern-muenchen)
+- **RB Leipzig: Frauen des FC Bayern machten es vor! Bundesligist mit besonderer Aktion**: [Link](https://www.bild.de/sport/fussball/rb-leipzig-frauen-des-fc-bayern-machten-es-vor-bundesligist-mit-besonderer-aktion-6ad75da451e5094f7a573015)
+- **Ohne Giulia Gwinn: Bundesliga-Spitzenreiter Bayern muss auswärts bei gefährlichem Gegner bestehen**: [Link](https://www.absolutfussball.com/deutschland/fc-bayern-muenchen/leipzig-gegen-fc-bayern-live-im-tv-und-stream-hier-sehen-sie-die-frauen-bundesliga-94550933.html)
+
+
+### sir (N/A, Wed, 21 Oct 2026 12:20:00 -0700)
+
+- **Putin agrees to resume 3-way peace talks with Ukraine and US**: [Link](https://www.reuters.com/world/europe/putin-hosts-trump-envoy-new-ukraine-peace-talks-frees-us-citizen-held-russia-2026-10-21/)
+- **Russia willing to resume peace talks with Ukraine, US after Witkoff visit**: [Link](https://www.aljazeera.com/video/newsfeed/2026/10/21/russia-willing-to-resume-peace-talks-with-ukraine-us-after-witkoff-visit)
+- **Russia Releases American Stephen Hubbard From Prison, State Media Reports**: [Link](https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html)
+
+
+### bayern vs (N/A, Wed, 21 Oct 2026 12:20:00 -0700)
+
+- **‘Not a proper No. 9’ — Arsenal’s Kai Havertz can relate to Bayern Munich’s Harry Kane**: [Link](https://sports.yahoo.com/articles/not-proper-no-9-arsenal-183000074.html)
+- **‘One of the best’ Havertz admires ex-Spurs star and reveals relationship with Gyokeres**: [Link](https://www.football365.com/news/one-of-the-best-havertz-admires-ex-spurs-star-reveals-relationship-with-gyokeres)
+- **Declan Rice touts Bayern Munich’s Harry Kane as best he’s ever played with**: [Link](https://sports.yahoo.com/articles/declan-rice-touts-bayern-munich-173000057.html)
+
+
+### bein sport live (N/A, Wed, 21 Oct 2026 12:20:00 -0700)
+
+- **Lille vs Galatasaray: UEFA Champions League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6ly3z9772g7t)
+- **Licensable video: Football fans assemble outside Stade Pierre-Mauroy ahead of Lille-Galatasaray match**: [Link](https://www.reutersconnect.com/item/football-fans-assemble-outside-stade-pierre-mauroy-ahead-of-lille-galatasaray-match/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XQU5BQ0FBVklERU8yMDI2MTAyMTQyODI0NzI5)
+- **Lille 2-4 Galatasaray: Champions League thriller in Lille**: [Link](https://www.sofascore.com/news/lille-2-4-galatasaray-champions-league-thriller-in-lille)
+
+
+### real madrid (N/A, Wed, 21 Oct 2026 12:10:00 -0700)
+
+- **Real Madrid - Leipzig hoy, en directo: partido de fase liga de Champions League, última hora en el Bernabéu**: [Link](https://as.com/futbol/champions/real-madrid-leipzig-hoy-en-directo-fase-liga-de-champions-league-ultima-hora-en-el-bernabeu-f202610-d/)
+- **Convocatoria del Real Madrid contra el Leipzig**: [Link](https://www.realmadrid.com/es-ES/noticias/futbol/primer-equipo/convocatorias/convocatoria-del-real-madrid-contra-el-leipzig-20-10-2026)
+- **MADRID RM Y LEIPZIG VIDEO Y COMIDA DIRECTIVAS**: [Link](https://www.sport.es/es/videos/futbol/20261021/madrid-rm-leipzig-video-comida/135595550.shtml)
+
+
+### koora tv (N/A, Wed, 21 Oct 2026 12:10:00 -0700)
+
+- **جدول مباريات اليوم الأربعاء 21 أكتوبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-21-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt605c9de5aa6fe3de)
+- **مواعيد نارية وطموحات مغربية.. "الأسود" يتطلعون للتألق في دوري الأبطال**: [Link](https://radiomars.ma/%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%88%D8%B7%D9%85%D9%88%D8%AD%D8%A7%D8%AA-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A/)
+- **دوري أبطال أوروبا لكرة القدم..مواجهتين من العيار الثقيل**: [Link](https://inews.ma/news/8738798)
+
+
+### real (N/A, Wed, 21 Oct 2026 12:10:00 -0700)
+
+- **Trainer Mourinho vor dem Spiel Real Madrid gegen Leipzig: „Lebe im Hier und Jetzt.“**: [Link](https://www.vietnam.vn/de/hlv-mourinho-truoc-tran-real-leipzig-hay-song-cho-hien-tai)
+- **Holt Real im dritten Spiel den dritten Sieg oder wird Leipzig zum Stolperstein?**: [Link](https://www.bluewin.ch/de/sport/fussball/champions-league/holt-real-im-dritten-spiel-den-dritten-sieg-oder-wird-leipzig-zum-stolperstein-li.3643744)
+- **Liveticker | Real Madrid - RB Leipzig 0:0 | 3. Spieltag | Champions League 2026/27**: [Link](https://www.kicker.de/real-madrid-gegen-leipzig-2026-champions-league-5264386/ticker)
+
+
+### madrid match (N/A, Wed, 21 Oct 2026 12:10:00 -0700)
+
+- **👊Sevilla demand answers from LaLiga over Real Madrid match broadcast**: [Link](https://sports.yahoo.com/articles/sevilla-demand-answers-laliga-over-190300244.html)
+- **Refereeing Committee about Güler’s case: “Absent evidence, no intervention is possible”**: [Link](https://sports.yahoo.com/articles/refereeing-committee-g-ler-case-100429395.html)
+- **Mourinho awaits clear footage after Sevilla complaint over Güler**: [Link](https://sports.yahoo.com/articles/mourinho-awaits-clear-footage-sevilla-200000437.html)
+
+
 ### currently (N/A, Wed, 21 Oct 2026 07:20:00 -0700)
 
 - **Scott Coker seeks MMA rule changes in California ahead of Ki MMA debut**: [Link](https://www.sherdog.com/news/news/Scott-Coker-seeks-MMA-rule-changes-in-California-ahead-of-Ki-MMA-debut-203284)
