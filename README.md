@@ -1,3 +1,73 @@
+### currently (N/A, Wed, 21 Oct 2026 07:20:00 -0700)
+
+- **Scott Coker seeks MMA rule changes in California ahead of Ki MMA debut**: [Link](https://www.sherdog.com/news/news/Scott-Coker-seeks-MMA-rule-changes-in-California-ahead-of-Ki-MMA-debut-203284)
+- **MMA's Unified Rules could be changed with formal request made over currently banned strikes**: [Link](https://bloodyelbow.com/2026/10/21/mmas-unified-rules-could-be-changed-with-formal-request-made-over-currently-banned-strikes/)
+- **Ki MMA CEO Scott Coker lobbies CSAC for PRIDE strike rule change**: [Link](https://www.mmacrossfire.com/2026/10/21/ki-mma-ceo-scott-coker-lobbies-csac-for-pride-strike-rule-change/)
+
+
+### online (N/A, Wed, 21 Oct 2026 07:20:00 -0700)
+
+- **Top 10 Online Casinos for Real-Money USA—Best Online Casinos Listed**: [Link](https://losgatan.com/top-10-online-casinos-for-real-money-usa/)
+- **7 Best Instant Withdrawal Casinos for Quick Payouts in October 2026**: [Link](https://www.freep.com/story/sports/2026/10/21/instant-withdrawal-casinos/91009005007/)
+- **Top 10 Online Casinos For Real Money USA – Best Sites Compared**: [Link](https://ritzherald.com/top-10-online-casinos-for-real-money-usa-best-sites-compared/)
+
+
+### in (N/A, Wed, 21 Oct 2026 07:20:00 -0700)
+
+- **Russia Releases American Stephen Hubbard From Prison, State Media Reports**: [Link](https://www.nytimes.com/2026/10/21/us/politics/russia-american-prisoner-release-stephen-hubbard-trump.html)
+- **Trump: ‘No swap’ needed to free American prisoner Stephen Hubbard from Russia**: [Link](https://www.baltimoresun.com/2026/10/21/trump-no-swap-needed-to-free-american-prisoner-stephen-hubbard-from-russia/)
+- **Russia frees 74-year-old American Stephen Hubbard it captured in occupied Ukraine**: [Link](https://www.cnn.com/2026/10/21/europe/stephen-hubbard-prisoner-release-russia-trump-intl)
+
+
+### démarchage (N/A, Wed, 21 Oct 2026 07:10:00 -0700)
+
+- **Démarchage téléphonique : comment les centres d'appels au Maroc et en Tunisie s'adaptent à l'interdiction française**: [Link](https://www.lesechos.fr/monde/afrique-moyen-orient/demarchage-telephonique-comment-les-centres-dappels-au-maroc-et-en-tunisie-sadaptent-a-linterdiction-francaise-2258149)
+- **Fin du démarchage sans accord : l'immobilier doit apprendre à être appelé**: [Link](https://www.maddyness.com/?p=1442882)
+- **Si le numéro qui appelle commence par ces 4 chiffres, bloquez le de suite : il s'agit d'une arnaque**: [Link](https://www.presse-citron.net/si-le-numero-qui-appelle-commence-par-ces-4-chiffres-bloquez-le-de-suite-il-sagit-dune-arnaque/)
+
+
+### right (N/A, Wed, 21 Oct 2026 07:00:00 -0700)
+
+- **Exclusive | Todd Blanche tells ‘Pod Force One’ Ilhan Omar will be given one right Trump was denied during indictments**: [Link](https://nypost.com/2026/10/21/us-news/todd-blanche-tells-pod-force-one-ilhan-omar-will-be-given-one-right-trump-was-denied/)
+- **Todd Blanche tells ‘Pod Force One’ Ilhan Omar will be given one right Trump was denied during indictments**: [Link](https://www.yahoo.com/news/videos/todd-blanche-tells-pod-force-060000770.html)
+- **Todd Blanche tells 'Pod Force One' Ilhan Omar will be given one right Trump was denied during indictments**: [Link](https://www.theaustralian.com.au/news/todd-blanche-tells-pod-force-one-ilhan-omar-will-be-given-one-right-trump-was-denied-during-indictments/video/67986238c4b03a766d0cc44744caf461)
+
+
+### paris saint-germain football club (N/A, Wed, 21 Oct 2026 06:40:00 -0700)
+
+- **Khvitcha Kvaratskhelia partage sa tristesse après sa blessure : « Je pensais être prêt à tout, mais pas à ça »**: [Link](https://www.lequipe.fr/Football/Actualites/Khvitcha-kvaratskhelia-partage-sa-tristesse-apres-sa-blessure-je-pensais-etre-pret-a-tout-mais-pas-a-ca/1737456)
+- **PSG : ce onze inattendu que Luis Enrique pourrait aligner contre l’OL**: [Link](https://www.footmercato.net/a4034435046045458701-psg-ce-onze-inattendu-que-luis-enrique-pourrait-aligner-contre-lol)
+- **PSG : Kvaratskhelia, gravement blessé au genou droit, absent plusieurs mois**: [Link](https://fr.hespress.com/493348-psg-kvaratskhelia-gravement-blesse-au-genou-droit-absent-plusieurs-mois.html)
+
+
+### niger (N/A, Wed, 21 Oct 2026 04:50:00 -0700)
+
+- **African health ministers to hold Ebola crisis talks as outbreak grows**: [Link](https://www.euronews.com/2026/10/21/african-health-ministers-to-hold-ebola-crisis-talks-as-nigeria-confirms-first-case)
+- **Licensable picture: Nigeria confirms Ebola case**: [Link](https://www.reutersconnect.com/item/nigeria-confirms-ebola-case/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMkw3T0E2Uk5SRw%3D%3D?utm_medium=rcom-article-media&utm_campaign=rcom-rcp-lead)
+- **Ebola: Sowore Says Tinubu May Exploit Outbreak To Suppress 2027 Voter Turnout**: [Link](https://leadership.ng/ebola-sowore-says-tinubu-may-exploit-outbreak-to-suppress-2027-voter-turnout/)
+
+
+### compagnie aérienne (N/A, Wed, 21 Oct 2026 04:50:00 -0700)
+
+- **Le patron de Ryanair prédit «la plus forte hausse des tarifs aériens de l'histoire» en Europe en 2027**: [Link](https://www.capital.fr/conso/le-patron-de-ryanair-predit-la-plus-forte-hausse-des-tarifs-aeriens-de-l-histoire-en-europe-en-2027-1531145)
+- **Les baskets sont-elles passées de mode?**: [Link](https://www.lecho.be/video/1596.html)
+- **À Mons, une parenthèse japonaise pas comme les autres**: [Link](https://www.rtbf.be/short/a-mons-une-parenthese-japonaise-pas-comme-les-autres-6364)
+
+
+### koh lanta all stars (N/A, Wed, 21 Oct 2026 04:20:00 -0700)
+
+- **Yassin n’est pas seul sur l’île des bannis : le grand n’importe quoi de Koh-Lanta All Stars**: [Link](https://www.konbini.com/popculture/yassin-nest-pas-seul-sur-lile-des-bannis-le-grand-nimporte-quoi-de-koh-lanta-all-stars/)
+- **ENTRETIEN. « Je n’en veux pas à Lola d’avoir voté contre moi »: Vincent se confie après son élimination de « Koh-Lanta »**: [Link](https://programmetv.ouest-france.fr/divers/telerealite/koh-lanta-m96969668/entretien-je-nen-veux-pas-a-lola-davoir-vote-contre-moi-vincent-se-confie-apres-son-elimination-de-koh-lanta-7b04cd7c-cc8a-11f1-bf87-17eca79cb13c)
+- **Koh Lanta All Stars - Vincent veut préparer un gros coup**: [Link](https://www.tf1.fr/fr-ma/tf1/koh-lanta/videos/koh-lanta-all-stars-vincent-veut-preparer-un-gros-coup-12641917.html)
+
+
+### الأهرام (N/A, Wed, 21 Oct 2026 03:40:00 -0700)
+
+- **مفتى الجمهورية: الوعى يمثل ركيزة أساسية فى بناء الأوطان واستقرار الدول**: [Link](https://www.youm7.com/story/2026/10/21/%D9%85%D9%81%D8%AA%D9%89-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B9%D9%89-%D9%8A%D9%85%D8%AB%D9%84-%D8%B1%D9%83%D9%8A%D8%B2%D8%A9-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A9-%D9%81%D9%89-%D8%A8%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D8%A3%D9%88%D8%B7%D8%A7%D9%86-%D9%88%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1/7588281)
+- **مفتي الجمهورية من جامعة الفيوم: الحوار والاحتكام إلى الأدلة ضرورة لمواجهة التضليل الفكري**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=21102026&id=fccbbc86-0950-4eb0-8161-826c33ff765a)
+- **المفتي: الوعي ضرورة لحماية الشباب من التضليل في عصر الذكاء الاصطناعي| صور**: [Link](https://gate.ahram.org.eg/News/5969285.aspx)
+
+
 ### ريو فرديناند (N/A, Wed, 21 Oct 2026 02:20:00 -0700)
 
 - **فرديناند يتحسّر على عدم ضم بوعدي**: [Link](https://www.hespress.com/%D9%81%D8%B1%D8%AF%D9%8A%D9%86%D8%A7%D9%86%D8%AF-%D9%8A%D8%AA%D8%AD%D8%B3%D9%91%D8%B1-%D8%B9%D9%84%D9%89-%D8%B9%D8%AF%D9%85-%D8%B6%D9%85-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-1826334.html)
