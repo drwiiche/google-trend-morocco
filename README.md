@@ -1,3 +1,73 @@
+### مصرف (N/A, Thu, 22 Oct 2026 12:10:00 -0700)
+
+- **بعد قبول استقالة محافظه.. البنك المركزي الليبي يبلّغ عن عملية اقتحام لمقرّه**: [Link](https://arabic.euronews.com/2026/10/22/after-governors-resignation-accepted-libyas-central-bank-reports-break-in-at-its-headqu)
+- **ليبيا.. غموض بشأن استقالة محافظ المصرف المركزي**: [Link](https://www.aa.com.tr/ar/%D9%84%D9%8A%D8%A8%D9%8A%D8%A7/%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%BA%D9%85%D9%88%D8%B6-%D8%A8%D8%B4%D8%A3%D9%86-%D8%A7%D8%B3%D8%AA%D9%82%D8%A7%D9%84%D8%A9-%D9%85%D8%AD%D8%A7%D9%81%D8%B8-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D9%8A/4097756)
+- **البنك المركزي الليبي يبلّغ عن عملية اقتحام لمقرّه في طرابلس**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%A8%D9%86%D9%83-%D8%A7%D9%84%D9%85%D8%B1%D9%83%D8%B2%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%A8%D9%8A-%D9%8A%D8%A8%D9%84%D9%91%D8%BA-%D8%B9%D9%86-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A7%D9%82/)
+
+
+### ballon d'or 2026 (N/A, Thu, 22 Oct 2026 12:10:00 -0700)
+
+- **Gerrard hails Harry Kane as greatness and backs Bayern star to win the Ballon d’Or**: [Link](https://sports.yahoo.com/articles/gerrard-hails-harry-kane-greatness-104500361.html)
+- **Ballon d’Or 2026: Predicted Top 10**: [Link](https://www.bavarianfootballworks.com/bayern-munich-records-and-achievements/270858/ballon-dor-2026-predicted-top-10-bayern-municvh-kane-fc-barcelona-yamal-real-madrid-mbappe-manchester-city-psg)
+- **OPINION: If Kane fails to win the Ballon d'Or then award really is just a pantomime**: [Link](https://www.flashscore.com/news/opinion-if-kane-fails-to-win-the-ballon-d-or-then-award-really-is-just-a-pantomime/dle9pcjR/)
+
+
+### ajax – atalanta (N/A, Thu, 22 Oct 2026 11:50:00 -0700)
+
+- **Football Bet of the Day: Entertainment on the cards in Amsterdam on Thursday**: [Link](https://mrfixitstips.co.uk/football-bet-of-the-day-entertainment-on-the-cards-in-amsterdam-on-thursday/)
+- **Ajax vs Atalanta: UEFA Conference League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cky83jnd3wp3t)
+- **Thilo Kehrer To Start At Right-Back: Ajax Predicted XI Against Atalanta**: [Link](https://sports.yahoo.com/articles/thilo-kehrer-start-back-ajax-100033249.html)
+
+
+### bournemouth – ac milan (N/A, Thu, 22 Oct 2026 11:40:00 -0700)
+
+- **GdS: How Bournemouth ended up with more TV revenue and a more valuable squad than Milan**: [Link](https://sempremilan.com/how-bournemouth-more-tv-revenue-more-valuable-squad)
+- **Ruben Amorim returns to England with AC Milan and a new hope called Cisse**: [Link](https://www.flashscore.com/news/soccer-europa-league-ruben-amorim-returns-to-england-with-ac-milan-and-a-new-hope-called-cisse/rwJBuB3U/)
+- **Bournemouth owner Bill Foley vows to bring Champions League football to the Vitality Stadium**: [Link](https://footballtoday.com/2026/10/22/bournemouth-owner-bill-foley-vows-to-bring-champions-league-football-to-vitality-stadium/)
+
+
+### ligue europa (N/A, Thu, 22 Oct 2026 11:20:00 -0700)
+
+- **Sturm Graz – OM : Revivez la victoire de Sturm Graz face à l'OM grâce à un but de Diakité**: [Link](https://www.eurosport.fr/football/ligue-europa/2026-2027/live-sk-sturm-graz-olympique-de-marseille_mtc21878754/live-commentary.shtml)
+- **Sturm Graz - Marseille : les compositions officielles**: [Link](https://www.footmercato.net/a6504613348448396316-sturm-graz-marseille-les-compositions-officielles)
+- **Ligue Europa: l’OM s’enfonce avec une troisième défaite de rang, battu par le Sturm Graz**: [Link](https://sport.le360.ma/football/europa-league/ligue-europa-lom-senfonce-avec-une-troisieme-defaite-de-rang-battu-par-le-sturm-graz_BHMRTTPHVBAENKNUSHMYL45DB4/)
+
+
+### اقتصاد (N/A, Thu, 22 Oct 2026 11:10:00 -0700)
+
+- **جهاد أزعور: إطار مؤسسي وسياسات مرنة نوّعت مصادر التصدير**: [Link](https://www.alkhaleej.ae/2026-10-22/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA/%D8%AC%D9%87%D8%A7%D8%AF-%D8%A3%D8%B2%D8%B9%D9%88%D8%B1-%D8%A5%D8%B7%D8%A7%D8%B1-%D9%85%D8%A4%D8%B3%D8%B3%D9%8A-%D9%88%D8%B3%D9%8A%D8%A7%D8%B3%D8%A7%D8%AA-%D9%85%D8%B1%D9%86%D8%A9-%D9%86%D9%88%D8%B9%D8%AA-%D9%85%D8%B5%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B5%D8%AF%D9%8A%D8%B1)
+- **الإمارات تعزز منظومة قياس الاقتصاد الوطني بمراجعة شاملة للناتج المحلي الإجمالي**: [Link](https://twaslnews1.twaslnews.com/6410626/)
+- **خبراء: التنويع الاقتصادي يحمي الإمارات من تداعيات التوترات الإقليمية ويدفع النمو رغم الأزمات**: [Link](https://emirates24.net/ecconomy/1810/118619/)
+
+
+### باسم سمرة (N/A, Thu, 22 Oct 2026 11:10:00 -0700)
+
+- **باسم سمرة ينشر صورة مع عادل إمام.. ويشغل مواقع التواصل**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/22/%D8%A8%D8%A7%D8%B3%D9%85-%D8%B3%D9%85%D8%B1%D8%A9-%D9%8A%D9%86%D8%B4%D8%B1-%D8%B5%D9%88%D8%B1%D8%A9-%D8%A8%D8%B1%D9%81%D9%82%D8%A9-%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%85%D8%A7%D9%85-%D9%88%D9%8A%D8%AB%D9%8A%D8%B1-%D8%AA%D9%81%D8%A7%D8%B9%D9%84%D8%A7-)
+- **رامي عادل إمام عن انتشار صورة مفبركة للزعيم: «اتعودنا خلاص»**: [Link](https://akhbarelyom.com/news/newdetails/4892978/1/%D8%B1%D8%A7%D9%85%D9%8A-%D8%B9%D8%A7%D8%AF%D9%84-%D8%A5%D9%85%D8%A7%D9%85-%D8%B9%D9%86-%D8%A7%D9%86%D8%AA%D8%B4%D8%A7%D8%B1-%D8%B5%D9%88%D8%B1%D8%A9-%D9%85%D9%81%D8%A8%D8%B1%D9%83%D8%A9-%D9%84%D9%84%D8%B2)
+- **هل ظهر عادل إمام حديثاً؟.. حقيقة الصورة المتداولة مع باسم سمرة**: [Link](https://www.alkhaleej.ae/2026-10-22/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D9%87%D9%84-%D8%B8%D9%87%D8%B1-%D8%B9%D8%A7%D8%AF%D9%84-%D8%A5%D9%85%D8%A7%D9%85-%D8%AD%D8%AF%D9%8A%D8%AB%D8%A7-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%B5%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D8%AF%D8%A7%D9%88%D9%84%D8%A9-%D9%85%D8%B9-%D8%A8%D8%A7%D8%B3%D9%85-%D8%B3%D9%85%D8%B1%D8%A9)
+
+
+### juventus (N/A, Thu, 22 Oct 2026 10:50:00 -0700)
+
+- **Juventus 2-2 Stade Rennais: rigori da entrambe le parti e la scintilla di Al‑Tamari**: [Link](https://www.sofascore.com/it/news/juventus-2-2-stade-rennais-rigori-da-entrambe-le-parti-e-la-scintilla-di-al-tamari)
+- **La Juve si ferma sul 2-2 con il Rennes, pareggio di cuore ma i problemi restano**: [Link](https://www.lastampa.it/sport/2026/10/22/news/juve_rennes_gol_annullato_var-15774191/)
+- **Douglas Luiz a terra in area, l'impatto col pallone e il rigore per il Rennes: l'azione che ha portato all'1-2**: [Link](https://www.tuttosport.com/foto/calcio/serie-a/juventus/2026/10/22-152072231/douglas_luiz_a_terra_in_area_l_impatto_col_pallone_e_il_rigore_per_il_rennes_l_azione_che_ha_portato_all_1-2)
+
+
+### خفيتشا كفاراتسخيليا (N/A, Thu, 22 Oct 2026 10:40:00 -0700)
+
+- **بعد الإصابة الخطيرة.. الكشف عن موقف باريس من مفاوضات تجديد عقد كفاراتسخيليا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9--%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%88%D9%82%D9%81-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%85%D9%86-%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D8%AF-%D9%83%D9%81%D8%A7%D8%B1%D8%A7%D8%AA%D8%B3%D8%AE%D9%8A%D9%84%D9%8A%D8%A7/bltf970fe74845458c3)
+- **إصابة كفاراتسخيليا تثير موجة تضامن بين نجوم الكرة.. ورونالدو يوجه له رسالة مؤثرة**: [Link](https://www.aljazeera.net/sport/2026/10/21/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%83%D9%81%D8%A7%D8%B1%D8%A7%D8%AA%D8%B3%D8%AE%D9%8A%D9%84%D9%8A%D8%A7-%D8%AA%D8%AB%D9%8A%D8%B1-%D9%85%D9%88%D8%AC%D8%A9-%D8%AA%D8%B6%D8%A7%D9%85%D9%86)
+- **عبد الصمد الزلزولي مرشح لتعويض كفاراتسخيليا في باريس سان جيرمان**: [Link](https://radiomars.ma/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B5%D9%85%D8%AF-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-%D9%83%D9%81%D8%A7%D8%B1%D8%A7%D8%AA/)
+
+
+### virus shamonda (N/A, Thu, 22 Oct 2026 10:40:00 -0700)
+
+- **France reports first ever human Shamonda virus case in patient who died**: [Link](https://en.hespress.com/147788-france-reports-first-ever-human-shamonda-virus-case-in-patient-who-died.html)
+- **WHO investigates transmission, public health risks of 1st human case of Shamonda virus in France**: [Link](https://aa.com.tr/en/europe/who-investigates-transmission-public-health-risks-of-1st-human-case-of-shamonda-virus-in-france/4097666)
+- **First human case of Shamonda virus detected in France, officials say**: [Link](https://www.bbc.com/news/articles/c6reyx1d9ge9o)
+
+
 ### كأس الأمم الإفريقية (N/A, Thu, 22 Oct 2026 08:00:00 -0700)
 
 - **تحديد ساعة الحسم.. محكمة كاس تصدر بيانًا مهمًا حول أزمة المغرب والسنغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85--%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D9%83%D8%A7%D8%B3-%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D9%8B%D8%A7-%D9%85%D9%87%D9%85%D9%8B%D8%A7-%D8%AD%D9%88%D9%84-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/blte77727b47d640d00)
