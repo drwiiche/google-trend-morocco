@@ -1,3 +1,17 @@
+### harry kane (N/A, Wed, 21 Oct 2026 14:00:00 -0700)
+
+- **Inside Harry Kane's Ballon d'Or charge as Cristiano Ronaldo record eyed vs Arsenal**: [Link](https://www.mirror.co.uk/sport/football/news/harry-kane-arsenal-ballon-dor-37794924)
+- **Arsenal can stop Harry Kane from breaking Champions League record set by Cristiano Ronaldo**: [Link](https://www.football.london/arsenal-fc/news/harry-kane-ronaldo-record-arsenal-34795130)
+- **'We should've killed it off' – Kane rues Bayern's missed chances in Arsenal draw**: [Link](https://www.fotmob.com/sw/news/7aqj7codpmxw1fjaac27zttmd-we-shouldve-killed-it-off-kane-rues-bayerns-missed-chances-arsenal-draw)
+
+
+### champions league standings (N/A, Wed, 21 Oct 2026 14:00:00 -0700)
+
+- **Five things we learned from Champions League: Man United in crisis, Como shine and Ballon d'Or winner is clear**: [Link](https://www.cbssports.com/soccer/news/five-things-we-learned-from-champions-league-man-united-como-real-madrid/)
+- **UEFA Champions League Live Updates, Scores, Highlights and Standings (10/21)**: [Link](https://bleacherreport.com/liveblogs/25514015-uefa-champions-league-live-updates-scores-highlights-and-standings-1021)
+- **UCL: Mbappe inspires Madrid to 4-1 win, Arsenal hold Bayern 2-2**: [Link](https://ng.headtopics.com/news/ucl-mbappe-inspires-madrid-to-4-1-win-arsenal-hold-bayern-89058252)
+
+
 ### posiciones de real madrid contra rb leipzig (N/A, Wed, 21 Oct 2026 14:50:00 -0700)
 
 - **Clasificación de la Champions League, en directo: Real Madrid y Betis buscan el liderato**: [Link](https://www.marca.com/futbol/champions-league/2026/10/20/clasificacion-champions-league-directo-barca-psg-juegan-liderato.html)
