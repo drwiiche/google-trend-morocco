@@ -1,3 +1,73 @@
+### لامين يامال (N/A, Thu, 22 Oct 2026 15:20:00 -0700)
+
+- **الكرة الذهبية بين سحر يامال وموسم كفارا الاستثنائي.. من يستحق أكثر؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%B3%D8%AD%D8%B1-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D9%85%D9%88%D8%B3%D9%85-%D9%83%D9%81%D8%A7%D8%B1%D8%A7-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A--%D9%85%D9%86-%D9%8A%D8%B3%D8%AA%D8%AD%D9%82-%D8%A7%D9%94%D9%83%D8%AB%D8%B1/blt4480809c80e5744f)
+- **بعد خيبة باريس.. هكذا يستعد لامين جمال لحفل الكرة الذهبية**: [Link](https://www.aljazeera.net/sport/2026/10/22/%D8%A8%D8%B9%D8%AF-%D8%AE%D9%8A%D8%A8%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%87%D9%83%D8%B0%D8%A7-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D8%AC%D9%85%D8%A7%D9%84)
+- **"الأفضل في العالم!" .. نيمار يختار الفائز بالكرة الذهبية 2026**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%86%D9%8A%D9%85%D8%A7%D8%B1-%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D8%A7%D9%8A%D9%94%D8%B2-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-2026/blt399875762ba0cc7a)
+
+
+### classement celtic glasgow – celta vigo (N/A, Thu, 22 Oct 2026 14:50:00 -0700)
+
+- **Celtic v Celta Vigo: Uefa Europa League stats & head-to-head - radio, text & report**: [Link](https://www.bbc.com/sport/football/live/c85ynlg65n9zt)
+- **Celtic 1-2 Celta Vigo: Hoops suffer third Europa League defeat as Spaniards stun with quick double**: [Link](https://www.skysports.com/football/news/13601252/celtic-1-2-celta-vigo-hoops-suffer-third-europa-league-defeat-as-spaniards-stun-with-quick-double)
+- **🔥Celta pull off a memorable comeback at Celtic Park**: [Link](https://sports.yahoo.com/articles/celta-pull-off-memorable-comeback-211800489.html)
+
+
+### نظافة (N/A, Thu, 22 Oct 2026 14:50:00 -0700)
+
+- **الرميلي تعلن شرطة النظافة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D9%85%D9%8A%D9%84%D9%8A-%D8%AA%D8%B9%D9%84%D9%86-%D8%B4%D8%B1%D8%B7%D8%A9-%D8%A7%D9%84%D9%86%D8%B8%D8%A7%D9%81%D8%A9-1827356.html)
+- **“دور العجزة” بإدارات الجماعات**: [Link](https://assabah.ma/957302.html)
+- **ميزانية البيضاء 2027.. نفقات بالملايير وموظفون يغادرون ومرافق تبحث عن الكفاءات**: [Link](https://al3omk.com/1199031.html)
+
+
+### الفنانة رجاء محمد (N/A, Thu, 22 Oct 2026 14:00:00 -0700)
+
+- **بعد عقود من الاعتزال.. رحيل الفنانة رجاء محمد يعيد ذكريات الطفولة إلى جمهورها**: [Link](https://www.aljazeera.net/arts/2026/10/21/%D8%A8%D8%B9%D8%AF-%D8%B9%D9%82%D9%88%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%B1%D8%AD%D9%8A%D9%84-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%B1%D8%AC%D8%A7%D8%A1)
+- **بعد رحيلها.. من هي الفنانة الكويتية رجاء محمد وأبرز المعلومات عنها؟**: [Link](https://roayahnews.com/%D8%A8%D8%B9%D8%AF-%D8%B1%D8%AD%D9%8A%D9%84%D9%87%D8%A7-%D9%85%D9%86-%D9%87%D9%8A-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A%D8%A9-%D8%B1%D8%AC%D8%A7%D8%A1/)
+- **رحيل مفاجئ للفنانة الكويتية رجاء محمد.. سبب الوفاة وتفاصيل آخر ظهور**: [Link](https://www.alkhaleej.ae/2026-10-20/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%84%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%8A%D8%AA%D9%8A%D8%A9-%D8%B1%D8%AC%D8%A7%D8%A1-%D9%85%D8%AD%D9%85%D8%AF-%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D9%88%D9%81%D8%A7%D8%A9-%D9%88%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A2%D8%AE%D8%B1-%D8%B8%D9%87%D9%88%D8%B1)
+
+
+### دواجن (N/A, Thu, 22 Oct 2026 13:00:00 -0700)
+
+- **سعر كيلو الفراخ البيضاء الآن بعد الانخفاض الأخير.. أسعار الدواجن اليوم الخميس 22-10-2026 بالأسواق والبورصة**: [Link](https://www.almasryalyoum.com/news/details/4389902)
+- **أسعار البيض والفراخ اليوم الخميس 22 أكتوبر 2026 في محافظة الأقصر**: [Link](https://akher.news/80789/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6-%D9%88%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%AE-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-22-%D8%A3%D9%83%D8%AA%D9%88/)
+- **ارتفاع أسعار الدواجن واللحوم في مصر اليوم الخميس**: [Link](https://www.mubasher.info/news/4688671/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D8%A7%D8%AC%D9%86-%D9%88%D8%A7%D9%84%D9%84%D8%AD%D9%88%D9%85-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3/)
+
+
+### نادي أرسنال (N/A, Thu, 22 Oct 2026 12:50:00 -0700)
+
+- **تحليل: بايرن ميونخ وآرسنال لا يعترفان بالغيابات.. وكومباني يغير جلده بسهولة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%88%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%84%D8%A7-%D9%8A%D8%B9%D8%AA%D8%B1%D9%81%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA--%D9%88%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%BA%D9%8A%D8%B1-%D8%AC%D9%84%D8%AF%D9%87-%D8%A8%D8%B3%D9%87%D9%88%D9%84%D8%A9/bltf098971234c094d1)
+- **مدرب أرسنال: إصابة ساكا تبدو خطيرة**: [Link](https://www.alquds.co.uk/%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B3%D8%A7%D9%83%D8%A7-%D8%AA%D8%A8%D8%AF%D9%88-%D8%AE%D8%B7%D9%8A%D8%B1%D8%A9/)
+- **دوري أبطال أوروبا: أرسنال يعود من ميونيخ بالتعادل**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261021-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B9%D9%88%D8%AF-%D9%85%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D8%A8%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84)
+
+
+### lockheed martin f-35 lightning ii (N/A, Thu, 22 Oct 2026 12:50:00 -0700)
+
+- **Department of War and Lockheed Martin Finalize Landmark 10-Year F-35 Deal, Securing $7B in Private Investment**: [Link](https://www.war.gov/News/Releases/Release/Article/4631150/department-of-war-and-lockheed-martin-finalize-landmark-10-year-f-35-deal-secur/)
+- **Weapons maker says new 10-year Pentagon deal could support 317,000 jobs, generate $790 billion in economic ac**: [Link](https://www.al.com/news/2026/10/weapons-maker-says-new-10-year-pentagon-deal-could-support-317000-jobs-generate-790-billion-in-economic-activity.html)
+- **New Framework Agreement for Multiyear F‑35 Production and Sustainment**: [Link](https://finance.yahoo.com/economy/policy/articles/framework-agreement-multiyear-f-35-101000223.html)
+
+
+### classement juventus – stade rennais football club (N/A, Thu, 22 Oct 2026 12:50:00 -0700)
+
+- **Juventus Turin 2-2 Rennes, Ligue Europa : Rennes se fait du bien**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2026-2027/juventus-turin-rennes-live/702199)
+- **Ligue Europa: Abdelhamid Aït Boudlal et Rennes vont chercher un nul mérité contre la Juve à Turin**: [Link](https://sport.le360.ma/football/europa-league/ligue-europa-abdelhamid-ait-boudlal-et-rennes-vont-chercher-un-nul-merite-contre-la-juve-a-turin_Y7KN7UZLXNAKFJC6JFB3DYGGJM/)
+- **"Kolo Muani et Woltemade peuvent faire plus", selon leur entraîneur Spalletti**: [Link](https://www.flashscore.fr/actualites/football-ligue-europa-kolo-muani-et-woltemade-peuvent-faire-plus-selon-leur-entraineur-spalletti/tnrUTybJ/)
+
+
+### classement sturm graz – olympique de marseille (N/A, Thu, 22 Oct 2026 12:30:00 -0700)
+
+- **Sturm Graz 1-0 OM, Ligue Europa : Sturm Graz fait tomber l'OM !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-europa/2026-2027/sturm-graz-om-live/702203)
+- **Ligue Europa : le cauchemar de l’OM n’en finit plus !**: [Link](https://www.footmercato.net/a2447764983155692221-ligue-europa-le-cauchemar-de-lom-nen-finit-plus)
+- **Bruno Genesio déplore "une première période pas digne de l'Europe"**: [Link](https://www.flashscore.fr/actualites/bruno-genesio-deplore-une-premiere-periode-pas-digne-de-l-europe/bNCEylHP/)
+
+
+### viande (N/A, Thu, 22 Oct 2026 12:30:00 -0700)
+
+- **La baisse de la consommation pèse sur le marché de la viande**: [Link](https://www.lafranceagricole.fr/conjoncture-viandes/article/905138/la-baisse-de-la-consommation-pese-sur-le-marche-de-la-viande)
+- **La décapitalisation européene réorganise les flux de broutards**: [Link](https://www.web-agri.fr/engraissement/article/905046/moins-de-broutards-plus-d-echanges-la-baisse-du-cheptel-rebat-les-cartes-en-euro)
+- **En 10 ans, la France a perdu plus d’un million de bovins**: [Link](https://www.grands-troupeaux-mag.fr/en-10-ans-la-france-a-perdu-plus-dun-million-de-bovins/)
+
+
 ### مصرف (N/A, Thu, 22 Oct 2026 12:10:00 -0700)
 
 - **بعد قبول استقالة محافظه.. البنك المركزي الليبي يبلّغ عن عملية اقتحام لمقرّه**: [Link](https://arabic.euronews.com/2026/10/22/after-governors-resignation-accepted-libyas-central-bank-reports-break-in-at-its-headqu)
