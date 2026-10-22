@@ -1,3 +1,31 @@
+### classroom (N/A, Thu, 22 Oct 2026 02:20:00 -0700)
+
+- **An AP’s Simple System for Better Classroom Feedback**: [Link](https://www.naesp.org/resource/an-aps-simple-system-for-better-classroom-feedback/)
+- **Malaysian teen arrested after live-streaming axe attack on teacher in class**: [Link](https://www.scmp.com/week-asia/people/article/3371718/malaysian-teen-arrested-after-live-streaming-axe-attack-teacher-class)
+- **Student brings firecrackers, axe to school, injures teacher in Sarawak**: [Link](https://www.nst.com.my/news/nation/2026/10/1560752/student-brings-firecrackers-axe-school-injures-teacher-sarawak)
+
+
+### nba (N/A, Wed, 21 Oct 2026 19:20:00 -0700)
+
+- **Licensable video: Lakers fans pay tribute to LeBron as Doncic ushers in a new era**: [Link](https://www.reutersconnect.com/item/lakers-fans-pay-tribute-to-lebron-as-doncic-ushers-in-a-new-era/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzU1MDIxNzUyNjE1MDAx)
+- **Luka Doncic punks Warriors rookie in season opener**: [Link](https://www.goldenstateofmind.com/warriors-scores-results/112797/sleep-walkers-new-look-lakers-dominate-sluggish-warriors-in-opener)
+- **Game Recap: Lakers 127, Warriors 105**: [Link](https://www.nba.com/watch/video/game-recap-los-angeles-lakers-127-golden-state-warriors-105)
+
+
+### voyage (N/A, Wed, 21 Oct 2026 15:30:00 -0700)
+
+- **BRIE-COMTE-ROBERT : Tourisme - L'agence Votre Voyage fête ses 20 ans et atteint 50 M€ de chiffre d'affaires**: [Link](https://presseagence.fr/brie-comte-robert-tourisme-lagence-votre-voyage-fete-ses-20-ans-et-atteint-50-me-de-chiffre-daffaires/)
+- **Le futur des vacances se joue-t-il loin du soleil ?**: [Link](https://weekend.levif.be/voyage/quelles-vacances-dans-le-futur/)
+- **« 20 milliards d’euros de recettes supplémentaires pour la France » : le plan à 20 ans des grandes entreprises du tourisme**: [Link](https://www.lefigaro.fr/voyages/20-milliards-d-euros-de-recettes-supplementaires-pour-la-france-le-plan-a-20-ans-des-grandes-entreprises-du-tourisme-20261021)
+
+
+### التمر (N/A, Wed, 21 Oct 2026 15:30:00 -0700)
+
+- **التمر ليس لرمضان فقط.. 6 فوائد تجعلك تتناوله طوال العام**: [Link](https://www.alarabiya.net/medicine-and-health/2026/10/21/-%D8%A7%D9%84%D8%AA%D9%85%D8%B1-%D9%84%D9%8A%D8%B3-%D9%84%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D9%81%D9%82%D8%B7-6-%D9%81%D9%88%D8%A7%D8%A6%D8%AF-%D8%AA%D8%AC%D8%B9%D9%84%D9%83-%D8%AA%D8%AA%D9%86%D8%A7%D9%88%D9%84%D9%87-%D8%B7%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B9%D8%A7%D9%85)
+- **فوائد التين والتمر للجهاز الهضمي.. وتوصيات بشأن الكميات المناسبة**: [Link](https://www.mawazin.net/Details.aspx?jimare=293769)
+- **التين والتمر… كيف تتناولهما لزيادة الألياف في غذائك؟**: [Link](https://twaslnews1.twaslnews.com/6363077/)
+
+
 ### harry kane (N/A, Wed, 21 Oct 2026 14:00:00 -0700)
 
 - **Inside Harry Kane's Ballon d'Or charge as Cristiano Ronaldo record eyed vs Arsenal**: [Link](https://www.mirror.co.uk/sport/football/news/harry-kane-arsenal-ballon-dor-37794924)
