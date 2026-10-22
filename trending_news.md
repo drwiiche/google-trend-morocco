@@ -1,3 +1,71 @@
+### كأس الأمم الإفريقية (N/A, Thu, 22 Oct 2026 08:00:00 -0700)
+
+- **تحديد ساعة الحسم.. محكمة كاس تصدر بيانًا مهمًا حول أزمة المغرب والسنغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D8%B3%D8%A7%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85--%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D9%83%D8%A7%D8%B3-%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D9%8B%D8%A7-%D9%85%D9%87%D9%85%D9%8B%D8%A7-%D8%AD%D9%88%D9%84-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84/blte77727b47d640d00)
+- **"طاس" تكشف موعد الحسم في النهائي**: [Link](https://www.hespress.com/%D8%B7%D8%A7%D8%B3-%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86-1825557.html)
+- **بطل أمم أفريقيا 2025: محكمة التحكيم الرياضي تصدر قرارها نهاية نوفمبر**: [Link](https://www.france24.com/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/20261019-%D9%83%D8%A7%D8%B3-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B3%D8%AD%D8%A8-%D9%84%D9%82%D8%A8-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9)
+
+
+### rénovation (N/A, Thu, 22 Oct 2026 08:00:00 -0700)
+
+- **À Port-Louis, la rénovation du pont de la Porte Rouge est en cours**: [Link](https://www.ouest-france.fr/bretagne/port-louis-56290/a-port-louis-la-renovation-du-pont-de-la-porte-rouge-est-en-cours-dcd23d92-ce0f-11f1-9fc5-d7c44b31aa3d)
+- **Un tracteur en Cuma pour diminuer son coût horaire**: [Link](https://www.horizons-journal.fr/un-tracteur-en-cuma-pour-diminuer-son-cout-horaire)
+- **Plutôt qu’un renouvellement, optez pour la rénovation**: [Link](https://www.farm-connexion.com/2026/10/22/plutot-quun-renouvellement-optez-pour-la-renovation/)
+
+
+### طماطم (N/A, Thu, 22 Oct 2026 07:10:00 -0700)
+
+- **اسعار الخضروات والفواكه في أسواق الأقصر اليوم الخميس 22 أكتوبر 2026**: [Link](https://akher.news/80713/%D8%A7%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D9%88%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%81%D9%88%D8%A7%D9%83%D9%87-%D9%81%D9%8A-%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D8%A3%D9%82/)
+- **سعر الخضراوات اليوم الخميس في الإسكندرية.. كيلو الطماطم بـ 10 جنيهات**: [Link](https://www.youm7.com/story/2026/10/22/%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D9%83%D9%86%D8%AF%D8%B1%D9%8A%D8%A9-%D9%83%D9%8A%D9%84%D9%88-%D8%A7%D9%84%D8%B7%D9%85%D8%A7%D8%B7%D9%85-%D8%A8%D9%80-10/7589759)
+- **سعر التفاح والموز والفاكهة في الأسواق اليوم الخميس 22 أكتوبر 2026**: [Link](https://www.almasryalyoum.com/news/details/4389655)
+
+
+### مطار الملك فهد الدولي الدمام (N/A, Thu, 22 Oct 2026 06:50:00 -0700)
+
+- **هجوم على مطار الدمام يخلف قتيلين**: [Link](https://www.hespress.com/%D9%87%D8%AC%D9%88%D9%85-%D8%B9%D9%84%D9%89-%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D9%85%D8%A7%D9%85-%D9%8A%D8%AE%D9%84%D9%81-%D9%82%D8%AA%D9%8A%D9%84%D9%8A%D9%86-1827013.html)
+- **الطيران المدني: وفاة مقيم وإصابة 8 أشخاص في اعتداء على مطار الدمام**: [Link](https://www.alarabiya.net/saudi-today/2026/10/22/%D8%A7%D9%84%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D8%AF%D9%86%D9%8A-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%82%D9%8A%D9%85-%D9%88%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-8-%D8%A7%D8%B4%D8%AE%D8%A7%D8%B5-%D9%81%D9%8A-%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D9%85%D8%A7%D9%85)
+- **السعودية.. ارتفاع عدد قتلى الهجوم على مطار الدمام**: [Link](https://www.skynewsarabia.com/middle-east/1899863-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%B9%D8%AF%D8%AF-%D9%82%D8%AA%D9%84%D9%89-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D9%85%D8%B7%D8%A7%D8%B1-%D8%A7%D9%84%D8%AF%D9%85%D8%A7%D9%85)
+
+
+### arkia (N/A, Thu, 22 Oct 2026 06:40:00 -0700)
+
+- **Arkia, Israir suspend Israel - Morocco flights**: [Link](https://en.globes.co.il/en/article-arkia-israir-suspend-israel-morocco-flights-1001560295)
+- **Arkia joins Israir in halting Marrakech ticket sales as new Israeli security rules loom**: [Link](https://www.timesofisrael.com/arkia-joins-israir-in-halting-marrakech-ticket-sales-as-new-security-rules-loom/)
+- **Israeli Airlines Suspend Flights to Morocco at Shin Bet's Request**: [Link](https://yaffaps.com/en/page-137055.html)
+
+
+### بنك المغرب (N/A, Thu, 22 Oct 2026 06:10:00 -0700)
+
+
+
+
+### فضل شاكر (N/A, Thu, 22 Oct 2026 06:10:00 -0700)
+
+- **مشاهد فضل شاكر قبل حفل الرياض تتصدر الترند.. وعناق مع ابنه**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/22/%D9%85%D8%B4%D8%A7%D9%87%D8%AF-%D9%81%D8%B6%D9%84-%D8%B4%D8%A7%D9%83%D8%B1-%D9%82%D8%A8%D9%84-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%86%D8%AF-%D9%88%D8%B9%D9%86%D8%A7%D9%82-%D9%85%D8%B9-%D8%A7%D8%A8%D9%86%D9%87)
+- **محمد عبد الجليل 3edited**: [Link](https://asharqbusiness.com/videos/shorts/16129/%D9%85%D8%AD%D9%85%D8%AF-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%AC%D9%84%D9%8A%D9%84-3edited/)
+- **فضل شاكر في الدوحة على مسرح كتارا المكشوف**: [Link](https://www.alaraby.co.uk/entertainment_media/%D9%81%D8%B6%D9%84-%D8%B4%D8%A7%D9%83%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%AD%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%B1%D8%AD-%D9%83%D8%AA%D8%A7%D8%B1%D8%A7-%D8%A7%D9%84%D9%85%D9%83%D8%B4%D9%88%D9%81)
+
+
+### helen haines (N/A, Thu, 22 Oct 2026 05:20:00 -0700)
+
+- **Australian politician who was intentionally hit by car loses both her legs**: [Link](https://www.cbsnews.com/news/australian-politician-intentionally-hit-by-car-loses-both-legs/)
+- **What happened inside court for man charged with Australian MP attack**: [Link](https://www.bbc.com/news/videos/cq398rg0lnd1o)
+- **My late wife Jo Cox was murdered in her constituency in 2016. The alleged attack on Helen Haines is a punch to the gut**: [Link](https://www.theguardian.com/commentisfree/2026/oct/21/my-wife-jo-cox-was-murdered-in-her-constituency-in-2016-the-alleged-attack-on-helen-haines-is-a-punch-to-the-gut-ntwnfb)
+
+
+### الحسين عموتة (N/A, Thu, 22 Oct 2026 04:50:00 -0700)
+
+- **"كل فرد يراجع نفسه".. الأهلي يوقع عقوبات مضاعفة على لاعبيه بعد مباراة القناة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%84-%D9%81%D8%B1%D8%AF-%D9%8A%D8%B1%D8%A7%D8%AC%D8%B9-%D9%86%D9%81%D8%B3%D9%87--%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%8A%D9%88%D9%82%D8%B9-%D8%B9%D9%82%D9%88%D8%A8%D8%A7%D8%AA-%D9%85%D8%B6%D8%A7%D8%B9%D9%81%D8%A9-%D8%B9%D9%84%D9%89-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%87-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9/bltc83e185b503c45d9)
+- **ميدو ينتقد وائل جمعة لتدخله في مهمة عموتة بتوجيه لاعبي الأهلي من خط التماس أمام القناة!**: [Link](https://www.elbotola.com/article/2026-10-22-11-28-244.html)
+- **محتاج ثورة تصحيح.. ماذا قال نجوم كرة القدم عن تعادل الأهلي مع القناة؟**: [Link](https://twaslnews1.twaslnews.com/6410419/)
+
+
+### عقوبة الإعدام (N/A, Thu, 22 Oct 2026 04:30:00 -0700)
+
+- **بوعياش تطالب بإنهاء التردد التشريعي والحسم في إلغاء عقوبة الإعدام**: [Link](https://www.hespress.com/%D8%A8%D9%88%D8%B9%D9%8A%D8%A7%D8%B4-%D8%AA%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%A5%D9%86%D9%87%D8%A7%D8%A1-%D8%A7%D9%84%D8%AA%D8%B1%D8%AF%D8%AF-%D8%A7%D9%84%D8%AA%D8%B4%D8%B1%D9%8A%D8%B9%D9%8A-%D9%88-1826037.html)
+- **الجامعي: لن يُعقد “مؤتمر مراكش” قبل إلغاء المغرب لعقوبة الإعدام… وكفى من التردد التشريعي والسياسي**: [Link](https://kifache.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D9%8A-%D9%84%D9%86-%D9%8A%D9%8F%D8%B9%D9%82%D8%AF-%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D9%82%D8%A8%D9%84-%D8%A5%D9%84%D8%BA%D8%A7/)
+- **الجامعي: قانون إعدام الفلسطينيين انتكاسة في جهود إلغاء عقوبة الإعدام – اليوم 24**: [Link](https://alyaoum24.com/2051680.html)
+
+
 ### classroom (N/A, Thu, 22 Oct 2026 02:20:00 -0700)
 
 - **An AP’s Simple System for Better Classroom Feedback**: [Link](https://www.naesp.org/resource/an-aps-simple-system-for-better-classroom-feedback/)
