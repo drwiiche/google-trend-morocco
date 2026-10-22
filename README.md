@@ -1,3 +1,24 @@
+### posiciones de real madrid contra rb leipzig (N/A, Wed, 21 Oct 2026 14:50:00 -0700)
+
+- **Clasificación de la Champions League, en directo: Real Madrid y Betis buscan el liderato**: [Link](https://www.marca.com/futbol/champions-league/2026/10/20/clasificacion-champions-league-directo-barca-psg-juegan-liderato.html)
+- **Radioestadio Noche 20/10/2026**: [Link](https://www.ondacero.es/podcast/programas/radioestadio-noche/radioestadio-noche-20102026_202610206ad7ffb33bd7d00007375b3f.html)
+- **Real Madrid no cede en Champions, Bayern sigue sin arrancar y Nico Paz sonroja al United**: [Link](https://es-us.noticias.yahoo.com/deportes/real-madrid-cede-champions-bayern-213339112.html)
+
+
+### عرشان (N/A, Wed, 21 Oct 2026 14:40:00 -0700)
+
+- **عزيز غالي يتحدى عرشان ويدعوه إلى جلسة استماع علنية لضحايا سنوات الرصاص – اليوم 24**: [Link](https://alyaoum24.com/2052088.html)
+- **عرشان غاضب من شكل مشاورات المنصوري: لست جلاداً وفُرِضَت عليَّ رقابة إعلامية**: [Link](https://madar21.com/461411.html)
+- **عرشان يهاجم منتقديه بـ”الطابور الخامس” ويرفض تهم التعذيب في جلسة البرنامج الحكومي**: [Link](https://lakome2.com/politique/434863/)
+
+
+### classement real betis balompié – feyenoord (N/A, Wed, 21 Oct 2026 14:10:00 -0700)
+
+- **Real Betis 1-0 Feyenoord: Isco penalty maintains 100% Champions League record for hosts**: [Link](https://www.bbc.com/sport/football/live/cw8dz6r33myrt)
+- **Licensable picture: Real Betis Balompie v Feyenoord - UEFA Champions League 2026/27 League Phase MD3**: [Link](https://www.reutersconnect.com/item/real-betis-balompie-v-feyenoord-uefa-champions-league-202627-league-phase-md3/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDVEVjROWA)
+- **Real Betis beat Feyenoord 1-0 in UEFA Champions League**: [Link](https://www.beinsports.com/en-mena/football/uefa-champions-league/articles-video/real-betis-beat-feyenoord-1-0-in-uefa-champions-league-2026-10-21)
+
+
 ### loto (N/A, Wed, 21 Oct 2026 14:50:00 -0700)
 
 
