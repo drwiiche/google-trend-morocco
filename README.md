@@ -1,3 +1,73 @@
+### brest – nice (N/A, Fri, 23 Oct 2026 11:50:00 -0700)
+
+- **DIRECT. Brest-Nice: Ajorque profite d'une énorme erreur et lance les Brestois**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-brest-nice-suivez-le-match-de-la-8e-journee-de-ligue-1-en-live_LS-202610230671.html)
+- **Stade Brestois - OGC Nice. « Il pose beaucoup de problèmes » : Pourquoi Pantaloni se méfie tant d’Ajorque ?**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/stade-brestois-ogc-nice-il-pose-beaucoup-de-problemes-pourquoi-pantaloni-se-mefie-tant-dajorque-a0bb8a58-cedb-11f1-95ba-26d2045f6620)
+- **Ligue 1 – Brest/Nice : Pathé Mboup et Yehvann Diouf titulaires pour leur duel !**: [Link](https://wiwsport.com/2026/10/23/ligue-1-brest-nice-pathe-mboup-et-yehvann-diouf-titulaires-pour-leur-duel/)
+
+
+### ipswich town – nottm forest (N/A, Fri, 23 Oct 2026 11:40:00 -0700)
+
+- **Ipswich v Nottingham Forest: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/oct/23/ipswich-v-nottingham-forest-premier-league-live)
+- **talkSPORT tips – Best football bets and expert advice for Friday 23rd October**: [Link](https://talksport.com/football/4657411/talksport-tips-best-football-bets-friday-23rd-october/)
+- **Sasa Lukic remains sidelined for Nottingham Forest clash**: [Link](https://www.kingsofanglia.com/news/26659667.sasa-lukic-injury-update-ahead-ipswich-town-v-nottingham-forest/)
+
+
+### deportivo alavés – málaga (N/A, Fri, 23 Oct 2026 11:30:00 -0700)
+
+- **Alavés-Málaga: duelo albiceleste de necesidades diferentes**: [Link](https://onefootball.com/es/noticias/alaves-malaga-duelo-albiceleste-de-necesidades-diferentes-43657749)
+- **Chupete al banquillo y revolución del once de Funes en su visita al Alavés**: [Link](https://www.101tv.es/malagacf/primera-suplencia-para-chupete-y-varias-sorpresas-en-el-once-del-malaga-en-vitoria/)
+- **Deportivo Alavés vs Málaga CF: horario, alineaciones y minuto a minuto | LaLiga EA Sports 26-27**: [Link](https://rtvc.es/deportivo-alaves-vs-malaga-cf-j10-laliga-ea-sports-26-27/)
+
+
+### stuttgart – mönchengladbach (N/A, Fri, 23 Oct 2026 11:30:00 -0700)
+
+- **Aufstellung: Lorenz Assignon rückt in Startelf**: [Link](https://www.vfb.de/de/vfb/aktuell/neues/profis/2627/aufstellung-vfb-stuttgart-gegen-borussia-moenchengladbach/)
+- **Geht die Gladbach-Krise weiter? Die Aufstellungen zum Spiel in Stuttgart**: [Link](https://onefootball.com/de/news/geht-die-gladbach-krise-weiter-die-aufstellungen-zum-spiel-in-stuttgart-43661134)
+- **Bundesliga live: Ein Patzer bringt die frühe VfB-Führung**: [Link](https://www.tipico.de/wett-tipps/sportwetten-news/bundesliga-live-ein-patzer-bringt-die-fruehe-vfb-fuehrung)
+
+
+### القادسية ضد الهلال (N/A, Fri, 23 Oct 2026 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة القادسية والهلال في دوري روشن السعودي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B3%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltf56db436ee6b0f14)
+- **مباشر.. مباراة الهلال ضد القادسية في الدوري السعودي.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/23/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D8%B6%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B3%D9%8A%D8%A9)
+- **خمس مباريات بشباك نظيفة تضع بونو في صدارة حراس الدوري السعودي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D9%8A%D8%AD%D8%A7%D9%81%D8%B8-%D8%B9%D9%84%D9%89-%D9%86%D8%B8%D8%A7%D9%81%D8%A9-%D8%B4%D8%A8%D8%A7%D9%83%D9%87-%D9%81%D9%8A-%D8%AE%D9%85%D8%B3-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86/26809)
+
+
+### فيرمين لوبيز (N/A, Fri, 23 Oct 2026 11:10:00 -0700)
+
+- **فيرمين يرفض لعبة مورينيو قبل الكلاسيكو.. رد مثير من نجم برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%B1%D9%85%D9%8A%D9%86-%D9%8A%D8%B1%D9%81%D8%B6-%D9%84%D8%B9%D8%A8%D8%A9-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88--%D8%B1%D8%AF-%D9%85%D8%AB%D9%8A%D8%B1-%D9%85%D9%86-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt855b0c430aeacbba)
+- **862 دقيقة لبرشلونة و101 ركلة جزاء لريال مدريد.. من استفاد أكثر من قرارات التحكيم خلال العقد الأخير؟**: [Link](https://www.aljazeera.net/sport/2026/10/19/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-10-%D8%B3%D9%86%D9%88%D8%A7%D8%AA)
+- **11 طردا لصالح برشلونة.. رقم كارثي للحكم دي بورغوس مع ريال مدريد**: [Link](https://www.eremnews.com/sports/30ud7bt)
+
+
+### نقابة (N/A, Fri, 23 Oct 2026 11:00:00 -0700)
+
+- **نقابة تعليمية تقرر تعطيل الدراسة السبت**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D9%8A%D8%A9-%D8%AA%D9%82%D8%B1%D8%B1-%D8%AA%D8%B9%D8%B7%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8-1827798.html)
+- **عطلة السبت تعود إلى الواجهة.. هل حان الوقت لإعادة النظر في الزمن المدرسي بالمغرب؟**: [Link](https://www.akhbarona.com/education/434421.html)
+- **إلغاء الدراسة يوم السبت يعود إلى الواجهة..**: [Link](https://sabahagadir.ma/491532.html)
+
+
+### البطولة الاحترافية المغربية (N/A, Fri, 23 Oct 2026 11:00:00 -0700)
+
+- **الكشف عن حكام الجولة الخامسة من البطولة**: [Link](https://assabah.ma/957574.html)
+- **البطولة الوطنية الاحترافية لكرة القدم تعد بمواجهات كلاسيكية مثيرة في دورتها الخامسة – اليوم 24**: [Link](https://alyaoum24.com/2052562.html)
+- **حسنية أكادير تتقدم بمراسلة احتجاجية للعصبة على ظروف البرمجة**: [Link](https://radiomars.ma/%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D8%AA%D8%AA%D9%82%D8%AF%D9%85-%D8%A8%D9%85%D8%B1%D8%A7%D8%B3%D9%84%D8%A9-%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D9%8A%D8%A9-%D9%84/)
+
+
+### salaire (N/A, Fri, 23 Oct 2026 10:40:00 -0700)
+
+- **Les salaires inférieurs à 10.000 DH seront totalement exonérés de l'IR dès le 1er janvier 2027**: [Link](https://medias24.com/2026/10/23/les-salaires-inferieurs-a-10-000-dh-seront-totalement-exoneres-de-lir-des-le-1er-janvier-2027-1783385/)
+- **Exclusif. Une réforme «historique» de l’Impôt sur le revenu: ce qui va changer pour les salariés dès 2027**: [Link](https://fr.le360.ma/politique/exclusif-une-reforme-historique-de-limpot-sur-le-revenu-ce-qui-va-changer-pour-les-salaries-des-2027_UBLXPQPXLNEUZLLXYXQQXJ3GE4/)
+- **PLF 2027 : plus de 34.000 postes budgétaires prévus au titre de la nouvelle année financière**: [Link](https://fr.hespress.com/493728-plf-2027-plus-de-34-000-postes-budgetaires-prevus-au-titre-de-la-nouvelle-annee-financiere.html)
+
+
+### coupe du monde féminine de football des moins de 17 ans (N/A, Fri, 23 Oct 2026 10:40:00 -0700)
+
+- **Coupe du Monde FIFA U17 Maroc-2026 (3ème journée): composition du Maroc face à l'Argentine**: [Link](https://frmf.ma/fr/articles/coupe-du-monde-fifa-u17-maroc-2026-composition-du-maroc-face-a-largentine)
+- **Coupe du Monde Féminine U-17 de la FIFA 2026 : Rabat, au cœur du football féminin mondial**: [Link](https://www.cafonline.com/fr/football-feminin/infos/coupe-du-monde-feminine-u-17-de-la-fifa-2026-rabat-au-coeur-du-football-feminin-mondial/)
+- **Maroc - Argentine : choc décisif pour la qualification au Mondial U17 féminin**: [Link](https://www.yabiladi.com/articles/details/205540/maroc--argentine-choc-decisif-pour.html)
+
+
 ### مطار (N/A, Fri, 23 Oct 2026 08:00:00 -0700)
 
 - **"اختار القتال بدلا من الفرار".. طائر يهاجم الركاب داخل مطار شيكاغو**: [Link](https://www.aljazeera.net/misc/2026/10/22/%D8%A7%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%82%D8%AA%D8%A7%D9%84-%D8%A8%D8%AF%D9%84%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B1-%D8%B7%D8%A7%D8%A6%D8%B1)
