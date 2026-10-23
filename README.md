@@ -1,3 +1,38 @@
+### نادي برشلونة (N/A, Fri, 23 Oct 2026 14:50:00 -0700)
+
+- **"سيبحث عن الانتقام".. رودري يرفع حرارة الكلاسيكو برسالة نارية لريال مدريد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D8%A8%D8%AD%D8%AB-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%85--%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%8A%D8%B1%D9%81%D8%B9-%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A8%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt2d35ace9c5fd1b9f)
+- **"كلاسيكو ناري" يجمع برشلونة والريال**: [Link](https://www.hespress.com/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%86%D8%A7%D8%B1%D9%8A-%D9%8A%D8%AC%D9%85%D8%B9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-1827398.html)
+- **12 هدفا وملامح جديدة.. هل تكفي صحوة ريال مدريد لإسقاط برشلونة؟**: [Link](https://www.aljazeera.net/sport/2026/10/22/12-%D9%87%D8%AF%D9%81%D8%A7-%D9%88%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%87%D9%84-%D8%AA%D9%83%D9%81%D9%8A-%D8%B5%D8%AD%D9%88%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84)
+
+
+### راتب (N/A, Fri, 23 Oct 2026 14:40:00 -0700)
+
+- **رسميا.. الوداد يعلن عن مدربه الجديد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF/bltfa135fc68e4d735b)
+- **الوداد المغربي يقيل مدربه بريتو.. ويعين التونسي نابي**: [Link](https://www.aljazeera.net/sport/2026/10/23/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%82%D9%8A%D9%84-%D9%85%D8%AF%D8%B1%D8%A8%D9%87-%D8%A8%D8%B1%D9%8A%D8%AA%D9%88-%D9%88%D9%8A%D8%B9%D9%8A%D9%86)
+- **الوداد يعلن نهاية تجربة المدرب البرتغالي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D8%B9%D9%84%D9%86-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA-1827213.html)
+
+
+### classement al qadisiya – al-hilal (N/A, Fri, 23 Oct 2026 13:20:00 -0700)
+
+- **Al Qadsiah vs Al Hilal: Saudi Pro League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cq1m4pk2gzent)
+- **Video: A surprise blow: Martinelli stuns Al-Hilal against Al-Qadsiah**: [Link](https://www.livescore.com/en/news/football/more/video-a-surprise-blow-martinelli-stuns-al-hilal-against-al-qadsiah-goal/)
+- **"Not the most important match": Inzaghi reveals the trick that led Al-Hilal to victory over Al-Qadsiah**: [Link](https://www.goal.com/en-za/news/not-the-most-important-match-inzaghi-reveals-the-trick-that-led-al-hilal-to-victory-over-al-qadsiah/blt8b4b9c2e0f39df62)
+
+
+### الرجاء (N/A, Fri, 23 Oct 2026 12:50:00 -0700)
+
+- **خيميز تحت ضغط “دونور”**: [Link](https://assabah.ma/957439.html)
+- **كأس الكونفدرالية الإفريقية لكرة القدم (الدور التمهيدي الثاني-إياب).. الرجاء الرياضي والجيش الملكي يخوضان حسم التأهل بملعبهما**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D9%85%D9%87%D9%8A%D8%AF%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%A5%D9%8A%D8%A7%D8%A8-20261022)
+- **​حقيقة توقيف نجم الرجاء لمباراتين من طرف "الكاف".. مصدر من داخل النادي يحسم الجدل!**: [Link](https://radiomars.ma/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86%D9%8A-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A/)
+
+
+### كهرباء (N/A, Fri, 23 Oct 2026 11:20:00 -0700)
+
+- **تفاصيل الإعفاء من الضريبة على الدخل ورفع قيمة المعاش والدعم المباشر**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D8%A5%D8%B9%D9%81%D8%A7%D8%A1-%D9%85%D9%86-%D8%A7%D9%84%D8%B6%D8%B1%D9%8A%D8%A8%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF%D8%AE%D9%84-%D9%88%D8%B1-1827817.html)
+- **100 درهم على كل سيجارة إلكترونية.. مشروع المالية يوسع ضرائب منتجات التدخين الجديدة**: [Link](https://ar.telquel.ma/%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-2027-%D9%8A%D9%81%D8%AA%D8%AD-%D8%B3%D9%82%D9%81-190-5-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87%D9%85-%D9%84%D8%AA%D8%AC%D9%87/)
+- **لقجع يكشف إجراءات مالية جديدة تشمل الأجور ومعاشات التقاعد**: [Link](https://assabah.ma/957771.html)
+
+
 ### brest – nice (N/A, Fri, 23 Oct 2026 11:50:00 -0700)
 
 - **DIRECT. Brest-Nice: Ajorque profite d'une énorme erreur et lance les Brestois**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-brest-nice-suivez-le-match-de-la-8e-journee-de-ligue-1-en-live_LS-202610230671.html)
