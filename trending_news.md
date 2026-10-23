@@ -1,3 +1,73 @@
+### مطار (N/A, Fri, 23 Oct 2026 08:00:00 -0700)
+
+- **"اختار القتال بدلا من الفرار".. طائر يهاجم الركاب داخل مطار شيكاغو**: [Link](https://www.aljazeera.net/misc/2026/10/22/%D8%A7%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A7%D9%84%D9%82%D8%AA%D8%A7%D9%84-%D8%A8%D8%AF%D9%84%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B1-%D8%B7%D8%A7%D8%A6%D8%B1)
+- **«ضيف غير مرغوب» يثير الفوضى في مطار أوهير الدولي في شيكاغو!**: [Link](https://www.okaz.com.sa/variety/na/2271663)
+- **فوضى في مطار شيكاغو.. ببغاء يطارد المسافرين ويهاجمهم (فيديو)**: [Link](https://www.eremnews.com/entertainment/ff16x1r)
+
+
+### al nassr (N/A, Fri, 23 Oct 2026 07:50:00 -0700)
+
+- **Al Faisaly vs Al Nassr: Saudi Pro League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c65ynpxe8488t)
+- **Postecoglou abandons the Jesus bet in Al-Nassr's line-up against Al-Faisaly!**: [Link](https://www.goal.com/en/news/postecoglou-abandons-the-jesus-gamble-in-al-nassr-s-line-up-against-al-faisaly/blt1cebfe2aa2c9156f)
+- **Al-Faisaly vs. Al-Nassr Lineup Today: Is Cristiano Ronaldo Playing?**: [Link](https://malaysia.news.yahoo.com/al-faisaly-vs-al-nassr-103859005.html)
+
+
+### جياني إنفانتينو (N/A, Fri, 23 Oct 2026 07:50:00 -0700)
+
+- **أعلن دعمه رسميا.. تحول لافت في موقف الاتحاد الآسيوي تجاه إنفانتينو**: [Link](https://www.aljazeera.net/sport/2026/10/23/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A2%D8%B3%D9%8A%D9%88%D9%8A-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%81%D9%8A%D9%81%D8%A7)
+- **من التمرد إلى الولاء.. تحول مفاجئ يقلب حسابات رئاسة فيفا لصالح إنفانتينو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D9%85%D8%B1%D8%AF-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D8%A1--%D8%AA%D8%AD%D9%88%D9%84-%D9%85%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%8A%D9%82%D9%84%D8%A8-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D9%94%D8%A7%D8%B3%D8%A9-%D9%81%D9%8A%D9%81%D8%A7-%D9%84%D8%B5%D8%A7%D9%84%D8%AD-%D8%A7%D9%95%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88/blt30f106b5e9b39b52)
+- **الاتحاد الآسيوي يؤيد إعادة انتخاب إنفانتينو رئيسا للفيفا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261023-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A2%D8%B3%D9%8A%D9%88%D9%8A-%D9%8A%D8%A4%D9%8A%D8%AF-%D8%A5%D8%B9%D8%A7%D8%AF%D8%A9-%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D8%B1%D8%A6%D9%8A%D8%B3%D8%A7-%D9%84%D9%84%D9%81%D9%8A%D9%81%D8%A7)
+
+
+### مايكل كاريك (N/A, Fri, 23 Oct 2026 07:10:00 -0700)
+
+- **7 مرشحين لخلافة مايكل كاريك في تدريب مانشستر يونايتد**: [Link](https://www.aljazeera.net/sport/2026/10/23/7-%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D8%AE%D9%84%D8%A7%D9%81%D8%A9-%D9%85%D8%A7%D9%8A%D9%83%D9%84-%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%81%D9%8A-%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8)
+- **بطولة إنكلترا: كاريك تحت الضغط في مانشستر يونايتد وفورة برايتون تصطدم بليفربول**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261023-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D9%81%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%88%D9%81%D9%88%D8%B1%D8%A9-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D8%AA%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+- **كاريك يقترب من الإقالة... 3 مدربين مرشحين لقيادة مانشستر يونايتد**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A5%D9%82%D8%A7%D9%84%D8%A9-3-%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF)
+
+
+### نادي الرجاء الرياضي (N/A, Fri, 23 Oct 2026 06:50:00 -0700)
+
+- **خيميز تحت ضغط “دونور”**: [Link](https://assabah.ma/957439.html)
+- **كأس الكونفدرالية الإفريقية لكرة القدم (الدور التمهيدي الثاني-إياب).. الرجاء الرياضي والجيش الملكي يخوضان حسم التأهل بملعبهما**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D9%85%D9%87%D9%8A%D8%AF%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%A5%D9%8A%D8%A7%D8%A8-20261022)
+- **​حقيقة توقيف نجم الرجاء لمباراتين من طرف "الكاف".. مصدر من داخل النادي يحسم الجدل!**: [Link](https://radiomars.ma/%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%AA%D9%88%D9%82%D9%8A%D9%81-%D8%B2%D9%8A%D8%AF%D8%A7%D9%86%D9%8A-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D9%86-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A/)
+
+
+### الفيصلي ضد النصر (N/A, Fri, 23 Oct 2026 06:20:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الفيصلي والنصر في دوري روشن السعودي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt56ee1bf9bf37d30b)
+- **مباشر.. مباراة النصر ضد الفيصلي في الدوري السعودي**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/23/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%B6%D8%AF-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A)
+- **عين على الحكم | لم يتأثر بتذمر رونالدو ولكن .. خطأ داخل المنطقة وركلة جزاء مرفوضة بين الفيصلي والنصر!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%B9%D9%88%D9%8A%D8%AF%D8%A7%D9%86-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%AC%D9%88%D8%A7%D9%88-%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88/blt2a3242acc94313fe)
+
+
+### درك (N/A, Fri, 23 Oct 2026 06:10:00 -0700)
+
+- **النعمة.. الدرك يعلن يضبط 4500 لتر من البنزين كانت معدة للتهريب %**: [Link](https://saharamedias.net/267535/)
+- **الدرك يضبط نحو 7 أطنان من المحروقات داخل منزل في سيليبابي**: [Link](https://aqlame.com/node/44183)
+- **الدرك الوطني يضبط 4500 لتر من البنزين بمدينة النعمة**: [Link](https://alwiam.info/ar/52766)
+
+
+### al faisaly – al-nassr fc (N/A, Fri, 23 Oct 2026 06:00:00 -0700)
+
+- **John Murtough, former Manchester United director of football,...**: [Link](https://www.espn.com/contributor/mark-ogden/a57802498e6e2)
+- **Al Faisaly vs. Al Nassr (23 Oct, 2026) Team Stats**: [Link](https://www.espn.in/football/team-stats/_/gameId/401900444/league/ksa.1)
+- **Always Ready 1-1 Strongest (23 Oct, 2026) Team Stats**: [Link](https://www.espn.com.sg/football/team-stats/_/gameId/401929987/league/bol.copa)
+
+
+### trappes (N/A, Fri, 23 Oct 2026 05:20:00 -0700)
+
+- **Tirs à Trappes et à La Verrière : Laurent Nuñez dénonce « un crime terroriste » après l’attaque qui a fait un mort et quatre blessés**: [Link](https://www.lemonde.fr/societe/article/2026/10/23/dans-les-yvelines-un-mort-et-quatre-blesses-dans-une-fusillade-le-parquet-national-antiterroriste-en-observation-annonce-sebastien-lecornu_6799057_3224.html)
+- **DIRECT. Tirs mortels à Trappes: l'image de l'interpellation du suspect Kevin T.**: [Link](https://www.bfmtv.com/police-justice/direct-tirs-mortels-a-trappes-le-suspect-interpelle-le-parquet-national-antiterroriste-saisit_LN-202610230449.html)
+- **EN DIRECT Fusillade dans les Yvelines : Laurent Nunez confirme « un crime t…**: [Link](https://www.20minutes.fr/faits_divers/4256965-20261023-direct-fusillade-yvelines-suspect-garde-vue-parquet-antiterroriste-saisi)
+
+
+### خطبة الجمعة (N/A, Fri, 23 Oct 2026 05:20:00 -0700)
+
+- **لا ترسل رسالة وأنت غاضب ولا تتخذ قرارًا مصيريًا.. أزهري يوجه رسالة للمسلمين**: [Link](https://twaslnews1.twaslnews.com/6452550/)
+- **خطبة الجمعة الثانية من جمادى الأول 1448.. الكلمة الطيبة واحترام الخصوصية أبرز رسائل الأوقاف**: [Link](https://www.cairo24.com/2516229)
+- **موضوع خطبة الجمعة اليوم.. أئمة الأوقاف يتحدثون عن قيمة يجب الالتزام بها في الحياة اليومية**: [Link](https://www.mobtada.com/egypt/1662150/%D9%85%D9%88%D8%B6%D9%88%D8%B9-%D8%AE%D8%B7%D8%A8%D8%A9-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A3%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%82%D8%A7%D9%81-%D9%8A%D8%AA%D8%AD%D8%AF%D8%AB%D9%88%D9%86-%D8%B9%D9%86-%D9%82%D9%8A%D9%85%D8%A9-%D9%8A%D8%AC%D8%A8-%D8%A7%D9%84%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85-%D8%A8%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AD%D9%8A%D8%A7%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85%D9%8A%D8%A9)
+
+
 ### هسبورت (N/A, Fri, 23 Oct 2026 02:10:00 -0700)
 
 - **بيتر شمايكل ينتقد أداء نصير مزراوي**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D8%AA%D8%B1-%D8%B4%D9%85%D8%A7%D9%8A%D9%83%D9%84-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%A3%D8%AF%D8%A7%D8%A1-%D9%86%D8%B5%D9%8A%D8%B1-%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-1827399.html)
