@@ -1,3 +1,31 @@
+### هسبورت (N/A, Fri, 23 Oct 2026 02:10:00 -0700)
+
+- **بيتر شمايكل ينتقد أداء نصير مزراوي**: [Link](https://www.hespress.com/%D8%A8%D9%8A%D8%AA%D8%B1-%D8%B4%D9%85%D8%A7%D9%8A%D9%83%D9%84-%D9%8A%D9%86%D8%AA%D9%82%D8%AF-%D8%A3%D8%AF%D8%A7%D8%A1-%D9%86%D8%B5%D9%8A%D8%B1-%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-1827399.html)
+- **فابريجاس: قلت للاعبي كومو ارحموا مانشستر يونايتد.. لكني ندمت!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%A7%D8%A8%D8%B1%D9%8A%D8%AC%D8%A7%D8%B3-%D9%82%D9%84%D8%AA-%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D9%83%D9%88%D9%85%D9%88-%D8%A7%D8%B1%D8%AD%D9%85%D9%88%D8%A7-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF--%D9%84%D9%83%D9%86%D9%8A-%D9%86%D8%AF%D9%85%D8%AA/blt39b70005f079570c)
+- **بعد 17 عاما من إنجاز ميسي.. نيكو باز يكتب التاريخ في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/10/22/%D8%A8%D8%B9%D8%AF-17-%D8%B9%D8%A7%D9%85%D8%A7-%D9%85%D9%86-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D9%85%D9%8A%D8%B3%D9%8A-%D9%86%D9%8A%D9%83%D9%88-%D8%A8%D8%A7%D8%B2-%D9%8A%D9%83%D8%AA%D8%A8)
+
+
+### زيتون (N/A, Fri, 23 Oct 2026 01:30:00 -0700)
+
+- **من ساحة خردة إلى مزرعة بإربد.. إحباط عملية احتيال بزيت الزيتون في الأردن**: [Link](https://www.aljazeera.net/politics/2026/10/22/%D9%85%D9%86-%D8%B3%D8%A7%D8%AD%D8%A9-%D8%AE%D8%B1%D8%AF%D8%A9-%D8%A5%D9%84%D9%89-%D9%85%D8%B2%D8%B1%D8%B9%D8%A9-%D8%A8%D8%A5%D8%B1%D8%A8%D8%AF-%D8%A5%D8%AD%D8%A8%D8%A7%D8%B7)
+- **«الزيت المغشوش» يثير جدلاً في الأردن**: [Link](https://www.alkhaleej.ae/2026-10-22/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%A7%D9%84%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B4%D9%88%D8%B4-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%AC%D8%AF%D9%84%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86)
+- **بين ضبط الغشّاش وحكاية الزيت من الثمرة الى التنكة**: [Link](https://www.ammonnews.net/article/1038824)
+
+
+### العملة (N/A, Thu, 22 Oct 2026 23:30:00 -0700)
+
+- **التحليل الفني لسعر صرف الدرهم الإماراتي مقابل الجنيه المصري: ارتفاع 1.71% يضع السعر أمام قمة سنوية جديدة**: [Link](https://arab.dailyforex.com/forex-technical-analysis/2026/10/%D8%A7%D9%84%D8%AA%D8%AD%D9%84%D9%8A%D9%84-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D9%84%D8%B3%D8%B9%D8%B1-%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%86%D9%8A%D9%87-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-171-%D9%8A%D8%B6%D8%B9-%D8%A7%D9%84%D8%B3%D8%B9%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D9%82%D9%85%D8%A9-%D8%B3%D9%86%D9%88%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9/251041)
+- **سعر الدرهم الإماراتي اليوم 23 أكتوبر 2026 في البنوك**: [Link](https://www.mobtada.com/economy/1662120/%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D9%85-23-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D9%86%D9%88%D9%83)
+- **أسعار صرف الدرهم الإماراتي أمام العملات العالمية والعربية.. اليوم الجمعة**: [Link](https://www.mubasher.info/news/4689227/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%B5%D8%B1%D9%81-%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D8%A7%D9%84%D8%A5%D9%85%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9/)
+
+
+### drone (N/A, Thu, 22 Oct 2026 22:30:00 -0700)
+
+- **Massive strikes hit Kyiv hours after Putin agrees to fresh peace talks**: [Link](https://www.cnn.com/2026/10/21/europe/us-envoy-witkoff-putin-talks-russia-ukraine-intl)
+- **Russia and Ukraine trade fresh strikes despite renewed push for U.S.-brokered peace talks**: [Link](https://www.cnbc.com/2026/10/23/russia-ukraine-strikes-peace-talks.html)
+- **Russian missiles pound Kyiv as Moscow says over 800 Ukrainian drones downed**: [Link](https://www.pbs.org/newshour/world/russian-missiles-pound-kyiv-as-moscow-says-over-800-ukrainian-drones-downed)
+
+
 ### facebook (N/A, Thu, 22 Oct 2026 22:00:00 -0700)
 
 - **How a Legal Backlash Against Big Tech Is Forcing Big Changes**: [Link](https://www.nytimes.com/2026/10/22/technology/tech-lawsuit-settlements-meta-google.html)
