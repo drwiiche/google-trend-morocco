@@ -1,3 +1,10 @@
+### facebook (N/A, Thu, 22 Oct 2026 22:00:00 -0700)
+
+- **How a Legal Backlash Against Big Tech Is Forcing Big Changes**: [Link](https://www.nytimes.com/2026/10/22/technology/tech-lawsuit-settlements-meta-google.html)
+- **‘Just the beginning’: New Mexico AG warns AI industry after $25B Meta ruling**: [Link](https://www.politico.com/news/2026/10/22/just-the-beginning-new-mexico-ag-warns-ai-industry-after-25b-meta-ruling-01133294)
+- **Meta shocked by $25B fine after N.M. refused to join multistate settlement**: [Link](https://arstechnica.com/tech-policy/2026/10/meta-whines-new-mexico-is-impossible-to-please-after-historic-25-billion-fine/)
+
+
 ### failles php (N/A, Thu, 22 Oct 2026 16:30:00 -0700)
 
 
