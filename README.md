@@ -1,3 +1,31 @@
+### الاتحاد الإفريقي (N/A, Sat, 24 Oct 2026 15:00:00 -0700)
+
+- **اختتام المشاورات بنيويورك بين مجلس السلم والأمن والهيئات الأممية بمشاركة المغرب**: [Link](https://2m.ma/ar/news/%D8%A7%D8%AE%D8%AA%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A8%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%A8%D9%8A%D9%86-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B3%D9%84%D9%85-%D9%88%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%88%D8%A7%D9%84%D9%87%D9%8A%D8%A6%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%85%D9%8A%D8%A9-20261024)
+- **المغرب يجدد دعمه للشراكة الإفريقية الأممية لترسيخ السلم والأمن بالقارة**: [Link](https://assabah.ma/957468.html)
+- **الأمم المتحدة.. عروشي يكشف الدور المحوري للشباب الإفريقي في منع النزاعات وتسويتها – مجتمع**: [Link](https://anbaetv.ma/1193078)
+
+
+### ريد بولز ضد إنتر ميامي (N/A, Sat, 24 Oct 2026 15:00:00 -0700)
+
+- **ما القنوات الناقلة لمباراة نيويورك ريد بولز وإنتر ميامي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%B1%D9%8A%D8%AF-%D8%A8%D9%88%D9%84%D8%B2-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt57153f0dbb8983ac)
+- **مباشر.. مباراة نيويورك رد بولز وإنتر ميامي في الدوري الأمريكي**: [Link](https://www.eremnews.com/sports/fskyzce)
+- **تشكيلة مباراة نيويورك ريدبول وإنتر ميامي | الدوري الأمريكي لكرة القدم · 25 أكتوبر 2026**: [Link](https://www.ysscores.com/ar/lineup/5071445/New-York-Red-Bulls-vs-Inter-Miami-CF)
+
+
+### la tempête austen (N/A, Sat, 24 Oct 2026 14:00:00 -0700)
+
+- **Tempêtes météo et tempêtes sociales : perturbations dans les transports publics vendredi et ce week-end**: [Link](https://medias24.com/agence-presse/tempetes-meteo-et-tempetes-sociales-perturbations-dans-les-transports-publics-vendredi-et-ce-week-end/)
+- **Tempête Austen : 72 000 foyers restent toujours privés d'électricité, selon Enedis**: [Link](https://www.franceinfo.fr/environnement/evenements-meteorologiques-extremes/tempete-austen-72-000-foyers-restent-toujours-prives-d-electricite-selon-enedis_8252422.html)
+- **Tempête Austen : vents violents ce vendredi sur le Nord-Ouest du pays**: [Link](https://meteofrance.com/actualites/tempete-austen-vents-violents-ce-vendredi-sur-le-nord-ouest-du-pays)
+
+
+### liga (N/A, Sat, 24 Oct 2026 12:10:00 -0700)
+
+- **Yamal, Mbappe in El Clasico spotlight as 40 cameras dedicated to coverage**: [Link](https://www.aljazeera.com/sports/2026/10/23/yamal-mbappe-in-el-clasico-spotlight-as-40-cameras-dedicated-to-coverage)
+- **After the "Guler elbow" controversy: La Liga prepares an unprecedented surprise in the Clasico**: [Link](https://www.goal.com/en/news/after-the-controversy-over-gueler-s-elbow-la-liga-prepares-an-unprecedented-surprise-in-el-clasico/blta3e3694bb2a7bac9)
+- **La Liga Prepares A Groundbreaking Television Setup For El Clásico**: [Link](https://www.sportscapemagazine.com/blog/laliga-groundbreaking-television-setup-spotify-camp-nou)
+
+
 ### مالية (N/A, Sat, 24 Oct 2026 14:10:00 -0700)
 
 - **زيادات ضريبية تنتظر السيارات الفاخرة .. وإعفاءات لـ"مركبات المونديال"**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%B6%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D8%A7%D8%AE%D8%B1%D8%A9-1828152.html)
