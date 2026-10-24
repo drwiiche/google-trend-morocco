@@ -1,3 +1,66 @@
+### lens – paris fc (N/A, Sat, 24 Oct 2026 11:50:00 -0700)
+
+- **Ligue 1 : compos probables pour Lens – Paris FC à 20h45, sans Sima mais face à un Sinayoko en feu**: [Link](https://www.sport.fr/football/ligue-1-compos-probables-pour-lens-paris-fc-a-20h45-sans-sima-mais-face-a-un-sinayoko-en-feu-1493131.shtm)
+- **Yannick Cahuzac : « Soit on se plaint et on ne fait que pleurer, soit on travaille avec nos forces vives et on part de l'avant**: [Link](https://www.lensois.com/yannick-cahuzac-soit-on-se-plaint-et-on-ne-fait-que-pleurer-soit-on-travaille-avec-nos-forces-vives-et-on-part-de-lavant/)
+- **Kevin Trapp souffrant et absent de la feuille de match, Jean-Clair Todibo titulaire : les compositions de Lens - Paris FC**: [Link](https://www.lequipe.fr/Football/Actualites/Kevin-trapp-souffrant-et-absent-de-la-feuille-de-match-jean-clair-todibo-titulaire-les-compositions-de-lens-paris-fc/1738390)
+
+
+### fc barcelone – granada club de fútbol (N/A, Sat, 24 Oct 2026 11:40:00 -0700)
+
+- **Barcelona - Granada, en directo: el partido de la Liga F, en vivo hoy**: [Link](https://www.sport.es/es/noticias/barca/futbol-femenino/barcelona-granada-directo-partido-liga-135721162)
+- **Adrián Martín dice que es “un reto muy difícil” jugar “ante el mejor equipo del mundo”**: [Link](https://www.granadahoy.com/granadacf/adrian-martin-dice-reto-dificil_0_2008322085.html)
+- **Octava jornada de la Liga F Moeve | Horarios de la jornada**: [Link](https://www.elsevillista.es/2026/10/octava-jornada-de-la-liga-f-moeve.html?m=1)
+
+
+### dortmund (N/A, Sat, 24 Oct 2026 11:40:00 -0700)
+
+- **Beier mit Auge: BVB bringt sich vor dem Bundesliga-Knaller in Stellung**: [Link](https://www.kicker.de/dortmund-gegen-frankfurt-2026-bundesliga-5226863/spielbericht)
+- **"Klares Treten in die Achillessehne": Strittige Elfmeter-Szene zwischen BVB und Frankfurt**: [Link](https://www.sport1.de/news/fussball/bundesliga/2026/10/strittige-elfer-szene-zwischen-dortmund-und-frankfurt)
+- **~⚡️"【UHR-LIVE】 Dortmund gegen Eintracht Frankfurt live im TV und Stream zu sehen 22. Oktober 2026**: [Link](https://www.town.shodoshima.lg.jp/section/VR_choseiyoran/shodoshima349.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2dvcmVsYXgyNDcuY29tL3B4LyIvPjwva3JwYW5vPg==&id=live_stream_movsar_evloev_fight_live_free_broadcast_on_tv_channel_24_october_6)
+
+
+### serie a (N/A, Sat, 24 Oct 2026 11:30:00 -0700)
+
+- **Doppiette di McTominay e Balerdi, Allegri espulso: Napoli-Roma show. Ma ora Inter e Lazio possono allungare**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Napoli/24-10-2026/napoli-roma-live-gol-e-risultato-in-diretta-serie-a.shtml)
+- **~!#🧨◀▶🧨[IN~diretta]Napoli - Roma in diretta streaming in 24 de octubre de 2026**: [Link](https://www.fctokyo.co.jp/en/panorama/back_sb.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2h1bWF5cmFrdGVyLmdpdGh1Yi5pby92aWRlby9zLnhtbCIvPjwva3JwYW5vPg==&id=video-napoli-roma-ita-16)
+- **Napoli - Roma: Allegri ha scelto la formazione che scenderà in campo al Maradona alle ore 18:00. Rrhamani assente per stato influenzale**: [Link](https://www.virgilio.it/italia/napoli/notizielocali/napoli_roma_allegri_ha_scelto_la_formazione_che_scender_in_campo_al_maradona_alle_ore_18_00_rrhamani_assente_per_stato_influenzale-77547253.html)
+
+
+### atlético madrid – deportivo (N/A, Sat, 24 Oct 2026 11:20:00 -0700)
+
+- **🚨 ONCES del Atleti-Deportivo: ¡Giuliano y Jonathan David descansan!**: [Link](https://es-us.noticias.yahoo.com/deportes/onces-atleti-deportivo-giuliano-jonathan-174300454.html)
+- **Julián Alvarez, Kang in y Lookman, en el once atlético; Giménez, titular en el Deportivo**: [Link](https://www.infobae.com/espana/agencias/2026/10/24/julian-alvarez-kang-in-y-lookman-en-el-once-atletico-gimenez-titular-en-el-deportivo/)
+- **Descubre las alineaciones titulares del Atlético de Madrid-RC Deportivo**: [Link](https://www.atleticodemadrid.com/noticias/descubre-las-alineaciones-titulares-del-atletico-de-madrid-rc-deportivo)
+
+
+### ياسر زبيري (N/A, Sat, 24 Oct 2026 10:30:00 -0700)
+
+- **الزابيري يعيد سانتاندر إلى سكة الانتصارات**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D8%B9%D9%8A%D8%AF-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D8%B1-%D8%A5%D9%84%D9%89-%D8%B3%D9%83%D8%A9-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%B5-1828340.html)
+- **زابيري يواصل هز الشباك ويرفع رصيده إلى 8 أهداف في "الليغا"**: [Link](https://www.elbotola.com/article/2026-10-24-17-08-572.html)
+- **8 أهداف في 10 مباريات… الزابيري يتجاوز التوقعات ويُزاحم كبار هدافي « الليغا » – اليوم 24**: [Link](https://alyaoum24.com/2052805.html)
+
+
+### نادي الرجاء الرياضي (N/A, Sat, 24 Oct 2026 10:00:00 -0700)
+
+- **الرجاء يهزم إل كانيمي ويبلغ دور المجموعات بكأس الكونفدرالية الإفريقية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%87%D8%B2%D9%85-%D8%A5%D9%84-%D9%83%D8%A7%D9%86%D9%8A%D9%85%D9%8A-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88-1828019.html)
+- **كأس الكونفدرالية الإفريقية لكرة القدم (الدور التمهيدي الثاني-إياب).. الرجاء الرياضي والجيش الملكي يخوضان حسم التأهل بملعبهما**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D9%85%D9%87%D9%8A%D8%AF%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%A5%D9%8A%D8%A7%D8%A8-20261022)
+- **خيميز يفاجئ جماهير الرجاء.. هذا ما حسم مصير لحرار والنفاتي!**: [Link](https://radiomars.ma/%D8%AE%D9%8A%D9%85%D9%8A%D8%B2-%D9%8A%D9%81%D8%A7%D8%AC%D8%A6-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D8%AD%D8%B3%D9%85-%D9%85/)
+
+
+### فالنسيا ضد فياريال (N/A, Sat, 24 Oct 2026 09:50:00 -0700)
+
+- **تشكيل فالنسيا ضد فياريال في الدوري الإسباني .. موقف ديانج**: [Link](https://elbaladtv.net/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%B6%D8%AF-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84)
+- **الدوري الإسباني، فالنسيا يتقدم 1-0 أمام فياريال في الشوط الأول**: [Link](https://www.vetogate.com/5756831)
+- **الدوري الإسباني، فياريال يخطف فوزا قاتلا 2-1 على حساب مضيفه فالنسيا**: [Link](https://www.vetogate.com/5756880)
+
+
+### classement arsenal – everton (N/A, Sat, 24 Oct 2026 09:20:00 -0700)
+
+- **Suivez Arsenal - Everton En direct - Premier League - 8e journée**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/live-arsenal-everton_mtc21883327/live-commentary.shtml)
+- **Angleterre: Arsenal bat Everton et rejoint Manchester City en tête**: [Link](https://sport.le360.ma/football/premier-league/angleterre-arsenal-bat-everton-et-rejoint-manchester-city-en-tete_IJER6IXURJHDLGDBXPCY6MNJVU/)
+- **Van Dijk dépassé : Gabriel rivalise avec les attaquants depuis l'axe de la défense**: [Link](https://www.goal.com/fr/news/van-dijk-depasse-gabriel-rivalise-avec-les-attaquants-depuis-l-axe-de-la-defense/bltd7a11816fcbe3d0b)
+
+
 ### تشيلسي ضد توتنهام (N/A, Sat, 24 Oct 2026 09:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة تشيلسي وتوتنهام في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte7b56c4715521840)
