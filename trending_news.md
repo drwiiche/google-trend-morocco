@@ -1,3 +1,73 @@
+### تشيلسي ضد توتنهام (N/A, Sat, 24 Oct 2026 09:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة تشيلسي وتوتنهام في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte7b56c4715521840)
+- **تقنية التعرّف على الوجوه المدعومة بمعلومات استخباراتية في ديربي لندن**: [Link](https://www.alaraby.co.uk/sport/%D8%AA%D9%82%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D8%B1%D9%91%D9%81-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%88%D8%AC%D9%88%D9%87-%D8%A7%D9%84%D9%85%D8%AF%D8%B9%D9%88%D9%85%D8%A9-%D8%A8%D9%85%D8%B9%D9%84%D9%88%D9%85%D8%A7%D8%AA-%D8%A7%D8%B3%D8%AA%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA%D9%8A%D8%A9-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D9%84%D9%86%D8%AF%D9%86)
+- **القناة الناقلة لمباراة توتنهام وتشيلسي اليوم في الدوري الإنجليزي**: [Link](https://twaslnews1.twaslnews.com/6515341/)
+
+
+### chelsea (N/A, Sat, 24 Oct 2026 09:30:00 -0700)
+
+- **Chelsea v Tottenham: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/oct/24/chelsea-v-tottenham-premier-league-live)
+- **Xabi Alonso confirms Chelsea team news for Tottenham | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/xabi-alonso-confirms-chelsea-team-news-for-tottenham)
+- **Roberto De Zerbi defends Spurs' 'high level' medical staff amid injury crisis**: [Link](https://www.espn.com/soccer/story/_/id/50261206/roberto-de-zerbi-spurs-medical-staff-injury-crisis)
+
+
+### napoli vs roma (N/A, Sat, 24 Oct 2026 09:20:00 -0700)
+
+- **Rrahmani è stanco, contro la Roma Allegri pensa alla difesa con Rafa Marin e Badiashile**: [Link](https://www.ilnapolista.it/2026/10/rrahmani-e-stanco-contro-la-roma-allegri-pensa-alla-difesa-con-rafa-marin-e-badiashile/)
+- **Napoli, dubbi verso la sfida con la Roma: Badiashile al posto di Rrahmani?**: [Link](https://www.fantacalcio.it/news/calcio-italia/23_10_2026/napoli-dubbi-verso-la-sfida-con-la-roma-badiashile-al-posto-di-rrahmani-499636)
+- **NAPOLI-ROMA, RRAHMANI RISCHIA LA PANCHINA: ALLEGRI VALUTA IL TURNOVER IN DIFESA**: [Link](https://www.napolicalcionews.it/news-calcio-napoli/Napoli-Roma--Rrahmani-rischia-la-panchina--Allegri-valuta-il-turnover-in-difesa-150904.aspx)
+
+
+### agriculture (N/A, Sat, 24 Oct 2026 09:00:00 -0700)
+
+- **Ahead of Tight Race, Trump Swaps Tariffs on Some Canadian Goods**: [Link](https://www.nytimes.com/2026/10/23/business/trump-susan-collins-canada-tariffs.html)
+- **Trump administration cancels some Canada tariffs amid close midterm races**: [Link](https://www.nbcnews.com/business/economy/trump-cancels-canada-tariffs-susan-collins-rcna605270)
+- **Trump lifts 50% tariffs on some Canadian goods in boon to Maine Sen. Susan Collins**: [Link](https://www.cbsnews.com/news/trump-tariffs-some-canadian-goods-susan-collins-maine/)
+
+
+### chelsea – tottenham (N/A, Sat, 24 Oct 2026 08:50:00 -0700)
+
+- **𝐻𝐸𝑅𝐸;𝒮 watch free Shanghai Open Final: Chelsea vs Tottenham WSL 𝐋𝐈𝐕𝐄 Ｆｒｅｅ 𝐒𝐭𝐑𝐞𝐀𝐦 On 29 July 2026**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-chelsea-vs-tottenham-wsl-liv-str-xjpkesr)
+- **【FS1-FUBO/LIVESTREAMS】 Chelsea vs Tottenham 𝐋𝐈𝐕𝐄 fRee**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-chelsea-vs-tottenham-match-lie-fdgwbyc)
+- **[WATCHLIVE]GAME] Tottenham Women v Chelsea Women Live Free**: [Link](https://www.uco.es/scai/visita_virtual/SCAI%20UCO.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vbGVvZ29hdHMuZ2l0aHViLmlvL2JmLmVkdS91am0ueG1sIi8+PC9rcnBhbm8+&id=video-tottenham-women-v-chelsea-women-liv-str-conlgvu)
+
+
+### real madrid vs barcelona (N/A, Sat, 24 Oct 2026 08:30:00 -0700)
+
+- **El Barça apunta a otro récord de recaudación en el clásico**: [Link](https://www.sport.es/es/noticias/barca/barca-apunta-record-recaudacion-clasico-135683654)
+- **Las posibles alineaciones de Barcelona y Real Madrid para el Clásico**: [Link](https://www.si.com/es-us/las-posibles-alineaciones-de-barcelona-y-real-madrid-para-el-clasico)
+- **Las claves del Clásico**: [Link](https://onefootball.com/es/noticias/las-claves-del-clasico-43664874)
+
+
+### naples – roma (N/A, Sat, 24 Oct 2026 08:20:00 -0700)
+
+- **Probable Formation: Napoli vs Roma**: [Link](https://www.chiesaditotti.com/roma-matchday-coverage/43946/probable-formation-napoli-vs-roma)
+- **Gasperini: ‘Cristante gives Roma different variables, victory would show strength’**: [Link](https://sports.yahoo.com/articles/gasperini-cristante-gives-roma-different-153500195.html)
+- **Allegri: "The match with Roma is important but not crucial."**: [Link](https://romapress.net/allegri-the-match-with-roma-is-important-but-not-crucial/)
+
+
+### rb leipzig vs sv elversberg (N/A, Sat, 24 Oct 2026 08:00:00 -0700)
+
+- **Halbzit-Gala von RB Leipzig schickt SV Elversberg in die Auswärtskrise**: [Link](https://www.sportschau.de/fussball/bundesliga/leipzigs-halbzeit-gala-schickt-elversberg-in-die-auswaertskrise,spielbericht-rb-leipzig-sv-elverberg-100.html)
+- **Stark! Baumgartner trifft bei Leipziger Heimerfolg**: [Link](https://www.laola1.at/de/red/fussball/international/deutschland/bundesliga/spielbericht/stark--baumgartner-trifft-bei-leipziger-heimerfolg/)
+- **Ball rollt | Leipzig – Elversberg | Bundesliga heute | Live-Ticker**: [Link](https://www.t-online.de/sport/live-ticker/fussball/bundesliga/sdc_fm-59342/ball-rollt-leipzig-elversberg-bundesliga-heute-live-ticker.html)
+
+
+### أشرف حكيمي (N/A, Sat, 24 Oct 2026 07:40:00 -0700)
+
+- **إنريكي: الكرة الذهبية لا تهمني.. ولن تؤثر على فريقي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D9%84%D8%A7-%D8%AA%D9%87%D9%85%D9%86%D9%8A--%D9%88%D9%84%D9%86-%D8%AA%D9%88%D9%94%D8%AB%D8%B1-%D8%B9%D9%84%D9%89-%D9%81%D8%B1%D9%8A%D9%82%D9%8A/bltb8666ae20b362621)
+- **مخاوف أمنية تؤجل مباراة سان جيرمان**: [Link](https://www.hespress.com/%D9%85%D8%AE%D8%A7%D9%88%D9%81-%D8%A3%D9%85%D9%86%D9%8A%D8%A9-%D8%AA%D8%A4%D8%AC%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-1827672.html)
+- **إضرابات واسعة ومظاهرات مليونية في فرنسا رفضا لرفع سن التقاعد**: [Link](https://ar.telquel.ma/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%AA%D8%B1%D8%A8%D9%83-%D8%A8%D8%B1%D9%85%D8%AC%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1/)
+
+
+### ufc (N/A, Sat, 24 Oct 2026 07:20:00 -0700)
+
+- **Live Now! UFC 333 ‘Volkanovski vs. Evloev’ play-by-play, results & round scoring**: [Link](https://www.sherdog.com/news/news/UFC-333-Volkanovski-vs-Evloev-playbyplay-results-round-scoring-203314)
+- **UFC 333: Volkanovski vs. Evloev watch-along live stream**: [Link](https://sports.yahoo.com/articles/ufc-333-volkanovski-vs-evloev-150130108.html)
+- **LIVE! UFC 333 Results: Volkanovski vs. Evloev**: [Link](https://www.mmafighting.com/ufc/517228/ufc-333-results-volkanovski-vs-evloev)
+
+
 ### arsenal – everton (N/A, Sat, 24 Oct 2026 06:10:00 -0700)
 
 - **'The other side' - David Moyes ponders what Mikel Arteta has taken from him**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/the-side-david-moyes-ponders-34809669)
