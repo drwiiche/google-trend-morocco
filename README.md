@@ -1,3 +1,31 @@
+### escroquerie (N/A, Sat, 24 Oct 2026 01:40:00 -0700)
+
+- **Fès: arrestation d’un escroc qui ciblait des hommes d’affaires, des ingénieurs et des médecins**: [Link](https://fr.le360.ma/societe/fes-arrestation-dun-escroc-qui-ciblait-des-hommes-daffaires-des-ingenieurs-et-des-medecins_C3IAP4BC2JDOVAPB35KNXRSJSM/)
+- **Une nonagénaire d’Avellino victime d’une escroquerie de 5 000 euros**: [Link](https://www.ilmattino.it/fr/une_nonagenaire_d_avellino_victime_d_une_escroquerie_de_5_000_euros-9844125.html)
+- **Escroquerie foncière présumée : Khady Diagne rattrapée par une nouvelle plainte**: [Link](https://www.seneweb.com/fr/news/Justice/escroquerie-fonciere-presumee-khady-diagne-rattrapee-par-une-nouvelle-plainte_n_999001416.html)
+
+
+### ثعبان (N/A, Sat, 24 Oct 2026 00:50:00 -0700)
+
+- **قبل الإقلاع بدقائق.. أفعى تحت سجادة الطائرة تتسبب في إلغاء رحلة باليابان**: [Link](https://www.okaz.com.sa/variety/na/2271901)
+- **اليابان .. تأجيل رحلة جوية بسبب ثعبان على متنها**: [Link](https://www.jordanzad.com/index.php?page=article&id=769309)
+- **لم يكن أحد يتوقع ما تحت سجادة الطائرة.. ثعبان يوقف رحلة في اليابان**: [Link](https://www.emaratalyoum.com/life/four-sides/2026-10-22-1.2095104)
+
+
+### مدرسة (N/A, Fri, 23 Oct 2026 23:30:00 -0700)
+
+- **نقابة تعليمية تقرر تعطيل الدراسة السبت**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D9%8A%D8%A9-%D8%AA%D9%82%D8%B1%D8%B1-%D8%AA%D8%B9%D8%B7%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8-1827798.html)
+- **عطلة السبت تعود إلى الواجهة.. هل حان الوقت لإعادة النظر في الزمن المدرسي بالمغرب؟**: [Link](https://www.akhbarona.com/education/434421.html)
+- **إلغاء الدراسة يوم السبت يعود إلى الواجهة..**: [Link](https://sabahagadir.ma/491532.html)
+
+
+### 2030 (N/A, Fri, 23 Oct 2026 23:20:00 -0700)
+
+- **FIFA launches tender of 2030 men's World Cup U.S. media rights, plans to choose winner by end of year**: [Link](https://www.cnbc.com/2026/10/22/fifa-launches-tender-of-us-world-cup-media-rights-for-2030.html)
+- **FIFA’s World Cup Rights Shake-Up Could Favor NBC Over Fox**: [Link](https://sports.yahoo.com/articles/fifa-world-cup-rights-shake-153000208.html)
+- **Uncertainty over 2034 World Cup timing looms over media rights tender**: [Link](https://www.sportsbusinessjournal.com/Articles/2026/10/22/uncertainty-over-2034-world-cup-timing-looms-over-media-rights-tender/)
+
+
 ### إصابة (N/A, Fri, 23 Oct 2026 18:00:00 -0700)
 
 - **غادر باكيًا.. إصابة قوية تضرب سفيان رحيمي قبل موقعة الاتحاد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A8%D8%A7%D9%83%D9%8A%D9%8B%D8%A7--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/blt604b8d415951042e)
