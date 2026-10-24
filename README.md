@@ -1,3 +1,10 @@
+### إصابة (N/A, Fri, 23 Oct 2026 18:00:00 -0700)
+
+- **غادر باكيًا.. إصابة قوية تضرب سفيان رحيمي قبل موقعة الاتحاد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A8%D8%A7%D9%83%D9%8A%D9%8B%D8%A7--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF/blt604b8d415951042e)
+- **إصابة رحيمي رفقة العين تهدد مشاركته رفقة الأسود أمام النيجر**: [Link](https://sport.rue20.com/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B1%D8%AD%D9%8A%D9%85%D9%8A-%D8%B1%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D8%AA%D9%87%D8%AF%D8%AF-%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%AA%D9%87-%D8%B1%D9%81.html)
+- **فريق عربي ينقل خبرا غير سار لمحمد وهبي قبل عودته للتصفيات الافريقية**: [Link](https://ar.sport.le360.ma/football/lions-atlas/7CD5EUNUHBGHPLNBTAUZTG4C2M/)
+
+
 ### محمود عرشان (N/A, Fri, 23 Oct 2026 15:20:00 -0700)
 
 - **جمعيات حقوقية تندد بتصريحات عرشان**: [Link](https://www.hespress.com/%D8%AC%D9%85%D8%B9%D9%8A%D8%A7%D8%AA-%D8%AD%D9%82%D9%88%D9%82%D9%8A%D8%A9-%D8%AA%D9%86%D8%AF%D8%AF-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D8%B9%D8%B1%D8%B4%D8%A7%D9%86-1827655.html)
