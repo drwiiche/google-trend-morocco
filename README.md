@@ -1,3 +1,51 @@
+### مالية (N/A, Sat, 24 Oct 2026 14:10:00 -0700)
+
+- **زيادات ضريبية تنتظر السيارات الفاخرة .. وإعفاءات لـ"مركبات المونديال"**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%B6%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D8%A7%D8%AE%D8%B1%D8%A9-1828152.html)
+- **المغرب يتوقع استقرار العجز المالي عند 3% في عام 2027**: [Link](https://www.aljazeera.net/ebusiness/2026/10/24/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%B9%D8%AC%D8%B2-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A-%D8%B9%D9%86%D8%AF-3)
+- **إعفاءات ضريبية لـ"فيفا".. الكندي: الاستضافة لا ينبغي أن تتحول إلى كلفة بلا عائد**: [Link](https://ar.telquel.ma/%D8%A5%D8%B9%D9%81%D8%A7%D8%A1%D8%A7%D8%AA-%D8%B6%D8%B1%D9%8A%D8%A8%D9%8A%D8%A9-%D9%84%D9%80%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D9%83%D9%86%D8%AF%D9%8A-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%B6/)
+
+
+### new york rb – inter miami (N/A, Sat, 24 Oct 2026 14:00:00 -0700)
+
+- **Lionel Messi & Inter Miami square off with Red Bull New York**: [Link](https://www.mlssoccer.com/news/lionel-messi-inter-miami-square-off-with-red-bull-new-york)
+- **Red Bulls vs Inter Miami: Projected lineups for the 2026 MLS season match**: [Link](https://worldsoccertalk.com/news/red-bulls-vs-inter-miami-projected-lineups-for-the-2026-mls-season-match/)
+- **MATCH PREVIEW: Inter Miami CF Visits Red Bull New York in Search of Fourth Straight Win**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-visits-red-bull-new-york-in-search-of-fourth-straight-win)
+
+
+### سفيان الفوزي (N/A, Sat, 24 Oct 2026 14:00:00 -0700)
+
+- **ضربة قوية ونزيف حاد.. إصابة مروعة لنجم المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%86%D8%B2%D9%8A%D9%81-%D8%AD%D8%A7%D8%AF--%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%B1%D9%88%D8%B9%D8%A9-%D9%84%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt8ac4b0ffdb89f7f2)
+- **كولن يتعادل سلبيا أمام شالكة في الدوري الألماني**: [Link](https://gate.ahram.org.eg/News/5971228.aspx)
+- **إصابة قوية ونزيف "حاد" للاعب الفوزي في مباراة شالكة وكولن**: [Link](https://barlamanesport.com/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%88%D9%86%D8%B2%D9%8A%D9%81-%D8%AD%D8%A7%D8%AF-%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%B2%D9%8A-%D9%81%D9%8A-%D9%85/)
+
+
+### atletico madrid (N/A, Sat, 24 Oct 2026 13:30:00 -0700)
+
+- **Atletico Madrid vs Deportivo de A Coruña: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqpvglrn2w8xt)
+- **Atlético 1-0 Deportivo: Grimaldo 8.2 Sofascore Rating**: [Link](https://www.sofascore.com/news/atletico-1-0-deportivo-grimaldo-8-2-sofascore-rating)
+- **Atlético Madrid name squad to face Deportivo A Coruña in LaLiga**: [Link](https://sports.yahoo.com/articles/atl-tico-madrid-name-squad-133920527.html)
+
+
+### ترتيب الدوري المغربي (N/A, Sat, 24 Oct 2026 13:20:00 -0700)
+
+- **جدول ترتيب الدوري المغربي 2026-2027 بعد الجولة الخامسة**: [Link](https://twaslnews1.twaslnews.com/6535121/)
+- **جدول ترتيب هدافي الدوري المغربي 2026-2027 بعد الجولة الخامسة**: [Link](https://twaslnews1.twaslnews.com/6535015/)
+
+
+### internacional – botafogo (N/A, Sat, 24 Oct 2026 12:30:00 -0700)
+
+- **Aos 31min do 1º tempo - gol de Matheus Bahia, do Internacional, contra o Botafogo**: [Link](https://ge.globo.com/futebol/video/aos-31min-do-1o-tempo-gol-de-matheus-bahia-do-internacional-contra-o-botafogo-15119769.ghtml)
+- **Gramado do Beira-Rio registra acúmulo de água antes de Inter x Botafogo**: [Link](https://gauchazh.clicrbs.com.br/esportes/inter/noticia/2026/10/gramado-do-inter-registra-acumulo-de-agua-antes-da-partida-com-o-botafogo-cmvmrf1ac02cy014ww3avtxhi.html)
+- **Vai assistir ao Botafogo hoje? Confira o horário da partida**: [Link](https://www.terra.com.br/esportes/botafogo/vai-assistir-ao-botafogo-hoje-confira-o-horario-da-partida,7aee96fb46bce143d7ad3dc95fa39ca02lp80u6v.html)
+
+
+### classement valencia club de fútbol – villarreal (N/A, Sat, 24 Oct 2026 11:50:00 -0700)
+
+- **Valencia 1-2 Villarreal: Freeman leads late win**: [Link](https://www.sofascore.com/news/valencia-1-2-villarreal-freeman-leads-late-win)
+- **Valencia - Villarreal LIVE. LALIGA EA Sports latest updates**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/valencia-villarreal/2026/10/24/01_0101_20261024_191_449-live.html)
+- **[!WATCHLIVE]4K!] Valencia vs Villarreal ＬＩＶＥ Ｓｔｒｅａｍｉｎｇ**: [Link](https://www.town.shodoshima.lg.jp/section/VR_choseiyoran/shodoshima349.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2dldnRzdi5naXRodWIuaW8vZXZlbnQvemIueG1sIi8+PC9rcnBhbm8+&id=video-watchlive4k-valencia-vs-vill-vh1p8ros)
+
+
 ### lens – paris fc (N/A, Sat, 24 Oct 2026 11:50:00 -0700)
 
 - **Ligue 1 : compos probables pour Lens – Paris FC à 20h45, sans Sima mais face à un Sinayoko en feu**: [Link](https://www.sport.fr/football/ligue-1-compos-probables-pour-lens-paris-fc-a-20h45-sans-sima-mais-face-a-un-sinayoko-en-feu-1493131.shtm)
