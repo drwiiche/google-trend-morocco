@@ -1,3 +1,66 @@
+### arsenal – everton (N/A, Sat, 24 Oct 2026 06:10:00 -0700)
+
+- **'The other side' - David Moyes ponders what Mikel Arteta has taken from him**: [Link](https://www.liverpoolecho.co.uk/sport/football/football-news/the-side-david-moyes-ponders-34809669)
+- **Arsenal vs Everton – Prediction, Where to Watch, Kick-off Time and Lineups 24-10**: [Link](https://oddsscanner.com/predictions/football/arsenal-x-everton-24-10-2026)
+- **Arsenal XI vs Everton: Starting lineup and confirmed team news**: [Link](https://www.standard.co.uk/sport/football/arsenal-fc-xi-vs-everton-starting-lineup-confirmed-team-news-injury-latest-premier-league-2026-b1302112.html)
+
+
+### aston villa (N/A, Sat, 24 Oct 2026 06:10:00 -0700)
+
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/october/23/prematch-team-news-for-city-clash/)
+- **Manzambi, Wan-Bissaka and Ruggeri: Aston Villa injury list and return dates as full-back crisis looms large**: [Link](https://www.3addedminutes.com/sport/football/aston-villa/manzambi-wan-bissaka-ruggeri-aston-villa-injury-list-full-back-crisis-9297915)
+- **Unai Emery press conference: Aston Villa vs Viking**: [Link](https://www.bbc.com/sport/football/articles/cmkgke16w61yo)
+
+
+### man city (N/A, Sat, 24 Oct 2026 05:20:00 -0700)
+
+- **Foden stars with hat-trick as Man City thrash AEK Athens**: [Link](https://www.bbc.com/sport/football/live/cxnv014rdnpjt)
+- **Manchester City vs Aston Villa: Starting lineups revealed as Enzo Maresca makes his big calls**: [Link](https://esteemedkompany.com/2026/10/24/manchester-city-vs-aston-villa-starting-lineups-revealed-as-enzo-maresca-makes-his-big-calls/)
+- **Licensable picture: UEFA Champions League - Manchester City v AEK Athens**: [Link](https://www.reutersconnect.com/item/uefa-champions-league-manchester-city-v-aek-athens/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQUsxTUFUS1E)
+
+
+### إيطاليا (N/A, Sat, 24 Oct 2026 05:10:00 -0700)
+
+- **أثناء قطف الزيتون.. الاحتلال يحتجز 90 شخصا بينهم المرشح الديمقراطي براد لاندر**: [Link](https://www.aljazeera.net/news/2026/10/21/%D8%A3%D8%AB%D9%86%D8%A7%D8%A1-%D9%82%D8%B7%D9%81-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%AD%D8%AA%D8%AC%D8%B2-90)
+- **توقيف 4 ناشطات إيطاليات دعمن مزارعين فلسطينيين في قطف الزيتون بالضفة الغربية.. وروما تطالب بتوضيحات**: [Link](https://arabic.euronews.com/2026/10/22/west-bank-israel-italy-activists-arrests-palestinians-olive)
+- **حملة فلسطينية: الجيش الإسرائيلي يحتجز 11 متضامنًا أجنبيا جنوبي الضفة**: [Link](https://www.aa.com.tr/ar/%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86/%D8%AD%D9%85%D9%84%D8%A9-%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A-%D9%8A%D8%AD%D8%AA%D8%AC%D8%B2-11-%D9%85%D8%AA%D8%B6%D8%A7%D9%85%D9%86%D9%8B%D8%A7-%D8%A3%D8%AC%D9%86%D8%A8%D9%8A%D8%A7-%D8%AC%D9%86%D9%88%D8%A8%D9%8A-%D8%A7%D9%84%D8%B6%D9%81%D8%A9/4097865)
+
+
+### rayo – elche (N/A, Sat, 24 Oct 2026 04:20:00 -0700)
+
+- **Rayo - Elche en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/rayo-elche/2026/10/24/01_0101_20261024_184_954-directo.html)
+- **Una lona de condena a la violencia cubre el fondo de Vallecas**: [Link](https://as.com/futbol/primera/una-lona-de-condena-a-la-violencia-cubre-el-fondo-de-vallecas-f202610-n/)
+- **Rayo Vallecano-Elche, en directo: el partido de la jornada 10, en vivo**: [Link](https://cadenaser.com/nacional/2026/10/24/rayo-vallecano-elche-en-directo-el-partido-de-la-jornada-10-en-vivo-cadena-ser/)
+
+
+### أستون فيلا ضد مان سيتي (N/A, Sat, 24 Oct 2026 03:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة أستون فيلا ومانشستر سيتي في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4c13596f1c0b3a8c)
+- **هل يدفع ماريسكا ببوعدي أساسيا اليوم في معركة أستون فيلا؟**: [Link](https://www.almountakhab.com/node/16231984)
+- **صورة – هل يقصد ماريسكا؟ احتفال مثير للجدل من جاكسون أمام مانشستر سيتي**: [Link](https://twaslnews1.twaslnews.com/6516107/)
+
+
+### aston villa – manchester city (N/A, Sat, 24 Oct 2026 03:40:00 -0700)
+
+- **Aston Villa vs Manchester City: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cj62ynzwg4pet)
+- **Maresca says Haaland is 100% available for Villa trip**: [Link](https://www.mancity.com/news/mens/enzo-maresca-aston-villa-away-press-conference-written-63928256)
+- **Unai Emery refuses to bite on Man City's 114 guilty financial verdicts ahead of blockbuster Aston Villa clash**: [Link](https://www.livescore.com/en/news/football/premier-league/unai-emery-refuses-to-bite-on-man-citys-114-guilty-financial-verdicts-ahead-of-blockbuster-aston-villa-clash-goal/)
+
+
+### كأس الكونفيدرالية الإفريقية (N/A, Sat, 24 Oct 2026 03:10:00 -0700)
+
+- **الرجاء يهزم إل كانيمي ويبلغ دور المجموعات بكأس الكونفدرالية الإفريقية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%87%D8%B2%D9%85-%D8%A5%D9%84-%D9%83%D8%A7%D9%86%D9%8A%D9%85%D9%8A-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88-1828019.html)
+- **خيميز تحت ضغط “دونور”**: [Link](https://assabah.ma/957439.html)
+- **كأس الكونفدرالية الإفريقية لكرة القدم (الدور التمهيدي الثاني-إياب).. الرجاء الرياضي والجيش الملكي يخوضان حسم التأهل بملعبهما**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%AA%D9%85%D9%87%D9%8A%D8%AF%D9%8A-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%A5%D9%8A%D8%A7%D8%A8-20261022)
+
+
+### sarah knafo (N/A, Sat, 24 Oct 2026 03:00:00 -0700)
+
+- **«Ils bluffent trop» : l’avis tranché de Cyril Hanouna sur «Complément d’enquête» après le numéro dédié à Sarah Knafo**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/ils-bluffent-trop-l-avis-tranche-de-cyril-hanouna-sur-complement-d-enquete-apres-le-numero-dedie-a-sarah-knafo-20261023)
+- **"Le mâle dominant, ce n'est pas Éric Zemmour, c'est Sarah Knafo !" Le patron de Reconquête est-il en passe d'être "grand remplacé" par sa compagne ?**: [Link](https://www.franceinfo.fr/replay-magazine/france-2/complement-d-enquete/video-le-male-dominant-ce-n-est-pas-eric-zemmour-c-est-sarah-knafo-le-patron-de-reconquete-est-il-en-passe-d-etre-grand-remplace-par-sa-compagne_8247673.html)
+- **"Le but, c'est votre monologue ?" : Face à face tendu entre Sarah Knafo et Tristan Waleckx dans "Complément d'enquête"**: [Link](https://www.ozap.com/actu/le-but-cest-votre-monologue-face-a-face-tendu-entre-sarah-knafo-et-tristan-waleckx-dans-complement-denquete/657616)
+
+
 ### escroquerie (N/A, Sat, 24 Oct 2026 01:40:00 -0700)
 
 - **Fès: arrestation d’un escroc qui ciblait des hommes d’affaires, des ingénieurs et des médecins**: [Link](https://fr.le360.ma/societe/fes-arrestation-dun-escroc-qui-ciblait-des-hommes-daffaires-des-ingenieurs-et-des-medecins_C3IAP4BC2JDOVAPB35KNXRSJSM/)
