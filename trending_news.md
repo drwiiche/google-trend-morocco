@@ -1,3 +1,71 @@
+### fribourg – bayern (N/A, Sun, 25 Oct 2026 08:50:00 -0700)
+
+
+
+
+### طائر (N/A, Sun, 25 Oct 2026 08:00:00 -0700)
+
+- **"عقاب الثعابين".. طائر نادر يعبر سماء مصر خلال موسم الهجرة**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/10/25/%D8%B9%D9%82%D8%A7%D8%A8-%D8%A7%D9%84%D8%AB%D8%B9%D8%A7%D8%A8%D9%8A%D9%86-%D8%B7%D8%A7%D8%A6%D8%B1-%D9%86%D8%A7%D8%AF%D8%B1-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%B3%D9%85%D8%A7%D8%A1-%D9%85%D8%B5%D8%B1-%D8%AE%D9%84%D8%A7%D9%84-%D9%85%D9%88%D8%B3%D9%85-%D8%A7%D9%84%D9%87%D8%AC%D8%B1%D8%A9)
+- **محميات المنطقة الشمالية بـ"البيئة": مصر ممر رئيسي لهجرة ملايين الطيور بين أوروبا وآسيا وأفريقيا**: [Link](https://www.youm7.com/story/2026/10/25/%D9%85%D8%AD%D9%85%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%86%D8%B7%D9%82%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%A8%D9%80-%D8%A7%D9%84%D8%A8%D9%8A%D8%A6%D8%A9-%D9%85%D8%B5%D8%B1-%D9%85%D9%85%D8%B1-%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A-%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D9%85%D9%84%D8%A7%D9%8A%D9%8A%D9%86/7592657)
+- **شباك الموت وسمعة مصر| الصيد الجائر على السواحل الشمالية يهدد خطوط الهجرة الدولية للطيور**: [Link](https://akhbarelyom.com/news/newdetails/4896517/1/%D8%B4%D8%A8%D8%A7%D9%83-%D8%A7%D9%84%D9%85%D9%88%D8%AA-%D9%88%D8%B3%D9%85%D8%B9%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%B5%D9%8A%D8%AF-%D8%A7%D9%84%D8%AC%D8%A7%D8%A6%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84)
+
+
+### سلتا فيغو ضد ريال بتيس (N/A, Sun, 25 Oct 2026 07:40:00 -0700)
+
+- **Celta Vigo vs Real Betis: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm4g19l6xyldt)
+- **Celta Vigo vs Real Betis: Lineups, Prediction, Odds & Bet Builder Tip**: [Link](https://www.whoscored.com/articles/M32GhrGxRky25r8QZX5KZw/show/cng111-20261025-celta-vigo-vs-real-betis-prediction-1792912947)
+- **🚨 Durán, Isco, no Parrott: line-ups confirmed for Celta-Betis**: [Link](https://sports.yahoo.com/articles/dur-n-isco-no-parrott-140600121.html)
+
+
+### عطلة (N/A, Sun, 25 Oct 2026 07:40:00 -0700)
+
+- **نقابة تعليمية تقرر تعطيل الدراسة السبت**: [Link](https://www.hespress.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D9%8A%D8%A9-%D8%AA%D9%82%D8%B1%D8%B1-%D8%AA%D8%B9%D8%B7%D9%8A%D9%84-%D8%A7%D9%84%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%A7%D9%84%D8%B3%D8%A8-1827798.html)
+- **نقابة تعليمية تعلن الشروع في تطبيق “عطلة السبت” والتوقيت القانوني لرجال التعليم**: [Link](https://al3omk.com/1200065.html)
+- **نقابة تتحدى وزارة التربية الوطنية ، قصة قرار انفرادي قانوني سيطبق ابتداءا من الاسبوع المقبل**: [Link](https://www.bayanemarrakech.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%AA%D8%AA%D8%AD%D8%AF%D9%89-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%8C-%D9%82%D8%B5/)
+
+
+### كلاسيكو (N/A, Sun, 25 Oct 2026 07:40:00 -0700)
+
+- **هل سيعود؟.. كورتوا يتحدى البيان الرسمي لريال مدريد قبل الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%B3%D9%8A%D8%B9%D9%88%D8%AF--%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%84%D8%A8%D9%8A%D8%A7%D9%86-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A-%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt8472b4a813bc2712)
+- **أدار 4 كلاسيكيات وفاز الريال بـ3 منها.. من حكم مواجهة برشلونة ضد ريال مدريد؟**: [Link](https://www.aljazeera.net/sport/2026/10/24/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%85%D9%88%D9%86%D9%88%D9%8A%D8%B1%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88)
+- **ريال مدريد أم برشلونة… من يربح لعبة الهدايا والخداع؟**: [Link](https://www.alquds.co.uk/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%85%D9%86-%D9%8A%D8%B1%D8%A8%D8%AD-%D9%84%D8%B9%D8%A8%D8%A9-%D8%A7%D9%84%D9%87/)
+
+
+### celta vigo – betis (N/A, Sun, 25 Oct 2026 07:30:00 -0700)
+
+- **Celta - Betis en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/celta-betis/2026/10/25/01_0101_20261025_176_185-directo.html)
+- **🚨 Durán, Isco, sin Parrott...hay ONCES en el Celta-Betis**: [Link](https://es-us.noticias.yahoo.com/deportes/dur%C3%A1n-isco-parrott-onces-celta-140500412.html)
+- **Giráldez: “El cansancio no nos tiene que valer de excusa"**: [Link](https://www.atlantico.net/celtismo/giraldez-cansancio-no-valer-excusa_1_20261025-4465220.html)
+
+
+### crystal palace – newcastle (N/A, Sun, 25 Oct 2026 07:10:00 -0700)
+
+- **Crystal Palace vs Newcastle United: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cmde8r06wxp3t)
+- **Elanga returns to Newcastle squad after injury — Interia Sport**: [Link](https://ua.news/en/sport/elanga-povernuvsia-do-zaiavki-niukasla-pislia-travmi-interia-sport)
+- **Jaissle admits Newcastle still feel like they are in pre-season ahead of Palace clash**: [Link](https://nufcblog.co.uk/jaissle-admits-newcastle-still-feel-like-they-are-in-pre-season-ahead-of-palace-clash-43101)
+
+
+### ليفربول ضد برايتون (N/A, Sun, 25 Oct 2026 07:10:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ليفربول وبرايتون في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4dac97b186b5f1fb)
+- **في مساء يوم 25 أكتوبر، قد لا يتمكن مشجعو كرة القدم من مشاهدة الدوري الإنجليزي الممتاز، ولكن لماذا؟**: [Link](https://www.vietnam.vn/ar/toi-25-10-nguoi-ham-mo-co-the-khong-duoc-xem-premier-league-vi-sao)
+- **تشكيل ليفربول المتوقع أمام برايتون في البريميرليج**: [Link](https://akhbarelyom.com/news/newdetails/4896723/1/%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84)
+
+
+### الرجاء البيضاوي (N/A, Sun, 25 Oct 2026 06:50:00 -0700)
+
+- **برلمان الرجاء يصعد: نطالب بالمحاسبة والمرحلة لا تحتمل استمرار الأخطاء**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A5%D9%84%D9%89-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%B9%D8%A8%D9%88%D8%B1/)
+- **هوجا: نعرف أن جماهير الرجاء غير راضية و نحن كذلك**: [Link](https://radiomars.ma/%D9%87%D9%88%D8%AC%D8%A7-%D9%86%D8%B9%D8%B1%D9%81-%D8%A3%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%BA%D9%8A%D8%B1-%D8%B1%D8%A7%D8%B6%D9%8A%D8%A9-%D9%88/)
+- **رغم الفوز المحقق.. إجراء من المدير الرياضي للرجاء يهم المدرب باكو خميز**: [Link](https://sport.lesiteinfo.com/elbotola/505315.html)
+
+
+### liverpool – brighton (N/A, Sun, 25 Oct 2026 06:40:00 -0700)
+
+- **Liverpool vs. Brighton GAME ON – 2pm kickoff at Anfield as planned**: [Link](https://www.thisisanfield.com/2026/10/liverpool-vs-brighton-game-on-kickoff-confirmed/)
+- **St Louis City vs San Diego FC: Kalshi Promo Code & $25 Bonus**: [Link](https://www.squawka.com/us/news/mls/kalshi-promo-code-st-louis-city-vs-san-diego-fc-10-31-26-mls/)
+- **Liverpool vs Albion: Projected lineups for the 2026-27 Premier League match**: [Link](https://worldsoccertalk.com/news/liverpool-vs-albion-projected-lineups-for-the-2026-27-premier-league-match/)
+
+
 ### coupe du monde de football des moins de 17 ans (N/A, Sun, 25 Oct 2026 04:20:00 -0700)
 
 - **Coupe du Monde féminine U17 FIFA : défaite du Maroc face à l'Argentine 1-5**: [Link](https://frmf.ma/fr/articles/coupe-du-monde-feminine-u17-fifa-defaite-du-maroc-face-a-largentine-1-5)
