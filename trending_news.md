@@ -1,3 +1,73 @@
+### mer noire (N/A, Sun, 25 Oct 2026 11:30:00 -0700)
+
+- **"Trois navires ont été attaqués" : un avion de patrouille maritime français a participé aux opérations de secours en mer Noire**: [Link](https://www.rtl.fr/actu/international/trois-navires-ont-ete-attaques-un-avion-de-patrouille-maritime-francais-a-participe-aux-operations-de-secours-en-mer-noire-7900688985)
+- **La Russie accusée d’attaquer les navires, Melania Trump s’implique et se vante**: [Link](https://www.20minutes.fr/monde/ukraine/4257011-20261023-guerre-ukraine-russie-pointee-doigt-attaques-navires-melania-trump-implique-vante)
+- **Jean-Noël Barrot en Bulgarie face aux frappes de drones russes en mer Noire**: [Link](https://www.lefigaro.fr/international/jean-noel-barrot-en-bulgarie-face-aux-frappes-de-drones-russes-en-mer-noire-20261025)
+
+
+### لا ليغا (N/A, Sun, 25 Oct 2026 11:30:00 -0700)
+
+- **تشكيلة مباراة أتلتيك بلباو وخيتافي | الدوري الإسباني · 25 أكتوبر 2026**: [Link](https://www.ysscores.com/ar/lineup/5868102/Athletic-Bilbao-vs-Getafe-CF)
+- **90 دقيقة من الإهانات.. كارفاخال تحت حصار جماهير بيلباو**: [Link](https://twaslnews1.twaslnews.com/6576995/)
+- **توقعات مباراة أتلتيك بلباو ضد خيتافي: يواجه الفريق الضيف صعوبات بسبب نقص اللاعبين.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-athletic-club-vs-getafe-doi-khach-dau-dau-vi-thieu-nguoi)
+
+
+### سميرة سعيد (N/A, Sun, 25 Oct 2026 11:20:00 -0700)
+
+- **سميرة سعيد تحتفل بزفاف ابنها وتهديه أغنية «وليدى» وتعلق: فرحة العمر**: [Link](https://www.youm7.com/story/2026/10/25/%D8%B3%D9%85%D9%8A%D8%B1%D8%A9-%D8%B3%D8%B9%D9%8A%D8%AF-%D8%AA%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B2%D9%81%D8%A7%D9%81-%D8%A7%D8%A8%D9%86%D9%87%D8%A7-%D9%88%D8%AA%D9%87%D8%AF%D9%8A%D9%87-%D8%A3%D8%BA%D9%86%D9%8A%D8%A9-%C2%AB%D9%88%D9%84%D9%8A%D8%AF%D9%89%C2%BB-%D9%88%D8%AA%D8%B9%D9%84%D9%82-%D9%81%D8%B1%D8%AD%D8%A9/7593288)
+- **مصدر خاص لـ"غالية" يكشف حقيقة إحياء أسماء لمنور حفل زفاف نجل سميرة سعيد**: [Link](https://ralia.lesiteinfo.com/celebrites/%D9%85%D8%B5%D8%AF%D8%B1-%D8%AE%D8%A7%D8%B5-%D9%84%D9%80%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A5%D8%AD%D9%8A%D8%A7%D8%A1-%D8%A3%D8%B3%D9%85-258124.html)
+- **تزامنًا مع زفافه اليوم.. ماذا قالت سميرة سعيد عن نجلها شادي؟**: [Link](https://twaslnews1.twaslnews.com/6527030/)
+
+
+### كوورة (N/A, Sun, 25 Oct 2026 11:20:00 -0700)
+
+- **A stunning surprise: will Inzaghi sacrifice Al-Hilal's money for Juventus?**: [Link](https://www.goal.com/en/news/a-stunning-surprise-will-inzaghi-sacrifice-al-hilal-s-money-for-juventus/blt5196bd17cad6487a)
+- **Simone Inzaghi's return to Serie A edges ever closer**: [Link](https://onefootball.com/en/news/simone-inzaghis-return-to-serie-a-edges-ever-closer-43657429)
+- **Spalletti Safe for Now but Juventus Line Up Successors**: [Link](https://cultofcalcio.com/spalletti-safe-for-now-but-juventus-line-up-successors/)
+
+
+### نادي برشلونة (N/A, Sun, 25 Oct 2026 11:10:00 -0700)
+
+- **رسميا: تحديد موقف كورتوا من المشاركة في الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D9%82%D9%81-%D9%83%D9%88%D8%B1%D8%AA%D9%88%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt23da8836420d551e)
+- **سحر ميسي وأمجاد "التيكي تاكا".. أفضل 5 مباريات كلاسيكو في "كامب نو" بالقرن الـ21**: [Link](https://www.aljazeera.net/sport/2026/10/25/%D8%B3%D8%AD%D8%B1-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%A3%D9%85%D8%AC%D8%A7%D8%AF-%D8%A7%D9%84%D8%AA%D9%8A%D9%83%D9%8A-%D8%AA%D8%A7%D9%83%D8%A7-%D8%A3%D9%81%D8%B6%D9%84-5)
+- **رودري في أول كلاسيكو ليلة حفل الكرة الذهبية**: [Link](https://www.alaraby.co.uk/sport/%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A3%D9%88%D9%84-%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%84%D9%8A%D9%84%D8%A9-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9)
+
+
+### أسيك ميموزا (N/A, Sun, 25 Oct 2026 10:40:00 -0700)
+
+- **المغرب الفاسي يعود بفوز مثير من أبيدجان ويبلغ مجموعات أبطال إفريقيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D9%81%D9%88%D8%B2-%D9%85%D8%AB%D9%8A%D8%B1-%D9%85%D9%86-%D8%A3%D8%A8%D9%8A%D8%AF%D8%AC%D8%A7-1828726.html)
+- **بعزيمة الرجال رغم المعيقات.. المغرب الفاسي يحقق إنجازا تاريخيا ويتأهل لدور مجموعات عصبة الأبطال**: [Link](https://www.elbotola.com/article/2026-10-25-18-06-406.html)
+- **لن تصدق ما وجده لاعبو المغرب الفاسي داخل الملعب قبل مواجهة أسيك ميموزا.. موقف غريب ومستفز**: [Link](https://radiomars.ma/%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%8A%D9%82%D8%A7%D8%B7%D8%B9%D9%88%D9%86-%D9%85%D8%B3%D8%AA%D9%88%D8%AF%D8%B9-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D8%A8/)
+
+
+### pronostics (N/A, Sun, 25 Oct 2026 10:40:00 -0700)
+
+- **Les pronostics des experts pour la réunion 1 à SAINT-CLOUD ce dimanche 25 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-saint-cloud-ce-dimanche-25-octobre)
+- **Quinté du jour : le pronostic de la presse et la synthèse des journaux PMU**: [Link](https://tirage-gagnant.com/pronostic-pmu-presse/)
+- **Tiercé. Les pronostics de L'Alsace pour mercredi 21 octobre - Grand Prix de la Ville rose**: [Link](https://www.lalsace.fr/actualite/2026/10/20/nos-pronostics-pour-mercredi-21-octobre-grand-prix-de-la-ville-rose)
+
+
+### radio mars (N/A, Sun, 25 Oct 2026 10:10:00 -0700)
+
+- **Ajax : Abdellah Ouazane dans le viseur de plusieurs cadors européens**: [Link](https://fr.hespress.com/493826-ajax-abdellah-ouazane-dans-le-viseur-de-plusieurs-cadors-europeens.html)
+- **Abdellah Ouazane récidive avec l’Ajax et signe un nouveau bijou**: [Link](https://radiomars.ma/fr/?p=7201)
+- **Abdellah Ouzane attire les cadors européens, dont Manchester City et le Real Madrid**: [Link](https://www.elbotola.com/fr/article/2026-10-24-12-40-44.html)
+
+
+### real sociedad – levante (N/A, Sun, 25 Oct 2026 10:00:00 -0700)
+
+- **El momento de Remiro ante el efecto Castro**: [Link](https://as.com/futbol/primera/el-momento-de-remiro-ante-el-efecto-castro-f202610-n/)
+- **Pellegrino Matarazzo celebra dos altas en la Real Sociedad y avisa tras el viaje europeo: "Debemos gestionar las cargas"**: [Link](https://www.eldesmarque.com/futbol/liga-1a-division/20261024/pellegrino-matarazzo-regreso-dos-jugadores-real-sociedad-gestionar-cargas_18_020528316.html)
+- **Yangel y Aramburu llegan a tiempo para jugar contra el Levante**: [Link](https://www.mundodeportivo.com/futbol/real-sociedad/20261024/1004242579/yangel-aramburu-llegan-jugar-levante.html)
+
+
+### lecce – juventus (N/A, Sun, 25 Oct 2026 10:00:00 -0700)
+
+- **Official Juventus team to face Lecce – Woltemade and Muani start**: [Link](https://sports.yahoo.com/articles/official-juventus-team-face-lecce-160000926.html)
+- **Lecce-Juventus 0-0 live: Vicario takes a risk against Ndri**: [Link](https://www.goal.com/en/lists/lecce-juventus-0-0-live-vicario-takes-a-risk-against-ndri/blt32b42ce5e396f0db)
+- **🚨Confirmed XIs: Juventus must fight back against Lecce**: [Link](https://onefootball.com/en/news/confirmed-xis-juventus-must-fight-back-against-lecce-43670573)
+
+
 ### fribourg – bayern (N/A, Sun, 25 Oct 2026 08:50:00 -0700)
 
 
