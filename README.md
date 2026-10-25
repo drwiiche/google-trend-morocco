@@ -1,3 +1,73 @@
+### lula (N/A, Sun, 25 Oct 2026 15:40:00 -0700)
+
+- **Votação no exterior: Lula vence em 42 países; Flávio Bolsonaro, em 12**: [Link](https://g1.globo.com/mundo/noticia/2026/10/25/votacao-no-exterior-confira-os-resultados-do-2o-turno-entre-lula-e-flavio-bolsonaro.ghtml)
+- **Cônsul-geral do Brasil em Lisboa estima participação eleitoral na capital em 50%**: [Link](https://www.correiodamanhacanada.com/consul-geral-do-brasil-em-lisboa-estima-participacao-eleitoral-na-capital-em-50/)
+- **Europa: brasileiros enfrentam filas de votação em Portugal e na Itália Veja vídeo**: [Link](https://www.metropoles.com/mundo/europa-brasileiros-enfrentam-filas-de-votacao-em-portugal-e-na-italia)
+
+
+### camavinga (N/A, Sun, 25 Oct 2026 15:30:00 -0700)
+
+- **Camavinga recupera la memoria con un cuarto de hora perfecto en en Clásico**: [Link](https://www.larazon.es/deportes/futbol/camavinga-recupera-memoria-cuarto-hora-perfecto-clasico_202610256ade84741e66613d9f1e9017.html)
+- **Barcelona - Real Madrid | Resumen, resultado y goles de El Clásico | Doblete de Mbappé**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-r-madrid/2026/10/25/01_0101_20261025_178_186-directo.html)
+- **Barcelona - Real Madrid en directo | Raphinha iguala el partido**: [Link](https://elpais.com/deportes/futbol/2026-10-25/barcelona-real-madrid-en-directo-el-clasico-de-la-liga-en-vivo.html)
+
+
+### غرق (N/A, Sun, 25 Oct 2026 15:00:00 -0700)
+
+- **لكويرة والريسوني يعيدان جدل السيادة إلى الواجهة… وموريتانيا تبعث برسائل حياد وتوازن إلى المغرب والجزائر**: [Link](https://www.alquds.co.uk/%D9%84%D9%83%D9%88%D9%8A%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%B3%D9%88%D9%86%D9%8A-%D9%8A%D8%B9%D9%8A%D8%AF%D8%A7%D9%86-%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D8%B3%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A5/)
+- **نواكشوط تنفي المطالبة بأراضٍ مغربية**: [Link](https://www.hespress.com/%D9%86%D9%88%D8%A7%D9%83%D8%B4%D9%88%D8%B7-%D8%AA%D9%86%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D9%84%D8%A8%D8%A9-%D8%A8%D8%A3%D8%B1%D8%A7%D8%B6%D9%8D-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-1827053.html)
+- **الڭويرة في الخطاب الموريتاني: بين المطالبة والمساومة**: [Link](https://al3omk.com/1200336.html)
+
+
+### karim adeyemi (N/A, Sun, 25 Oct 2026 15:00:00 -0700)
+
+- **Real Madrid turned down a summer move for Barcelona star**: [Link](https://sports.yahoo.com/articles/real-madrid-turned-down-summer-182000502.html)
+- **Barcelona explored move for Real Madrid’s club-record signing but were put off by the price - Romano**: [Link](https://barcauniversal.com/barcelona-explored-move-for-real-madrids-club-record-signing-but-were-put-off-by-the-price-romano/)
+- **Real Madrid had already tried to sign blockbuster summer arrival back in 2025 – report**: [Link](https://sports.yahoo.com/articles/real-madrid-had-already-tried-112600305.html)
+
+
+### marc cucurella (N/A, Sun, 25 Oct 2026 15:00:00 -0700)
+
+- **🥱 This must be ragebait! Magath's bizarre Ballon d'Or favourite**: [Link](https://sports.yahoo.com/articles/must-ragebait-magaths-bizarre-ballon-091900150.html)
+- **Ex-Premier League boss stuns with Marc Cucurella Ballon d'Or pick as Harry Kane eyes award**: [Link](https://www.mirror.co.uk/sport/football/news/marc-cucurella-ballon-dor-prediction-37808341)
+- **'World-class!' Former Bayern Munich coach would award Marc Cucurella the Ballon d’Or**: [Link](https://www.yardbarker.com/soccer/articles/world_class_former_bayern_munich_coach_would_award_marc_cucurella_the_ballon_dor/s1_17790_44470776)
+
+
+### flashscore (N/A, Sun, 25 Oct 2026 14:50:00 -0700)
+
+- **Real Sociedad extend fine run of form with win over Levante**: [Link](https://www.flashscore.com/news/soccer-laliga-real-sociedad-levante-report-october-25-2026/MV2SQqWa/)
+- **🚨Confirmed line-ups: Blockbuster clash at the Reale Arena**: [Link](https://onefootball.com/en/news/confirmed-line-ups-blockbuster-clash-at-the-reale-arena-43670744)
+- **Real Sociedad - Levante LIVE. LALIGA EA Sports latest updates**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/real-sociedad-levante/2026/10/25/01_0101_20261025_188_855-live.html)
+
+
+### anthony gordon (N/A, Sun, 25 Oct 2026 14:50:00 -0700)
+
+- **Anthony Gordon delivers rating out of 10 for his start at Barcelona**: [Link](https://www.espn.com/soccer/story/_/id/50265160/anthony-gordon-barcelona-real-madrid-clasico)
+- **Gordon: We are not favourites against Real Madrid, and I should have offered more against Paris**: [Link](https://www.goal.com/en/news/gordon-we-are-not-favourites-against-real-madrid-and-i-had-to-give-more-against-paris/blt65db12af5b0c59a4)
+- **Anthony Gordon, Jude Bellingham and a very English Clasico - The Athletic**: [Link](https://www.nytimes.com/athletic/7710490/2026/10/23/anthony-gordon-jude-bellingham-real-madrid-barcelona-el-clasico/)
+
+
+### gordon (N/A, Sun, 25 Oct 2026 14:50:00 -0700)
+
+- **Ollie Gordon II surpasses 100-yard mark in Week 7**: [Link](https://sports.yahoo.com/articles/ollie-gordon-ii-surpasses-100-215527729.html)
+- **Ollie Gordon II Stretches TD streak to four games**: [Link](https://www.thefantasyfootballers.com/news/644316/ollie-gordon-ii-stretches-td-streak-to-four-games/)
+- **Ollie Gordon II finds the end zone in Week 7 win**: [Link](https://www.fantasypros.com/nfl/news/615772/ollie-gordon-ii-finds-end-zone-week-7-win.php)
+
+
+### 365 (N/A, Sun, 25 Oct 2026 14:50:00 -0700)
+
+- **Springboks star’s contract ‘terminated’ at Japanese club amid reports of South African return**: [Link](https://www.planetrugby.com/news/springboks-kwagga-smith-leaves-japanese-club-amid-sa-return-rumours)
+- **Springbok loose forward Kwagga Smith reunites with Johan Ackermann in three-year Bulls deal**: [Link](https://iol.co.za/sport/rugby/urc/2026-10-25-springbok-loose-forward-kwagga-smith-reunites-with-johan-ackermann-in-three-year-bulls-deal/)
+- **Kwagga Smith returns to SA with three-year Bulls deal**: [Link](https://www.sabcnews.com/sabcnews/kwagga-smith-returns-to-sa-with-three-year-bulls-deal/)
+
+
+### رافينيا (N/A, Sun, 25 Oct 2026 14:40:00 -0700)
+
+- **فيديو: إنقاذ أسطوري.. لونين يتصدى لهدف مؤكد في الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%95%D9%86%D9%82%D8%A7%D8%B0-%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D9%8A--%D9%84%D9%88%D9%86%D9%8A%D9%86-%D9%8A%D8%AA%D8%B5%D8%AF%D9%89-%D9%84%D9%87%D8%AF%D9%81-%D9%85%D9%88%D9%94%D9%83%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt59d3f3e355782e6a)
+- **رافينيا: "اللعب في برشلونة يتطلب التكيف مع مختلف الظروف"**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D9%84%D8%B9%D8%A8-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%AA%D8%B7%D9%84%D8%A8-%D8%A7%D9%84%D8%AA%D9%83%D9%8A%D9%81-%D9%85%D8%B9-%D9%85%D8%AE%D8%AA%D9%84%D9%81-%D8%A7%D9%84%D8%B8%D8%B1%D9%88%D9%81-2026-10-24)
+- **كلاسيكو الأرض.. برشلونة أمام ريال مدريد 1-1 بعد 75 دقيقة**: [Link](https://darelhilal.com/News/3331310.aspx)
+
+
 ### barsa (N/A, Sun, 25 Oct 2026 14:10:00 -0700)
 
 - **Xavi Espart, sustituido en el minuto 30 por lesión**: [Link](https://es-us.noticias.yahoo.com/deportes/xavi-espart-sustituido-minuto-30-205044483.html)
