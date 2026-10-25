@@ -1,3 +1,24 @@
+### heure france (N/A, Sat, 24 Oct 2026 18:00:00 -0700)
+
+- **Passage à l’heure d’hiver : pourquoi le changement d’heure est si critiqué**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/10/24/passage-a-l-heure-d-hiver-pourquoi-le-changement-d-heure-est-si-critique_5348679_4355771.html)
+- **Le changement d’heure ne fait gagner que 14 minutes de sommeil (étude)**: [Link](https://lematin.ma/societe/le-changement-dheure-ne-fait-gagner-que-14-minutes-de-sommeil-etude/372017)
+- **La France passe à l'heure d'hiver dans la nuit de samedi à dimanche**: [Link](https://www.franceinfo.fr/societe/changement-d-heure/la-france-passe-a-l-heure-d-hiver-dans-la-nuit-de-samedi-a-dimanche_8252164.html)
+
+
+### كأس العالم (N/A, Sat, 24 Oct 2026 16:50:00 -0700)
+
+- **المنتخب الوطني لأقل من15 سنة يفوز على الفلبين**: [Link](https://frmf.ma/articles/coupe-du-monde-et-festival-u-15-de-la-fifa-2026-victoire-du-maroc-face-aux-philippines-2-0)
+- **المغرب يهزم الفلبين بمونديال أذربيجان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%81%D9%84%D8%A8%D9%8A%D9%86-%D8%A8%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A3%D8%B0%D8%B1%D8%A8%D9%8A%D8%AC%D8%A7-1828164.html)
+- **كأس العالم ومهرجان الفيفا 2026.. المنتخب الجزائري لأقل من 15 سنة يفوز على الأرجنتين – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%88%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-2026-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84)
+
+
+### logement (N/A, Sat, 24 Oct 2026 14:30:00 -0700)
+
+- **Le terrain appartient à l'État, le loyer serait limité, le Maroc prépare une nouvelle formule de logement**: [Link](https://www.bladi.net/terrain-appartient-etat-loyer-serait-limite-maroc-prepare-nouvelle,124563.html)
+- **Logement au Maroc : l’accès à la propriété est-il vraiment à la portée des jeunes ?**: [Link](https://www.lebrief.ma/le-logement-est-il-a-la-portee-des-jeunes-100170878/)
+- **Investissement locatif : Un marché toujours porteur**: [Link](https://www.lavieeco.com/affaires/secteurs/investissement-locatif-un-marche-toujours-porteur/)
+
+
 ### الاتحاد الإفريقي (N/A, Sat, 24 Oct 2026 15:00:00 -0700)
 
 - **اختتام المشاورات بنيويورك بين مجلس السلم والأمن والهيئات الأممية بمشاركة المغرب**: [Link](https://2m.ma/ar/news/%D8%A7%D8%AE%D8%AA%D8%AA%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A8%D9%86%D9%8A%D9%88%D9%8A%D9%88%D8%B1%D9%83-%D8%A8%D9%8A%D9%86-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%B3%D9%84%D9%85-%D9%88%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%88%D8%A7%D9%84%D9%87%D9%8A%D8%A6%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%85%D9%8A%D8%A9-20261024)
