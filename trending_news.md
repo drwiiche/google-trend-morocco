@@ -1,3 +1,73 @@
+### coupe du monde de football des moins de 17 ans (N/A, Sun, 25 Oct 2026 04:20:00 -0700)
+
+- **Coupe du Monde féminine U17 FIFA : défaite du Maroc face à l'Argentine 1-5**: [Link](https://frmf.ma/fr/articles/coupe-du-monde-feminine-u17-fifa-defaite-du-maroc-face-a-largentine-1-5)
+- **Mondial U-17 féminin 2026 : en faisant tomber la RDP Corée, le Nigeria donne espoir à l’Afrique**: [Link](https://www.cafonline.com/fr/football-feminin/infos/mondial-u-17-feminin-2026-en-faisant-tomber-la-rdp-coree-le-nigeria-donne-espoir-a-l-afrique/)
+- **Mondial féminin U17 : le Maroc battu par l’Argentine, mais garde espoir**: [Link](https://lematin.ma/sports/mondial-feminin-u17-le-maroc-battu-par-largentine-mais-garde-espoir/372011)
+
+
+### inter – fiorentina (N/A, Sun, 25 Oct 2026 04:00:00 -0700)
+
+- **Chivu: Why Provedel and Mkhitaryan ‘deserve to start’ in Inter vs. Fiorentina**: [Link](https://sports.yahoo.com/articles/chivu-why-provedel-mkhitaryan-deserve-112000001.html)
+- **Inter Milan vs Fiorentina: Italian Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqrmye9drvk3t)
+- **Follow all the action around Europe with our Football Tracker!**: [Link](https://www.flashscore.com/news/football-tracker-live-scores-updates-results-october-24-25-2026/j7Gn4uln/)
+
+
+### حافلة (N/A, Sun, 25 Oct 2026 03:50:00 -0700)
+
+- **طنجة.. مستجدات قضية حافلة الاتجاه المعاكس بطريق تطوان**: [Link](https://ar.hibapress.com/details-769112.html)
+- **بعد فيديو «طنجة نيوز».. شرطة المرور تتدخل بشارع أنفا وتحجز سيارتين وتحرر 10 مخالفات**: [Link](https://tanjanews.com/192090.html)
+- **أمن طنجة يحجز حافلة لنقل العمال بعد تداول فيديو يوثق سيرها في الاتجاه المعاكس بطريق تطوان**: [Link](https://satv.ma/%D8%A3%D9%85%D9%86-%D8%B7%D9%86%D8%AC%D8%A9-%D9%8A%D8%AD%D8%AC%D8%B2-%D8%AD%D8%A7%D9%81%D9%84%D8%A9-%D9%84%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%84-%D8%A8%D8%B9%D8%AF-%D8%AA%D8%AF%D8%A7.html)
+
+
+### barcelone – real madrid (N/A, Sun, 25 Oct 2026 03:40:00 -0700)
+
+- **Real Madrid : Thibaut Courtois forfait de dernière minute pour le Clasico !**: [Link](https://www.footmercato.net/a5019357978059521686-real-madrid-thibaut-courtois-forfait-de-derniere-minute-pour-le-clasico)
+- **Une humiliation et quelques claques : les 5 pires souvenirs de Mourinho dans les Clásicos**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/fc-barcelone-real-madrid-i-cinq-fois-ou-les-blaugranas-ont-fait-mordre-la-poussiere-aux-merengues-de-jose-mourinho_sto23348082/story.shtml)
+- **Clasico : de retour au Real Madrid, Mourinho a-t-il toujours l’antidote au FC Barcelone ?**: [Link](https://lematin.ma/sports/clasico-de-retour-a-madrid-mourinho-a-t-il-toujours-lantidote-au-barca/372077)
+
+
+### barca vs real madrid (N/A, Sun, 25 Oct 2026 03:20:00 -0700)
+
+- **‘Provisional Measures’—Real Madrid’s Plot to Have Vinicius Jr Ban Reduced**: [Link](https://www.si.com/soccer/real-madrid-plot-vinicius-jr-ban-reduced)
+- **Vinícius Will Watch El Clásico From the Stands, Kane Stays at Bayern Until 2029, and Elmas Scored in Under a Minute**: [Link](https://metla.mk/en/news/vinicius-kane-elmas-football/)
+- **'I’m actually quite pleased' - Real Madrid boss Jose Mourinho takes sarcastic swipe at Liga over Vinicius Junior's four-match suspension**: [Link](https://www.yardbarker.com/soccer/articles/im_actually_quite_pleased_real_madrid_boss_jose_mourinho_takes_sarcastic_swipe_at_liga_over_vinicius_juniors_four_match_suspension/s1_17790_44438903)
+
+
+### iphone duo (N/A, Sun, 25 Oct 2026 03:20:00 -0700)
+
+- **ベトナムでiPhone Duoが高価な理由。**: [Link](https://www.vietnam.vn/ja/ly-do-iphone-duo-co-gia-cao-tai-viet-nam)
+- **折りたたみ「iPhoneDuo」発売画面分割など初搭載機能も価格36万超に「高い」9割**: [Link](https://www.asahi.co.jp/webnews/pages/ann_000542597.html)
+- **AppleがiPhone Duoの予約受付を再開、顧客は依然として購入困難**: [Link](https://ja.laodong.vn/cong-nghe/apple-mo-lai-dat-truoc-iphone-duo-khach-van-kho-mua-may-1788737.ldo)
+
+
+### خبر (N/A, Sun, 25 Oct 2026 03:10:00 -0700)
+
+- **مركز شؤون المسرح ينظم ورشة حول فن الدمى وتقنياته**: [Link](https://qna.org.qa/ar-QA/News-Area/News/2026-10/25/%D9%85%D8%B1%D9%83%D8%B2-%D8%B4%D9%88%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%B1%D8%AD-%D9%8A%D9%86%D8%B8%D9%85-%D9%88%D8%B1%D8%B4%D8%A9-%D8%AD%D9%88%D9%84-%D9%81%D9%86-%D8%A7%D9%84%D8%AF%D9%85%D9%89-%D9%88%D8%AA%D9%82%D9%86%D9%8A%D8%A7%D8%AA%D9%87)
+- **المصرف العقاري يزيد تخصيصات المبادرة السكنية ترليون دينار**: [Link](https://iraq.shafaqna.com/AR/666086/)
+- **المالية: زيادة تخصيص المبادرة العقارية السكنية بمبلغ تريليون دينار**: [Link](https://ultrairaq.ultrasawt.com/%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%AA%D8%AE%D8%B5%D9%8A%D8%B5-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D9%82%D8%A7%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%83%D9%86%D9%8A%D8%A9-%D8%A8%D9%85%D8%A8%D9%84%D8%BA-%D8%AA%D8%B1%D9%8A%D9%84%D9%8A%D9%88%D9%86-%D8%AF%D9%8A%D9%86%D8%A7%D8%B1/%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D8%AA%D8%AD%D8%B1%D9%8A%D8%B1/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF)
+
+
+### avion (N/A, Sun, 25 Oct 2026 03:00:00 -0700)
+
+- **Un nouvel avion de brousse en 2028 : l’Antonov 2 !**: [Link](https://www.aerobuzz.fr/breves-aviation-generale/un-nouvel-avion-de-brousse-en-2028-lantonov-2/)
+- **"Les appareils se sont écrasés" : deux avions militaires se percutent en plein vol lors d’un exercice, quatre pilotes meurent dans le crash**: [Link](https://www.midilibre.fr/2026/10/24/les-appareils-se-sont-ecrases-deux-avions-militaires-se-percutent-en-plein-vol-lors-dun-exercice-quatre-pilotes-meurent-dans-le-crash-13618284.php)
+- **4 pilotes trouvent la mort dans le crash de deux avions militaires lors d'un vol d'entraînement aux Philippines**: [Link](https://www.spa.gov.sa/fr/N2709119)
+
+
+### البطولة الاحترافية المغربية (N/A, Sun, 25 Oct 2026 01:20:00 -0700)
+
+- **البطولة الوطنية الاحترافية لكرة القدم تعد بمواجهات كلاسيكية مثيرة في دورتها الخامسة – اليوم 24**: [Link](https://alyaoum24.com/2052562.html)
+- **الدورة الخامسة.. مواجهات قوية تعد برسم ملامح جديدة في سبورة ترتيب البطولة الاحترافية 2**: [Link](https://ar.sport.le360.ma/football/Y6VJ2E4LJBBELPNSDVEVHTRF7A/)
+- **البطولة الإحترافية 1: نتائج وبرنامج الدورة 5**: [Link](https://inews.ma/news/8750076)
+
+
+### إنزو ماريسكا (N/A, Sat, 24 Oct 2026 23:40:00 -0700)
+
+- **بالفيديو.. جويهي ودوناروما يقودان مانشستر سيتي إلى السقوط الأول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%AC%D9%88%D9%8A%D9%87%D9%8A-%D9%88%D8%AF%D9%88%D9%86%D8%A7%D8%B1%D9%88%D9%85%D8%A7-%D9%8A%D9%82%D9%88%D8%AF%D8%A7%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84/bltc3e5056bbc230b13)
+- **شاهد.. أستون فيلا يلحق بمانشستر سيتي الهزيمة الأولى هذا الموسم**: [Link](https://www.aljazeera.net/sport/2026/10/24/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A3%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%8A%D9%84%D8%AD%D9%82-%D8%A8%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A)
+- **سقوط أول لمانشستر سيتي في البريميرليغ.. وغضب جماهيري يلاحق ماريسكا بسبب بوعدي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%B3%D9%82%D9%88%D8%B7-%D8%A3%D9%88%D9%84-%D9%84%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%BA-%D9%88%D8%BA%D8%B6%D8%A8-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A-%D9%8A%D9%84%D8%A7%D8%AD%D9%82-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A/26873)
+
+
 ### مطر (N/A, Sat, 24 Oct 2026 23:10:00 -0700)
 
 - **«الأرصاد» تكشف عن موعد تقلب الطقس: انخفاض 4 درجات وأمطار تصل لحد السيول**: [Link](https://www.almasryalyoum.com/news/details/4391405)
