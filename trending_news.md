@@ -1,3 +1,22 @@
+### مطر (N/A, Sat, 24 Oct 2026 23:10:00 -0700)
+
+- **«الأرصاد» تكشف عن موعد تقلب الطقس: انخفاض 4 درجات وأمطار تصل لحد السيول**: [Link](https://www.almasryalyoum.com/news/details/4391405)
+- **طقس مصر اليوم الأحد.. أمطار رعدية وسيول محتملة وتحذير من البرق**: [Link](https://al-ain.com/article/egypt-weather-rain-floods-2026)
+- **الحر مش هيخلص.. ارتفاع طفيف في الحرارة بسبب الكتل الهوائية الصحراوية|فيديو**: [Link](https://www.altreeq.com/549242)
+
+
+### playstation (N/A, Sat, 24 Oct 2026 18:20:00 -0700)
+
+- **Open-World RPG PlayStation Exclusive Now Free for Some PS5 Users**: [Link](https://comicbook.com/gaming/news/ps5-playstation-open-world-rpg-exclusive-game-free/)
+- **Playstation Plus October Game Catalogue Additions Include Mobsters, Dinosaurs, Shooters and More**: [Link](https://www.mensjournal.com/entertainment/playstation-plus-october-game-catalogue-additions-include-mobsters-dinosaurs-shooters-and-more)
+- **PlayStation Plus drops 5 free games today, includes AAA PlayStation open-world adventure**: [Link](https://www.gamingbible.com/news/platform/playstation/playstation-plus-free-games-october-2026-horizon-mafia-236781-20261020)
+
+
+### classement moghreb de tétouan – widad sportive de témara (N/A, Sat, 24 Oct 2026 16:50:00 -0700)
+
+
+
+
 ### heure france (N/A, Sat, 24 Oct 2026 18:00:00 -0700)
 
 - **Passage à l’heure d’hiver : pourquoi le changement d’heure est si critiqué**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/10/24/passage-a-l-heure-d-hiver-pourquoi-le-changement-d-heure-est-si-critique_5348679_4355771.html)
