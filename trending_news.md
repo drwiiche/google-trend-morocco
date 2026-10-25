@@ -1,3 +1,73 @@
+### barsa (N/A, Sun, 25 Oct 2026 14:10:00 -0700)
+
+- **Xavi Espart, sustituido en el minuto 30 por lesión**: [Link](https://es-us.noticias.yahoo.com/deportes/xavi-espart-sustituido-minuto-30-205044483.html)
+- **🚨 Flick debe cambiar: un crack del Barça se lesiona al inicio del Clásico**: [Link](https://onefootball.com/es/noticias/flick-debe-cambiar-un-crack-del-barca-se-lesiona-al-inicio-del-clasico-43671865)
+- **Doloroso golpe tempranero para el Barcelona en el Clásico**: [Link](https://www.goal.com/es-mx/noticias/doloroso-golpe-tempranero-para-el-barcelona-en-el-clasico/blt9280fcbdddc1b622)
+
+
+### barcellona - real madrid (N/A, Sun, 25 Oct 2026 14:10:00 -0700)
+
+- **📸 Comiche al Clásico! Il Barça regala il vantaggio a Ginocchio-lian Mbappé**: [Link](https://onefootball.com/it/notizie/comiche-al-clasico-il-barca-regala-il-vantaggio-a-ginocchio-lian-mbappe-43671935)
+- **STREAMESPN Barcellona vs Real Madrid diretta, live streaming, visione gratuita, trasmissione in diretta, copertura dell'evento, partita di calcio in diretta**: [Link](https://www.fctokyo.co.jp/en/panorama/back_sb.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2x4Y2x4ZHMuZ2l0aHViLmlvL25mbC9ob3QueG1sIi8+PC9rcnBhbm8+&id=video-streamespn-barcellona-vs-real-el-esa)
+- **【DIRECTO】 Squadra del Real Madrid contro la squadra del Barça en vivo Transmisión**: [Link](https://www.fctokyo.co.jp/en/panorama/back_sb.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vY2ltYW5nby5naXRodWIuaW8vc2FuaS9wcHYueG1sIi8+PC9rcnBhbm8+&id=squadra-del-real-madrid-contro-la-squadra-del-bar%C3%A7a-liv-on-today-match-optv-0000002008-49)
+
+
+### football (N/A, Sun, 25 Oct 2026 14:10:00 -0700)
+
+- **12 injured, including several minors, in shooting near Florida A&M stadium**: [Link](https://www.nbcnews.com/news/us-news/tallahassee-florida-shooting-florida-am-university-rcna605484)
+- **11 shot, including 6 children, in Tallahassee after FAMU game**: [Link](https://www.orlandosentinel.com/2026/10/25/11-shot-including-6-children-in-tallahassee-after-famu-game/)
+- **Local pastor urges faith leaders to stand together after Perry Street shooting in South Tallahassee**: [Link](https://www.wtxl.com/news/local-news/in-your-neighborhood/south-tallahassee/local-pastor-urges-faith-leaders-to-stand-together-after-perry-street-shooting-in-south-tallahassee)
+
+
+### bein sports live (N/A, Sun, 25 Oct 2026 14:00:00 -0700)
+
+- **Marseille vs Le Havre: French Ligue 1 stats & head-to-head**: [Link](https://www.bbc.co.uk/sport/football/live/crlykxqzlv00t)
+- **LIVE: Marseille vs Le Havre | Ligue 1**: [Link](https://www.beinsports.com/en-us/soccer/ligue-1/articles/live-marseille-vs-le-havre-ligue-1-2026-10-25)
+- **Marseille vs Le Havre: Where to watch, TV channel, live stream & kick-off time**: [Link](https://www.goal.com/en/news/live-stream-online-tv-where-to-watch-marseille-v-le-havre/blt451c418fc392c215)
+
+
+### real (N/A, Sun, 25 Oct 2026 13:50:00 -0700)
+
+- **Liveticker | FC Barcelona - Real Madrid 0:1 | 10. Spieltag | La Liga 2026/27**: [Link](https://www.kicker.ch/barcelona-gegen-real-madrid-2026-la-liga-5223887/ticker)
+- **IM@LIVE] Barcelona - Real Madrid ARD, ZDF oder nur MagentaTV überträgt**: [Link](https://www.fctokyo.co.jp/en/panorama/back_sb.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2VzcG5odWIuZ2l0aHViLmlvL3hudmlkZW9odWIvZmlsZTgueG1sIi8+PC9rcnBhbm8+&id=Barcelona-Real-Madrid-tv-sok9s0)
+- **Startaufstellungen von Real Madrid und Barcelona**: [Link](https://www.realmadrid.com/de-DE/news/fussball/erste-mannshaft/latest-news/once-inicial-del-real-madrid-contra-el-barcelona-25-10-2026)
+
+
+### cucurella (N/A, Sun, 25 Oct 2026 13:50:00 -0700)
+
+- **🥱 This must be ragebait! Magath's bizarre Ballon d'Or favourite**: [Link](https://sports.yahoo.com/articles/must-ragebait-magaths-bizarre-ballon-091900150.html)
+- **Ex-Premier League boss stuns with Marc Cucurella Ballon d'Or pick as Harry Kane eyes award**: [Link](https://www.mirror.co.uk/sport/football/news/marc-cucurella-ballon-dor-prediction-37808341)
+- **'World-class!' Former Bayern Munich coach would award Marc Cucurella the Ballon d’Or**: [Link](https://www.yardbarker.com/soccer/articles/world_class_former_bayern_munich_coach_would_award_marc_cucurella_the_ballon_dor/s1_17790_44470776)
+
+
+### diomande (N/A, Sun, 25 Oct 2026 13:50:00 -0700)
+
+- **Emotional first goal and Mourinho praise: Yan Diomande finding his feet at Real Madrid**: [Link](https://rbleipzig.com/en/news/yan-diomande-real-madrid-champions-league-rb-leipzig-reunion-jose-mourinho)
+- **The numbers don't lie: Diomandé ahead of Vinicius Junior**: [Link](https://foot-africa.com/en/news/the-numbers-dont-lie-diomande-ahead-of-vinicius-junior-1398470/)
+- **The stunning goals of Yan Diomande**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/los-golazos-de-yan-diomande-23-10-2026)
+
+
+### نادي النصر (N/A, Sun, 25 Oct 2026 13:50:00 -0700)
+
+- **أزمة نارية.. الاتحاد السعودي يرد على قرار الآسيوي بشأن مباراة النصر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%86%D8%A7%D8%B1%D9%8A%D8%A9--%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D9%93%D8%B3%D9%8A%D9%88%D9%8A-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1/blt8c96330988b5bcf5)
+- **موعد مباراة النصر ضد الوصل في دوري أبطال آسيا للنخبة والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/10/25/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D9%88%D8%B5%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **النصر يتلقى دفعة قوية قبل مواجهة الخلود في دوري روشن السعودي**: [Link](https://www.eremnews.com/sports/8y68nxr)
+
+
+### kooora (N/A, Sun, 25 Oct 2026 13:40:00 -0700)
+
+- **ضربة مبكرة مؤلمة لبرشلونة في الكلاسيكو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D8%B1%D8%A8%D8%A9-%D9%85%D8%A8%D9%83%D8%B1%D8%A9-%D9%85%D9%88%D9%94%D9%84%D9%85%D8%A9-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88/blt9280fcbdddc1b622)
+- **ضربة مبكرة لبرشلونة.. تغيير اضطراري يخلط حسابات فليك**: [Link](https://twaslnews1.twaslnews.com/6586775/)
+- **فيديو | ضربة قوية.. لاعب برشلونة يغادر مباراة ريال مدريد للإصابة**: [Link](https://www.btolat.com/news/413745)
+
+
+### kylian mbappé (N/A, Sun, 25 Oct 2026 13:40:00 -0700)
+
+- **Barcelona vs Real Madrid: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cj3vqz410y42t)
+- **Aboutrika: a 'disorganised' Barcelona were lucky to trail by only one goal in the first half**: [Link](https://www.yardbarker.com/soccer/articles/aboutrika_a_disorganised_barcelona_were_lucky_to_trail_by_only_one_goal_in_the_first_half/s1_17790_44472994)
+- **Barcelona vs Real Madrid LIVE Score, El Clasico: Kylian Mbappe Fires Real Madrid Into Lead In 1st Half | FCB 0-1 RMA**: [Link](https://sports.ndtv.com/football/barcelona-vs-real-madrid-live-score-el-clasico-2026-27-la-liga-live-updates-real-madrid-vs-barcelona-lamine-yamal-kylian-mbappe-12234774)
+
+
 ### mer noire (N/A, Sun, 25 Oct 2026 11:30:00 -0700)
 
 - **"Trois navires ont été attaqués" : un avion de patrouille maritime français a participé aux opérations de secours en mer Noire**: [Link](https://www.rtl.fr/actu/international/trois-navires-ont-ete-attaques-un-avion-de-patrouille-maritime-francais-a-participe-aux-operations-de-secours-en-mer-noire-7900688985)
