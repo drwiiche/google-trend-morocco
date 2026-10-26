@@ -1,3 +1,73 @@
+### séville – osasuna (N/A, Mon, 26 Oct 2026 12:10:00 -0700)
+
+- **Séville – Osasuna : à quelle heure et sur quelle chaîne voir le match de Liga ?**: [Link](https://news.footeo.com/2026/10/26/seville-osasuna-a-quelle-heure-et-sur-quelle-chaine-voir-le-match-de-liga-15888)
+- **FC Séville - Osasuna en direct - La Liga : Football Scores & Résultats - 26/10/2026**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/live-fc-seville-osasuna_mtc21891253/live.shtml)
+- **Pronostic FC Séville vs Osasuna 26 Octobre 2026**: [Link](https://dailysports.net/fr/predictions/le-retour-darrasate-peut-brouiller-les-cartes-pour-les-locaux-pronostic-seville-osasuna/)
+
+
+### بي اس جي ضد أولمبيك ليون (N/A, Mon, 26 Oct 2026 12:00:00 -0700)
+
+- **هل يكون مؤشرا؟.. صدمة من الخليفي قبل حفل الكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D9%8A%D9%83%D9%88%D9%86-%D9%85%D9%88%D9%94%D8%B4%D8%B1--%D8%B5%D8%AF%D9%85%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D9%81%D9%8A-%D9%82%D8%A8%D9%84-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt641084a63f97ba31)
+- **احتجاجات فرنسا تُهدد المزيد من مواجهات الدوري**: [Link](https://www.alaraby.co.uk/sport/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%AA%D9%8F%D9%87%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF-%D9%85%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **باريس سان جيرمان يصطدم بضيفه ليون في قمة الجولة الثامنة**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D8%B6%D9%8A%D9%81%D9%87-%D9%84%D9%8A%D9%88%D9%86-%D9%81%D9%8A-%D9%82%D9%85%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%85%D9%86%D8%A9-2026-10-26)
+
+
+### santa clara – benfica (N/A, Mon, 26 Oct 2026 12:00:00 -0700)
+
+- **Marco Silva muda seis: o onze do Benfica para visita aos Açores**: [Link](https://www.abola.pt/noticias/marco-silva-muda-seis-o-onze-do-benfica-para-visita-aos-acores-2026102615100096606)
+- **Atenção, Benfica: após chuva de manhã... tudo «limpo» para o jogo**: [Link](https://tvi.iol.pt/noticias/liga/santa-clara/atencao-benfica-apos-chuva-de-manha-tudo-limpo-para-o-jogo)
+- **As imagens da chegada do autocarro do Benfica ao estádio em Ponta Delgada**: [Link](https://www.record.pt/multimedia/videos/amp/as-imagens-da-chegada-do-autocarro-do-benfica-ao-estadio-em-ponta-delgada)
+
+
+### bein sport (N/A, Mon, 26 Oct 2026 12:00:00 -0700)
+
+- **Barcelona 1-2 Real Madrid: Kylian Mbappe scores late winner in El Clasico to beat LaLiga leaders**: [Link](https://www.skysports.com/football/news/13603624/barcelona-1-2-real-madrid-kylian-mbappe-scores-late-winner-in-el-clasico-to-beat-laliga-leaders)
+- **Barcelona 1-2 Real Madrid: El Clásico – as it happened**: [Link](https://www.theguardian.com/football/live/2026/oct/25/barcelona-v-real-madrid-el-clasico-live)
+- **Real Madrid beat Barcelona in El Clasico as La Liga heats up**: [Link](https://www.bbc.com/sport/football/articles/cr3wvz20pglqo)
+
+
+### twitch (N/A, Mon, 26 Oct 2026 12:00:00 -0700)
+
+- **Dele Alli's new Twitch career: Is forgotten ex-Tottenham star's pivot to livestreaming a viable alternative to football or cause for concern?**: [Link](https://www.goal.com/en-ca/originals/dele-alli-twitch-streaming-career-alternative-football-cause-concern/blt653fe25fa9d7e701)
+- **From Premier League star to Twitch: former England international finds an unexpected career path**: [Link](https://dailysports.net/news/from-premier-league-star-to-twitch-former-england-international-finds-an-unexpected-career-path/)
+- **Inside Dele Alli's life now with new gig after getting snubbed by former team-mates**: [Link](https://www.aol.co.uk/articles/inside-dele-allis-life-now-050000000.html)
+
+
+### paris-sg – ol (N/A, Mon, 26 Oct 2026 11:50:00 -0700)
+
+- **Porté par l'élan de ses succès marquants en Ligue des champions, le PSG a une occasion en or face à Lyon de prendre la tête de la Ligue 1**: [Link](https://www.lequipe.fr/Football/Article/Porte-par-l-elan-de-ses-succes-marquants-en-ligue-des-champions-le-psg-a-une-occasion-en-or-face-a-lyon-de-prendre-la-tete-de-la-ligue-1/1738666)
+- **Le PSG écoeure l’OL**: [Link](https://www.footmercato.net/a7699567346785493741-le-psg-ecoeure-lol)
+- **INFO RMC SPORT. Pourquoi les autorités envisagent un report de la rencontre PSG-OL**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/info-rmc-sport-pourquoi-les-autorites-envisagent-un-report-de-la-rencontre-psg-ol_AV-202610210739.html)
+
+
+### ballon dor time (N/A, Mon, 26 Oct 2026 11:40:00 -0700)
+
+- **Ballon d’Or: Five countries, players with most awards**: [Link](https://thenationonlineng.net/ballon-dor-five-countries-players-with-most-awards/)
+- **Cristiano Ronaldo vs. Lionel Messi: Who Won the Most Ballon d’Or Awards?**: [Link](https://athlonsports.com/soccer/cristiano-ronaldo-vs-lionel-messi-who-won-the-most-ballon-dor-awards)
+- **The youngest Ballon d’Or winners in history**: [Link](https://sports.yahoo.com/articles/youngest-ballon-d-winners-history-080500898.html)
+
+
+### galatasaray – fenerbahçe (N/A, Mon, 26 Oct 2026 11:20:00 -0700)
+
+- **Fenerbahçe, Galatasaray deplasmanında 2 eksikle ve 3 değişiklikle sahaya çıktı**: [Link](https://www.sondakika.com/spor/haber-fenerbahce-galatasaray-deplasmaninda-2-eksikle-ve--20368273/)
+- **Süper Lig'de dev derbi, zirve yarışı kızıştı! 26 Ekim Pazartesi Süper Lig Puan Durumu**: [Link](https://www.haberturk.com/bilgi/foto/puan-durumu-derbi-icin-nefesler-tutuldu-zirve-yarisi-kizisti-26-ekim-2026-super-lig-puan-durumu-ve-3922727)
+- **Fenerbahçe taraftarları, Galatasaray derbisi için toplandı**: [Link](https://www.cnnturk.com/spor/futbol/fenerbahce-taraftarlari-galatasaray-derbisi-icin-toplandi-3484782)
+
+
+### mohammed vi (N/A, Mon, 26 Oct 2026 11:10:00 -0700)
+
+- **Jordanie: trois membres d'une même famille arrêtés après l'attaque contre une église**: [Link](https://medias24.com/agence-presse/jordanie-trois-membres-dune-meme-famille-arretes-apres-lattaque-contre-une-eglise/)
+- **Le roi Mohammed VI adresse ses condoléances au roi de Jordanie après l'attaque terroriste contre une église**: [Link](https://telquel.ma/instant-t/2026/10/26/le-roi-mohammed-vi-adresse-ses-condoleances-au-roi-de-jordanie-apres-lattaque-terroriste-contre-une-eglise_2014966/)
+- **Jordanie : trois suspects arrêtés après l’attaque meurtrière contre une église orthodoxe**: [Link](https://www.lemonde.fr/international/article/2026/10/26/jordanie-trois-suspects-arretes-apres-l-attaque-meurtriere-contre-une-eglise-orthodoxe_6800427_3210.html)
+
+
+### ballon d'or ceremony (N/A, Mon, 26 Oct 2026 11:10:00 -0700)
+
+- **Lionel Messi to Miss 2026 Ballon d'Or Ceremony Due to Inter Miami Commitments**: [Link](https://www.elbotola.com/en/article/2026-10-26-14-05-399.html)
+- **Messi to miss Ballon d'Or 2026 ceremony for youth football tournament**: [Link](https://www.idman.biz/en/news/world-football/163538)
+- **After visiting Spain: will Messi watch El Clasico from the Camp Nou?**: [Link](https://www.goal.com/en/news/after-visiting-spain-will-messi-watch-el-clasico-from-the-camp-nou/bltc334b92d7a62837e)
+
+
 ### بسمة بوسيل (N/A, Mon, 26 Oct 2026 05:50:00 -0700)
 
 - **مصر.. التحقيق في بلاغ ضد بسمة بوسيل بسبب الإزعاج**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/26/%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%8A-%D8%A8%D9%84%D8%A7%D8%BA-%D8%B6%D8%AF-%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A7%D8%B2%D8%B9%D8%A7%D8%AC-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%B2%D8%A7%D9%8A%D8%AF)
