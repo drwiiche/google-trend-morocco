@@ -1,3 +1,67 @@
+### boat (N/A, Mon, 26 Oct 2026 16:00:00 -0700)
+
+- **The Moments That Shaped FLIBS**: [Link](https://www.the-triton.com/article/the-moments-that-shaped-flibs)
+- **LIVE TV OPPORTUNITY: Transportation Expert Mike Caudill to Present LIVE from the Fort Lauderdale International Boat Show (FLIBS)**: [Link](https://finance.yahoo.com/economy/articles/live-tv-opportunity-transportation-expert-200600404.html)
+- **Deep Blue Yacht Supply Invites Boaters to Booth 1202 at the 2026 Fort Lauderdale International Boat Show**: [Link](https://markets.businessinsider.com/news/stocks/deep-blue-yacht-supply-invites-boaters-to-booth-1202-at-the-2026-fort-lauderdale-international-boat-show-1036665665)
+
+
+### super ballon d'or (N/A, Mon, 26 Oct 2026 16:00:00 -0700)
+
+- **Report: Lionel Messi emerges as favorite for potential Super Ballon d’Or in 2027**: [Link](https://bolavip.com/en/soccer/report-lionel-messi-emerges-as-favorite-for-potential-super-ballon-dor-in-2027)
+- **Cristiano Ronaldo leads Messi with 75% of votes in all-time Ballon d’Or poll**: [Link](https://www.portugal.fr/en/Cristiano-Ronaldo-leads-Messi-with-75-of-votes-in-all-time-Ballon-dOr-poll.html)
+- **Ballon d’Or: What football fans should expect on d-day – France Football**: [Link](https://blueprint.ng/ballon-dor-what-football-fans-should-expect-on-d-day-france-football/)
+
+
+### as (N/A, Mon, 26 Oct 2026 16:00:00 -0700)
+
+- **Microsoft offers voluntary buyouts to 60,000 employees as AI leads to efficiency push**: [Link](https://www.cnbc.com/2026/10/26/microsoft-msft-voluntary-buyouts.html)
+- **Microsoft offers voluntary buyouts to 60,000 employees**: [Link](https://arstechnica.com/gadgets/2026/10/microsoft-offers-voluntary-buyouts-to-60000-employees/)
+- **Microsoft to Offer Buyouts to 60,000 Workers in New Cost Cut**: [Link](https://www.bloomberg.com/news/articles/2026-10-26/microsoft-to-offer-buyouts-to-60-000-workers-in-latest-cost-cut)
+
+
+### ronaldo (N/A, Mon, 26 Oct 2026 15:50:00 -0700)
+
+- **Cristiano Ronaldo leads Messi with 75% of votes in all-time Ballon d’Or poll**: [Link](https://www.portugal.fr/en/Cristiano-Ronaldo-leads-Messi-with-75-of-votes-in-all-time-Ballon-dOr-poll.html)
+- **Ballon d’Or: What football fans should expect on d-day – France Football**: [Link](https://blueprint.ng/ballon-dor-what-football-fans-should-expect-on-d-day-france-football/)
+- **BOAT makes Ballon d'Or debut: What's this new honour? Who are eligible to win the special prize? Complete details**: [Link](https://www.livemint.com/sports/football-news/boat-makes-ballon-dor-debut-whats-this-new-honour-who-are-eligible-to-win-the-special-prize-complete-details-11793028470711.html)
+
+
+### gleizes (N/A, Mon, 26 Oct 2026 15:40:00 -0700)
+
+- **La cérémonie du Ballon d'or au soutien de Christophe Gleizes**: [Link](https://www.sofoot.com/breves/la-ceremonie-du-70e-ballon-dor-apporte-son-soutien-au-journaliste-christophe-gleizes)
+
+
+### marca (N/A, Mon, 26 Oct 2026 15:40:00 -0700)
+
+
+
+
+### putellas (N/A, Mon, 26 Oct 2026 15:30:00 -0700)
+
+- **Ballon d’Or**: [Link](https://www.uefa.com/ballondor/liveblog/)
+- **Women's Ballon d'Or 2026: Will anyone stop Alexia Putellas winning?**: [Link](https://www.bbc.com/sport/football/articles/cq5ynp680jm1o)
+- **2026 Ballon d'Or Feminin final rankings: How the top players finished from 1-30**: [Link](https://www.usatoday.com/story/sports/soccer/2026/10/26/2026-ballon-dor-feminin-final-rankings/92447857007/)
+
+
+### charlyn corral (N/A, Mon, 26 Oct 2026 15:20:00 -0700)
+
+- **Charlyn Corral gana premio a Mejor Delantera del Mundo; manda mensaje a Scarlett Camberos**: [Link](https://www.record.com.mx/historia/charlyn-corral-gana-premio-a-mejor-delantera-del-mundo-manda-mensaje-a-scarlett-camberos-2026102622193024033)
+- **Kane y Olise, en el top 10 del Balón de Oro: falta conocer sus puestos**: [Link](https://onefootball.com/es/noticias/kane-y-olise-en-el-top-10-del-balon-de-oro-falta-conocer-sus-puestos-43677678)
+- **Así fue la emotiva felicitación de Club Pachuca con Charlyn Corral como delantera del año**: [Link](https://mexico.as.com/videos/asi-fue-la-emotiva-felicitacion-de-club-pachuca-con-charlyn-corral-como-delantera-del-ano-f202610-v/)
+
+
+### revenu (N/A, Mon, 26 Oct 2026 15:20:00 -0700)
+
+- **Revenus des jeunes ménages en Europe : où se situe la France ?**: [Link](https://fr.euronews.com/2026/10/26/revenus-des-jeunes-menages-en-europe-ou-se-situe-la-france)
+- **Les engagements du programme gouvernemental coûteront 62 MMDH en 2027**: [Link](https://medias24.com/2026/10/25/les-engagements-du-programme-gouvernemental-couteront-62-mmdh-en-2027-1783788/)
+- **IR: Ce qui changerait sur votre fiche de paie**: [Link](https://www.leconomiste.com/ir-ce-qui-changerait-sur-votre-fiche-de-paie/)
+
+
+### sophie turner (N/A, Mon, 26 Oct 2026 15:10:00 -0700)
+
+
+
+
 ### séville – osasuna (N/A, Mon, 26 Oct 2026 12:10:00 -0700)
 
 - **Séville – Osasuna : à quelle heure et sur quelle chaîne voir le match de Liga ?**: [Link](https://news.footeo.com/2026/10/26/seville-osasuna-a-quelle-heure-et-sur-quelle-chaine-voir-le-match-de-liga-15888)
