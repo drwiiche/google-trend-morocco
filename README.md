@@ -1,3 +1,66 @@
+### بسمة بوسيل (N/A, Mon, 26 Oct 2026 05:50:00 -0700)
+
+- **مصر.. التحقيق في بلاغ ضد بسمة بوسيل بسبب الإزعاج**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/26/%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%8A-%D8%A8%D9%84%D8%A7%D8%BA-%D8%B6%D8%AF-%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A7%D8%B2%D8%B9%D8%A7%D8%AC-%D9%81%D9%8A-%D8%A7%D9%84%D8%B4%D9%8A%D8%AE-%D8%B2%D8%A7%D9%8A%D8%AF)
+- **نوفمبر المقبل.. النطق بالحكم على المتهمة بسب وقذف الفنانة بسمة بوسيل**: [Link](https://www.almasryalyoum.com/news/details/4392317)
+- **التحقيق فى بلاغ ضد بسمة بوسيل بسبب الإزعاج فى الشيخ زايد**: [Link](https://www.youm7.com/story/2026/10/26/%D8%A7%D9%84%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%81%D9%89-%D8%A8%D9%84%D8%A7%D8%BA-%D8%B6%D8%AF-%D8%A8%D8%B3%D9%85%D8%A9-%D8%A8%D9%88%D8%B3%D9%8A%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%A5%D8%B2%D8%B9%D8%A7%D8%AC-%D9%81%D9%89-%D8%A7%D9%84%D8%B4%D9%8A%D8%AE/7593879)
+
+
+### استيراد (N/A, Mon, 26 Oct 2026 05:00:00 -0700)
+
+- **استنفاد حصة استيراد الأبقار يثير مخاوف مهنيين من ارتفاع أسعار اللحوم الحمراء**: [Link](https://www.hespress.com/%D8%A7%D8%B3%D8%AA%D9%86%D9%81%D8%A7%D8%AF-%D8%AD%D8%B5%D8%A9-%D8%A7%D8%B3%D8%AA%D9%8A%D8%B1%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D8%A8%D9%82%D8%A7%D8%B1-%D9%8A%D8%AB%D9%8A%D8%B1-%D9%85%D8%AE%D8%A7%D9%88-1828677.html)
+- **المغرب يفتح الباب أمام الجواميس البرازيلية الموجهة للذبح**: [Link](https://al3omk.com/1200288.html)
+- **عامر بروتينات وقليل فيه ليدام…المغرب غادي يبدا يستورد الگاموس حي من البرازيل**: [Link](https://www.goud.ma/%D8%B9%D8%A7%D9%85%D8%B1-%D8%A8%D8%B1%D9%88%D8%AA%D9%8A%D9%86%D8%A7%D8%AA-%D9%88%D9%82%D9%84%D9%8A%D9%84-%D9%81%D9%8A%D9%87-%D9%84%D9%8A%D8%AF%D8%A7%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%BA-1049508/)
+
+
+### didier deschamps (N/A, Mon, 26 Oct 2026 04:40:00 -0700)
+
+- **Real Madrid : pourquoi l’ombre de Didier Deschamps plane déjà sur José Mourinho avant le Clásico**: [Link](https://www.football365.fr/real-madrid-pourquoi-lombre-de-didier-deschamps-plane-deja-sur-jose-mourinho-avant-le-clasico-10323152.html)
+- **Didier Deschamps au Real Madrid, c'est confirmé**: [Link](https://www.foot01.com/espagne/didier-deschamps-au-real-madrid-cest-confirme)
+- **Un journal catalan provoque Mourinho : le Clasico a fait tomber de nombreux noms, allez-vous les rejoindre**: [Link](https://fr.news.yahoo.com/sport/journal-catalan-provoque-mourinho-clasico-082945745.html)
+
+
+### جوزيه مورينيو (N/A, Mon, 26 Oct 2026 04:20:00 -0700)
+
+- **خوسيه مورينيو يهدي فوز ريال مدريد في «الكلاسيكو» لمجموعة معينة من مشجعي برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%86%D8%A7%D9%82-%D8%AD%D8%A7%D8%B1-%D9%84%D9%87%D9%85-%D8%AC%D9%88%D8%B2%D9%8A%D9%87-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%87%D8%AF%D9%8A-%D9%81%D9%88%D8%B2-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D9%84%D8%A8%D8%B9%D8%B6-%D9%85%D8%B4%D8%AC%D8%B9%D9%8A-%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blt1cd2258f23cbd1d2)
+- **كلاسيكو التكتيك.. هكذا تفوق مورينيو على فليك وقاد ريال مدريد لهزيمة برشلونة**: [Link](https://www.aljazeera.net/sport/2026/10/26/%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%A7%D9%84%D8%AA%D9%83%D8%AA%D9%8A%D9%83-%D9%87%D9%83%D8%B0%D8%A7-%D8%AA%D9%81%D9%88%D9%82-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%B9%D9%84%D9%89)
+- **لونين يكشف مفاتيح فوز ريال مدريد على برشلونة في "الكلاسيكو"**: [Link](https://www.elbotola.com/article/2026-10-26-12-05-567.html)
+
+
+### باكو خيميز (N/A, Mon, 26 Oct 2026 03:50:00 -0700)
+
+- **الرجاء يهزم إل كانيمي ويبلغ دور المجموعات بكأس الكونفدرالية الإفريقية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%8A%D9%87%D8%B2%D9%85-%D8%A5%D9%84-%D9%83%D8%A7%D9%86%D9%8A%D9%85%D9%8A-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88-1828019.html)
+- **فيديو: الرجاء الرياضي يعبر إلى دور المجموعات بعد انتصار شاق على كانيمي واريورز**: [Link](https://2m.ma/fr/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%A5%D9%84%D9%89-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%B4%D8%A7%D9%82-%D8%B9%D9%84%D9%89-%D9%83%D8%A7%D9%86%D9%8A%D9%85%D9%8A-%D9%88%D8%A7%D8%B1%D9%8A%D9%88%D8%B1%D8%B2-20261024)
+- **هوجا: نعرف أن جماهير الرجاء غير راضية و نحن كذلك**: [Link](https://radiomars.ma/%D9%87%D9%88%D8%AC%D8%A7-%D9%86%D8%B9%D8%B1%D9%81-%D8%A3%D9%86-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%BA%D9%8A%D8%B1-%D8%B1%D8%A7%D8%B6%D9%8A%D8%A9-%D9%88/)
+
+
+### vucic (N/A, Mon, 26 Oct 2026 02:30:00 -0700)
+
+- **Explainer: Serbia's new leaders face host of tough challenges**: [Link](https://www.reuters.com/world/serbias-new-leaders-face-host-tough-challenges-2026-10-26/)
+- **Serbia’s political veteran Vucic outplayed all opponents. Then the students came**: [Link](https://apnews.com/article/serbia-vucic-profile-resignation-election-fcb7957e91bbb25de9e6947c1c051469)
+- **Video: Crowds Celebrate After Serbia’s Nationalist Leader Concedes Defeat**: [Link](https://www.nytimes.com/video/world/europe/100000011236309/serbia-election-results-vucic.html)
+
+
+### plateforme pétrolière (N/A, Mon, 26 Oct 2026 01:30:00 -0700)
+
+- **Gabon: cinq personnes disparues dans le naufrage d’une plate-forme pétrolière**: [Link](https://afrique.le360.ma/societe/gabon-cinq-personnes-disparues-dans-le-naufrage-dune-plate-forme-petroliere_YP4TL724PFGQPFNZFS7D2I72CQ/)
+- **Flash Info 17h TU (25.10.2026)**: [Link](https://www.dw.com/fr/flash-info-17htu-25102026/audio-79756784)
+- **Pourquoi l’action BW Energy chute-t-elle aujourd’hui ?**: [Link](https://fr.investing.com/news/stock-market-news/pourquoi-laction-bw-energy-chutetelle-aujourdhui--93CH-3652371)
+
+
+### lagouira (N/A, Mon, 26 Oct 2026 01:10:00 -0700)
+
+- **Lagouira : la Marine royale marocaine expulse des bateaux de pêche sénégalais et mauritaniens**: [Link](https://www.yabiladi.com/articles/details/205705/lagouira-marine-royale-marocaine-expulse.html)
+- **SÉRIE EP. 26 Pourquoi la Mauritanie veut fixer les frontières du Sahara avant tout accord**: [Link](https://ledesk.ma/datadesk/pourquoi-la-mauritanie-veut-fixer-les-frontieres-du-sahara-avant-tout-accord/)
+- **Lagouira, monnaie d’échange d’un marchandage entre Nouakchott et Rabat**: [Link](https://www.tsa-algerie.com/lagouira-monnaie-dechange-dun-marchandage-entre-nouakchott-et-rabat/)
+
+
+### مستثمر (N/A, Sun, 25 Oct 2026 22:20:00 -0700)
+
+- **"موديز" تمنح فرنسا فرصة لخفض عجز موازنتها.. والاحتجاجات تعقّد مهمة الحكومة**: [Link](https://www.mc-doualiya.com/%D9%81%D8%B1%D9%86%D8%B3%D8%A7/20261024-%D9%85%D9%88%D8%AF%D9%8A%D8%B2-%D8%AA%D9%85%D9%86%D8%AD-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%81%D8%B1%D8%B5%D8%A9-%D9%84%D8%AE%D9%81%D8%B6-%D8%B9%D8%AC%D8%B2-%D9%85%D9%88%D8%A7%D8%B2%D9%86%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC%D8%A7%D8%AA-%D8%AA%D8%B9%D9%82%D9%91%D8%AF-%D9%85%D9%87%D9%85%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9)
+- **الدين: موديز تبقي تصنيف فرنسا "هدنة قصيرة" لا "تصويت ثقة"**: [Link](https://arabic.euronews.com/2026/10/24/moodys-spares-france-a-slight-respite-not-a-vote-of-confidence)
+- **استقرار الأسهم الأوروبية وسط ترقب المستثمرين نتائج الشركات**: [Link](https://www.fananews.com/%D8%A7%D8%B3%D8%AA%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3%D9%87%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%88%D8%B3%D8%B7-%D8%AA%D8%B1%D9%82%D8%A8-%D8%A7%D9%84%D9%85/)
+
+
 ### bresil election presidentielle (N/A, Sun, 25 Oct 2026 20:40:00 -0700)
 
 - **Surprise au Brésil, Lula remporte la présidentielle, Bolsonaro conteste**: [Link](https://www.20minutes.fr/monde/bresil/4257402-20261026-bresil-victoire-lula-presidentielle-contre-bolsonaro-pays-reste-gauche)
