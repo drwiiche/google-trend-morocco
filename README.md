@@ -1,3 +1,31 @@
+### bresil election presidentielle (N/A, Sun, 25 Oct 2026 20:40:00 -0700)
+
+- **Surprise au Brésil, Lula remporte la présidentielle, Bolsonaro conteste**: [Link](https://www.20minutes.fr/monde/bresil/4257402-20261026-bresil-victoire-lula-presidentielle-contre-bolsonaro-pays-reste-gauche)
+- **Lula bat Flavio Bolsonaro et est réélu président du Brésil à la surprise générale**: [Link](https://www.rfi.fr/fr/am%C3%A9riques/20261026-lula-bat-flavio-bolsonaro-et-est-r%C3%A9%C3%A9lu-pr%C3%A9sident-du-br%C3%A9sil)
+- **Le Brésil aux urnes : Lula encore une fois ou retour des Bolsonaro ?**: [Link](https://medias24.com/agence-presse/le-bresil-aux-urnes-lula-encore-une-fois-ou-retour-des-bolsonaro/)
+
+
+### flávio bolsonaro (N/A, Sun, 25 Oct 2026 16:40:00 -0700)
+
+- **Lula vence em 69 cidades do Paraná no 2º turno; veja onde o voto no presidente foi maior**: [Link](https://www.bandab.com.br/politica/eleicoes-2026/lula-foi-o-mais-votado-em-69-cidades-do-parana/)
+- **Resultado das eleições 2026 em Rio Bonito do Iguaçu (PR): como foi a votação no 2º turno**: [Link](https://g1.globo.com/pr/parana/eleicoes/2026/noticia/2026/10/25/resultado-das-eleicoes-2026-em-rio-bonito-do-iguacu-pr-como-foi-a-votacao-no-2o-turno.ghtml)
+- **Eleições em Eneas Marques: diferença de 88 votos**: [Link](https://jornaldebeltrao.com.br/featured/eleicoes-em-eneas-marques-diferenca-de-88-votos/)
+
+
+### la liga table (N/A, Sun, 25 Oct 2026 15:10:00 -0700)
+
+- **La Liga Table After El Clasico: Barcelona 27, Atletico 25, Madrid 24**: [Link](https://thefalse9.com/2026/10/la-liga-table-after-el-clasico.html)
+- **LaLiga table after El Clásico and how it looks without VAR, matchday 10**: [Link](https://onefootball.com/en/news/laliga-table-after-el-clasico-and-how-it-looks-without-var-matchday-10-43672330)
+- **Kylian Mbappe goals lead Real Madrid past Barcelona in El Clasico: Live updates, reaction**: [Link](https://www.nytimes.com/athletic/live-blogs/barcelona-vs-real-madrid-live-updates-el-clasico-predictions-team-news-and-more/cZB0CJqaIcUo/)
+
+
+### fc barcelona vs real madrid standings (N/A, Sun, 25 Oct 2026 14:50:00 -0700)
+
+- **Kylian Mbappé scores 100th goal for Real Madrid in dramatic Clásico win**: [Link](https://www.espn.com/soccer/story/_/id/50246032/kylian-mbappe-scores-100th-goal-real-madrid-dramatic-clasico-win)
+- **Real Madrid defeat Barcelona at Camp Nou to halve gap to LaLiga leaders**: [Link](https://www.reuters.com/sports/soccer/real-madrid-defeat-barcelona-camp-nou-halve-gap-laliga-leaders-2026-10-25/)
+- **Mourinho: "Great match, great victory, and the boys deserve it"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/press-conference/rueda-de-prensa-mourinho-post-barcelona-rm-j10-liga-25-10-2026)
+
+
 ### lula (N/A, Sun, 25 Oct 2026 15:40:00 -0700)
 
 - **Votação no exterior: Lula vence em 42 países; Flávio Bolsonaro, em 12**: [Link](https://g1.globo.com/mundo/noticia/2026/10/25/votacao-no-exterior-confira-os-resultados-do-2o-turno-entre-lula-e-flavio-bolsonaro.ghtml)
