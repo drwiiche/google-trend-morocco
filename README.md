@@ -1,3 +1,31 @@
+### pronostic quinté (N/A, Mon, 26 Oct 2026 16:40:00 -0700)
+
+- **Les pronos hippiques du mardi 27 octobre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-27-octobre-2026_AN-202610250150.html)
+- **Quinté Plus PMU : Talentuoso devrait briller**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-talentuoso-devrait-briller-130810.html)
+- **Les pronostics des experts pour la réunion 1 à DEAUVILLE-LA TOUQUES ce mardi 27 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/les-pronostics-des-experts-pour-la-reunion-1-a-deauville-la-touques-ce-mardi-27-octobre)
+
+
+### ballon d'or ranking 2026 (N/A, Mon, 26 Oct 2026 16:40:00 -0700)
+
+- **Ballon d’Or 2026 rankings: Full results as world’s best 30 players are revealed**: [Link](https://football360.com.au/ballon-dor-2026-rankings-results-full-top-30/)
+- **the Ballon d'Or race: The journey of decline continues.. How did Sadio Mané's fortunes change between 2022's runner up and a late rank in 2026?**: [Link](https://foot-africa.com/en/news/the-ballon-dor-race-the-journey-of-decline-continues-how-did-sadio-manes-fortunes-change-between-2022s-runner-up-and-a-late-rank-in-2026-1399781/)
+- **~!@!(𝐎𝐅𝐅𝐈𝐂𝐈𝐀𝐋-ＴＶ) Luis Diaz Ballon d’Or 2026 Live FREE Tv Streams**: [Link](https://www.town.shodoshima.lg.jp/section/VR_choseiyoran/shodoshima349.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2ZyYW5jaXNqaGFycmlzby5naXRodWIuaW8vbml0YXEvbnh6LnhtbCIvPjwva3JwYW5vPg==&id=luis-diaz-ballon-or-2026-cbs-sports-umxk1)
+
+
+### rodri (N/A, Mon, 26 Oct 2026 16:20:00 -0700)
+
+- **El pueblo elige: Mbappé, Balón de Oro**: [Link](https://as.com/futbol/internacional/el-pueblo-elige-mbappe-balon-de-oro-f202610-n/)
+- **¿Giro a lo Rodri? Mbappé desata la histeria**: [Link](https://www.marca.com/futbol/real-madrid/2026/10/26/giro-rodri-mbappe-desata-histeria.html)
+- **"¿Mañana lo tienes?": el gesto de Mbappé tras el clásico que desata las teorías sobre el Balón de Oro**: [Link](https://www.sport.es/es/noticias/real-madrid/gesto-mbappe-clasico-dispara-rumores-balon-de-oro-135762103)
+
+
+### strikers (N/A, Mon, 26 Oct 2026 15:30:00 -0700)
+
+- **‘We won’t give in’ say Camden traffic warden strikers**: [Link](https://socialistworker.co.uk/news/we-wont-give-in-say-camden-traffic-warden-strikers/)
+- **Traffic warden strike hits council revenue**: [Link](https://www.workersliberty.org/story/2026-10-24/traffic-warden-strike-hits-council-revenue?language_content_entity=en)
+- **Parking wardens strike is costing Camden Council ‘more than £50k a day'**: [Link](https://www.camdennewjournal.co.uk/article/parking-wardens-strike-is-costing-camden-council-more-than-50k-a-day)
+
+
 ### boat (N/A, Mon, 26 Oct 2026 16:00:00 -0700)
 
 - **The Moments That Shaped FLIBS**: [Link](https://www.the-triton.com/article/the-moments-that-shaped-flibs)
