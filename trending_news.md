@@ -1,3 +1,66 @@
+### إبراهيم دياز (N/A, Tue, 27 Oct 2026 06:20:00 -0700)
+
+- **إبراهيم دياز يقترب من حسم مستقبله مع ريال مدريد.. ومورينيو يحسم موقفه من رحيله**: [Link](https://kifache.com/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84%D9%87-%D9%85%D8%B9-%D8%B1%D9%8A/)
+- **إغراءات سعودية لدياز**: [Link](https://assabah.ma/957242.html)
+- **براهيم دياز خارج حسابات مورينيو في الكلاسيكو.. والغموض يحيط بمستقبله مع ريال مدريد**: [Link](https://maroc2030.medradio.ma/%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D9%83/)
+
+
+### chine (N/A, Tue, 27 Oct 2026 05:10:00 -0700)
+
+- **Chine : deux grandes compagnies chinoises rompent avec Mbappé l'accusant d'avoir "heurté les sentiments nationaux"**: [Link](https://medias24.com/agence-presse/chine-deux-grandes-compagnies-chinoises-rompent-avec-mbappe-laccusant-davoir-heurte-les-sentiments-nationaux/)
+- **« Sincèrement désolé » : Kylian Mbappé présente ses « excuses » après la controverse sur Mao Zedong en Chine**: [Link](https://www.lequipe.fr/Football/Actualites/-sincerement-desole-kylian-mbappe-presente-ses-excuses-apres-la-controverse-sur-mao-zedong-en-chine/1739017)
+- **Nouveau coup dur pour Kylian Mbappe au lendemain de sa deuxième place au Ballon d’Or**: [Link](https://www.sudinfo.be/id1216548/article/2026-10-27/nouveau-coup-dur-pour-kylian-mbappe-au-lendemain-de-sa-deuxieme-place-au-ballon)
+
+
+### cnss (N/A, Tue, 27 Oct 2026 05:00:00 -0700)
+
+- **AMO : recouvrement des cotisations, financement, dépenses… les priorités de 2027**: [Link](https://medias24.com/2026/10/25/amo-recouvrement-financement-depenses-les-priorites-2027-1783751/)
+- **L’assurance maladie obligatoire des fonctionnaires passe à la CNSS en février 2027**: [Link](https://ledesk.ma/2026/10/25/lassurance-maladie-obligatoire-des-fonctionnaires-passe-a-la-cnss-en-fevrier-2027/)
+- **[Tribune] Santé : 42,4 milliards de dirhams, l’heure des résultats**: [Link](https://mobile.telquel.ma/2026/10/20/tribune-sante-424-milliards-de-dirhams-lheure-des-resultats_2014005)
+
+
+### patrouilleur (N/A, Tue, 27 Oct 2026 03:50:00 -0700)
+
+- **Exclusif. 327 mineurs rentrés au Maroc après les événements de Sebta**: [Link](https://medias24.com/2026/10/26/mineurs-marocains-espagne-rapatries-sebta-1784194/)
+- **De Artículo 14 à Todo es mentira: Javier Chicote, Pablo Cambronero et l’accusation politique contre le Maroc**: [Link](https://fr.le360.ma/politique/de-articulo-14-a-todo-es-mentira-javier-chicote-pablo-cambronero-et-laccusation-politique-contre-le_A2EC46ZXLRBVVKAPFRIYREENOM/)
+- **Sebta : les navires marocains coupent leur identification, l’Espagne appelle en vain**: [Link](https://www.bladi.net/sebta-navires-marocains-coupent-identification-espagne-appelle-vain,124607.html)
+
+
+### جائزة كوبا (N/A, Tue, 27 Oct 2026 03:30:00 -0700)
+
+- **لامين يامال يكتب التاريخ في الكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blt96ca775c5248237b)
+- **بوعدي ومازا بين العشرة الكبار.. أين حل نجما المغرب والجزائر في جائزة "كوبا"؟**: [Link](https://www.aljazeera.net/sport/2026/10/27/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D9%85%D8%A7%D8%B2%D8%A7-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **يامال يحتفظ بجائزة أفضل لاعب شاب**: [Link](https://www.hespress.com/%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AD%D8%AA%D9%81%D8%B8-%D8%A8%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D8%A3%D9%81%D8%B6%D9%84-%D9%84%D8%A7%D8%B9%D8%A8-%D8%B4%D8%A7%D8%A8-1829454.html)
+
+
+### محمد رمضان (N/A, Tue, 27 Oct 2026 03:00:00 -0700)
+
+- **محمد رمضان عن تقديم دويتو جديد مع عصام صاصا: "هدفي أمتعكم"**: [Link](https://www.masrawy.com/arts/zoom/details/2026/10/27/3069472/%D9%85%D8%AD%D9%85%D8%AF-%D8%B1%D9%85%D8%B6%D8%A7%D9%86-%D8%B9%D9%86-%D8%AA%D9%82%D8%AF%D9%8A%D9%85-%D8%AF%D9%88%D9%8A%D8%AA%D9%88-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D8%B9-%D8%B9%D8%B5%D8%A7%D9%85-%D8%B5%D8%A7%D8%B5%D8%A7-%D9%87%D8%AF%D9%81%D9%8A-%D8%A3%D9%85%D8%AA%D8%B9%D9%83%D9%85-)
+- **«مش هشحت استماعكو».. محمد رمضان يتحدى الجمهور بسبب أغنيته مع عصام صاصا**: [Link](https://www.almasryalyoum.com/news/details/4394439)
+- **«مش هشحت استماعكوا».. محمد رمضان يشوق جمهوره لأغنيته الجديدة مع عصام صاصا**: [Link](https://egypodcast.com/233007/)
+
+
+### transfert de propriété (N/A, Tue, 27 Oct 2026 01:30:00 -0700)
+
+- **Carte grise : la NARSA simplifie le transfert de propriété des véhicules**: [Link](https://lematin.ma/nation/carte-grise-la-narsa-simplifie-le-transfert-de-propriete-des-vehicules/372409)
+- **Carte grise au Maroc : fini les déplacements imposés vers la ville de l’acheteur**: [Link](https://maroc-diplomatique.net/carte-grise-au-maroc-fini-les-deplacements-imposes-vers-la-ville-de-lacheteur/)
+- **Cartes grises des voitures d’occasion: le dépôt des dossiers simplifié**: [Link](https://fr.le360.ma/societe/cartes-grises-des-voitures-doccasion-le-depot-des-dossiers-simplifie_XHBZBQJI25EIHMWCJJ3EPCPA2Y/)
+
+
+### مصطفى حجي (N/A, Tue, 27 Oct 2026 01:30:00 -0700)
+
+- **مصطفى حجي لكووورة: المغرب لم يسرق كأس أفريقيا.. والسنغال تعرف ما فعله ندالا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B5%D8%B7%D9%81%D9%89-%D8%AD%D8%AC%D9%8A-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%85-%D9%8A%D8%B3%D8%B1%D9%82-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7--%D9%88%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%B9%D8%B1%D9%81-%D9%85%D8%A7-%D9%81%D8%B9%D9%84%D9%87-%D9%86%D8%AF%D8%A7%D9%84%D8%A7/blt2584c3341e0dbb28)
+- **عصام الإبراهيمي لـ”مدار21″: تراجع الطاس عن مبادئها صعب.. وإعادة المباراة وارد**: [Link](https://madar21.com/461507.html)
+- **مباشر/محكمة التحكيم تفتح أخطر ملفات الكرة الإفريقية/حكيمي على أعتاب التاريخ**: [Link](https://www.almountakhab.com/node/16231872)
+
+
+### جائزة ياشين (N/A, Tue, 27 Oct 2026 01:20:00 -0700)
+
+- **الكرة الذهبية..سيمون يحرز جائزة "ياشين"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D8%B3%D9%8A%D9%85%D9%88%D9%86-%D9%8A%D8%AD%D8%B1%D8%B2-%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D9%8A%D8%A7%D8%B4%D9%8A%D9%86-1829455.html)
+- **الكرة الذهبية.. أوناي سميون أفضل حارس في العالم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9--%D8%A7%D9%94%D9%88%D9%86%D8%A7%D9%8A-%D8%B3%D9%85%D9%8A%D9%88%D9%86-%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D8%AD%D8%A7%D8%B1%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/blt1a7df9dda5b7afa4)
+- **المغربي ياسين بونو يحتل المركز الثامن في جائزة "ياشين" لأفضل حارس مرمى في العالم 2026**: [Link](https://www.aljazeera.net/sport/2026/10/27/%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88-%D8%AB%D8%A7%D9%85%D9%86-%D8%A3%D9%81%D8%B6%D9%84-%D8%AD%D8%A7%D8%B1%D8%B3-2026)
+
+
 ### طقس (N/A, Tue, 27 Oct 2026 00:20:00 -0700)
 
 - **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-81-1828665.html)
