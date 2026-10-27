@@ -1,3 +1,73 @@
+### élections israël (N/A, Tue, 27 Oct 2026 13:50:00 -0700)
+
+- **EN DIRECT, législatives en Israël : les premières estimations favorables à l’opposition, mais l’incertitude sur une future majorité est complète**: [Link](https://www.lemonde.fr/international/live/2026/10/27/en-direct-legislatives-en-israel-les-premieres-estimations-favorables-a-l-opposition-mais-l-incertitude-sur-une-future-majorite-est-complete_6801217_3210.html)
+- **EN DIRECT Élections en Israël : Le bloc de l'opposition à Netanyahou légèrement en tête, mais sans majorité...**: [Link](https://www.20minutes.fr/monde/israel/4257855-20261027-direct-elections-israel-benyamin-netanyahou-joue-mardi-urnes-survie-politique)
+- **Israël en direct : des sondages de sortie des urnes donnent l’opposition en tête, mais sans majorité face à Netanyahu**: [Link](https://www.france24.com/fr/moyen-orient/20261027-direct-ouverture-bureaux-vote-isra%C3%ABl-netanyahu-%C3%A9preuve-urnes)
+
+
+### classement al shamal – al-hilal (N/A, Tue, 27 Oct 2026 13:40:00 -0700)
+
+- **Inzaghi: the defeat to Al-Shamal is painful, and this is the reason behind the many changes**: [Link](https://www.yardbarker.com/soccer/articles/inzaghi_the_defeat_to_al_shamal_is_painful_and_this_is_the_reason_behind_the_many_changes/s1_17790_44481687)
+- **Paderborn vs Stuttgart: First Half BTTS**: [Link](https://www.coinbase.com/predictions/event/KXDFBPOKAL1HBTTS-26OCT28PADVFB)
+- **Salem Al-Dawsari in the starting line-up for the first time: Al-Hilal face Al-Shamal with a side of substitutes**: [Link](https://www.livescore.com/en/news/football/more/salem-al-dawsari-in-the-starting-line-up-for-the-first-time-al-hilal-face-al-shamal-with-a-side-of-substitutes-goal/)
+
+
+### رايان إير (N/A, Tue, 27 Oct 2026 13:40:00 -0700)
+
+- **"رايان إير" تعلن توسعًا قياسيًا في المغرب بشراكة مع مكتب السياحة**: [Link](https://www.hespress.com/%D8%B1%D8%A7%D9%8A%D8%A7%D9%86-%D8%A5%D9%8A%D8%B1-%D8%AA%D8%B9%D9%84%D9%86-%D8%AA%D9%88%D8%B3%D8%B9%D9%8B%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA-1829989.html)
+- **الرئيس التنفيذي لشركة “رايان إير” بالرباط لتكريس شراكة استراتيجية مع المكتب الوطني المغربي للسياحة**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%AA%D9%86%D9%81%D9%8A%D8%B0%D9%8A-%D9%84%D8%B4%D8%B1%D9%83%D8%A9-%D8%B1%D8%A7%D9%8A%D8%A7%D9%86-%D8%A5%D9%8A%D8%B1-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D9%84%D8%AA%D9%83%D8%B1%D9%8A%D8%B3-%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-%D8%A7%D8%B3%D8%AA%D8%B1%D8%A7%D8%AA%D9%8A%D8%AC%D9%8A%D8%A9-20261027)
+- **"رايان إير"تعزز رحلاتها من أكادير ومراكش والرباط نحو وجهات أوروبية**: [Link](https://ar.yabiladi.com/articles/details/205739/%D8%B1%D8%A7%D9%8A%D8%A7%D9%86-%D8%A5%D9%8A%D8%B1%D8%AA%D8%B9%D8%B2%D8%B2-%D8%B1%D8%AD%D9%84%D8%A7%D8%AA%D9%87%D8%A7-%D9%85%D9%86-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1.html)
+
+
+### election israel (N/A, Tue, 27 Oct 2026 13:10:00 -0700)
+
+- **Live 2026 Israel election results**: [Link](https://www.reuters.com/graphics/ISRAEL-ELECTION/RESULTS/akvelybkapr/)
+- **Netanyahu and Likud ministers in no hurry to arrive at party’s election HQ in Jerusalem**: [Link](https://www.timesofisrael.com/liveblog_entry/netanyahu-and-likud-ministers-in-no-hurry-to-arrive-at-partys-election-hq-in-jerusalem/)
+- **Live updates: Exit polls suggest a rebuke of Netanyahu but no clear winner in Israel’s election**: [Link](https://apnews.com/live/israel-election-netanyahu-gaza-mideast-news-updates-10-27-2026)
+
+
+### deauville (N/A, Tue, 27 Oct 2026 12:40:00 -0700)
+
+- **Logements insolites, salle de réception grandiose : À Deauville, «exploiter le patrimoine» permet de dégager des revenus**: [Link](https://www.ouest-france.fr/tourisme/logements-insolites-salle-de-reception-grandiose-a-deauville-exploiter-le-patrimoine-permet-de-degager-des-revenus-7325c242-d134-11f1-95ba-26d2045f6620)
+- **Les pronos hippiques du mardi 27 octobre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-27-octobre-2026_AN-202610250150.html)
+- **Faites le papier du Quinté+ de ce mardi 27 octobre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-mardi-27-octobre)
+
+
+### fleetwood vs arsenal (N/A, Tue, 27 Oct 2026 12:30:00 -0700)
+
+- **Carabao Cup: Fleetwood 1-1 Arsenal (5-3 pens): League Two outfit stun Premier League champions**: [Link](https://www.bbc.com/sport/football/live/cwgkveyrgpndt)
+- **Fleetwood vs Arsenal and Bradford vs Peterborough LIVE! Carabao Cup score updates, news, line-ups and how to watch or stream**: [Link](https://www.skysports.com/football/live-blog/13604119/fleetwood-vs-arsenal-and-bradford-vs-peterborough-live-carabao-cup-score-updates-news-line-ups-and-how-to-watch-or-stream)
+- **Team news: Dowman starts as two make debuts**: [Link](https://www.arsenal.com/news/team-news-dowman-starts-as-two-make-debuts-aDZb65Z9JXMq)
+
+
+### عائشة الكيلاني (N/A, Tue, 27 Oct 2026 12:30:00 -0700)
+
+- **تعافت من قصور في المخ.. كواليس ظهور الفنانة عائشة الكيلاني**: [Link](https://www.alarabiya.net/culture-and-art/2026/10/27/%D8%AA%D8%B9%D8%A7%D9%81%D8%AA-%D9%85%D9%86-%D9%82%D8%B5%D9%88%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AE-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D8%B9%D8%A7%D8%A6%D8%B4%D8%A9-%D8%A7%D9%84%D9%83%D9%8A%D9%84%D8%A7%D9%86%D9%8A)
+- **عائشة الكيلاني تتصدّر الترند بعد تكريمها... هل تعاني من الخرف؟**: [Link](https://www.lahamag.com/article/242332-%D8%B9%D8%A7%D8%A6%D8%B4%D8%A9-%D8%A7%D9%84%D9%83%D9%8A%D9%84%D8%A7%D9%86%D9%8A-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D9%86%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%AA%D9%83%D8%B1%D9%8A%D9%85%D9%87%D8%A7-%D9%87%D9%84-%D8%AA%D8%B9%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%AE%D8%B1%D9%81)
+- **مكرمون فى مهرجان نقابة الممثلين**: [Link](https://gate.ahram.org.eg/daily/News/205754/124/1033819/%D9%85%D8%B3%D8%B1%D8%AD/%D9%85%D9%83%D8%B1%D9%85%D9%88%D9%86-%D9%81%D9%89-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84%D9%8A%D9%86.aspx)
+
+
+### الدعم الاجتماعي المباشر (N/A, Tue, 27 Oct 2026 12:30:00 -0700)
+
+- **2300 مليار مداخيل السجائر والخمور**: [Link](https://assabah.ma/958019.html)
+- **برامج التنمية الترابية المندمجة لسنة 2027: آليات التدبير وواقع الاستقلالية المالية**: [Link](https://2m.ma/ar/news/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B1%D8%A7%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AF%D9%85%D8%AC%D8%A9-%D9%84%D8%B3%D9%86%D8%A9-2027-%D8%A2%D9%84%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%AF%D8%A8%D9%8A%D8%B1-%D9%88%D9%88%D8%A7%D9%82%D8%B9-20261025)
+- **المغرب يتوقع اقتراض 6.1 مليارات دولار من الخارج في 2027**: [Link](https://aa.com.tr/ar/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%B6-61-%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%AE%D8%A7%D8%B1%D8%AC-%D9%81%D9%8A-2027/4101805)
+
+
+### roma – cagliari (N/A, Tue, 27 Oct 2026 12:20:00 -0700)
+
+- **Maldini illude il Cagliari e spaventa la Roma, ma ci pensano Mora e Malen: Gasp non molla Inter e Lazio**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Roma/27-10-2026/roma-cagliari-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **La Roma batte il Cagliari, colpo esterno del Como a Torino**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/10/27/la-roma-batte-il-cagliari-colpo-esterno-del-como-a-torino_f964585b-75da-43c0-9e99-7968a268fa26.html)
+- **Cagliari, Pisacane: "Felice per il ritorno di Trepy, sono fiducioso per Sugawara"**: [Link](https://www.fantacalcio.it/news/calcio-italia/27_10_2026/cagliari-pisacane-felice-per-il-ritorno-di-trepy-sono-fiducioso-per-sugawara-499865)
+
+
+### dortmund – werder (N/A, Tue, 27 Oct 2026 12:10:00 -0700)
+
+- **DFB-Pokal: Sabitzer trifft spät: Dortmund bereit für Bayern**: [Link](https://www.zeit.de/news/2026-10/27/bvb-besiegt-werder-und-zieht-mit-muehe-ins-achtelfinale-ein)
+- **Hier läuft BVB vs. Werder jetzt live im TV und Stream**: [Link](https://www.sport.de/news/ne17138787/hier-laeuft-bvb-vs-werder-bremen-jetzt-live-im-free-tv-und-stream/)
+- **Pokalvorschau mit Nils Petersen: "Das sind Spiele, die sind untippbar"**: [Link](https://www.kicker.de/pokalvorschau-mit-nils-petersen-das-sind-spiele-die-sind-untippbar-1265485/video)
+
+
 ### الشمال ضد الهلال (N/A, Tue, 27 Oct 2026 11:30:00 -0700)
 
 - **ما القنوات الناقلة لمباراة الشمال والهلال في دوري أبطال آسيا للنخبة 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt268a00454737bb17)
