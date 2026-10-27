@@ -1,3 +1,71 @@
+### الشمال ضد الهلال (N/A, Tue, 27 Oct 2026 11:30:00 -0700)
+
+- **ما القنوات الناقلة لمباراة الشمال والهلال في دوري أبطال آسيا للنخبة 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt268a00454737bb17)
+- **مباشر.. مباراة الشمال ضد الهلال في دوري أبطال آسيا للنخبة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/27/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84-%D9%85%D8%B9-%D8%A7%D9%84%D9%87%D9%84%D8%A7%D9%84-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
+- **مدرب الشمال: نحترم الهلال لكننا نطمح للفوز.. ومحرز يمنحنا قوة إضافية**: [Link](https://sa.hihi2.com/2026/10/27/p249967.html)
+
+
+### sassuolo – lazio (N/A, Tue, 27 Oct 2026 11:20:00 -0700)
+
+- **Sassuolo-Lazio: very lengthy VAR check and protests over Frattesi’s position for the 1-0 goal – what happened**: [Link](https://www.goal.com/en/lists/sassuolo-lazio-very-lengthy-var-check-and-protests-over-frattesi-s-position-for-the-1-0-goal-what-happened/blt9ab3371c8936ce07)
+- **Sassuolo vs Lazio: Italian Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cwdr8nlkgm60t)
+- **Serie A Matchweek 9 Odds: Midweek Picks For All 10 Games**: [Link](https://rg.org/news/soccer/venezia-vs-inter-genoa-vs-juventus-serie-a-matchweek-9-odds-2026)
+
+
+### afrique du sud (N/A, Tue, 27 Oct 2026 10:30:00 -0700)
+
+- **Le Maroc surclasse l’Afrique du Sud dans le classement des destinations d’investissement en Afrique**: [Link](https://fr.le360.ma/economie/le-maroc-surclasse-lafrique-du-sud-dans-le-classement-des-destinations-dinvestissement-en-afrique_BM6C3XOJQBEYHJ2JQMBZSS2DRU/)
+- **Le Maroc progresse dans le classement africain de l’attractivité des investissements**: [Link](https://telquel.ma/instant-t/2026/10/27/le-maroc-progresse-dans-le-classement-africain-de-lattractivite-des-investissements_2015162/)
+- **Investissement en Afrique : le Maroc dépasse l’Afrique du Sud**: [Link](https://maroc-diplomatique.net/investissement-en-afrique-le-maroc-depasse-lafrique-du-sud/)
+
+
+### économie (N/A, Tue, 27 Oct 2026 09:40:00 -0700)
+
+- **17-octobre : la facture estimée à 1,5 milliard d’euros qui fait trembler l’économie française**: [Link](https://www.latribune.fr/article/economie/71130012652585/17-octobre-la-facture-estimee-a-1-5-milliard-d-euros-qui-fait-trembler-l-economie-francaise)
+- **Manifestations, dégradations, assurances : les villes sous pression**: [Link](https://www.lavoixdunord.fr/1749854/article/2026-10-27/manifestations-degradations-assurances-les-villes-sous-pression)
+- **Émeutes : la France peut-elle tenir jusqu’en 2027 ?**: [Link](https://www.lejdd.fr/Societe/emeutes-la-france-peut-elle-tenir-jusquen-2027-187152)
+
+
+### rot-weiss essen – rb leipzig (N/A, Tue, 27 Oct 2026 09:30:00 -0700)
+
+- **[[[LIVEÜBERTRAGUNG**: [Link](https://www.nychealthandhospitals.org/gouverneur-virtual-tour/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2FsaXNjaWFqYW1lczEuZ2l0aHViLmlvL255Yy94eXoueG1sIi8+PC9rcnBhbm8+&id=liveubertragung-rot-weiss-essen-gegen-rb-jwkbw)
+- **DFB-Pokal: Vor Pokal gegen Leipzig: Gäste-Einlass in Essen zubetoniert**: [Link](https://www.zeit.de/news/2026-10/27/vor-pokal-gegen-leipzig-gaeste-einlass-in-essen-zubetoniert)
+- **[Übertragung-jetzt!] RWE gegen RB Leipzig ｉｍ ＴＶ ｕｎｄ Ｌｉｖｅｓｔｒｅａｍ 27. Oktober 2026**: [Link](https://www.town.shodoshima.lg.jp/section/VR_choseiyoran/shodoshima349.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2R1a2Vucmd5MTQ3LmdpdGh1Yi5pby9uZXdzL3AueG1sIi8+PC9rcnBhbm8+&id=rwe-leipzig-jetzt-73210962)
+
+
+### huile (N/A, Tue, 27 Oct 2026 09:00:00 -0700)
+
+- **Sommet Russie-Afrique La 3e édition s’ouvre à Moscou**: [Link](https://www.leconomiste.com/sommet-russie-afrique-la-3e-edition-s-ouvre-a-moscou/)
+- **L'agence de presse TASS offre un accès gratuit aux sources d'information de plus de 300 médias africains.**: [Link](https://www.vietnam.vn/fr/hang-thong-tan-tass-cung-cap-mien-phi-nguon-tin-cho-hon-300-co-quan-truyen-thong-chau-phi)
+- **Allocution d'ouverture de Sergueï Lavrov, Ministre des Affaires étrangères de la Fédération de Russie, lors de ses pourparlers avec le ministre d'État, ministre des Affaires étrangères, de l'Intégration africaine et des Tchadiens de l'étranger de la République du**: [Link](https://mid.ru/fr/foreign_policy/russie_afrique/2126559/)
+
+
+### فاس (N/A, Tue, 27 Oct 2026 08:50:00 -0700)
+
+- **هزة أرضية خفيفة بجماعة عين الشقف**: [Link](https://www.hespress.com/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D8%A8%D8%AC%D9%85%D8%A7%D8%B9%D8%A9-%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%B4%D9%82%D9%81-1829686.html)
+- **تسجيل هزة أرضية خفيفة بضواحي مدينة فاس**: [Link](https://barlamane.com/%D8%AA%D8%B3%D8%AC%D9%8A%D9%84-%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AE%D9%81%D9%8A%D9%81%D8%A9-%D8%A8%D8%B6%D9%88%D8%A7%D8%AD%D9%8A-%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D9%81%D8%A7%D8%B3/)
+- **هزة أرضية تضرب نواحي فاس وخبير في الزلازل يوضح لـ"سيت أنفو"**: [Link](https://ar.lesiteinfo.com/maroc/%D9%87%D8%B2%D8%A9-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D9%86%D9%88%D8%A7%D8%AD%D9%8A-%D9%81%D8%A7%D8%B3-%D9%88%D8%AE%D8%A8%D9%8A%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B2%D9%84%D8%A7-1028733.html)
+
+
+### أياكس أمستردام (N/A, Tue, 27 Oct 2026 08:50:00 -0700)
+
+- **وزان يسجل لأياكس أمام سبارتا روتردام**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D9%86-%D9%8A%D8%B3%D8%AC%D9%84-%D9%84%D8%A3%D9%8A%D8%A7%D9%83%D8%B3-%D8%A3%D9%85%D8%A7%D9%85-%D8%B3%D8%A8%D8%A7%D8%B1%D8%AA%D8%A7-%D8%B1%D9%88%D8%AA%D8%B1%D8%AF%D8%A7%D9%85-1828754.html)
+- **الدوري الهولندي.. وزان يسجل في فوز أياكس على سبارتا روتردام**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%87%D9%88%D9%84%D9%86%D8%AF%D9%8A-%D9%88%D8%B2%D8%A7%D9%86-%D9%8A%D8%B3%D8%AC%D9%84-%D9%81%D9%8A-%D9%81%D9%88%D8%B2-%D8%A3%D9%8A%D8%A7%D9%83%D8%B3-%D8%B9%D9%84%D9%89-%D8%B3%D8%A8%D8%A7%D8%B1%D8%AA%D8%A7-%D8%B1%D9%88%D8%AA%D8%B1%D8%AF%D8%A7%D9%85-20261025)
+- **المغربي عبدالله وزان على رادار أندية أوروبية كبرى**: [Link](https://barlamane.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%B2%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A3/)
+
+
+### زلزال (N/A, Tue, 27 Oct 2026 08:50:00 -0700)
+
+- **آلاف الأسر المتضررة من زلزال الحوز لم تعد لمنازلها بعد.. وتقليص دعم البناء لجل المستفيدين**: [Link](https://lakome2.com/politique/435421/)
+- **صندوق زلزال الحوز .. ماذا صرف المغرب من المليارات وماذا تبقى لإعادة الإعمار؟**: [Link](https://al3omk.com/1200207.html)
+- **المغرب يستعد لإرساء إطار تنظيمي لسندات الكوارث لتعزيز مواجهة المخاطر المناخية**: [Link](https://howiyapress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A5%D8%B1%D8%B3%D8%A7%D8%A1-%D8%A5%D8%B7%D8%A7%D8%B1-%D8%AA%D9%86%D8%B8%D9%8A%D9%85%D9%8A-%D9%84%D8%B3%D9%86%D8%AF%D8%A7/)
+
+
+### arrestation (N/A, Tue, 27 Oct 2026 08:20:00 -0700)
+
+
+
+
 ### إبراهيم دياز (N/A, Tue, 27 Oct 2026 06:20:00 -0700)
 
 - **إبراهيم دياز يقترب من حسم مستقبله مع ريال مدريد.. ومورينيو يحسم موقفه من رحيله**: [Link](https://kifache.com/%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AD%D8%B3%D9%85-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84%D9%87-%D9%85%D8%B9-%D8%B1%D9%8A/)
