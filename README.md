@@ -1,3 +1,57 @@
+### طقس (N/A, Tue, 27 Oct 2026 00:20:00 -0700)
+
+- **توقعات طقس اليوم الاثنين بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-81-1828665.html)
+- **بين الحرارة والضباب والرياح.. الأرصاد الجوية تكشف توقعات الطقس إلى نهاية الأسبوع**: [Link](https://kifache.com/%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%B6%D8%A8%D8%A7%D8%A8-%D9%88%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%AD-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7/)
+- **طقس الثلاثاء.. زخات رعدية مع انخفاض في درجات الحرارة**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%AD%D8%A7%D8%B1-%D9%85%D8%B9-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF/)
+
+
+### حالة الطقس (N/A, Mon, 26 Oct 2026 23:50:00 -0700)
+
+- **ليبيا تتأهب لموجة أمطار جديدة وسط مخاوف**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A/%D8%B4%D9%85%D8%A7%D9%84-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/5333503-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%AA%D8%AA%D8%A3%D9%87%D8%A8-%D9%84%D9%85%D9%88%D8%AC%D8%A9-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%88%D8%B3%D8%B7-%D9%85%D8%AE%D8%A7%D9%88%D9%81)
+- **سحب مياه الأمطار بأحياء طرابلس (صور)**: [Link](https://twaslnews1.twaslnews.com/6662540/)
+- **من طريق المطار إلى شارع الزاوية.. جهود ميدانية لمعالجة تجمعات مياه الأمطار بطرابلس**: [Link](https://www.eanlibya.com/%D9%85%D9%86-%D8%B7%D8%B1%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D8%B1-%D8%A5%D9%84%D9%89-%D8%B4%D8%A7%D8%B1%D8%B9-%D8%A7%D9%84%D8%B2%D8%A7%D9%88%D9%8A%D8%A9-%D8%AC%D9%87%D9%88%D8%AF-%D9%85/)
+
+
+### الطقس (N/A, Mon, 26 Oct 2026 23:20:00 -0700)
+
+- **«رفع درجة الاستعداد القصوى».. بيان عاجل بشأن حالة الطقس اليوم الثلاثاء**: [Link](https://www.almasryalyoum.com/news/details/4393976)
+- **أمطار رعدية تصل إلى حد السيول.. تحذير من «الأرصاد» لسكان هذه المناطق**: [Link](https://www.elwatannews.com/news/details/8385142)
+- **«غطاء سحابي بهذه المناطق».. الأرصاد توضح خريطة الظواهر الجوية وحالة الطقس حتى نهاية الأسبوع**: [Link](https://darelhilal.com/News/3331390.aspx)
+
+
+### parcoursup (N/A, Mon, 26 Oct 2026 23:20:00 -0700)
+
+- **Parcoursup, classes réduites, rénovation du bâti... Ce qu'il faut retenir des annonces du gouvernement pour répondre à la colère lycéenne**: [Link](https://www.bfmtv.com/societe/education/parcoursup-classes-reduites-renovation-du-bati-ce-qu-il-faut-retenir-des-annonces-du-gouvernement-pour-repondre-a-la-colere-lyceenne_AV-202610260824.html)
+- **« Remplacement » de Parcoursup, 28 élèves par classe et rénovations : les annonces du gouvernement pour calmer la colère lycéenne**: [Link](https://www.leparisien.fr/politique/remplacement-de-parcoursup-28-eleves-maximum-en-seconde-renovation-des-batiments-et-creation-de-postes-les-annonces-du-gouvernement-pour-calmer-la-crise-lyceenne-26-10-2026-VPV6J3ZR2BD5ZHVEVJYWPJPI3Y.php)
+- **Colère sociale : l’intersyndicale jeunesse appelle à poursuivre la mobilisation malgré les annonces du gouvernement**: [Link](https://www.lefigaro.fr/actualite-france/en-direct-colere-sociale-le-gouvernement-promet-ce-lundi-des-reponses-tres-concretes-aux-lyceens-20261026)
+
+
+### météo (N/A, Mon, 26 Oct 2026 23:00:00 -0700)
+
+
+
+
+### weather (N/A, Mon, 26 Oct 2026 23:00:00 -0700)
+
+- **Kauai Weather Forecast for October 27, 2026**: [Link](https://kauainownews.com/2026/10/26/kauai-weather-forecast-for-october-27-2026/)
+- **Kauai Weather Forecast for October 25, 2026**: [Link](https://kauainownews.com/2026/10/24/kauai-weather-forecast-for-october-25-2026/)
+- **Kauai Weather Forecast for October 26, 2026**: [Link](https://kauainownews.com/2026/10/25/kauai-weather-forecast-for-october-26-2026/)
+
+
+### sports (N/A, Mon, 26 Oct 2026 19:40:00 -0700)
+
+- **Amir Khan and Paul Smith back combat sports safety inquiry**: [Link](https://www.bbc.co.uk/news/articles/c6q8ng0kpj8do)
+- **Liverpool set to play key role in new campaign to improve protection of fighters in combat sports**: [Link](https://theguideliverpool.com/liverpool-set-to-play-key-role-in-new-campaign-to-improve-protection-of-fighters-in-combat-sports/)
+- **Amir Khan’s union the GFA hires £500-an-hour silk to probe fighters’ rights**: [Link](https://www.cityam.com/amir-khans-union-the-gfa-hires-500-an-hour-silk-to-probe-fighters-rights/)
+
+
+### nba (N/A, Mon, 26 Oct 2026 19:10:00 -0700)
+
+- **Game Thread: Suns at Thunder**: [Link](https://www.brightsideofthesun.com/suns-game/112418/game-thread-suns-at-thunder)
+- **NBA: Phoenix Suns at Oklahoma City Thunder**: [Link](https://lufkindailynews.com/news_reuters/sports/nba-phoenix-suns-at-oklahoma-city-thunder/image_00f1f1ed-a796-562b-9fb8-2cab1204bbd2.html)
+- **Final Injury Report for Suns-Thunder: Will Jalen Williams, Chet Holmgren Play?**: [Link](https://www.aol.com/articles/final-injury-report-suns-thunder-200000000.html)
+
+
 ### pronostic quinté (N/A, Mon, 26 Oct 2026 16:40:00 -0700)
 
 - **Les pronos hippiques du mardi 27 octobre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-mardi-27-octobre-2026_AN-202610250150.html)
