@@ -1,3 +1,71 @@
+### inter miami – cincinnati (N/A, Wed, 28 Oct 2026 16:00:00 -0700)
+
+- **Red Bull New York to Face New York City FC on 2027 Sprint Season Decision Day**: [Link](https://www.newyorkredbulls.com/news/red-bull-new-york-to-face-new-york-city-fc-on-2027-sprint-season-decision-day)
+- **Lionel Messi, Inter Miami tabbed to play Cincinnati in MLS Sprint Season opener on Feb. 19**: [Link](https://www.kens5.com/article/syndication/associatedpress/lionel-messi-inter-miami-tabbed-to-play-cincinnati-in-mls-sprint-season-opener-on-feb-19/616-2f5417c6-17d6-4e5e-b429-3a5c112684c2)
+- **MLS sprint season to kick off on Feb. 19 in Miami**: [Link](https://www.espn.com/soccer/story/_/id/50311129/mls-sprint-season-kick-feb-19-miami)
+
+
+### درك (N/A, Wed, 28 Oct 2026 15:30:00 -0700)
+
+
+
+
+### ismael saibari (N/A, Wed, 28 Oct 2026 14:50:00 -0700)
+
+- **Bayern handed injury boost ahead of Magdeburg clash**: [Link](https://bulinews.com/bayern-handed-injury-boost-ahead-magdeburg-clash)
+- **Licensable picture: Bayern Munich - 1. FC Magdeburg**: [Link](https://www.reutersconnect.com/item/bayern-munich-1-fc-magdeburg/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX0RQQUFQSVMyNjEwMjhYOTlYOTQ3OTY)
+- **Jonathan Tah analyzes Bayern Munich’s tactics in DFB-Pokal win over FC Magdeburg**: [Link](https://www.bavarianfootballworks.com/bayern-munich-dfb-pokal/274444/jonathan-tah-hiroki-ito-jonas-urbig-fc-magdeburg-tactics)
+
+
+### classement raja casablanca – hassania agadir (N/A, Wed, 28 Oct 2026 14:20:00 -0700)
+
+- **Botola : le Raja accueille le Hassania au stade Larbi Zaouli, l’AS FAR reçoit l’Ittihad de Tanger à Rabat**: [Link](https://lematin.ma/sports/botola-le-raja-accueille-le-hassania-au-stade-larbi-zaouli/372565)
+- **Botola Pro D1 Inwi : le Raja arrache le nul face au Hassania d’Agadir**: [Link](https://radiomars.ma/fr/?p=7315)
+- **Le WAC et le Raja ont tenté de retarder la fermeture du complexe Mohammed V**: [Link](https://www.lesiteinfo.com/sport/685707-le-wac-et-le-raja-ont-tente-de-retarder-la-fermeture-du-complexe-mohammed-v.html)
+
+
+### far (N/A, Wed, 28 Oct 2026 14:10:00 -0700)
+
+- **Blackhawks' attendance pacing above last season so far, but fans won't stay patient forever**: [Link](https://chicago.suntimes.com/blackhawks/2026/10/28/blackhawks-attendance-nhl-comparison-fans)
+- **You’ve dropped off your Oregon ballot. What’s next?**: [Link](https://www.opb.org/article/2026/10/27/what-happens-to-your-oregon-ballot/)
+- **Election 2026: East Oregonian’s guide to the November election**: [Link](https://lagrandeobserver.com/2026/10/28/election-2026-east-oregonians-guide-to-the-november-election/)
+
+
+### flávio bolsonaro (N/A, Wed, 28 Oct 2026 13:50:00 -0700)
+
+- **Trump não quer contaminar eleições dos EUA com derrota de Flávio Bolsonaro, avalia analista internacional**: [Link](https://www.brasildefato.com.br/2026/10/28/trump-nao-quer-contaminar-eleicoes-dos-eua-com-derrota-de-flavio-bolsonaro-avalia-analista-internacional/)
+- **Leia as 3 versões da nota divulgada por Flávio ao chegar aos EUA**: [Link](https://www.poder360.com.br/poder-integras/leia-as-3-versoes-da-nota-divulgada-por-flavio-ao-chegar-aos-eua/)
+- **Coordenador de campanha do PL admite não ter prova de fraude eleitoral**: [Link](https://agenciabrasil.ebc.com.br/politica/noticia/2026-10/coordenador-de-campanha-do-pl-admite-nao-ter-prova-de-fraude-eleitoral)
+
+
+### كريستيانو رونالدو (N/A, Wed, 28 Oct 2026 13:40:00 -0700)
+
+- **قهر ميسي.. كريستيانو رونالدو يحصد جائزة الأفضل في تاريخ الكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D9%87%D8%B1-%D9%85%D9%8A%D8%B3%D9%8A--%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%8A%D8%AD%D8%B5%D8%AF-%D8%AC%D8%A7%D9%8A%D9%94%D8%B2%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/bltc84adaae8aee5326)
+- **تصويت "فرانس فوتبول" يحسمها.. "رونالدو 2008" الأفضل في التاريخ**: [Link](https://www.aljazeera.net/sport/2026/10/28/%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D9%81%D8%B1%D8%A7%D9%86%D8%B3-%D9%81%D9%88%D8%AA%D8%A8%D9%88%D9%84-%D9%8A%D8%AD%D8%B3%D9%85%D9%87%D8%A7-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-2008)
+- **رونالدو في القمة وميسي وصيفاً في تصويت الأفضل على الإطلاق.**: [Link](https://radiomars.ma/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D9%88%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D8%B5%D9%8A%D9%81%D8%A7%D9%8B-%D9%81%D9%8A-%D8%AA%D8%B5%D9%88%D9%8A%D8%AA/)
+
+
+### cristiano ronaldo (N/A, Wed, 28 Oct 2026 13:40:00 -0700)
+
+- **Messi crushed: Cristiano Ronaldo scoops award for best in Ballon d'Or history**: [Link](https://www.goal.com/en/news/beating-messi-cristiano-ronaldo-claims-award-for-best-in-ballon-d-or-history/bltc84adaae8aee5326)
+- **Footballer Cristiano Ronaldo tops BOAT online vote — Interia Sport**: [Link](https://ua.news/en/sport/futbolist-krishtianu-ronaldu-ocholiv-onlain-golosuvannia-boat-interia-sport)
+- **Ronaldo’s 2008 Ballon d’Or tops fan poll**: [Link](https://punchng.com/ronaldos-2008-ballon-dor-tops-fan-poll/)
+
+
+### boat (N/A, Wed, 28 Oct 2026 13:40:00 -0700)
+
+- **U.S. military destroys alleged drug boat in Pacific Ocean, killing 5 people**: [Link](https://www.cbsnews.com/news/us-military-destroys-alleged-drug-boat-pacific-5-killed/)
+- **Lethal Kinetic Strike, October 27, 2026**: [Link](https://www.southcom.mil/News/PressReleases/Article/4634591/lethal-kinetic-strike-october-27-2026/)
+- **US military kills five in eastern Pacific strike on suspected drug-trafficking vessel**: [Link](https://www.foxnews.com/us/us-military-kills-five-eastern-pacific-strike-suspected-drug-trafficking-vessel)
+
+
+### بورنموث ضد أستون فيلا (N/A, Wed, 28 Oct 2026 13:40:00 -0700)
+
+- **عدلي يقود فريقه إلى ربع نهائي كأس الرابطة الإنجليزية**: [Link](https://www.alayam24.com/articles-646491.html)
+- **عدلي وشمس الدين الطالبي يهزان الشباك في كأس الرابطة الإنجليزية**: [Link](https://www.hesport.com/%D8%B9%D8%AF%D9%84%D9%8A-%D9%88%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D8%A7%D9%84%D8%B7%D8%A7%D9%84%D8%A8%D9%8A-%D9%8A%D9%87%D8%B2%D8%A7%D9%86-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D9%83-%D9%81-459281.html)
+- **بورنموث يطيح بأستون فيلا بثلاثية ويبلغ ربع نهائي كأس الرابطة**: [Link](https://twaslnews1.twaslnews.com/6769504/)
+
+
 ### ليفربول ضد تشيلسي (N/A, Wed, 28 Oct 2026 12:20:00 -0700)
 
 - **جدول مباريات اليوم الأربعاء 28 أكتوبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-28-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt4ccc4f5167200cce)
