@@ -1,3 +1,29 @@
+### ايزنكوت (N/A, Tue, 27 Oct 2026 16:30:00 -0700)
+
+- **آيزنكوت وحلفاؤه: إسرائيل نجت من نتنياهو ونسعى لتشكيل حكومة صهيونية**: [Link](https://www.aljazeera.net/news/2026/10/27/%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D9%86%D9%8A%D8%B3%D8%AA-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8)
+- **تراجع معسكر نتانياهو وصعود الأحزاب العربية في الانتخابات الإسرائيلية**: [Link](https://www.hespress.com/%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%86%D8%AA%D8%A7%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%88%D8%B5%D8%B9%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%AD%D8%B2%D8%A7%D8%A8-%D8%A7%D9%84-1830070.html)
+- **انتخابات إسرائيل.. المشاركة 77.7% واللجنة ترفض تمديد التصويت**: [Link](https://www.alarabiya.net/arab-and-world/2026/10/27/%D8%A7%D9%82%D8%A8%D8%A7%D9%84-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%86%D8%B3%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A9-%D8%A8%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-557)
+
+
+### وزارة العدل (N/A, Tue, 27 Oct 2026 16:30:00 -0700)
+
+- **/ وزارة العدل تعلن عن نشر لائحة الخبراء المؤهلين لممارسة مهام السنديك في مساطر صعوبات المقاولة**: [Link](https://justice.gov.ma/2026/10/27/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B9%D8%AF%D9%84-%D8%AA%D8%B9%D9%84%D9%86-%D8%B9%D9%86-%D9%86%D8%B4%D8%B1-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D8%A7/)
+- **منتدى قطر العقاري 2026.. خبراء: قطر استثمرت بشكل جيد في القطاع العقاري وفي المستقبل**: [Link](https://www.fananews.com/%D9%85%D9%86%D8%AA%D8%AF%D9%89-%D9%82%D8%B7%D8%B1-%D8%A7%D9%84%D8%B9%D9%82%D8%A7%D8%B1%D9%8A-2026-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%82%D8%B7%D8%B1-%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%B1%D8%AA-%D8%A8/)
+- **المتحدة للتنمية تطلق "حدائق بيرليتا" وتروج لشقق "كريستال ريزيدنس"**: [Link](https://www.alaraby.co.uk/advertorial/%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D9%84%D9%84%D8%AA%D9%86%D9%85%D9%8A%D8%A9-%D8%AA%D8%B7%D9%84%D9%82-%D8%AD%D8%AF%D8%A7%D8%A6%D9%82-%D8%A8%D9%8A%D8%B1%D9%84%D9%8A%D8%AA%D8%A7-%D9%88%D8%AA%D8%B1%D9%88%D8%AC-%D9%84%D8%B4%D9%82%D9%82-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%B1%D9%8A%D8%B2%D9%8A%D8%AF%D9%86%D8%B3)
+
+
+### israel elections (N/A, Tue, 27 Oct 2026 14:50:00 -0700)
+
+- **No clear winner in Israel as exit polls suggest rebuke for Netanyahu**: [Link](https://www.cnn.com/2026/10/27/world/live-news/israel-elections-live-results-latest-votes-intl)
+- **Netanyahu claims right-wing bloc won ‘decisive majority’ among Zionist public, plans to form ‘right-wing government’; Eisenkot had urged him to accept defeat and step down**: [Link](https://www.timesofisrael.com/liveblog-october-27-2026/)
+- **Israel election results live: Netanyahu, Eisenkot blocs tied in exit polls**: [Link](https://www.aljazeera.com/news/liveblog/2026/10/27/israel-election-results-live-exit-polls-soon-as-netanyahu-faces-tight-race)
+
+
+### محام (N/A, Tue, 27 Oct 2026 14:20:00 -0700)
+
+
+
+
 ### élections israël (N/A, Tue, 27 Oct 2026 13:50:00 -0700)
 
 - **EN DIRECT, législatives en Israël : les premières estimations favorables à l’opposition, mais l’incertitude sur une future majorité est complète**: [Link](https://www.lemonde.fr/international/live/2026/10/27/en-direct-legislatives-en-israel-les-premieres-estimations-favorables-a-l-opposition-mais-l-incertitude-sur-une-future-majorite-est-complete_6801217_3210.html)
