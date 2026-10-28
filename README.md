@@ -1,3 +1,66 @@
+### élections israéliennes (N/A, Wed, 28 Oct 2026 05:20:00 -0700)
+
+- **EN DIRECT, législatives en Israël : après le dépouillement de plus de 85 % des bulletins, la coalition de droite et d’extrême droite de Benyamin Nétanyahou toujours en tête**: [Link](https://www.lemonde.fr/international/live/2026/10/28/en-direct-legislatives-en-israel-apres-le-depouillement-de-70-des-bulletins-le-camp-de-benyamin-netanyahou-en-tete-les-partis-arabes-credites-de-19-sieges-un-niveau-sans-precedent_6801217_3210.html)
+- **EN DIRECT Elections en Israël : Netanyahou vire en tête mais les résultats partiels sont serrés...**: [Link](https://www.20minutes.fr/monde/4258164-20261028-direct-elections-israel-netanyahou-vire-tete-resultats-partiels-serres)
+- **Législatives en Israël : le camp de Netanyahu en tête, mais sans majorité**: [Link](https://www.france24.com/fr/moyen-orient/20261027-l%C3%A9gislatives-isra%C3%ABl-participation-record-netanyahu-eisenkot-coude-%C3%A0-coude)
+
+
+### المهدي بنعطية (N/A, Wed, 28 Oct 2026 03:50:00 -0700)
+
+- **يقضي العام بأكمله في ميامي.. بن عطية يسخر من مركز ميسي بالكرة الذهبية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%82%D8%B6%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D8%A8%D8%A7%D9%94%D9%83%D9%85%D9%84%D9%87-%D9%81%D9%8A-%D9%85%D9%8A%D8%A7%D9%85%D9%8A--%D8%A8%D9%86-%D8%B9%D8%B7%D9%8A%D8%A9-%D9%8A%D8%B3%D8%AE%D8%B1-%D9%85%D9%86-%D9%85%D8%B1%D9%83%D8%B2-%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9/blta2253338e671adc3)
+- **"كيف يُعقل أن يحتل المركز الخامس؟".. بنعطية ينتقد ترتيب ميسي في الكرة الذهبية**: [Link](https://www.elbotola.com/article/2026-10-28-11-07-35.html)
+- **باريس سان جيرمان يفرض حضوره في قائمة العشرة الأوائل بسباق الكرة الذهبية 2026**: [Link](https://twaslnews1.twaslnews.com/6663139/)
+
+
+### نادي المغرب الفاسي (N/A, Wed, 28 Oct 2026 03:50:00 -0700)
+
+- **بركان و"الماص" في مجموعتين ناريتين**: [Link](https://www.hespress.com/%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%88%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%81%D9%8A-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%AA%D9%8A%D9%86-%D9%86%D8%A7%D8%B1%D9%8A%D8%AA%D9%8A%D9%86-1830387.html)
+- **بث مباشر: شاهد قرعة دوري أبطال إفريقيا 2026-2027 .. دور المجموعات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B4%D8%A7%D9%87%D8%AF-%D9%82%D8%B1%D8%B9%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2026-2027--%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA/bltff9198c8a99e0b8d)
+- **شاهد مباشرة: قرعة دور المجموعات لدوري أبطال أفريقيا وكأس الكونفدرالية الأفريقية (TotalEnergies) 2026/27 اليوم في القاهرة**: [Link](https://www.cafonline.com/ar/%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%AA%D9%88%D8%AA%D8%A7%D9%84-%D8%A5%D9%86%D9%8A%D8%B1%D8%AC%D9%8A%D8%B2/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%A7%D9%87%D8%AF-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1%D8%A9-%D9%82%D8%B1%D8%B9%D8%A9-%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%88%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-totalenergies-202627-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9/)
+
+
+### marocains (N/A, Wed, 28 Oct 2026 03:40:00 -0700)
+
+- **L'Equipe nationale U15 qualifiée pour le deuxième tour de la Coupe du monde et festival U15 FIFA**: [Link](https://frmf.ma/fr/articles/15-1)
+- **Mondial U-15 : la FIFA salue les performances des Lionceaux de l’Atlas et les ambitions du football marocain**: [Link](https://fr.hespress.com/494178-mondial-u-15-la-fifa-salue-les-performances-des-lionceaux-de-latlas-et-les-ambitions-du-football-marocain.html)
+- **Mondial U15 : le Maroc bat le Cameroun et file en huitièmes de finale**: [Link](https://lematin.ma/sports/mondial-u15-le-maroc-bat-le-cameroun-et-file-en-huitiemes-de-finale/372736)
+
+
+### ounahi (N/A, Wed, 28 Oct 2026 03:20:00 -0700)
+
+- **Greek newspaper announces end of Ounahi's season, confirms surgery and near six-month absence**: [Link](https://www.elbotola.com/en/article/2026-10-27-13-51-189.html)
+- **Azzedine Ounahi facing a much longer spell on the sidelines**: [Link](https://dailysports.net/news/azzedine-ounahi-facing-a-much-longer-spell-on-the-sidelines/)
+- **"This is not what we had hoped for": Panathinaikos coach laments the Ounahi blow**: [Link](https://www.goal.com/en/news/this-is-not-what-we-wanted-panathinaikos-coach-laments-ounahi-blow/blta59b95dd10b82c77)
+
+
+### سجن (N/A, Wed, 28 Oct 2026 00:50:00 -0700)
+
+- **تصل إلى 8 سنوات.. أحكام بالسجن تطال رؤساء سابقين للاتحاد الجزائري لكرة القدم**: [Link](https://www.aljazeera.net/sport/2026/10/27/%D8%A3%D8%AD%D9%83%D8%A7%D9%85-%D8%B3%D8%AC%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A-%D8%B2%D8%B7%D8%B4%D9%8A-%D8%B9%D9%85%D8%A7%D8%B1%D8%A9)
+- **قضية "الفاف": صدور الأحكام في حق زطشي وعمارة - الوطن : الخبر**: [Link](https://www.elkhabar.com/nation/%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D8%A7%D9%81-%D8%B5%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D8%AD%D9%83%D8%A7%D9%85-%D9%81%D9%8A-%D8%AD%D9%82-%D8%B2%D8%B7%D8%B4%D9%8A-%D9%88%D8%B9%D9%85%D8%A7%D8%B1%D8%A9-275736)
+- **ملف فساد "الفاف".. 8 سنوات حبسا نافذا لزطشي و عمارة و 6سنوات لزفيزف**: [Link](https://www.ennaharonline.com/%D9%85%D9%84%D9%81-%D9%81%D8%B3%D8%A7%D8%AF-%D8%A7%D9%84%D9%81%D8%A7%D9%81-8-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D8%AD%D8%A8%D8%B3%D8%A7-%D9%86%D8%A7%D9%81%D8%B0%D8%A7-%D9%84%D8%B2%D8%B7%D8%B4%D9%8A/)
+
+
+### كأس العالم للسيدات تحت 17 سنة لكرة القدم (N/A, Wed, 28 Oct 2026 00:40:00 -0700)
+
+- **إنجاز تاريخي للكرة النسائية الأفريقية في كأس العالم للسيدات تحت 17 عاماً**: [Link](https://www.cafonline.com/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%86%D8%B3%D8%A7%D8%A6%D9%8A%D8%A9/news/%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%86%D8%B3%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%AA%D8%AD%D8%AA-17-%D8%B9%D8%A7%D9%85%D8%A7/)
+- **مدرب غانا مصمم على التغلب على الأرجنتين والوصول إلى ربع نهائي كأس العالم للسيدات تحت 17 سنة.**: [Link](https://www.vietnam.vn/ar/hlv-ghana-quyet-tam-vuot-argentina-huong-den-tu-ket-world-cup-nu-u17)
+- **كأس العالم للسيدات.. منتخبات كوريا الشمالية ونيجيريا وبولندا تتأهل إلى ثمن النهائي**: [Link](https://ar.sport.le360.ma/coupe-du-monde/INYF7VB6YVH2TEWM5WBNC26QXY/)
+
+
+### الكلاسيكو (N/A, Tue, 27 Oct 2026 23:50:00 -0700)
+
+- **بعد إصابته في الكلاسيكو.. ريال مدريد يحصل على نتائج فحوصات فالفيردي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%AA%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AD%D8%B5%D9%84-%D8%B9%D9%84%D9%89-%D9%86%D8%AA%D8%A7%D9%8A%D9%94%D8%AC-%D9%81%D8%AD%D9%88%D8%B5%D8%A7%D8%AA-%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D8%AF%D9%8A/bltc3bcd0968e7ac54f)
+- **"سأنام قرير العين".. فالفيردي يكشف حواره مع مورينيو بعد إصابته في منتصف الكلاسيكو!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/-%D9%81%D9%8A%D8%AF%D9%8A-%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D8%AF%D9%8A-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AD%D8%A7%D8%AC%D8%B2-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85-%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D9%83%D9%84%D8%A7%D8%B3%D9%8A%D9%83%D9%88-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/bltd4b3bd024a3310b4)
+- **فالفيردي بعد الفوز على برشلونة: "اقشعر بدني وأنا أرى جميع زملائي يركضون"**: [Link](https://www.elbotola.com/article/2026-10-26-16-19-215.html)
+
+
+### ryanair maroc (N/A, Tue, 27 Oct 2026 22:20:00 -0700)
+
+- **Eddie Wilson (Ryanair) à Médias24 : "Le Maroc reste une priorité mais le kérosène va faire mal"**: [Link](https://medias24.com/2026/10/28/eddie-wilson-ryanair-a-medias24-le-maroc-reste-une-priorite-mais-le-kerosene-va-faire-mal-1784627/)
+- **Le CEO de Ryanair à Rabat pour une programmation hivernale record au Maroc**: [Link](https://ledesk.ma/encontinu/le-ceo-de-ryanair-a-rabat-pour-une-programmation-hivernale-record-au-maroc/)
+- **Ryanair renforce son programme hivernal au Maroc avec 17 nouvelles lignes**: [Link](https://fr.le360.ma/economie/ryanair-renforce-son-programme-hivernal-au-maroc-avec-17-nouvelles-lignes_GRFSDUS75NBQXJSZN2P5XRWAEM/)
+
+
 ### منتخب المغرب لكرة القدم (N/A, Tue, 27 Oct 2026 23:20:00 -0700)
 
 - **المنتخب الوطني لأقل من 15 سنة يتأهل إلى الدور الثاني من نهائيات كأس العالم بعد خمسة انتصارات**: [Link](https://frmf.ma/articles/15-1)
