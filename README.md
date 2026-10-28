@@ -1,3 +1,73 @@
+### ليفربول ضد تشيلسي (N/A, Wed, 28 Oct 2026 12:20:00 -0700)
+
+- **جدول مباريات اليوم الأربعاء 28 أكتوبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-28-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt4ccc4f5167200cce)
+- **بطولة إنكلترا: إيراولا يرى أن إيزاك "يشعر بالثقة" بعد مسلسل الأهداف لليفربول**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261027-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D9%8A%D8%B1%D9%89-%D8%A3%D9%86-%D8%A5%D9%8A%D8%B2%D8%A7%D9%83-%D9%8A%D8%B4%D8%B9%D8%B1-%D8%A8%D8%A7%D9%84%D8%AB%D9%82%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%85%D8%B3%D9%84%D8%B3%D9%84-%D8%A7%D9%84%D8%A3%D9%87%D8%AF%D8%A7%D9%81-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84)
+- **ألونسو يواجه ليفربول في مباراة العاطفة والذكريات**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D8%B7%D9%81/)
+
+
+### liverpool – chelsea (N/A, Wed, 28 Oct 2026 12:10:00 -0700)
+
+- **Team news: Confirmed Liverpool line-up v Chelsea**: [Link](https://www.liverpoolfc.com/news/team-news-confirmed-liverpool-line-up-v-chelsea)
+- **Liverpool boss Andoni Iraola reveals 'addictive' taste for victory ahead of Carabao Cup clash with Xabi Alonso's Chelsea**: [Link](https://www.goal.com/en-sa/news/liverpool-andoni-iraola-carabao-cup-xabi-alonso-chelsea/bltfa756a3fc8f86324)
+- **Xabi Alonso takes Chelsea to Anfield and says he will celebrate any goal, despite his Liverpool bond**: [Link](https://www.footballmuse.com/news/xabi-alonso-vows-to-celebrate-chelsea-goals-at-anfield-amid-liverpool-return)
+
+
+### serie a (N/A, Wed, 28 Oct 2026 12:10:00 -0700)
+
+- **『DIRETTA STREAMING』 Genoa Juventus Live in Diretta gratis streaming**: [Link](https://vantage-dc.com/virtual-tour-montreal-data-center/?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vdHJhdmlzLWF1c3Rpbi5naXRodWIuaW8vZW5tL2VudS54bWwiLz48L2tycGFubz4=&id=video-genoa-juventus-lie-en-apgncyk)
+- **Genoa-Juve, le formazioni ufficiali**: [Link](https://sport.sky.it/calcio/serie-a/video/2026/10/28/genoa-juve-formazioni-ufficiali-1135427)
+- **Genoa-Juve, la sfida Modesto-Ottolini. Dirigenti dai destini incrociati**: [Link](https://www.ilsecoloxix.it/sport/news/genoa-juventus-modesto-ottolini-dirigenti-xeq4f7tl/)
+
+
+### bournemouth – aston villa (N/A, Wed, 28 Oct 2026 12:00:00 -0700)
+
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/october/27/gallery-villa-prepare-for-bournemouth-cup-clash/)
+- **Sunderland vs Brentford live stream: live updates, TV channel and how to watch**: [Link](https://dave.sport/live/sunderland-vs-brentford-live-stream-live-updates/)
+- **Wednesday's EFL Cup betting tips, analysis and odds**: [Link](https://www.racingpost.com/sport/football-tips/efl-cup/wednesdays-efl-cup-betting-tips-analysis-and-odds-aIHNL6Z9y1Ky/)
+
+
+### manchester city – brighton (N/A, Wed, 28 Oct 2026 11:40:00 -0700)
+
+- **Maresca provides squad update ahead of Brighton Carabao Cup clash**: [Link](https://www.mancity.com/news/mens/enzo-maresca-manchester-city-v-brighton-team-news-63928692)
+- **Why is Erling Haaland not playing today? Man City star out vs. Brighton**: [Link](https://sports.yahoo.com/articles/why-erling-haaland-not-playing-182634975.html)
+- **LIVE BLOG: Manchester City vs Brighton | EFL Cup**: [Link](https://www.beinsports.com/en-us/soccer/efl-trophy/articles/live-blog-manchester-city-vs-brighton-efl-cup-2026-10-28)
+
+
+### مان سيتي ضد برايتون (N/A, Wed, 28 Oct 2026 11:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة مانشستر سيتي وبرايتون في كأس الرابطة الإنجليزية 2026-2027؟ وكيف تشاهدها عبر الإنترنت**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt18621fa0239ba714)
+- **ماريسكا «راض تماما» عن غويهي**: [Link](https://www.fotmob.com/ar/news/1xdp391twdn6b19zt8idw42e2k_ar-)
+- **سبب غياب هالاند و4 نجوم عن مانشستر سيتي أمام برايتون.. قرار مفاجئ من ماريسكا**: [Link](https://www.alkhaleej.ae/2026-10-27/%D8%B9%D8%B1%D8%A8-%D9%88%D8%B9%D8%A7%D9%84%D9%85/%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85/%D8%B3%D8%A8%D8%A8-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%884-%D9%86%D8%AC%D9%88%D9%85-%D8%B9%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%81%D8%A7%D8%AC%D8%A6-%D9%85%D9%86-%D9%85%D8%A7%D8%B1%D9%8A%D8%B3%D9%83%D8%A7)
+
+
+### équipe de corée du nord féminine de football des moins de 17 ans – équipe du maroc féminine de football des moins de 17 ans (N/A, Wed, 28 Oct 2026 11:30:00 -0700)
+
+- **2026 U-17 WWC: Round of 16 fixtures, date, time confirmed**: [Link](https://dailypost.ng/2026/10/26/2026-u-17-wwc-round-of-16-fixtures-date-time-confirmed/)
+- **Morocco vs North Korea: How & When to Watch the U17 Women's World Cup Round of 16 Clash**: [Link](https://www.moroccoworldnews.com/2026/10/344131/morocco-vs-north-korea-how-when-to-watch-the-u17-womens-world-cup-round-of-16-clash/)
+- **FIFA U-17 Women's World Cup Round of 16: How to watch on DAZN**: [Link](https://www.dazn.com/en-GB/news/football/fifa-u-17-womens-world-cup-2026-round-of-16-how-to-watch-free/bpykuihc2b0q11x7wqo7l3hj7)
+
+
+### snrt (N/A, Wed, 28 Oct 2026 11:20:00 -0700)
+
+- **Audiovisuel public : 2M et la SNRT cumulent 487 MDH de déficit**: [Link](https://fr.hespress.com/494104-audiovisuel-public-2m-et-la-snrt-cumulent-487-mdh-de-deficit.html)
+- **487 millions de dirhams de déficit pour l’audiovisuel public**: [Link](https://lnt.ma/487-millions-de-dirhams-de-deficit-pour-laudiovisuel-public/)
+- **2M: près de 1,4 milliard de dirhams pour redresser les comptes**: [Link](https://fr.le360.ma/economie/2m-pres-de-14-milliard-de-dirhams-pour-redresser-les-comptes_36Y7NJ4K3VFNHKWBGVI7SJ6ECM/)
+
+
+### تصادم (N/A, Wed, 28 Oct 2026 11:00:00 -0700)
+
+- **عشر دقائق قبل الكارثة .. تحذيرات مبكرة تسبق اصطدام قطارين بإسبانيا**: [Link](https://www.hespress.com/%D8%B9%D8%B4%D8%B1-%D8%AF%D9%82%D8%A7%D8%A6%D9%82-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1%D8%A7%D8%AA-%D9%85%D8%A8%D9%83%D8%B1%D8%A9-%D8%AA%D8%B3-1830456.html)
+- **فاجعة القطارين في إسبانيا.. تأجيل 24 مباراة في كأس الملك وحداد يجمع ريال مدريد وبرشلونة**: [Link](https://www.aljazeera.net/sport/2026/10/28/%D9%83%D8%A7%D8%B3-%D9%85%D9%84%D9%83-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A7%D8%B5%D8%B7%D8%AF%D8%A7%D9%85-%D9%82%D8%B7%D8%A7%D8%B1%D9%8A%D9%86)
+- **بعد تعليق مباريات الكأس.. قرار جديد في إسبانيا بسبب "كارثة القطار"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%94%D8%B3--%D9%82%D8%B1%D8%A7%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%83%D8%A7%D8%B1%D8%AB%D8%A9-%D8%A7%D9%84%D9%82%D8%B7%D8%A7%D8%B1/blt2cea249de306cdbd)
+
+
+### الرجاء ضد حسنية أكادير (N/A, Wed, 28 Oct 2026 10:50:00 -0700)
+
+- **كواليس الفرق**: [Link](https://assabah.ma/958487.html)
+- **بيرواين يلجأ إلى القضاء لافتحاص مالية الرجاء**: [Link](https://ar.telquel.ma/%D8%B9%D9%84%D9%89-%D9%88%D9%82%D8%B9-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%83%D9%88%D8%B1%D9%81%D8%A7-%D8%B3%D9%88%D8%AF-%D8%AA%D8%B9%D9%84%D9%86-%D9%85%D9%82/)
+- **بلاغ رسمي من الوداد الرياضي بخصوص الملعب الجديد وتذاكر مباراة المغرب التطواني**: [Link](https://radiomars.ma/%D8%A8%D9%84%D8%A7%D8%BA-%D8%B1%D8%B3%D9%85%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A-%D8%A8%D8%AE%D8%B5%D9%88%D8%B5-%D8%A7%D9%84%D9%85%D9%84/)
+
+
 ### élections israéliennes (N/A, Wed, 28 Oct 2026 05:20:00 -0700)
 
 - **EN DIRECT, législatives en Israël : après le dépouillement de plus de 85 % des bulletins, la coalition de droite et d’extrême droite de Benyamin Nétanyahou toujours en tête**: [Link](https://www.lemonde.fr/international/live/2026/10/28/en-direct-legislatives-en-israel-apres-le-depouillement-de-70-des-bulletins-le-camp-de-benyamin-netanyahou-en-tete-les-partis-arabes-credites-de-19-sieges-un-niveau-sans-precedent_6801217_3210.html)
