@@ -1,3 +1,71 @@
+### classement mas fès – rsb berkane (N/A, Thu, 29 Oct 2026 13:20:00 -0700)
+
+
+
+
+### patrick stewart (N/A, Thu, 29 Oct 2026 13:10:00 -0700)
+
+- **Patrick Stewart, ‘Star Trek’ Captain and ‘X-Men’ Superhero, Dies at 86**: [Link](https://www.hollywoodreporter.com/movies/movie-news/patrick-stewart-dead-star-trek-x-men-1236742932/)
+- **Patrick Stewart Death: Marvel, Kevin Feige Tributes to 'X-Men' Icon**: [Link](https://variety.com/2026/film/news/patrick-stewart-death-marvel-kevin-feige-tributes-x-men-1236934424/)
+- **Who Is Patrick Stewart’s Wife? What to Know About Sunny Ozell & His Children**: [Link](https://www.justjared.com/2026/10/29/who-is-patrick-stewarts-wife-what-to-know-about-sunny-ozell-his-children/)
+
+
+### fiorentina – atalanta (N/A, Thu, 29 Oct 2026 13:00:00 -0700)
+
+- **LIVE Fiorentina-Atalanta 0-1 Serie A 2026/2027: Atalanta avanti, Fiorentina spreca**: [Link](https://www.virgilio.it/sport/dirette/live/serie-a/29-10-2026/fiorentina-atalanta/2638202/)
+- **Mastantuono al tiro al 14', para Carnesecchi**: [Link](https://www.ecodibergamo.it/live/sport/detail/fiorentina_atalanta_3100_12/)
+- **Serie A: in campo Fiorentina-Atalanta 0-0 DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/10/29/serie-a-in-campo-fiorentina-atalanta-0-0-diretta_46e940ce-e50c-4281-93c6-ee8668230411.html)
+
+
+### everton vs newcastle (N/A, Thu, 29 Oct 2026 13:00:00 -0700)
+
+- **Everton vs Newcastle LIVE Score Updates in EFL Carabao Cup Match**: [Link](https://www.vavel.com/en-us/soccer/2026/10/29/1277236-everton-vs-newcastle-live-score-efl-carabao-cup.html)
+- **Sky Sports disgrace themselves with Everton vs Newcastle United coverage**: [Link](https://www.goodisonnews.com/match/sky-sports-disgrace-themselves-with-everton-vs-newcastle-united-coverage)
+- **『LIVeSTREAMS』 Everton vs Newcastle 𝐋𝐈𝐕𝐄 𝐒𝐭𝐫𝐞𝐚𝐦 Ｔｖ Ｃｈａｎｎｅｌ 29 July**: [Link](https://www.portofrotterdam.com/sites/default/files/uploads/360panorama/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3Rob21hc3NyaXZlcmEuZ2l0aHViLmlvL3JhaS9lcy54bWwiLz48L2tycGFubz4=&id=video-everton-vs-newcastle-livhq2973610)
+
+
+### راسينغ سانتاندير (N/A, Thu, 29 Oct 2026 12:50:00 -0700)
+
+- **لليوم الثاني على التوالي.. ثنائي الريال يغيب عن المران الجماعي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D9%84%D9%8A--%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84-%D9%8A%D8%BA%D9%8A%D8%A8-%D8%B9%D9%86-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B9%D9%8A/blt7fe2c09df9125b53)
+- **3 رحلات في 6 أيام.. هل يدفع ريال مدريد ثمن قرار بيريز؟**: [Link](https://www.aljazeera.net/sport/2026/10/29/%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A3%D8%B1%D8%B6%D9%87-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **معاينة مباراة راسينج سانتاندير وريال مدريد في الدوري الإسباني: الملكي يسعى لكبح جماح راسينج سانتاندير المفعم بالحماس**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D8%A7%D9%8A%D9%86%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%AC-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D9%83%D8%A8%D8%AD-%D8%AC%D9%85%D8%A7%D8%AD-%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%AC-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D9%81%D8%B9%D9%85-%D8%A8%D8%A7%D9%84%D8%AD%D9%85%D8%A7%D8%B3/bltcd01384498b7a0c0)
+
+
+### banque (N/A, Thu, 29 Oct 2026 12:30:00 -0700)
+
+- **« Je veux avoir la liberté de parole », dit Christine Lagarde après l’annonce de son départ de la BCE en février 2027**: [Link](https://www.lemonde.fr/economie/article/2026/10/29/christine-lagarde-va-quitter-la-presidence-de-la-bce-le-7-fevrier-2027_6802307_3234.html)
+- **Covid, inflation, guerre en Ukraine : les moments-clés du mandat Lagarde à la BCE**: [Link](https://medias24.com/agence-presse/covid-inflation-guerre-en-ukraine-les-moments-cles-du-mandat-lagarde-a-la-bce/)
+- **Elle est pressentie pour prendre la tête du Forum de Davos: Christine Lagarde va quitter la présidence de la BCE le 7 février 2027, plus de sept ans après sa nomination à Francfort**: [Link](https://www.bfmtv.com/economie/economie-social/union-europeenne/elle-est-pressentie-pour-prendre-la-tete-du-forum-de-davos-christine-lagarde-va-quitter-la-presidence-de-la-bce-le-7-fevrier-2027-plus-de-sept-ans-apres-sa-nomination-a-francfort_AD-202610290398.html)
+
+
+### رضوان جيد (N/A, Thu, 29 Oct 2026 12:20:00 -0700)
+
+- **إقالة رضوان جيد.. القرار ينتظر تأشيرة لقجع – اليوم 24**: [Link](https://alyaoum24.com/2053968.html)
+- **بلقشور يوجّه انتقادا شديد اللهجة إلى رضوان جيد على خلفيات أداء التحكيم**: [Link](https://radiomars.ma/%D8%A8%D9%84%D9%82%D8%B4%D9%88%D8%B1-%D9%8A%D9%88%D8%AC%D9%91%D9%87-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7-%D8%B4%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D9%84%D9%87%D8%AC%D8%A9-%D8%A5%D9%84%D9%89-%D8%B1/)
+- **إقالة رضوان جيد من مديرية التحكيم**: [Link](https://www.goud.ma/%D8%A5%D9%82%D8%A7%D9%84%D8%A9-%D8%B1%D8%B6%D9%88%D8%A7%D9%86-%D8%AC%D9%8A%D8%AF-%D9%85%D9%86-%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AD%D9%83%D9%8A%D9%85-1050509/)
+
+
+### everton – newcastle (N/A, Thu, 29 Oct 2026 12:00:00 -0700)
+
+- **Everton vs Newcastle United: League Cup stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm0e0r4gjxz1t)
+- **Licensable picture: UK: Carabao Cup Last 16 Everton v Newcastle Untied**: [Link](https://www.reutersconnect.com/item/uk-carabao-cup-last-16-everton-v-newcastle-untied/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBNMjdSWVk)
+- **Jack Grealish dropped for Everton vs. Newcastle for ‘breach of club discipline’**: [Link](https://www.nytimes.com/athletic/7736475/2026/10/29/jack-grealish-everton-dropped-newcastle-carabao-cup-discipline/)
+
+
+### raja club athletic (N/A, Thu, 29 Oct 2026 11:50:00 -0700)
+
+- **Raja S.A. : Nawal Elaidaoui sur le départ**: [Link](https://medias24.com/2026/10/29/raja-s-a-nawal-elaidaoui-sur-le-depart-1785278/)
+- **Nawal El Aidaoui quitte la société sportive du Raja : démission ou licenciement ?**: [Link](https://www.elbotola.com/fr/article/2026-10-23-16-58-667.html)
+- **Botola : le Raja accroché à domicile par le HUSA, l’AS FAR s’impose face à l’IR Tanger**: [Link](https://lematin.ma/sports/botola-le-raja-accroche-a-domicile-par-le-husa-las-far-bat-lir-tanger/373010)
+
+
+### novak djokovic (N/A, Thu, 29 Oct 2026 11:40:00 -0700)
+
+- **Novak Djokovic battles to 'big' comeback win over Ugo Humbert in Basel**: [Link](https://www.bbc.com/sport/tennis/articles/cmd93vlz4k11o)
+- **Djokovic edges closer to ATP Finals qualification**: [Link](https://sports.yahoo.com/articles/djokovic-edges-closer-atp-finals-193329072.html)
+- **【Tennis!】Novak Djokovic vs Ugo Humbert Live sTreams FREE**: [Link](https://vantage-dc.com/virtual-tour-montreal-data-center/?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vanVudGVzdGFjY2NvdW50LmdpdGh1Yi5pby9uZXdzL3Nwb3J0ZWszL3Rlc3QvbXIueG1sIi8+PC9rcnBhbm8+&id=video-tennis-novak-djokovic-vs-ugo-h-liv-en-tv)
+
+
 ### مدير رياضي (N/A, Thu, 29 Oct 2026 08:00:00 -0700)
 
 - **حصريا… المدير الرياضي لفريق الرجاء البرتغالي ماتياس يرتكب خطأً جسيما**: [Link](https://sport.lesiteinfo.com/elbotola/505591.html)
