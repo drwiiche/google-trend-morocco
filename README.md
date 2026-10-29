@@ -1,3 +1,50 @@
+### أيوب بوعدي (N/A, Thu, 29 Oct 2026 01:10:00 -0700)
+
+- **بالفيديو.. ركلات الترجيح تنقذ مانشستر سيتي من مصير آرسنال في كأس الرابطة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD-%D8%AA%D9%86%D9%82%D8%B0-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%85%D9%86-%D9%85%D8%B5%D9%8A%D8%B1-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9/bltbf0fc8ab3b3b391a)
+- **ركلات الترجيح تقصي تشيلسي وتؤهل ليفربول والسيتي إلى ربع نهائي كأس الرابطة**: [Link](https://www.aljazeera.net/sport/2026/10/29/%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD-%D8%AA%D9%82%D8%B5%D9%8A-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%AA%D8%A4%D9%87%D9%84)
+- **مانشستر سيتي إلى ربع النهائي بعد مباراة مثيرة أمام برايتون**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D9%83%D8%A3%D8%B3-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A5%D9%84%D9%89-%D8%B1%D8%A8%D8%B9-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-2026-10-28)
+
+
+### فوزي لقجع (N/A, Wed, 28 Oct 2026 23:20:00 -0700)
+
+- **أسطورة المغرب لكووورة: كفى عنصرية.. حان الوقت لرفع راية أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9-%D9%83%D9%81%D9%89-%D8%B9%D9%86%D8%B5%D8%B1%D9%8A%D8%A9--%D8%AD%D8%A7%D9%86-%D8%A7%D9%84%D9%88%D9%82%D8%AA-%D9%84%D8%B1%D9%81%D8%B9-%D8%B1%D8%A7%D9%8A%D8%A9-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt5c01279abcc71632)
+- **تفاصيل صفقة تجهيز أرضية ملعب الحسن الثاني بأزيد من 92 مليون درهم**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B5%D9%81%D9%82%D8%A9-%D8%AA%D8%AC%D9%87%D9%8A%D8%B2-%D8%A3%D8%B1%D8%B6%D9%8A%D8%A9-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D8%A7%D9%84%D8%AB-1829722.html)
+- **لقجع: أشغال ملعب الحسن الثاني من المتوقع أن تنتهي في سنة 2028**: [Link](https://2m.ma/ar/news/%D9%84%D9%82%D8%AC%D8%B9-%D8%A3%D8%B4%D8%BA%D8%A7%D9%84-%D9%85%D9%84%D8%B9%D8%A8-%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D8%A3%D9%86-%D8%AA%D9%86%D8%AA%D9%87%D9%8A-%D9%81%D9%8A-%D8%B3%D9%86%D8%A9-2028-20261028)
+
+
+### marocains (N/A, Wed, 28 Oct 2026 22:20:00 -0700)
+
+- **Mohammed VI lance Tanger Med 3 et annonce l’ouverture imminente de Nador West Med**: [Link](https://ledesk.ma/2026/10/28/mohammed-vi-lance-tanger-med-3-et-annonce-louverture-imminente-de-nador-west-med/)
+- **Le développement territorial et l'amélioration des conditions de vie des populations érigés en priorité**: [Link](https://fr.hespress.com/494246-le-developpement-territorial-et-lamelioration-des-conditions-de-vie-des-populations-eriges-en-priorite.html)
+- **Ce qu’il faut savoir sur les nouveaux ports Nador West Med et Tanger Med 3**: [Link](https://lematin.ma/economie/ce-quil-faut-savoir-sur-les-nouveaux-ports-nador-west-med-et-tanger-med-3/372838)
+
+
+### ترتيبات الجيش الملكي – اتحاد طنجة (N/A, Wed, 28 Oct 2026 22:10:00 -0700)
+
+- **الجيش الملكي يهزم اتحاد طنجة بثنائية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-1830844.html)
+- **- أخبار كرونو بنشيخة بعد الهزيمة أمام الجيش الملكي: الطرد عقد مهمتنا والتغييرات فرضتها الإصابات**: [Link](https://radiomars.ma/%D8%A8%D9%86%D8%B4%D9%8A%D8%AE%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D8%A7/)
+- **الجيش الملكي واتحاد طنجة.. موعد المباراة والقناة الناقلة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B7%D9%86%D8%AC%D8%A9-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D8%A7%D9%84%D9%82%D9%86%D8%A7%D8%A9-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9/27059)
+
+
+### classement inter miami – fc cincinnati (N/A, Wed, 28 Oct 2026 19:30:00 -0700)
+
+- **MLS sprint season to kick off on Feb. 19 in Miami**: [Link](https://www.espn.com/soccer/story/_/id/50311129/mls-sprint-season-kick-feb-19-miami)
+- **Messi vs. Evander: Inter Miami host FC Cincinnati in high-stakes clash**: [Link](https://www.mlssoccer.com/news/messi-vs-evander-inter-miami-host-fc-cincinnati-in-high-stakes-clash)
+- **MATCH PREVIEW: Inter Miami CF Hosts FC Cincinnati on Wednesday**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-hosts-fc-cincinnati-on-wednesday)
+
+
+### إنتر ميامي ضد سينسيناتي (N/A, Wed, 28 Oct 2026 18:10:00 -0700)
+
+- **ميسي يدشن الموسم الاستثنائي للدوري الأمريكي 2027.. وتعادل درامي لإنتر ميامي**: [Link](https://www.aljazeera.net/sport/2026/10/29/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%AF%D8%B4%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A)
+- **ما القنوات الناقلة لمباراة إنتر ميامي وسينسيناتي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%B3%D9%8A%D9%86%D8%B3%D9%8A%D9%86%D8%A7%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt053a30ad50e81b59)
+- **توقعات مباراة إنتر ميامي ضد إف سي سينسيناتي: من المتوقع أن تكون مباراة هجومية عالية الأهداف.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-inter-miami-vs-fc-cincinnati-hua-hen-man-doi-cong)
+
+
+### classement far rabat – ittihad tanger (N/A, Wed, 28 Oct 2026 16:20:00 -0700)
+
+
+
+
 ### رضا سليم (N/A, Wed, 28 Oct 2026 16:30:00 -0700)
 
 - **الأهلي يشعر سليم بالرحيل**: [Link](https://assabah.ma/958485.html)
