@@ -1,3 +1,71 @@
+### مدير رياضي (N/A, Thu, 29 Oct 2026 08:00:00 -0700)
+
+- **حصريا… المدير الرياضي لفريق الرجاء البرتغالي ماتياس يرتكب خطأً جسيما**: [Link](https://sport.lesiteinfo.com/elbotola/505591.html)
+- **عاجل.. الرجاء كتقرر تفك الارتباط مع الإسباني خيميز وهاد الإطار الوطني هو المرشح الأول لتعويضه**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AC%D9%8A%D9%86%D8%A7%D9%86%D9%8A-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D8%AE%D9%84%D9%81/)
+- **خاص/ الرجاء تستعد للإعلان عن إقالة باكو خيميز من منصبه مدربا للفريق**: [Link](https://www.elbotola.com/article/2026-10-28-23-47-173.html)
+
+
+### طبيب (N/A, Thu, 29 Oct 2026 07:50:00 -0700)
+
+- **تشهير وانتحال صفة.. هذه تفاصيل شكايتين وراء اعتقال طبيب بالبيضاء**: [Link](https://www.hespress.com/%D8%AA%D8%B4%D9%87%D9%8A%D8%B1-%D9%88%D8%A7%D9%86%D8%AA%D8%AD%D8%A7%D9%84-%D8%B5%D9%81%D8%A9-%D9%87%D8%B0%D9%87-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%B4%D9%83%D8%A7%D9%8A%D8%AA%D9%8A%D9%86-%D9%88-1831019.html)
+- **العدالة الجريحة**: [Link](https://assabah.ma/958800.html)
+- **موجة تضامن واسعة مع « طبيب الفقراء » رشيد شرقاب عقب الحكم عليه بسنة حبسا نافذا – اليوم 24**: [Link](https://alyaoum24.com/2053491.html)
+
+
+### فيوتشر ضد الأهلي (N/A, Thu, 29 Oct 2026 07:40:00 -0700)
+
+- **عموتة وبنهاشم.. مواجهة مغربية غير مسبوقة في الدوري المصري**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%B9%D9%85%D9%88%D8%AA%D8%A9-%D9%88%D8%A8%D9%86%D9%87%D8%A7%D8%B4%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%A8%D9%88%D9%82%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A/27051)
+- **رأسية من بنشرقي أمام مودرن سبورت**: [Link](https://www.yallakora.com/video/1520956/%D8%B1%D8%A3%D8%B3%D9%8A%D8%A9-%D9%85%D9%86-%D8%A8%D9%86%D8%B4%D8%B1%D9%82%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D9%88%D8%AF%D8%B1%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA)
+- **محمود ممدوح يقود هجوم مودرن سبورت أمام الأهلي في الدوري**: [Link](https://www.almasryalyoum.com/news/details/4396222)
+
+
+### laprophan ipo (N/A, Thu, 29 Oct 2026 07:10:00 -0700)
+
+- **IPO Laprophan : acquisition de Polymedic, prévisions de croissance et valorisation, les chiffres à retenir**: [Link](https://medias24.com/2026/10/29/ipo-laprophan-acquisition-de-polymedic-previsions-de-croissance-et-valorisation-les-chiffres-a-retenir-1785169/)
+- **Laprophan en Bourse : la famille Bennis ouvre 37 % du capital au public**: [Link](https://ledesk.ma/2026/10/28/laprophan-en-bourse-la-famille-bennis-ouvre-37-du-capital-au-public/)
+- **Laprophan obtient le visa de l'AMMC pour son introduction en bourse**: [Link](https://fr.hespress.com/494269-laprophan-obtient-le-visa-de-lammc-pour-son-introduction-en-bourse.html)
+
+
+### modern future football club – al ahly (N/A, Thu, 29 Oct 2026 06:50:00 -0700)
+
+- **Today’s matches (Thursday) and broadcast channels: Al Ahly (Egypt) vs Modern Sport**: [Link](https://www.voiceofemirates.com/en/sport/2026/10/29/todays-matches-thursday-and-broadcast-channels-al-ahly-egypt-vs-modern-sport/)
+- **Live score: Modern Sport FC v Ahly (Egyptian Premier League) - Egyptian Football - Sports**: [Link](https://english.ahram.org.eg/NewsContent/6/51/581190/Sports/Egyptian-Football/Live-score-Modern-Sport-FC-v-Ahly-Egyptian-Premier.aspx)
+- **Al Ahly FC squad for Modern Sport match: Emam Ashour…**: [Link](https://www.ysscores.com/en/news/14082200/al-ahly-fc-squad-for-modern-sport-match-emam-ashour-and-hany-remain-absent)
+
+
+### باكو خيميز (N/A, Thu, 29 Oct 2026 06:50:00 -0700)
+
+- **عاجل.. الرجاء كتقرر تفك الارتباط مع الإسباني خيميز وهاد الإطار الوطني هو المرشح الأول لتعويضه**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%AC%D9%8A%D9%86%D8%A7%D9%86%D9%8A-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%85%D8%A4%D9%82%D8%AA%D8%A7-%D8%AE%D9%84%D9%81/)
+- **خاص/ الرجاء تستعد للإعلان عن إقالة باكو خيميز من منصبه مدربا للفريق**: [Link](https://www.elbotola.com/article/2026-10-28-23-47-173.html)
+- **هيمنة المدربين الأجانب في البطولة.. هل تكرس أزمة الثقة في الأطر الوطنية؟**: [Link](https://www.medi1tv.com/ar/episode/104138/%D9%87%D9%8A%D9%85%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D8%AC%D8%A7%D9%86%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9.-%D9%87%D9%84-%D8%AA%D9%83%D8%B1%D8%B3-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%AB%D9%82%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B7%D8%B1-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9%D8%9F)
+
+
+### نادي وداد تمارة (N/A, Thu, 29 Oct 2026 06:30:00 -0700)
+
+- **عبد السلام بلقشور يكشف عن موعد إصدار حكم بشأن قضية لاعب تمارة أمام الوداد**: [Link](https://radiomars.ma/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B3%D9%84%D8%A7%D9%85-%D8%A8%D9%84%D9%82%D8%B4%D9%88%D8%B1-%D9%8A%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%85%D9%88%D8%B9%D8%AF-%D8%A5%D8%B5%D8%AF%D8%A7%D8%B1-%D8%AD%D9%83/)
+- **قضية مباراة الوداد ووداد تمارة... بلقشور يخرج عن صمته ويحدد موعد الحسم**: [Link](https://ar.sport.le360.ma/football/botola/4OPZF6ERLFA5BO2YREB5NWWBDE/)
+- **العصبة تقترب من الحسم في قضية باباس.. والوداد يترقب**: [Link](https://aljarida24.ma/p/actualites/361399/)
+
+
+### emma marie laurent (N/A, Thu, 29 Oct 2026 06:30:00 -0700)
+
+- **Travel Influencer Emma Marie Laurent, 24, Dies After Van Is Swept Away by Rushing River**: [Link](https://people.com/travel-influencer-dead-drowning-after-truck-swept-away-by-river-12198901)
+- **Travel influencer Emma Marie Laurent dies age 24 after her van gets swept away by river**: [Link](https://www.dailymail.com/lifestyle/article-16246933/travel-influencer-emma-marie-laurent-river-dead-dies-van.html)
+- **Who was Emma Marie Laurent? French travel influencer tragically dies at 24 in Nicaragua - Cause of death a**: [Link](https://m.economictimes.com/world/us/who-was-emma-marie-laurent-french-travel-influencer-tragically-dies-at-24-in-nicaragua-cause-of-death-and-her-final-social-media-post/articleshow/135296435.cms)
+
+
+### dette (N/A, Thu, 29 Oct 2026 06:00:00 -0700)
+
+
+
+
+### famille (N/A, Thu, 29 Oct 2026 05:10:00 -0700)
+
+- **“Irish Travellers” : un documentaire plein d’humanité sur le quotidien d’une famille de nomades sédentarisés**: [Link](https://www.nouvelobs.com/cinema/20261027.OBS119585/irish-travellers-un-documentaire-plein-d-humanite-sur-le-quotidien-d-une-famille-de-nomades-sedentarises.html)
+- **« Irish Travellers » : Alexander Murphy filme la vie à la marge**: [Link](https://www.benzinemag.net/2026/10/28/irish-travellers/)
+- **Sortie ciné. Irish Travellers : un attachant portrait de famille nomade**: [Link](https://www.ledauphine.com/culture-loisirs/2026/10/28/irish-travellers-un-attachant-portrait-de-famille-nomade)
+
+
 ### أيوب بوعدي (N/A, Thu, 29 Oct 2026 01:10:00 -0700)
 
 - **بالفيديو.. ركلات الترجيح تنقذ مانشستر سيتي من مصير آرسنال في كأس الرابطة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD-%D8%AA%D9%86%D9%82%D8%B0-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%85%D9%86-%D9%85%D8%B5%D9%8A%D8%B1-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%81%D9%8A-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9/bltbf0fc8ab3b3b391a)
