@@ -1,3 +1,31 @@
+### رضا سليم (N/A, Wed, 28 Oct 2026 16:30:00 -0700)
+
+- **الأهلي يشعر سليم بالرحيل**: [Link](https://assabah.ma/958485.html)
+- **أزمة رضا سليم والأهلي المصري تأخذ منعطفاً مفاجئاً**: [Link](https://radiomars.ma/%D8%B1%D8%B6%D8%A7-%D8%B3%D9%84%D9%8A%D9%85-%D9%8A%D8%B1%D9%81%D8%B6-%D9%85%D8%B3%D8%A7%D9%88%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D9%8A%D8%AA%D8%B4%D8%A8%D8%AB-%D8%A8/)
+- **3 أندية محلية تطلب استعارة مهاجم الأهلي في يناير**: [Link](https://gate.ahram.org.eg/News/5969051.aspx)
+
+
+### laprophan (N/A, Wed, 28 Oct 2026 15:00:00 -0700)
+
+- **Laprophan en Bourse : la famille Bennis ouvre 37 % du capital au public**: [Link](https://ledesk.ma/2026/10/28/laprophan-en-bourse-la-famille-bennis-ouvre-37-du-capital-au-public/)
+- **Laprophan s’introduit en bourse pour un montant de 2,22 MMDH**: [Link](https://medias24.com/2026/10/28/laprophan-sintroduit-en-bourse-pour-un-montant-de-2-mmdh-1785091/)
+- **Laprophan en Bourse : jusqu’à 2,2 milliards de dirhams en jeu**: [Link](https://mobile.telquel.ma/2026/10/28/laprophan-en-bourse-jusqua-22-milliards-de-dirhams-en-jeu_2015457)
+
+
+### liverpool (N/A, Wed, 28 Oct 2026 14:20:00 -0700)
+
+- **Liverpool 1-1 Chelsea (6-5 on pens): Reds into Carabao Cup last eight after shootout**: [Link](https://www.bbc.com/sport/football/live/c69wz7x4jq71t)
+- **“Does it count?” – Joe Gomez jokes after ‘first’ Liverpool goal: “Nice that it went in!”**: [Link](https://www.thisisanfield.com/2026/10/joe-gomez-chelsea-penalty-shootout-goal-reaction/)
+- **⏪ Liverpool & City win on pens: Bournemouth, Sunderland, Palace through**: [Link](https://sports.yahoo.com/articles/man-city-brighton-kicks-off-192700621.html)
+
+
+### city (N/A, Wed, 28 Oct 2026 14:10:00 -0700)
+
+- **‍‍√#[["LIVESTREAM"]]HQ!!] Dallas Mavericks vs Oklahoma City Thunder LIvE FrEe StReAm**: [Link](https://vantage-dc.com/virtual-tour-montreal-data-center/?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2Jlbi1zdG9ja3MuZ2l0aHViLmlvL0JhbC9uZXdzL3NtNnMueG1sIi8+PC9rcnBhbm8+&id=video-dallas-mavericks-v-oklahoma-city-thunder-liv-nba-match-on_ustv-01)
+- **Thunder still on the verge of NBA history despite devastating injury woes**: [Link](https://thunderousintentions.com/okc-thunder-still-on-the-verge-of-nba-history-despite-devastating-injury-woes)
+- **Dusty May Expects 'Same Thunder DNA' Without Chet Holmgren And Jalen Williams**: [Link](https://www.yardbarker.com/nba/articles/dusty_may_expects_same_thunder_dna_without_chet_holmgren_and_jalen_williams/s1_17810_44486965)
+
+
 ### inter miami – cincinnati (N/A, Wed, 28 Oct 2026 16:00:00 -0700)
 
 - **Red Bull New York to Face New York City FC on 2027 Sprint Season Decision Day**: [Link](https://www.newyorkredbulls.com/news/red-bull-new-york-to-face-new-york-city-fc-on-2027-sprint-season-decision-day)
