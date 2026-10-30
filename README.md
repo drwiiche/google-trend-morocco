@@ -1,3 +1,45 @@
+### équipe du maroc de football (N/A, Fri, 30 Oct 2026 02:30:00 -0700)
+
+- **Lions de l’Atlas: une défense à trois face au Niger, l’option à explorer pour Mohamed Ouahbi?**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-une-defense-a-trois-face-au-niger-loption-a-explorer-pour-mohamed-ouahbi_ULPFZ7DMVFAYRJPXKRBMUDD2RE/)
+- **Al Ain : Houssine Rahimi brille en l’absence de Soufiane**: [Link](https://mountakhab.net/al-ain-houssine-rahimi-brille-en-labsence-de-soufiane/)
+- **Exclusif pour « Kooora » : Ouahbi prépare une surprise offensive pour le Maroc en novembre**: [Link](https://www.goal.com/fr/news/exclusif-pour-kooora-ouahbi-prepare-une-surprise-offensive-pour-le-maroc-en-novembre/bltd1c80ad62df0571e)
+
+
+### didier fraisse (N/A, Fri, 30 Oct 2026 01:40:00 -0700)
+
+- **Un grand nom de la télévision s’est éteint à 65 ans après un long combat contre la maladie : attristé, Cyril Féraud lui rend hommage**: [Link](https://www.gala.fr/culture/television/un-grand-nom-de-la-television-s-est-eteint-a-65-ans-apres-un-long-combat-contre-la-maladie-attriste-cyril-feraud-lui-rend-hommage-20261029)
+- **Mort de Didier Fraisse : de quoi le réalisateur du Bidgil, du Juste Prix et d'autres jeux est-il décédé ?**: [Link](https://www.linternaute.com/actualite/personnalites/11311699-mort-de-didier-fraisse-de-quoi-le-realisateur-du-bidgil-du-juste-prix-et-d-autres-jeux-est-il-decede/)
+- **Laurent Luyat et Stade 2 en deuil**: [Link](https://www.sports.fr/medias/laurent-luyat-et-stade-2-en-deuil-1058444.html)
+
+
+### famille (N/A, Fri, 30 Oct 2026 01:30:00 -0700)
+
+- **La famille la plus riche d'Asie : un empire de 90 milliards de dollars et une bataille successorale époustouflante**: [Link](https://www.vietnam.vn/fr/gia-toc-giau-nhat-chau-a-de-che-90-ty-usd-va-cuoc-chien-thua-ke-nghet-tho)
+- **Budget 2027 : les dates-clés des prochaines semaines**: [Link](https://www.lemonde.fr/les-decodeurs/article/2026/10/27/budget-2027-les-dates-cles-des-prochaines-semaines_6801100_4355770.html)
+- **Vote n°8707 - Motion de rejet préalable - Projet de loi de finances pour 2027 - 17e législature**: [Link](https://datan.fr/votes/legislature-17/vote_8707)
+
+
+### رايان إير (N/A, Fri, 30 Oct 2026 01:00:00 -0700)
+
+- **"رايان إير" تعلن توسعا قياسيا بالمغرب**: [Link](https://www.hespress.com/%D8%B1%D8%A7%D9%8A%D8%A7%D9%86-%D8%A5%D9%8A%D8%B1-%D8%AA%D8%B9%D9%84%D9%86-%D8%AA%D9%88%D8%B3%D8%B9%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1830029.html)
+- **لماذا لا يستفيد مطار الحسيمة من شراكة مكتب السياحة مع «رايان إير»؟**: [Link](https://dalil-rif.com/permalink/39047.html)
+- **ريانير في المغرب: من ثورة "التيكي الرخيص" إلى موجة غضب المسافرين**: [Link](https://www.elhadat24.com/24h/294339/)
+
+
+### ياسر زبيري (N/A, Thu, 29 Oct 2026 23:00:00 -0700)
+
+- **تألق ياسر الزابيري يضعه على رادار برشلونة**: [Link](https://radiomars.ma/%D8%AA%D8%A3%D9%84%D9%82-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D8%B6%D8%B9%D9%87-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D8%A8%D8%B1%D8%B4%D9%84/)
+- **من التهميش إلى منافسة مبابي.. ياسر زابيري يقلب الموازين في إسبانيا**: [Link](https://kifache.com/%D9%85%D9%86-%D8%A7%D9%84%D8%AA%D9%87%D9%85%D9%8A%D8%B4-%D8%A5%D9%84%D9%89-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1/)
+- **ياسر زابيري.. موهبة مغربية تتألق في الليغا وتحلم ببرشلونة**: [Link](https://www.alaraby.co.uk/sport/%D9%8A%D8%A7%D8%B3%D8%B1-%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AA%D8%A3%D9%84%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D9%8A%D8%BA%D8%A7-%D9%88%D8%AA%D8%AD%D9%84%D9%85-%D8%A8%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
+### benfica (N/A, Thu, 29 Oct 2026 15:40:00 -0700)
+
+- **Um ano depois, Benfica volta a amealhar com a transferência de Akturkoglu**: [Link](https://www.noticiasaominuto.com/desporto/3075688/um-ano-depois-benfica-volta-a-amealhar-com-a-transferencia-de-akturkoglu)
+- **Grupo Benfica com resultado líquido positivo de 23,9 milhões de euros**: [Link](https://www.ojogo.pt/futebol/artigo/grupo-benfica-com-resultado-liquido-positivo-de-239-milhoes-de-euros/18140477)
+- **Rui Costa apresenta contas positivas e espera resultados desportivos**: [Link](https://rr.pt/bola-branca/noticia/benfica/2026/10/23/rui-costa-apresenta-contas-positivas-e-espera-resultados-desportivos/490528/?utm_source=cxultimas)
+
+
 ### شمس البارودي (N/A, Thu, 29 Oct 2026 16:10:00 -0700)
 
 - **شمس البارودي تستعيد أحزانها في ذكرى رحيل حسن يوسف: وجع الغياب**: [Link](https://al-ain.com/article/shams-elbaroudi-revisits-hassan-youssef)
