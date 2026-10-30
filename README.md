@@ -1,3 +1,71 @@
+### corée du sud (N/A, Fri, 30 Oct 2026 10:30:00 -0700)
+
+- **Un “faux télétravailleur” nord-coréen découvert ? Une première en Corée du Sud**: [Link](https://www.courrierinternational.com/article/infiltration-un-faux-teletravailleur-nord-coreen-decouvert-une-premiere-en-coree-du-sud_283485)
+- **Un “faux télétravailleur” nord-coréen découvert ? Une première en Corée du Sud**: [Link](https://fr.news.yahoo.com/faux-t%C3%A9l%C3%A9travailleur-nord-cor%C3%A9en-d%C3%A9couvert-170003683.html)
+- **La Corée du Sud mise sur le Maroc pour accélérer l’expansion de ses marques en Afrique**: [Link](https://ledesk.ma/encontinu/la-coree-du-sud-mise-sur-le-maroc-pour-accelerer-lexpansion-de-ses-marques-en-afrique/)
+
+
+### le havre – paris-sg (N/A, Fri, 30 Oct 2026 10:20:00 -0700)
+
+- **Le Havre-PSG: Les Parisiens avec une équipe B**: [Link](https://www.sports.fr/football/le-havre-psg-les-parisiens-avec-une-equipe-b-1058481.html)
+- **DIRECT. Nice-Rennes: suivez le match de la 9e journée de Ligue 1 en live**: [Link](https://www.live-mercato.com/article/202011-direct-nice-rennes-suivez-le-match-de-la-9e-journee-de-ligue-1-en-live)
+- **Trois curiosités avant la 9e journée de Ligue 1**: [Link](https://onefootball.com/fr/news/trois-curiosites-avant-la-9e-journee-de-ligue-1-43697945)
+
+
+### konyaspor – galatasaray (N/A, Fri, 30 Oct 2026 10:10:00 -0700)
+
+
+
+
+### إبراهيم دياز (N/A, Fri, 30 Oct 2026 10:00:00 -0700)
+
+- **"كن رجلًا".. نجم المغرب السابق يفتح النار على الركراكي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%86-%D8%B1%D8%AC%D9%84%D9%8B%D8%A7--%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A/blt951e0a4686363949)
+- **بلهندة يشكك في ركلة جزاء دياز أمام السنغال: "أعتقد أنهما اتفقا مسبقا على عدم تسجيلها"!**: [Link](https://www.elbotola.com/article/2026-10-30-11-28-682.html)
+- **🔥لاعب مغربي يكشف تعمد دياز "إهدار ضربة الجزاء أمام السنغال"**: [Link](https://tanja7.com/194115/)
+
+
+### pompe (N/A, Fri, 30 Oct 2026 09:50:00 -0700)
+
+- **La Fédération française du bâtiment (FFB) s'oppose aux offres intégrées Pac**: [Link](https://www.batiactu.com/edito/federation-francaise-batiment-ffb-s-oppose-aux-offres-75704.php)
+- **CapConfort : une pompe à chaleur sans avance et avec un budget maîtrisé**: [Link](https://www.bfmtv.com/immobilier/services/financement-de-travaux-et-renovation-energetique/cap-confort-une-pompe-a-chaleur-sans-avance-et-avec-un-budget-maitrise_AB-202610280562.html)
+- **Pompe à chaleur à 0€ d’avance : ce dispositif qui vous fait changer de chaudière sans toucher à votre épargne**: [Link](https://bourseinside.fr/immobilier/pompe-a-chaleur-a-0e-davance-ce-dispositif-qui-vous-fait-changer-de-chaudiere-sans-toucher-a-votre-epargne/)
+
+
+### عبد الصمد الزلزولي (N/A, Fri, 30 Oct 2026 09:40:00 -0700)
+
+- **قرار صادم بشأن انتقال الزلزولي إلى سان جيرمان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%B1%D8%A7%D8%B1-%D8%B5%D8%A7%D8%AF%D9%85-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86/blt97bbe72494507c39)
+- **الزلزولي على رادار اكبر الأندية الأوروبية**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%B9%D9%84%D9%89-%D8%B1%D8%A7%D8%AF%D8%A7%D8%B1-%D8%A7%D9%83%D8%A8%D8%B1-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D8%B1/)
+- **الـPSG باغيين الزلزولي والصفقة غادي يستافدو منها البارصا**: [Link](https://www.goud.ma/%D8%A7%D9%84%D9%80psg-%D8%A8%D8%A7%D8%BA%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%BA%D8%A7%D8%AF%D9%8A-%D9%8A%D8%B3%D8%AA%D8%A7-1050404/)
+
+
+### pièce commémorative (N/A, Fri, 30 Oct 2026 09:40:00 -0700)
+
+- **Fête de l’Unité : Bank Al-Maghrib émet une pièce commémorative de 250 DH**: [Link](https://maroc-diplomatique.net/fete-de-lunite-bank-al-maghrib-emet-une-piece-commemorative-de-250-dh/)
+- **Fête de l’Unité : Entre avancées diplomatiques et affirmation de la souveraineté marocaine**: [Link](https://fr.hespress.com/494363-fete-de-lunite-entre-avancees-diplomatiques-et-affirmation-de-la-souverainete-marocaine.html)
+- **Fès-Place Boujloud : Des festivités grandioses pour la Fête de l’Unité**: [Link](https://www.leconomiste.com/flash-infos/fes-place-boujloud-des-festivites-grandioses-pour-la-fete-de-lunite/)
+
+
+### fouzi lekjaa (N/A, Fri, 30 Oct 2026 09:30:00 -0700)
+
+- **Distribution agricole : Lekjaa promet d’accélérer la réforme, les textes créant les sociétés régionales bientôt au Parlement**: [Link](https://medias24.com/2026/10/29/lekjaa-societes-regionales-reforme-accelere-parlement-1785326/)
+- **Lekjaa : le gouvernement reconnaît la hausse des prix et veut encadrer les exportations**: [Link](https://fr.hespress.com/494520-lekjaa-le-gouvernement-reconnait-la-hausse-des-prix-et-veut-encadrer-les-exportations.html)
+- **Les grands chantiers du PLF 2027 pour consolider les fondements de l’Etat social**: [Link](https://libe.ma/les-grands-chantiers-du-plf-2027-pour-consolider-les-fondements-de-letat-social/)
+
+
+### محمد وهبي (N/A, Fri, 30 Oct 2026 08:50:00 -0700)
+
+- **السيد محمد وهبي يعقد ندوة صحافية**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9)
+- **أجراس العودة تدق.. محمد وهبي يفتح أبواب منتخب المغرب قبل معسكر نوفمبر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AC%D8%B1%D8%A7%D8%B3-%D8%A7%D9%84%D8%B9%D9%88%D8%AF%D8%A9-%D8%AA%D8%AF%D9%82--%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A7%D9%94%D8%A8%D9%88%D8%A7%D8%A8-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%82%D8%A8%D9%84-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1/blt4398eb7a177d684b)
+- **قبل"كان 2027".. المدير الرياضي لأولمبياكوس يكشف موعد العودة المرتقبة للكعبي**: [Link](https://ar.telquel.ma/%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%86-2027-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%BA/)
+
+
+### carlos alcaraz (N/A, Fri, 30 Oct 2026 08:10:00 -0700)
+
+- **Alcaraz - Paul | Resumen, resultado y estadísticas del partido de cuartos de final del ATP 500 de Viena**: [Link](https://www.marca.com/tenis/2026/10/30/6ae49286020dbf8b21b17dd7-directo.html)
+- **Tommy Paul - Carlos Alcaraz en el Torneo de Viena, en directo | El murciano jugará las semifinales tras imponerse en dos sets**: [Link](https://elpais.com/deportes/tenis/2026-10-30/carlos-alcaraz-tommy-paul-en-el-torneo-de-viena-en-directo.html)
+- **Alcaraz alcanza su semifinal número 50 y le espera un gran Medvedev**: [Link](https://as.com/tenis/alcaraz-alcanza-su-semifinal-numero-50-y-le-espera-un-gran-medvedev-f202610-n/)
+
+
 ### équipe du maroc de football (N/A, Fri, 30 Oct 2026 02:30:00 -0700)
 
 - **Lions de l’Atlas: une défense à trois face au Niger, l’option à explorer pour Mohamed Ouahbi?**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-une-defense-a-trois-face-au-niger-loption-a-explorer-pour-mohamed-ouahbi_ULPFZ7DMVFAYRJPXKRBMUDD2RE/)
