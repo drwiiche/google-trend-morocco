@@ -1,3 +1,71 @@
+### classement ogc nice – stade rennais football club (N/A, Fri, 30 Oct 2026 14:30:00 -0700)
+
+- **Revivez la nette victoire de Nice contre Rennes en Ligue 1 (5-2)**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-ogc-nice-stade-rennais_mtc21875646/live-commentary.shtml)
+- **PRONOS PARIS RMC Les paris sur Nice - Rennes du 30 octobre – Ligue 1**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-les-paris-sur-nice-rennes-du-30-octobre-ligue-1_AN-202610290737.html)
+- ***((DIRECT VIDEO===)) Dijon – Grenoble Match En Direct 30 octobre 2026**: [Link](https://www.portofrotterdam.com/sites/default/files/uploads/360panorama/index.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2hhcHB5aHVicy5ubC92b3MvbmV3L2EueG1sIi8+PC9rcnBhbm8+&id=video-dijon-grenoble-liv-str-eaxdwfm)
+
+
+### minurso (N/A, Fri, 30 Oct 2026 13:50:00 -0700)
+
+- **Russia vetos US-drafted resolution on Western Sahara**: [Link](https://www.reuters.com/world/russia-vetos-us-drafted-resolution-western-sahara-2026-10-30/)
+- **Sahara vote today: What the UN Security Council could change for Morocco and MINURSO**: [Link](https://en.hespress.com/148273-sahara-vote-today-what-the-un-security-council-could-change-for-morocco-and-minurso.html)
+- **New UN Resolution on Sahara: Autonomy as Sole Basis, Referendum Dropped, Tindouf Census Ordered**: [Link](https://www.moroccoworldnews.com/2026/10/344413/new-un-resolution-on-sahara-autonomy-as-sole-basis-referendum-dropped-tindouf-census-ordered/)
+
+
+### عفو ملكي (N/A, Fri, 30 Oct 2026 13:40:00 -0700)
+
+- **عيد الوحدة.. عفو ملكي لـ907 أشخاص**: [Link](https://www.hespress.com/%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A9-%D8%B9%D9%81%D9%88-%D9%85%D9%84%D9%83%D9%8A-%D9%84%D9%80907-%D8%A3%D8%B4%D8%AE%D8%A7%D8%B5-1832054.html)
+- **الملك محمد السادس يصدر عفوه السامي عن 907 أشخاص بمناسبة الذكرى الأولى لعيد الوحدة**: [Link](https://inews.ma/news/8762584)
+- **عفو ملكي يشمل 907 أشخاص بمناسبة عيد الوحدة**: [Link](https://elmassae24.ma/112017)
+
+
+### classement al shabab – al-ahli saudi (N/A, Fri, 30 Oct 2026 13:40:00 -0700)
+
+- **Video: Al-Shabab send Al-Ahli fans out of the Clasico stadium early**: [Link](https://www.yardbarker.com/soccer/articles/video_al_shabab_send_al_ahli_fans_out_of_the_clasico_stadium_early/s1_17790_44494767)
+- **Carrasco repeats Ben Yato's achievement with a hat-tr…**: [Link](https://www.ysscores.com/en/news/14083980/carrasco-repeats-ben-yatos-achievement-with-a-hat-trick-against-al-ahly-fc)
+- **In an angry manner: Posecki responds to the possibility of his dismissal from Al-Ahly**: [Link](https://www.goal.com/en/news/in-an-angry-manner-posecki-responds-to-the-possibility-of-his-dismissal-from-al-ahly/blt089a0ab5bc182149)
+
+
+### mohamed ouahbi (N/A, Fri, 30 Oct 2026 13:40:00 -0700)
+
+- **Eliminatoires CAN-2027: Conférence de presse du coach Ouahbi mercredi prochain**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9)
+- **Lions de l’Atlas: une défense à trois face au Niger, l’option à explorer pour Mohamed Ouahbi?**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-une-defense-a-trois-face-au-niger-loption-a-explorer-pour-mohamed-ouahbi_ULPFZ7DMVFAYRJPXKRBMUDD2RE/)
+- **Qualifications CAN 2027 : Mohamed Ouahbi dévoile mercredi sa liste pour les matchs de novembre**: [Link](https://lematin.ma/sports/qualifications-can-2027-mohamed-ouahbi-devoile-sa-liste-mercredi/373182)
+
+
+### hespress (N/A, Fri, 30 Oct 2026 13:30:00 -0700)
+
+
+
+
+### كينيا (N/A, Fri, 30 Oct 2026 13:30:00 -0700)
+
+- **رسميًا.. بايرن ميونخ يواجه عملاقًا أوروبيًا في إفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D9%8B%D8%A7--%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%B9%D9%85%D9%84%D8%A7%D9%82%D9%8B%D8%A7-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D9%8B%D8%A7-%D9%81%D9%8A-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/bltd369c8de72f03bce)
+- **بايرن ميونخ يواجه أياكس في كينيا.. ما القصة؟**: [Link](https://www.aljazeera.net/sport/2026/10/28/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D8%A3%D9%8A%D8%A7%D9%83%D8%B3-%D9%83%D9%8A%D9%86%D9%8A%D8%A7-%D8%A7%D9%84%D9%82%D8%B5%D8%A9)
+- **3 لاعبين مغاربة يفتتحون ملعب « الكان » بكينيا نيروبي**: [Link](https://ar.sport.le360.ma/football/DHRMGXGBJVHRXP7JAKOJA75KVE/)
+
+
+### classement le havre athletic club – paris saint-germain football club (N/A, Fri, 30 Oct 2026 13:10:00 -0700)
+
+- **Achraf Hakimi scores 1st career hat trick as Luis Enrique makes PSG history**: [Link](https://www.espn.com/soccer/story/_/id/50330654/psg-achraf-hakimi-hat-trick-luis-enrique-wins-record-le-havre)
+- **Le Havre vs Paris Saint-Germain: Predicted starting lineup for Ligue 1 game**: [Link](https://psgpost.com/le-havre-vs-paris-saint-germain-predicted-starting-lineup-for-ligue-1-game-01m668s8kjsv)
+- **Le Havre 1-5 PSG | Highlights**: [Link](https://www.beinsports.com/en-mena/football/ligue-1/articles-video/hakimi-bags-hat-trick-as-paris-saint-germain-rip-le-havre-to-pieces-2026-10-30)
+
+
+### achraf hakimi (N/A, Fri, 30 Oct 2026 13:00:00 -0700)
+
+- **Achraf es imparable**: [Link](https://as.com/futbol/internacional/achraf-es-imparable-f202610-n/)
+- **Un Achraf de '10' hace aun más líder al PSG**: [Link](https://www.marca.com/futbol/liga-francesa/cronica/2026/10/30/achraf-10-aun-lider-psg.html)
+- **Alineaciones de Le Havre AC contra Paris Saint-Germain**: [Link](https://rcdm.es/alineaciones-de-le-havre-ac-contra-paris-saint-germain-2/)
+
+
+### فياريال ضد إسبانيول (N/A, Fri, 30 Oct 2026 12:50:00 -0700)
+
+- **أخوماش يلتحق بلائحة المصابين**: [Link](https://assabah.ma/958484.html)
+- **تألق لافت في كأس إسبانيا.. الواعد نزار الجميلي ينثر سحره مع فياريال**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%AF%D9%81-%D9%88%D8%AA%D9%85%D8%B1%D9%8A%D8%B1%D8%AA%D8%A7%D9%86-%D8%AD%D8%A7%D8%B3%D9%85%D8%AA%D8%A7%D9%86-%D9%86%D8%B2%D8%A7%D8%B1-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D9%84%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%B9%D8%B1%D8%B6-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%83%D8%A7%D8%B3%D8%AD-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/27071)
+- **المغربي اجميلي يقود الغواصات الصفراء للدور القادم من كأس إسبانيا**: [Link](https://inews.ma/news/8755897)
+
+
 ### corée du sud (N/A, Fri, 30 Oct 2026 10:30:00 -0700)
 
 - **Un “faux télétravailleur” nord-coréen découvert ? Une première en Corée du Sud**: [Link](https://www.courrierinternational.com/article/infiltration-un-faux-teletravailleur-nord-coreen-decouvert-une-premiere-en-coree-du-sud_283485)
