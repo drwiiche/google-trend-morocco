@@ -1,3 +1,10 @@
+### شمس البارودي (N/A, Thu, 29 Oct 2026 16:10:00 -0700)
+
+- **شمس البارودي تستعيد أحزانها في ذكرى رحيل حسن يوسف: وجع الغياب**: [Link](https://al-ain.com/article/shams-elbaroudi-revisits-hassan-youssef)
+- **شمس البارودى لمنتقديها: كلكم ستزورون المقابر وستدفنون أحباء لكم**: [Link](https://www.youm7.com/story/2026/10/29/%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D9%88%D8%AF%D9%89-%D9%84%D9%85%D9%86%D8%AA%D9%82%D8%AF%D9%8A%D9%87%D8%A7-%D9%83%D9%84%D9%83%D9%85-%D8%B3%D8%AA%D8%B2%D9%88%D8%B1%D9%88%D9%86-%D8%A7%D9%84%D9%85%D9%82%D8%A7%D8%A8%D8%B1-%D9%88%D8%B3%D8%AA%D8%AF%D9%81%D9%86%D9%88%D9%86-%D8%A3%D8%AD%D8%A8%D8%A7%D8%A1-%D9%84%D9%83%D9%85/7598304)
+- **حدث في الفن| رد شمس البارودي على اتهامها بالجنون وحقيقة صور إيمان الطوخي**: [Link](https://www.masrawy.com/arts/zoom/details/2026/10/29/3070280/%D8%AD%D8%AF%D8%AB-%D9%81%D9%8A-%D8%A7%D9%84%D9%81%D9%86-%D8%B1%D8%AF-%D8%B4%D9%85%D8%B3-%D8%A7%D9%84%D8%A8%D8%A7%D8%B1%D9%88%D8%AF%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D9%87%D8%A7-%D8%A8%D8%A7%D9%84%D8%AC%D9%86%D9%88%D9%86-%D9%88%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%B5%D9%88%D8%B1-%D8%A5%D9%8A%D9%85%D8%A7%D9%86-%D8%A7%D9%84%D8%B7%D9%88%D8%AE%D9%8A)
+
+
 ### binance (N/A, Thu, 29 Oct 2026 16:00:00 -0700)
 
 - **Binance investigating hack as suspicious outflows reach up to $5.8 billion**: [Link](https://www.theblock.co/news/markets/2026-10-29-binance-investigating-hack-suspicious-outflows-5-billion-432171)
