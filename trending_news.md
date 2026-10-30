@@ -1,3 +1,52 @@
+### binance (N/A, Thu, 29 Oct 2026 16:00:00 -0700)
+
+- **Binance investigating hack as suspicious outflows reach up to $5.8 billion**: [Link](https://www.theblock.co/news/markets/2026-10-29-binance-investigating-hack-suspicious-outflows-5-billion-432171)
+- **Crypto worth billions frozen over 'potential security issue'**: [Link](https://www.mansfieldradio.co.uk/newsandsport/news-and-sport/national-news/crypto-worth-billions-frozen-over-potential-security-issue/)
+- **Binance Hacker Hunts for Exit Ramps as DeFi Exchanges Pause Markets**: [Link](https://decrypt.co/382194/binance-hack-exit-ramps-defi-exchange-ethereum)
+
+
+### classement hb køge – fc barcelone (féminines) (N/A, Thu, 29 Oct 2026 15:50:00 -0700)
+
+- **🔥Barça Femení thrash HB Køge in historic 0-8 rout**: [Link](https://sports.yahoo.com/articles/bar-femen-thrash-hb-k-222300832.html)
+- **Barcelona hits 8 in Women's Champions League rout. PSG ties Man City late in game**: [Link](https://www.foxsports.com/articles/soccer/barcelona-hits-8-in-womens-champions-league-rout-psg-ties-man-city-late-in-game)
+- **Why do Barcelona’s Danish Champions League opponents have a surprisingly American lineup?**: [Link](https://en.as.com/soccer/why-do-barcelonas-danish-champions-league-opponents-have-a-surprisingly-american-lineup-f202610-n/)
+
+
+### joueur de football (N/A, Thu, 29 Oct 2026 15:10:00 -0700)
+
+- **"Il a métamorphosé le club" : Griezmann, le rêve américain comme il l'imaginait**: [Link](https://www.eurosport.fr/football/mls/2026/mls-2026-il-a-metamorphose-le-club-antoine-griezmann-le-reve-americain-comme-il-limaginait-dans-sa-nouvelle-equipe-dorlando_sto23350193/story.shtml)
+- **D'un ballon déposé en lucarne, Antoine Griezmann enchaîne avec Orlando en MLS**: [Link](https://www.lequipe.fr/Football/Actualites/D-un-ballon-depose-en-lucarne-antoine-griezmann-enchaine-avec-orlando-en-mls/1739425)
+- **Griezmann amuse, Lewandowski surpris le cippe lors que le Chicago Fire se rassemble derrière exécuter compétition nul quelque Orlando City 2-2**: [Link](https://agridigitale.tg/griezmann-amuse-lewandowski-surpris-le-cippe-lors-que-le-chicago-fire-se-rassemble-derriere-executer-competition-nul-quelque-orlando-city-2-2/)
+
+
+### benfica – gil vicente (N/A, Thu, 29 Oct 2026 14:20:00 -0700)
+
+- **Clássico na meia-final da Taça da Liga: os jogos e datas da 'final-four'**: [Link](https://www.abola.pt/noticias/classico-na-meia-final-da-taca-da-liga-os-jogos-e-datas-da-final-four-2026102922244273108)
+- **Marco Silva sobre as meias-finais com o FC Porto: «Quer que lhe fale já de um jogo em janeiro?**: [Link](https://cnnportugal.iol.pt/videos/marco-silva-sobre-as-meias-finais-com-o-fc-porto-quer-que-lhe-fale-ja-de-um-jogo-em-janeiro/6ae3dc490cf299bc29543e72)
+- **Marco Silva: "FC Porto? Não vou começar já a preparar esse encontro publicamente..."**: [Link](https://www.ojogo.pt/futebol/artigo/marco-silva-fc-porto-nao-vou-comecar-ja-a-preparar-esse-encontro-publicamente/18142519)
+
+
+### الصندوق الوطني لمنظمات الاحتياط الاجتماعي (N/A, Thu, 29 Oct 2026 14:10:00 -0700)
+
+- **نقل التأمين الصحي إلى “CNSS”.. “كنوبس” يطمئن الموظفين والمتقاعدين بشأن التعويضات والمكتسبات**: [Link](https://al3omk.com/1199721.html)
+- **قانون 54.23 بالمغرب.. هل يفقد موظفو الدولة امتيازاتهم الصحية بعد الانتقال إلى CNSS؟**: [Link](https://www.ouedzem.com/%D9%82%D8%A7%D9%86%D9%88%D9%86-5423-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%87%D9%84-%D9%8A%D9%81%D9%82%D8%AF-%D9%85%D9%88%D8%B8%D9%81%D9%88-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A9-%D8%A7%D9%85%D8%AA%D9%8A%D8%A7%D8%B2%D8%A7%D8%AA%D9%87%D9%85-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D8%A5%D9%84%D9%89-CNSS)
+- **إشعار هام حول نقل تدبير التأمين الإجباري الأساسي عن المرض من CNOPS إلى CNSS**: [Link](https://www.atlasscoop.com/114595/)
+
+
+### ترتيبات المغرب الفاسي – نهضة بركان (N/A, Thu, 29 Oct 2026 13:50:00 -0700)
+
+- **ما القنوات الناقلة لمباراة المغرب الفاسي ونهضة بركان في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%88%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt97d4826ec0de6074)
+- **التعادل يحسم لقاء "الماص" وبركان**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D8%B5-%D9%88%D8%A8%D8%B1%D9%83%D8%A7%D9%86-1831378.html)
+- **البطولة الوطنية الاحترافية "إنوي" للقسم الأول لكرة القدم (الدورة الخامسة)..التعادل السلبي (0-0) يحسم المواجهة بين المغرب الفاسي ونهضة بركان**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9-%D8%A5%D9%86%D9%88%D9%8A-%D9%84%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D8%A9-20261029)
+
+
+### ao3 (N/A, Thu, 29 Oct 2026 13:50:00 -0700)
+
+- **Fan Fiction Website AO3 Is Down, And It Could Take Weeks To Recover**: [Link](https://www.engadget.com/2301753/ao3-fanfiction-website-down-for-weeks/)
+- **Massive Fanfic Site Archive of Our Own Says It’s Going Down for 'Up to 4 Weeks'**: [Link](https://www.404media.co/archive-of-our-own-ao3-down-maintenance/)
+- **AO3 Suffers Major Outage: Possibly No Fanfic for 2 Weeks or Longer**: [Link](https://www.cnet.com/tech/services-and-software/ao3-suffers-major-outage/)
+
+
 ### classement mas fès – rsb berkane (N/A, Thu, 29 Oct 2026 13:20:00 -0700)
 
 
