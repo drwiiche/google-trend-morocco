@@ -1,3 +1,73 @@
+### ajax – az (N/A, Sat, 31 Oct 2026 13:20:00 -0700)
+
+- **Ajax-trainer Míchel kiest tegen AZ weer voor beproefd recept**: [Link](https://www.vi.nl/nieuws/ajax-trainer-michel-kiest-tegen-az-weer-voor-beproefd-recept)
+- **LIVE eredivisie | Aftellen naar kraker: Ajax met Davy Klaassen als extra middenvelder tegen AZ**: [Link](https://www.ad.nl/voetbal/live-eredivisie-aftellen-naar-kraker-ajax-met-davy-klaassen-als-extra-middenvelder-tegen-az~ac5c6300/)
+- **Tolu kopt Ajax vroeg op voorsprong tegen AZ • Ontketend Cambuur leidt tegen Go Ahead**: [Link](https://nos.nl/liveblog/2637450-tolu-kopt-ajax-vroeg-op-voorsprong-tegen-az-ontketend-cambuur-leidt-tegen-go-ahead)
+
+
+### classement bayern munich – borussia dortmund (N/A, Sat, 31 Oct 2026 12:50:00 -0700)
+
+- **Bayern Munich 2-2 Borussia Dortmund: Dortmund twice come from behind to draw**: [Link](https://www.bbc.com/sport/football/live/cke8rnzy49m7t)
+- **Bayern Munich 2-2 Borussia Dortmund highlights**: [Link](https://www.skysports.com/football/live-blog/13605682/bayern-munich-vs-dortmund-live-bundesliga-match-updates-news-score-stream-and-highlights)
+- **Preview: Bayern vs. Borussia Dortmund, Bundesliga Matchday 8**: [Link](https://fcbayern.com/en/news/matchpreviews/2026/10/preview-bayern-borussia-dortmund-bundesliga-matchday-8)
+
+
+### brian fariñas (N/A, Sat, 31 Oct 2026 12:40:00 -0700)
+
+- **Confirmado: ¡defensa revolucionaria de Flick ante el Alavés!**: [Link](https://www.mundodeportivo.com/futbol/fc-barcelona/20261031/1004245504/confirmado-defensa-revolucionaria-flick-alaves.html)
+- **De Jong, Fariñas y Adeyemi, novedades azulgranas ante un Alavés con cinco cambios**: [Link](https://www.infobae.com/america/agencias/2026/10/31/de-jong-farinas-y-adeyemi-novedades-azulgranas-ante-un-alaves-con-cinco-cambios/)
+- **Brian Fariñas entra en la historia del fútbol de Castellón: el benicarlando debuta oficialmente con el Barça con 20 años**: [Link](https://www.elperiodicomediterraneo.com/deportes/2026/10/31/brian-farinas-entra-historia-futbol-135960990.html)
+
+
+### ميلان ضد الإنتر (N/A, Sat, 31 Oct 2026 12:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة ميلان وإنتر في الدوري الإيطالي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt1660a7fcffe04541)
+- **ديربي الغضب يعود بين إنتر "الواثق" وميلان الراغب في مداواة الجراح**: [Link](https://www.aljazeera.net/sport/2026/10/30/%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%BA%D8%B6%D8%A8-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A8%D9%8A%D9%86-%D8%A5%D9%86%D8%AA%D8%B1-%D8%A7%D9%84%D9%88%D8%A7%D8%AB%D9%82)
+- **وهنا بث مباشر لمباراة إنتر ضد ميلان في الدوري الإيطالي**: [Link](https://www.annahar.com/sports/362230/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A5%D9%86%D8%AA%D8%B1-%D8%B6%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A)
+
+
+### ismael saibari (N/A, Sat, 31 Oct 2026 12:40:00 -0700)
+
+- **Saibari Forced Off With Knee Injury Against Dortmund**: [Link](https://www.moroccoworldnews.com/2026/10/344610/saibari-forced-off-with-knee-injury-against-dortmund/)
+- **“It’s crazy what’s happening to us right now”: Bayern Munich pay dearly for 2-2 draw against Borussia Dortmund as Ismael Saibari and Serge Gnabry suffer more serious injuries**: [Link](https://www.goal.com/en/news/it-s-tough-what-s-happening-to-us-right-now-bayern-munich-pay-dearly-for-2-2-draw-against-borussia-dortmund-ismael-saibari-and-serge-gnabry-suffer-more-serious-injuries/bltffc3e6123a8bdbee)
+- **Ismael Saibari and Serge Gnabry sustain injuries**: [Link](https://www.getfootballnewsgermany.com/2026/ismael-saibari-and-serge-gnabry-sustain-injuries/)
+
+
+### aston villa – fulham (N/A, Sat, 31 Oct 2026 12:30:00 -0700)
+
+- **Aston Villa Football Club - The Official Club Website**: [Link](https://www.avfc.co.uk/news/2026/october/30/prematch-emery-looks-ahead-to-fulham-encounter/)
+- **Premier League LIVE: Build-up, team news, live text, radio & score updates from eight games as it happens from across the Premier League**: [Link](https://www.bbc.com/sport/football/live/cm2l8lx5k1zvt?page=13)
+- **Emery: Consistency is the big goal for Jackson | Birmingham Mail - newspaper**: [Link](https://www.magzter.com/stories/newspaper/Birmingham-Mail/EMERY-CONSISTENCY-IS-THE-BIG-GOAL-FOR-JACKSON)
+
+
+### الناضور غرب المتوسط (N/A, Sat, 31 Oct 2026 12:20:00 -0700)
+
+- **بلاغ من الديوان الملكي**: [Link](https://2m.ma/ar/news/%D8%A8%D9%84%D8%A7%D8%BA-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%8A%D9%88%D8%A7%D9%86-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-20261030)
+- **المغرب يعتزم افتتاح ميناء الناظور غرب المتوسط وتوسعة ميناء طنجة**: [Link](https://www.aljazeera.net/ebusiness/2026/10/28/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B9%D8%AA%D8%B2%D9%85-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D9%85%D9%8A%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D9%86%D8%A7%D8%B8%D9%88%D8%B1-%D8%BA%D8%B1%D8%A8)
+- **ولي العهد الأمير مولاي الحسن يحط الرحال بمطار العروي بالناظور في زيارة رسمية للمنطقة**: [Link](https://alakhbar55.ma/%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B9%D9%87%D8%AF-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1-%D9%85%D9%88%D9%84%D8%A7%D9%8A-%D8%A7%D9%84%D8%AD%D8%B3%D9%86-%D9%8A%D8%AD%D8%B7-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7/)
+
+
+### برشلونة ضد ألافيس (N/A, Sat, 31 Oct 2026 12:10:00 -0700)
+
+- **بعد الهزيمتين.. ثورة في تشكيل برشلونة أمام ألافيس**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%AA%D9%8A%D9%86--%D8%AB%D9%88%D8%B1%D8%A9-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%94%D9%84%D8%A7%D9%81%D9%8A%D8%B3/bltb8f36dca885da8ac)
+- **مباشر.. مباراة برشلونة ضد ديبورتيفو ألافيس في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/10/31/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88)
+- **وهنا بث مباشر لمباراة برشلونة ضد ألافيس في الدوري الإسباني**: [Link](https://www.annahar.com/sports/362234/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%B6%D8%AF-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A)
+
+
+### barcelona vs alavés (N/A, Sat, 31 Oct 2026 12:10:00 -0700)
+
+- **Barcelona - Alavés hoy, en directo: previa y última hora de LaLiga EA Sports, en vivo**: [Link](https://as.com/futbol/primera/barcelona-alavesen-directo-ultima-hora-de-laliga-ea-sports-hoy-en-vivo-f202610-d/)
+- **Alineación del Barcelona contra el Alavés para el partido de LaLiga EA Sports**: [Link](https://www.sport.es/es/noticias/barca/alineacion-barcelona-alaves-partido-laliga-135958138)
+- **Barcelona - Alavés, hoy en directo | Última hora de LALIGA EA Sports en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/barcelona-alaves/2026/10/31/01_0101_20261031_178_173-directo.html)
+
+
+### ac milan – inter (N/A, Sat, 31 Oct 2026 12:00:00 -0700)
+
+- **Photo: Curva Sud confirm banners and choreography will return for Milan-Inter**: [Link](https://sempremilan.com/curva-sud-confirm-banners-choreography-milan-inter)
+- **Castillejo: “Derby? A special match. Here’s my score prediction”**: [Link](https://milanreports.com/2026/10/31/castillejo-derby-score-prediction/)
+- **Marotta: ‘Milan vs. Inter an advertisement for Italian football’**: [Link](https://football-italia.net/marotta-milan-inter-advertisement-football/)
+
+
 ### نصير مزراوي (N/A, Sat, 31 Oct 2026 10:20:00 -0700)
 
 - **وضعية مزراوي في مانشستر يونايتد تثير القلق.. الدولي المغربي خارج حسابات كاريك رغم الغيابات الدفاعية**: [Link](https://www.elbotola.com/article/2026-10-31-16-07-997.html)
