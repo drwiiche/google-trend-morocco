@@ -1,3 +1,73 @@
+### نصير مزراوي (N/A, Sat, 31 Oct 2026 10:20:00 -0700)
+
+- **وضعية مزراوي في مانشستر يونايتد تثير القلق.. الدولي المغربي خارج حسابات كاريك رغم الغيابات الدفاعية**: [Link](https://www.elbotola.com/article/2026-10-31-16-07-997.html)
+- **مزراوي أدى الثمن غاليا**: [Link](https://www.almountakhab.com/node/16232278)
+- **نصير مزراوي.. هل أصبح الرحيل في الميركاتو الشتوي خياراً مطروحاً؟**: [Link](https://inews.ma/news/8764301)
+
+
+### البايرن ضد دورتموند (N/A, Sat, 31 Oct 2026 10:00:00 -0700)
+
+- **"سأغير الخطة".. مساعد كومباني "الغائب" يكشف استعداده لمباراة بايرن ميونخ ودورتموند**: [Link](https://www.aljazeera.net/sport/2026/10/30/%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%AF%D8%A7%D9%86%D9%83%D8%B3-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A)
+- **ما القنوات الناقلة لمباراة بايرن ميونخ وبوروسيا دورتموند في الدوري الألماني 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%88%D8%A8%D9%88%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt71c119607c328e08)
+- **بطولة ألمانيا: بايرن وكاين يستضيفان دورتموند بعد أسبوع متناقض**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261030-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D9%83%D8%A7%D9%8A%D9%86-%D9%8A%D8%B3%D8%AA%D8%B6%D9%8A%D9%81%D8%A7%D9%86-%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%A8%D8%B9%D8%AF-%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%85%D8%AA%D9%86%D8%A7%D9%82%D8%B6)
+
+
+### ayyoub bouaddi (N/A, Sat, 31 Oct 2026 10:00:00 -0700)
+
+- **Manchester City vs Brighton & Hove Albion: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6x2v4k8e0y9t)
+- **Man City 0-1 Brighton highlights**: [Link](https://www.skysports.com/football/live-blog/13604905/man-city-vs-brighton-live-premier-league-match-updates-news-and-score)
+- **Brighton stun Man City, 10-man Man Utd beaten by Chelsea**: [Link](https://www.france24.com/en/live-news/20261031-brighton-stun-man-city-10-man-man-utd-beaten-by-chelsea)
+
+
+### classement premier league (N/A, Sat, 31 Oct 2026 10:00:00 -0700)
+
+- **Chelsea - Manchester United : les compositions officielles**: [Link](https://www.footmercato.net/a3419897673100438569-chelsea-manchester-united-les-compositions-officielles)
+- **Super week-end européen : Chelsea-Man. United, Klassiker, derby de Milan et Liverpool-Arsenal en têtes d’affiche**: [Link](https://lopinion.ma/fr/sport/newsroom/super-week-end-europeen--chelsea-man-united-klassiker-derby-de-milan-et-liverpool-arsenal-en-tetes-daffiche_a22659?articleId=7257edc6-d2af-4c02-af2b-de3bd6d25fce)
+- **« Une prestation de très, très haut niveau ! » : Xabi Alonso salue tout particulièrement Romeo Lavia, le milieu de Chelsea, après une victoire impressionnante face à Manchester United**: [Link](https://www.goal.com/fr/news/une-prestation-de-tres-tres-haut-niveau-xabi-alonso-salue-tout-particulierement-romeo-lavia-le-milieu-de-chelsea-apres-une-victoire-impressionnante-face-a-manchester-united/blt87ac8d4e628c7d30)
+
+
+### bayern – dortmund (N/A, Sat, 31 Oct 2026 09:50:00 -0700)
+
+- **„Wir kommen nicht her, um uns zu ergeben“: Kovač kontert Sammer**: [Link](https://xn--frhes-tor-r9a.de/wir-kommen-nicht-her-um-uns-zu-ergeben-kovac-kontert-sammer/)
+- **Bayern gegen Dortmund, Vuscovic und die teuersten Kader der Welt**: [Link](https://shows.acast.com/maik-mit-ai/episodes/bayern-gegen-dortmund-vuscovic-und-die-teuersten-kader-der-w)
+- **🎢 Gefühlsachterbahn für Buli-Ass: Vom Abstellgleis zurück ins Rampenlicht?**: [Link](https://onefootball.com/de/news/gefuehlsachterbahn-fuer-buli-ass-vom-abstellgleis-zurueck-ins-rampenlicht-43701256)
+
+
+### tottenham – crystal palace (N/A, Sat, 31 Oct 2026 09:50:00 -0700)
+
+- **Confirmed line-ups: Spurs vs Crystal Palace**: [Link](https://www.tottenhamhotspur.com/news/1182883/confirmed-line-ups-tottenham-hotspur-vs-crystal-palace-premier-league)
+- **Aston Villa vs Fulham: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cq0ldj4pnz10t)
+- **The Tottenham curse that Roberto De Zerbi will be hoping to inflict on Crystal Palace**: [Link](https://www.football.london/tottenham-hotspur-fc/news/crystal-palace-premier-league-spurs-34841216)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 31 Oct 2026 09:50:00 -0700)
+
+- **مباراة الوداع؟.. تشيلسي يزيد محنة كاريك بثنائية في البريميرليج**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%B9--%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D8%B2%D9%8A%D8%AF-%D9%85%D8%AD%D9%86%D8%A9-%D9%83%D8%A7%D8%B1%D9%8A%D9%83-%D8%A8%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D9%8A%D8%B1%D9%84%D9%8A%D8%AC/blt4312f2b239aa46e0)
+- **قدم.. تشيلسي يهزم مانشستر يونايتد بثنائية ويعمق جراحه في الدوري الإنجليزي**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%88%D9%8A%D8%B9%D9%85%D9%82-%D8%AC%D8%B1%D8%A7%D8%AD%D9%87-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A/4107538)
+- **جمال الشريف يشرح قرار ركلة جزاء تشلسي وطرد مارتينيز**: [Link](https://www.alaraby.co.uk/sport/%D8%AC%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D9%81-%D9%8A%D8%B4%D8%B1%D8%AD-%D9%82%D8%B1%D8%A7%D8%B1-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D9%88%D8%B7%D8%B1%D8%AF-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D8%B2)
+
+
+### أمل تزنيت ضد الكوكب (N/A, Sat, 31 Oct 2026 09:50:00 -0700)
+
+- **مساعد مدرب أمل تزنيت لـ" راديو مارس": مواجهة الكوكب المراكشي لن تقل صعوبة عن مباراة مكناس**: [Link](https://radiomars.ma/%D9%85%D8%B3%D8%A7%D8%B9%D8%AF-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A3%D9%85%D9%84-%D8%AA%D8%B2%D9%86%D9%8A%D8%AA-%D9%84%D9%80-%D8%B1%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D8%B1%D8%B3-%D9%85%D9%88%D8%A7-2/)
+- **غيابان بارزان في تشكيلة الكوكب أمام أمل تيزنيت**: [Link](https://barlamanesport.com/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D8%A8%D8%A7%D8%B1%D8%B2%D8%A7%D9%86-%D9%81%D9%8A-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%85/)
+- **ممثلو سوس في اختبار المحك: حسنية أكادير في مأمورية صعبة بالرباط، و أمل تزنيت يستقبل الكوكب**: [Link](https://agadir24.info/%D9%85%D9%85%D8%AB%D9%84%D9%88-%D8%B3%D9%88%D8%B3-%D9%81%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D9%83-%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1.html)
+
+
+### udinese – roma (N/A, Sat, 31 Oct 2026 09:30:00 -0700)
+
+- **Udinese-Roma: le probabili formazioni aggiornate e diretta. Dove si vede in tv e streaming**: [Link](https://www.tuttosport.com/news/calcio/serie-a/2026/10/31-152256493/udinese-roma_le_probabili_formazioni_aggiornate_e_diretta_dove_si_vede_in_tv_e_streaming)
+- **Official: Roma confirm 22-man squad for Udinese trip including five teenagers**: [Link](https://football-italia.net/official-roma-confirm-22-man-squad-for-udinese/)
+- **The giallorossi squad for Udinese v Roma**: [Link](https://www.asroma.com/en/news/76156/the-giallorossi-squad-for-udinese-v-roma)
+
+
+### équipe du maroc de football (N/A, Sat, 31 Oct 2026 09:30:00 -0700)
+
+- **Coupe du Monde et festival U15 de la FIFA (match de classement): victoire du Maroc face au Venezuela (4-3)**: [Link](https://frmf.ma/fr/articles/15-4)
+- **Mondial U15 : le Maroc termine à la 13e place**: [Link](https://lematin.ma/sports/mondial-u15-le-maroc-termine-a-la-13e-place/373174)
+- **Mondial U15 : la FIFA met en lumière les performances prometteuses des Lionceaux de l’Atlas et les ambitions du football marocain**: [Link](https://mafrique.ma/2026/10/29/mondial-u15-la-fifa-met-en-lumiere-les-performances-prometteuses-des-lionceaux-de-latlas-et-les-ambitions-du-football-marocain/)
+
+
 ### real sociedad b – girona (N/A, Sat, 31 Oct 2026 06:00:00 -0700)
 
 - **Dani Díaz agarra el timón ‘txuri-urdin’ frente al huracán del Girona**: [Link](https://as.com/futbol/segunda/dani-diaz-agarra-el-timon-txuri-urdin-frente-al-huracan-del-girona-f202610-n/)
