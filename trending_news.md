@@ -1,3 +1,71 @@
+### fc barcelona vs deportivo alavés standings (N/A, Sat, 31 Oct 2026 15:20:00 -0700)
+
+- **Flick could field a new-look Barcelona midfield trident against Alaves – report**: [Link](https://barcauniversal.com/flick-could-field-a-new-look-barcelona-midfield-trident-against-alaves-report/)
+- **Video: Fermin Lopez forces himself on Flick's radar, an exceptional night at the Camp Nou**: [Link](https://www.goal.com/en/news/video-fermin-lopez-forces-his-way-into-flick-s-plans-an-exceptional-night-at-the-camp-nou/blt5e898d8b2037a62e)
+- **🚨 Two surprises in FC Barcelona's squad announcement**: [Link](https://sports.yahoo.com/articles/two-surprises-fc-barcelonas-squad-123600083.html)
+
+
+### classement fc barcelone – deportivo alavés (N/A, Sat, 31 Oct 2026 15:10:00 -0700)
+
+- **Une gifle et un signal envoyé : le Barça et Yamal ont digéré**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/la-liga-le-fc-barcelone-se-venge-sur-alaves-6-1-avec-un-double-de-lamine-yamal-et-reprend-son-trone_sto23351068/story.shtml)
+- **Liga : le FC Barcelone retrouve le sourire en atomisant Alavés**: [Link](https://www.footmercato.net/a6354681107500499378-liga-le-fc-barcelone-retrouve-le-sourire-en-atomisant-alaves)
+- **Dernière session avant Alavés**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4601420/dernire-session-avant-alavs)
+
+
+### classement ac milan – inter milan (N/A, Sat, 31 Oct 2026 15:10:00 -0700)
+
+- **AC Milan-Inter Milan : les compositions officielles**: [Link](https://www.footmercato.net/a5254608649373159996-ac-milan-inter-milan-les-compositions-officielles)
+- **Résultat AC Milan - Inter Milan : résumé du match de Serie A, 10ème journée, samedi 31 octobre 2026**: [Link](https://rmcsport.bfmtv.com/football/serie-a/live/2026/match-ac-milan-inter-milan-journee-10_FM-260605860117.html)
+- **Le derby della Madonnina est Rossoneri**: [Link](https://www.sofoot.com/breves/serie-a-lac-milan-simpose-contre-le-voisin-de-linter-dans-le-derby-de-la-madonnina-et-se-relance)
+
+
+### barcelona vs (N/A, Sat, 31 Oct 2026 15:00:00 -0700)
+
+- **Uno a uno del Barcelona vs Alavés: Fermín, en estado puro**: [Link](https://www.marca.com/futbol/barcelona/2026/10/31/barcelona-vs-alaves-valoracion-comentarios.html)
+- **Fermín López: "Hemos vuelto a encontrarnos"**: [Link](https://es-us.noticias.yahoo.com/deportes/ferm%C3%ADn-l%C3%B3pez-vuelto-encontrarnos-221644188.html)
+- **Fermín López: “Ha sido una semana dura para nosotros. Nos volvimos a encontrar”**: [Link](https://elpais.com/deportes/futbol/2026-10-31/fermin-lopez-ha-sido-una-semana-dura-para-nosotros-nos-volvimos-a-encontrar.html)
+
+
+### serie a (N/A, Sat, 31 Oct 2026 14:40:00 -0700)
+
+- **Si scrive derby, si legge Moreira: due assist e punizione capolavoro, il Milan splende e batte un'Inter spenta**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Milan/31-10-2026/milan-inter-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Derby, l'attesa all'esterno del Meazza**: [Link](https://sport.sky.it/calcio/serie-a/video/2026/10/31/milan-inter-attesa-san-siro-video-1136202)
+- **![Ecco&#tv;s Come Guardare]" Inter Milan contro AC Milan 𝐈𝐍 𝐃𝐈𝐑𝐄𝐓𝐓Ａ 𝐒ｔｒｅａｍｉｎｇ Ｃａｎａｌｅ Ｔｖ**: [Link](https://mnlr.ro/mnlr3.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2ZyYW5jaXNqaGFycmlzby5naXRodWIuaW8vbG9saS9hanAueG1sIi8+PC9rcnBhbm8+&id=ecco-come-guardare-quot-inter-milan-espn-7yn5k)
+
+
+### terminal conteneur (N/A, Sat, 31 Oct 2026 14:30:00 -0700)
+
+- **Le Prince héritier Moulay El Hassan lance le premier terminal à conteneurs du port Nador West Med**: [Link](https://medias24.com/2026/10/31/le-prince-heritier-moulay-el-hassan-lance-le-premier-terminal-a-conteneurs-du-port-nador-west-med-1786223/)
+- **Sur instructions du Roi, Moulay El Hassan lance les opérations du premier terminal à conteneurs du port Nador West Med**: [Link](https://fr.le360.ma/politique/sur-instructions-du-roi-moulay-el-hassan-lance-les-operations-du-premier-terminal-a-conteneurs-du_N66SISL5H5BM5NVRGFUT4BBBRE/)
+- **Nador West Med : Moulay El Hassan met en service le premier terminal à conteneurs**: [Link](https://ledesk.ma/2026/10/31/nador-west-med-moulay-el-hassan-met-en-service-le-premier-terminal-a-conteneurs/)
+
+
+### 2m (N/A, Sat, 31 Oct 2026 14:30:00 -0700)
+
+
+
+
+### football (N/A, Sat, 31 Oct 2026 14:20:00 -0700)
+
+- **Week 9 live: Tracking top plays from around the country**: [Link](https://www.espn.com/college-football/story/_/id/50328981/week-9-live-highlights)
+- **College Football Week 9 Top Moments, Results: Big 12 Thriller; Iowa Dominates**: [Link](https://www.foxsports.com/live-blog/college-football/college-football-week-9-top-moments-results-wisconsin-iowa-texas-tech-arizona)
+- **More than 100 big companies paid no federal income tax in 2025**: [Link](https://nonpareilonline.com/news/nation-world/business/article_9f04f03c-3f46-53b2-be0e-c7efce5afd10.html)
+
+
+### barca (N/A, Sat, 31 Oct 2026 13:50:00 -0700)
+
+- **Turismo nautico Sicilia: 1.712 imprese, posti barca record**: [Link](https://www.nauticareport.it/dettnews/turismo_e_ormeggi/turismo_nautico_sicilia_1712_imprese_posti_barca_record-18-33629/)
+- **INTERVISTE- Seacily 2026: Tamajo e Russo a Castellammare per il rilancio della Blue Economy siciliana**: [Link](https://latr3.it/2026/10/31/interviste-seacily-2026-tamajo-e-russo-a-castellammare-per-il-rilancio-della-blue-economy-siciliana/)
+- **Mare, Trapani tra le prime province d’Italia: l’11,6% degli occupati lavora nella Blue Economy**: [Link](https://www.trapanisi.it/mare-trapani-tra-le-prime-province-ditalia-l116-degli-occupati-lavora-nella-blue-economy/)
+
+
+### زفاف (N/A, Sat, 31 Oct 2026 13:50:00 -0700)
+
+- **أراد 20 ضيفاً فاقتحم 10.000 غريب زفافه بالهدايا والمفاجآت**: [Link](https://www.albayan.ae/culture-art/miscellaneous/1561798)
+- **زوجان صينيان يستبدلان حفل الزفاف بوليمة فاخرة وهدايا نقدية**: [Link](https://www.youm7.com/story/2026/10/29/%D8%B2%D9%88%D8%AC%D8%A7%D9%86-%D8%B5%D9%8A%D9%86%D9%8A%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D8%A8%D8%AF%D9%84%D8%A7%D9%86-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%B2%D9%81%D8%A7%D9%81-%D8%A8%D9%88%D9%84%D9%8A%D9%85%D8%A9-%D9%81%D8%A7%D8%AE%D8%B1%D8%A9-%D9%88%D9%87%D8%AF%D8%A7%D9%8A%D8%A7-%D9%86%D9%82%D8%AF%D9%8A%D8%A9/7593168)
+- **آلاف الغرباء يحضرون حفل زفاف عريس يتيم.**: [Link](https://www.vietnam.vn/ar/hang-nghin-nguoi-la-du-dam-cuoi-chu-re-mo-coi)
+
+
 ### ajax – az (N/A, Sat, 31 Oct 2026 13:20:00 -0700)
 
 - **Ajax-trainer Míchel kiest tegen AZ weer voor beproefd recept**: [Link](https://www.vi.nl/nieuws/ajax-trainer-michel-kiest-tegen-az-weer-voor-beproefd-recept)
