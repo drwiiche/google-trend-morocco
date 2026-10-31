@@ -1,3 +1,59 @@
+### إنزو ماريسكا (N/A, Fri, 30 Oct 2026 16:40:00 -0700)
+
+- **ما القنوات الناقلة لمباراة مانشستر سيتي وبرايتون في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte5fb2f5348751d79)
+- **ركلات الترجيح تقصي تشيلسي وتؤهل ليفربول والسيتي إلى ربع نهائي كأس الرابطة**: [Link](https://www.aljazeera.net/sport/2026/10/29/%D8%B1%D9%83%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B1%D8%AC%D9%8A%D8%AD-%D8%AA%D9%82%D8%B5%D9%8A-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A-%D9%88%D8%AA%D8%A4%D9%87%D9%84)
+- **آيت نوري يتغلب على حجام في كأس رابطة المحترفين الإنجليزية**: [Link](https://elayem.news/%D8%A2%D9%8A%D8%AA-%D9%86%D9%88%D8%B1%D9%8A-%D9%8A%D8%AA%D8%BA%D9%84%D8%A8-%D8%B9%D9%84%D9%89-%D8%AD%D8%AC%D8%A7%D9%85-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A7%D9%84%D9%85/)
+
+
+### onu sahara occidental (N/A, Fri, 30 Oct 2026 16:30:00 -0700)
+
+- **Sahara. Veto américain contre le projet de résolution russe, situation bloquée**: [Link](https://medias24.com/2026/10/30/sahara-veto-americain-contre-le-projet-de-resolution-russe-situation-bloquee-1786060/)
+- **Sahara : Omar Hilale remercie l’Algérie d’avoir montré « qui est responsable »**: [Link](https://ledesk.ma/2026/10/30/sahara-omar-hilale-remercie-lalgerie-davoir-montre-qui-est-responsable/)
+- **Sahara: le veto de Moscou retarde la résolution 2026, il n’arrête pas la marche du plan d’autonomie marocain**: [Link](https://fr.le360.ma/politique/sahara-le-veto-de-moscou-retarde-la-resolution-2026-il-narrete-pas-la-marche-du-plan-dautonomie_VGYUAHPS5ZFAXCIGFXVMSMTENQ/)
+
+
+### ذهب (N/A, Fri, 30 Oct 2026 16:10:00 -0700)
+
+- **سعر الذهب يهوي لأدنى مستوى منذ عام**: [Link](https://www.hespress.com/%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D9%87%D9%88%D9%8A-%D9%84%D8%A3%D8%AF%D9%86%D9%89-%D9%85%D8%B3%D8%AA%D9%88%D9%89-%D9%85%D9%86%D8%B0-%D8%B9%D8%A7%D9%85-1832075.html)
+- **الذهب يهبط دون 4 آلاف دولار للأونصة ويتجه لثاني خسارة شهرية**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D9%87%D8%A8%D8%B7-%D8%AF%D9%88%D9%86-4-%D8%A2%D9%84%D8%A7%D9%81-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%84%D9%84%D8%A3%D9%88%D9%86%D8%B5%D8%A9-%D9%88%D9%8A%D8%AA%D8%AC%D9%87-%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%B4%D9%87%D8%B1%D9%8A%D8%A9/4106327)
+- **الذهب قرب 4000 دولار ويتجه لخسارة شهرية مع هبوط أسهم التكنولوجيا**: [Link](https://www.aleqt.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%82%D8%B1%D8%A8-4000-%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D9%88%D9%8A%D8%AA%D8%AC%D9%87-%D9%84%D8%AE%D8%B3%D8%A7%D8%B1%D8%A9-%D8%B4%D9%87%D8%B1%D9%8A%D8%A9-%D9%85%D8%B9-%D9%87%D8%A8%D9%88%D8%B7-%D8%A3%D8%B3%D9%87%D9%85-%D8%A7%D9%84%D8%AA%D9%83%D9%86%D9%88%D9%84%D9%88%D8%AC%D9%8A%D8%A7-15891)
+
+
+### المينورسو (N/A, Fri, 30 Oct 2026 15:10:00 -0700)
+
+- **قداوي لـ"تيلكيل عربي": مجلس الأمن الدولي أسير للفيتو.. والمغرب يفتح مرحلة جديدة في ملف الصحراء**: [Link](https://ar.telquel.ma/%D9%82%D8%AF%D8%A7%D9%88%D9%8A-%D9%84%D9%80%D8%AA%D9%8A%D9%84%D9%83%D9%8A%D9%84-%D8%B9%D8%B1%D8%A8%D9%8A-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84/)
+- **بنطلحة الدكالي: الفيتو الروسي لا يلغي القرار 2797 بشأن الصحراء المغربية**: [Link](https://ar.le360.ma/politique/M2DTLT36VJGWVIEDV2BXBHQHIM/)
+- **برحو: روسيا قدمات خدمة تاريخية للمغرب والمينورسو باي باي**: [Link](https://www.goud.ma/%D8%A8%D8%B1%D8%AD%D9%88-%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D9%82%D8%AF%D9%85%D8%A7%D8%AA-%D8%AE%D8%AF%D9%85%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88-1050819/)
+
+
+### مالية (N/A, Fri, 30 Oct 2026 14:50:00 -0700)
+
+- **لقجع يكشف تفاصيل تخفيض الضريبة على الدخل لفائدة 5 ملايين أجير**: [Link](https://www.hespress.com/%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AA%D8%AE%D9%81%D9%8A%D8%B6-%D8%A7%D9%84%D8%B6%D8%B1%D9%8A%D8%A8%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AF-1831767.html)
+- **مشروع مالية 2027.. رهانات التوازنات المالية والإنصاف الاجتماعي في صلب المناقشة العامة بمجلس النواب**: [Link](https://maroc.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B4%D8%B1%D9%88%D8%B9-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-2027-%D8%B1%D9%87%D8%A7%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%A5%D9%86%D8%B5%D8%A7%D9%81-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D9%81%D9%8A-%D8%B5%D9%84%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D9%82%D8%B4%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%A8%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D9%86%D9%88%D8%A7%D8%A8)
+- **مناقشة مالية 2027.. نواب يفضلون إثارة مشاكل دوائرهم بدل مناقشة مضامينه – اليوم 24**: [Link](https://alyaoum24.com/2054190.html)
+
+
+### الدفاع الجديدي ضد الاتحاد التوركي (N/A, Fri, 30 Oct 2026 14:40:00 -0700)
+
+- **الضباب يخيم على تعادل الدفاع وتواركة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B6%D8%A8%D8%A7%D8%A8-%D9%8A%D8%AE%D9%8A%D9%85-%D8%B9%D9%84%D9%89-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D9%88%D8%AA%D9%88%D8%A7%D8%B1%D9%83%D8%A9-1832173.html)
+- **عودة الناقوس تعزز الدفاع الجديدي أمام اتحاد تواركة في البطولة الاحترافية**: [Link](https://radiomars.ma/defense-hassani-el-jadidi-ittihad-touarga-retour-nakous/)
+- **توقف مباراة الدفاع الحسني الجديدي واتحاد تواركة لأزيد من 20 دقيقة قبل استئنافها**: [Link](https://www.elbotola.com/article/2026-10-30-22-25-945.html)
+
+
+### diphtérie (N/A, Fri, 30 Oct 2026 14:20:00 -0700)
+
+- **Diphtérie : 30 cas et trois décès confirmés au Maroc à ce jour**: [Link](https://medias24.com/2026/10/30/diphterie-30-cas-et-trois-deces-confirmes-au-maroc-1785931/)
+- **Diphtérie: 30 cas confirmés et 3 décès recensés, le ministère de la Santé assure que la situation est sous contrôle**: [Link](https://fr.le360.ma/societe/diphterie-30-cas-confirmes-et-3-deces-recenses-le-ministere-de-la-sante-assure-que-la-situation-est_W2GCPFYZEBHPPBQ6B6KNU542VA/)
+- **La diphtérie réapparaît, 25 cas suspects signalés dans plusieurs ville du Nord**: [Link](https://fr.hespress.com/494405-la-diphterie-reapparait-25-cas-suspects-signales-dans-plusieurs-ville-du-nord.html)
+
+
+### villarreal vs espanyol (N/A, Fri, 30 Oct 2026 14:10:00 -0700)
+
+- **Villarreal vs Espanyol: Spanish La Liga stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6ly0z87drn2t)
+- **Villarreal - Espanyol LIVE. LALIGA EA Sports latest updates**: [Link](https://www.marca.com/en/soccer/laliga-ea-sports/villarreal-espanyol/2026/10/30/01_0101_20261030_449_177-live.html)
+- **Villarreal vs Espanyol**: [Link](https://www.coinbase.com/predictions/event/KXLALIGAGAME-26OCT30VILESP)
+
+
 ### classement ogc nice – stade rennais football club (N/A, Fri, 30 Oct 2026 14:30:00 -0700)
 
 - **Revivez la nette victoire de Nice contre Rennes en Ligue 1 (5-2)**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-ogc-nice-stade-rennais_mtc21875646/live-commentary.shtml)
