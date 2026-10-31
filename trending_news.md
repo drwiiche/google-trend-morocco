@@ -1,3 +1,73 @@
+### real sociedad b – girona (N/A, Sat, 31 Oct 2026 06:00:00 -0700)
+
+- **Dani Díaz agarra el timón ‘txuri-urdin’ frente al huracán del Girona**: [Link](https://as.com/futbol/segunda/dani-diaz-agarra-el-timon-txuri-urdin-frente-al-huracan-del-girona-f202610-n/)
+- **LaLiga Hypermotion 2026-2027: calendario, horario y partidos de la jornada 12**: [Link](https://www.lavanguardia.com/deportes/futbol/20261031/0/laliga-segunda-division-2026-2027-calendario-horario-partidos-ca-jornada-12-ctx.html)
+- **Ansotegi y la fórmula para volver a ganar: “Hay que ser ese equipo que competía todo”**: [Link](https://www.noticiasdegipuzkoa.eus/reala/zubieta/2026/10/30/ansotegi-formula-volver-ganar-hay-11707748.html)
+
+
+### levante vs atlético (N/A, Sat, 31 Oct 2026 06:00:00 -0700)
+
+- **🚨 Julián in, Cuti out of Levante-Atlético de Madrid starting XIs**: [Link](https://sports.yahoo.com/articles/juli-n-cuti-levante-atl-115200040.html)
+- **Simeone still without Koke and Cardoso ahead of Levante clash 🤕**: [Link](https://sports.yahoo.com/articles/simeone-still-without-koke-cardoso-105300904.html)
+- **📋 Atlético's squad to face Levante**: [Link](https://sports.yahoo.com/articles/atl-ticos-squad-face-levante-171400121.html)
+
+
+### chelsea (N/A, Sat, 31 Oct 2026 05:50:00 -0700)
+
+- **Football gossip: Alexander-Arnold, Calvert-Lewin, Albert, Scott, Tresoldi, Batrakov**: [Link](https://www.bbc.com/sport/football/articles/ck1l396jqv4zo)
+- **Chelsea linked with shock Reece James transfer replacement amid captain's injury woes**: [Link](https://www.football.london/chelsea-fc/transfer-news/chelsea-james-alexander-arnold-transfer-34837504)
+- **Liverpool plan stunning deal from Real Madrid**: [Link](https://www.goal.com/en/news/liverpool-plan-stunning-deal-from-real-madrid/blt9d2b343882109c2e)
+
+
+### ليفانتي ضد أتلتيكو مدريد (N/A, Sat, 31 Oct 2026 05:30:00 -0700)
+
+- **روميرو: حلمي ترك اسمي محفورا في تاريخ أتلتيكو مدريد بالتتويج بالألقاب**: [Link](https://www.filgoal.com/articles/540442/%D8%B1%D9%88%D9%85%D9%8A%D8%B1%D9%88-%D8%AD%D9%84%D9%85%D9%8A-%D8%AA%D8%B1%D9%83-%D8%A7%D8%B3%D9%85%D9%8A-%D9%85%D8%AD%D9%81%D9%88%D8%B1%D8%A7-%D9%81%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%A7%D9%84%D8%A3%D9%84%D9%82%D8%A7%D8%A8)
+- **توقعات مباراة ليفانتي وأتلتيكو مدريد: فرصة لمطاردة الصدارة**: [Link](https://www.vietnam.vn/ar/nhan-dinh-levante-vs-atletico-madrid-co-hoi-bam-duoi-ngoi-dau)
+- **موعد مباراة أتلتيكو مدريد وليفانتي في الدوري الإسباني والقنوات الناقلة**: [Link](https://gate.ahram.org.eg/News/5975295.aspx)
+
+
+### levante – atlético madrid (N/A, Sat, 31 Oct 2026 05:20:00 -0700)
+
+- **El Levante homenajeó a los campeones del Mundo del Atlético**: [Link](https://www.mundodeportivo.com/futbol/atletico-madrid/20261031/1004245368/levante-homenajeo-campeones-mundo-atletico.html)
+- **Posible alineación del Atlético ante el Levante en LaLiga EA Sports**: [Link](https://as.com/futbol/primera/posible-once-del-atletico-ante-el-levante-en-liga-f202610-n/)
+- **Barrios-Llorente, en sala de máquinas**: [Link](https://www.marca.com/futbol/atletico/2026/10/29/barrios-llorente-sala-maquinas.html)
+
+
+### تشيلسي ضد مان يونايتد (N/A, Sat, 31 Oct 2026 04:50:00 -0700)
+
+- **جدول مباريات اليوم السبت 31 أكتوبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%3D%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%B3%D8%A8%D8%AA-31-%D8%A7%D9%94%D9%83%D8%AA%D9%88%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt40bb5c6fc2aca1cd)
+- **مزراوي يتأهب للظهور أساسيا في قمة "ستامفورد بريج"**: [Link](https://www.almountakhab.com/node/16232234)
+- **يتوقع حاسوب عملاق "المباراة الكبيرة" لتشيلسي ضد مانشستر يونايتد.**: [Link](https://www.vietnam.vn/ar/sieu-may-tinh-du-doan-tran-chelsea-dai-chien-man-utd)
+
+
+### chelsea – man utd (N/A, Sat, 31 Oct 2026 04:40:00 -0700)
+
+- **Man Utd side to face Chelsea announced**: [Link](https://www.manutd.com/en/news/united-side-to-face-chelsea-announced-31-oct-2026)
+- **The big questions we get answered by today’s Alonso selection**: [Link](https://onefootball.com/en/news/the-big-questions-we-get-answered-by-todays-alonso-selection-43702616)
+- **Paddy Power bonus code YEPAAG: 60/1 for Chelsea vs Man Utd 1+ Goals Scored**: [Link](https://mybettingsites.co.uk/news/paddy-power-bonus-code-yepaag-60-1-chelsea-vs-man-utd-1-goals-scored-31st-oct/)
+
+
+### coupe d'afrique des nations de football 2025 (N/A, Sat, 31 Oct 2026 02:50:00 -0700)
+
+- **CAN 2025 : Younès Belhanda a une théorie sur le penalty raté de Brahim Diaz**: [Link](https://www.footmercato.net/a3971402155562869014-can-2025-younes-belhanda-a-une-theorie-sur-le-penalty-rate-de-brahim-diaz)
+- **"Je pense qu'ils se sont arrangés": la théorie brûlante de Younès Belhanda sur la panenka manquée de Brahim Diaz en finale de la CAN**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/je-pense-qu-ils-se-sont-arranges-la-theorie-brulante-de-younes-belhanda-sur-la-panenka-manquee-de-brahim-diaz-en-finale-de-la-can_AN-202610290641.html)
+- **CAN 2025: Maroc-Sénégal, l’incroyable verdict est tombé !**: [Link](https://www.sports.fr/football/can-2025-maroc-senegal-lincroyable-verdict-est-tombe-1058442.html)
+
+
+### visa (N/A, Sat, 31 Oct 2026 02:50:00 -0700)
+
+- **Liberal court delivers immigration win for Trump as judge warns of ‘floodgates’ if law firm succeeded**: [Link](https://www.foxnews.com/politics/liberal-court-delivers-immigration-win-trump-judge-warns-floodgates-law-firm-succeeded)
+- **Diversity Immigrant Visa Lottery Can Remain Paused as US Appeals**: [Link](https://news.bloomberglaw.com/litigation/diversity-immigrant-visa-lottery-can-remain-paused-as-us-appeals)
+- **Green Card Update: New Fees and Application Changes Coming in November**: [Link](https://www.newsweek.com/green-card-update-new-fees-and-application-changes-coming-november-12629879)
+
+
+### يورو (N/A, Sat, 31 Oct 2026 02:30:00 -0700)
+
+- **400 مليون يورو و520 مليون مستخدم.. مبابي يهدد مصالح ريال مدريد والليغا بالصين**: [Link](https://www.aljazeera.net/sport/2026/10/31/400-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%88520-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%85%D8%B3%D8%AA%D8%AE%D8%AF%D9%85-%D9%85%D8%B5%D8%A7%D9%84%D8%AD-%D8%B1%D9%8A%D8%A7%D9%84)
+- **أسياد العالم!.. نصيحة مدرب الصين السابق لإنقاذ مبابي من أزمة "الدكتاتور"**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%B3%D9%8A%D8%A7%D8%AF-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85--%D9%86%D8%B5%D9%8A%D8%AD%D8%A9-%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D8%B5%D9%8A%D9%86-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%84%D8%A7%D9%95%D9%86%D9%82%D8%A7%D8%B0-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%85%D9%86-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D9%83%D8%AA%D8%A7%D8%AA%D9%88%D8%B1/bltaa11285fa786cb5c)
+- **كيليان مبابي: الصين تجبر اللاعب الفرنسي على الاعتذار، لكن كثيرين لا يعرفون بالضبط ما قاله**: [Link](https://www.bbc.com/arabic/articles/cqly3prdpz3po)
+
+
 ### sports (N/A, Fri, 30 Oct 2026 21:20:00 -0700)
 
 - **South Africa vs Australia: Hosts set up epic finale - what do stats and history suggest could happen?**: [Link](https://www.bbc.com/sport/cricket/articles/c6n8dpvyyy71o)
