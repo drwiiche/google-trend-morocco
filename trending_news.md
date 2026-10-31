@@ -1,3 +1,10 @@
+### sports (N/A, Fri, 30 Oct 2026 21:20:00 -0700)
+
+- **South Africa vs Australia: Hosts set up epic finale - what do stats and history suggest could happen?**: [Link](https://www.bbc.com/sport/cricket/articles/c6n8dpvyyy71o)
+- **Quick hits: Mix-up ends schoolmates' mammoth stand, Breetzke brings the fight**: [Link](https://www.abc.net.au/news/2026-10-31/australia-sa-quick-hits-day-four-rickleton-cummmins-mulder/107330472)
+- **Proteas surge back to send epic series into final day**: [Link](https://www.cricket.com.au/news/4601662/south-africa-australia-cape-town-newlands-day-four-report-stats-scores-mulder-rickelton)
+
+
 ### إنزو ماريسكا (N/A, Fri, 30 Oct 2026 16:40:00 -0700)
 
 - **ما القنوات الناقلة لمباراة مانشستر سيتي وبرايتون في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%88%D8%A8%D8%B1%D8%A7%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blte5fb2f5348751d79)
