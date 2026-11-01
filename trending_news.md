@@ -1,3 +1,73 @@
+### ol – angers (N/A, Sun, 1 Nov 2026 08:10:00 -0800)
+
+- **Pronostic Lyon Angers 01/11/2026 : l’OL à la relance**: [Link](https://www.goal.com/fr/parier-en-ligne/pronostics/lyon-angers-1-novembre/A%3Ablt4279b36ccabde031)
+- **OL : Le casse-tête de Paulo Fonseca pour le match face à Angers**: [Link](https://www.les-transferts.com/rumeurs-transferts/ol-le-casse-tete-de-paulo-fonseca-pour-le-match-face-a-angers/)
+- **OL - Angers : une nouvelle soirée funk en préparation au Parc OL**: [Link](https://www.olympique-et-lyonnais.com/ol-angers-sous-le-signe-de-la-funk-a-decines,411589.html)
+
+
+### real vs (N/A, Sun, 1 Nov 2026 08:00:00 -0800)
+
+- **Real Madrid's expected lineup against Racing Santander in La Liga: Courtois returns, Valverde is absent**: [Link](https://www.voiceofemirates.com/en/sport/2026/11/01/real-madrids-expected-lineup-against-racing-santander-in-la-liga-courtois-returns-valverde-is-absent/)
+- **The official line-up: Mbappé and Güler lead Real Madrid's attack against Racing**: [Link](https://www.livescore.com/en/news/football/laliga/the-official-line-up-mbapp-and-gler-lead-real-madrids-attack-against-racing-goal/)
+- **‍((SPORTS LIVE TV)) Racing Santander vs Real Madrid Live Broadcast**: [Link](https://www.piercemfg.com/hubfs/StaticContentPages/Other/Webouts/Velocity.Impel/Tour.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3BBcnQyLXRlY2guZ2l0aHViLmlvL1RvR28vVm9kYS54bWwiLz48L2tycGFubz4=&id=video-sports-live-tv-racing-santan-aiaghgio)
+
+
+### lazio (N/A, Sun, 1 Nov 2026 08:00:00 -0800)
+
+- **Serie A, classifica e risultati: la Lazio prima in solitaria a +3 dall'Inter. La prossima giornata: partite e orari**: [Link](https://www.ilmessaggero.it/sport/schede/serie_a_classifica_risultati_prossima_giornata_lazio_inter_roma_napoli_juventus-9862565.html)
+- **Moviola Lazio-Cagliari, Colombo in confusione: Frattesi chiede un rigore, Obert graziato e poi espulso. Gli episodi arbitrali: cosa è...**: [Link](https://www.ilmessaggero.it/sport/ss_lazio/lazio_cagliari_moviola_rigore_espulso_obert_cosa_e_successo-9862515.html)
+- **[DIRETTA]GRATIS!] Lazio Cagliari In Ｄｉｒｅｔｔａ Ｓｔｒｅａｍｉｎｇ Ｇｒａｔｉｓ 01 novembre 2026 Stream**: [Link](https://www.piercemfg.com/hubfs/StaticContentPages/Other/Webouts/Velocity.Impel/Tour.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8venphbWFuYXNhZDk1LmdpdGh1Yi5pby9ueXUuZWR1L3VpLnhtbCIvPjwva3JwYW5vPg==&id=video-cagliari-v-lazio-oggi-tvs-dir-ts3)
+
+
+### jude bellingham (N/A, Sun, 1 Nov 2026 08:00:00 -0800)
+
+- **Despite Mbappe frustration: Mourinho finds special words for Ballon d'Or Harry Kane**: [Link](https://www.goal.com/en/news/despite-frustration-over-kylian-mbappe-jose-mourinho-has-special-words-for-ballon-d-or-winner-harry-kane/bltd444ffda820b75bb)
+- **Confirmed: Real Madrid duo Vinicius, Cucurella finish 17th and 18th in 2026 Ballon d’Or rankings**: [Link](https://sports.yahoo.com/articles/confirmed-real-madrid-duo-vinicius-175300525.html)
+- **Real Madrid Star Jude Bellingham Given Harsh Ballon d'Or Vote**: [Link](https://roundtable.io/sports/soccer/la-liga/real-madrid/news/real-madrid-star-jude-bellingham-given-harsh-ballon-dor-vote)
+
+
+### liverpool vs arsenal (N/A, Sun, 1 Nov 2026 07:50:00 -0800)
+
+- **Harry Kane won Ballon d'Or by just 28 points from Kylian Mbappe - see how top 10 scored**: [Link](https://www.bbc.com/sport/football/articles/c6073yeg52xeo)
+- **Who will seize the opportunity? The Clasico blow reshapes Mourinho's calculations in defence**: [Link](https://www.goal.com/en/news/who-will-seize-the-opportunity-the-clasico-blow-reshapes-mourinho-s-calculations-in-defence/blt0ecf47053a45777c)
+- **'The club were considering loaning me out again, but I told them I wanted to stay and prove myself' – Harry Kane on turning down leaving Tottenham in 2013**: [Link](https://www.getfootballnewsfrance.com/2026/the-club-were-considering-loaning-me-out-again-but-i-told-them-i-wanted-to-stay-and-prove-myself-harry-kane-on-turning-down-leaving-tottenham-in-2013/)
+
+
+### ليفربول ضد آرسنال (N/A, Sun, 1 Nov 2026 07:50:00 -0800)
+
+- **جدول مباريات اليوم الأحد 1 نوفمبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D8%AD%D8%AF-1-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt51e124c887e93b45)
+- **عقدة أرتيتا منذ 14 عاما.. أنفيلد يهدد طموح أرسنال أمام ليفربول**: [Link](https://www.aljazeera.net/sport/2026/11/1/%D8%A3%D8%B1%D8%AA%D9%8A%D8%AA%D8%A7-%D8%B9%D9%82%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%88%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84)
+- **آرسنال يسعى لانتزاع الصدارة عندما يحل ضيفاً على ليفربول**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A2%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B3%D8%B9%D9%89-%D9%84%D8%A7%D9%86%D8%AA%D8%B2%D8%A7%D8%B9-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%B9%D9%86%D8%AF%D9%85%D8%A7-%D9%8A%D8%AD%D9%84-%D8%B6%D9%8A%D9%81%D8%A7-%D8%B9%D9%84%D9%89-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-2026-11-01)
+
+
+### محاكمة (N/A, Sun, 1 Nov 2026 07:50:00 -0800)
+
+- **ملف الاستيلاء على عقارات بتدارت أنزا.. ابتدائية أكادير تؤجل محاكمة 7 متهمين إلى 24 نونبر**: [Link](https://al3omk.com/1204324.html)
+- **أكادير.. المحكمة الابتدائية تؤجل النظر في ملف الاستيلاء على عقارات بتدارت أنزا**: [Link](https://ar.hibapress.com/details-771128.html)
+- **جنايات الرباط تؤجل محاكمة مسؤولة بجهة سوس متهمة بقتل شقيقتها**: [Link](https://www.alakhbar.press.ma/%D8%AC%D9%86%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%AA%D8%A4%D8%AC%D9%84-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D9%85%D8%B3%D8%A4%D9%88%D9%84%D8%A9-%D8%A8%D8%AC%D9%87%D8%A9-302612.html)
+
+
+### liverpool – arsenal (N/A, Sun, 1 Nov 2026 07:40:00 -0800)
+
+- **Liverpool vs Arsenal LIVE: Premier League build-up, team news, stats & updates**: [Link](https://www.bbc.com/sport/football/live/cqev37r8jvvxt)
+- **Jamie Carragher: Liverpool have emerged as Arsenal’s biggest title challengers**: [Link](https://www.telegraph.co.uk/football/2026/10/30/liverpool-excited-title-challenge-arsenal-andoni-iraola/)
+- **Tzolis starts: Liverpool v Arsenal team news**: [Link](https://arseblog.news/2026/11/tzolis-starts-liverpool-v-arsenal-team-news/)
+
+
+### ذهب (N/A, Sun, 1 Nov 2026 07:20:00 -0800)
+
+- **أسعار الذهب تتراجع .. وانخفاض بـ30 درهما للغرام مرتقب في المغرب**: [Link](https://www.hespress.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D8%AA%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%88%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%A8%D9%8030-%D8%AF%D8%B1%D9%87%D9%85%D8%A7-%D9%84-1832104.html)
+- **الذهب ينخفض لأقل مستوياته منذ نحو عام**: [Link](https://www.aljazeera.net/ebusiness/2026/10/30/%D8%A7%D9%84%D8%B0%D9%87%D8%A8-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D9%87%D8%A8%D9%88%D8%B7-%D9%88%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-2-%D8%A5%D9%84%D9%89-3944)
+- **بيتر شيف يقول إن موجة البيع العنيفة للذهب تشير إلى أزمة كبيرة وشيكة**: [Link](https://cryptonews.net/ar/news/finance/33682674/)
+
+
+### رسينغ ضد الريال (N/A, Sun, 1 Nov 2026 06:30:00 -0800)
+
+- **"فضيحة في إل ساردينيرو".. ركلة مبابي تشعل غضب الصحافة الكتالونية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%81%D9%8A-%D8%A7%D9%95%D9%84-%D8%B3%D8%A7%D8%B1%D8%AF%D9%8A%D9%86%D9%8A%D8%B1%D9%88--%D8%B1%D9%83%D9%84%D8%A9-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%AA%D8%B4%D8%B9%D9%84-%D8%BA%D8%B6%D8%A8-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D9%83%D8%AA%D8%A7%D9%84%D9%88%D9%86%D9%8A%D8%A9/bltbdea45dcefa7154c)
+- **مباشر مباراة ريال مدريد ضد راسينغ سانتاندير في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/1/%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-vs-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **ريال مدريد وراسينغ بعد 15 عاماً من آخر لقاء.. مورينيو الباقي الوحيد**: [Link](https://www.alarabiya.net/sport/2026/10/31/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%B1%D8%A7%D8%B3%D9%8A%D9%86%D8%BA-%D8%A8%D8%B9%D8%AF-15-%D8%B9%D8%A7%D9%85%D8%A7-%D9%85%D9%86-%D8%A7%D8%AE%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D8%A7%D9%84%D8%A8%D8%A7%D9%82%D9%8A-%D8%A7%D9%84%D9%88%D8%AD%D9%8A%D8%AF)
+
+
 ### sofiane diop (N/A, Sun, 1 Nov 2026 01:40:00 -0700)
 
 - **Sofiane Diop: «Je suis très heureux d’avoir choisi le Maroc»**: [Link](https://sport.le360.ma/football/lions-atlas/sofiane-diop-je-suis-tres-heureux-davoir-choisi-le-maroc_MVFMQXBCNBCPRFYXE4XJJRAWTE/)
