@@ -1,3 +1,73 @@
+### juventus vs napoli (N/A, Sun, 1 Nov 2026 12:30:00 -0800)
+
+- **Juventus v Napoli 0-0 LIVE: superb save by Vicario from Lucca. Cabal hits the post**: [Link](https://www.goal.com/en/lists/juventus-v-napoli-0-0-live-superb-save-by-vicario-from-lucca-cabal-hits-the-post/blt28bb1d3400499c4a)
+- **!!$$~~[DIRETTA!] Napoli-Juve Milan - Roma in diretta tv e live streaming gratis 1° novembre 2026**: [Link](https://www.piercemfg.com/hubfs/StaticContentPages/Other/Webouts/Velocity.Impel/Tour.html?&xml=data:video/mp4;base64,&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii8vY2ltYW5nby5naXRodWIuaW8vc2FuaS9lc3BuLnhtbCIvPjwva3JwYW5vPg==&id=video-napoli-juve-viv-directo-tv-ukkk0.0.0.0.0.0.91-375)
+- **Juventus - Napoli LIVE. Serie A latest updates**: [Link](https://www.marca.com/en/soccer/serie-a/juventus-napoli/2026/11/01/01_0107_20261101_128_459-live.html)
+
+
+### mohammed vi (N/A, Sun, 1 Nov 2026 12:20:00 -0800)
+
+- **Sahara : "La Russie cherche à poursuivre la déstabilisation de l'Afrique" (Joe Wilson)**: [Link](https://medias24.com/2026/11/01/sahara-la-russie-cherche-a-poursuivre-la-destabilisation-de-lafrique-joe-wilson-1786324/)
+- **Après avoir liquidé la MINURSO, Moscou cherche un bouc émissaire**: [Link](https://fr.le360.ma/politique/apres-avoir-liquide-la-minurso-moscou-cherche-un-bouc-emissaire_MFFKW325TNC2DNE45LH6IDCGQQ/)
+- **Sahara : Bourita explique pourquoi Rabat n’a pas cherché à éviter le veto russe**: [Link](https://ledesk.ma/2026/10/31/sahara-bourita-explique-pourquoi-rabat-na-pas-cherche-a-eviter-le-veto-russe/)
+
+
+### f1 (N/A, Sun, 1 Nov 2026 12:10:00 -0800)
+
+- **Hamilton clinches first pole with Ferrari at Mexico City GP**: [Link](https://www.formula1.com/en/latest/article/hamilton-clinches-first-pole-with-ferrari-in-qualifying-at-the-mexico-city-gp.4GffzFhlnOxOjbHHMc0AJI)
+- **Mexico City GP grid reshuffled after multiple penalties**: [Link](https://www.gpblog.com/en/news/mexico-city-starting-grid-shaken-after-penalties-for-verstappen-and-others)
+- **Hamilton Points At 2022 Change That Affected Qualifying Show After Mexico F1 Pole**: [Link](https://www.motorbiscuit.com/hamilton-points-at-2022-change-that-affected-qualifying-show-after-mexico-f1-pole/)
+
+
+### far (N/A, Sun, 1 Nov 2026 12:10:00 -0800)
+
+- **Attempted murder probe after petrol bomb thrown at French riot police**: [Link](https://www.theguardian.com/world/2026/nov/01/petrol-bomb-thrown-at-french-riot-police)
+- **Thousands demonstrate in Paris as protests spread across Europe**: [Link](https://www.bbc.com/news/videos/ck0j0y87j303o)
+- **'I am protesting so that we can protest': Festive and determined demonstrators march across France amid heavy police presence**: [Link](https://www.lemonde.fr/en/france/article/2026/11/01/i-am-protesting-so-that-we-can-protest-festive-and-determined-demonstrators-march-across-france-amid-heavy-police-presence_6768742_7.html)
+
+
+### boca juniors (N/A, Sun, 1 Nov 2026 12:10:00 -0800)
+
+- **¿Quién ganó el superclásico Boca Juniors vs. River Plate EN VIVO hoy por Liga Argentina? Resultados online en directo y cómo quedó**: [Link](https://depor.com/futbol-internacional/quien-gano-el-superclasico-boca-juniors-vs-river-plate-en-vivo-hoy-por-liga-argentina-resultados-online-en-directo-y-como-quedo-nnda-nnrt-noticia/)
+- **¡Superclásico con superescándalo!**: [Link](https://as.com/futbol/internacional/superclasico-con-superescandalo-f202611-n/)
+- **Superclásico EN VIVO: Ascacibar tuvo el segundo**: [Link](https://onefootball.com/es/noticias/superclasico-en-vivo-ascacibar-tuvo-el-segundo-43708938)
+
+
+### classement botola (N/A, Sun, 1 Nov 2026 12:00:00 -0800)
+
+- **Botola Pro : le COD Meknès et le Kawkab Marrakech sous pression**: [Link](https://fr.hespress.com/494459-botola-pro-le-cod-meknes-et-le-kawkab-marrakech-sous-pression.html)
+- **Botola Pro : Difaa El Jadida et l'Union Touarga se quittent sur un nul, après une interruption pour cause de brouillard**: [Link](https://radiomars.ma/fr/?p=7401)
+- **Botola Pro D1 inwi: Le Raja en quête de rebond à Berkane**: [Link](https://aujourdhui.ma/sports/botola-pro-d1-inwi-le-raja-en-quete-de-rebond-a-berkane)
+
+
+### remboursement (N/A, Sun, 1 Nov 2026 12:00:00 -0800)
+
+- **Obésité : prix, date, prescription… Ce qu’il faut savoir sur l’arrivée du Wegovy en comprimé dans les pharmacies**: [Link](https://www.leparisien.fr/societe/sante/obesite-prix-date-prescription-ce-quil-faut-savoir-sur-larrivee-du-wegovy-en-comprime-dans-les-pharmacies-28-10-2026-WHNSTI4DXFCCRA73RKQCDDG72Y.php)
+- **Médicament anti-obésité : ce qu'il faut savoir sur le Wegovy en comprimé, disponible en pharmacie dès lundi**: [Link](https://www.tf1info.fr/sante/medicament-anti-obesite-ce-qu-il-faut-savoir-sur-le-wegovy-en-comprime-disponible-en-pharmacie-des-lundi-2473228.html)
+- **Santé. Jusqu'à « 18 mois de délai » pour les médicaments anti-obésité : les consultations prises d’assaut**: [Link](https://www.ledauphine.com/sante/2026/11/01/jusqu-a-18-mois-de-delai-pour-les-medicaments-anti-obesite-les-consultations-prises-d-assaut)
+
+
+### wetter morgen (N/A, Sun, 1 Nov 2026 12:00:00 -0800)
+
+- **Wetter in Deutschland: Herbst in Deutschland bleibt überwiegend trüb und regnerisch**: [Link](https://www.zeit.de/gesellschaft/2026-10/wetter-deutschland-herbst-regen-nebel-schnee-gxe)
+- **Wetter Deutschland: DWD erwartet Regen und Nebel am Sonntag**: [Link](https://www.ad-hoc-news.de/unterhaltung/kultur/wetter-deutschland-dwd-erwartet-regen-und-nebel-am-sonntag/70438605)
+- **Der Herbst bleibt grau - in manchen Orten gibt es aber Lichtblicke - Panorama - SZ.de**: [Link](https://www.sueddeutsche.de/panorama/der-herbst-bleibt-grau-in-manchen-orten-gibt-es-aber-lichtblicke-li.3572102)
+
+
+### météo demain (N/A, Sun, 1 Nov 2026 11:50:00 -0800)
+
+- **Selon le modèle météo européen, le blocage anticyclonique pourrait prendre fin dès le 8 novembre en France**: [Link](https://www.tameteo.com/actualites/previsions/selon-le-modele-meteo-europeen-le-blocage-anticyclonique-pourrait-prendre-fin-des-le-8-novembre-en-france-previsions-pluie-douceur.html)
+- **Météo semaine : retour au calme pour cette deuxième semaine de vacances de la Toussaint**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-09-20/meteo-semaine-retour-au-calme-pour-cette-deuxieme-semaine-de-vacances-de-la-toussaint-92453)
+- **« Des températures dignes de décembre » : ce week-end marque le début d'un net refroidissement**: [Link](https://www.ledauphine.com/environnement/2026/10/31/des-temperatures-dignes-de-decembre-ce-week-end-marque-le-debut-d-un-net-refroidissement)
+
+
+### الطقس غدًا (N/A, Sun, 1 Nov 2026 11:50:00 -0800)
+
+- **ارتفاع درجات الحرارة.. بيان مهم من الأرصاد يكشف حالة الطقس غداً الاثنين**: [Link](https://www.almasryalyoum.com/news/details/4398483)
+- **الصيف لسه بيودع.. منار غانم تحذر: الحرارة هتوصل 32 درجة في القاهرة|فيديو**: [Link](https://www.altreeq.com/549826)
+- **«الحر راجع تاني».. «الأرصاد» تكشف تأثير المرتفع الجوي وسر الكتل الهوائية القادمة من ليبيا**: [Link](https://www.elwatannews.com/news/details/8388246)
+
+
 ### ol – angers (N/A, Sun, 1 Nov 2026 08:10:00 -0800)
 
 - **Pronostic Lyon Angers 01/11/2026 : l’OL à la relance**: [Link](https://www.goal.com/fr/parier-en-ligne/pronostics/lyon-angers-1-novembre/A%3Ablt4279b36ccabde031)
