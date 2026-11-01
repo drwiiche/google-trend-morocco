@@ -1,3 +1,72 @@
+### sofiane diop (N/A, Sun, 1 Nov 2026 01:40:00 -0700)
+
+- **Sofiane Diop: «Je suis très heureux d’avoir choisi le Maroc»**: [Link](https://sport.le360.ma/football/lions-atlas/sofiane-diop-je-suis-tres-heureux-davoir-choisi-le-maroc_MVFMQXBCNBCPRFYXE4XJJRAWTE/)
+- **Sénégal-Maroc, une décision « difficile » a été prise**: [Link](https://www.football.fr/afrique/senegal-maroc-une-decision-difficile-a-ete-prise-841332.html)
+
+
+### هسبريس (N/A, Sun, 1 Nov 2026 01:00:00 -0700)
+
+- **من مجلس الأمن إلى "اللجنة الرابعة" .. أين تتجه قضية الصحراء المغربية؟**: [Link](https://www.hespress.com/%D9%85%D9%86-%D9%85%D8%AC%D9%84%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%84%D8%AC%D9%86%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A3%D9%8A%D9%86-%D8%AA-1832415.html)
+- **بلفقيه يشيد بالقيادة الملكية في ترسيخ الدعم الدولي لمغربية الصحراء**: [Link](https://assabah.ma/959345.html)
+- **“البام”: عدم تمديد مهمة بعثة “المينورسو” يشكل خطوة كبرى في اتجاه طي ملف الصحراء**: [Link](https://lakome2.com/politique/436107/)
+
+
+### تصدير (N/A, Sun, 1 Nov 2026 00:50:00 -0700)
+
+- **ضبط كميات ضخمة من الأغذية الفاسدة ومجهولة المصدر.. «سلامة الغذاء» تكشف حصاد حملاتها الرقابية بالمحافظات**: [Link](https://twaslnews1.twaslnews.com/6946512/)
+- **هل تشك في صلاحية منتج غذائي؟ أرقام الإبلاغ عن مخالفات سلامة الغذاء**: [Link](https://www.elwatannews.com/news/details/8388076)
+- **صادرات مصر الغذائية تسجل 190 ألف طن خلال أسبوع.. ما التفاصيل؟**: [Link](https://www.mubasher.info/news/4689734/%D8%B5%D8%A7%D8%AF%D8%B1%D8%A7%D8%AA-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%BA%D8%B0%D8%A7%D8%A6%D9%8A%D8%A9-%D8%AA%D8%B3%D8%AC%D9%84-190-%D8%A3%D9%84%D9%81-%D8%B7%D9%86-%D8%AE%D9%84%D8%A7%D9%84-%D8%A3%D8%B3%D8%A8%D9%88%D8%B9-%D9%85%D8%A7-%D8%A7%D9%84%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-/)
+
+
+### برج فلكي (N/A, Sun, 1 Nov 2026 00:10:00 -0700)
+
+- **برج الأسد.. حظك اليوم الأحد 1 نوفمبر: قدر مجهودك**: [Link](https://www.youm7.com/story/2026/11/1/%D8%A8%D8%B1%D8%AC-%D8%A7%D9%84%D8%A3%D8%B3%D8%AF-%D8%AD%D8%B8%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-1-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-%D9%82%D8%AF%D8%B1-%D9%85%D8%AC%D9%87%D9%88%D8%AF%D9%83/7599528)
+- **توقعات برج الأسد لشهر نوفمبر 2026**: [Link](https://www.raialyoum.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A8%D8%B1%D8%AC-%D8%A7%D9%84%D8%A3%D8%B3%D8%AF-%D9%84%D8%B4%D9%87%D8%B1-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2026/)
+- **برج الأسد.. حظك اليوم الأربعاء 28 أكتوبر 2026: حافظ على مرونتك**: [Link](https://www.elbalad.news/7158066)
+
+
+### زيتون (N/A, Sat, 31 Oct 2026 23:30:00 -0700)
+
+- **الاحتلال يطرد مزارعين ومتضامنين عقب اعتداء مستوطنين في كفر مالك**: [Link](https://www.aljazeera.net/video/2026/10/31/%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D9%84%D8%A7%D9%84-%D9%8A%D8%B7%D8%B1%D8%AF-%D9%85%D8%B2%D8%A7%D8%B1%D8%B9%D9%8A%D9%86-%D9%88%D9%85%D8%AA%D8%B6%D8%A7%D9%85%D9%86%D9%8A%D9%86-%D8%B9%D9%82%D8%A8)
+- **397.. أكتوبر يشهد أعلى حصيلة شهرية لهجمات المستوطنين بالضفة منذ 2006**: [Link](https://www.aa.com.tr/ar/%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86/397-%D8%A3%D9%83%D8%AA%D9%88%D8%A8%D8%B1-%D9%8A%D8%B4%D9%87%D8%AF-%D8%A3%D8%B9%D9%84%D9%89-%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%B4%D9%87%D8%B1%D9%8A%D8%A9-%D9%84%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D8%B7%D9%86%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D8%B6%D9%81%D8%A9-%D9%85%D9%86%D8%B0-2006/4107779)
+- **بينهم صحفيون ودبلوماسيون أجانب.. "عربي21" ترصد استمرار عنف المستوطنين في الضفة الغربية**: [Link](https://arabi21.com/story/1799931/%D8%A8%D9%8A%D9%86%D9%87%D9%85-%D8%B5%D8%AD%D9%81%D9%8A%D9%88%D9%86-%D9%88%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A%D9%88%D9%86-%D8%A3%D8%AC%D8%A7%D9%86%D8%A8-%D8%B9%D8%B1%D8%A8%D9%8A21-%D8%AA%D8%B1%D8%B5%D8%AF-%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%B9%D9%86%D9%81-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%88%D8%B7%D9%86%D9%8A%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B6%D9%81%D8%A9-%D8%A7%D9%84%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9)
+
+
+### إسماعيل صيباري (N/A, Sat, 31 Oct 2026 23:30:00 -0700)
+
+- **"الكاحل والركبة في خطر".. تشخيص صادم لإصابة صيباري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%83%D8%A7%D8%AD%D9%84-%D9%88%D8%A7%D9%84%D8%B1%D9%83%D8%A8%D8%A9-%D9%81%D9%8A-%D8%AE%D8%B7%D8%B1--%D8%AA%D8%B4%D8%AE%D9%8A%D8%B5-%D8%B5%D8%A7%D8%AF%D9%85-%D9%84%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A/blt57adf416243e83f9)
+- **شاهد.. قمة بايرن ميونخ ودورتموند تنتهي بتعادل دراماتيكي**: [Link](https://www.aljazeera.net/sport/2026/11/1/%D8%B4%D8%A7%D9%87%D8%AF-%D9%82%D9%85%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D9%88%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D8%AA%D9%86%D8%AA%D9%87%D9%8A)
+- **إصابة تُجبر الصيباري على ترك الملعب**: [Link](https://www.hespress.com/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%AA%D9%8F%D8%AC%D8%A8%D8%B1-%D8%A7%D9%84%D8%B5%D9%8A%D8%A8%D8%A7%D8%B1%D9%8A-%D8%B9%D9%84%D9%89-%D8%AA%D8%B1%D9%83-%D8%A7%D9%84%D9%85%D9%84%D8%B9%D8%A8-1832502.html)
+
+
+### pologne (N/A, Sat, 31 Oct 2026 23:20:00 -0700)
+
+- **« La Pologne ne s’est pas éteinte et ne s’éteindra pas », déclare Donald Tusk alors que le pays est plongé dans une grave crise politique liée au Tribunal constitutionnel**: [Link](https://www.lemonde.fr/international/article/2026/10/31/la-pologne-ne-s-est-pas-eteinte-et-ne-s-eteindra-pas-declare-donald-tusk-alors-que-le-pays-est-plonge-dans-une-grave-crise-politique-liee-au-tribunal-constitutionnel_6803486_3211.html)
+- **En Pologne, la bataille pour le retour de l’État de droit s’accélère**: [Link](https://www.lefigaro.fr/international/en-pologne-la-bataille-pour-le-retour-de-l-etat-de-droit-s-accelere-20261031)
+- **Crise autour du Tribunal constitutionnel en Pologne : Donald Tusk promet "aucun compromis" sur l'État de droit**: [Link](https://fr.euronews.com/2026/10/31/crise-en-pologne-donald-tusk-promet-un-tribunal-fort-et-refuse-tout-compromis-avec-lillega)
+
+
+### نادي الوداد الرياضي (N/A, Sat, 31 Oct 2026 23:20:00 -0700)
+
+- **نابي: "حققنا الأهم" .. والكرمة: "نتعلم"**: [Link](https://www.hespress.com/%D9%86%D8%A7%D8%A8%D9%8A-%D8%AD%D9%82%D9%82%D9%86%D8%A7-%D8%A7%D9%84%D8%A3%D9%87%D9%85-%D9%88%D8%A7%D9%84%D9%83%D8%B1%D9%85%D8%A9-%D9%86%D8%AA%D8%B9%D9%84%D9%85-1832629.html)
+- **الوداد يكسر صلابة المغرب التطواني بركلة جزاء.. والمراكشي يحلق في الصدارة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%8A%D9%83%D8%B3%D8%B1-%D8%B5%D9%84%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D8%A8%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1--%D9%88%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%8A%D8%AD%D9%84%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9/bltef63ec48f3815349)
+- **تشهد غياب محتو وعودة بنعبيد.. 22 لاعبا في قائمة الوداد لمواجهة المغرب التطواني**: [Link](https://www.elbotola.com/article/2026-10-31-12-54-297.html)
+
+
+### nador west med (N/A, Sat, 31 Oct 2026 23:10:00 -0700)
+
+- **Crown Prince Moulay El Hassan Launches Operations at First Container Terminal at Nador West Med Port**: [Link](https://en.hespress.com/148350-crown-prince-moulay-el-hassan-launches-operations-at-first-container-terminal-at-nador-west-med-port.html)
+- **Diego Aponte: Nador West Med Port strengthens Morocco’s position as a maritime hub**: [Link](https://en.yabiladi.com/articles/details/206392/diego-aponte-nador-west-port.html)
+- **Forbes: Nador West Med Reflects King Mohammed VI’s Long-Term Vision**: [Link](https://www.moroccoworldnews.com/2026/10/344559/forbes-nador-west-med-reflects-king-mohammed-vis-long-term-vision/)
+
+
+### وقود السيارات (N/A, Sat, 31 Oct 2026 23:10:00 -0700)
+
+- **"الغازوال" يرتفع بدرهم والبنزين يتراجع وسط تفاوتات بين شركات التوزيع**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%BA%D8%A7%D8%B2%D9%88%D8%A7%D9%84-%D9%8A%D8%B1%D8%AA%D9%81%D8%B9-%D8%A8%D8%AF%D8%B1%D9%87%D9%85-%D9%88%D8%A7%D9%84%D8%A8%D9%86%D8%B2%D9%8A%D9%86-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC-1832477.html)
+- **نقابة "سامير" تحذر من تآكل الوحدات الإنتاجية وتطالب بإحياء التكرير**: [Link](https://barlamane.com/%D9%86%D9%82%D8%A7%D8%A8%D8%A9-%D8%B3%D8%A7%D9%85%D9%8A%D8%B1-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%AA%D8%A2%D9%83%D9%84-%D8%A7%D9%84%D9%88%D8%AD%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%A5%D9%86/)
+- **تغييرات جديدة في أسعار المحروقات بالمغرب ومهني يوضح**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%85-1029761.html)
+
+
 ### classement fus rabat – hassania agadir (N/A, Sat, 31 Oct 2026 16:20:00 -0700)
 
 
