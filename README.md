@@ -1,3 +1,20 @@
+### classement fus rabat – hassania agadir (N/A, Sat, 31 Oct 2026 16:20:00 -0700)
+
+
+
+
+### youssef boughanem (N/A, Sat, 31 Oct 2026 15:40:00 -0700)
+
+
+
+
+### véhicule blindé de combat (N/A, Sat, 31 Oct 2026 15:30:00 -0700)
+
+- **L'armée marocaine a commandé 150 blindés ; leur fabricant veut désormais conquérir le marché africain**: [Link](https://www.bladi.net/armee-marocaine-commande-blindes-fabricant-veut-desormais-conquerir,124707.html)
+- **Un énorme contrat d’1,5 milliard pour John Cockerill ? La société de Seraing a signé une lettre d’intention avec l’armée qatarie pour équiper 490 blindés de ses fameuses tourelles canons**: [Link](https://www.sudinfo.be/id1217334/article/2026-10-29/un-enorme-contrat-d15-milliard-pour-john-cockerill-la-societe-de-seraing-signe)
+- **La France avait signé le même contrat de blindés avec ce pays du Golfe en 2017, et il n’en est jamais rien sorti**: [Link](https://www.forum-militaire.fr/la-france-avait-signe-le-meme-contrat-de-blindes-avec-ce-pays-du-golfe-en-2017-et-il-nen-est-jamais-rien-sorti/)
+
+
 ### fc barcelona vs deportivo alavés standings (N/A, Sat, 31 Oct 2026 15:20:00 -0700)
 
 - **Flick could field a new-look Barcelona midfield trident against Alaves – report**: [Link](https://barcauniversal.com/flick-could-field-a-new-look-barcelona-midfield-trident-against-alaves-report/)
