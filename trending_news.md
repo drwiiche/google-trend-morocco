@@ -1,3 +1,50 @@
+### ترتيبات نهضة بركان – نادى الرجاء الرياضى (N/A, Sun, 1 Nov 2026 15:30:00 -0800)
+
+- **بالفيديو.. نهضة بركان ينتفض بصعق الرجاء البيضاوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D9%86%D8%AA%D9%81%D8%B6-%D8%A8%D8%B5%D8%B9%D9%82-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D9%88%D9%8A/blt4588b810e9f9b20f)
+- **6 نقاط فقط من أصل 15 ممكنة.. حصيلة ضعيفة للرجاء في أول خمس جولات بالبطولة**: [Link](https://www.elbotola.com/article/2026-11-01-22-37-608.html)
+- **النفاتي خارج لائحة الرجاء لمباراة نهضة بركان**: [Link](https://sport.rue20.com/%D8%A7%D9%84%D9%86%D9%81%D8%A7%D8%AA%D9%8A-%D8%AE%D8%A7%D8%B1%D8%AC-%D9%84%D8%A7%D8%A6%D8%AD%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D9%87%D8%B6.html)
+
+
+### إقالة (N/A, Sun, 1 Nov 2026 15:10:00 -0800)
+
+- **"الهاتريك" ليس حكرا على المهاجمين.. 10 مدافعين هزوا الشباك بثلاثيات تاريخية**: [Link](https://www.aljazeera.net/sport/2026/11/1/%D9%85%D8%AF%D8%A7%D9%81%D8%B9%D9%88%D9%86-%D8%B3%D8%AC%D9%84%D9%88%D8%A7-%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83)
+- **ثغرة مورينيو ومؤشر باريسي.. باب ريال مدريد لن يُغلق في وجه حكيمي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AB%D8%BA%D8%B1%D8%A9-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%88%D9%85%D9%88%D9%94%D8%B4%D8%B1-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3%D9%8A--%D8%A8%D8%A7%D8%A8-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%86-%D9%8A%D9%8F%D8%BA%D9%84%D9%82-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%AD%D9%83%D9%8A%D9%85%D9%8A/blt9d2dfed019da2768)
+- **حكيمي يسجل أول"هاتريك" في مسيرته**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%8A%D8%B3%D8%AC%D9%84-%D8%A3%D9%88%D9%84%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D9%81%D9%8A-%D9%85%D8%B3%D9%8A%D8%B1%D8%AA%D9%87-1832090.html)
+
+
+### raja (N/A, Sun, 1 Nov 2026 14:00:00 -0800)
+
+- **Achakzai, Allama Nasir doing nothing to secure Imran's release: Saif**: [Link](https://www.geo.tv/latest/689275-achakzai-allama-nasir-doing-nothing-to-secure-imrans-release-saif)
+- **Barrister Saif accuses opposition leaders Raja Nasir Abbas and Mahmood Khan Achakzai of failing to secure Imran Khan's release**: [Link](https://minutemirror.com.pk/barrister-saif-accuses-opposition-leaders-raja-nasir-abbas-and-mahmood-khan-achakzai-of-failing-to-secure-imran-khans-release-654611/)
+- **PTI’s Barrister Saif makes explosive claims against two opposition leaders**: [Link](https://minutemirror.com.pk/ptis-barrister-saif-makes-explosive-claims-against-two-opposition-leaders-654544/)
+
+
+### classement cod meknès – far rabat (N/A, Sun, 1 Nov 2026 13:20:00 -0800)
+
+
+
+
+### لعب (N/A, Sun, 1 Nov 2026 13:00:00 -0800)
+
+- **مشكلة تقنية تهدد تنافسية كول أوف ديوتي مودرن وورفير على سويتش 2**: [Link](https://www.yallakora.com/news/571414/%D9%85%D8%B4%D9%83%D9%84%D8%A9-%D8%AA%D9%82%D9%86%D9%8A%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%AA%D9%86%D8%A7%D9%81%D8%B3%D9%8A%D8%A9-%D9%83%D9%88%D9%84-%D8%A3%D9%88%D9%81-%D8%AF%D9%8A%D9%88%D8%AA%D9%8A-%D9%85%D9%88%D8%AF%D8%B1%D9%86-%D9%88%D9%88%D8%B1%D9%81%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D8%B3%D9%88%D9%8A%D8%AA%D8%B4-2)
+- **طور Possession في Modern Warfare 4 يأتي بتحذير غير معتاد للاعبين**: [Link](https://www.true-gaming.net/home/642883/%D8%B7%D9%88%D8%B1-possession-%D9%81%D9%8A-modern-warfare-4-%D9%8A%D8%A3%D8%AA%D9%8A-%D8%A8%D8%AA%D8%AD%D8%B0%D9%8A%D8%B1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B9%D8%AA%D8%A7%D8%AF-%D9%84%D9%84%D8%A7%D8%B9/)
+- **تأخر الاستجابة بلعبة Call of Duty: Modern Warfare 4 على Nintendo Switch 2 يضع اللاعبين في موقف تنافسي أضعف**: [Link](https://me.ign.com/ar/call-of-duty-2026-unofficial-name/197036/tkhr-lstjb-blb-call-of-duty-modern-warfare-4-l-nintendo-switch-2-yd-llbyn-fy-mwqf-tnfsy-df)
+
+
+### juventus (N/A, Sun, 1 Nov 2026 12:50:00 -0800)
+
+- **Alajbegovic e Boga, tiri da tre punti. Il Napoli non c'è, la Juve e Spalletti respirano**: [Link](https://www.gazzetta.it/Calcio/Serie-A/Juventus/01-11-2026/juventus-napoli-live-risultato-e-gol-in-diretta-serie-a.shtml)
+- **Ko con la Juve, Allegri scivola a 9 punti dalla Champions**: [Link](https://www.ansa.it/campania/notizie/2026/11/02/ko-con-la-juve-allegri-scivola-a-9-punti-dalla-champions_9267d114-80d3-4281-a497-65b97528a316.html)
+- **Serie A | Juventus-Napoli | Il tabellino**: [Link](https://www.juventus.com/it/news/articoli/serie-a-juventus-napoli-il-tabellino-x1174)
+
+
+### أتلتيك بيلباو ضد ريال سوسيداد (N/A, Sun, 1 Nov 2026 12:50:00 -0800)
+
+- **بعد 50 عاماً.. علم الباسك يستعيد لحظته التاريخية بقمة بلباو وسوسيداد**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%B9%D8%AF-50-%D8%B9%D8%A7%D9%85%D8%A7%D9%8B-%D8%B9%D9%84%D9%85-%D8%A7%D9%84%D8%A8%D8%A7%D8%B3%D9%83-%D9%8A%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D9%84%D8%AD%D8%B8%D8%AA%D9%87-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D8%A8%D9%82%D9%85%D8%A9-%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF)
+- **بلباو وسوسييداد.. ديربي ساخن يعتمد على "الاحترام" وإلقاء الشعر**: [Link](https://www.alarabiya.net/sport/2026/10/31/%D8%A8%D9%84%D8%A8%D8%A7%D9%88-%D9%88%D8%B3%D9%88%D8%B3%D9%8A%D9%8A%D8%AF%D8%A7%D8%AF-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%B3%D8%A7%D8%AE%D9%86-%D9%8A%D8%B9%D8%AA%D9%85%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%85-%D9%88%D8%A7%D9%84%D9%82%D8%A7%D8%A1-%D8%A7%D9%84%D8%B4%D8%B9%D8%B1)
+- **تقديم مباراة أتلتيك بيلباو وريال سوسيداد**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83-%D8%A8%D9%8A%D9%84%D8%A8%D8%A7%D9%88-%D8%B6%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%83%D9%84-%D9%85%D8%A7-%D8%AA%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A7%D9%95%D9%84%D9%89-%D9%85%D8%B9%D8%B1%D9%81%D8%AA%D9%87-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9/blte3618de0f9eb715a)
+
+
 ### juventus vs napoli (N/A, Sun, 1 Nov 2026 12:30:00 -0800)
 
 - **Juventus v Napoli 0-0 LIVE: superb save by Vicario from Lucca. Cabal hits the post**: [Link](https://www.goal.com/en/lists/juventus-v-napoli-0-0-live-superb-save-by-vicario-from-lucca-cabal-hits-the-post/blt28bb1d3400499c4a)
