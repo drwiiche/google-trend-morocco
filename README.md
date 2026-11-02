@@ -1,3 +1,73 @@
+### tomate (N/A, Mon, 2 Nov 2026 12:10:00 -0800)
+
+- **Jusqu’à 18 dirhams le kilo: les raisons de la flambée du prix de la tomate**: [Link](https://fr.le360.ma/economie/jusqua-18-dirhams-le-kilo-les-raisons-de-la-flambee-du-prix-de-la-tomate_UAB65E4SEVFYXE6TXNRNUBR6G4/)
+- **Tomates : les prix pourraient amorcer une baisse à partir de fin novembre**: [Link](https://fr.hespress.com/494748-tomates-les-prix-pourraient-amorcer-une-baisse-a-partir-de-fin-novembre.html)
+- **Marchés de gros de Casablanca : le prix minimum de la viande bovine augmente, tandis que le maximum recule**: [Link](https://medias24.com/2026/10/30/marches-de-gros-de-casablanca-le-prix-minimum-de-la-viande-bovine-augmente-tandis-que-le-maximum-recule-1785657/)
+
+
+### caricature roi maroc (N/A, Mon, 2 Nov 2026 11:50:00 -0800)
+
+- **Au Maroc, le dessinateur Yasser Mounbir condamné à quatre ans de prison ferme pour des caricatures du roi**: [Link](https://www.lemonde.fr/afrique/article/2026/11/02/au-maroc-le-dessinateur-yasser-mounbir-condamne-a-quatre-ans-de-prison-ferme-pour-des-caricatures-du-roi_6805305_3212.html)
+- **Au Maroc, un jeune dessinateur qui a caricaturé le roi condamné à quatre ans de prison**: [Link](https://www.bfmtv.com/international/afrique/maroc/au-maroc-un-jeune-dessinateur-qui-a-caricature-le-roi-condamne-a-quatre-ans-de-prison_AD-202611010423.html)
+- **Yasser Mounbir, artiste marocain, condamné à 4 ans de prison ferme pour des caricatures du roi Mohammed VI**: [Link](https://www.humanite.fr/monde/artistes/yasser-mounbir-artiste-marocain-condamne-a-4-ans-de-prison-ferme-pour-des-caricatures-du-roi-mohammed-vi)
+
+
+### meteo di domani (N/A, Mon, 2 Nov 2026 11:50:00 -0800)
+
+- **Meteo.it: Tg Meteo Regionale Campania Video**: [Link](https://mediasetinfinity.mediaset.it/video/meteoit/tg-meteo-regionale-campania_FD00000000551451)
+- **Maltempo, allerta prorogata in Penisola Sorrentina**: [Link](https://www.gazzettadinapoli.it/gazzettameteo/maltempo-allerta-prorogata-in-penisola-sorrentina/)
+- **MALTEMPO NEL GOLFO. ALISCAFI A SINGHIOZZO. PROCDIA PENALIZZATA**: [Link](https://www.teleischia.com/maltempo-nel-golfo-aliscafi-a-singhiozzo-procdia-penalizzata/)
+
+
+### wetter morgen (N/A, Mon, 2 Nov 2026 11:50:00 -0800)
+
+- **Wetter morgen am Dienstag: Einzelne Schauer im Norden, Hochnebel im Süden – Schneeschauer im Chiemgau möglich**: [Link](https://www.wetter.com/news/wetterbericht-fuer-morgen-dienstag-3-november-2027-einzelne-schauer-im-norden-hochnebel-im-sueden-plus-schneeschauer-im-chiemgau-moeglich_aid_6ae833cf5c673e76b8061d43.html)
+- **Kälte in Deutschland: Hochdruck sorgt für Frostnächte**: [Link](https://www.focus.de/wetter/kaelte-in-deutschland-hochdruck-sorgt-fuer-frostnaechte_f5d59898-9d86-4b48-b8db-ccf3166cfa57.html)
+- **Wetterprognose im November: Was Deutschland in dieser Woche erwartet**: [Link](https://www.t-online.de/nachrichten/panorama/wetter/id_101508176/wetterlage-im-november-meteorologen-sagen-truebes-wetter-voraus.html)
+
+
+### météo demain (N/A, Mon, 2 Nov 2026 11:40:00 -0800)
+
+- **Météo : plus de 200 litres d’eau par mètre carré ! Un changement radical de temps attendu en France dès demain soir**: [Link](https://www.tameteo.com/actualites/previsions/meteo-jusqu-a-200-litres-d-eau-par-metre-carre-un-changement-radical-de-temps-attendu-en-france-des-demain-soir-vigilance-orange.html)
+- **Météo : épisode méditerranéen dès mercredi, jusqu’à 200 mm possibles**: [Link](https://infoccitanie.fr/meteo-episode-mediterraneen-des-mercredi-jusqu-a-200-mm-possibles/)
+- **Météo : de fortes pluies attendues en Méditerranée à partir de mardi dans la nuit**: [Link](https://www.ouest-france.fr/meteo/de-fortes-pluies-attendues-en-mediterranee-a-partir-de-mardi-3-novembre-dans-la-nuit-788444bc-d6ec-11f1-84f3-5611f158a658)
+
+
+### الطقس غدًا (N/A, Mon, 2 Nov 2026 11:40:00 -0800)
+
+- **«جهزوا الكمامات».. تحذير عاجل بشأن حالة الطقس غدا الاثنين**: [Link](https://www.almasryalyoum.com/news/details/4398692)
+- **الأرصاد: حرارة مرتفعة وشبورة كثيفة غدا..وانخفاض تدريجى وأمطار بدءا من الخميس**: [Link](https://twaslnews1.twaslnews.com/7028744/)
+- **استمرار ارتفاع الحرارة.. الأرصاد توضح خريطة الظواهر الجوية وتوقعات الطقس حتى نهاية الأسبوع**: [Link](https://darelhilal.com/News/3335789.aspx)
+
+
+### weather tomorrow (N/A, Mon, 2 Nov 2026 11:40:00 -0800)
+
+- **Weather update: UAE braces for wetter, warmer November as rainfall and temperatures exceed averages**: [Link](https://gulfnews.com/uae/weather/weather-update-uae-braces-for-wetter-warmer-november-as-rainfall-and-temperatures-exceed-averages-1.500732571)
+- **Mohammed bin Rashid launches Annual Government Challenge with first edition focused on assistive AI**: [Link](https://www.emirates247.com/uae/mohammed-bin-rashid-launches-annual-government-challenge-with-first-edition-focused-on-assistive-ai/7342)
+- **El Niño could bring heavy rain to Dubai, here’s how the city is preparing**: [Link](https://whatson.ae/2026/10/dubai-rain-el-nino-stormwater-drainage/)
+
+
+### deportivo – osasuna (N/A, Mon, 2 Nov 2026 11:30:00 -0800)
+
+- **Predicción Deportivo La Coruña vs Osasuna: El desafío de plantilla del equipo local**: [Link](https://www.vietnam.vn/es/nhan-dinh-deportivo-la-coruna-vs-osasuna-bai-toan-luc-luong-cua-chu-nha)
+- **15:30 H | 02 NOVIEMBRE 2026 | DEPORTES COPE EN A CORUÑA**: [Link](https://www.cope.es/emisoras/galicia/a-coruna-provincia/a-coruna/podcast/episodios/15-30-h-02-noviembre-2026-deportes-cope-coruna-20261102_3467063.html)
+- **Partidos de hoy de fútbol: horario y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20261102/1004245682/partidos-hoy-futbol-horario-ver-tv.html)
+
+
+### newcastle – everton (N/A, Mon, 2 Nov 2026 11:20:00 -0800)
+
+- **Where To Go For Live Coverage & Highlights Of Newcastle v Everton**: [Link](https://www.evertonfc.com/news/2026/november/02/where-to-go-for-live-coverage---highlights-of-newcastle-v-everton/)
+- **Tip of the Day: Barnes to star with goals for both sides at St James’ Park**: [Link](https://www.101greatgoals.com/football/premier-league/tip-of-the-day-harvey-barnes-to-star-with-goals-for-both-sides-at-st-james-park/)
+- **ProphetX promo code TSN: Get $75 prediction bonus for Newcastle vs. Everton, any Premier League games**: [Link](https://www.sportingnews.com/us/predictions-markets/news/prophetx-promo-code-tsn-prediction-bonus-newcastle-everton/3bfb9232b1adbba7a65a483e)
+
+
+### الاتحاد ضد العين (N/A, Mon, 2 Nov 2026 10:40:00 -0800)
+
+- **فيديو: العين يذيق الاتحاد من كأس النصر في نخبة آسيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%8A%D8%B0%D9%8A%D9%82-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%85%D9%86-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%81%D9%8A-%D9%86%D8%AE%D8%A8%D8%A9-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7/bltabef4830c5dc4f8a)
+- **موعد مباراة الاتحاد والعين في دوري أبطال آسيا للنخبة والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/11/1/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A7%D9%84%D8%B9%D9%8A%D9%86-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A)
+- **40 مليون يورو.. بنفيكا يصدم الاتحاد السعودي**: [Link](https://twaslnews1.twaslnews.com/7007410/)
+
+
 ### caricature roi du maroc (N/A, Sun, 1 Nov 2026 23:30:00 -0800)
 
 - **Au Maroc, un jeune dessinateur qui a caricaturé le roi condamné à quatre ans de prison**: [Link](https://www.bfmtv.com/international/afrique/maroc/au-maroc-un-jeune-dessinateur-qui-a-caricature-le-roi-condamne-a-quatre-ans-de-prison_AD-202611010423.html)
