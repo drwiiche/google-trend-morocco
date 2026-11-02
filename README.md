@@ -1,3 +1,69 @@
+### caricature roi du maroc (N/A, Sun, 1 Nov 2026 23:30:00 -0800)
+
+- **Au Maroc, un jeune dessinateur qui a caricaturé le roi condamné à quatre ans de prison**: [Link](https://www.bfmtv.com/international/afrique/maroc/au-maroc-un-jeune-dessinateur-qui-a-caricature-le-roi-condamne-a-quatre-ans-de-prison_AD-202611010423.html)
+- **«Une insulte à l'encontre du roi» : la justice condamne l'auteur de caricatures de Mohammed VI à quatre ans de prison**: [Link](https://www.cnews.fr/monde/2026-11-01/une-insulte-lencontre-du-roi-la-justice-condamne-lauteur-de-caricatures-de)
+- **Caricatures du roi Mohammed VI: le dessinateur Yasser Mounbir écope de quatre ans de prison**: [Link](https://h24info.ma/maroc/caricatures-roi-mohammed-vi-yasser-mounbir-prison/)
+
+
+### meteo (N/A, Sun, 1 Nov 2026 23:00:00 -0800)
+
+
+
+
+### weather (N/A, Sun, 1 Nov 2026 22:40:00 -0800)
+
+- **UPL Reports Q2 Consolidated Net Profit of ₹420 Crore, Down YoY From ₹550 Crore**: [Link](https://www.sahi.com/news/upl-reports-q2-consolidated-net-profit-of-420-crore-down-yoy-from-550-crore)
+- **UPL Ltd Expects Revenue Growth Of 7–11% In FY27**: [Link](https://www.tradingview.com/news/reuters.com,2026:newsml_FWN46J1AH:0-upl-ltd-expects-revenue-growth-of-7-11-in-fy27/)
+- **UPL Q2 H1 FY27 Results: Revenue, EBITDA and Key Updates**: [Link](https://www.kalkine.co.in/article/announcements/upl-nseupl-what-did-its-q2-and-h1-fy27-investor-presentation-reveal)
+
+
+### نادي الرجاء الرياضي (N/A, Sun, 1 Nov 2026 22:30:00 -0800)
+
+- **بالفيديو.. نهضة بركان ينتفض بصعق الرجاء البيضاوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D9%86%D8%AA%D9%81%D8%B6-%D8%A8%D8%B5%D8%B9%D9%82-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D9%88%D9%8A/blt4588b810e9f9b20f)
+- **باكو خيميز بعد الهزيمة أمام نهضة بركان: مستعد لتقبل أي قرار من النادي**: [Link](https://radiomars.ma/%D8%A8%D8%A7%D9%83%D9%88-%D8%AE%D9%8A%D9%85%D9%8A%D8%B2-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%87%D8%B2%D9%8A%D9%85%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86/)
+- **نهضة بركان يهزم الرجاء بثنائية نظيفة**: [Link](https://www.hespress.com/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A8%D8%AB%D9%86%D8%A7%D8%A6%D9%8A%D8%A9-%D9%86%D8%B8%D9%8A%D9%81%D8%A9-1833129.html)
+
+
+### المصري اليوم (N/A, Sun, 1 Nov 2026 22:30:00 -0800)
+
+
+
+
+### météo (N/A, Sun, 1 Nov 2026 22:10:00 -0800)
+
+- **Météo demain : un temps souvent ensoleillé, mais une fraîcheur marquée, surtout au nord**: [Link](https://www.meteoconsult.fr/actualites-meteo/2026-11-02/93766-meteo-demain-un-temps-souvent-ensoleille-mais-une-fraicheur-marquee-surtout-au-nord)
+- **Météo : pluies et orages attendus dans plusieurs régions**: [Link](https://www.mosaiquefm.net/fr/national-tunisie/1535292/meteo-pluies-et-orages-attendus-dans-plusieurs-regions)
+- **Météo : prévisions du dimanche 1er novembre 2026**: [Link](https://letemps.news/2026/11/01/meteo-previsions-du-dimanche-1er-novembre-2026/)
+
+
+### الطقس (N/A, Sun, 1 Nov 2026 22:10:00 -0800)
+
+- **توقعات أحوال الطقس اليوم الاثنين**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-4-1833146.html)
+- **طقس حار مع سحب منخفضة متوقع اليوم الاثنين**: [Link](https://ar.telquel.ma/%D8%B3%D9%85%D8%A7%D8%A1-%D8%BA%D8%A7%D8%A6%D9%85%D8%A9-%D9%88%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%BA%D9%8A%D8%B1-%D9%85%D8%B3%D8%AA%D9%82%D8%B1%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A7%D9%84/)
+- **زخات رعدية مع احتمال تساقط البرد وهبات رياح اليوم الجمعة بعدد من مناطق المملكة (نشرة إنذارية)**: [Link](https://2m.ma/ar/news/%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D9%85%D8%B9-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84-%D8%AA%D8%B3%D8%A7%D9%82%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AF-%D9%88%D9%87%D8%A8%D8%A7%D8%AA-%D8%B1%D9%8A%D8%A7%D8%AD-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%B9%D8%AF%D8%AF-20261030)
+
+
+### classement revolution de la nouvelle-angleterre – inter miami (N/A, Sun, 1 Nov 2026 21:10:00 -0800)
+
+- **Messi's clutchness, Nashville's comeback & more from Matchday 34**: [Link](https://www.mlssoccer.com/news/messi-s-clutchness-nashville-s-comeback-more-from-matchday-34)
+- **Messi scores and assists in Inter Miami’s win over New England in the MLS (video)**: [Link](https://www.voiceofemirates.com/en/sport/2026/11/02/messi-scores-and-assists-in-inter-miamis-win-over-new-england-in-the-mls-video/)
+- **Lionel Messi’s masterclass puts Cristiano Ronaldo under pressure in the race to 1,000 goals**: [Link](https://www.marca.com/en/football/mls/2026/11/02/lionel-messi-s-masterclass-puts-cristiano-ronaldo-under-pressure-in-the-race-to-1-000-goals.html)
+
+
+### rachid yazami (N/A, Sun, 1 Nov 2026 21:00:00 -0800)
+
+- **Batteries : Rachid Yazami annonce la recharge complète d’une cellule LFP en sept minutes**: [Link](https://lopinion.ma/fr/actu-maroc/batteries--rachid-yazami-annonce-la-recharge-complete-dune-cellule-lfp-en-sept-minutes_a96166?articleId=3929eab8-0ba6-4e1b-86ec-ae9d286b900d)
+- **Batteries au lithium: le Marocain Rachid Yazami annonce une technologie permettant une recharge complète en 7 minutes**: [Link](https://lareleve.ma/209815/)
+- **Rachid Yazami annonce avoir rechargé une cellule de batterie en 7 minutes, les taxis volants s'y intéressent**: [Link](https://www.bladi.net/rachid-yazami-annonce-recharge-cellule-batterie-minutes-taxis-volants,124712.html)
+
+
+### ligue 1 (N/A, Sun, 1 Nov 2026 19:50:00 -0800)
+
+- **Les départs s'enchaînent au Havre : Demba Ba part aussi, la direction sportive du club doyen en lambeaux**: [Link](https://www.lequipe.fr/Football/Actualites/Les-departs-s-enchainent-au-havre-demba-ba-part-aussi-la-direction-sportive-du-club-doyen-en-lambeaux/1740506)
+- **Un nouveau dirigeant du HAC quitte le navire**: [Link](https://www.sofoot.com/breves/ligue-1-le-directeur-sportif-demba-ba-quitte-a-son-tour-le-havre)
+- **Le chaos dans le club d’Arnaud Bodart : son entraîneur licencié, le président démissionne**: [Link](https://www.lesoir.be/780235/article/2026-11-01/le-chaos-dans-le-club-darnaud-bodart-son-entraineur-licencie-le-president)
+
+
 ### نيو إنجلاند ضد إنتر ميامي (N/A, Sun, 1 Nov 2026 18:10:00 -0800)
 
 - **قاعدة غريبة تمنع إيقاف ميسي رغم تلقيه 5 إنذارات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A7%D8%B9%D8%AF%D8%A9-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D8%AA%D9%85%D9%86%D8%B9-%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D9%85%D9%8A%D8%B3%D9%8A-%D8%B1%D8%BA%D9%85-%D8%AA%D9%84%D9%82%D9%8A%D9%87-5-%D8%A7%D9%95%D9%86%D8%B0%D8%A7%D8%B1%D8%A7%D8%AA/blt396044555e94ccc3)
