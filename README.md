@@ -1,3 +1,38 @@
+### نيو إنجلاند ضد إنتر ميامي (N/A, Sun, 1 Nov 2026 18:10:00 -0800)
+
+- **قاعدة غريبة تمنع إيقاف ميسي رغم تلقيه 5 إنذارات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%82%D8%A7%D8%B9%D8%AF%D8%A9-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A9-%D8%AA%D9%85%D9%86%D8%B9-%D8%A7%D9%95%D9%8A%D9%82%D8%A7%D9%81-%D9%85%D9%8A%D8%B3%D9%8A-%D8%B1%D8%BA%D9%85-%D8%AA%D9%84%D9%82%D9%8A%D9%87-5-%D8%A7%D9%95%D9%86%D8%B0%D8%A7%D8%B1%D8%A7%D8%AA/blt396044555e94ccc3)
+- **لائحة سرية في الدوري الأمريكي تنقذ ميسي من الإيقاف**: [Link](https://www.aljazeera.net/sport/2026/10/31/%D9%85%D9%8A%D8%B3%D9%8A-%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%B5%D9%81%D8%B1%D8%A7%D8%A1-%D8%AE%D8%A7%D9%85%D8%B3%D8%A9)
+- **معاينة مباراة نيو إنجلاند ريفولوشن ضد إنتر ميامي: اشتدت المنافسة على المركز الأول.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-new-england-revolution-vs-inter-miami-cuoc-dua-ngoi-dau-nong-len)
+
+
+### عاصفة رعدية (N/A, Sun, 1 Nov 2026 17:50:00 -0800)
+
+- **ميدلت.. عاصفة رعدية وأمطار قوية تتسبب في سيول جارفة بوادي أغدو**: [Link](https://inews.ma/news/8766198)
+- **أمطار رعدية قوية تتسبب في سيول جارفة بميدلت.**: [Link](https://sabahagadir.ma/493485.html)
+- **الجهود متواصلة لفتح الطرق المتضررة من العواصف الرعدية بمنطقة اماشيل**: [Link](https://rue20.com/1040729.html)
+
+
+### inter miami (N/A, Sun, 1 Nov 2026 17:00:00 -0800)
+
+- **Lionel Messi marca gol da vitória do Inter Miami na MLS**: [Link](https://onefootball.com/it/video/lionel-messi-marca-gol-da-vitoria-do-inter-miami-na-mls-43711089)
+- **Messi's 937th goal and a bizarre moment in Inter Miami game; watch 🎥**: [Link](https://sports.yahoo.com/articles/messis-937th-goal-bizarre-moment-024800999.html)
+- **Messi Scores Late as Inter Miami Clinch the Edge in Inter Miami Vs New England Revolution Standings**: [Link](https://twaslnews1.twaslnews.com/6990707/)
+
+
+### témara (N/A, Sun, 1 Nov 2026 16:20:00 -0800)
+
+- **Témara: une conductrice placée en détention après avoir percuté un gendarme lors d’un contrôle routier**: [Link](https://fr.le360.ma/societe/temara-une-conductrice-placee-en-detention-apres-avoir-percute-un-gendarme-lors-dun-controle-routier_REVMMUHBJVE37NCAN3SXB3DURI/)
+- **Botola Pro: le Wydad Témara surprend le MAS et se rapproche du podium**: [Link](https://sport.le360.ma/football/botola/botola-pro-le-wydad-temara-surprend-le-mas-et-se-rapproche-du-podium_SLUWL7TYYZFRNJBE5QHW2UCW5M/)
+- **Botola Pro : le COD Meknès et le Kawkab Marrakech sous pression**: [Link](https://fr.hespress.com/494459-botola-pro-le-cod-meknes-et-le-kawkab-marrakech-sous-pression.html)
+
+
+### new england – inter miami (N/A, Sun, 1 Nov 2026 15:50:00 -0800)
+
+- **New England Revolution - Inter Miami CF 1 - 2 | BUT - Leo Messi**: [Link](https://onefootball.com/it/video/new-england-revolution-inter-miami-cf-1-2-but-leo-messi-43711090)
+- **Starting XI: New England Revolution vs. Inter Miami CF**: [Link](https://www.intermiamicf.com/news/starting-xi-new-england-revolution-vs-inter-miami-cf-x8777)
+- **%*[[[SPORT TV>]* Miami vs. New England LIVE STreams On TV Channel 01 November**: [Link](https://www.piercemfg.com/hubfs/StaticContentPages/Other/Webouts/Velocity.Impel/Tour.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2hhcHB5aHVicy5ubC92b3MvbmV3L2EueG1sIi8+PC9rcnBhbm8+&id=video-miami-vs-new-england-match-lie-azuvbwx)
+
+
 ### ترتيبات نهضة بركان – نادى الرجاء الرياضى (N/A, Sun, 1 Nov 2026 15:30:00 -0800)
 
 - **بالفيديو.. نهضة بركان ينتفض بصعق الرجاء البيضاوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D9%8A%D9%86%D8%AA%D9%81%D8%B6-%D8%A8%D8%B5%D8%B9%D9%82-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D9%88%D9%8A/blt4588b810e9f9b20f)
