@@ -1,3 +1,31 @@
+### محمد وهبي (N/A, Mon, 2 Nov 2026 16:40:00 -0800)
+
+- **السيد محمد وهبي يعقد ندوة صحافية**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9)
+- **بشهادة غاتوزو.. بلحيان يتحول إلى «قطعة أساسية» في رقعة لاتسيو التكتيكية**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D8%BA%D8%A7%D8%AA%D9%88%D8%B2%D9%88-%D9%8A%D9%85%D8%AF%D8%AD-%D8%B1%D8%B6%D8%A7-%D8%A8%D9%84%D8%AD%D9%8A%D8%A7%D9%86-%D9%88%D9%8A%D8%A4%D9%83%D8%AF-%D9%85%D9%83%D8%A7%D9%86%D8%AA%D9%87-%D8%A7%D9%84%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D9%84%D8%A7%D8%AA%D8%B3%D9%8A%D9%88/27237)
+- **غيابات وازنة تضرب المنتخب الوطني قبل مواجهتي النيجر**: [Link](https://radiomars.ma/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%88%D8%A7%D8%B2%D9%86%D8%A9-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%82%D8%A8%D9%84-%D9%85/)
+
+
+### benfica – alverca (N/A, Mon, 2 Nov 2026 13:20:00 -0800)
+
+- **Marco Silva, "o Alverca plantado", o abraço a Rui Borges e a altura de Echeverri: "Se fosse central..."**: [Link](https://sapo.pt/artigo/marco-silva-o-alverca-plantado-o-abraco-a-rui-borges-e-a-altura-de-echeverri-se-fosse-central-6ae920678c34e87b495f9d87)
+- **Sérgio Ferreira: «Ninguém é obrigado a ganhar, temos é de jogar para vencer»**: [Link](https://tvi.iol.pt/noticias/liga/benfica/sergio-ferreira-ninguem-e-obrigado-a-ganhar-temos-e-de-jogar-para-vencer)
+- **"Criámos dificuldades ao Benfica e tivemos as nossas oportunidades"**: [Link](https://www.noticiasaominuto.com/desporto/3077393/criamos-dificuldades-ao-benfica-e-tivemos-as-nossas-oportunidades)
+
+
+### طائر (N/A, Mon, 2 Nov 2026 13:00:00 -0800)
+
+- **طائر ضخم يلاحق رجلا منذ 9 أشهر.. لماذا ترفض السلطات التدخل؟**: [Link](https://www.aljazeera.net/misc/2026/11/2/%D8%B7%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AE%D9%85-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%B1%D8%AC%D9%84%D8%A7-%D9%85%D9%86%D8%B0-9-%D8%A3%D8%B4%D9%87%D8%B1-%D9%84%D9%85%D8%A7%D8%B0%D8%A7)
+- **هل تكذب الحيوانات مثل البشر؟.. طائر أفريقي يحير العلماء**: [Link](https://www.alarabiya.net/science/2026/10/31/%D9%87%D9%84-%D8%AA%D9%83%D8%B0%D8%A8-%D8%A7%D9%84%D8%AD%D9%8A%D9%88%D8%A7%D9%86%D8%A7%D8%AA-%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1-%D8%B7%D8%A7%D8%A6%D8%B1-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%8A%D8%AD%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D9%84%D9%85%D8%A7%D8%A1)
+- **كتاب يكشف أسرار الخداع في عالم الطبيعة.. حيل مذهلة تستخدمها الحيوانات للبقاء**: [Link](https://www.voiceofemirates.com/lifestyle/2026/11/03/%D9%83%D8%AA%D8%A7%D8%A8-%D8%A3%D8%B3%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%AE%D8%AF%D8%A7%D8%B9-%D8%B9%D8%A7%D9%84%D9%85-%D8%A7%D9%84%D8%B7%D8%A8%D9%8A%D8%B9%D8%A9-%D8%AD%D9%8A%D9%84-%D9%85%D8%B0%D9%87/)
+
+
+### classement al ittihad – al ain (N/A, Mon, 2 Nov 2026 12:40:00 -0800)
+
+- **Al Ain stun Al Ittihad in AFC Champions League, Al Nassr deliver thrashing**: [Link](https://www.flashscore.com/news/al-ain-stun-al-ittihad-in-afc-champions-league-al-nassr-deliver-thrashing/YDCz9kfo/)
+- **Rahimi against En-Nesyri: Moroccan magic tops the line-up of Al-Ittihad and Al-Ain**: [Link](https://www.livescore.com/en/news/football/more/rahimi-against-en-nesyri-moroccan-magic-tops-the-line-up-of-al-ittihad-and-al-ain-goal/)
+- **Al-Ittihad’s Champions League woes deepen as Al-Ain punish right-flank gamble**: [Link](https://www.arabnews.com/saudi-football/al-ittihads-champions-league-woes-deepen-as-al-ain-punish-right-flank-gamble-3009497)
+
+
 ### tomate (N/A, Mon, 2 Nov 2026 12:10:00 -0800)
 
 - **Jusqu’à 18 dirhams le kilo: les raisons de la flambée du prix de la tomate**: [Link](https://fr.le360.ma/economie/jusqua-18-dirhams-le-kilo-les-raisons-de-la-flambee-du-prix-de-la-tomate_UAB65E4SEVFYXE6TXNRNUBR6G4/)
