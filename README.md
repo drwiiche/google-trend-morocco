@@ -1,3 +1,73 @@
+### al-hilal – shabab al-ahli (N/A, Tue, 3 Nov 2026 09:30:00 -0800)
+
+- **Al Hilal vs Shabab Al-Ahli Lineups | AFC Champions League Elite**: [Link](https://www.ysscores.com/en/lineup/6050095/Al-Hilal-SFC-vs-Shabab-Al-Ahli-Club)
+- **The Asian Football Confederation threatens sanctions against Shabab Al-Ahli due to their match against Al-Hilal of Saudi Arabia**: [Link](https://www.voiceofemirates.com/en/sport/2026/11/02/the-asian-football-confederation-threatens-sanctions-against-shabab-al-ahli-due-to-their-match-against-al-hilal-of-saudi-arabia/)
+- **Inzaghi announces: we will face Shabab Al-Ahli without four key weapons**: [Link](https://www.yardbarker.com/soccer/articles/inzaghi_announces_we_will_face_shabab_al_ahli_without_four_key_weapons/s1_17790_44506649)
+
+
+### galatasaray – stuttgart (N/A, Tue, 3 Nov 2026 09:00:00 -0800)
+
+- **Okan Buruk'tan maç öncesi Stuttgart uyarısı: 'Merkezi etkili kullanıyorlar'**: [Link](https://www.yenicaggazetesi.com/okan-buruktan-mac-oncesi-stuttgart-uyarisi-merkezi-etkili-kullaniyorlar-1087898h.htm)
+- **Denizli'de Şampiyonlar Ligi heyecanı dev ekranda**: [Link](https://www.beyazbelgehaber.com/haber/denizli-de-sampiyonlar-ligi-heyecani-dev-ekranda)
+- **Galatasaray taraftarı fena bilendi! Stıuttgart kendi etti**: [Link](https://www.fotospor.com.tr/galatasaray/galatasaray-taraftari-fena-bilendi-stiuttgart-kendi-etti-716299)
+
+
+### مصر (N/A, Tue, 3 Nov 2026 08:10:00 -0800)
+
+- **هل يكون البرنامج الاقتصادي المصري بديلاً لقروض صندوق النقد؟**: [Link](https://asharqbusiness.com/economics/154205/%D9%87%D9%84-%D9%8A%D9%83%D9%88%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D9%85%D8%AC-%D8%A7%D9%84%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D8%A8%D8%AF%D9%8A%D9%84%D8%A7-%D9%84%D9%82%D8%B1%D9%88%D8%B6-%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A7%D9%84%D9%86%D9%82%D8%AF/)
+- **بطرس غالي: القطاع الخاص الأقدر على قيادة النمو.. وتثبيت سعر الصرف بمصر غير ممكن**: [Link](https://www.mubasher.info/news/4695819/%D8%A8%D8%B7%D8%B1%D8%B3-%D8%BA%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D9%82%D8%B7%D8%A7%D8%B9-%D8%A7%D9%84%D8%AE%D8%A7%D8%B5-%D8%A7%D9%84%D8%A3%D9%82%D8%AF%D8%B1-%D8%B9%D9%84%D9%89-%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D9%86%D9%85%D9%88-%D9%88%D8%AA%D8%AB%D8%A8%D9%8A%D8%AA-%D8%B3%D8%B9%D8%B1-%D8%A7%D9%84%D8%B5%D8%B1%D9%81-%D8%A8%D9%85%D8%B5%D8%B1-%D8%BA%D9%8A%D8%B1-%D9%85%D9%85%D9%83%D9%86/)
+- **الأسواق في مصر تترقب نتيجة المراجعة الأخيرة التي يجريها IMF للاقتصاد المحلي**: [Link](https://www.cnbcarabia.com/159165/2026/03/11/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%AA%D8%AA%D8%B1%D9%82%D8%A8-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D8%AC%D8%B9%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D9%8A%D8%AC%D8%B1%D9%8A%D9%87%D8%A7-IMF-%D9%84%D9%84%D8%A7%D9%82%D8%AA%D8%B5%D8%A7%D8%AF-%D8%A7%D9%84%D9%85%D8%AD%D9%84%D9%8A)
+
+
+### اقتصاد (N/A, Tue, 3 Nov 2026 06:50:00 -0800)
+
+- **أكثر من 1,2 مليون عاطل بالمغرب .. والبطالة تقفز إلى 30,5% بين الشباب**: [Link](https://www.hespress.com/%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-12-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D8%B9%D8%A7%D8%B7%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D9%84%D8%A9-%D8%AA-1833775.html)
+- **البطالة في المغرب ترتفع إلى 10.5% في الربع الثالث**: [Link](https://www.aljazeera.net/ebusiness/2026/11/3/%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D9%84%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B1%D8%AA%D9%81%D8%B9-%D8%A5%D9%84%D9%89-10-5-%D9%81%D9%8A-%D8%A7%D9%84%D8%B1%D8%A8%D8%B9)
+- **سوق الشغل بالمغرب.. الخدمات في الصدارة والفلاحة تسجل أكبر خسارة في المناصب**: [Link](https://barlamane.com/%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%B4%D8%BA%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AE%D8%AF%D9%85%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88/)
+
+
+### novak djokovic (N/A, Tue, 3 Nov 2026 06:30:00 -0800)
+
+- **Djokovic after beating Vacherot: "Not bad for an old guy"**: [Link](https://en.tennistemple.com/actu/djokovic-after-beating-vacherot-not-bad-for-an-old/Bpnk)
+- **Tuesday, November 3 schedule**: [Link](https://www.rolexparismasters.com/en/news/article/first-second-round-schedule-tuesday-november-3-kouame-vacherot-djokovic)
+- **Novak Djokovic Faces Grim ATP Finals Verdict Before Paris Masters Campaign**: [Link](https://www.aol.com/articles/novak-djokovic-faces-grim-atp-135026000.html)
+
+
+### banque (N/A, Tue, 3 Nov 2026 06:20:00 -0800)
+
+- **La croissance était déjà faible mais ça sera encore pire: le gouverneur de la Banque de France ne croit plus à son objectif de 0,4% pour 2026**: [Link](https://www.bfmtv.com/economie/la-croissance-etait-deja-faible-mais-ca-sera-encore-pire-le-gouverneur-de-la-banque-de-france-ne-croit-plus-a-son-objectif-de-0-4-pour-2026_AV-202611030702.html)
+- **La stagnation économique, illustration de la faillite du macronisme**: [Link](https://www.mediapart.fr/journal/economie-et-social/301026/la-stagnation-economique-illustration-de-la-faillite-du-macronisme)
+- **L'économie française «à l'arrêt» rend l'équation budgétaire difficile**: [Link](https://www.rfi.fr/fr/france/20261030-l-%C3%A9conomie-fran%C3%A7aise-%C3%A0-l-arr%C3%AAt-rend-l-%C3%A9quation-budg%C3%A9taire-difficile)
+
+
+### jesús de miguel (N/A, Tue, 3 Nov 2026 05:00:00 -0800)
+
+- **Quién es Jesús Owono: está destrozado y es arropado por el Andorra**: [Link](https://as.com/futbol/segunda/quien-es-jesus-owono-esta-destrozado-y-es-arropado-por-el-andorra-f202611-n/)
+- **La Policía investiga la muerte del futbolista Jesús de Miguel**: [Link](https://elpais.com/deportes/futbol/2026-11-03/la-policia-abre-diligencias-judiciales-a-jesus-owono-por-homicidio-imprudente-tras-la-muerte-de-jesus-de-miguel.html)
+- **Muere el delantero del Tenerife Jesús de Miguel tras el brutal choque con el portero del Andorra y la Policía abre una investigación**: [Link](https://www.elmundo.es/deportes/futbol/segunda-division/2026/11/03/6ae97d60e4d4d8e9038b459e.html)
+
+
+### خبر (N/A, Tue, 3 Nov 2026 03:00:00 -0800)
+
+- **سر الشارب الجديد.. ما الذي دفع ممداني للتخلي عن لحيته؟**: [Link](https://www.aljazeera.net/news/2026/11/3/%D8%B3%D8%B1-%D8%A7%D9%84%D8%B4%D8%A7%D8%B1%D8%A8-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%85%D8%A7-%D8%A7%D9%84%D8%B0%D9%8A-%D8%AF%D9%81%D8%B9-%D9%85%D9%85%D8%AF%D8%A7%D9%86%D9%8A)
+- **ما معنى "الاستقالة الهادئة" وكيف تؤثر على الاقتصاد؟**: [Link](https://www.bbc.com/arabic/articles/c6vg9w7qk015o)
+- **تقرير رويترز والأخبار منزوعة الدسم**: [Link](https://www.omandaily.om/article/1214119)
+
+
+### الجامعة الملكية المغربية لكرة القدم (N/A, Tue, 3 Nov 2026 02:30:00 -0800)
+
+- **اجتماع للمكتب المديري للجامعة يوم الاثنين المقبل**: [Link](https://radiomars.ma/%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D9%84%D9%84%D9%85%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A-%D9%84%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7/)
+- **المكتب المديري للجامعة الملكية المغربية لكرة القدم يعقد اجتماعا يوم الإثنين 9 نونبر المقبل**: [Link](https://www.elbotola.com/article/2026-11-03-11-52-924.html)
+- **المكتب المديري للجامعة يعقد اجتماعا حاسما الأسبوع المقبل**: [Link](https://ar.sport.le360.ma/football/CGN7D7ERDNGRHEMEYA5WQC35EM/)
+
+
+### groupe managem (N/A, Tue, 3 Nov 2026 01:40:00 -0800)
+
+- **n°1320. La Bourse rend à Managem un poids dans le MASI que son capital déclaré ne justifie pas**: [Link](https://ledesk.ma/enclair/la-bourse-rend-a-managem-un-poids-dans-le-masi-que-son-capital-declare-ne-justifie-pas/)
+- **Managem demande la reprise de la cotation de son titre**: [Link](https://mobile.telquel.ma/instant-t/2026/11/03/managem-demande-la-reprise-de-la-cotation-de-son-titre_2016399/)
+- **La révision du MASI fait marche arrière après avoir provoqué des ajustements de portefeuilles**: [Link](https://medias24.com/2026/11/02/bourse-de-casa-la-revision-du-masi-fait-marche-arriere-apres-avoir-provoque-des-ajustements-de-portefeuilles-1786742/)
+
+
 ### نقل (N/A, Tue, 3 Nov 2026 01:40:00 -0800)
 
 - **الحكومة تمدد الدعم الاستثنائي للنقل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D9%85%D8%AF%D8%AF-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%84%D9%84%D9%86%D9%82%D9%84-1833655.html)
