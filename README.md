@@ -1,3 +1,73 @@
+### نقل (N/A, Tue, 3 Nov 2026 01:40:00 -0800)
+
+- **الحكومة تمدد الدعم الاستثنائي للنقل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D9%85%D8%AF%D8%AF-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%84%D9%84%D9%86%D9%82%D9%84-1833655.html)
+- **إغلاق السوق المغربية يضغط على أسعار لحوم الأبقار في إسبانيا ويرفع مخاوف المربين**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D8%B9%D9%84%D9%86-%D8%AF%D9%81%D8%B9%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%85%D9%86-%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82/)
+- **الحكومة تمدد الدعم الاستثنائي لمهنيي النقل الطرقي بـ15 يوما إضافية**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D9%85%D8%AF%D8%AF-%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%86%D8%A7%D8%A6%D9%8A-%D9%84%D9%85%D9%87%D9%86%D9%8A%D9%8A-%D8%A7%D9%84%D9%86%D9%82%D9%84-%D8%A7%D9%84%D8%B7%D8%B1%D9%82%D9%8A-%D8%A8%D9%8015-%D9%8A%D9%88%D9%85%D8%A7-%D8%A5%D8%B6%D8%A7%D9%81%D9%8A%D8%A9-20261102)
+
+
+### jesus de miguel (N/A, Tue, 3 Nov 2026 01:30:00 -0800)
+
+- **Tenerife striker De Miguel dies after on-field collision**: [Link](https://www.bbc.com/sport/football/articles/ck62yvz046pjo)
+- **Tebas on the death of a Spanish player: what a devastating loss**: [Link](https://www.goal.com/en/news/tebas-on-the-death-of-a-spanish-player-what-a-devastating-loss/bltd6f40b6d34ee28cc)
+- **Heartbreaking moments on the football pitch! His heart stopped, and the match was abandoned.**: [Link](https://en.haberler.com/heartbreaking-moments-on-the-football-pitch-his-2327744/)
+
+
+### hiver (N/A, Tue, 3 Nov 2026 00:00:00 -0800)
+
+- **21.000 Belges passent à un contrat d’énergie fixe en une journée: “Ceux qui ne l’ont pas fait vont le payer cher”**: [Link](https://www.7sur7.be/economie/21-000-belges-passent-a-un-contrat-denergie-fixe-en-une-journee-ceux-qui-ne-lont-pas-fait-vont-le-payer-cher~a69421b5/)
+- **Nouveaux tarifs énergie au 1er novembre : tous les contrats fixes explosent, sauf chez un fournisseur**: [Link](https://www.rtbf.be/article/nouveaux-tarifs-energie-au-1er-novembre-les-contrats-fixes-explosent-tous-les-records-mais-il-reste-des-refuges-11809345)
+- **Les faibles stocks européens pourraient prolonger la tension sur le marché mondial du gaz, selon l’AIE**: [Link](https://www.zonebourse.com/actualite-bourse/les-faibles-stocks-europeens-pourraient-prolonger-la-tension-sur-le-marche-mondial-du-gaz-selon-la-ce785fd9df89f627)
+
+
+### طائرة (N/A, Mon, 2 Nov 2026 23:50:00 -0800)
+
+- **عاجل | مطار وارسو: إغلاق المطار حتى إشعار آخر إثر إنذار بوجود قنبلة على متن طائرة ركاب قادمة من لندن**: [Link](https://www.aljazeera.net/news/2026/11/3/%D8%B9%D8%A7%D8%AC%D9%84-%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%A7%D8%B1%D8%B3%D9%88-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D9%85%D8%B7%D8%A7%D8%B1-%D8%AD%D8%AA%D9%89)
+- **بعد بلاغ عن قنبلة.. طائرة قادمة من لندن تستنفر الأمن البولندي**: [Link](https://www.eremnews.com/news/world/1oke8xl)
+- **"ويز إير": لا خطر أمني بعد تفتيش طائرة حُول مسارها إلى بودابست**: [Link](https://asharq.com/reports/201757/%D9%88%D9%8A%D8%B2-%D8%A5%D9%8A%D8%B1-%D9%84%D8%A7-%D8%AE%D8%B7%D8%B1-%D8%A3%D9%85%D9%86%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%AA%D9%81%D8%AA%D9%8A%D8%B4-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%AD-%D9%88%D9%84-%D9%85%D8%B3%D8%A7%D8%B1%D9%87%D8%A7-%D8%A5%D9%84%D9%89-%D8%A8%D9%88%D8%AF%D8%A7%D8%A8%D8%B3%D8%AA/)
+
+
+### خيسوس دي ميغيل (N/A, Mon, 2 Nov 2026 23:30:00 -0800)
+
+- **مأساة تهز إسبانيا.. وفاة لاعب تينيريفي بعد إصابة مروعة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D9%94%D8%B3%D8%A7%D8%A9-%D8%AA%D9%87%D8%B2-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7--%D9%88%D9%81%D8%A7%D8%A9-%D9%84%D8%A7%D8%B9%D8%A8-%D8%AA%D9%8A%D9%86%D9%8A%D8%B1%D9%8A%D9%81%D9%8A-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%95%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%B1%D9%88%D8%B9%D8%A9/blte423c1c1f8fd9e4b)
+- **سكتة قلبية.. إلغاء مباراة في الدوري الإسباني بسبب إصابة "مروعة"**: [Link](https://arabic.cnn.com/sport/article/2026/11/03/jesus-de-miguel-tenerife-andorra-match)
+- **شاهد لحظة الاصطدام.. وفاة مهاجم تينيريفي اصطدم بحارس مرمى**: [Link](https://www.skynewsarabia.com/sport/1902369-%D8%B4%D8%A7%D9%87%D8%AF-%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D8%AF%D8%A7%D9%85-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%87%D8%A7%D8%AC%D9%85-%D8%AA%D9%8A%D9%86%D9%8A%D8%B1%D9%8A%D9%81%D9%8A-%D8%A7%D8%B5%D8%B7%D8%AF%D9%85-%D8%A8%D8%AD%D8%A7%D8%B1%D8%B3-%D9%85%D8%B1%D9%85%D9%89)
+
+
+### هاري كين (N/A, Mon, 2 Nov 2026 23:20:00 -0800)
+
+- **"كواليس صادمة".. صحفي إسباني يتلقى تهديدات بالقتل بسبب تصويته ضد يامال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%B5%D8%A7%D8%AF%D9%85%D8%A9--%D8%B5%D8%AD%D9%81%D9%8A-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%82%D8%AA%D9%84-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%AA%D8%B5%D9%88%D9%8A%D8%AA%D9%87-%D8%B6%D8%AF-%D9%8A%D8%A7%D9%85%D8%A7%D9%84/blt4e3ea7d096198872)
+- **هاري كين: مستعد للتخلي عن الكرة الذهبية مقابل هذا الحلم**: [Link](https://www.aljazeera.net/sport/2026/11/3/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9)
+- **كاين يؤكد استعداده للتخلي عن الكرة الذهبية مقابل التتويج بدوري الأبطال**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261102-%D9%83%D8%A7%D9%8A%D9%86-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%87-%D9%84%D9%84%D8%AA%D8%AE%D9%84%D9%8A-%D8%B9%D9%86-%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-%D9%85%D9%82%D8%A7%D8%A8%D9%84-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+
+
+### wetter (N/A, Mon, 2 Nov 2026 22:40:00 -0800)
+
+- **Frostige Nächte, sonnige Momente: So wird das Wetter in Osthessen**: [Link](https://osthessen-news.de/n11802437/frostige-nachte-sonnige-momente-so-wird-das-wetter-in-osthessen.html)
+- **Achtung, Frost: Amtliche Warnung für Frankfurt – das rät der DWD jetzt**: [Link](https://frankfurt.t-online.de/region/frankfurt-am-main/id_101509600/in-frankfurt-gilt-eine-frostwarnung-wann-es-dienstag-milder-wird.html)
+- **Nach sonnigem Wochenstart: Frostige Nächte und Nebel in Hessen erwartet**: [Link](https://www.fuldaerzeitung.de/hessen/kalte-naechte-in-hessen-gebietsweise-leichter-frost-und-nebel-zr-94569821.html)
+
+
+### futsal (N/A, Mon, 2 Nov 2026 22:30:00 -0800)
+
+- **Athirson prestigia confrontos do futsal feminino nos Jogos da Juventude CAIXA e incentiva atletas da primeira divisão**: [Link](https://www.cob.org.br/comunicacao/noticias/athirson-prestigia-confrontos-do-futsal-feminino-nos-jogos-da-juventude-caixa-e-incentiva-atletas-da-primeira-divisao)
+- **Time feminino de futsal da IDEAU estreia nos Jogos da Juventude**: [Link](https://rdplanalto.com/time-feminino-de-futsal-da-ideau-estreia-hoje-nos-jogos-da-juventude/)
+- **Athirson acompanha o futsal feminino dos Jogos da Juventude e elogia o nível técnico das atletas**: [Link](https://lnfoficial.com.br/noticias/athirson-futsal-feminino-jogos-juventude-caixa-foz-iguacu/)
+
+
+### salaire (N/A, Mon, 2 Nov 2026 22:00:00 -0800)
+
+- **Au Maroc, la moitié des salariées déclarées à la CNSS perçoivent entre 1 000 et 3 266 dirhams par mois**: [Link](https://mobile.telquel.ma/instant-t/2026/11/02/au-maroc-la-moitie-des-salariees-declarees-a-la-cnss-percoivent-entre-1-000-et-3-266-dirhams-par-mois_2016212/)
+- **Emploi contre revenu : Les services, principal secteur pourvoyeur**: [Link](https://www.leconomiste.com/flash-infos/emploi-contre-revenu-les-services-principal-secteur-pourvoyeur/)
+- **Chômage : le taux franchit la barre des 10 % au troisième trimestre 2026**: [Link](http://ledesk.ma/encontinu/chomage-le-taux-franchit-la-barre-des-10-au-troisieme-trimestre-2026/)
+
+
+### weather (N/A, Mon, 2 Nov 2026 22:00:00 -0800)
+
+- **Kauai Weather Forecast for November 03, 2026**: [Link](https://kauainownews.com/2026/11/02/kauai-weather-forecast-for-november-03-2026/)
+- **Kauai Weather Forecast for November 01, 2026**: [Link](https://kauainownews.com/2026/10/31/kauai-weather-forecast-for-november-01-2026/)
+- **Kauai Weather Forecast for November 02, 2026**: [Link](https://kauainownews.com/2026/11/01/kauai-weather-forecast-for-november-02-2026/)
+
+
 ### محمد وهبي (N/A, Mon, 2 Nov 2026 16:40:00 -0800)
 
 - **السيد محمد وهبي يعقد ندوة صحافية**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%85%D8%AD%D9%85%D8%AF-%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B9%D9%82%D8%AF-%D9%86%D8%AF%D9%88%D8%A9-%D8%B5%D8%AD%D8%A7%D9%81%D9%8A%D8%A9)
