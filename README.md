@@ -1,3 +1,73 @@
+### fc barcelona vs aston villa standings (N/A, Tue, 3 Nov 2026 14:20:00 -0800)
+
+- **With Hamza Abdel Karim's participation: a crazy draw between Barcelona and Aston Villa in the UEFA Youth League**: [Link](https://www.goal.com/en/news/with-hamza-abdelkrim-featuring-a-crazy-draw-between-barcelona-and-aston-villa-in-the-uefa-youth-league/bltcddcb7ed1b1facf4)
+- **Ebrima Tunkara scores and assists as Barcelona rescue UEFA Youth League draw against Aston Villa**: [Link](https://www.barcablaugranes.com/barca-atletic/136960/ebrima-tunkara-uefa-youth-league-aston-villa)
+- **Cunha seals memorable Man Utd Euro fightback**: [Link](https://www.bbc.com/sport/football/live/cmj47pveql18t)
+
+
+### classement atlético madrid – bayern munich (N/A, Tue, 3 Nov 2026 14:10:00 -0800)
+
+- **Ligue des Champions 2026/2027 : Revivez le match de la 4e journée entre l'Atlético Madrid et le Bayern Munich (0-2)**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/live-atletico-de-madrid-bayern-munich_mtc21878578/live-commentary.shtml)
+- **Ligue des champions: le Bayern Munich fait plier l’Atlético Madrid**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-le-bayern-munich-fait-plier-latletico-madrid_HDRGSVANXRFPNAEYEDNR2RXWT4/)
+- **Simeone félicite Harry Kane pour le Ballon d'Or et salue son héritage pour les jeunes joueurs**: [Link](https://www.elbotola.com/fr/article/2026-11-02-13-46-239.html)
+
+
+### achraf hakimi (N/A, Tue, 3 Nov 2026 14:10:00 -0800)
+
+- **Achraf Hakimi rechaza un primer acercamiento del PSG para negociar su contrato y dilata las conversaciones**: [Link](https://es-us.noticias.yahoo.com/deportes/achraf-hakimi-rechaza-acercamiento-psg-074203041.html)
+- **Hakimi y Real Madrid: un posible reencuentro que vuelve a cobrar fuerza**: [Link](https://es.rue20.com/2026/11/02/hakimi-y-real-madrid-un-posible-reencuentro-que-vuelve-a-cobrar-fuerza/)
+- **El agente de Achraf Hakimi habla del Real Madrid**: [Link](https://www.fichajes.com/a1859646303628821603-el-agente-de-achraf-hakimi-habla-del-real-madrid)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Tue, 3 Nov 2026 14:00:00 -0800)
+
+- **لا هالاند ولا مبابي.. ثنائية مرعبة تضع يامال ورافينيا على عرش أوروبا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%88%D9%84%D8%A7-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A--%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%85%D8%B1%D8%B9%D8%A8%D8%A9-%D8%AA%D8%B6%D8%B9-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D8%B9%D9%84%D9%89-%D8%B9%D8%B1%D8%B4-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7/blt8dc2478d86423904)
+- **15 هدفاً في 11 مباراة... نجم صاعد يعادل ميسي ويطارد رقم رونالدو -...**: [Link](https://www.lbcgroup.tv/sports/sports/966194/15-%D9%87%D8%AF%D9%81%D8%A7%D9%8B-%D9%81%D9%8A-11-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%86%D8%AC%D9%85-%D8%B5%D8%A7%D8%B9%D8%AF-%D9%8A%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D9%8A%D8%B3%D9%8A-%D9%88%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%B1%D9%82%D9%85-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88/ar)
+- **برشلونة يطير بجناحي رافينيا ويامال.. شراكة تُرهق دفاعات الخصوم**: [Link](https://www.alaraby.co.uk/sport/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B7%D9%8A%D8%B1-%D8%A8%D8%AC%D9%86%D8%A7%D8%AD%D9%8A-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%88%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%B4%D8%B1%D8%A7%D9%83%D8%A9-%D8%AA%D9%8F%D8%B1%D9%87%D9%82-%D8%AF%D9%81%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D8%B5%D9%88%D9%85)
+
+
+### bet365 (N/A, Tue, 3 Nov 2026 13:50:00 -0800)
+
+- **Betfred Champions League Offer | Bet £10 Get £50 in Free Bets + Up to £5 in Free Bets if your Bet Builder loses**: [Link](https://www.live-darts.com/betting-offers/betfred-ucl-offer-nov-2026/)
+- **bet365 bonus code: Get £30 in Champions League free bets**: [Link](https://mybettingsites.co.uk/news/bet365-bonus-code-get-30-in-champions-league-free-bets-3rd-november/)
+- **Best Slots on Betfred Casino UK (2026): Top RTP Games & Jackpots**: [Link](https://www.oddschecker.com/casino/guides/best-slots-on-betfred-casino-uk-2026-top-rtp-games-jackpots)
+
+
+### لامين يامال (N/A, Tue, 3 Nov 2026 13:40:00 -0800)
+
+- **بالفيديو: بعد خطأ فادح.. يامال يحطم رقم مبابي في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B7%D8%A7%D9%94-%D9%81%D8%A7%D8%AF%D8%AD--%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D8%AD%D8%B7%D9%85-%D8%B1%D9%82%D9%85-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt229449a5feeda340)
+- **لامين يامال يقترب من تحطيم رقم مبابي القياسي في دوري الأبطال**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%8A%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%AA%D8%AD%D8%B7%D9%8A%D9%85-%D8%B1%D9%82%D9%85-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%A8%D8%B7%D8%A7%D9%84/27242)
+- **أسد على أستون فيلا ونعامة أمام ريال مدريد .. الأكذوبة التي يرددها أعداء "مرعب الصغار" لامين يامال!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%84%D8%A7%D9%85%D9%8A%D9%86-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltbf07946f6c78f550)
+
+
+### جوائز الاتحاد الافريقي لكرة القدم (N/A, Tue, 3 Nov 2026 13:20:00 -0800)
+
+- **CAF Awards 2026: Super Falcons, Christiana Uzoma, Kemi Adegbuyi lead Nigeria's nominations**: [Link](https://www.premiumtimesng.com/news/more-news/922438-caf-awards-2026-super-falcons-christiana-uzoma-kemi-adegbuyi-lead-nigerias-nominations.html)
+- **CAF Awards 2026, Romaine Gandonou nominated among the best young players**: [Link](https://beninwebtv.com/en/caf-awards-2026-romaine-gandonou-nominated-among-the-best-young-players/)
+- **2026 CAF Awards: Black Queens goalkeeper Cynthia Konlan grabs Goalkeeper of the Year nomination**: [Link](https://3news.com/sports/2026-caf-awards-black-queens-goalkeeper-cynthia-konlan-grabs-goalkeeper-of-the-year-nomination)
+
+
+### bayern (N/A, Tue, 3 Nov 2026 13:10:00 -0800)
+
+- **🤫 Nach Hate von Hoeneß und Co.: Kämpfender Karl gibt Antwort auf dem Platz**: [Link](https://onefootball.com/de/news/nach-hate-von-hoeness-und-co-kaempfender-karl-gibt-antwort-auf-dem-platz-43721042)
+- **Bayern-Startelf gegen Atletico: Klarheit bei Neuer und Olise**: [Link](https://www.fussballdaten.de/news/startelf-fc-bayern-gegen-atletico-madrid-klarheit-neuer-olise/)
+- **Atlético Madrid – FC Bayern heute im Stream, TV und Ticker? Live-Übertragung der Champions League**: [Link](https://ran.joyn.de/sports/fussball/champions-league/atletico-madrid-fc-bayern-heute-im-stream-tv-und-ticker-live-uebertragung-des-champions-league-spiels-aufstellungen-209794)
+
+
+### وفاء الكيلاني (N/A, Tue, 3 Nov 2026 13:10:00 -0800)
+
+- **تيم حسن يحسم جدل الزواج من أخرى.. ويكشف مفاجأة عن وفاء الكيلاني**: [Link](https://www.alarabiya.net/culture-and-art/2026/11/02/%D8%AA%D9%8A%D9%85-%D8%AD%D8%B3%D9%86-%D9%8A%D9%88%D8%B6%D8%AD-%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D9%84%D8%B2%D9%88%D8%A7%D8%AC-%D9%85%D9%86-%D8%A7%D9%85%D8%B1%D8%A7%D8%A9-%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D8%A9-%D8%B9%D9%86-%D9%88%D9%81%D8%A7%D8%A1-%D8%A7%D9%84%D9%83%D9%8A%D9%84%D8%A7%D9%86%D9%8A)
+- **محتوى عن الأزمة-الصحية-لمحمد-الحلو**: [Link](https://www.filfan.com/sections?contenttypeids=2&tagsids=88531&tagname=%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9-%D9%84%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%AD%D9%84%D9%88)
+- **تغطية خاصة: تيم حسن يكشف أسراراً موجعة عن شقيقه الراحل ويفتح قلبه عن وفاء الكيلاني – موقع بصراحة-موقع النجوم**: [Link](https://bisara7a.com/archives/313602)
+
+
+### manchester united (N/A, Tue, 3 Nov 2026 12:50:00 -0800)
+
+- **Champions League LIVE: Man Utd vs Roma & Barcelona vs Aston Villa - scores, commentary & updates**: [Link](https://www.bbc.com/sport/football/live/c5x2v48lvzgkt)
+- **Team news for United v Roma**: [Link](https://www.manutd.com/en/news/team-news-for-united-v-roma-3-november)
+- **Why Bruno Fernandes got a second chance after missing penalty against Roma**: [Link](https://football-italia.net/why-bruno-fernandes-2nd-chance-roma-penalty/)
+
+
 ### al-hilal – shabab al-ahli (N/A, Tue, 3 Nov 2026 09:30:00 -0800)
 
 - **Al Hilal vs Shabab Al-Ahli Lineups | AFC Champions League Elite**: [Link](https://www.ysscores.com/en/lineup/6050095/Al-Hilal-SFC-vs-Shabab-Al-Ahli-Club)
