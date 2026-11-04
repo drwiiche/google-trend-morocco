@@ -1,3 +1,73 @@
+### ayyoub bouaddi (N/A, Wed, 4 Nov 2026 14:10:00 -0800)
+
+- **Hakimi, Mané, Semenyo and Brahim Diaz headline star-studded Men's nominations for CAF Awards 2026**: [Link](https://www.cafonline.com/news/hakimi-mane-semenyo-and-brahim-diaz-headline-star-studded-mens-nominations-for-caf-awards-2026/)
+- **Hakimi, Diaz and Saibari nominated for 2026 African Player of the Year**: [Link](https://en.hespress.com/148546-hakimi-diaz-and-saibari-nominated-for-2026-african-player-of-the-year.html)
+- **Wahbi on Moroccan nominations for CAF awards: 'We will be**: [Link](https://www.elbotola.com/en/article/2026-11-04-14-13-205.html)
+
+
+### bombe (N/A, Wed, 4 Nov 2026 14:10:00 -0800)
+
+- **Alerte à la bombe : quatre vols à destination de l’Europe visés par de fausses menaces**: [Link](https://fr.hespress.com/494968-alerte-a-la-bombe-quatre-vols-a-destination-de-leurope-vises-par-de-fausses-menaces.html)
+- **Alerte à la bombe dans un avion transportant des lycéens juifs britanniques**: [Link](https://israj.media-j.com/article/73644/alerte-a-la-bombe-dans-un-avion-transportant-des-lyceens-juifs-britanniques)
+- **SAS affirme qu’un avion a atterri sans encombre à Varsovie après une menace**: [Link](https://www.zonebourse.com/actualite-bourse/sas-affirme-qua-un-avion-a-atterri-sans-encombre-a-varsovie-apres-une-menace-ce785fd9d08ff52d)
+
+
+### lens vs como (N/A, Wed, 4 Nov 2026 14:00:00 -0800)
+
+- **Lens vs. Como (Nov 4, 2026) Team Stats**: [Link](https://www.espn.com/soccer/team-stats/_/gameId/401915305/league/uefa.champions)
+- **Jerzy Robinson's lob attempt ends up going in for a South Carolina trey**: [Link](https://www.espn.com/video/clip/_/id/50359520)
+- **NBA Today - Texas Takeoff**: [Link](https://www.espn.com/espnradio/play?id=50381914)
+
+
+### como (N/A, Wed, 4 Nov 2026 13:30:00 -0800)
+
+- **Show histórico de Cesc y Nico Paz**: [Link](https://as.com/futbol/champions/show-historico-de-cesc-y-nico-paz-f202611-n/)
+- **😱 ¿Rumbo a una goleada récord? ¡El debutante de Champions se desata!**: [Link](https://onefootball.com/es/noticias/rumbo-a-una-goleada-record-el-debutante-de-champions-se-desata-43727087)
+- **1-9. El Como firma una noche histórica**: [Link](https://www.infobae.com/america/agencias/2026/11/04/1-9-el-como-firma-una-noche-historica/)
+
+
+### dortmund (N/A, Wed, 4 Nov 2026 13:30:00 -0800)
+
+- **Champions League - Dortmund feiert dritten Sieg in der Königsklasse - Leipzig verliert**: [Link](https://www.deutschlandfunk.de/dortmund-feiert-dritten-sieg-in-der-koenigsklasse-leipzig-verliert-100.html)
+- **BVB-Empfang für Bartra: «Einmal Borusse, immer Borusse»**: [Link](https://live.vodafone.de/news/sport/championsleague/bvb-empfang-fuer-bartra-einmal-borusse-immer-borusse/13282840)
+- **Ricken über Sabitzer: "Gehen davon aus, dass er bald wieder fit ist"**: [Link](https://www.skysportaustria.at/mediathek/ricken-ueber-sabitzer-gehen-davon-aus-dass-er-bald-wieder-fit-ist/)
+
+
+### elections usa mi mandat (N/A, Wed, 4 Nov 2026 13:20:00 -0800)
+
+- **EN DIRECT, midterms 2026 : dans son premier discours après une défaite historique, Trump parle de sa salle de bal à la Maison Blanche**: [Link](https://www.lemonde.fr/international/live/2026/11/04/en-direct-midterms-2026-dans-son-premier-discours-apres-une-defaite-historique-trump-parle-de-sa-salle-de-bal-a-la-maison-blanche_6805528_3210.html)
+- **Défaite des républicains au Congrès : quels enjeux pour l'Europe et les marchés ?**: [Link](https://fr.euronews.com/2026/11/04/defaite-de-trump-aux-midterms-americains-impact-sur-leurope-et-les-marches)
+- **EN DIRECT Midterms 2026 : Trump prédit la destruction du Parti démocrate s’il tente de le destituer...**: [Link](https://www.20minutes.fr/monde/etats-unis/4259880-20261104-direct-midterms-2026-maison-blanche-tente-exonerer-trump-defaite-annonce)
+
+
+### aéroport (N/A, Wed, 4 Nov 2026 13:10:00 -0800)
+
+- **L’aéroport de Smara pourra accueillir des Boeing 737**: [Link](http://ledesk.ma/encontinu/laeroport-de-smara-pourra-accueillir-des-boeing-737/)
+- **Marrakech à moins d’une heure de l’aéroport Mohammed-V : Le projet qui change la donne**: [Link](https://fr.hespress.com/495045-marrakech-a-moins-dune-heure-de-laeroport-mohammed-v-le-projet-qui-change-la-donne.html)
+- **Zones logistiques : plus de 750 hectares à aménager à l'horizon 2028 dans 12 régions**: [Link](https://medias24.com/2026/11/04/zones-logistiques-plus-de-750-hectares-a-amenager-a-lhorizon-2028-dans-12-regions-1787769/)
+
+
+### فرنسا (N/A, Wed, 4 Nov 2026 13:00:00 -0800)
+
+- **الردود على الانتخابات الأمريكية.. آمال أوروبية حذرة وموسكو تقلل من التداعيات**: [Link](https://www.aljazeera.net/news/2026/11/5/%D8%A7%D9%84%D8%B1%D8%AF%D9%88%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%A2%D9%85%D8%A7%D9%84)
+- **من إيران إلى أوروبا مرورا بروسيا... أبرز ردود الفعل إثر فوز الديمقراطيين بالانتخابات النصفية**: [Link](https://www.france24.com/ar/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7/20261104-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%B5%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D8%B1%D8%AF%D9%88%D8%AF-%D9%81%D8%B9%D9%84-%D8%B3%D9%8A%D8%A7%D8%B3%D9%8A%D9%88%D9%86-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%AD%D8%B2%D8%A8-%D8%A7%D9%84%D8%AF%D9%8A%D9%85%D9%82%D8%B1%D8%A7%D8%B7%D9%8A-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1%D9%8A-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8)
+- **اليسار الفرنسي يحتفي بـ"انتكاسة ترامب"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%8A%D8%B3%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D9%80%D8%A7%D9%86%D8%AA%D9%83%D8%A7%D8%B3%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-1834490.html)
+
+
+### city (N/A, Wed, 4 Nov 2026 13:00:00 -0800)
+
+- **39 jobs cut as Student Transport of America permanently closes Manitowoc site**: [Link](https://fox11online.com/news/local/39-jobs-cut-as-student-transport-of-america-permanently-closes-manitowoc-site)
+- **Manitowoc To Bring Paratransit Services In-House Through Maritime Metro**: [Link](https://www.seehafernews.com/2026/11/04/manitowoc-to-bring-paratransit-services-in-house-through-maritime-metro/)
+- **City says contract with Assist-to-Transport expires at end of 2026; Public Works Committee expected to take up plan Thursday**: [Link](https://www.wbay.com/2026/11/03/city-says-contract-with-assist-to-transport-expires-end-2026-public-works-committee-expected-take-up-plan-thursday/)
+
+
+### raja club athletic (N/A, Wed, 4 Nov 2026 12:50:00 -0800)
+
+- **Botola : la valse des entraîneurs s’accélère, Paco Jémez quitte le Raja et Rui Almeida sur le départ au MAS**: [Link](https://lematin.ma/sports/botola-paco-jemez-quitte-le-raja-et-rui-almeida-sur-le-depart-au-mas/373828)
+- **Foot : le Raja de Casablanca met fin au contrat de son entraîneur espagnol Paco Jémez**: [Link](https://mobile.telquel.ma/instant-t/2026/11/02/foot-le-raja-de-casablanca-met-fin-au-contrat-de-son-entraineur-espagnol-paco-jemez_2016321/)
+- **Le Raja met fin aux fonctions de son directeur sportif**: [Link](https://radiomars.ma/fr/?p=7567)
+
+
 ### fenerbahçe vs liverpool (N/A, Wed, 4 Nov 2026 09:10:00 -0800)
 
 - **Team news: Confirmed Liverpool line-up v Fenerbahce**: [Link](https://www.liverpoolfc.com/news/team-news-confirmed-liverpool-line-up-v-fenerbahce)
