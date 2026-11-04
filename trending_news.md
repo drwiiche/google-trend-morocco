@@ -1,3 +1,73 @@
+### fenerbahçe vs liverpool (N/A, Wed, 4 Nov 2026 09:10:00 -0800)
+
+- **Team news: Confirmed Liverpool line-up v Fenerbahce**: [Link](https://www.liverpoolfc.com/news/team-news-confirmed-liverpool-line-up-v-fenerbahce)
+- **10 visits, 0 clean sheets: Iraola’s chance to end bizarre Turkish hoodoo**: [Link](https://www.thisisanfield.com/2026/11/liverpool-fenerbahce-turkish-clean-sheet-hoodoo-stats-preview/)
+- **When will Liverpool's star return after the sudden injury? Arteta responds**: [Link](https://www.goal.com/en/news/when-will-the-liverpool-star-return-after-the-sudden-injury-iraola-responds/blt6a223d45e3affb24)
+
+
+### aek athènes – real madrid (N/A, Wed, 4 Nov 2026 09:00:00 -0800)
+
+- **AEK Athènes - Real Madrid : les compositions officielles**: [Link](https://www.footmercato.net/a1496462945354226622-aek-athenes-real-madrid-les-compositions-officielles)
+- **Mourinho évoque les différences entre un éventuel sacre en**: [Link](https://www.elbotola.com/fr/article/2026-11-03-20-40-891.html)
+- **[[DIRECT/LIVE]] Ligue des champions 2026 En Direct Streaming 28.07.2026**: [Link](https://interaktiv.tagesanzeiger.ch/2016/plaine-morte/panos/camp/camp.html?&xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Imh0dHBzOi8vYW5nZWxkYWluYTYuZ2l0aHViLmlvL3NhLnNwb3J0cy9zcHMueG1sIi8+PC9rcnBhbm8+&id=video-ligue-des-champions-2026-liv-str-ytnisel)
+
+
+### أيك ضد الريال (N/A, Wed, 4 Nov 2026 09:00:00 -0800)
+
+- **عودة فينيسيوس واستبعاد فالفيردي.. مورينيو يعلن تشكيل ريال مدريد لمباراة آيك أثينا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%88%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%81%D8%A7%D9%84%D9%81%D9%8A%D8%B1%D8%AF%D9%8A--%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D9%8A%D9%83-%D8%A7%D9%94%D8%AB%D9%8A%D9%86%D8%A7/bltfc50e1b3bfdce58a)
+- **مباشر.. مباراة أيك أثينا وريال مدريد في دوري أبطال أوروبا 2026-2027**: [Link](https://www.aljazeera.net/blogs/2026/11/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%8A%D9%83-%D8%A3%D8%AB%D9%8A%D9%86%D8%A7-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A)
+- **حسب «ماركا».. دياز مرشح للعودة إلى التشكيلة الأساسية لريال مدريد أمام أيك أثينا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%85%D8%A7%D8%B1%D9%83%D8%A7-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%84%D8%B9%D8%A8-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A7-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%8A%D9%83-%D8%A3%D8%AB%D9%8A%D9%86%D8%A7/27366)
+
+
+### aek vs real madrid (N/A, Wed, 4 Nov 2026 09:00:00 -0800)
+
+- **Vinicius returns and changes are expected.. Real Madrid's predicted lineup against AEK Athens**: [Link](https://www.voiceofemirates.com/en/sport/2026/11/04/vinicius-returns-and-changes-are-expected-real-madrids-predicted-lineup-against-aek-athens/)
+- **Vinícius returns and Valverde left out: Mourinho announces Real Madrid line-up for AEK Athens clash**: [Link](https://www.goal.com/en/news/vinicius-returns-and-valverde-left-out-mourinho-announces-real-madrid-line-up-for-aek-athens-clash/bltfc50e1b3bfdce58a)
+- **Real Madrid's starting lineup against AEK Athens**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/once-inicial-del-real-madrid-ante-el-aek-de-atenas-04-11-2026)
+
+
+### novak djokovic (N/A, Wed, 4 Nov 2026 07:20:00 -0800)
+
+- **Djokovic battles past Vacherot in Paris, maintains Turin hopes**: [Link](https://www.atptour.com/en/news/djokovic-vacherot-paris-2026-tuesday)
+- **First round: Turin in sight**: [Link](https://www.rolexparismasters.com/en/news/article/first-round-djokovic-paul-michelsen-fritz-struff-wins-race-to-atp-finals)
+- **Video : Novak Djokovic defeats Valentin Vacherot at 2026 Hard-Court Tournament – Round 1**: [Link](https://en.tennistemple.com/video/novak-djokovic-defeats-valentin-vacherot-at-2026/2bSJE)
+
+
+### pmu (N/A, Wed, 4 Nov 2026 07:20:00 -0800)
+
+- **PRIX PMU LE DRIVER - NANTES - 04/11/2026 : partants, pronostics et résultats en vidéos - Course 4**: [Link](https://www.equidia.fr/courses/2026-11-04/R1/C4)
+- **C4 Prix PMU Le Driver (Prix PMU Le News)**: [Link](https://www.paris-turf.com/course/1685760)
+- **12e étape du GNT**: [Link](https://www.pmu.fr/point-de-vente/cote-courses/gnt-etape-12-nantes-promo/)
+
+
+### rennes – olympiakos (N/A, Wed, 4 Nov 2026 07:00:00 -0800)
+
+- **Rennes - Olympiakos Pirée : compositions probables, chaîne TV et heure (4 novembre, Ligue Europa)**: [Link](https://www.befoot.net/rennes-olympiakos-piree-compos-probables-chaine-tv-heure/)
+- **French League adjusts kick-off times for Auxerre and Paris Saint-Germain matches**: [Link](https://www.elbotola.com/en/article/2026-11-04-14-02-393.html)
+- **Rennes vs Olympiakos: Lineups, Prediction, Odds & Bet Builder Tip**: [Link](https://www.whoscored.com/articles/9R7Yq0NES0GO-g6wEtfM5Q/show/cng111-20261104-rennes-vs-olympiakos-prediction-1793777795)
+
+
+### zelda ocarina of time (N/A, Wed, 4 Nov 2026 06:50:00 -0800)
+
+- **Review: The Legend of Zelda: Ocarina of Time remake is superb, streamlined and safe**: [Link](https://www.npr.org/2026/11/04/nx-s1-6026597/review-legend-of-zelda-ocarina-of-time-remake-switch-2)
+- **The Legend of Zelda: Ocarina of Time review – a dream come true**: [Link](https://www.theguardian.com/games/2026/nov/04/the-legend-of-zelda-ocarina-of-time-review-nintendo-switch)
+- **Review | A worthy Zelda remake proves ‘Ocarina of Time’ is still a masterpiece**: [Link](https://www.washingtonpost.com/entertainment/video-games/2026/11/04/worthy-zelda-remake-proves-ocarina-time-is-still-masterpiece/)
+
+
+### لويس إنريكي (N/A, Wed, 4 Nov 2026 06:10:00 -0800)
+
+- **إنريكي ينفجر بسبب واقعة حكيمي: ما حدث مهزلة.. هل نمارس لعبة أطفال؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D9%86%D9%81%D8%AC%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%85%D9%87%D8%B2%D9%84%D8%A9--%D9%87%D9%84-%D9%86%D9%85%D8%A7%D8%B1%D8%B3-%D9%84%D8%B9%D8%A8%D8%A9-%D8%A7%D9%94%D8%B7%D9%81%D8%A7%D9%84/blt050a52e0d0f47190)
+- **في 16 دقيقة.. سان جيرمان يحطم رقما قياسيا في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/11/4/%D9%81%D9%8A-16-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D8%B7%D9%85-%D8%B1%D9%82%D9%85%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A7)
+- **باريس سان جيرمان يتوهج بسداسية نظيفة في ملعب فياريال**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AA%D9%88%D9%87%D8%AC-%D8%A8%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9-%D9%86%D8%B8%D9%8A%D9%81%D8%A9-%D9%81%D9%8A-%D9%85%D9%84%D8%B9%D8%A8-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84-2026-11-03)
+
+
+### المسيرة الخضراء (N/A, Wed, 4 Nov 2026 05:40:00 -0800)
+
+- **الملك محمد السادس يترأس جلسة عمل لمتابعة ما بعد انتهاء مهام "المينورسو"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%AA%D8%B1%D8%A3%D8%B3-%D8%AC%D9%84%D8%B3%D8%A9-%D8%B9%D9%85%D9%84-%D9%84%D9%85%D8%AA%D8%A7%D8%A8-1834576.html)
+- **الملك يترأس جلسة خاصة لمتابعة مرحلة ما بعد انتهاء مهام « المينورسو » في الصحراء (الديوان الملكي) – اليوم 24**: [Link](https://alyaoum24.com/2055334.html)
+- **زمن البعثة … دفنا الماضي**: [Link](https://assabah.ma/960249.html)
+
+
 ### 2026 us election results (N/A, Tue, 3 Nov 2026 17:40:00 -0800)
 
 - **U.S. House Midterm Election Live Results 2026**: [Link](https://www.nbcnews.com/politics/2026-elections/house-results)
