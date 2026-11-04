@@ -1,3 +1,73 @@
+### 2026 us election results (N/A, Tue, 3 Nov 2026 17:40:00 -0800)
+
+- **U.S. House Midterm Election Live Results 2026**: [Link](https://www.nbcnews.com/politics/2026-elections/house-results)
+- **Democrats aim to retake Senate from Republicans as Americans go to polls**: [Link](https://www.theguardian.com/us-news/2026/nov/03/democrats-senate-midterm-elections-results)
+- **2026 Midterm Elections Live Updates: Democrats Win Senate Races in Georgia and North Carolina**: [Link](https://www.nytimes.com/live/2026/11/03/us/midterms-2026-election-day-trump)
+
+
+### مباراة التعليم (N/A, Tue, 3 Nov 2026 16:00:00 -0800)
+
+- **بنعبد الله: سقف مباريات التعليم 40 سنة**: [Link](https://www.hespress.com/%D8%A8%D9%86%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D8%B3%D9%82%D9%81-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-40-%D8%B3%D9%86%D8%A9-1833840.html)
+- **تثقل كاهل ميزانية الدولة.. دعوة إلى إصلاح المؤسسات والمقاولات العمومية**: [Link](https://ar.telquel.ma/%D8%A8%D9%86%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D9%84%D8%B1%D9%81%D8%B9-%D8%B3%D9%86-%D9%88%D9%84%D9%88%D8%AC-%D8%A7%D9%84%D8%AA/)
+- **وزارة بن عبد الله تعلن مستجدات مباريات تكوين أطر التدريس**: [Link](https://madar21.com/463850.html)
+
+
+### democratic party (N/A, Tue, 3 Nov 2026 14:50:00 -0800)
+
+- **When was the last time Florida elected a Democratic governor?**: [Link](https://www.floridatoday.com/story/news/politics/elections/2026/11/03/how-many-democrat-governors-florida-elected-list-election-day/92591613007/)
+- **State Elections 2026 Results: Key Races to Watch Tonight**: [Link](https://www.multistate.us/insider/2026/11/3/state-elections-to-watch-closely-tonight)
+- **Detroit Free Press. . Dispatch Opinion and Engagement Editor Amelia Robinson speaks with opinion editors from the Akron Beacon Journal and the Detroit Free Press.**: [Link](https://www.facebook.com/detroitfreepress/videos/whats-happening-on-election-night-in-ohio-and-michigan/1677501847401765/)
+
+
+### pluie (N/A, Tue, 3 Nov 2026 14:50:00 -0800)
+
+- **Météo : pluies orageuses à partir de mercredi sur le Sud-Est**: [Link](https://meteofrance.com/actualites/meteo-temperatures-en-baisse-degradation-pluvio-orageuse-a-partir-de-mercredi-par-le-sud)
+- **Jusqu'à 150 mm en 48 heures : Un épisode méditerranéen attendu dès ce mardi 3 novembre avec de forts cumuls**: [Link](https://www.lindependant.fr/2026/11/02/jusqua-150-mm-en-48-heures-un-episode-mediterraneen-attendu-des-ce-mardi-3-novembre-avec-de-forts-cumuls-13632038.php)
+- **Goutte froide sur la France ces prochains jours : à quoi faut-il s'attendre ?**: [Link](https://www.tameteo.com/actualites/previsions/goutte-froide-sur-la-france-ces-prochains-jours-a-quoi-faut-il-s-attendre-meteo-previsions-intemperies.html)
+
+
+### atlético madrid vs bayern munich standings (N/A, Tue, 3 Nov 2026 14:40:00 -0800)
+
+- **Atletico Madrid 0-2 Bayern Munich: Karl Lennart and Konrad Laimer goals give visitors win**: [Link](https://www.bbc.com/sport/football/live/cmy0r2lw77r1t)
+- **Atlético 0-2 Bayern (Nov 3, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401915386)
+- **Three Observations from the way Bayern Munich dismantled Atlético Madrid**: [Link](https://www.bavarianfootballworks.com/bayern-munich-match-observations/277037/atletico-madrid-vs-bayern-munich-match-observations-analysis-champions-league-harry-kane-michael-olise-simeone)
+
+
+### ترتيب دوري ابطال اوروبا (N/A, Tue, 3 Nov 2026 14:30:00 -0800)
+
+- **دوري أبطال أوروبا.. برشلونة وسان جيرمان يكتسحان وبايرن يهزم أتلتيكو ومانشستر يونايتد يقلب الطاولة على روما**: [Link](https://www.aljazeera.net/sport/2026/11/4/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+- **جدول مباريات اليوم الثلاثاء 3 نوفمبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-3-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2026--%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/bltf2ac139797232fa6)
+- **انتصارات أوروبية لبرشلونة وبايرن ميونيخ ومانشستر يونايتد**: [Link](https://www.skynewsarabia.com/sport/1902506-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%84%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D9%8A%D8%AE-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF)
+
+
+### abdul el-sayed (N/A, Tue, 3 Nov 2026 14:20:00 -0800)
+
+- **Michigan U.S. Senate Election 2026 Live Results: Abdul El-Sayed vs. Mike Rogers**: [Link](https://www.nbcnews.com/politics/2026-elections/michigan-senate-results)
+- **Michigan U.S. Senate 2026: Live Midterm Election Results, El-Sayed vs. Rogers**: [Link](https://www.nytimes.com/interactive/2026/11/03/us/elections/results-michigan-us-senate.html)
+- **Michigan General Election Results 2026**: [Link](https://www.michiganpublic.org/politics-government/2026-11-03/michigan-election-results-2026)
+
+
+### classement man utd – as roma (N/A, Tue, 3 Nov 2026 14:20:00 -0800)
+
+- **Ligue des champions: Manchester United repousse la crise avec une nuit de folie**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-manchester-united-renverse-la-roma-3-2-et-repousse-la-crise_KACWOF4GLJFNDEBOWBX7B2POYA/)
+- **La Roma contrainte d’aligner son troisième gardien face à Manchester United après l’échec de Pierluigi Gollini à un test physique de dernière minute**: [Link](https://www.goal.com/fr/news/la-roma-contrainte-d-aligner-son-troisieme-gardien-face-a-manchester-united-apres-l-echec-de-pierluigi-gollini-a-un-test-physique-de-derniere-minute/blt7a410468c756a952)
+- **Résultats footballistiques du 4 novembre : matchs passionnants de Ligue des champions, rencontre dramatique entre Manchester United et la Roma.**: [Link](https://www.vietnam.vn/fr/ket-qua-bong-da-hom-nay-4-11-soi-dong-cup-c1-kich-tinh-mu-vs-roma)
+
+
+### uefa champions league (N/A, Tue, 3 Nov 2026 14:20:00 -0800)
+
+- **Licensable picture: Atletico Madrid v Bayern Munich - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/atletico-madrid-v-bayern-munich-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwTVVDVU42)
+- **Licensable picture: Atletico Madrid v Bayern Munich - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/atletico-madrid-v-bayern-munich-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwTVVDVU44)
+- **Licensable picture: Villarreal CF v PSG - UEFA Champions League**: [Link](https://www.reutersconnect.com/item/villarreal-cf-v-psg-uefa-champions-league/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwTVVDVVFM)
+
+
+### classement villarreal – paris saint-germain football club (N/A, Tue, 3 Nov 2026 14:10:00 -0800)
+
+- **Villarreal 0-6 PSG, Ligue des champions : Les Parisiens font valoir leur rang**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-champions/2026-2027/villarreal-psg-live/702078)
+- **Ligue des champions: Paris en démonstration, Manchester United renversant**: [Link](https://fr.hespress.com/495003-ligue-des-champions-paris-en-demonstration-manchester-united-renversant.html)
+- **Ligue des Champions : la presse espagnole choquée par le PSG !**: [Link](https://www.footmercato.net/a4444300058868048292-ligue-des-champions-la-presse-espagnole-choquee-par-le-psg)
+
+
 ### fc barcelona vs aston villa standings (N/A, Tue, 3 Nov 2026 14:20:00 -0800)
 
 - **With Hamza Abdel Karim's participation: a crazy draw between Barcelona and Aston Villa in the UEFA Youth League**: [Link](https://www.goal.com/en/news/with-hamza-abdelkrim-featuring-a-crazy-draw-between-barcelona-and-aston-villa-in-the-uefa-youth-league/bltcddcb7ed1b1facf4)
