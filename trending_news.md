@@ -1,3 +1,72 @@
+### air france (N/A, Thu, 5 Nov 2026 14:10:00 -0800)
+
+- **Un Marocain embarque à Casablanca avec un faux document : une mauvaise reproduction sauve Air France de 10 000 €**: [Link](https://www.bladi.net/marocain-embarque-casablanca-faux-document-mauvaise-reproduction-sauve,124801.html)
+- **Après un été réussi, Air France-KLM veut sabrer dans les coûts de KLM**: [Link](https://medias24.com/agence-presse/apres-un-ete-reussi-air-france-klm-veut-sabrer-dans-les-couts-de-klm/)
+- **Grâce à sa montée en gamme vers le premium et à la maîtrise de ses coûts, Air France-KLM pulvérise les attentes et bondit de 12,8% en Bourse**: [Link](https://www.tradingsat.com/actualites/informations-societes/grace-a-sa-montee-en-gamme-vers-le-premium-et-a-la-maitrise-de-ses-couts-air-france-klm-pulverise-les-attentes-et-bondit-de-128-en-bourse-1173227.html)
+
+
+### om (N/A, Thu, 5 Nov 2026 14:10:00 -0800)
+
+- **Drie woningen ontruimd in Eibergen vanwege uitslaande brand**: [Link](https://www.ad.nl/berkelland/drie-woningen-ontruimd-in-eibergen-vanwege-uitslaande-brand~a1a9f764/)
+- **Vrouw rent brandende woning in om honden te redden in Eibergen**: [Link](https://www.tubantia.nl/112-nieuws-berkelland/vrouw-rent-brandende-woning-in-om-honden-te-redden-in-eibergen~a1a9f764/)
+- **Woningbrand in Eibergen**: [Link](https://alarmeringen.nl/gelderland/noord-en-oost-gelderland/eibergen/56061144/p2000-woningbrand-in-eibergen.html)
+
+
+### نادي ستراسبورغ (N/A, Thu, 5 Nov 2026 12:00:00 -0800)
+
+- **تشيلسي الأقرب إلى جسيم.. وستراسبورغ يرفض رحيله شتاءً ويحدد قيمته**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%B3%D8%AA%D8%B1%D8%A7%D8%B3%D8%A8%D9%88%D8%B1%D8%BA-%D9%8A%D8%AD%D8%AF%D8%AF-25-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%AC%D8%B3%D9%8A%D9%85-%D8%A5%D9%84%D9%89-%D8%AA%D8%B4%D9%8A%D9%84%D8%B3%D9%8A/27369)
+- **حكيمي وجسيم يزينان التشكيلة المثالية لـ”ليغ 1″**: [Link](https://radiomars.ma/%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%88%D8%AC%D8%B3%D9%8A%D9%85-%D9%8A%D8%B2%D9%8A%D9%86%D8%A7%D9%86-%D8%A7%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D9%85%D8%AB%D8%A7%D9%84%D9%8A%D8%A9/)
+- **ثلاثي مغربي في التشكيلة المثالية للجولة التاسعة من الدوري الفرنسي**: [Link](https://alaoual.com/sport/500265.html)
+
+
+### الشيخة الطراكس (N/A, Thu, 5 Nov 2026 12:00:00 -0800)
+
+- **8 أشهر حبسا نافذا و120 ألف درهم تعويضا.. القضاء يدين المدعوة "الشيخة طراكس"**: [Link](https://barlamane.com/8-%D8%A3%D8%B4%D9%87%D8%B1-%D8%AD%D8%A8%D8%B3%D8%A7-%D9%86%D8%A7%D9%81%D8%B0%D8%A7-%D9%88120-%D8%A3%D9%84%D9%81-%D8%AF%D8%B1%D9%87%D9%85-%D8%AA%D8%B9%D9%88%D9%8A%D8%B6%D8%A7-%D8%A7%D9%84%D9%82%D8%B6/)
+- **مراكش: 8 أشهر حبسا نافذا في حق “الشيخة الطراكس” وزوجة شقيقها وتعويض مدني بـ12 مليون سنتيم**: [Link](https://al3omk.com/1206827.html)
+- **ديابوراما: في جلسة امتدت إلى منتصف الليل.. ابتدائية مراكش تحسم ملف «الشيخة الطراكس» بالحبس النافذ**: [Link](https://ar.le360.ma/people/ZFSZ25KSU5H3LHQ2PIQG5HOORI/)
+
+
+### délestage électrique (N/A, Thu, 5 Nov 2026 11:50:00 -0800)
+
+- **Des délestages électriques frappent le réseau national - Médias24 - Numéro un de l'information économique marocaine**: [Link](https://medias24.com/2026/11/05/des-delestages-electriques-frappent-le-reseau-national-1788240/)
+- **Électricité : face aux délestages, l’ONEE fait appel à OCP pour alimenter le réseau national**: [Link](https://medias24.com/2026/11/05/delestages-electricite-ocp-onee-1788195/)
+
+
+### az – juventus (N/A, Thu, 5 Nov 2026 11:30:00 -0800)
+
+- **Dove vedere Alkmaar-Juventus in diretta tv e in streaming: canali, data, orario e formazioni**: [Link](https://www.goal.com/it/notizie/dove-vedere-alkmaar-juventus-diretta-tv-streaming-online/blt0c51b170e9bf5582)
+- **AZ-Juve, il confronto tra i fratelli Koopmeiners: ricordi, rivalità e un libro per beneficenza**: [Link](https://www.lavocedivenezia.it/az-juve-il-confronto-tra-i-fratelli-koopmeiners-ricordi-rivalita-e-un-libro-per-beneficenza/)
+- **Kolo Muani: "Ottima partita. Orgoglioso per la prestazione"**: [Link](https://sport.sky.it/calcio/europa-league/video/2026/11/05/az-alkmaar-juventus-kolo-muani-intervista-1137795)
+
+
+### getafe – brighton (N/A, Thu, 5 Nov 2026 11:30:00 -0800)
+
+- **Getafe 1-0 Brighton: resumen, goles y resultado**: [Link](https://as.com/futbol/getafe-brighton-en-directo-uefa-conference-league-hoy-en-vivo-f202611-d/)
+- **Pese a todo, las cuentas salen**: [Link](https://www.marca.com/futbol/getafe/2026/11/05/pese-cuentas-salen.html)
+- **El Getafe espera un recibimiento hostil al Albion en la Conference League**: [Link](https://onefootball.com/es/noticias/el-getafe-espera-un-recibimiento-hostil-al-albion-en-la-conference-league-43731420)
+
+
+### ac milan (N/A, Thu, 5 Nov 2026 11:30:00 -0800)
+
+- **AC Milan vs Ferencváros: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c69vz2ey82grt)
+- **Licensable picture: AC Milan V Ferencvarosi TC - UEFA Europa League 2026/27 League Phase**: [Link](https://www.reutersconnect.com/item/ac-milan-v-ferencvarosi-tc-uefa-europa-league-202627-league-phase/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMDg3UkY3Mg)
+- **✅ Milan and Atalanta line-ups: Rabiot in! Scamacca, Cisse and Ramos…**: [Link](https://onefootball.com/en/news/milan-and-atalanta-line-ups-rabiot-in-scamacca-cisse-and-ramos-43731482)
+
+
+### leverkusen – marseille (N/A, Thu, 5 Nov 2026 11:20:00 -0800)
+
+- **Avec un bijou d'Amine Gouiri, l'OM l'emporte à Leverkusen et se relance en Ligue Europa**: [Link](https://www.lequipe.fr/Football/Actualites/Avec-un-bijou-d-amine-gouiri-l-om-l-emporte-a-leverkusen-et-se-relance-en-ligue-europa/1741488)
+- **Ligue Europa: l’OM se relance après sa victoire à Leverkusen**: [Link](https://sport.le360.ma/football/europa-league/ligue-europa-lom-se-relance-apres-sa-victoire-a-leverkusen_6S5OO3MNEBCYHA6EUFW6GOCNXE/)
+- **OM : le groupe pour le choc face au Bayer Leverkusen**: [Link](https://www.footmercato.net/a3368991619284182975-om-le-groupe-pour-le-choc-face-au-bayer-leverkusen)
+
+
+### celta vigo – union saint-gilloise (N/A, Thu, 5 Nov 2026 11:20:00 -0800)
+
+- **Celta Vigo vs Union Saint-Gilloise: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqr7yx825rrjt)
+- **Licensable picture: UK: Real Celta v Union SG, EuropaLeague, 5 November 2026**: [Link](https://www.reutersconnect.com/item/uk-real-celta-v-union-sg-europaleague-5-november-2026/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBOREU5UjI)
+- **Football Bet of the Day: James Milton has a 13-10 selection from the Europa League**: [Link](https://www.racingpost.com/sport/football-tips/europa-league/football-bet-of-the-day-for-thursday-november-5-avia77x5km7f/)
+
+
 ### crystal palace – hoffenheim (N/A, Thu, 5 Nov 2026 09:30:00 -0800)
 
 - **Hoffenheim’s Oliver Baumann addresses squad injury crisis ahead of Crystal Palace clash**: [Link](https://www.getfootballnewsgermany.com/2026/hoffenheim-palace-injuries/)
