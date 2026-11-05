@@ -1,3 +1,31 @@
+### نهاية العالم (N/A, Wed, 4 Nov 2026 16:40:00 -0800)
+
+- **حددت نهاية العالم 13 نوفمبر 2026.. قصة نبوءة علمية مفزعة عمرها 66 عاماً**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/11/04/%D8%AD%D8%AF%D8%AF%D8%AA-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-13-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2026-%D9%82%D8%B5%D8%A9-%D9%86%D8%A8%D9%88%D8%A1%D8%A9-%D8%B9%D9%84%D9%85%D9%8A%D8%A9-%D9%85%D9%81%D8%B2%D8%B9%D8%A9-%D8%B9%D9%85%D8%B1%D9%87%D8%A7-66-%D8%B9%D8%A7%D9%85%D8%A7-)
+- **"هل ندفع الفواتير؟".. شائعة نهاية العالم في 13 نوفمبر 2026 تشعل المنصات**: [Link](https://www.aljazeera.net/misc/2026/11/4/%D9%87%D9%84-%D9%86%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D9%81%D9%88%D8%A7%D8%AA%D9%8A%D8%B1-%D8%B4%D8%A7%D8%A6%D8%B9%D8%A9-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **نهاية العالم.. من نبوءات المايا إلى 13 نوفمبر 2026.. أشهر المواعيد التي أثارت رعب البشرية**: [Link](https://www.voiceofemirates.com/lifestyle/2026/11/05/%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%86%D8%A8%D9%88%D8%A1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%A7%D9%8A%D8%A7-%D8%B1%D8%B9%D8%A8-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1%D9%8A/)
+
+
+### botafogo – atlético mineiro (N/A, Wed, 4 Nov 2026 16:30:00 -0800)
+
+- **Domínguez vai com time alternativo contra o Botafogo; veja provável escalação**: [Link](https://tmc.com.br/esporte/dominguez-vai-com-time-alternativo-contra-o-botafogo-veja-provavel-escalacao/)
+- **CBF causa desfalque no Atlético-MG**: [Link](https://www.terra.com.br/esportes/atletico-mg/cbf-causa-desfalque-no-atletico-mg,9634bc0a7d9477e15110807f5760b536xk62dfsm.html)
+- **Éverson volta a jogar pelo Atlético-MG após dois meses lesionado**: [Link](https://www.metropoles.com/esportes/everson-volta-a-jogar-pelo-atletico-mg-apos-dois-meses-lesionado)
+
+
+### درك (N/A, Wed, 4 Nov 2026 15:20:00 -0800)
+
+- **سائق سيارة يدهس دركيا ويلوذ بالفرار**: [Link](https://www.hespress.com/%D8%B3%D8%A7%D8%A6%D9%82-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D9%8A%D8%AF%D9%87%D8%B3-%D8%AF%D8%B1%D9%83%D9%8A%D8%A7-%D9%88%D9%8A%D9%84%D9%88%D8%B0-%D8%A8%D8%A7%D9%84%D9%81%D8%B1%D8%A7%D8%B1-1834796.html)
+- **خنيفرة.. سائق سيارة مكتراة يدهس دركيا بأيت إسحاق ويفر إلى وجهة مجهولة**: [Link](https://al3omk.com/1206722.html)
+- **دهس دركي بخنيفرة: سائق مكتراة يفر بعد صدم دورية الدرك الملكي**: [Link](https://aljareeda.net/96142-%D8%AF%D9%87%D8%B3-%D8%AF%D8%B1%D9%83%D9%8A-%D8%A8%D8%AE%D9%86%D9%8A%D9%81%D8%B1%D8%A9-%D8%B3%D8%A7%D8%A6%D9%82-%D9%85%D9%83%D8%AA%D8%B1%D8%A7%D8%A9-%D9%8A%D9%81%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%B5%D8%AF.html)
+
+
+### classement rb leipzig – manchester city (N/A, Wed, 4 Nov 2026 14:20:00 -0800)
+
+- **Ligue des Champions : Manchester City s’en sort de justesse, Porto pousse Allegri vers la sortie, Arsenal encore invaincu**: [Link](https://www.footmercato.net/a5236868627877999718-ligue-des-champions-manchester-city-sen-sort-de-justesse-porto-pousse-allegri-vers-la-sortie-arsenal-encore-invaincu)
+- **Ligue des champions: Haaland sauve un Manchester City bousculé à Leipzig (3-2)**: [Link](https://sport.le360.ma/football/ligue-des-champions-uefa/ligue-des-champions-haaland-sauve-un-manchester-city-bouscule-a-leipzig-3-2_IXM67UZP2RG4HDQ6AY3CIX5JTE/)
+- **Ligue des champions : Bouaddi prend le dessus sur El Aynaoui**: [Link](https://mountakhab.net/ligue-des-champions-bouaddi-prend-le-dessus-sur-el-aynaoui/)
+
+
 ### ayyoub bouaddi (N/A, Wed, 4 Nov 2026 14:10:00 -0800)
 
 - **Hakimi, Mané, Semenyo and Brahim Diaz headline star-studded Men's nominations for CAF Awards 2026**: [Link](https://www.cafonline.com/news/hakimi-mane-semenyo-and-brahim-diaz-headline-star-studded-mens-nominations-for-caf-awards-2026/)
