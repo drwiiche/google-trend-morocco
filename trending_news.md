@@ -1,3 +1,73 @@
+### coupe d'afrique des nations de football (N/A, Thu, 5 Nov 2026 01:50:00 -0800)
+
+- **Match officiel Maroc-Niger (Casablanca): Lancement de la vente des billets**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1)
+- **Équipe nationale. Avec Mohamed Ouahbi, le futur se conjugue aussi au présent**: [Link](https://medias24.com/2026/11/04/equipe-nationale-avec-mohamed-ouahbi-le-futur-se-conjugue-aussi-au-present-1787830/)
+- **Éliminatoires CAN-2027 : Ouhabi dévoile les 26 Lions retenus face au Niger**: [Link](https://mobile.telquel.ma/instant-t/2026/11/04/eliminatoires-can-2027-ouhabi-devoile-les-26-lions-retenus-face-au-niger_2016652/)
+
+
+### محاكمة (N/A, Thu, 5 Nov 2026 01:10:00 -0800)
+
+- **بعد 39 عاما من الغموض .. محاكمة والدي الطفلة إيناس تهز القضاء الفرنسي**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-39-%D8%B9%D8%A7%D9%85%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%BA%D9%85%D9%88%D8%B6-%D9%85%D8%AD%D8%A7%D9%83%D9%85%D8%A9-%D9%88%D8%A7%D9%84%D8%AF%D9%8A-%D8%A7%D9%84%D8%B7%D9%81%D9%84-1834846.html)
+- **"الملاك الصغير".. مأساة طفلة مغربية هزّت فرنسا ..والحمض النووي يكشف الحقيقة بعد 31 عاماً**: [Link](https://journal24.ma/2026/11/03/%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%83-%D8%A7%D9%84%D8%B5%D8%BA%D9%8A%D8%B1-%D9%85%D8%A3%D8%B3%D8%A7%D8%A9-%D8%B7%D9%81%D9%84%D8%A9-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%87%D8%B2%D9%91%D8%AA/)
+- **بعد 37 عامًا.. DNA يقود أمًا فرنسية للمحاكمة بتهمة تعذيب ابنتها حتى الموت**: [Link](https://akhbarelyom.com/news/newdetails/4901372/1/%D8%A8%D8%B9%D8%AF-37-%D8%B9%D8%A7%D9%85%D9%8B%D8%A7-DNA-%D9%8A%D9%82%D9%88%D8%AF-%D8%A3%D9%85%D9%8B%D8%A7-%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D9%84%D9%84%D9%85%D8%AD%D8%A7%D9%83)
+
+
+### radio mars (N/A, Thu, 5 Nov 2026 00:10:00 -0800)
+
+- **حسب «ماركا».. دياز مرشح للعودة إلى التشكيلة الأساسية لريال مدريد أمام أيك أثينا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A%D8%A7%D8%AA/%D9%85%D8%A7%D8%B1%D9%83%D8%A7-%D8%A5%D8%A8%D8%B1%D8%A7%D9%87%D9%8A%D9%85-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%85%D8%B1%D8%B4%D8%AD-%D9%84%D9%84%D8%B9%D8%A8-%D8%A3%D8%B3%D8%A7%D8%B3%D9%8A%D8%A7-%D9%85%D8%B9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%85%D8%A7%D9%85-%D8%A3%D9%8A%D9%83-%D8%A3%D8%AB%D9%8A%D9%86%D8%A7/27366)
+- **مورينيو يؤكد صعوبة مباراة أيك آثينا ويثمّن دور فالفيردي في الفريق**: [Link](https://www.hesport.com/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D9%8A%D9%83-%D8%A2%D8%AB%D9%8A%D9%86%D8%A7-%D9%88%D9%8A-459890.html)
+- **دوري أبطال أوروبا: ريال يعود من أثينا بفوز قاتل وليفربول يسقط في اسطنبول**: [Link](https://ar.sport.le360.ma/football/ligue-des-champions-uefa/I4XCMEXXENGENKL2BR7QCQMOOU/)
+
+
+### القوات المسلحة الملكية المغربية (N/A, Thu, 5 Nov 2026 00:00:00 -0800)
+
+- **بمناسبة إحالته على التقاعد.. تكريم الجنرال دوديفيزيون محمد مقبوب مفتش سلاح المشاة**: [Link](https://expresstv.ma/news/154274/)
+- **القوات المسلحة الملكية تكرّم عدداً من ضباطها وجنودها المحالين على التقاعد**: [Link](https://i3lamtv.com/178551)
+- **حين تكرم المؤسسة العسكرية رجالها بأكادير**: [Link](https://alakhbaralmaghribiya.ma/news/27036)
+
+
+### عبد الرزاق حمد الله (N/A, Wed, 4 Nov 2026 23:20:00 -0800)
+
+- **التعاون يضرب الفيصلي بثلاثية ويحجز مقعده في ثمن نهائي دوري أبطال آسيا 2**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/4/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7)
+- **قالوا "متسلط" فرد عليهم بأخلاقه .. "الممثل المتألق" عبدالرزاق حمدالله يلجأ لسلاحه المعتاد لإسقاط الفيصلي**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D8%A8%D8%AF%D8%A7%D9%84%D8%B1%D8%B2%D8%A7%D9%82-%D8%AD%D9%85%D8%AF%D8%A7%D9%84%D9%84%D9%87-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86-%D8%A7%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A2%D8%B3%D9%8A%D8%A7-2-%D9%8A%D9%88%D9%86%D8%B3-%D8%A8%D8%AD%D8%B1%D8%A7%D9%88%D9%8A/blt08c6d68a74a9584a)
+- **إجراءات تصحيحية تشمل الجهاز الفني للفيصلي الأردني**: [Link](https://www.alkhaleej.ae/2026-11-05/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%AA%D8%B5%D8%AD%D9%8A%D8%AD%D9%8A%D8%A9-%D8%AA%D8%B4%D9%85%D9%84-%D8%A7%D9%84%D8%AC%D9%87%D8%A7%D8%B2-%D8%A7%D9%84%D9%81%D9%86%D9%8A-%D9%84%D9%84%D9%81%D9%8A%D8%B5%D9%84%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86%D9%8A)
+
+
+### 2026 (N/A, Wed, 4 Nov 2026 22:30:00 -0800)
+
+- **Revenue for the nine months ended September 30, 2026**: [Link](https://finance.yahoo.com/markets/stocks/articles/revenue-nine-months-ended-september-073000560.html)
+- **Jerry Allen King – Dec. 23, 1937 – Oct. 27, 2026**: [Link](https://fortworthreport.org/2026/11/04/jerry-allen-king-december-23-1937-october-27-2026/)
+- **U.S. Senate Election 2026 Live Results: Democrats Win Majority**: [Link](https://www.nbcnews.com/politics/2026-elections/senate-results)
+
+
+### pluie (N/A, Wed, 4 Nov 2026 22:00:00 -0800)
+
+- **Episode méditerranéen : jusqu'à 150 à 200 mm au sud-est**: [Link](https://actualite.lachainemeteo.com/alerte-meteo/9666-episode-mediterraneen-jusqu-a-150-a-200-mm-au-sud-est)
+- **Météo : épisode méditerranéen intense sur le Sud-Est et la Corse**: [Link](https://meteofrance.com/actualites/meteo-temperatures-en-baisse-degradation-pluvio-orageuse-a-partir-de-mercredi-par-le-sud)
+- **Alerte : jusqu’à 300 litres d’eau par mètre carré attendus ! La Corse bascule en vigilance orange dès demain à 6 heures**: [Link](https://www.tameteo.com/actualites/previsions/alerte-jusqu-a-300-litres-d-eau-par-metre-carre-attendus-la-corse-bascule-en-vigilance-orange-des-demain-a-6-heures.html)
+
+
+### يوسف النصيري (N/A, Wed, 4 Nov 2026 21:50:00 -0800)
+
+- **المغرب أم هولندا؟.. النجم أيوب أوفقير يحسم وجهته الدولية**: [Link](https://www.aljazeera.net/sport/2026/11/5/%D8%A3%D9%8A%D9%88%D8%A8-%D8%A3%D9%88%D9%81%D9%82%D9%8A%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7)
+- **وهبي يستدعي أيوب أوفقير لأول مرة .. ويعيد النصيري وبلحيان إلى المنتخب**: [Link](https://www.hespress.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D8%A3%D9%8A%D9%88%D8%A8-%D8%A3%D9%88%D9%81%D9%82%D9%8A%D8%B1-%D9%84%D8%A3%D9%88%D9%84-%D9%85%D8%B1%D8%A9-%D9%88%D9%8A%D8%B9%D9%8A-1834380.html)
+- **بطولة فرنسا: المغربي السباعي يعيد أنجيه إلى سكة الانتصارات**: [Link](https://ar.telquel.ma/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D8%A3%D8%B3%D8%B1%D8%A7%D8%B1-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D9%84%D9%84%D8%A3%D8%B3%D9%88%D8%AF-60-%D9%84%D8%A7%D8%B9/)
+
+
+### محمد الفايد (N/A, Wed, 4 Nov 2026 21:50:00 -0800)
+
+- **النيابة العامة تغلق الحدود في وجه الفايد**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%AA%D8%BA%D9%84%D9%82-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D9%81%D9%8A-%D9%88%D8%AC%D9%87-%D8%A7%D9%84%D9%81%D8%A7-1834728.html)
+- **بنسليمان.. وكيل الملك يقرر متابعة محمد الفايد في حالة سراح مع إغلاق الحدود في وجهه**: [Link](https://barlamane.com/%D8%A8%D9%86%D8%B3%D9%84%D9%8A%D9%85%D8%A7%D9%86-%D9%88%D9%83%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D9%84%D9%83-%D9%8A%D9%82%D8%B1%D8%B1-%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7/)
+- **القضاء يقرر متابعة "خبير التغذية" الفايد في حالة سراح ويغلق الحدود في وجهه**: [Link](https://www.akhbarona.com/society/435223.html)
+
+
+### السنغال (N/A, Wed, 4 Nov 2026 21:40:00 -0800)
+
+- **إنريكي ينفجر بسبب واقعة حكيمي: ما حدث مهزلة.. هل نمارس لعبة أطفال؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%95%D9%86%D8%B1%D9%8A%D9%83%D9%8A-%D9%8A%D9%86%D9%81%D8%AC%D8%B1-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%88%D8%A7%D9%82%D8%B9%D8%A9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%85%D8%A7-%D8%AD%D8%AF%D8%AB-%D9%85%D9%87%D8%B2%D9%84%D8%A9--%D9%87%D9%84-%D9%86%D9%85%D8%A7%D8%B1%D8%B3-%D9%84%D8%B9%D8%A8%D8%A9-%D8%A7%D9%94%D8%B7%D9%81%D8%A7%D9%84/blt050a52e0d0f47190)
+- **في 16 دقيقة.. سان جيرمان يحطم رقما قياسيا في دوري أبطال أوروبا**: [Link](https://www.aljazeera.net/sport/2026/11/4/%D9%81%D9%8A-16-%D8%AF%D9%82%D9%8A%D9%82%D8%A9-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D8%B7%D9%85-%D8%B1%D9%82%D9%85%D8%A7-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A%D8%A7)
+- **دوري أبطال أوروبا: سان جرمان يحقق فوزه الرابع تواليا بسداسية نظيفة في شباك فياريال**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261103-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%B3%D8%A7%D9%86-%D8%AC%D8%B1%D9%85%D8%A7%D9%86-%D9%8A%D8%AD%D9%82%D9%82-%D9%81%D9%88%D8%B2%D9%87-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9-%D8%AA%D9%88%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9-%D9%86%D8%B8%D9%8A%D9%81%D8%A9-%D9%81%D9%8A-%D8%B4%D8%A8%D8%A7%D9%83-%D9%81%D9%8A%D8%A7%D8%B1%D9%8A%D8%A7%D9%84)
+
+
 ### نهاية العالم (N/A, Wed, 4 Nov 2026 16:40:00 -0800)
 
 - **حددت نهاية العالم 13 نوفمبر 2026.. قصة نبوءة علمية مفزعة عمرها 66 عاماً**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/11/04/%D8%AD%D8%AF%D8%AF%D8%AA-%D9%86%D9%87%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-13-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2026-%D9%82%D8%B5%D8%A9-%D9%86%D8%A8%D9%88%D8%A1%D8%A9-%D8%B9%D9%84%D9%85%D9%8A%D8%A9-%D9%85%D9%81%D8%B2%D8%B9%D8%A9-%D8%B9%D9%85%D8%B1%D9%87%D8%A7-66-%D8%B9%D8%A7%D9%85%D8%A7-)
