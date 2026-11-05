@@ -1,3 +1,59 @@
+### crystal palace – hoffenheim (N/A, Thu, 5 Nov 2026 09:30:00 -0800)
+
+- **Hoffenheim’s Oliver Baumann addresses squad injury crisis ahead of Crystal Palace clash**: [Link](https://www.getfootballnewsgermany.com/2026/hoffenheim-palace-injuries/)
+- **Sky Bet offer: How to claim £40 from £5 bet ahead of Crystal Palace vs Hoffenheim**: [Link](https://talksport.com/betting/4685643/sky-bet-offer-crystal-palace-vs-hoffenheim/)
+- **Thursday best bets: Europa League and Conference League tips for November 4 2026**: [Link](https://www.sportinglife.com/football/news/thursday-best-bets-europa-league-and-conference-league-tips-for-november-4-2026/235211)
+
+
+### 6 novembre (N/A, Thu, 5 Nov 2026 08:50:00 -0800)
+
+- **Quinté Plus PMU : Ivon de la Monerie peut très bien faire**: [Link](https://www.zone-turf.fr/quinte/quinte-plus-pmu-ivon-de-la-monerie-peut-tres-bien-faire-130879.html)
+- **Faites le papier du Quinté+ de ce vendredi 6 novembre**: [Link](https://www.equidia.fr/articles/pour-preparer-vos-paris/faites-le-papier-du-quinte-de-ce-vendredi-6-novembre)
+- **Les pronos hippiques du vendredi 6 novembre 2026**: [Link](https://rmcsport.bfmtv.com/paris-hippique/les-pronos-hippiques-du-vendredi-6-novembre-2026_AN-202611040653.html)
+
+
+### طائرة (N/A, Thu, 5 Nov 2026 06:50:00 -0800)
+
+- **هبوط اضطراري لرحلات طيران في مدن أوروبية بعد إنذارات بوجود قنابل**: [Link](https://www.aljazeera.net/news/2026/11/5/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%AA%D8%BA%D9%8A%D9%8A%D8%B1-%D9%85%D8%B3%D8%A7%D8%B1-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D9%85%D8%AA%D8%AC%D9%87%D8%A9-%D9%84%D8%B1%D9%88%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF)
+- **الخطوط الملكية المغربية تؤكد عدم تأثر الرحلات بتهديدات أمنية في أوروبا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%B7-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%A4%D9%83%D8%AF-%D8%B9%D8%AF%D9%85-%D8%AA%D8%A3%D8%AB%D8%B1-1835028.html)
+- **إنذارات كاذبة بوجود متفجرات تطال رحلات في أوروبا لليوم الثالث**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261105-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D8%A7%D8%AA-%D9%83%D8%A7%D8%B0%D8%A8%D8%A9-%D8%A8%D9%88%D8%AC%D9%88%D8%AF-%D9%85%D8%AA%D9%81%D8%AC%D8%B1%D8%A7%D8%AA-%D8%AA%D8%B7%D8%A7%D9%84-%D8%B1%D8%AD%D9%84%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%84%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB)
+
+
+### equidia (N/A, Thu, 5 Nov 2026 05:40:00 -0800)
+
+- **PRIX DE RANVILLE - PARIS-VINCENNES - 05/11/2026 : partants, pronostics et résultats en vidéos - Course 7**: [Link](https://www.equidia.fr/courses/2026-11-05/R1/C7)
+- **Jeudi 5 novembre 2026 à Vincennes - Prix de Ranville : Leader d'Aimté ne rate pas son objectif**: [Link](https://www.paris-turf.com/actualites/france/302998359008-jeudi-5-novembre-2026-a-vincennes-prix-de-ranville-leader-d-aimte-ne-rate-pas-son-objectif)
+- **Pronostics Super Pick5 du jour (jeudi 5 novembre 2026) : cotes et analyses du Prix de Ranville en direct**: [Link](https://tirage-gagnant.com/122374/super-pick-5-jeudi-5-novembre-2026/)
+
+
+### zelda ocarina of time remake (N/A, Thu, 5 Nov 2026 05:00:00 -0800)
+
+- **The Legend of Zelda: Ocarina of Time review – a dream come true**: [Link](https://www.theguardian.com/games/2026/nov/04/the-legend-of-zelda-ocarina-of-time-review-nintendo-switch)
+- **Zelda Ocarina of Time remake runs at 60 FPS on PC ahead of official release**: [Link](https://en.gamegpu.com/news/igry/remejk-zelda-ocarina-of-time-zapustili-na-pk-pri-60-fps-do-ofitsialnogo-reliza)
+- **Nintendo’s holiday plot: Beautify a 28-year-old horse**: [Link](https://www.morningbrew.com/stories/nintendo-holiday-plot-zelda-ocarina-of-time-remake)
+
+
+### paraguay (N/A, Thu, 5 Nov 2026 04:10:00 -0800)
+
+- **President of Paraguay resigns amid crisis over bank collapse that left millions unable to access their money**: [Link](https://www.cnn.com/2026/11/05/americas/president-paraguay-resigns-latam-intl)
+- **Paraguay’s swaggering digital bank has fallen**: [Link](https://www.economist.com/the-americas/2026/11/05/paraguays-swaggering-digital-bank-has-fallen)
+- **Ueno Bank collapse in Paraguay prompts President Santiago Peña to resign**: [Link](https://www.euronews.com/2026/11/05/ueno-bank-collapse-in-paraguay-prompts-president-santiago-pena-to-resign)
+
+
+### cristiano ronaldo (N/A, Thu, 5 Nov 2026 03:20:00 -0800)
+
+- **Cristiano Ronaldo retirement: Why has Portugal legend retired from international game?**: [Link](https://www.bbc.com/sport/football/articles/ckn9rwr2zzpvo)
+- **Portugal's Football Federation pays tribute to Cristiano Ronaldo after international retirement**: [Link](https://www.espn.com/soccer/story/_/id/50387634/cristiano-ronaldo-retires-international-football-portugal-football-federation-tribute)
+- **Cristiano Ronaldo Retires: End Of An International Era Filled With Tributes**: [Link](https://www.sportscapemagazine.com/blog/cristiano-ronaldo-international-retirement-jorge-jesus-tributes)
+
+
+### webook (N/A, Thu, 5 Nov 2026 02:00:00 -0800)
+
+- **Match officiel Maroc-Niger (Casablanca): Lancement de la vente des billets**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1)
+- **Éliminatoires CAN-2027 : Ouahbi mise sur la continuité et ouvre la porte aux jeunes avant le Niger**: [Link](https://ledesk.ma/2026/11/04/eliminatoires-can-2027-ouahbi-mise-sur-la-continuite-et-ouvre-la-porte-aux-jeunes-avant-le-niger/)
+- **Éliminatoires CAN-2027 : Ouhabi dévoile les 26 Lions retenus face au Niger**: [Link](https://mobile.telquel.ma/instant-t/2026/11/04/eliminatoires-can-2027-ouhabi-devoile-les-26-lions-retenus-face-au-niger_2016652/)
+
+
 ### coupe d'afrique des nations de football (N/A, Thu, 5 Nov 2026 01:50:00 -0800)
 
 - **Match officiel Maroc-Niger (Casablanca): Lancement de la vente des billets**: [Link](https://frmf.ma/fr/articles/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A8%D9%8A%D8%B9-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1)
