@@ -1,3 +1,73 @@
+### classement fc séville – deportivo alavés (N/A, Fri, 6 Nov 2026 14:20:00 -0800)
+
+- **Confirmed Sevilla and Alavés line-ups for LALIGA matchweek 12**: [Link](https://sports.yahoo.com/articles/confirmed-sevilla-alav-line-ups-190100249.html)
+- **Predicted Alaves line-up according to the sports press**: [Link](https://www.comuniate.com/en/noticias/38887/predicted-alaves-line-up-according-to-the-sports-press)
+- **Sevilla vs Deportivo Alavés Predictions, Picks & Odds – 06/11/2026**: [Link](https://www.toffeeweb.com/int/sevilla-vs-deportivo-alaves-predictions-picks-odds-06-11-2026/)
+
+
+### مراقبة (N/A, Fri, 6 Nov 2026 14:10:00 -0800)
+
+- **تحرير مخالفات السير بكاميرات المراقبة يحظى بتأييد جمعيات السلامة الطرقية**: [Link](https://www.hespress.com/%D8%AA%D8%AD%D8%B1%D9%8A%D8%B1-%D9%85%D8%AE%D8%A7%D9%84%D9%81%D8%A7%D8%AA-%D8%A7%D9%84%D8%B3%D9%8A%D8%B1-%D8%A8%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%82%D8%A8-1835335.html)
+- **مسؤول أمني يكشف أسباب تزايد حوادث السير الخطيرة بشوارع الدار البيضاء**: [Link](https://casa24.ma/Casablanca/69457.html)
+- **43% من قتلى الطرقات مستعملو الدراجات النارية.. و80% منهم لا يستعملون الخوذات**: [Link](https://al3omk.com/1206036.html)
+
+
+### alcaraz (N/A, Fri, 6 Nov 2026 13:50:00 -0800)
+
+- **Fritz - Alcaraz, en directo: última hora del Masters 1.000 de París, hoy en vivo**: [Link](https://as.com/tenis/fritz-alcaraz-en-directo-ultima-hora-del-masters-1000-de-paris-hoy-en-vivo-f202611-d/)
+- **Taylor Fritz - Carlos Alcaraz: resumen, resultado y estadísticas de los cuartos de final del Masters 1000 de París**: [Link](https://www.marca.com/tenis/masters-1000-paris/taylor-harry-fritz-carlos-alcaraz/2026/11/06/04_0413_20261106_60-directo.html)
+- **Alcaraz sobrevive y peleará por llegar a la final en París**: [Link](https://murciaplaza.com/murciaplaza/deportes-murcia/alcaraz-sobrevive-y-peleara-por-llegar-a-la-final-en-paris)
+
+
+### يوسف النصيري (N/A, Fri, 6 Nov 2026 12:40:00 -0800)
+
+- **وكيله: النصيري تلقى عروضًا للرحيل عن الاتحاد.. وهذا موقفه**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%83%D9%8A%D9%84%D9%87-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D8%AA%D9%84%D9%82%D9%89-%D8%B9%D8%B1%D9%88%D8%B6%D9%8B%D8%A7-%D9%84%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF--%D9%88%D9%87%D8%B0%D8%A7-%D9%85%D9%88%D9%82%D9%81%D9%87/blt3a6af2a942092e73)
+- **سيسكا موسكو يضع يوسف النصيري ضمن خياراته لتدعيم خط الهجوم**: [Link](https://radiomars.ma/%D8%B3%D9%8A%D8%B3%D9%83%D8%A7-%D9%85%D9%88%D8%B3%D9%83%D9%88-%D9%8A%D8%B6%D8%B9-%D9%8A%D9%88%D8%B3%D9%81-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D8%B6%D9%85%D9%86-%D8%AE%D9%8A%D8%A7%D8%B1%D8%A7/)
+- **عرض روسي لضم يوسف النصيري من الاتحاد السعودي**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%8A%D8%B1%D9%83%D8%A7%D8%B7%D9%88/%D8%B9%D8%B1%D8%B6-%D8%B1%D9%88%D8%B3%D9%8A-%D9%84%D8%B6%D9%85-%D9%8A%D9%88%D8%B3%D9%81-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A/27461)
+
+
+### ترتيبات حسنية أكادير – نهضة بركان (N/A, Fri, 6 Nov 2026 12:30:00 -0800)
+
+- **نهضة بركان تخطف تعادلا أمام الحسنية**: [Link](https://www.hespress.com/%D9%86%D9%87%D8%B6%D8%A9-%D8%A8%D8%B1%D9%83%D8%A7%D9%86-%D8%AA%D8%AE%D8%B7%D9%81-%D8%AA%D8%B9%D8%A7%D8%AF%D9%84%D8%A7-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-1835743.html)
+- **ما القنوات الناقلة لمباراة حسنية أكادير ونهضة بركان في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt0a9e612259cebd89)
+- **مباراتان تفتتحان الجولة السابعة من البطولة الاحترافية – الرياضة**: [Link](https://anbaetv.ma/1194583)
+
+
+### نادي برشلونة (N/A, Fri, 6 Nov 2026 12:10:00 -0800)
+
+- **فيرمين يفتح النار قبل القمة: أتلتيكو ألحق بنا ضررًا بالغًا.. وحان وقت الثأر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%B1%D9%85%D9%8A%D9%86-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D9%86%D8%A7%D8%B1-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D9%82%D9%85%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D8%A7%D9%94%D9%84%D8%AD%D9%82-%D8%A8%D9%86%D8%A7-%D8%B6%D8%B1%D8%B1%D9%8B%D8%A7-%D8%A8%D8%A7%D9%84%D8%BA%D9%8B%D8%A7--%D9%88%D8%AD%D8%A7%D9%86-%D9%88%D9%82%D8%AA-%D8%A7%D9%84%D8%AB%D8%A7%D9%94%D8%B1/blt959481aed4eeda50)
+- **غيابات مؤثرة عن قمة برشلونة وأتلتيكو مدريد في الدوري الإسباني**: [Link](https://www.alquds.co.uk/%D8%BA%D9%8A%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D8%A4%D8%AB%D8%B1%D8%A9-%D8%B9%D9%86-%D9%82%D9%85%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85/)
+- **موعد مباراة أتلتيكو مدريد ضد برشلونة في الدوري الإسباني والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/11/4/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9)
+
+
+### بطاطا (N/A, Fri, 6 Nov 2026 11:40:00 -0800)
+
+- **"أين ذهبت البطاطا؟" شكاوى وسخرية في الجزائر بعد غيابها عن بعض الأسواق**: [Link](https://www.bbc.com/arabic/articles/c62keepg43gzo)
+- **انفراج مرتقب في سوق البطاطا خلال أيام قليلة – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A7%D9%86%D9%81%D8%B1%D8%A7%D8%AC-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%81%D9%8A-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D8%B7%D8%A7-%D8%AE%D9%84%D8%A7%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D9%82)
+- **الجزائر: تبون يُرهب التجار.. ويعجز أمام أسعار البطاطا**: [Link](https://ar.le360.ma/monde/6OGDRYSOENA7PMCBTGZWL6AXF4/)
+
+
+### everton – coventry city (N/A, Fri, 6 Nov 2026 11:30:00 -0800)
+
+- **Premier League LIVE: Everton vs Coventry City - build-up, team news, score updates, text commentary & match stats**: [Link](https://www.bbc.com/sport/football/live/cr15jy8xy50jt)
+- **Moyes continues to work miracles with Barry as Everton move into top five**: [Link](https://www.telegraph.co.uk/football/2026/11/06/moyes-continues-to-work-miracles-with-barry-everton-fifth/)
+- **Everton 3 Coventry 1: Thierno Barry leads comeback to send Toffees FIFTH as Frank Lampard loses to old side**: [Link](https://www.thesun.co.uk/sport/40944848/everton-beat-coventry-thierno-barry-dewsbury-hall/)
+
+
+### إشبيلية ضد ألافيس (N/A, Fri, 6 Nov 2026 11:20:00 -0800)
+
+- **الليغا: الافيس يصمد أمام اشبيلية ويعود بنقطة ثمينة من ملعبه**: [Link](https://twaslnews1.twaslnews.com/7230173/)
+- **إشبيلية يسقط في فخ التعادل مع ضيفه ألافيس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%8A%D8%B3%D9%82%D8%B7-%D9%81%D9%8A-%D9%81%D8%AE-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84-%D9%85%D8%B9-%D8%B6%D9%8A%D9%81%D9%87-%D8%A3%D9%84%D8%A7%D9%81%D9%8A%D8%B3-2026-11-06)
+- **إشبيلية يتعادل سلبيًا مع ألافيس في الشوط الأول بالدوري الإسباني**: [Link](https://www.vetogate.com/5765535)
+
+
+### toulouse – strasbourg (N/A, Fri, 6 Nov 2026 11:20:00 -0800)
+
+- **Suivez Toulouse - Strasbourg En direct - Ligue 1 - 10e journée**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-toulouse-fc-strasbourg_mtc21875606/live-commentary.shtml)
+- **Santiago Hidalgo : "Ça a été un match très difficile"**: [Link](https://www.lesviolets.com/actu/santiago-hidalgo-ca-a-ete-un-match-tres-difficile,84966.html)
+- **Les Violets se relancent - Débrief et NOTES des joueurs (TFC 3-1 RCSA)**: [Link](https://m.maxifoot.fr/football/article-66495.htm)
+
+
 ### إعفاء ضريبي (N/A, Fri, 6 Nov 2026 09:30:00 -0800)
 
 - **الحكومة تتجه إلى إخضاع "التعويضات المهنية الوهمية" للضريبة على الدخل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D8%AA%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A5%D8%AE%D8%B6%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%87-1834612.html)
