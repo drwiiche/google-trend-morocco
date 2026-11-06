@@ -1,3 +1,73 @@
+### دولار (N/A, Fri, 6 Nov 2026 02:20:00 -0800)
+
+- **الدرهم يتراجع أمام الأورو والدولار الأمريكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88-%D9%88%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%A7%D9%84-1835293.html)
+- **أسعار صرف أهم العملات الأجنبية اليوم الخميس**: [Link](https://www.maroc24.com/230744-%D8%A7%D9%94%D8%B3%D8%B9%D8%A7%D8%B1-%D8%B5%D8%B1%D9%81-%D8%A7%D9%94%D9%87%D9%85-%D8%A7%D9%84%D8%B9%D9%85%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D8%AC%D9%86%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AE%D9%85%D9%8A%D8%B3-5/)
+- **الدرهم يرتفع أمام الدولار بـ0,9% ويتراجع مقابل الأورو.. وهذه أبرز مؤشرات الاقتصاد المغربي**: [Link](https://inews.ma/news/8776326)
+
+
+### صندوق محمد السادس للاستثمار (N/A, Fri, 6 Nov 2026 02:10:00 -0800)
+
+- **صندوق محمد السادس للاستثمار يعزز تعبئة الرساميل لتقليص الفوارق المجالية**: [Link](https://www.hespress.com/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%84%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AA%D8%B9%D8%A8%D8%A6-1834572.html)
+- **صندوق محمد السادس للاستثمار يصدر أول تقرير له حول قياس الأثر**: [Link](https://2m.ma/ar/news/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%84%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A3%D9%88%D9%84-%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D9%84%D9%87-%D8%AD%D9%88%D9%84-%D9%82%D9%8A%D8%A7%D8%B3-%D8%A7%D9%84%D8%A3%D8%AB%D8%B1-20261104)
+- **صندوق محمد السادس يساهم في تمويل 52 مقاولة عبر استثمارات بلغت 7.2 مليارات درهم**: [Link](https://ar.industries.ma/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D9%85%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D8%B3%D8%A7%D8%AF%D8%B3-%D9%8A%D8%B3%D8%A7%D9%87%D9%85-%D9%81%D9%8A-%D8%AA%D9%85%D9%88%D9%8A%D9%84-52-%D9%85%D9%82%D8%A7%D9%88/)
+
+
+### tomate (N/A, Fri, 6 Nov 2026 02:10:00 -0800)
+
+- **Prix de gros à Casablanca : la viande ovine grimpe jusqu’à 125 DH/kg, en hausse de 10 DH**: [Link](https://medias24.com/2026/11/04/prix-de-gros-a-casablanca-la-viande-ovine-grimpe-jusqua-125-dh-kg-en-hausse-de-10-dh-1787824/)
+- **Tomate jusqu’à 20 dirhams le kilo, pourquoi les prix flambent à nouveau**: [Link](https://telquel.ma/2026/11/04/tomate-jusqua-20-dirhams-le-kilo-pourquoi-les-prix-flambent-a-nouveau_2016750)
+- **Flambée des prix des légumes à Inezgane: aléas climatiques, recul de la production et pression sur les producteurs**: [Link](https://fr.le360.ma/economie/flambee-des-prix-des-legumes-a-inezgane-aleas-climatiques-recul-de-la-production-et-pression-sur-les_ZY7WB45C5RBPTBPB2V2XUBAWIU/)
+
+
+### نادي الاتحاد الليبي (N/A, Fri, 6 Nov 2026 01:50:00 -0800)
+
+- **أثار رعب مشجعي الاتحاد الليبي.. فوزي البنزرتي يتخذ قرارا مفاجئا تجاه سفيان بوفال**: [Link](https://www.eremnews.com/sports/khaxvxi)
+- **شيخ المدربين فوزي البنزرتي يصدم بوفال ويثير الجدل بخصوص مستقبله في الدوري الليبي**: [Link](https://ar.sport.le360.ma/football/autres-championnats/KHP3KVKRORGR3IC6QGHAPK2PRY/)
+- **بعد توقف الدوري الليبي.. فوزي البنزرتي يتخذ قرارا مفاجئا تجاه لاعبي الاتحاد**: [Link](https://www.eremnews.com/sports/37wx92q)
+
+
+### مصرف (N/A, Thu, 5 Nov 2026 23:20:00 -0800)
+
+- **ADIB Launches UAE’s First 24/7 Real-Time EGP Transfers to Egypt via Visa Direct**: [Link](https://ffnews.com/news/adib-becomes-the-first-bank-in-the-uae-to-offer-24-7-real-time-egp-89c8b079)
+- **ADIB adds real-time EGP transfers to Egypt via Visa Direct**: [Link](https://thepaypers.com/payments/news/adib-launches-real-time-egp-transfers-to-egypt-via-visa-direct)
+- **ADIB Becomes First UAE Bank to Offer 24 7 Real-Time EGP Transfers to Egypt Through Visa Direct**: [Link](https://fintechgate.net/256546)
+
+
+### زيت الزيتون (N/A, Thu, 5 Nov 2026 22:00:00 -0800)
+
+- **زيت الزيتون في الأردن.. موسم رزق تنتظره ربع مليون أسرة**: [Link](https://www.aljazeera.net/ebusiness/2026/11/6/%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%A3%D8%B1%D8%AF%D9%86-%D9%85%D9%88%D8%B3%D9%85-%D8%B1%D8%B2%D9%82-%D8%AA%D9%86%D8%AA%D8%B8%D8%B1%D9%87)
+- **منظومة رقابية متطورة لـتـعــزيــز جــودة الـزيــت**: [Link](https://www.addustour.com/articles/1601883-%D9%85%D9%86%D8%B8%D9%88%D9%85%D8%A9-%D8%B1%D9%82%D8%A7%D8%A8%D9%8A%D8%A9-%D9%85%D8%AA%D8%B7%D9%88%D8%B1%D8%A9-%D9%84%D9%80%D8%AA%D9%80%D8%B9%D9%80%D9%80%D8%B2%D9%8A%D9%80%D9%80%D8%B2-%D8%AC%D9%80%D9%80%D9%88%D8%AF%D8%A9-%D8%A7%D9%84%D9%80%D8%B2%D9%8A%D9%80%D9%80%D8%AA)
+- **انطلاق فعاليات اليوم الوطني لقطاف الزيتون في عجلون**: [Link](https://alrai.com/article/10985278/%D9%85%D8%AD%D9%84%D9%8A%D8%A7%D8%AA/%D8%A7%D9%86%D8%B7%D9%84%D8%A7%D9%82-%D9%81%D8%B9%D8%A7%D9%84%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%82%D8%B7%D8%A7%D9%81-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-%D9%81%D9%8A-%D8%B9%D8%AC%D9%84%D9%88%D9%86)
+
+
+### محمد وهبي (N/A, Thu, 5 Nov 2026 21:40:00 -0800)
+
+- **إعلان قائمة منتخب المغرب لتصفيات أمم أفريقيا ووهبي يدافع عن اختياراته**: [Link](https://www.aljazeera.net/sport/2026/11/4/%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A3%D9%85%D9%85)
+- **وهبي يدافع عن اختياراته ويكشف موقف المصابين.. رسائل واضحة بشأن النصيري ومزراوي ودياز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D9%87%D8%A8%D9%8A-%D9%8A%D8%AF%D8%A7%D9%81%D8%B9-%D8%B9%D9%86-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA%D9%87-%D9%88%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D8%A8%D9%8A%D9%86--%D8%B1%D8%B3%D8%A7%D9%8A%D9%94%D9%84-%D9%88%D8%A7%D8%B6%D8%AD%D8%A9-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%A7%D9%84%D9%86%D8%B5%D9%8A%D8%B1%D9%8A-%D9%88%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-%D9%88%D8%AF%D9%8A%D8%A7%D8%B2/blt489d3f2443e20717)
+- **انطلاق عملية بيع تذاكر مباراة المغرب أمام النيجر بالبيضاء**: [Link](https://assabah.ma/960364.html)
+
+
+### hicham dguig (N/A, Thu, 5 Nov 2026 21:30:00 -0800)
+
+- **Futsal (match amical): Composition du Maroc face au Japon**: [Link](https://frmf.ma/fr/articles/futsal-match-amical-composition-du-maroc-face-au-japon)
+- **Futsal: Hicham Dguig retient 20 joueurs pour la double confrontation amicale contre le Japon**: [Link](https://fr.hespress.com/495236-futsal-hicham-dguig-retient-20-joueurs-pour-la-double-confrontation-amicale-contre-le-japon.html)
+- **Futsal: les Lions de l’Atlas défient le Japon à deux reprises en amical**: [Link](https://sport.le360.ma/football/futsal/futsal-les-lions-de-latlas-defient-le-japon-a-deux-reprises-en-amical_4Z5EPQEVPZE6LKCJXGCB324BO4/)
+
+
+### جيسوس أوونو (N/A, Thu, 5 Nov 2026 21:30:00 -0800)
+
+- **وفاة دي ميغيل ليست السبب.. لهذا طلب حارس أندورا عدم اللعب مع غينيا الاستوائية**: [Link](https://www.aljazeera.net/sport/2026/11/6/%D9%88%D9%81%D8%A7%D8%A9-%D8%AF%D9%8A-%D9%85%D9%8A%D8%BA%D9%8A%D9%84-%D9%84%D9%8A%D8%B3%D8%AA-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D9%84%D9%87%D8%B0%D8%A7-%D8%B7%D9%84%D8%A8-%D8%AD%D8%A7%D8%B1%D8%B3)
+- **"ابنته لن ينقصها شيء".. وعد ودموع باجتماع المحطمين في تينيريفي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%A8%D9%86%D8%AA%D9%87-%D9%84%D9%86-%D9%8A%D9%86%D9%82%D8%B5%D9%87%D8%A7-%D8%B4%D9%8A%D8%A1--%D9%88%D8%B9%D8%AF-%D9%88%D8%AF%D9%85%D9%88%D8%B9-%D8%A8%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D8%AD%D8%B7%D9%85%D9%8A%D9%86-%D9%81%D9%8A-%D8%AA%D9%8A%D9%86%D9%8A%D8%B1%D9%8A%D9%81%D9%8A/blt59aa70e284d2f71d)
+- **"أشعر بألم عظيم".. هذا ما تعهد به الحارس المتسبب بإصابة أدت لوفاة لاعب إسباني**: [Link](https://arabic.cnn.com/sport/article/2026/11/04/jesus-owono-jesus-de-miguel-spain)
+
+
+### titre de séjour (N/A, Thu, 5 Nov 2026 20:50:00 -0800)
+
+- **Un Marocain présente une photo de son titre de séjour français : le lendemain, il écope de 1 600 € d'amende**: [Link](https://www.bladi.net/marocain-presente-photo-titre-sejour-francais-lendemain-ecope-amende,124805.html)
+- **Un accord vieux de 39 ans pourrait priver les Marocains d'une nouvelle régularisation en France**: [Link](https://www.bladi.net/accord-vieux-pourrait-priver-marocains-nouvelle-regularisation-france,124795.html)
+- **France : du nouveau pour les Tunisiens ! Titres de séjour, emploi… ce que change le nouveau décret**: [Link](https://www.lapresse.tn/2026/11/03/france-du-nouveau-pour-les-tunisiens-titres-de-sejour-emploi-ce-que-change-le-nouveau-decret/)
+
+
 ### نادي لانس (N/A, Thu, 5 Nov 2026 17:00:00 -0800)
 
 - **ظن أن ميكروفونه مغلق.. الركراكي يجد نفسه وسط رهان على 10 أهداف بعد فضيحة لانس**: [Link](https://www.alarabiya.net/sport/2026/11/05/%D8%B8%D9%86-%D8%A7%D9%86-%D9%85%D9%8A%D9%83%D8%B1%D9%88%D9%81%D9%88%D9%86%D9%87-%D9%85%D8%BA%D9%84%D9%82-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AC%D8%AF-%D9%86%D9%81%D8%B3%D9%87-%D9%88%D8%B3%D8%B7-%D8%B1%D9%87%D8%A7%D9%86-%D8%B9%D9%84%D9%89-10-%D8%A7%D9%87%D8%AF%D8%A7%D9%81-%D8%A8%D8%B9%D8%AF-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%84%D8%A7%D9%86%D8%B3)
