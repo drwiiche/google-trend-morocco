@@ -1,3 +1,50 @@
+### إعفاء ضريبي (N/A, Fri, 6 Nov 2026 09:30:00 -0800)
+
+- **الحكومة تتجه إلى إخضاع "التعويضات المهنية الوهمية" للضريبة على الدخل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D8%AA%D8%AC%D9%87-%D8%A5%D9%84%D9%89-%D8%A5%D8%AE%D8%B6%D8%A7%D8%B9-%D8%A7%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%87-1834612.html)
+- **الزيادات المرتقبة في أسعار السجائر تستهدف الأنواع الأكثر استهلاكا من الفئات الضعيفة**: [Link](https://barlamane.com/%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%B3%D8%AC%D8%A7%D8%A6%D8%B1-%D8%AA%D8%B3/)
+- **فوائد الدين تقترب من 46 مليار درهم.. فاتورة الاقتراض تزاحم الإنفاق الاجتماعي (تحليل إخباري)**: [Link](https://nichan.ma/374371/)
+
+
+### benjamin netanyahu (N/A, Fri, 6 Nov 2026 09:30:00 -0800)
+
+- **Israel’s Herzog yet to decide on who should form government as Eisenkot secures significant backing**: [Link](https://www.theguardian.com/world/2026/nov/05/herzog-netanyahu-eisenkot-israel-election-decision)
+- **Power slowly draining away from Netanyahu**: [Link](https://www.telegraph.co.uk/world-news/2026/11/05/power-slowly-draining-away-benjamin-netanyahu-israel/)
+- **Licensable picture: Demonstrators call for Arab-Jewish coalition government in Jerusalem**: [Link](https://www.reutersconnect.com/item/demonstrators-call-for-arab-jewish-coalition-government-in-jerusalem/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwRFJWUVJa)
+
+
+### sonia mabrouk bfmtv (N/A, Fri, 6 Nov 2026 09:20:00 -0800)
+
+- **« Nous sommes en plein psychodrame » : les anti-Sonia Mabrouk plongent BFMTV dans la tourmente**: [Link](https://www.lefigaro.fr/medias/nous-sommes-en-plein-psychodrame-les-anti-sonia-mabrouk-plongent-bfmtv-dans-la-tourmente-20261105)
+- **BFM-TV : Sonia Mabrouk au cœur d’un conflit interne révélant des turbulences plus profondes**: [Link](https://www.lemonde.fr/economie/article/2026/11/06/bfm-tv-sonia-mabrouk-au-c-ur-d-un-conflit-interne-revelant-des-turbulences-plus-profondes_6807612_3234.html)
+- **Grève à BFMTV pour la "sécurité" des reporters et la "crédibilité" de l'antenne**: [Link](https://medias24.com/agence-presse/greve-a-bfmtv-pour-la-securite-des-reporters-et-la-credibilite-de-lantenne/)
+
+
+### حسنية أكادير ضد نهضة بركان (N/A, Fri, 6 Nov 2026 09:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة حسنية أكادير ونهضة بركان في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt0a9e612259cebd89)
+- **البوجيدي يقود مقابلة حسنية أكادير ضد نهضة بركان وبوسليم يتولّى "الفار"**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%A8%D9%88%D8%AC%D9%8A%D8%AF%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D9%85%D9%82%D8%A7%D8%A8%D9%84%D8%A9-%D8%AD%D8%B3%D9%86%D9%8A%D8%A9-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D8%B6%D8%AF-%D9%86/)
+- **مباراتان تفتتحان الجولة السابعة من البطولة الاحترافية – الرياضة**: [Link](https://anbaetv.ma/1194583)
+
+
+### صحة (N/A, Fri, 6 Nov 2026 09:10:00 -0800)
+
+- **غزة.. حالات تشوه المواليد في 9 أشهر تتجاوز حصيلة عام 2022**: [Link](https://www.aa.com.tr/ar/%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%BA%D8%B2%D8%A9-%D8%AD%D8%A7%D9%84%D8%A7%D8%AA-%D8%AA%D8%B4%D9%88%D9%87-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D9%84%D9%8A%D8%AF-%D9%81%D9%8A-9-%D8%A3%D8%B4%D9%87%D8%B1-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%AD%D8%B5%D9%8A%D9%84%D8%A9-%D8%B9%D8%A7%D9%85-2022/4114233)
+- **التشوهات الخلقية تتزايد لدى مواليد غزة.. مطالب بتحقيق دولي | التلفزيون العربي**: [Link](https://www.alaraby.com/news/%D8%A7%D9%84%D8%AA%D8%B4%D9%88%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D9%84%D9%82%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B2%D8%A7%D9%8A%D8%AF-%D9%84%D8%AF%D9%89-%D9%85%D9%88%D8%A7%D9%84%D9%8A%D8%AF-%D8%BA%D8%B2%D8%A9-%D9%85%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D8%AF%D9%88%D9%84%D9%8A)
+- **فلسطين .. وزارة الصحة تسجل 260 حالة تشوه خلقي خلال 2023**: [Link](https://d-dall.com/%D9%81%D9%84%D8%B3%D8%B7%D9%8A%D9%86-%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%B5%D8%AD%D8%A9-%D8%AA%D8%B3%D8%AC%D9%84-260-%D8%AD%D8%A7%D9%84%D8%A9-%D8%AA%D8%B4%D9%88%D9%87-%D8%AE%D9%84%D9%82/)
+
+
+### botola pro (N/A, Fri, 6 Nov 2026 06:00:00 -0800)
+
+
+
+
+### sahara occidental onu (N/A, Fri, 6 Nov 2026 02:10:00 -0800)
+
+- **Sahara: à l’ONU, l’autodétermination devient une option, «s’ils le souhaitent»**: [Link](https://fr.le360.ma/politique/sahara-a-lonu-lautodetermination-devient-une-option-sils-le-souhaitent_6PPNLATAC5A7DHU5UNA7YSQN24/)
+- **Marche Verte, 51 ans après : cap sur la clôture du dossier aux Nations Unies**: [Link](https://fr.hespress.com/495265-marche-verte-51-ans-apres-cap-sur-la-cloture-du-dossier-aux-nations-unies.html)
+- **Sahara : le secrétaire général adjoint de l’ONU confirme à Médias24 qu’aucun dispositif ne remplace la MINURSO**: [Link](https://medias24.com/2026/11/05/retrait-minurso-sahara-onu-lacroix-1788057/)
+
+
 ### دولار (N/A, Fri, 6 Nov 2026 02:20:00 -0800)
 
 - **الدرهم يتراجع أمام الأورو والدولار الأمريكي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AF%D8%B1%D9%87%D9%85-%D9%8A%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88-%D9%88%D8%A7%D9%84%D8%AF%D9%88%D9%84%D8%A7%D8%B1-%D8%A7%D9%84-1835293.html)
