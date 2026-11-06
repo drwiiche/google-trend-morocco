@@ -1,3 +1,24 @@
+### نادي لانس (N/A, Thu, 5 Nov 2026 17:00:00 -0800)
+
+- **ظن أن ميكروفونه مغلق.. الركراكي يجد نفسه وسط رهان على 10 أهداف بعد فضيحة لانس**: [Link](https://www.alarabiya.net/sport/2026/11/05/%D8%B8%D9%86-%D8%A7%D9%86-%D9%85%D9%8A%D9%83%D8%B1%D9%88%D9%81%D9%88%D9%86%D9%87-%D9%85%D8%BA%D9%84%D9%82-%D8%A7%D9%84%D8%B1%D9%83%D8%B1%D8%A7%D9%83%D9%8A-%D9%8A%D8%AC%D8%AF-%D9%86%D9%81%D8%B3%D9%87-%D9%88%D8%B3%D8%B7-%D8%B1%D9%87%D8%A7%D9%86-%D8%B9%D9%84%D9%89-10-%D8%A7%D9%87%D8%AF%D8%A7%D9%81-%D8%A8%D8%B9%D8%AF-%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D9%84%D8%A7%D9%86%D8%B3)
+- **كارثة لانس تتصدر المشهد.. أكبر الهزائم الفرنسية في تاريخ دوري الأبطال**: [Link](https://www.aljazeera.net/sport/2026/11/5/%D8%A3%D9%83%D8%A8%D8%B1-%D9%87%D8%B2%D8%A7%D8%A6%D9%85-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84)
+- **هاتريك نجم كومو يسحب البساط من تحت أقدام هالاند في دوري الأبطال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D8%AA%D8%B1%D9%8A%D9%83-%D9%86%D8%AC%D9%85-%D9%83%D9%88%D9%85%D9%88-%D9%8A%D8%B3%D8%AD%D8%A8-%D8%A7%D9%84%D8%A8%D8%B3%D8%A7%D8%B7-%D9%85%D9%86-%D8%AA%D8%AD%D8%AA-%D8%A7%D9%94%D9%82%D8%AF%D8%A7%D9%85-%D9%87%D8%A7%D9%84%D8%A7%D9%86%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84/blt60329c051f0cefc5)
+
+
+### alerte bombe avion (N/A, Thu, 5 Nov 2026 14:50:00 -0800)
+
+- **Ce que l’on sait des alertes à la bombe qui ont perturbé le trafic aérien en Europe**: [Link](https://www.lemonde.fr/international/article/2026/11/05/ce-que-l-on-sait-des-alertes-a-la-bombe-qui-ont-perturbe-le-trafic-aerien-en-europe_6806848_3211.html)
+- **Un A320 Dublin-Rome dérouté vers Évreux en raison d'une alerte à la bombe**: [Link](https://medias24.com/agence-presse/un-a320-dublin-rome-deroute-vers-evreux-en-raison-dune-alerte-a-la-bombe/)
+- **Ce qu’on sait sur les fausses alertes à la bombe qui ont visé une vingtaine de vols**: [Link](https://www.20minutes.fr/societe/4260634-20261105-douze-vols-europeens-vises-fausses-alertes-bombe-sait-actes-malveillance)
+
+
+### وائل محيا (N/A, Thu, 5 Nov 2026 14:20:00 -0800)
+
+- **كلوب يكشف كواليس استدعاء موحيا**: [Link](https://www.hespress.com/%D9%83%D9%84%D9%88%D8%A8-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A1-%D9%85%D9%88%D8%AD%D9%8A%D8%A7-1835361.html)
+- **يامال جديد يضيع على المغرب .. وائل محيا يضع كلوب وألمانيا في قفص الاتهام بعد خدعة "حلم 2030"!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A1-%D9%88%D8%A7%D9%8A%D9%94%D9%84-%D9%85%D8%AD%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%83%D9%84%D9%88%D8%A8-%D8%A7%D9%84%D8%AA%D9%88%D9%82%D9%81-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A/blt1037f61bb7e9bce2)
+- **ألمانيا تتحرك لحسم مستقبل موهبة مونشنغلادباخ وائل موحيا**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%AD%D8%B3%D9%85-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%85%D9%88%D9%87%D8%A8%D8%A9-%D9%85%D9%88%D9%86%D8%B4%D9%86%D8%BA%D9%84%D8%A7%D8%AF%D8%A8%D8%A7%D8%AE-%D9%88%D8%A7%D8%A6%D9%84-%D9%85%D9%88%D8%AD%D9%8A%D8%A7/27408)
+
+
 ### air france (N/A, Thu, 5 Nov 2026 14:10:00 -0800)
 
 - **Un Marocain embarque à Casablanca avec un faux document : une mauvaise reproduction sauve Air France de 10 000 €**: [Link](https://www.bladi.net/marocain-embarque-casablanca-faux-document-mauvaise-reproduction-sauve,124801.html)
