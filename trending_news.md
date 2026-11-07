@@ -1,3 +1,71 @@
+### huile olive espagne (N/A, Sat, 7 Nov 2026 14:30:00 -0800)
+
+- **Les agriculteurs ont reçu l’ordre de ne pas commercialiser leur huile d’olive: face à une récolte record, l’Espagne bloque 188.000 tonnes pour éviter l’effondrement des prix, au risque de faire grimper la facture des consommateurs**: [Link](https://www.bfmtv.com/economie/entreprises/agriculture/les-agriculteurs-ont-recu-l-ordre-de-ne-pas-commercialiser-leur-huile-d-olive-face-a-une-recolte-record-l-espagne-bloque-188-000-tonnes-pour-eviter-l-effondrement-des-prix-au-risque-de-faire-grimper-la-facture-des-consommateurs_AN-202611070176.html)
+- **Huile d'olive : l'Espagne décrète le stockage des excédents pour éviter l'effondrement des prix, du jamais-vu**: [Link](https://www.lesechos.fr/industrie-services/conso-distribution/huile-dolive-lespagne-decrete-le-stockage-des-excedents-pour-eviter-leffondrement-des-prix-du-jamais-vu-2261657)
+- **C'est la première fois qu'une telle décision est prise : pourquoi l'Espagne va retirer 188 000 tonnes d'huile d'olive du marché**: [Link](https://www.lindependant.fr/2026/11/07/cest-la-premiere-fois-quune-telle-decision-est-prise-pourquoi-lespagne-va-retirer-188-000-tonnes-dhuile-dolive-du-marche-13641137.php)
+
+
+### gadi eisenkot (N/A, Sat, 7 Nov 2026 14:10:00 -0800)
+
+- **Israel’s president picks Yashar leader Gadi Eisenkot to form government**: [Link](https://www.theguardian.com/world/2026/nov/07/israel-president-gadi-eisenkot-form-government)
+- **Israeli president taps Eisenkot to form new govt**: [Link](https://en.hespress.com/148741-israeli-president-taps-eisenkot-to-form-new-govt.html)
+- **After meeting Netanyahu, Herzog to task Eisenkot with forming government**: [Link](https://www.ynetnews.com/article/rkcsjwpage)
+
+
+### زراعة (N/A, Sat, 7 Nov 2026 13:40:00 -0800)
+
+- **زراعة 7000 شجرة ضمن المرحلة الخامسة من مبادرة «100 مليون شجرة» في دمياط**: [Link](https://www.almasryalyoum.com/news/details/4404001)
+- **محافظ دمياط يتابع تنفيذ المرحلة الخامسة من مبادرة "100 مليون شجرة"**: [Link](https://www.vetogate.com/5766187)
+- **التنمية المحلية: انطلاق المرحلة الخامسة من «100 مليون شجرة» بمحافظة دمياط بزراعة 7750 شجرة**: [Link](https://twaslnews1.twaslnews.com/7169300/)
+
+
+### إنتر ميامي ضد شارلوت (N/A, Sat, 7 Nov 2026 13:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة إنتر ميامي وشارلوت إفي سي في الدوري الأمريكي 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A-%D9%88%D8%B4%D8%A7%D8%B1%D9%84%D9%88%D8%AA-%D8%A7%D9%95%D9%81%D9%8A-%D8%B3%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1%D9%8A%D9%83%D9%8A-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt88c126e05fa76f9f)
+- **ميسي يترقب منافسه في الأدوار الإقصائية.. 4 فرق مرشحة لمواجهة إنتر ميامي**: [Link](https://www.rosaelyoussef.com/1448500)
+- **توقعات مباراة إنتر ميامي ضد شارلوت: من المتوقع أن تكون مباراة مثيرة ومتقلبة.**: [Link](https://www.vietnam.vn/ar/nhan-dinh-inter-miami-vs-charlotte-hua-hen-man-doi-cong)
+
+
+### المغرب التطواني ضد النادي المكناسي (N/A, Sat, 7 Nov 2026 13:30:00 -0800)
+
+- **النادي المكناسي يهزم المغرب التطواني**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D8%A7%D8%AF%D9%8A-%D8%A7%D9%84%D9%85%D9%83%D9%86%D8%A7%D8%B3%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-1836376.html)
+- **البطولة: النادي المكناسي ينتصر على المغرب التطواني – اليوم 24**: [Link](https://alyaoum24.com/2056046.html)
+- **النادي المكناسي يُضاعف معاناة المغرب التطواني في أسفل الترتيب ويُشدد الخناق على المتصدر الكوكب المراكشي**: [Link](https://ar.sport.le360.ma/football/botola/S6KJ6XPSRFG27MO5DGZ4KCRI2Y/)
+
+
+### classement mas fès – fus rabat (N/A, Sat, 7 Nov 2026 13:20:00 -0800)
+
+
+
+
+### climat (N/A, Sat, 7 Nov 2026 13:20:00 -0800)
+
+- **« Il faut déclarer un état d’urgence sanitaire mondial » : les chercheurs sont témoins d’un basculement dans le réchauffement climatique**: [Link](https://www.science-et-vie.com/nature-et-environnement/il-faut-declarer-un-etat-durgence-sanitaire-mondial-les-chercheurs-sont-temoins-dun-basculement-dans-le-rechauffement-climatique-265286.html)
+- **Climat et santé: les six mesures OMS qui pourraient éviter 1,6 million de décès par an**: [Link](https://fr.hespress.com/495070-climat-et-sante-les-six-mesures-oms-qui-pourraient-eviter-16-million-de-deces-par-an.html)
+- **Changement climatique : l’OMS identifie six leviers pour prévenir 1,6 million de décès par an (Chronique)**: [Link](https://2m.ma/fr/news/Changement-climatique-l-OMS-identifie-six-leviers-pour-pr%C3%A9venir-20261105)
+
+
+### صاروخ (N/A, Sat, 7 Nov 2026 13:20:00 -0800)
+
+- **زيلينسكي يتوعد بمواصلة استهداف قطاع النفط في روسيا**: [Link](https://www.aljazeera.net/news/2026/11/7/%D8%B2%D9%8A%D9%84%D9%8A%D9%86%D8%B3%D9%83%D9%8A-%D9%8A%D8%AA%D9%88%D8%B9%D8%AF-%D9%85%D9%88%D8%A7%D8%B5%D9%84%D8%A9-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%82%D8%B7%D8%A7%D8%B9)
+- **فيديو. ضربات روسية تستهدف منطقة كييف وتلحق أضراراً بالبنية التحتية**: [Link](https://arabic.euronews.com/video/2026/11/07/ukraine-russian-strikes-hit-kyiv-region-damaging-infrastructure)
+- **القوات الروسية تدمر 411 طائرة أوكرانية مسيرة خلال الليل**: [Link](https://www.skynewsarabia.com/world/1903235-%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D8%AA%D8%AF%D9%85%D8%B1-411-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D9%84%D9%8A%D9%84)
+
+
+### arda güler (N/A, Sat, 7 Nov 2026 13:10:00 -0800)
+
+- **Valencia - Real Madrid (Canlı anlatım)**: [Link](https://www.ntvspor.net/futbol/galeri-valencia-real-madrid-canli-anlatim-432663)
+- **Mestalla'da şaşırtan sahne: Kritik bir durum hakemi Real maçını durdurmaya zorladı**: [Link](https://www.goal.com/tr/haber/mestalla-da-sasirtan-sahne-kritik-bir-durum-hakemi-real-macini-durdurmaya-zorladi/blt9573bea550fa5a3f)
+- **Valencia Real Madrid maçı hangi kanalda, Valencia Real Madrid nereden CANLI izlenir? Arda Güler Valencia Real Madrid maçında oynuyor mu?**: [Link](https://www.haberler.com/haber/valencia-real-madrid-maci-hangi-kanalda-valencia-20406038-haberi/)
+
+
+### inter miami – charlotte fc (N/A, Sat, 7 Nov 2026 12:30:00 -0800)
+
+- **MATCH PREVIEW: Inter Miami CF Closes Out 2026 MLS Regular Season with Home Game Against Charlotte FC**: [Link](https://www.intermiamicf.com/news/match-preview-inter-miami-cf-closes-out-2026-mls-regular-season-with-home-game-against-charlotte-fc)
+- **Charlotte vs Inter Miami Prediction (Nov 7): Inter Miami 85% — Odds & Live Score**: [Link](https://www.accuscore.com/game/cmv01ijn4utavmn016tcvtspn)
+- **Starting XI: Charlotte FC at Inter Miami CF | November 7, 2026**: [Link](https://www.charlottefootballclub.com/news/starting-xi-charlotte-fc-at-inter-miami-cf-november-7-2026)
+
+
 ### paris-sg – troyes (N/A, Sat, 7 Nov 2026 11:20:00 -0800)
 
 - **Qui est Younes Idder, le jeune titi convoqué par Luis Enrique contre Troyes ?**: [Link](https://www.lequipe.fr/Football/Actualites/Qui-est-younes-idder-le-jeune-titi-convoque-par-luis-enrique-contre-troyes/1741923)
