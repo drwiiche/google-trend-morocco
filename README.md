@@ -1,3 +1,59 @@
+### wetter (N/A, Fri, 6 Nov 2026 23:50:00 -0800)
+
+- **Wetter: Viel Sonnenschein und Wolken in Berlin und Brandenburg**: [Link](https://www.zeit.de/news/2026-11/07/viel-sonnenschein-und-wolken-in-berlin-und-brandenburg)
+- **Berlin, News, Regional: Wetterbericht für Berlin/Brandenburg (05.11.2026)**: [Link](https://www.tixio.de/1357108-wetterbericht-fuer-berlin-brandenburg-05-11-2026.html)
+- **30 Tage Schnee im letzten Winter – und jetzt? Wann Berlin in diesem Jahr zum ersten Mal weiß wird**: [Link](https://www.berliner-zeitung.de/article/30-tage-schnee-im-letzten-winter-und-jetzt-wann-berlin-in-diesem-jahr-zum-ersten-mal-weiss-wird-10564952)
+
+
+### huile d'olive (N/A, Fri, 6 Nov 2026 22:40:00 -0800)
+
+- **Huile d'olive : l'Espagne intervient en urgence pour préserver ses producteurs**: [Link](https://www.lesechos.fr/industrie-services/conso-distribution/huile-dolive-lespagne-decrete-le-stockage-des-excedents-pour-eviter-leffondrement-des-prix-du-jamais-vu-2261657)
+- **L'Espagne décide de stocker une partie de sa production d'huile d'olive pour éviter une chute des prix**: [Link](https://www.saba.ye/fr/news3828640.htm)
+- **Le gouvernement fera appel au retrait de 12 % d’huile pour qu’il n’affecte pas les Baléares**: [Link](https://www.democrata.es/fr/agriculture-alimentation/le-gouvernement-fera-appel-au-retrait-de-12-d-huile-pour-qu-il-n-affecte-pas-les-baleares/)
+
+
+### espagne (N/A, Fri, 6 Nov 2026 22:30:00 -0800)
+
+- **Mondial 2030: que risque l’Espagne si elle se retire de l’organisation?**: [Link](https://sport.le360.ma/coupe-du-monde/mondial-2030-que-risque-lespagne-si-elle-se-retire-de-lorganisation_73WMJWCANFB23NWCR42MWZINHQ/)
+- **Coupe du Monde 2030 : un candidat espagnol menace la FIFA au sujet du Maroc**: [Link](https://www.footmercato.net/a5805690866543609319-coupe-du-monde-2030-un-candidat-espagnol-menace-la-fifa-au-sujet-du-maroc)
+- **Un candidat de la droite espagnole menace de retirer l'Espagne de l'organisation de la Coupe du monde 2030 si elle n'obtient pas la finale**: [Link](https://www.lequipe.fr/Football/Actualites/Un-candidat-de-la-droite-espagnole-menace-de-retirer-l-espagne-de-l-organisation-de-la-coupe-du-monde-2030-si-elle-n-obtient-pas-la-finale/1741527)
+
+
+### الحسين عموتة (N/A, Fri, 6 Nov 2026 22:20:00 -0800)
+
+- **صفقة ال30 مليون في تشكيل الأهلي بفرمان عاجل لعموتة**: [Link](https://twaslnews1.twaslnews.com/7236431/)
+- **كأس مصر.. القناة الناقلة لمواجهة الأهلي مع السكة الحديد في دور الـ32**: [Link](https://darelhilal.com/News/3338810.aspx)
+- **مواجهة السكة الحديد في كأس مصر**: [Link](https://ekhbary24.com/article/42853)
+
+
+### importation (N/A, Fri, 6 Nov 2026 21:50:00 -0800)
+
+- **Suspected Sinaloa Cartel member arrested in Metro Detroit; cocaine, $100K seized**: [Link](https://www.mlive.com/news/detroit/2026/11/suspected-sinaloa-cartel-member-arrested-in-metro-detroit-cocaine-100k-seized.html)
+- **New customs rule tightens requirements for importers**: [Link](https://www.homeaccentstoday.com/industry-issue/new-customs-rule-tightens-requirements-for-importers/)
+- **CBP strengthens Importer of Record requirements**: [Link](https://www.ajot.com/news/cbp-strengthens-importer-of-record-requirements)
+
+
+### coupe d'afrique des nations de football (N/A, Fri, 6 Nov 2026 21:50:00 -0800)
+
+- **CAN 2025: le Maroc a 75% de chances de gagner devant le TAS, selon un avocat spécialisé en la matière**: [Link](https://h24info.ma/sport/football/can-2025-maroc-tas-avocat-specialise/)
+- **Finale de la CAN 2025: un avocat spécialisé explique pourquoi le règlement donne raison au Maroc**: [Link](https://sport.le360.ma/football/can/finale-de-la-can-2025-un-avocat-specialise-explique-pourquoi-le-reglement-donne-raison-au-maroc_NYRV4D4SDNGODFDQ3NIIJYOZQA/)
+- **CAN 2025 : le Maroc aurait 75 % de chances de conserver son titre devant le TAS, selon un avocat**: [Link](https://fr.hespress.com/495139-can-2025-le-maroc-aurait-75-de-chances-de-conserver-son-titre-devant-le-tas-selon-un-avocat.html)
+
+
+### الخبر (N/A, Fri, 6 Nov 2026 21:00:00 -0800)
+
+- **الاتحاد الأوروبي يستفسر الجزائر بشأن نشر قوات عسكرية في النيجر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D9%8A%D8%B3%D8%AA%D9%81%D8%B3%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A8%D8%B4%D8%A3%D9%86-1835767.html)
+- **التحركات الجزائرية الأخيرة.. ذعر في أوروبا**: [Link](https://www.elkhabar.com/nation/%D8%A7%D9%84%D8%AA%D8%AD%D8%B1%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D8%B0%D8%B9%D8%B1-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-276033)
+- **الجزائر والنيجر... تحركات لضبط التوترات في الساحل**: [Link](https://www.alaraby.co.uk/politics/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%88%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D8%AA%D8%AD%D8%B1%D9%83%D8%A7%D8%AA-%D9%84%D8%B6%D8%A8%D8%B7-%D8%A7%D9%84%D8%AA%D9%88%D8%AA%D8%B1%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D9%84)
+
+
+### لحوم حمراء (N/A, Fri, 6 Nov 2026 15:40:00 -0800)
+
+- **ارتفاع أسعار اللحوم الحمراء يثير قلق المهنيين ويضغط على القدرة الشرائية**: [Link](https://www.hespress.com/%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%84%D8%AD%D9%88%D9%85-%D8%A7%D9%84%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D9%8A%D8%AB%D9%8A%D8%B1-%D9%82%D9%84%D9%82-%D8%A7-1835210.html)
+- **"إلا بقات هكا غادي نسد"..مول الدجاج في مرتيل يخرج عن صمته ويكشف السبب الحقيقي وراء الغلاء**: [Link](https://www.akhbarona.com/videos/435264.html)
+- **مربو دجاج اللحم يضعون أزمة القطاع على طاولة رئيس الفريق الإستقلالي بمجلس النواب**: [Link](https://akherkhabar.ma/%D9%85%D8%B1%D8%A8%D9%88-%D8%AF%D8%AC%D8%A7%D8%AC-%D8%A7%D9%84%D9%84%D8%AD%D9%85-%D9%8A%D8%B6%D8%B9%D9%88%D9%86-%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D9%82%D8%B7%D8%A7%D8%B9-%D8%B9%D9%84%D9%89-%D8%B7/)
+
+
 ### spacex (N/A, Fri, 6 Nov 2026 17:00:00 -0800)
 
 - **Google executive Donald Harrison resigns from SpaceX board**: [Link](https://www.reuters.com/business/media-telecom/google-executive-donald-harrison-resigns-spacex-board-2026-11-06/)
