@@ -1,3 +1,43 @@
+### spacex (N/A, Fri, 6 Nov 2026 17:00:00 -0800)
+
+- **Google executive Donald Harrison resigns from SpaceX board**: [Link](https://www.reuters.com/business/media-telecom/google-executive-donald-harrison-resigns-spacex-board-2026-11-06/)
+- **SpaceX Director Resigns From Board One Day After US Election**: [Link](https://www.bloomberg.com/news/articles/2026-11-06/spacex-director-resigns-from-board-one-day-after-us-election)
+- **Donald Harrison resigns from Space Exploration Technologies board**: [Link](https://www.tradingview.com/news/tradingview:def7e3cfaa48a:0-donald-harrison-resigns-from-space-exploration-technologies-board/)
+
+
+### المغرب اليابان فوتسال (N/A, Fri, 6 Nov 2026 15:40:00 -0800)
+
+- **السيد هشام الدكيك يوجّه الدعوة لعشرين لاعبا لمباراتي اليابان الودية**: [Link](https://frmf.ma/articles/maroc-japon-futsal-coach-hicham-dguig-retient-20-joueurs-pour-la-double-confrontation)
+- **"فوتسال المغرب" ينتصر على اليابان**: [Link](https://www.hespress.com/%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-1835474.html)
+- **بداية موفقة في الديار الآسيوية.. «أسود القاعة» يتفوقون على اليابان في أولى الاختبارات الودية**: [Link](https://sports.lematin.ma/ar/%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AF%D8%A7%D8%AE%D9%84-%D8%A7%D9%84%D9%82%D8%A7%D8%B9%D8%A9-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D9%88%D8%AF%D9%8A%D8%A7-%D9%81%D9%8A-%D8%A3%D9%88%D9%8A%D8%AA%D8%A7/27445)
+
+
+### طالع نازل (N/A, Fri, 6 Nov 2026 15:10:00 -0800)
+
+- **موعد عرض الحلقتين الأخيرتين من مسلسل «طالع نازل» على MBC شاهد (تفاصيل)**: [Link](https://www.almasryalyoum.com/news/details/4401889)
+- **نساء لكن "توكسيك"... التعافي بالانتقام على الشاشة**: [Link](https://www.independentarabia.com/node/661639/%D9%81%D9%86%D9%88%D9%86/%D9%86%D8%B3%D8%A7%D8%A1-%D9%84%D9%83%D9%86-%D8%AA%D9%88%D9%83%D8%B3%D9%8A%D9%83-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B4%D8%A7%D8%B4%D8%A9)
+- **منى زكي في "طالع نازل": كيف يصنع هاني خليفة التشويق من الأسرار الزوجية؟**: [Link](https://alghad.com/Section-182/%D8%AD%D9%8A%D8%A7%D8%AA%D9%86%D8%A7/%D9%85%D9%86%D9%89-%D8%B2%D9%83%D9%8A-%D9%81%D9%8A-%D8%B7%D8%A7%D9%84%D8%B9-%D9%86%D8%A7%D8%B2%D9%84-%D9%83%D9%8A%D9%81-%D9%8A%D8%B5%D9%86%D8%B9-%D9%87%D8%A7%D9%86%D9%8A-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D8%A7%D9%84%D8%AA%D8%B4%D9%88%D9%8A%D9%82-%D9%85%D9%86-%D8%A7%D9%84%D8%A3%D8%B3%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%B2%D9%88%D8%AC%D9%8A%D8%A9-2102557)
+
+
+### pluie (N/A, Fri, 6 Nov 2026 14:40:00 -0800)
+
+- **Un temps frais va se maintenir dans les Alpes-Maritimes début novembre**: [Link](https://www.rcf.fr/articles/actualite/un-temps-frais-va-se-maintenir-dans-les-alpesmaritimes-debut-novembre)
+- **Encore de la pluie dans les Alpes-Maritimes ? Voici les prévisions de ce premier week-end de novembre**: [Link](https://www.nicematin.com/meteo/encore-de-la-pluie-dans-les-alpes-maritimes-voici-les-previsions-de-ce-premier-week-end-de-novembre-10754650)
+- **Côte d’Azur : le retour de la pluie ne suffit pas à combler le déficit hydrique**: [Link](https://www.bfmtv.com/cote-d-azur/replay-emissions/bonjour-cote-d-azur/video-cote-d-azur-le-retour-de-la-pluie-ne-suffit-pas-a-combler-le-deficit-hydrique_VN-202611040278.html)
+
+
+### الجامعة الملكية المغربية لكرة القدم (N/A, Fri, 6 Nov 2026 12:30:00 -0800)
+
+- **التزامات وطنية تدفع لقجع إلى التخلي عن رئاسة اللجنة المالية لـ"الكاف"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85%D8%A7%D8%AA-%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%AA%D8%AF%D9%81%D8%B9-%D9%84%D9%82%D8%AC%D8%B9-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%AE%D9%84%D9%8A-%D8%B9%D9%86-1835888.html)
+- **جون أفريك”: لقجع غادي يطلق مالية الكاف وها علاش**: [Link](https://www.goud.ma/%D8%AC%D9%88%D9%86-%D8%A3%D9%81%D8%B1%D9%8A%D9%83-%D9%84%D9%82%D8%AC%D8%B9-%D8%BA%D8%A7%D8%AF%D9%8A-%D9%8A%D8%B7%D9%84%D8%B9-%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%88-1052445/)
+- **مباشر/ لقجع يغادر "الكاف"..كيف ذالك؟/نوايا الإسبان واضحة.. ضغوط على الفيفا من اجل النهائي!**: [Link](https://www.almountakhab.com/node/16232554)
+
+
+### classement hassania agadir – rsb berkane (N/A, Fri, 6 Nov 2026 12:20:00 -0800)
+
+
+
+
 ### classement fc séville – deportivo alavés (N/A, Fri, 6 Nov 2026 14:20:00 -0800)
 
 - **Confirmed Sevilla and Alavés line-ups for LALIGA matchweek 12**: [Link](https://sports.yahoo.com/articles/confirmed-sevilla-alav-line-ups-190100249.html)
