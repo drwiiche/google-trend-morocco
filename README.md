@@ -1,3 +1,71 @@
+### فقر (N/A, Sat, 7 Nov 2026 07:20:00 -0800)
+
+- **تستخدم ترا لينغ الهوية الثقافية كقوة دافعة للحد من الفقر بشكل مستدام.**: [Link](https://www.vietnam.vn/ar/tra-leng-lay-ban-sac-van-hoa-lam-dong-luc-giam-ngheo-ben-vung)
+- **تقديم دعم عملي لسبل العيش للأسر الفقيرة.**: [Link](https://www.vietnam.vn/ar/thiet-thuc-ho-tro-sinh-ke-cho-ho-ngheo)
+- **رحلة نحو خلق سبل عيش مستدامة للفئات الضعيفة.**: [Link](https://www.vietnam.vn/ar/hanh-trinh-tao-sinh-ke-ben-vung-cho-nguoi-yeu-the)
+
+
+### fulham – newcastle (N/A, Sat, 7 Nov 2026 06:50:00 -0800)
+
+- **Five things to watch out for as Fulham look to leapfrog Newcastle**: [Link](https://www.fulhamish.co.uk/p/five-things-to-watch-out-for-as-fulham-4fb)
+- **Matthias Jaissle must show Newcastle are addressing Eddie Howe's final complaint at Fulham**: [Link](https://www.chroniclelive.co.uk/sport/football/football-news/matthias-jaissle-must-show-newcastle-34871248)
+- **Fulham vs. Newcastle: Craven Cottage away day cost for Magpies fans**: [Link](https://footballgroundguide.com/news/fulham-vs-newcastle-away-day-cost.html)
+
+
+### espanyol – deportivo (N/A, Sat, 7 Nov 2026 06:40:00 -0800)
+
+- **Alineaciones de Espanyol y Deportivo La Coruña para el duelo de la jornada 12 de la LaLiga**: [Link](https://bolavip.com/ar/europa/alineaciones-de-espanyol-y-deportivo-la-coruna-para-el-duelo-de-la-jornada-12-de-la-laliga)
+- **Los lectores de Riazor.org apuestan por dar continuidad al mismo once inicial para visitar al Espanyol**: [Link](https://www.riazor.org/los-lectores-de-riazor-org-apuestan-por-dar-continuidad-al-mismo-once-inicial-para-visitar-al-espanyol/)
+- **Lista de convocados de Eder Sarabia para medirse al Deportivo**: [Link](https://pericos.es/2026/11/07/lista-de-convocados-de-eder-sarabia-para-medirse-al-deportivo/)
+
+
+### آرسنال ضد هال سيتي (N/A, Sat, 7 Nov 2026 06:30:00 -0800)
+
+- **ما القنوات الناقلة لمباراة آرسنال وهال سيتي في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltcfb243072452f5db)
+- **الدوري الإنجليزي - قلق في الجزائر.. سبب غياب محمد بلومي عن مواجهة أرسنال**: [Link](https://www.almashhad.com/article/218257510540304-sports/753817560327015-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%82%D9%84%D9%82-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B3%D8%A8%D8%A8-%D8%BA%D9%8A%D8%A7%D8%A8-%D9%85%D8%AD%D9%85%D8%AF-%D8%A8%D9%84%D9%88%D9%85%D9%8A-%D8%B9%D9%86-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84/)
+- **مباشر مباراة أرسنال ضد هال سيتي في الجولة 10 من الدوري الإنجليزي 2026/2027**: [Link](https://www.365scores.com/ar/news/magazine/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%B6%D8%AF-%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88/)
+
+
+### arsenal – hull city (N/A, Sat, 7 Nov 2026 06:20:00 -0800)
+
+- **Premier League LIVE: Build-up, team news, live text, radio & score updates from across the Premier League**: [Link](https://www.bbc.com/sport/football/live/cmj6jdk36975t)
+- **Arteta's update on Saka, Saliba and Konsa**: [Link](https://www.arsenal.com/news/artetas-update-on-saka-saliba-and-konsa-aopoW1X0hn87)
+- **Hull’s Sergej Jakirović on Arsenal’s Quality in Pre-Match Presser**: [Link](https://dave.sport/news/sergej-jakirovic-press-conference-arsenal-november-2026/)
+
+
+### dortmund – elversberg (N/A, Sat, 7 Nov 2026 06:00:00 -0800)
+
+- **BVB-Novum vor Heimspiel gegen Elversberg: Besondere Kovac-Maßnahme**: [Link](https://www.ruhrnachrichten.de/bvb/bvb-novum-heimspiel-elversberg-niko-kovac-aendert-ablauf-w1271118-2002289665/)
+- **Mainz gegen Bayern - Elversberg mit Dorf nach Dortmund**: [Link](https://www.allgemeine-zeitung.de/lokales/rheinland-pfalz/mainz-gegen-bayern-elversberg-mit-dorf-nach-dortmund-6735754)
+- **Live! BVB mit drei Startelf-Wechseln gegen Elversberg – auch Karetsas beginnt**: [Link](https://www.waz.de/sport/borussia-dortmund/article413612281/heute-live-ohne-guirassy-so-koennte-der-bvb-gegen-books-ex-klub-elversberg-starten.html)
+
+
+### mainz 05 – bayern (N/A, Sat, 7 Nov 2026 05:50:00 -0800)
+
+- **FSV Mainz 05: Gegen den FC Bayern München droht ein Debakel**: [Link](https://www.faz.net/aktuell/sport/rhein-main-sport/mainz-05/fsv-mainz-05-gegen-den-fc-bayern-muenchen-droht-ein-debakel-accg-201659357.html)
+- **Bundesliga: Wer zeigt / überträgt Mainz 05 vs. FC Bayern im TV und LIVE-STREAM?**: [Link](https://www.dazn.com/de-DE/news/fussball/bundesliga-wer-zeigt-uebertraegt-mainz-05-vs-fc-bayern-im-tv-und-live-stream/1cumq1imznl6c14skzqshjj7gr)
+- **Verteidigen die Bayern gegen Mainz mit Urs Fischer ihren Leaderthorn?**: [Link](https://www.bluewin.ch/de/sport/fussball/bundesliga/verteidigen-die-bayern-gegen-mainz-mit-urs-fischer-ihren-leaderthorn-li.3664998)
+
+
+### rb leipzig – augsbourg (N/A, Sat, 7 Nov 2026 05:50:00 -0800)
+
+
+
+
+### málaga vs racing santander (N/A, Sat, 7 Nov 2026 05:20:00 -0800)
+
+- **Málaga Vs Racing Santander: Bottom-placed Málaga look for first league win as Racing chase away points**: [Link](https://twaslnews1.twaslnews.com/7256799/)
+- **Team A vs Team B Football Match Stats | Player & Team Statistics in Real-Time**: [Link](https://www.firstpost.com/football-news/live-score/stats/lee-vs-tot-190595/)
+- **Malaga vs Racing Lineups | LaLiga · 7 Nov 2026**: [Link](https://www.ysscores.com/en/lineup/5868125/M%C3%A1laga-CF-vs-Racing-Santander)
+
+
+### nico paz (N/A, Sat, 7 Nov 2026 04:50:00 -0800)
+
+- **Nico Paz es la guinda**: [Link](https://as.com/futbol/internacional/nico-paz-es-el-futuro-f202611-n/)
+- **El Como responde a las pretensiones de los grandes de Europa y aclara la verdad sobre el regreso de Paz a Madrid**: [Link](https://www.goal.com/es-mx/noticias/el-como-responde-a-las-pretensiones-de-los-grandes-de-europa-y-aclara-la-verdad-sobre-el-regreso-de-paz-a-madrid/blt146c1198db5b442b)
+- **Los otros Nico Paz que el Real Madrid vigila de cerca**: [Link](https://www.sport.es/es/noticias/real-madrid/nico-paz-real-madrid-vigila-136114744)
+
+
 ### wetter (N/A, Fri, 6 Nov 2026 23:50:00 -0800)
 
 - **Wetter: Viel Sonnenschein und Wolken in Berlin und Brandenburg**: [Link](https://www.zeit.de/news/2026-11/07/viel-sonnenschein-und-wolken-in-berlin-und-brandenburg)
