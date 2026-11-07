@@ -1,3 +1,73 @@
+### paris-sg – troyes (N/A, Sat, 7 Nov 2026 11:20:00 -0800)
+
+- **Qui est Younes Idder, le jeune titi convoqué par Luis Enrique contre Troyes ?**: [Link](https://www.lequipe.fr/Football/Actualites/Qui-est-younes-idder-le-jeune-titi-convoque-par-luis-enrique-contre-troyes/1741923)
+- **PSG : Luis Enrique convoque plusieurs jeunes pour la réception de Troyes**: [Link](https://www.footmercato.net/a1010641315040705458-psg-luis-enrique-convoque-plusieurs-jeunes-pour-la-reception-de-troyes)
+- **Un nom marocain inattendu sur la liste du PSG : Enrique prépare la surprise**: [Link](https://www.goal.com/fr/news/un-nom-marocain-inattendu-sur-la-liste-du-psg-enrique-prepare-la-surprise/blt118ac919ba66972c)
+
+
+### valencia vs real madrid (N/A, Sat, 7 Nov 2026 11:20:00 -0800)
+
+- **Valencia vs. Real Madrid: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/valencia-vs-real-madrid-preview-predictions-lineups-11-7-26)
+- **Stats: Valencia manager Javier Aguirre has a less-than-favourable record against Real Madrid**: [Link](https://sports.yahoo.com/articles/stats-valencia-manager-javier-aguirre-080000358.html)
+- **Licensable video: Real Madrid's final training session before facing Valencia**: [Link](https://www.reutersconnect.com/item/real-madrids-final-training-session-before-facing-valencia/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX09XRUZWQzU1MDIxOTEwOTc4MDAx)
+
+
+### فالنسيا ضد الريال (N/A, Sat, 7 Nov 2026 11:10:00 -0800)
+
+- **لا مجال للتهاون.. مورينيو يفاجئ فالنسيا بتشكيل ناري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D8%A7-%D9%85%D8%AC%D8%A7%D9%84-%D9%84%D9%84%D8%AA%D9%87%D8%A7%D9%88%D9%86--%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%81%D8%A7%D8%AC%D9%8A%D9%94-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-%D8%A8%D8%AA%D8%B4%D9%83%D9%8A%D9%84-%D9%86%D8%A7%D8%B1%D9%8A/bltf59a371807b2ed52)
+- **ريال مدريد ينشد تخطّي عقبة فالنسيا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D8%B4%D8%AF-%D8%AA%D8%AE%D8%B7-%D9%8A-%D8%B9%D9%82%D8%A8%D8%A9-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7-2026-11-07)
+- **عاد مرعبهم.. عقدة مورينيو في ريال مدريد ومبابي يطارد ثلاثيات فالنسيا!**: [Link](https://www.goal.com/ar/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%B9%D8%A7%D8%AF-%D9%85%D8%B1%D8%B9%D8%A8%D9%87%D9%85--%D8%B9%D9%82%D8%AF%D8%A9-%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%81%D9%8A-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%B7%D8%A7%D8%B1%D8%AF-%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A7%D8%AA-%D9%81%D8%A7%D9%84%D9%86%D8%B3%D9%8A%D8%A7/blt3ffcde5b02d11df1)
+
+
+### أتلتيكو مدريد (N/A, Sat, 7 Nov 2026 11:10:00 -0800)
+
+- **رودري يُخبر لاعبي برشلونة بمفاجأة سعيدة قبل الصدام العاطفي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%8A%D9%8F%D8%AE%D8%A8%D8%B1-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A8%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D8%B3%D8%B9%D9%8A%D8%AF%D8%A9-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D8%B7%D9%81%D9%8A/blt79a357ed0fe06ed0)
+- **فليك يكشف عن العائدين لبرشلونة في مواجهة أتلتيكو مدريد ويحسم مصير كوندي**: [Link](https://www.aljazeera.net/sport/2026/11/7/%D8%A5%D8%B1%D9%8A%D9%83-%D8%BA%D8%A7%D8%B1%D8%B3%D9%8A%D8%A7-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%86%D8%B3%D9%86-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88)
+- **ما القنوات الناقلة لمباراة أتلتيكو مدريد وبرشلونة في الدوري الإسباني 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt751eda6ae7cf19fd)
+
+
+### الأهلي ضد السكة الحديد (N/A, Sat, 7 Nov 2026 10:40:00 -0800)
+
+- **بث مباشر لمباراة الأهلي ضد السكة الحديد في كأس مصر**: [Link](https://www.annahar.com/sports/364507/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%B6%D8%AF-%D8%A7%D9%84%D8%B3%D9%83%D8%A9-%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D9%83%D8%A3%D8%B3-%D9%85%D8%B5%D8%B1)
+- **بث مباشر.. مشاهدة مباراة الأهلي والسكة الحديد الآن في كأس مصر 2027**: [Link](https://www.365scores.com/ar/news/magazine/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A7%D9%84%D8%B3%D9%83%D8%A9-%D8%A7%D9%84%D8%AD%D8%AF%D9%8A%D8%AF/)
+- **أهداف مباراة الأهلي ضد السكة الحديد في كأس مصر**: [Link](https://al-ain.com/article/al-ahly-vs-el-sekka-el-hadid-egypt-cup)
+
+
+### city (N/A, Sat, 7 Nov 2026 10:40:00 -0800)
+
+- **Krakow shooting updates: At least six killed and about a dozen injured**: [Link](https://www.bbc.com/news/live/cq3dj1xv02vyt)
+- **At least 6 dead in shooting in the main market square of Krakow, Poland, police say**: [Link](https://www.cnn.com/2026/11/07/europe/krakow-shooting-poland-killed-intl)
+- **Kraków shooting latest updates: six killed and more than a dozen injured, police say**: [Link](https://www.theguardian.com/world/live/2026/nov/07/krakow-shooting-poland-latest-news-updates)
+
+
+### ترتيبات آرسنال – هال سيتي (N/A, Sat, 7 Nov 2026 10:30:00 -0800)
+
+- **فيديو: آرسنال يعبر عقبة هال سيتي بصعوبة ويعزز صدارته**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%8A%D8%B9%D8%A8%D8%B1-%D8%B9%D9%82%D8%A8%D8%A9-%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A-%D8%A8%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D9%88%D9%8A%D8%B9%D8%B2%D8%B2-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87/blt91a1cf9f0726816b)
+- **أوديغارد يمنح أرسنال فوزا صعبا وليدز يوقف انتفاضة توتنهام (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/11/7/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D8%AA%D9%88%D8%AA%D9%86%D9%87%D8%A7%D9%85)
+- **جمال الشريف يفسر اللقطة المثيرة للجدل في مباراة أرسنال وهال سيتي**: [Link](https://www.alaraby.co.uk/sport/%D8%AC%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%B1%D9%8A%D9%81-%D9%8A%D9%81%D8%B3%D8%B1-%D8%A7%D9%84%D9%84%D9%82%D8%B7%D8%A9-%D8%A7%D9%84%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D8%AC%D8%AF%D9%84-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D9%87%D8%A7%D9%84-%D8%B3%D9%8A%D8%AA%D9%8A)
+
+
+### المغرب الفاسي ضد الفتح الرباطي (N/A, Sat, 7 Nov 2026 10:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة المغرب الفاسي والفتح الرباطي في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%88%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4b99ebe72cc659af)
+- **الكرمة يستدعي 20 لاعبا من الماص لمواجهة الفتح – الرياضة**: [Link](https://anbaetv.ma/1194660)
+- **صراع فك الارتباط.. المغرب الفاسي والفتح الرباطي في مواجهة لا تقبل القسمة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%81%D8%A7%D8%B3%D9%8A-%D9%8A%D9%88%D8%A7%D8%AC%D9%87-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%AD%D8%AA%D8%B1%D8%A7%D9%81%D9%8A%D8%A9/27483)
+
+
+### حكيم زياش (N/A, Sat, 7 Nov 2026 09:40:00 -0800)
+
+- **بعد 6 مباريات.. زياش يفشل في التسجيل أو الصناعة مع بوتافوغو – الرياضة**: [Link](https://anbaetv.ma/1194563)
+- **"أزمة" جديدة يعيشها حكيم زياش مع فريقه بوتافوغو**: [Link](https://www.akhbarona.com/sport/proplayers/435377.html)
+- **موهبة بلا أهداف وأب لبرازيلي: حكيم زياش وزكرياء لبيض .. تاريخ مغربي جديد والخوف من "نهاية مأساوية"!**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%A6%D9%85/%D8%AD%D9%83%D9%8A%D9%85-%D8%B2%D9%8A%D8%A7%D8%B4-%D8%B2%D9%83%D8%B1%D9%8A%D8%A7%D8%A1-%D9%84%D8%A8%D9%8A%D8%B6-%D8%A8%D9%88%D8%AA%D8%A7%D9%81%D9%88%D8%AC%D9%88-%D9%83%D9%88%D8%B1%D9%8A%D9%86%D8%AB%D9%8A%D8%A7%D9%86%D8%B2-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%87%D8%AF%D9%81-%D9%83%D9%88%D8%A8%D8%A7-%D9%84%D9%8A%D8%A8%D8%B1%D8%AA%D8%A7%D8%AF%D9%88%D8%B1%D9%8A%D8%B3/blt172750fc181f7632)
+
+
+### قيس عبد الفتاح (N/A, Sat, 7 Nov 2026 09:40:00 -0800)
+
+- **بعد زواج قيس عبد الفتاح في سن الـ81.. هل يحمي الحب من الاكتئاب؟**: [Link](https://www.elconsolto.com/psychiatric/psychiatric-news/details/2026/11/7/3074973/%D8%A8%D8%B9%D8%AF-%D8%B2%D9%88%D8%A7%D8%AC-%D9%82%D9%8A%D8%B3-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%81%D8%AA%D8%A7%D8%AD-%D9%81%D9%8A-%D8%B3%D9%86-%D8%A7%D9%84%D9%8081-%D9%87%D9%84-%D9%8A%D8%AD%D9%85%D9%8A-%D8%A7%D9%84%D8%AD%D8%A8-%D9%85%D9%86-%D8%A7%D9%84%D8%A7%D9%83%D8%AA%D8%A6%D8%A7%D8%A8-)
+- **عروسة تونسية تصغره بـ22 عامًا، بطل فيلم «مجنون ليلى» يتزوج للمرة السادسة في عمر الـ 81**: [Link](https://www.vetogate.com/5765785)
+- **بعد إعلان زواجه بعمر الـ81 عاما.. معلومات عن قيس عبدالفتاح وقصة حب لم تكتمل مع زبيدة ثروت**: [Link](https://www.almasryalyoum.com/news/details/4403624)
+
+
 ### فقر (N/A, Sat, 7 Nov 2026 07:20:00 -0800)
 
 - **تستخدم ترا لينغ الهوية الثقافية كقوة دافعة للحد من الفقر بشكل مستدام.**: [Link](https://www.vietnam.vn/ar/tra-leng-lay-ban-sac-van-hoa-lam-dong-luc-giam-ngheo-ben-vung)
