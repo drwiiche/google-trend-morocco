@@ -1,3 +1,31 @@
+### الدرك الملكي (N/A, Sat, 7 Nov 2026 17:30:00 -0800)
+
+- **عملية نوعية تحبط عملية للهجرة بأكلو**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%86%D9%88%D8%B9%D9%8A%D8%A9-%D8%AA%D8%AD%D8%A8%D8%B7-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%84%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D8%A8%D8%A3%D9%83%D9%84%D9%88-1835300.html)
+- **تيزنيت: توقيف 57 مرشحا للهجرة السرية وحجز معدات بحرية بشاطئ أكلو**: [Link](https://2m.ma/ar/news/%D8%AA%D9%8A%D8%B2%D9%86%D9%8A%D8%AA-%D8%AA%D9%88%D9%82%D9%8A%D9%81-57-%D9%85%D8%B1%D8%B4%D8%AD%D8%A7-%D9%84%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%B1%D9%8A%D8%A9-%D9%88%D8%AD%D8%AC%D8%B2-%D9%85%D8%B9%D8%AF%D8%A7%D8%AA-%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A8%D8%B4%D8%A7%D8%B7%D8%A6-%D8%A3%D9%83%D9%84%D9%88-20261106)
+- **إنزكان أيت ملول.. الدرك الملكي يفشل محاولة للهجرة غير النظامية بشاطئ تراست**: [Link](https://anfaspress.com/news/voir/181643-2026-11-05-06-01-02)
+
+
+### mls (N/A, Sat, 7 Nov 2026 15:20:00 -0800)
+
+- **Nashville SC vs FC Cincinnati Prediction (Nov 7): Nashville SC 47% — Odds & Live Score**: [Link](https://www.accuscore.com/game/cmv01ijmzutatmn01jmyrfq6v)
+- **Renasant Recap: Nashville Soccer Club Caps Best Regular Season in MLS History with Wins and Points Record**: [Link](https://www.nashvillesc.com/news/renasant-recap-nashville-soccer-club-caps-best-regular-season-in-mls-history-with-wins-and-points-record)
+- **Surridge scores twice to lift Nashville SC to 2-0 victory over FC Cincinnati**: [Link](https://local12.com/sports/fc-cincinnati/surridge-scores-twice-to-lift-nashville-sc-to-2-0-victory-over-fc-cincinnati)
+
+
+### brahim díaz (N/A, Sat, 7 Nov 2026 14:50:00 -0800)
+
+- **Hakimi, Mané, Semenyo and Brahim Diaz headline star-studded Men's nominations for CAF Awards 2026**: [Link](https://www.cafonline.com/news/hakimi-mane-semenyo-and-brahim-diaz-headline-star-studded-mens-nominations-for-caf-awards-2026/)
+- **Amad: Man United attacker nominated for “prestigious honour”**: [Link](https://sports.yahoo.com/articles/amad-man-united-attacker-nominated-063000318.html)
+- **Nigeria absent from women's player shortlist for first time since CAF awards began**: [Link](https://www.espn.com/espn/story/_/id/50376943/nigeria-absent-women-player-shortlist-first-caf-awards-began)
+
+
+### classement valencia club de fútbol – real madrid (N/A, Sat, 7 Nov 2026 14:10:00 -0800)
+
+- **Guler pounces on rebound to double Real Madrid's lead at Mestalla**: [Link](https://www.besoccer.com/new/guler-pounces-on-rebound-to-double-real-madrids-lead-at-mestalla-1439944)
+- **Mourinho: "This team is very united and very solid"**: [Link](https://www.realmadrid.com/en-US/news/football/first-team/latest-news/mourinho-07-11-2026)
+- **Trent Alexander-Arnold watches from the bench as Fede Valverde scores a stunner from right-back for Real Madrid**: [Link](https://www.goal.com/en-om/news/trent-alexander-arnold-watches-bench-fede-valverde-scores-stunner-right-back-real-madrid/bltfb88c0afe791fe3b)
+
+
 ### huile olive espagne (N/A, Sat, 7 Nov 2026 14:30:00 -0800)
 
 - **Les agriculteurs ont reçu l’ordre de ne pas commercialiser leur huile d’olive: face à une récolte record, l’Espagne bloque 188.000 tonnes pour éviter l’effondrement des prix, au risque de faire grimper la facture des consommateurs**: [Link](https://www.bfmtv.com/economie/entreprises/agriculture/les-agriculteurs-ont-recu-l-ordre-de-ne-pas-commercialiser-leur-huile-d-olive-face-a-une-recolte-record-l-espagne-bloque-188-000-tonnes-pour-eviter-l-effondrement-des-prix-au-risque-de-faire-grimper-la-facture-des-consommateurs_AN-202611070176.html)
