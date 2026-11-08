@@ -1,3 +1,71 @@
+### fc barcelone – madrid club de fútbol femenino (N/A, Sun, 8 Nov 2026 07:10:00 -0800)
+
+
+
+
+### سندرلاند ضد تشيلسي (N/A, Sun, 8 Nov 2026 06:50:00 -0800)
+
+- **تشكيل تشيلسي ضد سندرلاند بالجولة العاشرة من الدوري الإنجليزي 2026-27**: [Link](https://twaslnews1.twaslnews.com/7299520/)
+- **اهداف مباراة تشيلسي وسندرلاند في الدوري الانجليزي**: [Link](https://www.btolat.com/video/96016)
+- **توقعات مباراة سندرلاند وتشيلسي 8/11: هل يستطيع البلوز الثأر؟**: [Link](https://www.vietnam.vn/ar/nhan-dinh-sunderland-vs-chelsea-8-11-the-blues-co-doi-duoc-mon-no-cu)
+
+
+### real sociedad – rayo (N/A, Sun, 8 Nov 2026 06:40:00 -0800)
+
+- **Previa del Real Sociedad vs Rayo Vallecano: Un punto clave en la lucha por el título.**: [Link](https://www.vietnam.vn/es/nhan-dinh-real-sociedad-vs-rayo-vallecano-diem-nong-cuoc-dua-top-dau)
+- **Oyarzabal, baja en la Real; Tsitaishvili y Unai López entran en el Rayo**: [Link](https://www.infobae.com/espana/agencias/2026/11/08/oyarzabal-baja-en-la-real-tsitaishvili-y-unai-lopez-entran-en-el-rayo/)
+- **Consolidar situación**: [Link](https://www.realsociedad.eus/es/noticias/detalle/consolidar-situacion)
+
+
+### carlos alcaraz (N/A, Sun, 8 Nov 2026 06:40:00 -0800)
+
+- **Alcaraz - Shelton, en directo | Última hora de la final del Masters 1000 de París hoy, en vivo**: [Link](https://www.marca.com/tenis/masters-1000-paris/ben-shelton-carlos-alcaraz/2026/11/08/04_0413_20261108_63-directo.html)
+- **Bombazo histórico de Alcaraz: ata la final del morbo en París**: [Link](https://www.mundodeportivo.com/tenis/20261107/1004248366/bombazo-historico-alcaraz-paris-ata-final-morbo-paris.html)
+- **Ben Shelton y el factor Ferrero: Alcaraz busca la revancha en la final de París**: [Link](https://www.puntodebreak.com/2026/11/08/shelton-factor-ferrero-alcaraz-busca-revancha-final-paris)
+
+
+### ipswich town – bournemouth (N/A, Sun, 8 Nov 2026 06:20:00 -0800)
+
+- **Ipswich vs Bournemouth LIVE! Premier League score updates, news, prediction, line-ups and how to watch or stream**: [Link](https://www.skysports.com/football/live-blog/13592889/ipswich-vs-bournemouth-live-premier-league-score-updates-news-prediction-line-ups-and-how-to-watch-or-stream)
+- **Junior Kroupi still needs time to start for Cherries again, says Marco Rose**: [Link](https://onefootball.com/en/news/junior-kroupi-still-needs-time-to-start-for-cherries-again-says-marco-rose-43744160)
+- **Premier League live: score, updates and analysis**: [Link](https://www.thetimes.com/sport/football/article/premier-league-live-score-analysis-commentary-latest-news-vs3qr3jp5)
+
+
+### genoa – ac milan (N/A, Sun, 8 Nov 2026 05:50:00 -0800)
+
+- **Watch: Cisse and Pulisic strike early as Milan take 2-0 lead against Genoa**: [Link](https://sempremilan.com/watch-cisse-pulisic-goals-genoa)
+- **Will Musah start at left-back for Milan against Genoa?**: [Link](https://milanreports.com/2026/11/08/musah-left-back-milan-genoa/)
+- **AC Milan vs. Genoa CFC Prediction, Picks, Live Odds – Nov. 8**: [Link](https://www.bleachernation.com/picks/2026/11/07/ac-milan-vs-genoa-cfc-prediction-picks-live-odds-nov-8/)
+
+
+### كريستال بالاس ضد ليفربول (N/A, Sun, 8 Nov 2026 05:50:00 -0800)
+
+- **ما القنوات الناقلة لمباراة كريستال بالاس وليفربول في الدوري الإنجليزي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%88%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltba6dcabe508ca4f9)
+- **بطولة إنكلترا: إيراولا مدرب ليفربول يدعو إلى "نظرة أكثر شمولية" بعد خسارتين**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261106-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D9%85%D8%AF%D8%B1%D8%A8-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D9%86%D8%B8%D8%B1%D8%A9-%D8%A3%D9%83%D8%AB%D8%B1-%D8%B4%D9%85%D9%88%D9%84%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D8%AE%D8%B3%D8%A7%D8%B1%D8%AA%D9%8A%D9%86)
+- **يقصد مباراة آرسنال؟.. إيراولا يعلق على إحصائية مثيرة لليفربول: نحن فريق نزيه!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%8A%D9%82%D8%B5%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%93%D8%B1%D8%B3%D9%86%D8%A7%D9%84--%D8%A7%D9%95%D9%8A%D8%B1%D8%A7%D9%88%D9%84%D8%A7-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%95%D8%AD%D8%B5%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D9%84%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%86%D8%AD%D9%86-%D9%81%D8%B1%D9%8A%D9%82-%D9%86%D8%B2%D9%8A%D9%87/bltc48029845be730c5)
+
+
+### rennes – lille (N/A, Sun, 8 Nov 2026 05:40:00 -0800)
+
+- **10e journée de Ligue 1 : Suivez Rennes – Lille EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/live-stade-rennais-lille-osc_mtc21875538/live-commentary.shtml)
+- **Après Martin Terrier, place à un deuxième duel entre le Stade Rennais et le LOSC ce dimanche**: [Link](https://lepetitlillois.com/2026/11/08/terrier-deuxieme-duel-stade-rennais-losc/)
+- **Ligue 1 : Suivez Stade Rennais – LOSC en direct**: [Link](https://www.sport.fr/football/ligue-1-suivez-stade-rennais-losc-en-direct-1499010.shtm)
+
+
+### twente – ajax (N/A, Sun, 8 Nov 2026 05:40:00 -0800)
+
+- **Vooruitblik | “Duel tussen twee teams die elkaar weinig ontlopen”**: [Link](https://fctwente.nl/nieuws/-duel-tussen-twee-teams-die-elkaar-weinig-ontlopen)
+- **Bizarre beslissing scheidsrechter Kooij • FC Twente zwaar benadeeld**: [Link](https://www.destentor.nl/enschede/bizarre-beslissing-scheidsrechter-kooij-fc-twente-zwaar-benadeeld~af6b2696/)
+- **🔴 Ajax wil goede reeks voortzetten in Enschede • Sánchez voert twee wijzigingen door**: [Link](https://www.nhnieuws.nl/nieuws/365233/ajax-wil-goede-reeks-voortzetten-in-enschede-sanchez-voert-twee-wijzigingen-door)
+
+
+### brighton – brentford (N/A, Sun, 8 Nov 2026 05:30:00 -0800)
+
+- **Brighton & Hove Albion vs Brentford: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cqkgkwj1rpl8t)
+- **Hurzeler ready for energetic Amex return after Brighton's five-game away run**: [Link](https://www.theargus.co.uk/sport/26705893.hurzeler-looks-forward-albions-amex-return-sunday/)
+- **Live Super Sunday on Sky Sports Main Event HD: full details and when it's on**: [Link](https://www.tvguide.co.uk/schedule/1ade1e91-fbf5-5a9f-9e83-6e9e0bbde059/live-super-sunday)
+
+
 ### زيتون (N/A, Sat, 7 Nov 2026 23:40:00 -0800)
 
 - **إسبانيا تخزن 188 ألف طن من زيت الزيتون**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AE%D8%B2%D9%86-188-%D8%A3%D9%84%D9%81-%D8%B7%D9%86-%D9%85%D9%86-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-1835634.html)
