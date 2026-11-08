@@ -1,3 +1,31 @@
+### زيتون (N/A, Sat, 7 Nov 2026 23:40:00 -0800)
+
+- **إسبانيا تخزن 188 ألف طن من زيت الزيتون**: [Link](https://www.hespress.com/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D8%AE%D8%B2%D9%86-188-%D8%A3%D9%84%D9%81-%D8%B7%D9%86-%D9%85%D9%86-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-1835634.html)
+- **إسبانيا.. سحب 188 ألف طن من زيت الزيتون من السوق لمواجهة فائض الإنتاج**: [Link](https://2m.ma/ar/news/%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%82%D8%B1%D8%B1-%D8%AA%D8%AE%D8%B2%D9%8A%D9%86-%D8%AC%D8%B2%D8%A1-%D9%85%D9%86-%D8%A5%D9%86%D8%AA%D8%A7%D8%AC-%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84%D8%B2%D9%8A%D8%AA%D9%88%D9%86-%D9%84%D8%AA%D8%AC%D9%86%D8%A8-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6-%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-20261106)
+- **إسبانيا تسحب 188 ألف طن من زيت الزيتون من السوق لتنظيم المعروض**: [Link](https://arabic.euronews.com/2026/11/06/spain-orders-olive-oil-mills-to-store-12-of-their-olive-oil-production)
+
+
+### قهوة (N/A, Sat, 7 Nov 2026 21:40:00 -0800)
+
+- **قبل أن تشرب قهوتك.. خطوة بسيطة قد تحمي قلبك من الكوليسترول**: [Link](https://www.alarabiya.net/medicine-and-health/2026/11/06/%D9%82%D8%A8%D9%84-%D8%A7%D9%86-%D8%AA%D8%B4%D8%B1%D8%A8-%D9%82%D9%87%D9%88%D8%AA%D9%83-%D8%AE%D8%B7%D9%88%D8%A9-%D8%A8%D8%B3%D9%8A%D8%B7%D8%A9-%D9%82%D8%AF-%D8%AA%D8%AD%D9%85%D9%8A-%D9%82%D9%84%D8%A8%D9%83-%D9%85%D9%86-%D8%A7%D9%84%D9%83%D9%88%D9%84%D9%8A%D8%B3%D8%AA%D8%B1%D9%88%D9%84)
+- **مشروب منزلي بسيط قد يقلل خطر ألزهايمر: ما تقوله الدراسات عن حماية الدماغ والذاكرة**: [Link](https://twaslnews1.twaslnews.com/7254026/)
+- **كوبان إلى 3 يوميا.. خبراء يكشفون دور القهوة في تقليل خطر الإصابة بألزهايمر**: [Link](https://elmaser.com/article/200993)
+
+
+### pluie (N/A, Sat, 7 Nov 2026 21:10:00 -0800)
+
+- **De fortes pluies généralisées sont possibles dans la ville de Hué.**: [Link](https://www.vietnam.vn/fr/co-kha-nang-xuat-hien-dot-mua-lon-dien-rong-tren-dia-ban-tp-hue)
+- **Hue met en garde contre la poursuite des fortes pluies, certaines zones pouvant recevoir plus de 700 mm.**: [Link](https://www.vietnam.vn/fr/hue-canh-bao-mua-lon-tiep-dien-co-noi-tren-700-mm)
+- **Hue met en œuvre un plan de réponse aux fortes pluies.**: [Link](https://www.vietnam.vn/fr/hue-trien-khai-phuong-an-ung-pho-mua-lon)
+
+
+### البطاطا (N/A, Sat, 7 Nov 2026 15:30:00 -0800)
+
+- **أين اختفت البطاطا؟ جدل وسؤال يحير الجزائريين**: [Link](https://www.aljazeera.net/misc/2026/11/7/%D8%A3%D9%8A%D9%86-%D8%A7%D8%AE%D8%AA%D9%81%D8%AA-%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D8%B7%D8%A7-%D8%AC%D8%AF%D9%84-%D9%88%D8%B3%D8%A4%D8%A7%D9%84-%D9%8A%D8%AD%D9%8A%D8%B1)
+- **اضطراب التموين بمادتي البطاطس وزيت المائدة يستنفر الحكومة الجزائرية**: [Link](https://www.alquds.co.uk/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D9%85%D9%88%D9%8A%D9%86-%D8%A8%D9%85%D8%A7%D8%AF%D8%AA%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D8%B7%D8%B3-%D9%88%D8%B2%D9%8A%D8%AA-%D8%A7%D9%84/)
+- **انفراج مرتقب في سوق البطاطا خلال أيام قليلة – الشروق أونلاين**: [Link](https://www.echoroukonline.com/%D8%A7%D9%86%D9%81%D8%B1%D8%A7%D8%AC-%D9%85%D8%B1%D8%AA%D9%82%D8%A8-%D9%81%D9%8A-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%A8%D8%B7%D8%A7%D8%B7%D8%A7-%D8%AE%D9%84%D8%A7%D9%84-%D8%A3%D9%8A%D8%A7%D9%85-%D9%82)
+
+
 ### الدرك الملكي (N/A, Sat, 7 Nov 2026 17:30:00 -0800)
 
 - **عملية نوعية تحبط عملية للهجرة بأكلو**: [Link](https://www.hespress.com/%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%86%D9%88%D8%B9%D9%8A%D8%A9-%D8%AA%D8%AD%D8%A8%D8%B7-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D9%84%D9%84%D9%87%D8%AC%D8%B1%D8%A9-%D8%A8%D8%A3%D9%83%D9%84%D9%88-1835300.html)
