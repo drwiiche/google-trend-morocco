@@ -1,3 +1,73 @@
+### ترتيب الدوري المغربي (N/A, Sun, 8 Nov 2026 14:30:00 -0800)
+
+- **الكوكب المراكشي يهزم الوداد ويعزز صدارته للدوري المغربي**: [Link](https://www.aljazeera.net/sport/2026/11/7/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D9%8A%D8%B9%D8%B2%D8%B2)
+- **نابي يتشبث بالمنافسة على الألقاب… والسفري: « واجهنا فريقا كبيرا رغم النقص العددي » – اليوم 24**: [Link](https://alyaoum24.com/2056039.html)
+- **فيديو: نتائج مباريات الجولة السابعة من البطولة الوطنية لكرة القدم**: [Link](https://2m.ma/ar/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-20261108)
+
+
+### نيجيريا (N/A, Sun, 8 Nov 2026 14:20:00 -0800)
+
+- **نيجيريا تصنع التاريخ.. والمغرب يرسل رسالة قوية قبل كأس العالم 2030**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D8%B5%D9%86%D8%B9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE--%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B1%D8%B3%D9%84-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%82%D8%A8%D9%84-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2030/blt53d3e213eff94ef3)
+- **كأس العالم للسيدات لأقل من 17 سنة (المغرب 2026).. كوريا الشمالية تحرز المركز الثالث بفوز عريض على البرازيل ( 6-0)**: [Link](https://2m.ma/ar/news/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-2026-%D9%83%D9%88%D8%B1%D9%8A%D8%A7-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84%D9%8A%D8%A9-20261107)
+- **نيجيريا تهزم اليابان وتتوج بكأس العالم للناشئات لأول مرة في تاريخها**: [Link](https://www.hesport.com/%D9%86%D9%8A%D8%AC%D9%8A%D8%B1%D9%8A%D8%A7-%D8%AA%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D9%88%D8%AA%D8%AA%D9%88%D8%AC-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84-460275.html)
+
+
+### atlético madrid vs fc barcelona standings (N/A, Sun, 8 Nov 2026 14:10:00 -0800)
+
+- **Atletico Madrid 1-2 Barcelona: Fermin double sees leaders come from behind to beat Atletico**: [Link](https://www.bbc.com/sport/football/live/cm4g1jlw7vqlt)
+- **Flick confirms De Jong's starting role against Atlético Madrid is not yet decided**: [Link](https://www.elbotola.com/en/article/2026-11-07-13-41-133.html)
+- **Follow the epic clash between Atletico Madrid and Barcelona LIVE!**: [Link](https://www.flashscore.com/news/soccer-laliga-atletico-madrid-barcelona-8-11-2026-live-updates/4KwknVdk/)
+
+
+### classement racing club de lens – olympique de marseille (N/A, Sun, 8 Nov 2026 14:00:00 -0800)
+
+- **Lens 1-2 OM, Ligue 1 : L'OM enfonce Lens et déboule au 4e rang**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/lens-om-live/690345)
+- **Lens - OM : les notes du match**: [Link](https://www.footmercato.net/a3326301167732129082-lens-om-les-notes-du-match)
+- **De puni à héros, Abdallah fait remonter l'OM à la 4e place ! - Débrief et NOTES des joueurs (Lens 1-2 OM)**: [Link](https://m.maxifoot.fr/football/article-66514.htm)
+
+
+### laliga (N/A, Sun, 8 Nov 2026 14:00:00 -0800)
+
+- **Barcelona Denies Simeone Historic LaLiga Record**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/barcelona-denies-simeone-historic-laliga-record-2026-11-08)
+- **A sad night for the Argentine: Barcelona deny Simeone an unprecedented achievement in La Liga history**: [Link](https://www.livescore.com/en/news/football/laliga/a-sad-night-for-the-argentine-barcelona-deny-simeone-an-unprecedented-achievement-in-la-liga-history-goal/)
+- **"The dream is postponed": Fermin Lopez denies Simeone an unprecedented achievement at Barcelona's expense**: [Link](https://www.goal.com/en/news/the-dream-is-postponed-fermin-lopez-denies-simeone-an-unprecedented-achievement-at-barcelona-s-expense/bltea5b58dfa5858814)
+
+
+### raja casablanca (N/A, Sun, 8 Nov 2026 14:00:00 -0800)
+
+- **Raja Casablanca 2-0 Ittihad Tanger, Championnat du Maroc : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-du-maroc/2026-2027/raja-casablanca-ittihad-tanger-live/702581)
+- **Noskova - Kostyuk, WTA Finals, Masters (Indian Wells), Groupe 1 : 2-0, match terminé**: [Link](https://www.lequipe.fr/Tennis/masters-indian-wells/epreuve-simple-dames/annee-2026/match-direct/linda-noskova-marta-kostyuk-live/717151)
+- **Donnez une note au Grand Prix du Brésil**: [Link](https://www.lequipe.fr/Formule-1/Actualites/Donnez-une-note-au-grand-prix-du-bresil/1742355)
+
+
+### statistiques de atlético madrid – fc barcelone (N/A, Sun, 8 Nov 2026 14:00:00 -0800)
+
+- **Live coverage of Atletico Madrid vs Barcelona in La Liga**: [Link](https://www.aljazeera.com/sports/liveblog/2026/11/8/atletico-madrid-vs-barcelona-la-liga-live)
+- **Atlético Madrid vs Barcelona summary: score, stats, goals & highlights | LaLiga 2026/27**: [Link](https://en.as.com/soccer/atletico-madrid-vs-barcelona-live-online-score-stats-goals-updates-laliga-202627-f202611-n/)
+- **Atlético Madrid vs Barcelona, La Liga: TV & Streaming, Live Thread**: [Link](https://www.barcablaugranes.com/barcelona-la-liga/137354/atletico-madrid-barcelona-live-stream-lineups-kickoff-time-tv-channel-how-to-watch-la-liga-online)
+
+
+### karim adeyemi (N/A, Sun, 8 Nov 2026 13:50:00 -0800)
+
+- **The reasons behind Adeyemi’s omission from Germany’s squad**: [Link](https://www.mundodeportivo.com/en/20261108/1004248530/the-reasons-behind-adeyemi-s-omission-from-germany-s-squad.html)
+- **'He does not deserve to be the first-choice goalkeeper': Ter Stegen sparks controversy in Germany**: [Link](https://www.yardbarker.com/soccer/articles/he_does_not_deserve_to_be_the_first_choice_goalkeeper_ter_stegen_sparks_controversy_in_germany/s1_17790_44527496)
+- **Klopp leaves out Adeyemi: Weidenfeller has a theory**: [Link](https://sports.yahoo.com/articles/klopp-leaves-adeyemi-weidenfeller-theory-063200882.html)
+
+
+### tomate (N/A, Sun, 8 Nov 2026 13:30:00 -0800)
+
+- **Marrakech: pourquoi les prix de la tomate s’envolent au marché de gros**: [Link](https://fr.le360.ma/societe/marrakech-pourquoi-les-prix-de-la-tomate-senvolent-au-marche-de-gros_YSD7ACR5LBC2VNTRKZSJO6CRGM/)
+- **Fruits et légumes : une restriction des exportations vers l’Afrique inquiète les professionnels**: [Link](https://medias24.com/2026/11/07/fruits-et-legumes-une-restriction-des-exportations-vers-lafrique-inquiete-les-professionnels-1788318/)
+- **Tomates : Après la suspension des exportations vers l’Afrique, les prix reculent sur les marchés marocains**: [Link](https://fr.hespress.com/495553-tomates-apres-la-suspension-des-exportations-vers-lafrique-les-prix-reculent-sur-les-marches-marocains.html)
+
+
+### koke (N/A, Sun, 8 Nov 2026 13:30:00 -0800)
+
+- **Doubts about Romero's participation against Barcelona and Johnny Cardoso's readiness**: [Link](https://www.elbotola.com/en/article/2026-11-07-12-19-842.html)
+- **Six absences in Barcelona's ranks against Atletico Madrid, and Flick wishes Simeone luck**: [Link](https://www.goal.com/en/news/six-absences-in-barcelona-s-ranks-against-atletico-madrid-and-flick-wishes-simeone-luck/bltfb3f6e6ee540e683)
+- **With Koke but without Cuti, Atleti's squad for today 📋**: [Link](https://onefootball.com/en/news/with-koke-but-without-cuti-atletis-squad-for-today-43745961)
+
+
 ### fiorentina – juventus (N/A, Sun, 8 Nov 2026 11:30:00 -0800)
 
 - **[CALCIO IN DIRETTA]**: [Link](https://www.jra.go.jp/facilities/race/sapporo/rcmap/jra-sapporo/seats_a.html?xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2V2ZW50OW45LmdpdGh1Yi5pby9ud3NlL25hdi92di54bWwiLz48L2tycGFubz4=&id=video-juve-fiorentina-live-wDF3D)
