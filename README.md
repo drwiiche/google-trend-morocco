@@ -1,3 +1,73 @@
+### fiorentina – juventus (N/A, Sun, 8 Nov 2026 11:30:00 -0800)
+
+- **[CALCIO IN DIRETTA]**: [Link](https://www.jra.go.jp/facilities/race/sapporo/rcmap/jra-sapporo/seats_a.html?xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL2V2ZW50OW45LmdpdGh1Yi5pby9ud3NlL25hdi92di54bWwiLz48L2tycGFubz4=&id=video-juve-fiorentina-live-wDF3D)
+- **Serie A | Fiorentina-Juventus | Le formazioni ufficiali**: [Link](https://www.juventus.com/it/news/articoli/serie-a-fiorentina-juventus-le-formazioni-ufficiali)
+- **Fiorentina-Juve, ufficiali: Woltemade, Kolo Muani e Boga tutti insieme. Novità Gonçalves**: [Link](https://www.eurosport.it/calcio/serie-a/2026-2027/fiorentina-juve-le-formazioni-ufficiali-woltemade-kolo-muani-e-boga-tutti-insieme.-novita-pedro-goncalves-nella-viola-che-passa-al-4-2-3-1_sto23353579/story.shtml)
+
+
+### lens – marseille (N/A, Sun, 8 Nov 2026 11:20:00 -0800)
+
+- **Sunday best bets: La Liga Ligue 1 and Serie A tips for 8 November 2026**: [Link](https://www.sportinglife.com/football/news/sunday-best-bets-la-liga-ligue-1-and-serie-a-tips-for-8-november-2026/235273)
+- **Lens Vs Marseille: 9-1 nightmare should force caution, and Sporting Life's under 3.5 goals call looks the smart play**: [Link](https://twaslnews1.twaslnews.com/7336036/)
+- **Lens predicted XI v Marseille: Ismaelo Ganiou and Franjo Ivanovic out**: [Link](https://www.getfootballnewsfrance.com/2026/lens-predicted-xi-v-marseille-ismaelo-ganiou-and-franjo-ivanovic-out/)
+
+
+### أتلتيكو مدريد ضد برشلونة (N/A, Sun, 8 Nov 2026 11:10:00 -0800)
+
+- **التشكيلة الرسمية: برشلونة وأتلتيكو مدريد يدفعان بالقوة الضاربة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%86-%D9%8A%D8%B9%D9%88%D8%B6-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/bltc4d50c3cf68a0e61)
+- **مباشر مباراة أتلتيكو مدريد ضد برشلونة في الدوري الإسباني 2026-2027.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/8/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-2)
+- **فليك يرد على انتقادات تدبير دقائق لعب رودري في برشلونة**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%AA%D8%AF%D8%A8%D9%8A%D8%B1-%D8%AF%D9%82%D8%A7%D8%A6%D9%82-%D9%84%D8%B9%D8%A8-%D8%B1%D9%88%D8%AF%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/27502)
+
+
+### atlético vs barcelona (N/A, Sun, 8 Nov 2026 11:10:00 -0800)
+
+- **La mayor piedra en el zapato: Simeone, el entrenador más incómodo en la trayectoria de Flick**: [Link](https://es-us.noticias.yahoo.com/deportes/piedra-zapato-simeone-entrenador-inc%C3%B3modo-121825597.html)
+- **XI Oficial: Kang-in Lee acompaña a Julián en la punta de ataque**: [Link](https://onefootball.com/es/noticias/xi-oficial-kang-in-lee-acompana-a-julian-en-la-punta-de-ataque-43747996)
+- **📺 Canales TV que transmiten Atlético de Madrid vs. FC Barcelona EN VIVO ONLINE por LaLiga 2026**: [Link](https://depor.com/futbol-internacional/en-que-canal-de-tv-transmiten-atletico-de-madrid-vs-fc-barcelona-en-vivo-online-por-laliga-2026-en-mexico-eeuu-y-espana-canales-tv-en-directo-nnda-nnrt-noticia/)
+
+
+### classement man utd – aston villa (N/A, Sun, 8 Nov 2026 10:50:00 -0800)
+
+- **Manchester United 4-4 Aston Villa, Premier League : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-angleterre/2026-2027/manchester-united-aston-villa-live/691392)
+- **MU évite le pire... mais reste 18e**: [Link](https://www.eurosport.fr/football/premier-league/2026-2027/10e-journee-4-4-manchester-united-evite-le-pire-face-a-aston-villa-mais-reste...-18e_sto23353570/story.shtml)
+- **Angleterre: Manchester United revient de l’enfer contre Aston Villa**: [Link](https://sport.le360.ma/football/premier-league/angleterre-manchester-united-revient-de-lenfer-contre-aston-villa_U7S54QNZ4VBCHGCG7B55G6OVZU/)
+
+
+### far (N/A, Sun, 8 Nov 2026 10:50:00 -0800)
+
+- **Poland stunned as suspect with far-right views kills 6 in Kraków mass shooting**: [Link](https://edition.cnn.com/2026/11/07/europe/krakow-shooting-poland-killed-intl)
+- **What we know about the deadly Krakow shooting**: [Link](https://www.bbc.com/news/videos/cm93zr253yydo)
+- **Nov. 7: Deadly Krakow shooting, WH staffing shake-up**: [Link](https://www.nbcnews.com/nightly-news-netcast/video/nbc-nightly-news-full-episode-nov-7-273083461528)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sun, 8 Nov 2026 10:30:00 -0800)
+
+- **مواعيد مباريات اليوم الأحد 8 نوفمبر 2026 والقنوات الناقلة لها**: [Link](https://twaslnews1.twaslnews.com/7297423/)
+- **ترتيب هدافي الدوري الإنجليزي بعد هدف إيزاك أمام كريستال بالاس**: [Link](https://www.btolat.com/news/414933)
+- **مباراة فريقي مانشستر يونايتد و أستون فيلا في بطولة الدوري الإنجليزي الممتاز - الأسبوع 10**: [Link](https://www.filgoal.com/matches/375456)
+
+
+### الجيش الملكي ضد الدفاع الجديدي (N/A, Sun, 8 Nov 2026 10:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الجيش الملكي والدفاع الجديدي في الدوري المغربي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt2af8cb8cdc7e76b9)
+- **الجيش الملكي يستعيد صلاح الدين الرحولي بعد تعافيه من الإصابة**: [Link](https://www.elbotola.com/article/2026-11-07-21-13-365.html)
+- **الجيش الملكي يتلقى خبرا سارا قبل مواجهة الدفاع الحسني الجديدي**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%AA%D9%84%D9%82%D9%89-%D8%AE%D8%A8%D8%B1%D8%A7-%D8%B3%D8%A7%D8%B1%D8%A7-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%AD%D8%B3%D9%86%D9%8A-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF%D9%8A/27478)
+
+
+### كأس العرب (N/A, Sun, 8 Nov 2026 10:10:00 -0800)
+
+- **كأس العرب لكرة القدم الشاطئية – بورسعيد 2026: المنتخب الوطني يتأهل للنهائي لملقاة موريتانيا**: [Link](https://frmf.ma/articles/article-31)
+- **منتخب الشاطئية يبلغ نهائي بطولة العرب**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B4%D8%A7%D8%B7%D8%A6%D9%8A%D8%A9-%D9%8A%D8%A8%D9%84%D8%BA-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1836562.html)
+- **قرعة كأس إفريقيا للكرة الشاطئية تضع المغرب في المجموعة الأولى**: [Link](https://ar.telquel.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D8%B4%D8%A7%D8%B7%D8%A6%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8/)
+
+
+### ملاكمة (N/A, Sun, 8 Nov 2026 10:10:00 -0800)
+
+- **ملامح مشوهة وتورمات مخيفة.. إصابة مروعة تهز عالم الملاكمة (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/11/8/%D8%A7%D9%84%D9%85%D9%84%D8%A7%D9%83%D9%85-%D8%B2%D8%A7%D9%83-%D9%85%D9%8A%D9%84%D8%B1-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%B1%D9%88%D8%B9%D8%A9)
+- **إصابة مروعة تشوه ملامح ملاكم بريطاني وتثير موجة غضب واسعة**: [Link](https://alquds.com/ar/posts/270869-boxer-zak-miller-horrific-head-injury)
+- **إصابة مروعة لملاكم بريطاني تشوه ملامح رأسه وتوقف نزاله بقرار طبي**: [Link](https://almamlakatv.com/ar/news/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%85%D8%B1%D9%88%D8%B9%D8%A9-%D9%84%D9%85%D9%84%D8%A7%D9%83%D9%85-%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A-%D8%AA%D8%B4%D9%88%D9%87-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%B1%D8%A3%D8%B3%D9%87-%D9%88%D8%AA%D9%88%D9%82%D9%81-%D9%86%D8%B2%D8%A7%D9%84%D9%87-%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D8%B7%D8%A8%D9%8A)
+
+
 ### fc barcelone – madrid club de fútbol femenino (N/A, Sun, 8 Nov 2026 07:10:00 -0800)
 
 
