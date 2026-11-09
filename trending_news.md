@@ -1,3 +1,38 @@
+### عطلة (N/A, Sun, 8 Nov 2026 15:40:00 -0800)
+
+- **عطلة مدرسية جديدة في انتظار التلاميذ**: [Link](https://ar.lesiteinfo.com/maroc/%D8%B9%D8%B7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-5-1031173.html)
+- **الأسرة التعليمية والتلاميذ بالمغرب يستعدون لعطلة جديدة**: [Link](https://agadir24.info/%D8%A7%D9%84%D8%A3%D8%B3%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85%D9%8A%D8%A9-%D9%88%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A.html)
+- **الأسرة التعليمية والتلاميذ بالمغرب يستعدون لعطلة جديدة**: [Link](https://trendnews.ma/36284)
+
+
+### décollage (N/A, Sun, 8 Nov 2026 15:40:00 -0800)
+
+- **À 120 mètres l’un de l’autre, deux avions, dont un d’Air France, frôlent la collision au décollage, au-dessus de Los Angeles**: [Link](https://www.leparisien.fr/international/etats-unis/a-120-metres-lun-de-lautre-deux-avions-dont-un-dair-france-frolent-la-collision-au-decollage-au-dessus-de-los-angeles-09-11-2026-CCE3WF2HCVFDLJ4AOYC6H7CSEI.php)
+- **Aérien : Un vol d'Air France vers Tahiti-Faa'a frôle la collision au départ de Los Angeles**: [Link](https://outremers360.com/bassin-pacifique-appli/aerien-un-vol-dair-france-vers-tahiti-faaa-frole-la-collision-au-depart-de-los-angeles)
+- **Un vol à destination de Tahiti frôle la collision avec un autre avion au départ de Los Angeles**: [Link](https://la1ere.franceinfo.fr/polynesie/un-vol-a-destination-de-tahiti-frole-la-collision-avec-un-autre-avion-au-depart-de-los-angeles-1755876.html)
+
+
+### مسيرة (N/A, Sun, 8 Nov 2026 14:50:00 -0800)
+
+- **روسيا تضرب شبكة الطاقة الأوكرانية وتستهدف سفينة في البحر الأسود**: [Link](https://www.aljazeera.net/news/2026/11/8/%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%B4%D8%A8%D9%83%D8%A9-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A9)
+- **فيديو. ضربات روسية تستهدف منطقة كييف وتلحق أضراراً بالبنية التحتية**: [Link](https://arabic.euronews.com/video/2026/11/07/ukraine-russian-strikes-hit-kyiv-region-damaging-infrastructure)
+- **ضربات روسية كثيفة على منشآت الطاقة في أوكرانيا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261107-%D8%B6%D8%B1%D8%A8%D8%A7%D8%AA-%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%B4%D8%A2%D8%AA-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9-%D9%81%D9%8A-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7)
+
+
+### botola classement (N/A, Sun, 8 Nov 2026 14:20:00 -0800)
+
+- **Botola D2-J7 : le SM et l’IZK performants samedi, place à la suite cet après-midi**: [Link](https://lopinion.ma/fr/sport/newsroom/botola-d2-j7--le-sm-et-lizk-performants-samedi-place-a-la-suite-cet-apres-midi_a63021?articleId=5f5a0bf2-cbc8-435c-b66b-443c02b25740)
+- **Botola D2 : Chabab Mohammedia en quête d’un premier succès à Khémisset**: [Link](https://lopinion.ma/fr/sport/newsroom/botola-d2--chabab-mohammedia-en-quete-dun-premier-succes-a-khemisset-_a48060?articleId=7f39f257-ce11-405c-ae15-850dd6b679c0)
+- **Botola Pro D2 « Inwi » (7è journée): Classement**: [Link](https://mapsport.ma/football/botola-pro-d2-inwi-7e-journee-classement-6/)
+
+
+### estrela amadora – benfica (N/A, Sun, 8 Nov 2026 14:10:00 -0800)
+
+- **Pepa: "É impossível isso acontecer comigo, sou contra isso e não ia permitir uma coisa dessas"**: [Link](https://sapo.pt/artigo/pepa-e-impossivel-isso-acontecer-comigo-sou-contra-isso-e-nao-ia-permitir-uma-coisa-dessas-6af1126b013ef6a69073430d)
+- **▶️ Autogolo de Bernardo Schappo coloca o Benfica novamente em vantagem, 2-1**: [Link](https://www.sporttv.pt/noticias/868606/-autogolo-de-bernardo-schappo-coloca-o-benfica-novamente-em-vantagem-2-1)
+- **Pavlidis avisa: "Hoje não fomos bons o suficiente, temos de ser melhores"**: [Link](https://www.noticiasaominuto.com/desporto/3080743/pavlidis-avisa-hoje-nao-fomos-bons-o-suficiente-temos-de-ser-melhores)
+
+
 ### ترتيب الدوري المغربي (N/A, Sun, 8 Nov 2026 14:30:00 -0800)
 
 - **الكوكب المراكشي يهزم الوداد ويعزز صدارته للدوري المغربي**: [Link](https://www.aljazeera.net/sport/2026/11/7/%D8%A7%D9%84%D9%83%D9%88%D9%83%D8%A8-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B4%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%88%D9%8A%D8%B9%D8%B2%D8%B2)
