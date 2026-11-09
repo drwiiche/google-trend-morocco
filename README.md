@@ -1,3 +1,73 @@
+### royal air maroc (N/A, Mon, 9 Nov 2026 01:40:00 -0800)
+
+- **Paris-Orly : le désistement de Ryanair ouvre la voie à quatre nouveaux transporteurs**: [Link](https://www.air-journal.fr/2026-11-08-paris-orly-le-desistement-de-ryanair-ouvre-la-voie-a-quatre-nouveaux-transporteurs-5278738.html)
+- **Royal Air Maroc voulait plus de vols vers Casablanca et Marrakech : Orly lui attribue trois autres villes marocaines**: [Link](https://www.bladi.net/royal-air-maroc-voulait-vols-casablanca-marrakech-orly-attribue-trois,124867.html)
+- **Quatre nouvelles compagnies s'implantent à Orly en 2027 après le retrait de Ryanair**: [Link](https://www.latribune.fr/article/transports/31456811071306/a-orly-le-desistement-de-ryanair-entraine-l-arrivee-de-quatre-nouvelles-compagnies-en-2027)
+
+
+### jamal musiala (N/A, Mon, 9 Nov 2026 01:10:00 -0800)
+
+- **'We’re in a dilemma here': Uli Hoeneß voices explosive doubts about Bayern Munich’s Jamal Musiala**: [Link](https://www.yardbarker.com/soccer/articles/were_in_a_dilemma_here_uli_hoene_voices_explosive_doubts_about_bayern_munichs_jamal_musiala/s1_17790_44532115)
+- **Soccer Executive Raises Salary Concerns as Jamal Musiala Suffers From Incurable Neurological Condition**: [Link](https://twaslnews1.twaslnews.com/7360893/)
+- **Bayern Munich: Explosive suspicion! Musiala’s injury worse than thought?**: [Link](https://www.goal.com/en/news/explosive-suspicion-is-bayern-munich-s-jamal-musiala-s-injury-worse-than-thought/blta5bf734601ba35b0)
+
+
+### nvidia (N/A, Sun, 8 Nov 2026 23:40:00 -0800)
+
+- **Statement From NVIDIA Board of Directors**: [Link](https://nvidianews.nvidia.com/news/statement-from-nvidia-board-of-directors)
+- **Jensen Huang spy scandal rocks AI race**: [Link](https://www.axios.com/2026/11/09/jensen-huang-spy-scandal-ai)
+- **Nvidia stock falls 5% as scrutiny turns to Jensen Huang’s relationship with alleged Chinese spy**: [Link](https://www.cnbc.com/2026/11/09/nvidia-jensen-huang-chinese-spy-investigation.html)
+
+
+### la meteo (N/A, Sun, 8 Nov 2026 22:40:00 -0800)
+
+- **Maine-et-Loire. La météo de ce mardi 10 novembre 2026… et un anniversaire**: [Link](https://www.le-kiosque.org/actualites/vie-de-la-cite/maine-et-loire-la-meteo-de-ce-mardi-10-novembre-2026-et-un-anniversaire)
+- **Météo. La météo du lundi 9 novembre 2026 à Noisiel et ses environs**: [Link](https://www.ouest-france.fr/meteo/ile-de-france/pontault-combault-77340/la-meteo-du-jour-a-pontault-combault-ebc3faf4-9622-4e1b-8401-9cf17a04d96a)
+- **Météo. Quel temps fera-t-il à Noisy-le-Grand et ses environs le dimanche 8 novembre 2026 ?**: [Link](https://www.ouest-france.fr/meteo/ile-de-france/noisy-le-grand-93160/la-meteo-du-jour-a-noisy-le-grand-df748d8f-7397-4288-9ba1-2e5876379ae3)
+
+
+### weather (N/A, Sun, 8 Nov 2026 22:20:00 -0800)
+
+- **Map Shows States Most Vulnerable to El Niño Power Disruptions**: [Link](https://www.newsweek.com/map-shows-states-most-vulnerable-to-el-nino-power-disruptions-12672751)
+- **5 ways to prepare for El Nino’s extreme weather this winter**: [Link](https://grist.org/extreme-weather/5-ways-to-prepare-for-el-ninos-extreme-weather-this-winter/)
+- **When Winter Storms Cause Power Outages: How Households Can Prepare | Corporate**: [Link](https://www.eqs-news.com/news/corporate/when-winter-storms-cause-power-outages-how-households-can-prepare/d7d21c79-8f0f-46ff-bd81-f6c28ccb3f9a_en)
+
+
+### الطقس اليوم (N/A, Sun, 8 Nov 2026 22:20:00 -0800)
+
+- **«هدوء ما قبل العاصفة».. بيان مهم بشأن حالة الطقس اليوم الإثنين**: [Link](https://www.almasryalyoum.com/news/details/4405177)
+- **أجواء خريفية.. الأرصاد توضح خريطة الظواهر الجوية والطقس حتى نهاية الأسبوع**: [Link](https://darelhilal.com/News/3340342.aspx)
+- **الأرصاد: فرص سقوط أمطار على السواحل الشمالية وشمال الدلتا.. وتحذير من برودة الطقس**: [Link](https://gate.ahram.org.eg/News/5981044.aspx)
+
+
+### météo (N/A, Sun, 8 Nov 2026 22:10:00 -0800)
+
+- **Le temps qu'il fera ce lundi 9 novembre 2026**: [Link](https://fr.hespress.com/495502-__trashed-110.html)
+- **Hauteurs de pluies relevées les 7 et 8 novembre 2026**: [Link](https://medias24.com/2026/11/08/alerte-meteo-vigilance-orange-bulletin-x-1788811/)
+- **Météo. Pluies et températures en légère baisse ce lundi 9 novembre**: [Link](https://fr.le360.ma/societe/meteo-pluies-et-temperatures-en-legere-baisse-ce-lundi-9-novembre_O47QFCEVLBAKBJM6OKXMA5FV74/)
+
+
+### الطقس (N/A, Sun, 8 Nov 2026 22:00:00 -0800)
+
+- **نشرة إنذارية تحذر من أمطار ورياح قوية**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%A5%D9%86%D8%B0%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-2-1836461.html)
+- **أمطار قوية ورياح بعدد من المناطق**: [Link](https://assabah.ma/960957.html)
+- **ها حالة الطقس اليوم.. الأجواء مغيمة وكاينة الشتا ورياح قوية فهاذ المناطق من المملكة**: [Link](https://www.goud.ma/%D9%87%D8%A7-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D9%85%D8%BA%D9%8A%D9%85%D8%A9-%D9%88%D9%83%D8%A7%D9%8A-1052717/)
+
+
+### weer (N/A, Sun, 8 Nov 2026 21:50:00 -0800)
+
+- **Code geel in delen van Drenthe, Groningen en Overijssel wegens dichte mist**: [Link](https://nos.nl/artikel/2638659-code-geel-in-delen-van-drenthe-groningen-en-overijssel-wegens-dichte-mist)
+- **Zonnige herfstdag na mistige start, maar koude nacht volgt**: [Link](https://www.rtl.nl/nieuws/weer/artikel/5663999/dag-begint-mistig-het-noordoosten-zonnig-het-zuiden)
+- **Slecht zicht op de weg: Wanneer moeten je mistlampen aan?**: [Link](https://www.hartvannederland.nl/weer/extreem-weer/artikelen/slecht-zicht-op-de-weg-wanneer-moeten-je-mistlampen-aan-mist-regen-weer)
+
+
+### hospitalisation (N/A, Sun, 8 Nov 2026 21:20:00 -0800)
+
+- **"C'était un service très attendu" : en Mayenne, une unité psychiatrique pour les jeunes de 15 à 21 ans ouvre ses portes**: [Link](https://www.ici.fr/emissions/l-info-d-ici-ici-mayenne/c-etait-un-service-tres-attendu-en-mayenne-une-unite-psychiatrique-pour-les-jeunes-de-15-a-21-ans-ouvre-ses-portes-7301280)
+- **Laval : une unité psychiatrique pour les 15-21 ans ouvre le 9 novembre, jusqu’à 16 lits à terme**: [Link](https://infos-media-nantes.fr/laval-unite-psychiatrique-15-21-ans-ouverture-9-novembre-2026/)
+- **« Une urgence sanitaire » : une unité psychiatrique d’hospitalisation dédiée aux 15-21 ans va ouvrir en Mayenne**: [Link](https://sante.ouest-france.fr/sante-mentale/une-urgence-sanitaire-une-unite-psychiatrique-dhospitalisation-dediee-aux-15-21-ans-va-ouvrir-en-mayenne-38b3df7c-d9e5-11f1-81f5-8e32b0872d76)
+
+
 ### عطلة (N/A, Sun, 8 Nov 2026 15:40:00 -0800)
 
 - **عطلة مدرسية جديدة في انتظار التلاميذ**: [Link](https://ar.lesiteinfo.com/maroc/%D8%B9%D8%B7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%86%D8%AA%D8%B8%D8%A7%D8%B1-%D8%A7%D9%84%D8%AA%D9%84%D8%A7%D9%85%D9%8A%D8%B0-5-1031173.html)
