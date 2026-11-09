@@ -1,3 +1,73 @@
+### pluie (N/A, Mon, 9 Nov 2026 10:50:00 -0800)
+
+- **Alerte météo : 29 provinces placées en vigilance "orange", jusqu'à 80 mm de pluie**: [Link](https://medias24.com/2026/11/09/alerte-meteo-vigilance-orange-bulletin-x-2-1788990/)
+- **Averses orageuses et rafales de vent du lundi au jeudi dans plusieurs régions du Maroc**: [Link](https://lematin.ma/regions/averses-orageuses-et-rafales-de-vent-du-lundi-au-jeudi-au-maroc/374746)
+- **La pluie fait (enfin) son retour ce dimanche**: [Link](https://fr.le360.ma/societe/les-pluies-font-leur-retour-des-dimanche_ZKCN2OQK3VE2ZM4D7GHCHBZE3I/)
+
+
+### rappeur maes (N/A, Mon, 9 Nov 2026 09:10:00 -0800)
+
+- **Affaire Maes : sa peine réduite de 7 ans à 1 an de prison ferme**: [Link](https://www.medias24.com/2026/11/06/affaire-maes-sa-peine-reduite-de-7-ans-a-1-an-de-prison-ferme-1788447/)
+- **Le rappeur Maes voit sa peine réduite en appel**: [Link](https://mobile.telquel.ma/instant-t/2026/11/09/le-rappeur-maes-voit-sa-peine-reduite-en-appel_2017120/)
+- **Condamné à sept ans de prison au Maroc pour un règlement de comptes, le rappeur Maes voit sa peine réduite à un an ferme**: [Link](https://www.leparisien.fr/faits-divers/condamne-a-sept-ans-de-prison-au-maroc-pour-un-reglement-de-comptes-le-rappeur-maes-voit-sa-peine-reduite-a-un-an-ferme-09-11-2026-K2GOVN4U4FGATOZUOOZSZYAI2M.php)
+
+
+### pierre sage (N/A, Mon, 9 Nov 2026 08:50:00 -0800)
+
+- **Thomas Frank: Former Spurs and Brentford boss leading contender to take over at Crystal Palace if Pierre Sage is sacked**: [Link](https://www.skysports.com/football/news/13609990/thomas-frank-former-spurs-and-brentford-boss-leading-contender-to-take-over-at-crystal-palace-if-pierre-sage-is-sacked)
+- **Crystal Palace set to sack Pierre Sage after 16 games in charge - The Athletic**: [Link](https://www.nytimes.com/athletic/7765014/2026/11/08/crystal-palace-manager-pierre-sage-sacked/)
+- **Socceroos boss Tony Popovic named as ‘potential successor’ to Premier League job**: [Link](https://football360.com.au/tony-popovic-crystal-palace-manager-socceroos-premier-league/)
+
+
+### منتخب هولندا لكرة القدم (N/A, Mon, 9 Nov 2026 08:10:00 -0800)
+
+- **تشافي يعترف: نجم برشلونة لا يحصل على التقدير الكافي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%8A%D8%B9%D8%AA%D8%B1%D9%81-%D9%86%D8%AC%D9%85-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7-%D9%8A%D8%AD%D8%B5%D9%84-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D9%82%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D9%83%D8%A7%D9%81%D9%8A/blt96229861e4f43a63)
+- **تشابي: عودة دي يونغ تمنح هولندا دفعة قوية في «دوري الأمم»**: [Link](https://twaslnews1.twaslnews.com/7381253/)
+- **ليفربول يُعلن خروج فان دايك من قائمة هولندا بسبب الإصابة**: [Link](https://www.365scores.com/ar/news/magazine/%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84-%D9%8A%D9%8F%D8%B9%D9%84%D9%86-%D8%AE%D8%B1%D9%88%D8%AC-%D9%81%D8%A7%D9%86-%D8%AF%D8%A7%D9%8A%D9%83-%D9%85%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D9%87%D9%88/)
+
+
+### russell brand (N/A, Mon, 9 Nov 2026 07:40:00 -0800)
+
+- **Russell Brand sentenced to 10-and-a-half years in prison for rape and sexual assault**: [Link](https://www.bbc.com/news/articles/ckzd6dl18dmyo)
+- **Russell Brand latest: Comedian jailed for 10 years and six months for rape and sexual assault**: [Link](https://news.sky.com/story/russell-brand-sentencing-jail-guilty-rape-sexual-assault-trial-live-latest-13592674)
+- **Brand’s lawyer claims rape was 'momentary failure' & downplays sex assault**: [Link](https://www.thesun.co.uk/tvandshowbiz/40971248/lawyer-calls-rape-momentary-failure/)
+
+
+### عاصفة رعدية (N/A, Mon, 9 Nov 2026 07:20:00 -0800)
+
+- **أمطار رعدية تصل إلى 80 ملم بالمغرب**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-80-%D9%85%D9%84%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1836897.html)
+- **طقس الأربعاء.. أجواء غائمة مع تساقطات مطرية**: [Link](https://ar.telquel.ma/%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-%D8%B2%D8%AE%D8%A7%D8%AA-%D8%B1%D8%B9%D8%AF%D9%8A%D8%A9-%D8%A4%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D8%AA%D9%88/)
+- **أمطار قوية ورياح مرتقبة بعدد من المناطق ابتداء من الأربعاء**: [Link](https://assabah.ma/961461.html)
+
+
+### espagne (N/A, Mon, 9 Nov 2026 05:50:00 -0800)
+
+- **Mondial 2030 : Feijóo menace de retirer l’Espagne si la finale revient au Maroc**: [Link](https://medias24.com/2026/11/07/mondial-2030-feijoo-menace-de-retirer-lespagne-si-la-finale-revient-au-maroc-1788572/)
+- **Mondial 2030 : pourquoi l’Espagne redoute-t-elle autant la candidature du Maroc pour la finale ?**: [Link](https://fr.hespress.com/495411-mondial-2030-pourquoi-lespagne-redoute-t-elle-autant-la-candidature-du-maroc-pour-la-finale.html)
+- **Mondial 2030: Vol au-dessus d’un nid de coucous… Made in Spain**: [Link](https://sport.le360.ma/coupe-du-monde/mondial-2030-vol-au-dessus-dun-nid-de-coucous-made-in-spain_2Z7T4LL6AVD5FGOBVHEPUUH25Y/)
+
+
+### sonia mabrouk (N/A, Mon, 9 Nov 2026 04:50:00 -0800)
+
+- **EXCLUSIF – Axelle Laffont réalise la suite de « Milf »**: [Link](https://lettreaudiovisuel.com/exclusif-axelle-laffont-realise-la-suite-de-milf/)
+- **Ex de Sonia Mabrouk, Guy Savoy vit en "quasi-autonomie" dans sa "cabane" dans les Alpes, avec un poêle à bois et des panneaux solaires**: [Link](https://www.melty.fr/people/ex-de-sonia-mabrouk-guy-savoy-vit-en-quasi-autonomie-dans-sa-cabane-dans-les-alpes-avec-un-poele-a-bois-et-des-panneaux-solaires-2360726.html)
+- **« Nous sommes en plein psychodrame » : les anti-Sonia Mabrouk plongent BFMTV dans la tourmente**: [Link](https://www.lefigaro.fr/medias/nous-sommes-en-plein-psychodrame-les-anti-sonia-mabrouk-plongent-bfmtv-dans-la-tourmente-20261105)
+
+
+### teddy riner (N/A, Mon, 9 Nov 2026 03:50:00 -0800)
+
+- **Présidentielle 2027 : « Je suis candidat pour dire qu’on peut relever la France », Teddy Riner se lance dans la compétition**: [Link](https://www.leparisien.fr/elections/presidentielle/presidentielle-2027-je-suis-candidat-pour-dire-quon-peut-relever-la-france-teddy-riner-se-lance-dans-la-competition-09-11-2026-36MFSFMWDFGATLM2YGR3MDF4QI.php)
+- **DIRECT. Présidentielle: Emmanuel Macron estime que la candidature de Teddy Riner "ne peut qu'apporter au pays"**: [Link](https://www.bfmtv.com/politique/direct-colere-sociale-des-annonces-attendues-a-l-issue-de-la-conference-sociale-nouvel-appel-des-lyceens-a-la-mobilisation-mardi_LN-202611090127.html)
+- **France : le champion de judo Teddy Riner, proche du Maroc, annonce sa candidature à l'élection présidentielle**: [Link](https://mobile.telquel.ma/instant-t/2026/11/09/france-le-champion-de-judo-teddy-riner-proche-du-maroc-annonce-sa-candidature-a-lelection-presidentielle_2017272/)
+
+
+### الدوري المغربي لكرة القدم القسم الثاني (N/A, Mon, 9 Nov 2026 02:30:00 -0800)
+
+- **نتائج القسم الثاني لكرة القدم بالمغرب**: [Link](https://www.hespress.com/%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D8%A7%D9%84%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-29-1836777.html)
+- **أولمبيك آسفي يتلقى الهزيمة أمام سطاد المغربي ويستقر في المركز السابع**: [Link](https://www.marrakechalaan.com/article-701158)
+- **نتائج الجولة السابعة من البطولة الإحترافية "إنوي "**: [Link](https://inews.ma/news/8783458)
+
+
 ### royal air maroc (N/A, Mon, 9 Nov 2026 01:40:00 -0800)
 
 - **Paris-Orly : le désistement de Ryanair ouvre la voie à quatre nouveaux transporteurs**: [Link](https://www.air-journal.fr/2026-11-08-paris-orly-le-desistement-de-ryanair-ouvre-la-voie-a-quatre-nouveaux-transporteurs-5278738.html)
