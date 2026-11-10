@@ -1,3 +1,59 @@
+### nvidia jensen huang (N/A, Mon, 9 Nov 2026 15:50:00 -0800)
+
+- **What we know so far about Jensen Huang's affair with suspected Chinese spy**: [Link](https://www.bbc.com/news/articles/ckgel338xql3o)
+- **Silicon Valley and Trump rally behind Nvidia CEO after his affair with alleged Chinese spy**: [Link](https://www.theguardian.com/technology/2026/nov/09/nvidia-jensen-huang-affair-trump-musk)
+- **Jensen Huang Apologized to Nvidia for His Infidelity. His Kids Are on Staff.**: [Link](https://www.wsj.com/tech/ai/jensen-huang-apologized-to-nvidia-for-his-infidelity-his-kids-are-on-staff-190f3176)
+
+
+### إسبانيا (N/A, Mon, 9 Nov 2026 14:50:00 -0800)
+
+- **فيفا يتفقد "كامب نو".. برشلونة ومدريد ينافسان الدار البيضاء على نهائي مونديال عام 2030**: [Link](https://www.aljazeera.net/sport/2026/11/9/%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%AA%D9%81%D9%82%D8%AF-%D9%83%D8%A7%D9%85%D8%A8-%D9%86%D9%88-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **بلفحيلي: المغرب يستطيع تنظيم "مونديال 2030" دون إسبانيا والبرتغال**: [Link](https://www.hespress.com/%D8%A8%D9%84%D9%81%D8%AD%D9%8A%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B7%D9%8A%D8%B9-%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030-1836694.html)
+- **"جاهزون للتنظيم بمفردنا".. رد مغربي ناري على تهديدات إسبانيا بالانسحاب من استضافة مونديال 2030**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%A7%D9%87%D8%B2%D9%88%D9%86-%D9%84%D9%84%D8%AA%D9%86%D8%B8%D9%8A%D9%85-%D8%A8%D9%85%D9%81%D8%B1%D8%AF%D9%86%D8%A7--%D8%B1%D8%AF-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%86%D8%A7%D8%B1%D9%8A-%D8%B9%D9%84%D9%89-%D8%AA%D9%87%D8%AF%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%84%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D9%85%D9%86-%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-2030/bltca4998490b5a4913)
+
+
+### amir baram (N/A, Mon, 9 Nov 2026 14:10:00 -0800)
+
+- **Director General of Israeli Defense Ministry Amir Baram in Morocco for working visit**: [Link](https://en.hespress.com/148833-director-general-of-israeli-defense-ministry-amir-baram-in-morocco-for-working-visit.html)
+- **Israel’s Defense Ministry Director General Amir Baram Visits Morocco for High-Level Talks**: [Link](https://www.moroccoworldnews.com/2026/11/345657/israels-defense-ministry-director-general-amir-baram-visits-morocco-for-high-level-talks/)
+- **Amir Baram, Director General of Israel’s Ministry of Defense, on a working visit to Morocco**: [Link](https://en.yabiladi.com/articles/details/207221/amir-baram-director-general-israel-s.html)
+
+
+### gta 6 (N/A, Mon, 9 Nov 2026 14:00:00 -0800)
+
+- **Grand Theft Auto VI Pre-Load Begins on November 10**: [Link](https://www.rockstargames.com/newswire/article/k4ak9okk485712/grand-theft-auto-vi-pre-load-begins-on-november-10)
+- **How To Preload GTA 6 In Full On Xbox Series X|S (Even If You Haven't Bought It)**: [Link](https://www.purexbox.com/news/2026/11/how-to-preload-gta-6-in-full-on-xbox-series-xs-even-if-you-havent-bought-it)
+- **Will Grand Theft Auto 6 break the internet?**: [Link](https://www.gamesindustry.biz/will-grand-theft-auto-6-break-the-internet)
+
+
+### fédération royale marocaine de football (N/A, Mon, 9 Nov 2026 13:20:00 -0800)
+
+- **Réunion du Comité directeur: La date de l’AG élective de la FRMF annoncée**: [Link](https://frmf.ma/fr/articles/%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D8%A7%D9%84%D9%85%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D9%85%D8%AF%D9%8A%D8%B1%D9%8A-%D9%84%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85%D8%AA%D8%AD%D8%AF%D9%8A%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7%D9%84%D8%AC%D9%85%D8%B9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85-%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%AE%D8%A7%D8%A8%D9%8A)
+- **FRMF : l’Assemblée générale élective fixée au 12 décembre**: [Link](https://fr.hespress.com/495775-frmf-lassemblee-generale-elective-fixee-au-12-decembre.html)
+- **Arbitrage: la FRMF reprend la main et clarifie le rôle de la LNFP**: [Link](https://sport.le360.ma/football/arbitrage-la-frmf-reprend-la-main-et-clarifie-le-role-de-la-lnfp_Z5HZT4BGJFCTJLHLO3QJUJKVIM/)
+
+
+### محمد أبو تريكة (N/A, Mon, 9 Nov 2026 13:10:00 -0800)
+
+- **«سنشتاق لك».. مذيع بين سبورت يفاجئ أبوتريكة بعد قرار «التوقف»**: [Link](https://www.almasryalyoum.com/news/details/4405625)
+- **«ستفتقدوني لفترة طويلة».. أبو تريكة يفاجئ الجميع**: [Link](https://nabdapp.com/t/180569834-809118)
+- **هل خدع ألفاريز أتلتيكو؟.. جملة واحدة لسيميوني تفجر أزمة جماهيرية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AE%D8%AF%D8%B9-%D8%A7%D9%94%D9%84%D9%81%D8%A7%D8%B1%D9%8A%D8%B2-%D8%A7%D9%94%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88--%D8%AC%D9%85%D9%84%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D9%84%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D8%AA%D9%81%D8%AC%D8%B1-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1%D9%8A%D8%A9/blt5c1528f3664e4e3b)
+
+
+### italie (N/A, Mon, 9 Nov 2026 12:50:00 -0800)
+
+- **Italie : l’optimisme de Mancini sur le futur choix de Tresoldi**: [Link](https://www.footmercato.net/a4819685595929157075-italie-loptimisme-de-mancini-sur-le-futur-choix-de-tresoldi)
+- **"Tout est coché afin qu'il parte pour un montant historique": quel prix doit viser le Club de Bruges avec Nicolo Tresoldi ?**: [Link](https://www.dhnet.be/sports/football/division-1a/fc-bruges/2026/11/04/tout-est-coche-afin-quil-parte-pour-un-montant-historique-quel-prix-doit-viser-le-club-de-bruges-avec-nicolo-tresoldi-HUNQCIIYIRCBJASJGJGNCJHFQQ/)
+- **FC Barcelone : La Premier League s’attaque au gros coup à 50 M€ !**: [Link](https://www.live-mercato.com/article/202042-fc-barcelone-la-premier-league-sattaque-au-gros-coup-a-50-meur)
+
+
+### 11 novembre (N/A, Mon, 9 Nov 2026 12:50:00 -0800)
+
+- **Devoir de mémoire et transmission aux jeunes au programme du 11 novembre à Esquerchin**: [Link](https://www.lavoixdunord.fr/1753350/article/2026-11-09/devoir-de-memoire-et-transmission-aux-jeunes-au-programme-du-11-novembre)
+- **Inauguration du lieu de mémoire à Campagne-sur-Aude**: [Link](https://www.lindependant.fr/2026/11/09/inauguration-du-lieu-de-memoire-a-campagne-sur-aude-13643578.php)
+- **Le Port : la commémoration de l'armistice aura lieu place de l’église Sainte Jeanne d’Arc**: [Link](https://imazpress.com/zoom/le-port-commemoration-armistice)
+
+
 ### pluie (N/A, Mon, 9 Nov 2026 10:50:00 -0800)
 
 - **Alerte météo : 29 provinces placées en vigilance "orange", jusqu'à 80 mm de pluie**: [Link](https://medias24.com/2026/11/09/alerte-meteo-vigilance-orange-bulletin-x-2-1788990/)
