@@ -1,3 +1,45 @@
+### منتخب إثيوبيا لكرة القدم (N/A, Tue, 10 Nov 2026 10:10:00 -0800)
+
+- **المنتخـب الأولمبي يشد الرحال صوب إثيوبيا الثلاثاء لمواجهتها برسم تصفيات "كان لأقل من 23 سنة"**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D9%80%D8%A8-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A-%D9%8A%D8%B4%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7%D9%84-%D8%B5%D9%88%D8%A8-%D8%A5%D8%AB%D9%8A%D9%88/)
+- **آيت بن إيدير يعلن قائمة "أسُود U23"**: [Link](https://www.hespress.com/%D8%A2%D9%8A%D8%AA-%D8%A8%D9%86-%D8%A5%D9%8A%D8%AF%D9%8A%D8%B1-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%A3%D8%B3%D9%8F%D9%88%D8%AF-u23-1834990.html)
+- **3مواهب تحت المجهر في قمة الأولمبيين أمام إثيوبيا**: [Link](https://www.almountakhab.com/node/16232718)
+
+
+### real madrid club de fútbol – paris fc (N/A, Tue, 10 Nov 2026 09:50:00 -0800)
+
+- **La sombra del Barcelona también presiona al Madrid ante el Paris FC**: [Link](https://elpais.com/deportes/futbol/2026-11-10/la-sombra-del-barca-tambien-presiona-al-madrid-ante-el-paris-fc.html)
+- **Andreia Jacinto: "Queremos lograr los tres primeros puntos con una victoria en casa"**: [Link](https://www.mundodeportivo.com/futbol/real-madrid/20261109/1004249107/andreia-jacinto-queremos-lograr-tres-primeros-puntos-victoria-casa.html)
+- **Real Madrid - París FC, en directo: fase de liga de la Champions femenina hoy en vivo**: [Link](https://as.com/futbol/femenino/real-madrid-paris-fc-en-directo-fase-de-liga-de-la-champions-femenina-hoy-en-vivo-f202611-d/)
+
+
+### مطر (N/A, Tue, 10 Nov 2026 07:30:00 -0800)
+
+- **أمطار غزيرة تصل إلى 110 ملم بالمغرب**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%BA%D8%B2%D9%8A%D8%B1%D8%A9-%D8%AA%D8%B5%D9%84-%D8%A5%D9%84%D9%89-110-%D9%85%D9%84%D9%85-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1837402.html)
+- **طقس الخميس.. أجواء غائمة مع قطرات مطرية خفيفة**: [Link](https://ar.telquel.ma/%D9%86%D8%B2%D9%88%D9%84-%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D8%A3%D9%88-%D8%B2%D8%AE%D8%A7%D8%AA-%D9%85%D8%B7%D8%B1%D9%8A%D8%A9-%D9%85%D8%AD%D9%84%D9%8A%D8%A7-%D9%81%D9%88%D9%82-%D8%A7%D9%84%D8%A3%D8%B7/)
+- **أمطار قوية ورياح مرتقبة بعدد من المناطق ابتداء من الأربعاء**: [Link](https://assabah.ma/961461.html)
+
+
+### البحر الأحمر (N/A, Tue, 10 Nov 2026 06:30:00 -0800)
+
+- **هكذا أجهضت خطوط النفط السعودية “الاختناق المزدوج”**: [Link](https://www.aljazeera.net/opinions/2026/11/9/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%84%D8%AA%D9%82%D9%8A-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%B9%D9%86%D8%AF-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D8%A3%D8%AD%D9%85%D8%B1)
+- **المملكة تقود سباق اكتشاف أسرار البحر الأحمر**: [Link](https://www.akhbaar24.com/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D8%A7%D9%84%D9%85%D9%85%D9%84%D9%83%D8%A9-%D8%AA%D9%82%D9%88%D8%AF-%D8%B3%D8%A8%D8%A7%D9%82-%D8%A7%D9%83%D8%AA%D8%B4%D8%A7%D9%81-%D8%A3%D8%B3%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1-%D8%A7%D9%84%D8%A3%D8%AD%D9%85%D8%B1-774985)
+- **المملكة ترسم خريطة البحر الأحمر.. مختبر علمي مفتوح لصناعة المستقبل**: [Link](https://makkahnewspaper.com/article/1636939)
+
+
+### pompe (N/A, Tue, 10 Nov 2026 04:00:00 -0800)
+
+- **Carburants : suspendre la TIC deux mois coûterait 3,5 MMDH, avec un effet direct à la pompe**: [Link](https://medias24.com/2026/11/10/carburants-suspendre-la-tic-deux-mois-couterait-35-mmdh-avec-un-effet-direct-a-la-pompe-1789166/)
+- **Bonbonnes de gaz: le gouvernement ouvre des négociations pour éviter une suspension de l’approvisionnement**: [Link](https://fr.le360.ma/politique/bonbonnes-de-gaz-le-gouvernement-ouvre-des-negociations-pour-eviter-une-suspension-de_7R7BYNI2RBEBDNYEZS36GHAEHQ/)
+- **n°1328. Pourquoi la majorité veut compter les filiales dans le taux d’IS des groupes**: [Link](http://ledesk.ma/enclair/pourquoi-la-majorite-veut-compter-les-filiales-dans-le-taux-dis-des-groupes/)
+
+
+### ceuta (N/A, Tue, 10 Nov 2026 01:30:00 -0800)
+
+- **El nombre de Marruecos en las cuentas electorales de Vox**: [Link](https://es.rue20.com/2026/11/08/el-nombre-de-marruecos-en-las-cuentas-electorales-de-vox/)
+- **Abascal defiende que el término "cazar inmigrantes" fue "en un contexto de invasión" en Ceuta: "Han roto la convivencia"**: [Link](https://www.infobae.com/america/agencias/2026/11/10/abascal-defiende-que-el-termino-cazar-inmigrantes-fue-en-un-contexto-de-invasion-en-ceuta-han-roto-la-convivencia/)
+- **Las banderas de España y Ceuta no merecen acabar asociadas al odio**: [Link](https://www.ceutaactualidad.com/opinion/author/banderas-espana-ceuta-convivencia-odio/20261110083259288241.html)
+
+
 ### منتخب مصر لكرة القدم (N/A, Tue, 10 Nov 2026 01:10:00 -0800)
 
 - **ثقة مصر القصوى في حمزة عبد الكريم.. رسالة قوية من علي ماهر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%82%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%82%D8%B5%D9%88%D9%89-%D9%81%D9%8A-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85--%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D9%86-%D8%B9%D9%84%D9%8A-%D9%85%D8%A7%D9%87%D8%B1/blta2d6026c346b46ef)
