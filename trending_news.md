@@ -1,3 +1,71 @@
+### windy (N/A, Tue, 10 Nov 2026 13:00:00 -0800)
+
+- **Sunshine and warmer temperatures continue**: [Link](https://www.newschannel10.com/2026/11/10/sunshine-warmer-temperatures-continue/)
+- **Mild, dry weather to stretch across Campbell County through next week**: [Link](https://county17.com/2026/11/10/mild-dry-weather-to-stretch-across-campbell-county-through-next-week/)
+- **Cheyenne to see seasonable, quiet weather before weekend warmup**: [Link](https://capcity.news/weather-2/2026/11/04/cheyenne-to-see-seasonable-quiet-weather-before-weekend-warmup/)
+
+
+### kamel daoud (N/A, Tue, 10 Nov 2026 12:20:00 -0800)
+
+- **Le romancier Kamel Daoud condamné à cinq ans de prison en Algérie pour son roman « Houris »**: [Link](https://www.lemonde.fr/afrique/article/2026/11/10/le-romancier-kamel-daoud-condamne-a-cinq-ans-de-prison-en-algerie-pour-son-roman-houris_6808876_3212.html)
+- **L'écrivain Kamel Daoud et sa femme condamnés par contumace en Algérie à cinq ans de prison ferme**: [Link](https://www.franceinfo.fr/culture/livres/l-ecrivain-kamel-daoud-et-sa-femme-condamnes-par-contumace-en-algerie-a-cinq-ans-de-prison-ferme_8276420.html)
+- **Boualem Sansal - À Alger, on célèbre les livres et on condamne les écrivains**: [Link](https://nouvellerevuepolitique.fr/boualem-sansal-a-alger-on-celebre-les-livres-et-on-condamne-les-ecrivains/)
+
+
+### maroc algérie u17 (N/A, Tue, 10 Nov 2026 12:00:00 -0800)
+
+- **Tournoi UNAF U17 (1ère journée): Algérie-Maroc 1-0**: [Link](https://frmf.ma/fr/articles/tournoi-unaf-u17-1ere-journee-algerie-maroc-1-0)
+- **En vidéo : l'Égypte bat la Tunisie sur son terrain dans les qualifications de la Coupe d'Afrique des nations des jeunes**: [Link](https://www.goal.com/fr/news/en-video-l-egypte-bat-la-tunisie-sur-son-terrain-dans-les-qualifications-de-la-coupe-d-afrique-des-nations-des-jeunes/blt6555a2f5cd22fb1c)
+- **UNAF U17 : le Maroc battu par l’Algérie pour son entrée en lice**: [Link](https://fr.hespress.com/495873-unaf-u17-le-maroc-battu-par-lalgerie-pour-son-entree-en-lice.html)
+
+
+### météo demain (N/A, Tue, 10 Nov 2026 11:40:00 -0800)
+
+- **Météo : "ce qui va se passer la semaine prochaine va en surprendre plus d’un" ! Découvrez les prévisions pour la France**: [Link](https://www.tameteo.com/actualites/previsions/meteo-ce-qui-va-se-passer-la-semaine-prochaine-va-en-surprendre-plus-d-un-decouvrez-les-previsions-pour-la-france.html)
+- **La dépression Bruna arrive en France : voici les régions les plus exposées et les jours où la météo va basculer**: [Link](https://www.futura-sciences.com/planete/actualites/meteo-depression-bruna-arrive-france-voici-regions-plus-exposees-jours-meteo-va-basculer-139191/)
+- **Jusqu'à 24 °C en novembre : comment l'effet de foehn fait grimper les températures dans le Sud-Ouest**: [Link](https://www.rtl.fr/actu/meteo/jusqu-a-24-c-en-novembre-comment-l-effet-de-foehn-fait-grimper-les-temperatures-dans-le-sud-ouest-7900694868)
+
+
+### الطقس غدًا (N/A, Tue, 10 Nov 2026 11:40:00 -0800)
+
+- **حالة الطقس غدًا الأربعاء.. انخفاض درجات الحرارة وشبورة مائية على الطرق**: [Link](https://twaslnews1.twaslnews.com/7465175/)
+- **انتهاء الموجة الحارة وبدء انخفاض درجات الحرارة في مصر**: [Link](https://ekhbary24.com/article/48305)
+- **الأرصاد: ارتفاع درجات الحرارة تدريجيا من الجمعة والعظمى بالقاهرة 27 درجة**: [Link](https://www.youm7.com/story/2026/11/10/%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%A7%D8%B1%D8%AA%D9%81%D8%A7%D8%B9-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%AA%D8%AF%D8%B1%D9%8A%D8%AC%D9%8A%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%88%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D9%89-%D8%A8%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-27/7612840)
+
+
+### tiempo mañana (N/A, Tue, 10 Nov 2026 11:40:00 -0800)
+
+
+
+
+### حكم قضائي (N/A, Tue, 10 Nov 2026 11:40:00 -0800)
+
+- **حكم قضائي يُلغي منح طالبة نقطة 1/20**: [Link](https://www.hespress.com/%D8%AD%D9%83%D9%85-%D9%82%D8%B6%D8%A7%D8%A6%D9%8A-%D9%8A%D9%8F%D9%84%D8%BA%D9%8A-%D9%85%D9%86%D8%AD-%D8%B7%D8%A7%D9%84%D8%A8%D8%A9-%D9%86%D9%82%D8%B7%D8%A9-1-20-1837469.html)
+- **القضاء الإداري ينصف طالبة ماستر بمكناس ويلغي قرار تنقيطها بعد حصولها على نقطة 1/20**: [Link](https://casaoui.ma/1498069402.html)
+- **نقطة 1 على 20 تقود طالبة ماستر إلى كسب دعوى ضد الكلية**: [Link](https://www.attasiaa.com/%D8%B7%D8%A7%D9%84%D8%A8%D8%A9-%D9%85%D8%A7%D8%B3%D8%AA%D8%B1-%D8%AF%D8%B9%D9%88%D9%89-%D8%A7%D9%84%D9%83%D9%84%D9%8A%D8%A9/)
+
+
+### meteo di domani (N/A, Tue, 10 Nov 2026 11:40:00 -0800)
+
+- **Meteo MOLISE Video: previsioni aggiornate**: [Link](https://www.3bmeteo.com/giornale-meteo/meteo-molise-video-previsioni-aggiornate-1000040865)
+- **Meteo MOLISE Video: previsioni aggiornate**: [Link](https://www.3bmeteo.com/giornale-meteo/meteo-molise-video-previsioni-aggiornate-1000021602)
+- **Meteo MARCHE Video: previsioni aggiornate**: [Link](https://www.3bmeteo.com/giornale-meteo/meteo-marche-video-previsioni-aggiornate-1000040864)
+
+
+### wetter morgen (N/A, Tue, 10 Nov 2026 11:40:00 -0800)
+
+- **Die Karnevals-WG: Das Zuhause für junge Jecke**: [Link](https://koelnerkarneval.de/presse/die-karnevals-wg-das-zuhause-fuer-junge-jecke)
+- **Zum 11.11. rollt die Regen-Walze: Jecken und Martinszügen im Westen droht Nass-Chaos**: [Link](https://www.merkur.de/deutschland/wetter-hammer-zum-11-11-regen-walze-rollt-auf-koeln-duesseldorf-und-mainz-zu-zr-94583976.html)
+- **11.11. um 11:11 Uhr: So erlebst du den Start der Karnevalssaison 2026/27 im kostenlosen Livestream**: [Link](https://www.joyn.de/bts/themen/shows/karnevalsstart-livestream-eroeffnung-fasching-saison2026-free-tv-209390)
+
+
+### weather tomorrow (N/A, Tue, 10 Nov 2026 11:30:00 -0800)
+
+- **UAE weather forecast: Heavy rain, strong winds as temperatures drop**: [Link](https://gulfnews.com/uae/weather/uae-weather-forecast-heavy-rain-strong-winds-as-temperatures-drop-1.500741890)
+- **NCM forecasts rain, hail, temperature drop in UAE**: [Link](https://www.gulftoday.ae/news/2026/11/10/ncm-forecasts-rain-hail-temperature-drop-in-uae)
+- **UAE weather forecast: Temperatures slide into the low-30s, with rain possible on the coasts and islands**: [Link](https://www.emirates247.com/uae/uae-weather-forecast-temperatures-slide-into-the-low-30s-with-rain-possible-on-the-coasts-and-islands/7614)
+
+
 ### منتخب إثيوبيا لكرة القدم (N/A, Tue, 10 Nov 2026 10:10:00 -0800)
 
 - **المنتخـب الأولمبي يشد الرحال صوب إثيوبيا الثلاثاء لمواجهتها برسم تصفيات "كان لأقل من 23 سنة"**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D9%80%D8%A8-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A-%D9%8A%D8%B4%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7%D9%84-%D8%B5%D9%88%D8%A8-%D8%A5%D8%AB%D9%8A%D9%88/)
