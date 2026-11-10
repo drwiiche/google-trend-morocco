@@ -1,3 +1,71 @@
+### منتخب مصر لكرة القدم (N/A, Tue, 10 Nov 2026 01:10:00 -0800)
+
+- **ثقة مصر القصوى في حمزة عبد الكريم.. رسالة قوية من علي ماهر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AB%D9%82%D8%A9-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%82%D8%B5%D9%88%D9%89-%D9%81%D9%8A-%D8%AD%D9%85%D8%B2%D8%A9-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%83%D8%B1%D9%8A%D9%85--%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%82%D9%88%D9%8A%D8%A9-%D9%85%D9%86-%D8%B9%D9%84%D9%8A-%D9%85%D8%A7%D9%87%D8%B1/blta2d6026c346b46ef)
+- **علي ماهر يكشف تشكيلة مصر لمواجهة مالاوي**: [Link](https://www.skynewsarabia.com/sport/1903655-%D8%B9%D9%84%D9%8A-%D9%85%D8%A7%D9%87%D8%B1-%D9%8A%D9%83%D8%B4%D9%81-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D9%85%D8%B5%D8%B1-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A)
+- **موعد مباراة منتخب مصر ومالاوي في تصفيات كأس الأمم الأفريقية**: [Link](https://www.masrawy.com/sports/sports-arab-international/details/2026/11/10/3076479/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%88%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9)
+
+
+### police (N/A, Tue, 10 Nov 2026 00:50:00 -0800)
+
+- **Vernon Township Police Department seeks public comments as part of accreditation assessment**: [Link](https://wrnjradio.com/vernon-township-police-department-seeks-public-comments-as-part-of-accreditation-assessment/)
+- **Count of Kentucky police, sheriffs in ICE program surges**: [Link](https://www.lpm.org/investigate/2026-11-10/count-of-kentucky-police-sheriffs-in-ice-program-surges)
+- **10 local agencies join ICE program targeting illegal immigration**: [Link](https://www.wafb.com/2026/11/09/10-local-agencies-join-ice-program-targeting-illegal-immigration/)
+
+
+### coupe d'afrique des nations de football (N/A, Tue, 10 Nov 2026 00:30:00 -0800)
+
+- **Éliminatoires CAN 2027**: [Link](https://afrique.le360.ma/sports/eliminatoires-can-2027_F2OLHACMIFBNLCJZDXZVEJLS4Q/)
+- **Trêve internationale : Le programme des matchs pour nos internationaux**: [Link](https://angers-sco.fr/treve-internationale-le-programme-des-matchs-pour-nos-internationaux-2/)
+- **CAN 2027 : Le fauteuil du Cameroun vacille, les Comores à l’affût**: [Link](https://actucameroun.com/2026/11/09/can-2027-le-fauteuil-du-cameroun-vacille-les-comores-a-laffut/)
+
+
+### تأشيرة (N/A, Tue, 10 Nov 2026 00:00:00 -0800)
+
+- **تركيا: 103 دولة يمكن السفر إليها بدون تأشيرة أو فقط بالهوية**: [Link](https://turkey-breaking.com/News/2026/11/05/%D8%AA%D8%B1%D9%83%D9%8A%D8%A7-103-%D8%AF%D9%88%D9%84%D8%A9-%D9%8A%D9%85%D9%83%D9%86-%D8%A7%D9%84%D8%B3%D9%81%D8%B1-%D8%A5%D9%84%D9%8A%D9%87%D8%A7-%D8%A8%D8%AF%D9%88%D9%86-%D8%AA%D8%A3%D8%B4%D9%8A/)
+- **دول تتيح للأتراك الدخول دون تأشيرة أو بتسهيلات**: [Link](https://newturkpost.com/news/132078-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D9%8A-%D8%AA%D8%AA%D9%8A%D8%AD-%D9%84%D9%84%D9%85%D9%88%D8%A7%D8%B7%D9%86%D9%8A%D9%86-%D8%A7%D9%84%D8%A3%D8%AA%D8%B1%D8%A7%D9%83-%D8%A7%D9%84%D8%AF%D8%AE%D9%88%D9%84-%D8%A8%D8%AA%D8%B3%D9%87%D9%8A%D9%84%D8%A7%D8%AA)
+- **كم سعر فيزا تركيا 2027 للمصريين؟ الرسوم والأوراق المطلوبة وطرق التقديم**: [Link](https://twaslnews1.twaslnews.com/7353894/)
+
+
+### سيارة أجرة (N/A, Mon, 9 Nov 2026 23:50:00 -0800)
+
+- **سائقو سيارات الأجرة بمكناس يطالبون برفع التسعيرة**: [Link](https://assabah.ma/961186.html)
+- **احتجاج سائقي طاكسيات الرباط**: [Link](https://www.hespress.com/%D8%A7%D8%AD%D8%AA%D8%AC%D8%A7%D8%AC-%D8%B3%D8%A7%D8%A6%D9%82%D9%8A-%D8%B7%D8%A7%D9%83%D8%B3%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-1836601.html)
+- **الرباط.. سحب رخص ثقة سائقي سيارات الأجرة الكبيرة بسبب الزيادة في التعريفة يثير غضب المهنيين**: [Link](https://2m.ma/fr/news/%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-%D8%B3%D8%AD%D8%A8-%D8%B1%D8%AE%D8%B5-%D8%AB%D9%82%D8%A9-%D8%B3%D8%A7%D8%A6%D9%82%D9%8A-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%AC%D8%B1%D8%A9-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1%D8%A9-%D8%A8%D8%B3%D8%A8%D8%A8-%D8%A7%D9%84%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D9%81%D9%8A-20261107)
+
+
+### مانويل نوير (N/A, Mon, 9 Nov 2026 23:40:00 -0800)
+
+- **مفاجأة في قائمة خليفة نوير.. اسم غير متوقع يدخل حسابات بايرن ميونخ**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%81%D8%A7%D8%AC%D8%A7%D9%94%D8%A9-%D9%81%D9%8A-%D9%82%D8%A7%D9%8A%D9%94%D9%85%D8%A9-%D8%AE%D9%84%D9%8A%D9%81%D8%A9-%D9%86%D9%88%D9%8A%D8%B1--%D8%A7%D8%B3%D9%85-%D8%BA%D9%8A%D8%B1-%D9%85%D8%AA%D9%88%D9%82%D8%B9-%D9%8A%D8%AF%D8%AE%D9%84-%D8%AD%D8%B3%D8%A7%D8%A8%D8%A7%D8%AA-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE/blt1582019bdd1999fb)
+- **قدم.. بايرن ميونخ يتجاوز ماينز بصعوبة ويواصل صدارة الدوري الألماني**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%85%D9%8A%D9%88%D9%86%D8%AE-%D9%8A%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D9%85%D8%A7%D9%8A%D9%86%D8%B2-%D8%A8%D8%B5%D8%B9%D9%88%D8%A8%D8%A9-%D9%88%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/4115443)
+- **بطولة ألمانيا: بايرن ودورتموند يحافظان على مسافة واحدة في الصدارة**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261107-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D9%88%D8%AF%D9%88%D8%B1%D8%AA%D9%85%D9%88%D9%86%D8%AF-%D9%8A%D8%AD%D8%A7%D9%81%D8%B8%D8%A7%D9%86-%D8%B9%D9%84%D9%89-%D9%85%D8%B3%D8%A7%D9%81%D8%A9-%D9%88%D8%A7%D8%AD%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9)
+
+
+### airbnb (N/A, Mon, 9 Nov 2026 23:40:00 -0800)
+
+- **Airbnb can be positive for the community | Letters**: [Link](https://www.theguardian.com/technology/2026/nov/04/airbnb-can-be-positive-for-the-community)
+- **Airbnb Host Defends Asking Guests to Wash Dishes and Take Out Trash: ‘I Thought Everyone Did This’**: [Link](https://travel.yahoo.com/general/articles/airbnb-host-defends-asking-guests-165500004.html)
+- **New changes to Airbnb house rules upset Tuscaloosa hosts**: [Link](https://www.wvua23.com/news/local/tuscaloosa_county/new-changes-to-airbnb-house-rules-upset-tuscaloosa-hosts/article_2fd95817-049c-42b6-8824-57e5d953d31c.html)
+
+
+### الطقس اليوم (N/A, Mon, 9 Nov 2026 23:10:00 -0800)
+
+- **الثلاثاء: حالة الطقس ودرجات الحرارة**: [Link](https://www.mosaiquefm.net/ar/%D8%AA%D9%88%D9%86%D8%B3-%D9%88%D8%B7%D9%86%D9%8A%D8%A9/1536303/%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D8%A7%D8%A1-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%88%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9)
+- **محمود القياتي: لا تبالغوا في ارتداء الملابس الشتوية الثقيلة**: [Link](https://www.youm7.com/story/2026/11/9/%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%AA%D9%8A-%D9%84%D8%A7-%D8%AA%D8%A8%D8%A7%D9%84%D8%BA%D9%88%D8%A7-%D9%81%D9%8A-%D8%A7%D8%B1%D8%AA%D8%AF%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%A8%D8%B3-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D8%AB%D9%82%D9%8A%D9%84%D8%A9/7612207)
+- **انخفاض درجات الحرارة وأمطار اليوم.. الأرصاد تحذر من حالة الطقس خلال الساعات المقبلة**: [Link](https://www.almasryalyoum.com/news/details/4406288)
+
+
+### la météo (N/A, Mon, 9 Nov 2026 23:10:00 -0800)
+
+
+
+
+### كرة الصالات (N/A, Mon, 9 Nov 2026 22:50:00 -0800)
+
+- **الألعاب الأولمبية للشباب داكار 2026: المنتخب الوطني لأقل من 18 سنة يواجه الأرجنتين في نصف النهائي**: [Link](https://frmf.ma/articles/2026-18)
+- **منتخب الأرجنتين يهزم "أشبال الفوتسال"**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%8A%D9%87%D8%B2%D9%85-%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1837185.html)
+- **المغرب يكتسح جزر سليمان بـ15 هدفا ويبلغ نصف نهائي أولمبياد الشباب**: [Link](https://2m.ma/ar/news/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD-%D8%AC%D8%B2%D8%B1-%D8%B3%D9%84%D9%8A%D9%85%D8%A7%D9%86-%D8%A8%D9%8015-%D9%87%D8%AF%D9%81%D8%A7-%D9%88%D9%8A%D8%A8%D9%84%D8%BA-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A3%D9%88%D9%84%D9%85%D8%A8%D9%8A%D8%A7%D8%AF-%D8%A7%D9%84%D8%B4%D8%A8%D8%A7%D8%A8-20261107)
+
+
 ### nvidia jensen huang (N/A, Mon, 9 Nov 2026 15:50:00 -0800)
 
 - **What we know so far about Jensen Huang's affair with suspected Chinese spy**: [Link](https://www.bbc.com/news/articles/ckgel338xql3o)
