@@ -1,3 +1,38 @@
+### أرينا سابالينكا (N/A, Wed, 11 Nov 2026 08:10:00 -0800)
+
+- **فضيحة على الهواء.. بي إن سبورتس تعتذر بعد التعليق المخزي**: [Link](https://www.kooora.com/%D8%AA%D9%86%D8%B3/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%A1--%D8%A8%D9%8A-%D8%A7%D9%95%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%B9%D8%AA%D8%B0%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%AE%D8%B2%D9%8A/blte402d2f1a7681969)
+- **دبليو تي ايه الختامية: نوسكوفا أولى المتأهلات إلى نصف النهائي وبيغولا تستعيد توازنها**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261111-%D8%AF%D8%A8%D9%84%D9%8A%D9%88-%D8%AA%D9%8A-%D8%A7%D9%8A%D9%87-%D8%A7%D9%84%D8%AE%D8%AA%D8%A7%D9%85%D9%8A%D8%A9-%D9%86%D9%88%D8%B3%D9%83%D9%88%D9%81%D8%A7-%D8%A3%D9%88%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%AA%D8%A3%D9%87%D9%84%D8%A7%D8%AA-%D8%A5%D9%84%D9%89-%D9%86%D8%B5%D9%81-%D8%A7%D9%84%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%88%D8%A8%D9%8A%D8%BA%D9%88%D9%84%D8%A7-%D8%AA%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D9%87%D8%A7)
+- **سابالينكا تتجاوز موخوفا وتقترب من نصف نهائي البطولة الختامية**: [Link](https://www.alaraby.co.uk/sport/%D8%B3%D8%A7%D8%A8%D8%A7%D9%84%D9%8A%D9%86%D9%83%D8%A7-%D8%AA%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D9%85%D9%88%D8%AE%D9%88%D9%81%D8%A7-%D9%88%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D9%86%D8%B5%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AE%D8%AA%D8%A7%D9%85%D9%8A%D8%A9)
+
+
+### quinte (N/A, Wed, 11 Nov 2026 06:50:00 -0800)
+
+- **Dukes eager to take Quinte Region rivalry to the big stage at CIBC Place**: [Link](https://bellevillesens.com/dukes-eager-to-get-big-league-experience-during-ojhl-challenge-at-cibc-place/)
+- **Enjoy a celebration of local hockey and help healthcare close to home**: [Link](https://www.inquinte.ca/2026/11/enjoy-a-celebration-of-local-hockey-and-help-healthcare-close-to-home/)
+- **The Battle of Quinte at CIBC Place**: [Link](https://www.quintenews.com/2026/11/10/394666/)
+
+
+### koh lanta all stars (N/A, Wed, 11 Nov 2026 05:40:00 -0800)
+
+- **"On n'a plus la place" : Pourquoi la résidence du jury final est totalement absente de cette édition de "Koh-Lanta : All-stars" - Puremédias**: [Link](https://www.ozap.com/actu/on-na-plus-la-place-pourquoi-la-residence-du-jury-final-est-totalement-absente-de-cette-edition-de-koh-lanta-all-stars/657825)
+- **Dans « Koh-Lanta », même Denis Brogniart n’en revient pas du geste de cette candidate**: [Link](https://www.huffingtonpost.fr/divertissement/article/dans-koh-lanta-le-beau-geste-de-cette-candidate-sur-la-course-d-orientation-a-surpris-tout-le-monde-meme-denis-brogniart_355511.html)
+- **"Punaise, je vais sur les poteaux !" : qui sont les trois finalistes de "Koh-Lanta All Stars" ?**: [Link](https://www.tf1info.fr/culture/punaise-je-vais-sur-les-poteaux-qui-sont-les-trois-finalistes-de-koh-lanta-all-stars-episode-11-10-novembre-2026-2475043.html)
+
+
+### بلال الخنوس (N/A, Wed, 11 Nov 2026 03:50:00 -0800)
+
+- **عاجل ومفاجئ.. 40 مليار سنتيم تقرب نجم "أسود الأطلس" من هذا العملاق الأوروبي! التفاصيل الكاملة للصفقة المدوية**: [Link](https://radiomars.ma/%D8%BA%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%8A%D8%BA%D8%B1%D9%8A-%D8%B4%D8%AA%D9%88%D8%AA%D8%BA%D8%A7%D8%B1%D8%AA-%D8%A8%D9%80-40-%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D8%A7%D9%8B-%D9%84%D8%AE/)
+- **شتوتغارت يدرس التخلي عن الخنوس مقابل 40 مليون يورو**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B4%D8%AA%D9%88%D8%AA%D8%BA%D8%A7%D8%B1%D8%AA-%D9%8A%D8%AF%D8%B1%D8%B3-%D8%A7%D9%84%D8%AA%D8%AE%D9%84%D9%8A-%D8%B9%D9%86-%D8%A7%D9%84%D8%AE%D9%86%D9%88%D8%B3-%D9%85%D9%82%D8%A7%D8%A8%D9%84-40-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88/27652)
+- **هل يرحل بلال الخنوس عن شتوتغارت إلى غلطة سراي؟ مصدر من محيط اللاعب يكشف التفاصيل**: [Link](https://ar.sport.le360.ma/football/lions-atlas/5A4JDPBD5JCGTC3RP44UPOWPOQ/)
+
+
+### محيي إسماعيل (N/A, Wed, 11 Nov 2026 02:20:00 -0800)
+
+- **من دار رعاية الفنانين.. محيي إسماعيل يحتفل بعيد ميلاده الـ85**: [Link](https://www.alarabiya.net/culture-and-art/2026/11/11/%D9%85%D9%86-%D8%AF%D8%A7%D8%B1-%D8%B1%D8%B9%D8%A7%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86%D9%8A%D9%86-%D9%85%D8%AD%D9%8A%D9%8A-%D8%A7%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D8%B9%D9%8A%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF%D9%87-%D8%A7%D9%84%D9%8085-)
+- **«كان بينام في الدولاب».. محطات لا تنسى بحياة قيصر السينما المصرية محيي إسماعيل**: [Link](https://www.elwatannews.com/news/details/8394104)
+- **محيي إسماعيل يحتفل بميلاده الـ86 مع زملائه في دار الرعاية**: [Link](https://www.lahamag.com/article/242728-%D9%85%D8%AD%D9%8A%D9%8A-%D8%A5%D8%B3%D9%85%D8%A7%D8%B9%D9%8A%D9%84-%D9%8A%D8%AD%D8%AA%D9%81%D9%84-%D8%A8%D9%85%D9%8A%D9%84%D8%A7%D8%AF%D9%87-%D8%A7%D9%8486-%D9%85%D8%B9-%D8%B2%D9%85%D9%84%D8%A7%D8%A6%D9%87-%D9%81%D9%8A-%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%B1%D8%B9%D8%A7%D9%8A%D8%A9)
+
+
 ### عاصفة (N/A, Wed, 11 Nov 2026 02:00:00 -0800)
 
 - **قمة الويب في لشبونة تلغي اليوم الثاني بسبب العاصفة تشارلز**: [Link](https://arabic.euronews.com/2026/11/10/web-summit-lisbon-day-2-cancelled-due-to-storm-charles)
