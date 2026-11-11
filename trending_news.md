@@ -1,3 +1,24 @@
+### محكمة التحكيم الرياضية (N/A, Tue, 10 Nov 2026 16:50:00 -0800)
+
+- **الجمارك الموريتاني ينتصر في معركته القضائية أمام حافيا كوناكري ويضرب موعدًا مع شباب بلوزداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B1%D9%83-%D8%A7%D9%84%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1%D9%83%D8%AA%D9%87-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AD%D8%A7%D9%81%D9%8A%D8%A7-%D9%83%D9%88%D9%86%D8%A7%D9%83%D8%B1%D9%8A-%D9%88%D9%8A%D8%B6%D8%B1%D8%A8-%D9%85%D9%88%D8%B9%D8%AF%D9%8B%D8%A7-%D9%85%D8%B9-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF/blt7de6b9b3f8138d54)
+- **مصدر من كاف لـ في الجول: تأخير مباراة الجولة الأولى للفائز من الجمارك وبلوزداد في الكونفدرالية**: [Link](https://www.filgoal.com/articles/541449)
+- **كأس "الكاف".. تطور جديد يهم شباب بلوزداد**: [Link](https://www.elkhabar.com/sport/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D8%AA%D8%B7%D9%88%D8%B1-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D9%87%D9%85-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF-276120)
+
+
+### pete hegseth (N/A, Tue, 10 Nov 2026 15:40:00 -0800)
+
+- **Pentagon declares ‘total victory’ after House Republicans block effort to impeach Pete Hegseth – US politics live**: [Link](https://www.theguardian.com/us-news/live/2026/nov/10/donald-trump-pete-hegseth-thomas-massie-republicans-iran-war-impeachment-midterms-latest-news-updates)
+- **Live updates: Pete Hegseth defends record after Republican begins impeachment effort**: [Link](https://www.bbc.com/news/live/cq1j3jngn81dt)
+- **Hegseth Impeachment Charges Say He Violated the Constitution**: [Link](https://www.nytimes.com/2026/11/09/us/hegseth-impeachment-massie.html)
+
+
+### gta vi ps5 (N/A, Tue, 10 Nov 2026 12:00:00 -0800)
+
+- **Pre-load Grand Theft Auto VI on PS5 starting today**: [Link](https://blog.playstation.com/2026/11/10/pre-load-grand-theft-auto-vi-on-ps5-starting-today/)
+- **Grand Theft Auto VI Comes to XBOX One and XBOX Series X|S Through XBOX Cloud Gaming on November 19**: [Link](https://news.xbox.com/en-us/2026/11/10/grand-theft-auto-6-comes-to-xbox-cloud-gaming-november-19/)
+- **Rockstar Officially Confirms GTA 6 Regional Release Times - and They're Not What We Thought**: [Link](https://www.digitalfoundry.net/news/2026/11/rockstar-officially-confirms-gta-6-regional-release-times-and-theyre-not-what-we-thought)
+
+
 ### windy (N/A, Tue, 10 Nov 2026 13:00:00 -0800)
 
 - **Sunshine and warmer temperatures continue**: [Link](https://www.newschannel10.com/2026/11/10/sunshine-warmer-temperatures-continue/)
