@@ -1,3 +1,73 @@
+### coupure électricité casablanca (N/A, Wed, 11 Nov 2026 14:40:00 -0800)
+
+- **Électricité : des coupures à Casa suite aux intempéries, les travaux de rétablissement sont en cours**: [Link](https://medias24.com/2026/11/11/electricite-des-coupures-a-casa-suite-aux-intemperies-les-travaux-de-retablissement-sont-en-cours-1790060/)
+- **Casablanca : une partie de la métropole paralysée par une coupure électrique**: [Link](https://mobile.telquel.ma/instant-t/2026/11/11/casablanca-une-partie-de-la-metropole-paralysee-par-une-coupure-electrique_2017780/)
+- **Casablanca : une panne d’électricité affecte plusieurs secteurs**: [Link](https://fnh.ma/articles/casablanca-une-panne-d-electricite-affecte-plusieurs-secteurs)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Wed, 11 Nov 2026 13:50:00 -0800)
+
+- **"كاف" يعلن موعدا جديدا لحفل جوائز الأفضل في أفريقيا 2026**: [Link](https://www.aljazeera.net/sport/2026/11/10/%D9%83%D8%A7%D9%81-%D9%8A%D8%B9%D9%84%D9%86-%D9%85%D9%88%D8%B9%D8%AF%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D9%84%D8%AD%D9%81%D9%84-%D8%AC%D9%88%D8%A7%D8%A6%D8%B2)
+- **"الكاف" يغير موعد حفل جوائز الأفضل**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D8%BA%D9%8A%D8%B1-%D9%85%D9%88%D8%B9%D8%AF-%D8%AD%D9%81%D9%84-%D8%AC%D9%88%D8%A7%D8%A6%D8%B2-%D8%A7%D9%84%D8%A3%D9%81%D8%B6%D9%84-1837324.html)
+- **عودة إلى لاجوس.. الكاف يحدد موعد حفل الأفضل في إفريقيا 2026**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%88%D8%AF%D8%A9-%D8%A7%D9%95%D9%84%D9%89-%D9%84%D8%A7%D8%AC%D9%88%D8%B3--%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D8%AD%D8%AF%D8%AF-%D9%85%D9%88%D8%B9%D8%AF-%D8%AD%D9%81%D9%84-%D8%A7%D9%84%D8%A7%D9%94%D9%81%D8%B6%D9%84-%D9%81%D9%8A-%D8%A7%D9%95%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2026/blt75c253fb9d26b749)
+
+
+### hossam hassan (N/A, Wed, 11 Nov 2026 13:20:00 -0800)
+
+- **After the sacking of Hossam Hassan: Ali Maher's vision opens the door to glory for Hamza Abdel Karim**: [Link](https://www.goal.com/en/news/after-hossam-hassan-s-dismissal-ali-maher-s-vision-opens-the-door-to-glory-for-hamza-abdel-karim/blt23903f021ee74810)
+- **Spanish outlet 'Sport': major setback for Hamza Abdelkarim**: [Link](https://www.goal.com/en/news/spanish-outlet-sport-major-setback-for-hamza-abdelkarim/blt62476c2607611b21)
+- **Hamza Abdelkarim faces new opportunity with Egypt… | Yalla Shoot**: [Link](https://www.ysscores.com/en/news/14093000/hamza-abdelkarim-faces-new-opportunity-with-egypt-national-team)
+
+
+### مارك كوكوريلا​ (N/A, Wed, 11 Nov 2026 12:30:00 -0800)
+
+- **كوكوريلا للجماهير الألمانية: الحكم من أخطأ وليس أنا!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%83%D9%88%D8%B1%D9%8A%D9%84%D8%A7-%D9%84%D9%84%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D9%85%D9%86-%D8%A7%D9%94%D8%AE%D8%B7%D8%A7%D9%94-%D9%88%D9%84%D8%B3%D8%AA-%D8%A7%D9%94%D9%86%D8%A7/bltdeee7a9a2a420f8c)
+- **مارك كوكوريلا: لا يمكنني اللعب في هذا البلد لأنني مستهدف!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7%D8%B1%D9%83-%D9%83%D9%88%D9%83%D9%88%D8%B1%D9%8A%D9%84%D8%A7%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%8A%D9%88%D8%B1%D9%88/blte326c3f6bd1c038b)
+- **مارك كوكوريلا يرد على هجوم جماهير ألمانيا: لم أعد أستطيع اللعب في ألمانيا**: [Link](https://tribuna.com/ar/news/2026-11-11-mrk-kwkwryl-yrd-l-hjwm-jmhyr-lmny-lm-d-stty-llb-fy-lmny/)
+
+
+### نصر الدين النابي (N/A, Wed, 11 Nov 2026 12:20:00 -0800)
+
+- **كواليس الفرق**: [Link](https://assabah.ma/960958.html)
+- **نابي يتلقى دفعة كبيرة في سباق منافسة الوداد على لقب البطولة**: [Link](https://ar.sport.le360.ma/football/botola/ZMQN7WMQBFD3RECP2ZCE6XHA6M/)
+- **خبر سار لمدرب الوداد نصر الدين النابي**: [Link](https://sport.lesiteinfo.com/elbotola/506313.html)
+
+
+### usman nurmagomedov (N/A, Wed, 11 Nov 2026 12:00:00 -0800)
+
+- **Bloody Merab Dvalishvili claims ‘sneaky’ Usman Nurmagomedov and friends jumped him ahead of RAF Abu Dhabi**: [Link](https://www.mmafighting.com/ufc/520524/bloody-merab-dvalishvili-claims-sneaky-usman-nurmagomedov-and-friends-jumped-him-ahead-of-raf-abu-dhabi)
+- **MMA fighters, including former UFC champ, get into wild melee at Abu Dhabi hotel lobby**: [Link](https://www.foxnews.com/outkick-sports/mma-fighters-including-former-ufc-champ-wild-melee-abu-dhabi-hotel-lobby)
+- **Islam Makhachev defends Usman Nurmagomedov after bloody Merab Dvalishvili attack — ‘Merab started it’**: [Link](https://sports.yahoo.com/articles/islam-makhachev-defends-usman-nurmagomedov-230000310.html)
+
+
+### بوينغ (N/A, Wed, 11 Nov 2026 11:20:00 -0800)
+
+- **اشترى طائرة بوينغ عبر فيسبوك.. ثم دفنها تحت حديقة منزله**: [Link](https://www.aljazeera.net/misc/2026/11/11/%D8%A7%D8%B4%D8%AA%D8%B1%D9%89-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A8%D9%88%D9%8A%D9%86%D8%BA-%D8%B9%D8%A8%D8%B1-%D9%81%D9%8A%D8%B3%D8%A8%D9%88%D9%83-%D8%AB%D9%85-%D8%AF%D9%81%D9%86%D9%87%D8%A7)
+- **اشترى طائرة عبر «فيسبوك» ثم دفنها في حديقة منزله**: [Link](https://www.alkhaleej.ae/2026-11-11/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%A7%D8%B4%D8%AA%D8%B1%D9%89-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%B9%D8%A8%D8%B1-%D9%81%D9%8A%D8%B3%D8%A8%D9%88%D9%83-%D8%AB%D9%85-%D8%AF%D9%81%D9%86%D9%87%D8%A7-%D9%81%D9%8A-%D8%AD%D8%AF%D9%8A%D9%82%D8%A9-%D9%85%D9%86%D8%B2%D9%84%D9%87)
+- **بريطاني يدفن طائرة بوينغ 737 في حديقة منزله لتحويلها إلى ملاذ تحت الأرض**: [Link](https://turkey-breaking.com/News/2026/11/10/%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A-%D9%8A%D8%AF%D9%81%D9%86-%D8%B7%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A8%D9%88%D9%8A%D9%86%D8%BA-737-%D9%81%D9%8A-%D8%AD%D8%AF%D9%8A%D9%82%D8%A9-%D9%85%D9%86%D8%B2/)
+
+
+### صناعة المركبات (N/A, Wed, 11 Nov 2026 11:00:00 -0800)
+
+- **مزور يحذر من مساعٍ أوروبية تهدد استثمارات صناعة السيارات بالمغرب**: [Link](https://www.hespress.com/%D9%85%D8%B2%D9%88%D8%B1-%D9%8A%D8%AD%D8%B0%D8%B1-%D9%85%D9%86-%D9%85%D8%B3%D8%A7%D8%B9%D9%8D-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7-1837516.html)
+- **بقيمة صادرات تناهز 159 مليارا.. السيارات تعزز موقعها كقاطرة أولى للاقتصاد المغربي**: [Link](https://al3omk.com/1208391.html)
+- **الصناعة المغربية للسيارات أمام اختبار أوروبي جديد.. قراءة عبد اللطيف كومات**: [Link](https://www.medi1news.com/ar/article/415322.html)
+
+
+### ثعبان (N/A, Wed, 11 Nov 2026 10:50:00 -0800)
+
+- **ثعبان عملاق يتحول إلى زحلوقة أطفال.. والأسرة تكشف مفاجأة (فيديو)**: [Link](https://www.aljazeera.net/misc/2026/11/10/%D8%AB%D8%B9%D8%A8%D8%A7%D9%86-%D8%B9%D9%85%D9%84%D8%A7%D9%82-%D9%8A%D8%AA%D8%AD%D9%88%D9%84-%D8%A5%D9%84%D9%89-%D8%B2%D8%AD%D9%84%D9%88%D9%82%D8%A9-%D8%A3%D8%B7%D9%81%D8%A7%D9%84)
+- **أطفال يتزحلقون على ظهر أخطر ثعبان بالعالم**: [Link](https://www.alkhaleej.ae/2026-11-09/%D9%85%D9%86%D9%88%D8%B9%D8%A7%D8%AA/%D9%85%D8%AD%D8%B7%D8%A7%D8%AA/%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D9%8A%D8%AA%D8%B2%D8%AD%D9%84%D9%82%D9%88%D9%86-%D8%B9%D9%84%D9%89-%D8%B8%D9%87%D8%B1-%D8%A3%D8%AE%D8%B7%D8%B1-%D8%AB%D8%B9%D8%A8%D8%A7%D9%86-%D8%A8%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85)
+- **فيديو صادم.. أطفال يتزلجون على ظهر ثعبان ضخم في إندونيسيا**: [Link](https://www.eremnews.com/entertainment/elxj8uf)
+
+
+### سكر الدم (N/A, Wed, 11 Nov 2026 10:20:00 -0800)
+
+- **تظنه صحياً لكنه يرفع سكر الدم.. احذر هذا المشروب الشائع**: [Link](https://www.alarabiya.net/medicine-and-health/2026/11/10/%D8%AA%D8%B8%D9%86%D9%87-%D8%B5%D8%AD%D9%8A%D8%A7-%D9%84%D9%83%D9%86%D9%87-%D9%8A%D8%B1%D9%81%D8%B9-%D8%B3%D9%83%D8%B1-%D8%A7%D9%84%D8%AF%D9%85-%D8%A7%D8%AD%D8%B0%D8%B1-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%88%D8%A8-%D8%A7%D9%84%D8%B4%D8%A7%D8%A6%D8%B9)
+- **خلف شعار "طبيعي 100%"... سكر مضاعف وتهديد للقلب في المشروبات الصحية!**: [Link](https://www.lbcgroup.tv/news/health-nutrition/967477/%D8%AE%D9%84%D9%81-%D8%B4%D8%B9%D8%A7%D8%B1-%D8%B7%D8%A8%D9%8A%D8%B9%D9%8A-100-%D8%B3%D9%83%D8%B1-%D9%85%D8%B6%D8%A7%D8%B9%D9%81-%D9%88%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D9%84%D9%84%D9%82%D9%84%D8%A8-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%B4%D8%B1%D9%88%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B5%D8%AD%D9%8A%D8%A9/ar)
+- **حتى دون سكر مضاف.. 4 عصائر قد ترفع سكر الدم سريعًا**: [Link](https://www.eremnews.com/health/t1jdp64)
+
+
 ### أرينا سابالينكا (N/A, Wed, 11 Nov 2026 08:10:00 -0800)
 
 - **فضيحة على الهواء.. بي إن سبورتس تعتذر بعد التعليق المخزي**: [Link](https://www.kooora.com/%D8%AA%D9%86%D8%B3/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D8%B6%D9%8A%D8%AD%D8%A9-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%A1--%D8%A8%D9%8A-%D8%A7%D9%95%D9%86-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%B9%D8%AA%D8%B0%D8%B1-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%82-%D8%A7%D9%84%D9%85%D8%AE%D8%B2%D9%8A/blte402d2f1a7681969)
