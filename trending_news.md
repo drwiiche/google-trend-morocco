@@ -1,3 +1,71 @@
+### عاصفة (N/A, Wed, 11 Nov 2026 02:00:00 -0800)
+
+- **قمة الويب في لشبونة تلغي اليوم الثاني بسبب العاصفة تشارلز**: [Link](https://arabic.euronews.com/2026/11/10/web-summit-lisbon-day-2-cancelled-due-to-storm-charles)
+- **البرتغال تعلن حالة التأهب وتقرر إغلاق المدارس والمرافق العمومية غدا الأربعاء بسبب سوء الأحوال الجوية**: [Link](https://barlamane.com/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AA%D8%B9%D9%84%D9%86-%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D8%A8-%D9%88%D8%AA%D9%82%D8%B1%D8%B1-%D8%A5%D8%BA%D9%84%D8%A7%D9%82/)
+- **الاتحاد الأوروبي يؤجل مباريات دولية في البرتغال بسبب العاصفة تشارلز**: [Link](https://www.elbotola.com/article/2026-11-10-20-09-76.html)
+
+
+### football (N/A, Wed, 11 Nov 2026 00:40:00 -0800)
+
+- **Monmouth football must deal with a well-tested potential spoiler | Exclusive preview**: [Link](https://sports.yahoo.com/articles/monmouth-football-must-deal-well-092119679.html)
+- **Monmouth College Football Returns Home for Senior Day Against Grinnell**: [Link](https://977wmoi.com/2026/11/monmouth-college-football-returns-home-for-senior-day-against-grinnell/)
+- **What NC high school football standouts' stock rose most in Round 1?**: [Link](https://www.citizen-times.com/story/sports/high-school/2026/11/11/north-carolina-high-school-football-recruiting-ladder-nov-10-2026/92641350007/)
+
+
+### iran (N/A, Tue, 10 Nov 2026 23:10:00 -0800)
+
+- **Iran designates Argentina's navy, air force as terrorist organizations**: [Link](https://www.upi.com/Top_News/World-News/2026/11/11/iran-desigantes-Argentina-navy-air-force-terrorist-organizations/7981794382830/)
+- **Iran applies reciprocal terrorist designation to Argentina’s navy, air force**: [Link](https://thenewregion.com/posts/7073)
+- **Iran Designates Argentine Navy, Air Force as Terrorist Organizations**: [Link](https://www.tasnimnews.ir/en/news/2026/11/11/3745734/iran-designates-argentine-navy-air-force-as-terrorist-organizations)
+
+
+### حالة الطقس (N/A, Tue, 10 Nov 2026 23:00:00 -0800)
+
+- **الاجواء الشتوية**: [Link](https://m.akhbarelyom.com/Tags/NewsTagList/1977003/1/%D8%A7%D9%84%D8%A7%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9)
+- **حالة الطقس لمدة أسبوع .. ارتفاع تدريجي في درجات الحرارة حتى 27 درجة**: [Link](https://twaslnews1.twaslnews.com/7491040/)
+- **أمطار ورياح وشبورة.. الأرصاد تزف بشرى سارة لمحبي الأجواء الشتوية**: [Link](https://www.masrawy.com/news/masrawytv/details/2026/11/7/3075051/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%B2%D9%81-%D8%A8%D8%B4%D8%B1%D9%89-%D8%B3%D8%A7%D8%B1%D8%A9-%D9%84%D9%85%D8%AD%D8%A8%D9%8A-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%A7%D9%84%D8%B4%D8%AA%D9%88%D9%8A%D8%A9)
+
+
+### تقاعد (N/A, Tue, 10 Nov 2026 22:20:00 -0800)
+
+- **أصول التقاعد بالمغرب تلامس 100 مليار درهم وسط تحديات التمويل**: [Link](https://www.hespress.com/%D8%A3%D8%B5%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D9%82%D8%A7%D8%B9%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D9%84%D8%A7%D9%85%D8%B3-100-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87-1837487.html)
+- **السحيمي: إصلاح التقاعد لا يجب أن يكون على حساب المدرسة العمومية**: [Link](https://febrayer.com/1168061.html)
+- **احتياطيات التقاعد.. أرقام جديدة تطرح تساؤلات حول المستقبل..**: [Link](https://expresstv.ma/en-vedette/154999/)
+
+
+### alerte météo maroc (N/A, Tue, 10 Nov 2026 22:20:00 -0800)
+
+- **Fortes pluies au Maroc : prudence sur les routes !**: [Link](https://lematin.ma/regions/fortes-pluies-au-maroc-prudence-sur-les-routes/375027)
+- **Intempéries : les recommandations du ministère de l’Équipement aux automobilistes**: [Link](https://medias24.com/2026/11/11/intemperies-les-recommandations-du-ministere-de-lequipement-aux-automobilistes-1789674/)
+- **Les températures attendues ce mardi 10 novembre 2026**: [Link](https://fr.hespress.com/495513-__trashed-106.html)
+
+
+### wetter (N/A, Tue, 10 Nov 2026 22:10:00 -0800)
+
+- **Laub an den Bäumen: Mysteriöse Bauernregel verrät, wie der Winter wird**: [Link](https://de.euronews.com/2026/11/11/hangt-laub-an-den-baumen-uralte-bauernregel-winter-aussichten)
+- **Bauernregeln zum Martinstag: So könnte der Winter ausfallen**: [Link](https://web.de/magazine/wissen/natur-umwelt/wetter-martinstag-kommenden-winter-aussagt-42930534)
+- **Wie extrem wird der Winter in diesem Jahr? Wetter-Regel schürt konkreten Verdacht**: [Link](https://www.tz.de/bayern/kaelte-nach-martinstag-droht-muenchen-harter-winter-94583313.html)
+
+
+### météo (N/A, Tue, 10 Nov 2026 21:50:00 -0800)
+
+
+
+
+### منتخب المغرب لكرة القدم (N/A, Tue, 10 Nov 2026 21:50:00 -0800)
+
+- **2026 كأس العرب لكرة القدم الشاطئية: المنتخب المغربي يتوج بطلا لنسخة**: [Link](https://frmf.ma/articles/article-32)
+- **أبطال الشاطئية يعودون بكأس العرب**: [Link](https://www.hespress.com/%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%84%D8%B4%D8%A7%D8%B7%D8%A6%D9%8A%D8%A9-%D9%8A%D8%B9%D9%88%D8%AF%D9%88%D9%86-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-1837873.html)
+- **أسود الشاطئ يصلون إلى المغرب حاملين لقب كأس العرب**: [Link](https://radiomars.ma/%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%B4%D8%A7%D8%B7%D8%A6-%D9%8A%D8%B5%D9%84%D9%88%D9%86-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AD%D8%A7%D9%85%D9%84%D9%8A%D9%86-%D9%84%D9%82/)
+
+
+### weather (N/A, Tue, 10 Nov 2026 21:40:00 -0800)
+
+- **Farne Islands annual bird survey shows puffin numbers down**: [Link](https://www.bbc.co.uk/news/articles/cmn4e45wjljqo)
+- **Northumberland island where puffins are defying the odds**: [Link](https://www.telegraph.co.uk/news/2026/11/11/northumberland-island-puffins-defying-odds/)
+- **Severe winter takes toll on Farne Islands seabirds as annual census reveals mixed fortunes**: [Link](https://www.northumberlandgazette.co.uk/news/environment/severe-winter-takes-toll-on-farne-islands-seabirds-as-annual-census-reveals-fall-in-puffin-numbers-9342439)
+
+
 ### محكمة التحكيم الرياضية (N/A, Tue, 10 Nov 2026 16:50:00 -0800)
 
 - **الجمارك الموريتاني ينتصر في معركته القضائية أمام حافيا كوناكري ويضرب موعدًا مع شباب بلوزداد**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D9%85%D8%A7%D8%B1%D9%83-%D8%A7%D9%84%D9%85%D9%88%D8%B1%D9%8A%D8%AA%D8%A7%D9%86%D9%8A-%D9%8A%D9%86%D8%AA%D8%B5%D8%B1-%D9%81%D9%8A-%D9%85%D8%B9%D8%B1%D9%83%D8%AA%D9%87-%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D9%8A%D9%94%D9%8A%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%AD%D8%A7%D9%81%D9%8A%D8%A7-%D9%83%D9%88%D9%86%D8%A7%D9%83%D8%B1%D9%8A-%D9%88%D9%8A%D8%B6%D8%B1%D8%A8-%D9%85%D9%88%D8%B9%D8%AF%D9%8B%D8%A7-%D9%85%D8%B9-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A8%D9%84%D9%88%D8%B2%D8%AF%D8%A7%D8%AF/blt7de6b9b3f8138d54)
