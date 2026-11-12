@@ -1,3 +1,73 @@
+### بعثة الأمم المتحدة للاستفتاء في الصحراء الغربية (N/A, Thu, 12 Nov 2026 05:10:00 -0800)
+
+- **السنغال تدعم مبادرة الحكم الذاتي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%AF%D8%B9%D9%85-%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D8%B0%D8%A7%D8%AA%D9%8A-1838166.html)
+- **الجمعية العامة للأمم المتحدة… الإمارات العربية المتحدة وقطر وجيبوتي تجدد تأكيد دعمها لمغربية الصحراء – اليوم 24**: [Link](https://alyaoum24.com/2056962.html)
+- **المغرب يخرج بـ"انتصار دبلوماسي" أمام الجمعية العامة للأمم المتحدة خلال مناقشة "الفيتو" الروسي.. هل كانت "بروفة" قبل معركة إخراج ملف الصحراء من اللجنة الرابعة؟**: [Link](https://www.assahifa.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B1%D8%AC-%D8%A8%D9%80%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D8%A7/)
+
+
+### إيران (N/A, Thu, 12 Nov 2026 04:00:00 -0800)
+
+- **لا تصعيد ولا اتفاق.. ترمب يختار طريقا ثالثا لمواجهة إيران**: [Link](https://www.aljazeera.net/news/2026/11/11/%D8%AA%D8%B1%D9%85%D8%A8-%D9%88%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **هل يتجه ترامب لضرب إيران؟**: [Link](https://www.mc-doualiya.com/%D8%A8%D8%B1%D8%A7%D9%85%D8%AC/%D9%86%D9%82%D8%A7%D8%B4-%D9%85%D9%88%D9%86%D8%AA-%D9%83%D8%A7%D8%B1%D9%84%D9%88-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D8%A9/20261112-%D9%87%D9%84-%D9%8A%D8%AA%D8%AC%D9%87-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%84%D8%B6%D8%B1%D8%A8-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **روبيو: حصار إيران ناجح ولا حاجة لعمل عسكري حاليا**: [Link](https://www.skynewsarabia.com/world/1903907-%D8%B1%D9%88%D8%A8%D9%8A%D9%88-%D8%AD%D8%B5%D8%A7%D8%B1-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%86%D8%A7%D8%AC%D8%AD-%D9%88%D9%84%D8%A7-%D8%AD%D8%A7%D8%AC%D8%A9-%D9%84%D8%B9%D9%85%D9%84-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A-%D8%AD%D8%A7%D9%84%D9%8A%D8%A7)
+
+
+### didier deschamps (N/A, Thu, 12 Nov 2026 03:30:00 -0800)
+
+- **Pourquoi Deschamps est toujours bankable ! - L'Équipe de Greg - extrait**: [Link](https://sports.orange.fr/videos/football/pourquoi-deschamps-est-toujours-bankable-l-equipe-de-greg-extrait-CNT000002tAZ9K.html)
+- **Équipe de France: Didier Deschamps, nouvelle révélation accablante**: [Link](https://www.sports.fr/football/equipe-de-france-didier-deschamps-nouvelle-revelation-accablante-1062186.html)
+- **Didier Deschamps : le divorce est acté, "il n’y a plus de contact. On ne se parle plus", l'époux de Claude a rompu les liens avec ses camarades de vestiaire de 1998**: [Link](https://www.melty.fr/sportz/didier-deschamps-le-divorce-est-acte-il-ny-a-plus-de-contact-on-ne-se-parle-plus-lepoux-de-claude-a-rompu-les-liens-avec-ses-camarades-de-vestiaire-de-1998-2360137.html)
+
+
+### ألكسندر دارتشييف (N/A, Thu, 12 Nov 2026 03:20:00 -0800)
+
+- **روسيا تعلن وفاة "مفاجئة" لسفيرها لدى الولايات المتحدة**: [Link](https://arabic.cnn.com/world/article/2026/11/11/russian-ambassador-to-us-dies-foreign-ministry-says)
+- **روسيا تعلن وفاة دارتشييف إثر مرض**: [Link](https://www.hespress.com/%D8%B1%D9%88%D8%B3%D9%8A%D8%A7-%D8%AA%D8%B9%D9%84%D9%86-%D9%88%D9%81%D8%A7%D8%A9-%D8%AF%D8%A7%D8%B1%D8%AA%D8%B4%D9%8A%D9%8A%D9%81-%D8%A5%D8%AB%D8%B1-%D9%85%D8%B1%D8%B6-1838333.html)
+- **وفاة مفاجئة للسفير الروسي لدى الولايات المتحدة**: [Link](https://www.skynewsarabia.com/world/1904166-%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%84%D9%84%D8%B3%D9%81%D9%8A%D8%B1-%D8%A7%D9%84%D8%B1%D9%88%D8%B3%D9%8A-%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9)
+
+
+### mauritanie (N/A, Thu, 12 Nov 2026 03:20:00 -0800)
+
+- **Maroc-Algérie : pourquoi le scénario d’une confrontation militaire ne peut être totalement écarté**: [Link](https://fr.hespress.com/496031-maroc-algerie-pourquoi-le-scenario-dune-confrontation-militaire-ne-peut-etre-totalement-ecarte.html)
+- **Bruits de bottes aux frontières algéro-marocaines**: [Link](https://tamurt.info/bruits-de-bottes-aux-frontieres-algero-marocaines/)
+- **Maroc-Algérie : la Mauritanie, nouvel échiquier d’une guerre d’influence**: [Link](https://www.moroccomail.fr/2026/11/12/mauritanie-sahara-occidental-algerie-maroc-minurso/)
+
+
+### كأس العالم لكرة القدم تحت 17 سنة (N/A, Thu, 12 Nov 2026 03:00:00 -0800)
+
+- **المنتخب الأمريكي ينسحب من كأس العالم تحت 17 عاما في قطر بسبب مخاوف أمنية**: [Link](https://www.dw.com/ar/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D9%85%D9%86-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%82%D8%B7%D8%B1-%D9%84%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D9%85%D8%A7-%D8%A7%D9%84%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8/live-79926107)
+- **أمريكا تنسحب من "كأس العالم U17"**: [Link](https://www.hespress.com/%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D9%85%D9%86-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-u17-1838419.html)
+- **إنفانتينو يشيد بقطر.. وفيفا يعلق على انسحاب أمريكا من مونديال الناشئين**: [Link](https://www.aljazeera.net/sport/2026/11/12/%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84)
+
+
+### إصابة (N/A, Thu, 12 Nov 2026 01:30:00 -0800)
+
+- **هيئة بريطانية: إصابة ناقلة بمقذوف في الخليج العربي وسقوط جرحى**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%87%D9%8A%D8%A6%D8%A9-%D8%A8%D8%B1%D9%8A%D8%B7%D8%A7%D9%86%D9%8A%D8%A9-%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D8%A8%D9%85%D9%82%D8%B0%D9%88%D9%81-%D9%81%D9%8A-%D8%A7%D9%84%D8%AE%D9%84%D9%8A%D8%AC-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A-%D9%88%D8%B3%D9%82%D9%88%D8%B7-%D8%AC%D8%B1%D8%AD%D9%89-/4122559)
+- **استهداف ناقلة نفط قبالة قطر بمقذوفين**: [Link](https://www.skynewsarabia.com/middle-east/1902939-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%86%D9%81%D8%B7-%D9%82%D8%A8%D8%A7%D9%84%D8%A9-%D9%82%D8%B7%D8%B1-%D8%A8%D9%85%D9%82%D8%B0%D9%88%D9%81%D9%8A%D9%86)
+- **هيئة بحرية بريطانية: إصابات بين أفراد طاقم السفينة التي تعرضت لمقذوف في الخليج**: [Link](https://twaslnews1.twaslnews.com/7566906/)
+
+
+### sahara occidental (N/A, Thu, 12 Nov 2026 01:10:00 -0800)
+
+- **Sahara : large soutien international au plan d'autonomie marocaine à l'ONU**: [Link](https://medias24.com/2026/11/11/sahara-large-soutien-international-au-plan-dautonomie-marocaine-a-lonu-1789873/)
+- **Sahara : Hilale prête à Alger un projet de désarmement du Polisario sous l’égide de l’ONU**: [Link](https://ledesk.ma/2026/11/11/sahara-hilale-prete-a-alger-un-projet-de-desarmement-du-polisario-sous-legide-de-lonu/)
+- **Sahara marocain : la dynamique diplomatique autour du Plan d’autonomie saluée par 18 pays à l’ONU**: [Link](https://www.leconomiste.com/flash-infos/sahara-marocain-la-dynamique-diplomatique-autour-du-plan-dautonomie-saluee-par-18-pays-a-lonu/)
+
+
+### nvidia stock (N/A, Thu, 12 Nov 2026 00:10:00 -0800)
+
+- **Jensen Huang Said to Have Had Relationship With Nvidia Executive Who Reports to Him**: [Link](https://www.nytimes.com/2026/11/11/technology/jensen-huang-nvidia-affair.html)
+- **Nvidia live updates: Stock tanks after new affair allegations, board reportedly preparing to oust Jensen Huang**: [Link](https://finance.yahoo.com/technology/live/nvidia-live-updates-stock-tanks-after-new-affair-allegations-board-reportedly-preparing-to-oust-jensen-huang-130056785.html)
+- **Exclusive | Nvidia Is Preparing to Oust CEO Jensen Huang**: [Link](https://www.wsj.com/business/nvidia-is-preparing-to-oust-nvidia-ceo-jensen-huang-30f421ad)
+
+
+### بيب غوارديولا (N/A, Wed, 11 Nov 2026 23:50:00 -0800)
+
+- **بعد 6 أشهر.. تحرك مانشستر يونايتد يفتح باب عودة جوارديولا للتدريب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-6-%D8%A7%D9%94%D8%B4%D9%87%D8%B1--%D8%AA%D8%AD%D8%B1%D9%83-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%B9%D9%88%D8%AF%D8%A9-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%84%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8/blt99fab1ebc9603e9a)
+- **مفاجأة كبرى.. غوارديولا مرشح لخلافة بوتشيتينو في منتخب أمريكا**: [Link](https://www.aljazeera.net/sport/2026/11/12/%D8%BA%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A8%D9%88%D8%AA%D8%B4%D9%8A%D8%AA%D9%8A%D9%86%D9%88)
+- **بعد رفض عرضي هولندا وإيطاليا .. بيب جوارديولا المرشح الأبرز لشغل منصب جديد**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D9%8A%D8%A8-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D8%A8%D9%88%D8%AA%D8%B4%D9%8A%D8%AA%D9%8A%D9%86%D9%88-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF/blt9099c428c532fb95)
+
+
 ### المغرب (N/A, Wed, 11 Nov 2026 20:20:00 -0800)
 
 - **إصابة تربك حسابات وهبي.. المنتخب المغربي يفقد خدمات نجم خط وسطه**: [Link](https://www.aljazeera.net/sport/2026/11/11/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
