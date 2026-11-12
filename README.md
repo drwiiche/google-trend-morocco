@@ -1,3 +1,17 @@
+### المغرب (N/A, Wed, 11 Nov 2026 20:20:00 -0800)
+
+- **إصابة تربك حسابات وهبي.. المنتخب المغربي يفقد خدمات نجم خط وسطه**: [Link](https://www.aljazeera.net/sport/2026/11/11/%D8%A5%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8)
+- **أسود الأطلس يواصلون استعداداتهم بمركب محمد السادس لكرة القدم**: [Link](https://frmf.ma/articles/les-lions-de-latlas-poursuivent-leur-preparation-au-complexe-mohammed-vi-de-football)
+- **العيناوي يغادر تجمع "أسود الأطلس"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B9%D9%8A%D9%86%D8%A7%D9%88%D9%8A-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%AA%D8%AC%D9%85%D8%B9-%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-1838196.html)
+
+
+### انقطاع الكهرباء (N/A, Wed, 11 Nov 2026 11:40:00 -0800)
+
+- **انقطاع كهربائي يستنفر تقنيي البيضاء**: [Link](https://www.hespress.com/%D8%A7%D9%86%D9%82%D8%B7%D8%A7%D8%B9-%D9%83%D9%87%D8%B1%D8%A8%D8%A7%D8%A6%D9%8A-%D9%8A%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%AA%D9%82%D9%86%D9%8A%D9%8A-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1838283.html)
+- **عطب في خطوط الجهد العالي وراء انقطاع الكهرباء عن أحياء بالبيضاء والنواصر**: [Link](https://assabah.ma/962132.html)
+- **انقطاع مفاجئ للكهرباء يغرق أحياء كبرى بالدار البيضاء في الظلام وسط عواصف قوية**: [Link](https://ar.le360.ma/societe/GAYR4B2DQBB2PATTBCD7UOKBWA/)
+
+
 ### coupure électricité casablanca (N/A, Wed, 11 Nov 2026 14:40:00 -0800)
 
 - **Électricité : des coupures à Casa suite aux intempéries, les travaux de rétablissement sont en cours**: [Link](https://medias24.com/2026/11/11/electricite-des-coupures-a-casa-suite-aux-intemperies-les-travaux-de-retablissement-sont-en-cours-1790060/)
