@@ -1,3 +1,71 @@
+### italia - francia (N/A, Thu, 12 Nov 2026 12:30:00 -0800)
+
+- **¿A qué hora es el partido Italia vs Francia y cómo verlo en TV y streaming online?**: [Link](https://www.si.com/es-us/a-que-hora-es-el-partido-italia-vs-francia-y-como-verlo-en-tv-y-streaming-online-12-11-2026)
+- **😱 ¡Error garrafal de Donnarumma! Le regala el gol a una estrella del Bayern**: [Link](https://es-us.noticias.yahoo.com/deportes/error-garrafal-donnarumma-regala-gol-201100003.html)
+- **Michael Olise capitalizó un error en salida y marcó el 1-0 de Francia sobre Italia**: [Link](https://www.tycsports.com/video/uefa-nations-league/michael-olise-capitalizo-un-error-en-salida-y-marco-el-1-0-de-francia-sobre-italia-id1004520.html)
+
+
+### england vs (N/A, Thu, 12 Nov 2026 12:20:00 -0800)
+
+- **Harry Kane: How England captain's 'fairytale' came true as he closes in on appearance record**: [Link](https://www.bbc.com/sport/football/articles/c60qkdj4lp34o)
+- **Video: Kane shows off the Ballon d'Or at Wembley and breaks a record**: [Link](https://www.goal.com/en-in/news/video-kane-shows-off-the-ballon-d-or-at-wembley-and-breaks-a-record/blt7defd8f017519150)
+- **William presents framed shirt to record-breaking England star Harry Kane**: [Link](https://www.eastrennews.co.uk/news/national/26725557.william-presents-framed-shirt-record-breaking-england-star-harry-kane/)
+
+
+### chequia - españa (N/A, Thu, 12 Nov 2026 11:50:00 -0800)
+
+
+
+
+### france vs italy (N/A, Thu, 12 Nov 2026 11:40:00 -0800)
+
+- **Italy vs France: UEFA Nations League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c3rrygq0z2y2t)
+- **Italy vs France LIVE: UEFA Nations League**: [Link](https://www.aljazeera.com/sports/liveblog/2026/11/12/italy-vs-france-live-uefa-nations-league)
+- **Italy vs. France—Nations League: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/italy-vs-france-nations-league-preview-predictions-lineups-11-12-26)
+
+
+### senegal vs sudan (N/A, Thu, 12 Nov 2026 11:40:00 -0800)
+
+- **Senegal vs Sudan: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/crd93172z4vjt)
+- **AFCON 2027 qualifiers - Senegal: Patrick Vieira reveals his ambition against Sudan**: [Link](https://foot-africa.com/en/news/afcon-2027-qualifiers-senegal-patrick-vieira-reveals-his-ambition-against-sudan-1416548/)
+- **Senegal leave out Mané and Gueye as Vieira names youthful squad for Sudan qualifiers**: [Link](https://www.cafonline.com/afcon2025/news/senegal-leave-out-mane-and-gueye-as-vieira-names-youthful-squad-for-sudan-qualifiers/)
+
+
+### إنجلترا ضد كرواتيا (N/A, Thu, 12 Nov 2026 11:30:00 -0800)
+
+- **بعد الكرة الذهبية.. هاري كين يستعد لكسر رقم قياسي صمد 37 عاما**: [Link](https://www.aljazeera.net/sport/2026/11/11/%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D8%B1%D9%82%D9%85-%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7)
+- **دوري الأمم: كاين على أعتاب تحطيم الرقم القياسي لعدد المشاركات مع إنكلترا**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261111-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D9%83%D8%A7%D9%8A%D9%86-%D8%B9%D9%84%D9%89-%D8%A3%D8%B9%D8%AA%D8%A7%D8%A8-%D8%AA%D8%AD%D8%B7%D9%8A%D9%85-%D8%A7%D9%84%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D9%84%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D8%B1%D9%83%D8%A7%D8%AA-%D9%85%D8%B9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7)
+- **هاري كين غاضب من انسحابات لاعبي إنجلترا .. وتحذير شديد اللهجة من توخيل!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%83%D9%88%D9%84-%D8%A8%D8%A7%D9%84%D9%85%D8%B1-%D8%AA%D9%88%D9%85%D8%A7%D8%B3-%D8%AA%D9%88%D8%AE%D9%8A%D9%84-%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8%D8%A7%D8%AA-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-%D9%82%D8%A7%D8%A6%D9%85%D8%A9-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/bltae32983921a9fb60)
+
+
+### angleterre – croatie (N/A, Thu, 12 Nov 2026 11:20:00 -0800)
+
+- **DIRECT. Angleterre - Croatie, Ligue des nations A : match en direct**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/angleterre-croatie-live/688736)
+- **PRONOS PARIS RMC Le buteur du 12 novembre – Ligue des nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-12-novembre-ligue-des-nations_AN-202611110617.html)
+- **Ligue des nations : Multiplex à suivre en direct avec Tchéquie – Espagne en affiche**: [Link](https://www.sport.fr/football/ligue-des-nations-multiplex-a-suivre-en-direct-avec-tchequie-espagne-en-affiche-1500607.shtm)
+
+
+### england vs croatia (N/A, Thu, 12 Nov 2026 11:20:00 -0800)
+
+- **England vs Croatia LIVE: UEFA Nations League score, commentary, updates & stats**: [Link](https://www.bbc.com/sport/football/live/cr5yn1g2qe6et)
+- **Licensable picture: UEFA Nations League - Group A3 - England v Croatia**: [Link](https://www.reutersconnect.com/item/uefa-nations-league-group-a3-england-v-croatia/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkMxSjQ0MVQ)
+- **England vs Croatia: UEFA Nations League – preview, team news, predictions**: [Link](https://www.aljazeera.com/sports/2026/11/12/england-vs-croatia-uefa-nations-league-preview-team-news)
+
+
+### ظافر العابدين (N/A, Thu, 12 Nov 2026 11:20:00 -0800)
+
+- **شرائح ومسامير.. الفنان ظافر العابدين يظهر بعكازين ويوضح السبب**: [Link](https://www.alarabiya.net/culture-and-art/2026/11/12/%D8%B4%D8%B1%D8%A7%D8%A6%D8%AD-%D9%88%D9%85%D8%B3%D8%A7%D9%85%D9%8A%D8%B1-%D8%A7%D9%84%D9%81%D9%86%D8%A7%D9%86-%D8%B8%D8%A7%D9%81%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D8%A8%D8%AF%D9%8A%D9%86-%D9%8A%D8%B8%D9%87%D8%B1-%D8%A8%D8%B9%D9%83%D8%A7%D8%B2%D9%8A%D9%86-%D9%88%D9%8A%D9%88%D8%B6%D8%AD-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8)
+- **محمود قابيل: مهرجان القاهرة يمثل مكانة مصر.. وريادته تمتد إلى الشرق الأوسط**: [Link](https://www.youm7.com/story/2026/11/12/%D9%85%D8%AD%D9%85%D9%88%D8%AF-%D9%82%D8%A7%D8%A8%D9%8A%D9%84-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D9%8A%D9%85%D8%AB%D9%84-%D9%85%D9%83%D8%A7%D9%86%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D8%B1%D9%8A%D8%A7%D8%AF%D8%AA%D9%87-%D8%AA%D9%85%D8%AA%D8%AF-%D8%A5%D9%84%D9%89/7616429)
+- **لقطات من افتتاح القاهرة السينمائي| ظافر العابدين بالعكاز وهاجر الشرنوبي تستعرض حملها**: [Link](https://www.masrawy.com/arts/zoom/details/2026/11/11/3077460/%D9%84%D9%82%D8%B7%D8%A7%D8%AA-%D9%85%D9%86-%D8%A7%D9%81%D8%AA%D8%AA%D8%A7%D8%AD-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D9%8A%D9%86%D9%85%D8%A7%D8%A6%D9%8A-%D8%B8%D8%A7%D9%81%D8%B1-%D8%A7%D9%84%D8%B9%D8%A7%D8%A8%D8%AF%D9%8A%D9%86-%D8%A8%D8%A7%D9%84%D8%B9%D9%83%D8%A7%D8%B2-%D9%88%D9%87%D8%A7%D8%AC%D8%B1-%D8%A7%D9%84%D8%B4%D8%B1%D9%86%D9%88%D8%A8%D9%8A-%D8%AA%D8%B3%D8%AA%D8%B9%D8%B1%D8%B6-%D8%AD%D9%85%D9%84%D9%87%D8%A7-)
+
+
+### italie – france (N/A, Thu, 12 Nov 2026 11:00:00 -0800)
+
+- **Ligue des Nations 2027/2027 : Suivez le match de la 5e journée entre l'Italie et la France EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-italie-france_mtc20005823/live-commentary.shtml)
+- **Les compos d'Italie-France : Doué à la pointe de l'attaque des Bleus, Truffert latéral gauche, Rabiot capitaine**: [Link](https://www.lequipe.fr/Football/Actualites/Les-compos-d-italie-france-desire-doue-a-la-pointe-de-l-attaque-des-bleus-adrien-truffert-lateral-gauche/1743235)
+- **DIRECT. Italie-France: les Bleus bousculés à San Siro, Frattesi donne l'avantage à la Squadra Azzurra après le penalty manqué d'Esposito**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-nations/direct-italie-france-suivez-le-match-des-bleus-de-zidane-en-ligue-des-nations-contre-la-nazionale-en-live_LS-202611120221.html)
+
+
 ### بعثة الأمم المتحدة للاستفتاء في الصحراء الغربية (N/A, Thu, 12 Nov 2026 05:10:00 -0800)
 
 - **السنغال تدعم مبادرة الحكم الذاتي**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D8%AF%D8%B9%D9%85-%D9%85%D8%A8%D8%A7%D8%AF%D8%B1%D8%A9-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D8%A7%D9%84%D8%B0%D8%A7%D8%AA%D9%8A-1838166.html)
