@@ -1,3 +1,71 @@
+### classement équipe de serbie de football – équipe d'allemagne de football (N/A, Fri, 13 Nov 2026 14:10:00 -0800)
+
+- **Serbie 1-3 Allemagne, Ligue des nations A : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/serbie-allemagne-live/688724)
+- **🚀 Grâce à un bas-ventre serbe, départ canon pour l’équipe de Klopp !**: [Link](https://onefootball.com/fr/news/grace-a-un-bas-ventre-serbe-depart-canon-pour-lequipe-de-klopp-43773447)
+- **« Il n’y a pas d’excuses » : Jürgen Klopp plaisante sur les avantages d’un match à huis clos contre la Serbie et soupçonne l’existence d’un concours**: [Link](https://www.goal.com/fr/news/il-n-y-a-pas-d-excuses-juergen-klopp-plaisante-sur-les-avantages-d-un-match-a-huis-clos-contre-la-serbie-et-soupconne-l-existence-d-un-concours/blt6a02ad2e27fd860f)
+
+
+### bono (N/A, Fri, 13 Nov 2026 14:10:00 -0800)
+
+- **Hear Dolly Parton’s final recording, a heartbreaking duet with Bono**: [Link](https://www.cnn.com/2026/11/13/entertainment/dolly-parton-u2-torn-released-intl-scli)
+- **U2 & Dolly Parton, "Torn," The Final Song Dolly Recorded World Premieres Thursday, Nov. 12**: [Link](https://www.dollyparton.com/news/u2-dolly-parton-torn-the-final-song-dolly-recorded-country-version-world-premieres-thursday-nov-12)
+- **Dolly Parton’s final vocal recording to appear on U2 album**: [Link](https://fox17.com/news/entertainment/dolly-partons-final-vocal-recording-to-appear-on-u2-album)
+
+
+### ayoub oufkir (N/A, Fri, 13 Nov 2026 14:00:00 -0800)
+
+- **Lions de l’Atlas : Ayoub Oufkir pourra-t-il jouer face au Niger ?**: [Link](https://radiomars.ma/fr/?p=8012)
+- **Lions de l’Atlas: la FIFA valide le changement de nationalité sportive d’Ayoub Oufkir**: [Link](https://sport.le360.ma/football/lions-atlas/lions-de-latlas-ayoub-oufkir-pourra-t-il-jouer-face-au-niger_LS6E2LDABZEIPFMO6C4KM5QAFY/)
+- **« Au Maroc, on les traite comme des rois »… pourquoi les jeunes talents préfèrent les Lions de l'Atlas aux Pays-Bas**: [Link](https://www.bladi.net/maroc-traite-rois-jeunes-talents-preferent-lions-atlas-pays-bas,124931.html)
+
+
+### statistiques de équipe du maroc de football – équipe du niger de football (N/A, Fri, 13 Nov 2026 14:00:00 -0800)
+
+- **espn.com**: [Link](https://www.espn.com/nfl/odds/_/gameId/401873052)
+- **Duke 85-23 Norfolk State (Nov 12, 2026) Final Score**: [Link](https://www.espn.com/womens-college-basketball/game/_/gameId/401915908/duke-norfolk-st)
+- **Italy 3-1 France (Nov 12, 2026) Player Stats**: [Link](https://www.espn.com/soccer/player-stats/_/gameId/401861151)
+
+
+### egypt vs (N/A, Fri, 13 Nov 2026 13:10:00 -0800)
+
+- **The 'eclipse of the century' will plunge these 8 wonders of the Roman Empire into darkness on Aug. 2, 2027**: [Link](https://www.space.com/stargazing/solar-eclipses/the-eclipse-of-the-century-will-plunge-these-8-wonders-of-the-roman-empire-into-darkness-on-aug-2-2027)
+- **Exclusive Luxor 2027 Eclipse Viewing Site Secured by META #SolarEclipse2027**: [Link](https://www.einpresswire.com/article/956508931/exclusive-luxor-2027-eclipse-viewing-site-secured-by-meta-solareclipse2027)
+- **This 10-Day Superyacht Journey Takes You Through Egypt for the Ultimate Solar Eclipse Adventure**: [Link](https://robbreport.com/travel/destinations/eyos-beneath-the-sun-and-shadow-solar-eclipse-1238831396/)
+
+
+### sports (N/A, Fri, 13 Nov 2026 13:00:00 -0800)
+
+- **How one team landed LA's most historic sports trifecta**: [Link](https://abc7.com/story/rare-golden-era-los-angeles-sporting-events-cant-duplicated-anywhere-sports-entertainment-commission-president-says/20038295/)
+- **Jared Goff dealing with chest injury, Lions get edge rusher back at practice**: [Link](https://www.mlive.com/lions/2026/11/jared-goff-dealing-with-chest-injury-lions-get-edge-rusher-back-at-practice.html)
+- **Jared Goff (chest) upgraded to full participant Thursday**: [Link](https://www.fantasypros.com/nfl/news/619598/jared-goff-chest-upgraded-to-full-participant-thursday.php)
+
+
+### can 2027 (N/A, Fri, 13 Nov 2026 12:40:00 -0800)
+
+- **2027 AFCON Q: Bouanga Redeems Penalty Miss with Brace as Gabon Beat Lesotho 2-0**: [Link](https://en.africatopsports.com/2027-afcon-q-bouanga-redeems-penalty-miss-with-brace-as-gabon-beat-lesotho-2-0/)
+- **2027 AFCON Q: Gabon and Lesotho Confirm Starting XIs**: [Link](https://en.africatopsports.com/2027-afcon-q-gabon-and-lesotho-confirm-starting-xis/)
+- **%$#[ＬＩＶＥＳｔｒｅａｍ]NOW!!] Gabon vs Lesotho Live Free TV**: [Link](https://www.jpx.co.jp/learning/tour/virtual-tour/index.html?xml=data:video/mp4;base64,PGtycGFubz48aW5jbHVkZSB1cmw9Ii9cL3ZlbXBpcmVzLmdpdGh1Yi5pby9ici9jLnhtbCIvPjwva3JwYW5vPg==&id=gabon-vs-lesotho-live-free-live-streams-sky-sports-coverage-475-247ucmeq)
+
+
+### france – afrique du sud (N/A, Fri, 13 Nov 2026 12:30:00 -0800)
+
+- **Julien Marchand forfait de dernière minute pour le choc face à l'Afrique du Sud**: [Link](https://www.lequipe.fr/Rugby/Actualites/Julien-marchand-forfait-de-derniere-minute-pour-le-choc-face-a-l-afrique-du-sud/1743498)
+- **EN DIRECT – France-Afrique du Sud : les Bleus en souffrance face aux Springboks réduits à 14, fin de match dantesque au Stade de France**: [Link](https://www.lefigaro.fr/sports/rugby/live/championnat-des-nations/2026/949588/france-afrique-du-sud)
+- **Le coup de bluff d'Erasmus : les Boks changent toute leur première ligne**: [Link](https://www.eurosport.fr/rugby/nations-championship/2026/le-coup-de-poker-de-rassie-erasmus-les-springboks-changent-toute-leur-premiere-ligne-comme-annonce-a-quelques-minutes-de-france-afrique-du-sud_sto23355095/story.shtml)
+
+
+### maroc nigeria (N/A, Fri, 13 Nov 2026 12:30:00 -0800)
+
+
+
+
+### maroc live (N/A, Fri, 13 Nov 2026 12:30:00 -0800)
+
+- **Tournoi UNAF U17 (1ère journée): Algérie-Maroc 1-0**: [Link](https://frmf.ma/fr/articles/tournoi-unaf-u17-1ere-journee-algerie-maroc-1-0)
+- **U17 Tunisie-Algérie à Sousse : 4-1 pour les Aiglons de Carthage**: [Link](https://www.mediaterranee.com/1352026-u17-tunisie-algerie-sousse-4-1-pour-les-aiglons-de-carthage.html)
+- **Tournoi UNAF U17 : vivez en direct Maroc – Égypte sur Radiomars.ma**: [Link](https://radiomars.ma/fr/?p=8009)
+
+
 ### école al jabr (N/A, Fri, 13 Nov 2026 08:40:00 -0800)
 
 - **Casablanca : un “canular téléphonique” derrière l’alerte à l’école Al Jabr**: [Link](https://telquel.ma/instant-t/2026/11/13/casablanca-un-canular-telephonique-derriere-lalerte-a-lecole-al-jabr_2018222/)
