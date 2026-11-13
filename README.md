@@ -1,3 +1,70 @@
+### école al jabr (N/A, Fri, 13 Nov 2026 08:40:00 -0800)
+
+- **Casablanca : un “canular téléphonique” derrière l’alerte à l’école Al Jabr**: [Link](https://telquel.ma/instant-t/2026/11/13/casablanca-un-canular-telephonique-derriere-lalerte-a-lecole-al-jabr_2018222/)
+- **Casablanca: fausse alerte à l’école Al Jabr, le calme de retour**: [Link](https://fr.le360.ma/societe/casablanca-fausse-alerte-a-lecole-al-jabr-le-calme-de-retour_3W672OTG2NBKZLUSZ3ZIHNPI24/)
+- **Casablanca : frayeur dans une école de la mission française après une fausse alerte**: [Link](https://www.lesiteinfo.com/maroc/686838-casablanca-frayeur-dans-une-ecole-de-la-mission-francaise-apres-une-fausse-alerte.html)
+
+
+### cap-vert – liberia (N/A, Fri, 13 Nov 2026 08:10:00 -0800)
+
+- **Elim. CAN 2027 : Ryan Mendes conduit l’attaque du Cap-Vert face au Liberia**: [Link](https://africatopsports.com/afrique-football/elim-can-2027-ryan-mendes-conduit-lattaque-du-cap-vert-face-au-liberia/)
+- **Elim. CAN 2027 : où suivre le match Cap-Vert vs Liberia en direct et en streaming ?**: [Link](https://africatopsports.com/afrique-football/elim-can-2027-ou-suivre-le-match-cap-vert-liberia-en-direct-et-en-streaming/)
+
+
+### أيوب أوفقير (N/A, Fri, 13 Nov 2026 08:10:00 -0800)
+
+- **على لسان تشافي.. تصريح غامض يفتح باب الرحيل من هولندا إلى المغرب**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D9%84%D9%89-%D9%84%D8%B3%D8%A7%D9%86-%D8%AA%D8%B4%D8%A7%D9%81%D9%8A--%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D8%BA%D8%A7%D9%85%D8%B6-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84-%D9%85%D9%86-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D8%A7%D9%95%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/blt9f4c3f9d7432d335)
+- **"فيفا" يؤخر الظهور الأول لأوفقير رفقة الأسود**: [Link](https://sport.rue20.com/%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%A4%D8%AE%D8%B1-%D8%A7%D9%84%D8%B8%D9%87%D9%88%D8%B1-%D8%A7%D9%84%D8%A3%D9%88%D9%84-%D9%84%D8%A3%D9%88%D9%81%D9%82%D9%8A%D8%B1-%D8%B1%D9%81%D9%82%D8%A9-%D8%A7.html)
+- **أوفقير يغضب الهولنديين**: [Link](https://assabah.ma/961619.html)
+
+
+### gabon – lesotho (N/A, Fri, 13 Nov 2026 08:00:00 -0800)
+
+- **Gabon vs Lesotho LIVE on beIN SPORTS | AFCON 2027**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations-qualification/articles/how-and-where-to-watch-gabon-vs-lesotho-live-on-bein-sports-2026-11-12)
+- **Watch Gabon vs. Lesotho live today: Who is broadcasting the match on TV and via live stream?**: [Link](https://www.goal.com/en-ca/news/live-stream-online-tv-where-to-watch-gabon-v-lesotho/blt99e3cb54688e0c0e)
+- **Gabon-Lesotho, AFCON 2027: match on Friday 13 Nov. at 16:00 GMT**: [Link](https://sportnewsafrica.com/en/alerts/afcon-2027-gabon-to-host-lesotho-on-friday-at-1600-gmt/)
+
+
+### tunisie – libye (N/A, Fri, 13 Nov 2026 07:50:00 -0800)
+
+
+
+
+### نادي المغرب التطواني (N/A, Fri, 13 Nov 2026 06:10:00 -0800)
+
+- **المغرب التطواني يتوصل إلى تسوية ودية مع المالي يوسف طراوري**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%8A%D8%AA%D9%88%D8%B5%D9%84-%D8%A5%D9%84%D9%89-%D8%AA%D8%B3%D9%88%D9%8A%D8%A9-%D9%88%D8%AF%D9%8A%D8%A9-%D9%85/)
+- **المغرب التطواني ينهي نزاعه مع طراوري**: [Link](https://www.hesport.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%AA%D8%B7%D9%88%D8%A7%D9%86%D9%8A-%D9%8A%D9%86%D9%87%D9%8A-%D9%86%D8%B2%D8%A7%D8%B9%D9%87-%D9%85%D8%B9-%D8%B7%D8%B1%D8%A7%D9%88%D8%B1%D9%8A-460725.html)
+- **حرب البلاغات تستعر بتطوان**: [Link](https://assabah.ma/961253.html)
+
+
+### comores – congo (N/A, Fri, 13 Nov 2026 06:00:00 -0800)
+
+- **Elim. CAN 2027 : les compositions officielles du match Comores – Congo !**: [Link](https://africatopsports.com/afrique-football/elim-can-2027-les-compositions-officielles-du-match-comores-congo/)
+- **Qualifications pour la CAN 2027. L'immense surprise éthiopienne, le Burundi au courage, le Congo vaillant... Les premiers résultats de la journée**: [Link](https://www.africaradio.com/actualite-117362-qualifications-pour-la-can-2027-l-immense-surprise-ethiopienne-le-burundi-au-courage-le-congo-vaillant-les-premiers-resultats-de-la-journee)
+- **Football | Comores – Congo : Quelle chaîne, quel streaming, où voir le match en France ?**: [Link](https://www.hommedumatch.fr/football-comores-congo-quelle-chaine-quel-streaming-ou-voir-le-match-en-france-2951496/)
+
+
+### morocco vs (N/A, Fri, 13 Nov 2026 05:20:00 -0800)
+
+- **Morocco vs Niger: Kickoff time, TV channels and where to watch tonight**: [Link](https://en.hespress.com/149081-morocco-vs-niger-kickoff-time-tv-channels-and-where-to-watch-tonight.html)
+- **Targhalline: 'Playing in Casablanca gives us a great feeling'**: [Link](https://www.elbotola.com/en/article/2026-11-12-22-36-302.html)
+- **RB Leipzig says Neil El Aynaoui’s calf injury is «nothing serious»**: [Link](https://en.yabiladi.com/articles/details/207574/leipzig-says-neil-aynaoui-s-calf.html)
+
+
+### أشرف حكيمي (N/A, Fri, 13 Nov 2026 05:10:00 -0800)
+
+- **تصريح قوي.. جواد الزايري يقطع الشك باليقين بخصوص الفائز بالكرة الذهبية الإفريقية**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B2%D8%A7%D9%8A%D8%B1%D9%8A-%D9%8A%D8%B6%D8%B9-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D9%81%D9%8A-%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D9%8A%D9%86-%D9%84%D8%A7/)
+- **شريف عبد القادر: حكيمي الأحق بالكرة الذهبية الإفريقية… وأخشى تلاعب الكاف بالجائزة**: [Link](https://kifache.com/%D8%B4%D8%B1%D9%8A%D9%81-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%82%D8%A7%D8%AF%D8%B1-%D8%AD%D9%83%D9%8A%D9%85%D9%8A-%D8%A7%D9%84%D8%A3%D8%AD%D9%82-%D8%A8%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B0/)
+- **"كنال بلوس" أعطوا حكيمي الكرة الذهبية من الآن؟**: [Link](https://inews.ma/news/8785607)
+
+
+### مدرسة (N/A, Fri, 13 Nov 2026 04:30:00 -0800)
+
+- **"إشعار كاذب بقنبلة" يستنفر الأمنيين**: [Link](https://www.hespress.com/%D8%A5%D8%B4%D8%B9%D8%A7%D8%B1-%D9%83%D8%A7%D8%B0%D8%A8-%D8%A8%D9%82%D9%86%D8%A8%D9%84%D8%A9-%D9%8A%D8%B3%D8%AA%D9%86%D9%81%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D9%86%D9%8A%D9%8A%D9%86-1839267.html)
+- **إخلاء مؤسسة بلوازيس بعد تهديد أمني استنفر السلطات**: [Link](https://febrayer.com/1168768.html)
+- **استنفار أمني يطوق مدرسة «الجبر» بالدار البيضاء إثر إنذار كاذب**: [Link](https://ar.le360.ma/societe/WEPOZBSFWBC3NLN2A2YOXS64VA/)
+
+
 ### الجامعة الملكية المغربية لكرة القدم (N/A, Fri, 13 Nov 2026 00:10:00 -0800)
 
 - **الجامعة الملكية المغربية لكرة القدم تكرم مجموعة من اللاعبين الدوليين السابقين**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA%D9%83%D8%B1%D9%85-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82%D9%8A%D9%86)
