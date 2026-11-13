@@ -1,3 +1,71 @@
+### الجامعة الملكية المغربية لكرة القدم (N/A, Fri, 13 Nov 2026 00:10:00 -0800)
+
+- **الجامعة الملكية المغربية لكرة القدم تكرم مجموعة من اللاعبين الدوليين السابقين**: [Link](https://frmf.ma/articles/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AA%D9%83%D8%B1%D9%85-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A%D9%8A%D9%86-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82%D9%8A%D9%86)
+- **"الجامعة" تكرم لاعبين دوليين سابقين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%AA%D9%83%D8%B1%D9%85-%D9%84%D8%A7%D8%B9%D8%A8%D9%8A%D9%86-%D8%AF%D9%88%D9%84%D9%8A%D9%8A%D9%86-%D8%B3%D8%A7%D8%A8%D9%82%D9%8A%D9%86-2-1838906.html)
+- **الجامعة تكرم أجيالا من نجوم المنتخب الوطني السابقين**: [Link](https://assabah.ma/962496.html)
+
+
+### الأحوال الجوية: طنجة (N/A, Thu, 12 Nov 2026 23:10:00 -0800)
+
+- **العاصفة "تشارلز" تضرب المغرب والسلطات تعلق الدراسة في 12 إقليما**: [Link](https://www.aljazeera.net/news/2026/11/12/%D8%A7%D9%84%D8%B9%D8%A7%D8%B5%D9%81%D8%A9-%D8%AA%D8%B4%D8%A7%D8%B1%D9%84%D8%B2-%D8%AA%D8%B6%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A7%D9%84%D8%B3%D9%84%D8%B7%D8%A7%D8%AA)
+- **بعد توقف اضطراري .. ميناء طنجة المتوسط يستأنف الملاحة البحرية العادية**: [Link](https://www.hespress.com/%D8%A8%D8%B9%D8%AF-%D8%AA%D9%88%D9%82%D9%81-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%B1%D9%8A-%D9%85%D9%8A%D9%86%D8%A7%D8%A1-%D8%B7%D9%86%D8%AC%D8%A9-%D8%A7%D9%84%D9%85%D8%AA%D9%88%D8%B3%D8%B7-%D9%8A-1838757.html)
+- **طنجة تحت رحمة عاصفة ورياح قوية.. سيول تجتاح الشوارع وتدخلات عاجلة لاحتواء الوضع**: [Link](https://ar.le360.ma/societe/NXN57G75ENBZ5DCE4B6MHKBJP4/)
+
+
+### طقس طنجة (N/A, Thu, 12 Nov 2026 23:00:00 -0800)
+
+- **توقعات طقس اليوم الجمعة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-98-1838786.html)
+- **أمطار مرتقبة بالشمال واستقرار جوي بباقي المناطق**: [Link](https://assabah.ma/962352.html)
+- **زخات مطرية وأجواء غائمة في عدد من ربوع المملكة في توقعات طقس الجمعة**: [Link](https://inews.ma/news/8791273)
+
+
+### عقوبة (N/A, Thu, 12 Nov 2026 22:30:00 -0800)
+
+
+
+
+### direction générale de la sécurité des systèmes d'information (N/A, Thu, 12 Nov 2026 22:30:00 -0800)
+
+- **La DGSSI déclenche une alerte critique sur une vague de cyberattaques au Maroc**: [Link](https://fr.hespress.com/496251-la-dgssi-declenche-une-alerte-critique-sur-une-vague-de-cyberattaques-au-maroc.html)
+- **Cyberattaques : la DGSSI alerte sur une menace critique visant les prestataires informatiques et leurs clients**: [Link](https://lematin.ma/nation/dgssi-une-menace-vise-les-prestataires-informatiques-et-leurs-clients/375424)
+- **Maroc : la DGSSI alerte après une cyberattaque visant 48 organisations à l’international**: [Link](https://lanouvelletribune.info/2026/11/maroc-la-dgssi-alerte-apres-une-cyberattaque-visant-48-organisations-a-linternational/)
+
+
+### إيران (N/A, Thu, 12 Nov 2026 21:40:00 -0800)
+
+- **لا تصعيد ولا اتفاق.. ترمب يختار طريقا ثالثا لمواجهة إيران**: [Link](https://www.aljazeera.net/news/2026/11/11/%D8%AA%D8%B1%D9%85%D8%A8-%D9%88%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **ترامب: لا نحتاج إلى اتفاق مع إيران**: [Link](https://www.skynewsarabia.com/world/1904404-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%86%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **ترامب: نريد تحقيق "نصر كامل" على إيران**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%86%D8%B1%D9%8A%D8%AF-%D8%AA%D8%AD%D9%82%D9%8A%D9%82-%D9%86%D8%B5%D8%B1-%D9%83%D8%A7%D9%85%D9%84-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86/4121593)
+
+
+### منتخب إنجلترا لكرة القدم (N/A, Thu, 12 Nov 2026 21:30:00 -0800)
+
+- **هاري كين يتحدى إسبانيا بتصريحات جريئة قبل معركة الصدارة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%8A%D8%AA%D8%AD%D8%AF%D9%89-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD%D8%A7%D8%AA-%D8%AC%D8%B1%D9%8A%D9%8A%D9%94%D8%A9-%D9%82%D8%A8%D9%84-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9/blt463cec8aa30491d0)
+- **كين: مودريتش يلهمني.. وربما أستمر في الملاعب بعد الأربعين**: [Link](https://www.aljazeera.net/sport/2026/11/13/%D9%83%D9%8A%D9%86-%D9%85%D9%88%D8%AF%D8%B1%D9%8A%D8%AA%D8%B4-%D9%8A%D9%84%D9%87%D9%85%D9%86%D9%8A-%D9%88%D8%B1%D8%A8%D9%85%D8%A7-%D8%A3%D8%B3%D8%AA%D9%85%D8%B1-%D9%81%D9%8A)
+- **قدم.. إنجلترا تتأهل لربع نهائي دوري الأمم الأوروبية وإيطاليا تهزم فرنسا**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%AA%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D8%B1%D8%A8%D8%B9-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D9%88%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%AA%D9%87%D8%B2%D9%85-%D9%81%D8%B1%D9%86%D8%B3%D8%A7/4123581)
+
+
+### bourse des valeurs de casablanca (N/A, Thu, 12 Nov 2026 21:30:00 -0800)
+
+- **Bourse de Casablanca : Cinq valeurs à fort potentiel selon BKGR**: [Link](https://boursenews.ma/article/marches/bourse-casablanca-cinq-valeurs-fort-potentiel-bkgr-novembre-2026)
+- **Bourse de Casablanca : le MASI quasi stable à 17.428,90 points**: [Link](https://medias24.com/2026/11/12/bourse-de-casablanca-le-masi-quasi-stable-a-17-42890-points-1790560/)
+- **Pétrole, Iran, midterms : les ressorts du rebond de la Bourse de Casablanca**: [Link](https://mobile.telquel.ma/2026/11/10/petrole-iran-midterms-les-ressorts-du-rebond-de-la-bourse-de-casablanca_2017590)
+
+
+### منتخب المغرب لكرة القدم (N/A, Thu, 12 Nov 2026 21:00:00 -0800)
+
+- **المنتخب الوطني لكرة القدم داخل القاعة لأقل من 18 سنة يتوج بالميدالية البرونزية في الألعاب الأولمبية للشباب دكار 2026**: [Link](https://frmf.ma/articles/lequipe-nationale-u18-de-futsal-remporte-la-medaille-de-bronze-aux-jeux-olympiques-de-la-jeunesse-dakar-2026)
+- **كويري يثمن إنجاز "شباب الفوتسال"**: [Link](https://www.hespress.com/%D9%83%D9%88%D9%8A%D8%B1%D9%8A-%D9%8A%D8%AB%D9%85%D9%86-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-%D8%B4%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D9%81%D9%88%D8%AA%D8%B3%D8%A7%D9%84-1838991.html)
+- **منتخب الفوتسال لأقل من 18 يتوج بالبرونزية في الألعاب الأولمبية للشباب دكار**: [Link](https://assabah.ma/962479.html)
+
+
+### gadi eisenkot (N/A, Thu, 12 Nov 2026 17:50:00 -0800)
+
+- **'They will use you and throw you away': Netanyahu warns haredi parties away from Eisenkot-led bloc**: [Link](https://www.jpost.com/israel-news/politics-and-diplomacy/article-914799)
+- **Editorial | New Knesset's First Task: Reverse the assault on the judiciary**: [Link](https://www.haaretz.com/opinion/editorial/2026-11-12/ty-article-opinion/the-first-task-of-israels-new-knesset-erase-the-levin-rothman-legacy/000001a1-cc4b-d1ce-a9a3-ec5b78240000)
+- **Video. Protesters outside Israel’s Knesset oppose Arab lawmakers, call for new elections**: [Link](https://www.euronews.com/video/2026/11/11/protesters-outside-israels-knesset-oppose-arab-lawmakers-call-for-new-elections)
+
+
 ### طائرة نقل عسكرية (N/A, Thu, 12 Nov 2026 16:00:00 -0800)
 
 - **ألمانيا رخصت بتصدير معدات عسكرية للمغرب بقيمة 19,27 مليون يورو في 2025**: [Link](https://ar.telquel.ma/%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7/)
