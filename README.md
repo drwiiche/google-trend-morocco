@@ -1,3 +1,31 @@
+### طائرة نقل عسكرية (N/A, Thu, 12 Nov 2026 16:00:00 -0800)
+
+- **ألمانيا رخصت بتصدير معدات عسكرية للمغرب بقيمة 19,27 مليون يورو في 2025**: [Link](https://ar.telquel.ma/%D8%B7%D8%A7%D8%A6%D8%B1%D8%A7%D8%AA-%D8%B9%D8%B3%D9%83%D8%B1%D9%8A%D8%A9-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A9-%D9%84%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7/)
+- **القوات الجوية الملكية المغربية تتسلم طائرة «إيرباص C295» ثانية لتعزيز قدرات النقل العسكري**: [Link](https://marrakechpost.com/2026/11/11/%D8%A7%D9%84%D9%82%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B3%D9%84%D9%85/)
+- **المغرب يعزز النقل العسكري بطائرة إيرباص ثانية**: [Link](https://aljarida24.ma/p/actualites/362654/)
+
+
+### كأس الأمم الإفريقية (N/A, Thu, 12 Nov 2026 13:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة مصر ومالاوي في تصفيات كأس أمم أفريقيا 2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%B5%D8%B1-%D9%88%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltb645d33d312e33e6)
+- **بالصور.. صلاح يلتحق بمعسكر منتخب مصر وعلي ماهر في مقدمة مستقبليه**: [Link](https://www.aljazeera.net/sport/2026/11/10/%D8%A8%D8%A7%D9%84%D8%B5%D9%88%D8%B1-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%84%D8%AA%D8%AD%D9%82-%D8%A8%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1)
+- **ضياء السيد لـwinwin: أحذر علي ماهر من هذا القرار أمام مالاوي**: [Link](https://www.winwin.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B6%D9%8A%D8%A7%D8%A1-%D8%A7%D9%84%D8%B3%D9%8A%D8%AF-%D9%84%D9%80winwin-%D8%A3%D8%AD%D8%B0%D8%B1-%D8%B9%D9%84%D9%8A-%D9%85%D8%A7%D9%87%D8%B1-%D9%85%D9%86-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A)
+
+
+### spain (N/A, Thu, 12 Nov 2026 13:40:00 -0800)
+
+- **General strike over housing brings out tens of thousands in Spain**: [Link](https://en.hespress.com/148978-general-strike-over-housing-brings-out-tens-of-thousands-in-spain.html)
+- **Clashes erupt in Barcelona after thousands join Spain general strike**: [Link](https://www.bbc.com/news/articles/cwvg25nypmrvo)
+- **Millions of Spaniards stage first general strike in 14 years as anger rages over housing**: [Link](https://www.cnn.com/2026/11/11/europe/spain-strike-housing-latam-intl)
+
+
+### francesco pio esposito (N/A, Thu, 12 Nov 2026 13:30:00 -0800)
+
+- **Una splendida Italia ribalta la Francia: Pio show, è 3-1. Per i quarti di Nations basta non perdere in Belgio**: [Link](https://www.gazzetta.it/Calcio/Nazionale/12-11-2026/italia-francia-live-risultato-e-gol-in-diretta-nations-league.shtml)
+- **Italia-Francia di Nations League in diretta 3-1: apoteosi azzurra, la doppietta di Pio Esposito e Frattesi ribaltano i Bleus. Mancini ora è primo**: [Link](https://www.corriere.it/sport/calcio/nations-league/diretta-live/26_novembre_12/italia-francia-diretta-risultato.shtml)
+- **Nations League: Mancini,'c'è voglia di riscatto, arriveremo al traguardo'**: [Link](https://www.ilnordest.it/italia-ed-esteri/nations-league-mancini-ce-voglia-di-riscatto-arriveremo-al-traguardo-igebht8v)
+
+
 ### italia - francia (N/A, Thu, 12 Nov 2026 12:30:00 -0800)
 
 - **¿A qué hora es el partido Italia vs Francia y cómo verlo en TV y streaming online?**: [Link](https://www.si.com/es-us/a-que-hora-es-el-partido-italia-vs-francia-y-como-verlo-en-tv-y-streaming-online-12-11-2026)
