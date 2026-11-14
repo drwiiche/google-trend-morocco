@@ -1,3 +1,73 @@
+### ufc (N/A, Sat, 14 Nov 2026 15:20:00 -0800)
+
+- **Prelim Results | Polymarket UFC 334: Gane vs Hokit**: [Link](https://www.ufc.com/news/polymarket-ufc-334-gane-vs-hokit-prelim-results)
+- **UFC 334: Live results, analysis for Gane-Hokit, Harrison-Nunes**: [Link](https://www.espn.com/mma/story/_/id/50444358/ufc-334-live-results-analysis-ciryl-gane-josh-hokit)
+- **UFC 334: Fight card, date, odds and complete guide as Ciryl Gane takes on Josh Hokit in main event**: [Link](https://www.cbssports.com/ufc/news/ufc-334-fight-card-date-odds-location-guide/)
+
+
+### haiti vs usa (N/A, Sat, 14 Nov 2026 15:10:00 -0800)
+
+- **Haiti vs. USA, Jamaica vs. Mexico headline Nations League Quarterfinals doubleheader**: [Link](https://www.concacaf.com/competitions/nations-league/news/haiti-vs-usa-jamaica-vs-mexico-headline-nations-league-quarterfinals-doubleheader)
+- **Live updates: Mauricio Pochettino begins farewell tour as USMNT takes on Haiti**: [Link](https://www.espn.ph/football/story/_/id/50435228/pochettino-farewell-usmnt-haiti-live-updates)
+- **Why Haiti hosting the US in Miami feels like a homecoming**: [Link](https://www.independent.co.uk/news/haiti-portauprince-fort-lauderdale-homestead-university-of-miami-b3084744.html)
+
+
+### love is blind habibi season 2 (N/A, Sat, 14 Nov 2026 15:10:00 -0800)
+
+- **Who are the 27 cast members of Love is Blind Habibi season two?**: [Link](https://www.thenationalnews.com/arts-culture/film-tv/2026/11/12/who-are-the-27-cast-members-of-love-is-blind-habibi-season-two/)
+- **Love Is Blind Habibi season two reunion: When it could drop on Netflix**: [Link](https://thetab.com/realityshrine/2026/11/13/love-is-blind-habibi-season-two-reunion-when-it-could-drop-on-netflix/)
+- **Love Is Blind, Habibi Season 2 — Netflix puts 27 singles in the pods after one wedding**: [Link](https://www.martincid.com/tv-shows/love-is-blind-habibi-season-2/)
+
+
+### fifa (N/A, Sat, 14 Nov 2026 14:00:00 -0800)
+
+- **A global boost: Morocco accepts Brazil's gift and awaits Portugal's fall**: [Link](https://www.goal.com/en/news/portugal-s-fall-the-secret-word-morocco-cements-its-global-standing/blt39940b68c6bcc8f8)
+- **World-class boost: Morocco accepts Brazil's gift and awaits Portugal's fall**: [Link](https://www.goal.com/en/news/a-global-boost-morocco-accepts-brazil-s-gift-and-awaits-portugal-s-fall/blt39940b68c6bcc8f8)
+- **Morocco climbs to 6th globally in provisional FIFA rankings**: [Link](https://www.elbotola.com/en/article/2026-11-14-12-32-194.html)
+
+
+### السنغال (N/A, Sat, 14 Nov 2026 13:40:00 -0800)
+
+- **السنغال وكوت ديفوار والكاميرون وبنين تعزز فرصها في التأهل لكأس الأمم الأفريقية**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D9%83%D9%88%D8%AA-%D8%AF%D9%8A%D9%81%D9%88%D8%A7%D8%B1-%D9%88%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D9%88%D9%86-%D9%88%D8%A8%D9%86%D9%8A%D9%86-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%81%D8%B1%D8%B5%D9%87%D8%A7-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D9%84%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/)
+- **فوضى تنظيمية في مباراة السنغال والسودان تدفع الاتحاد السنغالي للاعتذار الرسمي**: [Link](https://radiomars.ma/%D9%81%D9%88%D8%B6%D9%89-%D8%AA%D9%86%D8%B8%D9%8A%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B3%D9%88%D8%AF/)
+- **بالفيديو.. أسود السنغال تلتهم السودان في تصفيات الكان**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D8%A7%D9%94%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D8%AA%D9%84%D8%AA%D9%87%D9%85-%D8%A7%D9%84%D8%B3%D9%88%D8%AF%D8%A7%D9%86-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D8%A7%D9%86/blt92acadc770e3e9bd)
+
+
+### fifa classement (N/A, Sat, 14 Nov 2026 13:20:00 -0800)
+
+- **Classement FIFA : les Lions de l’Atlas retrouvent le Top 6 mondial après la chute du Brésil**: [Link](https://radiomars.ma/fr/?p=8068)
+- **Le Maroc grimpe à la cinquième place mondiale après la défaite du Portugal face au Danemark**: [Link](https://fr.hespress.com/496487-le-maroc-grimpe-a-la-cinquieme-place-mondiale-apres-la-defaite-du-portugal-face-au-danemark.html)
+- **L'équipe nationale marocaine monte à la cinquième place mondiale pour la première fois de son histoire**: [Link](https://www.elbotola.com/fr/article/2026-11-14-22-31-900.html)
+
+
+### portugal national football team (N/A, Sat, 14 Nov 2026 13:20:00 -0800)
+
+- **In Leão's absence: Portugal announce heir to Cristiano Ronaldo's shirt**: [Link](https://www.goal.com/en/news/in-leao-s-absence-portugal-announce-heir-to-cristiano-ronaldo-s-shirt/blt87fe7e529e9b953d)
+- **Cristiano Ronaldo appears to skip Portugal’s tribute as Al Nassr shares images of him training in Saudi Arabia**: [Link](https://worldsoccertalk.com/news/cristiano-ronaldo-appears-to-skip-portugals-tribute-as-al-nassr-shares-images-of-him-training-in-saudi-arabia/)
+- **👑 Portugal offer touching CR7 tribute ahead of Denmark clash 👕**: [Link](https://onefootball.com/en/news/portugal-offer-touching-cr7-tribute-ahead-of-denmark-clash-43777907)
+
+
+### portugal fc (N/A, Sat, 14 Nov 2026 13:10:00 -0800)
+
+- **Ema Gonçalves destaca entrega do FC Porto: “Fizemos o que tínhamos a fazer, demos tudo até ao fim e fomos Porto”**: [Link](https://onefootball.com/pt-br/noticias/ema-goncalves-destaca-entrega-do-fc-porto-fizemos-o-que-tinhamos-a-fazer-demos-tudo-ate-ao-fim-e-fomos-porto-43777354)
+- **Taça de Portugal feminina: FC Porto goleia com hat-trick de ex-PSG**: [Link](https://tvi.iol.pt/noticias/feminino/taca-de-portugal-feminino/taca-de-portugal-feminina-fc-porto-goleia-com-hat-trick-de-ex-psg)
+- **FC Porto confirma favoritismo e segue em frente: eis os resultados do dia na Taça de Portugal Feminina**: [Link](https://bolanarede.pt/nacional/futebol-feminino-nacional/fc-porto-confirma-favoritismo-e-segue-em-frente-eis-os-resultados-do-dia-na-taca-de-portugal-feminina/)
+
+
+### prix (N/A, Sat, 14 Nov 2026 13:00:00 -0800)
+
+- **Carburants : vers une baisse des prix dès ce lundi, selon Fouzi Lekjaa**: [Link](https://www.lesiteinfo.com/maroc/686892-carburants-vers-une-baisse-des-prix-des-ce-lundi-selon-fouzi-lekjaa.html)
+- **Carburants : suspendre la TIC deux mois coûterait 3,5 MMDH, avec un effet direct à la pompe**: [Link](https://medias24.com/2026/11/10/carburants-suspendre-la-tic-deux-mois-couterait-35-mmdh-avec-un-effet-direct-a-la-pompe-1789166/)
+- **La BAD chiffre entre 40 et 50 milliards de dirhams le surcoût énergétique marocain en 2026**: [Link](https://barlamane.com/fr/la-bad-chiffre-entre-40-et-50-milliards-de-dirhams-le-surcout-energetique-marocain-en-2026/)
+
+
+### suède – bosnie-herzégovine (N/A, Sat, 14 Nov 2026 12:50:00 -0800)
+
+- **Pronostic Suède - Bosnie-Herzégovine, Ligue des Nations - 14/11/2026**: [Link](https://www.sportytrader.com/pronostics/suede-bosnie-herzegovine-387131/)
+- **PRONOS PARIS RMC Le buteur du jour du 14 novembre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-buteur-du-jour-du-14-novembre-ligue-des-nations_AN-202611130825.html)
+- **Football | Suède – Bosnie : Quelle chaîne, quel streaming, où voir le match en France ?**: [Link](https://www.hommedumatch.fr/football-suede-bosnie-quelle-chaine-quel-streaming-ou-voir-le-match-en-france-2951710/)
+
+
 ### ساديو ماني (N/A, Sat, 14 Nov 2026 12:00:00 -0800)
 
 - **رفض تنازلاته الكبيرة.. النصر السعودي يطرد ساديو ماني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%81%D8%B6-%D8%AA%D9%86%D8%A7%D8%B2%D9%84%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1%D8%A9--%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D8%B7%D8%B1%D8%AF-%D8%B3%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D9%86%D9%8A/bltc4ed46acabdc5b2a)
