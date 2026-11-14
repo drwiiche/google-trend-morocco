@@ -1,3 +1,52 @@
+### twitter (N/A, Fri, 13 Nov 2026 17:50:00 -0800)
+
+- **Intel intercepts implicating Jensen Huang in affair sparked classified Rubio memo**: [Link](https://www.cnn.com/2026/11/13/politics/jensen-huang-us-intelligence)
+- **EXCLUSIVE: Ex-Nvidia CEO misled top lawyer on affair with Chinese businesswoman, sources say**: [Link](https://www.reuters.com/world/china/ex-nvidia-ceo-misled-top-lawyer-affair-with-chinese-businesswoman-sources-say-2026-11-14/)
+- **NVIDIA Announces CEO Transition**: [Link](https://nvidianews.nvidia.com/news/nvidia-announces-ceo-transition)
+
+
+### اعتقال (N/A, Fri, 13 Nov 2026 15:50:00 -0800)
+
+- **تهديد وهمي بتفجير مدرسة يورط تلميذا**: [Link](https://www.hespress.com/%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D9%88%D9%87%D9%85%D9%8A-%D8%A8%D8%AA%D9%81%D8%AC%D9%8A%D8%B1-%D9%85%D8%AF%D8%B1%D8%B3%D8%A9-%D9%8A%D9%88%D8%B1%D8%B7-%D8%AA%D9%84%D9%85%D9%8A%D8%B0%D8%A7-1839329.html)
+- **بلاغ كاذب عن تفجير سيارة يورط تلميذا قاصرا**: [Link](https://assabah.ma/962805.html)
+- **استنفار أمني يطوق مدرسة «الجبر» بالدار البيضاء إثر إنذار كاذب**: [Link](https://ar.le360.ma/societe/WEPOZBSFWBC3NLN2A2YOXS64VA/)
+
+
+### الأرجنتين ضد أوروغواي (N/A, Fri, 13 Nov 2026 14:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الأرجنتين وأوروجواي الودية 2026؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%AC%D9%88%D8%A7%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-2026-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blted7c8cfdb2a89e55)
+- **نتيجة وأهداف مباراة الأرجنتين وأوروغواي**: [Link](https://www.eremnews.com/sports/bbwnyt4)
+- **بث مباشر.. مشاهدة مباراة منتخب الأرجنتين ضد أوروغواي الودية الآن مجانًا**: [Link](https://twaslnews1.twaslnews.com/7651847/)
+
+
+### argentine – uruguay (N/A, Fri, 13 Nov 2026 14:20:00 -0800)
+
+- **Licensable picture: International Friendly - Argentina v Uruguay**: [Link](https://www.reutersconnect.com/item/international-friendly-argentina-v-uruguay/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkUwM1dUVkY)
+- **Soccer Streams!Soccer:Uruguay vs Argentina LIVE Streams ON TV CHANNEL**: [Link](https://www.goldderby.com/topic/soccer-streamssocceruruguay-vs-argentina-live-streams-on-tv-channel/)
+- **Why Is Lionel Messi Not Playing for Argentina vs. Uruguay?**: [Link](https://sports.yahoo.com/articles/why-lionel-messi-not-playing-221500404.html)
+
+
+### classement équipe d'égypte de football – équipe du malawi de football (N/A, Fri, 13 Nov 2026 14:20:00 -0800)
+
+- **Salah breaks Egypt scoring record as Tunisia lose to Libya**: [Link](https://www.reuters.com/sports/soccer/salah-breaks-egypt-scoring-record-tunisia-lose-libya-2026-11-13/)
+- **Egypt vs Malawi: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cq8jz443j2pxt)
+- **Mo Salah becomes Egypt's all-time leading scorer**: [Link](https://www.usatoday.com/story/sports/soccer/2026/11/13/mo-salah-egypt-all-time-leading-scorer/92769449007/)
+
+
+### ليونيل ميسي (N/A, Fri, 13 Nov 2026 14:20:00 -0800)
+
+- **ميسي يعود إلى الأرجنتين**: [Link](https://www.alarabiya.net/sport/2026/11/13/%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D8%A7%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86)
+- **ليونيل ميسي يعود للأرجنتين في لقاء ودي بالمونومنتال**: [Link](https://www.aljazeera.net/sport/2026/11/13/%D9%84%D9%8A%D9%88%D9%86%D9%8A%D9%84-%D9%85%D9%8A%D8%B3%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%A5%D9%86%D8%AA%D8%B1-%D9%85%D9%8A%D8%A7%D9%85%D9%8A)
+- **ميسي يضع حداً للشائعات حول رحيله عن إنتر ميامي، ورونالدو سيرحل عن النصر في عام 2027.**: [Link](https://www.vietnam.vn/ar/messi-cham-dut-tin-don-chia-tay-inter-miami-ronaldo-roi-al-nassr-vao-nam-2027)
+
+
+### flight radar (N/A, Fri, 13 Nov 2026 14:00:00 -0800)
+
+- **Live updates: Ground stop lifted after hourslong halt to US departures snarls air travel nationwide**: [Link](https://www.cnn.com/2026/11/13/us/live-news/flights-ground-stop-faa)
+- **US lifts nationwide ground stop for airports hours after halting all departures**: [Link](https://www.dw.com/en/us-lifts-nationwide-ground-stop-for-airports-hours-after-halting-all-departures/a-79945062)
+- **US flights allowed to take off again as nationwide ground stop lifted but delays expected**: [Link](https://www.bbc.com/news/live/c6z9dwn12037t)
+
+
 ### classement équipe de serbie de football – équipe d'allemagne de football (N/A, Fri, 13 Nov 2026 14:10:00 -0800)
 
 - **Serbie 1-3 Allemagne, Ligue des nations A : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/serbie-allemagne-live/688724)
