@@ -1,3 +1,73 @@
+### ساديو ماني (N/A, Sat, 14 Nov 2026 12:00:00 -0800)
+
+- **رفض تنازلاته الكبيرة.. النصر السعودي يطرد ساديو ماني**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D9%81%D8%B6-%D8%AA%D9%86%D8%A7%D8%B2%D9%84%D8%A7%D8%AA%D9%87-%D8%A7%D9%84%D9%83%D8%A8%D9%8A%D8%B1%D8%A9--%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%8A%D8%B7%D8%B1%D8%AF-%D8%B3%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D9%86%D9%8A/bltc4ed46acabdc5b2a)
+- **ليس رونالدو ولا ساديو ماني .. النصر يستقر على تجديد عقود ثنائي أجنبي**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D8%B3-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%88%D9%84%D8%A7-%D8%B3%D8%A7%D8%AF%D9%8A%D9%88-%D9%85%D8%A7%D9%86%D9%8A-%D8%A7%D9%84%D9%86%D8%B5%D8%B1-%D9%8A%D8%B3%D8%AA%D9%82%D8%B1-%D8%B9%D9%84%D9%89-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%B9%D9%82%D9%88%D8%AF-%D8%AB%D9%86%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%94%D8%AC%D9%86%D8%A8%D9%8A-%D8%AC%D9%88%D8%A7%D9%88-%D9%81%D9%8A%D9%84%D9%8A%D9%83%D8%B3-%D8%A5%D9%8A%D9%86%D9%8A%D8%BA%D9%88-%D9%85%D8%A7%D8%B1%D8%AA%D9%8A%D9%86%D9%8A%D8%B2/blt7cccdf93095249e7)
+- **النصر يتصدر أندية العالم في إنفاق الرواتب**: [Link](https://alsaudi.news/sports/1111/121190/)
+
+
+### real oviedo – girona (N/A, Sat, 14 Nov 2026 11:50:00 -0800)
+
+- **Oviedo - Girona, en directo | Última hora de LALIGA Hypermotion en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-hypermotion/oviedo-girona/2026/11/14/01_0102_20261114_187_2893-directo.html)
+- **Partidos de hoy de fútbol: horario y dónde ver por TV**: [Link](https://www.mundodeportivo.com/horarios/futbol/20261114/1004250772/partidos-hoy-futbol-horario-ver-tv.html)
+- **Girona y Oviedo, empatados a 21 puntos, se ven las caras en Asturias**: [Link](https://www.gironafc.cat/es/noticias/girona-y-oviedo-empatados-a-21-puntos-se-ven-las-caras-en-asturias)
+
+
+### ligue des nations (N/A, Sat, 14 Nov 2026 11:30:00 -0800)
+
+- **Norvège 3-1 Pays de Galles, Ligue des nations A : match terminé**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-des-nations-a/2027/norvege-pays-de-galles-live/688747)
+- **Comment arrêter Erling Haaland ? Le plan de Craig Bellamy**: [Link](https://rdcsport.cd/news/arreter-erling-haaland-plan-craig-bellamy)
+- **OM-PSG en direct**: [Link](https://www.sports.fr/football/om-psg-en-direct-2-1063109.html)
+
+
+### cyberattaque (N/A, Sat, 14 Nov 2026 11:20:00 -0800)
+
+- **Cyberattaque à La Poste : les adresses d’un Français sur trois ont été volées, 22 millions de victimes !**: [Link](https://www.cyberattaque.org/maileva-docaposte-la-poste-cyberattaque/)
+- **Cyberattaque Maileva chez La Poste : 22 millions de personnes touchées, factures d'hôpital comprises**: [Link](https://www.frandroid.com/culture-tech/securite-applications/3323311_la-poste-piratee-22-millions-de-personnes-sont-concernees-par-le-vol-de-la-filiale-docaposte)
+- **Crypto : 22 millions d'adresses volées chez La Poste, la semaine noire des fuites de données en France**: [Link](https://journalducoin.com/technologies/crypto-fuites-donnees-france-22-millions-adresses-la-poste/)
+
+
+### البرتغال ضد الدنمارك (N/A, Sat, 14 Nov 2026 11:10:00 -0800)
+
+- **زميل رونالدو السابق يدلي بشهادته في حوار لكووورة.. جدل الاعتزال ودموع نهائي اليورو وما لا يعرفه الجمهور عن الأسطورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B2%D9%85%D9%8A%D9%84-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A7%D9%84%D8%B3%D8%A7%D8%A8%D9%82-%D9%8A%D8%AF%D9%84%D9%8A-%D8%A8%D8%B4%D9%87%D8%A7%D8%AF%D8%AA%D9%87-%D9%81%D9%8A-%D8%AD%D9%88%D8%A7%D8%B1-%D9%84%D9%83%D9%88%D9%88%D9%88%D8%B1%D8%A9--%D8%AC%D8%AF%D9%84-%D8%A7%D9%84%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D9%88%D8%AF%D9%85%D9%88%D8%B9-%D9%86%D9%87%D8%A7%D9%8A%D9%94%D9%8A-%D8%A7%D9%84%D9%8A%D9%88%D8%B1%D9%88-%D9%88%D9%85%D8%A7-%D9%84%D8%A7-%D9%8A%D8%B9%D8%B1%D9%81%D9%87-%D8%A7%D9%84%D8%AC%D9%85%D9%87%D9%88%D8%B1-%D8%B9%D9%86-%D8%A7%D9%84%D8%A7%D9%94%D8%B3%D8%B7%D9%88%D8%B1%D8%A9/blt25a8fa85ddae5f99)
+- **بعد اعتزال رونالدو.. البرتغال تختبر ملامح حقبة جديدة أمام الدانمارك**: [Link](https://www.aljazeera.net/sport/2026/11/13/%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3-%D8%A7%D9%84%D8%AF%D8%A7%D9%86%D9%85%D8%A7%D8%B1%D9%83)
+- **دوري الأمم: برناردو سيلفا يرى أن البرتغال جاهزة للتعامل مع الضغط دون رونالدو**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261113-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A8%D8%B1%D9%86%D8%A7%D8%B1%D8%AF%D9%88-%D8%B3%D9%8A%D9%84%D9%81%D8%A7-%D9%8A%D8%B1%D9%89-%D8%A3%D9%86-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%AC%D8%A7%D9%87%D8%B2%D8%A9-%D9%84%D9%84%D8%AA%D8%B9%D8%A7%D9%85%D9%84-%D9%85%D8%B9-%D8%A7%D9%84%D8%B6%D8%BA%D8%B7-%D8%AF%D9%88%D9%86-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88)
+
+
+### algeria vs togo (N/A, Sat, 14 Nov 2026 11:10:00 -0800)
+
+- **LIVE: Algeria vs Togo | 2027 AFCON Qualifiers**: [Link](https://www.beinsports.com/en-us/soccer/africa-cup-of-nations-qualification/articles/live-algeria-vs-togo-2027-afcon-qualifiers-2026-11-14)
+- **"We must put everything in place to rise to occasion," says Hemdani**: [Link](https://www.aps.dz/en/sports/team-sports/mwgezn5e-we-must-put-everything-in-place-to-rise-to-occasion-says-hemdani)
+- **Algeria hand debut call-ups to Rebbach and Azzi as Aït-Nouri and Zidane miss out for crucial Togo qualifiers**: [Link](https://www.cafonline.com/afcon2025/news/algeria-hand-debut-call-ups-to-rebbach-and-azzi-as-ait-nouri-and-zidane-miss-out-for-crucial-togo-qualifiers/)
+
+
+### portugal – danemark (N/A, Sat, 14 Nov 2026 11:00:00 -0800)
+
+- **Portugal - Danemark | Cristiano Ronaldo est parti mais est-ce vraiment la fin du "Cristianisme"**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/portugal-danemark-cristiano-ronaldo-est-parti-mais-est-ce-vraiment-la-fin-du-cristianisme_sto23355019/story.shtml)
+- **PRONOS PARIS RMC Le pari du jour du 14 novembre - Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-14-novembre-ligue-des-nations_AN-202611130823.html)
+- **Ligue des nations, Journée 5, l’avant-match, le Portugal reçoit le Danemark, la Norvège accueille le pays de Galles en Ligue A**: [Link](https://fr.uefa.com/uefanationsleague/news/02ab-22079c84519c-62617f740122-1000--ligue-des-nations-journee-5-l-avant-match-le-portugal-rec/)
+
+
+### portugal vs denmark (N/A, Sat, 14 Nov 2026 11:00:00 -0800)
+
+- **UEFA Nations League Matchday 5 preview: Portugal host Denmark, Norway welcome Wales in League A action**: [Link](https://www.uefa.com/uefanationsleague/news/02ab-220793bfb8a3-00d5842942af-1000--uefa-nations-league-matchday-5-preview-portugal-host-denmark/)
+- **Licensable picture: UEFA Nations League - Group A4 - Portugal v Denmark**: [Link](https://www.reutersconnect.com/item/uefa-nations-league-group-a4-portugal-v-denmark/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkUxSjZHODE)
+- **How to watch Portugal vs. Denmark soccer for free today: Nations League live stream, TV channel, odds**: [Link](https://www.oregonlive.com/tv/2026/11/how-to-watch-portugal-vs-denmark-soccer-for-free-today-nations-league-live-stream-tv-channel-odds.html)
+
+
+### twitch (N/A, Sat, 14 Nov 2026 11:00:00 -0800)
+
+- **Free copies of Grand Theft Auto VI for Californians? What to know about Kick sweepstakes**: [Link](https://ktla.com/entertainment/free-copies-of-grand-theft-auto-vi-for-californians-what-to-know-about-kick-sweepstakes/)
+- **Deal | 10K+ free GTA 6 Ultimate Edition game codes coming in livestream Twitch drops**: [Link](https://www.notebookcheck.net/10K-free-GTA-6-Ultimate-Edition-game-codes-coming-in-livestream-Twitch-drops.1449873.0.html)
+- **Kick Takes GTA 6 Giveaway to California With Lucia Cosplayer On Special Truck**: [Link](https://sports.ndtv.com/us/us-streamers/kick-takes-gta-6-giveaway-to-california-with-lucia-cosplayer-on-special-truck-12326023)
+
+
+### الجزائر ضد توغو (N/A, Sat, 14 Nov 2026 10:50:00 -0800)
+
+- **مباشر.. مباراة الجزائر ضد توغو ضمن تصفيات كأس أمم أفريقيا.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/14/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D8%BA%D9%88)
+- **ما القنوات الناقلة لمباراة الجزائر وتوجو في تصفيات كأس أمم أفريقيا 2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%88%D8%AA%D9%88%D8%AC%D9%88-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt288dadbb5df1b57e)
+- **وهنا بث مباشر لمباراة الجزائر ضد توغو في تصفيات كأس أمم أفريقيا 2027**: [Link](https://www.annahar.com/sports/football/366460/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%B6%D8%AF-%D8%AA%D9%88%D8%BA%D9%88-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027)
+
+
 ### كأس الأمم الإفريقية (N/A, Sat, 14 Nov 2026 07:00:00 -0800)
 
 - **الجزائر تحسم موقفها.. الكشف عن الدول المرشحة لاستضافة أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%AA%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87%D8%A7--%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D8%A9-%D9%84%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt0930d51743796d67)
