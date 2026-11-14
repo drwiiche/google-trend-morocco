@@ -1,3 +1,73 @@
+### كأس الأمم الإفريقية (N/A, Sat, 14 Nov 2026 07:00:00 -0800)
+
+- **الجزائر تحسم موقفها.. الكشف عن الدول المرشحة لاستضافة أمم أفريقيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D8%AA%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87%D8%A7--%D8%A7%D9%84%D9%83%D8%B4%D9%81-%D8%B9%D9%86-%D8%A7%D9%84%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%B1%D8%B4%D8%AD%D8%A9-%D9%84%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7/blt0930d51743796d67)
+- **"كاف" يفتح باب الترشح لاستضافة 3 نسخ من كأس أفريقيا**: [Link](https://www.aljazeera.net/sport/2026/11/13/%D9%83%D8%A7%D9%81-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%B1%D8%B4%D8%AD-%D9%84%D8%A7%D8%B3%D8%AA%D8%B6%D8%A7%D9%81%D8%A9-3-%D9%86%D8%B3%D8%AE-%D9%85%D9%86)
+- **الكاف يتخذ إجراءات رسمية تهم النسخ المقبلة من كأس أمم أفريقيا**: [Link](https://sport.lesiteinfo.com/lionsdelatlas/506392.html)
+
+
+### منتخب تونس لكرة القدم (N/A, Sat, 14 Nov 2026 06:20:00 -0800)
+
+- **"مهزلة" نسور قرطاج أمام ليبيا في عيون الصحافة التونسية**: [Link](https://www.aljazeera.net/sport/2026/11/14/%D9%85%D9%87%D8%B2%D9%84%D8%A9-%D9%83%D9%8A%D9%81-%D8%AA%D9%81%D8%A7%D8%B9%D9%84%D8%AA-%D8%A7%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D8%A9-%D8%A7%D9%84%D8%AA%D9%88%D9%86%D8%B3%D9%8A%D8%A9-%D9%85%D8%B9)
+- **مدرب تونس يصدم الجميع: هذا المنتخب لن ينجح ولو دربه جوارديولا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%AF%D8%B1%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-%D9%8A%D8%B5%D8%AF%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D9%8A%D8%B9-%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%84%D9%86-%D9%8A%D9%86%D8%AC%D8%AD-%D9%88%D9%84%D9%88-%D8%AF%D8%B1%D8%A8%D9%87-%D8%AC%D9%88%D8%A7%D8%B1%D8%AF%D9%8A%D9%88%D9%84%D8%A7/blt7b4eebb4108d8210)
+- **معين الشعباني: 'أتحمل المسؤولية الكاملة وأعتذر ..'**: [Link](https://www.mosaiquefm.net/ar/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/1536807/%D9%85%D8%B9%D9%8A%D9%86-%D8%A7%D9%84%D8%B4%D8%B9%D8%A8%D8%A7%D9%86%D9%8A-%D8%A3%D8%AA%D8%AD%D9%85%D9%84-%D8%A7%D9%84%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%88%D8%A3%D8%B9%D8%AA%D8%B0%D8%B1)
+
+
+### peine (N/A, Sat, 14 Nov 2026 05:40:00 -0800)
+
+- **Scandale | Maroc : Affaire des « masters contre de l’argent » : la peine du professeur Ahmed Kilech portée à sept ans de prison ferme**: [Link](https://article19.ma/accueil/archives/200742)
+- **Vente de masters: la Cour d’appel porte à sept ans la peine du professeur Ahmed Klich**: [Link](https://lareleve.ma/211190/)
+- **Maroc : la corruption jusque dans les amphis !**: [Link](https://lapatrienews.dz/maroc-la-corruption-jusque-dans-les-amphis/)
+
+
+### سردين (N/A, Sat, 14 Nov 2026 05:10:00 -0800)
+
+- **السردين يصل إلى 30 درهما .. مهنيون يكشفون اختلالات تسويق الأسماك**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D8%B1%D8%AF%D9%8A%D9%86-%D9%8A%D8%B5%D9%84-%D8%A5%D9%84%D9%89-30-%D8%AF%D8%B1%D9%87%D9%85%D8%A7-%D9%85%D9%87%D9%86%D9%8A%D9%88%D9%86-%D9%8A%D9%83%D8%B4%D9%81%D9%88%D9%86-%D8%A7-1839285.html)
+- **البحّارة وغرف الصيد البحري.. سؤال التمثيلية وحق المشاركة**: [Link](https://albahrnews.com/%D8%A7%D9%84%D8%A8%D8%AD%D9%91%D8%A7%D8%B1%D8%A9-%D9%88%D8%BA%D8%B1%D9%81-%D8%A7%D9%84%D8%B5%D9%8A%D8%AF-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A-%D8%B3%D8%A4%D8%A7%D9%84-%D8%A7%D9%84%D8%AA%D9%85%D8%AB/)
+- **تراجع المخزون السمكي يرفع أسعار السردين**: [Link](https://assabah.ma/962819.html)
+
+
+### vinicius júnior (N/A, Sat, 14 Nov 2026 04:20:00 -0800)
+
+- **Imprensa francesa elogia golaços de Vini Jr. na derrota do Brasil para o Japão**: [Link](https://www.rfi.fr/br/esportes/20261114-imprensa-francesa-elogia-gola%C3%A7os-de-vini-jr-na-derrota-do-brasil-para-o-jap%C3%A3o)
+- **CBF nega que decisão de encerrar observações na seleção tenha sido motivada por tropeços no pós-Copa**: [Link](https://oglobo.globo.com/esportes/selecao-brasileira/noticia/2026/11/14/cbf-nega-que-decisao-de-encerrar-observacoes-na-selecao-seja-influenciada-por-tropecos-no-pos-copa.ghtml)
+- **Ancelotti explica derrota do Brasil e dispara contra arbitragem: “Resultado foi condiconado”**: [Link](https://www.gazetaesportiva.com/times/brasil/ancelotti-critica-arbitragem-derrota-brasil-japao/)
+
+
+### didier deschamps (N/A, Sat, 14 Nov 2026 03:40:00 -0800)
+
+- **Didier Deschamps' brutal reply to offer of replacing Michael Carrick at Man Utd**: [Link](https://www.mirror.co.uk/sport/football/news/didier-deschamps-brutal-reply-offer-37848212)
+- **Football gossip: Deschamps, Kane, Tavernier, Tresoldi, Collins, Brown**: [Link](https://www.bbc.com/sport/football/articles/c9rky3g7e8zro)
+- **Man Utd manager search takes major twist as new Carrick details emerge**: [Link](https://www.standard.co.uk/sport/football/next-man-utd-manager-deschamps-carrick-b1303803.html)
+
+
+### classroom (N/A, Sat, 14 Nov 2026 02:50:00 -0800)
+
+- **Watch Connecticut teacher of 33 years says she was escorted out of school over classroom crucifix - FNC**: [Link](https://www.fox.com/watch/clip/6408238926112/connecticut-teacher-of-33-years-says-she-was-escorted-out-of-school-over-classroom-crucifix)
+- **Connecticut teacher says she was escorted out of school over classroom crucifix**: [Link](https://www.foxnews.com/video/6408291966112)
+- **Connecticut teacher escorted out of school over classroom crucifix heads to federal appeals court**: [Link](https://www.foxnews.com/media/connecticut-teacher-escorted-out-school-over-classroom-crucifix-heads-federal-appeals-court)
+
+
+### اليابان ضد البرازيل (N/A, Sat, 14 Nov 2026 02:20:00 -0800)
+
+- **فيديو: رسالة من سنغافورة.. فينيسيوس يرد على منتقديه بطريقة مدوية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B1%D8%B3%D8%A7%D9%84%D8%A9-%D9%85%D9%86-%D8%B3%D9%86%D8%BA%D8%A7%D9%81%D9%88%D8%B1%D8%A9--%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%8A%D8%B1%D8%AF-%D8%B9%D9%84%D9%89-%D9%85%D9%86%D8%AA%D9%82%D8%AF%D9%8A%D9%87-%D8%A8%D8%B7%D8%B1%D9%8A%D9%82%D8%A9-%D9%85%D8%AF%D9%88%D9%8A%D8%A9/bltcda4a72f683316ec)
+- **طرد رافينيا مع البرازيل يثير ارتياح جماهير برشلونة (فيديو)**: [Link](https://www.aljazeera.net/sport/2026/11/14/%D8%B7%D8%B1%D8%AF-%D8%B1%D8%A7%D9%81%D9%8A%D9%86%D9%8A%D8%A7-%D9%85%D8%B9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D8%B1%D8%AA%D9%8A%D8%A7%D8%AD)
+- **اليابان تهزم البرازيل في مباراة مثيرة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%8A%D8%A7%D8%A8%D8%A7%D9%86-%D8%AA%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%81%D9%8A-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-1839717.html)
+
+
+### japan vs brazil (N/A, Sat, 14 Nov 2026 02:10:00 -0800)
+
+- **Ancelotti and Raphinha sent off as Japan beat Brazil**: [Link](https://www.bbc.com/sport/football/live/cv5yny98z474t)
+- **Stars set Singapore alight as Japan exact revenge on Brazil with dramatic late win**: [Link](https://www.espn.com/soccer/story/_/id/50479233/japan-revenge-brazil-dramatic-late-win)
+- **Carlo Ancelotti, Raphinha sent off as Brazil lose to Japan to stoppage-time goal**: [Link](https://www.nytimes.com/athletic/7781332/2026/11/14/brazil-japan-result-red-cards/)
+
+
+### walid regragui (N/A, Sat, 14 Nov 2026 02:10:00 -0800)
+
+- **Le RC Lens a aussi coché le nom de Walid Regragui**: [Link](https://www.footmercato.net/a8811157959532482151-le-rc-lens-a-aussi-coche-le-nom-de-walid-regragui)
+- **Pas de Pierre Sage ni de Walid Regragui : Lens a choisi Didier Digard comme nouvel entraîneur**: [Link](https://www.lequipe.fr/Football/Actualites/Pas-de-pierre-sage-ni-de-walid-regragui-lens-a-choisi-didier-digard-comme-nouvel-entraineur/1743514)
+- **Didier Digard nommé entraîneur du RC Lens jusqu'en juin 2028**: [Link](https://www.rclens.fr/fr/didier-digard-entraineur-rclens-20261113)
+
+
 ### موريتانيا (N/A, Sat, 14 Nov 2026 00:10:00 -0800)
 
 - **خاص | المغرب يُغلق مَنافذ تسلل البوليساريو ويبلغ موريتانيا بضرورة إعادة رعاياها إلى داخل حدودها**: [Link](https://www.assahifa.com/%D8%AE%D8%A7%D8%B5-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%8F%D8%BA%D9%84%D9%82-%D9%85%D9%8E%D9%86%D8%A7%D9%81%D8%B0-%D8%AA%D8%B3%D9%84%D9%84-%D8%A7%D9%84%D8%A8%D9%88%D9%84%D9%8A%D8%B3/)
