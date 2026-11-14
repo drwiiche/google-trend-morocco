@@ -1,3 +1,73 @@
+### موريتانيا (N/A, Sat, 14 Nov 2026 00:10:00 -0800)
+
+- **خاص | المغرب يُغلق مَنافذ تسلل البوليساريو ويبلغ موريتانيا بضرورة إعادة رعاياها إلى داخل حدودها**: [Link](https://www.assahifa.com/%D8%AE%D8%A7%D8%B5-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%8F%D8%BA%D9%84%D9%82-%D9%85%D9%8E%D9%86%D8%A7%D9%81%D8%B0-%D8%AA%D8%B3%D9%84%D9%84-%D8%A7%D9%84%D8%A8%D9%88%D9%84%D9%8A%D8%B3/)
+- **فراغ “المينورسو” يدفع المغرب وموريتانيا لتعزيز الشراكة الأمنية والاقتصادية**: [Link](https://al3omk.com/1209941.html)
+- **باحث: توضيح الحدود المغربية الموريتانية لن يغير شكل المنطقة**: [Link](https://madar21.com/464789.html)
+
+
+### koh lanta (N/A, Fri, 13 Nov 2026 23:40:00 -0800)
+
+- **Koh Lanta All Stars - Emission 12 (Partie 2)**: [Link](https://www.tf1.fr/fr-ma/tf1/koh-lanta/videos/koh-lanta-all-stars-emission-12-partie-2-38235957.html)
+- **« Claude était le GOAT, moi je suis la petite peste » : Lola se confie sur sa stratégie dans « Koh-Lanta »**: [Link](https://soirmag.lesoir.be/782573/article/2026-11-13/claude-etait-le-goat-moi-je-suis-la-petite-peste-lola-se-confie-sur-sa-strategie)
+- **INA, le doc, Narcotrafic : 60 ans de lutte à Marseille vendredi 13 novembre 2026 sur Franceinfo : résumé et diffusions**: [Link](https://programmetv.ouest-france.fr/documentaire/societe/ina-le-doc-m417689917/narcotrafic-60-ans-de-lutte-a-marseille-c453360001/)
+
+
+### قهوة (N/A, Fri, 13 Nov 2026 23:30:00 -0800)
+
+- **دراسة تكشف ما تفعله القهوة بأمعائك.. والنتائج قد تفاجئك**: [Link](https://www.alarabiya.net/science/2026/11/12/%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D9%85%D8%A7-%D8%AA%D9%81%D8%B9%D9%84%D9%87-%D8%A7%D9%84%D9%82%D9%87%D9%88%D8%A9-%D8%A8%D8%A7%D9%85%D8%B9%D8%A7%D8%A6%D9%83-%D9%88%D8%A7%D9%84%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%82%D8%AF-%D8%AA%D9%81%D8%A7%D8%AC%D8%A6%D9%83)
+- **تأثير غير متوقع للقهوة على الأمعاء.. ماذا كشفت دراسة جديدة؟**: [Link](https://arabic.euronews.com/2026/11/12/danish-study-regular-coffee-drinking-gut-motility-microbiome-diversity)
+- **دراسة تكشف تأثير القهوة فى تحسين صحة الهضم**: [Link](http://www.alalam.ir/news/7693108/%D8%AF%D8%B1%D8%A7%D8%B3%D8%A9-%D8%AA%D9%83%D8%B4%D9%81-%D8%AA%D8%A3%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D9%82%D9%87%D9%88%D8%A9-%D9%81%D9%89-%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D8%B5%D8%AD%D8%A9-%D8%A7%D9%84%D9%87%D8%B6%D9%85)
+
+
+### الجزائر (N/A, Fri, 13 Nov 2026 22:50:00 -0800)
+
+- **الأزمة الدبلوماسية بين فرنسا والجزائر تتحول إلى حرب تجارية غير معلنة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D8%A8%D9%84%D9%88%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6-1839369.html)
+- **باريس تنقل خلافها التجاري مع الجزائر إلى بروكسل**: [Link](https://www.middle-east-online.com/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%AA%D9%86%D9%82%D9%84-%D8%AE%D9%84%D8%A7%D9%81%D9%87%D8%A7-%D8%A7%D9%84%D8%AA%D8%AC%D8%A7%D8%B1%D9%8A-%D9%85%D8%B9-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%A5%D9%84%D9%89-%D8%A8%D8%B1%D9%88%D9%83%D8%B3%D9%84)
+- **ازدواجية فرنسية فاضحة.. يهاجمون الجزائر ويبحثون عن سوقها**: [Link](https://tadamsanews.dz/%D9%81%D8%B1%D9%86%D8%B3%D8%A7-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AE%D8%B3%D8%A7%D8%A6%D8%B1-%D8%A7%D9%84%D8%B5%D8%A7%D8%AF%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AA%D8%B5%D8%B9%D9%8A%D8%AF/)
+
+
+### نفط (N/A, Fri, 13 Nov 2026 21:40:00 -0800)
+
+- **إيران.. 3 ناقلات تصطدم بألغام بهرمز ورئيس الموساد يبحث الحرب بواشنطن**: [Link](https://www.aljazeera.net/news/liveblog/2026/11/14/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%AF%D9%88%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D9%81%D9%8A-%D8%AC%D8%A7%D8%B3%D9%83-%D9%88%D9%88%D8%A7%D8%B4%D9%86%D8%B7%D9%86)
+- **الجيش الإيراني: اشتعال ناقلة نفط اصطدمت بلغم في مضيق هرمز**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%A7%D8%B4%D8%AA%D8%B9%D8%A7%D9%84-%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%86%D9%81%D8%B7-%D8%A7%D8%B5%D8%B7%D8%AF%D9%85%D8%AA-%D8%A8%D9%84%D8%BA%D9%85-%D9%81%D9%8A-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2/4124950)
+- **«الحرس الثوري» يعلن اصطدام ناقلتي نفط بألغام في مضيق هرمز**: [Link](https://aawsat.com/%D8%B4%D8%A4%D9%88%D9%86-%D8%A5%D9%82%D9%84%D9%8A%D9%85%D9%8A%D8%A9/5341021-%D8%A7%D9%84%D8%AD%D8%B1%D8%B3-%D8%A7%D9%84%D8%AB%D9%88%D8%B1%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A7%D8%B5%D8%B7%D8%AF%D8%A7%D9%85-%D9%86%D8%A7%D9%82%D9%84%D8%AA%D9%8A-%D9%86%D9%81%D8%B7-%D8%A8%D8%A3%D9%84%D8%BA%D8%A7%D9%85-%D9%81%D9%8A-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2)
+
+
+### منتخب مصر لكرة القدم (N/A, Fri, 13 Nov 2026 21:40:00 -0800)
+
+- **القصة الكاملة للخلاف! صلاح يُشعل الجدل بالرقم 70.. والفيفا يُبقي حسام حسن في الصدارة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%82%D8%B5%D8%A9-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%84%D8%A9-%D9%84%D9%84%D8%AE%D9%84%D8%A7%D9%81-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D9%8F%D8%B4%D8%B9%D9%84-%D8%A7%D9%84%D8%AC%D8%AF%D9%84-%D8%A8%D8%A7%D9%84%D8%B1%D9%82%D9%85-70--%D9%88%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D9%8F%D8%A8%D9%82%D9%8A-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9/blt103d90da91c2d8d3)
+- **مصر تستهل حقبة ماهر بخماسية في ليلة تاريخية لصلاح؛ مالي تقلب تأخرها، والمغرب يفوز بسهولة**: [Link](https://www.cafonline.com/ar/afcon2025/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B5%D8%B1-%D8%AA%D8%B3%D8%AA%D9%87%D9%84-%D8%AD%D9%82%D8%A8%D8%A9-%D9%85%D8%A7%D9%87%D8%B1-%D8%A8%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D8%A9-%D9%84%D8%B5%D9%84%D8%A7%D8%AD-%D9%85%D8%A7%D9%84%D9%8A-%D8%AA%D9%82%D9%84%D8%A8-%D8%AA%D8%A3%D8%AE%D8%B1%D9%87%D8%A7-%D9%88%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%81%D9%88%D8%B2-%D8%A8%D8%B3%D9%87%D9%88%D9%84%D8%A9/)
+- **قدم.. محمد صلاح يحطم رقم حسام حسن ويعتلي عرش هدافي مصر التاريخيين**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%AD%D8%B7%D9%85-%D8%B1%D9%82%D9%85-%D8%AD%D8%B3%D8%A7%D9%85-%D8%AD%D8%B3%D9%86-%D9%88%D9%8A%D8%B9%D8%AA%D9%84%D9%8A-%D8%B9%D8%B1%D8%B4-%D9%87%D8%AF%D8%A7%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A%D9%8A%D9%86/4124845)
+
+
+### الخبر (N/A, Fri, 13 Nov 2026 21:20:00 -0800)
+
+- **وفاة مفاجئة لسائق سيارة بمركز إساكن ضواحي الحسيمة**: [Link](https://daralkhabar.com/%D9%88%D9%81%D8%A7%D8%A9-%D9%85%D9%81%D8%A7%D8%AC%D8%A6%D8%A9-%D9%84%D8%B3%D8%A7%D8%A6%D9%82-%D8%B3%D9%8A%D8%A7%D8%B1%D8%A9-%D8%A8%D9%85%D8%B1%D9%83%D8%B2-%D8%A5%D8%B3%D8%A7%D9%83%D9%86-%D8%B6%D9%88/)
+- **الحسيمة.. وفاة مفاجئة لشخص أثناء قيادة سيارة بإساكن**: [Link](https://ar.hibapress.com/details-775599.html)
+- **المنتخب الوطني لأقل من 17 سنة ينهزم أمام نظيره المصري**: [Link](https://frmf.ma/articles/17-25)
+
+
+### pete hegseth (N/A, Fri, 13 Nov 2026 20:30:00 -0800)
+
+- **Hegseth awards medal to soldier who reprimanded him and aides at Arlington Cemetery**: [Link](https://www.cnn.com/2026/11/12/politics/hegseth-awards-medal-soldier-reprimanded-him)
+- **Hayes: Hegseth’s Tomb visit exposes the right’s double standard**: [Link](https://www.ms.now/all-in/watch/hayes-hegseth-s-tomb-visit-exposes-the-right-s-double-standard-2520590403864)
+- **Thank You, Specialist Thomas Iglesias: Duty and Honor**: [Link](https://www.nationalreview.com/article/thank-you-specialist-thomas-iglesias)
+
+
+### états-unis (N/A, Fri, 13 Nov 2026 20:20:00 -0800)
+
+- **Suspension des vols aux Etats-Unis : l’agence de l’aviation civile annonce une reprise du trafic aérien après une vaste « panne des télécommunications »**: [Link](https://www.lemonde.fr/international/article/2026/11/14/suspension-des-vols-aux-etats-unis-l-agence-de-l-aviation-civile-annonce-une-reprise-du-trafic-aerien-apres-une-vaste-panne-des-telecommunications_6809389_3211.html)
+- **Des milliers d’annulations, «du vieux matériel» en cause… Ce que l’on sait de la suspension des vols aux États-Unis après la reprise du trafic**: [Link](https://www.lefigaro.fr/international/etats-unis-le-regulateur-de-l-aviation-ordonne-l-arret-de-tous-les-vols-a-cause-d-un-probleme-de-communication-20261113)
+- **Les Etats-Unis suspendent tous les vols jusqu’à nouvel ordre**: [Link](https://www.20minutes.fr/monde/etats-unis/4262797-20261113-etats-unis-faa-suspend-tous-vols-pays-jusqu-nouvel-ordre)
+
+
+### guatemala – canada (N/A, Fri, 13 Nov 2026 19:30:00 -0800)
+
+- **Licensable picture: CONCACAF Nations League - Quarter Final - First Leg - Guatemala v Canada**: [Link](https://www.reutersconnect.com/item/concacaf-nations-league-quarter-final-first-leg-guatemala-v-canada/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkUwQ1JVVlc)
+- **Canada victorious over Guatemala in Nations League Quarterfinals First Leg**: [Link](https://www.concacaf.com/competitions/nations-league/news/canada-victorious-over-guatemala-in-nations-league-quarterfinals-first-leg)
+- **New concerns for Bayern Munich: Alphonso Davies substituted after just five minutes due to injury**: [Link](https://www.livescore.com/en/news/football/bundesliga/new-concerns-for-bayern-munich-alphonso-davies-substituted-after-just-five-minutes-due-to-injury-goal/)
+
+
 ### twitter (N/A, Fri, 13 Nov 2026 17:50:00 -0800)
 
 - **Intel intercepts implicating Jensen Huang in affair sparked classified Rubio memo**: [Link](https://www.cnn.com/2026/11/13/politics/jensen-huang-us-intelligence)
