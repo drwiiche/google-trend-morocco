@@ -1,3 +1,71 @@
+### صاروخ (N/A, Sun, 15 Nov 2026 00:50:00 -0800)
+
+- **الاستخبارات الأميركية تحدد عدد الصواريخ التي تملكها إيران**: [Link](https://www.skynewsarabia.com/world/1904830-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%AA%D9%85%D9%84%D9%83%D9%87%D8%A7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
+- **مباشر. تصعيد في هرمز واليمن وغموض حول ترسانة صواريخ إيران.. أما ترامب فيستبعد العودة للحرب وإن إلى حين**: [Link](https://arabic.euronews.com/2026/11/15/hormuz-tanker-explosions-us-radar-trump-no-attack)
+- **إيران تجري اختبارا لصاروخ جديد في أجواء طهران (شاهد)**: [Link](https://arabi21.com/story/1802706/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%AC%D8%B1%D9%8A-%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1%D8%A7-%D9%84%D8%B5%D8%A7%D8%B1%D9%88%D8%AE-%D8%AC%D8%AF%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A3%D8%AC%D9%88%D8%A7%D8%A1-%D8%B7%D9%87%D8%B1%D8%A7%D9%86-%D8%B4%D8%A7%D9%87%D8%AF)
+
+
+### طماطم (N/A, Sat, 14 Nov 2026 23:20:00 -0800)
+
+- **أسعار الخضروات والفاكهة اليوم الأحد 15 نوفمبر 2026 في سوق العبور.. الطماطم والبطاطس والبرتقال**: [Link](https://twaslnews1.twaslnews.com/7714494/)
+- **البرتقال بكام في السوق؟.. أسعار الفاكهة بأسواق القليوبية اليوم الأحد 15 – 11 - 2026**: [Link](https://www.youm7.com/story/2026/11/15/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D9%82%D8%A7%D9%84-%D8%A8%D9%83%D8%A7%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D9%88%D9%82-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D8%A7%D9%83%D9%87%D8%A9-%D8%A8%D8%A3%D8%B3%D9%88%D8%A7%D9%82-%D8%A7%D9%84%D9%82%D9%84%D9%8A%D9%88%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF/7618697)
+- **سعر الطماطم والملوخية والخضار في الأسواق اليوم الأحد 15 نوفمبر 2026**: [Link](https://www.almasryalyoum.com/news/details/4410579)
+
+
+### كأس العالم لكرة القدم تحت 17 سنة (N/A, Sat, 14 Nov 2026 23:20:00 -0800)
+
+- **كأس العالم FIFA لأقل من 17 سنة: بعثة المنتخب الوطني تصل لقطر**: [Link](https://frmf.ma/articles/coupe-du-monde-fifa-u17)
+- **المنتخب المغربي لأقل من 17 سنة يشد الرحال إلى قطر لخوض نهائيات كأس العالم**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D8%A3%D9%82%D9%84-%D9%85%D9%86-17-%D8%B3%D9%86%D8%A9-%D9%8A%D8%B4%D8%AF-%D8%A7%D9%84%D8%B1%D8%AD%D8%A7/)
+- **رئيس الاتحاد الدولي لكرة القدم جياني إنفانتينو يتفقد ملاعب ومنشآت مجمع أسباير زون بالدوحة**: [Link](https://www.aa.com.tr/ar/vg/%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%85%D8%B9%D8%B1%D8%B6/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%AF%D9%88%D9%84%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AC%D9%8A%D8%A7%D9%86%D9%8A-%D8%A5%D9%86%D9%81%D8%A7%D9%86%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D8%AA%D9%81%D9%82%D8%AF-%D9%85%D9%84%D8%A7%D8%B9%D8%A8-%D9%88%D9%85%D9%86%D8%B4%D8%A2%D8%AA-%D9%85%D8%AC%D9%85%D8%B9-%D8%A3%D8%B3%D8%A8%D8%A7%D9%8A%D8%B1-%D8%B2%D9%88%D9%86-%D8%A8%D8%A7%D9%84%D8%AF%D9%88%D8%AD%D8%A9/158459)
+
+
+### akhbarona (N/A, Sat, 14 Nov 2026 23:00:00 -0800)
+
+
+
+
+### أيوب بوعدي (N/A, Sat, 14 Nov 2026 22:50:00 -0800)
+
+- **بتصريح مقتضب.. أيوب بوعدي يثير الغموض حول وضعه في مانشستر سيتي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%AA%D8%B5%D8%B1%D9%8A%D8%AD-%D9%85%D9%82%D8%AA%D8%B6%D8%A8--%D8%A7%D9%94%D9%8A%D9%88%D8%A8-%D8%A8%D9%88%D8%B9%D8%AF%D9%8A-%D9%8A%D8%AB%D9%8A%D8%B1-%D8%A7%D9%84%D8%BA%D9%85%D9%88%D8%B6-%D8%AD%D9%88%D9%84-%D9%88%D8%B6%D8%B9%D9%87-%D9%81%D9%8A-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D8%B3%D9%8A%D8%AA%D9%8A/bltf5379125f1404144)
+- **أيوب بوعدي في تداريب الأسود 🇲🇦**: [Link](https://www.elbotola.com/video/details/6af610e360c96850234ae0c9)
+- **بوعدي يخطف الأضواء تواضع وأخلاق عالية تكسبه إحترام الصحفيين في الحصة الأخيرة**: [Link](https://www.almountakhab.com/node/16232809)
+
+
+### coupe du monde de football 2030 (N/A, Sat, 14 Nov 2026 22:40:00 -0800)
+
+- **Finale de la Coupe du monde 2030 : nouvelle poussée de fièvre entre le Maroc et l’Espagne**: [Link](https://www.jeuneafrique.com/1861391/politique/finale-de-la-coupe-du-monde-2030-nouvelle-poussee-de-fievre-entre-le-maroc-et-lespagne/)
+- **Mondial 2030 : Madrid met encore la pression pour obtenir la finale**: [Link](https://www.leconomiste.com/flash-infos/mondial-2030-madrid-met-encore-la-pression-pour-obtenir-la-finale/)
+- **Mondial 2030 : l’Espagne maintient la pression pour accueillir la finale**: [Link](https://fr.hespress.com/496466-mondial-2030-lespagne-maintient-la-pression-pour-accueillir-la-finale-2.html)
+
+
+### منتخب المغرب لكرة القدم (N/A, Sat, 14 Nov 2026 22:30:00 -0800)
+
+- **المنتخب المغربي يتفوق على البرازيل والبرتغال ويقتحم "الخمسة الكبار" بتصنيف الفيفا**: [Link](https://www.aljazeera.net/sport/2026/11/15/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D8%AA%D9%81%D9%88%D9%82-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84)
+- **تصنيف "الفيفا" يضع المغرب خامسا**: [Link](https://www.hespress.com/%D8%AA%D8%B5%D9%86%D9%8A%D9%81-%D8%A7%D9%84%D9%81%D9%8A%D9%81%D8%A7-%D9%8A%D8%B6%D8%B9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AE%D8%A7%D9%85%D8%B3%D8%A7-1840084.html)
+- **دفعة عالمية.. المغرب يقبل هدية البرازيل وينتظر سقوط البرتغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%81%D8%B9%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%A8%D9%84-%D9%87%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%88%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84/blt39940b68c6bcc8f8)
+
+
+### نادي الوداد الرياضي (N/A, Sat, 14 Nov 2026 22:20:00 -0800)
+
+- **اجتماع العسري بمنخرطي الوداد.. كواليس غرق النادي وسط مستنقع ديون آيت منا!**: [Link](https://ar.telquel.ma/%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9-%D8%A7%D9%84%D8%B9%D8%B3%D8%B1%D9%8A-%D8%A8%D9%85%D9%86%D8%AE%D8%B1%D8%B7%D9%8A-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%BA/)
+- **محمد طلال يطالب رئيس الوداد بتحويل حديث المحاسبة إلى إجراءات عملية**: [Link](https://radiomars.ma/%D9%85%D8%AD%D9%85%D8%AF-%D8%B7%D9%84%D8%A7%D9%84-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF-%D8%A8%D8%AA%D8%AD%D9%88%D9%8A%D9%84-%D8%AD%D8%AF%D9%8A/)
+- **هل يتم إيقاف عضوية أيت منا بالوداد؟**: [Link](https://ar.lesiteinfo.com/sport/%D9%87%D9%84-%D9%8A%D8%AA%D9%85-%D8%A5%D9%8A%D9%82%D8%A7%D9%81-%D8%B9%D8%B6%D9%88%D9%8A%D8%A9-%D8%A3%D9%8A%D8%AA-%D9%85%D9%86%D8%A7-%D8%A8%D8%A7%D9%84%D9%88%D8%AF%D8%A7%D8%AF%D8%9F-1032664.html)
+
+
+### gadi eisenkot (N/A, Sat, 14 Nov 2026 22:20:00 -0800)
+
+- **Netanyahu says only a unity government can guarantee Israel’s security**: [Link](https://www.aljazeera.com/news/2026/11/14/netanyahu-says-only-a-unity-government-can-guarantee-israels-security)
+- **Gadi Eisenkot, Israeli PM hopeful and 'son of immigrants' born in Casablanca and Marrakech, draws interest in Morocco**: [Link](https://www.lemonde.fr/en/le-monde-africa/article/2026/11/14/gadi-eisenkot-israeli-pm-hopeful-and-son-of-immigrants-born-in-casablanca-and-marrakech-draws-interest-in-morocco_6780523_124.html)
+- **Licensable picture: VfL Wolfsburg vs. Bayern Munich**: [Link](https://www.reutersconnect.com/item/vfl-wolfsburg-vs-bayern-munich/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX0RQQUFQSVMyNjExMTVYOTlYMjgxODY4)
+
+
+### pluie (N/A, Sat, 14 Nov 2026 22:10:00 -0800)
+
+- **Météo aujourd'hui : dégradation générale avec pluies et vent assez fort, disparition des gelées**: [Link](https://actualite.lachainemeteo.com/actualite-meteo/2026-11-14/meteo-aujourd-hui-degradation-generale-avec-pluies-et-vent-assez-fort-disparition-des-gelees-94216)
+- **Rafales à plus de 100km/h, fortes pluies, orages… Météo France place une soixantaine de départements en vigilance**: [Link](https://actu.fr/meteo/rafales-a-plus-de-100-km-h-coup-de-vent-ce-dimanche-avant-une-tempete-mardi-les-vigilances-de-meteo-france_65052656.html)
+- **Coup de vent ce dimanche sur la France : découvrez les régions concernées**: [Link](https://www.tameteo.com/actualites/previsions/coup-de-vent-ce-dimanche-sur-la-france-decouvrez-les-regions-concernees.html)
+
+
 ### ciryl gane (N/A, Sat, 14 Nov 2026 17:20:00 -0800)
 
 - **∇ω=>+ROJADIRECTA! Gane Vs Hokit In Diretta Streaming Tv**: [Link](https://www.mapleleaffoods.com/spo/video/video-gane-vs-hokit-in-diretta-online-gratistv-15.html)
