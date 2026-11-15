@@ -1,3 +1,73 @@
+### lamine yamal (N/A, Sun, 15 Nov 2026 13:50:00 -0800)
+
+- **In the Catalan press: Yamal faces an unfair Madrid campaign**: [Link](https://www.goal.com/en/news/in-the-catalan-press-yamal-faces-an-unfair-madrid-campaign/blt0e5b75251de1af60)
+- **Is Lamine Yamal playing today? Latest injury update for Spain vs England**: [Link](https://sports.yahoo.com/articles/lamine-yamal-playing-today-latest-143345385.html)
+- **With a celebratory video: Yamal fires up the atmosphere before the England clash**: [Link](https://www.livescore.com/en/news/football/more/with-a-celebratory-video-yamal-fires-up-the-atmosphere-before-the-england-clash-goal/)
+
+
+### bellingham (N/A, Sun, 15 Nov 2026 13:50:00 -0800)
+
+- **Photos: Jude Bellingham scolds Real Madrid teammate during international clash**: [Link](https://sports.yahoo.com/articles/photos-jude-bellingham-scolds-real-213000430.html)
+- **Spain vs England LIVE: Nations League score, commentary, updates & stats**: [Link](https://www.bbc.com/sport/football/live/c65y1lrepr5zt)
+- **Spain v England: Nations League – live**: [Link](https://www.theguardian.com/football/live/2026/nov/15/spain-v-england-nations-league-live)
+
+
+### classement fifa 2026 (N/A, Sun, 15 Nov 2026 13:50:00 -0800)
+
+- **Classement FIFA provisoire : le Maroc grimpe à la 5e place mondiale**: [Link](https://h24info.ma/sport/classement-fifa-provisoire-le-maroc-grimpe-a-la-5e-place-mondiale/)
+- **Classement FIFA: les Lions de l’Atlas grimpent à la 6e place après la défaite du Brésil face au Japon**: [Link](https://sport.le360.ma/football/lions-atlas/classement-fifa-les-lions-de-latlas-grimpent-a-la-6e-place-apres-la-defaite-du-bresil-face-au-japon_LYOHQR3ACRBG7LMQKT34QDTOOY/)
+- **Classement FIFA : statu quo pour la Tunisie, le Maroc de retour à sa 5e place historique !**: [Link](https://www.tunisienumerique.com/classement-fifa-statu-quo-pour-la-tunisie-le-maroc-de-retour-a-sa-5e-place-historique/)
+
+
+### عبد المجيد تبون (N/A, Sun, 15 Nov 2026 12:30:00 -0800)
+
+- **الرئيس الجزائري: قد نضطر للذهاب إلى منبع صناعة المخدرات دفاعا عن النفس**: [Link](https://www.aljazeera.net/news/2026/11/15/%D8%AF%D9%81%D8%A7%D8%B9%D8%A7-%D8%B9%D9%86-%D8%A7%D9%84%D9%86%D9%81%D8%B3-%D8%AA%D8%A8%D9%88%D9%86-%D9%8A%D9%84%D9%88%D8%AD-%D8%A8%D8%A7%D9%84%D9%88%D8%B5%D9%88%D9%84-%D8%A5%D9%84%D9%89)
+- **بعد وصفها بالحرب على بلاده... تبون يلوّح بالذهاب إلى "منبع صناعة المخدرات" دفاعا عن النفس ـ (فيديو)**: [Link](https://www.alquds.co.uk/%D8%A8%D8%B9%D8%AF-%D9%88%D8%B5%D9%81%D9%87%D8%A7-%D8%A8%D8%A7%D9%84%D8%AD%D8%B1%D8%A8-%D8%B9%D9%84%D9%89-%D8%A8%D9%84%D8%A7%D8%AF%D9%87-%D8%AA%D8%A8%D9%88%D9%86-%D9%8A%D9%84%D9%88%D9%91%D8%AD/)
+- **تبون يلوح بالحرب ضد المغرب بذريعة مكافحة المخدرات – اليوم 24**: [Link](https://alyaoum24.com/2057781.html)
+
+
+### كرواتيا ضد التشيك (N/A, Sun, 15 Nov 2026 12:30:00 -0800)
+
+- **سيناريو مجنون.. انتصار درامي لكرواتيا في دوري الأمم**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88-%D9%85%D8%AC%D9%86%D9%88%D9%86--%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%AF%D8%B1%D8%A7%D9%85%D9%8A-%D9%84%D9%83%D8%B1%D9%88%D8%A7%D8%AA%D9%8A%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85/bltde4edc2bfc96cc61)
+- **كرواتيا تهزم التشيك ومودريتش يعادل رقم ميسي في عدد المباريات الدولية**: [Link](https://twaslnews1.twaslnews.com/7753584/)
+- **اهداف مباراة كرواتيا والتشيك في دوري الامم الاوروبية**: [Link](https://www.btolat.com/video/96163)
+
+
+### bet365 (N/A, Sun, 15 Nov 2026 12:30:00 -0800)
+
+- **bet365 Bonus Code: Bet $10, Get $200 in Bonus Bets for Patriots vs. Lions in Munich**: [Link](https://www.si.com/betting-promo/bet365-bonus-code-bet-10-get-200-in-bonus-bets-for-patriots-vs-lions-in-munich-01m7avqqke7d)
+- **Betr Promo Code FOXNEWS Unlocks $200 Bonus and 4x Free Picks for Lions vs Patriots, Any Other Week 10 Game**: [Link](https://www.foxnews.com/outkick-betting/betr-promo-code-foxnews-unlocks-200-bonus-4x-free-picks-lions-vs-patriots-any-other-week-10-game)
+- **bet365 Bonus Code FOX365 Unlocks $200 in Bonus Bets for Any NFL Week 10 Matchup Including 49ers vs. Cowboys**: [Link](https://www.foxsports.com/stories/betting/bet365-bonus-code-fox365-unlocks-200-bonus-bets-any-nfl-week-10-matchup-including-49ers-vs-cowboys)
+
+
+### وقود (N/A, Sun, 15 Nov 2026 12:20:00 -0800)
+
+- **أسعار المحروقات تسجل انخفاضا طفيفا بالمغرب ابتداء من منتصف الليل**: [Link](https://www.hespress.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA-%D8%AA%D8%B3%D8%AC%D9%84-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6%D8%A7-%D8%B7%D9%81%D9%8A%D9%81%D8%A7-%D8%A8%D8%A7-1840411.html)
+- **المغرب يتوقع تراجع أسعار المحروقات ويدرس تسقيف أرباح الشركات**: [Link](https://www.aljazeera.net/ebusiness/2026/11/15/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AA%D9%88%D9%82%D8%B9-%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%AD%D8%B1%D9%88%D9%82%D8%A7%D8%AA)
+- **اليماني: تحرير المحروقات جنى على القدرة الشرائية للمغاربة**: [Link](https://assabah.ma/963019.html)
+
+
+### spain match (N/A, Sun, 15 Nov 2026 12:20:00 -0800)
+
+- **‘Just let him score’ – England fans rage at Elliot Anderson for ‘idiotic’ red card against Spain**: [Link](https://www.thesun.ie/sport/17922930/england-elliot-anderson-spain-red-card-nations-league/)
+- **What Morgan Gibbs-White did after Elliot Anderson was sent off for England**: [Link](https://www.nottinghamforest.news/2026/11/15/what-morgan-gibbs-white-did-after-elliot-anderson-was-sent-off-for-england/)
+- **Spain vs England LIVE: Nations League score, commentary, updates & stats**: [Link](https://www.bbc.com/sport/football/live/c65y1lrepr5zt)
+
+
+### croatia vs czechia (N/A, Sun, 15 Nov 2026 12:20:00 -0800)
+
+- **Preview: Croatia vs Czech Republic - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/croatia/preview/croatia-vs-czech-republic-prediction-team-news-lineups_609075.html)
+- **Licensable picture: UEFA Nations League - Group A3 - Croatia v Czech Republic**: [Link](https://www.reutersconnect.com/item/uefa-nations-league-group-a3-croatia-v-czech-republic/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkYxTzEwWEc)
+- **Croatia beats Czechia as Modrić equals Messi**: [Link](https://www.croatiaweek.com/croatia-beat-czechia-modric-equals-messi-record/)
+
+
+### france vs (N/A, Sun, 15 Nov 2026 12:00:00 -0800)
+
+- **France 2-1 Turkey: Eli Junior Kroupi scores first international goal as hosts qualify top**: [Link](https://www.bbc.com/sport/football/live/cw30g3p6vd15t)
+- **Licensable picture: Football UEFA Nations Leage match - FOOTBALL - NATIONS LEAGUE - FRANCE v TURKEY**: [Link](https://www.reutersconnect.com/item/football-uefa-nations-leage-match-football-nations-league-france-v-turkey/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEExMg)
+- **‍‍‍)#^+!!HERE'S!!(* WAY TO WATCHFrance vs Türkiye Live Free ON Tv channel 15 November 2026**: [Link](https://www.ub.edu/portal//html/js/editor/fckeditor/editor/filemanager/browser/default/browser.html?Type=File&CONNECTOR=%2F%5C%2Fkeeplearningeveryday.xyz%2Ffc%2Fconnector.php/&GetFoldersAndFiles=here-s-way-to-watchfrance-vs-turkiye-live-bbs05)
+
+
 ### بلال الخنوس (N/A, Sun, 15 Nov 2026 09:20:00 -0800)
 
 - **بينها نادي "عريق".. أندية إنجليزية تتسابق على ضم الخنوس في الميركاتو الشتوي**: [Link](https://radiomars.ma/%D8%A8%D9%8A%D9%86%D9%87%D8%A7-%D9%86%D8%A7%D8%AF%D9%8A-%D8%B9%D8%B1%D9%8A%D9%82-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B3%D8%A7%D8%A8/)
