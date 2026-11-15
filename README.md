@@ -1,3 +1,24 @@
+### ciryl gane (N/A, Sat, 14 Nov 2026 17:20:00 -0800)
+
+- **∇ω=>+ROJADIRECTA! Gane Vs Hokit In Diretta Streaming Tv**: [Link](https://www.mapleleaffoods.com/spo/video/video-gane-vs-hokit-in-diretta-online-gratistv-15.html)
+- **(++LIVE>STREAM..!!) Gane v. Hokit LIVE STREA.Ms FREE TODAY 14. 11. 2026**: [Link](https://www.mapleleaffoods.com/video/esp/video-gane-v-hokit-live-now-23.html)
+- **[𝐒𝐓ream]HERE'S*! WATCH Gane VS Hokit 𝐋𝐈𝐕𝐄 Ｓｔｒｅａｍｓ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ 14 November 2026**: [Link](https://www.mapleleaffoods.com/video/esp/video-gane-vs-hokit-live-now-11.html)
+
+
+### الصحراء الغربية (N/A, Sat, 14 Nov 2026 15:50:00 -0800)
+
+- **ما بعد "المينورسو"**: [Link](https://www.hespress.com/%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D9%85%D9%8A%D9%86%D9%88%D8%B1%D8%B3%D9%88-1839024.html)
+- **العمراني: مشروع القرار الأمريكي هو المرجع**: [Link](https://assabah.ma/962739.html)
+- **أكاديمي عربي: سرعة تفاعل الديوان الملكي تكشف استعداد المغرب لمرحلة ما بعد المينورسو (فيديو) – اليوم 24**: [Link](https://alyaoum24.com/2057012.html)
+
+
+### classement équipe d'algérie de football – équipe du togo de football (N/A, Sat, 14 Nov 2026 13:10:00 -0800)
+
+- **Qualifications CAN 2027 : l’Algérie s’impose dans la douleur face au Togo et conforte sa première place**: [Link](https://www.footmercato.net/a8750941422328460738-qualifications-can-2027-lalgerie-simpose-dans-la-douleur-face-au-togo-et-conforte-sa-premiere-place)
+- **Le Bayern Munich accroche le Togo grâce à un but de Ben Sebaïni, et l'Algérie reste invincible dans les éliminatoires de la CAN**: [Link](https://www.goal.com/fr/news/le-bayern-munich-accroche-le-togo-grace-a-un-but-de-ben-sebaini-et-l-algerie-reste-invincible-dans-les-eliminatoires-de-la-can/blt13c4c6c51878123d)
+- **CAN : Captain Bensebaïni sauve les Verts (Rachid Belarbi)**: [Link](https://www.footafrique.com/can-captain-bensebaini-sauve-les-verts-rachid-belarbi/)
+
+
 ### ufc (N/A, Sat, 14 Nov 2026 15:20:00 -0800)
 
 - **Prelim Results | Polymarket UFC 334: Gane vs Hokit**: [Link](https://www.ufc.com/news/polymarket-ufc-334-gane-vs-hokit-prelim-results)
