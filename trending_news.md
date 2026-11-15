@@ -1,3 +1,73 @@
+### بلال الخنوس (N/A, Sun, 15 Nov 2026 09:20:00 -0800)
+
+- **بينها نادي "عريق".. أندية إنجليزية تتسابق على ضم الخنوس في الميركاتو الشتوي**: [Link](https://radiomars.ma/%D8%A8%D9%8A%D9%86%D9%87%D8%A7-%D9%86%D8%A7%D8%AF%D9%8A-%D8%B9%D8%B1%D9%8A%D9%82-%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B3%D8%A7%D8%A8/)
+- **40 مليون أورو تُعيد الخنوس إلى "البريميرليغ"**: [Link](https://www.almountakhab.com/node/13232922)
+- **عرض من الدوري الإنجليزي لضم نجم منتخب المغرب**: [Link](https://www.vetogate.com/5770189)
+
+
+### star academy (N/A, Sun, 15 Nov 2026 08:30:00 -0800)
+
+- **Star Academy 2026 - La lettre de Tracy bouleverse Amel**: [Link](https://www.tf1.fr/fr-ma/tf1/star-academy/videos/star-academy-2026-la-lettre-de-tracy-bouleverse-amel-31448489.html)
+- **Amel (Star Academy) éclate en sanglots et quitte le débrief de Lydia Bouchard : "C'est une dure journée"**: [Link](https://www.programme-tv.net/news/tv/411113-amel-star-academy-eclate-en-sanglots-et-quitte-le-debrief-de-lydia-bouchard-c-est-une-dure-journee/)
+- **Star Academy : "ça va être compliqué", Amel affectée et effondrée après l'élimination de Tracy**: [Link](https://www.diverto.tv/actualites/tele/star-academy-ca-va-etre-complique-amel-affectee-et-effondree-apres-l-elimination-de-tracy)
+
+
+### premier ministre israélien (N/A, Sun, 15 Nov 2026 07:50:00 -0800)
+
+- **En Israël, Netanyahou et Eisenkot s’opposent sur un gouvernement d’union**: [Link](https://www.20minutes.fr/monde/4262900-20261114-israel-netanyahou-appelle-gouvernement-union-face-iran-eisenkot-denonce-ruses)
+- **Gadi Eisenkot, possible futur premier ministre d’Israël et « fils d’immigrés » nés à Casablanca et Marrakech, suscite l’intérêt au Maroc**: [Link](https://www.lemonde.fr/afrique/article/2026/11/13/gadi-eisenkot-possible-futur-premier-ministre-d-israel-et-fils-d-immigres-nes-a-casablanca-et-marrakech-suscite-l-interet-au-maroc_6809296_3212.html)
+- **Israël: le bras de fer Eisenkot-Netanyahu se poursuit, la formation d'un gouvernement piétine**: [Link](https://www.rfi.fr/fr/moyen-orient/20261114-isra%C3%ABl-le-bras-de-fer-eisenkot-netanyahu-se-poursuit-la-formation-d-un-gouvernement-pi%C3%A9tine)
+
+
+### spain vs england (N/A, Sun, 15 Nov 2026 07:30:00 -0800)
+
+- **Spain v England: Nations League test will reveal if Thomas Tuchel has learned lessons**: [Link](https://www.bbc.com/sport/football/articles/cq2d9l3e313zo)
+- **Licensable picture: England Press Conference - UEFA Nations League 2026/27**: [Link](https://www.reutersconnect.com/item/england-press-conference-uefa-nations-league-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBESE9DMUU)
+- **bet365 bonus code: Get £30 in Nations League free bets**: [Link](https://mybettingsites.co.uk/news/bet365-bonus-code-get-30-in-nations-league-free-bets-nov-15/)
+
+
+### سد (N/A, Sun, 15 Nov 2026 07:30:00 -0800)
+
+- **نسبة ملء السدود المغربية ترتفع إلى 66,27% مع تحسن الموارد المائية**: [Link](https://www.hespress.com/%D9%86%D8%B3%D8%A8%D8%A9-%D9%85%D9%84%D8%A1-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B1%D8%AA%D9%81%D8%B9-%D8%A5%D9%84%D9%89-6627-%D9%85%D8%B9-1840175.html)
+- **سدود المغرب تبلغ 66,19% من طاقتها التخزينية مقابل 30,79% قبل عام**: [Link](https://anwarpress.com/743521/)
+- **انتعاش حقينة السدود بالمغرب.. المخزون المائي يتجاوز 11 مليار متر مكعب ويعيد رسم مؤشرات الأمن المائي**: [Link](https://2m.ma/ar/news/%D8%A7%D9%86%D8%AA%D8%B9%D8%A7%D8%B4-%D8%AD%D9%82%D9%8A%D9%86%D8%A9-%D8%A7%D9%84%D8%B3%D8%AF%D9%88%D8%AF-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%AE%D8%B2%D9%88%D9%86-%D8%A7%D9%84%D9%85%D8%A7%D8%A6%D9%8A-%D9%8A%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-11-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D9%85%D8%AA%D8%B1-20261110)
+
+
+### دوري أبطال إفريقيا للسيدات (N/A, Sun, 15 Nov 2026 06:20:00 -0800)
+
+- **ثلاثية في شباك صن داونز تمنح الجيش الملكي لقب دوري الأبطال للسيدات**: [Link](https://www.hespress.com/%D8%AB%D9%84%D8%A7%D8%AB%D9%8A%D8%A9-%D9%81%D9%8A-%D8%B4%D8%A8%D8%A7%D9%83-%D8%B5%D9%86-%D8%AF%D8%A7%D9%88%D9%86%D8%B2-%D8%AA%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84-1840376.html)
+- **يمكن لعشاق كرة القدم في أفريقيا والعالم متابعة نهائي دوري أبطال أفريقيا للسيدات (مصر 2026) يوم الأحد عبر البث المباشر**: [Link](https://www.cafonline.com/ar/%D8%B1%D8%A7%D8%A8%D8%B7%D8%A9-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A3%D9%8A%D9%86-%D9%8A%D9%85%D9%83%D9%86%D9%83%D9%85-%D8%A7%D9%84%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%88%D9%85%D8%A7%D9%85%D9%8A%D9%84%D9%88%D8%AF%D9%8A-%D8%B5%D9%86%D8%AF%D8%A7%D9%88%D9%86%D8%B2-%D9%8A%D8%AA%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D9%86-%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%AD%D8%AF-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D9%84%D9%84%D9%81%D9%88%D8%B2-%D8%A8%D9%84%D9%82%D8%A8-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D9%84%D9%84%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D9%84%D9%84%D9%85%D8%B1%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB%D8%A9/)
+- **سيدات الجيش الملكي يؤكدن استعدادهن للدفاع عن اللقب الإفريقي أمام صان داونز**: [Link](https://radiomars.ma/%D8%B3%D9%8A%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A-%D9%8A%D8%A4%D9%83%D8%AF%D9%86-%D8%A7%D8%B3%D8%AA%D8%B9%D8%AF%D8%A7%D8%AF%D9%87%D9%86-%D9%84%D9%84/)
+
+
+### وائل محيا (N/A, Sun, 15 Nov 2026 06:00:00 -0800)
+
+- **"المغرب جزء من عائلتي" .. وائل محيا يكشف كواليس اللعب مع ألمانيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AC%D8%B2%D8%A1-%D9%85%D9%86-%D8%B9%D8%A7%D8%A6%D9%84%D8%AA%D9%8A-%D9%88%D8%A7%D8%A6%D9%84-%D9%85%D8%AD%D9%8A%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88-1840279.html)
+- **وائل محيا.. المغرب "جزء من عائلتي" لكن كلوب أقنعني بتمثيل ألمانيا**: [Link](https://www.aljazeera.net/sport/2026/11/15/%D9%88%D8%A7%D8%A6%D9%84-%D9%85%D8%AD%D9%8A%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AC%D8%B2%D8%A1-%D9%85%D9%86-%D8%B9%D8%A7%D8%A6%D9%84%D8%AA%D9%8A-%D9%84%D9%83%D9%86)
+- **موحيا يكشف سر إختياره اللعب مع ألمانيا عوض « الأسود »**: [Link](https://ar.sport.le360.ma/football/LU5ETD5YDBB73GCWMF223JJBN4/)
+
+
+### موت (N/A, Sun, 15 Nov 2026 06:00:00 -0800)
+
+- **بالفيديو.. الممثل التركي مراد يلدريم ينقذ شابة من الدهس أمام حافلة**: [Link](https://www.aljazeera.net/arts/2026/11/15/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D9%85%D9%85%D8%AB%D9%84-%D8%A7%D9%84%D8%AA%D8%B1%D9%83%D9%8A-%D9%85%D8%B1%D8%A7%D8%AF-%D9%8A%D9%84%D8%AF%D8%B1%D9%8A%D9%85)
+- **مراد يلدريم ينقذ شابة من الدهس في اللحظة الأخيرة (فيديو)**: [Link](https://www.annahar.com/lifestyle/arts/366442/%D9%85%D8%B1%D8%A7%D8%AF-%D9%8A%D9%84%D8%AF%D8%B1%D9%8A%D9%85-%D9%8A%D9%86%D9%82%D8%B0-%D9%81%D8%AA%D8%A7%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AF%D9%87%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%84%D8%A3%D8%AE%D9%8A%D8%B1%D8%A9-%D9%81%D9%8A%D8%AF%D9%8A%D9%88)
+- **مراد يلدريم ينقذ شابة من الموت دهسًا في إسطنبول**: [Link](https://al-ain.com/article/murat-yldrm-saves-young-woman-from-being-run-over)
+
+
+### الولايات المتحدة (N/A, Sun, 15 Nov 2026 05:10:00 -0800)
+
+- **وول ستريت جورنال تكشف السبب وراء تعطل نظام الرحلات في أمريكا**: [Link](https://www.aljazeera.net/news/2026/11/15/%D9%88%D9%88%D9%84-%D8%B3%D8%AA%D8%B1%D9%8A%D8%AA-%D8%AC%D9%88%D8%B1%D9%86%D8%A7%D9%84-%D8%AA%D9%83%D8%B4%D9%81-%D8%A7%D9%84%D8%B3%D8%A8%D8%A8-%D9%88%D8%B1%D8%A7%D8%A1-%D8%AA%D8%B9%D8%B7%D9%84)
+- **شلل الطيران الأميركي.. ترامب يحمّل بايدن المسؤولية**: [Link](https://www.skynewsarabia.com/world/1904907-%D8%B4%D9%84%D9%84-%D8%A7%D9%84%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-%D9%8A%D8%AD%D9%85%D9%84-%D8%A8%D8%A7%D9%8A%D8%AF%D9%86-%D8%A7%D9%84%D9%85%D8%B3%D8%A4%D9%88%D9%84%D9%8A%D8%A9)
+- **“لا أعرف ماذا أفعل“.. طيار متدرب يُجبر على الهبوط بطائرته في أول رحلة منفردة له**: [Link](https://arabic.cnn.com/miscellaneous/video/2026/11/14/v205316-audio-captures-student-pilot-forced-to-land-plane-amid-nationwide-ground-stop)
+
+
+### héritage (N/A, Sun, 15 Nov 2026 05:00:00 -0800)
+
+- **Un compte bancaire de 900 000 euros oublié dans un héritage : dix-sept ans après la mort du père, les deux frères se retrouvent en justice**: [Link](https://actu.fr/ile-de-france/paris_75056/un-compte-bancaire-de-900-000-euros-oublie-dans-un-heritage-dix-sept-ans-apres-la-mort-du-pere-les-deux-freres-se-retrouvent-en-justice_65046809.html)
+- **900.000 euros oubliés dans un héritage, deux frères règlent leurs comptes**: [Link](https://www.20minutes.fr/justice/4262954-20261115-fisc-retrouve-compte-oublie-900-000-euros-deux-freres-heritiers-reglent-comptes-devant-tribunal)
+- **Le fisc retrouve un compte oublié de 900.000 euros, deux frères héritiers règlent leurs comptes devant le tribunal**: [Link](https://fr.news.yahoo.com/fisc-retrouve-compte-oubli%C3%A9-900-142245653.html)
+
+
 ### صاروخ (N/A, Sun, 15 Nov 2026 00:50:00 -0800)
 
 - **الاستخبارات الأميركية تحدد عدد الصواريخ التي تملكها إيران**: [Link](https://www.skynewsarabia.com/world/1904830-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D9%8A%D8%B1%D9%83%D9%8A%D8%A9-%D8%AA%D8%AD%D8%AF%D8%AF-%D8%B9%D8%AF%D8%AF-%D8%A7%D9%84%D8%B5%D9%88%D8%A7%D8%B1%D9%8A%D8%AE-%D8%AA%D9%85%D9%84%D9%83%D9%87%D8%A7-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86)
