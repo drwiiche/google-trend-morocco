@@ -1,3 +1,73 @@
+### actualité (N/A, Mon, 16 Nov 2026 00:40:00 -0800)
+
+- **Vidéo. L’info du jour | 15 novembre 2026 - Soir**: [Link](https://fr.euronews.com/video/2026/11/15/linfo-du-jour-15-novembre-2026-soir)
+- **L’info du jour | 16 novembre 2026 - Matin**: [Link](https://fr.news.yahoo.com/l-info-jour-16-novembre-060016828.html)
+- **L'actu du 13 novembre 2026**: [Link](https://www.bfmtv.com/grand-lille/replay-emissions/bonsoir-lille/video-l-actu-du-13-novembre-2026_VN-202611130827.html)
+
+
+### benyamin netanyahou (N/A, Mon, 16 Nov 2026 00:30:00 -0800)
+
+- **Eisenkot says Netanyahu can’t remain Israel PM amid alleged vote meddling**: [Link](https://www.aljazeera.com/news/2026/11/16/eisenkot-says-netanyahu-cant-remain-israel-pm-amid-alleged-vote-meddling)
+- **Yashar MK and ex-Shin Bet chief Cohen urges probe into alleged police role on election day**: [Link](https://www.timesofisrael.com/liveblog_entry/yashar-mk-and-ex-shin-bet-chief-cohen-urges-probe-into-alleged-police-role-on-election-day/)
+- **Eisenkot says Netanyahu ‘cannot remain’ after alleged election interference by aide**: [Link](https://www.france24.com/en/middle-east/20261116-eisenkot-netanyahu-cannot-stay-in-office)
+
+
+### radio mars (N/A, Mon, 16 Nov 2026 00:10:00 -0800)
+
+- **"المغرب جزء من عائلتي" .. وائل محيا يكشف كواليس اللعب مع ألمانيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AC%D8%B2%D8%A1-%D9%85%D9%86-%D8%B9%D8%A7%D8%A6%D9%84%D8%AA%D9%8A-%D9%88%D8%A7%D8%A6%D9%84-%D9%85%D8%AD%D9%8A%D8%A7-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88-1840279.html)
+- **وائل موحيا: المغرب جزء من عائلتي.. وكلوب أقنعني باختيار ألمانيا**: [Link](https://lakome2.com/sport/437917/)
+- **كلوب يستبعد موحيا مجددا من قائمة ألمانيا لمواجهة هولندا**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/501617.html)
+
+
+### drogue (N/A, Sun, 15 Nov 2026 23:40:00 -0800)
+
+- **Les yeux rivés sur le Maroc, l’Algérie hausse le ton contre la drogue**: [Link](https://www.20minutes.fr/monde/maroc/4263013-20261116-yeux-rives-maroc-algerie-hausse-contre-drogue)
+- **L'Algérie menace de s'en prendre aux fabricants de drogue à la «source»**: [Link](https://www.lefigaro.fr/flash-actu/l-algerie-menace-de-s-en-prendre-aux-fabricants-de-drogue-a-la-source-20261115)
+- **Président de la République: de nouvelles lois plus strictes seront instituées pour mettre fin aux pratiques négatives touchant le pouvoir d'achat**: [Link](https://www.lexpressiondz.com/info-en-continu/president-de-la-republique-de-nouvelles-lois-plus-strictes-seront-instituees-pour-mettre-fin-aux-pratiques-negatives-touchant-le-pouvoir-d-achat-352617)
+
+
+### عامل (N/A, Sun, 15 Nov 2026 22:30:00 -0800)
+
+- **تفاقم خصاص العمال الزراعيين يدفع الفلاحين المغاربة إلى البحث عن بدائل**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%A7%D9%82%D9%85-%D8%AE%D8%B5%D8%A7%D8%B5-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%84-%D8%A7%D9%84%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A%D9%8A%D9%86-%D9%8A%D8%AF%D9%81%D8%B9-%D8%A7%D9%84%D9%81%D9%84-1840198.html)
+- **ازدحام ميناء الجزيرة الخضراء يدفع مصدّري الفواكه الحمراء المغربية للبحث عن بدائل**: [Link](https://ar.yabiladi.com/articles/details/207685/%D8%A7%D8%B2%D8%AF%D8%AD%D8%A7%D9%85-%D9%85%D9%8A%D9%86%D8%A7%D8%A1-%D8%A7%D9%84%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1%D8%A7%D8%A1-%D9%8A%D8%AF%D9%81%D8%B9.html)
+- **أكادير.. المؤتمر المغربي للتوت والفواكه الحمراء يبحث سبل تطوير نماذج الإنتاج**: [Link](https://www.medi1news.com/ar/article/415964.html)
+
+
+### طقس (N/A, Sun, 15 Nov 2026 22:20:00 -0800)
+
+- **توقعات الطقس ودرجات الحرارة بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D9%88%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-1840448.html)
+- **طقس الاثنين: أجواء مستقرة مع كتل ضبابية فوق السهول**: [Link](https://ar.le360.ma/societe/DIKXOV5HKJEWZEWKZBKBX7OX7E/)
+- **طقس الأحد: السماء صافية إلى قليلة السحب في عدد من المناطق – اليوم 24**: [Link](https://alyaoum24.com/2057654.html)
+
+
+### نصير مزراوي (N/A, Sun, 15 Nov 2026 22:20:00 -0800)
+
+- **بطلب من أموريم.. ميلان يتحرك لضم نجم مغربي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B7%D9%84%D8%A8-%D9%85%D9%86-%D8%A7%D9%94%D9%85%D9%88%D8%B1%D9%8A%D9%85--%D9%85%D9%8A%D9%84%D8%A7%D9%86-%D9%8A%D8%AA%D8%AD%D8%B1%D9%83-%D9%84%D8%B6%D9%85-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A/blt1280fd2e77de2aec)
+- **مفاجأة في مستقبل مزراوي.. فريق ايطالي يتحرك للاستفادة من خدماته.**: [Link](https://radiomars.ma/%D9%85%D9%81%D8%A7%D8%AC%D8%A3%D8%A9-%D9%81%D9%8A-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D9%85%D8%B2%D8%B1%D8%A7%D9%88%D9%8A-%D9%81%D8%B1%D9%8A%D9%82-%D8%A7%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-%D9%8A%D8%AA/)
+- **بريق وأرقام مثيرة.. رسالة مزراوي القوية إلى "يونايتد"**: [Link](https://www.almountakhab.com/node/13232921)
+
+
+### carburant (N/A, Sun, 15 Nov 2026 21:30:00 -0800)
+
+- **Cartes carburant : la "multicard" devient la norme**: [Link](https://journaldupoidslourd.com/services/cartes-carburant-la-multicard-devient-la-norme/)
+- **Carburants : le gasoil et l’essence en baisse à partir du 16 novembre**: [Link](https://ledesk.ma/encontinu/carburants-le-gasoil-et-lessence-en-baisse-a-partir-du-16-novembre/)
+- **Les prix du gasoil reculent de 0,20 DH/L à partir du lundi 16 novembre**: [Link](https://medias24.com/2026/11/15/les-prix-du-gasoil-reculent-de-020-dh-l-a-partir-du-lundi-16-novembre-1791403/)
+
+
+### التمر (N/A, Sun, 15 Nov 2026 21:30:00 -0800)
+
+- **متى تتناول التمر؟.. خبراء يكشفون أفضل توقيت لتعزيز الطاقة وتحسين الهضم**: [Link](https://www.alarabiya.net/medicine-and-health/2026/11/15/%D9%85%D8%AA%D9%89-%D8%AA%D8%AA%D9%86%D8%A7%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D9%85%D8%B1-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%8A%D9%83%D8%B4%D9%81%D9%88%D9%86-%D8%A7%D9%81%D8%B6%D9%84-%D8%AA%D9%88%D9%82%D9%8A%D8%AA-%D9%84%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%A7%D9%84%D8%B7%D8%A7%D9%82%D8%A9-%D9%88%D8%AA%D8%AD%D8%B3%D9%8A%D9%86-%D8%A7%D9%84%D9%87%D8%B6%D9%85)
+- **أفضل وقت لتناول التمر.. خبراء يكشفون فوائده للطاقة والهضم**: [Link](https://akhbarelyom.com/news/newdetails/4907341/1/%D8%A3%D9%81%D8%B6%D9%84-%D9%88%D9%82%D8%AA-%D9%84%D8%AA%D9%86%D8%A7%D9%88%D9%84-%D8%A7%D9%84%D8%AA%D9%85%D8%B1-%D8%AE%D8%A8%D8%B1%D8%A7%D8%A1-%D9%8A%D9%83%D8%B4%D9%81%D9%88%D9%86-%D9%81%D9%88%D8%A7%D8%A6%D8%AF)
+- **أفضل أوقات تناول التمر لتعزيز الطاقة وتحسين الهضم**: [Link](https://nn.najah.edu/news/last_page/2026/11/16/574773/)
+
+
+### prix gasoil maroc (N/A, Sun, 15 Nov 2026 20:30:00 -0800)
+
+- **Carburants : le gasoil et l’essence en baisse à partir du 16 novembre**: [Link](https://ledesk.ma/encontinu/carburants-le-gasoil-et-lessence-en-baisse-a-partir-du-16-novembre/)
+- **Les prix du gasoil reculent de 0,20 DH/L à partir du lundi 16 novembre**: [Link](https://medias24.com/2026/11/15/les-prix-du-gasoil-reculent-de-020-dh-l-a-partir-du-lundi-16-novembre-1791403/)
+- **Carburants : Légère baisse des prix à la pompe à partir de ce lundi**: [Link](https://www.leconomiste.com/flash-infos/carburants-legere-baisse-des-prix-a-la-pompe-a-partir-de-ce-lundi/)
+
+
 ### abdelmadjid tebboune (N/A, Sun, 15 Nov 2026 16:40:00 -0800)
 
 - **Président de la République: de nouvelles lois plus strictes seront instituées pour mettre fin aux pratiques négatives touchant le pouvoir d'achat**: [Link](https://www.lexpressiondz.com/info-en-continu/president-de-la-republique-de-nouvelles-lois-plus-strictes-seront-instituees-pour-mettre-fin-aux-pratiques-negatives-touchant-le-pouvoir-d-achat-352617)
