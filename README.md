@@ -1,3 +1,71 @@
+### gta vi (N/A, Mon, 16 Nov 2026 11:30:00 -0800)
+
+- **Pre-Load Grand Theft Auto VI Now**: [Link](https://www.rockstargames.com/newswire/article/89834o94713o21/pre-load-grand-theft-auto-vi-now)
+- **GTA 6 Gets Another Day One Patch, and It’s 1GB Bigger on Xbox**: [Link](https://www.ign.com/articles/gta-6-gets-another-day-one-patch-bigger-on-xbox)
+- **A mention of a 120Hz mode has been found in the files of the PS5 Pro version of GTA 6.**: [Link](https://en.gamegpu.com/news/igry/v-fajlakh-versii-gta-6-dlya-ps5-pro-obnaruzheno-upominanie-rezhima-120-gts)
+
+
+### ألمانيا ضد هولندا (N/A, Mon, 16 Nov 2026 11:10:00 -0800)
+
+- **جدول مباريات اليوم الإثنين 16 نوفمبر 2026 .. القنوات الناقلة والمعلقين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AC%D8%AF%D9%88%D9%84-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D9%95%D8%AB%D9%86%D9%8A%D9%86-16-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2026-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%88%D8%A7%D9%84%D9%85%D8%B9%D9%84%D9%82%D9%8A%D9%86/blt9db75cfcab8cf757)
+- **هولندا وألمانيا.. قمة تشافي لمتابعة الإمتاع وكلوب لتجاوز السقوط**: [Link](https://www.alaraby.co.uk/sport/%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%88%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D9%82%D9%85%D8%A9-%D8%AA%D8%B4%D8%A7%D9%81%D9%8A-%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%A7%D9%84%D8%A5%D9%85%D8%AA%D8%A7%D8%B9-%D9%88%D9%83%D9%84%D9%88%D8%A8-%D9%84%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A7%D9%84%D8%B3%D9%82%D9%88%D8%B7)
+- **مباشر.. مباراة ألمانيا وهولندا في دوري الأمم الأوروبية**: [Link](https://www.eremnews.com/sports/guvs2u5)
+
+
+### suisse – écosse (N/A, Mon, 16 Nov 2026 11:10:00 -0800)
+
+
+
+
+### germany vs netherlands (N/A, Mon, 16 Nov 2026 11:10:00 -0800)
+
+- **Licensable picture: Tübingen - City Council Meeting with Mayor Palmer**: [Link](https://www.reutersconnect.com/item/tubingen-city-council-meeting-with-mayor-palmer/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX0RQQUFQSVMyNjExMTZYOTlYMjk4MTgw)
+- **Licensable picture: Remembrance Day - Leipzig**: [Link](https://www.reutersconnect.com/item/remembrance-day-leipzig/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX0RQQUFQSVMyNjExMTVYOTlYMjgzNTY1)
+- **Licensable picture: VfB Stuttgart vs. Bayer Leverkusen**: [Link](https://www.reutersconnect.com/item/vfb-stuttgart-vs-bayer-leverkusen/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX0RQQUFQSVMyNjExMTZYOTlYMjk3MzM2)
+
+
+### allemagne – pays-bas (N/A, Mon, 16 Nov 2026 11:00:00 -0800)
+
+- **Jürgen Klopp-Xavi, retrouvailles corsées après des débuts contrastés sur le banc de l'Allemagne et des Pays-Bas**: [Link](https://www.lequipe.fr/Football/Article/Jurgen-klopp-xavi-des-destins-en-miroir-mais-des-debuts-contrastes-avec-l-allemagne-et-les-pays-bas/1743845)
+- **Ligue des nations, Journée 6, l’avant-match, l’Allemagne accueille les Pays-Bas, la Grèce reçoit la Serbie**: [Link](https://fr.uefa.com/uefanationsleague/news/02ab-2213cb407716-d5be4da798f2-1000--ligue-des-nations-journee-6-l-avant-match-l-allemagne-acc/)
+- **« À gauche… » : fans oranje, pré-fête dansante et défilé à Berlin**: [Link](https://onefootball.com/fr/news/a-gauche-fans-oranje-pre-fete-dansante-et-defile-a-berlin-43784508)
+
+
+### اتحاد شمال إفريقيا لكرة القدم (N/A, Mon, 16 Nov 2026 10:50:00 -0800)
+
+- **تشكيلة المنتخب الوطني لاقل من 17 سنة امام تونس**: [Link](https://frmf.ma/articles/17-26)
+- **بالفيديو.. الجزائر تهزم مصر وتتوج ببطولة شمال أفريقيا للناشئين**: [Link](https://www.aljazeera.net/sport/2026/11/16/%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%83%D8%A3%D8%B3-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86)
+- **"أشبال U17" يهزمون تونس بخماسية**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D9%8A%D9%87%D8%B2%D9%85%D9%88%D9%86-%D8%AA%D9%88%D9%86%D8%B3-%D8%A8%D8%AE%D9%85%D8%A7%D8%B3%D9%8A%D8%A9-1840764.html)
+
+
+### عيد الاستقلال (N/A, Mon, 16 Nov 2026 09:50:00 -0800)
+
+- **مراكش والي الأمن محمد مشيشو يتفقد الاستعدادات لافتتاح الدائرة الأمنية 26 وتعزيزات جديدة مرتقبة للبنية الأمنية بالمدينة**: [Link](https://www.bayanemarrakech.com/%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D9%88%D8%A7%D9%84%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%86-%D9%85%D8%AD%D9%85%D8%AF-%D9%85%D8%B4%D9%8A%D8%B4%D9%88-%D9%8A%D8%AA%D9%81%D9%82%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3/)
+- **مراكش.. دوائر أمنية تشتكي من الوسائل اللوجستيكية**: [Link](https://ar.hibapress.com/details-776033.html)
+- **والي أمن مراكش يتفقد الدائرة الأمنية 26 بحي مبروكة قبل تدشي?...**: [Link](https://kech24.com/%D9%88%D8%A7%D9%84%D9%8A-%D8%A3%D9%85%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D9%8A%D8%AA%D9%81%D9%82%D8%AF-%D8%A7%D9%84%D8%AF%D8%A7%D8%A6%D8%B1%D8%A9-%D8%A7%D9%84%D8%A3%D9%85%D9%86%D9%8A%D8%A9-26-%D8%A8%D8%AD%D9%8A-%D9%85%D8%A8%D8%B1%D9%88%D9%83%D8%A9-%D9%82%D8%A8%D9%84-%D8%AA%D8%AF%D8%B4%D9%8A%D9%86%D9%87%D8%A7-%D8%A8%D9%85%D9%86%D8%A7%D8%B3%D8%A8%D8%A9-%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D9%82%D9%84%D8%A7%D9%84.html)
+
+
+### abdelmadjid tebboune (N/A, Mon, 16 Nov 2026 09:50:00 -0800)
+
+- **Les yeux rivés sur le Maroc, l’Algérie hausse le ton contre la drogue**: [Link](https://www.20minutes.fr/monde/maroc/4263013-20261116-yeux-rives-maroc-algerie-hausse-contre-drogue)
+- **Tebboune, le va-t-en-guerre qui cherche sa guerre**: [Link](https://fr.le360.ma/monde/tebboune-le-va-t-en-guerre-qui-cherche-sa-guerre_OUYCN3P44ZBI7DHPMQWRMK65YU/)
+- **Algérie-Maroc : Tebboune joue avec le feu**: [Link](https://www.maroc-hebdo.com/article/algerie-maroc-tebboune-joue-avec-le-feu)
+
+
+### موعد اذان المغرب (N/A, Mon, 16 Nov 2026 09:40:00 -0800)
+
+- **مواقيت الصلاة في القاهرة والجيزة اليوم.. توقيت صلاة العشاء 16_11_2026**: [Link](https://twaslnews1.twaslnews.com/7793662/)
+- **«الفجر في الإسكندرية 04.58».. جدول مواقيت الصلاة في محافظات مصر غدًا الثلاثاء 17 نوفمبر 2026**: [Link](https://www.almasryalyoum.com/news/details/4412267)
+- **مواقيت الصلاة في مصر اليوم الاثنين 16 نوفمبر 2026**: [Link](https://darelhilal.com/News/3344540.aspx)
+
+
+### منتخب الجزائر لكرة القدم (N/A, Mon, 16 Nov 2026 08:50:00 -0800)
+
+- **موعد مباراة توغو ضد الجزائر في تصفيات كأس أمم أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/11/16/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%BA%D9%88-%D8%B6%D8%AF-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1)
+- **ما القنوات الناقلة لمباراة توجو والجزائر في تصفيات كأس أمم أفريقيا 2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D8%AC%D9%88-%D9%88%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D9%8A%D9%94%D8%B1-%D9%81%D9%8A-%D8%AA%D8%B5%D9%81%D9%8A%D8%A7%D8%AA-%D9%83%D8%A7%D9%94%D8%B3-%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%94%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt4ebfa2e86ab7787e)
+- **الجزائر تفوز على توغو بشق الأنفس وتعزز صدارتها للمجموعة التاسعة**: [Link](https://aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%81%D9%88%D8%B2-%D8%B9%D9%84%D9%89-%D8%AA%D9%88%D8%BA%D9%88-%D8%A8%D8%B4%D9%82-%D8%A7%D9%84%D8%A3%D9%86%D9%81%D8%B3-%D9%88%D8%AA%D8%B9%D8%B2%D8%B2-%D8%B5%D8%AF%D8%A7%D8%B1%D8%AA%D9%87%D8%A7-%D9%84%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B3%D8%B9%D8%A9/4125502)
+
+
 ### actualité (N/A, Mon, 16 Nov 2026 00:40:00 -0800)
 
 - **Vidéo. L’info du jour | 15 novembre 2026 - Soir**: [Link](https://fr.euronews.com/video/2026/11/15/linfo-du-jour-15-novembre-2026-soir)
