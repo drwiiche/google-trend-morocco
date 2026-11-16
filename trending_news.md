@@ -1,3 +1,37 @@
+### abdelmadjid tebboune (N/A, Sun, 15 Nov 2026 16:40:00 -0800)
+
+- **Président de la République: de nouvelles lois plus strictes seront instituées pour mettre fin aux pratiques négatives touchant le pouvoir d'achat**: [Link](https://www.lexpressiondz.com/info-en-continu/president-de-la-republique-de-nouvelles-lois-plus-strictes-seront-instituees-pour-mettre-fin-aux-pratiques-negatives-touchant-le-pouvoir-d-achat-352617)
+- **SECTEUR DE LA JUSTICE : Lutter efficacement contre les formes de criminalité grave**: [Link](https://lecourrier-dalgerie.com/secteur-de-la-justice-lutter-efficacement-contre-les-formes-de-criminalite-grave/)
+- **Le président Tebboune : « La majorité intègre souffre face à la minorité corrompue »**: [Link](https://lapatrienews.dz/le-president-tebboune-la-majorite-integre-souffre-face-a-la-minorite-corrompue/)
+
+
+### طيران (N/A, Sun, 15 Nov 2026 16:00:00 -0800)
+
+- **استمرار أزمة الطيران بالولايات المتحدة وترمب يحمّل بايدن مسؤولية "الكارثة"**: [Link](https://www.aljazeera.net/news/2026/11/15/%D8%A7%D8%B3%D8%AA%D9%85%D8%B1%D8%A7%D8%B1-%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D8%AD%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D8%B7%D9%8A%D8%B1%D8%A7%D9%86-%D9%81%D9%8A)
+- **اضطرابات الطيران لليوم الثالث بأمريكا**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%B7%D9%84-%D8%A7%D9%84%D8%B1%D8%AD%D9%84%D8%A7%D8%AA-%D8%A8%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D9%84%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AB-1840402.html)
+- **الولايات المتحدة.. إنجاز 70 بالمئة من تحديث اتصالات الملاحة الجوية**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%84%D9%88%D9%84%D8%A7%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%A5%D9%86%D8%AC%D8%A7%D8%B2-70-%D8%A8%D8%A7%D9%84%D9%85%D8%A6%D8%A9-%D9%85%D9%86-%D8%AA%D8%AD%D8%AF%D9%8A%D8%AB-%D8%A7%D8%AA%D8%B5%D8%A7%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D8%AC%D9%88%D9%8A%D8%A9/4125667)
+
+
+### derb ghallef (N/A, Sun, 15 Nov 2026 15:10:00 -0800)
+
+- **Derb Ghallef: le projet de transformation relancé, l’expropriation bientôt à l’ordre du jour du conseil de la ville**: [Link](https://fr.le360.ma/economie/derb-ghallef-le-projet-de-transformation-relance-lexpropriation-bientot-a-lordre-du-jour-du-conseil_6ADIFOSRWFDPXFDSMEKNFA6JLM/)
+- **La transformation du souk de Derb Ghallef relancée à Casablanca**: [Link](https://atlasinfo.fr/la-transformation-du-souk-de-derb-ghallef-relancee-a-casablanca)
+
+
+### arnaud viviant (N/A, Sun, 15 Nov 2026 14:50:00 -0800)
+
+- **« Pourquoi je quitte Le Masque et la Plume »**: [Link](https://regards.fr/pourquoi-je-quitte-le-masque-et-la-plume/)
+- **Arnaud Viviant, chroniqueur du « Masque et la Plume », quitte l’émission en accusant France Inter de lui avoir « interdit de conseiller » le livre de Rima Hassan**: [Link](https://www.lemonde.fr/actualite-medias/article/2026/11/14/arnaud-viviant-chroniqueur-du-masque-et-la-plume-annonce-quitter-l-emission-de-france-inter_6810280_3236.html)
+- **« On m’a interdit de conseiller le livre de Rima Hassan » : un chroniqueur démissionne de France Inter après 26 ans**: [Link](https://www.lesoir.be/782763/article/2026-11-14/ma-interdit-de-conseiller-le-livre-de-rima-hassan-un-chroniqueur-demissionne-de)
+
+
+### jude bellingham (N/A, Sun, 15 Nov 2026 13:30:00 -0800)
+
+- **Photos: Jude Bellingham scolds Real Madrid teammate during international clash**: [Link](https://sports.yahoo.com/articles/photos-jude-bellingham-scolds-real-213000430.html)
+- **Jude Bellingham sends public message to Real Madrid teammate Vinícius Jr.**: [Link](https://getfootballnewsspain.com/jude-bellingham-sends-public-message-to-real-madrid-teammate-vinicius-jr/)
+- **What Happened in Spain vs England Bust-Up as Jude Bellingham Incident Spotted**: [Link](https://www.givemesport.com/spain-england-what-happened-bust-up-jude-bellingham-incident/)
+
+
 ### lamine yamal (N/A, Sun, 15 Nov 2026 13:50:00 -0800)
 
 - **In the Catalan press: Yamal faces an unfair Madrid campaign**: [Link](https://www.goal.com/en/news/in-the-catalan-press-yamal-faces-an-unfair-madrid-campaign/blt0e5b75251de1af60)
