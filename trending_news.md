@@ -1,3 +1,66 @@
+### canada – guatemala (N/A, Mon, 16 Nov 2026 18:00:00 -0800)
+
+- **Bayern Munich confirm Alphonso Davies hamstring injury after Canada win**: [Link](https://www.espn.com/soccer/story/_/id/50502622/bayern-munich-alphonso-davies-hamstring-injury-canada)
+- **Jonathan David delivers in Canada’s 3-2 win over Guatemala**: [Link](https://themastermindsite.com/2026/11/15/jonathan-david-delivers-in-canadas-3-2-win-over-guatemala/)
+- **Scan reveals lower-body muscle strain for Canadian soccer captain Davies**: [Link](https://www.cbc.ca/lite/story/9.7423140)
+
+
+### الهدم (N/A, Mon, 16 Nov 2026 15:30:00 -0800)
+
+- **تطلعات جبل الرايسي بالرباط**: [Link](https://www.hespress.com/%D8%AA%D8%B7%D9%84%D8%B9%D8%A7%D8%AA-%D8%AC%D8%A8%D9%84-%D8%A7%D9%84%D8%B1%D8%A7%D9%8A%D8%B3%D9%8A-%D8%A8%D8%A7%D9%84%D8%B1%D8%A8%D8%A7%D8%B7-1840150.html)
+- **خارطة الهدم بالرباط تتسع ومصير غامض لأشهر إقامة بالعاصمة**: [Link](https://nichan.ma/376285/)
+- **آلاف العائلات في المغرب مهدّدة بفقدان مساكنها**: [Link](https://www.internews.dz/%D8%A2%D9%84%D8%A7%D9%81-%D8%A7%D9%84%D8%B9%D8%A7%D8%A6%D9%84%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%87%D8%AF%D9%91%D8%AF%D8%A9-%D8%A8%D9%81%D9%82%D8%AF%D8%A7%D9%86/)
+
+
+### sénégal (N/A, Mon, 16 Nov 2026 14:00:00 -0800)
+
+- **Après le succès des JOJ, quel avenir olympique pour le Sénégal?**: [Link](https://afrique.le360.ma/afrique-de-louest/senegal/apres-le-succes-des-joj-quel-avenir-olympique-pour-le-senegal_5E22FAUXLNAQPPG4RYKDRCJB2U/)
+- **Dans les coulisses de Dakar 2026 : comment les innovations Galaxy enrichissent l’expérience des athlètes**: [Link](https://news.samsung.com/fr/dans-les-coulisses-de-dakar-2026-comment-les-innovations-galaxy-enrichissent-lexperience-des-athletes)
+- **Nous avons célébré les Jeux Olympiques de la Jeunesse avec le Sénégal et l'équipe des États-Unis**: [Link](https://sn.usembassy.gov/fr/celebrons-le-senegal-et-lequipe-des-etats-unis-aux-jeux-olympiques-de-la-jeunesse-de-dakar/)
+
+
+### brajan gruda (N/A, Mon, 16 Nov 2026 13:40:00 -0800)
+
+- **Bei Klopp hat er die Nase vor Karl: Dieses DFB-Juwel hat der FC Bayern schon länger im Blick**: [Link](https://www.abendzeitung-muenchen.de/sport/fcbayern/bei-klopp-hat-er-die-nase-vor-karl-dieses-dfb-juwel-hat-der-fc-bayern-schon-laenger-im-blick-art-1173534)
+- **Marcel Reif adelt Star Klopp-Star nach Gala gegen Serbien**: [Link](https://sportbild.bild.de/fussball/1-bundesliga/marcel-reif-adelt-star-klopp-star-nach-gala-gegen-serbien-6af854f5389d31d8c8a803b7)
+- **So sieht die Zukunft von DFB-Durchstarter Gruda aus**: [Link](https://www.n-tv.de/sport/mediathek/videos/sport/Brajan-Gruda-hat-beim-DFB-zuletzt-sein-erstes-Laenderspieltor-erzielt-Wie-sieht-seine-Zukunft-im-Verein-aus-id31540715.html)
+
+
+### منتخب إسبانيا لكرة القدم (N/A, Mon, 16 Nov 2026 13:30:00 -0800)
+
+- **امتياز تكتيكي إنجليزي.. واقعية توخيل تلتهم الاستحواذ الإسباني**: [Link](https://www.aljazeera.net/sport/2026/11/16/%D8%A7%D9%85%D8%AA%D9%8A%D8%A7%D8%B2-%D8%AA%D9%83%D8%AA%D9%8A%D9%83%D9%8A-%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D9%88%D8%A7%D9%82%D8%B9%D9%8A%D8%A9-%D8%AA%D9%88%D8%AE%D9%8A%D9%84)
+- **في ليلة سقوط إسبانيا.. هاري كين يُذكر ريال مدريد بالصفقة التي ضاعت بسبب مبابي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A-%D9%84%D9%8A%D9%84%D8%A9-%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7--%D9%87%D8%A7%D8%B1%D9%8A-%D9%83%D9%8A%D9%86-%D9%8A%D9%8F%D8%B0%D9%83%D8%B1-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%B5%D9%81%D9%82%D8%A9-%D8%A7%D9%84%D8%AA%D9%8A-%D8%B6%D8%A7%D8%B9%D8%AA-%D8%A8%D8%B3%D8%A8%D8%A8-%D9%85%D8%A8%D8%A7%D8%A8%D9%8A/bltbcc8ed0f803feaff)
+- **إنجلترا توقف قطار انتصارات إسبانيا**: [Link](https://www.hespress.com/%D8%A5%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D8%AA%D9%88%D9%82%D9%81-%D9%82%D8%B7%D8%A7%D8%B1-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-1840498.html)
+
+
+### سمك (N/A, Mon, 16 Nov 2026 13:10:00 -0800)
+
+- **أسعار الأسماك اليوم الإثنين 16 نوفمبر 2026.. بكم البلطي والجمبري في سوق العبور؟**: [Link](https://twaslnews1.twaslnews.com/7769729/)
+- **أسعار الأسماك اليوم الثلاثاء 17 نوفمبر 2026 في سوق العبور.. الجمبري بـ 1150 جنيها**: [Link](https://darelhilal.com/News/3345186.aspx)
+- **أسعار الأسماك اليوم الاثنين 16 نوفمبر 2026**: [Link](https://mwq3masr.com/%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3%D9%85%D8%A7%D9%83-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A7%D8%AB%D9%86%D9%8A%D9%86-16-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-2026/)
+
+
+### algérie maroc (N/A, Mon, 16 Nov 2026 12:10:00 -0800)
+
+- **Les yeux rivés sur le Maroc, l’Algérie hausse le ton contre la drogue**: [Link](https://www.20minutes.fr/monde/maroc/4263013-20261116-yeux-rives-maroc-algerie-hausse-contre-drogue)
+- **Tebboune, le va-t-en-guerre qui cherche sa guerre**: [Link](https://fr.le360.ma/monde/tebboune-le-va-t-en-guerre-qui-cherche-sa-guerre_OUYCN3P44ZBI7DHPMQWRMK65YU/)
+- **Algérie-Maroc : Tebboune joue avec le feu**: [Link](https://www.maroc-hebdo.com/article/algerie-maroc-tebboune-joue-avec-le-feu)
+
+
+### الفنانة رحمة حسن (N/A, Mon, 16 Nov 2026 11:40:00 -0800)
+
+- **رحمة حسن ليست وحدها.. فنانون هجروا التمثيل لمهن أخرى**: [Link](https://www.alarabiya.net/culture-and-art/2026/11/16/%D8%A8%D8%AE%D9%84%D8%A7%D9%81-%D8%B1%D8%AD%D9%85%D8%A9-%D8%AD%D8%B3%D9%86-%D9%88%D8%A8%D8%B3%D8%A8%D8%A8-%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D8%A7%D8%B9%D9%85%D8%A7%D9%84-%D9%81%D9%86%D8%A7%D9%86%D9%88%D9%86-%D9%8A%D8%AA%D8%AC%D9%87%D9%88%D9%86-%D9%84%D9%85%D9%87%D9%86-%D8%A8%D8%AF%D9%8A%D9%84%D8%A9-%D9%84%D8%AA%D8%A7%D9%85%D9%8A%D9%86-%D8%AD%D9%8A%D8%A7%D8%AA%D9%87%D9%85)
+- **«الفن مالوش أمان»...فنانون كسروا «وهم الشهرة» وبدأوا من الصفر في مهن غير متوقعة**: [Link](https://elmaser.com/article/202041)
+- **بعد أنباء عملها بالفنادق رحمة حسن تواجه تداعيات سنوات الأزمات**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1842136-%D8%B1%D8%AD%D9%85%D8%A9-%D8%AD%D8%B3%D9%86-%D9%88%D8%A7%D9%84%D8%A3%D8%B2%D9%85%D8%A7%D8%AA)
+
+
+### pau cubarsí (N/A, Mon, 16 Nov 2026 11:20:00 -0800)
+
+- **Barcelona receive positive injury update regarding key defender after international withdrawal**: [Link](https://barcauniversal.com/barcelona-receive-positive-injury-update-regarding-key-defender-after-international-withdrawal/)
+- **Reassuring medical update on Frenkie de Jong**: [Link](https://www.mundodeportivo.com/en/20261116/1004251792/reassuring-medical-update-on-frenkie-jong.html)
+- **Barcelona's Cubarsi a doubt for Villarreal clash with hip injury**: [Link](https://www.beinsports.com/en-us/soccer/la-liga/articles/barcelonas-cubarsi-a-doubt-for-villarreal-clash-with-hip-injury-2026-11-16)
+
+
 ### gta vi (N/A, Mon, 16 Nov 2026 11:30:00 -0800)
 
 - **Pre-Load Grand Theft Auto VI Now**: [Link](https://www.rockstargames.com/newswire/article/89834o94713o21/pre-load-grand-theft-auto-vi-now)
