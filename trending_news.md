@@ -1,3 +1,73 @@
+### الدنمارك ضد النرويج (N/A, Tue, 17 Nov 2026 11:30:00 -0800)
+
+- **حكم تركي يقود المواجهة الحاسمة: صافرة هاليل أومود ميلر في كوبنهاغن**: [Link](https://newturkpost.com/news/136466-%D8%AD%D9%83%D9%85-%D8%AA%D8%B1%D9%83%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%B5%D8%A7%D9%81%D8%B1%D8%A9-%D9%87%D8%A7%D9%84%D9%8A%D9%84-%D8%A3%D9%88%D9%85%D9%88%D8%AF-%D9%85%D9%8A%D9%84%D8%B1)
+- **مواجهات نارية في ختام دوري الأمم الأوروبية: إسرائيل أمام النمسا، والدنمارك تواجه النرويج وويلز تصطدم بالبرتغال**: [Link](https://panet.com/story/4312701)
+- **كيفية الحصول على تذاكر دوري الأمم الأوروبية 2026/27: أسعار تذاكر إسبانيا ضد إنجلترا وألمانيا ضد هولندا، وجدول المباريات والمزيد**: [Link](https://www.goal.com/ar-eg/%D8%A7%D9%84%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%84%D8%B3%D9%81%D8%B1/%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%A9/%D9%83%D9%8A%D9%81%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%B5%D9%88%D9%84-%D8%B9%D9%84%D9%89-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-2026-27-%D8%A7%D9%94%D8%B3%D8%B9%D8%A7%D8%B1-%D8%AA%D8%B0%D8%A7%D9%83%D8%B1-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%B6%D8%AF-%D8%A7%D9%95%D9%86%D8%AC%D9%84%D8%AA%D8%B1%D8%A7-%D9%88%D8%A7%D9%94%D9%84%D9%85%D8%A7%D9%86%D9%8A%D8%A7-%D8%B6%D8%AF-%D9%87%D9%88%D9%84%D9%86%D8%AF%D8%A7-%D9%88%D8%AC%D8%AF%D9%88%D9%84-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%88%D8%A7%D9%84%D9%85%D8%B2%D9%8A%D8%AF/A~blt2482e1782b3e3660)
+
+
+### ويلز ضد البرتغال (N/A, Tue, 17 Nov 2026 11:20:00 -0800)
+
+- **طبيب البرتغال يرد.. هل خان برناردو سيلفا المنتخب من أجل ريال مدريد؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B7%D8%A8%D9%8A%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%8A%D8%B1%D8%AF--%D9%87%D9%84-%D8%AE%D8%A7%D9%86-%D8%A8%D8%B1%D9%86%D8%A7%D8%B1%D8%AF%D9%88-%D8%B3%D9%8A%D9%84%D9%81%D8%A7-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D9%86-%D8%A7%D9%94%D8%AC%D9%84-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF/blt81e897fcc9dd37f8)
+- **مواجهتان مرتقبتان في المجموعة الرابعة لحسم الصدارة وبطاقة التأهل الثانية**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%AA%D8%A7%D9%86-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%AA%D8%A7%D9%86-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A9-%D8%A7%D9%84%D8%B1%D8%A7%D8%A8%D8%B9%D8%A9-%D9%84%D8%AD%D8%B3%D9%85-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D9%88%D8%A8%D8%B7%D8%A7%D9%82%D8%A9-%D8%A7%D9%84%D8%AA%D8%A3%D9%87%D9%84-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A%D8%A9-2026-11-17)
+- **مشاهدة مباراة ويلز والبرتغال اليوم في دوري الأمم الأوروبية.. الموعد والقنوات الناقلة**: [Link](https://www.alkhaleej.ae/2026-11-17/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D9%85%D8%B4%D8%A7%D9%87%D8%AF%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D9%8A%D9%84%D8%B2-%D9%88%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D9%88%D8%B9%D8%AF-%D9%88%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9)
+
+
+### wales vs portugal (N/A, Tue, 17 Nov 2026 11:20:00 -0800)
+
+- **Wales vs Portugal LIVE! Nations League Group A4 match updates, score, line-ups and commentary**: [Link](https://www.skysports.com/football/live-blog/13613359/wales-vs-portugal-live-nations-league-group-a4-match-updates-score-line-ups-and-commentary)
+- **Licensable picture: Nations League - Group A4 - Wales v Portugal**: [Link](https://www.reutersconnect.com/item/nations-league-group-a4-wales-v-portugal/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkgxSEQ2TDU)
+- **Bellamy demands Wales turns moments into results**: [Link](https://www.beinsports.com/en-nz/football/uefa-nations-league/articles-video/bellamy-demands-wales-turns-moments-into-results-2026-11-16)
+
+
+### match (N/A, Tue, 17 Nov 2026 11:20:00 -0800)
+
+- **ParlayPlay Promo Code ROTO: First Deposit Match Up to $100 + $5 Free Entry**: [Link](https://www.rotowire.com/news/parlayplay-promo-code-roto-first-deposit-match-up-to-100-5-free-entry-146869)
+- **ParlayPlay Exclusive Promotion For New Users: Sign Up With Promo Code ALARM**: [Link](https://www.fantasyalarm.com/articles/promotions/parlayplay-exclusive-promotion-new-users-sign-up-promo-code-alarm/198309)
+- **Bleacher Nation Promo Code ROTO: 100% Deposit Match up to $100 (November 17)**: [Link](https://www.rotowire.com/news/bleacher-nation-promo-code-roto-100-deposit-match-november-17-146824)
+
+
+### pays de galles – portugal (N/A, Tue, 17 Nov 2026 11:10:00 -0800)
+
+- **Portugal : après Cristiano Ronaldo, Jorge Jesus s’offre une polémique avec Bernardo Silva !**: [Link](https://www.footmercato.net/a1879467674283174346-portugal-apres-cristiano-ronaldo-jorge-jesus-soffre-une-polemique-avec-bernardo-silva)
+- **PRONOS PARIS RMC Le pari du jour du 17 novembre – Ligue des Nations**: [Link](https://rmcsport.bfmtv.com/pari-sportif/pronos-paris-rmc-le-pari-du-jour-du-17-novembre-ligue-des-nations_AN-202611160529.html)
+- **Danemark - Norvège en direct - Ligue des Nations : Football Scores & Résultats - 17/11/2026**: [Link](https://www.eurosport.fr/football/ligue-des-nations/2026-2027/live-danemark-norvege_mtc20005916/live.shtml)
+
+
+### النيجر ضد المغرب (N/A, Tue, 17 Nov 2026 11:10:00 -0800)
+
+- **مباشر مباراة المغرب ضد النيجر في تصفيات كأس أمم أفريقيا 2027.. لحظة بلحظة**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/17/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **المنتخب الوطني ينهي استعداداته لمواجهة النيجر**: [Link](https://frmf.ma/articles/les-lions-de-latlas-bouclent-leur-preparation-avant-le-rendez-vous-face-au-niger)
+- **الأسود يطاردون العلامة الكاملة**: [Link](https://assabah.ma/963211.html)
+
+
+### niger vs morocco (N/A, Tue, 17 Nov 2026 11:10:00 -0800)
+
+- **Morocco resume training ahead of second Niger clash in AFCON 2027 qualifiers**: [Link](https://en.hespress.com/149215-morocco-resume-training-ahead-of-second-niger-clash-in-afcon-2027-qualifiers.html)
+- **Morocco look to seal AFCON qualification in Rabat rematch with Niger**: [Link](https://en.yabiladi.com/articles/details/207869/morocco-look-seal-afcon-qualification.html)
+- **Ouazzane: "Casablanca fans love football, and we dedicate our 5-1 win over Niger to them"**: [Link](https://www.elbotola.com/en/article/2026-11-14-19-28-735.html)
+
+
+### classement équipe de sierra leone de football – équipe de république démocratique du congo de football (N/A, Tue, 17 Nov 2026 11:10:00 -0800)
+
+- **Sierra Leone vs Congo DR: Africa Cup of Nations Qualification stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c5rmg233m8wkt)
+- **TotalEnergies CAF AFCON 2027 Qualifiers: DR Congo extend perfect run as Guinea-Bissau and Zimbabwe held to draws**: [Link](https://www.cafonline.com/afcon2025/news/totalenergies-caf-afcon-2027-qualifiers-dr-congo-extend-perfect-run-as-guinea-bissau-and-zimbabwe-held-to-draws/)
+- **2027 Africa Cup of Nations: DRC aim to beat Sierra Leone and secure qualification**: [Link](https://acp.cd/anglais/2027-africa-cup-of-nations-drc-aim-to-beat-sierra-leone-and-secure-qualification/)
+
+
+### morocco national football team (N/A, Tue, 17 Nov 2026 11:10:00 -0800)
+
+- **Morocco becomes first Arab, second African nation in FIFA’s top five**: [Link](https://www.aljazeera.com/sports/2026/11/15/morocco-becomes-first-arab-nation-in-fifas-top-five-mens-rankings)
+- **Moroccan national team climbs to fifth in world rankings for first time in history**: [Link](https://www.elbotola.com/en/article/2026-11-14-22-31-697.html)
+- **Morocco overtake Brazil and Portugal to break into the world's top five in FIFA rankings**: [Link](https://www.jordannews.jo/Section-71/Football/Morocco-overtake-Brazil-and-Portugal-to-break-into-the-world-s-top-five-in-FIFA-rankings-58925)
+
+
+### danemark – norvège (N/A, Tue, 17 Nov 2026 11:00:00 -0800)
+
+- **Ligue des nations, Journée 6, l’avant-match, le Portugal se rend au pays de Galles, le Danemark reçoit la Norvège**: [Link](https://fr.uefa.com/uefanationsleague/news/02ab-2213cb407716-d5be4da798f2-1000--ligue-des-nations-journee-6-l-avant-match-le-portugal-se-re/)
+- **Danemark-Norvège : à quelle heure et sur quelle chaîne TV voir le match de Ligue des nations**: [Link](https://www.leparisien.fr/sports/football/danemark-norvege-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-de-ligue-des-nations-17-11-2026-TPRZLHM6CZGK5KKFFKFEZB3HXI.php)
+- **« Nous avons notre propre machine à buts » : Brian Riemer prévient Erling Haaland et la Norvège avant le choc de Ligue des nations face au Danemark**: [Link](https://fr.news.yahoo.com/sport/avons-propre-machine-%C3%A0-buts-080653420.html)
+
+
 ### abdelmadjid tebboune (N/A, Tue, 17 Nov 2026 02:00:00 -0800)
 
 - **Tebboune, le va-t-en-guerre qui cherche sa guerre**: [Link](https://fr.le360.ma/monde/tebboune-le-va-t-en-guerre-qui-cherche-sa-guerre_OUYCN3P44ZBI7DHPMQWRMK65YU/)
