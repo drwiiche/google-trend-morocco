@@ -1,3 +1,73 @@
+### abdelmadjid tebboune (N/A, Tue, 17 Nov 2026 02:00:00 -0800)
+
+- **Tebboune, le va-t-en-guerre qui cherche sa guerre**: [Link](https://fr.le360.ma/monde/tebboune-le-va-t-en-guerre-qui-cherche-sa-guerre_OUYCN3P44ZBI7DHPMQWRMK65YU/)
+- **Les yeux rivés sur le Maroc, l’Algérie hausse le ton contre la drogue**: [Link](https://www.20minutes.fr/monde/maroc/4263013-20261116-yeux-rives-maroc-algerie-hausse-contre-drogue)
+- **Algérie : Tebboune menace les spéculateurs de nouvelles sanctions**: [Link](https://fr.apanews.net/society/algerie-tebboune-menace-les-speculateurs-de-nouvelles-sanctions/)
+
+
+### 18 novembre (N/A, Tue, 17 Nov 2026 02:00:00 -0800)
+
+- **FR-ALERT : pourquoi votre téléphone pourrait sonner ces 17 et 18 novembre en Touraine ?**: [Link](https://france3-regions.franceinfo.fr/centre-val-de-loire/indre-loire/fr-alert-pourquoi-votre-telephone-pourrait-sonner-ces-17-et-18-novembre-en-touraine-3451080.html)
+- **Météo. La météo du mardi 17 novembre 2026 à Tours et ses environs**: [Link](https://www.ouest-france.fr/meteo/centre-val-de-loire/tours-37000/la-meteo-du-jour-a-tours-2c286612-7648-4b66-9a5f-e16895a93b1c)
+- **Météo France place l'Indre-et-Loire en alerte aux vents violents et pluie-inondation : que disent les prévisions ?**: [Link](https://actu.fr/centre-val-de-loire/tours_37261/meteo-france-place-lindre-et-loire-en-alerte-aux-vents-violents-et-pluie-inondation-que-disent-les-previsions_65063602.html)
+
+
+### jet energy bourse (N/A, Tue, 17 Nov 2026 02:00:00 -0800)
+
+- **Jet Energy fait son entrée à la cote après une levée de 375 millions de dirhams sursouscrite 31 fois**: [Link](https://ledesk.ma/2026/11/16/jet-energy-fait-son-entree-a-la-cote-apres-une-levee-de-375-millions-de-dirhams-sursouscrite-31-fois/)
+- **IPO de Jet Energy : l’opération sursouscrite 31,4 fois par près de 26.000 investisseurs**: [Link](https://mobile.telquel.ma/instant-t/2026/11/16/ipo-de-jet-energy-loperation-sursouscrite-314-fois-par-pres-de-26-000-investisseurs_2018366/)
+- **La Bourse de Casablanca face à une semaine exceptionnelle marquée par plusieurs opérations financières majeures**: [Link](https://fr.hespress.com/496689-la-bourse-de-casablanca-face-a-une-semaine-exceptionnelle-marquee-par-plusieurs-operations-financieres-majeures.html)
+
+
+### singapore vs brazil (N/A, Tue, 17 Nov 2026 01:40:00 -0800)
+
+- **Singapore vs Brazil: Friendlies stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw772xnn72n6t)
+- **Lions’ man for big moments Shawal Anuar eyeing ‘dream come true’ run-out against Brazil**: [Link](https://www.straitstimes.com/sport/football/lions-man-for-big-moments-shawal-anuar-eyeing-dream-come-true-run-out-against-brazil)
+- **‘Let Them Play Without Responsibility’ --Vinicius Steps Up To Protect Endrick, Estevao**: [Link](https://www.completesports.com/let-them-play-without-responsibility-vinicius-steps-up-to-protect-endrick-estevao/)
+
+
+### singapour – brésil (N/A, Tue, 17 Nov 2026 01:20:00 -0800)
+
+- **Singapour-Brésil : les compositions officielles dévoilées**: [Link](https://africafootunited.com/singapour-bresil-les-compositions-officielles-devoilees/)
+- **VIDEO - Le triplé dingue de Vinicius en 20 minutes avec le Brésil**: [Link](https://www.onzemondial.com/copa-america/video-le-triple-dingue-de-vinicius-en-20-minutes-avec-le-bresil-1009509)
+- **🔴 DIRECT. Singapoure - Brésil (0-0) : Suivez le match de Matchs Amicaux Internationaux en Live**: [Link](https://www.livefoot.fr/direct/matchs-amicaux-internationaux-international/match-singapoure-vs-bresil-9cf77671)
+
+
+### كأس العالم (N/A, Tue, 17 Nov 2026 01:10:00 -0800)
+
+- **كأس العالم FIFA لأقل من 17 سنة: بعثة المنتخب الوطني تصل لقطر**: [Link](https://frmf.ma/articles/coupe-du-monde-fifa-u17)
+- **من كأس العالم للناشئين إلى الإنتركونتيننتال.. قطر تحول منشآت مونديال 2022 إلى مسرح للبطولات العالمية**: [Link](https://www.aljazeera.net/sport/2026/11/16/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-2026-%D8%AA%D8%AD%D8%AA-17-%D8%B3%D9%86%D8%A9-%D9%82%D8%B7%D8%B1)
+- **أشبال الأطلس يكتسحون مصر بثمانية أهداف في بروفة أخيرة قبل مونديال قطر u17**: [Link](https://radiomars.ma/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%8A%D9%83%D8%AA%D8%B3%D8%AD%D9%88%D9%86-%D9%85%D8%B5%D8%B1-%D8%A8%D8%AB%D9%85%D8%A7%D9%86%D9%8A%D8%A9-%D8%A3%D9%87%D8%AF%D8%A7/)
+
+
+### tas maroc sénégal can 2025 (N/A, Tue, 17 Nov 2026 00:40:00 -0800)
+
+- **Sénégal-Maroc: Verdict du TAS, changement annoncé**: [Link](https://www.sports.fr/football/senegal-maroc-verdict-du-tas-changement-annonce-1063574.html)
+- **La sortie de Medhi Benatia sur la finale de la CAN 2025 : « Elle n’aura jamais la même saveur**: [Link](https://www.canalplus.com/articles/sports/la-sortie-de-medhi-benatia-sur-la-finale-de-la-can-2025-elle-n-aura-jamais-la-meme-saveur)
+- **CAN 2025: "C'est triste surtout pour le football marocain", Benatia revient sur la finale controversée entre le Maroc et le Sénégal**: [Link](https://rmcsport.bfmtv.com/football/coupe-d-afrique-des-nations/can-2025-c-est-triste-surtout-pour-le-football-marocain-benatia-revient-sur-la-finale-controversee-entre-le-maroc-et-le-senegal_AV-202611140257.html)
+
+
+### avocat (N/A, Tue, 17 Nov 2026 00:20:00 -0800)
+
+- **Avocats: l’Association des barreaux du Maroc maintient son rejet de la loi et reconduit la grève**: [Link](https://fr.le360.ma/politique/avocats-lassociation-des-barreaux-du-maroc-maintient-son-rejet-de-la-loi-et-reconduit-la-greve_J7KJQQ3DMVCNZJEI3X3BNFRZRU/)
+- **Loi 66.23 : Les avocats remettent la pression | L'observateur**: [Link](https://lobservateur.info/article/120387/maroc/justice/loi-6623-les-avocats-remettent-la-pression)
+- **Avocats : l'ABM maintient son rejet de la loi encadrant la profession**: [Link](https://lopinion.ma/fr/actu-maroc/avocats--labm-maintient-son-rejet-de-la-loi-6623_a84718?articleId=ec2a1d63-7c0b-48a3-b057-6768e4122ed4)
+
+
+### togo (N/A, Mon, 16 Nov 2026 23:30:00 -0800)
+
+- **Togo : inauguration d’une gare routière réhabilitée avec le soutien du Maroc**: [Link](https://mobile.telquel.ma/instant-t/2026/11/16/togo-inauguration-dune-gare-routiere-rehabilitee-avec-le-soutien-du-maroc_2018454/)
+- **Coopération Sud-Sud : Le Maroc appuie le Togo dans le domaine de la mobilité**: [Link](https://www.leconomiste.com/flash-infos/cooperation-sud-sud-le-maroc-appuie-le-togo-dans-le-domaine-de-la-mobilite/)
+- **Afrique : quand l’Algérie offre des centrales électriques, le Maroc rénove une gare routière au Togo**: [Link](https://www.tsa-algerie.com/afrique-quand-lalgerie-offre-des-centrales-electriques-le-maroc-renove-une-gare-routiere-au-togo/)
+
+
+### المغرب (N/A, Mon, 16 Nov 2026 23:10:00 -0800)
+
+- **الأسود" ينهون التحضيرات لمواجهة النيجر**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%8A%D9%86%D9%87%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1%D8%A7%D8%AA-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D9%86%D9%8A%D8%AC-1841067.html)
+- **المنتخب الوطني يواصل استعداداته لمواجهة النيجر للمرة الثانية**: [Link](https://frmf.ma/articles/les-lions-de-latlas-poursuivent-leur-preparation-en-vue-de-leur-seconde-confrontation-face-au-niger)
+- **موعد مباراة المغرب ضد النيجر في تصفيات كأس أمم أفريقيا والقنوات الناقلة**: [Link](https://www.aljazeera.net/sport/2026/11/15/%D9%85%D9%88%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1)
+
+
 ### canada – guatemala (N/A, Mon, 16 Nov 2026 18:00:00 -0800)
 
 - **Bayern Munich confirm Alphonso Davies hamstring injury after Canada win**: [Link](https://www.espn.com/soccer/story/_/id/50502622/bayern-munich-alphonso-davies-hamstring-injury-canada)
