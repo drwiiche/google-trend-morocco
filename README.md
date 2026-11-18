@@ -1,3 +1,38 @@
+### بنتاغون (N/A, Wed, 18 Nov 2026 00:00:00 -0800)
+
+- **فيديو متداول لـ"إعلان البنتاغون وجود كائنات فضائية بين البشر".. هذه حقيقته**: [Link](https://arabic.cnn.com/world/article/2026/11/18/circulating-video-claims-pentagon-aliens)
+- **مصر وإيران وكائنات فضائية!.. ما حقيقة الفيديو الذي أشعل مواقع التواصل؟**: [Link](https://sabq.org/article/ymc0xc1)
+- **الفيديو قديم ولا يوثق إعلان البنتاغون وجود كائنات فضائية بين البشر**: [Link](https://www.misbar.com/factcheck/2026/11/17/%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%82%D8%AF%D9%8A%D9%85-%D9%88%D9%84%D8%A7-%D9%8A%D9%88%D8%AB%D9%82-%D8%A5%D8%B9%D9%84%D8%A7%D9%86-%D8%A7%D9%84%D8%A8%D9%86%D8%AA%D8%A7%D8%BA%D9%88%D9%86-%D9%88%D8%AC%D9%88%D8%AF-%D9%83%D8%A7%D8%A6%D9%86%D8%A7%D8%AA-%D9%81%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D8%A8%D9%8A%D9%86-%D8%A7%D9%84%D8%A8%D8%B4%D8%B1)
+
+
+### ikea (N/A, Tue, 17 Nov 2026 23:40:00 -0800)
+
+- **Ikea ditches plans for new UK stores, blaming high business taxes**: [Link](https://www.theguardian.com/business/2026/nov/17/ikea-new-uk-stores-business-taxes-john-healey-budget)
+- **Ikea scraps investments in Britain because of high taxes**: [Link](https://www.telegraph.co.uk/business/2026/11/17/ikea-scraps-investments-in-britain-because-of-high-taxes/)
+- **News | Ikea blames high business rates for 'abandoned' store openings**: [Link](https://www.costar.com/article/1263205775/ikea-blames-high-business-rates-for-abandoned-store-openings)
+
+
+### abdelmadjid tebboune (N/A, Tue, 17 Nov 2026 23:20:00 -0800)
+
+- **Algérie : une menace sans destinataire**: [Link](https://medias24.com/chronique/algerie-menace-intervention-trafiquants/)
+- **Tebboune, le va-t-en-guerre qui cherche sa guerre**: [Link](https://fr.le360.ma/monde/tebboune-le-va-t-en-guerre-qui-cherche-sa-guerre_OUYCN3P44ZBI7DHPMQWRMK65YU/)
+- **Les yeux rivés sur le Maroc, l’Algérie hausse le ton contre la drogue**: [Link](https://www.20minutes.fr/monde/maroc/4263013-20261116-yeux-rives-maroc-algerie-hausse-contre-drogue)
+
+
+### hibapress (N/A, Tue, 17 Nov 2026 22:30:00 -0800)
+
+- **البيضاء.. فوضى و ازدحام بسبب تخفيضات محل ماركة عالمية**: [Link](https://inews.ma/news/8800326)
+- **اكتظاظ وفوضى بمتجر عالمي بالدار البيضاء عقب إعلان عن تخفيضات**: [Link](https://daralkhabar.com/%D8%A7%D9%83%D8%AA%D8%B8%D8%A7%D8%B8-%D9%88%D9%81%D9%88%D8%B6%D9%89-%D8%A8%D9%85%D8%AA%D8%AC%D8%B1-%D8%B9%D8%A7%D9%84%D9%85%D9%8A-%D8%A8%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6/)
+- **البيضاء.. فوضى و ازدحام بسبب تخفيضات محل ماركة عالمية**: [Link](https://ar.hibapress.com/details-776473.html)
+
+
+### تحلية مياه (N/A, Tue, 17 Nov 2026 20:40:00 -0800)
+
+- **المغرب يسرع مشاريع الربط المائي ويستعد لإنجاز محطات تحلية جديدة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%B1%D8%B9-%D9%85%D8%B4%D8%A7%D8%B1%D9%8A%D8%B9-%D8%A7%D9%84%D8%B1%D8%A8%D8%B7-%D8%A7%D9%84%D9%85%D8%A7%D8%A6%D9%8A-%D9%88%D9%8A%D8%B3%D8%AA%D8%B9-1841425.html)
+- **فيديو: المغرب يرسخ تجربة رائدة في معالجة المياه العادمة وتحلية مياه البحر لمواجهة الإجهاد المائي**: [Link](https://2m.ma/fr/news/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B1%D8%B3%D8%AE-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%B1%D8%A7%D8%A6%D8%AF%D8%A9-%D9%81%D9%8A-%D9%85%D8%B9%D8%A7%D9%84%D8%AC%D8%A9-%D8%A7%D9%84%D9%85%D9%8A%D8%A7%D9%87-%D8%A7%D9%84%D8%B9%D8%A7%D8%AF%D9%85%D8%A9-%D9%88%D8%AA%D8%AD%D9%84%D9%8A%D8%A9-20261116)
+- **27 مليار متر مكعب بحلول 2030.. المغرب يسرع بناء السدود ومشاريع تحلية مياه البحر**: [Link](https://al3omk.com/1211333.html)
+
+
 ### états-unis – haïti (N/A, Tue, 17 Nov 2026 16:10:00 -0800)
 
 
