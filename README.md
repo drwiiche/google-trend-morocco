@@ -1,3 +1,71 @@
+### états-unis – haïti (N/A, Tue, 17 Nov 2026 16:10:00 -0800)
+
+
+
+
+### منتخب تونس لكرة القدم (N/A, Tue, 17 Nov 2026 16:10:00 -0800)
+
+- **بالفيديو.. تونس تواصل نزيف النقاط بتعادل مخيب أمام ليبيا في تصفيات أمم أفريقيا**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/17/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D8%B6%D8%AF-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **تهديد بالانسحاب.. ركلة جزاء جدلية تفجر غضب تونس أمام ليبيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D9%87%D8%AF%D9%8A%D8%AF-%D8%A8%D8%A7%D9%84%D8%A7%D9%86%D8%B3%D8%AD%D8%A7%D8%A8--%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%AC%D8%AF%D9%84%D9%8A%D8%A9-%D8%AA%D9%81%D8%AC%D8%B1-%D8%BA%D8%B6%D8%A8-%D8%AA%D9%88%D9%86%D8%B3-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7/blteb535cd9f5744d19)
+- **قرار كاد ينهي ديربي ليبيا وتونس قبل وقته.. إليكم تفاصيل ما وقع في الأنفاس الأخيرة من الشوط الأول!**: [Link](https://radiomars.ma/%D8%A3%D8%B2%D9%85%D8%A9-%D8%AA%D8%AD%D9%83%D9%8A%D9%85%D9%8A%D8%A9-%D9%85%D8%B1%D8%A9-%D8%A3%D8%AE%D8%B1%D9%89-%D8%A3%D9%85%D8%A7%D9%85-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D9%88-%D8%AA%D9%88%D9%86%D8%B3/)
+
+
+### قشم (N/A, Tue, 17 Nov 2026 15:40:00 -0800)
+
+- **إيران.. ضربة أمريكية في جزيرة قشم وانفجارات في 5 ناقلات بمضيق هرمز**: [Link](https://www.aljazeera.net/news/liveblog/2026/11/17/%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D8%B1%D9%88%D8%B2%D9%81%D9%84%D8%AA-%D8%AA%D9%86%D8%B6%D9%85-%D9%84%D8%AD%D8%A7%D9%85%D9%84%D8%AA%D9%8A)
+- **انفجارات تهز جزيرة قشم الإيرانية ودخان في سمائها**: [Link](https://www.skynewsarabia.com/world/1905368-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA-%D8%AA%D9%87%D8%B2-%D8%AC%D8%B2%D9%8A%D8%B1%D8%A9-%D9%82%D8%B4%D9%85-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A%D8%A9-%D9%88%D8%AF%D8%AE%D8%A7%D9%86-%D8%B3%D9%85%D8%A7%D8%A6%D9%87%D8%A7)
+- **الجيش الإيراني يعلن إسقاط مسيّرة أمريكية في مضيق هرمز**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%A5%D8%B3%D9%82%D8%A7%D8%B7-%D9%85%D8%B3%D9%8A%D9%91%D8%B1%D8%A9-%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2/4127969)
+
+
+### steam (N/A, Tue, 17 Nov 2026 15:40:00 -0800)
+
+- **Trump faces GOP pushback to his order to use steam to launch jets from aircraft carriers**: [Link](https://apnews.com/article/steam-catapult-aircraft-carrier-fighter-jet-trump-a749a935c16c83b2c541842d0ff35ad5)
+- **Reverting Ford-class Carriers to Steam is ‘Non-Starter,’ Says SASC Chair Wicker**: [Link](https://news.usni.org/2026/11/17/reverting-ford-class-carriers-to-steam-is-non-starter-says-sasc-chair-wicker)
+- **Key Republican Rejects Trump Order on Steam-Driven Launch System**: [Link](https://www.bloomberg.com/news/articles/2026-11-17/key-republican-rejects-trump-order-on-steam-driven-launch-system)
+
+
+### xiaomi 18 pro max (N/A, Tue, 17 Nov 2026 15:30:00 -0800)
+
+- **Xiaomi's 18 Pro Series Can Generate Vibe-Coded Apps For Its Tiny Rear Display**: [Link](https://www.engadget.com/2319013/xiaomi-18-pro-vibe-coded-apps-launch-hands-on/)
+- **I Didn’t Expect to Like Xiaomi’s Bizarre Dual-Screen Phone So Much**: [Link](https://www.cnet.com/tech/xiaomi-18-pro-max-review/)
+- **I made a Wolfenstein-style game for the Xiaomi 18 Pro’s Back Display, and I can’t believe how well it plays**: [Link](https://www.techradar.com/phones/xiaomi-phones/the-xiaomi-18-pros-back-display-is-the-coolest-smartphone-gimmick-ive-tested-this-year-for-two-key-reasons)
+
+
+### ترتيبات منتخب النيجر لكرة القدم – منتخب المغرب لكرة القدم (N/A, Tue, 17 Nov 2026 15:20:00 -0800)
+
+- **المنتخب الوطني ينفرد بالرقم القياسي العالمي لأطول سلسلة انتصارات متتالية**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%8A%D9%86%D9%81%D8%B1%D8%AF-%D8%A8%D8%A7%D9%84%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D9%82%D9%8A%D8%A7%D8%B3%D9%8A-%D8%A7/)
+- **دفعة عالمية.. المغرب يقبل هدية البرازيل وينتظر سقوط البرتغال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AF%D9%81%D8%B9%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9--%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%82%D8%A8%D9%84-%D9%87%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A8%D8%B1%D8%A7%D8%B2%D9%8A%D9%84-%D9%88%D9%8A%D9%86%D8%AA%D8%B8%D8%B1-%D8%B3%D9%82%D9%88%D8%B7-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84/blt39940b68c6bcc8f8)
+- **ديوب: "آمل أن أحتفل مع بونو بمباراته الـ200 وأتمنى أن نصبح المنتخب الأول عالميا"**: [Link](https://www.elbotola.com/article/2026-11-15-22-36-902.html)
+
+
+### الأرجنتين ضد كوستاريكا (N/A, Tue, 17 Nov 2026 14:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الأرجنتين وكوستاريكا الودية؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D9%88%D9%83%D9%88%D8%B3%D8%AA%D8%A7%D8%B1%D9%8A%D9%83%D8%A7-%D8%A7%D9%84%D9%88%D8%AF%D9%8A%D8%A9-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt203fa55886109d0c)
+- **مارتينيز يستعد للعودة إلى الأرجنتين بعد تعافيه من إصابة في الفك**: [Link](https://twaslnews1.twaslnews.com/7845470/)
+- **مباشر.. مباراة الأرجنتين وكوستاريكا**: [Link](https://www.eremnews.com/sports/ux0qoct)
+
+
+### avion électrique chinois (N/A, Tue, 17 Nov 2026 14:40:00 -0800)
+
+- **L’avionneur chinois Comac fait voler son avion commercial électrique développé en trois ans, pour la première fois avec équipage**: [Link](https://www.usinenouvelle.com/aero-spatial/lavionneur-chinois-comac-fait-voler-son-avion-commercial-electrique-developpe-en-trois-ans-pour-la-premiere-fois-avec-equipage.UH4EYADAIRG7LDSJ6FBYLTOY3Y.html)
+- **Un choc pour l'Europe: la Chine vient de réussir à faire voler après trois ans seulement cet avion électrique propulsé par 10 moteurs situés au dessus des ailes**: [Link](https://www.bfmtv.com/economie/entreprises/aeronautique/un-choc-pour-l-europe-la-chine-vient-de-reussir-a-faire-voler-apres-trois-ans-seulement-cet-avion-electrique-propulse-par-10-moteurs-situes-au-dessus-des-ailes_AN-202611160462.html)
+- **La Chine fait entrer l'aviation dans une nouvelle ère : Le CE-25A, avion électrique chinois de 19 places, réussit son premier vol avec pilotes**: [Link](https://www.lindependant.fr/2026/11/16/la-chine-fait-entrer-laviation-dans-une-nouvelle-ere-le-ce-25a-avion-electrique-chinois-de-19-places-reussit-son-premier-vol-avec-pilotes-13653808.php)
+
+
+### argentine – costa rica (N/A, Tue, 17 Nov 2026 14:30:00 -0800)
+
+- **Argentina 7-0 Costa Rica (Nov 17, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401930895)
+- **Argentina vs. Costa Rica: Preview, Predictions and Lineups**: [Link](https://www.si.com/soccer/argentina-vs-costa-rica-preview-predictions-lineups-11-17-26)
+- **Argentina trounces Costa Rica in friendly: Highlights, key plays**: [Link](https://www.usatoday.com/story/sports/soccer/2026/11/17/argentina-costa-rica-live-watch-highlights-score-lineups--live/92829041007/)
+
+
+### argentina vs costa rica (N/A, Tue, 17 Nov 2026 14:30:00 -0800)
+
+- **Julián Álvarez disfruta con la camiseta argentina: metió un doblete ante Costa Rica**: [Link](https://espndeportes.espn.com/futbol/mundial/nota/_/id/17528102/julian-alvarez-disfruta-camiseta-argentina-metio-doblete-costa-rica)
+- **Los precios de las entradas para ver a la Selección, en la mira: más caras que ver España vs Inglaterra en la Nations League**: [Link](https://www.clarin.com/deportes/precios-entradas-ver-seleccion-mira-caros-ver-espana-vs-inglaterra-nations-league_0_0lpQV7QSKh.html)
+- **Nico Paz abre la puerta del futuro: dos golazos que reclaman la camiseta soñada**: [Link](https://www.lanacion.com.ar/deportes/futbol/nico-paz-abre-la-puerta-del-futuro-dos-golazos-que-reclaman-la-camiseta-sonada-nid17112026/)
+
+
 ### الدنمارك ضد النرويج (N/A, Tue, 17 Nov 2026 11:30:00 -0800)
 
 - **حكم تركي يقود المواجهة الحاسمة: صافرة هاليل أومود ميلر في كوبنهاغن**: [Link](https://newturkpost.com/news/136466-%D8%AD%D9%83%D9%85-%D8%AA%D8%B1%D9%83%D9%8A-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%B3%D9%85%D8%A9-%D8%B5%D8%A7%D9%81%D8%B1%D8%A9-%D9%87%D8%A7%D9%84%D9%8A%D9%84-%D8%A3%D9%88%D9%85%D9%88%D8%AF-%D9%85%D9%8A%D9%84%D8%B1)
