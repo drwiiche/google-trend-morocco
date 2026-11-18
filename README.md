@@ -1,3 +1,73 @@
+### منتخب البرتغال لكرة القدم (N/A, Wed, 18 Nov 2026 10:00:00 -0800)
+
+- **شاهد.. انتصار البرتغال والبوسنة وتألق لافت للسويد والنمسا في دوري الأمم الأوروبية**: [Link](https://www.aljazeera.net/sport/2026/11/18/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A8%D9%88%D8%B3%D9%86%D8%A9-%D9%88%D8%AA%D8%A3%D9%84%D9%82)
+- **رقم 7 الجديد يقود البرتغال إلى فوز مثير على ويلز**: [Link](https://www.alarabiya.net/sport/2026/11/18/%D8%B1%D9%82%D9%85-7-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D8%A7%D9%84%D9%89-%D9%81%D9%88%D8%B2-%D9%85%D8%AB%D9%8A%D8%B1-%D8%B9%D9%84%D9%89-%D9%88%D9%8A%D9%84%D8%B2)
+- **ويلز والبرتغال | انظروا حولكم ولا تبتسموا .. "كبش الفداء" رحل وترك خلفه "كومبارس باريس" ومنتخبًا متهالكًا!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D9%8A%D9%84%D8%B2-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D9%85-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D9%8A%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D9%83%D8%A7%D8%B1%D9%84%D9%88%D8%B3-%D9%81%D9%88%D8%B1%D8%A8%D8%B3-%D8%AC%D9%8A%D8%B3%D9%88%D8%B3/bltfb5d9ae46a75437b)
+
+
+### فؤاد الزهواني (N/A, Wed, 18 Nov 2026 09:10:00 -0800)
+
+- **المنتخب الوطني لأقل من 23 سنة يتأهل إلى الدور الثالث من التصفيات الإفريقية المؤهلة لكأس إفريقيا**: [Link](https://frmf.ma/articles/23-14)
+- **بالفيديو.. مدرب المغرب يفجر سر شجاره مع الزهواني أمام الكاميرات**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%85%D8%AF%D8%B1%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%81%D8%AC%D8%B1-%D8%B3%D8%B1-%D8%B4%D8%AC%D8%A7%D8%B1%D9%87-%D9%85%D8%B9-%D8%A7%D9%84%D8%B2%D9%87%D9%88%D8%A7%D9%86%D9%8A-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D9%83%D8%A7%D9%85%D9%8A%D8%B1%D8%A7%D8%AA/blt2215b633c347011c)
+- **الأولمبي يستعيد معما وباعوف أمام إثيوبيا**: [Link](https://assabah.ma/963212.html)
+
+
+### michael waltz (N/A, Wed, 18 Nov 2026 09:00:00 -0800)
+
+- **Waltz vows to press ahead with Sahara talks despite Russian veto and MINURSO closure**: [Link](https://en.hespress.com/149356-waltz-vows-to-press-ahead-with-sahara-talks-despite-russian-veto-and-minurso-closure.html)
+- **After UN peacekeeping mission ends, Morocco says Western Sahara dispute enters new phase**: [Link](https://www.foxnews.com/world/after-un-peacekeeping-mission-ends-morocco-says-western-sahara-dispute-enters-new-phase)
+- **US urges respect of ceasefire in Western Sahara as UN peacekeepers leave**: [Link](https://www.africanews.com/2026/11/18/us-urges-respect-of-ceasefire-in-western-sahara-as-un-peacekeepers-leave/)
+
+
+### شيرين عبدالوهاب (N/A, Wed, 18 Nov 2026 09:00:00 -0800)
+
+- **أحدث ظهور لشيرين عبد الوهاب في عزاء يعيد الحديث عن حالتها الصحية**: [Link](https://www.aljazeera.net/arts/2026/11/18/%D8%A3%D8%AD%D8%AF%D8%AB-%D8%B8%D9%87%D9%88%D8%B1-%D9%84%D8%B4%D9%8A%D8%B1%D9%8A%D9%86-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%88%D9%87%D8%A7%D8%A8-%D9%81%D9%8A-%D8%B9%D8%B2%D8%A7%D8%A1)
+- **"ليست في حالة نفسية جيدة".. طبيب شيرين يعلق على ظهورها الأخير**: [Link](https://www.alarabiya.net/arab-and-world/egypt/2026/11/17/%D9%84%D9%8A%D8%B3%D8%AA-%D9%81%D9%8A-%D8%AD%D8%A7%D9%84%D8%A9-%D9%86%D9%81%D8%B3%D9%8A%D8%A9-%D8%AC%D9%8A%D8%AF%D8%A9-%D8%B7%D8%A8%D9%8A%D8%A8-%D8%B4%D9%8A%D8%B1%D9%8A%D9%86-%D9%8A%D8%B9%D9%84%D9%82-%D8%B9%D9%84%D9%89-%D8%B8%D9%87%D9%88%D8%B1%D9%87%D8%A7-%D8%A7%D9%84%D8%A7%D8%AE%D9%8A%D8%B1)
+- **نفسنا نشوف شيرين بتاعة زمان.. رسالة من تيم رياليتي لـ شيرين عبد الوهاب بعد ظهورها الأخير**: [Link](https://www.youlyou.com/shorts/4122)
+
+
+### ريال مدريد (N/A, Wed, 18 Nov 2026 07:40:00 -0800)
+
+- **رسميا.. ريال مدريد يجدد عقد أردا جولر**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B5%D8%AF%D8%B1-%D8%A8%D9%8A%D8%A7%D9%86%D8%A7-%D8%AD%D8%A7%D8%B3%D9%85%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AC%D9%88%D9%84%D8%B1/blt82fa7164fc476d8c)
+- **ريال مدريد يحصن نجمه أردا غولر بعقد طويل الأمد**: [Link](https://www.aljazeera.net/sport/2026/11/18/%D8%A3%D8%B1%D8%AF%D8%A7-%D8%BA%D9%88%D9%84%D8%B1-%D8%B9%D9%82%D8%AF-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF)
+- **ريال مدريد يمدد عقد غولر حتى 2032**: [Link](https://www.hespress.com/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%85%D8%AF%D8%AF-%D8%B9%D9%82%D8%AF-%D8%BA%D9%88%D9%84%D8%B1-%D8%AD%D8%AA%D9%89-2032-1841710.html)
+
+
+### médias24 (N/A, Wed, 18 Nov 2026 07:40:00 -0800)
+
+- **Minurso : le bureau de liaison de Tindouf, également concerné par la liquidation**: [Link](https://medias24.com/2026/11/18/minurso-le-bureau-de-liaison-de-tindouf-egalement-concerne-par-la-liquidation-1792357/)
+- **À Rabat, Mike Waltz confirme la reconnaissance américaine et appelle le Polisario au calme**: [Link](https://ledesk.ma/2026/11/17/a-rabat-mike-waltz-confirme-la-reconnaissance-americaine-et-appelle-le-polisario-au-calme/)
+- **Retrait de la MINURSO: Ivanko fixe l’échéance du 31 janvier et détaille les étapes du départ**: [Link](https://fr.le360.ma/medias/retrait-de-la-minurso-ivanko-fixe-lecheance-du-31-janvier-et-detaille-les-etapes-du-depart_BPUQWKRI3ZCZVBBDKIXTTEZRPA/)
+
+
+### المهرجان الدولي للفيلم بمراكش (N/A, Wed, 18 Nov 2026 07:20:00 -0800)
+
+- **شركة إنتاج جزائرية تفاجئ مهرجان مراكش الدولي بسحب فيلم فلسطيني**: [Link](https://www.hespress.com/%D8%B4%D8%B1%D9%83%D8%A9-%D8%A5%D9%86%D8%AA%D8%A7%D8%AC-%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1%D9%8A%D8%A9-%D8%AA%D9%81%D8%A7%D8%AC%D8%A6-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-1841722.html)
+- **شركة إنتاج جزائرية تسحب فيلما من مسابقة مهرجان مراكش**: [Link](https://elaph.com/Web/Entertainment/2026/11/1610890.html)
+- **بقرار من الشركة المنتجة.. «وقائع زمن الحصار» يغادر المسابقة الرسمية لمهرجان مراكش رغم رفض مخرجه**: [Link](https://2m.ma/fr/news/%D8%A8%D9%82%D8%B1%D8%A7%D8%B1-%D9%85%D9%86-%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AC%D8%A9-%D9%88%D9%82%D8%A7%D8%A6%D8%B9-%D8%B2%D9%85%D9%86-%D8%A7%D9%84%D8%AD%D8%B5%D8%A7%D8%B1-%D9%8A%D8%BA%D8%A7%D8%AF%D8%B1-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%A9-%D8%A7%D9%84%D8%B1%D8%B3%D9%85%D9%8A%D8%A9-20261118)
+
+
+### موساد (N/A, Wed, 18 Nov 2026 06:50:00 -0800)
+
+- **قائد "سنتكوم" في إسرائيل.. وإيران تهدد برد يتجاوز الحدود**: [Link](https://www.skynewsarabia.com/world/1905600-%D9%82%D8%A7%D8%A6%D8%AF-%D8%B3%D9%86%D8%AA%D9%83%D9%88%D9%85-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D9%88%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A8%D8%B1%D8%AF-%D9%8A%D8%AA%D8%AC%D8%A7%D9%88%D8%B2-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF)
+- **قائد "سنتكوم" يبحث مع إسرائيل احتمال استئناف الهجوم على إيران**: [Link](https://aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%82%D8%A7%D8%A6%D8%AF-%D8%B3%D9%86%D8%AA%D9%83%D9%88%D9%85-%D9%8A%D8%A8%D8%AD%D8%AB-%D9%85%D8%B9-%D8%A5%D8%B3%D8%B1%D8%A7%D8%A6%D9%8A%D9%84-%D8%A7%D8%AD%D8%AA%D9%85%D8%A7%D9%84-%D8%A7%D8%B3%D8%AA%D8%A6%D9%86%D8%A7%D9%81-%D8%A7%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%B9%D9%84%D9%89-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86/4129666)
+- **تقرير: نتنياهو كلّف الموساد بالتحضير لعملية سرية داخل إيران من دون إبلاغ الحكومة ورئيس الأركان**: [Link](https://arabic.euronews.com/2026/11/18/secret-operation-iran-zamir-netanyahu-new-war)
+
+
+### الصحراء الغربية (N/A, Wed, 18 Nov 2026 06:40:00 -0800)
+
+- **السفير الأمريكي لدى الأمم المتحدة يدعو "البوليساريو" من المغرب إلى الالتزام بوقف إطلاق النار وإظهار "إرادة حقيقية" لتحقيق السلام**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D8%B3%D9%81%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D9%84%D8%AF%D9%89-%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D9%8A%D8%AF%D8%B9/)
+- **كوشنر يهاجم إدارة بايدن: فشلت في إقناع مزيد من الدول بالانضمام إلى "اتفاقيات أبراهام"**: [Link](https://ar.telquel.ma/%D8%AF%D8%B9%D8%AA-%D8%A7%D9%84%D8%A8%D9%88%D9%84%D9%8A%D8%B3%D8%A7%D8%B1%D9%8A%D9%88-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85-%D8%A8%D9%88%D9%82%D9%81-%D8%A5%D8%B7/)
+- **السفير الأمريكي بالأمم المتحدة: ترامب لن يتراجع عن السلام الدائم في الصحراء**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%B3%D9%81%D9%8A%D8%B1-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-%D8%A8%D8%A7%D9%84%D8%A3%D9%85%D9%85-%D8%A7%D9%84%D9%85%D8%AA%D8%AD%D8%AF%D8%A9-%D8%AA%D8%B1%D8%A7%D9%85%D8%A8-1841287.html)
+
+
+### استيراد (N/A, Wed, 18 Nov 2026 06:30:00 -0800)
+
+- **طلب إحاطة عاجل بشأن فجوة الطاقة المتجددة وأعباء استيراد الغاز**: [Link](https://gate.ahram.org.eg/News/5987377.aspx)
+- **وزير التخطيط: نمو الناتج المحلي الإجمالي بنسبة 4.9% متجاوزًا توقعات المؤسسات الدولية**: [Link](https://www.parlmany.com/News/6/620916/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%AE%D8%B7%D9%8A%D8%B7-%D9%86%D9%85%D9%88-%D8%A7%D9%84%D9%86%D8%A7%D8%AA%D8%AC-%D8%A7%D9%84%D9%85%D8%AD%D9%84%D9%8A-%D8%A7%D9%84%D8%A5%D8%AC%D9%85%D8%A7%D9%84%D9%8A-%D8%A8%D9%86%D8%B3%D8%A8%D8%A9-4-9-%D9%85%D8%AA%D8%AC%D8%A7%D9%88%D8%B2%D9%8B%D8%A7)
+- **رئيس الوزراء: الدولة حريصة على دعم المستثمرين الجادين وتوطين الصناعات في مصر**: [Link](https://www.youlyou.com/97469)
+
+
 ### بنتاغون (N/A, Wed, 18 Nov 2026 00:00:00 -0800)
 
 - **فيديو متداول لـ"إعلان البنتاغون وجود كائنات فضائية بين البشر".. هذه حقيقته**: [Link](https://arabic.cnn.com/world/article/2026/11/18/circulating-video-claims-pentagon-aliens)
