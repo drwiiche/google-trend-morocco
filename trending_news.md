@@ -1,3 +1,73 @@
+### tas (N/A, Thu, 19 Nov 2026 13:40:00 -0800)
+
+- **7/9 Pelham Street, Sorell, Tas 7172**: [Link](https://www.realestate.com.au/property-townhouse-tas-sorell-441120776)
+- **55 Coopers Lane, Wynyard, Tas 7325**: [Link](https://www.realestate.com.au/property-acreage+semi-rural-tas-wynyard-152995456)
+- **33842 Tasman Highway, Tulendeena, Tas 7260**: [Link](https://www.realestate.com.au/property-other-tas-tulendeena-700432572)
+
+
+### وزارة التعليم العالي والبحث العلمي والابتكار (N/A, Thu, 19 Nov 2026 12:30:00 -0800)
+
+- **المداوي يعلن تعديلات جديدة بالنظام الأساسي للأساتذة وتسوية ملفات عالقة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%AF%D8%A7%D9%88%D9%8A-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B9%D8%AF%D9%8A%D9%84%D8%A7%D8%AA-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%86%D8%B8%D8%A7%D9%85-%D8%A7-1842399.html)
+- **حكومة المنصوري تعيد المراكز الجهوية للاستثمار إلى وصاية وزارة الداخلية**: [Link](https://ledesk.ma/arabia/%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D9%86%D8%B5%D9%88%D8%B1%D9%8A-%D8%AA%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D9%85%D8%B1%D8%A7%D9%83%D8%B2-%D8%A7%D9%84%D8%AC%D9%87%D9%88%D9%8A%D8%A9-%D9%84/)
+- **مجلس الحكومة يصادق على مشروع مرسوم يتعلق بإصلاح المراكز الجهوية للاستثمار وبإحداث اللجان الجهوية الموحدة للاستثمار**: [Link](https://alyaoum24.com/2058648.html)
+
+
+### عفاف مصطفى (N/A, Thu, 19 Nov 2026 12:30:00 -0800)
+
+- **عفاف مصطفى تستغيث مجددًا.. ما القصة؟**: [Link](https://www.foochia.com/celebrities/f1rgysi)
+- **فنانة مصرية تشكو قلة العمل وتطلب فرصة بمسلسلات رمضان**: [Link](https://25h.app/2026/11/19/%D9%81%D9%86%D8%A7%D9%86%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9-%D8%AA%D8%B4%D9%83%D9%88-%D9%82%D9%84%D8%A9-%D8%A7%D9%84%D8%B9%D9%85%D9%84-%D9%88%D8%AA%D8%B7%D9%84%D8%A8-%D9%81%D8%B1%D8%B5%D8%A9-%D8%A8/)
+- **فى عيد ميلادها.. من العراف ورأفت الهجان مشوار عفاف مصطفى**: [Link](https://www.youm7.com/story/2026/11/17/%D9%81%D9%89-%D8%B9%D9%8A%D8%AF-%D9%85%D9%8A%D9%84%D8%A7%D8%AF%D9%87%D8%A7-%D9%85%D9%86-%D8%A7%D9%84%D8%B9%D8%B1%D8%A7%D9%81-%D9%88%D8%B1%D8%A3%D9%81%D8%AA-%D8%A7%D9%84%D9%87%D8%AC%D8%A7%D9%86-%D9%85%D8%B4%D9%88%D8%A7%D8%B1-%D8%B9%D9%81%D8%A7%D9%81-%D9%85%D8%B5%D8%B7%D9%81%D9%89/7620051)
+
+
+### أنصار الله الحوثيون (N/A, Thu, 19 Nov 2026 12:00:00 -0800)
+
+- **بعد هجوم حوثي على الرياض.. هل احترقت طائرة سعودية في مطار الملك خالد؟**: [Link](https://www.aljazeera.net/news/2026/11/19/%D8%A8%D8%B9%D8%AF-%D9%87%D8%AC%D9%88%D9%85-%D8%AD%D9%88%D8%AB%D9%8A-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D9%87%D9%84-%D8%A7%D8%AD%D8%AA%D8%B1%D9%82%D8%AA)
+- **أضرار في أطول برج بالرياض إثر هجوم من جماعة أنصار الله وتصاعد المواجهات في اليمن**: [Link](https://www.bbc.com/arabic/articles/cjy5xn34lp3qo)
+- **برج سعودي يتعرض لهجوم حوثي**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%B1%D8%B6-%D8%A8%D8%B1%D8%AC-%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A8%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6-%D9%84%D9%87%D8%AC%D9%88%D9%85-%D8%AD%D9%88%D8%AB%D9%8A-1842379.html)
+
+
+### إبراهيم دياز (N/A, Thu, 19 Nov 2026 11:50:00 -0800)
+
+- **مستقبل دياز يُحسم في «البرنابيو».. تجديد العقد تم واللاعب يطالب بدور أكبر**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%8A%D8%AD%D8%B3%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%86%D8%A7%D8%A8%D9%8A%D9%88-%D8%AA%D8%AC%D8%AF%D9%8A%D8%AF-%D8%A7%D9%84%D8%B9%D9%82%D8%AF-%D8%AA%D9%85-%D9%88%D8%A7%D9%84%D9%84%D8%A7%D8%B9%D8%A8-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%A8%D8%AF%D9%88%D8%B1-%D8%A3%D9%83%D8%A8%D8%B1/27998)
+- **مفاجأة في سلم رواتب ريال مدريد.. هذا ترتيب إبراهيم دياز بين نجوم الفريق الملكي**: [Link](https://ar.sport.le360.ma/football/lions-atlas/D4NNRA7CMJANHAQFQ4N277PTYM/)
+- **وضعية إبراهيم تزداد تعقيدا في مدريد**: [Link](https://www.almountakhab.com/node/13233055)
+
+
+### roi du maroc (N/A, Thu, 19 Nov 2026 11:30:00 -0800)
+
+- **Le roi du Maroc a versé des millions d’euros à une société de Teddy Riner**: [Link](https://www.mediapart.fr/journal/politique/191126/le-roi-du-maroc-verse-des-millions-d-euros-une-societe-de-teddy-riner)
+- **La société de Teddy Riner décotée de 90% au nom de sa clientèle royale**: [Link](https://ledesk.ma/2026/11/19/la-societe-de-teddy-riner-decotee-de-90-au-nom-de-sa-clientele-royale/)
+- **SIGNÉ CONSIGNY - Le Teddy Riner de la gauche, c'est François Hollande ? - 18/11**: [Link](https://actu.orange.fr/videos/societe/signe-consigny-le-teddy-riner-de-la-gauche-c-est-francois-hollande-18-11-CNT000002tNQ8e.html)
+
+
+### عبد الله وزان (N/A, Thu, 19 Nov 2026 11:20:00 -0800)
+
+- **عبد الله وزان.. منافس الزلزولي الذي رفضه ريال مدريد في اللحظة الأخيرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%B2%D8%A7%D9%86--%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B0%D9%8A-%D8%B1%D9%81%D8%B6%D9%87-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9/blta62f7eaf6bc050d4)
+- **شاهد ملخص مباراة المغرب ضد النيجر في تصفيات كأس أمم أفريقيا 2027**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/17/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%B6%D8%AF-%D8%A7%D9%84%D9%86%D9%8A%D8%AC%D8%B1-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1)
+- **وهبي: نطمح إلى التتويج بكأس إفريقيا**: [Link](https://www.hespress.com/%D9%88%D9%87%D8%A8%D9%8A-%D9%86%D8%B7%D9%85%D8%AD-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A8%D9%83%D8%A3%D8%B3-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-1841650.html)
+
+
+### طنجة (N/A, Thu, 19 Nov 2026 11:10:00 -0800)
+
+- **نشرة حمراء توقف إيطاليا بمدينة طنجة**: [Link](https://www.hespress.com/%D9%86%D8%B4%D8%B1%D8%A9-%D8%AD%D9%85%D8%B1%D8%A7%D8%A1-%D8%AA%D9%88%D9%82%D9%81-%D8%A5%D9%8A%D8%B7%D8%A7%D9%84%D9%8A%D8%A7-%D8%A8%D9%85%D8%AF%D9%8A%D9%86%D8%A9-%D8%B7%D9%86%D8%AC%D8%A9-1842344.html)
+- **انتحل صفة بلغاري للإفلات من العدالة.. «الديستي» وأمن طنجة يطيحان بإيطالي متورط في السطو بالعنف**: [Link](https://ar.le360.ma/societe/UV4KGIKHRNFWTOBHYKREAFQ4PU/)
+- **بتنسيق مع "الديستي" أمن طنجة يوقف إيطاليا مطلوبا دوليا في قضايا سطو بالعنف - تليكسبريس**: [Link](https://telexpresse.com/511968.html)
+
+
+### تطوان (N/A, Thu, 19 Nov 2026 10:30:00 -0800)
+
+- **القضاء الإسباني يستدعي "قنصل تطوان"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%82%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B3%D8%AA%D8%AF%D8%B9%D9%8A-%D9%82%D9%86%D8%B5%D9%84-%D8%AA%D8%B7%D9%88%D8%A7%D9%86-1842544.html)
+- **القضاء الإسباني يفتح الصندوق الأسود لأزمة العبور الجماعي نحو سبتة**: [Link](https://ar.telquel.ma/170-%D9%82%D8%A7%D8%B5%D8%B1%D8%A7-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A7-%D8%B9%D8%A7%D9%84%D9%82%D9%88%D9%86-%D9%81%D9%8A-%D8%B3%D8%A8%D8%AA%D8%A9-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%B9%D9%88/)
+- **سبتة: عودة أكثر من 16,400 مهاجر إلى المغرب منذ يوليو 2026**: [Link](https://medias24.com/2026/11/17/%D8%B3%D8%A8%D8%AA%D8%A9-%D8%B9%D9%88%D8%AF%D8%A9-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-16400-%D9%85%D9%87%D8%A7%D8%AC%D8%B1-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D9%86-179204/)
+
+
+### équipe du maroc de football des moins de 17 ans (N/A, Thu, 19 Nov 2026 10:20:00 -0800)
+
+- **Tournoi UNAF U17: suivez en direct Maroc-Tunisie**: [Link](https://sport.le360.ma/football/lions-atlas/tournoi-unaf-u17-suivez-en-direct-maroc-tunisie_FK3LJALLENABJCSC422JCOFWKY/)
+- **UNAF U17 – Qualifs. CAN 2027 : les Lionceaux terminent sur une large victoire**: [Link](https://lopinion.ma/fr/sport/newsroom/unaf-u17--qualifs-can-2027--les-lionceaux-terminent-sur-une-large-victoire-_a88541?articleId=938592e6-cfa4-41e8-998d-dc553032318d)
+- **Qualification CAN 2027: La sélection U17 éliminée...**: [Link](https://www.mosaiquefm.net/fr/football/1537081/qualification-can-2027-la-selection-u17-eliminee)
+
+
 ### al ain – al-dhafra (N/A, Thu, 19 Nov 2026 08:10:00 -0800)
 
 - **Today's matches and broadcast channels: Al Ain vs Al Dhafra and anticipated matches in the Egyptian Cup**: [Link](https://www.voiceofemirates.com/en/sport/2026/11/19/todays-matches-and-broadcast-channels-al-ain-vs-al-dhafra-and-anticipated-matches-in-the-egyptian-cup/)
