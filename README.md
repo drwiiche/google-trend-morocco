@@ -1,3 +1,62 @@
+### منتخب غانا لكرة القدم (N/A, Wed, 18 Nov 2026 23:20:00 -0800)
+
+- **شاهد.. اشتباكات واعتداء على الحكم في مباراة غانا وليبيا بتصفيات أمم أفريقيا للشباب**: [Link](https://www.aljazeera.net/sport/2026/11/18/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D9%88%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D9%81%D9%8A)
+- **فوضى ومشاجرات في مباراة منتخب ليبيا الأولمبي وغانا (فيديو)**: [Link](https://www.eremnews.com/sports/i6gdimu)
+- **بعد الاعتداء على بعثة المنتخب الأولمبي في غانا.. ليبيا تتقدم بشكوى رسمية**: [Link](https://www.eanlibya.com/%D8%B9%D9%8A%D9%86-%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%AA%D8%AA%D9%88%D8%A7%D8%B5%D9%84-%D9%85%D8%B9-%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A3/)
+
+
+### meteo (N/A, Wed, 18 Nov 2026 23:10:00 -0800)
+
+
+
+
+### طقس اليوم (N/A, Wed, 18 Nov 2026 22:50:00 -0800)
+
+- **درجات الحرارة اليوم في مصر.. الأرصاد تحذر من الشبورة وتكشف تفاصيل طقس الخميس**: [Link](https://twaslnews1.twaslnews.com/7948496/)
+- **الطقس اليوم.. شبورة كثيفة وسحب منخفضة و​العظمى بالقاهرة 26 درجة - صوت الأمة**: [Link](https://www.akhbarak.net/news/details/49555620/16/%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D9%88%D8%B3%D8%AD%D8%A8-%D9%85%D9%86%D8%AE%D9%81%D8%B6%D8%A9-%D9%88-%D8%A7%D9%84%D8%B9%D8%B8%D9%85%D9%89-%D8%A8%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-26-%D8%AF%D8%B1%D8%AC%D8%A9-%D8%B5%D9%88%D8%AA-%D8%A7%D9%84%D8%A3%D9%85%D8%A9)
+- **تحذير عاجل من الأرصاد.. شبورة كثيفة تضرب الطرق صباح الأربعاء وأمطار بمناطق متفرقة**: [Link](https://elmaser.com/article/202281)
+
+
+### الأيام 24 (N/A, Wed, 18 Nov 2026 22:30:00 -0800)
+
+- **تصنيف فيفا: المغرب يكتب التاريخ.. وتراجع مصري**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%AA%D8%B5%D9%86%D9%8A%D9%81-%D9%81%D9%8A%D9%81%D8%A7-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D9%83%D8%AA%D8%A8-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE--%D9%88%D8%AA%D8%B1%D8%A7%D8%AC%D8%B9-%D9%85%D8%B5%D8%B1%D9%8A/blt4cd739e07b733aef)
+- **المنتخب الوطني يرتقي إلى المركز الخامس عالميا لأول مرة في تاريخه**: [Link](https://frmf.ma/articles/historique-les-lions-de-latlas-integre-dans-le-top-5-mondial)
+- **تصنيف "فيفا" بعد توقف نوفمبر.. إليك مراكز المنتخبات العربية | CNN Arabic | CNN**: [Link](https://arabic.cnn.com/sport/article/2026/11/18/arab-teams-fifa)
+
+
+### tiempo (N/A, Wed, 18 Nov 2026 22:30:00 -0800)
+
+- **Conductores en Coconut Grove intentan transitar por calles inundadas**: [Link](https://www.local10.com/espanol/2026/11/18/conductores-en-coconut-grove-intentan-transitar-por-calles-inundadas/)
+
+
+### طقس (N/A, Wed, 18 Nov 2026 22:10:00 -0800)
+
+- **أحوال الطقس المرتقبة بالمغرب الأربعاء**: [Link](https://www.hespress.com/%D8%A3%D8%AD%D9%88%D8%A7%D9%84-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A9-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7-1841574.html)
+- **أمطار وضباب مرتقبان بعدد من المناطق المغربية غدا الأربعاء**: [Link](https://ar.lesiteinfo.com/maroc/%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B6%D8%A8%D8%A7%D8%A8-%D9%85%D8%B1%D8%AA%D9%82%D8%A8%D8%A7%D9%86-%D8%A8%D8%B9%D8%AF%D8%AF-%D9%85%D9%86-%D8%A7%D9%84%D9%85%D9%86%D8%A7%D8%B7%D9%82-%D8%A7%D9%84-1033173.html)
+- **طقس الأربعاء.. أمطار خفيفة وضباب بعدد من مناطق المملكة**: [Link](https://febrayer.com/1169427.html)
+
+
+### pompe (N/A, Wed, 18 Nov 2026 22:00:00 -0800)
+
+- **E10 sous 2 € le litre : pourquoi rouler au superéthanol rapporte moins qu'en septembre**: [Link](https://selectra.info/energie/actualites/marche/superethanol-e85-prix-fige-e10-baisse-novembre)
+- **Gazole : après la baisse des prix, faudra-t-il reconstituer les stocks stratégiques et qui paiera ?**: [Link](https://www.ladepeche.fr/2026/11/19/gazole-apres-la-baisse-des-prix-faudra-t-il-reconstituer-les-stocks-strategiques-et-qui-paiera-13659181.php)
+- **Carburants dans l'Oise : où faire le plein d'essence ou de gazole au meilleur prix ce jeudi 19 novembre**: [Link](https://www.leparisien.fr/economie/consommation/carburants-dans-loise-ou-faire-le-plein-dessence-ou-de-gazole-au-meilleur-prix-ce-jeudi-19-novembre-19-11-2026-66LH3AWFUNE3LPLL3ZFVLC5QFI.php)
+
+
+### محكمة (N/A, Wed, 18 Nov 2026 20:50:00 -0800)
+
+- **صدمة جديدة.. المحكمة ترفض إنقاذ إيفان توني من أزمة يورو 2028**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B5%D8%AF%D9%85%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9--%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%AA%D8%B1%D9%81%D8%B6-%D8%A7%D9%95%D9%86%D9%82%D8%A7%D8%B0-%D8%A7%D9%95%D9%8A%D9%81%D8%A7%D9%86-%D8%AA%D9%88%D9%86%D9%8A-%D9%85%D9%86-%D8%A7%D9%94%D8%B2%D9%85%D8%A9-%D9%8A%D9%88%D8%B1%D9%88-2028/blt963e7ec64c34ff68)
+- **تطور مثير.. صدمة جديدة من القضاء الإنجليزي لنجم الأهلي السعودي**: [Link](https://www.eremnews.com/sports/iyashry)
+- **القضاء البريطاني يرفض تأجيل محاكمة توني في «الاعتداء الجسدي»**: [Link](https://twaslnews1.twaslnews.com/7930564/)
+
+
+### corinthians – botafogo (N/A, Wed, 18 Nov 2026 17:00:00 -0800)
+
+- **Corinthians vê chance de rebaixamento cair pela metade com goleada sobre o Botafogo**: [Link](https://tmc.com.br/esporte/corinthians-ve-chance-de-rebaixamento-cair-pela-metade-com-goleada-sobre-o-botafogo/)
+- **Kaio César faz um golaço pelo Corinthians contra o Botafogo pelo Brasileirão**: [Link](https://www.meutimao.com.br/videos-do-corinthians/130783/kaio-cesar-faz-um-golaco-pelo-corinthians-contra-o-botafogo-pelo-brasileirao)
+- **Rodada do Brasileirão: Corinthians goleia e deixa o Z-4**: [Link](https://comunhao.com.br/rodada-do-brasileirao-35-resultados-quarta/)
+
+
 ### جواو كانسيلو (N/A, Wed, 18 Nov 2026 15:10:00 -0800)
 
 - **"صوّر القائد".. لاعبو البرتغال يسخرون من رونالدو عقب اعتزاله**: [Link](https://www.alarabiya.net/sport/2026/11/18/%D8%B5%D9%88-%D8%B1-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%8A%D8%B3%D8%AE%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%B9%D9%82%D8%A8-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87)
