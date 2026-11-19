@@ -1,3 +1,38 @@
+### جواو كانسيلو (N/A, Wed, 18 Nov 2026 15:10:00 -0800)
+
+- **"صوّر القائد".. لاعبو البرتغال يسخرون من رونالدو عقب اعتزاله**: [Link](https://www.alarabiya.net/sport/2026/11/18/%D8%B5%D9%88-%D8%B1-%D8%A7%D9%84%D9%82%D8%A7%D8%A6%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8%D9%88-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%8A%D8%B3%D8%AE%D8%B1%D9%88%D9%86-%D9%85%D9%86-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%B9%D9%82%D8%A8-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84%D9%87)
+- **هل تعمدا السخرية من كريستيانو رونالدو؟ .. جواو كانسيلو وبرونو فيرنانديش يثيران الجدل بعد الفوز أمام ويلز**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%AC%D9%88%D8%A7%D9%88-%D9%83%D8%A7%D9%86%D8%B3%D9%8A%D9%84%D9%88-%D8%A8%D8%B1%D9%88%D9%86%D9%88-%D9%81%D9%8A%D8%B1%D9%86%D8%A7%D9%86%D8%AF%D9%8A%D8%B4-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D9%8A%D9%84%D8%B2/bltb74af558243af320)
+- **بعد مباراة ويلز.. برونو فيرنانديز وكانسيلو يثيران جدلًا**: [Link](https://www.lebanon24.com/news/sports/1596641/%D8%A8%D8%B9%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%88%D9%8A%D9%84%D8%B2-%D8%A8%D8%B1%D9%88%D9%86%D9%88-%D9%81%D9%8A%D8%B1%D9%86%D8%A7%D9%86%D8%AF%D9%8A%D8%B2-%D9%88%D9%83%D8%A7%D9%86%D8%B3%D9%8A%D9%84%D9%88-%D9%8A%D8%AB%D9%8A%D8%B1%D8%A7%D9%86-%D8%AC%D8%AF%D9%84%D9%8B%D8%A7)
+
+
+### l'économiste (N/A, Wed, 18 Nov 2026 12:30:00 -0800)
+
+- **Sur instructions du Roi, le Complexe Hospitalo-Universitaire International Mohammed VI inauguré à Dakhla**: [Link](https://fr.le360.ma/politique/sur-instructions-du-roi-le-complexe-hospitalo-universitaire-international-mohammed-vi-inaugure-a_ERRQHUVFKFASHEV7JS3LUWAYQU/)
+- **Dakhla : Inauguration du Complexe Hospitalo-Universitaire International Mohammed VI**: [Link](https://www.leconomiste.com/flash-infos/dakhla-inauguration-du-complexe-hospitalo-universitaire-international-mohammed-vi/)
+- **Complexe Hospitalo-Universitaire International Mohammed VI Archives**: [Link](https://fr.hespress.com/tag/complexe-hospitalo-universitaire-international-mohammed-vi)
+
+
+### عبد الكريم جيناني (N/A, Wed, 18 Nov 2026 11:20:00 -0800)
+
+- **مصدر لـ"راديو مارس": الجيناني يختار مساعديه في الرجاء.. وتكتم شديد على الأسماء باستثناء "مفاجأة" سارة للرجاويين!**: [Link](https://radiomars.ma/jinani-staff-technique-raja-athletic/)
+- **3 مدربين يصدمون الزيات ويرفضون العودة إلى الرجاء**: [Link](https://ar.sport.le360.ma/football/JLOOPNRR4RDMDLQXJZ2HWOT2HU/)
+- **حصريا.. الرجاء يحسم في هذا التاريخ ملف مساعد المدرب عبد الكريم جيناني**: [Link](https://sport.lesiteinfo.com/elbotola/506732.html)
+
+
+### صندوق النقد الدولي (N/A, Wed, 18 Nov 2026 11:10:00 -0800)
+
+- **صندوق النقد: الناتج الداخلي الخام يتجاوز 5000 دولار لأول مرة بالمغرب**: [Link](https://www.hespress.com/%D8%B5%D9%86%D8%AF%D9%88%D9%82-%D8%A7%D9%84%D9%86%D9%82%D8%AF-%D8%A7%D9%84%D9%86%D8%A7%D8%AA%D8%AC-%D8%A7%D9%84%D8%AF%D8%A7%D8%AE%D9%84%D9%8A-%D8%A7%D9%84%D8%AE%D8%A7%D9%85-%D9%8A%D8%AA%D8%AC%D8%A7-1841895.html)
+- **أرقام صندوق النقد تعزز حصيلة الحكومة السابقة.. الاستثمار يقفز إلى ثلث الاقتصاد المغربي**: [Link](https://al3omk.com/1211545.html)
+- **صندوق النقد الدولي يرصد قفزة في حجم الاقتصاد في عهد الحكومة السابقة.. الدخل الفردي يتجاوز 5.000 دولار والناتج الداخلي يلامس 200 مليار دولار**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/501976.html)
+
+
+### matan kahana (N/A, Wed, 18 Nov 2026 10:20:00 -0800)
+
+- **Israel’s parliament elects new Knesset speaker, weakening Netanyahu’s grip on power**: [Link](https://www.cnn.com/2026/11/17/middleeast/israel-knesset-speaker-netanyahu-intl)
+- **Matan Kahana Elected Speaker of Israel’s Parliament**: [Link](https://www.nytimes.com/2026/11/17/world/middleeast/israel-opposition-selects-parliamentary-speaker.html)
+- **With new speaker, Israel parliament moves to unravel Netanyahu legacy**: [Link](https://www.france24.com/en/live-news/20261118-with-new-speaker-israel-parliament-moves-to-unravel-netanyahu-legacy)
+
+
 ### منتخب البرتغال لكرة القدم (N/A, Wed, 18 Nov 2026 10:00:00 -0800)
 
 - **شاهد.. انتصار البرتغال والبوسنة وتألق لافت للسويد والنمسا في دوري الأمم الأوروبية**: [Link](https://www.aljazeera.net/sport/2026/11/18/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%A8%D9%88%D8%B3%D9%86%D8%A9-%D9%88%D8%AA%D8%A3%D9%84%D9%82)
