@@ -1,3 +1,71 @@
+### al ain – al-dhafra (N/A, Thu, 19 Nov 2026 08:10:00 -0800)
+
+- **Today's matches and broadcast channels: Al Ain vs Al Dhafra and anticipated matches in the Egyptian Cup**: [Link](https://www.voiceofemirates.com/en/sport/2026/11/19/todays-matches-and-broadcast-channels-al-ain-vs-al-dhafra-and-anticipated-matches-in-the-egyptian-cup/)
+
+
+### équipe d'égypte des moins de 17 ans de football – grèce u-17 (N/A, Thu, 19 Nov 2026 07:40:00 -0800)
+
+- **Florida vs. West Virginia (Nov 19, 2026) Live Score**: [Link](https://www.espn.com/mens-college-basketball/game/_/gameId/401920517/florida-west-virginia)
+- **Buffalo 40-21 Central Michigan (Nov 18, 2026) Game Recap**: [Link](https://www.espn.com/college-football/recap/_/gameId/401866469)
+- **Malone University Pioneers vs. Wright State Raiders: Game Highlights**: [Link](https://www.espn.com/video/clip/_/id/50526800/game-highlights)
+
+
+### الاتحاد الدولي لكرة القدم (N/A, Thu, 19 Nov 2026 07:30:00 -0800)
+
+- **محكمة الدار البيضاء التجارية تدين شركة مغربية بتزييف علامات "فيفا"**: [Link](https://www.hespress.com/%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%A7%D9%84%D8%AA%D8%AC%D8%A7%D8%B1%D9%8A%D8%A9-%D8%AA%D8%AF%D9%8A%D9%86-%D8%B4%D8%B1%D9%83-1842312.html)
+- **حكم قضائي لصالح الفيفا بسبب استغلال العلامة التجارية في المغرب**: [Link](https://www.eremnews.com/sports/h1pokej)
+- **القضاء المغربي ينتصر لـ”فيفا”.. حكم بإتلاف منتجات مزيفة تحمل شعار كأس العالم**: [Link](https://al3omk.com/1211815.html)
+
+
+### محمد أوزال (N/A, Thu, 19 Nov 2026 07:20:00 -0800)
+
+- **مراعاة لوضعيته الصحية وسنه المتقدم.. محمد أوزال يغادر سجن عكاشة بسوار إلكتروني**: [Link](https://febrayer.com/1169496.html)
+- **لظروفه الصحية وكبر سنه أوزال يغادر سجن " عكاشة"**: [Link](https://badil.info/197393)
+- **القضاء يقرر إخضاع محمد أوزال للمراقبة الإلكترونية بدل السجن**: [Link](https://assafir24.ma/218921/)
+
+
+### atterrissage (N/A, Thu, 19 Nov 2026 07:10:00 -0800)
+
+- **Cinq Marocains provoquent un atterrissage d’urgence pour tenter d’entrer en Italie**: [Link](https://mobile.telquel.ma/instant-t/2026/11/19/cinq-marocains-provoquent-un-atterrissage-durgence-pour-tenter-dentrer-en-italie_2018841/)
+- **Rome: des Marocains arrêtés après leur fuite d’un avion ayant atterri en urgence**: [Link](https://h24info.ma/maroc/societe/rome-des-marocains-arretes-apres-leur-fuite-dun-avion-ayant-atterri-en-urgence/)
+- **Atterrissage d'urgence à l'aéroport de Rome : des passagers d'un vol vers le Maroc prennent la fuite**: [Link](https://fr.hibapress.com/news-285786.html)
+
+
+### ألستوم (N/A, Thu, 19 Nov 2026 05:30:00 -0800)
+
+- **المونديال يعزز حضور الشركات الفرنسية في تطوير السكك الحديدية المغربية**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%8A%D8%B9%D8%B2%D8%B2-%D8%AD%D8%B6%D9%88%D8%B1-%D8%A7%D9%84%D8%B4%D8%B1%D9%83%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-1841866.html)
+- **شركات فرنسية متخصصة في القطارات فائقة السرعة تجني ثمار صفقاتها مع المغرب**: [Link](https://www.alalam.ma/%D8%B4%D8%B1%D9%83%D8%A7%D8%AA-%D9%81%D8%B1%D9%86%D8%B3%D9%8A%D8%A9-%D9%85%D8%AA%D8%AE%D8%B5%D8%B5%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D9%82%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D9%81%D8%A7%D8%A6%D9%82%D8%A9-%D8%A7%D9%84%D8%B3%D8%B1%D8%B9%D8%A9-%D8%AA%D8%AC%D9%86%D9%8A-%D8%AB%D9%85%D8%A7%D8%B1-%D8%B5%D9%81%D9%82%D8%A7%D8%AA%D9%87%D8%A7-%D9%85%D8%B9_a36209.html)
+- **قطارات المغرب فائقة السرعة تعزز نمو «ألستوم» رغم خسائرها العالمية**: [Link](https://alittihad.info/%D9%82%D8%B7%D8%A7%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%81%D8%A7%D8%A6%D9%82%D8%A9-%D8%A7%D9%84%D8%B3%D8%B1%D8%B9%D8%A9-%D8%AA%D8%B9%D8%B2%D8%B2-%D9%86%D9%85%D9%88-%D8%A3/)
+
+
+### دواجن (N/A, Thu, 19 Nov 2026 04:50:00 -0800)
+
+- **بعد التراجع.. سعر الفراخ البيضاء للمستهلك اليوم الخميس 19 نوفمبر 2026 وبورصة الدواجن الآن**: [Link](https://www.almasryalyoum.com/news/details/4414418)
+- **19 نوفمبر 2026.. أسعار الدواجن والبيض في بورصة الدواجن اليوم**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=19112026&id=03f2b6e7-9b1e-468b-be57-ad57deca63c4)
+- **أسعار اللحوم والدواجن والأسماك والخضروات والفاكهة اليوم الخميس.. الكندوز بـ443 جنيهًا والبلطي بـ72 جنيهًا**: [Link](https://www.altreeq.com/551512)
+
+
+### anthropic (N/A, Thu, 19 Nov 2026 04:30:00 -0800)
+
+- **Anthropic IPO live: Company prices stock at $83, indications point to shares trading at $110**: [Link](https://finance.yahoo.com/technology/live/anthropic-ipo-live-company-said-to-price-stock-at-83-begin-trading-thursday-212656452.html)
+- **The seven Anthropic founders who are about to become multi-billionaires**: [Link](https://www.bbc.com/news/articles/cmd7159vlr85o)
+- **The key to Anthropic’s value**: [Link](https://www.ft.com/content/aa8290dc-a20a-45af-97ab-1e71f97f236a?syn-25a6b1a6=1)
+
+
+### sénégal (N/A, Thu, 19 Nov 2026 04:10:00 -0800)
+
+- **Sénégal: le président exécute par décret le budget rectifié crucial pour l’aide du FMI**: [Link](https://afrique.le360.ma/afrique-de-louest/senegal-le-president-execute-par-decret-le-budget-rectifie-crucial-pour-laide-du-fmi_IUSFDS7JSFGKZKWABKLCBDI5VQ/)
+- **Sénégal: le président contourne le Parlement pour exécuter le budget révisé crucial pour l'aide du FMI**: [Link](https://medias24.com/agence-presse/senegal-le-president-contourne-le-parlement-pour-executer-le-budget-revise-crucial-pour-laide-du-fmi/)
+- **Sénégal : Diomaye Faye met en vigueur la LFR 2026 par décret**: [Link](https://fr.apanews.net/tv/senegal-diomaye-faye-met-en-vigueur-la-lfr-2026-par-decret/)
+
+
+### bourse de casablanca (N/A, Thu, 19 Nov 2026 02:00:00 -0800)
+
+- **Bourse de Casablanca : clôture dans le rouge**: [Link](https://fr.hespress.com/497124-bourse-de-casablanca-cloture-dans-le-rouge-107.html)
+- **Bourse de Casablanca. Le MASI quasi stable, Jet Energy concentre les échanges**: [Link](https://medias24.com/2026/11/17/bourse-de-casablanca-le-masi-quasi-stable-jet-energy-concentre-les-echanges-1792094/)
+- **Bourse : Du bêta au cas par cas**: [Link](https://boursenews.ma/article/marches/bourse-casablanca-masi-beta-stock-picking-novembre-2026)
+
+
 ### منتخب غانا لكرة القدم (N/A, Wed, 18 Nov 2026 23:20:00 -0800)
 
 - **شاهد.. اشتباكات واعتداء على الحكم في مباراة غانا وليبيا بتصفيات أمم أفريقيا للشباب**: [Link](https://www.aljazeera.net/sport/2026/11/18/%D8%B4%D8%A7%D9%87%D8%AF-%D8%A7%D8%B4%D8%AA%D8%A8%D8%A7%D9%83%D8%A7%D8%AA-%D9%88%D8%A7%D8%B9%D8%AA%D8%AF%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%AD%D9%83%D9%85-%D9%81%D9%8A)
