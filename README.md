@@ -1,3 +1,71 @@
+### classement al-ahli saudi – al-nassr fc (N/A, Fri, 20 Nov 2026 11:50:00 -0800)
+
+- **Cristiano Ronaldo Misses Penalty As Al Nassr Falls To 3rd In Saudio Pro League**: [Link](https://www.foxsports.com/stories/soccer/cristiano-ronaldo-misses-penalty-al-nassr-falls-3rd-saudio-pro-league)
+- **Cristiano Ronaldo upstaged by England star as Al-Nassr beaten**: [Link](https://www.the-independent.com/bulletin/sport/al-ahli-al-nassr-result-cristiano-ronaldo-ivan-toney-b3088954.html)
+- **Cristiano Ronaldo reaches 986 career goals: Where is Lionel Messi standing in the race to 1,000?**: [Link](https://bolavip.com/en/soccer/cristiano-ronaldo-reaches-986-career-goals-where-is-lionel-messi-standing-in-the-race-to-1000)
+
+
+### troyes – le havre (N/A, Fri, 20 Nov 2026 11:30:00 -0800)
+
+- **DIRECT. Troyes-Le Havre: Mille remet les compteurs à zéro, le duel du bas de tableau s'enflamme**: [Link](https://rmcsport.bfmtv.com/football/ligue-1/direct-troyes-le-havre-suivez-le-match-d-ouverture-de-la-11e-journee-de-ligue-1_LS-202611200719.html)
+- **L’odyssée de Valérien Ismaël**: [Link](https://www.sofoot.com/articles/allemagne-greve-autriche-angleterre-turquie-lodyssee-de-valerien-ismael-nouvel-entraineur-du-havre)
+- **Jean-Marc Furlan, qui souffre d'une maladie neurodégénérative, est au stade de l'Aube pour Troyes - Le Havre en Ligue 1**: [Link](https://www.lequipe.fr/Football/Actualites/Jean-marc-furlan-qui-souffre-d-une-maladie-neurodegenerative-est-au-stade-de-l-aube-pour-troyes-le-havre-en-ligue-1/1744979)
+
+
+### ath. bilbao – espanyol (N/A, Fri, 20 Nov 2026 11:20:00 -0800)
+
+- **🚨 ONCES del Athletic Club-Espanyol: ¡Beñat Prados titular; Dolan suplente!**: [Link](https://es-us.noticias.yahoo.com/deportes/onces-athletic-club-espanyol-be%C3%B1at-185100828.html)
+- **Riedel, Bauza e Hinojo, titulares: Eder Sarabia se resguarda en San Mamés**: [Link](https://www.mundodeportivo.com/futbol/rcd-espanyol/20261120/1004253484/riedel-bauza-e-hinojo-titulares-eder-sarabia-resguarda-san-mames.html)
+- **🔥 Leones, ¡a calentar!**: [Link](https://athleticclubinfo.com/athletic-tv/video/420-leones-a-calentar)
+
+
+### bayern vs köln (N/A, Fri, 20 Nov 2026 11:00:00 -0800)
+
+- **Bundesliga: Köln erwischt die Bayern bei Kompanys Rückkehr kalt – Kane muss verletzt runter, dann trifft Brown**: [Link](https://www.welt.de/sport/fussball/bundesliga/fc-bayern-muenchen/article6b0099d3b237b5b41c9a31cb/bundesliga-koeln-erwischt-die-bayern-bei-kompanys-rueckkehr-kalt-kane-muss-verletzt-runter-dann-trifft-brown.html)
+- **So startet der FC in München**: [Link](https://fc.de/aktuelles/news/so-startet-der-fc-in-muenchen)
+- **Auflagen in München: Kölner Fans reisen vorzeitig wieder ab**: [Link](https://www.antenne.de/nachrichten/bayern/auflagen-in-muenchen-koelner-fans-reisen-vorzeitig-wieder-ab)
+
+
+### البايرن ضد كولن (N/A, Fri, 20 Nov 2026 10:50:00 -0800)
+
+- **"كانت صدمة".. كومباني يعود لقيادة بايرن ميونخ ويكشف كواليس أزمته الصحية**: [Link](https://www.aljazeera.net/sport/2026/11/19/%D9%83%D8%A7%D9%86%D8%AA-%D8%B5%D8%AF%D9%85%D8%A9-%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%B9%D9%88%D8%AF-%D9%84%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A8%D8%A7%D9%8A%D8%B1%D9%86)
+- **كومباني يكشف كواليس معاناة موسيالا.. ويرسم ملامح عودته المنتظرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%83%D9%88%D9%85%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D9%83%D8%B4%D9%81-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D9%85%D8%B9%D8%A7%D9%86%D8%A7%D8%A9-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7--%D9%88%D9%8A%D8%B1%D8%B3%D9%85-%D9%85%D9%84%D8%A7%D9%85%D8%AD-%D8%B9%D9%88%D8%AF%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%B8%D8%B1%D8%A9/bltc89d1399d569fd74)
+- **البايرن ضد كولن .. كين يقود البافاري في الدوري الألماني**: [Link](https://www.youm7.com/story/2026/11/20/%D8%A7%D9%84%D8%A8%D8%A7%D9%8A%D8%B1%D9%86-%D8%B6%D8%AF-%D9%83%D9%88%D9%84%D9%86-%D9%83%D9%8A%D9%86-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D8%A8%D8%A7%D9%81%D8%A7%D8%B1%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D9%84%D9%85%D8%A7%D9%86%D9%8A/7626398)
+
+
+### bayern – cologne (N/A, Fri, 20 Nov 2026 10:40:00 -0800)
+
+- **Preview: FC Bayern vs. 1. FC Köln, Bundesliga**: [Link](https://fcbayern.com/en/news/matchpreviews/2026/11/preview-fc-bayern-vs.-koeln-bundesliga-md-10)
+- **Bayern's Kane subbed out with ankle injury**: [Link](https://sports.yahoo.com/articles/bayerns-kane-subbed-ankle-injury-201601624.html)
+- **Bayern-Köln preview: Bayern lead the table with five injuries**: [Link](https://www.tufutbolero.com/en/news/bayern-koln-preview-bayern-lead-the-table-with-five-injuries-fcccf3)
+
+
+### ياسر زبيري (N/A, Fri, 20 Nov 2026 10:40:00 -0800)
+
+- **تقرير إعلامي إسباني يحتفي بالزابيري**: [Link](https://www.hespress.com/%D8%AA%D9%82%D8%B1%D9%8A%D8%B1-%D8%A5%D8%B9%D9%84%D8%A7%D9%85%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A-%D9%8A%D8%AD%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-1841779.html)
+- **زابيري.. من سوء التوظيف في رين إلى انفجار في "الليغا"**: [Link](https://www.almountakhab.com/node/16233095)
+- **إشبيلية يلاحق الزبيري منذ تجربته البرتغالية.. وكلفته المالية تعقّد ضمه**: [Link](https://sports.lematin.ma/ar/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A5%D8%B4%D8%A8%D9%8A%D9%84%D9%8A%D8%A9-%D9%8A%D9%84%D8%A7%D8%AD%D9%82-%D8%A7%D9%84%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D9%85%D9%86%D8%B0-%D8%AA%D8%AC%D8%B1%D8%A8%D8%AA%D9%87-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D9%83%D9%84%D9%81%D8%AA%D9%87-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D8%B9%D9%82%D8%AF-%D8%B6%D9%85%D9%87/28012)
+
+
+### وقود (N/A, Fri, 20 Nov 2026 10:30:00 -0800)
+
+
+
+
+### classement équipe des fidji des moins de 17 ans de football – maroc u-17 (N/A, Fri, 20 Nov 2026 10:10:00 -0800)
+
+- **Morocco U-17 Thrash Fiji 6-0 to Make Flying Start at World Cup**: [Link](https://www.moroccoworldnews.com/2026/11/347520/morocco-u-17-thrash-fiji-6-0-to-make-flying-start-at-world-cup/)
+- **Morocco’s U17 Team Arrives in Qatar Ahead of 2026 World Cup**: [Link](https://barlamantoday.com/2026/11/16/moroccos-u17-team-arrives-in-qatar-ahead-of-2026-world-cup/)
+- **El Kantari (Morocco U17s coach): "Atlas Cubs' World Cup**: [Link](https://www.elbotola.com/en/article/2026-11-18-19-41-465.html)
+
+
+### اتحاد شمال إفريقيا لكرة القدم (N/A, Fri, 20 Nov 2026 10:10:00 -0800)
+
+- **رئيس الاتحاد الأفريقي لكرة القدم (CAF)**: [Link](https://www.cafonline.com/ar/%D8%AF%D8%A7%D8%AE%D9%84-caf/news/%D8%B1%D8%A6%D9%8A%D8%B3-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-caf-%D8%A7%D9%84%D8%AF%D9%83%D8%AA%D9%88%D8%B1-%D8%A8%D8%A7%D8%AA%D8%B1%D9%8A%D8%B3-%D9%85%D9%88%D8%AA%D8%B3%D9%8A%D8%A8%D9%8A-%D9%88%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B9%D8%B6%D8%A7%D8%A1-%D9%8A%D8%A4%D9%83%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85%D9%87%D9%85-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AF%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%85%D8%A7%D9%84%D9%8A%D8%A9-%D9%88%D8%AA%D8%B7%D9%88%D9%8A%D8%B1-%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D8%AE%D9%84%D8%A7%D9%84-%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D8%A7%D8%AA-%D8%A3%D8%A8%D9%88%D8%AC%D8%A7/)
+- **لمغرب خارج خريطة مسابقات شمال إفريقيا 2027.. غياب مفاجئ يثير التساؤلات**: [Link](https://radiomars.ma/%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AE%D8%A7%D8%B1%D8%AC-%D8%AE%D8%B1%D9%8A%D8%B7%D8%A9-%D9%85%D8%B3%D8%A7%D8%A8%D9%82%D8%A7%D8%AA-%D8%B4%D9%85%D8%A7%D9%84-%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-20/)
+- **« كاف » والاتحادات الأعضاء يجددون التزامهم بتطوير كرة القدم الأفريقية خلال اجتماع أبوجا – اليوم 24**: [Link](https://alyaoum24.com/2058774.html)
+
+
 ### oncf (N/A, Fri, 20 Nov 2026 04:20:00 -0800)
 
 - **Alstom va changer son organisation après des déboires en Allemagne et de lourdes pertes**: [Link](https://medias24.com/agence-presse/alstom-va-changer-son-organisation-apres-des-deboires-en-allemagne-et-de-lourdes-pertes/)
