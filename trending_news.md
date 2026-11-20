@@ -1,3 +1,73 @@
+### oncf (N/A, Fri, 20 Nov 2026 04:20:00 -0800)
+
+- **Alstom va changer son organisation après des déboires en Allemagne et de lourdes pertes**: [Link](https://medias24.com/agence-presse/alstom-va-changer-son-organisation-apres-des-deboires-en-allemagne-et-de-lourdes-pertes/)
+- **Les TGV marocains contribuent à la hausse des ventes régionales d’Alstom, malgré une perte de 954 millions d’euros**: [Link](https://barlamane.com/fr/les-tgv-marocains-contribuent-a-la-hausse-des-ventes-regionales-dalstom-malgre-une-perte-de-954-millions-deuros/)
+- **Premier semestre de l’exercice fiscal 2026/27**: [Link](https://www.alstom.com/fr/press-releases-news/2026/11/premier-semestre-de-lexercice-fiscal-202627)
+
+
+### شمس (N/A, Fri, 20 Nov 2026 01:30:00 -0800)
+
+- **رئيس جامعة عين شمس يلتقي السفير المصري بسلطنة عُمان لبحث آفاق التعاون الأكاديمي**: [Link](https://www.almasryalyoum.com/news/details/4415493)
+- **محافظ البريمي يستقبل رئيس جامعة عين شمس لتوسيع آفاق التعاون الأكاديمي بسلطنة عُمان**: [Link](https://www.albawabhnews.com/5438076)
+- **رئيس جامعة عين شمس يتفقد كلية البريمي الجامعية لتعزيز التعاون الأكاديمي مع سلطنة عمان**: [Link](https://www.shorouknews.com/mobile/news/view.aspx?cdate=19112026&id=44300909-11f4-4fce-a2e4-05e337a7c1b3)
+
+
+### médias 24 (N/A, Fri, 20 Nov 2026 01:00:00 -0800)
+
+- **France-Maroc : coopération renforcée sur la sécurité des avions militaires**: [Link](https://medias24.com/2026/11/19/france-maroc-cooperation-renforcee-sur-la-securite-des-avions-militaires-1792788/)
+- **Pourquoi la France et le Maroc multiplient les exercices communs**: [Link](https://air-cosmos.latribune.fr/article/defense/21595052489709/pourquoi-la-france-et-le-maroc-multiplient-les-exercices-communs)
+- **France–Maroc : une nouvelle étape pour la coopération en matière de sécurité aéronautique militaire**: [Link](https://www.defense.gouv.fr/dsae/actualites/france-maroc-nouvelle-etape-cooperation-matiere-securite-aeronautique-militaire)
+
+
+### منتخب الأرجنتين لكرة القدم (N/A, Fri, 20 Nov 2026 00:50:00 -0800)
+
+- **فيديو: سباعية بقيادة الساحر الجديد.. الأرجنتين تحقق انتصارها الأول بعد حقبة ميسي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A8%D9%82%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%B3%D8%A7%D8%AD%D8%B1-%D8%A7%D9%84%D8%AC%D8%AF%D9%8A%D8%AF--%D8%A7%D9%84%D8%A7%D9%94%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%AA%D8%AD%D9%82%D9%82-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1%D9%87%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D8%A8%D8%B9%D8%AF-%D8%AD%D9%82%D8%A8%D8%A9-%D9%85%D9%8A%D8%B3%D9%8A/blt698e653d35a25d9a)
+- **مارتينيز: "نريد إعادة كسب حب الجماهير للأرجنتين في مرحلة ما بعد ميسي"**: [Link](https://www.elbotola.com/article/2026-11-18-16-28-929.html)
+- **الأرجنتين تستعيد توازنها بسباعية أمام كوستاريكا**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D9%84%D8%A3%D8%B1%D8%AC%D9%86%D8%AA%D9%8A%D9%86-%D8%AA%D8%B3%D8%AA%D8%B9%D9%8A%D8%AF-%D8%AA%D9%88%D8%A7%D8%B2%D9%86%D9%87%D8%A7-%D8%A8%D8%B3%D8%A8%D8%A7%D8%B9%D9%8A%D8%A9-%D8%A3%D9%85%D8%A7%D9%85-%D9%83%D9%88%D8%B3%D8%AA%D8%A7%D8%B1%D9%8A%D9%83%D8%A7-2026-11-18)
+
+
+### david habib (N/A, Fri, 20 Nov 2026 00:30:00 -0800)
+
+- **David Habib, figure de l’Assemblée nationale et de la social-démocratie, meurt brutalement**: [Link](https://www.lemonde.fr/politique/article/2026/11/19/david-habib-figure-de-l-assemblee-nationale-et-de-la-social-democratie-meurt-brutalement_6813379_823448.html)
+- **« Une nouvelle tragique » : l’Assemblée interrompt ses débats après la mort de David Habib**: [Link](https://www.huffingtonpost.fr/politique/video/le-depute-david-habib-est-mort-pendant-la-nuit-l-assemblee-interrompt-ses-debats-pour-un-hommage_361364.html)
+- **Qui était David Habib, le député soudainement décédé jeudi ?**: [Link](https://www.20minutes.fr/societe/4264341-20261120-pyrenees-atlantiques-parlementaire-dont-voix-franc-parler-resonnaient-david-habib-decede-jeudi)
+
+
+### مي عز الدين (N/A, Thu, 19 Nov 2026 22:10:00 -0800)
+
+- **لغز الدبلة يشعل فضول جمهور مي عز الدين.. ورد حاسم من زوجها**: [Link](https://www.sayidaty.net/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8/1842328-%D9%85%D9%8A-%D8%B9%D8%B2%D8%A7%D9%84%D8%AF%D9%8A%D9%86-%D9%88%D8%B2%D9%88%D8%AC%D9%87%D8%A7)
+- **من يقف وراء شائعات انفصال مي عز الدين وأحمد تيمور؟**: [Link](https://www.foochia.com/celebrities/kilmzcp)
+- **زوج مي عز الدين يثير جدلا.. ويكشف حقيقة غياب دبلة الزواج**: [Link](https://twaslnews1.twaslnews.com/7988717/)
+
+
+### محمد وهبي (N/A, Thu, 19 Nov 2026 22:00:00 -0800)
+
+- **عبد الله وزان.. منافس الزلزولي الذي رفضه ريال مدريد في اللحظة الأخيرة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%88%D8%B2%D8%A7%D9%86--%D9%85%D9%86%D8%A7%D9%81%D8%B3-%D8%A7%D9%84%D8%B2%D9%84%D8%B2%D9%88%D9%84%D9%8A-%D8%A7%D9%84%D8%B0%D9%8A-%D8%B1%D9%81%D8%B6%D9%87-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D9%84%D8%AD%D8%B8%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D8%AE%D9%8A%D8%B1%D8%A9/blta62f7eaf6bc050d4)
+- **الأسود يجنون مكاسب مباراتي النيجر**: [Link](https://assabah.ma/963852.html)
+- **موندو ديبورتيفو: من تعثر انتقاله لريال مدريد إلى كتابة التاريخ مع المغرب**: [Link](https://radiomars.ma/%D9%85%D9%88%D9%86%D8%AF%D9%88-%D8%AF%D9%8A%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%81%D9%88-%D9%85%D9%86-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84%D9%87-%D9%84%D8%B1%D9%8A%D8%A7%D9%84/)
+
+
+### صحفي (N/A, Thu, 19 Nov 2026 21:40:00 -0800)
+
+- **إدانة صحافييْن بأربع سنوات حبسا نافذا تجلب موجة من التضامن بالمغرب**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A5%D8%AF%D8%A7%D9%86%D8%A9-%D8%A8%D8%A3%D8%B1%D8%A8%D8%B9-%D8%B3%D9%86%D9%88%D8%A7%D8%AA-%D8%AD%D8%A8%D8%B3%D8%A7-%D9%86%D8%A7%D9%81%D8%B0%D8%A7-%D9%84%D8%B5%D8%AD%D8%A7%D9%81%D9%8A-1842408.html)
+- **أربع سنوات سجنا نافذا لصحافيين بالناظور في قضية ابتزاز**: [Link](https://al3omk.com/1212133.html)
+- **حنان رحاب: التضامن مع رمسيس بولعيون ومحمد الورياشي هو دفاع على حرية الصحافة**: [Link](https://www.goud.ma/%D8%AD%D9%86%D8%A7%D9%86-%D8%B1%D8%AD%D8%A7%D8%A8-%D8%A7%D9%84%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D9%85%D8%B9-%D8%B1%D9%85%D8%B3%D9%8A%D8%B3-%D8%A8%D9%88%D9%84%D8%B9%D9%8A%D9%88%D9%86-%D9%88%D9%85%D8%AD-1055143/)
+
+
+### الجزائر (N/A, Thu, 19 Nov 2026 21:20:00 -0800)
+
+- **شاهد.. الجزائر تنسحب أمام إسبانيا في مونديال مبتوري الأطراف بسبب التحكيم**: [Link](https://www.aljazeera.net/sport/2026/11/19/%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B7%D8%B1%D8%A7%D9%81-%D8%A5%D9%86%D8%B3%D8%AD%D8%A7%D8%A8)
+- **الجزائر تنسحب أمام إسبانيا للمبتورين**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%A6%D8%B1-%D8%AA%D9%86%D8%B3%D8%AD%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D9%84%D9%84%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A%D9%86-1842044.html)
+- **قائد المنتخب الوطني لمبتوري الأطراف يكشف كواليس الانسحاب أمام إسبانيا**: [Link](https://www.ennaharonline.com/%D9%82%D8%A7%D8%A6%D8%AF-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A-%D9%84%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B7%D8%B1%D8%A7%D9%81-%D9%8A-2/)
+
+
+### هسبريس (N/A, Thu, 19 Nov 2026 20:40:00 -0800)
+
+- **المغرب يستعد لتشييد مؤسسة سجنية كبرى بإقليم مديونة لتعويض "عكاشة"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%AA%D8%B4%D9%8A%D9%8A%D8%AF-%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-%D8%B3%D8%AC%D9%86%D9%8A%D8%A9-%D9%83%D8%A8%D8%B1%D9%89-%D8%A8-1842494.html)
+- **تشييد مؤسسة سجنية ضخمة بمديونة لتعويض سجن "عكاشة"**: [Link](https://ar.lesiteinfo.com/maroc/%D8%AA%D8%B4%D9%8A%D9%8A%D8%AF-%D9%85%D8%A4%D8%B3%D8%B3%D8%A9-%D8%B3%D8%AC%D9%86%D9%8A%D8%A9-%D8%B6%D8%AE%D9%85%D8%A9-%D8%A8%D9%85%D8%AF%D9%8A%D9%88%D9%86%D8%A9-%D9%84%D8%AA%D8%B9%D9%88%D9%8A%D8%B6-1033807.html)
+- **مديونة تستعد لاحتضان مركب سجني ضخم بتكلفة 1.5 مليار درهم لتعويض عكاشة**: [Link](https://www.attasiaa.com/%D9%85%D8%AF%D9%8A%D9%88%D9%86%D8%A9-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%A7%D8%AD%D8%AA%D8%B6%D8%A7%D9%86-%D9%85%D8%B1%D9%83%D8%A8-%D8%B3%D8%AC%D9%86%D9%8A/)
+
+
 ### جزارة (N/A, Thu, 19 Nov 2026 16:00:00 -0800)
 
 
