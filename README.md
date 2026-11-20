@@ -1,3 +1,15 @@
+### جزارة (N/A, Thu, 19 Nov 2026 16:00:00 -0800)
+
+
+
+
+### fatima-zahra mansouri (N/A, Thu, 19 Nov 2026 15:40:00 -0800)
+
+- **Youssef Hosni, l’ex-bras droit administratif d’El Mansouri à l’Habitat, nommé secrétaire général de la primature**: [Link](https://ledesk.ma/enoff/youssef-hosni-lex-bras-droit-administratif-del-mansouri-a-lhabitat-nomme-secretaire-general-de-la-primature/)
+- **Conseil de gouvernement : Trois nominations à de hautes fonctions**: [Link](https://www.lavieeco.com/pouvoirs/conseil-de-gouvernement-trois-nominations-a-de-hautes-fonctions-3/)
+- **Conseil de gouvernement : Trois nouvelles nominations à de hautes fonctions**: [Link](https://lematin.ma/nation/conseil-de-gouvernement-trois-nouvelles-nominations-a-de-hautes-fonctions/376477)
+
+
 ### tas (N/A, Thu, 19 Nov 2026 13:40:00 -0800)
 
 - **7/9 Pelham Street, Sorell, Tas 7172**: [Link](https://www.realestate.com.au/property-townhouse-tas-sorell-441120776)
