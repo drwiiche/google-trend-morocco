@@ -1,3 +1,73 @@
+### équipe du maroc de football (N/A, Sat, 21 Nov 2026 07:50:00 -0800)
+
+- **Football pour amputés : ces Lions de l’Atlas qui font sensation au Mondial 2026**: [Link](https://mobile.telquel.ma/2026/11/20/football-pour-amputes-ces-lions-de-latlas-qui-font-sensation-au-mondial-2026_2019208)
+- **Mondial des amputés : vivez en direct sur Radiomars.ma la demi-finale Maroc-Brésil**: [Link](https://radiomars.ma/fr/?p=8302)
+- **Mondial de football pour amputés: le Maroc en finale après avoir renversé le Brésil**: [Link](https://h24info.ma/sport/football/mondial-de-football-pour-amputes-le-maroc-en-finale-apres-avoir-renverse-le-bresil/)
+
+
+### نيس ضد بي اس جي (N/A, Sat, 21 Nov 2026 07:40:00 -0800)
+
+- **اختبار صعب لباريس سان جيرمان أمام مستضيفه نيس**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%81%D8%B1%D9%86%D8%B3%D9%8A/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%A7%D8%AE%D8%AA%D8%A8%D8%A7%D8%B1-%D8%B5%D8%B9%D8%A8-%D9%84%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%B3%D8%AA%D8%B6%D9%8A%D9%81%D9%87-%D9%86%D9%8A%D8%B3-2026-11-20)
+- **استبعاد لاعب بارز من معسكر منتخب مصر قبل مواجهة مالاوي**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%84%D8%A7%D8%B9%D8%A8-%D8%A8%D8%A7%D8%B1%D8%B2-%D9%85%D9%86-%D9%85%D8%B9%D8%B3%D9%83%D8%B1-%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D9%85%D8%B5%D8%B1-%D9%82%D8%A8%D9%84-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D9%85%D8%A7%D9%84%D8%A7%D9%88%D9%8A/blt140482a0894b4a3e)
+- **مواعيد مباريات اليوم السبت 21-11-2026 في الدوري الفرنسي والقنوات الناقلة**: [Link](https://darelhilal.com/News/3348253.aspx)
+
+
+### nice – paris-sg (N/A, Sat, 21 Nov 2026 07:30:00 -0800)
+
+- **Luis Enrique, avant le déplacement du PSG à Nice : «Les joueurs sont des menteurs»**: [Link](https://www.lequipe.fr/Football/Actualites/Avant-le-deplacement-du-psg-a-nice-luis-enrique-en-souriant-les-joueurs-sont-des-menteurs-ils-vont-tous-te-dire-qu-ils-sont-prets-mais-il-faut-le-montrer-sur-le-terrain/1744863)
+- **PSG : Luis Enrique écarte encore Lucas Digne**: [Link](https://www.footmercato.net/a2604158853503828571-psg-luis-enrique-ecarte-encore-lucas-digne)
+- **« Safonov a un petit déficit d’image » selon un ancien gardien du PSG**: [Link](https://www.culturepsg.com/ja/news/club/safonov-a-un-petit-deficit-dimage-selon-un-ancien-gardien-du-psg/61610)
+
+
+### équipe du sénégal de football (N/A, Sat, 21 Nov 2026 07:30:00 -0800)
+
+- **Éliminatoires de la CAN U23 : les Lionceaux de l’Atlas attendus au tournant face au Sénégal**: [Link](https://lematin.ma/sports/eliminatoires-de-la-can-u23-les-lionceaux-de-latlas-affrontent-le-senegal/376490)
+- **Une partie des supporters marocains réclame que le stade «**: [Link](https://www.elbotola.com/fr/article/2026-11-18-23-16-501.html)
+- **Sénégal-Soudan au LSS : un public présent, mais une organisation défaillante**: [Link](https://dakar92.com/senegal-soudan-au-lss-un-public-present-mais-une-organisation-defaillante/)
+
+
+### tottenham – ipswich town (N/A, Sat, 21 Nov 2026 07:20:00 -0800)
+
+- **Tottenham vs Ipswich LIVE! Premier League match updates, news and score**: [Link](https://www.skysports.com/football/live-blog/13610687/tottenham-vs-ipswich-live-premier-league-match-updates-news-and-score)
+- **Roberto De Zerbi reveals how long Mathys Tel will be missing for Tottenham**: [Link](https://www.spurs-web.com/spurs-news/roberto-de-zerbi-reveals-how-long-mathys-tel-will-be-missing-for-tottenham/)
+- **O'Neil on Enciso's potential, Lukic's return and taking Spurs on**: [Link](https://sports.yahoo.com/articles/oneil-encisos-potential-lukics-return-152811981.html)
+
+
+### coventry city – crystal palace (N/A, Sat, 21 Nov 2026 07:10:00 -0800)
+
+- **Frank confirms Tomiyasu and Sarr to miss Coventry City match**: [Link](https://www.elbotola.com/en/article/2026-11-19-19-01-280.html)
+- **Chelsea vs Leeds United: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c3dx19jxx15zt)
+- **Licensable picture: Premier League - Coventry City v Crystal Palace**: [Link](https://www.reutersconnect.com/item/premier-league-coventry-city-v-crystal-palace/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkwxNkZISVA)
+
+
+### bournemouth – nottm forest (N/A, Sat, 21 Nov 2026 06:50:00 -0800)
+
+- **Bournemouth vs Nottingham Forest LIVE! Premier League match updates, news and score**: [Link](https://www.skysports.com/football/live-blog/13610877/bournemouth-vs-nottingham-forest-live-premier-league-match-updates-news-and-score)
+- **Licensable picture: Premier League - AFC Bournemouth v Nottingham Forest**: [Link](https://www.reutersconnect.com/item/premier-league-afc-bournemouth-v-nottingham-forest/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkwxNloxTDU)
+- **Both teams to score tips and predictions: Our 11-2 acca for Saturday's action**: [Link](https://www.racingpost.com/sport/football-tips/football-acca-tips/both-teams-to-score-tips-and-predictions-our-11-2-acca-for-saturdays-action-ag51y0K0TYrl/)
+
+
+### chelsea – leeds united (N/A, Sat, 21 Nov 2026 06:20:00 -0800)
+
+- **Xabi Alonso confirms Chelsea team news for Leeds | News | Official Site**: [Link](https://www.chelseafc.com/en/news/article/xabi-alonso-confirms-chelsea-team-news-for-leeds)
+- **Premier League - Chelsea v Leeds United**: [Link](https://www.reutersconnect.com/item/premier-league-chelsea-v-leeds-united/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQkwxNlgxS1c)
+- **Alonso gives injury update on Caicedo, Joao Pedro, James, Gittens and more**: [Link](https://www.talkchelsea.net/injury-news/caicedo-pedro-gittens-james-injury-update-alonso/)
+
+
+### aston villa – sunderland (N/A, Sat, 21 Nov 2026 06:20:00 -0800)
+
+- **Tottenham Hotspur vs Ipswich Town: Premier League preview, team news, stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c699exk99z54t)
+- **Team news for Black Cats battle**: [Link](https://www.avfc.co.uk/news/2026/november/20/prematch-team-news-for-black-cats-battle/)
+- **Starting XI: Is This Regis Le Bris’s Line Up For Sunderland At Villa Park?**: [Link](https://rokerreport.sbnation.com/match-previews/160092/starting-xi-is-this-regis-le-briss-line-up-for-sunderland-at-villa-park)
+
+
+### union berlin – rb leipzig (N/A, Sat, 21 Nov 2026 06:20:00 -0800)
+
+- **Liveticker | 1. FC Union Berlin - RB Leipzig 0:1 | 10. Spieltag | Bundesliga 2026/27**: [Link](https://www.kicker.at/union-gegen-leipzig-2026-bundesliga-5226894/ticker)
+- **Fluch der Försterei?**: [Link](https://www.rb-fans.de/article/20261120-vorbericht-fluch-der-foersterei)
+- **Union will zu Hause gegen die Sachsen gewinnen**: [Link](https://www.fc-union-berlin.de/de-e/alle-neuigkeiten/union-will-zu-hause-gegen-die-sachsen-gewinnen-kQK09c)
+
+
 ### هبة بريس (N/A, Fri, 20 Nov 2026 23:10:00 -0800)
 
 - **المنتخب المغربي لكرة القدم لمبتوري الأطراف يصنع التاريخ في "المونديال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%84%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A-%D8%A7%D9%84-1843131.html)
