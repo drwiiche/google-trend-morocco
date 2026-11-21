@@ -1,3 +1,57 @@
+### هبة بريس (N/A, Fri, 20 Nov 2026 23:10:00 -0800)
+
+- **المنتخب المغربي لكرة القدم لمبتوري الأطراف يصنع التاريخ في "المونديال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%84%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A-%D8%A7%D9%84-1843131.html)
+- **محسن شغاغ: سنحضر الكأس إلى المغرب ولو تركنا القدم الأخرى فوق الملعب**: [Link](https://radiomars.ma/%D9%85%D8%AD%D8%B3%D9%86-%D8%B4%D8%BA%D8%A7%D8%BA-%D8%B3%D9%86%D8%AD%D8%B6%D8%B1-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%84%D9%88-%D8%AA%D8%B1/)
+- **الأسود في نهائي كأس العالم.. حكاية ذهبية لأبطال تلاشت الظروف أمام طموحهم**: [Link](https://ar.lesiteinfo.com/sport/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AD%D9%83%D8%A7%D9%8A%D8%A9-%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-1034004.html)
+
+
+### retraite (N/A, Fri, 20 Nov 2026 22:40:00 -0800)
+
+- **Retraites et pensions des veuves : les hausses annoncées dès janvier 2027**: [Link](https://fr.hespress.com/497198-retraites-et-pensions-des-veuves-les-hausses-annoncees-des-janvier-2027.html)
+- **Aide sociale directe: le gouvernement relève le minimum à 600 dirhams**: [Link](https://fr.le360.ma/politique/aide-sociale-directe-le-gouvernement-releve-le-minimum-a-600-dirhams_ZXM5UB4F6FAITI4TP6WCK5TYFQ/)
+- **Conseil du gouvernement: Adoption d'un projet de décret relatif au régime des aides sociales directes**: [Link](https://maroc.ma/fr/actualites/conseil-du-gouvernement-adoption-dun-projet-de-decret-relatif-au-regime-des-aides-sociales-directes)
+
+
+### david habib député (N/A, Fri, 20 Nov 2026 22:30:00 -0800)
+
+- **Le député David Habib est décédé subitement ce jeudi**: [Link](https://www.larepubliquedespyrenees.fr/societe/disparition/le-depute-david-habib-est-decede-subitement-ce-jeudi-31585671.php)
+- **Qui était David Habib, le député soudainement décédé jeudi ?**: [Link](https://www.20minutes.fr/societe/4264341-20261120-pyrenees-atlantiques-parlementaire-dont-voix-franc-parler-resonnaient-david-habib-decede-jeudi)
+- **Mort de David Habib : la sidération des habitants de Mourenx**: [Link](https://www.ici.fr/emissions/l-info-d-ici-ici-bearn-bigorre/mort-de-david-habib-la-sideration-des-habitants-de-mourenx-6679487)
+
+
+### القوات المسلحة الأمريكية (N/A, Fri, 20 Nov 2026 22:20:00 -0800)
+
+- **مناورات "الأسد الإفريقي" تفتح المجال أمام الابتكار في التصدي لـ"الدرونات"**: [Link](https://www.hespress.com/%D9%85%D9%86%D8%A7%D9%88%D8%B1%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D8%B3%D8%AF-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A-%D8%AA%D9%81%D8%AA%D8%AD-%D8%A7%D9%84%D9%85%D8%AC%D8%A7%D9%84-%D8%A3-1842423.html)
+- **5 لمليار سنتيم جائزة من الجيش الأمريكي لأي واحد قادر يصيد الدرونات فطانطان**: [Link](https://www.goud.ma/5-%D9%84%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%B3%D9%86%D8%AA%D9%8A%D9%85-%D8%AC%D8%A7%D8%A6%D8%B2%D8%A9-%D9%85%D9%86-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D9%8A-1055561/)
+- **المغرب وأمريكا يختبران في طانطان مركبات ذاتية القيادة لمكافحة المسيرات**: [Link](https://ar.yabiladi.com/articles/details/208225/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D8%A3%D9%85%D8%B1%D9%8A%D9%83%D8%A7-%D9%8A%D8%AE%D8%AA%D8%A8%D8%B1%D8%A7%D9%86-%D9%81%D9%8A-%D8%B7%D8%A7%D9%86%D8%B7%D8%A7%D9%86.html)
+
+
+### إسرائيل (N/A, Fri, 20 Nov 2026 22:20:00 -0800)
+
+- **غادي آيزنكوت.. وجه جديد لإسرائيل القديمة**: [Link](https://www.aljazeera.net/politics/2026/11/20/3-%D8%B3%D9%8A%D9%86%D8%A7%D8%B1%D9%8A%D9%88%D9%87%D8%A7%D8%AA-%D8%A3%D9%85%D8%A7%D9%85-%D8%A2%D9%8A%D8%B2%D9%86%D9%83%D9%88%D8%AA-%D9%84%D8%AA%D8%B4%D9%83%D9%8A%D9%84)
+- **قناة 12: بينيت يدفع لحكومة وحدة مع نتنياهو ويرفض الأحزاب العربية**: [Link](https://www.aa.com.tr/ar/%D8%AF%D9%88%D9%84%D9%8A/%D9%82%D9%86%D8%A7%D8%A9-12-%D8%A8%D9%8A%D9%86%D9%8A%D8%AA-%D9%8A%D8%AF%D9%81%D8%B9-%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D9%88%D8%AD%D8%AF%D8%A9-%D9%85%D8%B9-%D9%86%D8%AA%D9%86%D9%8A%D8%A7%D9%87%D9%88-%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D8%A7%D9%84%D8%A3%D8%AD%D8%B2%D8%A7%D8%A8-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/4131647)
+- **آيزنكوت يعتزم طرح حكومته للتصويت في الكنيست حتى لو كانت حكومة أقلية**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%B4%D8%B1%D9%82-%D8%A7%D9%84%D8%A3%D9%88%D8%B3%D8%B7/20261120-%D8%A2%D9%8A%D8%B2%D9%86%D9%83%D9%88%D8%AA-%D9%8A%D8%B9%D8%AA%D8%B2%D9%85-%D8%B7%D8%B1%D8%AD-%D8%AD%D9%83%D9%88%D9%85%D8%AA%D9%87-%D9%84%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%83%D9%86%D9%8A%D8%B3%D8%AA-%D8%AD%D8%AA%D9%89-%D9%84%D9%88-%D9%83%D8%A7%D9%86%D8%AA-%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%A3%D9%82%D9%84%D9%8A%D8%A9)
+
+
+### البنك الأوروبي لإعادة الإعمار والتنمية (N/A, Fri, 20 Nov 2026 20:40:00 -0800)
+
+
+
+
+### طائرة (N/A, Fri, 20 Nov 2026 20:40:00 -0800)
+
+- **تم تصميم أول طائرة كهربائية هجينة في أوروبا.**: [Link](https://www.vietnam.vn/ar/may-bay-hybrid-dien-dau-tien-duoc-thiet-ke-tai-chau-au)
+- **"لارام" توضح عودة طائرتين بعد الإقلاع**: [Link](https://www.hespress.com/%D9%84%D8%A7%D8%B1%D8%A7%D9%85-%D8%AA%D9%88%D8%B6%D8%AD-%D8%B9%D9%88%D8%AF%D8%A9-%D8%B7%D8%A7%D8%A6%D8%B1%D8%AA%D9%8A%D9%86-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%84%D8%A5%D9%82%D9%84%D8%A7%D8%B9-1843080.html)
+- **اضطراب في رحلات الخطوط الملكية المغربية.. طائرتان تعودان إلى الدار البيضاء وثالثة تهبط في مدريد وسط غياب توضيح من الشركة**: [Link](https://www.assahifa.com/%D8%A7%D8%B6%D8%B7%D8%B1%D8%A7%D8%A8-%D9%81%D9%8A-%D8%B1%D8%AD%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%AE%D8%B7%D9%88%D8%B7-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8/)
+
+
+### riemann hypothesis (N/A, Fri, 20 Nov 2026 16:30:00 -0800)
+
+- **Anthropic mathematician claims to prove Riemann hypothesis, most famous problem in all of math**: [Link](https://www.scientificamerican.com/article/anthropic-mathematician-claims-to-prove-riemann-hypothesis-most-famous-problem-in-all-of-math/)
+- **Anthropic researcher says Claude solved math's greatest riddle**: [Link](https://en.hespress.com/149592-anthropic-researcher-says-claude-solved-maths-greatest-riddle.html)
+- **Anthropic worker claims to have solved a Holy Grail of math problems with the help of AI**: [Link](https://www.wvnews.com/newsfeed/us/anthropic-worker-claims-to-have-solved-a-holy-grail-of-math-problems-with-the-help/article_754a40ad-7f5e-5445-a3a4-01f87dbe0b18.html)
+
+
 ### درك (N/A, Fri, 20 Nov 2026 16:10:00 -0800)
 
 - **"رأس بشري" داخل كيس بجماعة سلوان**: [Link](https://www.hespress.com/%D8%B1%D8%A3%D8%B3-%D8%A8%D8%B4%D8%B1%D9%8A-%D8%AF%D8%A7%D8%AE%D9%84-%D9%83%D9%8A%D8%B3-%D9%81%D9%8A-%D8%B3%D9%84%D9%88%D8%A7%D9%86-1843002.html)
