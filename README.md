@@ -1,3 +1,43 @@
+### درك (N/A, Fri, 20 Nov 2026 16:10:00 -0800)
+
+- **"رأس بشري" داخل كيس بجماعة سلوان**: [Link](https://www.hespress.com/%D8%B1%D8%A3%D8%B3-%D8%A8%D8%B4%D8%B1%D9%8A-%D8%AF%D8%A7%D8%AE%D9%84-%D9%83%D9%8A%D8%B3-%D9%81%D9%8A-%D8%B3%D9%84%D9%88%D8%A7%D9%86-1843002.html)
+- **العثور على جثة مقطعة إلى أطراف يستنفر الدرك الملكي بسلوان ضواحي الناظور**: [Link](https://al3omk.com/1212384.html)
+- **مستجدات جريمة العمران بسلوان. توقيف المشتبه فيه يكشف عن رواية صادمة حول دوافع ارتكاب الجريمة**: [Link](https://lisanpress.com/2026/11/20/23424.html)
+
+
+### maroc vs brazil (N/A, Fri, 20 Nov 2026 15:20:00 -0800)
+
+
+
+
+### كاس العالم لمبتوري الاطراف (N/A, Fri, 20 Nov 2026 14:10:00 -0800)
+
+- **المنتخب المغربي لكرة القدم لمبتوري الأطراف يصنع التاريخ في "المونديال"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%84%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A-%D8%A7%D9%84-1843131.html)
+- **محسن شغاغ: سنحضر الكأس إلى المغرب ولو تركنا القدم الأخرى فوق الملعب**: [Link](https://radiomars.ma/%D9%85%D8%AD%D8%B3%D9%86-%D8%B4%D8%BA%D8%A7%D8%BA-%D8%B3%D9%86%D8%AD%D8%B6%D8%B1-%D8%A7%D9%84%D9%83%D8%A3%D8%B3-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%88%D9%84%D9%88-%D8%AA%D8%B1/)
+- **الأسود في نهائي كأس العالم.. حكاية ذهبية لأبطال تلاشت الظروف أمام طموحهم**: [Link](https://ar.lesiteinfo.com/sport/%D8%A7%D9%84%D8%A3%D8%B3%D9%88%D8%AF-%D9%81%D9%8A-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D8%AD%D9%83%D8%A7%D9%8A%D8%A9-%D8%B0%D9%87%D8%A8%D9%8A%D8%A9-1034004.html)
+
+
+### تامر هجرس (N/A, Fri, 20 Nov 2026 13:20:00 -0800)
+
+- **تامر هجرس يفاجئ محبيه بصورة من المستشفى**: [Link](https://www.alarabiya.net/culture-and-art/2026/11/20/%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%A7%D9%82-%D9%88%D8%B3%D8%A8%D8%AD%D8%A9-%D8%A8%D8%A7%D9%84%D9%8A%D8%AF-%D8%AA%D8%A7%D9%85%D8%B1-%D9%87%D8%AC%D8%B1%D8%B3-%D9%8A%D8%AE%D8%B6%D8%B9-%D9%84%D8%AC%D8%B1%D8%A7%D8%AD%D8%A9-%D9%88%D9%8A%D8%B9%D9%84%D9%82%D8%A7%D9%84%D8%AD%D9%85%D8%AF-%D9%84%D9%84%D9%87)
+- **فنانون تعرضوا لكسور في القدم خلال الفترة الماضية.. تامر هجرس أحدثهم**: [Link](https://www.elwatannews.com/news/details/8400166)
+- **تامر هجرس في المستشفى بألمانيا بعد خضوعه لعملية جراحية.. وهذا ما كشفته صوره – موقع بصراحة-موقع النجوم**: [Link](https://bisara7a.com/archives/314667)
+
+
+### pêche (N/A, Fri, 20 Nov 2026 12:00:00 -0800)
+
+- **Pêche : après le Maroc, la Mauritanie ferme à son tour ses eaux à la flotte espagnole**: [Link](https://www.yabiladi.com/articles/details/208280/peche-apres-maroc-mauritanie-ferme.html)
+- **Fin de l’accord de pêche avec l’Europe : une opportunité pour la Mauritanie**: [Link](https://mondafrique.com/economie/fin-de-laccord-de-peche-avec-leurope-une-opportunite-pour-la-mauritanie/)
+- **Ordeig dénonce que Bruxelles ignore à nouveau la flotte de pêche de la Méditerranée**: [Link](https://www.democrata.es/fr/agriculture-alimentation/ordeig-denonce-que-bruxelles-ignore-a-nouveau-la-flotte-de-peche-de-la-mediterranee/)
+
+
+### لحم (N/A, Fri, 20 Nov 2026 11:40:00 -0800)
+
+- **الحكومة تُلزم الجزارين بإشهار الأسعار والتمييز بين اللحوم المحلية والمستوردة**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D8%AA%D9%8F%D9%84%D8%B2%D9%85-%D8%A7%D9%84%D8%AC%D8%B2%D8%A7%D8%B1%D9%8A%D9%86-%D8%A8%D8%A5%D8%B4%D9%87%D8%A7%D8%B1-%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7-1842551.html)
+- **غلاء الخضر.. هل تنجح الإجراءات الحكومية في كبح الأسعار دون الإضرار بالفلاح؟(ثلاثة أسئلة)**: [Link](https://2m.ma/ar/news/%D8%BA%D9%84%D8%A7%D8%A1-%D8%A7%D9%84%D8%AE%D8%B6%D8%B1-%D9%87%D9%84-%D8%AA%D9%86%D8%AC%D8%AD-%D8%A7%D9%84%D8%A5%D8%AC%D8%B1%D8%A7%D8%A1%D8%A7%D8%AA-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D9%8A%D8%A9-%D9%81%D9%8A-%D9%83%D8%A8%D8%AD-%D8%A7%D9%84%D8%A3%D8%B3%D8%B9%D8%A7%D8%B1-%D8%AF%D9%88%D9%86-%D8%A7%D9%84%D8%A5%D8%B6%D8%B1%D8%A7%D8%B1-20261120)
+- **الحكومة تتحرك لكبح غلاء الخضر واللحوم.. المنصوري تقود اجتماعا وزاريا لحماية القدرة الشرائية**: [Link](https://ar.le360.ma/politique/MOHLQ3J3TVCVLB5HBY22QXMOCM/)
+
+
 ### classement al-ahli saudi – al-nassr fc (N/A, Fri, 20 Nov 2026 11:50:00 -0800)
 
 - **Cristiano Ronaldo Misses Penalty As Al Nassr Falls To 3rd In Saudio Pro League**: [Link](https://www.foxsports.com/stories/soccer/cristiano-ronaldo-misses-penalty-al-nassr-falls-3rd-saudio-pro-league)
