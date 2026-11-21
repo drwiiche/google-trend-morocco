@@ -1,3 +1,71 @@
+### alexander zverev (N/A, Sat, 21 Nov 2026 13:00:00 -0800)
+
+- **The final top-10 rankings for 2026 are now confirmed after Daniil Medvedev beats Frances Tiafoe**: [Link](https://tennishead.net/the-final-top-10-rankings-for-2026-are-now-confirmed-after-daniil-medvedev-beats-frances-tiafoe/)
+- **Zverev Beats Medvedev, Faces Alcaraz in Turin Final**: [Link](https://www.tenniswatcher.com/en/news/alexander-zverev-sinks-daniil-medvedev-in-turin-and-sets-up-alcaraz-clash-in-the-final)
+- **Licensable picture: Tennis 2026: Nitto ATP Finals: MEDVEDEV 6:3 6:4 TIAFOE**: [Link](https://www.reutersconnect.com/item/tennis-2026-nitto-atp-finals-medvedev-63-64-tiafoe/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDAzVjlRUzA)
+
+
+### lens – toulouse (N/A, Sat, 21 Nov 2026 12:40:00 -0800)
+
+
+
+
+### real (N/A, Sat, 21 Nov 2026 12:30:00 -0800)
+
+- **Pablo Durán bringt Celta im Bernabéu nach sechs Minuten in Führung**: [Link](https://www.tufutbolero.com/de/nachrichten/pablo-duran-bringt-celta-im-bernabeu-nach-sechs-minuten-in-216a7b)
+- **Wohin mit Vinícius Júnior? „Die große Entscheidung“ bei Real Madrid**: [Link](https://www.sport1.de/news/internationaler-fussball/la-liga/2026/11/real-madrid-vinicius-stellt-mourinho-vor-entscheidung)
+- **Mourinho zieht Vini-Schlussstrich: "Das ist Vergangenheit"**: [Link](https://www.fussballeuropa.com/news/mourinho-zieht-schlussstrich-das-ist-vergangenheit-2026-11)
+
+
+### france – argentine (N/A, Sat, 21 Nov 2026 12:20:00 -0800)
+
+- **Championnat des nations - 6e journée : Suivez France - Argentine EN DIRECT**: [Link](https://www.eurosport.fr/rugby/nations-championship/2026/france-argentine_mtc21881267/live-commentary.shtml)
+- **A quelle heure et sur quelle chaîne voir France-Argentine en Championnat des nations ?**: [Link](https://www.lequipe.fr/Rugby/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-france-argentine-en-championnat-des-nations/1744462)
+- **XV de France : Gros forfait de dernière minute : Sports - Orange**: [Link](https://sports.orange.fr/rugby/xv-de-france/article/xv-de-france-gros-forfait-de-derniere-minute-exclu-CNT000002tWhso.html)
+
+
+### real madrid match (N/A, Sat, 21 Nov 2026 12:20:00 -0800)
+
+- **DIRECT. Real Madrid - Celta Vigo, La Liga : But de Bellingham !**: [Link](https://www.lequipe.fr/Football/match-direct/championnat-d-espagne/2026-2027/real-madrid-celta-vigo-live/693205)
+- **Real Madrid - Celta Vigo : les compositions officielles**: [Link](https://www.footmercato.net/a4365665785846837632-real-madrid-celta-vigo-les-compositions-officielles)
+- **13e journée de Liga : Suivez Real Madrid - Celta Vigo EN DIRECT**: [Link](https://www.eurosport.fr/football/la-liga/2026-2027/real-madrid-celta-vigo_mtc21891580/live-commentary.shtml)
+
+
+### de miguel (N/A, Sat, 21 Nov 2026 12:00:00 -0800)
+
+- **Heartbroken keeper Jesus Owono seen for first time since challenge that killed Jesus de Miguel as he joins tribute**: [Link](https://www.thesun.co.uk/sport/41087613/jesus-owono-goalkeeper-andorra-tenerife-jesus-de-miguel/)
+- **Goalkeeper who caused the death of an opponent in a "shocking kick" appears at the deceased player's memorial service: "I am suffering beyond words..." First public appearance since the incident**: [Link](https://www.starnewskorea.com/en/sports/2026/11/21/2026112119373674236)
+- **'We have to accept it' - FC Andorra coach on 12 match ban for Jesus Owono following the death of Jesus de Miguel**: [Link](https://vodacomsoccer.com/video/play/we-have-to-accept-it-fc-andorra-coach-on-12-match-ban-for-jesus-owono-following-the-death-of-jesus-de-miguel)
+
+
+### lille – ol (N/A, Sat, 21 Nov 2026 11:50:00 -0800)
+
+- **Suivez Lille - Lyon EN DIRECT, Ligue 1, saison 2026/2027, 11e journée**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/lille-osc-olympique-lyonnais_mtc21875683/live-commentary.shtml)
+- **LOSC-OL : à quelle heure et sur quelle chaîne TV voir le match de Ligue 1 ?**: [Link](https://www.leparisien.fr/sports/football/ligue-1/losc-ol-a-quelle-heure-et-sur-quelle-chaine-tv-voir-le-match-de-ligue-1-21-11-2026-N7JFKSUDCVFRZAHHSKXNTNIBTY.php)
+- **LOSC - La compo officielle des Dogues pour le match face à l'OL**: [Link](https://madeindogues.ouest-france.fr/infos/article-losc-la-compo-officielle-des-dogues-pour-le-match-face-a-l-ol-546519.html)
+
+
+### strasbourg – brest (N/A, Sat, 21 Nov 2026 11:40:00 -0800)
+
+- **Racing – Brest : le onze rêvé des supporters**: [Link](https://www.alsasports.fr/football/rc-strasbourg/racing-brest-onze-supporters-4-3-3-diop/87891/)
+- **Stade Brestois. Touché à la cheville, Kamory Doumbia forfait à Strasbourg**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/stade-brestois-un-cadre-forfait-a-strasbourg-b58a3478-e5b2-11f1-afa7-9a0bb82a33d1)
+- **[2026-2027] RCS - Brest | Avant-match**: [Link](https://racingstub.com/forum/topic/21014?page=5)
+
+
+### ترتيب الدوري الانجليزي (N/A, Sat, 21 Nov 2026 11:40:00 -0800)
+
+- **المشهد سبورتس: تعثر أرسنال والسيتي في البريمرليغ.. وحقيقة اعتزال جمال موسيالا**: [Link](https://www.almashhad.com/article/218257510540304-sports/802441171714434-%D8%A7%D9%84%D9%85%D8%B4%D9%87%D8%AF-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D8%B3-%D8%AA%D8%B9%D8%AB%D8%B1-%D8%A3%D8%B1%D8%B3%D9%86%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D8%B3%D9%8A%D8%AA%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D8%A8%D8%B1%D9%8A%D9%85%D8%B1%D9%84%D9%8A%D8%BA-%D9%88%D8%AD%D9%82%D9%8A%D9%82%D8%A9-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%AC%D9%85%D8%A7%D9%84-%D9%85%D9%88%D8%B3%D9%8A%D8%A7%D9%84%D8%A7/)
+- **ترتيب هدافي الدوري الإنجليزي قبل انطلاق الجولة الـ11.. إيزاك يهدد هالاند**: [Link](https://www.elwatannews.com/news/details/8400847)
+- **تغطية حية مباشر لمباراة فريقي كوفنتري سيتي و كريستال بالاس في بطولة الدوري الإنجليزي الممتاز - الأسبوع 11**: [Link](https://www.filgoal.com/matches/375599/coverage/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D9%83%D9%88%D9%81%D9%86%D8%AA%D8%B1%D9%8A-%D8%B3%D9%8A%D8%AA%D9%8A-%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D8%A7%D9%84-%D8%A8%D8%A7%D9%84%D8%A7%D8%B3-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A5%D9%86%D8%AC%D9%84%D9%8A%D8%B2%D9%8A-%D8%A7%D9%84%D9%85%D9%85%D8%AA%D8%A7%D8%B2)
+
+
+### real madrid vs celta (N/A, Sat, 21 Nov 2026 11:30:00 -0800)
+
+- **Uno a uno del Real Madrid contra el Celta: valoración y comentarios**: [Link](https://www.marca.com/futbol/real-madrid/2026/11/21/real-madrid-celta-valoracion-comentarios.html)
+- **Polémica, análisis y reacciones del Real Madrid - Celta de LaLiga EA Sports**: [Link](https://as.com/futbol/primera/polemica-analisis-y-reacciones-del-real-madrid-celta-de-laliga-ea-sports-f202611-d/)
+- **¿A qué hora es el partido Real Madrid vs Celta y cómo verlo en TV y streaming online?**: [Link](https://www.si.com/es-us/a-que-hora-es-el-partido-real-madrid-vs-celta-y-como-verlo-en-tv-y-streaming-online-21-11-2026)
+
+
 ### équipe du maroc de football (N/A, Sat, 21 Nov 2026 07:50:00 -0800)
 
 - **Football pour amputés : ces Lions de l’Atlas qui font sensation au Mondial 2026**: [Link](https://mobile.telquel.ma/2026/11/20/football-pour-amputes-ces-lions-de-latlas-qui-font-sensation-au-mondial-2026_2019208)
