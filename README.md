@@ -1,3 +1,73 @@
+### كأس العالم (N/A, Sun, 22 Nov 2026 13:50:00 -0800)
+
+- **كأس العالم FIFA لأقل من 17 سنة : المنتخب الوطني ينهي استعداداته للمباراة التي ستجمعه بالصين**: [Link](https://frmf.ma/articles/coupe-du-monde-fifa-u17-maroc-chine-les-lionceaux-de-latlas-peaufinent-leur-preparation)
+- **"أشبال U17" يشدون أعصاب الإسبان**: [Link](https://www.hespress.com/%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-u17-%D9%8A%D8%B4%D8%AF%D9%88%D9%86-%D8%A3%D8%B9%D8%B5%D8%A7%D8%A8-%D8%A7%D9%84%D8%A5%D8%B3%D8%A8%D8%A7%D9%86-1843286.html)
+- **بالفيديو: سداسية مرعبة.. أشبال المغرب يشعلون المونديال قبل صدام إسبانيا**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D8%B3%D8%AF%D8%A7%D8%B3%D9%8A%D8%A9-%D9%85%D8%B1%D8%B9%D8%A8%D8%A9--%D8%A7%D9%94%D8%B4%D8%A8%D8%A7%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B4%D8%B9%D9%84%D9%88%D9%86-%D8%A7%D9%84%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D9%82%D8%A8%D9%84-%D8%B5%D8%AF%D8%A7%D9%85-%D8%A7%D9%95%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7/blt01569f1bd742dd3b)
+
+
+### أتالانتا ضد الإنتر (N/A, Sun, 22 Nov 2026 13:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة أتالانتا وإنتر في الدوري الإيطالي 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%94%D8%AA%D8%A7%D9%84%D8%A7%D9%86%D8%AA%D8%A7-%D9%88%D8%A7%D9%95%D9%86%D8%AA%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A7%D9%95%D9%8A%D8%B7%D8%A7%D9%84%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt973a77c8d74799d7)
+- **بالأرقام.. هيمنة تاريخية لإنتر ميلان على أتالانتا في الدوري الإيطالي**: [Link](https://twaslnews1.twaslnews.com/8124464/)
+- **مواعيد مباريات اليوم الأحد 22-11-2026 في الدوري الإيطالي والقنوات الناقلة**: [Link](https://darelhilal.com/News/3348900.aspx)
+
+
+### inter milan (N/A, Sun, 22 Nov 2026 13:10:00 -0800)
+
+- **Licensable picture: 63rd Golden Horse Awards in Taipei**: [Link](https://www.reutersconnect.com/item/63rd-golden-horse-awards-in-taipei/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1JDMjJUT0FVNVE3Rw)
+- **Florian Wirtz stars as Germany hammer Netherlands to top Nations League group**: [Link](https://www.independent.co.uk/sport/football/florian-wirtz-germany-netherlands-nations-league-result-b3086060.html)
+- **Football Daily | Jürgen Klopp hard-launches his Germany rebuilding project in style**: [Link](https://www.theguardian.com/football/2026/nov/17/jurgen-klopp-germany-project-football-daily-newsletter)
+
+
+### atalanta vs inter (N/A, Sun, 22 Nov 2026 12:40:00 -0800)
+
+- **Atalanta vs Inter Milan: Italian Serie A stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/crq5vgg8pp48t)
+- **Licensable picture: Soccer 2026: Atalanta Vs Inter**: [Link](https://www.reutersconnect.com/item/soccer-2026-atalanta-vs-inter/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBENlI0UEg)
+- **Esposito hat-trick not enough for Inter as De Ketelaere leads remarkable Atalanta comeback**: [Link](https://www.goal.com/en/news/esposito-hat-trick-not-enough-for-inter-as-de-ketelaere-leads-remarkable-atalanta-comeback/blte174f9082c0ffb1e)
+
+
+### médias24 (N/A, Sun, 22 Nov 2026 12:20:00 -0800)
+
+- **Nombreuses interrogations après la mort de deux civils marocains tués en Algérie par les garde frontières**: [Link](https://medias24.com/2026/11/22/nombreuses-interrogations-apres-la-mort-de-deux-civils-marocains-tues-en-algerie-par-les-garde-frontieres-1793563/)
+- **Frontière maroco-algérienne : la mort de deux Marocains soulève la question des exécutions extrajudiciaires**: [Link](https://fr.hespress.com/497411-frontiere-maroco-algerienne-la-mort-de-deux-marocains-souleve-la-question-des-executions-extrajudiciaires.html)
+- **« C’est une guerre déclarée » : l’Algérie abat deux Marocains, trafiquants de drogue présumés, dans un contexte de fortes tensions diplomatiques**: [Link](https://www.leparisien.fr/international/cest-une-guerre-declaree-lalgerie-abat-deux-marocains-trafiquants-de-drogue-presumes-dans-un-contexte-de-fortes-tensions-diplomatiques-21-11-2026-SVJCZR5GQ5FL5LG64T6DOMMZQ4.php)
+
+
+### marseille – le mans (N/A, Sun, 22 Nov 2026 11:30:00 -0800)
+
+- **OM 2-3 Le Mans, Ligue 1 : Le Mans renverse Marseille !**: [Link](https://www.lequipe.fr/Football/match-direct/ligue-1/2026-2027/om-le-mans-live/690352)
+- **11e journée de Ligue 1: suivez Marseille - Le Mans EN DIRECT**: [Link](https://www.eurosport.fr/football/ligue-1/2026-2027/olympique-de-marseille-le-mans-fc_mtc21875568/live-commentary.shtml)
+- **OM : malade, Pierre-Emile Hojbjerg devrait être forfait contre Le Mans**: [Link](https://www.laprovence.com/article/om/1412304239460815/om-malade-pierre-emile-hojbjerg-devrait-etre-forfait-contre-le-mans)
+
+
+### getafe – atlético madrid (N/A, Sun, 22 Nov 2026 11:20:00 -0800)
+
+- **Getafe - Atlético de Madrid, en directo: LaLiga EA Sports, en vivo hoy**: [Link](https://as.com/futbol/primera/getafe-atletico-de-madrid-en-directo-laliga-ea-sports-en-vivo-hoy-f202611-d/)
+- **Getafe - Atlético, en directo | Última hora de LaLiga EA Sports hoy en vivo**: [Link](https://www.marca.com/futbol/laliga-ea-sports/getafe-atletico/2026/11/22/01_0101_20261122_1450_175-directo.html)
+- **DIRECTO | Getafe 0 - 3 Atlético de Madrid; Gol de Grimaldo**: [Link](https://www.cope.es/programas/tiempo-de-juego/cronica/directo-getafe-atletico-madrid-primera-division-jornada-13-22-20261122_3479847.html)
+
+
+### خيتافي ضد أتلتيكو مدريد (N/A, Sun, 22 Nov 2026 11:20:00 -0800)
+
+- **خيتافي ضد أتلتيكو.. هدف بايينا يحسم مواجهة الدوري الإسباني**: [Link](https://turkey-breaking.com/news/2026/11/22/%D8%AE%D9%8A%D8%AA%D8%A7%D9%81%D9%8A-%D8%B6%D8%AF-%D8%A3%D8%AA%D9%84%D8%AA%D9%8A%D9%83%D9%88-%D9%86%D8%AA%D9%8A%D8%AC%D8%A9-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9/)
+- **سيميوني على بعد انتصار واحد من اعتلاء عرش الليجا**: [Link](https://akhbarelyom.com/news/newdetails/4911076/1/%D8%B3%D9%8A%D9%85%D9%8A%D9%88%D9%86%D9%8A-%D8%B9%D9%84%D9%89-%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D8%AA%D8%B5%D8%A7%D8%B1-%D9%88%D8%A7%D8%AD%D8%AF-%D9%85%D9%86-%D8%A7%D8%B9%D8%AA%D9%84%D8%A7%D8%A1-%D8%B9%D8%B1)
+- **بعد أزمة المهاجمين.. أتلتيكو مدريد يتحرك لضم صفقة هجومية جديدة**: [Link](https://www.youlyou.com/99353)
+
+
+### atalanta – inter (N/A, Sun, 22 Nov 2026 11:10:00 -0800)
+
+- **Serie A, in campo Atalanta-Inter DIRETTA**: [Link](https://www.ansa.it/sito/notizie/sport/calcio/2026/11/22/serie-a-in-campo-atalanta-inter-diretta_33021a11-0a66-40a8-a1e9-6b52d22307f0.html)
+- **Tripletta per Pio Esposito e un soffio dietro a Ronaldo nella storia Inter**: [Link](https://www.sportmediaset.mediaset.it/calcio/tripletta-per-pio-esposito-e-un-soffio-dietro-a-ronaldo-nella-storia-inter_119315065-202602k.shtml)
+- **Atalanta, infortunio nel riscaldamento per Carnesecchi: al suo posto c’è Sportiello**: [Link](https://www.spotandweb.it/news/936548/atalanta-infortunio-nel-riscaldamento-per-carnesecchi-al-suo-posto-ce-sportiello.html)
+
+
+### مدار21 (N/A, Sun, 22 Nov 2026 11:00:00 -0800)
+
+- **عوينة يعود للواجهة من بوابة مهرجان مراكش ويكشف أسباب غيابه عن الساحة الفنية**: [Link](https://madar21.com/467091.html)
+- **الممثل هشام موسون: لا توجد اقتراحات جديدة.. وأدير شركة عقارية بمراكش**: [Link](https://febrayer.com/1170093.html)
+- **بعد سنوات من الغياب.. “عوينة”: لا أعتبر نفسي مهمشا وأنتظر فرصتي للعودة إلى الشاشة (فيديو)**: [Link](https://al3omk.com/1212862.html)
+
+
 ### ليفربول ضد مان يونايتد (N/A, Sun, 22 Nov 2026 07:50:00 -0800)
 
 - **بوتشيتينو يعلن تشكيله الأول مع مانشستر يونايتد.. واستبعاد نجم ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D8%AA%D8%B4%D9%8A%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF--%D9%88%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%86%D8%AC%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt63722312a82cdb5b)
