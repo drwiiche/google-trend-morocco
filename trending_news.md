@@ -1,3 +1,71 @@
+### ليفربول ضد مان يونايتد (N/A, Sun, 22 Nov 2026 07:50:00 -0800)
+
+- **بوتشيتينو يعلن تشكيله الأول مع مانشستر يونايتد.. واستبعاد نجم ليفربول**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D8%AA%D8%B4%D9%8A%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D8%B9%D9%84%D9%86-%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D9%87-%D8%A7%D9%84%D8%A7%D9%94%D9%88%D9%84-%D9%85%D8%B9-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF--%D9%88%D8%A7%D8%B3%D8%AA%D8%A8%D8%B9%D8%A7%D8%AF-%D9%86%D8%AC%D9%85-%D9%84%D9%8A%D9%81%D8%B1%D8%A8%D9%88%D9%84/blt63722312a82cdb5b)
+- **تحت أنظار المُسيّرات.. جدل واتهامات تكشف سرية التدريبات في الملاعب**: [Link](https://www.alaraby.co.uk/sport/%D8%AA%D8%AD%D8%AA-%D8%A3%D9%86%D8%B8%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D9%8F%D8%B3%D9%8A%D9%91%D8%B1%D8%A7%D8%AA-%D8%AC%D8%AF%D9%84-%D9%88%D8%A7%D8%AA%D9%87%D8%A7%D9%85%D8%A7%D8%AA-%D8%AA%D9%83%D8%B4%D9%81-%D8%B3%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%AF%D8%B1%D9%8A%D8%A8%D8%A7%D8%AA-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D9%84%D8%A7%D8%B9%D8%A8)
+- **عمر برادة يكشف أسباب اختيار بوكيتينو لتدريب مانشستر يونايتد**: [Link](https://radiomars.ma/%D8%B9%D9%85%D8%B1-%D8%A8%D8%B1%D8%A7%D8%AF%D8%A9-%D9%8A%D9%83%D8%B4%D9%81-%D8%A3%D8%B3%D8%A8%D8%A7%D8%A8-%D8%A7%D8%AE%D8%AA%D9%8A%D8%A7%D8%B1-%D8%A8%D9%88%D9%83%D9%8A%D8%AA%D9%8A%D9%86%D9%88-%D9%84/)
+
+
+### liverpool – man utd (N/A, Sun, 22 Nov 2026 07:40:00 -0800)
+
+- **'He will see what Man Utd are made of' - Pulis on Pochettino's first game**: [Link](https://www.bbc.com/sport/football/articles/ckqx5w58dgv7o)
+- **Liverpool v Manchester United: Premier League – live**: [Link](https://www.theguardian.com/football/live/2026/nov/22/liverpool-v-manchester-united-premier-league-live)
+- **Andoni Iraola programme notes | Why Liverpool need to be 'all in' from the off today**: [Link](https://www.liverpoolfc.com/news/andoni-iraola-programme-notes-liverpool-all-in-manchester-united)
+
+
+### yassir zabiri (N/A, Sun, 22 Nov 2026 07:30:00 -0800)
+
+- **Leeds send scouts to Spain to watch Yassir Zabiri, an offer's been made already**: [Link](https://sports.yahoo.com/articles/leeds-send-scouts-spain-watch-123000064.html)
+- **Zabiri overtakes Yamal and chases Raphinha and Mbappé: Yassir Zabiri rocks LaLiga with a lightning double in two minutes**: [Link](https://www.yardbarker.com/soccer/articles/zabiri_overtakes_yamal_and_chases_raphinha_and_mbapp_yassir_zabiri_rocks_laliga_with_a_lightning_double_in_two_minutes/s1_17790_44601441)
+- **Racing Santander Chief Tips Yassir Zabiri for European Elite**: [Link](https://www.moroccoworldnews.com/2026/11/347002/racing-santander-chief-tips-yassir-zabiri-for-european-elite/)
+
+
+### fc barcelona vs villarreal cf standings (N/A, Sun, 22 Nov 2026 07:20:00 -0800)
+
+- **Barcelona 3-2 Villarreal: Barca score three in 10 minutes to return to top of La Liga**: [Link](https://www.bbc.com/sport/football/live/cqe87553peegt)
+- **Licensable picture: Soccer 2026: LaLiga: FC Barcelona - Villarreal CF**: [Link](https://www.reutersconnect.com/item/soccer-2026-laliga-fc-barcelona-villarreal-cf/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVpVTUEwMDBPWlVWMjA)
+- **A heroic comeback that cannot hide the flaws: Pedri issues a stern warning to Barcelona**: [Link](https://www.goal.com/en/news/a-heroic-comeback-that-cannot-hide-the-flaws-pedri-issues-a-stern-warning-to-barcelona/blt2917b13cb316be0f)
+
+
+### ماريون كوتيار (N/A, Sun, 22 Nov 2026 07:20:00 -0800)
+
+- **ماريون كوتيار .. نجمة اختارت التنوع والتجديد عنوانا لمسيرتها السينمائية**: [Link](https://www.medi1news.com/ar/article/416804.html)
+- **السينما الإفريقية والتمثيلية النسائية.. أبرز ما دار في ندوة لجنة تحكيم مهرجان مراكش**: [Link](https://ar.le360.ma/culture/KKWK6PAHKBEQTHDDC22PFJETPA/)
+- **اعترافات طريفة.. نجوم مهرجان مراكش في مواجهة "Red Flag" و"Green Flag"**: [Link](https://ralia.lesiteinfo.com/celebrites/%D8%A7%D8%B9%D8%AA%D8%B1%D8%A7%D9%81%D8%A7%D8%AA-%D8%B7%D8%B1%D9%8A%D9%81%D8%A9-%D9%86%D8%AC%D9%88%D9%85-%D9%85%D9%87%D8%B1%D8%AC%D8%A7%D9%86-%D9%85%D8%B1%D8%A7%D9%83%D8%B4-%D9%81%D9%8A-%D9%85%D9%88-259321.html)
+
+
+### رسينغ ضد ريال سوسيداد (N/A, Sun, 22 Nov 2026 06:50:00 -0800)
+
+- **معاينة مباراة راسينغ سانتاندير وريال سوسيداد: نقطة ساخنة في السباق الرئيسي**: [Link](https://www.vietnam.vn/ar/nhan-dinh-racing-santander-vs-real-sociedad-diem-nong-cuoc-dua-top-dau)
+- **مشاهدة مباراة راسينغ وريال سوسيداد في الدوري الإسباني.. بث مباشر**: [Link](https://www.sadaelomma.com/2026/11/blog-post_77.html)
+- **مباراة ريال سوسيداد ب ضد ليغانيس : اهداف المباراة مع تشكيلة الفريقين والنتائج : مباشر على Winwin**: [Link](https://www.winwin.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9/%D8%B1%D9%8A%D8%A7%D9%84-%D8%B3%D9%88%D8%B3%D9%8A%D8%AF%D8%A7%D8%AF-%D8%A8-%D8%B6%D8%AF-%D9%84%D9%8A%D8%BA%D8%A7%D9%86%D9%8A%D8%B3-2026-12-05)
+
+
+### équipe du qatar des moins de 17 ans de football – équipe d'égypte des moins de 17 ans de football (N/A, Sun, 22 Nov 2026 06:40:00 -0800)
+
+- **Cristiano Ronaldo Breaks Silence: Why He Walked Away From Portugal Camp | NileFM | EGYPT'S#1 FOR HIT MUSIC**: [Link](https://nilefm.com/news/article/14256/egypt-to-face-qatar-in-u-17-world-cup-39-years-after-their-first-meeting)
+
+
+### classement fc barcelone – villarreal (N/A, Sun, 22 Nov 2026 06:30:00 -0800)
+
+- **Villarreal porte de lourdes accusations contre l’arbitrage et le FC Barcelone !**: [Link](https://www.footmercato.net/a2467801491364621064-villarreal-porte-de-lourdes-accusations-contre-larbitrage-et-le-fc-barcelone)
+- **Le Barça renverse Villarreal après une entame cauchemardesque et un penalty manqué par Lamine Yamal**: [Link](https://www.lequipe.fr/Football/Actualites/Le-barca-renverse-villarreal-apres-une-entame-cauchemardesque-et-un-penalty-manque-par-lamine-yamal/1745385)
+- **Une remontada (presque) inédite**: [Link](https://www.fcbarcelona.fr/fr/football/equipe-premiere/actualites/4612769/une-remontada-presque-inedite)
+
+
+### santander – real sociedad (N/A, Sun, 22 Nov 2026 06:30:00 -0800)
+
+- **Racing - Real Sociedad, en directo: LaLiga EA Sports, hoy en vivo**: [Link](https://as.com/futbol/primera/racing-real-sociedad-en-directo-laliga-ea-sports-hoy-en-vivo-f202611-d/)
+- **Racing Santander - Real Sociedad en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/racing-santander-real-sociedad/2026/11/22/01_0101_20261122_189_188-directo.html)
+- **Minuto a minuto del encuentro**: [Link](https://www.eldiariomontanes.es/deportes/racing/minuto-minuto-encuentro-20261122161335-di.html)
+
+
+### prefet moutouh (N/A, Sun, 22 Nov 2026 06:30:00 -0800)
+
+- **Fuites de Beauvau vers le RN : d’un e-mail trouvé au domicile de Frédéric Chatillon aux suspicions visant le préfet Hugues Moutouh, itinéraire d’une enquête sensible**: [Link](https://www.lemonde.fr/societe/article/2026/11/21/fuites-de-beauvau-vers-le-rn-d-un-email-trouve-au-domicile-d-un-ami-de-marine-le-pen-aux-suspicions-visant-le-prefet-moutouh-itineraire-d-une-enquete-sensible_6814067_3224.html)
+- **DIRECT. Marine Le Pen dit n'avoir "jamais reçu d'information confidentielle" du préfet Hugues Moutouh**: [Link](https://www.bfmtv.com/politique/elections/presidentielle/direct-presidentielle-david-lisnard-voit-une-primaire-de-la-droite-et-du-centre-comme-un-moyen-d-exclure-les-macronistes_LN-202611220111.html)
+- **DIRECT. Couper les subventions aux associations "politisées" ce "n'est pas du chantage", assure Marine Le Pen**: [Link](https://www.franceinfo.fr/elections/presidentielle/direct-campagne-presidentielle-la-secretaire-generale-de-la-cfdt-marylise-leon-appelle-a-changer-la-date-pour-eviter-un-second-tour-le-2-mai_8294528.html)
+
+
 ### ليبيا (N/A, Sun, 22 Nov 2026 00:30:00 -0800)
 
 - **شكوى ليبية بعد مواجهة تونس.. هل تُحسم نقاط التعادل في أروقة الكاف؟**: [Link](https://www.aljazeera.net/sport/2026/11/21/%D8%B4%D9%83%D9%88%D9%89-%D9%84%D9%8A%D8%A8%D9%8A%D8%A9-%D8%A8%D8%B9%D8%AF-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%AA%D9%88%D9%86%D8%B3-%D9%87%D9%84-%D8%AA%D8%AD%D8%B3%D9%85)
