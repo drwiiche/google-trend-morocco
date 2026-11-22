@@ -1,3 +1,64 @@
+### marion cotillard (N/A, Sat, 21 Nov 2026 15:50:00 -0800)
+
+- **Le FIFM célèbre Jeff Goldblum, l’acteur américain aux cinq décennies de carrière**: [Link](https://fr.hespress.com/497345-le-fifm-celebre-jeff-goldblum-lacteur-americain-aux-cinq-decennies-de-carriere.html)
+- **Ouverture du 23e Festival du film de Marrakech, entre projections et course à l’Étoile d’or**: [Link](https://www.yabiladi.com/articles/details/208315/ouverture-festival-film-marrakech-entre.html)
+- **Marion Cotillard, Gilles Lellouche, Lyna Khoudri... pluie de stars à Marrakech**: [Link](https://www.parismatch.com/marion-cotillard-gilles-lellouche-lyna-khoudri-pluie-stars-marrakech-5DDCkNY9mkR5lmZsS7dUbg)
+
+
+### عطلة مدرسية (N/A, Sat, 21 Nov 2026 15:20:00 -0800)
+
+- **“التربية”: الثالت من كانون الثاني موعد امتحانات الفصل الأول**: [Link](https://www.enabbaladi.net/834032/%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D8%AB%D8%A7%D9%84%D8%AA-%D9%85%D9%86-%D9%83%D8%A7%D9%86%D9%88%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-%D9%85%D9%88%D8%B9%D8%AF-%D8%A7/)
+- **عطلة جديدة على الأبواب.. التلاميذ يستعدون لثمانية أيام من الراحة**: [Link](https://trendnews.ma/36529)
+- **عطلة مدرسية جديدة تقترب.. لم يعد يفصل التلاميذ المغاربة سوى**: [Link](https://howiyapress.com/%D8%B9%D8%B7%D9%84%D8%A9-%D9%85%D8%AF%D8%B1%D8%B3%D9%8A%D8%A9-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%84%D9%85-%D9%8A%D8%B9%D8%AF-%D9%8A%D9%81%D8%B5%D9%84-%D8%A7%D9%84/)
+
+
+### inter miami – columbus crew (N/A, Sat, 21 Nov 2026 14:40:00 -0800)
+
+- **Messi chases another impossible feat: back-to-back MLS titles**: [Link](https://www.besoccer.com/new/messi-chases-another-impossible-feat-back-to-back-mls-titles-1442577)
+- **Columbus Crew Leads Inter Miami 1-0 as Lujan Sees Red**: [Link](https://cwibc.co.id/en/columbus-crew-leads-inter-miami-playoffs)
+- **Columbus Inter Miami Soccer**: [Link](https://www.corsicanadailysun.com/sports/national_sports/columbus-inter-miami-soccer/image_d0c0801f-26c2-5fa4-b065-65a41332fc4b.html)
+
+
+### boca juniors (N/A, Sat, 21 Nov 2026 14:40:00 -0800)
+
+- **Boca 2-0 Atl. Mineiro : goles, resumen y resultado**: [Link](https://as.com/futbol/internacional/boca-atl-mineiro-en-directo-final-de-copa-sudamericana-hoy-en-vivo-f202611-d/)
+- **Atlético cierra su participación en la Copa Sudamericana**: [Link](https://onefootball.com/es/noticias/atletico-cierra-su-participacion-en-la-copa-sudamericana-43816609)
+- **Ascacibar el héroe inesperado y Merentiel el socio de todos en un Boca que mete miedo**: [Link](https://es-us.noticias.yahoo.com/deportes/ascacibar-h%C3%A9roe-inesperado-merentiel-socio-010154111.html)
+
+
+### classement real madrid – celta vigo (N/A, Sat, 21 Nov 2026 14:20:00 -0800)
+
+- **A quelle heure et sur quelle chaîne voir Real Madrid-Celta Vigo en Liga ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-real-madrid-celta-vigo-en-liga/1744428)
+- **Real Madrid - Celta Vigo : les compositions officielles**: [Link](https://www.footmercato.net/a4365665785846837632-real-madrid-celta-vigo-les-compositions-officielles)
+- **Liga: Le Real Madrid sauvé par Espi**: [Link](https://www.sports.fr/football/liga-real-madrid-celta-vigo-en-direct-1064932.html)
+
+
+### kylian mbappé (N/A, Sat, 21 Nov 2026 14:10:00 -0800)
+
+- **Benzema's ghost returns: Mbappé tops an embarrassing list**: [Link](https://www.goal.com/en/news/benzema-s-ghost-returns-mbappe-tops-an-embarrassing-list/blt45df9d2eccad9713)
+- **After latest miss, what is Kylian Mbappé’s penalty record for Real Madrid?**: [Link](https://getfootballnewsspain.com/after-latest-miss-what-is-kylian-mbappes-penalty-record-for-real-madrid/)
+- **Did the referee favour Real? Archivo VAR settles debate over Mbappé penalty**: [Link](https://www.goal.com/en/news/did-the-referee-favour-real-archivo-var-settles-debate-over-mbappe-penalty/blte4e05da75ce16579)
+
+
+### rma (N/A, Sat, 21 Nov 2026 13:40:00 -0800)
+
+- **East Tennessee State 74-68 Longwood (Nov 21, 2026) Final Score**: [Link](https://www.espn.com/mens-college-basketball/game/_/gameId/401922048)
+- **Norwich City vs. QPR (Nov 24, 2026) Odds and Spread**: [Link](https://www.espn.com/soccer/odds/_/gameId/401880144)
+- **Ashley Pennie gets on the scoresheet for North Carolina**: [Link](https://www.espn.com/video/clip/_/id/50556423/ashley-pennie-gets-scoresheet-north-carolina)
+
+
+### ريال مدريد (N/A, Sat, 21 Nov 2026 12:50:00 -0800)
+
+- **فيديو: "مبابي يخذل.. وفينيسيوس يسحر.. وإسبي يحسم".. مورينيو ينجو من ليلة كارثية!**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A8%D8%A7%D8%A8%D9%8A-%D9%8A%D8%AE%D8%B0%D9%84--%D9%88%D9%81%D9%8A%D9%86%D9%8A%D8%B3%D9%8A%D9%88%D8%B3-%D9%8A%D8%B3%D8%AD%D8%B1--%D9%88%D8%A7%D9%95%D8%B3%D8%A8%D9%8A-%D9%8A%D8%AD%D8%B3%D9%85--%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D9%84%D9%8A%D9%84%D8%A9-%D9%83%D8%A7%D8%B1%D8%AB%D9%8A%D8%A9/blt2064218aa4ccd44b)
+- **شاهد أهداف وملخص فوز ريال مدريد على سيلتا فيغو في الدوري الإسباني**: [Link](https://www.aljazeera.net/sport/liveblog/2026/11/21/%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D8%B6%D8%AF-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-3)
+- **ريال مدريد ينجو من فخ سيلتا فيغو وينتزع فوزاً صعباً**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/la-liga/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D9%86%D8%AC%D9%88-%D9%85%D9%86-%D9%81%D8%AE-%D8%B3%D9%8A%D9%84%D8%AA%D8%A7-%D9%81%D9%8A%D8%BA%D9%88-%D9%88%D9%8A%D9%86%D8%AA%D8%B2%D8%B9-%D9%81%D9%88%D8%B2%D8%A7-%D8%B5%D8%B9%D8%A8%D8%A7-2026-11-21)
+
+
+### rma vs (N/A, Sat, 21 Nov 2026 12:50:00 -0800)
+
+
+
+
 ### alexander zverev (N/A, Sat, 21 Nov 2026 13:00:00 -0800)
 
 - **The final top-10 rankings for 2026 are now confirmed after Daniil Medvedev beats Frances Tiafoe**: [Link](https://tennishead.net/the-final-top-10-rankings-for-2026-are-now-confirmed-after-daniil-medvedev-beats-frances-tiafoe/)
