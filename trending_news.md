@@ -1,3 +1,73 @@
+### brentford – everton (N/A, Mon, 23 Nov 2026 11:50:00 -0800)
+
+- **Premier League LIVE: Brentford 4-0 Everton - James Tarkowski sees red as Toffees thrashed**: [Link](https://www.bbc.com/sport/football/live/c64gnwyv7kvjt)
+- **One Change For Blues At Brentford**: [Link](https://www.evertonfc.com/news/2026/november/23/brentford-team-news/)
+- **Brentford 4 Everton 0: Oleksandr Usyk watches on as David Moyes hit with sucker punch on record-breaking evening**: [Link](https://www.thesun.co.uk/sport/41121472/brentford-everton-oleksandr-usyk-david-moyes-punch/)
+
+
+### الكائنات الفضائية (N/A, Mon, 23 Nov 2026 11:40:00 -0800)
+
+- **مصمم أسلحة أميركي: الكائنات الفضائية موجودة بيننا ولديها تقنيات متفوقة**: [Link](https://www.alarabiya.net/science/2026/11/23/%D9%85%D8%B5%D9%85%D9%85-%D8%A7%D8%B3%D9%84%D8%AD%D8%A9-%D8%A7%D9%85%D9%8A%D8%B1%D9%83%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D8%A6%D9%86%D8%A7%D8%AA-%D8%A7%D9%84%D9%81%D8%B6%D8%A7%D8%A6%D9%8A%D8%A9-%D9%85%D9%88%D8%AC%D9%88%D8%AF%D8%A9-%D8%A8%D9%8A%D9%86%D9%86%D8%A7-%D9%88%D9%84%D8%AF%D9%8A%D9%87%D8%A7-%D8%AA%D9%82%D9%86%D9%8A%D8%A7%D8%AA-%D9%85%D8%AA%D9%81%D9%88%D9%82%D8%A9)
+- **فيديو. البنتاغون ينشر دفعة جديدة من ملفات ظواهر غير معروفة بعد رفع السرية**: [Link](https://arabic.euronews.com/video/2026/11/21/pentagon-declassifies-new-ufo-footage-filmed-by-us-military)
+- **«تيك تاك» الغامضة.. نظرية صادمة عن وجود الكائنات الفضائية**: [Link](https://al-ain.com/article/aliens-living-taunting-us-navy)
+
+
+### levante – elche (N/A, Mon, 23 Nov 2026 11:20:00 -0800)
+
+- **El Elche llega al Ciutat con dos delanteros ante un Levante con cuatro cambios**: [Link](https://www.infobae.com/espana/agencias/2026/11/23/el-elche-llega-al-ciutat-con-dos-delanteros-ante-un-levante-con-cuatro-cambios/)
+- **Dani Requena rescata un amargo punto ante el Elche**: [Link](https://www.levante-emv.com/deportes/2026/11/23/dani-requena-rescata-amargo-punto-136771722.html)
+- **Los once elegidos por Luís Castro para enfrentarse al Elche**: [Link](https://www.superdeporte.es/levante-ud/2026/11/23/once-elegidos-luis-castro-enfrentarse-136770480.html)
+
+
+### الاتحاد ضد باختاكور (N/A, Mon, 23 Nov 2026 11:10:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الاتحاد وباختاكور في دوري أبطال آسيا للنخبة 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟ | كووورة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D9%88%D8%A8%D8%A7%D8%AE%D8%AA%D8%A7%D9%83%D9%88%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%93%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt6637584558535934)
+- **ملخص وأهداف مباراة الاتحاد ضد باختاكور في دوري أبطال آسيا للنخبة (فيديو)**: [Link](https://www.annahar.com/sports/369169/%D8%A8%D8%AB-%D9%85%D8%A8%D8%A7%D8%B4%D8%B1-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%B6%D8%AF-%D8%A8%D8%A7%D8%AE%D8%AA%D8%A7%D9%83%D9%88%D8%B1-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%B3%D9%8A%D8%A7-%D9%84%D9%84%D9%86%D8%AE%D8%A8%D8%A9)
+- **بعد المشاركة مع « أسود » .. النصيري يزف خبرا سارا لجماهير الاتحاد**: [Link](https://ar.sport.le360.ma/football/lions-atlas/B64BSE4ZYBD2NFSXHU5FWZJY7E/)
+
+
+### marca (N/A, Mon, 23 Nov 2026 10:40:00 -0800)
+
+- **Marca: Court of Arbitration for Sport expected to rule for Morocco in Africa Cup of Nations dispute**: [Link](https://en.hespress.com/149744-marca-court-of-arbitration-for-sport-expected-to-rule-for-morocco-in-africa-cup-of-nations-dispute.html)
+- **Official: CAS to announce host of 2025 Africa Cup of Nations tomorrow afternoon**: [Link](https://www.elbotola.com/en/article/2026-11-23-10-26-76.html)
+- **CAS to rule on Senegal’s appeal over Morocco’s AFCON title on Tuesday**: [Link](https://en.yabiladi.com/articles/details/208461/rule-senegal-s-appeal-over-morocco-s.html)
+
+
+### الأهلي ضد الأهرام (N/A, Mon, 23 Nov 2026 10:40:00 -0800)
+
+- **ما القنوات الناقلة لمباراة الأهلي وبيراميدز في الدوري المصري 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A7%D9%84%D8%A7%D9%94%D9%87%D9%84%D9%8A-%D9%88%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt6bded9ef157c5ff9)
+- **بالفيديو.. بيراميدز يلحق بالأهلي أول هزيمة في الدوري المصري ويبتعد بالصدارة**: [Link](https://www.aljazeera.net/sport/2026/11/23/%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2-%D9%81%D9%88%D8%B2-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+- **أرقام مثيرة تسبق صدام الدوري.. ماذا يقول تاريخ مواجهات الأهلي وبيراميدز؟**: [Link](https://www.alkhaleej.ae/2026-11-23/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9/%D8%A3%D8%B1%D9%82%D8%A7%D9%85-%D9%85%D8%AB%D9%8A%D8%B1%D8%A9-%D8%AA%D8%B3%D8%A8%D9%82-%D8%B5%D8%AF%D8%A7%D9%85-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D9%85%D8%A7%D8%B0%D8%A7-%D9%8A%D9%82%D9%88%D9%84-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A7%D8%AA-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D9%88%D8%A8%D9%8A%D8%B1%D8%A7%D9%85%D9%8A%D8%AF%D8%B2)
+
+
+### مطر (N/A, Mon, 23 Nov 2026 10:10:00 -0800)
+
+- **الأرصاد تحذر من الشبورة المائية والأمطار.. تفاصيل حالة الطقس في مصر حتى الأحد المقبل**: [Link](https://elmaser.com/article/202967)
+- **رياح وأمطار وشبورة كثيفة.. الأرصاد تحذر من طقس غدًا الثلاثاء**: [Link](https://akhbarelyom.com/news/newdetails/4912744/1/%D8%B1%D9%8A%D8%A7%D8%AD-%D9%88%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D8%B4%D8%A8%D9%88%D8%B1%D8%A9-%D9%83%D8%AB%D9%8A%D9%81%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AD%D8%B0%D8%B1-%D9%85%D9%86)
+- **الأرصاد: استمرار الأجواء الخريفية المعتدلة حتى الأحد.. والشبورة وفرص الأمطار أبرز الظواهر الجوية**: [Link](https://www.elbalad.news/7191747)
+
+
+### al ahly – pyramids (N/A, Mon, 23 Nov 2026 09:50:00 -0800)
+
+- **Al Ahly coach warned he could end up like Riveiro**: [Link](https://www.kickoff.com/world-news/africa-news/hussein-ammouta-s-warning-ahead-of-pyramids-clash)
+- **Pyramids settles the summit with a brace in Cairo.. 9 straight wins widen the gap to 7 points over Al Ahly and hand them their first loss!**: [Link](https://foot-africa.com/en/news/pyramids-settles-the-summit-with-a-brace-in-cairo-9-straight-wins-widen-the-gap-to-7-points-over-al-ahly-and-hand-them-their-first-loss-1428911/)
+- **Al Ahly Make Special Plans To Stop Rulani & Pyramids**: [Link](https://www.soccerladuma.co.za/international/african-football/al-ahly-change-preparations-for-pyramids-fc)
+
+
+### abdelmadjid tebboune (N/A, Mon, 23 Nov 2026 09:40:00 -0800)
+
+- **Phosphate: pour tenir la promesse de Tebboune, Alger aurait acheté une «usine d’occasion repeinte**: [Link](https://fr.le360.ma/monde/phosphate-pour-tenir-la-promesse-de-tebboune-alger-aurait-achete-une-usine-doccasion-repeinte_I5NLVXX66VEFDDZSLL7L5MZL3I/)
+- **Le président de la République préside une réunion de travail consacrée au lancement du projet de construction d'une usine de batteries au lithium**: [Link](https://www.lexpressiondz.com/info-en-continu/le-president-de-la-republique-preside-une-reunion-de-travail-consacree-au-lancement-du-projet-de-construction-d-une-usine-de-batteries-au-lithium-352731)
+- **Batteries au lithium : Tebboune relance un projet industriel engagé depuis 2023**: [Link](https://twala.info/fr/fil-actualite/algerie-usine-batteries-lithium-5-gwh-karim-zaghib/)
+
+
+### fifa u-17 world cup (N/A, Mon, 23 Nov 2026 09:30:00 -0800)
+
+- **Moroccan referee El Baroudi to officiate Brazil v Ireland match at U17 World Cup**: [Link](https://www.elbotola.com/en/article/2026-11-20-21-25-491.html)
+- **Lucas Emanuel expects tough Tanzania test, but insists: We're ready**: [Link](https://onefootball.com/en/news/lucas-emanuel-expects-tough-tanzania-test-but-insists-were-ready-43826888)
+- **Rodrigo Jr fulfils childhood dream with goal on Under-17 World Cup debut**: [Link](https://sports.yahoo.com/articles/rodrigo-jr-fulfils-childhood-dream-220700622.html)
+
+
 ### مناخ (N/A, Mon, 23 Nov 2026 02:10:00 -0800)
 
 - **كوب 31.. فشل إقرار البيان الختامي لقمة المناخ في تركيا**: [Link](https://www.aljazeera.net/news/2026/11/22/%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D9%83%D9%88%D8%A8-31-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%88-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF)
