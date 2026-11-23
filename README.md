@@ -1,3 +1,38 @@
+### maroc vs ghana (N/A, Sun, 22 Nov 2026 16:30:00 -0800)
+
+- **Le Maroc bat le Guatemala pour son entrée au Mondial de football des personnes de petite taille**: [Link](https://www.yabiladi.com/articles/details/208405/maroc-guatemala-pour-entree-mondial.html)
+- **Une finale 100 % africaine : le Maroc défie le Ghana pour un titre mondial historique**: [Link](https://radiomars.ma/fr/?p=8347)
+- **Football pour amputés : ces Lions de l’Atlas qui font sensation au Mondial 2026**: [Link](https://mobile.telquel.ma/2026/11/20/football-pour-amputes-ces-lions-de-latlas-qui-font-sensation-au-mondial-2026_2019208)
+
+
+### بنغازي (N/A, Sun, 22 Nov 2026 16:00:00 -0800)
+
+- **أسلحة وتحركات روسية.. تفاصيل ما قبل الانفجار بقاعدة بنغازي شرقي ليبيا**: [Link](https://www.aljazeera.net/news/2026/11/22/%D8%A3%D8%B3%D9%84%D8%AD%D8%A9-%D9%88%D8%AA%D8%AD%D8%B1%D9%83%D8%A7%D8%AA-%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D9%85%D8%A7-%D9%82%D8%A8%D9%84)
+- **ليبيا تحقق في انفجار سفينة روسية**: [Link](https://www.hespress.com/%D9%84%D9%8A%D8%A8%D9%8A%D8%A7-%D8%AA%D8%AD%D9%82%D9%82-%D9%81%D9%8A-%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1-%D8%B3%D9%81%D9%8A%D9%86%D8%A9-%D8%B1%D9%88%D8%B3%D9%8A%D8%A9-1843847.html)
+- **ماذا يحدث في بنغازي؟ هجمات بحرية واستهداف متلاحق**: [Link](https://www.skynewsarabia.com/middle-east/1906353-%D9%8A%D8%AD%D8%AF%D8%AB-%D8%A8%D9%86%D8%BA%D8%A7%D8%B2%D9%8A-%D9%87%D8%AC%D9%85%D8%A7%D8%AA-%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D9%88%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D8%A7%D9%81-%D9%85%D8%AA%D9%84%D8%A7%D8%AD%D9%82)
+
+
+### إدوارد ميندي (N/A, Sun, 22 Nov 2026 14:00:00 -0800)
+
+- **حارس السنغال يكشف كواليس إهدار دياز ركلة نهائي إفريقيا**: [Link](https://www.aljazeera.net/sport/2026/11/22/%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D8%AF%D9%8A%D8%A7%D8%B2-%D8%B1%D9%83%D9%84%D8%A9-%D8%AC%D8%B2%D8%A7%D8%A1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84)
+- **اعتراف مثير من إدوارد ميندي خلال نهائي كأس أمم إفريقيا 2025**: [Link](https://radiomars.ma/edouard-mendy-brahim-diaz-penalty-afcon/)
+- **ميندي يروي كيف أربك دياز قبل "بانينكا" نهائي كأس أمم أفريقيا**: [Link](https://www.alaraby.co.uk/sport/%D9%85%D9%8A%D9%86%D8%AF%D9%8A-%D9%8A%D8%B1%D9%88%D9%8A-%D9%83%D9%8A%D9%81-%D8%A3%D8%B1%D8%A8%D9%83-%D8%AF%D9%8A%D8%A7%D8%B2-%D9%82%D8%A8%D9%84-%D8%A8%D8%A7%D9%86%D9%8A%D9%86%D9%83%D8%A7-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D9%83%D8%A3%D8%B3-%D8%A3%D9%85%D9%85-%D8%A3%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7)
+
+
+### musiala bayern munich (N/A, Sun, 22 Nov 2026 14:00:00 -0800)
+
+- **Musiala: Wieder eine Absence! Warum die Sorgen immer größer werden**: [Link](https://www.bild.de/sport/fussball/musiala-wieder-eine-absence-warum-die-sorgen-immer-groesser-werden-6b02c6e85842ff528b9e3ace)
+- **Wieder Absence bei Musiala - starke Kritik an Umgang des FCB**: [Link](https://www.sportschau.de/regional/br/br-wieder-absence-bei-musiala-starke-kritik-an-umgang-des-fcb-102.html)
+- **"Hat was von Mobbing": Rückhalt für Musiala nach Rummenigge-Aussagen**: [Link](https://www.eurosport.de/fussball/bundesliga/2026-2027/jamal-musiala-erhaelt-rueckendeckung-von-lothar-matthaeus-und-stefan-effenberg-nach-rummenigge-aussagen_sto23357756/story.shtml)
+
+
+### miley cyrus (N/A, Sun, 22 Nov 2026 13:30:00 -0800)
+
+- **Miley Cyrus shares first wedding photos after marrying Maxx Morando**: [Link](https://www.nbclosangeles.com/entertainment/entertainment-news/miley-cyrus-maxx-morando-married/3974017/)
+- **Miley Cyrus marries rock drummer Maxx Morando in an intimate Palm Springs wedding**: [Link](https://www.yahoo.com/entertainment/celebrity/articles/miley-cyrus-marries-rock-drummer-015354061.html)
+- **Miley Cyrus Shares Intimate Kiss with Husband Maxx Morando in First Official Wedding Photos**: [Link](https://people.com/miley-cyrus-maxx-morando-share-intimate-kiss-in-first-official-wedding-photos-12272487)
+
+
 ### كأس العالم (N/A, Sun, 22 Nov 2026 13:50:00 -0800)
 
 - **كأس العالم FIFA لأقل من 17 سنة : المنتخب الوطني ينهي استعداداته للمباراة التي ستجمعه بالصين**: [Link](https://frmf.ma/articles/coupe-du-monde-fifa-u17-maroc-chine-les-lionceaux-de-latlas-peaufinent-leur-preparation)
