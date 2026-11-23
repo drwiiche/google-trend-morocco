@@ -1,3 +1,73 @@
+### مناخ (N/A, Mon, 23 Nov 2026 02:10:00 -0800)
+
+- **كوب 31.. فشل إقرار البيان الختامي لقمة المناخ في تركيا**: [Link](https://www.aljazeera.net/news/2026/11/22/%D9%85%D8%AD%D8%A7%D8%AF%D8%AB%D8%A7%D8%AA-%D9%83%D9%88%D8%A8-31-%D8%AA%D9%82%D8%AA%D8%B1%D8%A8-%D9%85%D9%86-%D8%A7%D8%AA%D9%81%D8%A7%D9%82-%D9%88-%D8%A7%D9%84%D9%88%D9%82%D9%88%D8%AF)
+- **كوب 31: انتهاء المؤتمر بدون التوصل إلى اتفاق**: [Link](https://www.bbc.com/arabic/articles/cw8r7g85p4zno)
+- **فشل أطول مؤتمر للمناخ في التاريخ**: [Link](https://www.hespress.com/%D9%81%D8%B4%D9%84-%D8%A3%D8%B7%D9%88%D9%84-%D9%85%D8%A4%D8%AA%D9%85%D8%B1-%D9%84%D9%84%D9%85%D9%86%D8%A7%D8%AE-%D9%81%D9%8A-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-1843789.html)
+
+
+### tas (N/A, Mon, 23 Nov 2026 02:00:00 -0800)
+
+- **1/18 Marys Hope Road, Rosetta, Tas 7010**: [Link](https://www.realestate.com.au/property-house-tas-rosetta-153016712)
+- **75 Marys Hope Road, Rosetta, Tas 7010**: [Link](https://www.realestate.com.au/property-house-tas-rosetta-152964560)
+- **1 Sandy Court, Low Head, Tas 7253**: [Link](https://www.realestate.com.au/property-house-tas-low+head-153016660)
+
+
+### منتخب السنغال لكرة القدم (N/A, Mon, 23 Nov 2026 00:20:00 -0800)
+
+- **ملف نهائي "الكان" يدخل مرحلة الحسم .. و"الطاس" تعلن موعد القرار**: [Link](https://www.hespress.com/%D9%85%D9%84%D9%81-%D9%86%D9%87%D8%A7%D8%A6%D9%8A-%D8%A7%D9%84%D9%83%D8%A7%D9%86-%D9%8A%D8%AF%D8%AE%D9%84-%D9%85%D8%B1%D8%AD%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D8%B3%D9%85-%D9%88%D8%A7%D9%84%D8%B7-1844221.html)
+- **المغرب أم السنغال؟ "كاس" تحسم غدا لقب أمم أفريقيا بعد 10 أشهر من الجدل**: [Link](https://www.aljazeera.net/sport/2026/11/23/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%A3%D9%85-%D8%A7%D9%84%D8%B3%D9%86%D8%BA%D8%A7%D9%84-%D9%83%D8%A7%D8%B3-%D8%AA%D8%AD%D8%B3%D9%85-%D8%BA%D8%AF%D8%A7-%D9%84%D9%82%D8%A8)
+- **الطاس تعلن موعد الحسم في نزاع نهائي « كان 2025 ».. القرار الثلاثاء 24 نونبر بعد الزوال – اليوم 24**: [Link](https://alyaoum24.com/2059341.html)
+
+
+### هسبورت (N/A, Sun, 22 Nov 2026 23:20:00 -0800)
+
+- **المنتخب المغربي يكتفي بالفضية في "مونديال كرة القدم لمبتوري الأطراف"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%83%D8%AA%D9%81%D9%8A-%D8%A8%D8%A7%D9%84%D9%81%D8%B6%D9%8A%D8%A9-%D9%81%D9%8A-%D9%85%D9%88%D9%86%D8%AF-1844172.html)
+- **شاهد.. "أسود الأطلس" لمبتوري الأطراف على بُعد خطوة من أول لقب عالمي**: [Link](https://www.aljazeera.net/sport/2026/11/21/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B7%D8%B1%D8%A7%D9%81-%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85)
+- **يهم الجماهير المغربية في بوسطن.. إرشادات قبل قمة المغرب وفرنسا**: [Link](https://ar.telquel.ma/%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A3%D8%B7%D9%84%D8%B3-%D9%84%D9%85%D8%A8%D8%AA%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%A3%D8%B7%D8%B1%D8%A7%D9%81-%D9%88%D8%B5%D9%8A%D9%81%D8%A7-%D9%84%D9%84%D8%B9/)
+
+
+### ملعب (N/A, Sun, 22 Nov 2026 23:10:00 -0800)
+
+- **تفاصيل تجهيز ملعب تيسيما بالبيضاء**: [Link](https://www.hespress.com/%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%AA%D8%AC%D9%87%D9%8A%D8%B2-%D9%85%D9%84%D8%B9%D8%A8-%D8%AA%D9%8A%D8%B3%D9%8A%D9%85%D8%A7-%D8%A8%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-1843787.html)
+- **الدار البيضاء تعزز بنيتها الرياضية بملعب جديد يتسع لـ30 ألف متفرج**: [Link](https://www.attasiaa.com/%D8%A7%D9%84%D8%AF%D8%A7%D8%B1-%D8%A7%D9%84%D8%A8%D9%8A%D8%B6%D8%A7%D8%A1-%D8%AA%D8%B9%D8%B2%D8%B2-%D8%A8%D9%86%D9%8A%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D9%8A%D8%A9-%D8%A8%D9%85/)
+- **ليلة سوداء في ديربي الشمال.. جماهير هامبورج تحرق وتخرّب مدرجات ملعب بريمن**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%84%D9%8A%D9%84%D8%A9-%D8%B3%D9%88%D8%AF%D8%A7%D8%A1-%D9%81%D9%8A-%D8%AF%D9%8A%D8%B1%D8%A8%D9%8A-%D8%A7%D9%84%D8%B4%D9%85%D8%A7%D9%84--%D8%AC%D9%85%D8%A7%D9%87%D9%8A%D8%B1-%D9%87%D8%A7%D9%85%D8%A8%D9%88%D8%B1%D8%AC-%D8%AA%D8%AD%D8%B1%D9%82-%D9%88%D8%AA%D8%AE%D8%B1%D9%91%D8%A8-%D9%85%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-%D9%85%D9%84%D8%B9%D8%A8-%D8%A8%D8%B1%D9%8A%D9%85%D9%86/blt226fa1e3b5a48d7e)
+
+
+### ميناء (N/A, Sun, 22 Nov 2026 23:00:00 -0800)
+
+- **إغراق "ميركوري" قبالة ليبيا.. زيلينسكي يتبنى ومسؤول روسي لا يستبعد الخيار النووي**: [Link](https://www.aljazeera.net/news/2026/11/23/%D8%B9%D8%A7%D8%AC%D9%84-%D8%B2%D9%8A%D9%84%D9%8A%D9%86%D8%B3%D9%83%D9%8A-%D8%A7%D9%84%D8%AC%D9%8A%D8%B4-%D8%A7%D9%84%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A-%D8%A7%D8%B3%D8%AA%D9%87%D8%AF%D9%81)
+- **زيليسكي ينشر فيديو لـ"عملية بنغازي".. زوارق مسيرة وانفجارات**: [Link](https://www.skynewsarabia.com/world/1906505-%D8%B2%D9%8A%D9%84%D9%8A%D8%B3%D9%83%D9%8A-%D9%8A%D9%86%D8%B4%D8%B1-%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%84-%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%A8%D9%86%D8%BA%D8%A7%D8%B2%D9%8A-%D8%B2%D9%88%D8%A7%D8%B1%D9%82-%D9%85%D8%B3%D9%8A%D8%B1%D8%A9-%D9%88%D8%A7%D9%86%D9%81%D8%AC%D8%A7%D8%B1%D8%A7%D8%AA)
+- **أوكرانيا تقر رسميا بمسؤوليتها عن إغراق سفينة حربية روسية في ليبيا والحكومة الليبية تعتبره انتهاكا لسيادتها**: [Link](https://alyaoum24.com/2059335.html)
+
+
+### الفجر (N/A, Sun, 22 Nov 2026 21:30:00 -0800)
+
+- **ها شنو كال عصيد لـ”كود” على الظاهرة: فرسان الفجر استغلال للأطفال فالدعاية الدينية.. والهوية الدينية ما كيهددها غير التطرف**: [Link](https://www.goud.ma/%D9%87%D8%A7-%D8%B4%D9%86%D9%88-%D9%83%D8%A7%D9%84-%D8%B9%D8%B5%D9%8A%D8%AF-%D9%84%D9%80%D9%83%D9%88%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%B8%D8%A7%D9%87%D8%B1%D8%A9-%D9%81%D8%B1%D8%B3%D8%A7-1055842/)
+- **المخارج القانونية لمتابعة صحفية في قضية "أطفال الفجر"**: [Link](https://www.elkhabar.com/societe/%D8%A7%D9%84%D9%85%D8%AE%D8%A7%D8%B1%D8%AC-%D8%A7%D9%84%D9%82%D8%A7%D9%86%D9%88%D9%86%D9%8A%D8%A9-%D9%84%D9%85%D8%AA%D8%A7%D8%A8%D8%B9%D8%A9-%D8%B5%D8%AD%D9%81%D9%8A%D8%A9-%D9%81%D9%8A-%D9%82%D8%B6%D9%8A%D8%A9-%D8%A3%D8%B7%D9%81%D8%A7%D9%84-%D8%A7%D9%84%D9%81%D8%AC%D8%B1-276448)
+- **كفى أيّها العلمانيّون… لستم ضمير الدولة الجزائرية!**: [Link](https://www.echoroukonline.com/%D9%83%D9%81%D9%89-%D8%A3%D9%8A%D9%91%D9%87%D8%A7-%D8%A7%D9%84%D8%B9%D9%84%D9%85%D8%A7%D9%86%D9%8A%D9%91%D9%88%D9%86-%D9%84%D8%B3%D8%AA%D9%85-%D8%B6%D9%85%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D9%88%D9%84)
+
+
+### موعد اذان الفجر (N/A, Sun, 22 Nov 2026 21:00:00 -0800)
+
+- **موعد أذان الظهر اليوم الإثنين في القاهرة والمحافظات**: [Link](https://www.vetogate.com/5765692)
+- **مواقيت الصلاة اليوم الإثنين الموافق 23 نوفمبر 2026**: [Link](https://www.cairo24.com/2534240)
+- **مواقيت الصلاة اليوم الأحد 22 نوفمبر 2026 في مصر.. موعد أذان الفجر والمغرب والعشاء**: [Link](https://www.altreeq.com/551818)
+
+
+### سفيان رحيمي (N/A, Sun, 22 Nov 2026 20:10:00 -0800)
+
+- **بشرى سارة لجماهير “أسود الأطلس”**: [Link](https://www.alayam24.com/articles-649809.html)
+- **الرحيمي يعود للعين بعد خضوعه للعلاج بمركز محمد السادس**: [Link](https://infosports.ma/231825/)
+- **إيفيتش: ترشح سفيان رحيمي لجائزة «غلوب سوكر» جاء عن جدارة واستحقاق**: [Link](https://www.emaratalyoum.com/sports/local/2026-11-22-1.2105218)
+
+
+### maroc vs ghana aujourd'hui (N/A, Sun, 22 Nov 2026 17:10:00 -0800)
+
+- **Morocco to Face Ghana in Historic Amputee Football World Cup Final**: [Link](https://www.moroccoworldnews.com/2026/11/347599/morocco-to-face-ghana-in-historic-amputee-football-world-cup-final/)
+- **“Golden Foot” national team makes history, sets date with Ghana in World Cup final**: [Link](https://www.elbotola.com/en/article/2026-11-21-14-33-846.html)
+- **Football: Morocco to face Angola in amputee World Cup quarterfinals**: [Link](https://apanews.net/football-morocco-to-face-angola-in-amputee-world-cup-quarterfinals/)
+
+
 ### maroc vs ghana (N/A, Sun, 22 Nov 2026 16:30:00 -0800)
 
 - **Le Maroc bat le Guatemala pour son entrée au Mondial de football des personnes de petite taille**: [Link](https://www.yabiladi.com/articles/details/208405/maroc-guatemala-pour-entree-mondial.html)
