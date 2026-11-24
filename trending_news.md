@@ -1,3 +1,52 @@
+### تقاعد (N/A, Mon, 23 Nov 2026 21:30:00 -0800)
+
+- **إلغاء الحد الزمني البالغ 12 شهرًا من التوكيل الرسمي لاستلام استحقاقات التقاعد.**: [Link](https://www.vietnam.vn/ar/xoa-thoi-han-12-thang-voi-giay-uy-quyen-nhan-luong-huu)
+- **[إنفوغرافيك] قانون يعدل ويكمل عدداً من مواد قانون التأمينات الاجتماعية، ويسري مفعوله اعتباراً من 1 مارس 2027**: [Link](https://www.vietnam.vn/ar/infographic-luat-sua-doi-bo-sung-mot-so-dieu-cua-luat-bao-hiem-xa-hoi-co-hieu-luc-tu-ngay-1-3-2027)
+- **سننظر في خفض سن الحصول على استحقاقات التقاعد الاجتماعي تدريجياً.**: [Link](https://www.vietnam.vn/ar/se-xem-xet-giam-dan-do-tuoi-huong-tro-cap-huu-tri-xa-hoi)
+
+
+### ضريبة (N/A, Mon, 23 Nov 2026 21:20:00 -0800)
+
+- **EU leaders' chair proposes new cuts to EU 2028-2034 budget draft, suggests digital tax**: [Link](https://www.reuters.com/markets/us/eu-leaders-chair-proposes-new-cuts-eu-2028-2034-budget-draft-suggests-digital-2026-11-21/)
+- **Visegrád Four leaders voice concerns over EU budget proposal**: [Link](https://www.euronews.com/2026/11/23/visegrad-four-leaders-voice-concerns-over-eu-budget-proposal)
+- **World in Brief: Tech sell-off intensifies; EU targets digital giants with 3% tax**: [Link](https://www.economist.com/the-world-in-brief/2026/11/21/0aec0b98-7ace-4cb6-9f7f-0bb7e95c06d9)
+
+
+### الفجر (N/A, Mon, 23 Nov 2026 21:20:00 -0800)
+
+- **أذان المغرب والعشاء.. هل تعرف مواعيد الصلاة اليوم في محافظتك؟**: [Link](https://twaslnews1.twaslnews.com/8205494/)
+- **مواقيت الصلاة اليوم الثلاثاء وموعد أذان المغرب في القاهرة والمحافظات**: [Link](https://www.rosaelyoussef.com/1454564)
+- **موعد أذان الظهر اليوم الإثنين في القاهرة والمحافظات**: [Link](https://www.vetogate.com/5765692)
+
+
+### michel zecler (N/A, Mon, 23 Nov 2026 18:00:00 -0800)
+
+- **Policiers condamnés en France: le producteur noir agressé aurait voulu des « peines plus dissuasives**: [Link](https://www.journaldemontreal.com/2026/11/22/policiers-condamnes-en-france-le-producteur-noir-agresse-aurait-voulu-des--peines-plus-dissuasives)
+- **BFM SUR LE TERRAIN - "L'enjeu, c'est d'être les yeux et les oreilles des gens", témoigne Alexandra Gonzalez, cheffe adjointe du service police-justice de BFMTV, qui a couvert cette semaine le procès de l'affaire Michel Zecler**: [Link](https://www.bfmtv.com/police-justice/video-bfm-sur-le-terrain-l-enjeu-c-est-d-etre-les-yeux-et-les-oreilles-des-gens-temoigne-alexandra-gonzalez-cheffe-adjointe-du-service-police-justice-de-bfmtv-qui-a-couvert-cette-semaine-le-proces-de-l-affaire-michel-zecler_VN-202611220256.html)
+- **Édito. Une parole policière peut-elle être mise en doute ?**: [Link](https://www.sudouest.fr/ile-de-france/paris/edito-une-parole-policiere-peut-elle-etre-mise-en-doute-31625942.php)
+
+
+### نظام إنذار (N/A, Mon, 23 Nov 2026 16:40:00 -0800)
+
+- **أزمور تستعد لتجربة الإنذار المبكر**: [Link](https://www.hespress.com/%D8%A3%D8%B2%D9%85%D9%88%D8%B1-%D8%AA%D8%B3%D8%AA%D8%B9%D8%AF-%D9%84%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D8%A7%D9%84%D8%A5%D9%86%D8%B0%D8%A7%D8%B1-%D8%A7%D9%84%D9%85%D8%A8%D9%83%D8%B1-1844637.html)
+- **المغرب يطلق نظامًا للإنذار عبر الهواتف المحمولة في ديسمبر المقبل**: [Link](https://www.alquds.co.uk/%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%B7%D9%84%D9%82-%D9%86%D8%B8%D8%A7%D9%85%D9%8B%D8%A7-%D9%84%D9%84%D8%A5%D9%86%D8%B0%D8%A7%D8%B1-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D9%87%D9%88%D8%A7%D8%AA/)
+- **سلطات ميدلت تشرع في اختبار نظام « MA-INDAR » للإنذار المبكر بالمخاطر عبر الرسائل النصية القصيرة – اليوم 24**: [Link](https://alyaoum24.com/2059508.html)
+
+
+### botafogo – são paulo (N/A, Mon, 23 Nov 2026 15:10:00 -0800)
+
+- **Com polêmicas de arbitragem, Botafogo empata com São Paulo e continua próximo da zona de rebaixamento**: [Link](https://www.cartacapital.com.br/esporte/com-polemicas-de-arbitragem-botafogo-empata-com-sao-paulo-e-continua-proximo-da-zona-de-rebaixamento/)
+- **Calleri reconhece temporada ruim do São Paulo: “Somos todos culpados”**: [Link](https://saopaulodigital.com.br/noticias/calleri-reconhece-temporada-ruim-do-sao-paulo-somos-todos-culpados/)
+- **Tiquinho celebra gol de empate, mas reclama de juiz: 'Conversa muito'**: [Link](https://odia.ig.com.br/esporte/botafogo/2026/11/7325254-tiquinho-celebra-gol-de-empate-mas-reclama-de-juiz-conversa-muito.html)
+
+
+### ahly (N/A, Mon, 23 Nov 2026 11:20:00 -0800)
+
+- **Ammouta or Al Ahly's haphazard approach: which is the wrong fit for the other?**: [Link](https://www.goal.com/en-za/news/ammouta-or-al-ahly-s-haphazard-approach-which-is-the-wrong-fit-for-the-other/blt675ae68ab3bbb56d)
+- **Official: Al Ahly sack Amouta as surprise name emerges to replace him**: [Link](https://www.goal.com/en-za/news/official-al-ahly-sack-amouta-as-surprise-name-emerges-to-replace-him/bltb44d1e9722f58e37)
+- **99 per cent: Ammouta out at Al Ahly, with four options on the table to replace him**: [Link](https://www.goal.com/en/news/99-per-cent-ammouta-out-at-al-ahly-with-four-options-on-the-table-to-replace-him/blt5b03dd9a7f577074)
+
+
 ### brentford – everton (N/A, Mon, 23 Nov 2026 11:50:00 -0800)
 
 - **Premier League LIVE: Brentford 4-0 Everton - James Tarkowski sees red as Toffees thrashed**: [Link](https://www.bbc.com/sport/football/live/c64gnwyv7kvjt)
