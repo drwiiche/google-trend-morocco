@@ -1,3 +1,73 @@
+### galatasaray vs aston villa (N/A, Tue, 24 Nov 2026 09:20:00 -0800)
+
+- **Team news for Galatasaray encounter**: [Link](https://www.avfc.co.uk/news/2026/november/23/prematch-team-news-for-galatasaray-encounter/)
+- **Champions League: Lookman out, Osimhen doubtful · SNA**: [Link](https://sportnewsafrica.com/en/alerts/champions-league-lookman-out-osimhen-doubtful/)
+- **Licensable picture: Aston Villa training session ahead of UEFA Champions League match against Galatasaray**: [Link](https://www.reutersconnect.com/item/aston-villa-training-session-ahead-of-uefa-champions-league-match-against-galatasaray/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMUFOQURMMDAwSTNNT1dD)
+
+
+### غلطة سراي ضد أستون فيلا (N/A, Tue, 24 Nov 2026 09:10:00 -0800)
+
+- **معاينة مباراة جالطة سراي وأستون فيلا في دوري أبطال أوروبا**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%B9%D8%A7%D9%8A%D9%86%D8%A9-%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%AC%D8%A7%D9%84%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D9%88%D8%A7%D9%94%D8%B3%D8%AA%D9%88%D9%86-%D9%81%D9%8A%D9%84%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%83%D9%84-%D9%85%D8%A7-%D8%AA%D8%AD%D8%AA%D8%A7%D8%AC-%D8%A7%D9%95%D9%84%D9%89-%D9%85%D8%B9%D8%B1%D9%81%D8%AA%D9%87/blt0a99e84a23b49ca7)
+- **مدرب غلاطة سراي: إيمري من أنجح المدربين في أوروبا**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5344855-%D9%85%D8%AF%D8%B1%D8%A8-%D8%BA%D9%84%D8%A7%D8%B7%D8%A9-%D8%B3%D8%B1%D8%A7%D9%8A-%D8%A5%D9%8A%D9%85%D8%B1%D9%8A-%D9%85%D9%86-%D8%A3%D9%86%D8%AC%D8%AD-%D8%A7%D9%84%D9%85%D8%AF%D8%B1%D8%A8%D9%8A%D9%86-%D9%81%D9%8A-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7)
+- **إيمري يقلل من تأثير حالة ملعب غلاطة سراي قبل مواجهة دوري الأبطال**: [Link](https://alquds.com/ar/posts/277562-emery-aston-villa-galatasaray-pitch-concerns)
+
+
+### galatasaray – aston villa (N/A, Tue, 24 Nov 2026 09:00:00 -0800)
+
+- **Galatasaray taraftarları için Aston Villa maçı izleme saatleri paylaşıldı**: [Link](https://www.kahtahaberpostasi.com/haber/galatasaray-taraftarlari-icin-aston-villa-maci-izleme-saatleri-paylasildi)
+- **GÜNÜN MAÇLARI 24 KASIM 2026: Bugünkü Maçlar Neler? Bugün Kimlerin Maçı Var? 24 Kasım Salı Günün Maçları**: [Link](https://www.cnnturk.com/spor/gunun-maclari-24-kasim-2026-bugunku-maclar-neler-bugun-kimlerin-maci-var-24-kasim-sali-gunun-maclari-3497646)
+- **Şampiyonlar Ligi'nde bu hafta hangi maçlar var? Devler Ligi 5. hafta maçları ne zaman, saat kaçta oynanacak?**: [Link](https://www.hurriyet.com.tr/sporarena/galeri-sampiyonlar-liginde-bu-hafta-hangi-maclar-var-devler-ligi-5-hafta-maclari-ne-zaman-saat-kacta-oynanacak-43389533)
+
+
+### mohammed vi (N/A, Tue, 24 Nov 2026 09:00:00 -0800)
+
+- **Question palestinienne : SM le Roi réaffirme l’engagement constant du Maroc en faveur d’un règlement juste et durable**: [Link](https://www.leconomiste.com/flash-infos/question-palestinienne-sm-le-roi-reaffirme-lengagement-constant-du-maroc-en-faveur-dun-reglement-juste-et-durable/)
+- **Gaza : trois nouveaux officiers des FAR rejoignent la force internationale à Kiryat Gat**: [Link](https://ledesk.ma/encontinu/gaza-trois-nouveaux-officiers-des-far-rejoignent-la-force-internationale-a-kiryat-gat/)
+- **Gaza : SM Roi regrette une situation "est en deçà des espoirs"**: [Link](https://lopinion.ma/fr/actu-maroc/palestine--le-roi-reaffirme-lengagement-du-maroc-pour-la-paix_a37009?articleId=12216b31-4eac-413e-af20-cdddb2f8b6f9)
+
+
+### ligue des champions (N/A, Tue, 24 Nov 2026 09:00:00 -0800)
+
+- **Convocation du Real Madrid contre le PSV**: [Link](https://www.realmadrid.com/fr-FR/actualites/football/equipe-premiere/convocations/convocatoria-del-real-madrid-ante-el-psv-23-11-2026)
+- **Brahim Diaz: une nouvelle chance en Ligue des champions ?**: [Link](https://www.lesiteinfo.com/sport/687390-brahim-diaz-une-nouvelle-chance-en-ligue-des-champions.html)
+- **DIRECT. Real Madrid-PSV Eindhoven: suivez le match de la 5e journée de Ligue des champions avec Mbappé en live**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-real-madrid-psv-eindhoven-suivez-le-match-de-la-5e-journee-de-ligue-des-champions-avec-mbappe-en-live_LS-202611240764.html)
+
+
+### paris saint-germain football club (N/A, Tue, 24 Nov 2026 08:30:00 -0800)
+
+- **Luis Enrique avant PSG-AS Rome sur les graves blessures de Khvitcha Kvaratskhelia et Désiré Doué : « On va se mettre à pleurer ? Non »**: [Link](https://www.lequipe.fr/Football/Actualites/Luis-enrique-avant-psg-as-rome-sur-les-graves-blessures-de-khvitcha-kvaratskhelia-et-desire-doue-on-va-se-mettre-a-pleurer-non/1745791)
+- **AS Roma : Emanuele Lulli, la nouvelle pépite italienne qui pourrait surprendre le PSG**: [Link](https://www.footmercato.net/a6946162436148799708-as-roma-emanuele-lulli-la-nouvelle-pepite-italienne-qui-pourrait-surprendre-le-psg)
+- **Luis Enrique: « On va se mettre à pleurer ? Non » - Foot - Ligue des champions**: [Link](https://sports.orange.fr/videos/football/luis-enrique-on-va-se-mettre-a-pleurer-non-foot-ligue-des-champions-CNT000002u1OOF.html)
+
+
+### الاتحاد المغربي للشغل (N/A, Tue, 24 Nov 2026 08:10:00 -0800)
+
+- **زيادة الأجور بـ30 في المائة تتصدر لقاء المنصوري والاتحاد المغربي للشغل**: [Link](https://www.hespress.com/%D8%B2%D9%8A%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A3%D8%AC%D9%88%D8%B1-%D8%A8%D9%8030-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%A7%D8%A6%D8%A9-%D8%AA%D8%AA%D8%B5%D8%AF%D8%B1-%D9%84%D9%82%D8%A7%D8%A1-%D8%A7-1844876.html)
+- **النقابات تستعجل مراجعة الأجور والمعاشات**: [Link](https://assabah.ma/964664.html)
+- **مع اقتراب جولة الحوار الاجتماعي.. المنظمة الديمقراطية للشغل تطالب برفع الحد الأدنى للأجور إلى 6000 درهم**: [Link](https://kifache.com/467161/%D9%85%D8%B9-%D8%A7%D9%82%D8%AA%D8%B1%D8%A7%D8%A8-%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AD%D9%88%D8%A7%D8%B1-%D8%A7%D9%84%D8%A7%D8%AC%D8%AA%D9%85%D8%A7%D8%B9%D9%8A-%D8%A7%D9%84%D9%85%D9%86%D8%B8/)
+
+
+### مجلس المستشارين (N/A, Tue, 24 Nov 2026 07:50:00 -0800)
+
+- **مستشارون ينتقدون تدبير ملفات الشغيلة التعليمية ويدعون إلى "القطيعة"**: [Link](https://www.hespress.com/%D9%85%D8%B3%D8%AA%D8%B4%D8%A7%D8%B1%D9%88%D9%86-%D9%8A%D9%86%D8%AA%D9%82%D8%AF%D9%88%D9%86-%D8%AA%D8%AF%D8%A8%D9%8A%D8%B1-%D9%85%D9%84%D9%81%D8%A7%D8%AA-%D8%A7%D9%84%D8%B4%D8%BA%D9%8A%D9%84%D8%A9-1844457.html)
+- **السطي لوزير التربية الوطنية الحاج نبيل: باركة من المحسوبية وخاص تقطع مع “باك صاحبي” فالمناصب وتعاود طريقة توزيع السكن الوظيفي**: [Link](https://www.goud.ma/%D8%A7%D9%84%D8%B3%D8%B7%D9%8A-%D9%84%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%A7%D9%84%D9%88%D8%B7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%AD%D8%A7%D8%AC-%D9%86%D8%A8%D9%8A-1056290/)
+- **الأحرار يدعو إلى البناء على مكتسبات إصلاح التعليم وتسريع معالجة اختلالات القطاع**: [Link](https://rni.ma/%D8%A7%D9%84%D8%A3%D8%AD%D8%B1%D8%A7%D8%B1-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D8%A7%D9%84%D8%A8%D9%86%D8%A7%D8%A1-%D8%B9%D9%84%D9%89-%D9%85%D9%83%D8%AA%D8%B3%D8%A8%D8%A7%D8%AA-%D8%A5%D8%B5/)
+
+
+### algérie u-17 – monténégro u-17 (N/A, Tue, 24 Nov 2026 07:40:00 -0800)
+
+- **Mondial U17/Algérie : Un coup dur plane sur les Verts**: [Link](https://lagazettedufennec.com/mondial-u17-algerie-un-coup-dur-plane-sur-les-verts/)
+- **Les cadets algériens de retour à l'entraînement en prévision du match face au Monténégro**: [Link](https://www.aps.dz/fr/sports/sport-collectif/mwt2uofo-les-cadets-algeriens-de-retour-a-l-entrainement-en-prevision-du-match-face-au-montenegro)
+- **EN (U17) : Sans Nechab face au Monténégro**: [Link](https://www.footafrique.com/en-u17-sans-nechab-face-au-montenegro/)
+
+
+### coupe du monde de football (N/A, Tue, 24 Nov 2026 07:20:00 -0800)
+
+- **Foot: le Mondial féminin aux USA, au Mexique, au Costa Rica et en Jamaïque en 2031, au Royaume-Uni en 2035**: [Link](https://h24info.ma/sport/foot-le-mondial-feminin-aux-usa-au-mexique-au-costa-rica-et-en-jamaique-en-2031-au-royaume-uni-en-2035/)
+- **La FIFA annonce les pays hôtes des Coupes du Monde 2031 et 2035**: [Link](https://www.footmercato.net/a770657999699889020-la-fifa-annonce-les-pays-hotes-des-coupes-du-monde-2031-et-2035)
+- **L’Angleterre, l’Irlande du Nord, l’Écosse et le pays de Galles accueilleront la Coupe du monde féminine 2035**: [Link](https://mezha.net/fr/news/mezha-5eaff695c01e131421fa2af5_l-angleterre-l-irlande-du-nord/)
+
+
 ### تقاعد (N/A, Mon, 23 Nov 2026 21:30:00 -0800)
 
 - **إلغاء الحد الزمني البالغ 12 شهرًا من التوكيل الرسمي لاستلام استحقاقات التقاعد.**: [Link](https://www.vietnam.vn/ar/xoa-thoi-han-12-thang-voi-giay-uy-quyen-nhan-luong-huu)
