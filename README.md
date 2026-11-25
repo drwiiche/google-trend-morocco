@@ -1,3 +1,71 @@
+### permis de conduire (N/A, Wed, 25 Nov 2026 02:00:00 -0800)
+
+- **E-Rokhsati, une nouvelle plateforme pour renouveler son permis de conduire en ligne**: [Link](https://medias24.com/2026/11/24/narsa-e-rokhssati-permis-de-conduire-1794528/)
+- **Présentation à Rabat de "E-ROKHSATI", une plateforme de dématérialisation des procédures de renouvellement des permis de conduire**: [Link](https://maroc.ma/fr/actualites/presentation-rabat-de-e-rokhsati-une-plateforme-de-dematerialisation-des-procedures-de-renouvellement)
+- **E-ROKHSATI : comment renouveler son permis de conduire ou obtenir un duplicata en ligne**: [Link](https://lematin.ma/societe/e-rokhsati-les-etapes-pour-renouveler-son-permis-en-ligne/377369)
+
+
+### bourse de casablanca (N/A, Wed, 25 Nov 2026 01:40:00 -0800)
+
+- **Bourse de Casablanca. Le MASI recule de 0,7% ce 24 novembre**: [Link](https://medias24.com/2026/11/24/bourse-de-casablanca-le-masi-recule-de-07-ce-24-novembre-1794658/)
+- **Bourse de Casablanca : le MASI poursuit son retrait ce mardi**: [Link](https://boursenews.ma/article/marches/Bourse-de-Casablanca-le-MASI-poursuit-son-retrait-ce-mardi)
+- **Épargne boursière : De la 1ère action au portefeuille de long terme**: [Link](https://fnh.ma/articles/de-la-1ere-action-au-portefeuille-de-long-terme)
+
+
+### meteo (N/A, Tue, 24 Nov 2026 23:30:00 -0800)
+
+
+
+
+### عبد اللطيف الجواهري (N/A, Tue, 24 Nov 2026 23:20:00 -0800)
+
+- **والي بنك المغرب يدعو إلى توجيه الادخار الوطني نحو الاستثمارات المنتجة**: [Link](https://www.hespress.com/%D9%88%D8%A7%D9%84%D9%8A-%D8%A8%D9%86%D9%83-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AF%D8%B9%D9%88-%D8%A5%D9%84%D9%89-%D8%AA%D9%88%D8%AC%D9%8A%D9%87-%D8%A7%D9%84%D8%A7%D8%AF%D8%AE%D8%A7%D8%B1-1844913.html)
+- **الجواهري يحذر من مخاطر التمويل المتزايد لشركات الذكاء الاصطناعي على الاستقرار المالي العالمي – اليوم 24**: [Link](https://alyaoum24.com/2059715.html)
+- **الغذاء والسكن يلتهمان 64% من مصاريف الأسر المغربية.. بنموسى يكشف أين تذهب أموال المغاربة**: [Link](https://al3omk.com/1213566.html)
+
+
+### الطقس اليوم (N/A, Tue, 24 Nov 2026 22:50:00 -0800)
+
+- **توقعات طقس اليوم الأربعاء بالمغرب**: [Link](https://www.hespress.com/%D8%AA%D9%88%D9%82%D8%B9%D8%A7%D8%AA-%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-107-1845161.html)
+- **اليوم الجمعة.. الحرارة والضباب**: [Link](https://static.kifache.com/293352/%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D8%AD%D8%B1%D8%A7%D8%B1%D8%A9-%D9%88%D8%A7%D9%84%D8%B6%D8%A8%D8%A7%D8%A8-2/)
+- **مديرية الأرصاد تتوقع انخفاضا في درجات الحرارة ابتداء من يوم الأربعاء**: [Link](https://ar.lesiteinfo.com/maroc/%D9%85%D8%AF%D9%8A%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D8%AA%D9%88%D9%82%D8%B9-%D8%A7%D9%86%D8%AE%D9%81%D8%A7%D8%B6%D8%A7-%D9%81%D9%8A-%D8%AF%D8%B1%D8%AC%D8%A7%D8%AA-1034342.html)
+
+
+### كريستيانو رونالدو (N/A, Tue, 24 Nov 2026 22:20:00 -0800)
+
+- **مورينيو يتهرب من جدل رونالدو.. ويرفض رحيل نجم الريال**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D9%88%D8%B1%D9%8A%D9%86%D9%8A%D9%88-%D9%8A%D8%AA%D9%87%D8%B1%D8%A8-%D9%85%D9%86-%D8%AC%D8%AF%D9%84-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88--%D9%88%D9%8A%D8%B1%D9%81%D8%B6-%D8%B1%D8%AD%D9%8A%D9%84-%D9%86%D8%AC%D9%85-%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D9%84/bltf7a10cba46cd603b)
+- **كواليس اعتزال رونالدو... خلاف مع خيسوس وخطة لاستدعائه**: [Link](https://aawsat.com/%D8%A7%D9%84%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/5343119-%D9%83%D9%88%D8%A7%D9%84%D9%8A%D8%B3-%D8%A7%D8%B9%D8%AA%D8%B2%D8%A7%D9%84-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-%D8%AE%D9%84%D8%A7%D9%81-%D9%85%D8%B9-%D8%AE%D9%8A%D8%B3%D9%88%D8%B3-%D9%88%D8%AE%D8%B7%D8%A9-%D9%84%D8%A7%D8%B3%D8%AA%D8%AF%D8%B9%D8%A7%D8%A6%D9%87)
+- **مدير المنتخب البرتغالي يأمل في إقامة حفل تكريم لكريستيانو رونالدو**: [Link](https://www.beinsports.com/ar-mena/%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88/%D9%85%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%A8%D8%B1%D8%AA%D8%BA%D8%A7%D9%84%D9%8A-%D9%8A%D8%A3%D9%85%D9%84-%D9%81%D9%8A-%D8%A5%D9%82%D8%A7%D9%85%D8%A9-%D8%AD%D9%81%D9%84-%D8%AA%D9%83%D8%B1%D9%8A%D9%85-%D9%84%D9%83%D8%B1%D9%8A%D8%B3%D8%AA%D9%8A%D8%A7%D9%86%D9%88-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88-2026-11-20?videopage=true)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Tue, 24 Nov 2026 22:20:00 -0800)
+
+- **لماذا لن تمنح المحكمة الفيدرالية السويسرية المغرب لقب كأس أمم أفريقيا؟**: [Link](https://www.alarabiya.net/sport/2026/11/25/%D9%84%D9%85%D8%A7%D8%B0%D8%A7-%D9%84%D9%86-%D8%AA%D9%85%D9%86%D8%AD-%D8%A7%D9%84%D9%85%D8%AD%D9%83%D9%85%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D8%A7%D9%84%D8%B3%D9%88%D9%8A%D8%B3%D8%B1%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%84%D9%82%D8%A8-%D9%83%D8%A7%D8%B3-%D8%A7%D9%85%D9%85-%D8%A7%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A7-)
+- **الجامعة الملكية المغربية تطعن في قرار "طاس" بشأن نهائي كأس إفريقيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%AC%D8%A7%D9%85%D8%B9%D8%A9-%D8%A7%D9%84%D9%85%D9%84%D9%83%D9%8A%D8%A9-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%B7%D8%B9%D9%86-%D9%81%D9%8A-%D9%82%D8%B1%D8%A7%D8%B1-1845036.html)
+- **"الطاس" تعلن توصلها بطلب مغربي لاستبعاد أحد المحكمين قبل إعلان قرارها**: [Link](https://ar.telquel.ma/%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D8%AD%D8%B3%D9%85-%D9%85%D9%88%D9%82%D9%81%D9%87-%D9%85%D9%86-%D9%82%D8%B1%D8%A7%D8%B1-%D8%A7%D9%84%D8%B7%D8%A7%D8%B3-%D9%88%D9%8A%D8%A4%D9%83%D8%AF-%D8%A7/)
+
+
+### حالة الطقس (N/A, Tue, 24 Nov 2026 22:20:00 -0800)
+
+- **حالة الطقس اليوم الأربعاء في مصر والسعودية والإمارات**: [Link](https://roayahnews.com/%D8%AD%D8%A7%D9%84%D8%A9-%D8%A7%D9%84%D8%B7%D9%82%D8%B3-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%A8%D8%B9%D8%A7%D8%A1-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D9%88%D8%A7%D9%84%D8%B3%D8%B9-4/)
+- **«صباح البلد» يعرض درجات الحرارة المتوقعة الأربعاء 25 نوفمبر 2026**: [Link](https://www.akhbrna.ae/misc/sbah-albld-yard-drjat-alhrara/)
+- **هل تمطر على القاهرة اليوم؟.. الأرصاد تكشف خرائط الأمطار وفرصها على العاصمة**: [Link](https://www.youm7.com/story/2026/11/25/%D9%87%D9%84-%D8%AA%D9%85%D8%B7%D8%B1-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D8%A7%D9%87%D8%B1%D8%A9-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A3%D8%B1%D8%B5%D8%A7%D8%AF-%D8%AA%D9%83%D8%B4%D9%81-%D8%AE%D8%B1%D8%A7%D8%A6%D8%B7-%D8%A7%D9%84%D8%A3%D9%85%D8%B7%D8%A7%D8%B1-%D9%88%D9%81%D8%B1%D8%B5%D9%87%D8%A7/7631805)
+
+
+### موعد اذان الفجر (N/A, Tue, 24 Nov 2026 21:40:00 -0800)
+
+- **مواقيت الصلاة في أسوان اليوم الأربعاء 25-11-2026**: [Link](https://twaslnews1.twaslnews.com/8257708/)
+- **مواعيد الصلاة في مصر اليوم الإثنين 23 نوفمبر/ تشرين الثاني 2026**: [Link](https://www.egypt-today.com/2953/084955-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D8%A7%D9%84%D8%B5%D9%84%D8%A7%D8%A9-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%A5%D8%AB%D9%86%D9%8A%D9%86-23-%D9%86%D9%88%D9%81%D9%85%D8%A8%D8%B1-%D8%AA%D8%B4%D8%B1%D9%8A%D9%86-%D8%A7%D9%84%D8%AB%D8%A7%D9%86%D9%8A-2026)
+- **مواقيت الصلاة، موعد أذان العصر اليوم الأربعاء في القاهرة والمحافظات**: [Link](https://www.vetogate.com/5766360)
+
+
+### الجزائر (N/A, Tue, 24 Nov 2026 21:10:00 -0800)
+
+- **11 mobile polling stations head to remote areas in Tindouf**: [Link](https://www.aps.dz/en/local-elections-2026/mwurzq65-11-mobile-polling-stations-head-to-remote-areas-in-tindouf)
+- **November 28 Local Elections: Training Session for Heads of Polling Centers and Stations in Tamanrasset**: [Link](https://news.radioalgerie.dz/en/node/99762)
+- **Algeria local elections: 162,864 candidates, voting begins**: [Link](https://africa.dailynewsegypt.com/algeria-local-elections/)
+
+
 ### nicolas sarkozy (N/A, Tue, 24 Nov 2026 15:30:00 -0800)
 
 - **INFO RTL - Fausse rétractation de Takieddine : Nicolas Sarkozy de nouveau jugé pour association de malfaiteurs en 2027**: [Link](https://www.rtl.fr/actu/justice-faits-divers/info-rtl-fausse-retractation-de-takieddine-nicolas-sarkozy-de-nouveau-juge-pour-associations-de-malfaiteurs-en-2027-7900699929)
