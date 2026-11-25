@@ -1,3 +1,73 @@
+### classement sabah football club – fc barcelone (N/A, Wed, 25 Nov 2026 11:50:00 -0800)
+
+- **UEFA YOUTH LEAGUE | Sabah FK 0-7 FC Barcelona: Big win in Baku**: [Link](https://www.fcbarcelona.com/en/football/barca-academy/news/4614501/uefa-youth-league-sabah-fk-0-7-fc-barcelona-big-win-in-baku)
+- **Sabah suffer 7-0 defeat to Barcelona in UEFA Youth League**: [Link](https://report.az/en/football/sabah-suffer-7-0-defeat-to-barcelona-in-uefa-youth-league)
+- **Barcelona run riot with 7-0 UEFA Youth League demolition of Sabah**: [Link](https://www.besoccer.com/new/barcelona-run-riot-with-7-0-uefa-youth-league-demolition-of-sabah-1443471)
+
+
+### villarreal (N/A, Wed, 25 Nov 2026 11:40:00 -0800)
+
+- **Slavia Praga - Villarreal en directo: UEFA Champions League hoy, en vivo**: [Link](https://as.com/futbol/champions/slavia-praga-villarreal-en-directo-uefa-champions-league-hoy-en-vivo-f202611-d/)
+- **Gol de Gabriel Jesus (Sabah, 0 - Barcelona, 4)**: [Link](https://www.cope.es/programas/tiempo-de-juego/audios/gol-gabriel-jesus-sabah-0-barcelona-4-20261125_3482212.html)
+- **Vídeo: El espectacular juego de luces con fuegos artificiales en la previa del Slavia-Villarreal**: [Link](https://www.elperiodicomediterraneo.com/villarreal-cf/2026/11/25/video-espectacular-juego-luces-fuegos-136850756.html)
+
+
+### club brugge – liverpool (N/A, Wed, 25 Nov 2026 11:30:00 -0800)
+
+- **Ryan Gravenberch and Cody Gakpo injury update**: [Link](https://www.liverpoolfc.com/news/ryan-gravenberch-and-cody-gakpo-injury-update)
+- **Licensable picture: Belgium: SOCCER CL DAY5 CLUB BRUGGE PREPARATIONS**: [Link](https://www.reutersconnect.com/item/belgium-soccer-cl-day5-club-brugge-preparations/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMVNJUEEwMDBaUVhDSUU)
+- **Club Brugge vs Liverpool: Projected lineups for the 2026-27 UEFA Champions League match**: [Link](https://worldsoccertalk.com/news/club-brugge-vs-liverpool-lineups-for-the-2026-27-uefa-champions-league-match/)
+
+
+### بي اس جي ضد روما (N/A, Wed, 25 Nov 2026 11:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة باريس سان جيرمان وروما في دوري أبطال أوروبا 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86-%D9%88%D8%B1%D9%88%D9%85%D8%A7-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/bltbccd68e4c1886484)
+- **دوري أبطال أوروبا: كانديلا يرى أن "نسخة روما الحالية تذكرني بفرنسا 98"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261125-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%83%D8%A7%D9%86%D8%AF%D9%8A%D9%84%D8%A7-%D9%8A%D8%B1%D9%89-%D8%A3%D9%86-%D9%86%D8%B3%D8%AE%D8%A9-%D8%B1%D9%88%D9%85%D8%A7-%D8%A7%D9%84%D8%AD%D8%A7%D9%84%D9%8A%D8%A9-%D8%AA%D8%B0%D9%83%D8%B1%D9%86%D9%8A-%D8%A8%D9%81%D8%B1%D9%86%D8%B3%D8%A7-98)
+- **ديبالا: عملنا بجد لخوض مثل هذه المباريات ضد سان جيرمان**: [Link](https://www.elsport.com/news/show/849117/%D8%AF%D9%8A%D8%A8%D8%A7%D9%84%D8%A7-%D8%B9%D9%85%D9%84%D9%86%D8%A7-%D8%A8%D8%AC%D8%AF-%D9%84%D8%AE%D9%88%D8%B6-%D9%85%D8%AB%D9%84-%D9%87%D8%B0%D9%87-%D8%A7%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%B3%D8%A7%D9%86-%D8%AC%D9%8A%D8%B1%D9%85%D8%A7%D9%86)
+
+
+### lille – bayern (N/A, Wed, 25 Nov 2026 11:20:00 -0800)
+
+- **Champions League preview: LOSC Lille vs. FC Bayern**: [Link](https://fcbayern.com/en/news/matchpreviews/2026/11/preview-losc-lille-vs.-fc-bayern-champions-league)
+- **Licensable picture: UEFA Champions League - Lille v Bayern Munich**: [Link](https://www.reutersconnect.com/item/uefa-champions-league-lille-v-bayern-munich/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQlAxSTlLRUY)
+- **Max Eberl confident for LOSC Lille tilt despite Bayern Munich’s injury-hit squad**: [Link](https://www.bavarianfootballworks.com/champions-league/286053/max-eberl-confident-for-losc-lille-tilt-despite-bayern-munichs-injury-hit-squad)
+
+
+### psg vs roma (N/A, Wed, 25 Nov 2026 11:20:00 -0800)
+
+- **Hakimi: 'I want to leave my name in the highest possible place in Paris Saint-Germain's history and end my career here'**: [Link](https://www.elbotola.com/en/article/2026-11-24-20-39-155.html)
+- **Champions League Liveblog: PSG vs. Roma and Inter vs. VfB Stuttgart**: [Link](https://onefootball.com/en/news/champions-league-liveblog-psg-vs-roma-and-inter-vs-vfb-stuttgart-43839727)
+- **Achraf Hakimi Insists Upcoming Trial Will Not Distract Him From Football**: [Link](https://www.moroccoworldnews.com/2026/11/348009/achraf-hakimi-insists-upcoming-trial-will-not-distract-him-from-football/)
+
+
+### inter – stuttgart (N/A, Wed, 25 Nov 2026 11:20:00 -0800)
+
+- **Klinsmann: „Inter, Stuttgart und damals mit Maradona. Thuram ist wie ich, Pio ähnelt ...“**: [Link](https://www.gazzetta.it/de/fussball/mannschaften/inter/news/25-11-2026/juergen-klinsmann-im-interview-inter-stuttgart-maradona-thuram-und-pio-esposito.shtml)
+- **Undav wartet weiter: VfB-Sturm vor Bewährungsprobe in Mailand**: [Link](https://sport.sky.de/fussball/artikel/undav-wartet-weiter-vfb-sturm-vor-bewaehrungsprobe-in-mailand/13616077/34942)
+- **„Habe ich in der Vorbereitung auf das Spiel erfahren“**: [Link](https://www.sport1.de/tv-video/video/hoeness-habe-ich-in-der-vorbereitung-auf-das-spiel-erfahren__e876b761-18d2-4c02-b089-2a17b60042b1)
+
+
+### سبورتينغ ضد مان يونايتد (N/A, Wed, 25 Nov 2026 11:20:00 -0800)
+
+- **ما القنوات الناقلة لمباراة سبورتينج لشبونة ومانشستر يونايتد في دوري أبطال أوروبا 2026-2027؟ وكيف تشاهدها عبر الإنترنت؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D9%86%D9%88%D8%A7%D8%AA-%D8%A7%D9%84%D9%86%D8%A7%D9%82%D9%84%D8%A9-%D9%84%D9%85%D8%A8%D8%A7%D8%B1%D8%A7%D8%A9-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%AC-%D9%84%D8%B4%D8%A8%D9%88%D9%86%D8%A9-%D9%88%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%94%D8%A8%D8%B7%D8%A7%D9%84-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-2026-2027-%D9%88%D9%83%D9%8A%D9%81-%D8%AA%D8%B4%D8%A7%D9%87%D8%AF%D9%87%D8%A7-%D8%B9%D8%A8%D8%B1-%D8%A7%D9%84%D8%A7%D9%95%D9%86%D8%AA%D8%B1%D9%86%D8%AA/blt230282027d0c0c80)
+- **دوري أبطال أوروبا: بوتشيتينو يؤكد أن مانشستر يونايتد قوي وليس "هشّا"**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261125-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D8%A8%D9%88%D8%AA%D8%B4%D9%8A%D8%AA%D9%8A%D9%86%D9%88-%D9%8A%D8%A4%D9%83%D8%AF-%D8%A3%D9%86-%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%82%D9%88%D9%8A-%D9%88%D9%84%D9%8A%D8%B3-%D9%87%D8%B4%D9%91%D8%A7)
+- **من أزمة القلب إلى القميص رقم 7.. كيف صنعت مواجهة سبورتينغ ويونايتد أسطورة رونالدو؟**: [Link](https://www.alaraby.co.uk/sport/%D9%83%D9%8A%D9%81-%D8%B5%D9%86%D8%B9%D8%AA-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%B3%D8%A8%D9%88%D8%B1%D8%AA%D9%8A%D9%86%D8%BA-%D9%88%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D8%A3%D8%B3%D8%B7%D9%88%D8%B1%D8%A9-%D8%B1%D9%88%D9%86%D8%A7%D9%84%D8%AF%D9%88)
+
+
+### ترتيب دوري أبطال أوروبا (N/A, Wed, 25 Nov 2026 11:20:00 -0800)
+
+- **باريس وريال مدريد في الصدارة.. ترتيب دوري أبطال أوروبا قبل الجولة الخامسة**: [Link](https://www.yallakora.com/uefa/3049/news/574730/%D8%A8%D8%A7%D8%B1%D9%8A%D8%B3-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%81%D9%8A-%D8%A7%D9%84%D8%B5%D8%AF%D8%A7%D8%B1%D8%A9-%D8%AA%D8%B1%D8%AA%D9%8A%D8%A8-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A3%D8%A8%D8%B7%D8%A7%D9%84-%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%82%D8%A8%D9%84-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%AE%D8%A7%D9%85%D8%B3%D8%A9)
+- **ريال مدريد يضمن 29.1 مليون يورو في دوري الأبطال.. و23 مليونًا إضافية على بُعد 3 خطوات**: [Link](https://akhbarelyom.com/news/newdetails/4913703/1/%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%B6%D9%85%D9%86-291-%D9%85%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%81%D9%8A-%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7)
+- **كيف يعمل نظام مرحلة الدوري في دوري أبطال أوروبا؟**: [Link](https://www.alnaharegypt.com/1200320)
+
+
+### paris-sg – roma (N/A, Wed, 25 Nov 2026 11:10:00 -0800)
+
+- **À quelle heure et sur quelle chaîne voir PSG - AS Rome en Ligue des champions ?**: [Link](https://www.lequipe.fr/Football/Actualites/A-quelle-heure-et-sur-quelle-chaine-voir-psg-as-roma-en-ligue-des-champions/1745739)
+- **PSG - AS Roma : les compositions probables**: [Link](https://www.footmercato.net/a4329380990060046842-psg-as-roma-la-compositions-probables)
+- **Luis Enrique voit dans l'absence de Kvaratskhelia et Doué une opportunité pour l'attaque du Paris Saint-Germain**: [Link](https://www.elbotola.com/fr/article/2026-11-24-14-42-612.html)
+
+
 ### permis de conduire (N/A, Wed, 25 Nov 2026 02:00:00 -0800)
 
 - **E-Rokhsati, une nouvelle plateforme pour renouveler son permis de conduire en ligne**: [Link](https://medias24.com/2026/11/24/narsa-e-rokhssati-permis-de-conduire-1794528/)
