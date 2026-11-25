@@ -1,3 +1,73 @@
+### nicolas sarkozy (N/A, Tue, 24 Nov 2026 15:30:00 -0800)
+
+- **INFO RTL - Fausse rétractation de Takieddine : Nicolas Sarkozy de nouveau jugé pour association de malfaiteurs en 2027**: [Link](https://www.rtl.fr/actu/justice-faits-divers/info-rtl-fausse-retractation-de-takieddine-nicolas-sarkozy-de-nouveau-juge-pour-associations-de-malfaiteurs-en-2027-7900699929)
+- **Nicolas Sarkozy, Carla Bruni et Mimi Marchand renvoyés devant le tribunal dans l’affaire de la fausse rétractation de l’homme d’affaires Ziad Takieddine**: [Link](https://www.lemonde.fr/societe/article/2026/11/24/nicolas-sarkozy-carla-bruni-et-mimi-marchand-renvoyes-devant-le-tribunal-dans-l-affaire-de-la-fausse-retractation-de-l-homme-d-affaires-ziad-takieddine_6814770_3224.html)
+- **Fausse rétractation de Ziad Takieddine: Nicolas Sarkozy renvoyé en procès avec son épouse Carla Bruni**: [Link](https://www.bfmtv.com/police-justice/fausse-retractation-de-ziad-takieddine-nicolas-sarkozy-renvoye-en-proces-avec-son-epouse-carla-bruni_AN-202611240565.html)
+
+
+### houcine ammouta (N/A, Tue, 24 Nov 2026 14:50:00 -0800)
+
+- **Égypte : Houcine Ammouta limogé d’Al Ahly après la défaite face à Pyramids**: [Link](https://radiomars.ma/fr/?p=8409)
+- **Foot: après la défaite face à Pyramids, Al Ahly se sépare de Houcine Ammouta**: [Link](https://h24info.ma/sport/foot-defaite-pyramids-al-ahly-se-separe-houcine-ammouta/)
+- **Amouta : « Nous avons recruté Benjdida parce qu'il est le**: [Link](https://www.elbotola.com/fr/article/2026-11-23-22-14-28.html)
+
+
+### classement real madrid – psv eindhoven (N/A, Tue, 24 Nov 2026 14:10:00 -0800)
+
+- **Suivez Real Madrid - PSV EN DIRECT, Ligue des champions, saison 2026/2027, 5e journée**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/real-madrid-psv_mtc21878582/live-commentary.shtml)
+- **Avec un bijou de Jude Bellingham et un doublé de Kylian Mbappé, le Real Madrid fait exploser le PSV en seconde période pour poursuivre son sans-faute**: [Link](https://www.lequipe.fr/Football/Actualites/Avec-un-bijou-de-jude-bellingham-et-un-double-de-kylian-mbappe-le-real-madrid-fait-exploser-le-psv-en-seconde-periode-pour-poursuivre-son-sans-faute-en-ligue-des-champions/1745941)
+- **Real Madrid-PSV: ébouriffant et nouveau leader, le Real poursuit son carton plein**: [Link](https://rmcsport.bfmtv.com/football/ligue-des-champions/direct-real-madrid-psv-eindhoven-suivez-le-match-de-la-5e-journee-de-ligue-des-champions-avec-mbappe-en-live_LS-202611240764.html)
+
+
+### ayyoub bouaddi (N/A, Tue, 24 Nov 2026 14:10:00 -0800)
+
+- **Manchester City-Naples, le match en direct**: [Link](https://www.football.fr/ligue-des-champions/manchester-city-naples-le-match-en-direct-845520.html)
+- **Man City 2-2 Napoli: Ayyoub Bouaddi and Rayan Cherki score for hosts**: [Link](https://www.bbc.com/sport/football/live/c3j4rne5ny5et)
+- **Manchester City x C.P. Company 26-27 Fourth Kit Revealed - Debut in Champions League**: [Link](https://www.footyheadlines.com/5139029366/manchester-city-x-c-p-company-26-27-fourth-kit-revealed-debut-in-champions-league.html)
+
+
+### brahim díaz (N/A, Tue, 24 Nov 2026 14:00:00 -0800)
+
+- **Revival on the horizon: three surprises knock on Diaz's door after a difficult spell**: [Link](https://www.goal.com/en-in/news/revival-on-the-horizon-three-surprises-knock-on-diaz-s-door-after-a-difficult-spell/blt08a5781e5ac54f9b)
+- **Brahim Díaz off the market: Real Madrid draw up the billion-euro contract**: [Link](https://www.goal.com/en/news/brahim-diaz-off-the-market-real-madrid-draw-up-the-billion-euro-contract/bltd3ea0ec9e04aeb08)
+- **Real Madrid set to announce Brahim Diaz contract extension after PSV Eindhoven game**: [Link](https://africasoccer.com/real-madrid-set-to-announce-brahim-diaz-contract-extension-after-psv-eindhoven-game/)
+
+
+### flashscore (N/A, Tue, 24 Nov 2026 14:00:00 -0800)
+
+- **Galatasaray's 21-year-old magician is Aston Villa's main threat**: [Link](https://www.flashscore.com/news/soccer-super-lig-aleksey-batrakov-the-russian-magician-who-has-revolutionised-galatasaray-in-three-months/fsrxOb1f/)
+- **Shock: 'Kim Min-jae's teammate' lost consciousness in the morning and played against Real Madrid that evening... "Suspicions of concealing seizures"... Bayern Munich upper management 'furious'**: [Link](https://www.starnewskorea.com/en/sports/2026/11/24/2026112421302892400)
+- **Report reveals initial diagnosis and timeline of events for Jamal Musiala**: [Link](https://www.bavarianfootballworks.com/bayern-munich-injuries/285814/report-reveals-initial-diagnosis-and-timeline-of-events-for-jamal-musiala)
+
+
+### vinicius júnior (N/A, Tue, 24 Nov 2026 14:00:00 -0800)
+
+- **Os mentirosos de Mourinho aparecem sempre na hora da verdade**: [Link](https://observador.pt/2026/11/24/os-bons-mentirosos-de-mourinho-aparecem-sempre-na-hora-da-verdade-real-madrid-goleia-psv-e-lidera-champions-so-com-vitorias/)
+- **Onde assistir a Real Madrid x PSV: canal de TV, transmissão online, horário e momento das equipes**: [Link](https://www.goal.com/br/not%C3%ADcias/onde-assistir-a-real-madrid-x-psv-canal-de-tv-transmissao-online-horario-e-momento-das-equipes/blt9e25e840fc570609)
+- **Eis o golo de Valverde que iniciou mais uma 'remontada' do Real Madrid**: [Link](https://www.abola.pt/video/eis-o-golo-de-valverde-que-iniciou-mais-uma-remontada-do-real-madrid-2026112421480150386)
+
+
+### sofascore (N/A, Tue, 24 Nov 2026 14:00:00 -0800)
+
+- **Thiago Cigarran Joao Victor Couto Loureiro live score and H2H results**: [Link](https://www.sofascore.com/tennis/match/thiago-cigarran-joao-victor-couto-loureiro/BGncsiDwc)
+- **Enrique Carrascosa Diaz Roberto Pérez Socas live score and H2H results**: [Link](https://www.sofascore.com/tennis/match/enrique-carrascosa-diaz-roberto-perez-socas/ZFMdsTjNi)
+- **Gabriel Ghetu Michalis Sakellaridis live score and H2H results**: [Link](https://www.sofascore.com/tennis/match/gabriel-ghetu-michalis-sakellaridis/XyCbsMlRd)
+
+
+### arda güler (N/A, Tue, 24 Nov 2026 14:00:00 -0800)
+
+- **Real Madrid ikinci yarıda adeta patlama yaşadı ve Şampiyonlar Ligi'nde bir kez daha geri dönüşe imza attı.**: [Link](https://www.vietnam.vn/tr/bung-no-trong-hiep-2-real-madrid-lai-nguoc-dong-o-champions-league)
+- **Arda Güler yıldızlaştı, Real Madrid şov yaptı! İşte gecenin sonuçları**: [Link](https://beinsports.com.tr/haber/arda-guler-yildizlasti-real-madrid-sov-yapti-iste-gecenin-sonuclari)
+- **Real Madrid, Bernabeu’da PSV Eindhoven’i Ağırladı**: [Link](https://www.canligaste.com/real-madrid-bernabeu-da-psv-eindhoven-i-agirladi/956486/)
+
+
+### ولوج (N/A, Tue, 24 Nov 2026 13:50:00 -0800)
+
+- **تورك يدعو إلى تحويل التزامات الشركات التجارية في مجال حقوق الإنسان إلى إجراءات ملموسة**: [Link](https://news.un.org/ar/story/2026/11/1145752)
+- **القومي لحقوق الإنسان يستعرض تجربة مصر في تعزيز حقوق العمال والفلاحين**: [Link](https://www.masrawy.com/news/news_egypt/details/2026/11/24/3083863/%D8%A7%D9%84%D9%82%D9%88%D9%85%D9%8A-%D9%84%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D8%A5%D9%86%D8%B3%D8%A7%D9%86-%D9%8A%D8%B3%D8%AA%D8%B9%D8%B1%D8%B6-%D8%AA%D8%AC%D8%B1%D8%A8%D8%A9-%D9%85%D8%B5%D8%B1-%D9%81%D9%8A-%D8%AA%D8%B9%D8%B2%D9%8A%D8%B2-%D8%AD%D9%82%D9%88%D9%82-%D8%A7%D9%84%D8%B9%D9%85%D8%A7%D9%84-%D9%88%D8%A7%D9%84%D9%81%D9%84%D8%A7%D8%AD%D9%8A%D9%86)
+- **مفوض حقوق الإنسان يبحث في جنيف تعزيز الشراكة مع المفوضية السامية لحقوق الانسان.**: [Link](https://alwiam.info/ar/53575)
+
+
 ### galatasaray vs aston villa (N/A, Tue, 24 Nov 2026 09:20:00 -0800)
 
 - **Team news for Galatasaray encounter**: [Link](https://www.avfc.co.uk/news/2026/november/23/prematch-team-news-for-galatasaray-encounter/)
