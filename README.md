@@ -1,3 +1,73 @@
+### تسويق هرمي (N/A, Wed, 25 Nov 2026 15:10:00 -0800)
+
+- **النيابة العامة تقرر إغلاق الحدود في وجه ممثلتين بسبب "التسويق الهرمي"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%AA%D9%82%D8%B1%D8%B1-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D9%81%D9%8A-%D9%88%D8%AC-1845927.html)
+- **قضية «التسويق الهرمي» في المغرب: نساء يتحدثن عن خسارة أموالهن وفنانات وإعلاميات يخضعن للتحقيق**: [Link](https://www.alquds.co.uk/%D9%82%D8%B6%D9%8A%D8%A9-%D8%A7%D9%84%D8%AA%D8%B3%D9%88%D9%8A%D9%82-%D8%A7%D9%84%D9%87%D8%B1%D9%85%D9%8A-%D9%81%D9%8A-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%86%D8%B3%D8%A7%D8%A1-%D9%8A/)
+- **باحث في المجال الرقمي: روابط الإحالة والإعلانات الممولة تسهل تتبع شبكات التسويق المشبوهة – اليوم 24**: [Link](https://alyaoum24.com/2059404.html)
+
+
+### مصر (N/A, Wed, 25 Nov 2026 15:00:00 -0800)
+
+- **"وجعكم وجعنا".. تضامن عربي واسع مع مصر عقب فاجعة شاحنة البترول في الوراق**: [Link](https://www.aljazeera.net/news/2026/11/25/%D9%88%D8%AC%D8%B9%D9%83%D9%85-%D9%88%D8%AC%D8%B9%D9%86%D8%A7-%D8%AA%D8%B6%D8%A7%D9%85%D9%86-%D8%B9%D8%B1%D8%A8%D9%8A-%D9%88%D8%A7%D8%B3%D8%B9-%D9%85%D8%B9-%D9%85%D8%B5%D8%B1-%D8%B9%D9%82%D8%A8)
+- **مصرع 31 في حريق هائل بعد اشتعال سيارة مواد بترولية فوق نفق مروري بمصر**: [Link](https://www.bbc.com/arabic/articles/ckjrelp34nz1o)
+- **بعد انتقادات صمته.. محمد صلاح يتفاعل مع فاجعة مصرية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B9%D8%AF-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D8%AF%D8%A7%D8%AA-%D8%B5%D9%85%D8%AA%D9%87--%D9%85%D8%AD%D9%85%D8%AF-%D8%B5%D9%84%D8%A7%D8%AD-%D9%8A%D8%AA%D9%81%D8%A7%D8%B9%D9%84-%D9%85%D8%B9-%D9%81%D8%A7%D8%AC%D8%B9%D8%A9-%D9%85%D8%B5%D8%B1%D9%8A%D8%A9/blt2bafa0d6ac278785)
+
+
+### losc lille vs bayern munich standings (N/A, Wed, 25 Nov 2026 15:00:00 -0800)
+
+- **Max Eberl gives estimate for Harry Kane’s injury layoff**: [Link](https://www.bavarianfootballworks.com/bayern-munich-injuries/285608/max-eberl-gives-estimate-for-harry-kanes-injury-layoff)
+- **Bild: Kane returns to Bayern training ground for rehab after ankle surgery**: [Link](https://www.allfootballapp.com/articles/6078105-bild-kane-returns-bayern-training-ground)
+- **Harry Kane Becomes Latest Victim of ‘Ballon d’Or Curse’**: [Link](https://www.si.com/soccer/harry-kane-latest-victim-ballon-dor-curse)
+
+
+### sporting cp vs manchester united f.c. standings (N/A, Wed, 25 Nov 2026 15:00:00 -0800)
+
+- **REACTION: Steelers Release QB Aaron Rodgers Stream of National Football League**: [Link](https://www.cbssports.com/watch/nfl/video/reaction-steelers-release-qb-aaron-rodgers)
+- **Vancouver Canucks vs. Detroit Red Wings Live Updates, Score, and Play-by-play - November 25, 2026**: [Link](https://www.cbssports.com/nhl/gametracker/NHL_20261125_VAN@DET/)
+- **Montreal Canadiens vs. Colorado Avalanche - NHL Expert Picks - November 25, 2026**: [Link](https://www.cbssports.com/nhl/gametracker/expert-picks/NHL_20261125_MON@COL/)
+
+
+### classement losc – bayern munich (N/A, Wed, 25 Nov 2026 14:10:00 -0800)
+
+- **Ligue des champions : revivez le succès inattendu de Lille face au Bayern Munich et le match nul du PSG contre l’AS Roma**: [Link](https://www.lemonde.fr/sport/live/2026/11/25/en-direct-psg-as-roma-et-lille-bayern-munich-suivez-les-matchs-de-ligue-des-champions-de-football_6815159_3242.html)
+- **Lille - Bayern Munich : Revivez la victoire renversante des Dogues grâce à Ueda et un but contre-son-camp de Pavlovic !**: [Link](https://www.eurosport.fr/football/ligue-des-champions/2026-2027/lille-osc-bayern-munich_mtc21878636/live-commentary.shtml)
+- **LdC : le PSG contraint au nul, le Barca cartonne, le Bayern chute à Lille**: [Link](https://fr.hespress.com/497948-ldc-le-psg-contraint-au-nul-le-barca-cartonne-le-bayern-chute-a-lille.html)
+
+
+### achraf hakimi (N/A, Wed, 25 Nov 2026 14:10:00 -0800)
+
+- **Achraf Hakimi, 27 años, sobre su infancia: "La selección de España me llamó y fui a probar 2-3 días, no me sentí cómodo"**: [Link](https://www.bebesymas.com/infancia/achraf-hakimi-27-anos-su-infancia-seleccion-espana-me-llamo-fui-a-probar-2-3-dias-no-me-senti-comodo)
+- **CAF Awards 2026: las listas de finalistas, con Marruecos representado en todas las categorías**: [Link](https://es.le360.ma/deportes/caf-awards-2026-las-listas-de-finalistas-con-marruecos-representado-en-todas-las-categorias_WKS4FTLVORHADJCBN2LHBX7UCI/)
+- **Brahim, asistencia... para el Balón de Oro africano**: [Link](https://www.marca.com/futbol/real-madrid/2026/11/25/brahim-asistencia-balon-oro-africano.html)
+
+
+### champions league standings (N/A, Wed, 25 Nov 2026 13:50:00 -0800)
+
+- **2026-27 Champions League Glance**: [Link](https://apnews.com/article/soccer-sabah-masazir-ebf81f46b669dd6328ea3f660a2c2585)
+- **2026/27 Champions League standings: Which teams are heading for the round of 16, playoffs and elimination?**: [Link](https://en.as.com/soccer/202627-champions-league-standings-which-teams-are-heading-for-the-round-of-16-playoffs-and-elimination-f202611-n/)
+- **2026-27 Champions League Glance**: [Link](https://www.bdtonline.com/ap/sports/agate/2026-27-champions-league-glance/article_3ec735a8-944a-5990-8292-c6d0713eba6e.html)
+
+
+### roma (N/A, Wed, 25 Nov 2026 13:40:00 -0800)
+
+- **Che bella Roma a Parigi! Va avanti, subisce la rimonta e poi pareggia con Malen**: [Link](https://www.gazzetta.it/Calcio/Champions-League/25-11-2026/psg-roma-champions-risultato-gol-diretta.shtml)
+- **Trasporti & Logistica Magazine – 25 Novembre 2026**: [Link](https://www.paviaunotv.it/trasporti-logistica-magazine-25-novembre-2026/)
+- **SportMediaset: Tifosi della Roma entrano allo stadio a Parigi scortati dalla polizia Video**: [Link](https://mediasetinfinity.mediaset.it/video/sportmediaset/tifosi-della-roma-entrano-allo-stadio-a-parigi-scortati-dalla-polizia_FD00000000554788)
+
+
+### inter milan (N/A, Wed, 25 Nov 2026 13:40:00 -0800)
+
+- **Inter Milan 2-0 Stuttgart: Lautaro Martinez scores as hosts boost Champions League knockout hopes**: [Link](https://www.bbc.com/sport/football/live/ck9q848dq75xt)
+- **Licensable picture: UEFA Champions League - Inter Milan v VFB Stuttgart**: [Link](https://www.reutersconnect.com/item/uefa-champions-league-inter-milan-v-vfb-stuttgart/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX1VQMUVNQlAxTlhBTzk)
+- **Dimarco rated 8.1: 4 key passes, 1 assist in Inter 2-0 Stuttgart**: [Link](https://www.allfootballapp.com/articles/6086180-dimarco-rated-8-1-4-key)
+
+
+### bayern (N/A, Wed, 25 Nov 2026 13:30:00 -0800)
+
+- **Champions League, 5. Spieltag: Bayern verliert durch Eigentor, Mailand gewinnt gegen Stuttgart**: [Link](https://www.zeit.de/sport/2026-11/champions-league-fc-bayern-losc-lille-inter-mailand-vfb-stuttgart)
+- **Joshua Kimmich nach der Niederlage gegen Lille**: [Link](https://sport.sky.de/fussball/artikel/joshua-kimmich-nach-der-niederlage-gegen-lille/13616601/34358)
+- **Bayern-Training mit Musiala und Díaz, aber ohne Olise**: [Link](https://www.radiowuppertal.de/dpa/bayern-training-mit-musiala-und-d%C3%ADaz-aber-ohne-olise-2815330)
+
+
 ### classement sabah football club – fc barcelone (N/A, Wed, 25 Nov 2026 11:50:00 -0800)
 
 - **UEFA YOUTH LEAGUE | Sabah FK 0-7 FC Barcelona: Big win in Baku**: [Link](https://www.fcbarcelona.com/en/football/barca-academy/news/4614501/uefa-youth-league-sabah-fk-0-7-fc-barcelona-big-win-in-baku)
