@@ -1,3 +1,71 @@
+### sunderland – jagiellonia białystok (N/A, Thu, 26 Nov 2026 12:00:00 -0800)
+
+- **Bomba! Kluby z Premier League chcą bohatera reprezentacji Polski. Padła data**: [Link](https://www.sport.pl/pilka/7,65042,33152086,bomba-kluby-z-premier-league-chca-bohatera-reprezentacji-polski.html)
+- **Kolejorz walczy w Belgii! Royale Union SG – Lech [RELACJA NA ŻYWO]**: [Link](https://pilkanozna.pl/kolejorz-walczy-w-belgii-union-lech-relacja-na-zywo/)
+- **Efektowny pokaz przed meczem Sunderland - Jagiellonia. Światełka jak w Szczecinie**: [Link](https://gol24.pl/efektowny-pokaz-przed-meczem-sunderland-jagiellonia-swiatelka-jak-w-szczecinie/ar/c2-19152133)
+
+
+### ajax (N/A, Thu, 26 Nov 2026 12:00:00 -0800)
+
+- **Dilemma bij Ajax: Míchel wil spelers niet opbranden voor Klassieker, maar moet ook Europese zeperd voorkomen**: [Link](https://www.ad.nl/voetbal/dilemma-bij-ajax-michel-wil-spelers-niet-opbranden-voor-klassieker-maar-moet-ook-europese-zeperd-voorkomen~a6ef5539/)
+- **AZ met Kovács en Bouziane tegen Sparta Praag • FC Twente ongewijzigd bij Freiburg**: [Link](https://nos.nl/liveblog/2641134-az-met-kovacs-en-bouziane-tegen-sparta-praag-fc-twente-ongewijzigd-bij-freiburg)
+- **Europees voetbal | Ajax leidt tegen Thun, later NEC, Twente en AZ**: [Link](https://www.nu.nl/voetbal/6417906/europees-voetbal-ajax-leidt-tegen-thun-later-nec-twente-en-az.html)
+
+
+### viktoria plzen – benfica (N/A, Thu, 26 Nov 2026 11:10:00 -0800)
+
+- **Viktoria Plzeň vs Benfica: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cm62pzvlxrqnt)
+- **Plzen vs Benfica - Prediction, where to watch, kick-off time and line-ups 26-11-2026**: [Link](https://onefootball.com/en/betting/predictions/plzen-vs-benfica-26-11-2026)
+- **Benfica Targets Europa League Final as Lenglet Backs Marco Silva**: [Link](https://demokratis.co.id/en/benfica-lenglet-europa-league-final)
+
+
+### europa league (N/A, Thu, 26 Nov 2026 09:30:00 -0800)
+
+- **Olympiakos vs AC Milan: UEFA Europa League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c6pw4zkrpnz8t)
+- **Gallery: ‘No room for failure’, ‘Amorim facing a crisis’ – Today’s front pages in Italy**: [Link](https://sempremilan.com/front-pages-italy-26-november-olympiacos-milan)
+- **Olympiacos vs AC Milan Confirmed Lineups**: [Link](https://www.whoscored.com/news/uyFojWE6w0iSzDzP46RW_w/show/cng112-20261126-olympiacos-vs-ac-milan-confirmed-lineup-1795711347)
+
+
+### brighton – cs u craiova (N/A, Thu, 26 Nov 2026 09:20:00 -0800)
+
+- **Brighton 4-0 Universitatea Craiova: Seagulls claim dominant Conference League win**: [Link](https://www.bbc.com/sport/football/live/c6y80ej72k2gt)
+- **Brighton 4-0 CSU Craiova (Nov 26, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401915814)
+- **Brighton & Hove Albion x Universitatea Craiova - Highlights, Summary and Match Report**: [Link](https://sports.yahoo.com/soccer/articles/brighton-hove-albion-x-universitatea-175700622.html)
+
+
+### marseille – levski sofia (N/A, Thu, 26 Nov 2026 09:10:00 -0800)
+
+- **Ligue Europa: précieux succès pour l’OM du capitaine Nayef Aguerd**: [Link](https://sport.le360.ma/football/europa-league/ligue-europa-precieux-succes-pour-lom-du-capitaine-nayef-aguerd_74TVDTTCOJHZPBEMLZXB4HYEJU/)
+- **Bagarres, supporters déplacés : ambiance plus que tendue dans les tribunes du Vélodrome**: [Link](https://rmcsport.bfmtv.com/football/video-bagarre-supporters-deplaces-ambiance-plus-que-tendue-dans-les-tribunes-du-velodrome_VN-202611260893.html)
+- **OM – Levski Sofia : avant-match à 18h15 et débrief à 20h30 sur FCM**: [Link](https://www.footballclubdemarseille.fr/om-actualites/om-levski-sofia-avant-match-18h15-debrief-20h30-live-fcm-26-novembre-2026.html)
+
+
+### moulay hafid elalamy (N/A, Thu, 26 Nov 2026 08:40:00 -0800)
+
+- **Moulay Mhamed Elalamy prend la tête de Saham Bank à la place d‘Ahmed El Yacoubi**: [Link](https://medias24.com/2026/11/26/mhamed-elalamy-president-saham-bank-1795319/)
+- **Saham Bank: Moulay Mhamed Elalamy prend la tête du directoire**: [Link](https://h24info.ma/economie/entreprises/saham-bank-moulay-mhamed-elalamy-prend-la-tete-du-directoire/)
+- **Saham Bank : Moulay Mhamed Elalamy succède à Ahmed El Yacoubi à la tête du directoire**: [Link](https://www.leconomiste.com/flash-infos/saham-bank-moulay-mhamed-elalamy-succede-a-ahmed-el-yacoubi-a-la-tete-du-directoire/)
+
+
+### abdellatif ouahbi (N/A, Thu, 26 Nov 2026 08:40:00 -0800)
+
+
+
+
+### morocco u17 (N/A, Thu, 26 Nov 2026 08:30:00 -0800)
+
+- **U17-WM: Spanien schlägt Marokko und kommt als Gruppensieger weiter**: [Link](https://www.aol.de/articles/u17-wm-spanien-schl%C3%A4gt-marokko-173300000.html)
+- **Die vietnamesische U17-Mannschaft trug dazu bei, einen Torrekord bei der U17-Weltmeisterschaft aufzustellen.**: [Link](https://www.vietnam.vn/de/u17-viet-nam-gop-suc-giup-giai-u17-the-gioi-thiet-lap-ky-luc-ban-thang)
+- **Spanien U17 fordert Marokko am 26. November bei der WM**: [Link](https://suaragarut.id/de/spanien-marokko-u17-wm-2026)
+
+
+### casablanca (N/A, Thu, 26 Nov 2026 08:00:00 -0800)
+
+- **Casablanca : 16 hectares d’habitat ancien à Derb Ghallef voués à la rénovation**: [Link](https://ledesk.ma/datadesk/casablanca-16-hectares-dhabitat-ancien-a-derb-ghallef-voues-a-la-renovation/)
+- **Le Salon Émergence propose quinze rendez-vous gratuits autour de l'art**: [Link](https://medias24.com/2026/11/26/le-salon-emergence-propose-quinze-rendez-vous-gratuits-autour-de-lart-1795487/)
+- **Casablanca : le Salon Émergence 2026 propose quinze rendez-vous de formation gratuits**: [Link](https://fr.hespress.com/497988-casablanca-le-salon-emergence-2026-propose-quinze-rendez-vous-de-formation-gratuits.html)
+
+
 ### laprophan bourse (N/A, Thu, 26 Nov 2026 02:40:00 -0800)
 
 - **Laprophan : 12 % de perte à la première séance, sauf pour ses salariés**: [Link](https://ledesk.ma/2026/11/25/laprophan-12-de-perte-a-la-premiere-seance-sauf-pour-ses-salaries/)
