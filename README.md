@@ -1,3 +1,73 @@
+### laprophan bourse (N/A, Thu, 26 Nov 2026 02:40:00 -0800)
+
+- **Laprophan : 12 % de perte à la première séance, sauf pour ses salariés**: [Link](https://ledesk.ma/2026/11/25/laprophan-12-de-perte-a-la-premiere-seance-sauf-pour-ses-salaries/)
+- **L'action Laprophan chute de 12% pour sa première séance de cotation**: [Link](https://medias24.com/2026/11/25/laction-laprophan-chute-de-12-pour-sa-premiere-seance-de-cotation-1794991/)
+- **Des débuts boursiers à contre-courant du succès de l’IPO**: [Link](https://www.leconomiste.com/des-debuts-boursiers-a-contre-courant-du-succes-de-l-ipo/)
+
+
+### test (N/A, Thu, 26 Nov 2026 01:40:00 -0800)
+
+- **Europe’s Hera Mission Releases Close-Up Images of the Asteroid Hit by a NASA Spacecraft**: [Link](https://www.nytimes.com/2026/11/25/science/hera-nasa-photos-dart-asteroid.html)
+- **ESA mission reveals stadium-size crater left by first planetary defense test**: [Link](https://www.cnn.com/2026/11/25/science/hera-mission-dimorphos-asteroid-arrival-images)
+- **European spacecraft finds chaotic scene after asteroid deflection experiment**: [Link](https://arstechnica.com/space/2026/11/europes-hera-mission-returns-to-the-chaotic-scene-of-a-cosmic-smashup/)
+
+
+### incendie egypte (N/A, Thu, 26 Nov 2026 01:10:00 -0800)
+
+- **Un vaste incendie fait au moins 31 morts au Caire, un conducteur interpellé**: [Link](https://www.liberation.fr/international/afrique/au-moins-30-morts-dans-un-quartier-densement-peuple-du-caire-ravage-par-un-incendie-20261125_BIUTUS5IPJGKDCP7EFIWZVRBZQ/)
+- **Égypte: au moins 31 morts dans un incendie sur une autoroute au Caire**: [Link](https://afrique.le360.ma/societe/egypte-au-moins-31-morts-dans-un-incendie-sur-une-autoroute-au-caire_M4NNA43MFJATXJU35FOHTQRTL4/)
+- **L'Arabie Saoudite présente ses condoléances à l'Égypte à la suite de l'accident sur la route périphérique à Gizeh**: [Link](https://www.spa.gov.sa/fr/N2736728)
+
+
+### رئيس وزراء إسبانيا (N/A, Wed, 25 Nov 2026 23:50:00 -0800)
+
+- **أيها العرب.. هذا ما يعنيه سقوط رئيس وزراء إسبانيا**: [Link](https://www.aljazeera.net/opinions/2026/11/26/%D8%A3%D9%8A%D9%87%D8%A7-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8-%D9%87%D8%B0%D8%A7-%D9%85%D8%A7-%D9%8A%D8%B9%D9%86%D9%8A%D9%87-%D8%B3%D9%82%D9%88%D8%B7-%D8%B1%D8%A6%D9%8A%D8%B3)
+- **لجنة مسلمي إسبانيا تنادي بالتصويت**: [Link](https://www.hespress.com/%D9%84%D8%AC%D9%86%D8%A9-%D9%85%D8%B3%D9%84%D9%85%D9%8A-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-%D8%AA%D9%86%D8%A7%D8%AF%D9%8A-%D8%A8%D8%A7%D9%84%D8%AA%D8%B5%D9%88%D9%8A%D8%AA-1845181.html)
+- **قبل أيام من الانتخابات الإسبانية.. استطلاع يمنح سانشيز الصدارة بفارق 10 نقاط عن منافسه المحافظ – اليوم 24**: [Link](https://alyaoum24.com/2059899.html)
+
+
+### équipe du maroc de football des moins de 17 ans (N/A, Wed, 25 Nov 2026 23:40:00 -0800)
+
+- **Coupe du Monde FIFA U17 (Maroc-Espagne): les lionceaux de l'Atlas affûtent leur préparation**: [Link](https://frmf.ma/fr/articles/coupe-du-monde-fifa-u17-maroc-espagne-les-lionceaux-de-latlas-affutent-leur-preparation)
+- **Mondial U17: Maroc-Espagne, à quelle heure et sur quelles chaînes?**: [Link](https://sport.le360.ma/football/mondial-u17-maroc-espagne-a-quelle-heure-et-sur-quelles-chaines_WLQ344LJWVB6TH6HMYXPGRO4FY/)
+- **L'arbitre canadien Michael Finn dirigera le match Maroc-Espagne en Coupe du Monde U17**: [Link](https://www.elbotola.com/fr/article/2026-11-25-17-50-604.html)
+
+
+### نادي الرجاء الرياضي (N/A, Wed, 25 Nov 2026 23:20:00 -0800)
+
+- **محمد فاخر يقسم الرجاويين.. عودة محتملة تشعل الجدل داخل القلعة الخضراء**: [Link](https://radiomars.ma/%D9%85%D8%AD%D9%85%D8%AF-%D9%81%D8%A7%D8%AE%D8%B1-%D9%8A%D9%82%D8%B3%D9%85-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D9%88%D9%8A%D9%8A%D9%86-%D8%B9%D9%88%D8%AF%D8%A9-%D9%85%D8%AD%D8%AA%D9%85%D9%84%D8%A9-%D8%AA/)
+- **إنقسام داخل الرجاء حول تعيين امحمد فاخر مديراً رياضياً.. وملف 700 مليون سنتيم يشعل الجدل**: [Link](https://www.almountakhab.com/node/16233271)
+- **محمد فاحر يحدث انقساما في الرجاء**: [Link](https://ar.sport.le360.ma/football/D66CKZEKIRE4ZGFR37NCBPINK4/)
+
+
+### الاتحاد الأوروبي (N/A, Wed, 25 Nov 2026 22:30:00 -0800)
+
+- **ألمانيا وإيطاليا تتحملان الحصة الأكبر من ضرائب الاتحاد الأوروبي الجديدة**: [Link](https://arabic.euronews.com/2026/11/26/who-pays-the-new-eu-taxes-a-breakdown-of-who-will-foot-the-bill)
+- **ماكرون يتمسك بالدعم الزراعي ويضع شرطه للموافقة على ميزانية الاتحاد الأوروبي**: [Link](https://www.france24.com/ar/%D9%81%D9%8A%D8%AF%D9%8A%D9%88/20261126-%D9%85%D8%A7%D9%83%D8%B1%D9%88%D9%86-%D9%8A%D8%AA%D9%85%D8%B3%D9%83-%D8%A8%D8%A7%D9%84%D8%AF%D8%B9%D9%85-%D8%A7%D9%84%D8%B2%D8%B1%D8%A7%D8%B9%D9%8A-%D9%88%D9%8A%D8%B6%D8%B9-%D8%B4%D8%B1%D8%B7%D9%87-%D9%84%D9%84%D9%85%D9%88%D8%A7%D9%81%D9%82%D8%A9-%D8%B9%D9%84%D9%89-%D9%85%D9%8A%D8%B2%D8%A7%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A)
+- **قادة الاتحاد الأوروبي أمام معركة ميزانية بـ1.58 تريليون يورو وتمويل أوكرانيا**: [Link](https://cnnbusinessarabic.com/sectors/1153440/%D9%82%D8%A7%D8%AF%D8%A9-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%A3%D9%88%D8%B1%D9%88%D8%A8%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%85%D8%B9%D8%B1%D9%83%D8%A9-%D9%85%D9%8A%D8%B2%D8%A7%D9%86%D9%8A%D8%A9-%D8%A8158-%D8%AA%D8%B1%D9%8A%D9%84%D9%8A%D9%88%D9%86-%D9%8A%D9%88%D8%B1%D9%88-%D9%88%D8%AA%D9%85%D9%88%D9%8A%D9%84-%D8%A3%D9%88%D9%83%D8%B1%D8%A7%D9%86%D9%8A%D8%A7)
+
+
+### كأس العالم لكرة القدم تحت 17 سنة (N/A, Wed, 25 Nov 2026 22:20:00 -0800)
+
+- **كأس العالم لأقل من 17 سنة (المغرب – إسبانيا): أشبال الأطلس ينهون استعداداتهم للمواجهة**: [Link](https://frmf.ma/articles/coupe-du-monde-fifa-u17-maroc-espagne-les-lionceaux-de-latlas-affutent-leur-preparation)
+- **"الأشبال" ينهون التحضير للقاء إسبانيا**: [Link](https://www.hespress.com/%D8%A7%D9%84%D8%A3%D8%B4%D8%A8%D8%A7%D9%84-%D9%8A%D9%86%D9%87%D9%88%D9%86-%D8%A7%D9%84%D8%AA%D8%AD%D8%B6%D9%8A%D8%B1-%D9%84%D9%84%D9%82%D8%A7%D8%A1-%D8%A5%D8%B3%D8%A8%D8%A7%D9%86%D9%8A%D8%A7-1846016.html)
+- **الفتيان على المحك في المونديال**: [Link](https://assabah.ma/965398.html)
+
+
+### خبر (N/A, Wed, 25 Nov 2026 22:20:00 -0800)
+
+- **مجد الجرادي طفل يمني حُرم من تكريم المتفوقين أمام زملائه فحظي بتضامن واسع**: [Link](https://www.aljazeera.net/news/2026/11/26/%D9%85%D8%AC%D8%AF-%D8%A7%D9%84%D8%AC%D8%B1%D8%A7%D8%AF%D9%8A-%D8%B7%D9%81%D9%84-%D8%AD%D8%B1%D9%85-%D9%85%D9%86-%D8%AA%D9%83%D8%B1%D9%8A%D9%85)
+- **موجة تعاطف واسعة مع طفل حُرم من التكريم أمام زملائه في إحدى المدارس الأهلية بصنعاء**: [Link](https://almahriah.net/new-media/video/widespread-sympathy-for-a-child-denied-an-award-in-front-of-his-classmates-at-a-private-school-in-sana-a)
+- **مجد الجرادي طفل يمني حُرم من تكريم المتفوقين أمام زملائه فحظي بتضامن واسع**: [Link](https://a5r5br.net/article/8561629)
+
+
+### ياسر زبيري (N/A, Wed, 25 Nov 2026 22:20:00 -0800)
+
+- **زابيري يواصل المسار مع "سانتاندير"**: [Link](https://www.hespress.com/%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D9%88%D8%A7%D8%B5%D9%84-%D8%A7%D9%84%D9%85%D8%B3%D8%A7%D8%B1-%D9%85%D8%B9-%D8%B3%D8%A7%D9%86%D8%AA%D8%A7%D9%86%D8%AF%D9%8A%D8%B1-1845936.html)
+- **برشلونة يراقبه عن كثب.. معضلة تهدد انتقال ياسر زبيري إلى كبار أوروبا في يناير**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8%D9%87-%D8%B9%D9%86-%D9%83%D8%AB%D8%A8--%D9%85%D8%B9%D8%B6%D9%84%D8%A9-%D8%AA%D9%87%D8%AF%D8%AF-%D8%A7%D9%86%D8%AA%D9%82%D8%A7%D9%84-%D9%8A%D8%A7%D8%B3%D8%B1-%D8%B2%D8%A8%D9%8A%D8%B1%D9%8A-%D8%A7%D9%95%D9%84%D9%89-%D9%83%D8%A8%D8%A7%D8%B1-%D8%A7%D9%94%D9%88%D8%B1%D9%88%D8%A8%D8%A7-%D9%81%D9%8A-%D9%8A%D9%86%D8%A7%D9%8A%D8%B1/bltf12443765b2da8c7)
+- **الزابيري ينافس يامال وبيلينغهام على جائزة لاعب الشهر في "الليغا"**: [Link](https://radiomars.ma/%D8%A7%D9%84%D8%B2%D8%A7%D8%A8%D9%8A%D8%B1%D9%8A-%D9%8A%D9%86%D8%A7%D9%81%D8%B3-%D9%8A%D8%A7%D9%85%D8%A7%D9%84-%D9%88%D8%A8%D9%8A%D9%84%D9%8A%D9%86%D8%BA%D9%87%D8%A7%D9%85-%D8%B9%D9%84%D9%89-%D8%AC/)
+
+
 ### تسويق هرمي (N/A, Wed, 25 Nov 2026 15:10:00 -0800)
 
 - **النيابة العامة تقرر إغلاق الحدود في وجه ممثلتين بسبب "التسويق الهرمي"**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%86%D9%8A%D8%A7%D8%A8%D8%A9-%D8%A7%D9%84%D8%B9%D8%A7%D9%85%D8%A9-%D8%AA%D9%82%D8%B1%D8%B1-%D8%A5%D8%BA%D9%84%D8%A7%D9%82-%D8%A7%D9%84%D8%AD%D8%AF%D9%88%D8%AF-%D9%81%D9%8A-%D9%88%D8%AC-1845927.html)
