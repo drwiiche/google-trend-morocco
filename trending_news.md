@@ -1,3 +1,45 @@
+### classement crystal palace – real sociedad (N/A, Thu, 26 Nov 2026 14:40:00 -0800)
+
+- **C Palace 2-1 Real Sociedad (Nov 26, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401915504)
+- **Crystal Palace 2-1 Real Sociedad: What Thomas Frank said**: [Link](https://www.bbc.com/sport/football/articles/c3wy01q42vdeo?xtor=AL-72-%5Bpartner%5D-%5Byahoo.north.america%5D-%5Bheadline%5D-%5Bsport%5D-%5Bbizdev%5D-%5Bisapi%5D)
+- **Crystal Palace 2-1 Real Sociedad, Sunderland 1-1 Jagiellonia Bialystok, and more: Europa League – as it happened**: [Link](https://www.theguardian.com/football/live/2026/nov/26/sunderland-v-jagiellonia-bialystok-crystal-palace-v-real-sociedad-and-more-europa-league-live)
+
+
+### classement ajax amsterdam – fc thoune (N/A, Thu, 26 Nov 2026 13:00:00 -0800)
+
+- **Ajax vs Thun: UEFA Conference League stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/c9kgmxl0p6let)
+- **Ajax 4-0 FC Thun: Bounida Leads Conference League Win**: [Link](https://www.football.com/gh/news/158608)
+- **Marcos Leonardo To Start: Ajax Predicted XI vs FC Thun**: [Link](https://sports.yahoo.com/soccer/articles/marcos-leonardo-start-ajax-predicted-103113473.html)
+
+
+### jacqueline pozzi (N/A, Thu, 26 Nov 2026 12:40:00 -0800)
+
+- **Elle a cessé de présenter le JT dès que son mari a visé l'Élysée : qui Jacqueline Pozzi, épouse de David Lisnard**: [Link](https://www.letribunaldunet.fr/politique/jacqueline-pozzi-epouse-david-lisnard-journaliste.html)
+- **Présidentielle 2027 : qui est Jacqueline Pozzi, épouse de David Lisnard et journaliste à France Télévisions**: [Link](https://www.ladepeche.fr/2026/11/25/presidentielle-2027-qui-est-jacqueline-pozzi-epouse-de-david-lisnard-et-journaliste-a-france-televisions-13670727.php)
+- **La mise au point de France Télévisions sur les fonctions de la journaliste Jacqueline Pozzi, épouse de David Lisnard**: [Link](https://tvmag.lefigaro.fr/programme-tv/actu-tele/la-mise-au-point-de-france-televisions-sur-les-fonctions-de-la-journaliste-jacqueline-pozzi-epouse-de-david-lisnard-20261126)
+
+
+### moulay mhamed elalamy (N/A, Thu, 26 Nov 2026 11:40:00 -0800)
+
+- **Moulay Mhamed Elalamy prend la tête de Saham Bank à la place d‘Ahmed El Yacoubi**: [Link](https://medias24.com/2026/11/26/mhamed-elalamy-president-saham-bank-1795319/)
+- **Saham Bank : Moulay Mhamed Elalamy succède à Ahmed El Yacoubi à la tête du directoire**: [Link](https://www.leconomiste.com/flash-infos/saham-bank-moulay-mhamed-elalamy-succede-a-ahmed-el-yacoubi-a-la-tete-du-directoire/)
+- **Deux ans après le rachat de Société générale, Moulay Hafid Elalamy finalise la réorganisation de Saham Bank**: [Link](https://www.jeuneafrique.com/1865749/economie-entreprises/reorganisation-chez-saham-moulay-mhamed-elalamy-a-la-banque-moulay-hafid-elalamy-au-groupe/)
+
+
+### الدعم الاجتماعي المباشر (N/A, Thu, 26 Nov 2026 11:10:00 -0800)
+
+- **لقجع يؤكد شروع الحكومة في مراجعة مؤشر الاستفادة من "الدعم المباشر"**: [Link](https://www.hespress.com/%D9%84%D9%82%D8%AC%D8%B9-%D9%8A%D8%A4%D9%83%D8%AF-%D8%B4%D8%B1%D9%88%D8%B9-%D8%A7%D9%84%D8%AD%D9%83%D9%88%D9%85%D8%A9-%D9%81%D9%8A-%D9%85%D8%B1%D8%A7%D8%AC%D8%B9%D8%A9-%D9%85%D8%A4%D8%B4%D8%B1-%D8%A7-1844455.html)
+- **“أكل هؤلاء الفقراء سيستقبلون ضيوف مونديال 2030؟”.. يحيى اليحياوي يضع أرقام الدعم الاجتماعي في مواجهة الخطاب التنموي**: [Link](https://www.hibazoom.com/article-219238/)
+- **مرضى السرطان ضحايا “المؤشر طالع”؟.. برلمانية من فاس تطالب الحكومة بالتدخل العاجل – "الديار".. جهة فاس – مكناس تحت المجهر**: [Link](https://www.adyare.ma/33480.html)
+
+
+### ligue europa (N/A, Thu, 26 Nov 2026 11:00:00 -0800)
+
+- **OM-Levski Sofia: une victoire poussive mais précieuse pour Marseille, qui se relance pour la qualification**: [Link](https://rmcsport.bfmtv.com/football/europa-league/direct-om-levski-sofia-suivez-le-match-de-la-cinquieme-journee-de-ligue-europa-au-velodrome-en-live_LS-202611260432.html)
+- **Daniel Borimirov, directeur exécutif du Levski Sofia après la défaite face à l'OM au Vélodrome : « J'espère que plus aucun match ne sera disputé dans ce stade »**: [Link](https://www.lequipe.fr/Football/Actualites/Daniel-borimirov-directeur-executif-du-levski-sofia-apres-la-defaite-face-a-l-om-au-velodrome-j-espere-que-plus-aucun-match-ne-sera-dispute-dans-ce-stade/1746503)
+- **Ligue Europa : l’OM enchaîne face au Levski Sofia, l’AC Milan renverse l’Olympiakos, énorme déroute pour Benfica**: [Link](https://www.footmercato.net/a8871290003907524978-ligue-europa-lom-enchaine-face-au-levski-sofia-lac-milan-renverse-lolympiakos-enorme-deroute-pour-benfica)
+
+
 ### sunderland – jagiellonia białystok (N/A, Thu, 26 Nov 2026 12:00:00 -0800)
 
 - **Bomba! Kluby z Premier League chcą bohatera reprezentacji Polski. Padła data**: [Link](https://www.sport.pl/pilka/7,65042,33152086,bomba-kluby-z-premier-league-chca-bohatera-reprezentacji-polski.html)
