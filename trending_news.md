@@ -1,3 +1,72 @@
+### brest – paris fc (N/A, Fri, 27 Nov 2026 12:20:00 -0800)
+
+- **Stade Brestois 29 - Paris FC : Pronostic : Une occasion de viser la première place.**: [Link](https://www.vietnam.vn/fr/nhan-dinh-stade-brestois-29-vs-paris-fc-co-hoi-bam-duoi-ngoi-dau)
+- **Ligue 1. « La vie est belle en ce moment à Brest ! » : Après la mort d’Eric Roy, comment Julien Lachuer a permis au club de rebondir**: [Link](https://quimper.maville.com/sport/detail_-ligue-1-la-vie-est-belle-en-ce-moment-a-brest-apres-la-mort-d-eric-roy-comment-julien-lachuer-a-permis-au-club-de-rebondir_-7588156_actu.Htm)
+- **Stade Brestois. 45 minutes, leadership, défaite contre Toulouse : on a assisté à la reprise de Brendan Chardonnet avec les Espoirs**: [Link](https://www.ouest-france.fr/sport/football/stade-brestois/stade-brestois-45-minutes-leadership-defaite-contre-toulouse-on-a-assiste-a-la-reprise-de-brendan-chardonnet-avec-les-espoirs-383b1614-ea6b-11f1-9369-66ef1b7e4135)
+
+
+### levante vs racing santander (N/A, Fri, 27 Nov 2026 12:10:00 -0800)
+
+- **Levante - Racing en directo: LaLiga EA Sports hoy en vivo**: [Link](https://as.com/futbol/primera/levante-racing-en-directo-laliga-ea-sports-hoy-en-vivo-f202611-d/)
+- **Levante - Racing Santander en directo | Última hora de LALIGA EA Sports en vivo hoy**: [Link](https://www.marca.com/futbol/laliga-ea-sports/levante-racing-santander/2026/11/27/01_0101_20261127_855_189-directo.html)
+- **Demasiada rabia como para caer en la frustración**: [Link](https://www.superdeporte.es/levante-ud/2026/11/27/rabia-caer-frustracion-136886094.html)
+
+
+### كأس العالم لقصار القامة (N/A, Fri, 27 Nov 2026 11:50:00 -0800)
+
+- **"قصار المغرب" يهزمون المكسيك**: [Link](https://www.hespress.com/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%87%D8%B2%D9%85-%D8%A7%D9%84%D9%85%D9%83%D8%B3%D9%8A%D9%83-1846587.html)
+- **أسود الاطلس في مواجهة بوليفيا بطموح بلوغ نهائي مونديال قصار القامة**: [Link](https://radiomars.ma/%D8%A3%D8%B3%D9%88%D8%AF-%D8%A7%D9%84%D8%A7%D8%B7%D9%84%D8%B3-%D9%81%D9%8A-%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A8%D9%88%D9%84%D9%8A%D9%81%D9%8A%D8%A7-%D8%A8%D8%B7%D9%85%D9%88%D8%AD-%D8%A8%D9%84/)
+- **كأس العالم لكرة القدم لقصار القامة (المغرب 2026).. المنتخب المغربي يواجه نظيره المكسيكي في ربع النهائي**: [Link](https://niya.maroc.ma/%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%85-%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D9%82%D8%AF%D9%85-%D9%84%D9%82%D8%B5%D8%A7%D8%B1-%D8%A7%D9%84%D9%82%D8%A7%D9%85%D8%A9-%D8%A7%D9%84%D9%85-3/)
+
+
+### الاتحاد الإفريقي لكرة القدم (N/A, Fri, 27 Nov 2026 11:30:00 -0800)
+
+- **رسميا.. الكاف يعلن قرارا جديدا بشأن تقنية الفيديو في بطولات الأندية**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B1%D8%B3%D9%85%D9%8A%D8%A7--%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D8%B9%D9%84%D9%86-%D9%82%D8%B1%D8%A7%D8%B1%D8%A7-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A7-%D8%A8%D8%B4%D8%A7%D9%94%D9%86-%D8%AA%D9%82%D9%86%D9%8A%D8%A9-%D8%A7%D9%84%D9%81%D9%8A%D8%AF%D9%8A%D9%88-%D9%81%D9%8A-%D8%A8%D8%B7%D9%88%D9%84%D8%A7%D8%AA-%D8%A7%D9%84%D8%A7%D9%94%D9%86%D8%AF%D9%8A%D8%A9/blta8429ceed0f8ce78)
+- **"الفار" يدخل تاريخ كأس الكونفدرالية لدور المجموعات من بوابة زنجبار**: [Link](https://radiomars.ma/%D8%A7%D9%84%D9%81%D8%A7%D8%B1-%D9%8A%D8%AF%D8%AE%D9%84-%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE-%D9%83%D8%A3%D8%B3-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9-%D9%84%D8%AF/)
+- **قدم.. الكاف يقرر تطبيق "الفار" بمباريات مجموعات بطولتي الأندية الإفريقية**: [Link](https://www.aa.com.tr/ar/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D9%82%D8%AF%D9%85-%D8%A7%D9%84%D9%83%D8%A7%D9%81-%D9%8A%D9%82%D8%B1%D8%B1-%D8%AA%D8%B7%D8%A8%D9%8A%D9%82-%D8%A7%D9%84%D9%81%D8%A7%D8%B1-%D8%A8%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A8%D8%B7%D9%88%D9%84%D8%AA%D9%8A-%D8%A7%D9%84%D8%A3%D9%86%D8%AF%D9%8A%D8%A9-%D8%A7%D9%84%D8%A5%D9%81%D8%B1%D9%8A%D9%82%D9%8A%D8%A9/4140860)
+
+
+### ليفانتي ضد رسينغ (N/A, Fri, 27 Nov 2026 11:30:00 -0800)
+
+- **توقعات مباراة ليفانتي ضد راسينغ سانتاندير: هل سيواصل الضيوف سلسلة انتصاراتهم؟**: [Link](https://www.vietnam.vn/ar/nhan-dinh-levante-vs-racing-santander-khach-tiep-tuc-bay-cao)
+- **مشاهدة مباراة ليفانتي وراسينغ في الدوري الإسباني.. بث مباشر**: [Link](https://www.sadaelomma.com/2026/11/blog-post_51.html)
+
+
+### نوتينغهام فورست ضد تشيلسي (N/A, Fri, 27 Nov 2026 11:30:00 -0800)
+
+- **بطولة إنكلترا: ألونسو يطالب تشلسي برد فعل قوي أمام فوريست**: [Link](https://www.mc-doualiya.com/%D8%A7%D9%84%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D9%85%D8%B1%D8%A9/20261126-%D8%A8%D8%B7%D9%88%D9%84%D8%A9-%D8%A5%D9%86%D9%83%D9%84%D8%AA%D8%B1%D8%A7-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D8%B7%D8%A7%D9%84%D8%A8-%D8%AA%D8%B4%D9%84%D8%B3%D9%8A-%D8%A8%D8%B1%D8%AF-%D9%81%D8%B9%D9%84-%D9%82%D9%88%D9%8A-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%88%D8%B1%D9%8A%D8%B3%D8%AA)
+- **مباشر مباراة تشيلسي ضد نوتنجهام فورست في الجولة 12 من الدوري الإنجليزي 2026/ 2027**: [Link](https://twaslnews1.twaslnews.com/8407101/)
+- **تشابي ألونسو يكشف موقف الثلاثي المصاب أمام فورست**: [Link](https://www.filgoal.com/articles/542629/%D8%AA%D8%B4%D8%A7%D8%A8%D9%8A-%D8%A3%D9%84%D9%88%D9%86%D8%B3%D9%88-%D9%8A%D9%83%D8%B4%D9%81-%D9%85%D9%88%D9%82%D9%81-%D8%A7%D9%84%D8%AB%D9%84%D8%A7%D8%AB%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%A7%D8%A8-%D8%A3%D9%85%D8%A7%D9%85-%D9%81%D9%88%D8%B1%D8%B3%D8%AA)
+
+
+### الفنانة سوسن بدر (N/A, Fri, 27 Nov 2026 11:30:00 -0800)
+
+- **تغير ملامح سوسن بدر يفاجئ جمهورها.. والسر عملية تجميل**: [Link](https://www.alarabiya.net/culture-and-art/2026/11/25/%D8%B3%D9%88%D8%B3%D9%86-%D8%A8%D8%AF%D8%B1-%D8%AA%D9%83%D8%B4%D9%81-%D8%B3%D8%B1-%D8%AA%D8%BA%D9%8A%D8%B1-%D9%85%D9%84%D8%A7%D9%85%D8%AD%D9%87%D8%A7-%D8%AE%D8%B6%D8%B9%D8%AA-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A9-%D8%B4%D8%AF-%D8%A7%D9%84%D9%88%D8%AC%D9%87-%D9%88%D8%A7%D9%84%D8%B1%D9%82%D8%A8%D8%A9-%D9%88%D8%AA%D8%B1%D9%88%D9%8A-%D8%AA%D9%81%D8%A7%D8%B5%D9%8A%D9%84-%D8%A7%D9%84%D9%82%D8%B1%D8%A7%D8%B1)
+- **من وردة الجزائرية إلى سوسن بدر.. نجوم خضعوا لعمليات التجميل وكشفوا تفاصيل تجاربهم مع تغيير الملامح (تقرير)**: [Link](https://www.almasryalyoum.com/news/details/4419999)
+- **سوسن بدر تخضع لعمليات تجميلية تشمل شد الوجه والرقبة ورفع الحاجبين.. ماذا كشفت عن تجربتها؟**: [Link](https://www.hiamag.com/%D8%AC%D9%85%D8%A7%D9%84/%D9%85%D8%B4%D8%A7%D9%87%D9%8A%D8%B1-%D9%88%D8%AC%D9%85%D8%A7%D9%84/1808564-%D8%B3%D9%88%D8%B3%D9%86-%D8%A8%D8%AF%D8%B1-%D8%AA%D8%AE%D8%B6%D8%B9-%D9%84%D8%B9%D9%85%D9%84%D9%8A%D8%A7%D8%AA-%D8%AA%D8%AC%D9%85%D9%8A%D9%84%D9%8A%D8%A9-%D8%AA%D8%B4%D9%85%D9%84-%D8%B4%D8%AF-%D8%A7%D9%84%D9%88%D8%AC%D9%87-%D9%88%D8%A7%D9%84%D8%B1%D9%82%D8%A8%D8%A9-%D9%88%D8%B1%D9%81%D8%B9-%D8%A7%D9%84%D8%AD%D8%A7%D8%AC%D8%A8%D9%8A%D9%86-%D9%85%D8%A7%D8%B0%D8%A7)
+
+
+### منتخب مصر تحت 17 سنة لكرة القدم (N/A, Fri, 27 Nov 2026 11:30:00 -0800)
+
+- **مونديال الناشئين.. تعرف على نتائج قرعة دور الـ32 ومنافسي الجزائر والمغرب ومصر والسعودية**: [Link](https://www.aljazeera.net/sport/2026/11/27/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%82%D8%B1%D8%B9%D8%A9)
+- **هل تتكرر المعجزة؟.. قصة تتويج المنتخب السعودي التاريخي بمونديال الناشئين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D9%84-%D8%AA%D8%AA%D9%83%D8%B1%D8%B1-%D8%A7%D9%84%D9%85%D8%B9%D8%AC%D8%B2%D8%A9--%D9%82%D8%B5%D8%A9-%D8%AA%D8%AA%D9%88%D9%8A%D8%AC-%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A-%D8%A8%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D9%8A%D9%94%D9%8A%D9%86/bltae03a976356b5636)
+- **منافس مصر في دور الـ32 من بطولة كأس العالم للناشئين**: [Link](https://emarat-news.ae/1335503/em-08cd1e85bf9e8919/)
+
+
+### nottm forest – chelsea (N/A, Fri, 27 Nov 2026 11:20:00 -0800)
+
+- **Nottingham Forest vs Chelsea LIVE: Premier League score, lineups, commentary & updates**: [Link](https://www.bbc.com/sport/football/live/cme3d91zygp8t)
+- **Predicted XI: Alonso dodges big decisions and picks player fans are sick of**: [Link](https://www.talkchelsea.net/news/predicted-xi-alonso-dodges-big-decisions-picks-fofana/)
+- **Chelsea fans’ preferred lineup against Nottingham Forest: How many votes did Fofana get?**: [Link](https://weaintgotnohistory.sbnation.com/premier-league/174370/chelsea-fans-preferred-lineup-against-nottingham-forest-how-many-votes-did-fofana-get)
+
+
+### وزارة التعليم العالي (N/A, Fri, 27 Nov 2026 11:20:00 -0800)
+
+- **وزارة التعليم العالي تؤكد الالتزام بتعميم "9 سنوات اعتبارية" على الجامعيين**: [Link](https://www.hespress.com/%D9%88%D8%B2%D8%A7%D8%B1%D8%A9-%D8%A7%D9%84%D8%AA%D8%B9%D9%84%D9%8A%D9%85-%D8%A7%D9%84%D8%B9%D8%A7%D9%84%D9%8A-%D8%AA%D8%A4%D9%83%D8%AF-%D8%A7%D9%84%D8%A7%D9%84%D8%AA%D8%B2%D8%A7%D9%85-%D8%A8%D8%AA-1846871.html)
+- **مراكز الاستثمار تعود لحضن “الداخلية”.. هل تحل سلطة الولاة أزمة النجاعة الاقتصادية؟**: [Link](https://al3omk.com/1213855.html)
+- **عبد السلام الصديقي: المراكز الجهوية للاستثمار تحت إشراف وزارة الداخلية.. لماذا هذا التغيير؟ وما هي رهاناته؟**: [Link](https://anfaspress.com/news/voir/183018-2026-11-25-04-45-51)
+
+
 ### سهم (N/A, Fri, 27 Nov 2026 03:30:00 -0800)
 
 - **تقلبات سهم "لابروفان" تختبر نضج المستثمرين في بورصة الدار البيضاء**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%B3%D9%87%D9%85-%D9%84%D8%A7%D8%A8%D8%B1%D9%88%D9%81%D8%A7%D9%86-%D8%AA%D8%AE%D8%AA%D8%A8%D8%B1-%D9%86%D8%B6%D8%AC-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AB-1846125.html)
