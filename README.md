@@ -1,3 +1,66 @@
+### سهم (N/A, Fri, 27 Nov 2026 03:30:00 -0800)
+
+- **تقلبات سهم "لابروفان" تختبر نضج المستثمرين في بورصة الدار البيضاء**: [Link](https://www.hespress.com/%D8%AA%D9%82%D9%84%D8%A8%D8%A7%D8%AA-%D8%B3%D9%87%D9%85-%D9%84%D8%A7%D8%A8%D8%B1%D9%88%D9%81%D8%A7%D9%86-%D8%AA%D8%AE%D8%AA%D8%A8%D8%B1-%D9%86%D8%B6%D8%AC-%D8%A7%D9%84%D9%85%D8%B3%D8%AA%D8%AB-1846125.html)
+- **دخول متعثر لعملاق الأدوية المغربي إلى بورصة الدار البيضاء**: [Link](https://rue20.com/1048270.html)
+- **رئيس مجلس إدارة Mediterrania Partners لـ CNBC عربية: أكثر من 44 ألف مكتتب في طرح "لابروفان" وتغطية متوقعة بنحو 7 أضعاف**: [Link](https://www.cnbcarabia.com/160287/2026/23/11/%D8%B1%D8%A6%D9%8A%D8%B3-%D9%85%D8%AC%D9%84%D8%B3-%D8%A5%D8%AF%D8%A7%D8%B1%D8%A9-Mediterrania-Partners-%D9%84%D9%80-CNBC-%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9:-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-44-%D8%A3%D9%84%D9%81-%D9%85%D9%83%D8%AA%D8%AA%D8%A8-%D9%81%D9%8A-%D8%B7%D8%B1%D8%AD-%22%D9%84%D8%A7%D8%A8%D8%B1%D9%88%D9%81%D8%A7%D9%86%22-%D9%88%D8%AA%D8%BA%D8%B7%D9%8A%D8%A9-%D9%85%D8%AA%D9%88%D9%82%D8%B9%D8%A9-%D8%A8%D9%86%D8%AD%D9%88-7-%D8%A3%D8%B6%D8%B9%D8%A7%D9%81)
+
+
+### صندوق استثمار (N/A, Fri, 27 Nov 2026 02:20:00 -0800)
+
+- **سحوبات بالمليارات من صناديق الاستثمار**: [Link](https://www.hespress.com/%D8%B3%D8%AD%D9%88%D8%A8%D8%A7%D8%AA-%D8%A8%D8%A7%D9%84%D9%85%D9%84%D9%8A%D8%A7%D8%B1%D8%A7%D8%AA-%D9%85%D9%86-%D8%B5%D9%86%D8%A7%D8%AF%D9%8A%D9%82-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7-1846144.html)
+- **اكتتابات سوق الرساميل المغربية تتخطى 87 مليار درهم في 2026**: [Link](https://www.assahifa.com/%D8%A7%D9%83%D8%AA%D8%AA%D8%A7%D8%A8%D8%A7%D8%AA-%D8%B3%D9%88%D9%82-%D8%A7%D9%84%D8%B1%D8%B3%D8%A7%D9%85%D9%8A%D9%84-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AA%D8%AE%D8%B7%D9%89-87/)
+- **صناديق الاستثمار بالمغرب تستقطب أكثر من 40 مليار درهم خلال 9 أشهر**: [Link](https://cnnbusinessarabic.com/finance-markets/1153519/%D8%B5%D9%86%D8%A7%D8%AF%D9%8A%D9%82-%D8%A7%D9%84%D8%A7%D8%B3%D8%AA%D8%AB%D9%85%D8%A7%D8%B1-%D8%A8%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D8%AA%D8%B3%D8%AA%D9%82%D8%B7%D8%A8-%D8%A3%D9%83%D8%AB%D8%B1-%D9%85%D9%86-40-%D9%85%D9%84%D9%8A%D8%A7%D8%B1-%D8%AF%D8%B1%D9%87%D9%85-%D8%AE%D9%84%D8%A7%D9%84-9-%D8%A3%D8%B4%D9%87%D8%B1)
+
+
+### النادي الأهلي (N/A, Fri, 27 Nov 2026 01:10:00 -0800)
+
+- **الأهلي المصري يبدأ مشوار الكونفدرالية بأمل استعادة ثقة جماهيره**: [Link](https://www.aljazeera.net/sport/2026/11/27/%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D9%85%D8%B5%D8%B1%D9%8A-%D9%8A%D8%A8%D8%AF%D8%A3-%D9%85%D8%B4%D9%88%D8%A7%D8%B1)
+- **البداية بالبدري ومهمة أولى لقمصان.. مواعيد مباريات الجولة الأولى في مجموعات الكونفدرالية**: [Link](https://www.yallakora.com/african-confederation-cup/3051/news/575205/%D8%A7%D9%84%D8%A8%D8%AF%D8%A7%D9%8A%D8%A9-%D8%A8%D8%A7%D9%84%D8%A8%D8%AF%D8%B1%D9%8A-%D9%88%D9%85%D9%87%D9%85%D8%A9-%D8%A3%D9%88%D9%84%D9%89-%D9%84%D9%82%D9%85%D8%B5%D8%A7%D9%86-%D9%85%D9%88%D8%A7%D8%B9%D9%8A%D8%AF-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-%D8%A7%D9%84%D8%A3%D9%88%D9%84%D9%89-%D9%81%D9%8A-%D9%85%D8%AC%D9%85%D9%88%D8%B9%D8%A7%D8%AA-%D8%A7%D9%84%D9%83%D9%88%D9%86%D9%81%D8%AF%D8%B1%D8%A7%D9%84%D9%8A%D8%A9)
+- **مانشستر يونايتد يعزي أسر ضحايا حادث الورّاق في مصر**: [Link](https://www.alkhaleej.ae/2026-11-26/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9/%D8%B1%D9%8A%D8%A7%D8%B6%D8%A9-%D8%B9%D8%A7%D9%84%D9%85%D9%8A%D8%A9/%D9%85%D8%A7%D9%86%D8%B4%D8%B3%D8%AA%D8%B1-%D9%8A%D9%88%D9%86%D8%A7%D9%8A%D8%AA%D8%AF-%D9%8A%D8%B9%D8%B2%D9%8A-%D8%A3%D8%B3%D8%B1-%D8%B6%D8%AD%D8%A7%D9%8A%D8%A7-%D8%AD%D8%A7%D8%AF%D8%AB-%D8%A7%D9%84%D9%88%D8%B1%D8%A7%D9%82-%D9%81%D9%8A-%D9%85%D8%B5%D8%B1)
+
+
+### autorité marocaine du marché des capitaux (N/A, Fri, 27 Nov 2026 00:40:00 -0800)
+
+- **Retail Holding obtient le visa de l'AMMC pour son introduction en Bourse par cotation directe**: [Link](https://medias24.com/2026/11/27/retail-holding-obtient-le-visa-de-lammc-pour-son-introduction-en-bourse-par-cotation-directe-1795849/)
+- **Retail Holding lance son introduction en Bourse après sa fusion avec Label’Vie**: [Link](https://fr.le360.ma/economie/retail-holding-lance-son-introduction-en-bourse-apres-sa-fusion-avec-labelvie_TDCERJHXO5HL3OWIRIEQJ2E65U/)
+- **Feu vert de l'AMMC pour l'introduction en Bourse de Retail Holding**: [Link](https://boursenews.ma/article/marches/retail-holding-visa-ammc-introduction-bourse)
+
+
+### لحم (N/A, Thu, 26 Nov 2026 23:30:00 -0800)
+
+- **استقرار اللحوم الحمراء وارتفاع الفراخ البيضاء جنيهين في بورصة الجمعة**: [Link](https://www.akhbrna.ae/services/astqrar-allhwm-alhmra-wartfaa-alfrakh/)
+- **أسعار اللحوم اليوم الجمعة 27 نوفمبر2026 في الأسواق**: [Link](https://www.cairo24.com/2536654)
+- **بكام كيلو اللحمة النهارده؟ أسعار اللحوم البلدي والمستوردة في الأقصر**: [Link](https://www.almasryalyoum.com/news/details/4421944)
+
+
+### سفيان بنجديدة (N/A, Thu, 26 Nov 2026 22:40:00 -0800)
+
+- **سفيان بن جديدة يحسم موقفه من البقاء في الأهلي.. وهذا ما ينتظره قبل الرحيل!**: [Link](https://radiomars.ma/soufiane-benjdida-al-ahly-exit/)
+- **مفاجأة.. مهاجم الأهلي تحت التقييم لنهاية الموسم: إما التألق وإما البيع**: [Link](https://www.vetogate.com/5778656)
+- **بن جديدة يبحث عن عرض للرحيل عن الأهلي في يناير.. والإعارة خيار مطروح "خاص"**: [Link](https://ahlmasrnews.com/news/sport/13507126/%D8%B3%D9%81%D9%8A%D8%A7%D9%86-%D8%A8%D9%86-%D8%AC%D8%AF%D9%8A%D8%AF%D8%A9-%D8%A7%D9%84%D8%A3%D9%87%D9%84%D9%8A)
+
+
+### هانزي فليك (N/A, Thu, 26 Nov 2026 22:20:00 -0800)
+
+- **مع فليك.. برشلونة لا يعرف التعادل**: [Link](https://www.aljazeera.net/sport/2026/11/27/%D9%85%D8%B9-%D9%81%D9%84%D9%8A%D9%83-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%84%D8%A7-%D9%8A%D8%B9%D8%B1%D9%81-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D8%AF%D9%84)
+- **عادة في برشلونة قد تتحول إلى كابوس أمام كبار أوروبا**: [Link](https://twaslnews1.twaslnews.com/8376503/)
+- **هذا الأمر ممنوع.. فليك يفرض قانونا غريبا على برشلونة**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%87%D8%B0%D8%A7-%D8%A7%D9%84%D8%A7%D9%94%D9%85%D8%B1-%D9%85%D9%85%D9%86%D9%88%D8%B9--%D9%81%D9%84%D9%8A%D9%83-%D9%8A%D9%81%D8%B1%D8%B6-%D9%82%D8%A7%D9%86%D9%88%D9%86%D8%A7-%D8%BA%D8%B1%D9%8A%D8%A8%D8%A7-%D8%B9%D9%84%D9%89-%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9/blta8d69843671f4bf7)
+
+
+### royal air maroc (N/A, Thu, 26 Nov 2026 22:00:00 -0800)
+
+- **FlyGabon et Royal Air Maroc ouvrent les correspondances sur billet unique au départ de Libreville**: [Link](https://barlamane.com/fr/flygabon-et-royal-air-maroc-ouvrent-les-correspondances-sur-billet-unique-au-depart-de-libreville/)
+- **Air France, RAM, Kenya Airways… Les nouveaux alliés de FlyGabon pour conquérir le ciel africain**: [Link](https://www.jeuneafrique.com/1860521/economie-entreprises/air-france-ram-kenya-airways-les-nouveaux-allies-de-flygabon-pour-conquerir-le-ciel-africain/)
+- **Transport aérien : l’Afrique veut lever les obstacles au financement de ses compagnies**: [Link](https://www.infomediaire.net/aviation-africaine-afraa-financement-compagnies-aeriennes/)
+
+
+### black friday (N/A, Thu, 26 Nov 2026 16:50:00 -0800)
+
+- **Black Friday Australia laptop deals for 2026: score up to 52% off Lenovo, Apple, Dell, HP and more**: [Link](https://www.techradar.com/seasonal-sales/live/black-friday-australia-laptop-deals-2026-live-1)
+- **Amazon lists the Asus ROG Strix G16 at a new all-time low price of $1,179 — RTX 5060-powered gaming laptop comes with 16GB of DDR5 RAM and a 1TB SSD**: [Link](https://www.tomshardware.com/laptops/gaming-laptops/amazon-lists-the-asus-rog-strix-g16-at-a-new-all-time-low-price-of-usd1-179-rtx-5060-powered-gaming-laptop-comes-with-16gb-of-ddr5-ram-and-a-1tb-ssd)
+- **The Best Black Friday Laptop Deals, According to Our Expert**: [Link](https://www.wired.com/story/black-friday-laptop-deals-11-18-2026/)
+
+
 ### classement crystal palace – real sociedad (N/A, Thu, 26 Nov 2026 14:40:00 -0800)
 
 - **C Palace 2-1 Real Sociedad (Nov 26, 2026) Game Analysis**: [Link](https://www.espn.com/soccer/report/_/gameId/401915504)
