@@ -1,3 +1,52 @@
+### fatima-zahra mansouri (N/A, Sat, 28 Nov 2026 00:30:00 -0800)
+
+- **Dialogue social : les concertations avec les syndicats et le patronat se poursuivront dans les prochains jours**: [Link](https://www.leconomiste.com/flash-infos/dialogue-social-les-concertations-avec-les-syndicats-et-le-patronat-se-poursuivront-dans-les-prochains-jours/)
+- **Pouvoir d’achat: les groupes de la Chambre des conseillers et les syndicats réclament des mesures contre les spéculateurs et la réforme des circuits de distribution**: [Link](https://fr.le360.ma/politique/pouvoir-dachat-les-groupes-de-la-chambre-des-conseillers-et-les-syndicats-reclament-des-mesures_HURDKVEJORD37KIQMUYAL5HWJU/)
+- **Dialogue social : Fatima Ezzahra El Mansouri rencontrera trois autres centrales syndicales**: [Link](https://mobile.telquel.ma/instant-t/2026/11/26/dialogue-social-fatima-ezzahra-el-mansouri-rencontrera-trois-autres-centrales-syndicales_2019946/)
+
+
+### اعتقال (N/A, Fri, 27 Nov 2026 23:40:00 -0800)
+
+- **اعتقال محام بفاس متلبسا بالارتشاء**: [Link](https://assabah.ma/965752.html)
+- **توقيف محامٍ بفاس متلبساً بتلقي 10 آلاف درهم على سبيل الرشوة**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/503223.html)
+- **تطورات جديدة في قضية المحامي المتمرن المتهم بـ"النصب على رجل أعمال" بفاس**: [Link](https://nichan.ma/377968/)
+
+
+### chimène badi (N/A, Fri, 27 Nov 2026 23:00:00 -0800)
+
+- **Tunis : l’Opéra annule le concert de Chimène Badi prévu le 5 décembre**: [Link](https://libnanews.com/tunis-lopera-annule-le-concert-de-chimene-badi-prevu-le-5-decembre/)
+- **Annulation du concert de Chimène Badi : au-delà de la polémique, quelles responsabilités ?**: [Link](https://www.leconomistemaghrebin.com/2026/11/28/annulation-du-concert-de-chimene-badi-au-dela-de-la-polemique-quelles-responsabilites/)
+- **Concert de Chimène Badi à Tunis : accusée de sionisme, la chanteuse visée par des appels au boycott**: [Link](https://businessnews.com.tn/2026/11/25/concert-de-chimene-badi-a-tunis-accusee-de-sionisme-la-chanteuse-visee-par-des-appels-au-boycott/1430627/)
+
+
+### coupe du monde de football (N/A, Fri, 27 Nov 2026 22:20:00 -0800)
+
+- **Le Maroc face à la Bolivie pour une place en finale du Mondial des personnes de petite taille**: [Link](https://radiomars.ma/fr/?p=8569)
+- **Mondial de football des personnes de petite taille: le Maroc affrontera le Paraguay en finale dimanche**: [Link](https://h24info.ma/sport/football/mondial-de-football-des-personnes-de-petite-taille-le-maroc-affrontera-le-paraguay-en-finale-dimanche/)
+- **Mondial de football pour personnes de petite taille: les Lions de l’Atlas déroulent face à la Bolivie et filent en finale**: [Link](https://sport.le360.ma/football/mondial-de-football-pour-personnes-de-petite-taille-les-lions-de-latlas-deroulent-face-a-la-bolivie_RBG57ZCGV5AAPNZEJ2Y5UFJV5I/)
+
+
+### إيران (N/A, Fri, 27 Nov 2026 22:10:00 -0800)
+
+- **إيران تعلن سيطرتها البحرية على شرق مضيق هرمز**: [Link](https://www.skynewsarabia.com/world/1907674-%D8%A5%D9%8A%D8%B1%D8%A7%D9%86-%D8%AA%D8%B9%D9%84%D9%86-%D8%B3%D9%8A%D8%B7%D8%B1%D8%AA%D9%87%D8%A7-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%B4%D8%B1%D9%82-%D9%85%D8%B6%D9%8A%D9%82-%D9%87%D8%B1%D9%85%D8%B2)
+- **وزير الدفاع الإيراني: سنجهز القوة البحرية بمنظومات دفاعية متطورة**: [Link](http://www.alalam.ir/news/7705753/%D9%88%D8%B2%D9%8A%D8%B1-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%A5%D9%8A%D8%B1%D8%A7%D9%86%D9%8A-%D8%B3%D9%86%D8%AC%D9%87%D8%B2-%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%D9%8A%D8%A9-%D8%A8%D9%85%D9%86%D8%B8%D9%88%D9%85%D8%A7%D8%AA-%D8%AF%D9%81%D8%A7%D8%B9%D9%8A%D8%A9-%D9%85%D8%AA%D8%B7%D9%88%D8%B1%D8%A9)
+- **وزير الدفاع الايراني: سنجهّز قواتنا البحرية بمنظومات متطورة**: [Link](https://www.tasnimnews.ir/ar/news/2026/11/28/3759597/%D9%88%D8%B2%DB%8C%D8%B1-%D8%A7%D9%84%D8%AF%D9%81%D8%A7%D8%B9-%D8%A7%D9%84%D8%A7%DB%8C%D8%B1%D8%A7%D9%86%DB%8C-%D8%B3%D9%86%D8%AC%D9%87%D9%91%D8%B2-%D9%82%D9%88%D8%A7%D8%AA%D9%86%D8%A7-%D8%A7%D9%84%D8%A8%D8%AD%D8%B1%DB%8C%D8%A9-%D8%A8%D9%85%D9%86%D8%B8%D9%88%D9%85%D8%A7%D8%AA-%D9%85%D8%AA%D8%B7%D9%88%D8%B1%D8%A9)
+
+
+### ملعب (N/A, Fri, 27 Nov 2026 22:00:00 -0800)
+
+- **تعثر يطال تهيئة محيط ملعب أكادير**: [Link](https://www.hespress.com/%D8%AA%D8%B9%D8%AB%D8%B1-%D9%8A%D8%B7%D8%A7%D9%84-%D8%AA%D9%87%D9%8A%D8%A6%D8%A9-%D9%85%D8%AD%D9%8A%D8%B7-%D9%85%D9%84%D8%B9%D8%A8-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-1846631.html)
+- **سياحة الغد في أكادير.. الذكاء الاصطناعي يكتب فصول القطاع ما بعد 2030 (فيديو 2M.ma)**: [Link](https://2m.ma/ar/news/%D8%B3%D9%8A%D8%A7%D8%AD%D8%A9-%D8%A7%D9%84%D8%BA%D8%AF-%D9%81%D9%8A-%D8%A3%D9%83%D8%A7%D8%AF%D9%8A%D8%B1-%D8%A7%D9%84%D8%B0%D9%83%D8%A7%D8%A1-%D8%A7%D9%84%D8%A7%D8%B5%D8%B7%D9%86%D8%A7%D8%B9%D9%8A-%D9%8A%D9%83%D8%AA%D8%A8-%D9%81%D8%B5%D9%88%D9%84-%D8%A7%D9%84%D9%82%D8%B7%D8%A7%D8%B9-%D9%85%D8%A7-%D8%A8%D8%B9%D8%AF-20261125)
+- **أكادير: « تتويج » سياحي برائحة المال والمحاباة**: [Link](https://machahid.info/378483.html)
+
+
+### santander fc (N/A, Fri, 27 Nov 2026 14:30:00 -0800)
+
+- **Vieri, Ronaldo, Romario, Lewandowski, Cristiano... and Zabiri**: [Link](https://www.besoccer.com/new/vieri-ronaldo-romario-lewandowski-cristiano-and-zabiri-1443593)
+- **Licensable picture: Real Racing Club de Santander v Real Sociedad - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/real-racing-club-de-santander-v-real-sociedad-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMFlZWjBTRA)
+- **Morocco’s Yassir Zabiri Scores Twice as Racing Santander Beats Real Sociedad 3-2**: [Link](https://barlamantoday.com/2026/11/22/moroccos-yassir-zabiri-scores-twice-as-racing-santander-beats-real-sociedad-3-2/)
+
+
 ### columbus crew – inter miami (N/A, Fri, 27 Nov 2026 16:40:00 -0800)
 
 - **Inter Miami Fight to Save MLS Cup Defense Against Columbus**: [Link](https://cwibc.co.id/en/inter-miami-save-title-defense)
