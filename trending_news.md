@@ -1,3 +1,73 @@
+### الرجاء (N/A, Sat, 28 Nov 2026 10:50:00 -0800)
+
+- **تشكيلة الرجاء لمواجهة اسكوديكارا (كأس الكونفدرالية)**: [Link](https://radiomars.ma/%D8%AA%D8%B4%D9%83%D9%8A%D9%84%D8%A9-%D8%A7%D9%84%D8%B1%D8%AC%D8%A7%D8%A1-%D9%84%D9%85%D9%88%D8%A7%D8%AC%D9%87%D8%A9-%D8%A7%D8%B3%D9%83%D9%88%D8%AF%D9%8A%D9%83%D8%A7%D8%B1%D8%A7-%D9%83%D8%A3%D8%B3/)
+- **الرجاء يفتح أكاديميته لخصمه في الكاف في خطوة نادرة**: [Link](https://ar.sport.le360.ma/football/coupe-caf/2ZSCCPJW25ALHH2633YTFVCAOY/)
+- **الجيناني يشدد على ضرورة فوز الرجاء في ضربة بداية دور المجموعات ويحذر من قوة أسكو دي كارا**: [Link](https://alaoual.com/%D8%B1%D8%A6%D9%8A%D8%B3%D9%8A%D8%A9/503231.html)
+
+
+### ياسين بونو (N/A, Sat, 28 Nov 2026 10:30:00 -0800)
+
+- **"سنتعاقد معه".. ريفر بليت يعترف بمفاوضات ياسين بونو**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D9%86%D8%AA%D8%B9%D8%A7%D9%82%D8%AF-%D9%85%D8%B9%D9%87--%D8%B1%D9%8A%D9%81%D8%B1-%D8%A8%D9%84%D9%8A%D8%AA-%D9%8A%D8%B9%D8%AA%D8%B1%D9%81-%D8%A8%D9%85%D9%81%D8%A7%D9%88%D8%B6%D8%A7%D8%AA-%D9%8A%D8%A7%D8%B3%D9%8A%D9%86-%D8%A8%D9%88%D9%86%D9%88/blt1ecba1c58b5a097d)
+- **الهلال يحسم موقفه من رحيل بونو إلى ريفر بليت**: [Link](https://ar.sport.le360.ma/football/lions-atlas/ODSMOTTUVZH7TJNMSYH2YZ7PIQ/)
+- **اجتماع في مدريد بين مسؤول من ريفر بلايت ووكيل بونو لمناقشة إمكانية انتقاله إلى النادي الأرجنتيني في يونيو 2027**: [Link](https://www.elbotola.com/article/2026-11-24-18-05-239.html)
+
+
+### psv eindhoven – go ahead eagles (N/A, Sat, 28 Nov 2026 10:30:00 -0800)
+
+- **PSV vs Go Ahead Eagles: Dutch Eredivisie stats & head-to-head**: [Link](https://www.bbc.com/sport/football/live/cw8dv1ld93e6t)
+- **Preview: PSV Eindhoven vs. Go Ahead Eagles - prediction, team news, lineups**: [Link](https://www.sportsmole.co.uk/football/psv-eindhoven/preview/psv-vs-go-ahead-eagles-prediction-team-news-lineups_609867.html)
+- **PSV v Go Ahead Eagles Odds**: [Link](https://sportsbook.fanduel.com/soccer/dutch-eredivisie/psv-v-go-ahead-eagles-36352146)
+
+
+### al-ahli saudi – al taawon (N/A, Sat, 28 Nov 2026 10:20:00 -0800)
+
+- **Al-Ahli Saudi vs. Al-Taawoun FC - Live Score - November 28, 2026**: [Link](https://www.foxsports.com/soccer/saudi-pro-league-al-ahli-saudi-vs-al-taawoun-fc-nov-28-2026-game-boxscore-1101084)
+- **Shabab Al-Ahli seeks to regain its continental footing against Al-Qadsia in the AFC Champions League Elite**: [Link](https://www.voiceofemirates.com/en/emirates/2026/11/24/shabab-al-ahli-seeks-to-regain-its-continental-footing-against-al-qadsia-in-the-afc-champions-league-elite/)
+- **Shabab Al Ahli Host Unbeaten Al Qadsiah in Dubai Showdown**: [Link](https://bsinews.id/en/shabab-al-ahli-al-qadsiah-clash)
+
+
+### عبد الله وزان (N/A, Sat, 28 Nov 2026 10:20:00 -0800)
+
+- **والد نجم مغربي يفتح باب الرحيل.. وبرشلونة يراقبه منذ عامين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%88%D8%A7%D9%84%D8%AF-%D9%86%D8%AC%D9%85-%D9%85%D8%BA%D8%B1%D8%A8%D9%8A-%D9%8A%D9%81%D8%AA%D8%AD-%D8%A8%D8%A7%D8%A8-%D8%A7%D9%84%D8%B1%D8%AD%D9%8A%D9%84--%D9%88%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%8A%D8%B1%D8%A7%D9%82%D8%A8%D9%87-%D9%85%D9%86%D8%B0-%D8%B9%D8%A7%D9%85%D9%8A%D9%86/blt3ecfcf483e504e17)
+- **برشلونة وريال مدريد يترقبان مستقبل الموهبة المغربية عبد الله وزان**: [Link](https://radiomars.ma/%D8%A8%D8%B1%D8%B4%D9%84%D9%88%D9%86%D8%A9-%D9%88%D8%B1%D9%8A%D8%A7%D9%84-%D9%85%D8%AF%D8%B1%D9%8A%D8%AF-%D9%8A%D8%AA%D8%B1%D9%82%D8%A8%D8%A7%D9%86-%D9%85%D8%B3%D8%AA%D9%82%D8%A8%D9%84-%D8%A7%D9%84/)
+- **عبد الله وزان أبواب على « رادار« أكبر الأندية الأوروبية**: [Link](https://ar.sport.le360.ma/football/lions-atlas/N2VMUCOR2BFG7O4BAJSJXPTDGM/)
+
+
+### far (N/A, Sat, 28 Nov 2026 10:20:00 -0800)
+
+- **Spain’s Election Could Oust Sánchez, a Left-Wing Hero Abroad**: [Link](https://www.nytimes.com/2026/11/28/world/europe/spain-pedro-sanchez-conservatives-election.html)
+- **Spain’s Sánchez stood up against Trump. His own voters may be about to bring him down**: [Link](https://www.cnn.com/2026/11/27/world/spains-sanchez-stood-up-against-trump-his-own-voters-may-be-about-to-bring-him-down)
+- **Spanish voters are about to get their say on high living costs**: [Link](https://www.washingtonpost.com/world/2026/11/28/spanish-voters-are-about-get-their-say-high-living-costs/)
+
+
+### عبد الرزاق حمد الله (N/A, Sat, 28 Nov 2026 10:10:00 -0800)
+
+- **فيديو | "ما يحدث مضيعة للوقت" .. هجوم على الاتحاد السعودي قبل تحطيم عبد الرزاق حمد الله لرقم السومة التاريخي!**: [Link](https://www.goal.com/ar/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D9%81%D9%8A%D8%AF%D9%8A%D9%88--%D9%85%D8%A7-%D9%8A%D8%AD%D8%AF%D8%AB-%D9%85%D8%B6%D9%8A%D8%B9%D8%A9-%D9%84%D9%84%D9%88%D9%82%D8%AA---%D9%87%D8%AC%D9%88%D9%85-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D8%A7%D8%AA%D8%AD%D8%A7%D8%AF-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D9%82%D8%A8%D9%84-%D8%AA%D8%AD%D8%B7%D9%8A%D9%85-%D8%B9%D8%A8%D8%AF-%D8%A7%D9%84%D8%B1%D8%B2%D8%A7%D9%82-%D8%AD%D9%85%D8%AF-%D8%A7%D9%84%D9%84%D9%87-%D9%84%D8%B1%D9%82%D9%85-%D8%A7%D9%84%D8%B3%D9%88%D9%85%D8%A9-%D8%A7%D9%84%D8%AA%D8%A7%D8%B1%D9%8A%D8%AE%D9%8A/blt597b7bec732b8e80)
+- **بوسيتش يعتمد على القوة الضاربة أمام التعاون.. ويختار بديل إيبانيز**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A8%D9%88%D8%B3%D9%8A%D8%AA%D8%B4-%D9%8A%D8%B9%D8%AA%D9%85%D8%AF-%D8%B9%D9%84%D9%89-%D8%A7%D9%84%D9%82%D9%88%D8%A9-%D8%A7%D9%84%D8%B6%D8%A7%D8%B1%D8%A8%D8%A9-%D8%A7%D9%94%D9%85%D8%A7%D9%85-%D8%A7%D9%84%D8%AA%D8%B9%D8%A7%D9%88%D9%86--%D9%88%D9%8A%D8%AE%D8%AA%D8%A7%D8%B1-%D8%A8%D8%AF%D9%8A%D9%84-%D8%A7%D9%95%D9%8A%D8%A8%D8%A7%D9%86%D9%8A%D8%B2/blt78bc6c8f7af000e8)
+- **الأهلي السعودي يكشف تفاصيل إصابة مدافعه أمام النصر**: [Link](https://www.aljazeera.net/sport/2026/11/26/%D8%A7%D8%B5%D8%A7%D8%A8%D8%A9-%D8%A7%D9%8A%D8%A8%D8%A7%D9%86%D9%8A%D8%B2-%D8%A7%D9%84%D8%A7%D9%87%D9%84%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-%D8%A7%D9%84%D9%86%D8%B5%D8%B1)
+
+
+### caf champions league (N/A, Sat, 28 Nov 2026 10:00:00 -0800)
+
+- **Morocco's Ambassador to Egypt supports Maghreb Fez delegation ahead of Pyramids Champions League match**: [Link](https://www.elbotola.com/en/article/2026-11-27-21-28-25.html)
+- **Pyramids FC vs MAS de Fès LIVE: How to Watch**: [Link](https://www.beinsports.com/en-us/soccer/caf-champions-league/articles/how-and-where-to-watch-pyramids-fc-vs-mas-de-f%C3%A8s-live-on-bein-sports-2026-11-27)
+- **Pyramids open Champions League group stage against Morocco Fassi**: [Link](https://africasoccer.com/pyramids-open-champions-league-group-stage-against-morocco-fassi/)
+
+
+### raja (N/A, Sat, 28 Nov 2026 09:50:00 -0800)
+
+- **Raja Warring's Gunman's House Targeted By Thieves In Jagraon, Police Begin Probe**: [Link](https://www.etvbharat.com/en/state/raja-warrings-gunmans-house-targeted-by-thieves-in-jagraon-police-begin-probe-enn26112804615)
+- **House of policeman deployed in MP Warring’s security burgled | Hindustan Times**: [Link](https://www.hindustantimes.com/cities/chandigarh-news/house-of-policeman-deployed-in-mp-warring-s-security-burgled-101795884620140.html)
+- **Amarinder Singh Raja Warring's security officer's Jagraon home burglarized**: [Link](https://www.newsbytesapp.com/news/india/amarinder-singh-raja-warrings-security-officers-jagraon-home-burglarized/tldr)
+
+
+### منتخب مصر لكرة القدم (N/A, Sat, 28 Nov 2026 09:50:00 -0800)
+
+- **مونديال الناشئين.. تعرف على نتائج قرعة دور الـ32 ومنافسي الجزائر والمغرب ومصر والسعودية**: [Link](https://www.aljazeera.net/sport/2026/11/27/%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D8%A6%D9%8A%D9%86-%D8%AA%D8%B9%D8%B1%D9%81-%D8%B9%D9%84%D9%89-%D9%86%D8%AA%D8%A7%D8%A6%D8%AC-%D9%82%D8%B1%D8%B9%D8%A9)
+- **المنتخبات العربية تتعرف منافسيها بدور الـ32 بمونديال الناشئين**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%A7%D9%84%D9%85%D9%86%D8%AA%D8%AE%D8%A8%D8%A7%D8%AA-%D8%A7%D9%84%D8%B9%D8%B1%D8%A8%D9%8A%D8%A9-%D8%AA%D8%AA%D8%B9%D8%B1%D9%81-%D9%85%D9%86%D8%A7%D9%81%D8%B3%D9%8A%D9%87%D8%A7-%D8%A8%D8%AF%D9%88%D8%B1-%D8%A7%D9%84%D9%8032-%D8%A8%D9%85%D9%88%D9%86%D8%AF%D9%8A%D8%A7%D9%84-%D8%A7%D9%84%D9%86%D8%A7%D8%B4%D9%8A%D9%94%D9%8A%D9%86/blt7f634797dcf9ada3)
+- **مونديال الناشئين.. إليك مواعيد مباريات مصر والسعودية والمغرب والجزائر في دور الـ32**: [Link](https://arabic.cnn.com/sport/article/2026/11/28/egypt-saudi-arabia-morocco-algeria-u-17-world-cup-matches)
+
+
 ### fatima-zahra mansouri (N/A, Sat, 28 Nov 2026 00:30:00 -0800)
 
 - **Dialogue social : les concertations avec les syndicats et le patronat se poursuivront dans les prochains jours**: [Link](https://www.leconomiste.com/flash-infos/dialogue-social-les-concertations-avec-les-syndicats-et-le-patronat-se-poursuivront-dans-les-prochains-jours/)
