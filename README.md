@@ -1,3 +1,45 @@
+### columbus crew – inter miami (N/A, Fri, 27 Nov 2026 16:40:00 -0800)
+
+- **Inter Miami Fight to Save MLS Cup Defense Against Columbus**: [Link](https://cwibc.co.id/en/inter-miami-save-title-defense)
+- **Talking Tactics: Long balls, intricate passing and exploiting space - how Laurent Courtois' Columbus Crew dismantled Lionel Messi's Inter Miami**: [Link](https://www.goal.com/en-in/originals/playing-the-long-ball-exploiting-the-spaces-and-a-bit-of-luck-how-columbus-crew-battered-inter-miami/blt631e393de9d56095)
+- **Messi, Inter Miami Face Playoff Elimination After 3-0 Loss to Crew**: [Link](https://bvmsports.com/2026/11/27/messi-inter-miami-face-playoff-elimination-after-3-0-loss-to-crew/)
+
+
+### laliga (N/A, Fri, 27 Nov 2026 14:30:00 -0800)
+
+- **Seville captivates the guests of the LALIGA EXPERIENCE with the excitement of El Gran Derbi**: [Link](https://www.laliga.com/en-AR/news/seville-captivates-the-guests-of-the-laliga-experience-with-the-excitement-of-el-gran-derbi)
+- **Watch Sevilla Live**: [Link](https://kayosports.com.au/en-AU/competitor/Competitor:10eyb18v5puw4ez03ocaug09m/ninsnl9zqzj908eur0d5ny10k0/2rzwuezt45kjv6ydachmf12tb)
+- **Sevilla vs Real Betis official lineups: Abde Ezzalzouli starts while Chidera Ejuke is benched for El Gran Derbi**: [Link](https://foot-africa.com/en/news/sevilla-vs-real-betis-official-lineups-abde-ezzalzouli-and-ejuke-start-el-gran-derbi-1426739/)
+
+
+### la liga (N/A, Fri, 27 Nov 2026 14:10:00 -0800)
+
+- **Zabiri continues to shine in the Spanish League, leading Racing Santander to a 3-1 victory over Levante**: [Link](https://www.elbotola.com/en/article/2026-11-27-22-31-272.html)
+- **Licensable picture: Real Racing Club de Santander v Real Sociedad - LaLiga EA Sports 2026/27**: [Link](https://www.reutersconnect.com/item/real-racing-club-de-santander-v-real-sociedad-laliga-ea-sports-202627/dGFnOnJldXRlcnMuY29tLDIwMjY6bmV3c21sX01UMU5VUlBITzAwMFlZWjBTRA)
+- **Morocco’s Yassir Zabiri Scores Twice as Racing Santander Beats Real Sociedad 3-2**: [Link](https://barlamantoday.com/2026/11/22/moroccos-yassir-zabiri-scores-twice-as-racing-santander-beats-real-sociedad-3-2/)
+
+
+### liga (N/A, Fri, 27 Nov 2026 14:00:00 -0800)
+
+- **Football gossip: Haaland, Musiala, Araujo, Alvarez, Rudiger, Owusu**: [Link](https://www.bbc.com/sport/football/articles/c9zr568gje67o)
+- **Barcelona greatly admire Manchester City megastar who dreams of playing in Spain – report**: [Link](https://barcauniversal.com/barcelona-greatly-admire-manchester-city-megastar-who-dreams-of-playing-in-spain-report/)
+- **Are we about to lose the Premier League’s last superstar in Erling Haaland?**: [Link](https://www.telegraph.co.uk/football/2026/11/27/savour-erling-haaland-while-can-may-not-premier-league/)
+
+
+### racing santander (N/A, Fri, 27 Nov 2026 13:40:00 -0800)
+
+- **Levante 1 - Racing 3: resumen, goles y resultado del partido de LaLiga EA Sports**: [Link](https://as.com/futbol/primera/levante-racing-en-directo-laliga-ea-sports-hoy-en-vivo-f202611-d/)
+- **Pablo García levanta a un Racing que coge velocidad de crucero**: [Link](https://www.marca.com/futbol/primera-division/cronica/2026/11/27/pablo-garcia-levanta-racing-coge-velocidad-crucero.html)
+- **Black Friday en el Ciutat de Valencia (1-3)**: [Link](https://onefootball.com/es/noticias/black-friday-en-el-ciutat-de-valencia-1-3-43854606)
+
+
+### مراد باتنا (N/A, Fri, 27 Nov 2026 13:20:00 -0800)
+
+- **ساحر المغرب يخطف الأنظار في السعودية.. ما القصة؟**: [Link](https://www.kooora.com/%D9%83%D8%B1%D8%A9-%D9%82%D8%AF%D9%85/%D8%A3%D8%AE%D8%A8%D8%A7%D8%B1/%D8%B3%D8%A7%D8%AD%D8%B1-%D8%A7%D9%84%D9%85%D8%BA%D8%B1%D8%A8-%D9%8A%D8%AE%D8%B7%D9%81-%D8%A7%D9%84%D8%A7%D9%94%D9%86%D8%B8%D8%A7%D8%B1-%D9%81%D9%8A-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9--%D9%85%D8%A7-%D8%A7%D9%84%D9%82%D8%B5%D8%A9/blt3adc4483b9d7e983)
+- **باتنا يقود الفتح لفوز مهم في الدوري السعودي**: [Link](https://sport.rue20.com/%D8%A8%D8%A7%D8%AA%D9%86%D8%A7-%D9%8A%D9%82%D9%88%D8%AF-%D8%A7%D9%84%D9%81%D8%AA%D8%AD-%D9%84%D9%81%D9%88%D8%B2-%D9%85%D9%87%D9%85-%D9%81%D9%8A-%D8%A7%D9%84%D8%AF%D9%88%D8%B1%D9%8A-%D8%A7%D9%84%D8%B3.html)
+- **حكام مباريات اليوم الجمعة في الجولة 13 من دوري روشن السعودي**: [Link](https://www.akhbaar24.com/%D8%A7%D9%84%D9%83%D8%B1%D8%A9-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A%D8%A9/%D8%AD%D9%83%D8%A7%D9%85-%D9%85%D8%A8%D8%A7%D8%B1%D9%8A%D8%A7%D8%AA-%D8%A7%D9%84%D9%8A%D9%88%D9%85-%D8%A7%D9%84%D8%AC%D9%85%D8%B9%D8%A9-%D9%81%D9%8A-%D8%A7%D9%84%D8%AC%D9%88%D9%84%D8%A9-13-%D9%85%D9%86-%D8%AF%D9%88%D8%B1%D9%8A-%D8%B1%D9%88%D8%B4%D9%86-%D8%A7%D9%84%D8%B3%D8%B9%D9%88%D8%AF%D9%8A-777098)
+
+
 ### brest – paris fc (N/A, Fri, 27 Nov 2026 12:20:00 -0800)
 
 - **Stade Brestois 29 - Paris FC : Pronostic : Une occasion de viser la première place.**: [Link](https://www.vietnam.vn/fr/nhan-dinh-stade-brestois-29-vs-paris-fc-co-hoi-bam-duoi-ngoi-dau)
